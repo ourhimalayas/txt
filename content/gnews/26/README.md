@@ -2,48 +2,116 @@
 ---
 
 
-## 文贵先生盖特精要 2022/01/16
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1869026/)
+## 一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1869100/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1321.png)[盖特直播链接](https://gettr.com/post/ponfef75ca)
+[https://gtv.org/video/id=61e1481987664c47acd48046](https://gtv.org/video/id=61e1481987664c47acd48046)
 
-尊敬的战友们好。屋内烈火炎炎，欲壑难填；屋外零下十二、三度。小时候零下三十几度在外边玩儿也没事儿。人啊！真是变化太大了！
+**郭文贵
+Miles Guo**
 
-日本、欧洲的病毒感染率都在逐日走高，美国每天感染率更是以百万计数。有太多战友都被感染上了，大家真得小心呀！吃药不等于不会被感染；感染了也不等于吃完药就管用。
+有一些流氓国家的强制政策
+There are some rogue states enforced policies
 
-生命是第一重要，其他什么正义、真相、灭共等等都排在其后。有些战友说等事后想说说太平联盟的案子和疫苗真相。出发点是好的，但是如果个体的生命都消失了，那你还有机会说吗？另外，很多人死了，你又说给谁听呢？甭想那事后的事儿了，切忌犯天真的毛病。别染上毒是万事之首、重中之重！！！
+你去看有一个国家是正常的吗?
+Have you seen any one of them is normal?
 
-国内专题片《零容忍》认罪里的胡怀邦、孙力军、杭州书记王立科都跟我打过交道。“电视认罪”这种形式就是这些人发明的。他们曾经让无数人电视认罪，现在终于轮到自己头上了。“电视认罪”的每个标点符号都是安排好的，全是假的。
+这个（国家）领导人
+What’s up with the leaders of this country?
 
-有外媒报道，北京没有雪，怎么开冬奥会？外国人完全不明白。北京可以放100万打雪弹造雪。人类上也只有中共能在冬天给树刷绿漆上色。这个国家造假已经到了你无法想象的程度。
+所有这些国家通过强制疫苗，把它定为什么没打疫苗的人是怎么着怎么着
+All these countries through mandatory vaccines to identify those unvaccinated people and criticize them as whatever something
 
-青岛一战友刚发来信息：因为一对母子做核糖核酸检测不听话，几个警察将二人一顿暴打。就跟当年孟建柱、孙立军一样，玩儿人家几代人，老少女性通吃。当一个人从小就被中共不停地灌输仇恨，那么即使穿着人皮，也会做出比畜生还可怕的行为。
+我告诉你，你看它的背景，你看它的政府的体制
+Let me tell you that’s go to take a look at its background and its government system
 
-在挪威、丹麦政府部门的外交人员，作为朋友告诉七哥：在跟中共勾兑时，深深地体会到七哥所形容的中共——就是个流氓集团。中共完全就是一副敲诈、威胁、傲慢的嘴脸。这些中共官员的家人和孩子都在当地居住，过着腐败的生活。
+基本上国会和医疗机构和总统，基本上都是一个党派的
+Basically, all these congress, medical institutions, and the President are in the same party
 
-东莞一朋友已破产，当时投了6个多亿，现在卖掉了三、四千万。最后他想拿走个人私有物品时，警察欲给他安个涉嫌嫖娼的罪名就为了贪污他的这些财产。七哥前几年就劝说此人赶紧离开。与中共为伍，无知、贪婪是要付出各种代价的。
+而且非常大的偶然
+And very accidentally
 
-战友们请把自己管好，度过2022年这个人类历史上最黑暗的一年。病毒、经济危机都让人难熬。很多基金认为明年的世界经济将下降20%到40%。基金里的人都认为他人会破产，而他们自己会活下去。人类的自私已经到了无法形容的程度，只想着自己，老百姓的死活是没人过问的。到了老百姓没法生存的当儿，难道基金就能太平吗？谁能放过他们呢？
+这些党派从来过去没有控制过什么上院下院上众议院
+these parties have never controlled any upper house, lower house, or upper House of Representatives in the past
 
-各国政府都希望让这个经济崩溃的时刻来得更迅速、猛烈一些吧，之后他们可以设计更多的金融产品来继续奴役百姓。不仅中共，各国统治阶级皆如此，只不过是中共开启了这个更加邪恶的模式。全世界的人都有贪婪、憎恨、虚伪、自私、冷漠，甚至魔鬼的一面。只是文明和法制让这些东西得到了控制。这次中共病毒的完美设计，让人性的丑陋、邪恶无限地放大。共产党在窃笑！世界变得动乱不堪；死亡是给中共最好的礼物，憎恨是中共的甜品，杀掠、阴谋诡计是中共的咖啡，媒体和基金是中共喝咖啡的工具。所有媒体在新疆反人类大屠杀和冬奥会事件上的噤声就说明了一切。
+就这一次它（一个党派）就控制了
+Just this time, it was controlled by a single party
 
-新中国联邦就像天空中的太阳无限美好。珍惜吧！伟大的战友，爱你们！明年的今日你就能体会出新中国联邦是多么伟大！
+而且这时候就说了算, 又立法、颁布行政规定都它说了算
+Moreover, this party makes final decisions in both legislation and promulgation of administrative regulations at this time
 
-*听写：trustguo*
-*校对: 小雨*
+让我们真的看到这个世界真的比我们想象还要吓人，还恐怖啊
+This has made us realize that the world is actually more horrified than we expected
+
+为什么都是这一帮政党
+Why is all this gang of political parties
+
+前所未有地统治一个国家的立法权，行政权、执行权之后, 他们有这样的流氓的决定
+after unprecedented ruling a country’s legislative power,and executive power have such a rogue decision
+
+而且是所有的制药公司都不负责任, 都不敢说里边成分的时候
+and all the pharmaceutical companies are irresponsible and dare not to say the ingredients in it
+
+而要让你强制打疫苗
+they make it mandatory for you to get vaccinated
+
+最重要的是打完疫苗，现在确实是打疫苗（会）死人
+The most important thing is after vaccination and it’s now indeed that people would die from vaccinated
+
+关键是打疫苗的人感染已经（从）一针管用
+The critical thing is that the infection for those vaccinated people from one jab will work
+
+二针绝对管用
+two jabs definitely effective
+
+三针一定管你一辈子
+three jabs will definitely control you for the rest of your life
+
+现在要每年打，每月打
+Now you have to get the jab every year even every month
+
+改成打终生
+and it turns into lifetime jab
+
+这种逻辑这不是胡扯了吗?
+Isn’t this kind of logic nonsense?
+
+更可怕的事情
+more terrifying thing is that
+
+我们大家要意识到，我们感染人当中绝大多数80%、90%都是打了疫苗的人
+we all need to realize that the vast majority of 80% or 90% of our infected people are the people who have been vaccinated
+
+这还用说吗?
+Does this even need to be explained?
+
+这逻辑、常识、专业都在这摆着呢
+This logic, common sense, and professionalism are all on the table
+
+我们战友们如果再听不进去不就是疯了吗？
+Aren’t our comrades insane if we still not realize that?
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date: 01/08/2022
+原视频标题: 一党控制政府 疯狂强制疫苗 但恰恰是打过疫苗的容易感染
+这个世界疯了
+One-party control of the government aggressively enforce vaccine mandate, but it is precisely those who have been vaccinated that are susceptible to infection – the world is out of control
+原视频日期：2022/01/07
+原视频链接: [https://gettr.com/post/pn1esn26e1](https://gettr.com/post/pn1esn26e1)
+任务编号：3441
+视频时间段 : 0:00-01:44
 
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

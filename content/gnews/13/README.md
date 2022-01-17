@@ -2,24 +2,36 @@
 ---
 
 
-## 东京10岁以下感染病例迅速增加，引发学校集团感染的担忧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1869177/)
+## 上海正式公布在静安寺附近发生确诊奥米克戎感染病例
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1869240/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-146.png)[图片来源](https://news.yahoo.co.jp/articles/47346b2d6cc07429dfebe5920f6b33a44472c710/images/000)
-在中共病毒（新冠病毒Covid-19）感染迅速蔓延的东京，小学生等10岁以下的感染人数迅速增加。每天报告的感染者大多数是20—40多岁，但也有可能是工作或用餐时的感染被带入家中，并通过无症状儿童传播到学校和幼儿园。如果教育领域出现聚集性感染（集团感染），班级关闭、学校停课等措施在所难免，市府呼吁提高警惕。
+作者：健身部 – 阿什莉
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2022年1月16日，星期六，上海当地新闻刚刚报道：最新的上海COVID-19集群现已被确认为具有高传染性的Omicron变种。
+正如周五报道的那样，上海宣布了两例本地传播的 COVID-19 病例和三例本地无症状病例。
 
-在东京，16日确诊中共病毒感染病例4172例，其中10岁以下294例。随着新变异株“Omicron株”的感染迅速蔓延，正在影响刚进入第三学期的小学生。
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0116%2Fdc559a55j00r5saau003fc000w200l9m.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
 
-据该市称，Omicron 菌株的社区获得性感染于去年12月24日在东京首次确认。20多岁和40多岁的新感染人数自同月底以来迅速增加，但自新年4日以来，10岁以下感染的传播变得显著起来。
+他们与周二在该市报告的一例进口无症状 COVID-19 病例有关。
+基因测序现已证实新病例感染了 Omicron 变体，该变体比以前占主导地位的Delta 变体更具传播性。
+病例集中在静安区豫园路一家名为“中国鲜茶”的奶茶铺，该店铺距离上海地铁一号线静安寺站1号出口仅200米。
+上海全市各地开展大规模筛查，截至目前，上海共检测5.4万相关人员； 迄今为止，上海市追踪到的304名密切接触者和2830名次要接触者已经接受了隔离措施。 到目前为止，所有测试均呈阴性。
+输入的无症状COVID-19病例是5例新病例的起源，是一名在美国学习的中国公民，他于12月21日抵达浦东国际机场。
+上海周五还报告了43例输入性感染病例。
+截至发稿时，据中国境内报道中国已确定包括静安区奶茶店在内的19个高风险区域和59个中等风险区域。
 
-消息来源：
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+**更多资讯，更多关注**
 
-[新型コロナ　都内で「１０歳未満」感染急増　校内クラスターの懸念も](https://news.yahoo.co.jp/articles/47346b2d6cc07429dfebe5920f6b33a44472c710)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

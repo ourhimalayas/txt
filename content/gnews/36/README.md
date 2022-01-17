@@ -2,39 +2,31 @@
 ---
 
 
-## 新中国联邦辞典横空出世
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1868048/)
+## 扬帆每日速递 2022年1月16日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1868608/)
 
-作者：纽约香草山- Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，《新中国联邦辞典》成功上线，这是一部由GNEWS运营管理的新中国联邦官方百科全书式的辞典。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、1月16日港闻报道：香港财政司长陈茂波指，为市民舒困须保留财政实力，新一份财政预算案亦要保留实力，确保香港金融稳定。请问财爷，香港金融有多不稳定呢？难道库房沒钱？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-7.jpeg)
+2、食物及卫生局局长陈肇始指:年初四能否放宽社交距离及晚市堂食要参看多项指标，正研究推出应用程式供处所营运者扫描及检查针卡。一切为了强制疫苗的政治目的！
 
-新中国联邦辞典提供了以爆料革命为基石的新中国联邦正道主义的各类信息。用户可以查询到郭文贵先生从2017年以来的直播和盖特信息以及在灭共历程中的言论合集，同时可以在各词条中查看相关引用。本辞典以新中国联邦为主线，涵盖了历史、地理、政治、经济、音乐、体育、美术、生物、物理、化学、数学等多学科知识，并提供中文标准人名、外文标准译名、标准网名、爆料革命相关人物总索引、历史上的今天和全球喜马拉雅农场列表等各种工具页面。
+3、欧盟监管机构发出警告，频繁接种中共病毒加强针可能会对免疫系统产生不利影响，并且可能不是对抗中共病毒疫情的可行方法。
 
-新中国联邦辞典秉持唯真不破的理念，形式简洁，查询方便，结构合理，布局精美，可读性强，是一个不为主流媒体、邪恶势力以及中共蓝金黄左右的百科全书式知识库。以爆料革命战友为主的自愿维护团队在顾问编辑组的引导下，为本辞典安全顺利运行保驾护航。
+4、参议员比尔·哈格蒂在福克斯的“Mornings with Maria”节目中表示，拜登政府对推动对中共病毒起源进行全面调查“做得还不够”，而且现在正是开始制裁包括武汉病毒研究所在内的中共国机构的时候。
 
-目前，新中国联邦辞典共有5366个条目，全球各地农场志在灭共的战友们不断加入，壮大了辞典的策划、编辑、创作队伍，新中国联邦辞典随时修订，不断完善。
+5、据文贵大直播：中共邪恶政权自建国以来就用商鞅《驭民五术》分区分族奴役人民，最核心就是穷其所命，无限忙碌，疫苗就是愚民成功的结果。
 
-当今互联网所有在线百科全书平台都不能体现爆料革命事业准确的信息和正确的观点，新中国联邦辞典横空出世，正本清源。
+6、据文贵大直播：中共政权就是要通过病毒和疫苗，把人民圈在家里、制造宵禁、抢劫财富，最终实行网格化管理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-16海报1简新_page-0001.jpg)
+**加拿大温哥华扬帆农场 海报组**
 
-参考链接：[新中国联邦辞典首页](https://www.nfscdict.com/新中国联邦辞典首页)
+素材提供战友：Revelation熙攘、文敏、Kannie文勤
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+海报图片设计：飞天面、 Shuang
 
-总编：Ivy001
-编辑：百香果
-校正/发稿：谐趣园
+编辑：文敏
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+发布：风起云间（文敏）
 
  
 

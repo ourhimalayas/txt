@@ -2,26 +2,46 @@
 ---
 
 
-## 小斯基点评VICE采访事件(一)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869313/)
+## 卢比奥议员带领共和党同事提出了《2022年COVID法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1869458/)
 
-```
-整理：雅典娜速记组编辑：陶子
-```
+参议员瑞克·斯科特: 习总书记及其中共手下一次又一次地撒谎，以掩盖有关 COVID19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))起源的真相。上周我很荣幸能与卢比奥议员和我们的同事们一起领导这项重要的法案，以追究北京的责任。 【转卢比奥参议员新闻办推文：卢比奥议员带领共和党同事们提出了《2022年 COVID法案》以制裁北京 【转卢比奥参议员新闻办推文：卢比奥议员带领共和党同事提出了《2022年COVID法案》，这是一项制裁北京 [#Beijing](https://twitter.com/hashtag/Beijing?src=hashtag_click) 的法案，因为它未允许对新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的起源进行可信而全面的国际调查
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/小斯基点评VICE采访事件（一）-.jpeg)
-郭先生对于伊萨贝拉·杨这个人，个人呢是没有任何的意见的，但是对于我来说我 可是有看法，可能是我年轻气盛啊。这个看法来自于哪里呢？就是大家再回头去看一看，她到我们现场去采访也好，包括采访郭文贵先生也好，她在那个微表情她的言语里透露出来那些亲密，那些傲慢。一直以来我有个问题，我刚刚其实是想问郭先生，郭先生刚刚她说的那个说了一些话，恰巧就给我解答了。 那么这个问题其实是什么呢？就是说你如果说我不管是从事任何一项工作的话，如果我做错了，不管是在工作上还是说个人生活私人生活里面，如果说我做错了话，我真的会去思考。如果有人说我的话，我至少我回去反思，我会去认真的对待。那么为什么伊莎贝拉这个人她给我的感觉，是她完全就是目空一切的。 就因为我在这个节目之前，我是看过有这么一段那个视频里放出来的，你会感觉她那个笑，她不是说我们我们这种开心的笑，不是说我们的这种发自肺腑的笑，她就是那种蔑视轻蔑的笑，她为什么会有这种感觉?
 
-郭先生刚刚讲的那一点，我认为我找到答案了，就是这就是赤裸裸的种族歧视, 她针对于你特定人群，她就认为我就这么说你了，我就这么问，咋了?
 
-*发布：陶子*
+> General Secretary Xi & his underlings in the Chinese Communist Party have lied again & again to cover up the truth about the origins of COVID-19. I was proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & our colleagues last week in leading this important bill to hold Beijing accountable. [https://t.co/7MeJNRmXUX](https://t.co/7MeJNRmXUX)
+> — Rick Scott (@SenRickScott) [January 16, 2022](https://twitter.com/SenRickScott/status/1482778123678670848?ref_src=twsrc%5Etfw)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+美前国务卿迈克·蓬佩奥： 对于自由社会来说，没有什么权利比宗教自由实践更为基本。保护国内外的宗教自由是我们的核心，今天在全国宗教自由日,我们来庆祝美国的价值观。
+
+
+
+> There is no right more fundamental to a free society than the free practice of religion. Protecting religious freedom – abroad and at home – is central to who we are, and we celebrate that American value today on National Religious Freedom Day.
+> — Mike Pompeo (@mikepompeo) [January 17, 2022](https://twitter.com/mikepompeo/status/1482879018126950400?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 我们不应该将我们的运动员送到进行种族灭绝的监控国家。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click)[#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hashtag_click) 【转电台主持人John Catsimatidis推文：前国务卿彭佩奥[@mikepompeo](https://twitter.com/mikepompeo) – 在所有世界问题中，南部边境位居榜首。(附彭佩奥接受采访的音频)】
+
+
+
+> We should not send our athletes to a surveillance state that is committing genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HwmvcMDsOp](https://t.co/HwmvcMDsOp)
+> — Mike Pompeo (@mikepompeo) [January 16, 2022](https://twitter.com/mikepompeo/status/1482841659616468993?ref_src=twsrc%5Etfw)
+
+
+
+众议员莫·布鲁克斯： [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) ，是生物武器实验室的人造物，还是自然产生？该文是一名前纽约时报记者关于政治驱动的宣传是如何压倒科学的精彩文章。 【转amgreatness，真相泄漏大于美国的伟大】
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – man-made in bio-weapons lab or naturally occurring?
+> 
+> Excellent read by a former New York Times reporter on how politically motivated propaganda trumps science:[https://t.co/Tqn421GXaU](https://t.co/Tqn421GXaU)
+> — Mo Brooks (@RepMoBrooks) [January 15, 2022](https://twitter.com/RepMoBrooks/status/1482345506332364812?ref_src=twsrc%5Etfw)
+
+
 
  
 
