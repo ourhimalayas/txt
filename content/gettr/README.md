@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 1:21 AM (UTC)`
+
+美国前总统川普在集会演讲中称他自豪他曾是反对疫苗强制令的总统。他强烈反对任何形式的强制令。<br/><br/>Former US president Trump said in his rally speech that he was proud that he was an anti-mandate president. He fiercely resisted mandates of any kind.
+![img](https://media.gettr.com/group31/getter/2022/01/17/01/42a8fe4c-64d6-cff6-5eaa-29254dd8f456/out.jpg)
+
+---
+
+`@miles 1/17/2022 1:16 AM (UTC)`
+
+美国医学博士皮特森·皮埃尔表示，根据美国疫苗不良事件报告系统，共有2809名婴儿因母亲在怀孕期间注射新冠疫苗后早夭。当母亲注射新冠疫苗后，胎儿会在20周内夭折。<br/><br/>Dr. Peterson Pierre said, according to the VAERS system, 2809 Babies have died when their mothers have been injected during pregnancy. Fetus will die within 20 weeks if mother is vaccinated during pregnancy
+![img](https://media.gettr.com/group36/getter/2022/01/17/01/a2df03d9-3335-d933-231e-30171bc6428d/out.jpg)
+
+---
+
 `@miles 1/17/2022 1:02 AM (UTC)`
 
 佛罗里达州长: 在其它州，他们解雇了没接种疫苗的护士，尽管他们大部分人具有天然免疫力。他们让已接种疫苗的护士重返工作岗位。这直接表明医疗保险和医疗补助服务中心的强制令绝对是疯狂的，尤其是考虑到众所周知的阻止病毒传播的疫苗无效。<br/><br/>Governor of Florida: In other states they fired nurses for not having Vax even though most of them have natural immunity. And they are bringing back on the job Vaccinated nurses who are currently COVID Positive. It just shows you that the CMS mandate is absolutely insane, especially given the ineffectiveness you know of the shots to actually stop transmission.
@@ -142,20 +156,6 @@ Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacer
 
 1月15号：全人类正在面对着被同类猎杀的这种灾难的局面，疫苗灾难还没有开始……残灯无焰影幢幢，此夕闻君谪九江。 垂死病中惊坐起，暗风吹雨入寒窗。” 《六祖坛经》：“一灯能除千年暗，一智能灭万年愚。”【今天跟哥哥聊天，他从小到大都是一个小粉红，出国10几年，爱党之心从来不曾被改变过。我们的通话内容，你们一定可以想象的到，就差把我气吐血了。😩疫苗已经打了3针了，估计在准备打第四针的路上。共产党把我们推到全世界的对立面，国内我们回不去，国外又排华。我们活成孤岛，还好还有战友。】
 ![img](https://media.gettr.com/group40/getter/2022/01/15/18/038efc77-3a9c-f1d2-d57d-f0b2521b549c/3b1d25b18ee3510c2bfa98e3cc9aa58d.jpg)
-
----
-
-`@miles 1/15/2022 4:24 PM (UTC)`
-
-1月15号：尊敬的战友们好文贵在这里🙏🙏🙏🙏🙏🙏🙏🙏🙏👉衷心地，祈求所有的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏认真的严肃的防止被感染病毒，做好一切灾难到来的物资的储备，一切都已经开始！
-![img](https://media.gettr.com/group46/getter/2022/01/15/16/3e144db1-816a-c709-930c-c8cd970a5018/out.jpg)
-
----
-
-`@miles 1/15/2022 2:35 PM (UTC)`
-
-1月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group36/getter/2022/01/15/14/5322e70a-20a8-e3b9-76ec-bdd844e08266/out.jpg)
 
 ---
 
