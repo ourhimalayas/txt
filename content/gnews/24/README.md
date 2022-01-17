@@ -2,20 +2,46 @@
 ---
 
 
-## 加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1869272/)
+## 法国人走上街头，反抗中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869366/)
 
-经常有人问我这样一个问题：有多少住院患者是真正因为COVID而住院的，而不是（因其他原因）住院，但同时患有COVID？这是说，有多少人住院的主要原因是COVID-19，而不是仅仅因为其他原因住进医院，之后又被诊断同时患有COVID。
+作者：银河系农场—骄子
 
-在目前住院的163名奧密克戎病毒感染者中，有66位是因为COVID而住院的，占COVID-19感染总数的40%。而在ICU的14名奧密克戎病毒感染者中，有11名是因为COVID住进ICU的，占总数的79%。
 
-这个数据很重要，因为我们即将迎来住院人数的大幅增加，而在非ICU的住院人数中，可以预计会有很多与COVID相关的住院病人，但他们并不是直接因为COVID而住院的。
 
-素材：文倩
-翻译：文永
-字幕：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑/发文：Kent
+
+
+1月15日，数千名法国人在法国各地的城市举行示威，反对对未接种中共病毒疫苗的人进行更严格的限制，因为议会继续就法律草案进行争吵。 此次参与游行中，人民高呼”对疫苗说不”、”德约科维奇的自由”，并打出“他们想控制的不是病毒，而是你”的标语，游行中人们认为，强制接种中共病毒疫苗是纳粹主义。
+
+据悉两院正在讨论使用中共病毒疫苗通行证的使用范围，可能会在周日通过。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-7.jpg)
+参考信息：
+[Protesters hit French streets to fight new vaccine pass](https://www.france24.com/en/live-news/20220115-protesters-hit-french-streets-to-fight-new-vaccine-pass)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

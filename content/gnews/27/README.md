@@ -2,35 +2,22 @@
 ---
 
 
-## 上海正式公布在静安寺附近发生确诊奥米克戎感染病例
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1869240/)
+## 雅典娜时报-第176期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869347/)
 
-作者：健身部 – 阿什莉
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月16日，星期六，上海当地新闻刚刚报道：最新的上海COVID-19集群现已被确认为具有高传染性的Omicron变种。
-正如周五报道的那样，上海宣布了两例本地传播的 COVID-19 病例和三例本地无症状病例。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0116%2Fdc559a55j00r5saau003fc000w200l9m.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/932430313920012318/155_2.png?width=748&amp;height=1114)![圖片](https://media.discordapp.net/attachments/825592691433668612/932431019209019392/155_4.png?width=748&amp;height=1114)
+*发布：陶子*
 
-他们与周二在该市报告的一例进口无症状 COVID-19 病例有关。
-基因测序现已证实新病例感染了 Omicron 变体，该变体比以前占主导地位的Delta 变体更具传播性。
-病例集中在静安区豫园路一家名为“中国鲜茶”的奶茶铺，该店铺距离上海地铁一号线静安寺站1号出口仅200米。
-上海全市各地开展大规模筛查，截至目前，上海共检测5.4万相关人员； 迄今为止，上海市追踪到的304名密切接触者和2830名次要接触者已经接受了隔离措施。 到目前为止，所有测试均呈阴性。
-输入的无症状COVID-19病例是5例新病例的起源，是一名在美国学习的中国公民，他于12月21日抵达浦东国际机场。
-上海周五还报告了43例输入性感染病例。
-截至发稿时，据中国境内报道中国已确定包括静安区奶茶店在内的19个高风险区域和59个中等风险区域。
-
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
