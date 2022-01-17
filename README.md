@@ -15,113 +15,113 @@
 
 ---
 
-### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/1/README.md)
+### [为什么接种辉瑞新冠疫苗的弊大于利（六）](/content/gnews/1/README.md)
+ ` 喜国公民`
+
+### [2022年1月17日大直播全文精萃](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [DC每日热点0117](/content/gnews/2/README.md)
+### [DC每日热点0117](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共多地政府要求低风险返乡民众集中隔离并自费食宿](/content/gnews/3/README.md)
+### [中共多地政府要求低风险返乡民众集中隔离并自费食宿](/content/gnews/5/README.md)
  ` 纽约香草山MOS02`
 
-### [荷兰和英国建议在冬奥会期间不带电子设备到中共国](/content/gnews/4/README.md)
+### [荷兰和英国建议在冬奥会期间不带电子设备到中共国](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [MV版Hcoin To the Moon上线40天第26次位列澳门iTunes热门MV榜首](/content/gnews/5/README.md)
+### [MV版Hcoin To the Moon上线40天第26次位列澳门iTunes热门MV榜首](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共政府确保对价值数十亿美元的NFT市场的控制权](/content/gnews/6/README.md)
+### [中共政府确保对价值数十亿美元的NFT市场的控制权](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲昆士兰咖啡店主因接待未接种疫苗者被捕](/content/gnews/7/README.md)
+### [澳洲昆士兰咖啡店主因接待未接种疫苗者被捕](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/8/README.md)
+### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [七哥谈格式化管理（2022-01-12摘录）](/content/gnews/9/README.md)
+### [七哥谈中共“为了你好”的本质（2022-01-12摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/10/README.md)
- ` 澳喜特战旅Gnews`
-
-### [七哥说“政治上、军事上、经济上、个人利益上这是一个搅战的混局”（2022-01-12摘录）](/content/gnews/11/README.md)
+### [七哥谈格式化管理（2022-01-12摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [美国疗养机构的CCP病毒死亡和病例再次出现上升](/content/gnews/12/README.md)
+### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/13/README.md)
+### [七哥说“政治上、军事上、经济上、个人利益上这是一个搅战的混局”（2022-01-12摘录）](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [美国疗养机构的CCP病毒死亡和病例再次出现上升](/content/gnews/15/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈世界经济（2022-01-12摘录）](/content/gnews/14/README.md)
+### [七哥谈世界经济（2022-01-12摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [【新闻速递】哭笑不得！以色列财政部长四针依旧感染！](/content/gnews/15/README.md)
+### [【新闻速递】哭笑不得！以色列财政部长四针依旧感染！](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥谈中共邪恶的“一带一路”（2022-01-12摘录）](/content/gnews/16/README.md)
+### [七哥谈中共邪恶的“一带一路”（2022-01-12摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [中共指责加拿大邮件导致北京的奥密克戎病例](/content/gnews/17/README.md)
+### [中共指责加拿大邮件导致北京的奥密克戎病例](/content/gnews/20/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥谈人类的三个阶段（2022-01-12摘录）](/content/gnews/18/README.md)
+### [七哥谈人类的三个阶段（2022-01-12摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [美国人寿保险公司发出死亡警告：目前每月超额死亡人数近十万](/content/gnews/19/README.md)
+### [美国人寿保险公司发出死亡警告：目前每月超额死亡人数近十万](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [2022年1月17日文贵先生直播摘要及音频—银河系农场](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [信托及控股公司的门槛和复杂度](/content/gnews/21/README.md)
+### [信托及控股公司的门槛和复杂度](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [灵修有感：为做一名老子所说的上士而骄傲](/content/gnews/22/README.md)
- ` 纽约香草山MOS03`
-
-### [1/17銀河快訊：日法外交和國防部長將在本周舉行線上會議;日本84家上市公司呼籲自願退休](/content/gnews/23/README.md)
+### [1/17銀河快訊：日法外交和國防部長將在本周舉行線上會議;日本84家上市公司呼籲自願退休](/content/gnews/24/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [据不完全财务披露，福奇有1040万美元的投资](/content/gnews/24/README.md)
+### [据不完全财务披露，福奇有1040万美元的投资](/content/gnews/25/README.md)
  ` 温哥华扬帆农场`
 
-### [GTV新闻访谈简报|2022年1月17日早](/content/gnews/25/README.md)
+### [GTV新闻访谈简报|2022年1月17日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [法国国民议会批准了疫苗加强针接种要求以维持健康证的有效性](/content/gnews/26/README.md)
+### [法国国民议会批准了疫苗加强针接种要求以维持健康证的有效性](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [Gettr能否成为川普共和党的在线聚会场所？](/content/gnews/27/README.md)
+### [Gettr能否成为川普共和党的在线聚会场所？](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/28/README.md)
+### [有声|美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [我的父母、孩子、兄弟姐妹、朋友受到了疫苗的伤害](/content/gnews/29/README.md)
+### [我的父母、孩子、兄弟姐妹、朋友受到了疫苗的伤害](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/30/README.md)
+### [有声|美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [BBC开始质疑新冠病毒死亡数据](/content/gnews/31/README.md)
+### [BBC开始质疑新冠病毒死亡数据](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [2022年1月中共国债务专题：2021年末中共国公开市场存量债券余额和隐形政府债务合计可能高达185万亿人民币，政府债务余额与2020年GDP比重超过100%](/content/gnews/32/README.md)
+### [2022年1月中共国债务专题：2021年末中共国公开市场存量债券余额和隐形政府债务合计可能高达185万亿人民币，政府债务余额与2020年GDP比重超过100%](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国高院否决疫苗强制令标志着以法灭疫灭共开始](/content/gnews/33/README.md)
+### [美国高院否决疫苗强制令标志着以法灭疫灭共开始](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [有声|丹麦指控来自中共国间谍威胁升高](/content/gnews/34/README.md)
+### [有声|丹麦指控来自中共国间谍威胁升高](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [有声|通用电气公司停止为员工接种新冠疫苗](/content/gnews/35/README.md)
+### [有声|通用电气公司停止为员工接种新冠疫苗](/content/gnews/36/README.md)
  ` MOSREC`
-
-### [深圳奥密克戎爆发 中共又要甩锅境外](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [1/17/2022国际财经快讯：美国12月工厂生产意外骤降；拉加德称欧洲央行将尽全力使通胀率达到2%](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`

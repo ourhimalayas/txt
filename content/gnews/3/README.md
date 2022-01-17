@@ -2,30 +2,28 @@
 ---
 
 
-## 中共多地政府要求低风险返乡民众集中隔离并自费食宿
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1872526/)
+## 2022.1.17 文贵直播：我有一个梦想
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1872623/)
 
-撰稿：纽约香草山教育部- Noemi
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-当地时间1月17日，“开封一刀切”的微博话题就被顶上墙内热搜。据了解，河南省开封市于今日突然宣布了一条最新的防疫政策，要求来自郑州低风险地区的返封人员也需进行14天的集中隔离并自费食宿。这条“一刀切”式的政策当即引起了大量需要双城生活的民众的强烈抗议。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图像-14.jpg)
+来源：网络
 
-然而，开封市政府的这一“霸王条例”却并非个案。近期，中共国内的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都纷纷出台了要求来自低风险地区的返乡人群也必须要进行集中隔离的相关政策，并要求被隔离人员为自己隔离期间产生的一切费用买单。
+今天是马丁路德金的纪念日(MLK DAY)。他主张以非暴力的公民抗命方法争取非裔美国人的基本权利，而成为美国进步主义的象征。1963年，金在林肯纪念堂前发表了《我有一个梦想》的著名演讲，从而使美国成为了追求自由民主法治的人的天堂和目的地。郭先生称他改变了整个美国民主的进程，是人类黑暗历史中的一盏明灯。
 
-据悉，当前中共国的返乡人群主要为大学生群体。目前，已有多名被隔离的大学生都对14天隔离期所产生的高昂的隔离费用表示担忧。有学生称，此条政策属实是当地政府在“割韭菜”，但大家对此却无能为力。 (已编辑)
+但是，中国能出一个马丁路德金吗？会一开始就用道德把你一切毁掉。在印尼残杀50万华人，共产党第一反应就是这些华人该杀。马丁路德金，能出现在印尼？能有一个有勇气的人坚持五年吗？中国人生生死死一百亿，没有出现马丁路德金的可能。
 
-1[https://www.toutiao.com/a7053334957510427140/?channel=&source=search\_tab https://www.gettr.com/post/possbb4f46 https://www.toutiao.com/w/a1722187358499907/?traffic\_source=&traffic\_source=&in\_ogs=&in\_ogs=&utm\_source=&utm\_source=&source=search\_tab&source=input&utm\_medium=wap\_search&utm\_medium=wap\_search&original\_source=&original\_source=&in\_tfs=&in\_tfs=&channel=&channel=](https://www.toutiao.com/a7053334957510427140/?channel=&amp;source=search_tab%20https://www.gettr.com/post/possbb4f46%20https://www.toutiao.com/w/a1722187358499907/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
+5年前，郭文贵先生带着推翻中共，带给中国法治民主的理想来到美国——这个世界上代表最高标准自由民主法治的国家，就遇上了旷日持久的法律超限战。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-**更多资讯，更多关注**
+郭先生选择了这个特殊的日子讲述自己在美国和共产党操纵的太盟案子的较量，意义非常深远。法院是美国最高法院，律师是美国顶尖律师。马丁路德金说，最可怕的是侮辱，羞辱，和时间的煎熬。郭先生对此感同身受。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中国人生生死死上百年，从未有一人，在美国，用生命和鲜血，和中共斗争。但是，今天出现了郭文贵先生，他带着我们一起去体验战斗的经历。自由、民主、法治从来不会从天上掉下来，美国也不会施舍給我们华人，只有越来越多的华人站起来抗争，我们才能为自己和后代争取到我们的权利。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+来源：
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[郭文贵先生2022.1.17直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
  
 
