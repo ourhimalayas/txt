@@ -2,20 +2,40 @@
 ---
 
 
-## 深圳奥密克戎爆发 中共又要甩锅境外
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1871806/)
+## 有声|通用电气公司停止为员工接种新冠疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1871876/)
 
-撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-151.png)
-[图片来源](https://news.dayoo.com/guangdong/202201/16/139996_54169262.htm)
+配音：香草山健身部 – 玫瑰园
 
-1月17日深圳召开疫情防控新闻发布会，据林汉城（深圳市卫生健康委二级巡视员）说：1月16日深圳查出一例奥密克戎感染者，经国家疾控中心和广州疾控中心对比，与天津、上海北京等多起本土奥密克戎病例均不在一个传播连上，与以往深圳输入病例也不同原，与全球数据库北美地区上传较多序列的基因组百分百同源。病例17从事境外冷冻试剂收发货工作，1月12日分拆来自北美的快递时未做好个人防护措施，14日咽痛，15日核酸阳性，不排除境外输入物品被污染了新冠病毒（奥密克戎）结合流行病调查病毒溯源正在进行中……
 
-通过这个新闻发布会不难看出，本土病例不查国内，居然又查到北美去了，中共醉翁之意不在酒，这是要嫁祸于人的前奏。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+近日，美国最高法阻止了拜登政府对100人以上的大企业雇员强制推行中共病毒疫苗的计划。记者通过内部邮件确认，通用电气公司刚刚宣布，他们不再强制推行雇员接种疫苗。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+据悉，通用电气公司是第一家宣布停止强制推行中共病毒疫苗接种计划的公司，经过联邦最高法的授权，雇员是否选择接种疫苗，完全由本人意愿决定。与此同时，Nike公司却依然激进地延续拜登政府强制接种中共病毒疫苗的计划，他们在邮件中公布，1月15日，未接种疫苗的雇员将被开除。
+
+文字版原文：[通用电气公司停止为员工接种新冠疫苗](https://gnews.org/zh-hans/1867559/)
+
+
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
 
 
  
