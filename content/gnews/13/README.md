@@ -2,25 +2,32 @@
 ---
 
 
-## 澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872380/)
+## 七哥谈中共“为了你好”的本质（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1872399/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011602.jpg)网络图片
-昆士兰于当地时间1月17日记录了 15,122 例新的 CCP病毒感染案例和另外 7 例死亡，这是该州大流行中最致命的一天。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-7名不幸离世的死亡病例年龄皆在80岁以上，且均有其它健康问题。媒体称这些死亡案例没有注射过CCP病毒疫苗的加强针，却对他们是否完全两剂CCP病毒接种疫苗只字未提。
+来源：郭先生2022-01-12直播10：17：12摘录
 
-今天发布的最新病例数据来自 30,963 个 PCR 检测和 4576 个报告的快速抗原检测。昆士兰州同时还更新了对活跃病例的定义，使其与澳大利亚其他州和领地保持一致——这一举措使得该州现存病例总数降至 86,953 例。
+把人关在家里，我还得让你，我还是为了你好，我让你关在家里。我需要你出来的时候，你就出来当警察、当城管，我让你待在家里的时候你就安全了。中国将进入永远的，记住就像西安、郑州轮着来，轮完以后格式化全国都会适应，为了你好待在家里，你们没看清这个本质。西安、郑州、天津事件，大家别忘了西安、郑州和天津几乎是决定共产党生死最关键的，河北、西安、郑州、天津，中国的保中央的部队就在张家口就冬奥会这个地方，山海关、天津，你过了天津你就打过来了嘛。把这些军队已经牢牢地控制在这个地方，然后用河北的护城河工程把这些警察变成了一个又筑成了一道人墙，把人又关在家里，你再敢出来的时候是什么？我毒死你那就合法了，不用天安门弄坦克压死你那么吓人还流血，我还得打扫战场，我还得把天安门那个砖给起了，多累呀，是吧？我放点儿毒。你看看不听我话吧？死了吧？
 
-州卫生部长 Yvette D’Ath 说，有 702 名冠状病毒患者目前需要住院治疗，其中 40 人在重症监护室，15 人需要呼吸机。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-首席卫生官Gerrard预计，在下个月昆士兰各地学校重新开学时或将出现“重大的”CCP病毒疫情爆发。该州学校的重新开放目前已推迟两周至 2 月 7 日星期一。Gerrard博士称，虽然预计会有大量学生被感染，但对他们来说总体症状将是轻微的。
+**关注我们**
 
-教育部长Grace表示，接下来的两个学期将不会有任何时间上的延长，依然保持疫情以来的缩减，因为课程预计将会顺利完成。
+Discord 账号
 
-新闻参考链接：[Queensland reports more than 15,000 COVID-19 cases amid warning of school outbreaks](https://www.9news.com.au/national/coronavirus-qld-update-queensland-covid19-cases/366d09e8-6e52-4696-8fc4-274fdfa5fa37)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

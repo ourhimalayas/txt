@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥谈中共“为了你好”的本质（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1872399/)
+## 澳洲昆士兰咖啡店主因接待未接种疫苗者被捕
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872401/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011603.jpg)图片来源：Pexels免费照片资料库；摄影：Lisa Fotios
+澳大利亚昆士兰州的一名私人企业主因涉嫌没有执行 CCP病毒防疫禁令而被捕。这位企业主名叫Pierre Coorey ，在州首府布里斯班南部经营着一家咖啡馆，他在上个月因违反当局的防疫限制措施被罚款后，现在因涉嫌违反疫情期间的强制命令而被警方拘留。
 
-来源：郭先生2022-01-12直播10：17：12摘录
+目前昆士兰的防疫规定极大限制着未接种疫苗者的出行自由，根据政令，未接种疫苗的人群是不允许出入任何诸如咖啡馆这样的饮食设施的。Coorey先生就是因为让未接种疫苗者进入到咖啡厅而被几名警方带走，颇有连坐受罚的味道。他现在被指控妨碍警察、违反指示要求以及不遵守 COVID-19 公共卫生命令。
 
-把人关在家里，我还得让你，我还是为了你好，我让你关在家里。我需要你出来的时候，你就出来当警察、当城管，我让你待在家里的时候你就安全了。中国将进入永远的，记住就像西安、郑州轮着来，轮完以后格式化全国都会适应，为了你好待在家里，你们没看清这个本质。西安、郑州、天津事件，大家别忘了西安、郑州和天津几乎是决定共产党生死最关键的，河北、西安、郑州、天津，中国的保中央的部队就在张家口就冬奥会这个地方，山海关、天津，你过了天津你就打过来了嘛。把这些军队已经牢牢地控制在这个地方，然后用河北的护城河工程把这些警察变成了一个又筑成了一道人墙，把人又关在家里，你再敢出来的时候是什么？我毒死你那就合法了，不用天安门弄坦克压死你那么吓人还流血，我还得打扫战场，我还得把天安门那个砖给起了，多累呀，是吧？我放点儿毒。你看看不听我话吧？死了吧？
+Coorey 先生甚至还可能面临着被人赶出咖啡馆的情况——要知道那可是他自己的咖啡馆，这一裁决今天早上引发了企业主支持者的强烈反对和不满。预计他将于下个月在法院出庭。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+上周，布里斯班北部赫维湾的一名妇女在另一家Hervey Bay 的咖啡屋因涉嫌拒绝提供疫苗接种证明而被逮捕。一些当地居民反对警方的行动，称他们执法不当有失准则。在脸书上，这家咖啡馆的老板称这次逮捕“令人痛苦”和“令人不安”，称五名警察的执法行为与实际不符。该女子将于 3 月 10 日在 Hervey Bay 地方法院出庭。
 
-**关注我们**
+新闻参考链接：[Cafe owner arrested for alleged COVID-19 direction breaches](https://www.9news.com.au/national/queensland-covid-cafe-owner-arrested-for-alleged-covid-19-direction-breaches/a2e1ec6c-bf8a-465b-bcfe-2856f59699eb)
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

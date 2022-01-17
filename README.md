@@ -15,71 +15,71 @@
 
 ---
 
-### [为什么接种辉瑞新冠疫苗的弊大于利（六）](/content/gnews/1/README.md)
- ` 喜国公民`
-
-### [2022年1月17日大直播全文精萃](/content/gnews/2/README.md)
+### [一定要采法律行动：对媒体攻击一定要反击(一)](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/3/README.md)
+### [七哥谈中共的核糖核酸检查（2022-01-12摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [为什么接种辉瑞新冠疫苗的弊大于利（六）](/content/gnews/3/README.md)
+ ` 喜国公民`
+
+### [2022年1月17日大直播全文精萃](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [DC每日热点0117](/content/gnews/4/README.md)
+### [DC每日热点0117](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共多地政府要求低风险返乡民众集中隔离并自费食宿](/content/gnews/5/README.md)
+### [中共多地政府要求低风险返乡民众集中隔离并自费食宿](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [荷兰和英国建议在冬奥会期间不带电子设备到中共国](/content/gnews/6/README.md)
+### [荷兰和英国建议在冬奥会期间不带电子设备到中共国](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [MV版Hcoin To the Moon上线40天第26次位列澳门iTunes热门MV榜首](/content/gnews/7/README.md)
+### [MV版Hcoin To the Moon上线40天第26次位列澳门iTunes热门MV榜首](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共政府确保对价值数十亿美元的NFT市场的控制权](/content/gnews/8/README.md)
+### [中共政府确保对价值数十亿美元的NFT市场的控制权](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲昆士兰咖啡店主因接待未接种疫苗者被捕](/content/gnews/9/README.md)
+### [澳洲昆士兰咖啡店主因接待未接种疫苗者被捕](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/10/README.md)
+### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [七哥谈中共“为了你好”的本质（2022-01-12摘录）](/content/gnews/11/README.md)
+### [七哥谈中共“为了你好”的本质（2022-01-12摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈格式化管理（2022-01-12摘录）](/content/gnews/12/README.md)
+### [七哥谈格式化管理（2022-01-12摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/13/README.md)
+### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [七哥说“政治上、军事上、经济上、个人利益上这是一个搅战的混局”（2022-01-12摘录）](/content/gnews/14/README.md)
+### [七哥说“政治上、军事上、经济上、个人利益上这是一个搅战的混局”（2022-01-12摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [美国疗养机构的CCP病毒死亡和病例再次出现上升](/content/gnews/15/README.md)
+### [美国疗养机构的CCP病毒死亡和病例再次出现上升](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/16/README.md)
+### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈世界经济（2022-01-12摘录）](/content/gnews/17/README.md)
+### [七哥谈世界经济（2022-01-12摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [【新闻速递】哭笑不得！以色列财政部长四针依旧感染！](/content/gnews/18/README.md)
+### [【新闻速递】哭笑不得！以色列财政部长四针依旧感染！](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥谈中共邪恶的“一带一路”（2022-01-12摘录）](/content/gnews/19/README.md)
+### [七哥谈中共邪恶的“一带一路”（2022-01-12摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [中共指责加拿大邮件导致北京的奥密克戎病例](/content/gnews/20/README.md)
+### [中共指责加拿大邮件导致北京的奥密克戎病例](/content/gnews/22/README.md)
  ` 华盛顿DC-Russian`
-
-### [七哥谈人类的三个阶段（2022-01-12摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [美国人寿保险公司发出死亡警告：目前每月超额死亡人数近十万](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
 
 ### [信托及控股公司的门槛和复杂度](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
