@@ -2,37 +2,32 @@
 ---
 
 
-## 中共病毒加剧分裂 政治转型即将到来
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870079/)
+## 德约科维奇在签证上诉失败后被驱逐出境
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870198/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月15日盖特消息，史蒂夫-班农先生近期接受新中国联邦媒体采访，他认为，中共病毒恶化了现有分歧，但是为主权和民主而战的民众正在获胜，而且，全球政治转型即将到来。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-104.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-9.jpeg)
+据零对冲1月16日报道，澳大利联邦法院全体法官在周日晚间裁定，驳回了德约科维奇对澳大利亚政府撤销其签证决定的挑战。随后德约科维奇在晚间11点被联邦特工护送飞离了澳大利亚，他还将面临三年的禁入。
 
-班农先生说，中共病毒疫情加剧了国家主权和全球主义等社会矛盾，而全球主义与中共为伍。而且，大规模强制接种中共病毒疫苗的后遗症，会进一步加剧社会分裂。但是，这种”分裂”并不是最坏的事情。反而表明，有相当一部分人不愿意向独裁屈服。事实证明，为民主自由而战的人们正在获胜。
+该裁决是由首席大法官詹姆斯·艾尔索普（James Allsop）与安东尼·贝森科（Anthony Besanko）法官和大卫·奥卡拉汉（David O’Callaghan）法官，经过周日近8个小时的审议一致驳回，所有费用将由德约科维奇支付。
 
-班农先生透露，今年秋季，美国将迎来政治巨变。美国共和党将被重塑为”工人党”，并将取得压倒性胜利。进而，世界的政治方向都会改变，将把消灭中共作为首要目标。
+鉴于此案的广泛影响和国际关注度，艾尔索普提出要听取双方对这一决定的进一步争论，然而，这位世界头号网球运动员的法律团队拒绝了这一邀请。结果，他失去了在澳网卫冕大满贯的机会。
 
-参考链接；
-1）[对班农先生采访的一些要点：](https://gettr.com/post/pojqgfc723)
-2）[史蒂夫·班农：中共渗透了一切，收买了一切。它是本国有史以来最大的生存威胁](https://gettr.com/post/polb5vdead)
+艾尔索普说，法院的驳回理由将尽快公布。他指出，英联邦政府司法部门的决定不是关于政府行政部门的一位部长是否做出了拒绝这位网球明星入境的正确决定，而是关于在德约科维奇上诉提出的三个理由中，移民部长霍克的决定在法律是否正当或合法。“法院的职能不包括对[政府]决定的优点或智慧作出决定。”他说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+德约科维奇在一份声明中说，虽然他尊重这一裁决，但他 “对法院的裁决极为失望，这意味着我不能留下参加澳大利亚公开赛”。他说他现在将花一些时间来休息和休养，然后再发表除此之外的任何评论。他同时感谢他的团队和球迷的支持，并请求他们把注意力回到支持这项赛事上。他补充说，就离开该国的事宜他将与澳大利亚当局合作。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+同时，霍克对法院支持他根据《移民法》行使权力的决定表示赞赏，强调澳大利亚强有力的边境保护对“保障澳大利亚的社会凝聚力”的重要性。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+部长补充说，由于德约科维奇被视为一个“偶像”，这位球员在澳大利亚的出现可能会激起反疫苗的情绪，破坏澳大利亚的疫苗接种工作，并最终影响卫生系统。
 
+德约科维奇的律师在法庭上质疑，没有“证据”表明这种情况会发生，强调德约科维奇的驱逐出境和政府的“胁迫行动 ”也会达到同样的效果。
+
+澳大利亚网球运动员尼克·基尔乔斯（Nick Kyrgios）此前曾批评澳大利亚政府对签证事件的处理“令人尴尬”，他在社交媒体上对法院的决定表示失望。
+
+新闻来源：[Djokovic Deported After Losing Visa Appeal, Faces 3-Year Ban From Australia](https://www.zerohedge.com/political/djokovic-deported-after-losing-visa-appeal-faces-3-year-ban-australia)
 
  
 

@@ -2,16 +2,41 @@
 ---
 
 
-## 中共对美国司法界的渗透—中共法律超限战
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1871804/)
+## 有声|通用电气公司停止为员工接种新冠疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1871876/)
 
-——文贵大直播20220117
+配音：香草山健身部 – 玫瑰园
 
-撰稿：铲共骑侠（香草山）
 
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_6.jpg)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+近日，美国最高法阻止了拜登政府对100人以上的大企业雇员强制推行中共病毒疫苗的计划。记者通过内部邮件确认，通用电气公司刚刚宣布，他们不再强制推行雇员接种疫苗。
+
+据悉，通用电气公司是第一家宣布停止强制推行中共病毒疫苗接种计划的公司，经过联邦最高法的授权，雇员是否选择接种疫苗，完全由本人意愿决定。与此同时，Nike公司却依然激进地延续拜登政府强制接种中共病毒疫苗的计划，他们在邮件中公布，1月15日，未接种疫苗的雇员将被开除。
+
+文字版原文：[通用电气公司停止为员工接种新冠疫苗](https://gnews.org/zh-hans/1867559/)
+
+
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+
 
  
 

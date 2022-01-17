@@ -2,29 +2,27 @@
 ---
 
 
-## 郭文贵先生诠释 灭共就是天意
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870048/)
+## 中共病毒加剧分裂 政治转型即将到来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870079/)
 
-作者：纽约香草山 – Jack Li文阳
+作者：纽约香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月12日的大直播中，郭文贵先生用个人经历和感悟诠释了，灭共就是天意。
+1月15日盖特消息，史蒂夫-班农先生近期接受新中国联邦媒体采访，他认为，中共病毒恶化了现有分歧，但是为主权和民主而战的民众正在获胜，而且，全球政治转型即将到来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-9.jpeg)
 
-郭先生谈到，天意没有偶然，永远要相信天意。新中国联邦人不流一滴血，没有任何暴力，在过去五年里，团结亿万战友，唤醒国内无数有良知的人，这是天意。
+班农先生说，中共病毒疫情加剧了国家主权和全球主义等社会矛盾，而全球主义与中共为伍。而且，大规模强制接种中共病毒疫苗的后遗症，会进一步加剧社会分裂。但是，这种”分裂”并不是最坏的事情。反而表明，有相当一部分人不愿意向独裁屈服。事实证明，为民主自由而战的人们正在获胜。
 
-如果没有习近平、王岐山孟建柱、江家和南普陀会议；没有共产党对外扩张，搞一带一路，灭白计划，叫板美国要平等共治；对内利用反贪抓了100万官员；没有习近平搞所谓的”共享财富“，释放病毒，威胁台湾，灭香港，在新疆西藏搞种族大屠杀，就不可能灭共。这些都是天意。
+班农先生透露，今年秋季，美国将迎来政治巨变。美国共和党将被重塑为”工人党”，并将取得压倒性胜利。进而，世界的政治方向都会改变，将把消灭中共作为首要目标。
 
-郭先生用自己的经历解释，不是所有的人都能领悟什么是天意。郭先生在年少时期去到新疆，后来还去过昆仑山、帕米尔高原、喜马拉雅山脉，从这些游历中，亲身体验到天意。郭先生当年卖掉摩托车支持六四，被关到看守所，出来以后就要拯救中国人和世界，这也是天意。
-
-有天意，就有天机，是上天安排的机会。天机后面是民心，是天时，地利，人和。所以说，灭共就是天意。
-
-参考链接：[2022年1月12日 文贵大直播](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
+参考链接；
+1）[对班农先生采访的一些要点：](https://gettr.com/post/pojqgfc723)
+2）[史蒂夫·班农：中共渗透了一切，收买了一切。它是本国有史以来最大的生存威胁](https://gettr.com/post/polb5vdead)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：Ivy001
-编辑：文真
+编辑：Jack Li文阳
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -34,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
