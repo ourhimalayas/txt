@@ -2,16 +2,21 @@
 ---
 
 
-## 中共对美国司法界的渗透—中共法律超限战
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1871804/)
+## 深圳奥密克戎爆发 中共又要甩锅境外
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1871806/)
 
-——文贵大直播20220117
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-151.png)
+[图片来源](https://news.dayoo.com/guangdong/202201/16/139996_54169262.htm)
 
-撰稿：铲共骑侠（香草山）
+1月17日深圳召开疫情防控新闻发布会，据林汉城（深圳市卫生健康委二级巡视员）说：1月16日深圳查出一例奥密克戎感染者，经国家疾控中心和广州疾控中心对比，与天津、上海北京等多起本土奥密克戎病例均不在一个传播连上，与以往深圳输入病例也不同原，与全球数据库北美地区上传较多序列的基因组百分百同源。病例17从事境外冷冻试剂收发货工作，1月12日分拆来自北美的快递时未做好个人防护措施，14日咽痛，15日核酸阳性，不排除境外输入物品被污染了新冠病毒（奥密克戎）结合流行病调查病毒溯源正在进行中……
 
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-3_对司法界律师的渗透V2_页面_6.jpg)
-*发布：Theodosia*
+通过这个新闻发布会不难看出，本土病例不查国内，居然又查到北美去了，中共醉翁之意不在酒，这是要嫁祸于人的前奏。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

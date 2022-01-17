@@ -2,16 +2,29 @@
 ---
 
 
-## 太平联盟诉讼案的未来走向—中共法律超限战
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1871803/)
+## 法院停止部分防疫通行证的使用…包括首尔市区的“商店，超市和百货店”
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1871805/)
 
-——文贵大直播20220117
+韩国首尔天池农场
+翻译：恩真
+校对：鱼子酱
+上传：QCFM
 
-撰稿：铲共骑侠（香草山）
+继补习班，自习室 等 学习场所之后， 法院决定，部分其他公共场所也停止使用以接种证名和阴性诊断书为标准的“防疫通行证”。
 
-美工：青山 健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-6.png)
-*发布：Theodosia*
+首尔行政法院今天接受了岭南大学医学院教授赵斗亨（音译）等1000多人提交的停止执行防疫通行证的申请。
+
+因此，首尔市长3日宣布的包括超市和百货店等适用于17种场合的防疫通行证的使用暂停至一审判决之日起的30天后。
+
+此外，针对12-18岁人群的扩大防疫措施也从本案判决之日起的30天内停止生效。
+
+但是，法院驳回或拒绝了原告的另外一部分申请，餐厅和咖啡厅等其他场地依旧维持现在防疫通行证的使用。
+
+此前，申请人曾为餐厅，咖啡馆，室内运动设施，网咖和图书馆，电影院，3千平方以上的超市和百货店等9种公共使用的场所提出了停止使用防疫通行证的申请。
+
+[참고링크](https://www.youtube.com/watch?v=1K8W6V9Cl5A)
+
+면책 성명: 이 글은 저자의 개인적 견해만을 대변하는 내용이며, 플랫폼은 어떠한 법적 위험도 감수하지 않는다.
 
  
 

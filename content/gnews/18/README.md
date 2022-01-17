@@ -2,24 +2,18 @@
 ---
 
 
-## Facebook因涉嫌剥削英国用户面临巨额诉讼
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871929/)
+## 秘翻在线 :又一位接种过疫苗的足球明星因心肌炎无法出赛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1871969/)
 
-采编：风云小哥          编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-4.jpg)
-据美国媒体【布赖特巴特网】1月14日报道，[Facebook]公司因涉嫌长期剥削其英国用户而面临巨额诉讼。
+**撰稿：William**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-17-232029.jpg)图片来源：www.90min.com
+根据零对冲(Zero Hedge) 的报道,完全接种新冠疫苗的加拿大足球明星阿方索·戴维斯(Alphonso Davies)因心肌炎将无法上场比赛。加拿大多伦多新闻 CP24 指出在德甲名门球队拜仁慕尼黑效力的加拿大球星阿方索·戴维斯(Alphonso Davies)已显示出心肌发炎的迹象。戴维斯被公认为是世界上最好的足球左后卫之一，他已完全接种新冠疫苗并于 12 月接种了加强针，但是因为心肌发炎的关系，已被排除在加拿大定于一月和二月举行的三场世界杯预选赛之外。
 
-报道称，这项集体诉讼是由专门研究竞争法的[格尔姆森]博士联合当地著名律师事务所共同发起，并代表4400万名英国用户向脸书提出32亿美元的巨额索赔。
+他的俱乐部经理朱利安·纳格尔斯曼（Julian Nagelsmann）表示，这个问题是在后续的 COVID 检查中发现的。他表示戴维斯将缺席训练，直至另行通知。在接下来的几周内，戴维斯也将无法上场。超声波显示这种心肌炎并不那么严重，但它是心肌炎的征兆。不过，愈合肯定需要一些时间。俱乐部经理并没有立即将炎症归因于中共病毒（Covid-19），并表示有不同的原因，特别是病毒载量或流感，例如，可能导致心脏问题。
 
-据悉，在该指控中提出，虽然用户是免费使用Facebook，但他们向该社交媒体平台提供的个人信息是有价值的，而Facebook却无偿获取了这些个人数据并将其任意贩卖获利。
+郭文贵先生多次在直播中说到，疫苗产生的灾难将远远超过我们的想像。会有愈来愈多的新闻显示各种严重的疫苗副作用，更会带来供应链、社会动荡、世界金融的次生灾难的发生。今年最重要的事情就是做好所有活下去的准备，从准备抗疫药品伊维菌素和青蒿素、生活所需的面、油、盐，还有避免外出减少感染风险。2022年将是人类历史上最黑暗的一年，只要家人和自己都健康活下去就是胜利。
 
-此外，[Facebook]不仅严重违反竞争法通过互联网恣意窃取其用户的私人信息，而且还滥用其媒体公信力和言论支配力，并因此对广大普通用户施加各种不公平条款，而最终使该平台能利用客户的个人数据牟取暴利。
-
-校对编辑：硫酸羟氯喹64
-
-发稿： 苦尽甜来 (文來）
-
-[原文链接](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
+**新闻来源：**[https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis](https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis)
 
  
 

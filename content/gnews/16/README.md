@@ -2,34 +2,47 @@
 ---
 
 
-## 奥地利民众持续抗争 超半民众反对强制接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871941/)
+## 北京发现奥密克戎病毒感染者，加深了冬奥会的不确定性
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1871999/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月15日，数千名奥地利民众走上首都维也纳的街头，抗议政府计划在下月对所有人实行强制性疫苗接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-8.jpg)
-在市中心的集会上，人群高呼口号表达不满。早在去年的11月，奥地利政府已经实行了第四次全国封锁，并计划在今年的2月起，对所有18岁以上的人员强制接种中共病毒疫苗。其严苛专制的手段被奥地利民众斥为“新法西斯主义”，并引发强烈不满。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/beijing-virus-700x4201-1.jpg)图片来源：大纪元
+《大纪元英文版》1月15日报道，在中共国全国各地出现中共病毒感染群的情况下，快速传播的奥密克戎变种袭击了北京，在北京即将举办2022年冬奥会的几周前加重了该政权将疫情控制住的压力。
 
-据Profil杂志的一项民意调查，51%的受访者反对从2月起强制接种疫苗，其中34%的人持坚决反对态度，17%的人观望，45%的人赞成。社会进一步两极分化。
+1月15日，北京报告了首例来自海淀区——位于该市西北部的第二大区——的本地传播的奥密克戎病例。官员们通过封锁与中共病毒病例有关的17个“风险区”来应对疫情。该区居住的邻里小区的所有居民都被暂时禁止离开居住地。
 
-1月8号，已经接种了加强针的奥地利总理内哈默，确诊感染了中共病毒。尽管如此，奥地利议会仍将于本周四就强制接种疫苗进行投票。
+在北京发现奥密克戎确诊病例的同时，中共国各地城市在定于2月4日开幕的冬季奥运会前加强了对该病毒的警惕。该变种病毒对中共政府构成了新的挑战，政府官员已经加倍坚持其零容忍(zero-tolerance)的做法，这原本是为控制德尔塔变种病毒的一项全国性的努力。
 
-参考链接：[Thousands protest in Vienna against mandatory vaccination](https://www.reuters.com/world/europe/thousands-protest-vienna-against-mandatory-vaccination-2022-01-15/)
+至少五个城市的2000多万中共国居民因疫情被封锁在家。在西安，严厉的病毒控制政策导致当地人难以获得食物和其他必需品，垂死的人无法获得医疗帮助。宁波等港口城市的类似封锁措施也有可能扰乱全球供应链
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+据中共国国家卫健委疾病预防控制局高级官员贺青华说，尽管努力执行严格的控制，但截至1月15日，中国有超过14个省报告了奥密克戎确诊病例。这位官员没有透露确切的感染数字，但该委员会的发言人米锋将目前的情况描述“严峻”。
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：Fei797
+2022年1月14日，在中国陕西省西安市，居民们排队接受中共病毒核糖核酸检测。(图源法新社)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+米锋在1月15日的新闻发布会上说，中共国正“面临着来自德尔塔和奥密克戎的双重挑战”，并指出，随着即将到来的中国农历新年假期——与北京冬奥会同时进行——中共病毒的传播风险甚至更高。
+
+距离北京两小时车程的特大城市天津也一直在将居民们封锁在家，引发了当地居民恐慌性地购买物资，他们希望避免与西安的居民遭受同样的痛苦，而在西安，于2021年12月26日开始的封锁目前仍在生效。
+
+据官方报道，截至1月15日，与天津有关的奥密克戎病例已上升至400例，并蔓延至远至中共国中部的安阳市和东北的大连市等城市。去年12月，北京实施了旅行限制令，如果人们旅行的地区在过去两周内发生了一次或多次本地感染，那么他们将不得进入北京市。珠海是中共国东南部广东省与澳门接壤的城市，在本地宣布七例奥密克戎病例后，已取消所有飞往北京的航班和公共汽车路线。
+
+中共国官员也在1月15日确认了上海当地的奥密克戎感染事件。前一天晚上，据社交媒体上分享的视频显示，大学生们为了避免被封锁在校园里而逃离校园。“太可怕了”一名男子在他和其他人从被封锁的学校门口溜出来之后说。“我差点没成功逃出来。” 为了避免引起安全人员的怀疑，他说他决定只带着装在背包里的笔记本电脑离开，并且他在离开前寄走了他的衣服。
+
+2022年1月13日，在北京的上班高峰期，一名女性市民乘坐地铁车厢，其身旁是北京2022年冬奥会吉祥物冰墩墩(Bing Dwen Dwen) 的标志。(图源：Kevin Frayer/Getty Images)
+
+**简评：**在中共国相继发生的疫情，是中共伪政权人为制造的人道灾难，也充分暴露了中共政府对中国老百姓的奴役。所谓的大规模核糖核酸检测以及封锁家门不让外出，牢牢的将所有人管制起来。奥林匹克冬季奥运会在时时刻刻发生着新疆种族大屠杀的地方上演，本身就是一场笑话，而中共政府为了自己的利益和面子，牺牲所有百姓的健康与自由，还要百姓为之拍手称好。这样邪恶的犯罪集团注定会被消灭。
+
+新闻链接： [https://www.theepochtimes.com/omicron-reaches-beijing-deepening-uncertainty-for-winter-olympics\_4215840.html](https://www.theepochtimes.com/omicron-reaches-beijing-deepening-uncertainty-for-winter-olympics_4215840.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
