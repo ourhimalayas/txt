@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 10:01 PM (UTC)`
+
+1月17号：尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己有尊严和有价值的活着的唯一办法！
+![img](https://media.gettr.com/group7/getter/2022/01/17/22/2da2aa57-3543-9855-7232-2e827913fda9/out.jpg)
+
+---
+
 `@miles 1/17/2022 5:35 PM (UTC)`
 
 Dr. Geert Vanden Bossche (Virologist-Vaccinologist):<br/>The mass vaccinations are generating a breeding ground for even more infectious variants to replicate and the CCP virus will escape. If the COVID vaccines cannot prevent the transmission, this pandemic cannot be controlled. Vaccinations will be at risk of inducing autoimmune responses, autoimmunity in children. So under no single circumstance should you allow to get your child vaccinated.<br/><br/>Geert Vanden Bossche 博士，病毒学家-疫苗学家：这种大规模的新冠疫苗接种正为更具传染性病毒变种的复制制造温床，中共病毒将逃逸。如果新冠疫苗不能防止传播，就不能控制这种大流行病。接种新冠疫苗有诱发儿童自身免疫反应的风险。在任何情况下，你都不应该允许自己的孩子接种新冠疫苗。
@@ -147,13 +154,6 @@ EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this de
 `@miles 1/16/2022 1:12 PM (UTC)`
 
 1月16号：全世界人民很快就会知道了，为什么？【荒凉、无雪的景观（除了虚假的东西）引出了一个问题：为什么冬奥会在北京举行？Miles this is an opening for us？ 】<br/><br/><br/>https://www.dailymail.co.uk/news/article-10406229/Why-DID-Winter-Olympics-Beijing.html
-
----
-
-`@miles 1/16/2022 5:04 AM (UTC)`
-
-史蒂夫·班农：中共渗透了一切，收买了一切。它是本国有史以来最大的生存威胁<br/><br/>Steven Bannon: The CCP has infiltrated and bought off everything. It is the greatest existential threat that this republic has ever had<br/>
-![img](https://media.gettr.com/group32/getter/2022/01/16/05/1a7e8554-b59b-e888-9bec-4496ae0c9aaf/out.jpg)
 
 ---
 
