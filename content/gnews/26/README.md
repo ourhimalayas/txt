@@ -2,34 +2,19 @@
 ---
 
 
-## 奥地利民众持续抗争 超半民众反对强制接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871941/)
+## 秘翻在线 :又一位接种过疫苗的足球明星因心肌炎无法出赛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1871969/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月15日，数千名奥地利民众走上首都维也纳的街头，抗议政府计划在下月对所有人实行强制性疫苗接种政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-8.jpg)
-在市中心的集会上，人群高呼口号表达不满。早在去年的11月，奥地利政府已经实行了第四次全国封锁，并计划在今年的2月起，对所有18岁以上的人员强制接种中共病毒疫苗。其严苛专制的手段被奥地利民众斥为“新法西斯主义”，并引发强烈不满。
+**撰稿：William**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-17-232029.jpg)图片来源：www.90min.com
+根据零对冲(Zero Hedge) 的报道,完全接种新冠疫苗的加拿大足球明星阿方索·戴维斯(Alphonso Davies)因心肌炎将无法上场比赛。加拿大多伦多新闻 CP24 指出在德甲名门球队拜仁慕尼黑效力的加拿大球星阿方索·戴维斯(Alphonso Davies)已显示出心肌发炎的迹象。戴维斯被公认为是世界上最好的足球左后卫之一，他已完全接种新冠疫苗并于 12 月接种了加强针，但是因为心肌发炎的关系，已被排除在加拿大定于一月和二月举行的三场世界杯预选赛之外。
 
-据Profil杂志的一项民意调查，51%的受访者反对从2月起强制接种疫苗，其中34%的人持坚决反对态度，17%的人观望，45%的人赞成。社会进一步两极分化。
+他的俱乐部经理朱利安·纳格尔斯曼（Julian Nagelsmann）表示，这个问题是在后续的 COVID 检查中发现的。他表示戴维斯将缺席训练，直至另行通知。在接下来的几周内，戴维斯也将无法上场。超声波显示这种心肌炎并不那么严重，但它是心肌炎的征兆。不过，愈合肯定需要一些时间。俱乐部经理并没有立即将炎症归因于中共病毒（Covid-19），并表示有不同的原因，特别是病毒载量或流感，例如，可能导致心脏问题。
 
-1月8号，已经接种了加强针的奥地利总理内哈默，确诊感染了中共病毒。尽管如此，奥地利议会仍将于本周四就强制接种疫苗进行投票。
+郭文贵先生多次在直播中说到，疫苗产生的灾难将远远超过我们的想像。会有愈来愈多的新闻显示各种严重的疫苗副作用，更会带来供应链、社会动荡、世界金融的次生灾难的发生。今年最重要的事情就是做好所有活下去的准备，从准备抗疫药品伊维菌素和青蒿素、生活所需的面、油、盐，还有避免外出减少感染风险。2022年将是人类历史上最黑暗的一年，只要家人和自己都健康活下去就是胜利。
 
-参考链接：[Thousands protest in Vienna against mandatory vaccination](https://www.reuters.com/world/europe/thousands-protest-vienna-against-mandatory-vaccination-2022-01-15/)
+**新闻来源：**[https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis](https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

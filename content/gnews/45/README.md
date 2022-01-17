@@ -2,21 +2,25 @@
 ---
 
 
-## 郭先生再次呼吁防病毒储物资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870460/)
+## 骚乱致死人数激增 哈萨克斯坦甩锅境外势力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870463/)
 
-作者：纽约香草山健身部 – Ivy001
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月15日，文贵先生在盖特上再次向战友们呼吁，目前疫情非常严峻，感染的战友也非常多，希望大家都注意安全，保重自己和家人的健康，不要掉以轻心。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-44.jpg)
-同时，由于疫情和世界各地的反强制疫苗运动，导致物资供应短缺，以及供应链岌岌可危等问题。文贵先生特意提醒大家，应该储备一些物资和粮食，比如说，油、盐、粮食和各种生活必需品，以防万一。
+据外国媒体1月16日报道，哈萨克斯坦官方表示，在骚乱期间，该国已有 225 人死亡，其中 19 人是执法人员和军人。
 
-参考链接：[郭先生再次呼吁防病毒储物资](https://gettr.com/post/pohbz5f05d)
+中共外交部发言人称，此次哈萨克斯坦突变生乱表明，中亚地区形势仍面临严峻挑战，也再次证明某些外部势力并不希望我们这个地区和平安宁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-47.jpg)
+郭文贵先生在1月12日大直播中断定，哈萨克斯坦政府一定会配合中共把这场骚乱的责任推卸给境外势力，推卸给美国的挑拨离间。
+
+16日，哈萨克当局果然把此次暴力事件归咎于所谓的“土匪和国际恐怖分子”，称他们操纵了抗议活动，使骚乱的中心从西部转移到该国最大的城市阿拉木图，但哈政府并没有提供证据证明所谓的外国土匪和恐怖分子是谁。
+
+参考链接：[骚乱致死人数激增 哈萨克斯坦甩锅境外势力](https://www.theguardian.com/world/2022/jan/16/kazakhstan-authorities-raise-death-toll-from-unrest-to-225)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
+总编：飞虹
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -27,8 +31,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 
