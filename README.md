@@ -120,71 +120,71 @@
 ### [有声|通用电气公司停止为员工接种新冠疫苗](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [1/17/2022国际财经快讯：美国12月工厂生产意外骤降；拉加德称欧洲央行将尽全力使通胀率达到2%](/content/gnews/36/README.md)
+### [深圳奥密克戎爆发 中共又要甩锅境外](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1/17/2022国际财经快讯：美国12月工厂生产意外骤降；拉加德称欧洲央行将尽全力使通胀率达到2%](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [太平联盟案的四大不寻常—中共法律超限战](/content/gnews/37/README.md)
+### [太平联盟案的四大不寻常—中共法律超限战](/content/gnews/38/README.md)
  ` MilesGuoLivePPT`
 
-### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/38/README.md)
+### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [英国政府拟废除COVID-19（中共病毒）自我隔离法规](/content/gnews/39/README.md)
+### [英国政府拟废除COVID-19（中共病毒）自我隔离法规](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [中共邪教制造反社会人格，以零容忍掩饰犯罪行为](/content/gnews/40/README.md)
+### [中共邪教制造反社会人格，以零容忍掩饰犯罪行为](/content/gnews/41/README.md)
  ` G-NEWS TAIWAN`
 
-### [新西兰财经G乐部2022年1月17日:财经新闻整理](/content/gnews/41/README.md)
+### [新西兰财经G乐部2022年1月17日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/42/README.md)
+### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [开年法事多](/content/gnews/43/README.md)
+### [开年法事多](/content/gnews/44/README.md)
  ` 骄子`
 
-### [COVID-19 最新情报｜澳洲政府资助机构发布煽动性广告：青少年接种疫苗毋需父母许可](/content/gnews/44/README.md)
+### [COVID-19 最新情报｜澳洲政府资助机构发布煽动性广告：青少年接种疫苗毋需父母许可](/content/gnews/45/README.md)
  ` 關注組`
 
-### [01/17每日播报｜“奥米炕”现身北京 中共出台新政策严控进京人员](/content/gnews/45/README.md)
+### [01/17每日播报｜“奥米炕”现身北京 中共出台新政策严控进京人员](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [为应对通胀 美联储即将加息](/content/gnews/46/README.md)
+### [为应对通胀 美联储即将加息](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [骚乱致死人数激增 哈萨克斯坦甩锅境外势力](/content/gnews/47/README.md)
+### [骚乱致死人数激增 哈萨克斯坦甩锅境外势力](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [COVID-19 最新情报｜专栏作家发文揭香港疫苗伤害真相 吁尊重未接种者](/content/gnews/48/README.md)
+### [COVID-19 最新情报｜专栏作家发文揭香港疫苗伤害真相 吁尊重未接种者](/content/gnews/49/README.md)
  ` 關注組`
 
-### [01/17每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/49/README.md)
+### [01/17每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/50/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所](/content/gnews/50/README.md)
+### [COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所](/content/gnews/51/README.md)
  ` 關注組`
 
-### [【中日财经爆】日经产相访泰 双方签署备忘录促合作](/content/gnews/51/README.md)
+### [【中日财经爆】日经产相访泰 双方签署备忘录促合作](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德约科维奇在签证上诉失败后被驱逐出境](/content/gnews/52/README.md)
+### [德约科维奇在签证上诉失败后被驱逐出境](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共用病毒+疫苗绑架了世界，全球华人面临生存危机](/content/gnews/53/README.md)
+### [中共用病毒+疫苗绑架了世界，全球华人面临生存危机](/content/gnews/54/README.md)
  ` mary202064`
 
-### [荷兰、丹麦宣布外交抵制北京奥运会](/content/gnews/54/README.md)
+### [荷兰、丹麦宣布外交抵制北京奥运会](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [多国示威游行抗议中共病毒疫苗强制令与疫情封控政策](/content/gnews/55/README.md)
+### [多国示威游行抗议中共病毒疫苗强制令与疫情封控政策](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [多数大基金认为经济将跌20%-40%，中共成功激活人性丑陋一面](/content/gnews/56/README.md)
+### [多数大基金认为经济将跌20%-40%，中共成功激活人性丑陋一面](/content/gnews/57/README.md)
  ` YALUN 亚伦`
-
-### [【Michael.Tonny专栏】羟氯喹伊维菌素对治疗中共病毒的用法和显著疗效（下）](/content/gnews/57/README.md)
- ` 温哥华扬帆农场`
 
 ### [共产党“零容忍反腐”](/content/gnews/58/README.md)
  ` 骄子`
