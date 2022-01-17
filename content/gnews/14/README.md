@@ -2,27 +2,28 @@
 ---
 
 
-## 中华民族的悲哀—被种族歧视而不自知(二)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870969/)
+## 阿富汗的今天，中共国的明天
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1870989/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
+##### 整理：雅典娜速记组
+编辑：玉米地守望者
+![](https://assets.gnews.org/wp-content/uploads/2022/01/阿富汗的今天中共国的明天.jpg)
+共产党灭亡前死人，饿死人，将会超出你想象。阿富汗从过去不到2000万人迅速增加到5000万人口，五千万人一年要一亿吨的粮食，最低他也要6000千万粮食。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中华民族的悲哀—-被种族歧视而不自知（二）-.jpeg)
+现在的阿富汗2300万人面临今年冻死。共产党现在树立了塔利班了，但是塔利班是活不下去的。
 
+此时此刻阿富汗最起码死掉已经是几万人了，未来的80天以内，最起码死200万到300万，这不是我说的。你记住我今天的直播，阿富汗今天一定在100万到300万之间被饿死，2300万在挨饿，而且是因为共产党所谓树立的塔利班。
 
-第二，他因为巨大的利益和巨大的恐惧，就像这个所有的报仇的苹果amazon这些。 我那天说了我们绝对不恨他们，但是你知道有一个媒体Facebook，Facebook就没让我的账号存活过24小时。Facebook一年的广告费，900亿美元。YouTube, 150亿美元。整个推特现在还是赔钱。你告诉我 Facebook 没让我活过24个小时，我们凭啥告推特不告YouTube？我们得感谢人家。那为什么 Facebook 不让我们活超过一天知道吗? HBO区和VOICE，他为什么在这时候要干什么？都是为了钱嘛！
+塔利班的领导每天在搞8岁到13岁的处女，每天弄仨。我们去想想咱们家的兄弟姐妹8岁到11岁的女孩儿，被那些流氓的男人按在床上开处，然后没饭吃被饿死。阿富汗的今天，就很有可能是中国人的明天
 
-他敢对犹太人这么干吗？再敢对穆斯林这么干吗？所以大家要看到这是你们大家 说你刚才咱直播几个小时，我想让你们知道，你们不知道被种族歧视是什么，因 为你们压根就不相信自己被种族歧视。被种族歧视，第一来自共产党，第二就是 外国媒体。外国媒体对我们新中国联邦是典型种族歧视。这种这种邪恶已经到了 我们兄弟姐妹必须要站起来说话的时候。
+*发布：玉米地守望者*
 
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

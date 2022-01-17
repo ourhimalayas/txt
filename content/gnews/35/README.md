@@ -2,24 +2,26 @@
 ---
 
 
-## 微软称乌克兰政府机构的计算机系统被感染了恶意软件
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870343/)
+## COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1870357/)
 
-#### 撰稿：彩虹
+**撰文｜疫情关注组 / 发布时间｜17/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-2.jpg)图片来源：印度时报
-1月16日，《国会山报》报道，周六，微软宣布，与乌克兰政府、机构和组织有关的几十个计算机系统被感染了恶意软件。
+法国国民议会周日（16日）批准多项政府提出的最新防疫措施，其中包括最令当地民众反感的疫苗通行证。
 
-微软在一份声明中说，最初在周四检测到的恶意软件被伪装成勒索软件，但如果被攻击者激活，就会感染计算机并使其无法操作使用。声明说，在“几十个受影响的系统上检测到该恶意软件，随着我们调查的继续，这个数字可能会增加。这些系统横跨多个政府、非营利组织和信息技术组织，全部位于乌克兰”。
+国会以215票赞成，58票反对，通过以疫苗通行证取代健康通行证的法案，要求全国 16 岁及以上人士须持疫苗接种证明，方可进出当地的餐馆、电影院、博物馆、火车站等公共场所，仅新冠病毒康复者可豁免。
 
-据官员称，周五，“一场大规模网络攻击”攻破了一些乌克兰政府网站，导致一些机构网站被暂时关闭。据报道，黑客写下的信息包括“害怕吧，会更糟糕”和 “有关你的所有信息都已公开，害怕吧，会更糟糕”。
+另外，法案还特别提高使用伪冒通行证的罚款，并允许身份审查以避免欺诈。巴黎和部分主要城市的民众集结，发起多场示威抗议，反对政府及国会推行该项法案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/法國會通過疫苗通行證法案-禁止未接種者進出公共場所.jpg)
+就在该法案通过的前一日（15日），法国政府刚刚宣布推出新规定，成年人必须完成第三剂COVID-19 疫苗加强剂的注射才可获得有效的疫苗接种证明。
 
-对于黑客组织的来源，文章报道，乌克兰国家和国防委员会副秘书谢尔盖·德米杜克（Serhiy Demedyuk）告诉《路透社》，乌克兰方面认为一个与白俄罗斯情报部门有关的黑客组织是破坏政府网站和利用恶意软件的幕后黑手，初步认为是一个名为UNC1151的组织参与了这次黑客行动。
+法国总统马克龙（Emmanuel Macron）1月4日受访时曾表示，“但对于那些尚未接种疫苗的人，我真的想『惹恼』他们。所以我们（政府）会继续这样做直至结束。这是策略。”
 
-**新闻来源**
+“我不会（把未接种疫苗的人）送进监狱，我不会强制（要求）接种疫苗。所以我们需要告诉他们，从1月15日起，你（不打针的话）不能再去餐厅、咖啡店、戏院等公共场所了”。
 
-[Ukraine government agencies’ computer systems infected with malware, Microsoft says](https://thehill.com/policy/cybersecurity/589934-ukraine-government-agencies-computer-systems-infected-with-malware)
+来源｜[Euronews](https://www.euronews.com/2022/01/15/france-requirement-for-triple-vaccination-covid-pass-begins) 、[Axios](https://www.axios.com/french-parliament-approves-covid-vaccine-pass-25d84133-d5af-4ddd-b8ce-ac2842c81f43.html)
 
  
 

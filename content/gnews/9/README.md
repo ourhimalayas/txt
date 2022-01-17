@@ -2,108 +2,32 @@
 ---
 
 
-## 大家要做好一切准备!! 经济灾难!人道灾难! 病毒灾难! 疫苗灾难! 共产党灭亡前的灾难! 甚至是火战的灾难!
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871005/)
+## 开年法事多
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1871059/)
 
-[https://gtv.org/video/id=61e416f387664c47acd56fb8](https://gtv.org/video/id=61e416f387664c47acd56fb8)
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.15.31-1.png)图源：网路
+2022一开年，还没有一个月，就如此密集地发生了众多法律相关的事件。东方，中共国这里开始播放由孙力军等伏法者主演的大型反腐纪录片零容忍，西方，先是美国最高法否决了拜登的强制疫苗令，其次是爆料革命非常重要的一件事，共产党PAG对文贵先生的不实缠诉案件中，法官否决了和共产党有关的律师事务所代理此案件的资格，意味着共产党的卧底计划彻底失败。
 
-**郭文贵
-Miles Guo**
+零容忍讲的完全是共产党那一套，表面信誓旦旦，背地里全部都是肮脏，甚至严重利用修音修声修容修画面技术，就怕你看出毛病来了，掩饰地极其完美，实则内容极其空洞，孙力军说什么海鲜里面放美金，这对于我们常听爆料革命的战友来说，你真是拿人当猴耍呢，孙力军怎么不交代自己怎么玩人家一家三代的女眷的，还一起玩弄。并且仔细听那个旁白配音，像极了性交时长真的不超过3秒次次吃药依然撑不够最后20秒但是出门就说人家女方长得不漂亮的那种，吃药治不好阳痿，强行练口才，用力过猛把自己累死但是你的尽头还没到女方的开始呢。共产党就爱装神弄鬼，七哥爆料说制作这个纪录片的剧组人员，好几个都让抓了。无论这个零容忍的零有多大，那不是你纪录片工作者可以去定义的，只有共产党来定义，换句话说你拍得再好，你让孙力军再领衔参演，交投名状吗？这个剧中，七哥说所有孙力军穿的衣服，灯光，和所有的说话，姿态，调光，全部都是精心布置的。是的，我看到的是孙力军嘲笑的目光，他完全不是一个阶下囚的那种沮丧和恐惧的状态，相反他的神情充满了嘲笑和讽刺，甚至有一些嚣张。想当初这个零容忍关于零的概念是江泽民进行诠释的，不难看出习近平要抓这几个纪录片制作人的意图了，毕竟这个片子说的是习近平十八大以来的反腐成绩，能让一个贪官嘲笑他的政治业绩，那还了得？习近平对于那些看不上他的人，除了愤怒还有耻辱，他心眼儿小得比针尖还看不见，一个香港书商卖了一本写他私生活的书，他都把人给抓了，哪还容得下这些明目张胆的轻视？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-19.33.29.png)傲慢 / 图源：网路
+对比共产党一开年就装神弄鬼在这反腐唱廉，美国的法院是真真干了实事儿的。首先就是最高法把拜登的疫苗强制令给否决了，这实在是天大的一件事。七哥早在两个月之前就曾经爆料，强制疫苗这件事儿很快就会停的，结果真得没有等太久。七哥讲的很多事情都在逐渐得到验证，但是疫苗这件事的速度是惊人的，七哥说是爆料革命递交了很多很多资料，可想爆料革命后面的力量有多么强大。之前大家一直在嚷着要去共产党国武汉去溯源新冠病毒，但是几乎没有成功，每次总是会被强行拦下，就算再多人呼吁也没用。难道就让新冠病毒这么肆虐了吗？新冠疫苗本身就是对人的免疫系统有巨大的危害的，比病毒死的人还多，媒体上一个也不报道因接种新冠疫苗导致的死亡，都统计的是病毒方面的，omicron让一切都改变了，虽然还是在强制疫苗，但打过疫苗还被感染就一定说不过去了。无论溯源不溯源，共产党再阻止，对于新冠病毒本身来说，谈论新冠疫苗比那个更加重要，因为毕竟每天因为接种新冠疫苗造成的感染和死亡比未接种疫苗要多得多得多。最高法的判决是法律，以后是可以用来援引的，毕竟这里是美国，尽管福奇脖子上挂好了死刑的锁链，还是要接受法律的审判。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2103240_e4ef71a788452c6b22e50923ea565e45-scaled.jpg)单伟建 / 图源：网路
+PAG对七哥的缠讼官司，也是纽约法院做出的判决，通过对Cahill律所的conflict行为提出的质疑而赢了这场荒唐的自始至终都是在污蔑七哥的官司。记得七哥很早的时候说过，只要顺着查这些官司背后的钱，一切都可以查清，因为无论是什么毛报假案说GTV欺诈，还是马蕊，还有很多假票据假证据事件，背后的钱一看，都是共产党的特务单伟建或者吴征给的钱，就连那些砸郭伪类灭爆小组都是吴征给钱。到底这些人是不是共产党派来的，一目了然。但是，毕竟美国法庭是一个讲证据的地方，如果开始追究证据的真假，那好了，中计了，共产党就是要让你累死在这些奔波中，对你进行超限战。西方美国社会，从来是就事论事，一件官司当然要看的是证据，查人也必须要拿证据出来。这次纽约法院采取了查人，并且就是显而易见的，共产党明明知道这个律所就是有conflict嫌疑，依然毫不掩饰明目张胆地为非作歹，这事儿换在习近平身上你看看是什么下场，他马上会把人抓起来杀了。美国有法律，法庭这次的判决是考虑了郭先生的建议的，从钱和人的从属关系上来捋顺思路，毕竟无论PAG还是文贵先生，这俩都是中国人，俩中国人打官司让美国法官来判决，一定要考虑中国因素，就是共产党作为邪教组织的某些特点，秘密结社和编造邪说，秘密结社的行为就是进行卧底，编造邪说就是造假票据假证据。其实在美国社会也是这样，很多美国大学入学都要要有推荐信的，推荐人非常重要，被推荐的人起码不能一夜之间就翻脸，相反，被推荐人会非常珍视与推荐人的交往。之所以班农先生在蛇妖砸郭之后那么生气，就是因为蛇妖翻脸比翻书还快，上过班农的节目，相当于班农先生担保过她，但她一点不珍惜。相信这次官司是中西文化的一次大碰撞，因为大家都一定会发现，原来无论东方还是西方，我们都很珍视彼此之间的交流，我们都痛恨一夜翻脸，我们都想要维护法律的公正和公平，我们都想对事不对人。直接后果就是谁都会非常迫切地要灭掉共产党。
 
-我到那里以后，我从来没有动外面任何东西，喝那最高级的水
-After I got there, I never touched anything outside, and drank the highest grade of bottle water
-
-我（被）送医院去了，就是传染了
-I (was) sent to the hospital. I was infected
-
-当时说，你不打疫苗，就会死在这里
-It was said at the time that if you didn’t get vaccinated, you would die here
-
-我去非洲，我也打了疫苗，打了1、2十针疫苗
-I went to Africa, and I also got vaccinated, a dozen to 20 shots
-
-东弟，我们不是反疫苗，我们是相信疫苗的
-Brother Dong, We are not anti-vaccine, we believe in vaccines
-
-但是你不知道病毒的情况下，你怎么可能有疫苗？
-But if you don’t know the virus, how can you possibly have a vaccine?
-
-更重要事情，我们向西方(机构)，包括美国高（等）法（院），所有的人，包括美国国会，我们提供的就两件东西
-More importantly, we have provided two things to organizations in the west, including the U.S. Supreme Court, U.S. Congress and all people
-
-在欧洲的 (从中共国逃出来的) 科学家，他给我们提供的文件
-The documents provided by the scientist in Europe who escaped from the Mainland China
-
-就共产党，这个事，我们敢公开喊，就是共产党的生化病毒
-We can shout out loud that this is the CCP’s biochemical virus
-
-(这) 病毒是不可能有疫苗的，(这) 就是生化武器
-There is no vaccine for this virus, cause the virus is a biological weapon.
-
-所以你记住这个原则以后，你就不要讨论其他问题了
-So after you keep this principle in mind, you won’t discuss other issues.
-
-第一，不能打疫苗; 第二，必须戴口罩; 第三，尽量不出去; 第四，大家要记住，这个世界如果咱们能决定黑和白、红和黑，我们可能新中国联邦可能已经不叫新中国联邦，叫太阳联邦了
-
-First, don’t get vaccinated; Second, you must wear a mask; Third, try not to go out; Fourth, everyone must remember that if we could decide on what is black and what is white, and what is red and what is black, then we wouldn’t be the New Federal State of China, but Sun Federation.
-
-我们(新中国联邦)还是很渺小的力量，跟国家的权力，跟世界比，我们是很很很渺小的
-We (the New Federal State of China) are still a very tiny force, Compared with the power of a country and the world, we are very, very tiny
-
-真的像张高丽说的，人家是宇宙无限大，我们是地球一粒沙都不是，跟人家的国家政权（比），我们真是一粒沙都不是，不要把自己看那么伟大，好吧
-Just like Zhang Gaoli said, they are the infinite universe, we are not even a grain of sand on the earth, compared with the power of a country. Please don’t think of yourself as great, okay?
-
-我先说到这，大家先记住（上面提到的）这几个重点。
-然后，还有几个建议我要跟大家说的，听7哥（当时）说，今年年底，就是2021年底可能要大爆发，爆发了吗？
-For now, please keep the (above mentioned) points in mind first.
-Then, there are a few more suggestions that I want to share with you. I said that there may be a big outbreak at the end of 2021. Has it happened?
-
-我说新病毒（会从）哪来，来了吗？
-I said where the new virus would come, did it come?
-
-我说疫苗灾难，会在今年5月份以前截止，1、2月份会有法律上的行动，行动了吗？
-I said that the vaccine disaster will end before May this year, and there will be legal actions in January and February. Have these actions taken place?
-
-我再告诉大家，我不求你们信我们，如果你们信新中国联邦，信7哥说的话，5月份以前，你能呆在家里呆在家里
-Let me tell you again. I don’t beg you to believe us. If you believe in New Federal State of China and what Miles Guo said, you’d better stay at home before May
-
-你要真要出去了，染你病毒的不是病毒的携带者，是所有你认为打了疫苗的人
-If you really have to go out and get infected, you will not be infected by those virus carrying people, but by those vaccinated
-
-你就尽量不出门
-Again you’d better not to go out
-
-2022年，是人类有史以来最黑暗的，可以回到侏罗纪时代去
-The year 2022 is the darkest in human history and (we) could go back to the Jurassic era.
-
-你们要做好一切心理准备，经济灾难、人道灾难、病毒灾难、疫苗灾难，共产党灭亡前的灾难，甚至是火战，甚至是战争
-You have to be mentally prepared for all economic disasters, humanitarian disasters, virus disasters, vaccine disasters, disasters before the demise of the Communist Party, even hot wars
-
-还有你刚才问的所谓“热毒”，这个毒，就是共产党的毒，就是整个投毒、疫苗的结果
-You just asked about what the so-called “hot poison” is. This poison is the poison of the Communist Party, and it is the result of the entire poisoning and vaccines.
+壬寅是水年，水旁边一个去是念做法，法律不是来，永远都是去。所以共产党装神弄鬼搞什么零容忍假反腐，和西方真正的法律行动，孰假孰真，一眼就明。
 
 * * *
 
-Date: 01/14/2022
-原视频标题: 大家要做好一切准备!! 经济灾难!人道灾难! 病毒灾难!
-疫苗灾难! 共产党灭亡前的灾难! 甚至是火战的灾难!
-Everyone, be prepared! Economic disasters! Humanitarian disaster! Virus disaster!
-Vaccine disaster! The disaster before the demise of the Communist Party! Even the disaster of hot wars!
-原视频日期：2022/01/14
-原视频链: [**https://twitter.com/yingjie22739040/status/1482006186740174848?s=24**](https://twitter.com/yingjie22739040/status/1482006186740174848?s=24)
-任务编号：KC416（3491）
-视频时间段 : 0:00-2:20
-中听校：洛杉矶盘古农场 – WH
-翻译：洛杉矶盘古农场 – WH
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
