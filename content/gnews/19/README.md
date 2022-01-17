@@ -2,27 +2,32 @@
 ---
 
 
-## 新中国联邦在美最高法院的判决中举足轻重
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871571/)
+## MIT科学家警告 中共病毒疫苗可致长期副作用
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871584/)
 
-采编/编译撰稿：Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-5.jpg)
-据《CNBC》1月13 日报道，美国最高法院当天最终否决了拜登政府对大中型企业所执行的疫苗强制接种规定，该裁决涉及到近1亿美国人，全国众多商业企业因此获益。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月16日盖特信息，美国麻省理工学院科学家斯蒂芬妮·森内夫博士近期接受美国媒体采访，她警告称，中共病毒疫苗在人体内产生类似朊病毒的刺突蛋白，将诱发神经退化性疾病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.23.png)
+森内夫博士解释了，中共病毒疫苗可导致长期副作用的致病机理是，疫苗内的纳米颗粒使人体迅速产生大量免疫细胞，最终进入脾脏并产生大量的刺突蛋白。而脾脏内的生发中心实际上就是帕金森病等神经退化疾病生成的中心地带。这样的致病机制已经在帕金森病的研究中被证实。这些有毒的刺突蛋白会从脾脏被分泌出来，并沿着迷走神经运送到大脑。
 
-报道称，自总统拜登强推“新冠病毒”疫苗强制接种政策以来，一直面临着大量反对诉讼。目前，共有27个州的共和党总检察长或州长、宗教团体和全国零售联合会、美国卡车运输协会等全国性行业组织及企业参与了对该行政命令的法律诉讼。
+森内夫博士强调，给年轻人接种疫苗根本没有任何好处，他们死于中共病毒的风险非常低，重复接种疫苗更加有害。父母应尽一切所能，避免为儿童接种疫苗。
 
-对此，文贵先生在1月14日GTV直播节目中指出，美国最高法院的以上裁决意义重大，
+参考链接：[https://gettr.com/post/pon4qxd151](https://gettr.com/post/pon4qxd151)
 
-并因此真正开启了在全球范围内针对中共病毒及其疫苗真相的重新调查，以及停止疫苗接种和废除疫苗护照等运动的先河，而新中国联邦在其中起到了主导和决定性的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-校对编辑：硫酸羟氯喹64
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-发稿： 苦尽甜来 (文來）
-
-[原文链接](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
-
-[新闻连接](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

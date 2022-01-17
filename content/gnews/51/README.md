@@ -2,33 +2,38 @@
 ---
 
 
-## 德约科维奇在签证上诉失败后被驱逐出境
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870198/)
+## 郭文贵先生诠释 灭共就是天意
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870048/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-104.png)
-图片来源：网络截图
+作者：纽约香草山 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月12日的大直播中，郭文贵先生用个人经历和感悟诠释了，灭共就是天意。
 
-据零对冲1月16日报道，澳大利联邦法院全体法官在周日晚间裁定，驳回了德约科维奇对澳大利亚政府撤销其签证决定的挑战。随后德约科维奇在晚间11点被联邦特工护送飞离了澳大利亚，他还将面临三年的禁入。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-12.jpeg)
 
-该裁决是由首席大法官詹姆斯·艾尔索普（James Allsop）与安东尼·贝森科（Anthony Besanko）法官和大卫·奥卡拉汉（David O’Callaghan）法官，经过周日近8个小时的审议一致驳回，所有费用将由德约科维奇支付。
+郭先生谈到，天意没有偶然，永远要相信天意。新中国联邦人不流一滴血，没有任何暴力，在过去五年里，团结亿万战友，唤醒国内无数有良知的人，这是天意。
 
-鉴于此案的广泛影响和国际关注度，艾尔索普提出要听取双方对这一决定的进一步争论，然而，这位世界头号网球运动员的法律团队拒绝了这一邀请。结果，他失去了在澳网卫冕大满贯的机会。
+如果没有习近平、王岐山孟建柱、江家和南普陀会议；没有共产党对外扩张，搞一带一路，灭白计划，叫板美国要平等共治；对内利用反贪抓了100万官员；没有习近平搞所谓的”共享财富“，释放病毒，威胁台湾，灭香港，在新疆西藏搞种族大屠杀，就不可能灭共。这些都是天意。
 
-艾尔索普说，法院的驳回理由将尽快公布。他指出，英联邦政府司法部门的决定不是关于政府行政部门的一位部长是否做出了拒绝这位网球明星入境的正确决定，而是关于在德约科维奇上诉提出的三个理由中，移民部长霍克的决定在法律是否正当或合法。“法院的职能不包括对[政府]决定的优点或智慧作出决定。”他说。
+郭先生用自己的经历解释，不是所有的人都能领悟什么是天意。郭先生在年少时期去到新疆，后来还去过昆仑山、帕米尔高原、喜马拉雅山脉，从这些游历中，亲身体验到天意。郭先生当年卖掉摩托车支持六四，被关到看守所，出来以后就要拯救中国人和世界，这也是天意。
 
-德约科维奇在一份声明中说，虽然他尊重这一裁决，但他 “对法院的裁决极为失望，这意味着我不能留下参加澳大利亚公开赛”。他说他现在将花一些时间来休息和休养，然后再发表除此之外的任何评论。他同时感谢他的团队和球迷的支持，并请求他们把注意力回到支持这项赛事上。他补充说，就离开该国的事宜他将与澳大利亚当局合作。
+有天意，就有天机，是上天安排的机会。天机后面是民心，是天时，地利，人和。所以说，灭共就是天意。
 
-同时，霍克对法院支持他根据《移民法》行使权力的决定表示赞赏，强调澳大利亚强有力的边境保护对“保障澳大利亚的社会凝聚力”的重要性。
+参考链接：[2022年1月12日 文贵大直播](https://gtv.org/video/id=61df44f3a6dfdd6031535439)
 
-部长补充说，由于德约科维奇被视为一个“偶像”，这位球员在澳大利亚的出现可能会激起反疫苗的情绪，破坏澳大利亚的疫苗接种工作，并最终影响卫生系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-德约科维奇的律师在法庭上质疑，没有“证据”表明这种情况会发生，强调德约科维奇的驱逐出境和政府的“胁迫行动 ”也会达到同样的效果。
+总编：Ivy001
+编辑：文真
+校正/发稿：谐趣园
 
-澳大利亚网球运动员尼克·基尔乔斯（Nick Kyrgios）此前曾批评澳大利亚政府对签证事件的处理“令人尴尬”，他在社交媒体上对法院的决定表示失望。
-
-新闻来源：[Djokovic Deported After Losing Visa Appeal, Faces 3-Year Ban From Australia](https://www.zerohedge.com/political/djokovic-deported-after-losing-visa-appeal-faces-3-year-ban-australia)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

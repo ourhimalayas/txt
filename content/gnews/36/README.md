@@ -2,161 +2,32 @@
 ---
 
 
-## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
+## 开年法事多
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1871059/)
 
-Marjorie Taylor Greene (the U.S. representative of Georgia)
-玛乔丽·泰勒·格林 (美国佐治亚州众议员）
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-01-下午9.15.31-1.png)图源：网路
+2022一开年，还没有一个月，就如此密集地发生了众多法律相关的事件。东方，中共国这里开始播放由孙力军等伏法者主演的大型反腐纪录片零容忍，西方，先是美国最高法否决了拜登的强制疫苗令，其次是爆料革命非常重要的一件事，共产党PAG对文贵先生的不实缠诉案件中，法官否决了和共产党有关的律师事务所代理此案件的资格，意味着共产党的卧底计划彻底失败。
 
-I’m just happy to see that that the media and you know
-我很高兴看到媒体和你知道
+零容忍讲的完全是共产党那一套，表面信誓旦旦，背地里全部都是肮脏，甚至严重利用修音修声修容修画面技术，就怕你看出毛病来了，掩饰地极其完美，实则内容极其空洞，孙力军说什么海鲜里面放美金，这对于我们常听爆料革命的战友来说，你真是拿人当猴耍呢，孙力军怎么不交代自己怎么玩人家一家三代的女眷的，还一起玩弄。并且仔细听那个旁白配音，像极了性交时长真的不超过3秒次次吃药依然撑不够最后20秒但是出门就说人家女方长得不漂亮的那种，吃药治不好阳痿，强行练口才，用力过猛把自己累死但是你的尽头还没到女方的开始呢。共产党就爱装神弄鬼，七哥爆料说制作这个纪录片的剧组人员，好几个都让抓了。无论这个零容忍的零有多大，那不是你纪录片工作者可以去定义的，只有共产党来定义，换句话说你拍得再好，你让孙力军再领衔参演，交投名状吗？这个剧中，七哥说所有孙力军穿的衣服，灯光，和所有的说话，姿态，调光，全部都是精心布置的。是的，我看到的是孙力军嘲笑的目光，他完全不是一个阶下囚的那种沮丧和恐惧的状态，相反他的神情充满了嘲笑和讽刺，甚至有一些嚣张。想当初这个零容忍关于零的概念是江泽民进行诠释的，不难看出习近平要抓这几个纪录片制作人的意图了，毕竟这个片子说的是习近平十八大以来的反腐成绩，能让一个贪官嘲笑他的政治业绩，那还了得？习近平对于那些看不上他的人，除了愤怒还有耻辱，他心眼儿小得比针尖还看不见，一个香港书商卖了一本写他私生活的书，他都把人给抓了，哪还容得下这些明目张胆的轻视？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-19.33.29.png)傲慢 / 图源：网路
+对比共产党一开年就装神弄鬼在这反腐唱廉，美国的法院是真真干了实事儿的。首先就是最高法把拜登的疫苗强制令给否决了，这实在是天大的一件事。七哥早在两个月之前就曾经爆料，强制疫苗这件事儿很快就会停的，结果真得没有等太久。七哥讲的很多事情都在逐渐得到验证，但是疫苗这件事的速度是惊人的，七哥说是爆料革命递交了很多很多资料，可想爆料革命后面的力量有多么强大。之前大家一直在嚷着要去共产党国武汉去溯源新冠病毒，但是几乎没有成功，每次总是会被强行拦下，就算再多人呼吁也没用。难道就让新冠病毒这么肆虐了吗？新冠疫苗本身就是对人的免疫系统有巨大的危害的，比病毒死的人还多，媒体上一个也不报道因接种新冠疫苗导致的死亡，都统计的是病毒方面的，omicron让一切都改变了，虽然还是在强制疫苗，但打过疫苗还被感染就一定说不过去了。无论溯源不溯源，共产党再阻止，对于新冠病毒本身来说，谈论新冠疫苗比那个更加重要，因为毕竟每天因为接种新冠疫苗造成的感染和死亡比未接种疫苗要多得多得多。最高法的判决是法律，以后是可以用来援引的，毕竟这里是美国，尽管福奇脖子上挂好了死刑的锁链，还是要接受法律的审判。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2103240_e4ef71a788452c6b22e50923ea565e45-scaled.jpg)单伟建 / 图源：网路
+PAG对七哥的缠讼官司，也是纽约法院做出的判决，通过对Cahill律所的conflict行为提出的质疑而赢了这场荒唐的自始至终都是在污蔑七哥的官司。记得七哥很早的时候说过，只要顺着查这些官司背后的钱，一切都可以查清，因为无论是什么毛报假案说GTV欺诈，还是马蕊，还有很多假票据假证据事件，背后的钱一看，都是共产党的特务单伟建或者吴征给的钱，就连那些砸郭伪类灭爆小组都是吴征给钱。到底这些人是不是共产党派来的，一目了然。但是，毕竟美国法庭是一个讲证据的地方，如果开始追究证据的真假，那好了，中计了，共产党就是要让你累死在这些奔波中，对你进行超限战。西方美国社会，从来是就事论事，一件官司当然要看的是证据，查人也必须要拿证据出来。这次纽约法院采取了查人，并且就是显而易见的，共产党明明知道这个律所就是有conflict嫌疑，依然毫不掩饰明目张胆地为非作歹，这事儿换在习近平身上你看看是什么下场，他马上会把人抓起来杀了。美国有法律，法庭这次的判决是考虑了郭先生的建议的，从钱和人的从属关系上来捋顺思路，毕竟无论PAG还是文贵先生，这俩都是中国人，俩中国人打官司让美国法官来判决，一定要考虑中国因素，就是共产党作为邪教组织的某些特点，秘密结社和编造邪说，秘密结社的行为就是进行卧底，编造邪说就是造假票据假证据。其实在美国社会也是这样，很多美国大学入学都要要有推荐信的，推荐人非常重要，被推荐的人起码不能一夜之间就翻脸，相反，被推荐人会非常珍视与推荐人的交往。之所以班农先生在蛇妖砸郭之后那么生气，就是因为蛇妖翻脸比翻书还快，上过班农的节目，相当于班农先生担保过她，但她一点不珍惜。相信这次官司是中西文化的一次大碰撞，因为大家都一定会发现，原来无论东方还是西方，我们都很珍视彼此之间的交流，我们都痛恨一夜翻脸，我们都想要维护法律的公正和公平，我们都想对事不对人。直接后果就是谁都会非常迫切地要灭掉共产党。
 
-my colleagues here on Capitol Hill are starting to catch up what
-我在国会山的议员同事们开始跟上了
-
-what the American people have known all along
-美国人民一直都知道的
-
-none of us trusted Fauci
-我们都不信任福奇
-
-And that’s why I introduced the Fire Fauci Act early early last year
-这就是为什么我在去年初介绍了《解雇福奇法案》
-
-because this is the man that is at the root of all of our problems
-因为这个人是我们所有问题的根源
-
-But I’d like to walk back even a little further
-但我还想往回走得更远一点
-
-Steve, I’m going to go ahead and say this
-史蒂夫，我要继续将这个说下去
-
-and it’s been upsetting to me ever since it happened
-自从病毒发生以来，我一直很不安
-
-But when we shut our country down
-但是当我们关闭我们的国家时
-
-when we shut it down to so called slow the spread
-当我们关闭国家以所谓的减缓传播时
-
-I knew we broke America. We broke our country
-我知道我们破坏了美国，我们破坏了我们的国家
-
-When that happened, we stopped the supply chain
-发生这种情况时，我们停止了供应链
-
-We, you know, factories whose machines stay up running 24 hours a day had to shut down
-我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
-
-people went home and that is really what broke our country
-人们回家了，而且这真的是我们国家崩溃的原因
-
-and now it’s going to take a very long time to get back on track
-现在需要很长时间才能回到正轨
-
-And the biggest problem is, is we have people here in Washington
-最大的问题是，我们在华盛顿这里的人
-
-that are serving global interests or are interested in helping the great reset happen
-为全球利益服务或有兴趣帮助大重置的发生
-
-and are not serving the American people
-并且不为美国人民服务
-
-Inflation is very scary and it’s getting out of control.
-通货膨胀非常可怕，而且正在失控
-
-When the Fed is going to have to step in and raise interest rates
-当美联储将不得不介入并提高利率时
-
-We have long term problem that will not end by next year
-我们有长期的问题，明年不会结束
-
-they’re not going to end it two years
-他们不会在两年内结束它
-
-Here’s here’s the real issue when the cost of producing goods has increased so much
-当生产商品的成本增加如此之多时，这才是真正的问题
-
-and then the ability to provide the goods to the consumer are completely disrupted
-然后将商品提供给消费者的能力被完全破坏
-
-We have stagflation, but we also have real problems
-我们有滞胀，但我们也有真正的问题
-
-The biggest problem driving the cost of producing goods is several factors
-推动商品生产成本的最大问题是几个因素
-
-One of them is this mass COVID testing
-其中之一就是这种大规模的COVID测试
-
-mass COVID testing is continuing the panic in this in the society
-大规模的COVID测试正在继续在社会中引起恐慌
-
-and but it’s also giving people a reason to get out of work.
-但病毒也造成了人们失业
-
-You know what if you have a positive COVID test, whether you’re sick or not
-你知道如果你的COVID测试呈阳性，无论您你是否生病
-
-you have to stay home, and that means
-你必须待在家里，而且这意味着
-
-that it’s more expensive for the company to continue producing the goods or services that they provide
-公司继续生产他们提供的商品或服务的成本会更高
-
-because they less have less people there at work
-因为他们工作的人少了
-
-And then you have less people to unload the train, unload the cargo, put it back on the shelf
-然后你就没有多少人来卸火车，卸货物，把它放回货架上
-
-I mean, we have so many serious problems
-我的意思是，我们有很多严重的问题
-
-and we can point it all at one man that is Dr. Fauci
-我们可以把这一切都指向一个人，那就是福奇博士
-
-Dr. Fauci is responsible for all of this, he created the gain of function
-福奇博士对此负一切责任，他创造了功能增强研究
-
-He gave it to China, they created the bio weapon
-并把它给了中共，中共创造了生物武器
-
-which is COVID-19 and it broke the world
-这就是COVID-19，它破坏了世界
-
-but our government and anyone that goes along with this
-但如果我们的政府和任何工作人员
-
-and doesn’t fire Fauci, investigate him, prosecute him
-不去解雇福奇，调查他，起诉他
-
-and hold him accountable is failing the American people
-追究他的责任，那就是辜负美国人民
+壬寅是水年，水旁边一个去是念做法，法律不是来，永远都是去。所以共产党装神弄鬼搞什么零容忍假反腐，和西方真正的法律行动，孰假孰真，一眼就明。
 
 * * *
 
-Date:01/15/2022
-原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
-玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
-原视频日期：2022/01/15
-原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
-任务编号：KE350（3492）
-视频时间段 : 0:00-2:44
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作： 洛杉矶盘古农场 – 天涯行
-审片： 洛杉矶盘古农场 – 银龙
-发布： 洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
