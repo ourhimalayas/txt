@@ -2,34 +2,26 @@
 ---
 
 
-## 金正恩本月第四次发射疑似弹道导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870281/)
+## COVID-19 最新情报｜法国会通过疫苗通行证法案 禁止未接种者进出公共场所
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1870357/)
 
-#### 撰稿：彩虹 
+**撰文｜疫情关注组 / 发布时间｜17/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-1.jpg)图片来源：CNN
-1月17日，据《国会山报》和《新闻极限》报道，周一，韩国和日本的官员说,朝鲜向海里发射了至少一枚疑似弹道导弹，这是朝鲜本月第四次发射武器。
+法国国民议会周日（16日）批准多项政府提出的最新防疫措施，其中包括最令当地民众反感的疫苗通行证。
 
-韩国参谋长联席会议没有立即说明该不明武器是否为弹道导弹或告知其飞行距离。日本首相办公室说，它探测到朝鲜可能发射了弹道导弹，但没有立即提供更多细节。
+国会以215票赞成，58票反对，通过以疫苗通行证取代健康通行证的法案，要求全国 16 岁及以上人士须持疫苗接种证明，方可进出当地的餐馆、电影院、博物馆、火车站等公共场所，仅新冠病毒康复者可豁免。
 
-日本海岸警卫队发表声明，敦促在日本海岸附近行驶的船只注意坠落物，但没有关于船只或飞机立即受损的报道。
+另外，法案还特别提高使用伪冒通行证的罚款，并允许身份审查以避免欺诈。巴黎和部分主要城市的民众集结，发起多场示威抗议，反对政府及国会推行该项法案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/法國會通過疫苗通行證法案-禁止未接種者進出公共場所.jpg)
+就在该法案通过的前一日（15日），法国政府刚刚宣布推出新规定，成年人必须完成第三剂COVID-19 疫苗加强剂的注射才可获得有效的疫苗接种证明。
 
-据报道，在这次发射之前，朝鲜在1月5日和1月11日进行了两次据称是高超音速导弹的飞行试验，并于周五从一辆火车上试射了弹道导弹。
+法国总统马克龙（Emmanuel Macron）1月4日受访时曾表示，“但对于那些尚未接种疫苗的人，我真的想『惹恼』他们。所以我们（政府）会继续这样做直至结束。这是策略。”
 
-在发射前几天，美国财政部制裁了五名朝鲜人，称他们负责为平壤的弹道导弹计划采购货物，拜登总统呼吁联合国安理会将这些朝鲜个人和实体列入黑名单，此举被这个独裁国家称为“挑衅”。
+“我不会（把未接种疫苗的人）送进监狱，我不会强制（要求）接种疫苗。所以我们需要告诉他们，从1月15日起，你（不打针的话）不能再去餐厅、咖啡店、戏院等公共场所了”。
 
-一些专家说，朝鲜领导人金正恩正在重新使用一种常胜不败的技俩，即在进行谈判以取得让步之前，先用导弹发射和令人愤怒的威胁来向美国和该地区的邻国施压。
-
-文章认为，在川普政府拒绝了朝鲜以交出部分核能力作为条件，交换重大制裁减免要求后，由美国主导的旨在说服朝鲜放弃其核武器计划的外交努力于2019年宣告失败。
-
-此后，尽管该国的经济在与中共病毒（COVID-19）疫情有关的边境关闭和美国主导的持续制裁中遭受了重大挫折，但金正恩发誓进一步扩大核武库，因为他显然认为这是自己生存的最有力保障。
-
-**新闻来源**
-
-[North Korea reportedly fires missile in fourth test this month](https://thehill.com/policy/international/asia-pacific/589974-north-korea-reportedly-fires-missile-in-fourth-test-this)
-
-[N.Korea Fires Unidentified Projectile](https://www.newsmax.com/world/globaltalk/projectile/2022/01/16/id/1052648/)
+来源｜[Euronews](https://www.euronews.com/2022/01/15/france-requirement-for-triple-vaccination-covid-pass-begins) 、[Axios](https://www.axios.com/french-parliament-approves-covid-vaccine-pass-25d84133-d5af-4ddd-b8ce-ac2842c81f43.html)
 
  
 

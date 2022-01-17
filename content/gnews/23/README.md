@@ -2,26 +2,24 @@
 ---
 
 
-## 彭佩奥：种族灭绝奥运会是对习近平的“奖励”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870266/)
+## 微软称乌克兰政府机构的计算机系统被感染了恶意软件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870343/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-15.jpg)图片来源：国家评论
-1月16日，《新闻极限》报道前国务卿迈克·彭佩奥（Mike Pompeo）接受WABC 770 am-N.Y. 的“凯胜圆桌会议”（ The Cats Roundtable）采访时说，（北京）种族灭绝奥运会是对习近平的奖励。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-2.jpg)图片来源：印度时报
+1月16日，《国会山报》报道，周六，微软宣布，与乌克兰政府、机构和组织有关的几十个计算机系统被感染了恶意软件。
 
-他说：“我们现在正在一个国家举行奥运会，这个国家目前正把100万或更多的人关在营地里，看起来有点像20世纪30年代德国发生的事情，他们强迫妇女绝育，把她们从家里带走。这就是我们要把运动员送到的地方，一个监控的国家，一个正在进行种族屠杀的国家。我曾说过这是‘种族灭绝奥运会’”。
+微软在一份声明中说，最初在周四检测到的恶意软件被伪装成勒索软件，但如果被攻击者激活，就会感染计算机并使其无法操作使用。声明说，在“几十个受影响的系统上检测到该恶意软件，随着我们调查的继续，这个数字可能会增加。这些系统横跨多个政府、非营利组织和信息技术组织，全部位于乌克兰”。
 
-蓬佩奥对允许中共国在2月份举办冬奥会感到遗憾，说这是对中共习近平的“奖励”。
+据官员称，周五，“一场大规模网络攻击”攻破了一些乌克兰政府网站，导致一些机构网站被暂时关闭。据报道，黑客写下的信息包括“害怕吧，会更糟糕”和 “有关你的所有信息都已公开，害怕吧，会更糟糕”。
 
-他告诉主持人约翰‧卡西马蒂斯（John Catsimatidis）：这样的一个监控国家，会捕捉到我们每个运动员在那里的每一句话以及他们所做的一切，我祈祷这个监控国家不会带走一个美国人，并且在这些比赛结束后能够让他们全部回家”。
-
-蓬佩奥警告说，运动员们应该说出他们的想法，但“当他们在中国境内时，他们需要非常小心”。
+对于黑客组织的来源，文章报道，乌克兰国家和国防委员会副秘书谢尔盖·德米杜克（Serhiy Demedyuk）告诉《路透社》，乌克兰方面认为一个与白俄罗斯情报部门有关的黑客组织是破坏政府网站和利用恶意软件的幕后黑手，初步认为是一个名为UNC1151的组织参与了这次黑客行动。
 
 **新闻来源**
 
-[Pompeo Warns of China’s ‘Surveillance State’ at ‘Genocide Olympics’](https://www.newsmax.com/newsfront/winterolympics-mikepompeo-genocide-beijing/2022/01/16/id/1052632/)
+[Ukraine government agencies’ computer systems infected with malware, Microsoft says](https://thehill.com/policy/cybersecurity/589934-ukraine-government-agencies-computer-systems-infected-with-malware)
 
  
 
