@@ -2,37 +2,161 @@
 ---
 
 
-## 01/17每日播报｜“奥米炕”现身北京 中共出台新政策严控进京人员
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1870824/)
+## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61e52f30a0fd8e5c735ac593)**
+Marjorie Taylor Greene (the U.S. representative of Georgia)
+玛乔丽·泰勒·格林 (美国佐治亚州众议员）
 
-**[2022-01-17](https://gtv.org/broadcast/watch/61e52f30a0fd8e5c735ac594)**
+I’m just happy to see that that the media and you know
+我很高兴看到媒体和你知道
 
-《路透社》北京1月16日报道，中共官方媒体周日宣布，自2022年1月22日零时起至3月底，抵达北京的旅客必须在72小时内进行中共病毒检测。此前，北京已经要求入境旅客在离境48小时内进行病毒检测，并在该市的健康跟踪应用程序上使用绿色代码。
+my colleagues here on Capitol Hill are starting to catch up what
+我在国会山的议员同事们开始跟上了
 
-上周六，北京报告了首例奥米炕病毒感染病例，而北京正准备下个月举办的冬奥会。据称，该患者在过去14天里曾经去过多家商场和餐馆。此人自今年年初以来就没有离开过这座城市。
+what the American people have known all along
+美国人民一直都知道的
 
-据中共国卫健委发布的数据显示，1月15日全国新增确诊中共病毒病例为119例，新增本地感染病例分别在天津、河南、北京、广东和陕西。
+none of us trusted Fauci
+我们都不信任福奇
 
-然而，各个城市实施的严酷封锁措施，也进一步削弱了正在放缓的经济增长。1月5日，凯投宏观(Capital Economics)首席亚洲经济学家马克•威廉姆斯(Mark Williams)在一份报告中表示，高传染性“奥米炕”的出现加上更频繁的防控措施，会造成更多的经济损失。
+And that’s why I introduced the Fire Fauci Act early early last year
+这就是为什么我在去年初介绍了《解雇福奇法案》
 
-报道指出，北京市的一些宗教场所已经对游客关闭。位于北京市中心的藏传佛教寺院雍和宫周日表示，由于中共病毒疫情和防控措施，该寺庙将关闭一段时间，具体开放时间不详。
+because this is the man that is at the root of all of our problems
+因为这个人是我们所有问题的根源
 
-一些北京务工人员担心因为“奥米炕”事件的封城措施，会在农历新年假期中被困在城市里而提前回家。
+But I’d like to walk back even a little further
+但我还想往回走得更远一点
 
-周日，在北京友谊医院外，人们在寒风中排队几个小时，等待中共病毒检测。
+Steve, I’m going to go ahead and say this
+史蒂夫，我要继续将这个说下去
 
-截至目前，中共国没有透露总共发现了多少“奥米炕”病毒感染病例。
+and it’s been upsetting to me ever since it happened
+自从病毒发生以来，我一直很不安
 
-（ 秘翻主编  冰糖葫芦喵编译报道 ）
+But when we shut our country down
+但是当我们关闭我们的国家时
 
-发布:星星
+when we shut it down to so called slow the spread
+当我们关闭国家以所谓的减缓传播时
+
+I knew we broke America. We broke our country
+我知道我们破坏了美国，我们破坏了我们的国家
+
+When that happened, we stopped the supply chain
+发生这种情况时，我们停止了供应链
+
+We, you know, factories whose machines stay up running 24 hours a day had to shut down
+我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
+
+people went home and that is really what broke our country
+人们回家了，而且这真的是我们国家崩溃的原因
+
+and now it’s going to take a very long time to get back on track
+现在需要很长时间才能回到正轨
+
+And the biggest problem is, is we have people here in Washington
+最大的问题是，我们在华盛顿这里的人
+
+that are serving global interests or are interested in helping the great reset happen
+为全球利益服务或有兴趣帮助大重置的发生
+
+and are not serving the American people
+并且不为美国人民服务
+
+Inflation is very scary and it’s getting out of control.
+通货膨胀非常可怕，而且正在失控
+
+When the Fed is going to have to step in and raise interest rates
+当美联储将不得不介入并提高利率时
+
+We have long term problem that will not end by next year
+我们有长期的问题，明年不会结束
+
+they’re not going to end it two years
+他们不会在两年内结束它
+
+Here’s here’s the real issue when the cost of producing goods has increased so much
+当生产商品的成本增加如此之多时，这才是真正的问题
+
+and then the ability to provide the goods to the consumer are completely disrupted
+然后将商品提供给消费者的能力被完全破坏
+
+We have stagflation, but we also have real problems
+我们有滞胀，但我们也有真正的问题
+
+The biggest problem driving the cost of producing goods is several factors
+推动商品生产成本的最大问题是几个因素
+
+One of them is this mass COVID testing
+其中之一就是这种大规模的COVID测试
+
+mass COVID testing is continuing the panic in this in the society
+大规模的COVID测试正在继续在社会中引起恐慌
+
+and but it’s also giving people a reason to get out of work.
+但病毒也造成了人们失业
+
+You know what if you have a positive COVID test, whether you’re sick or not
+你知道如果你的COVID测试呈阳性，无论您你是否生病
+
+you have to stay home, and that means
+你必须待在家里，而且这意味着
+
+that it’s more expensive for the company to continue producing the goods or services that they provide
+公司继续生产他们提供的商品或服务的成本会更高
+
+because they less have less people there at work
+因为他们工作的人少了
+
+And then you have less people to unload the train, unload the cargo, put it back on the shelf
+然后你就没有多少人来卸火车，卸货物，把它放回货架上
+
+I mean, we have so many serious problems
+我的意思是，我们有很多严重的问题
+
+and we can point it all at one man that is Dr. Fauci
+我们可以把这一切都指向一个人，那就是福奇博士
+
+Dr. Fauci is responsible for all of this, he created the gain of function
+福奇博士对此负一切责任，他创造了功能增强研究
+
+He gave it to China, they created the bio weapon
+并把它给了中共，中共创造了生物武器
+
+which is COVID-19 and it broke the world
+这就是COVID-19，它破坏了世界
+
+but our government and anyone that goes along with this
+但如果我们的政府和任何工作人员
+
+and doesn’t fire Fauci, investigate him, prosecute him
+不去解雇福奇，调查他，起诉他
+
+and hold him accountable is failing the American people
+追究他的责任，那就是辜负美国人民
 
 * * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+Date:01/15/2022
+原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
+玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+原视频日期：2022/01/15
+原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
+任务编号：KE350（3492）
+视频时间段 : 0:00-2:44
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作： 洛杉矶盘古农场 – 天涯行
+审片： 洛杉矶盘古农场 – 银龙
+发布： 洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

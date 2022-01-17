@@ -2,32 +2,25 @@
 ---
 
 
-## 中印边境紧张局势仍在持续
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871576/)
+## 疫苗将导致严重的神经系统性伤害
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871701/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月16日盖特信息，印度媒体报道，印中正在举行第14轮高级军事指挥官级别的会谈，其目的是解决两国在拉达克东部的摩擦。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.02.png)
-报道称，印度期待建设性对话，能够促进争议问题有所进展，并坚持要求在拉达克东部地区的局势降级，特别是在德布桑和德姆查尔等地，大规模军事集结仍在进行。在2020年达拉克黄金谷的冲突中，双方均有数人丧生。印度陆军总司令马诺伊·纳拉瓦内表示，战争永远是最后的手段，但如果需要，印度将从冲突中取得胜利。
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-2.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=bhTeYc%2bs&amp;id=FD3C92789B4E16E2B7B98DF4F744E64C4FC7A00B&amp;thid=OIF.T0JfqPhWUDNabMAF%2f3w95Q&amp;mediaurl=https%3a%2f%2fwww.hetnieuwsmaardananders.nl%2fwp-content%2fuploads%2f2022%2f01%2fcovid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-dr-stephanie-seneff-videos.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.6e14de61cfacbad1ef104759041c7b79%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=750&amp;expw=1200&amp;q=COVID+Shots+Could+Cause+%e2%80%98Crippling%e2%80%99+Neurodegenerative+Disease+in+Young+People%2c+MIT+Scientist+Warns&amp;simid=163635863728&amp;FORM=IRPRST&amp;ck=4F425FA8F85650335A6CC005FF7C3DE5&amp;selectedIndex=5&amp;ajaxhist=0&amp;ajaxserp=0)
 
-截至目前，印中之间已经举行了13轮会谈，但是，双方都未能在会谈中取得任何进展。去年10月10日举行的第13轮会谈，因中共不同意印度的要求，双方会晤在僵持中结束。虽然双方在很多热点地区已经不再对峙，但两国之间的紧张局势仍在持续。
+据媒体 [美国信仰] 1月15日报道，麻省理工学院计算机科学和人工智能实验室高级科学塞内夫博士当天在福克斯新闻中指出：“新冠病毒”疫苗将导致年轻人患上神经衰退性等疾病的严重后果。
 
-参考链接：[https://gettr.com/post/pola092406](https://gettr.com/post/pola092406)
+报道称，塞内夫博士对疫苗造成的以上疾病做了大量研究并得出结论：mRNA疫苗和DNA载体疫苗，通过刺突蛋白中所含的朊病毒发生作用，而引发包括帕金森病、慢性肾病、阿茨海默氏症等神经系统性疾病。这将导致在未来几年内，年轻人群体中出现越来越高的相关患病率。但由于发生疾病与疫苗接种有很长时间间隔，因次人们不会知道患病的罪魁祸首就是之前接种的疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+此外，该博士还认为，年轻人死于病毒感染的风险极低，当局让他们接种疫苗则毫无医学根据。而且从长远来看，反复的加强针对健康的伤害是毁灭性的。并斥责道：但唯一从人们的不幸中牟取巨额利润的是各大疫苗制造商和相关医药公司以及与其紧密合作的当权政府。
 
-总编：Jack Li文阳
-编辑：Delilah小胖
-校正/发稿：呼吸的雾霾（文小呼吸）
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发稿： 苦尽甜来 (文來）
+
+[原文链接](https://americanfaith.com/covid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-mit-scientist-warns/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,38 @@
 ---
 
 
-## 科顿参议员呼吁美国全面抵制中共冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871578/)
+## 有声|日本新增病例暴增 政府缩短隔离时间应对
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1871792/)
 
-作者：纽约香草山 Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月16日，郭文贵先生在盖特转发汤姆·科顿参议员的电视采访。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.17.png)
-汤姆·科顿是阿肯色州的参议员，他一直主张美国全面抵制中共冬奥会。在访问中，他指出，中共的隔离手段令人震惊——全天候的电子监控、DNA信息被采集、公然的拘留或绑架——这些都对美国运动员的安全造成威胁。据美国奥委会所言，运动员若被检测出中共病毒呈阳性，就会被隔离，而被隔离时间由中共卫生官员决定。
+配音：香草山健身部 – 玫瑰园
 
-当下，美国运动员所面临的风险又增加了一项：假设一个未染疫的健康运动员，因违反中共极为严酷的封锁政策而被中共逮捕，美国政府不可能真正保证美国运动员的安全。
 
-因此，科顿议员呼吁，从一开始就不该把美国年轻运动员置于这些危险之中，美国政府应该全面抵制中共冬奥会，以保证美国运动员的安全。由于奥米克戎疫情蔓延，应当像东京奥运会一样，把冬奥会延期一年。并且，冬奥会应该被重新竞标，在其它安全、自由和民主之地召开。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月14号，日本东京单日新增感染人数继续攀升，自去年8月以来首次突破4000人。其中，接种两剂疫苗后，依旧感染中共病毒的人数最多，几乎占据总感染人数的50%。只接种一针疫苗的感染人数约占30%，而未接种的人群表现最好，仅占染病总数的20%。
 
-参考链接：[https://gettr.com/post/pont4fc6b3](https://gettr.com/post/pont4fc6b3)
+根据日本厚生劳动省公布的数据，最先接种且两剂接种率超过90%的70岁以上人群，与未接种前同期数据相比，死亡率升高了近2%。
 
+而为了解决由于新增病例暴增，人手短缺的问题，日本政府将密切接触者的隔离期由以往的14天，降低至10天，甚至在隔离6天后检测呈阴性就解除隔离。同时针对那些密切接触病患的医疗工作者，厚生劳动省颁布新规，工作人员每日上岗前检测呈阴性便可以上岗，不用遵从密切接触者的隔离期规定。
+
+文字版原文：[日本新增病例暴增 政府缩短隔离时间应对](https://gnews.org/zh-hans/1867381/)
+
+音频处理：Tom Li
+发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

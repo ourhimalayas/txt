@@ -2,32 +2,30 @@
 ---
 
 
-## MIT科学家警告 中共病毒疫苗可致长期副作用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871584/)
+## 法院停止部分防疫通行证的使用…包括首尔市区的“商店，超市和百货店”
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1871805/)
 
-作者：纽约香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月16日盖特信息，美国麻省理工学院科学家斯蒂芬妮·森内夫博士近期接受美国媒体采访，她警告称，中共病毒疫苗在人体内产生类似朊病毒的刺突蛋白，将诱发神经退化性疾病。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.23.png)
-森内夫博士解释了，中共病毒疫苗可导致长期副作用的致病机理是，疫苗内的纳米颗粒使人体迅速产生大量免疫细胞，最终进入脾脏并产生大量的刺突蛋白。而脾脏内的生发中心实际上就是帕金森病等神经退化疾病生成的中心地带。这样的致病机制已经在帕金森病的研究中被证实。这些有毒的刺突蛋白会从脾脏被分泌出来，并沿着迷走神经运送到大脑。
+韩国首尔天池农场
+翻译：恩真
+校对：鱼子酱
+上传：QCFM
 
-森内夫博士强调，给年轻人接种疫苗根本没有任何好处，他们死于中共病毒的风险非常低，重复接种疫苗更加有害。父母应尽一切所能，避免为儿童接种疫苗。
+继补习班，自习室 等 学习场所之后， 法院决定，部分其他公共场所也停止使用以接种证名和阴性诊断书为标准的“防疫通行证”。
 
-参考链接：[https://gettr.com/post/pon4qxd151](https://gettr.com/post/pon4qxd151)
+首尔行政法院今天接受了岭南大学医学院教授赵斗亨（音译）等1000多人提交的停止执行防疫通行证的申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+因此，首尔市长3日宣布的包括超市和百货店等适用于17种场合的防疫通行证的使用暂停至一审判决之日起的30天后。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+此外，针对12-18岁人群的扩大防疫措施也从本案判决之日起的30天内停止生效。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+但是，法院驳回或拒绝了原告的另外一部分申请，餐厅和咖啡厅等其他场地依旧维持现在防疫通行证的使用。
+
+此前，申请人曾为餐厅，咖啡馆，室内运动设施，网咖和图书馆，电影院，3千平方以上的超市和百货店等9种公共使用的场所提出了停止使用防疫通行证的申请。
+
+[참고링크](https://www.youtube.com/watch?v=1K8W6V9Cl5A)
+
+면책 성명: 이 글은 저자의 개인적 견해만을 대변하는 내용이며, 플랫폼은 어떠한 법적 위험도 감수하지 않는다.
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

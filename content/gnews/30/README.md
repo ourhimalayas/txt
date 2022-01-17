@@ -2,35 +2,32 @@
 ---
 
 
-## 美国弹道导弹核潜舰罕见现身关岛
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1871460/)
+## MIT科学家警告 中共病毒疫苗可致长期副作用
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871584/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月16日盖特信息，美国麻省理工学院科学家斯蒂芬妮·森内夫博士近期接受美国媒体采访，她警告称，中共病毒疫苗在人体内产生类似朊病毒的刺突蛋白，将诱发神经退化性疾病。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.23.png)
+森内夫博士解释了，中共病毒疫苗可导致长期副作用的致病机理是，疫苗内的纳米颗粒使人体迅速产生大量免疫细胞，最终进入脾脏并产生大量的刺突蛋白。而脾脏内的生发中心实际上就是帕金森病等神经退化疾病生成的中心地带。这样的致病机制已经在帕金森病的研究中被证实。这些有毒的刺突蛋白会从脾脏被分泌出来，并沿着迷走神经运送到大脑。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/94703B76-AD1D-48B3-A046-C0B7B714972F.jpeg)（图片来自twitter.com/USNavy）
+森内夫博士强调，给年轻人接种疫苗根本没有任何好处，他们死于中共病毒的风险非常低，重复接种疫苗更加有害。父母应尽一切所能，避免为儿童接种疫苗。
 
-美国有线电视新闻网（CNN）1月17日报导，美国海军最强大武器之一弹道导弹潜舰上周罕见停靠关岛。在目前台海局势不稳、朝鲜频繁射弹之际，美军此举显然意在向盟友和敌人发出明确讯息。
+参考链接：[https://gettr.com/post/pon4qxd151](https://gettr.com/post/pon4qxd151)
 
-据报道，1月15日，搭载20枚三叉戟弹道导弹和数十枚核弹头的俄亥俄级核动力潜舰内华达号（USS Nevada）驶入美国关岛海军基地。这是2016年以来弹道导弹潜舰首度访问关岛，也是1980年代至今的第2次公开访问。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-海军透过声明表示，本次港口访问旨在加强美国与区域盟友的合作，同时展现美国的战力、灵活度、反应力，以及对印太区域安全与稳定的持续承诺。
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-对此，分析人士认为，随着台海情势导致美中关系紧绷，加上朝鲜加大导弹测试力度，华盛顿以利用弹道导弹潜舰，向中共国和朝鲜展现的强硬态度。
-
-退役美国潜舰舰长、现任新美国安全中心（Center for a New American Security）分析师许卡特（Thomas Shugart）则表示，美国此举旨在传达一个讯息：“无论有意或无意，我们都可以在你家门口放置100多枚核弹头，而你根本不会知道，就算知道也无能为力”，作为对手的中共国等却无法做到同样的事情。
-
-据悉，现阶段朝鲜的弹道导弹潜舰计划才刚起步。而中共国方面，与美国海军相比，中共国據估計6艘此類潛艦也是相形見絀。
-
-*参考链接： [台海緊張北韓射彈 美彈道飛彈核潛艦罕見現關島](https://www.cna.com.tw/news/aopl/202201170285.aspx)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

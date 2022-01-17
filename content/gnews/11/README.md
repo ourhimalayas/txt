@@ -2,26 +2,24 @@
 ---
 
 
-## 美国加州治安恶化亚马逊包裹频遭洗劫
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871790/)
+## Facebook因涉嫌剥削英国用户面临巨额诉讼
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871929/)
 
-采编撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-4.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=w%2fVrk3lG&amp;id=1C61E1AED94933E800352CEA401D2295792D4476&amp;thid=OIF.m6yVfLrdml%2fLECikTcCI3A&amp;mediaurl=https%3a%2f%2fwww.milenio.com%2fuploads%2fmedia%2f2022%2f01%2f14%2flos-saqueos-de-los-vagones.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.c3f56b937946c83219854a63a9c28f35%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=747&amp;expw=1200&amp;q=Thousands+of+packages+looted+as+thieves+rob+L.A.+bound+trains&amp;simid=163677440029&amp;FORM=IRPRST&amp;ck=9BAC957CBADD9A5FCB1028A44DC088DC&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
+采编：风云小哥          编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-4.jpg)
+据美国媒体【布赖特巴特网】1月14日报道，[Facebook]公司因涉嫌长期剥削其英国用户而面临巨额诉讼。
 
-据美国媒体《Sara Carter》1月14日报道，加利福利亚州目前的社会治安持续恶化，包括亚马逊和UPS在内的大量快递包裹，近期在运输途中被当众洗劫。同时，火车盗窃案也呈上升之势。
+报道称，这项集体诉讼是由专门研究竞争法的[格尔姆森]博士联合当地著名律师事务所共同发起，并代表4400万名英国用户向脸书提出32亿美元的巨额索赔。
 
-据悉，明目张胆的盗贼们会在货运列车进入洛杉矶市中心的联运站点时，利用列车减速机会撬开集装箱并盗取其中的财物。而贴有住家地址标签的包裹，通常因货品更具价值而受到窃贼的青睐。
+据悉，在该指控中提出，虽然用户是免费使用Facebook，但他们向该社交媒体平台提供的个人信息是有价值的，而Facebook却无偿获取了这些个人数据并将其任意贩卖获利。
 
-报道称，日渐猖獗的货运盗窃行径导致了大量民众最终无法收到他们的网购商品，而政府当局对此无动于衷的漠然表现，则进一步助长了此类犯罪案情的失控蔓延。
-
-
+此外，[Facebook]不仅严重违反竞争法通过互联网恣意窃取其用户的私人信息，而且还滥用其媒体公信力和言论支配力，并因此对广大普通用户施加各种不公平条款，而最终使该平台能利用客户的个人数据牟取暴利。
 
 校对编辑：硫酸羟氯喹64
 
 发稿： 苦尽甜来 (文來）
 
-[原文链接](https://saraacarter.com/video-thousands-of-packages-looted-as-thieves-rob-l-a-bound-trains/)
+[原文链接](https://www.breitbart.com/tech/2022/01/14/facebook-facing-3-2-billion-class-action-lawsuit-over-treatment-of-uk-users/)
 
  
 
