@@ -66,35 +66,35 @@
 ### [有声|网球名将未接种疫苗被取消签证 无法如期参赛](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [爆料革命依法灭共,让中国人享有安全、公平和尊严](/content/gnews/18/README.md)
+### [有声|丹麦指控来自中共国间谍威胁升高](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [爆料革命依法灭共,让中国人享有安全、公平和尊严](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022年1月17日郭先生大直播 文字同步精要](/content/gnews/19/README.md)
+### [2022年1月17日郭先生大直播 文字同步精要](/content/gnews/20/README.md)
  ` 焦點20分`
 
-### [北京发现奥密克戎病毒感染者，加深了冬奥会的不确定性](/content/gnews/20/README.md)
+### [北京发现奥密克戎病毒感染者，加深了冬奥会的不确定性](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|感染过新冠病毒的男子阴茎缩短了1.5英寸](/content/gnews/21/README.md)
+### [有声|感染过新冠病毒的男子阴茎缩短了1.5英寸](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [秘翻在线 :又一位接种过疫苗的足球明星因心肌炎无法出赛](/content/gnews/22/README.md)
+### [秘翻在线 :又一位接种过疫苗的足球明星因心肌炎无法出赛](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联盟工作汇报文字版2022.1.16](/content/gnews/23/README.md)
+### [联盟工作汇报文字版2022.1.16](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|英国卫生部长表示将于本月取消疫苗护照](/content/gnews/24/README.md)
+### [有声|英国卫生部长表示将于本月取消疫苗护照](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [奥地利民众持续抗争 超半民众反对强制接种](/content/gnews/25/README.md)
+### [奥地利民众持续抗争 超半民众反对强制接种](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [美国及世界疫情简报（01-16-2022）](/content/gnews/26/README.md)
+### [美国及世界疫情简报（01-16-2022）](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
-
-### [【粤语配音】2022年1月12日：共產黨放毒共享財富的招](/content/gnews/27/README.md)
- ` MOS香港部`
 
 ### [有声|通用电气公司停止为员工接种新冠疫苗](/content/gnews/28/README.md)
  ` MOSREC`
