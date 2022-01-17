@@ -15,77 +15,77 @@
 
 ---
 
-### [七哥爆彭帅真实内幕(一)](/content/gnews/1/README.md)
+### [东京10岁以下感染病例迅速增加，引发学校集团感染的担忧](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥爆彭帅真实内幕(二)](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了](/content/gnews/2/README.md)
+### [七哥爆彭帅真实内幕(一)](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|美两党议员提案应对中共垄断稀土资源](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥爆彭帅真实内幕（三）](/content/gnews/3/README.md)
+### [七哥爆彭帅真实内幕（三）](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/4/README.md)
+### [有声|爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [七哥谈彭帅视频时间（二）](/content/gnews/5/README.md)
+### [七哥谈彭帅视频时间（二）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻在线】哈萨克斯坦的血腥抗议活动的死亡人数又被更新](/content/gnews/6/README.md)
+### [【秘翻在线】哈萨克斯坦的血腥抗议活动的死亡人数又被更新](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜交所为何对投资者后续入金HDO进行审查？](/content/gnews/7/README.md)
+### [喜交所为何对投资者后续入金HDO进行审查？](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|Facebook母公司因利用用户数据在英国被起诉](/content/gnews/8/README.md)
+### [有声|Facebook母公司因利用用户数据在英国被起诉](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [文贵先生盖特精要 2022/01/16](/content/gnews/9/README.md)
+### [文贵先生盖特精要 2022/01/16](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（二）](/content/gnews/10/README.md)
+### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（二）](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [1/16/2022 文贵盖特：所有的电视认罪都是假的，一切细节都是共产党安排的](/content/gnews/11/README.md)
+### [1/16/2022 文贵盖特：所有的电视认罪都是假的，一切细节都是共产党安排的](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（一）](/content/gnews/12/README.md)
+### [中国的军人中，一定会有无数个曼斯坦因和无数个隆美尔（一）](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”](/content/gnews/13/README.md)
+### [吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”](/content/gnews/16/README.md)
  ` xiaobaige`
 
-### [最黑暗的时代，中国人民面临大凶与大幸的选择](/content/gnews/14/README.md)
+### [最黑暗的时代，中国人民面临大凶与大幸的选择](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [为什么要消灭网红（一）](/content/gnews/15/README.md)
+### [为什么要消灭网红（一）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [为什么要消灭网红（三）](/content/gnews/16/README.md)
+### [为什么要消灭网红（三）](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [澳洲人站起来了](/content/gnews/17/README.md)
+### [澳洲人站起来了](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [为什么要消灭网红（二）](/content/gnews/18/README.md)
+### [为什么要消灭网红（二）](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [七哥引蛇出洞的意义（二）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [有声|丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/20/README.md)
+### [有声|丹麦、荷兰宣布外交抵制北京冬奥会](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|美国务院报告称，中共南海索权不符国际法规定](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [七哥谈彭帅视频事件(一)](/content/gnews/22/README.md)
+### [七哥谈彭帅视频事件(一)](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球疫情更新（全民“疫苗”接种诱发的疫情？）](/content/gnews/23/README.md)
+### [全球疫情更新（全民“疫苗”接种诱发的疫情？）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
-
-### [缅因州医生因使用伊维菌素治疗COVID患者被吊销医疗执照](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线: 又一上市公司受恒大牵连巨亏18亿](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`

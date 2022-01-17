@@ -2,36 +2,25 @@
 ---
 
 
-## 有声|美国务院报告称，中共南海索权不符国际法规定
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1868941/)
+## 为什么要消灭网红（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1868980/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-7.png)
-1月12日，美国国务院发布《海洋界限》分析报告，称中共国在南海的广泛海洋主张，不符合1982年联合国海洋法公约所反映的国际规范，驳回了中共的主张。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-此前，中共一直声称对淹没在海平面以下的百余个岛礁拥有主权，并拥有其领海，还划定直线基线，将东沙群岛、西沙群岛、中沙群岛和南沙群岛等4个岛群全部划入。
+基于以上绝对的网络和绝对的思想控制，和资源控制让老百姓准备好当牛做马的，远离时尚和物质生活的时代和不可控的因素全部要干掉。为什么要关掉外教，内教呢？外教教的什么？教的英文。那内教教的是什么？教的是所有的这些所谓的有钱有身份的孩子，最后习觉得这帮人绝对是我们的威胁。
 
-原文链接：[美国务院报告称，中共南海索权不符国际法规定](https://gnews.org/zh-hans/1866191/)
+这些钱都会流向海外的，绝对的控制财富让中国人不要学英文，更不传西教。 不要培养这种反抗的种子，更不允许。这些人成为我党绝对思想统一的障碍, 干掉。第3种，大家看到所有这些富豪，网络科技统统要都灭掉。为什么财富统一，思想统一，技术统一，最后在习一神不能有习二神的情况下。像北朝鲜一样。中国只有一个救星，没有第2个救星，只有一个习大大彭麻麻, 没有什么阿里的什么杰克马，马爹爹马爸爸，不存在什么马化腾，腾爸爸。
 
-音频处理/发稿：Daxia
+不存在还有什么教父柳传志，还有什么泰山会，还有什么民生教父董文标， 中国叫流氓大亨史玉柱。中国房地产大佬，什么许家印。中国酒店大佬，万达王健林，都叫大字儿的统统灭了。中国只有一大一爹一妈，哪有第二，只要有第二都不能存在。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/为什么要消灭网红（二）-.jpg)
+发布：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
