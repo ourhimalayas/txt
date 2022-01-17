@@ -2,132 +2,71 @@
 ---
 
 
-## 中共利用美国媒体HBO-Vice记者IsobelYeung的报道来攻击新中国联邦和爆料革命，而共产党确是最大的邪教组织
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1870955/)
+## 灭共第十五夜 病毒溯源记—真相演绎
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1870973/)
 
-[https://gtv.org/video/id=61e40efa87664c47acd56c8a](https://gtv.org/video/id=61e40efa87664c47acd56c8a)
+**作者：小鬼**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/934b0997203b929a7e5d15123244b6e8.jpeg)
+让我们把时间追溯到2019年末，武汉P4实验室溜出了一个黑影，黑影携带着一个潘多拉的盒子来到武汉华南海鲜批发市场，随着黑影将潘多拉盒子的开启，一场悄无声息的生化战开始在中共国蔓延，很快又遍布世界各地。
 
-**郭文贵
-Miles Guo**
+李文亮是武汉市中心医院的眼科医生，2019年12月30日，他在同学群中发了一条关于华南海鲜市场确诊了7例SARS的消息。随后他又发消息称确定了该病例为冠状病毒感染，他告诫同学先不要转发消息，可是很快网上就遍布了这些消息。
 
-你们一定要认识到邪教组织的本质是什么
-You must realize what the essence of a cult is
+12月31日，武汉市卫健委与监察科约谈李文亮，李文亮按要求写下一份报告《不实消息外传的反思与自我批评》。2020年1月3日，当地派出所让李文亮签署训诫书，承认自己是8名“造谣”者中的一人。医疗防护的缺失导致了李文亮在1月10日感染了新冠病毒。1月19日，新型冠状病毒感染病例新增59例。1月20日，新增77例。当天中共当局发文承认武汉确实有疫情。1月23号上午10点武汉封城。2月7日凌晨，李文亮医生去世。
 
-主控制，精神控制，聚敛钱财，反社会
-Master Control, Mind Control, Gather Money, Anti-Society
+黑影遣回P4实验室，向中共303和106生化部队的总参保卫部领导**一神**汇报“姓李的‘吹哨人’已除，接下去还需要做什么工作？”
 
-记住反社会啊，精神控制，主控制就是教主
-Remember Anti-Society, Mind Control, Master Control is the cult leader
+一神说道“奖励他一个名头，好平息民怨，照顾并且看管好他的家人，不要随处散步不利于我党的谣言。最重要的，要尽快抹除病毒的来源”
 
-然后就是精神控制，还编造邪说，就是Q组织
-Then there is the Mind Control, and also make up heresy, it’s like Q organization
+黑影道“人造病毒的事实最终是藏不住的，最后一定要推向美国，不过在这之前，小的建议先把公众的视线引向自然界，多做点混淆视听的新闻出来。”
 
-邪教组织6条，看看啊，七哥的原稿啊，没加编辑
-Here are 6 rules for the Cult, take a look, Miles’ original manuscript, without editing
+一神说道“这次的生化战程度确实不是2003年的SARS可以比较的，果子狸可以再次利用，先从广东人吃野味入手”。
 
-邪教组织六大特征是什么？教主崇拜：你们有教主崇拜吗？
-What are the six characteristics of the cult? Leader worship: do you have a cult leader to worship?
+黑影道“诺，马上就去安排。小的还有几个提议”。
 
-所以说以后不要老说爱七哥了
-So don’t keep saying that you love Miles in the future
+一神说道“讲”。
 
-精神控制：我控制你们了吗？
-Mind Control: am I controlling You?
+黑影道“建议武汉封城，把案发现场清理一下，随后安排世卫进来检查，封住世界各国人的嘴。香港那群学生，还有美国那边是否也开始行动？”。
 
-编造邪说：咱编造有一个能证明的吗？
-Fabrication heresy: can you prove that we fabricate one?
+一神说道“武汉那边，我会安排钟南山院士去处理。其他照计划执行吧！切记，多布迷雾”
 
-聚敛钱财、秘密结社：咱秘密结社了吗？
-Gathering money, secret associations: did we have secret associations?
+黑影允诺，匆匆离去。
 
-咱都是公开直播，咱有秘密结社吗？咱聚敛过谁的钱财？
-We are all live broadcast publicly, whose money did we collect?
+诗 曰
 
-告诉我哪一个不是在法律范围内？
-Tell me which investment is not within the law?
+中共病毒 武汉伊始
 
-对抗社会：如果什么叫邪教组织
-against society: what is the cult organization
+哀我文亮 有言难诉
 
-这上面一条，毛泽东教主崇拜，精神控制：穿蓝衣服，白衣服
-The above one is the leader worship of Mao Zedong, mind control: wear blue clothes, white clothes
+中共控媒 掩而不报
 
-爹亲娘亲不如党亲，东方红太阳升，中国出了个毛泽东，万岁万岁万万岁
-Father and mother are not as good as Chinese Communist Party, the sun rises in the east, there is a Mao Zedong in China, long live, long live, long long live
+民无防备 染疫百万
 
-编造邪说，共产党说抗日，共产党说拯救了56个少数民族
-Made up heresy, the Communist Party said it was anti-Japanese, and it saved 56 ethnic minorities
+傀儡南山 涕零相告
 
-56个少数民族认为毛泽东是太阳，只有没有共产党就没有新中国
-56 ethnic minorities believe that Mao Zedong is the sun, and there will be no new China without the Communist Party
+病毒难控 上启中共
 
-这是不是编造邪说，这多了去了，是吧
-Is this a fabrication of heresy? It’s too much, right?
+一神下令 即刻封城
 
-聚敛钱财，把中国的土地打地主分田地
-Gather money, rob and plunder the landowners’ land in China
+千万百姓 困于家中
 
-秘密结社，共产党在1913年以前完全属于外来组织，早该杀，早该抓
-Secret associations, the Communist Party was a completely foreign organization before 1913, it should have been killed and arrested at that time
+菜价高涨 救济全无
 
-对抗社会，所有中国人网络控制，新疆大屠杀，56个民族快被它灭了
-Against the society, Internet control for all Chinese people, Xinjiang massacre, 56 ethnic minorities are about to be wiped out by it
+官宣日报 篇篇向好
 
-制造假的组织，所谓人大代表，你说哪个不是共产党啊
-Create a fake organization, the so-called deputies to the National People’s Congress, which NPC representative do you think is not a Communist Party member?
+匆匆黑影 往返于室
 
-这今天对照哪个不是共产党啊，这六条，但凡有点脑子的人你们告诉我
-These six rules are applicable to the Communist Party. Anyone who has a little brain please tell me
+病毒溯源 迷雾重重
 
-如果这六条你不说哪个是共产党，我这是刚刚发给他，我昨天跟外国人开几个小会
-which one is not about the Communist Party, I just sent it to him, I held a few small meetings with foreigners yesterday
+参考链接：
 
-我说你们知道什么叫中国的cult邪教组织吗, 他们不知道
-I said do you know what a Chinese cult organization is？They don’t know
+**[健康的社会不应只有一种声音。——李文亮](https://chinadigitaltimes.net/space/CDS专页：李文亮)**
 
-我说我告诉你们，哇塞，他们说太险恶了吧
-I said I’m telling you, wow, they said it’s too vicious
+[习近平对新型冠状病毒感染的肺炎疫情作出重要指示](http://www.gov.cn/xinwen/2020-01/20/content_5471057.htm)
 
-这就是共产党要把我们所有的反共的都定为邪教组织
-This is why the Communist Party wants to designate all our anti-communist parties as cults
 
-这六条适合每个人，班农，Tucker, Maria, 还有Joe Rogan
-These six rules suit for everyone, Bannon, Tucker, Maria, and Joe Rogan
 
-全属于歪门邪说，精神控制，然后班农聚敛钱财
-It’s all heresy, mind control, and then Bannon gathering the money
-
-Isobel Yeung给所有中国人定义就是这六个特征，但是反过来说了
-Isobel Yeung defines all Chinese as these six criteria, but the other way around
-
-但凡有点不是猪脑袋的人，你都会知道，共产党符合这六条邪说的所有
-Anyone who is not a pig’s head will know that the Communist Party fits all of these six rules
-
-可怕不可怕呀，这就是邪恶的邪教的特征
-How terrible is, this is the hallmark of an evil cult
-
-你们要大胆的说出去什么叫邪教
-You have to be bold and say what a cult is
-
-* * *
-
-Date: 01/14/2022
-原视频标题: 中共利用美国媒体HBO-Vice记者IsobelYeung的报道来攻击新中国联邦和爆料革命，而共产党确是最大的邪教组织
-The CCP used the reports of the American media HBO-Vice reporter Isobel Yeung to attack the New Federal State of China and the Whistleblower Movement, and the CCP is indeed the largest cult organization
-原视频日期：2022/01/12
-原视频链接 [**https://gettr.com/post/po2phj2ed0**](https://gettr.com/post/po2phj2ed0)
-任务编号：KC315（3478）
-视频时间段 : 0:00-2:44
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：Barry Jack
+上传排版：F
 
  
 

@@ -2,25 +2,26 @@
 ---
 
 
-## 文贵先生揭穿HBO女记者及背后势力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1871014/)
+## 拜习会的宗旨是要美国为习近平六中全会背书
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1871066/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
+##### 整理：雅典娜速记组
+编辑：玉米地守望者
+![](https://assets.gnews.org/wp-content/uploads/2022/01/拜习会_01.jpg)
+现在说到六中全会之后，你看到六中全会就能搞清十个坚持，你有一点脑子啊，你都应该在中国说实话，回到乡下老家去挖个洞，准备好能活下去啊，雨是真的，与兽为伴，比与人为伴还活着就行了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵先生揭穿HBO女记者及背后势力-.jpeg)
+这话说多了去了啊，拜习会的宗旨．是要美国为所有的习近平六中全会背书，用美国人吓唬中国人。让中国人信服跟随啊。
 
+然后底下桌子拿出中国老百姓上千亿的所谓买的美国国债，包括着各种让步。然后说，我要打台湾啊，然后打台湾的故事会继续讲下去啊。这就是真正的共产党欺骗老百姓。
 
-破产法庭的房子，6500万，加上管理费800万，说郭文贵的话不可信有暴力倾向是邪教。我是一个骗钱的这都是2017年PAG案子，我不欠他钱。担保的公司、 419断播、通缉令、太平联盟这种，欠我的钱有理，这管辖更本没有理由，从没让我上法庭说一句话。PAG官司不允许我处理，就像这次到盘古把我爹撵出去，VICE把我定位暴力分子。他们同时行动，找了一个数据中心。郭文贵影响有多大？有很大！他们最害怕郭文贵被公开信息。最大黑客攻击，说我有巨大影响力。比如大卫有能力就是坏人？夏叶良的案子，吴征付钱的强奸案子……所有这些正常的一概不说，不正常的总说，说小斯基打人。从冬天到秋天这女记者不可能一个人完成采访，她背后肯定有团队，内部怎么采访郭文贵，你一个记者不可能实现。带来了这么多恐惧把我拍成黑社会暴力分子。我们爆料革命第一个揭露全人类面临病毒，香港运动、东奥会。它不提我们法治基金，这么多事不提，完全不提，SEC没有任何东西，都是和解，螃蟹证明我们是骗子, 像没毛的豆豆一样诬陷我们。她选择这个时间，冬奥会时机爆出，说我郭三秒 郭三邪，外国媒体机乎都是华人记者，短短时间安排进入美联社。
+*发布：玉米地守望者*
 
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
