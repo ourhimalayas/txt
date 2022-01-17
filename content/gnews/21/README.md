@@ -2,32 +2,161 @@
 ---
 
 
-## 当人们习惯了账号被封锁
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1870986/)
+## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
 
-文：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Tellfjwhyyougotblockedbyausermine_daf7e2_6878791.png)图源：网路
-记得很早以前七哥的社交媒体账号被封了以后，很多人惋惜不已。毕竟那时候看来，在社交媒体的规则之下，随意封禁用户的账号对于那个时候的世界来说，根本就是无法接受的事情。虽然在中共国的大家已经习惯了这种暴力封禁，共产党就是一党专政独裁体制，做出这种事情来是极有可能的，并且言论审查是形成了完整的操作规章制度的，什么行为应该封号，封几天，触犯到哪一条会被永久封锁，几乎是有相当详细的指南。依稀记得当时的大V叫作业本的，他的号时间最长的封锁长达2个月，2个月之后他还是被放出来了，那个时候根本没有什么永久封锁这一说。2个月都让网友惊讶无比，并且看样子开始演化成社会性事件了。中共中央就算再不懂互联网也知道言论自由是一把剑，用不好就把自己给刺死了。
+Marjorie Taylor Greene (the U.S. representative of Georgia)
+玛乔丽·泰勒·格林 (美国佐治亚州众议员）
 
-也不过十年而已，十年之间美酒可以变纯酿，小姑娘可以变成大姑娘，也可以让温水里的青蛙慢慢死去。你看今天但凡被封一个账号，并且是永久封禁，有人搭理你吗？七哥那时候和美国的很多朋友都说过，今天发生在我身上的事情（账号被封），也许以后会发生在你们任何人身上，那时候记得还是那句经典的“不可能的，Miles”。川普总统的账号后来被封了，紧接着，无论民主党人还是共和党人，无论左派还是右派，只要你提到新冠疫苗的不良反应，Twitter不管你是多大的腕儿，Joe Rogan够大牌了吧，将近一千万粉丝的大V，该封就封，照封不误。并且他对Malone的关于新冠疫苗的采访，被各处下架，只能在gettr上看到。大科技公司的权利无法无天，这是技术带给人的枷锁，但并不是技术本身，而是利用技术的人，所以最终还是人和人之间的巨大分歧。毕竟有的人可以只手遮天，用如此先进的手段把他人置于死地，毫无还手能力。在前几年，可以说，大科技公司们吃尽了甜头，社交媒体成为增长最快的新科技企业。
+I’m just happy to see that that the media and you know
+我很高兴看到媒体和你知道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/161072329072923800_a700x398.jpg)互联网监狱 / 图源：网路
+my colleagues here on Capitol Hill are starting to catch up what
+我在国会山的议员同事们开始跟上了
 
-大科技公司们，比如扎克伯格的公司，之前有过一次大规模宕机，总部的服务器被断了，然后很多社交APP都中断使用了几个小时。七哥爆料说共产党不敢这么干，哈哈，好怂啊，当然了，毕竟扎克伯格是外国人公司。好比共产党最近要对GTV、Gnews采取行动，但是不敢动gettr一样，gettr是在美国注册的公司。资本主义的特点是得有钱赚，永远得有钱赚，共产党就利用资本主义的这点贪婪，把很多大科技公司都捏得紧紧的。最近将近冬奥会了，共产党下令YouTube关闭一切中国人开的账号，不仅仅只是爆料革命的账号，还有很多伪类的的账号，共产党要挟说不关掉的话就让YouTube在中国大陆永远不被看到，像GTV一样。YouTube非常害怕失去中国的这部分市场，目前应该在加紧这方面的工作吧。YouTube和扎克伯格的公司是非常明显的例子，只要可以勾兑利益，威胁性的动作一次也不会做，无论是共产党还是大科技公司，他们从来不会把彼此置于将死之地，一个是不敢，毕竟这次做了，就留下借口了，下回想要合作的话就很难谈拢，要退让很多步，那岂不是自己给自己找抽嘛，所以共产党不敢去把扎克伯格的服务器宕机，YouTube步敢违抗共产党要求封号的命令，毕竟，现在他们还是一条绳子上的蚂蚱，命运共同体，只要有人受伤，肯定会影响到自身。
+what the American people have known all along
+美国人民一直都知道的
 
-这是进行超限战的基础。一个贪婪，一个邪恶，一对狼狈为奸，在没达到彼此的目的之前，永远都是低声下气跪在对方面前。一拖再拖，很多事情就慢慢开始消磨人的意志，阻断人们的感觉神经。人们习惯好东西，同样也能习惯坏东西，犹如我们在很多年前看到有人被封号会觉得很惊讶一样，现在我们已经见怪不怪了。慢慢习惯一件事情以后，人们会变得更加接受邪恶，甚至还患上斯德哥尔摩综合症，不断地维护罪犯，甚至成为帮凶。一个人不是一夜之间成为帮凶的，那些在长长的日子里，一步一步走向邪恶，每次都做足了心理上的自我安慰，杀第一个人是失误，杀第二个人是应该，杀第三个人成为必须，再往后根本不会有负罪感了，甚至到最后习惯了这种屠戮，并不是因为有什么乐趣，也不是因为有什么快感，完完全全就是随机杀人行为。温水里被煮的青蛙，其实很多都是知道那个水温在慢慢升高的，处在一个巨大危机之中，周围却还是谈笑风生的青蛙，社会变态也不过如此，当一个青蛙要从烫水里要跳出来时，还会有拼命把他拉着不让跳，继续把他拉下烫水的同类。
+none of us trusted Fauci
+我们都不信任福奇
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/images-5.jpg)精神病医院 / 图源：网路
+And that’s why I introduced the Fire Fauci Act early early last year
+这就是为什么我在去年初介绍了《解雇福奇法案》
 
-在如今这个社交媒体变得越来越重要的社会，每个人的发声和交流，不仅仅是个人情感的要求。以前很流行的网友视频聊天是第一步，第二步线下碰面，可以从一个城市到另一个城市只为了和网友见面，看看这个电脑显示频后面的真人是否是和网上一样，如果人们可以仅限于网路交流，那就不必有线下，不必有面对面的三维沟通，但是众所周知，有些人的立体三位感觉和在平面2D的屏幕上通过网路传输过来是完全不同的，甚至是完全相反的。如今AI技术，3D技术正在积极实现这种差异，但是这些还是无法做到人类的实质性接触，比如性交。虽然技术的发展可以为人类情感交流提供一切工具，但绝对不是大科技公司的随意控制，互联网留下的珍贵数据，在账号被删以后，什么都没有了。人类需要自由地发出自己的声音，而不是在目前情况下被迫习惯被删除的一段人生。
+because this is the man that is at the root of all of our problems
+因为这个人是我们所有问题的根源
+
+But I’d like to walk back even a little further
+但我还想往回走得更远一点
+
+Steve, I’m going to go ahead and say this
+史蒂夫，我要继续将这个说下去
+
+and it’s been upsetting to me ever since it happened
+自从病毒发生以来，我一直很不安
+
+But when we shut our country down
+但是当我们关闭我们的国家时
+
+when we shut it down to so called slow the spread
+当我们关闭国家以所谓的减缓传播时
+
+I knew we broke America. We broke our country
+我知道我们破坏了美国，我们破坏了我们的国家
+
+When that happened, we stopped the supply chain
+发生这种情况时，我们停止了供应链
+
+We, you know, factories whose machines stay up running 24 hours a day had to shut down
+我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
+
+people went home and that is really what broke our country
+人们回家了，而且这真的是我们国家崩溃的原因
+
+and now it’s going to take a very long time to get back on track
+现在需要很长时间才能回到正轨
+
+And the biggest problem is, is we have people here in Washington
+最大的问题是，我们在华盛顿这里的人
+
+that are serving global interests or are interested in helping the great reset happen
+为全球利益服务或有兴趣帮助大重置的发生
+
+and are not serving the American people
+并且不为美国人民服务
+
+Inflation is very scary and it’s getting out of control.
+通货膨胀非常可怕，而且正在失控
+
+When the Fed is going to have to step in and raise interest rates
+当美联储将不得不介入并提高利率时
+
+We have long term problem that will not end by next year
+我们有长期的问题，明年不会结束
+
+they’re not going to end it two years
+他们不会在两年内结束它
+
+Here’s here’s the real issue when the cost of producing goods has increased so much
+当生产商品的成本增加如此之多时，这才是真正的问题
+
+and then the ability to provide the goods to the consumer are completely disrupted
+然后将商品提供给消费者的能力被完全破坏
+
+We have stagflation, but we also have real problems
+我们有滞胀，但我们也有真正的问题
+
+The biggest problem driving the cost of producing goods is several factors
+推动商品生产成本的最大问题是几个因素
+
+One of them is this mass COVID testing
+其中之一就是这种大规模的COVID测试
+
+mass COVID testing is continuing the panic in this in the society
+大规模的COVID测试正在继续在社会中引起恐慌
+
+and but it’s also giving people a reason to get out of work.
+但病毒也造成了人们失业
+
+You know what if you have a positive COVID test, whether you’re sick or not
+你知道如果你的COVID测试呈阳性，无论您你是否生病
+
+you have to stay home, and that means
+你必须待在家里，而且这意味着
+
+that it’s more expensive for the company to continue producing the goods or services that they provide
+公司继续生产他们提供的商品或服务的成本会更高
+
+because they less have less people there at work
+因为他们工作的人少了
+
+And then you have less people to unload the train, unload the cargo, put it back on the shelf
+然后你就没有多少人来卸火车，卸货物，把它放回货架上
+
+I mean, we have so many serious problems
+我的意思是，我们有很多严重的问题
+
+and we can point it all at one man that is Dr. Fauci
+我们可以把这一切都指向一个人，那就是福奇博士
+
+Dr. Fauci is responsible for all of this, he created the gain of function
+福奇博士对此负一切责任，他创造了功能增强研究
+
+He gave it to China, they created the bio weapon
+并把它给了中共，中共创造了生物武器
+
+which is COVID-19 and it broke the world
+这就是COVID-19，它破坏了世界
+
+but our government and anyone that goes along with this
+但如果我们的政府和任何工作人员
+
+and doesn’t fire Fauci, investigate him, prosecute him
+不去解雇福奇，调查他，起诉他
+
+and hold him accountable is failing the American people
+追究他的责任，那就是辜负美国人民
 
 * * *
 
-作者：骄子
-发布：骄子
+Date:01/15/2022
+原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
+玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+原视频日期：2022/01/15
+原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
+任务编号：KE350（3492）
+视频时间段 : 0:00-2:44
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作： 洛杉矶盘古农场 – 天涯行
+审片： 洛杉矶盘古农场 – 银龙
+发布： 洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
