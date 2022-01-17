@@ -2,38 +2,26 @@
 ---
 
 
-## 反新冠疫苗游行再次席卷全澳
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870305/)
+## 新州卫生局证实近千名工人因拒绝接种新冠疫苗后被免职
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870328/)
 
 翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-148.png)图片来自网络
-澳媒《9 News》近日报道，今天，悉尼和墨尔本的抗议者走上街头，反对新冠疫苗接种和网球明星诺瓦克·德约科维奇的签证第二次被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-53.jpg)图片来自网络
+澳媒《7 News》近日报道，澳大利亚新南威尔士州卫生局已确认其近 1000 名员工在拒绝接种新冠疫苗后已被停职或辞职。
 
-与此同时，该国有近 2000 万人完全接种了新冠疫苗。
+就在州长多米尼克·佩罗特宣布该州的医护人员接受加强针注射的新任务几天后，卫生部门承认已有 325 名工作人员辞职，670 名被停职。
 
-由于数千人游行反对为儿童接种新冠疫苗，悉尼警方关闭了 CBD 的部分地区。
+“截至 2021 年 12 月 23 日，新南威尔士州卫生部可以告知，在其约 170000 名全体员工中，约有 0.2%（325 人）因新冠疫苗接种问题而辞职，”新南威尔士州卫生部发言人说。
 
-人群从阿尔弗雷德王子公园蜿蜒到海德公园。
+“此外，由于他们在新冠疫苗方面的立场，现在约有 670 人（0.4%）停止了在新南威尔士州卫生部门的工作。”
 
-德约科维奇的支持者也在其中。
+“这些前职工包括临床和非临床员工。”
 
-德约科维奇在周日上午 9 点 30 分在法庭上对第二次取消签证提出上诉之前，今天在墨尔本被移民拘留。
-
-在墨尔本，抗议者积极表达对这位塞尔维亚运动员的声援。
-
-这次游行叫“反对澳洲公开赛的疯狂”，示威者要求德约科维奇被允许参赛，停止新冠强制措施和“结束医疗隔离”。
-
-此前，移民部长亚历克斯霍克将德约科维奇描述为“反新冠疫苗接种情绪的护身符”，并可能引发内乱。
-
-现在，近 2000 万澳大利亚人至少接种了两剂新冠疫苗，几乎占总人口的 80%。
-
-将近五百万18岁以上人士打了第三针新冠疫苗。
-
-这次疫情再次爆发是澳洲政府的原因，澳洲政府放开所有防疫措施，号召大家不要怕病毒，把所有的宝都压在新冠疫苗身上，鼓励大家圣诞聚会，旅游。而新冠疫苗早已经被证明对疫情防控完全无效，所以整个澳洲才暴增那么多病例。而又因为因为病例激增，造成供应链断裂，超市物品短缺，药品短缺，测试纸买不到，必要行业人员不足等一系列社会问题。所以人们才纷纷站出来游行，而这一切都是澳洲政府自己造成的。
+阳性病人自我隔离七天后可以工作，而没打新冠疫苗的阴性病人却要辞退，这到底是什么逻辑？而且新冠疫苗不阻隔传播，只是降低重症率，这是目前官方的说法吧？那么问题来了，这些医护人员只是让自己的风险更大（重症的可能性），也并不会导致传播更严重，有何不可呢？这不正是，该给的自由（在不太影响整体利益的前提下决定自己选择哪种风险去承担）不给，该遵守的规则（影响整体利益而且大多数人赞成），比如戴口罩，却又不能强力执行。所以澳洲政府这又是哪门子逻辑呢？
 
 参考链接：
 
-[https://www.9news.com.au/national/coronavirus-national-update-anti-vax-protesters-march-in-sydney-and-melbourne-amid-almost-20-million-double-dose-target/129b4d56-eca1-48d0-832f-a85c856c1c75](https://www.9news.com.au/national/coronavirus-national-update-anti-vax-protesters-march-in-sydney-and-melbourne-amid-almost-20-million-double-dose-target/129b4d56-eca1-48d0-832f-a85c856c1c75)
+[https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105](https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 

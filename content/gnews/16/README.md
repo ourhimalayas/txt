@@ -2,55 +2,98 @@
 ---
 
 
-## 西藏 喜马拉雅 新疆 台湾
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870226/)
+## 辉瑞公司遭受到美国历史上最大的刑事罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1870228/)
 
-#### 整理：雅典娜速记组
-编辑：Frank2021
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西藏-喜马拉雅-新疆-台湾（一）-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/西藏-喜马拉雅-新疆-台湾（二）-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/西藏-喜马拉雅-新疆-台湾（三）-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/西藏-喜马拉雅-新疆-台湾（四）-.jpg)
-说到西藏的时候刚才我问你们，我说西藏有多少人口 ?
+#### 翻译：Lish
+校对：枳实
+剪辑/字幕：蛮吉
 
-西藏350万（人口）。事实上西藏人口大概420万左右，官方叫350万，在联合国里边是认可375万。我是看过安全部的数据的，当时是2014年，420万。
+**字幕文本（英汉对照）**
 
-西藏是汉人人口是最少的，就占了不到5%。新疆已经从过去的0.5%已经占到了30%到40%。就是新疆的 渗透是很夸张的，就是各种政策要新疆移民。那么西藏的人口看出来大概90%几都是佛教徒。那么这西 藏最重要的事情别忘了全亚洲的86%甚至到90%的水来自于喜马拉雅。就来自于我们追求的喜马拉雅目 标。水和阳光是让我相信我们是有主人的。后来知道地球是圆的，地球还在天上老转悠，坐地日行8万里，而且春夏秋冬不改变，我觉得更是有主人的。
+But the primary function of the drug companies is to make money for their investors. And we’ve got to get over the illusion that they’re somehow their purpose is to serve our health. That purpose is to make money.
 
-让我们生命存在的根本就是阳光和水。为什么亚洲的水80%来自喜马拉雅？后来我知道这个喜马拉雅原 来是不仅是水的原汁地，喜马拉雅任何地壳的变动，地球都会出现周期性的，就不是坐地日行8万里， 也可能是80万里，也可能是就8里，就直接就完蛋了。
+药物公司的主要功能是为其投资者赚钱。我们必须克服这样的幻想，以为他们的目标是为我们的健康服务。他们的目的是为了赚钱。
 
-而且所有历史上人类的不要说万年的人类，几十万年百万年亿万年的地球，发现喜马拉雅它是有很重要的故事。这就是为什么美国电影《2012》最后1分钟拯救人类是在喜马拉雅登上去的。 **喜马拉雅就是人类的诺亚方舟**。
+We’ve talked before about Pfizer, and what was the one drug where they had the largest settlement ever with the largest penalty ever
 
-水、地，神秘的力量，特别是大家记住，由于喜马拉雅高，整个太平洋的这个水蒸发的气，它当过不来，才导致中国将近1/4的土地，甘肃、广西全是沙漠。如果那个气能过来的话，整个中国西部它是富饶的土地。
+我们以前谈到过辉瑞公司。他们有史以来最大的和解和最大的处罚的一种药物是什么？
 
-这是为什么欧洲这个国家太小，但是农业发展，文明很早，国家在人口太少，它不能战争，它凝聚不 起来，这是有欧元有欧盟的原因，共同的国防，共同的货币，共同的没有边界，它国家太小了，放个 屁直接放人家国家去了，它只能是把边界打开啊。而且由于它的气候问题，它上面这个整个大西洋的 气候，蒸发呀，气呀，就是耕作物反应特别快啊，所以说它才有丰富的农作物，但是喜马拉雅得把它 整个的横开，但是横开之后，你不要忘了一个最可怕就是喜马拉雅整个山脉，上万个山脉，它解决了 整个亚洲占全世界的GDP将近30%,美国占了世界50%多。一个美国和亚洲已经占了80%几的GDP了，非洲，其他南美洲就是给很少的。美欧亚就是人类的90%以上的总文明农作物、GDP。
+Pfizer,it was Bextra, an arthritis drug?
 
-那么你一旦亚洲要没有了这个喜马拉雅，一下子完了，最重要的是整个中国所有的战争来自于北部。 从过去的新疆北部就是俄罗斯人。中国的西部对中国没有任何危害，它跨不过来喜马拉雅就是一个东 南部的印度。而西部是中国整个国家的大屏障，为什么美国这个国家太牛了？美国国家全都是海、海、 洋、大西洋啊？太平洋，你说这有多牛？跨2个洋。你看人家的地图，没邻居。剩下的墨西哥和加 拿大的邻居加拿大就是小弟，墨西哥让你干啥你干啥啊，就搞点非法移民，放点毒也没什么了不起的。
+是辉瑞公司的Bextra，一种关节炎药物？
 
-这就是美国这个国家，它战略位置，它有海有水有沙漠有山有平地，而且有夏威夷，而且不管是这个 拉斯维加斯，还是你到这个夏威夷还是你到了阿拉斯加，这个美国的都是无尽的金属、石油、土壤。 所以这个美国的国家太伟大了。
+And what did they do
 
-中国呢，北边俄罗斯、北朝鲜、韩国，印度、日本。这些国家哪个不想收拾？
+他们干了什么？
 
-所以说共产党就搞明白了，我一定要把台湾弄过来，我弄过来还要东大门，就是整个我对着大西洋就 去了。然后呢台湾东半岛全变成军事基地，西半岛全变成生产科技基地。所以日本紧张了，安倍紧张啊，台湾拿下来日本就没有任何作战余地了。我打你的时候还手你得给个距离是吧，这中国功夫什么 左劈腿右劈腿脱衣裳，你得有作战空间呐，它没有作战空间了你知道吗？所以说这种情况下，你看到 整个西藏，你才知道对一旦西藏西大门被拿下，共产党完了。中国完了。
+So I can’t tell you I know. But I can’t tell you. I spent about 10 years a little more than 10 years in litigation as an expert in the national drug cases.
 
-新疆是西北，阿赛拜疆。所有那些国家都是过去中国，包括外蒙啊，那些地方构不成中国的威胁，他 只是俄罗斯。
+我知道，但我不能告诉你。我花了大约10年多一点的时间，作为国家药品案件诉讼中的专家。
 
-你要想到这是多可怕呀。西藏要独立了，整个中国的水没了，和中国的最多的木头的地方没了。
+And when I served as an as an expert, I got to see all the documents I did that for in the case of Pfizer, Pfizer’s behavior was, in my opinion, so outrageous, that I picked up the phone and call the Department of Justice, and said, I know a lot about this drug.
 
-而且是居高临下，就像一个人撒尿看那个尿盆一样。因为西藏是站着呢是吧，中国大陆怎么是个盆地, 就是尿盆儿，是不是你尿都尿死你了是吧？发导弹的时候都不用发自由弧线都给你打到北京去了，要 到上海去了是吧，打上去直接就下来了啊。一旦西藏要是要是成为战略用地，彻底完了。
+当我作为专家服务于毒品案件诉讼时，我能够看到了所有的文件，我经历了辉瑞公司的案例时，我看了也看了所有的案卷资料，辉瑞公司的行为，在我看来，是如此的离谱，以至于我直接拿起电话，打电话给司法部说：“我对这种药物了解很多。”
 
-西藏独立法。西藏不是要自治啊，别搞错了啊，人家要求是支持他独立。叫独立法。猫本小哥说得特别好，中国共产党和美国之间勾兑就是虚上海公报，支持你一个中国，这已经根本就别提了，没有这 一个说了，他最夸张的是直击要害。西藏的战略位置绝不亚于台湾。
+But I can’t tell you because I’ve signed a confidentiality agreement as an expert. So the Department of Justice in the FBI sent me a subpoena and said, You must come with your computer and tell us what they did wrong.
 
-这不是开半点玩笑的。新疆一定要求独立。新疆和西藏一旦独立，印度、阿塞拜疆、俄罗斯、白俄罗斯，所有这些国家都是中国的威胁。
+但我不能告诉你，因为我已经签署了作为专家的保密协议。所以联邦调查局的司法部门给我发了一张传票，上面说：“你必须带着你的电脑来，告诉我们他们做错了什么。”
 
-连北朝鲜都不会再寂寞了，包括这个整个朝鲜半岛，特别是韩国，这些国家一定给你掰扯了，但整个 中国就是3/4的领域已经成为了危险之地，剩下的台湾你能让你拿走，你拿不走，这是绝对致命的。 美国这次立法之快，通过之快，两党制协调一致，直击之要害。
+And I did. Six months later, I read in the newspaper that the Department of Justice had found the company had committed a felony. And they were dealt the largest fine in US history, the largest criminal fine in US history. So I know what happened. But I can’t tell you,
 
-兄弟姐妹们，我可以告诉你，任何懂得国际政治、国际地缘政治和地缘军事的人，你都要知道，这绝对这件事情对中国对中国共产党这是**噩耗中的噩耗**。
+而我照做了。六个月后，我在报纸上看到，司法部发现该公司犯了刑事重罪。他们受到了美国历史上最大的罚款，这是美国历史上最大的刑事罚款。所以我知道发生了什么。但我无法告诉你。
 
-发布：Frank2021
+you can’t tell me because of the confidentiality
+
+你不能告诉我，因为保密性的问题
+
+Yeh
+
+是的
+
+Wow.
+
+哇！
+
+And it’s even more serious, because the drug companies own the data from those clinical trials, the peer reviewers, and the editors of the medical journals don’t get to see the data.
+
+而且更严重的是，因为药物公司拥有这些临床试验的数据的所有权，同行评审员和医学杂志的编辑们都没有机会看到这些数据。
+
+They have to take the word of the drug companies that they’ve presented the data accurately and reasonably completely, and you only get to see it in litigation. You know, five years later.
+
+他们必须接受药物公司的说法，相信他们已经准确和合理地完整地展示了数据，而你只有在诉讼中才能看到。你知道，通常要五年后…
+
+So the data is only held by the pharmaceutical companies, they release their analysis of the data.
+
+所以数据由制药公司独家持有，他们只公开他们自己的数据分析？
+
+Correct.
+
+正确
+
+And then the peer reviewers do everything based on the analysis of the data that was released by the pharmaceutical companies.
+
+然后同行评审员根据制药公司公开的数据分析来做评审？
+
+That’s correct.
+
+正是这样
+
+That’s insane.
+
+这真是疯了。
+
+That’s insane. And Doc’s don’t understand it. They don’t understand that they’re getting manipulated.
+
+这就是疯了。而医生们对此并不了解。他们不知道他们正在被操纵。
+
+发布：枳实
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
