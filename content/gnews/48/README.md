@@ -2,10 +2,10 @@
 ---
 
 
-## 孙立军因涉嫌受贿、操纵证券市场被提起公诉
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867508/)
+## 上海环球港因疑似疫情被关闭
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1867512/)
 
-01/13/2022 前公安部副部长孙立军因涉嫌受贿、操纵证券市场、非法持有枪支案被提起公诉。
+01/13/2022 上海环球港因疑似疫情被关闭。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

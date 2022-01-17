@@ -2,49 +2,39 @@
 ---
 
 
-## 美国由于奥米克戎大流行导致生活物资极度缺乏
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869372/)
+## 习近平呼吁加强监管，防范数字经济的“不健康”发展
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1869697/)
 
-作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16421257761.png)资料图
+来自《台湾英文新闻》网站1月15日的报道，路透上海1月15日—— 中共国家主席习近平呼吁加强对中共国数字经济的监管和治理，以防范其“不健康”的发展，因为中共政府旨在提高该行业对国家监管的贡献。
 
+周六，在执政的共产党刊物《求是》上发表的一篇文章中，习近平呼吁关注包括集成电路、显示器、通信设备和智能设备在内的关键领域。他说，中共国要“发展一批具有国际竞争力的企业，以及主导产业链的领先环保企业，打造世界级的数字产业集群”。
 
+习还呼吁进行监管和整顿，以弥补监管漏洞，防止世界第二大经济体出现“垄断和资本不受控制的扩张”。“在高速发展的过程中，我国数字经济也呈现出一些不健康、不规律的种子和趋势，不仅影响数字经济的健康发展，而且违反法律法规，对国家经济金融安全构成威胁。”他说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+中共国要完善国家安全体系，重点加强数字经济的预警和防控体系建设，以确保关键技术、重要产业和设施、战略资源和龙头企业安全。
 
+习的文章发表之前，中共国务院周三发布了数字经济发展规划，该规划旨在通过推动诸如6G和大数据中心等技术来增加该行业在中共国GDP中的份额。该规划还强调了包括关键领域创新能力不足和管理薄弱等挑战。
 
+简评：随着5G、AI、云计算等技术越来越成熟，数字经济应该跟医疗、教育、环境等领域很好的融合，正常的国家应该致力于对这些行业进行智能改进，让更多的人看得起病，上得起学，让人人都享有健康的空气、干净的水。
+然而在中共国，情况并非如此，因为中共国实际上是由少数几个家族控制的家天下，他们的数字经济首先要为中共的统治服务而非民生。在这里，海量的个人数据会被用来训练算法以加强对公众行为特征的研判。中共政权不除，中共的“天地一体、云网融合”的理念最终将会把中共国老百姓身上仅存的一点自由拿走。
 
-据1月15日最新数据显示，自奥米克戎大流行以来，劳动力短缺和飞涨的运费为加工食品和农产品公司带来新一轮的积压，导致美国各地主要零售商的货架上空空如也。
+新闻链接: [https://www.taiwannews.com.tw/en/news/4411326](https://www.taiwannews.com.tw/en/news/4411326)
 
-过去三周以来，易腐烂农产品，水果蔬菜、肉类等的运费比平时多了2-3倍，积压的农产品甚至等不到被运走。与此同时，人们常常在社交媒体抱怨各大超市新鲜食品区空空如也的货架，一些商超甚至开始限购商品。
+翻译/简评: 乡间小路
 
-据悉，美国零售商现在面临着大约12%—15%的生活物资短缺问题，而在正常情况下是7-10%。世界其他地区如澳大利亚情况也是如此。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-7.jpg)
-参考信息：
-[U.S. grocery shortages deepen as pandemic dries supplies](https://news.yahoo.com/u-grocery-shortages-deepen-pandemic-180518711.html)
+PR：Harvey（叶知秋）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+* * *
 
-总编：飞虹
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
