@@ -2,20 +2,22 @@
 ---
 
 
-## 加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1869272/)
+## 雅典娜时报-第176期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869347/)
 
-经常有人问我这样一个问题：有多少住院患者是真正因为COVID而住院的，而不是（因其他原因）住院，但同时患有COVID？这是说，有多少人住院的主要原因是COVID-19，而不是仅仅因为其他原因住进医院，之后又被诊断同时患有COVID。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-在目前住院的163名奧密克戎病毒感染者中，有66位是因为COVID而住院的，占COVID-19感染总数的40%。而在ICU的14名奧密克戎病毒感染者中，有11名是因为COVID住进ICU的，占总数的79%。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/932430313920012318/155_2.png?width=748&amp;height=1114)![圖片](https://media.discordapp.net/attachments/825592691433668612/932431019209019392/155_4.png?width=748&amp;height=1114)
+*发布：陶子*
 
-这个数据很重要，因为我们即将迎来住院人数的大幅增加，而在非ICU的住院人数中，可以预计会有很多与COVID相关的住院病人，但他们并不是直接因为COVID而住院的。
-
-素材：文倩
-翻译：文永
-字幕：文所未闻
-
-编辑/发文：Kent
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

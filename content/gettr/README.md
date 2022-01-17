@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 2:44 AM (UTC)`
+
+1/16/2022 Miles Guo’s GETTR: The CCP virus and COVID vaccines have accentuated the ugliness and evilness of the entire humanity to a great extent, pushing the world into darkness. Fellow fighters, please cherish the eternal beauty of the New Federal State of China (NFSC). We will know how great the NFSC is this time next year.<br/><br/>1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中；请战友们珍惜无限美好的新中国联邦，明年这个时候我们会知道她有多伟大<br/>
+![img](https://media.gettr.com/group24/getter/2022/01/17/02/42f37d0e-e5bc-c5a7-cdb5-cd240883d753/out.jpg)
+
+---
+
 `@miles 1/17/2022 2:26 AM (UTC)`
 
 Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of posts on Instagram with the hashtag Exterminating the Communist Party. Currently, the slogan of exterminating the Communist Party is rapidly gaining popularity in Korea.<br/><br/>韩国新世界集团副会长郑溶镇在Instagram上写了一系列带有灭共标签的帖子。目前，灭共口号在韩国迅速流行。
@@ -147,15 +154,6 @@ EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this de
 
 梅梅特-奥兹博士(美国参议员候选人)：美国人民根本不被允许接受治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗<br/><br/>Dr. Mehmet Oz (US Senate Candidate): The American people are simply not allowed to receive other therapeutic methods because they might not take the vaccines once they find out other possibilities.<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/16/00/ed555e65-d41a-bd30-62b3-a27ebeef8a83/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/15/2022 11:22 PM (UTC)`
-
-Some takeaways from the interview with #stevebannon <br/>1. the #CCPvirus exacerbated the division<br/>2. #mRNA was never to be used in a mass vaccination<br/>3. Being divided is not the worst thing <br/>4. People fighting for sovereignty are winning<br/>5. Political transformation is about to come<br/>6. Taking down the CCP will become the top priority<br/>8. #GTV and #Gnews are for the little guys #laobaixing <br/>9. #stevebannon considers #GTV and #gnews an important part of his "media diet"<br/><br/> 对班农先生采访的一些要点：<br/>1. #CCPvirus 加剧了分裂<br/>2. #mRNA 的初衷是永远不会用于大规模疫苗接种<br/>3.分裂并不是最糟糕的事情<br/>4.为主权而战的人正在获胜<br/>5. 政治转型即将到来<br/>6. 打倒中共将成为重中之重<br/>8. #GTV 和 #Gnews 是为小人物而设立的 #laobaixing<br/>9. #stevebannon 认为 #GTV 和 #gnews 是他“媒体饮食”的重要组成部分
-![img](https://media.gettr.com/group35/origin/2022/01/15/23/b6891cb7-fb3c-4baa-ab16-7a458402365f/out.jpg)
 
 ---
 

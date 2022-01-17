@@ -2,44 +2,44 @@
 ---
 
 
-## 法国人走上街头，反抗中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869366/)
+## 卢比奥议员带领共和党同事提出了《2022年COVID法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1869458/)
 
-作者：银河系农场—骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+参议员瑞克·斯科特: 习总书记及其中共手下一次又一次地撒谎，以掩盖有关 COVID19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))起源的真相。上周我很荣幸能与卢比奥议员和我们的同事们一起领导这项重要的法案，以追究北京的责任。 【转卢比奥参议员新闻办推文：卢比奥议员带领共和党同事们提出了《2022年 COVID法案》以制裁北京 【转卢比奥参议员新闻办推文：卢比奥议员带领共和党同事提出了《2022年COVID法案》，这是一项制裁北京 [#Beijing](https://twitter.com/hashtag/Beijing?src=hashtag_click) 的法案，因为它未允许对新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的起源进行可信而全面的国际调查
 
 
 
-1月15日，数千名法国人在法国各地的城市举行示威，反对对未接种中共病毒疫苗的人进行更严格的限制，因为议会继续就法律草案进行争吵。 此次参与游行中，人民高呼”对疫苗说不”、”德约科维奇的自由”，并打出“他们想控制的不是病毒，而是你”的标语，游行中人们认为，强制接种中共病毒疫苗是纳粹主义。
-
-据悉两院正在讨论使用中共病毒疫苗通行证的使用范围，可能会在周日通过。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-7.jpg)
-参考信息：
-[Protesters hit French streets to fight new vaccine pass](https://www.france24.com/en/live-news/20220115-protesters-hit-french-streets-to-fight-new-vaccine-pass)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+> General Secretary Xi & his underlings in the Chinese Communist Party have lied again & again to cover up the truth about the origins of COVID-19. I was proud to join [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) & our colleagues last week in leading this important bill to hold Beijing accountable. [https://t.co/7MeJNRmXUX](https://t.co/7MeJNRmXUX)
+> — Rick Scott (@SenRickScott) [January 16, 2022](https://twitter.com/SenRickScott/status/1482778123678670848?ref_src=twsrc%5Etfw)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+美前国务卿迈克·蓬佩奥： 对于自由社会来说，没有什么权利比宗教自由实践更为基本。保护国内外的宗教自由是我们的核心，今天在全国宗教自由日,我们来庆祝美国的价值观。
+
+
+
+> There is no right more fundamental to a free society than the free practice of religion. Protecting religious freedom – abroad and at home – is central to who we are, and we celebrate that American value today on National Religious Freedom Day.
+> — Mike Pompeo (@mikepompeo) [January 17, 2022](https://twitter.com/mikepompeo/status/1482879018126950400?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 我们不应该将我们的运动员送到进行种族灭绝的监控国家。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click)[#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hashtag_click) 【转电台主持人John Catsimatidis推文：前国务卿彭佩奥[@mikepompeo](https://twitter.com/mikepompeo) – 在所有世界问题中，南部边境位居榜首。(附彭佩奥接受采访的音频)】
+
+
+
+> We should not send our athletes to a surveillance state that is committing genocide. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HwmvcMDsOp](https://t.co/HwmvcMDsOp)
+> — Mike Pompeo (@mikepompeo) [January 16, 2022](https://twitter.com/mikepompeo/status/1482841659616468993?ref_src=twsrc%5Etfw)
+
+
+
+众议员莫·布鲁克斯： [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) ，是生物武器实验室的人造物，还是自然产生？该文是一名前纽约时报记者关于政治驱动的宣传是如何压倒科学的精彩文章。 【转amgreatness，真相泄漏大于美国的伟大】
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – man-made in bio-weapons lab or naturally occurring?
+> 
+> Excellent read by a former New York Times reporter on how politically motivated propaganda trumps science:[https://t.co/Tqn421GXaU](https://t.co/Tqn421GXaU)
+> — Mo Brooks (@RepMoBrooks) [January 15, 2022](https://twitter.com/RepMoBrooks/status/1482345506332364812?ref_src=twsrc%5Etfw)
 
 
 

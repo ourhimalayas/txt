@@ -2,29 +2,50 @@
 ---
 
 
-## 小斯基点评VICE采访事件(二)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869425/)
+## 喜马拉雅币一周分析与总结（1月10日-1月16日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869508/)
 
-```
-整理：雅典娜速记组编辑：陶子
-```
+作者：纽约香草山金融部 – ILOVE战神
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/小斯基点评VICE采访事件（二）-.jpeg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-你为什么这散播这些假消息？只要就这么问郭先生，是不是，嗯，大家看着不生气吗？听着不生气嘛？但是你再看一下她的嘴角，她的微表情，她的微动作, 包括在那里做采访，腿像蛇一样的缠起来。她的身体语言已经告诉你了。我接着问你，我就这么侮辱你，在我看来，她就是一个赤裸裸的侮辱，我就上门侮辱你了，怎么样？我这约了你这么长时间，对不对？你不还是接受我采访了嘛。 我到你这个抗议现场去，你第一天没接受我们采访，第二天你还不是来了吗? 来了，你看怎么样，我把你们耍了个团团转。
 
-她就是这么样一个人，这就是赤裸裸的种族上的歧视。香港就是那个，对吧? 也是，其实也叫华裔。但是他都能干出来这种行为，这背后绝对是跟共产党是 脱不开关系的。那么对于这种人的话，我们能做是什么?我们应该通过怎样的方式来改变这个世界？对于我们这些黄皮肤的华人，特别是中国人，特别是中国大陆来的这些中国人。他们对我们的刻板印象我们应该做一些什么才能去改变? 除了大家普遍这种自扫门前雪，事不关己高高挂起，我把自己的家庭啊孩子啊，给他们挣钱呀，帮他们这个买房子啊，买车呀，给自己折腾这折腾那个。除了 这个之外，你能不能有一点除了物质以外的追求?
+过去一周喜马拉雅币价格从37美元左右上涨至42美元左右，最高价格约42.7美元，平均日交易量约8万喜币。喜币上市以来总交易量约2550万枚 ，占今年总发行量的仅约2.55%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-2.jpg)
+美联储主席鲍威尔本周二表示，私人稳定币可以和数字美元并存。这为喜币、喜美元进入美国市场打开了最重要的一扇大门。据本周郭文贵先生在直播中透露，喜联储正在申请几十个国家的执照，其系统的设计、系统的合法性，在全球的法律安全性以及其稳定币储备金系统是任何其它数字货币所不具备的，未来将成为世界数字货币的规则制定者。
 
-*发布：陶子*
+郭先生还表示，未来在美国没有被认可的数字货币将很难生存。喜联储正在申请美国各州的不同牌照。喜支付上线后，喜币和喜美元将在美国联邦政府、州政府管辖范围内逐步合法化，并最终与美国政府和美元形成亲密的婚姻关系。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+喜交所官方博客最近也发文表示，2022年更多金融监管者将发放加密货币交易所牌照，只有获得牌照的交易所才能在市场中合法运行。喜交所已经为此做好充分准备，必将在这一轮监管竞赛中取胜。
+
+参考信息：
+[Himalaya Exchange: A Review of Crypto Regulations in 2021](https://blog.himalaya.exchange/himalaya-exchange-a-review-of-crypto-regulations-in-2021-d4a780c7be30)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
