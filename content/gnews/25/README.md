@@ -2,50 +2,37 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月10日-1月16日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869508/)
+## 数据讽刺：奥密克戎病毒喜欢疫苗接种率高的州
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869531/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 【雅典娜观察】和您一起探究世界
 
+整理报道：George Warshing
+编辑：文泓
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-过去一周喜马拉雅币价格从37美元左右上涨至42美元左右，最高价格约42.7美元，平均日交易量约8万喜币。喜币上市以来总交易量约2550万枚 ，占今年总发行量的仅约2.55%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-2.jpg)
-美联储主席鲍威尔本周二表示，私人稳定币可以和数字美元并存。这为喜币、喜美元进入美国市场打开了最重要的一扇大门。据本周郭文贵先生在直播中透露，喜联储正在申请几十个国家的执照，其系统的设计、系统的合法性，在全球的法律安全性以及其稳定币储备金系统是任何其它数字货币所不具备的，未来将成为世界数字货币的规则制定者。
-
-郭先生还表示，未来在美国没有被认可的数字货币将很难生存。喜联储正在申请美国各州的不同牌照。喜支付上线后，喜币和喜美元将在美国联邦政府、州政府管辖范围内逐步合法化，并最终与美国政府和美元形成亲密的婚姻关系。
-
-喜交所官方博客最近也发文表示，2022年更多金融监管者将发放加密货币交易所牌照，只有获得牌照的交易所才能在市场中合法运行。喜交所已经为此做好充分准备，必将在这一轮监管竞赛中取胜。
-
-参考信息：
-[Himalaya Exchange: A Review of Crypto Regulations in 2021](https://blog.himalaya.exchange/himalaya-exchange-a-review-of-crypto-regulations-in-2021-d4a780c7be30)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WNQAKA992PURQWFWDO1UM9.png)图片来源：墨尔本雅典娜农场设计组
 
 
+1月14日，[自然新闻](https://www.naturalnews.com/)报道说，现在谁还相信接种疫苗可以阻止中共病毒传播吗？最新[数据](https://twitter.com/Emily_Burns_V/status/1480934276132745224)显示，哪个州的疫苗接种率越高，那里奥密克戎和其他变种病毒的出现几率就越高！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+美国数据科学家艾米丽·伯恩斯汇总了大量证据后在推特上发布，她写道：“把疫苗注射率最高的10个州和最低的10个州放一起作数据对比，我们发现两者的年度发病率变化几乎没有差异。但是，疫苗接种率最高的10个州病例数比去年高出近400%，而后者却‘仅’增加了112%；而两者的b/n%数值同比增长的巨大差异（近4倍），可以**证明疫苗对奥米可戎病毒具有相反的负效应，即增加感染的可能性。**”
 
+**接种疫苗的负效应意味着较多的疫苗接种等于更多的病例，数据证明，接种率最高州的死亡人数突然激增，而低接种率的州死亡人数现在正在下降。**
 
+同期，加拿大安大略省也报告，**在接种前两剂疫苗后，疫苗预防感染的功效为负值，这意味着人们接种疫苗后会失去免疫力**。一项研究进一步发现：“**接种两剂中共病毒疫苗在任何情况下都不能预防奥米可戎感染**。”
+
+对此，一位评论者[写道：](https://citizenfreepress.com/breaking/omicron-is-hitting-vaccinated-states-hardest-monster-thread/)“奥米可戎是掩盖疫苗伤害的借口。”另一位指出：“当免疫系统受损时，你还能期待什么？当然感冒会自己找上门的。”
+
+**新闻链接：**[States with highest covid vaccination rates also seeing highest surge in omicron cases – NaturalNews.com](https://www.naturalnews.com/2022-01-14-states-highest-covid-vaccinations-rates-surging-omicron.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

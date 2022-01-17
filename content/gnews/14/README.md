@@ -2,10 +2,10 @@
 ---
 
 
-## 日本冲绳新增中共病毒数创历史新高 病床使用率超50%警戒线
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1869777/)
+## 多国示威游行抗议中共病毒疫苗强制令与疫情封控政策
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1869778/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._17-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220117-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
