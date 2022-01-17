@@ -2,24 +2,38 @@
 ---
 
 
-## 为中共跑腿干预台湾总统选举 台商林怀被判刑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1870541/)
+## 2021年1月17日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870672/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1339.png)图片来源于本文链接
-湖南“长沙台胞投资企业协会”会长林怀在“台湾2020总统大选”期间，涉嫌以办理台商餐会、资助返台机票等方式，拉抬国民党总统候选人韩国瑜选情。台北地方法院今天(1月17日)一审宣判，林怀违反《总统副总统选举罢免法》判处3年8月徒刑，褫夺公权4年；另4名台商各有期徒刑1年8月，褫夺公权2年，全案可上诉。针对台北地院的判决，民进党立委范云稍早在脸书直言，这就是“为中共跑腿的下场”、批评“中国共产党手段下流毫无节制”。
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-23-1.png)
+1.2.  土耳其50万拾荒者日挣8欧元，面临36%的通胀压力。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image2-26-copy-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/image3-28-1.png)
+3. 2021年，中共国猪肉产量同比涨29%，多少养殖户血本无归！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image4-31-1.jpg)
+4. 中共《零容忍》不打自招，揭露共匪贪污腐败、厚颜无耻、坑熟杀弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image5-34-1.jpg)
+5.澳门拟发放6张赌牌牌照
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image6-37-1.jpg)
+7.对冲基金20强2021年收益654亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image7-40-1.jpg)
+8.疫情致使非洲未成年人怀孕比率上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image8-43-1.jpg)
+9. BP称充电站将比加油站更赚钱
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image9-46-1.jpg)
+10. 马斯克公布星链关键数据，将使世界宽带推进一大步
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image10-49-1.jpg)
+11. 斯巴鲁推出1000马力电动赛车
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image11-52-1.jpg)
+12. 土库曼斯坦欲将“地狱之门”掩埋
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image12-55.jpg)
+13. 单春晴在微博曝光广电高官父亲的家产，在西湖边有地下个人会所
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image13-small-57-scaled.jpg)
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-台北地检署于2020年5月8日起诉林怀等7人，起诉书中指出，林怀等人于民国2019年12月11日在中共国湖南省长沙市华天大酒店举办50多桌餐会、安排住宿，并补助返台机票，另向长沙市、湖南省台办请领149万元人民币补助。
-
-北检调查，林怀在长沙市台办、湖南省台办协助下办理餐会，当天每桌1600元人民币，共宴请560多名台商、台生，会中邀请时任国民党大陆事务部主任周继祥；周继祥请求支持国民党及韩国瑜，希望他们2020年1月11日前返台投票给韩国瑜及国民党。另林怀等人动员长沙市10区的台商、台生，资助每人1550元的机票费用，几乎全额补助(当时长沙返台机票票价约1560元人民币)，供240多人于2020年1月初返台投票。
-
-根据了解，本案为当年统促党不分区立委侯选人、中华妇女联合会理事长何建华，涉嫌招待24名民众去金厦旅游涉及贿选的案外案，但该案因犯罪事证不足一审及二审都被判无罪；至于案外案长沙台商餐会部份，检方强调，本案因长沙台协动员投票权人餐叙、造册提供几乎免费机票，直接连结到投票行为，才会构成违反《选罢法》。
-
-消息来源：[為中共跑腿支持韓國瑜！拿台辦補助辦餐會、補助機票 台商林懷涉賄選被判3年8月](https://tw.news.yahoo.com/%E7%82%BA%E4%B8%AD%E5%85%B1%E8%B7%91%E8%85%BF%E6%94%AF%E6%8C%81%E9%9F%93%E5%9C%8B%E7%91%9C-%E6%8B%BF%E5%8F%B0%E8%BE%A6%E8%A3%9C%E5%8A%A9%E8%BE%A6%E9%A4%90%E6%9C%83-%E8%A3%9C%E5%8A%A9%E6%A9%9F%E7%A5%A8-%E5%8F%B0%E5%95%86%E6%9E%97%E6%87%B7%E6%B6%89%E8%B3%84%E9%81%B8%E8%A2%AB%E5%88%A43%E5%B9%B48%E6%9C%88-050315573.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![此图像的alt属性为空；文件名为澳喜图标2-1-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

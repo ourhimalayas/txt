@@ -2,38 +2,37 @@
 ---
 
 
-## 2021年1月17日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870672/)
+## 01/17每日播报｜“奥米炕”现身北京 中共出台新政策严控进京人员
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1870824/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-23-1.png)
-1.2.  土耳其50万拾荒者日挣8欧元，面临36%的通胀压力。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image2-26-copy-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/image3-28-1.png)
-3. 2021年，中共国猪肉产量同比涨29%，多少养殖户血本无归！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image4-31-1.jpg)
-4. 中共《零容忍》不打自招，揭露共匪贪污腐败、厚颜无耻、坑熟杀弱。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image5-34-1.jpg)
-5.澳门拟发放6张赌牌牌照
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image6-37-1.jpg)
-7.对冲基金20强2021年收益654亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image7-40-1.jpg)
-8.疫情致使非洲未成年人怀孕比率上升。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image8-43-1.jpg)
-9. BP称充电站将比加油站更赚钱
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image9-46-1.jpg)
-10. 马斯克公布星链关键数据，将使世界宽带推进一大步
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image10-49-1.jpg)
-11. 斯巴鲁推出1000马力电动赛车
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image11-52-1.jpg)
-12. 土库曼斯坦欲将“地狱之门”掩埋
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image12-55.jpg)
-13. 单春晴在微博曝光广电高官父亲的家产，在西湖边有地下个人会所
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image13-small-57-scaled.jpg)
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+**By:[秘翻新闻](https://gtv.org/video/id=61e52f30a0fd8e5c735ac593)**
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![此图像的alt属性为空；文件名为澳喜图标2-1-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+**[2022-01-17](https://gtv.org/broadcast/watch/61e52f30a0fd8e5c735ac594)**
+
+《路透社》北京1月16日报道，中共官方媒体周日宣布，自2022年1月22日零时起至3月底，抵达北京的旅客必须在72小时内进行中共病毒检测。此前，北京已经要求入境旅客在离境48小时内进行病毒检测，并在该市的健康跟踪应用程序上使用绿色代码。
+
+上周六，北京报告了首例奥米炕病毒感染病例，而北京正准备下个月举办的冬奥会。据称，该患者在过去14天里曾经去过多家商场和餐馆。此人自今年年初以来就没有离开过这座城市。
+
+据中共国卫健委发布的数据显示，1月15日全国新增确诊中共病毒病例为119例，新增本地感染病例分别在天津、河南、北京、广东和陕西。
+
+然而，各个城市实施的严酷封锁措施，也进一步削弱了正在放缓的经济增长。1月5日，凯投宏观(Capital Economics)首席亚洲经济学家马克•威廉姆斯(Mark Williams)在一份报告中表示，高传染性“奥米炕”的出现加上更频繁的防控措施，会造成更多的经济损失。
+
+报道指出，北京市的一些宗教场所已经对游客关闭。位于北京市中心的藏传佛教寺院雍和宫周日表示，由于中共病毒疫情和防控措施，该寺庙将关闭一段时间，具体开放时间不详。
+
+一些北京务工人员担心因为“奥米炕”事件的封城措施，会在农历新年假期中被困在城市里而提前回家。
+
+周日，在北京友谊医院外，人们在寒风中排队几个小时，等待中共病毒检测。
+
+截至目前，中共国没有透露总共发现了多少“奥米炕”病毒感染病例。
+
+（ 秘翻主编  冰糖葫芦喵编译报道 ）
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
