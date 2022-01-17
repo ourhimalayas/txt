@@ -2,22 +2,36 @@
 ---
 
 
-## 前英国负责疫苗执行主席说：一直接种下去是“浪费时间”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870122/)
+## 有声|佛州不会执行对医护人员的疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1870214/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-103.png)
-图片来源： www.bbc.com
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月13日，佛罗里达州州长办公室新闻秘书普肖表示，佛州不会执行美国最高法院支持的拜登政府对医护人员的强制性疫苗接种政策。
 
-零对冲网1月16日报道，英国负责疫苗执行的前主席说，一直不断地靠给人们接种疫苗来对抗中共病毒是“浪费时间”。
+普肖说，州府非常欢迎最高法院阻止了OSHA的命令，但很遗憾地看到高院支持了CMS的裁决。解雇未接种疫苗的医护人员，这是不道德和不科学的，佛州不会充当拜登政府的生物医学警察。另外，加州和纽约州的医院要求已感染的医护人员仅隔离五天就可以上班，这根本无法保证任何人的安全。佛州应尽力避免因强制接种所导致的，人手短缺的状况发生。
 
-克里伍·迪克斯博士在帮助制药公司制作疫苗中起到了重要作用，他于1月16日对伦敦广播电台说：“奥米炕是相对来说比较轻一些的病毒，一直不断地靠给人们打疫苗来保护人群，我认为现在是浪费时间。”
+原文链接：[佛州不会执行对医护人员的疫苗强制令](https://gnews.org/zh-hans/1867561/)
 
-他说现在应该保护的是60岁以上还没打疫苗的2%的人群。虽然他应该继续推动加强针，但他说他反对给每个人打加强针，因为他不能确定对年轻人是否必要。他说：“我认为现在要考虑的是阻止感染和传播，而疫苗显然做不到”。他建议应该做免疫状态研究来明确每个人的免疫情况，这样，到下一个冬天，我们可以制定一个在正确的时间对正确的人施打有效的疫苗。他说：“我们现在要处理疾病，而不是病毒传播。应该关注如何阻止在易受伤害的感染人群转向重症的问题。”
+音频处理/发稿：Daxia
 
-##### **新闻来源： **[“Waste Of Time” To Keep Vaccinating People: Ex-Head Of UK Vaccine Taskforce](https://www.zerohedge.com/covid-19/waste-time-keep-vaccinating-people-ex-head-uk-vaccine-taskforce)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-# ** **
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
