@@ -2,38 +2,28 @@
 ---
 
 
-## 已打四针的以色列财政部长确认感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
+## 2022.1.17 文贵直播：我有一个梦想
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1872623/)
 
-作者：纽约香草山信息部 – 诺雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
-这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图像-14.jpg)
+来源：网络
 
-以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
+今天是马丁路德金的纪念日(MLK DAY)。他主张以非暴力的公民抗命方法争取非裔美国人的基本权利，而成为美国进步主义的象征。1963年，金在林肯纪念堂前发表了《我有一个梦想》的著名演讲，从而使美国成为了追求自由民主法治的人的天堂和目的地。郭先生称他改变了整个美国民主的进程，是人类黑暗历史中的一盏明灯。
 
-针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
+但是，中国能出一个马丁路德金吗？会一开始就用道德把你一切毁掉。在印尼残杀50万华人，共产党第一反应就是这些华人该杀。马丁路德金，能出现在印尼？能有一个有勇气的人坚持五年吗？中国人生生死死一百亿，没有出现马丁路德金的可能。
 
-参考链接：
-1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
-2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
-3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
+5年前，郭文贵先生带着推翻中共，带给中国法治民主的理想来到美国——这个世界上代表最高标准自由民主法治的国家，就遇上了旷日持久的法律超限战。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+郭先生选择了这个特殊的日子讲述自己在美国和共产党操纵的太盟案子的较量，意义非常深远。法院是美国最高法院，律师是美国顶尖律师。马丁路德金说，最可怕的是侮辱，羞辱，和时间的煎熬。郭先生对此感同身受。
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
+中国人生生死死上百年，从未有一人，在美国，用生命和鲜血，和中共斗争。但是，今天出现了郭文贵先生，他带着我们一起去体验战斗的经历。自由、民主、法治从来不会从天上掉下来，美国也不会施舍給我们华人，只有越来越多的华人站起来抗争，我们才能为自己和后代争取到我们的权利。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+来源：
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[郭文贵先生2022.1.17直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
+
+
 
  
 

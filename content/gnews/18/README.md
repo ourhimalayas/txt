@@ -2,20 +2,31 @@
 ---
 
 
-## 秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1872675/)
+## 七哥谈共产党有组织的共享财富（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1872750/)
 
-撰稿：西枫westca
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-10.jpg)图片来源：网络照片
-据新浪网1月17日报道，北京市新冠肺炎疫情防控工作新闻发布会通报， 在对北京新增病例进行了流行病学调查、采样检测、阳性货物排查和基因测序后，溯源结果与北美和新加坡毒株相似度较高。
+来源：郭先生2022-01-12直播10：23：10摘录
 
-病例发病前14天内无外省市旅居史，仅在工作期间接收过来自加拿大的国际邮件。经过测试，该邮件的外包装、内表面和文件内纸张，核酸检测均为阳性，并检测出奥密克戎异株特异性突变位点。 中共国国家邮政局同时发出通知，切实固牢国际邮件快件防控屏障，严防境外疫情通过寄递渠道输入。
+这就是为什么这个Isabel Yeung疯狂在这个时候，共产党是有组织的，然后第一个海外华人，美国这500万也好，1000万也好，还有日本的草根、还有在欧洲，澳大利亚，你们都是要被共享财富，因为你们占据了太多的财富，你就是当年的德国的犹太人，因为你们没有感受这个，你走着看，半年内就快让你感受到。青青草原不会再恨共产党在哈萨克族村做什么，你会恨的是现在正在你身边做什么。我再说下去，我怕你们几个都尿了。
 
-此两则新闻的出现，其荒唐让人啼笑皆非，我们看到中共在世人面前造假程度真是登峰造极！ 且不说国际邮件经过收件、空中飞行、过海关至收件人， 居然能查出纸张测试阳性！不知奥密克戎病株是有多么顽强。 其本质就是要让新一轮的病情爆发甩锅给西方，为闭关锁国做足舆论准备。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**新闻来源：**[北京15日新增病例溯源结果公布 与北美和新加坡毒株相似度较高|新冠肺炎|北京|新加坡\_新浪新闻 (sina.com.cn)](https://news.sina.com.cn/zx/2022-01-17/doc-ikyakumy0845909.shtml)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
