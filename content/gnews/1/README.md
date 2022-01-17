@@ -2,78 +2,24 @@
 ---
 
 
-## 01/17/22 香港快讯 2019年以利器刺警员颈部男子被重判7年9个月
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1871639/)
+## 疫苗将导致严重的神经系统性伤害
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871701/)
 
-搜集/整理：卡西欧
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0117fenmian.jpg)
-封面素材：独立记者「爆炸头」
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.48.12-AM.png)
-**1. 2019****年以利器刺警员颈部男子被重判****7****年****9****个月**
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-2.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=bhTeYc%2bs&amp;id=FD3C92789B4E16E2B7B98DF4F744E64C4FC7A00B&amp;thid=OIF.T0JfqPhWUDNabMAF%2f3w95Q&amp;mediaurl=https%3a%2f%2fwww.hetnieuwsmaardananders.nl%2fwp-content%2fuploads%2f2022%2f01%2fcovid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-dr-stephanie-seneff-videos.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.6e14de61cfacbad1ef104759041c7b79%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=750&amp;expw=1200&amp;q=COVID+Shots+Could+Cause+%e2%80%98Crippling%e2%80%99+Neurodegenerative+Disease+in+Young+People%2c+MIT+Scientist+Warns&amp;simid=163635863728&amp;FORM=IRPRST&amp;ck=4F425FA8F85650335A6CC005FF7C3DE5&amp;selectedIndex=5&amp;ajaxhist=0&amp;ajaxserp=0)
 
-[据【香港电台】01月17日讯，一名青年于2019年10月于观塘港铁站外，以鎅刀割伤警员颈部，被起诉企图谋杀和交替的蓄意伤人罪。被告早前承认蓄意伤人罪，在高等法院被判监禁7年9个月。](https://news.rthk.hk/rthk/ch/component/k2/1629239-20220117.htm?spTabChangeable=0)
+据媒体 [美国信仰] 1月15日报道，麻省理工学院计算机科学和人工智能实验室高级科学塞内夫博士当天在福克斯新闻中指出：“新冠病毒”疫苗将导致年轻人患上神经衰退性等疾病的严重后果。
 
-[被告许添力承认在2019年10月13日在观塘港铁站近A1出口行人天桥，意图使军装警员梁兆祥的身体受严重伤害，非法及恶意地伤害他。被告原本面对的企图谋杀罪则获准在法庭存档。](https://news.rthk.hk/rthk/ch/component/k2/1629239-20220117.htm?spTabChangeable=0)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.48.22-AM.png)
-**2. ****海关去年搜阿布泰后接****500****举报****   ****调查****90****商户****60****款货品涉标示违规**
+报道称，塞内夫博士对疫苗造成的以上疾病做了大量研究并得出结论：mRNA疫苗和DNA载体疫苗，通过刺突蛋白中所含的朊病毒发生作用，而引发包括帕金森病、慢性肾病、阿茨海默氏症等神经系统性疾病。这将导致在未来几年内，年轻人群体中出现越来越高的相关患病率。但由于发生疾病与疫苗接种有很长时间间隔，因次人们不会知道患病的罪魁祸首就是之前接种的疫苗。
 
-[据【大纪元时报】01月17日讯，海关去年4月，搜查多间分店及货仓「阿布泰国生活百货」，指有产品缺乏中英双语警告或警诫字句涉嫌违例，被质疑选择性执法。海关今日（17日）表示，该行动后接获约500宗投诉，指市面上多间零售店售卖的货品包装上没有标示中英文警告字句。](https://hk.epochtimes.com/news/2022-01-17/71554117)
+此外，该博士还认为，年轻人死于病毒感染的风险极低，当局让他们接种疫苗则毫无医学根据。而且从长远来看，反复的加强针对健康的伤害是毁灭性的。并斥责道：但唯一从人们的不幸中牟取巨额利润的是各大疫苗制造商和相关医药公司以及与其紧密合作的当权政府。
 
-[海关表示，就500投诉进行超过6个月的调查，发现60款产品的包装上欠缺中英双语警告或警诫字句，涉嫌违反相关规例。海关已要求约90间商户将合共约19,000件相关产品储存于指定地方，以待进一步调查。](https://hk.epochtimes.com/news/2022-01-17/71554117)
+校对编辑：硫酸羟氯喹64
 
-[去年4月8日，海关出动过百人搜查全港25间「阿布泰」分店以及仓库，检走14款共8,805件商品，并拘捕1名男董事。阿布泰当晚发声明承认有疏忽并致歉，同时提出执法过程令人诧异，因为海关过往只会在收到投诉后，针对相应门市做出警告或检控，质疑因店方「色彩」而受到打压。](https://hk.epochtimes.com/news/2022-01-17/71554117)
+发稿： 苦尽甜来 (文來）
 
-[事件发生后的数日阿布泰门市大排长龙。有排队购物的市民质疑，海关用这么大的人力搜查阿布泰「会不会太过夸张？」表示自己提前补货是「作为一种表态」。](https://hk.epochtimes.com/news/2022-01-17/71554117)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.48.37-AM.png)
-**3. ****港珠澳大桥穿梭巴士****   ****明起暂停双向运行**
-
-[据【大纪元时报】01月17日讯，广东珠海疫情防控指挥部今日（17日）公布，因应疫情防控，港珠澳大桥穿梭巴士港珠线，明日凌晨零时起双向暂停运行，直至另行通知。](https://hk.epochtimes.com/news/2022-01-17/52751735)
-
-[指挥部今发布的通告中指，因疫情防控需要，经珠港两地政府协商一致，决定明日零时起暂停港珠澳大桥穿梭巴士「港珠线」双向运行，恢复时间另行通知。](https://hk.epochtimes.com/news/2022-01-17/52751735)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.48.48-AM.png)
-**4. ****张宇人称饮食界新年损失****100****亿：政府资助越多越好**
-
-[据【独立媒体】01月17日讯，2022至23年度《财政预算案》将于2月23日公布，自由党早上会见财政司司长陈茂波后见记者。在疫情下，晚市禁堂食延至年初三。饮食界张宇人慨叹35.7亿第五轮防疫抗疫基金中，饮食界仅获资助17亿，他指新年本为饮食业旺季，估计业界损失约100亿，直言政府「资助越多越好」。](https://www.inmediahk.net/node/政經/張宇人稱飲食界新年損失100億：政府資助越多越好)
-
-[航运及交通界易志明更要求尽快推出「防疫抗疫基金6.0」，并向财委会申请拨款资助业界。他指，在停晚市堂食影响下，交通及运输界人流量亦大减三成，批评现时的防疫抗疫基金资助本地交通不足，如的士、巴士、非专营巴士、渡轮。](https://www.inmediahk.net/node/政經/張宇人稱飲食界新年損失100億：政府資助越多越好)
-
-[批发及零售界邵家辉批评，第五轮防疫抗疫基金仅帮助小型企业，对中型企业只是「杯水车薪」。他表示现时停业处所「水静河飞」，售卖农历新年应节产品的商户亦大跌一半营业额。](https://www.inmediahk.net/node/政經/張宇人稱飲食界新年損失100億：政府資助越多越好)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.49.00-AM.png)
-**5. ****彭博****:****世茂许荣茂拟售中环中心两层**
-
-[据【Now新闻台】01月17日讯，市传世茂集团主席许荣茂计划出售本港两层写字楼，以应付行业资金紧张。](https://news.now.com/home/finance/player?newsId=463526)
-
-[据《彭博》引述销售资料指，许荣茂拟以约15亿元，向潜在买家出售两层中环中心写字楼，有关物业由许荣茂及他的女儿许薇薇持有。](https://news.now.com/home/finance/player?newsId=463526)
-
-[早于去年10月，许荣茂已将中环中心其中一层物业抵押给星展香港。](https://news.now.com/home/finance/player?newsId=463526)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.49.17-AM.png)
-**6. ****恒大****:****本月交楼目标****30000****套**
-
-[据【Now新闻台】01月17日讯，中国恒大表示，今个月交楼目标为30000套。](https://news.now.com/home/finance/player?newsId=463501)
-
-[截至上月底止，恒大全国复工率达92.9%，上月完成交楼37899套，按计划集团今个月交楼目标为30000套，本月以来，集团陆续有项目批量交付。](https://news.now.com/home/finance/player?newsId=463501)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.49.27-AM.png)
-**7. ****嘉道理家族斥****26.3****亿增持大酒店**
-
-[据【Now新闻台】01月17日讯，香港上海大酒店获主要股东嘉道理家族高溢价增持逾12%股权。](https://news.now.com/home/finance/player?newsId=463479)
-
-[嘉道理家族于场外以每股12.8元，增持逾2亿股，涉资约26.3亿元，作价较上周五收市有逾92%溢价，嘉道理家族于大酒店的持股量，由不足60%增至72.43%。](https://news.now.com/home/finance/player?newsId=463479)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.49.36-AM.png)
-**8. ****据报大湾区航空考虑购****30****架窄体机****   ****价值近****18****亿美元**
-
-[据【星岛网】01月17日讯，由深圳东海航空董事长黄楚标创立的大湾区航空据报正考虑从波音或空中巴士订购不超过30架窄体飞机，订单金额或高达17.7亿美元（约138亿港元）。大湾区航空目前正等待在香港以外地区运营商业客运航班的最终批准。](https://www.singtaousa.com/2022-01-17/據報大灣區航空考慮購30架窄體機-價值近18億美元/3877708)
-
-[有外媒引述知情人士指，大湾区航空正评估选购波音737 Max 10或空中巴士A321neos飞机，其订单金额可能高达17.7亿美元(约138亿港元)，不过订单时间及最终规模取决于香港疫情。](https://www.singtaousa.com/2022-01-17/據報大灣區航空考慮購30架窄體機-價值近18億美元/3877708)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-17-at-8.49.53-AM.png)
-**9. ****港股跌****165****点　博彩股逆市造好　金沙急升近****15%**
-
-[据【香港电台】01月17日讯，港股下跌，恒指午后跌幅一度扩至272点，其后跌势收窄，收报24218点，跌165点，主板成交额1053亿元。](https://news.rthk.hk/rthk/ch/component/k2/1629232-20220117.htm?spTabChangeable=0)
-
-[科技指数跌0.8%，腾讯、美团及京东都跌逾1%。个别内房及物管股受压，碧桂园服务跌9%，碧桂园跌8%，是表现最差两只恒指成份股。](https://news.rthk.hk/rthk/ch/component/k2/1629232-20220117.htm?spTabChangeable=0)
-
-[澳门博彩股造好，金沙中国急升近15%，银娱升7%，是表现最好两只蓝筹股。另外，澳博、美高梅中国、永利澳门升幅介乎半成至12%。](https://news.rthk.hk/rthk/ch/component/k2/1629232-20220117.htm?spTabChangeable=0)
-
-校对 / 封面合成：文粤 / 发布：流光飞舞
+[原文链接](https://americanfaith.com/covid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-mit-scientist-warns/)
 
  
 

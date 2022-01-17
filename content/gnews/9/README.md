@@ -2,16 +2,25 @@
 ---
 
 
-## 疫苗大灾难
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1871492/)
+## 【#G时新闻】美国最高法院阻止了对企业的中共病毒疫苗强制令
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1871583/)
 
-——文贵大直播20220117
+加拿大温哥华扬帆农场 播报： 文广 视频制作: Geacelshan
 
-撰稿：大废墙（文非）/ MyWay / 莲心不染 / 坐看云起时（扬帆）
+据合众国际社1月13日报道，周四美国最高法院阻止了总统乔·拜登对大型私营企业的中共病毒疫苗或测试强制令，但允许对接受联邦资金设施的医护人员提出疫苗要求。最高法院以六票对三票反对疫苗强制令，布雷耶，索托马约尔和卡根持反对意见。
 
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-3.png)
-*发布：Theodosia*
+职业安全与健康管理局在11月发布的强制令，要求拥有100名或以上员工的企业的工人接种疫苗或每周提交中共病毒的阴性测试。它还要求未接种疫苗的工人在室内必须戴上口罩，但对有宗教信仰的工人和在家工作的员工有例外。
+
+法院裁决说：“尽管国会无可争议地赋予职业安全与健康管理局有监管职业危险的权力，但他没有与该机构更广泛的监管公共健康的权力。”“要求8400万美国人接种疫苗，仅仅是因为他们为雇员超过100人的雇主工作而被选中，这当然属于后面的范畴。”
+
+在投票之前，倾向于保守的法官们表示，他们不相信总统乔·拜登有权责成职业安全与健康管理局对拥有100名或更多雇员的公司执行这一任务。不过最高法院允许对接受医疗保险或医疗补助金的医疗机构实施类似的任务。
+
+对医疗人员的疫苗强制令的投票结果是五比四。
+
+盖特：[https://gettr.com/post/pocior45ca](https://gettr.com/post/pocior45ca)
+听写/翻译：LuLu1312
+字幕：圣骑士
+编辑/上传：七觉花
 
  
 

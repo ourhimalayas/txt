@@ -2,34 +2,16 @@
 ---
 
 
-## Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1871356/)
+## 疫苗大灾难
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1871492/)
 
-1/16/2021 郭文贵先生的歌曲Hcoin To the Moon上线45天第40次位列新西兰iTunes摇滚音乐榜首
+——文贵大直播20220117
 
-* * *
+撰稿：大废墙（文非）/ MyWay / 莲心不染 / 坐看云起时（扬帆）
 
-[【PDF 下载】Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
-
-
-[【PDF 下载】Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-16-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+美工：青山（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-3.png)
+*发布：Theodosia*
 
  
 

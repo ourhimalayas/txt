@@ -2,39 +2,34 @@
 ---
 
 
-## 北京卫健委封锁 “解药” ，称新病毒有超强免疫逃逸能力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1871474/)
+## 科顿参议员呼吁美国全面抵制中共冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871578/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/17Jknj4ieMPwVZkP2EQ1I2d4uvcgi1TDY9wgxq1_ctqlcKy3dFisot03ZpNLmMXUHcNlzmLFqjICBNlkfiBXa4bypyCfTDikyuWZ5mPpvXoCimVnWwb8zqYHBWYVyzceufsoiKYd)[图片来源](https://www.dailymail.co.uk/news/article-10406229/Why-DID-Winter-Olympics-Beijing.html)
-**中共北京卫健委称，春节和冬奥会临近，尽管全程注射疫苗，带口罩才是最佳预防措施。并强调感染者“不许自行买药服药”。并称，奥密克戎变异株具有“免疫逃逸能力增强”功能，要求继续推进老幼群体加强疫苗注射。**
+作者：纽约香草山 Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月16日，郭文贵先生在盖特转发汤姆·科顿参议员的电视采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.17.png)
+汤姆·科顿是阿肯色州的参议员，他一直主张美国全面抵制中共冬奥会。在访问中，他指出，中共的隔离手段令人震惊——全天候的电子监控、DNA信息被采集、公然的拘留或绑架——这些都对美国运动员的安全造成威胁。据美国奥委会所言，运动员若被检测出中共病毒呈阳性，就会被隔离，而被隔离时间由中共卫生官员决定。
 
-据中共国[新华每日电讯](http://www.news.cn/mrdx/2022-01/17/c_1310427648.htm)17日消息，[北京市卫生健康委](http://wjw.beijing.gov.cn/)要求北京市民应密切关注自己和家人身体状况、“应戴好口罩、不带病上班、不参加社会活动、不乘坐公共交通工具、不打网约车等，不自行购药、服药。” “五个不准”显然是北京利用春节期间封城的前奏。
+当下，美国运动员所面临的风险又增加了一项：假设一个未染疫的健康运动员，因违反中共极为严酷的封锁政策而被中共逮捕，美国政府不可能真正保证美国运动员的安全。
 
-该消息更重要的问题旨在严防爆料革命战友传播的硫酸羟氯喹和锌片以及[青蒿素](http://www.xinhuanet.com/world/2015-10/25/c_128355229.htm)、伊维菌素治病、预防、救人的解药被更多人知道。这种封口消息严重违背了个人依据常识自行救护的选择权。
+因此，科顿议员呼吁，从一开始就不该把美国年轻运动员置于这些危险之中，美国政府应该全面抵制中共冬奥会，以保证美国运动员的安全。由于奥米克戎疫情蔓延，应当像东京奥运会一样，把冬奥会延期一年。并且，冬奥会应该被重新竞标，在其它安全、自由和民主之地召开。
 
-- ***延展阅读：***[***美国之音-为冬奥会清零，北京未来两周可能禁止美国飞华所有航班***](https://www.voachinese.com/a/beijing-cancels-all-flight-from-us-to-china-in-two-week-for-winter-olympics/6397714.html)***。***
-- **延展阅读：**[**听说过荒凉雪的冬奥会吗（除了造假雪）？为什么冬奥会在北京举行**](https://www.dailymail.co.uk/news/article-10406229/Why-DID-Winter-Olympics-Beijing.html)**？**
+参考链接：[https://gettr.com/post/pont4fc6b3](https://gettr.com/post/pont4fc6b3)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-据了解，北京社区医院早已严格禁止接诊发热患者，并没收了医生开具感冒药的处方权，真正感冒了，需到三甲医院去开药，更不要说给你开具伊维菌素和青蒿素。
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-北京卫健委认为，春节将至，北京冬奥会举办在即，疫情防控刻不容缓，强调“戴口罩仍然是阻断病毒传播的有效方式，对于奥密克戎变异株同样适用。即使已经完成全程疫苗接种和接种加强针的情况下，也要坚持科学佩戴口罩” 以及个人各项卫生防护措施一样不可少。
-
-这些间接承认疫苗无用却仍强调疫苗有效的悖论——在中共和美国病毒沙皇福奇的领导下已经全球统一口径。共产主义的本质就是谎言和自相矛盾，它已经通过COVID中共病毒率先统一世界并全球化。
-
-- ***延展阅读：***[***《自然》-新Omicron-SARS-CoV-2 变体的免疫逃逸增加***](https://www.nature.com/articles/s41423-021-00836-z)***。***
-
-
-北京市卫健委强调疫苗有效的新理由是，**奥密克戎变异株具有“免疫逃逸能力增强**”的传播能力，“要加快推进新冠病毒疫苗接种，加强免疫。”[并提高60岁以上和3至11岁老幼人群接种率，建议符合接种条件的人员尽快接种](http://www.news.cn/mrdx/2022-01/17/c_1310427648.htm)。
-
-对于这一悖论，美国医生说的更加直接，即你越是全程接种疫苗并加强针，感染概率越强，即“[有关感染奥密克戎（ Omicron ）的患者的突破性报道也越来越多，”Parodi 博士说。“因为该刺突蛋白上的多种突变使其能够逃脱疫苗的完全保护](https://www.ama-assn.org/delivering-care/public-health/what-doctors-wish-patients-knew-about-covid-19-omicron-variant)。”
-
-2022年1月17日
-
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,26 @@
 ---
 
 
-## 移民部长称德约科维奇是对澳洲政府的威胁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1871567/)
+## 澳洲政府因疫苗护照戏耍网球冠军
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871672/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+采编/ 编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image-4.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=dB1%2feOE5&amp;id=87C1D3AB8FA601EFCC1AD055CE1CB5D614D94127&amp;thid=OIF.3DyY4r2zBgVovmMgFunL0A&amp;mediaurl=https%3a%2f%2ffox40jackson.com%2fwp-content%2fuploads%2f2022%2f01%2f311403-djokovic-deported-by-australia-for-being-unvaccinated-scaled.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.741d7f78e1396a11820deee807e8e149%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=1707&amp;expw=2560&amp;q=Australia+deports+Djokovic+for+being+unvaccinated&amp;simid=232405665800&amp;FORM=IRPRST&amp;ck=DC3C98E2BDB3060568BE632016E9CBD0&amp;selectedIndex=1&amp;ajaxhist=0&amp;ajaxserp=0)
 
-整理报道：小鱼儿
-编辑：文泓
+据加拿大【CTV新闻】1月16日报道，世界网球巨星德约科维奇因未接种“新冠病毒”疫苗，于当天被驱逐出澳大利亚，并失去了留在该国争夺澳大利亚公开赛冠军的机会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P359CK46LIQEV336.png)图片来源：The Australian
+报道称，这位世界排名第一的网球运动员在近期以来一直是各界争论的焦点，他的疫苗接种状况使得全球舆论因此两极分化，并在疫情日益恶化的澳大利亚引起了巨大的轰动。据悉，德约科维奇在抵达澳大利亚之前就已获得了公开赛的规则豁免权。但当该选手抵达后，边境官员则表示其豁免无效，并采取行动将他驱逐出境。
 
+最初，澳洲法院以比赛程序为由裁定德约科维奇可以留下来参赛，但澳洲移民部长最终下令将他驱逐出境。除了拒绝接种疫苗外，该球员还是一个直言不讳质疑“新冠病毒”疫苗的怀疑论者。
 
-据反抗新闻(Rebelnews)1月16日报道，澳大利亚移民部长亚历克斯·霍克最终承认，这位网球明星确实拥有有效的（医疗）豁免权，但他还是将德约科维奇驱逐出境，**因为他认为让诺瓦克呆在澳洲，等于是让他传播反对政府的异议声音。**联邦政府的大律师斯蒂芬·劳埃德甚至说，诺瓦克已经成为反新冠疫苗运动的“标志”。
+对此，澳洲政府表示，由于德约科维奇的参赛将无疑会激起该国民众再度反抗强制接种疫苗的浪潮，因此坚决将这位世界冠军驱逐出境是当局不二的选择。
 
-“当诺瓦克获得医疗豁免时，让很多澳大利亚人真的很生气，**因为在维多利亚州，超过90%的人接种了双重疫苗，这不是人们愿意这样做，而是因为你要在此生活，你就必须完全接种疫苗，所以人们觉得他们被迫接种疫苗，**”反抗新闻记者和澳大利亚首席记者阿维·耶米尼告诉福克斯新闻。
+校对编辑：硫酸羟氯喹64
 
-“现在他们（政府）基本上是以最奇怪的理由把他赶走，我认为联邦政府乘着这股舆情捞了一些政治资本，”阿维·耶米尼继续说。
+发稿： 苦尽甜来 (文來）
 
-诺瓦克不仅被禁止在2022年澳网公开赛上卫冕，霍克部长取消签证并将其驱逐出境意味着他被禁止进入澳大利亚三年——他将从ATP巡回赛的澳大利亚站中被移除。
-
-新南威尔士州公民自由委员会主席宝琳·莱特指出，诺瓦克不会对公众健康构成威胁；澳大利亚律师联盟的一位发言人补充说：“虽然我们理解公共卫生的重要性，**但在民主国家，拒绝一个恰好与政府政策观点相悖的人入境是很危险的**。”
-
-澳大利亚的政客们庆祝他们赶走了这位网坛第一人。维州州长丹尼尔·安德鲁斯说，“很简单，只要接种疫苗，然后大家就不用浪费时间在这上面了”。
-
-斯科特·莫里森总理说，“非常清楚，澳大利亚没有对德约科维奇先生实施酷刑”。此前，塞尔维亚总统发表评论，称对诺瓦克的拘留相当于“身体酷刑”。
-
-新闻链接：[Novak Djokovic was NOT deported for being unvaxxed](https://www.rebelnews.com/novak_djokovic_was_not_deported_for_being_unvaxxed)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接](https://www.ctvnews.ca/sports/ruled-out-australia-deports-djokovic-for-being-unvaccinated-1.5741947)
 
  
 

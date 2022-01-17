@@ -2,35 +2,32 @@
 ---
 
 
-## 美国弹道导弹核潜舰罕见现身关岛
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1871460/)
+## 中印边境紧张局势仍在持续
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871576/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月16日盖特信息，印度媒体报道，印中正在举行第14轮高级军事指挥官级别的会谈，其目的是解决两国在拉达克东部的摩擦。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.02.png)
+报道称，印度期待建设性对话，能够促进争议问题有所进展，并坚持要求在拉达克东部地区的局势降级，特别是在德布桑和德姆查尔等地，大规模军事集结仍在进行。在2020年达拉克黄金谷的冲突中，双方均有数人丧生。印度陆军总司令马诺伊·纳拉瓦内表示，战争永远是最后的手段，但如果需要，印度将从冲突中取得胜利。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/94703B76-AD1D-48B3-A046-C0B7B714972F.jpeg)（图片来自twitter.com/USNavy）
+截至目前，印中之间已经举行了13轮会谈，但是，双方都未能在会谈中取得任何进展。去年10月10日举行的第13轮会谈，因中共不同意印度的要求，双方会晤在僵持中结束。虽然双方在很多热点地区已经不再对峙，但两国之间的紧张局势仍在持续。
 
-美国有线电视新闻网（CNN）1月17日报导，美国海军最强大武器之一弹道导弹潜舰上周罕见停靠关岛。在目前台海局势不稳、朝鲜频繁射弹之际，美军此举显然意在向盟友和敌人发出明确讯息。
+参考链接：[https://gettr.com/post/pola092406](https://gettr.com/post/pola092406)
 
-据报道，1月15日，搭载20枚三叉戟弹道导弹和数十枚核弹头的俄亥俄级核动力潜舰内华达号（USS Nevada）驶入美国关岛海军基地。这是2016年以来弹道导弹潜舰首度访问关岛，也是1980年代至今的第2次公开访问。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-海军透过声明表示，本次港口访问旨在加强美国与区域盟友的合作，同时展现美国的战力、灵活度、反应力，以及对印太区域安全与稳定的持续承诺。
+总编：Jack Li文阳
+编辑：Delilah小胖
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-对此，分析人士认为，随着台海情势导致美中关系紧绷，加上朝鲜加大导弹测试力度，华盛顿以利用弹道导弹潜舰，向中共国和朝鲜展现的强硬态度。
-
-退役美国潜舰舰长、现任新美国安全中心（Center for a New American Security）分析师许卡特（Thomas Shugart）则表示，美国此举旨在传达一个讯息：“无论有意或无意，我们都可以在你家门口放置100多枚核弹头，而你根本不会知道，就算知道也无能为力”，作为对手的中共国等却无法做到同样的事情。
-
-据悉，现阶段朝鲜的弹道导弹潜舰计划才刚起步。而中共国方面，与美国海军相比，中共国據估計6艘此類潛艦也是相形見絀。
-
-*参考链接： [台海緊張北韓射彈 美彈道飛彈核潛艦罕見現關島](https://www.cna.com.tw/news/aopl/202201170285.aspx)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
