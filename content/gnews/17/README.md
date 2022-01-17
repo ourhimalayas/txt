@@ -2,39 +2,25 @@
 ---
 
 
-## 反新冠疫苗游行再次席卷全澳
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870305/)
+## 微软称乌克兰政府机构的计算机系统被感染了恶意软件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870343/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-148.png)图片来自网络
-澳媒《9 News》近日报道，今天，悉尼和墨尔本的抗议者走上街头，反对新冠疫苗接种和网球明星诺瓦克·德约科维奇的签证第二次被取消。
+#### 撰稿：彩虹
 
-与此同时，该国有近 2000 万人完全接种了新冠疫苗。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-2.jpg)图片来源：印度时报
+1月16日，《国会山报》报道，周六，微软宣布，与乌克兰政府、机构和组织有关的几十个计算机系统被感染了恶意软件。
 
-由于数千人游行反对为儿童接种新冠疫苗，悉尼警方关闭了 CBD 的部分地区。
+微软在一份声明中说，最初在周四检测到的恶意软件被伪装成勒索软件，但如果被攻击者激活，就会感染计算机并使其无法操作使用。声明说，在“几十个受影响的系统上检测到该恶意软件，随着我们调查的继续，这个数字可能会增加。这些系统横跨多个政府、非营利组织和信息技术组织，全部位于乌克兰”。
 
-人群从阿尔弗雷德王子公园蜿蜒到海德公园。
+据官员称，周五，“一场大规模网络攻击”攻破了一些乌克兰政府网站，导致一些机构网站被暂时关闭。据报道，黑客写下的信息包括“害怕吧，会更糟糕”和 “有关你的所有信息都已公开，害怕吧，会更糟糕”。
 
-德约科维奇的支持者也在其中。
+对于黑客组织的来源，文章报道，乌克兰国家和国防委员会副秘书谢尔盖·德米杜克（Serhiy Demedyuk）告诉《路透社》，乌克兰方面认为一个与白俄罗斯情报部门有关的黑客组织是破坏政府网站和利用恶意软件的幕后黑手，初步认为是一个名为UNC1151的组织参与了这次黑客行动。
 
-德约科维奇在周日上午 9 点 30 分在法庭上对第二次取消签证提出上诉之前，今天在墨尔本被移民拘留。
+**新闻来源**
 
-在墨尔本，抗议者积极表达对这位塞尔维亚运动员的声援。
+[Ukraine government agencies’ computer systems infected with malware, Microsoft says](https://thehill.com/policy/cybersecurity/589934-ukraine-government-agencies-computer-systems-infected-with-malware)
 
-这次游行叫“反对澳洲公开赛的疯狂”，示威者要求德约科维奇被允许参赛，停止新冠强制措施和“结束医疗隔离”。
-
-此前，移民部长亚历克斯霍克将德约科维奇描述为“反新冠疫苗接种情绪的护身符”，并可能引发内乱。
-
-现在，近 2000 万澳大利亚人至少接种了两剂新冠疫苗，几乎占总人口的 80%。
-
-将近五百万18岁以上人士打了第三针新冠疫苗。
-
-这次疫情再次爆发是澳洲政府的原因，澳洲政府放开所有防疫措施，号召大家不要怕病毒，把所有的宝都压在新冠疫苗身上，鼓励大家圣诞聚会，旅游。而新冠疫苗早已经被证明对疫情防控完全无效，所以整个澳洲才暴增那么多病例。而又因为因为病例激增，造成供应链断裂，超市物品短缺，药品短缺，测试纸买不到，必要行业人员不足等一系列社会问题。所以人们才纷纷站出来游行，而这一切都是澳洲政府自己造成的。
-
-参考链接：
-
-[https://www.9news.com.au/national/coronavirus-national-update-anti-vax-protesters-march-in-sydney-and-melbourne-amid-almost-20-million-double-dose-target/129b4d56-eca1-48d0-832f-a85c856c1c75](https://www.9news.com.au/national/coronavirus-national-update-anti-vax-protesters-march-in-sydney-and-melbourne-amid-almost-20-million-double-dose-target/129b4d56-eca1-48d0-832f-a85c856c1c75)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
