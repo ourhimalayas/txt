@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥谈彭帅视频事件(三)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869163/)
+## 东京10岁以下感染病例迅速增加，引发学校集团感染的担忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1869177/)
 
-```
-整理：雅典娜速记组编辑：陶子
-```
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-146.png)[图片来源](https://news.yahoo.co.jp/articles/47346b2d6cc07429dfebe5920f6b33a44472c710/images/000)
+在中共病毒（新冠病毒Covid-19）感染迅速蔓延的东京，小学生等10岁以下的感染人数迅速增加。每天报告的感染者大多数是20—40多岁，但也有可能是工作或用餐时的感染被带入家中，并通过无症状儿童传播到学校和幼儿园。如果教育领域出现聚集性感染（集团感染），班级关闭、学校停课等措施在所难免，市府呼吁提高警惕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥谈彭帅视频事件（三）-1-1.jpeg)
+在东京，16日确诊中共病毒感染病例4172例，其中10岁以下294例。随着新变异株“Omicron株”的感染迅速蔓延，正在影响刚进入第三学期的小学生。
 
-```
-金融界媒体界都是这样子，那么处理这个事情只有一个女性。我不能具体说谁是非常非常就俩就很少很少有的一个姓啊。这是北京中国国安系统的牛人这个女的。他是亲自找彭帅给他家人谈的。明确告诉她，从今天今日起你已经不是什么彭帅，你也不是什么彭帅的爹妈， 你就是我国我党所有中国人民，代表着我们的尊严和世界形象的事情，你们已经成为民族的罪人了。你们就是万死都不能来解决你对中国带来的伤害。 
+据该市称，Omicron 菌株的社区获得性感染于去年12月24日在东京首次确认。20多岁和40多岁的新感染人数自同月底以来迅速增加，但自新年4日以来，10岁以下感染的传播变得显著起来。
 
-声明：本PPT以速记形式记录郭文贵先生直播内容，里面谈及人名、地名及专有 名词可能会以拼音、英文简写或错别字(同音字)代替，关于任何与直播内容不一致的部分，请原视频为主。
-```
+消息来源：
 
+[新型コロナ　都内で「１０歳未満」感染急増　校内クラスターの懸念も](https://news.yahoo.co.jp/articles/47346b2d6cc07429dfebe5920f6b33a44472c710)
 
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

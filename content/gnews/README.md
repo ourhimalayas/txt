@@ -15,83 +15,83 @@
 
 ---
 
-### [认清共产中国制度的虚假和邪恶](/content/gnews/1/README.md)
+### [小斯基点评VICE采访事件(一)](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大卫汇报币安诉讼进展(二)](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [认清共产中国制度的虚假和邪恶](/content/gnews/3/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [焦点：供应链断裂将引发全球性的激烈通胀](/content/gnews/2/README.md)
+### [焦点：供应链断裂将引发全球性的激烈通胀](/content/gnews/4/README.md)
  ` 丁过`
 
-### [加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%](/content/gnews/3/README.md)
+### [加拿大阿省省长：目前住院的病人中，主要原因为感染新冠的人数仅占40%](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [辉瑞CEO声称疫苗不起作用，他会被推特封号吗？](/content/gnews/4/README.md)
+### [辉瑞CEO声称疫苗不起作用，他会被推特封号吗？](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海正式公布在静安寺附近发生确诊奥米克戎感染病例](/content/gnews/5/README.md)
+### [上海正式公布在静安寺附近发生确诊奥米克戎感染病例](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [美日将联合储备军火应变 包括邻近台湾岛屿](/content/gnews/6/README.md)
+### [美日将联合储备军火应变 包括邻近台湾岛屿](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫苗导致的刺突蛋白引发起新冠症状，政府利用文字游戏误导人们这是由病毒引起的](/content/gnews/7/README.md)
+### [疫苗导致的刺突蛋白引发起新冠症状，政府利用文字游戏误导人们这是由病毒引起的](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流](/content/gnews/8/README.md)
+### [1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [大卫汇报币安诉讼进展(一)](/content/gnews/9/README.md)
+### [大卫汇报币安诉讼进展(一)](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为什么接种辉瑞新冠疫苗的弊大于利（五）](/content/gnews/10/README.md)
+### [为什么接种辉瑞新冠疫苗的弊大于利（五）](/content/gnews/12/README.md)
  ` 喜国公民`
 
-### [东京10岁以下感染病例迅速增加，引发学校集团感染的担忧](/content/gnews/11/README.md)
+### [东京10岁以下感染病例迅速增加，引发学校集团感染的担忧](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文雍漫谈：中共才是不折不扣的邪教组织](/content/gnews/12/README.md)
+### [文雍漫谈：中共才是不折不扣的邪教组织](/content/gnews/14/README.md)
  ` 文雍`
 
-### [七哥谈彭帅视频事件(三)](/content/gnews/13/README.md)
+### [七哥谈彭帅视频事件(三)](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥爆彭帅真实内幕(二)](/content/gnews/14/README.md)
+### [疫苗强制令期间的一顿午餐](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥爆彭帅真实内幕(一)](/content/gnews/15/README.md)
+### [七哥爆彭帅真实内幕(二)](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美两党议员提案应对中共垄断稀土资源](/content/gnews/16/README.md)
+### [七哥爆彭帅真实内幕(一)](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|美两党议员提案应对中共垄断稀土资源](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了](/content/gnews/17/README.md)
+### [一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥爆彭帅真实内幕（三）](/content/gnews/18/README.md)
+### [七哥爆彭帅真实内幕（三）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/19/README.md)
+### [有声|爆料革命和新中国联邦从Joe Rogan事件中遇难呈祥](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [七哥谈彭帅视频时间（二）](/content/gnews/20/README.md)
+### [七哥谈彭帅视频时间（二）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻在线】哈萨克斯坦的血腥抗议活动的死亡人数又被更新](/content/gnews/21/README.md)
+### [【秘翻在线】哈萨克斯坦的血腥抗议活动的死亡人数又被更新](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜交所为何对投资者后续入金HDO进行审查？](/content/gnews/22/README.md)
+### [喜交所为何对投资者后续入金HDO进行审查？](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|Facebook母公司因利用用户数据在英国被起诉](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [文贵先生盖特精要 2022/01/16](/content/gnews/24/README.md)
+### [文贵先生盖特精要 2022/01/16](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”](/content/gnews/25/README.md)
- ` xiaobaige`
-
-### [最黑暗的时代，中国人民面临大凶与大幸的选择](/content/gnews/26/README.md)
- ` 纽约香草山MOS02`
 
 ### [七哥谈彭帅视频事件(一)](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
