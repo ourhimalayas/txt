@@ -2,27 +2,31 @@
 ---
 
 
-## 美国加州治安恶化亚马逊包裹频遭洗劫
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871790/)
+## 美国应允许疫苗之外的中共病毒治疗方案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871796/)
 
-采编撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-4.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=w%2fVrk3lG&amp;id=1C61E1AED94933E800352CEA401D2295792D4476&amp;thid=OIF.m6yVfLrdml%2fLECikTcCI3A&amp;mediaurl=https%3a%2f%2fwww.milenio.com%2fuploads%2fmedia%2f2022%2f01%2f14%2flos-saqueos-de-los-vagones.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.c3f56b937946c83219854a63a9c28f35%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=747&amp;expw=1200&amp;q=Thousands+of+packages+looted+as+thieves+rob+L.A.+bound+trains&amp;simid=163677440029&amp;FORM=IRPRST&amp;ck=9BAC957CBADD9A5FCB1028A44DC088DC&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月15日盖特信息，美国参议员候选人梅梅特-奥兹博士接受美国媒体采访，他表示，中共病毒给美国带来极大破坏，美国正面临危机。同时，疫情使人认识到美国整个医学界的大问题，就是正确的方法一再被打压和噤声。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-9.jpg)
+奥兹博士透露，他曾经捐赠25万美金，支持哥伦比亚大学进行硫酸羟氯喹治疗中共病毒的临床实验，但是遭到前纽约州州长科莫强令禁止。他说，硫酸羟氯喹已经在全世界使用超过10亿次，而且是美国FDA批准使用的药物。硫酸羟氯喹被禁止用于治疗中共病毒完全是出于政治原因和大制药厂的经济利益。美国人民根本不被允许接受此种治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗。
 
-据美国媒体《Sara Carter》1月14日报道，加利福利亚州目前的社会治安持续恶化，包括亚马逊和UPS在内的大量快递包裹，近期在运输途中被当众洗劫。同时，火车盗窃案也呈上升之势。
+奥兹博士认为，福奇就是医疗界的暴君，他与主流媒体有各种瓜葛，并利用媒体引导舆论风向。
 
-据悉，明目张胆的盗贼们会在货运列车进入洛杉矶市中心的联运站点时，利用列车减速机会撬开集装箱并盗取其中的财物。而贴有住家地址标签的包裹，通常因货品更具价值而受到窃贼的青睐。
+参考链接：[梅梅特-奥兹博士(美国参议员候选人)：美国人民根本不被允许接受治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗](https://gettr.com/post/pojqstf24b)
 
-报道称，日渐猖獗的货运盗窃行径导致了大量民众最终无法收到他们的网购商品，而政府当局对此无动于衷的漠然表现，则进一步助长了此类犯罪案情的失控蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
+总编/编辑：文特
+校正/发稿：Fei797
 
-
-校对编辑：硫酸羟氯喹64
-
-发稿： 苦尽甜来 (文來）
-
-[原文链接](https://saraacarter.com/video-thousands-of-packages-looted-as-thieves-rob-l-a-bound-trains/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

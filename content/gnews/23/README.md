@@ -2,24 +2,37 @@
 ---
 
 
-## 疫苗将导致严重的神经系统性伤害
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871701/)
+## 有声|日本新增病例暴增 政府缩短隔离时间应对
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1871792/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-2.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=bhTeYc%2bs&amp;id=FD3C92789B4E16E2B7B98DF4F744E64C4FC7A00B&amp;thid=OIF.T0JfqPhWUDNabMAF%2f3w95Q&amp;mediaurl=https%3a%2f%2fwww.hetnieuwsmaardananders.nl%2fwp-content%2fuploads%2f2022%2f01%2fcovid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-dr-stephanie-seneff-videos.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.6e14de61cfacbad1ef104759041c7b79%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=750&amp;expw=1200&amp;q=COVID+Shots+Could+Cause+%e2%80%98Crippling%e2%80%99+Neurodegenerative+Disease+in+Young+People%2c+MIT+Scientist+Warns&amp;simid=163635863728&amp;FORM=IRPRST&amp;ck=4F425FA8F85650335A6CC005FF7C3DE5&amp;selectedIndex=5&amp;ajaxhist=0&amp;ajaxserp=0)
+配音：香草山健身部 – 玫瑰园
 
-据媒体 [美国信仰] 1月15日报道，麻省理工学院计算机科学和人工智能实验室高级科学塞内夫博士当天在福克斯新闻中指出：“新冠病毒”疫苗将导致年轻人患上神经衰退性等疾病的严重后果。
 
-报道称，塞内夫博士对疫苗造成的以上疾病做了大量研究并得出结论：mRNA疫苗和DNA载体疫苗，通过刺突蛋白中所含的朊病毒发生作用，而引发包括帕金森病、慢性肾病、阿茨海默氏症等神经系统性疾病。这将导致在未来几年内，年轻人群体中出现越来越高的相关患病率。但由于发生疾病与疫苗接种有很长时间间隔，因次人们不会知道患病的罪魁祸首就是之前接种的疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月14号，日本东京单日新增感染人数继续攀升，自去年8月以来首次突破4000人。其中，接种两剂疫苗后，依旧感染中共病毒的人数最多，几乎占据总感染人数的50%。只接种一针疫苗的感染人数约占30%，而未接种的人群表现最好，仅占染病总数的20%。
 
-此外，该博士还认为，年轻人死于病毒感染的风险极低，当局让他们接种疫苗则毫无医学根据。而且从长远来看，反复的加强针对健康的伤害是毁灭性的。并斥责道：但唯一从人们的不幸中牟取巨额利润的是各大疫苗制造商和相关医药公司以及与其紧密合作的当权政府。
+根据日本厚生劳动省公布的数据，最先接种且两剂接种率超过90%的70岁以上人群，与未接种前同期数据相比，死亡率升高了近2%。
 
-校对编辑：硫酸羟氯喹64
+而为了解决由于新增病例暴增，人手短缺的问题，日本政府将密切接触者的隔离期由以往的14天，降低至10天，甚至在隔离6天后检测呈阴性就解除隔离。同时针对那些密切接触病患的医疗工作者，厚生劳动省颁布新规，工作人员每日上岗前检测呈阴性便可以上岗，不用遵从密切接触者的隔离期规定。
 
-发稿： 苦尽甜来 (文來）
+文字版原文：[日本新增病例暴增 政府缩短隔离时间应对](https://gnews.org/zh-hans/1867381/)
 
-[原文链接](https://americanfaith.com/covid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-mit-scientist-warns/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
