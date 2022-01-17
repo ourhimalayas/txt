@@ -2,36 +2,30 @@
 ---
 
 
-## 荷兰和英国建议在冬奥会期间不带电子设备到中共国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1872501/)
+## 中共多地政府要求低风险返乡民众集中隔离并自费食宿
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1872526/)
 
-**编译：七龙珠**
+撰稿：纽约香草山教育部- Noemi
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当地时间1月17日，“开封一刀切”的微博话题就被顶上墙内热搜。据了解，河南省开封市于今日突然宣布了一条最新的防疫政策，要求来自郑州低风险地区的返封人员也需进行14天的集中隔离并自费食宿。这条“一刀切”式的政策当即引起了大量需要双城生活的民众的强烈抗议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-4.png)2022 年 1 月 13 日更新于 2022 年 1 月 14 日，
+然而，开封市政府的这一“霸王条例”却并非个案。近期，中共国内的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都纷纷出台了要求来自低风险地区的返乡人群也必须要进行集中隔离的相关政策，并要求被隔离人员为自己隔离期间产生的一切费用买单。
 
-从各种角度来看，北京2022年冬奥会实在不顺，不管是外交，病毒，还是人生安全等方面已经引起了争议。据荷兰报纸De Volkskrant和英国报纸The Telegraph报道，荷兰和英国都要求他们的奥运运动员不要把手机和电脑带到中共国。
+据悉，当前中共国的返乡人群主要为大学生群体。目前，已有多名被隔离的大学生都对14天隔离期所产生的高昂的隔离费用表示担忧。有学生称，此条政策属实是当地政府在“割韭菜”，但大家对此却无能为力。 (已编辑)
 
-正如荷兰报纸所描述的那样，荷兰奥委会的Geert Slot解释说，“网络安全是为中共国之行进行的风险评估的一部分”，因此，“荷兰队的成员将配备从未使用过的设备，以保护他们的个人数据免受中共国监控”。
+1[https://www.toutiao.com/a7053334957510427140/?channel=&source=search\_tab https://www.gettr.com/post/possbb4f46 https://www.toutiao.com/w/a1722187358499907/?traffic\_source=&traffic\_source=&in\_ogs=&in\_ogs=&utm\_source=&utm\_source=&source=search\_tab&source=input&utm\_medium=wap\_search&utm\_medium=wap\_search&original\_source=&original\_source=&in\_tfs=&in\_tfs=&channel=&channel=](https://www.toutiao.com/a7053334957510427140/?channel=&amp;source=search_tab%20https://www.gettr.com/post/possbb4f46%20https://www.toutiao.com/w/a1722187358499907/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
 
-**对中共间谍活动的恐惧悄悄渗入奥运精神**
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+**更多资讯，更多关注**
 
-除了荷兰队之外，英国也向他们的运动员提出了类似的建议。冬奥会将于2月在北京举行，英国已警告在中共国期间不要使用个人电子设备。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-英国奥林匹克协会（BOA）将给运动员提供新的设备，使他们能够保持联系，不会将他们的个人数据置于危险之中。现阶段还不知道这些智能手机和电脑是否会有任何额外的安全性，同样值得反思的是，如果运动员在这些新设备上使用他们的社交媒体和账户，仍然无法避免潜在的风险。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-过去英国奥委会曾向有需要的人提供智能手机和电脑，但更多的是作为一种援助，而不是一种替代。这是第一次明确建议不要携带个人设备旅行。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**新闻来源**：[xataka.com][Países Bajos y Reino Unido piden a sus atletas que no lleven sus móviles u ordenadores a China durante los JJOO de invierno](https://www.xataka.com/privacidad/paises-bajos-reino-unido-piden-a-sus-atletas-que-no-lleven-sus-moviles-u-ordenadores-a-china-durante-jjoo-invierno)
-
-* * *
-
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

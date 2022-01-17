@@ -2,38 +2,24 @@
 ---
 
 
-## 已打四针的以色列财政部长确认感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
+## 澳洲昆士兰咖啡店主因接待未接种疫苗者被捕
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872401/)
 
-作者：纽约香草山信息部 – 诺雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
-这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011603.jpg)图片来源：Pexels免费照片资料库；摄影：Lisa Fotios
+澳大利亚昆士兰州的一名私人企业主因涉嫌没有执行 CCP病毒防疫禁令而被捕。这位企业主名叫Pierre Coorey ，在州首府布里斯班南部经营着一家咖啡馆，他在上个月因违反当局的防疫限制措施被罚款后，现在因涉嫌违反疫情期间的强制命令而被警方拘留。
 
-以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
+目前昆士兰的防疫规定极大限制着未接种疫苗者的出行自由，根据政令，未接种疫苗的人群是不允许出入任何诸如咖啡馆这样的饮食设施的。Coorey先生就是因为让未接种疫苗者进入到咖啡厅而被几名警方带走，颇有连坐受罚的味道。他现在被指控妨碍警察、违反指示要求以及不遵守 COVID-19 公共卫生命令。
 
-针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
+Coorey 先生甚至还可能面临着被人赶出咖啡馆的情况——要知道那可是他自己的咖啡馆，这一裁决今天早上引发了企业主支持者的强烈反对和不满。预计他将于下个月在法院出庭。
 
-参考链接：
-1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
-2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
-3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
+上周，布里斯班北部赫维湾的一名妇女在另一家Hervey Bay 的咖啡屋因涉嫌拒绝提供疫苗接种证明而被逮捕。一些当地居民反对警方的行动，称他们执法不当有失准则。在脸书上，这家咖啡馆的老板称这次逮捕“令人痛苦”和“令人不安”，称五名警察的执法行为与实际不符。该女子将于 3 月 10 日在 Hervey Bay 地方法院出庭。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+新闻参考链接：[Cafe owner arrested for alleged COVID-19 direction breaches](https://www.9news.com.au/national/queensland-covid-cafe-owner-arrested-for-alleged-covid-19-direction-breaches/a2e1ec6c-bf8a-465b-bcfe-2856f59699eb)
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

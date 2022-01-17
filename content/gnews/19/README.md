@@ -2,73 +2,39 @@
 ---
 
 
-## 2022年1月17日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1872270/)
+## 美国人寿保险公司发出死亡警告：目前每月超额死亡人数近十万
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1872299/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a68bd656c487c2ea62d0e9b847343a1d.jpg)
-视频连接：[2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格](https://gettr.com/streaming/pos74kdcd0)
+翻译：波士顿五月花  冲天一怒
 
-1、中共威胁世界主要3个方面：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/人寿保险公司发出死亡警报警告，目前美国每月有近十万人超额死亡.jpg)https://www.naturalnews.com/
+Life insurance companies sound DEATH ALERT warnings over nearly 100,000 excess deaths per month happening right now in the USA
 
-1）控制媒体，
+美国人寿保险公司表示：目前美国每月超额死亡人数近十万，他们已就罗伯特·马龙博士所说的“大规模伤亡事件”发出警告，该事件由中共病毒(Covid-19)疫苗导致。
 
-2）控制财富，
+这是我们正在面对的红色警报。人类正在通过被注射“血栓针”而被屠杀，这些针剂特意被设计出来，通过制造死亡和不育症来减少全球人口。所有参与此事的政治家、科学家、监管者和新闻工作者正在犯下反类罪，他们甚至以儿童为目标。
 
-3）控制法律；
+中心广场(印第安纳州)网站发表的一篇文章揭示了OneAmerica人寿保险公司首席执行官斯科特·戴维森是如何就 18 至 64 岁(处工作年龄)美国人总死亡人数增加了40% 的情况发出警告。他在本周的在线新闻发布会上说：“我们现在看到了保险行业史上最高的死亡率——不仅仅是在我们公司。行业中每个参与者的数据都是一致的。”
 
-2、香港反送中以来自杀人数超2万；
+戴维森表示，死亡人数的增加代表了“巨大的数字”，不仅是老年人死亡，而“主要是 18 至 64 岁的工作年龄人群”死亡，他们都是通过保险公司投保了集体人寿保险的公司员工。我们在第三季度观察到的情况一直持续到了第四季度，死亡率比中共病毒大流行到来之前上升了 40%。举例证明一下情况到底有多糟糕：即便遭遇服从三西格马法则或两百年一遇的灾难，其死亡人数也只会比大流行病到来前上升10%，所以 40% 是个闻所未闻的比例。
 
-3、中共买通美国司法、控制法院，太平联盟（PAG）律师多次造假、程序违规，纽约法院不应该受理的案，依法抢劫纽约并不属于文贵先生的18楼房产；
+这里有几个关键点需要理解：
 
-4、法官还没有判决结果，熊宪民就可以精确的预测了官司的判决结果。这是偶然吗？这个案件本质是和共产党以及美国被收买的黑暗的司法界的官司。共产党对美国司法界的渗透没那么简单；
+1. 首席执行官戴维森引用的数据为2021年第三季度的数据，而第四季度的数字会更加糟糕，因为疫苗对民众免疫系统的损害会随着时间的推移而恶化。
 
-5、2月2日将有重大开庭，船的归属权问题，文贵先生预测会输
+2. 死亡案例并未被归类为中共病毒(Covid-19)死亡。医疗记录显示，死亡原因是其他，如：癌症、自身免疫性疾病、心脏病发作、中风等，而这些大部分正是FDA 早已知晓的COVID疫苗的不良反应。(参见2020年FDA 文件的第 16 页，列出了 COVID 疫苗的所有疑似副作用，包括死亡。)
 
-6、PAG官司的事件会被好莱坞拍成大片，电视剧；
+3. 如果死亡人数增加 10% 是一个服从三西格马法则的事件，那么增加40%的概率则比服从十二西格马法则事件还要高(非线性关系)……意味着这不仅仅是巧合。死亡的背后有一个共同的原因，这原因当然是中共(Covid-19)病毒疫苗。我们已经得出结论，中共病毒疫苗是用于减少人口的生物武器。
 
-7、共产党花了200亿美元的法律超限战，核心目的判文贵先生藐视法庭，就是要制造抓你、关你的借口；
+4. 随着这种趋势的持续（确定会继续），人寿保险公司正面临财务崩溃。他们很快将需要政府救助，而向雇员收取的保费将飞涨。
 
-8、文贵先生的防疫用品的捐助，居然有FBI上门，说是预谋违法囤积物资；
+新闻来源: [Life insurance companies sound DEATH ALERT warnings over nearly 100,000 excess deaths per month happening right now in the USA](https://www.naturalnews.com/2022-01-03-life-insurance-companies-sound-death-alert-warnings-over-excess-deaths-covid.html)
 
-9、法院判文贵先生藐视法庭，50万美元一天是美国历史上最贵的赔偿了，截止到今天1.53亿美元；
+* * *
 
-10、BVI是另外一个战场，BVI被中共完全渗透；
+*素材来源：冲天一怒*
 
-11、英国情报部门问文贵先生英国被中共渗透到什么程度，文贵先生举例，中共有个间谍李贞驹，蓝金黄英国驻中共大使全程录像，她妹妹是中共安全部第5局的副局长，类似李贞驹间谍在英国大概有70多个；
-
-12、单伟建（PAG）超级金融间谍；
-
-13、FBI Richard Frankel100%进监狱；
-
-14、日本也会出几个李贞驹的案子；
-
-15、太平联盟的案件是共产党的对文贵先生的诉讼，目的就是铲除新中国联邦、G系列，最终我们一定赢，只是付出多大代价。
-
-**注：大直播音讯正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑* *&**发布：**jamie(**文胤**)*
 
  
 

@@ -2,31 +2,38 @@
 ---
 
 
-## 七哥谈格式化管理（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1872382/)
+## 已打四针的以色列财政部长确认感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山信息部 – 诺雅
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
+这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
 
-来源：郭先生2022-01-12直播10:13:46摘录
+以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
 
-整个大秦朝它属于宵禁状态，这是它统治的基础。同时宵禁还限制了你的财富和生活方式的流通，作为家庭的成员、社会最重要的DNA，家庭，他是彻底渗透。现在共产党就是商鞅五策当中最最极端的手段。习近平和共产党绝对清楚，如果任由中国老百姓，就这些猪狗，随着时间长，由于有互联网、由于有网络、由于有各种不可控的现代通信技术，它是很危险的。这个猪会发现我跳出这个猪圈去，我可以吃更多的菜园子里的青菜，本属于我，我不需要你喂我，我可以爬到山顶上去，我也可以吹吹风，我也可以在临死前我也甚至猪可以跟狗交配一下子，猪甚至可以跟猴子谈谈恋爱。它甚至可以到水里游游泳、闻闻鱼的味道。猪最后发觉我不是猪，我是一个被披了猪皮的人，我不当猪了！那这种办法、这个病毒疫苗它有多种作用，很多人就无法想象。我在之前不愿意给大家讲，我讲这又说七哥讲这太玄，我尽量避免玄啊。就像我讲的昆仑山脉、喜马拉雅山脉这么多事情，我让你知道共产党他比你都信神、他比你都迷信。然后你现在觉得你深信不疑吧，盘古龙头就证明了共产党绝对不是无神论，是天底下最大的有神论，是吧。瑞士的钱、还有海航王岐山等，所有人告诉你共产党不是无产阶级，是最有产的阶级！那么现在我再告诉你，现在共产党让你绝对不是给你所谓的叫你治疫苗，刚才风雨之中讲得很好，是垃圾，扔到隔壁邻居家，我再给你扔回来，这叫清零。表面上是这样，事实上真正的后面游戏你还没看透。如果用你这个例子比的话是什么？共产党跟你玩儿的就是扔垃圾的游戏。他给你整了个垃圾扔在A家，A家扔B家，B家不一定扔回A家，B家可能扔在C家，也有可能扔到D家去了。这种互相扔垃圾的仇恨结果就需要警察出面调整，最后警察出面儿说 ：由于大家互相扔垃圾，现在开始起垃圾怎么扔由我说了算，而且要收费。这就达到了《商鞅五术》最后的核心目的。就在去年的时候，国安委的咱们一个哥们儿跟我说：“我们正在研究更深层次的利用好疫苗和病毒，让这个社会更容易管理。”王沪宁给中央说，我们要牢牢的抓住这个机会，把整个社会叫做格式化管理。啥叫格式化？大家都是玩儿电脑的，啥叫格式化呀？王沪宁这个老杂毛能说这话，他就是不会电脑他才那么疯狂，他会电脑他就不疯狂了。啥叫格式化？就是商鞅所说的，就是大秦朝秦文帝、秦孝帝说这话，把社会把人关在家里。我还得让你，我还是为了你好，我让你关在家里。
+针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+参考链接：
+1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
+2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
+3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
 
-**关注我们**
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-Discord 账号
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

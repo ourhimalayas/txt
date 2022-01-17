@@ -2,24 +2,34 @@
 ---
 
 
-## 澳洲昆士兰咖啡店主因接待未接种疫苗者被捕
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872401/)
+## 中共政府确保对价值数十亿美元的NFT市场的控制权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1872420/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011603.jpg)图片来源：Pexels免费照片资料库；摄影：Lisa Fotios
-澳大利亚昆士兰州的一名私人企业主因涉嫌没有执行 CCP病毒防疫禁令而被捕。这位企业主名叫Pierre Coorey ，在州首府布里斯班南部经营着一家咖啡馆，他在上个月因违反当局的防疫限制措施被罚款后，现在因涉嫌违反疫情期间的强制命令而被警方拘留。
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip01-4.png)中国试图通过创建自己的平台来控制本国的 NFT 市场。 （路透社）
+比特币等加密货币的被禁和（非同质化代币）NFT的崛起，促使中共政府使用国营区块链系统来追踪交易。
 
-目前昆士兰的防疫规定极大限制着未接种疫苗者的出行自由，根据政令，未接种疫苗的人群是不允许出入任何诸如咖啡馆这样的饮食设施的。Coorey先生就是因为让未接种疫苗者进入到咖啡厅而被几名警方带走，颇有连坐受罚的味道。他现在被指控妨碍警察、违反指示要求以及不遵守 COVID-19 公共卫生命令。
+中共国将在本月底前创建自己的NFTs（非同质化代币）基础设施，它将不与加密货币挂钩，而是依靠自己的区块链系统。这个区块链系统，不会像最初设想的那样是去中心化和匿名的，而是由国家控制的。
 
-Coorey 先生甚至还可能面临着被人赶出咖啡馆的情况——要知道那可是他自己的咖啡馆，这一裁决今天早上引发了企业主支持者的强烈反对和不满。预计他将于下个月在法院出庭。
+NFTs也在中共国大放异彩。阿里巴巴、腾讯、百度和小米等中国科技巨头已经创建了自己的NFT，以利用这一趋势，但中国政府对这一系统持怀疑态度，为了避免中共政府的怀疑，他们将其更名为“数字货币”。NFTs一般通过以太坊的区块链进行交易，并使用其加密货币以太坊购买。这些信息区块链是高度安全的去中心化平台，允许其用户之间的互动，同时保持其匿名性。区块链也是其他加密货币的基础，但中共已经在国内禁止了这些虚拟货币，因为它要求其所有的互联网系统验证用户的身份，以便国家在“非法活动”时进行干预。
 
-上周，布里斯班北部赫维湾的一名妇女在另一家Hervey Bay 的咖啡屋因涉嫌拒绝提供疫苗接种证明而被逮捕。一些当地居民反对警方的行动，称他们执法不当有失准则。在脸书上，这家咖啡馆的老板称这次逮捕“令人痛苦”和“令人不安”，称五名警察的执法行为与实际不符。该女子将于 3 月 10 日在 Hervey Bay 地方法院出庭。
+**一个非常奇特的区块链**
 
-新闻参考链接：[Cafe owner arrested for alleged COVID-19 direction breaches](https://www.9news.com.au/national/queensland-covid-cafe-owner-arrested-for-alleged-covid-19-direction-breaches/a2e1ec6c-bf8a-465b-bcfe-2856f59699eb)
+去年年中，中共国宣布推出区块链服务网络（BSN），这是一个在中共政府的支持下，由中共国科技公司和银行组成的财团建立的。这种国家管理的区块链允许公司和个人用户使用国家区块链应用程序，而不必使用私人区块链。
 
+现在，据香港媒体《南华早报》报道，中共国政府将为NFT引入一个新的数字基础设施，它被称为分布式数字证书（BSN-DDC）。这个系统使公司或个人更容易创建自己的用户档案或应用程序来管理NFT。然而，只有中共国的人民币将被允许用于交易。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+与世界其他地方不同的是，中共国科技公司铸造的NFT数字产品不会成为投机和资本外逃的工具，这一条件旨在让中共国监管机构放心，但是现在BSN-DDC要来改变游戏规则，虽然我们不知道他们是否能从NFT提出钱来，但我们知道，无论他们做什么，中共都会关注他们。
 
+**新闻来源**：[elconfidencial.com][El gobierno chino se asegura el control del millonario mercado de los NFT](https://www.elconfidencial.com/tecnologia/novaceno/2022-01-14/china-se-asegura-el-control-del-millonario-mercado-de-los-nft_3358621/)
+
+* * *
+
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
 
  
 
