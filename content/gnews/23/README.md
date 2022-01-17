@@ -2,20 +2,37 @@
 ---
 
 
-## 吕克•蒙塔尼耶在米兰游行集会上说:人类的救赎取决于未接种疫苗的人”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1869000/)
+## 有声|Facebook母公司因利用用户数据在英国被起诉
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1869027/)
 
-#### 编译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-16-alle-23.04.01-1.png)图片来源: ilmessaggero.it
-一月十五日在米兰四月二十五日广场举行了一场反绿色通行证集会，集会中法国病毒学家， 2008年诺贝尔医学奖获得者吕克•蒙塔尼耶发表了演讲，他对新冠疫苗的否定态度使他成为众多拒打新冠疫苗者的地标。
+配音：香草山佛教部 – 李傻
 
-蒙塔尼耶说：“ 人类的救赎取决于未接种疫苗的人。”
 
-“ 在疫情紧急情况结束之后，人类的救赎掌握在未接种疫苗人的手中， 疫苗是个巨大的战略性错误…..这些疫苗根本起不到保护作用，这一事实正在慢慢浮出水面。科学家和患者正在发现疫苗没用，它们不但不能保护，相反会造成其他炎症。这些疫苗中含有有毒的蛋白质……这些疫苗造成了很多伤害，许多年轻的运动员由于疫苗有严重的心肌炎， 给孩子打疫苗完全是一种犯罪。听众给予他热烈的掌声并高喊“蒙塔尼耶”。最后蒙塔尼耶指责马克龙和德拉吉对待拒打新冠疫苗的人的态度。“ 这两个人不能改变人们的意志，你们应该觉醒，在下次选举中表达你们的愿望，自由万岁！”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月13日，据相关媒体报道，英国监管机构——金融行为管理局的高级顾问洛夫达赫·戈尔森正在起诉脸书的母公司Meta涉嫌利用用户数据。
 
-原文链接：[https://www.ilmessaggero.it/italia/montagnier\_no\_vax\_milano\_premio\_nobel\_chi\_e\_ultime\_notizie-6441367.html](https://www.ilmessaggero.it/italia/montagnier_no_vax_milano_premio_nobel_chi_e_ultime_notizie-6441367.html)
+据了解，戈尔森将代表英国在2015至2019年间使用脸书的用户对Meta公司提起23亿英镑的集体诉讼。戈尔森表示，脸书滥用其市场主导权，对普通英国人强加了不公平的条款，不合理地要求这些用户在进入该平台时必须提供个人数据。同时，脸书通过收集此类个人数据，从而建立了庞大的用户信息数据库。戈尔森称，该信息库使得Meta近年来赚取了数十亿美元。
 
-编辑、上传： Xiao   baige
+报道提及，伦敦竞争上诉法庭近期将审理此案。
+
+文字版原文：[Facebook母公司因利用用户数据在英国被起诉](https://gnews.org/zh-hans/1865625/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

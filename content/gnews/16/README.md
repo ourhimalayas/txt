@@ -2,31 +2,35 @@
 ---
 
 
-## 七哥谈彭帅视频时间（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869079/)
+## 有声|美两党议员提案应对中共垄断稀土资源
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1869116/)
 
-```
-整理：雅典娜速记组
-编辑：陶子
-```
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥谈彭帅视频事件（二）-.jpeg)
-
-```
-七哥谈彭帅视频事件(二)由当时北京市国安局。啊，就是北京市公安局，是相当于小半个安全部，你千万记住安全部编制3000多人，北京市安全局就上千人啊。他是在北京力保安全, 然后第3才轮到上海局，北京市安局的紧急处理小组来处理这个事情。及时的啊。对在微博上进行所有的信息相关链接啊发酵处理马上对彭帅的家人包括什么表亲表弟的全部采取措施。那当然他爸他妈必须的被看起来啊，马上弄起来进行，全面了解之后迅速向中央啊做出了紧急处理。2条方案，第一个这件事情的批政治评估会对共产党的冬奥会带来剧烈的影响，会被所谓的西方反华势力所利用啊。后果不堪想象。
-```
+配音：香草山佛教部 – 李傻
 
 
-第二彭帅的事情说的是事实，而且彭帅很有可能在这个一系列的说出来以后还会有更多的行动。最后重要作出决定啊，不惜一切代价，这原话啊，这都是原话，这是中国不惜代价。不考虑任何后果。就是这彭帅死100回都不拉倒啊，必须将这件事情在冬奥会前彻底的在全世界的评析。然后让各个相关部门马上启动紧急机制。共产党这个紧急机动机制，你一定别小看了，就像潜伏的人啊， 你在VICE, 你在Hpay, 是不是啊？你像姚明啊，他是不同的人。对付你小斯基 啊，就不用大炮了，是吧。最后呢，够了就不用大炮了。对付郭文贵， 就需要单伟健了，是吧，就这样大炮就来了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月14日，为积极应对中共在世界各地对稀土资源的强夺垄断，保障美国在稀土资源上的国安战略需求，美国共和党参议员汤姆·柯顿与民主党参议员马克·凯利，共同提出“恢复稀土基本能源与安全控股法案”。
 
-*发布：陶子*
+该法案要求美国国防部与内政部在2025年之前，建立稀土原料与产品战略储备，以满足美军、国防工业与技术部门和其他关键基础设施一年所需，防止供应链出现中断。法案还要求美国贸易代表署与商务部，就中共在稀土市场上的不公平贸易行为向国会提交报告。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：[美两党议员提案应对中共垄断稀土资源](https://gnews.org/zh-hans/1866209/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

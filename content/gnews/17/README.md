@@ -2,40 +2,116 @@
 ---
 
 
-## 【秘翻在线】哈萨克斯坦的血腥抗议活动的死亡人数又被更新
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1869071/)
+## 一党控制政府、疯狂强制疫苗，但恰恰是打过疫苗的容易感染，这个世界疯了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1869100/)
 
-**撰稿：Grace**
+[https://gtv.org/video/id=61e1481987664c47acd48046](https://gtv.org/video/id=61e1481987664c47acd48046)
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-16-at-6.13.17-PM.jpeg)图片来源：Independent
-据《雅虎新闻》 1月16日报道，哈萨克斯坦当局在周日将1月初在该国爆发的血腥抗议活动的死亡人数被更新为225人。
+**郭文贵
+Miles Guo**
 
-检察院刑事起诉负责人谢里克·沙拉巴耶夫 (Serik Shalabayev)说: “225人的尸体被送到停尸房，其中19人是执法人员和军人。”
+有一些流氓国家的强制政策
+There are some rogue states enforced policies
 
-哈萨克斯坦政府称， 约有5万人加入了这场大规模的抗议活动。这场抗议活动最初因燃料价格飙升而爆发，并迅速蔓延到全国各地，演变成以政治口号为特色的反政府示威活动。
+你去看有一个国家是正常的吗?
+Have you seen any one of them is normal?
 
-1月4日，总统卡西姆-约马尔特·托卡耶夫（Kassym-Jomart Tokayev）宣布该国进入紧急状态。
+这个（国家）领导人
+What’s up with the leaders of this country?
 
-1月7日，托卡耶夫下令安全部队开枪杀“恐怖分子”，并在同日，他还请求集体安全条约组织（CSTO）提供援助，该组织是由俄罗斯领导的由六个前苏联国家组成的军事联盟。
+所有这些国家通过强制疫苗，把它定为什么没打疫苗的人是怎么着怎么着
+All these countries through mandatory vaccines to identify those unvaccinated people and criticize them as whatever something
 
-报道称，约有2500名军队从俄罗斯、白俄罗斯（Belarus）、亚美尼亚（Armenia）、吉尔吉斯斯坦（Kyrgyzstan）和塔吉克斯坦（Tajikistan）抵达哈萨克斯坦，并从上周四开始逐步撤离。
+我告诉你，你看它的背景，你看它的政府的体制
+Let me tell you that’s go to take a look at its background and its government system
 
-接着在1月9日，托卡耶夫将该国的第一位独立领导人纳扎尔巴耶夫从国家安全委员会主席的职位上解聘。
+基本上国会和医疗机构和总统，基本上都是一个党派的
+Basically, all these congress, medical institutions, and the President are in the same party
 
-早些时候，哈萨克斯坦当局说，抗议活动的伤亡人数不到50人–26名武装罪犯和18名安全人员。
+而且非常大的偶然
+And very accidentally
 
-但是，在上周，哈萨克斯坦当局曾表示，抗议活动的死亡人数为164人。其中还包括三名儿童。可是，政府后来收回了这一说法。
+这些党派从来过去没有控制过什么上院下院上众议院
+these parties have never controlled any upper house, lower house, or upper House of Representatives in the past
 
-卫生部说，在抗议活动的第一周，有103人死于阿拉木图（Almaty）。阿拉木图是该国最大的城市，也是动乱期间发生最激烈冲突的地方。
+就这一次它（一个党派）就控制了
+Just this time, it was controlled by a single party
 
-该国卫生部发言人阿塞尔·阿塔克西诺娃（Asel Artakshinova）说，有超过2600人在医院寻求治疗，其中67人仍处于严重状态。
+而且这时候就说了算, 又立法、颁布行政规定都它说了算
+Moreover, this party makes final decisions in both legislation and promulgation of administrative regulations at this time
 
-据报道，哈萨克斯坦当局将暴力事件归咎于土匪和国际 “恐怖分子”，但没有提供任何相关证据。
+让我们真的看到这个世界真的比我们想象还要吓人，还恐怖啊
+This has made us realize that the world is actually more horrified than we expected
 
-美国国务卿安东尼·布林肯（Anthony Blinken）谴责了哈萨克斯坦总统在抗议活动中发出的开枪格杀令。布林肯说：“这是我绝对拒绝的事情。就其存在的程度而言，格杀令是错误的，应予以撤销。我们对所宣布的紧急状态有真正的担忧。”
+为什么都是这一帮政党
+Why is all this gang of political parties
 
-**新闻来源： ****[Violent unrest in Kazakhstan has left 225 people dead, authorities say](https://news.yahoo.com/violent-unrest-kazakhstan-left-225-105843985.html)**
+前所未有地统治一个国家的立法权，行政权、执行权之后, 他们有这样的流氓的决定
+after unprecedented ruling a country’s legislative power,and executive power have such a rogue decision
+
+而且是所有的制药公司都不负责任, 都不敢说里边成分的时候
+and all the pharmaceutical companies are irresponsible and dare not to say the ingredients in it
+
+而要让你强制打疫苗
+they make it mandatory for you to get vaccinated
+
+最重要的是打完疫苗，现在确实是打疫苗（会）死人
+The most important thing is after vaccination and it’s now indeed that people would die from vaccinated
+
+关键是打疫苗的人感染已经（从）一针管用
+The critical thing is that the infection for those vaccinated people from one jab will work
+
+二针绝对管用
+two jabs definitely effective
+
+三针一定管你一辈子
+three jabs will definitely control you for the rest of your life
+
+现在要每年打，每月打
+Now you have to get the jab every year even every month
+
+改成打终生
+and it turns into lifetime jab
+
+这种逻辑这不是胡扯了吗?
+Isn’t this kind of logic nonsense?
+
+更可怕的事情
+more terrifying thing is that
+
+我们大家要意识到，我们感染人当中绝大多数80%、90%都是打了疫苗的人
+we all need to realize that the vast majority of 80% or 90% of our infected people are the people who have been vaccinated
+
+这还用说吗?
+Does this even need to be explained?
+
+这逻辑、常识、专业都在这摆着呢
+This logic, common sense, and professionalism are all on the table
+
+我们战友们如果再听不进去不就是疯了吗？
+Aren’t our comrades insane if we still not realize that?
+
+* * *
+
+Date: 01/08/2022
+原视频标题: 一党控制政府 疯狂强制疫苗 但恰恰是打过疫苗的容易感染
+这个世界疯了
+One-party control of the government aggressively enforce vaccine mandate, but it is precisely those who have been vaccinated that are susceptible to infection – the world is out of control
+原视频日期：2022/01/07
+原视频链接: [https://gettr.com/post/pn1esn26e1](https://gettr.com/post/pn1esn26e1)
+任务编号：3441
+视频时间段 : 0:00-01:44
+
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
