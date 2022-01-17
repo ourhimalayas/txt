@@ -2,23 +2,29 @@
 ---
 
 
-## Nick关于喜币的见解
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1870852/)
+## “精疲力竭”的医生表示，Omicron 对医院造成严重冲击
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1870884/)
 
-##### 整理：雅典娜速记组
-编辑：玉米地守望者
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Nick关于喜币的见解-scaled.jpg)
-拥有这样的一个货币的，就是数字货币的时候。你接收了喜币，你拥有这样的数字货币，那么你其实根本上解决了很多现在我们面临的一些问题，比如说货币超发，比如说通货膨胀，因为所有的这些超发也好，通货膨胀也好，很大程度上是因为不停的印钞票啊引起的，那么不停地印钞票，是因为政府一定要这么做，他要去分配这个财富，但是我们拥有这个喜币，拥有数字货币的时候，你就完美地避开所有这些问题，并且你还很安全，你不被任何人监管，你有这个私密性，所以我觉得你接受数字货币，接受喜币的话，说明你这个地方，你这些人是有脑子的。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/172.jpg)图片来自网络
+悉尼肺部专家 Lucy Morgan 博士自CCP病毒爆发以来在前线工作了两年，在今天的新闻发布会上，她展示了病毒大流行对卫生工作者的影响。
 
-*发布：玉米地守望者*
+在记者面前Morgan 博士表示自己有些紧张，她在医院工作到今日凌晨1点左右，已经非常的疲惫。她向记者表示：“大约在凌晨 1 点到 6 点之间的每一个小时，我都会接到一个电话，说有一名感染COVID的患者病得很重，需要住进我的医院。”
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+无论是否紧张，Morgan博士都直言不讳地谈到医疗专业人员目前的艰难处境，同时她呼吁人们继续保持随时消毒、戴口罩和保持社交距离等做法。
 
+“我们已经筋疲力尽了……为了应对前所未有的就诊需求，每天有成千上万的病人来到我们的医院，这影响了我们处理其他事务的能力……短期而言，问题不大，但从长期来讲，这是相当糟糕的。”
+
+“这对我们来说真的很艰难，对新南威尔士州的人民来说也真的很艰难，因为这导致了一些诊断的延误，更长的看病等待时间，我们的社区在这一过程中也承受了巨大的负担。”
+
+虽然Omicron似乎比过去的毒株造成的症状更加轻微，但是Morgan博士表示，即便如此，由于当前疫情爆发的传播速度太快，那些出现症状需要到医院接受检测的人数也随之飙升，这导致了当前医院出现的超负荷危机。
+
+“我认为在过去的 24 小时内，也就是我一直处于待命状态的 24 小时之内，有超过 2500 名患者来到我们的医院……同时我们的医生——他们也是社群的一员——现在也感染了COVID-19。”
+
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-nsw-updates-lung-specialist-dr-lucy-morgan-says-health-workers-exhausted-omicron-strain/b40a800c-7289-45b9-ac65-f90317882c03)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
