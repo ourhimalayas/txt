@@ -2,26 +2,23 @@
 ---
 
 
-## 荷兰、丹麦宣布外交抵制北京奥运会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1869816/)
+## 前英国负责疫苗执行主席说：一直接种下去是“浪费时间”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870122/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-52.jpg)[图片来源](https://www.perild.com/2022/01/15/netherlands-and-denmark-announce-diplomatic-boycott-of-beijing-olympics/)
-荷兰和丹麦1月14日宣布，将不派政府外交使团参加将于2月开幕的北京冬奥会。 两国都关心中共国的人权问题。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-103.png)
+图片来源： www.bbc.com
 
-荷兰外交部发言人表示，由于中共在病毒疫情防控方面的限制，“就关注的人权问题与东道国进行磋商的机会有限”。
+零对冲网1月16日报道，英国负责疫苗执行的前主席说，一直不断地靠给人们接种疫苗来对抗中共病毒是“浪费时间”。
 
-“我们非常关注中共国的人权状况。政府已决定不参加北京奥运会，”丹麦外长科福斯说。
+克里伍·迪克斯博士在帮助制药公司制作疫苗中起到了重要作用，他于1月16日对伦敦广播电台说：“奥米炕是相对来说比较轻一些的病毒，一直不断地靠给人们打疫苗来保护人群，我认为现在是浪费时间。”
 
-在法国举行的欧盟（EU）外长会议上，未能就政府是否派出高官参加北京奥运会做出统一决定的回应。
+他说现在应该保护的是60岁以上还没打疫苗的2%的人群。虽然他应该继续推动加强针，但他说他反对给每个人打加强针，因为他不能确定对年轻人是否必要。他说：“我认为现在要考虑的是阻止感染和传播，而疫苗显然做不到”。他建议应该做免疫状态研究来明确每个人的免疫情况，这样，到下一个冬天，我们可以制定一个在正确的时间对正确的人施打有效的疫苗。他说：“我们现在要处理疾病，而不是病毒传播。应该关注如何阻止在易受伤害的感染人群转向重症的问题。”
 
-信息来源：
+##### **新闻来源： **[“Waste Of Time” To Keep Vaccinating People: Ex-Head Of UK Vaccine Taskforce](https://www.zerohedge.com/covid-19/waste-time-keep-vaccinating-people-ex-head-uk-vaccine-taskforce)
 
-[オランダとデンマーク、北京五輪に外交団派遣せず](https://news.yahoo.co.jp/articles/11fa5b40417ffd417116dbce3e8b00c8554d84ad)
+# ** **
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

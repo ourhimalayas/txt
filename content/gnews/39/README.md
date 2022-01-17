@@ -2,36 +2,26 @@
 ---
 
 
-## 有声|美国国民警卫队、联邦军队帮助俄亥俄州应对新冠病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1870251/)
+## 彭佩奥：种族灭绝奥运会是对习近平的“奖励”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870266/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-1月13日，鉴于俄亥俄州中共病毒的严峻形势，该州州长宣布，将部署2300名国民警卫队，支援该州15个测试地点。其中，大约200名警卫员提供医疗支持，另外2100人帮助进行检测，提供食品服务，对住院患者进行运输和管理。
+#### 撰稿：彩虹
 
-当天，拜登总统也宣布，计划向包括俄亥俄州在内的六个重灾州派遣医疗队。其中，一个由美国空军护士、医生和呼吸治疗师组成的团队正在前往克利夫兰诊所。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-15.jpg)图片来源：国家评论
+1月16日，《新闻极限》报道前国务卿迈克·彭佩奥（Mike Pompeo）接受WABC 770 am-N.Y. 的“凯胜圆桌会议”（ The Cats Roundtable）采访时说，（北京）种族灭绝奥运会是对习近平的奖励。
 
-原文链接：[美国国民警卫队、联邦军队帮助俄亥俄州应对新冠病毒](https://gnews.org/zh-hans/1867382/)
+他说：“我们现在正在一个国家举行奥运会，这个国家目前正把100万或更多的人关在营地里，看起来有点像20世纪30年代德国发生的事情，他们强迫妇女绝育，把她们从家里带走。这就是我们要把运动员送到的地方，一个监控的国家，一个正在进行种族屠杀的国家。我曾说过这是‘种族灭绝奥运会’”。
 
-音频处理/发稿：Daxia
+蓬佩奥对允许中共国在2月份举办冬奥会感到遗憾，说这是对中共习近平的“奖励”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+他告诉主持人约翰‧卡西马蒂斯（John Catsimatidis）：这样的一个监控国家，会捕捉到我们每个运动员在那里的每一句话以及他们所做的一切，我祈祷这个监控国家不会带走一个美国人，并且在这些比赛结束后能够让他们全部回家”。
 
-**更多资讯，更多关注**
+蓬佩奥警告说，运动员们应该说出他们的想法，但“当他们在中国境内时，他们需要非常小心”。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新闻来源**
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[Pompeo Warns of China’s ‘Surveillance State’ at ‘Genocide Olympics’](https://www.newsmax.com/newsfront/winterolympics-mikepompeo-genocide-beijing/2022/01/16/id/1052632/)
 
  
 
