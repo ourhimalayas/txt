@@ -2,24 +2,26 @@
 ---
 
 
-## 疫苗将导致严重的神经系统性伤害
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871701/)
+## 美国加州治安恶化亚马逊包裹频遭洗劫
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871790/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-2.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=bhTeYc%2bs&amp;id=FD3C92789B4E16E2B7B98DF4F744E64C4FC7A00B&amp;thid=OIF.T0JfqPhWUDNabMAF%2f3w95Q&amp;mediaurl=https%3a%2f%2fwww.hetnieuwsmaardananders.nl%2fwp-content%2fuploads%2f2022%2f01%2fcovid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-dr-stephanie-seneff-videos.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.6e14de61cfacbad1ef104759041c7b79%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=750&amp;expw=1200&amp;q=COVID+Shots+Could+Cause+%e2%80%98Crippling%e2%80%99+Neurodegenerative+Disease+in+Young+People%2c+MIT+Scientist+Warns&amp;simid=163635863728&amp;FORM=IRPRST&amp;ck=4F425FA8F85650335A6CC005FF7C3DE5&amp;selectedIndex=5&amp;ajaxhist=0&amp;ajaxserp=0)
+采编撰稿：自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-4.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=w%2fVrk3lG&amp;id=1C61E1AED94933E800352CEA401D2295792D4476&amp;thid=OIF.m6yVfLrdml%2fLECikTcCI3A&amp;mediaurl=https%3a%2f%2fwww.milenio.com%2fuploads%2fmedia%2f2022%2f01%2f14%2flos-saqueos-de-los-vagones.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.c3f56b937946c83219854a63a9c28f35%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=747&amp;expw=1200&amp;q=Thousands+of+packages+looted+as+thieves+rob+L.A.+bound+trains&amp;simid=163677440029&amp;FORM=IRPRST&amp;ck=9BAC957CBADD9A5FCB1028A44DC088DC&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
 
-据媒体 [美国信仰] 1月15日报道，麻省理工学院计算机科学和人工智能实验室高级科学塞内夫博士当天在福克斯新闻中指出：“新冠病毒”疫苗将导致年轻人患上神经衰退性等疾病的严重后果。
+据美国媒体《Sara Carter》1月14日报道，加利福利亚州目前的社会治安持续恶化，包括亚马逊和UPS在内的大量快递包裹，近期在运输途中被当众洗劫。同时，火车盗窃案也呈上升之势。
 
-报道称，塞内夫博士对疫苗造成的以上疾病做了大量研究并得出结论：mRNA疫苗和DNA载体疫苗，通过刺突蛋白中所含的朊病毒发生作用，而引发包括帕金森病、慢性肾病、阿茨海默氏症等神经系统性疾病。这将导致在未来几年内，年轻人群体中出现越来越高的相关患病率。但由于发生疾病与疫苗接种有很长时间间隔，因次人们不会知道患病的罪魁祸首就是之前接种的疫苗。
+据悉，明目张胆的盗贼们会在货运列车进入洛杉矶市中心的联运站点时，利用列车减速机会撬开集装箱并盗取其中的财物。而贴有住家地址标签的包裹，通常因货品更具价值而受到窃贼的青睐。
 
-此外，该博士还认为，年轻人死于病毒感染的风险极低，当局让他们接种疫苗则毫无医学根据。而且从长远来看，反复的加强针对健康的伤害是毁灭性的。并斥责道：但唯一从人们的不幸中牟取巨额利润的是各大疫苗制造商和相关医药公司以及与其紧密合作的当权政府。
+报道称，日渐猖獗的货运盗窃行径导致了大量民众最终无法收到他们的网购商品，而政府当局对此无动于衷的漠然表现，则进一步助长了此类犯罪案情的失控蔓延。
+
+
 
 校对编辑：硫酸羟氯喹64
 
 发稿： 苦尽甜来 (文來）
 
-[原文链接](https://americanfaith.com/covid-shots-could-cause-crippling-neurodegenerative-disease-in-young-people-mit-scientist-warns/)
+[原文链接](https://saraacarter.com/video-thousands-of-packages-looted-as-thieves-rob-l-a-bound-trains/)
 
  
 

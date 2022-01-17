@@ -2,26 +2,37 @@
 ---
 
 
-## 美国加州治安恶化亚马逊包裹频遭洗劫
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871790/)
+## 有声|日本新增病例暴增 政府缩短隔离时间应对
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1871792/)
 
-采编撰稿：自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-4.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=w%2fVrk3lG&amp;id=1C61E1AED94933E800352CEA401D2295792D4476&amp;thid=OIF.m6yVfLrdml%2fLECikTcCI3A&amp;mediaurl=https%3a%2f%2fwww.milenio.com%2fuploads%2fmedia%2f2022%2f01%2f14%2flos-saqueos-de-los-vagones.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.c3f56b937946c83219854a63a9c28f35%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=747&amp;expw=1200&amp;q=Thousands+of+packages+looted+as+thieves+rob+L.A.+bound+trains&amp;simid=163677440029&amp;FORM=IRPRST&amp;ck=9BAC957CBADD9A5FCB1028A44DC088DC&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
-
-据美国媒体《Sara Carter》1月14日报道，加利福利亚州目前的社会治安持续恶化，包括亚马逊和UPS在内的大量快递包裹，近期在运输途中被当众洗劫。同时，火车盗窃案也呈上升之势。
-
-据悉，明目张胆的盗贼们会在货运列车进入洛杉矶市中心的联运站点时，利用列车减速机会撬开集装箱并盗取其中的财物。而贴有住家地址标签的包裹，通常因货品更具价值而受到窃贼的青睐。
-
-报道称，日渐猖獗的货运盗窃行径导致了大量民众最终无法收到他们的网购商品，而政府当局对此无动于衷的漠然表现，则进一步助长了此类犯罪案情的失控蔓延。
+配音：香草山健身部 – 玫瑰园
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月14号，日本东京单日新增感染人数继续攀升，自去年8月以来首次突破4000人。其中，接种两剂疫苗后，依旧感染中共病毒的人数最多，几乎占据总感染人数的50%。只接种一针疫苗的感染人数约占30%，而未接种的人群表现最好，仅占染病总数的20%。
 
-校对编辑：硫酸羟氯喹64
+根据日本厚生劳动省公布的数据，最先接种且两剂接种率超过90%的70岁以上人群，与未接种前同期数据相比，死亡率升高了近2%。
 
-发稿： 苦尽甜来 (文來）
+而为了解决由于新增病例暴增，人手短缺的问题，日本政府将密切接触者的隔离期由以往的14天，降低至10天，甚至在隔离6天后检测呈阴性就解除隔离。同时针对那些密切接触病患的医疗工作者，厚生劳动省颁布新规，工作人员每日上岗前检测呈阴性便可以上岗，不用遵从密切接触者的隔离期规定。
 
-[原文链接](https://saraacarter.com/video-thousands-of-packages-looted-as-thieves-rob-l-a-bound-trains/)
+文字版原文：[日本新增病例暴增 政府缩短隔离时间应对](https://gnews.org/zh-hans/1867381/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
