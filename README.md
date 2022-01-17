@@ -15,107 +15,107 @@
 
 ---
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.029 HDO](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [美州长上任后立即废除强制疫苗和口罩禁令](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [2022年1月16日郭先生盖特 — 视频1「9分46秒」](/content/gnews/2/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [罗马尼亚的欧洲议会议员曝光大药厂与各国政府签订的协议](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021年12月3日 郭先生视频部分内容整理](/content/gnews/4/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [秘翻在线：日本首现奥密克戎感染者死亡病例](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共病毒＋愚政＝法国人民失去对自己身体的决定权](/content/gnews/6/README.md)
+### [中共以政代法奴役国人](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [扬帆每日速递 2022年1月16日版（2）](/content/gnews/7/README.md)
+### [【文炬拾字】关注和传播盖特自由之声](/content/gnews/3/README.md)
  ` 温哥华扬帆农场`
 
-### [国内疫情反复之际，张文宏再提免疫屏障忽悠打疫苗](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [奥地利新冠疫苗强制接种政策激起大批民众上街抗议](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文贵•天成系列——郭文贵先生谈中概股（一）](/content/gnews/10/README.md)
+### [文贵•天成系列——郭文贵先生谈中概股（二）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [喜币，新中国联邦的金融系统](/content/gnews/11/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.029 HDO](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2022年1月16日郭先生盖特 — 视频1「9分46秒」](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [秘翻在线：特斯拉公司签约澳洲供应商，减少石墨原料对中共国的依赖](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [罗马尼亚的欧洲议会议员曝光大药厂与各国政府签订的协议](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年12月3日 郭先生视频部分内容整理](/content/gnews/9/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [秘翻在线：日本首现奥密克戎感染者死亡病例](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共病毒＋愚政＝法国人民失去对自己身体的决定权](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [扬帆每日速递 2022年1月16日版（2）](/content/gnews/12/README.md)
+ ` 温哥华扬帆农场`
+
+### [国内疫情反复之际，张文宏再提免疫屏障忽悠打疫苗](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共的特洛伊木马](/content/gnews/12/README.md)
+### [奥地利新冠疫苗强制接种政策激起大批民众上街抗议](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文贵•天成系列——郭文贵先生谈中概股（一）](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [喜币，新中国联邦的金融系统](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共的特洛伊木马](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [郭文贵先生2022年1月16日盖特视频（9分46秒）全文字版](/content/gnews/13/README.md)
+### [郭文贵先生2022年1月16日盖特视频（9分46秒）全文字版](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“大老虎”](/content/gnews/14/README.md)
+### [“大老虎”](/content/gnews/19/README.md)
  ` 首尔天池农场`
 
-### [荷兰、丹麦宣布外交抵制北京奥运会](/content/gnews/15/README.md)
+### [荷兰、丹麦宣布外交抵制北京奥运会](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [现在的状况比我想象好太多了](/content/gnews/16/README.md)
+### [现在的状况比我想象好太多了](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [空的货运列车从朝鲜抵达中国 中朝贸易再开](/content/gnews/17/README.md)
+### [空的货运列车从朝鲜抵达中国 中朝贸易再开](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [多国示威游行抗议中共病毒疫苗强制令与疫情封控政策](/content/gnews/18/README.md)
+### [多国示威游行抗议中共病毒疫苗强制令与疫情封控政策](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本冲绳新增中共病毒数创历史新高 病床使用率超50%警戒线](/content/gnews/19/README.md)
+### [日本冲绳新增中共病毒数创历史新高 病床使用率超50%警戒线](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共冬奥会或有变数](/content/gnews/20/README.md)
+### [中共冬奥会或有变数](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [新疆、西藏一定要独立](/content/gnews/21/README.md)
+### [新疆、西藏一定要独立](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [摇滚排行榜在政治上体现实力](/content/gnews/22/README.md)
+### [摇滚排行榜在政治上体现实力](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习近平呼吁加强监管，防范数字经济的“不健康”发展](/content/gnews/23/README.md)
+### [习近平呼吁加强监管，防范数字经济的“不健康”发展](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [针对华人？纽约华裔女子被推落铁轨遭碾压惨死](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [补习班步入白菜价时代](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
-
-### [串珠532:驻美大使秦刚战魔外交羞辱美国等同宣战](/content/gnews/26/README.md)
- ` 郭爆料串珠`
-
-### [韩国对传播风险低场所不适用防疫通行证](/content/gnews/27/README.md)
+### [韩国对传播风险低场所不适用防疫通行证](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [弗州新任州长取消疫苗强制令并承诺还权于民](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [喜马拉雅币一周分析与总结（1月10日-1月16日）](/content/gnews/29/README.md)
+### [喜马拉雅币一周分析与总结（1月10日-1月16日）](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [北京冬奥会在即 新型病毒来袭](/content/gnews/30/README.md)
+### [北京冬奥会在即 新型病毒来袭](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/31/README.md)
+### [美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2022年1月16日晚](/content/gnews/32/README.md)
+### [GTV新闻访谈简报|2022年1月16日晚](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/33/README.md)
+### [美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/34/README.md)
  ` GTV新闻访谈`
-
-### [正道主义和平民主义有感](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [焦点：供应链断裂将引发全球性的激烈通胀](/content/gnews/35/README.md)
  ` 丁过`
