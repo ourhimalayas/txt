@@ -2,24 +2,22 @@
 ---
 
 
-## 澳洲昆士兰咖啡店主因接待未接种疫苗者被捕
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872401/)
+## 一定要采法律行动：对媒体攻击一定要反击(一)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1872744/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011603.jpg)图片来源：Pexels免费照片资料库；摄影：Lisa Fotios
-澳大利亚昆士兰州的一名私人企业主因涉嫌没有执行 CCP病毒防疫禁令而被捕。这位企业主名叫Pierre Coorey ，在州首府布里斯班南部经营着一家咖啡馆，他在上个月因违反当局的防疫限制措施被罚款后，现在因涉嫌违反疫情期间的强制命令而被警方拘留。
+#### 整理：雅典娜速记组
+编辑：陶子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E5%AE%9A%E8%A6%81%E9%87%87%E6%B3%95%E5%BE%8B%E8%A1%8C%E5%8A%A8%E5%AF%B9%E5%AA%92%E4%BD%93%E6%94%BB%E5%87%BB.001-1.jpeg)
+在外国人眼里边，中国人的长相基本上没什么差别。特别现在你(小斯 基)已经被定义为恐怖分子，攻击你的时候，你们三走在大街上，人家不知道你认谁是大卫，还是小斯基，还是小**SEVEN,**这不是开玩笑的，而且海外华人全部成了恐怖分子。小斯基，你非常有理由注意你的安全，没有必要的情况下，一你不要出去，二你要赶快报案啊。他这个视频被挖出来以后，大家都信了，特别你住在这个华人区域，那你很有可能是要受到攻击的，你真的要注意啊，兄弟，这不是跟你开玩笑。我想告诉你的事情，刚才包括**NICOLE**，你没有一个人到现在没有说出一个最重要的观 点。为什么海外媒体过去**100**年把华人形容成东亚病夫，阳痿什么，中国男人脏乱差是吧？所有这些媒体对华人的攻击，从来没有一个人反击过。 刚才**NICOLE**你已经被定为美国极右分子支持川普，而且你是暴力分子啊，今天你也上镜头了。你真的要注意自己安全，你和小斯基，这不是开半点玩笑的，你们要在任何地方到去了都给警察要报案，先备案，说我这个被这个**ISOBEL**给骗访了以后，什么结果。
 
-目前昆士兰的防疫规定极大限制着未接种疫苗者的出行自由，根据政令，未接种疫苗的人群是不允许出入任何诸如咖啡馆这样的饮食设施的。Coorey先生就是因为让未接种疫苗者进入到咖啡厅而被几名警方带走，颇有连坐受罚的味道。他现在被指控妨碍警察、违反指示要求以及不遵守 COVID-19 公共卫生命令。
+*发布：陶子*
 
-Coorey 先生甚至还可能面临着被人赶出咖啡馆的情况——要知道那可是他自己的咖啡馆，这一裁决今天早上引发了企业主支持者的强烈反对和不满。预计他将于下个月在法院出庭。
-
-上周，布里斯班北部赫维湾的一名妇女在另一家Hervey Bay 的咖啡屋因涉嫌拒绝提供疫苗接种证明而被逮捕。一些当地居民反对警方的行动，称他们执法不当有失准则。在脸书上，这家咖啡馆的老板称这次逮捕“令人痛苦”和“令人不安”，称五名警察的执法行为与实际不符。该女子将于 3 月 10 日在 Hervey Bay 地方法院出庭。
-
-新闻参考链接：[Cafe owner arrested for alleged COVID-19 direction breaches](https://www.9news.com.au/national/queensland-covid-cafe-owner-arrested-for-alleged-covid-19-direction-breaches/a2e1ec6c-bf8a-465b-bcfe-2856f59699eb)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

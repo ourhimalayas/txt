@@ -2,38 +2,31 @@
 ---
 
 
-## 已打四针的以色列财政部长确认感染中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
+## 七哥谈中共的核糖核酸检查（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1872736/)
 
-作者：纽约香草山信息部 – 诺雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
-这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
+来源：郭先生2022-01-12直播10：18：34摘录
 
-针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
+你看看那个核糖核酸检查，如果共产党真的相信核糖核酸检查能治病的话，那你就是天下最愚蠢的人，不但猪会想明白，就是死猪都能想明白。它是一个城还没发现有人得病呢，怎么就把全城的人聚集到一起，竟然等八、九个小时戴着口罩，那口罩而且是不合格的口罩，它不是传染去了吗？这个世界上只有死猪才能相信，说我在西安、我在天津、我在郑州我是真的给你查核糖核酸去了。玩的就是这游戏，最后证明我党能把病毒清到零；第二，让这些人民习惯了待在家里；第三，达到了我宵禁的目的。最重要的是什么？你知道到了西安干什么？西安列出了30个企业，120家所谓管制企业，30个企业就是30个富豪通过这次西安整治、停业、抓捕，下一步把财富全部没收。你记住我今天说的话啊，兄弟姐妹可千万记住七哥今天说的：西安共享财富开始了！30个必须收归的财富、共享的财富，120个要把它停业整顿然后再收归财富。你看着啊，西安的血洗，天津又是，天津大概是35家马上要收归的财富，大概200家必须共享财富的第一阶段，记住今天七哥的说话啊。然后就到江浙去了，然后又到江浙了啊，然后到江浙了，郑州已经开始了，兄弟姐妹们，啥叫共享财富？咋共享你财富啊？抓了马云就共享财富了？抓了马明哲就共享财富了？不是！共享财富是有招儿的。这叫共产主义的运动式的社会财富的招儿。当年抓地主怎么抓的吗？现在有抓地主的吗？大型的秧歌队，宣传队，“嘣嘣嘣，嘣嘣嘣，”人民要翻身当主人，是吧？人民要推掉头顶的三座大山，是吧？谁是你的三座大山呐？是吧？美帝国主义是吧？封建思想，还有地主骑在我们头上剥削我们人民，共产主义，共产党来了是吧？给你带来了未来这就来了！最后把谁呀？最后发现地主是坏蛋，抢你的媳妇，抢你的闺女，我从来没有生活中见过一个坏地主，我听说活着的地主的家人都是好地主。最后要把地主要推翻地主睡地主的老婆闺女就把地主推翻了，最后是什么？大地主共产党来了。今天一模一样，我看到所有战友分析这个的时候，就没有一个人刚才你们做视频的时候我出去接个电话，我就知道你们，我没看啊，我就知道你会做啥样，因为你们非黑即白，这不是这个概念。然后在西方这种斗争当中什么？我让你打台湾你自由去吧，你打台湾你跑着去、争着去；我让你去杀新疆人的时候你发泄你的怒火吧，强奸她们、轮奸她们；然后我给你分享财富的权利，我分财富，我今天要分享风雨中、Renee的财富，我让青青草原去，青青草原说这个七哥直播太好了，我分他俩的钱，分完他俩的我让他俩再去，你再去给我分了草根的，哎哟，你太好了！希特勒跟戈培尔怎么搞起来的？民族仇恨、社会动荡、极度不安、极度恐惧，然后少部分人永远希望着自己成为分享财富和得到权力和分享权力的那部分人。哎呦，希特勒说这个好哇！斯大林怎么弄的？每天都杀人，我都让你成为告密的人，告密的人叫你告完密下一个你就成为被杀的人。共产党现在就让你所有人记住：谁不老实？哪个城市的人不老实？检测核糖核酸，谁不听？在家饿死的，不是我杀的。再不行，这城市大面积感染，这个城市必须奸之、杀之为了14亿人活着。兄弟姐妹们，你们看的太少了！我在去年都告诉了疫苗灾难、疫苗战争、疫苗政治、疫苗经济共产党在开启的。然后在美国已经Ray Dalio都出来要共享财富了，美国也会这么干，欧洲也会这么干！记住我说的话，一定会这么干！让你待在家里边儿，然后有人来共享你的财富，谁都想当共享财富的那个人，然后社会仇恨，然后整个社会财富就开始了、走着看吧！
 
-参考链接：
-1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
-2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
-3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+**关注我们**
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
+Discord 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

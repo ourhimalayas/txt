@@ -2,31 +2,36 @@
 ---
 
 
-## 七哥谈世界经济（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1872357/)
+## 荷兰和英国建议在冬奥会期间不带电子设备到中共国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1872501/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**编译：七龙珠**
 
-来源：郭先生2022-01-12直播09：57：53摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-4.png)2022 年 1 月 13 日更新于 2022 年 1 月 14 日，
 
-你看这几天，这个纳扎尔巴耶夫出现几次镜头，跟托卡耶夫的感觉，你去看看去，你懂的中亚政治的，这些人、所有的人你了解，世界的油价，世界的气价变成了什么？刚才你们看了世界的经济了，咱还没有说到世界的经济，回到这儿再说世界经济的时候，大家去想想，世界出现那么大事，刚才世界经济给了我们两个答案。长线投资都在离场，大家注意到了吗？最近长线投资都在离场，数字货币领域大额洗钱的正在离场，现在已经是鲨鱼开始往回撤了，大家看着啊，鲨鱼往回撤了，为什么Ray dalio出来要替共产党洗地，共享财富，他绝对是世界上最早知道让什么时候上，什么时候下的人。所谓的“共享财富”就是给西方人打针了，是股票跌下来就是给你分财富呢，跟共产党一样是吧。把马云宰了你就当马云啦，把马化腾和马明哲杀了，你就当马明哲当马化腾了，这就是典型的Ray dalio这个孙子跟共产党唱的同一个调。
+从各种角度来看，北京2022年冬奥会实在不顺，不管是外交，病毒，还是人生安全等方面已经引起了争议。据荷兰报纸De Volkskrant和英国报纸The Telegraph报道，荷兰和英国都要求他们的奥运运动员不要把手机和电脑带到中共国。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+正如荷兰报纸所描述的那样，荷兰奥委会的Geert Slot解释说，“网络安全是为中共国之行进行的风险评估的一部分”，因此，“荷兰队的成员将配备从未使用过的设备，以保护他们的个人数据免受中共国监控”。
 
-**关注我们**
+**对中共间谍活动的恐惧悄悄渗入奥运精神**
 
-Discord 账号
+除了荷兰队之外，英国也向他们的运动员提出了类似的建议。冬奥会将于2月在北京举行，英国已警告在中共国期间不要使用个人电子设备。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+英国奥林匹克协会（BOA）将给运动员提供新的设备，使他们能够保持联系，不会将他们的个人数据置于危险之中。现阶段还不知道这些智能手机和电脑是否会有任何额外的安全性，同样值得反思的是，如果运动员在这些新设备上使用他们的社交媒体和账户，仍然无法避免潜在的风险。
 
-Gettr 账号
+过去英国奥委会曾向有需要的人提供智能手机和电脑，但更多的是作为一种援助，而不是一种替代。这是第一次明确建议不要携带个人设备旅行。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源**：[xataka.com][Países Bajos y Reino Unido piden a sus atletas que no lleven sus móviles u ordenadores a China durante los JJOO de invierno](https://www.xataka.com/privacidad/paises-bajos-reino-unido-piden-a-sus-atletas-que-no-lleven-sus-moviles-u-ordenadores-a-china-durante-jjoo-invierno)
+
+* * *
+
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
+
+
 
  
 

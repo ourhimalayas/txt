@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/17/2022 10:20 PM (UTC)`
+
+1/17/2022 Miles Guo: Looking back at the 2017 case of Pacific Alliance v. Miles Guo, why did Boxun and Xiong Xianmin know the verdict before the judge ruled? Why were the legal fees for Boxun and all the frivolous lawsuits against Miles Guo paid by Bruno Wu, a partner of PAG? Is it normal to have so many "coincidences"?<br/><br/>1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？为什么博讯和所有与文贵先生有关的法律缠诉案的律师费是吴征提供的，而吴征和太盟是合伙人关系？如此多的“偶然”正常吗？<br/>
+![img](https://media.gettr.com/group13/getter/2022/01/17/22/ab2c7da9-c0d4-e464-ce50-617fc29cac0e/out.jpg)
+
+---
+
 `@miles 1/17/2022 10:01 PM (UTC)`
 
 1月17号：尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己有尊严和有价值的活着的唯一办法！
@@ -148,12 +155,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第五集：用谎言虚构的故事。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #whoisthebigboss
 ![img](https://media.gettr.com/group36/origin/2022/01/16/12/e0c267a9-346e-c04f-adcb-3bb6d0667940/out.jpg)
-
----
-
-`@miles 1/16/2022 1:12 PM (UTC)`
-
-1月16号：全世界人民很快就会知道了，为什么？【荒凉、无雪的景观（除了虚假的东西）引出了一个问题：为什么冬奥会在北京举行？Miles this is an opening for us？ 】<br/><br/><br/>https://www.dailymail.co.uk/news/article-10406229/Why-DID-Winter-Olympics-Beijing.html
 
 ---
 
