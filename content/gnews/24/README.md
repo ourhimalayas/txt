@@ -2,46 +2,29 @@
 ---
 
 
-## 法国人走上街头，反抗中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1869366/)
+## 小斯基点评VICE采访事件(二)
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1869425/)
 
-作者：银河系农场—骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+```
+整理：雅典娜速记组编辑：陶子
+```
 
 
-
-1月15日，数千名法国人在法国各地的城市举行示威，反对对未接种中共病毒疫苗的人进行更严格的限制，因为议会继续就法律草案进行争吵。 此次参与游行中，人民高呼”对疫苗说不”、”德约科维奇的自由”，并打出“他们想控制的不是病毒，而是你”的标语，游行中人们认为，强制接种中共病毒疫苗是纳粹主义。
-
-据悉两院正在讨论使用中共病毒疫苗通行证的使用范围，可能会在周日通过。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-7.jpg)
-参考信息：
-[Protesters hit French streets to fight new vaccine pass](https://www.france24.com/en/live-news/20220115-protesters-hit-french-streets-to-fight-new-vaccine-pass)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/小斯基点评VICE采访事件（二）-.jpeg)
 
 
+你为什么这散播这些假消息？只要就这么问郭先生，是不是，嗯，大家看着不生气吗？听着不生气嘛？但是你再看一下她的嘴角，她的微表情，她的微动作, 包括在那里做采访，腿像蛇一样的缠起来。她的身体语言已经告诉你了。我接着问你，我就这么侮辱你，在我看来，她就是一个赤裸裸的侮辱，我就上门侮辱你了，怎么样？我这约了你这么长时间，对不对？你不还是接受我采访了嘛。 我到你这个抗议现场去，你第一天没接受我们采访，第二天你还不是来了吗? 来了，你看怎么样，我把你们耍了个团团转。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+她就是这么样一个人，这就是赤裸裸的种族上的歧视。香港就是那个，对吧? 也是，其实也叫华裔。但是他都能干出来这种行为，这背后绝对是跟共产党是 脱不开关系的。那么对于这种人的话，我们能做是什么?我们应该通过怎样的方式来改变这个世界？对于我们这些黄皮肤的华人，特别是中国人，特别是中国大陆来的这些中国人。他们对我们的刻板印象我们应该做一些什么才能去改变? 除了大家普遍这种自扫门前雪，事不关己高高挂起，我把自己的家庭啊孩子啊，给他们挣钱呀，帮他们这个买房子啊，买车呀，给自己折腾这折腾那个。除了 这个之外，你能不能有一点除了物质以外的追求?
 
+*发布：陶子*
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

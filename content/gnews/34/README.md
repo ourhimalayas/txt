@@ -2,35 +2,48 @@
 ---
 
 
-## 上海正式公布在静安寺附近发生确诊奥米克戎感染病例
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1869240/)
+## 文贵先生大直播有感
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1869268/)
 
-作者：健身部 – 阿什莉
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月16日，星期六，上海当地新闻刚刚报道：最新的上海COVID-19集群现已被确认为具有高传染性的Omicron变种。
-正如周五报道的那样，上海宣布了两例本地传播的 COVID-19 病例和三例本地无症状病例。
+作者：纽约香草山农场健身部-杉杉
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0116%2Fdc559a55j00r5saau003fc000w200l9m.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-15.jpg)
 
-他们与周二在该市报告的一例进口无症状 COVID-19 病例有关。
-基因测序现已证实新病例感染了 Omicron 变体，该变体比以前占主导地位的Delta 变体更具传播性。
-病例集中在静安区豫园路一家名为“中国鲜茶”的奶茶铺，该店铺距离上海地铁一号线静安寺站1号出口仅200米。
-上海全市各地开展大规模筛查，截至目前，上海共检测5.4万相关人员； 迄今为止，上海市追踪到的304名密切接触者和2830名次要接触者已经接受了隔离措施。 到目前为止，所有测试均呈阴性。
-输入的无症状COVID-19病例是5例新病例的起源，是一名在美国学习的中国公民，他于12月21日抵达浦东国际机场。
-上海周五还报告了43例输入性感染病例。
-截至发稿时，据中国境内报道中国已确定包括静安区奶茶店在内的19个高风险区域和59个中等风险区域。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+
+
+
+从郭文贵先生的大直播中，听到看到那震撼又令人毛骨悚然的一幕幕。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-60.png)
+从毛魔站在城楼子上那一声吆喝至今，这个邪恶的共产党已经执政走过了整整72个年头！这个恶党的魔头，打着“不信一切牛鬼蛇神，敢与天与地斗其乐无穷”的旗号，牠是天下最能说谎、最违心的唯物主义者！
+
+这个高级骗子及蛇鼠一窝的共产党，强行灌输洗脑民众，让墙民们从小接受无宗教信仰的教育，可这些共产党中南坑里的达官显贵们，哪个不是迷信神佛、朝拜信奉到骨髓里？文贵先生直播中提到的，共产党在昆仑山内部建造的祭坛，建设施工之精美，堪称世界上无与伦比！
+
+文贵先生在直播中提到的秦岭下面都有什么？参与建设昆仑山祭坛大兵们没有出山，人都去了哪里？据历史记载，参与建造秦始皇灵墓的几十万人，为了灭口，无一幸免通通当了陪葬品。想到此，我不禁心惊肉跳、全身冒冷汗地猜想一下：这些参与建设、为共产党续命祭坛的大兵们是否也遭遇了灭口？或软禁或是成了祭品？以个人猜想这不是什么阴谋论！
+
+看看今天的地球世界、人类，被共产党制造投掷的病毒及毒疫苗，严重摧毁了人类身体的健康。人类面临着灭绝的灾难威胁。而中共中南坑里的僵尸们，为了给自己续命，显然什么样恶毒残忍的手段都能干的出来。
+
+*校对/编辑/发稿: Amanda艾曼达*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-18.jpg)
+
+
 
  
 
