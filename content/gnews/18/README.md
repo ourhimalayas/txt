@@ -2,30 +2,20 @@
 ---
 
 
-## 中共多地政府要求低风险返乡民众集中隔离并自费食宿
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1872526/)
+## 秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1872675/)
 
-撰稿：纽约香草山教育部- Noemi
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-当地时间1月17日，“开封一刀切”的微博话题就被顶上墙内热搜。据了解，河南省开封市于今日突然宣布了一条最新的防疫政策，要求来自郑州低风险地区的返封人员也需进行14天的集中隔离并自费食宿。这条“一刀切”式的政策当即引起了大量需要双城生活的民众的强烈抗议。
+撰稿：西枫westca
 
-然而，开封市政府的这一“霸王条例”却并非个案。近期，中共国内的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都纷纷出台了要求来自低风险地区的返乡人群也必须要进行集中隔离的相关政策，并要求被隔离人员为自己隔离期间产生的一切费用买单。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-10.jpg)图片来源：网络照片
+据新浪网1月17日报道，北京市新冠肺炎疫情防控工作新闻发布会通报， 在对北京新增病例进行了流行病学调查、采样检测、阳性货物排查和基因测序后，溯源结果与北美和新加坡毒株相似度较高。
 
-据悉，当前中共国的返乡人群主要为大学生群体。目前，已有多名被隔离的大学生都对14天隔离期所产生的高昂的隔离费用表示担忧。有学生称，此条政策属实是当地政府在“割韭菜”，但大家对此却无能为力。 (已编辑)
+病例发病前14天内无外省市旅居史，仅在工作期间接收过来自加拿大的国际邮件。经过测试，该邮件的外包装、内表面和文件内纸张，核酸检测均为阳性，并检测出奥密克戎异株特异性突变位点。 中共国国家邮政局同时发出通知，切实固牢国际邮件快件防控屏障，严防境外疫情通过寄递渠道输入。
 
-1[https://www.toutiao.com/a7053334957510427140/?channel=&source=search\_tab https://www.gettr.com/post/possbb4f46 https://www.toutiao.com/w/a1722187358499907/?traffic\_source=&traffic\_source=&in\_ogs=&in\_ogs=&utm\_source=&utm\_source=&source=search\_tab&source=input&utm\_medium=wap\_search&utm\_medium=wap\_search&original\_source=&original\_source=&in\_tfs=&in\_tfs=&channel=&channel=](https://www.toutiao.com/a7053334957510427140/?channel=&amp;source=search_tab%20https://www.gettr.com/post/possbb4f46%20https://www.toutiao.com/w/a1722187358499907/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
+此两则新闻的出现，其荒唐让人啼笑皆非，我们看到中共在世人面前造假程度真是登峰造极！ 且不说国际邮件经过收件、空中飞行、过海关至收件人， 居然能查出纸张测试阳性！不知奥密克戎病株是有多么顽强。 其本质就是要让新一轮的病情爆发甩锅给西方，为闭关锁国做足舆论准备。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[北京15日新增病例溯源结果公布 与北美和新加坡毒株相似度较高|新冠肺炎|北京|新加坡\_新浪新闻 (sina.com.cn)](https://news.sina.com.cn/zx/2022-01-17/doc-ikyakumy0845909.shtml)
 
  
 

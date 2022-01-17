@@ -2,30 +2,30 @@
 ---
 
 
-## 以色列财政部长确诊 已接种4剂疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1872797/)
+## 瑞士信贷董事长因涉嫌违反新冠防疫规定辞职
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1872848/)
 
-**撰稿：日本东京方舟农场  老孙**
+**撰稿：日本东京方舟农场  葛大饼**
 
-1月15日，以色列财政部长李柏曼（Avigdor Lieberman）宣布确诊感染中共病毒，并表示身体没有感觉不舒服，将会隔离在家工作。他在本月10日刚接种第4剂疫苗。
+据《Euro News》1月17日报道，瑞士信贷银行董事长安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在一次内部调查后已经辞职，据称调查发现他违反了对抗新冠（中共病毒）大流行病的检疫规则。
 
-以色列是全球接种疫苗步调最快，也是唯一一个开始接种第四剂的国家以色列卫生部2021年12月下旬开始接种第4剂，本月开放60岁以上民众接种。以色列卫生部声称加强针（第3剂）注射后7天就能增强保护力，并且没有公布第2剂加强针（第4剂）的效力证明或相关数据。
+据瑞士媒体报道，安东尼奥·奥索里奥（Antonio Horta-Osório）违反了检疫规定，包括12月前往英国，以及在夏天参加温布尔登网球赛的旅行，在奧米克戎变种病毒出现后，他乘坐私人飞机从英国返回，没有遵守瑞士对来自一些国家的旅行者实施的检疫规则。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1.jpg-18.png)图片取自路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-254.jpg)图片来自FT中文网
 
-但据《国土报》报道，以色列周五（1月14日）的重症患者创下近3个月来新高。自疫情以来，人口仅970万的以色列已累计确诊170万例、逾8000人病逝。
+安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在银行的一份声明中说：”我很遗憾，我的一些个人行为导致了银行的困难，损害了我在内部和外部代表银行的能力， 我的辞职符合银行及其利益相关者的利益。”
 
-此外，以色列外交部长拉皮德（Yair Lapid）1月10日也宣布确诊感染中共病毒。目前，以色列接种的疫苗以辉瑞（Pfizer）为主。
+据悉安东尼奥·奥尔塔-奥索里奥（Antonio Horta-Osorio）在2021年4月底开始担任瑞士信贷董事长。这是这家顶级瑞士银行的最新动荡，该银行最近面临一系列麻烦，包括对冲基金的不良赌注和内部间谍丑闻，此前瑞士信贷因英国银行Greensill的破产和美国基金Archegos的倒闭也曾受到影响。
+
+瑞士信贷称，阿克塞尔`·莱曼（Axel Lehmann） 将接替安东尼奥-奥索里奥（Antonio Horta-Osório）。
 
 *参考链接：*
 
-[接种四剂疫苗仍确诊 以色列财长染冠病](https://www.zaobao.com.sg/realtime/world/story20220116-1233476)
-
-[接種4劑還是躲不掉　以色列財政部長確診新冠肺炎](https://tw.appledaily.com/international/20220116/CFUXE4RJ4BH4DIMXPYM2XOGKZU/)
+[Antonio Horta-Osorio: Credit Suisse chairman resigns after allegedly breaching COVID restrictions](https://www.euronews.com/2022/01/17/antonio-horta-osorio-credit-suisse-chairman-resigns-after-allegedly-breaching-covid-restri)
 
 * * *
 
-*素材采编：老孙*
+*素材采编：葛大饼*
 
 *编辑：文顺*
 
