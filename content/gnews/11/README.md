@@ -2,27 +2,25 @@
 ---
 
 
-## 新州卫生局证实近千名工人因拒绝接种新冠疫苗后被免职
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1870328/)
+## 微软称乌克兰政府机构的计算机系统被感染了恶意软件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870343/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-53.jpg)图片来自网络
-澳媒《7 News》近日报道，澳大利亚新南威尔士州卫生局已确认其近 1000 名员工在拒绝接种新冠疫苗后已被停职或辞职。
+#### 撰稿：彩虹
 
-就在州长多米尼克·佩罗特宣布该州的医护人员接受加强针注射的新任务几天后，卫生部门承认已有 325 名工作人员辞职，670 名被停职。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-2.jpg)图片来源：印度时报
+1月16日，《国会山报》报道，周六，微软宣布，与乌克兰政府、机构和组织有关的几十个计算机系统被感染了恶意软件。
 
-“截至 2021 年 12 月 23 日，新南威尔士州卫生部可以告知，在其约 170000 名全体员工中，约有 0.2%（325 人）因新冠疫苗接种问题而辞职，”新南威尔士州卫生部发言人说。
+微软在一份声明中说，最初在周四检测到的恶意软件被伪装成勒索软件，但如果被攻击者激活，就会感染计算机并使其无法操作使用。声明说，在“几十个受影响的系统上检测到该恶意软件，随着我们调查的继续，这个数字可能会增加。这些系统横跨多个政府、非营利组织和信息技术组织，全部位于乌克兰”。
 
-“此外，由于他们在新冠疫苗方面的立场，现在约有 670 人（0.4%）停止了在新南威尔士州卫生部门的工作。”
+据官员称，周五，“一场大规模网络攻击”攻破了一些乌克兰政府网站，导致一些机构网站被暂时关闭。据报道，黑客写下的信息包括“害怕吧，会更糟糕”和 “有关你的所有信息都已公开，害怕吧，会更糟糕”。
 
-“这些前职工包括临床和非临床员工。”
+对于黑客组织的来源，文章报道，乌克兰国家和国防委员会副秘书谢尔盖·德米杜克（Serhiy Demedyuk）告诉《路透社》，乌克兰方面认为一个与白俄罗斯情报部门有关的黑客组织是破坏政府网站和利用恶意软件的幕后黑手，初步认为是一个名为UNC1151的组织参与了这次黑客行动。
 
-阳性病人自我隔离七天后可以工作，而没打新冠疫苗的阴性病人却要辞退，这到底是什么逻辑？而且新冠疫苗不阻隔传播，只是降低重症率，这是目前官方的说法吧？那么问题来了，这些医护人员只是让自己的风险更大（重症的可能性），也并不会导致传播更严重，有何不可呢？这不正是，该给的自由（在不太影响整体利益的前提下决定自己选择哪种风险去承担）不给，该遵守的规则（影响整体利益而且大多数人赞成），比如戴口罩，却又不能强力执行。所以澳洲政府这又是哪门子逻辑呢？
+**新闻来源**
 
-参考链接：
+[Ukraine government agencies’ computer systems infected with malware, Microsoft says](https://thehill.com/policy/cybersecurity/589934-ukraine-government-agencies-computer-systems-infected-with-malware)
 
-[https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105](https://7news.com.au/lifestyle/health-wellbeing/nsw-health-confirms-nearly-1000-workers-have-been-removed-from-their-duties-after-refusing-the-covid-19-vaccine-c-5320105)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
