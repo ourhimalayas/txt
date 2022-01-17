@@ -2,27 +2,34 @@
 ---
 
 
-## 新中国联邦在美最高法院的判决中举足轻重
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1871571/)
+## 科顿参议员呼吁美国全面抵制中共冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871578/)
 
-采编/编译撰稿：Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-5.jpg)
-据《CNBC》1月13 日报道，美国最高法院当天最终否决了拜登政府对大中型企业所执行的疫苗强制接种规定，该裁决涉及到近1亿美国人，全国众多商业企业因此获益。
+作者：纽约香草山 Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月16日，郭文贵先生在盖特转发汤姆·科顿参议员的电视采访。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.17.png)
+汤姆·科顿是阿肯色州的参议员，他一直主张美国全面抵制中共冬奥会。在访问中，他指出，中共的隔离手段令人震惊——全天候的电子监控、DNA信息被采集、公然的拘留或绑架——这些都对美国运动员的安全造成威胁。据美国奥委会所言，运动员若被检测出中共病毒呈阳性，就会被隔离，而被隔离时间由中共卫生官员决定。
 
-报道称，自总统拜登强推“新冠病毒”疫苗强制接种政策以来，一直面临着大量反对诉讼。目前，共有27个州的共和党总检察长或州长、宗教团体和全国零售联合会、美国卡车运输协会等全国性行业组织及企业参与了对该行政命令的法律诉讼。
+当下，美国运动员所面临的风险又增加了一项：假设一个未染疫的健康运动员，因违反中共极为严酷的封锁政策而被中共逮捕，美国政府不可能真正保证美国运动员的安全。
 
-对此，文贵先生在1月14日GTV直播节目中指出，美国最高法院的以上裁决意义重大，
+因此，科顿议员呼吁，从一开始就不该把美国年轻运动员置于这些危险之中，美国政府应该全面抵制中共冬奥会，以保证美国运动员的安全。由于奥米克戎疫情蔓延，应当像东京奥运会一样，把冬奥会延期一年。并且，冬奥会应该被重新竞标，在其它安全、自由和民主之地召开。
 
-并因此真正开启了在全球范围内针对中共病毒及其疫苗真相的重新调查，以及停止疫苗接种和废除疫苗护照等运动的先河，而新中国联邦在其中起到了主导和决定性的作用。
+参考链接：[https://gettr.com/post/pont4fc6b3](https://gettr.com/post/pont4fc6b3)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-发稿： 苦尽甜来 (文來）
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[原文链接](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html)
-
-[新闻连接](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

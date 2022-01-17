@@ -2,32 +2,26 @@
 ---
 
 
-## 中印边境紧张局势仍在持续
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1871576/)
+## 【#G时新闻】美国最高法院阻止了对企业的中共病毒疫苗强制令
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1871583/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月16日盖特信息，印度媒体报道，印中正在举行第14轮高级军事指挥官级别的会谈，其目的是解决两国在拉达克东部的摩擦。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-17-上午8.56.02.png)
-报道称，印度期待建设性对话，能够促进争议问题有所进展，并坚持要求在拉达克东部地区的局势降级，特别是在德布桑和德姆查尔等地，大规模军事集结仍在进行。在2020年达拉克黄金谷的冲突中，双方均有数人丧生。印度陆军总司令马诺伊·纳拉瓦内表示，战争永远是最后的手段，但如果需要，印度将从冲突中取得胜利。
+加拿大温哥华扬帆农场 播报： 文广 视频制作: Geacelshan
 
-截至目前，印中之间已经举行了13轮会谈，但是，双方都未能在会谈中取得任何进展。去年10月10日举行的第13轮会谈，因中共不同意印度的要求，双方会晤在僵持中结束。虽然双方在很多热点地区已经不再对峙，但两国之间的紧张局势仍在持续。
+据合众国际社1月13日报道，周四美国最高法院阻止了总统乔·拜登对大型私营企业的中共病毒疫苗或测试强制令，但允许对接受联邦资金设施的医护人员提出疫苗要求。最高法院以六票对三票反对疫苗强制令，布雷耶，索托马约尔和卡根持反对意见。
 
-参考链接：[https://gettr.com/post/pola092406](https://gettr.com/post/pola092406)
+职业安全与健康管理局在11月发布的强制令，要求拥有100名或以上员工的企业的工人接种疫苗或每周提交中共病毒的阴性测试。它还要求未接种疫苗的工人在室内必须戴上口罩，但对有宗教信仰的工人和在家工作的员工有例外。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+法院裁决说：“尽管国会无可争议地赋予职业安全与健康管理局有监管职业危险的权力，但他没有与该机构更广泛的监管公共健康的权力。”“要求8400万美国人接种疫苗，仅仅是因为他们为雇员超过100人的雇主工作而被选中，这当然属于后面的范畴。”
 
-总编：Jack Li文阳
-编辑：Delilah小胖
-校正/发稿：呼吸的雾霾（文小呼吸）
+在投票之前，倾向于保守的法官们表示，他们不相信总统乔·拜登有权责成职业安全与健康管理局对拥有100名或更多雇员的公司执行这一任务。不过最高法院允许对接受医疗保险或医疗补助金的医疗机构实施类似的任务。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对医疗人员的疫苗强制令的投票结果是五比四。
+
+盖特：[https://gettr.com/post/pocior45ca](https://gettr.com/post/pocior45ca)
+听写/翻译：LuLu1312
+字幕：圣骑士
+编辑/上传：七觉花
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
