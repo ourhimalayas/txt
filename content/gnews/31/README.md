@@ -2,37 +2,28 @@
 ---
 
 
-## 有声|加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1870227/)
+## 【中日财经爆】日经产相访泰 双方签署备忘录促合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1870241/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，加拿大国防部已对900多名未接种中共病毒疫苗的加拿大武装部队成员提起了诉讼。据悉，此前加拿大国防部参谋长要求，2020年10月前加国军人需全面接种中共病毒疫苗，现该日期被延后至12月中旬。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1335.png)[图片来源](https://nikkantb.com/economy/338226/)
+13日，日本贸易振兴机构（JETRO）曼谷办事处，与泰国投资委员会（BOI）、经济特区（SEZ）“东部经济走廊（EEC）”EEC秘书处、泰国汽车行业研究所（TAI）缔结并修定了相关备忘录。
 
-目前，加拿大军人的中共病毒疫苗接种率为98.3%。截止12月底，已有超过830名武装部队成员因未接种疫苗而受到正式警告，另外100名未接种疫苗的军人受到了正式审查，有44名军人被迫选择离开军队，曾有军人在法庭质疑强制接种疫苗被驳回。
+与BOI签订备忘录，与EEC秘书处的备忘录作了修改，以便进一步深化与这两个机构的合作，促进日本企业尤其在EEC地区的投资。此举目的是为两国的重要政策做出贡献，在日本和泰国之间建立更强大的供应链，以及协助促进泰国制定BCG（生物/循环/绿色）政策。
 
-原文链接：[加拿大国防部对900多名未接种新冠疫苗的军人提起诉讼](https://gnews.org/zh-hans/1867560/)
+修订与TAI的备忘录。双方将就日本和泰国汽车相关企业，在电动汽车和自动驾驶等下一代汽车领域加强对话与协作，旨在进一步深化合作，促进两国实现去碳化。
 
-音频处理/发稿：Daxia
+在经济产业大臣萩生田光一访问印度尼西亚、新加坡和泰国之际，日本政府于本月5日宣布了“亚洲未来投资倡议”，为后疫情时代的亚洲经济合作指明了方向。JETRO曼谷办事处已经与这三个机构签署并修订了相关合作备忘录，也旨在实施该倡议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+JETRO曼谷办事处官员表示，多年来，日方一直与这三个机构密切合作，为发展双方的经济关系而努力。借经济产业省部长萩田氏访问泰国的机会，根据新的政策方向，重申了日方密切合作的承诺。
 
-**更多资讯，更多关注**
+BOI总干事也表示，泰国拥有丰富的生物原料、优秀的人力资源、研究系统、基础设施和物流网络。期待日本通过加强合作对BCG领域进行进一步的投资。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息源：[【タイ】ジェトロ、投資委やＥＥＣなどと連携強化](https://news.yahoo.co.jp/articles/be5121e9e7f7dc382f4f019057d2e957c6265e84)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

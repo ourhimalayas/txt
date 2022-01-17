@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|美国国民警卫队、联邦军队帮助俄亥俄州应对新冠病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1870251/)
+## 金正恩本月第四次发射疑似弹道导弹
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1870281/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-1月13日，鉴于俄亥俄州中共病毒的严峻形势，该州州长宣布，将部署2300名国民警卫队，支援该州15个测试地点。其中，大约200名警卫员提供医疗支持，另外2100人帮助进行检测，提供食品服务，对住院患者进行运输和管理。
+#### 撰稿：彩虹 
 
-当天，拜登总统也宣布，计划向包括俄亥俄州在内的六个重灾州派遣医疗队。其中，一个由美国空军护士、医生和呼吸治疗师组成的团队正在前往克利夫兰诊所。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-1.jpg)图片来源：CNN
+1月17日，据《国会山报》和《新闻极限》报道，周一，韩国和日本的官员说,朝鲜向海里发射了至少一枚疑似弹道导弹，这是朝鲜本月第四次发射武器。
 
-原文链接：[美国国民警卫队、联邦军队帮助俄亥俄州应对新冠病毒](https://gnews.org/zh-hans/1867382/)
+韩国参谋长联席会议没有立即说明该不明武器是否为弹道导弹或告知其飞行距离。日本首相办公室说，它探测到朝鲜可能发射了弹道导弹，但没有立即提供更多细节。
 
-音频处理/发稿：Daxia
+日本海岸警卫队发表声明，敦促在日本海岸附近行驶的船只注意坠落物，但没有关于船只或飞机立即受损的报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+据报道，在这次发射之前，朝鲜在1月5日和1月11日进行了两次据称是高超音速导弹的飞行试验，并于周五从一辆火车上试射了弹道导弹。
 
-**更多资讯，更多关注**
+在发射前几天，美国财政部制裁了五名朝鲜人，称他们负责为平壤的弹道导弹计划采购货物，拜登总统呼吁联合国安理会将这些朝鲜个人和实体列入黑名单，此举被这个独裁国家称为“挑衅”。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+一些专家说，朝鲜领导人金正恩正在重新使用一种常胜不败的技俩，即在进行谈判以取得让步之前，先用导弹发射和令人愤怒的威胁来向美国和该地区的邻国施压。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+文章认为，在川普政府拒绝了朝鲜以交出部分核能力作为条件，交换重大制裁减免要求后，由美国主导的旨在说服朝鲜放弃其核武器计划的外交努力于2019年宣告失败。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+此后，尽管该国的经济在与中共病毒（COVID-19）疫情有关的边境关闭和美国主导的持续制裁中遭受了重大挫折，但金正恩发誓进一步扩大核武库，因为他显然认为这是自己生存的最有力保障。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[North Korea reportedly fires missile in fourth test this month](https://thehill.com/policy/international/asia-pacific/589974-north-korea-reportedly-fires-missile-in-fourth-test-this)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[N.Korea Fires Unidentified Projectile](https://www.newsmax.com/world/globaltalk/projectile/2022/01/16/id/1052648/)
 
  
 
