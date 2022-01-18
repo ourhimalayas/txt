@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 3:42 PM (UTC)`
+
+1月18号：尊敬的战友们好，感谢很多战友为我和b八弟修复照片和制作的视频，万分的感谢！🙏🙏🙏🙏🙏🙏🙏🙏🙏共产党的内部政治斗争和冬奥会的残局……将会带来什么？太平联盟的官司五年来一直和共产党攻击爆料革命的偶然行动：同步进行，这个背后的故事到底是什么？明天直播我们好好聊聊，一切都已经开始！
+![img](https://media.gettr.com/group38/getter/2022/01/18/15/3ae3c144-2169-1f36-66c3-4b7ba87fee0b/out.jpg)
+
+---
+
 `@miles 1/18/2022 9:05 AM (UTC)`
 
 1/17/2022 Miles Guo: The judge in the Pacific Alliance case did not allow us to choose jury trial and gave a huge fine to Lady May, which is not even owned by myself, and the adverse party provided more than 70,000 pages of evidence and over 300,000 pages of documents to overwhelm us, turning the lawsuit about the $30-million loan into the one costing hundreds of millions of dollars in legal fees. The Pacific Alliance admitted that the principal and interest of the loan were paid off, but why did the Beijing police want to assist them to deal with this case?<br/><br/>1/17/2022 文贵直播：太平联盟案的法官不许我们选陪审团审判、给并非文贵所有的Lady May开巨额罚单，对方提供7万多页的证据和30余万页的文件，3000万的官司却要花费上亿律师费；太平联盟承认借款的本息均已还清，但北京警察为何要协助他们处理本案呢？<br/>
@@ -147,13 +154,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 1/16/2022 Miles Guo’s GETTR: Snow will be artificially made for the Winter Olympics, the CCP's forgery ranks No. 1 in the world. The hatred and ignorance instilled in people by the CCP makes their decisions worse than what animals can do. People will inevitably pay the price for being in cahoots with the CCP, and the year 2022 is going to be the darkest year for humanity!<br/><br/>1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流；中共灌输给人们的仇恨与无知让他们做的决策比畜生还可怕；与中共为伍必将付出代价，2022年是人类最黑暗的一年！<br/>
 ![img](https://media.gettr.com/group50/getter/2022/01/17/00/a79921d3-7e74-0962-c6a4-24b2424a56c5/out.jpg)
-
----
-
-`@miles 1/16/2022 11:21 PM (UTC)`
-
-1/16/2022 Miles Guo’s GETTR: Brothers and sisters must be careful not to catch the CCP virus! Those who were forced to make confessions on TV in Zero Tolerance are the same people who invented the forced confession on TV! All forced confessions broadcast on TV are fake, and every detail was arranged by the CCP!<br/><br/>1/16/2022 文贵盖特：兄弟姐妹们千万要小心，不要染上病毒！在《零容忍》中电视认罪的人恰恰是发明电视认罪的人！所有的电视认罪都是假的，一切细节都是共产党安排的！
-![img](https://media.gettr.com/group23/getter/2022/01/16/23/7deb054e-3dd1-28ae-e727-c1cb043b8f54/out.jpg)
 
 ---
 

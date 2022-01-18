@@ -2,43 +2,32 @@
 ---
 
 
-## 经历政治经济威胁和病毒灾难的西方必找共产党作替死鬼
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875898/)
+## 郭先生分析行政命令与法律的本质区别
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875937/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e6ab0d87664c47acd648b5](https://gtv.org/video/id=61e6ab0d87664c47acd648b5)
+作者：纽约香草山信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月14日大直播中，谈到行政命令与法律时，郭先生分析，法律一词源于西班牙帝国时期“笔直”的本义，即大多数人认可的笔直的规矩，是“民天下”政府与平民及社会实体之间的契约。意味着任何突出的特权的越位都要被砍掉，其使命是铲除贪婪、嗔恨、邪恶和凶恶，是法治的基石，民主和自由的护身符。而行政命令是独裁者个人意志的体现，是“家天下”统治的工具，是人治社会的箩筐。任何不符合统治者意志的行为都可以往里面放。法律充满程序正义，行政命令毫无程序正义可言。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-56.jpg)
+法律是民主国家永恒的王道，行政命令是独裁国家维持统治的利器。虽然民主国家在紧急情况下，国家元首也可发布行政命令，但其执行的范围和力度都将广受质疑和限制，其执行的时间有限或最终被法律废止。美国有名的律师Edward Moss在代理PAX公司缠讼郭文贵先生案件中，即因利益冲突违反职业操守，而被法院裁定解除代理关系。
 
-**郭文贵先生：**更重要的事情，共产党也帮了我们，他那么多年不准有反对的声音，不准有一……不准有一党，不能有其他党派，只剩了我们一家，现在我们就成了唯一了。更重要的大家要看到，西方知道经济威胁，和政治威胁，和生命威胁、社会威胁，所有这些最后终结完，疫苗灾难和病毒灾难，最后找到一个替死鬼子，只有共产党。
+中共在1949年执政前认定自己的游行抗议、印发报纸、自由言论等都是正义的民主活动，当其执政后却用行政命令将这些民主活动，一一列为反党、反社会、反国家行为被执法。为妆点门面，中共在宪法中装模作样写着保护基本人权。其挂羊头卖狗肉的做法，表明中共的虚伪和对法律的惧怕。
 
-这一系列的弄完，我们看到北欧和俄罗斯和中共之间在东欧：萨克、哈萨克斯坦、哈尔扎耶夫家族，拉莫赫夫的江泽民的亲干儿子是吧，然后昆仑山脉的出卖、印度洋、整个中东石油的较量，和俄罗斯之间的分开，这都是在我们两三年以前都在预料在2025年发生。现在看来今年都会发生。
+参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-编辑整理：Jacques；
+总编: Zion文恩
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

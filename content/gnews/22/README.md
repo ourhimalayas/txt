@@ -2,58 +2,39 @@
 ---
 
 
-## 习近平与江泽民曾庆红的厮杀注定爆料革命成为最后赢家
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875936/)
+## 预防奥米克戎，以色列四剂疫苗效果“微不足道”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1875966/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e6abd387664c47acd648ea](https://gtv.org/video/id=61e6abd387664c47acd648ea)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-268.jpg)图片来源：墨尔本雅典娜农场设计组
+整理报道：不要代表我Kari
+编辑：文泓
 
-**郭文贵先生：**另外一个这20大内部的较量，你可以看得出来，内部的较量现在绝对不是，你能是一般人能想象的，只有像我和海东兄弟、颖妹妹，是吧？跟共产党这些人真的是，接面对面的接触过的，你才有感受到。共产党内部是绝对这场斗争，江家非常清楚和曾家，只要让习过了二十大，一定把江曾家灭了，什么王岐山、孟建柱肯定都灭了。习也知道，我过不了二十大，他肯定把我家祖坟都给挖了。
+当地时间1月18日，据RT电视台报道，以色列的一项研究表明，新冠疫苗加强针不能有效防止大规模人群感染新冠病毒。
 
-这两之间较量是一定有一派倒下的，但我不相信这是哪一派能决定说谁倒下，但哪一派倒下，可能都是双方都亡。这就是爆料革命从头到尾都说的，真正的所有的历史证明了一条，参与战争的双方没有赢家，打扫战争的才是最后的赢家。
+根据在以色列进行的一项试验，第四剂冠状病毒疫苗对奥米克戎变种病毒的效果越来越差，其中一位主要研究人员说，这种免疫接种的效果“根本不行”。
 
-而且天意、民心、天机都在我们这，咱想不赢都不行，现在看来咱想不赢？咱回去睡觉去？想不赢都不行。你小飞象你不要看你，政治庇护这个时间，这是一个完全美国人，一个独立的官员做出的决定，你在1年前，在4年前、5年前你是个笑话。
+在特拉维夫希巴医疗中心，一项涉及154名医务人员的研究发现，与之前的突变相比，辉瑞疫苗第四针只对预防奥米克戎病毒株提供微不足道的保护；另一组120名志愿者在使用辉瑞公司的三剂疫苗注射后，也接受了莫德纳公司的第四针疫苗接种，但二组接种后的免疫反应也类似。
 
-像塞浦路斯这件事情，登出这些报纸，那不是说你花多少钱能做的，就像一年前你要Joe Rogan出来怼我们，人家搭都不搭理你？像419事件时候，你说叫Joe Rogan来怼我们两下吧，看他搭理你不？我不搭理你，是吧？所有的一切，兄弟姐妹们，咱想不行都不行。
+*“（接种后）我们看到了抗体的增加，有高于第三剂疫苗接种后的抗体。然而，我们看到许多感染了*奥米克戎*变种病毒的人都已接种了第四剂疫苗”，该试验的首席研究员吉利·雷格夫·约哈伊说，该疫苗对*奥米克戎*变种病毒而言“效果并不理想”。*
 
-就这一句话等着吧，千万别在赢面前，失去了自己。走向冠军奖杯的人，不是最后坚持20秒，还有一个最重要的人有脑子，运动员、跆拳道，什么这拳道，最后全是用脑袋来决定的输赢，而从来不是用手和脚的，不管是踢球的还是玩大球、小球的，都是这个结局。
+尽管有了这些新的发现，以色列卫生官员仍然在本月早些时候开始为老年人、免疫力低下的人和医务工作者接种了第四剂加强针。截至周日，约有500,000人在最初的两剂疫苗方案基础上接受了第二次疫苗加强针进行免疫。
 
-我们千万别输在这儿（指着脑袋），该我们赢了，到现在我们不赢都不行的时候，你别傻了。
+据《以色列时报》报道，尽管该试验仍处于早期阶段，医院也没有提供具体数字，但*雷格夫·约哈伊*说，她将初步结论公之于众，因为疫苗加强针是一个“公众高度关注”的问题。
 
-G-Clubs抽奖，新G-TV投资，还有我们这一切G-Fashion，现在你穿着身上的G-Fashion。你看看现在小飞象，我就没见她穿过那么好看衣裳过，我不觉得她穿任何一个衣裳好过G-Fashion反正我。
+世界卫生组织和欧盟的药品监管机构——欧洲药品管理局都对过度接种疫苗加强针提出了警告。据当前观察，一些国家正在推进第三剂和第四剂的疫苗接种，而许多较贫穷国家则刚刚开始接种第一剂疫苗。
 
-包括东弟、颖妹妹，她俩穿任何衣裳，都没有G-Fashion那么好看的。现在你看这个长岛哥的衣裳，这是七哥给他的西装，唯一衬衣是他自己买的，就是这里唯一不好看的。像铲共光赚钱了，你也不弄点G-Fashion弄上，是吧？
+作为世界上接种新冠疫苗最多的国家之一，以色列率先推出第四剂疫苗，因为与奥米克戎变异毒株相关的冠状病毒感染人数大幅增加。然而，最近几个月的死亡和住院人数只出现了轻微的上幅，这与发现最新的“令人担忧的变种”产生的症状比以前的变种更温和的研究结果一致。
 
-我们的一切，就是有一切什么都是最好的，你干嘛做个最坏的选择呢？干嘛去撒一次谎，造一次假呢？是不是？永远记住在这个时候不要有那小私心。所有的魔，变成魔都是小鬼逐渐……因为小鬼的演变，变成了魔。所有的独裁、所有的妖，是因为好人的纵容变成了妖，还有就是一些绝大多数无知的人造就了魔鬼，我们千万别当那些小人物、自私的人，别（当）那个鼠目寸光的人，看得稍微远一点，2025年，咱们一切都分晓了，有什么呢？为什么不能到那个时候呢？是不是？
+新闻链接：[Israel finds 4 Covid vaccine jabs ‘not good enough’ against Omicron — RT World News](https://www.rt.com/news/546337-israel-omicron-booster-trial/)
 
-你看小飞象当时有多少事发生，你们光看到她成功的那一面，你看过她怀疑、犹豫、被打击的一面了吗？这么小个孩子她能坚持过来，不是开玩笑的。
+发布：去中心化Math
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
