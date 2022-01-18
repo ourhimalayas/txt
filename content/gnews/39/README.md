@@ -2,28 +2,28 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1872225/)
+## 2022.1.17 文贵直播：我有一个梦想
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1872623/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图像-14.jpg)
+来源：网络
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-16.png)
-文章仅代表作者本人观点，与Gnews无关
+今天是马丁路德金的纪念日(MLK DAY)。他主张以非暴力的公民抗命方法争取非裔美国人的基本权利，而成为美国进步主义的象征。1963年，金在林肯纪念堂前发表了《我有一个梦想》的著名演讲，从而使美国成为了追求自由民主法治的人的天堂和目的地。郭先生称他改变了整个美国民主的进程，是人类黑暗历史中的一盏明灯。
 
-视频参看：[2022.01.17早GTV新闻访谈](https://gtv.org/video/id=61e56f01a0fd8e5c735ae9ed)
+但是，中国能出一个马丁路德金吗？会一开始就用道德把你一切毁掉。在印尼残杀50万华人，共产党第一反应就是这些华人该杀。马丁路德金，能出现在印尼？能有一个有勇气的人坚持五年吗？中国人生生死死一百亿，没有出现马丁路德金的可能。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+5年前，郭文贵先生带着推翻中共，带给中国法治民主的理想来到美国——这个世界上代表最高标准自由民主法治的国家，就遇上了旷日持久的法律超限战。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-11.jpg)
+郭先生选择了这个特殊的日子讲述自己在美国和共产党操纵的太盟案子的较量，意义非常深远。法院是美国最高法院，律师是美国顶尖律师。马丁路德金说，最可怕的是侮辱，羞辱，和时间的煎熬。郭先生对此感同身受。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+中国人生生死死上百年，从未有一人，在美国，用生命和鲜血，和中共斗争。但是，今天出现了郭文贵先生，他带着我们一起去体验战斗的经历。自由、民主、法治从来不会从天上掉下来，美国也不会施舍給我们华人，只有越来越多的华人站起来抗争，我们才能为自己和后代争取到我们的权利。
+
+来源：
+
+[郭文贵先生2022.1.17直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
+
+
 
  
 

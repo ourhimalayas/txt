@@ -2,30 +2,25 @@
 ---
 
 
-## 中共国去年人口出生率创建国以来最低
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1873352/)
+## 伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(二)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-24.jpg)中共国去年人口出生率创建国以来最低 网络图片
-据美国之音1月17日报道，中共国统计局17日公布数据，2021年全年中共国人口出生率创建国以来最低，出生人口为1062万，比2020年少140万。
+#### 整理：雅典娜速记组
+编辑：陶子
 
-2016年，北京取消强制推行了几十年的独生子女政策。2021年5月，政府宣布了三孩政策，但是中共国生活成本高，养育子女成本更高，出生率依然持续下降，而且人口性别持续失衡。
-
-中共违反自然规律，通过残酷的计划生育政策杀掉了四亿多婴儿，其中绝大多数是女婴。中共治国无方，扰民有术，高房贷、高昂的生活成本和医疗费用令老百姓的生活苦不堪言，年轻人不愿意结婚，更不愿意生育，老年人的晚年生活没有保障。中共国怨声载道，全民躺平，生育率自然连年下降。邪恶至极的病毒和疫苗毁掉了无数年轻人的生育能力，中华民族真正是到了最危急的时候，面临着全民种族灭绝。只有推翻共产党，实现民主、法治，应天顺人，花开花落，繁衍生息，中华民族才能继续生存下去。
-
-新闻参考链接：[https://www.voachinese.com/a/china-birthrate-20220117/6399751.html](https://www.voachinese.com/a/china-birthrate-20220117/6399751.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害（二）-.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+Nicole：然后我就把这个截屏给他发了，我说这是我给你发的，而且我跟你讲的很清楚,这个活动！是Chinese American Alliance for Trump！是他们组织的一个活动，而且全美各地那一天有很多的美籍华人，他们都是公民，有从加州从Michigan从美国各个地方飞到那边去的。这个组织是一个草根组织，跟郭先生没有半毛的关系！我说你为什么把所有美国的华人，就是那天去的都说成是暴徒？而且放在一个诋毁郭先生的纪录片里面？我说我理解不了这件事情，后来我就给她发了这个那个WhatsApp，然后她就把他她的头像给拿掉就跑了。她到现在也不回我，所以这个事情我觉得如果在电视机前面看到这个片子的，那天去的美国华人，你们都应该为这个事情 感到非常concern,因为在那个杨贝贝的纪录片里面，你们已经被说成了是一群冲击美国国会的暴徒。所以呢，我是觉得这件事情真的是我很难去想象, 就是她为什么会做出这种事情？因为我去她的那个推特和微博上，还有她的那个IG，上面都有账号，大家都可以去看一下。杨贝贝，她说，嗯! 因为之前她为了赢得我的信任，她说她是half Chinese。她说她爸爸是华人，然后她爸爸那个时候从中国坐着个小船，逃到英国，就是为了养家糊口,开餐馆，然后把她和2个兄弟养大，然后供他们上大学，她很为她的父亲感到骄傲和自豪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*发布：陶子*
 
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

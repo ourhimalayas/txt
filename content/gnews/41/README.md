@@ -2,38 +2,25 @@
 ---
 
 
-## 有声|丹麦指控来自中共国间谍威胁升高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1872016/)
+## 澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872380/)
 
-配音：香草山教育部 – 百香果
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011602.jpg)网络图片
+昆士兰于当地时间1月17日记录了 15,122 例新的 CCP病毒感染案例和另外 7 例死亡，这是该州大流行中最致命的一天。
 
+7名不幸离世的死亡病例年龄皆在80岁以上，且均有其它健康问题。媒体称这些死亡案例没有注射过CCP病毒疫苗的加强针，却对他们是否完全两剂CCP病毒接种疫苗只字未提。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-台媒报道，当地时间1月13日，丹麦警告说，来自中共国、俄罗斯和伊朗等国的间谍威胁正在升高，包括在各大国争夺资源与海上航线的北极地区。
+今天发布的最新病例数据来自 30,963 个 PCR 检测和 4576 个报告的快速抗原检测。昆士兰州同时还更新了对活跃病例的定义，使其与澳大利亚其他州和领地保持一致——这一举措使得该州现存病例总数降至 86,953 例。
 
-丹麦安全与情报局表示，已经发现许多企图对丹麦进行间谍活动的例子。由于丹麦在全球的积极参与，使其成为一个诱人的间谍攻击目标。丹麦安全与情报局反情报部门负责人亨里克森称，近年来，外国情报活动对丹麦、格陵兰和法罗群岛的威胁逐渐增加。
+州卫生部长 Yvette D’Ath 说，有 702 名冠状病毒患者目前需要住院治疗，其中 40 人在重症监护室，15 人需要呼吸机。
 
-据报道，去年11月，丹麦哥本哈根大学的一名中共国籍教授，曾与中共军方进行基因研究。而丹麦的有关报告也指出，包括中共国在内的情报机构，正视图与学生、研究员和公司联系，以利用丹麦技术和研究相关的信息。
+首席卫生官Gerrard预计，在下个月昆士兰各地学校重新开学时或将出现“重大的”CCP病毒疫情爆发。该州学校的重新开放目前已推迟两周至 2 月 7 日星期一。Gerrard博士称，虽然预计会有大量学生被感染，但对他们来说总体症状将是轻微的。
 
-文字版原文：[丹麦指控来自中共国间谍威胁升高](https://gnews.org/zh-hans/1864639/)
+教育部长Grace表示，接下来的两个学期将不会有任何时间上的延长，依然保持疫情以来的缩减，因为课程预计将会顺利完成。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+新闻参考链接：[Queensland reports more than 15,000 COVID-19 cases amid warning of school outbreaks](https://www.9news.com.au/national/coronavirus-qld-update-queensland-covid19-cases/366d09e8-6e52-4696-8fc4-274fdfa5fa37)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

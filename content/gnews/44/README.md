@@ -2,28 +2,28 @@
 ---
 
 
-## 英国政府拟废除COVID-19（中共病毒）自我隔离法规
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1871216/)
+## GTV新闻访谈简报|2022年1月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1872225/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FC6AF7C2-F996-4980-9611-1ECF5EECDC3B.jpeg)图为伦敦街头（图片来自安纳杜鲁新闻社）
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据英国《每日电讯报》1月16日报道，英国政府正草拟计划，若民众感染COVID-19（中共病毒），可不受自我隔离规定的法律束缚，该计划最快将在春天宣布。
+视频参看：[2022.01.17早GTV新闻访谈](https://gtv.org/video/id=61e56f01a0fd8e5c735ae9ed)
 
-英国COVID-19（中共病毒）病例数持续减少，首相鲍里斯·约翰逊（Boris Johnson）想要永久废除有关新型冠状病毒的紧急法规，而官方指导方针仍会继续执行，但若民众不遵守，也不会有罚款或法律上的惩处。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-据悉，当局会在未来数周内制定计划，预期最快在春天宣布。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-11.jpg)
 
-*参考链接： [英媒：政府擬廢除COVID-19自我隔離法規](https://www.cna.com.tw/news/aopl/202201170028.aspx)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

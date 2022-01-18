@@ -2,38 +2,38 @@
 ---
 
 
-## 2022年1月中共国债务专题：2021年末中共国公开市场存量债券余额和隐形政府债务合计可能高达185万亿人民币，政府债务余额与2020年GDP比重超过100%
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1872059/)
+## 已打四针的以色列财政部长确认感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220117-2.jpg)图片来源网络
-根据Wind数据统计，截至2021年12月31日中共国公开市场存量债券余额130.40万亿元人民币，较上年增加16.15万亿，折合约20.5万亿美元。这些统计是针对公开市场数据的统计，尚未包含各类隐形的政府债务。
+作者：纽约香草山信息部 – 诺雅
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
+这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
 
-文贵先生曾在2021年10月5日大直播（第40分钟开始）爆料说，在直播三周前得到的准确信息，中共国地方债务不是8.5万亿美元，而是107万亿人民币，折合超过15万亿美元。文贵先生在直播中提及，中共国跟伊朗的交易未敢公开，一个昆仑银行的债务就已经是4000多亿；另外，巴基斯坦、北朝鲜，非洲几个国家的债务也未公开。
+以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
 
-根据Wind统计数据，截至2021年9月31日，公开的政府债务余额合计50.7万亿，其中包含国债余额22万亿元、地方债余额28.7万亿元和央行票据15亿元。根据文贵先生爆料提供的线索，中共国地方债实际是107亿元人民币，公开披露债务余额仅为50.7万亿元，可以粗略推算出，至少约有55万亿元人民币的隐形债务并没有披露。
-
-假设隐形债务余额在2021年9月-12月保持稳定，截至2021年末，中共国的公开市场债务，加上隐形的政府债务合计可能高达185万亿人民币，具体数据详见下图：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220117-2-2.jpg)
-根据中共国统计局2021年12月《关于2020年国内生产总值最终核实的公告》，2020年中共国GDP现价总量为101.3567万亿元；根据中共国统计局2022年1月17日发布的国民生产总值初步核算数数据，中共国全年国内生产总值（GDP）114.367万亿元，按不变价格计算，比上年增长8.1%，但该GDP数据尚未最终核实，目前仅供参考。
-
-截至2021年12月31日，按照Wind数据统计，不包含未公开披露的隐形政府债务，中共国国债余额23万亿元，地方政府债券余额30.3万亿元，央行票据150亿元，合计53.3万亿元，债务存量余额与2020年GDP比重约为53%，与2021年初步核算GDP比重约为47%（2021年GDP未经最终核实，结算结果47%仅供参考）。
-
-基于公开数据，结合文贵先生爆出的真实数据，对Wind数据进行修正，加上估算的隐形政府债务约55万亿人民币，政府负债余额已经超过108万亿，这意味着中共国政府的负债余额已经超过2020年最终核算GDP总额的100%，接近2021年初步核算GDP总量的95%（2021年GDP未经最终核实，计算结果95%仅供参考）。
-
-政府不创造任何一分收入，税收收入全部来源于老百姓。中共国债务余额已超过2020年GDP总额的100%，接近初步核算2021年GDP的95%，两者皆远超过被国际普遍认同的60%警戒线。中共政府给中国老百姓埋下的巨大债务危机，一旦暴雷，最终埋单的将是中国老百姓。
-
-（本文仅代表作者个人观点）
-
-By 【秘密翻译组-金融组】
-作者：Apple
+针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
 
 参考链接：
+1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
+2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
+3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
 
-[http://www.stats.gov.cn/tjsj/zxfb/202112/t20211217\_1825444.html](http://www.stats.gov.cn/tjsj/zxfb/202112/t20211217_1825444.html)
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-[http://www.stats.gov.cn/tjsj/zxfb/202201/t20220117\_1826404.html](http://www.stats.gov.cn/tjsj/zxfb/202201/t20220117_1826404.html)
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-[https://gtv.org/video/id=615c44da304e992109afc719](https://gtv.org/video/id=615c44da304e992109afc719)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
