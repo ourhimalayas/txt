@@ -2,36 +2,37 @@
 ---
 
 
-## MV版Hcoin To the Moon上线41天第27次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1876395/)
+## 有声|美国应允许疫苗之外的中共病毒治疗方案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876608/)
 
-1/18/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线41天第27次位列澳门iTunes热门音乐视频榜榜首，第34次位列前三名
-
-* * *
-
-[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+配音：香草山教育部 – 百香果
 
 
-[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月15日盖特信息，美国参议员候选人梅梅特-奥兹博士接受美国媒体采访，他表示，中共病毒给美国带来极大破坏，美国正面临危机。同时，疫情使人认识到美国整个医学界的大问题，就是正确的方法一再被打压和噤声。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+奥兹博士透露，他曾经捐赠25万美金，支持哥伦比亚大学进行硫酸羟氯喹治疗中共病毒的临床实验，但是遭到前纽约州州长科莫强令禁止。他说，硫酸羟氯喹已经在全世界使用超过10亿次，而且是美国FDA批准使用的药物。硫酸羟氯喹被禁止用于治疗中共病毒完全是出于政治原因和大制药厂的经济利益。美国人民根本不被允许接受此种治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗。
+
+奥兹博士认为，福奇就是医疗界的暴君，他与主流媒体有各种瓜葛，并利用媒体引导舆论风向。
+
+文字版原文：[美国应允许疫苗之外的中共病毒治疗方案](https://gnews.org/zh-hans/1871796/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

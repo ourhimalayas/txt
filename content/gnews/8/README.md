@@ -2,31 +2,34 @@
 ---
 
 
-## 七哥谈二十大腥风血雨的斗争（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1876723/)
+## 俄罗斯和中（共）国还没有计划就安全保障采取协调行动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1876755/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+1月18日，据《国际文传电讯社》报道，俄罗斯总统发言人德米特里·佩斯科夫表示，俄罗斯总统普京可能会向中（共）国国家主席习特勒通报安全保障谈判的进展情况，但目前还没有谈到俄罗斯和中（共）国在这一领域的协调行动。
 
-来源：郭先生2022-01-12直播11：22：21摘录
+“到目前为止，还没有谈论任何（与北京）的协调行动。同时，俄罗斯和中（共）国由于其伙伴关系，特别是特权伙伴关系，在最热门的问题上不断交流信息和意见，包括这个问题。“当被问及普京是否计划与习特勒讨论安全保障的会谈时，佩斯科夫告诉记者。
 
-中共的二十大，大家你看到没有，栗战书出来了吧？是吧？栗战书出来了吧，要证明自己没事儿。你记住周永康在抓之前、薄熙来被抓之前，他都多次来证明自己没事儿，还搞新闻记者招待会呢。薄熙来的事情告诉中国一个政治之残酷，甭说咱这些老百姓你不知道，真正想干这事儿之前中南坑也不都知道，是吧？习要保不保栗战书，别人保不保栗战书？那不是一个他能出面就能证明的，不要看这具象。海外华人媒体，你给我找一个说过真正的共产党政治说对的吗？都是瞎蒙的，是吧？都是胡球扯的。就是海外华人媒体未来在中国历史上被审判的时候，它跟共产党是同等的罪行，叫小骂大帮忙。什么《万维》呀、《多维》呀、什么《明镜》啊，什么一堆儿这些垃圾媒体，全是误国误民。那么同时二十大你看到了这个腥风血雨的斗争啊，还没开始呢。你看林彪、你看刘少奇，王岐山当了副主席你看看好像天塌地陷似的，你见过有一点儿懂历史的中国的副主席，什么高岗啊、刘少奇啊、林彪有一个好下场的吗？王岐山有啥好下场？你再看看现在栗战书也好，栗战书能咋地呀，你管栗战书有啥用啊？栗战书生死跟咱鸟关系呀？中国只有一个人跟咱有关系，有鸟的关系，那就是习近平，是吧？其他都扯淡的事儿。所有人他都好、都坏跟咱半毛没鸟的关系，就习近平跟咱有鸟的关系。
+他强调说：“当然，普京总统肯定会向习主席通报这一领域的情况。“
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+俄罗斯总统预计将于2月访问北京，他将成为奥运会开幕式的主要嘉宾之一。他还计划与习特勒举行会谈。
 
-**关注我们**
+PS：俄罗斯总统普京把双头鹰的政治玩得炉火纯青，知道中共好面子，表面答应，实际与美国已经谈妥。正如郭文贵先生此前爆料，普京派了特使到中（共）国，要求中共必须履行石油天然气合约，中共要是打台湾，俄罗斯不会参与。[https://www.interfax.ru/russia/816059](https://www.interfax.ru/russia/816059)
 
-Discord 账号
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
+**更多资讯，更多关注**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Gettr 账号
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
  
 

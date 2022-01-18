@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|美国应允许疫苗之外的中共病毒治疗方案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876608/)
+## 七哥谈“一定要敬天尊地”（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1876672/)
 
-配音：香草山教育部 – 百香果
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播11：19：52摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日盖特信息，美国参议员候选人梅梅特-奥兹博士接受美国媒体采访，他表示，中共病毒给美国带来极大破坏，美国正面临危机。同时，疫情使人认识到美国整个医学界的大问题，就是正确的方法一再被打压和噤声。
+一定要敬天尊地呀！爱你老人，孝敬他们。你要想风水好、赚钱、健康，你就孝敬你的老人，对你的孩子好，否则你一定会得报应的。你对你家狗不好，你天天虐待动物，你一定会有病，而且得癌症的几率很高。如果你对天地不敬，你一定会被天地惩罚，连埋葬的机会都没有。这就是新中国联邦的万佛万神，我们要像人一样的活着。当告诉自己你不是猪狗的时候，你是人的时候，人和猪狗不一样的地方在哪儿？就是有情有义！感恩戴德！
 
-奥兹博士透露，他曾经捐赠25万美金，支持哥伦比亚大学进行硫酸羟氯喹治疗中共病毒的临床实验，但是遭到前纽约州州长科莫强令禁止。他说，硫酸羟氯喹已经在全世界使用超过10亿次，而且是美国FDA批准使用的药物。硫酸羟氯喹被禁止用于治疗中共病毒完全是出于政治原因和大制药厂的经济利益。美国人民根本不被允许接受此种治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-奥兹博士认为，福奇就是医疗界的暴君，他与主流媒体有各种瓜葛，并利用媒体引导舆论风向。
+**关注我们**
 
-文字版原文：[美国应允许疫苗之外的中共病毒治疗方案](https://gnews.org/zh-hans/1871796/)
+Discord 账号
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
