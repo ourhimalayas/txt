@@ -2,10 +2,10 @@
 ---
 
 
-## 川普：我们会上演王者归来的一幕,前所未有
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1874821/)
+## 共和党议员应对扎克伯格政治献金展开彻底调查
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1874823/)
 
-01/16/2022 美国前总统川普在其集会演说中称他将王者归来，前所未有。
+01/16/2022 美国前总统川普在其集会演说中称共和党国会议员应该对扎克伯格给各地竞选办公室的高达4.17亿的政治献金展开彻底调查。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 美国正在演变成大号委内瑞拉
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1874819/)
+## 川普：我们会上演王者归来的一幕,前所未有
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1874821/)
 
-01/16/2022 美国前总统川普在其集会演说中说道美国正在演变成大号的委内瑞拉，激进的民主党希望把美国变成一个共产主义国家。
+01/16/2022 美国前总统川普在其集会演说中称他将王者归来，前所未有。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

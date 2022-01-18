@@ -2,30 +2,40 @@
 ---
 
 
-## NBA股东查马斯·帕利哈皮提亚：新疆种族大屠杀和我无关
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874770/)
+## WhatsApp无条件帮助美国政府监视用户
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874788/)
 
-#### 撰稿：彩虹
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-33.jpg)图片来源：滑铁卢大学
-1月17日，据《新闻极限》和《国会山报》报道，周六，NBA金州勇士 (Golden State Warriors)队的股东之一，查马斯·帕利哈皮提亚（Chamath Palihapitiya）在他共同主持的播客中无耻宣称：“（我们）没人关心维吾尔族人的遭遇”。
+整理编辑：小红帽
 
-帕利哈皮提亚是在斯里兰卡出生的加拿大和美国风险投资家，在周一马丁·路德·金纪念日（Martin Luther King, Jr. Day）时，他的言论受到了关注，他当时说“没有人关心发生在维吾尔人身上的事情，好吗？你提出来是因为你关心，我认为你关心是件好事。（但）我们其他人并不关心。我只是告诉你一个非常艰难、残酷的事实：在我所关心的所有事情中，是的，它根本不在其中”。 同时，他说他更关心国内问题而不是NBA联盟在中共国参与（相关商业活动）。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
 
-周一，勇士队的一份声明试图与他的这些评论保持距离，声明说：“作为一个在勇士队没有日常运营职权的有限投资者，帕利哈皮提亚先生并不代表我们的特定立场，他的观点也不代表我们组织”。
 
-在周一帕利哈皮提亚也发布了一份声明，试图收回先前的言论。他写道“作为一名难民，我的家人逃离了一个有着自身人权问题的国家，所以这是我生活经历中非常重要的一部分。明确地说，我的信念是，无论是在中国、美国还是其他地方，人权都很重要。（该话题）就此打住”。
+根据《RT新闻》1月18日报道，美国政府机构命令WhatsApp监视几个外国公民，尽管该机构没有证据证明这些用户犯了罪，甚至不知道他们的名字。
 
-对此，参议员泰德·克鲁兹(Ted Cruz)在一条推特上谴责帕利哈皮提亚的言论，他说这是“可耻的”。
+最近解封的一份2021年11月的搜查令显示，美国缉毒署(DEA)曾命令脸书（Facebook）旗下的通信服务商监控据说位于中国和澳门的7名用户。
 
-在推特上，克鲁兹写道：“NBA采取了大胆的立场：奴隶制不重要，集中营不重要，酷刑和谋杀不重要，‘我们不在乎’。 对他们来说，重要的是来自中国共产党（CCP）更多的美元，这样NBA的百万富翁和亿万富翁们就可以变得更加富有”。
+《福布斯》报道：“搜查令显示，缉毒局不知道任何目标的身份，但告诉WhatsApp监控目标用户的IP地址和通信号码，以及他们何时和如何使用该应用程序”。
 
-**新闻来源**
+该监控是调查从中国进口阿片类药物行动的一部分。为了下令进行监控，美国政府只需要说明 “可能获得的信息与该机构正在进行的刑事调查有关”。搜查令并不需要任何犯罪证据。
 
-[Golden State Warriors Owner: ‘Nobody Cares’ About Uyghur Genocide](https://www.newsmax.com/us/nba-sports-uyghur-genocide/2022/01/17/id/1052770/)
+《福布斯》还发现，WhatsApp此前曾被命令监控墨西哥的四名用户。这再次表明美国政府的大科技监控行动远远超出了该国的边界。
 
-[Golden State Warriors owner says ‘nobody cares’ about Uyghurs](https://thehill.com/policy/international/asia-pacific/590034-golden-state-part-owner-says-he-doesnt-care-about-uyghurs)
+联邦调查局（FBI）去年泄露的一份文件显示，WhatsApp是最愿意向美国当局提供数据的信使服务商之一。
+
+本月，瑞士军方以数据保护为由，禁止军方使用WhatsApp，以及竞争对手Signal和Telegram。
+
+新闻来源：[WhatsApp helps US govt spy on users, no questions asked](https://www.rt.com/news/546338-whatsapp-us-agencies-spying/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

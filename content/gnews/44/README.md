@@ -2,111 +2,58 @@
 ---
 
 
-## 01/18每日播报｜新闻简讯 : 中共胁迫措施解除威胁 以色列研究显示 接种4针不足以预防
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1874384/)
+## 新西兰财经G乐部2022年1月18日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1874473/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61e681c7533c672fca7ed179)**
+采集整理：蚂蚁的城堡
 
-**2022-01-18**
+**提纲：**
 
-1. **塔利班政权宣布成立自杀炸弹旅**
+1、光大保德信基金回复原量化投资部总监被抓传闻
 
-[据英国《发展》新闻网1月18日消息，塔利班重新掌权阿富汗后，阿富汗当地爆发严重的经济危机。即便如此，塔利班并未着重于重建民生。近期，塔利班政权宣布成立自杀炸弹旅，该部队预估人数至少在1万人左右。](https://www.unilad.co.uk/news/taliban-announces-a-national-suicide-bomber-brigade)
+2、2万股民懵了！刚刚，“辛巴概念股”遭立案调查！
 
-[据《泰晤士报》报道，塔利班发言人扎比胡拉-穆贾希德表示，圣战者组成的烈士旅将成为军队的一部分，属于特种部队，由国防部控制，用于特种作战。](https://www.unilad.co.uk/news/taliban-announces-a-national-suicide-bomber-brigade)
+3、由招银国际资产管理等发起的Aquila ,为首家在香港提交上市申请的SPAC公司
 
-[塔利班副发言人卡里米表示，自杀炸弹旅未来将会主要用来对抗伊斯兰国呼罗珊省分会，而且会采取更复杂与更特殊的方式来进行攻击。](https://www.unilad.co.uk/news/taliban-announces-a-national-suicide-bomber-brigade)
+4、爆款翻车！去年百亿“日光基”仅2只正收益 规模大缩水
 
-秘翻新闻 明澈编辑报道
+**正文**
 
-**2. 德国要求中共解除对立陶宛和欧盟的胁迫措施**
+**1、光大保德信基金回复原量化投资部总监被抓传闻**
+![](https://www.anewsday.com/uploads/images/20220118/711fd7e509b71d74a6.png)
+上证报证券网讯1月17日晚间，有市场传闻称，中泰证券研究所原策略首席分析师陈龙、光大保德信原量化投资部总监金昉毅，或因涉嫌操纵证券及内幕交易被抓，引起业内关注。对此，光大保德信基金回复称，金昉毅已经离职数月，有关他个人情况公司并不知晓。另外，公司量化投资团队目前运作正常，部门负责人及各位基金经理均正常履职。
 
-[综合媒体1月18日消息，立陶宛和德国等欧盟成员国企业抱怨向中共国出口货物受阻，德国政府近日表示，每个世贸成员国都必须遵守承诺的国际义务，包括中共国在内。同时德国还要求中共解除对立陶宛和欧盟的胁迫措施。](https://www.cna.com.tw/news/aopl/202201180011.aspx%20https://udn.com/news/story/6809/6040960)
+财经G评：近两年被炒的火热的量化交易背后有没有隐藏着内部交易？有没有以量化为名，内部交易为实？
 
-[德国外交部发言人柏格14日在记者会表示，德国和欧盟一开始就与欧盟伙伴立陶宛站在一起，中共应解除对立陶宛和欧盟内部市场所有正式和非正式的胁迫措施。](https://www.cna.com.tw/news/aopl/202201180011.aspx%20https://udn.com/news/story/6809/6040960)
+参考链接 [https://news.cnstock.com/news,bwkx-202201-4814276.htm](https://news.cnstock.com/news,bwkx-202201-4814276.htm)
 
-秘翻新闻 明澈编辑报道
+**2、2万股民懵了！刚刚，“辛巴概念股”遭立案调查！**
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0118%2Ff334983aj00r5v7qz0023d200o900fpg00o900fp.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+上市公司ST起步1月17日晚间公告，2022年1月17日收到中国证监会的《立案告知书》（因公司涉嫌信息披露违法违规等事项，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中共国证监会决定对公司立案。快手一哥辛巴曾入股
+辛选联合创始人至今未付款，直播带货的快手一哥辛巴的辛选投资和辛选投资的联合创始人张晓双，在2020年入股了ST起步，当时引发该股股价大幅拉升。不过后来因为直播带货燕窝出问题，辛巴受到影响。辛选投资在2021年三季度也从前十大股东中退出，不过到三季度末张晓双仍在前十大股东中，持股占比4.76%。
 
-**3. 以色列研究显示 接种4针疫苗都不足以预防中共病毒**
+财经G评：上次评论说在中共国时要“把韭菜轧出油”。这则新闻就是展示他们时如何做到的，一个直播带货不满足提成收入，去参股资本市场找到垃圾ST股，靠流量和炒作推高股价直接拿钱走人！在中共国主播带货是面上的事情，私下玩了借贷关系和金融游戏，最后演变成击鼓传花的庞氏骗局！不相信可以了解一下：梦洁股份（002397）如何搭上微娅炒高股价的！
 
-[综合媒体1月18日消息，以色列医疗机构Sheba对第四针疫苗的有效性进行实验，初步研究显示，第四针疫苗虽可增加抗体数量，但仍不足以预防奥米炕变种病毒的感染。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/725269/omicron-%E4%BB%A5%E8%89%B2%E5%88%97%E5%88%9D%E6%AD%A5%E7%A0%94%E7%A9%B6-%E6%89%934%E9%87%9D%E9%83%BD%E4%B8%8D%E8%B6%B3%E5%A4%A0%E9%A0%90%E9%98%B2%E6%84%9F%E6%9F%93%20https://www.timesofisrael.com/liveblog_entry/israeli-study-shows-4th-vaccine-shot-not-good-enough-against-omicron/)
+参考链接：[https://www.stcn.com/xw/sd/202201/t20220118\_4082403.html](https://www.stcn.com/xw/sd/202201/t20220118_4082403.html)
 
-[该机构发言人指出，要预防奥米炕变种病毒需要有非常高的抗体水平，而这种水平目前疫苗似乎无法做到。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/725269/omicron-%E4%BB%A5%E8%89%B2%E5%88%97%E5%88%9D%E6%AD%A5%E7%A0%94%E7%A9%B6-%E6%89%934%E9%87%9D%E9%83%BD%E4%B8%8D%E8%B6%B3%E5%A4%A0%E9%A0%90%E9%98%B2%E6%84%9F%E6%9F%93%20https://www.timesofisrael.com/liveblog_entry/israeli-study-shows-4th-vaccine-shot-not-good-enough-against-omicron/)
+**3、由招银国际资产管理等发起的Aquila 为首家在香港提交上市申请的SPAC公司**
+![](https://www.anewsday.com/uploads/images/20220118/bc22dcb3b954581bf0.png)
+路透香港1月18日 – 由招银国际资产管理有限公司及AAC Mgmt Holding Ltd共同发起的Aquila Acquisition Corporation周一向香港联交所提交主板上市申请，为港交所0388.HK设立全新SPAC上市机制后，首家申请上市的公司。刊载于联交所的初步招股文件显示，Aquila Acquisition Corporation为特殊目的收购公司，其成立之目的乃为与一家或多家公司进行业务合并。
 
-秘翻新闻 明澈编辑报道
+港交所设立全新的SPAC上市机制于1月1日起生效，接受上市申请。SPAC是一种空壳公司，上市筹集资金的目的是为了上市后一段预设期限内收购目标公司（SPAC并购目标）的业务（SPAC并购交易）。
 
-4. **美国三航母集结中共国周边，海军最强大武器罕见访问关岛**
+参考链接：[https://cn.reuters.com/article/china-merchant-aquila-hk-ipo-0118-idCNKBS2JS040?il=0](https://cn.reuters.com/article/china-merchant-aquila-hk-ipo-0118-idCNKBS2JS040?il=0)
 
-[综合媒体1月18日消息，1月9日，中共国智库「南海战略态势感知平台」公布最新卫星图片，显示美军三艘航母正在中共国周边集结。分别是首次搭载F-35C战斗机和CMV-22「鱼鹰」舰载运输机的卡尔文森号航母；首次搭载了F-35C舰载机中队的亚伯拉罕·林肯号航母及里根号航母。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/724994/%E7%BE%8E%E5%9C%8B%E4%B8%89%E8%88%AA%E6%AF%8D%E9%9B%86%E7%B5%90%E4%B8%AD%E5%9C%8B%E5%91%A8%E9%82%8A-%E6%B5%B7%E8%BB%8D%E6%9C%80%E5%BC%B7%E5%A4%A7%E6%AD%A6%E5%99%A8%E7%BD%95%E8%A6%8B%E8%A8%AA%E5%95%8F%E9%97%9C%E5%B3%B6%20https://www.soundofhope.org/post/585406?lang=b5)
+**4、爆款翻车！去年百亿“日光基”仅2只正收益 规模大缩水**
+![什么是日光基？概念、发行程序及特点介绍-三个皮匠报告文库](https://www.sgpjbg.com/FileUpload/ueditor_s/upload/2021-8/20/6376507416296424871300403.jpg)
+2021年爆款基金频现，投资者认购火热，53只主动权益类基金“一日售罄”，其中有8只“日光基”最终认购规模突破百亿元。经过一年的市场洗礼，“日光基”褪去爆款光环，业绩水平逐渐浮现在大众视野。53只主动权益类“日光基”业绩分化明显，首尾业绩相差近85个百分点。而曾经引爆市场的百亿级“日光基”，仅有2只实现正收益，多只基金规模跌破百亿元。
 
-[另据美国有线新闻网1月17日报道，美国海军武器库中最强大的武器之一，载有20枚三叉戟弹道导弹和数十枚核弹头的俄亥俄级核潜艇内华达号，于1月15日驶入美国关岛海军基地。这是美国弹道导弹潜艇自2016年以来首次访问关岛，也是自20世纪80年代以来第二次公开访问关岛。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/724994/%E7%BE%8E%E5%9C%8B%E4%B8%89%E8%88%AA%E6%AF%8D%E9%9B%86%E7%B5%90%E4%B8%AD%E5%9C%8B%E5%91%A8%E9%82%8A-%E6%B5%B7%E8%BB%8D%E6%9C%80%E5%BC%B7%E5%A4%A7%E6%AD%A6%E5%99%A8%E7%BD%95%E8%A6%8B%E8%A8%AA%E5%95%8F%E9%97%9C%E5%B3%B6%20https://www.soundofhope.org/post/585406?lang=b5)
+参考链接 ：[http://finance.china.com.cn/money/fund/20220118/5730555.shtml](http://finance.china.com.cn/money/fund/20220118/5730555.shtml)
 
-[分析指出，这是在印度太平洋地区日益紧张的局势中，向盟友和敌人发出了一个讯号。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/724994/%E7%BE%8E%E5%9C%8B%E4%B8%89%E8%88%AA%E6%AF%8D%E9%9B%86%E7%B5%90%E4%B8%AD%E5%9C%8B%E5%91%A8%E9%82%8A-%E6%B5%B7%E8%BB%8D%E6%9C%80%E5%BC%B7%E5%A4%A7%E6%AD%A6%E5%99%A8%E7%BD%95%E8%A6%8B%E8%A8%AA%E5%95%8F%E9%97%9C%E5%B3%B6%20https://www.soundofhope.org/post/585406?lang=b5)
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-秘翻新闻 StevenZ（行侠）编辑报道
+上传排版：文勇
 
-**5. 巴西拟将市政收入的1%投资加密货币**
-
-[综合媒体1月17日消息，巴西里约热内卢市长帕埃斯近日宣布称，计划效仿美国迈阿密市市长的做法，推出「里约币」，并将里约热内卢市政收入的1%投资于加密货币，成为巴西第一个购买主要加密货币作为价值储存的城市。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/724960/%E5%B7%B4%E8%A5%BF%E9%87%8C%E7%B4%84%E7%86%B1%E5%85%A7%E7%9B%A7%E6%93%AC%E5%B0%87%E5%B8%82%E6%94%BF%E6%94%B6%E5%85%A51-%E6%8A%95%E8%B3%87%E5%8A%A0%E5%AF%86%E8%B2%A8%E5%B9%A3%20https://dailyclipper.net/news/2022/01/17/209406/)
-
-[与此同时，里约热内卢的财政和规划部长佩保罗表示，该市也在考虑对使用比特币支付的财产税提供10%的折扣。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/724960/%E5%B7%B4%E8%A5%BF%E9%87%8C%E7%B4%84%E7%86%B1%E5%85%A7%E7%9B%A7%E6%93%AC%E5%B0%87%E5%B8%82%E6%94%BF%E6%94%B6%E5%85%A51-%E6%8A%95%E8%B3%87%E5%8A%A0%E5%AF%86%E8%B2%A8%E5%B9%A3%20https://dailyclipper.net/news/2022/01/17/209406/)
-
-秘翻新闻 StevenZ（行侠）编辑报道
-
-**6. 香港2021年游客数量缩减97.4%  接近于零**
-
-[综合媒体1月17日消息，初步数据显示，2021年香港仅接待6.5万名内地游客和2.5万名非内地游客，与2020年相比分别下降了97.6%和97%。](https://www.thestandard.com.hk/breaking-news/section/4/186057/Hong-Kong-welcomed-91,000-visitors-last-year,-97pc-less-than-2020)
-
-[在出入境相關的防疫措施下，到港人士主要是探望亲友或有其他必要到访的原因，游客数量继续维持近乎零的水平。](https://www.thestandard.com.hk/breaking-news/section/4/186057/Hong-Kong-welcomed-91,000-visitors-last-year,-97pc-less-than-2020)
-
-秘翻新闻 StevenZ（行侠）编辑报道
-
-**7. 冬奥临近  中共加大对入境人员的病毒检测力度**
-
-[据《英文虎报》1月17日消息，中共官媒1月16日宣布，中共将要求旅客在抵达北京后 72 小时内接受中共病毒检测。](https://www.thestandard.com.hk/section-news/section/11/238063/Beijing-steps-up-testing)
-
-[北京日报在其官方社交媒体账号上表示，新规定从1月22日起至3月底生效，旨在及早发现在全球范围内肆虐的奥米炕病毒，并控制大流行风险。](https://www.thestandard.com.hk/section-news/section/11/238063/Beijing-steps-up-testing)
-
-[北京当局已经要求入境旅客在前往该市的 48 小时内进行核酸检测，并在健康码小程序上显示绿色二维码。](https://www.thestandard.com.hk/section-news/section/11/238063/Beijing-steps-up-testing)
-
-[2 月 4 日开始，北京奥运会将把公众、运动员和其他奥运会工作人员分开，在这样的闭环环境内举办。](https://www.thestandard.com.hk/section-news/section/11/238063/Beijing-steps-up-testing)
-
-秘翻新闻 StevenZ（行侠）编辑报道
-
-**8. 天津整个小区被隔离 大巴车塞满整条路**
-
-[综合媒体1月18日消息，天津16日单日新增80例确诊，不少居民被带去隔离。有当地民众指出，部分社区是全部住户都被拉去隔离，还有人害怕地说，马路上全都是接送隔离人员的大巴车。](https://www.ntdtv.com/gb/2022/01/17/a103323433.html%20https://news.ltn.com.tw/news/world/breakingnews/3804148)
-
-[当地居民分享的影片显示，社区所有住户被要求一个不留的转移去隔离，只见民众在户外排了长长一列，准备按照指示跟随防疫人员离开。](https://www.ntdtv.com/gb/2022/01/17/a103323433.html%20https://news.ltn.com.tw/news/world/breakingnews/3804148)
-
-[另一段影片显示，大马路上满满都是大巴车，据录影民众称，这些都是要接送隔离人员的车，正常的车道都被占满了。](https://www.ntdtv.com/gb/2022/01/17/a103323433.html%20https://news.ltn.com.tw/news/world/breakingnews/3804148)
-
-秘翻新闻 明澈编辑报道
-
-**9. 加拿大邮包传染病毒？专家批中共扯淡**
-
-[综合媒体1月18日消息，北京15日爆出一例本土奥米炕确诊病例，患者14天内无北京以外省市旅游史，感染源成谜。北京疾控中心17日指称，患者近期曾收发过国际邮件，经过采检，邮件包装及内容物均有阳性反应，该邮件1月7日自加拿大发出，途经美国及香港到达北京，病例11日收到邮件，不排除通过境外物品感染病毒的可能。](https://www.thestandard.com.hk/breaking-news/section/3/186053/First-known-Omicron-case-in-Beijing-received-virus-contaminated-mail-via-Hong-Kong%20https://www.bannedbook.org/bnews/worldnews/20220118/1680720.html)
-
-[然而，其他国家的大多数科学家却不认可这一推测。美国食品药品监督管理局、农业部及疾病管制与预防中心，于去年曾共同发表声明指出，食品及其包装极不可能传播中共病毒。](https://www.thestandard.com.hk/breaking-news/section/3/186053/First-known-Omicron-case-in-Beijing-received-virus-contaminated-mail-via-Hong-Kong%20https://www.bannedbook.org/bnews/worldnews/20220118/1680720.html)
-
-[加拿大和世界各地的专家也打脸中共，强调中共宣称的传染途径，可能性微乎其微。](https://www.thestandard.com.hk/breaking-news/section/3/186053/First-known-Omicron-case-in-Beijing-received-virus-contaminated-mail-via-Hong-Kong%20https://www.bannedbook.org/bnews/worldnews/20220118/1680720.html)
-
-秘翻新闻 StevenZ（行侠）编辑报道
-
-**10. 北京冬季奥运会门票不出售 改为赠与特定群体**
-
-[综合媒体1月18日消息，中共官方17日决定取消出售冬季奥运会门票，改为向特定群体赠票。之前计划只有居住在中共国并符合疫情防控要求的人才能买票。对于门票赠予的群体，中共并未说明依据什么标准挑选，也未说明他们在去体育场和滑雪场之前是否必须接受检疫。](https://www.ntdtv.com/b5/2022/01/17/a103323335.html%20https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20220117-%E5%8C%97%E4%BA%AC%E5%86%AC%E5%AD%A3%E5%A5%A7%E9%81%8B%E6%9C%83-%E4%B8%8D%E8%B3%A3%E7%A5%A8%E4%BD%86%E6%B8%AC%E9%81%B8%E8%A7%80%E7%9C%BE)
-
-[有消息称，冬奥会入场资格可能由中共向公务员或上市公司的员工发出邀请。](https://www.ntdtv.com/b5/2022/01/17/a103323335.html%20https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20220117-%E5%8C%97%E4%BA%AC%E5%86%AC%E5%AD%A3%E5%A5%A7%E9%81%8B%E6%9C%83-%E4%B8%8D%E8%B3%A3%E7%A5%A8%E4%BD%86%E6%B8%AC%E9%81%B8%E8%A7%80%E7%9C%BE)
-
-秘翻新闻 明澈编辑报道
-
-发布 : 恩典
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

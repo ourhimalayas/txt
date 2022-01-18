@@ -2,23 +2,47 @@
 ---
 
 
-## 中共北京2022年冬奥会和冬残奥会观众政策确定
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1875083/)
+## 躺平币随时可以做好,要让战友既得到躺平币还不能有风险
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875121/)
 
-作者：德国纽伦堡正义农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会观众政策.jpeg)封面来源：网络图片
-2022年1月17日北京冬奥组委官网报道，鉴于疫情防控形势依旧严峻复杂，为保障涉奥人员和观众的健康安全，决定将原计划通过**公开销售门票的方式调整为定向组织观众现场观赛**，需要观众在观赛前、观赛中、观赛后严格遵守新冠肺炎疫情防控相关要求，以在疫情防控安全的前提下为赛事顺利举办营造良好氛围。中共突然调整销售门票的方式，这说明中共国疫情和疫苗后遗症已经处于失控状态，再加上中共党内诸多不确定因素，这是不得已而为之。
+G-TV视频链接：[https://gtv.org/video/id=61e6598487664c47acd62f00](https://gtv.org/video/id=61e6598487664c47acd62f00)
 
-中共为了这次北京冬奥会能顺利召开可谓煞费苦心，不仅花费巨资和向他国出卖各种利益，还以疫情和疫苗接种为理由，打着“为你好”的名义，建立了一个完全闭环的监狱式的管理方式，对涉奥人员和观众执行严格的疫苗接种政策和每天的核酸检测要求，这哪里是一场奥运会？这分明就是中共及其世界黑暗力量的一场政治作秀和政治勾兑后的草菅人命。
+**郭文贵先生：**就在过去大概三、四天左右，我们战友从国内出来的大概在70个人左右，有十几个家庭是带着狗带着猫啊出来的，都是逃出来的，都是已经逃出来了，有些是正当渠道，有些是这个、这不叫不正当，就是用聪明的办法出来的。
 
-真的为这些参加北京冬奥会和冬残会的人员和观众感到悲哀，这些人都是政治斗争的牺牲品和工具，因为这些人都是被谎言和荣誉所欺骗，他们不知道自己将要面对的是什么？将来要面对的是什么？当病毒真相、疫苗真相被曝光之际，当自己面临病毒残害、疫苗后遗症的残害之际，这些相信中共、相信黑心政府的运动员和观众将如何面对这个世界？
+所有这些家庭当中，没有任何人有喜币的，因为这些人还都很有钱，就是知道我不能因为买喜币把我暴露了，这些人就聪明，但出来第一件事KYC买喜币，向七哥报告我们已经出来了。说明什么问题呢？兄弟姐妹们，不要为了买喜币冒着生命危险在国内，同样也回答你躺平币的问题，躺平币随时都可以做好，但是绝对不能因为躺平币把国内很多战友给陷害进去。我们让他既得到币还不能得到风险，所以时间我们要好好地把握。
 
-新闻来源：🔗[北京2022年冬奥会和冬残奥会观众政策确定](https://www.beijing2022.cn/wog.htm?cmsid=20220117006293)
+所以说这个哥们儿他讲这个观点是很聪明的，他从一万，二级市场买币是用海外家人的，我不需要你们在国内为了买币冒任何风险。躺平币的最重要的设计，绝不因为发币让很多人置于危险，而共产党所有的经历跟我们恰恰相反。
 
-*编辑/校对/发稿：德国纽伦堡正义农场-儒为*
+那么我就告诉你小飞象，国内有躺平币的战友要知道，七哥给你准备躺币的时候，我得让你安全，我得让你这些人能出来，到更多国家去安全，能真正地拥有这个币。而且我们不是邪教，（不）是精神控制、金钱控制、安全控制，我们恰恰的让你绝对的自由安全前提下获得你想要的。而共产党是让你绝对的不安全情况下，由我决定你应该得到什么，这是本质上的不同。我们是正义的，为人民服务的真正的新中国联邦，共产党是真正的邪教，那六条全包含了。
 
-想了解更多咨询，请扫描农场二维码：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/85c861bf6b6325b4.jpg)
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
