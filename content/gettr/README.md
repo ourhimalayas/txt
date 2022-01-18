@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 5:40 PM (UTC)`
+
+1月18号：最糟糕的时刻还没有到来……<br/><br/>https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E8%82%A1%E5%B8%822022%E5%B9%B4%E4%BC%8A%E5%A7%8B%E5%89%A7%E7%83%88%E9%9C%87%E8%8D%A1-%E6%95%B0%E7%99%BE%E5%8F%AA%E8%82%A1%E7%A5%A8%E8%B7%8C%E5%B9%85%E8%B6%8520-11642479358?tesla=y&s=08
+![img](https://media.gettr.com/group50/getter/2022/01/18/17/1fe946a6-8e09-ae1f-e0ac-6257565e9f30/811595c584d605169e0e9fb41184a879.jpg)
+
+---
+
 `@miles 1/18/2022 3:42 PM (UTC)`
 
 1月18号：尊敬的战友们好，感谢很多战友为我和b八弟修复照片和制作的视频，万分的感谢！🙏🙏🙏🙏🙏🙏🙏🙏🙏共产党的内部政治斗争和冬奥会的残局……将会带来什么？太平联盟的官司五年来一直和共产党攻击爆料革命的偶然行动：同步进行，这个背后的故事到底是什么？明天直播我们好好聊聊，一切都已经开始！
@@ -147,13 +154,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 佛罗里达州长: 在其它州，他们解雇了没接种疫苗的护士，尽管他们大部分人具有天然免疫力。他们让已接种疫苗的护士重返工作岗位。这直接表明医疗保险和医疗补助服务中心的强制令绝对是疯狂的，尤其是考虑到众所周知的阻止病毒传播的疫苗无效。<br/><br/>Governor of Florida: In other states they fired nurses for not having Vax even though most of them have natural immunity. And they are bringing back on the job Vaccinated nurses who are currently COVID Positive. It just shows you that the CMS mandate is absolutely insane, especially given the ineffectiveness you know of the shots to actually stop transmission.
 ![img](https://media.gettr.com/group50/getter/2022/01/17/01/a3e52050-b6ee-2ae8-9c08-1d795e807773/out.jpg)
-
----
-
-`@miles 1/17/2022 12:19 AM (UTC)`
-
-1/16/2022 Miles Guo’s GETTR: Snow will be artificially made for the Winter Olympics, the CCP's forgery ranks No. 1 in the world. The hatred and ignorance instilled in people by the CCP makes their decisions worse than what animals can do. People will inevitably pay the price for being in cahoots with the CCP, and the year 2022 is going to be the darkest year for humanity!<br/><br/>1/16/2022 文贵盖特：冬奥会将进行人工造雪，中共造假水平世界一流；中共灌输给人们的仇恨与无知让他们做的决策比畜生还可怕；与中共为伍必将付出代价，2022年是人类最黑暗的一年！<br/>
-![img](https://media.gettr.com/group50/getter/2022/01/17/00/a79921d3-7e74-0962-c6a4-24b2424a56c5/out.jpg)
 
 ---
 
