@@ -15,101 +15,101 @@
 
 ---
 
-### [可靠情报显示香港被杀人士达两万人](/content/gnews/1/README.md)
+### [大卫王问：明年我们的圣诞节还会这样直播吗?](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/2/README.md)
+### [国防部正在把福奇暴露出来](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP让西方黑暗到来的三个方式](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [全球疫情更新（德约科维奇签证乌龙的讨论）](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥谈彭帅视频事件(三)](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国将推出国家可监管和干预的区块链技术以交易NFT](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥说“无神论的党比你还信神，它就是神，无产阶级的党比谁都有钱，一人富一国，荒唐不荒唐？”（2022-01-12摘录）](/content/gnews/9/README.md)
+### [七哥解释农场是什么？——是来自于天然的、自由的、大自然的、自力更生的、不用交易的、不受人约束的地方（2022-01-12摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/10/README.md)
+### [可靠情报显示香港被杀人士达两万人](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [CCP让西方黑暗到来的三个方式](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵先生直播大纲2022/01/17](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [全球疫情更新（德约科维奇签证乌龙的讨论）](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥谈彭帅视频事件(三)](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国将推出国家可监管和干预的区块链技术以交易NFT](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥说“无神论的党比你还信神，它就是神，无产阶级的党比谁都有钱，一人富一国，荒唐不荒唐？”（2022-01-12摘录）](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [欧洲药监局将横贯性脊髓炎列为疫苗的副作用](/content/gnews/11/README.md)
+### [欧洲药监局将横贯性脊髓炎列为疫苗的副作用](/content/gnews/15/README.md)
  ` 华盛顿DC-Russian`
 
-### [德国修改法规倒逼病毒康复者接种疫苗](/content/gnews/12/README.md)
+### [德国修改法规倒逼病毒康复者接种疫苗](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [七哥谈中国地方政府会破产（2022-01-12摘录）](/content/gnews/13/README.md)
+### [七哥谈中国地方政府会破产（2022-01-12摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [瑞士信贷董事长因涉嫌违反新冠防疫规定辞职](/content/gnews/14/README.md)
+### [瑞士信贷董事长因涉嫌违反新冠防疫规定辞职](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [扬帆每日速递 2022年1月17日版（2）](/content/gnews/15/README.md)
+### [扬帆每日速递 2022年1月17日版（2）](/content/gnews/19/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥谈“集中资源办大事”的政治（2022-01-12摘录）](/content/gnews/16/README.md)
+### [七哥谈“集中资源办大事”的政治（2022-01-12摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [以色列财政部长确诊 已接种4剂疫苗](/content/gnews/17/README.md)
+### [以色列财政部长确诊 已接种4剂疫苗](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [七哥谈战友们的问题（2022-01-12摘录）](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [七哥爆彭帅真实内幕（三）](/content/gnews/19/README.md)
+### [七哥爆彭帅真实内幕（三）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [法国阻止诺瓦克·德约科维奇（Novak Djokovic）参加五月法网公开赛](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [扬帆每日速递 2022年1月17日版（1）](/content/gnews/21/README.md)
+### [扬帆每日速递 2022年1月17日版（1）](/content/gnews/23/README.md)
  ` 温哥华扬帆农场`
 
-### [澳法院驳回德约科维奇因未接种疫苗而被迫离境的上诉请求](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性](/content/gnews/23/README.md)
+### [秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/24/README.md)
+### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [DC每日热点0117](/content/gnews/25/README.md)
+### [DC每日热点0117](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/26/README.md)
+### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/27/README.md)
+### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/28/README.md)
+### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [【新闻速递】哭笑不得！以色列财政部长四针依旧感染！](/content/gnews/29/README.md)
+### [【新闻速递】哭笑不得！以色列财政部长四针依旧感染！](/content/gnews/30/README.md)
  ` 温哥华扬帆农场`
 
-### [中共指责加拿大邮件导致北京的奥密克戎病例](/content/gnews/30/README.md)
+### [中共指责加拿大邮件导致北京的奥密克戎病例](/content/gnews/31/README.md)
  ` 华盛顿DC-Russian`
 
-### [信托及控股公司的门槛和复杂度](/content/gnews/31/README.md)
+### [信托及控股公司的门槛和复杂度](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [据不完全财务披露，福奇有1040万美元的投资](/content/gnews/32/README.md)
- ` 温哥华扬帆农场`
 
 ### [GTV新闻访谈简报|2022年1月17日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`

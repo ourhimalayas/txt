@@ -2,30 +2,35 @@
 ---
 
 
-## 德国修改法规倒逼病毒康复者接种疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1872868/)
+## 戏剧性的疫苗第四针：以色列政要接连感染
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1872935/)
 
-**撰稿：日本东京方舟农场  葛大饼**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据《iamexpat》1月17日报道，德国修改了其新冠（中共病毒）法规，将康复者的免疫时间缩短为3个月，倒逼更多民众接种疫苗。
+整理报道：Little Lamp
+编辑：守望黎明
 
-据报道，该消息得到了联邦卫生部和罗伯特-科赫（Robert Koch）研究所的证实。从1月15日起，新冠（中共病毒）康复免疫状态在三个月后失效（检测结果为阳性后的90天）。在此之后，官方建议康复民众进行强化注射，才能被视为完全接种新冠（中共病毒）疫苗。在新法规之前，原本的新冠（中共病毒）康复免疫状态的有效期为六个月。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/7aaceebe16b0129a.jpg)图片来源：Reuter
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-154.png)图片来自inclusivebusiness
 
-随着2G和2G+规则在德国各地的实施（指接种新冠疫苗或者已康复的2G政策），这意味着从新冠（中共病毒）中恢复过来的人在需要接种新冠（中共病毒）疫苗之前，只能在三个月内获得进入某些公共场所的机会，之后只有接种疫苗才能进入。
+新冠病毒奥密克戎变种正以迅雷不及掩耳之势席卷全球，各国政府纷纷规定接种第三针。而“疫苗先驱”以色列再次领先一步，已率先接种了第四针。以色列使用的疫苗以辉瑞产品为主，于去年12月底开始启动第四剂接种，到今年1月刚刚开放了60岁以上人群的注射。
 
-*参考链接：*
+但富有戏剧性的是，65岁的以色列财政部长李伯曼（Avigdor Lieberman），在1月10日才刚刚在推特上秀过自己接种的照片，1月15日就宣布感染了新冠。
 
-[COVID recovered status now only valid for three months in Germany](https://www.iamexpat.de/expat-info/german-expat-news/covid-recovered-status-now-only-valid-three-months-germany)
+除了财政部长李伯曼，以色列外交部长拉皮德（Yair Lapid）也在10日宣布确诊。
 
-* * *
+陆续传出以色列政被感染的消息，为疫苗免疫的有效性进行了最有戏剧性的诠释。
 
-*素材采编：葛大饼*
+但愿每个人都能平安度过的2022年。
 
-*编辑：文顺*
+发布：tianzhihuan
 
-*发布：Ranting*
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
