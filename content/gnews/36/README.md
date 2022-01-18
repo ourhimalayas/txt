@@ -2,28 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月18日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1876666/)
+## 1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1876880/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-17.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2022.01.18早GTV新闻访谈](https://gtv.org/video/id=61e6c0a0533c672fca7ee5db)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-14.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+秘密翻译组-北美组
 
  
 

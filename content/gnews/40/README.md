@@ -2,38 +2,36 @@
 ---
 
 
-## 芬兰允许伊维菌素用于治疗中共病毒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
+## 2021年中共国出生率和人口净增均创新低
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876182/)
 
-#### 撰稿：日本东京方舟农场 JIHO
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月17日，中共国家统计局发布，2021年全年出生人口1062万人，出生率为7.52‰；死亡人口1014万人，人口净增长仅为48万人，创下自1962年以来新低，社会老龄化日益严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11.jpeg)
 
-1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
+相比2020年全国人口出生率8.52‰，2021年进一步下降，并持续跌破1% ，比日本与韩国还低；尤其触目惊心的是人口净增长数，2019年为467万人，2020年为204万人，2021年骤降为48万人。从性别构成来看，男性比女性多3362万人，育龄妇女人数偏少；从年龄构成看，60岁以上为2.67亿人，占总人口的18.9%，人口老龄化进一步加剧。
 
-日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
+研究发现，延续两年的新冠疫情，对30岁以下年轻人的生育影响最大。本来在学习、就业、生活成本严重内卷的压力下，这一年龄组的生育连年下降。叠加疫情短期爆发、长期影响，年轻人只能“躺平”，维持最低限度的生存。生育意愿被严重压制，加速出生人口数量和生育率双双创历史新低。专家分析，随着国内经济日益悲观的预期，2021年延续了2020年的变化趋势，中共国人口的负增长率很可能超出人们的预计，会提前到来。
 
-此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
+参考链接： 
+1）[中国出生人口为何大幅下降？专访中国人口学会会长翟振武](https://3g.163.com/dy/article/GTTM2OC205129QAF.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=8)
+2）[我国人口净增长48万，创60年新低！出生率连续2年跌破1%！三大主要原因…](https://m.sohu.com/a/517274387_115362?scm=1104.0.0.0&amp;spm=smwp.home.fd-important.17.1642454762635es1SnkW)
 
-不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-*参考链接：*
-
-1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
-2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
-3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
-
-
-* * *
-
-*素材采编：JIHO*
-
-*编辑： 文顺*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
