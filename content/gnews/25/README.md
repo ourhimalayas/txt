@@ -2,32 +2,38 @@
 ---
 
 
-## 香港将新疫情归咎检疫规定，国泰空少因违反规定遭捕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874951/)
+## 中囯国家统计局公布：2021年全年GDP增长5.2%
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874932/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 编译：小红帽
+整理：入选文家
+编辑：小红帽
 
-- ![Hongkong Flughafen Flugzeug Abflug](https://static.dw.com/image/58852537_303.jpg)DW.COM
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
 
 
-根据《DW新闻》1月18日报道， 香港警察于1月17日以违反《预防及控制疾病规例》的罪名拘捕并起诉了两名前空中少爷。警察指，两人在医学监察期间进行“不必要活动”丶外出聚餐，并在之后确诊奥密克戎（Omicron）。
+中新财经1月18日电，国家统计局发布2021年四季度和全年国内生产总值(GDP)初步核算结果。其中，房地产业2021年四季度GDP为19734亿元，较上年同期减少2.9%；2021年全年GDP为77561亿元，较上年同期增长5.2%。
 
-警察并没有在声明中提及航空公司的名字。《香港01》比对公开资料发现，两名空少在国泰航空上班。两人在去年12月底分别从纽约及芝加哥飞抵香港，并在医学监察期间涉违反检疫安排，出外聚餐。目前已有同餐厅的顾客被发现感染病毒。
+另外，**2021年全年GDP为1143670亿元，较上年同期增长8.1%。**其中，第一产业为83086亿元，第二产业为450904亿元，第三产业为609680亿元。
 
-两名空少在疾病痊愈，离开医院后被警方于17日拘捕和起诉。根据《预防及控制疾病规例》，一旦罪名成立，他们可能面临最高6个月的监禁和最高5,000港元（642美元）的罚款。据悉，两人目前已遭国泰航空开除。
+《经济金融网》曾报道，今年两会期间，全国政协委员、国家审计署原副审计长董大胜直指过去几年中国经济数据造假严重，他引述地方官员话称“过去几年搞得有些太高了，现在一下降下来就会出现断崖式的下降”。
 
-香港日趋严苛的防疫规定，是否能有效对抗大流行病仍是个未知数，但是这些严苛的防疫措施将对机组人员的身心健康造成不良影响。
+然而，疫情期间，全国各处限电，工厂关闭，店铺关门，写字楼没人租，房地产行业处于崩塌边缘。在这样的大环境下，全年GDP竟然仍处于增长趋势。这不禁让人心声疑问：这数据究是真实的吗？
 
-**新闻来源**：[香港防疫：国泰前空少因违反检疫规定遭捕](https://www.dw.com/zh/%E9%A6%99%E6%B8%AF%E9%98%B2%E7%96%AB%E5%9B%BD%E6%B3%B0%E5%89%8D%E7%A9%BA%E5%B0%91%E5%9B%A0%E8%BF%9D%E5%8F%8D%E6%A3%80%E7%96%AB%E8%A7%84%E5%AE%9A%E9%81%AD%E6%8D%95/a-60455995)
+参考新闻：
 
-*发布： 陶子*
+1. [中国经济数据造假有多严重？](http://news.efnchina.com/show-1500-66587-1.html)
+2. [国家统计局：2021年四季度房地产业GDP同比降2.9%](https://m.chinanews.com/wap/detail/chs/zw/9654958.shtml)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
+***发布：***tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
