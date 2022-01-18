@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 1:49 AM (UTC)`
+
+1/17/2022 Miles Guo: I am fighting the world's biggest lawsuit manipulated by the CCP! Bradley J. Bondi, who had represented me and our fellow fighters before, had Edward Moss, who is representing Pacific Alliance, join Cahill Gordon & Reindel LLP to work together against me. Both of them were disqualified as the plaintiff’s counsel due to their serious violations of professional ethics.<br/><br/>1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量！曾代理文贵和战友的Bondi律师让太平联盟的律师Edward Moss跳槽到Cahill律所并一同针对文贵，他俩因判严重违反职业道德而被踢出局<br/>
+![img](https://media.gettr.com/group29/getter/2022/01/18/01/d6e3b3a1-e886-46f4-ca63-479b53ce31b8/out.jpg)
+
+---
+
 `@miles 1/18/2022 1:00 AM (UTC)`
 
 马龙博士：《真相工程》曝光国防部文件内容绝对真实，是体制内对病毒来源真相爆料的启动！国防部终于出来说“够了”，并把托尼·福奇抛出！<br/><br/>Dr. Malone:  The Veritas exposure of DoD file is the start of apparatus whistleblowers and absolutely authentic. DoD finally coming around saying: enough is enough and throwing Tony Fauci under the bus!<br/>
@@ -146,13 +153,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 汤姆·科顿参议员呼吁美国全面抵制中共冬奥会，以保证美国运动员安全。冬奥会应延期，重新竞标，之后在其他安全、自由和民主之地召开<br/><br/>Senator Tom Cotton calls for the US to fully boycott the CCP Olympics to keep US athletes safe. The games should be delayed, rebid and conducted somewhere else that’s safe, free and democratic at a later date<br/><br/>
 ![img](https://media.gettr.com/group8/getter/2022/01/16/15/74b8e174-950e-a156-d145-7de06104439b/out.jpg)
-
----
-
-`@miles 1/16/2022 3:07 PM (UTC)`
-
-1月16号：尊敬的战友们好……现在最重要的就是不要让病毒发生在你．和你家人的身上……共产党的邪恶力量的源泉……是西方乃至整个世界贪婪自私培养出来的结果，世界正在为此付出代价，人类中的最黑暗的时刻即将到来！
-![img](https://media.gettr.com/group13/getter/2022/01/16/15/f37ab753-8b82-a70f-775e-37e2f47049c5/out.jpg)
 
 ---
 

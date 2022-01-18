@@ -2,136 +2,22 @@
 ---
 
 
-## 在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873088/)
+## 火来问题(三)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873127/)
 
-[https://gtv.org/video/id=61e45aad87664c47acd58ee5](https://gtv.org/video/id=61e45aad87664c47acd58ee5)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-**Tucker Carlson
-塔克·卡尔森**
+比如今天小飞侠今天问我的都是外星人的事儿，他特喜欢外星人，他感兴趣，他在探讨人生怎么能放下，能在这个悬崖峭壁上能到达彼岸而不会摔死。你不能直接跳下去那就摔死了，摔死就是摔死了，没有超脱。是真的到达了彼岸！这就是我后在清风看守所，我突然间就开智了，我觉得。我觉得我在清风看守所就是我度过了悬崖，否则我就会留在中国大陆的所有人看到的那样：一生玩麻将、吃肉、吃出癌症到医院，有可能有人管，有可能没人管，或出车祸，或者毒死别人然后自己死拉倒！你永远不会超越的！你的灵魂会再回到刚才我们来的地方，就是人家躲避的房屋里面去，你不会再往前走一步，你不会享受到清风的温柔，自然风的那种魅力，站在悬崖峭壁上在迎客松下面风吹过来的感觉。这就是没有信仰的人，不知道天高地厚的人悲哀呀！真的是张高丽说的“宇宙无限大，地球是一粒沙”，我们在这一粒沙上是干啥的呀？是因为要回到宇宙去。所以我深信不疑有外星人，我们一定会回到宇宙去。我们只是在一粒沙上呆一会儿，当当张高丽，还是当当郭文贵呀，还当当你“三百年的飞飞”，还是当当“火来”。永远不要忘了，这不是我们的终点站，这只是我们的一个站点，就像当初我跟道士站在那个屋子，看似豪华、 看似舒适遮风挡雨，实质上，我们是一个非常弱的、染了很多病毒的灵魂。 今天科学家已经明确告诉人类的灵魂是存在，而且人死亡之后，身体上迅速的都会减少的体重永远是等比例的！某种东西没了，灵魂不是没有重量的，他是有质量的。今天我说的量子电脑，分子、量子是有存在的。就像今天我隔着视频，通过声音，完全科学的方式解释灵魂。咱还相隔那么远，全球各地咱就可以看对方说话，触手可及的感觉！ 你去想想这不就是突破了今天我们所有的人类在物质世界的认知！这个物和质对我们的枷锁突破了，我们通过光纤、 通过信号、通过电视，已经可以对话交流了，这是多么的伟大呀，在过去这叫神话啊！所以告诉我“火来”兄弟， 我们的灵魂是来自于地球之外，宇宙无限大，张高丽说那地方，张高丽修行“成功了”，他修行对象搞错了，搞网球冠军，我头两天问一个国内战友，他跟张高丽很熟，他说这个家伙就是一个政治骗子，最低级最low的人，满嘴瞎话，但这小子有一个特点，你必须得服，他能到今天也绝对不是咱想象的那么差。张高丽的记忆力、爱学习的本事， 还有张高丽最早学习弗洛伊德和法国几个大政治家。他说王岐山推荐《旧制度大革命》，他说张高丽最早学这个东西，轮不到王岐山。这个家伙把人性搞明白了，他这个灵魂到这儿来修啥了？修魔道！就是那个陈峰掏人家子宫的魔道、邪道。他的灵魂就不会闻到清风的感觉，也不会从悬崖上跨到对面的山脉上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/火来问题（三）-.jpg)
+*发布：*tianzhihuan
 
-So this week as we told you
-所以本周正如我们告诉你的那样
-
-the Supreme Court overturned Joe Biden’s lunatic vaccine mandate for private companies that have over 100 employees.
-最高法院推翻了乔·拜登对拥有100多名员工的私营公司的疯狂强制疫苗规定
-
-That’s obviously a win for sanity
-这显然是理智的胜利
-
-But at the same time the court left in place
-但与此同时，法院还保留了
-
-Biden’s mandate for medical workers think about that
-拜登对医务工作者的疫苗规定
-
-In other words, the Supreme Court just affirmed
-换句话说，最高法院刚刚确认
-
-that politicians in Washington somehow know more about health than nurses in emergency rooms
-华盛顿的政客不知何故比急诊室的护士更了解健康
-
-That’s absurd
-这太荒谬了
-
-How did that happen?
-那是怎么发生的？
-
-Well, it happened for one reason
-好吧，它的发生是有原因的
-
-because justice is John Roberts and Brett Kavanaugh
-因为大法官是约翰·罗伯茨和布雷特·卡瓦诺
-
-sided with the Biden administration in alliance with the hard partisans on the court
-与法庭上的顽固派结盟，站在拜登政府一边
-
-like certified non genius Sonia Sotomayor
-像经过认证的非天才的索尼娅·索托马约尔
-
-No one who pays attention to surprise the John Roberts did this.
-没有人惊讶的约翰·罗伯茨会这样做
-
-Roberts says judicial philosophy consists of not offending the Washington Post and has for years
-罗伯特茨说，司法哲学包括不冒犯《华盛顿邮报》并且多年来一直如此
-
-but Brett Kavanaugh?
-但是布雷特·卡瓦诺？
-
-wasn’t Brett Kavanaugh supposed to be as sincere conservative a man of principle
-布雷特·卡瓦诺不应该是一个真诚保守的有原则的人吗？
-
-And so Lindsey Graham told us unfortunately
-所以不幸的是林赛·格雷厄姆告诉我们
-
-many of us believe that we certainly did
-我们中的许多人相信，我们的确是
-
-When Brett Kavanaugh cried during his confirmation hearings
-当布雷特·卡瓦诺在确认听证会上哭泣时
-
-wept like Adam Kinzinger we felt sorry for him
-像亚当·金辛格一样哭泣，我们为他感到难过
-
-We didn’t understand at the time that something had broken inside of Brett Kavanaugh
-我们当时不明白布雷特·卡瓦诺的内心有什么东西被破坏了
-
-that on some level his tormentors now controlled him
-在某种程度上，他的折磨者现在控制了他
-
-and that going forward he’d be burned boiled to conventional opinion that to the Constitution of the United States
-并且在未来，他已背叛了美国的宪法的传统观点
-
-Our mistake
-选择他是我们的错误
-
-To the courts actual conservatives, the ones who don’t weep in public
-对于法院真正的保守派，那些不在公共场合哭泣的人
-
-Kavanaugh position on the VAX mandate made no sense at all
-卡瓦诺对强制疫苗规定的立场完全没有意义
-
-As Clarence Thomas put it in his dissent
-正如克拉伦斯·托马斯在他的异议中所说
-
-nothing in law or in the Constitution requires nurses to
-法律或宪法中没有任何规定要求护士
-
-quote “choose between losing their livelihoods and acquiescing to a vaccine they’ve rejected for months”
-“在失去生计和默许他们拒绝数月的疫苗之间做出选择”
-
-Well, exactly. In other words
-嗯，正是，换句话说
-
-Joe Biden’s vaccine mandates have no legal authority
-乔·拜登的强制疫苗规定没有法律支持
-
-and without legal authority, the government can’t force us to do anything
-没有法律支持，政府不能强迫我们做任何事情
-
-Period
-就是这样
-
-* * *
-
-Date:01/15/2022
-原视频标题: During his confirmation hearing, we didn’t understand that something had broken inside of Brett Kavanaugh. Unfortunately, many of us believed he was a sincere conservative
-在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/podwzx7025](https://gettr.com/post/podwzx7025)
-任务编号：KE352（3495）
-视频时间段 : 0:00-1:46
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

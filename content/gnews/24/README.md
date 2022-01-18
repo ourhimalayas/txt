@@ -2,59 +2,132 @@
 ---
 
 
-## 法国民众涌上街头，抗议新的“疫苗通行证”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873005/)
+## 在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873088/)
 
-**评论：***这项备受争议的法案，将“健康通行证”转变为“疫苗通行证”，结束了法国从2020年3月开始健康通行证做法。法国政府正在用更为强硬的公众场所限制措施，试图迫使更多的人定期注射疫苗。*
+[https://gtv.org/video/id=61e45aad87664c47acd58ee5](https://gtv.org/video/id=61e45aad87664c47acd58ee5)
 
-据《海峡时报》2022年1月16日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1394-e1642461945824.png)2022年1月15日，抗议者聚集在巴黎Trocadero广场，抗议健康通行证和新冠疫苗。
-图片来源：《法新社》
-1月15日，数千人在法国各地城市举行示威，反对对未接种新冠病毒疫苗的人实施更严格的限制，因为议会对该法律草案仍然争论不休。
+**Tucker Carlson
+塔克·卡尔森**
 
-在首都巴黎，规模最大的单次集会是从埃菲尔铁塔附近出发，由反欧盟的极右派总统候选人弗洛里安·菲利普(Florian Philippot)召集的队伍。
+So this week as we told you
+所以本周正如我们告诉你的那样
 
-其他示威活动可以追溯到2018-2019 年的“黄夹克”抗议活动，抗议总统伊曼纽尔·马克龙(Emmanuel Macron)偏袒富人的政策，同时波尔多、图卢兹和里尔等主要城市也出现了示威群众。
+the Supreme Court overturned Joe Biden’s lunatic vaccine mandate for private companies that have over 100 employees.
+最高法院推翻了乔·拜登对拥有100多名员工的私营公司的疯狂强制疫苗规定
 
-游行民众高喊“对疫苗说不”或“释放德约科维奇”。世界男子网球头号选手诺瓦克·德约科维奇(Novak Djokovic) 正和澳大利亚政府打官司，欲以未接种疫苗的身份参加下周的澳大利亚网球公开赛（Grand Slam Australian Open）。
+That’s obviously a win for sanity
+这显然是理智的胜利
 
-示威者帕斯卡在波尔多告诉法新社：“诺瓦克目前是我们的旗手。”他和一家网球俱乐部的学童父母一起游行，他补充道：“那里的教练可能会因为拒绝接种疫苗而失去工作。”
+But at the same time the court left in place
+但与此同时，法院还保留了
 
-在巴黎，示威者高举法国国旗和区旗，横幅上写着“他们想要控制的不是病毒，而是你”等标语。
+Biden’s mandate for medical workers think about that
+拜登对医务工作者的疫苗规定
 
-**60多岁的示威者克莱尔说： “这是纳粹主义，是种族隔离制度，我没有接种新冠疫苗，而且总体上我反对疫苗。” 另外两名抗议人士告诉法新社，“他们接种了疫苗，但反对对青少年要求‘疫苗通行证’，我们不明白为什么他们必须接种疫苗，因为他们没有危险。”**
+In other words, the Supreme Court just affirmed
+换句话说，最高法院刚刚确认
 
-虽然官员们在傍晚还没有公布全国范围内上街抗议人数估计值，但里昂、南特、波尔多和马赛的警察或地方当局分别统计了大约1,000人。
+that politicians in Washington somehow know more about health than nurses in emergency rooms
+华盛顿的政客不知何故比急诊室的护士更了解健康
 
-**示威者希望超过上周末的示威人数——105,000人。马克龙在接受报纸采访时透露想用新的限制措施“惹怒”未接种疫苗的人，直到他们注射疫苗为止。这促使更多人参加示威活动。**
+That’s absurd
+这太荒谬了
 
-**“疫苗通行证”**
+How did that happen?
+那是怎么发生的？
 
-在周六，一项措施生效。该措施将停用政府为数万人颁发的“健康通行证”。通常在第一次注射疫苗后的七个月内，即使未接受疫苗加强针的人，也会获发政府的“健康通行证”。
+Well, it happened for one reason
+好吧，它的发生是有原因的
 
-根据目前正在议会里争论不休的一项立法，该“健康通行证”——允许进入酒吧和餐馆等公共场所——将被转变为“疫苗通行证”，这意味着将需要提供疫苗接种证明。
+because justice is John Roberts and Brett Kavanaugh
+因为大法官是约翰·罗伯茨和布雷特·卡瓦诺
 
-到目前为止，人们能在新冠病毒检测呈阴性的情况下保持“健康通行证”有效。
+sided with the Biden administration in alliance with the hard partisans on the court
+与法庭上的顽固派结盟，站在拜登政府一边
 
-由于面临传播速度更快的奥密克戎变体所引发的新一波感染浪潮，政府大力推动更强硬的措施。
+like certified non genius Sonia Sotomayor
+像经过认证的非天才的索尼娅·索托马约尔
 
-周五，法国确认了330,000例新增病例，前一周病例数平均接近300,000例。但医院的压力并没有以同样的速度增长，卫生部长奥利维尔·韦兰 (Olivier Veran)曾表示，奥密克戎的危险性较小，感染该变体的患者需要的住院时间更短。
+No one who pays attention to surprise the John Roberts did this.
+没有人惊讶的约翰·罗伯茨会这样做
 
-周六凌晨，国民议会议员将《疫苗通过法案》提交给参议院上议院。
+Roberts says judicial philosophy consists of not offending the Washington Post and has for years
+罗伯特茨说，司法哲学包括不冒犯《华盛顿邮报》并且多年来一直如此
 
-在两院就通行证的最低年龄限制以及是否应授权业主检查客户身份等问题反复讨论之后，它很可能最终在周日通过。
+but Brett Kavanaugh?
+但是布雷特·卡瓦诺？
 
-文章来源：[https://www.straitstimes.com/world/europe/protesters-hit-french-streets-to-fight-new-covid-19-vaccine-pass](https://www.straitstimes.com/world/europe/protesters-hit-french-streets-to-fight-new-covid-19-vaccine-pass)
+wasn’t Brett Kavanaugh supposed to be as sincere conservative a man of principle
+布雷特·卡瓦诺不应该是一个真诚保守的有原则的人吗？
 
-翻译/评论：洛杉矶盘古农场 – maru
+And so Lindsey Graham told us unfortunately
+所以不幸的是林赛·格雷厄姆告诉我们
 
-校对：洛杉矶盘古农场 – Milojai
+many of us believe that we certainly did
+我们中的许多人相信，我们的确是
 
-编辑：洛杉矶盘古农场 – WenXiong
+When Brett Kavanaugh cried during his confirmation hearings
+当布雷特·卡瓦诺在确认听证会上哭泣时
 
-发布：洛杉矶盘古农场 –子萍
+wept like Adam Kinzinger we felt sorry for him
+像亚当·金辛格一样哭泣，我们为他感到难过
 
+We didn’t understand at the time that something had broken inside of Brett Kavanaugh
+我们当时不明白布雷特·卡瓦诺的内心有什么东西被破坏了
 
+that on some level his tormentors now controlled him
+在某种程度上，他的折磨者现在控制了他
+
+and that going forward he’d be burned boiled to conventional opinion that to the Constitution of the United States
+并且在未来，他已背叛了美国的宪法的传统观点
+
+Our mistake
+选择他是我们的错误
+
+To the courts actual conservatives, the ones who don’t weep in public
+对于法院真正的保守派，那些不在公共场合哭泣的人
+
+Kavanaugh position on the VAX mandate made no sense at all
+卡瓦诺对强制疫苗规定的立场完全没有意义
+
+As Clarence Thomas put it in his dissent
+正如克拉伦斯·托马斯在他的异议中所说
+
+nothing in law or in the Constitution requires nurses to
+法律或宪法中没有任何规定要求护士
+
+quote “choose between losing their livelihoods and acquiescing to a vaccine they’ve rejected for months”
+“在失去生计和默许他们拒绝数月的疫苗之间做出选择”
+
+Well, exactly. In other words
+嗯，正是，换句话说
+
+Joe Biden’s vaccine mandates have no legal authority
+乔·拜登的强制疫苗规定没有法律支持
+
+and without legal authority, the government can’t force us to do anything
+没有法律支持，政府不能强迫我们做任何事情
+
+Period
+就是这样
+
+* * *
+
+Date:01/15/2022
+原视频标题: During his confirmation hearing, we didn’t understand that something had broken inside of Brett Kavanaugh. Unfortunately, many of us believed he was a sincere conservative
+在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
+原视频日期：2022/01/15
+原视频链接: [https://gettr.com/post/podwzx7025](https://gettr.com/post/podwzx7025)
+任务编号：KE352（3495）
+视频时间段 : 0:00-1:46
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

@@ -2,11 +2,13 @@
 ---
 
 
-## 1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1873271/)
+## 希腊、法国执行中共病毒疫苗强制令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1873276/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220118-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
