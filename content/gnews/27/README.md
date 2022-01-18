@@ -2,10 +2,18 @@
 ---
 
 
-## 1/17/2022 文贵直播：2月2日的听证会将发生什么？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1876942/)
+## 西媒头条 — 第155期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1877124/)
 
-秘密翻译组-北美组
+**制作：蚂蚁兄弟**
+
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220118.002.jpeg)
+
+***发稿：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
+
 
  
 

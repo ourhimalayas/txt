@@ -2,31 +2,61 @@
 ---
 
 
-## 七哥说“这个天下最可怕的是什么？欲望，欲壑难填呐！”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877205/)
+## 安东尼·福奇巨额投资中共国公司
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1877253/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+据《Breibart》记者：WENDELL HUSEB，2022年1月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1460-e1642535789622.png)图片源自：Breibart
+**Breitbart News发现，安东尼·福奇（Anthony Fauci）博士申报的2020年价值约1040万美元的投资组合涉及中共国公司。**
 
-来源：郭先生2022-01-14直播08：26：50摘录
+**根据参议员罗杰·马歇尔（R-KS）首次发布并由《纽约邮报》报道的2020年财务报告信息，拜登总统的首席医疗顾问福奇通过名为Matthews Pacific Tiger Fund的基金对中国公司进行投资：**
 
-我觉得这样，咱先来一轮就是关于这个美国高院疫苗通过的事儿，咱每人先来一轮，我先听听，啊。这件事情这个背后的故事，哇噻！你们知道这个背后通过跟我们新中国联邦有多大关系吗？你知道我们寄了多少信、提供了多少文件吗？你们看过高院这个审判当中他们采用的文件，过两天公开以后，铲共骑侠你好好看看去，启用了最最关键的就是我们最多提供的数据，mRNA和病毒溯源，以及这些私人企业主的打疫苗，你知道这是8400万美国人，要不然你就要合法被打疫苗。昨天如果这个法不是这么过的话，你知道现在曼哈顿是什么概念吗兄弟姐妹们？长岛哥进曼哈顿进那个楼他都得打疫苗，不打疫苗就是不合法的，小飞象也得打疫苗，你不是流水啦，你该流血啦。竟然很多人在上面你知道东弟、颖妹妹这是我们真的，我觉得从前天到现在我出奇地生气，就这件事儿上，就是我们对事情的认知。很多人说：“啊呀！半喜半忧啊！还有那些医生还得打呀，联邦雇员得打呀，孩子老师得打呀。” 这个天下最可怕的是什么？欲望，欲壑难填呐！你没饭吃人家给你一筐馒头，说“最好给我一个餐厅”，我给你一个餐厅，“不行，你最好给我一个粮仓”，“给我粮仓不行，最好给我一个地球， ”“地球不行，我还要银河”。要按着一个人的欲望，这个世界上就没有人能存在的。习近平到今天都成太阳啦，他想抓谁就抓谁吗？连王岐山都不敢抓，孟建柱都不敢抓。美国高院这个结果我可以告诉你，这个高院，基本到昨天高院法一出来以后，疫苗事情基本上已经完全可以告诉你，完全颠覆了！我们爆料革命、新中国联邦可以说是99.999%的人都是最大受益者，为什么？你是没苗族。我们爆料革命当中你说教育的上学的你去往后你可以自我决定啦。你在开玩笑呢，王雁平让我堵在家里边，这个傻货天天要上班，我们的财务总监已经是妈得上了，俩孩子染上了，他染上，老婆染上。第二天上班王雁平说：“我要戴口罩上班去”，我说：“你不能去，你做过手术，你染上就完啦”。咱那办公室30几个啦。我真是把她摁在家里边，前天又自己跑到大使馆去，长岛哥你知道她又上班去，她是个玩命的人，一天20个小时，我从来没有阻止过她上办公室。还有个她没打疫苗啊，我说：“你给摁住了你可怎么办呢？” 你们知道这有多大的事儿吗。但是你看普遍地反映，对这个高院的判决没有一个正确的认识。你知道高院的这个在美国有法律的国家，更加体现了我们中国人在西方，没有人知道高法是干啥的？多重要？不判当时川普和拜登输，你骂高法，高法今天判完，你还骂高法。要按咱这个思路，咱新中国联邦未来的高法都干嘛？只要是郝海东干的事，都是正确的，都得判他赢，只要颖妹妹干的事儿，都是判她赢，只要是欺民贼干的事儿，都得判他输。一万个高法也不够咱用的。所以你这个观念上不改变，是很可怕的。高法这次决定，在华盛顿造成什么结果知道吗？从这一天起，所有的大药厂和打过疫苗的人就已经开始进入了绳子套在脖子上，而不是咱们中国人想的，一枪就给毙了。人家萨达姆还判了好几年，还关了好几年，也得走程序。被套之前还得念经，你听也得听，你不听也得听。这是我们，今天爆料革命真的有个基本的认知，对事实，对法律的尊重、对程序的尊重。不能拿着自己一个善良的心，传递着虚假的信息，那会害死人的。多大的事！我在高法这件事上，我都不敢说，我就激动到我这不敢想。这么大的事情，没有人去反应！你在乎啥？你就在乎东弟流水的事，是不是？行了，我先说到这，你们先说吧，我一说激动了。
+*突发！我获得了福奇博士之前未**披露**的财务**信息**。福奇博士**在披露财务信息上**完全不诚实，这就是我现在发布它们的原因。*
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+福奇博士的财务披露如下：
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+> 🚨🚨 BREAKING! I obtained Dr. Fauci’s previously unpublished financial disclosures. Dr. Fauci was completely dishonest about his disclosures being readily accessible to the public which is why I am releasing them now.
+> 
+> Dr. Fauci’s Financial Disclosures ⬇️[https://t.co/KdRbedRTX5](https://t.co/KdRbedRTX5)
+> — Dr. Roger Marshall (@RogerMarshallMD) [January 15, 2022](https://twitter.com/RogerMarshallMD/status/1482143444780859394?ref_src=twsrc%5Etfw)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+Matthews Pacific Tiger Fund于2021年9月发布的说明书显示，该基金已将其投资者资金的42.7%投资于中共国和香港的公司。
+
+上市公司中有一家名为Wuxi Biologics Cayman（无锡生物开曼公司）的企业，其总部位于中共国，从事医药业务。
+
+Wuxi Biologics Cayman的网站称，该企业是全球领先的开放性生物制剂技术平台，提供端到端解决方案，使客户能够设计、开发和制造从概念到产品的生物制剂：
+
+*（公司）**预计**2024**年后在中共国、爱尔兰、美国、德国和新加坡的生物制药总产能将超过**430,000**升，将为生物制造合作伙伴提供强大且优质的全球供应链网络。*
+
+Matthews Pacific Tiger Fund在中共国和香港的额外投资包括腾讯控股有限公司；阿里巴巴集团控股有限公司；友邦保险集团有限公司；及香港交易及结算所有限公司。
+
+在Matthews Pacific Tiger Fund之外，福奇报告的1040万美元投资包括在Atlas大盘共同基金、Pimco的投资级债券基金和Pax Ellevate全球女性领导力基金的股份，该基金声称通过商业活动，如“通过性别多元化董事会、高级领导团队以及其他政策和实践”，促进女性发展。
+
+福奇过去的投资组合被参议员马歇尔公开，他在周五的参议院听证会上用未关闭的麦克风称马歇尔为“白痴”后，参议员于周五披露了福奇2020年的投资清单。
+
+**“福奇博士对披露财务信息完全不诚实，” 马歇尔在声明中写道。 “福奇博士必须对所有一直起诉并要求提供这些信息的美国人负责。”**
+
+福奇是联邦政府收入最高的雇员，据报道，他在2020年的收入超过40万，退休后将获得35万美元的年度养老金。
+
+文章来源：[https://www.breitbart.com/science/2022/01/15/anthony-faucis-10m-2020-investment-portfolio-chinese-companies/](https://www.breitbart.com/science/2022/01/15/anthony-faucis-10m-2020-investment-portfolio-chinese-companies/)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
