@@ -2,26 +2,28 @@
 ---
 
 
-## 美国参谋长联席会议主席马克·米利将军感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874878/)
+## 美国核弹道导弹潜艇抵达关岛军事基地
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874928/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-16.jpg)图片来源：军事时代
-1月17日，《新闻极限》报道美国最高级别的将军感染了中共病毒（COVID-19）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-3.jpg)图片来源：CNN
+1月17日，《国会山报》报道，面临印太地区的紧张局势，一艘美国弹道导弹潜艇于周六在关岛停留。
 
-根据报道，周日的时候，马克·米利 (Mark Milley)将军中共病毒检测结果成阳性。并在隔离中和远程工作时出现了非常轻微的症状。发言人说，米利最近一次与总统乔·拜登（Joe Biden）的接触是1月12日参加退役将军雷蒙德·奥迪尔诺（Raymond Odierno）的葬礼上，但在与拜登接触的前几天和之后的每一天，中共病毒检测结果均为阴性。
+根据海军的一份声明，周六，美国海军内华达号潜艇（USS Nevada）抵达关岛（Guam）的阿普拉港（Apra Harbor）。该部门说，这次罕见的访问反映了美国“对印度·太平洋地区的承诺，它协助战略部队进行了许多演习、行动、训练和军事合作活动，以确保他们随时可以在全球范围内行动”。
 
-发言人透露，除了一人外，所有其他参谋长联席会议成员昨天的中共病毒（COVID-19）检测均为阴性，但没有说还有谁检测呈阳性。
+内华达号是一艘俄亥俄级（Ohio-class）弹道导弹潜艇，通常停留在华盛顿州的基萨普海军基地（Naval Base Kitsap），它是弹道导弹的一个秘密发射平台。
 
-值得注意的是，米利将军之前已经完全接种了中共病毒疫苗，并且还接种了中共病毒疫苗加强针。
+按照海军的说法，该潜艇为美国提供了“核三位一体能力的最为重要的一环”，它携带有20枚三叉戟潜射弹道飞弹，并配备有几十枚核弹头。
 
-报道说，本月早些时候，美国国防部长劳埃德·奥斯汀（Lloyd Austin）的中共病毒（COVID-19）检测结果为阳性。（但）他在1月9日测试结果呈阴性，于是不再隔离而回到了五角大楼工作。
+CNN的报道认为，内华达号的访问可以作为美国的一个声明，因为朝鲜和中共国的弹道潜艇工作都远远落后于美国。当美国的一艘弹道导弹潜艇启动时，它通常是保密的，这就是为什么说内华达号在其母港之外被拍照的情况很少。另外，这艘船是核动力的，据说它可以在潜入水中几个月的时间内运作。
 
-**新闻来源**
+根据报道，该舰周六在关岛的访问是它自2016年以来首次停靠该领土，也是它自1980年代以来宣布的第二次访问。
 
-[Top US General Milley Tests Positive for COVID-19](https://www.newsmax.com/newsfront/general-milley-tests-positive-covid/2022/01/17/id/1052714/)
+**新闻来源：**
+
+[US ballistic missile submarine stops in Guam amid Indo-Pacific tensions](https://thehill.com/policy/defense/590077-us-ballistic-missile-submarine-stops-in-guam-amid-indo-pacific-tensions)
 
  
 

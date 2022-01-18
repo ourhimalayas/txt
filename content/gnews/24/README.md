@@ -2,36 +2,20 @@
 ---
 
 
-## WhatsApp无条件帮助美国政府监视用户
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874788/)
+## 嘉宾Kate提问及七哥回答（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1874832/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-整理编辑：小红帽
+学校就是学习，走向社会的一个最后的一个桥梁，不是你定性的时候。这个时候是更多要和 人结缘，而且呢，丰富的去理解人生，不论男女，放开的去享受，去吸收，走向社会的那个 新鲜的空气的那种感觉，不要有太多顾忌。最重要的事情，非常抱歉，千万记住，忘掉爸妈跟你说的话，基本上爸妈说话都是你的绊子，她听她的话没好，这个最好就是听啊看，通过自己的判断力啊。听爸妈的话是，你看，就像我们安迪一样是的，你还小，等他有一天不这么说时，不对、不是的，就长大了啊。现在这个博士妈妈管得太严。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
-
-
-根据《RT新闻》1月18日报道，美国政府机构命令WhatsApp监视几个外国公民，尽管该机构没有证据证明这些用户犯了罪，甚至不知道他们的名字。
-
-最近解封的一份2021年11月的搜查令显示，美国缉毒署(DEA)曾命令脸书（Facebook）旗下的通信服务商监控据说位于中国和澳门的7名用户。
-
-《福布斯》报道：“搜查令显示，缉毒局不知道任何目标的身份，但告诉WhatsApp监控目标用户的IP地址和通信号码，以及他们何时和如何使用该应用程序”。
-
-该监控是调查从中国进口阿片类药物行动的一部分。为了下令进行监控，美国政府只需要说明 “可能获得的信息与该机构正在进行的刑事调查有关”。搜查令并不需要任何犯罪证据。
-
-《福布斯》还发现，WhatsApp此前曾被命令监控墨西哥的四名用户。这再次表明美国政府的大科技监控行动远远超出了该国的边界。
-
-联邦调查局（FBI）去年泄露的一份文件显示，WhatsApp是最愿意向美国当局提供数据的信使服务商之一。
-
-本月，瑞士军方以数据保护为由，禁止军方使用WhatsApp，以及竞争对手Signal和Telegram。
-
-新闻来源：[WhatsApp helps US govt spy on users, no questions asked](https://www.rt.com/news/546338-whatsapp-us-agencies-spying/)
-
+我从小到大我最重要的事情，我孝敬，但是我绝对不听我父母。我很小就告诉我父母，你们千万别老叫我听你们的，你们这一辈子所有的事情就是让我超越。我很清楚地告诉我父母， 我一生为你们奋斗，但是你们要给我自由，我最感激的无数次说的就是我离开了父母。我走向了社会，而且我父母支持我走向社会。每当我遇到挫折的时候我回家，从来父母不问我发 生了什么，他们总是告诉我，哎，饭做好了。偶尔会告诉你，人生啊，只要走下去的事，十之八九不如意。要珍惜善待别人。你活着，你健康的活着，有饭吃，你就感恩上天。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾Kate-提问及七哥回答（二）-.jpg)
 *发布：*tianzhihuan
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
