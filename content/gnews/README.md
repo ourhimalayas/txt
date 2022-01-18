@@ -15,44 +15,44 @@
 
 ---
 
-### [制造和编造邪说不允许别人说话是共产党作为邪教的根本](/content/gnews/1/README.md)
+### [言论自由就是虽不同意你的观点但誓死捍卫你说话的权利](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [人生是用来找钻石找好人的，心地不纯洁何以洁净灭共](/content/gnews/2/README.md)
+### [法律是政府和社会和老百姓之间的契约,目的在于铲除贪婪](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [若批评不自由则赞美无意义,我们要捍卫每个人发声的权利](/content/gnews/3/README.md)
+### [JoeRogan并没有编造邪说，他告诉我们什么叫法治社会](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [01/18每日播报|中共国新生婴儿数创历史新低 中共面临政治难题](/content/gnews/4/README.md)
+### [制造和编造邪说不允许别人说话是共产党作为邪教的根本](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [人生是用来找钻石找好人的，心地不纯洁何以洁净灭共](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [若批评不自由则赞美无意义,我们要捍卫每个人发声的权利](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [01/18每日播报|中共国新生婴儿数创历史新低 中共面临政治难题](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共不敢惹美国的盖特却让中东国家屏蔽GNEWS和GTV](/content/gnews/5/README.md)
+### [中共不敢惹美国的盖特却让中东国家屏蔽GNEWS和GTV](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共邪教搞主崇拜和敛钱、反社会、精神控制、秘密结社](/content/gnews/6/README.md)
+### [中共邪教搞主崇拜和敛钱、反社会、精神控制、秘密结社](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [德约科维奇回到塞尔维亚，受到国王般的欢迎](/content/gnews/7/README.md)
+### [德约科维奇回到塞尔维亚，受到国王般的欢迎](/content/gnews/10/README.md)
  ` 澳喜特战旅Gnews`
 
-### [基金大佬看社交媒体的三个90天](/content/gnews/8/README.md)
+### [基金大佬看社交媒体的三个90天](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [冬奥会后体育界大翻车李永波会被抓而且带出无数个彭帅](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [01/18每日播报|加拿大反击中共关于邮件传播“奥米炕”的假消息](/content/gnews/10/README.md)
+### [01/18每日播报|加拿大反击中共关于邮件传播“奥米炕”的假消息](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [关于中国现代袁世凯](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [躺平币随时可以做好,要让战友既得到躺平币还不能有风险](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [共产党绝对是世界邪恶势力的大总部](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
+### [01/04/2022 文耀时间：青蒿素的实用性-香草山医疗部文恩战友分享](/content/gnews/13/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [2022/01/18 英喜时事速递](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -147,47 +147,47 @@
 ### [新西兰财经G乐部2022年1月18日:财经新闻整理](/content/gnews/44/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [01/18每日播报｜新闻简讯 : 中共胁迫措施解除威胁 以色列研究显示 接种4针不足以预防](/content/gnews/45/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [强制疫苗不道德不起作用，而且违反纽伦堡条约](/content/gnews/46/README.md)
+### [强制疫苗不道德不起作用，而且违反纽伦堡条约](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [现行防疫措施不起作用，此外强制令仍然是违宪的](/content/gnews/47/README.md)
+### [现行防疫措施不起作用，此外强制令仍然是违宪的](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [目标是中共病毒的早期门诊治疗，全民接种疫苗不合理](/content/gnews/48/README.md)
+### [目标是中共病毒的早期门诊治疗，全民接种疫苗不合理](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [沃尔玛正在悄悄准备进军元宇宙](/content/gnews/49/README.md)
+### [沃尔玛正在悄悄准备进军元宇宙](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国去年人口出生率创建国以来最低](/content/gnews/50/README.md)
+### [中共国去年人口出生率创建国以来最低](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国海军内华达号战略核潜艇现身关岛](/content/gnews/51/README.md)
+### [美国海军内华达号战略核潜艇现身关岛](/content/gnews/50/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [希腊、法国执行中共病毒疫苗强制令](/content/gnews/52/README.md)
+### [希腊、法国执行中共病毒疫苗强制令](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国防部正在把福奇暴露出来](/content/gnews/53/README.md)
+### [国防部正在把福奇暴露出来](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年1月17日大直播全文精萃](/content/gnews/54/README.md)
+### [2022年1月17日大直播全文精萃](/content/gnews/53/README.md)
  ` 雅典娜GNotes`
 
-### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/55/README.md)
+### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/54/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/56/README.md)
+### [美国弹道导弹核潜舰罕见现身关岛](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [英国政府拟废除COVID-19（中共病毒）自我隔离法规](/content/gnews/57/README.md)
+### [英国政府拟废除COVID-19（中共病毒）自我隔离法规](/content/gnews/56/README.md)
  ` 日本东京方舟农场`
 
-### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/58/README.md)
+### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/57/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Twitter 禁议员玛乔丽 但不会对她造成太大伤害](/content/gnews/58/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/59/README.md)
  ` 温哥华圆成农场🇨🇦`
