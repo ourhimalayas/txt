@@ -2,28 +2,50 @@
 ---
 
 
-## 全球疫苗灾难—这是场人间的大浩劫
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1875561/)
+## 坚信七哥和爆料革命的战友们更要真心灭共爱护灭共平台
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875720/)
 
-##### 整理：雅典娜速记组
-编辑：玉米地守望者
-![](https://assets.gnews.org/wp-content/uploads/2022/01/全球疫苗_01-1.jpg)
-**天池：**就是关于这个全球疫苗灾难，在未来很短的时间内，您一直（强调）时间点，是明年5月。在这个期间，国内国外他究竟会发生什么，我们应该怎么去应对这场灾难的到来？我们到底会面对什么，在这个当中我们应该注意什么？
+G-TV视频链接：[https://gtv.org/video/id=61e6a9cd87664c47acd64854](https://gtv.org/video/id=61e6a9cd87664c47acd64854)
 
-**七哥：**这问题实际非常简单的回答：我们除了传播，什么也做不到。
-对爆料革命的战友们，家人啊，孩子们，坚决不要打（新冠疫苗），使劲劝说。而且有些战友啊，非常神经的，就是为了劝说别人，自己哭的一把哭的鼻涕一把泪一把啊，这是精神有问题啊，兄弟姐妹们。我们救人可以啊，我们从来不鼓励战友牺牲救人，牺牲自己去救人。人家不打针你哭啥，人家打针你哭啥，你都没必要哭啊。还有一个就是战友们，家人也好朋友也好，你一定要记住，这场是人间的大浩劫。啊，谁活下来他都有各种宗教、信仰、物理的各种原因。大家别真的是你，别太勉强自己了，就像你七哥一样，我最爱家人的啊，我家人现在谁打，我真一点儿辙也没有。我不会为此痛苦，我也不会为此痛苦。没有选择啊，你就把自己照顾好。
+**郭文贵先生：**所以说兄弟姐妹们，咱们在今天这个直播当中，你才意识到了我们如何看待真和假的问题，如何看待数字时代到来我们将面临的挑战。还有疫苗事件确定了你信不信新中国联邦，信了，最大的受益你已经有了，你没打疫苗，你就是最大的收获，你信新中国联邦、信七哥你已经不吃亏了。
 
-再一个你要相信了，你就给别人说一说，传达传达信息，至于对方接不接受，你痛苦，你哭泣的实在是无知至极。灾难远远没有到来，后果绝比你想象所有的都严重，全地球现在干啥呀都是印钞票。让你打一疫苗，威胁你的工作．你觉得这世界能这样下去吗？
+然后你再看看喜币，数字货币的时代，你再说盖特，就像我说，那咱们所谓的这个投资者说：“盖特没有推特好。”开玩笑，你给我整一个盖特出来呗？一个美国共和党你给我搞出一个盖特出来呗？是不是？我不求最好，但我只求唯一，盖特现在就是唯一，你不知道我唯一的价值，你就自己去玩去，对吧？
 
-*发布：玉米地守望者*
+然后再看我们今天的G-TV，再看到六个海湾国家到了北京把共产党吓成这个样子。
 
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+还有2022年是人类经济政治所有最黑暗的一年，而且在黑暗中唯一的我们现在能看到的一束光——没苗族、灭共族、数字货币希望族，是吧？还有这些能给大家带来真相的平台，就咱们新中国联邦。我们再坏也不会坏到2020年以前，2019年12月份以前去了，是吧？再坏也不会坏到419的时候，断播的时候了吧。
+
+但是大家兄弟姐妹们，你们要维护住这些东西，是要真心灭共，坚持唯真不破。要爱战友，在爱面前是最大的力量，就是你真心的爱对方，而不是让对方给你爱。
+
+你要给对方爱，对方才爱你。你不爱战友，就像小飞象做了多少事情？她没有这些做，铲共也不可能给她当这个律师去，那是长岛哥、村长也不会这么去做去。首先得爱爆料革命、爱战友，对不对？我们有些战友就想投机取巧，那是不行的，好吧？
+
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
