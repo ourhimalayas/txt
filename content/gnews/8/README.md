@@ -2,24 +2,30 @@
 ---
 
 
-## 赵长鹏开启魔鬼之车将和币安彻底结束
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873297/)
+## 中共国去年人口出生率创建国以来最低
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1873352/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/币安赵长鹏_01.jpg)
-布隆伯格是王岐山的哥们儿，就黑我们的。布隆伯格最怕我们喜币成长。 他和王岐山是一伙的。只要王岐山一出手， 布隆伯格就黑七哥啊！只要吴征一出手，华尔街日报，还有什么AP就进来黑七哥。你永远记住啊，这都是一伙的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-24.jpg)中共国去年人口出生率创建国以来最低 网络图片
+据美国之音1月17日报道，中共国统计局17日公布数据，2021年全年中共国人口出生率创建国以来最低，出生人口为1062万，比2020年少140万。
 
-赵长鹏，从上海出了个小伙子，还真不知道死活，王健尸骨未寒，现在在6尺之地你能找到王健吗？王健没敢挑战过我，王健通过各种渠道在临死之前跟我还联系了， 没搭理他。我们保护着王健的家人，如果没有咱们爆料革命，他的家人在美国不会这样的。所以赵长鹏，这个小屁孩，不知道天高地厚。我们从不认识他，但是只要他朝我们来，他已经开启了魔鬼之车，不是咱怎么着他，是他会被王岐山共产党消灭掉，一定的，币安也将彻底结束。
+2016年，北京取消强制推行了几十年的独生子女政策。2021年5月，政府宣布了三孩政策，但是中共国生活成本高，养育子女成本更高，出生率依然持续下降，而且人口性别持续失衡。
 
-*发布：开智则立*
+中共违反自然规律，通过残酷的计划生育政策杀掉了四亿多婴儿，其中绝大多数是女婴。中共治国无方，扰民有术，高房贷、高昂的生活成本和医疗费用令老百姓的生活苦不堪言，年轻人不愿意结婚，更不愿意生育，老年人的晚年生活没有保障。中共国怨声载道，全民躺平，生育率自然连年下降。邪恶至极的病毒和疫苗毁掉了无数年轻人的生育能力，中华民族真正是到了最危急的时候，面临着全民种族灭绝。只有推翻共产党，实现民主、法治，应天顺人，花开花落，繁衍生息，中华民族才能继续生存下去。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻参考链接：[https://www.voachinese.com/a/china-birthrate-20220117/6399751.html](https://www.voachinese.com/a/china-birthrate-20220117/6399751.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

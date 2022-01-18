@@ -2,24 +2,28 @@
 ---
 
 
-## 小斯基案例分析(一)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873244/)
+## 美国海军内华达号战略核潜艇现身关岛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1873306/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%B0%8F%E6%96%AF%E5%9F%BA%E6%A1%88%E4%BE%8B%E5%88%86%E6%9E%90%EF%BC%88%E4%B8%80%EF%BC%89-.jpeg)
-好的，那我来说一下我这个吃药预防的至自己的一个亲身经历吧。作为一个吃羟氯奎至加锌有用的一个实际案例。在前几天的时候我是跟一个已经出现症状 的人坐在一辆车里面，总共是呆了七八个小时，吃了大概两餐饭。就是他已经出现了这种喉咙不舒服然后有一点这个发热，包括那个血氧下降的症状。 作为他坐在我车上这第一感觉，他如果是得了的话，那我肯定是100%躲不掉了。 那么后来呢?我就是一直在持续关注我自己的身体的情况，我就发现了，我没有任何的比方说血氧下降啊，或者说咳嗽啊，发烧啊，任何的不舒服，没有任何的不舒服。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-23.jpg)美国海军内华达号战略核潜艇现身关岛 网络图片
+据美国之音1月18日报道，美国海军俄亥俄级内华达号核潜艇15日现身关岛美国海军基地。核潜艇是美国三位一体的重要战略资产，被视为潜在的核大战爆发后，存活率最高的核反击力量。美国现役拥有18艘俄亥俄级核潜艇。内华达号战略核潜艇于1986年进入美国海军服役，是美国战略核潜艇自2016年以来首次停靠关岛。也是自1980年代起，美国海军第二次公开宣布核潜艇出访关岛。
 
-那么这一个案例就可以充分证明说吃硫酸羟氯奎加锌来预防是管用的。其实我在跟私下里这些战友在沟通的时候，发现有很多人是把这个硫酸羟氯奎加锌的吃法这个说搞错了的，我也在这里由于受众很广，跟大家讲一下。 刚开始一周，是每天一吃，接下来呢是每周一吃，每周吃200毫克，有很多人 是把那个锌。也像这个硫酸羟氯奎那样，每周吃25毫克，这是不对的。一定要是每天去吃，因为硫酸羟氯奎在体内半衰期呢，我查，应该是50天，你每天就刚开始一段大量时间累积之后，再接下来的话每周去吃可以维持这个硫酸羟氯奎就可以在你体内的这么一个浓度，但是锌不一样，因为锌他是你的身体每天是要消耗的。
+由于中共军方持续加大对台军事压力，美中对立越发明显，内华达号核潜艇出访关岛向北京和平壤施加了无声的压力。中共国有核潜艇，不过战力与配备完全无法与美国相比。中共国没有科技、没有实力，更没有底线。在这次全球对抗中，真到了最后的关头，中共国敢释放核武器，它是不惜带着整个世界一起灭亡的。美国的威慑很重要。
 
-*发布：陶子*
+新闻参考链接：[https://www.voachinese.com/a/one-of-US-Navy-s-most-powerful-weapons-makes-a-rare-appearance-in-Guam-20220117/6400253.html](https://www.voachinese.com/a/one-of-US-Navy-s-most-powerful-weapons-makes-a-rare-appearance-in-Guam-20220117/6400253.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
