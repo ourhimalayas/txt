@@ -2,35 +2,36 @@
 ---
 
 
-## 日本疫情创新高 单日确诊首次逾三万
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876085/)
+## 2021年中共国出生率和人口净增均创新低
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876182/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月17日，中共国家统计局发布，2021年全年出生人口1062万人，出生率为7.52‰；死亡人口1014万人，人口净增长仅为48万人，创下自1962年以来新低，社会老龄化日益严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/73BE9000-A922-4957-9BEE-B73FF405B227.jpeg)（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11.jpeg)
 
-1月18日，日本境内中共病毒（COVID- 19）确诊人数创下新高，当日新增确诊病例首次超过3万例，刷新去年8月20日单日新增2万5990例的纪录。东京都、千叶县等13县申请适用“防止蔓延等重点措施”，提升防疫等级。
+相比2020年全国人口出生率8.52‰，2021年进一步下降，并持续跌破1% ，比日本与韩国还低；尤其触目惊心的是人口净增长数，2019年为467万人，2020年为204万人，2021年骤降为48万人。从性别构成来看，男性比女性多3362万人，育龄妇女人数偏少；从年龄构成看，60岁以上为2.67亿人，占总人口的18.9%，人口老龄化进一步加剧。
 
-据中央社报道，大阪府、长野县等全国多个府县单日新增确诊病例皆创新高。大阪府当日新增确诊病例5396例，另长野县、兵库县、鸟取县、岛根县等地的新增确诊病例均达到5185例，是上周二的5倍多。
+研究发现，延续两年的新冠疫情，对30岁以下年轻人的生育影响最大。本来在学习、就业、生活成本严重内卷的压力下，这一年龄组的生育连年下降。叠加疫情短期爆发、长期影响，年轻人只能“躺平”，维持最低限度的生存。生育意愿被严重压制，加速出生人口数量和生育率双双创历史新低。专家分析，随着国内经济日益悲观的预期，2021年延续了2020年的变化趋势，中共国人口的负增长率很可能超出人们的预计，会提前到来。
 
-为应对疫情升温，日本政府18日傍晚将召开相关阁僚会议，针对包括东京等多个地方向中央政府申请适用“防止蔓延等重点措施”做出研讨，19日将在政府防疫对策本部正式做出决定。该措施是“紧急事态宣言”前一阶段的防疫作为。
+参考链接： 
+1）[中国出生人口为何大幅下降？专访中国人口学会会长翟振武](https://3g.163.com/dy/article/GTTM2OC205129QAF.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=8)
+2）[我国人口净增长48万，创60年新低！出生率连续2年跌破1%！三大主要原因…](https://m.sohu.com/a/517274387_115362?scm=1104.0.0.0&amp;spm=smwp.home.fd-important.17.1642454762635es1SnkW)
 
-申请适用“防止蔓延等重点措施”的是东京都、千叶县、神奈川县、埼玉县、群马县、新潟县、爱知县、岐阜县、三重县、香川县、熊本县、宫崎县、长崎县等13个地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-*参考链接：*
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-1. [*日本新增確診數創新高 首度單日逾3萬例*](https://www.cna.com.tw/news/aopl/202201180319.aspx)
-2. [*日本疫情擴散快 東京等13都縣申請防疫升級*](https://www.cna.com.tw/news/aopl/202201180186.aspx)
-
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑： 文顺*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

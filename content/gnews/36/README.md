@@ -2,28 +2,32 @@
 ---
 
 
-## 【G时新闻】科学家说：继奥米克戎之后将有更多令人担忧的变种！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1875771/)
+## 德国要求中共解除对立陶宛及欧盟的胁迫措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875786/)
 
-加拿大温哥华扬帆农场 播报： 文广 视频制作: Geacelshan
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月14日，德国外交部发言人柏格在记者会中表示，德国与欧盟支持立陶宛，并要求中共解除对立陶宛和欧盟内部市场所有正式和非正式的胁迫措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.44.png)
+立陶宛因为决定设立台湾代表处，被中共无理干涉。 中共利用不合理手段，在海关故意阻扰立陶宛产品及含有立陶宛零件的欧盟产品进行通关程序，致使这些欧盟出口到中共的货物大量卡关堆积，造成欧盟厂商的困扰。
 
-据美联社1月15日报道，科学家警告说 ，继奥米克戎全球肆虐之后，人们预料奥米克戎将不是冠状病毒的最后一种变种。
+欧盟执行委员会已经在检视中共的干预措施是否符合世界贸易组织（WTO）的规范，欧盟主管贸易的执行委员杜姆布罗夫斯基表示，欧盟正在搜集证据，准备对于中共违反世贸组织规范的行为，向世贸组织提出控诉。
 
-每种感染提供了病毒进一步变种的机会。奥米克戎与前几种变种相比更具有传染性。尽管有疫苗和有些人已经感染过，奥米克戎照样能引起感染，这意味着病毒在更多人中都会进一步演变。
+参考链接：[中國施壓立陶宛等歐盟成員國 德國要求解除脅迫措施](https://www.cna.com.tw/news/aopl/202201180011.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-专家们不清楚下一个变种会是怎么样，而且他们不能确定奥米克戎会造成轻微的症状，目前的疫苗也不能确定有效。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-波士顿大学传染病流行病专家里奥内多马丁内说，奥米克戎传播越快越有机会发生变异。
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-世卫组织总干事谭德塞说，希望看到年终全球每个国家有70%的人接种疫苗，目前还有几十个国家的接种率低于25%，有大量未接种疫苗的人是引起变种的因素。
-
-明尼苏达大学分子病毒学主任路易斯曼斯基说，变种是不可避免的，中共新冠病毒疫苗就是一种病毒，打得越多感染越多。
-
-盖特：[https://gettr.com/post/popafdbfe9](https://gettr.com/post/popafdbfe9)
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：七觉花
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
