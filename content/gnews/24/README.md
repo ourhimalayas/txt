@@ -2,22 +2,27 @@
 ---
 
 
-## 世界中共病毒感染人数3周来持续增长
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1874029/)
+## 澳政府承认疫苗具有严重副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874096/)
 
-发布：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-25.png)
-世界卫生组织（WHO）关于中共病毒（新冠病毒Covid-19）感染人数的初步数据显示，从1月10日开始的一周内，全球感染该病毒的人数达到1873万，连续第三周刷新历史记录。死亡人数也继续上升，世卫组织呼吁继续保持警惕，因为感染者人数的迅速增加可能导致更多的损害。
+##### 翻译：FULIN
+校对：枳实
+剪辑/字幕：文驰
+编辑：Mttfly
 
-在奥密克戎病毒在全球爆发后，世卫组织的初步数据显示，在新年假期期间，每周的感染人数达到近1000万，在1月3日开始的一周内，感染人数约为1500万。 尽管每周的增幅已经放缓，分别为73%、59%和20%，但过去两年中疫情蔓延最快的局面依然存在，不容乐观。
+根据澳大利亚“7新闻”频道报道，澳联邦政府正在为任何在注射COVID后，出现严重疾病的人提供赔偿。这意味着，澳政府正式承认疫苗具有严重副作用。在报道中，一位名为马蒂·约翰的青年在接种辉瑞疫苗两天后就出现了心包炎等症状，因此停工十周。这不仅仅是个例，据估计，澳洲有79,000人遭受过疫苗的不良反应。虽然澳政府准备赔偿，但是条件非常苛刻，部分民众只能独自承受费用。
 
-信息源：
+视频链接：[REPORT: 79,000 People! – The government now ADMITS to severe vaccine side effects. – Offering some victims over $600,000 in cash and compensation. – Australia.](https://twitter.com/newgranada1979/status/1476926692505505795?s=21)
 
-[世界の感染者、3週連続で最多　新型コロナ、大幅増続く](https://news.yahoo.co.jp/articles/9d30f1d28c2293d7e5deb7246b597c318151121a)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

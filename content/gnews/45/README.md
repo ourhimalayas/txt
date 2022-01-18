@@ -2,21 +2,23 @@
 ---
 
 
-## 犹他州长批评要求实行激进疫苗政策的本地媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872436/)
+## 前马来国足注射中共病毒疫苗第三针五天后死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872477/)
 
 作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据美国媒体1月16日消息，近日，犹他州历史最悠久的报纸呼吁州长动用国民警卫队将未接种中共病毒疫苗的人严格居家，禁止他们去任何地方。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-54.jpg)
-州长对此激进言论进行了抨击，她说，奥密克戎的大流行已经失控了，不断接种疫苗并不能控制病毒的预防与传播，有些已经接种两针疫苗的仍然被感染了，所以控制未接种疫苗的人并不是有效方法，该报纸的激进言论再次让媒体失信于大众。
+1月12日，前马来西亚61岁的足球运动员谢比.辛格在骑自行车时因心脏病突发死亡。据悉，这位运动员刚刚在1月7日注射了中共病毒疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-55.jpg)
+医生表示，谢比的死因99%与心脏病发作有关。验尸报告显示，辛格的三条冠状动脉阻塞；而他的所有重要器官都处于完美工作状态，也没有任何过敏反应的迹象。
 
-参考链接：[犹他州长批评要求实行激进疫苗政策的本地媒体](https://www.thegatewaypundit.com/2022/01/salt-lake-city-tribune-editorial-board-demands-utah-governor-use-national-guard-keep-unvaccinated-people-homes/)
+当日，谢比是骑自行车时直接摔下来，虽很快叫来了救护车，然而，他已经过世了。谢比的儿子告诉记者，他的父亲在死前五天接受了加强针。
+
+参考链接：[前马来国足注射中共病毒疫苗第三针五天后死亡](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：DM
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

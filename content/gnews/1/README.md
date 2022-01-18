@@ -2,45 +2,26 @@
 ---
 
 
-## 爆料革命被他人利用的怼比我们自己自杀的核武器还可怕
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874330/)
+## 暴击中共法律超限战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1874348/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e63acc87664c47acd62455](https://gtv.org/video/id=61e63acc87664c47acd62455)
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-157.png)
+1月17日郭文贵先生在爆料，共产党对郭文贵先生的法律诉讼是精心策划的组合拳，“419VOA断播”前一天，诉讼已经递交。诉讼主要分预期，疯狂，嚣张，反攻，4个阶段。前三个阶段，共产党极其嚣张，文贵先生基本没有申诉的机会；第四阶段，法院取消了共产党代理律师的资格！
 
-**郭文贵先生：**还有这两天Joe Rogan，“哎呀，砸我们啦”！唉哟，我的战友们，我们都要起来跟人家怼去。这个“怼”字，我认为是在中国字典上从古到今，我认为比“奸”还可怕的词，比“奸”还可怕！我们不怕奸不怕斜，真怕人家糊涂地乱怼，为了证明自己正确就乱怼，怼的人绝对不是怼的坏人都是怼的好人。
+根据调查发现中共盗国贼王岐山养的PAG对文贵先生的诉讼本质就是共产党的法律超限战。PAG的中共背景，和中共勾兑在中共国有业务的律师，和吴征在蒙古包看表演的FBI，纽约管着香港的事，无数共产党伪造的假证据，单拿出来一样，用膝盖去想，都能看见有利益冲突，但法官却屡次无视！这件事代表着中共对美国立国之本的腐蚀和渗透，西方资本权贵和中共深度勾兑奴役中国人和对中国人的种族歧视，以及共产主义对资本主义法治社会的全面占领。
 
-我们爆料革命就有一帮人专门怼人，其中一个，今天早上唐平给我发的信息：“七哥我就看你怼人高兴”，我就想起这个“怼”字，我说我一会儿直播一定要说这个“怼”字。因为“怼”字很适合唐平，逮住谁都怼，喝多了以后不分那女、不分老少、不分好坏，逮住谁都怼。
+中共可怕的狠招还没用尽，为了打赢这场法律超限战，为了获胜中共定会不择手段！美国的立国先贤为了保护人民的自由不被剥夺，精心设计了六层防护！除了立法、司法、行政三权分立之外，还有媒体自由、军队国家化和人民的拥枪权！现在我们看到这六层防护被中共一一渗透，只剩下人民的拥枪权了，当然他们也是要千方百计的设法最终搞掉的！一旦人民最终的这层防护没有了，那么香港的遭遇将在全球上演!
 
-我们被人家利用的怼是什么你知道吗？被利用的怼，那就比自己自杀的核武器还可怕！
+还好，郭文贵先生有远见的创建了GTV、盖特，让我们有GTV、盖特这样发声的地方。还好，美国并没有完全堕落，有班农、纳瓦罗、蓬佩奥等许许多多的正义人士！扪心自问，向郭文贵先生这样的大佬都被中共法超限战都搞成这样，你说可怕不可怕？曾经叱咤风云的海航王健、叶简明、肖建华，现在在哪呢？
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+这次郭文贵先生实施的反击已经说明中共的进攻已经被撕开了一个口子，证据真实和程序正义的反击已经开始，相信这个案件100%会赢！随着司法部一定会调查，国会一定会调查，单伟健和美国司法的勾兑，包括BVI的勾兑都会查清楚。会查出英国欧洲共产党的渗透，西方会彻底查清共产党的邪恶。最后大抓捕，彻底清除美国司法部的黑暗的力量，和收了黑钱的人！
 
-编辑整理：Jacques；
+不灭共谁都不安全！ 行动，行动，战友们都行动起来，给中共迎头暴击，在中共心中只惧怕强者，最终我们新中国联邦一定会取得最终的胜利！！
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
