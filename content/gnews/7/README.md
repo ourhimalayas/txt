@@ -2,33 +2,27 @@
 ---
 
 
-## 七哥谈战友买喜币（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877537/)
+## 吴征收买FBI前雇员突创郭文贵私宅
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877662/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+整理：雅典娜速记组
+编辑：Rianna
 
-来源：郭先生2022-01-14直播09：44：19摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/R4PTO1JUX0T2CN6XZ3-1.png)图片来源：雅典娜设计组
 
-就在过去大概三、四天左右，我们战友从国内出来的大概在70个人左右，有十几个家庭是带着狗带着猫出来的，都是逃出来的，都是已经逃出来了，有些是正当渠道，有些是这个、这不叫不正当，就是用聪明的办法出来的。所有这些家庭当中，没有任何人有喜币的，因为这些人还都很有钱，就是知道我不能因为买喜币把我暴露了，这些人就聪明，但出来第一件事KYC买喜币，向七哥报告我们已经出来了。说明什么问题呢？兄弟姐妹们，不要为了买喜币冒着生命危险在国内，同样也回答你躺平币的问题，躺平币随时都可以做好，但是躺平币、绝对不能因为躺平币把国内很多战友给陷害进去。我们让他既得到币还不能得到风险，所以时间我们要好好地把握。就像刚才咱们直播前我给颖妹妹、东弟说，咱的哥们儿在这个北京北体路，是吧？在那块儿，他说：七哥，我爷爷1956年就住在这儿了。我爷爷住在工体路，网球中心啊，是吧？这哥们儿说我现在走哪都很傲慢啊，我走哪都很骄傲，因为我有币。因为他有币他不是在国内有的，他闺女在海外有的。这就是聪明人，走哪都觉得我这孩子没啥事儿了，人家当时只有1万个币是拿钱买的，现在人家有多少币呢？大概有40万个币，全是从二级市场买的。他现在已经就是，东弟、颖妹妹你们看着，冬奥会之前不会有事，冬奥会之后体育界大翻车。什么你那个李永波，我给你保证今天说他百分之百抓进去啊，我第一次说，百分之百的被抓进去。今天给你们爆个料，百分之百被抓进去啊，工体路很快跟李永波绝对绝缘了，而且他会带出无数个彭帅的故事。你讲宇宙无限大，他更敢讲，他敢讲太阳无限大啊，到处讲。
 
-校对：HimaFaFA
-发布：HimaBoy
+2020年病毒期间，郭文贵先生录了一个说准备了口罩，准备了消毒品，需要消毒剂，都在住的这个房子里。3天后，警察、FBI敲门突然出现在郭先生家里，在美国这是不允许的，它没有任何法律依据命令， 他们说有人举报郭先生私自囤积大量的社会被定义为的战时商品，FBI还有警察，结果郭先生的律师还有那个保镖过来说那你看吧，看车库里边儿，口罩手套清洁品是捐献出去的，结果说你们捐给谁了？郭文贵先生马上给他提供捐给的教堂、医院…，整个我住的地方康州，我是唯一一家捐口罩的，代表法制基金，就它一核对是真的，然后抱歉地就离开了。大家知道这是谁干的吗？FBI内部人才能有这样的动力和权力干这种事情，这个FBI的Richard就是原来郭先生的保镖公司的合伙人，和吴征的现在合伙人和PAX官司的调查人，他是整个曼哈顿的老大，差点成为FBI老大， FBI前三号人物。就这人戴着爱马仕领带，跟吴征在那个蒙古包里边吃边看美女跳舞的就是他，他又参与PAX官司，这不就是利益冲突。
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+郭文贵团队一定会找那个FBI的人，一定会问他为什么当时到这块非法的去信息调查？谁让他来的，他们也会起诉KKL律师所。再一个，现在应该是司法部在调查的就是Richard Frankel， FBI的老大和他们之间的关系，还有多维为他公开做假证的这个事情，会对法院法官最后起决定起诉。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+资料来源：郭先生GTV和盖特直播视频。
 
-**关注我们**
+发布：  tianzhihuan
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

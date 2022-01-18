@@ -2,10 +2,21 @@
 ---
 
 
-## 1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1876880/)
+## 七哥说—第44期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1877178/)
 
-秘密翻译组-北美组
+**制作：Inzaghi**
+
+**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-18_4.57.12.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-18_11.36.34.png)
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
 
  
 

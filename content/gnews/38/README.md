@@ -2,37 +2,41 @@
 ---
 
 
-## 芬兰允许伊维菌素用于治疗中共病毒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
+## 有声|郭文贵先生诠释 灭共就是天意
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876466/)
 
-#### 撰稿：日本东京方舟农场 JIHO
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
-
-1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
-
-日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
-
-此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
-
-不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
-
-对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
-
-*参考链接：*
-
-1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
-2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
-3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
+配音：香草山教育部 – Rose
 
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+在1月12日的大直播中，郭文贵先生用个人经历和感悟诠释了，灭共就是天意。
 
-*素材采编：JIHO*
+郭先生谈到，天意没有偶然，永远要相信天意。新中国联邦人不流一滴血，没有任何暴力，在过去五年里，团结亿万战友，唤醒国内无数有良知的人，这是天意。
 
-*编辑： 文顺*
+如果没有习近平、王岐山孟建柱、江家和南普陀会议；没有共产党对外扩张，搞一带一路，灭白计划，叫板美国要平等共治；对内利用反贪抓了100万官员；没有习近平搞所谓的”共享财富“，释放病毒，威胁台湾，灭香港，在新疆西藏搞种族大屠杀，就不可能灭共。这些都是天意。
 
-*发布：miumiu*
+郭先生用自己的经历解释，不是所有的人都能领悟什么是天意。郭先生在年少时期去到新疆，后来还去过昆仑山、帕米尔高原、喜马拉雅山脉，从这些游历中，亲身体验到天意。郭先生当年卖掉摩托车支持六四，被关到看守所，出来以后就要拯救中国人和世界，这也是天意。
+
+有天意，就有天机，是上天安排的机会。天机后面是民心，是天时，地利，人和。所以说，灭共就是天意。
+
+文字版原文 ：[郭文贵先生诠释 灭共就是天意](https://gnews.org/zh-hans/1870048/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
