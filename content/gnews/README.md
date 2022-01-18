@@ -15,104 +15,104 @@
 
 ---
 
-### [社交媒体爆疫苗接种将在全球范围内停止](/content/gnews/1/README.md)
+### [1/17/2022 文贵直播：中共缠诉步步紧逼，文贵预测2月2日Lady May的案子开庭将被判大输](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥说“最终一定是数字货币走向新的时代”（2022-01-14摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [七哥谈战友买喜币（2022-01-14摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [社交媒体爆疫苗接种将在全球范围内停止](/content/gnews/4/README.md)
  ` 华盛顿DC-Russian`
 
-### [灭共者之郭氏情报站（十三）2022/01/17 文贵大直播](/content/gnews/2/README.md)
+### [七哥说“我们要参与标准制定权”（2022-01-14摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [灭共者之郭氏情报站（十三）2022/01/17 文贵大直播](/content/gnews/6/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥说“数字货币和喜币喜联储将彻底改变人类的金融系统、生态系统，改变游戏规则。”（2022-01-14摘录）](/content/gnews/3/README.md)
+### [七哥说“数字货币和喜币喜联储将彻底改变人类的金融系统、生态系统，改变游戏规则。”（2022-01-14摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [【粤语配音】2022年1月17日：太平联盟官司100%会赢（上）](/content/gnews/4/README.md)
+### [【粤语配音】2022年1月17日：太平联盟官司100%会赢（上）](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [揚帆每日速遞 2012年1月18日版（2）](/content/gnews/5/README.md)
+### [揚帆每日速遞 2012年1月18日版（2）](/content/gnews/9/README.md)
  ` 温哥华扬帆农场`
 
-### [习近平无奈缩小“零”容忍圈圈，江曾系反攻助全球灭共大势](/content/gnews/6/README.md)
+### [习近平无奈缩小“零”容忍圈圈，江曾系反攻助全球灭共大势](/content/gnews/10/README.md)
  ` YALUN 亚伦`
 
-### [扬帆每日速递 2022年1月18日版（2）](/content/gnews/7/README.md)
+### [扬帆每日速递 2022年1月18日版（2）](/content/gnews/11/README.md)
  ` 温哥华扬帆农场`
 
-### [卡车司机罢车，加拿大将出现严重物资短缺](/content/gnews/8/README.md)
+### [奥兹医生](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [卡车司机罢车，加拿大将出现严重物资短缺](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [每日快报：推特自称是真理的仲裁者，促进了假新闻的出现](/content/gnews/9/README.md)
+### [每日快报：推特自称是真理的仲裁者，促进了假新闻的出现](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [扬帆每日速递 2022年1月18日版（1）](/content/gnews/10/README.md)
+### [扬帆每日速递 2022年1月18日版（1）](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [全球疫情更新(一位26岁青年猝死案例的讨论）](/content/gnews/11/README.md)
+### [全球疫情更新(一位26岁青年猝死案例的讨论）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大姥](/content/gnews/12/README.md)
+### [大姥](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [麻省理工学院科学家呼吁避免为儿童接种新冠疫苗](/content/gnews/13/README.md)
+### [麻省理工学院科学家呼吁避免为儿童接种新冠疫苗](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥给大家2022年的建议（2022-01-14摘录）](/content/gnews/14/README.md)
+### [七哥给大家2022年的建议（2022-01-14摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [七哥谈避免急功近利和不切实际地幻想（2022-01-14摘录）](/content/gnews/15/README.md)
+### [七哥谈避免急功近利和不切实际地幻想（2022-01-14摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [七哥谈共产党放热毒的问题（2022-01-14摘录）](/content/gnews/16/README.md)
+### [七哥谈共产党放热毒的问题（2022-01-14摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [安东尼·福奇巨额投资中共国公司](/content/gnews/17/README.md)
+### [安东尼·福奇巨额投资中共国公司](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥说“未来会证明新中国联盟有多牛叉”（2022-01-14摘录）](/content/gnews/18/README.md)
+### [七哥说“未来会证明新中国联盟有多牛叉”（2022-01-14摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [七哥呼吁战友戴口罩（2022-01-14摘录）](/content/gnews/19/README.md)
+### [七哥呼吁战友戴口罩（2022-01-14摘录）](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [七哥谈中共所谓的零容忍（2022-01-14摘录）](/content/gnews/20/README.md)
+### [七哥谈中共所谓的零容忍（2022-01-14摘录）](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [七哥说“这个天下最可怕的是什么？欲望，欲壑难填呐！”（2022-01-14摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [七哥谈法律和行政命令（2022-01-14摘录）](/content/gnews/22/README.md)
- ` MG FARM`
-
-### [加拿大卡车司机在美加边境堵路抗议疫苗强制政策](/content/gnews/23/README.md)
+### [加拿大卡车司机在美加边境堵路抗议疫苗强制政策](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥说—第44期](/content/gnews/24/README.md)
+### [七哥说—第44期](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈爆料革命、新中国联邦的魅力（2022-01-14摘录）](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [西媒头条 — 第155期](/content/gnews/26/README.md)
+### [西媒头条 — 第155期](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西媒头条 — 第155期](/content/gnews/27/README.md)
+### [西媒头条 — 第155期](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说：“这个世界上不要相信真理，也不要相信正义会凌驾于利益之上”（2022-01-14摘录）](/content/gnews/28/README.md)
- ` MG FARM`
-
-### [2022年1月17日郭文贵先生直播全文字版](/content/gnews/29/README.md)
+### [2022年1月17日郭文贵先生直播全文字版](/content/gnews/30/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [1/17/2022 文贵直播：2月2日的听证会将发生什么？](/content/gnews/30/README.md)
+### [1/17/2022 文贵直播：2月2日的听证会将发生什么？](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？](/content/gnews/31/README.md)
+### [1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [01/18/22 香港快讯 港大学生昨晚快闪抗议「国殇之柱」遭移除 文宣旋即被清](/content/gnews/32/README.md)
+### [01/18/22 香港快讯 港大学生昨晚快闪抗议「国殇之柱」遭移除 文宣旋即被清](/content/gnews/33/README.md)
  ` 英喜-粵語組`
-
-### [新冠疫苗将一位母亲推入绝境](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [GTV新闻访谈简报|2022年1月18日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`

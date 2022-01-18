@@ -2,22 +2,33 @@
 ---
 
 
-## 加拿大卡车司机在美加边境堵路抗议疫苗强制政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1877189/)
+## 七哥说“未来会证明新中国联盟有多牛叉”（2022-01-14摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877242/)
 
-撰稿：西枫westca
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-11.jpg)图片来源：网络截屏
-据“The Gateway Pundit” 1月18日报道， 加拿大卡车司机反对COVID暴政，于周一晚间在曼尼托巴省封锁了从加拿大双向进入美国的高速公路。卡车上写有”反对强制疫苗接种“
+来源：郭先生2022-01-14直播08：48：30摘录
 
-根据政府数据，2019年美加商品和贸易总额估计为7184亿美金。加拿大是美国的第三大商品进口国，美国是加拿大的第一出口国。 70%的贸易是通过卡车运输的。
+所以大家今天学判断铲共你要知道，我们今天高法的还有一个，不是长岛哥你们是直接受益者。还有一个更关键的问题，大家要记住了，你知道它起着最核心的问题在哪里吗这个高法？美国最危险下决定的，是美国的白宫、行政执法，它是执法机关。那么，这个高法一旦作出这个决定，它是不可逆转的，给所有的药厂和疫苗，和所有的机构提出了一个美国的问题，我们中国人永远没有这个思路的，所有的科学家、所有的最后证据，一切都要重新来。你知道这有多可怕吗？这就是为什么我告诉大家，就像我们当时停止，让美国川普决定了旅游令，我们永远不会有证据说明是我们干的，但是我告诉你，能让法院做出判断，它取决于证据。首先是你科学不科学、合不合法，然后是疫苗，现在到底是怎么来的？我可以告诉这个，只有我们做到了，没有任何人。这是我为什么告诉战友，一、二月份，美国从法律开始。西方不从法律开始，是永远没有希望的。行政命令你就当它个狗屁。这个法律的开始就会在全世界开始，然后科学家就开始质疑，然后就是专业开始质疑，然后就开始到了药厂。所有全世界的法院都开始，这是真的以法灭疫，从前天开始了，6比3、5比4的结果。这个事儿太大了！兄弟姐妹们，未来会证明新中国联盟有多牛叉！你会看到一系列的文件出来，咱放放疫苗那个PPT。
 
-加拿大政府1月15日开始对卡车司机的强制疫苗授权，要求跨境司机提供疫苗证书。而拜登政府对跨境卡车司机的强制疫苗令会从1月22日开始。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-强制疫苗政策在越来越多的国家受到民众的抵制。这个政策涉及到了民生问题，食品的通货膨胀已明显在市场上看到。影响卡车司机的强制疫苗，相信会引起更多的反弹。 一个政府在没有科学证明的基础上，强行推广一个医学实验，其目的何在？
+**关注我们**
 
-**新闻来源：**[VIDEO: Canadian Truckers Against COVID Tyranny BLOCK HIGHWAY to and From United States – With “Mandate Freedom” Signs (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/01/video-canadian-truckers-covid-tyranny-block-highway-united-states-mandate-freedom-signs/)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+
 
  
 
