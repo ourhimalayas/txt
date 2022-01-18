@@ -2,24 +2,47 @@
 ---
 
 
-## 人是有灵魂的，那灵魂去了哪里？
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1873378/)
+## 漫画：《疫苗税》或《健康税》，就是对拒绝打针者改用针管吸出他口袋里的钱
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1873440/)
 
-人是有灵魂的那灵魂去了哪里？一定是像当下玛雅文明一样，回到了你的星座，你在这个星座上就是一场修行，就回到那个星座。
+2022-01-17
 
-**【郭先生直播摘要】**** 2022.1.12****人是有灵魂的，那灵魂去了哪里****？**
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D@ELWI1HO5G7@CZISNN.png)图片来源：2022 年 1 月 12 日星期三蒙特利尔日报
+## 加拿大魁北克省针对未接种新冠疫苗者征收特殊税：疫苗税或健康税
 
-**郭先生：**
+加拿大魁北克省的蒙特利尔日报（Le Journal De Montreal，雅尼克·勒梅 Yannick Lemay,  2022 年 1 月 12 日星期三）发表如下一张题为《雅尼克的漫画》的漫画图片。
+视频来源：2022 年 1 月 12 日星期三蒙特利尔日报
+漫画中显示，魁北克省长弗朗索瓦·勒戈（François Legault）正在对一名未接种新冠疫苗者征收特殊税：疫苗税或健康税。魁北克省长弗朗索瓦·勒戈取下注射器的针头，将注射器的活塞芯杆向后拔出将这名未接种新冠疫苗者口袋里的钱吸入到注射器的针管中，并且口中念念有词地说道“注射故障，这本来是要做一个穿刺取样（活检或抽液，活组织检查或液体抽吸）”。
 
-所以说  我觉得物理上人类是会有更陈代谢的，最终人类会，不同的人会有不同的升华  这就是修行。 而且我觉得物理上不会， 物理上你看到的消灭，绝对是你的灵和魂是不被灭的。 我给你举个最简单的例子， 灵魂就是磁场，再说磁场。所有全人类都公认的一件事情， 人死前和死后的重量30多克差距，而且你去到所有的死去人的磁场。现场所谓的招魂，这么多年来和人类对宇宙、星河。 没有科学的时候，人类所谓的巫术。
+从漫画中看出，这名未接种新冠疫苗者根本来不及反抗或拒绝，他口袋里的钱就被吸入到注射器的针管中。另外注射器的针管上赫然写着“疫苗税”几个大字。
 
-印度，玛雅国，还有过去的所有的，包括葡萄牙帝国，所有的这些帝国，都有对宇宙星河的解释。基本跟科学，今天都是对的，其中一条，对生和死、灵魂都是理解，都是一样的。没有任何差距，不分俄罗斯语 ，不分中文。也不分什么葡萄牙文、法文  它都是一样的。
+## 加拿大魁北克省第一例剥夺未接种疫苗父母探访（子女）的权力的判决
 
-人是有灵魂的，那灵魂去了哪里？一定是像当下玛雅文明一样，回到了你的星座。你在这个星座上就是一场修行，就回到那个星座。那个星座身体可能是另外一样的，你的载体可能(是)另外一个样子的。这就是我认为佛教所说的，真正的是一个欢乐的世界，是没有这个贪嗔痴慢疑的世界。是一个欢喜的世界，就像西方耶稣所说的天堂，我深信不疑的。
+就在同一天，加拿大魁北克省义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）还发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章报导，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，高等法院法官让-塞巴斯蒂安 瓦良格Jean-Sébastien Vaillancourt在12月23日
 
-天堂就一定是在，太阳系之外，可能都不是太阳系。 太阳只是天堂的一个，一个杯子、一个水或者一个人体，旁边的一个人而已。那你说太阳系外面是什么?  谁能告诉我？到现在没有任何人能告诉我，我认为太阳系之外就是天堂。所以说我们在修行的今天，很接近我们应该要去的地方。我们是人，我们比猪狗，比植物，不知道(近)了多少年了，所以说，现在有个新的学说嘛，植物和人之间要差多少年。发现原来植物和人之间差得并不远，它只是个无性繁殖和有性繁殖。
+的裁决中宣布暂时中止了这位父亲对这名 12 岁儿童的探视权。专门从事家庭法的经验丰富的律师西尔维-施尔姆Sylvie Schirm在接受采访时说：“这是第一例剥夺未接种疫苗父母探访（子女）的权力的判决”。
 
-视频剪辑/听写：小蜜蜂 | 翻译：Arthur | 校对：tonyj | 视频制作+字幕：刀锋舞者 | 编辑&发布：断播
+日前，TVA新闻（TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique， 2022 年 1 月 6 日）发表题为《让我们筛查并限制未接种疫苗的人》的文章称，这是一个颠倒的世界，仅仅因为 10% 的成年人拒绝接种疫苗，我们限制了90% 的人口。魁北克省政府公布，未接种疫苗的人占重症监护住院患者的 75%，占正常住院患者的 50%，我们的整个生活都受到了影响。这位魁北克省战略传播顾问在文章中提议，筛查出未接种疫苗的人应该是我们现在要做的首要事项。只有这样才能平息那些已经接种了两剂或三剂疫苗的，处于长达两年封锁状态的人们的普遍不满。我们已经到了零容忍的阶段，必须强制接种疫苗。尽管未接种疫苗的人完全有权拒绝接种疫苗，但他们必须承担后果，因为这是他们的选择。
+
+**评：**文章编译及评论人提醒读者，邪恶势力自始至终没有忘记甩锅，嫁祸，威胁，恐吓未接种疫苗的人们。魁北克省政府还会针对未接种疫苗的人群采取更多的其它措施。病毒仍在传播，疫情正在爆发，大家必须格外小心。每逢佳节倍思亲，全球的战友们大家新年好。
+
+**参考资料**：
+
+1. 蒙特利尔日报，Le Journal De Montreal，雅尼克·勒梅 Yannick Lemay,  2022 年 1 月 12 日星期三，La caricature d’Ygreck，[https://www.journaldemontreal.com/2022/01/12/la-caricature-dygreck](https://www.journaldemontreal.com/2022/01/12/la-caricature-dygreck)
+2. 义务报，Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日， [«Un père non vacciné perd temporairement le droit de voir son enfant»](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)，[https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant](https://www.ledevoir.com/societe/659685/coronavirus-un-pere-non-vaccine-perd-le-droit-de-voir-son-enfant)
+3. TVA新闻，TVA NOUVELLES，让·拜尔拉贡Jean Baillargeon， 战略传播顾问，Expert-conseil en communication stratégique，2022 年 1 月 6 日下午，12:08，
+ [«Dépistons et confinons les non-vaccinés»](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)，[https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1](https://www.tvanouvelles.ca/2022/01/06/depistons-et-confinons-les-non-vaccines-1)
+
+
+编辑：LILY
+发布：肥鯮
+校对：
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
 
  
 
