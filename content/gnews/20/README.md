@@ -2,151 +2,22 @@
 ---
 
 
-## 国防部正在把福奇暴露出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+## 火来问题(三)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873127/)
 
-[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-**Steve Bannon
-史蒂夫·班农**
+比如今天小飞侠今天问我的都是外星人的事儿，他特喜欢外星人，他感兴趣，他在探讨人生怎么能放下，能在这个悬崖峭壁上能到达彼岸而不会摔死。你不能直接跳下去那就摔死了，摔死就是摔死了，没有超脱。是真的到达了彼岸！这就是我后在清风看守所，我突然间就开智了，我觉得。我觉得我在清风看守所就是我度过了悬崖，否则我就会留在中国大陆的所有人看到的那样：一生玩麻将、吃肉、吃出癌症到医院，有可能有人管，有可能没人管，或出车祸，或者毒死别人然后自己死拉倒！你永远不会超越的！你的灵魂会再回到刚才我们来的地方，就是人家躲避的房屋里面去，你不会再往前走一步，你不会享受到清风的温柔，自然风的那种魅力，站在悬崖峭壁上在迎客松下面风吹过来的感觉。这就是没有信仰的人，不知道天高地厚的人悲哀呀！真的是张高丽说的“宇宙无限大，地球是一粒沙”，我们在这一粒沙上是干啥的呀？是因为要回到宇宙去。所以我深信不疑有外星人，我们一定会回到宇宙去。我们只是在一粒沙上呆一会儿，当当张高丽，还是当当郭文贵呀，还当当你“三百年的飞飞”，还是当当“火来”。永远不要忘了，这不是我们的终点站，这只是我们的一个站点，就像当初我跟道士站在那个屋子，看似豪华、 看似舒适遮风挡雨，实质上，我们是一个非常弱的、染了很多病毒的灵魂。 今天科学家已经明确告诉人类的灵魂是存在，而且人死亡之后，身体上迅速的都会减少的体重永远是等比例的！某种东西没了，灵魂不是没有重量的，他是有质量的。今天我说的量子电脑，分子、量子是有存在的。就像今天我隔着视频，通过声音，完全科学的方式解释灵魂。咱还相隔那么远，全球各地咱就可以看对方说话，触手可及的感觉！ 你去想想这不就是突破了今天我们所有的人类在物质世界的认知！这个物和质对我们的枷锁突破了，我们通过光纤、 通过信号、通过电视，已经可以对话交流了，这是多么的伟大呀，在过去这叫神话啊！所以告诉我“火来”兄弟， 我们的灵魂是来自于地球之外，宇宙无限大，张高丽说那地方，张高丽修行“成功了”，他修行对象搞错了，搞网球冠军，我头两天问一个国内战友，他跟张高丽很熟，他说这个家伙就是一个政治骗子，最低级最low的人，满嘴瞎话，但这小子有一个特点，你必须得服，他能到今天也绝对不是咱想象的那么差。张高丽的记忆力、爱学习的本事， 还有张高丽最早学习弗洛伊德和法国几个大政治家。他说王岐山推荐《旧制度大革命》，他说张高丽最早学这个东西，轮不到王岐山。这个家伙把人性搞明白了，他这个灵魂到这儿来修啥了？修魔道！就是那个陈峰掏人家子宫的魔道、邪道。他的灵魂就不会闻到清风的感觉，也不会从悬崖上跨到对面的山脉上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/火来问题（三）-.jpg)
+*发布：*tianzhihuan
 
-Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
-马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
-
-this Veritas amazing Veritas leak
-这个“真理”项目，惊人的“真理”泄漏
-
-that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
-他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
-
-Is this the beginning of more information?
-这将会是更多信息的开始吗？
-
-Do you think that certain individuals real scientists inside the apparatus
-你认为系统内部的某些真正的科学家
-
-that’s we’ve had enough we got to stop this madness, Dr. Malone.
-我们已经受够了，我们必须停止这种疯狂，马龙博士
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-I think it’s the DOD saying they’ve had enough of this.
-我认为是国防部说他们已经受够了
-
-And I’m not sure if this came from a JAG’s office
-我不确定文件是否来自美国陆军总检察长的办公室
-
-because they’re stamped like they are
-因为它们看起来像
-
-based on the file names or if it came from DARPA
-基于文件名或是来自国防高级研究计划局
-
-But having looked at these again and again in recently communicating with the DOD JAG
-但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
-
-it’s trying to smoke out whose office this might have come out of.
-文件，在试图找出这可能来自谁的办公室
-
-I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
-我认为现在是国防部终于出来说够了
-
-And throwing Tony under the bus, and it could well be the DARPA’s doing it
-把托尼推出来，这很可能是国防高级研究计划局做的
-
-so that the fingers don’t get pointed at them
-这样手指就不会指向他们
-
-But there’s in my mind, these Veritas documents look, look absolutely authentic
-但在我看来，这些真理文件看起来，看起来绝对真实的
-
-Steve Bannon
-史蒂夫·班农
-
-So you’re saying this is what I’m sure we’re clear here
-所以你说这就是我确定我们在这里很清楚
-
-You’re saying that, as we know, we take over this year
-你是说，我们知道，今年我们接管了
-
-that the investigations deep into the situation of Wuhan lab, the bioweapons program
-对武汉实验室情况的深入调查，生化武器计划
-
-and American scientific and taxpayer money that went into doing any of that
-以及用于做任何这些的美国科学和纳税人的钱
-
-is going to be beyond a hot potato be one of the defining issues going forward
-将超越烫手的山芋成为未来的决定性问题之一
-
-what actually happened?
-实际发生了什么
-
-You’re saying right now look at the Pentagon Papers
-你说现在看看五角大楼文件
-
-there are people either officially or unofficially, making a move on Tony Fauci
-有人正式或非正式地在对托尼·福奇采取行动
-
-in your mind and you know, DARPA and you know the DOD pretty well
-你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
-
-you’ve been consulted there for many, many years. Correct?
-你已经在那里做了很多很多年的咨询工作, 对吗？
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-Correct. And I’m also in close communication with the senator and his investigations office
-正确，我也在与参议员和他的调查办公室保持密切联系
-
-I don’t want to speak for the senator but this this is one of those situations
-我不想为参议员说话，但这是其中一种情况
-
-If you spent decades dealing with DOD and the hill like I have
-如果你像我一样花了几十年的时间与国防部和国会山打交道
-
-this is how the game gets played
-这就是游戏的玩法
-
-This is how the Kabuki works in DC
-这就是歌舞伎在华盛顿中的运作方式
-
-is they’ll turn on each other when it looks like somebody is going to have to take the fall
-当看起来有人将不得不背锅时，他们是会互相攻击的
-
-And it looks to me like that has now happened in DOD has had enough
-在我看来，现在的情况是国防部已经受够了
-
-It’s important to know that Tony bushwhack DOD after the anthrax attacks
-重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
-
-and grabbed a big chunk of their budget
-而且敛走了他们预算的很大一部分
-
-so there could be some payback opportunity here
-所以这里可能是国防部反击的机会
-
-* * *
-
-Date:01/15/2022
-原视频标题: The DOD Is Throwing Fauci Under The Bus
-国防部正在把福奇暴露出来
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
-任务编号：KE351（3493）
-视频时间段 : 0:00-2:22
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

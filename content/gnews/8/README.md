@@ -2,23 +2,35 @@
 ---
 
 
-## 中共和郭文贵谁是骗子? (二)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873180/)
+## 七哥谈民心（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1873213/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%AD%E5%85%B1%E5%92%8C%E9%83%AD%E6%96%87%E8%B4%B5%E8%B0%81%E6%98%AF%E9%AA%97%E5%AD%90%EF%BC%9F%EF%BC%88%E4%BA%8C%EF%BC%89-.jpeg)
-说叫假投资，还用假的000000.1的人来证明了99%人全是假的。你说这个女人有多邪恶！我被攻击了，全人类几百(上)千亿次的攻击，经常被黑客啊，她不说。她说我有影响力，我有影响力，是影响造谣虚假媒体。从不谈TPP的官司，吴征的官司也不谈，我们赢官司。她只谈受到了我们的攻击和(我们)攻击了别人，我们从来不受害，这真的就像一个穿着正义的衣服的一个，一个所谓的警察看着一个被强奸了，已经是浑身伤痕的人说，这个被强奸的人是坏蛋，这个强奸的人是正义的。所以说你看看她写这篇文章是什么文章?
-这个滕彪这个长相你看看，还有这个螃蟹，还有滕彪的妻子的芭蕾舞，还要说出这一家人家多么的艺术化。这当年和美化这个希特勒和美化这个纳粹和美化共产党，在新疆、六四、天安门上所有的（欺骗）如出一辙。你看（共党)）所有的计划包括螃蟹，他是个骗子，开始就有猫腻，他是骗局的一部分啊， 就是个骗子。但是现在关键的问题，我请问一下这个ISOBEL和vice，郭文贵骗 子？谁能找出一个人被我骗了的吗？而且是关键滕彪说我是乱伦，有一点证据 吗?
+文编：Hima
+听写：叮叮
+视频：七哥
 
-发布：陶子
+来源：郭先生2022-01-12直播11：16：35摘录
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+用这些欺民贼、民运的话说：郭文贵这个傻货，用那个火鸡龚说：你看你认识班农，全华盛顿都看不起他。结果班农成了什么？全世界第一宗教斗士、民主斗士、极右的代表和右派的代表。你再看Jason Miller现在每天一谈到灭共，鼻子都忽闪。他由于要灭共，结果是他发完灭共以后，他下面的留言，你们发现了，把我笑晕了。昨天晚上凌晨三点钟我给他发个信息，笑坏了，我说：“你看到下面的人骂你了吗？” 给我发信息：“是我看见了。有人说：“Jason Miller，你肚子大的还能看到你自己的小鸡鸡吗？”你就看这把我给笑的，昨天晚上我说共产党的人一定会骂他、侮辱他，说你肚子大了你还能看到自己的小鸡鸡吗？然后我说：“你要把你的神器亮出来，叫共产党看一看。” 他说：“我自从骂完共产党，这个骂我的人就多了，而且打着外国人的脸，外国人的骂。” 所以共产党有多Low啊！现在你看Jason Miller这样的人，还有你看所有上来盖特的人，还有看我们GTV的人，都能分辨出三个最核心的今天一开始就说的：中国共产党不等于中国人；这个病毒是共产党干的，不是中国人；第三个在新疆、在西藏、在香港、在台湾的屠杀，它不仅是种族大屠杀，它是中国人最大的威胁。这三件事儿搞清楚了，这叫什么？天机呀，是吧？这就是人心呐！这就是老天爷就是人心呐！所以说你告诉我这些50个银行，哪个人的孩子不在外国读书啊？他会在中国读书吗？他会送到西藏读书、新疆读书吗？不可能的！那另外一个，天机完了是啥呀草根小哥？
+
+草根小哥：民心！
+
+郭文贵先生：民心，对了兄弟，这就是我喜欢你的原因。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

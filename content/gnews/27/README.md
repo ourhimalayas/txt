@@ -2,19 +2,10 @@
 ---
 
 
-## 扬帆每日速递 2022年1月17日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1872756/)
+## 1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1872894/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-17海报1简_page-0001.jpg)
-**加拿大温哥华扬帆农场 海报组**
-
-素材提供战友：从来多难不兴邦、Revelation熙攘、文敏
-
-编辑：文敏
-
-发布：风起云间（文敏）
-
-海报图片设计：飞天面、 Shuang
+秘密翻译组-北美组
 
  
 

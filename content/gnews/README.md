@@ -15,124 +15,124 @@
 
 ---
 
-### [文贵先生揭穿HBO女记者及背后势力](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [七哥谈民心（2022-01-12摘录）](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [中华民族的悲哀&#8211;被种族歧视而不自知(二)](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [火来问题（四）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [中共统治下的人们活的猪狗不如](/content/gnews/5/README.md)
- ` 纽约香草山MOS03`
-
-### [七哥说“要相信天意”（2022-01-12摘录）](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [中华民族的悲哀&#8211;被种族歧视而不自知(一)](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [中共和郭文贵谁是骗子? (二)](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [美军最高指挥官米利将军感染中共病毒](/content/gnews/9/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共和郭文贵谁是骗子? (一)](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [小福利&amp; M7的分享(二)](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [【中日财经爆】地方财政崩溃是撞向中共经济的“灰犀牛”](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥说“2022年是人类上最黑暗的一年”（2022-01-12摘录）](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [【修罗短评】中共国养老的“一根绳”现象](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [小福利&amp; M7的分享(一)](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [每日快报：美参谋长联席会议主席马克·米利 COVID-19 检测呈阳性](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [火来问题(三)](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [Omicron肆虐之际旅游胜地商家在过山车般的行情下无奈地坚守](/content/gnews/18/README.md)
- ` 澳喜农场`
-
-### [在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [国防部正在把福奇暴露出来](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/24/README.md)
+### [1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [欧洲药监局将横贯性脊髓炎列为疫苗的副作用](/content/gnews/25/README.md)
- ` 华盛顿DC-Russian`
+### [小斯基案例分析(二)](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [扬帆每日速递 2022年1月17日版（2）](/content/gnews/26/README.md)
- ` 温哥华扬帆农场`
+### [1/17/2022 文贵直播：太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
 
-### [扬帆每日速递 2022年1月17日版（1）](/content/gnews/27/README.md)
- ` 温哥华扬帆农场`
+### [小斯基案例分析(一)](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
 
-### [秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
+### [币安赵长鹏这个小屁孩将比王健还惨](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/29/README.md)
- ` 秘密翻译组-原创组`
+### [1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
 
-### [DC每日热点0117](/content/gnews/30/README.md)
+### [文贵先生揭穿HBO女记者及背后势力](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥谈民心（2022-01-12摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [中华民族的悲哀&#8211;被种族歧视而不自知(二)](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [火来问题（四）](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [中共统治下的人们活的猪狗不如](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [七哥说“要相信天意”（2022-01-12摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [中华民族的悲哀&#8211;被种族歧视而不自知(一)](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [中共和郭文贵谁是骗子? (二)](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [美军最高指挥官米利将军感染中共病毒](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共和郭文贵谁是骗子? (一)](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [【中日财经爆】地方财政崩溃是撞向中共经济的“灰犀牛”](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥说“2022年是人类上最黑暗的一年”（2022-01-12摘录）](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [每日快报：美参谋长联席会议主席马克·米利 COVID-19 检测呈阳性](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/31/README.md)
- ` GTV新闻访谈`
+### [火来问题(三)](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
 
-### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/32/README.md)
- ` 澳喜特战旅Gnews`
+### [Omicron肆虐之际旅游胜地商家在过山车般的行情下无奈地坚守](/content/gnews/21/README.md)
+ ` 澳喜农场`
 
-### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/33/README.md)
+### [在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [国防部正在把福奇暴露出来](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/27/README.md)
+ ` 秘密翻译组-北美组`
+
+### [欧洲药监局将横贯性脊髓炎列为疫苗的副作用](/content/gnews/28/README.md)
+ ` 华盛顿DC-Russian`
+
+### [扬帆每日速递 2022年1月17日版（2）](/content/gnews/29/README.md)
+ ` 温哥华扬帆农场`
+
+### [扬帆每日速递 2022年1月17日版（1）](/content/gnews/30/README.md)
+ ` 温哥华扬帆农场`
+
+### [秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022.1.17 文贵直播：我有一个梦想](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [信托及控股公司的门槛和复杂度](/content/gnews/34/README.md)
+### [DC每日热点0117](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [已打四针的以色列财政部长确认感染中共病毒](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发](/content/gnews/35/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆](/content/gnews/36/README.md)
+ ` 秘密翻译组-原创组`
+
+### [信托及控股公司的门槛和复杂度](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [GTV新闻访谈简报|2022年1月17日早](/content/gnews/35/README.md)
+### [GTV新闻访谈简报|2022年1月17日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|美国医生给中共病毒患者使用伊维菌素被吊销执照](/content/gnews/36/README.md)
- ` MOSREC`
-
-### [有声|美国由于奥米克戎大流行导致生活物资极度缺乏](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [2022年1月中共国债务专题：2021年末中共国公开市场存量债券余额和隐形政府债务合计可能高达185万亿人民币，政府债务余额与2020年GDP比重超过100%](/content/gnews/38/README.md)
+### [2022年1月中共国债务专题：2021年末中共国公开市场存量债券余额和隐形政府债务合计可能高达185万亿人民币，政府债务余额与2020年GDP比重超过100%](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|丹麦指控来自中共国间谍威胁升高](/content/gnews/39/README.md)
- ` MOSREC`
-
-### [有声|通用电气公司停止为员工接种新冠疫苗](/content/gnews/40/README.md)
+### [有声|丹麦指控来自中共国间谍威胁升高](/content/gnews/40/README.md)
  ` MOSREC`
 
 ### [1/17/2022国际财经快讯：美国12月工厂生产意外骤降；拉加德称欧洲央行将尽全力使通胀率达到2%](/content/gnews/41/README.md)

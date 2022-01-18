@@ -2,35 +2,24 @@
 ---
 
 
-## 七哥谈民心（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1873213/)
+## 小斯基案例分析(二)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873263/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 整理：雅典娜速记组
+编辑：陶子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%B0%8F%E6%96%AF%E5%9F%BA%E6%A1%88%E4%BE%8B%E5%88%86%E6%9E%90%EF%BC%88%E4%BA%8C%EF%BC%89-.jpeg)
+锌，它的半衰期是很短的，你吃完之后再等一个星期就没有了，有不少战友,他们都是通过这种方式感染上的。那么作为我一个亲身经历者来说，我跟那位朋友在一个车里面，他都已经出现症状了，但是你没有办法，我也没没有办法说：把他半路从车上蹬下去，因为我要把他开车从一个地方带到另外一个地方，但是没有办法的事情，我那时候也是在想啊，这也是检验我的硫酸羟氯奎加锌到底有没有作用的时候。其实我们在车里面的时候是很多的时候是不带口罩的。几乎就是没有这个意识的是吧，他可能是出现了这个症状，虽然他也一上来就告诉我说可能心跳有点快，他感觉那么血压有点低，但是那一刻我真的是没有往那方面去想，因为他也听了，我说他也是按时吃硫酸羟氯奎加锌，但是， 应该是有一段没吃，但是对于我来说呢，我是坚信的。
 
-来源：郭先生2022-01-12直播11：16：35摘录
+按时吃硫酸羟氯奎加锌跟大家在一个车里不戴口罩，不仅是在一个车里面前前后后呆了七八个小时，还坐在一起吃了两顿饭都没有什么问题。所以我就把这个案例分享给大家。
 
-用这些欺民贼、民运的话说：郭文贵这个傻货，用那个火鸡龚说：你看你认识班农，全华盛顿都看不起他。结果班农成了什么？全世界第一宗教斗士、民主斗士、极右的代表和右派的代表。你再看Jason Miller现在每天一谈到灭共，鼻子都忽闪。他由于要灭共，结果是他发完灭共以后，他下面的留言，你们发现了，把我笑晕了。昨天晚上凌晨三点钟我给他发个信息，笑坏了，我说：“你看到下面的人骂你了吗？” 给我发信息：“是我看见了。有人说：“Jason Miller，你肚子大的还能看到你自己的小鸡鸡吗？”你就看这把我给笑的，昨天晚上我说共产党的人一定会骂他、侮辱他，说你肚子大了你还能看到自己的小鸡鸡吗？然后我说：“你要把你的神器亮出来，叫共产党看一看。” 他说：“我自从骂完共产党，这个骂我的人就多了，而且打着外国人的脸，外国人的骂。” 所以共产党有多Low啊！现在你看Jason Miller这样的人，还有你看所有上来盖特的人，还有看我们GTV的人，都能分辨出三个最核心的今天一开始就说的：中国共产党不等于中国人；这个病毒是共产党干的，不是中国人；第三个在新疆、在西藏、在香港、在台湾的屠杀，它不仅是种族大屠杀，它是中国人最大的威胁。这三件事儿搞清楚了，这叫什么？天机呀，是吧？这就是人心呐！这就是老天爷就是人心呐！所以说你告诉我这些50个银行，哪个人的孩子不在外国读书啊？他会在中国读书吗？他会送到西藏读书、新疆读书吗？不可能的！那另外一个，天机完了是啥呀草根小哥？
+*发布：陶子*
 
-草根小哥：民心！
-
-郭文贵先生：民心，对了兄弟，这就是我喜欢你的原因。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

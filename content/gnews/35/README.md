@@ -2,29 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1872225/)
+## 澳洲昆士兰地区单日新冠确诊超1.5万，恐在学校出现爆发
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1872380/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011602.jpg)网络图片
+昆士兰于当地时间1月17日记录了 15,122 例新的 CCP病毒感染案例和另外 7 例死亡，这是该州大流行中最致命的一天。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-16.png)
-文章仅代表作者本人观点，与Gnews无关
+7名不幸离世的死亡病例年龄皆在80岁以上，且均有其它健康问题。媒体称这些死亡案例没有注射过CCP病毒疫苗的加强针，却对他们是否完全两剂CCP病毒接种疫苗只字未提。
 
-视频参看：[2022.01.17早GTV新闻访谈](https://gtv.org/video/id=61e56f01a0fd8e5c735ae9ed)
+今天发布的最新病例数据来自 30,963 个 PCR 检测和 4576 个报告的快速抗原检测。昆士兰州同时还更新了对活跃病例的定义，使其与澳大利亚其他州和领地保持一致——这一举措使得该州现存病例总数降至 86,953 例。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+州卫生部长 Yvette D’Ath 说，有 702 名冠状病毒患者目前需要住院治疗，其中 40 人在重症监护室，15 人需要呼吸机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-11.jpg)
+首席卫生官Gerrard预计，在下个月昆士兰各地学校重新开学时或将出现“重大的”CCP病毒疫情爆发。该州学校的重新开放目前已推迟两周至 2 月 7 日星期一。Gerrard博士称，虽然预计会有大量学生被感染，但对他们来说总体症状将是轻微的。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+教育部长Grace表示，接下来的两个学期将不会有任何时间上的延长，依然保持疫情以来的缩减，因为课程预计将会顺利完成。
 
+新闻参考链接：[Queensland reports more than 15,000 COVID-19 cases amid warning of school outbreaks](https://www.9news.com.au/national/coronavirus-qld-update-queensland-covid19-cases/366d09e8-6e52-4696-8fc4-274fdfa5fa37)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

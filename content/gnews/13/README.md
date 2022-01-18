@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥说“2022年是人类上最黑暗的一年”（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1873140/)
+## 中华民族的悲哀&#8211;被种族歧视而不自知(一)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873193/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 整理：雅典娜速记组
+编辑：陶子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%AD%E5%8D%8E%E6%B0%91%E6%97%8F%E7%9A%84%E6%82%B2%E5%93%80%E2%80%94-%E8%A2%AB%E7%A7%8D%E6%97%8F%E6%AD%A7%E8%A7%86%E8%80%8C%E4%B8%8D%E8%87%AA%E7%9F%A5%EF%BC%88%E4%B8%80%EF%BC%89-.jpeg)
+你再看看叶钊颖和郝海东这两个人，他俩出来以后说的话和她们两个所处环境，新中国联邦和你中国共产党的差距咋就这么大呢？七哥现在就看到这个真的肚子疼啊。**14**亿的中国人，体育界出来了一个叶钊颖和海东，既是我们的幸运，又是我们的悲哀，不是一般的悲哀! 一个中国的运动员，要靠一个世界**WTA**的主持人来给呼救，世界的华人，世界的媒体，没有人替她说话!我们这个民族这个国家的悲哀民族的灾难，这种可怜可悲可恨之处已经用任何语言都无法形容。
 
-来源：郭先生2022-01-12直播11：09：07摘录
+这就是全世界看到像伊莎贝拉·杨这样人的瞪眼撒谎，完全相信。还有**vice**和**HB0**有， 最大的问题他相信什么？他认为我说你啥，你根本没能力反击！你也反击不了我！今天你没有说这个重点，所有这些黑咱的媒体都是一个原则：觉得我黑你，你根本不会反抗！这就是中国人在外国所有的形象。她敢说穆斯林吗？她敢说犹太 人吗？如果我是犹太人我是穆斯林，吓死她也不敢！如果那天小斯基和**NICOLE**是犹太人，吓死她也不敢。你俩典型被种族歧视。新中国联邦是典型被种族歧视。 其实我们都知道背后的黑手是共产党。
 
-中国不是衰退，一定是中国经济真的会非常夸张的，绝大部分人失去所有一切拥有的，而成为房奴，车奴，这奴那奴的。而且极少数人就共产党这些家族一定是最后收益。共产党被灭了，他也是受益者。因为这些人已经在这个在你血管里生存的这种能力，转移的财富是根本不可能清除掉的。你清除掉说这些人都有钱是不可能的。灭掉共产党以后我们绝对能做到信用卡你不用还了，房子，地，绝对是老百姓的。然后部分钱会追回来。但是让你，因为你的现在你的智慧，你的脑子，你的文化，你的行为结果，就是人呐，就是本来是两腿走路，你变成两腿和两手走路，学猪学狗爬的时候，让你站起来你很不适应的。而且你觉得会晕的，是吧？就人吃猪食吃惯了的时候，你给他牛肉，他觉得太香了，受不了的。中国还有很长的时间，因为这些人当了猪狗太长时间，是要有一段时间要适应的。但是在西方世界这场经济大洗牌以后，西方又是大赢家。一定大赢家。为什么？有中国人，还有一些亚非拉的这些被共产党，共产主义虐的国家会一夜之间，会所有的再一次成为西方资本主义的奴隶。这是一定这结果的。这个是2022年是人类上最黑暗的一年。政治、经济、文化都是最黑暗的一年。疫苗灾难更不用说了。所以能活下去最好的，你能做啥？你啥也做不了。你多开点眼，多灭灭共，你什么也做不了。就仅此那么多。谢谢。
+*发布：陶子*
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

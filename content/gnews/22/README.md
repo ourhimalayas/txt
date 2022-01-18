@@ -2,55 +2,136 @@
 ---
 
 
-## 用伊维菌素救命的请求，遭医院法院拒绝
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1872953/)
+## 在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873088/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+[https://gtv.org/video/id=61e45aad87664c47acd58ee5](https://gtv.org/video/id=61e45aad87664c47acd58ee5)
 
-翻译：George Warshing
-编辑：守望黎明
+**Tucker Carlson
+塔克·卡尔森**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/In-hospital-bed.jpeg)图片来源：Adobe Stock
+So this week as we told you
+所以本周正如我们告诉你的那样
 
+the Supreme Court overturned Joe Biden’s lunatic vaccine mandate for private companies that have over 100 employees.
+最高法院推翻了乔·拜登对拥有100多名员工的私营公司的疯狂强制疫苗规定
 
-**在****佛罗里达州，丹尼尔·皮萨诺（Daniel Pisano）因感染****新****冠病毒而处于垂危状态。****到****目前****为止，****他在梅奥医学中心已经****连续****使用****了****28****天呼吸机。医生说他的存活机会不到5%。**
+That’s obviously a win for sanity
+这显然是理智的胜利
 
-**他的妻子和儿子希望他能****得到“新冠****重症前沿联盟****”****(FLCCC)****推荐的治疗方案，这****个方案****包含伊维菌素的使用。他们要求****医院加以采用****，但梅奥医学中心拒绝了他们的****请****求。病人家属****转而****向法庭****起****诉，希望法****院****能强制****医学中心****允许外界的医生****介入对这位患者的****治疗。然而法官做出了否定的判决。**
+But at the same time the court left in place
+但与此同时，法院还保留了
 
-**梅奥医学中心断言，****“新冠****重症前沿联盟****”的****治疗方案与他们的方案不****相****符合。****医学中心的说法****，全然****罔顾了****伊维菌素****让美国****数百个****新冠重症患者****起死****回****生的事实，****认定****让****患者继续****依赖呼吸机生存****才****是最好的选择。**
+Biden’s mandate for medical workers think about that
+拜登对医务工作者的疫苗规定
 
-**伊维菌素是一种兽药，但****同时它****用于人类疾病治疗****已经长达****几十年****的历史****。许多**[**经过验证****的研究**](https://c19ivermectin.com./)**表明，伊维菌素****对于****治疗****新冠有效****。**
+In other words, the Supreme Court just affirmed
+换句话说，最高法院刚刚确认
 
-**为什么****家属****在亲人****救治****方面没有任何发言权？更重要的是，为什么梅奥医学中心****宁愿眼看着****人们死****去，****而不****愿****尝试伊维菌素？是什么阻止了他们？**
+that politicians in Washington somehow know more about health than nurses in emergency rooms
+华盛顿的政客不知何故比急诊室的护士更了解健康
 
-**首先，是****美国****食品和药物管理局 (FDA)在从中作祟。****正是****FDA****在2021年8月发布了****否定伊维菌素的****臭名远扬的愚蠢推文：你们既不是马，也不是牛。你们都别扯了，严肃点好吧！**
+That’s absurd
+这太荒谬了
 
-**我们也不要忘记，马龙（Malone）博士在乔·****罗****根（Joe Rogan）的播客****节目****中说****过****，批量购买伊维菌素时，每剂的价钱不到**[**10****美分**](https://pjmedia.com/uncategorized/kevindowneyjr/2022/01/07/crib-notes-for-the-other-joe-rogan-podcast-everyone-is-talking-about-with-dr-malone-n1547520)**。这样的价格怎****么****能****够****满足大药****厂成****百万美元****赚钱****的贪欲？**
+How did that happen?
+那是怎么发生的？
 
-**巴尔博纳（****Balbona****）博士是美国国会大厦的前医生，在那里他为国会议员和最高法院的成员提供****过****治疗。他在使用伊维菌素治疗方面取得了很大成功，已经治愈了数十名重症****新冠****患者。****但即便如此，他还是遭受到持续的攻击，每天都收到大量的谩骂信息。**
+Well, it happened for one reason
+好吧，它的发生是有原因的
 
-**左派在洗脑方面做得非常成功，让他们的傻瓜信徒****们****相信他们****所灌输****的一切。****还记得么？****密歇根州民主党众议员凯伦·惠特塞特（****Karen Whitsett ****）****因为****称赞****是****特朗普和羟氯喹，在她感染****新冠****病毒时救了她****一****命，****结果遭到了****她****所在****政党****的**[**谴责**](https://www.foxnews.com/politics/dems-censure-michigan-lawmaker-hydroxychloroquine)**。**
+because justice is John Roberts and Brett Kavanaugh
+因为大法官是约翰·罗伯茨和布雷特·卡瓦诺
 
-**然而，基本的事实是****——****[伊维菌素已被22个国家](https://c19adoption.com/)****批准用于抗击新冠病毒。**
+sided with the Biden administration in alliance with the hard partisans on the court
+与法庭上的顽固派结盟，站在拜登政府一边
 
-**关于****伊维菌素的****争论****令人难以置信。它在全球范围内帮助医生从****新冠****病毒的魔掌中挽救了****无数****人的生命。然而，左派不仅不接受这一点，还公开羞辱因使用它而生存下来的人。大科技公司正把敢于质疑他们所****塑****造的“科学化身”福奇的人从****油管****和****推特****上赶走。**
+like certified non genius Sonia Sotomayor
+像经过认证的非天才的索尼娅·索托马约尔
 
-**拜登一直在推动让****所有人****接种疫苗，但最高法院最近对拜登及其强制接种疫苗的企图进行了抨击。**
+No one who pays attention to surprise the John Roberts did this.
+没有人惊讶的约翰·罗伯茨会这样做
 
-**请看****糊涂蛋****总统的这段视频——他对那些反对****他****疫苗强制令的人胡言乱语****地****说：“****去做****吧！”**
+Roberts says judicial philosophy consists of not offending the Washington Post and has for years
+罗伯特茨说，司法哲学包括不冒犯《华盛顿邮报》并且多年来一直如此
 
-**好了，人们****已经“****去做****”了。****拜登，****你****已经****输了！现在，让人****们****得****到****伊维菌素！**
+but Brett Kavanaugh?
+但是布雷特·卡瓦诺？
 
-**原文链接：****[Family Fights for Ivermectin for Dying Loved One, Courts Say ‘No’](https://pjmedia.com/news-and-politics/kevindowneyjr/2022/01/16/family-fights-for-ivermectin-for-dying-loved-one-courts-say-no-n1549942)**
+wasn’t Brett Kavanaugh supposed to be as sincere conservative a man of principle
+布雷特·卡瓦诺不应该是一个真诚保守的有原则的人吗？
 
-发布：tianzhihuan
+And so Lindsey Graham told us unfortunately
+所以不幸的是林赛·格雷厄姆告诉我们
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+many of us believe that we certainly did
+我们中的许多人相信，我们的确是
+
+When Brett Kavanaugh cried during his confirmation hearings
+当布雷特·卡瓦诺在确认听证会上哭泣时
+
+wept like Adam Kinzinger we felt sorry for him
+像亚当·金辛格一样哭泣，我们为他感到难过
+
+We didn’t understand at the time that something had broken inside of Brett Kavanaugh
+我们当时不明白布雷特·卡瓦诺的内心有什么东西被破坏了
+
+that on some level his tormentors now controlled him
+在某种程度上，他的折磨者现在控制了他
+
+and that going forward he’d be burned boiled to conventional opinion that to the Constitution of the United States
+并且在未来，他已背叛了美国的宪法的传统观点
+
+Our mistake
+选择他是我们的错误
+
+To the courts actual conservatives, the ones who don’t weep in public
+对于法院真正的保守派，那些不在公共场合哭泣的人
+
+Kavanaugh position on the VAX mandate made no sense at all
+卡瓦诺对强制疫苗规定的立场完全没有意义
+
+As Clarence Thomas put it in his dissent
+正如克拉伦斯·托马斯在他的异议中所说
+
+nothing in law or in the Constitution requires nurses to
+法律或宪法中没有任何规定要求护士
+
+quote “choose between losing their livelihoods and acquiescing to a vaccine they’ve rejected for months”
+“在失去生计和默许他们拒绝数月的疫苗之间做出选择”
+
+Well, exactly. In other words
+嗯，正是，换句话说
+
+Joe Biden’s vaccine mandates have no legal authority
+乔·拜登的强制疫苗规定没有法律支持
+
+and without legal authority, the government can’t force us to do anything
+没有法律支持，政府不能强迫我们做任何事情
+
+Period
+就是这样
+
+* * *
+
+Date:01/15/2022
+原视频标题: During his confirmation hearing, we didn’t understand that something had broken inside of Brett Kavanaugh. Unfortunately, many of us believed he was a sincere conservative
+在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
+原视频日期：2022/01/15
+原视频链接: [https://gettr.com/post/podwzx7025](https://gettr.com/post/podwzx7025)
+任务编号：KE352（3495）
+视频时间段 : 0:00-1:46
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
