@@ -2,28 +2,26 @@
 ---
 
 
-## 美国核弹道导弹潜艇抵达关岛军事基地
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874928/)
+## 以色列研究显示中共病毒第四针疫苗效果失败
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874974/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-3.jpg)图片来源：CNN
-1月17日，《国会山报》报道，面临印太地区的紧张局势，一艘美国弹道导弹潜艇于周六在关岛停留。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-9.jpg)图片来源：以色列时报
+1月17日，《国会山报》报道，以色列的一项初步研究（据信是世界上第一项研究）发现，中共病毒（COVID-19）疫苗第四针（即第二针加强针）在预防中共病毒变体奥米炕（Omicron）方面效果是失败的。
 
-根据海军的一份声明，周六，美国海军内华达号潜艇（USS Nevada）抵达关岛（Guam）的阿普拉港（Apra Harbor）。该部门说，这次罕见的访问反映了美国“对印度·太平洋地区的承诺，它协助战略部队进行了许多演习、行动、训练和军事合作活动，以确保他们随时可以在全球范围内行动”。
+据《路透社》报道，以色列舍巴医疗中心（Sheba Medical Center）传染病科主任吉利·雷杰夫-约凯（Gili Regev-Yochay）说，该试验研究了辉瑞公司（Pfizer）加强针接种后两周和莫德纳（Moderna）公司强化针接种后一周的效果，第四针（中共病毒疫苗）的抗体增加“可能对奥米炕来说是不够的”。
 
-内华达号是一艘俄亥俄级（Ohio-class）弹道导弹潜艇，通常停留在华盛顿州的基萨普海军基地（Naval Base Kitsap），它是弹道导弹的一个秘密发射平台。
+另《以色列时报》报道，舍巴医疗中心在其150名员工中进行了中共病毒疫苗第二次加强针的试验，目前得到初步结果但尚未公布。截至周日，大约50万以色列人已经接种了第四针。
 
-按照海军的说法，该潜艇为美国提供了“核三位一体能力的最为重要的一环”，它携带有20枚三叉戟潜射弹道飞弹，并配备有几十枚核弹头。
+文章说，总理纳夫塔利·贝内特（Naftali Bennett）此前宣布，该国将开始为高危人群和弱势群体提供第四种中共病毒疫苗作为第二针加强针。
 
-CNN的报道认为，内华达号的访问可以作为美国的一个声明，因为朝鲜和中共国的弹道潜艇工作都远远落后于美国。当美国的一艘弹道导弹潜艇启动时，它通常是保密的，这就是为什么说内华达号在其母港之外被拍照的情况很少。另外，这艘船是核动力的，据说它可以在潜入水中几个月的时间内运作。
+但是，尽管推动了疫苗接种，以色列本月早些时候却报告了近12,000个新的中共病毒（COVID-19）病例，这是自中共病毒疫情大流行开始以来每日病例率的创纪录数字。
 
-根据报道，该舰周六在关岛的访问是它自2016年以来首次停靠该领土，也是它自1980年代以来宣布的第二次访问。
+**新闻来源**
 
-**新闻来源：**
-
-[US ballistic missile submarine stops in Guam amid Indo-Pacific tensions](https://thehill.com/policy/defense/590077-us-ballistic-missile-submarine-stops-in-guam-amid-indo-pacific-tensions)
+[Preliminary Israeli study shows fourth vaccine not enough to stop omicron](https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron?rl=1)
 
  
 

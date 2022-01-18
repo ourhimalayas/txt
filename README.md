@@ -15,128 +15,128 @@
 
 ---
 
-### [视数字货币为美元最大威胁的美联储要与喜美元HDO合作](/content/gnews/1/README.md)
+### [新中国联邦要通过话语权及标准制定权踢出共产党人民币](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [除了喜联储任何银行包括汇丰美国银行只要挤兑必将破产](/content/gnews/2/README.md)
+### [包括土耳其伊朗的中东四国外长向王毅要求必须美元结算](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022/01/18 英喜时事速递](/content/gnews/3/README.md)
+### [西方抵制冬奥会一也是流氓政府的政治表演和钱](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [数字货币与喜联储将彻底改变人类金融系统改变游戏规则](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [喜币最牛的七哥创意和系统安全性法律安全性及稳定储备](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [视数字货币为美元最大威胁的美联储要与喜美元HDO合作](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [除了喜联储任何银行包括汇丰美国银行只要挤兑必将破产](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2022/01/18 英喜时事速递](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [震惊！英国一全科医生透露疫苗接种即将在全球停止](/content/gnews/4/README.md)
+### [震惊！英国一全科医生透露疫苗接种即将在全球停止](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [短视频：拜登政府无视科学，一心想让人们接种疫苗](/content/gnews/5/README.md)
+### [短视频：拜登政府无视科学，一心想让人们接种疫苗](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以色列研究发现：接种四次中共病毒疫苗 对奥密克戎毒株预防效果仍欠佳](/content/gnews/6/README.md)
+### [以色列研究发现：接种四次中共病毒疫苗 对奥密克戎毒株预防效果仍欠佳](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】百世集团收到纽交所警告 或在6个月后被退市](/content/gnews/7/README.md)
+### [【中日财经爆】百世集团收到纽交所警告 或在6个月后被退市](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [太平联盟告郭文贵案警世：中共不灭，司法不再！](/content/gnews/8/README.md)
+### [太平联盟告郭文贵案警世：中共不灭，司法不再！](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】日本国内30年来将进行首次海洋天然气开发](/content/gnews/9/README.md)
+### [【中日财经爆】日本国内30年来将进行首次海洋天然气开发](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列研究显示中共病毒第四针疫苗效果失败](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [恒大、万达、融创、绿地、荣贸的骗局印尼独裁苏哈托](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [前英保守党领袖史密斯爵士：中共是威胁，而不是竞争者](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [香港将新疫情归咎检疫规定，国泰空少因违反规定遭捕](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [谁动摇美国司法根基](/content/gnews/14/README.md)
- ` 首尔天池农场`
-
-### [中囯国家统计局公布：2021年全年GDP增长5.2%](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国核弹道导弹潜艇抵达关岛军事基地](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022/01/17 墙内世界](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [01/18每日播报｜自中共病毒疫苗推广后 英国男性青少年死亡人数增加53%](/content/gnews/18/README.md)
+### [01/18每日播报|社媒消息：班农先生 埃博尼·博登](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [郭文贵首次展示童年照片](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国参谋长联席会议主席马克·米利将军感染中共病毒](/content/gnews/20/README.md)
+### [以色列研究显示中共病毒第四针疫苗效果失败](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [穿Gfashion的无苗新新人类](/content/gnews/21/README.md)
+### [恒大、万达、融创、绿地、荣贸的骗局印尼独裁苏哈托](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧洲爆发严重禽流感疫情](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
+### [前英保守党领袖史密斯爵士：中共是威胁，而不是竞争者](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [2022/01/14 墙内世界](/content/gnews/23/README.md)
+### [香港将新疫情归咎检疫规定，国泰空少因违反规定遭捕](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [谁动摇美国司法根基](/content/gnews/20/README.md)
+ ` 首尔天池农场`
+
+### [中囯国家统计局公布：2021年全年GDP增长5.2%](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国核弹道导弹潜艇抵达关岛军事基地](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022/01/17 墙内世界](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [嘉宾Kate提问及七哥回答（二）](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
+### [01/18每日播报｜自中共病毒疫苗推广后 英国男性青少年死亡人数增加53%](/content/gnews/24/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [护士：每个死于新冠病毒的人都应被认为是被谋杀的](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022年1月17日大直播概要](/content/gnews/26/README.md)
+### [郭文贵首次展示童年照片](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [火来问题（一）](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [WhatsApp无条件帮助美国政府监视用户](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [NBA股东查马斯·帕利哈皮提亚：新疆种族大屠杀和我无关](/content/gnews/29/README.md)
+### [美国参谋长联席会议主席马克·米利将军感染中共病毒](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文•贵天成——文贵先生谈“中概股“（六）](/content/gnews/30/README.md)
+### [穿Gfashion的无苗新新人类](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [金融系统是我们核心的核心](/content/gnews/31/README.md)
+### [欧洲爆发严重禽流感疫情](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [2022/01/14 墙内世界](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [嘉宾Kate提问及七哥回答（二）](/content/gnews/30/README.md)
+ ` 雅典娜GNotes`
+
+### [护士：每个死于新冠病毒的人都应被认为是被谋杀的](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022年1月17日大直播概要](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [打了加强针的马克·米利将军依然感染新冠病毒](/content/gnews/32/README.md)
+### [火来问题（一）](/content/gnews/33/README.md)
+ ` 雅典娜GNotes`
+
+### [WhatsApp无条件帮助美国政府监视用户](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北京冬奥将至，当局继续以煽颠罪逮捕维权人士](/content/gnews/33/README.md)
+### [NBA股东查马斯·帕利哈皮提亚：新疆种族大屠杀和我无关](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [打了加强针的马克·米利将军依然感染新冠病毒](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年1月18日新闻集](/content/gnews/34/README.md)
- ` 澳喜农场`
+### [北京冬奥将至，当局继续以煽颠罪逮捕维权人士](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [中共病毒疫苗绝对不能保护你免受感染](/content/gnews/35/README.md)
+### [中共病毒疫苗绝对不能保护你免受感染](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北京否认英国对于其间谍活动的指控](/content/gnews/36/README.md)
+### [北京否认英国对于其间谍活动的指控](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [母亲孕期注射中共病毒疫苗，胎儿会在20周内夭折](/content/gnews/37/README.md)
+### [母亲孕期注射中共病毒疫苗，胎儿会在20周内夭折](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本富山县75%的感染者已接种了中共病毒疫苗](/content/gnews/38/README.md)
+### [中共造假：统计局公布2021主要经济数据](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共造假：统计局公布2021主要经济数据](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习皇帝的新衣：北京冬奥宣布不售票但有定向观众](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [顶级运动员中越来越多的心脏问题：只是巧合吗？](/content/gnews/41/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [取消OSHA疫苗强制令的裁决是对员工医疗自主权的胜利](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

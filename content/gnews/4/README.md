@@ -2,30 +2,44 @@
 ---
 
 
-## 震惊！英国一全科医生透露疫苗接种即将在全球停止
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1875006/)
+## 数字货币与喜联储将彻底改变人类金融系统改变游戏规则
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875058/)
 
-#### 翻译/撰稿：zzballack
+G-TV视频链接：[https://gtv.org/video/id=61e6414e87664c47acd62673](https://gtv.org/video/id=61e6414e87664c47acd62673)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-4-5.jpg)图片来源：路透社
-据《The Covid World》1月18日报道，社交媒体上出现了一段令人震惊的视频，视频中一名医生告诉一位名叫切尔西·哈曼（Chelsea Harman）的英国妇女不要再接种任何新冠疫苗，因为这种疫苗即将在全球范围内被停止。
+**郭文贵先生：**现在告诉大家，明年的币、后年的币有多少人要买，你想象到的。所以你刚看这数字货币的时候，我们不是咱多牛。我们现在要决定在一年不到几个月上市的喜币，我们是决定这个牛的规则由谁来定，我们要最重要的要求世界数字货币的规则制定者是我们要参与的。
 
-切尔西·哈曼上周在远程医疗预约中给一位医生打电话说，她在1月14日接种了第一剂新冠疫苗后，头上出现了3个肿块。令人震惊的是，这位姓名不详的医生告诉她不要再接种疫苗了，因为随着公众尚未了解的新信息的出现，全球的疫苗接种计划即将结束。医生说：“…现在还没有足够多的信息。但即将出现很多信息，特别是关于那些免疫力完好的年轻人，显然，这就足够了。”
+所以战友们这三年的锁币和三年你们对整个的信用和建立的市场。到时候小飞象一出手，40也好400也好，全世界到处可以花，然后喜支付我们在这个月上线，你可以之间互相用的时候，你会感受到这是一个新的货币时代到来，新的货币数字金融系统到来，一个标准制定者的最好样板。这才是我们的价值，而不是炒作，上上下下就走人，这是核心兄弟姐妹们。
 
-哈曼要求医生澄清是否不用再接种疫苗了，医生做了肯定回答，并且说：“就像我对你说的那样，现在有很多信息出现了，而这些信息早先是没有的，很快所有的疫苗接种就会完全停止。这些都是刚刚出现的信息，你可能有一段时间不会在电视上听到，因为……[叹气]这是一个很长的故事。但是，他们很快就会停止所有这些疫苗，人们尚不知道…”
+数字货币和喜币喜联储将彻底改变人类的金融系统、生态系统，改变游戏规则，而且把新中国联邦会紧紧地跟全世界人民连在一起。
 
-哈曼随后问道她22岁的妹妹是否需要接种加强针，医生回答说：“不……请不要。绝对不可以。她不需要这个。请不要接种。”
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-哈曼后来拨打了英国国民医疗服务体系（NHS）的紧急医疗救助电话号码111，以确认与她对话的医生是否是全科医生（general practitioner），他们回复确认说对方是一位全科医生。
+编辑整理：Jacques；
 
-真希望这位医生透露的信息是真的，否则疫苗继续接种下去，人类会遭遇灭顶之灾。
+字幕文件制作：小满；
 
-新闻来源：
+视频制作及上传：Cindy；
 
-[BOMBSHELL: Doctor Tells Patient On Phonecall Not To Take Any More COVID Vaccines Because They’ll Soon Be Halted Globally](https://thecovidworld.com/bombshell-doctor-tells-patient-on-phonecall-not-to-take-any-more-covid-vaccines-because-theyll-soon-be-halted-globally/)
+G-News发布：小满；
 
-[https://www.facebook.com/chelsea.harman.75/videos/471067841090472](https://www.facebook.com/chelsea.harman.75/videos/471067841090472)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
