@@ -2,58 +2,62 @@
 ---
 
 
-## 习近平与江泽民曾庆红的厮杀注定爆料革命成为最后赢家
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875936/)
+## 分析师警告：激活5G信号塔可杀死接种COVID-19疫苗者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1875950/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e6abd387664c47acd648ea](https://gtv.org/video/id=61e6abd387664c47acd648ea)
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-5.png)图片来源：naturalnews.com
+自然新闻([Natural News](https://www.naturalnews.com/)) – 大型电信公司准备于今年 1 月在美国推出其“升级版”的 5G 网络。但有大量证据表明，这种推广[会导致灾难和死亡](https://www.brighteon.com/d6353abe-fe03-4ef7-a873-284f97b87a89)，尤其是在完全接种了武汉冠状病毒 (COVID-19) 疫苗的美国人中。
 
-**郭文贵先生：**另外一个这20大内部的较量，你可以看得出来，内部的较量现在绝对不是，你能是一般人能想象的，只有像我和海东兄弟、颖妹妹，是吧？跟共产党这些人真的是，接面对面的接触过的，你才有感受到。共产党内部是绝对这场斗争，江家非常清楚和曾家，只要让习过了二十大，一定把江曾家灭了，什么王岐山、孟建柱肯定都灭了。习也知道，我过不了二十大，他肯定把我家祖坟都给挖了。
+《SGT报道》在线节目主持人肖恩指出，有证据表明，5G信号塔会发射某种电磁波，直接攻击人体。作为证据，他提供了“第五栏目”（La Quinta Columna） 向公众发布的视频。
 
-这两之间较量是一定有一派倒下的，但我不相信这是哪一派能决定说谁倒下，但哪一派倒下，可能都是双方都亡。这就是爆料革命从头到尾都说的，真正的所有的历史证明了一条，参与战争的双方没有赢家，打扫战争的才是最后的赢家。
+“第五栏目”是一家西班牙语媒体，它是最早报道 COVID-19 疫苗含有有毒物质氧化石墨烯的独立媒体之一。
 
-而且天意、民心、天机都在我们这，咱想不赢都不行，现在看来咱想不赢？咱回去睡觉去？想不赢都不行。你小飞象你不要看你，政治庇护这个时间，这是一个完全美国人，一个独立的官员做出的决定，你在1年前，在4年前、5年前你是个笑话。
+（相关：[研究：5G 暴露是更高的 covid 病例和死亡的“重要因素”](https://naturalnews.com/2021-12-12-5g-significant-factor-higher-covid-cases-deaths.html)）
 
-像塞浦路斯这件事情，登出这些报纸，那不是说你花多少钱能做的，就像一年前你要Joe Rogan出来怼我们，人家搭都不搭理你？像419事件时候，你说叫Joe Rogan来怼我们两下吧，看他搭理你不？我不搭理你，是吧？所有的一切，兄弟姐妹们，咱想不行都不行。
+这家西班牙媒体在其最近的一段直播中播放了一段短片，一名男子将自行车停在 5G 塔旁边几秒钟，然后突然倒地。“第五栏目”的创始人兼媒体节目主持人里卡多·德尔加多·马丁（Ricardo Delgado Martin）指出，在事件发生前不到一秒钟，捕捉到该男子突然倒下的闭路电视摄像机在其视频中出现了故障。
 
-就这一句话等着吧，千万别在赢面前，失去了自己。走向冠军奖杯的人，不是最后坚持20秒，还有一个最重要的人有脑子，运动员、跆拳道，什么这拳道，最后全是用脑袋来决定的输赢，而从来不是用手和脚的，不管是踢球的还是玩大球、小球的，都是这个结局。
+德尔加多推测，这个故障是导致该男子倒地的原因，并且是由他旁边的 5G 塔造成的。 德尔加多的嘉宾何塞·路易斯·塞维利亚诺（Jose Luis Sevillano）博士指出，这是5G信号塔发出某种直接影响人们健康的脉冲的明显证据。
 
-我们千万别输在这儿（指着脑袋），该我们赢了，到现在我们不赢都不行的时候，你别傻了。
+“这就是证据，”路易斯用西班牙语说。“因为这不是那个人因他身体内部原因摔倒的问题，而是相机捕捉到了一个外部触发器……这可以解释了为什么这么多人突然在这里和那里死去。”
 
-G-Clubs抽奖，新G-TV投资，还有我们这一切G-Fashion，现在你穿着身上的G-Fashion。你看看现在小飞象，我就没见她穿过那么好看衣裳过，我不觉得她穿任何一个衣裳好过G-Fashion反正我。
+“它看起来像枪击，但它是光速的电磁脉冲，”德尔加多说。“而且它被相机记录为故障，这很正常。”
 
-包括东弟、颖妹妹，她俩穿任何衣裳，都没有G-Fashion那么好看的。现在你看这个长岛哥的衣裳，这是七哥给他的西装，唯一衬衣是他自己买的，就是这里唯一不好看的。像铲共光赚钱了，你也不弄点G-Fashion弄上，是吧？
+肖恩不相信故障是巧合。“视频中的故障表明，可能是某种电磁脉冲或能量武器被用来谋杀那个人。”
 
-我们的一切，就是有一切什么都是最好的，你干嘛做个最坏的选择呢？干嘛去撒一次谎，造一次假呢？是不是？永远记住在这个时候不要有那小私心。所有的魔，变成魔都是小鬼逐渐……因为小鬼的演变，变成了魔。所有的独裁、所有的妖，是因为好人的纵容变成了妖，还有就是一些绝大多数无知的人造就了魔鬼，我们千万别当那些小人物、自私的人，别（当）那个鼠目寸光的人，看得稍微远一点，2025年，咱们一切都分晓了，有什么呢？为什么不能到那个时候呢？是不是？
+**COVID-19 ****疫苗可能使人们更容易遭受 5G威胁**
 
-你看小飞象当时有多少事发生，你们光看到她成功的那一面，你看过她怀疑、犹豫、被打击的一面了吗？这么小个孩子她能坚持过来，不是开玩笑的。
+德尔加多和路易斯担心，完全接种 COVID-19 疫苗的人可能更容易受到这些电磁脉冲攻击，因为他们的身体含有氧化石墨烯。
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+2021 年 7 月，**西班牙阿尔梅里亚大学的研究人员发现，辉瑞的几乎所有疫苗都不过是氧化石墨烯载体。这种磁性物质在注入人体系统后，会导致致命的健康并发症，包括肝脏和肾脏损伤，刺激肺部肉芽肿的形成，甚至引发预编程的细胞死亡**。
 
-编辑整理：Jacques；
+德尔加多说：“如果[视频中]的人接种了疫苗，并且心脏中已经有石墨烯，而且如果这个人正在锻炼，那么，再清楚不过了，”他指出，石墨烯很可能是死亡杀手。
 
-字幕文件制作：小满；
+“这是**脉冲乘以石墨烯**，”路易斯说。他补充说，“因为 5G 波的密度”，他收到了更多来自患者心悸的报告。这些患者中的许多人还报告说，每当他们走出去时，都会在环境中感到一种奇怪的感觉。
 
-视频制作及上传：Cindy；
+“就像他们在宇宙飞船里一样，”路易斯说。“或者他们去了一个不属于我们的星球。”他说，**这种感觉是由于附近的 5G 塔造成的空气中的电磁场**。
 
-G-News发布：小满；
+外出时这种奇怪的感觉才是他们最小的问题，路易斯说，如果电磁场像视频中那样发生脉冲，它会给附近的人造成灾难。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+“[在体内]起作用……你会失去知觉，”路易斯说。“有些人康复后会说，‘我到底怎么了？’但在有些人中，这个过程太快，他们再也没能康复。他们最终会心肺骤停，一切都结束了。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+如果被 5G 塔的电磁脉冲击中的人，由于接种了含有石墨烯的 COVID-19 疫苗，那么，该人就不太可能摆脱电磁脉冲。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+素材和视频链接：
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[https://www.naturalnews.com/2022-01-14-activating-5g-towers-kill-covid-vaccine-recipients.html](https://www.naturalnews.com/2022-01-14-activating-5g-towers-kill-covid-vaccine-recipients.html)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**新闻来源**：[naturalnews.com][Activating 5G towers could KILL people who took COVID-19 vaccines, analysts warn](https://www.naturalnews.com/2022-01-14-activating-5g-towers-kill-covid-vaccine-recipients.html)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+* * *
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
 
  
 
