@@ -2,25 +2,43 @@
 ---
 
 
-## 德约科维奇回到塞尔维亚，受到国王般的欢迎
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1875164/)
+## 言论自由就是虽不同意你的观点但誓死捍卫你说话的权利
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875355/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2022/01/181.jpg)图片来源于网络
-据大全新闻(Newsmax)报道，本周一，诺瓦克-德约科维奇回到家乡塞尔维亚并受到了英雄般的欢迎，此前澳大利亚政府因他未接种中共病毒疫苗，而将这位当今世界男网第一人驱逐出澳，而这也让德约科维奇创纪录的第21个大满贯冠军梦想无法在澳网实现。
+G-TV视频链接：[https://gtv.org/video/id=61e6a7fe87664c47acd647ca](https://gtv.org/video/id=61e6a7fe87664c47acd647ca)
 
-塞尔维亚的支持者在他抵达贝尔格莱德机场时挥舞着国旗并为他欢呼。”你是我们的冠军，诺瓦克！”，”我们爱你，诺尔！”他们用德约科维奇的小名高呼。
+**郭文贵先生：**好了，Joe Rogan事情让我们看到一个问题，最可怕的事情，法律最后一句话，为了阻止人类走向贪婪、凶险、憎恨、自私的这种最后不可收拾的境地，我们要让老百姓有限度的说话。所以各国之后形成了一个叫什么新闻官，就是你说的话代表政府，你要负责任的。后来一个新闻监察官又出来了，说你这个政府和人但凡有层次，说话要负责的。
 
-这位34岁的 “墨尔本之王 “在之前的九次澳大利亚公开赛中获胜，以20个冠军与拉法-纳达尔和罗杰-费德勒持平，并且是1月17日开赛的澳网比赛的头号男单种子选手。
+Joe Rogan这个事情给我们一个最好的经验，兄弟姐妹们，你就像每个人都懂一样，“我不一定同意你的观点，但我誓死捍卫你说话的权利”，我们要更加上一句话：只有能听见别人批评的人，你才配享受自由，言论的自由。
 
-但他没有如期在墨尔本公园开始他的卫冕之路，而是经迪拜飞往贝尔格莱德，此前他曾两次与寻求庇护者一起被扣留在酒店，然后被澳大利亚移民局毫不客气地拒绝他的签证请求并被驱除出境。
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-“我很不舒服，过去几周的焦点都在我身上，我希望我们现在都能专注于我所热爱的比赛和赛事，”德约科维奇说，他对法院对他的裁决表示失望，但也表示尊重。
+编辑整理：Jacques；
 
-新闻来源：[Newsmax.com](https://www.newsmax.com/newsfront/djokovic-welcomed-serbia-covid/2022/01/17/id/1052690/)
+字幕文件制作：小满；
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

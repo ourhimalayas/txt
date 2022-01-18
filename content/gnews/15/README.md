@@ -2,30 +2,33 @@
 ---
 
 
-## 震惊！英国一全科医生透露疫苗接种即将在全球停止
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1875006/)
+## 六中全会中共两个政策
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1875256/)
 
-#### 翻译/撰稿：zzballack
+##### 整理：雅典娜速记组
+编辑：玉米地守望者
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-4-5.jpg)图片来源：路透社
-据《The Covid World》1月18日报道，社交媒体上出现了一段令人震惊的视频，视频中一名医生告诉一位名叫切尔西·哈曼（Chelsea Harman）的英国妇女不要再接种任何新冠疫苗，因为这种疫苗即将在全球范围内被停止。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/六中全会中共两个政策part1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/六中全会中共两个政策part2.jpg)
 
-切尔西·哈曼上周在远程医疗预约中给一位医生打电话说，她在1月14日接种了第一剂新冠疫苗后，头上出现了3个肿块。令人震惊的是，这位姓名不详的医生告诉她不要再接种疫苗了，因为随着公众尚未了解的新信息的出现，全球的疫苗接种计划即将结束。医生说：“…现在还没有足够多的信息。但即将出现很多信息，特别是关于那些免疫力完好的年轻人，显然，这就足够了。”
 
-哈曼要求医生澄清是否不用再接种疫苗了，医生做了肯定回答，并且说：“就像我对你说的那样，现在有很多信息出现了，而这些信息早先是没有的，很快所有的疫苗接种就会完全停止。这些都是刚刚出现的信息，你可能有一段时间不会在电视上听到，因为……[叹气]这是一个很长的故事。但是，他们很快就会停止所有这些疫苗，人们尚不知道…”
+共产党的1943年和1981年两个重大的决议，到今天的2021年（六中全会）的重大决议（19）81年，中国的军队什么样儿？当时要不要收回台湾？大家去看看历史去，那有时候缺啥？中国缺粮食。这次是什么中国人需要什么，要改革开放，中国事实上是坚决不开放，继续打台湾对待美帝国主义是什么？我告诉大家，（中共）对美国会越来越软，嘴巴会很喊，绝对越来越软。美国人通过这个六中全会，绝对是共产党更大的威胁。
 
-哈曼随后问道她22岁的妹妹是否需要接种加强针，医生回答说：“不……请不要。绝对不可以。她不需要这个。请不要接种。”
+习近平和邓小平和毛泽东不一样，他敢干，他绝对敢打台湾。毛泽东敢到北朝鲜，他绝对敢上台湾。六中全会对内实行习皇制，对外实行希（习）特勒制。你一点儿都不用怀疑，为什么呀？他下边儿的一个个的张万年，一个个的太监，还有今天他的这杨洁篪和王毅。一定会执行下去。
 
-哈曼后来拨打了英国国民医疗服务体系（NHS）的紧急医疗救助电话号码111，以确认与她对话的医生是否是全科医生（general practitioner），他们回复确认说对方是一位全科医生。
+记住我今天说的话，两个政策啊：
+一、会对外无限强硬一定会再放毒在南海和东海问题上一定会强硬。
+二、记住兄弟姐妹们，（共产党）马上会把中国的私有经济企业所有的人的财富和所有东西都会收回到中央去，所有在华企业能弄的弄，就是真正的实现对内对外的资本的共产制。闭关锁国，完全拒绝对外改革开放完全自主占自主道路，自主研发，开拓创新，胸怀天下，然后老子来这两件事儿，就在发生此时此刻。
 
-真希望这位医生透露的信息是真的，否则疫苗继续接种下去，人类会遭遇灭顶之灾。
+*发布：玉米地守望者*
 
-新闻来源：
-
-[BOMBSHELL: Doctor Tells Patient On Phonecall Not To Take Any More COVID Vaccines Because They’ll Soon Be Halted Globally](https://thecovidworld.com/bombshell-doctor-tells-patient-on-phonecall-not-to-take-any-more-covid-vaccines-because-theyll-soon-be-halted-globally/)
-
-[https://www.facebook.com/chelsea.harman.75/videos/471067841090472](https://www.facebook.com/chelsea.harman.75/videos/471067841090472)
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

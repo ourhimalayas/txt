@@ -2,26 +2,30 @@
 ---
 
 
-## 前英保守党领袖史密斯爵士：中共是威胁，而不是竞争者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874954/)
+## 震惊！英国一全科医生透露疫苗接种即将在全球停止
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1875006/)
 
 #### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-34.jpg)图片来源：泰晤士报
-据英国《每日邮报》（Daily Mail）1月16日报道，前英国保守党领袖伊恩·邓肯·史密斯爵士(Iain Duncan Smith) 1月16日在接受天空新闻采访时表示，像中共特工李贞驹渗透国会和议员这类事件只是中共大规模行动的冰山一角。但是历届政府一直对此熟视无睹。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-4-5.jpg)图片来源：路透社
+据《The Covid World》1月18日报道，社交媒体上出现了一段令人震惊的视频，视频中一名医生告诉一位名叫切尔西·哈曼（Chelsea Harman）的英国妇女不要再接种任何新冠疫苗，因为这种疫苗即将在全球范围内被停止。
 
-史密斯爵士说：“多年来，中共在某种程度上掌控了我们，以至于我们现在在一系列的项目和条款上完全依赖他们。太多的官员和前部长们从中共那里拿了钱。中共一直在尝试说服、渗透和颠覆英国政治体系内的人，这已不是什么新鲜事。但最糟糕的是，太多的政府似乎过于小心谨慎，不敢对中共强硬。我们要认识到中共是一个威胁，而不是一个竞争者，这一点非常重要。”
+切尔西·哈曼上周在远程医疗预约中给一位医生打电话说，她在1月14日接种了第一剂新冠疫苗后，头上出现了3个肿块。令人震惊的是，这位姓名不详的医生告诉她不要再接种疫苗了，因为随着公众尚未了解的新信息的出现，全球的疫苗接种计划即将结束。医生说：“…现在还没有足够多的信息。但即将出现很多信息，特别是关于那些免疫力完好的年轻人，显然，这就足够了。”
 
-1月13日，英国军情五处（MI5）向国会议员们发送了一个罕见的警告：58岁的华裔律师李贞驹疑似中共间谍。
+哈曼要求医生澄清是否不用再接种疫苗了，医生做了肯定回答，并且说：“就像我对你说的那样，现在有很多信息出现了，而这些信息早先是没有的，很快所有的疫苗接种就会完全停止。这些都是刚刚出现的信息，你可能有一段时间不会在电视上听到，因为……[叹气]这是一个很长的故事。但是，他们很快就会停止所有这些疫苗，人们尚不知道…”
 
-据《星期日泰晤士报》 (The Sunday Times)报道，英国特勤局表示，外国干涉是对民主的“活生生威胁”。
+哈曼随后问道她22岁的妹妹是否需要接种加强针，医生回答说：“不……请不要。绝对不可以。她不需要这个。请不要接种。”
 
-前MI5负责人、公共生活标准委员会（committee of standards in public life）的主席乔纳森·埃文斯勋爵（Jonathan Evans）说：“这个案件表明，我们应该填补漏洞，因为有相当强大的力量试图通过议会和金钱给英国政治带来不当影响。我们委员会在去年的一份报告中提出了一些建议，但政府并没有遵循建议和采取行动。”
+哈曼后来拨打了英国国民医疗服务体系（NHS）的紧急医疗救助电话号码111，以确认与她对话的医生是否是全科医生（general practitioner），他们回复确认说对方是一位全科医生。
 
-郭文贵先生在1月17日的大直播说，中共在英国至少安插了70多个间谍，李贞驹只是冰山一角。从这次大流行可以看出，中共在全世界的蓝金黄渗透程度远远超出了人们的想象。
+真希望这位医生透露的信息是真的，否则疫苗继续接种下去，人类会遭遇灭顶之灾。
 
-新闻来源：[China is a threat… NOT a competitor’: Iain Duncan Smith accuses ‘successive governments’ of being ‘asleep at the wheel’ over Beijing’s influence at heart of Westminster while ex-MI5 chief says ministers failed to act on warnings](https://www.dailymail.co.uk/news/article-10407627/Iain-Duncan-Smith-accuses-successive-governments-asleep-wheel-China.html)
+新闻来源：
+
+[BOMBSHELL: Doctor Tells Patient On Phonecall Not To Take Any More COVID Vaccines Because They’ll Soon Be Halted Globally](https://thecovidworld.com/bombshell-doctor-tells-patient-on-phonecall-not-to-take-any-more-covid-vaccines-because-theyll-soon-be-halted-globally/)
+
+[https://www.facebook.com/chelsea.harman.75/videos/471067841090472](https://www.facebook.com/chelsea.harman.75/videos/471067841090472)
 
  
 

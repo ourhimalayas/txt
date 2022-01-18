@@ -2,32 +2,29 @@
 ---
 
 
-## 香港将新疫情归咎检疫规定，国泰空少因违反规定遭捕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874951/)
+## 短视频：拜登政府无视科学，一心想让人们接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1875004/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+##### 翻译：Frank 
+校对：lish 
+视频剪辑：蛮吉 
+编辑：文泓 
 
-#### 编译：小红帽
-
-- ![Hongkong Flughafen Flugzeug Abflug](https://static.dw.com/image/58852537_303.jpg)DW.COM
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/811.png)图片来源：视频截屏
 
 
-根据《DW新闻》1月18日报道， 香港警察于1月17日以违反《预防及控制疾病规例》的罪名拘捕并起诉了两名前空中少爷。警察指，两人在医学监察期间进行“不必要活动”丶外出聚餐，并在之后确诊奥密克戎（Omicron）。
+欢迎来到福克斯新闻黄金时段，我是雷切尔·坎波斯·达菲。
 
-警察并没有在声明中提及航空公司的名字。《香港01》比对公开资料发现，两名空少在国泰航空上班。两人在去年12月底分别从纽约及芝加哥飞抵香港，并在医学监察期间涉违反检疫安排，出外聚餐。目前已有同餐厅的顾客被发现感染病毒。
+左派的封锁、戴口罩和强制疫苗现在已经有近两年的时间。然而，在与冠状病毒的斗争中却没有什么变化。拜登推动全美接种疫苗已经12个月了，而我们实际上比以前更糟。上周五，美国冠状病毒病例报告超过83万个，这比在2021年同一天的27万个病例有了巨大的飞跃。现在看来，无论民主党人试图做什么，他们的计划都不起作用，但他们不会让一点失败阻止他们。今天上午，乔·拜登对雇员超过100人的私营企业的全面疫苗强制开始生效，数以百万计的美国人现在将不得不在接种疫苗或保留工作之间做出选择。但拜登的要求是如此违宪，以至于最高法院目前正在辩论它是否可以继续下去。而摆在九位大法官面前的是这样一个问题：这些疫苗到底有没有用？疾控中心主任米歇尔·奥林斯在周末也被问到了这个问题。
 
-两名空少在疾病痊愈，离开医院后被警方于17日拘捕和起诉。根据《预防及控制疾病规例》，一旦罪名成立，他们可能面临最高6个月的监禁和最高5,000港元（642美元）的罚款。据悉，两人目前已遭国泰航空开除。
+视频链接：[Campos-Duffy: Biden’s White House so consumed with getting people vaccinated, they’re ignoring science | Fox News Video](https://video.foxnews.com/v/6290992542001#sp=show-clips)
 
-香港日趋严苛的防疫规定，是否能有效对抗大流行病仍是个未知数，但是这些严苛的防疫措施将对机组人员的身心健康造成不良影响。
-
-**新闻来源**：[香港防疫：国泰前空少因违反检疫规定遭捕](https://www.dw.com/zh/%E9%A6%99%E6%B8%AF%E9%98%B2%E7%96%AB%E5%9B%BD%E6%B3%B0%E5%89%8D%E7%A9%BA%E5%B0%91%E5%9B%A0%E8%BF%9D%E5%8F%8D%E6%A3%80%E7%96%AB%E8%A7%84%E5%AE%9A%E9%81%AD%E6%8D%95/a-60455995)
-
-*发布： 陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

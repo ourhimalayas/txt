@@ -2,33 +2,45 @@
 ---
 
 
-## 01/18每日播报|加拿大反击中共关于邮件传播“奥米炕”的假消息
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1875134/)
+## JoeRogan并没有编造邪说，他告诉我们什么叫法治社会
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875319/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61e681c7533c672fca7ed17a)**
+G-TV视频链接：[https://gtv.org/video/id=61e65c7e87664c47acd6305c](https://gtv.org/video/id=61e65c7e87664c47acd6305c)
 
-**[2022-01-18](https://gtv.org/broadcast/watch/61e681c7533c672fca7ed17a)**
+**郭文贵先生：**那么Joe Rogan，现在我想问Joe Rogan事件人家编造邪说了吗？人家有胡说八道？有误会，他没编造，更不叫邪说对吧？你说那个路大脑袋说什么？还有那个九指妖说王雁平在河北抱了几纸箱子G-Fashion送给了郝海东，卖给了战友，那叫编造邪说；她要制造一个傻币，那叫编造邪说；路大脑袋（说）什么绿帽子、什么塞林爹，还有找爹博，还有癌症丽，哪句话不是瞎话？你经得起推敲吗？
 
-据《加拿大CTV新闻网》1月17日报道，在北京发现首例“奥米炕”病毒病例后，中共官员声称，这种病毒可能是通过一封来自加拿大的邮件传播到北京的。对此说法，加拿大传染流行病专家提出质疑并表示这种说法极度不合理。
+大家记住，你看什么人不一样啊？我一生最在乎的事情，我往回看的时候，我希望我后面的人能走到我前面去，在我前边，这是我一生中从小到大，跟着我的人、我的公司、我的企业、我的合作方都是，我希望在我后面的人走到我前面去，我前面越多人越好，因为我觉得我更强大。
 
-上周六，北京疾控中心宣布，该市出现了首例“奥米炕”本土病例，阳性患者为一名26岁的年轻女性。官方报道称，在进行了流行病学调查之后，发现这名女性近期既无14日内的离京史，也无任何相关病例的密切接触史。随后，北京疾控中心宣称，这名女子曾接收了一封1月7日从加拿大寄来的国际信件，该邮件在1月11日通过美国和香港抵达北京，称在这封邮件中检出了“奥米炕”病毒变种阳性。 由此，当地官员初步断定，这起疫情的源头是这封来自加拿大的国际邮件。
+那么共产党是什么？把前面所有能看见的人一律消灭，就让你看到他自己，这就叫独裁，而且叫压迫，叫统治，你看这就是中国人不能说话了。Joe Rogan事情告诉你什么？叫法治社会，它不能制造邪说。
 
-周一，加拿大卫生部长、让-伊夫·杜克洛斯对中共官员上述说法表示反对，称中共国的这些做法肯定不符合国际标准，要使说法有用和可信，则需要更多的信息，要听专家的意见。
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-萨斯喀彻温大学流行病学专家、纳齐姆·穆哈贾林博士也称这种说法“令人困惑”。他在给CTV新闻的一封电子邮件中表示，这些所谓的病毒颗粒被直接分离出来并经过测试来判定病毒源头的方法是完全不可行的。如果没有任何独立的验证，中共病毒通过表面传播的说法根本没有可信度。因为“奥米炕”病毒最容易通过气溶胶方式在空气中传播，它被释放到空气中几天后就不具传染性了。
+编辑整理：Jacques；
 
-多伦多大学传染病流行病学专家、科林·弗内斯博士告诉CTV新闻，这听起来荒唐可笑。他指出，中共病毒不太可能完全通过国际邮件在世界上传播。他还说，中共病毒的生存能力在一定程度上取决于纸张的粗糙度。在与邮袋里的其他文件高度摩擦的几天之后，病毒还能存活的可能性微乎其微。 弗内斯博士还指出，目前中加关系紧张，地缘政治可能是中共国当局将矛头指向加拿大的原因之一。
+字幕文件制作：小满；
 
-周一，保守党领袖埃林·奥图尔在新闻发布会上表示，这些报道“滑稽可笑”。中共官方的说法提醒我们，从中共病毒疫情一开始，中共国的新闻和报道就不可信。
+视频制作及上传：Cindy；
 
-秘翻新闻主编 冰糖葫芦喵编译报道
+G-News发布：小满；
 
-发布:星星
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-* * *
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
