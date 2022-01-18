@@ -2,40 +2,26 @@
 ---
 
 
-## WhatsApp无条件帮助美国政府监视用户
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874788/)
+## 美国参谋长联席会议主席马克·米利将军感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874878/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+#### 撰稿：彩虹
 
-整理编辑：小红帽
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-16.jpg)图片来源：军事时代
+1月17日，《新闻极限》报道美国最高级别的将军感染了中共病毒（COVID-19）。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
+根据报道，周日的时候，马克·米利 (Mark Milley)将军中共病毒检测结果成阳性。并在隔离中和远程工作时出现了非常轻微的症状。发言人说，米利最近一次与总统乔·拜登（Joe Biden）的接触是1月12日参加退役将军雷蒙德·奥迪尔诺（Raymond Odierno）的葬礼上，但在与拜登接触的前几天和之后的每一天，中共病毒检测结果均为阴性。
 
+发言人透露，除了一人外，所有其他参谋长联席会议成员昨天的中共病毒（COVID-19）检测均为阴性，但没有说还有谁检测呈阳性。
 
-根据《RT新闻》1月18日报道，美国政府机构命令WhatsApp监视几个外国公民，尽管该机构没有证据证明这些用户犯了罪，甚至不知道他们的名字。
+值得注意的是，米利将军之前已经完全接种了中共病毒疫苗，并且还接种了中共病毒疫苗加强针。
 
-最近解封的一份2021年11月的搜查令显示，美国缉毒署(DEA)曾命令脸书（Facebook）旗下的通信服务商监控据说位于中国和澳门的7名用户。
+报道说，本月早些时候，美国国防部长劳埃德·奥斯汀（Lloyd Austin）的中共病毒（COVID-19）检测结果为阳性。（但）他在1月9日测试结果呈阴性，于是不再隔离而回到了五角大楼工作。
 
-《福布斯》报道：“搜查令显示，缉毒局不知道任何目标的身份，但告诉WhatsApp监控目标用户的IP地址和通信号码，以及他们何时和如何使用该应用程序”。
+**新闻来源**
 
-该监控是调查从中国进口阿片类药物行动的一部分。为了下令进行监控，美国政府只需要说明 “可能获得的信息与该机构正在进行的刑事调查有关”。搜查令并不需要任何犯罪证据。
-
-《福布斯》还发现，WhatsApp此前曾被命令监控墨西哥的四名用户。这再次表明美国政府的大科技监控行动远远超出了该国的边界。
-
-联邦调查局（FBI）去年泄露的一份文件显示，WhatsApp是最愿意向美国当局提供数据的信使服务商之一。
-
-本月，瑞士军方以数据保护为由，禁止军方使用WhatsApp，以及竞争对手Signal和Telegram。
-
-新闻来源：[WhatsApp helps US govt spy on users, no questions asked](https://www.rt.com/news/546338-whatsapp-us-agencies-spying/)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Top US General Milley Tests Positive for COVID-19](https://www.newsmax.com/newsfront/general-milley-tests-positive-covid/2022/01/17/id/1052714/)
 
  
 

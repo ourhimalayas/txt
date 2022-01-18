@@ -2,54 +2,60 @@
 ---
 
 
-## 人生是用来找钻石找好人的，心地不纯洁何以洁净灭共
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875252/)
+## 伦敦警察局的亚裔仇恨犯罪小组与被指控的中共国间谍有关
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1875390/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e65ac787664c47acd62f8c](https://gtv.org/video/id=61e65ac787664c47acd62f8c)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1195707601-640x480-1.jpg)图片来源：《布赖特巴特新闻网》
+来自英国《布赖特巴特新闻网》1月16日的报道, 来自英国报纸的报道称，伦敦都会警察局的一个亚裔仇恨犯罪论坛与据称在威斯敏斯特区(Westminster)活动的中共国间谍有联系。
 
-**郭文贵先生：**像今天早上，YouTube 把熊宪民所有人的都都黑了，都给干掉了，YouTube。
+本周，英国国内安全部门军情五处声称，“英国华人参政计划”(British Chinese Project)的创始人李贞驹(Christine Lee)一直试图代表中共当局在下议院获得影响力。李还被揭露提供了约70万英镑的政治捐款，其中绝大部分被输送给工党和自由民主党的左翼政治家。
 
-我告诉大家，我在一个月前，两个月的时候，在冬奥会之前，在二十大之前，所有的社交媒体，在中共国能看的YouTube，你们所有的账号，包括我的，都会给你们删除。为什么？因为共产党已经给他说了:你把这些都删了，我让你在中国还能打开你的，你要不能，你不把他全删了，就像郭文贵的新中国联邦的媒体G-TV一样，谁也看不了。
+周日，《电讯报》(The Telegraph)的一篇报道称，李在“英国华人参政计划”中的一个前合伙人陈佩珊(Pek-san Tan)，目前在伦敦警察局反仇恨犯罪ESEA（东亚和东南亚）论坛的委员会中担任主席。
 
-这叫资本主义，你不懂得资本主义的规则，你拿着共产党的脑子想这问题，兄弟姐妹们，你比在国内还痛苦。所以说我在你们今天说这个之前，我先把这个背景，Joe Rogan 的事情考验了所有人的智慧和心胸，还有你配不配做新中国联邦人。
+在中共病毒爆发后，伦敦警察局成立了该小组，以保护散居在英国的华人免遭仇恨犯罪。
 
-大家想想，不尊重自由的人，你凭什么要有自由。不给别人讲话机会的人，你凭什么有讲话机会。如果你是真的你又为什么怕别人怼你？这就是新中国联邦最牛叉的力量。
+论坛内部的两个消息来源告诉本报，陈女士利用自己的职位，将对中共在新疆种族灭绝事件等问题上的批评与对华人“实际”上的种族主义混为一谈。
 
-七哥从来不在乎人怎么说我、怎么看我，我一生从小到大，我从懂事儿到今天，我恨的一句话就是“人家怎么看”，我为什么在乎人家怎么看？我身边到现在充满了无数的这样的无知。为什么我要在乎，我们为什么要为别人活着，不为自己活着呢？
+中共经常试图将武汉病毒后兴起的所谓#停止亚裔仇恨运动（#StopAsianHate）作为武器，甚至还指责美国的维吾尔族活动人士因说出独裁政权对其同胞的种族灭绝的真相，而被认为是反亚裔的行为。
 
-到处，这个世界上最可怕的啊，如果说，你在肛门里找屎，这是正确的，肛门本来就是拉屎的地方。但是你非要在一顿过年的晚宴上找屎，这个事情就错了，因为这里不是找屎的地方。
+去年年底在伦敦举行的“停止亚裔仇恨”（Stop Asian Hate）集会演变成暴力事件，亲中共的人与谴责对新疆维吾尔人种族灭绝的活动人士在街头发生争吵。
 
-我们的人生，生下来不是找屎的，我们生下来是要找钻石，这就是七哥说的要找好人，我们爆料革命不要每天到处找敌人去。永远去找别人的毛病，找别人的毛病，天天，你先说你自己有啥毛病，你把自己病治好了天下都没病。你自己病多的时候天下都是病。
+据称，陈并不知道李被指为中共从事间谍活动，然而，两人过去曾密切合作，包括他们为英国国会跨政党国会小组共同撰写了2012-13年的《英国华人》。据称，这两人还与工党议员巴里·加德纳(Barry Gardiner)合影，后者被指控是间谍捐款的最大接受者。
 
-所以不要像那些熊宪民呐、什么韦石呐、夏业良、郭宝胜那帮孙子，戴着满眼的两滩屎，像路大脑袋满嘴都是屎，咳着痰，到处造谣，生是生非，这种垃圾是吧？我们怎么能当这样的人呢？你心不洁净怎么能洁净地搞灭共呢？
+陈还担任过伦敦华埠商会(London Chinatown Chinese Association)的首席新闻官，该协会的赞助商包括中共国有的中国银行和有争议的电信巨头华为。该协会一直公开支持对香港实施严厉的《国家安全法》（national security law），该法基本上结束了这个前英国殖民地的言论自由权。
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+保守党议员努斯·加尼(Nus Ghani)在评论伦敦警察局与被指控的中共国间谍的关系时说：“对中共有效力的批评不能被混淆，也不能作为反华情绪的借口。”
 
-编辑整理：Jacques；
+加尼因努力揭露新疆的种族灭绝而受到中共当局的制裁，她补充说：“但我们决不能停止对一个恶毒政权的合法批判，这个政权不仅对维吾尔族人民犯下种族灭绝的反人类罪行，而且还积极寻求渗透我们民主制度。”
 
-字幕文件制作：小满；
+保守党前领导人和对华政策跨国议会联盟(Inter-Parliamentary Alliance on China)联席主席伊恩·邓肯·史密斯(Iain Duncan Smith)爵士说，英国建制派已经被“为中共国辩护的人士渗透”。
 
-视频制作及上传：Cindy；
+他说：“现在是清理的时候了”，并补充说：“历届英国政府在这方面都太软弱了。中共犯了严重侵犯人权和破坏中英香港协议的罪行。把对这一问题的批评与种族主义混为一谈的想法绝对是胡说八道。”
 
-G-News发布：小满；
+伊恩爵士此前曾对在英国的中共特工以来自香港和中共国的政治异见人士为攻击目标表示关切。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+去年，流亡在外的香港亲民主派活动人士罗冠聪接受伦敦《布赖特巴特新闻网》采访时说：“我不能说我是完全安全的。我对周围的环境和个人安全真的很警惕，所以我希望我可以照顾好自己，避免遭到暴力打压。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**简评：**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+中共对英国在各方面的渗透历时已久。伊恩爵士说“历届英国政府在这方面都太软弱了，中共犯了严重侵犯人权和破坏中英香港协议的罪行”。这代表着英国政府已经开始警醒并意识到中共渗透的严重性。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+文中提到的“英国华人参政计划”(British Chinese Project)，其网站主页显示“无法继续运作，该项目暂停，直至进一步通知。” 据网上图片显示，被指控的中共国间谍李贞驹在伦敦西区的办公室已经关闭，空无一人。这可真是山雨欲来风满楼，不得不让人怀疑其真实身分。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+英国开始调查中共间谍等的渗透，意味着国际上对中共的反制已经开始。中共的灭亡指日可待。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+新闻链接：[https://www.breitbart.com/europe/2022/01/16/met-polices-asian-hate-crime-group-connected-to-alleged-chinese-spy-report/](https://www.breitbart.com/europe/2022/01/16/met-polices-asian-hate-crime-group-connected-to-alleged-chinese-spy-report/)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+* * *
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

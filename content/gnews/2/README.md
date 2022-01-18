@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党对郭文贵先生法律超限战和身心灵打击
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1875426/)
+## 共产党的法律超限战
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1875618/)
 
 台灣寶島農場
 
