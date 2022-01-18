@@ -2,43 +2,29 @@
 ---
 
 
-## 经历政治经济威胁和病毒灾难的西方必找共产党作替死鬼
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875898/)
+## 澳洲新南威尔士单日CCP病毒感染死亡案例创新高
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1875912/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e6ab0d87664c47acd648b5](https://gtv.org/video/id=61e6ab0d87664c47acd648b5)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011611.jpg)网络图片
+当地时间1月18日，澳大利亚新南威尔士州迎来了自CCP病毒大流行以来最为致命的一天：在过去 的24 小时内，有 36 人因为感染CCP病毒而死亡，虽然新增CCP病毒感染数量已经较数日以前已经开始下降，为 29,830 例。
 
-**郭文贵先生：**更重要的事情，共产党也帮了我们，他那么多年不准有反对的声音，不准有一……不准有一党，不能有其他党派，只剩了我们一家，现在我们就成了唯一了。更重要的大家要看到，西方知道经济威胁，和政治威胁，和生命威胁、社会威胁，所有这些最后终结完，疫苗灾难和病毒灾难，最后找到一个替死鬼子，只有共产党。
+根据新南威尔士州卫生部官员的消息，在36名不幸感染CCP病毒离世的患者中，有33位是注射了CCP病毒疫苗的，即超过九成有接种至少一针CCP病毒疫苗。笔者认为这进一步证明疫苗不仅不能防止感染，同时对于降低病症或减少死亡也没有明显效果。
 
-这一系列的弄完，我们看到北欧和俄罗斯和中共之间在东欧：萨克、哈萨克斯坦、哈尔扎耶夫家族，拉莫赫夫的江泽民的亲干儿子是吧，然后昆仑山脉的出卖、印度洋、整个中东石油的较量，和俄罗斯之间的分开，这都是在我们两三年以前都在预料在2025年发生。现在看来今年都会发生。
+目前因CCP病毒感染而住院的人数为2850人，其中有209人处于重症监护的状态当中，这些数据相较昨日的住院人数略有上升。
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+在1月18日的阳性结果中， 13,763 例来自快速抗原检测，16,037 例来自PCR 检测。
 
-编辑整理：Jacques；
+新南威尔士州长多米尼克·佩罗特表示，死亡人数标志着“我们州非常艰难的一天”，并敦促居民记住，每个数字背后都有一个悲痛的家庭。
 
-字幕文件制作：小满；
+佩罗特州长表示：“我们的思念、祈祷和心与所有此时失去亲人的家庭同在……在过去的两年里，我们经常如此关注病例数，我们不应该忘记，在每一个死亡人数的背后，都有一个已经去世的亲人。”
 
-视频制作及上传：Cindy；
+由于开学季遇到了当前疫情的严峻形势，根据将于周四公布的全面返校计划，学生将被要求每周两次在家进行快速抗原检测。家长会收到快速抗原检测试剂盒，然后在上课前监督孩子的检测。
 
-G-News发布：小满；
+佩罗特州长称，州政府昨天已经收到一百万份快速抗原检测试剂盒，预计本周还将接收数百万份。同时州长还坚持要求学校如期恢复面对面学习，不会再因CCP病毒而导致延误。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+新闻参考链接：[NSW records deadliest day of pandemic, with 36 lives lost](https://www.9news.com.au/national/coronavirus-nsw-updates-new-case-numbers-school-students-home-testing/ccee2523-b2e2-42cf-8b6c-0e5580337334)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

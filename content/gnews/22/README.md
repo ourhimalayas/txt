@@ -2,26 +2,42 @@
 ---
 
 
-## “砖家”开始为第四针CCP病毒疫苗接种代言
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1875882/)
+## 经历政治经济威胁和病毒灾难的西方必找共产党作替死鬼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875898/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011610.jpg)图片制作：澳喜农场©森森
-世界各地的一些医学“砖家”现在正继续“研究”遏制CCP病毒大流行的解决方案，他们中的一些人得出了结论称，第四剂CCP病毒疫苗——或者说第二剂加强针注射——是阻止新变种出现的关键。
+G-TV视频链接：[https://gtv.org/video/id=61e6ab0d87664c47acd648b5](https://gtv.org/video/id=61e6ab0d87664c47acd648b5)
 
-丹麦、智利和以色列目前已经批准为“弱势群体”接种第二剂 CCP病毒加强针疫苗，而在澳大利亚，澳大利亚免疫技术咨询小组ATAGI 已批准为免疫系统较弱的人接种第四剂CCP病毒疫苗。
+**郭文贵先生：**更重要的事情，共产党也帮了我们，他那么多年不准有反对的声音，不准有一……不准有一党，不能有其他党派，只剩了我们一家，现在我们就成了唯一了。更重要的大家要看到，西方知道经济威胁，和政治威胁，和生命威胁、社会威胁，所有这些最后终结完，疫苗灾难和病毒灾难，最后找到一个替死鬼子，只有共产党。
 
-然而对于是否要在普通人群推广第二剂加强针注射，最近也已经有“砖家”放出了一些风，似乎正在对群众进行着试探。例如主流媒体近日就刊载了病毒“砖家”Lara Herrero 的话，称加强注射可能是缓解CCP病毒爆发和打击未来变种毒株的关键。结合近日一些主流媒体开始探讨Omicron之后还会有新的变体诞生，为第四针CCP病毒疫苗铺路的组合拳似乎已经开打。
+这一系列的弄完，我们看到北欧和俄罗斯和中共之间在东欧：萨克、哈萨克斯坦、哈尔扎耶夫家族，拉莫赫夫的江泽民的亲干儿子是吧，然后昆仑山脉的出卖、印度洋、整个中东石油的较量，和俄罗斯之间的分开，这都是在我们两三年以前都在预料在2025年发生。现在看来今年都会发生。
 
-来自卫生组织免疫联盟的Rod Pearce表示，第四剂疫苗的益处正在研究中，尚未确认是否有必要进行施打。但是从他们只研究第四针的益处而不研究第四针的坏处来看，第二加强针已经在路上绝对不是什么天方夜谭。
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-据称，辉瑞和莫德纳两家药企现在都在开发专门针对 Omicron 变体的CCP病毒加强针，在今年 3 月份时或许可以准备就绪。如果这一消息为真且两家药企如期完成制造，那么3月之后全球或许将再度进行一场CCP病毒加强针注射运动。而那些之前 打满三针的人，很可能就还要再接种一剂专门针对Omicron的第四针。
+编辑整理：Jacques；
 
-新闻参考链接：[Necessity of fourth COVID-19 vaccine booster shot divides experts](https://www.9news.com.au/national/coronavirus-vaccine-research-necessity-of-fourth-covid-19-vaccination-booster-shot-divides-experts/b74c54f2-0831-4fc8-97f8-989379c86db0)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
