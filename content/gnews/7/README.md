@@ -2,36 +2,26 @@
 ---
 
 
-## 有声|中共病毒加剧分裂 政治转型即将到来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1874028/)
+## 澳政府承认疫苗具有严重副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874096/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月15日盖特消息，史蒂夫-班农先生近期接受新中国联邦媒体采访，他认为，中共病毒恶化了现有分歧，但是为主权和民主而战的民众正在获胜，而且，全球政治转型即将到来。
+##### 翻译：FULIN
+校对：枳实
+剪辑/字幕：文驰
+编辑：Mttfly
 
-班农先生说，中共病毒疫情加剧了国家主权和全球主义等社会矛盾，而全球主义与中共为伍。而且，大规模强制接种中共病毒疫苗的后遗症，会进一步加剧社会分裂。但是，这种”分裂”并不是最坏的事情。反而表明，有相当一部分人不愿意向独裁屈服。事实证明，为民主自由而战的人们正在获胜。
+根据澳大利亚“7新闻”频道报道，澳联邦政府正在为任何在注射COVID后，出现严重疾病的人提供赔偿。这意味着，澳政府正式承认疫苗具有严重副作用。在报道中，一位名为马蒂·约翰的青年在接种辉瑞疫苗两天后就出现了心包炎等症状，因此停工十周。这不仅仅是个例，据估计，澳洲有79,000人遭受过疫苗的不良反应。虽然澳政府准备赔偿，但是条件非常苛刻，部分民众只能独自承受费用。
 
-原文链接：[中共病毒加剧分裂 政治转型即将到来](https://gnews.org/zh-hans/1870079/)
+视频链接：[REPORT: 79,000 People! – The government now ADMITS to severe vaccine side effects. – Offering some victims over $600,000 in cash and compensation. – Australia.](https://twitter.com/newgranada1979/status/1476926692505505795?s=21)
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

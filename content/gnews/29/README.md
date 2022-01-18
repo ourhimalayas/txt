@@ -2,52 +2,25 @@
 ---
 
 
-## 鹤岗市财政破产, 中共经济第一张多米诺骨牌倒下
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1873829/)
+## 司法中心将起诉魁省对未接种者的征税计划
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873810/)
 
-作者：银河系农场—骄子
+采编： 文莱             编译撰稿：自由法兰西
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-1-edited.jpg)图片来源：TNH
 
 
+据加拿大媒体《真北方》1月15日报道，该国[宪法自由司法中心]近日宣布，由于魁省政府向未接种“新冠病毒”疫苗者征收“健康税”之举，严重违背了加拿大《权利与自由》宪章，因此将采取法律行动以反抗当局对社会弱势群体的公然迫害。
 
-2021年12月底，黑龙江鹤岗市就取消公开招聘政府基层工作人员的计划发出了一则通知。并且，称此计划的取消是该市财力状况发生重大变化及实施“财政重整”。
+据悉，魁省目前约有90%的人已接种了该疫苗。尽管省长勒戈并未明确该政策开始实施的具体日期，但他威胁称，新的健康税将是“巨额的”。除了魁省，奥地利、希腊、意大利等几个欧洲国家都已执行了类似规定。此外，魁省也是加拿大首个宣布将实施三针疫苗护照的省份。
 
-“财政重整”，意思就是一个地方的财政收入太低，已无力负担债务。换一种说法，就是要破产了。
+报道称，[加拿大公民自由协会]和多名保守党议员都同声谴责了魁省当局的该项与纳粹主张无异的举措，并警告省长的言行已造成了煽动群体仇恨的严重后果。更荒谬的是，总理特鲁多竟公然定义未接种疫苗的加拿大人是 “憎恨女性的极端种族主义者”。不难预见，在疫情的掩盖之下，加拿大本已岌岌可危的民主制度将逐渐荡然无存！
 
-据悉，鹤岗是以生产煤炭为主的资源型城市。2013年，人均GDP接近3万元，在东北地区属于富裕城市。然而，当资源耗尽以及没有土地财政、税收、国企利润收入的三无状态下，该市居住人口不断流出，房价也一路大跌。从2015年3000~4000元/平方米，下跌到如今每平方米不足1000元。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-9.jpg)
-同样，黑龙江省债务状况也一样严重。2021年，全省年财政收入和开支分别为1152.5亿和5449.4亿人民币，由此，黑龙江的债务问题就是放大版的鹤岗。从中共国2021年上半年的数据看，各省、直辖市只有上海一家财政收支略有盈余，其他三十个省市全是亏空的。
+* * *
 
-相关信息显示，中共国的官场腐败、公务员队伍规模、维稳费用皆为世界第一。而对于这几个第一，有分析人士认为，中共统治奇高的治理成本以及畸形的统治模式，注定是无法维系的。鹤岗市财政破产，表明了中共第一张经济多米诺骨牌已经倒下。
+校对编辑,发稿：硫酸羟氯喹64
 
-参考信息：
-[New Normal: Former Malaysian Professional Football Player Dies of Heart Attack 5 Days After Receiving COVID-19 Booster Shot](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+原文链接：[https://tnc.news/2022/01/15/justice-centre-taking-legal-action-against-quebec-for-taxing-unvaccinated/](https://tnc.news/2022/01/15/justice-centre-taking-legal-action-against-quebec-for-taxing-unvaccinated/)
 
  
 

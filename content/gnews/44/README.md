@@ -2,20 +2,35 @@
 ---
 
 
-## 秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1872675/)
+## 韩国取消传播风险低场所的防疫通行证
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872435/)
 
-撰稿：西枫westca
+作者：首尔天池农场 – 追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+韩国媒体1月17日报道， 韩国政府当天决定，不再对疫情传播风险低的场所适用防疫通行证制度。如在补习班、读书室、博物馆、影院、大型超市等，不再要求疫苗接种证明或病毒检测阴性证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-53.jpg)
+韩国政府指出，现在的疫情形势与去年12月相比有所缓解，而且医疗体系的承受能力也有所增加，对风险不高的场所有必要放宽防疫通行证制度。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-10.jpg)图片来源：网络照片
-据新浪网1月17日报道，北京市新冠肺炎疫情防控工作新闻发布会通报， 在对北京新增病例进行了流行病学调查、采样检测、阳性货物排查和基因测序后，溯源结果与北美和新加坡毒株相似度较高。
+郭文贵先生早在2021年9月26日就告诉世界，欧洲国家一定会停止疫苗护照，美国加拿大也会停，加拿大至少不会再强打疫苗，日本也会停止。
 
-病例发病前14天内无外省市旅居史，仅在工作期间接收过来自加拿大的国际邮件。经过测试，该邮件的外包装、内表面和文件内纸张，核酸检测均为阳性，并检测出奥密克戎异株特异性突变位点。 中共国国家邮政局同时发出通知，切实固牢国际邮件快件防控屏障，严防境外疫情通过寄递渠道输入。
+有观察者认为，韩国作为民主国家，今天虽然只对一些开放设施停止了防疫通行证，但我们已经看见了曙光。
 
-此两则新闻的出现，其荒唐让人啼笑皆非，我们看到中共在世人面前造假程度真是登峰造极！ 且不说国际邮件经过收件、空中飞行、过海关至收件人， 居然能查出纸张测试阳性！不知奥密克戎病株是有多么顽强。 其本质就是要让新一轮的病情爆发甩锅给西方，为闭关锁国做足舆论准备。
+参考链接：[韩国取消传播风险低场所的防疫通行证](https://www.yna.co.kr/view/AKR20220115039600530?section=search)
 
-**新闻来源：**[北京15日新增病例溯源结果公布 与北美和新加坡毒株相似度较高|新冠肺炎|北京|新加坡\_新浪新闻 (sina.com.cn)](https://news.sina.com.cn/zx/2022-01-17/doc-ikyakumy0845909.shtml)
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,31 +2,63 @@
 ---
 
 
-## 北京冬奥：运动员难启齿 近六成德国人不支持
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1874009/)
+## 在中国，人们正在被逮捕
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1874090/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-54.jpg)（图片来源于本文链接）
-两周后开幕的北京冬奥，将是最不寻常的一届奥运。运动员们要经受严格的检疫隔离，不仅身体上无法同外界接触，头脑里也有预设“禁区”。
+[https://gtv.org/video/id=61e6482987664c47acd629d9](https://gtv.org/video/id=61e6482987664c47acd629d9)
 
-据《南德意志报》报道，作为前期准备，过去数周，德国奥委会为参加北京冬奥会的运动员和随行工作人员举办了多场信息介绍会，内容也包括安全和中共国人权状况。据参与者透露，活动邀请人权观察组织（Human Rights Watch）的专家向运动员详细介绍了中共国人权的现状，目的是让每个愿意在北京对这一问题发声的代表队成员能够在了解情况的基础上发言。
+**郭文贵
+Miles Guo**
 
-不过在去年12月中旬的一次视频会议上，还邀请了一位德国外交部的官员。他所传达的信息，不得不让大多数人打消发声的念头。据参与者回忆，这位外交部官员指出，以往的事件显示，有的德国联邦议员在发表了批评中共国政府的言论后被拒绝入境。因此不能排除运动员在有类似“负面记录”后，会遭到同样的待遇。此外，也不排除个人的数字通讯受到监控的可能。这位官员建议前往北京的运动员，最好不携带电脑等私人终端设备，手机也最好使用一次性预付卡，以便回国后销毁。上周有媒体报道，英国、荷兰和比利时官方也对本国奥运代表队成员提出了同样的建议。
+你知道国内发生了什么吗？
+Do you know what’s going on in China?
 
-在中共国的新闻采访也是在德国保受诟病的一个问题。报道奥运会的外国记者，同运动员一样，不能离开奥运“防疫泡泡”，只能在奥运村和比赛场馆之间活动。而最近几年，在华外国记者的报道自由已受到越来越多的压制。
+就在刚才，开动摄像机到现在，北京最起码抓了四个正厅级干部。
+Just now, since the camera was turned on, Beijing has arrested at least four department-level cadres
 
-德国电视一台驻北京记者安东尼（Tamara Anthony）对德国《焦点杂志》介绍了她作为驻华记者在中国的日常工作受到的监控，以及中共国式的“采访自由”。她说，大多数中共国人不敢接受外媒采访。“接受采访后，人们经常会接到警方的电话，要是说了什么批评性的话，可能会带来严重的麻烦，甚至进监狱。”异见人士可能会被扣上“寻衅滋事”的罪名——这是一条刑事罪。“我每次都必须考虑，这可能给采访对象带来多大的危险。”安东尼本人也受到监视和跟踪。“很明显，我们的电话是被监听的。访问对象经常在事前就受到警告不要接受采访。开车出去拍片，经常有一辆车一直跟着我们。采访时，这些‘跟梢’会上来阻止，他们跟我们住进同一家酒店，有时甚至就在隔壁。最好是所有拍摄计划都得到政府批准，采访都在安全人员的眼皮底下进行。”
+黑龙江又抓走了两家。
+Heilongjiang captured two more families
 
-根据最新民调结果，半数以上德国民众反对在北京举办冬奥会。民调机构YouGov上周末在德国进行的一项问卷调查显示，59%的受访者认为，不应将2022年冬奥主办权授予北京；在男性受访者中，认为中共国不适合举办奥运的有61%，女性的比例为57%。
+记得七哥2017，18，19年说的抓的人，辽宁的，黑龙江的，政法委的，还有杭州书记，没有一个不被抓的。
+Remember the people who I mentioned in 2017, 2018 and 2019, including those from Liaoning, Heilongjiang, the Political and Legal Committee, and the secretary of Hangzhou, none of them escaped from being arrested
 
-信息来源：
+孙立军都出来认罪了。
+Sun Lijun even came out and pleaded guilty.
 
-[北京冬奥：运动员难启齿 近六成德国人不支持](https://www.dw.com/zh/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E8%BF%90%E5%8A%A8%E5%91%98%E9%9A%BE%E5%90%AF%E9%BD%BF-%E8%BF%91%E5%85%AD%E6%88%90%E5%BE%B7%E5%9B%BD%E4%BA%BA%E4%B8%8D%E6%94%AF%E6%8C%81/a-60448550)
+就在刚刚，审孙立军案子的人被抓。
+Just now, when we are talking, the person who tried Sun Lijun’s case was arrested.
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+包括制作所谓“零容忍”的好几个制作组的人也被抓了。
+Several production crews who made the so-called “zero tolerance”, were also arrested
 
+大家都在说“零容忍”的时候你知道背后的故事吗？
+When everyone says “zero tolerance”, do you know the story behind it?
+
+这就是爆料革命新中国联邦的魅力。
+This is the charm of the New Federation State of China and Whistleblower Movement
+
+都是老中医，不是老中医就别开偏方。
+They are all old Chinese medicine practitioners. If you are not an old Chinese medicine practitioner, don’t prescribe remedies（Don’t take on a porcelain job without a golden steel drill）
+
+* * *
+
+Date:1/16/2022
+原视频标题: 在中国，人们正在被逮捕
+People are being arrested in China
+原视频日期：2021/12/19
+原视频链接:[**https://gettr.com/post/pochru0b5b**](https://gettr.com/post/pochru0b5b)
+任务编号：KC418（3503）
+视频时间段 : 0:00-01:00
+中听校：洛杉矶盘古农场 -海潮
+翻译：洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作： 洛杉矶盘古农场 – Jambo
+审片： 洛杉矶盘古农场 – 银龙
+发布： 洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

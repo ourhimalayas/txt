@@ -2,28 +2,34 @@
 ---
 
 
-## 【中日财经爆】地方财政崩溃是撞向中共经济的“灰犀牛”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1873144/)
+## 前马来国足注射中共病毒疫苗第三针五天后死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872477/)
 
-撰稿：东京樱花团丨麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1398.png)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20220106/555803253179158528014569.jpeg/Tplb5qqTSHz_DFm998HSgEdibqA_03XirWy3tq1st7Y?v=w1920r16_9)
-最近中共国黑龙江省的鹤岗市实际上已陷入了财务破产危机，破产的原因是房地产市场的恶化和疫情造成的经济放缓，导致土地销售和税收减少，使财政危机雪上加霜。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月12日，前马来西亚61岁的足球运动员谢比.辛格在骑自行车时因心脏病突发死亡。据悉，这位运动员刚刚在1月7日注射了中共病毒疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-55.jpg)
+医生表示，谢比的死因99%与心脏病发作有关。验尸报告显示，辛格的三条冠状动脉阻塞；而他的所有重要器官都处于完美工作状态，也没有任何过敏反应的迹象。
 
-各地方政府急于通过发行更多的地方债券为经济恢复筹集资金，令人担忧的是，各地方政府债券具有“政府隐性担保”，中共国的地方政府债券价格可能没有充分考虑到财政恶化等风险。如果未来由于美国加息，全球性利率上涨，地方政府财政将迅速恶化，有可能会有更多的资金流出中国，进入海外市场。
+当日，谢比是骑自行车时直接摔下来，虽很快叫来了救护车，然而，他已经过世了。谢比的儿子告诉记者，他的父亲在死前五天接受了加强针。
 
-近年来，随着中共国房地产投资达到极限，在黑龙江等经济增长缓慢、信用度被认为较低的省份的融资成本上升。2018年经济迅速放缓，作为支持地方经济发展的一种方式，地方政府进一步增加了对基础设施投资。为了帮助融资，中共国财政部下令增加地方政府债券的发行。业内人士认为，财政部就承销地方政府债券的利率水平向中国的商业银行等其他机构作出过指示。此后，内陆和沿海城市债券之间的收益率差距明显缩小。越来越多的金融机构和投资者认为，地方政府债券是有政府隐性担保的。其结果是地方政府债券的发行量不断增加，对上升的违约风险也视而不见。
+参考链接：[前马来国足注射中共病毒疫苗第三针五天后死亡](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
 
-如今违约的房地产数量正在增加，随着各地疫情加重，房地产市场将进一步恶化。习近平政府也想要通过公共投资创造就业机会，以缓解社会紧张情绪。为了迅速实施基础设施投资，地方政府债券的发行可能会继续增加，但是依靠债务的经济运行毕竟是竹篮打水一场空，更多的地方政府将陷入财务困境，而为地方政府债务提供担保的商业银行的资产负债也将上升。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-鹤岗市的财政崩溃只是冰山一角。如果美元利率因全球物价压力和美国多次加息而真正上升，中国的投资者和金融机构将不愿意再购买地方政府债券，而这一旦成为现实，“灰犀牛”事件将会发生——中国的资本外流可能会急剧增加。
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-房地产市场的恶化和疫情影响再加上地方政府财的恶化，将导致中共国经济崩溃一触即发。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-新闻来源：[**中国で地方政府が事実上の「財政破綻」、これから中国で起きる「大変なシナリオ」**](https://news.yahoo.co.jp/articles/e1ecc39972f21a8544db1ca86c7b0ce5fcab8a8a?page=2)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

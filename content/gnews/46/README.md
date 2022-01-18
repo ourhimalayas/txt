@@ -2,28 +2,39 @@
 ---
 
 
-## 2022.1.17 文贵直播：我有一个梦想
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1872623/)
+## 依法灭共，爆料革命让中国人享有安全、公平和尊严
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872433/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图像-14.jpg)
-来源：网络
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在1月17日的大直播中，回顾2017年他警告说西方黑暗即将到来。郭先生指出，当黑暗到来的时候，邪恶势力共产党一定会做三件事：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-51.jpg)
+第一，控制媒体，让人们不知道真相。
 
-今天是马丁路德金的纪念日(MLK DAY)。他主张以非暴力的公民抗命方法争取非裔美国人的基本权利，而成为美国进步主义的象征。1963年，金在林肯纪念堂前发表了《我有一个梦想》的著名演讲，从而使美国成为了追求自由民主法治的人的天堂和目的地。郭先生称他改变了整个美国民主的进程，是人类黑暗历史中的一盏明灯。
+第二，和西方世界勾结，要控制法律。
 
-但是，中国能出一个马丁路德金吗？会一开始就用道德把你一切毁掉。在印尼残杀50万华人，共产党第一反应就是这些华人该杀。马丁路德金，能出现在印尼？能有一个有勇气的人坚持五年吗？中国人生生死死一百亿，没有出现马丁路德金的可能。
+第三，瞒天过海，依法掠夺人们的财富。
 
-5年前，郭文贵先生带着推翻中共，带给中国法治民主的理想来到美国——这个世界上代表最高标准自由民主法治的国家，就遇上了旷日持久的法律超限战。
+郭先生强调，当一个国家的金融机构、媒体和法律部门跟邪恶合作的时候，这个国家的人民都不会再有安全，财富随时都会失去，甚至会因拥有财富而失去生命。
 
-郭先生选择了这个特殊的日子讲述自己在美国和共产党操纵的太盟案子的较量，意义非常深远。法院是美国最高法院，律师是美国顶尖律师。马丁路德金说，最可怕的是侮辱，羞辱，和时间的煎熬。郭先生对此感同身受。
+郭先生指出，法律是人类享有安全、公平和尊严的一个最基本的社会基础。当任何一个社会没有法律的时候，每个人都是下一个被害者，一定是如此。爆料革命秉持的依法灭共，就是要让中国人拥有独立的司法系统。
 
-中国人生生死死上百年，从未有一人，在美国，用生命和鲜血，和中共斗争。但是，今天出现了郭文贵先生，他带着我们一起去体验战斗的经历。自由、民主、法治从来不会从天上掉下来，美国也不会施舍給我们华人，只有越来越多的华人站起来抗争，我们才能为自己和后代争取到我们的权利。
+参考链接：[依法灭共，爆料革命让中国人享有安全、公平和尊严](https://gtv.org/broadcast/watch/61e56ad5a0fd8e5c735add1c)
 
-来源：
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-[郭文贵先生2022.1.17直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

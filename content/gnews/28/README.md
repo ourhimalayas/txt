@@ -2,10 +2,10 @@
 ---
 
 
-## 中共多地要求低风险返乡民众集中隔离自费食宿
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1873830/)
+## 鹤岗市财政破产, 中共经济第一张多米诺骨牌倒下
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1873829/)
 
-作者：纽约香草山教育部 – Noemi
+作者：银河系农场—骄子
 
 
 
@@ -13,22 +13,22 @@
 
 
 
-1月17日，“开封一刀切”的微博话题被顶上墙内热搜。
+2021年12月底，黑龙江鹤岗市就取消公开招聘政府基层工作人员的计划发出了一则通知。并且，称此计划的取消是该市财力状况发生重大变化及实施“财政重整”。
 
-据了解，河南省开封市17日突然宣布了一条最新的防疫政策，要求来自郑州低风险地区的返乡人员也需进行14天的集中隔离并自费食宿。这条“一刀切”式的政策当即引起了大量需要双城生活的民众的强烈抗议。
+“财政重整”，意思就是一个地方的财政收入太低，已无力负担债务。换一种说法，就是要破产了。
 
-但是，开封市政府的这一“霸王条例”并非个案。近期，中共国内的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都纷纷出台政策，要求来自低风险地区的返乡人群必须进行集中隔离，并为自己隔离期间产生的一切费用买单。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-8.jpg)
-据悉，当前中共国的返乡人群主要为大学生群体。目前，已有多名被隔离的大学生对14天隔离期所产生的高昂隔离费用表示担忧。有学生称，此条政策属实是当地政府在“割韭菜”，但大家对此却无能为力。
+据悉，鹤岗是以生产煤炭为主的资源型城市。2013年，人均GDP接近3万元，在东北地区属于富裕城市。然而，当资源耗尽以及没有土地财政、税收、国企利润收入的三无状态下，该市居住人口不断流出，房价也一路大跌。从2015年3000~4000元/平方米，下跌到如今每平方米不足1000元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-9.jpg)
+同样，黑龙江省债务状况也一样严重。2021年，全省年财政收入和开支分别为1152.5亿和5449.4亿人民币，由此，黑龙江的债务问题就是放大版的鹤岗。从中共国2021年上半年的数据看，各省、直辖市只有上海一家财政收支略有盈余，其他三十个省市全是亏空的。
+
+相关信息显示，中共国的官场腐败、公务员队伍规模、维稳费用皆为世界第一。而对于这几个第一，有分析人士认为，中共统治奇高的治理成本以及畸形的统治模式，注定是无法维系的。鹤岗市财政破产，表明了中共第一张经济多米诺骨牌已经倒下。
 
 参考信息：
-1. [泪奔！刚回老家就被集中隔离](https://www.toutiao.com/a7053334957510427140/?channel=&amp;source=search_tab&amp;wid=1642483921969)
-2. [#集中隔离 #一刀切 春运来临，京、津民众返乡陷两难。多地政府对京、津等地区低风险返乡人群直接施行一刀切政策，要求所有归乡人员均要集中隔离14+7天并自费食宿，此举疑为地方财政借防疫敛财的又一霸王条款](https://www.gettr.com/post/possbb4f46)
-3.[在郑州工作，老家开封，距离很近，如果要回开封过年，因为行程码带星，即使是绿码有核酸证明，仍然要被集中隔离14天，费用自理！](https://www.toutiao.com/w/a1722187358499907/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
+[New Normal: Former Malaysian Professional Football Player Dies of Heart Attack 5 Days After Receiving COVID-19 Booster Shot](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编/编辑：飞虹
+总编/编辑：DM
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

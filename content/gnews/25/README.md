@@ -2,44 +2,23 @@
 ---
 
 
-## 有声|美元和喜幣將成為世界貨幣市場的共同體
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1873900/)
+## 中共正自导自演万邦来朝的冬奥盛会
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873844/)
 
-配音：香草山教育部 – Rose
+采编/编辑撰稿： 文莱                    校对编辑，发稿：硫酸羟氯喹64
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-3-edited.jpg)图片来源：TNH
 
 
+据【布莱特巴特新闻】1月17日报道，中共国日前宣称，由于其自家的瘟疫肆虐，冬奥会的门票将不会向公众出售。但将邀请那些严格遵守当局管制的国内小团体观众入场观赛。
 
-2021年11月3日文貴先生直播：喜聯儲，是中國人創造的，是新中國聯邦人的鑄幣中心，是新中國聯邦的中央銀行，你們全是股東，是第一天就 “民天下”，直接公開且永不可更改的。
+报道称，以上新的入场限制措施是1月15日在北京确认首例“奥密克戎”病毒感染后发布的。据悉，中共冬奥委员会早就建立了严格的监控系统，以跟踪奥运会所有运动员及参与者，无论是在赛事中还是在生活空间里的一切活动。
 
-文貴先生主導設計的新中國聯邦喜聯儲喜幣（HCN）上市交易流通以來，在全球金融市場引響巨大，正如文貴先生2021年12月29日直播時指出：喜幣（HCN）一定會成為世界上數字貨幣遊戲（規則）的制定者和開拓者。美國的美聯儲與新中國聯邦的喜聯儲，這兩個私人機構，前者發行能超發貶值的美元，後者發行每年10億、總額1000億、不能超發只能升值的金本位喜幣（HCN），美元和喜幣將成為世界貨幣市場的共同體，二者相輔相成。近半年多來美國有關數字幣法規提案、辯論、聽證等相關資訊常常登在各大媒體上，這與喜幣上市之後的全面遊說密不可分。
+世人皆知，中共政权一直跻身于世界人权侵犯者之首，并疯狂利用其奴隶劳动力为西方众多知名企业生产运动商品和服装。但这些因此获利的西方政府在炫耀自身高尚的价值观同时，却暗藏在其虚假的外加抵制背后，并允许其运动员参加中共冬奥会，以协助习近平实现该独裁党魁万邦来朝的黄粱美梦。
 
-原文链接：[美元和喜幣將成為世界貨幣市場的共同體](https://gnews.org/zh-hant/1870428/)
+* * *
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+原文链接：https://www.breitbart.com/sports/2022/01/17/china-tickets-for-genocide-games-will-not-be-sold-to-general-public-due-to-covid/
 
  
 
