@@ -2,22 +2,35 @@
 ---
 
 
-## COVID-19 最新情报｜专栏作家发文揭香港疫苗伤害真相 吁尊重未接种者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1870458/)
+## 骚乱致死人数激增 哈萨克斯坦甩锅境外势力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870463/)
 
-**撰文｜疫情关注组 / 发布时间｜17/1/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外国媒体1月16日报道，哈萨克斯坦官方表示，在骚乱期间，该国已有 225 人死亡，其中 19 人是执法人员和军人。
 
-香港著名专栏作家家明（原名：冯家明）昨晚（16日）在社交平台发布长文，呼吁尊重仍未接种 COVID-19 疫苗的人士，他更在文章中揭露，目睹身边不少朋友接种疫苗后生病，斥责当局掩盖真相，出尽招数逼人打针。
+中共外交部发言人称，此次哈萨克斯坦突变生乱表明，中亚地区形势仍面临严峻挑战，也再次证明某些外部势力并不希望我们这个地区和平安宁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-47.jpg)
+郭文贵先生在1月12日大直播中断定，哈萨克斯坦政府一定会配合中共把这场骚乱的责任推卸给境外势力，推卸给美国的挑拨离间。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/FB_IMG_1642405312214.jpg)家明上传图片：“认识有人针后半年，至今需靠拐杖代步”
+16日，哈萨克当局果然把此次暴力事件归咎于所谓的“土匪和国际恐怖分子”，称他们操纵了抗议活动，使骚乱的中心从西部转移到该国最大的城市阿拉木图，但哈政府并没有提供证据证明所谓的外国土匪和恐怖分子是谁。
 
-家明提到，有朋友打完第二剂BNT疫苗后的当晚，就被急诊送院，确诊神经线损伤，至今都必须依靠拐杖出行，康复之路相当艰难，主诊医生认为“很有可能和疫苗有关。”但是，当这位朋友向当局要求赔偿时，获得答复是“与疫苗无关”，而且，再也没有医生愿意站出来为他提供证据上诉。
+参考链接：[骚乱致死人数激增 哈萨克斯坦甩锅境外势力](https://www.theguardian.com/world/2022/jan/16/kazakhstan-authorities-raise-death-toll-from-unrest-to-225)
 
-有不少读者在该则贴文下留言，分享疫苗伤害实例，有人表示，身边有朋友接种完疫苗后不久，就被发现患上晚期癌症，亦有多位网友对此表示认同，确实发现身边有越来越多的朋友患上癌症，甚至离世。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/專欄作家發文揭香港疫苗傷害真相-籲尊重未接種者.jpg)
-来源｜[家明facebook](https://www.facebook.com/108970510452155/posts/678216290194238/?sfnsn=mo)
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

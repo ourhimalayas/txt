@@ -2,160 +2,62 @@
 ---
 
 
-## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
+## 新西兰财经G乐部2022年1月17日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1871080/)
 
-Marjorie Taylor Greene (the U.S. representative of Georgia)
-玛乔丽·泰勒·格林 (美国佐治亚州众议员）
+采集整理：蚂蚁的城堡
 
-I’m just happy to see that that the media and you know
-我很高兴看到媒体和你知道
+**提纲：**
 
-my colleagues here on Capitol Hill are starting to catch up what
-我在国会山的议员同事们开始跟上了
+1、三大巨头出手，一致减持茅台
 
-what the American people have known all along
-美国人民一直都知道的
+2、中共发改委：促进居民节日消费需求，有效拓展县域乡村消费，扩大居民冰雪消费
 
-none of us trusted Fauci
-我们都不信任福奇
+3、中共国2021年人口出生率进一步降至7.52‰
 
-And that’s why I introduced the Fire Fauci Act early early last year
-这就是为什么我在去年初介绍了《解雇福奇法案》
+4、120亿美元“狂砸”科技，摩根大通震惊业界
 
-because this is the man that is at the root of all of our problems
-因为这个人是我们所有问题的根源
+5、房企债务“拉锯战”进行中：佳兆业困局难解，当代置业爆发危机
 
-But I’d like to walk back even a little further
-但我还想往回走得更远一点
+**正文**
 
-Steve, I’m going to go ahead and say this
-史蒂夫，我要继续将这个说下去
+**1、三大巨头出手，一致减持茅台**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/641.jpg)
+美国万亿美元长线投资机构-，资本集团日前在官网更新了部分旗舰基金截至2021年四季度末的持仓。数据显示，作为全球持有贵州茅台最多的资管机构之一，资本集团旗下两只旗舰基金，“新世界基金”，和“欧洲太平洋成长基金”均在2021年4季度减持贵州茅台。截至12月31日，“欧洲太平洋成长基金”持有贵州茅台545.65万股，较3季度末的582.32万股减少36.67万股。“欧洲太平洋成长基金”是资本集团的“巨无霸”基金，最新规模1862.89亿美元，折合成人民币超过万亿元，比不少公募基金公司的管理规模还要大。另一旗舰基金，“新世界基金”四季度末持有贵州茅台284.27万股，较三季度末的287.26万股减少2.99万股。这只基金也是资本集团的旗舰产品，最新规模也有百亿美元。
 
-and it’s been upsetting to me ever since it happened
-自从病毒发生以来，我一直很不安
+参考链接：[https://stock.stockstar.com/SS2022011700000196.shtml](https://stock.stockstar.com/SS2022011700000196.shtml)
 
-But when we shut our country down
-但是当我们关闭我们的国家时
+**2、中共发改委：促进居民节日消费需求，有效拓展县域乡村消费，扩大居民冰雪消费**
+![北京商报](https://x0.ifengimg.com/res/2022/A6EE5738F3FC3635C987B9B147CD83D89D0A00BF_size36_w550_h311.jpeg)
+中共国家发改委官方账号今日刊发14日的《国家发展改革委关于做好近期促进消费工作的通知》，要求全国因地制宜多措并举满足居民节日消费需求，有效拓展县域乡村消费等。通知提出，引导电商企业开启春节“不打烊”模式，线上举办年货采办、赶大集等促销活动。结合节庆特点，推出更多定制化、智能化、绿色化商品，重点推广品牌农产品、地理标志产品、老字号等优质特色产品。开展形式多样的促销活动，有条件的地方可联合企业发放消费券、惠民券。
 
-when we shut it down to so called slow the spread
-当我们关闭国家以所谓的减缓传播时
+财经G评：中共国高失业率、高通货膨胀这些问题没有解决，中共发改委却要促进民众消费和拓展县、线市场，一定要把韭菜轧出油！
 
-I knew we broke America. We broke our country
-我知道我们破坏了美国，我们破坏了我们的国家
+参考链接：[https://wallstreetcn.com/articles/3649805](https://wallstreetcn.com/articles/3649805)
 
-When that happened, we stopped the supply chain
-发生这种情况时，我们停止了供应链
+**3、中共国2021年人口出生率进一步降至7.52‰**
+![2021年大陸人口出生率7.52‰ 再創新低| 大陸政經| 兩岸| 經濟日報](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/01/17/realtime/15365052.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=1050&amp;exp=3600)
+路透1月17日，中共国家统计局周一公布，2021年末大陆31个省区市总人口为14.126亿人，比上年末增加48万人；全年出生人口1,062万人，人口出生率进一步降至7.52‰。“中共国统计年鉴2021”显示，2020年中共国全国人口出生率为8.52‰，为首次跌破10‰。中共国统计局新闻稿并显示，2021年末，从年龄构成看，16-59岁的劳动年龄人口8.8222亿人，占全国人口的比重为62.5%；60岁及以上人口占全国人口的18.9%。2021年末城镇人口占全国人口比重（城镇化率）为64.72%，比上年末提高0.83个百分点。
 
-We, you know, factories whose machines stay up running 24 hours a day had to shut down
-我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
+参考链接：[https://cn.reuters.com/article/china-2021-birth-rate-0117-mon-idCNKBS2JR066?il=0](https://cn.reuters.com/article/china-2021-birth-rate-0117-mon-idCNKBS2JR066?il=0)
 
-people went home and that is really what broke our country
-人们回家了，而且这真的是我们国家崩溃的原因
+**4、120亿美元“狂砸”科技，摩根大通震惊业界**
+![银行的未来之战：120亿美元“狂砸”科技，摩根大通震惊业界|银行_新浪财经_新浪网](https://n.sinaimg.cn/finance/700/w960h540/20220116/1ec8-666ce11c0c1f5a26a87c7ab8e56e68f1.jpg)
+摩根大通预计公司今年支出将增长8%至770亿美元。增长主要来自科技和投资方面的支出：公司计划将技术支出提高至120亿美元，扩张投资方面的支持也被上调30%至150亿美元。更多支出细节公司暂未透露。摩根大通表示，公司正为数据中心和云计算及英国等新市场扩张分配资金；对科技的投入最终将降低运营成本，但实现这些节省可能需要数年时间。分析认为，巨额科技投入部分反映摩根大通在与支付处理商Stripe、分期付款银行Affirm等金融科技公司竞争时面临的压力。随着交易收入增长放缓，公司投行营收增长正陷入瓶颈。
 
-and now it’s going to take a very long time to get back on track
-现在需要很长时间才能回到正轨
+参考链接：[https://wallstreetcn.com/articles/3649800](https://wallstreetcn.com/articles/3649800)
 
-And the biggest problem is, is we have people here in Washington
-最大的问题是，我们在华盛顿这里的人
+**5、房企债务“拉锯战”进行中：佳兆业困局难解，当代置业爆发危机**
+![房企债务“拉锯战”进行中：佳兆业困局难解当代置业爆发危机_手机新浪网](https://k.sinaimg.cn/n/spider20220117/602/w400h202/20220117/1103-e4f89a74930d2e1334c06e30662a3b4f.jpg/w700h350z1l10t101d7.jpg)
+近期，包括荣盛发展、阳光城、上坤地产等企业就临期美元债先后与债权人达成交换要约，获得一定的债务“缓冲期”。这些企业是行业“大浪淘沙”中的缩影，债务大潮面前，寻求展期、交换要约成为行业高频词，大家都在尽量保证不被卷入潮水之中。
 
-that are serving global interests or are interested in helping the great reset happen
-为全球利益服务或有兴趣帮助大重置的发生
+2021年以来，随着融资环境的持续收紧，房企现金流承压，选择进行债务交换要约的企业数量明显增多，规模也明显增长。安信证券数据显示，去年全年共15家房企的20只地产美元债进行交换要约，规模达83.2亿美元，为近5年来最高水平。这一情况在2022年仍在持续。从目前的情况来看，对美元债进行交换要约似乎是债务双方选择度最高的方案，但即便如此，也并非所有的企业都能顺利达成协议。
 
-and are not serving the American people
-并且不为美国人民服务
+参考链接：[https://finance.sina.com.cn/jjxw/2022-01-17/doc-ikyakumy0768914.shtml?cref=cj](https://finance.sina.com.cn/jjxw/2022-01-17/doc-ikyakumy0768914.shtml?cref=cj)
 
-Inflation is very scary and it’s getting out of control.
-通货膨胀非常可怕，而且正在失控
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-When the Fed is going to have to step in and raise interest rates
-当美联储将不得不介入并提高利率时
-
-We have long term problem that will not end by next year
-我们有长期的问题，明年不会结束
-
-they’re not going to end it two years
-他们不会在两年内结束它
-
-Here’s here’s the real issue when the cost of producing goods has increased so much
-当生产商品的成本增加如此之多时，这才是真正的问题
-
-and then the ability to provide the goods to the consumer are completely disrupted
-然后将商品提供给消费者的能力被完全破坏
-
-We have stagflation, but we also have real problems
-我们有滞胀，但我们也有真正的问题
-
-The biggest problem driving the cost of producing goods is several factors
-推动商品生产成本的最大问题是几个因素
-
-One of them is this mass COVID testing
-其中之一就是这种大规模的COVID测试
-
-mass COVID testing is continuing the panic in this in the society
-大规模的COVID测试正在继续在社会中引起恐慌
-
-and but it’s also giving people a reason to get out of work.
-但病毒也造成了人们失业
-
-You know what if you have a positive COVID test, whether you’re sick or not
-你知道如果你的COVID测试呈阳性，无论您你是否生病
-
-you have to stay home, and that means
-你必须待在家里，而且这意味着
-
-that it’s more expensive for the company to continue producing the goods or services that they provide
-公司继续生产他们提供的商品或服务的成本会更高
-
-because they less have less people there at work
-因为他们工作的人少了
-
-And then you have less people to unload the train, unload the cargo, put it back on the shelf
-然后你就没有多少人来卸火车，卸货物，把它放回货架上
-
-I mean, we have so many serious problems
-我的意思是，我们有很多严重的问题
-
-and we can point it all at one man that is Dr. Fauci
-我们可以把这一切都指向一个人，那就是福奇博士
-
-Dr. Fauci is responsible for all of this, he created the gain of function
-福奇博士对此负一切责任，他创造了功能增强研究
-
-He gave it to China, they created the bio weapon
-并把它给了中共，中共创造了生物武器
-
-which is COVID-19 and it broke the world
-这就是COVID-19，它破坏了世界
-
-but our government and anyone that goes along with this
-但如果我们的政府和任何工作人员
-
-and doesn’t fire Fauci, investigate him, prosecute him
-不去解雇福奇，调查他，起诉他
-
-and hold him accountable is failing the American people
-追究他的责任，那就是辜负美国人民
-
-* * *
-
-Date:01/15/2022
-原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
-玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
-原视频日期：2022/01/15
-原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
-任务编号：KE350（3492）
-视频时间段 : 0:00-2:44
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作： 洛杉矶盘古农场 – 天涯行
-审片： 洛杉矶盘古农场 – 银龙
-发布： 洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+上传排版：文勇
 
  
 

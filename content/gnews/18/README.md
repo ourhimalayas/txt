@@ -2,55 +2,151 @@
 ---
 
 
-## 用伊维菌素救命的请求，遭医院法院拒绝
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1872953/)
+## 国防部正在把福奇暴露出来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
 
-翻译：George Warshing
-编辑：守望黎明
+**Steve Bannon
+史蒂夫·班农**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/In-hospital-bed.jpeg)图片来源：Adobe Stock
+Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
+马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
 
+this Veritas amazing Veritas leak
+这个“真理”项目，惊人的“真理”泄漏
 
-**在****佛罗里达州，丹尼尔·皮萨诺（Daniel Pisano）因感染****新****冠病毒而处于垂危状态。****到****目前****为止，****他在梅奥医学中心已经****连续****使用****了****28****天呼吸机。医生说他的存活机会不到5%。**
+that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
+他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
 
-**他的妻子和儿子希望他能****得到“新冠****重症前沿联盟****”****(FLCCC)****推荐的治疗方案，这****个方案****包含伊维菌素的使用。他们要求****医院加以采用****，但梅奥医学中心拒绝了他们的****请****求。病人家属****转而****向法庭****起****诉，希望法****院****能强制****医学中心****允许外界的医生****介入对这位患者的****治疗。然而法官做出了否定的判决。**
+Is this the beginning of more information?
+这将会是更多信息的开始吗？
 
-**梅奥医学中心断言，****“新冠****重症前沿联盟****”的****治疗方案与他们的方案不****相****符合。****医学中心的说法****，全然****罔顾了****伊维菌素****让美国****数百个****新冠重症患者****起死****回****生的事实，****认定****让****患者继续****依赖呼吸机生存****才****是最好的选择。**
+Do you think that certain individuals real scientists inside the apparatus
+你认为系统内部的某些真正的科学家
 
-**伊维菌素是一种兽药，但****同时它****用于人类疾病治疗****已经长达****几十年****的历史****。许多**[**经过验证****的研究**](https://c19ivermectin.com./)**表明，伊维菌素****对于****治疗****新冠有效****。**
+that’s we’ve had enough we got to stop this madness, Dr. Malone.
+我们已经受够了，我们必须停止这种疯狂，马龙博士
 
-**为什么****家属****在亲人****救治****方面没有任何发言权？更重要的是，为什么梅奥医学中心****宁愿眼看着****人们死****去，****而不****愿****尝试伊维菌素？是什么阻止了他们？**
+Dr. Robert Malone
+罗伯特·马龙博士
 
-**首先，是****美国****食品和药物管理局 (FDA)在从中作祟。****正是****FDA****在2021年8月发布了****否定伊维菌素的****臭名远扬的愚蠢推文：你们既不是马，也不是牛。你们都别扯了，严肃点好吧！**
+I think it’s the DOD saying they’ve had enough of this.
+我认为是国防部说他们已经受够了
 
-**我们也不要忘记，马龙（Malone）博士在乔·****罗****根（Joe Rogan）的播客****节目****中说****过****，批量购买伊维菌素时，每剂的价钱不到**[**10****美分**](https://pjmedia.com/uncategorized/kevindowneyjr/2022/01/07/crib-notes-for-the-other-joe-rogan-podcast-everyone-is-talking-about-with-dr-malone-n1547520)**。这样的价格怎****么****能****够****满足大药****厂成****百万美元****赚钱****的贪欲？**
+And I’m not sure if this came from a JAG’s office
+我不确定文件是否来自美国陆军总检察长的办公室
 
-**巴尔博纳（****Balbona****）博士是美国国会大厦的前医生，在那里他为国会议员和最高法院的成员提供****过****治疗。他在使用伊维菌素治疗方面取得了很大成功，已经治愈了数十名重症****新冠****患者。****但即便如此，他还是遭受到持续的攻击，每天都收到大量的谩骂信息。**
+because they’re stamped like they are
+因为它们看起来像
 
-**左派在洗脑方面做得非常成功，让他们的傻瓜信徒****们****相信他们****所灌输****的一切。****还记得么？****密歇根州民主党众议员凯伦·惠特塞特（****Karen Whitsett ****）****因为****称赞****是****特朗普和羟氯喹，在她感染****新冠****病毒时救了她****一****命，****结果遭到了****她****所在****政党****的**[**谴责**](https://www.foxnews.com/politics/dems-censure-michigan-lawmaker-hydroxychloroquine)**。**
+based on the file names or if it came from DARPA
+基于文件名或是来自国防高级研究计划局
 
-**然而，基本的事实是****——****[伊维菌素已被22个国家](https://c19adoption.com/)****批准用于抗击新冠病毒。**
+But having looked at these again and again in recently communicating with the DOD JAG
+但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
 
-**关于****伊维菌素的****争论****令人难以置信。它在全球范围内帮助医生从****新冠****病毒的魔掌中挽救了****无数****人的生命。然而，左派不仅不接受这一点，还公开羞辱因使用它而生存下来的人。大科技公司正把敢于质疑他们所****塑****造的“科学化身”福奇的人从****油管****和****推特****上赶走。**
+it’s trying to smoke out whose office this might have come out of.
+文件，在试图找出这可能来自谁的办公室
 
-**拜登一直在推动让****所有人****接种疫苗，但最高法院最近对拜登及其强制接种疫苗的企图进行了抨击。**
+I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
+我认为现在是国防部终于出来说够了
 
-**请看****糊涂蛋****总统的这段视频——他对那些反对****他****疫苗强制令的人胡言乱语****地****说：“****去做****吧！”**
+And throwing Tony under the bus, and it could well be the DARPA’s doing it
+把托尼推出来，这很可能是国防高级研究计划局做的
 
-**好了，人们****已经“****去做****”了。****拜登，****你****已经****输了！现在，让人****们****得****到****伊维菌素！**
+so that the fingers don’t get pointed at them
+这样手指就不会指向他们
 
-**原文链接：****[Family Fights for Ivermectin for Dying Loved One, Courts Say ‘No’](https://pjmedia.com/news-and-politics/kevindowneyjr/2022/01/16/family-fights-for-ivermectin-for-dying-loved-one-courts-say-no-n1549942)**
+But there’s in my mind, these Veritas documents look, look absolutely authentic
+但在我看来，这些真理文件看起来，看起来绝对真实的
 
-发布：tianzhihuan
+Steve Bannon
+史蒂夫·班农
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+So you’re saying this is what I’m sure we’re clear here
+所以你说这就是我确定我们在这里很清楚
+
+You’re saying that, as we know, we take over this year
+你是说，我们知道，今年我们接管了
+
+that the investigations deep into the situation of Wuhan lab, the bioweapons program
+对武汉实验室情况的深入调查，生化武器计划
+
+and American scientific and taxpayer money that went into doing any of that
+以及用于做任何这些的美国科学和纳税人的钱
+
+is going to be beyond a hot potato be one of the defining issues going forward
+将超越烫手的山芋成为未来的决定性问题之一
+
+what actually happened?
+实际发生了什么
+
+You’re saying right now look at the Pentagon Papers
+你说现在看看五角大楼文件
+
+there are people either officially or unofficially, making a move on Tony Fauci
+有人正式或非正式地在对托尼·福奇采取行动
+
+in your mind and you know, DARPA and you know the DOD pretty well
+你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
+
+you’ve been consulted there for many, many years. Correct?
+你已经在那里做了很多很多年的咨询工作, 对吗？
+
+Dr. Robert Malone
+罗伯特·马龙博士
+
+Correct. And I’m also in close communication with the senator and his investigations office
+正确，我也在与参议员和他的调查办公室保持密切联系
+
+I don’t want to speak for the senator but this this is one of those situations
+我不想为参议员说话，但这是其中一种情况
+
+If you spent decades dealing with DOD and the hill like I have
+如果你像我一样花了几十年的时间与国防部和国会山打交道
+
+this is how the game gets played
+这就是游戏的玩法
+
+This is how the Kabuki works in DC
+这就是歌舞伎在华盛顿中的运作方式
+
+is they’ll turn on each other when it looks like somebody is going to have to take the fall
+当看起来有人将不得不背锅时，他们是会互相攻击的
+
+And it looks to me like that has now happened in DOD has had enough
+在我看来，现在的情况是国防部已经受够了
+
+It’s important to know that Tony bushwhack DOD after the anthrax attacks
+重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
+
+and grabbed a big chunk of their budget
+而且敛走了他们预算的很大一部分
+
+so there could be some payback opportunity here
+所以这里可能是国防部反击的机会
+
+* * *
+
+Date:01/15/2022
+原视频标题: The DOD Is Throwing Fauci Under The Bus
+国防部正在把福奇暴露出来
+原视频日期：2022/01/15
+原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
+任务编号：KE351（3493）
+视频时间段 : 0:00-2:22
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
