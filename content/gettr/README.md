@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 10:59 PM (UTC)`
+
+1/17/2022 Miles Guo: The CCP’s frivolous lawsuits keep pushing us step by step. I predict that the ruling will go against us when the Lady May case goes on trial on February 2nd. The CCP has controlled the entire judicial system in BVI, and Appleby, the law firm representing the opposing party, also has conflicts of interest. Our second battlefield is right in BVI!<br/><br/>1/17/2022 文贵直播：中共缠诉步步紧逼，文贵预测2月2日Lady May的案子开庭将被判大输；BVI的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI！<br/>
+![img](https://media.gettr.com/group20/getter/2022/01/18/22/3699a01a-6c7c-35b4-8475-d29db6b79cec/out.jpg)
+
+---
+
+`@miles 1/18/2022 10:57 PM (UTC)`
+
+1/17/2022 Miles Guo: What will happen in the hearing to be held on February 2nd? Why is the Pacific Alliance case comparable to the case of Li You tried by Zhang Mingpeng in Xigang District, Dalian? Why did the Pacific Alliance issue subpoenas for the very information that the CCP wants the most? Is there any collusion between Bruno Wu, Wang Qishan, and the law firms that have offices in Communist China? What is the connection between those who were involved in the largest corruption case in the DOJ history and the Pacific Alliance case?<br/><br/>1/17/2022 文贵直播：2月2日的听证会将发生什么？为何说太平联盟案跟大连西岗区张明鹏判的李友案有的一比？太平联盟发传票要求提供的信息为何恰恰是中共最想要的？吴征、王岐山和在中共国设办公室的律所之间有何勾当？美国司法部史上最大腐败案的涉案人员和太平联盟案有何关联？<br/>
+![img](https://media.gettr.com/group39/getter/2022/01/18/22/43283ff0-83d0-7421-d6bf-4163c308971a/out.jpg)
+
+---
+
 `@miles 1/18/2022 10:54 PM (UTC)`
 
 1/17/2022 Miles Guo: Can the Pacific Alliance case represent procedural justice? This lawsuit should not have existed in the first place, and Judge Barry Ostrager had long been turning a blind eye to Bradley Bondi and Edward Moss's clear breach of the lawyers’ professional ethics. The two lawyers not only committed forgery, but their mere conflict of interest nearly devastated us. So, who will make up for the damage they have inflicted on us in the past five years?<br/><br/>1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？这场官司本不应该存在，可Ostrager法官却长期无视Bondi和Edward Moss明显违反律师道德的行为，他们俩不仅造假，区区一次利益冲突就差点要了咱的命，那谁来弥补他们在这5年给我们造成的伤害呢？<br/><br/>
@@ -140,20 +154,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 1月13日，中共病毒真相查明医师会在韩国首尔中区的韩国新闻中心召开的中共病毒实验用疫苗接种者血液检查结果发表紧急记者会，所属内科专家医生陈基业(JEON GI YEOB)院长向人们发出“为了让我们国家延续下去，望大家能协助我们，千万不能让孕妇接种毒疫苗”的请求。<br/><br/>On 13 January, Covid-19 Truth-finding Physicians held an emergency press conference at the Korea Press Center in Seoul, South Korea, to release the blood tests of experimental virus recipients, Dr. JEON GI YEOB, Korean physician/Dean: For the sake of our country's continuity, we hope people will help us to appeal to never take the toxic vaccines
 ![img](https://media.gettr.com/group8/getter/2022/01/17/02/76fe1d41-a1ed-2f7a-c539-91d18ae9642e/out.jpg)
-
----
-
-`@miles 1/17/2022 1:21 AM (UTC)`
-
-美国前总统川普在集会演讲中称他自豪他曾是反对疫苗强制令的总统。他强烈反对任何形式的强制令。<br/><br/>Former US president Trump said in his rally speech that he was proud that he was an anti-mandate president. He fiercely resisted mandates of any kind.
-![img](https://media.gettr.com/group31/getter/2022/01/17/01/42a8fe4c-64d6-cff6-5eaa-29254dd8f456/out.jpg)
-
----
-
-`@miles 1/17/2022 1:16 AM (UTC)`
-
-美国医学博士皮特森·皮埃尔表示，根据美国疫苗不良事件报告系统，共有2809名婴儿因母亲在怀孕期间注射新冠疫苗后早夭。当母亲注射新冠疫苗后，胎儿会在20周内夭折。<br/><br/>Dr. Peterson Pierre said, according to the VAERS system, 2809 Babies have died when their mothers have been injected during pregnancy. Fetus will die within 20 weeks if mother is vaccinated during pregnancy
-![img](https://media.gettr.com/group36/getter/2022/01/17/01/a2df03d9-3335-d933-231e-30171bc6428d/out.jpg)
 
 ---
 

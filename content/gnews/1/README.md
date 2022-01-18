@@ -2,31 +2,32 @@
 ---
 
 
-## 七哥谈喜币交易的改进升级（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877587/)
+## 杨洁篪海外抓捕战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877673/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+整理：雅典娜速记组
+编辑：Rianna
 
-来源：郭先生2022-01-14直播09：39：18摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/R4PTO1JUX0T2CN6XZ3-1.png)图片来源：雅典娜设计组
 
-设计上就讨论过这个问题，法律上也讨论过，现在他们也正在解决这个问题，目前还会很难，它在解决。一个是交易后的，因为这个HCN未来就是喜币浮动以后的零头兑现的问题；还有一个就是它这个金融政策，它往回汇的问题，还有一个它成本的问题，综合的技术方面的问题。最后的结果它现在只能这样，如果它要改了的话大概应该在第三个到第四个版本会改。它也在改的当中，现在是第一个初级版本嘛，我们大概有7个版本，11个，现在又增加了几个，有11个新的一个升级。你会看到这一切都会、这不是一个，大概我们有800多个需要改进的地方，800多个，这都会改的，就是稍微有点耐心，这个事我是知道的啊，谢谢。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+郭文贵先生提前一个月警告大家杨洁篪等人准备去迪拜、塞浦路斯抓战友，塞浦路斯报道了俩战友被抓，但实际上有70多个战友被杨洁篪差点抓回。一个塞浦路斯官员收了这些移民护照人的钱，都是傾家荡产。塞浦路斯岛抓的战友当中，其中一个战友，中共诬陷他在中国犯有强奸幼女罪，所以中共起诉他要把他抓起来。
 
-**关注我们**
+但荒唐的是，当这位战友说要求看罪证，却说让他回中共国去看，最后这个战友14岁就把肾切除，27岁才有一个孩子，怎么可能强奸幼女，可以检查他得病记录。这就是共产党一贯的栽赃诬陷做假案例子。
 
-Discord 账号
+在迪拜被遣返的干经济警察战友本来好好的，突然间就到家抓他，直接从他家抓到机场！一个会中文的警察告诉他抓他的原因，共产党如果不抓他回去，担心他手里掌握曾经职业上的材料，他们也没办法。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+他给郭文贵说：“7哥我真的对不起，跟了我3年爆料，我逃出去了，我带了一堆的信息。”结果警察在迪拜冲到他家，把他的硬盘拿走了，一点没给爆料革命。当年的周永康案、李友案的很多信息，他一张纸没给郭先生，就给拍过几个截屏，结果警察全部连电脑直接给专机带回中国。迪拜都成这样了， 塞浦路斯成这样了，马耳他也成这样了，越南就别提了，新加坡直接装麻袋回去了。
 
-Gettr 账号
+资料来源：郭先生GTV和盖特直播视频。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发布：  tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
