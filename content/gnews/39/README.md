@@ -2,31 +2,22 @@
 ---
 
 
-## 中共多地政府“一刀切”让民众自费隔离 返乡犯两难
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1874327/)
+## 美参谋长联席会议主席和海军陆战队司令感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874413/)
 
-撰稿：Noemi
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1412.png)图片来源于网络
-当地时间1月17日，据墙内大量民众反应，中共国的多个地方政府都在近期出台了“一刀切”式的集中隔离政策，令京、津等城市低风险地区的民众在回乡问题上陷入了两难的境地。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-46.png)
+图片来源：网络截图
 
-据了解，近期中共国的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都出台了京、津地区低风险人群返乡需进行14天的集中隔离政策，并要求被隔离人员为自己隔离期间产生的一切费用自行买单。
+据美联社华盛顿1月17日报道，联席会议发言人戴夫·巴特勒上校周一在一份声明中说，参谋长联席会议主席马克·米利（Mark Milley）将军在周日对中共病毒（COVID-19）检测呈阳性，并出现了非常轻微的症状。海军陆战队表示，其司令官大卫·伯杰(David Berger)将军也感染中共病毒。
 
-据一位已返乡的大学生反应，自己在京就读期间与海淀新增病例并无任何交集，而海淀区至今也为低风险地区，但她却仍被陕西省的延安市政府要求进行集中隔离，并全部需要自费。类似的防疫情况还在山西省太原市、广西省钦州市等多个城市发生。
+巴特勒说，米利已经接种过疫苗和加强注射，他正在将自己隔离起来，并在一个可以履行所有职责的地方远程工作。海军陆战队在一份声明中说，伯杰的检测结果也呈阳性，除了说他的工作能力未受影响外，没有给出其他细节。其他参谋长联席会议成员检测结果呈阴性。
 
-而较此情况更为夸张的是，河南省开封市今日也出台了来自郑州市低风险地区的返汴人员同样需要集中隔离的“霸王政策”。据悉，开封市与郑州市距离仅不到2个小时的车程，有大量市民都存在每日在双城往返的生活、工作情况。该政策的出台不仅让许多民众无法顺利返乡，甚至在过年期间都无家可归。
+米利最近一次与总统乔·拜登的接触是在周三举行的雷蒙德·奥迪尔诺将军（Gen. Raymond Odierno）的葬礼上，他在10月份因癌症去世。参谋长联席会议的声明说，63岁的米利在与拜登接触的前几天检测呈阴性，之后每天都检测呈阴性，直到星期天。
 
-当前，返乡人群主要为大学生群体。目前，已有多名被隔离的大学生都对14天隔离期所产生的高昂的隔离费用表示担忧。有学生称，此条政策属实是当地政府在“割韭菜”，但大家对此却无能为力。
+本月早些时候，国防部长劳埃德·奥斯汀（Lloyd Austin）说他的中共病毒检测结果呈阳性，在家中隔离期间出现了轻微的症状。奥斯汀说，他已经完全接种了疫苗，并在10月份接中了加强针，大约一周后检测结果为阴性。
 
-据知情人士透露，目前新变种奥密克戎的传播力极强，且传播方式极为隐蔽，中共国内的实际疫情情况远比官方公布数据严重，“封城”和“一刀切”或将成为中共国未来的主要防疫手段。而多地的地方财政事实上早已被中共无休止的“放毒”和“清零”政策所掏空，要求民众“自费”隔离一方面是无奈之举，另一方面也确实存在个别地方政府借防疫敛财、填补财政亏空的恶劣现象。
-
-参考链接：
-
-1 [https://www.gettr.com/post/possbb4f46](https://www.gettr.com/post/possbb4f46)
-2 [https://www.toutiao.com/w/a1722187358499907/?traffic\_source=&traffic\_source=&in\_ogs=&in\_ogs=&utm\_source=&utm\_source=&source=search\_tab&source=input&utm\_medium=wap\_search&utm\_medium=wap\_search&original\_source=&original\_source=&in\_tfs=&in\_tfs=&channel=&channel=](https://www.toutiao.com/w/a1722187358499907/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
-3 [https://weibo.com/u/6298221479](https://weibo.com/u/6298221479)
-4 [https://www.toutiao.com/a7053334957510427140/?channel=&source=search\_tab](https://www.toutiao.com/a7053334957510427140/?channel=&amp;source=search_tab)
-
-校对发布：Shifter
+新闻来源：[Joint Chiefs chairman and Marine Corps chief have COVID-19](https://apnews.com/article/coronavirus-pandemic-joe-biden-health-joint-chiefs-of-staff-0bc89766fb302e2e7f6405ec8f634c91)
 
  
 
