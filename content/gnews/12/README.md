@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|中共病毒加剧分裂 政治转型即将到来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876524/)
+## 七哥说“民心都得了，那不就是结果嘛”（2022-01-12）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1876673/)
 
-配音：香草山教育部 – Rose
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播11:18:37摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日盖特消息，史蒂夫-班农先生近期接受新中国联邦媒体采访，他认为，中共病毒恶化了现有分歧，但是为主权和民主而战的民众正在获胜，而且，全球政治转型即将到来。
+民心都得了，那不就是结果嘛，就像鹤岗的咱们这一家人家，是吧，还告诉我：七哥你爆我的时候你这样说。我说你不用教，你七哥绝对知道会保护什么人。昨天、前天、大前天，我们救下来的战友最起码六、七百名，吃药的。然后我们出来的战友最起码一、二十名，到达欧洲某国的战友说：“我们全家出来的时候，说我们会不会飞机从天上掉下来？只要不掉下来咱就能自由。” 他说人家都紧张的要死，他说我们一家人就兴奋的等着飞机落下来。结果他说：“这班飞机，七哥，提前一小时到达，我们问这个航空公司，你们这儿过去一年是不是有这种情况，他说第一次发生，我们所有飞机都晚点，就今天这班飞机早了一个多小时。全家落地了。” 咱这个战友国内可是正部级干部，他说：“七哥，所有的核糖核酸（疑：疫苗），我告诉你里面都有猫腻儿，他说都分四个级别，我就不再具体的说，有的就是蛋白，有的就是水，有的真的是疫苗而且是250(mg)疫苗。
 
-班农先生说，中共病毒疫情加剧了国家主权和全球主义等社会矛盾，而全球主义与中共为伍。而且，大规模强制接种中共病毒疫苗的后遗症，会进一步加剧社会分裂。但是，这种”分裂”并不是最坏的事情。反而表明，有相当一部分人不愿意向独裁屈服。事实证明，为民主自由而战的人们正在获胜。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-班农先生透露，今年秋季，美国将迎来政治巨变。美国共和党将被重塑为”工人党”，并将取得压倒性胜利。进而，世界的政治方向都会改变，将把消灭中共作为首要目标。
+**关注我们**
 
-文字版原文：[中共病毒加剧分裂 政治转型即将到来](https://gnews.org/zh-hans/1870079/)
+Discord 账号
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

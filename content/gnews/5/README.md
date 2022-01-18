@@ -2,31 +2,34 @@
 ---
 
 
-## 七哥说“民心都得了，那不就是结果嘛”（2022-01-12）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1876673/)
+## 俄罗斯和中（共）国还没有计划就安全保障采取协调行动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1876755/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+1月18日，据《国际文传电讯社》报道，俄罗斯总统发言人德米特里·佩斯科夫表示，俄罗斯总统普京可能会向中（共）国国家主席习特勒通报安全保障谈判的进展情况，但目前还没有谈到俄罗斯和中（共）国在这一领域的协调行动。
 
-来源：郭先生2022-01-12直播11:18:37摘录
+“到目前为止，还没有谈论任何（与北京）的协调行动。同时，俄罗斯和中（共）国由于其伙伴关系，特别是特权伙伴关系，在最热门的问题上不断交流信息和意见，包括这个问题。“当被问及普京是否计划与习特勒讨论安全保障的会谈时，佩斯科夫告诉记者。
 
-民心都得了，那不就是结果嘛，就像鹤岗的咱们这一家人家，是吧，还告诉我：七哥你爆我的时候你这样说。我说你不用教，你七哥绝对知道会保护什么人。昨天、前天、大前天，我们救下来的战友最起码六、七百名，吃药的。然后我们出来的战友最起码一、二十名，到达欧洲某国的战友说：“我们全家出来的时候，说我们会不会飞机从天上掉下来？只要不掉下来咱就能自由。” 他说人家都紧张的要死，他说我们一家人就兴奋的等着飞机落下来。结果他说：“这班飞机，七哥，提前一小时到达，我们问这个航空公司，你们这儿过去一年是不是有这种情况，他说第一次发生，我们所有飞机都晚点，就今天这班飞机早了一个多小时。全家落地了。” 咱这个战友国内可是正部级干部，他说：“七哥，所有的核糖核酸（疑：疫苗），我告诉你里面都有猫腻儿，他说都分四个级别，我就不再具体的说，有的就是蛋白，有的就是水，有的真的是疫苗而且是250(mg)疫苗。
+他强调说：“当然，普京总统肯定会向习主席通报这一领域的情况。“
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+俄罗斯总统预计将于2月访问北京，他将成为奥运会开幕式的主要嘉宾之一。他还计划与习特勒举行会谈。
 
-**关注我们**
+PS：俄罗斯总统普京把双头鹰的政治玩得炉火纯青，知道中共好面子，表面答应，实际与美国已经谈妥。正如郭文贵先生此前爆料，普京派了特使到中（共）国，要求中共必须履行石油天然气合约，中共要是打台湾，俄罗斯不会参与。[https://www.interfax.ru/russia/816059](https://www.interfax.ru/russia/816059)
 
-Discord 账号
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar.png)
+**更多资讯，更多关注**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Gettr 账号
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
  
 
