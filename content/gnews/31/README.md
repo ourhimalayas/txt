@@ -2,35 +2,28 @@
 ---
 
 
-## 芬兰允许伊维菌素用于治疗中共病毒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
+## 避免能源危机 中共国煤炭产量创纪录
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876374/)
 
-#### 撰稿：日本东京方舟农场 JIHO
+#### 撰稿：日本东京方舟农场 葛大饼
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5DDF5B96-30F1-4DE9-8641-8084CA9E3A5F.jpeg)（图片来自界面新闻）
 
-1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
+据《零对冲》1月17日报道， 中共国是世界上最大的煤炭污染国和消费国，去年12月生产了创纪录的3.8467亿吨最脏的化石燃料，与上年当月同比增长7.2%，而前一个月，产量增加了近1400万吨。2021年全年产量达到40.7亿吨，比上年增长4.7%。
 
-日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
+在西方国家同意在本十年末减少二氧化碳排放，到2050年实现碳中和的目标时，世界公认的最大煤炭污染国中国的国家主席习近平却选择缺席2021年底的20国集团峰会和联合国气候会议。
 
-此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
+他领导下的中共正忙于在北半球冬季来临之前恐慌性地囤积煤炭和其他化石燃料，以避免能源危机。北京在10月初命令国有能源公司不惜一切代价确保化石燃料供应。
 
-不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
+恐慌性囤积的举动使郑州商品交易所的动力煤期货合约在10月18日达到每吨2,309元的纪录高点。至当月月底，监管机构对矿工实施价格上限政策，并下令增加生产。由于政府的市场干预，煤炭价格从2309元暴跌至今天的712元。因为公用事业的煤炭库存超过了1.62亿吨（约21天的用量），与去年同期相比增加了约4000万吨。
 
-对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
-
-*参考链接：*
-
-1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
-2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
-3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
-
+*参考链接：[China Coal Production Hits Record To Avoid Energy Crisis](https://www.zerohedge.com/commodities/china-coal-production-hits-record-avoid-energy-crisis)*
 
 * * *
 
-*素材采编：JIHO*
+*素材采编：葛大饼*
 
-*编辑： 文顺*
+*编辑： 青城道姑*
 
 *发布：miumiu*
 

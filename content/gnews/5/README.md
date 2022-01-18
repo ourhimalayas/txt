@@ -2,48 +2,31 @@
 ---
 
 
-## 加密货币领域掀起招聘狂潮
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1876980/)
+## 七哥谈爆料革命、新中国联邦的魅力（2022-01-14摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877172/)
 
-据《marketwatch.com》作者：Frances Yue，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3497.png)图片源自：marketwatch.com
-加密货币领域掀起招聘狂潮，而且这一趋势很可能会继续下去。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-根据LinkedIn最近的分析，2021年美国与加密货币有关的工作岗位比前一年激增了395%，这是行业扩张的标志。从科技巨头Meta FB, +1.66%, Twitter TWTR, -0.67%, Amazon AMZN, +0.57%到华尔街公司JP Morgan JPM, -6.15%和Fidelity，这些公司在2021年都发布了加密货币人才的空缺职位。
+来源：郭先生2022-01-14直播08：24：50摘录
 
-根据LinkedIn的数据，加密货币招聘的增长速度已经超过了广泛的科技行业，2021年的招聘职位增加了98%。
+国内发生了什么事儿你知道吗？你根本不知道。就在我刚才开动这个摄像机到现在，北京最起码抓了四个正厅级干部，黑龙江又抓走了俩，两家啊，两家。记得七哥2017、2018、2019年说的黑龙江抓的人，还有辽宁的，还有政法委的，没有一个不抓的，还有杭州书记，孙力军都出来认罪的球的了。就在刚刚，审孙力军案子的人就在刚刚，刚才被抓。包括制作所谓零容忍的这里面的好几个制作组的人也被抓了，就刚刚、就在开机之后，我刚才得到的情报。大家都在说零容忍的时候，你知道这里面背后的故事吗？这就是爆料革命、新中国联邦的魅力！你没有经历过这事儿，不像我跟海东兄弟，他一说流水我马上就明白了，因为什么？咱都被流过，也流过，说实在话都是圈儿里人，他在昆仑，我在对面长城，俺俩也就是隔一马路，经常流。颖妹妹也不在乎，过去的事儿她也不问。都是老中医，你不是老中医就别开偏方兄弟姐妹们，我们今天就好好说说，不是老中医别开偏方。你学学铲共骑侠老愁眉苦脸的，天下没好人呐，好人不在天下呀，是吧，就这种感觉，这种态度是很好玩儿的。
 
-加密货币交易所Okcoin的首席运营官Jason Lau告诉MarketWatch，“我们正在招聘相当多的人。最近一次统计，我想我们有大约50个空缺职位。”
-Jason Lau说， “（我们）会继续招人。我不能低估我们和其他公司仍在持续扩张的努力。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**加密货币中心**
+**关注我们**
 
-“2021年，旧金山（湾区）、奥斯汀、纽约市、迈阿密-劳德代尔堡和丹佛的加密货币工作岗位最多，各种加密货币公司在这些城市落户。”LinkedIn在后续报道中告诉市场观察。
+Discord 账号
 
-迈阿密是年度比特币会议的主办方，拥有自己的加密货币MiamiCoin，而奥斯汀拥有充满活力的加密货币文化。纽约市新任市长埃里克-亚当斯是一位比特币爱好者，他发誓要让“大苹果”成为“加密货币行业的中心”。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-2020年，加密货币工作机会最多的前五个地区是旧金山（湾区）、纽约市、罗利-达勒姆-教堂山地区、大费城和洛杉矶。
+Gettr 账号
 
-**工程方面的需求**
-
-根据LinkedIn的分析，公司一直在最积极地招聘工程角色，因为包含区块链开发人员和区块链工程师的职位名称占据了加密货币相关职位总数的15.6%。
-
-研究显示，虽然大部分招聘来自于软件和金融角色，但其他行业，如会计、咨询、人事和计算机硬件也出现了对加密货币人才的需求。
-
-根据加密风险投资公司Electric Capital的报告，参与创建下一代互联网——Web 3的开发者在1月份达到了历史最高水平，有超过18000名月活跃开发者在开源加密货币和Web 3项目中提交代码。报告显示，Web3中65%的活跃开发者在2021年加入。
-
-根据ZipRecruiter的数据，美国区块链开发者的平均底薪为154550美元/年，高于网络开发者的平均年薪75073美元。
-
-原文连接：[**https://www.marketwatch.com/story/crypto-job-openings-surge-395-in-a-year-with-miami-austin-and-denver-emerging-as-new-hubs-11642195069?link=sfmw\_tw**](https://www.marketwatch.com/story/crypto-job-openings-surge-395-in-a-year-with-miami-austin-and-denver-emerging-as-new-hubs-11642195069?link=sfmw_tw)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Grace
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

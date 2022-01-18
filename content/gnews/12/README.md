@@ -2,66 +2,31 @@
 ---
 
 
-## 生命的意义
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1876837/)
+## 中国人吃啥？绝大多数是化学食品。（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1876983/)
 
-推荐人：香草山健身部—新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-生命的意义在于
-认准一个正确的方向
-不断地探索与追寻
-不要指望弯道超车
-或者一夜间突然绽放异彩
-而要一步一个脚印
-克服一个又一个艰难险阻
-哪怕每天进步一点点
-也好过一路狂奔
-掉进陷阱或悬崖
-而当你感觉方向错误时
-就要及时抽身回头，
-重新找准方向
-重新上路……
-否则，每多走一步
-都会背离目标越来越远
-越努力就越是在糟蹋浪费生！
-这些都是浅显的道理
-相信每个人都懂
-可是真正能做到者有几个
-许多许多的人
-无不在渴望一夜暴富
-他们绞尽脑汁地算计别人
-没想到有一天终会被人识破
-被别人联合起来抵制
-算计别人者终将被人算计
-害人者终将为人所害
-反倒是那些满含谦卑
-不急功近利之人
-最终才能更行更远
-达到一个别人无法企及的高度
-所以，把生活对你的折磨
-看作是上天对你的考验吧
-迈过那一道道坎
-总有一天
-你会成为上帝眷顾的宠儿
-我爱你 生活
-是你在不断地打磨我 考验我，
-洗尽我的铅华与卑污的尘垢
-出脱成一颗璀璨耀目的钻石
-生命的意义在于爱
-学会生命的意义吧
-学会去爱所有追求真善美的人
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-81.png)
-**更多资讯，更多关注**
+来源：郭先生2022-01-12直播11：38：49摘录
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我们中国人没有比再可怜的了，就这个羊群之可怜，你说中国人是羊的时候太侮辱羊了，太侮辱羊了。羊还能长出个毛，羊还能呼吸呼吸，吃个健康地草。中国人吃啥？绝大多数是化学食品。日本人你看到，日本人，见日本人吃中国人的调料，吃中国饭的吗？你在日本见过吗？只要中国来的料，日本人连闻都不闻，扔得远远的。你觉得都是人类还有比我们再可怜的吗？所以说到这的时候，风雨之中，那是太正常不过的，无处不在的，那是正常不过的啊。谢谢！
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**关注我们**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
