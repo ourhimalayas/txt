@@ -15,74 +15,74 @@
 
 ---
 
-### [七哥说“这个天下最可怕的是什么？欲望，欲壑难填呐！”（2022-01-14摘录）](/content/gnews/1/README.md)
+### [七哥谈中共所谓的零容忍（2022-01-14摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [七哥谈法律和行政命令（2022-01-14摘录）](/content/gnews/2/README.md)
+### [七哥说“这个天下最可怕的是什么？欲望，欲壑难填呐！”（2022-01-14摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [加拿大卡车司机在美加边境堵路抗议疫苗强制政策](/content/gnews/3/README.md)
+### [七哥谈法律和行政命令（2022-01-14摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [加拿大卡车司机在美加边境堵路抗议疫苗强制政策](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥说—第44期](/content/gnews/4/README.md)
+### [七哥说—第44期](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈爆料革命、新中国联邦的魅力（2022-01-14摘录）](/content/gnews/5/README.md)
+### [七哥谈爆料革命、新中国联邦的魅力（2022-01-14摘录）](/content/gnews/6/README.md)
  ` MG FARM`
-
-### [西媒头条 — 第155期](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [西媒头条 — 第155期](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说：“这个世界上不要相信真理，也不要相信正义会凌驾于利益之上”（2022-01-14摘录）](/content/gnews/8/README.md)
+### [西媒头条 — 第155期](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥说：“这个世界上不要相信真理，也不要相信正义会凌驾于利益之上”（2022-01-14摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥说“坚持唯真不破，别装神弄鬼”（2022-01-12摘录）](/content/gnews/9/README.md)
+### [七哥说“坚持唯真不破，别装神弄鬼”（2022-01-12摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [2022年1月17日郭文贵先生直播全文字版](/content/gnews/10/README.md)
+### [2022年1月17日郭文贵先生直播全文字版](/content/gnews/11/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [“文贵大直播”是净化、解毒和觉醒的过程](/content/gnews/11/README.md)
+### [“文贵大直播”是净化、解毒和觉醒的过程](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国人吃啥？绝大多数是化学食品。（2022-01-12摘录）](/content/gnews/12/README.md)
+### [中国人吃啥？绝大多数是化学食品。（2022-01-12摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [加密货币领域掀起招聘狂潮](/content/gnews/13/README.md)
+### [加密货币领域掀起招聘狂潮](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [什么叫社会主义？有关系才有主义（2022-01-12摘录）](/content/gnews/14/README.md)
+### [什么叫社会主义？有关系才有主义（2022-01-12摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [美加两国针对卡车司机的疫苗强制令威胁供应链安全](/content/gnews/15/README.md)
+### [美加两国针对卡车司机的疫苗强制令威胁供应链安全](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥说“要在大直播当中学会问有用的对大家都能受用的问题”（2022-01-12摘录）](/content/gnews/16/README.md)
+### [七哥说“要在大直播当中学会问有用的对大家都能受用的问题”（2022-01-12摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [1/17/2022 文贵直播：2月2日的听证会将发生什么？](/content/gnews/17/README.md)
+### [1/17/2022 文贵直播：2月2日的听证会将发生什么？](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？](/content/gnews/18/README.md)
+### [1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [01/18/22 香港快讯 港大学生昨晚快闪抗议「国殇之柱」遭移除 文宣旋即被清](/content/gnews/19/README.md)
+### [01/18/22 香港快讯 港大学生昨晚快闪抗议「国殇之柱」遭移除 文宣旋即被清](/content/gnews/20/README.md)
  ` 英喜-粵語組`
 
-### [七哥谈官享受的地方，领导度假的地方（2022-01-12摘录）](/content/gnews/20/README.md)
+### [七哥谈官享受的地方，领导度假的地方（2022-01-12摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [福克斯名主持呼吁“一分钟也不看” 抵制北京冬奥](/content/gnews/21/README.md)
+### [福克斯名主持呼吁“一分钟也不看” 抵制北京冬奥](/content/gnews/22/README.md)
  ` 华盛顿DC-Russian`
 
-### [新冠疫苗将一位母亲推入绝境](/content/gnews/22/README.md)
+### [新冠疫苗将一位母亲推入绝境](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
-
-### [二十大，谁是赢家？新中国联邦是唯一的赢家！](/content/gnews/23/README.md)
- ` MG FARM`
 
 ### [福奇投资中共企业并就个人财务信息对公众撒谎](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
