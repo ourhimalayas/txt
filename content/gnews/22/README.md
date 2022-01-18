@@ -2,34 +2,27 @@
 ---
 
 
-## 美参谋首长主席打三剂疫苗仍被确诊
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875789/)
+## “砖家”开始为第四针CCP病毒疫苗接种代言
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1875882/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月17日，美国参谋首长联席会议主席马克-密利的发言人称，密利在16日的中共病毒检测中呈现阳性，确认被感染，将自主隔离。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.55.png)
-在参谋首长联席会议成员中另有一人，中共病毒检验结果也呈现阳性，其余成员在16日的筛检结果都是阴性。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011610.jpg)图片制作：澳喜农场©森森
+世界各地的一些医学“砖家”现在正继续“研究”遏制CCP病毒大流行的解决方案，他们中的一些人得出了结论称，第四剂CCP病毒疫苗——或者说第二剂加强针注射——是阻止新变种出现的关键。
 
-国防部长劳伊德-奥斯汀（Lloyd Austin）在本月初也曾被验出阳性反应，确认感染中共病毒。
+丹麦、智利和以色列目前已经批准为“弱势群体”接种第二剂 CCP病毒加强针疫苗，而在澳大利亚，澳大利亚免疫技术咨询小组ATAGI 已批准为免疫系统较弱的人接种第四剂CCP病毒疫苗。
 
-身体强健的密利已经打完第三剂疫苗，仍然被中共病毒感染。与其他众多已经完全接种仍感染的患者一样，说明疫苗完全无法提供保护功能，甚至疫苗可能就是使人感染病毒的原因。
+然而对于是否要在普通人群推广第二剂加强针注射，最近也已经有“砖家”放出了一些风，似乎正在对群众进行着试探。例如主流媒体近日就刊载了病毒“砖家”Lara Herrero 的话，称加强注射可能是缓解CCP病毒爆发和打击未来变种毒株的关键。结合近日一些主流媒体开始探讨Omicron之后还会有新的变体诞生，为第四针CCP病毒疫苗铺路的组合拳似乎已经开打。
 
-参考链接：[美參謀首長聯席會議主席密利確診隔離 曾打3劑COVID-19疫苗](https://www.cna.com.tw/news/aopl/202201180003.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+来自卫生组织免疫联盟的Rod Pearce表示，第四剂疫苗的益处正在研究中，尚未确认是否有必要进行施打。但是从他们只研究第四针的益处而不研究第四针的坏处来看，第二加强针已经在路上绝对不是什么天方夜谭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+据称，辉瑞和莫德纳两家药企现在都在开发专门针对 Omicron 变体的CCP病毒加强针，在今年 3 月份时或许可以准备就绪。如果这一消息为真且两家药企如期完成制造，那么3月之后全球或许将再度进行一场CCP病毒加强针注射运动。而那些之前 打满三针的人，很可能就还要再接种一剂专门针对Omicron的第四针。
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+新闻参考链接：[Necessity of fourth COVID-19 vaccine booster shot divides experts](https://www.9news.com.au/national/coronavirus-vaccine-research-necessity-of-fourth-covid-19-vaccination-booster-shot-divides-experts/b74c54f2-0831-4fc8-97f8-989379c86db0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
