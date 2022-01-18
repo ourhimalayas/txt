@@ -2,40 +2,40 @@
 ---
 
 
-## 疫苗政策越极端的国家停得越快,一定要撑过最后的20秒
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874472/)
+## 七哥谈新疆和西藏独立法案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874483/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e63f4287664c47acd625ae](https://gtv.org/video/id=61e63f4287664c47acd625ae)
+#### 整理：雅典娜速记组
+编辑：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥谈独立.png)
+我可以告诉大家，**没有新中国联邦，没有爆料革命不可能有新疆和西藏独立法案**。第一，立法。七哥在2017年就说过，美国对新疆、西藏要出一系列的法案，包括香港。
 
-**郭文贵先生：**越极端的国家死得越快，越极端的国家停得会越快。记住，这是没有任何选择的，这是不可逆转的，它越极端政策执行的越多，它死人越多，它这个国家政权会灭亡得越快，或者总统、西方选举制的它都会换掉，最后一定很快停的，一定要撑住最后20秒。这点一定要多请教东弟，最后20秒是多重要，最后20秒，不要撑不过20秒就完蛋了，谢谢！
+我再告诉大家对西藏不仅如此，对新疆不仅如此，对香港也不仅如此，对台湾也不仅如此，对这个地方最重要的接下来是什么？支持你独立，怎么支持啊？
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+第二，得让他们有合法的武器。从天上要不扔了个万八支枪。不扔点导弹下去怎么支持啊？没有武器他怎么独立呀？
 
-编辑整理：Jacques；
+第三，他们没钱他吃啥？喝啥呀？要让他们有合法的金融系统，包括数字货币，要有钱、有粮食。打仗没有枪，没有粮食，你打什么仗，没有钱打什么仗。
 
-字幕文件制作：小满；
+第四，最关键的这些人出来以后，他那子孙后代要有人，还得有后代，还得有人。
 
-视频制作及上传：Cindy；
+第五最关键的事情，台湾、香港、新疆、西藏要形成联合体。联合作战啊。共产党我就不相信你派百万大军全给他杀了去。
 
-G-News发布：小满；
+最后，国际上、法理上，联合国。美国、欧洲啊，一定要全面支持。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+同时在国际上，只要你敢动手啊，经济脱钩啊，贸易脱钩、货币脱钩是肯定的。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+什么swift什么WTO统统滚是吧？
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+我就不相信能撑三年。打仗绝不可能啊。 习近平都没有这个耐心，不用说别人，他身体都撑不住，这才是战略。所以你看着只在告诉大家对新疆、西藏、香港、台湾，将有你意想不到的立法和法案出来。**这是2017年七哥说的，现在还会再告诉你们，今天这个只是一切刚刚开始。**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+发布：Frank2021
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

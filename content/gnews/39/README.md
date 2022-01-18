@@ -2,58 +2,46 @@
 ---
 
 
-## 桥水基金的雷·达利奥赞扬中共的 &#8220;共同繁荣&#8221;运动
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1873660/)
+## 7·24系列——吴征和FBI前雇员Richard Frankel
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873802/)
 
-翻译：加拿大温哥华扬帆农场 – UCool
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220117Ucool优酷1.jpg)图片来源：wsj.com – Getty Image. 2011年，桥水公司的雷·达利奥（左）在北京与中国国家副主席王岐山会面
+**整理：**雅典娜情报组
+**编辑：**翼族
 
-
-雷·达利奥 (Raymond Thomas Dalio), 是美国亿万富翁, 是著名的对冲基金经理。自1985年以来一直担任世界上最大的对冲基金——市值1500亿美元的桥水公司的联合首席投资官。他于1975年在纽约创立了桥水公司。据估计，达利奥先生个人的身价为180亿美元。
-
-2001年中国加入世界贸易组织后，美国的供应链向中国转移，达利奥先生从中获益匪浅。桥水公司以中共的崛起为契机，用美国普通公民的储蓄和养老基金委托给他的公司的钱来为中共政权提供担保。这些投资大部分用于支持和发展中共控制的高科技、军事和监控行业的公司，这些公司随后被中共用来颠覆西方，奴役其人民，为颠覆并最终接管台湾和西方做准备。
-
-在瑞银集团 (UBS) 的大中华区投资会议上发言时，达利奥先生发表了支持中国寻求解决国内不平等问题的政策的言论，他赞扬了中共对个人和企业的 “共同繁荣 “的运动。中共政权将“共同繁荣”描述为更广泛地分配中国增长成果的运动。 “首先你变得富有，然后你要以更平等的方式分配这些机会”，达利奥先生面带微笑地说，”我认为很多人……倾向于犯一个错误，认为这就像是回到了毛泽东时代的共产主义，而不是理解这只是进化过程的一部分(3)”。”我认为美国通过自己的制度需要更多的共同繁荣，很多国家都是如此(3)”。滑稽的是，达利奥在暗示专制的共产主义经济模式比资本主义经济模式更善于分配财富，是美国应该寻求效仿的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220117Ucool优酷2.jpg)图片来源：asia.nikkei.com – Getty Image. 图为2019年3月，桥水基金的雷-达利奥在北京
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/002_副本.png)图片来源：GNEWS
 
 
-达利奥讨论中共“共同繁荣”运动的论调，好像是指这场运动宗旨是在寻求扩大中国经济的利益，而不是走向更加集权。他声称中国国家主席习近平的改革运动将 “创造一个更公平的制度”，但各种证据证明达利奥的论调是多么滑稽可笑。
+郭文贵先生在直播中曾经多次提到一位名叫理查德·弗兰克尔（Richard Frankel）的FBI前雇员，他是郭先生之前雇用的保镖公司的合伙人，也是中共特务吴征（Bruno Wu）公司的合伙人，并且还成为了太盟PAG诉郭先生一案律师中的一员。
 
-而且批评者认为，最近几乎从公众视线中消失的阿里巴巴联合创始人马云 (Jack Ma) 所受到的待遇，以及对中国一些最富盛名的企业和企业家的镇压，是独裁者习近平和他控制的共产党巩固权力运动的一部分。
+2019年7月，郭先生发出的一条短视频显示，这位FBI前雇员以安保调查公司（T&M Protection Resources）的身份，和吴征在蒙古包里一边欣赏着蒙古音乐和舞蹈，一边大快朵颐。
 
-习主席的口号 “共同繁荣 “只是一种令人嗤之以鼻的策略，其目的是模仿毛泽东时代的阶级斗争。让中国的中下层民众反对成功的企业家和政治家，以便让习近平有机会通过 “政治吃人和权力政治的绞肉机（2）”消灭他的对手。
+根据[FBI官网](https://www.fbi.gov/contact-us/field-offices/newark/news/press-releases/special-agent-in-charge-richard-frankel-retires-after-20-years-of-service-in-the-fbi)显示，理查德·弗兰克尔，前联邦调查局纽瓦克（Newark，美国新泽西州最大城市）外地办事处的特别负责人（SAC），于2016年1月29日从FBI退休。理查德在国内外为FBI服务了20多年，曾在多个FBI外地办事处和FBI总部工作。退休后他计划在一家名为USG Security Limited的公司开始新的职业生涯，该公司是一家位于伦敦市中心的国际安保公司，客户遍布世界各地。
 
-“德国法西斯法律学者卡尔-施密特 (Carl Schmitt)以及毛泽东所倡导的敌友二分法被习近平重新激活，为其个人崇拜和个人独裁服务。难怪中国持不同政见者群体给他起了个绰号：希特勒（2）。
+吴征与理查德合伙的一家公司名称为Ideanomics，总部位于纽约，纳斯达克股票代码为IDEX。吴征是该公司的创始人之一。根据美国证券委员会[SEC的资料](https://materials.proxyvote.com/default.aspx?docHostID=442446)显示，该公司的组织架构非常复杂，其子公司包括威盛汽车，Solectrac（美国唯一的电动拖拉机制造商），Treeletrik，Wave（无线充电公司）和US Hybrid（电动动力总成部件和燃料电池发动机制造商）。并且该公司的子公司拥有多层架构（如下图），最终拥有一系列名称包括“上海”和“贵州”的公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/442446-11.jpg)
+Ideanomics公司采用了VIE架构，即可变利益实体（Variable Interest Entities），也称为“协议控制”，即不通过股权控制实际运营公司，而是通过签订各种协议的方式来实现对实际运营公司的控制及财务的合并。其中一个VIE架构中，杨澜也是该公司的股东之一（shareholder in one of the VIEs is the **spouse** of Bruno Wu, the Chairman of the Company）。
 
-习近平躲过了未遂的暗杀，这使他相信有一派财阀正在计划对他发动政变。习近平明白，在中国政治寡头的权力游戏中，金钱是控制的关键，在成功控制了中共的最高职位后，习近平开始实施战略，扼制中共内部敌对派别的实力。于是，”共同富裕 “的口号应运而生，成为钳制的保护伞和隐身衣。
+Ideanomics公司在SEC文件中声称，“我们高度依赖我们的主席吴征的服务，特别是他为我们在中国和亚洲开展的业务。吴征在Ideanomics公司工作了很长时间，并且在我们的管理中非常活跃，他目前还担任太阳七星投资集团首席执行官。”
 
-“控制钱袋子 “成为习近平的当务之急，也是他作为第五代领导核心和终身领导人全面控制中国的最后一战。出于他的毛主义的本能，习近平决定与国企结盟，反对私营和外国企业，并利用 “反腐败 “为借口，作为清洗对手和竞争者的武器（官方消息称，自习近平全面控制中国以来，迄今已有超过400万名党员和干部受到惩罚或清洗）。通过没收腐败官员和’奸商’的赃物和财产，习近平将收获财富以巩固自己的权力基础，并做出扶贫的姿态，以培育和利用不断上升的民粹主义(2)”。
+在Ideanomics公司的董事名单中，吴征（Bruno Wu）和理查德·弗兰克尔（Richard Frankel）的名字都出现在其中（如下图），但同时也显示**理查德·弗拉克尔在2019年7月2日辞去了董事一职，而这个时间点也是郭文贵先生发出他与吴征在蒙古包里把酒言欢的时间。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/442446-123.jpg)
+2018年6月18日，[Ideanomics公司网站](https://investors.ideanomics.com/2018-06-18-Seven-Stars-Cloud-Announces-Richard-Frankel-and-Manuel-Ron-to-Oversee-Digital-Advisory-Service-Subsidiary-Red-Rock-Global-Capital-Ltd)显示，吴征的七星云公司（Seven Stars Cloud Group, Inc.）宣布聘请理查德·弗兰克尔担任其子公司——红岩全球投资（Red Rock Global Capital Ltd.）——的董事长兼首席执行官（如下图）：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/217.jpg)
+而在2018年11月14日[SEC的一份公告](https://www.sec.gov/Archives/edgar/data/837852/000114420418060844/tv507650_ex99-1.htm)中显示，由于吴征领导了一个非政府组织（China-US relations committee，中美关系委员会），他与政府官员的互动程度意味着他不能继续担任美国上市公司的董事长兼首席执行官，因此辞去Ideanomics公司原职务，但会继续担任董事会特别顾问。他的私人、家族控股、媒体和投资公司仍将是Ideanomics公司的最大股东。
 
-令人怀疑的是，习近平是否是一个真正的毛主义革命者。他敢于释放民粹主义的全部力量，并让其不受控制地运行吗？他是在引导中国回到文化大革命吗？更有可能的是，他非常了解毛泽东时代的策略，并利用这些策略来巩固镇压性的国家机构。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220117Ucool优酷3.jpg)图片来源：breitbart.com – 图片来源：Kimberly White/Getty Images for TechCrunch
+就在同一份公告中，理查德·弗兰克尔被提名为Ideanomics公司董事局的董事和执行副主席（如下图）：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/213.jpg)
+以上种种迹象表明，这位前FBI雇员和吴征有着非常密切的联系。吴征作为中共的注册代理人，在美国支付了对郭文贵先生一系列法律诉讼的律师费用，理查德·弗兰克尔则充当了吴征的打手，是“卖美贼”的典型代表。多行不义必自毙，理查德·弗兰克尔最终必将会因为他的非法行为而锒铛入狱。
 
+*素材收集：翼族*
+*发布：翼族*
 
-“共同富裕 “的口号可以看作是习近平和他的党国挂出的一个皮纳塔：一方面，它为人们创造了一个发泄对富人和腐败者的愤怒和不满的目标。所谓的 “仇富 “或 “仇官 “心态被统治精英们精心操纵，以释放社会内部的压力，蒸发掉他们的竞争对手（2）”。
-
-虽然这种伪装对像达利奥这样的贪婪的西方人有效，他们在中共的混乱中获利数十年，但它只能对一小部分中国人起作用。它不可能对所有中国人施展魔法，尤其是对近一亿的海外华人。特别是，它对积极反对中共、旨在推翻中共政权的中国新联邦国家（NFSC）的成员不起作用。
-
-达利奥先生正以其透明的企图来讨好中国共产党这个邪恶的跨国犯罪组织，使自己成为一个傻瓜。他正在落入习近平和中共设置的陷阱–也许是心甘情愿的，而且是睁着眼睛的。像往常一样，贪婪胜过任何道德，甚至西方精英们的长期生存考虑。
-
-参考链接：
-
-[1] 原作者：加拿大温哥华杨帆农场 – Liberte – [https://gnews.org/1869709/](https://gnews.org/1869709/)
-
-[2]  “China’s common prosperity: The Maoism of Xi Jinping”, Mercy Kuo, The Diplomat, Sep 23, 2021 [https://thediplomat.com/2021/09/chinas-common-prosperity-the-maoism-of-xi-jinping/](https://thediplomat.com/2021/09/chinas-common-prosperity-the-maoism-of-xi-jinping/)
-
-[3] “Billionaire U.S. Hedge Fund Manager Ray Dalio Gushes Over China’s ‘Common Prosperity’ Crackdown”, John Carney, Breitbart, Jan 11, 2022  [https://www.breitbart.com/economy/2022/01/11/ray-dalio-china/](https://www.breitbart.com/economy/2022/01/11/ray-dalio-china/)
-
-(本文仅代表作者观点，与GNEWS平台无关)
-
-*编审/发布：shuang*
-
-
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

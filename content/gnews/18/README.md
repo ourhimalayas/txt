@@ -2,40 +2,44 @@
 ---
 
 
-## 美国高院审判当中采用最最关键的数据由新中国联邦提供
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874373/)
+## 浅谈中国人的生育权
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1874390/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e63c0b87664c47acd624ae](https://gtv.org/video/id=61e63c0b87664c47acd624ae)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-29.jpg)
 
-**郭文贵先生：**你们知道这个背后通过跟我们新中国联邦有多大关系吗？你知道我们寄了多少信、提供了多少文件吗？你们看过高院这个审判当中他们采用的文件，过两天公开以后，铲共骑侠你好好看看去，启用了最最关键的就是我们最多提供的数据，mRNA和病毒溯源，以及这些私人企业主的打疫苗，你知道这是8400万美国人，要不然你就要合法被打疫苗。昨天如果这个法不是这么过的话，你知道现在曼哈顿是什么概念吗兄弟姐妹们？长岛哥进曼哈顿进那个楼他都得打疫苗，不打疫苗就是不合法的。小飞象也得打疫苗，你不是流水啦，你该流血啦。
+作者：纽约香草山 医疗部 Swr拥抱太阳
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-编辑整理：Jacques；
 
-字幕文件制作：小满；
+自从盘古开天，上帝造人之日，神就赋予男人和女人在享受鱼水之欢时孕育下一代新生命。至今地球上的各个角落、各个种族都在遵循这个浑然天成的生育权，唯有中共统治下的中国人被生生剥夺了这个天赋权利。
 
-视频制作及上传：Cindy；
+在中共建国之初，为弥补连年战乱和灾荒导致的人口锐减，推出了鼓励多生孩子的政策，并奖励性的将多产的母亲称之为英雄母亲，完全不顾妇女的身心健康和婴幼儿的健康教育，造成婴幼儿死亡率和出生率双高的现象。
 
-G-News发布：小满；
+到20世纪60年代初，三年灾害后出现了人口出生增长的第二次高峰。1964年第二次人口普查达到了7亿人，于是中共认为人口无序增长过快需要管控。中共政府成立了国务院计划生育委员会开始控制人们生育，宣传晚婚晚育。1971年更是提出了“一个不少，两个正好，三个多了”的口号。1978年更是把计划生育以法律形式加载宪法，中国人的生育权被牢牢地抓在中共的手中。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+到1982年计划生育变成基本国策，国人的噩梦就此开始。在这个阶段，各地都开始强制绝育，强制堕胎、引产、无底线的罚款抄家，只是因为你想多生一个孩子。在妇产科看到了无数被强制足月引产的产妇，很多孩子引产后都是哇哇大哭的新生儿，因为已用有毒的引产药，被活活闷死。甚至出现了为躲避计划生育委员会的抓捕而产生的超生游击队。人类的生育权变成了中共的捕杀令，如果违反就要被工厂解雇、被罚倾家荡产，侥幸出生的孩子无法落户。大多数习惯顺从的国人都被迫生下独生子女，人口自然增长率看似控制住了。可是这种简单粗暴的干涉，也为日后独生子女政策的弊端埋下了更大的隐患。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+绝大多数的80后和少部分70末的独生子女成为家庭里的小公主、小皇帝—骄横跋扈、自私自利、为所欲为；再加上人口剧增的60后步入退休行列，越来越严峻的人口老龄化，医保劳保的严重负担；让中共意识到奴隶数量的减少，人口红利无利可图，所以再次开始调控人们的生育权—先是双独二胎，又到如今的全面放开生育。甚至有的地区竟然荒唐地让男60岁以下，女50岁以下要登记生育。再一次验证了中共把国人当做工具的险恶嘴脸，完全无视健康和意愿，要你做什么就必须服从。试想一下如今的80后都已迈入40岁的年龄，上有4个年迈的老人，自己身负房贷、车贷，工作、生意举步维艰，孩子各种各样的课外班、兴趣班，一个孩子都叫苦不迭，再生一个如何保障生活质量？再者心中只有自己的独生子女很少会为了生孩子而拉低自己的生活标准。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+综上所述，笔者认为中共的末日审判就要到了！人类只是上帝用来管理地球的一部分而已，一切都要顺从天赋人权，中共妄想用残暴来统治国人，把百姓当做他们的工具，随意愚弄。那些被计划生育杀死的婴儿、孕妇不会饶恕他们的。那些在计划生育政策下出生的独生子女，会用他们畸形的价值观抗衡新的生育要求。那些尚存良知和正义的国人，会被爆料革命唤醒。所以说，中共对国人生育权的控制，就是他们违背天理人性的真实写照，也注定了中共被灭亡的命运。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+(本文为作者观点，不代表GNEWS立场)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-83.png)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+校对/编辑/发稿：云豹
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**更多信息，更多关注**
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
