@@ -2,24 +2,32 @@
 ---
 
 
-## 习近平 — 习一尊 — 习太阳的演变
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1875651/)
+## 德国要求中共解除对立陶宛及欧盟的胁迫措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875786/)
 
-##### 整理：雅典娜速记组
-编辑：玉米地守望者
-![](https://assets.gnews.org/wp-content/uploads/2022/01/习_01-1.jpg)
-你看你七哥是从200几年，就看到了习近平，一路从浙江，上海，福建，浙江，上海到北京看奥运会，然后当总书记。七哥看，所有人都看好习呀，我私下告诉说：习当上了皇上一定先杀江，最后杀王岐山，最后搞朱家，最后全中国人民都是他裤裆里的奴隶。没人信是吧，现在信了吧。看着习近平的时候习太阳了，习一尊好像是昨日的事儿，今天就变成习太阳了，因为你中国人允许了他当神，他就会当太阳，中国人反抗了没反抗，你看着把王八蛋的新闻记者招待会上那幅嘴脸。啊，所以说兄弟姐妹们惨着呢啊，别幻想了啊。
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月14日，德国外交部发言人柏格在记者会中表示，德国与欧盟支持立陶宛，并要求中共解除对立陶宛和欧盟内部市场所有正式和非正式的胁迫措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.44.png)
+立陶宛因为决定设立台湾代表处，被中共无理干涉。 中共利用不合理手段，在海关故意阻扰立陶宛产品及含有立陶宛零件的欧盟产品进行通关程序，致使这些欧盟出口到中共的货物大量卡关堆积，造成欧盟厂商的困扰。
 
-*发布：玉米地守望者*
+欧盟执行委员会已经在检视中共的干预措施是否符合世界贸易组织（WTO）的规范，欧盟主管贸易的执行委员杜姆布罗夫斯基表示，欧盟正在搜集证据，准备对于中共违反世贸组织规范的行为，向世贸组织提出控诉。
 
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：[中國施壓立陶宛等歐盟成員國 德國要求解除脅迫措施](https://www.cna.com.tw/news/aopl/202201180011.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,42 @@
 ---
 
 
-## 灭共第十七夜 中共疫情数据造假
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1875794/)
+## 经历政治经济威胁和病毒灾难的西方必找共产党作替死鬼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875898/)
 
-**作者：小鬼**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0402019_1024.png)
-漫漫灭共夜，夜夜辨真假。
+G-TV视频链接：[https://gtv.org/video/id=61e6ab0d87664c47acd648b5](https://gtv.org/video/id=61e6ab0d87664c47acd648b5)
 
-截止2022年1月18日，中共国累计确诊136,155人累计死亡5700人；全球累计确诊3.31亿人，累计死亡5558302人。
+**郭文贵先生：**更重要的事情，共产党也帮了我们，他那么多年不准有反对的声音，不准有一……不准有一党，不能有其他党派，只剩了我们一家，现在我们就成了唯一了。更重要的大家要看到，西方知道经济威胁，和政治威胁，和生命威胁、社会威胁，所有这些最后终结完，疫苗灾难和病毒灾难，最后找到一个替死鬼子，只有共产党。
 
-据中共统计数据，2016至2020年中共国平均死亡率为7.068‰，平均每年总人口为14亿，平均每年死亡人数为14\*7.068\*0.001=0.098952亿,平均每天死亡人数为（0.098952亿等于989.52万人）989.52/365=2.7110万人。数据显示，中共国每天自然和非自然死亡人数约为27110人。
+这一系列的弄完，我们看到北欧和俄罗斯和中共之间在东欧：萨克、哈萨克斯坦、哈尔扎耶夫家族，拉莫赫夫的江泽民的亲干儿子是吧，然后昆仑山脉的出卖、印度洋、整个中东石油的较量，和俄罗斯之间的分开，这都是在我们两三年以前都在预料在2025年发生。现在看来今年都会发生。
 
-我们将李文亮医生发现病毒的时间设定为起源时间，即2019年12月30日，距离今天大约是2年多一点的时间，我们按2年算，即365\*2=730天。
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-那么我们根据中共的数据得出，平均每天感染人数为5700/730=7.8人，约等于8人。而每天自然和非自然死亡人数约为27110人。
+编辑整理：Jacques；
 
-对于中共官宣，将感染病毒死去的人归结到每日27110人里面，根本就察觉不到，因为中国每天的死亡人数太多了。哪怕是两年的累计死亡5700人，也可以伪造在一天27110个死亡人数中。
+字幕文件制作：小满；
 
-根据大纪元的报道，一位美国专家说“中国的COVID-19死亡人数最高可能达到170万左右”。负责监管疫情的中国流行病学专家钟南山（中共傀儡）说，中国是全世界COVID-19疫情死亡率最低的国家。这个死亡率比美国低了几百倍。《柳叶刀》（The Lancet）于2021年3月发表的一份研究说，截至2020年4月，武汉968,800人有病毒抗体。这意味着这些人感染过病毒有了免疫力。数据的偏差不仅发生在武汉。另一份来自山东卫生机构的内部文件显示，2020年2月的两周之内，近2,000人检测为病毒阳性，而同期，官方报导的染疫人数只有755例。
+视频制作及上传：Cindy；
 
-据郭先生透露目前中共国因为疫情死亡的人数大约是2000万-3000万。（预计包括疫情衍生的次生灾难）
+G-News发布：小满；
 
-我们隔壁村有一户人家感染了新冠病毒，已经连续六次复发了，全家人的生活都毁掉了，大家都不敢靠近他们。前段时间因为疫情，西安一孕妇被拒在医院门口导致流产。在家没东西吃的小伙子出门买个馒头，回家时被防疫人员殴打，馒头散落一地。不会用互联网的老人白白在家挨饿，直到饿死。小区里面只能买高价菜，没钱的只能饿肚子。那些突发急性病得不到救治的大有人在。惨痛的事情太多，写不完，道不完，只能举出寥寥数几来体现中共的邪恶统治。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-中共制造出了这场病毒灾难，不惜伤敌一千自损八百也要重创美国，编造出假数据，粉饰太平。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-参考链接：
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[http://www.stats.gov.cn/tjsj/ndsj/2021/indexch.htm](http://www.stats.gov.cn/tjsj/ndsj/2021/indexch.htm)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[https://voice.baidu.com/act/newpneumonia/newpneumonia/?from=osari\_aladin\_banner](https://voice.baidu.com/act/newpneumonia/newpneumonia/?from=osari_aladin_banner)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[https://www.epochtimes.com/gb/22/1/14/n13504914.htm](https://www.epochtimes.com/gb/22/1/14/n13504914.htm)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-审核校对：Barry Jack
-上传排版：F
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

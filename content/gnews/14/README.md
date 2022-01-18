@@ -2,34 +2,27 @@
 ---
 
 
-## 不完全财务披露福奇千万美元投资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875788/)
+## “砖家”开始为第四针CCP病毒疫苗接种代言
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1875882/)
 
-作者：加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-《纽约邮报》1月16日报道，新发布的记录显示，截至2020年底，福奇和妻子有1040万美元投资，包括230万美元的未实现收益，分别持有在各种共同基金中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.50.png)
-参议员罗杰-马歇尔（R-Kan）周五晚上公开发布了福奇2020年的财务。在周二的参议院程序中，他询问了福奇财务状况，福气当时低声骂他 “蠢货”。福奇2020年工资是43万4千312美元，2021年和2022年的工资仍未被公布。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011610.jpg)图片制作：澳喜农场©森森
+世界各地的一些医学“砖家”现在正继续“研究”遏制CCP病毒大流行的解决方案，他们中的一些人得出了结论称，第四剂CCP病毒疫苗——或者说第二剂加强针注射——是阻止新变种出现的关键。
 
-保守派非营利组织 “司法观察”(Judicial Watch)于2021年10月，起诉美国卫生与公众服务部，要求提供与福奇财务事务有关的文件。根据法庭文件规定，HHS已经提议从2月1日开始每月发布。美国参议院共和党籍参议员兰德保罗曾在去年7月2日，在法庭听证会质询福奇，武毒所病毒研究是否得到美国政府机构资助时，福奇还反唇相讥地说保罗才是谎言制造者。
+丹麦、智利和以色列目前已经批准为“弱势群体”接种第二剂 CCP病毒加强针疫苗，而在澳大利亚，澳大利亚免疫技术咨询小组ATAGI 已批准为免疫系统较弱的人接种第四剂CCP病毒疫苗。
 
-司法观察组织主席托马斯-费顿指责美国国立卫生研究院，对福奇的记录玩了一个 “空壳游戏”。福奇在美国人眼前撒谎，还有NIH对公众获得其财务信息设置障碍，说明他们在掩盖事实。随着事件的进展，福奇与大药厂以无数生命为代价的金钱交易，将一一呈现。
+然而对于是否要在普通人群推广第二剂加强针注射，最近也已经有“砖家”放出了一些风，似乎正在对群众进行着试探。例如主流媒体近日就刊载了病毒“砖家”Lara Herrero 的话，称加强注射可能是缓解CCP病毒爆发和打击未来变种毒株的关键。结合近日一些主流媒体开始探讨Omicron之后还会有新的变体诞生，为第四针CCP病毒疫苗铺路的组合拳似乎已经开打。
 
-参考链接：[Dr. Anthony Fauci’s financial disclosure shows $10.4M in investments](https://nypost.com/2022/01/15/dr-faucis-financial-disclosure-shows-10-4m-in-investments/)
+来自卫生组织免疫联盟的Rod Pearce表示，第四剂疫苗的益处正在研究中，尚未确认是否有必要进行施打。但是从他们只研究第四针的益处而不研究第四针的坏处来看，第二加强针已经在路上绝对不是什么天方夜谭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+据称，辉瑞和莫德纳两家药企现在都在开发专门针对 Omicron 变体的CCP病毒加强针，在今年 3 月份时或许可以准备就绪。如果这一消息为真且两家药企如期完成制造，那么3月之后全球或许将再度进行一场CCP病毒加强针注射运动。而那些之前 打满三针的人，很可能就还要再接种一剂专门针对Omicron的第四针。
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+新闻参考链接：[Necessity of fourth COVID-19 vaccine booster shot divides experts](https://www.9news.com.au/national/coronavirus-vaccine-research-necessity-of-fourth-covid-19-vaccination-booster-shot-divides-experts/b74c54f2-0831-4fc8-97f8-989379c86db0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

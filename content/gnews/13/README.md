@@ -2,34 +2,25 @@
 ---
 
 
-## 美参谋首长主席打三剂疫苗仍被确诊
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875789/)
+## 比利时强制性疫苗接种：专家听证会于周二在议院卫生委员会开始举行
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1875890/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月17日，美国参谋首长联席会议主席马克-密利的发言人称，密利在16日的中共病毒检测中呈现阳性，确认被感染，将自主隔离。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.55.png)
-在参谋首长联席会议成员中另有一人，中共病毒检验结果也呈现阳性，其余成员在16日的筛检结果都是阴性。
+作者：sh
 
-国防部长劳伊德-奥斯汀（Lloyd Austin）在本月初也曾被验出阳性反应，确认感染中共病毒。
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-6.tiff)图片：Dirk Waem/Belga
+从周二开始，议院的一个议题是：全面实行强制性新冠疫苗接种。专家听证会将在卫生委员会开始。
 
-身体强健的密利已经打完第三剂疫苗，仍然被中共病毒感染。与其他众多已经完全接种仍感染的患者一样，说明疫苗完全无法提供保护功能，甚至疫苗可能就是使人感染病毒的原因。
+除其他外，讨论的基础是新冠病毒专员佩德罗-法朗（ Pedro Facon）的论文。他本人并不支持强制性疫苗接种；相反，他发言支持新冠疫苗接种证书。
 
-参考链接：[美參謀首長聯席會議主席密利確診隔離 曾打3劑COVID-19疫苗](https://www.cna.com.tw/news/aopl/202201180003.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+联邦政府在这个问题上存在分歧。德克罗（De Croo）总理的政党Open-VLD反对实行全面强制性疫苗接种。然而，德克洛已承诺将以开放的态度进行讨论。卫生部长范登布鲁克（Vandenbroucke）的政党Vooruit赞成强制性接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+听证会预计将持续两周。最终能否赢得多数席位的立法提案仍有待观察。
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+原文链接：https://brf.be/national/1566227/
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

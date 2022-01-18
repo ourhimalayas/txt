@@ -2,60 +2,19 @@
 ---
 
 
-## 《历史今天》2022/01/18
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1875551/)
+## 墙内多个知名网站转载了东方网报道“诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类”的新闻
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1875715/)
 
-作者：映兰轩
+撰稿在；追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-159.png)
+据东方网1月18日的报道，当地时间17日，法国著名病毒学家Luc Montagnier 吕克·蒙塔尼耶来到意大利，参加当地的反疫苗集会。在现场，他收到了“英雄般”的欢迎和支持。他称：未接种疫苗的人将拯救人类。他此前还称：大规模接种疫苗是不可接受的错误。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-18-at-22.48.58.jpeg)图片来源：原新闻
+蒙塔尼耶曾获2008年的诺贝尔生理学或医学奖，是世界艾滋病研究及预防基金会的共同奠基人和国际病毒联盟的总监。
 
-1915年：日本公使日置益向中华民国大总统袁世凯直接提出《二十一条》，并要求绝对保密。
+东方网还把蒙塔尼耶参加当地的反疫苗集会的视频，翻译成中文上传到了此报道里，新浪网新闻、网易新闻和搜狐新闻均转载了此报道。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-39.png)
-
-1919年：第一次世界大战战胜国在巴黎凡尔赛宫召开巴黎和会。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-34.png)
-
-1942年：第二次世界大战：纳粹德国和意大利王国与大日本帝国陆军和海军签订了一份秘密文件，确定了以东经70度线作为瓜分势力范围的分界线。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-28.png)
-
-1943年：第二次世界大战：苏联红军反攻被德军和芬兰军围困的列宁格勒，即现在的圣彼得堡。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-17.png)
-
-1955年：中共军方（解放军）对中华民国政府控制的一江山岛发动大规模攻势并占领该岛，此后台海两岸未再有大规模军事冲突。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-45.png)
-
-1974年：中共发动的惨绝人寰的文化大革命过程中批林批孔运动开始。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-20.png)
-
-1992年：邓小平九二南巡，试图挽救中共八九六四血腥大屠杀导致经济几乎停滞局面，也即改革开放。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-11.png)
-
-2010年：《名侦探柯南 漆黑的追踪者》在中国大陆上映，这是《名侦探柯南》剧场版第一次在中国大陆上映。
-
-
-
-*发布：Theodosia*
+信息来源：[诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
+[网易新闻转载报道](https://3g.163.com/dy/article/GU0HF8M9053469KO.html?spss=adap_pc) [新浪新闻转载报道](https://k.sina.cn/article_7517400647_1c0126e4705902g9ez.html?from=news) [搜狐转载报道](https://m.sohu.com/a/517415465_120823584/?pvid=000115_3w_a&amp;strategyid=00014)
 
  
 
