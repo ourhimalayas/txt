@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 1:00 AM (UTC)`
+
+马龙博士：《真相工程》曝光国防部文件内容绝对真实，是体制内对病毒来源真相爆料的启动！国防部终于出来说“够了”，并把托尼·福奇抛出！<br/><br/>Dr. Malone:  The Veritas exposure of DoD file is the start of apparatus whistleblowers and absolutely authentic. DoD finally coming around saying: enough is enough and throwing Tony Fauci under the bus!<br/>
+![img](https://media.gettr.com/group30/getter/2022/01/18/01/6d561934-f843-53cb-f89c-41178c994c52/out.jpg)
+
+---
+
 `@miles 1/18/2022 12:24 AM (UTC)`
 
 1/17/2022 Miles Guo: Miles Guo’s outlook on the Pacific Alliance case - we must use procedural justice to reveal the truths to the world through real evidence. Finally, the Department of Justice, Congress, and others will be fully involved in the investigations. The outcome of the PAX case will lead to the global efforts to take down the CCP, completely removing the toxins buried deep in the US and Europe by the CCP.<br/><br/>1/17/2022 文贵直播：文贵先生对太平联盟案的展望，我们一定要用程序正义、真实的证据让真相大白于天下，最终美国司法部、国会等会全面介入调查，太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除
@@ -146,13 +153,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 1月16号：尊敬的战友们好……现在最重要的就是不要让病毒发生在你．和你家人的身上……共产党的邪恶力量的源泉……是西方乃至整个世界贪婪自私培养出来的结果，世界正在为此付出代价，人类中的最黑暗的时刻即将到来！
 ![img](https://media.gettr.com/group13/getter/2022/01/16/15/f37ab753-8b82-a70f-775e-37e2f47049c5/out.jpg)
-
----
-
-`@miles 1/16/2022 2:51 PM (UTC)`
-
-史蒂夫·基尔：强制打疫苗是疫情大流行的错误解决方案，疫苗甚至没有被食药局准许。如果人们想要保护自身免于感染中共病毒，只要有一个带P100过滤器的3M防毒面具就可以。我觉得强制打疫苗不道德、而且不起作用。人们被强迫打这个疫苗，这违反了纽伦堡条约<br/><br/>Steve Kirech: Vaccination Mandates are just the wrong solution to the pandemic. And the vaccine is not even approved by the FDA. If people want to protect themselves against getting COVID, early treatment could have saved everything, and just get a 3M respirator with a P100 filter. I think that mandates are unethical, immoral, and ineffective. People are being coerced into taking it, and this is a violation of Nuremberg.<br/><br/>
-![img](https://media.gettr.com/group15/getter/2022/01/16/14/be3df75f-02f8-7a03-5e56-d9f0447b6aa0/out.jpg)
 
 ---
 

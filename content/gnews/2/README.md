@@ -2,26 +2,35 @@
 ---
 
 
-## 小福利&amp; M7的分享(二)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873152/)
+## 七哥谈民心（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1873213/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%B0%8F%E7%A6%8F%E5%88%A9M7%E7%9A%84%E5%88%86%E4%BA%AB%EF%BC%88%E4%BA%8C%EF%BC%89-.jpeg)
-这就是他对疫苗的认知。然后他还跟我说，他曾经得过cep病毒，然后呢，打了三针。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-本来我是。基本上我现在是见到一个人，不管是中国人还是外国人，都会跟他说说大胡子医生还有我们的青蒿素，然后我就放弃了。但是我要(说)的是，我这些是坏人吗？我又跟他谈了谈最近的经济啊。说了一点共产党的事儿，他说我是不会去哪里的。但是呢，他的给我的感觉就是，他也不知道共产党有多邪恶， 他也不知道，他也不喜欢共产党。但是呢，就完全是跟着媒体和政府的那种路线来走，我觉得这种人挺典型的。
+来源：郭先生2022-01-12直播11：16：35摘录
 
-好的，非常感谢各位的这个分享啊，就是我，我是觉得这个疫苗的这个真的是，如果要是说洗脑的话，过去的这些主流媒体对西方老百姓的这种洗脑持续了这么长时间，很多人是真的是被洗脑的，包括郭先生刚才提到的，包括美国的高校常春藤盟校，很多都是掌握在这种被媒体洗脑，但是很多的大学生都被洗脑了，所以这个真的不分什么穷富，不分什么这个你的教育高低的这些真正的，你受到媒体的影响，这个真的又回到我们一开始的这个(话题)。
+用这些欺民贼、民运的话说：郭文贵这个傻货，用那个火鸡龚说：你看你认识班农，全华盛顿都看不起他。结果班农成了什么？全世界第一宗教斗士、民主斗士、极右的代表和右派的代表。你再看Jason Miller现在每天一谈到灭共，鼻子都忽闪。他由于要灭共，结果是他发完灭共以后，他下面的留言，你们发现了，把我笑晕了。昨天晚上凌晨三点钟我给他发个信息，笑坏了，我说：“你看到下面的人骂你了吗？” 给我发信息：“是我看见了。有人说：“Jason Miller，你肚子大的还能看到你自己的小鸡鸡吗？”你就看这把我给笑的，昨天晚上我说共产党的人一定会骂他、侮辱他，说你肚子大了你还能看到自己的小鸡鸡吗？然后我说：“你要把你的神器亮出来，叫共产党看一看。” 他说：“我自从骂完共产党，这个骂我的人就多了，而且打着外国人的脸，外国人的骂。” 所以共产党有多Low啊！现在你看Jason Miller这样的人，还有你看所有上来盖特的人，还有看我们GTV的人，都能分辨出三个最核心的今天一开始就说的：中国共产党不等于中国人；这个病毒是共产党干的，不是中国人；第三个在新疆、在西藏、在香港、在台湾的屠杀，它不仅是种族大屠杀，它是中国人最大的威胁。这三件事儿搞清楚了，这叫什么？天机呀，是吧？这就是人心呐！这就是老天爷就是人心呐！所以说你告诉我这些50个银行，哪个人的孩子不在外国读书啊？他会在中国读书吗？他会送到西藏读书、新疆读书吗？不可能的！那另外一个，天机完了是啥呀草根小哥？
 
-*发布：陶子*
+草根小哥：民心！
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭文贵先生：民心，对了兄弟，这就是我喜欢你的原因。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

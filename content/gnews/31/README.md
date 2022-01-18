@@ -2,30 +2,38 @@
 ---
 
 
-## 文贵爆料 1.17: 两张褪色的照片唤起尘封的记忆
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1872362/)
+## 已打四针的以色列财政部长确认感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-17-at-10.25.28-PM.jpeg)
-看着照片中儿时纯真、灿烂的面容，童真、稚嫩的模样，他仿佛又回到了那如歌的岁月、那似水的流年，一滴滴泪水从他的眼角滑落。在1月17日的大直播中，两张泛黄的照片勾起了郭文贵先生的回忆，照片中的那个男孩——他的八弟，是他一生的痛、一生的爱。他一生的追求也与他密切相关。
+作者：纽约香草山信息部 – 诺雅
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
+这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
 
-这是一张我，我八弟和我侄女的照片。我当时只有七岁，当时能有这样的黑白照片是不可思议的。我那时候在外面玩儿，照相的到这里说，郭老七，我给你照个相，你帮我宣传宣传。我旁边那个就是我八弟，他很小的，特别好看，很听话，在旁边帮我拿东西。
+以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
 
-我们那缺吃少穿，有的人家的锅就是一个洞。七哥的成长说明了共产党有多邪恶，但那里的人绝对不认为自己过得差，他们还觉得现在挺好。那个村人过去有一百多户，现在剩了七、八十来户。成婚的男女的居住地没有出超过二十公里的，很少人能走出赵家沟。
-
-看到今天的这张照片，看到当时衣衫褴褛的样子，你能感受到，七哥很小就早熟，你就知道共产党有多邪恶，就知道我多了解共产党。感谢老天爷让我早醒，当你看到我失去我八弟的时候，你们觉得我能不灭共吗？我还是共产党吗？竟然美国人和共产党都宣称我是共产党。
-
-但是你看到这个照片的时候，你就会知道我没有一天不想把共产党给灭了，当你看到这个照片时，你能想到我和官场的官员坐在一起吃喝的时候，我心里在想什么。如果我有了权，如果我有能力，我要灭掉是共产党在这个世界上的一切，把它挫骨扬灰。
-
-你们不知道失去弟弟的感受，你不会知道当你回去抱着骨灰盒的感觉，他本来可以活着，警察和医生把他放在屋里，让他疼了两三天后死去。你觉得共产党比爹亲比娘亲吗？悲哀的全中国人都认为他们的孩子和他们的弟弟不会死。
-
-看看今天的香港、新疆、西藏，和全世界，但凡有一点良知的人如果意识到，当初发生在我弟弟身上的事情也能发生在其他人身上，这个世界就不会这样。战友们，你们有一天会明白，灭共是多么幸福、多么伟大。有的人一辈子在中国就是玩麻将、买房子、买车、拼爹、拼娘、拼钱和炫耀，你活在这个世界上干啥呢？你活在这个世界跟猪有什么区别？
-
-郭先生说，一个没有法律的国家，几乎跟地狱和魔鬼没有两样。走到今天，我八弟在我人生中占据最重要的位置，真的感谢他用生命成就我去灭共！
+针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
 
 参考链接：
+1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
+2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
+3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
 
-[2022年1月17日 文贵大直播](https://gettr.com/streaming/pos74kdcd0)
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
