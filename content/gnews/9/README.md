@@ -2,31 +2,36 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月16日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876393/)
+## MV版Hcoin To the Moon上线41天第27次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1876395/)
 
-配音：香草山教育部 – Rose
+1/18/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线41天第27次位列澳门iTunes热门音乐视频榜榜首，第34次位列前三名
+
+* * *
+
+[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0116text-SC-1187x1536-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月16日晚](https://gnews.org/zh-hans/1869398/)
+[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

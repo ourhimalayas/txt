@@ -2,33 +2,28 @@
 ---
 
 
-## 卡车司机接种疫苗政策或将导致加拿大人挨饿
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1876638/)
+## GTV新闻访谈简报|2022年1月18日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1876666/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/truckstop045_89700532-w-e1642280895652.jpg)图片来源：Toronto Sun
-根据《多伦多太阳报》1月15 日报道，加拿大联邦政府要求所有从美国入境的卡车司机出示疫苗接种证明的计划产生了一些严重问题。卡车运输业面临挑战，进而影响加拿大人的食物供应。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
 
-这是自该大流行病开始以来，第一个有可能中断加拿大和美国之间贸易的公共卫生措施。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据加拿大卡车联盟称，大约16000名司机可能被迫离开道路。联邦政府认为其措施只会影响8000名司机。然而现在，我们比以往任何时候都更需要这些司机。他们中的许多人每天都在跨境运输食品。如果司机在没有接种疫苗的情况下越过边境进入加拿大，他们将需要隔离14天。
+视频参看：[2022.01.18早GTV新闻访谈](https://gtv.org/video/id=61e6c0a0533c672fca7ee5db)
 
-加拿大每年从美国进口价值约210亿美元的农业食品，大约60-70%的进口食品是通过车轮到达的。这几乎是加拿大人在餐饮服务和零售中购买的食品的20%。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-而且，大部分的量是在冬季，来自美国南部各州的产品为加拿大消费者提供欢至关重要食物供应。停止部分业务可能会加剧该行业已经经历的司机短缺问题，并可能在未来几周进一步推高零售价格。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-14.jpg)
 
-该行业已经缺少18000名司机。鉴于卡车行业的平均年龄，疫苗强制可能会鼓励许多卡车司机退出这个行业。
-
-自大流行病开始以来，对提供基本服务的群体给予例外一直是有争议的。大多数加拿大人都死活不同意疫苗强制，特鲁多政府也知道这一点。尽管政府对公务员和联邦监管的工人实施了严格的疫苗强制政策。然而，边境准入可能成为加拿大人的食品安全问题。
-
-在任何一个领域，都有10%到15%的人抵制接种疫苗，而且可能永远不会改变他们的想法。我们已经了解到，强制接种疫苗以实现合规的效果是有限的，这个问题已经纠结了一年多，大多数人可能需要在不确定的时间内每年多次接种疫苗。今年完全接种疫苗的意义可能与明年不一样，卡车司机知道这一点。
-
-公共卫生措施需要调整，以便食品行业能够在未来几个月继续为加拿大人提供安全、可负担得起的食品。食品通货膨胀在加拿大已经是一个挑战，而影响卡车司机的疫苗强制规定可能会使情况变得更糟，使加拿大人成为疫苗强制令的直接受害者。
-
-原文链接：
-[https://torontosun.com/opinion/columnists/charlebois-trucker-vaccination-policy-will-harm-food-chain](https://torontosun.com/opinion/columnists/charlebois-trucker-vaccination-policy-will-harm-food-chain)
-
-编辑，发文 Spirit
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
