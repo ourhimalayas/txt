@@ -2,32 +2,32 @@
 ---
 
 
-## 七哥说“2022年是人类上最黑暗的一年”（2022-01-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1873140/)
+## 美军最高指挥官米利将军感染中共病毒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1873166/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E9D27F65-281A-4E39-B16A-C902E340F8DB.jpeg)图片来源：网络
+来自路透社一月十七日星期一的新闻报道：
 
-来源：郭先生2022-01-12直播11：09：07摘录
+华盛顿，1 月 17 日（路透社）- 一位发言人周一表示，美国参谋长联席会议主席马克·米利将军周日检测出 COVID-19 呈阳性，并且在隔离和远程工作时出现了非常轻微的症状。
 
-中国不是衰退，一定是中国经济真的会非常夸张的，绝大部分人失去所有一切拥有的，而成为房奴，车奴，这奴那奴的。而且极少数人就共产党这些家族一定是最后收益。共产党被灭了，他也是受益者。因为这些人已经在这个在你血管里生存的这种能力，转移的财富是根本不可能清除掉的。你清除掉说这些人都有钱是不可能的。灭掉共产党以后我们绝对能做到信用卡你不用还了，房子，地，绝对是老百姓的。然后部分钱会追回来。但是让你，因为你的现在你的智慧，你的脑子，你的文化，你的行为结果，就是人呐，就是本来是两腿走路，你变成两腿和两手走路，学猪学狗爬的时候，让你站起来你很不适应的。而且你觉得会晕的，是吧？就人吃猪食吃惯了的时候，你给他牛肉，他觉得太香了，受不了的。中国还有很长的时间，因为这些人当了猪狗太长时间，是要有一段时间要适应的。但是在西方世界这场经济大洗牌以后，西方又是大赢家。一定大赢家。为什么？有中国人，还有一些亚非拉的这些被共产党，共产主义虐的国家会一夜之间，会所有的再一次成为西方资本主义的奴隶。这是一定这结果的。这个是2022年是人类上最黑暗的一年。政治、经济、文化都是最黑暗的一年。疫苗灾难更不用说了。所以能活下去最好的，你能做啥？你啥也做不了。你多开点眼，多灭灭共，你什么也做不了。就仅此那么多。谢谢。
+发言人说，米利与拜登总统最近一次接触是在 1 月 12 日，在退休将军雷蒙德·奥迪尔诺 (Raymond Odierno) 的葬礼上。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+发言人补充说，直到昨天，米利在与拜登接触的前几天和接触后的每一天都检测出阴性，米利接种了疫苗和打了加强针。
 
-**关注我们**
+发言人说，除了一名成员外，其他参谋长联席会议将领们都对昨天 COVID-19 检测呈阴性。 美国海军陆战队发言人说，另一位检测呈阳性的指挥官、美国海军陆战队司令大卫·伯杰将军将继续不受影响地履行职责。
 
-Discord 账号
+原文链接：
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[Top U.S. general Milley tests positive for COVID-19: spokesman](https://www.reuters.com/world/us/us-joint-chiefs-staff-chairman-milley-tests-positive-covid-19-spokesman-2022-01-17/)
 
-Gettr 账号
+编辑：Lily
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发布：歪桑
 
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2150925F-C440-455E-A2B3-AEC0D3D4A055.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

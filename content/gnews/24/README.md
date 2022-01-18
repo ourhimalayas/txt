@@ -2,137 +2,29 @@
 ---
 
 
-## 在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873088/)
+## Omicron肆虐之际旅游胜地商家在过山车般的行情下无奈地坚守
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1873099/)
 
-[https://gtv.org/video/id=61e45aad87664c47acd58ee5](https://gtv.org/video/id=61e45aad87664c47acd58ee5)
+撰稿：澳喜cindy
 
-**Tucker Carlson
-塔克·卡尔森**
+澳大利亚黄金海岸是世界闻名的旅游胜地，往年的圣诞假期、新年，来这里度假的世界各国的游客络绎不绝。在这里人们即可欣赏这里几十公里海岸线那美丽洁白的沙滩和汹涌澎湃的海浪，又能享受到各国风味的美食。一般各商家提前几个月就开始“招兵买马”培训员工的技能，准备足够的货源，以应对火爆的行情的到来。而这两年的疫情导致国际、国内的边境都被封锁。所以各商铺都大量裁员。勉强维持生意的保本运行。
+视频来自网络
+2021年面对疫情和强制接种疫苗信息不断变化，老板们对即将到来的圣诞和新年的行情不知如何把握之时，终于12月16日收到了政府的通知：国内的边境解封了。这对商家来说今年的圣诞应该可以赚大钱了。老板们预测应该会有报复性的爆发行情出现，因为两年来把人们闷在家里，太多人想出来开心一下了！可是临近圣诞只有一周的时间再招员工再培训是来不及了。带着既期盼又担心的心情迎来了圣诞节。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4D8F04DF-ADEB-4C49-AF4B-9A30880A83A3.jpeg)自制图片
+酒吧门前，往年的情景再次出现。人们似乎都忘记了omicron的存在。耐心、长时间的大排长龙兴奋的接受安保的逐个疫苗接种检查。然后通宵达旦地畅饮、跳舞。
 
-So this week as we told you
-所以本周正如我们告诉你的那样
+酒吧的老板朋友跟我们说：原来有员工20位，因为病毒爆发无法盈利运行，已经裁退了16位，只剩4位员工了。可想而知，在几百客人同时而至，工作人员将要多么的辛苦应对。
 
-the Supreme Court overturned Joe Biden’s lunatic vaccine mandate for private companies that have over 100 employees.
-最高法院推翻了乔·拜登对拥有100多名员工的私营公司的疯狂强制疫苗规定
+当这个老板还再准备招兵买马，继续迎接日后持续的火爆行情的时候，传来了有人在此酒吧传染了omicron病毒的消息。政府派来了悉尼专业灭疫团队，全场无死角消毒。几天后经严查之后没有问题才批准继续开业。
 
-That’s obviously a win for sanity
-这显然是理智的胜利
+还有的某大餐馆主厨染上omicron，导致餐馆停业一周多的时间，错失最佳赚钱机会。
 
-But at the same time the court left in place
-但与此同时，法院还保留了
+还有的小餐馆的熟练帮工染上omicron，最需要他帮忙的时候却无法上班。无奈老板和其他员工只能超工时艰辛地应对络绎不绝的食客。
 
-Biden’s mandate for medical workers think about that
-拜登对医务工作者的疫苗规定
+两年来CCP病毒肆虐已使这座美丽的度假天堂变的风光不再。大部分的礼品商店、餐馆、酒吧等都关门停业了。依然经营的商店，本来平时餐馆经营的就没有什么盈利，想籍边境开放后游客增多，生意能起死回生。但难以把控的病毒感染、紧缺的技术人员，使得这些商家的老板们对前景无不感到担忧和无奈。
 
-In other words, the Supreme Court just affirmed
-换句话说，最高法院刚刚确认
-
-that politicians in Washington somehow know more about health than nurses in emergency rooms
-华盛顿的政客不知何故比急诊室的护士更了解健康
-
-That’s absurd
-这太荒谬了
-
-How did that happen?
-那是怎么发生的？
-
-Well, it happened for one reason
-好吧，它的发生是有原因的
-
-because justice is John Roberts and Brett Kavanaugh
-因为大法官是约翰·罗伯茨和布雷特·卡瓦诺
-
-sided with the Biden administration in alliance with the hard partisans on the court
-与法庭上的顽固派结盟，站在拜登政府一边
-
-like certified non genius Sonia Sotomayor
-像经过认证的非天才的索尼娅·索托马约尔
-
-No one who pays attention to surprise the John Roberts did this.
-没有人惊讶的约翰·罗伯茨会这样做
-
-Roberts says judicial philosophy consists of not offending the Washington Post and has for years
-罗伯特茨说，司法哲学包括不冒犯《华盛顿邮报》并且多年来一直如此
-
-but Brett Kavanaugh?
-但是布雷特·卡瓦诺？
-
-wasn’t Brett Kavanaugh supposed to be as sincere conservative a man of principle
-布雷特·卡瓦诺不应该是一个真诚保守的有原则的人吗？
-
-And so Lindsey Graham told us unfortunately
-所以不幸的是林赛·格雷厄姆告诉我们
-
-many of us believe that we certainly did
-我们中的许多人相信，我们的确是
-
-When Brett Kavanaugh cried during his confirmation hearings
-当布雷特·卡瓦诺在确认听证会上哭泣时
-
-wept like Adam Kinzinger we felt sorry for him
-像亚当·金辛格一样哭泣，我们为他感到难过
-
-We didn’t understand at the time that something had broken inside of Brett Kavanaugh
-我们当时不明白布雷特·卡瓦诺的内心有什么东西被破坏了
-
-that on some level his tormentors now controlled him
-在某种程度上，他的折磨者现在控制了他
-
-and that going forward he’d be burned boiled to conventional opinion that to the Constitution of the United States
-并且在未来，他已背叛了美国的宪法的传统观点
-
-Our mistake
-选择他是我们的错误
-
-To the courts actual conservatives, the ones who don’t weep in public
-对于法院真正的保守派，那些不在公共场合哭泣的人
-
-Kavanaugh position on the VAX mandate made no sense at all
-卡瓦诺对强制疫苗规定的立场完全没有意义
-
-As Clarence Thomas put it in his dissent
-正如克拉伦斯·托马斯在他的异议中所说
-
-nothing in law or in the Constitution requires nurses to
-法律或宪法中没有任何规定要求护士
-
-quote “choose between losing their livelihoods and acquiescing to a vaccine they’ve rejected for months”
-“在失去生计和默许他们拒绝数月的疫苗之间做出选择”
-
-Well, exactly. In other words
-嗯，正是，换句话说
-
-Joe Biden’s vaccine mandates have no legal authority
-乔·拜登的强制疫苗规定没有法律支持
-
-and without legal authority, the government can’t force us to do anything
-没有法律支持，政府不能强迫我们做任何事情
-
-Period
-就是这样
-
-* * *
-
-Date:01/15/2022
-原视频标题: During his confirmation hearing, we didn’t understand that something had broken inside of Brett Kavanaugh. Unfortunately, many of us believed he was a sincere conservative
-在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/podwzx7025](https://gettr.com/post/podwzx7025)
-任务编号：KE352（3495）
-视频时间段 : 0:00-1:46
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

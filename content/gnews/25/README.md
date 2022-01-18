@@ -2,143 +2,128 @@
 ---
 
 
-## 国防部正在把福奇暴露出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+## 在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873088/)
 
-[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
+[https://gtv.org/video/id=61e45aad87664c47acd58ee5](https://gtv.org/video/id=61e45aad87664c47acd58ee5)
 
-**Steve Bannon
-史蒂夫·班农**
+**Tucker Carlson
+塔克·卡尔森**
 
-Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
-马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
+So this week as we told you
+所以本周正如我们告诉你的那样
 
-this Veritas amazing Veritas leak
-这个“真理”项目，惊人的“真理”泄漏
+the Supreme Court overturned Joe Biden’s lunatic vaccine mandate for private companies that have over 100 employees.
+最高法院推翻了乔·拜登对拥有100多名员工的私营公司的疯狂强制疫苗规定
 
-that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
-他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
+That’s obviously a win for sanity
+这显然是理智的胜利
 
-Is this the beginning of more information?
-这将会是更多信息的开始吗？
+But at the same time the court left in place
+但与此同时，法院还保留了
 
-Do you think that certain individuals real scientists inside the apparatus
-你认为系统内部的某些真正的科学家
+Biden’s mandate for medical workers think about that
+拜登对医务工作者的疫苗规定
 
-that’s we’ve had enough we got to stop this madness, Dr. Malone.
-我们已经受够了，我们必须停止这种疯狂，马龙博士
+In other words, the Supreme Court just affirmed
+换句话说，最高法院刚刚确认
 
-Dr. Robert Malone
-罗伯特·马龙博士
+that politicians in Washington somehow know more about health than nurses in emergency rooms
+华盛顿的政客不知何故比急诊室的护士更了解健康
 
-I think it’s the DOD saying they’ve had enough of this.
-我认为是国防部说他们已经受够了
+That’s absurd
+这太荒谬了
 
-And I’m not sure if this came from a JAG’s office
-我不确定文件是否来自美国陆军总检察长的办公室
+How did that happen?
+那是怎么发生的？
 
-because they’re stamped like they are
-因为它们看起来像
+Well, it happened for one reason
+好吧，它的发生是有原因的
 
-based on the file names or if it came from DARPA
-基于文件名或是来自国防高级研究计划局
+because justice is John Roberts and Brett Kavanaugh
+因为大法官是约翰·罗伯茨和布雷特·卡瓦诺
 
-But having looked at these again and again in recently communicating with the DOD JAG
-但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
+sided with the Biden administration in alliance with the hard partisans on the court
+与法庭上的顽固派结盟，站在拜登政府一边
 
-it’s trying to smoke out whose office this might have come out of.
-文件，在试图找出这可能来自谁的办公室
+like certified non genius Sonia Sotomayor
+像经过认证的非天才的索尼娅·索托马约尔
 
-I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
-我认为现在是国防部终于出来说够了
+No one who pays attention to surprise the John Roberts did this.
+没有人惊讶的约翰·罗伯茨会这样做
 
-And throwing Tony under the bus, and it could well be the DARPA’s doing it
-把托尼推出来，这很可能是国防高级研究计划局做的
+Roberts says judicial philosophy consists of not offending the Washington Post and has for years
+罗伯特茨说，司法哲学包括不冒犯《华盛顿邮报》并且多年来一直如此
 
-so that the fingers don’t get pointed at them
-这样手指就不会指向他们
+but Brett Kavanaugh?
+但是布雷特·卡瓦诺？
 
-But there’s in my mind, these Veritas documents look, look absolutely authentic
-但在我看来，这些真理文件看起来，看起来绝对真实的
+wasn’t Brett Kavanaugh supposed to be as sincere conservative a man of principle
+布雷特·卡瓦诺不应该是一个真诚保守的有原则的人吗？
 
-Steve Bannon
-史蒂夫·班农
+And so Lindsey Graham told us unfortunately
+所以不幸的是林赛·格雷厄姆告诉我们
 
-So you’re saying this is what I’m sure we’re clear here
-所以你说这就是我确定我们在这里很清楚
+many of us believe that we certainly did
+我们中的许多人相信，我们的确是
 
-You’re saying that, as we know, we take over this year
-你是说，我们知道，今年我们接管了
+When Brett Kavanaugh cried during his confirmation hearings
+当布雷特·卡瓦诺在确认听证会上哭泣时
 
-that the investigations deep into the situation of Wuhan lab, the bioweapons program
-对武汉实验室情况的深入调查，生化武器计划
+wept like Adam Kinzinger we felt sorry for him
+像亚当·金辛格一样哭泣，我们为他感到难过
 
-and American scientific and taxpayer money that went into doing any of that
-以及用于做任何这些的美国科学和纳税人的钱
+We didn’t understand at the time that something had broken inside of Brett Kavanaugh
+我们当时不明白布雷特·卡瓦诺的内心有什么东西被破坏了
 
-is going to be beyond a hot potato be one of the defining issues going forward
-将超越烫手的山芋成为未来的决定性问题之一
+that on some level his tormentors now controlled him
+在某种程度上，他的折磨者现在控制了他
 
-what actually happened?
-实际发生了什么
+and that going forward he’d be burned boiled to conventional opinion that to the Constitution of the United States
+并且在未来，他已背叛了美国的宪法的传统观点
 
-You’re saying right now look at the Pentagon Papers
-你说现在看看五角大楼文件
+Our mistake
+选择他是我们的错误
 
-there are people either officially or unofficially, making a move on Tony Fauci
-有人正式或非正式地在对托尼·福奇采取行动
+To the courts actual conservatives, the ones who don’t weep in public
+对于法院真正的保守派，那些不在公共场合哭泣的人
 
-in your mind and you know, DARPA and you know the DOD pretty well
-你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
+Kavanaugh position on the VAX mandate made no sense at all
+卡瓦诺对强制疫苗规定的立场完全没有意义
 
-you’ve been consulted there for many, many years. Correct?
-你已经在那里做了很多很多年的咨询工作, 对吗？
+As Clarence Thomas put it in his dissent
+正如克拉伦斯·托马斯在他的异议中所说
 
-Dr. Robert Malone
-罗伯特·马龙博士
+nothing in law or in the Constitution requires nurses to
+法律或宪法中没有任何规定要求护士
 
-Correct. And I’m also in close communication with the senator and his investigations office
-正确，我也在与参议员和他的调查办公室保持密切联系
+quote “choose between losing their livelihoods and acquiescing to a vaccine they’ve rejected for months”
+“在失去生计和默许他们拒绝数月的疫苗之间做出选择”
 
-I don’t want to speak for the senator but this this is one of those situations
-我不想为参议员说话，但这是其中一种情况
+Well, exactly. In other words
+嗯，正是，换句话说
 
-If you spent decades dealing with DOD and the hill like I have
-如果你像我一样花了几十年的时间与国防部和国会山打交道
+Joe Biden’s vaccine mandates have no legal authority
+乔·拜登的强制疫苗规定没有法律支持
 
-this is how the game gets played
-这就是游戏的玩法
+and without legal authority, the government can’t force us to do anything
+没有法律支持，政府不能强迫我们做任何事情
 
-This is how the Kabuki works in DC
-这就是歌舞伎在华盛顿中的运作方式
-
-is they’ll turn on each other when it looks like somebody is going to have to take the fall
-当看起来有人将不得不背锅时，他们是会互相攻击的
-
-And it looks to me like that has now happened in DOD has had enough
-在我看来，现在的情况是国防部已经受够了
-
-It’s important to know that Tony bushwhack DOD after the anthrax attacks
-重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
-
-and grabbed a big chunk of their budget
-而且敛走了他们预算的很大一部分
-
-so there could be some payback opportunity here
-所以这里可能是国防部反击的机会
+Period
+就是这样
 
 * * *
 
 Date:01/15/2022
-原视频标题: The DOD Is Throwing Fauci Under The Bus
-国防部正在把福奇暴露出来
+原视频标题: During his confirmation hearing, we didn’t understand that something had broken inside of Brett Kavanaugh. Unfortunately, many of us believed he was a sincere conservative
+在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
 原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
-任务编号：KE351（3493）
-视频时间段 : 0:00-2:22
+原视频链接: [https://gettr.com/post/podwzx7025](https://gettr.com/post/podwzx7025)
+任务编号：KE352（3495）
+视频时间段 : 0:00-1:46
 
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙

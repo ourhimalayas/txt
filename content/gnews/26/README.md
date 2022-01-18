@@ -2,59 +2,147 @@
 ---
 
 
-## 法国民众涌上街头，抗议新的“疫苗通行证”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873005/)
+## 国防部正在把福奇暴露出来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
 
-**评论：***这项备受争议的法案，将“健康通行证”转变为“疫苗通行证”，结束了法国从2020年3月开始健康通行证做法。法国政府正在用更为强硬的公众场所限制措施，试图迫使更多的人定期注射疫苗。*
+[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
 
-据《海峡时报》2022年1月16日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1394-e1642461945824.png)2022年1月15日，抗议者聚集在巴黎Trocadero广场，抗议健康通行证和新冠疫苗。
-图片来源：《法新社》
-1月15日，数千人在法国各地城市举行示威，反对对未接种新冠病毒疫苗的人实施更严格的限制，因为议会对该法律草案仍然争论不休。
+**Steve Bannon
+史蒂夫·班农**
 
-在首都巴黎，规模最大的单次集会是从埃菲尔铁塔附近出发，由反欧盟的极右派总统候选人弗洛里安·菲利普(Florian Philippot)召集的队伍。
+Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
+马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
 
-其他示威活动可以追溯到2018-2019 年的“黄夹克”抗议活动，抗议总统伊曼纽尔·马克龙(Emmanuel Macron)偏袒富人的政策，同时波尔多、图卢兹和里尔等主要城市也出现了示威群众。
+this Veritas amazing Veritas leak
+这个“真理”项目，惊人的“真理”泄漏
 
-游行民众高喊“对疫苗说不”或“释放德约科维奇”。世界男子网球头号选手诺瓦克·德约科维奇(Novak Djokovic) 正和澳大利亚政府打官司，欲以未接种疫苗的身份参加下周的澳大利亚网球公开赛（Grand Slam Australian Open）。
+that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
+他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
 
-示威者帕斯卡在波尔多告诉法新社：“诺瓦克目前是我们的旗手。”他和一家网球俱乐部的学童父母一起游行，他补充道：“那里的教练可能会因为拒绝接种疫苗而失去工作。”
+Is this the beginning of more information?
+这将会是更多信息的开始吗？
 
-在巴黎，示威者高举法国国旗和区旗，横幅上写着“他们想要控制的不是病毒，而是你”等标语。
+Do you think that certain individuals real scientists inside the apparatus
+你认为系统内部的某些真正的科学家
 
-**60多岁的示威者克莱尔说： “这是纳粹主义，是种族隔离制度，我没有接种新冠疫苗，而且总体上我反对疫苗。” 另外两名抗议人士告诉法新社，“他们接种了疫苗，但反对对青少年要求‘疫苗通行证’，我们不明白为什么他们必须接种疫苗，因为他们没有危险。”**
+that’s we’ve had enough we got to stop this madness, Dr. Malone.
+我们已经受够了，我们必须停止这种疯狂，马龙博士
 
-虽然官员们在傍晚还没有公布全国范围内上街抗议人数估计值，但里昂、南特、波尔多和马赛的警察或地方当局分别统计了大约1,000人。
+Dr. Robert Malone
+罗伯特·马龙博士
 
-**示威者希望超过上周末的示威人数——105,000人。马克龙在接受报纸采访时透露想用新的限制措施“惹怒”未接种疫苗的人，直到他们注射疫苗为止。这促使更多人参加示威活动。**
+I think it’s the DOD saying they’ve had enough of this.
+我认为是国防部说他们已经受够了
 
-**“疫苗通行证”**
+And I’m not sure if this came from a JAG’s office
+我不确定文件是否来自美国陆军总检察长的办公室
 
-在周六，一项措施生效。该措施将停用政府为数万人颁发的“健康通行证”。通常在第一次注射疫苗后的七个月内，即使未接受疫苗加强针的人，也会获发政府的“健康通行证”。
+because they’re stamped like they are
+因为它们看起来像
 
-根据目前正在议会里争论不休的一项立法，该“健康通行证”——允许进入酒吧和餐馆等公共场所——将被转变为“疫苗通行证”，这意味着将需要提供疫苗接种证明。
+based on the file names or if it came from DARPA
+基于文件名或是来自国防高级研究计划局
 
-到目前为止，人们能在新冠病毒检测呈阴性的情况下保持“健康通行证”有效。
+But having looked at these again and again in recently communicating with the DOD JAG
+但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
 
-由于面临传播速度更快的奥密克戎变体所引发的新一波感染浪潮，政府大力推动更强硬的措施。
+it’s trying to smoke out whose office this might have come out of.
+文件，在试图找出这可能来自谁的办公室
 
-周五，法国确认了330,000例新增病例，前一周病例数平均接近300,000例。但医院的压力并没有以同样的速度增长，卫生部长奥利维尔·韦兰 (Olivier Veran)曾表示，奥密克戎的危险性较小，感染该变体的患者需要的住院时间更短。
+I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
+我认为现在是国防部终于出来说够了
 
-周六凌晨，国民议会议员将《疫苗通过法案》提交给参议院上议院。
+And throwing Tony under the bus, and it could well be the DARPA’s doing it
+把托尼推出来，这很可能是国防高级研究计划局做的
 
-在两院就通行证的最低年龄限制以及是否应授权业主检查客户身份等问题反复讨论之后，它很可能最终在周日通过。
+so that the fingers don’t get pointed at them
+这样手指就不会指向他们
 
-文章来源：[https://www.straitstimes.com/world/europe/protesters-hit-french-streets-to-fight-new-covid-19-vaccine-pass](https://www.straitstimes.com/world/europe/protesters-hit-french-streets-to-fight-new-covid-19-vaccine-pass)
+But there’s in my mind, these Veritas documents look, look absolutely authentic
+但在我看来，这些真理文件看起来，看起来绝对真实的
 
-翻译/评论：洛杉矶盘古农场 – maru
+Steve Bannon
+史蒂夫·班农
 
-校对：洛杉矶盘古农场 – Milojai
+So you’re saying this is what I’m sure we’re clear here
+所以你说这就是我确定我们在这里很清楚
 
-编辑：洛杉矶盘古农场 – WenXiong
+You’re saying that, as we know, we take over this year
+你是说，我们知道，今年我们接管了
 
-发布：洛杉矶盘古农场 –子萍
+that the investigations deep into the situation of Wuhan lab, the bioweapons program
+对武汉实验室情况的深入调查，生化武器计划
 
+and American scientific and taxpayer money that went into doing any of that
+以及用于做任何这些的美国科学和纳税人的钱
 
+is going to be beyond a hot potato be one of the defining issues going forward
+将超越烫手的山芋成为未来的决定性问题之一
+
+what actually happened?
+实际发生了什么
+
+You’re saying right now look at the Pentagon Papers
+你说现在看看五角大楼文件
+
+there are people either officially or unofficially, making a move on Tony Fauci
+有人正式或非正式地在对托尼·福奇采取行动
+
+in your mind and you know, DARPA and you know the DOD pretty well
+你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
+
+you’ve been consulted there for many, many years. Correct?
+你已经在那里做了很多很多年的咨询工作, 对吗？
+
+Dr. Robert Malone
+罗伯特·马龙博士
+
+Correct. And I’m also in close communication with the senator and his investigations office
+正确，我也在与参议员和他的调查办公室保持密切联系
+
+I don’t want to speak for the senator but this this is one of those situations
+我不想为参议员说话，但这是其中一种情况
+
+If you spent decades dealing with DOD and the hill like I have
+如果你像我一样花了几十年的时间与国防部和国会山打交道
+
+this is how the game gets played
+这就是游戏的玩法
+
+This is how the Kabuki works in DC
+这就是歌舞伎在华盛顿中的运作方式
+
+is they’ll turn on each other when it looks like somebody is going to have to take the fall
+当看起来有人将不得不背锅时，他们是会互相攻击的
+
+And it looks to me like that has now happened in DOD has had enough
+在我看来，现在的情况是国防部已经受够了
+
+It’s important to know that Tony bushwhack DOD after the anthrax attacks
+重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
+
+and grabbed a big chunk of their budget
+而且敛走了他们预算的很大一部分
+
+so there could be some payback opportunity here
+所以这里可能是国防部反击的机会
+
+* * *
+
+Date:01/15/2022
+原视频标题: The DOD Is Throwing Fauci Under The Bus
+国防部正在把福奇暴露出来
+原视频日期：2022/01/15
+原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
+任务编号：KE351（3493）
+视频时间段 : 0:00-2:22
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

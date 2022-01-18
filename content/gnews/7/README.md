@@ -2,22 +2,24 @@
 ---
 
 
-## 币安赵长鹏这个小屁孩将比王健还惨
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873243/)
+## 小斯基案例分析(二)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873263/)
 
 #### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/币安_01.jpg)
-币安赵长鹏，上海人，搞证券出来的。他当时是必然是帮着共产党弄钱的。他给共产党提供所有买币安的信息，他几乎90%客户都中国人。他是上海人啊，在上海是搞这个证券出来的，他父母还算是不错。这个小屁孩儿现在跟共产党联合在一起了，对付我们新中国联邦来了。 我说他一定比王健还会惨。因为他一跟这个机构挂在一起，不管你大小，你老少，只要你跟共产党沾上，你只有俩结局：第一、继续被他所用。 第二、被他消灭，它不可能给你第三条出路和人权。
+编辑：陶子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%B0%8F%E6%96%AF%E5%9F%BA%E6%A1%88%E4%BE%8B%E5%88%86%E6%9E%90%EF%BC%88%E4%BA%8C%EF%BC%89-.jpeg)
+锌，它的半衰期是很短的，你吃完之后再等一个星期就没有了，有不少战友,他们都是通过这种方式感染上的。那么作为我一个亲身经历者来说，我跟那位朋友在一个车里面，他都已经出现症状了，但是你没有办法，我也没没有办法说：把他半路从车上蹬下去，因为我要把他开车从一个地方带到另外一个地方，但是没有办法的事情，我那时候也是在想啊，这也是检验我的硫酸羟氯奎加锌到底有没有作用的时候。其实我们在车里面的时候是很多的时候是不带口罩的。几乎就是没有这个意识的是吧，他可能是出现了这个症状，虽然他也一上来就告诉我说可能心跳有点快，他感觉那么血压有点低，但是那一刻我真的是没有往那方面去想，因为他也听了，我说他也是按时吃硫酸羟氯奎加锌，但是， 应该是有一段没吃，但是对于我来说呢，我是坚信的。
 
-*发布：开智则立*
+按时吃硫酸羟氯奎加锌跟大家在一个车里不戴口罩，不仅是在一个车里面前前后后呆了七八个小时，还坐在一起吃了两顿饭都没有什么问题。所以我就把这个案例分享给大家。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

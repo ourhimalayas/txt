@@ -2,29 +2,292 @@
 ---
 
 
-## Omicron肆虐之际旅游胜地商家在过山车般的行情下无奈地坚守
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1873099/)
+## 每日快报：美参谋长联席会议主席马克·米利 COVID-19 检测呈阳性
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1873128/)
 
-撰稿：澳喜cindy
+*作者：*文鸣
 
-澳大利亚黄金海岸是世界闻名的旅游胜地，往年的圣诞假期、新年，来这里度假的世界各国的游客络绎不绝。在这里人们即可欣赏这里几十公里海岸线那美丽洁白的沙滩和汹涌澎湃的海浪，又能享受到各国风味的美食。一般各商家提前几个月就开始“招兵买马”培训员工的技能，准备足够的货源，以应对火爆的行情的到来。而这两年的疫情导致国际、国内的边境都被封锁。所以各商铺都大量裁员。勉强维持生意的保本运行。
-视频来自网络
-2021年面对疫情和强制接种疫苗信息不断变化，老板们对即将到来的圣诞和新年的行情不知如何把握之时，终于12月16日收到了政府的通知：国内的边境解封了。这对商家来说今年的圣诞应该可以赚大钱了。老板们预测应该会有报复性的爆发行情出现，因为两年来把人们闷在家里，太多人想出来开心一下了！可是临近圣诞只有一周的时间再招员工再培训是来不及了。带着既期盼又担心的心情迎来了圣诞节。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4D8F04DF-ADEB-4C49-AF4B-9A30880A83A3.jpeg)自制图片
-酒吧门前，往年的情景再次出现。人们似乎都忘记了omicron的存在。耐心、长时间的大排长龙兴奋的接受安保的逐个疫苗接种检查。然后通宵达旦地畅饮、跳舞。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-酒吧的老板朋友跟我们说：原来有员工20位，因为病毒爆发无法盈利运行，已经裁退了16位，只剩4位员工了。可想而知，在几百客人同时而至，工作人员将要多么的辛苦应对。
+# ***今日摘要***
 
-当这个老板还再准备招兵买马，继续迎接日后持续的火爆行情的时候，传来了有人在此酒吧传染了omicron病毒的消息。政府派来了悉尼专业灭疫团队，全场无死角消毒。几天后经严查之后没有问题才批准继续开业。
+1. **[联合参谋长联席会议主席和海军陆战队负责人感染了 COVID-19](https://www.latimes.com/politics/story/2022-01-17/joint-chiefs-chairman-and-marine-corps-chief-have-covid-19)**
+2. **[研究发现新冠病毒感染可导致大脑衰弱对一些老年人造成的损害比阿尔茨海默氏症更大](https://www.dailymail.co.uk/health/article-10411893/Covid-infection-cause-debilitating-brain-condition-causes-damage-Alzheimers.html)**
+3. **[近 50% 的民主党选民希望为未接种疫苗的人设立隔离营](https://thenationalpulse.com/2022/01/17/data-nearly-50-of-democrat-voters-want-camps-for-the-unvaccinated/)**
+4. **[完全接种疫苗的加拿大足球明星阿方索·戴维斯因心肌炎缺阵](https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis)**
+5. **[法国500,000 名接种疫苗的人无法获得健康通行证](https://dailycaller.com/2022/01/17/500000-vaccinated-people-lose-access-to-health-pass-in-france-booster-mandatory-after-3-months/)**
 
-还有的某大餐馆主厨染上omicron，导致餐馆停业一周多的时间，错失最佳赚钱机会。
 
-还有的小餐馆的熟练帮工染上omicron，最需要他帮忙的时候却无法上班。无奈老板和其他员工只能超工时艰辛地应对络绎不绝的食客。
+# 重要事件
 
-两年来CCP病毒肆虐已使这座美丽的度假天堂变的风光不再。大部分的礼品商店、餐馆、酒吧等都关门停业了。依然经营的商店，本来平时餐馆经营的就没有什么盈利，想籍边境开放后游客增多，生意能起死回生。但难以把控的病毒感染、紧缺的技术人员，使得这些商家的老板们对前景无不感到担忧和无奈。
+- **[01.17 latimes：联合参谋长联席会议主席和海军陆战队负责人感染了 COVID-19](https://www.latimes.com/politics/story/2022-01-17/joint-chiefs-chairman-and-marine-corps-chief-have-covid-19)**
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+
+华盛顿一位发言人周一表示，参谋长联席会议主席马克·米利将军的 COVID-19 检测呈阳性，并且出现了非常轻微的症状。海军陆战队表示，其指挥官大卫·伯杰将军也感染了 COVID-19。
+参谋长联席会议发言人戴夫·巴特勒上校在一份声明中说，已接受疫苗和加强注射的米利周日检测呈阳性。巴特勒说，米利正在隔离并在他可以履行所有职责的地方远程工作。
+
+海军陆战队在一份声明中说，伯杰的检测结果也呈阳性，除了说他的工作能力不受影响外，没有提供其他细节。巴特勒说，其他参谋长联席会议成员的检测结果为阴性。
+
+米利与拜登总统最近的一次接触是在周三的雷蒙德·奥迪尔诺将军的葬礼上，后者于 10 月死于癌症。参谋长联席会议的声明说，现年 63 岁的米利在与拜登接触前几天以及之后的每一天都检测为阴性，直到周日。
+
+本月早些时候，国防部长劳埃德·奥斯汀（Lloyd Austin）表示，他的 COVID-19 检测呈阳性，在家隔离时出现轻微症状。奥斯汀说，他已于 10 月完全接种疫苗并接受了加强针，大约一周后检测结果呈阴性。
+
+- **[01.17 dailymail：研究发现新冠病毒感染可导致大脑衰弱对一些老年人造成的损害比阿尔茨海默氏症更大](https://www.dailymail.co.uk/health/article-10411893/Covid-infection-cause-debilitating-brain-condition-causes-damage-Alzheimers.html)**
+
+
+一项新的研究发现，感染新冠病毒对老年人的大脑造成的损害可能比患上阿尔茨海默氏症更大。
+
+纽约大学 (NYU) 格罗斯曼医学院的一个研究小组发现，一些老年 Covid 幸存者可能患有一种称为中毒性代谢性脑病 (TME) 的疾病。研究人员发现，在血液筛查中，与患有阿尔茨海默氏症的人相比，因感染新冠病毒而患上这种疾病的人表现出更严重的脑损伤迹象。患有 TME 的患者在检测脑损伤的筛查中的检测率要高出 60%。
+
+该研究是在第一波大流行期间进行的，因此尚不清楚这些数据是否也适用于 Omicron 或 Delta 变体。像Covid一样快速传播的病毒具有如此严重的副作用，这是一个令人担忧的前景。纽约大学的研究人员发现，一些老年 Covid 患者的生物标志物表明，与普通阿尔茨海默病患者相比，他们因病毒而遭受的脑损伤更大。表现出脑损伤迹象的新冠病毒患者通常会出现一种称为中毒性代谢性脑病的疾病，这种疾病会导致大脑发炎并阻止身体进行一些基本的代谢功能。
+
+们的研究结果表明，因 COVID-19 住院的患者，尤其是那些在急性感染期间出现神经系统症状的患者，其脑损伤标志物水平可能与阿尔茨海默病患者的脑损伤标志物水平一样高，甚至更高， ‘ 根据研究发现，该研究的主要作者、纽约大学格罗斯曼教授詹妮弗·弗龙特拉博士说。
+
+一个人在被病毒感染后可能会出现 TME，有时甚至在接受手术麻醉后也会出现 TME。当体内的细胞变得有毒并阻止身体进行基本功能时，它就会形成。它会导致严重的大脑炎症，从而导致认知问题。上周在 阿尔茨海默氏症和痴呆症中发表了他们的研究结果的研究人员发现，这种情况在许多感染了 Covid 的研究参与者中很普遍。
+
+该团队收集了 251 名在 2020 年春季第一波大流行期间因 Covid 住院的老年人的数据。研究人群混合了从病毒中康复的人和死于该病毒的人。招募的参与者都没有痴呆症或其他认知疾病的病史。根据他们在 Covid 比赛期间是否报告过神经系统症状，他们被分成两组。招募的参与者与纽约大学阿尔茨海默病研究中心的患者组成的对照组进行了比较。在 161 名对照参与者中，53 人被诊断患有阿尔茨海默氏症，54 人患有轻度认知障碍。在研究期间，对照组的所有成员均未感染 Covid。
+
+研究人员分析了患者的血清，以寻找表明一个人遭受脑损伤的三种血液标志物。他们发现 TME 是受感染组脑损伤的主要原因，而那些出现这种情况的人显示出的标记比患有神经系统症状的对照组成员高 60%。最终死于 Covid 的人平均血液标志物水平高出 124%，表明脑损伤。
+
+研究人员无法确定他们的发现的长期影响。这些标志物与阿尔茨海默氏症等疾病的发展之间没有联系，尽管他们担心这些人的长期认知健康仍然会受到损害。“创伤性脑损伤也与这些生物标志物的增加有关，但这并不意味着患者以后会患上阿尔茨海默病或相关的痴呆症，但确实会增加患阿尔茨海默病的风险，”该中心主任 Thomas Wisniewski 博士说。纽约大学的认知神经病学和该研究的资深作者说。
+
+“在 COVID-19 重症患者中是否存在这种关系是我们迫切需要通过持续监测这些患者来回答的问题。”
+
+- **[01.17 thenationalpulse：近 50% 的民主党选民希望为未接种疫苗的人设立隔离营](https://thenationalpulse.com/2022/01/17/data-nearly-50-of-democrat-voters-want-camps-for-the-unvaccinated/)**
+
+
+数据显示，惊人的 59% 的民主党人希望看到他们的美国同胞在不愿意接种大型制药公司的 COVID-19 疫苗时被迫隔离和监禁，其中 45% 的人支持为未接种疫苗的人设立隔离营的想法。消息传出之际，人们对疫苗功效的信心减弱，世界各国开始认识到在 Omicron 变体和其他因素之间，对病毒的恐惧正在消退。
+
+民主党人还告诉拉斯穆森民意调查人员，他们支持更严厉的措施，包括对不接种 COVID-19 疫苗的美国人处以罚款，以及对大型制药公司的批评者处以刑事处罚。59% 的民主党选民支持一项政府政策，要求公民在任何时候都被限制在家中，除非紧急情况，如果他们拒绝刺戳。
+
+这一暴虐的提议遭到了 61% 的可能选民的反对，其中包括 79% 的共和党人和 71% 的无党派选民。但自我认同的民主党人似乎在 COVID 限制上一再跳上鲨鱼。近一半（约 48%）的民主党选民报告称，联邦和州政府应该能够通过在社交媒体、电视、广播或社交媒体上质疑现有 COVID-19 疫苗的有效性，对公开行使第一修正案权利的人进行罚款或监禁。在在线或数字出版物中。
+
+只有 27% 的选民，包括 14% 的共和党人和 18% 的无党派选民，赞成对疫苗批评者进行刑事处罚。45% 的民主党人甚至赞成潜在的立法，即如果公民拒绝接种 COVID-19 疫苗，他们将暂时住在指定的营地。绝大多数选民（71%）反对将公民关在隔离营中，78% 的共和党人和 64% 的非附属选民表示，他们强烈反对将未接种疫苗的人置于“指定设施”。
+
+美国人对中共生物武器的共同创造者安东尼·福奇也存在分歧。45% 的人对福奇有好感，28% 的人对他的印象非常好。48% 的人对福奇有负面印象，其中 34% 的人对他有非常负面的看法。民主党人压倒性地支持（75%）福奇施加的纯粹的压迫和控制，而只有 21% 的共和党人喜欢让他们的国家关闭，让福奇延续下去的衰退循环。
+
+在过去的 20 年里，皮尤研究中心揭示了美国政治左翼以前所未有的方式向极左倾斜。The Heartland Institute 高级编辑兼研究员 Chris Talgo 评论说：“在经历了极其漫长的两年之后，可能的选民开始质疑联邦政府对这一流行病的处理方式。首先，可能的选民开始对安东尼·福奇博士感到不满，他似乎在无数次失败后失去了可信度。”
+
+“此外，几乎有一半可能的选民反对拜登总统的疫苗授权，这似乎不是为了阻止 COVID-19 的传播，而是更多地是为了增加联邦政府的权力。当被问及其他几种潜在策略时，例如对拒绝接种疫苗的人处以罚款时，可能选民的共识是联邦政府应该少做，而不是多做。”
+
+- **[01.16 zerohedge：完全接种疫苗的加拿大足球明星阿方索·戴维斯因心肌炎缺阵](https://www.zerohedge.com/markets/fully-vaccinated-canadian-soccer-star-alphonso-davies-sidelined-myocarditis)**
+
+
+据 CP24 报道，职业足球运动员退出比赛的令人不安的趋势继续存在，为拜仁慕尼黑效力的加拿大球星阿方索·戴维斯（Alphonso Davies）显示出“心肌发炎”的迹象。他只有21岁。
+
+戴维斯已被排除在加拿大定于一月和二月举行的三场世界杯预选赛之外。他的俱乐部经理朱利安·纳格尔斯曼（Julian Nagelsmann）表示，这个问题是在后续的 COVID 检查中发现的。
+
+“他将缺席训练，直至另行通知。在接下来的几周内，他也将无法上场。超声波显示这种心肌炎并不那么严重，但它是心肌炎的征兆。不过，它必须愈合，这肯定需要一些时间，”船长评论道。
+
+他没有立即将炎症归因于 Covid，并表示：“有不同的原因，特别是病毒载量或流感，例如，可能导致心脏问题。”
+
+“这发生在其他球员的电晕前。现在，如果你将电晕和顶级运动能力结合起来，可能性会更高，这可能会导致其他问题。但这与我们现在无关。这与治疗无关。没关系如果 Alphonso Davies 是因为流感或 Omicron-Delta 或其他什么原因感染的。那并不是真正的决定性因素，”他继续说道。
+
+“情况是，这绝对是可怕的，可怕的。我能说什么？对我们来说情况很糟糕。”戴维斯已经停止训练，被广泛认为是世界上最好的左后卫之一。据报道，他已完全接种疫苗并于 12 月接种了加强针。
+
+- **[01.17 dailycaller：法国500,000 名接种疫苗的人无法获得健康通行证](https://dailycaller.com/2022/01/17/500000-vaccinated-people-lose-access-to-health-pass-in-france-booster-mandatory-after-3-months/)**
+
+
+法国现在要求任何 16 岁或以上的人都必须接种疫苗才能充分参与公共生活，并将加强注射之间的时间从 7 个月缩短到 3 个月。
+
+据英国广播公司报道，那些在三个多月前接种过疫苗但尚未加强接种的人将不再被视为已完全接种疫苗，自周六起将被禁止进入餐厅和其他公共场所。据德国之声称，这一变化将影响大约 56 万法国人。
+
+据France 24报道，法国还将用疫苗通行证取代其健康通行证，并消除通过 COVID-19 检测呈阴性来进入公共生活的选择。法国总统埃马纽埃尔·马克龙表示，他希望该计划“激怒未接种疫苗的人” 。”
+
+据 France 24 报道，12-15 岁的未成年人仍然可以使用旧的健康通行证进入公共生活，该通行证允许使用 COVID-19 阴性检测代替疫苗接种。
+
+鉴于病例数不断攀升和 Omicron 变体，该国正在收紧与 COVID 相关的限制。1 月 3 日实施的新规定包括在可能的情况下强制远程工作、限制活动规模、关闭夜总会直至另行通知，以及禁止在长途交通工具上饮食。
+
+根据 France 24 的说法，使用欺诈性 COVID-19 通行证的罚款从第一次犯罪的 150 美元增加到超过 1,000 美元，拥有多个假通行证将被处以最高 5 年的监禁和 85,000 美元的罚款。
+
+据路透社报道，法国的每日新增感染人数已达到约 30 万的历史新高，而过去两个月的死亡人数已上升至 2020 年高峰期每日死亡率的三分之一左右。
+
+# 每日文宣
+![](http://himalayawashingtondc.org/wp-content/uploads/2022/01/98b243255b2f8e36cf88130beede0087-1024x576.jpeg)
+# 更多要闻链接
+
+1. **[世卫组织推荐 2 种新药作为 COVID-19 治疗方法](https://www.zerohedge.com/markets/who-recommends-2-new-drugs-covid-19-treatments)**
+2. **[“我们要夺回美国”：川普在亚利桑那州举行 2022 年第一次集会](https://www.zerohedge.com/political/we-are-going-take-back-america-trump-holds-first-rally-2022-arizona)**
+3. **[调查 18-49 岁人群死亡率激增的州其中大多数与 COVID-19 无关](https://www.zerohedge.com/medical/states-investigating-surge-mortality-rate-among-18-49-year-olds-majority-unrelated-covid-19)**
+4. **[佛罗里达州一家庭努力让他们的亲人使用尝试伊维菌素和其他替代疗法而败诉](https://www.zerohedge.com/covid-19/after-28-days-ventilator-family-loses-legal-battle-try-ivermectin-other-alternative)**
+5. **[沃尔玛创建自己的加密货币 NFT通过销售虚拟商品进入元界](https://www.zerohedge.com/crypto/walmart-creates-its-own-cryptocurrency-nfts-enters-metaverse-sales-virtual-goods)**
+6. **[前中国国家队队医薛银贤的新书《中国毒药》将在北京冬奥会前发布](https://www.zerohedge.com/geopolitical/state-backed-doping-strategy-imposed-chinese-athletes-former-doctors-new-book-release)**
+7. **[德约科维奇在签证上诉失败后被驱逐出境面临来自澳大利亚的三年禁令](https://www.zerohedge.com/political/djokovic-deported-after-losing-visa-appeal-faces-3-year-ban-australia)**
+8. **[中国将于2月初从战略储备中释放原油](https://www.zerohedge.com/energy/china-set-release-crude-strategic-reserve-early-february)**
+
+
+# 每日推特文摘
+
+
+
+参谋长联席会议主席马克·米利在与拜登接触后的几天内新冠病毒检测呈阳性
+
+
+
+
+
+> Joint Chiefs Chair Mark Milley tests positive for Covid days after being in contact with Biden [https://t.co/Ik3R419U7B](https://t.co/Ik3R419U7B)
+> — Daily Mail US (@DailyMail) [January 17, 2022](https://twitter.com/DailyMail/status/1483198960017854477?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+自2022年1月19日起 中国将取消所有美国入境航班
+
+
+
+
+
+> 自2022年1月19日起
+> 中国将取消所有美国入境航班 [pic.twitter.com/equL6xhjaH](https://t.co/equL6xhjaH)
+> — 骄傲女孩 (@ZH\_mzghg) [January 17, 2022](https://twitter.com/ZH_mzghg/status/1483197016071102474?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+共产党对文贵先生的法律诉讼是精心策划的组合拳，419VOA断播前一天，诉讼已经递交。诉讼主要分预期，疯狂，嚣张，反攻，4个阶段。前三个阶段，共产党极其嚣张，文贵先生基本没有申诉的机会；第四阶段法院取消了共产党代理律师的资格。
+
+
+
+
+
+> 003200 共产党对文贵先生的法律诉讼是精心策划的组合拳，419VOA断播前一天，诉讼已经递交。诉讼主要分预期，疯狂，嚣张，反攻，4个阶段。前三个阶段，共产党极其嚣张，文贵先生基本没有申诉的机会；第四阶段法院取消了共产党代理律师的资格。 [pic.twitter.com/isbBZpZERc](https://t.co/isbBZpZERc)
+> — 20minfocus (@20minfocus) [January 17, 2022](https://twitter.com/20minfocus/status/1483077082297126912?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+CCP继续将Americans视为病毒。该通知称，1月14日370 #US #athletes到达时，首都机场Beijing将处于最高生化三级防御状态。敦促居民届时避免外出。
+
+
+
+
+
+> [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) continues to treat [#Americans](https://twitter.com/hashtag/Americans?src=hash&amp;ref_src=twsrc%5Etfw) as virus. This notice says the capital airport in [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) will be in the highest biochemical level 3 defense status when 370 [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) [#athletes](https://twitter.com/hashtag/athletes?src=hash&amp;ref_src=twsrc%5Etfw) arrive on Jan 14. Residents urged to avoid going out then. Brainwashed Chinese say… [pic.twitter.com/5OStD5eTVt](https://t.co/5OStD5eTVt)
+> — Jennifer Zeng 曾錚 (@jenniferatntd) [January 17, 2022](https://twitter.com/jenniferatntd/status/1483194192247545858?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+【中共国居然开发了无针疫苗注射机器人】
+
+1月17日，同济大学发布了国内首款自主智能无针疫苗注射机器人！
+这款机器人可以自动找准人肩膀上疫苗注射的位置，采用无针注射的方式，全程无人化完成疫苗注射！
+
+这是要打多少疫苗啊！！
+
+
+
+
+
+> 【中共国居然开发了无针疫苗注射机器人】
+> 
+> 1月17日，同济大学发布了国内首款自主智能无针疫苗注射机器人！
+> 这款机器人可以自动找准人肩膀上疫苗注射的位置，采用无针注射的方式，全程无人化完成疫苗注射！
+> 
+> 这是要打多少疫苗啊！！😱😱😱 [pic.twitter.com/VRaORttTyR](https://t.co/VRaORttTyR)
+> — 澳喜要闻（新号） (@ahnewspace) [January 17, 2022](https://twitter.com/ahnewspace/status/1482935066183757824?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+加拿大的卡车司机，因为美加两国都要求必须注射疫苗才能穿越美加边境，有3万8千卡车司机选择不工作。如果他们一周只跑两趟，那么是7万6千卡车的货物不能在美加边境运输……这只是冰山一角。卡车司机影响供应链，供应链会影响制造商，零售业，倒闭的工厂不会那么容易恢复，还有医护人员，警察，军队……
+
+
+
+
+
+> 加拿大的卡车司机，因为美加两国都要求必须注射疫苗才能穿越美加边境，有3万8千卡车司机选择不工作。如果他们一周只跑两趟，那么是7万6千卡车的货物不能在美加边境运输……这只是冰山一角。卡车司机影响供应链，供应链会影响制造商，零售业，倒闭的工厂不会那么容易恢复，还有医护人员，警察，军队…… [pic.twitter.com/Ii2kJeOpdw](https://t.co/Ii2kJeOpdw)
+> — 文婕 文婕播报 (@wenjiebc) [January 17, 2022](https://twitter.com/wenjiebc/status/1482920964019130374?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+修车小哥被网暴，被迫出来认错道歉
+
+
+
+
+
+> 修车小哥被网暴，被迫出来认错道歉😢 [pic.twitter.com/VzGUt1er1x](https://t.co/VzGUt1er1x)
+> — iPaul🇨🇦 (@iPaulCanada) [January 16, 2022](https://twitter.com/iPaulCanada/status/1482578996109869058?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+法国病毒学家、诺贝尔奖获得者吕克-蒙塔尼耶教授在抵达今天的抗议活动时受到了英雄般的欢迎。
+
+蒙塔尼耶。”不接种疫苗的人将拯救人类”。
+
+
+
+
+
+> 法国病毒学家、诺贝尔奖获得者吕克-蒙塔尼耶教授在抵达今天的抗议活动时受到了英雄般的欢迎。
+> 
+> 蒙塔尼耶。"不接种疫苗的人将拯救人类"。 [pic.twitter.com/ve5aGEThlE](https://t.co/ve5aGEThlE)
+> — Maggie-H (@Maggie12409794) [January 16, 2022](https://twitter.com/Maggie12409794/status/1482845366668206080?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共荒唐的事情又来了😂：【北京市海淀区新冠肺炎确诊病例的溯源情况】病例自述近期曾收发过国际邮件。该国际邮件于1月7日自加拿大发出，途经美国及中国香港到达北京，病例于1月11日收到邮件。已采集该国际邮件环境标本22件，其中包装外表面2件、内表面2件以及文件内纸张标本8件，经核酸检测均为阳性，并检测出奥密克戎变异株。
+
+
+
+
+
+> 【北京市海淀区新冠肺炎确诊病例的溯源情况】病例自述近期曾收发过国际邮件。该国际邮件于1月7日自加拿大发出，途经美国及中国香港到达北京，病例于1月11日收到邮件。已采集该国际邮件环境标本22件，其中包装外表面2件、内表面2件以及文件内纸张标本8件，经核酸检测均为阳性，并检测出奥密克戎变异株。
+> — 月光博客 (@williamlong) [January 17, 2022](https://twitter.com/williamlong/status/1482971645190885377?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+汤加海底火山爆发，共同见证震撼场面 ！
+
+
+
+
+
+> 汤加海底火山爆发，共同见证震撼场面 ！[pic.twitter.com/hMlBYJksD3](https://t.co/hMlBYJksD3)
+> — 婉清 (@1X1G3Lr7pBe1AJR) [January 16, 2022](https://twitter.com/1X1G3Lr7pBe1AJR/status/1482859095111892992?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+*编辑：文鸣
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
