@@ -2,30 +2,37 @@
 ---
 
 
-## 中共国去年人口出生率创建国以来最低
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1873352/)
+## 垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873368/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-24.jpg)中共国去年人口出生率创建国以来最低 网络图片
-据美国之音1月17日报道，中共国统计局17日公布数据，2021年全年中共国人口出生率创建国以来最低，出生人口为1062万，比2020年少140万。
+#### **【雅典娜观察】和您一起探究世界**
 
-2016年，北京取消强制推行了几十年的独生子女政策。2021年5月，政府宣布了三孩政策，但是中共国生活成本高，养育子女成本更高，出生率依然持续下降，而且人口性别持续失衡。
+整理报道：George Warshing
+编辑：文泓
 
-中共违反自然规律，通过残酷的计划生育政策杀掉了四亿多婴儿，其中绝大多数是女婴。中共治国无方，扰民有术，高房贷、高昂的生活成本和医疗费用令老百姓的生活苦不堪言，年轻人不愿意结婚，更不愿意生育，老年人的晚年生活没有保障。中共国怨声载道，全民躺平，生育率自然连年下降。邪恶至极的病毒和疫苗毁掉了无数年轻人的生育能力，中华民族真正是到了最危急的时候，面临着全民种族灭绝。只有推翻共产党，实现民主、法治，应天顺人，花开花落，繁衍生息，中华民族才能继续生存下去。
-
-新闻参考链接：[https://www.voachinese.com/a/china-birthrate-20220117/6399751.html](https://www.voachinese.com/a/china-birthrate-20220117/6399751.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C5BEYDI5ICBAF4VQMX8.png)图片来源：Florida Times-Union
 
 
-编辑：【英国伦敦喜庄园编辑部】
+当地时间1月16日，据PJ媒体报道，在美国佛罗里达州的梅奥医学中心，丹尼尔·皮萨诺因感染中共冠状病毒生命垂危，依赖呼吸机维持生命已达28天，医生说他的存活机会不到5%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他的家属为了挽救他的生命，希望医院能让爱德华多·巴尔博纳博士为他实施冠状病毒前沿重症监护联盟(FLCCC)推荐的治疗方案，其中包括使用伊维菌素。但是该请求被梅奥医学中心无情地拒绝了。家属随即向法庭申诉，但玛丽安·阿霍法官做出了否定的判决。最终，丹尼尔·皮萨诺在医院去世。
 
+伊维菌素原本是一种兽药，但几十年来，它已广泛用于人类疾病的治疗，大流行期间医生用它挽救了很多中共冠状病毒感染者的生命，其中巴尔博纳博士以前是美国国会大厦的医生，他为国会议员和最高法院的成员提供治疗，他用伊维菌素治疗中共病毒感染取得了巨大成功，已治愈了“数十名”重症患者。
 
+人们对梅奥医学中心拒绝使用伊维菌素抢救生命的行为深感困惑。罗伯特·马龙博士在乔·罗根的播客节目中说，批量购买伊维菌素时，每（片）剂的价钱不到0.1美分，这样的价格根本怎么能让大型制药公司赚到数百万美元？食品和药物管理局(FDA)强烈排斥该药治疗中共病毒感染，说它是兽药；油管和推特则把敢于质疑“科学的化身”福奇博士的用户从其平台上赶走。
+
+伊维菌素何时才能成为治疗中共冠状病毒感染的药物目前还不明确，但是**，**伊维菌素已在[22个国家](https://c19adoption.com/)被批准用于抗击中共病毒。
+
+新闻链接：[Family Fights for Ivermectin for Dying Loved One, Courts Say ‘No’ – PJ Media](https://pjmedia.com/news-and-politics/kevindowneyjr/2022/01/16/family-fights-for-ivermectin-for-dying-loved-one-courts-say-no-n1549942)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

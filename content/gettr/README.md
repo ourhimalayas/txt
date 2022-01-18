@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 3:43 AM (UTC)`
+
+1/17/2022 Miles Guo: The lawsuit between Pacific Alliance and me is a life and death fight between the CCP and me - the CCP filed the lawsuit against me one day before VOA cut my broadcast on April 19, 2017, and the CCP sent Liu Yanping and Sun Lijun to threaten me not to blow the whistle. What is the relationship between Pacific Alliance and Bruno Wu? How do the law firm where Edward Moss worked previously and the judge in the Pacific Alliance case have to do with the CCP?<br/><br/>1/17/2022 文贵直播：太平联盟案就是文贵与中共的生死之战 - 中共在VOA 419断播前一天便发起诉讼并先后派出刘彦平和孙力军威胁文贵；太平联盟和吴征有何关系？Edward Moss之前的律所和太平联盟案的法官与中共有何关联？<br/>
+![img](https://media.gettr.com/group18/getter/2022/01/18/03/28aaaa82-6faa-987d-c52b-29f986d2d024/out.jpg)
+
+---
+
 `@miles 1/18/2022 1:49 AM (UTC)`
 
 1/17/2022 Miles Guo: I am fighting the world's biggest lawsuit manipulated by the CCP! Bradley J. Bondi, who had represented me and our fellow fighters before, had Edward Moss, who is representing Pacific Alliance, join Cahill Gordon & Reindel LLP to work together against me. Both of them were disqualified as the plaintiff’s counsel due to their serious violations of professional ethics.<br/><br/>1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量！曾代理文贵和战友的Bondi律师让太平联盟的律师Edward Moss跳槽到Cahill律所并一同针对文贵，他俩因判严重违反职业道德而被踢出局<br/>
@@ -146,13 +153,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 1月16号：用一句话．证明你是美国人．证明你是欧洲人．这样的场景，很快会出现在美国，欧洲及全世界．洗脑的危害．超过了战争及毒品的危害．中国共产党是真正的邪教。<br/><br/>In one sentence.  Prove that you are American.  Prove that you are European.  Such a scene will soon appear in the United States, Europe and the world.  The dangers of brainwashing.  more than the dangers of war and drugs.  The Chinese Communist Party is a real cult.
 ![img](https://media.gettr.com/group19/getter/2022/01/16/17/6e5cab37-e24f-ff4f-5684-90af73b0b8b7/out.jpg)
-
----
-
-`@miles 1/16/2022 3:19 PM (UTC)`
-
-汤姆·科顿参议员呼吁美国全面抵制中共冬奥会，以保证美国运动员安全。冬奥会应延期，重新竞标，之后在其他安全、自由和民主之地召开<br/><br/>Senator Tom Cotton calls for the US to fully boycott the CCP Olympics to keep US athletes safe. The games should be delayed, rebid and conducted somewhere else that’s safe, free and democratic at a later date<br/><br/>
-![img](https://media.gettr.com/group8/getter/2022/01/16/15/74b8e174-950e-a156-d145-7de06104439b/out.jpg)
 
 ---
 

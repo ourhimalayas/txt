@@ -15,65 +15,65 @@
 
 ---
 
-### [桥水基金的雷·达利奥赞扬中共的 &#8220;共同繁荣&#8221;运动](/content/gnews/1/README.md)
+### [任何事情都要避免急功近利与不切实际的幻想](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(四)](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [桥水基金的雷·达利奥赞扬中共的 &#8220;共同繁荣&#8221;运动](/content/gnews/3/README.md)
  ` 温哥华扬帆农场`
 
-### [DC大中华时事：中共称GDP增速超预期，造假越发肆无忌惮](/content/gnews/2/README.md)
+### [DC大中华时事：中共称GDP增速超预期，造假越发肆无忌惮](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [建造中的新中国联邦，不受物理地理限制](/content/gnews/3/README.md)
+### [建造中的新中国联邦，不受物理地理限制](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [汇钱到喜联储特别难怎么解决](/content/gnews/4/README.md)
+### [汇钱到喜联储特别难怎么解决](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GTV新闻访谈简报|2022年1月17日晚](/content/gnews/5/README.md)
+### [GTV新闻访谈简报|2022年1月17日晚](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(三)](/content/gnews/6/README.md)
+### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(三)](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [无悔青春](/content/gnews/7/README.md)
+### [无悔青春](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [沃尔玛正在悄悄准备进军元宇宙](/content/gnews/8/README.md)
+### [沃尔玛正在悄悄准备进军元宇宙](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [漫画：《疫苗税》或《健康税》，就是对拒绝打针者改用针管吸出他口袋里的钱](/content/gnews/9/README.md)
+### [漫画：《疫苗税》或《健康税》，就是对拒绝打针者改用针管吸出他口袋里的钱](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [共产党让中国城在世界为它背黑锅](/content/gnews/10/README.md)
+### [共产党让中国城在世界为它背黑锅](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [零容忍的大小是由中共所控制](/content/gnews/11/README.md)
+### [零容忍的大小是由中共所控制](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(二)](/content/gnews/12/README.md)
+### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(二)](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [人是有灵魂的，那灵魂去了哪里？](/content/gnews/13/README.md)
+### [人是有灵魂的，那灵魂去了哪里？](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [国内被抓去隔离时跑路包的准备](/content/gnews/14/README.md)
+### [国内被抓去隔离时跑路包的准备](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求](/content/gnews/15/README.md)
+### [垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(一)](/content/gnews/16/README.md)
+### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(一)](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [中共国去年人口出生率创建国以来最低](/content/gnews/17/README.md)
+### [中共国去年人口出生率创建国以来最低](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [迪拜宣布接受喜币喜美元交易房地产的意义](/content/gnews/18/README.md)
+### [迪拜宣布接受喜币喜美元交易房地产的意义](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
-
-### [生活在社会主义中国人的生活](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [直到&#8221;防疫通行证&#8221;成为宪法诉愿的那一天](/content/gnews/20/README.md)
- ` 首尔天池农场`
 
 ### [美国及世界疫情简报（01-17-2022）](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
