@@ -2,55 +2,54 @@
 ---
 
 
-## 顶级运动员中越来越多的心脏问题：只是巧合吗？
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1874630/)
+## 2022年1月18日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1874690/)
 
-作者：丹尼尔-温曼(Daniel Weinmann)，2022年1月17日发表
+撰稿人：文远Bruce
+![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/01/3B4C9FA8-781C-4E27-A16A-ABDC005345A0-edited.png)
+【彭博】– 德国《商报》援引未具名知情人士报道，美国、欧盟不再考虑将俄罗斯从SWIFT国际支付系统中排除出去的选项。
 
-翻译：英喜德语组 Luckycky
++据了解，将俄罗斯排除在该体系之外，可能短期内会破坏金融市场的稳定，未来或推动研发非西方主导的替代系统
 
-**顶级运动员中令人担忧的疾病**
++因而，美国和欧盟考虑对俄罗斯大型银行采取针对性的处罚，作为对俄罗斯入侵乌克兰情形下的反应之一
 
-对拜仁球星阿方索-戴维斯(Alphonso Davies)的心脏担忧。他的队友金斯利-科曼（Kingsley Coman）不得不在9月由于心肌紊乱做了手术。马里国脚奥斯曼-库里巴利 (Ousmane Coulibaly) 最近心脏病发作，不得不立即进行急救。
++德国寻求处罚豁免，以确保仍有可能进行石油和天然气款项的支付—记者 Alexey Anishchuk
 
-巴塞罗那球星塞尔吉奥-阿圭罗(Sergio Agüero )在对阵拉科鲁尼亚-阿拉维斯的比赛中出现了严重的呼吸问题，之后被诊断出患有心律失常，为此他已终止了他的足球生涯。前多特蒙德职业球员、现效力于阿森纳的皮埃尔-埃梅里克-奥巴梅扬(Pierre-Emerick Aubameyang)因心脏问题不得不退出本届非洲杯比赛。他在加蓬国家队的队友阿克塞尔-梅耶(Axel Meyé )和马里奥-莱米纳(Mario Lemina)不得不因同样的原因而缺赛。
+1.新冠病毒爆发以来，最富有的10名人士财富翻番
+![pastedGraphic_1.png](https://assets.gnews.org/wp-content/uploads/2022/01/8A09BFB0-1CD6-488C-A12C-EE9D95A7538F.png)网络视频
+2. 全球核电发电量按国家占比
+![pastedGraphic_2.png](https://assets.gnews.org/wp-content/uploads/2022/01/2CB6FD3E-CD69-4A4A-BC77-B3163AA307B1.png)网络视频
+3. 科学家用机器学习绘出全球现有光伏电场
+![pastedGraphic_3.png](https://assets.gnews.org/wp-content/uploads/2022/01/33F0B01E-04F0-4A1B-873E-A26B79193316.png)网络视频
+4.5. 前大使认为俄罗斯与乌克兰发生战争的可能性是50%
+![pastedGraphic_4.png](https://assets.gnews.org/wp-content/uploads/2022/01/3027E316-3528-4D6F-91A9-FDC75210DDF5.png)![pastedGraphic_5.png](https://assets.gnews.org/wp-content/uploads/2022/01/B871A6A0-20F7-4DB7-BCA3-EA6B6DB508EE.png)网络视频
+**6. ****目前还是难以估计汤加火山爆发造成的灾害损失****(**汤加王国 通称汤加，是一个位于太平洋西南部由172个大小不等的岛屿组成岛屿国家。 西距斐济650千米，西南距新西兰1770千米，面积约有748平方千米，人口为10.3万人。**)**
+![pastedGraphic_6.png](https://assets.gnews.org/wp-content/uploads/2022/01/D6644B98-0E31-4215-BE4A-31D78D2BCDDC.png)网络视频
+**7.****阿富汗发生****5.6****级地震**
+![pastedGraphic_7.png](https://assets.gnews.org/wp-content/uploads/2022/01/3EB43EF0-A841-4FD1-8B95-E3CE528A0CCA.png)网络视频
+**8.****北京出现首例奥密克戎病毒**
+![pastedGraphic_8.png](https://assets.gnews.org/wp-content/uploads/2022/01/D641F886-D4E1-4686-A112-7763769647A9.png)网络视频
+**9. 希腊强制60岁以上民众注射疫苗**
+![pastedGraphic_9.png](https://assets.gnews.org/wp-content/uploads/2022/01/EA2BCB6E-2D85-4493-B677-2B2BEF3E1797.png)网络视频
+**10.** **瑞士造混动翅膀可调八座飞机飞****1000****公里**
+![pastedGraphic_10.png](https://assets.gnews.org/wp-content/uploads/2022/01/AAAAA1F5-CEEB-48F4-83B2-6280E659773F.png)网络视频
+**11.** **瑞典公布一起无人机侵入核电站事件**
+![pastedGraphic_11.png](https://assets.gnews.org/wp-content/uploads/2022/01/AF728751-56DE-44C7-81BE-5A432AFFFF91.png)网络视频
+**12.** **沙特发掘出一条****4500****年前的高速公路，周围分布一万八千座坟墓**
+![pastedGraphic_12.png](https://assets.gnews.org/wp-content/uploads/2022/01/FB108FF8-4D9C-4911-ACE8-45F2B5EE80DE.png)网络视频
+**13. ****研究人员在西伯利亚发掘出一个保存完好的****42000****年前的小马，其血液依旧保持液态**
+![pastedGraphic_13.png](https://assets.gnews.org/wp-content/uploads/2022/01/5B916554-D259-49E3-82FC-E1639D8853A2.png)网络视频
+**14. ****马丁路德金：强人强在为争取自己的权力站起来而不是反击回去**
+![pastedGraphic_14.png](https://assets.gnews.org/wp-content/uploads/2022/01/01A06CD4-CFB9-4B91-9CF5-55CE5507C5D5.png)网络视频
+**15.****华为盘剥员工**
+![pastedGraphic_15.png](https://assets.gnews.org/wp-content/uploads/2022/01/FC2D84DB-C746-4924-93FE-5E63D9EBBA04.png)网络视频
+*编辑：cindy*
 
-与此同时，在澳大利亚公开赛上，三名球员因呼吸急促和胸痛而退赛。
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-这些例子在系列的事件中具有代表性。越来越多的顶级运动员不得不接受心血管疾病的治疗，由此会缺席数周或不得不放弃他们的职业生涯。所有运动项目都受到了影响。例如，弗洛里安-达古里（Florian Dagoury）是屏气静态自由潜水的世界纪录保持者。在接种疫苗之前，他可以屏气10.5分钟。在打第二针辉瑞疫苗后，他的潜水成绩下降了30%。之后诊断为心肌炎、心包炎和轻微的二尖瓣功能不全。
-
-**“体育运动中的心脏骤停是罕见的，但它总会发生”**
-
-根据疫苗接种倡导者的说法，心脏问题不是接种疫苗的结果，而是新冠疾病，如果没有接种疫苗，情况会更糟糕。马里乌斯-穆斯克 ([Marius Müske](https://twitter.com/m_mueske/status/1481981759906623488)) 推特上解释说：“#横向思维者不愿理解的是：心肌炎是冠状病毒感染后相对温和的症状，往往因为卫生系统条件不足而没被诊断出来。如果不接种疫苗，就会很快送到重症监护室，甚至是装入棺材/骨灰盒”。
-
-尽管疫苗广泛誉为是非常成功的，但仍然没有说明究竟什么原因会出现如此多的心脏问题。
-
-“事实核查员 ”遵循了完全不同的论点。他们的信条是，没有证据表明运动员的心脏骤停的人数增加。根据他们的解读，心脏问题和猝死一直都存在。确切的说：“体育运动中的心脏骤停是罕见的，但它确实一再发生”。自2014年以来，尤其在足球领域，国际足联（FIFA）一直在记录此类事件。其数量增加并不明显。
-
-相比之下，以色列《实时新闻》去年11月报道称，2021年国际足联球员的心脏猝死和不明原因的死亡人数增加了5倍。
-
-**欧洲药品管理局（EMA）数据显示心肌炎发病率激增**
-
-维基百科上的 “在比赛中死亡的足球运动员名单 ”也明显的增加。据报道，去年有21名球员因心脏病在球场上死亡—高于2020年的3人死亡和一年前的9人死亡。自1889年有记录以来，没有其他任何年份记录过有更多的足球运动员在比赛中死亡。
-
-其他体育项目中死亡人数增加的情况没有列出。
-
-欧洲药品管理局（EMA）的最新数据显示，与2020年初相比，2021年心肌疾病的增长超过900%，这表明大幅增长并非巧合。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-5.tiff)
-在病例暴涨的背景下，南安普顿的传奇人物马特-勒蒂西尔（Matt Le Tissier ）呼吁进行调查：“受苦的人数在飙升”，他告诉英国《快报》：“让我非常担心的是，在这么长的时间里（他活跃的职业生涯中，编辑）， 我从未见过因心脏问题而不得不离开球场的足球运动员”。
-
-*署名文章总是反映作者的意见，而不是我的意见。我重视我的读者是成年人，希望为他们提供不同的观点，使他们能够形成自己的意见。*
-
-*丹尼尔-温曼曾在德国最著名的媒体之一担任过多年的编辑。他在这里用笔名写作。*
-
-图片: JOKE\_PHATRAPONG/Shutterstock
-
-文本：Dw
-
-原文链接：[https://reitschuster.de/post/immer-mehr-herzprobleme-bei-spitzensportlern-nur-ein-zufall/](https://reitschuster.de/post/immer-mehr-herzprobleme-bei-spitzensportlern-nur-ein-zufall/)
-
-校对：英喜德语组 Danny/ 配图编辑：英喜德语组 Conner54/发布 ：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
