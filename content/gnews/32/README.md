@@ -2,28 +2,34 @@
 ---
 
 
-## 【G时新闻】科学家说：继奥米克戎之后将有更多令人担忧的变种！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1875771/)
+## 不完全财务披露福奇千万美元投资
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875788/)
 
-加拿大温哥华扬帆农场 播报： 文广 视频制作: Geacelshan
+作者：加拿大温哥华扬帆农场 Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《纽约邮报》1月16日报道，新发布的记录显示，截至2020年底，福奇和妻子有1040万美元投资，包括230万美元的未实现收益，分别持有在各种共同基金中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.50.png)
+参议员罗杰-马歇尔（R-Kan）周五晚上公开发布了福奇2020年的财务。在周二的参议院程序中，他询问了福奇财务状况，福气当时低声骂他 “蠢货”。福奇2020年工资是43万4千312美元，2021年和2022年的工资仍未被公布。
 
-据美联社1月15日报道，科学家警告说 ，继奥米克戎全球肆虐之后，人们预料奥米克戎将不是冠状病毒的最后一种变种。
+保守派非营利组织 “司法观察”(Judicial Watch)于2021年10月，起诉美国卫生与公众服务部，要求提供与福奇财务事务有关的文件。根据法庭文件规定，HHS已经提议从2月1日开始每月发布。美国参议院共和党籍参议员兰德保罗曾在去年7月2日，在法庭听证会质询福奇，武毒所病毒研究是否得到美国政府机构资助时，福奇还反唇相讥地说保罗才是谎言制造者。
 
-每种感染提供了病毒进一步变种的机会。奥米克戎与前几种变种相比更具有传染性。尽管有疫苗和有些人已经感染过，奥米克戎照样能引起感染，这意味着病毒在更多人中都会进一步演变。
+司法观察组织主席托马斯-费顿指责美国国立卫生研究院，对福奇的记录玩了一个 “空壳游戏”。福奇在美国人眼前撒谎，还有NIH对公众获得其财务信息设置障碍，说明他们在掩盖事实。随着事件的进展，福奇与大药厂以无数生命为代价的金钱交易，将一一呈现。
 
-专家们不清楚下一个变种会是怎么样，而且他们不能确定奥米克戎会造成轻微的症状，目前的疫苗也不能确定有效。
+参考链接：[Dr. Anthony Fauci’s financial disclosure shows $10.4M in investments](https://nypost.com/2022/01/15/dr-faucis-financial-disclosure-shows-10-4m-in-investments/)
 
-波士顿大学传染病流行病专家里奥内多马丁内说，奥米克戎传播越快越有机会发生变异。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-世卫组织总干事谭德塞说，希望看到年终全球每个国家有70%的人接种疫苗，目前还有几十个国家的接种率低于25%，有大量未接种疫苗的人是引起变种的因素。
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-明尼苏达大学分子病毒学主任路易斯曼斯基说，变种是不可避免的，中共新冠病毒疫苗就是一种病毒，打得越多感染越多。
-
-盖特：[https://gettr.com/post/popafdbfe9](https://gettr.com/post/popafdbfe9)
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：七觉花
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

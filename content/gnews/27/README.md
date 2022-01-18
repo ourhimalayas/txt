@@ -2,34 +2,27 @@
 ---
 
 
-## 中共在美司法超限战进入深水区
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875842/)
+## “砖家”开始为第四针CCP病毒疫苗接种代言
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1875882/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月17日的法律专场大直播中，郭先生以太平联盟PAG历时五年的缠诉为例，剖析了该案审理过程中的种种不公正环节，指出，这是一起反映中共对美国司法界蓝金黄的最典型案例。这场中共对爆料革命进行的在美司法超限战，即将进入疯狂的殊死较量。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-266.jpg)
-1月14日，纽约高院法官巴里·奥斯特拉格取消了卡希尔·高登 & 林德尔律师事务所代理太盟PAG的诉讼资格，这是一个有着历史意义的判决。它将中共的红色资本渗透美国律所及法官，甚至司法部官员的重重黑幕撕开了一个口子。这起案件一开始在纽约立案就存在属地争议，初判结果确认了这一点，但随后令人匪夷所思地重启调查。早就签署解除担保义务的所谓3千万担保未付款，经过一系列黑箱操作，至今竟已涉及18楼房产、游艇，以及逾1.5亿美元的罚款。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011610.jpg)图片制作：澳喜农场©森森
+世界各地的一些医学“砖家”现在正继续“研究”遏制CCP病毒大流行的解决方案，他们中的一些人得出了结论称，第四剂CCP病毒疫苗——或者说第二剂加强针注射——是阻止新变种出现的关键。
 
-郭先生强调，中共不惜花费200亿美元在美国展开法律超限战，从远期来说，是要彻底瓦解美国的司法独立体系。而从2017年开始的一系列缠诉，目的是以“藐视法庭”的罪名制造借口，摧毁郭先生一手创立的爆料革命。随着中共末日的来临，其必将进行更加疯狂的攻击。
+丹麦、智利和以色列目前已经批准为“弱势群体”接种第二剂 CCP病毒加强针疫苗，而在澳大利亚，澳大利亚免疫技术咨询小组ATAGI 已批准为免疫系统较弱的人接种第四剂CCP病毒疫苗。
 
-郭先生表示，此案已经引起主流媒体、APA律师协会、司法部，甚至国会议员的高度关注。只要证据确凿真实，程序公正，坚信美国的民主与法制仍会发挥巨大的作用。这场法律超限战，我们最终一定会赢。
+然而对于是否要在普通人群推广第二剂加强针注射，最近也已经有“砖家”放出了一些风，似乎正在对群众进行着试探。例如主流媒体近日就刊载了病毒“砖家”Lara Herrero 的话，称加强注射可能是缓解CCP病毒爆发和打击未来变种毒株的关键。结合近日一些主流媒体开始探讨Omicron之后还会有新的变体诞生，为第四针CCP病毒疫苗铺路的组合拳似乎已经开打。
 
-参考链接：[2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格；太平联盟诉讼案未来的走向；中共对美国司法界的渗透](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
+来自卫生组织免疫联盟的Rod Pearce表示，第四剂疫苗的益处正在研究中，尚未确认是否有必要进行施打。但是从他们只研究第四针的益处而不研究第四针的坏处来看，第二加强针已经在路上绝对不是什么天方夜谭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+据称，辉瑞和莫德纳两家药企现在都在开发专门针对 Omicron 变体的CCP病毒加强针，在今年 3 月份时或许可以准备就绪。如果这一消息为真且两家药企如期完成制造，那么3月之后全球或许将再度进行一场CCP病毒加强针注射运动。而那些之前 打满三针的人，很可能就还要再接种一剂专门针对Omicron的第四针。
 
-总编: Zion文恩
-编辑：Kathy文艺
-校正/发稿：Fei797
+新闻参考链接：[Necessity of fourth COVID-19 vaccine booster shot divides experts](https://www.9news.com.au/national/coronavirus-vaccine-research-necessity-of-fourth-covid-19-vaccination-booster-shot-divides-experts/b74c54f2-0831-4fc8-97f8-989379c86db0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,151 +2,60 @@
 ---
 
 
-## 国防部正在把福奇暴露出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+## 沃尔玛正在悄悄准备进军元宇宙
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1873452/)
 
-[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
+据《CNBC》劳伦·托马斯（ Lauren Thomas ）2022年 1 月 16 报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image002-2.gif)图片来自网络
 
-**Steve Bannon
-史蒂夫·班农**
+> • 沃尔玛似乎正在尝试进入元宇宙领域，计划创建自己的加密货币和 NFT 组合。
+> 
+> • 这家大型零售商上个月底申请了几个新商标，表明其有制造和销售虚拟商品的意图。
+> 
+> • 在另一份文件中，该公司表示它将为用户提供虚拟货币以及不可替代的代币或称 NFT。
 
-Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
-马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
 
-this Veritas amazing Veritas leak
-这个“真理”项目，惊人的“真理”泄漏
+沃尔玛似乎正在尝试进入元宇宙领域，计划创建自己的加密货币和 NFT 组合。
 
-that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
-他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
+这家大型零售商上个月底申请了几个新商标，表明其有制造和销售虚拟商品的意图，包括电子产品、家居装饰品、玩具、体育用品和个人护理产品。在另一份文件中，该公司表示它将为用户提供虚拟货币以及不可替代的代币或称 NFT。
 
-Is this the beginning of more information?
-这将会是更多信息的开始吗？
+据美国专利商标局，沃尔玛于 12 月 30 日提交了申请。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image003-3.jpg)资料来源：格本知识产权（Gerben Intellectual Property）
+总共提交了七份单独的申请。
 
-Do you think that certain individuals real scientists inside the apparatus
-你认为系统内部的某些真正的科学家
+沃尔玛在一份声明中表示，它“正在不断探索新兴技术将如何塑造未来的购物体验。” 它拒绝对具体的商标申请发表评论。
 
-that’s we’ve had enough we got to stop this madness, Dr. Malone.
-我们已经受够了，我们必须停止这种疯狂，马龙博士
+该公司表示，“我们一直在测试新想法，有些想法变成了产品或服务，提供给客户。还有一些我们进行测试、迭代和学习。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image005-3.jpg)资料来源：格本知识产权（Gerben Intellectual Property）
+“他们非常激烈，”商标律师乔什·格本 (Josh Gerben) 说。“其中有很多说法，这表明幕后有很多计划，关于他们将如何对待加密货币问题，他们将如何处理元宇宙，和似乎即将到来的或者已经到来的虚拟世界。”
 
-Dr. Robert Malone
-罗伯特·马龙博士
+格本表示，自从 Facebook 宣布将公司名称更改为 Meta ，以表明其超越社交媒体的雄心以来，企业界一直在急于弄清楚如何融入虚拟世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image007-1.jpg)资料来源：格本知识产权（Gerben Intellectual Property）
+耐克在 11 月初提交了一系列商标申请，展示了其销售虚拟品牌运动鞋和服装的计划。 当月晚些时候，它表示正与 Roblox 合作创建一个名为 Nikeland 的在线世界。 去年 12 月，它以未公开的金额收购了虚拟运动鞋公司 RTFKT（发音为“神器（artifact）”）。
 
-I think it’s the DOD saying they’ve had enough of this.
-我认为是国防部说他们已经受够了
+“突然之间，每个人都在说，‘这变得极其真实，我们需要确保我们的知识产权在网络中受到保护，’”格本说。
 
-And I’m not sure if this came from a JAG’s office
-我不确定文件是否来自美国陆军总检察长的办公室
+Gap 还开始销售其标志性的标识运动衫的 NFT。这家服装制造商表示，其 NFT 的定价将分为从大约 8.30 美元到 415 美元不同层级，并配有实体连帽衫。
 
-because they’re stamped like they are
-因为它们看起来像
+与此同时，安德玛（ Under Armour ）和阿迪达斯（  Adidas ）的 NFT 首次亮相上个月全部售罄。他们现在在 NFT 市场 OpenSea 上达到了天价。
 
-based on the file names or if it came from DARPA
-基于文件名或是来自国防高级研究计划局
+Gerben 表示，服装零售商 Urban Outfitters、Ralph Lauren 和 Abercrombie & Fitch 最近几周也提交了商标申请，详细说明了他们开设某种虚拟商店的意图。
 
-But having looked at these again and again in recently communicating with the DOD JAG
-但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
+CB Insights 的一份报告概述了零售商和品牌，希望开展可能会提供新的收入来源的此类业务的一些原因。
 
-it’s trying to smoke out whose office this might have come out of.
-文件，在试图找出这可能来自谁的办公室
+它表示，推出 NFT 允许企业对实物产品和服务进行代币化，以帮助降低在线交易成本。CB Insights 指出，对于 Gucci 和 Louis Vuitton 等奢侈品牌，NFT 可以作为有形和更昂贵商品的一种身份验证形式。
 
-I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
-我认为现在是国防部终于出来说够了
+格本表示，随着越来越多的消费者熟悉存储在区块链上的元宇宙和物品，越来越多的零售商将希望围绕它创建自己的生态系统。
 
-And throwing Tony under the bus, and it could well be the DARPA’s doing it
-把托尼推出来，这很可能是国防高级研究计划局做的
+根据加密货币信息服务公司 The Block 的主管弗兰克·查帕罗（ Frank Chaparro ） 的说法，许多零售商仍在为没赶上电子商务浪潮而苦恼，因此他们不想错过虚拟世界中的任何机会。
 
-so that the fingers don’t get pointed at them
-这样手指就不会指向他们
+查帕罗说：“我认为这对任何零售公司来说都是双赢的，即使它只是一种时尚，仅仅尝试一些奇怪的事情，比如在抽奖中给一些客户一个 NFT，也不会造成太大的声誉损失。”
 
-But there’s in my mind, these Veritas documents look, look absolutely authentic
-但在我看来，这些真理文件看起来，看起来绝对真实的
+*——CNBC**的梅丽莎**·**雷普科（**Melissa Repko**） 为本报道做出了贡献。*
 
-Steve Bannon
-史蒂夫·班农
+原文链接：[https://www.cnbc.com/2022/01/16/walmart-is-quietly-preparing-to-enter-the-metaverse.html](https://www.cnbc.com/2022/01/16/walmart-is-quietly-preparing-to-enter-the-metaverse.html)
 
-So you’re saying this is what I’m sure we’re clear here
-所以你说这就是我确定我们在这里很清楚
-
-You’re saying that, as we know, we take over this year
-你是说，我们知道，今年我们接管了
-
-that the investigations deep into the situation of Wuhan lab, the bioweapons program
-对武汉实验室情况的深入调查，生化武器计划
-
-and American scientific and taxpayer money that went into doing any of that
-以及用于做任何这些的美国科学和纳税人的钱
-
-is going to be beyond a hot potato be one of the defining issues going forward
-将超越烫手的山芋成为未来的决定性问题之一
-
-what actually happened?
-实际发生了什么
-
-You’re saying right now look at the Pentagon Papers
-你说现在看看五角大楼文件
-
-there are people either officially or unofficially, making a move on Tony Fauci
-有人正式或非正式地在对托尼·福奇采取行动
-
-in your mind and you know, DARPA and you know the DOD pretty well
-你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
-
-you’ve been consulted there for many, many years. Correct?
-你已经在那里做了很多很多年的咨询工作, 对吗？
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-Correct. And I’m also in close communication with the senator and his investigations office
-正确，我也在与参议员和他的调查办公室保持密切联系
-
-I don’t want to speak for the senator but this this is one of those situations
-我不想为参议员说话，但这是其中一种情况
-
-If you spent decades dealing with DOD and the hill like I have
-如果你像我一样花了几十年的时间与国防部和国会山打交道
-
-this is how the game gets played
-这就是游戏的玩法
-
-This is how the Kabuki works in DC
-这就是歌舞伎在华盛顿中的运作方式
-
-is they’ll turn on each other when it looks like somebody is going to have to take the fall
-当看起来有人将不得不背锅时，他们是会互相攻击的
-
-And it looks to me like that has now happened in DOD has had enough
-在我看来，现在的情况是国防部已经受够了
-
-It’s important to know that Tony bushwhack DOD after the anthrax attacks
-重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
-
-and grabbed a big chunk of their budget
-而且敛走了他们预算的很大一部分
-
-so there could be some payback opportunity here
-所以这里可能是国防部反击的机会
-
-* * *
-
-Date:01/15/2022
-原视频标题: The DOD Is Throwing Fauci Under The Bus
-国防部正在把福奇暴露出来
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
-任务编号：KE351（3493）
-视频时间段 : 0:00-2:22
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+翻译：JS709｜校对：Nick｜编辑&发布：断播
 
  
 
