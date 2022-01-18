@@ -2,42 +2,42 @@
 ---
 
 
-## 有声| 写给还没加入农场的战友
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1873775/)
+## 有声|BBC开始质疑新冠病毒死亡数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1873936/)
 
-配音：香草山福音部 – Daxia
-
-
+配音：香草山健身部 – 玫瑰园
 
 
 
-GTV 2022.01.10的文贵大直播中，“闻疯而动”战友问了七哥一个问题，大概意思是：每次看直播上千万人，为什么加入农场的战友这么少？确实，目前农场战友几万人。七哥说很多人害怕，犹豫，但是最终都会来，没有选择。
-
-这让我很有触动。因为我开始也是从旁观者角度看七哥爆料，慢慢开始相信，被共产体制的邪恶震撼，被七哥的勇气感动，也犹豫过，但战友们对正道的坚信，鼓励了我，同时对直播的各种分析，看到七哥灭共的实力和决心，看到七哥背后支持灭共的国内和国际力量，坚信共产党一定灭亡。最后战胜恐惧，勇敢地捐款法治基金，真正地加入了爆料革命。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
 
 
 
-**文字版原文：[写给还没加入农场的战友](https://gnews.org/zh-hans/1863263/)**
+1月14日，英国广播公司BBC对英国急剧上升的中共病毒死亡人数提出质疑，认为很大比例可能并非由病毒而致死。
 
+BBC在报道中说，卫生部门每天都对检测结果呈阳性后28天内死亡的病例进行统计，区分为“死于病毒”与“涉及病毒”两种情况。当前，奥密克戎导致的感染率迅速增加，英国约有430万人患有冠状病毒，比12月初时多了四倍。高感染意味着高死亡。例如，在去年秋季和圣诞节前，英格兰和威尔士涉及的新冠死亡中，只有约15%与新冠病毒没有直接关系。然而，圣诞节后的一周，这一比例上升到22%。而目前的数字显示，平均每天有近210人在检测结果呈阳性后的28天内死亡，比圣诞节前的110人增加了一倍。
 
+原文链接：[BBC开始质疑新冠病毒死亡数据](https://gnews.org/zh-hans/1872079/)
 
-发稿：雪梨
+音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

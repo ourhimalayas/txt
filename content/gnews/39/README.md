@@ -2,152 +2,28 @@
 ---
 
 
-## 国防部正在把福奇暴露出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+## 【中日财经爆】地方财政崩溃是撞向中共经济的“灰犀牛”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1873144/)
 
-[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1398.png)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20220106/555803253179158528014569.jpeg/Tplb5qqTSHz_DFm998HSgEdibqA_03XirWy3tq1st7Y?v=w1920r16_9)
+最近中共国黑龙江省的鹤岗市实际上已陷入了财务破产危机，破产的原因是房地产市场的恶化和疫情造成的经济放缓，导致土地销售和税收减少，使财政危机雪上加霜。
 
-**Steve Bannon
-史蒂夫·班农**
+各地方政府急于通过发行更多的地方债券为经济恢复筹集资金，令人担忧的是，各地方政府债券具有“政府隐性担保”，中共国的地方政府债券价格可能没有充分考虑到财政恶化等风险。如果未来由于美国加息，全球性利率上涨，地方政府财政将迅速恶化，有可能会有更多的资金流出中国，进入海外市场。
 
-Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
-马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
+近年来，随着中共国房地产投资达到极限，在黑龙江等经济增长缓慢、信用度被认为较低的省份的融资成本上升。2018年经济迅速放缓，作为支持地方经济发展的一种方式，地方政府进一步增加了对基础设施投资。为了帮助融资，中共国财政部下令增加地方政府债券的发行。业内人士认为，财政部就承销地方政府债券的利率水平向中国的商业银行等其他机构作出过指示。此后，内陆和沿海城市债券之间的收益率差距明显缩小。越来越多的金融机构和投资者认为，地方政府债券是有政府隐性担保的。其结果是地方政府债券的发行量不断增加，对上升的违约风险也视而不见。
 
-this Veritas amazing Veritas leak
-这个“真理”项目，惊人的“真理”泄漏
+如今违约的房地产数量正在增加，随着各地疫情加重，房地产市场将进一步恶化。习近平政府也想要通过公共投资创造就业机会，以缓解社会紧张情绪。为了迅速实施基础设施投资，地方政府债券的发行可能会继续增加，但是依靠债务的经济运行毕竟是竹篮打水一场空，更多的地方政府将陷入财务困境，而为地方政府债务提供担保的商业银行的资产负债也将上升。
 
-that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
-他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
+鹤岗市的财政崩溃只是冰山一角。如果美元利率因全球物价压力和美国多次加息而真正上升，中国的投资者和金融机构将不愿意再购买地方政府债券，而这一旦成为现实，“灰犀牛”事件将会发生——中国的资本外流可能会急剧增加。
 
-Is this the beginning of more information?
-这将会是更多信息的开始吗？
+房地产市场的恶化和疫情影响再加上地方政府财的恶化，将导致中共国经济崩溃一触即发。
 
-Do you think that certain individuals real scientists inside the apparatus
-你认为系统内部的某些真正的科学家
+新闻来源：[**中国で地方政府が事実上の「財政破綻」、これから中国で起きる「大変なシナリオ」**](https://news.yahoo.co.jp/articles/e1ecc39972f21a8544db1ca86c7b0ce5fcab8a8a?page=2)
 
-that’s we’ve had enough we got to stop this madness, Dr. Malone.
-我们已经受够了，我们必须停止这种疯狂，马龙博士
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-I think it’s the DOD saying they’ve had enough of this.
-我认为是国防部说他们已经受够了
-
-And I’m not sure if this came from a JAG’s office
-我不确定文件是否来自美国陆军总检察长的办公室
-
-because they’re stamped like they are
-因为它们看起来像
-
-based on the file names or if it came from DARPA
-基于文件名或是来自国防高级研究计划局
-
-But having looked at these again and again in recently communicating with the DOD JAG
-但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
-
-it’s trying to smoke out whose office this might have come out of.
-文件，在试图找出这可能来自谁的办公室
-
-I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
-我认为现在是国防部终于出来说够了
-
-And throwing Tony under the bus, and it could well be the DARPA’s doing it
-把托尼推出来，这很可能是国防高级研究计划局做的
-
-so that the fingers don’t get pointed at them
-这样手指就不会指向他们
-
-But there’s in my mind, these Veritas documents look, look absolutely authentic
-但在我看来，这些真理文件看起来，看起来绝对真实的
-
-Steve Bannon
-史蒂夫·班农
-
-So you’re saying this is what I’m sure we’re clear here
-所以你说这就是我确定我们在这里很清楚
-
-You’re saying that, as we know, we take over this year
-你是说，我们知道，今年我们接管了
-
-that the investigations deep into the situation of Wuhan lab, the bioweapons program
-对武汉实验室情况的深入调查，生化武器计划
-
-and American scientific and taxpayer money that went into doing any of that
-以及用于做任何这些的美国科学和纳税人的钱
-
-is going to be beyond a hot potato be one of the defining issues going forward
-将超越烫手的山芋成为未来的决定性问题之一
-
-what actually happened?
-实际发生了什么
-
-You’re saying right now look at the Pentagon Papers
-你说现在看看五角大楼文件
-
-there are people either officially or unofficially, making a move on Tony Fauci
-有人正式或非正式地在对托尼·福奇采取行动
-
-in your mind and you know, DARPA and you know the DOD pretty well
-你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
-
-you’ve been consulted there for many, many years. Correct?
-你已经在那里做了很多很多年的咨询工作, 对吗？
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-Correct. And I’m also in close communication with the senator and his investigations office
-正确，我也在与参议员和他的调查办公室保持密切联系
-
-I don’t want to speak for the senator but this this is one of those situations
-我不想为参议员说话，但这是其中一种情况
-
-If you spent decades dealing with DOD and the hill like I have
-如果你像我一样花了几十年的时间与国防部和国会山打交道
-
-this is how the game gets played
-这就是游戏的玩法
-
-This is how the Kabuki works in DC
-这就是歌舞伎在华盛顿中的运作方式
-
-is they’ll turn on each other when it looks like somebody is going to have to take the fall
-当看起来有人将不得不背锅时，他们是会互相攻击的
-
-And it looks to me like that has now happened in DOD has had enough
-在我看来，现在的情况是国防部已经受够了
-
-It’s important to know that Tony bushwhack DOD after the anthrax attacks
-重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
-
-and grabbed a big chunk of their budget
-而且敛走了他们预算的很大一部分
-
-so there could be some payback opportunity here
-所以这里可能是国防部反击的机会
-
-* * *
-
-Date:01/15/2022
-原视频标题: The DOD Is Throwing Fauci Under The Bus
-国防部正在把福奇暴露出来
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
-任务编号：KE351（3493）
-视频时间段 : 0:00-2:22
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

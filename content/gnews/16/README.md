@@ -2,22 +2,27 @@
 ---
 
 
-## 建造中的新中国联邦，不受物理地理限制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873630/)
+## 多伦多机场要求取消对入境旅客的病毒检测
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873774/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/建造中的新中国联邦-不受物理地理限制-scaled.jpg)
-要记住上帝给了每个人天赋的人权和才能。但是，你有这种能力以后你要让你的潜力发掘出来，不管你是做哪一行哪一业，你要成长提高，而且要变成国际化的、有包容性的，所以新中国联邦就替代了中共国体制。美国、加拿大、欧洲、新西兰、澳大利亚、全世界， 我们这些海外的华人，凝聚起来，就是新中国联邦。你们凝聚起来传递这种信息，那么中共他们就知道自己受到了巨大的挑战，不管你是在哪个国家，你都在民主法治自由下，你都可以繁荣。我们地理上的中心并不是重要的，我们分布在全世界，我们每个人都参与。在法治之下，你自由言论表达不同意见，这就是最强大的每一天。尽管新中国联邦成长只有18个月，你看看18个月取得了多大的成就。
+采编：文莱            编译撰稿：苦尽甜来 (文來）
 
-*发布：开智则立*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-27-edited.jpg)图片来源：TS
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+据【多伦多太阳报】1月17日报道，加拿大航空、西捷航空和多伦多机场的首席卫生官当天联名向联邦政府和安省卫生部致信，要求当局立即放弃对该国际机场的入境人员所执行的强制性“新冠病毒”检测要求。
+
+报道称，多家航空公司以及多伦多皮尔逊机场的卫生官员认为，由于目前所有入境加拿大的旅客在登上飞往该国的飞机之前都必须进行“新冠病毒”阴性结果检测，并且必须完全接种疫苗，因此毫无必要在抵达后再进行第二次检测。
+
+公开信指出：由于疫情及疫苗接种政策所造成的一线工作人员大量短缺，加之政府不断加大在机场对国际入境者的检测力度，从而进一步加重了相关工作人员的劳动压力，并因此导致实验室处理能力显着下降。
+
+据悉，最近一周的检测报告数据显示，多伦多机场进行了约13万次的病毒检测，平均阳性率为 3%。与此同时，该市社区的平均阳性检测率却高达30%。但由于严重缺乏充足有效的测试手段，因此实际的病毒感染人数可能会更多。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://torontosun.com/news/national/air-canada-westjet-and-pearson-asks-feds-to-drop-mandatory-covid-tests-for-arrivals](https://torontosun.com/news/national/air-canada-westjet-and-pearson-asks-feds-to-drop-mandatory-covid-tests-for-arrivals)
 
  
 
