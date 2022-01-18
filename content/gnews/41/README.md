@@ -2,27 +2,28 @@
 ---
 
 
-## 前英保守党领袖史密斯爵士：中共是威胁，而不是竞争者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874954/)
+## 【中日财经爆】百世集团收到纽交所警告 或在6个月后被退市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1874985/)
 
-#### 翻译/撰稿：zzballack
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-27.jpg)[图片来源](https://www.google.com.hk/search?q=%E7%99%BE%E4%B8%96%E5%BF%AB%E9%80%92&amp;newwindow=1&amp;rlz=1C1YKST_enUS900US901&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwi6gP_5-rr1AhUDJEQIHUstCHQQ_AUoAXoECAIQAw#imgrc=w90fqdbTC90AeM)
+百世集团今天(1月18日）发布公告称：公司收到纽约证券交易所于2022年1月5日发来的信函，通知本公司不符合纽交所继续上市标准中适用的价格标准，因为自2022年1月4日起，在连续30个交易日内，本公司美国存托凭证(ADS)的平均收盘价为每ADS不足1.00美元。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-34.jpg)图片来源：泰晤士报
-据英国《每日邮报》（Daily Mail）1月16日报道，前英国保守党领袖伊恩·邓肯·史密斯爵士(Iain Duncan Smith) 1月16日在接受天空新闻采访时表示，像中共特工李贞驹渗透国会和议员这类事件只是中共大规模行动的冰山一角。但是历届政府一直对此熟视无睹。
+本公司在收到通知后有6个月时间重新符合最低股价要求，在此期间本公司的美国存托凭证将继续在纽交所上市交易，本公司目前遵守所有其他继续上市的标准，该通知并不影响公司的业务运营。
 
-史密斯爵士说：“多年来，中共在某种程度上掌控了我们，以至于我们现在在一系列的项目和条款上完全依赖他们。太多的官员和前部长们从中共那里拿了钱。中共一直在尝试说服、渗透和颠覆英国政治体系内的人，这已不是什么新鲜事。但最糟糕的是，太多的政府似乎过于小心谨慎，不敢对中共强硬。我们要认识到中共是一个威胁，而不是一个竞争者，这一点非常重要。”
+据资料显示，百世集团成立于2007年，于2017年9月20日正式登陆美国纽交所上市（股票代码：BEST）。
 
-1月13日，英国军情五处（MI5）向国会议员们发送了一个罕见的警告：58岁的华裔律师李贞驹疑似中共间谍。
+需要注意的是，作为国内早期最知名的快递公司之一，百世集团在国内的快递业务此前已经打包转让给J&T极兔速递。双方于10月29日签订的最终协议，该业务以68亿元人民币的价格转让，目前该交易已完成交割。
 
-据《星期日泰晤士报》 (The Sunday Times)报道，英国特勤局表示，外国干涉是对民主的“活生生威胁”。
+不过，这次交易仅仅是快递业务，并不涉及百世集团包括供应链管理、空运、空运和环球等其它业务。当时百世集团表示，将集中精力和资源，加快业务发展，推动供应链、快运、国际业务的深度融合，打造国际化的综合智慧供应链服务。
 
-前MI5负责人、公共生活标准委员会（committee of standards in public life）的主席乔纳森·埃文斯勋爵（Jonathan Evans）说：“这个案件表明，我们应该填补漏洞，因为有相当强大的力量试图通过议会和金钱给英国政治带来不当影响。我们委员会在去年的一份报告中提出了一些建议，但政府并没有遵循建议和采取行动。”
+消息来源:
 
-郭文贵先生在1月17日的大直播说，中共在英国至少安插了70多个间谍，李贞驹只是冰山一角。从这次大流行可以看出，中共在全世界的蓝金黄渗透程度远远超出了人们的想象。
+[百世集团收到纽交所退市警告！国内业务已68亿“卖身”极兔](https://news.mydrivers.com/1/809/809980.htm)
 
-新闻来源：[China is a threat… NOT a competitor’: Iain Duncan Smith accuses ‘successive governments’ of being ‘asleep at the wheel’ over Beijing’s influence at heart of Westminster while ex-MI5 chief says ministers failed to act on warnings](https://www.dailymail.co.uk/news/article-10407627/Iain-Duncan-Smith-accuses-successive-governments-asleep-wheel-China.html)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

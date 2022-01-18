@@ -2,99 +2,262 @@
 ---
 
 
-## 01/18每日播报|社媒消息：班农先生 埃博尼·博登
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1874976/)
+## 2022/01/18 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1875018/)
 
-BY:[秘翻新闻](https://gtv.org/broadcast/watch/61e681c7533c672fca7ed17a)
+### 观察者网: “此内容目前不可用” 脸书屏蔽俄罗斯代表团在维也纳谈判的官方页面
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/46D4B045-2126-48C4-86F9-7E15072BA4E8.jpg?asset_id=389F197D-8BF1-4B44-B03D-D61300CE588B&amp;size=3665)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/46D4B045-2126-48C4-86F9-7E15072BA4E8.jpg?asset_id=389F197D-8BF1-4B44-B03D-D61300CE588B&amp;size=859)
+*俄罗斯代表团推特账号发布的相关信息（图片来源：观察者网）*
 
-**2022-01-1**8
+**评论：**推特屏蔽了俄罗斯代表团在维也纳谈判的官方页面，接而又在脸书被屏蔽。这就是大科技公司打压言论自由，进行言论审查的证据。
 
-**1． 班农先生1月17日在盖特发文：** 由家长接管学校董事会；由公民接管选举委员会；由医生接管医疗委员会！ 让我们开始革命！
+### 新华网:“强种”行动 聚焦种业关键技术突破
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/EF11E47A-2500-4E9F-8DB9-D6780B587719.png?asset_id=43A89DE3-77A2-4B63-B5C5-C5A8DCFA5216&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/EF11E47A-2500-4E9F-8DB9-D6780B587719.png?asset_id=43A89DE3-77A2-4B63-B5C5-C5A8DCFA5216&amp;size=900)
+*（图片来源：新华社记者 张丽芸 摄）*
 
-[https://gettr.com/post/posr1u6cb1](https://gettr.com/post/posr1u6cb1)
+**评论：**中共大力推进粮食“强种”行动，意在闭关锁国，进行更邪恶的极权统治作准备。
 
-**2. 战斗室1月18日在盖特发文：** 前俄亥俄州财政部长肯尼斯·布莱克威尔 (Kenneth Blackwell)在接受《班农战斗室》采访时说：“美国的女性化以及马克思主义者和大政府的社会主义者对美国家庭单位的破坏，以创造对政府的依赖性，这样他们就可以控制你。中共和大政府的马克思主义者都明白，如果他们能使美国文化女性化，他们就能在战场上获得优势。”
+### 央视新闻:美式“甩锅主义”分析
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/86C326D0-12CB-47A3-BE3B-99A831435590.jpg?asset_id=6ABE7D18-21BD-41D2-A1A4-BC23CA3F3397&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/86C326D0-12CB-47A3-BE3B-99A831435590.jpg?asset_id=6ABE7D18-21BD-41D2-A1A4-BC23CA3F3397&amp;size=1024)
+中国日报称美国政府是“甩锅之王”（图片来源：中国日报 罗杰）
 
-[https://gettr.com/post/poujkt75ce](https://gettr.com/post/poujkt75ce)
+**评论：**中共利用自己的官媒制造邪说，并提前出手。把当下制造的生化病毒危机、超限经济危机、意识形态危机等，全部甩锅给美国。
 
-**3. 国家脉动1月18日在盖特发文：** 一项调查的数据显示：近50%的民主党选民希望将未接种疫苗的人关押在隔离营。 【盖文转报道，拉斯穆森报导 (Rasmussen Reports)1月13日公布的民调数据显示，59%的民主党人希望看到不愿意接种新冠疫苗的人被强制隔离和监禁，45%的人赞同为未接种者设立隔离营的想法。民主党人还支持更严厉的措施，包括对不愿接种疫苗的美国人进行罚款，以及对大药厂的批评者进行刑事处罚。59%的民主党选民赞成政府的政策，如果公民拒绝接种疫苗，那么除了紧急情况外，他们必须一直被关在家里。但是在所有的受访者中，61%的人反对这一暴虐的提议，包括79%的共和党人和71%的无党派选民。另外，大约48%的民主党选民表示，对于那些公开行使其第一修正案权利，在社交媒体、电视、广播以及在线或者数字出版物上质疑现有新冠苗功效的人，联邦和州政府应该能够进行罚款或监禁。只有27%的选民，包括14%的共和党人和18%的无党派选民，赞成对疫苗批评者进行刑事处罚。在对福奇的态度上，不同党派选民也存在很大分歧。75%的民主党人赞成福奇的压迫和控制政策，而只有21%的共和党人支持福奇。】
+### 开封市人民政府：382.01亿元 河南省发行2022年全国首单地方债
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/5980E2D5-071D-493B-90D5-756C78FEA215.jpg?asset_id=3D49E166-6B86-4514-B553-DFE6BB8BC249&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/5980E2D5-071D-493B-90D5-756C78FEA215.jpg?asset_id=3D49E166-6B86-4514-B553-DFE6BB8BC249&amp;size=640)
+*（图片来源：界面新闻）*
 
-[https://gettr.com/post/pou876b0a3](https://gettr.com/post/pou876b0a3)
+**评论：**有钱谁去赊账，河南很牛，开了2022先河，接下来呢？虽说地方债成内地官员政绩考核重要指标，留烂帐离任也究责。可是跳楼了呢？
 
-**4. 盖特的全球通讯主管埃博尼·博登1月18日在盖特发文：** 美国作家内奥米·沃尔夫 (Naomi Wolf)去年因猜测新冠疫苗会扰乱妇女的月经周期，被推特以“散播疫苗谎言”为由逐出平台。现在主流媒体开始报道这一事实。 推特什么时候向沃尔夫博士道歉，并允许她回到该平台？ 【盖文转《纽约时报》报道，有报告说女性在接种了新冠疫苗后经期不稳定。有人说她们的月经推迟了，有人报告了比平常更严重的出血或疼痛性出血。一些多年没有月经的妇女甚至说她们又来了月经。1月13日发表的一项研究表明，女性的月经周期在接种新冠疫苗后确实发生了变化。报告说，接种了疫苗的女性的月经周期比未接种女性的略长。】
+### 中国网：国家卫健委：已针对“奥密克戎变异株”建立了特异性核酸检测方法
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/774FBDC5-6BCE-4181-8C9B-98F987B48B3C.jpg?asset_id=8F531C7C-87BB-42E6-8D69-6A0E48934C5E&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/774FBDC5-6BCE-4181-8C9B-98F987B48B3C.jpg?asset_id=8F531C7C-87BB-42E6-8D69-6A0E48934C5E&amp;size=620)
+*奥密克戎示意图 （图片来源：pixabay）*
 
-[https://gettr.com/post/poyu126d8e](https://gettr.com/post/poyu126d8e)
+**评论：**是想说明现行第八版《新型冠状病毒肺炎防控方案》公布的核酸检测试剂引物和探针靶标区域可以应对奥密克戎变异株检测呢？还是想说第八版《新型冠状病毒肺炎防控方案》公布的核酸检测试剂引物和探针靶标区域提前“预估”了奥密克戎变异株，这种算命是怎么做到的
 
-**5. 罗伯特马龙博士1月18日转发了**《The Desert Review》一篇关于脂质纳米颗粒的文章： 1989年，罗伯特·马龙博士发明了允许mRNA转移到哺乳动物细胞的平台技术。马龙博士的发明通过将核酸包装在带有正电荷的脂质体中而使其稳定。脂质体可以将药物或其他物质比如mRNA带入组织。这些脂质纳米颗粒是全球正在广泛强制使用的实验性mRNA疫苗的基础。然而，自2010年以来，科学文献已经认识到这些带正电荷的脂质纳米颗粒具有毒性。以色列特拉维夫大学在2010年的一项研究表明，这些脂质纳米颗粒极大地增加了小鼠的炎症标志物，比如白细胞介素、干扰素、肿瘤坏死因子-阿尔法(Tumor necrosis factor α)和Toll样受体 (Toll-like receptor)。此外，脂质治疗组的炎症细胞因子（cytokines）比对照组高75倍。最近发表的一项预印本研究测试了带正电荷的脂质纳米颗粒对小鼠的炎症影响。研究人员给小鼠注射了各种类型的脂质纳米颗粒，分别进行皮内注射、皮下注射以及鼻内注射。结果令人震惊，接种了脂质纳米颗粒的小鼠迅速出现了明显的炎症迹象，炎症细胞因子显著升高，特别是接受鼻内注射的小鼠很容易受到影响。小鼠在接种了脂质纳米颗粒后，有80%在24小时内死亡。科学家们总结说：“脂质纳米颗粒并不只在某个特定部位产生炎症，它们还快速扩散到其它组织。”
+### 澎湃：专访人口专家贺丹：实施积极生育支持措施，释放生育潜能
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/C4979D68-FC79-42A1-A82F-6BFA93EC776C.jpg?asset_id=C7382E31-D71C-4112-B3F0-C3DB2D512F09&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/C4979D68-FC79-42A1-A82F-6BFA93EC776C.jpg?asset_id=C7382E31-D71C-4112-B3F0-C3DB2D512F09&amp;size=692)
+*中国人口与发展研究中心主任贺丹。 （图片来源：中国人民大学人口与发展研究中心官网）*
 
-[https://gettr.com/post/poy64p5016](https://gettr.com/post/poy64p5016)
+**评论：**砖家站着说话不腰疼，生了孩子难道按照王岐山副主席说的喂草吗？！
 
-**6. 泽伦科医生1月18日在盖特发文：** 自大狂妄的心理变态者们唯一听得懂的语言是失去他们的权力和财富。 必须让历史上最严重反人类罪的设计者和帮凶付出代价。 Facebook、Twitter、YouTube、CNN、MSNBC、《纽约时报》、《华盛顿邮报》、哈佛大学、麻省理工学院、约翰霍普金斯大学、《柳叶刀医学杂志》、《新英格兰医学杂志》、《英国医学杂志》等都应该被打倒。 曝光所有支持极权主义暴政政策的政客，并让他们付出代价。 所有延误治疗、造成无辜者非正常死亡和受伤害的医生和所谓的医疗专业人士都应该被送上法庭，尽管我知道他们“只是服从命令”。 但人类真正的敌人是在幕后掌控公司和基金会的人，比如贝莱德和先锋集团。查明谁拥有他们，你才会发现真正的敌人是谁。他们非常聪明，利用代理人来掩护自己。他们将开始把福奇、拜登等低级别的反社会分子作为替罪羊扔出来。这些替罪羊必须被判刑，但这些真正的幕后主使也必须从老鼠窝里揪出来。否则，他们会在未来再次如法炮制。
+### 央广网：国家统计局：2021年中国经济总量占全球经济比重预计超过18%
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/B428DB44-A05D-4F82-B0B3-B65691C17D21.jpg?asset_id=AD0A52F8-73A8-4163-BEE5-1BBCA9AEBEC5&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/B428DB44-A05D-4F82-B0B3-B65691C17D21.jpg?asset_id=AD0A52F8-73A8-4163-BEE5-1BBCA9AEBEC5&amp;size=1024)
+*（图片来源：CFP）*
 
-[https://gettr.com/post/poyao85155](https://gettr.com/post/poyao85155)
+**网友评论：**全世界又死人又倒霉，只有中共国全部增长、增长、增长
 
-[https://gettr.com/post/poy5fe9be8](https://gettr.com/post/poy5fe9be8)
+### 澎湃：全年人口净增长48万，意味着什么
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/8BAA1F90-B102-40D0-9F8C-BAADD64EB81F.png?asset_id=A6335F8A-7ADA-4C53-BFD2-C73A44ACA449&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/8BAA1F90-B102-40D0-9F8C-BAADD64EB81F.png?asset_id=A6335F8A-7ADA-4C53-BFD2-C73A44ACA449&amp;size=1024)
+*（图片来源：青峰侠／西瓜视频截图）*
 
-[https://gettr.com/post/poy5fg96a3](https://gettr.com/post/poy5fg96a3)
+**评论：**人口总量的基本盘较大，对未来亦不必过分担忧，人口男女比例严重失调是真的，一夫一妻不需要担忧吗。国家统计局局长宁吉喆表示的，我国人口总量未来一段时期将保持在14亿人以上，云山雾绕的飘渺的话，这种算命式的发言不需要承担责任吗？未来，未来到哪一年
 
-[https://gettr.com/post/poy7qq7f07](https://gettr.com/post/poy7qq7f07)
+### 央视新闻：国家统计局：人口总量将保持基本稳定
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/BEE3EE34-08BD-43E3-A92E-59B2B39ABC1F.jpg?asset_id=F7EEB26A-D566-45C4-BA9F-8E824BF24CD0&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/BEE3EE34-08BD-43E3-A92E-59B2B39ABC1F.jpg?asset_id=F7EEB26A-D566-45C4-BA9F-8E824BF24CD0&amp;size=1024)
+*（图片来源：央视新闻）*
 
-**7. 大纪元 – 中国内幕 1月17日发推说：** 中共正在限制人们出境，甚至包括美国的永久居民或美国公民。 根据法律规定，中共当局有广泛的自由裁量权来阻止外国公民离开中共国。 【推文转报道，2021年，许多中国网民在社交媒体上透露，申请护照很困难。有网友回忆说，持有旅行证件的人在机场接受出境检查时，官员们问了他们一些棘手的问题，并仔细检查了他们的护照和签证，甚至有人说他们的护照被检查员当场撕毁。中共移民管理局（NIA）在去年7月证实，中共政府正在收紧对出境人员的规定。】
+**评论：**党媒喉舌各个口都是在安抚人口问题，国家统计总局这就算是辟谣了，而至于辟谣大家都懂的
+
+### 人民网：习近平出席2022年世界经济论坛视频会议并发表演讲
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/7A729FBF-E242-424B-BB29-85FB76B10EA0.png?asset_id=C81BB283-871B-4AFD-A6E0-D1491D3660DA&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/7A729FBF-E242-424B-BB29-85FB76B10EA0.png?asset_id=C81BB283-871B-4AFD-A6E0-D1491D3660DA&amp;size=700)
+*1月17日，习近平在北京出席2022年世界经济论坛视频会议并发表题为《坚定信心 勇毅前行 共创后疫情时代美好世界》的演讲（图片来源：新华社记者 黄敬文 摄）*
+
+**评论：**为什么对国内讲话的时候绝口不提改革开放呢？世界经济论坛怎么能不提世界经济贸易自由港的香港呢？
+
+### 国家邮政局发出通知：严防境外疫情通过寄递渠道输入 国家邮政 2022-01-17
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/1EE0E640-8CA4-42CB-B628-0C2A8A2A5F10.jpg?asset_id=890CE24D-5D63-4ABA-99C8-D2A895C9BCBE&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/1EE0E640-8CA4-42CB-B628-0C2A8A2A5F10.jpg?asset_id=890CE24D-5D63-4ABA-99C8-D2A895C9BCBE&amp;size=700)
+*（图片来源：搜狐网）*
+
+**评论：**在中共国，正常的程序也要提高到政治思想高度。劳民伤财只是为中共恶党举办”北京冬奥会”，往中共自己脸上贴金。
+
+### 澎湃新闻:国内首个新冠口服药VV116，有望下半年申请上市
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/21CF0795-A832-4A1C-A1CE-BDE0A7F2205F.jpg?asset_id=2131E07F-10D2-4EBB-8E42-65984C0352CB&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/21CF0795-A832-4A1C-A1CE-BDE0A7F2205F.jpg?asset_id=2131E07F-10D2-4EBB-8E42-65984C0352CB&amp;size=480)
+*（图片来源：澎湃新闻微博）*
+
+**评论：**中共病毒和疫苗计划的收尾阶段，就是推出精准杀人的口服药。结果就是中共对病毒、疫苗、口服药造成的死亡不负任何责任，所有使用者自己买单。
+
+### 澎湃新闻:朝鲜疑又试射短程弹道导弹，中方：半岛形势走到今天事出有因
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/C1E40D38-C69C-4CCC-936F-E88D4E0FE186.jpg?asset_id=45018422-B730-4DDF-B6FF-12EB750A9C72&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/C1E40D38-C69C-4CCC-936F-E88D4E0FE186.jpg?asset_id=45018422-B730-4DDF-B6FF-12EB750A9C72&amp;size=500)
+*（图片来源：外交部官网）*
+
+**评论：**此文表明中共不仅仅是朝鲜挑衅行为的共谋，还在经济上支持朝鲜，并在军事上协同合作。
+
+### 新浪：世卫组织：“新冠肺炎疫苗实施计划”已分发10亿剂疫苗
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/4A7B4A47-9D4B-4E8B-83FC-0E87E70B816E.png?asset_id=BA284D56-BB48-44E4-A665-2841AD6308DF&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/4A7B4A47-9D4B-4E8B-83FC-0E87E70B816E.png?asset_id=BA284D56-BB48-44E4-A665-2841AD6308DF&amp;size=1024)
+*（图片来源：视频截图）*
+
+**评论：**“网友评论：世界卫生组织，早已沦为CCP和邪恶势力的杀人工具！助纣为虐！”
+
+谭德赛，福奇，纳粹党利用少数人的贪婪，邪恶，毁了整个人类
+
+### 新浪：国家统计局回应出生人口减少：育龄妇女减少500万，疫情推迟年轻人婚育
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/A4AEA656-F16A-4098-8328-5F638DC56627.jpg?asset_id=1226DAF2-524A-46D7-9F19-49CEFAED89D3&amp;size=2560)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/A4AEA656-F16A-4098-8328-5F638DC56627.jpg?asset_id=1226DAF2-524A-46D7-9F19-49CEFAED89D3&amp;size=750)
+*（图片来源：视觉中国）*
+
+**评论：**生不起，养不起，死不起，男女比例严重失调，以及对未来生活的恐惧，这些和疫情没有半毛钱关系，人口减少也不是一年两年疫情能造成的
+
+### 新浪：专家讲述出生人口持续减少：会造成民族消亡
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/F32A5376-F78E-4940-9391-CBDD091FA168.png?asset_id=989510FC-187E-499D-8717-5B93456CD72C&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/F32A5376-F78E-4940-9391-CBDD091FA168.png?asset_id=989510FC-187E-499D-8717-5B93456CD72C&amp;size=1024)
+*（图片来源：视频截图）*
+
+**评论：**从古至今会造成民族消亡的只有暴政，昏君和纳粹统治
+
+### 中国新闻网：香港新增7宗病例 宠物店女职员感染德尔塔病毒
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/E8AA44F4-C24E-4419-A6F1-4FFAE23F5CFD.png?asset_id=A821664F-F9F5-4294-996C-AD671B081493&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/E8AA44F4-C24E-4419-A6F1-4FFAE23F5CFD.png?asset_id=A821664F-F9F5-4294-996C-AD671B081493&amp;size=1024)
+*（图片来源：香港01新闻视频截图）*
+
+**评论：**北，上，广，深，港，内陆，核心城市，敏感地区都现疫情，怎么都感觉接下来会有大事情发生，要军管吗，是疫情还是什么别的原因呢
+
+### 新浪：重要通知！今晚调油价 加满一箱油将多花13.5元！
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/F54306CF-F28B-491D-8D12-EEC998C69B65.jpg?asset_id=02C32B10-77C6-4E03-8FAE-735559EEC05B&amp;size=949)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/F54306CF-F28B-491D-8D12-EEC998C69B65.jpg?asset_id=02C32B10-77C6-4E03-8FAE-735559EEC05B&amp;size=949)
+*（图片来源：央视财经）*
+
+**评论：**又开始割韭菜了，搬石头国的油价什么时候降过
+
+### 网易：北京：尽量减少购买境外商品 收到境外邮件要注意这些
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/9E2D908A-98C6-4E6E-935F-29401BC5E699.png?asset_id=80AFDD98-85ED-4F53-B345-6291BEAA9F36&amp;size=591)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/9E2D908A-98C6-4E6E-935F-29401BC5E699.png?asset_id=80AFDD98-85ED-4F53-B345-6291BEAA9F36&amp;size=591)
+*（图片来源：网易新闻）*
+
+**评论：**是怕花外汇吧，放心老百姓买不了什么东西，外汇都是盗国贼弄走的
+
+### 网易：首次披露！出镜忏悔、70岁的正部级“老虎”，自动投案、被判死缓
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/E9D28007-9A3D-4F48-B368-D62043B1E6F4.png?asset_id=91D0CD87-DBF5-48D9-A05C-6C69834048A9&amp;size=640)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/E9D28007-9A3D-4F48-B368-D62043B1E6F4.png?asset_id=91D0CD87-DBF5-48D9-A05C-6C69834048A9&amp;size=640)
+*（图片来源：网易新闻）*
+
+**评论：**连三岁小孩子都知道死缓基本上死不了，这种戏演演而已没用，纳粹党敢严判吗？它们只敢欺负手无寸铁的老百姓
+
+### 网易：山西证券：控股子公司因乐视网证券虚假陈述纠纷被提起诉讼 涉案金额45.71亿元
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/97AE4F60-6AD2-4B48-891A-BF1A933574E9.jpg?asset_id=902E11B5-41D4-4DB7-B610-01030EEE4B19&amp;size=731)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/97AE4F60-6AD2-4B48-891A-BF1A933574E9.jpg?asset_id=902E11B5-41D4-4DB7-B610-01030EEE4B19&amp;size=731)
+*（图片来源：全网搜截图）*
+
+**评论：**记住教练教给我们看问题的方法，钱从哪儿来的，钱又去哪了？
+
+### 搜狐：习近平：搞你输我赢的零和博弈是无济于事的
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/955C11DA-1C46-4184-A551-01FF505AE313.png?asset_id=30804504-C79E-4237-BEA7-4CE9E0BA2C57&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/955C11DA-1C46-4184-A551-01FF505AE313.png?asset_id=30804504-C79E-4237-BEA7-4CE9E0BA2C57&amp;size=1024)
+*（图片来源：视频截图）*
+
+**评论：**俺们读书少，太阳的话离神的境界越来越近了，什么叫你输我赢的零和博弈，稳赢吗？
+
+### 搜狐：人均GDP突破1.2万美元，中国将成高收入国家吗？宁吉喆回应
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/B397D418-F145-42AC-9396-1E1D8F628173.jpg?asset_id=D9EB434B-5B3B-419A-A36F-B533F08487A2&amp;size=480)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/B397D418-F145-42AC-9396-1E1D8F628173.jpg?asset_id=D9EB434B-5B3B-419A-A36F-B533F08487A2&amp;size=480)
+*（图片来源：中新网视频截图）*
+
+**评论：**统计局好像没把克强总理的话放心上，那些收入不足3000的低端人口不在计算范围之内是吗
+
+### 搜狐：韩国联合参谋本部：朝鲜向东部海域发射不明飞行器
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/247315B7-3338-440C-8596-7278DEB5EEA9.jpg?asset_id=40E0D293-8F5E-49F3-891F-7C8FFDB171AF&amp;size=500)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/247315B7-3338-440C-8596-7278DEB5EEA9.jpg?asset_id=40E0D293-8F5E-49F3-891F-7C8FFDB171AF&amp;size=500)
+*（图片来源：韩联社／朝中社）*
+
+**评论：**前日开来搬石头国的专列火车拉了什么回朝鲜呢？
+
+### 两家明星医院被停诊三个月背后，是民营医院的悲歌 八点健康2022-01-17
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/C6CF881E-548B-4DB0-ABAA-4E6CC23B618C.png?asset_id=F96DCEAB-2145-4FB6-8407-14F4EC49720B&amp;size=690)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/C6CF881E-548B-4DB0-ABAA-4E6CC23B618C.png?asset_id=F96DCEAB-2145-4FB6-8407-14F4EC49720B&amp;size=690)
+*（图片来源：视觉中国）*
+
+**评论：**在“一切是党的，一切听党的，党叫干啥就干啥”的中共邪恶统治下，民营企业都是中共手中待宰的羔羊。
+
+### 疑似哈国暴乱幕后指挥者发声：我策划了抗议活动，我们的总部在乌克兰 极目新闻 2022-01-17
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/028284C6-BE7D-48E1-83D9-9629F13DC43B.jpg?asset_id=AE6420AF-E83C-452D-9B45-CA0B800FEFA0&amp;size=671)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/028284C6-BE7D-48E1-83D9-9629F13DC43B.jpg?asset_id=AE6420AF-E83C-452D-9B45-CA0B800FEFA0&amp;size=671)
+*穆赫塔尔∙阿布利亚佐夫（图片来源：网络）*
+
+**评论：**自由民主与专制独裁势不两立。专制独裁必定产生腐败，用高压统治控制民意，国家必定走向衰败，必定引起民众的反抗。
+
+### 法国国际广播电台中文网页:德国一驻华记者：“受到监视和跟踪”
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/70D90602-8876-4B54-9B02-D00296561C9A.jpg?asset_id=A9EAEDE7-3FA5-4301-8F0F-38CE7AFB263B&amp;size=719)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/70D90602-8876-4B54-9B02-D00296561C9A.jpg?asset_id=A9EAEDE7-3FA5-4301-8F0F-38CE7AFB263B&amp;size=719)
+*中国、欧盟旗帜（图片来源：AFP）*
+
+**评论：**中共在冬奥会对国际记者进行全方位的监控和管控，阻断国际与中国人民的信息通道，并打压人权和言论自由，把冬奥会变成了欺骗全球的平台。
+
+### 大纪元：只能鼓掌不能叫好 北京如临大敌迎冬奥
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/B25DE477-EAA3-42F9-BD2C-8A4FAC86785E.jpg?asset_id=036C7DEE-F925-4C10-91AC-E18C4C520C5F&amp;size=450)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/B25DE477-EAA3-42F9-BD2C-8A4FAC86785E.jpg?asset_id=036C7DEE-F925-4C10-91AC-E18C4C520C5F&amp;size=450)
+*图为2021年12月16日北京一景。(图片来源：Andrea Verdelli/Getty Images)*
+
+**评论：**如果真的迎接世界各地运动员是如临大敌，那直接不办奥运不行么？不行，不办怎能体现我天朝上国的伟大和习太阳的治国表率？更重要的，是不办怎么勾兑？
+
+### 大纪元：上海再新增多名无症状感染者
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/80DA56D4-2F7F-40E6-9500-1074F5C14FF2.jpg?asset_id=D1DFD812-C155-4E63-AE99-150432A4DDA7&amp;size=600)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/80DA56D4-2F7F-40E6-9500-1074F5C14FF2.jpg?asset_id=D1DFD812-C155-4E63-AE99-150432A4DDA7&amp;size=600)
+*2022年1月12日傍晚，普陀区的中环一号小区开始封控，当晚7点45分开始居民排队核酸检测。（图片来源：知情者提供）*
+
+**评论：**当前病毒危机和疫苗灾难的背景下，城市越大风险越大。只要是有确诊被曝出，基本可以断定影响一片。因为病毒的强传染性决定了从来不会一个个感染而是分散式批量感染。
+
+### 大纪元：专家：中国疫情死亡人数或超官方数字百倍
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/A28E7F63-6DA0-4BA9-85BC-57FE9ABC1A5D.jpg?asset_id=5358B23A-9FA6-4CC4-9E21-2114239FC413&amp;size=450)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/A28E7F63-6DA0-4BA9-85BC-57FE9ABC1A5D.jpg?asset_id=5358B23A-9FA6-4CC4-9E21-2114239FC413&amp;size=450)
+*2022年1月11日，西安市卫生员穿着防护服在一个商场外面喷洒消毒剂。(图片来源：STR/AFP via Getty Images)*
+
+**评论：**死亡数字百倍于官方通告数字这恐怕也只是保守估计。最可悲的是在中共治理下的中国那些死去的人永远都不会再被提起，他们就像从来没有来到过这个地球上一样被中共抹去。甚至连一串冰冷数字之一都算不上。不灭掉中共，不改变中共的体制，这样的事情将可能发生在我们任何一个人身上。
+
+### 法广：中共政法促加大反垄断等领域司法力度
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/EF63A201-011F-4BF2-A420-60938A5B9113.jpg?asset_id=2DC005CF-9A97-4CDF-B77E-67C4827A32DE&amp;size=719)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/EF63A201-011F-4BF2-A420-60938A5B9113.jpg?asset_id=2DC005CF-9A97-4CDF-B77E-67C4827A32DE&amp;size=719)
+*关于中国政法的报道图片（图片来源：网络）*
+
+**网友评论：**别被舆论带歪了！这才是中共的目的：
+
+1. 反垄断：抢劫民企、私企财富，抢劫政敌财富；
+
+2. 反恶意炒作：管控舆论，摧毁政敌舆论机器；
+
+3. 反不正当竞争：决策权反正不在你手里，偷税漏税嫖娼涉黑，按需供应……
+
+### 法广：达沃斯线上开幕 习近平称欢迎各种资本在中国合法依规经营
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/2D6E40B9-C784-4A26-8A7C-1D3B78EEE900.jpg?asset_id=909B524D-D98B-4B23-A96B-2AA3ABD1FC04&amp;size=719)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/2D6E40B9-C784-4A26-8A7C-1D3B78EEE900.jpg?asset_id=909B524D-D98B-4B23-A96B-2AA3ABD1FC04&amp;size=719)
+*中国国家主席习近平 资料照片 （图片来源：路透社）*
+
+**评论：**瞧瞧这措词，不用依法，用依规，不是依照国法是依照帮规，黑帮的养，套，杀，现在还有谁上当，好模好样的早都跑了
+
+### 法广：在奥运会举行前 中国多地面临新一波疫情爆发
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/AF02C268-13EB-4023-B7B7-E3756865C9EE.jpg?asset_id=3C30B2F6-FC7B-4736-B73A-2EB0B9827466&amp;size=719)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/AF02C268-13EB-4023-B7B7-E3756865C9EE.jpg?asset_id=3C30B2F6-FC7B-4736-B73A-2EB0B9827466&amp;size=719)
+*2022 年 1 月 9 日，天津市民在新冠病毒检测站的帐篷里进行测试（图片来源：AP）*
+
+**评论：**这样才能凸显纳粹党的伟光正，管得好，控得严，照顾得周（对外国人）
+
+### 法广：中国加强与海湾国家战略与贸易合作
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/1E0A3FF6-FEF1-46E1-B53B-ACA2823CF6F4.jpg?asset_id=95773EE1-00A7-4CDA-B4C5-9E3333DB94B0&amp;size=719)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/1E0A3FF6-FEF1-46E1-B53B-ACA2823CF6F4.jpg?asset_id=95773EE1-00A7-4CDA-B4C5-9E3333DB94B0&amp;size=719)
+*中国伊朗于2021年3月签署25年全面合作协议，2022年1月全面启动（图片来源：AFP）*
+
+**评论：**周毅这个瘟神又出去拉帮结伙干坏事了，看看会见的国家，这是活生生的在美国的棒球场上偷垒
+
+### 自由亚洲电台：朝鲜再次发射疑似近程导弹 中国证实重启丹东至新义州铁路货运
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/08C196D8-BBFE-46CF-B4E9-7B4BC166940F.jpg?asset_id=C4674E4F-FB63-4321-A5D9-569471B2AFA4&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/08C196D8-BBFE-46CF-B4E9-7B4BC166940F.jpg?asset_id=C4674E4F-FB63-4321-A5D9-569471B2AFA4&amp;size=1024)
+*在周末日韩媒体报道称朝鲜货运列车进入中国丹东市后，中国外交部证实与朝鲜已重启铁路货运。（图片来源：新华网）*
+
+**评论：**奥运将至三胖的2发二踢脚换来了铁路的开通，物资滚滚而来，三胖的战略眼光和对时机的掌握远远高于习太阳
+
+### 自由亚洲电台：中国官媒、外交官协同传播假信息 港媒也参与
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/ED653DB7-E2D1-4E27-BEE1-83D6214D8E72.jpg?asset_id=40707D94-1BCB-4ABA-8AA0-FD66F604795A&amp;size=719)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/ED653DB7-E2D1-4E27-BEE1-83D6214D8E72.jpg?asset_id=40707D94-1BCB-4ABA-8AA0-FD66F604795A&amp;size=719)
+*台湾事实查核中心总编审陈慧敏16日在台北的铜锣湾书店就事实查核与民主政治为题演讲。图为台湾台北铜锣湾书店（图片来源：维基百科）*
+
+**评论：**匪谍的统战什么时候有真消息，这点台湾同胞应该最清楚
+
+### 自由亚洲电台：传台湾副总统赖清德将出访洪都拉斯 过境美国
+
+*（图片来源：网络）*
+
+**评论：**2022中期选举，搬石头国一定非常疼，那种组织粉红闹事儿的场面也不足为奇，不要指望土匪流氓会讲文明
+
+### 美国之音：朝鲜今年已试射三波四枚导弹 最新一波从火车发射
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/13452DE2-459D-4E3B-A3D9-3C64C7F023D6.jpg?asset_id=CA091353-8BFB-4854-8EF6-7C7190654FA2&amp;size=408)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/13452DE2-459D-4E3B-A3D9-3C64C7F023D6.jpg?asset_id=CA091353-8BFB-4854-8EF6-7C7190654FA2&amp;size=408)
+*官媒朝中社公布的照片显示朝鲜在某个未披露的地点从火车发射导弹。（图片来源：路透社）*
+
+**评论：**看来开通的铁路不光是运来了物资，或还有军火武器
+
+### 美国之音：白宫：拜登星期五将与岸田文雄视讯会晤 聚焦美日同盟
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/F857C8C8-74C7-4BAF-B337-B3398D08BACE.jpg?asset_id=B2385F60-0206-4327-BB48-1C2C32A1343E&amp;size=408)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/F857C8C8-74C7-4BAF-B337-B3398D08BACE.jpg?asset_id=B2385F60-0206-4327-BB48-1C2C32A1343E&amp;size=408)
+*日本首相岸田文雄在联合国气候变化会议上讲话 2021年11月2日（图片来源：路透社/Hannah McKay/Pool）*
+
+**评论：**谈些什么呢？中东让纳粹偷垒，本国疫情剧增，是在沉默中被蚕食消灭，还是在行动中求得生机
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*收集：安公子偷窥文明，redsparrow，公平五十六，文风-NFSC | 校对：Alicia | PAGE：彼岸花*
+
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-
-> News Analysis🔎[#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is restricting people from leaving the country, and even US permanent residents or US citizens have been caught by this campaign.
-> 
-> Under law, [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) authorities have broad discretion to block foreign nationals from leaving the country. [https://t.co/VMZwm7ZGXp](https://t.co/VMZwm7ZGXp)
-> — The Epoch Times – China Insider (@EpochTimesChina) [January 16, 2022](https://twitter.com/EpochTimesChina/status/1482855187299635202?ref_src=twsrc%5Etfw)
-
-
-
-**8. 英国政治活动家汤米·罗宾逊1月17日在盖特发文：** 未接种疫苗的以色列人因没有“疫苗护照”而被禁止进入电影院，但是他们高唱“像我们这样的人永不放弃”的歌曲进入大楼，它已迅速成为世界各地的首选歌曲。
-
-[https://gettr.com/post/popnjm5599](https://gettr.com/post/popnjm5599)
-
-**9. 埃内斯坎特1月18日在盖特发文：** 当NBA说我们支持正义时，别忘了还有一些人为了金钱和生意而出卖自己的灵魂，比如金州勇士队的老板查马斯·帕利哈皮提亚 (Chamath Palihapitiya)。 他说：“没有人关心维吾尔人的遭遇。” 我对他的这段肮脏言论感到非常失望和厌恶。当种族灭绝发生时，正是这些人、这样的人任其发生！这是他们的耻辱！
-
-[https://gettr.com/post/pox5vm08e6](https://gettr.com/post/pox5vm08e6)
-
-[https://gettr.com/post/poz3nebe67](https://gettr.com/post/poz3nebe67)
-
-**10. Andy再开 1月17日在盖特发文：** 日本TBS电视台1月17日的报道揭穿了中共GDP增加了8.1%的谎言： 恒大兑付遥遥无期，引民众抗议。恒大价值3兆日圆的海南渡假村烂尾，1400亿日圆的建筑被勒令拆除。海南免税岛的游客不如往年，且因疫情不能出门，百姓的购物欲望减少。已经有人在质疑：这哪是共同富裕，明明是共同贫困。就这种经济现状，CCP还不要脸地说去年的GDP增长了8.1%。
-
-[https://gettr.com/post/poseyyb238](https://gettr.com/post/poseyyb238)
-
-**11. 印太新闻 – 关注中共威胁 1月18日发推说：** 英国保守党议员伊恩·史密斯爵士说：“英国需要对中共政权更加强硬。”他说太多政府不敢公开反对中共政府。 【推文转英国《独立报》报道，史密斯爵士在接受天空新闻采访时说：“中共试图‘说服、渗透和颠覆我们政治体系中的人’已经不是什么新鲜事了，而且这只是冰山一角。我们似乎太纵容和绥靖中共，这很危险。我们面对的不是一个欧洲政权或美国政权，它们至少是民主和负责任的。中共是一个残暴的、令人厌恶的政权，他们所追求的是确保不能有人批评他们，这样他们就可以打破他们所希望的每一条规则。所以我们不能只把中共政府当作任何其他政府，当他们开始渗透、开始颠覆议会、开始收买贿赂时，我们必须对它更加强硬。】
-
-
-
-> [#UK](https://twitter.com/hashtag/UK?src=hash&amp;ref_src=twsrc%5Etfw) needs to be more brutal with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s ‘disgusting’ regime, says Duncan Smith
-> 
-> Sir Iain Duncan Smith said too many governments seem ‘too cautious’ about calling China’s communist government out.[https://t.co/IkdZCYpE8e](https://t.co/IkdZCYpE8e)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [January 17, 2022](https://twitter.com/IndoPac_Info/status/1483182226284052480?ref_src=twsrc%5Etfw)
-
-
-
-**12. Dislcose.tv 1月17日在盖特发文：** 根据乐施会（Oxfam）的一份最新报告，在大流行期间，全球最富有的10个人的财富翻了一番，从7000亿美元增至1.5万亿美元。
-
-[https://gettr.com/post/pos00kb13e](https://gettr.com/post/pos00kb13e)
-
-**13. 郭文贵先生在1月17日的大直播中说：** 回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？为什么博讯和所有与文贵先生有关的法律缠诉案的律师费是吴征提供的，而吴征和太盟是合伙人关系？如此多的“偶然”正常吗？黑暗降临世界，体现在中共操纵媒体、洗劫民众财富和控制司法系统；我们要以法灭共，让中国人有独立的司法系统；如果不为之奋斗，大家也会像七哥一样被中共迫害！我们一定要用程序正义、真实的证据让真相大白于天下，最终美国司法部、国会等会全面介入调查，太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除。
-
-[https://gettr.com/post/poycfx109d](https://gettr.com/post/poycfx109d)
-
-[https://gettr.com/post/poydelb8d2](https://gettr.com/post/poydelb8d2)
-
-[https://gettr.com/post/poy3v384b1](https://gettr.com/post/poy3v384b1)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
-
-发布：陸柒陸捌
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+（世界协调时）部分信息收集于网络世界的各方，请自行甄别
+[![](https://express.adobe.com/page/tcqHnRuqMuEuY/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/tcqHnRuqMuEuY/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

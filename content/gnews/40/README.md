@@ -2,26 +2,30 @@
 ---
 
 
-## 以色列研究显示中共病毒第四针疫苗效果失败
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874974/)
+## 震惊！英国一全科医生透露疫苗接种即将在全球停止
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1875006/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-9.jpg)图片来源：以色列时报
-1月17日，《国会山报》报道，以色列的一项初步研究（据信是世界上第一项研究）发现，中共病毒（COVID-19）疫苗第四针（即第二针加强针）在预防中共病毒变体奥米炕（Omicron）方面效果是失败的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-4-5.jpg)图片来源：路透社
+据《The Covid World》1月18日报道，社交媒体上出现了一段令人震惊的视频，视频中一名医生告诉一位名叫切尔西·哈曼（Chelsea Harman）的英国妇女不要再接种任何新冠疫苗，因为这种疫苗即将在全球范围内被停止。
 
-据《路透社》报道，以色列舍巴医疗中心（Sheba Medical Center）传染病科主任吉利·雷杰夫-约凯（Gili Regev-Yochay）说，该试验研究了辉瑞公司（Pfizer）加强针接种后两周和莫德纳（Moderna）公司强化针接种后一周的效果，第四针（中共病毒疫苗）的抗体增加“可能对奥米炕来说是不够的”。
+切尔西·哈曼上周在远程医疗预约中给一位医生打电话说，她在1月14日接种了第一剂新冠疫苗后，头上出现了3个肿块。令人震惊的是，这位姓名不详的医生告诉她不要再接种疫苗了，因为随着公众尚未了解的新信息的出现，全球的疫苗接种计划即将结束。医生说：“…现在还没有足够多的信息。但即将出现很多信息，特别是关于那些免疫力完好的年轻人，显然，这就足够了。”
 
-另《以色列时报》报道，舍巴医疗中心在其150名员工中进行了中共病毒疫苗第二次加强针的试验，目前得到初步结果但尚未公布。截至周日，大约50万以色列人已经接种了第四针。
+哈曼要求医生澄清是否不用再接种疫苗了，医生做了肯定回答，并且说：“就像我对你说的那样，现在有很多信息出现了，而这些信息早先是没有的，很快所有的疫苗接种就会完全停止。这些都是刚刚出现的信息，你可能有一段时间不会在电视上听到，因为……[叹气]这是一个很长的故事。但是，他们很快就会停止所有这些疫苗，人们尚不知道…”
 
-文章说，总理纳夫塔利·贝内特（Naftali Bennett）此前宣布，该国将开始为高危人群和弱势群体提供第四种中共病毒疫苗作为第二针加强针。
+哈曼随后问道她22岁的妹妹是否需要接种加强针，医生回答说：“不……请不要。绝对不可以。她不需要这个。请不要接种。”
 
-但是，尽管推动了疫苗接种，以色列本月早些时候却报告了近12,000个新的中共病毒（COVID-19）病例，这是自中共病毒疫情大流行开始以来每日病例率的创纪录数字。
+哈曼后来拨打了英国国民医疗服务体系（NHS）的紧急医疗救助电话号码111，以确认与她对话的医生是否是全科医生（general practitioner），他们回复确认说对方是一位全科医生。
 
-**新闻来源**
+真希望这位医生透露的信息是真的，否则疫苗继续接种下去，人类会遭遇灭顶之灾。
 
-[Preliminary Israeli study shows fourth vaccine not enough to stop omicron](https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron?rl=1)
+新闻来源：
+
+[BOMBSHELL: Doctor Tells Patient On Phonecall Not To Take Any More COVID Vaccines Because They’ll Soon Be Halted Globally](https://thecovidworld.com/bombshell-doctor-tells-patient-on-phonecall-not-to-take-any-more-covid-vaccines-because-theyll-soon-be-halted-globally/)
+
+[https://www.facebook.com/chelsea.harman.75/videos/471067841090472](https://www.facebook.com/chelsea.harman.75/videos/471067841090472)
 
  
 

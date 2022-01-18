@@ -2,34 +2,56 @@
 ---
 
 
-## 中共国家电视台播出前高级安全官员认罪受贿和组建 &#8220;政治团伙 &#8220;
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1875631/)
+## 孙力军弄明星没有一次过两分钟，看着他的几只狗搞明星
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875757/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1022.jpg)视频截图
-一名前中共国高级安全官员在电视上承认受贿和培植“政治团伙”。前公安部副部长孙力军的认罪，出现在国家广播公司中共中央电视台周六播出的五集腐败纪录片的第一集。该节目说，孙力力军和他的派系，包括城市和执法部门的高级官员，滥用他们的权力，与商人勾结，接受巨额财富进行权钱交易。
+G-TV视频链接：[https://gtv.org/video/id=61e6aa3787664c47acd64872](https://gtv.org/video/id=61e6aa3787664c47acd64872)
 
-53岁的孙力军是近年来被反腐人员盯上的安全机构中最重要的人物之一。他于9月被开除出共产党，并被解除职务，上周正式因腐败被指控。孙力军在纪录片中说，2011年，他接受了江苏省政法委前副主任王立科的一张存有100万元人民币的银行存款卡。孙力军说：“王立科每年大约来北京四五次，每次他都用一个小海鲜盒给我30万美元。他每次来，都说他带来了‘小海鲜’，然后我就知道是怎么回事了”。
+**郭文贵先生：**我跟你说实在话，我最近发现问题，小时候老爱听这个人骂人，说人老了，精子少了，鼻子多了，精子少了，老受骂人话，人老了，鼻子多了，熊少了。我现在真发现了一个问题，这个人到一定年龄时，你绝对这方面是要衰弱的，它是个自然的一个循环。
 
-这些礼物总价值9000万元（1400万美元），孙力军说他还因帮助王某（已被开除党籍并被指控受贿/受贿和帮助有组织犯罪）获得晋升而得到回报。孙力军还承认了通过行贿来获得好处和寻求支持。节目中说他花了大笔钱为前上海市公安局长龚道安解决各种私人问题。节目说他为龚道安的孩子买了房子，帮助家庭成员找到工作，并向龚道安的下属支付了现金。
+但是人越到一定年龄的时候，你贼心越不小，贼心越大。你看张高丽就跟你说明了个问题。我当年在清丰看守所的时候，我就在里边有个官员，新乡政府的官员就说，你知道文贵，为啥我们在政府官员好色吗？我们睡完午觉，就想着瞪着两眼珠找人去，这个和共产党的饮食和生活环境有关系。
 
-节目听说龚道安和另一名官员，即公安部网络安全局前局长刘新云，还给了孙力军本人无权访问的情报。最近几个月，龚道安和刘新云都因腐败指控受审，但这两个案件的判决尚未公布。党的最高反腐机构–中央纪委的官员顾桧在节目中说，孙力军集团是极端腐败和堕落的典型案例。
+我现在突然发现了另外一个秘密，就是为什么共产党，在中国每个被抓起来的官员，你看记住，迷信，搞迷信活动，发现了吧？就共产党他不让别人迷信，他都迷信。
 
-顾桧说：“孙力军为谋取私利组建小集团和派系，培植个人权力和利益集团，严重危害了政治安全”。对此案的调查仍在继续，前司法部长傅政华也因“严重违反党纪”（通常指腐败）于10月被拘留。
+第二，他让别人不能什么有谈恋爱，什么教你忠诚。它所有人都有三妻四妾，让别人再说我们是无产阶级，结果发现共产党是最有钱的阶级，让工人……所有人说都不要相信神，就发现他们比谁都迷信，还自己认为自己是神。
 
-**简评：**曾经不可一世的公安一局局长、电视认罪的发明人孙力军为了亲自体验自己的发明，竟然跑去电视认罪了。全世界所有的国家，唯独中共国有电视认罪这一娱乐节目，谁说中共国没有创新，在打击人权方面，中共国的创新独霸全球。中共这个绞肉机绞的不仅仅是老百姓，还有中共高官。作为孟建柱头号马仔的孙力军在当初创造电视认罪的时候一定没有想到自己也会有一天进行电视认罪。这就是中共的体制，谁都可以被抛弃，谁都可以被利用，谁都可以被绞杀。
+后来我这个发现，这个特别的男女关系上，共产党是全世界最邪恶的。头两天孙力军专案组的一姐们跟我说，他说你那想着孙力军那猪样子，他说你知道他有多夸张吗？他说几乎咱能知道到的，不要带星，有点名的，几乎就被孙立军全部给呼喇了。
 
-新闻链接: [https://www.scmp.com/news/china/politics/article/3163593/chinese-state-tv-airs-security-chiefs-confession-taking-bribes?module=perpetual\_scroll\_0&pgtype=article&campaign=3163593](https://www.scmp.com/news/china/politics/article/3163593/chinese-state-tv-airs-security-chiefs-confession-taking-bribes?module=perpetual_scroll_0&amp;pgtype=article&amp;campaign=3163593)
+他最后，这个专案组就别听他讲这一段了，就没时间。在二十大之前把他案子必须得了结，给判了。而且凡是最后，你知道最后在问的时候，孟建柱的案子已经划了线了，只谈孟建柱的经济问题，生活问题，不谈政治问题。和王岐山的谈话只谈经济问题，不谈政治问题。
 
-* * *
+说明什么问题？共产党的这些人，已经不敢再往下，连专案组都不相信了。你一旦知道了王岐山、孟建柱这些人想杀习近平，搞阶级斗争，而且要干掉那么多人，这些中纪委人都快崩溃了。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+最后就孙力军就这但凡有点名不带星的，都被他给呼喇了，老少级都算，排着队上，这是老板孟建柱就更不用提了。你说他有多少秒知道吗？20秒以前有多少秒知道吗？你说咱姐妹告诉我一个什么答案？她说你知道孙力军，有多变态吗？养了几只狗，他要看着狗搞这个明星。她说他没有一次超过两分钟的，没有一次超过两分钟的。
 
+你说有多可悲，这就是我们今天要谈到我们新中国联邦多幸福，一切都是真实的，一切都是面对着人性最根本，而且在全世界像Joe Rogan这种人批评一下，你能造得了假吗？在共产党的这种造谣下，你能造得了假吗？
 
-编辑：【英国伦敦喜庄园编辑部】
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
