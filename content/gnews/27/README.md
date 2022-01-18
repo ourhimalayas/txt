@@ -2,50 +2,25 @@
 ---
 
 
-## 纽约一亚裔女子无故被推下站台致死
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1874132/)
+## 德国记者透露在中共国报导冬奥会时，步履维艰并遭跟踪监视
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1874174/)
 
-作者：纽约香草山 – 侠肝义胆
+翻译：zzballack
+上传：追着曙光跑
 
+据《The News 24》1月17日报道，受疫情影响，德国公共广播联盟 (ARD)和德国电视二台（ZDF）将在德国美因茨市的一个联合演播室里报道北京冬奥会赛事。但它们仍然有驻华记者直接在北京进行报道。其中一位女记者塔玛拉·安东尼（Tamara Anthony）在接受德国《焦点》周刊的采访时，谈到了她在中共国报道冬奥会所面临的挑战。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-18-at-15.03.14.jpeg)图片来源：网络
+《焦点》周刊问道：“在无国界记者组织 (Reporters Without Borders)的2021年全球新闻自由指数排名中，中共国排在第177位。作为一名记者，你在日常工作中的感受如何？”塔玛拉·安东尼说：“很多人害怕接受我们的采访，这是可以理解的。因为很多人在接受采访后，警察会给他们打电话或亲自上门。如果他们说了一些批评的话，可能会带来大麻烦，甚至入狱。‘寻衅滋事’是一种刑事犯罪，被（中共）专门用来对付那些持不同意见的人。所以我总是要考虑，接受采访者的风险有多大，以及他们是否能够估量接受采访的后果。”
 
+在问到是否受到恐吓时，安东尼说：“我本人受到监视和跟踪。很明显，我们的手机被窃听了。采访对象经常被提前警告不要接受我们的采访。在许多拍摄旅行中，一辆汽车一直在身后跟踪我们。当我们想进行采访时，这些‘看护人’就会介入。在酒店时，他们甚至就住在隔壁房间。在中共国，我们所有的拍摄日期都需得到政府的批准，然后才能和这些看护人一起进行采访。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在被问及疫情是否导致采访变得困难时，安东尼回答说：“抗疫经常被用作禁止采访的借口。比如我们想采访奥运场馆周边的农民，警察就以此为由阻止了我们的采访。不管谁要通过哪条线路去滑雪场，也都必须登记。现在我已经能够认出滑雪区的一些中共监察人员。他们在火车站等着我并整天跟着我，不让我进行采访。”
 
+在谈到如何与北京当局进行合作时，安东尼说：“在与谁合作上我们受到了严格控制。我们不允许直接雇用我们的中国员工。我们可以申请聘用，然后由中共外交部和国家安全部对聘用者进行审查筛选。如果此人被录取，他们将受雇于中共外交部并借给我们。近年来，这个审查过程变得更为严格和冗长。有一次，我只好带着打印好的中文提问去采访。在这种情况下，即使是手机上的翻译应用程序也无济于事，因为涉及敏感采访时，我不能随身携带手机，否则会被定位。”
 
+安东尼最后总结说，她目前还没感受到北京有很浓厚的奥运气氛，毕竟冬季运动在中共国并不是大众运动。另外由于疫情，运动会将在封闭的区域内举行，现场也不会有任何观众。在中共国，新闻、互联网、甚至聊天直接交流都会被完全审查，也没有公民社会，每个组织都必须接受中共的监督。所以在这个意义上说，奥运会与公众没有任何关系，它们只是政府（自娱自乐）的活动。
 
-外媒1月15日报道，当天上午，在纽约市时代广场地铁站，一名40岁左右的亚裔妇女在一辆迎面而来的地铁前被人推下站台，并被一辆南行列车撞倒，当场死亡。市政府和警察局官员在新闻发布会上透露，某男性嫌疑人逃离了现场，但不久后向交通警察自首。
-
-纽约警察局长说，这是一起无故伤害事件，事发前受害者与嫌疑人没有任何矛盾冲突。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-2.jpg)
-纽约市的犯罪统计数据显示，2021年截止到12月，针对亚裔的伤害事件比前一年增加了361%。
-
-分析人士认为，此次突发事件背后深层次的原因，是当前中共病毒和疫苗灾难在美国导致的种族仇恨，尤其值得让人警醒的是，未来是否会在全球爆发这种反亚裔，尤其是排华的仇恨浪潮。
-
-参考信息：
-[Woman pushed to her death in front of oncoming train in NYC, man arrested](https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+信息来源：[“They were already waiting for me” – ARD woman unpacks before the Olympics in Beijing how she is being followed in China](https://then24.com/2022/01/17/they-were-already-waiting-for-me-ard-woman-unpacks-before-the-olympics-in-beijing-how-she-is-being-followed-in-china-5/)
 
  
 

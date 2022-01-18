@@ -15,92 +15,92 @@
 
 ---
 
-### [美参谋长联席会议主席和海军陆战队司令感染中共病毒](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国高院的决定把绞绳套在所有大药厂和打疫苗者脖子上](/content/gnews/2/README.md)
+### [世界上只有郭先生一人说出6%的人拥有94%比特币的秘密](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [270名“医生”指责乔·罗根，但绝大多数签名者不是医生](/content/gnews/3/README.md)
+### [七哥日本行之胡辣汤篇](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥感谢战友的付出](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [数字货币里，最关键的是什么？](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年将是人类有史以来最黑暗的一年,要做好心理准备](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥谈新疆和西藏独立法案](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疫苗政策越极端的国家停得越快,一定要撑过最后的20秒](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥做健身轮，女士切勿练](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [我们有更多的孩子死于新冠疫苗而不是新冠本身](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [郑溶镇在Instagram上写了一系列带有灭共标签的帖子](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国爆发的疫情不仅影响奥运会还影响美国的供应链](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国最高法院判决意味着全世界法院真正地开启以法灭疫](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美参谋长联席会议主席和海军陆战队司令感染中共病毒](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [浅谈中国人的生育权](/content/gnews/4/README.md)
+### [美国高院的决定把绞绳套在所有大药厂和打疫苗者脖子上](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [270名“医生”指责乔·罗根，但绝大多数签名者不是医生](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [浅谈中国人的生育权](/content/gnews/16/README.md)
  ` 纽约香草山MOS03`
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.249 HDO](/content/gnews/5/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.249 HDO](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国高院审判当中采用最最关键的数据由新中国联邦提供](/content/gnews/6/README.md)
+### [美国高院审判当中采用最最关键的数据由新中国联邦提供](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [暴击中共法律超限战](/content/gnews/7/README.md)
+### [暴击中共法律超限战](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京抓四个正厅级干部黑龙江抓两家零容忍制作组也被抓](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [爆料革命被他人利用的怼比我们自己自杀的核武器还可怕](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共多地政府“一刀切”让民众自费隔离 返乡犯两难](/content/gnews/10/README.md)
+### [中共多地政府“一刀切”让民众自费隔离 返乡犯两难](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [北京香山炮兵司令部红旗村招待所里训斥房峰辉的老将军](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [强制疫苗不道德不起作用，而且违反纽伦堡条约](/content/gnews/12/README.md)
+### [强制疫苗不道德不起作用，而且违反纽伦堡条约](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [现行防疫措施不起作用，此外强制令仍然是违宪的](/content/gnews/13/README.md)
+### [现行防疫措施不起作用，此外强制令仍然是违宪的](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [目标是中共病毒的早期门诊治疗，全民接种疫苗不合理](/content/gnews/14/README.md)
+### [目标是中共病毒的早期门诊治疗，全民接种疫苗不合理](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [哈佛大学德肖维茨教授表示：总统没有权利推行强制疫苗](/content/gnews/15/README.md)
+### [哈佛大学德肖维茨教授表示：总统没有权利推行强制疫苗](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共器官移植没有道德底线](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [胡锦涛信任的陈刚被“零容忍”](/content/gnews/17/README.md)
- ` 波士顿五月花农场`
-
-### [“应该中断疫苗通行证”…医生等千余人集体诉讼](/content/gnews/18/README.md)
+### [“应该中断疫苗通行证”…医生等千余人集体诉讼](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [英国明厨欢迎未接种疫苗的人，他相信 &#8220;选择的自由&#8221;](/content/gnews/19/README.md)
+### [英国明厨欢迎未接种疫苗的人，他相信 &#8220;选择的自由&#8221;](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月4-5日 郭先生视频部分内容整理](/content/gnews/20/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [天津密集核酸检测暴露的真相](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [是市场疫情防控网？还是对人的监控防护网？](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
-
-### [文•贵天成——文贵先生谈“中概股“（五）](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [爆料革命——历史的今天12月05日](/content/gnews/24/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [德国记者透露在中共国报导冬奥会时，步履维艰并遭跟踪监视](/content/gnews/25/README.md)
+### [德国记者透露在中共国报导冬奥会时，步履维艰并遭跟踪监视](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [前总统川普强烈反对疫苗强制令](/content/gnews/26/README.md)
+### [前总统川普强烈反对疫苗强制令](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [纽约一亚裔女子无故被推下站台致死](/content/gnews/27/README.md)
+### [纽约一亚裔女子无故被推下站台致死](/content/gnews/29/README.md)
  ` GTV新闻访谈`
-
-### [澳政府承认疫苗具有严重副作用](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【粤语配音】2022年1月17日：共产党渗透西方的法律界是无法想象的](/content/gnews/29/README.md)
- ` MOS香港部`
 
 ### [美国核导弹潜艇罕见访问台湾附近基地](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
@@ -108,23 +108,23 @@
 ### [雅典娜时报-第177期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [世界中共病毒感染人数3周来持续增长](/content/gnews/32/README.md)
+### [北京冬奥：运动员难启齿 近六成德国人不支持](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京冬奥：运动员难启齿 近六成德国人不支持](/content/gnews/33/README.md)
+### [香港中大等校推国安教育 院校自主成历史？](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香港中大等校推国安教育 院校自主成历史？](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国核导弹潜艇罕见访问太平洋的关岛基地](/content/gnews/35/README.md)
+### [美国核导弹潜艇罕见访问太平洋的关岛基地](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [签署大额石墨供应订单，特斯拉减少对中国的依赖](/content/gnews/36/README.md)
+### [签署大额石墨供应订单，特斯拉减少对中国的依赖](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共正自导自演万邦来朝的冬奥盛会](/content/gnews/37/README.md)
+### [中共正自导自演万邦来朝的冬奥盛会](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [新中国联邦人如同数字货币](/content/gnews/37/README.md)
+ ` 雅典娜GNotes`
 
 ### [7·24系列——吴征和FBI前雇员Richard Frankel](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`

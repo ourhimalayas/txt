@@ -2,49 +2,39 @@
 ---
 
 
-## 前总统川普强烈反对疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1874133/)
+## 英国明厨欢迎未接种疫苗的人，他相信 &#8220;选择的自由&#8221;
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874239/)
 
-作者：纽约磐石农场—在远方
+**整理报道：小鱼儿
+编辑：Candy**
 
+**【雅典娜快讯】，紧贴时代脉搏**
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-1月17日，郭文贵先生在盖特中转发了美国前总统川普最近一次集会演讲的视频，视频中川普表示，他强烈反对任何形式的疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-3.jpg)
-在集会演讲中川普说，应该让美国企业主和美国人民，自己做决定是否注射疫苗。美国人不需要政府来为自己的健康做选择。川普说，强制疫苗令对疫情也没有起到作用，纽约州的现实情况表明，实施疫苗强制令就是一场灾难，加州也同样如此。虽然这些州实施了宵禁，尽可能不让人们出门，但仍然没有制止疫情扩散。川普还讽刺了纽约州长库默的做法，谴责库默在电视上胡言乱语。
-
-川普自豪地表示，他是反对疫苗强制令的总统。他说共和党不仅在德州和佛州取得了巨大成功，在整个疫情期间，几乎所有共和党的州都很成功。川普强调说，他永远反对任何形式的疫苗强制令，而且人们必须这样做，因为事实证明强制令是无效的。
-
-参考信息：
-[美国前总统川普在集会演讲中称他自豪他曾是反对疫苗强制令的总统。他强烈反对任何形式的强制令](https://www.gettr.com/post/poq6yi9004)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
 
 
+据反抗新闻(Rebelnews)1月17日报道，随着英国和其他国家对未接种疫苗或加强针的公民进行限制，英国名厨安东尼·沃罗尔·汤普森(Antony Worrall Thompson)在他的酒馆 “灰狗 ”上方放置了一个标志：“我们不歧视种族、性别、年龄、残疾、已接种疫苗或未接种疫苗，这里人人平等，欢迎所有人。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+汤普森(电视节目主持人和餐馆老板)告诉英国广播公司(BBC)，他不是一个 “反疫苗主义者”，他只是相信 “选择的自由”。这位前《快手厨师挑战赛》(Ready Steady Cook)明星说，人们应该有选择的自由。
 
+据英国广播公司报道，在他的餐厅贴出呼吁平等的告示后的几天，他的评论导致了投诉，说这个告示应该被删除，因为据说它是 “由一个反疫苗接种团体制作的”。
 
+厨师说：“我们已经做了两年，封锁和各种事情和预防措施，我认为现在是时候继续前进了。”BBC指责他不负责任，他不认为这是不负责任的，“根本不是”。
+
+“我同意人们去接种疫苗，我不是一个反疫苗主义者……对我来说，如果你不想接种疫苗，如果你不想把化学品(疫苗)放入你的身体，这必须是你的选择。”汤普森说。
+
+在社交媒体上，汤普森被誉为英雄，因为他站出来反对主流的建制派说法，即：未接种疫苗的人应被回避并被视为二等公民。
+
+参考新闻：[British celebrity chef welcomes unvaccinated to pub](https://www.rebelnews.com/british_celebrity_chef_welcomes_unvaccinated_to_pub)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

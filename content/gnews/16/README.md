@@ -2,75 +2,44 @@
 ---
 
 
-## 中共器官移植没有道德底线
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1874277/)
+## 浅谈中国人的生育权
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1874390/)
 
-[https://gtv.org/video/id=61e53c7687664c47acd5cec6](https://gtv.org/video/id=61e53c7687664c47acd5cec6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-29.jpg)
 
-**郭文贵
-Miles Guo**
+作者：纽约香草山 医疗部 Swr拥抱太阳
 
-所有的这个移植在中国的移植技术, 不需要任何其他的
-All this transplant technique in China, don’t need any others
 
-中国人现在器官移植干细胞是全世界最先进之一
-Chinese now have one of the most advanced organ transplant stem cells technologies in the world
 
-把猪的心脏都移到人身上中国人干的，中国的干细胞叫大华基因
-The Chinese can even transplant the pig’s heart into people, the Chinese stem cells technologies are from BGI Group
+自从盘古开天，上帝造人之日，神就赋予男人和女人在享受鱼水之欢时孕育下一代新生命。至今地球上的各个角落、各个种族都在遵循这个浑然天成的生育权，唯有中共统治下的中国人被生生剥夺了这个天赋权利。
 
-我告诉你，那玩儿的那是比美国一点都不低
-I’m telling you, its technology is as good as United States
+在中共建国之初，为弥补连年战乱和灾荒导致的人口锐减，推出了鼓励多生孩子的政策，并奖励性的将多产的母亲称之为英雄母亲，完全不顾妇女的身心健康和婴幼儿的健康教育，造成婴幼儿死亡率和出生率双高的现象。
 
-因为西方有限制、有道德、有法律，中国没有道德没法律
-Because the West has restrictions, morals, and laws, China has no morals and no laws
+到20世纪60年代初，三年灾害后出现了人口出生增长的第二次高峰。1964年第二次人口普查达到了7亿人，于是中共认为人口无序增长过快需要管控。中共政府成立了国务院计划生育委员会开始控制人们生育，宣传晚婚晚育。1971年更是提出了“一个不少，两个正好，三个多了”的口号。1978年更是把计划生育以法律形式加载宪法，中国人的生育权被牢牢地抓在中共的手中。
 
-他想干啥干啥，还有一个在西藏这个器官移植
-They can do whatever they want, and also about the organ transplant in Tibet
+到1982年计划生育变成基本国策，国人的噩梦就此开始。在这个阶段，各地都开始强制绝育，强制堕胎、引产、无底线的罚款抄家，只是因为你想多生一个孩子。在妇产科看到了无数被强制足月引产的产妇，很多孩子引产后都是哇哇大哭的新生儿，因为已用有毒的引产药，被活活闷死。甚至出现了为躲避计划生育委员会的抓捕而产生的超生游击队。人类的生育权变成了中共的捕杀令，如果违反就要被工厂解雇、被罚倾家荡产，侥幸出生的孩子无法落户。大多数习惯顺从的国人都被迫生下独生子女，人口自然增长率看似控制住了。可是这种简单粗暴的干涉，也为日后独生子女政策的弊端埋下了更大的隐患。
 
-直升机也好，飞机也好，有各种路线，包括有人说王行军他为啥能去呀
-there are various routes by helicopter or plane, including someone say why Wang Xingjun can go
+绝大多数的80后和少部分70末的独生子女成为家庭里的小公主、小皇帝—骄横跋扈、自私自利、为所欲为；再加上人口剧增的60后步入退休行列，越来越严峻的人口老龄化，医保劳保的严重负担；让中共意识到奴隶数量的减少，人口红利无利可图，所以再次开始调控人们的生育权—先是双独二胎，又到如今的全面放开生育。甚至有的地区竟然荒唐地让男60岁以下，女50岁以下要登记生育。再一次验证了中共把国人当做工具的险恶嘴脸，完全无视健康和意愿，要你做什么就必须服从。试想一下如今的80后都已迈入40岁的年龄，上有4个年迈的老人，自己身负房贷、车贷，工作、生意举步维艰，孩子各种各样的课外班、兴趣班，一个孩子都叫苦不迭，再生一个如何保障生活质量？再者心中只有自己的独生子女很少会为了生孩子而拉低自己的生活标准。
 
-是不是共产党，战友们，在中国只要有钱，你就会钱和权交集以后
-Is he the Communist Party member? comrades-in-arms, as long as you have money in China, when money and power collude
+综上所述，笔者认为中共的末日审判就要到了！人类只是上帝用来管理地球的一部分而已，一切都要顺从天赋人权，中共妄想用残暴来统治国人，把百姓当做他们的工具，随意愚弄。那些被计划生育杀死的婴儿、孕妇不会饶恕他们的。那些在计划生育政策下出生的独生子女，会用他们畸形的价值观抗衡新的生育要求。那些尚存良知和正义的国人，会被爆料革命唤醒。所以说，中共对国人生育权的控制，就是他们违背天理人性的真实写照，也注定了中共被灭亡的命运。
 
-它就发生啥事都可能，就像七哥到新疆不会有人查我身份证
-that anything can happen, just like when Miles went to Xinjiang, no one would check my ID card
+(本文为作者观点，不代表GNEWS立场)
 
-军队开车是吧，开道到西藏去，七哥是，就全是解放军的车跟着
-The army was driving for me, right? It’s going to Tibet, the People’s Liberation Army’s vehicle was followed my car
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-83.png)
 
-那怎么会查我，我不查别人就不错了，答案很简单，共产党肯定换器官
-how could they check me, it’s good if I don’t check others, the answer is very simple, the Communist Party will definitely do harvest organs
+校对/编辑/发稿：云豹
 
-然后是有组织、有系统化的，然后怎么方便怎么来
-Then it is organized and systematic, and then do it convenient way
+**更多信息，更多关注**
 
-而且不会考虑任何人的痛苦
-And don’t think about anyone’s pain
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-谢谢兄弟姐妹们
-thank you brothers and sisters
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-* * *
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-Date: 01/16/2022
-原视频标题: 中共器官移植没有道德底线
-The CCP’s Organ Transplantation Has No Moral Bottom Line
-原视频日期：2022/01/12
-原视频链接 **[https://gettr.com/post/pojfnr3ad8](https://gettr.com/post/pojfnr3ad8)**
-任务编号：KC417(3504)
-视频时间段 : 0:00-1:07
-中听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

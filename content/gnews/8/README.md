@@ -2,40 +2,48 @@
 ---
 
 
-## 北京抓四个正厅级干部黑龙江抓两家零容忍制作组也被抓
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874347/)
+## 七哥做健身轮，女士切勿练
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874459/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e63bd487664c47acd6249e](https://gtv.org/video/id=61e63bd487664c47acd6249e)
+#### 整理：雅典娜速记组
+编辑：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥做健身轮，女士切勿练.png)
+（关于战友间短裤穿反的是否有特别意思）七哥回复：我要跑的时候因为我是带着那个手机的。那手机是放到后面，那是放手机的这儿。
 
-**郭文贵先生：**这几天这热闹啦大家，说到刚才一开始国内发生了什么事儿你知道吗？你根本不知道。就在我刚才开动这个摄像机到现在，北京最起码抓了四个正厅级干部，黑龙江又抓走了俩，两家啊，两家。记得七哥2017、2018、2019年说的黑龙江抓的人，还有辽宁的，还有政法委的，没有一个不抓的，还有杭州书记，孙力军都出来认罪的球的了。就在刚刚，审孙力军案子的人就在刚刚，刚才被抓。包括制作所谓《零容忍》的这里面的好几个制作组的人也被抓了，就刚刚、就在开机之后，我刚才得到的情报。大家都在说《零容忍》的时候，你知道这里面背后的故事吗？这就是爆料革命、新中国联邦的魅力！
+第二个就是我做这个的时候我昨天我想告诉大家，回来我做的时候大家一定那个很难跟进，有人说做五个，被钊颖妹妹说。
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+你的无知让我很震撼，以世界冠军我钊颖妹妹才做一个，还是郝海东兄弟抱着的情况下，你敢说五个，你这不是自杀行为吗？
 
-编辑整理：Jacques；
+我可以告诉你，这个千万不要试。
 
-字幕文件制作：小满；
+我当场跟你说，专业的，就是一辈子做锻炼的，做两仨。
 
-视频制作及上传：Cindy；
+而且你就坐下来，你看海东兄弟那个更夸张。海东兄弟，人家是自由的，推到顶还要停2秒钟再拉回来，你那不是吹牛的，
 
-G-News发布：小满；
+那可是一般人做不了。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+真正的运动员是科学锻炼而不是苦干。傻练，这是很可怕很危险的。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+所以我锻炼的时候，做这个动作之前一定是大量的热身，做各种的就是心脏一定在170到200之间的时候，我才会去做那个事情。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+你像我原来我一组做24个， 做那么多。我多疯狂，结果见了就是美国最牛的洋基队的医生,教练，他说我求求你，你必须停，你不能做那么多。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+你做多了会把你身体毁掉的，所以一组最多做8个到12个，我就做12个，他说你一天不需要做12组，就做200个，做160个。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+他说你最多做三组，我现在一次做吧，四组，因为我做三组觉得不过瘾。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+但是你知道吗？就这个运动，很多人当场脑栓死掉的，就这个运动当场脑子“叭”就崩掉了，因为你推下去的时候，你这个血液全身性的爆炸，是整个血管。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+我每次做就做到底:做到头，你们不知道，我知道。第五组第六组的时候，全身的汗瞬间就下来，每次都是这样浇水一样。千万不能乱做。 所以昨天你们看到裤衩，没有穿反裤衩，那是放手机的事，要出去放手机的，穿法没有任何寓意，兄弟姐妹只是告诉你们, 女的不要练这个动作，真的会把你小肚子给你撑开了。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+发布：Frank2021
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
