@@ -2,31 +2,42 @@
 ---
 
 
-## 七哥给大家2022年的建议（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877287/)
+## 麻省理工学院科学家呼吁避免为儿童接种新冠疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1877294/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+据《Breitbart》记者THOMAS D. WILLIAMS博士，2022年1月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1461-e1642536910649.png)图片源自：Breibart
+**麻省理工学院（MIT）一名科学家周四表示，父母应该尽其所能避免给孩子接种中共病毒疫苗，并坚称潜在的危害远大于好处。**
 
-来源：郭先生2022-01-14直播09:10:18摘录
+“我认为给年轻人接种疫苗是令人发指的，因为他们死于COVID的风险非常非常低。”斯蒂芬妮·塞内夫博士周四晚上在福克斯新闻接受劳拉·英格拉汉姆的直播采访时说。
 
-然后再一个建议我要给大家说的，听七哥说的，今年年底，就是2020年当时我说大爆发，爆发了吗？我说新病毒哪来，来了吗？我说疫苗灾难会从年底到就是今年的5月份以前会是截止，一、二月份会有法律上的行动，行动了吗？我再告诉大家，我不求你们信我们，如果你信新中国联邦、信七哥说的话，5月份之前你能呆在家里就呆在家里，你真要出去了，染你病毒的不是所谓的病毒的带病者，是所有的你认为打了疫苗的人，你就尽量不出去。2022年是人类有史以来，我认为是最黑暗的，可以回到侏罗纪时代去，那个灾难时代去，你们要做好一切心理准备，经济灾难、人道灾难、病毒灾难、疫苗灾难、共产党灭亡前的灾难，甚至是火战，甚至是战争。你刚才问的那个所谓的热毒这个毒，热毒，共产党的毒，就是整个投毒、疫苗的结果，好吧？谢谢！
+**麻省理工学院计算机科学与人工智能实验室的高级研究科学家塞内夫说：“新冠病毒疫苗对儿童的潜在益处微乎其微，当你看到这些疫苗的可能危害时，它没有任何意义。”**
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**她补充道：“在反复加强针的情况下，这种治疗从长远来看将是毁灭性的。”**
 
-**关注我们**
+**塞内夫认为，父母不应该被迫让他们的孩子接种疫苗，应该尽其所能避免它，而且一定要尽其所能的避免。”**
 
-Discord 账号
+在2021年与自然疗法肿瘤学家Greg Nigh博士合作并发表在同行评审的《国际疫苗理论、实践和研究》杂志上的一篇文章中， 塞内夫指出，这些疫苗通过对照试验和进入大规模部署将“引发了多重安全问题”。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**文章断言，“疫苗与广泛的急性和长期诱发的病理，如血液疾病、神经性疾病和自身免疫性疾病的潜在关系研究不足”。**
 
-Gettr 账号
+作者在标题为《比疾病更糟？探讨可能的与接种疫苗相关的不可预测后果》一文中指出，不可预期和持续扩张的疫苗生产意味着相关方不具备评估风险的历史积累，也同时意味着疫苗不可能为公共卫生带来安全、长期的预想中的正面效果。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+文章来源：[https://www.breitbart.com/health/2022/01/15/mit-research-scientist-says-kids-should-not-receive-covid-vaccines/](https://www.breitbart.com/health/2022/01/15/mit-research-scientist-says-kids-should-not-receive-covid-vaccines/)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

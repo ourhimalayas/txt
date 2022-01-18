@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 10:54 PM (UTC)`
+
+1/17/2022 Miles Guo: Can the Pacific Alliance case represent procedural justice? This lawsuit should not have existed in the first place, and Judge Barry Ostrager had long been turning a blind eye to Bradley Bondi and Edward Moss's clear breach of the lawyers’ professional ethics. The two lawyers not only committed forgery, but their mere conflict of interest nearly devastated us. So, who will make up for the damage they have inflicted on us in the past five years?<br/><br/>1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？这场官司本不应该存在，可Ostrager法官却长期无视Bondi和Edward Moss明显违反律师道德的行为，他们俩不仅造假，区区一次利益冲突就差点要了咱的命，那谁来弥补他们在这5年给我们造成的伤害呢？<br/><br/>
+![img](https://media.gettr.com/group14/getter/2022/01/18/22/1e2df50f-a46d-aa6e-4256-66d22c950391/out.jpg)
+
+---
+
 `@miles 1/18/2022 5:40 PM (UTC)`
 
 1月18号：最糟糕的时刻还没有到来……<br/><br/>https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E8%82%A1%E5%B8%822022%E5%B9%B4%E4%BC%8A%E5%A7%8B%E5%89%A7%E7%83%88%E9%9C%87%E8%8D%A1-%E6%95%B0%E7%99%BE%E5%8F%AA%E8%82%A1%E7%A5%A8%E8%B7%8C%E5%B9%85%E8%B6%8520-11642479358?tesla=y&s=08
@@ -147,13 +154,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 美国医学博士皮特森·皮埃尔表示，根据美国疫苗不良事件报告系统，共有2809名婴儿因母亲在怀孕期间注射新冠疫苗后早夭。当母亲注射新冠疫苗后，胎儿会在20周内夭折。<br/><br/>Dr. Peterson Pierre said, according to the VAERS system, 2809 Babies have died when their mothers have been injected during pregnancy. Fetus will die within 20 weeks if mother is vaccinated during pregnancy
 ![img](https://media.gettr.com/group36/getter/2022/01/17/01/a2df03d9-3335-d933-231e-30171bc6428d/out.jpg)
-
----
-
-`@miles 1/17/2022 1:02 AM (UTC)`
-
-佛罗里达州长: 在其它州，他们解雇了没接种疫苗的护士，尽管他们大部分人具有天然免疫力。他们让已接种疫苗的护士重返工作岗位。这直接表明医疗保险和医疗补助服务中心的强制令绝对是疯狂的，尤其是考虑到众所周知的阻止病毒传播的疫苗无效。<br/><br/>Governor of Florida: In other states they fired nurses for not having Vax even though most of them have natural immunity. And they are bringing back on the job Vaccinated nurses who are currently COVID Positive. It just shows you that the CMS mandate is absolutely insane, especially given the ineffectiveness you know of the shots to actually stop transmission.
-![img](https://media.gettr.com/group50/getter/2022/01/17/01/a3e52050-b6ee-2ae8-9c08-1d795e807773/out.jpg)
 
 ---
 
