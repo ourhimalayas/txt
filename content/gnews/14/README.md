@@ -2,24 +2,47 @@
 ---
 
 
-## 【中日财经爆】日本国内30年来将进行首次海洋天然气开发
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1874980/)
+## 除了喜联储任何银行包括汇丰美国银行只要挤兑必将破产
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875025/)
 
-编辑整理：东京樱花团丨百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-21.png)图片来源自本文网站
-《产经新闻》消息，1月17日，日本最大的石油和天然气勘探公司INPEX宣布，将于3月开始在日本岛根县和山口县的沿海地区进行石油，天然气的勘探钻探工程。该项目成为日本近30年来的第一个新的海上油气田开发项目。当下，在全球范围内原油、液化天然气（LNG）等能源价格飞涨的同时，从保障日本经济安全的角度来看，该项目的实施不仅有助于提高国内天然气自给率，而且在本国内即使是能够生产少量的能源也变得非常重要。未来 ，如果商业储量得到确认，预计将于2032年开始生产。
+G-TV视频链接：[https://gtv.org/video/id=61e6403987664c47acd6260b](https://gtv.org/video/id=61e6403987664c47acd6260b)
 
-具体勘探地点位于岛根县滨田市近海约130公里、山口县萩市近海约150公里、水深约240米处，计划投产后会通过管道进行供应。预计年产气量约为93万吨，相当于日本国内天然气消费量的1.2%。如果该项目能够实际生产天然气，将把日本的自给率提高到3.4%，比目前水平提高1.1个百分点。INPEX和日本石油天然气金属公司（JOGMEC）将为该项目的开发总投资330亿日元，各占一半。
+**郭文贵先生：**反过来说今天看我们的喜币的时候，喜币最值钱的地方在哪里？你看昨天、前天、大前天，他是一年365天7天24小时在线，哇噻，8万10万16万的币的交易。为啥我敢说长岛哥跟老班长砸下来的三十几块钱的时候，你看他俩这得意劲，他俩以为可以决定喜币地价格起伏了，这是他俩一生都要牢记。如果他俩要做投资者给战友，你给他一个亿、给他两个亿，他俩绝对一次就给你赔光光，赔得内裤都没有，因为他没有常识。
 
-在日本国内，虽然海洋天然气勘探已在各地进行，但实现起来却很困难，目前的现状是，只有1990年开始在新泻县岩船附近的生产已经进入了商业化。这次待开发的地点是使用了3D物理勘探船“资源”进行勘探和INPEX的调查结果后做出的决定。
+你现在给我砸砸试试去，你给我去弄，你可以砸下来，你看你砸的结局是什么？这就为什么那天我们直播我说了，全世界汇丰银行、美国银行、UBS银行任何一家银行，你去提现挤兑百分之一百都破产，没有一家不破产。只有喜联储，你把你所有的HDO都提走，它百分百不会破产，什么事都没有。
 
-日本目前几乎所有的石油和天然气都依赖进口。由于需要确保能源的稳定供应，去年10月政府批准的基本能源计划要求提高“独立开发比例”，其中包括了日本企业在海外拥有权益的项目。
+我们东弟收钱收不到，他着急，那不是喜联储的事，是你的银行的事，不让你收钱，是吧。喜联储的钱，现在提现，我告诉大家一个概念，你像币安赵长鹏那个烂仔，他是99.99%不让你提成，这个货是真正的骗局。你知道他骗在哪了吗？没有了解，币安的赵长鹏的所有不仅泄漏你的信息，当你挤兑的时候他立马破产。他玩的就是瓶子，在空中玩的瓶。
 
-信息来源：[**国内海洋ガス田３０年ぶり新規開発へ　島根・山口沖　令和１４年生産開始目指す**](https://news.yahoo.co.jp/articles/7246bd14253effcc134f2ea00ea7aec19733b678#:~:text=%E5%9B%BD)
+你看看当第三方报道我们喜币的时候，说这是世界上最可怕的是，所有创造币的人，当他炒上去的时候，迅速地套现走人。迅速地套现走人，把钱拿走，零了。你告诉我喜联储谁有本事把你的喜美元HDO拿走试试，绝对的刑事犯罪。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

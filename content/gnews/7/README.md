@@ -2,47 +2,23 @@
 ---
 
 
-## 除了喜联储任何银行包括汇丰美国银行只要挤兑必将破产
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1875025/)
+## 中共北京2022年冬奥会和冬残奥会观众政策确定
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1875083/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e6403987664c47acd6260b](https://gtv.org/video/id=61e6403987664c47acd6260b)
+作者：德国纽伦堡正义农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会观众政策.jpeg)封面来源：网络图片
+2022年1月17日北京冬奥组委官网报道，鉴于疫情防控形势依旧严峻复杂，为保障涉奥人员和观众的健康安全，决定将原计划通过**公开销售门票的方式调整为定向组织观众现场观赛**，需要观众在观赛前、观赛中、观赛后严格遵守新冠肺炎疫情防控相关要求，以在疫情防控安全的前提下为赛事顺利举办营造良好氛围。中共突然调整销售门票的方式，这说明中共国疫情和疫苗后遗症已经处于失控状态，再加上中共党内诸多不确定因素，这是不得已而为之。
 
-**郭文贵先生：**反过来说今天看我们的喜币的时候，喜币最值钱的地方在哪里？你看昨天、前天、大前天，他是一年365天7天24小时在线，哇噻，8万10万16万的币的交易。为啥我敢说长岛哥跟老班长砸下来的三十几块钱的时候，你看他俩这得意劲，他俩以为可以决定喜币地价格起伏了，这是他俩一生都要牢记。如果他俩要做投资者给战友，你给他一个亿、给他两个亿，他俩绝对一次就给你赔光光，赔得内裤都没有，因为他没有常识。
+中共为了这次北京冬奥会能顺利召开可谓煞费苦心，不仅花费巨资和向他国出卖各种利益，还以疫情和疫苗接种为理由，打着“为你好”的名义，建立了一个完全闭环的监狱式的管理方式，对涉奥人员和观众执行严格的疫苗接种政策和每天的核酸检测要求，这哪里是一场奥运会？这分明就是中共及其世界黑暗力量的一场政治作秀和政治勾兑后的草菅人命。
 
-你现在给我砸砸试试去，你给我去弄，你可以砸下来，你看你砸的结局是什么？这就为什么那天我们直播我说了，全世界汇丰银行、美国银行、UBS银行任何一家银行，你去提现挤兑百分之一百都破产，没有一家不破产。只有喜联储，你把你所有的HDO都提走，它百分百不会破产，什么事都没有。
+真的为这些参加北京冬奥会和冬残会的人员和观众感到悲哀，这些人都是政治斗争的牺牲品和工具，因为这些人都是被谎言和荣誉所欺骗，他们不知道自己将要面对的是什么？将来要面对的是什么？当病毒真相、疫苗真相被曝光之际，当自己面临病毒残害、疫苗后遗症的残害之际，这些相信中共、相信黑心政府的运动员和观众将如何面对这个世界？
 
-我们东弟收钱收不到，他着急，那不是喜联储的事，是你的银行的事，不让你收钱，是吧。喜联储的钱，现在提现，我告诉大家一个概念，你像币安赵长鹏那个烂仔，他是99.99%不让你提成，这个货是真正的骗局。你知道他骗在哪了吗？没有了解，币安的赵长鹏的所有不仅泄漏你的信息，当你挤兑的时候他立马破产。他玩的就是瓶子，在空中玩的瓶。
+新闻来源：🔗[北京2022年冬奥会和冬残奥会观众政策确定](https://www.beijing2022.cn/wog.htm?cmsid=20220117006293)
 
-你看看当第三方报道我们喜币的时候，说这是世界上最可怕的是，所有创造币的人，当他炒上去的时候，迅速地套现走人。迅速地套现走人，把钱拿走，零了。你告诉我喜联储谁有本事把你的喜美元HDO拿走试试，绝对的刑事犯罪。
+*编辑/校对/发稿：德国纽伦堡正义农场-儒为*
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+想了解更多咨询，请扫描农场二维码：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/85c861bf6b6325b4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

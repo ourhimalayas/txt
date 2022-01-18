@@ -2,10 +2,10 @@
 ---
 
 
-## 取消OSHA疫苗强制令的裁决是对员工医疗自主权的胜利
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1874527/)
+## 马龙和纳瓦罗博士第三篇中共病毒疫苗系列文章
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1874521/)
 
-01/14/2022 佛罗里达州总检察长Ashley Moody：法院取消职业安全与健康管理局疫苗强制令的裁决，是捍卫自由的胜利，也是数百万拼命保卫医疗自主权员工的一场胜利。
+01/13/2022 马龙博士和纳瓦罗博士刚刚在《华盛顿时报》发表了关于中共病毒疫苗系列文章的第三篇。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
