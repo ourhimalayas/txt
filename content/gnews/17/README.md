@@ -2,22 +2,51 @@
 ---
 
 
-## 世界中共病毒感染人数3周来持续增长
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1874029/)
+## 纽约一亚裔女子无故被推下站台致死
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1874132/)
 
-发布：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-25.png)
-世界卫生组织（WHO）关于中共病毒（新冠病毒Covid-19）感染人数的初步数据显示，从1月10日开始的一周内，全球感染该病毒的人数达到1873万，连续第三周刷新历史记录。死亡人数也继续上升，世卫组织呼吁继续保持警惕，因为感染者人数的迅速增加可能导致更多的损害。
+作者：纽约香草山 – 侠肝义胆
 
-在奥密克戎病毒在全球爆发后，世卫组织的初步数据显示，在新年假期期间，每周的感染人数达到近1000万，在1月3日开始的一周内，感染人数约为1500万。 尽管每周的增幅已经放缓，分别为73%、59%和20%，但过去两年中疫情蔓延最快的局面依然存在，不容乐观。
 
-信息源：
 
-[世界の感染者、3週連続で最多　新型コロナ、大幅増続く](https://news.yahoo.co.jp/articles/9d30f1d28c2293d7e5deb7246b597c318151121a)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+外媒1月15日报道，当天上午，在纽约市时代广场地铁站，一名40岁左右的亚裔妇女在一辆迎面而来的地铁前被人推下站台，并被一辆南行列车撞倒，当场死亡。市政府和警察局官员在新闻发布会上透露，某男性嫌疑人逃离了现场，但不久后向交通警察自首。
+
+纽约警察局长说，这是一起无故伤害事件，事发前受害者与嫌疑人没有任何矛盾冲突。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-2.jpg)
+纽约市的犯罪统计数据显示，2021年截止到12月，针对亚裔的伤害事件比前一年增加了361%。
+
+分析人士认为，此次突发事件背后深层次的原因，是当前中共病毒和疫苗灾难在美国导致的种族仇恨，尤其值得让人警醒的是，未来是否会在全球爆发这种反亚裔，尤其是排华的仇恨浪潮。
+
+参考信息：
+[Woman pushed to her death in front of oncoming train in NYC, man arrested](https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

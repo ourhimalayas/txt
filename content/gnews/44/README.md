@@ -2,25 +2,23 @@
 ---
 
 
-## 韩国取消传播风险低场所的防疫通行证
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872435/)
+## 前马来国足注射中共病毒疫苗第三针五天后死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872477/)
 
-作者：首尔天池农场 – 追着曙光跑
+作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-韩国媒体1月17日报道， 韩国政府当天决定，不再对疫情传播风险低的场所适用防疫通行证制度。如在补习班、读书室、博物馆、影院、大型超市等，不再要求疫苗接种证明或病毒检测阴性证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-53.jpg)
-韩国政府指出，现在的疫情形势与去年12月相比有所缓解，而且医疗体系的承受能力也有所增加，对风险不高的场所有必要放宽防疫通行证制度。
+1月12日，前马来西亚61岁的足球运动员谢比.辛格在骑自行车时因心脏病突发死亡。据悉，这位运动员刚刚在1月7日注射了中共病毒疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-55.jpg)
+医生表示，谢比的死因99%与心脏病发作有关。验尸报告显示，辛格的三条冠状动脉阻塞；而他的所有重要器官都处于完美工作状态，也没有任何过敏反应的迹象。
 
-郭文贵先生早在2021年9月26日就告诉世界，欧洲国家一定会停止疫苗护照，美国加拿大也会停，加拿大至少不会再强打疫苗，日本也会停止。
+当日，谢比是骑自行车时直接摔下来，虽很快叫来了救护车，然而，他已经过世了。谢比的儿子告诉记者，他的父亲在死前五天接受了加强针。
 
-有观察者认为，韩国作为民主国家，今天虽然只对一些开放设施停止了防疫通行证，但我们已经看见了曙光。
-
-参考链接：[韩国取消传播风险低场所的防疫通行证](https://www.yna.co.kr/view/AKR20220115039600530?section=search)
+参考链接：[前马来国足注射中共病毒疫苗第三针五天后死亡](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：DM
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

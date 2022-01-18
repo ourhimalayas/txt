@@ -2,24 +2,75 @@
 ---
 
 
-## 爆料革命——历史的今天12月05日
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1874179/)
+## 中共器官移植没有道德底线
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1874277/)
 
-**整理：Pride**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-18-135954.png)
-**2019年12月05日—**在军事上，中共以假治国、以假骗民、以假盗取国际权力。要跟美国人打仗，基本是拿着菜刀和远红外线瞄准器的枪打。当兵的打仗是扯淡的事，同胞们的孩子连个肉泥都不是。。被忽悠的农民孩子，当几年兵没摸过枪。坦克打出去100米，就能歪出一两米。中共的几个所谓研究院，官僚腐败的一塌糊涂。牺牲的绝对不是盗国贼的私生子女，死的全是穷人的孩子孩子还没有了解这个世界的真相，不要成为牺牲品。
+[https://gtv.org/video/id=61e53c7687664c47acd5cec6](https://gtv.org/video/id=61e53c7687664c47acd5cec6)
 
-**2020年12月05日—**现在美国每一分钟，都有可能死于CCP病毒。国内情况更糟，共产党的高官都躲起来了，他们知道病毒现在开始又一波来了。在欧洲直接参与制造病毒的科学家说，国内大多数参与的人，都已经消失了。那些实验楼都被铲平，种上树。
+**郭文贵
+Miles Guo**
 
-**2021年12月05日—**喜币在未来三五年，没有可能代替任何币。喜联储不可能只有一个币，会推出100到100万美元金币。躺平币是公链，注册没有KYC，兑现才有。躺平币第一天，就是为国内战友设计的。只要躺平币出来，共产党就知道自己的棺材板该钉上钉了。
+所有的这个移植在中国的移植技术, 不需要任何其他的
+All this transplant technique in China, don’t need any others
 
-G系列资源，GTV是王。战友投了GTV，也投了未来数字银行、博彩。5G、AI是新中国联邦的大版图之一，我们数字货币支付、兑现、安全、保密，天下无敌。数字银行、博彩项目，战友必须全面参与，参加董事会。权利跟GTV一样，不仅拥利益，还有未来重大决策的参与权。
+中国人现在器官移植干细胞是全世界最先进之一
+Chinese now have one of the most advanced organ transplant stem cells technologies in the world
 
-这个世界是中美俄决定的，对中共打击的只有两个—美国和俄国，其他都是凑合。习的自信和疯狂来自俄罗斯普京，但中俄不可能永远的好，最后一定是中国人作为牺牲品。历史以来杀中国人最多的是俄罗斯人，美国人几乎跟中国人没利益冲突。
+把猪的心脏都移到人身上中国人干的，中国的干细胞叫大华基因
+The Chinese can even transplant the pig’s heart into people, the Chinese stem cells technologies are from BGI Group
 
-中国老板的可悲、可怜，几乎在经济、人格、身体上是中共小三。家人就成了被当小三的牺牲品，很多领导专爱睡老板的老婆。共产党还玩他们搞美国经济，不还钱。华尔街90%人的钱，都是通过王岐山。习用这些地产商，把王岐山、华尔街的勾兑，通通干掉。西方会被共产党有抛尸山野的感觉。中国老百姓付出的不是钱，是几代人的财富被洗劫走，还要为他打工。
+我告诉你，那玩儿的那是比美国一点都不低
+I’m telling you, its technology is as good as United States
 
-放毒目的是为了疫苗，疫苗本身就是最重要的毒。乙烷墨烯烷、乙烷墨材料，本身就是有害的。刺突蛋白、mRNA都有毒，对人类基因改变。在你的身体建上无数个防卫系统。现在的控制系统不管用，把你自己给灭掉了。俄罗斯、中共是最恶的百分之八九十，黑暗神秘的宗教力量、华尔街沼泽地。觉得人口太多，养老金、残疾人的问题。
+因为西方有限制、有道德、有法律，中国没有道德没法律
+Because the West has restrictions, morals, and laws, China has no morals and no laws
+
+他想干啥干啥，还有一个在西藏这个器官移植
+They can do whatever they want, and also about the organ transplant in Tibet
+
+直升机也好，飞机也好，有各种路线，包括有人说王行军他为啥能去呀
+there are various routes by helicopter or plane, including someone say why Wang Xingjun can go
+
+是不是共产党，战友们，在中国只要有钱，你就会钱和权交集以后
+Is he the Communist Party member? comrades-in-arms, as long as you have money in China, when money and power collude
+
+它就发生啥事都可能，就像七哥到新疆不会有人查我身份证
+that anything can happen, just like when Miles went to Xinjiang, no one would check my ID card
+
+军队开车是吧，开道到西藏去，七哥是，就全是解放军的车跟着
+The army was driving for me, right? It’s going to Tibet, the People’s Liberation Army’s vehicle was followed my car
+
+那怎么会查我，我不查别人就不错了，答案很简单，共产党肯定换器官
+how could they check me, it’s good if I don’t check others, the answer is very simple, the Communist Party will definitely do harvest organs
+
+然后是有组织、有系统化的，然后怎么方便怎么来
+Then it is organized and systematic, and then do it convenient way
+
+而且不会考虑任何人的痛苦
+And don’t think about anyone’s pain
+
+谢谢兄弟姐妹们
+thank you brothers and sisters
+
+* * *
+
+Date: 01/16/2022
+原视频标题: 中共器官移植没有道德底线
+The CCP’s Organ Transplantation Has No Moral Bottom Line
+原视频日期：2022/01/12
+原视频链接 **[https://gettr.com/post/pojfnr3ad8](https://gettr.com/post/pojfnr3ad8)**
+任务编号：KC417(3504)
+视频时间段 : 0:00-1:07
+中听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

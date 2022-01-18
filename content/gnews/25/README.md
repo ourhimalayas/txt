@@ -2,24 +2,37 @@
 ---
 
 
-## 关于疫苗，日本政府呈现找台阶改变策略迹象！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1873909/)
+## 有声|中共病毒加剧分裂 政治转型即将到来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1874028/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-156.png)（图片源自本文链接）
-17日，日本政府表示为放松中共病毒(新冠病毒Covid-19)新毒株奥密克戎扩散后，对人们的行动限制，计划敲定暂停“疫苗和测试包”的现行规定。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月15日盖特消息，史蒂夫-班农先生近期接受新中国联邦媒体采访，他认为，中共病毒恶化了现有分歧，但是为主权和民主而战的民众正在获胜，而且，全球政治转型即将到来。
 
-尽管实施了或接种两针疫苗、或提供核酸检测阴性证明，才可以在餐饮店等其它活动中放宽人数限制的防控措施，但接种了两针疫苗的人还是接连不断的被感染，现状已经可以得出结论，继续这样下去的话，该措施已难以发挥其作用。
+班农先生说，中共病毒疫情加剧了国家主权和全球主义等社会矛盾，而全球主义与中共为伍。而且，大规模强制接种中共病毒疫苗的后遗症，会进一步加剧社会分裂。但是，这种”分裂”并不是最坏的事情。反而表明，有相当一部分人不愿意向独裁屈服。事实证明，为民主自由而战的人们正在获胜。
 
-将于19日举行的关于基本对策的小组委员会会议上，计划就这一建议进行磋商。不再像上述那种一概式的防控措施，而是采取对全员进行检查，这种旨在放松对人们进行限制的新制度将被保留。
+原文链接：[中共病毒加剧分裂 政治转型即将到来](https://gnews.org/zh-hans/1870079/)
 
-笔者怎么看都觉得前后没啥因果关系．但至少表明了日本政府很可能不会实施强制疫苗政策！
+音频处理/发稿：Daxia
 
-信息来源：[ワクチンパッケージ、一時停止へ　政府、オミクロン株拡大で（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/545a67c6e62be0daafcd016031c7349766ab21f9)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

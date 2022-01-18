@@ -2,25 +2,45 @@
 ---
 
 
-## 司法中心将起诉魁省对未接种者的征税计划
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873810/)
+## 美国核导弹潜艇罕见访问太平洋的关岛基地
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873918/)
 
-采编： 文莱             编译撰稿：自由法兰西
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-1-edited.jpg)图片来源：TNH
+整理报道：文扬
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/HGOH5T86OBWAF1CTAQL.png)图片来源：CNN
 
 
-据加拿大媒体《真北方》1月15日报道，该国[宪法自由司法中心]近日宣布，由于魁省政府向未接种“新冠病毒”疫苗者征收“健康税”之举，严重违背了加拿大《权利与自由》宪章，因此将采取法律行动以反抗当局对社会弱势群体的公然迫害。
+美国时间1月15日（周六），一艘载有数十枚核弹头的美国海军潜艇驶入一个太平洋基地，进行罕见的访问，海军称这是向该地区的盟友发出的信息。
 
-据悉，魁省目前约有90%的人已接种了该疫苗。尽管省长勒戈并未明确该政策开始实施的具体日期，但他威胁称，新的健康税将是“巨额的”。除了魁省，奥地利、希腊、意大利等几个欧洲国家都已执行了类似规定。此外，魁省也是加拿大首个宣布将实施三针疫苗护照的省份。
+据报道，内华达号——这艘1986年服役的核动力潜艇，携带多达20枚三叉戟II弹道导弹和“几十个核弹头”。据CNN报道，这艘潜艇在1月15日访问了美国关岛海军基地，这是该类型潜艇自2016年以来的首次访问。
 
-报道称，[加拿大公民自由协会]和多名保守党议员都同声谴责了魁省当局的该项与纳粹主张无异的举措，并警告省长的言行已造成了煽动群体仇恨的严重后果。更荒谬的是，总理特鲁多竟公然定义未接种疫苗的加拿大人是 “憎恨女性的极端种族主义者”。不难预见，在疫情的掩盖之下，加拿大本已岌岌可危的民主制度将逐渐荡然无存！
+美国海军在一份声明中说，这次访问“加强了美国和该地区盟友之间的合作”，并展示了“美国的能力、灵活性、准备性以及对印度-太平洋地区安全和稳定的持续承诺”。
 
-* * *
+这次访问是在华盛顿和北京的矛盾越来越多的情况下进行的，特别是在台湾问题上，美国支持台湾的立场。
 
-校对编辑,发稿：硫酸羟氯喹64
+去年12月，美国和日本起草了一项紧急军事计划，为中共国和台湾之间的潜在冲突做准备。同月，五角大楼警告称，中共国可能准备入侵台湾。
 
-原文链接：[https://tnc.news/2022/01/15/justice-centre-taking-legal-action-against-quebec-for-taxing-unvaccinated/](https://tnc.news/2022/01/15/justice-centre-taking-legal-action-against-quebec-for-taxing-unvaccinated/)
+两个月前，美国总统拜登曾说，如果中共国试图让台湾与大陆统一，美国将致力于保卫台湾。
+
+而中共威胁，如果“台独势力挑衅、动武，甚至突破任何红线”，中共要“采取严厉措施”。
+
+台北认为台湾是一个独立的国家，但北京认为该岛是其领土的一部分，并发誓要统一两者。
+
+关岛距离台湾不到3,000公里（1,860英里），是美国领土上离中国大陆最近的美国军事基地。
+
+原文链接： [US nuclear missile sub makes rare visit to base near Taiwan — RT World News](https://www.rt.com/news/546226-us-nuclear-sub-pacific/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,33 +2,20 @@
 ---
 
 
-## 前马来国足注射中共病毒疫苗第三针五天后死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872477/)
+## 秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1872675/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月12日，前马来西亚61岁的足球运动员谢比.辛格在骑自行车时因心脏病突发死亡。据悉，这位运动员刚刚在1月7日注射了中共病毒疫苗加强针。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-55.jpg)
-医生表示，谢比的死因99%与心脏病发作有关。验尸报告显示，辛格的三条冠状动脉阻塞；而他的所有重要器官都处于完美工作状态，也没有任何过敏反应的迹象。
+撰稿：西枫westca
 
-当日，谢比是骑自行车时直接摔下来，虽很快叫来了救护车，然而，他已经过世了。谢比的儿子告诉记者，他的父亲在死前五天接受了加强针。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-10.jpg)图片来源：网络照片
+据新浪网1月17日报道，北京市新冠肺炎疫情防控工作新闻发布会通报， 在对北京新增病例进行了流行病学调查、采样检测、阳性货物排查和基因测序后，溯源结果与北美和新加坡毒株相似度较高。
 
-参考链接：[前马来国足注射中共病毒疫苗第三针五天后死亡](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
+病例发病前14天内无外省市旅居史，仅在工作期间接收过来自加拿大的国际邮件。经过测试，该邮件的外包装、内表面和文件内纸张，核酸检测均为阳性，并检测出奥密克戎异株特异性突变位点。 中共国国家邮政局同时发出通知，切实固牢国际邮件快件防控屏障，严防境外疫情通过寄递渠道输入。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+此两则新闻的出现，其荒唐让人啼笑皆非，我们看到中共在世人面前造假程度真是登峰造极！ 且不说国际邮件经过收件、空中飞行、过海关至收件人， 居然能查出纸张测试阳性！不知奥密克戎病株是有多么顽强。 其本质就是要让新一轮的病情爆发甩锅给西方，为闭关锁国做足舆论准备。
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**新闻来源：**[北京15日新增病例溯源结果公布 与北美和新加坡毒株相似度较高|新冠肺炎|北京|新加坡\_新浪新闻 (sina.com.cn)](https://news.sina.com.cn/zx/2022-01-17/doc-ikyakumy0845909.shtml)
 
  
 
