@@ -2,42 +2,25 @@
 ---
 
 
-## 有声| 写给还没加入农场的战友
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1873775/)
+## 司法中心将起诉魁省对未接种者的征税计划
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873810/)
 
-配音：香草山福音部 – Daxia
+采编： 文莱             编译撰稿：自由法兰西
 
-
-
-
-
-GTV 2022.01.10的文贵大直播中，“闻疯而动”战友问了七哥一个问题，大概意思是：每次看直播上千万人，为什么加入农场的战友这么少？确实，目前农场战友几万人。七哥说很多人害怕，犹豫，但是最终都会来，没有选择。
-
-这让我很有触动。因为我开始也是从旁观者角度看七哥爆料，慢慢开始相信，被共产体制的邪恶震撼，被七哥的勇气感动，也犹豫过，但战友们对正道的坚信，鼓励了我，同时对直播的各种分析，看到七哥灭共的实力和决心，看到七哥背后支持灭共的国内和国际力量，坚信共产党一定灭亡。最后战胜恐惧，勇敢地捐款法治基金，真正地加入了爆料革命。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-1-edited.jpg)图片来源：TNH
 
 
+据加拿大媒体《真北方》1月15日报道，该国[宪法自由司法中心]近日宣布，由于魁省政府向未接种“新冠病毒”疫苗者征收“健康税”之举，严重违背了加拿大《权利与自由》宪章，因此将采取法律行动以反抗当局对社会弱势群体的公然迫害。
 
-**文字版原文：[写给还没加入农场的战友](https://gnews.org/zh-hans/1863263/)**
+据悉，魁省目前约有90%的人已接种了该疫苗。尽管省长勒戈并未明确该政策开始实施的具体日期，但他威胁称，新的健康税将是“巨额的”。除了魁省，奥地利、希腊、意大利等几个欧洲国家都已执行了类似规定。此外，魁省也是加拿大首个宣布将实施三针疫苗护照的省份。
 
+报道称，[加拿大公民自由协会]和多名保守党议员都同声谴责了魁省当局的该项与纳粹主张无异的举措，并警告省长的言行已造成了煽动群体仇恨的严重后果。更荒谬的是，总理特鲁多竟公然定义未接种疫苗的加拿大人是 “憎恨女性的极端种族主义者”。不难预见，在疫情的掩盖之下，加拿大本已岌岌可危的民主制度将逐渐荡然无存！
 
+* * *
 
-发稿：雪梨
+校对编辑,发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[https://tnc.news/2022/01/15/justice-centre-taking-legal-action-against-quebec-for-taxing-unvaccinated/](https://tnc.news/2022/01/15/justice-centre-taking-legal-action-against-quebec-for-taxing-unvaccinated/)
 
  
 

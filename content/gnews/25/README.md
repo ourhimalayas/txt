@@ -2,37 +2,25 @@
 ---
 
 
-## 垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873368/)
+## 伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(二)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873400/)
 
-#### **【雅典娜观察】和您一起探究世界**
+#### 整理：雅典娜速记组
+编辑：陶子
 
-整理报道：George Warshing
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C5BEYDI5ICBAF4VQMX8.png)图片来源：Florida Times-Union
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害（二）-.jpeg)
 
 
-当地时间1月16日，据PJ媒体报道，在美国佛罗里达州的梅奥医学中心，丹尼尔·皮萨诺因感染中共冠状病毒生命垂危，依赖呼吸机维持生命已达28天，医生说他的存活机会不到5%。
+Nicole：然后我就把这个截屏给他发了，我说这是我给你发的，而且我跟你讲的很清楚,这个活动！是Chinese American Alliance for Trump！是他们组织的一个活动，而且全美各地那一天有很多的美籍华人，他们都是公民，有从加州从Michigan从美国各个地方飞到那边去的。这个组织是一个草根组织，跟郭先生没有半毛的关系！我说你为什么把所有美国的华人，就是那天去的都说成是暴徒？而且放在一个诋毁郭先生的纪录片里面？我说我理解不了这件事情，后来我就给她发了这个那个WhatsApp，然后她就把他她的头像给拿掉就跑了。她到现在也不回我，所以这个事情我觉得如果在电视机前面看到这个片子的，那天去的美国华人，你们都应该为这个事情 感到非常concern,因为在那个杨贝贝的纪录片里面，你们已经被说成了是一群冲击美国国会的暴徒。所以呢，我是觉得这件事情真的是我很难去想象, 就是她为什么会做出这种事情？因为我去她的那个推特和微博上，还有她的那个IG，上面都有账号，大家都可以去看一下。杨贝贝，她说，嗯! 因为之前她为了赢得我的信任，她说她是half Chinese。她说她爸爸是华人，然后她爸爸那个时候从中国坐着个小船，逃到英国，就是为了养家糊口,开餐馆，然后把她和2个兄弟养大，然后供他们上大学，她很为她的父亲感到骄傲和自豪。
 
-他的家属为了挽救他的生命，希望医院能让爱德华多·巴尔博纳博士为他实施冠状病毒前沿重症监护联盟(FLCCC)推荐的治疗方案，其中包括使用伊维菌素。但是该请求被梅奥医学中心无情地拒绝了。家属随即向法庭申诉，但玛丽安·阿霍法官做出了否定的判决。最终，丹尼尔·皮萨诺在医院去世。
+*发布：陶子*
 
-伊维菌素原本是一种兽药，但几十年来，它已广泛用于人类疾病的治疗，大流行期间医生用它挽救了很多中共冠状病毒感染者的生命，其中巴尔博纳博士以前是美国国会大厦的医生，他为国会议员和最高法院的成员提供治疗，他用伊维菌素治疗中共病毒感染取得了巨大成功，已治愈了“数十名”重症患者。
-
-人们对梅奥医学中心拒绝使用伊维菌素抢救生命的行为深感困惑。罗伯特·马龙博士在乔·罗根的播客节目中说，批量购买伊维菌素时，每（片）剂的价钱不到0.1美分，这样的价格根本怎么能让大型制药公司赚到数百万美元？食品和药物管理局(FDA)强烈排斥该药治疗中共病毒感染，说它是兽药；油管和推特则把敢于质疑“科学的化身”福奇博士的用户从其平台上赶走。
-
-伊维菌素何时才能成为治疗中共冠状病毒感染的药物目前还不明确，但是**，**伊维菌素已在[22个国家](https://c19adoption.com/)被批准用于抗击中共病毒。
-
-新闻链接：[Family Fights for Ivermectin for Dying Loved One, Courts Say ‘No’ – PJ Media](https://pjmedia.com/news-and-politics/kevindowneyjr/2022/01/16/family-fights-for-ivermectin-for-dying-loved-one-courts-say-no-n1549942)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

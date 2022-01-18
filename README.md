@@ -15,100 +15,100 @@
 
 ---
 
-### [有声| 写给还没加入农场的战友](/content/gnews/1/README.md)
+### [司法中心将起诉魁省对未接种者的征税计划](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大对货运司机的疫苗护照严重破坏供应链](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [有声| 写给还没加入农场的战友](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [多伦多机场要求取消对入境旅客的病毒检测](/content/gnews/2/README.md)
+### [多伦多机场要求取消对入境旅客的病毒检测](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国法院文件：谷歌与脸书合作操控广告竞价](/content/gnews/3/README.md)
+### [美国法院文件：谷歌与脸书合作操控广告竞价](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [美国多州起诉谷歌和Facebook勾结，操纵在线广告市场](/content/gnews/4/README.md)
+### [美国多州起诉谷歌和Facebook勾结，操纵在线广告市场](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：姚明本色上演“我看彭帅很好啊！”](/content/gnews/5/README.md)
+### [秘翻在线：姚明本色上演“我看彭帅很好啊！”](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [特鲁多对卡车司机的疫苗政策破坏加拿大经济](/content/gnews/6/README.md)
+### [特鲁多对卡车司机的疫苗政策破坏加拿大经济](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [1/17/2022 文贵直播：太平联盟案就是文贵与中共的生死之战](/content/gnews/7/README.md)
+### [1/17/2022 文贵直播：太平联盟案就是文贵与中共的生死之战](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [北美铁路工人或因疫情下的极端政策罢工](/content/gnews/8/README.md)
+### [北美铁路工人或因疫情下的极端政策罢工](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥从不在乎“人家”怎么看](/content/gnews/9/README.md)
+### [七哥从不在乎“人家”怎么看](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [任何事情都要避免急功近利与不切实际的幻想](/content/gnews/10/README.md)
+### [任何事情都要避免急功近利与不切实际的幻想](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(四)](/content/gnews/11/README.md)
+### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(四)](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [桥水基金的雷·达利奥赞扬中共的 &#8220;共同繁荣&#8221;运动](/content/gnews/12/README.md)
+### [桥水基金的雷·达利奥赞扬中共的 &#8220;共同繁荣&#8221;运动](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [DC大中华时事：中共称GDP增速超预期，造假越发肆无忌惮](/content/gnews/13/README.md)
+### [DC大中华时事：中共称GDP增速超预期，造假越发肆无忌惮](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [建造中的新中国联邦，不受物理地理限制](/content/gnews/14/README.md)
+### [建造中的新中国联邦，不受物理地理限制](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [汇钱到喜联储特别难怎么解决](/content/gnews/15/README.md)
+### [汇钱到喜联储特别难怎么解决](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GTV新闻访谈简报|2022年1月17日晚](/content/gnews/16/README.md)
+### [GTV新闻访谈简报|2022年1月17日晚](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(三)](/content/gnews/17/README.md)
+### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(三)](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [无悔青春](/content/gnews/18/README.md)
+### [无悔青春](/content/gnews/20/README.md)
  ` 纽约香草山MOS03`
 
-### [沃尔玛正在悄悄准备进军元宇宙](/content/gnews/19/README.md)
+### [沃尔玛正在悄悄准备进军元宇宙](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [漫画：《疫苗税》或《健康税》，就是对拒绝打针者改用针管吸出他口袋里的钱](/content/gnews/20/README.md)
+### [漫画：《疫苗税》或《健康税》，就是对拒绝打针者改用针管吸出他口袋里的钱](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [共产党让中国城在世界为它背黑锅](/content/gnews/21/README.md)
+### [共产党让中国城在世界为它背黑锅](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [零容忍的大小是由中共所控制](/content/gnews/22/README.md)
+### [零容忍的大小是由中共所控制](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(二)](/content/gnews/23/README.md)
+### [伊莎贝拉的虚假报道对我们去和平抗议的战友们的巨大伤害(二)](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [国内被抓去隔离时跑路包的准备](/content/gnews/24/README.md)
+### [国内被抓去隔离时跑路包的准备](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求](/content/gnews/25/README.md)
+### [垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国去年人口出生率创建国以来最低](/content/gnews/26/README.md)
+### [中共国去年人口出生率创建国以来最低](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [迪拜宣布接受喜币喜美元交易房地产的意义](/content/gnews/27/README.md)
+### [迪拜宣布接受喜币喜美元交易房地产的意义](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国及世界疫情简报（01-17-2022）](/content/gnews/28/README.md)
- ` 波士顿五月花农场`
-
-### [美国海军内华达号战略核潜艇现身关岛](/content/gnews/29/README.md)
+### [美国海军内华达号战略核潜艇现身关岛](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [辉瑞CEO预测民众生活将在今年春天恢复“正常”](/content/gnews/30/README.md)
+### [辉瑞CEO预测民众生活将在今年春天恢复“正常”](/content/gnews/31/README.md)
  ` 首尔天池农场`
 
-### [希腊、法国执行中共病毒疫苗强制令](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本政府破例允许87名留学生1月下旬入境](/content/gnews/32/README.md)
+### [希腊、法国执行中共病毒疫苗强制令](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量](/content/gnews/33/README.md)

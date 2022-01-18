@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府破例允许87名留学生1月下旬入境
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1873274/)
+## 希腊、法国执行中共病毒疫苗强制令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1873276/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._18-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220118-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
