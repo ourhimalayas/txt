@@ -2,23 +2,25 @@
 ---
 
 
-## 德国要求中共解除对立陶宛及欧盟的胁迫措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875786/)
+## 不完全财务披露福奇千万美元投资
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875788/)
 
-作者：纽约香草山 医疗部 云豹
+作者：加拿大温哥华扬帆农场 Spirit
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月14日，德国外交部发言人柏格在记者会中表示，德国与欧盟支持立陶宛，并要求中共解除对立陶宛和欧盟内部市场所有正式和非正式的胁迫措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.44.png)
-立陶宛因为决定设立台湾代表处，被中共无理干涉。 中共利用不合理手段，在海关故意阻扰立陶宛产品及含有立陶宛零件的欧盟产品进行通关程序，致使这些欧盟出口到中共的货物大量卡关堆积，造成欧盟厂商的困扰。
+《纽约邮报》1月16日报道，新发布的记录显示，截至2020年底，福奇和妻子有1040万美元投资，包括230万美元的未实现收益，分别持有在各种共同基金中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.50.png)
+参议员罗杰-马歇尔（R-Kan）周五晚上公开发布了福奇2020年的财务。在周二的参议院程序中，他询问了福奇财务状况，福气当时低声骂他 “蠢货”。福奇2020年工资是43万4千312美元，2021年和2022年的工资仍未被公布。
 
-欧盟执行委员会已经在检视中共的干预措施是否符合世界贸易组织（WTO）的规范，欧盟主管贸易的执行委员杜姆布罗夫斯基表示，欧盟正在搜集证据，准备对于中共违反世贸组织规范的行为，向世贸组织提出控诉。
+保守派非营利组织 “司法观察”(Judicial Watch)于2021年10月，起诉美国卫生与公众服务部，要求提供与福奇财务事务有关的文件。根据法庭文件规定，HHS已经提议从2月1日开始每月发布。美国参议院共和党籍参议员兰德保罗曾在去年7月2日，在法庭听证会质询福奇，武毒所病毒研究是否得到美国政府机构资助时，福奇还反唇相讥地说保罗才是谎言制造者。
 
-参考链接：[中國施壓立陶宛等歐盟成員國 德國要求解除脅迫措施](https://www.cna.com.tw/news/aopl/202201180011.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+司法观察组织主席托马斯-费顿指责美国国立卫生研究院，对福奇的记录玩了一个 “空壳游戏”。福奇在美国人眼前撒谎，还有NIH对公众获得其财务信息设置障碍，说明他们在掩盖事实。随着事件的进展，福奇与大药厂以无数生命为代价的金钱交易，将一一呈现。
+
+参考链接：[Dr. Anthony Fauci’s financial disclosure shows $10.4M in investments](https://nypost.com/2022/01/15/dr-faucis-financial-disclosure-shows-10-4m-in-investments/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
 总编：Zion文恩
-编辑：Zion文恩
+编辑：Kathy文艺
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

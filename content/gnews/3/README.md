@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|中共病毒加剧分裂 政治转型即将到来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876524/)
+## 诺奖得主反新冠疫苗并称未接种者将拯救人类被墙内媒体报道
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1876612/)
 
-配音：香草山教育部 – Rose
+素材：波士顿五月花 一尘
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图128.png)图片来自墙内媒体截屏
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日盖特消息，史蒂夫-班农先生近期接受新中国联邦媒体采访，他认为，中共病毒恶化了现有分歧，但是为主权和民主而战的民众正在获胜，而且，全球政治转型即将到来。
+意大利当地时间17日，法国著名病毒学家Luc Montagnier 吕克·蒙塔尼耶来到意大利，参加当地的反疫苗集会。在现场，他收到了“英雄般”的欢迎和支持。他称：未接种疫苗的人将拯救人类。他此前还称：大规模接种疫苗是不可接受的错误。
 
-班农先生说，中共病毒疫情加剧了国家主权和全球主义等社会矛盾，而全球主义与中共为伍。而且，大规模强制接种中共病毒疫苗的后遗症，会进一步加剧社会分裂。但是，这种”分裂”并不是最坏的事情。反而表明，有相当一部分人不愿意向独裁屈服。事实证明，为民主自由而战的人们正在获胜。
+蒙塔尼耶曾获2008年的诺贝尔生理学或医学奖，是世界艾滋病研究及预防基金会的共同奠基人和国际病毒联盟的总监。
 
-班农先生透露，今年秋季，美国将迎来政治巨变。美国共和党将被重塑为”工人党”，并将取得压倒性胜利。进而，世界的政治方向都会改变，将把消灭中共作为首要目标。
+该资讯18日被墙内媒体东方网首发，新浪、网易、搜狐均有转载。
 
-文字版原文：[中共病毒加剧分裂 政治转型即将到来](https://gnews.org/zh-hans/1870079/)
+原文链接：[诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑 /发布：吐纳*
 
  
 

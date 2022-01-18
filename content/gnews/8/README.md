@@ -2,40 +2,37 @@
 ---
 
 
-## 【圆成原创】你好，战友！
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1876346/)
+## MV版Hcoin To the Moon上线41天第27次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1876395/)
 
-**作者：列兵小小酥**
+1/18/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线41天第27次位列澳门iTunes热门音乐视频榜榜首，第34次位列前三名
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/46109A0F-4EEA-4F33-92E1-504E4B33E276.jpeg)图片来源：列兵小小酥
+* * *
 
-“你好！战友”
+[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-“谢谢！战友”
+* * *
 
-战友一词在每一个人的心中的分量都是不一样的，在我心里，战友这个单词也是有这特殊的分量。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
-我于2020年10月5号加入加拿大陆军，在这服役的一年半多里，战友一词的分量在我的心里是越来越重。
 
-如果你没有当过兵，可能你真的体会不出战友一词的分量，在我入伍之前，战友一词我感觉就是我们爆料革命这个大家庭里的每一个人的简称，我们管对方都叫战友。但我真真正正的参加了很多军事化训练的时候我才理解到战友一词的神圣，在这里我想举一个例子和大家分享一下。
+[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-我们有一个训练叫Room search。说白了就是一组人员有秩序的对一个房间破门而入，从而进行解救人质或者进攻目标。假如我是A，我的职责是破门而入后的右侧目标；战友B是左侧目标；战友C是直线目标。那当我们破门而入的一瞬间，就算我看见我的左侧有敌人，就算我明明知道左侧有危险，我也要第一时间把我的枪口转向右侧，因为我要保护我的其他战友的后背不受到任何威胁，同样我的战友也要保护我的后背不受到任何威胁。我要把我的命交给我的战友，同样我战友的命也在我的手中掌握着。所以在部队里我们经常说的一句话就是“Will you cover my back？”翻译成中文就是“你会保护好我的后背么”？
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-相应的训练还有很多很多，当一个班级进行进攻的时候，我们要用什么队形？当一个排进攻的时候，我们要用什么队形？当我们穿越一条马路的时候，要用什么队形？当我们从战场撤离的时候，要用什么队形，等等。当你受到了这些训练以后，你会发现他们有共同的一个特点，你永远都是你战友的后背，你永远都是你战友后脑勺上的的眼睛。
-
-当我们在七哥的带领下，一起走在爆料革命的这条道路上的时候，就真真正正可以体现出战友友情。最近疫情的大爆发，有些战友不远万里的送药，战友们都竭尽全力的去传播疫苗真相，真的让我很是感动。我相信CCP就是害怕了我们这一帮战友的凝聚力，CCP肯定没有想到，当今的中国人还可以这么团结。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/797A6409-6F19-47BE-B4E3-5087052FC4B0.jpeg)图片来源：列兵小小酥
-
-**“你好，战友！我是列兵小小酥，请把你的后背放心的交给我，你也会保护好我的后背吗？如果可以，让我们在灭共的最后阶段一起冲刺吧”！**
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/D95E4455-0887-4431-9CAB-13A00A24BC98.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

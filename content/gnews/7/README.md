@@ -2,30 +2,43 @@
 ---
 
 
-## 避免能源危机 中共国煤炭产量创纪录
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876374/)
+## 有声|在哈萨克斯坦事件中，中共最早向哈国派谴军队
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876499/)
 
-#### 撰稿：日本东京方舟农场 葛大饼
+配音：香草山教育部 – Rose
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5DDF5B96-30F1-4DE9-8641-8084CA9E3A5F.jpeg)（图片来自界面新闻）
 
-据《零对冲》1月17日报道， 中共国是世界上最大的煤炭污染国和消费国，去年12月生产了创纪录的3.8467亿吨最脏的化石燃料，与上年当月同比增长7.2%，而前一个月，产量增加了近1400万吨。2021年全年产量达到40.7亿吨，比上年增长4.7%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+在1月12日的大直播中，郭文贵先生谈到，在哈萨克斯坦事件中，中共最早向哈国派遣特种部队。
 
-在西方国家同意在本十年末减少二氧化碳排放，到2050年实现碳中和的目标时，世界公认的最大煤炭污染国中国的国家主席习近平却选择缺席2021年底的20国集团峰会和联合国气候会议。
+据郭先生爆料，哈萨克斯坦事件爆发前夕，王毅得知情报后，亲自到访哈国，收缴王岐山藏匿的一百余吨黄金，但遭到拒绝。
 
-他领导下的中共正忙于在北半球冬季来临之前恐慌性地囤积煤炭和其他化石燃料，以避免能源危机。北京在10月初命令国有能源公司不惜一切代价确保化石燃料供应。
+在处理哈萨克事件中，俄罗斯和中共出于政治利益，一致对抗西方，但是在经济利益方面却各怀鬼胎。
 
-恐慌性囤积的举动使郑州商品交易所的动力煤期货合约在10月18日达到每吨2,309元的纪录高点。至当月月底，监管机构对矿工实施价格上限政策，并下令增加生产。由于政府的市场干预，煤炭价格从2309元暴跌至今天的712元。因为公用事业的煤炭库存超过了1.62亿吨（约21天的用量），与去年同期相比增加了约4000万吨。
+中共在该事件发生后，第一时间派出一千一百名雪豹突击队成员，帮助托卡耶夫平息国内动乱。作为利益交换，要求托卡耶夫不但要归还一百余吨黄金，而且，必须支持并出席北京冬奥会。
 
-*参考链接：[China Coal Production Hits Record To Avoid Energy Crisis](https://www.zerohedge.com/commodities/china-coal-production-hits-record-avoid-energy-crisis)*
+俄罗斯出兵支持托卡耶夫的目的则是要控制哈萨克斯坦的油路，借机干掉乌克兰。
 
-* * *
+中俄对哈国联合出兵，就是要警告西方，上合组织联合出兵的合法性，适用于世界其它国家。
 
-*素材采编：葛大饼*
+文字版原文：[在哈萨克斯坦事件中，中共最早向哈国派谴军队](https://gnews.org/zh-hans/1870054/)
 
-*编辑： 青城道姑*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-*发布：miumiu*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
