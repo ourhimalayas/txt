@@ -2,12 +2,40 @@
 ---
 
 
-## 目标是中共病毒的早期门诊治疗，全民接种疫苗不合理
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1874280/)
+## 美国高院审判当中采用最最关键的数据由新中国联邦提供
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874373/)
 
-01/12/2022 哈特菲尔博士：由于时间滞后性问题，大规模接种中共病毒疫苗并不管用，因为病毒变异迅速，目标是进行早期门诊治疗，而全民接种疫苗不合理。
+G-TV视频链接：[https://gtv.org/video/id=61e63c0b87664c47acd624ae](https://gtv.org/video/id=61e63c0b87664c47acd624ae)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**郭文贵先生：**你们知道这个背后通过跟我们新中国联邦有多大关系吗？你知道我们寄了多少信、提供了多少文件吗？你们看过高院这个审判当中他们采用的文件，过两天公开以后，铲共骑侠你好好看看去，启用了最最关键的就是我们最多提供的数据，mRNA和病毒溯源，以及这些私人企业主的打疫苗，你知道这是8400万美国人，要不然你就要合法被打疫苗。昨天如果这个法不是这么过的话，你知道现在曼哈顿是什么概念吗兄弟姐妹们？长岛哥进曼哈顿进那个楼他都得打疫苗，不打疫苗就是不合法的。小飞象也得打疫苗，你不是流水啦，你该流血啦。
+
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

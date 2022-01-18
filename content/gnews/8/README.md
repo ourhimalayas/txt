@@ -2,75 +2,40 @@
 ---
 
 
-## 中共器官移植没有道德底线
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1874277/)
+## 北京抓四个正厅级干部黑龙江抓两家零容忍制作组也被抓
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874347/)
 
-[https://gtv.org/video/id=61e53c7687664c47acd5cec6](https://gtv.org/video/id=61e53c7687664c47acd5cec6)
+G-TV视频链接：[https://gtv.org/video/id=61e63bd487664c47acd6249e](https://gtv.org/video/id=61e63bd487664c47acd6249e)
 
-**郭文贵
-Miles Guo**
+**郭文贵先生：**这几天这热闹啦大家，说到刚才一开始国内发生了什么事儿你知道吗？你根本不知道。就在我刚才开动这个摄像机到现在，北京最起码抓了四个正厅级干部，黑龙江又抓走了俩，两家啊，两家。记得七哥2017、2018、2019年说的黑龙江抓的人，还有辽宁的，还有政法委的，没有一个不抓的，还有杭州书记，孙力军都出来认罪的球的了。就在刚刚，审孙力军案子的人就在刚刚，刚才被抓。包括制作所谓《零容忍》的这里面的好几个制作组的人也被抓了，就刚刚、就在开机之后，我刚才得到的情报。大家都在说《零容忍》的时候，你知道这里面背后的故事吗？这就是爆料革命、新中国联邦的魅力！
 
-所有的这个移植在中国的移植技术, 不需要任何其他的
-All this transplant technique in China, don’t need any others
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-中国人现在器官移植干细胞是全世界最先进之一
-Chinese now have one of the most advanced organ transplant stem cells technologies in the world
+编辑整理：Jacques；
 
-把猪的心脏都移到人身上中国人干的，中国的干细胞叫大华基因
-The Chinese can even transplant the pig’s heart into people, the Chinese stem cells technologies are from BGI Group
+字幕文件制作：小满；
 
-我告诉你，那玩儿的那是比美国一点都不低
-I’m telling you, its technology is as good as United States
+视频制作及上传：Cindy；
 
-因为西方有限制、有道德、有法律，中国没有道德没法律
-Because the West has restrictions, morals, and laws, China has no morals and no laws
+G-News发布：小满；
 
-他想干啥干啥，还有一个在西藏这个器官移植
-They can do whatever they want, and also about the organ transplant in Tibet
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-直升机也好，飞机也好，有各种路线，包括有人说王行军他为啥能去呀
-there are various routes by helicopter or plane, including someone say why Wang Xingjun can go
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-是不是共产党，战友们，在中国只要有钱，你就会钱和权交集以后
-Is he the Communist Party member? comrades-in-arms, as long as you have money in China, when money and power collude
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-它就发生啥事都可能，就像七哥到新疆不会有人查我身份证
-that anything can happen, just like when Miles went to Xinjiang, no one would check my ID card
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-军队开车是吧，开道到西藏去，七哥是，就全是解放军的车跟着
-The army was driving for me, right? It’s going to Tibet, the People’s Liberation Army’s vehicle was followed my car
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-那怎么会查我，我不查别人就不错了，答案很简单，共产党肯定换器官
-how could they check me, it’s good if I don’t check others, the answer is very simple, the Communist Party will definitely do harvest organs
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-然后是有组织、有系统化的，然后怎么方便怎么来
-Then it is organized and systematic, and then do it convenient way
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-而且不会考虑任何人的痛苦
-And don’t think about anyone’s pain
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-谢谢兄弟姐妹们
-thank you brothers and sisters
-
-* * *
-
-Date: 01/16/2022
-原视频标题: 中共器官移植没有道德底线
-The CCP’s Organ Transplantation Has No Moral Bottom Line
-原视频日期：2022/01/12
-原视频链接 **[https://gettr.com/post/pojfnr3ad8](https://gettr.com/post/pojfnr3ad8)**
-任务编号：KC417(3504)
-视频时间段 : 0:00-1:07
-中听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
