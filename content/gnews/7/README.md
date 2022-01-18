@@ -2,137 +2,136 @@
 ---
 
 
-## 文贵先生直播大纲2022/01/17
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1872977/)
+## 在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873088/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011608.jpg)[**GTV直播链接**](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
+[https://gtv.org/video/id=61e45aad87664c47acd58ee5](https://gtv.org/video/id=61e45aad87664c47acd58ee5)
 
-🔷依法灭共新阶段
+**Tucker Carlson
+塔克·卡尔森**
 
-五年前我警告世界，来自中共的“黑暗即将到来”， 现在黑暗已经到来。黑暗到来的方式：首先控制媒体不让你知道真相；第二，抢你的钱，以“合法”的外衣瞒天过海；第三，和西方势力勾结，多方面控制西方法律，这是共产党长期超限战的结果。一旦他们控制了法律，世界各国人民将不再有安全。所以我们一直说“依法灭共”，法律是人类安全的基石! 我们要让中国人拥有独立的司法系统! 你们不知道共产党有多恐惧七哥! 恐惧爆料革命! 每时每刻，我们都在“依法灭共”的战斗中!
+So this week as we told you
+所以本周正如我们告诉你的那样
 
-🔷共产党的世界威胁
+the Supreme Court overturned Joe Biden’s lunatic vaccine mandate for private companies that have over 100 employees.
+最高法院推翻了乔·拜登对拥有100多名员工的私营公司的疯狂强制疫苗规定
 
-爆料革命从第一天就说，香港一定会被共产党毁掉! 截至目前，香港“被自杀”的人已经超过两万。七哥如果待在香港会活到现在吗？共产党不灭，美国人会安全吗？拜登不怕习近平吗？川普不怕习近平吗？马克龙不怕习近平吗？谁都怕!
+That’s obviously a win for sanity
+这显然是理智的胜利
 
-🔷PPT《疫苗大灾难》（00：22：04-00：25：05）
-[![](https://express.adobe.com/page/PZgRon5ECoBek/images/f721fb82-7aff-4356-9beb-590e2b1a59ed.png?asset_id=931152ad-0530-4417-9035-85a1a21b1202&amp;img_etag=%2295fb6ad2e77e8e005dfd5c98826f3d94%22&amp;size=1024)](https://express.adobe.com/page/PZgRon5ECoBek/images/f721fb82-7aff-4356-9beb-590e2b1a59ed.png?asset_id=931152ad-0530-4417-9035-85a1a21b1202&amp;img_etag=%2295fb6ad2e77e8e005dfd5c98826f3d94%22&amp;size=1024)
-🔷PPT《太平联盟诉郭文贵》（00：29：55-00：49：26）
-[![](https://express.adobe.com/page/PZgRon5ECoBek/images/c911c75e-4d49-4355-8894-2ec188ab6a1b.png?asset_id=25da9999-334e-4e42-8c1e-ce58d0daa69e&amp;img_etag=%22afbf764d5697441676560cf9e5e5cd6e%22&amp;size=1024)](https://express.adobe.com/page/PZgRon5ECoBek/images/c911c75e-4d49-4355-8894-2ec188ab6a1b.png?asset_id=25da9999-334e-4e42-8c1e-ce58d0daa69e&amp;img_etag=%22afbf764d5697441676560cf9e5e5cd6e%22&amp;size=1024)
-🔷太平联盟案子的背后是共产党
+But at the same time the court left in place
+但与此同时，法院还保留了
 
-共产党在美国纽约最高法院，操纵着文贵先生的案件，这个官司代表中共走狗的律师J. Bondi和Ed Moss都被带三方机构判为严重违反职业道德，文贵先生是用生命和鲜血在和共产党斗争。在文贵先生去VOA采访，之前就被孙力军和太平联盟警告，如去接受采访，将会让其无法生存，这背后的主使就是共产党。
+Biden’s mandate for medical workers think about that
+拜登对医务工作者的疫苗规定
 
-🔷共产党证据造假
+In other words, the Supreme Court just affirmed
+换句话说，最高法院刚刚确认
 
-太平联盟的官司司法部、法院、律师全部都被买通。案件是在4.19后立刻被美国法院立案，案件造假的，不允许文贵先生怀疑案件本身，案件和证据也不是发生在纽约，却在纽约立案。共产党连法院需要的证据都是造假的。
+that politicians in Washington somehow know more about health than nurses in emergency rooms
+华盛顿的政客不知何故比急诊室的护士更了解健康
 
-🔷Ed Moss被判强烈违反职业道德
+That’s absurd
+这太荒谬了
 
-我们在没办法的情况下找到第三方法官律师的机构鉴定，ED Moss强烈违法职业道德，他对我们五年的伤害是巨大的，每一次都是致命的伤害。
+How did that happen?
+那是怎么发生的？
 
-🔹 PAG在国内的活动与这个案子的涉嫌
+Well, it happened for one reason
+好吧，它的发生是有原因的
 
-PAG向国内GTV的投资者索要的材料与这个案子的法庭向文贵先生的索要材料完全一致，PAG和吴征、海航与这个案子的律师事务所在北京国贸附近活动密切关联。
+because justice is John Roberts and Brett Kavanaugh
+因为大法官是约翰·罗伯茨和布雷特·卡瓦诺
 
-🔹 涉嫌中共间谍的民运伪类提前宣布文贵判决信息
+sided with the Biden administration in alliance with the hard partisans on the court
+与法庭上的顽固派结盟，站在拜登政府一边
 
-吴征供款给博讯的律师费、熊宪民预告法院的判决信息；博讯和熊涉嫌中共的间谍案件，正在美国调查中。
+like certified non genius Sonia Sotomayor
+像经过认证的非天才的索尼娅·索托马约尔
 
-🔹 文贵谈太平诉讼案子的本质
+No one who pays attention to surprise the John Roberts did this.
+没有人惊讶的约翰·罗伯茨会这样做
 
-我们是在跟PAG背后的共产党在打官司，也是在跟被收买的美国黑暗势力在打官司！我们将誓死战斗到底！
+Roberts says judicial philosophy consists of not offending the Washington Post and has for years
+罗伯特茨说，司法哲学包括不冒犯《华盛顿邮报》并且多年来一直如此
 
-🔷PPT 《太平联盟案的四大不寻常-中共法律超限战》01:31:24-01:37:15
-[![](https://express.adobe.com/page/PZgRon5ECoBek/images/88bab132-721d-4900-9efb-01ac7559d8ec.png?asset_id=fbd2645a-31be-41d2-a92f-fc990be274ad&amp;img_etag=%22e49f4e69b762a17adf9b68bf1194baff%22&amp;size=1024)](https://express.adobe.com/page/PZgRon5ECoBek/images/88bab132-721d-4900-9efb-01ac7559d8ec.png?asset_id=fbd2645a-31be-41d2-a92f-fc990be274ad&amp;img_etag=%22e49f4e69b762a17adf9b68bf1194baff%22&amp;size=1024)
-🔷七哥分享自己骨子里要灭共的原因
+but Brett Kavanaugh?
+但是布雷特·卡瓦诺？
 
-从七哥的成长大家就能看到共产党有多邪恶。七哥出生的村子里所有人比过去还穷，相互通婚，还不觉得自己过的多差。大家看到七哥小时候的照片，看到七哥失去八弟弟，而且八弟是被打两枪活着放屋里疼了两天死去，看到共产党连刚出生三个月的郭美和七嫂都抓了，就理解为什么七哥是无时无刻不在积蓄力量灭共。悲哀的是全中国人认为自己家孩子不会死，认为新疆，香港，西藏，全世界的病毒不会发生在自己身上。灭共是伟大而幸福的事情。墙内人民整天活在麻将、攀比、无知、物质的生活中，活着猪狗不如的状态，一切都被共产党在玩弄。一个没有法律的社会比地狱更夸张。七哥带着全人类灭中共很幸福。
+wasn’t Brett Kavanaugh supposed to be as sincere conservative a man of principle
+布雷特·卡瓦诺不应该是一个真诚保守的有原则的人吗？
 
-🔷七哥分享灭共是他命中注定
+And so Lindsey Graham told us unfortunately
+所以不幸的是林赛·格雷厄姆告诉我们
 
-内七哥兄弟八个，家里没有姐妹或者姨妈姑妈，女士只有母亲和嫂嫂。七哥从小到大就是在被否定中成长的。出生地东北，成长地山东都是中国最穷的地方。而所有的幸运，都是在悲惨中长出来的。全家人的生命和鲜血和失去自由纠正着七哥向灭共的正确方向前进，一生带着这些穷兄弟姐妹与最强者作战，无所畏惧。到今天只要敢挑战邪恶势力就是我们新中国联邦。
+many of us believe that we certainly did
+我们中的许多人相信，我们的确是
 
-🔷七哥分享关于人的不生不灭
+When Brett Kavanaugh cried during his confirmation hearings
+当布雷特·卡瓦诺在确认听证会上哭泣时
 
-香港同事昨天和七哥和王雁平一起开会时候说他们那里有鬼、有孩子，七哥说你不要怕他們，他们都是被共产党杀害的人。他们要啥你给他们啥。七哥也会经常梦到青峰看守所中同号被枪毙的60多人。所以七哥坚信人不生不灭。但是被共产党枪毙的，屠杀的，自焚的那些人很难再投胎。被冤死的灵魂是死不了的，投胎不了的。七哥就希望用拯救人类，来换取八弟的投胎，哪怕不上天堂，也别入地狱。人类短暂的生命活着绝不是为了房子车子吃饱拉到，是要有意义的。就像有新疆、香港的战友说七哥真的是悟到什么了。
+wept like Adam Kinzinger we felt sorry for him
+像亚当·金辛格一样哭泣，我们为他感到难过
 
-🔷关于2022年的三大官司
+We didn’t understand at the time that something had broken inside of Brett Kavanaugh
+我们当时不明白布雷特·卡瓦诺的内心有什么东西被破坏了
 
-第一是UBS在英国的官司，它们拿走了我们百亿千亿的财富，这官司是CCP极力要阻止的。第二是PAG羞辱七哥缠诉七哥的官司，这是法律超限战。第三是我们反诉Andy Moss之流造假的一些列官司，用美国法律证明和审判它们的造假。
+that on some level his tormentors now controlled him
+在某种程度上，他的折磨者现在控制了他
 
-🔷PAG 跟海航的关系图视频 02:18:23-02:26:44
-[![](https://express.adobe.com/page/PZgRon5ECoBek/images/25617d90-20c2-4868-89f2-adf55e887601.png?asset_id=e327c403-c8ca-48ee-8d13-adb22306bc0d&amp;img_etag=%229fdbaa7cc0e6828adb73cff7a1e6aab8%22&amp;size=1024)](https://express.adobe.com/page/PZgRon5ECoBek/images/25617d90-20c2-4868-89f2-adf55e887601.png?asset_id=e327c403-c8ca-48ee-8d13-adb22306bc0d&amp;img_etag=%229fdbaa7cc0e6828adb73cff7a1e6aab8%22&amp;size=1024)
-🔷太平联盟案件上没有程序正义
+and that going forward he’d be burned boiled to conventional opinion that to the Constitution of the United States
+并且在未来，他已背叛了美国的宪法的传统观点
 
-几万页的英文文件，活一千年也读不完。法庭审判当中发生的奇怪的事情难以想象。吴征在FBI的合伙人出现了以前的案子里。这样的事情都没有过。
+Our mistake
+选择他是我们的错误
 
-🔷共产党五年来对七哥的精神伤害
+To the courts actual conservatives, the ones who don’t weep in public
+对于法院真正的保守派，那些不在公共场合哭泣的人
 
-一个律师收就拿七、八千万，那他找的那个人要拿多少钱？过亿！换了几次律师。塞浦路斯的战友被遣返。迪拜、塞浦路斯、玛塔玛尔，越南、新加坡，等等。共产党在世界的黑手有多么黑暗。
+Kavanaugh position on the VAX mandate made no sense at all
+卡瓦诺对强制疫苗规定的立场完全没有意义
 
-🔷美国司法体系的被渗透
+As Clarence Thomas put it in his dissent
+正如克拉伦斯·托马斯在他的异议中所说
 
-这几天这个案子，PAG的案子像当时埃利伯里一样。我们已经向美国议员参众两院强烈要求对这个案子要高度关注。美国、西方的媒体对这件事情不是一般的关注。美国决定法官的最重要是美国律师协会ABA。太平洋联盟按这个速度未来的走向。
+nothing in law or in the Constitution requires nurses to
+法律或宪法中没有任何规定要求护士
 
-🔷PGA这个案子的疯狂和七哥的不易
+quote “choose between losing their livelihoods and acquiescing to a vaccine they’ve rejected for months”
+“在失去生计和默许他们拒绝数月的疫苗之间做出选择”
 
-今天这个案子的疯狂就是到了完全无视法律，就是为了钱干掉你。有几个议员在PAG的官司上看到了美国真正的危险。美国的治国根基就是法律，如果这个都被破坏了，那美国就太危险了。
+Well, exactly. In other words
+嗯，正是，换句话说
 
-七哥2017年爆料到现在，在这个案子上看了多少文件，花了多少时间精力，是怎么活过来的？任何一个战友在这样的攻击下坚持不到一年。对方的文件就有七万多页，几百人的律师团队，其中这个Edward Moss律师毫不掩饰代表中共的嘴脸。
+Joe Biden’s vaccine mandates have no legal authority
+乔·拜登的强制疫苗规定没有法律支持
 
-🔷选择今天直播的意义
+and without legal authority, the government can’t force us to do anything
+没有法律支持，政府不能强迫我们做任何事情
 
-今天是马丁路德金的日子，我们选择今天意义的，他在美国公平对待少数民族上，宁死不屈，他为黑人和少数民族树立了榜样。他改变了美国整个民主的进程，是人类黑暗中的一盏明灯。在中国如果出现这样的人，中共会用道德把他的英雄事迹毁掉。七哥当时在法庭上连续出庭五天，每天十几个小时，谁能受的了呢？七哥非常感同身受马丁路德金的感受，受得了这种寂寞，羞辱的煎熬，我们中国几代人没有出来一个像马丁路德金这样的人。
-
-🔷我们绝不能在PAG这个案子上妥协
-
-我们活在美国，如果在PAG官司面前妥协了，放弃了，我们将会被中共无数次的“推下铁轨”，而且没有人会为你说话。我们在美国将会永远成为司法的奴隶，司法的牺牲品，中共会把所有的海外华人毁掉。现在PAG官司没那么简单，它牵扯到巨大的种族问题，巨大的法律的黑洞，和美国司法制度的缺陷，所以接下来会有更大的事情。
-
-🔷把Edward Moss律师和Cahill律师事务所废掉后对案件走向的积极影响
-
-对Edward Moss出局的判决当中，在庭上是GTV发的动议，在判决上是MilesGuo发的动议取消它。意义重大，第一就是我们在BVI的战场非常重要，同时这里受共产党的影响特别严重。对方律师造假这件事对我们在BVI官司上是有优势的。第二个就是Edward Moss不会消停的，他会继续使坏的，继续参与这个案子的，那他就是犯罪了。第三个意义就是对Cahill和邦迪，我们有权利要回相关的律师费，Edward Moss和邦迪的律师执照很有可能会被取消。同时美国司法部，国会议员，美国律师协会等各机构都会关注这件事。
-
-🔹法官MR. ORSTRIGER拒绝和接受案件的前后转变
-
-2017年该法官以管辖地不同为缘由拒绝接受此案，2018年4月18日却突然立案。理由何在？最近媒体、议员、律师都在问相同的问题。这个问题的答案一定会水落石出，该答案将是这个案子奇怪问题的真相之一。任何试图掩盖此案的人都不会得逞，因为所有通话、通信、ANDY MOSS与中共勾兑的过程等证据都在。
-
-🔹导致此案突变的几大因素
-
-导致太平联盟诉讼案突变的几大因素：1. 有重大证据发现；2. 有人提出该案程序非正义；3. 被中共抓捕的某个人（如：孙力军）承认操控了美国法庭。即使中共没了，此案仍然会继续。
-
-🔹中共是否也会以同样手段在英国法系里搞渗透
-
-中共特务李贞驹在英国被报出来。七哥早在2015年就跟英国军情处的人提到过此人。此人与英国大使的私密交往在北京被全程录像。此人有一妹妹是中国国家安全部五局的一个副局长。英国到今天2022年才抓住这个人，可见中共在英国渗透之深。英国大概有七十到八十个“李贞驹”！
-
-在此案中，BVI这个岛只有四、五个法官，都来自于律师。最大的律所之一就是APOBI，它已经超越ANDY MOSS严重地违反了职业道德。墙内审理孙立军案的一战友告诉七哥，“BVI这个地方已经彻底被渗透，案子结果是全输。” 在巴哈马的“李贞驹”那就更多了，至今未受到惩罚。
-
-🔹ANDY MOSS换律所，下一步目标是否要攻击GTV？
-
-CAHILL律所在华盛顿，ANDY MOSS想玩更多的政治。他发出的法庭传唤令就七、八十个，完全是胡搅蛮缠；完全无视美国法官、法律的严肃性和正义性。目的就是要毁掉所有G系列，这是一场新的阴谋的开始，将所有跟中共的勾兑、华盛顿的资源全部升级化。
-
-🔹对于2月2日的案子是否有阳光面？
-
-黑暗还没有真正到来，狠招还在后面呢。单伟建是超级经济间谍，而且中共搞了几年了、耗资巨大。太平联盟的案子是中共在过去五年动用国家机器搞得一整套活儿，现在到了收割的时候，它怎么可能收手？它会利用所有绑架的美国法官、司法部、白宫等等，倾其一切来毁掉我们。但最终我们会百分百赢：因为真的假不了、假的真不了。这个案子已无人能推翻，它的程序、证据、审判都不合法。ANDY MOSS 一定会失去律师牌照；单伟建一定会被司法部调查
-
-*听写：* *风云007，文评，seven-star ant, 文风，苹果树，万物归一，trustguo* *| 校对：乐禧禧 | Page：我是球大哥*
+Period
+就是这样
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:01/15/2022
+原视频标题: During his confirmation hearing, we didn’t understand that something had broken inside of Brett Kavanaugh. Unfortunately, many of us believed he was a sincere conservative
+在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派
+原视频日期：2022/01/15
+原视频链接: [https://gettr.com/post/podwzx7025](https://gettr.com/post/podwzx7025)
+任务编号：KE352（3495）
+视频时间段 : 0:00-1:46
 
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

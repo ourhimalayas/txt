@@ -2,44 +2,22 @@
 ---
 
 
-## 中共国将推出国家可监管和干预的区块链技术以交易NFT
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1872948/)
+## 黑社会控制音乐（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873072/)
 
-据《Market Insider》作者：Phil Rosen，2022年1月13日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1393.png)图片来源：Forbes
-- 据《南华早报》报道，中共国将推出国家可干预的区块链技术以支持NFT（非同质化数字货币）发展。
-- 尽管中共国去年禁止了数字货币交易，但北京发出参与飙升的NFT市场的信号。
-- 多家中共国科技公司正在支持这一新的受到当局严密监控的区块链项目。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
+你们想怎么唱怎么唱，永远不去求他。这是第一个跟他不一样第2个是什么？你知 道吗？所以我看过这个唱（得）好的人没有几个是真嗓子好，都是卖身包装出来的， 没有人包装你，今天连音乐都你自己玩了是吧？我这听着，旁边几个（人）都觉得 你是天才级的嗓子，而且你还没变音呢，你这个黄毛没退的小毛伙子前途无量。我今天可以告诉你，你们几个我不知道你爹是谁，我知道twins的爹是王雪冰，你要需要我资助，还有瑞卡，我不知道瑞卡爹是谁，我一定资助。喜安迪我知道他爸是谁。 我们说只要你需要，新中国联邦坚决支持你们，但我只求你干一件事情，不要为了你可谋生的饭碗而唱，不要取悦于别人而唱，而且永远不唱别人的口水歌谢谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/黑社会控制音乐（二）-.jpg)
+*发布：*tianzhihuan
 
-据《南华早报》报道，中共国国家支持的区块链服务网络（BSN）将启动新的基础设施项目以支持非同质化数字货币（NFT），从而试图开启与其他数字货币无关的中共国NFT市场。
-
-该公告表明北京对NFT的兴趣，也显示其试图平衡于2021年对加密货币交易的禁令。国家支持的数字货币基础设施将明确区分数字货币和NFT，或者说NFT仍然是合法的。
-
-尽管如此，京东、百度和腾讯控股等一些科技公司仍选将NFT称为“数字收藏品”。
-
-这项名为BSN分布式数字证书 (BSN-DDC) 的新技术将允许用户管理他们的NFT，所有购买都使用人民币进行交易。
-
-“区块链通常是用于记录公开市场交易的去中心化信息平台。然而，在中共国，公共链是非法的。”BSN技术支持提供商红枣科技（Red Date Technology） 的首席执行官何一凡告诉《南华早报》。
-
-“事实上，国家要求所有在线系统允许监管机构在“非法活动”时进行干预。”他补充说。
-
-中共国对此的替代方案是开放许可链，或使用由特定实体管理的区块链版本。中共国的BSN得到国有的中国移动、中国银联和国家信息中心的支持。 BSN-DDC 将集成10条区块链，包括以太坊和Corda的修改版本。
-
-更多大玩家和知名人士持续进入数字资产领域。 2021年，NFT的市场规模激增至410亿美元，几乎赶上了全球艺术市场的规模。
-
-* * *
-
-原文连接： [https://markets.businessinsider.com/news/currencies/china-nft-blockchain-ban-cryptocurrencies-state-run-digital-assets-2022-1](https://markets.businessinsider.com/news/currencies/china-nft-blockchain-ban-cryptocurrencies-state-run-digital-assets-2022-1)
-
-翻译：洛杉矶盘古农场 – 海潮
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

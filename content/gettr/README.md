@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 12:24 AM (UTC)`
+
+1/17/2022 Miles Guo: Miles Guo’s outlook on the Pacific Alliance case - we must use procedural justice to reveal the truths to the world through real evidence. Finally, the Department of Justice, Congress, and others will be fully involved in the investigations. The outcome of the PAX case will lead to the global efforts to take down the CCP, completely removing the toxins buried deep in the US and Europe by the CCP.<br/><br/>1/17/2022 文贵直播：文贵先生对太平联盟案的展望，我们一定要用程序正义、真实的证据让真相大白于天下，最终美国司法部、国会等会全面介入调查，太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除
+![img](https://media.gettr.com/group46/getter/2022/01/18/00/bcb7823d-99fd-7b33-84e1-2903524712e2/out.jpg)
+
+---
+
+`@miles 1/18/2022 12:15 AM (UTC)`
+
+1/17/2022 Miles Guo: Darkness coming to the world is manifested in the CCP’s manipulation of the media, plunder of the people’s wealth, and control of the judicial system. We must take down the CCP with the law and let the Chinese people have an independent judicial system. If you didn’t fight for it, you would be the next one persecuted by the CCP like me.<br/><br/>1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统；我们要以法灭共，让中国人有独立的司法系统；如果不为之奋斗，大家也会像七哥一样被中共迫害！<br/>
+![img](https://media.gettr.com/group27/getter/2022/01/18/00/7a44fedc-b7cd-9277-081a-0cb53bc965d8/out.jpg)
+
+---
+
 `@miles 1/17/2022 10:20 PM (UTC)`
 
 1/17/2022 Miles Guo: Looking back at the 2017 case of Pacific Alliance v. Miles Guo, why did Boxun and Xiong Xianmin know the verdict before the judge ruled? Why were the legal fees for Boxun and all the frivolous lawsuits against Miles Guo paid by Bruno Wu, a partner of PAG? Is it normal to have so many "coincidences"?<br/><br/>1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？为什么博讯和所有与文贵先生有关的法律缠诉案的律师费是吴征提供的，而吴征和太盟是合伙人关系？如此多的“偶然”正常吗？<br/>
@@ -139,22 +153,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 史蒂夫·基尔：强制打疫苗是疫情大流行的错误解决方案，疫苗甚至没有被食药局准许。如果人们想要保护自身免于感染中共病毒，只要有一个带P100过滤器的3M防毒面具就可以。我觉得强制打疫苗不道德、而且不起作用。人们被强迫打这个疫苗，这违反了纽伦堡条约<br/><br/>Steve Kirech: Vaccination Mandates are just the wrong solution to the pandemic. And the vaccine is not even approved by the FDA. If people want to protect themselves against getting COVID, early treatment could have saved everything, and just get a 3M respirator with a P100 filter. I think that mandates are unethical, immoral, and ineffective. People are being coerced into taking it, and this is a violation of Nuremberg.<br/><br/>
 ![img](https://media.gettr.com/group15/getter/2022/01/16/14/be3df75f-02f8-7a03-5e56-d9f0447b6aa0/out.jpg)
-
----
-
-`@miles 1/16/2022 2:36 PM (UTC)`
-
-麻省理工学院科学家斯蒂芬妮·森内夫博士对中共病毒疫苗可能产生的长期副作用发出警告：通过类似朊病毒的刺突蛋白的作用，我们可能会看到几种主要的神经退化疾病惊人地增加，而且在越来越年轻的人群中发病率越来越高<br/><br/>MIT scientist Dr. Stephanie Seneff warning of the possible long-term side effects of the COVID vaccines:  through the prion-like action of the spike protein, we will likely see an alarming increase in several major neurodegenerative diseases, with increasing prevalence among younger and younger population.<br/>
-![img](https://media.gettr.com/group47/getter/2022/01/16/14/20928076-87d8-4293-d5a4-b6f5d9ac9da9/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/16/2022 12:59 PM (UTC)`
-
-EP5: A fiction carved out of lies. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第五集：用谎言虚构的故事。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles #ccppropaganda #whoisthebigboss
-![img](https://media.gettr.com/group36/origin/2022/01/16/12/e0c267a9-346e-c04f-adcb-3bb6d0667940/out.jpg)
 
 ---
 

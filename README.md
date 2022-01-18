@@ -15,71 +15,71 @@
 
 ---
 
-### [大卫王问：明年我们的圣诞节还会这样直播吗?](/content/gnews/1/README.md)
+### [小福利&amp; M7的分享(一)](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [国防部正在把福奇暴露出来](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [小斯基点评VICE采访事件(三)](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [七哥解释农场是什么？——是来自于天然的、自由的、大自然的、自力更生的、不用交易的、不受人约束的地方（2022-01-12摘录）](/content/gnews/3/README.md)
+### [火来问题（二）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥谈中共愚弄着十四亿中国人（2022-01-12摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [可靠情报显示香港被杀人士达两万人](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [CCP让西方黑暗到来的三个方式](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [文贵先生直播大纲2022/01/17](/content/gnews/7/README.md)
+### [文贵先生直播大纲2022/01/17](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球疫情更新（德约科维奇签证乌龙的讨论）](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥谈彭帅视频事件(三)](/content/gnews/9/README.md)
+### [小斯基点评VICE采访事件(二)](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国将推出国家可监管和干预的区块链技术以交易NFT](/content/gnews/11/README.md)
+### [在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/12/README.md)
+### [小斯基点评VICE采访事件(一)](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [黑社会控制音乐（一）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [大卫汇报币安诉讼进展(二)](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [黑社会控制音乐（二）](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥说“这里没有利益，没有交换，尊重的第一条就是法治和‘一人一票’选出来的政府的追求目标”（2022-01-12摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [大卫汇报币安诉讼进展(一)](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [大卫王问：明年我们的圣诞节还会这样直播吗?](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [国防部正在把福奇暴露出来](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥解释农场是什么？——是来自于天然的、自由的、大自然的、自力更生的、不用交易的、不受人约束的地方（2022-01-12摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/17/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥说“无神论的党比你还信神，它就是神，无产阶级的党比谁都有钱，一人富一国，荒唐不荒唐？”（2022-01-12摘录）](/content/gnews/13/README.md)
- ` MG FARM`
+### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/14/README.md)
+### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [欧洲药监局将横贯性脊髓炎列为疫苗的副作用](/content/gnews/15/README.md)
+### [欧洲药监局将横贯性脊髓炎列为疫苗的副作用](/content/gnews/21/README.md)
  ` 华盛顿DC-Russian`
 
-### [德国修改法规倒逼病毒康复者接种疫苗](/content/gnews/16/README.md)
- ` 日本东京方舟农场`
-
-### [七哥谈中国地方政府会破产（2022-01-12摘录）](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [瑞士信贷董事长因涉嫌违反新冠防疫规定辞职](/content/gnews/18/README.md)
- ` 日本东京方舟农场`
-
-### [扬帆每日速递 2022年1月17日版（2）](/content/gnews/19/README.md)
+### [扬帆每日速递 2022年1月17日版（2）](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
-
-### [七哥谈“集中资源办大事”的政治（2022-01-12摘录）](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [以色列财政部长确诊 已接种4剂疫苗](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [七哥爆彭帅真实内幕（三）](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
 
 ### [扬帆每日速递 2022年1月17日版（1）](/content/gnews/23/README.md)
  ` 温哥华扬帆农场`
