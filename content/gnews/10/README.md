@@ -2,12 +2,10 @@
 ---
 
 
-## 太平联盟投资集团与海航集团主要人物关系图
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1875467/)
+## 共产党的法律超限战
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1875618/)
 
-——文贵大直播20220117
-![](https://assets.gnews.org/wp-content/uploads/2022/01/89482C16-DE6D-470C-861B-8A40BCBD7023.jpeg)
-*发布：Theodosia*
+台灣寶島農場
 
  
 

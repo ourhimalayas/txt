@@ -2,39 +2,26 @@
 ---
 
 
-## 中囯国家统计局公布：2021年全年GDP增长5.2%
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874932/)
+## 前英保守党领袖史密斯爵士：中共是威胁，而不是竞争者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874954/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 翻译/撰稿：zzballack
 
-整理：入选文家
-编辑：小红帽
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-34.jpg)图片来源：泰晤士报
+据英国《每日邮报》（Daily Mail）1月16日报道，前英国保守党领袖伊恩·邓肯·史密斯爵士(Iain Duncan Smith) 1月16日在接受天空新闻采访时表示，像中共特工李贞驹渗透国会和议员这类事件只是中共大规模行动的冰山一角。但是历届政府一直对此熟视无睹。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
+史密斯爵士说：“多年来，中共在某种程度上掌控了我们，以至于我们现在在一系列的项目和条款上完全依赖他们。太多的官员和前部长们从中共那里拿了钱。中共一直在尝试说服、渗透和颠覆英国政治体系内的人，这已不是什么新鲜事。但最糟糕的是，太多的政府似乎过于小心谨慎，不敢对中共强硬。我们要认识到中共是一个威胁，而不是一个竞争者，这一点非常重要。”
 
+1月13日，英国军情五处（MI5）向国会议员们发送了一个罕见的警告：58岁的华裔律师李贞驹疑似中共间谍。
 
-中新财经1月18日电，国家统计局发布2021年四季度和全年国内生产总值(GDP)初步核算结果。其中，房地产业2021年四季度GDP为19734亿元，较上年同期减少2.9%；2021年全年GDP为77561亿元，较上年同期增长5.2%。
+据《星期日泰晤士报》 (The Sunday Times)报道，英国特勤局表示，外国干涉是对民主的“活生生威胁”。
 
-另外，**2021年全年GDP为1143670亿元，较上年同期增长8.1%。**其中，第一产业为83086亿元，第二产业为450904亿元，第三产业为609680亿元。
+前MI5负责人、公共生活标准委员会（committee of standards in public life）的主席乔纳森·埃文斯勋爵（Jonathan Evans）说：“这个案件表明，我们应该填补漏洞，因为有相当强大的力量试图通过议会和金钱给英国政治带来不当影响。我们委员会在去年的一份报告中提出了一些建议，但政府并没有遵循建议和采取行动。”
 
-《经济金融网》曾报道，今年两会期间，全国政协委员、国家审计署原副审计长董大胜直指过去几年中国经济数据造假严重，他引述地方官员话称“过去几年搞得有些太高了，现在一下降下来就会出现断崖式的下降”。
+郭文贵先生在1月17日的大直播说，中共在英国至少安插了70多个间谍，李贞驹只是冰山一角。从这次大流行可以看出，中共在全世界的蓝金黄渗透程度远远超出了人们的想象。
 
-然而，疫情期间，全国各处限电，工厂关闭，店铺关门，写字楼没人租，房地产行业处于崩塌边缘。在这样的大环境下，全年GDP竟然仍处于增长趋势。这不禁让人心声疑问：这数据究是真实的吗？
-
-参考新闻：
-
-1. [中国经济数据造假有多严重？](http://news.efnchina.com/show-1500-66587-1.html)
-2. [国家统计局：2021年四季度房地产业GDP同比降2.9%](https://m.chinanews.com/wap/detail/chs/zw/9654958.shtml)
-
-
-***发布：***tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[China is a threat… NOT a competitor’: Iain Duncan Smith accuses ‘successive governments’ of being ‘asleep at the wheel’ over Beijing’s influence at heart of Westminster while ex-MI5 chief says ministers failed to act on warnings](https://www.dailymail.co.uk/news/article-10407627/Iain-Duncan-Smith-accuses-successive-governments-asleep-wheel-China.html)
 
  
 

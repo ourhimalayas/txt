@@ -2,28 +2,31 @@
 ---
 
 
-## 【中日财经爆】百世集团收到纽交所警告 或在6个月后被退市
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1874985/)
+## 震惊！英国一全科医生透露疫苗接种即将在全球停止
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1875006/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-27.jpg)[图片来源](https://www.google.com.hk/search?q=%E7%99%BE%E4%B8%96%E5%BF%AB%E9%80%92&amp;newwindow=1&amp;rlz=1C1YKST_enUS900US901&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwi6gP_5-rr1AhUDJEQIHUstCHQQ_AUoAXoECAIQAw#imgrc=w90fqdbTC90AeM)
-百世集团今天(1月18日）发布公告称：公司收到纽约证券交易所于2022年1月5日发来的信函，通知本公司不符合纽交所继续上市标准中适用的价格标准，因为自2022年1月4日起，在连续30个交易日内，本公司美国存托凭证(ADS)的平均收盘价为每ADS不足1.00美元。
+#### 翻译/撰稿：zzballack
 
-本公司在收到通知后有6个月时间重新符合最低股价要求，在此期间本公司的美国存托凭证将继续在纽交所上市交易，本公司目前遵守所有其他继续上市的标准，该通知并不影响公司的业务运营。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-4-5.jpg)图片来源：路透社
+据《The Covid World》1月18日报道，社交媒体上出现了一段令人震惊的视频，视频中一名医生告诉一位名叫切尔西·哈曼（Chelsea Harman）的英国妇女不要再接种任何新冠疫苗，因为这种疫苗即将在全球范围内被停止。
 
-据资料显示，百世集团成立于2007年，于2017年9月20日正式登陆美国纽交所上市（股票代码：BEST）。
+切尔西·哈曼上周在远程医疗预约中给一位医生打电话说，她在1月14日接种了第一剂新冠疫苗后，头上出现了3个肿块。令人震惊的是，这位姓名不详的医生告诉她不要再接种疫苗了，因为随着公众尚未了解的新信息的出现，全球的疫苗接种计划即将结束。医生说：“…现在还没有足够多的信息。但即将出现很多信息，特别是关于那些免疫力完好的年轻人，显然，这就足够了。”
 
-需要注意的是，作为国内早期最知名的快递公司之一，百世集团在国内的快递业务此前已经打包转让给J&T极兔速递。双方于10月29日签订的最终协议，该业务以68亿元人民币的价格转让，目前该交易已完成交割。
+哈曼要求医生澄清是否不用再接种疫苗了，医生做了肯定回答，并且说：“就像我对你说的那样，现在有很多信息出现了，而这些信息早先是没有的，很快所有的疫苗接种就会完全停止。这些都是刚刚出现的信息，你可能有一段时间不会在电视上听到，因为……[叹气]这是一个很长的故事。但是，他们很快就会停止所有这些疫苗，人们尚不知道…”
 
-不过，这次交易仅仅是快递业务，并不涉及百世集团包括供应链管理、空运、空运和环球等其它业务。当时百世集团表示，将集中精力和资源，加快业务发展，推动供应链、快运、国际业务的深度融合，打造国际化的综合智慧供应链服务。
+哈曼随后问道她22岁的妹妹是否需要接种加强针，医生回答说：“不……请不要。绝对不可以。她不需要这个。请不要接种。”
 
-消息来源:
+哈曼后来拨打了英国国民医疗服务体系（NHS）的紧急医疗救助电话号码111，以确认与她对话的医生是否是全科医生（general practitioner），他们回复确认说对方是一位全科医生。
 
-[百世集团收到纽交所退市警告！国内业务已68亿“卖身”极兔](https://news.mydrivers.com/1/809/809980.htm)
+真希望这位医生透露的信息是真的，否则疫苗继续接种下去，人类会遭遇灭顶之灾。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+新闻来源：
+
+[BOMBSHELL: Doctor Tells Patient On Phonecall Not To Take Any More COVID Vaccines Because They’ll Soon Be Halted Globally](https://thecovidworld.com/bombshell-doctor-tells-patient-on-phonecall-not-to-take-any-more-covid-vaccines-because-theyll-soon-be-halted-globally/)
+
+[https://www.facebook.com/chelsea.harman.75/videos/471067841090472](https://www.facebook.com/chelsea.harman.75/videos/471067841090472)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
