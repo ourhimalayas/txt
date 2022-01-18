@@ -2,32 +2,40 @@
 ---
 
 
-## 郭先生分析行政命令与法律的本质区别
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875937/)
+## 预防奥米克戎，以色列四剂疫苗效果“微不足道”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1875966/)
 
-作者：纽约香草山信息部 – 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月14日大直播中，谈到行政命令与法律时，郭先生分析，法律一词源于西班牙帝国时期“笔直”的本义，即大多数人认可的笔直的规矩，是“民天下”政府与平民及社会实体之间的契约。意味着任何突出的特权的越位都要被砍掉，其使命是铲除贪婪、嗔恨、邪恶和凶恶，是法治的基石，民主和自由的护身符。而行政命令是独裁者个人意志的体现，是“家天下”统治的工具，是人治社会的箩筐。任何不符合统治者意志的行为都可以往里面放。法律充满程序正义，行政命令毫无程序正义可言。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-56.jpg)
-法律是民主国家永恒的王道，行政命令是独裁国家维持统治的利器。虽然民主国家在紧急情况下，国家元首也可发布行政命令，但其执行的范围和力度都将广受质疑和限制，其执行的时间有限或最终被法律废止。美国有名的律师Edward Moss在代理PAX公司缠讼郭文贵先生案件中，即因利益冲突违反职业操守，而被法院裁定解除代理关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-268.jpg)图片来源：墨尔本雅典娜农场设计组
+整理报道：不要代表我Kari
+编辑：文泓
 
-中共在1949年执政前认定自己的游行抗议、印发报纸、自由言论等都是正义的民主活动，当其执政后却用行政命令将这些民主活动，一一列为反党、反社会、反国家行为被执法。为妆点门面，中共在宪法中装模作样写着保护基本人权。其挂羊头卖狗肉的做法，表明中共的虚伪和对法律的惧怕。
+当地时间1月18日，据RT电视台报道，以色列的一项研究表明，新冠疫苗加强针不能有效防止大规模人群感染新冠病毒。
 
-参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
+根据在以色列进行的一项试验，第四剂冠状病毒疫苗对奥米克戎变种病毒的效果越来越差，其中一位主要研究人员说，这种免疫接种的效果“根本不行”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+在特拉维夫希巴医疗中心，一项涉及154名医务人员的研究发现，与之前的突变相比，辉瑞疫苗第四针只对预防奥米克戎病毒株提供微不足道的保护；另一组120名志愿者在使用辉瑞公司的三剂疫苗注射后，也接受了莫德纳公司的第四针疫苗接种，但二组接种后的免疫反应也类似。
 
-总编: Zion文恩
-编辑：Kathy文艺
-校正/发稿：Fei797
+*“（接种后）我们看到了抗体的增加，有高于第三剂疫苗接种后的抗体。然而，我们看到许多感染了*奥米克戎*变种病毒的人都已接种了第四剂疫苗”，该试验的首席研究员吉利·雷格夫·约哈伊说，该疫苗对*奥米克戎*变种病毒而言“效果并不理想”。*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+尽管有了这些新的发现，以色列卫生官员仍然在本月早些时候开始为老年人、免疫力低下的人和医务工作者接种了第四剂加强针。截至周日，约有500,000人在最初的两剂疫苗方案基础上接受了第二次疫苗加强针进行免疫。
+
+据《以色列时报》报道，尽管该试验仍处于早期阶段，医院也没有提供具体数字，但*雷格夫·约哈伊*说，她将初步结论公之于众，因为疫苗加强针是一个“公众高度关注”的问题。
+
+世界卫生组织和欧盟的药品监管机构——欧洲药品管理局都对过度接种疫苗加强针提出了警告。据当前观察，一些国家正在推进第三剂和第四剂的疫苗接种，而许多较贫穷国家则刚刚开始接种第一剂疫苗。
+
+作为世界上接种新冠疫苗最多的国家之一，以色列率先推出第四剂疫苗，因为与奥米克戎变异毒株相关的冠状病毒感染人数大幅增加。然而，最近几个月的死亡和住院人数只出现了轻微的上幅，这与发现最新的“令人担忧的变种”产生的症状比以前的变种更温和的研究结果一致。
+
+新闻链接：[Israel finds 4 Covid vaccine jabs ‘not good enough’ against Omicron — RT World News](https://www.rt.com/news/546337-israel-omicron-booster-trial/)
+
+发布：去中心化Math
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
