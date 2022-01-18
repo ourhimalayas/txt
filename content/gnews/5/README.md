@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|美国应允许疫苗之外的中共病毒治疗方案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876608/)
+## 七哥说“民心都得了，那不就是结果嘛”（2022-01-12）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1876673/)
 
-配音：香草山教育部 – 百香果
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-12直播11:18:37摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日盖特信息，美国参议员候选人梅梅特-奥兹博士接受美国媒体采访，他表示，中共病毒给美国带来极大破坏，美国正面临危机。同时，疫情使人认识到美国整个医学界的大问题，就是正确的方法一再被打压和噤声。
+民心都得了，那不就是结果嘛，就像鹤岗的咱们这一家人家，是吧，还告诉我：七哥你爆我的时候你这样说。我说你不用教，你七哥绝对知道会保护什么人。昨天、前天、大前天，我们救下来的战友最起码六、七百名，吃药的。然后我们出来的战友最起码一、二十名，到达欧洲某国的战友说：“我们全家出来的时候，说我们会不会飞机从天上掉下来？只要不掉下来咱就能自由。” 他说人家都紧张的要死，他说我们一家人就兴奋的等着飞机落下来。结果他说：“这班飞机，七哥，提前一小时到达，我们问这个航空公司，你们这儿过去一年是不是有这种情况，他说第一次发生，我们所有飞机都晚点，就今天这班飞机早了一个多小时。全家落地了。” 咱这个战友国内可是正部级干部，他说：“七哥，所有的核糖核酸（疑：疫苗），我告诉你里面都有猫腻儿，他说都分四个级别，我就不再具体的说，有的就是蛋白，有的就是水，有的真的是疫苗而且是250(mg)疫苗。
 
-奥兹博士透露，他曾经捐赠25万美金，支持哥伦比亚大学进行硫酸羟氯喹治疗中共病毒的临床实验，但是遭到前纽约州州长科莫强令禁止。他说，硫酸羟氯喹已经在全世界使用超过10亿次，而且是美国FDA批准使用的药物。硫酸羟氯喹被禁止用于治疗中共病毒完全是出于政治原因和大制药厂的经济利益。美国人民根本不被允许接受此种治疗方案，因为他们一旦发现有治疗的可能性，就可能不会再接受疫苗。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-奥兹博士认为，福奇就是医疗界的暴君，他与主流媒体有各种瓜葛，并利用媒体引导舆论风向。
+**关注我们**
 
-文字版原文：[美国应允许疫苗之外的中共病毒治疗方案](https://gnews.org/zh-hans/1871796/)
+Discord 账号
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

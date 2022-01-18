@@ -15,104 +15,104 @@
 
 ---
 
-### [七哥说“民心都得了，那不就是结果嘛”（2022-01-12）](/content/gnews/1/README.md)
+### [七哥谈二十大腥风血雨的斗争（2022-01-12摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [GTV新闻访谈简报|2022年1月18日早](/content/gnews/2/README.md)
- ` 纽约香草山MOS01`
-
-### [卡车司机接种疫苗政策或将导致加拿大人挨饿](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [诺奖得主反新冠疫苗并称未接种者将拯救人类被墙内媒体报道](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
-
-### [有声|美国应允许疫苗之外的中共病毒治疗方案](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [中共国重卡市场断崖式下跌](/content/gnews/6/README.md)
- ` 纽约香草山MOS03`
-
-### [有声|中共病毒加剧分裂 政治转型即将到来](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|在哈萨克斯坦事件中，中共最早向哈国派谴军队](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [MV版Hcoin To the Moon上线41天第27次位列澳门iTunes热门MV榜首](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|GTV新闻访谈简报|2022年1月16日晚](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [职业足球运动员因疫苗造成的死亡数据打破疫苗谎言](/content/gnews/11/README.md)
+### [福奇投资中共企业并就个人财务信息对公众撒谎](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [避免能源危机 中共国煤炭产量创纪录](/content/gnews/12/README.md)
- ` 日本东京方舟农场`
+### [关于PAG诉讼中的细节](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
 
-### [【圆成原创】你好，战友！](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [权威机构为何要重新定义新冠死亡的主要原因？](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [中共以家人为筹码胁迫“外逃人士”回国“自首”](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
+### [七哥说“民心都得了，那不就是结果嘛”（2022-01-12）](/content/gnews/5/README.md)
+ ` MG FARM`
 
-### [1月17日长岛伟哥战友联盟答疑，G系列相关信息文字版](/content/gnews/15/README.md)
- ` 全球G系列咨服群`
+### [七哥谈“一定要敬天尊地”（2022-01-12摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
 
-### [我看七哥照片的感受](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
+### [GTV新闻访谈简报|2022年1月18日早](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
 
-### [美国及世界疫情简报（01-18-2022）](/content/gnews/17/README.md)
- ` 波士顿五月花农场`
-
-### [GTV律师是内鬼](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年中共国出生率和人口净增均创新低](/content/gnews/19/README.md)
- ` GTV新闻访谈`
-
-### [【Michael.Tonny专栏】中共病毒疫苗灾难正在全球上演！](/content/gnews/20/README.md)
+### [卡车司机接种疫苗政策或将导致加拿大人挨饿](/content/gnews/8/README.md)
  ` 温哥华扬帆农场`
 
-### [日本疫情创新高 单日确诊首次逾三万](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [串珠536:西方将为藏独提供武器金钱粮食及援助](/content/gnews/22/README.md)
- ` 郭爆料串珠`
-
-### [1/17/2022 文贵直播：太平联盟承认借款的本息均已还清，但北京警察为何要协助他们处理本案呢？](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [串珠535:中共将利用疫情对全中国进行格式化管理](/content/gnews/24/README.md)
- ` 郭爆料串珠`
-
-### [芬兰允许伊维菌素用于治疗中共病毒](/content/gnews/25/README.md)
- ` 日本东京方舟农场`
-
-### [串珠534:中共还没放热毒，现在所谓“热毒”就是疫苗](/content/gnews/26/README.md)
- ` 郭爆料串珠`
-
-### [马丁路德金日谈太平联盟诬告案的意义](/content/gnews/27/README.md)
+### [诺奖得主反新冠疫苗并称未接种者将拯救人类被墙内媒体报道](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [1/17/2022 文贵直播：太平联盟一案荒谬至极！太平联盟在有法律文件证明借方已还清贷款的情况下却无中生有起诉贷款担保人](/content/gnews/28/README.md)
- ` 秘密翻译组-北美组`
+### [有声|美国应允许疫苗之外的中共病毒治疗方案](/content/gnews/10/README.md)
+ ` MOSREC`
 
-### [1月15日卡洛•玛丽亚•维加诺大主教对参加罗马示威游行集会者的演讲](/content/gnews/29/README.md)
- ` xiaobaige`
+### [中共国重卡市场断崖式下跌](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
 
-### [美飞弹核潜舰公开访问关岛展示威吓力](/content/gnews/30/README.md)
+### [有声|中共病毒加剧分裂 政治转型即将到来](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [有声|在哈萨克斯坦事件中，中共最早向哈国派谴军队](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [MV版Hcoin To the Moon上线41天第27次位列澳门iTunes热门MV榜首](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|GTV新闻访谈简报|2022年1月16日晚](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [职业足球运动员因疫苗造成的死亡数据打破疫苗谎言](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [避免能源危机 中共国煤炭产量创纪录](/content/gnews/17/README.md)
+ ` 日本东京方舟农场`
+
+### [【圆成原创】你好，战友！](/content/gnews/18/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共以家人为筹码胁迫“外逃人士”回国“自首”](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
+
+### [1月17日长岛伟哥战友联盟答疑，G系列相关信息文字版](/content/gnews/20/README.md)
+ ` 全球G系列咨服群`
+
+### [我看七哥照片的感受](/content/gnews/21/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国及世界疫情简报（01-18-2022）](/content/gnews/22/README.md)
+ ` 波士顿五月花农场`
+
+### [GTV律师是内鬼](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年中共国出生率和人口净增均创新低](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [报道台湾遭中共抗议 印度主播表示不听命于任何政府](/content/gnews/31/README.md)
+### [【Michael.Tonny专栏】中共病毒疫苗灾难正在全球上演！](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场`
+
+### [日本疫情创新高 单日确诊首次逾三万](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [世界陷入黑暗皆因中共是万恶之源](/content/gnews/32/README.md)
+### [串珠536:西方将为藏独提供武器金钱粮食及援助](/content/gnews/27/README.md)
+ ` 郭爆料串珠`
+
+### [1/17/2022 文贵直播：太平联盟承认借款的本息均已还清，但北京警察为何要协助他们处理本案呢？](/content/gnews/28/README.md)
+ ` 秘密翻译组-北美组`
+
+### [芬兰允许伊维菌素用于治疗中共病毒](/content/gnews/29/README.md)
+ ` 日本东京方舟农场`
+
+### [马丁路德金日谈太平联盟诬告案的意义](/content/gnews/30/README.md)
  ` 波士顿五月花农场`
 
-### [常春藤联盟学校家长 反对学生疫苗强制令](/content/gnews/33/README.md)
- ` 波士顿五月花农场`
+### [1月15日卡洛•玛丽亚•维加诺大主教对参加罗马示威游行集会者的演讲](/content/gnews/31/README.md)
+ ` xiaobaige`
+
+### [美飞弹核潜舰公开访问关岛展示威吓力](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [报道台湾遭中共抗议 印度主播表示不听命于任何政府](/content/gnews/33/README.md)
+ ` 日本东京方舟农场`
 
 ### [1/18/2022国际财经快讯：日本央行上调物价预测，保持政策稳定；澳大利亚因疫情消费者受到冲击](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
@@ -135,26 +135,26 @@
 ### [不完全财务披露福奇千万美元投资](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [任何一个友好的政客都不会被没有安全感的中共忽视](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [德国要求中共解除对立陶宛及欧盟的胁迫措施](/content/gnews/42/README.md)
+### [德国要求中共解除对立陶宛及欧盟的胁迫措施](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [墙内多个知名网站转载了东方网报道“诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类”的新闻](/content/gnews/43/README.md)
+### [墙内多个知名网站转载了东方网报道“诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类”的新闻](/content/gnews/42/README.md)
  ` 首尔天池农场`
 
-### [秤与天平](/content/gnews/44/README.md)
+### [秤与天平](/content/gnews/43/README.md)
  ` 银河勇气之星`
 
-### [三剂疫苗接种者面临的恶梦：获得性免疫缺陷综合症](/content/gnews/45/README.md)
+### [三剂疫苗接种者面临的恶梦：获得性免疫缺陷综合症](/content/gnews/44/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [胡搅蛮缠](/content/gnews/46/README.md)
+### [胡搅蛮缠](/content/gnews/45/README.md)
  ` 骄子`
 
-### [我不再去梦想](/content/gnews/47/README.md)
+### [我不再去梦想](/content/gnews/46/README.md)
  ` 骄子`
+
+### [中共贼喊捉贼甩锅美国凸显美国危机与中共邪恶](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [【中日财经爆】百世集团收到纽交所警告 或在6个月后被退市](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

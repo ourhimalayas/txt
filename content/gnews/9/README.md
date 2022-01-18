@@ -2,36 +2,24 @@
 ---
 
 
-## MV版Hcoin To the Moon上线41天第27次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1876395/)
+## 诺奖得主反新冠疫苗并称未接种者将拯救人类被墙内媒体报道
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1876612/)
 
-1/18/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线41天第27次位列澳门iTunes热门音乐视频榜榜首，第34次位列前三名
+素材：波士顿五月花 一尘
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图128.png)图片来自墙内媒体截屏
+
+意大利当地时间17日，法国著名病毒学家Luc Montagnier 吕克·蒙塔尼耶来到意大利，参加当地的反疫苗集会。在现场，他收到了“英雄般”的欢迎和支持。他称：未接种疫苗的人将拯救人类。他此前还称：大规模接种疫苗是不可接受的错误。
+
+蒙塔尼耶曾获2008年的诺贝尔生理学或医学奖，是世界艾滋病研究及预防基金会的共同奠基人和国际病毒联盟的总监。
+
+该资讯18日被墙内媒体东方网首发，新浪、网易、搜狐均有转载。
+
+原文链接：[诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
 
 * * *
 
-[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
-
-
-[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*编辑 /发布：吐纳*
 
  
 

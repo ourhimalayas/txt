@@ -2,32 +2,20 @@
 ---
 
 
-## 德国要求中共解除对立陶宛及欧盟的胁迫措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875786/)
+## 墙内多个知名网站转载了东方网报道“诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类”的新闻
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1875715/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月14日，德国外交部发言人柏格在记者会中表示，德国与欧盟支持立陶宛，并要求中共解除对立陶宛和欧盟内部市场所有正式和非正式的胁迫措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.44.png)
-立陶宛因为决定设立台湾代表处，被中共无理干涉。 中共利用不合理手段，在海关故意阻扰立陶宛产品及含有立陶宛零件的欧盟产品进行通关程序，致使这些欧盟出口到中共的货物大量卡关堆积，造成欧盟厂商的困扰。
+撰稿在；追着曙光跑
 
-欧盟执行委员会已经在检视中共的干预措施是否符合世界贸易组织（WTO）的规范，欧盟主管贸易的执行委员杜姆布罗夫斯基表示，欧盟正在搜集证据，准备对于中共违反世贸组织规范的行为，向世贸组织提出控诉。
+据东方网1月18日的报道，当地时间17日，法国著名病毒学家Luc Montagnier 吕克·蒙塔尼耶来到意大利，参加当地的反疫苗集会。在现场，他收到了“英雄般”的欢迎和支持。他称：未接种疫苗的人将拯救人类。他此前还称：大规模接种疫苗是不可接受的错误。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-18-at-22.48.58.jpeg)图片来源：原新闻
+蒙塔尼耶曾获2008年的诺贝尔生理学或医学奖，是世界艾滋病研究及预防基金会的共同奠基人和国际病毒联盟的总监。
 
-参考链接：[中國施壓立陶宛等歐盟成員國 德國要求解除脅迫措施](https://www.cna.com.tw/news/aopl/202201180011.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+东方网还把蒙塔尼耶参加当地的反疫苗集会的视频，翻译成中文上传到了此报道里，新浪网新闻、网易新闻和搜狐新闻均转载了此报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+信息来源：[诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
+[网易新闻转载报道](https://3g.163.com/dy/article/GU0HF8M9053469KO.html?spss=adap_pc) [新浪新闻转载报道](https://k.sina.cn/article_7517400647_1c0126e4705902g9ez.html?from=news) [搜狐转载报道](https://m.sohu.com/a/517415465_120823584/?pvid=000115_3w_a&amp;strategyid=00014)
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

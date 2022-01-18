@@ -2,36 +2,36 @@
 ---
 
 
-## 中共以家人为筹码胁迫“外逃人士”回国“自首”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876342/)
+## MV版Hcoin To the Moon上线41天第27次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1876395/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/EB32878A-5404-41CC-BE0C-AB2DE0C9E6E3.jpeg)（图片来自Getty Images）
-
-1月18日，关注亚洲人权的非政府组织《保护卫士》公布的一份报告中揭露，中共以“外逃人士”的家人为筹码，胁迫其回国“自首”。
-
-据《中央社》报道，《保护卫士》（Safeguard Defenders）的这份名为《非自愿返国自首：中（共）国迫使海外‘逃犯’回国的秘密行动》（INVOLUNTARY RETURNS：China’s covert operation to force‘fugitives’ overseas back home）的报告，列举了中共当局海外抓人的几种手段，其中，较为便宜且快速的手段是以在国内的家人为筹码逼迫“外逃人士”回国“自首”。
-
-根据中共中纪委数据显示，2014至2020年6月间，返回中共国的60名所谓的“百大通缉犯”中，有44人是被劝返或自行回国，约占总人数的73%。
-
-报告指出，中共当局可能行使监控、讯问、开除、冻结资产、不让孩子就学或接受双亲照料、威胁人身安全或自由等手段，骚扰亲友并配合用电话、视频通话、短信或录像等方式，说服“逃亡者”返国。
-
-若对亲友动之以情收不到效果，当局可能捏造证据加以拘留，把他们关进拘留所或黑牢做人质，或禁止他们出境。例如2017年中共国下令海外就学的维吾尔学生返回新疆之后，就曾传出当局挟亲友要求学生返乡事件。当时一名在埃及阿兹哈大学（Al-Azhar University）就学的维吾尔学生告诉自由亚洲电台：“他们（中共当局）把父母关起来要学生回国，逼迫我们照办。我自己的父亲过去两个月持续被拘禁。“
-
-海外旅客也不能幸免。2018年中（共）国交通银行广州分行前行长刘昌明的美国籍妻儿赴中共国探亲后被禁止出境，就是为了诱使刘昌明回国。外国公民则可能因间接涉入纷争无法离开中共国，中共的这一举措，已促使美国、加拿大、澳洲等国家发布旅游警示。
-
-中共除了利用亲友来胁迫等手段，甚至还会派遣公安、特工或非政府成员前往海外，直接或间接绑架目标人士，秘密送回国内。近年，中共还与东道国合作，将目标人物引渡第三国，然后再逮捕或引渡他们。
-
-*参考链接：[中國獵狐行動抓捕外逃人士 手段凶狠以家人威脅綁架](https://www.cna.com.tw/news/aopl/202201180082.aspx)*
+1/18/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线41天第27次位列澳门iTunes热门音乐视频榜榜首，第34次位列前三名
 
 * * *
 
-*素材采编：幽蘭自得*
+[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-*编辑：青城道姑*
+* * *
 
-*发布：miumiu*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+
+
+[【PDF 下载】Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-18-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
