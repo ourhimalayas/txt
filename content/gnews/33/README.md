@@ -2,30 +2,27 @@
 ---
 
 
-## 中共国去年人口出生率创建国以来最低
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1873352/)
+## 多伦多机场要求取消对入境旅客的病毒检测
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873774/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-24.jpg)中共国去年人口出生率创建国以来最低 网络图片
-据美国之音1月17日报道，中共国统计局17日公布数据，2021年全年中共国人口出生率创建国以来最低，出生人口为1062万，比2020年少140万。
+采编：文莱            编译撰稿：苦尽甜来 (文來）
 
-2016年，北京取消强制推行了几十年的独生子女政策。2021年5月，政府宣布了三孩政策，但是中共国生活成本高，养育子女成本更高，出生率依然持续下降，而且人口性别持续失衡。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-27-edited.jpg)图片来源：TS
 
-中共违反自然规律，通过残酷的计划生育政策杀掉了四亿多婴儿，其中绝大多数是女婴。中共治国无方，扰民有术，高房贷、高昂的生活成本和医疗费用令老百姓的生活苦不堪言，年轻人不愿意结婚，更不愿意生育，老年人的晚年生活没有保障。中共国怨声载道，全民躺平，生育率自然连年下降。邪恶至极的病毒和疫苗毁掉了无数年轻人的生育能力，中华民族真正是到了最危急的时候，面临着全民种族灭绝。只有推翻共产党，实现民主、法治，应天顺人，花开花落，繁衍生息，中华民族才能继续生存下去。
 
-新闻参考链接：[https://www.voachinese.com/a/china-birthrate-20220117/6399751.html](https://www.voachinese.com/a/china-birthrate-20220117/6399751.html)
+据【多伦多太阳报】1月17日报道，加拿大航空、西捷航空和多伦多机场的首席卫生官当天联名向联邦政府和安省卫生部致信，要求当局立即放弃对该国际机场的入境人员所执行的强制性“新冠病毒”检测要求。
+
+报道称，多家航空公司以及多伦多皮尔逊机场的卫生官员认为，由于目前所有入境加拿大的旅客在登上飞往该国的飞机之前都必须进行“新冠病毒”阴性结果检测，并且必须完全接种疫苗，因此毫无必要在抵达后再进行第二次检测。
+
+公开信指出：由于疫情及疫苗接种政策所造成的一线工作人员大量短缺，加之政府不断加大在机场对国际入境者的检测力度，从而进一步加重了相关工作人员的劳动压力，并因此导致实验室处理能力显着下降。
+
+据悉，最近一周的检测报告数据显示，多伦多机场进行了约13万次的病毒检测，平均阳性率为 3%。与此同时，该市社区的平均阳性检测率却高达30%。但由于严重缺乏充足有效的测试手段，因此实际的病毒感染人数可能会更多。
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校对编辑，发稿：硫酸羟氯喹64
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+原文链接：[https://torontosun.com/news/national/air-canada-westjet-and-pearson-asks-feds-to-drop-mandatory-covid-tests-for-arrivals](https://torontosun.com/news/national/air-canada-westjet-and-pearson-asks-feds-to-drop-mandatory-covid-tests-for-arrivals)
 
  
 

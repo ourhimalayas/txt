@@ -2,18 +2,22 @@
 ---
 
 
-## 2022年1月17日郭先生盖特 — 视频1「2分03秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1873922/)
+## 雅典娜时报-第177期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874031/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-Video link: [https://gettr.com/post/poxm9i8a21](https://gettr.com/post/poxm9i8a21)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/564D0C69-5FC4-4F66-9843-AACD2E50B0BB-scaled.jpeg)
-兄弟姐妹们，要想征服敌人你不征服自己能行吗？兄弟姐妹们，任何情况下别忘了健身。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/932815207070310410/155.png?width=423&amp;height=630)![圖片](https://media.discordapp.net/attachments/825592691433668612/932815208605429810/155_1.png?width=423&amp;height=630)
+*发布：陶子*
 
-今天大直播有很多战友流泪，流泪没比中国人流的再多的了！你只流泪你的敌人要你流血；你跪下来他要打断你的脊椎。只有铲除敌人，消灭敌人，征服敌人你才能不流泪，让你家人不流血 — 那就先征服自己！
-
-兄弟姐妹们，一切都已经开始……
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

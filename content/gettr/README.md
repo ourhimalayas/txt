@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 5:00 AM (UTC)`
+
+1/17/2022 Miles Guo: This Pacific Alliance case is so ridiculous! Pacific Alliance sued me, the loan guarantor, out of nothing despite there being legal documents proving that the borrower had repaid the loan. A New York court accepted this case regardless of the fact that the plaintiff is not in New York and neither did the whole thing happen in New York. The defendant was not allowed to challenge the verdict, and they seek to seize the property that does not belong to the defendant<br/><br/>1/17/2022 文贵直播: 太平联盟一案荒谬至极！太平联盟在有法律文件证明借方已还清贷款的情况下却无中生有起诉贷款担保人，而纽约法院受理了一个当事人和事件都不在纽约的案件，而且既不允许被告对判决提出任何质疑，又要查封不属于被告的财产！<br/>
+![img](https://media.gettr.com/group17/getter/2022/01/18/05/e4554f3f-56bd-6706-3f96-df3e191b2f7a/out.jpg)
+
+---
+
 `@miles 1/18/2022 4:28 AM (UTC)`
 
 1/17/2021 Miles Guo: The largest corruption case in the DOJ history reflects the CCP spies’ infiltration in the Western judicial system. Pacific Alliance hired a former FBI official bought off by Bruno Wu as the investigative attorney and even used fake evidence about GTV fabricated by Duowei News, which belongs to the CCP’s intelligence agency network<br/><br/>1/17/2021 文贵直播：美国司法部史上最大的腐败案反映了中共间谍对西方司法的渗透；太平联盟雇了被吴征收买的前FBI官员做调查律师，并使用中共情报网站多维捏造的关于GTV的假证据<br/>
@@ -146,13 +153,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 `@miles 1/16/2022 9:49 PM (UTC)`
 
 1月16日：天哪……<br/><br/>https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367<br/><br/>亚裔女子在纽约地铁站被推下轨道
-
----
-
-`@miles 1/16/2022 8:21 PM (UTC)`
-
-1月16号：尊敬的战友们好，明天星期一．17号8:30开始.大直播．七哥将遵守承诺．放出七哥七岁时的照片。这位高尔夫球星兑现自己曾经的诺言……让人非常的尊重，她是最美丽．最神圣的……在中共国诚实兑现诺言，却被视为愚蠢……这才是中国人的悲剧一切都已经开始！ January 16: Hello, dear comrades, tomorrow Monday.  Starting at 8:30 on the 17th. Big live broadcast.  Seventh brother will keep his promise.  Release the photos of the seventh brother when he was seven years old.  The golf star fulfilled her promise...people are very respectful, she is the most beautiful.  The most sacred... Honestly fulfilling the promise in China, but being regarded as stupid... This is the tragedy of the Chinese. Everything has already begun!
-![img](https://media.gettr.com/group3/getter/2022/01/16/20/3e1fb859-6241-52e9-2a8b-2928d9e8d777/out.jpg)
 
 ---
 

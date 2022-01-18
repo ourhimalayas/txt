@@ -2,25 +2,45 @@
 ---
 
 
-## 北美铁路工人或因疫情下的极端政策罢工
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873720/)
+## 美国核导弹潜艇罕见访问太平洋的关岛基地
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873918/)
 
-采编/ 编译撰稿： 文莱        校对编辑，发稿：硫酸羟氯喹64
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b-6-edited.jpg)图片来源：PM
+整理报道：文扬
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/HGOH5T86OBWAF1CTAQL.png)图片来源：CNN
 
 
-据加拿大媒体【后千禧年】1月17日报道，北美火车工人近期或因[BNSF铁路公司]最新发布的严格出勤规定而罢工。为此，工会领导人称规定是“任何铁路运营商都无法接受和采用的最恶劣劳工政策”。
+美国时间1月15日（周六），一艘载有数十枚核弹头的美国海军潜艇驶入一个太平洋基地，进行罕见的访问，海军称这是向该地区的盟友发出的信息。
 
-报道称，“新冠病毒”疫情的长期影响导致了北美铁路运输行业的劳工短缺，大部分仍被迫在岗的雇员不得不超时工作。由于最新出勤政策的限制性和惩罚性过强，因此工会正在收集员工的民意以达到抗议并撤销以上新规的目的。
+据报道，内华达号——这艘1986年服役的核动力潜艇，携带多达20枚三叉戟II弹道导弹和“几十个核弹头”。据CNN报道，这艘潜艇在1月15日访问了美国关岛海军基地，这是该类型潜艇自2016年以来的首次访问。
 
-据悉，[BNSF铁路公司]是北美最重要的货运公司之一，在美国28个州和加拿大三个省拥有3.25万英里的铁路网络。该公司也是大宗商品和生产材料的顶级运输商，并在美国，加拿大乃至世界各地的供应链经济中具有举足轻重的作用。
+美国海军在一份声明中说，这次访问“加强了美国和该地区盟友之间的合作”，并展示了“美国的能力、灵活性、准备性以及对印度-太平洋地区安全和稳定的持续承诺”。
 
-对于可能即将发生的大罢工，运输业内人士分析指出，此次工会的反对行动对北美政治和经济的影响将是灾难性的，并可能导致该地区现有的庞大供应链因此而中断。
+这次访问是在华盛顿和北京的矛盾越来越多的情况下进行的，特别是在台湾问题上，美国支持台湾的立场。
 
-* * *
+去年12月，美国和日本起草了一项紧急军事计划，为中共国和台湾之间的潜在冲突做准备。同月，五角大楼警告称，中共国可能准备入侵台湾。
 
-原文链接：[https://thepostmillennial.com/train-workers-threaten-to-strike-amid-supply-chain-crunch](https://thepostmillennial.com/train-workers-threaten-to-strike-amid-supply-chain-crunch)
+两个月前，美国总统拜登曾说，如果中共国试图让台湾与大陆统一，美国将致力于保卫台湾。
+
+而中共威胁，如果“台独势力挑衅、动武，甚至突破任何红线”，中共要“采取严厉措施”。
+
+台北认为台湾是一个独立的国家，但北京认为该岛是其领土的一部分，并发誓要统一两者。
+
+关岛距离台湾不到3,000公里（1,860英里），是美国领土上离中国大陆最近的美国军事基地。
+
+原文链接： [US nuclear missile sub makes rare visit to base near Taiwan — RT World News](https://www.rt.com/news/546226-us-nuclear-sub-pacific/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

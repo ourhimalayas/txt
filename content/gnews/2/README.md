@@ -2,20 +2,63 @@
 ---
 
 
-## 中共病毒疫苗将导致严重的神经系统性伤害
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1873937/)
+## 在中国，人们正在被逮捕
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1874090/)
 
-平民正道    发布：平民正道
+[https://gtv.org/video/id=61e6482987664c47acd629d9](https://gtv.org/video/id=61e6482987664c47acd629d9)
 
-据媒体 [美国信仰] 1月15日报道，麻省理工学院计算机科学和人工智能实验室高级科学塞内夫博士当天在福克斯新闻中指出：“新冠病毒”疫苗将导致年轻人患上神经衰退性等疾病的严重后果。
+**郭文贵
+Miles Guo**
 
-报道称，塞内夫博士对疫苗造成的以上疾病做了大量研究并得出结论：mRNA疫苗和DNA载体疫苗，通过刺突蛋白中所含的朊病毒发生作用，而引发包括帕金森病、慢性肾病、阿茨海默氏症等神经系统性疾病。这将导致在未来几年内，年轻人群体中出现越来越高的相关患病率。但由于发生疾病与疫苗接种有很长时间间隔，因次人们不会知道患病的罪魁祸首就是之前接种的疫苗。
+你知道国内发生了什么吗？
+Do you know what’s going on in China?
 
-此外，该博士还认为，年轻人死于病毒感染的风险极低，当局让他们接种疫苗则毫无医学根据。而且从长远来看，反复的加强针对健康的伤害是毁灭性的。并斥责道：但唯一从人们的不幸中牟取巨额利润的是各大疫苗制造商和相关医药公司以及与其紧密合作的当权政府。
+就在刚才，开动摄像机到现在，北京最起码抓了四个正厅级干部。
+Just now, since the camera was turned on, Beijing has arrested at least four department-level cadres
+
+黑龙江又抓走了两家。
+Heilongjiang captured two more families
+
+记得七哥2017，18，19年说的抓的人，辽宁的，黑龙江的，政法委的，还有杭州书记，没有一个不被抓的。
+Remember the people who I mentioned in 2017, 2018 and 2019, including those from Liaoning, Heilongjiang, the Political and Legal Committee, and the secretary of Hangzhou, none of them escaped from being arrested
+
+孙立军都出来认罪了。
+Sun Lijun even came out and pleaded guilty.
+
+就在刚刚，审孙立军案子的人被抓。
+Just now, when we are talking, the person who tried Sun Lijun’s case was arrested.
+
+包括制作所谓“零容忍”的好几个制作组的人也被抓了。
+Several production crews who made the so-called “zero tolerance”, were also arrested
+
+大家都在说“零容忍”的时候你知道背后的故事吗？
+When everyone says “zero tolerance”, do you know the story behind it?
+
+这就是爆料革命新中国联邦的魅力。
+This is the charm of the New Federation State of China and Whistleblower Movement
+
+都是老中医，不是老中医就别开偏方。
+They are all old Chinese medicine practitioners. If you are not an old Chinese medicine practitioner, don’t prescribe remedies（Don’t take on a porcelain job without a golden steel drill）
 
 * * *
 
-编辑： 平民正道    发布：平民正道
+Date:1/16/2022
+原视频标题: 在中国，人们正在被逮捕
+People are being arrested in China
+原视频日期：2021/12/19
+原视频链接:[**https://gettr.com/post/pochru0b5b**](https://gettr.com/post/pochru0b5b)
+任务编号：KC418（3503）
+视频时间段 : 0:00-01:00
+中听校：洛杉矶盘古农场 -海潮
+翻译：洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作： 洛杉矶盘古农场 – Jambo
+审片： 洛杉矶盘古农场 – 银龙
+发布： 洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

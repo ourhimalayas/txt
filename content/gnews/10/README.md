@@ -2,43 +2,40 @@
 ---
 
 
-## 签署大额石墨供应订单，特斯拉减少对中国的依赖
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873873/)
+## 有声|在哈萨克斯坦事件中，中共最早向哈国派谴军队
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1874003/)
 
-#### **【雅典娜观察】和您一起探究世界**
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月12日的大直播中，郭文贵先生谈到，在哈萨克斯坦事件中，中共最早向哈国派遣特种部队。
 
-整理报道：文扬
-编辑：文泓
+据郭先生爆料，哈萨克斯坦事件爆发前夕，王毅得知情报后，亲自到访哈国，收缴王岐山藏匿的一百余吨黄金，但遭到拒绝。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/U_H0ZWE0ZYRXCVU5E.png)图片来源：墨尔本雅典娜农场设计组
+在处理哈萨克事件中，俄罗斯和中共出于政治利益，一致对抗西方，但是在经济利益方面却各怀鬼胎。
+
+中共在该事件发生后，第一时间派出一千一百名雪豹突击队成员，帮助托卡耶夫平息国内动乱。作为利益交换，要求托卡耶夫不但要归还一百余吨黄金，而且，必须支持并出席北京冬奥会。
+
+原文链接：[在哈萨克斯坦事件中，中共最早向哈国派谴军队](https://gnews.org/zh-hans/1870054/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-当地时间1月16日，据RT电视台报道，埃隆·马斯克的特斯拉已经签署一项协议，关于在中国之外地区获得电动汽车电池的一个关键部件，意在减少对中国市场石墨的依赖。
-
-目前特斯拉现在正与澳大利亚西拉资源公司合作，该公司在莫桑比克的巴拉马经营一个石墨矿。石墨对于锂离子电池至关重要，特斯拉将购买大量石墨。根据双方签署协议，特斯拉将购买西拉资源公司生产的80%产品。据美联社报道，这相当于自2025年开始，从西拉公司的矿区购买大约8000吨石墨。
-
-一些市场分析人士认为，特斯拉此项最新交易是在美国国内全面推动自主生产电池的一个标志。目前，中国在全球石墨市场上处于领先地位。
-
-总部位于英国的电池材料数据和情报提供商基准矿物情报（Benchmark）的西蒙·摩尔斯告诉美联社，**美国希望在国内建立足够的产能，以便能够在美国境内制造锂离子电池。这笔****交易将使特斯拉能够脱并不依赖中国市场采购石墨。**
-
-石墨是最近几个月供不应求的众多材料之一，随着汽车制造商增加对电动汽车的投资，石墨需求持续上升。特斯拉每年生产约100万辆汽车，这意味着石墨需求量不断增加。
-
-特斯拉计划购买的石墨将在路易斯安那州加工，使材料离生产基地（德克萨斯州奥斯汀）更近，并减少潜在的供应链问题，目前新冠大流行严重阻断供应链。
-
-长期以来，**特斯拉对其在不久的将来将更多生产部件转移到美国境内生产的整体努力持开放态度**。澳洲西拉公司将在最初的四年里提供石墨，他们将成为汽车和电池生产商的第一个美国石墨阳极来源。
-
-特斯拉动力系统和能源工程高级副总裁德鲁·巴格利诺在10月份的财报电话会议上说：“**我们的目标是所有关键部件实现本地化生产。**”
-
-原文链接： [Tesla reducing dependence on China with graphite deal — RT Business News](https://www.rt.com/business/546210-tesla-china-car-batteries/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
