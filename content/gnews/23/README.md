@@ -2,54 +2,33 @@
 ---
 
 
-## 2022年1月18日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1874690/)
+## 火来问题（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1874802/)
 
-撰稿人：文远Bruce
-![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/01/3B4C9FA8-781C-4E27-A16A-ABDC005345A0-edited.png)
-【彭博】– 德国《商报》援引未具名知情人士报道，美国、欧盟不再考虑将俄罗斯从SWIFT国际支付系统中排除出去的选项。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-+据了解，将俄罗斯排除在该体系之外，可能短期内会破坏金融市场的稳定，未来或推动研发非西方主导的替代系统
+问题：“火来”战友的问题是：让灵魂进入肉体修行是为了净化、升华灵魂吗？筛选高尚的灵魂吗？来人间体验是灵魂升华的唯一方式吗？灵魂为什么要到人间来？
 
-+因而，美国和欧盟考虑对俄罗斯大型银行采取针对性的处罚，作为对俄罗斯入侵乌克兰情形下的反应之一
+文贵先生答：“火来”是个很爱思考的人，特别热情地为战友，这是我能感受到“火来”的那种激情和对爆料革命 的认知。
 
-+德国寻求处罚豁免，以确保仍有可能进行石油和天然气款项的支付—记者 Alexey Anishchuk
+灵魂来到这个世界，每个灵魂的体验是不能分享的，就像区块链一样，每个都是独立的，他完全是独立的，而且没办法分享我现在的感受。
 
-1.新冠病毒爆发以来，最富有的10名人士财富翻番
-![pastedGraphic_1.png](https://assets.gnews.org/wp-content/uploads/2022/01/8A09BFB0-1CD6-488C-A12C-EE9D95A7538F.png)网络视频
-2. 全球核电发电量按国家占比
-![pastedGraphic_2.png](https://assets.gnews.org/wp-content/uploads/2022/01/2CB6FD3E-CD69-4A4A-BC77-B3163AA307B1.png)网络视频
-3. 科学家用机器学习绘出全球现有光伏电场
-![pastedGraphic_3.png](https://assets.gnews.org/wp-content/uploads/2022/01/33F0B01E-04F0-4A1B-873E-A26B79193316.png)网络视频
-4.5. 前大使认为俄罗斯与乌克兰发生战争的可能性是50%
-![pastedGraphic_4.png](https://assets.gnews.org/wp-content/uploads/2022/01/3027E316-3528-4D6F-91A9-FDC75210DDF5.png)![pastedGraphic_5.png](https://assets.gnews.org/wp-content/uploads/2022/01/B871A6A0-20F7-4DB7-BCA3-EA6B6DB508EE.png)网络视频
-**6. ****目前还是难以估计汤加火山爆发造成的灾害损失****(**汤加王国 通称汤加，是一个位于太平洋西南部由172个大小不等的岛屿组成岛屿国家。 西距斐济650千米，西南距新西兰1770千米，面积约有748平方千米，人口为10.3万人。**)**
-![pastedGraphic_6.png](https://assets.gnews.org/wp-content/uploads/2022/01/D6644B98-0E31-4215-BE4A-31D78D2BCDDC.png)网络视频
-**7.****阿富汗发生****5.6****级地震**
-![pastedGraphic_7.png](https://assets.gnews.org/wp-content/uploads/2022/01/3EB43EF0-A841-4FD1-8B95-E3CE528A0CCA.png)网络视频
-**8.****北京出现首例奥密克戎病毒**
-![pastedGraphic_8.png](https://assets.gnews.org/wp-content/uploads/2022/01/D641F886-D4E1-4686-A112-7763769647A9.png)网络视频
-**9. 希腊强制60岁以上民众注射疫苗**
-![pastedGraphic_9.png](https://assets.gnews.org/wp-content/uploads/2022/01/EA2BCB6E-2D85-4493-B677-2B2BEF3E1797.png)网络视频
-**10.** **瑞士造混动翅膀可调八座飞机飞****1000****公里**
-![pastedGraphic_10.png](https://assets.gnews.org/wp-content/uploads/2022/01/AAAAA1F5-CEEB-48F4-83B2-6280E659773F.png)网络视频
-**11.** **瑞典公布一起无人机侵入核电站事件**
-![pastedGraphic_11.png](https://assets.gnews.org/wp-content/uploads/2022/01/AF728751-56DE-44C7-81BE-5A432AFFFF91.png)网络视频
-**12.** **沙特发掘出一条****4500****年前的高速公路，周围分布一万八千座坟墓**
-![pastedGraphic_12.png](https://assets.gnews.org/wp-content/uploads/2022/01/FB108FF8-4D9C-4911-ACE8-45F2B5EE80DE.png)网络视频
-**13. ****研究人员在西伯利亚发掘出一个保存完好的****42000****年前的小马，其血液依旧保持液态**
-![pastedGraphic_13.png](https://assets.gnews.org/wp-content/uploads/2022/01/5B916554-D259-49E3-82FC-E1639D8853A2.png)网络视频
-**14. ****马丁路德金：强人强在为争取自己的权力站起来而不是反击回去**
-![pastedGraphic_14.png](https://assets.gnews.org/wp-content/uploads/2022/01/01A06CD4-CFB9-4B91-9CF5-55CE5507C5D5.png)网络视频
-**15.****华为盘剥员工**
-![pastedGraphic_15.png](https://assets.gnews.org/wp-content/uploads/2022/01/FC2D84DB-C746-4924-93FE-5E63D9EBBA04.png)网络视频
-*编辑：cindy*
+你不知道我有这么多战友，有这么多战友的付出，你们看到我辛苦的时候，你们从来没有想过我看到战友辛苦的时候，我是什么感觉。你七嫂从来不看我直播，我才能厚脸皮胡说八道，她要看就肯定会不高兴，我也不敢说是吧？ ！ 但是你七嫂讲了一句特别重要的话，就是文贵他有这么多人信任，就像我们很多过去的公司的员工同事一样，而这些人都是冒着生命风险！她说这么多人把命给你了 ！那你去想想，我付出时间会觉得累吗？我真的觉得我对战友有 多少爱，我要有100条命10,000条命我都会给战友。我都觉得是我的荣幸！
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+路大脑、蛇妖闫，我老拿他们说事儿，我一点都不生气一点都不恨他们。而且我跟你们说，今天是大圣诞的，你信不信我今天早上为他们祈福，我为他的家人祈福。我真的是为他们祈福，我希望他家人安全，千万别打疫苗了，干万不要染病毒！我专门为他们祈福，我仅限今天。过去为他们祈福，后来他们反了就停了。我也很自私的人的本能就停了。今天我就为他们祈福了，为什么？他们也曾经付出，这是事实，我们不能改变，否则我们就成共产党了。
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+而且从任何角度说啊，我们作为一个人来讲，来到这个世界上，当你问灵魂为什么来，干什么的时候，答案就是最简单的。我当初问过高僧大德，包括什么这法师那法师，我问了N个啊, “火来”这个问题就回到我大概清风看守所在里面问的问题，和刚出来见到的大能大德问的问题，我得到了答案，当时我都不满意。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/火来问题（一）-.jpg)
+*发布：*tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,33 @@
 ---
 
 
-## 美国参谋长联席会议主席马克·米利将军感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874878/)
+## 香港将新疫情归咎检疫规定，国泰空少因违反规定遭捕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874951/)
 
-#### 撰稿：彩虹
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-16.jpg)图片来源：军事时代
-1月17日，《新闻极限》报道美国最高级别的将军感染了中共病毒（COVID-19）。
+#### 编译：小红帽
 
-根据报道，周日的时候，马克·米利 (Mark Milley)将军中共病毒检测结果成阳性。并在隔离中和远程工作时出现了非常轻微的症状。发言人说，米利最近一次与总统乔·拜登（Joe Biden）的接触是1月12日参加退役将军雷蒙德·奥迪尔诺（Raymond Odierno）的葬礼上，但在与拜登接触的前几天和之后的每一天，中共病毒检测结果均为阴性。
+- ![Hongkong Flughafen Flugzeug Abflug](https://static.dw.com/image/58852537_303.jpg)DW.COM
 
-发言人透露，除了一人外，所有其他参谋长联席会议成员昨天的中共病毒（COVID-19）检测均为阴性，但没有说还有谁检测呈阳性。
 
-值得注意的是，米利将军之前已经完全接种了中共病毒疫苗，并且还接种了中共病毒疫苗加强针。
+根据《DW新闻》1月18日报道， 香港警察于1月17日以违反《预防及控制疾病规例》的罪名拘捕并起诉了两名前空中少爷。警察指，两人在医学监察期间进行“不必要活动”丶外出聚餐，并在之后确诊奥密克戎（Omicron）。
 
-报道说，本月早些时候，美国国防部长劳埃德·奥斯汀（Lloyd Austin）的中共病毒（COVID-19）检测结果为阳性。（但）他在1月9日测试结果呈阴性，于是不再隔离而回到了五角大楼工作。
+警察并没有在声明中提及航空公司的名字。《香港01》比对公开资料发现，两名空少在国泰航空上班。两人在去年12月底分别从纽约及芝加哥飞抵香港，并在医学监察期间涉违反检疫安排，出外聚餐。目前已有同餐厅的顾客被发现感染病毒。
 
-**新闻来源**
+两名空少在疾病痊愈，离开医院后被警方于17日拘捕和起诉。根据《预防及控制疾病规例》，一旦罪名成立，他们可能面临最高6个月的监禁和最高5,000港元（642美元）的罚款。据悉，两人目前已遭国泰航空开除。
 
-[Top US General Milley Tests Positive for COVID-19](https://www.newsmax.com/newsfront/general-milley-tests-positive-covid/2022/01/17/id/1052714/)
+香港日趋严苛的防疫规定，是否能有效对抗大流行病仍是个未知数，但是这些严苛的防疫措施将对机组人员的身心健康造成不良影响。
+
+**新闻来源**：[香港防疫：国泰前空少因违反检疫规定遭捕](https://www.dw.com/zh/%E9%A6%99%E6%B8%AF%E9%98%B2%E7%96%AB%E5%9B%BD%E6%B3%B0%E5%89%8D%E7%A9%BA%E5%B0%91%E5%9B%A0%E8%BF%9D%E5%8F%8D%E6%A3%80%E7%96%AB%E8%A7%84%E5%AE%9A%E9%81%AD%E6%8D%95/a-60455995)
+
+*发布： 陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

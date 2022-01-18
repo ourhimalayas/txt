@@ -2,39 +2,22 @@
 ---
 
 
-## 英国明厨欢迎未接种疫苗的人，他相信 &#8220;选择的自由&#8221;
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874239/)
+## 美参谋长联席会议主席和海军陆战队司令感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1874413/)
 
-**整理报道：小鱼儿
-编辑：Candy**
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-46.png)
+图片来源：网络截图
 
-**【雅典娜快讯】，紧贴时代脉搏**
+据美联社华盛顿1月17日报道，联席会议发言人戴夫·巴特勒上校周一在一份声明中说，参谋长联席会议主席马克·米利（Mark Milley）将军在周日对中共病毒（COVID-19）检测呈阳性，并出现了非常轻微的症状。海军陆战队表示，其司令官大卫·伯杰(David Berger)将军也感染中共病毒。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
+巴特勒说，米利已经接种过疫苗和加强注射，他正在将自己隔离起来，并在一个可以履行所有职责的地方远程工作。海军陆战队在一份声明中说，伯杰的检测结果也呈阳性，除了说他的工作能力未受影响外，没有给出其他细节。其他参谋长联席会议成员检测结果呈阴性。
 
+米利最近一次与总统乔·拜登的接触是在周三举行的雷蒙德·奥迪尔诺将军（Gen. Raymond Odierno）的葬礼上，他在10月份因癌症去世。参谋长联席会议的声明说，63岁的米利在与拜登接触的前几天检测呈阴性，之后每天都检测呈阴性，直到星期天。
 
-据反抗新闻(Rebelnews)1月17日报道，随着英国和其他国家对未接种疫苗或加强针的公民进行限制，英国名厨安东尼·沃罗尔·汤普森(Antony Worrall Thompson)在他的酒馆 “灰狗 ”上方放置了一个标志：“我们不歧视种族、性别、年龄、残疾、已接种疫苗或未接种疫苗，这里人人平等，欢迎所有人。”
+本月早些时候，国防部长劳埃德·奥斯汀（Lloyd Austin）说他的中共病毒检测结果呈阳性，在家中隔离期间出现了轻微的症状。奥斯汀说，他已经完全接种了疫苗，并在10月份接中了加强针，大约一周后检测结果为阴性。
 
-汤普森(电视节目主持人和餐馆老板)告诉英国广播公司(BBC)，他不是一个 “反疫苗主义者”，他只是相信 “选择的自由”。这位前《快手厨师挑战赛》(Ready Steady Cook)明星说，人们应该有选择的自由。
-
-据英国广播公司报道，在他的餐厅贴出呼吁平等的告示后的几天，他的评论导致了投诉，说这个告示应该被删除，因为据说它是 “由一个反疫苗接种团体制作的”。
-
-厨师说：“我们已经做了两年，封锁和各种事情和预防措施，我认为现在是时候继续前进了。”BBC指责他不负责任，他不认为这是不负责任的，“根本不是”。
-
-“我同意人们去接种疫苗，我不是一个反疫苗主义者……对我来说，如果你不想接种疫苗，如果你不想把化学品(疫苗)放入你的身体，这必须是你的选择。”汤普森说。
-
-在社交媒体上，汤普森被誉为英雄，因为他站出来反对主流的建制派说法，即：未接种疫苗的人应被回避并被视为二等公民。
-
-参考新闻：[British celebrity chef welcomes unvaccinated to pub](https://www.rebelnews.com/british_celebrity_chef_welcomes_unvaccinated_to_pub)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Joint Chiefs chairman and Marine Corps chief have COVID-19](https://apnews.com/article/coronavirus-pandemic-joe-biden-health-joint-chiefs-of-staff-0bc89766fb302e2e7f6405ec8f634c91)
 
  
 
