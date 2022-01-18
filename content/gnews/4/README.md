@@ -2,33 +2,61 @@
 ---
 
 
-## 七哥说“未来会证明新中国联盟有多牛叉”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877242/)
+## 安东尼·福奇巨额投资中共国公司
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1877253/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+据《Breibart》记者：WENDELL HUSEB，2022年1月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1460-e1642535789622.png)图片源自：Breibart
+**Breitbart News发现，安东尼·福奇（Anthony Fauci）博士申报的2020年价值约1040万美元的投资组合涉及中共国公司。**
 
-来源：郭先生2022-01-14直播08：48：30摘录
+**根据参议员罗杰·马歇尔（R-KS）首次发布并由《纽约邮报》报道的2020年财务报告信息，拜登总统的首席医疗顾问福奇通过名为Matthews Pacific Tiger Fund的基金对中国公司进行投资：**
 
-所以大家今天学判断铲共你要知道，我们今天高法的还有一个，不是长岛哥你们是直接受益者。还有一个更关键的问题，大家要记住了，你知道它起着最核心的问题在哪里吗这个高法？美国最危险下决定的，是美国的白宫、行政执法，它是执法机关。那么，这个高法一旦作出这个决定，它是不可逆转的，给所有的药厂和疫苗，和所有的机构提出了一个美国的问题，我们中国人永远没有这个思路的，所有的科学家、所有的最后证据，一切都要重新来。你知道这有多可怕吗？这就是为什么我告诉大家，就像我们当时停止，让美国川普决定了旅游令，我们永远不会有证据说明是我们干的，但是我告诉你，能让法院做出判断，它取决于证据。首先是你科学不科学、合不合法，然后是疫苗，现在到底是怎么来的？我可以告诉这个，只有我们做到了，没有任何人。这是我为什么告诉战友，一、二月份，美国从法律开始。西方不从法律开始，是永远没有希望的。行政命令你就当它个狗屁。这个法律的开始就会在全世界开始，然后科学家就开始质疑，然后就是专业开始质疑，然后就开始到了药厂。所有全世界的法院都开始，这是真的以法灭疫，从前天开始了，6比3、5比4的结果。这个事儿太大了！兄弟姐妹们，未来会证明新中国联盟有多牛叉！你会看到一系列的文件出来，咱放放疫苗那个PPT。
+*突发！我获得了福奇博士之前未**披露**的财务**信息**。福奇博士**在披露财务信息上**完全不诚实，这就是我现在发布它们的原因。*
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+福奇博士的财务披露如下：
 
 
+
+> 🚨🚨 BREAKING! I obtained Dr. Fauci’s previously unpublished financial disclosures. Dr. Fauci was completely dishonest about his disclosures being readily accessible to the public which is why I am releasing them now.
+> 
+> Dr. Fauci’s Financial Disclosures ⬇️[https://t.co/KdRbedRTX5](https://t.co/KdRbedRTX5)
+> — Dr. Roger Marshall (@RogerMarshallMD) [January 15, 2022](https://twitter.com/RogerMarshallMD/status/1482143444780859394?ref_src=twsrc%5Etfw)
+
+
+
+Matthews Pacific Tiger Fund于2021年9月发布的说明书显示，该基金已将其投资者资金的42.7%投资于中共国和香港的公司。
+
+上市公司中有一家名为Wuxi Biologics Cayman（无锡生物开曼公司）的企业，其总部位于中共国，从事医药业务。
+
+Wuxi Biologics Cayman的网站称，该企业是全球领先的开放性生物制剂技术平台，提供端到端解决方案，使客户能够设计、开发和制造从概念到产品的生物制剂：
+
+*（公司）**预计**2024**年后在中共国、爱尔兰、美国、德国和新加坡的生物制药总产能将超过**430,000**升，将为生物制造合作伙伴提供强大且优质的全球供应链网络。*
+
+Matthews Pacific Tiger Fund在中共国和香港的额外投资包括腾讯控股有限公司；阿里巴巴集团控股有限公司；友邦保险集团有限公司；及香港交易及结算所有限公司。
+
+在Matthews Pacific Tiger Fund之外，福奇报告的1040万美元投资包括在Atlas大盘共同基金、Pimco的投资级债券基金和Pax Ellevate全球女性领导力基金的股份，该基金声称通过商业活动，如“通过性别多元化董事会、高级领导团队以及其他政策和实践”，促进女性发展。
+
+福奇过去的投资组合被参议员马歇尔公开，他在周五的参议院听证会上用未关闭的麦克风称马歇尔为“白痴”后，参议员于周五披露了福奇2020年的投资清单。
+
+**“福奇博士对披露财务信息完全不诚实，” 马歇尔在声明中写道。 “福奇博士必须对所有一直起诉并要求提供这些信息的美国人负责。”**
+
+福奇是联邦政府收入最高的雇员，据报道，他在2020年的收入超过40万，退休后将获得35万美元的年度养老金。
+
+文章来源：[https://www.breitbart.com/science/2022/01/15/anthony-faucis-10m-2020-investment-portfolio-chinese-companies/](https://www.breitbart.com/science/2022/01/15/anthony-faucis-10m-2020-investment-portfolio-chinese-companies/)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
