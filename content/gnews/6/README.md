@@ -2,44 +2,40 @@
 ---
 
 
-## 2022年将是人类有史以来最黑暗的一年,要做好心理准备
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874489/)
+## WhatsApp无条件帮助美国政府监视用户
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874788/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e63f8687664c47acd625c3](https://gtv.org/video/id=61e63f8687664c47acd625c3)
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-**郭文贵先生：**然后再一个建议我要给大家说的，听七哥说的今年年底，就是2020年当时我说大爆发，爆发了吗？我说新病毒马上来，来了吗？我说疫苗灾难会从年底到明年，就是今年的5月份以前会是截止，1、2月份会有法律上的行动，行动了吗？
+整理编辑：小红帽
 
-我再告诉大家，我不求你们信我们，如果你信新中国联邦、信七哥说的话，5月份之前你能呆在家里（就）呆在家里，你真要出去了，染你病毒的不是所谓的病毒的带病者，是所有的你认为打了疫苗的人，你就尽量不出去。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
 
-2022年是人类有史以来，我认为是最黑暗的，可以回到侏罗纪时代去，那个灾难时代去，你们要做好一切心理准备，经济灾难、人道灾难、病毒灾难、疫苗灾难、共产党灭亡前的灾难，甚至是火战，甚至是战争。你刚才问的那个所谓的热毒这个毒，热毒，共产党的毒，就是整个投毒、疫苗的结果，好吧？谢谢！
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+根据《RT新闻》1月18日报道，美国政府机构命令WhatsApp监视几个外国公民，尽管该机构没有证据证明这些用户犯了罪，甚至不知道他们的名字。
 
-编辑整理：Jacques；
+最近解封的一份2021年11月的搜查令显示，美国缉毒署(DEA)曾命令脸书（Facebook）旗下的通信服务商监控据说位于中国和澳门的7名用户。
 
-字幕文件制作：小满；
+《福布斯》报道：“搜查令显示，缉毒局不知道任何目标的身份，但告诉WhatsApp监控目标用户的IP地址和通信号码，以及他们何时和如何使用该应用程序”。
 
-视频制作及上传：Cindy；
+该监控是调查从中国进口阿片类药物行动的一部分。为了下令进行监控，美国政府只需要说明 “可能获得的信息与该机构正在进行的刑事调查有关”。搜查令并不需要任何犯罪证据。
 
-G-News发布：小满；
+《福布斯》还发现，WhatsApp此前曾被命令监控墨西哥的四名用户。这再次表明美国政府的大科技监控行动远远超出了该国的边界。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+联邦调查局（FBI）去年泄露的一份文件显示，WhatsApp是最愿意向美国当局提供数据的信使服务商之一。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+本月，瑞士军方以数据保护为由，禁止军方使用WhatsApp，以及竞争对手Signal和Telegram。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+新闻来源：[WhatsApp helps US govt spy on users, no questions asked](https://www.rt.com/news/546338-whatsapp-us-agencies-spying/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*发布：*tianzhihuan
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,33 +2,30 @@
 ---
 
 
-## 前马来国足注射中共病毒疫苗第三针五天后死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872477/)
+## 中共国去年人口出生率创建国以来最低
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1873352/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月12日，前马来西亚61岁的足球运动员谢比.辛格在骑自行车时因心脏病突发死亡。据悉，这位运动员刚刚在1月7日注射了中共病毒疫苗加强针。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-55.jpg)
-医生表示，谢比的死因99%与心脏病发作有关。验尸报告显示，辛格的三条冠状动脉阻塞；而他的所有重要器官都处于完美工作状态，也没有任何过敏反应的迹象。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-24.jpg)中共国去年人口出生率创建国以来最低 网络图片
+据美国之音1月17日报道，中共国统计局17日公布数据，2021年全年中共国人口出生率创建国以来最低，出生人口为1062万，比2020年少140万。
 
-当日，谢比是骑自行车时直接摔下来，虽很快叫来了救护车，然而，他已经过世了。谢比的儿子告诉记者，他的父亲在死前五天接受了加强针。
+2016年，北京取消强制推行了几十年的独生子女政策。2021年5月，政府宣布了三孩政策，但是中共国生活成本高，养育子女成本更高，出生率依然持续下降，而且人口性别持续失衡。
 
-参考链接：[前马来国足注射中共病毒疫苗第三针五天后死亡](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
+中共违反自然规律，通过残酷的计划生育政策杀掉了四亿多婴儿，其中绝大多数是女婴。中共治国无方，扰民有术，高房贷、高昂的生活成本和医疗费用令老百姓的生活苦不堪言，年轻人不愿意结婚，更不愿意生育，老年人的晚年生活没有保障。中共国怨声载道，全民躺平，生育率自然连年下降。邪恶至极的病毒和疫苗毁掉了无数年轻人的生育能力，中华民族真正是到了最危急的时候，面临着全民种族灭绝。只有推翻共产党，实现民主、法治，应天顺人，花开花落，繁衍生息，中华民族才能继续生存下去。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+新闻参考链接：[https://www.voachinese.com/a/china-birthrate-20220117/6399751.html](https://www.voachinese.com/a/china-birthrate-20220117/6399751.html)
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

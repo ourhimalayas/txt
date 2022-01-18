@@ -2,25 +2,46 @@
 ---
 
 
-## 德国记者透露在中共国报导冬奥会时，步履维艰并遭跟踪监视
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1874174/)
+## 世界上只有郭先生一人说出6%的人拥有94%比特币的秘密
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874511/)
 
-翻译：zzballack
-上传：追着曙光跑
+G-TV视频链接：[https://gtv.org/video/id=61e63fcb87664c47acd625d5](https://gtv.org/video/id=61e63fcb87664c47acd625d5)
 
-据《The News 24》1月17日报道，受疫情影响，德国公共广播联盟 (ARD)和德国电视二台（ZDF）将在德国美因茨市的一个联合演播室里报道北京冬奥会赛事。但它们仍然有驻华记者直接在北京进行报道。其中一位女记者塔玛拉·安东尼（Tamara Anthony）在接受德国《焦点》周刊的采访时，谈到了她在中共国报道冬奥会所面临的挑战。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-18-at-15.03.14.jpeg)图片来源：网络
-《焦点》周刊问道：“在无国界记者组织 (Reporters Without Borders)的2021年全球新闻自由指数排名中，中共国排在第177位。作为一名记者，你在日常工作中的感受如何？”塔玛拉·安东尼说：“很多人害怕接受我们的采访，这是可以理解的。因为很多人在接受采访后，警察会给他们打电话或亲自上门。如果他们说了一些批评的话，可能会带来大麻烦，甚至入狱。‘寻衅滋事’是一种刑事犯罪，被（中共）专门用来对付那些持不同意见的人。所以我总是要考虑，接受采访者的风险有多大，以及他们是否能够估量接受采访的后果。”
+**郭文贵先生：**我想给大家说的，我们千万什么事情都要避免急功近利，而且不切实际地幻想。还有一个，对事情真假善恶判断的能力。谁都懂一个道理，就是有些人是没有信仰的，没有信仰的那些所谓的专家和聪明人，他一定是灾难。拥有绝对信仰的，无知的所谓发表的言论，那绝对比核武器杀你还可怕。
 
-在问到是否受到恐吓时，安东尼说：“我本人受到监视和跟踪。很明显，我们的手机被窃听了。采访对象经常被提前警告不要接受我们的采访。在许多拍摄旅行中，一辆汽车一直在身后跟踪我们。当我们想进行采访时，这些‘看护人’就会介入。在酒店时，他们甚至就住在隔壁房间。在中共国，我们所有的拍摄日期都需得到政府的批准，然后才能和这些看护人一起进行采访。”
+更重要的事情，是完全是大脑症，就是既无信仰又无知还无专业，就像这个美国所有好莱坞拍的，叫loser这个词在西方是很大的词，在中国是没人在乎的。就是你的输家的所有的观念和意见一旦被你采取了，那你就比他还惨。这就是你看到今天我们判断任何事物的基础。
 
-在被问及疫情是否导致采访变得困难时，安东尼回答说：“抗疫经常被用作禁止采访的借口。比如我们想采访奥运场馆周边的农民，警察就以此为由阻止了我们的采访。不管谁要通过哪条线路去滑雪场，也都必须登记。现在我已经能够认出滑雪区的一些中共监察人员。他们在火车站等着我并整天跟着我，不让我进行采访。”
+数字货币什么概念兄弟姐妹们现在？在一年前甚至六个月以前，在美国讨论数字货币的时候，你会被视为异类。在八九个月以前我说这个比特币会升到一万到十几万的时候，在三年前我说甚至会达到十万二十万的时候，我说当时我说你知道所有人骂我有多难听。当涨到五万的时候所有人都来觉得我伟大。我又说早晚变零的时候，又是怎么样怎么样。在再重申世界上只有郭文贵一个人，只有我一个人，说过百分之百的比特币只有6%的人拥有94%，没有人知道这个。
 
-在谈到如何与北京当局进行合作时，安东尼说：“在与谁合作上我们受到了严格控制。我们不允许直接雇用我们的中国员工。我们可以申请聘用，然后由中共外交部和国家安全部对聘用者进行审查筛选。如果此人被录取，他们将受雇于中共外交部并借给我们。近年来，这个审查过程变得更为严格和冗长。有一次，我只好带着打印好的中文提问去采访。在这种情况下，即使是手机上的翻译应用程序也无济于事，因为涉及敏感采访时，我不能随身携带手机，否则会被定位。”
+昨天下午，我们一个基金合作者，超级牛叉的人跟我说，他说Miles你太厉害了，我就听了你的话，我把比特币操纵了三把，我现在就这一块，我就得到了将近七亿美金的营利，福利啊。我说这都是假钱。更重要的事情，他给我说了一个信息，他说你知道你让我感到最可怕的是你唯一一个说了来，比特币是6%的拥有94%。那你觉得是去中心化吗？你觉得没人操纵吗？
 
-安东尼最后总结说，她目前还没感受到北京有很浓厚的奥运气氛，毕竟冬季运动在中共国并不是大众运动。另外由于疫情，运动会将在封闭的区域内举行，现场也不会有任何观众。在中共国，新闻、互联网、甚至聊天直接交流都会被完全审查，也没有公民社会，每个组织都必须接受中共的监督。所以在这个意义上说，奥运会与公众没有任何关系，它们只是政府（自娱自乐）的活动。
+字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
 
-信息来源：[“They were already waiting for me” – ARD woman unpacks before the Olympics in Beijing how she is being followed in China](https://then24.com/2022/01/17/they-were-already-waiting-for-me-ard-woman-unpacks-before-the-olympics-in-beijing-how-she-is-being-followed-in-china-5/)
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

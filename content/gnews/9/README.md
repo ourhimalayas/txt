@@ -2,40 +2,36 @@
 ---
 
 
-## 疫苗政策越极端的国家停得越快,一定要撑过最后的20秒
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1874472/)
+## 金融系统是我们核心的核心
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874765/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e63f4287664c47acd625ae](https://gtv.org/video/id=61e63f4287664c47acd625ae)
+#### 整理：雅典娜速记组
+编辑：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/金融系统是我们核心的核心-.jpg)
+明年2022我们最关键的是两个问题是最核心的。
 
-**郭文贵先生：**越极端的国家死得越快，越极端的国家停得会越快。记住，这是没有任何选择的，这是不可逆转的，它越极端政策执行的越多，它死人越多，它这个国家政权会灭亡得越快，或者总统、西方选举制的它都会换掉，最后一定很快停的，一定要撑住最后20秒。这点一定要多请教东弟，最后20秒是多重要，最后20秒，不要撑不过20秒就完蛋了，谢谢！
+**绝对的发展我们的金融系统，整个系统，没这个，其他都别扯，这是我们的核心的核心。**
 
-字幕来源：[2022年1月14日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1862910/)
+如果说你要消灭黑恶的黑暗的时候，你拿板砖和消灭黑暗的时候拿核武器，我一定选择拿核武器去消灭黑暗，那肯定不会拿板砖去消灭它的，是吧？
 
-编辑整理：Jacques；
+如果是说你要对待王岐山和这个共产党习近平这个人，说我们现在用嘴说还是用钱，说我肯定选择用钱。就我在这块儿享受雪茄去，我也不去说，有人替我们干，你干嘛？
 
-字幕文件制作：小满；
+我们去干有雇佣军，是吧？很简单的道理。
 
-视频制作及上传：Cindy；
+所以说发展**金融**啊，**数字货币**，**整个媒体平台保证我们声音越来越大**。 **保证我们的意志在全球，广泛的传播。**
 
-G-News发布：小满；
+更多的人加入我们的队伍，让我们更多的金融和经济的各种实力。 明年年底一定要完成，战友们有一次，很大的一个贴现的这个目标。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+现在喜币之外，我们希望某个平台啊还是上市，让大家能在**GTV原始股**还是什么股能拿更多的钱回 来，这是战友们有更多富余的钱。** 这是最核心的发展金融经济和经济实力。**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发布：Frank2021
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

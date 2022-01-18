@@ -2,45 +2,31 @@
 ---
 
 
-## 美国核导弹潜艇罕见访问太平洋的关岛基地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873918/)
+## 中共多地政府“一刀切”让民众自费隔离 返乡犯两难
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1874327/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+撰稿：Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1412.png)图片来源于网络
+当地时间1月17日，据墙内大量民众反应，中共国的多个地方政府都在近期出台了“一刀切”式的集中隔离政策，令京、津等城市低风险地区的民众在回乡问题上陷入了两难的境地。
 
-整理报道：文扬
-编辑：文泓
+据了解，近期中共国的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都出台了京、津地区低风险人群返乡需进行14天的集中隔离政策，并要求被隔离人员为自己隔离期间产生的一切费用自行买单。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/HGOH5T86OBWAF1CTAQL.png)图片来源：CNN
+据一位已返乡的大学生反应，自己在京就读期间与海淀新增病例并无任何交集，而海淀区至今也为低风险地区，但她却仍被陕西省的延安市政府要求进行集中隔离，并全部需要自费。类似的防疫情况还在山西省太原市、广西省钦州市等多个城市发生。
 
+而较此情况更为夸张的是，河南省开封市今日也出台了来自郑州市低风险地区的返汴人员同样需要集中隔离的“霸王政策”。据悉，开封市与郑州市距离仅不到2个小时的车程，有大量市民都存在每日在双城往返的生活、工作情况。该政策的出台不仅让许多民众无法顺利返乡，甚至在过年期间都无家可归。
 
-美国时间1月15日（周六），一艘载有数十枚核弹头的美国海军潜艇驶入一个太平洋基地，进行罕见的访问，海军称这是向该地区的盟友发出的信息。
+当前，返乡人群主要为大学生群体。目前，已有多名被隔离的大学生都对14天隔离期所产生的高昂的隔离费用表示担忧。有学生称，此条政策属实是当地政府在“割韭菜”，但大家对此却无能为力。
 
-据报道，内华达号——这艘1986年服役的核动力潜艇，携带多达20枚三叉戟II弹道导弹和“几十个核弹头”。据CNN报道，这艘潜艇在1月15日访问了美国关岛海军基地，这是该类型潜艇自2016年以来的首次访问。
+据知情人士透露，目前新变种奥密克戎的传播力极强，且传播方式极为隐蔽，中共国内的实际疫情情况远比官方公布数据严重，“封城”和“一刀切”或将成为中共国未来的主要防疫手段。而多地的地方财政事实上早已被中共无休止的“放毒”和“清零”政策所掏空，要求民众“自费”隔离一方面是无奈之举，另一方面也确实存在个别地方政府借防疫敛财、填补财政亏空的恶劣现象。
 
-美国海军在一份声明中说，这次访问“加强了美国和该地区盟友之间的合作”，并展示了“美国的能力、灵活性、准备性以及对印度-太平洋地区安全和稳定的持续承诺”。
+参考链接：
 
-这次访问是在华盛顿和北京的矛盾越来越多的情况下进行的，特别是在台湾问题上，美国支持台湾的立场。
+1 [https://www.gettr.com/post/possbb4f46](https://www.gettr.com/post/possbb4f46)
+2 [https://www.toutiao.com/w/a1722187358499907/?traffic\_source=&traffic\_source=&in\_ogs=&in\_ogs=&utm\_source=&utm\_source=&source=search\_tab&source=input&utm\_medium=wap\_search&utm\_medium=wap\_search&original\_source=&original\_source=&in\_tfs=&in\_tfs=&channel=&channel=](https://www.toutiao.com/w/a1722187358499907/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
+3 [https://weibo.com/u/6298221479](https://weibo.com/u/6298221479)
+4 [https://www.toutiao.com/a7053334957510427140/?channel=&source=search\_tab](https://www.toutiao.com/a7053334957510427140/?channel=&amp;source=search_tab)
 
-去年12月，美国和日本起草了一项紧急军事计划，为中共国和台湾之间的潜在冲突做准备。同月，五角大楼警告称，中共国可能准备入侵台湾。
-
-两个月前，美国总统拜登曾说，如果中共国试图让台湾与大陆统一，美国将致力于保卫台湾。
-
-而中共威胁，如果“台独势力挑衅、动武，甚至突破任何红线”，中共要“采取严厉措施”。
-
-台北认为台湾是一个独立的国家，但北京认为该岛是其领土的一部分，并发誓要统一两者。
-
-关岛距离台湾不到3,000公里（1,860英里），是美国领土上离中国大陆最近的美国军事基地。
-
-原文链接： [US nuclear missile sub makes rare visit to base near Taiwan — RT World News](https://www.rt.com/news/546226-us-nuclear-sub-pacific/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对发布：Shifter
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/18/2022 9:05 AM (UTC)`
+
+1/17/2022 Miles Guo: The judge in the Pacific Alliance case did not allow us to choose jury trial and gave a huge fine to Lady May, which is not even owned by myself, and the adverse party provided more than 70,000 pages of evidence and over 300,000 pages of documents to overwhelm us, turning the lawsuit about the $30-million loan into the one costing hundreds of millions of dollars in legal fees. The Pacific Alliance admitted that the principal and interest of the loan were paid off, but why did the Beijing police want to assist them to deal with this case?<br/><br/>1/17/2022 文贵直播：太平联盟案的法官不许我们选陪审团审判、给并非文贵所有的Lady May开巨额罚单，对方提供7万多页的证据和30余万页的文件，3000万的官司却要花费上亿律师费；太平联盟承认借款的本息均已还清，但北京警察为何要协助他们处理本案呢？<br/>
+![img](https://media.gettr.com/group34/getter/2022/01/18/09/4e68e0c3-2ad0-bc49-233d-10839724c804/out.jpg)
+
+---
+
 `@miles 1/18/2022 5:00 AM (UTC)`
 
 1/17/2022 Miles Guo: This Pacific Alliance case is so ridiculous! Pacific Alliance sued me, the loan guarantor, out of nothing despite there being legal documents proving that the borrower had repaid the loan. A New York court accepted this case regardless of the fact that the plaintiff is not in New York and neither did the whole thing happen in New York. The defendant was not allowed to challenge the verdict, and they seek to seize the property that does not belong to the defendant<br/><br/>1/17/2022 文贵直播: 太平联盟一案荒谬至极！太平联盟在有法律文件证明借方已还清贷款的情况下却无中生有起诉贷款担保人，而纽约法院受理了一个当事人和事件都不在纽约的案件，而且既不允许被告对判决提出任何质疑，又要查封不属于被告的财产！<br/>
@@ -147,12 +154,6 @@ Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of 
 
 1/16/2022 Miles Guo’s GETTR: Brothers and sisters must be careful not to catch the CCP virus! Those who were forced to make confessions on TV in Zero Tolerance are the same people who invented the forced confession on TV! All forced confessions broadcast on TV are fake, and every detail was arranged by the CCP!<br/><br/>1/16/2022 文贵盖特：兄弟姐妹们千万要小心，不要染上病毒！在《零容忍》中电视认罪的人恰恰是发明电视认罪的人！所有的电视认罪都是假的，一切细节都是共产党安排的！
 ![img](https://media.gettr.com/group23/getter/2022/01/16/23/7deb054e-3dd1-28ae-e727-c1cb043b8f54/out.jpg)
-
----
-
-`@miles 1/16/2022 9:49 PM (UTC)`
-
-1月16日：天哪……<br/><br/>https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367<br/><br/>亚裔女子在纽约地铁站被推下轨道
 
 ---
 
