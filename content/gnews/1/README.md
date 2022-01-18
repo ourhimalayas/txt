@@ -2,29 +2,37 @@
 ---
 
 
-## 任何事业的前提是活着
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873323/)
+## 垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873368/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
+#### **【雅典娜观察】和您一起探究世界**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/任何事业的前提是活着-.jpeg)
+整理报道：George Warshing
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C5BEYDI5ICBAF4VQMX8.png)图片来源：Florida Times-Union
 
 
-我在清风看守所的时候，所有的这些高人啊,都告诉我,文贵，你一定要活着的前提下，你再去实现我给你的任务，我们的目标。这句话对我很受用，我到了伊拉克以后，我遍访伊拉克的当年所有的人，萨达姆最牛的时候，我去过伊拉克，萨达姆灭亡的时候，也去过伊拉克，包括卡扎菲。
+当地时间1月16日，据PJ媒体报道，在美国佛罗里达州的梅奥医学中心，丹尼尔·皮萨诺因感染中共冠状病毒生命垂危，依赖呼吸机维持生命已达28天，医生说他的存活机会不到5%。
 
-你去想想参加过战争侥幸活下来的人。
+他的家属为了挽救他的生命，希望医院能让爱德华多·巴尔博纳博士为他实施冠状病毒前沿重症监护联盟(FLCCC)推荐的治疗方案，其中包括使用伊维菌素。但是该请求被梅奥医学中心无情地拒绝了。家属随即向法庭申诉，但玛丽安·阿霍法官做出了否定的判决。最终，丹尼尔·皮萨诺在医院去世。
 
-你看看法国啊，当时的所谓的，这个最牛的法国大总统密特朗，参加过一次次战争，他能活下来，记住他一句简单的话，在战场上，是没有勇气任何的余地和价值的。记住，这是一个当年活下来的总统说的话，只有智慧和运气, 才是真正的勇士必备的素质，否则都是逃兵。就像长津湖一样，上去都是冻 死，你就让你送死去了，就像越南战争一样，我看到那些所有的人啊，都是上去送死去了。我们这个一样是战争，你是要用智慧和运气能让你活下来。 你千万不要这个的往前冲，你以为有勇气呢？兄弟，这不可以的。所以说你们不要去碰这个毒，不要去试这个毒。
+伊维菌素原本是一种兽药，但几十年来，它已广泛用于人类疾病的治疗，大流行期间医生用它挽救了很多中共冠状病毒感染者的生命，其中巴尔博纳博士以前是美国国会大厦的医生，他为国会议员和最高法院的成员提供治疗，他用伊维菌素治疗中共病毒感染取得了巨大成功，已治愈了“数十名”重症患者。
 
-*发布：陶子*
+人们对梅奥医学中心拒绝使用伊维菌素抢救生命的行为深感困惑。罗伯特·马龙博士在乔·罗根的播客节目中说，批量购买伊维菌素时，每（片）剂的价钱不到0.1美分，这样的价格根本怎么能让大型制药公司赚到数百万美元？食品和药物管理局(FDA)强烈排斥该药治疗中共病毒感染，说它是兽药；油管和推特则把敢于质疑“科学的化身”福奇博士的用户从其平台上赶走。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+伊维菌素何时才能成为治疗中共冠状病毒感染的药物目前还不明确，但是**，**伊维菌素已在[22个国家](https://c19adoption.com/)被批准用于抗击中共病毒。
+
+新闻链接：[Family Fights for Ivermectin for Dying Loved One, Courts Say ‘No’ – PJ Media](https://pjmedia.com/news-and-politics/kevindowneyjr/2022/01/16/family-fights-for-ivermectin-for-dying-loved-one-courts-say-no-n1549942)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

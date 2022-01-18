@@ -2,24 +2,35 @@
 ---
 
 
-## 中华民族的悲哀&#8211;被种族歧视而不自知(一)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1873193/)
+## 七哥谈民心（2022-01-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1873213/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%AD%E5%8D%8E%E6%B0%91%E6%97%8F%E7%9A%84%E6%82%B2%E5%93%80%E2%80%94-%E8%A2%AB%E7%A7%8D%E6%97%8F%E6%AD%A7%E8%A7%86%E8%80%8C%E4%B8%8D%E8%87%AA%E7%9F%A5%EF%BC%88%E4%B8%80%EF%BC%89-.jpeg)
-你再看看叶钊颖和郝海东这两个人，他俩出来以后说的话和她们两个所处环境，新中国联邦和你中国共产党的差距咋就这么大呢？七哥现在就看到这个真的肚子疼啊。**14**亿的中国人，体育界出来了一个叶钊颖和海东，既是我们的幸运，又是我们的悲哀，不是一般的悲哀! 一个中国的运动员，要靠一个世界**WTA**的主持人来给呼救，世界的华人，世界的媒体，没有人替她说话!我们这个民族这个国家的悲哀民族的灾难，这种可怜可悲可恨之处已经用任何语言都无法形容。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-这就是全世界看到像伊莎贝拉·杨这样人的瞪眼撒谎，完全相信。还有**vice**和**HB0**有， 最大的问题他相信什么？他认为我说你啥，你根本没能力反击！你也反击不了我！今天你没有说这个重点，所有这些黑咱的媒体都是一个原则：觉得我黑你，你根本不会反抗！这就是中国人在外国所有的形象。她敢说穆斯林吗？她敢说犹太 人吗？如果我是犹太人我是穆斯林，吓死她也不敢！如果那天小斯基和**NICOLE**是犹太人，吓死她也不敢。你俩典型被种族歧视。新中国联邦是典型被种族歧视。 其实我们都知道背后的黑手是共产党。
+来源：郭先生2022-01-12直播11：16：35摘录
 
-*发布：陶子*
+用这些欺民贼、民运的话说：郭文贵这个傻货，用那个火鸡龚说：你看你认识班农，全华盛顿都看不起他。结果班农成了什么？全世界第一宗教斗士、民主斗士、极右的代表和右派的代表。你再看Jason Miller现在每天一谈到灭共，鼻子都忽闪。他由于要灭共，结果是他发完灭共以后，他下面的留言，你们发现了，把我笑晕了。昨天晚上凌晨三点钟我给他发个信息，笑坏了，我说：“你看到下面的人骂你了吗？” 给我发信息：“是我看见了。有人说：“Jason Miller，你肚子大的还能看到你自己的小鸡鸡吗？”你就看这把我给笑的，昨天晚上我说共产党的人一定会骂他、侮辱他，说你肚子大了你还能看到自己的小鸡鸡吗？然后我说：“你要把你的神器亮出来，叫共产党看一看。” 他说：“我自从骂完共产党，这个骂我的人就多了，而且打着外国人的脸，外国人的骂。” 所以共产党有多Low啊！现在你看Jason Miller这样的人，还有你看所有上来盖特的人，还有看我们GTV的人，都能分辨出三个最核心的今天一开始就说的：中国共产党不等于中国人；这个病毒是共产党干的，不是中国人；第三个在新疆、在西藏、在香港、在台湾的屠杀，它不仅是种族大屠杀，它是中国人最大的威胁。这三件事儿搞清楚了，这叫什么？天机呀，是吧？这就是人心呐！这就是老天爷就是人心呐！所以说你告诉我这些50个银行，哪个人的孩子不在外国读书啊？他会在中国读书吗？他会送到西藏读书、新疆读书吗？不可能的！那另外一个，天机完了是啥呀草根小哥？
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+草根小哥：民心！
+
+郭文贵先生：民心，对了兄弟，这就是我喜欢你的原因。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

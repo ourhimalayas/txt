@@ -15,101 +15,101 @@
 
 ---
 
-### [任何事业的前提是活着](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [垂危病人死在呼吸机上，法官否决紧急使用伊维菌素请求](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美国海军内华达号战略核潜艇现身关岛](/content/gnews/2/README.md)
+### [中共国去年人口出生率创建国以来最低](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [赵长鹏开启魔鬼之车将和币安彻底结束](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [希腊、法国执行中共病毒疫苗强制令](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本政府破例允许87名留学生1月下旬入境](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [小斯基案例分析(二)](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [1/17/2022 文贵直播：太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [小斯基案例分析(一)](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [币安赵长鹏这个小屁孩将比王健还惨](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [文贵先生揭穿HBO女记者及背后势力](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [七哥谈民心（2022-01-12摘录）](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [中华民族的悲哀&#8211;被种族歧视而不自知(二)](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [火来问题（四）](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [中共统治下的人们活的猪狗不如](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
-
-### [七哥说“要相信天意”（2022-01-12摘录）](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [中华民族的悲哀&#8211;被种族歧视而不自知(一)](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [中共和郭文贵谁是骗子? (二)](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [美军最高指挥官米利将军感染中共病毒](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [【中日财经爆】地方财政崩溃是撞向中共经济的“灰犀牛”](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥说“2022年是人类上最黑暗的一年”（2022-01-12摘录）](/content/gnews/22/README.md)
- ` MG FARM`
-
-### [每日快报：美参谋长联席会议主席马克·米利 COVID-19 检测呈阳性](/content/gnews/23/README.md)
+### [生活在社会主义中国人的生活](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Omicron肆虐之际旅游胜地商家在过山车般的行情下无奈地坚守](/content/gnews/24/README.md)
- ` 澳喜农场`
+### [直到&#8221;防疫通行证&#8221;成为宪法诉愿的那一天](/content/gnews/4/README.md)
+ ` 首尔天池农场`
 
-### [在他的确认听证会上，我们不明白布雷特·卡瓦诺的内心有什么东西被破坏了，不幸的是，我们中的许多人认为他是一个真诚的保守派](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [美国及世界疫情简报（01-17-2022）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
 
-### [国防部正在把福奇暴露出来](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [任何事业的前提是活着](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
 
-### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [美国海军内华达号战略核潜艇现身关岛](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/28/README.md)
+### [赵长鹏开启魔鬼之车将和币安彻底结束](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
+### [希腊、法国执行中共病毒疫苗强制令](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/30/README.md)
+### [日本政府破例允许87名留学生1月下旬入境](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [欧洲药监局将横贯性脊髓炎列为疫苗的副作用](/content/gnews/31/README.md)
- ` 华盛顿DC-Russian`
+### [小斯基案例分析(二)](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
 
-### [扬帆每日速递 2022年1月17日版（2）](/content/gnews/32/README.md)
- ` 温哥华扬帆农场`
+### [1/17/2022 文贵直播：太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [小斯基案例分析(一)](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [币安赵长鹏这个小屁孩将比王健还惨](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统](/content/gnews/16/README.md)
+ ` 秘密翻译组-北美组`
+
+### [文贵先生揭穿HBO女记者及背后势力](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥谈民心（2022-01-12摘录）](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [中华民族的悲哀&#8211;被种族歧视而不自知(二)](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [火来问题（四）](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [中共统治下的人们活的猪狗不如](/content/gnews/21/README.md)
+ ` 纽约香草山MOS03`
+
+### [七哥说“要相信天意”（2022-01-12摘录）](/content/gnews/22/README.md)
+ ` MG FARM`
+
+### [中华民族的悲哀&#8211;被种族歧视而不自知(一)](/content/gnews/23/README.md)
+ ` 雅典娜GNotes`
+
+### [美军最高指挥官米利将军感染中共病毒](/content/gnews/24/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【中日财经爆】地方财政崩溃是撞向中共经济的“灰犀牛”](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报：美参谋长联席会议主席马克·米利 COVID-19 检测呈阳性](/content/gnews/26/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [Omicron肆虐之际旅游胜地商家在过山车般的行情下无奈地坚守](/content/gnews/27/README.md)
+ ` 澳喜农场`
+
+### [国防部正在把福奇暴露出来](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [法国民众涌上街头，抗议新的“疫苗通行证”](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [用伊维菌素救命的请求，遭医院法院拒绝](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [戏剧性的疫苗第四针：以色列政要接连感染](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？](/content/gnews/32/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [秘翻在线: 令人啼笑皆非，国际邮件包装纸核酸检测为阳性](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
