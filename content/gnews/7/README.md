@@ -2,26 +2,20 @@
 ---
 
 
-## 澳政府承认疫苗具有严重副作用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874096/)
+## 七哥不哭，今夜全球亿万战友都是你的八弟
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1874140/)
 
-##### 翻译：FULIN
-校对：枳实
-剪辑/字幕：文驰
-编辑：Mttfly
+**撰稿：挺郭吃榴莲**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-18-134610.jpg)
+就在昨晚的文贵大直播中，我们第一次看到1977年的七哥带着八弟和侄女，穿着本不合身的旧冬衣，出现在这张黑白照片上。
 
-根据澳大利亚“7新闻”频道报道，澳联邦政府正在为任何在注射COVID后，出现严重疾病的人提供赔偿。这意味着，澳政府正式承认疫苗具有严重副作用。在报道中，一位名为马蒂·约翰的青年在接种辉瑞疫苗两天后就出现了心包炎等症状，因此停工十周。这不仅仅是个例，据估计，澳洲有79,000人遭受过疫苗的不良反应。虽然澳政府准备赔偿，但是条件非常苛刻，部分民众只能独自承受费用。
+听着八弟最爱的《相思小蚂蚁》，时间仿佛把我们带回到了1977年赵家沟的村头，带回了七哥当年生活的地方。这张老旧的照片，经历太多波折，最后来到了七哥的手上，里面有年纪约7，8岁的七哥，更重要的是这是唯一一张照片记录了去世多年的八弟小时候的影像。
 
-视频链接：[REPORT: 79,000 People! – The government now ADMITS to severe vaccine side effects. – Offering some victims over $600,000 in cash and compensation. – Australia.](https://twitter.com/newgranada1979/status/1476926692505505795?s=21)
+1989年那天，再过一个星期就是八弟18岁生日了，谁曾想，八弟就在那天永远离开了，为了救七嫂，救郭强郭美，八弟身中两枪，错过了最佳治疗时期，英俊高大帅气的八弟，生命永远定格在了那一天。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这就是天意，多年以后，八弟幼年的照片重见天日。七哥在2022年1月17日的大直播中展示出了这张照片，极少在直播中落泪的七哥，对着八弟的照片，不停地抹泪。
+
+七哥，不哭，我们始终相信，八弟没有离开，那些被枉死的八九六四的人没有离开，那些被冤死的香港的孩子们没有离开，天佑着你！天佑着新中国联邦！我们的灭共事业必胜！今夜，我们都是你的八弟！
 
  
 

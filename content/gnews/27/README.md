@@ -2,52 +2,23 @@
 ---
 
 
-## 中共多地要求低风险返乡民众集中隔离自费食宿
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1873830/)
+## 中共正自导自演万邦来朝的冬奥盛会
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873844/)
 
-作者：纽约香草山教育部 – Noemi
+采编/编辑撰稿： 文莱                    校对编辑，发稿：硫酸羟氯喹64
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-3-edited.jpg)图片来源：TNH
 
 
+据【布莱特巴特新闻】1月17日报道，中共国日前宣称，由于其自家的瘟疫肆虐，冬奥会的门票将不会向公众出售。但将邀请那些严格遵守当局管制的国内小团体观众入场观赛。
 
-1月17日，“开封一刀切”的微博话题被顶上墙内热搜。
+报道称，以上新的入场限制措施是1月15日在北京确认首例“奥密克戎”病毒感染后发布的。据悉，中共冬奥委员会早就建立了严格的监控系统，以跟踪奥运会所有运动员及参与者，无论是在赛事中还是在生活空间里的一切活动。
 
-据了解，河南省开封市17日突然宣布了一条最新的防疫政策，要求来自郑州低风险地区的返乡人员也需进行14天的集中隔离并自费食宿。这条“一刀切”式的政策当即引起了大量需要双城生活的民众的强烈抗议。
+世人皆知，中共政权一直跻身于世界人权侵犯者之首，并疯狂利用其奴隶劳动力为西方众多知名企业生产运动商品和服装。但这些因此获利的西方政府在炫耀自身高尚的价值观同时，却暗藏在其虚假的外加抵制背后，并允许其运动员参加中共冬奥会，以协助习近平实现该独裁党魁万邦来朝的黄粱美梦。
 
-但是，开封市政府的这一“霸王条例”并非个案。近期，中共国内的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都纷纷出台政策，要求来自低风险地区的返乡人群必须进行集中隔离，并为自己隔离期间产生的一切费用买单。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-8.jpg)
-据悉，当前中共国的返乡人群主要为大学生群体。目前，已有多名被隔离的大学生对14天隔离期所产生的高昂隔离费用表示担忧。有学生称，此条政策属实是当地政府在“割韭菜”，但大家对此却无能为力。
+* * *
 
-参考信息：
-1. [泪奔！刚回老家就被集中隔离](https://www.toutiao.com/a7053334957510427140/?channel=&amp;source=search_tab&amp;wid=1642483921969)
-2. [#集中隔离 #一刀切 春运来临，京、津民众返乡陷两难。多地政府对京、津等地区低风险返乡人群直接施行一刀切政策，要求所有归乡人员均要集中隔离14+7天并自费食宿，此举疑为地方财政借防疫敛财的又一霸王条款](https://www.gettr.com/post/possbb4f46)
-3.[在郑州工作，老家开封，距离很近，如果要回开封过年，因为行程码带星，即使是绿码有核酸证明，仍然要被集中隔离14天，费用自理！](https://www.toutiao.com/w/a1722187358499907/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+原文链接：https://www.breitbart.com/sports/2022/01/17/china-tickets-for-genocide-games-will-not-be-sold-to-general-public-due-to-covid/
 
  
 

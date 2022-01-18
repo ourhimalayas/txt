@@ -2,10 +2,10 @@
 ---
 
 
-## 鹤岗市财政破产, 中共经济第一张多米诺骨牌倒下
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1873829/)
+## 为缓解经济下行压力 中共央行宣布降息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1873832/)
 
-作者：银河系农场—骄子
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,22 +13,21 @@
 
 
 
-2021年12月底，黑龙江鹤岗市就取消公开招聘政府基层工作人员的计划发出了一则通知。并且，称此计划的取消是该市财力状况发生重大变化及实施“财政重整”。
+1月17日，为缓解经济下行压力，中共央行对中期贷款进行了自2020年4月以来的首次降息。
 
-“财政重整”，意思就是一个地方的财政收入太低，已无力负担债务。换一种说法，就是要破产了。
+中国人民银行表示，将把价值7000亿元人民币的一年期中期贷款利率从之前的2.95%降至2.85%，降低10个基点，公开市场逆回购操作的利率也下降10个基点，降至2.1%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-4.jpg)
+自中共病毒爆发以来，中共国的经济发展明显放缓，房地产开发商财务状况的恶化和中共病毒变体的迅速传播更给经济前景蒙上了阴影。
 
-据悉，鹤岗是以生产煤炭为主的资源型城市。2013年，人均GDP接近3万元，在东北地区属于富裕城市。然而，当资源耗尽以及没有土地财政、税收、国企利润收入的三无状态下，该市居住人口不断流出，房价也一路大跌。从2015年3000~4000元/平方米，下跌到如今每平方米不足1000元。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-9.jpg)
-同样，黑龙江省债务状况也一样严重。2021年，全省年财政收入和开支分别为1152.5亿和5449.4亿人民币，由此，黑龙江的债务问题就是放大版的鹤岗。从中共国2021年上半年的数据看，各省、直辖市只有上海一家财政收支略有盈余，其他三十个省市全是亏空的。
-
-相关信息显示，中共国的官场腐败、公务员队伍规模、维稳费用皆为世界第一。而对于这几个第一，有分析人士认为，中共统治奇高的治理成本以及畸形的统治模式，注定是无法维系的。鹤岗市财政破产，表明了中共第一张经济多米诺骨牌已经倒下。
+市场分析师表示，此次降息的规模和时机都超出预期，他们相信可能会有进一步的货币刺激措施随之而来。
 
 参考信息：
-[New Normal: Former Malaysian Professional Football Player Dies of Heart Attack 5 Days After Receiving COVID-19 Booster Shot](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
+1. [China cuts rates on policy loans, analysts point to more easing ahead](https://www.channelnewsasia.com/business/china-cuts-rates-policy-loans-analysts-point-more-easing-ahead-2439976)
+2.[“降息”了！央行下调MLF利率10个基点，传递什么信号丨火线解读](https://baijiahao.baidu.com/s?id=1722172824988592014&amp;wfr=spider&amp;for=pc)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编/编辑：DM
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

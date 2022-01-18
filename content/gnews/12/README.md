@@ -2,19 +2,26 @@
 ---
 
 
-## 河南1月17日新增102例本土确诊病例
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1874054/)
+## 澳政府承认疫苗具有严重副作用
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1874096/)
 
-撰稿：追着曙光跑
+##### 翻译：FULIN
+校对：枳实
+剪辑/字幕：文驰
+编辑：Mttfly
 
-据中共国新浪新闻1月18日的报道，1月17日0—24时，河南全省新增本土确诊病例102例。其中，郑州市4例，安阳市94例，许昌市4例；无新增无症状感染者和疑似病例。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-18-at-14.39.27.jpeg)图片来源：网络
-另外，安阳市公布34名确诊病例轨迹，30人为汤阴育才学校学生。这些确诊患者均已闭环转运至定点医院。
+根据澳大利亚“7新闻”频道报道，澳联邦政府正在为任何在注射COVID后，出现严重疾病的人提供赔偿。这意味着，澳政府正式承认疫苗具有严重副作用。在报道中，一位名为马蒂·约翰的青年在接种辉瑞疫苗两天后就出现了心包炎等症状，因此停工十周。这不仅仅是个例，据估计，澳洲有79,000人遭受过疫苗的不良反应。虽然澳政府准备赔偿，但是条件非常苛刻，部分民众只能独自承受费用。
 
-据官方最新统计显示，自2021年年底本轮疫情开始，截至2022年1月16日24时，河南本轮疫情累计报告本土确诊病例已突破800例。加上昨天的102例，到1月17日24时，河南本轮疫情本土确诊病例已突破900例。
+视频链接：[REPORT: 79,000 People! – The government now ADMITS to severe vaccine side effects. – Offering some victims over $600,000 in cash and compensation. – Australia.](https://twitter.com/newgranada1979/status/1476926692505505795?s=21)
 
-信息来源：[“两毒并发”已致河南确诊病例超800例 多名专家谈如何“双线作战”](https://news.sina.cn/2022-01-17/detail-ikyakumy0931044.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
-[河南1月17日新增102例本土确诊病例 其中安阳市94例](https://news.sina.cn/gn/2022-01-18/detail-ikyamrmz5829483.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
