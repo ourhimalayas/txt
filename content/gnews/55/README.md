@@ -2,36 +2,37 @@
 ---
 
 
-## 为应对通胀 美联储即将加息
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1870464/)
+## 01/17每日播报｜“奥米炕”现身北京 中共出台新政策严控进京人员
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1870824/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月16日，亿万富翁比尔·阿克曼在社交媒体发文称，美联储正解决通胀问题，会在 3 月份将其关键利率提高 50 个基点，以恢复其信誉。
+**By:[秘翻新闻](https://gtv.org/video/id=61e52f30a0fd8e5c735ac593)**
 
-阿克曼接着提到：“50 个基点的初步举措将产生降低通胀预期的反射效应，这将缓和未来采取更激进的经济上痛苦措施的需求。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-48.jpg)
-据悉，几个星期前，面对国会和公众的压力，为了应对自 1980 年代以来的最高通胀，1月份已有多位官员齐声提出 3 月份加息，而且今年可能需要加息四次甚至五次。
+**[2022-01-17](https://gtv.org/broadcast/watch/61e52f30a0fd8e5c735ac594)**
 
-早在去年12 月，美国央行行长就预计今年将加息 3 次，自 2000 年 5 月以来，美联储单次加息从未超过 25 个基点。 阿克曼表示最初的50个基点加息将震撼市场，并表明美联储应对通胀的决心。
+《路透社》北京1月16日报道，中共官方媒体周日宣布，自2022年1月22日零时起至3月底，抵达北京的旅客必须在72小时内进行中共病毒检测。此前，北京已经要求入境旅客在离境48小时内进行病毒检测，并在该市的健康跟踪应用程序上使用绿色代码。
 
-参考链接：[为应对通胀 美联储即将加息](https://www.bloomberg.com/news/articles/2022-01-15/fed-could-restore-credibility-with-50-basis-point-hike-ackman)
+上周六，北京报告了首例奥米炕病毒感染病例，而北京正准备下个月举办的冬奥会。据称，该患者在过去14天里曾经去过多家商场和餐馆。此人自今年年初以来就没有离开过这座城市。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+据中共国卫健委发布的数据显示，1月15日全国新增确诊中共病毒病例为119例，新增本地感染病例分别在天津、河南、北京、广东和陕西。
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+然而，各个城市实施的严酷封锁措施，也进一步削弱了正在放缓的经济增长。1月5日，凯投宏观(Capital Economics)首席亚洲经济学家马克•威廉姆斯(Mark Williams)在一份报告中表示，高传染性“奥米炕”的出现加上更频繁的防控措施，会造成更多的经济损失。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+报道指出，北京市的一些宗教场所已经对游客关闭。位于北京市中心的藏传佛教寺院雍和宫周日表示，由于中共病毒疫情和防控措施，该寺庙将关闭一段时间，具体开放时间不详。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+一些北京务工人员担心因为“奥米炕”事件的封城措施，会在农历新年假期中被困在城市里而提前回家。
 
+周日，在北京友谊医院外，人们在寒风中排队几个小时，等待中共病毒检测。
+
+截至目前，中共国没有透露总共发现了多少“奥米炕”病毒感染病例。
+
+（ 秘翻主编  冰糖葫芦喵编译报道 ）
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

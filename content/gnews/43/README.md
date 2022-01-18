@@ -2,24 +2,38 @@
 ---
 
 
-## 信托及控股公司的门槛和复杂度
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1872262/)
+## 已打四针的以色列财政部长确认感染中共病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1872400/)
 
-#### 加拿大温哥华扬帆农场 蓝枫法律
+作者：纽约香草山信息部 – 诺雅
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月15日，63岁的以色列财政部长阿维格多·利伯曼宣布，其中共病毒检测结果呈阳性，将进行自我隔离，居家办公。就在确诊五天前，利伯曼发布了他接种第四针中共病毒疫苗的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-49.jpg)
+这是继该国外交部长亚伊尔·拉皮德1月10日确诊后，一周内第二例高官确认感染中共病毒。
 
-我们在谈论信托、遗产传承或者控股公司的时候，尤其是信托下面，在避税天堂这些地方建立的控股公司或者离岸公司，应该已经到达了财务金融管理的最高层，它的复杂度也非常之高，需要用到各方面的专业知识也很多，同时伴随的花费也是比较高的，也就是说入门门槛很高，而我们平时所获得的知识一般规模都比较小，大部分都是在营运公司的级别，这就是为什么前几期我们尽可能的跟大家介绍营运公司和控股公司之间的差别。
+以色列在2021年12月底开始对免疫力低下的人进行第二轮强化接种，并在今年1月将接种范围扩大到60岁以上的老人和医务人员。该国卫生部至今仍未公布第四针的效果数据。
 
-营运公司有许许多多的特色，在营运公司这一级里面，做海外公司相对的比较多，但是达到控股公司的规模比较大，通常这些信息很难在公众的媒体里看到，一般都是关着门，律师的团队会直接和他们的客户进行直接沟通。所以信息一般在外面很难看到，如果有也仅知道大概是怎么回事，但里面怎么运行运作很少能够看到。
+针对该国的防疫政策，特拉维夫大学微生物学和免疫学系主任、以色列著名免疫学家埃胡德·齐姆龙教授于上周发表公开信，强烈要求卫生部承认失败。信中，齐姆龙指控政府无视关于感染和自然免疫的既定流行病学科学，强推疫苗，并与辉瑞公司勾结，掩盖疫苗的副作用，损害了过敏的生计、经济、人权、精神健康和身体健康。
 
-所以请大家理解在做的时候，不是说注册一个账号、买一个股票的事情，尤其是进入私募的复杂度，这里所指的私募就是在非公共交易市场上的投资，包括了几个人合起来做的，也就是私人之间的投资，我不说这个募资，这里面是有差别的，在KYC里面有讲到过。所以这里的几个区域性我们要把他放开，我们大部分所接触的是通过养老基金、互惠基金，这里面所做的事情是单一买卖的股票。
+参考链接：
+1. [已打四针的以色列财政部长确认感染中共病毒](https://news.yahoo.com/israeli-finance-minister-tests-positive-162509201.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly9kdWNrZHVja2dvLmNvbS8&amp;guce_referrer_sig=AQAAAN0idAKga3xdrf9kG_aMKHnkslhrXDI5MJ0IQTKkE9nNgfQVqlb-dm3snAILd8Q9peSDOW2-E3nfYNdvHhJpL2r-YdoPCZUZOECOBKV3D10xj-7kQh5UGad7nQwUMSPiKd5jR-kAD53u7WC6U_QjYnMzvjQ2FB5jJYiGfV7P31fV)
+2. [已打四针的以色列财政部长确认感染中共病毒](https://twitter.com/AvigdorLiberman/status/1480499112357376002?s=20)
+3. [已打四针的以色列财政部长确认感染中共病毒](https://truthbasedmedia.com/2022/01/13/time-to-admit-failure-leading-immunologist-tells-israels-ministry-of-health/?utm_source=wnd&amp;utm_medium=wnd&amp;utm_campaign=syndicated)
 
-这些理财的理念已经在我们脑子里根深蒂固，我们把这些想法用到现在的G系列里面的投资，许多地方是不适合的，这里面是私人的，不是公共的，是外面公开的投资。不像股票在外面随时就可以买，那里面就有很多要求去做，区域、税务居民、资产类、资产的多少都会受到监管，不同地方都有。在白皮书的介绍里面也部分谈到为什么会有这些限制等等，这些都是今天我们要谈这些话的前提。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-直播链接：
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-[第三十八期 一 金融税务专题](https://gtv.org/video/id=61da2838af3a68700026ee47)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-编辑/发文：蓝枫法律栏目
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

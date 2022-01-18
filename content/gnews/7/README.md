@@ -2,27 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月17日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1873524/)
+## 1/17/2022 文贵直播：太平联盟案就是文贵与中共的生死之战
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1873732/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0117text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.17  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e61895533c672fca7e6d61)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-13.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

@@ -2,22 +2,25 @@
 ---
 
 
-## 汇钱到喜联储特别难怎么解决
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1873541/)
+## 特鲁多对卡车司机的疫苗政策破坏加拿大经济
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1873758/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/汇钱难_01.jpg)
-首先要开喜联储的账号，然后把钱汇进来，这事情简单的不能再简单。这事情做不到，那只能说太笨了，咱们这个联盟再强大，你连来都来不了，我得搬椅子请你去，请的时候还得选择方式，那是做不到的。你就给一个最简单答案：为什么别人能进来，你进不来。 就昨天和前天韩国就有几大笔的钱进来，包括韩国的最大的几个企业。你不要忘了我们的机构投资者，头2天，就是说中东的某个机构, 买币的钱投的钱，人都已在市场交易卖完了，钱都拿走了。结果他原来投资的钱，给退回去了。为什么呢，说因为他新的结构不合理，一个几千万美元啊，啪，给退回去了啊。现在他们重新汇，他不会说你存在问题，他最终自己能解决。
+采编/编译撰稿：  薇文       校对编辑，发稿：硫酸羟氯喹64
 
-*发布：开智则立*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-8-edited.png)图片来源：THN
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+加拿大著名政论家斯潘塞近日发表文章，抨击特鲁多政府当前针对美加货运卡车司机的疫苗强制接种政策与以前对付医疗系统雇员的手段如出一辙，即再次通过削弱和破坏重要行业系统的稳定性，来加深民众的恐惧和危机感，并利用危机攫取更多权力从而破坏自由。
+
+文章写道：当局的政策将使已被持续封城和过度印钞所破坏的供应链更加脆弱。物资的短缺会进一步推高物价并引起公众愤怒，并致使数千万加拿大人的利益收到损害。而在局势的恶化过程中，政府最终将借机剥夺所有人的权利和自由并集中在统治者手中。
+
+不仅如此，由于特鲁多还要找到替罪羊来推卸其一手造成的灾难，因此政府将疫情归咎于未接种疫苗的卡车司机和其他少数未接种人群，以此转移公众的不满和愤怒。
+
+作者最后警告道：如果公众不对越来越极权的政府施加压力并做出反抗以迫使其停止独裁，那么加拿大将沦为没有权利和自由的共产主义专政国家。
+
+* * *
+
+原文链接：[https://spencerfernando.com/2022/01/15/sabotage-with-vaccine-mandates-for-truckers-trudeau-seems-intent-on-deliberately-damaging-canadas-economy/](https://spencerfernando.com/2022/01/15/sabotage-with-vaccine-mandates-for-truckers-trudeau-seems-intent-on-deliberately-damaging-canadas-economy/)
 
  
 
