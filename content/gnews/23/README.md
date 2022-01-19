@@ -2,30 +2,34 @@
 ---
 
 
-## 关于张高丽本人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1878756/)
+## 有声|美飞弹核潜舰公开访问关岛展示威吓力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878774/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
+配音：香草山教育部 – 百香果
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月15日，美国海军核动力弹道飞弹潜舰内华达号，驶入关岛海军基地。这是自2016年以来弹道飞弹潜舰首度访问关岛，也是此舰从1980年代至今的第2次公开访问。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/关于张高丽本人-.jpeg)
+核动力潜舰平日很少公开现踪，只要公然出现，必然有其政治目的。近日北韩刚试射过导弹，台海也在中共威胁下随时可能发生战事。美国导弹核潜舰在此时此地现身，显然在展示美国在印太区域的威吓力量。
 
+原文链接：[美飞弹核潜舰公开访问关岛展示威吓力](https://gnews.org/zh-hans/1876001/)
 
-我觉的这个张高丽这件事情，他的个人啊，还有这个整个他的家族啊，最终是一定会被审判的。而且张高丽玩处女啊。
+音频处理/发稿：Daxia
 
-我告诉你一个战友给我发了信息发出来。当年他的女儿13岁的时候，还差几天。13岁啊，就是认识张高丽，这个人是广东的一个朋友，广东惠州的说，当年他就通过了张高丽的秘书，开饭店的秘书啊，贫苦人家直接认识了张高利，就13岁，女儿进了他办公室一个小时，女儿出来告诉她妈，说他把我给强奸了，她妈妈都不相信，后来她妈妈就觉得非常的不可思议， 在车上让女儿说你有什么证据，她说你看我现在还有好多血。她妈回去以后商量着，那就要找他要说法啊。最后是他秘书出面协调，给那家里边批了一大块地搞房地产，家里就闭嘴了，给我发来了很多信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-这就是张高丽玩儿这个，大家都在广东都知道的，张高丽要处女。彭帅这个事情，彭帅是一定要被消失的，你一定会什么精神病啦自杀啦，出车祸啦是吧？跳墙死啦。躲猫猫死了，一定要被死。然后张高丽就(会)悄无声息那一天，啊，当党需要的时候也会让他消失。就这结局。
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

@@ -2,31 +2,27 @@
 ---
 
 
-## 【中日财经爆】中共少子化时代到来
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1878320/)
+## GTV新闻访谈简报|2022年1月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1878054/)
 
-撰稿：东京樱花团/华夏伊人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-60.jpg)[图片来源](https://hk.epochtimes.com/news/2021-04-19/42775261)
-1月17日，中共国家统计局发布了2021年度人口数据：全年出生人口1062万人，死亡人口1014万人，全年人口净增长48万人，人口自然增长率为0.34%。就出生人口数和净增数看，均创下1962年以来的开始新低，引发社会热议。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0118text-SC.png)
+校对：Stay文苑
 
-人口净增长48万人，自然增长率为0.34%，意味着人口增长放缓，又向绝对的零人口增长迈进了一步。从世界各国人口发展历程看，人口少子化的确是经济社会发展到某个阶段后的必然现象。但是，不同的国家，导致人口增长率下跌的原因各有不同。
+编辑：Stay文苑
 
-中共国的年龄构成变化特点是未来人口中的年轻人口比重越来越小，老年人口的比重越来越大。过度老年化的人口是无法支撑起一个正常运转的社会，经济的竞争很大程度上取决于人口的竞争，人口变动对经济社会发展产生重要影响。
+发稿：Stay文苑
 
-自2021年5月31日提出实施全面三孩政策以来，各种所谓的鼓励生育政策频出：延长产假、生育假；允许夫妻共同享受育儿假；三胎补贴；给予三胎家庭买房优惠或现金补贴等等。用鼓励政策去提振适育人群的生育意愿，但是就业和房价两座大山，才是构成了年轻人不愿不敢结婚生娃的主要原因。高失业率之下，年轻人的收入已经无法自给自足。高企的房价更是让年轻人望而却步。
+视频参看：[1.18  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e7692d533c672fca7f104b)
 
-正如哲学家康德所言“人是目的，而不是工具”。如果鼓励生育的政策目的只是把人当成生育的工具，而非从根本上服务民众的发展需求，忽略了深层次的需求和忧虑，那催生的措施注定要失败的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-13.jpg)
 
-一旦进入“低生育率陷阱”，想爬出来是千难万难的，如果你连爬出来的办法都想不到，那只能等待“人口消亡”了。先眼前后将来的简单粗暴鼓励生育政策，对于低生育率来说只能是饮鸩止渴，让年轻人自我意识到生得起，愿意生才是根本。
-
-消息来源：
-
-[国家统计局：2021年全国人口净增加48万人](http://finance.people.com.cn/n1/2022/0117/c1004-32333012.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

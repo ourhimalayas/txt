@@ -2,45 +2,154 @@
 ---
 
 
-## 加拿大驳斥奥密克戎通过“海外邮件”抵达中国的指控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1878454/)
+## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
 
-整理报道：文扬
-编辑：文泓
+**Steve Bannon:
+史蒂夫班农:**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/FQC164R7TQAX4GWSQ.png)图片来源：CTV News Toronto
+I just want to make sure we go through it one more time
+我只是想再一次明确实一下
 
+The numbers a day you’ve had CPI now PPI
+你每天的数字是消费者物价指数，现在是生产者物价指数
 
-当地时间1月19日，针对中共国报告，北京首例奥密克戎病例可能是由一个人与来自多伦多的受污染邮件互动引起的，加拿大卫生官员对北京方面的说法表示怀疑，称这是“极不可能的”。加拿大专家认为，奥密克戎变种病毒菌株几乎无法在从北美到中国的邮件中幸存下来。
+Come by and tell people this is…
+过来告诉人们这是…
 
-周一，加拿大卫生部长让·伊夫·杜克洛斯在一个新闻发布会上说：“我认为这是一个非同寻常的观点。”他迅速回应了中国卫生专家早些时候提出的一项指控。
+I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
+鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
 
-北京疾病控制和预防中心表示，“不能排除”包含一批文件的快递邮件成为该案件的病源，该案件中有一人被诊断为Omicron感染——这是北京的首例此类病例。
+And this is dangerous
+这是很危险的
 
-据中国媒体报道，该人于周六确诊，他收到了来自加拿大的邮件，随后发现其外包装和内包装表面以及文件本身都存在奥密克戎变种病毒菌株。中共官员说，这种情况下的菌株也与2021年12月在北美和新加坡发现的菌株“相似”。
+No. 1 our system for these rate increases is talk trying to choke this down
+now our system is set up for negative interest rates
+第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
 
-这一消息在加拿大遭到质疑。卫生部首席医疗顾问苏普里亚·夏尔马博士将这种假设“海外邮件”带病毒的描述称为“极不可能”。
+People don’t understand that the trauma that is going to happen in our financial system
+人们不明白我们金融体系将要发生的创伤
 
-她告诉加拿大媒体，“你必须在一个（存活）物体上发现病毒，它必须在运输过程中存活下来”，她补充说：“这极不可能传播新冠病毒。”
+That’s going to roll into your personal life, okay?
+将会影响每个人生活，知道吗？
 
-早些时候，中国病毒学家杨占秋说，该病毒即使在室温下也能存活数天，在较低温度下能存活更长时间。不过，加拿大卫生官员似乎并没有被中国专家的论点所说服。
+No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
+第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
 
-加拿大公共卫生署在一份声明中说：“虽然邮件可能受到污染，但在处理纸质邮件或纸板包裹（包括国际邮件）时感染新冠病毒的风险极低。”
+Steve Cortes:
+史蒂夫科尔特斯:
+You’re exactly right Steve
+你是非常对的，史蒂夫
 
-众多加拿大专家争相反驳中共国的说法。很多人还迅速假设，中共国声明背后的驱动因素是政治考量。多伦多大学传染病流行病学专家科林·弗内斯博士说：“中加关系不佳，对于中共病毒感染全世界的指责，它非常热衷于用“海外邮件”输入病毒这种说法来反驳。”
+Look, if we look at history we see that a lot of political upheaval
+看，如果我们回顾历史，我们会看到很多政治动荡
 
-原文链接： [Canada responds to claim Covid arrived in China via ‘overseas deliveries’ — RT World News](https://www.rt.com/news/546415-canada-china-omicron-covid-mail/)
+upheaval that we could say the least evil actually results from inflation
+我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
 
-发布：tianzhihuan
+If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
+如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+If we look at Germany pre-World War II
+如果我们看看二战前的德国
+
+We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
+我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
+
+And in a country that is already as polarized as the United States is
+而在一个已经像美国这样两极分化的国家
+
+This kind of inflation is not just bad economics
+这种通货膨胀不仅仅是糟糕的经济学
+
+It’s actually societally dangerous for our country
+它实际上是对我们国家的社会危险
+
+And that’s why we need to be cleared-eyed about what it is and about policy solution
+而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
+
+Because Steve, we can’t just curse the darkness
+因为，史蒂夫，我们不能只是诅咒黑暗
+
+We have to do that, yes
+是的，我们必须这样做
+
+But as lamentable as this current economic quagmire is
+但与当前的经济泥潭一样可悲的是
+
+This is stagflationary embroil that we face right now in America
+我们美国现在面临的滞胀困境
+
+It does also, Steve, present political opportunity
+史蒂夫，它也确实提供了政治机会
+
+Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
+巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
+
+and to transform the republican party, not of the parties of the chased right
+并改变共和党，而不是被追逐的权利的政党
+
+But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
+反而成为一个真正多民族和多种族的美国工人阶级政党
+
+And the polling is starting to show us that political opening is there
+民意调查开始向我们表明政治开放是存在的
+
+If we have the guts and the gumption to cease it of course the right policies mix as well
+如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
+
+For example, as I mentioned yesterday in the show
+例如，正如我昨天在节目中提到的
+
+I think the most powerful way right now to win both politically as well as get the economy back on track
+我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
+
+get the inflation in control again
+再次控制通胀
+
+and get wages rising is inflation motive
+并提高工资就是通胀动机
+
+We need to absolutely stop illegal migration in this country
+在这个国家，我们需要绝对阻止非法移民
+
+and I believe we need a pause in even legal migration to this country
+并且我相信，就算是合法移民也需要适当暂停
+
+A pause in H-1B and other similar would work which is why let the American people wages starts to rise
+H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
+
+So that we see real wages take off again the way they did under Donald Trump
+这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
+
+instead of the way they are crashing right now under Joe Biden
+而不是现在在乔-拜登领导下崩溃的方式
+
+So, it’s calamity but there’s always opportunity as well in calamity
+因此，这是灾难，但灾难中也总是有机会的
+
+* * *
+
+Date: 01/13/2022
+原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
+Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
+原视频日期：2022/01/13
+原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
+任务编号：KE353（3494）
+视频时间段 : 0:00-02:52
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

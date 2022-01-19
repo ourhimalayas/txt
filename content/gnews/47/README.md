@@ -2,35 +2,37 @@
 ---
 
 
-## 英国政府的疫情政策在逐渐放松
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876513/)
+## 芬兰允许伊维菌素用于治疗中共病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
 
-作者：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据英国媒体当地时间1月16日报道，英国政府正在拟定计划，当民众感染中共病毒并痊愈后，不必再接受法律的约束进行自我隔离。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-7.jpg)
-报道指出，随着英国确诊病例的持续下降，英国首相约翰逊希望永久撤销有关中共病毒的紧急法律。虽然官方的指导原则仍将持续，但违反者不会再遭到罚款或者法律处罚。英国卫生部长贾维德上周宣布，为缓解中共病毒奥密克戎变异株对医院和学校造成的压力，确诊者的最低隔离期从7天缩减到5天。如果在隔离的第五天或第六天，取得核酸阴性结果，就可以结束隔离。
+#### 撰稿：日本东京方舟农场 JIHO
 
-据悉，英国政府废除自我隔离法将在未来几周内制定，预计最早在春季公布。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
 
-去年12月8日，由于奥密克戎的肆虐，英国启动了包括强制戴口罩、居家办公等在内的所谓“B”计划，致使经济活动减少，很多行业因员工自我隔离缺少人手。如今，随着确诊病例数量的下降，约翰逊也在考虑取消这项计划。
+1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
 
-参考链接：[英国政府的疫情政策在逐渐放松](https://cn.rti.org.tw/news/view/id/2122299)
+日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
 
-总编：Zion文恩
-编辑：飞虹
-校对/发稿：Hetangyuese
+不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*参考链接：*
+
+1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
+2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
+3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
+
+
+* * *
+
+*素材采编：JIHO*
+
+*编辑： 文顺*
+
+*发布：miumiu*
 
  
 
