@@ -2,34 +2,53 @@
 ---
 
 
-## 以色列称第二剂加强针无法阻挡奥密克戎
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880366/)
+## 文贵天成系列——文贵先生谈“中概股”（九）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1880469/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月17日，据以色列的一项最新研究表明，民众即使接种过第四剂中共病毒疫苗加强针，其仍有可能感染奥密克戎变种病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/以色列.jpg)
-据悉，以色列沙巴医院于2021年12月跟踪记录了该院270多名医务人员的第二剂加强针，即第四针中共病毒疫苗的接种工作。而该院领导这项研究的感染病科主任约哈伊博士在记录中发现，尽管这些医护人员在接种疫苗后的抗体水平略有提高，但第四针疫苗只对中共病毒提供了部分防御。为此，约哈伊博士认为，这些疫苗的预防效果并不好，其对奥密克戎变种的防护作用非常小。
+整理：小儿
+编辑：Kelly
 
-数据显示，超过80%的以色列成年居民已经完全接种过中共病毒疫苗，其中，超过一半的人还额外接种了疫苗加强针，但以色列近期仍然出现了创纪录的中共病毒感染率。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/IJNLWVJACIYK2QPV@1-1536x864-1.png)图片来源：雅典娜设计组（614）
 
-相关报道则指出，沙巴医院的研究结果让当地民众对以色列政府强推的加强针接种工作产生了质疑。但几个小时之后，该医院在以色列卫生部的强压下再一次发表声明表示，“政府可以继续开展疫苗接种活动，尽管这些疫苗不能有效防止民众感染变种病毒。”
 
-参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+**郭文贵先生2021年8月1日直播（续）**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+讲点政治，这就是典型的查理，是吧？富人找他来了说：“害怕啊，大街上都闹事了怎么办？找谁呀？找那些闹事的人去，找拿破仑去，把他灭了我不就是帮你们了吗？”一模一样的思维。他觉得（投）中概股这些人，你们都赔钱了吧？你们这帮孙子搞定拜登总统、搞定国会山、来求我，你们的钱都可以拿回去。你看，厉害吧！
 
-总编: Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+这次习完全是搞了一个经济运动，叫经济袭击华尔街。中概股的下市伤害的不仅仅是中国企业家，最大的伤害是美国的经济和世界的经济。滴滴事件、腾讯事件、恒大事件、盛京银行、北京银行、招商银行还有信托资产这些包括平安、卢志强、还有张宏伟，这绝对是无法恢复性的对世界金融经济的打击。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+刚才已经说了，（共产党）把中概股和投资中国的这些美国企业全给它依法没收，全干灭，对美国金融市场的打击是一场911。疫苗我已经说过了，是共产党控制大数据AI中心，控制全人类的一场计划，包括辉瑞、包括其它所有疫苗，去查去吧。而且是共产党的官三代，在海外出生的、在美国出生的、在欧洲出生的私生生子女直接执行，没有人挡得住，甚至美国连知情都不情，他们不会懂的。
+
+**郭文贵先生2021年8月3日直播**
+
+这些人加一起能有海航的一个飞机翅膀大吗？我们都能把海航给灭了、能把王岐山给灭了、能把孙力军、孟建柱给灭了、我们能把马云、吴征给灭了、我们能把郭台铭这孙子给搞掉，我们能让共产党在全世界人人喊打、整个中概股给它扫灭，连整个西方国家都说：“所有的灭共的这个火是郭文贵和爆料革命烧起来的。”
+
+那么拿下这些以后，你起到啥作用了——共产党？从这一点上看这个国家彻底完了，这个政府彻底完了。就是玩下三滥、玩low招，而且共产党每次出手，共产党对付美国人、对付中概股和对付香港人一样，每次都是自杀式的行为。所以说现在北戴河的某个退休的上将跟几个上海帮的人吃饭，他说：“你们看看过去这些年，有两个方面，就知道我们未来会走向何方了。 ”
+
+**郭文贵先生2021年8月8日盖特**
+
+今年国内的经济危机，房地产…兄弟姐妹们，七哥说了四年了，我从2017年，那时还没有路大脑袋、蛇妖闫这帮孙子呢，中概股，他都不知道什么是中概股，中概股一定全面消失，中国的粮食将极大的短缺，混不到人吃人，可能人吃树皮，王岐山说的人吃草。
+
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文·贵天成——文贵先生谈“中概股”（一）](https://gnews.org/zh-hans/1869898/)
+[文·贵天成——文贵先生谈“中概股”（二）](https://gnews.org/zh-hans/1870078/)
+[文·贵天成——文贵先生谈“中概股”（三）](https://gnews.org/zh-hans/1870416/)
+[文·贵天成——文贵先生谈“中概股”（四）](https://gnews.org/zh-hans/1873949/)
+[文·贵天成——文贵先生谈“中概股”（五）](https://gnews.org/zh-hans/1874184/)
+[文•贵天成——文贵先生谈“中概股“（六）](https://gnews.org/zh-hans/1874766/)
+[文•贵天成——文贵先生谈“中概股“（七）](https://gnews.org/zh-hans/1877890/)
+[文•贵天成——文贵先生谈“中概股“（八）](https://gnews.org/zh-hans/1878171/)
+
+**发布：**tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

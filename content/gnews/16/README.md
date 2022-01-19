@@ -2,34 +2,36 @@
 ---
 
 
-## MV版Hcoin To the Moon上线42天第28次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1880385/)
+## 美议员推出“争取彭帅自由法案” 制裁国际奥委会高层
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1880470/)
 
-1/19/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线42天第28次位列澳门iTunes热门音乐视频榜榜首，第35次位列前三名
+#### 撰稿：日本东京方舟农场 北极
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/22AE775F-D0BF-4CFC-9D5E-AE15ABE40D0A.jpeg)美国国会众议员迈克·加拉格尔在一场听证会上质询证人。（图片来自美国之音）
+
+备受争议的中共冬奥会即将开幕之际，美国国会议员加拉格尔(Michael Gallagher, R-WI)在1月18宣布推出“争取彭帅自由法案”，要求对国际奥委会（IOC）主席托马斯·巴赫（Thomas Bach）和奥委会其他高层人员实施制裁。
+
+来自威斯康辛州的共和党籍联邦众议员加拉格尔星期二推出此法案，该法案其核心内容是依据《全球马格尼茨基人权问责法》（Global Magnitsky Act）对国际奥委会主要官员实施制裁。
+
+美国国会为了纪念俄罗斯维权律师马格尼茨基，于2012年通过马格尼茨基法案（Magnitsky Act），授权美国政府制裁那些违反人权或腐败的俄罗斯官员。2016年，美国国会又通过“全球马格尼茨基人权问责法”，将制裁对象由俄罗斯扩展至全世界侵犯人权及腐败的政府官员。
+
+加拉格尔议员在解释推出“争取彭帅自由法案”的理由时，指责国际奥委会去年与中共当局沆瀣一气，帮助中共化解彭帅失踪事件带来的公关危机，为北京冬奥会顺利举行排除障碍。
+
+中（共）国网球明星彭帅去年11月2日在微博上公开指称前任中共政治局常委、国务院副总理的张高丽逼迫她与其发生性关系，这条微博很快被删除。此事在国际舆论引起震动，彭帅随后与外界失去联系，中共同时对相关信息实行了严格的网络审查。
+
+在国际舆论广泛关注之下，中共安排了彭帅与国际奥委会主席巴赫通话。随后，国际奥委会发表声明称彭帅“住在北京的家中，她平安无事，但希望此时尊重她的隐私”。
+
+加拉格尔议员说，世界最重要澳大利亚网球公开赛正在进行，但却未见彭帅踪影，表明她仍然没有获得自由。他补充说，鉴于国际奥委会帮助掩饰中（共）国当局对人权的严重践踏，仅仅呼吁抵制北京冬奥会是不够的，还应对巴赫和与中共当局同谋的其他奥委会官员实施制裁。
+
+*参考链接：[美议员提案制裁国际奥委会主席巴赫 指其帮助北京掩盖彭帅失踪真相](https://www.voachinese.com/a/congress-ioc-peng-shuai-20220119/6402962.html)*
 
 * * *
 
-[【PDF 下载】Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+*素材采编：北极*
 
-* * *
+*编辑：青城道姑*
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
-
-
-[【PDF 下载】Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：miumiu*
 
  
 

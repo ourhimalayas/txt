@@ -2,32 +2,36 @@
 ---
 
 
-## 北京冬奥开幕在即 中共当局又开始病毒甩锅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1880638/)
+## 中共必将遭受世界人民和司法公正的审判
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880728/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-61.jpg)
-[图片来源](https://www.nytimes.com/2022/01/12/world/asia/beijing-olympics-covid.html)
+作者：纽约香草山农场福音部 – 恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，郭文贵先生在盖特视频中表示，在美国的法庭上，新中国联邦人让邪恶的中共暴露在阳光下，而中共必将受到西方人民和司法的公正审判。
 
-距离北京冬奥开幕只剩两周多点，在确认发生了奥密克戎社区感染后，北京的局势高度紧张。并以因在海外邮件中发现奥密克戎毒株为由，呼吁市民不要购买外国商品。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-13.jpeg)
 
-据中共卫生部门消息称，一名被感染者从加拿大收到的邮件包裹中发现了奥密克戎变异株。虽然有待验证，但当局随即敦促市民加强消毒，并避免购买来自国外的商品。
+视频中提到，近五年来，中共通过启用单伟建、吴征等间谍，以及他们在西方社会中收买的各派势力，向郭先生发起法律超线战，还妄图以不法手段干涉西方的法制，更试图破坏爆料革命并消灭新中国联邦。 其中，中共利用不道德的律师和三十多万页的海量材料来控告郭先生，同时，其还借由不公正的庭审拒绝郭先生提出异议。
 
-加拿大卫生部长17日即刻回应称，这是一个极其荒唐的想法。
+郭先生解释道，由于中共对新中国联邦的恐惧，其不惜花费上亿元的律师费造假害人。此外，中共还在美国使用违法手段对新中国联邦实行司法超限战。郭先生表示，这彻底暴露了中共对西方囯家的司法操控——而此举也损害了西方世界的司法公正，更伤害了西方的国家与人民。
 
-日本国际医療福祉大学医学与公共卫生学院的和田耕治教授表示，病毒不可能通过邮件传播。它毕竟还是人与人之间的传播。
+然而，郭先生也认为，美国法制的伟大值得信赖，更重要的是，正义之士正在从新中国联邦人的遭遇中看清中共邪恶的嘴脸。最终，这必将让中共与被其收买的邪恶同伙接受西方人民和司法的公正审判。
 
-与此同时，中共国继续推行“零新冠政策”，只要发现有感染，就实施强制隔离措施，包括封锁城市。
+参考链接：[https://gettr.com/post/pp402xffd3](https://gettr.com/post/pp402xffd3)
 
-笔者想问，既然连邮件都怀疑带病毒，直接锁国得了，还办什么奥运会呢！各国运动员到时极有可能都将是甩锅对象了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-信息来源:
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：谐趣园
 
-[海外からの郵便でオミクロン株“感染”中国](https://news.yahoo.co.jp/articles/c45407638c2e94d83992d7d135e2aef7baa13926)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
