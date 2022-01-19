@@ -2,22 +2,37 @@
 ---
 
 
-## 河南安阳文峰区19日晚七点后实行宵禁
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1878936/)
+## 法国Neoen公司在南澳大利亚建设大型风力发电设施
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1879143/)
 
-撰稿：追着曙光跑
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据中共国搜狐新闻1月19日的报道，1月18日0-24时，安阳市新增报告中共病毒（新冠肺炎）确诊病例29例，均在汤阴县，其中20例为集中隔离筛查发现，9例为居家隔离筛查发现，所有新增病例均已转至定点医院进行隔离治疗。
-![图片来源：原新闻](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-19-at-16.31.35-1.jpeg)图片来源：原新闻
-自1月8日以来，安阳市已累计报告确诊病例433例，其中汤阴县409例，文峰区19例，滑县和内黄县各2例，安阳县1例。
+整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-另外，安阳市文峰区社会面管控升级，19日起将采取更严格的措施：
-1、原则上，持工作证明出小区时间限制在早5：30至7：00，进入小区时间限制在晚7：00至8：30。其他时间段内除紧急情况，严禁一切人员出入。
-2、辖区之内晚七点后实行宵禁，电动车、行人严禁出小区上路，行人居家隔离，足不出户。
-3、所有营业单位全部停业，严禁任何营业单位（特殊民生除外）擅自开门，否则将予以重罚。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun-1.png)图片来源：雅典娜设计组
 
-信息来源：[河南安阳此轮疫情已累计报告确诊病例433例，其中汤阴县409例](https://www.sohu.com/a/517660604_119038)
-[河南安阳文峰区晚七点后实行宵禁](https://news.sina.cn/gn/2022-01-19/detail-ikyamrmz6050523.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
+
+根据《国际新能源网》1月19日报道，由外媒引述，总部位于法国的可再生能源开发商和独立电力生产商(IPP)Neoen公司日前表示，已经开始建设在南澳大利亚中北部地区的Goyder Renewables Zone园区中的装机412MW风力发电设施。
+
+该风力发电设施名为Goyder South Stage 1，将安装由通用电气可再生能源公司制造的75台风力涡轮机。
+
+该园区项目计划安装和部署1200MW风力发电设施、600MW太阳能发电设施和900MW电池储能系统。
+
+南澳大利亚能源和矿业部长Dan VanHolst Pellekaan表示：“Goyder South Stage 1项目开工建设是一个关键的里程碑，这个项目集合了大规模的风力发电设施、太阳能发电设施和电池储能系统，标志着南澳大利亚清洁能源转型的一个重要时刻”。
+
+据悉，Neoen公司与澳大利亚首都领地(ACT)政府签署了一份为期14年的100MW风力发电设施的电力采购协议。Neoen公司目前还在澳大利亚首都领地建设一个100MW/200MWh独立部署电池储能系统(BESS)。
+
+参考链接：[配套储能900MW！Neoen公司在南澳大利亚建大型风光储项目](https://newenergy.in-en.com/html/newenergy-2410882.shtml)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
