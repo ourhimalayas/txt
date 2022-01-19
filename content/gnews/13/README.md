@@ -2,74 +2,42 @@
 ---
 
 
-## 【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1880748/)
+## 中共间谍在议会活动曝光，英国将立法打击外国干涉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1880829/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-19-0745578.jpg)图片来源：《大纪元时报》
+来自《大纪元时报》网站1月17日的报道，自中共间谍在议会的活动被曝光后，英国内政大臣普里蒂·帕特尔(Priti Patel)表示，英国政府将推出新的法案来打击外国干涉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+英国军情五处（MI5）安全机构采取了不同寻常的措施，于1月12日向议会发出警报，警告称一个名叫李贞驹（Christine Ching Kui Lee）的人“明知故犯地代表中共（CCP）统战部（UFWD）从事政治干预活动”。
 
-截止至美东时间1月19日上午8时21分，在澳大利亚2,595.7万人中，累计确诊中共病毒感染病例1,955,544例，占澳洲全国总人口的7.53%。继1月8日单日新增COVID-19感染者病例达到创记录的111,907例后，1月12日，澳大利亚单日新增病例竟然达到175,271例，单日新增病例数达到澳洲总人口的千分之6.75。
+警报指出，李一直在为英国政党和政治家提供财政捐款，任何与她联系的人都应该“留意她与中共的关系以及其负责在英国政治中推进中共议程的活动”。1月17日，帕特尔在下议院发表声明说，她“对这个人多年来蓄意地代表中共从事政治干预活动并将本议会成员作为目标感到非常震惊”。她说，这种具影响力的活动的目的是“使英国的政治格局对中共当局的议程更有利，并挑战那些对中共当局在诸如人权等非常紧迫的问题上提出关切的人”。她说，类似的安全警报将“变得更加普遍”，所以情报机构“已经做出调整以应对这些新的和正在出现的威胁”。
 
-尽管如此，1月6日，澳大利亚北领地（Northern Territory）行政长官Michael Gunder在新闻发布会上正式宣布，对未“完全接种”Covid-19病毒疫苗的公民未来几天实施新的专制封锁，任何年满16岁且未完全接种疫苗的人不能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，才能离家不得超过30公里远。
+英国政府正在制定新的国家安全立法，“以制约怀有恶意的国家更难开展此类活动，”帕特尔称，并补充道这种立法将“为安全部门和执法机构提供他们所需的工具，以全方位瓦解对国家的威胁。” 保守党前领导人伊恩·邓肯·史密斯（Iain Duncan Smith）爵士说，“令人震惊的是，本院的任一成员都能允许自己被一个外国势力利用。” 他说：“政府必须更加强硬，现在是时候改变我们的立场，且称中共才是我们真正的威胁。”
 
-网球巨星德约科维奇（Novak Djokovic）甚至在1月16日上诉失败后，被澳洲当局以“对公共卫生造成威胁”驱逐出境。
+另一位保守党议员鲍勃·西利（Bob Seely）说，类似的丑闻“只会继续下去”，“直到我们更新我们间谍法，直到我们更新国内游说法，直到我们引入外国游说法”。反对党也呼吁采取措施，加强英国对中共干预的防御。工党的影子内政大臣伊维特·库珀（Yvette Cooper）说，军情五处安全警报中包含的信息“显然极其严重”，“我们以最强烈地方式谴责中共干涉英国民主进程的企图”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a5e4cdd86fd643ac86ddb702a6644510.jpeg)
+工党议员克里斯·布莱恩特（Chris Bryant）强调，国会议员们需要“对英国政治有可能受到的渗透睁大眼睛”。他还呼吁制裁一系列中共官员，包括香港特首林郑月娥和四名新疆官员，因为他们一直在“破坏香港和中共国的人权”。
 
-澳大利亚当局如此疯狂的胁迫打疫苗，目前澳洲的疫情真的是由于没有打Covid-19病毒疫苗或者疫苗打得还不够多造成的吗？
+**简评：**
 
-根据澳大利亚政府官方数据，截止至2022年1月19日，总共有4,672万针COVID-19病毒疫苗被打进人的身体，仅仅在过去的24小时内，就有321,959针被注入澳大利亚人的身体。目前，年满16+的澳大利亚人中，95%被打了至少一针疫苗，92.7%被打了两针疫苗，5,553,110名年满18周岁的澳大利亚人被打了至少三针疫苗。
+英国将要针对中共间谍推出新的立法，打击外国干涉英国内政。新的立法出台后，相信随后会有一系列的动议和更多相关立法的出台。
 
-如果以所有人口计算，澳大利亚有81.74%的人最少注射了一针COVID-19病毒疫苗，77.75%最少打了两针，21.53%打了加强针。
+新的立法出台后，将会在英国上下起到自我监督和警示作用。过去曾与中共间谍有接触的政府官员或议会成员恐怕都要及时报备，由此展开，会挖出更多的在英国活动的中共间谍。
 
-既然有如此高的疫苗接种率，那么，即使有新增中共病毒感染案例，也应当主要是以未接种疫苗人群为主体才合符逻辑！
+间谍的曝光是冰山开始融化的一角，积攒的力量可以造成雪崩之势。英国保守党的推行立法和工党的强烈谴责，两党联手会更有力的对中共反制，使中共加速灭亡。
 
-下面以疫苗接种率相当高的新南威尔士洲来分析。
+新闻链接：[https://www.theepochtimes.com/uk-to-legislate-against-foreign-interference-after-chinese-spy-found-operating-in-parliament\_4218294.html](https://www.theepochtimes.com/uk-to-legislate-against-foreign-interference-after-chinese-spy-found-operating-in-parliament_4218294.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Vaccination-in-NSW.jpg)
+* * *
 
-截止到2022年1月17日，新南威尔士洲（NSW）年满16岁的人中，95.2%已经打了最少一针COVID-19病毒疫苗，93.8%最少打了两针COVID-19病毒疫苗，27.8%最少打了三针COVID-19病毒疫苗，在12~15岁的青少年中，有78.3%最少打了两针疫苗，甚至5~11岁的儿童也有16.4%最少打了一针疫苗。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccination-in-NSW1.jpg)
 
-然而，1月17日上午8时到1月18日上午8时的24小时内，新南威尔士洲新增确诊中共病毒感染者32,297人。
+编辑：【英国伦敦喜庄园编辑部】
 
-根据2022年1月13日，新南威尔士洲卫生部门发布的每周中共病毒疫情监测报告《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)》，2021年12月26日至22日1月1日的一个星期内，新南威尔士洲总共有152,440例新增中共病毒感染者被确诊。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19.jpg)
-
-其中：108,056例为完全接种疫苗，1,110例为部分接种疫苗，2,765例为未接种疫苗，28,181例疫苗接种状态不确定，12,328例属于0~11岁不符合接种条件。在所有符合COVID-19病毒疫苗接种条件的人中，96.54%的感染者属于已接种COVID-19病毒疫苗，未接种人群仅占2.47%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-2021年12月26日至22日1月1日的一个星期内，新增COVID-19感染后住院的人中，共有1,578名Covid-19住院患者。其中，完全接种者1,280人，部分接种者47人，未接种者仅251人。这意味着，已接种疫苗的人群占Covid-19住院人数的84.09%，未接种疫苗的仅占15.91%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Hospital-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-在2021年11月26日至22年1月1日期间，共有154名符合接种条件的Covid-19感染者进入ICU，其中，完全接种疫苗的104人，部分接种疫苗的占8人，未接种疫苗的只有42人。这意味着，在11月21日26日至22年1月1日期间，感染COVID-19后进入ICU的患者中，72.73%已接种COVID-19病毒疫苗，67.53%属于完全接种疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-ICU-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-在21年11月26日至22年1月1日期间，总共有32人因COVID-19死亡，完全接种疫苗的死亡人数共有22人，部分接种疫苗的人群中有3人死亡，未接种疫苗的人群中只有7人死亡。接种COIVD-19病毒疫苗后，死亡的占78.16%，未接种疫苗的仅占21.84%，尤其完全接种疫苗的人占到68.75%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Deaths-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-毫无疑问，澳大利亚南威尔士洲的数据说明，实验性的中共病毒疫苗给南威尔士洲的人带来严重的疫苗灾难，既不能预防感染，也不能减少住院，更不能减少死亡。
-
-参考数据：
-
-[Australia Population](https://www.worldometers.info/world-population/australia-population/)
-
-[Australian Bureau of Statistics](https://www.abs.gov.au/statistics/people/population)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
-
-[Covid-19 Deaths are at record levels in Australia & Official Data shows the Fully Vaccinated account for 4 in every 5 of those deaths since November](https://dailyexpose.uk/2022/01/19/australia-vaccinated-account-for-4-in-5-covid-deaths/)
-
-[德约科维奇惨遭澳大利亚驱逐 “他已成为反疫苗群体的偶像”](https://www.bbc.com/zhongwen/simp/world-60014139)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

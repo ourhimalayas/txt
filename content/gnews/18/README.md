@@ -2,27 +2,40 @@
 ---
 
 
-## 模型预测美国未来几周将出现Omicron 感染死亡的高峰
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880704/)
+## 斯洛文尼亚与台湾就互设代表处进行洽谈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880744/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011802.jpg)网络图片
-告诉传播的 Omicron 变体表面上来说或许不太容易导致特别严重的疾病，但是美国的CCP病毒死亡人数依旧正在攀升。预测模型估计，到 3 月中旬Omicron的浪潮出现消退迹象时，可能会有 50,000 至 300,000 名美国人因感染病毒而死亡。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月18日，据台湾媒体消息显示，近日，斯洛文尼亚总理詹沙在接受媒体采访时透露，斯洛文尼亚正与台湾洽谈互设代表处的相关事宜。
 
-自 11 月中旬以来，美国每日新增因CCP病毒感染死亡人数的 7 日滚动平均值一直呈上升趋势，在 1 月 17 日达到近 1,700 人。疗养院中的 COVID-19 死亡人数两周前居民人数开始小幅上升，尽管其中大部分居民已经完成了CCP病毒的疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-11.jpeg)
 
-尽管有迹象表明 Omicron 平均来讲导致的症状较为轻微，但由于其在全国范围内传播的感染程度空前，且许多州的病例仍在飙升，这意味着有更多居民将患上重病。 如果最为糟糕的预测情景成为现实，那么到早春，美国死于 COVID-19 的总人数将超过 100 万。
+詹沙总理表示，他曾经访问过台湾，也见证了台湾的民主，同时，他还表态支持台湾加入世界卫生组织。此外，詹沙指出，台湾海峡两岸的生意人有着密切往来，中共当局没有理由阻止其他国家与台湾建立经贸关系。
 
-南佛罗里达大学的流行病学家杰森·萨莱米说：“由于 Omicron 的高传染性，很多人仍然会因感染Omicron而死去……不幸的是，在情况好转之前更加更糟的时刻尚未降临。”
+詹沙也强调，斯洛文尼亚支持台湾人民的主权决定，且无论台湾最终的结果如何，这个决定必须是在没有外来压力以及军事威胁的前提下做出的。
 
-来自宾西法尼亚大学的学者卡特里奥娜·谢伊表示，美国的CCP病毒死亡浪潮将在 1 月底或 2 月初达到顶峰。 2 月初，每周死亡人数可能等于或超过Delta变种流行时的峰值，甚至可能超过美国去年的死亡人数峰值。
+对于立陶宛因准许台湾设立代表处而遭到中共经济报复的事件，詹沙称，这种试图孤立小国家的做法实属害人听闻。他还提到，中共对立陶宛的报复，就长远来看，对各方都不利。
 
-如果综合模型来看，卡特里奥娜·谢伊预计，从 12 月中旬到 3 月中旬，150 万美国人或将住院，191,000 人将死亡。 考虑到模型中的不确定性，美国在 Omicron 肆虐期间的死亡人数可能在 58,000 到 305,000 之间。
+詹沙最后呼吁，亚太地区所有爱好和平的国家应该形成一个统一战线联盟，用以确保区域力量的平衡，进而可以共同对抗来自中共的威胁。
 
-新闻参考链接：[US faces wave of omicron deaths in coming weeks, models say](https://apnews.com/article/coronavirus-pandemic-omicron-covid-19-deaths-08f8db29985b992d5ef98ccfa1459eb7)
+参考链接：[印媒專訪 斯洛維尼亞總理：與台洽談互設代表處](https://cn.rti.org.tw/news/view/id/2122388)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

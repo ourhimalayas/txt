@@ -2,30 +2,26 @@
 ---
 
 
-## 澳大利亚多地提前将加强针注射等待周期缩减至三个月
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880626/)
+## 模型预测美国未来几周将出现Omicron 感染死亡的高峰
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880704/)
 
 撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011802.jpg)网络图片
+告诉传播的 Omicron 变体表面上来说或许不太容易导致特别严重的疾病，但是美国的CCP病毒死亡人数依旧正在攀升。预测模型估计，到 3 月中旬Omicron的浪潮出现消退迹象时，可能会有 50,000 至 300,000 名美国人因感染病毒而死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011801-1.jpg)网络图片
+自 11 月中旬以来，美国每日新增因CCP病毒感染死亡人数的 7 日滚动平均值一直呈上升趋势，在 1 月 17 日达到近 1,700 人。疗养院中的 COVID-19 死亡人数两周前居民人数开始小幅上升，尽管其中大部分居民已经完成了CCP病毒的疫苗接种。
 
-澳大利亚东部标准时间1月19日，维多利亚州政府正式宣布将加CCP病毒疫苗加强针的注射等待时间缩短至三个月，并且立即生效。
+尽管有迹象表明 Omicron 平均来讲导致的症状较为轻微，但由于其在全国范围内传播的感染程度空前，且许多州的病例仍在飙升，这意味着有更多居民将患上重病。 如果最为糟糕的预测情景成为现实，那么到早春，美国死于 COVID-19 的总人数将超过 100 万。
 
-这意味着任何三个月前完成第二剂CCP病毒疫苗注射的居民，现在都可以进一步接受加强针注射。随着新规定生效，现在有资格接种第三剂的维州居民总数立即增加了约 120 万人。
+南佛罗里达大学的流行病学家杰森·萨莱米说：“由于 Omicron 的高传染性，很多人仍然会因感染Omicron而死去……不幸的是，在情况好转之前更加更糟的时刻尚未降临。”
 
-在过去的24小时内，维多利亚州总共记录了 20,769 例新增CCP感染。根据维州卫生局的有关数据，目前该州的活跃病例数约25万左右。媒体认为，提前缩短加强针注射等待时间或许意味着州政府将会更快将强制加强针政策推广到更多工作岗位。
+来自宾西法尼亚大学的学者卡特里奥娜·谢伊表示，美国的CCP病毒死亡浪潮将在 1 月底或 2 月初达到顶峰。 2 月初，每周死亡人数可能等于或超过Delta变种流行时的峰值，甚至可能超过美国去年的死亡人数峰值。
 
-按照澳大利亚卫生部门提出的相关计划，缩短时间至三月的举措原本是要等到1月31日才开始进行，但是部分州领地已经迫不急待。
+如果综合模型来看，卡特里奥娜·谢伊预计，从 12 月中旬到 3 月中旬，150 万美国人或将住院，191,000 人将死亡。 考虑到模型中的不确定性，美国在 Omicron 肆虐期间的死亡人数可能在 58,000 到 305,000 之间。
 
-南澳大利亚州目前也已经将第三针的注射等待时间缩短至三个月，好像先前已经约定好的一般，宣布日期也同样是1月19日周三。南澳的相关政策意味着加强针需求从现在开始立即增加22.5万剂。今日南澳大利亚州记录了3,482例新增CCP病毒感染，同时有3人不幸因为CCP病毒而死亡。
+新闻参考链接：[US faces wave of omicron deaths in coming weeks, models say](https://apnews.com/article/coronavirus-pandemic-omicron-covid-19-deaths-08f8db29985b992d5ef98ccfa1459eb7)
 
-新南威尔士州预计将从本周五开始将CCP病毒疫苗加强针的注射等待周期缩短至三个月，由于该州人口较多，根据周总理的说法，这一举措大概会增加300万剂的加强针需求。在过去的24小时之内，该州又记录了 32 例与CCP病毒有关的死亡病例，并且新增 32,297 例CCP病毒感染案例。
 
-新闻参考链接：
-
-新闻一：[COVID-19 death toll jumps in NSW again as millions more eligible for booster](https://www.9news.com.au/national/coronavirus-nsw-updates-new-case-numbers-booster-shots-thousands-new-health-staff-deployed/261b8bf2-621a-4239-84ae-2b8e116df663)
-
-新闻二：[Third jab mandate not ruled out as Victoria slashes COVID-19 booster dose interval to three months](https://www.9news.com.au/national/coronavirus-victoria-update-new-case-numbers-code-brown-hospitals/7b8ed6bc-40dc-4a0f-9cee-7f419f5f260e)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 

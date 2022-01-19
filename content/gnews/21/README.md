@@ -2,34 +2,36 @@
 ---
 
 
-## 北京冬奥开幕在即 中共当局又开始病毒甩锅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1880638/)
+## 郭先生解析中共惧怕新中国联邦的原因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880709/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-61.jpg)
-[图片来源](https://www.nytimes.com/2022/01/12/world/asia/beijing-olympics-covid.html)
+作者：纽约香草山 信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月14日的直播中，郭文贵先生谈到了中共如此害怕“郭文贵”和“新中国联邦”的原因所在。
 
-距离北京冬奥开幕只剩两周多点，在确认发生了奥密克戎社区感染后，北京的局势高度紧张。并以因在海外邮件中发现奥密克戎毒株为由，呼吁市民不要购买外国商品。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-15.jpeg)
 
-据中共卫生部门消息称，一名被感染者从加拿大收到的邮件包裹中发现了奥密克戎变异株。虽然有待验证，但当局随即敦促市民加强消毒，并避免购买来自国外的商品。
+郭先生提及，在中共外交部近期与中东六国外长的会议中，中共软硬兼施地要求这六国在当地彻底禁止GTV和GNEWS，其对提及“郭文贵”和“新中国联邦”二词讳莫如深、如临大敌。
 
-加拿大卫生部长17日即刻回应称，这是一个极其荒唐的想法。
+郭先生也解释过，中共的本质是推崇精神控制的邪教，其只为利益服务。因此，在墙内民众没有人身自由和人身安全的情况下，共产党大肆控制墙内每个人的言行。相较而言，新中国联邦则是法治立邦，其是正义的化身，也是真正的为人民服务——新中国联邦可以让人们在绝对自由、安全的情况下合法行事并获得自己想要的一切。
 
-日本国际医療福祉大学医学与公共卫生学院的和田耕治教授表示，病毒不可能通过邮件传播。它毕竟还是人与人之间的传播。
+郭先生强调，邪恶会丧失人性、失去民心，但正义却充满人性、凝聚人心，这是中共和新中国联邦的本质区别，更是邪恶中共惧怕正义的郭文贵和新中国联邦的根本原因！
 
-与此同时，中共国继续推行“零新冠政策”，只要发现有感染，就实施强制隔离措施，包括封锁城市。
+参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
 
-笔者想问，既然连邮件都怀疑带病毒，直接锁国得了，还办什么奥运会呢！各国运动员到时极有可能都将是甩锅对象了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-信息来源:
+总编：Ivy001
+编辑：百香果
+校正/发稿：谐趣园
 
-[海外からの郵便でオミクロン株“感染”中国](https://news.yahoo.co.jp/articles/c45407638c2e94d83992d7d135e2aef7baa13926)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
