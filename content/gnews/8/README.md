@@ -2,25 +2,25 @@
 ---
 
 
-## 七哥谈“所有的邪教特征、坏人的特征一定是编造邪说”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881625/)
+## 德国缩短新冠病毒的自然免疫状态。卫生通行证的有效期从180天缩减到90天
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1881633/)
 
-所有的邪教特征、坏人的特征一定是编造邪说，一定是假的。编造邪说的前提，当他拥有权力之后就不允许你说话，要把我的邪说变成真理，这就是斯大林叫Truth真相，共产党在哪呢？希特勒搞了个叫什么，德意志，德意志人民，我们是最优秀的人种，犹太人抢走了我们的钱”，把犹太人全杀了； 乌干达阿明说：“我给你们带来了未来，我给你们提供，我们是非洲之狮，我是上帝指定的一个代言人。” 最后把天主教徒、基督教徒给杀了，亲自给杀了；苏哈托，苏哈托：“所有的印尼人民，我最恨中国人，” 他亲娘被中国人给干了，生出这么一个杂种出来，所以他这个爹是混蛋，所以把中国人全杀掉，300万人呐，300万人一夜之间抓起来，50万人轮奸、杀掉、火烧啊！最后苏哈托家族最大钱来源：香港，中共。然后毛泽东告诉中国人民：是这些人在印尼做错了事情，你们再跑啊，再跑出去啊，留在国内吧。编造邪说是根本性的独裁和邪教的根本特征，就是第六条。
+#### 翻译                      意大利达芬奇农场                  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-19-alle-15.22.29.png)图片来源： databaseitalia
+罗伯特•科赫研究院发布的新的指导纲领，德国患了新冠病毒的人之后具有90天的免疫力而在这之前是180天的免疫力。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+周五，负责疾病控制和预防的联邦机构罗伯特•科赫研究院根据有关新冠病毒的发展发布了新指南。
 
-**关注我们**
+根据新指南， 以前感染过新冠病毒的人将只有90天的免疫状态。旧规则规定，感染后可有180天的免疫证明。
 
-Discord 账号
+必须使用核酸检测或PCR检测并提供先前感染的证据。任何可以显示至少28天的PCR检测结果呈阳性的人都被认为已治愈。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+这些措施于周六生效。相比之下， 在瑞士，人们在感染新冠病毒后可以要求获得免疫力的期限目前是检测结果后的365天。
 
-Gettr 账号
+原文链接： 
+[https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/](https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传： Xiao  baige
 
  
 

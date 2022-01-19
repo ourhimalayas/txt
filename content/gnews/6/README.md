@@ -2,31 +2,34 @@
 ---
 
 
-## 七哥谈“独裁、压迫、统治”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881646/)
+## 有声|郭先生分析行政命令与法律的本质区别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881647/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月14日大直播中，谈到行政命令与法律时，郭先生分析，法律一词源于西班牙帝国时期“笔直”的本义，即大多数人认可的笔直的规矩，是“民天下”政府与平民及社会实体之间的契约。意味着任何突出的特权的越位都要被砍掉，其使命是铲除贪婪、嗔恨、邪恶和凶恶，是法治的基石，民主和自由的护身符。而行政命令是独裁者个人意志的体现，是“家天下”统治的工具，是人治社会的箩筐。任何不符合统治者意志的行为都可以往里面放。法律充满程序正义，行政命令毫无程序正义可言。
 
-来源：郭先生2022-01-14直播10：33：38摘录
+原文链接：[美飞弹核潜舰公开访问关岛展示威吓力](https://gnews.org/zh-hans/1875937/)
 
-大家记住，你看什么人不一样啊，我一生最在乎的事情，我往回看的时候，我希望我后面的人能走到我前面去，在我前边，这是我一生中从小到大，跟着我的人、我的公司、我的企业、我的合作方都是，我希望在我后面的人走到我前面去，我前面越多人越好，因为我觉得我更强大。那么共产党是什么？把前面所有能看见的人一律消灭，就让你看到他自己，这就叫独裁，而且叫压迫，叫统治，你看这就是中国人不能说话了。Joe Rogan事情告诉你什么？叫法治社会，它不能制造邪说。
+音频处理/发稿：Daxia
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-**关注我们**
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Gettr 账号
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

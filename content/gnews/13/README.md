@@ -2,56 +2,31 @@
 ---
 
 
-## 【信仰之声】彼此交往“对错”很重要吗？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1881583/)
+## 七哥谈“你心不洁净怎么能洁净地搞灭共呢？”（2022-01-14摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881585/)
 
-作者：纽约香草山福音部 — Joy
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+来源：郭先生2022-01-14直播10:05:03摘录
 
+所有人的智慧和心胸，还有你配不配做新中国联邦人。大家想想，不尊重自由的人，你凭什么要有自由？不给别人讲话机会的人，你凭什么有讲话机会？如果你是真的你又为什么怕别人怼你？这就是新中国联邦最牛叉的力量。七哥从来不在乎人怎么说我、怎么看我，我一生从小到大，我从懂事儿到今天，我恨的一句话就是“人家怎么看”，我为什么在乎人家怎么看？我身边到现在充满了无数的这样的无知。为什么我要在乎，我们为什么要为别人活着，不为自己活着呢？到处，这个世界上最可怕的啊，如果说，你在肛门里找屎，这是正确的，肛门本来就是拉屎的地方，但是你非要在一顿过年的晚宴上找屎，这个事情就错了，因为这里不是找屎的地方。我们的人生，生下来不是找屎的，我们生下来是要找钻石，这就是七哥说的要找好人，我们爆料革命不要每天到处找敌人去。永远去找别人的毛病，找别人的毛病，天天，你先说你自己有啥毛病，你把自己病治好了天下都没病。你自己病多的时候天下都是病。所以不要像那些熊宪民呐、什么韦石呐、夏业良、郭宝胜那帮孙子，戴着眼镜，满眼的两滩屎，像路大脑袋满嘴都是屎，咳着痰，到处造谣，生是生非，这种垃圾是吧？我们怎么能当这样的人呢？你心不洁净怎么能洁净地搞灭共呢？
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
-
-
-前不久，一位刚结婚的年轻人愁眉苦脸的向他的长辈请教，说:“我和妻子吵架了，可是我觉得自己并没有错，不知道怎样才能和她和好哪？”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220111_1.jpg)
-
-这位长辈充满慈爱的说：“孩子啊，对错不重要，重要的是爱。你们彼此相爱，你就用爱的语言来和她沟通，你们一定会和好的。”这位年轻人马上跑回去见他的妻子，给她一个长长的拥抱，他们真的就和好了，甚至都忘记了起初吵架的原因。
-
-亲爱的朋友们，这件事对我触动很大，我们战友、朋友、家人彼此交往，对错真的不重要。如果我们能放下自己的权利，用爱的语言彼此沟通，用爱心互相体谅彼此的软弱，就会有多少冲突可以被化解、多少仇恨和嫉妒会被释放啊！
-
-“最重要的是彼此相爱，因为爱能遮掩许多的罪（彼得前书4:8）”。愿我们大家都以爱的语言和行动互相沟通，一起建立美好的新生活。
-
-2022年1月19日
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1.jpeg)
-
-*编辑 /校对*：德州牛仔
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
