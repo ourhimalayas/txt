@@ -15,89 +15,89 @@
 
 ---
 
-### [嘉宾Kate提问及七哥回答（一）](/content/gnews/1/README.md)
+### [嘉宾喜安娜和七哥关于记忆力对话（三）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [嘉宾Kate提问及七哥回答（三）](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：郭文贵早年预警中共间谍李贞驹](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [文•贵天成——文贵先生谈“中概股“（七）](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国人口增长持续放缓，实际就是人口负增长](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [原中泰策略首席陈龙被抓，或涉嫌操纵证券](/content/gnews/6/README.md)
+### [担心国安风险，美国正在审查阿里巴巴云端服务](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [孟山都科学家承认为中共国窃取商业秘密有罪](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [嘉宾喜安娜和七哥关于记忆力对话（二）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
 
-### [喜联储当前的机遇和挑战](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [嘉宾Kate提问及七哥回答（一）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
 
-### [文贵先生直播精要2022/01/17](/content/gnews/9/README.md)
+### [嘉宾Kate提问及七哥回答（三）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：郭文贵早年预警中共间谍李贞驹](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [文•贵天成——文贵先生谈“中概股“（七）](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国人口增长持续放缓，实际就是人口负增长](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [原中泰策略首席陈龙被抓，或涉嫌操纵证券](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【小雨专栏】在路上057——在路上篇](/content/gnews/10/README.md)
+### [孟山都科学家承认为中共国窃取商业秘密有罪](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [喜联储当前的机遇和挑战](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文贵先生直播精要2022/01/17](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【小雨专栏】在路上057——在路上篇](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [日本连续4天新增感染中共病毒人数超2万 大阪创历史新高](/content/gnews/11/README.md)
+### [日本连续4天新增感染中共病毒人数超2万 大阪创历史新高](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——答陈一之老而无为诗](/content/gnews/12/README.md)
+### [樱花灭共诗——答陈一之老而无为诗](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [麻省理工学院的Seneff博士讨论mRNA疫苗对大脑的影响](/content/gnews/13/README.md)
+### [麻省理工学院的Seneff博士讨论mRNA疫苗对大脑的影响](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本企业研发中共病毒PCR自动混合快检装置](/content/gnews/14/README.md)
+### [日本企业研发中共病毒PCR自动混合快检装置](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人体细胞&#8221;编程&#8221;或将成为治疗疑难杂症的新方法](/content/gnews/15/README.md)
+### [人体细胞&#8221;编程&#8221;或将成为治疗疑难杂症的新方法](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [挖矿就业全解](/content/gnews/16/README.md)
+### [挖矿就业全解](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爱也特斯拉恨也特斯拉中共大统战能否得逞？](/content/gnews/17/README.md)
+### [爱也特斯拉恨也特斯拉中共大统战能否得逞？](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [听诊结果可视化！日本“超听诊器”即将世](/content/gnews/18/README.md)
+### [听诊结果可视化！日本“超听诊器”即将世](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本开展“穿刺机器人”临床试验 或革新性癌症医疗实用方法](/content/gnews/19/README.md)
+### [日本开展“穿刺机器人”临床试验 或革新性癌症医疗实用方法](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人民的灾难富豪的盛宴 全球10大富豪疫情期间财产翻一倍达1.5兆美元](/content/gnews/20/README.md)
+### [人民的灾难富豪的盛宴 全球10大富豪疫情期间财产翻一倍达1.5兆美元](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奥密克戎感染的症状是什么？](/content/gnews/21/README.md)
+### [奥密克戎感染的症状是什么？](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共房地产过度开发 粮食危机迫在眉睫](/content/gnews/22/README.md)
+### [【中日财经爆】中共房地产过度开发 粮食危机迫在眉睫](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】日本央行称2022年度物价涨幅预计至1.1%](/content/gnews/23/README.md)
+### [【中日财经爆】日本央行称2022年度物价涨幅预计至1.1%](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港府不接纳内地全民检测 改派30万套快速测试](/content/gnews/24/README.md)
+### [港府不接纳内地全民检测 改派30万套快速测试](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国泰两空少涉违免检疫规定被拘 高官违规待查](/content/gnews/25/README.md)
+### [国泰两空少涉违免检疫规定被拘 高官违规待查](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习近平威胁：对抗中国将有“灾难性后果”](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [杨洁篪海外抓捕战友](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [澳大利亚维州医院启动褐色紧急状态以应对不断增加的新冠住院人数](/content/gnews/28/README.md)
- ` 喜国公民`
 
 ### [七哥谈中共邪教的特质（2022-01-14摘录）](/content/gnews/29/README.md)
  ` MG FARM`
