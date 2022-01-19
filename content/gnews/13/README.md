@@ -2,49 +2,20 @@
 ---
 
 
-## 中共纪委、政法队伍、公安厅为习近平二十大统一思想
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1879951/)
+## 警隊職位大量空缺 推遲退休來解決
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1880066/)
 
-作者: 日本方舟农场 Andy5
+作者：东京樱花团丨阿恩
+![](https://lh3.googleusercontent.com/O5Bc16ljXNesfJQNKs_V4qr7E8Y6F2uXRhnkIqyQBLdhjgB4PDTwQIb07jIvYjs5MJtWE1mgd5U9XH160ht10gySo8T7ZNt_5NWAnH4NPjPqhbs1rwP-LlvpZADxEskLk6XjzBKm)
+保安局局長鄧炳強指，警方去年底已招聘119名督察級人員及423名員佐級人員，截至去年12月31日督察級和員佐級的職位空缺分別有484個及5,187個。公務員事務局已推出「選擇延遲退休方案」，警隊延遲退休人員的退休年齡被調高至60歲；去年2月推出繼續服務計劃， 2000年6月1日前入職政府的非首長級警務人員延長服務至60歲。鄧称這兩項留人策略，可在未來十數年挽留超過1.7萬名警務人員。
 
+港府一直自诩社会恢复稳定，经济稳步发展，市民对警队的正面评价日益增长，不过警队的招聘信息却透露端倪，显示职位空缺高达五千多个。港府为感谢港警镇压港人，特意高调提高其福利和薪酬。香港社会金钱致胜的价值观，而且目前仍超过5%的失业率，申请加入警队应该是争破头的样子，但实情却是门庭冷落。感恩香港人依旧有骨气，不为五斗米折腰，拒绝成为中共港府残害同胞的工具，因为这种邪恶的行当即使获得再多的金钱，也难以救赎自己的心灵。港府见事不妙，推出延迟退休计划，试图截留老雇员充数。一个没有流动性和新生力量加入的行业，最终只有被淘汰的命运。不过中共倒是正中下怀，可顺理成章地引入大量内地人力，“支援”香港的管制，真正实现留港不留港人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
-当地时间1月16至20日，中共连续召开政法队伍、公安厅、纪委的会议为习的二十大统一思想。
+资料来源：[警队去年招聘542人空缺仍有5671个](https://hk.on.cc/hk/bkn/cnt/news/20220119/bkn-20220119125043450-0119_00822_001.html)
 
-首先郭声琨在政法教育整顿总结会上强调，“坚持把政治建设放在首位”，特别是“始终在思想上、政治上、行动上同习近平的党中央保持高度一致”。然后赵克志在公安厅局长会议上要求“坚决捍卫国家政权安全、制度安全、意识形态安全”。最后在18日举行的中纪委会议，习近平出席并讲话，称“清除了党内、国家、军队内部存在的严重隐患”，并要求“勇于刀刃向内”、“保持反腐败政治定力”。
-
-分析人士指出，这三个会议中无一例外都提到“要为二十大保驾护航”，这表明无论是政法系统、公安系统、纪委，都在以政治为最优先，也就是为习近平打破常规的第三期连任统一思想，并甘愿充当打手。
-
-**新闻链接**:
-
-1、[http://politics.people.com.cn/n1/2022/0117/c1001-32333483.html](http://politics.people.com.cn/n1/2022/0117/c1001-32333483.html)
-
-2、[http://society.people.com.cn/n1/2022/0117/c1008-32333496.html](http://society.people.com.cn/n1/2022/0117/c1008-32333496.html)
-
-3、[http://news.xhby.net/index/202201/t20220118\_7389203.shtml](http://news.xhby.net/index/202201/t20220118_7389203.shtml)
-
-4、[http://politics.people.com.cn/n1/2022/0118/c1024-32334348.html](http://politics.people.com.cn/n1/2022/0118/c1024-32334348.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-5.png)
-
-
-新闻采集: 日本方舟农场 Andy5
-
-总编: Irene木木
-
-校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 /平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,73 +2,71 @@
 ---
 
 
-## 参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879599/)
+## 大卫作战室直播精要 2022/01/18
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1879621/)
 
-Senator Roger Marshall On Fauci’s Financial Records
-参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+**主持**：大卫 | **嘉宾**：Nick、文大石
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011712.jpg)[GTV直播链接](https://gtv.org/video/id=61e6af1a533c672fca7edf76)
+**板块1–国内政治**
 
-Why do you think that Fauci lied last week sir?
-你为什么认为上周福奇撒谎了？
+1. 中共政法促加大反垄断等领域司法力度。
 
-John, I guess several people said we are over the target so to speak
-约翰，我猜有几个人说我们偏离了目标
 
-We’ve exposed him in my opinion. he had misled or lied to Congress on three different issues in that particular hearing
-在我看来，我们已经揭露了他。在那次听证会上，他在三个不同的问题上误导或向国会撒了谎
+伴随央视推出反腐剧《零容忍》，政法开始整肃、清洗。
 
-He lied to Rand Paul on one of his questions about covering this all up
-他在一个关于掩盖这一切的问题上对兰德.保罗（Rand Paul）撒了谎
+强调反垄断、恶意炒作、反不正当竞争等概念，打着光鲜的“幌子”根本目的“劫富民营私营企业”，通过抢劫富起来的权贵阶级延续中共老命，周而复始“养肥-宰杀”循环。
 
-He lied to Congress about gain of a function and then about his financial accountability
-他在功能增强（实验项目）这个问题上向国会撒谎，然后就他的财务责任撒了谎
+中共制定荒唐的天价罚款条例，让当事人托关系找管理领导“了事”，最后还“感恩戴德”，中共典型“合法敲诈”模式。
 
-Look, we asked him a very simple question: Will you please share with Americans your financials?
-看，我们问了他一个非常简单的问题：您是否能与美国人民披露您的财务状况？
+**板块2–财经**
 
-This is a common question I get from people, as why does doctor Fauci believe only in vaccines?
-这是我从人们那里得到的一个常见问题。就像为什么福奇（Fauci）博士只相信疫苗？
+1. 习近平出席2022年世界经济论坛会议强调：搞你输我赢的零和博弈是无济于事的。
 
-Why doesn’t he acknowledge natural immunity?
-为什么他不承认自然免疫？
 
-Why doesn’t he acknowledge hydroxychloroquine or zinc or ivermectin, and they said what about his finance?
-为什么他不承认羟氯喹或锌或伊维菌素？他们想知道他的财务状况如何？
+中共一手放毒，一手控制供应链，暗示国际社会孤立中共国是行不通的；喊话国际加息反利率政策不要实行；威胁世界要想经济向好必须接受中共国的“大国崛起”。
 
-We’ve been trying to get them
-我们一直在努力找到这些信息
+中共在国际上反对新中国联邦，害怕病毒溯源、经济危如累卵等话题。
 
-He lied to Americans said that they are publicly available, and they weren’t
-他对美国人撒谎说这些信息是公开的，但事实并非如此
+**板块3–中共病毒**
 
-And now we’ve got that, and people can go to our website Marshall.senate.gov and review Dr. Fauci’s financials
-现在我们已经找到了。人们可以访问我们的网站Marshall.senate.gov. 并查看 福奇（Fauci） 博士的财务状况
+1. 欧洲药品管理局指出心包炎的发病率增加1480%。
 
-And they are going to see that he made 1.7 million dollars last year, in 2020. Excuse me 1.7 million dollars in 2020.
-他们将看到他去年在2020年赚了170万美元。对不起，2020年赚了170万美元
 
-While America was shut down. He made 1.7 million dollars, significant investment in China. We will let Americans decide.
-在美国被关闭期间，他赚了170万美元，在中国进行了重大投资。我们将让美国人自己来判断
+欧洲药品管理局根据实际数据显示在接种疫苗14天内多发心肌炎、心包炎，柱状图反应2020-2021年开始接种新冠疫苗后心肌炎、心包炎暴增。
+
+英喜救助战友经验: 及时用药防止病毒进入第二阶段至关重要；某朋友妈妈平时身体状态良好，突然莫名死亡，推测可能是疫苗引发；大卫上周几次开车送药感染战友；现阶段欧洲各国物流缓慢，战友请及时备伊维菌素。
+
+1. 法国新冠疫苗通行证成为法律。
+
+
+法国、德国、新加坡对于疫苗通行证继续疯狂推行。法国战友可以根据自身实际情况考虑撤离法国。
+
+1. 北京发现一例Omicron变异病毒。以北京的人口密度仅有一例，典型中共“可控式”数据。
+
+
+**板块4–军事**
+
+1. 英国军情五处对中共国试图影响英国政治的警告变得“更加普遍”。
+
+
+李贞驹在英国各界到处“活动”，预计手里掌握英国相当多资料，她妹妹是中共国情报五局的工作人员，引爆英国内部关于中共国间谍话题的讨论。大卫接触过李贞驹，明显感觉侨界“敬畏”她。
+
+*听写：call me uncle*
+
+*校对: 乐禧禧*
 
 * * *
 
-Date: 1/17/2022
-原视频标题: Senator Roger Marshall On Fauci’s Financial Records
-参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
-原视频日期：1/17/2022
-原视频链接: [**https://twitter.com/realamvoice/status/1483240267649982464?s=24**](https://twitter.com/realamvoice/status/1483240267649982464?s=24)
-任务编号：KE355（3521）
-视频时间段 : 0:00-01:00
-中听校：洛杉矶盘古农场 -海潮
-翻译：洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
