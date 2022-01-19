@@ -2,41 +2,25 @@
 ---
 
 
-## 英国宣布放弃中共病毒疫情的强制政策
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1881616/)
+## 德国缩短新冠病毒的自然免疫状态。卫生通行证的有效期从180天缩减到90天
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1881633/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B-5.jpg)trustandmoney.com
-《门道专家》1月19日发表文章，题目是“在英国，鲍里斯·约翰逊（Boris Johnson）放弃了中共（新冠）病毒疫情的强制政策：‘我们将相信英国人民的判断’”。
+#### 翻译                      意大利达芬奇农场                  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-19-alle-15.22.29.png)图片来源： databaseitalia
+罗伯特•科赫研究院发布的新的指导纲领，德国患了新冠病毒的人之后具有90天的免疫力而在这之前是180天的免疫力。
 
-全文如下：
+周五，负责疾病控制和预防的联邦机构罗伯特•科赫研究院根据有关新冠病毒的发展发布了新指南。
 
-英国首相鲍里斯·约翰逊正在取消中共病毒疫情的强制政策。
+根据新指南， 以前感染过新冠病毒的人将只有90天的免疫状态。旧规则规定，感染后可有180天的免疫证明。
 
-从周四（1月20日）起，学生不再需要在教室戴口罩。
+必须使用核酸检测或PCR检测并提供先前感染的证据。任何可以显示至少28天的PCR检测结果呈阳性的人都被认为已治愈。
 
-1月27日，在英国的任何学校或任何地方都不再强制要求戴口罩，参加大型活动也不再需要疫苗护照，该国政府将转而“推荐”在封闭空间内戴口罩，让人们自行选择是否佩戴。
+这些措施于周六生效。相比之下， 在瑞士，人们在感染新冠病毒后可以要求获得免疫力的期限目前是检测结果后的365天。
 
-政府还将放弃其中共病毒通行证的要求，不再强迫人们在进入公共场所时出示疫苗接种证明。
+原文链接： 
+[https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/](https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/)
 
-约翰逊周三（1月19日）欢欣鼓舞地在议会宣布，“在全国范围内，我们将继续建议在封闭或拥挤的空间使用口罩，特别是当你接触到平时不常见面的人时。但我们将相信英国人民的判断，不再将任何选择不戴口罩的人定为刑事犯罪。”
-
-英国首相还取消了自12月13日起生效的政府在家办公的规定，约翰逊解释说，英国将开始像对待流感一样对待中共病毒。
-
-约翰逊说：“很快就会有一天，我们可以完全取消自我隔离的法律要求，就像我们不会对患有流感的人规定隔离的法律义务一样。随着中共病毒的流行，我们需要以建议和指导取代法律强制，敦促感染中共（新冠）病毒的人小心和体谅他人。”
-
-英国国家首脑坚持认为，对中共病毒疫情的限制不再是强制性的，因为政府科学家声称，由奥密克戎变异引起的感染激增“在全国范围内已经达到顶峰”，在英国，超过90%的60岁以上的人至少接种了三剂中共病毒疫苗或加强剂。
-
-（全文完）
-
-结束了，随着疫苗护照的取消，疫苗强制接种政策也被废。大英帝国开了先例，正常的日子即将回归。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/](https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
+编辑、上传： Xiao  baige
 
  
 

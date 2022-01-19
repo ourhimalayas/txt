@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 10:17 PM (UTC)`
+
+1/19/2022 Miles Guo: Less than 1,000 people attend the World Economic Forum at Davos. They can influence the politics and military of various countries and control the wealth that shapes the fate of hundreds of millions of people, and they collude with governments and have blood on their hands. As long as the Party of Davos still exists, humanity will never be safe<br/><br/>1/19/2022 文贵直播：参加达沃斯论坛的不足1000人，他们影响着各国的政治和军事，控制着左右数以亿计人命运的财富，他们跟政府勾结、手上沾满鲜血；只要达沃斯党在，人类就不会安全<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/19/22/4c1a6dce-667c-97c4-d45b-b6cbe5ee8442/out.jpg)
+
+---
+
 `@miles 1/19/2022 5:28 PM (UTC)`
 
 1月19号：吃饭饭喽……吃包包喽……
@@ -147,13 +154,6 @@
 
 马龙博士：《真相工程》曝光国防部文件内容绝对真实，是体制内对病毒来源真相爆料的启动！国防部终于出来说“够了”，并把托尼·福奇抛出！<br/><br/>Dr. Malone:  The Veritas exposure of DoD file is the start of apparatus whistleblowers and absolutely authentic. DoD finally coming around saying: enough is enough and throwing Tony Fauci under the bus!<br/>
 ![img](https://media.gettr.com/group30/getter/2022/01/18/01/6d561934-f843-53cb-f89c-41178c994c52/out.jpg)
-
----
-
-`@miles 1/18/2022 12:24 AM (UTC)`
-
-1/17/2022 Miles Guo: Miles Guo’s outlook on the Pacific Alliance case - we must use procedural justice to reveal the truths to the world through real evidence. Finally, the Department of Justice, Congress, and others will be fully involved in the investigations. The outcome of the PAX case will lead to the global efforts to take down the CCP, completely removing the toxins buried deep in the US and Europe by the CCP.<br/><br/>1/17/2022 文贵直播：文贵先生对太平联盟案的展望，我们一定要用程序正义、真实的证据让真相大白于天下，最终美国司法部、国会等会全面介入调查，太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除
-![img](https://media.gettr.com/group46/getter/2022/01/18/00/bcb7823d-99fd-7b33-84e1-2903524712e2/out.jpg)
 
 ---
 

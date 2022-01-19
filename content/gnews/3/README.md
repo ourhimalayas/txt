@@ -2,45 +2,36 @@
 ---
 
 
-## 有声|纽约一亚裔女子无故被推下站台致死
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881685/)
+## 捷克取消了强制接种中共病毒疫苗的计划
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1881729/)
 
-配音：香草山健身部 – 玫瑰园
+**编译：沉默老歌**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/80C9C3F5-80E9-49A2-99E7-433DFC2C331D.jpeg)图片来源：网络
+捷克总理彼得-菲亚拉（Petr Fiala）周三表示，政府正在取消为60岁及以上的人强制接种Covid-19疫苗的计划，这是前任内阁的一项倡议。
 
+菲亚拉在一次内阁会议后告诉记者：“我们同意不强迫任何人接种疫苗”。他说，“政府不希望分裂社会”。
 
+前一届捷克政府曾宣布，从3月1日起，它还将强制要求卫生工作者、警察、消防员和军人接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+卫生部长弗拉斯蒂米尔-瓦莱克（Vlastimil Valek）在推特上说：“尽管接种疫苗是防止中共武汉病毒严重形势的最有效武器，但我们不想强迫任何人”。
 
+捷克共和国正面临着新一波的大流行，周二报告了大约3万个新病例。
 
+卫生部表示，63%的人口已经接种了疫苗，大约31%的人已经接受了第三剂疫苗接种。
 
-外媒1月15日报道，当天上午，在纽约市时代广场地铁站，一名40岁左右的亚裔妇女在一辆迎面而来的地铁前被人推下站台，并被一辆南行列车撞倒，当场死亡。市政府和警察局官员在新闻发布会上透露，某男性嫌疑人逃离了现场，但不久后向交通警察自首。
+右翼政府是在去年10月的大选后成立的。
 
-纽约警察局长说，这是一起无故伤害事件，事发前受害者与嫌疑人没有任何矛盾冲突。
+**来源链接：[Czechs Scrap Plan For Mandatory Covid Vaccines](https://www.barrons.com/amp/news/czechs-scrap-plan-for-mandatory-covid-vaccines-01642609510)**
 
-纽约市的犯罪统计数据显示，2021年截止到12月，针对亚裔的伤害事件比前一年增加了361%。
+**编辑：LILY**
 
-原文链接：[纽约一亚裔女子无故被推下站台致死](https://gnews.org/zh-hans/1874132/)
+**发布：歪桑**
 
-音频处理/发稿：Daxia
+20220119
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/AA30E5EB-1604-432B-B851-5D739D2B0F01.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

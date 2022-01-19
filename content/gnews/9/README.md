@@ -2,25 +2,34 @@
 ---
 
 
-## 七哥谈“所有的邪教特征、坏人的特征一定是编造邪说”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881625/)
+## 有声|郭先生分析行政命令与法律的本质区别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881647/)
 
-所有的邪教特征、坏人的特征一定是编造邪说，一定是假的。编造邪说的前提，当他拥有权力之后就不允许你说话，要把我的邪说变成真理，这就是斯大林叫Truth真相，共产党在哪呢？希特勒搞了个叫什么，德意志，德意志人民，我们是最优秀的人种，犹太人抢走了我们的钱”，把犹太人全杀了； 乌干达阿明说：“我给你们带来了未来，我给你们提供，我们是非洲之狮，我是上帝指定的一个代言人。” 最后把天主教徒、基督教徒给杀了，亲自给杀了；苏哈托，苏哈托：“所有的印尼人民，我最恨中国人，” 他亲娘被中国人给干了，生出这么一个杂种出来，所以他这个爹是混蛋，所以把中国人全杀掉，300万人呐，300万人一夜之间抓起来，50万人轮奸、杀掉、火烧啊！最后苏哈托家族最大钱来源：香港，中共。然后毛泽东告诉中国人民：是这些人在印尼做错了事情，你们再跑啊，再跑出去啊，留在国内吧。编造邪说是根本性的独裁和邪教的根本特征，就是第六条。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月14日大直播中，谈到行政命令与法律时，郭先生分析，法律一词源于西班牙帝国时期“笔直”的本义，即大多数人认可的笔直的规矩，是“民天下”政府与平民及社会实体之间的契约。意味着任何突出的特权的越位都要被砍掉，其使命是铲除贪婪、嗔恨、邪恶和凶恶，是法治的基石，民主和自由的护身符。而行政命令是独裁者个人意志的体现，是“家天下”统治的工具，是人治社会的箩筐。任何不符合统治者意志的行为都可以往里面放。法律充满程序正义，行政命令毫无程序正义可言。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+原文链接：[美飞弹核潜舰公开访问关岛展示威吓力](https://gnews.org/zh-hans/1875937/)
 
-**关注我们**
+音频处理/发稿：Daxia
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
 
-Gettr 账号
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
