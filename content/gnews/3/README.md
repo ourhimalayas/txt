@@ -2,8 +2,8 @@
 ---
 
 
-## 杨洁篪王毅享受本拉登待遇
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1881797/)
+## 新中国联邦唯一目标灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1881849/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

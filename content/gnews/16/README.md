@@ -2,52 +2,79 @@
 ---
 
 
-## 困扰温哥华唐人街社区的破坏行为
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881676/)
+## 2022/01/18 大卫作战室特别直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1881678/)
 
-作者：Sarah Anderson
-翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-311.jpg)
-温哥华历史悠久的唐人街街区在2022年继续遭受“严​​重”破坏。
+[![](https://express.adobe.com/page/CxZfqh9CvyYov/images/dec01c25-cedd-42ab-8bf1-310e902470bb.png?asset_id=1b0bada9-bdad-42a8-9727-7b29bee1cb7a&amp;img_etag=%220269d5dc44141f325b8bd8535cbe20f9%22&amp;size=2560)](https://express.adobe.com/page/CxZfqh9CvyYov/images/dec01c25-cedd-42ab-8bf1-310e902470bb.png?asset_id=1b0bada9-bdad-42a8-9727-7b29bee1cb7a&amp;img_etag=%220269d5dc44141f325b8bd8535cbe20f9%22&amp;size=1024)
+[**GTV直播链接**](https://gtv.org/video/id=61e71c7c533c672fca7ef972)
 
-1月16日星期日，在中山公园周围发现了一场涂鸦狂欢，第二天，毗邻的中国文化中心的一扇窗户被砸碎。
+**主持**：大卫｜**嘉宾**：Dr.TCC
 
-花园的执行董事 Lorraine Lowe 分享了她的同事关于碎玻璃的图片。
+**板块1–药品用量**
 
-Lowe 告诉 Daily Hive，VPD于1月17日星期一在现场工作，访问附近的企业并为他们的调查收集信息。虽然涂鸦已经被去除，但Lowe说，像这样的破坏行为已经“加剧了”。
+1. 病毒发展三个阶段：潜伏期–发病（病毒）期–自身免疫（炎症）期。每期大概一周时间。
 
-VPD 发言人 Tania Visintin 表示，VPD 的财产犯罪部门正在展开调查，目前还没有嫌疑人。
+2. 锌用量。
 
-“孙中山花园的涂鸦令人沮丧，”Visintin 说，他仍然希望他们能够成功识别嫌疑人。“我们已经成功地确定了最近发生的部分涂鸦事件的责任人，包括在驹形丸纪念馆、圣裘德教区和中国文化中心造成破坏的嫌疑人。”
+锌过量明显症状呕吐、阻碍其他微量元素吸收、增加排毒器官负担。
 
-唐人街商业协会的一位代表说，最近被盯上的孙中山花园是一个文化机构，也是唐人街的一个重要地标。他们说：“看到这种对我们社区的恶意破坏令人感到悲伤和沮丧。”
+预防病毒经典搭配一（羟氯喹200毫克/天连续五天＋锌不超100毫克/周），素食主义者考虑增加为锌150毫克/周。羟氯喹作用①变形病毒细胞膜上ACE2受体阻止其进入人体细胞，②减缓进入人体细胞病毒复制③携带锌进入人体细胞，锌负责杀病毒。
 
-“然而，这不是我们第一次看到反亚洲的破坏行为。”他们说：“唐人街越来越多地成为涂鸦标记的目标，窗户被打破是市中心东区普遍社会混乱的一部分。”
+羟氯喹半衰期较长（30-40天），过量同样有副作用。
 
-“商业社区仍然保持弹性，许多新的商店和餐馆让年轻人和家庭分享当地的氛围。”
+预防病毒搭配二（槲皮素500毫克/天＋锌不超过100毫克/周）。
 
-来源：https://dailyhive.com/vancouver/vancouver-chinatown-vandalism
+3. 实例–夫妻感染后相同用药量，效果不一样。
 
-（文章仅代表作者个人观点）
+用药量根据自身身体状况（参考因素：自身体重、是否有基础疾病、肠胃吸收能力、饮食习惯等）。用药短期没效果应适当加量。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+4. 感染期用药量不足。（伊维菌素用量标准按0.4-0.5毫克每公斤体重，连续5-7天）
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+感染病毒后，服用少量伊维菌素未能彻底清楚病毒会导致病毒在体内继续复制、变异，再次出现症状会更强烈。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+5. 地塞米松用量（早期治疗不适用–病毒繁殖期助长病毒生长)
 
-**关注我们**
+属于激素类，控制体内炎症反应，用于病毒发展至第三期。地塞米松用量–大剂量短期使用6-12毫克/天，逐渐降低用量（不能断崖式停药），在专业医生检测下使用。
 
-Discord 账号
+**板块2–病毒传染性**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+1. 家人有感染的情况。
 
-Gettr 账号
+家中分开隔离，保持通风，及时用药。未感染家人使用预防用量，不需要增量补充羟氯喹，适量补充维生素C和锌。如果使用预防方案二，苹果等水果含有槲皮素，不用增加补充槲皮素。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+2. 恢复期注意事项。
+
+注意保暖，逐步恢复运动。逐步降低羟氯喹用量，大概四周后可以服用青蒿素，特别注意铁元素的补充，如有任何不适症状及时停用。
+
+3. 正常未感染人群使用青蒿素。
+
+青蒿素属于活性物质，刺激肝脏工作增加压力，不建议平白无故使用青蒿素，预防方案不推荐青蒿素。
+
+**板块3–真实案例分析总结**
+
+1.战友应拒绝自己诊断，不用过于紧张，不能自我随意更改用药剂量，及时积极与英喜医疗部保持联系。
+
+2.检测试纸并不准确，存在大量伪阳性伪阴性。如果平时不常感冒却突然发烧两天，并伴随味觉嗅觉消失，大概率感染中招。
+
+3.有条件情况下配备血氧测量仪。及时观测血氧浓度、体温、心跳、血压情况，医疗部诊断病情的重要指标。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/CxZfqh9CvyYov/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/CxZfqh9CvyYov/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
 
-
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/CxZfqh9CvyYov/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/CxZfqh9CvyYov/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,53 @@
 ---
 
 
-## 捷克取消了强制接种中共病毒疫苗的计划
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1881729/)
+## 灭共者之共产主义家天下
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1881730/)
 
-**编译：沉默老歌**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/80C9C3F5-80E9-49A2-99E7-433DFC2C331D.jpeg)图片来源：网络
-捷克总理彼得-菲亚拉（Petr Fiala）周三表示，政府正在取消为60岁及以上的人强制接种Covid-19疫苗的计划，这是前任内阁的一项倡议。
+**出品：纽约香草山设计部**
 
-菲亚拉在一次内阁会议后告诉记者：“我们同意不强迫任何人接种疫苗”。他说，“政府不希望分裂社会”。
 
-前一届捷克政府曾宣布，从3月1日起，它还将强制要求卫生工作者、警察、消防员和军人接种疫苗。
 
-卫生部长弗拉斯蒂米尔-瓦莱克（Vlastimil Valek）在推特上说：“尽管接种疫苗是防止中共武汉病毒严重形势的最有效武器，但我们不想强迫任何人”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-捷克共和国正面临着新一波的大流行，周二报告了大约3万个新病例。
 
-卫生部表示，63%的人口已经接种了疫苗，大约31%的人已经接受了第三剂疫苗接种。
 
-右翼政府是在去年10月的大选后成立的。
 
-**来源链接：[Czechs Scrap Plan For Mandatory Covid Vaccines](https://www.barrons.com/amp/news/czechs-scrap-plan-for-mandatory-covid-vaccines-01642609510)**
 
-**编辑：LILY**
 
-**发布：歪桑**
 
-20220119
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/AA30E5EB-1604-432B-B851-5D739D2B0F01.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-1_.jpg)The year of 2022 will definitely be cataclysmic for the CCP, including the 20th National Congress where the CCP can almost decide the fate of all Chinese and people of the world. The internal politics of Communist China will be fraught with bloodshed, contests and massacre; don’t expect to find out the final outcome until the last minute. Confronted by the vaccine catastrophe and the virus catastrophe, the world is sliding into the darkest hours. 
+Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1_-1.jpg)2022年绝对是共产党的大灾之年，包括共产党几乎可以决定中国人和全世界人命运的二十大；中国内部的政治会充满了血腥、较量和屠杀，不到最后一分钟都很难定局；世界在疫苗灾难、病毒灾难面前，会黑暗到比刚刚落下的太阳的黑夜还要黑的程度。 
+-2022年1月1日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220118-05.jpg)The atrocity of Communism is to make people ignorant, selfish, cowardly, and eventually degenerated to animals, and that is the state of Communism – uniformed behavior, thoughts, clothing, and music; to only listen to one single person, to realize “Rule by One Family”, of which the whole country is controlled by one or few persons, aka, dictatorship. And that is the essence. 
+– Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220118-03.jpg)共产主义的创伤就是让人变得无知、自私、懦弱，最后就变成了动物，就达到了共产主义——统一的行为、思想、服装、音乐、听一个人说话，达到了家天下和家天下被一个人或几个人控制的目的，这就叫独裁，这就是本质。 
+-2022年1月1日郭文贵先生GTV/GETTR直播
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

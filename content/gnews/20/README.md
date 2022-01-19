@@ -2,25 +2,31 @@
 ---
 
 
-## 德国缩短新冠病毒的自然免疫状态。卫生通行证的有效期从180天缩减到90天
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1881633/)
+## 七哥谈“独裁、压迫、统治”（2022-01-14摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881646/)
 
-#### 翻译                      意大利达芬奇农场                  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-19-alle-15.22.29.png)图片来源： databaseitalia
-罗伯特•科赫研究院发布的新的指导纲领，德国患了新冠病毒的人之后具有90天的免疫力而在这之前是180天的免疫力。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-周五，负责疾病控制和预防的联邦机构罗伯特•科赫研究院根据有关新冠病毒的发展发布了新指南。
+来源：郭先生2022-01-14直播10：33：38摘录
 
-根据新指南， 以前感染过新冠病毒的人将只有90天的免疫状态。旧规则规定，感染后可有180天的免疫证明。
+大家记住，你看什么人不一样啊，我一生最在乎的事情，我往回看的时候，我希望我后面的人能走到我前面去，在我前边，这是我一生中从小到大，跟着我的人、我的公司、我的企业、我的合作方都是，我希望在我后面的人走到我前面去，我前面越多人越好，因为我觉得我更强大。那么共产党是什么？把前面所有能看见的人一律消灭，就让你看到他自己，这就叫独裁，而且叫压迫，叫统治，你看这就是中国人不能说话了。Joe Rogan事情告诉你什么？叫法治社会，它不能制造邪说。
 
-必须使用核酸检测或PCR检测并提供先前感染的证据。任何可以显示至少28天的PCR检测结果呈阳性的人都被认为已治愈。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-这些措施于周六生效。相比之下， 在瑞士，人们在感染新冠病毒后可以要求获得免疫力的期限目前是检测结果后的365天。
+**关注我们**
 
-原文链接： 
-[https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/](https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/)
+Discord 账号
 
-编辑、上传： Xiao  baige
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

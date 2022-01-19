@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 11:19 PM (UTC)`
+
+1/19/2022 Miles Guo: What were they doing in the Davos Forum held in Tianjin? They were injected with blood serum and sexually assaulted beautiful ladies and young girls from Tibet, Xinjiang, and Yunnan. Their evil deeds in the past few years are all the ironclad evidence for their crimes.<br/><br/>1/19/2022 文贵直播：达沃斯天津论坛是干嘛来的？他们打着血清、玩弄着西藏、新疆、云南的美女和小孩子，他们过去这些年的恶行都是犯罪铁证！<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/19/23/4fc11ca0-9e6b-7550-6811-4440d8499286/out.jpg)
+
+---
+
 `@miles 1/19/2022 10:50 PM (UTC)`
 
 1/19/2022 Miles Guo: The old CCP kleptocrats have been giving prescriptions to the world at the Davos Forum, resulting in the suffering of the Chinese, and eventually it’s their turn to suffer. What does Xi mean by saying "spillover effect"? The Davos Forum is a slave master's club where the dark forces and the CCP collude to enslave the whole world.<br/><br/>1/19/2022 文贵直播：中共老杂毛在达沃斯给世界开药方，让中国人遭殃，最终轮到他们自己身上；习说的“溢出效应”有何意？达沃斯论坛是黑暗势力和中共勾结以奴役全世界的奴隶主俱乐部<br/>
@@ -147,13 +154,6 @@
 
 1/17/2022 Miles Guo: The lawsuit between Pacific Alliance and me is a life and death fight between the CCP and me - the CCP filed the lawsuit against me one day before VOA cut my broadcast on April 19, 2017, and the CCP sent Liu Yanping and Sun Lijun to threaten me not to blow the whistle. What is the relationship between Pacific Alliance and Bruno Wu? How do the law firm where Edward Moss worked previously and the judge in the Pacific Alliance case have to do with the CCP?<br/><br/>1/17/2022 文贵直播：太平联盟案就是文贵与中共的生死之战 - 中共在VOA 419断播前一天便发起诉讼并先后派出刘彦平和孙力军威胁文贵；太平联盟和吴征有何关系？Edward Moss之前的律所和太平联盟案的法官与中共有何关联？<br/>
 ![img](https://media.gettr.com/group18/getter/2022/01/18/03/28aaaa82-6faa-987d-c52b-29f986d2d024/out.jpg)
-
----
-
-`@miles 1/18/2022 1:49 AM (UTC)`
-
-1/17/2022 Miles Guo: I am fighting the world's biggest lawsuit manipulated by the CCP! Bradley J. Bondi, who had represented me and our fellow fighters before, had Edward Moss, who is representing Pacific Alliance, join Cahill Gordon & Reindel LLP to work together against me. Both of them were disqualified as the plaintiff’s counsel due to their serious violations of professional ethics.<br/><br/>1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量！曾代理文贵和战友的Bondi律师让太平联盟的律师Edward Moss跳槽到Cahill律所并一同针对文贵，他俩因判严重违反职业道德而被踢出局<br/>
-![img](https://media.gettr.com/group29/getter/2022/01/18/01/d6e3b3a1-e886-46f4-ca63-479b53ce31b8/out.jpg)
 
 ---
 
