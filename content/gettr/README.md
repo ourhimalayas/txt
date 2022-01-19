@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 3:47 AM (UTC)`
+
+1/18/2021 Miles Guo: The CCP has infiltrated the whole world’s judicial system by posing threats and implementing the BGY plan, but the US and the rest of the world will wake up for sure. It’s said that the forced confession made by Sun Lijun in the Zero Tolerance documentary showed Xi Jinping giving in to the four major forces of Jiang Zemin, Meng Jianzhu, and Wang Qishan. What will happen after Xi’s speech at Davos and the Winter Olympics?<br/><br/>1/18/2021 文贵盖特：中共使用威胁和蓝金黄对全球司法界实行渗透，美国和全世界一定会醒来！听说孙力军的《零容忍》认罪是习向江曾孟王四大势力妥协的结果，冬奥会习太阳的达沃斯讲话后会发生什么事情呢？<br/>
+![img](https://media.gettr.com/group3/getter/2022/01/19/03/be8a3828-5615-e96b-4f7a-0d5c550b7a11/out.jpg)
+
+---
+
 `@miles 1/19/2022 2:08 AM (UTC)`
 
 1/18/2021 Miles Guo’s GETTR: How powerful Weijian Shan and Edward Moss really are? In the past five years, why is it that the CCP’s unrestricted lawfare, the smear campaigns, and the attacks on me and the Whistleblowers’ Movement all happened at roughly the same time? Are these just coincidences?<br/><br/>1/18/2021 文贵盖特：单伟建和Edward Moss到底有多大的能耐？过去5年里，为什么中共对文贵和爆料革命的法律超限战以及污蔑与攻击几乎都在同时发生？难道这仅仅是巧合吗？<br/>
@@ -147,13 +154,6 @@
 
 1月17号：尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己有尊严和有价值的活着的唯一办法！
 ![img](https://media.gettr.com/group7/getter/2022/01/17/22/2da2aa57-3543-9855-7232-2e827913fda9/out.jpg)
-
----
-
-`@miles 1/17/2022 5:35 PM (UTC)`
-
-Dr. Geert Vanden Bossche (Virologist-Vaccinologist):<br/>The mass vaccinations are generating a breeding ground for even more infectious variants to replicate and the CCP virus will escape. If the COVID vaccines cannot prevent the transmission, this pandemic cannot be controlled. Vaccinations will be at risk of inducing autoimmune responses, autoimmunity in children. So under no single circumstance should you allow to get your child vaccinated.<br/><br/>Geert Vanden Bossche 博士，病毒学家-疫苗学家：这种大规模的新冠疫苗接种正为更具传染性病毒变种的复制制造温床，中共病毒将逃逸。如果新冠疫苗不能防止传播，就不能控制这种大流行病。接种新冠疫苗有诱发儿童自身免疫反应的风险。在任何情况下，你都不应该允许自己的孩子接种新冠疫苗。
-![img](https://media.gettr.com/group5/origin/2022/01/17/17/30e1fd9c-69ae-fb49-c6dd-f99096d941e2/out.jpg)
 
 ---
 

@@ -2,31 +2,32 @@
 ---
 
 
-## 研究人员发现，感染中共病毒会对人体免疫系统造成长期影响
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876498/)
+## 报道台湾遭中共抗议 印度主播表示不听命于任何政府
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1875996/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒 16日报导，澳洲一名31岁的女护士自去年7月感染中共病毒后，即使已经过治疗，但身体仍然受到病毒副作用的折磨。早前她被确诊患上姿势直立性心动过速综合征和周围神经病变，之后病情就急速恶化，目前她已经几乎不能行走，并且有吞咽困难的状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-56.jpg)
-这位女护士的不幸经历得到不少网友的认同，许多感染过中共病毒的人，一段时间后都患上各种不同的慢性疾病。这与早前澳洲临床医学小组的观察不谋而合，研究人员发现，感染中共病毒会对人体免疫系统造成长期影响。
+#### **撰稿：**日本东京方舟农场 子辰
 
-参考链接：[研究人员发现，感染中共病毒会对人体免疫系统造成长期影响](https://au.yahoo.com/news/woman-with-long-covid-now-struggles-to-swallow-034618820.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DA5308D3-A304-4CE5-910D-D9ACCD971543.jpeg)（图片来自《大纪元》）
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+据《大纪元》1月16日报道，《今日印度》电视台因为播出了台湾特别节目，并访问了中华民国驻印度代表葛葆萱。
 
-总编：飞虹
-编辑：天滅中共
-校对/发稿：Hetangyuese
+这期节目介绍了台湾在全球供应链所扮演的重要角色，并讨论印度与台湾的经贸及科技合作前景。后据中央社报导，《今日印度》电视台1月8日在《今日世界》节目首播后，又重播了3次，随即收到中共驻印度大使馆向电视台提出的抗议。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+中共大使馆抗议函中斥责电视台称葛葆萱为“大使”，以及出现青天白日满地红国旗，要求电视台遵守“一个中国原则”（One-China principle）。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+电视台女主播莫汉在推特回应说，《今日印度》不听命于任何国家或政府的指示，“我们是独立的新闻网，会对任何国家做我们认为适当的接触或报导。”
+
+此外，印度英语电视台《寰宇一家》（WION）去年11月底播出“台湾：良善力量与坚毅精神”（Taiwan: A Force for Good and the Spirit of Resilience）专辑，同样收到了来自中共大使馆的抗议。
+
+*参考链接：[报导台湾遭中共抗议 印度主播：不听命任何政府](https://www.epochtimes.com/gb/22/1/15/n13507022.htm)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
 
  
 

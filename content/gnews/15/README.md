@@ -2,27 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月18日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1878054/)
+## 微软宣布：将以690亿美元现金收购动视暴雪，成为第三大游戏公司
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1878124/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0118text-SC.png)
-校对：Stay文苑
+撰稿：追着曙光跑
 
-编辑：Stay文苑
+据路透社1月18日的报道， 美国当地时间周二微软(MSFT.O)宣布，将以687亿美元收购《使命召唤》出品商动视暴雪(Activision Blizzard)(ATVI.O)，成就史上最大规模的游戏行业收购交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-19-at-12.25.54.jpeg)图片来源：网络
+这项交易也是微软历来的最大手笔收购，并将成为有记录以来金额最高的全现金交易，将增强微软在蓬勃发展的电子游戏市场中的战斗力，将成腾讯、索尼之后的第三大游戏公司。
 
-发稿：Stay文苑
+受此消息影响，动视暴雪周二大幅收高26%，报82.31美元，仍远低于微软以95美金收购报价。微软股价走势低迷，截至收盘，下跌2.43%，报价302.65美元。
 
-视频参看：[1.18  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e7692d533c672fca7f104b)
+然而，一位熟悉此事的消息人士称，如果交易失败，微软将支付30亿美元的分手费。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-13.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息来源：[微软将以690亿美元收购动视暴雪 成为第三大游戏公司](https://mobile.reuters.com/article/amp/idCNKBS2JT022)
 
  
 

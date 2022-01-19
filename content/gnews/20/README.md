@@ -2,60 +2,28 @@
 ---
 
 
-## 香草山农场医疗部发布最新中共病毒防治方案解读
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877958/)
+## 斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877973/)
 
-作者：纽约香草山农场医疗部 – Zion文恩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-26.jpg)斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处 网络图片
+据美国之音1月19日报道，斯洛文尼亚总理亚内兹∙扬沙赞扬台湾是一个尊重国际民主标准和国际法的“民主国家”，并称正与台湾商谈互设贸易代表处。扬沙未透露谈判进行到哪一步，也没有说明斯洛文尼亚是否会步立陶宛的后尘，用“台湾”的名义在斯洛文尼亚设立代表处。扬沙对北京阻止台湾参与世卫组织（WHO）表示遗憾，强调台湾未来的统独问题应该由台湾人民自己决定。
 
+台海与中共国一直分治分离，互不隶属。但北京一直视台湾为其领土主权的一部分，誓言即使动武也要实现两岸的统一。北京一直在国际上孤立台湾，一方面反对其邦交国与台湾发展任何有官方性质的关系，另一方面则阻止台湾参与很多重要的国际组织。世界上有很多国家以“台北”的名义在本国设立台湾代表处。立陶宛是第一个以“台湾”的名义设立代表处的北京邦交国，因此遭到北京的政治打击和经济制裁。
 
+中共霸凌台湾很多年，现在又试图孤立和打击立陶宛。斯洛文尼亚总理的表态很可能会激怒中共，但是国际社会和民主国家与台湾的理念一致，与中共是本质上的不同和对立。中共的狂妄和傲慢以及通过病毒和疫苗对全球的伤害，会让整个世界联合起来，共同对抗中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新闻参考链接：[https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html](https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html)
 
+* * *
 
-
-当前，“中共病毒”奥米克戎变异毒株在全球肆虐。与过往其他变异毒株相比，尽管奥米克戎引发的重症风险较低，但其极高的传播能力不容忽视，过去三周，全球新增感染人数激增，美国更是屡次刷新单日新增感染人数的百万新纪录。
-
-与此同时，考虑到全球各喜马拉雅农场不幸染疫的战友及家人也逐步增多，香草山农场医疗部近日分别更新了“中共病毒”预防和早期治疗方案，希望为广大战友进一步普及防疫和一般用药常识。
-
-首先，关于预防及早期治疗方案的解读基础，均来自于美国非盈利医生组织“前线COVID-19重症监护联盟”FLCCC的I-MASK+方案，并适当结合当下“奥米克戎”毒株的临床特征。该方案推出至今已获有了广泛好评。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-59.jpg)
-鉴于伊维菌素在许多国家和地区越来越难以获得，在最新的预防方案中特别新增了一条替代选项，膳食补充剂：黑孜然籽油。
-
-据多项动物研究和临床试验表明，黑孜然籽油的活性成分百里醌，能够有效抑制“中共病毒”，并加速患者的康复。而作为预防用途时，也可与伊维菌素协同使用，达到事半功倍的效果。
-
-值得留意的是，黑孜然籽油会与苯妥英、芬太尼、环孢菌素等药物发生明显的相互作用，有使用相关药物的患者注意避免同时服用。
-
-另外，在早期治疗方案中，针对奥米克戎毒株，早期病征发生时，伊维菌素的使用剂量修正为0.3至0.4毫克每公斤体重；若用药时间迟于症状出现的五日后，剂量可酌情增加至0.4至0.6毫克每公斤体重。
-
-与此同时，早期治疗方案还增加了孕妇及哺乳期妇女使用羟氯喹替代伊维菌素的治疗建议，根据一项临床研究显示，相比伊维菌素，羟氯喹对孕妇和哺乳期妇安全性较高。 最后，必须提醒各位观众，无论是黑孜然籽油、姜黄素等营养支持，还是益生菌、槲皮素、维生素D、维生素C等协同疗法，都是预防和早期治疗中共病毒的初步建议，由于科学的局限性以及个体差异，香草山农场医疗部呼吁用药时应合理使用、谨慎对待。目前所推出的方案解读，仅是医药卫生科普和一般性建议，不能作为医嘱处方或用药指导，更无法为FLCCC所推出的方案承担任何法律责任。请广大战友以所在地的法律法规为基准，在专业医护从业人员的指导下合理防治中共病毒。
-
-参考信息：
-1.[預防新冠病毒 口服藥物解說——伊維菌素篇(2022年1月11日更新)](https://gnews.org/zh-hant/1851804/)
-2. [早期新冠病毒感染 治療解說：一線用藥篇 (2022年1月15日更新)](https://gnews.org/zh-hant/1868075/)
-3. [为了便于战友们及时对症选择适合有效的病毒早期居家治疗方案，特将FLCCC梳理的“中共病毒”(COVID-19)病程及备选治疗药物翻译如下图。注：请不幸染病的战友密切关注血氧饱和度，一旦血氧饱和度低于94%需立即就医，低于90%需立即赶往急诊](https://gettr.com/post/potjld8d36)。
-4. [FLCCC 新型冠状病毒肺炎（COVID-19)预防与治疗指引 (繁体）](https://covid19criticalcare.com/wp-content/uploads/2021/06/FLCCC_Alliance-I-MASKplus-Protocol-CHINESE-Traditional-%E7%B9%81%E9%AB%94%E4%B8%AD%E6%96%87.pdf)
-5. [Front Line COVID-19 Critical care alliance prevention & Treament Protocols for COVID-19](https://covid19criticalcare.com/wp-content/uploads/2020/12/FLCCC-Protocols-%E2%80%93-A-Guide-to-the-Management-of-COVID-19.pdf)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

@@ -2,21 +2,22 @@
 ---
 
 
-## 雅典娜时报-第178期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1878067/)
+## 北美铁路工人或因极端劳工政策而罢工
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1878134/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+加拿大温哥华扬帆农场    平民正道
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/933160412424323142/155_2.png?width=423&amp;height=630)![圖片](https://media.discordapp.net/attachments/825592691433668612/933160412852150272/155_3.png?width=423&amp;height=630)
-*发布：陶子*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据加拿大媒体【后千禧年】1月17日报道，北美火车工人近期或因[BNSF铁路公司]最新发布的严格出勤规定而罢工。为此，工会领导人称规定是“任何铁路运营商都无法接受和采用的最恶劣劳工政策”。
+
+报道称，“新冠病毒”疫情的长期影响导致了北美铁路运输行业的劳工短缺，大部分仍被迫在岗的雇员不得不超时工作。由于最新出勤政策的限制性和惩罚性过强，因此工会正在收集员工的民意以达到抗议并撤销以上新规的目的。
+
+据悉，[BNSF铁路公司]是北美最重要的货运公司之一，在美国28个州和加拿大三个省拥有3.25万英里的铁路网络。该公司也是大宗商品和生产材料的顶级运输商，并在美国，加拿大乃至世界各地的供应链经济中具有举足轻重的作用。
+
+对于可能即将发生的大罢工，运输业内人士分析指出，此次工会的反对行动对北美政治和经济的影响将是灾难性的，并可能导致该地区现有的庞大供应链因此而中断。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
