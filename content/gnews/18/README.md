@@ -2,18 +2,16 @@
 ---
 
 
-## 西媒头条 — 第156期 &#8211; 西媒要闻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1879904/)
+## 达沃斯为何成为中共倒闭论坛
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1880083/)
 
-**制作：蚂蚁兄弟**
+——文贵大直播20220119
 
-**关注西班牙语媒体每日新闻焦点，真实了解西方社会 **
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220119.001.jpeg)
-***发稿：信心满满***
+撰稿：ILOVE战神（文凡）（香草山）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
-
+美工：青山（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-4.png)
+*发布：Theodosia*
 
  
 

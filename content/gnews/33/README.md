@@ -2,73 +2,33 @@
 ---
 
 
-## 参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879599/)
+## 2022/01/18 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1879712/)
 
-Senator Roger Marshall On Fauci’s Financial Records
-参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+1. 1月17日，天津。老百姓居住的小区一旦被中共政府定义为风控区后，市民即会全员被封锁在家中，门口贴上电磁警报受到政府严密监控。
+2. 1月15日，陕西一地出台奖惩制度劝在外人员不返乡：前三名的村奖1千，后三名的村罚1千。
+3. 在外省劳务春节回家的市民，基本上要被当地政府锁门囚禁居家隔离。
+4. 1月17日，关于隔离的政策各地政府执行不一，湖南一外省回家务工人员已被政府囚禁隔离五天，政府无法拿出统一合理的行政法规。
+5. 更有甚者，社区出台奇葩规定，以防控疫情为由，禁止夫妻之间亲嘴搂抱。
+6. 1月13日，陕西西安。有些小区封控已接近一个月，市民几近崩溃。视频中被隔离市民高声向街道行人寻问解除隔离的方法。
+7. 疫情政策下，小区物业的“执法”权力亦会大增。陕西西安一男子自称物业公司领导，冲核酸检测居民大吼，“租户没有权利说话！”。
+8. 1月14日，湖北武汉。家属因怀疑CT导致患儿有盆腔肿物，将武汉儿童医院一医生砍伤。
+9. 1月15日，四川宜宾。四川山川秀美的自然环境，市民喝的却是如此浑浊的自来水。
+10. 1月15日，黑龙江牡丹江。患者家属因治疗费用选择放弃了大出血老人的治疗，医生觉得患者能救活，独自遗憾落泪。
+11. 1月13日，河南安阳。一男孩小区垃圾桶翻食物吃被市民拍到。社区书记解释孩子患有智残，尚有监护人社区无能为力。
+12. 1月16日，四川乐山，山里娃拿出瓜子送老师。网友感叹农村孩子眼神中透露着清澈。
 
-Why do you think that Fauci lied last week sir?
-你为什么认为上周福奇撒谎了？
-
-John, I guess several people said we are over the target so to speak
-约翰，我猜有几个人说我们偏离了目标
-
-We’ve exposed him in my opinion. he had misled or lied to Congress on three different issues in that particular hearing
-在我看来，我们已经揭露了他。在那次听证会上，他在三个不同的问题上误导或向国会撒了谎
-
-He lied to Rand Paul on one of his questions about covering this all up
-他在一个关于掩盖这一切的问题上对兰德.保罗（Rand Paul）撒了谎
-
-He lied to Congress about gain of a function and then about his financial accountability
-他在功能增强（实验项目）这个问题上向国会撒谎，然后就他的财务责任撒了谎
-
-Look, we asked him a very simple question: Will you please share with Americans your financials?
-看，我们问了他一个非常简单的问题：您是否能与美国人民披露您的财务状况？
-
-This is a common question I get from people, as why does doctor Fauci believe only in vaccines?
-这是我从人们那里得到的一个常见问题。就像为什么福奇（Fauci）博士只相信疫苗？
-
-Why doesn’t he acknowledge natural immunity?
-为什么他不承认自然免疫？
-
-Why doesn’t he acknowledge hydroxychloroquine or zinc or ivermectin, and they said what about his finance?
-为什么他不承认羟氯喹或锌或伊维菌素？他们想知道他的财务状况如何？
-
-We’ve been trying to get them
-我们一直在努力找到这些信息
-
-He lied to Americans said that they are publicly available, and they weren’t
-他对美国人撒谎说这些信息是公开的，但事实并非如此
-
-And now we’ve got that, and people can go to our website Marshall.senate.gov and review Dr. Fauci’s financials
-现在我们已经找到了。人们可以访问我们的网站Marshall.senate.gov. 并查看 福奇（Fauci） 博士的财务状况
-
-And they are going to see that he made 1.7 million dollars last year, in 2020. Excuse me 1.7 million dollars in 2020.
-他们将看到他去年在2020年赚了170万美元。对不起，2020年赚了170万美元
-
-While America was shut down. He made 1.7 million dollars, significant investment in China. We will let Americans decide.
-在美国被关闭期间，他赚了170万美元，在中国进行了重大投资。我们将让美国人自己来判断
 
 * * *
 
-Date: 1/17/2022
-原视频标题: Senator Roger Marshall On Fauci’s Financial Records
-参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
-原视频日期：1/17/2022
-原视频链接: [**https://twitter.com/realamvoice/status/1483240267649982464?s=24**](https://twitter.com/realamvoice/status/1483240267649982464?s=24)
-任务编号：KE355（3521）
-视频时间段 : 0:00-01:00
-中听校：洛杉矶盘古农场 -海潮
-翻译：洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

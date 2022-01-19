@@ -2,20 +2,36 @@
 ---
 
 
-## 文贵大直播精要0117——共产党操作的案子
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1880146/)
+## 泽连科医生指出 接种疫苗将造成民众死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880283/)
 
-- 听写：苹果树 佐拉 yueshangliushao#4185 神奇四侠
-- 简写：大明
-- 审核：舒平风
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/泽连科.jpg)
+泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
 
+此外，泽连科医生还提到，在接种过中共病毒疫苗的短期内，年轻的接种者或将因此产生心肌炎而住院，其中，妊娠初期的女性接种者还有极高的概率出现流产现象。
 
-这个在纽约法院的官司是共产党一手操作的，代表打官司的全是共产党的走狗。从官司的第一天，就被违法操作。我4月19日参加VOA的直播采访，被爆料的当事人王岐山和海航是PAG的股东和合作者。4月18日，PAG子公司的PAX递交了上诉书。3月份，刘彦平就警告我不许参加VOA的采访。其后孙立军也一再警告我说，“你要敢参加VOA,就会让你在全世界上没有任何生存的机会，会拿走你家族和你的一切的东西，让你睡在马路上。”
+至于中长期的疫苗不良反应，泽连科医生补充道，中共病毒疫苗会提高接种者自体免疫疾病的发生概率，并增加他们患癌的风险。同时，女性接种者会出现卵巢不育或孕育功能障碍，而男性则会出现精子数量减少的现象。
 
-吴征在2015年宣称，要让我倾家荡产，拿走一切，并把我的同事家人抓走。他是PAG子公司的PAX的最大投资者和合作股东。腾讯音乐百分之百的股东曾经是PAX，吴征在里边串通起来。PAG的律师Edward Moss和Bradley J. Bondi是美国最顶尖的，Edward Moss在北京和上海都有律师事务所，他叔叔就是跟马云以及共产党有合作，而Bradley J. Bondi曾经是GTV的律师。前几天他们被美国最高的3家律师职业道德评估机构认定利益冲突，而被纽约法院取消了他们代表太平联盟起诉我的诉讼资格。
+泽连科医生最后提出，中共病毒疫苗带来的最大隐患则为接种者在三个月到三年间出现的亚急性抗体依赖增强作用现象。当个体受到具有相似抗体的病毒攻击时，疫苗将造成接种者快速死亡。
 
-2017年美国司法部的被外国机构行贿和腐败的案例就是针对我的，这是美国几百年建国历史当中出现过的司法部最大腐败案件。背后操作者有共产党的王岐山、孙力军、吴征、单伟建等，PAX则全面参与，涉案者还有黑根巴瑟姆（George Higginbotham）、美国赌场大佬史蒂芬·文（Steve Wynn）和艾迪博迪（Elliott Broidy）、妮克拉姆·戴维斯这个中共在美国的双胞胎间谍，等等。司法部都被买通了，法院还有律师，还有买不通的吗？
-![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
+参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编: Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
