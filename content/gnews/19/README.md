@@ -2,36 +2,32 @@
 ---
 
 
-## 有声|中共病毒疫苗被质疑按毒性水平标注批次
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878532/)
+## 秘翻在线：上海警方针对民用无人机开展整治行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1878563/)
 
-配音：香草山农场 – 纳米
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月14日，外媒报道，对美国公共数据的分析显示，因接种中共病毒“实验性”疫苗，而导致不良反应的事件，与部分批次的疫苗含有高剂量致命毒素有关。
+**撰稿： 葛大饼**
 
-去年11月，有研究人员从美国的疫苗不良事件报告系统（VAERS）中提取数据，并发现，中共病毒疫苗在每200批次，就有一批含有高毒性。据分析师称，这些含有剧毒的疫苗，分为不同的批次，甚至根据毒性高低标记为不同的标签。目前高毒性批次已被广泛分散到美国各州。这可能严重违反了要求此类产品具有一致性的联邦法规。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-19-122529.jpg)图片来自OFweek
+据《东方网》1月18日报道， 2022年1月17日晚，上海普陀公安分局长寿路派出所民警通过视频巡逻发现一名吴姓机主在施放无人机，民警第一时间赶赴现场进行处置，因吴某未进行实名登记和施飞报备，民警对其进行了教育告知。
 
-原文链接：[中共病毒疫苗被质疑按毒性水平标注批次](https://gnews.org/zh-hans/1871830/)
+警方提醒广大市民， 违规施放民用无人机等“低慢小”航空器是会严重干扰公共秩序的，市民如发现违规线索可以向公安机关举报。
 
-音频处理/发稿：Daxia
+关于上海行政区域内施放无人机操作步骤指引如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+1）在初次购买无人机等“低慢小”航空器后， 登陆中国民用航空局无人机实名登记系统 ，将自有飞行器的序列号等信息录入，并绑定自己的身份信息，进行实名制登记；
 
-**更多资讯，更多关注**
+2）完成实名制登记后，登陆本市公安机关“智能无人机管理服务系统”  录入无人机的品牌、型号、飞控序列号等信息注册。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+3 ）每次施放无人机前，需要报备本次飞行的具体时间、区域、高度。只有报备的飞行计划被系统接受后才可以正常施飞。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+郭先生曾在1月11日盖特爆料，北到黑龙江，南至上海杭州，中共国多地即将开始大戒严。 共产党用强硬手段“清零”病毒，结果病毒遍地开花，1月15日各大媒体爆出奥米炕病毒入侵上海，上海大学生“大逃亡”的新闻**。**中共管制无人机显然也是收紧管控力度，即使是在中共国相对自由度最高的上海，最终任何人都不会例外，老百姓将被网格化管理，剥夺任何可能了解真相的方式和渠道。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**参考链接：**
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://j.021east.com/p/1642491198049780](https://j.021east.com/p/1642491198049780)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[https://www.orientaldaily.com.my/news/international/2022/01/15/462102](https://www.orientaldaily.com.my/news/international/2022/01/15/462102)
 
  
 

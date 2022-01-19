@@ -2,16 +2,16 @@
 ---
 
 
-## 夏威夷考虑将加强剂纳入完全接种疫苗的考量标准
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876500/)
+## 抗议疫苗暴政 歌曲被YouTube迅速下架
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876501/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒 18日报道，夏威夷州州长在接受采访时表示，政府正考虑提高完全接种者的门槛，要求国内旅客必须接种完中共病毒疫苗加强剂之后，才能被视为完全接种者，否则将面临隔离，他指出，该政策暂时不会生效，使民众有足够时间适应。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-3.jpg)
-按照现行规定，完全接种疫苗的国内旅客在进入夏威夷之后，可以豁免为期五天的强制隔离期，而未完全接种者必须在前往该州后的一天内提供病毒检测阴性证明。截至目前，夏威夷州中共病毒疫苗的完全接种率已达75.2%。
+获奖无数的加拿大音乐人 Matt Brevner 近日在 youtube 上，上传了一首新歌 more of us，歌曲婉转控诉了加拿大政府在中共病毒大流行期间，对民众施行的疫苗暴政，以及对医护工作者的不公对待，包括超时工作，强制疫苗等等。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-4.jpg)
+歌曲上线后受到网民追捧，迅速成为热门，同时也引起加拿大当局和 youtube 后台的关注。目前，youtube 平台以涉嫌煽动暴力和传播虚假讯息为由，已将歌曲下架。
 
-参考链接：[夏威夷考虑将加强剂纳入完全接种疫苗的考量标准](https://www.foxnews.com/politics/hawaii-weighs-requiring-booster-for-travelers-to-be-considered-fully-vaccinated?utm_source=ground.news&amp;utm_medium=referral)
+参考链接：[抗议疫苗暴政 歌曲被YouTube迅速下架](https://thenationalpulse.com/2022/01/17/anti-vaxx-mandate-song-more-of-us-deboosted-from-youtube/)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 

@@ -2,21 +2,25 @@
 ---
 
 
-## 抗议疫苗暴政 歌曲被YouTube迅速下架
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876501/)
+## 美军高官接种加强针后陆续检测出中共病毒阳性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876502/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-获奖无数的加拿大音乐人 Matt Brevner 近日在 youtube 上，上传了一首新歌 more of us，歌曲婉转控诉了加拿大政府在中共病毒大流行期间，对民众施行的疫苗暴政，以及对医护工作者的不公对待，包括超时工作，强制疫苗等等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-4.jpg)
-歌曲上线后受到网民追捧，迅速成为热门，同时也引起加拿大当局和 youtube 后台的关注。目前，youtube 平台以涉嫌煽动暴力和传播虚假讯息为由，已将歌曲下架。
+外媒1月17日报道，美国参谋长联席会议主席马克·米利将军的中共病毒检测呈阳性，成为本月最新一位感染中共病毒的国防部高级官员。
 
-参考链接：[抗议疫苗暴政 歌曲被YouTube迅速下架](https://thenationalpulse.com/2022/01/17/anti-vaxx-mandate-song-more-of-us-deboosted-from-youtube/)
+联合参谋部发言人戴夫·巴特勒上校发表声明说，米利将军已经接种了疫苗，包括加强针。目前他正在远程工作，仍然能够履行他的所有职责，并将自己与其他人隔离开来。声明补充说米利最近一次与拜登总统接触是在周三。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-5.jpg)
+另外，海军陆战队也于1月17日表示，其最高统帅大卫·伯杰的检测结果也呈阳性。官员们在一份简短的声明中称他的职责不会受到影响。
+
+报道称，该声明和米利的阳性测试报告都没有披露他们是否感染了最新的中共病毒变种，但这两名官员确实是在奥密克戎在美国爆发后出现了症状。
+
+参考链接：[美军高官接种加强针后陆续检测出中共病毒阳性](https://www.washingtonpost.com/health/2022/01/17/mark-milley-covid-positive/)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
 总编：飞虹
-编辑：天滅中共
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

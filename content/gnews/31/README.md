@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|前总统川普强烈反对疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878326/)
+## 【中日财经爆】5G问题必将导致物价上涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1878346/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月17日，郭文贵先生在盖特中转发了美国前总统川普最近一次集会演讲的视频，视频中川普表示，他强烈反对任何形式的疫苗强制令。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-42.png)[图片来源](https://news.yahoo.co.jp/articles/2b5f4f579ffd451d13aa0df506798059d1375b2d/images/000)
+18日，全日空和日本航空宣布，由于可能受到美国高速、大容量通信标准5G的影响，他们将取消日本和美国之间的部分航班。5G无线电波可能导致仪器和系统的故障，尤其是波音777飞机在低空飞行时控制姿态的系统存在故障的风险。
 
-在集会演讲中川普说，应该让美国企业主和美国人民，自己做决定是否注射疫苗。美国人不需要政府来为自己的健康做选择。川普说，强制疫苗令对疫情也没有起到作用，纽约州的现实情况表明，实施疫苗强制令就是一场灾难，加州也同样如此。虽然这些州实施了宵禁，尽可能不让人们出门，但仍然没有制止疫情扩散。川普还讽刺了纽约州长库默的做法，谴责库默在电视上胡言乱语。
+由于中共病毒（新冠病毒Covid-19）疫情的影响，取消航班对客运的影响是很小的，但对主要的货运航空公司的影响却很大。
 
-川普自豪地表示，他是反对疫苗强制令的总统。他说共和党不仅在德州和佛州取得了巨大成功，在整个疫情期间，几乎所有共和党的州都很成功。川普强调说，他永远反对任何形式的疫苗强制令，而且人们必须这样做，因为事实证明强制令是无效的。
+这两家航空公司在美国航线上的航班是大型波音777飞机。波音777是拥有最大货运能力的飞机，比空客A380这种双层飞机的货运空间还要大。波音777-300ER（客机）可以携带大约20吨的货物。波音777F货机可运载约102吨货物。
 
-文字版原文：[前总统川普强烈反对疫苗强制令](https://gnews.org/zh-hans/1874133/)
+岛国日本，空运和海运路线都面临着巨大的困难，国计民生都要被波及，因此尽早解决5G无线电波问题是当务之急。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+信息源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+[ボーイング７７７、「５Ｇ」で制御システム誤作動の恐れ…全日空・日航が米国便一部欠航](https://news.yahoo.co.jp/articles/2b5f4f579ffd451d13aa0df506798059d1375b2d)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
