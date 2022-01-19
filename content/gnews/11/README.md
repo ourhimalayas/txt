@@ -2,37 +2,32 @@
 ---
 
 
-## 中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(二)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1881217/)
+## 有声|GTV新闻访谈简报|2022年1月17日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881277/)
 
-翻译：土饭团
+配音：香草山农场 – 纳米
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-19-203830.jpg)图片来源:`google .es
 
-但中共国正在反击欧洲国家与台北发展关系的主权权利。作为对立陶宛此举的回应，中共国对这个欧洲小国发动了一连串经济胁迫，限制其出口，立陶宛企业已经在中共国港口付款的一千多个集装箱的货物被困，在立陶宛和其他国家造成供应链和现金流危机。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0117text-SC-1187x1536-1.png)
+文字版原文：[GTV新闻访谈简报|2022年1月17日晚](https://gnews.org/zh-hans/1873524/)
 
-中共国正在欺凌一个北约盟国和欧盟成员国，以影响其主权经济和政治决策。这是对自由世界的一个考验。如果我们让立陶宛独自面对北京，这种经济胁迫的超级武器将指向其他国家，迫使民主国家屈从于北京的意愿。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-在短期内，我们应该向立陶宛提供贷款以缓冲经济中断的影响；欧盟应该发出信号，表明中共国的行为正在扭曲欧盟的整个单一市场，并采取反制措施予以回应。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-欧盟正在努力创建一项反胁迫文书，这将为其提供工具以回击这种行为。但欧盟真正的挑战不在于其是否拥有正确的法律文书；而在于是否有足够的政治意愿来捍卫立陶宛做出自己选择的权利。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-从长远来看，自由世界可以建立“经济第5条”，以遏制中共国滥用战略投资和经济胁迫达到地缘政治目的。北约著名的第5条规定，对一个盟友的攻击就是对所有盟友的攻击。同样，“经济第5条”将使志同道合的民主国家—不仅仅是北约盟国，而是更广泛的全球联盟—做出回应，支持面临专制国家经济胁迫的国家或企业。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-北京利用其经济实力来勒索国家和企业，因为它很有效。从质疑侵犯人权行为后面临抵制的快时尚品牌，到政府关系恶化后面临巨额关税的澳大利亚葡萄酒制造商，这种做法都很有效。俄罗斯还利用经济杠杆来实现地缘政治目标，特别是通过将其天然气供应武器化。我们需要化解独裁国家这些策略的影响。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-欧洲和美国在印太地区也有共同的利益：尽可能的保持其自由、开放和民主。欧洲在这方面的作用可能不是派遣一支航母舰队（尽管其参与了航行自由任务）。但其也可以提升与台湾的政治和经济关系，例如，在欧盟寻求与中共国达成协议时，解除被搁置的双边投资协议。鉴于台湾在半导体等高科技领域拥有大量资产，升级经济关系也同样符合我们和台湾的利益。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-欧洲和美国应该共同寻求对中共国的新方法—拜登政府甚至在其就职前就向欧盟提出了这样的建议。我们与台湾的关系不应该仅仅局限于军事支持或一项具体的投资协议；它切中了我们是否愿意在一个自由和民主都受到专制和独裁越来越大压力的地区站出来支持的问题。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-新闻来源:`[newsweek.com] [China Is Using Economic Coercion as Blackmail. The US and EU Must Fight Back | Opinion](https://www.newsweek.com/china-using-economic-coercion-blackmail-us-eu-must-fight-back-opinion-1667958)
-
-* * *
-
-*审核：蚂蚁兄弟
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

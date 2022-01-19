@@ -2,31 +2,21 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月17日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881277/)
+## 加拿大对货运司机的疫苗护照严重破坏供应链
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1881446/)
 
-配音：香草山农场 – 纳米
+加拿大温哥华扬帆农场    平民正道
 
+据加拿大[CTV新闻]1月14日报道：联邦政府针对加拿大货运卡车司机的疫苗护照要求将给该国卡车运输行业造成极大混乱，并将使那些正在运输途中的司机陷入困境，而最终严重影响加拿大和美国的货物供应链。
+报道称，[加拿大卡车协会]当天呼吁当局，对此前已被派遣上路的未接种疫苗的卡车司机进行临时性接种豁免，以避免他们因此将在美加边境被迫隔离或提供病毒测试的阴性证明文件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0117text-SC-1187x1536-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月17日晚](https://gnews.org/zh-hans/1873524/)
+目前，特鲁多政府已宣布，所有未接种的卡车司机都将不会获得接种豁免。并仍然要求从美国进入加拿大的卡车司机都必须完全接种疫苗。而美国从1月22日起，将对任何越境进入美国的货车司机实施类似的规定。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+据悉，加美之间的年贸易总额接近6500亿加元，其中约80%是通过卡车运输的。该行业目前约有15%的司机未接种疫苗。因此，估计将有1万2千名加拿大卡车司机和数千名来自美国的卡车司机将被迫离开跨境运输路线，并因此将严重波及两国的物流供应链。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 
