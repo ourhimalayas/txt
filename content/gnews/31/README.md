@@ -2,25 +2,31 @@
 ---
 
 
-## 英国将冒险停止疫情限制以图恢复正常秩序
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1878318/)
+## 有声|前总统川普强烈反对疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878326/)
 
-采编：风云小哥         编译撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image-5.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=psx%2bnsLb&amp;id=EDB3FAE59FD41A7D01229D745DC63C204B0FE0A2&amp;thid=OIF.pUpcOd%2b72hM97exGKIuEcg&amp;mediaurl=https%3a%2f%2fs.france24.com%2fmedia%2fdisplay%2fb384b7c2-78be-11ec-b62f-005056a97e36%2fw%3a1280%2fp%3a16x9%2f2022-01-18T232115Z_1396062325_RC2O1S9K5MHE_RTRMADP_3_BRITAIN-JOHNSON.JPG&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.a6cc7e9ec2dbe5faafff560be74d190f%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=720&amp;expw=1280&amp;q=UK+Prime+Minister+Boris+Johnson%27s&amp;simid=232508054569&amp;FORM=IRPRST&amp;ck=A54A5C39DFBBDA133DEDEC46288B8472&amp;selectedIndex=1&amp;ajaxhist=0&amp;ajaxserp=0)
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月17日，郭文贵先生在盖特中转发了美国前总统川普最近一次集会演讲的视频，视频中川普表示，他强烈反对任何形式的疫苗强制令。
 
-据英国《每日电讯报》1月17日报道，英国首相[约翰逊]近期或将秉承“学会与新冠病毒共存亡”的信念，而逐渐取消包括自我隔离规则在内的大多数疫情限制措施。
+在集会演讲中川普说，应该让美国企业主和美国人民，自己做决定是否注射疫苗。美国人不需要政府来为自己的健康做选择。川普说，强制疫苗令对疫情也没有起到作用，纽约州的现实情况表明，实施疫苗强制令就是一场灾难，加州也同样如此。虽然这些州实施了宵禁，尽可能不让人们出门，但仍然没有制止疫情扩散。川普还讽刺了纽约州长库默的做法，谴责库默在电视上胡言乱语。
 
-报道称，英国政府将在未来几周内取消大部分卫生法规，包括自我隔离、保持社交距离和在某些场所配戴口罩等。虽然该国卫生部门仍然就公众的日常行为方式提供指导，但将不会再执行罚款或相关法律处罚，并同时放宽疫苗护照的使用限度。
+川普自豪地表示，他是反对疫苗强制令的总统。他说共和党不仅在德州和佛州取得了巨大成功，在整个疫情期间，几乎所有共和党的州都很成功。川普强调说，他永远反对任何形式的疫苗强制令，而且人们必须这样做，因为事实证明强制令是无效的。
 
-据悉，英国近期的疫情趋于缓和，日前的全国病毒确诊人数约为 7万例，低于头天的 82000例，并成为自上个月15日以来，最少的每日感染人数。同时，该国超过70%的人口已完全接种了疫苗，因此，首相约翰逊胆敢冒险取消疫情限制措施之举就不足为奇。
+文字版原文：[前总统川普强烈反对疫苗强制令](https://gnews.org/zh-hans/1874133/)
 
-校对编辑：硫酸羟氯喹64
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-[原文链接](https://www.skynews.com.au/world-news/united-kingdom/covid19-positive-selfisolation-laws-could-be-scrapped-in-the-uk-in-move-to-get-back-to-normal-as-soon-as-we-can/news-story/2e2e1e4791a50967bab3dc68f710913f)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,44 @@
 ---
 
 
-## 有声| 浅谈中国人的生育权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878518/)
+## 参议员罗恩•约翰逊追寻与COVID-19有关的政府信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878612/)
 
-配音：香草山健身部 – 玫瑰园
+据《justthenews.com》作者：Sophie Mann，2022年1月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1470-e1642567444842.png)图片源自 justthenews.com
+参议院常设调查小组委员会的最高共和党人罗恩•约翰逊（Sen. Ron Johnson）要求食品和药物管理局（FDA）以及疾病控制和预防中心（CDC）交出，与接受特定批次COVID-19疫苗的人遭受的不良反应有关的信息。
+
+约翰逊在信中提到了他从研究人员那里获得的信息，这些研究人员利用CDC的疫苗不良事件报告系统（VAERS）的公开信息，发现了某些批次的COVID-19疫苗与不良事件之间可能存在的关系。
+
+**威斯康星州共和党人写道：“利用VAERS数据，这些研究人员发现，在过去30年中，季节性流感疫苗在VAERS中报告的单一批次不良事件从未超过137起。形成鲜明对比的是，在不到一年的时间里，有5297起不良事件与单一批次的COVID-19疫苗有关。此外，186个批次的COVID-19疫苗有超过1000份的不良事件报告，另有70个批次的报告在500-999起之间。”**
+
+“研究人员的分析进一步表明，仅在美国报告给VAERS的COVID-19疫苗的不良事件中，约80%与报告给VAERS的约1%的疫苗批次有关，约80%的严重不良事件（涉及急诊室就诊、住院或死亡）与报告给VAERS的特定疫苗批次约5%有关。”
+
+约翰逊对这些机构对COVID-19疫苗批次进行的各种质量控制检查感到好奇，并对以前报告给VAERS的数字未能在早期促使“认真”调查表示非常沮丧。
+
+该信继续写道：“此外，向VAERS报告的COVID-19疫苗的不良事件和死亡总数在许多个月前，就应该促使进行认真的调查和纠正行动。正如联邦卫生机构所指出的，VAERS上的报告只是实际不良事件的一小部分。”
+
+报告“只是实际不良事件的一小部分”。
+
+**“截至2021年12月17日，全世界共报告了983,758例与COVID-19疫苗相关的不良事件和20,622例死亡。在这20,622例死亡中，6,232例（30%）发生在接种后的第0、1或2天。相比之下，在30年的季节性流感疫苗报告中，总共有200,264起不良事件和2,078起死亡”。**
+
+**约翰逊最近还向国防部询问了与安东尼-福奇博士对其机构据称在中国武汉资助的功能增强研究的了解有关的一些问题，他要求在1月12日之前交付这些信息。**
+
+上周末，这位两届参议员宣布，他将在威斯康星州寻求连任，这必将成为今年秋季一场密切关注的竞选。
+
+原文连接：[https://justthenews.com/government/congress/ron-johnson-asks-fda-cdc-information-related-adverse-covid-19-vaccine-responses](https://justthenews.com/government/congress/ron-johnson-asks-fda-cdc-information-related-adverse-covid-19-vaccine-responses)
+
+翻译：洛杉矶盘古农场- TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 柯镇恶
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-自从盘古开天，上帝造人之日，神就赋予男人和女人在享受鱼水之欢时孕育下一代新生命。至今地球上的各个角落、各个种族都在遵循这个浑然天成的生育权，唯有中共统治下的中国人被生生剥夺了这个天赋权利。
-
-在中共建国之初，为弥补连年战乱和灾荒导致的人口锐减，推出了鼓励多生孩子的政策，并奖励性的将多产的母亲称之为英雄母亲，完全不顾妇女的身心健康和婴幼儿的健康教育，造成婴幼儿死亡率和出生率双高的现象。
-
-
-
-**原文链接：[浅谈中国人的生育权](https://gnews.org/zh-hans/1874390/)**
-
-
-
-音频处理/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
