@@ -2,36 +2,29 @@
 ---
 
 
-## 郭先生解析中共惧怕新中国联邦的原因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880709/)
+## 中共国开发的冬奥会小程序或存在安全漏洞
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880726/)
 
-作者：纽约香草山 信息部 – 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月14日的直播中，郭文贵先生谈到了中共如此害怕“郭文贵”和“新中国联邦”的原因所在。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/601.jpg)网络图片
+周二发布的一份报告指出，一款为北京冬奥会开发的智能手机应用程序存在明显的安全问题，可能会使敏感数据遭到拦截。在下个月举办的冬奥会上，参赛运动员、赛事工作人员以及一般居民都将广泛使用这个程序。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-15.jpeg)
+这款程序名称为“MY 2022”（冬奥通），中文可以被翻译成“我的2022”。用户可以使用这款应用程序提交每天所需的健康信息——这被解释为中共国在举办 2 月 4 日开始的比赛期间积极应对冠状病毒大流行的一部分。据称，这款多功能应用程序还包括聊天功能、文件传输、天气更新、 旅游推荐和GPS导航。
 
-郭先生提及，在中共外交部近期与中东六国外长的会议中，中共软硬兼施地要求这六国在当地彻底禁止GTV和GNEWS，其对提及“郭文贵”和“新中国联邦”二词讳莫如深、如临大敌。
+互联网监督组织公民实验室在其报告中表示，“MY 2022” 应用程序存在严重缺陷的加密，这将使用户的敏感数据——以及通过它通信的任何其他数据——容易受到黑客攻击。
 
-郭先生也解释过，中共的本质是推崇精神控制的邪教，其只为利益服务。因此，在墙内民众没有人身自由和人身安全的情况下，共产党大肆控制墙内每个人的言行。相较而言，新中国联邦则是法治立邦，其是正义的化身，也是真正的为人民服务——新中国联邦可以让人们在绝对自由、安全的情况下合法行事并获得自己想要的一切。
+报告发现，该应用程序上的其他重要用户数据根本没有加密。这意味着中共国互联网服务提供商或电信公司可以通过酒店、机场和奥运场馆的 Wi-Fi 热点读取到这些数据。
 
-郭先生强调，邪恶会丧失人性、失去民心，但正义却充满人性、凝聚人心，这是中共和新中国联邦的本质区别，更是邪恶中共惧怕正义的郭文贵和新中国联邦的根本原因！
+公民实验室的报告称，该应用程序对奥运会的参与者是强制性的，国际奥委会的官方指南指示参与者在来中共国之前下载该应用程序。 中共国要求所有国际奥运参赛者——包括教练和记者——至少在出发前14天通过该应用程序或电脑登录健康监测系统。但国际奥委会周二发表声明称，智能手机应用程序不是强制性的。
 
-参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
+目前，美国奥林匹克和残奥委员会已经向该国运动员发布了一项公告，建议他们“预设每一个设备、每一次通信、交易和在线活动都将受到监控。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+新闻参考链接：[Report: Chinese Olympic app has serious security flaws](https://apnews.com/article/coronavirus-pandemic-winter-olympics-sports-technology-health-69ea8d5a5e5e51e898bf2f867358214f)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-总编：Ivy001
-编辑：百香果
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

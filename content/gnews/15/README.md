@@ -2,27 +2,36 @@
 ---
 
 
-## 中共国开发的冬奥会小程序或存在安全漏洞
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880726/)
+## 中共必将遭受世界人民和司法公正的审判
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880728/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/601.jpg)网络图片
-周二发布的一份报告指出，一款为北京冬奥会开发的智能手机应用程序存在明显的安全问题，可能会使敏感数据遭到拦截。在下个月举办的冬奥会上，参赛运动员、赛事工作人员以及一般居民都将广泛使用这个程序。
+作者：纽约香草山农场福音部 – 恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，郭文贵先生在盖特视频中表示，在美国的法庭上，新中国联邦人让邪恶的中共暴露在阳光下，而中共必将受到西方人民和司法的公正审判。
 
-这款程序名称为“MY 2022”（冬奥通），中文可以被翻译成“我的2022”。用户可以使用这款应用程序提交每天所需的健康信息——这被解释为中共国在举办 2 月 4 日开始的比赛期间积极应对冠状病毒大流行的一部分。据称，这款多功能应用程序还包括聊天功能、文件传输、天气更新、 旅游推荐和GPS导航。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-13.jpeg)
 
-互联网监督组织公民实验室在其报告中表示，“MY 2022” 应用程序存在严重缺陷的加密，这将使用户的敏感数据——以及通过它通信的任何其他数据——容易受到黑客攻击。
+视频中提到，近五年来，中共通过启用单伟建、吴征等间谍，以及他们在西方社会中收买的各派势力，向郭先生发起法律超线战，还妄图以不法手段干涉西方的法制，更试图破坏爆料革命并消灭新中国联邦。 其中，中共利用不道德的律师和三十多万页的海量材料来控告郭先生，同时，其还借由不公正的庭审拒绝郭先生提出异议。
 
-报告发现，该应用程序上的其他重要用户数据根本没有加密。这意味着中共国互联网服务提供商或电信公司可以通过酒店、机场和奥运场馆的 Wi-Fi 热点读取到这些数据。
+郭先生解释道，由于中共对新中国联邦的恐惧，其不惜花费上亿元的律师费造假害人。此外，中共还在美国使用违法手段对新中国联邦实行司法超限战。郭先生表示，这彻底暴露了中共对西方囯家的司法操控——而此举也损害了西方世界的司法公正，更伤害了西方的国家与人民。
 
-公民实验室的报告称，该应用程序对奥运会的参与者是强制性的，国际奥委会的官方指南指示参与者在来中共国之前下载该应用程序。 中共国要求所有国际奥运参赛者——包括教练和记者——至少在出发前14天通过该应用程序或电脑登录健康监测系统。但国际奥委会周二发表声明称，智能手机应用程序不是强制性的。
+然而，郭先生也认为，美国法制的伟大值得信赖，更重要的是，正义之士正在从新中国联邦人的遭遇中看清中共邪恶的嘴脸。最终，这必将让中共与被其收买的邪恶同伙接受西方人民和司法的公正审判。
 
-目前，美国奥林匹克和残奥委员会已经向该国运动员发布了一项公告，建议他们“预设每一个设备、每一次通信、交易和在线活动都将受到监控。”
+参考链接：[https://gettr.com/post/pp402xffd3](https://gettr.com/post/pp402xffd3)
 
-新闻参考链接：[Report: Chinese Olympic app has serious security flaws](https://apnews.com/article/coronavirus-pandemic-winter-olympics-sports-technology-health-69ea8d5a5e5e51e898bf2f867358214f)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

@@ -2,75 +2,53 @@
 ---
 
 
-## 【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1880748/)
+## 即使疫苗不起作用 明尼苏达仍继续推疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1880752/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1510.png)图片来源:[newstarget.com
 
-截止至美东时间1月19日上午8时21分，在澳大利亚2,595.7万人中，累计确诊中共病毒感染病例1,955,544例，占澳洲全国总人口的7.53%。继1月8日单日新增COVID-19感染者病例达到创记录的111,907例后，1月12日，澳大利亚单日新增病例竟然达到175,271例，单日新增病例数达到澳洲总人口的千分之6.75。
+明尼阿波利斯市和明尼苏达州圣保罗市市长宣布，现在需要武汉冠状病毒（Covid-19）“疫苗”证明，才能进入提供面对面服务的酒吧和餐馆。新法令将于 1 月 19 日生效。从那天开始，每个想去酒吧或外出就餐的人，都必须出示注射证明，或72 小时内进行的测试“阴性”证明。
 
-尽管如此，1月6日，澳大利亚北领地（Northern Territory）行政长官Michael Gunder在新闻发布会上正式宣布，对未“完全接种”Covid-19病毒疫苗的公民未来几天实施新的专制封锁，任何年满16岁且未完全接种疫苗的人不能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，才能离家不得超过30公里远。
+卡特补充说，对于买票进入的场馆，该授权将于 1 月 26 日在他的社区生效。
 
-网球巨星德约科维奇（Novak Djokovic）甚至在1月16日上诉失败后，被澳洲当局以“对公共卫生造成威胁”驱逐出境。
+顺便说一句，弗雷在乔治·弗洛伊德 (George Floyd) 疯狂行动之后，将在天黑后加油定为“非法”，他因此更臭名昭著。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a5e4cdd86fd643ac86ddb702a6644510.jpeg)
+“明尼苏达州的酒吧行业，对新的疫苗或阴性测试规则不满意，”FOX 9 的记者西奥·基思（Theo Keith）在推特上写道。
 
-澳大利亚当局如此疯狂的胁迫打疫苗，目前澳洲的疫情真的是由于没有打Covid-19病毒疫苗或者疫苗打得还不够多造成的吗？
+明尼苏达州饮料协会执行董事托尼·切萨克（Tony Chesak）在一份声明中表示，这项疫苗规定“难以理解”，既“不合理且不科学”。
 
-根据澳大利亚政府官方数据，截止至2022年1月19日，总共有4,672万针COVID-19病毒疫苗被打进人的身体，仅仅在过去的24小时内，就有321,959针被注入澳大利亚人的身体。目前，年满16+的澳大利亚人中，95%被打了至少一针疫苗，92.7%被打了两针疫苗，5,553,110名年满18周岁的澳大利亚人被打了至少三针疫苗。
+“**在零科学或数据驱动决策之后，它只针对一个特定行业，零关心我们敬业的一线工作人员，现在他们在他们的盘子中又加上了‘执法人员’**。”
 
-如果以所有人口计算，澳大利亚有81.74%的人最少注射了一针COVID-19病毒疫苗，77.75%最少打了两针，21.53%打了加强针。
+“我们所知道的唯一科学事实是，**它已经摧毁了实施相同任务的城市的酒店业。**”
 
-既然有如此高的疫苗接种率，那么，即使有新增中共病毒感染案例，也应当主要是以未接种疫苗人群为主体才合符逻辑！
+切萨克继续说，当只有某些行业成为这些繁重任务的目标时，什么“我们都在一起”的口号就是虚伪的。
 
-下面以疫苗接种率相当高的新南威尔士洲来分析。
+“他们说我们在一起——但这项任务表明，酒店业显然是被单独针对的，”他说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Vaccination-in-NSW.jpg)
+“我们知道接种疫苗和未接种疫苗的人**都会传播病毒**，它发生在学校、健身设施、其他零售商、体育赛事等等。”
 
-截止到2022年1月17日，新南威尔士洲（NSW）年满16岁的人中，95.2%已经打了最少一针COVID-19病毒疫苗，93.8%最少打了两针COVID-19病毒疫苗，27.8%最少打了三针COVID-19病毒疫苗，在12~15岁的青少年中，有78.3%最少打了两针疫苗，甚至5~11岁的儿童也有16.4%最少打了一针疫苗。
+根据明尼阿波利斯市经济政策和发展主任埃里克·汉森的说法，要么是选择疫苗命令，要么是对所有人实施全面封锁（出于某种未知原因）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccination-in-NSW1.jpg)
+目前，这两个城市的“完全接种疫苗”意味着要么是接受了前两剂（辉瑞-生物科技，莫德纳）mRNA注射，或强生单剂量注射。
 
-然而，1月17日上午8时到1月18日上午8时的24小时内，新南威尔士洲新增确诊中共病毒感染者32,297人。
+汉森警告说，不遵守最终可能意味着轻罪指控，尽管本文作者很想看看这在法庭上会如何成立。事实证明，这些都不是合法的法律，而且所有这些都是违宪的。
 
-根据2022年1月13日，新南威尔士洲卫生部门发布的每周中共病毒疫情监测报告《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)》，2021年12月26日至22日1月1日的一个星期内，新南威尔士洲总共有152,440例新增中共病毒感染者被确诊。
+为了让未接种疫苗的明尼苏达人，和来这两个城市的游客尽可能地困难，新法令还禁止使用家庭测试来代替注射证明卡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19.jpg)
+此外，法令中没有医疗或宗教豁免。而且这些规定对年幼的孩子没有任何意义，专家们已经表示，这将阻止家庭去这两个城市中的任何一个城市的餐馆。
 
-其中：108,056例为完全接种疫苗，1,110例为部分接种疫苗，2,765例为未接种疫苗，28,181例疫苗接种状态不确定，12,328例属于0~11岁不符合接种条件。在所有符合COVID-19病毒疫苗接种条件的人中，96.54%的感染者属于已接种COVID-19病毒疫苗，未接种人群仅占2.47%。
+武汉流感暴政像病毒一样蔓延。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+新闻来源:[newstarget.com] [Even as Pfizer CEO admits the jabs don’t work, liberal cities continue to roll out vaccine mandates](https://www.newstarget.com/2022-01-17-covid-vaccines-dont-work-liberal-cities-mandates.html)
 
-2021年12月26日至22日1月1日的一个星期内，新增COVID-19感染后住院的人中，共有1,578名Covid-19住院患者。其中，完全接种者1,280人，部分接种者47人，未接种者仅251人。这意味着，已接种疫苗的人群占Covid-19住院人数的84.09%，未接种疫苗的仅占15.91%。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Hospital-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-在2021年11月26日至22年1月1日期间，共有154名符合接种条件的Covid-19感染者进入ICU，其中，完全接种疫苗的104人，部分接种疫苗的占8人，未接种疫苗的只有42人。这意味着，在11月21日26日至22年1月1日期间，感染COVID-19后进入ICU的患者中，72.73%已接种COVID-19病毒疫苗，67.53%属于完全接种疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-ICU-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-在21年11月26日至22年1月1日期间，总共有32人因COVID-19死亡，完全接种疫苗的死亡人数共有22人，部分接种疫苗的人群中有3人死亡，未接种疫苗的人群中只有7人死亡。接种COIVD-19病毒疫苗后，死亡的占78.16%，未接种疫苗的仅占21.84%，尤其完全接种疫苗的人占到68.75%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Deaths-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-毫无疑问，澳大利亚南威尔士洲的数据说明，实验性的中共病毒疫苗给南威尔士洲的人带来严重的疫苗灾难，既不能预防感染，也不能减少住院，更不能减少死亡。
-
-参考数据：
-
-[Australia Population](https://www.worldometers.info/world-population/australia-population/)
-
-[Australian Bureau of Statistics](https://www.abs.gov.au/statistics/people/population)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
-
-[Covid-19 Deaths are at record levels in Australia & Official Data shows the Fully Vaccinated account for 4 in every 5 of those deaths since November](https://dailyexpose.uk/2022/01/19/australia-vaccinated-account-for-4-in-5-covid-deaths/)
-
-[德约科维奇惨遭澳大利亚驱逐 “他已成为反疫苗群体的偶像”](https://www.bbc.com/zhongwen/simp/world-60014139)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

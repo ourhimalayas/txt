@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 5:28 PM (UTC)`
+
+1月19号：吃饭饭喽……吃包包喽……
+![img](https://media.gettr.com/group9/getter/2022/01/19/17/99274941-755d-b836-563d-9f2f342982fa/out.jpg)
+
+---
+
 `@miles 1/19/2022 12:46 PM (UTC)`
 
 2022年1月19日 文贵大直播：太平联盟官司背后的故事；达沃斯已成中共倒闭论坛；与西方经济脱钩洞察其奸；疫苗政策盼转机有备无患
@@ -147,13 +154,6 @@
 
 1/17/2022 Miles Guo: Miles Guo’s outlook on the Pacific Alliance case - we must use procedural justice to reveal the truths to the world through real evidence. Finally, the Department of Justice, Congress, and others will be fully involved in the investigations. The outcome of the PAX case will lead to the global efforts to take down the CCP, completely removing the toxins buried deep in the US and Europe by the CCP.<br/><br/>1/17/2022 文贵直播：文贵先生对太平联盟案的展望，我们一定要用程序正义、真实的证据让真相大白于天下，最终美国司法部、国会等会全面介入调查，太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除
 ![img](https://media.gettr.com/group46/getter/2022/01/18/00/bcb7823d-99fd-7b33-84e1-2903524712e2/out.jpg)
-
----
-
-`@miles 1/18/2022 12:15 AM (UTC)`
-
-1/17/2022 Miles Guo: Darkness coming to the world is manifested in the CCP’s manipulation of the media, plunder of the people’s wealth, and control of the judicial system. We must take down the CCP with the law and let the Chinese people have an independent judicial system. If you didn’t fight for it, you would be the next one persecuted by the CCP like me.<br/><br/>1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统；我们要以法灭共，让中国人有独立的司法系统；如果不为之奋斗，大家也会像七哥一样被中共迫害！<br/>
-![img](https://media.gettr.com/group27/getter/2022/01/18/00/7a44fedc-b7cd-9277-081a-0cb53bc965d8/out.jpg)
 
 ---
 
