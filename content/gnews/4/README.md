@@ -2,104 +2,69 @@
 ---
 
 
-## 罗伯特·马龙博士指出我们生活在一种群体形成精神病中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879545/)
+## 参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879599/)
 
-[https://gtv.org/video/id=61e7da0f87664c47acd6ba9d](https://gtv.org/video/id=61e7da0f87664c47acd6ba9d)
+Senator Roger Marshall On Fauci’s Financial Records
+参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
 
-**Dr Robert Malone
-罗伯特·马龙博士**
+Why do you think that Fauci lied last week sir?
+你为什么认为上周福奇撒谎了？
 
-In the 20s and 30s, you know, very intelligent, highly educated population
-在20和30年代，你知道，非常聪明，受过高等教育的人群
+John, I guess several people said we are over the target so to speak
+约翰，我猜有几个人说我们偏离了目标
 
-and they went barking mad
-他们变疯了
+We’ve exposed him in my opinion. he had misled or lied to Congress on three different issues in that particular hearing
+在我看来，我们已经揭露了他。在那次听证会上，他在三个不同的问题上误导或向国会撒了谎
 
-And how did that happen? The answer is mass formation psychosis
-那是怎么发生的？ 答案是群体形成的精神病
+He lied to Rand Paul on one of his questions about covering this all up
+他在一个关于掩盖这一切的问题上对兰德.保罗（Rand Paul）撒了谎
 
-When you have a society that has become decoupled from each other
-当你有一个彼此脱钩的社会
+He lied to Congress about gain of a function and then about his financial accountability
+他在功能增强（实验项目）这个问题上向国会撒谎，然后就他的财务责任撒了谎
 
-and has free floating anxiety, in a sense that things don’t make sense
-并且充斥着焦虑时，从某种意义上说，事情就变得没有意义
+Look, we asked him a very simple question: Will you please share with Americans your financials?
+看，我们问了他一个非常简单的问题：您是否能与美国人民披露您的财务状况？
 
-We can’t understand it
-我们无法理解
+This is a common question I get from people, as why does doctor Fauci believe only in vaccines?
+这是我从人们那里得到的一个常见问题。就像为什么福奇（Fauci）博士只相信疫苗？
 
-And then their attention gets focused by a leader
-然后他们的注意力被领导者集中了
+Why doesn’t he acknowledge natural immunity?
+为什么他不承认自然免疫？
 
-or series of events on one small point just like hypnosis
-或在一个小点上发生的一系列事件，就像催眠一样
+Why doesn’t he acknowledge hydroxychloroquine or zinc or ivermectin, and they said what about his finance?
+为什么他不承认羟氯喹或锌或伊维菌素？他们想知道他的财务状况如何？
 
-They literally become hypnotized and can be led anywhere
-他们真的被催眠了而且可以被带到任何地方
+We’ve been trying to get them
+我们一直在努力找到这些信息
 
-And one of the aspects of that phenomena is the people that they identify as their leaders
-这种现象的一个方面是他们认为自己的领导者
+He lied to Americans said that they are publicly available, and they weren’t
+他对美国人撒谎说这些信息是公开的，但事实并非如此
 
-The ones typically that come in and say, you have this pain and I can solve it for you
-那些通常会说，你有这种痛苦，我可以为你解决
+And now we’ve got that, and people can go to our website Marshall.senate.gov and review Dr. Fauci’s financials
+现在我们已经找到了。人们可以访问我们的网站Marshall.senate.gov. 并查看 福奇（Fauci） 博士的财务状况
 
-I and I alone, okay, can fix this problem for you
-我，且只有我，好的，可以为你解决这个问题
+And they are going to see that he made 1.7 million dollars last year, in 2020. Excuse me 1.7 million dollars in 2020.
+他们将看到他去年在2020年赚了170万美元。对不起，2020年赚了170万美元
 
-Okay, then they will lead, they will follow that person through
-好的，然后人们会跟随那个领导者
-
-It doesn’t matter whether they lie to them, or whatever, the data are irrelevant
-不管领导者是否对他们撒谎，或者无论做什么，数据、事实都是无关紧要的
-
-And furthermore, anybody who questions that narrative is to be immediately attacked
-此外，任何质疑该叙述的人都将立即受到攻击
-
-they are the other. This is central to mass formation psychosis
-他们是异教徒。这是群体形成精神病的核心
-
-And this is what has happened. We had all those conditions
-这就是发生的事情，我们拥有所有这些条件
-
-You remember back before 2019. Everybody was complaining
-你还记得2019年之前，每个人都在抱怨
-
-well, doesn’t make sense. Blah, blah, blah
-好吧，没有意义， 等等等等等等
-
-And we’re all isolated from each other
-我们都彼此孤立
-
-We’re all on our little tools
-我们都在沉迷于我们的小工具
-
-We’re not connected socially anymore, except through social media
-我们不再有社交联系，除了通过社交媒体
-
-And then this thing happened and everybody focused on it
-然后COVID-19发生了，每个人都专注于它
-
-That is how aspiration psychosis happens
-吸入性精神病就是这样发生的
-
-And that is what’s happened here
-这就是这里发生的事情
+While America was shut down. He made 1.7 million dollars, significant investment in China. We will let Americans decide.
+在美国被关闭期间，他赚了170万美元，在中国进行了重大投资。我们将让美国人自己来判断
 
 * * *
 
-Date:01/16/2022
-原视频标题: Dr Robert Malone suggests we are living through a mass formation psychosis
-罗伯特·马龙博士指出我们生活在一种群体形成精神病中
-原视频日期：2022/01/16
-原视频链接: [**https://gettr.com/post/plh19l66e5**](https://gettr.com/post/plh19l66e5)
-任务编号：KE354(3505)
-视频时间段 : 0:00-1:41
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
+Date: 1/17/2022
+原视频标题: Senator Roger Marshall On Fauci’s Financial Records
+参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+原视频日期：1/17/2022
+原视频链接: [**https://twitter.com/realamvoice/status/1483240267649982464?s=24**](https://twitter.com/realamvoice/status/1483240267649982464?s=24)
+任务编号：KE355（3521）
+视频时间段 : 0:00-01:00
+中听校：洛杉矶盘古农场 -海潮
+翻译：洛杉矶盘古农场 – 海潮
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 文新
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
+发布：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
