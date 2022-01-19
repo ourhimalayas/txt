@@ -2,61 +2,126 @@
 ---
 
 
-## 2022/01/19 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1881691/)
+## 邪恶至极共产党每年在昆仑山搞活人祭神
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1881727/)
 
-[![](https://express.adobe.com/page/Uo8soCSLyJb1q/images/9bac0de3-9d2b-40ae-aa57-e220a2cea941.png?asset_id=0fbfbef2-2fd1-4825-90ec-b7c3cf5d333a&amp;img_etag=%2219c3a0fe15b49f0ad46ce21c8fc2e7ce%22&amp;size=2560)](https://express.adobe.com/page/Uo8soCSLyJb1q/images/9bac0de3-9d2b-40ae-aa57-e220a2cea941.png?asset_id=0fbfbef2-2fd1-4825-90ec-b7c3cf5d333a&amp;img_etag=%2219c3a0fe15b49f0ad46ce21c8fc2e7ce%22&amp;size=1024)
-[**YouTube视频链接**](https://www.youtube.com/watch?v=uMZqrEAe4Us)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/aaaa6eaa-zdg01.jpg)
+[https://gtv.org/video/id=61e85d8787664c47acd6eedb](https://gtv.org/video/id=61e85d8787664c47acd6eedb)
 
-**主持**：大卫｜**嘉宾**：Lila、跟着北美教练健身
+曾庆红说过共产党一定不会再有什么一百年五十年
+Zeng Qinghong había dicho que el PCCh seguro no tendrá 50, 100 años
 
-**板块1–灭共者联盟**
+他从早就这么认为
+Así le parecía desde un principio
 
-1. 北京奥委会官方呼吁运动员前往中共国前14天下载推广App，智能手机App被发现存在安全漏洞；“看门狗”组织警告说，中共国的强制性奥运会应用程序导致隐私和审查担心。
+你觉得习近平认为中国还有多少年吗
+¿Tu piensas que Xi Jinping cree que China aún tiene cuántos años?
 
-在外国运动员注重人身安全和信息安全的背景下，中共依旧利用App收集数据（如：新闻管理区提供Wifi，使用者需下载特定的App）。凸显中共心虚害怕敏感信息被西方掌握，西方来访记者出行和行动被监控。
+习近平他爹为啥要埋在那儿
+Por qué al papa de Xi Jinping lo enterraron ahí
 
-中共“顺势”将监控国内党员和老百姓的手段“输出”到各国运动员和新闻记者。
+他为啥要建那风水
+Para qué él crea el Fengshui ahí
 
-**板块2–社会文化**
+大家一定搞明白他为啥不让她女儿出镜
+Todos deben entender por qué el no deja que su hija salga frente a la cámara
 
-1. 从2022-1-19起中共国将取消所有美国航班；中共国取消冬奥会门票销售。
+他为啥让他的弟弟和彭丽媛在前面扮演这些角色
+¿Por qué dejó que su hermano menor y Peng Liyuan desempeñaran estos papeles al frente?
 
-中共不管海外华人的实际情况实行航班“一刀切”政策。向外“甩锅”推卸北京最新感染病毒责任(来自美国和加拿大货运的包裹“被”检测出病毒阳性）。
+他为什么用丁薛祥还有当年的栗战书
+¿Por qué usó a Ding Xuexiang y Li Zhanshu en ese tiempo?
 
-冬奥会售票同样实行“一刀切”政策，冬奥会“氛围组”直接取消，冬奥会精彩程度大打折扣，实际反映出北京疫情难以控制。预计接下来临近北京各地政府会因疫情扩散至北京事件开启“窝里斗”模式。
+他为什么能把田玉玺抓起来
+¿Por qué arrestó a Tian Yuxi?
 
-中共极力举办冬奥会目的①向世界证明其“一流”管控疫情能力；②向国际证明中共国有巨大的潜在市场，留住世界经济引擎的地位，保障经济继续增长。
+大家一定记住共产党的内部
+Todos deben recordar el interior del Partido Comunista
 
-**板块3–财经**
+它有它的章法
+Tiene sus propias reglas
 
-1.中共国以新冠病毒为借口限制进口。
+它的章法你看透的时候就那么简单的事儿
+Cuando logres ver claramente sus reglas verás que es muy fácil el asunto
 
-通过限制商品进口强制改变墙内民众生活习惯。
+他是深信这个所谓他不让你信的迷信
+Él cree profundamente en lo que no te deja creer
 
-“全套活”–中共近期柴油出口减少，进口天然气增加，默默执行战略储备物资计划。对国内老百姓实行“娱乐至死”和严格管控公检法，对海外全球物流供应、国际供应链造成大混乱。对海外华人制造种族仇恨、打击新中国联邦。
+他100%是依照天地之他认可的规律
+Está 100% de acuerdo con las leyes del cielo y la tierra que él reconoce
 
-2.佳能相机关闭珠海工厂，大众丰田关闭天津工厂。
+和万佛万神他来定自己的乾坤
+Con diez mil budas y diez mil dioses, él mismo determinará su propio destino
 
-工厂关闭将影响上下游相关企业。国内汽车销售下滑明显，丰田及时止损关闭工厂。中共国经济内需严重下滑，整体形势严峻。
+掌握自己的未来
+Toma el control de su propio futuro
 
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+对待死人什么人权的事你就不用想了
+¿Cómo es el derecho humano al tratar con los muertos?, no tienes que pensar en eso
 
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+那扯太远了对他来讲一切都是用具
+Eso es demasiado lejos, para él todo es una herramienta
 
-[![](https://express.adobe.com/page/Uo8soCSLyJb1q/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/Uo8soCSLyJb1q/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+这是为什么昆仑山上每年
+Eso es por qué todos los años en la montaña de Kunlun
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+要700个仙女 700 个处女要放那儿去
+Necesitan a 700 vírgenes (hadas) para ponerlas allá
 
+要祭拜昆仑山神
+Para adorar al dios de la montaña Kunlun
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://express.adobe.com/page/Uo8soCSLyJb1q/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/Uo8soCSLyJb1q/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+为什么要从新疆抓多少仙女、仙神
+¿Por qué deben atrapar hadas y dioses(chicas y chicos) desde Xinjiang?
+
+西藏抓多少女神，蒙古抓多少神
+Unas cuantas diosas del Tíbet y dioses Mongolia
+
+54个民族要抓多少孩子去
+¿Cuántos niños tienen que arrestar de los 54 grupos étnicos?
+
+为什么执行的秘密部队从来没有人回来过
+¿Por qué de la fuerza secreta ejecutada nunca ha regresado una persona?
+你献神了
+Fuiste sacrificado
+
+这种事情能让你们知道吗
+¿Acaso pueden saber este tipo de cosas?
+
+你们不知道
+Usedes no lo saben
+
+你不知道 你就灭不了共
+Sin saberlo no podrán destruir al comunismo
+
+爆料革命知道
+Pero el Movimiento de Denunciantes lo sabe
+
+新中国联邦你七哥知道就能灭共
+Miles del Nuevo Estado Federal de China lo sabe para poder destruir el PCCh
+
+**原视频网址：**[https://gettr.com/post/pney97d2cf](https://gettr.com/post/pney97d2cf)
+
+日期：01/14/2022
+原视频标题：邪恶至极 共产党每年在昆仑山搞活人祭神
+Maldad extrema, el Partido Comunista hace sacrificios a Dioses con humanos en las montañas Kunlun cada año
+
+原视频日期：01/10/2022
+原视频网址：https://gettr.com/post/pney97d2cf
+任务编号：3461
+视频时间段：0:00-01:43
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 -文新战友
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

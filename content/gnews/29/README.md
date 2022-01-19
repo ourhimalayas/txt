@@ -2,44 +2,31 @@
 ---
 
 
-## 西喜时事新闻简报—美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1881195/)
+## 扬帆每日速递 2012年1月19日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1881200/)
 
-**翻译：土饭团**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、创造在香港曾经超级流行但目前已被禁止的抗议游行口号“光复香港，时代革命”的香港政治活动人士梁天琦，在遭关押四年后被释放。目前梁天琦仍受到中共的严格监控。
 
-1.[Biden的外交政策失误](https://www.foxnews.com/politics/bidens-foreign-policy-blunders%29)
+2、2022年刚开始，北京当局已连打“三虎”，包括广西自治区政府副主席刘宏武、西藏自治区政府副主席张永泽、中国人寿保险（集团）公司董事长王滨。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip01-5.png)图片来源：foxnews.com
+3、人权非政府组织“保障卫士”发布的一份报告描述了中共国执行一项代号为“天网”的行动以迫使中共所谓的“逃犯”从其他国家返回中共国，来自中共国的官方数据显示，自2014年以来，近1万名此类人员因此被迫返回中共国。
 
-福克斯新闻1月17日电，最近的昆尼皮亚克民意调查显示，Biden在担任总统一年后，对外交政策的支持率为35%，反对率为54%。与中共国峰会的受挫，美国军队撤出阿富汗导致人道主义灾难，与澳大利亚达成的核潜艇交易激怒了美国的第一个盟友法国，在过去一周与俄罗斯人的会谈毫无进展地结束。使Biden上任第一年的外交政策问题堆积如山。
+4、中共国央行准备在下个月的奥运会期间为北京冬奥会游客提供数字人民币（e-CNY）支付服务。
 
-2.[美国队警告运动员注意中共国在奥运会上的电话监控，鼓励使用“一次性手机”](https://www.foxnews.com/sports/team-usa-athletes-chinese-phone-surveillance-olympics-burner-phones%29)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-6.png)图片来源：foxnews.com
-福克斯新闻1月15日电，美国奥运代表团警告前往北京的运动员在国外时要警惕中共国政府潜在的数字监控。美国队并不是唯一一个警告中共国可能进行监控的国家。加拿大运动员也受到了告诫,体育部长Pascale St-Onge告诉加拿大媒体，保护笔记本电脑和手机是当务之急。
+5、据文贵大直播：PAG（太平联盟）案子不是为七哥而来，是为灭爆料革命而来，这个案子牵扯到共产党在美欧日等多国的深度渗透。
 
-[3.美国寻求降低与中共国核风险的方法](https://english.kyodonews.net/news/2022/01/a1faa3140114-us-looking-for-ways-to-reduce-nuclear-risk-with-china.html)
+6、据文贵大直播：美国杀手级律师Edward Moss和Cahil和Melveny这些律师事务所所有做的恶，包括背后的力量是针对新中国联邦，也让战友们看到这几年文贵先生面对的无法想象的挑战和付出。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-19海报1简_page-0001-2.jpg)
+**加拿大温哥华扬帆农场**** ****海报组**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip03-5.png)图片来源：english.kyodonews.net
+素材提供战友：Revelation熙攘、文敏
 
-共同社1月16日电，美国国务院最高军备控制官员Bonnie Jenkins最近在接受共同社电话采访时说，美国继续试图通过双边对话以及所谓的“五常进程”与中共国寻找降低核风险和安全风险的方法。美国和中共国之间日益紧张的局势，尤其是在台湾问题上的紧张局势，给两个超级大国之间的双边核对话的未来前景蒙上了阴影。
+编辑：文敏
 
-4.[美国和日本领导人将于1月21日举行虚拟会议](https://english.kyodonews.net/news/2022/01/3c75a074202c-urgent-us-japanese-leaders-to-meet-virtually-on-friday-white-house.html%29)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip04-5.png)联合照片显示美国总统乔·拜登（右，盖蒂）和日本首相岸田文雄。 (共同社)
-共同社1月17日电，白宫表示，美国总统Joe Biden将于周五与日本首相岸田文雄进行虚拟会晤，因为在中共国在印太地区日益强硬的情况下，两国寻求进一步深化关系。白宫新闻秘书Jen Psaki表示, Biden期待着与岸田合作，推进他们“对自由和开放的印太地区的共同愿景”，并在新兴技术方面开展合作，包括通过四国集团(Quad)，其中还包括澳大利亚和印度。
+发布：风起云间（文敏）
 
-5.[美国法案禁止国防承包商使用中共国稀土矿产](http://%28https://www.aninews.in/news/world/asia/us-bill-to-block-defence-contractors-from-using-chinese-rare-earth-minerals20220116061331/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip05-6.png)美國禁止國防承包商使用中國稀土礦產的法案原文
-ANI 1月16日电，美国参议院周五提出了一项新的稀土法案，旨在迫使国防承包商在2026年前停止使用从中共国采购的稀土矿物。中共国拥有4400万吨的稀土储备，占全球库存的36.7%。2020年，中共国生产了14万吨稀土，占全球产量的近60%。
-
-* * *
-
-***审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
-
+海报图片设计：飞天面、 Shuang
 
  
 

@@ -2,41 +2,31 @@
 ---
 
 
-## 英国宣布放弃中共病毒疫情的强制政策
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1881616/)
+## 七哥谈“独裁、压迫、统治”（2022-01-14摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881646/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B-5.jpg)trustandmoney.com
-《门道专家》1月19日发表文章，题目是“在英国，鲍里斯·约翰逊（Boris Johnson）放弃了中共（新冠）病毒疫情的强制政策：‘我们将相信英国人民的判断’”。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-全文如下：
+来源：郭先生2022-01-14直播10：33：38摘录
 
-英国首相鲍里斯·约翰逊正在取消中共病毒疫情的强制政策。
+大家记住，你看什么人不一样啊，我一生最在乎的事情，我往回看的时候，我希望我后面的人能走到我前面去，在我前边，这是我一生中从小到大，跟着我的人、我的公司、我的企业、我的合作方都是，我希望在我后面的人走到我前面去，我前面越多人越好，因为我觉得我更强大。那么共产党是什么？把前面所有能看见的人一律消灭，就让你看到他自己，这就叫独裁，而且叫压迫，叫统治，你看这就是中国人不能说话了。Joe Rogan事情告诉你什么？叫法治社会，它不能制造邪说。
 
-从周四（1月20日）起，学生不再需要在教室戴口罩。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-1月27日，在英国的任何学校或任何地方都不再强制要求戴口罩，参加大型活动也不再需要疫苗护照，该国政府将转而“推荐”在封闭空间内戴口罩，让人们自行选择是否佩戴。
+**关注我们**
 
-政府还将放弃其中共病毒通行证的要求，不再强迫人们在进入公共场所时出示疫苗接种证明。
+Discord 账号
 
-约翰逊周三（1月19日）欢欣鼓舞地在议会宣布，“在全国范围内，我们将继续建议在封闭或拥挤的空间使用口罩，特别是当你接触到平时不常见面的人时。但我们将相信英国人民的判断，不再将任何选择不戴口罩的人定为刑事犯罪。”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-英国首相还取消了自12月13日起生效的政府在家办公的规定，约翰逊解释说，英国将开始像对待流感一样对待中共病毒。
+Gettr 账号
 
-约翰逊说：“很快就会有一天，我们可以完全取消自我隔离的法律要求，就像我们不会对患有流感的人规定隔离的法律义务一样。随着中共病毒的流行，我们需要以建议和指导取代法律强制，敦促感染中共（新冠）病毒的人小心和体谅他人。”
-
-英国国家首脑坚持认为，对中共病毒疫情的限制不再是强制性的，因为政府科学家声称，由奥密克戎变异引起的感染激增“在全国范围内已经达到顶峰”，在英国，超过90%的60岁以上的人至少接种了三剂中共病毒疫苗或加强剂。
-
-（全文完）
-
-结束了，随着疫苗护照的取消，疫苗强制接种政策也被废。大英帝国开了先例，正常的日子即将回归。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/](https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

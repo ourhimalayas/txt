@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 10:50 PM (UTC)`
+
+1/19/2022 Miles Guo: The old CCP kleptocrats have been giving prescriptions to the world at the Davos Forum, resulting in the suffering of the Chinese, and eventually it’s their turn to suffer. What does Xi mean by saying "spillover effect"? The Davos Forum is a slave master's club where the dark forces and the CCP collude to enslave the whole world.<br/><br/>1/19/2022 文贵直播：中共老杂毛在达沃斯给世界开药方，让中国人遭殃，最终轮到他们自己身上；习说的“溢出效应”有何意？达沃斯论坛是黑暗势力和中共勾结以奴役全世界的奴隶主俱乐部<br/>
+![img](https://media.gettr.com/group19/getter/2022/01/19/22/8331e301-f139-a9e4-1db1-d3873b9348c6/out.jpg)
+
+---
+
 `@miles 1/19/2022 10:17 PM (UTC)`
 
 1/19/2022 Miles Guo: Less than 1,000 people attend the World Economic Forum at Davos. They can influence the politics and military of various countries and control the wealth that shapes the fate of hundreds of millions of people, and they collude with governments and have blood on their hands. As long as the Party of Davos still exists, humanity will never be safe<br/><br/>1/19/2022 文贵直播：参加达沃斯论坛的不足1000人，他们影响着各国的政治和军事，控制着左右数以亿计人命运的财富，他们跟政府勾结、手上沾满鲜血；只要达沃斯党在，人类就不会安全<br/>
@@ -147,13 +154,6 @@
 
 1/17/2022 Miles Guo: I am fighting the world's biggest lawsuit manipulated by the CCP! Bradley J. Bondi, who had represented me and our fellow fighters before, had Edward Moss, who is representing Pacific Alliance, join Cahill Gordon & Reindel LLP to work together against me. Both of them were disqualified as the plaintiff’s counsel due to their serious violations of professional ethics.<br/><br/>1/17/2022 文贵直播：文贵在跟中共操纵的世界大案较量！曾代理文贵和战友的Bondi律师让太平联盟的律师Edward Moss跳槽到Cahill律所并一同针对文贵，他俩因判严重违反职业道德而被踢出局<br/>
 ![img](https://media.gettr.com/group29/getter/2022/01/18/01/d6e3b3a1-e886-46f4-ca63-479b53ce31b8/out.jpg)
-
----
-
-`@miles 1/18/2022 1:00 AM (UTC)`
-
-马龙博士：《真相工程》曝光国防部文件内容绝对真实，是体制内对病毒来源真相爆料的启动！国防部终于出来说“够了”，并把托尼·福奇抛出！<br/><br/>Dr. Malone:  The Veritas exposure of DoD file is the start of apparatus whistleblowers and absolutely authentic. DoD finally coming around saying: enough is enough and throwing Tony Fauci under the bus!<br/>
-![img](https://media.gettr.com/group30/getter/2022/01/18/01/6d561934-f843-53cb-f89c-41178c994c52/out.jpg)
 
 ---
 

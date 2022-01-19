@@ -2,20 +2,52 @@
 ---
 
 
-## 中共正自导自演万邦来朝的冬奥盛会
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1881717/)
+## 灭共者之共产主义家天下
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1881730/)
 
-加拿大温哥华扬帆农场    平民正道
+**出品：纽约香草山设计部**
 
-据【布莱特巴特新闻】1月17日报道，中共国日前宣称，由于其自家的瘟疫肆虐，冬奥会的门票将不会向公众出售。但将邀请那些严格遵守当局管制的国内小团体观众入场观赛。
 
-报道称，以上新的入场限制措施是1月15日在北京确认首例“奥密克戎”病毒感染后发布的。据悉，中共冬奥委员会早就建立了严格的监控系统，以跟踪奥运会所有运动员及参与者，无论是在赛事中还是在生活空间里的一切活动。
 
-世人皆知，中共政权一直跻身于世界人权侵犯者之首，并疯狂利用其奴隶劳动力为西方众多知名企业生产运动商品和服装。但这些因此获利的西方政府在炫耀自身高尚的价值观同时，却暗藏在其虚假的外加抵制背后，并允许其运动员参加中共冬奥会，以协助习近平实现该独裁党魁万邦来朝的黄粱美梦。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-1_.jpg)The year of 2022 will definitely be cataclysmic for the CCP, including the 20th National Congress where the CCP can almost decide the fate of all Chinese and people of the world. The internal politics of Communist China will be fraught with bloodshed, contests and massacre; don’t expect to find out the final outcome until the last minute. Confronted by the vaccine catastrophe and the virus catastrophe, the world is sliding into the darkest hours. 
+Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1_-1.jpg)2022年绝对是共产党的大灾之年，包括共产党几乎可以决定中国人和全世界人命运的二十大；中国内部的政治会充满了血腥、较量和屠杀，不到最后一分钟都很难定局；世界在疫苗灾难、病毒灾难面前，会黑暗到比刚刚落下的太阳的黑夜还要黑的程度。 
+-2022年1月1日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220118-05.jpg)The atrocity of Communism is to make people ignorant, selfish, cowardly, and eventually degenerated to animals, and that is the state of Communism – uniformed behavior, thoughts, clothing, and music; to only listen to one single person, to realize “Rule by One Family”, of which the whole country is controlled by one or few persons, aka, dictatorship. And that is the essence. 
+– Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220118-03.jpg)共产主义的创伤就是让人变得无知、自私、懦弱，最后就变成了动物，就达到了共产主义——统一的行为、思想、服装、音乐、听一个人说话，达到了家天下和家天下被一个人或几个人控制的目的，这就叫独裁，这就是本质。 
+-2022年1月1日郭文贵先生GTV/GETTR直播
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

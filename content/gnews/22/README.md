@@ -2,56 +2,36 @@
 ---
 
 
-## 【信仰之声】彼此交往“对错”很重要吗？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1881583/)
+## 有声|2021年中共国出生率和人口净增均创新低
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881617/)
 
-作者：纽约香草山福音部 — Joy
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月17日，中共国家统计局发布，2021年全年出生人口1062万人，出生率为7.52‰；死亡人口1014万人，人口净增长仅为48万人，创下自1962年以来新低，社会老龄化日益严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+相比2020年全国人口出生率8.52‰，2021年进一步下降，并持续跌破1% ，比日本与韩国还低；尤其触目惊心的是人口净增长数，2019年为467万人，2020年为204万人，2021年骤降为48万人。从性别构成来看，男性比女性多3362万人，育龄妇女人数偏少；从年龄构成看，60岁以上为2.67亿人，占总人口的18.9%，人口老龄化进一步加剧。
 
+原文链接：[2021年中共国出生率和人口净增均创新低](https://gnews.org/zh-hans/1876182/)
 
+音频处理/发稿：Daxia
 
-
-
-
-
-
-
-
-
-前不久，一位刚结婚的年轻人愁眉苦脸的向他的长辈请教，说:“我和妻子吵架了，可是我觉得自己并没有错，不知道怎样才能和她和好哪？”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220111_1.jpg)
-
-这位长辈充满慈爱的说：“孩子啊，对错不重要，重要的是爱。你们彼此相爱，你就用爱的语言来和她沟通，你们一定会和好的。”这位年轻人马上跑回去见他的妻子，给她一个长长的拥抱，他们真的就和好了，甚至都忘记了起初吵架的原因。
-
-亲爱的朋友们，这件事对我触动很大，我们战友、朋友、家人彼此交往，对错真的不重要。如果我们能放下自己的权利，用爱的语言彼此沟通，用爱心互相体谅彼此的软弱，就会有多少冲突可以被化解、多少仇恨和嫉妒会被释放啊！
-
-“最重要的是彼此相爱，因为爱能遮掩许多的罪（彼得前书4:8）”。愿我们大家都以爱的语言和行动互相沟通，一起建立美好的新生活。
-
-2022年1月19日
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1.jpeg)
-
-*编辑 /校对*：德州牛仔
-
-*发稿：Yuki*jiang
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

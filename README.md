@@ -18,116 +18,116 @@
 ### [共和黨參議員喬什·霍利 (Josh Hawley) 提醒南希·佩洛西 (Nancy Pelosi) 和立法者註意黑幕交易-II](/content/gnews/1/README.md)
  ` Peddington`
 
-### [杨洁篪王毅享受本拉登待遇](/content/gnews/2/README.md)
+### [新中国联邦唯一目标灭共](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [扬帆每日速递 2022年1月19日版（2）](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [新冠肺炎：下周四英国将取消强制佩戴口罩和新冠肺炎护照](/content/gnews/4/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [灭共者之共产主义家天下](/content/gnews/5/README.md)
- ` MOS Designer香草山设计部`
-
-### [捷克取消了强制接种中共病毒疫苗的计划](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [邪恶至极共产党每年在昆仑山搞活人祭神](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共正自导自演万邦来朝的冬奥盛会](/content/gnews/8/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国将支持藏独](/content/gnews/9/README.md)
+### [杨洁篪王毅享受本拉登待遇](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [2022/01/19 大卫作战室直播精要](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|纽约一亚裔女子无故被推下站台致死](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [2022/01/18 大卫作战室特别直播精要](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022/01/19 文贵先生直播重点大纲](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|郭先生分析行政命令与法律的本质区别](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [七哥谈“独裁、压迫、统治”（2022-01-14摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [德国缩短新冠病毒的自然免疫状态。卫生通行证的有效期从180天缩减到90天](/content/gnews/16/README.md)
+### [荒唐！患病婴儿从撒丁岛转送到热那亚，母亲因未接种疫苗无法与其相见](/content/gnews/4/README.md)
  ` xiaobaige`
 
-### [七哥谈“所有的邪教特征、坏人的特征一定是编造邪说”（2022-01-14摘录）](/content/gnews/17/README.md)
- ` MG FARM`
+### [扬帆每日速递 2022年1月19日版（2）](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场`
 
-### [有声|2021年中共国出生率和人口净增均创新低](/content/gnews/18/README.md)
+### [新冠肺炎：下周四英国将取消强制佩戴口罩和新冠肺炎护照](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|中共国重卡市场断崖式下跌](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [英国宣布放弃中共病毒疫情的强制政策](/content/gnews/19/README.md)
- ` 华盛顿DC-Russian`
+### [灭共者之共产主义家天下](/content/gnews/8/README.md)
+ ` MOS Designer香草山设计部`
 
-### [【粤语配音】2022年1月18日： 什么叫去中心化的保险？](/content/gnews/20/README.md)
- ` MOS香港部`
+### [捷克取消了强制接种中共病毒疫苗的计划](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈“你心不洁净怎么能洁净地搞灭共呢？”（2022-01-14摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [【信仰之声】彼此交往“对错”很重要吗？](/content/gnews/22/README.md)
- ` 纽约香草山MOS03`
-
-### [在中共国,所有行动都基于行政命令](/content/gnews/23/README.md)
+### [邪恶至极共产党每年在昆仑山搞活人祭神](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(一)](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共正自导自演万邦来朝的冬奥盛会](/content/gnews/11/README.md)
+ ` 扬帆枫叶快讯`
 
-### [秘翻在线: 北京疫情扩散，当局实施严格清零防控](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
+### [美国将支持藏独](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
 
-### [美飞机厂商：浦东科投非法转移技术威胁美国国安](/content/gnews/26/README.md)
- ` 日本东京方舟农场`
+### [2022/01/19 大卫作战室直播精要](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|俄罗斯和中（共）国还没有计划就安全保障采取协调行动](/content/gnews/27/README.md)
+### [有声|纽约一亚裔女子无故被推下站台致死](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [扬帆每日速递 2012年1月19日版（1）](/content/gnews/28/README.md)
- ` 温哥华扬帆农场`
+### [2022/01/18 大卫作战室特别直播精要](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报—美国时事篇](/content/gnews/29/README.md)
+### [困扰温哥华唐人街社区的破坏行为](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [2022/01/19 文贵先生直播重点大纲](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|郭先生分析行政命令与法律的本质区别](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [七哥谈“独裁、压迫、统治”（2022-01-14摘录）](/content/gnews/19/README.md)
+ ` MG FARM`
+
+### [德国缩短新冠病毒的自然免疫状态。卫生通行证的有效期从180天缩减到90天](/content/gnews/20/README.md)
+ ` xiaobaige`
+
+### [七哥谈“所有的邪教特征、坏人的特征一定是编造邪说”（2022-01-14摘录）](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [有声|2021年中共国出生率和人口净增均创新低](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [英国宣布放弃中共病毒疫情的强制政策](/content/gnews/23/README.md)
+ ` 华盛顿DC-Russian`
+
+### [在中共国,所有行动都基于行政命令](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(一)](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [第四针疫苗不能阻止Omicron](/content/gnews/30/README.md)
+### [秘翻在线: 北京疫情扩散，当局实施严格清零防控](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美飞机厂商：浦东科投非法转移技术威胁美国国安](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|俄罗斯和中（共）国还没有计划就安全保障采取协调行动](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [扬帆每日速递 2012年1月19日版（1）](/content/gnews/29/README.md)
  ` 温哥华扬帆农场`
 
-### [中共警告冬奥会参赛运动员切勿乱说乱动](/content/gnews/31/README.md)
+### [西喜时事新闻简报—美国时事篇](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [第四针疫苗不能阻止Omicron](/content/gnews/31/README.md)
+ ` 温哥华扬帆农场`
+
+### [中共警告冬奥会参赛运动员切勿乱说乱动](/content/gnews/32/README.md)
  ` 华盛顿DC-Russian`
 
-### [文贵爆料 1.19： 原来他们才是疫苗的“弄潮儿”](/content/gnews/32/README.md)
+### [文贵爆料 1.19： 原来他们才是疫苗的“弄潮儿”](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [1.19文贵直播：习大神最后的“辉煌”，最后的演讲](/content/gnews/33/README.md)
+### [1.19文贵直播：习大神最后的“辉煌”，最后的演讲](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [加拿大魁北克想對未接種疫苗的人征稅，但專家說會適得其反](/content/gnews/34/README.md)
+### [加拿大魁北克想對未接種疫苗的人征稅，但專家說會適得其反](/content/gnews/35/README.md)
  ` 温哥华扬帆农场`
 
-### [PAG诉郭文贵案暴露美国司法至暗面：美立国根基正被中共凿空](/content/gnews/35/README.md)
+### [PAG诉郭文贵案暴露美国司法至暗面：美立国根基正被中共凿空](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
 
-### [做一根压死CCP的稻草](/content/gnews/36/README.md)
+### [做一根压死CCP的稻草](/content/gnews/37/README.md)
  ` 银河勇气之星`
 
-### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/37/README.md)
+### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [全球调查显示人们对政府媒体和企业失去信任](/content/gnews/38/README.md)
- ` 华盛顿DC-Russian`
 
 ### [2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`

@@ -2,125 +2,47 @@
 ---
 
 
-## 邪恶至极共产党每年在昆仑山搞活人祭神
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1881727/)
+## 有声|中共国重卡市场断崖式下跌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881755/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/aaaa6eaa-zdg01.jpg)
-[https://gtv.org/video/id=61e85d8787664c47acd6eedb](https://gtv.org/video/id=61e85d8787664c47acd6eedb)
+配音：香草山佛教部 – 李傻
 
-曾庆红说过共产党一定不会再有什么一百年五十年
-Zeng Qinghong había dicho que el PCCh seguro no tendrá 50, 100 años
 
-他从早就这么认为
-Así le parecía desde un principio
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+摘要：中共汽车市场从加入WTO开始，一路高歌猛进，超越美国成为世界上最大汽车市场。但是从2019年开始，中共国汽车市场进入了强弩之末，乘用车领域率先下跌。同时商用车市场也发生了断崖式下跌，其中重卡市场在2021年11月份同比下滑超过百分之六十。而整个货运市场依然在恶化，消费者购买力下降导致货运需求下降，再叠加原材料价格上涨导致的运费成本上涨，2022年的重卡市场依然会延续之前的下跌趋势。
 
-你觉得习近平认为中国还有多少年吗
-¿Tu piensas que Xi Jinping cree que China aún tiene cuántos años?
+2021年已经接近尾声，中共国的重卡市场收获了五年来最差的下半年数据。根据中国汽车工业协会的数据，11月份重卡销售5.1万辆，同比下降了62.3%。1至11月，重卡累计销售133.8万辆，同比下降了11.4%。是什么原因造成了重卡市场如此低迷呢？原因有两点，其一是中国排放标准的切换，提前透支了一部分购买力，第二是更要命的货运市场下滑。
 
-习近平他爹为啥要埋在那儿
-Por qué al papa de Xi Jinping lo enterraron ahí
+今年的双十一天猫京东一共8000亿，创下历史新高，不是应该物流行业更加繁荣吗？这足已说明ccp的数据造假有多low。我了解到，天猫和淘宝的中小卖家大部分没有完成既定目标，对今年双十一的市场表现非常失望。另一方面，卡车司机的收入也一降再降。今年墙内艰难的经济环境，导致老百姓的收入普遍下降，出现了消费降级，运输业的订单自然就下降了。更要命的是柴油价格的速上涨，部分地区甚至出现了柴油荒，有些地区加油站只能给每辆卡车加500块钱的柴油，这必然造成运输成本的上涨。
 
-他为啥要建那风水
-Para qué él crea el Fengshui ahí
+可是运费并没有等比例上涨，卡车司机怨声载道，如果不拉这趟货，就会失去一个老客户。如果拉了这趟货，不赚钱不说，甚是还要搭上油费。
 
-大家一定搞明白他为啥不让她女儿出镜
-Todos deben entender por qué el no deja que su hija salga frente a la cámara
+这样的恶性循环造成了重卡经营者对未来的市场持观望态度，不再愿意投入资金。有人预计2022年重卡市场会止跌回升。我却不这样认为，今天的中国已经不是2008年的中国了，即使再拿出四万亿投入基础设施建设也于事无补了。光一个恒大就两万亿的坏账，没有人能救活中共国的经济了。2022年的重卡市场，会因为疫情反复以及疫苗灾难造成的地区封锁更加困难。
 
-他为啥让他的弟弟和彭丽媛在前面扮演这些角色
-¿Por qué dejó que su hermano menor y Peng Liyuan desempeñaran estos papeles al frente?
+据中国物流与采购联合会发布的《2021年货车司机从业状况调查报告》显示。被调查货车司机以农村户籍为主，占比为84.6%。农村户口占比较2016年调查情况有所扩大，表明农村劳动力是货车司机主要就业来源。且初中以下学历占比67.7%，82.4%的司机每日驾驶时长超过10小时普遍存在疲劳驾驶风险。有83%的卡车司机是自有车辆，56%的司机还在承担每月高额月供。
 
-他为什么用丁薛祥还有当年的栗战书
-¿Por qué usó a Ding Xuexiang y Li Zhanshu en ese tiempo?
+运输性质已挂靠为主，因为这样可以进行0首付购车，虽然购车门槛降低，但是要承担高额的利息，使得卡车司机骑虎难下，即便赚钱少还要继续跑，一旦停运贷款都还不上。以下是司机抱怨的微博截图。
 
-他为什么能把田玉玺抓起来
-¿Por qué arrestó a Tian Yuxi?
+临近年关，共产党病毒在中共国再起波澜，陕西河南河北江浙地区不断出现聚集型感染。货车如果要跨省流动，要进行核酸检测，更加加剧了运力不足。物价飞涨已是必然，西安地区老百姓买不起菜已经是事实。2000万卡车司机要吃饭，数千家卡车经销商要吃饭。马上2月4号习大神的奥运会要召开了，更严格的隔离封锁手段一定会用上，2022年第一季度的数据会更加难看。王岐山说过中国人韧性强，但是老百姓没饭吃的话会怨声载道，对共产党失去最后的信心。最终随着房地产市场崩盘、银行挤兑、疫苗灾难，四起的民怨就具备了街头政治的基础，只等爆料革命振臂一呼，把共产党扫进历史的垃圾堆里。
 
-大家一定记住共产党的内部
-Todos deben recordar el interior del Partido Comunista
+文字版原文：[中共国重卡市场断崖式下跌](https://gnews.org/zh-hans/1876527/)
 
-它有它的章法
-Tiene sus propias reglas
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-它的章法你看透的时候就那么简单的事儿
-Cuando logres ver claramente sus reglas verás que es muy fácil el asunto
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-他是深信这个所谓他不让你信的迷信
-Él cree profundamente en lo que no te deja creer
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-他100%是依照天地之他认可的规律
-Está 100% de acuerdo con las leyes del cielo y la tierra que él reconoce
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-和万佛万神他来定自己的乾坤
-Con diez mil budas y diez mil dioses, él mismo determinará su propio destino
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-掌握自己的未来
-Toma el control de su propio futuro
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-对待死人什么人权的事你就不用想了
-¿Cómo es el derecho humano al tratar con los muertos?, no tienes que pensar en eso
-
-那扯太远了对他来讲一切都是用具
-Eso es demasiado lejos, para él todo es una herramienta
-
-这是为什么昆仑山上每年
-Eso es por qué todos los años en la montaña de Kunlun
-
-要700个仙女 700 个处女要放那儿去
-Necesitan a 700 vírgenes (hadas) para ponerlas allá
-
-要祭拜昆仑山神
-Para adorar al dios de la montaña Kunlun
-
-为什么要从新疆抓多少仙女、仙神
-¿Por qué deben atrapar hadas y dioses(chicas y chicos) desde Xinjiang?
-
-西藏抓多少女神，蒙古抓多少神
-Unas cuantas diosas del Tíbet y dioses Mongolia
-
-54个民族要抓多少孩子去
-¿Cuántos niños tienen que arrestar de los 54 grupos étnicos?
-
-为什么执行的秘密部队从来没有人回来过
-¿Por qué de la fuerza secreta ejecutada nunca ha regresado una persona?
-你献神了
-Fuiste sacrificado
-
-这种事情能让你们知道吗
-¿Acaso pueden saber este tipo de cosas?
-
-你们不知道
-Usedes no lo saben
-
-你不知道 你就灭不了共
-Sin saberlo no podrán destruir al comunismo
-
-爆料革命知道
-Pero el Movimiento de Denunciantes lo sabe
-
-新中国联邦你七哥知道就能灭共
-Miles del Nuevo Estado Federal de China lo sabe para poder destruir el PCCh
-
-**原视频网址：**[https://gettr.com/post/pney97d2cf](https://gettr.com/post/pney97d2cf)
-
-日期：01/14/2022
-原视频标题：邪恶至极 共产党每年在昆仑山搞活人祭神
-Maldad extrema, el Partido Comunista hace sacrificios a Dioses con humanos en las montañas Kunlun cada año
-
-原视频日期：01/10/2022
-原视频网址：https://gettr.com/post/pney97d2cf
-任务编号：3461
-视频时间段：0:00-01:43
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 -文新战友
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
