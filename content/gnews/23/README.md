@@ -2,57 +2,44 @@
 ---
 
 
-## 有声|无悔青春
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878603/)
+## 参议员罗恩•约翰逊追寻与COVID-19有关的政府信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878612/)
 
-配音：香草山佛教部 – 李傻
+据《justthenews.com》作者：Sophie Mann，2022年1月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1470-e1642567444842.png)图片源自 justthenews.com
+参议院常设调查小组委员会的最高共和党人罗恩•约翰逊（Sen. Ron Johnson）要求食品和药物管理局（FDA）以及疾病控制和预防中心（CDC）交出，与接受特定批次COVID-19疫苗的人遭受的不良反应有关的信息。
 
+约翰逊在信中提到了他从研究人员那里获得的信息，这些研究人员利用CDC的疫苗不良事件报告系统（VAERS）的公开信息，发现了某些批次的COVID-19疫苗与不良事件之间可能存在的关系。
 
+**威斯康星州共和党人写道：“利用VAERS数据，这些研究人员发现，在过去30年中，季节性流感疫苗在VAERS中报告的单一批次不良事件从未超过137起。形成鲜明对比的是，在不到一年的时间里，有5297起不良事件与单一批次的COVID-19疫苗有关。此外，186个批次的COVID-19疫苗有超过1000份的不良事件报告，另有70个批次的报告在500-999起之间。”**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
+“研究人员的分析进一步表明，仅在美国报告给VAERS的COVID-19疫苗的不良事件中，约80%与报告给VAERS的约1%的疫苗批次有关，约80%的严重不良事件（涉及急诊室就诊、住院或死亡）与报告给VAERS的特定疫苗批次约5%有关。”
 
+约翰逊对这些机构对COVID-19疫苗批次进行的各种质量控制检查感到好奇，并对以前报告给VAERS的数字未能在早期促使“认真”调查表示非常沮丧。
 
+该信继续写道：“此外，向VAERS报告的COVID-19疫苗的不良事件和死亡总数在许多个月前，就应该促使进行认真的调查和纠正行动。正如联邦卫生机构所指出的，VAERS上的报告只是实际不良事件的一小部分。”
 
-推荐语：中共打压下的中国，好人难当，而坏人得势，有志就是有罪，平庸便可苟活，所幸作者经历磨难依然保持顽强的斗志!
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-我曾无数次
-在孤单寂寞痛苦中徘徊
-每一次脱胎换骨的绽放
-都会被无情地掐灭在襁褓之中
-不管你如何谨言慎行
-你总会在无意中得罪一些人
-不管你活得多么独特优秀
-也总会有一些人视你如仇寇
-权力无所不能
-而个人力量却极其有限
-这才是悲剧产生的总根源
-如果你想让每个人都对你满意
-你该活得有多平庸啊
-所以，为了不至于在平庸中度过一生
-我将继续同狂风暴雨、惊涛骇浪作战
-绽放吧，我无悔的青春
+报告“只是实际不良事件的一小部分”。
 
-原文链接：[无悔青春](https://gnews.org/zh-hans/1873502/)
+**“截至2021年12月17日，全世界共报告了983,758例与COVID-19疫苗相关的不良事件和20,622例死亡。在这20,622例死亡中，6,232例（30%）发生在接种后的第0、1或2天。相比之下，在30年的季节性流感疫苗报告中，总共有200,264起不良事件和2,078起死亡”。**
 
-音频处理/发稿：Daxia
+**约翰逊最近还向国防部询问了与安东尼-福奇博士对其机构据称在中国武汉资助的功能增强研究的了解有关的一些问题，他要求在1月12日之前交付这些信息。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+上周末，这位两届参议员宣布，他将在威斯康星州寻求连任，这必将成为今年秋季一场密切关注的竞选。
 
-**更多资讯，更多关注**
+原文连接：[https://justthenews.com/government/congress/ron-johnson-asks-fda-cdc-information-related-adverse-covid-19-vaccine-responses](https://justthenews.com/government/congress/ron-johnson-asks-fda-cdc-information-related-adverse-covid-19-vaccine-responses)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+翻译：洛杉矶盘古农场- TrueSky
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+校对：洛杉矶盘古农场 – Mike Li
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+编辑：洛杉矶盘古农场 – 柯镇恶
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
