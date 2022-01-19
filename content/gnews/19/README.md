@@ -2,36 +2,29 @@
 ---
 
 
-## 泽连科医生指出 接种疫苗将造成民众死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880283/)
+## 中国人缺乏落实到位的行动力
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1880312/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/泽连科.jpg)
-泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
+##### 整理：雅典娜速记组
+编辑：玉米地守望者
 
-此外，泽连科医生还提到，在接种过中共病毒疫苗的短期内，年轻的接种者或将因此产生心肌炎而住院，其中，妊娠初期的女性接种者还有极高的概率出现流产现象。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中国民族缺乏行动力并落实到位（上）-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中国民族缺乏行动力并落实到位（上）-1-scaled.jpg)
 
-至于中长期的疫苗不良反应，泽连科医生补充道，中共病毒疫苗会提高接种者自体免疫疾病的发生概率，并增加他们患癌的风险。同时，女性接种者会出现卵巢不育或孕育功能障碍，而男性则会出现精子数量减少的现象。
 
-泽连科医生最后提出，中共病毒疫苗带来的最大隐患则为接种者在三个月到三年间出现的亚急性抗体依赖增强作用现象。当个体受到具有相似抗体的病毒攻击时，疫苗将造成接种者快速死亡。
+你去看研究生物科技电脑的那个人，那个技术，大家看一看。1998年克林顿宣布美国整个人类基因排序攀升，1999年，然后硅谷出现了。赛菲斯搞了一个啊，原来，美国的医疗科技老大搞了一个叫人类DNA实验型芯片上市，11块钱直接干到66，我猜就上去了。七哥那时候闲暇有余，还挣了不少钱。结果我跟你说，我买车都到硅谷去，直接买了，开着玻璃就出去了，咣着就出去了。那个时候中国在干啥？中国是第二个基因排序的国家，但到今天出了个华大基因。**华大基因全世界号称最牛，结果被中国军方控制，华大基因研究的全是病毒，它根本没有生物科技，没有生物电脑，纯粹的胡扯。**
 
-参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+然后你再比美国，他把生物变成生物电脑的时候，全地球电脑的信息加在一起，放到一个这么大的生物电脑全给你包含。我就说人家是太阳，中国人还玩儿TOYOTA（丰田）呢，你啥都不是。希望咱们中国人不要被眼前的是是非非，东家长西家短，儿女情长就知道看裤腰带，一说小视频都开心了，一说床上韵事儿就眼睛发光了，一说未来全没有信心了，完全不愿意行动。这是一个阳痿的民族。**行动是一切的法宝！**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+*发布：玉米地守望者*
 
-总编: Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,34 @@
 ---
 
 
-## NBA金州勇士股东称“没人在乎维吾尔人权问题”引发强烈斥责
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1880358/)
+## 以色列称第二剂加强针无法阻挡奥密克戎
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880366/)
 
-#### 撰稿：日本东京方舟农场 北极
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月17日，据以色列的一项最新研究表明，民众即使接种过第四剂中共病毒疫苗加强针，其仍有可能感染奥密克戎变种病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/以色列.jpg)
+据悉，以色列沙巴医院于2021年12月跟踪记录了该院270多名医务人员的第二剂加强针，即第四针中共病毒疫苗的接种工作。而该院领导这项研究的感染病科主任约哈伊博士在记录中发现，尽管这些医护人员在接种疫苗后的抗体水平略有提高，但第四针疫苗只对中共病毒提供了部分防御。为此，约哈伊博士认为，这些疫苗的预防效果并不好，其对奥密克戎变种的防护作用非常小。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/969E8EA7-A1F0-4889-B7E2-AA2A509F604B.jpeg)美国NBA金州勇士队老板查马斯·帕里亚毕提亚在2022年1月15日在播客节目中有关新疆的言论引发网络热议。（图片来自美国之音中文网）
+数据显示，超过80%的以色列成年居民已经完全接种过中共病毒疫苗，其中，超过一半的人还额外接种了疫苗加强针，但以色列近期仍然出现了创纪录的中共病毒感染率。
 
-据美国之音1月18日报道，美国NBA金州勇士队股东查马斯·帕里亚毕提亚（Chamath Palihapitiya），在上周六（1月15日）谬称“没人在乎中国新疆维吾尔人权问题”。有关言论在周一（1月17日）一经发表，立即引发包括NBA球星和美国多位议员的强烈斥责。
+相关报道则指出，沙巴医院的研究结果让当地民众对以色列政府强推的加强针接种工作产生了质疑。但几个小时之后，该医院在以色列卫生部的强压下再一次发表声明表示，“政府可以继续开展疫苗接种活动，尽管这些疫苗不能有效防止民众感染变种病毒。”
 
-现年45岁的帕里亚毕提亚来自斯里兰卡，具有加拿大和美国双重国籍，目前为NBA旧金山金州勇士队股东之一。他同时兼任总部位于加州的风险投资公司“社会资本”（Social Capital）的创办人和首席执行官，曾为脸书高阶主管。
+参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
 
-1月15日，帕里亚毕提亚在播客“All-In”节目中谈及拜登总统对于新疆问题的立场时，他直言表示，自己并不关心新疆维吾尔人所面临的人权问题。帕里亚毕提亚在节目上不仅对中共是否是独裁政权提出质疑，他甚至怀疑新疆种族灭绝是否真实发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-NBA波士顿凯尔特人球星埃尼斯·坎特·自由（Enes Kanter Freedom）周一发表推文说，“当NBA表面上说支持正义的时候，而为了钱和事业出卖自己灵魂的大有人在。比如金州勇士队老板查马斯，他居说没人在乎维吾尔人发生了什么事。可是当种族灭绝真实发生的时候，正是这种人允许这样的事发生。可耻！”
+总编: Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-共和党联邦参议员克鲁兹（Ted Cruz）、斯科特（Rick Scott）和共和党联邦众议员华尔兹（Michael Waltz）均针对此事在推特发文抨击帕里亚毕提亚的言论是“可耻的”。
-
-根据非政府组织“人权观察”（Human Rights Watch）称，自2017年起，中共将180万至300万维吾尔人拘押在集中营，成千上万人被判刑监禁并残害致死。
-
-在网络上一片挞伐声下，金州勇士队本周一下午发表声明切割与帕里亚毕提亚的关系。
-
-*参考链接：[NBA金州勇士老板称“没人在乎维吾尔人”引争议 美议员：无耻！](https://www.voachinese.com/a/us-nba-warriors-chamath-palihapitiya-on-uyghurs-china-human-rights-20220117/6401243.html)*
-
-* * *
-
-*素材采编：北极*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
