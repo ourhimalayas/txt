@@ -2,33 +2,32 @@
 ---
 
 
-## 完全接种加强剂的西弗州长Covid测试阳性并“极度不适”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1881087/)
+## 扬帆每日速递 2012年1月19日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1881200/)
 
-编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、创造在香港曾经超级流行但目前已被禁止的抗议游行口号“光复香港，时代革命”的香港政治活动人士梁天琦，在遭关押四年后被释放。目前梁天琦仍受到中共的严格监控。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1527.png)图片来源:thegatewaypundit.com
+2、2022年刚开始，北京当局已连打“三虎”，包括广西自治区政府副主席刘宏武、西藏自治区政府副主席张永泽、中国人寿保险（集团）公司董事长王滨。
 
-完全接种了\*加强剂\*的西弗吉尼亚州州长吉姆·贾斯蒂斯（Jim Justice）表示，他周二 Covid 检测呈阳性，感到“极度不适”。
+3、人权非政府组织“保障卫士”发布的一份报告描述了中共国执行一项代号为“天网”的行动以迫使中共所谓的“逃犯”从其他国家返回中共国，来自中共国的官方数据显示，自2014年以来，近1万名此类人员因此被迫返回中共国。
 
-“虽然我对我的测试结果呈阳性感到惊讶，但我感谢上帝，我已经接种了疫苗，我得到了鼓舞，并且我有一个令人难以置信的支持系统，尤其是我亲爱的家人，” 贾斯蒂斯在新闻稿中说。“话虽如此，我此时感到非常不适，我别无选择，只能将我的州情咨文演讲推迟到立法机关。”
+4、中共国央行准备在下个月的奥运会期间为北京冬奥会游客提供数字人民币（e-CNY）支付服务。
 
-这位 70 岁的州长说，他醒来时咳嗽，后来发烧和头痛。
+5、据文贵大直播：PAG（太平联盟）案子不是为七哥而来，是为灭爆料革命而来，这个案子牵扯到共产党在美欧日等多国的深度渗透。
 
-州长周二接受了一轮单克隆抗体治疗。
+6、据文贵大直播：美国杀手级律师Edward Moss和Cahil和Melveny这些律师事务所所有做的恶，包括背后的力量是针对新中国联邦，也让战友们看到这几年文贵先生面对的无法想象的挑战和付出。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-1-19海报1简_page-0001-2.jpg)
+**加拿大温哥华扬帆农场**** ****海报组**
 
-“这发生在州情咨文的前一天晚上——我知道我不能去——让我很难过。西弗吉尼亚现在发生了很多大的事情，”贾斯蒂斯说。“因此，我为明天晚上无法与你们一起道歉，我特别向所有不得不改变计划的受邀嘉宾道歉。我会很快回到你们面前。”
+素材提供战友：Revelation熙攘、文敏
 
-**评论：就标题一行字就打脸“疫苗”作用：即使篡改传统疫苗定义（防止病毒感染），按照CDC为Covid 量身定制的“疫苗定义”——防止感染后重症住院。如果还有人信CDC关于试验mRNA疫苗注射, 那就舍命去当白老鼠吧。**
+编辑：文敏
 
-新闻来源:[thegatewaypundit.com][Fully Vaccinated \*And Boosted\* West Virginia Governor “Extremely Unwell” After Positive Covid Test](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-boosted-west-virginia-governor-extremely-unwell-positive-covid-test/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+发布：风起云间（文敏）
 
-* * *
+海报图片设计：飞天面、 Shuang
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,32 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月17日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881277/)
+## 七哥谈Joe Rogan加入咱盖特（2022-01-14摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881528/)
 
-配音：香草山农场 – 纳米
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-14直播09：53：49摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0117text-SC-1187x1536-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月17日晚](https://gnews.org/zh-hans/1873524/)
+大家一定要记住，我们中国人到今天对事情的判断是我一直要说的，你知道一年以前我们要Joe Rogan这样的人，借用唐平的话说，你去怼一下Miles Guo去吧，你给他钱他都不去。谁是Miles？ 他不知道你是谁；说你去怼怼郝海东、叶钊颖吧，你别说世界冠军，他根本不知道你俩是谁。
+我再给大家重申，Joe Rogan加入咱盖特，他700多万在推特的粉丝，到了现在是900万，我们盖特给他增加了135万，新的粉丝，纯的啊，100%纯的来自盖特130万，他给我们盖特带来了一百零几万粉丝，记住啊，他给我们带来的粉丝。就现在他是赚的，我们的活跃度增加了10倍，他的活跃度也增加了很多，但具体数据我不了解了。请问兄弟姐妹们，美国最有权力的人是谁啊？想想，川普总统，你觉得川普过去10年最多干的是什么？被人家怼，被人家骂，被人家给闭嘴不让说话。最跟他好的人最后剩下谁啊？除了罗杰·斯通，还有班农没砸他，你见有几个不砸他的？背叛、辱骂、怼，你觉得一个人能像川普能活下来这真是个了不起的美国人，我太佩服他这个精神了！那你看看拜登今天厉不厉害？全世界最有权力的人，几乎半个美国都在骂他，都在怼他。你见过现在世界上唯一不被怼的人是谁你知道吗？唯一不被怼的就是习近平，因为他把你们的嘴全都给闭住了，是吧？在北朝鲜不能怼的是金家。我们今天GTV能在一年多以后活到今天，有人怼我们，今天是怼啥？全球的社交媒体都在怼我们。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**关注我们**
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+Discord 账号
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+Gettr 账号
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
