@@ -2,29 +2,34 @@
 ---
 
 
-## 中国和美国看面子
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1880151/)
+## 强制卡车司机接种疫苗或将加剧粮食危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880199/)
 
-##### 整理：雅典娜速记组
-编辑：玉米地守望者
+作者：加拿大温哥华扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月15 日，据相关媒体报道，加拿大联邦政府此前针对入境的卡车司机实行的疫苗护照政策给当地带了一些严重的问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/强制卡车.jpg)
+资料显示，加拿大政府于2021年11月要求所有从美国入境的卡车司机在入关时出示其中共病毒疫苗的接种证明，此项政策本计划于今年1月15日正式生效。 加拿大卡车联盟对此表示，未接种疫苗的卡车司机在越过边境进入加拿大时，需要接受为期14天的隔离。此举将导致大约一万六千名卡车司机被迫离职。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中国和美国看面子（上）-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/中国和美国看面子（下）-scaled.jpg)
+数据表明，加拿大每年需要从美国进口价值约210亿美元的农业食品，尤其在冬季，来自美国南部各州的产品可以为加拿大消费者提供至关重要的食物供应。这其中，将近70%的进口食品是通过卡车运输的。为此，该疫苗护照计划甚至可能影响到加拿大民众的食物供应。而这也是自中共病毒流行以来，第一个可能中断加拿大和美国之间贸易往来的公共卫生措施。
 
+报道指出，而今，中共病毒的肆虐已经让加拿大的公共卫生系统承受着巨大的压力，此外，当地的食品供应也出现了严重的通货膨胀。在此情况下，针对卡车司机的疫苗护照计划将使加拿大民众成为疫苗强制令的直接受害者。
 
-中国领导人要面子，让中国人民付出多大的代价。美国从来不要脸，不要面子。这是FBI的整个团队跟我说的原话。人家美国人，你要面子，我就给你中国人面子，中国人的面子，不知道死了多少人，害了多少人。你的面子我给你，先买点农业，先买点东西。然后，再买点儿国债，这场所谓就是掉了个坑儿，拜登要求开的视频会。中国人付出了千亿美元的价值。这个拜登的要求，一中政策和班农，（是）为了中期选举
+参考链接：[CHARLEBOIS: Trucker vaccination policy will harm food chain](https://torontosun.com/opinion/columnists/charlebois-trucker-vaccination-policy-will-harm-food-chain)
 
-改变中国体制就这几个问题吗，这几个问题，然后美方便答应了。所以拜登说，我不尝试改变中国的体制，坚持美国一直以来呢，就是一中政策。**什么叫一中政策，一中政策就是较模糊的台湾政策，**就是一直不可以说是台湾。这都是骗小孩儿的游戏，人家重复了一遍，然后马上过来了。然后是拜登坚持台湾读这个法律台独，这完全是两回事儿。同一天，把班农送到了法院，这绝对是有意安排的。你们实际上提出，你能不能收拾收拾搬走和郭文贵，搞川普啊，说把班农弄到法庭去修理他一下，收拾他一下。这就是核心，是经济问题，**核心是中期选举，再核心是个人问题。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-*发布：玉米地守望者*
+总编: Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

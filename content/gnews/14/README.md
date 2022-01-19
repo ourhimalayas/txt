@@ -2,33 +2,34 @@
 ---
 
 
-## 春江水寒鸭先知，中共国经济寒冬已至
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1880357/)
+## 以色列称第二剂加强针无法阻挡奥密克戎
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880366/)
 
-作者：波士顿五月花 淘喵先生
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220119-1-1.jpg)
-1月17日，中共国伪国家统计局宣布，2021年中共国GDP比上年增长8.1%，在全球主要经济体中再次名列前茅。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月17日，据以色列的一项最新研究表明，民众即使接种过第四剂中共病毒疫苗加强针，其仍有可能感染奥密克戎变种病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/以色列.jpg)
+据悉，以色列沙巴医院于2021年12月跟踪记录了该院270多名医务人员的第二剂加强针，即第四针中共病毒疫苗的接种工作。而该院领导这项研究的感染病科主任约哈伊博士在记录中发现，尽管这些医护人员在接种疫苗后的抗体水平略有提高，但第四针疫苗只对中共病毒提供了部分防御。为此，约哈伊博士认为，这些疫苗的预防效果并不好，其对奥密克戎变种的防护作用非常小。
 
-从中共国出来的华人都知道，对中共国的统计数据哪怕只相信一个标点符号，都可能会上当。凭空捏造各种数据，早已是共匪体制的常态。
+数据显示，超过80%的以色列成年居民已经完全接种过中共病毒疫苗，其中，超过一半的人还额外接种了疫苗加强针，但以色列近期仍然出现了创纪录的中共病毒感染率。
 
-那么中共国内的经济形势究竟如何呢？我们可以从墙内亲朋好友的切身经历来体会其真实状况。
+相关报道则指出，沙巴医院的研究结果让当地民众对以色列政府强推的加强针接种工作产生了质疑。但几个小时之后，该医院在以色列卫生部的强压下再一次发表声明表示，“政府可以继续开展疫苗接种活动，尽管这些疫苗不能有效防止民众感染变种病毒。”
 
-本人认识一个事业有成的潮州朋友，五个子女皆已成人，全家老小一起在深圳最大的化妆品批发市场做生意，基本可以算是行业内的龙头企业。因为他家实力强、囤货多，畅销货也多，同时批发出去的价格比其他家更有竞争力，所以前几年生意好的时候，他们凭借自己的行业地位经常对客户挑三拣四，对于那些进货量较少和拿货频率不高的小商户，基本是爱理不理，常常是有货也不卖。
+参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
 
-而现在呢？据说他需要和五个子女全部亲自上阵，在网上利用各种手段争抢客户，哪怕是非常麻烦的各种零售单也抢着接。即便如此，他也哀叹快要维持不下去了，因为交不起商铺的租金，正在很慎重地考虑转行。但是由于各行各业都是萧条疲软，又不知道能转到哪个行业去。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-据说在整个化妆品批发行业里他家的状况还算是比较好的，毕竟有实力，也有前几年的利润垫底，所以暂时还能撑得住，而行业内的其他很多商户已经惨不忍睹了，不是债台高筑就是已经破产。
+总编: Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-春江水寒鸭先知。因为化妆品是具有“口红效应”的行业，具有较强的抗经济周期韧性，最不容易受到经济萧条的影响。所以当化妆品行业中的龙头企业都做不下去的时候，中共国宏观经济的惨烈状况也就可想而知了。
-
-* * *
-
-*编辑：黄金时代*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

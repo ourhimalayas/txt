@@ -2,34 +2,38 @@
 ---
 
 
-## MV版Hcoin To the Moon上线42天第28次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1880385/)
+## 白宫：俄罗斯可能随时会对乌克兰发动袭击
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1880439/)
 
-1/19/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线42天第28次位列澳门iTunes热门音乐视频榜榜首，第35次位列前三名
+#### **撰稿：**日本东京方舟农场 子辰
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2BB563A2-4710-493A-A11F-63387F142867.jpeg)（图片来自《大纪元》）
+
+1月18日，白宫发言人珍‧普萨基（Jen Psaki）表示，美国认为俄罗斯可能“随时”对乌克兰发动袭击，这突显了威胁的紧迫性。
+
+目前，俄罗斯已在与乌克兰接壤的边境集结了10万名士兵，并将部队派往白俄罗斯进行联合军事演习。
+
+白宫发言人普萨基在新闻简报会上告诉记者，“我们认为这是一个极其危险的情况。我们现在处于俄罗斯随时可能对乌克兰发动袭击的阶段。”
+
+为了阻止俄罗斯入侵乌克兰，美国国务卿布林肯计划1月21日会见俄罗斯外交部长谢尔盖‧拉夫罗夫（Sergey Lavrov）。
+
+普萨基说，布林肯计划敦促俄罗斯缓和局势，并采取美国及其盟友提供的外交途径，重申如果俄罗斯选择入侵乌克兰，将会面临重大的经济后果。“由俄罗斯决定他们将走哪条道路，如果他们不走外交道路，后果将是严重的。”普萨基说。
+
+白宫国家安全顾问杰克‧沙利文（Jake Sullivan）则表示，美国情报界尚未评估普京是否已下定决心入侵乌克兰，但攻击威胁仍为很高。
+
+此外，普萨基1月14日表示，美国情报官员已经断定，俄罗斯正努力为入侵乌克兰制造借口，而且已在乌克兰东部预先安排了特工，以便开展栽赃嫁祸行动。
+
+俄罗斯方面则否认计划发动新的军事攻势，并已提出多项要求，表示除非西方同意俄罗斯的要求，否则可能会采取未指明的军事行动。
+
+*参考链接：[白宫：俄罗斯可能随时对乌克兰发动袭击](https://www.epochtimes.com/gb/22/1/18/n13514126.htm)*
 
 * * *
 
-[【PDF 下载】Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+*素材采编：子辰*
 
-* * *
+*编辑：青城道姑*
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
-
-
-[【PDF 下载】Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-19-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：miumiu*
 
  
 
