@@ -2,61 +2,53 @@
 ---
 
 
-## 2022/01/19 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1881691/)
+## 灭共者之共产主义家天下
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1881730/)
 
-[![](https://express.adobe.com/page/Uo8soCSLyJb1q/images/9bac0de3-9d2b-40ae-aa57-e220a2cea941.png?asset_id=0fbfbef2-2fd1-4825-90ec-b7c3cf5d333a&amp;img_etag=%2219c3a0fe15b49f0ad46ce21c8fc2e7ce%22&amp;size=2560)](https://express.adobe.com/page/Uo8soCSLyJb1q/images/9bac0de3-9d2b-40ae-aa57-e220a2cea941.png?asset_id=0fbfbef2-2fd1-4825-90ec-b7c3cf5d333a&amp;img_etag=%2219c3a0fe15b49f0ad46ce21c8fc2e7ce%22&amp;size=1024)
-[**YouTube视频链接**](https://www.youtube.com/watch?v=uMZqrEAe4Us)
-
-**主持**：大卫｜**嘉宾**：Lila、跟着北美教练健身
-
-**板块1–灭共者联盟**
-
-1. 北京奥委会官方呼吁运动员前往中共国前14天下载推广App，智能手机App被发现存在安全漏洞；“看门狗”组织警告说，中共国的强制性奥运会应用程序导致隐私和审查担心。
-
-在外国运动员注重人身安全和信息安全的背景下，中共依旧利用App收集数据（如：新闻管理区提供Wifi，使用者需下载特定的App）。凸显中共心虚害怕敏感信息被西方掌握，西方来访记者出行和行动被监控。
-
-中共“顺势”将监控国内党员和老百姓的手段“输出”到各国运动员和新闻记者。
-
-**板块2–社会文化**
-
-1. 从2022-1-19起中共国将取消所有美国航班；中共国取消冬奥会门票销售。
-
-中共不管海外华人的实际情况实行航班“一刀切”政策。向外“甩锅”推卸北京最新感染病毒责任(来自美国和加拿大货运的包裹“被”检测出病毒阳性）。
-
-冬奥会售票同样实行“一刀切”政策，冬奥会“氛围组”直接取消，冬奥会精彩程度大打折扣，实际反映出北京疫情难以控制。预计接下来临近北京各地政府会因疫情扩散至北京事件开启“窝里斗”模式。
-
-中共极力举办冬奥会目的①向世界证明其“一流”管控疫情能力；②向国际证明中共国有巨大的潜在市场，留住世界经济引擎的地位，保障经济继续增长。
-
-**板块3–财经**
-
-1.中共国以新冠病毒为借口限制进口。
-
-通过限制商品进口强制改变墙内民众生活习惯。
-
-“全套活”–中共近期柴油出口减少，进口天然气增加，默默执行战略储备物资计划。对国内老百姓实行“娱乐至死”和严格管控公检法，对海外全球物流供应、国际供应链造成大混乱。对海外华人制造种族仇恨、打击新中国联邦。
-
-2.佳能相机关闭珠海工厂，大众丰田关闭天津工厂。
-
-工厂关闭将影响上下游相关企业。国内汽车销售下滑明显，丰田及时止损关闭工厂。中共国经济内需严重下滑，整体形势严峻。
-
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
-
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
-
-[![](https://express.adobe.com/page/Uo8soCSLyJb1q/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/Uo8soCSLyJb1q/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+**出品：纽约香草山设计部**
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://express.adobe.com/page/Uo8soCSLyJb1q/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/Uo8soCSLyJb1q/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-1_.jpg)The year of 2022 will definitely be cataclysmic for the CCP, including the 20th National Congress where the CCP can almost decide the fate of all Chinese and people of the world. The internal politics of Communist China will be fraught with bloodshed, contests and massacre; don’t expect to find out the final outcome until the last minute. Confronted by the vaccine catastrophe and the virus catastrophe, the world is sliding into the darkest hours. 
+Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1_-1.jpg)2022年绝对是共产党的大灾之年，包括共产党几乎可以决定中国人和全世界人命运的二十大；中国内部的政治会充满了血腥、较量和屠杀，不到最后一分钟都很难定局；世界在疫苗灾难、病毒灾难面前，会黑暗到比刚刚落下的太阳的黑夜还要黑的程度。 
+-2022年1月1日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220118-05.jpg)The atrocity of Communism is to make people ignorant, selfish, cowardly, and eventually degenerated to animals, and that is the state of Communism – uniformed behavior, thoughts, clothing, and music; to only listen to one single person, to realize “Rule by One Family”, of which the whole country is controlled by one or few persons, aka, dictatorship. And that is the essence. 
+– Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220118-03.jpg)共产主义的创伤就是让人变得无知、自私、懦弱，最后就变成了动物，就达到了共产主义——统一的行为、思想、服装、音乐、听一个人说话，达到了家天下和家天下被一个人或几个人控制的目的，这就叫独裁，这就是本质。 
+-2022年1月1日郭文贵先生GTV/GETTR直播
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

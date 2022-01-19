@@ -2,41 +2,34 @@
 ---
 
 
-## 英国宣布放弃中共病毒疫情的强制政策
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1881616/)
+## 有声|郭先生分析行政命令与法律的本质区别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881647/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B-5.jpg)trustandmoney.com
-《门道专家》1月19日发表文章，题目是“在英国，鲍里斯·约翰逊（Boris Johnson）放弃了中共（新冠）病毒疫情的强制政策：‘我们将相信英国人民的判断’”。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月14日大直播中，谈到行政命令与法律时，郭先生分析，法律一词源于西班牙帝国时期“笔直”的本义，即大多数人认可的笔直的规矩，是“民天下”政府与平民及社会实体之间的契约。意味着任何突出的特权的越位都要被砍掉，其使命是铲除贪婪、嗔恨、邪恶和凶恶，是法治的基石，民主和自由的护身符。而行政命令是独裁者个人意志的体现，是“家天下”统治的工具，是人治社会的箩筐。任何不符合统治者意志的行为都可以往里面放。法律充满程序正义，行政命令毫无程序正义可言。
 
-全文如下：
+原文链接：[美飞弹核潜舰公开访问关岛展示威吓力](https://gnews.org/zh-hans/1875937/)
 
-英国首相鲍里斯·约翰逊正在取消中共病毒疫情的强制政策。
+音频处理/发稿：Daxia
 
-从周四（1月20日）起，学生不再需要在教室戴口罩。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-1月27日，在英国的任何学校或任何地方都不再强制要求戴口罩，参加大型活动也不再需要疫苗护照，该国政府将转而“推荐”在封闭空间内戴口罩，让人们自行选择是否佩戴。
+**更多资讯，更多关注**
 
-政府还将放弃其中共病毒通行证的要求，不再强迫人们在进入公共场所时出示疫苗接种证明。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-约翰逊周三（1月19日）欢欣鼓舞地在议会宣布，“在全国范围内，我们将继续建议在封闭或拥挤的空间使用口罩，特别是当你接触到平时不常见面的人时。但我们将相信英国人民的判断，不再将任何选择不戴口罩的人定为刑事犯罪。”
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-英国首相还取消了自12月13日起生效的政府在家办公的规定，约翰逊解释说，英国将开始像对待流感一样对待中共病毒。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-约翰逊说：“很快就会有一天，我们可以完全取消自我隔离的法律要求，就像我们不会对患有流感的人规定隔离的法律义务一样。随着中共病毒的流行，我们需要以建议和指导取代法律强制，敦促感染中共（新冠）病毒的人小心和体谅他人。”
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-英国国家首脑坚持认为，对中共病毒疫情的限制不再是强制性的，因为政府科学家声称，由奥密克戎变异引起的感染激增“在全国范围内已经达到顶峰”，在英国，超过90%的60岁以上的人至少接种了三剂中共病毒疫苗或加强剂。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-（全文完）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-结束了，随着疫苗护照的取消，疫苗强制接种政策也被废。大英帝国开了先例，正常的日子即将回归。
 
-原文链接：
-
-[https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/](https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
 
  
 

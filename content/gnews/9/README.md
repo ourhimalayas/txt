@@ -2,33 +2,15 @@
 ---
 
 
-## 有声|郭先生分析行政命令与法律的本质区别
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881647/)
+## 美国将支持藏独
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1881708/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月14日大直播中，谈到行政命令与法律时，郭先生分析，法律一词源于西班牙帝国时期“笔直”的本义，即大多数人认可的笔直的规矩，是“民天下”政府与平民及社会实体之间的契约。意味着任何突出的特权的越位都要被砍掉，其使命是铲除贪婪、嗔恨、邪恶和凶恶，是法治的基石，民主和自由的护身符。而行政命令是独裁者个人意志的体现，是“家天下”统治的工具，是人治社会的箩筐。任何不符合统治者意志的行为都可以往里面放。法律充满程序正义，行政命令毫无程序正义可言。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-原文链接：[美飞弹核潜舰公开访问关岛展示威吓力](https://gnews.org/zh-hans/1875937/)
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
 
  

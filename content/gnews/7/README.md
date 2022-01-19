@@ -2,79 +2,126 @@
 ---
 
 
-## 2022/01/18 大卫作战室特别直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1881678/)
+## 邪恶至极共产党每年在昆仑山搞活人祭神
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1881727/)
 
-[![](https://express.adobe.com/page/CxZfqh9CvyYov/images/dec01c25-cedd-42ab-8bf1-310e902470bb.png?asset_id=1b0bada9-bdad-42a8-9727-7b29bee1cb7a&amp;img_etag=%220269d5dc44141f325b8bd8535cbe20f9%22&amp;size=2560)](https://express.adobe.com/page/CxZfqh9CvyYov/images/dec01c25-cedd-42ab-8bf1-310e902470bb.png?asset_id=1b0bada9-bdad-42a8-9727-7b29bee1cb7a&amp;img_etag=%220269d5dc44141f325b8bd8535cbe20f9%22&amp;size=1024)
-[**GTV直播链接**](https://gtv.org/video/id=61e71c7c533c672fca7ef972)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/aaaa6eaa-zdg01.jpg)
+[https://gtv.org/video/id=61e85d8787664c47acd6eedb](https://gtv.org/video/id=61e85d8787664c47acd6eedb)
 
-**主持**：大卫｜**嘉宾**：Dr.TCC
+曾庆红说过共产党一定不会再有什么一百年五十年
+Zeng Qinghong había dicho que el PCCh seguro no tendrá 50, 100 años
 
-**板块1–药品用量**
+他从早就这么认为
+Así le parecía desde un principio
 
-1. 病毒发展三个阶段：潜伏期–发病（病毒）期–自身免疫（炎症）期。每期大概一周时间。
+你觉得习近平认为中国还有多少年吗
+¿Tu piensas que Xi Jinping cree que China aún tiene cuántos años?
 
-2. 锌用量。
+习近平他爹为啥要埋在那儿
+Por qué al papa de Xi Jinping lo enterraron ahí
 
-锌过量明显症状呕吐、阻碍其他微量元素吸收、增加排毒器官负担。
+他为啥要建那风水
+Para qué él crea el Fengshui ahí
 
-预防病毒经典搭配一（羟氯喹200毫克/天连续五天＋锌不超100毫克/周），素食主义者考虑增加为锌150毫克/周。羟氯喹作用①变形病毒细胞膜上ACE2受体阻止其进入人体细胞，②减缓进入人体细胞病毒复制③携带锌进入人体细胞，锌负责杀病毒。
+大家一定搞明白他为啥不让她女儿出镜
+Todos deben entender por qué el no deja que su hija salga frente a la cámara
 
-羟氯喹半衰期较长（30-40天），过量同样有副作用。
+他为啥让他的弟弟和彭丽媛在前面扮演这些角色
+¿Por qué dejó que su hermano menor y Peng Liyuan desempeñaran estos papeles al frente?
 
-预防病毒搭配二（槲皮素500毫克/天＋锌不超过100毫克/周）。
+他为什么用丁薛祥还有当年的栗战书
+¿Por qué usó a Ding Xuexiang y Li Zhanshu en ese tiempo?
 
-3. 实例–夫妻感染后相同用药量，效果不一样。
+他为什么能把田玉玺抓起来
+¿Por qué arrestó a Tian Yuxi?
 
-用药量根据自身身体状况（参考因素：自身体重、是否有基础疾病、肠胃吸收能力、饮食习惯等）。用药短期没效果应适当加量。
+大家一定记住共产党的内部
+Todos deben recordar el interior del Partido Comunista
 
-4. 感染期用药量不足。（伊维菌素用量标准按0.4-0.5毫克每公斤体重，连续5-7天）
+它有它的章法
+Tiene sus propias reglas
 
-感染病毒后，服用少量伊维菌素未能彻底清楚病毒会导致病毒在体内继续复制、变异，再次出现症状会更强烈。
+它的章法你看透的时候就那么简单的事儿
+Cuando logres ver claramente sus reglas verás que es muy fácil el asunto
 
-5. 地塞米松用量（早期治疗不适用–病毒繁殖期助长病毒生长)
+他是深信这个所谓他不让你信的迷信
+Él cree profundamente en lo que no te deja creer
 
-属于激素类，控制体内炎症反应，用于病毒发展至第三期。地塞米松用量–大剂量短期使用6-12毫克/天，逐渐降低用量（不能断崖式停药），在专业医生检测下使用。
+他100%是依照天地之他认可的规律
+Está 100% de acuerdo con las leyes del cielo y la tierra que él reconoce
 
-**板块2–病毒传染性**
+和万佛万神他来定自己的乾坤
+Con diez mil budas y diez mil dioses, él mismo determinará su propio destino
 
-1. 家人有感染的情况。
+掌握自己的未来
+Toma el control de su propio futuro
 
-家中分开隔离，保持通风，及时用药。未感染家人使用预防用量，不需要增量补充羟氯喹，适量补充维生素C和锌。如果使用预防方案二，苹果等水果含有槲皮素，不用增加补充槲皮素。
+对待死人什么人权的事你就不用想了
+¿Cómo es el derecho humano al tratar con los muertos?, no tienes que pensar en eso
 
-2. 恢复期注意事项。
+那扯太远了对他来讲一切都是用具
+Eso es demasiado lejos, para él todo es una herramienta
 
-注意保暖，逐步恢复运动。逐步降低羟氯喹用量，大概四周后可以服用青蒿素，特别注意铁元素的补充，如有任何不适症状及时停用。
+这是为什么昆仑山上每年
+Eso es por qué todos los años en la montaña de Kunlun
 
-3. 正常未感染人群使用青蒿素。
+要700个仙女 700 个处女要放那儿去
+Necesitan a 700 vírgenes (hadas) para ponerlas allá
 
-青蒿素属于活性物质，刺激肝脏工作增加压力，不建议平白无故使用青蒿素，预防方案不推荐青蒿素。
+要祭拜昆仑山神
+Para adorar al dios de la montaña Kunlun
 
-**板块3–真实案例分析总结**
+为什么要从新疆抓多少仙女、仙神
+¿Por qué deben atrapar hadas y dioses(chicas y chicos) desde Xinjiang?
 
-1.战友应拒绝自己诊断，不用过于紧张，不能自我随意更改用药剂量，及时积极与英喜医疗部保持联系。
+西藏抓多少女神，蒙古抓多少神
+Unas cuantas diosas del Tíbet y dioses Mongolia
 
-2.检测试纸并不准确，存在大量伪阳性伪阴性。如果平时不常感冒却突然发烧两天，并伴随味觉嗅觉消失，大概率感染中招。
+54个民族要抓多少孩子去
+¿Cuántos niños tienen que arrestar de los 54 grupos étnicos?
 
-3.有条件情况下配备血氧测量仪。及时观测血氧浓度、体温、心跳、血压情况，医疗部诊断病情的重要指标。
+为什么执行的秘密部队从来没有人回来过
+¿Por qué de la fuerza secreta ejecutada nunca ha regresado una persona?
+你献神了
+Fuiste sacrificado
 
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+这种事情能让你们知道吗
+¿Acaso pueden saber este tipo de cosas?
 
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+你们不知道
+Usedes no lo saben
 
-[![](https://express.adobe.com/page/CxZfqh9CvyYov/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/CxZfqh9CvyYov/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+你不知道 你就灭不了共
+Sin saberlo no podrán destruir al comunismo
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+爆料革命知道
+Pero el Movimiento de Denunciantes lo sabe
 
+新中国联邦你七哥知道就能灭共
+Miles del Nuevo Estado Federal de China lo sabe para poder destruir el PCCh
 
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://express.adobe.com/page/CxZfqh9CvyYov/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/CxZfqh9CvyYov/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+**原视频网址：**[https://gettr.com/post/pney97d2cf](https://gettr.com/post/pney97d2cf)
+
+日期：01/14/2022
+原视频标题：邪恶至极 共产党每年在昆仑山搞活人祭神
+Maldad extrema, el Partido Comunista hace sacrificios a Dioses con humanos en las montañas Kunlun cada año
+
+原视频日期：01/10/2022
+原视频网址：https://gettr.com/post/pney97d2cf
+任务编号：3461
+视频时间段：0:00-01:43
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 -文新战友
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,36 @@
 ---
 
 
-## 七哥说“怀疑、质疑、否定、打击甚至是被污化，恰恰是证明我们是一个最需要的力量”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881558/)
+## 有声|2021年中共国出生率和人口净增均创新低
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881617/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月17日，中共国家统计局发布，2021年全年出生人口1062万人，出生率为7.52‰；死亡人口1014万人，人口净增长仅为48万人，创下自1962年以来新低，社会老龄化日益严重。
 
-来源：郭先生2022-01-14直播10：02：52摘录
+相比2020年全国人口出生率8.52‰，2021年进一步下降，并持续跌破1% ，比日本与韩国还低；尤其触目惊心的是人口净增长数，2019年为467万人，2020年为204万人，2021年骤降为48万人。从性别构成来看，男性比女性多3362万人，育龄妇女人数偏少；从年龄构成看，60岁以上为2.67亿人，占总人口的18.9%，人口老龄化进一步加剧。
 
-我们今天所有的一切，郭文贵、所有和爆料革命、新中国联邦，一切全部都是在否定中长大的，没有一件不是，就连长岛哥都是我说他，我说：“你会比马云还幸福”，他都对我一片怀疑声中长大的。怀疑、质疑、否定、打击甚至是被污化，恰恰是证明我们是一个最需要的力量，也是新中国联邦追求的，让所有人有自由说话的权利，你被证明的权利。在共产党国第一你没有说话的权利，二，你被污化了，你也没有证明的权利。我们现在拥有两样，我既能证明我是真是假，我们未来完全能证明这是真是假，这已经证明了。我们有这个机会有这个能力，我们怕什么呢？我们要求的就是每个人发言的权利，为啥不给别人发言的权利呢？你社交媒体就是让每个人来发言的，你为什么不让别人发言呢？如果任何人不骂新中国联邦、不骂郭文贵的时候，你们记住，如果没有人说七哥是骗子、新中国联邦是骗子、是邪教的时候，我们基本上没有价值了，一定这里边其中有某个猫腻儿出来了，跟共产党勾兑了。你觉得有人骂屎诺、你觉得有人骂这个吴征是骗子吗？在这些共产党的媒体里，没有。像今天早上，YouTube 把熊宪民所有人的都都黑了，都给干掉了，YouTube。我告诉大家，我在一个月前，两个月的时候，在冬奥会之前，在二十大之前，所有的社交媒体，在中共国能看的YouTube，你们所有的账号，包括我的，都会给你们删除。为什么？因为共产党已经给他说了：“你把这些都删了，我让你在中国还能打开你的，你要不能，你不把他全删了，就像郭文贵的新中国联邦的媒体GTV一样，谁也看不了。”这叫资本主义，你不懂得资本主义的规则，你拿着共产党的脑子想这问题，兄弟姐妹们，你比在国内还痛苦。呵，所以说我在你们今天说这个之前，我先把这个背景，Joe Rogan 的事情考验了所有人的智慧和心胸，还有你配不配做新中国联邦人。
+原文链接：[2021年中共国出生率和人口净增均创新低](https://gnews.org/zh-hans/1876182/)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+音频处理/发稿：Daxia
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-Discord 账号
+**更多资讯，更多关注**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Gettr 账号
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

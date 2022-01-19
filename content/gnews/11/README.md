@@ -2,25 +2,44 @@
 ---
 
 
-## 德国缩短新冠病毒的自然免疫状态。卫生通行证的有效期从180天缩减到90天
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1881633/)
+## 有声|纽约一亚裔女子无故被推下站台致死
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881685/)
 
-#### 翻译                      意大利达芬奇农场                  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-19-alle-15.22.29.png)图片来源： databaseitalia
-罗伯特•科赫研究院发布的新的指导纲领，德国患了新冠病毒的人之后具有90天的免疫力而在这之前是180天的免疫力。
+配音：香草山健身部 – 玫瑰园
 
-周五，负责疾病控制和预防的联邦机构罗伯特•科赫研究院根据有关新冠病毒的发展发布了新指南。
 
-根据新指南， 以前感染过新冠病毒的人将只有90天的免疫状态。旧规则规定，感染后可有180天的免疫证明。
 
-必须使用核酸检测或PCR检测并提供先前感染的证据。任何可以显示至少28天的PCR检测结果呈阳性的人都被认为已治愈。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这些措施于周六生效。相比之下， 在瑞士，人们在感染新冠病毒后可以要求获得免疫力的期限目前是检测结果后的365天。
 
-原文链接： 
-[https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/](https://www.databaseitalia.it/la-germania-accorcia-lo-stato-di-immunita-naturale-del-covid-la-validita-del-pass-sanitario-passa-da-180-a-90-giorni/)
 
-编辑、上传： Xiao  baige
+外媒1月15日报道，当天上午，在纽约市时代广场地铁站，一名40岁左右的亚裔妇女在一辆迎面而来的地铁前被人推下站台，并被一辆南行列车撞倒，当场死亡。市政府和警察局官员在新闻发布会上透露，某男性嫌疑人逃离了现场，但不久后向交通警察自首。
+
+纽约警察局长说，这是一起无故伤害事件，事发前受害者与嫌疑人没有任何矛盾冲突。
+
+纽约市的犯罪统计数据显示，2021年截止到12月，针对亚裔的伤害事件比前一年增加了361%。
+
+原文链接：[纽约一亚裔女子无故被推下站台致死](https://gnews.org/zh-hans/1874132/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
