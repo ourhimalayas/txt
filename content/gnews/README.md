@@ -15,98 +15,98 @@
 
 ---
 
-### [做一根压死CCP的稻草](/content/gnews/1/README.md)
+### [即将上任的弗州州长计划加入针对拜登疫苗授权的诉讼](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [做一根压死CCP的稻草](/content/gnews/2/README.md)
  ` 银河勇气之星`
 
-### [不要为了买喜币在国内冒着生命危险](/content/gnews/2/README.md)
+### [不要为了买喜币在国内冒着生命危险](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [1月18日联盟答疑，G系列相关信息文字版](/content/gnews/3/README.md)
+### [1月18日联盟答疑，G系列相关信息文字版](/content/gnews/4/README.md)
  ` 全球G系列咨服群`
 
-### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/4/README.md)
+### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [全球调查显示人们对政府媒体和企业失去信任](/content/gnews/5/README.md)
+### [全球调查显示人们对政府媒体和企业失去信任](/content/gnews/6/README.md)
  ` 华盛顿DC-Russian`
 
-### [加拿大保守党呼吁对中共收购新锂公司进行安全审查](/content/gnews/6/README.md)
+### [加拿大保守党呼吁对中共收购新锂公司进行安全审查](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共间谍在议会活动曝光，英国将立法打击外国干涉](/content/gnews/7/README.md)
+### [中共间谍在议会活动曝光，英国将立法打击外国干涉](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效](/content/gnews/8/README.md)
+### [泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](/content/gnews/9/README.md)
+### [2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [即使疫苗不起作用 明尼苏达仍继续推疫苗](/content/gnews/10/README.md)
+### [即使疫苗不起作用 明尼苏达仍继续推疫苗](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡](/content/gnews/11/README.md)
+### [【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [斯洛文尼亚与台湾就互设代表处进行洽谈](/content/gnews/12/README.md)
+### [斯洛文尼亚与台湾就互设代表处进行洽谈](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [中共必将遭受世界人民和司法公正的审判](/content/gnews/13/README.md)
+### [中共必将遭受世界人民和司法公正的审判](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [中共国开发的冬奥会小程序或存在安全漏洞](/content/gnews/14/README.md)
+### [中共国开发的冬奥会小程序或存在安全漏洞](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [郭先生解析中共惧怕新中国联邦的原因](/content/gnews/15/README.md)
+### [郭先生解析中共惧怕新中国联邦的原因](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [模型预测美国未来几周将出现Omicron 感染死亡的高峰](/content/gnews/16/README.md)
+### [模型预测美国未来几周将出现Omicron 感染死亡的高峰](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2022年1月19日郭先生大直播 文字同步精要](/content/gnews/17/README.md)
+### [2022年1月19日郭先生大直播 文字同步精要](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [美国及世界疫情简报（01-19-2022）](/content/gnews/18/README.md)
+### [美国及世界疫情简报（01-19-2022）](/content/gnews/19/README.md)
  ` 波士顿五月花农场`
 
-### [北京冬奥开幕在即 中共当局又开始病毒甩锅](/content/gnews/19/README.md)
+### [北京冬奥开幕在即 中共当局又开始病毒甩锅](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚多地提前将加强针注射等待周期缩减至三个月](/content/gnews/20/README.md)
+### [澳大利亚多地提前将加强针注射等待周期缩减至三个月](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [樱花灭共诗——过大染坊旧址](/content/gnews/21/README.md)
+### [樱花灭共诗——过大染坊旧址](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/18/2021 文贵盖特：太平联盟及PAX案的法官罔顾法律和常识，既不允许文贵张嘴说话、也不允许质疑对方，直接判文贵藐视法庭，这还叫法治吗？](/content/gnews/22/README.md)
+### [1/18/2021 文贵盖特：太平联盟及PAX案的法官罔顾法律和常识，既不允许文贵张嘴说话、也不允许质疑对方，直接判文贵藐视法庭，这还叫法治吗？](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵大直播 1/19 达沃斯的幕后真相](/content/gnews/23/README.md)
+### [文贵大直播 1/19 达沃斯的幕后真相](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [1/18/2021 文贵盖特：单伟建全家是中共间谍，单伟建的孩子在美国帮他从事洗钱和犯法的勾当](/content/gnews/24/README.md)
+### [1/18/2021 文贵盖特：单伟建全家是中共间谍，单伟建的孩子在美国帮他从事洗钱和犯法的勾当](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [太平联盟一案中BVI战场的Appleby律师事务所](/content/gnews/25/README.md)
+### [太平联盟一案中BVI战场的Appleby律师事务所](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [天津疑因物资紧缺爆发群众抗议](/content/gnews/26/README.md)
+### [天津疑因物资紧缺爆发群众抗议](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [DC每日热点0119](/content/gnews/27/README.md)
+### [DC每日热点0119](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美议员推出“争取彭帅自由法案” 制裁国际奥委会高层](/content/gnews/28/README.md)
+### [美议员推出“争取彭帅自由法案” 制裁国际奥委会高层](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [文贵天成系列——文贵先生谈“中概股”（九）](/content/gnews/29/README.md)
+### [文贵天成系列——文贵先生谈“中概股”（九）](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯改变应对病毒对策](/content/gnews/30/README.md)
+### [俄罗斯改变应对病毒对策](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
-
-### [河南安阳文峰区实行宵禁](/content/gnews/31/README.md)
- ` 波士顿五月花农场`
 
 ### [NBA金州勇士股东称“没人在乎维吾尔人权问题”引发强烈斥责](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
