@@ -2,37 +2,74 @@
 ---
 
 
-## 中共必将遭受世界人民和司法公正的审判
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880728/)
+## 【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1880748/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月18日，郭文贵先生在盖特视频中表示，在美国的法庭上，新中国联邦人让邪恶的中共暴露在阳光下，而中共必将受到西方人民和司法的公正审判。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-13.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-视频中提到，近五年来，中共通过启用单伟建、吴征等间谍，以及他们在西方社会中收买的各派势力，向郭先生发起法律超线战，还妄图以不法手段干涉西方的法制，更试图破坏爆料革命并消灭新中国联邦。 其中，中共利用不道德的律师和三十多万页的海量材料来控告郭先生，同时，其还借由不公正的庭审拒绝郭先生提出异议。
+截止至美东时间1月19日上午8时21分，在澳大利亚2,595.7万人中，累计确诊中共病毒感染病例1,955,544例，占澳洲全国总人口的7.53%。继1月8日单日新增COVID-19感染者病例达到创记录的111,907例后，1月12日，澳大利亚单日新增病例竟然达到175,271例，单日新增病例数达到澳洲总人口的千分之6.75。
 
-郭先生解释道，由于中共对新中国联邦的恐惧，其不惜花费上亿元的律师费造假害人。此外，中共还在美国使用违法手段对新中国联邦实行司法超限战。郭先生表示，这彻底暴露了中共对西方囯家的司法操控——而此举也损害了西方世界的司法公正，更伤害了西方的国家与人民。
+尽管如此，1月6日，澳大利亚北领地（Northern Territory）行政长官Michael Gunder在新闻发布会上正式宣布，对未“完全接种”Covid-19病毒疫苗的公民未来几天实施新的专制封锁，任何年满16岁且未完全接种疫苗的人不能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，才能离家不得超过30公里远。
 
-然而，郭先生也认为，美国法制的伟大值得信赖，更重要的是，正义之士正在从新中国联邦人的遭遇中看清中共邪恶的嘴脸。最终，这必将让中共与被其收买的邪恶同伙接受西方人民和司法的公正审判。
+网球巨星德约科维奇（Novak Djokovic）甚至在1月16日上诉失败后，被澳洲当局以“对公共卫生造成威胁”驱逐出境。
 
-参考链接：[https://gettr.com/post/pp402xffd3](https://gettr.com/post/pp402xffd3)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a5e4cdd86fd643ac86ddb702a6644510.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+澳大利亚当局如此疯狂的胁迫打疫苗，目前澳洲的疫情真的是由于没有打Covid-19病毒疫苗或者疫苗打得还不够多造成的吗？
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：谐趣园
+根据澳大利亚政府官方数据，截止至2022年1月19日，总共有4,672万针COVID-19病毒疫苗被打进人的身体，仅仅在过去的24小时内，就有321,959针被注入澳大利亚人的身体。目前，年满16+的澳大利亚人中，95%被打了至少一针疫苗，92.7%被打了两针疫苗，5,553,110名年满18周岁的澳大利亚人被打了至少三针疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+如果以所有人口计算，澳大利亚有81.74%的人最少注射了一针COVID-19病毒疫苗，77.75%最少打了两针，21.53%打了加强针。
 
+既然有如此高的疫苗接种率，那么，即使有新增中共病毒感染案例，也应当主要是以未接种疫苗人群为主体才合符逻辑！
+
+下面以疫苗接种率相当高的新南威尔士洲来分析。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Vaccination-in-NSW.jpg)
+
+截止到2022年1月17日，新南威尔士洲（NSW）年满16岁的人中，95.2%已经打了最少一针COVID-19病毒疫苗，93.8%最少打了两针COVID-19病毒疫苗，27.8%最少打了三针COVID-19病毒疫苗，在12~15岁的青少年中，有78.3%最少打了两针疫苗，甚至5~11岁的儿童也有16.4%最少打了一针疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccination-in-NSW1.jpg)
+
+然而，1月17日上午8时到1月18日上午8时的24小时内，新南威尔士洲新增确诊中共病毒感染者32,297人。
+
+根据2022年1月13日，新南威尔士洲卫生部门发布的每周中共病毒疫情监测报告《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)》，2021年12月26日至22日1月1日的一个星期内，新南威尔士洲总共有152,440例新增中共病毒感染者被确诊。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19.jpg)
+
+其中：108,056例为完全接种疫苗，1,110例为部分接种疫苗，2,765例为未接种疫苗，28,181例疫苗接种状态不确定，12,328例属于0~11岁不符合接种条件。在所有符合COVID-19病毒疫苗接种条件的人中，96.54%的感染者属于已接种COVID-19病毒疫苗，未接种人群仅占2.47%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+
+2021年12月26日至22日1月1日的一个星期内，新增COVID-19感染后住院的人中，共有1,578名Covid-19住院患者。其中，完全接种者1,280人，部分接种者47人，未接种者仅251人。这意味着，已接种疫苗的人群占Covid-19住院人数的84.09%，未接种疫苗的仅占15.91%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Hospital-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+
+在2021年11月26日至22年1月1日期间，共有154名符合接种条件的Covid-19感染者进入ICU，其中，完全接种疫苗的104人，部分接种疫苗的占8人，未接种疫苗的只有42人。这意味着，在11月21日26日至22年1月1日期间，感染COVID-19后进入ICU的患者中，72.73%已接种COVID-19病毒疫苗，67.53%属于完全接种疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-ICU-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+
+在21年11月26日至22年1月1日期间，总共有32人因COVID-19死亡，完全接种疫苗的死亡人数共有22人，部分接种疫苗的人群中有3人死亡，未接种疫苗的人群中只有7人死亡。接种COIVD-19病毒疫苗后，死亡的占78.16%，未接种疫苗的仅占21.84%，尤其完全接种疫苗的人占到68.75%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Deaths-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+
+毫无疑问，澳大利亚南威尔士洲的数据说明，实验性的中共病毒疫苗给南威尔士洲的人带来严重的疫苗灾难，既不能预防感染，也不能减少住院，更不能减少死亡。
+
+参考数据：
+
+[Australia Population](https://www.worldometers.info/world-population/australia-population/)
+
+[Australian Bureau of Statistics](https://www.abs.gov.au/statistics/people/population)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
+
+[Covid-19 Deaths are at record levels in Australia & Official Data shows the Fully Vaccinated account for 4 in every 5 of those deaths since November](https://dailyexpose.uk/2022/01/19/australia-vaccinated-account-for-4-in-5-covid-deaths/)
+
+[德约科维奇惨遭澳大利亚驱逐 “他已成为反疫苗群体的偶像”](https://www.bbc.com/zhongwen/simp/world-60014139)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

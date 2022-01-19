@@ -2,27 +2,38 @@
 ---
 
 
-## 中共国开发的冬奥会小程序或存在安全漏洞
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880726/)
+## 斯洛文尼亚与台湾就互设代表处进行洽谈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880744/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/601.jpg)网络图片
-周二发布的一份报告指出，一款为北京冬奥会开发的智能手机应用程序存在明显的安全问题，可能会使敏感数据遭到拦截。在下个月举办的冬奥会上，参赛运动员、赛事工作人员以及一般居民都将广泛使用这个程序。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月18日，据台湾媒体消息显示，近日，斯洛文尼亚总理詹沙在接受媒体采访时透露，斯洛文尼亚正与台湾洽谈互设代表处的相关事宜。
 
-这款程序名称为“MY 2022”（冬奥通），中文可以被翻译成“我的2022”。用户可以使用这款应用程序提交每天所需的健康信息——这被解释为中共国在举办 2 月 4 日开始的比赛期间积极应对冠状病毒大流行的一部分。据称，这款多功能应用程序还包括聊天功能、文件传输、天气更新、 旅游推荐和GPS导航。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-11.jpeg)
 
-互联网监督组织公民实验室在其报告中表示，“MY 2022” 应用程序存在严重缺陷的加密，这将使用户的敏感数据——以及通过它通信的任何其他数据——容易受到黑客攻击。
+詹沙总理表示，他曾经访问过台湾，也见证了台湾的民主，同时，他还表态支持台湾加入世界卫生组织。此外，詹沙指出，台湾海峡两岸的生意人有着密切往来，中共当局没有理由阻止其他国家与台湾建立经贸关系。
 
-报告发现，该应用程序上的其他重要用户数据根本没有加密。这意味着中共国互联网服务提供商或电信公司可以通过酒店、机场和奥运场馆的 Wi-Fi 热点读取到这些数据。
+詹沙也强调，斯洛文尼亚支持台湾人民的主权决定，且无论台湾最终的结果如何，这个决定必须是在没有外来压力以及军事威胁的前提下做出的。
 
-公民实验室的报告称，该应用程序对奥运会的参与者是强制性的，国际奥委会的官方指南指示参与者在来中共国之前下载该应用程序。 中共国要求所有国际奥运参赛者——包括教练和记者——至少在出发前14天通过该应用程序或电脑登录健康监测系统。但国际奥委会周二发表声明称，智能手机应用程序不是强制性的。
+对于立陶宛因准许台湾设立代表处而遭到中共经济报复的事件，詹沙称，这种试图孤立小国家的做法实属害人听闻。他还提到，中共对立陶宛的报复，就长远来看，对各方都不利。
 
-目前，美国奥林匹克和残奥委员会已经向该国运动员发布了一项公告，建议他们“预设每一个设备、每一次通信、交易和在线活动都将受到监控。”
+詹沙最后呼吁，亚太地区所有爱好和平的国家应该形成一个统一战线联盟，用以确保区域力量的平衡，进而可以共同对抗来自中共的威胁。
 
-新闻参考链接：[Report: Chinese Olympic app has serious security flaws](https://apnews.com/article/coronavirus-pandemic-winter-olympics-sports-technology-health-69ea8d5a5e5e51e898bf2f867358214f)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+参考链接：[印媒專訪 斯洛維尼亞總理：與台洽談互設代表處](https://cn.rti.org.tw/news/view/id/2122388)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
