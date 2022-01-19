@@ -2,29 +2,30 @@
 ---
 
 
-## CDC因为隐瞒了“V-Safe”新冠疫苗安全跟踪系统的数据而被起诉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1879161/)
+## 【中日财经爆】2025年日本偿债成本将超过30万亿日圆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1879204/)
 
-##### 翻译：不要代表我Kari
-校对：枳实
-剪辑|字幕：Biggod
-编辑：Mttfly
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1487.png)[图片来源](https://cn.nikkei.com/politicsaeconomy/efinance/44688-2021-05-11-09-47-57.html)
+路透社1月19日报道，日本财务省定于本月晚些时候发布的预测草案显示，如果利率超出预期一个百分点，日本的偿债成本将在2025财年首次超过30万亿日圆(2,615.5亿美元)。
 
-美国联邦政府规定75年后才能解密辉瑞疫苗数据及文件。联邦政府还构建了V-safe系统，旨在跟踪新冠疫苗对人体造成的伤害。新冠疫苗推广者们承诺使疫苗数据公开，他们向公众全面推出这种实验性的疫苗，但却不允许公众获取数据。就在过去的几周，美国疾病控制与预防中心（CDC）因拒绝公开“V-safe”新冠疫苗不良反应数据而被起诉。
+财务省在其为期五年的年度估算中预计，假设利率为1.3%，下一财年的偿债成本为24.3万亿日圆，2025财年将达到28.8万亿日圆。
 
-视频链接：[ICAN has filed another lawsuit against the CDC, this time for withholding data from the ‘V-Safe’ Covid-19 vaccine safety tracking system.](https://www.bitchute.com/video/s40ElKt1Jn15/)
+如果利率上升到2.3%，那么预估偿债成本将在2025财年增加至32.5万亿日圆。该草案将提交给众议院预算委员会讨论。假设利率升至3.3%，偿债成本则将达到36.3万亿日圆，教育、国防和公共工程等政策相关领域所需的支出将会吃紧。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+最新的估计数据将充分体现日本央行强有力的货币宽松政策所带来的好处，该政策有效地为公共债务提供了资金。日本的公共债务规模约为该国五万亿美元经济规模的两倍。
 
+尽管债务堆积如山，但由于日本央行的超低利率政策将借贷成本保持在极低水平，日本政府仍可以花费大量的刺激资金。日本多年来的大规模财政刺激措施给农村地区留下了使用率很低的基础设施，同时也带来巨额债务和偿债成本，目前偿债成本占今年创纪录107.6万亿日圆政府预算的四分之一。
 
+根据预期的3%的名义增长率，2025财年的预算将升至创纪录的111.6万亿日圆。税收收入将达到创纪录的72.1万亿日圆，非税收收入为5.6万亿日圆，而新的政府债务将降至33.9万亿日圆。
 
+鉴于过去两年与中共病毒疫情有关的几轮债务发行，偿债成本的增幅将略高于政府支出的增加。
+
+消息来源：[利率上升或使日本偿债成本在2025财年首次超过30万亿日圆–预测草案](https://www.reuters.com/article/japandebt-servicing-0119-wedn-idCNKBS2JT04Q)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
