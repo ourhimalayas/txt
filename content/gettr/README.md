@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 2:08 AM (UTC)`
+
+1/18/2021 Miles Guo’s GETTR: How powerful Weijian Shan and Edward Moss really are? In the past five years, why is it that the CCP’s unrestricted lawfare, the smear campaigns, and the attacks on me and the Whistleblowers’ Movement all happened at roughly the same time? Are these just coincidences?<br/><br/>1/18/2021 文贵盖特：单伟建和Edward Moss到底有多大的能耐？过去5年里，为什么中共对文贵和爆料革命的法律超限战以及污蔑与攻击几乎都在同时发生？难道这仅仅是巧合吗？<br/>
+![img](https://media.gettr.com/group47/getter/2022/01/19/02/9bb39d7a-5023-b37a-89c6-c61488c8921c/out.jpg)
+
+---
+
 `@miles 1/19/2022 1:08 AM (UTC)`
 
 1/17/2022 Miles Guo: The lives, blood, freedom, and wealth sacrificed by my family led to my awakening, allowing me to lead all humanity to begin taking down the CCP! In a country ravaged by the CCP without the rule of law, what a blessing it is to destroy the CCP!<br/><br/>1/17/2022 文贵直播：文贵以家人的命、鲜血、自由和财富换来个人的觉醒，让文贵今天带着全人类开始灭共！在这个被共产党蹂躏和没有法律的国度里，灭共是件多么幸福的事！<br/>
@@ -147,13 +154,6 @@
 
 Dr. Geert Vanden Bossche (Virologist-Vaccinologist):<br/>The mass vaccinations are generating a breeding ground for even more infectious variants to replicate and the CCP virus will escape. If the COVID vaccines cannot prevent the transmission, this pandemic cannot be controlled. Vaccinations will be at risk of inducing autoimmune responses, autoimmunity in children. So under no single circumstance should you allow to get your child vaccinated.<br/><br/>Geert Vanden Bossche 博士，病毒学家-疫苗学家：这种大规模的新冠疫苗接种正为更具传染性病毒变种的复制制造温床，中共病毒将逃逸。如果新冠疫苗不能防止传播，就不能控制这种大流行病。接种新冠疫苗有诱发儿童自身免疫反应的风险。在任何情况下，你都不应该允许自己的孩子接种新冠疫苗。
 ![img](https://media.gettr.com/group5/origin/2022/01/17/17/30e1fd9c-69ae-fb49-c6dd-f99096d941e2/out.jpg)
-
----
-
-`@miles 1/17/2022 1:11 PM (UTC)`
-
-2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格
-![img](https://media.gettr.com/group5/origin/2022/01/17/12/7784d909-3719-fcde-523c-c39cc67ad851/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
