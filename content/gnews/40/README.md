@@ -2,36 +2,42 @@
 ---
 
 
-## 2021年中共国出生率和人口净增均创新低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876182/)
+## 有声|郭文贵先生诠释 灭共就是天意
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876466/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月17日，中共国家统计局发布，2021年全年出生人口1062万人，出生率为7.52‰；死亡人口1014万人，人口净增长仅为48万人，创下自1962年以来新低，社会老龄化日益严重。
+配音：香草山教育部 – Rose
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11.jpeg)
 
-相比2020年全国人口出生率8.52‰，2021年进一步下降，并持续跌破1% ，比日本与韩国还低；尤其触目惊心的是人口净增长数，2019年为467万人，2020年为204万人，2021年骤降为48万人。从性别构成来看，男性比女性多3362万人，育龄妇女人数偏少；从年龄构成看，60岁以上为2.67亿人，占总人口的18.9%，人口老龄化进一步加剧。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+在1月12日的大直播中，郭文贵先生用个人经历和感悟诠释了，灭共就是天意。
 
-研究发现，延续两年的新冠疫情，对30岁以下年轻人的生育影响最大。本来在学习、就业、生活成本严重内卷的压力下，这一年龄组的生育连年下降。叠加疫情短期爆发、长期影响，年轻人只能“躺平”，维持最低限度的生存。生育意愿被严重压制，加速出生人口数量和生育率双双创历史新低。专家分析，随着国内经济日益悲观的预期，2021年延续了2020年的变化趋势，中共国人口的负增长率很可能超出人们的预计，会提前到来。
+郭先生谈到，天意没有偶然，永远要相信天意。新中国联邦人不流一滴血，没有任何暴力，在过去五年里，团结亿万战友，唤醒国内无数有良知的人，这是天意。
 
-参考链接： 
-1）[中国出生人口为何大幅下降？专访中国人口学会会长翟振武](https://3g.163.com/dy/article/GTTM2OC205129QAF.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=8)
-2）[我国人口净增长48万，创60年新低！出生率连续2年跌破1%！三大主要原因…](https://m.sohu.com/a/517274387_115362?scm=1104.0.0.0&amp;spm=smwp.home.fd-important.17.1642454762635es1SnkW)
+如果没有习近平、王岐山孟建柱、江家和南普陀会议；没有共产党对外扩张，搞一带一路，灭白计划，叫板美国要平等共治；对内利用反贪抓了100万官员；没有习近平搞所谓的”共享财富“，释放病毒，威胁台湾，灭香港，在新疆西藏搞种族大屠杀，就不可能灭共。这些都是天意。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+郭先生用自己的经历解释，不是所有的人都能领悟什么是天意。郭先生在年少时期去到新疆，后来还去过昆仑山、帕米尔高原、喜马拉雅山脉，从这些游历中，亲身体验到天意。郭先生当年卖掉摩托车支持六四，被关到看守所，出来以后就要拯救中国人和世界，这也是天意。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：谐趣园
+有天意，就有天机，是上天安排的机会。天机后面是民心，是天时，地利，人和。所以说，灭共就是天意。
 
+文字版原文 ：[郭文贵先生诠释 灭共就是天意](https://gnews.org/zh-hans/1870048/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

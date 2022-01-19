@@ -2,20 +2,34 @@
 ---
 
 
-## 墙内多个知名网站转载了东方网报道“诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类”的新闻
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1875715/)
+## 不完全财务披露福奇千万美元投资
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875788/)
 
-撰稿在；追着曙光跑
+作者：加拿大温哥华扬帆农场 Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《纽约邮报》1月16日报道，新发布的记录显示，截至2020年底，福奇和妻子有1040万美元投资，包括230万美元的未实现收益，分别持有在各种共同基金中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.50.png)
+参议员罗杰-马歇尔（R-Kan）周五晚上公开发布了福奇2020年的财务。在周二的参议院程序中，他询问了福奇财务状况，福气当时低声骂他 “蠢货”。福奇2020年工资是43万4千312美元，2021年和2022年的工资仍未被公布。
 
-据东方网1月18日的报道，当地时间17日，法国著名病毒学家Luc Montagnier 吕克·蒙塔尼耶来到意大利，参加当地的反疫苗集会。在现场，他收到了“英雄般”的欢迎和支持。他称：未接种疫苗的人将拯救人类。他此前还称：大规模接种疫苗是不可接受的错误。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-18-at-22.48.58.jpeg)图片来源：原新闻
-蒙塔尼耶曾获2008年的诺贝尔生理学或医学奖，是世界艾滋病研究及预防基金会的共同奠基人和国际病毒联盟的总监。
+保守派非营利组织 “司法观察”(Judicial Watch)于2021年10月，起诉美国卫生与公众服务部，要求提供与福奇财务事务有关的文件。根据法庭文件规定，HHS已经提议从2月1日开始每月发布。美国参议院共和党籍参议员兰德保罗曾在去年7月2日，在法庭听证会质询福奇，武毒所病毒研究是否得到美国政府机构资助时，福奇还反唇相讥地说保罗才是谎言制造者。
 
-东方网还把蒙塔尼耶参加当地的反疫苗集会的视频，翻译成中文上传到了此报道里，新浪网新闻、网易新闻和搜狐新闻均转载了此报道。
+司法观察组织主席托马斯-费顿指责美国国立卫生研究院，对福奇的记录玩了一个 “空壳游戏”。福奇在美国人眼前撒谎，还有NIH对公众获得其财务信息设置障碍，说明他们在掩盖事实。随着事件的进展，福奇与大药厂以无数生命为代价的金钱交易，将一一呈现。
 
-信息来源：[诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
-[网易新闻转载报道](https://3g.163.com/dy/article/GU0HF8M9053469KO.html?spss=adap_pc) [新浪新闻转载报道](https://k.sina.cn/article_7517400647_1c0126e4705902g9ez.html?from=news) [搜狐转载报道](https://m.sohu.com/a/517415465_120823584/?pvid=000115_3w_a&amp;strategyid=00014)
+参考链接：[Dr. Anthony Fauci’s financial disclosure shows $10.4M in investments](https://nypost.com/2022/01/15/dr-faucis-financial-disclosure-shows-10-4m-in-investments/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

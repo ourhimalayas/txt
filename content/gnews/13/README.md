@@ -2,41 +2,32 @@
 ---
 
 
-## 七哥谈中共邪教的特质（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877622/)
+## 杨洁篪海外抓捕战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877673/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+整理：雅典娜速记组
+编辑：Rianna
 
-来源：郭先生2022-01-14直播09：47：36摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/R4PTO1JUX0T2CN6XZ3-1.png)图片来源：雅典娜设计组
 
-主崇拜，第一个主崇拜就是毛泽东。毛泽东的像章是什么？毛泽东在中间旁边是个太阳，散发着太阳的光，这就毛泽东，是吧？旧金山，什么北京的金山上毛泽东是红太阳，是吧？主崇拜，第一邪教特质，共产党干了吧？第二条，最核心的聚敛钱财。聚敛钱财，它把土地都给割走了，地主都杀了，是不是啊？就是骗取钱财和聚敛钱财；第三，知道叫什么吗？铲侠？啊？不知道吧铲侠？反社会！共产党反社会吧？全人类反社会；第四个是啥？长岛哥能想想吗？
 
-长岛哥：精神控制，思想控制，是吧？
+郭文贵先生提前一个月警告大家杨洁篪等人准备去迪拜、塞浦路斯抓战友，塞浦路斯报道了俩战友被抓，但实际上有70多个战友被杨洁篪差点抓回。一个塞浦路斯官员收了这些移民护照人的钱，都是傾家荡产。塞浦路斯岛抓的战友当中，其中一个战友，中共诬陷他在中国犯有强奸幼女罪，所以中共起诉他要把他抓起来。
 
-郭文贵先生：对了，精神控制，是吧！精神控制，共产党都干了吧？最后呢？最后第六个呢？说说。查你的谷歌呢？最后是啥呀？没人知道啦？
+但荒唐的是，当这位战友说要求看罪证，却说让他回中共国去看，最后这个战友14岁就把肾切除，27岁才有一个孩子，怎么可能强奸幼女，可以检查他得病记录。这就是共产党一贯的栽赃诬陷做假案例子。
 
-小飞象：是那个结社吗？秘密结社？
+在迪拜被遣返的干经济警察战友本来好好的，突然间就到家抓他，直接从他家抓到机场！一个会中文的警察告诉他抓他的原因，共产党如果不抓他回去，担心他手里掌握曾经职业上的材料，他们也没办法。
 
-郭文贵先生：秘密结社。共产党在1913年以前它就是秘密结社，是吧？这叫邪教的本质，主控制、骗取钱财、精神控制、反人类，全是它干的。但是它给所有的别人民主的，它全定为是所谓反党的。现在你看这个党有多可怕！在共产党进入中国掌握政权以前，所有共产党的活动都叫民主活动，都叫正义的活动。自从1949年以后，所有在中国的活动或者上街抗议，全列为反党、反社会、反国家，一直到今天。
+他给郭文贵说：“7哥我真的对不起，跟了我3年爆料，我逃出去了，我带了一堆的信息。”结果警察在迪拜冲到他家，把他的硬盘拿走了，一点没给爆料革命。当年的周永康案、李友案的很多信息，他一张纸没给郭先生，就给拍过几个截屏，结果警察全部连电脑直接给专机带回中国。迪拜都成这样了， 塞浦路斯成这样了，马耳他也成这样了，越南就别提了，新加坡直接装麻袋回去了。
 
-校对：HimaFaFA
-发布：HimaBoy
+资料来源：郭先生GTV和盖特直播视频。
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+发布：  tianzhihuan
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
