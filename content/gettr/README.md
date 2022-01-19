@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 12:46 PM (UTC)`
+
+2022年1月19日 文贵大直播：太平联盟官司背后的故事；达沃斯已成中共倒闭论坛；与西方经济脱钩洞察其奸；疫苗政策盼转机有备无患
+![img](https://media.gettr.com/group9/origin/2022/01/19/12/d9cf4a0a-b73b-b3dd-d3f1-ce426056f15a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/19/2022 9:31 AM (UTC)`
 
 1/17/2022 Miles Guo: Procedure justice is the key in the Western judicial system. However, Pacific Alliance and the judge in the PAX case disregarded the law and common sense. They didn’t allow me to speak up in court. Nor did I have the permission to question the opposing party. Instead, they charged me with contempt of court. Is that still called the rule of law?<br/><br/>1/17/2022 文贵直播：西方世界的法律讲究的是程序正义，但太平联盟及PAX案的法官罔顾法律和常识，既不允许文贵张嘴说话、也不允许质疑对方，直接判文贵藐视法庭，这还叫法治吗？<br/>
@@ -147,13 +154,6 @@
 
 1/17/2022 Miles Guo: Darkness coming to the world is manifested in the CCP’s manipulation of the media, plunder of the people’s wealth, and control of the judicial system. We must take down the CCP with the law and let the Chinese people have an independent judicial system. If you didn’t fight for it, you would be the next one persecuted by the CCP like me.<br/><br/>1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统；我们要以法灭共，让中国人有独立的司法系统；如果不为之奋斗，大家也会像七哥一样被中共迫害！<br/>
 ![img](https://media.gettr.com/group27/getter/2022/01/18/00/7a44fedc-b7cd-9277-081a-0cb53bc965d8/out.jpg)
-
----
-
-`@miles 1/17/2022 10:20 PM (UTC)`
-
-1/17/2022 Miles Guo: Looking back at the 2017 case of Pacific Alliance v. Miles Guo, why did Boxun and Xiong Xianmin know the verdict before the judge ruled? Why were the legal fees for Boxun and all the frivolous lawsuits against Miles Guo paid by Bruno Wu, a partner of PAG? Is it normal to have so many "coincidences"?<br/><br/>1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？为什么博讯和所有与文贵先生有关的法律缠诉案的律师费是吴征提供的，而吴征和太盟是合伙人关系？如此多的“偶然”正常吗？<br/>
-![img](https://media.gettr.com/group13/getter/2022/01/17/22/ab2c7da9-c0d4-e464-ce50-617fc29cac0e/out.jpg)
 
 ---
 
