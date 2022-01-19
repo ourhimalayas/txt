@@ -2,32 +2,38 @@
 ---
 
 
-## 北京冬奥开幕在即 中共当局又开始病毒甩锅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1880638/)
+## 斯洛文尼亚与台湾就互设代表处进行洽谈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880744/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-61.jpg)
-[图片来源](https://www.nytimes.com/2022/01/12/world/asia/beijing-olympics-covid.html)
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月18日，据台湾媒体消息显示，近日，斯洛文尼亚总理詹沙在接受媒体采访时透露，斯洛文尼亚正与台湾洽谈互设代表处的相关事宜。
 
-距离北京冬奥开幕只剩两周多点，在确认发生了奥密克戎社区感染后，北京的局势高度紧张。并以因在海外邮件中发现奥密克戎毒株为由，呼吁市民不要购买外国商品。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-11.jpeg)
 
-据中共卫生部门消息称，一名被感染者从加拿大收到的邮件包裹中发现了奥密克戎变异株。虽然有待验证，但当局随即敦促市民加强消毒，并避免购买来自国外的商品。
+詹沙总理表示，他曾经访问过台湾，也见证了台湾的民主，同时，他还表态支持台湾加入世界卫生组织。此外，詹沙指出，台湾海峡两岸的生意人有着密切往来，中共当局没有理由阻止其他国家与台湾建立经贸关系。
 
-加拿大卫生部长17日即刻回应称，这是一个极其荒唐的想法。
+詹沙也强调，斯洛文尼亚支持台湾人民的主权决定，且无论台湾最终的结果如何，这个决定必须是在没有外来压力以及军事威胁的前提下做出的。
 
-日本国际医療福祉大学医学与公共卫生学院的和田耕治教授表示，病毒不可能通过邮件传播。它毕竟还是人与人之间的传播。
+对于立陶宛因准许台湾设立代表处而遭到中共经济报复的事件，詹沙称，这种试图孤立小国家的做法实属害人听闻。他还提到，中共对立陶宛的报复，就长远来看，对各方都不利。
 
-与此同时，中共国继续推行“零新冠政策”，只要发现有感染，就实施强制隔离措施，包括封锁城市。
+詹沙最后呼吁，亚太地区所有爱好和平的国家应该形成一个统一战线联盟，用以确保区域力量的平衡，进而可以共同对抗来自中共的威胁。
 
-笔者想问，既然连邮件都怀疑带病毒，直接锁国得了，还办什么奥运会呢！各国运动员到时极有可能都将是甩锅对象了！
+参考链接：[印媒專訪 斯洛維尼亞總理：與台洽談互設代表處](https://cn.rti.org.tw/news/view/id/2122388)
 
-信息来源:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-[海外からの郵便でオミクロン株“感染”中国](https://news.yahoo.co.jp/articles/c45407638c2e94d83992d7d135e2aef7baa13926)
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

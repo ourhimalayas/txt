@@ -2,31 +2,38 @@
 ---
 
 
-## 澳大利亚多地提前将加强针注射等待周期缩减至三个月
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880626/)
+## 中共必将遭受世界人民和司法公正的审判
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880728/)
 
-撰稿：Gradient Boost
+作者：纽约香草山农场福音部 – 恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，郭文贵先生在盖特视频中表示，在美国的法庭上，新中国联邦人让邪恶的中共暴露在阳光下，而中共必将受到西方人民和司法的公正审判。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011801-1.jpg)网络图片
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-13.jpeg)
 
-澳大利亚东部标准时间1月19日，维多利亚州政府正式宣布将加CCP病毒疫苗加强针的注射等待时间缩短至三个月，并且立即生效。
+视频中提到，近五年来，中共通过启用单伟建、吴征等间谍，以及他们在西方社会中收买的各派势力，向郭先生发起法律超线战，还妄图以不法手段干涉西方的法制，更试图破坏爆料革命并消灭新中国联邦。 其中，中共利用不道德的律师和三十多万页的海量材料来控告郭先生，同时，其还借由不公正的庭审拒绝郭先生提出异议。
 
-这意味着任何三个月前完成第二剂CCP病毒疫苗注射的居民，现在都可以进一步接受加强针注射。随着新规定生效，现在有资格接种第三剂的维州居民总数立即增加了约 120 万人。
+郭先生解释道，由于中共对新中国联邦的恐惧，其不惜花费上亿元的律师费造假害人。此外，中共还在美国使用违法手段对新中国联邦实行司法超限战。郭先生表示，这彻底暴露了中共对西方囯家的司法操控——而此举也损害了西方世界的司法公正，更伤害了西方的国家与人民。
 
-在过去的24小时内，维多利亚州总共记录了 20,769 例新增CCP感染。根据维州卫生局的有关数据，目前该州的活跃病例数约25万左右。媒体认为，提前缩短加强针注射等待时间或许意味着州政府将会更快将强制加强针政策推广到更多工作岗位。
+然而，郭先生也认为，美国法制的伟大值得信赖，更重要的是，正义之士正在从新中国联邦人的遭遇中看清中共邪恶的嘴脸。最终，这必将让中共与被其收买的邪恶同伙接受西方人民和司法的公正审判。
 
-按照澳大利亚卫生部门提出的相关计划，缩短时间至三月的举措原本是要等到1月31日才开始进行，但是部分州领地已经迫不急待。
+参考链接：[https://gettr.com/post/pp402xffd3](https://gettr.com/post/pp402xffd3)
 
-南澳大利亚州目前也已经将第三针的注射等待时间缩短至三个月，好像先前已经约定好的一般，宣布日期也同样是1月19日周三。南澳的相关政策意味着加强针需求从现在开始立即增加22.5万剂。今日南澳大利亚州记录了3,482例新增CCP病毒感染，同时有3人不幸因为CCP病毒而死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-新南威尔士州预计将从本周五开始将CCP病毒疫苗加强针的注射等待周期缩短至三个月，由于该州人口较多，根据周总理的说法，这一举措大概会增加300万剂的加强针需求。在过去的24小时之内，该州又记录了 32 例与CCP病毒有关的死亡病例，并且新增 32,297 例CCP病毒感染案例。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：谐趣园
 
-新闻参考链接：
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-新闻一：[COVID-19 death toll jumps in NSW again as millions more eligible for booster](https://www.9news.com.au/national/coronavirus-nsw-updates-new-case-numbers-booster-shots-thousands-new-health-staff-deployed/261b8bf2-621a-4239-84ae-2b8e116df663)
 
-新闻二：[Third jab mandate not ruled out as Victoria slashes COVID-19 booster dose interval to three months](https://www.9news.com.au/national/coronavirus-victoria-update-new-case-numbers-code-brown-hospitals/7b8ed6bc-40dc-4a0f-9cee-7f419f5f260e)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

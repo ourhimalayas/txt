@@ -2,58 +2,74 @@
 ---
 
 
-## 美国及世界疫情简报（01-19-2022）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1880642/)
+## 【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1880748/)
 
-整理：波士顿五月花 老枪6
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-1.jpg)
-**1．美国疫情**
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-昨日美国新增新冠患者825,408人.总确诊人数为66,529,283人。新增死亡人数1,131人。总死亡 852,062人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-康州新增新冠感染15,844人，新增死亡0人。
+截止至美东时间1月19日上午8时21分，在澳大利亚2,595.7万人中，累计确诊中共病毒感染病例1,955,544例，占澳洲全国总人口的7.53%。继1月8日单日新增COVID-19感染者病例达到创记录的111,907例后，1月12日，澳大利亚单日新增病例竟然达到175,271例，单日新增病例数达到澳洲总人口的千分之6.75。
 
-纽约州新增新冠确诊人数39,758人。新增死亡人数261人。
+尽管如此，1月6日，澳大利亚北领地（Northern Territory）行政长官Michael Gunder在新闻发布会上正式宣布，对未“完全接种”Covid-19病毒疫苗的公民未来几天实施新的专制封锁，任何年满16岁且未完全接种疫苗的人不能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，才能离家不得超过30公里远。
 
-新泽西州昨天新增病例为8,953人。新增死亡为300人。
+网球巨星德约科维奇（Novak Djokovic）甚至在1月16日上诉失败后，被澳洲当局以“对公共卫生造成威胁”驱逐出境。
 
-马里兰州昨日新增新冠患者6,537人。新增死亡人数为52人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a5e4cdd86fd643ac86ddb702a6644510.jpeg)
 
-加州昨日新增218,600人，死亡164人。得克萨斯州新增115,051人，死亡为3人。亚利桑那州新增54,666人，死亡为41人。乔治亚州新增35,149人，死亡69人。
+澳大利亚当局如此疯狂的胁迫打疫苗，目前澳洲的疫情真的是由于没有打Covid-19病毒疫苗或者疫苗打得还不够多造成的吗？
 
-**2.世界疫情**
+根据澳大利亚政府官方数据，截止至2022年1月19日，总共有4,672万针COVID-19病毒疫苗被打进人的身体，仅仅在过去的24小时内，就有321,959针被注入澳大利亚人的身体。目前，年满16+的澳大利亚人中，95%被打了至少一针疫苗，92.7%被打了两针疫苗，5,553,110名年满18周岁的澳大利亚人被打了至少三针疫苗。
 
-1） 亚洲疫情：
+如果以所有人口计算，澳大利亚有81.74%的人最少注射了一针COVID-19病毒疫苗，77.75%最少打了两针，21.53%打了加强针。
 
-昨日印度新增新冠患者238,018人；日本新增20,823人；印尼新增772人；菲律宾新增36,978人；孟加拉新增6,686人。土耳其新增64,935人。台湾昨日新增65, 韩国昨日新增4,070人, 中国新增174人（由于中共对感染数字造假，此数字只作参考。）
+既然有如此高的疫苗接种率，那么，即使有新增中共病毒感染案例，也应当主要是以未接种疫苗人群为主体才合符逻辑！
 
-2）非洲疫情：
+下面以疫苗接种率相当高的新南威尔士洲来分析。
 
-南非昨日新增新冠患者1,629人。埃塞俄比亚新增881人。摩洛哥新增3,177人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Vaccination-in-NSW.jpg)
 
-3）拉美疫情：
+截止到2022年1月17日，新南威尔士洲（NSW）年满16岁的人中，95.2%已经打了最少一针COVID-19病毒疫苗，93.8%最少打了两针COVID-19病毒疫苗，27.8%最少打了三针COVID-19病毒疫苗，在12~15岁的青少年中，有78.3%最少打了两针疫苗，甚至5~11岁的儿童也有16.4%最少打了一针疫苗。
 
-巴西昨日新增新冠患者74,381人；哥伦比亚新增24,272人。阿根廷新增102,458人。智利新增8,930人。墨西哥新增17,101人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccination-in-NSW1.jpg)
 
-4）欧洲疫情
+然而，1月17日上午8时到1月18日上午8时的24小时内，新南威尔士洲新增确诊中共病毒感染者32,297人。
 
-俄罗斯昨日新增新冠患者30,457人。德国新增82,818人。法国新增 13,562人。英国新增90,605人。意大利新增83,387人。西班牙新增331,467人。
+根据2022年1月13日，新南威尔士洲卫生部门发布的每周中共病毒疫情监测报告《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)》，2021年12月26日至22日1月1日的一个星期内，新南威尔士洲总共有152,440例新增中共病毒感染者被确诊。
 
-5）全球新冠总感染人数为333,705,640人。总死亡人数为5,554,152人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19.jpg)
 
-**3．新闻简报**
+其中：108,056例为完全接种疫苗，1,110例为部分接种疫苗，2,765例为未接种疫苗，28,181例疫苗接种状态不确定，12,328例属于0~11岁不符合接种条件。在所有符合COVID-19病毒疫苗接种条件的人中，96.54%的感染者属于已接种COVID-19病毒疫苗，未接种人群仅占2.47%。
 
-1。根据最近一份报告的统计数据，2021 年美国的谋杀率估计几乎与 25 年前一样高，当时全国有 19,600 多人被杀。
-2。世界卫生组织负责人周二表示，COVID-19 大流行还远未结束，并警告不要说，快速传播的 Omicron 变体是无风险的。
-3。专家称，由于 Omicron 的突变和与原始冠状病毒株的偏差，其极有可能会让人们再次感染。
-4。在乔治亚州、北卡罗来纳州、南卡罗来纳州和佛罗里达州，数以万计的客户断电。 高速公路巡逻队报告了数百起车祸，龙卷风席卷了佛罗里达州的一个拖车停车场。 根据跟踪网站 flightaware.com 的数据，夏洛特道格拉斯国际机场有 1,200 多个周日航班被取消，超过该机场周日计划的 90%。
-5。最近几天，纽约市和美国东北部的一些州的 Covid-19 病例数量似乎迅速减少，这增加了 Omicron 浪潮现在已经在美国某些地区达到顶峰的可能性。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
 
-* * *
+2021年12月26日至22日1月1日的一个星期内，新增COVID-19感染后住院的人中，共有1,578名Covid-19住院患者。其中，完全接种者1,280人，部分接种者47人，未接种者仅251人。这意味着，已接种疫苗的人群占Covid-19住院人数的84.09%，未接种疫苗的仅占15.91%。
 
-*编辑 /发布：吐纳*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Hospital-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
 
-*封面：霹雳鼠年*
+在2021年11月26日至22年1月1日期间，共有154名符合接种条件的Covid-19感染者进入ICU，其中，完全接种疫苗的104人，部分接种疫苗的占8人，未接种疫苗的只有42人。这意味着，在11月21日26日至22年1月1日期间，感染COVID-19后进入ICU的患者中，72.73%已接种COVID-19病毒疫苗，67.53%属于完全接种疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-ICU-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+
+在21年11月26日至22年1月1日期间，总共有32人因COVID-19死亡，完全接种疫苗的死亡人数共有22人，部分接种疫苗的人群中有3人死亡，未接种疫苗的人群中只有7人死亡。接种COIVD-19病毒疫苗后，死亡的占78.16%，未接种疫苗的仅占21.84%，尤其完全接种疫苗的人占到68.75%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Deaths-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+
+毫无疑问，澳大利亚南威尔士洲的数据说明，实验性的中共病毒疫苗给南威尔士洲的人带来严重的疫苗灾难，既不能预防感染，也不能减少住院，更不能减少死亡。
+
+参考数据：
+
+[Australia Population](https://www.worldometers.info/world-population/australia-population/)
+
+[Australian Bureau of Statistics](https://www.abs.gov.au/statistics/people/population)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
+
+[Covid-19 Deaths are at record levels in Australia & Official Data shows the Fully Vaccinated account for 4 in every 5 of those deaths since November](https://dailyexpose.uk/2022/01/19/australia-vaccinated-account-for-4-in-5-covid-deaths/)
+
+[德约科维奇惨遭澳大利亚驱逐 “他已成为反疫苗群体的偶像”](https://www.bbc.com/zhongwen/simp/world-60014139)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

@@ -2,37 +2,42 @@
 ---
 
 
-## 中共必将遭受世界人民和司法公正的审判
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880728/)
+## 中共间谍在议会活动曝光，英国将立法打击外国干涉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1880829/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月18日，郭文贵先生在盖特视频中表示，在美国的法庭上，新中国联邦人让邪恶的中共暴露在阳光下，而中共必将受到西方人民和司法的公正审判。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-19-0745578.jpg)图片来源：《大纪元时报》
+来自《大纪元时报》网站1月17日的报道，自中共间谍在议会的活动被曝光后，英国内政大臣普里蒂·帕特尔(Priti Patel)表示，英国政府将推出新的法案来打击外国干涉。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-13.jpeg)
+英国军情五处（MI5）安全机构采取了不同寻常的措施，于1月12日向议会发出警报，警告称一个名叫李贞驹（Christine Ching Kui Lee）的人“明知故犯地代表中共（CCP）统战部（UFWD）从事政治干预活动”。
 
-视频中提到，近五年来，中共通过启用单伟建、吴征等间谍，以及他们在西方社会中收买的各派势力，向郭先生发起法律超线战，还妄图以不法手段干涉西方的法制，更试图破坏爆料革命并消灭新中国联邦。 其中，中共利用不道德的律师和三十多万页的海量材料来控告郭先生，同时，其还借由不公正的庭审拒绝郭先生提出异议。
+警报指出，李一直在为英国政党和政治家提供财政捐款，任何与她联系的人都应该“留意她与中共的关系以及其负责在英国政治中推进中共议程的活动”。1月17日，帕特尔在下议院发表声明说，她“对这个人多年来蓄意地代表中共从事政治干预活动并将本议会成员作为目标感到非常震惊”。她说，这种具影响力的活动的目的是“使英国的政治格局对中共当局的议程更有利，并挑战那些对中共当局在诸如人权等非常紧迫的问题上提出关切的人”。她说，类似的安全警报将“变得更加普遍”，所以情报机构“已经做出调整以应对这些新的和正在出现的威胁”。
 
-郭先生解释道，由于中共对新中国联邦的恐惧，其不惜花费上亿元的律师费造假害人。此外，中共还在美国使用违法手段对新中国联邦实行司法超限战。郭先生表示，这彻底暴露了中共对西方囯家的司法操控——而此举也损害了西方世界的司法公正，更伤害了西方的国家与人民。
+英国政府正在制定新的国家安全立法，“以制约怀有恶意的国家更难开展此类活动，”帕特尔称，并补充道这种立法将“为安全部门和执法机构提供他们所需的工具，以全方位瓦解对国家的威胁。” 保守党前领导人伊恩·邓肯·史密斯（Iain Duncan Smith）爵士说，“令人震惊的是，本院的任一成员都能允许自己被一个外国势力利用。” 他说：“政府必须更加强硬，现在是时候改变我们的立场，且称中共才是我们真正的威胁。”
 
-然而，郭先生也认为，美国法制的伟大值得信赖，更重要的是，正义之士正在从新中国联邦人的遭遇中看清中共邪恶的嘴脸。最终，这必将让中共与被其收买的邪恶同伙接受西方人民和司法的公正审判。
+另一位保守党议员鲍勃·西利（Bob Seely）说，类似的丑闻“只会继续下去”，“直到我们更新我们间谍法，直到我们更新国内游说法，直到我们引入外国游说法”。反对党也呼吁采取措施，加强英国对中共干预的防御。工党的影子内政大臣伊维特·库珀（Yvette Cooper）说，军情五处安全警报中包含的信息“显然极其严重”，“我们以最强烈地方式谴责中共干涉英国民主进程的企图”。
 
-参考链接：[https://gettr.com/post/pp402xffd3](https://gettr.com/post/pp402xffd3)
+工党议员克里斯·布莱恩特（Chris Bryant）强调，国会议员们需要“对英国政治有可能受到的渗透睁大眼睛”。他还呼吁制裁一系列中共官员，包括香港特首林郑月娥和四名新疆官员，因为他们一直在“破坏香港和中共国的人权”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**简评：**
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：谐趣园
+英国将要针对中共间谍推出新的立法，打击外国干涉英国内政。新的立法出台后，相信随后会有一系列的动议和更多相关立法的出台。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新的立法出台后，将会在英国上下起到自我监督和警示作用。过去曾与中共间谍有接触的政府官员或议会成员恐怕都要及时报备，由此展开，会挖出更多的在英国活动的中共间谍。
 
+间谍的曝光是冰山开始融化的一角，积攒的力量可以造成雪崩之势。英国保守党的推行立法和工党的强烈谴责，两党联手会更有力的对中共反制，使中共加速灭亡。
+
+新闻链接：[https://www.theepochtimes.com/uk-to-legislate-against-foreign-interference-after-chinese-spy-found-operating-in-parliament\_4218294.html](https://www.theepochtimes.com/uk-to-legislate-against-foreign-interference-after-chinese-spy-found-operating-in-parliament_4218294.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

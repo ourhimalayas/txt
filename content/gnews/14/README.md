@@ -2,30 +2,33 @@
 ---
 
 
-## 天津疑因物资紧缺爆发群众抗议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1880552/)
+## 北京冬奥开幕在即 中共当局又开始病毒甩锅
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1880638/)
 
-【撰稿】纽约香草山教育部-Noemi
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-美东时间1月18日晚，有网友在盖特中视频爆料称，中共国天津市的某封控地区近期发生了一起外地人员的群体性抗议事件，并有部分参与民众已被当地警方逮捕。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-61.jpg)
+[图片来源](https://www.nytimes.com/2022/01/12/world/asia/beijing-olympics-covid.html)
 
-据了解，事件起因疑是当地政府防疫人员只为隔离期间的天津本地人提供口罩和蔬菜，而同样在此居住的外来务工人员则无同等待遇。在视频中可以看到，一名带头民众激动地站到了车顶，并大声地向几名防疫人员质疑道“外地人们吃什么？”随后，有几十名民众将防疫人员团团围住，并不断对其高呼“放人”、“放人”。
+距离北京冬奥开幕只剩两周多点，在确认发生了奥密克戎社区感染后，北京的局势高度紧张。并以因在海外邮件中发现奥密克戎毒株为由，呼吁市民不要购买外国商品。
 
-最终，当地政府以同意在第二天为每一名完成核酸检测的民众提供一包泡面为条件，平息了此次的民众抗议。而后，有民众继续追问是否每天都有此待遇，负责人员却无奈表示确实存在物资供给困难。
+据中共卫生部门消息称，一名被感染者从加拿大收到的邮件包裹中发现了奥密克戎变异株。虽然有待验证，但当局随即敦促市民加强消毒，并避免购买来自国外的商品。
 
-[https://www.gettr.com/post/pp75jn888e](https://www.gettr.com/post/pp75jn888e)
+加拿大卫生部长17日即刻回应称，这是一个极其荒唐的想法。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
-**更多资讯，更多关注**
+日本国际医療福祉大学医学与公共卫生学院的和田耕治教授表示，病毒不可能通过邮件传播。它毕竟还是人与人之间的传播。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+与此同时，中共国继续推行“零新冠政策”，只要发现有感染，就实施强制隔离措施，包括封锁城市。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+笔者想问，既然连邮件都怀疑带病毒，直接锁国得了，还办什么奥运会呢！各国运动员到时极有可能都将是甩锅对象了！
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+信息来源:
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[海外からの郵便でオミクロン株“感染”中国](https://news.yahoo.co.jp/articles/c45407638c2e94d83992d7d135e2aef7baa13926)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
