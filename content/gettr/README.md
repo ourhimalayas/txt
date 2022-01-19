@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 9:31 AM (UTC)`
+
+1/17/2022 Miles Guo: Procedure justice is the key in the Western judicial system. However, Pacific Alliance and the judge in the PAX case disregarded the law and common sense. They didn’t allow me to speak up in court. Nor did I have the permission to question the opposing party. Instead, they charged me with contempt of court. Is that still called the rule of law?<br/><br/>1/17/2022 文贵直播：西方世界的法律讲究的是程序正义，但太平联盟及PAX案的法官罔顾法律和常识，既不允许文贵张嘴说话、也不允许质疑对方，直接判文贵藐视法庭，这还叫法治吗？<br/>
+![img](https://media.gettr.com/group13/getter/2022/01/19/09/608556ca-59b8-6160-7a35-2919f6302b2b/out.jpg)
+
+---
+
 `@miles 1/19/2022 3:47 AM (UTC)`
 
 1/18/2021 Miles Guo: The CCP has infiltrated the whole world’s judicial system by posing threats and implementing the BGY plan, but the US and the rest of the world will wake up for sure. It’s said that the forced confession made by Sun Lijun in the Zero Tolerance documentary showed Xi Jinping giving in to the four major forces of Jiang Zemin, Meng Jianzhu, and Wang Qishan. What will happen after Xi’s speech at Davos and the Winter Olympics?<br/><br/>1/18/2021 文贵盖特：中共使用威胁和蓝金黄对全球司法界实行渗透，美国和全世界一定会醒来！听说孙力军的《零容忍》认罪是习向江曾孟王四大势力妥协的结果，冬奥会习太阳的达沃斯讲话后会发生什么事情呢？<br/>
@@ -147,13 +154,6 @@
 
 1/17/2022 Miles Guo: Looking back at the 2017 case of Pacific Alliance v. Miles Guo, why did Boxun and Xiong Xianmin know the verdict before the judge ruled? Why were the legal fees for Boxun and all the frivolous lawsuits against Miles Guo paid by Bruno Wu, a partner of PAG? Is it normal to have so many "coincidences"?<br/><br/>1/17/2022 文贵直播：回看2017年太盟诉文贵先生案，为什么博讯、熊宪民在法官判决前就能知道判决结果？为什么博讯和所有与文贵先生有关的法律缠诉案的律师费是吴征提供的，而吴征和太盟是合伙人关系？如此多的“偶然”正常吗？<br/>
 ![img](https://media.gettr.com/group13/getter/2022/01/17/22/ab2c7da9-c0d4-e464-ce50-617fc29cac0e/out.jpg)
-
----
-
-`@miles 1/17/2022 10:01 PM (UTC)`
-
-1月17号：尊敬的战友们好．征服不了自己的人……永远征服不了敌人……能让你自己不流泪，家人不流血的方式，就是必须要强大自己……强大自己的内心，坚定追求自己的信仰，才是最基本的，让你自己有尊严和有价值的活着的唯一办法！
-![img](https://media.gettr.com/group7/getter/2022/01/17/22/2da2aa57-3543-9855-7232-2e827913fda9/out.jpg)
 
 ---
 

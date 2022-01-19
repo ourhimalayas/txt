@@ -2,25 +2,22 @@
 ---
 
 
-## 吴征和杨澜的交易婚姻
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1878829/)
+## 中共病毒令又一国家元首中招
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1878954/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文摘横1-scaled.jpg)
-吴征是双性恋，做女性的人，这种人的表现欲很强大。杨澜说要嫁给能给她自由的人，不用担心钱的人。俩人的孩子是试管婴儿整出来的。凡是这种人，某方面是天才，谎言，胆大妄为，进屋抠持半天，就可以抠持个中央文件出来，吴征能在中国活得好啊。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1479.png)（图片源自本文链接）
+1月19日时事通信社报道：巴拉圭卫生部19日发布消息，50岁的总统阿卜杜拉耶-贝尼特斯感染了中共病毒（新冠病毒Covid-19）。
 
-杨澜跟我说：文贵不都像你想象那样，世界都盖楼才能到房地产商。她说，真正的在房地产赚钱的就是那些玩玩房地产的人，你知道房地产，中国的劳动人民不会致富的。你看全世界的时候，经济是什么概念吗？兄弟姐妹们，你所有的钱，你劳动的财富都不会是你的。
+47岁的西尔瓦娜夫人在1月16日也被检测出呈阳性，两人都接种了两次疫苗，并计划在2月份再接种一次。据说两人目前均属轻症。
 
-*发布：开智则立*
+中共病毒盯上你的话，它可不管你是谁!
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[パラグアイ大統領がコロナ感染（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/54db6a0adea10ffe8bd9bbda9ab804e1588886c0)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
