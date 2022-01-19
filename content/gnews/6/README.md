@@ -2,28 +2,28 @@
 ---
 
 
-## 香港步步邁向新疆化？反恐將領彭京堂任駐港解放軍司令
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1879136/)
+## CDC因为隐瞒了“V-Safe”新冠疫苗安全跟踪系统的数据而被起诉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1879161/)
 
-*素材整理：波士顿五月花 Vicky*
+##### 翻译：不要代表我Kari
+校对：枳实
+剪辑|字幕：Biggod
+编辑：Mttfly
 
-中国武警部队原副参谋长彭京堂，获共产党中央军委主席习近平任命为解放军驻香港部队司令员，这是第一次由武警将领担任驻港解放军司令。
+美国联邦政府规定75年后才能解密辉瑞疫苗数据及文件。联邦政府还构建了V-safe系统，旨在跟踪新冠疫苗对人体造成的伤害。新冠疫苗推广者们承诺使疫苗数据公开，他们向公众全面推出这种实验性的疫苗，但却不允许公众获取数据。就在过去的几周，美国疾病控制与预防中心（CDC）因拒绝公开“V-safe”新冠疫苗不良反应数据而被起诉。
 
-彭京堂专职新疆反恐多年，有分析认为，日后，驻港部队的功能会从宣誓主权变成维稳，不排除反恐突击部队在香港复制的可能，外界担心北京对香港立场今后将更加强硬。
+视频链接：[ICAN has filed another lawsuit against the CDC, this time for withholding data from the ‘V-Safe’ Covid-19 vaccine safety tracking system.](https://www.bitchute.com/video/s40ElKt1Jn15/)
 
-解放军驻港部队由解放军陆海空军部队组成，共约6000人，隶属属南部战区。虽然中国《香港驻军法》明确规定，驻港部队不参与香港内部事务，但香港政府在“必要”时可向中央政府请求驻军，”协助维持社会治安“和救助灾害。
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-香港特首林正月娥十日会见刚抵香港履新的彭京堂，期望对方领导驻港部队“继续对香港作出贡献”，与港府合作，“维护中国国家主权、安全和发展利益”。
 
-根据公开资料，彭京堂2018年升任少将，担任新疆武警总队参谋长期间，“曾指挥镇暴反恐行动”，其麾下山鹰突击队更是解放军顶尖战斗部队。彭京堂曾说，山鹰“苦练反恐实用的射击法“，单2018年，山鹰弹药消耗量就达到其他部队三年总和，而2019年前八月，弹药消耗量，已远超过2018年整年。
-
-彭京堂的上任，也让许多人担心，“香港新疆化”已逐步变成现实。
-
-* * *
-
-编辑&发布：Vicky
-
-素材来源：[https://news.ltn.com.tw/news/world/breakingnews/3803773](https://news.ltn.com.tw/news/world/breakingnews/3803773)
 
  
 

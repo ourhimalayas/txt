@@ -2,28 +2,35 @@
 ---
 
 
-## 反对新冠疫苗强制接种的澳大利亚亿万富豪克莱夫·帕尔默宣布竞选澳州参议员
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1879090/)
+## 日本13都县申请防疫升级措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1879150/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-170.png)图片来自网络
-澳大利亚亿万富豪克莱夫·帕尔默(Clive Palmer)宣布，他将在即将举行的联邦选举中竞选澳大利亚参议员。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-帕尔默先生说：”我们非常有信心在昆士兰州赢得参议院席位”。他将从下月开始，进行历史上规模最大、范围最广的竞选活动。
+整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-帕尔默先生曾在2019年参加选举，当时花费了创纪录的8300万澳元，在全澳获得了3.5%的选票。那次参选的目的是阻止当时的工党领袖胜出。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
 
-帕尔默先生之所以再次参选，是考虑澳洲目前的现状。帕尔默先生说，他没有接种新冠疫苗，因为他认为自己不需要接种。
 
-在昆士兰州，人们必须接种两针疫苗才能去医院、酒吧、餐馆、州议会、体育场馆等。他发誓，如果公共卫生部门阻碍了他的竞选努力，他将通过法律途径来应对。
+根据《联合新闻网》1月18日报道，日本新冠病毒（COVID-19）疫情恶化，东京都等首都圈1都3县以及爱知县等共13都向政府申请“防止蔓延等重点措施”。
 
-他说，“高等法院已经明确了，在澳洲，政治交流自由是受宪法保护的。”
+日本政府于18日召开相关会议，并于19日在政府防疫对策本部正式做出决定。
 
-帕尔默先生曾在2020年初，进口了 500 万剂，超过1吨的硫酸羟氯喹，准备用于新冠病毒的早期治疗。但由于澳大利亚药品管理局的强烈干预，这些硫酸羟氯喹被销毁。
+若日本政府同意东京都等13都县适用防止蔓延等重点防疫措施，此方案将于本月21日起实施，为期约3周。
 
-消息来源：[Palmer to lead UAP Senate election bid](https://7news.com.au/politics/election/palmer-to-lead-uap-senate-election-bid-c-5365416)
+日本政府发言人、内阁官房长官长松野博一18日在例行记者会上表示，日本正面临疫情前所未有的快速在扩散中，新增确诊病例也在急速增加。
 
-[One tonne of Clive Palmer hydroxychloroquine sent for destruction after dispute with TGA](https://www.theguardian.com/australia-news/2021/oct/13/five-million-doses-of-hydroxychloroquine-destroyed-after-stand-off-between-clive-palmer-and-government)
+参考链接：[日本疫情擴大空前快 東京等13都縣申請防疫升級](https://udn.com/news/story/121707/6042178?from=udn-catebreaknews_ch2)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
