@@ -2,154 +2,58 @@
 ---
 
 
-## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
+## 北京如何利用其数十亿美元在世界各地购买政治影响力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1878923/)
 
-[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-29.png)
+图片来源：网络截图
 
-**Steve Bannon:
-史蒂夫班农:**
+据澳大利亚《每日邮报》1月14日报道，中共国政府长期以来一直利用其数十亿美元在世界各国购买政治影响力。从投资英联邦国家的6850亿英镑，建设5G“间谍 ”网络来“接管”拉丁美洲和非洲。而中共国的英国“间谍”被揭露，似乎与北京的作案手法不谋而合。
 
-I just want to make sure we go through it one more time
-我只是想再一次明确实一下
+有指控称，一名疑似中共国间谍李贞驹向英国一名高级工党议员捐赠了50多万英镑。军情五处今天采取了罕见的措施，向国会议员和同行发出警告，称李小姐培养英国政治家，以确保“英国的政治格局 ”对中共国的独裁政府“有利”。
 
-The numbers a day you’ve had CPI now PPI
-你每天的数字是消费者物价指数，现在是生产者物价指数
+内政大臣普里蒂·帕特尔说，中国共产党把英国议员作为目标，这让人“深感不安”。
 
-Come by and tell people this is…
-过来告诉人们这是…
+然而，保守党内的鹰派长期以来一直警告说，中共国在英国的影响力越来越大，从它试图建立英国的5G网络到它对大学的渗透和参与欣克利角核电站的建设。
 
-I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
-鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
+近年来，北京对世界权力的无情争夺，使中国共产党对拉丁美洲和加勒比地区较小的贫穷的主权国家的内部事务进行了更积极的干预。中共国上个月与拉丁美洲的一连串国家达成协议，以建立“民用 ”核技术，发展太空计划，并建立5G移动网络来控制这些国家，美国称这些网络可能被用来监视数百万人。
 
-And this is dangerous
-这是很危险的
+北京甚至承诺建造学校并资助教授中国语言和“文化 ”的课程，尽管这些机构在其他地方被批评为推行国家宣传和限制学术自由。据美国传统基金会的研究员马特奥·海达尔（Mateo Haydar）称，中共国有野心成为 “拉丁美洲的主导力量”。
 
-No. 1 our system for these rate increases is talk trying to choke this down
-now our system is set up for negative interest rates
-第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
+自2005年以来，北京已在42个英联邦成员国投资超过6850亿英镑。安全专家认为，通过向巴巴多斯和牙买加等国家投入巨额资金，中共国政府希望让这些国家背上无法偿还的巨额债务，以至于它们被迫交出用作担保的资产。新协议包括该地区各国在包括贸易在内的众多领域深化与北京的关系的广泛承诺，中共国已经超越美国，成为该地区最大的贸易伙伴。
 
-People don’t understand that the trauma that is going to happen in our financial system
-人们不明白我们金融体系将要发生的创伤
+中共国利用类似的廉价贷款、建筑项目和购买关键基础设施的模式，还在非洲购买影响力，希望能帮助它超越美国。北京现在已经在该地区的吉布提建立了它的第一个海外军事基地，并被认为正在为第二个军事基地寻找地点。在某些情况下，包括在关键的水道上建立港口，使北京能够挑战美国人和印度人等对手的超级大国。
 
-That’s going to roll into your personal life, okay?
-将会影响每个人生活，知道吗？
+当中共国希望联合国成员支持其严厉的《香港国家安全法》时，它得到了巴布亚新几内亚和安提瓜和巴布达的支持。在剩余的16个英联邦国家中，有两个国家支持中共国，前者获得了53亿英镑的中共国投资（占其GDP的21%），而后者获得了10亿英镑（占其GDP的60%）。
 
-No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
-第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
+巴基斯坦是英国海外发展援助的最大受援国，自2005年以来，它从中共国获得了600亿英镑的投资，超过了其国内生产总值的五分之一，而且现在70%的武器都是从北京购买的。巴基斯坦政府将这些武器转给了塔利班，塔利班利用这些武器打败了阿富汗的联军，破坏了经济稳定。此后，这为中共国提供了借口，使其得以进入并开采该国巨大的矿藏，包括煤炭、铜、铁矿石、石油和宝石。
 
-Steve Cortes:
-史蒂夫科尔特斯:
-You’re exactly right Steve
-你是非常对的，史蒂夫
+当像斯里兰卡这样的受援国无力偿还高额贷款时，他们被迫交出用作担保的资产。在这种情况下，就是汉班托塔集装箱港口和周围15000英亩的土地，租期为99年。这使中共国在竞争对手印度主导的航道上有了立足之地。
 
-Look, if we look at history we see that a lot of political upheaval
-看，如果我们回顾历史，我们会看到很多政治动荡
+中共国对那些同意与台湾断绝关系并与北京建立关系的国家特别慷慨，台湾是中国东海的一个国家，北京称其为一个省。
 
-upheaval that we could say the least evil actually results from inflation
-我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
+2005年，在格林纳达与台湾断绝关系后，中国向年营业额仅18亿美元的格林纳达岛提供了一个价值5500万美元的全新板球场作为奖励。
 
-If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
-如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
+同样，在2018年，多米尼加共和国在与台北断绝关系后，获得了据信高达30亿美元的中国投资和贷款。
 
-If we look at Germany pre-World War II
-如果我们看看二战前的德国
+然而，近年来，北京在很大程度上退出了贿选项目，现在主要关注旨在为其公民提供工作的经济交易，获取稀土材料和粮食等资源，并提供长期贸易和经济利益。
 
-We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
-我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
+最近，一家中共国公司于今年4月完全控制了牙买加金斯敦自由港，这是该岛最大的集装箱港口，也是加勒比地区最大的港口之一。
 
-And in a country that is already as polarized as the United States is
-而在一个已经像美国这样两极分化的国家
+中共国还在古巴进行了大量投资，帮助该国第二大港口-古巴圣地亚哥实现现代化，一个新的航运码头将于2019年启用。
 
-This kind of inflation is not just bad economics
-这种通货膨胀不仅仅是糟糕的经济学
+总部设在伦敦的贸易组织加勒比理事会的总经理克里斯·贝内特告说：“在过去的15年里，中共国已经稳定地获得了对其在更广泛地区的贸易利益所必需的战略资产的控制。”
 
-It’s actually societally dangerous for our country
-它实际上是对我们国家的社会危险
+它控制了该地区最大的两个集装箱港口，在牙买加、圭亚那和苏里南获得了大量的土地、多个石油和天然气区块以及大规模的铝土矿和黄金矿藏。
 
-And that’s why we need to be cleared-eyed about what it is and about policy solution
-而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
+通过将优惠融资与使用中国承包商和中共国进口劳动力挂钩，中国已经迫使许多西方承包商退出，他们无法与中共国提供的廉价信贷竞争。
 
-Because Steve, we can’t just curse the darkness
-因为，史蒂夫，我们不能只是诅咒黑暗
+亨利·杰克逊协会的执行董事艾伦·门多萨（Alan Mendoza）告诉《电讯报》，他们想在国际上破坏一切，所以他们可以挑选一些国家，阻止英联邦和其他地方的反中共国决议。
 
-We have to do that, yes
-是的，我们必须这样做
+中共国正在对英联邦进行商业上的掠夺。问题是，我们能否以更好的产品来应对？英国能否引导西方投资基金进入这些地方？
 
-But as lamentable as this current economic quagmire is
-但与当前的经济泥潭一样可悲的是
-
-This is stagflationary embroil that we face right now in America
-我们美国现在面临的滞胀困境
-
-It does also, Steve, present political opportunity
-史蒂夫，它也确实提供了政治机会
-
-Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
-巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
-
-and to transform the republican party, not of the parties of the chased right
-并改变共和党，而不是被追逐的权利的政党
-
-But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
-反而成为一个真正多民族和多种族的美国工人阶级政党
-
-And the polling is starting to show us that political opening is there
-民意调查开始向我们表明政治开放是存在的
-
-If we have the guts and the gumption to cease it of course the right policies mix as well
-如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
-
-For example, as I mentioned yesterday in the show
-例如，正如我昨天在节目中提到的
-
-I think the most powerful way right now to win both politically as well as get the economy back on track
-我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
-
-get the inflation in control again
-再次控制通胀
-
-and get wages rising is inflation motive
-并提高工资就是通胀动机
-
-We need to absolutely stop illegal migration in this country
-在这个国家，我们需要绝对阻止非法移民
-
-and I believe we need a pause in even legal migration to this country
-并且我相信，就算是合法移民也需要适当暂停
-
-A pause in H-1B and other similar would work which is why let the American people wages starts to rise
-H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
-
-So that we see real wages take off again the way they did under Donald Trump
-这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
-
-instead of the way they are crashing right now under Joe Biden
-而不是现在在乔-拜登领导下崩溃的方式
-
-So, it’s calamity but there’s always opportunity as well in calamity
-因此，这是灾难，但灾难中也总是有机会的
-
-* * *
-
-Date: 01/13/2022
-原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
-Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
-原视频日期：2022/01/13
-原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
-任务编号：KE353（3494）
-视频时间段 : 0:00-02:52
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[How Beijing uses its billions to buy political influence around the world: From £685bn invested in the Commonwealth, building 5G ‘spy’ networks to ‘take-overs’ through Latin America and Africa… as China’s British ‘spy’ is revealed](https://www.dailymail.co.uk/news/article-10399501/How-Beijing-uses-billions-buy-political-influence-world.html)
 
  
 

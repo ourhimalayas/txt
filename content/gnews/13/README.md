@@ -2,39 +2,73 @@
 ---
 
 
-## 大直播后记：马丁•路德金日我们不妥协
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879554/)
+## 参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879599/)
 
-整理：雅典娜速记组
-编辑：MSGZ
+Senator Roger Marshall On Fauci’s Financial Records
+参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-174.png)图片来源：雅典娜设计组
+Why do you think that Fauci lied last week sir?
+你为什么认为上周福奇撒谎了？
 
+John, I guess several people said we are over the target so to speak
+约翰，我猜有几个人说我们偏离了目标
 
-马丁·路德·金是一位美国牧师、社会运动者、人权主义者和非裔美国人民权运动领袖，也是1964年诺贝尔和平奖得主。他主张以非暴力的公民抗命方法争取非裔美国人的基本权利，而成为美国进步主义的象征。
+We’ve exposed him in my opinion. he had misled or lied to Congress on three different issues in that particular hearing
+在我看来，我们已经揭露了他。在那次听证会上，他在三个不同的问题上误导或向国会撒了谎
 
-**郭文贵先生于直播中如是说**，1月17日是马丁·路德金纪念日，我们选择今天直播是有意义的。美国历史上，受迫害的和受到司法不公正对待和受黑暗势力欺压的美国少数民族黑人，出现了一个圣贤叫马丁·路德金——我有一个梦，就是体现美国少数民族追求人权精神、宁死不屈的品格。
+He lied to Rand Paul on one of his questions about covering this all up
+他在一个关于掩盖这一切的问题上对兰德.保罗（Rand Paul）撒了谎
 
-无数次受到威胁打压和司法不公正的对待，马丁·路德金为黑人和少数民树立了榜样。每一个人说马丁·路德金的时候，你见有多少人怀疑过他私人的道德。他在被抓之前还嫖妓呢。但是丝毫不影响他为正义的呼唤和付出，他改变了整个美国的民主进程，是人类历史中一盏黑暗中的明灯。
+He lied to Congress about gain of a function and then about his financial accountability
+他在功能增强（实验项目）这个问题上向国会撒谎，然后就他的财务责任撒了谎
 
-我每到今天都在想，中国人能出来一个马丁·路德金吗？如果中国人里出了个马丁·路德金，估计中国人不会问你干了啥，得先说你在被抓之前为啥嫖妓，用道德把你英雄的形象给毁掉。如果说华人出来个马丁·路德金，中国人能像昨天在纽约大火车站的亚裔被推下站台，你见华人媒体有一个人为她呼吁的吗？
+Look, we asked him a very simple question: Will you please share with Americans your financials?
+看，我们问了他一个非常简单的问题：您是否能与美国人民披露您的财务状况？
 
-只有我们。在当年印尼残杀50万华人、鸡奸强奸烧掉300万华人的商铺的时候，共产党第一个说这些人就是该杀，共产党还跟印尼大做买卖。美国的马丁·路德金发生在印尼了吗？能发生在中共吗？能有一个有勇气的人敢说真话，能坚持5年吗？
+This is a common question I get from people, as why does doctor Fauci believe only in vaccines?
+这是我从人们那里得到的一个常见问题。就像为什么福奇（Fauci）博士只相信疫苗？
 
-你看马丁·路德金回忆录当中说：“我感受到最可怕的事情是饥饿、侮辱、羞辱和时间的煎熬。”你们没有走过的路，永远不懂得其中的艰辛。当一个人坐在那里10几个小时正襟危坐被问话，就像郭宝胜、夏业良的案子在华盛顿开庭的时候，七哥一天18个小时，开庭14个小时，坐在一个硬板凳上，而熊宪民、郭宝胜一天睡七八觉。七哥正经八百坐在那儿，你告诉我你们谁能受得了？而且是连开5天。何况背后我这一堆的官司呢？
+Why doesn’t he acknowledge natural immunity?
+为什么他不承认自然免疫？
 
-马丁·路德金的这种感受我是真有的。能坚持到底，承受着这种寂寞，羞辱，侮辱的煎熬。是多可怕呀！
+Why doesn’t he acknowledge hydroxychloroquine or zinc or ivermectin, and they said what about his finance?
+为什么他不承认羟氯喹或锌或伊维菌素？他们想知道他的财务状况如何？
 
-我们在马丁·路德金日的时候，14亿中国人，生生死死100亿人的中国，没有出来一个马丁·路德金。作为律师，你去想想我们活在美国，我有一个梦。我们华人如果在美国，就像在PAG官司面前，今天如果妥协了、放弃了，我们华人在美国就会被共产党等坏人无数次推到铁轨当中去，而且没有人替你说话。如果我们这次官司打不出真相出来，我们中国人在美国将永远成为司法的奴隶，司法的牺牲品。中国共产党会穷追猛打，把所有人在海外的安全毁掉。严格讲PAG的官司已经不那么简单了，它牵扯到巨大的种族问题、巨大的法律的黑洞和美国司法制度的缺陷。所以接下来的才是更大的事情。
+We’ve been trying to get them
+我们一直在努力找到这些信息
 
-*发布：*tianzhihuan
+He lied to Americans said that they are publicly available, and they weren’t
+他对美国人撒谎说这些信息是公开的，但事实并非如此
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+And now we’ve got that, and people can go to our website Marshall.senate.gov and review Dr. Fauci’s financials
+现在我们已经找到了。人们可以访问我们的网站Marshall.senate.gov. 并查看 福奇（Fauci） 博士的财务状况
+
+And they are going to see that he made 1.7 million dollars last year, in 2020. Excuse me 1.7 million dollars in 2020.
+他们将看到他去年在2020年赚了170万美元。对不起，2020年赚了170万美元
+
+While America was shut down. He made 1.7 million dollars, significant investment in China. We will let Americans decide.
+在美国被关闭期间，他赚了170万美元，在中国进行了重大投资。我们将让美国人自己来判断
+
+* * *
+
+Date: 1/17/2022
+原视频标题: Senator Roger Marshall On Fauci’s Financial Records
+参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+原视频日期：1/17/2022
+原视频链接: [**https://twitter.com/realamvoice/status/1483240267649982464?s=24**](https://twitter.com/realamvoice/status/1483240267649982464?s=24)
+任务编号：KE355（3521）
+视频时间段 : 0:00-01:00
+中听校：洛杉矶盘古农场 -海潮
+翻译：洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

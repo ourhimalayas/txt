@@ -2,35 +2,34 @@
 ---
 
 
-## 卫生局局长：Omicron疫情在东北地区放缓，但全美高峰尚未到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879479/)
+## 短视频：数以百万计的人已经转移到了盖特
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1879485/)
 
-据《华盛顿时报》记者：Tom Howell Jr.，2022年1月16日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3518.png)2021年9月21日星期二下午，美国外科医生Vivek Murthy在伊利诺伊州西塞罗参观了Access Hawthorne家庭健康中心后与记者交谈。图片源自：Ashlee Rezin/芝加哥太阳时报通过美联社
-美国外科医生Vivek Murthy周日表示，冬季COVID-19集中爆发在某些地区出现缓解，但Omicron变体在不同地区爆发时间不同，因此尚不清楚最坏的情况何时结束。
+**翻译：Julia Gao**
+**校对：枳实**
+**视频剪辑：向上James**
+**编辑：文泓**
 
-“好消息是，在部分地区，特别是纽约和东北部的其他地区，我们开始看到病例数已经企稳，在某些情况下，病例数出现早期下降，”他告诉CNN节目“联盟的州（State of the Union）”，“ Omicron自东部先爆发，然后蔓延至其他地区。因此，我们不应该期望在接下来的几天内出现全国性的高峰。但是接下来的几周将是艰难的。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/811-2.png)图片来源：视频截屏
 
-Murthy博士同时谈到，美国每天记录的感染人数超过80万例，住院人数达到近16万人的历史最高水平。每天约有1,900人死于COVID-19，但这远低于去年1月每天3,300人的峰值。
 
-Omicron变体似乎没有其他中共病毒严重，但它传播速度快，因此仍能造成损失。这场危机对拜登总统造成了重大拖累，他承诺进行充分的测试，但却无法满足在冬季高峰期的测试需求。
+看看，又一轮的追随者的大潮。继顶级播客主持人乔·罗根在1月2日开设了一个盖特账户，这之后，该公司（盖特）说它新注册用户已经超过100万。这包括像福克斯新闻主持人塔克·卡尔森，及图尔西·加巴德，国会议员马特·盖茨，参议员罗恩·约翰逊等大人物。我也在那里注册了。罗根是在推特禁止罗伯特·马龙博士和国会议员马乔里·泰勒·格林之后做出转移到盖特的这一举动。杰里米，现在我要采访的是盖特首席执行官。
 
-拜登先生正在慌乱中试图迎头赶上。他购买了10亿份测试试剂盒，美国人很快就可以从网站上订购这些测试，并免费送货上门。他还在想办法免费送出高质量的口罩。
+这是杰森·米勒。杰森，很高兴见到你。非常感谢你应邀来到这里。对盖特来说，得到像乔·罗根这样的人对欢迎其他著名人物有多重要呢？
 
-“在测试方面，我们当然还有更多工作要做，” Murthy博士说。 “这就是为什么你会看到众多与测试相关的供给渠道，以及为什么未来几个月供应量将继续增加。”
+好吧，玛丽亚，早上好! 能有像乔·罗根这样的人物加入盖特绝对是非同小可。显然，我们看到了在罗伯特·马龙博士与马乔里·泰勒·格林身上发生的事了。他们被永久地踢出了推特。昨晚，伟大的塔克·卡尔森也加入了我们，这显然对我们的盖特平台又是一个巨大的推动。
 
-美国食品和药物管理局前局长斯科特·戈特利布博士（Dr. Scott Gottlieb）说，测试对一些人来说可能成本高昂，市政当局也很难批量购买，但可以从一些在线零售商处购买，政府帮助免费投递会很有帮助。
+但我认为，我们现在看到的，是对大型科技公司的全盘抛弃，我们必须有替代平台，不因人们的政治信仰而进行审查。但是我想说，玛丽亚，随着所有这些新人物的加入，我们很高兴有他们所有的人加入盖特。我必须这么说，他们占据了先机，他们在这个（抛弃大科技公司的）浪潮中走在了前面。
 
-原文连接： [**https://www.washingtontimes.com/news/2022/jan/16/surgeon-general-omicron-slowing-northeast-dont-exp/**](https://www.washingtontimes.com/news/2022/jan/16/surgeon-general-omicron-slowing-northeast-dont-exp/)
+视频链接：[GETTR News on GETTR: “ICYMI: #GETTR CEO @jasonmiller…”](https://www.gettr.com/post/pnp3z2f178)
 
-翻译：洛杉矶盘古农场 – 海潮
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
