@@ -2,27 +2,38 @@
 ---
 
 
-## 模型预测美国未来几周将出现Omicron 感染死亡的高峰
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880704/)
+## 中共必将遭受世界人民和司法公正的审判
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880728/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011802.jpg)网络图片
-告诉传播的 Omicron 变体表面上来说或许不太容易导致特别严重的疾病，但是美国的CCP病毒死亡人数依旧正在攀升。预测模型估计，到 3 月中旬Omicron的浪潮出现消退迹象时，可能会有 50,000 至 300,000 名美国人因感染病毒而死亡。
+作者：纽约香草山农场福音部 – 恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，郭文贵先生在盖特视频中表示，在美国的法庭上，新中国联邦人让邪恶的中共暴露在阳光下，而中共必将受到西方人民和司法的公正审判。
 
-自 11 月中旬以来，美国每日新增因CCP病毒感染死亡人数的 7 日滚动平均值一直呈上升趋势，在 1 月 17 日达到近 1,700 人。疗养院中的 COVID-19 死亡人数两周前居民人数开始小幅上升，尽管其中大部分居民已经完成了CCP病毒的疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-13.jpeg)
 
-尽管有迹象表明 Omicron 平均来讲导致的症状较为轻微，但由于其在全国范围内传播的感染程度空前，且许多州的病例仍在飙升，这意味着有更多居民将患上重病。 如果最为糟糕的预测情景成为现实，那么到早春，美国死于 COVID-19 的总人数将超过 100 万。
+视频中提到，近五年来，中共通过启用单伟建、吴征等间谍，以及他们在西方社会中收买的各派势力，向郭先生发起法律超线战，还妄图以不法手段干涉西方的法制，更试图破坏爆料革命并消灭新中国联邦。 其中，中共利用不道德的律师和三十多万页的海量材料来控告郭先生，同时，其还借由不公正的庭审拒绝郭先生提出异议。
 
-南佛罗里达大学的流行病学家杰森·萨莱米说：“由于 Omicron 的高传染性，很多人仍然会因感染Omicron而死去……不幸的是，在情况好转之前更加更糟的时刻尚未降临。”
+郭先生解释道，由于中共对新中国联邦的恐惧，其不惜花费上亿元的律师费造假害人。此外，中共还在美国使用违法手段对新中国联邦实行司法超限战。郭先生表示，这彻底暴露了中共对西方囯家的司法操控——而此举也损害了西方世界的司法公正，更伤害了西方的国家与人民。
 
-来自宾西法尼亚大学的学者卡特里奥娜·谢伊表示，美国的CCP病毒死亡浪潮将在 1 月底或 2 月初达到顶峰。 2 月初，每周死亡人数可能等于或超过Delta变种流行时的峰值，甚至可能超过美国去年的死亡人数峰值。
+然而，郭先生也认为，美国法制的伟大值得信赖，更重要的是，正义之士正在从新中国联邦人的遭遇中看清中共邪恶的嘴脸。最终，这必将让中共与被其收买的邪恶同伙接受西方人民和司法的公正审判。
 
-如果综合模型来看，卡特里奥娜·谢伊预计，从 12 月中旬到 3 月中旬，150 万美国人或将住院，191,000 人将死亡。 考虑到模型中的不确定性，美国在 Omicron 肆虐期间的死亡人数可能在 58,000 到 305,000 之间。
+参考链接：[https://gettr.com/post/pp402xffd3](https://gettr.com/post/pp402xffd3)
 
-新闻参考链接：[US faces wave of omicron deaths in coming weeks, models say](https://apnews.com/article/coronavirus-pandemic-omicron-covid-19-deaths-08f8db29985b992d5ef98ccfa1459eb7)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

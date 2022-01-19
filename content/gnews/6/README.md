@@ -2,75 +2,61 @@
 ---
 
 
-## 【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1880748/)
+## 泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1880799/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+翻译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1515.png)图片来源：naturalnews.com
 
-截止至美东时间1月19日上午8时21分，在澳大利亚2,595.7万人中，累计确诊中共病毒感染病例1,955,544例，占澳洲全国总人口的7.53%。继1月8日单日新增COVID-19感染者病例达到创记录的111,907例后，1月12日，澳大利亚单日新增病例竟然达到175,271例，单日新增病例数达到澳洲总人口的千分之6.75。
+自然新闻 – “真相工程”（Project Veritas）在泄露的军事文件中，发现了另一个重磅炸弹。
 
-尽管如此，1月6日，澳大利亚北领地（Northern Territory）行政长官Michael Gunder在新闻发布会上正式宣布，对未“完全接种”Covid-19病毒疫苗的公民未来几天实施新的专制封锁，任何年满16岁且未完全接种疫苗的人不能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，才能离家不得超过30公里远。
+事实证明，在治疗福奇流感方面非常有效的伊维菌素，自新冠病毒流行病开始以来，就在美国基本上被禁止使用。
 
-网球巨星德约科维奇（Novak Djokovic）甚至在1月16日上诉失败后，被澳洲当局以“对公共卫生造成威胁”驱逐出境。
+该文件的一部分显示，伊维菌素“在 2020 年 4 月被确定为有疗效的”，因为它“在疾病的所有阶段都有效，**因为它既能抑制病毒复制，又能调节免疫反应**。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a5e4cdd86fd643ac86ddb702a6644510.jpeg)
+你没看错：**政府知道并完全承认**，至少对其他政府内部人士来说，**伊维菌素是一种治疗新冠病毒的药物**，出于政治的原因，这种药物一直没有被美国人民掌握。
 
-澳大利亚当局如此疯狂的胁迫打疫苗，目前澳洲的疫情真的是由于没有打Covid-19病毒疫苗或者疫苗打得还不够多造成的吗？
+同一份文件还承认，羟氯喹也是一种治疗新冠病毒的物质。它与干扰素一样被概述为“SARSr-Cov 抑制剂”。
 
-根据澳大利亚政府官方数据，截止至2022年1月19日，总共有4,672万针COVID-19病毒疫苗被打进人的身体，仅仅在过去的24小时内，就有321,959针被注入澳大利亚人的身体。目前，年满16+的澳大利亚人中，95%被打了至少一针疫苗，92.7%被打了两针疫苗，5,553,110名年满18周岁的澳大利亚人被打了至少三针疫苗。
+正如我们现在看到的那样，**该计划是剥夺公众使用伊维菌素和羟氯喹等治疗药物，以引导人群直接使用瑞德西韦**（托尼·福奇部分拥有）以及“疫苗”。
 
-如果以所有人口计算，澳大利亚有81.74%的人最少注射了一针COVID-19病毒疫苗，77.75%最少打了两针，21.53%打了加强针。
+**泄露的军事文件承认，新冠病毒疫苗****不能预防任何新冠病毒变体**
 
-既然有如此高的疫苗接种率，那么，即使有新增中共病毒感染案例，也应当主要是以未接种疫苗人群为主体才合符逻辑！
+文件中的另一个启示解释说，生态健康联盟在向 DARPA 提供资金的提案中承认，“疫苗方法缺乏足够的表位覆盖范围来防止冠状病毒的准种。”
 
-下面以疫苗接种率相当高的新南威尔士洲来分析。
+当然，这意味着任何偏离原始 SARS-CoV-2 的新突变或变体都可以轻松绕过疫苗注射，及其所谓的“加强剂”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Vaccination-in-NSW.jpg)
+不仅如此，这些文件还显示注射“可能有害”，**因为它们会破坏免疫系统的抗体反应，尤其是对其他新冠病毒变异体的反应。**
 
-截止到2022年1月17日，新南威尔士洲（NSW）年满16岁的人中，95.2%已经打了最少一针COVID-19病毒疫苗，93.8%最少打了两针COVID-19病毒疫苗，27.8%最少打了三针COVID-19病毒疫苗，在12~15岁的青少年中，有78.3%最少打了两针疫苗，甚至5~11岁的儿童也有16.4%最少打了一针疫苗。
+未接种疫苗的人感染原始的福奇流感康复后，会对所有突变和变异**产生永久免疫力**，但完全接种疫苗的人却不能如此，他们的身体将无法应对病毒感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccination-in-NSW1.jpg)
+这就是这些注射的艾滋病发挥作用的地方，这意味着完全接种疫苗的人，基本上正在经历一个免疫消耗的过程，就像艾滋病患者一样。
 
-然而，1月17日上午8时到1月18日上午8时的24小时内，新南威尔士洲新增确诊中共病毒感染者32,297人。
+文件中写道：“使用具有一个表位的刺突蛋白疫苗，来对抗具有准种的刺突蛋白，疫苗的性质可能解释了接种疫苗的新 COVID 变体中不寻常的（并且可能是有害的）抗体反应。”
 
-根据2022年1月13日，新南威尔士洲卫生部门发布的每周中共病毒疫情监测报告《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)》，2021年12月26日至22日1月1日的一个星期内，新南威尔士洲总共有152,440例新增中共病毒感染者被确诊。
+从根本上说，除了单表位疫苗对 SARSr-CoV-WIV 几乎没有效果这一现实之外，如所示，该提案提供的信息表明，**应高度优先评估疫苗接种引起的抗体依赖性增强 ****(ADE) ****风险。**”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19.jpg)
+所有这些都可能在疫苗出现之前就已经写好了，至少应该让公众知道。如果公众知道这些，这就不会有真正的大流行了。
 
-其中：108,056例为完全接种疫苗，1,110例为部分接种疫苗，2,765例为未接种疫苗，28,181例疫苗接种状态不确定，12,328例属于0~11岁不符合接种条件。在所有符合COVID-19病毒疫苗接种条件的人中，96.54%的感染者属于已接种COVID-19病毒疫苗，未接种人群仅占2.47%。
+与此同时，**廉价、安全和有效的伊维菌素现在是如此禁忌，连给病人开这种药的医生都要受到终止行医的威胁。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+如果这些证据不足以让你相信当权者想要你死，而不是像他们声称的那样“安全”，那么， 还要怎么你才相信！
 
-2021年12月26日至22日1月1日的一个星期内，新增COVID-19感染后住院的人中，共有1,578名Covid-19住院患者。其中，完全接种者1,280人，部分接种者47人，未接种者仅251人。这意味着，已接种疫苗的人群占Covid-19住院人数的84.09%，未接种疫苗的仅占15.91%。
+“如果有谁通过了历史上最大的心理行动你还没有打疫苗？恭喜！”零对冲的一位评论者开玩笑说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Hospital-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+“是的，美国历史上最大的骗局，”另一个回答说。“为什么福奇还是个自由人（没有在牢狱里）？”
 
-在2021年11月26日至22年1月1日期间，共有154名符合接种条件的Covid-19感染者进入ICU，其中，完全接种疫苗的104人，部分接种疫苗的占8人，未接种疫苗的只有42人。这意味着，在11月21日26日至22年1月1日期间，感染COVID-19后进入ICU的患者中，72.73%已接种COVID-19病毒疫苗，67.53%属于完全接种疫苗。
+“**他们不仅知道伊维菌素有效，而且他们知道即使在最危急的情况下，高剂量的伊维菌素＋ 维生素 ****C ****也能产生奇迹**，”另一位指出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-ICU-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
+素材链接：[naturalnews.com] [Leaked military documents show that ivermectin “works throughout all phases” of covid… so why has the medical establishment SUPPRESSED it for two years?](https://www.naturalnews.com/2022-01-12-leaked-documents-ivermectin-works-throughout-all-phases-covid.html)
 
-在21年11月26日至22年1月1日期间，总共有32人因COVID-19死亡，完全接种疫苗的死亡人数共有22人，部分接种疫苗的人群中有3人死亡，未接种疫苗的人群中只有7人死亡。接种COIVD-19病毒疫苗后，死亡的占78.16%，未接种疫苗的仅占21.84%，尤其完全接种疫苗的人占到68.75%。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Deaths-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-毫无疑问，澳大利亚南威尔士洲的数据说明，实验性的中共病毒疫苗给南威尔士洲的人带来严重的疫苗灾难，既不能预防感染，也不能减少住院，更不能减少死亡。
-
-参考数据：
-
-[Australia Population](https://www.worldometers.info/world-population/australia-population/)
-
-[Australian Bureau of Statistics](https://www.abs.gov.au/statistics/people/population)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
-
-[Covid-19 Deaths are at record levels in Australia & Official Data shows the Fully Vaccinated account for 4 in every 5 of those deaths since November](https://dailyexpose.uk/2022/01/19/australia-vaccinated-account-for-4-in-5-covid-deaths/)
-
-[德约科维奇惨遭澳大利亚驱逐 “他已成为反疫苗群体的偶像”](https://www.bbc.com/zhongwen/simp/world-60014139)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

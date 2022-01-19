@@ -2,15 +2,15 @@
 ---
 
 
-## 中共自知难逃一劫被迫脱钩强撑政局
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1880087/)
+## 病毒疫苗大灾难
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1880088/)
 
 ——文贵大直播20220119
 
-撰稿：火星（英喜）新生（秘翻）Poplar（盘古）
+撰稿：莲心不染、大废墙（文非）（扬帆）白子（澳喜）火星肉包子（英喜）
 
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-5.png)
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-4.png)
 *发布：Theodosia*
 
  
