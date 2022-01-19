@@ -2,22 +2,36 @@
 ---
 
 
-## 文贵大直播精要0117——PAG的官司是七哥个性的展示
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1880204/)
+## 泽连科医生指出 接种疫苗将造成民众死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880283/)
 
-- 听写：苹果树 佐拉 yueshangliushao#4185 神奇四侠
-- 简写：大明
-- 审核：舒平风
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/泽连科.jpg)
+泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
 
+此外，泽连科医生还提到，在接种过中共病毒疫苗的短期内，年轻的接种者或将因此产生心肌炎而住院，其中，妊娠初期的女性接种者还有极高的概率出现流产现象。
 
-这个PAG的官司是七哥个性的展示。我从来没向邪恶低过头，直到找到属于我们的公平。这个Edward Moss的钱以及他和吴征、单伟建、太平联盟、海航、共产党的关系，我要在法庭展示。
+至于中长期的疫苗不良反应，泽连科医生补充道，中共病毒疫苗会提高接种者自体免疫疾病的发生概率，并增加他们患癌的风险。同时，女性接种者会出现卵巢不育或孕育功能障碍，而男性则会出现精子数量减少的现象。
 
-如果我不在了，你们要不给我继续把这个官司打下去，你们就不配做我的兄弟姐妹。在2022年这个黑暗的一年，我们有3大官司。在英国的UBS官司，是共产党用一切力量要阻止的，因为它拿走了我的家族上千亿的财富。这个PAG案子就是羞辱我，让我的家族没有1分钱。用几万页文件缠诉，让我没精力和时间。当UBS和PAG这两案子完结后，你们会看到我们要诉讼很多人，包括Edward Moss。一定会让他律师执照给取消了，一定要让这个邦迪还有Cahill律师事务所以及过去取消政庇申请的律师事务所付出代价。
+泽连科医生最后提出，中共病毒疫苗带来的最大隐患则为接种者在三个月到三年间出现的亚急性抗体依赖增强作用现象。当个体受到具有相似抗体的病毒攻击时，疫苗将造成接种者快速死亡。
 
-这种流氓律师事务所给我们带来的伤害，要通过美国的法律，让他们赔偿。这些人背后到底干了什么？只要证明了他们作为律师造假，他们在美国的结局能好么？
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-80.png)
-发布：神奇四侠
+参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编: Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

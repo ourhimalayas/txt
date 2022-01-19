@@ -2,34 +2,24 @@
 ---
 
 
-## 强制卡车司机接种疫苗或将加剧粮食危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880199/)
+## 文贵大直播精要0117——中共对文贵先生缠诉和美国司法的渗透
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1880265/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月15 日，据相关媒体报道，加拿大联邦政府此前针对入境的卡车司机实行的疫苗护照政策给当地带了一些严重的问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/强制卡车.jpg)
-资料显示，加拿大政府于2021年11月要求所有从美国入境的卡车司机在入关时出示其中共病毒疫苗的接种证明，此项政策本计划于今年1月15日正式生效。 加拿大卡车联盟对此表示，未接种疫苗的卡车司机在越过边境进入加拿大时，需要接受为期14天的隔离。此举将导致大约一万六千名卡车司机被迫离职。
+- 听写：苹果树 佐拉 yueshangliushao#4185 神奇四侠
+- 简写：大明
+- 审核：舒平风
 
-数据表明，加拿大每年需要从美国进口价值约210亿美元的农业食品，尤其在冬季，来自美国南部各州的产品可以为加拿大消费者提供至关重要的食物供应。这其中，将近70%的进口食品是通过卡车运输的。为此，该疫苗护照计划甚至可能影响到加拿大民众的食物供应。而这也是自中共病毒流行以来，第一个可能中断加拿大和美国之间贸易往来的公共卫生措施。
 
-报道指出，而今，中共病毒的肆虐已经让加拿大的公共卫生系统承受着巨大的压力，此外，当地的食品供应也出现了严重的通货膨胀。在此情况下，针对卡车司机的疫苗护照计划将使加拿大民众成为疫苗强制令的直接受害者。
+法官最想让我触碰藐视法庭，随时把我带走，这是接下来可能发生的事情。FBI的Rachard是原来我保镖公司的合伙人，吴征的现在合伙人和PAG官司的调查人。他跟吴征在蒙古包里边吃边看美女跳舞。这叫不叫利益冲突？
 
-参考链接：[CHARLEBOIS: Trucker vaccination policy will harm food chain](https://torontosun.com/opinion/columnists/charlebois-trucker-vaccination-policy-will-harm-food-chain)
+在这个案子里，马蕊从蓝裤头变成了红裤头，从纽约强奸到巴哈马，又从巴哈马强奸到伦敦。太平联盟案子已经完全不允许被告说话。对方听说已经付了8000万美元的律师费了，花8000万要不存在的3000万，他们为了什么？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+过去5年共产党花的钱，已经超过200亿美元，什么动力？接下来的案子走向会非常之滑稽、凶险，就像当时他们找到川普总统，川普总统拿着纸说，把这个家伙遣返因为他强奸所有的人。
 
-总编: Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
+后来塞申斯、班农不同意，检察官也不同意，总统的律师说，“要把他给遣返了，美国几百年的立国的基本法律就被你破坏了，你是犯罪。”这些天，美国几个议员从PAG官司看到了美国的真正危险。他们认为我说对了，美国的治国根基就是法律。如果这个根基被共产党通过律师事务所、法官和检察官控制了，那么美国就太危险了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-313.png)
+发布：神奇四侠
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
