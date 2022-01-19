@@ -2,35 +2,17 @@
 ---
 
 
-## 樱花灭共诗——卜登仙（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1879290/)
+## Gclub Gfashion HCN HDO 生态链已经形成流通
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879342/)
 
-撰稿：东京樱花团/曲非烟
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/樱花灭共诗——卜登仙（新韵）1.png)
 
-升坛黄帝所，
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
-甲子祭昆仑。
 
-欲卜登仙事，
-
-长歌铸鼎文。
-
-枢星无电绕，
-
-巨印乏足奔。
-
-可叹王侯将，
-
-同归草木人。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/樱花灭共诗——卜登仙（新韵）2.png)
-
-*插图：东京樱花团/闪闪
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 房地产很难套现大陆钱都跑了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879319/)
+## 我们要尊重战友的付出
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879406/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
