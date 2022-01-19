@@ -2,224 +2,25 @@
 ---
 
 
-## 每日快报：美议员呼吁联合国在冬奥会前提交维吾尔人权报告
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1878873/)
+## 正义必将战胜邪恶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1878938/)
 
-*作者：*天使在人间
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1478.png)
+1月18日，郭文贵先生于Gettr视频中爆料，近日由中共中央纪委国家监委宣传部与中共中央广播电视总台联合编制的洗脑反腐大片《零容忍》上映，其中由孙力军领衔出演的电视认罪意义深远！孙力军的电视认罪，恰恰证明了习并没有大权在握。如果真的大权在握，直接把王岐山孟建柱抓了就行了，何必要用孙力军这个打手马仔认罪来在党内玩心理战，让人站队呢？
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+习在冬奥前的动作的底牌被曾江孟王已经摸清，冬奥来临，以外打内的时机已到，现在轮到曾江孟王出手了。孙力军领衔出演的反腐大片《零容忍》意义深远，标志着江泽民、曾庆红派系的重大胜利！此举大大鼓舞了中共党内反习派的人心，大家普遍认为正是因为习近平还没有拿到军队绝对的权力，他不得不向江泽民、曾庆红做出妥协的结果。
 
-# ***今日摘要***
+江、曾、王、孟的势力，可能会在北京冬奥会后，全世界和中共彻底翻脸的关键时刻有一些大动作。什么大动作呢？我认为习近平将会为了中共的利益，不得不扎扎实实的背上病毒疫苗等中共所有的问题黑锅！
 
-1. 美议员呼吁联合国在冬奥会前提交维吾尔人权报告
-2. 纳瓦罗：”觉醒“公司因为金钱而对中共保持沉默
-3. 研究表明，中共冬奥会应用程序存在安全漏洞
-4. 研究发现，第四次COVID Jab不会挽救患者免受Omicron感染
-5. 以色列研究发现，注射4针疫苗也无法避免感染新冠病毒
+另外，关于PAG对郭文贵先生和G系列的诽谤虚假起诉案件郭先生相信一定会赢！中共穷尽一国之力，使出各种手段围追堵截，缠诉，诬陷诽谤栽赃，卧底收买恐吓，各种见不得人的黑社会手段，结果又能怎么样？正义必将战胜邪恶！新疆种族灭绝和反人类罪成立，盖特成功推出，喜币成功上市，强制疫苗受阻，冬奥惨淡，脱钩断供，内斗火爆，中共正江河日下，岌岌可危！反观郭文贵先生却成竹在胸，与战友们谈笑风生！美国并没有完全堕落，美国还有班农、纳瓦罗、蓬佩奥等许许多多的正义人士，还有正义联盟沼泽地的力挺！相信正义联盟一定会战胜邪恶的中共！
 
+信息来源： [2022年1月18日 Miles Guo盖特](https://gettr.com/post/pp402xffd3)
 
-# 重要事件
-
-- ** 01.19 ：**OANN: [美议员呼吁联合国在冬奥会前提交维吾尔人权报告](https://www.oann.com/u-s-lawmakers-call-for-u-n-uyghur-rights-report-before-chinas-olympics/)
-
-
-美国国会议员周二敦促联合国人权办公室在下个月的北京冬奥会之前发布对中共国新疆政策的评估，美国政府正在外交层面上抵制她所说的该地区正在进行的种族灭绝。
-
-联合国人权事务高级专员米歇尔·巴切莱特哀叹，她的办公室无法进入中共国西部地区，调查对维吾尔人和其他穆斯林少数民族侵犯人权的指控。她的办公室在去年12月表示，它正在完成一份关于新疆局势的报告，并希望在未来几周内与中共国官员就拟议的访问进行长期会谈，但未取得任何进展。
-
-参议员杰夫·默克利和众议员詹姆斯·麦戈文是两位民主党人，分别担任美国国会-行政当局中共国委员会主席和联合主席，他们给巴切莱特写了一封公开信，要求她在2月4日北京奥运会的”国际奇观”开始之前发布报告。”它的提交将发出一个重要的提醒，即任何国家都不能因从事严重侵犯人权行为而逃避国际审查，”默克利和麦戈文说。
-
-巴切莱特的办公室没有立即回应路透社的问题，询问该报告何时发布。自2018年9月以来，巴切莱特一直在就新疆之行的条款进行谈判，因为有指控称，约有100万维吾尔人被关押在大规模拘留营中。中共否认在新疆有不当行为，并表示这些营地是为了职业培训和遏制宗教极端主义。美国及其许多盟国，包括英国、加拿大、澳大利亚、日本和丹麦，都表示，他们不会派官方外交代表团参加奥运会，以抗议中共国的人权记录。
-
-- ** 01.19 ：**NEWSMAX: [纳瓦罗：”觉醒“公司因为金钱而对中共保持沉默](https://www.newsmax.com/newsmax-tv/peter-navarro-china-woke-capital/2022/01/18/id/1052791/)
-
-
-前川普总统政策办公室主任彼得·纳瓦罗周一告诉Newsmax，美国企业之所以”觉醒”，是因为它”在政治上很受欢迎”，但由于金钱的诱惑，他们对中国却出人意料的”麻木”。”他们把西藏的妇女，绑架到中共国其他地区，与汉族人交配，基本上把她们赶出国门，”纳瓦罗向主持人詹恩·佩莱格里诺详细解释道。”这些是可口可乐，Airbnb，勒布朗詹姆斯，美国职业棒球大联盟，达美航空公司……这些都是你们通过持续的赞助所支持的事情。
-
-纳瓦罗说，美国应该抵制即将在北京举行的2022年冬季奥运会，因为中共国的侵犯人权行为以及对可能新的COVID-19病毒突变的猜测。
-
-“我们真的需要抵制这些奥运会。考虑道所有这些道德，伦理，种族灭绝问题。好吧，这是巨大的。那是一座山。你现在也遇到了一个问题，那就是我们正在把运动员送入一个病毒的热点区域。”有一种叫做出血热的东西出现在医院里。最糟糕的情况是，我想，一个新的突变已经发展成这种出血热。我们正在把我们的运动员送进去！
-
-- ** 01.19 ：**OANN: [研究表明，中共冬奥会应用程序存在安全漏洞](https://www.oann.com/olympics-chinas-mandatory-games-app-has-security-flaws-researchers-say/)
-
-
-根据加拿大研究人员周二发布的一份报告, 中共国为监测下个月北京冬奥会与会者的健康状况而开发的智能手机应用程序存在安全漏洞，使其容易受到隐私泄露和黑客的攻击。MY2022应用程序由北京组委会构建，主要用于在奥运会期间跟踪和共享运动员之间与COVID-19相关的医疗信息。
-
-多伦多公民实验室项目的研究人员表示，MY2022未能正确加密个人数据的传输，使其容易受到黑客的攻击。他们还发现，MY2022的隐私政策没有具体说明它将与哪些组织共享用户的信息。
-
-国际奥委会表示，它已经对申请进行了独立评估，没有发现任何”关键漏洞”。”在手机上安装’My 2022’并不是强制性的，”国际奥委会在一份声明中说。
-
-研究人员在iOS版本的应用程序中创建帐户后发现了该应用程序的缺陷。他们无法在Android版本中设置帐户，但表示MY2022的两个版本都存在安全漏洞。该报告称，MY2022未能验证SSL证书，这是验证网站身份和启用加密连接所必需的。黑客可以利用这一点将数据传输到恶意站点。未加密的数据在MY2022之前传输到”tmail.beijing2022.cn”。
-
-“这些数据可以被任何被动窃听者读取，例如在不安全的WiFi接入点范围内的人，操作WiFi热点的人，或互联网服务提供商或其他电信公司，”报告说。公民实验室表示，它已于12月3日向北京冬奥组委会通报了其安全问题，但尚未收到任何回应。该委员会没有立即回应路透社的置评请求。
-
-冬季奥运会将于2月4日开始。包括美国、英国、日本和澳大利亚在内的几个国家已经宣布，由于担心中共国的人权问题，对奥运会进行外交抵制。
-
-- ** 01. 19：**NEWSMAX: [参议员科顿：NBA应该就对维吾尔人的不当言论驱逐勇士队股东](https://www.newsmax.com/newsfront/uyghurgenocide-nba-sports-china/2022/01/18/id/1052932/)
-
-
-共和党参议员汤姆·科顿的办公室周二向Newsmax发表声明，呼吁NBA迫使金州勇士队股东Chamath Palihapitiya出售他在球队的股份，因为他周末对在中共国新疆地区发生的维吾尔族种族灭绝发表了不屑一顾的评论。
-
-据《纽约邮报》报道，Palihapitiya在他共同主持的”All-In”播客上表示，”没有人关心”对维吾尔族穆斯林的侵犯人权行为，并补充说这个问题对他来说”不是优先事项”。信奉”觉醒主义“的首席执行官Palihapitiya表示，没有人关心中国共产党对宗教少数群体的大规模奴役，酷刑和强奸，”科顿办公室的声明中写道。”他本人可能如此冷酷无情，以至于他不在乎种族灭绝，但美国人民却在乎。
-
-科顿补充说，联盟之前已经将有不当言论的球队股东赶出了联盟，他们应该对Palihapitiya应用相同的原则。”NBA曾经因为球队股东发表了令人发指的评论后对其展开调查，并强制其出售股份，它甚至曾经改变了全明星赛场地，以抗议北卡罗来纳州的一项法律，该法律规定男孩和女孩不应该使用同一个浴室。联盟将证明自己贪婪，无情和虚伪，如果它不迫使Palihapitiya出售他对勇士队的兴趣。
-
-据OutKick报道，科顿在最新周一的广播节目中抨击了NBA在中共国的商业利益以及联盟缺乏回应。”但他们知道，如果他们越过中国共产党，可能会威胁到他们进入中共国市场或廉价的中国人力，”科顿说。”所以，我不得不说，这个家伙在周末所说的话是华盛顿的经典失言。他没有说一些不是他心里想的话。他准确地说出了他心中的想法，以及许多这些自由派科技亿万富翁及其在华盛顿的朝臣的内心。”
-
-- ** 01. 19：**Zerohedge: [以色列研究发现，注射4针疫苗也无法避免感染新冠病毒](https://www.zerohedge.com/covid-19/fourth-covid-jab-wont-save-patients-being-infected-omicron-study-finds)
-
-
-以色列的最新研究似乎证实了怀疑论者长期以来的担忧：即使是两到三次加强针注射也不足以保护某人 – 即使是那些完全健康的人 – 免受omicron变体的感染。研究人员的结论于周一披露，发现两组在第四次注射后显示出抗体的”略微”增加，而不是在第三次注射后。不幸的是，产生的水平仍然不够高，无法防止通过omicron变体感染，这是造成大量新感染的原因。
-
-“尽管抗体水平增加，但第四针疫苗只能提供对病毒的部分防御，”领导该研究的医院感染性疾病部门主任Gili Regev-Yochay博士说。她说，这项研究发现”许多感染了并已经接种了第四剂疫苗的人”。”当然，比对照组少一点，但仍然有很多感染。
-
-“这些疫苗对以前的变体更有效，与Omicron相比，它们提供的保护更少，”Regev-Yochay博士补充说，疫苗”不够好”，无法预防不太严重的新变体的感染。
-
-该研究的数据尚未全部公布。但这足以引起人们对以色列决定成为世界上第一个开始向那些被认为最危险的人发出第二次加强针号召的国家的质疑。即使在公布了其结论之后，Sheba医院也呼吁”继续接种疫苗……即使疫苗不能提供最佳保护，防止感染该变体。
-
-世界卫生组织可能会不太高兴，因为该组织一再敦促发达民主国家放弃加强针运动，而是将更多的疫苗分配给疫苗接种率低的较贫穷国家。
-
-当地媒体报道说，Sheba医院受到政府的压力，要求他们发表声明，敦促以色列人在以色列高级官员不欣赏该研究结果的情况下继续注射第二针加强针。以色列卫生部部长Nahman Ash博士坚称，该国决定进行第二次加强注射并不是一个”错误”，而总理Naftali Bennett坚持认为，向一些以色列人注射第4次疫苗将继续帮助政府”保护公众健康”。
-
-# 更多要闻链接
-
-1. [通用电气在最高法院裁决后停止疫苗护照](https://www.breitbart.com/health/2022/01/15/general-electric-halts-vaccine-mandate-after-supreme-court-ruling/)
-2. [乐施会：冠状病毒在亚洲创造了20位”大流行亿万富翁”](https://www.breitbart.com/asia/2022/01/15/oxfam-coronavirus-created-20-pandemic-billionaires-in-asia/)
-3. [法拉奇预测”更多”中共国间谍将在威斯敏斯特被发现](https://www.breitbart.com/europe/2022/01/15/nigel-farage-predicts-many-chinese-spies-will-be-found-in-westminster/)
-4. [5G干扰问题迫使外国航空公司开始取消飞往美国的航班](https://www.dailywire.com/news/foreign-airlines-begin-canceling-flights-to-u-s-over-5g-interference-concerns-data-companies-respond)
-5. [世卫组织警告说，Covid大流行”远未结束”，尽管英国的病例继续急剧下降，但新的变体可能会出现](https://www.dailymail.co.uk/news/article-10415297/Covid-pandemic-near-new-variants-likely-emerge-warns.html)
-6. [拉斯穆森民调：大多数美国选民拒绝全球经济”大重置”的概念](https://www.newsmax.com/newsfront/rasmussen-global-economics/2022/01/18/id/1052886/)
-
-
-# 每日推特文摘
-
-
-
-中国的失业寒风吹进千家万户
-
-
-
-
-
-> 中国的失业寒风吹进千家万户 [https://t.co/fb4D665cdB](https://t.co/fb4D665cdB)
-> — 美国之音中文网 (@VOAChinese) [January 19, 2022](https://twitter.com/VOAChinese/status/1483610923029856256?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-对新冠病毒实验室泄漏说法的洗白是”科学的死亡”，发现”独特指纹”的教授说
-
-
-
-
-
-> COVID Lab-Leak Whitewash Has Been 'The Death Of Science' Says Professor Who Found 'Unique Fingerprints' [https://t.co/yxdVwtkZkP](https://t.co/yxdVwtkZkP)
-> — zerohedge (@zerohedge) [January 19, 2022](https://twitter.com/zerohedge/status/1483653021083086851?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-对不起，这太扯了。参议员马歇尔对汉尼提的重大启示是，福奇拥有包括中共国股票在内的共同基金股份？
-
-花了我3分钟才找到：马歇尔…也拥有一家投资中共国的共同基金—— American Funds Europacific Growth A （AEGPX）的股份。
-
-
-
-
-
-> I’m sorry, this is so stupid. Senator Marshall’s big reveal on Hannity is that Fauci owns mutual fund shares that include Chinese equity?
-> 
-> Took me 3 minutes to find: Marshall… also owns shares in a mutual fund that invests in China — American Funds Europacific Growth A (AEGPX). [pic.twitter.com/guSgAAZ2vb](https://t.co/guSgAAZ2vb)
-> — Tim Hogan (@timjhogan) [January 18, 2022](https://twitter.com/timjhogan/status/1483283885974818819?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-塔克·卡尔森对欧洲各地的疫苗护照抗议活动进行了出色的汇总，并在对荷兰哲学家的采访中清醒的指出：西方悲惨地堕落为彻底的暴政：”我们真的正在变成中共国。
-
-
-
-
-
-> Excellent compilation of vaccine passport protests across Europe from Tucker Carlson along with a sobering interview with Dutch philosopher [@EvaVlaar](https://twitter.com/EvaVlaar?ref_src=twsrc%5Etfw) on the West's tragic decline into outright tyranny: 👇
-> 
-> "We are literally turning into China." [pic.twitter.com/eSGm0SSQCb](https://t.co/eSGm0SSQCb)
-> — Scott Morefield (@SKMorefield) [January 19, 2022](https://twitter.com/SKMorefield/status/1483621846788542464?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-中共国是历史上全球贸易的最大受益者，而中共正在一步步终结全球化。拜中共所赐， 全球供应链永远无法恢复了。
-
-
-
-
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), history’s biggest beneficiary of [#trade](https://twitter.com/hashtag/trade?src=hash&amp;ref_src=twsrc%5Etfw), is taking steps that will end [#globalization](https://twitter.com/hashtag/globalization?src=hash&amp;ref_src=twsrc%5Etfw): [https://t.co/J4pPbXcQco](https://t.co/J4pPbXcQco). [@josh\_hammer](https://twitter.com/josh_hammer?ref_src=twsrc%5Etfw) [@NewsweekOpinion](https://twitter.com/NewsweekOpinion?ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [January 18, 2022](https://twitter.com/GordonGChang/status/1483463033582239745?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-今天，佩洛西购买并向政府工作人员提供了不安全的中共国制造的口罩，而不是从美国口罩制造商那里购买安全口罩。为什么？
-
-
-
-
-
-> Today Pelosi purchased and gave government workers unsafe China made masks instead of buying safe masks from USA mask manufacturers. Why? [https://t.co/VW0H3RqXno](https://t.co/VW0H3RqXno)
-> — PatriotsRock✝️LordsWarrior (@pstratton9) [January 19, 2022](https://twitter.com/pstratton9/status/1483662379535638534?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
- 
-
- 
-
-
-
- 
-
- 
-
-
-
- 
-
- 
-
-
-
- 
-
- 
-
-
-
-
-
-
-*编辑：天使在人间
-审核发布：文顾*
-
+*配图：东京樱花团设计组
+校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

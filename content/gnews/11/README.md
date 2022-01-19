@@ -2,27 +2,26 @@
 ---
 
 
-## 中共不放过小动物，香港发现仓鼠新冠将宰杀2000只动物
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1878917/)
+## 东京都中共病毒免费检测将延长至2月之后
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1878955/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-48.png)
-图片来源：6do.news
+作者：东京樱花团｜文小白
+![](https://lh4.googleusercontent.com/d2QLTBbhPrsULT1nY6jnLLbBZ7tL-vx7qVP1uVE6KTIDS3O27q6ItIuPQ0Ki3JMFLYR5n3ox-4O0bmWDPSMtp0Cg8l8sKH8snmBhq0kX7yypwOKCT4_qdHx6SdCKT8CmWzxxDXf0)[*图片来源*](https://img.kyodonews.net/chinese/public/images/posts/c2d84741a3dcc707d7df3c9a5f807aff/photo_l.jpg)
+据日本NHK 2022年1月19日13:43发布消息，为应对中共病毒（新型冠状病毒）感染的迅速蔓延，东京都政府决定将免费检测的时间延长至2月以后，任何人即使没有症状也可以免费检测。
 
-美联社1月18日报道，香港官员周二说，他们将宰杀2000只小动物，包括仓鼠，因为在宠物店有工作人员感染后检测出几个小动物新冠阳性。
+东京都政府已于上个月 25 日开始对中共病毒进行免费检测，任何人只要愿意，即使没有症状都可以申请免费检测。
 
-据农业渔业保护部门官员说，这个城市也将停止出售仓鼠以及停止进口一些小动物，该宠物店的店员周一新冠阳性是德尔塔变种，几只从荷兰进口的仓鼠也是新冠阳性。
+截至19日，在东京都的约260家药妆店和私人检查机构都可以接受免费检查。据都政府表示，希望接受免费检测的人仍有很多。
 
-据美国疾控中心说，动物并没有表现出明显的传播新冠病毒的迹象，但香港的官员说，他们不能除外动物和人传染的可能性。
+本次免费检测原定于本月31日截止，但由于疫情蔓延迅速，都政府决定免费将检测延长至2月以后。其目的是希望通过免费检测让人们知道自己是否被感染，并降低将病毒传播给周围人的风险。
 
-香港农业渔业保护局主任梁兆辉说： “ 所有的宠物拥有者均必须保持良好的个人卫生，当你接触动物和食物后，就娶清洗你的手，不是去亲宠物。”
+希望在日外籍人士都能有效的利用东京都政府的此项措施，管理好自己的身体状况，降低感染和传播的风险。
 
-他们正在追踪1月7号后从这家宠物店买的仓鼠，并要求强制隔离，并将仓鼠上交政府处理。香港所有宠物店约有2000只小动物，包括仓鼠和毛丝鼠，将被人道处死。
+消息来源：[**東京都 新型コロナ無料検査 2月以降も延長へ 感染急拡大受け**](https://www3.nhk.or.jp/news/html/20220119/k10013438261000.html)
 
-##### **新闻来源： **[Hong Kong to kill 2,000 animals after hamsters get COVID-19](https://apnews.com/article/hong-kong-covid-hamsters-animals-75f2d3507bdb8255cd2aee79e962fc35)
-
-# ** **
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
