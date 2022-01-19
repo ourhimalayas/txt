@@ -2,16 +2,31 @@
 ---
 
 
-## 狮城快讯：新加坡金管局要求关停加密货币ATM机
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1879873/)
+## 德国总理会见北约秘书长 呼吁缓和俄乌局势
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1879877/)
 
-**撰稿：小坡**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-19-203248.jpg)
-据媒体报道，新加坡金融管理局 (MAS) 在本周一宣布了新的指南，为了进一步限制了加密货币的消费者广告，作为数字代币交易的一个便利平台，加密货币自动柜员机 (ATM) 可能会误导公众“一时冲动”进行加密货币的交易，因此金管局要求所有加密货币自动柜员机都要停止运营。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-加密货币 ATM 机使用户能够用法定货币或政府发行的货币交易比特币和以太币等数字支付代币 (DPT)。目前最大的加密货币 ATM 运营商 Daenerys & Co 已关闭其所有ATM机。Daenerys & Co公司表示，这令人惊讶，但为了遵守突然的公告，该公司已经停止了五台 ATM 提供买卖服务，同时也在寻求 MAS 的进一步澄清。 另一家加密货币 ATM 运营商 Deodi Pte 在其网站上表示，也已经按照金管局的指南关闭了其唯一的 ATM机。
+整理：Eileen（围剿维尼熊）
+编辑：木木木mmmmm
 
-很多普通人购买加密货币都很盲目的，贪图暴利，不懂背后的金融骗局。我们的战友可以多向周围朋友介绍喜币的特点和无以伦比的可靠性和独特设计，以及引领虚拟货币规则游戏的巨大潜力，让他们做好KYC，成为喜马拉雅生态圈的一员，使我们的喜币喜支付可以让更多人受益，从而加入新中国联邦的队伍中来。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642595328071.jpg)图片来源：雅典娜设计组
+
+
+【凤凰新闻】当地时间1月18日，德国总理朔尔茨在柏林会见北约秘书长斯托尔滕贝格，双方就俄罗斯与乌克兰的冲突等问题交换了意见。双方一致认为必须尽一切努力阻止俄罗斯和乌克兰发生军事冲突。
+
+朔尔茨在会后的新闻发布会上表示，希望俄罗斯能够缓和局势，包括减少在乌克兰边境的驻军等。同时警告俄罗斯应注意可能引发的严重政治、经济和金融后果，称如果俄罗斯对此置若罔闻，那么德国不排除对“北溪-2”天然气管道项目实施制裁的可能。
+
+参考链接：[https://i.ifeng.com/c/8CuvkTGEGWL](https://i.ifeng.com/c/8CuvkTGEGWL)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

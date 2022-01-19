@@ -2,36 +2,71 @@
 ---
 
 
-## 泽连科医生指出 接种疫苗将造成民众死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880283/)
+## 01/19/22 香港快讯 梁天琦凌晨出狱 facebook发帖报平安
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1880353/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/泽连科.jpg)
-泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
+搜集/整理：卡西欧
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0119fenmian.jpg)
+封面素材：独立媒体
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-19-at-8.54.03-AM.png)
+**1. ****钟剑华执笔****6****年专栏被叫停****   ****吁港人继续追求「货真价实的民主」**
 
-此外，泽连科医生还提到，在接种过中共病毒疫苗的短期内，年轻的接种者或将因此产生心肌炎而住院，其中，妊娠初期的女性接种者还有极高的概率出现流产现象。
+[据【大纪元时报】01月19日讯，香港民意研究所副行政总裁、学者钟剑华今日（19日）在《AM730》写了6年的专栏，以〈告别篇：继续追求「货真价实的民主」〉正式告别读者，并勉励读者「无论空间如何收窄，社会如何反智，让我们大家继续努力追求文明发展，继续为建设货真价实的民主努力。」有指钟剑华是于上周四（13日）被通知其专栏会被暂停，钟剑华在其社交媒体专页上说对此感到可惜。](https://hk.epochtimes.com/news/2022-01-19/52753106)
 
-至于中长期的疫苗不良反应，泽连科医生补充道，中共病毒疫苗会提高接种者自体免疫疾病的发生概率，并增加他们患癌的风险。同时，女性接种者会出现卵巢不育或孕育功能障碍，而男性则会出现精子数量减少的现象。
+[钟剑华回应传媒查询时指，对专栏暂停感可惜，因为过往报章百花齐放。钟剑华又在其Facebook发文，指「合理的政策当然离不开文明的发展观，离不开民主开放的体制。」钟剑华认为自己偶尔会触及政治议题，但并没有太多。自己上周四晚知道专栏要暂停，原已构思到二月底的题目，仍会继续完成，稍后在Facebook发布。](https://hk.epochtimes.com/news/2022-01-19/52753106)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-19-at-8.54.15-AM.png)
+**2. ****梁天琦凌晨出狱**** facebook****发帖报平安**
 
-泽连科医生最后提出，中共病毒疫苗带来的最大隐患则为接种者在三个月到三年间出现的亚急性抗体依赖增强作用现象。当个体受到具有相似抗体的病毒攻击时，疫苗将造成接种者快速死亡。
+[【独媒报导】前本土民主前线发言人梁天琦，因参与2016年旺角骚乱判监6年，今刑满出狱。他今日5时30分于专页发文，表示已在今晨获释，平安返回家人身边，又透露按法定要求，获释后须遵守监管令，会「离开镁光灯的焦点」，停用社交媒体及谢绝传媒访问。](https://www.inmediahk.net/node/社運/梁天琦凌晨出獄-facebook發帖報平安)
 
-参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+[据《香港01》报导，梁天琦今日凌晨约2时40分，由七人车接送离开石壁监狱。](https://www.inmediahk.net/node/社運/梁天琦凌晨出獄-facebook發帖報平安)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[梁的家人昨透过梁的社交专页表示，梁获释在即，吁公众「恳请让天琦尽早归家团聚」，以及「盼各位以自身安全为首」，亦表明社交专页会停止运作及移除所有内容。该专页今日（19日）凌晨关闭后，一度重开发出上述报平安帖文，惟约30分钟后再次关闭。](https://www.inmediahk.net/node/社運/梁天琦凌晨出獄-facebook發帖報平安)
 
-总编: Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+[梁天琦在2015年加入黄台仰创立的「本土民主前线」，翌年2月参加立法会新界东补选，以「光复香港、时代革命」为竞选口号，取得6.6万票，同年报名参选立法会换届选举遭DQ。他因参与2016年农历新年旺角骚乱，在2018年6月被裁定暴动及袭警罪罪成，判处6年监禁，上诉亦遭高等法院驳回，于石壁监狱服刑至今。](https://www.inmediahk.net/node/社運/梁天琦凌晨出獄-facebook發帖報平安)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-19-at-8.54.24-AM.png)
+**3. ****特首选战｜「蓝营****KOL****」冼国林宣布参选**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[据【大纪元时报】01月19日讯，「蓝营KOL」冼国林今日宣布参选特首，是首个宣布竞选下届特首的人士。](https://hk.epochtimes.com/news/2022-01-19/4584306)
+
+[冼国林今日在网上发表约9分钟的竞选宣言，并配上简体字的字幕。他的竞选口号是「忠诚坦荡，仗义担当，不患得失，赤诚报港。](https://hk.epochtimes.com/news/2022-01-19/4584306)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-19-at-8.54.36-AM.png)
+**4. ****警队去年招聘****542****人****   ****尚有****5706****个空缺**
+
+[据【星岛网】01月19日讯，保安局局长邓炳强表示，截至去年底，警务处本年度有5706个职位空缺，较上一年度5,258个，增加近一成。](https://std.stheadline.com/realtime/article/1800276/即時-港聞-警隊去年招聘542人-尚有5706個空缺)
+
+[邓炳强书面回覆立法会议员提问时指出，警方去年底已招聘119名督察级人员及423名员佐级人员，而截至去年底，本年度督察级和员佐级的职位空缺分别有484个及5,187个，即共达5,671个，较上年度多约一成。](https://std.stheadline.com/realtime/article/1800276/即時-港聞-警隊去年招聘542人-尚有5706個空缺)
+
+[邓炳强指，公务员事务局于2018年7月推出「选择延迟退休方案」，警队人员可选择延至60岁退休，另为应付行动需要及长远人手挑战，警队于去年2月推出「超过订明退休年龄的警务人员继续服务计划」，让2000年6月1日前入职政府的非首长级警务人员，延长服务至60岁。透过上述两项挽留人才策略，相信警队可在未来10多年间挽留超过1.7万名警务人员。](https://std.stheadline.com/realtime/article/1800276/即時-港聞-警隊去年招聘542人-尚有5706個空缺)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-19-at-8.54.47-AM.png)
+**5. ****美国商会调查指旅游限制成最大关注****   4****成受访者考虑离港**
+
+[据【星岛网】01月19日讯，新冠肺炎疫情持续，香港与内地及国际恢复通关遥遥无期，据香港美国商会的调查显示，国际旅游限制是在港美国企业最关切议题。](https://std.stheadline.com/realtime/article/1800278/即時-港聞-美國商會調查指旅遊限制成最大關注-4成受訪者考慮離港)
+
+[商会于去年9月至10月期间进行商业前景调查，访问了262名企业代表及个人会员，结果显示，有60%受访者指旅游限制是最大的商业挑战，其次是约44％的受访者强调美中关系。](https://std.stheadline.com/realtime/article/1800278/即時-港聞-美國商會調查指旅遊限制成最大關注-4成受訪者考慮離港)
+
+[此外，有逾40%受访者指，基于旅游及社交限制措施，可能会离开香港，而逾25%企业指可能离开香港。如果人才流失，预计新加坡势必成为一个主要受益者，80％的受访者选择新加坡是香港的最大竞争对手。](https://std.stheadline.com/realtime/article/1800278/即時-港聞-美國商會調查指旅遊限制成最大關注-4成受訪者考慮離港)
+
+[美国商会会长早泰娜周表示，许多受访者认为，香港政府似乎并不关心香港作为国际金融中心的地位。](https://std.stheadline.com/realtime/article/1800278/即時-港聞-美國商會調查指旅遊限制成最大關注-4成受訪者考慮離港)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-19-at-8.54.56-AM.png)
+**6. 68%****十二岁或以上学生接种最少一剂疫苗**
+
+[据【Now新闻台】01月19日讯，教育局指截至本月5日，近七成12岁或以上学生已接种最少一剂新冠疫苗。当局亦正计划到校为5至11岁学童接种疫苗，详情会尽快公布。](https://news.now.com/home/local/player?newsId=463707)
+
+[教育局局长杨润雄回覆立法会议员书面质询，指截至本月五日，至少接种第一剂疫苗的12岁或以上学生有六成八，学校教职员接种率约为九成五。到本月初，全港近400间中学已符合疫苗接种要求申请全日面授上课，当中183间中学是申请全校全日上课。](https://news.now.com/home/local/player?newsId=463707)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-19-at-8.55.06-AM.png)
+**7. ****云顶香港已提交清盘呈请**
+
+[据【香港电台】01月19日讯，邮轮运营商云顶香港公布，于百慕达时间星期二向当地最高法院提交清盘呈请书，寻求命令授权联席临时清盘人，促请及协助公司拟定及提出财务债务重组，预计法院于百慕达时间星期四审理有关呈请及联席临时清盘人的单方面聆讯。](https://news.rthk.hk/rthk/ch/component/k2/1629521-20220119.htm?spTabChangeable=0)
+
+[公告提到，依据公司现金流量预测，可动用现金结余预计于本月底或前后耗尽，即将无法偿还到期债务。](https://news.rthk.hk/rthk/ch/component/k2/1629521-20220119.htm?spTabChangeable=0)
+
+[董事会认为，为尽量提高财务重组的成功机会，并暂停任何无担保债权人索赔，避免公司无秩序清盘，任命联席临时清盘人属必要，亦符合公司、股东及债权人利益。](https://news.rthk.hk/rthk/ch/component/k2/1629521-20220119.htm?spTabChangeable=0)
+
+云顶香港昨日早上9时起暂停股份买卖。
+
+校对 / 封面合成：文粤 / 发布：流光飞舞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
