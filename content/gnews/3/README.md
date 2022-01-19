@@ -2,40 +2,48 @@
 ---
 
 
-## 有声|中共多地要求低风险返乡民众集中隔离自费食宿
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878732/)
+## 司法部受到压力，要求终止旨在打击间谍活动的倡议
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878760/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+评论：*这个所谓“籍华人联合会”已是众所周知的中共海外间谍机构，现在这帮人跳出来嚷嚷美国的反间谍活动，说明中共被打到痛处了。结合最近英国李真局事件，是否意味着，美国和欧洲要开始清理中共在间谍情报领域的渗透力量了？*
 
+据《福克斯新闻》 作者：[David Spunt](https://www.foxnews.com/person/s/david-spunt)，2022年1月13日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1475.png)2022年1月5日，在美国国会大厦遇袭一周年之前，司法部长梅里克-加兰在华盛顿特区的司法部发表讲话。(CAROLYN KASTER/POOL/AFP via Getty Images)
+司法部受到压力，要求终止旨在打击间谍活动的“中国倡议”。
 
+华盛顿-司法部长梅里克-加兰正受到来自全国各地学术界越来越大的压力，要求结束“中国倡议”，这是司法部在2018年成立的一个项目。它的目的是对抗中共的间谍活动。
 
-1月17日，“开封一刀切”的微博话题被顶上墙内热搜。
+抗议者本周站在司法部外面，要求结束这个已有三年历史的项目。
 
-据了解，河南省开封市17日突然宣布了一条最新的防疫政策，要求来自郑州低风险地区的返乡人员也需进行14天的集中隔离并自费食宿。这条“一刀切”式的政策当即引起了大量需要双城生活的民众的强烈抗议。
+“停止我们所知的‘中国倡议’。抓住间谍，而不是美籍华人科学家。”美籍华人联合会主席薛海平告诉福克斯新闻。
 
-但是，开封市政府的这一“霸王条例”并非个案。近期，中共国内的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都纷纷出台政策，要求来自低风险地区的返乡人群必须进行集中隔离，并为自己隔离期间产生的一切费用买单。
+尚未作出决定的加兰于10月27日在国会山作证，谈到了中共政府的间谍活动。
 
-原文链接：[中共多地要求低风险返乡民众集中隔离自费食宿](https://gnews.org/zh-hans/1873830/)
+“中（共）国是对我们的知识产权的一个严重威胁。他们在间谍活动方面代表着一个严重的威胁。”加兰说。
 
-音频处理/发稿：Daxia
+就在本周，192名耶鲁大学教授联名写了一封给加兰的信并，认为该战略包含“根本性的缺陷”，在许多方面都有问题，包括种族定性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+“没有开放的科学和国际合作，美国的科学和技术只能受到影响，而且会造成人才流失。”亚太裔美国人正义组织的杰里米·吴告诉福克斯新闻。
 
-**更多资讯，更多关注**
+国家安全和执法官员都坚持认为，这一有争议的举措是为了阻止中工政府的伤害，简单明了。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“中（工）国正在向我们逼近。他们已经达到了我们经济规模的75%，甚至80%，他们这样做的方式是他们开发的更好的技术，也是他们窃取的技术。”中国问题专家迈克尔·皮尔斯伯里告诉福克斯新闻。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+加兰呼吁对司法部与中共政府打交道的方法进行审查。他的发言人说，这一审查应在未来几周内完成。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+文章来源: [https://www.foxnews.com/politics/justice-department-china-initiative-doj-espionate-pressure](https://www.foxnews.com/politics/justice-department-china-initiative-doj-espionate-pressure)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 –Milojai
+评论：洛杉矶盘古农场 –柯镇恶
+编辑：洛杉矶盘古农场 –柯镇恶
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
