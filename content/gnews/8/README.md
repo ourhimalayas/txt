@@ -2,20 +2,36 @@
 ---
 
 
-## 马来西亚前足球运动员在接种疫苗后暴毙
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1878453/)
+## 有声|中共病毒疫苗被质疑按毒性水平标注批次
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878532/)
 
-采编：风云小哥         编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image.jpeg)
-据美国媒体【网关专家】1月16日报道，马来西亚前国家队足球运动员辛格于本月12日在自家附近骑自行车时因心脏病突发而不治身亡。据悉，这位现年61岁的前国家队球员在5天前刚接受了“新冠病毒”疫苗加强剂的注射。目前还没有关于他具体接种哪家疫苗的详细信息。
+配音：香草山农场 – 纳米
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月14日，外媒报道，对美国公共数据的分析显示，因接种中共病毒“实验性”疫苗，而导致不良反应的事件，与部分批次的疫苗含有高剂量致命毒素有关。
 
-报道称，尽管该球员家属极力公开声明，辛格的死因与其接种的疫苗无关，但医生的死亡报告则显示，受害者虽无任何过敏反应迹象，其他主要器官亦完好无损，但其三个冠状动脉因不明原因被严重阻塞而致使其突然暴毙。 至于最终是否由于疫苗加强剂所造成的心脏病发作，由于当局目前已立即停止了进一步的相关调查，因此结果将不得而知。
+去年11月，有研究人员从美国的疫苗不良事件报告系统（VAERS）中提取数据，并发现，中共病毒疫苗在每200批次，就有一批含有高毒性。据分析师称，这些含有剧毒的疫苗，分为不同的批次，甚至根据毒性高低标记为不同的标签。目前高毒性批次已被广泛分散到美国各州。这可能严重违反了要求此类产品具有一致性的联邦法规。
 
-校对编辑：硫酸羟氯喹64
+原文链接：[中共病毒疫苗被质疑按毒性水平标注批次](https://gnews.org/zh-hans/1871830/)
 
-发稿： 苦尽甜来 (文來）
+音频处理/发稿：Daxia
 
-[原文链接](https://www.thegatewaypundit.com/2022/01/new-normal-former-malaysian-professional-football-player-dies-heart-attack-5-days-receiving-covid-19-booster-shot/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

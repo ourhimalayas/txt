@@ -2,33 +2,49 @@
 ---
 
 
-## 中共国人口增长持续放缓，实际就是人口负增长
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1877882/)
+## 郭先生深度解析：黑暗即将到来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877956/)
 
-#### **【雅典娜观察】和您一起洞察世界**
-
-整理报道：入选文家
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WXXLSMYD3NQ@AMO343.png)图片来源：墨尔本雅典娜农场设计组
+作者：银河系农场—骄子
 
 
-当地时间1月18日，据墙内媒体报道，中共国国家统计局人口和就业统计司司长王萍萍发布文章称，2021年人口自然增长率为0.34‰，比2020年下降1.11个千分点。她表示，由于出生人口继续减少导致人口增长持续放缓，**潜台词就是实际人口已经负增长，因为除了正常出生还有正常死亡人口。**
 
-王萍萍认为是两方面原因，一是育龄妇女人数持续减少。2021年15—49岁育龄妇女比2020年减少约500万人，其中21—35岁育龄妇女减少约300万人。二是生育水平继续下降。受生育观念转变、初婚初育年龄推迟(10年推迟约2岁)等多方面的影响，2021年育龄妇女总和生育率继续下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-2021年郑州水库开闸泄洪制造人祸；各地中共病毒清零政策，封城导致病死饿死不计其数；疫苗灾难爆发，各地医院心血管疾病大爆发，各种突发梗死和出血热，殡仪馆火葬场“熙熙攘攘”。中共的造假局永远不会告诉人民真实的数据，一切服务于统治需要。爆料革命就是要不断揭开中共的伪装，让真相大白于天下。
 
-**参考新闻**: [国家统计局：2021年21至35岁育龄妇女减少约300万人](https://m.chinanews.com/wap/detail/chs/zw/9655014.shtml)
 
-***发布：***tianzhihuan
+时隔五年，郭文贵先生再次提及，自己2017年曾经告诫过西方“黑暗即将到来”，这句话的真正意思是什么，下面交给郭先生来解答：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+另外，郭先生还强调，爆料革命坚持“以法灭共”的重要意义，让中国人拥有独立的司法体系，目的是希望共产党对郭先生造成的伤害不会再在其他人身上重演。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.3-1.jpg)
+参考信息：
+[1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统；我们要以法灭共，让中国人有独立的司法系统；如果不为之奋斗，大家也会像七哥一样被中共迫害！](https://gettr.com/post/poydelb8d2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：飞虹
+编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
