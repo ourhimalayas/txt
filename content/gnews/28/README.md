@@ -2,28 +2,44 @@
 ---
 
 
-## 日本政府计划暂停疫苗和检测均可制度
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1878653/)
+## 有声|为缓解经济下行压力 中共央行宣布降息
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878660/)
 
-#### 撰稿：日本东京方舟农场  海星
+配音：香草山佛教部 – 李傻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/A5BE8D84-6F37-4D04-8F66-3EA5F82C2B5E.jpeg)（图片来源：美联社）
 
-1月17日，鉴于日本出现了多宗接种两剂疫苗后仍然感染中共病毒奥密克戎的病例，日本政府计划暂停疫苗和检测均可制度。
 
-据《共同社》报导，日本政府当日计划暂停正在实施的疫苗和检测均可制度，预计最快19日在基本应对方针小组会上就此做出最终决定。由于奥密克戎毒株传染性强，并且出现了许多接种两剂疫苗后仍然感染的病例，全国知事会和专家强烈要求政府调整该制度。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-报导指出，疫苗和检测均可制度于去年11月开始实施，规定民众只有通过接种两剂疫苗或检测阴性证明才能参加多人活动以及在外聚餐，旨在限制民众的自由行动，并诱导其接种疫苗。
 
-*参考链接：[独家：日本政府拟暂停“疫苗和检测均可制度”](https://china.kyodonews.net/news/2022/01/fafd27e876db.html)*
 
-* * *
+1月17日，为缓解经济下行压力，中共央行对中期贷款进行了自2020年4月以来的首次降息。
 
-*素材采编：海星*
+中国人民银行表示，将把价值7000亿元人民币的一年期中期贷款利率从之前的2.95%降至2.85%，降低10个基点，公开市场逆回购操作的利率也下降10个基点，降至2.1%。
 
-*编辑：文顺*
+自中共病毒爆发以来，中共国的经济发展明显放缓，房地产开发商财务状况的恶化和中共病毒变体的迅速传播更给经济前景蒙上了阴影。
 
-*发布：miumiu*
+原文链接：[为缓解经济下行压力 中共央行宣布降息](https://gnews.org/zh-hans/1873832/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
