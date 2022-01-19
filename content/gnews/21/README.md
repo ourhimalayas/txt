@@ -2,22 +2,47 @@
 ---
 
 
-## 嘉宾喜安娜和七哥关于记忆力对话（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877932/)
+## 中共冬奥会确定不公开售票
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877949/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：纽约香草山教育部 – Naughty(文行)
 
-我从小到大，我受过很多苦。我就告诉我，怎么能把一件事做好？怎么能让我不犯这个错误，我骨子里边儿我就恨同样的错误犯第二次的人。还有一个我觉得浪费时间这件事，我经历了，我忘掉了， 我饶不了我自己，我无法原谅我自己。我为什么我经历过这事，我会忘掉。我娘老说是记吃不记打的人啊，这人是不会有出息的。我既要记住吃，我也要记住打。我当然不会在同一个地方摔两次，我更不能让它摔三次是吧？我在我生命时间所有的生命时间每天每个人都是24小时，不管是圣 诞老人，还是总统，还是孩子，你不能虚度时光。还有一个我认为做不好的事情就不要做，千万别做那种事儿。从小我母亲，我父亲，我现在也想说，如果一件事儿你做不好，你再做另外一件事， 你是永远什么事儿都做不好。所以我从爆料革命到现在，我就说千招会不如一招绝。你小王子踹电源的事情，如果他能踹出水平来，在今天他能在这个屋里踹，要能隔空踹，那么就更厉害了嘛，咱把共产党中南坑的电源就一脚给踹了，咱爆料革命不就赢了嘛。什么事儿你干熟了，一招会一招绝， 比你万招会能得多，所以我就进了这根筋了，啥事我就认真。谈恋爱我也认真，不娶你七婶绝不拉倒。当然我让我娘去给说媒的时候，她妈说了我闺女烂在家里都不会嫁给你郭七儿。回来以后， 我告诉我娘，我说我不娶她家岳庆芝，我不叫郭七儿，最后追到手。而且他们家人都认为我娶了这个媳妇儿，过不了一年，要么我被枪毙了，要不然我就抛弃她了，反正是没未来。3年没让她进娘家呀。我们这俩孩子生出来都不让回娘家。还有她家人还曾经试图把她弄过去，埋到坑里就埋死她。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾喜安娜和七哥关于记忆力对话（二）-.jpg)
-*发布：*tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+中共冬奥组委会17日发布消息指，本届冬奥会将不会面向境外观众售票，仅对境内符合疫情防控相关要求的观众售票。另外，门票的订购方式由原来的公开销售调整为定向组织，获得入场观赛资格的观众必须在观赛前、观赛中、及观赛后都严格遵守疫情防控的相关要求。
+
+中共冬奥组委会发言人表示，组委会已于1月4日启动闭环管理试运行，1月23日正式闭村，27日开村，在闭环试运行期间，预计有大约 3,000 名境内外人士来华实地开展工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-293.jpg)
+参考信息：
+[北京冬奥不公开售票定向组织观众现场观赛](https://cj.sina.com.cn/articles/view/3121600265/ba0fd709001017sgs)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：飞虹
+编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

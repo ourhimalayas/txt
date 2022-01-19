@@ -2,22 +2,51 @@
 ---
 
 
-## 嘉宾喜安娜和七哥关于记忆力对话（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877945/)
+## 河南本轮疫情本土确诊病例超过900例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877951/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：首尔天池农场 -追着曙光跑
 
-你想多恐怖？我们过了36年了，我用一生来证明了我的爱是真实的。我要做的事一定会做到的，而 且我当时说要孩子的时候，我跟我嫂子说我要一儿一女，我嫂子笑得不得了，她就说你怎么会有孩子啊？现在我的孩子都很优秀。这个世界上实力很重要，行动很重要。所以这生活中，你像我们Kate今天的信号老是不好，但是考上大学了是吧？你看我这信号老好，我连高中都没上，所以现在你们这一代人啊，最大的问题就是生活中没程序，你们这代人到时候生活中是屋里边儿脏乱差。小 王子，走到哪儿都踹电源，是吧？啥事都做得很好，一脚把电源给踹了成为经典的错误，是吧？ 所以说孩子们，你们几个你自己眼前的事儿，自己的生活都照顾不好，你想干什么大事都不可能。 就像我今天换衣服，我可以换一套啊。像你们看到海外民运，一年就穿一双鞋，35美金标价，四代四美金打折的鞋一年四季就那一双，美国叫爷爷鞋是吧？他一年都穿一双鞋，你觉得内裤能换几次？ 是吧。牙不刷，脸不洗。华盛顿我去开庭的时候，发现熊宪民还带个腰包，还系了一个那个狗围巾， 就是像Snow戴的一个围巾，围巾挂在这儿，要装作时尚，结果这边胡子刮了，这边胡子没刮，就是这边顺手是右手刮了胡子，左手这边没刮。你觉得这人上法庭作证，法官能相信他吗？陪审团能信他说的话吗？他一上去，法官就看他，他还没说话，法官就说Stop, Stop。你就想一想，一个人穿衣服都不能认真穿，穿给你自己的，不是穿给别人。今天你们每个人都是精心打扮后上来的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾喜安娜和七哥关于记忆力对话（三）-.jpg)
-*发布：*tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+中共官媒1月18日报道，截至1月18日零时，河南全省新增本土确诊病例102例。其中，郑州市4例，安阳市94例，许昌市4例；没有新增无症状感染者和疑似病例。
+
+同时，安阳市公布34名确诊病例轨迹，其中30人为汤阴育才学校学生。这些确诊患者均已闭环转运至定点医院。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.1-5.jpg)
+最新统计显示，自2021年年底本轮疫情开始，截至2022年1月16日24时，河南本轮疫情累计报告本土确诊病例已突破800例。加上昨天的102例，到1月17日24时，河南本轮疫情本土确诊病例已突破900例。
+
+与此同时，河南各地防控措施越发严格，安阳市封控区内的所有社区（村）都实行了封闭管理。
+
+参考信息：
+1. [“两毒并发”已致河南确诊病例超800例 多名专家谈如何“双线作战”](https://k.sina.cn/article_1893801487_70e11e0f04001bdib.html?from=news&amp;subch=onews&amp;wm=3200_0024)
+2. [河南1月17日新增102例本土确诊病例 其中安阳市94例](https://news.sina.cn/gn/2022-01-18/detail-ikyamrmz5829483.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
