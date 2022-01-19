@@ -2,18 +2,37 @@
 ---
 
 
-## 【粤语配音】2022年1月17日：太平联盟官司100%会赢（上）
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1877427/)
+## 芬兰允许伊维菌素用于治疗中共病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
 
-紐約香草山-香港部
+#### 撰稿：日本东京方舟农场 JIHO
 
-今天这个案子到这个时候，最终我们是100%羸的，一点都不用怀疑，但这个赢之前我们要付出很多代价，甚至把七哥，利用各种什么藐视法庭（罪名）逮捕，这些从第一天开始就是它的目的，逮捕你、羞辱你，然后把你更多的资产连一起给你抢走，利用它（案子）来摧毁Ｇ系列等都会做，但是现在有两个事实是绝对的100%的铁上钉钉的，第一最终我们会赢，就是在赢在程序正义还有整个证据的，证据上最后的完善，结果是真的假不了，假的真不了，肯定没这个事。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
 
-就是美国最终司法没有任何选择，一定会给这个案子一个最后的真相，公平的真相，现在美国的法律被人家操纵被人家强奸，我们要替他利用这个案子，找回他的力量，找回他应有的公平，这是一点都不用怀疑的，第二个现在这次媒体上，已经关注了将近一年多时间，包，要拍电视剧的，包括要这个连续报道的，然后美国司法部一定会调查，国会一定会调查，就是单伟建和Edward Moss等，以及包括在BVI未来的勾兑和钱来钱往，它盖不住、它铲不平的，最终一定会把（共产党）在西方。包括在BVI外的政治勾兑、利益输送，查的清清楚楚。
+1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
 
-你会发现一个最有趣的事情，太平联盟的案子和Higginbotham的案子，Joe Lou的案子、Bruno Wu的案子，博讯的案子、熊宪民的案子，什么夏业良、郭宝胜的案子，所有的案子 包括吴征诈骗，还有腾讯音乐，还有Digital Group，全部会放在一起，美国司法部会做出调查，哇..原来就是这三、四个人，还有这一笔钱搞的这些事情最后大白于天下。
+日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
 
-美国会让你看到，彻底清除共产党在美国司法部门渗透、蓝金黄的黑暗力量，同时惩罚那些收了黑钱泯灭良知的人，还有最后就是新中国联邦在美国，成为一个正义的英雄的力量，成为一个真正的传奇，拍成电影和电视剧。
+此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
+
+不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
+
+对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
+
+*参考链接：*
+
+1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
+2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
+3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
+
+
+* * *
+
+*素材采编：JIHO*
+
+*编辑： 文顺*
+
+*发布：miumiu*
 
  
 

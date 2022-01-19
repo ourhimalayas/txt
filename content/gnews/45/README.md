@@ -2,38 +2,34 @@
 ---
 
 
-## 芬兰允许伊维菌素用于治疗中共病毒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
+## 不完全财务披露福奇千万美元投资
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875788/)
 
-#### 撰稿：日本东京方舟农场 JIHO
+作者：加拿大温哥华扬帆农场 Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《纽约邮报》1月16日报道，新发布的记录显示，截至2020年底，福奇和妻子有1040万美元投资，包括230万美元的未实现收益，分别持有在各种共同基金中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.50.png)
+参议员罗杰-马歇尔（R-Kan）周五晚上公开发布了福奇2020年的财务。在周二的参议院程序中，他询问了福奇财务状况，福气当时低声骂他 “蠢货”。福奇2020年工资是43万4千312美元，2021年和2022年的工资仍未被公布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
+保守派非营利组织 “司法观察”(Judicial Watch)于2021年10月，起诉美国卫生与公众服务部，要求提供与福奇财务事务有关的文件。根据法庭文件规定，HHS已经提议从2月1日开始每月发布。美国参议院共和党籍参议员兰德保罗曾在去年7月2日，在法庭听证会质询福奇，武毒所病毒研究是否得到美国政府机构资助时，福奇还反唇相讥地说保罗才是谎言制造者。
 
-1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
+司法观察组织主席托马斯-费顿指责美国国立卫生研究院，对福奇的记录玩了一个 “空壳游戏”。福奇在美国人眼前撒谎，还有NIH对公众获得其财务信息设置障碍，说明他们在掩盖事实。随着事件的进展，福奇与大药厂以无数生命为代价的金钱交易，将一一呈现。
 
-日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
+参考链接：[Dr. Anthony Fauci’s financial disclosure shows $10.4M in investments](https://nypost.com/2022/01/15/dr-faucis-financial-disclosure-shows-10-4m-in-investments/)
 
-此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
+总编：Zion文恩
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
-
-*参考链接：*
-
-1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
-2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
-3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
-
-
-* * *
-
-*素材采编：JIHO*
-
-*编辑： 文顺*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

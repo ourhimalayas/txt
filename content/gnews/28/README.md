@@ -2,33 +2,30 @@
 ---
 
 
-## 中共国人口增长持续放缓，实际就是人口负增长
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1877882/)
+## 原中泰策略首席陈龙被抓，或涉嫌操纵证券
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877872/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-25.jpg)原中泰策略首席陈龙被抓，或涉嫌操纵证券 网络图片
+据网易新闻1月18日报道，因涉嫌操纵证券及内幕交易，原中泰证券研究所首席策略分析师陈龙被抓。其证券执业证书已被注销，由徐驰接任中泰研究所策略负责人。
 
-整理报道：入选文家
-编辑：文泓
+陈龙之前有9年的证券从业经验，2019年3月加盟中泰证券股份有限公司。2021年5月9日，私募大佬叶飞微博举报股市暗箱操作。即以所谓的“市值管理”名义，联合游资和机构炒作股票。2020年9月至2021年5月，史某等团伙控制数十个证券账户，违法操纵股价，交易金额达30多亿，叶飞等人目前已经伏法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WXXLSMYD3NQ@AMO343.png)图片来源：墨尔本雅典娜农场设计组
+中共没有真正的经济，中共的股市充斥着虚假和欺骗。中共操纵股市就是为了洗钱和抢劫老百姓的财富。大鱼吃小鱼，小鱼吃虾米，最后被吃的都是小散户老百姓。在股市崩盘之前，中共早已经脱身，把钱藏到海外。只有推翻中共，才能够找回被抢走的财富。
+
+新闻参考链接：[https://c.m.163.com/news/a/GTVOVGR300018AP2.html?spss=newsapp](https://c.m.163.com/news/a/GTVOVGR300018AP2.html?spss=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-当地时间1月18日，据墙内媒体报道，中共国国家统计局人口和就业统计司司长王萍萍发布文章称，2021年人口自然增长率为0.34‰，比2020年下降1.11个千分点。她表示，由于出生人口继续减少导致人口增长持续放缓，**潜台词就是实际人口已经负增长，因为除了正常出生还有正常死亡人口。**
+编辑：【英国伦敦喜庄园编辑部】
 
-王萍萍认为是两方面原因，一是育龄妇女人数持续减少。2021年15—49岁育龄妇女比2020年减少约500万人，其中21—35岁育龄妇女减少约300万人。二是生育水平继续下降。受生育观念转变、初婚初育年龄推迟(10年推迟约2岁)等多方面的影响，2021年育龄妇女总和生育率继续下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-2021年郑州水库开闸泄洪制造人祸；各地中共病毒清零政策，封城导致病死饿死不计其数；疫苗灾难爆发，各地医院心血管疾病大爆发，各种突发梗死和出血热，殡仪馆火葬场“熙熙攘攘”。中共的造假局永远不会告诉人民真实的数据，一切服务于统治需要。爆料革命就是要不断揭开中共的伪装，让真相大白于天下。
 
-**参考新闻**: [国家统计局：2021年21至35岁育龄妇女减少约300万人](https://m.chinanews.com/wap/detail/chs/zw/9655014.shtml)
-
-***发布：***tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

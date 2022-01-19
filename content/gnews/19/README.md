@@ -2,22 +2,30 @@
 ---
 
 
-## 嘉宾喜安娜和七哥关于记忆力对话（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877962/)
+## 斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877973/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-26.jpg)斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处 网络图片
+据美国之音1月19日报道，斯洛文尼亚总理亚内兹∙扬沙赞扬台湾是一个尊重国际民主标准和国际法的“民主国家”，并称正与台湾商谈互设贸易代表处。扬沙未透露谈判进行到哪一步，也没有说明斯洛文尼亚是否会步立陶宛的后尘，用“台湾”的名义在斯洛文尼亚设立代表处。扬沙对北京阻止台湾参与世卫组织（WHO）表示遗憾，强调台湾未来的统独问题应该由台湾人民自己决定。
 
-为什么？你们爱自己，你们要有尊严。你爱生活，爱生命。你不爱你自己，别人怎么会爱你呢？ 对吧？你像彤彤，今天一个小女孩就坐在这儿，不闹不哭。刚才我们三百年飞飞的孩子，仨孩子， 这么小的孩子，准备了钢琴，等了几个小时。这样的人他怎么可能不成功，他未来一定会成功，他干什么事情都执着，他会坚持到底的，一定要他成功。像今天你们喜安娜、安迪，你们姊妹两个的表演，全天下哪有女孩不羡慕你们的，是不是？你们的今天就完全不一样。Muyu,今天这么诚实的, 非常认真地坐在这里听，看大卫王你们每个人，我们刚才所有这些孩子。还有所有人的认真地问问题。你们在做什么？你们在改变自己的生命！再让自己的生命变得传奇，没有人能夺走你们刚刚过去的前十分钟，前一个小时，一定会影响你的人生的。所以说一切都是靠自己双手夺来的。靠自己的腿，靠自己的实际行动换来的，永远不要想，也不要相信，也不要去依靠任何你没有付出的东西，它都不是你的，它都是你的伤害。所以说，说到这个时候，我就告诉你们一定要记住，要走出 你的家庭，要走向社会，而且最重要的是你们要知道什么叫善，什么叫恶，什么叫真，什么叫假， 其他你都可以先不要在乎。只要知道什么叫真，什么叫假，你就是牛人。只要知道什么是善，什么叫恶，你就没有灾难。就这么简单，其他就做自己吧。谢谢。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾喜安娜和七哥关于记忆力对话（四）-.jpg)
-*发布：*tianzhihuan
+台海与中共国一直分治分离，互不隶属。但北京一直视台湾为其领土主权的一部分，誓言即使动武也要实现两岸的统一。北京一直在国际上孤立台湾，一方面反对其邦交国与台湾发展任何有官方性质的关系，另一方面则阻止台湾参与很多重要的国际组织。世界上有很多国家以“台北”的名义在本国设立台湾代表处。立陶宛是第一个以“台湾”的名义设立代表处的北京邦交国，因此遭到北京的政治打击和经济制裁。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共霸凌台湾很多年，现在又试图孤立和打击立陶宛。斯洛文尼亚总理的表态很可能会激怒中共，但是国际社会和民主国家与台湾的理念一致，与中共是本质上的不同和对立。中共的狂妄和傲慢以及通过病毒和疫苗对全球的伤害，会让整个世界联合起来，共同对抗中共。
+
+新闻参考链接：[https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html](https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
