@@ -2,24 +2,36 @@
 ---
 
 
-## 中共要求外国冬奥会人员安装的手机应用存在安全漏洞
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1879302/)
+## 短视频：欧盟担忧定期加强针将导致免疫系统紊乱
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1879570/)
 
-#### 撰稿：彩虹
+**翻译：文载
+校对：枳实
+视频剪辑：向上James                                           
+编辑：文泓**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-10.jpg)图片来源：国会山报
-1月18日，《新闻极限》报道，运动员在中共国参加冬奥会时必须使用强制性手机应用程序，用来报告健康和旅行数据，但多伦多大学网络安全监督机构“公民实验室”对其研究报告显示，该应用程序存在严重的加密漏洞。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/812.png)图片来源：视频截屏
 
-据该网络安全组织称，该应用程序的某些部分将传输中共病毒（COVID-19）测试结果、旅行信息和其他个人数据，但未能验证加密传输中使用的签名，或者根本就没有加密数据。
 
-据《纽约时报》报道，现在处于计划的最后阶段，中共国通过将冬奥会参与者和中国普通民众分开来控制中共病毒（COVID-19）的传播。这款名为MY2022的应用程序旨在加强活动的预防措施，以便在出现任何疫情时可以追踪联系人。
+路透社今晚有一个消息,我在其他平台上也看到了相关的报道.
 
-公民实验室在其报告中说，它在12月3日向北京组委会通报了该应用程序的安全缺陷，但没有收到回应。该应用程序一月份的软件更新并没有修复加密问题，这可能使该应用程序违反了中共国新颁布的个人数据保护法，以及谷歌和苹果在其商店中列出的应用程序所需遵守的隐私政策。
+消息说欧盟药监机构表示，怀疑是否有必要打第四加强针疫苗，欧盟药品管理者在周二对是否有必要注射新冠疫苗第四剂加强针表示怀疑，并且对于每四个月需要打一次加强针的前景表示关注,担忧这是否会让人们的免疫系统超载。博士,谈谈你的看法?
 
-**新闻来源**
+嗯，首先我认为，更大的关注是你把这些说出来了。总是说一些并不能帮助人们的事，人们听了会沮丧,然后他们会想，你告诉我这些干嘛？
 
-[Watchdog: Winter Olympic Athletes App Has Serious Encryption Flaws](https://www.newsmax.com/us/app-athletes-encryption-flaws-winter-olympics/2022/01/18/id/1052927/)
+我认为，更大的关注是人们面对加强针的轰炸宣传已经在精神上疲惫了，我们打第三加强针的服从度就很差了。我们需要问问为什么？尽管打了第三针,人们还是感染；尽管人们得过新冠，人们还是感染。
+
+所以，当一方说，你得了新冠，你以后就没事了，他们说得不对。另一方说,你打疫苗了，你以后就不会被新冠病毒传染，他们说得也不对。公众很沮丧，他们要真实的答案。
+
+视频链接：[Dr. Siegel: Despite the third shot, people are getting infected | On Air Videos | Fox News](https://video.foxnews.com/v/6291384634001#sp=show-clips)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,74 +2,39 @@
 ---
 
 
-## 参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879599/)
+## 01/19每日播报｜英国正着手结束所有的大流行病限制
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1879803/)
 
-Senator Roger Marshall On Fauci’s Financial Records
-参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+**By:[秘翻新闻](https://gtv.org/video/id=61e7d2bf533c672fca7f3b10)**
 
-Why do you think that Fauci lied last week sir?
-你为什么认为上周福奇撒谎了？
+**[2022-01-19](https://gtv.org/broadcast/watch/61e7d2bf533c672fca7f3b11)**
 
-John, I guess several people said we are over the target so to speak
-约翰，我猜有几个人说我们偏离了目标
+据TND 1月18日报道，英国首相鲍里斯·约翰逊(Boris Johnson)正计划在3月初取消所有中共病毒COVID-19大流行病的限制。
 
-We’ve exposed him in my opinion. he had misled or lied to Congress on three different issues in that particular hearing
-在我看来，我们已经揭露了他。在那次听证会上，他在三个不同的问题上误导或向国会撒了谎
+据英国一位 “高级政府消息人士 “透露的信息，英国部长们正在 “认真考虑 “取消所有因大流行病而实施的法律限制，转而采用一种 “基于指导 “的制度。
 
-He lied to Rand Paul on one of his questions about covering this all up
-他在一个关于掩盖这一切的问题上对兰德.保罗（Rand Paul）撒了谎
+这一消息是在英国的COVID-19病例连续第13天下降的情况下发布的。据报道，这种下降有助于约翰逊和部长们做出决定。
 
-He lied to Congress about gain of a function and then about his financial accountability
-他在功能增强（实验项目）这个问题上向国会撒谎，然后就他的财务责任撒了谎
+《每日邮报》的消息来源声称，即使是 “最基本的 “规则也将结束，例如阳性病例的自我检疫和遵守政府的 “测试和追踪 “计划。
 
-Look, we asked him a very simple question: Will you please share with Americans your financials?
-看，我们问了他一个非常简单的问题：您是否能与美国人民披露您的财务状况？
+大流行开始时启动的紧急COVID法律已经定于2022年3月到期，但奥米炕病毒和重新出现的COVID病例激增，可能会让这些法律得到更新或延长。
 
-This is a common question I get from people, as why does doctor Fauci believe only in vaccines?
-这是我从人们那里得到的一个常见问题。就像为什么福奇（Fauci）博士只相信疫苗？
+据《卫报》报道，由于最近的COVID-19病例下降趋势，约翰逊现在更有信心英国能够与病毒共存，他将最终确定让这些 COVID 法律在 3 月终止的计划
 
-Why doesn’t he acknowledge natural immunity?
-为什么他不承认自然免疫？
+据报道，其他的COVID-19限制最快将在下周被取消。
 
-Why doesn’t he acknowledge hydroxychloroquine or zinc or ivermectin, and they said what about his finance?
-为什么他不承认羟氯喹或锌或伊维菌素？他们想知道他的财务状况如何？
+据《每日邮报》报道，1月24日，将取消对酒吧和餐馆的，只允许为有座位的顾客提供服务的限制。在同一天社会隔离也将被取消，夜总会将再次被允许营业。
 
-We’ve been trying to get them
-我们一直在努力找到这些信息
+据报道，对参加室内活动的限制也将在1月24日取消。然而，根据英国政府的指导意见，在3月取消所有限制之前，在公共交通和室内仍然需要戴口罩。
 
-He lied to Americans said that they are publicly available, and they weren’t
-他对美国人撒谎说这些信息是公开的，但事实并非如此
+秘翻新闻主编 Grace编译报道
 
-And now we’ve got that, and people can go to our website Marshall.senate.gov and review Dr. Fauci’s financials
-现在我们已经找到了。人们可以访问我们的网站Marshall.senate.gov. 并查看 福奇（Fauci） 博士的财务状况
-
-And they are going to see that he made 1.7 million dollars last year, in 2020. Excuse me 1.7 million dollars in 2020.
-他们将看到他去年在2020年赚了170万美元。对不起，2020年赚了170万美元
-
-While America was shut down. He made 1.7 million dollars, significant investment in China. We will let Americans decide.
-在美国被关闭期间，他赚了170万美元，在中国进行了重大投资。我们将让美国人自己来判断
+发布:星星
 
 * * *
 
-Date: 1/17/2022
-原视频标题: Senator Roger Marshall On Fauci’s Financial Records
-参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
-原视频日期：1/17/2022
-原视频链接: [**https://twitter.com/realamvoice/status/1483240267649982464?s=24**](https://twitter.com/realamvoice/status/1483240267649982464?s=24)
-任务编号：KE355（3521）
-视频时间段 : 0:00-01:00
-中听校：洛杉矶盘古农场 -海潮
-翻译：洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

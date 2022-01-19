@@ -2,38 +2,34 @@
 ---
 
 
-## 法国Neoen公司在南澳大利亚建设大型风力发电设施
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1879143/)
+## 港共政府甩锅病毒给宠物 无差别扑杀行为被强烈谴责
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1879223/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1486.png)[图片来源](https://news.ltn.com.tw/news/politics/breakingnews/3536877)
+香港一家宠物店日前有仓鼠采检中共病毒（新冠病毒COVID-19）呈阳性反应，港共政府因而决定扑杀数以百计的小动物，19日面临动物保护团体的强烈反弹。
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+跟中共国大陆一样，香港在防范中共病毒疫情上，维持采取严格的“清零”政策，透过追踪接触者、普筛、严格隔离与延长保持社交距离规定等，根绝病毒踪迹。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun-1.png)图片来源：雅典娜设计组
+然而，最新措施将矛头指向仓鼠等小动物，包括栗鼠、兔子与天竺鼠等；港共当局18日表示，将“采取预防措施”，扑杀这些动物。
 
+Little Boss宠物店贩售的仓鼠日前验出对中共病毒Delta变异株呈阳性反应。港共当局“强烈建议”在上月22日后购买仓鼠的民众，交出宠物让当局扑杀。
 
-根据《国际新能源网》1月19日报道，由外媒引述，总部位于法国的可再生能源开发商和独立电力生产商(IPP)Neoen公司日前表示，已经开始建设在南澳大利亚中北部地区的Goyder Renewables Zone园区中的装机412MW风力发电设施。
+香港各地的动物爱好者气得跳脚，他们在请愿平台Change.org发起的连署书，在一天之内取得2万3000多个连署；爱护动物协会（Prevention of Cruelty to Animals）也谴责这项决定。
 
-该风力发电设施名为Goyder South Stage 1，将安装由通用电气可再生能源公司制造的75台风力涡轮机。
+爱护动物协会19日在发给法新社的声明中说：“香港最近宣布将处理2000多只动物，令爱护动物协会感到震惊与关切。我们敦促饲主不要惊慌或弃养宠物。”
 
-该园区项目计划安装和部署1200MW风力发电设施、600MW太阳能发电设施和900MW电池储能系统。
+港共当局18日说，验出中共病毒阳性的生物据信是自荷兰引进。
 
-南澳大利亚能源和矿业部长Dan VanHolst Pellekaan表示：“Goyder South Stage 1项目开工建设是一个关键的里程碑，这个项目集合了大规模的风力发电设施、太阳能发电设施和电池储能系统，标志着南澳大利亚清洁能源转型的一个重要时刻”。
+香港政府食物及卫生局局长陈肇始在记者会上说：国际上，没有证据显示宠物会把中共病毒传给人类，但…为了防范任何传染媒介，将采取预防措施。
 
-据悉，Neoen公司与澳大利亚首都领地(ACT)政府签署了一份为期14年的100MW风力发电设施的电力采购协议。Neoen公司目前还在澳大利亚首都领地建设一个100MW/200MWh独立部署电池储能系统(BESS)。
+港共当局说，在Little Boss宠物店售出的约1000只动物，以及在全港数十家宠物店售出的另1000只动物，全都将遭到扑杀。香港也禁止进口小型哺乳动物。
 
-参考链接：[配套储能900MW！Neoen公司在南澳大利亚建大型风光储项目](https://newenergy.in-en.com/html/newenergy-2410882.shtml)
+消息来源：[仓鼠验新冠呈阳性香港下杀鼠令引反弹](https://tw.news.yahoo.com/%E5%80%89%E9%BC%A0%E9%A9%97%E6%96%B0%E5%86%A0%E5%91%88%E9%99%BD%E6%80%A7-%E9%A6%99%E6%B8%AF%E4%B8%8B%E6%AE%BA%E9%BC%A0%E4%BB%A4%E5%A4%A7%E9%87%8F%E3%80%8C%E4%BA%BA%E9%81%93%E6%AF%80%E6%BB%85%E3%80%8D%E5%BC%95%E5%8F%8D%E5%BD%88-072545844.html)
 
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
