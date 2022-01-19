@@ -2,31 +2,44 @@
 ---
 
 
-## 七哥谈“独裁、压迫、统治”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881646/)
+## 有声|纽约一亚裔女子无故被推下站台致死
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881685/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
 
-来源：郭先生2022-01-14直播10：33：38摘录
 
-大家记住，你看什么人不一样啊，我一生最在乎的事情，我往回看的时候，我希望我后面的人能走到我前面去，在我前边，这是我一生中从小到大，跟着我的人、我的公司、我的企业、我的合作方都是，我希望在我后面的人走到我前面去，我前面越多人越好，因为我觉得我更强大。那么共产党是什么？把前面所有能看见的人一律消灭，就让你看到他自己，这就叫独裁，而且叫压迫，叫统治，你看这就是中国人不能说话了。Joe Rogan事情告诉你什么？叫法治社会，它不能制造邪说。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+外媒1月15日报道，当天上午，在纽约市时代广场地铁站，一名40岁左右的亚裔妇女在一辆迎面而来的地铁前被人推下站台，并被一辆南行列车撞倒，当场死亡。市政府和警察局官员在新闻发布会上透露，某男性嫌疑人逃离了现场，但不久后向交通警察自首。
 
-Gettr 账号
+纽约警察局长说，这是一起无故伤害事件，事发前受害者与嫌疑人没有任何矛盾冲突。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+纽约市的犯罪统计数据显示，2021年截止到12月，针对亚裔的伤害事件比前一年增加了361%。
+
+原文链接：[纽约一亚裔女子无故被推下站台致死](https://gnews.org/zh-hans/1874132/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
