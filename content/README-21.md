@@ -16,6 +16,10 @@
 ---
 ## 頁面 21/39 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [39](/content/README-39.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月22日郭文贵先生直播 CCP突發三大戰役挑戰全球，妄圖共產天下，垂死掙扎](/content/2019/09/20190924-48639377592397821.md)
+
+[文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/content/2019/09/20190921-9126784850251019674.md)
+
 [文字版：2019年9月17日文貴報平安](/content/2019/09/20190917-2323498074578492581.md)
 
 [文字版：2019年9月15日 香港已成为恐惧之港](/content/2019/09/20190917-7577220596935524798.md)
@@ -61,10 +65,6 @@
 [文字版：8月18日文贵吃饱了直播](/content/2019/08/20190822-8029195555016463956.md)
 
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/2019/08/20190819-5676820155081817041.md)
-
-[文字版：郭文貴先生8月16日文貴直播](/content/2019/08/20190819-2341336785643764547.md)
-
-[文字版：郭文貴先生2019年8月15日報平安直播](/content/2019/08/20190819-7582253714688026419.md)
 
 
 ## 頁面 21/39 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [39](/content/README-39.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)

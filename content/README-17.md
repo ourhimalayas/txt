@@ -16,6 +16,10 @@
 ---
 ## 頁面 17/39 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [39](/content/README-39.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡](/content/2020/01/20200117-6409722284040678861.md)
+
+[文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/content/2020/01/20200117-6983690269092492510.md)
+
 [文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/content/2020/01/20200115-3214760195479457165.md)
 
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/content/2020/01/20200113-2672985235705561306.md)
@@ -61,10 +65,6 @@
 [ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/content/2019/12/20191223-5404079886262729317.md)
 
 [文字版：2019年12月8号文贵报平安直播](/content/2019/12/20191220-6902125038601635282.md)
-
-[文字版：2019年12月17日文贵报平安直播](/content/2019/12/20191220-5572994760820034862.md)
-
-[文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼](/content/2019/12/20191218-6370413042704455809.md)
 
 
 ## 頁面 17/39 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [39](/content/README-39.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

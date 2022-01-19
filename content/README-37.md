@@ -16,6 +16,10 @@
 ---
 ## 頁面 37/39 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)
 
+[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/2018/04/20180418-1311698055875889734.md)
+
+[翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/2018/04/20180418-7152292434988843422.md)
+
 [翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
 
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/2018/04/20180418-8435837672278368881.md)
@@ -61,10 +65,6 @@
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
-
-[美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
-
-[美国新闻关于郭先生的报道的收集](/content/2018/04/20180418-2688604786049331221.md)
 
 
 ## 頁面 37/39 [**<**](/content/README-36.md) [1](/content/README.md) ... [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) **37** [38](/content/README-38.md) [39](/content/README-39.md) [**>**](/content/README-38.md) [查看全部](/content/README-all.md)
