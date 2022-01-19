@@ -2,154 +2,64 @@
 ---
 
 
-## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
+## 新西兰财经G乐部2022年1月19日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1879124/)
 
-[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
+采集整理：蚂蚁的城堡
 
-**Steve Bannon:
-史蒂夫班农:**
+**提纲：**
 
-I just want to make sure we go through it one more time
-我只是想再一次明确实一下
+1、OPEC料今年油市仍将受到良好支撑，Omicron和加息对需求影响不大
 
-The numbers a day you’ve had CPI now PPI
-你每天的数字是消费者物价指数，现在是生产者物价指数
+2、美国第五次批准从战略储备中交换原油额度40万桶
 
-Come by and tell people this is…
-过来告诉人们这是…
+3、踩雷，“惊天骗局”余震不断，“光伏老兵”巨亏超30亿
 
-I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
-鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
+4、“黑幕”疯传：公募基金被忽悠接盘，反向割韭菜
 
-And this is dangerous
-这是很危险的
+5、恒帅股份深陷“饭局传销操纵股价”风波，早盘暴跌10%
 
-No. 1 our system for these rate increases is talk trying to choke this down
-now our system is set up for negative interest rates
-第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
+**正文**
 
-People don’t understand that the trauma that is going to happen in our financial system
-人们不明白我们金融体系将要发生的创伤
+**1、OPEC料今年油市仍将受到良好支撑，Omicron和加息对需求影响不大**
+![焦点：OPEC料今年油市仍将受到良好支撑Omicron和加息对需求影响不大| Reuters](https://static.reuters.com/resources/r/?m=02&amp;d=20220119&amp;t=2&amp;i=1588244183&amp;r=LYNXMPEI0I01J&amp;w=800)
+路透1月18日 – 石油输出国组织(OPEC)周二坚持其对2022年全球石油需求强劲增长的预测，尽管Omicron变种肆虐并预计多国央行会加息，该组织仍预期石油市场今年仍将受到良好支撑。
 
-That’s going to roll into your personal life, okay?
-将会影响每个人生活，知道吗？
+OPEC发表这一乐观看法之际，油价已触及2014年以来的最高水平。供应紧张为油价上涨提供了动力，OPEC的报告还显示，该组织12月的石油产量增幅没有达到承诺水准。OPEC在报告中表示:“尽管Omicron变种可能会在2022年上半年产生影响，这取决于进一步实施封锁措施的情况和不断上升的住院率对劳动力大军的冲击，但对经济增长的预测仍然强劲。”
 
-No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
-第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
+参考链接： [https://cn.reuters.com/article/opec-2022-oil-demand-covid19-0119-idCNKBS2JT03O](https://cn.reuters.com/article/opec-2022-oil-demand-covid19-0119-idCNKBS2JT03O)
 
-Steve Cortes:
-史蒂夫科尔特斯:
-You’re exactly right Steve
-你是非常对的，史蒂夫
+**2、美国第五次批准从战略储备中交换原油额度40万桶**
+![拜登下令动用五千万桶战略储备石油以遏止原油价格高攀](https://gdb.voanews.com/E21853C1-3B06-47FF-8318-0CFE729F06E7_w1080_h608.jpg)
+路透1月18日 – 美国能源部周二表示，已批准从战略石油储备(SPR)中交换40万桶原油，释放给法国公司TotalEnergies旗下的Atlantic Trading and Marketing Inc。这是拜登政府自2021年11月宣布SPR释油多达5,000万桶以来的第五次交换，以帮助控制达到逾七年高点的石油价格。通过交易所获得SPR原油的公司同意将归还同等的原油数量，以及做为利息的额外数量。自宣布释放SPR以来，布兰特原油价格在大部分时间下跌之后，周二再次创下2014年以来的最高水平，每桶油价超过87美元，因为也门的胡塞武装袭击阿联酋事件令人们担心潜在的供应中断。
 
-Look, if we look at history we see that a lot of political upheaval
-看，如果我们回顾历史，我们会看到很多政治动荡
+参考链接：[https://cn.reuters.com/article/usa-spr-oil-0118-tues-idCNKBS2JT06I?il=0](https://cn.reuters.com/article/usa-spr-oil-0118-tues-idCNKBS2JT06I?il=0)
 
-upheaval that we could say the least evil actually results from inflation
-我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
+**3、踩雷，“惊天骗局”余震不断，“光伏老兵”巨亏超30亿**
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0119%2F92668992j00r5xw4l002cc000ri00fzm.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+专网通信业务暴雷余波仍在，中利集团年报预亏金额超过30亿元。“十四五”现代综合交通运输体系发展规划印发，提出稳妥发展自动驾驶和车路协同等出行服务。专网通信业务暴雷 中利集团预亏超30亿元昨日晚间，中利集团发布业绩公告，预计2021年净亏损32亿元-40亿元，上年同期亏损29.2亿元，亏损金额有所扩大。报告期内造成公司业绩亏损的主要原因为：1、因专网通信业务暴雷等，计提预计约22亿元左右；2、本期光伏业务共计亏损约11亿元左右，其中因光伏制造的主要原材料及海运费暴涨，造成产能不能完全释放，经营性亏损约6.5亿元左右。中利集团三季报亏损金额近15亿元，以年报预亏下限来看，四季度亏损金额超过17亿元。
 
-If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
-如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
+参考链接：[https://finance.sina.com.cn/stock/s/2022-01-19/doc-ikyakumy1223752.shtml](https://finance.sina.com.cn/stock/s/2022-01-19/doc-ikyakumy1223752.shtml)
 
-If we look at Germany pre-World War II
-如果我们看看二战前的德国
+**4、“黑幕”疯传：公募基金被忽悠接盘，反向割韭菜**
+![割韭菜是什么梗?怎样避免被割韭菜 第4张](https://i2.jueshifan.com/205a28/7c067d87/27062bdb01f9ff1ccf23.jpg)
+1月18日晚间，一种反向收割基金经理的商业模式在圈内流传。
 
-We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
-我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
+市场是这样的，网传一段对话，疑似公募基金组团买入上市公司的股票，为私募接盘。具体过程先是券商卖房去买私募产品，接着私募资金先行买入上市公司股份，紧接着找行业专家，写研究报告吹票，来吸引公募机构买入，在其接盘的过程中出货。而对话提到的一家上市公司，其去年中报前十大股东几乎是自然人，而到了三季度报，前十大流通股东全部变成了公募基金！而股价去年最多涨了4倍。
 
-And in a country that is already as polarized as the United States is
-而在一个已经像美国这样两极分化的国家
+财经G评：今天是第三次谈在中共国投资逻辑“把韭菜扎出油”！金融机构的返向割韭菜已经是屡试不爽！当举国体制中以假治国的时候，哪些金融分析师和技术流的人可歇歇了！
 
-This kind of inflation is not just bad economics
-这种通货膨胀不仅仅是糟糕的经济学
+参考链接 ：[https://finance.sina.com.cn/money/fund/jjzl/2022-01-19/doc-ikyamrmz6048865.shtml](https://finance.sina.com.cn/money/fund/jjzl/2022-01-19/doc-ikyamrmz6048865.shtml)
 
-It’s actually societally dangerous for our country
-它实际上是对我们国家的社会危险
+**5、恒帅股份深陷“饭局传销操纵股价”风波，早盘暴跌10%**
+![行情图](https://image.sinajs.cn/newchart/png/min/new_min/n/sz300969.png)
+1月19日消息，恒帅股份盘中大跌超10%。截至发稿，股价报120.62元，成交12972手，成交额1.58亿元，换手率6.49%，最新市值96.5亿元。今天，一张截图在业内疯传，称上海陆家嘴存在一个这样的小圈子，通过饭局“传销”操纵股价，大致流程为卖方买私募产品，后私募建仓，随后和公司高管精准沟通，写研究报告推荐，同时准备好专家，供公募研究，最终通过一系列布局抬升股价。从恒帅股份的股价走势来看，2021年4月上市首日最高价为69.75元，此后一路下跌，7月最低跌至32.59元，股价被腰斩。不过此后，恒帅股份出现一波持续的大涨，2021年11月最高涨至174.98元，股价翻了超5倍。
 
-And that’s why we need to be cleared-eyed about what it is and about policy solution
-而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
+参考链接：[https://finance.sina.com.cn/stock/gujiayidong/2022-01-19/doc-ikyakumy1255496.shtml](https://finance.sina.com.cn/stock/gujiayidong/2022-01-19/doc-ikyakumy1255496.shtml)
 
-Because Steve, we can’t just curse the darkness
-因为，史蒂夫，我们不能只是诅咒黑暗
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-We have to do that, yes
-是的，我们必须这样做
-
-But as lamentable as this current economic quagmire is
-但与当前的经济泥潭一样可悲的是
-
-This is stagflationary embroil that we face right now in America
-我们美国现在面临的滞胀困境
-
-It does also, Steve, present political opportunity
-史蒂夫，它也确实提供了政治机会
-
-Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
-巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
-
-and to transform the republican party, not of the parties of the chased right
-并改变共和党，而不是被追逐的权利的政党
-
-But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
-反而成为一个真正多民族和多种族的美国工人阶级政党
-
-And the polling is starting to show us that political opening is there
-民意调查开始向我们表明政治开放是存在的
-
-If we have the guts and the gumption to cease it of course the right policies mix as well
-如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
-
-For example, as I mentioned yesterday in the show
-例如，正如我昨天在节目中提到的
-
-I think the most powerful way right now to win both politically as well as get the economy back on track
-我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
-
-get the inflation in control again
-再次控制通胀
-
-and get wages rising is inflation motive
-并提高工资就是通胀动机
-
-We need to absolutely stop illegal migration in this country
-在这个国家，我们需要绝对阻止非法移民
-
-and I believe we need a pause in even legal migration to this country
-并且我相信，就算是合法移民也需要适当暂停
-
-A pause in H-1B and other similar would work which is why let the American people wages starts to rise
-H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
-
-So that we see real wages take off again the way they did under Donald Trump
-这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
-
-instead of the way they are crashing right now under Joe Biden
-而不是现在在乔-拜登领导下崩溃的方式
-
-So, it’s calamity but there’s always opportunity as well in calamity
-因此，这是灾难，但灾难中也总是有机会的
-
-* * *
-
-Date: 01/13/2022
-原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
-Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
-原视频日期：2022/01/13
-原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
-任务编号：KE353（3494）
-视频时间段 : 0:00-02:52
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+上传排版：文勇
 
  
 

@@ -2,30 +2,36 @@
 ---
 
 
-## 文贵大直播精要0117——为美国的司法程序重新回到正义而战斗到底
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1880181/)
+## 泽连科医生指出 接种疫苗将造成民众死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880283/)
 
-- 听写：苹果树 佐拉 yueshangliushao#4185 神奇四侠
-- 简写：苹果树
-- 审核：舒平风
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/泽连科.jpg)
+泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
 
+此外，泽连科医生还提到，在接种过中共病毒疫苗的短期内，年轻的接种者或将因此产生心肌炎而住院，其中，妊娠初期的女性接种者还有极高的概率出现流产现象。
 
-从2017年这个案子开始到现在，法官还没接到文件，熊宪民已提前预告：“郭文贵将无家可归。18 楼马上输，而且会输一个多亿”。
+至于中长期的疫苗不良反应，泽连科医生补充道，中共病毒疫苗会提高接种者自体免疫疾病的发生概率，并增加他们患癌的风险。同时，女性接种者会出现卵巢不育或孕育功能障碍，而男性则会出现精子数量减少的现象。
 
-现在博讯和熊宪民在美国被FBI和国土安全调查，涉及多起刑事案件和涉嫌中共间谍案例。这是偶然吗？而博讯所有跟七哥的官司的钱提供者又是吴征和太平联盟，难道这又是偶然吗？
+泽连科医生最后提出，中共病毒疫苗带来的最大隐患则为接种者在三个月到三年间出现的亚急性抗体依赖增强作用现象。当个体受到具有相似抗体的病毒攻击时，疫苗将造成接种者快速死亡。
 
-在美国是要讲程序正义，要讲证据。如果谁忽视了这些逻辑，那我们正义彰显的可能性是没有的。为什么太平联盟、海航、还有博讯的熊宪民有多年合作关系？为什么告我们的人来自同一个律师事务所？为什么熊宪民预告了太平联盟的官司？
+参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
 
-太平联盟对七哥的法律超限战，和对精神、时间上的虐待，以及对肉体、心灵上的打击，拿多少钱能解决得了？几十万页的文件，不给我说话的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-如我曾经爆料一样，在美国司法界，共产党通过律师事务所对美国的深入渗透。这个案子我们必须打到底，一定会找出所有的来龙去脉。多重偶然，背后一定是不自然。谁制造的不自然？
+总编: Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-说白了，这就是我们在跟共产党打官司，在和美国的黑暗的被收买的司法界打官司。严格讲PAG的官司已牵扯到巨大的种族问题、法律的黑洞和美国司法制度的缺陷。
-
-我爱美国，美国是伟大的，我相信美国司法，尊重美国法官，但是美国的司法界被渗透和黑暗之程度，成了我们的威胁和担心。
-
-在马丁路德金日的今天，生活在美国的我有一个梦。我们要在尊重美国的法律系统的前提下，誓死战斗到底，绝对不会放弃。我们华人如果在美国，在PAG官司面前，今天如果妥协了、放弃了，我们华人在美国就会被共产党等坏人无数次推到铁轨上去，而且无人替你说话。如果我们这次官司打不到真相出来，我们中国人在美国将永远成为司法的奴隶和牺牲品。共产党会穷追猛打，把在海外的所有人的安全毁掉。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/af290d42-340f-4a42-878c-76b22138f20d.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

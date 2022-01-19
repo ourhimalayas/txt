@@ -2,36 +2,39 @@
 ---
 
 
-## 泽连科医生指出 接种疫苗将造成民众死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880283/)
+## 白宫：俄罗斯可能随时会对乌克兰发动袭击
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1880439/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/泽连科.jpg)
-泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
+#### **撰稿：**日本东京方舟农场 子辰
 
-此外，泽连科医生还提到，在接种过中共病毒疫苗的短期内，年轻的接种者或将因此产生心肌炎而住院，其中，妊娠初期的女性接种者还有极高的概率出现流产现象。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2BB563A2-4710-493A-A11F-63387F142867.jpeg)（图片来自《大纪元》）
 
-至于中长期的疫苗不良反应，泽连科医生补充道，中共病毒疫苗会提高接种者自体免疫疾病的发生概率，并增加他们患癌的风险。同时，女性接种者会出现卵巢不育或孕育功能障碍，而男性则会出现精子数量减少的现象。
+1月18日，白宫发言人珍‧普萨基（Jen Psaki）表示，美国认为俄罗斯可能“随时”对乌克兰发动袭击，这突显了威胁的紧迫性。
 
-泽连科医生最后提出，中共病毒疫苗带来的最大隐患则为接种者在三个月到三年间出现的亚急性抗体依赖增强作用现象。当个体受到具有相似抗体的病毒攻击时，疫苗将造成接种者快速死亡。
+目前，俄罗斯已在与乌克兰接壤的边境集结了10万名士兵，并将部队派往白俄罗斯进行联合军事演习。
 
-参考链接：[Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+白宫发言人普萨基在新闻简报会上告诉记者，“我们认为这是一个极其危险的情况。我们现在处于俄罗斯随时可能对乌克兰发动袭击的阶段。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+为了阻止俄罗斯入侵乌克兰，美国国务卿布林肯计划1月21日会见俄罗斯外交部长谢尔盖‧拉夫罗夫（Sergey Lavrov）。
 
-总编: Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+普萨基说，布林肯计划敦促俄罗斯缓和局势，并采取美国及其盟友提供的外交途径，重申如果俄罗斯选择入侵乌克兰，将会面临重大的经济后果。“由俄罗斯决定他们将走哪条道路，如果他们不走外交道路，后果将是严重的。”普萨基说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+白宫国家安全顾问杰克‧沙利文（Jake Sullivan）则表示，美国情报界尚未评估普京是否已下定决心入侵乌克兰，但攻击威胁仍为很高。
+
+此外，普萨基1月14日表示，美国情报官员已经断定，俄罗斯正努力为入侵乌克兰制造借口，而且已在乌克兰东部预先安排了特工，以便开展栽赃嫁祸行动。
+
+俄罗斯方面则否认计划发动新的军事攻势，并已提出多项要求，表示除非西方同意俄罗斯的要求，否则可能会采取未指明的军事行动。
+
+*参考链接：[白宫：俄罗斯可能随时对乌克兰发动袭击](https://www.epochtimes.com/gb/22/1/18/n13514126.htm)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,34 @@
 ---
 
 
-## 特别短讯：支持爆料革命最新数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1880047/)
+## 强制卡车司机接种疫苗或将加剧粮食危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880199/)
 
-##### 整理：雅典娜速记组
-编辑：木木木mmmmm
+作者：加拿大温哥华扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月15 日，据相关媒体报道，加拿大联邦政府此前针对入境的卡车司机实行的疫苗护照政策给当地带了一些严重的问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/强制卡车.jpg)
+资料显示，加拿大政府于2021年11月要求所有从美国入境的卡车司机在入关时出示其中共病毒疫苗的接种证明，此项政策本计划于今年1月15日正式生效。 加拿大卡车联盟对此表示，未接种疫苗的卡车司机在越过边境进入加拿大时，需要接受为期14天的隔离。此举将导致大约一万六千名卡车司机被迫离职。
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+数据表明，加拿大每年需要从美国进口价值约210亿美元的农业食品，尤其在冬季，来自美国南部各州的产品可以为加拿大消费者提供至关重要的食物供应。这其中，将近70%的进口食品是通过卡车运输的。为此，该疫苗护照计划甚至可能影响到加拿大民众的食物供应。而这也是自中共病毒流行以来，第一个可能中断加拿大和美国之间贸易往来的公共卫生措施。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642597408759.jpg)图片来源：郭先生盖特
+报道指出，而今，中共病毒的肆虐已经让加拿大的公共卫生系统承受着巨大的压力，此外，当地的食品供应也出现了严重的通货膨胀。在此情况下，针对卡车司机的疫苗护照计划将使加拿大民众成为疫苗强制令的直接受害者。
 
+参考链接：[CHARLEBOIS: Trucker vaccination policy will harm food chain](https://torontosun.com/opinion/columnists/charlebois-trucker-vaccination-policy-will-harm-food-chain)
 
-1.喜玛拉雅交易所创立以来有6亿个喜币。
-2.有喜币福利配额7万7千人。
-3.投资喜币10万以上有5%3000多人。
-4.自2017年以来在全球12个国家相继成立22个农场。
-5.国内有5000万人追随新中国联邦。
-6.约140万人被抓和警告。
-7.二级市场开放以来每天通过KYC以300人速度在增长。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-资料来源：郭先生GTV和盖特直播视频。
+总编: Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-*发布： tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,152 +2,32 @@
 ---
 
 
-## 国防部正在把福奇暴露出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+## 我不再去梦想
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1875380/)
 
-[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/king-speech_wide-372571344c5cc877a2fc8881b6ef8cd699e46414.jpg)图源：网路
+网上看到个段子，就在马丁路德金日，1月17日，这样写的，“I have a dream that my four children will one day live in a nation where they will not be judged by the color of their skin, but by the status of their vaccination ”，这句充满了无限荒凉的话，看着是无奈的自嘲，却拥有冰冷的清醒。是的，当下的每一天，不再是马丁路德金要求的那个无论什么肤色都应该被平等尊重的时代，那是1963年啊，几十年前在追求的人人平等，几十年后，我们照样在拼命追求平等。未接种新冠疫苗的人被毫无理由地区分对待，被公司开除那是小事儿了，公共场合都需要出示疫苗护照，那些拒绝接种新冠疫苗的医护更了解接种疫苗以后带来的是更加无法控制的高感染，他们被各种禁言，打压。甚至有的大麻合法的地方不让未接种疫苗的人买大麻，还有比这更荒唐的吗？
 
-**Steve Bannon
-史蒂夫·班农**
+这是2022年，马丁路德金在1963年就进行过的平权运动，如今一个甲子快过去了，又是一个新的轮回，只不过那时候马丁路德金的平权运动只是因为人种和肤色的不同，今天我们要争取的平等却是对抗共产党的邪恶和资本贪婪的联合给人类带来的毁灭性灾难。现在整个社会谈到反抗新冠疫苗就异常敏感，疫苗造成的不良健康反应太多了，很多人都站出来哭诉自己受到的伤害，死去的家人，出现的各种健康后遗症，被社会歧视的目光，这些内容无论是发过的推文，写出来的歌，还是上街游行，无一例外的，全部都会被删除。当人们意识到自己在这场战争中失掉的一切，是否能够重新体会马丁路德金当年的勇气？
 
-Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
-马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
+社会的偏见就来源于个体的不同，但是之所以社会能够如此丰富，也是因为各种各样不同的人类，一个社会只有一种声音，那是独裁，那是习近平千秋万世的太阳，永不凋落。新冠疫苗会让人产生不良的健康反应，目前美国最高法否决了拜登的强制疫苗令。弗吉尼亚刚上任的共和党州长Youngkin已经紧随其后废除了强制接种令，理由是计划违反了个人自由选择权和隐私权。虽然在公布的文件上还是会说我们支持拜登的疫苗计划，但是每个人都应该有隐私，并且接种不接种疫苗应该是一种隐私，不得与任何人分享。这其中可以看到美国政治的一些官僚主义，起码在文件表述上对拜登没有任何不尊敬，但最主要的又表现出来，保护每个人的个人自由和权利。美国作为自由民主的灯塔，无论任何事情几乎都可以用人权一词来解释，你看新冠疫苗接种死了多少人，这明明就是共产党和那些贪婪资本大科技大药商们对全人类的有计划的，有阴谋的大屠杀，但是没人会这么说，反而会用自我选择的权利、人权的自由来作为停止疫苗强制的理由。为什么老百姓被告知的都是，你有人权，但是人命有没有，那就看你自己的了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/164250886279546_P13669005.jpg)游行。/ 图源：网路
+我有一个梦想，说的就是平等的权利。马丁路德金要求的是非裔拥有和白人公民一样平等的权利，不被歧视。今天在新冠疫苗差点毁灭的世界，我们要追求的是，我们老百姓需要拥有和政府和任何大科技媒体大药厂大资本同等的权利，不被蒙蔽，不被歧视，不被特殊对待。很可惜我们都没实现。尽管最高法驳回了拜登的疫苗计划，依然还是有激进的公司要求员工打疫苗，后面还有长长的路要走，一眼看不到尽头，但起码有希望了。
 
-this Veritas amazing Veritas leak
-这个“真理”项目，惊人的“真理”泄漏
+所有一切新冠疫苗的副作用这些资料和数据，郭先生爆料说，都是爆料革命不眠不休工作的战友提供的，促使最高法做出了这样的判决。最高法在疫苗事件上的判决，是没有任何选择的，毕竟这疫苗再打下去，美国8400万，将近三分之一的劳动力，社会生产的主驱动力，全部都会受到各种各样的后遗症的折磨，但那时候别说什么上班工作了，整个美国就都没了。
 
-that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
-他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
+一个这样尽心尽力挽救全人类的爆料革命，他的起头人郭文贵先生，在美国司法部受到的各种各样无法想象的缠诉纠纷，共产党把美国司法部当成自家的后花园一样，随意拉屎。美国的立国基石都快被腐化完了，哪儿哪儿都有坏人。其实这么多的缠讼案子，最后连接的无论钱还是人，就只有那么几个，PAG，单伟建，吴征，背后就是共产党。因为郭先生爆料的就是他们的这些不正常金融诈骗，把整个全世界都圈进了泡沫里，摇摇欲坠，如果没有爆料革命，如果疫苗强制令还是没有停，那将会无人生还。
 
-Is this the beginning of more information?
-这将会是更多信息的开始吗？
-
-Do you think that certain individuals real scientists inside the apparatus
-你认为系统内部的某些真正的科学家
-
-that’s we’ve had enough we got to stop this madness, Dr. Malone.
-我们已经受够了，我们必须停止这种疯狂，马龙博士
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-I think it’s the DOD saying they’ve had enough of this.
-我认为是国防部说他们已经受够了
-
-And I’m not sure if this came from a JAG’s office
-我不确定文件是否来自美国陆军总检察长的办公室
-
-because they’re stamped like they are
-因为它们看起来像
-
-based on the file names or if it came from DARPA
-基于文件名或是来自国防高级研究计划局
-
-But having looked at these again and again in recently communicating with the DOD JAG
-但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
-
-it’s trying to smoke out whose office this might have come out of.
-文件，在试图找出这可能来自谁的办公室
-
-I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
-我认为现在是国防部终于出来说够了
-
-And throwing Tony under the bus, and it could well be the DARPA’s doing it
-把托尼推出来，这很可能是国防高级研究计划局做的
-
-so that the fingers don’t get pointed at them
-这样手指就不会指向他们
-
-But there’s in my mind, these Veritas documents look, look absolutely authentic
-但在我看来，这些真理文件看起来，看起来绝对真实的
-
-Steve Bannon
-史蒂夫·班农
-
-So you’re saying this is what I’m sure we’re clear here
-所以你说这就是我确定我们在这里很清楚
-
-You’re saying that, as we know, we take over this year
-你是说，我们知道，今年我们接管了
-
-that the investigations deep into the situation of Wuhan lab, the bioweapons program
-对武汉实验室情况的深入调查，生化武器计划
-
-and American scientific and taxpayer money that went into doing any of that
-以及用于做任何这些的美国科学和纳税人的钱
-
-is going to be beyond a hot potato be one of the defining issues going forward
-将超越烫手的山芋成为未来的决定性问题之一
-
-what actually happened?
-实际发生了什么
-
-You’re saying right now look at the Pentagon Papers
-你说现在看看五角大楼文件
-
-there are people either officially or unofficially, making a move on Tony Fauci
-有人正式或非正式地在对托尼·福奇采取行动
-
-in your mind and you know, DARPA and you know the DOD pretty well
-你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
-
-you’ve been consulted there for many, many years. Correct?
-你已经在那里做了很多很多年的咨询工作, 对吗？
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-Correct. And I’m also in close communication with the senator and his investigations office
-正确，我也在与参议员和他的调查办公室保持密切联系
-
-I don’t want to speak for the senator but this this is one of those situations
-我不想为参议员说话，但这是其中一种情况
-
-If you spent decades dealing with DOD and the hill like I have
-如果你像我一样花了几十年的时间与国防部和国会山打交道
-
-this is how the game gets played
-这就是游戏的玩法
-
-This is how the Kabuki works in DC
-这就是歌舞伎在华盛顿中的运作方式
-
-is they’ll turn on each other when it looks like somebody is going to have to take the fall
-当看起来有人将不得不背锅时，他们是会互相攻击的
-
-And it looks to me like that has now happened in DOD has had enough
-在我看来，现在的情况是国防部已经受够了
-
-It’s important to know that Tony bushwhack DOD after the anthrax attacks
-重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
-
-and grabbed a big chunk of their budget
-而且敛走了他们预算的很大一部分
-
-so there could be some payback opportunity here
-所以这里可能是国防部反击的机会
+郭先生遭受了一切不公平的对待，但他没有怨恨这个社会，他甚至还是快乐的积极的。他感谢一切帮助爆料革命的人，甚至感谢那些逆增上缘的不快乐。郭先生说灭共是一项使命，这件事本身就让人快乐无比，但他是一个人，他所承受的超限战压力，给他带来的痛苦，谁也赔不起。我们看到他小时候和八弟的照片，看到了像岁月流金一样的风，穿越大洋，在全世界席卷一场毁灭和重生。我有一个梦想，我不再去梦想，该醒来的终究会醒来。
 
 * * *
 
-Date:01/15/2022
-原视频标题: The DOD Is Throwing Fauci Under The Bus
-国防部正在把福奇暴露出来
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
-任务编号：KE351（3493）
-视频时间段 : 0:00-2:22
+作者：骄子
+发布：骄子
 
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

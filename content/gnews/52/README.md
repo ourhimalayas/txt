@@ -2,34 +2,38 @@
 ---
 
 
-## 中共在美司法超限战进入深水区
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875842/)
+## 芬兰允许伊维菌素用于治疗中共病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月17日的法律专场大直播中，郭先生以太平联盟PAG历时五年的缠诉为例，剖析了该案审理过程中的种种不公正环节，指出，这是一起反映中共对美国司法界蓝金黄的最典型案例。这场中共对爆料革命进行的在美司法超限战，即将进入疯狂的殊死较量。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-266.jpg)
-1月14日，纽约高院法官巴里·奥斯特拉格取消了卡希尔·高登 & 林德尔律师事务所代理太盟PAG的诉讼资格，这是一个有着历史意义的判决。它将中共的红色资本渗透美国律所及法官，甚至司法部官员的重重黑幕撕开了一个口子。这起案件一开始在纽约立案就存在属地争议，初判结果确认了这一点，但随后令人匪夷所思地重启调查。早就签署解除担保义务的所谓3千万担保未付款，经过一系列黑箱操作，至今竟已涉及18楼房产、游艇，以及逾1.5亿美元的罚款。
+#### 撰稿：日本东京方舟农场 JIHO
 
-郭先生强调，中共不惜花费200亿美元在美国展开法律超限战，从远期来说，是要彻底瓦解美国的司法独立体系。而从2017年开始的一系列缠诉，目的是以“藐视法庭”的罪名制造借口，摧毁郭先生一手创立的爆料革命。随着中共末日的来临，其必将进行更加疯狂的攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
 
-郭先生表示，此案已经引起主流媒体、APA律师协会、司法部，甚至国会议员的高度关注。只要证据确凿真实，程序公正，坚信美国的民主与法制仍会发挥巨大的作用。这场法律超限战，我们最终一定会赢。
+1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
 
-参考链接：[2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格；太平联盟诉讼案未来的走向；中共对美国司法界的渗透](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
+日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
 
-总编: Zion文恩
-编辑：Kathy文艺
-校正/发稿：Fei797
+不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
+
+*参考链接：*
+
+1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
+2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
+3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
+
+
+* * *
+
+*素材采编：JIHO*
+
+*编辑： 文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
