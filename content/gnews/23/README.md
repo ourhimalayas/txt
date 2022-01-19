@@ -2,27 +2,39 @@
 ---
 
 
-## 坎特：如果你的母亲在那些集中营被强奸你还会考虑钱吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1879802/)
+## 01/19每日播报｜英国正着手结束所有的大流行病限制
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1879803/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip04-4.png)图片来源：thegatewaypundit.com
-上周末，NBA 金州勇士队的股东兼董事、社会资本创始人兼首席执行官查马斯·帕里哈皮蒂亚（Chamath Palihapitiya）在播客采访中，无视中共对维吾尔族穆斯林的人权侵犯。他说：“没人关心维吾尔人的遭遇，好吗？ 你提出来是因为你真的很在乎，我认为你很在乎。我们其他人不在乎。我只是在告诉你一个非常残酷、丑陋的事实： 在我关心的所有事情中，是的，这都不在我的考虑之中。
+**By:[秘翻新闻](https://gtv.org/video/id=61e7d2bf533c672fca7f3b10)**
 
-坎特：“他唯一关心的就是金钱和为中共宣传，宣传他如何利用社会正义为他的公司赚钱，这让我感到恶心。我想问他一个问题：如果你的母亲，如果你的女儿，如果你的姐姐在那些集中营里，每天都被折磨和轮奸，你还会想钱吗？ 你还要保持沉默吗？”
+**[2022-01-19](https://gtv.org/broadcast/watch/61e7d2bf533c672fca7f3b11)**
 
-**新闻来源**：[thegatewaypundit.com][“If Your Mother – Your Sister Were Getting Raped in Those Camps – Would You Still Think About Money?” – NBA Player Enes Kanter Freedom Destroys Disgusting NBA Owner Over Uyghur Comments (VIDEO)](https://www.thegatewaypundit.com/2022/01/mother-sister-getting-raped-camps-still-think-money-nba-player-enes-kanter-freedom-destroys-disgusting-nba-owner-uyghur-comments-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+据TND 1月18日报道，英国首相鲍里斯·约翰逊(Boris Johnson)正计划在3月初取消所有中共病毒COVID-19大流行病的限制。
+
+据英国一位 “高级政府消息人士 “透露的信息，英国部长们正在 “认真考虑 “取消所有因大流行病而实施的法律限制，转而采用一种 “基于指导 “的制度。
+
+这一消息是在英国的COVID-19病例连续第13天下降的情况下发布的。据报道，这种下降有助于约翰逊和部长们做出决定。
+
+《每日邮报》的消息来源声称，即使是 “最基本的 “规则也将结束，例如阳性病例的自我检疫和遵守政府的 “测试和追踪 “计划。
+
+大流行开始时启动的紧急COVID法律已经定于2022年3月到期，但奥米炕病毒和重新出现的COVID病例激增，可能会让这些法律得到更新或延长。
+
+据《卫报》报道，由于最近的COVID-19病例下降趋势，约翰逊现在更有信心英国能够与病毒共存，他将最终确定让这些 COVID 法律在 3 月终止的计划
+
+据报道，其他的COVID-19限制最快将在下周被取消。
+
+据《每日邮报》报道，1月24日，将取消对酒吧和餐馆的，只允许为有座位的顾客提供服务的限制。在同一天社会隔离也将被取消，夜总会将再次被允许营业。
+
+据报道，对参加室内活动的限制也将在1月24日取消。然而，根据英国政府的指导意见，在3月取消所有限制之前，在公共交通和室内仍然需要戴口罩。
+
+秘翻新闻主编 Grace编译报道
+
+发布:星星
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
-
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

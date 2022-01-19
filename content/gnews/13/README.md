@@ -2,24 +2,49 @@
 ---
 
 
-## 【樱花数据分析】奥密克戎的强感染力可能与两针疫苗接种率相关
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1879853/)
+## 中共纪委、政法队伍、公安厅为习近平二十大统一思想
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1879951/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1500.png)
-欧美等西方国家的新增感染屡创新高，他们将原因归于“奥密克戎毒株的强大感染力”，但事情看起来不是那样。这种现象在如此多的国家发生。高接种率和疫情严重程度呈现巨大的相关性。这又大大增加了“抗体依赖性感染增强”（ADE）的可信度。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1501.png)
-在最早发现奥密克戎的南非以及周边4国，新增感染人数峰值与以往并无太大变化，他们的两针疫苗接种率仅为26.4%。
+作者: 日本方舟农场 Andy5
 
-但在屡创新高的欧美各国，新增感染峰值达到了之前的近5倍，他们的两针疫苗接种率为74.9%。
 
-这表明接种率高低与疫情严重程度有巨大的相关性。再一次指向ADE的发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
+当地时间1月16至20日，中共连续召开政法队伍、公安厅、纪委的会议为习的二十大统一思想。
 
-两针接种疫苗，很可能是这次奥密克戎疫情爆发的主要原因。
+首先郭声琨在政法教育整顿总结会上强调，“坚持把政治建设放在首位”，特别是“始终在思想上、政治上、行动上同习近平的党中央保持高度一致”。然后赵克志在公安厅局长会议上要求“坚决捍卫国家政权安全、制度安全、意识形态安全”。最后在18日举行的中纪委会议，习近平出席并讲话，称“清除了党内、国家、军队内部存在的严重隐患”，并要求“勇于刀刃向内”、“保持反腐败政治定力”。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+分析人士指出，这三个会议中无一例外都提到“要为二十大保驾护航”，这表明无论是政法系统、公安系统、纪委，都在以政治为最优先，也就是为习近平打破常规的第三期连任统一思想，并甘愿充当打手。
+
+**新闻链接**:
+
+1、[http://politics.people.com.cn/n1/2022/0117/c1001-32333483.html](http://politics.people.com.cn/n1/2022/0117/c1001-32333483.html)
+
+2、[http://society.people.com.cn/n1/2022/0117/c1008-32333496.html](http://society.people.com.cn/n1/2022/0117/c1008-32333496.html)
+
+3、[http://news.xhby.net/index/202201/t20220118\_7389203.shtml](http://news.xhby.net/index/202201/t20220118_7389203.shtml)
+
+4、[http://politics.people.com.cn/n1/2022/0118/c1024-32334348.html](http://politics.people.com.cn/n1/2022/0118/c1024-32334348.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-5.png)
+
+
+新闻采集: 日本方舟农场 Andy5
+
+总编: Irene木木
+
+校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
