@@ -2,29 +2,108 @@
 ---
 
 
-## 出走的少年
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1879544/)
+## 罗伯特·马龙博士指出我们生活在一种群体形成精神病中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879545/)
 
-By：银河勇气星｜楚天秋
+[https://gtv.org/video/id=61e7da0f87664c47acd6ba9d](https://gtv.org/video/id=61e7da0f87664c47acd6ba9d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/811595c584d605169e0e9fb41184a879.jpg)
+**Dr Robert Malone
+罗伯特·马龙博士**
 
-七十年代的中共国，真可谓冰火两重天。经历过文革的人也许都记得，毛魔在日，到处一片混乱，无知狂妄的毛粉红卫兵，打砸抢甚至械斗杀人时而有之，不光是“黑五类”，也是老实人的灾难。“阶级敌人”被整得血肉模糊，阶级斗争的熊熊烈焰，基本上可以吞噬一切美好。被中共涂脂抹粉成“阳光灿烂的日子”，实际是魔鬼横行人间的地狱般的岁月。即便时至今日，仍有余孽虽身老而心魔难除，排第一号的非习总加速师莫属。直到“万寿无疆”的毛魔撒手归西，才开始“拨乱反正”搞经济。江南富庶之地，尚且只能勉强糊口，塞北苦寒之乡，生计艰难可想而知。郭先生生于文革的动乱年代，长在贫寒家境中，从小见过太多不公，却并不屈服于现实，而是直面挑战，坚定向前走，这种在小说里才有的奇迹，不但发生了，而且真真切切，就在眼前。
+In the 20s and 30s, you know, very intelligent, highly educated population
+在20和30年代，你知道，非常聪明，受过高等教育的人群
 
-某种程度上去理解，文革也是中共释放的遍及华夏大地的一次“瘟疫”，把中共自身的毒素传给了老百姓，毁掉了传统文化里好的东西，唤醒人性恶的一面，长达十年的管控和封锁，经济、教育甚至行政上都处于崩溃状态。很多家庭的命运也因此改变，包括郭先生家，被迫滞留在中俄边境的小镇红旗岭的赵家沟。就像这段时间出差路过西安或者天津的人们，被疫情困住一样，不同的是文革期间很多家庭一辈子就被拆散了，或者困住了。很多单身知青拖家带口，即便政策转向，也只能留在当地继续生活。这既是坏事也是好事，就像现在好端端的人们一下子被中共给隔离起来一样，当要个打火机抽烟的自由都失去的时候，当开着车就被贴了封条，困在驾驶室的时候，才会让人思考，所谓的隔离，究竟是配合防疫需要，还是已经被当成了中共的犯人看管起来。多数人看不到希望，沉沦下去，随着中共的指挥棒身不由己地起起伏伏。但依然有觉醒者，甚至是更加坚定的反抗者出现。
+and they went barking mad
+他们变疯了
 
-很多人在文革中看清了中共的邪恶本质，有的绝望自杀，有的消沉苟活，有的恐惧退避，有的与虎谋皮。只有赵家沟的不羁少年，带着铭刻于心的记忆，走出雪地大山，成了时髦的“叛逆”青年，吹着“改革”的春风，开着摩托、驾着吉普，南下北上穿梭于烟火人间。是谁用莲花刀法切西瓜，是谁拿着打火机和引线迎娶爱情，是谁怀着侠肝义胆除暴安良，还是那个曾经的不羁少年。那个在清风看守所吃棉被的青年，就是那个在赵家沟带着小伙伴到处寻找生机的孩子王。那个听狱友解惑和狱友分烟，转眼又经历生死离别的青年，还是那个在赵家沟给老师递手纸的调皮少年。那个带着脚镣勒出旧伤新痛的青年，就是那个穿着脚划子漫山遍野滑雪御寒，裤裆冒烟的倔强少年。那个盖起“中原佛手”豪华酒店，纵横商场的青年，就是那个曾经发誓要让父母过上体面生活的少年。那个创建盘古大观，混迹官场大粪坑，依然把中共高官送进监狱的亿万富豪，就是曾经到处惹事的“不良”少年。那个出入中南坑，观察老杂毛们一举一动的商人，也是那个坐在旁边听老杂毛们说话，过耳不忘的聪慧少年。
+And how did that happen? The answer is mass formation psychosis
+那是怎么发生的？ 答案是群体形成的精神病
 
-爆料革命历经五载，曾经的少年两鬓添白。邪魔中共缠讼不断，离间战友，收买政客、媒体，绑架亲朋，威胁好友，龌龊不堪手段用尽，招数用烂。郭先生凭着超强的毅力，看透生死的执着信念，依然从容面对，谈笑间自信满满，相比较少年时，更多一份海纳百川的胸怀，锋芒收敛的优雅。穿着华服戎装或者休闲睡袍，眼神里的真诚坦然，一如穿着揩了层层鼻涕能划着火柴的空壳棉袄的少年，目光直率而清澈。那个离家的少年，走过山东古城老家，走遍国内国际，驻足纽约曼哈顿，誓要灭共，振臂一呼，应者云集。
+When you have a society that has become decoupled from each other
+当你有一个彼此脱钩的社会
+
+and has free floating anxiety, in a sense that things don’t make sense
+并且充斥着焦虑时，从某种意义上说，事情就变得没有意义
+
+We can’t understand it
+我们无法理解
+
+And then their attention gets focused by a leader
+然后他们的注意力被领导者集中了
+
+or series of events on one small point just like hypnosis
+或在一个小点上发生的一系列事件，就像催眠一样
+
+They literally become hypnotized and can be led anywhere
+他们真的被催眠了而且可以被带到任何地方
+
+And one of the aspects of that phenomena is the people that they identify as their leaders
+这种现象的一个方面是他们认为自己的领导者
+
+The ones typically that come in and say, you have this pain and I can solve it for you
+那些通常会说，你有这种痛苦，我可以为你解决
+
+I and I alone, okay, can fix this problem for you
+我，且只有我，好的，可以为你解决这个问题
+
+Okay, then they will lead, they will follow that person through
+好的，然后人们会跟随那个领导者
+
+It doesn’t matter whether they lie to them, or whatever, the data are irrelevant
+不管领导者是否对他们撒谎，或者无论做什么，数据、事实都是无关紧要的
+
+And furthermore, anybody who questions that narrative is to be immediately attacked
+此外，任何质疑该叙述的人都将立即受到攻击
+
+they are the other. This is central to mass formation psychosis
+他们是异教徒。这是群体形成精神病的核心
+
+And this is what has happened. We had all those conditions
+这就是发生的事情，我们拥有所有这些条件
+
+You remember back before 2019. Everybody was complaining
+你还记得2019年之前，每个人都在抱怨
+
+well, doesn’t make sense. Blah, blah, blah
+好吧，没有意义， 等等等等等等
+
+And we’re all isolated from each other
+我们都彼此孤立
+
+We’re all on our little tools
+我们都在沉迷于我们的小工具
+
+We’re not connected socially anymore, except through social media
+我们不再有社交联系，除了通过社交媒体
+
+And then this thing happened and everybody focused on it
+然后COVID-19发生了，每个人都专注于它
+
+That is how aspiration psychosis happens
+吸入性精神病就是这样发生的
+
+And that is what’s happened here
+这就是这里发生的事情
 
 * * *
 
-作者：楚天秋
-发布：骄子
+Date:01/16/2022
+原视频标题: Dr Robert Malone suggests we are living through a mass formation psychosis
+罗伯特·马龙博士指出我们生活在一种群体形成精神病中
+原视频日期：2022/01/16
+原视频链接: [**https://gettr.com/post/plh19l66e5**](https://gettr.com/post/plh19l66e5)
+任务编号：KE354(3505)
+视频时间段 : 0:00-1:41
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

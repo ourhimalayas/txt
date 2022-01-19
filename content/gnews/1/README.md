@@ -2,41 +2,74 @@
 ---
 
 
-## 文贵先生盖特精要 20220118
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1879564/)
+## 参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879599/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1495.png)[盖特直播链接](https://gettr.com/post/pp402xffd3)
+Senator Roger Marshall On Fauci’s Financial Records
+参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
 
-昨天的大直播关于太平联盟的官司以及我和八弟的老照片给战友们留下了深刻的印象。特别感谢战友们为那幅老照片做的修复和上色而付出的时间和精力。
+Why do you think that Fauci lied last week sir?
+你为什么认为上周福奇撒谎了？
 
-关于爆出太平联盟(Pacific Alliance Group，PAG)的官司引起了重大的反响，特别是世界的媒体的相关监督部门 、国会将会高度重视这个案子。从最初的4.19VOA断播、《华尔街日报》报道的所谓“双面间谍”、美国的谣言、 中共发出的信号、GTV被SEC调查、多维等等，以及下个月2月2号（大年初一）案件审理。所有这五年中共搞事情挑选的日子，跟咱们要发展的时间轴都能对应在一起。这好像都是习近平和王岐山安排的一样，永远是最坏的事件都一、二、三……同时发生。这次一定会有PAG的身影。
+John, I guess several people said we are over the target so to speak
+约翰，我猜有几个人说我们偏离了目标
 
-单伟建能让几个律师事务所（Edward Moss，O’Melveny & Myers，Cahill，Brandley J.Bondi) 围绕着他转，这人是有多么大的能量，查查那些著名的律师事务所与PAG背后的错综复杂的关系。单伟建从文革时期就出来，被中共培养专门送到西方学习，渗入到美国最高层。从一开始玩基金TPG(Texas Pacific Capital) 到PAG太平联盟，所有经历的事情和主要目的就是针对美国的的律师界、司法界和政府部门的人士，完成对美国社会高层的渗透和间谍工作。
+We’ve exposed him in my opinion. he had misled or lied to Congress on three different issues in that particular hearing
+在我看来，我们已经揭露了他。在那次听证会上，他在三个不同的问题上误导或向国会撒了谎
 
-杨贝贝节目的播出报道将海外华人定性为邪教组织 黑G系列，几乎是与太平联盟案子的正式审理相隔不到24小时；同时播出单伟建接受《60分钟》采访为共产党唱赞歌。这五年，每次事件的发生都是这么多的巧合，难道这都是偶然吗？！不但如此，就连BVI公司的开庭时间，所要求的资料，TPG最亲密关系的Appleby，所有涉及的司法部门也都被TPG用“蓝、金、黄”完全渗透了。
+He lied to Rand Paul on one of his questions about covering this all up
+他在一个关于掩盖这一切的问题上对兰德.保罗（Rand Paul）撒了谎
 
-所以说共产党是对全球的司法系统的“蓝、金、黄”、威胁和黑暗的控制，美国人到现在都没有醒悟。迟早美国会醒来，世界也会醒来，看到这些黑暗和丑陋，最终让其接受西方司法和人民的审判。
+He lied to Congress about gain of a function and then about his financial accountability
+他在功能增强（实验项目）这个问题上向国会撒谎，然后就他的财务责任撒了谎
 
-吴征，Richard Frankel（前FBI官员）、THM的合伙人，他们加入到完全利益冲突及违反道德具有犯罪嫌疑的PAX官司中，以及马蕊强奸案，博讯案，所有这些案子都由吴征来支付律师费。Michael Waller、French Wallop，Elliott Broidy， Higginbotham，美国司法部的这些案子，也都是偶然吗？最近有美国司法部的朋友问，五年来美国司法部没有任何动作，这真是太荒唐了！这是美国堕落的一面。
+Look, we asked him a very simple question: Will you please share with Americans your financials?
+看，我们问了他一个非常简单的问题：您是否能与美国人民披露您的财务状况？
 
-从爆料革命开始到现在，共产党抓捕和审判几百万人，失去自由的将近140万人，相当于几百万个家庭。孙力军在《零容忍》的认罪，听说是江、曾势力胜利的一个标志，大大鼓舞了党内一部分的人心，因为这代表着习对权力和军队没有完全控制，所以要向江、曾妥协了。曾、江、孟、王这四股势力合在一起在冬奥会和达沃斯论坛期间 — 这个全世界要和共产党翻脸的关键时刻可能会有事发生。
+This is a common question I get from people, as why does doctor Fauci believe only in vaccines?
+这是我从人们那里得到的一个常见问题。就像为什么福奇（Fauci）博士只相信疫苗？
 
-据说美国、日本的各大体育组织和公司（例如NIKE， NBA）都要撤出，特别是冬奥会之后，雪崩效应就会开始。一旦西方对中国内部全部翻脸，单伟建的财产都会被美国查个底朝天，他的孩子在美国百分百从事洗钱和其他犯罪，这都是有确切情报的，整个单氏家族都是中共在编的间谍特务。
+Why doesn’t he acknowledge natural immunity?
+为什么他不承认自然免疫？
 
-Yien郑是个好人，有基本的良知，所以昨天的大直播我没有提，不想给人家带来伤害。整个北京贷款的案子是他和Chris一起参与，他是个关键人物。当时，郑是被单伟建这帮共产党特务和黑社会以及海航给挤出去的。他躲在加拿大，很害怕会被做掉。虽然他是个好人，但是个性有点懦弱，居家型的男士，不贪，对人也很厚道，跟王岐山那一派的食人魔鬼相比，基金界很少有这么好的人。
+Why doesn’t he acknowledge hydroxychloroquine or zinc or ivermectin, and they said what about his finance?
+为什么他不承认羟氯喹或锌或伊维菌素？他们想知道他的财务状况如何？
 
-当我们受到中共、媒体、BVI公司攻击的时候，PAG的官司就会开庭，这次的听审就安排在中国农历新年大年初一的2月2号，这些都是精心设计好的，而绝非偶然！
+We’ve been trying to get them
+我们一直在努力找到这些信息
 
-*听写：阿甘*
-*校对： 小雨*
+He lied to Americans said that they are publicly available, and they weren’t
+他对美国人撒谎说这些信息是公开的，但事实并非如此
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+And now we’ve got that, and people can go to our website Marshall.senate.gov and review Dr. Fauci’s financials
+现在我们已经找到了。人们可以访问我们的网站Marshall.senate.gov. 并查看 福奇（Fauci） 博士的财务状况
 
+And they are going to see that he made 1.7 million dollars last year, in 2020. Excuse me 1.7 million dollars in 2020.
+他们将看到他去年在2020年赚了170万美元。对不起，2020年赚了170万美元
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+While America was shut down. He made 1.7 million dollars, significant investment in China. We will let Americans decide.
+在美国被关闭期间，他赚了170万美元，在中国进行了重大投资。我们将让美国人自己来判断
+
+* * *
+
+Date: 1/17/2022
+原视频标题: Senator Roger Marshall On Fauci’s Financial Records
+参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录
+原视频日期：1/17/2022
+原视频链接: [**https://twitter.com/realamvoice/status/1483240267649982464?s=24**](https://twitter.com/realamvoice/status/1483240267649982464?s=24)
+任务编号：KE355（3521）
+视频时间段 : 0:00-01:00
+中听校：洛杉矶盘古农场 -海潮
+翻译：洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

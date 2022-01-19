@@ -2,108 +2,39 @@
 ---
 
 
-## 罗伯特·马龙博士指出我们生活在一种群体形成精神病中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879545/)
+## 大直播后记：马丁•路德金日我们不妥协
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879554/)
 
-[https://gtv.org/video/id=61e7da0f87664c47acd6ba9d](https://gtv.org/video/id=61e7da0f87664c47acd6ba9d)
+整理：雅典娜速记组
+编辑：MSGZ
 
-**Dr Robert Malone
-罗伯特·马龙博士**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-174.png)图片来源：雅典娜设计组
 
-In the 20s and 30s, you know, very intelligent, highly educated population
-在20和30年代，你知道，非常聪明，受过高等教育的人群
 
-and they went barking mad
-他们变疯了
+马丁·路德·金是一位美国牧师、社会运动者、人权主义者和非裔美国人民权运动领袖，也是1964年诺贝尔和平奖得主。他主张以非暴力的公民抗命方法争取非裔美国人的基本权利，而成为美国进步主义的象征。
 
-And how did that happen? The answer is mass formation psychosis
-那是怎么发生的？ 答案是群体形成的精神病
+**郭文贵先生于直播中如是说**，1月17日是马丁·路德金纪念日，我们选择今天直播是有意义的。美国历史上，受迫害的和受到司法不公正对待和受黑暗势力欺压的美国少数民族黑人，出现了一个圣贤叫马丁·路德金——我有一个梦，就是体现美国少数民族追求人权精神、宁死不屈的品格。
 
-When you have a society that has become decoupled from each other
-当你有一个彼此脱钩的社会
+无数次受到威胁打压和司法不公正的对待，马丁·路德金为黑人和少数民树立了榜样。每一个人说马丁·路德金的时候，你见有多少人怀疑过他私人的道德。他在被抓之前还嫖妓呢。但是丝毫不影响他为正义的呼唤和付出，他改变了整个美国的民主进程，是人类历史中一盏黑暗中的明灯。
 
-and has free floating anxiety, in a sense that things don’t make sense
-并且充斥着焦虑时，从某种意义上说，事情就变得没有意义
+我每到今天都在想，中国人能出来一个马丁·路德金吗？如果中国人里出了个马丁·路德金，估计中国人不会问你干了啥，得先说你在被抓之前为啥嫖妓，用道德把你英雄的形象给毁掉。如果说华人出来个马丁·路德金，中国人能像昨天在纽约大火车站的亚裔被推下站台，你见华人媒体有一个人为她呼吁的吗？
 
-We can’t understand it
-我们无法理解
+只有我们。在当年印尼残杀50万华人、鸡奸强奸烧掉300万华人的商铺的时候，共产党第一个说这些人就是该杀，共产党还跟印尼大做买卖。美国的马丁·路德金发生在印尼了吗？能发生在中共吗？能有一个有勇气的人敢说真话，能坚持5年吗？
 
-And then their attention gets focused by a leader
-然后他们的注意力被领导者集中了
+你看马丁·路德金回忆录当中说：“我感受到最可怕的事情是饥饿、侮辱、羞辱和时间的煎熬。”你们没有走过的路，永远不懂得其中的艰辛。当一个人坐在那里10几个小时正襟危坐被问话，就像郭宝胜、夏业良的案子在华盛顿开庭的时候，七哥一天18个小时，开庭14个小时，坐在一个硬板凳上，而熊宪民、郭宝胜一天睡七八觉。七哥正经八百坐在那儿，你告诉我你们谁能受得了？而且是连开5天。何况背后我这一堆的官司呢？
 
-or series of events on one small point just like hypnosis
-或在一个小点上发生的一系列事件，就像催眠一样
+马丁·路德金的这种感受我是真有的。能坚持到底，承受着这种寂寞，羞辱，侮辱的煎熬。是多可怕呀！
 
-They literally become hypnotized and can be led anywhere
-他们真的被催眠了而且可以被带到任何地方
+我们在马丁·路德金日的时候，14亿中国人，生生死死100亿人的中国，没有出来一个马丁·路德金。作为律师，你去想想我们活在美国，我有一个梦。我们华人如果在美国，就像在PAG官司面前，今天如果妥协了、放弃了，我们华人在美国就会被共产党等坏人无数次推到铁轨当中去，而且没有人替你说话。如果我们这次官司打不出真相出来，我们中国人在美国将永远成为司法的奴隶，司法的牺牲品。中国共产党会穷追猛打，把所有人在海外的安全毁掉。严格讲PAG的官司已经不那么简单了，它牵扯到巨大的种族问题、巨大的法律的黑洞和美国司法制度的缺陷。所以接下来的才是更大的事情。
 
-And one of the aspects of that phenomena is the people that they identify as their leaders
-这种现象的一个方面是他们认为自己的领导者
+*发布：*tianzhihuan
 
-The ones typically that come in and say, you have this pain and I can solve it for you
-那些通常会说，你有这种痛苦，我可以为你解决
-
-I and I alone, okay, can fix this problem for you
-我，且只有我，好的，可以为你解决这个问题
-
-Okay, then they will lead, they will follow that person through
-好的，然后人们会跟随那个领导者
-
-It doesn’t matter whether they lie to them, or whatever, the data are irrelevant
-不管领导者是否对他们撒谎，或者无论做什么，数据、事实都是无关紧要的
-
-And furthermore, anybody who questions that narrative is to be immediately attacked
-此外，任何质疑该叙述的人都将立即受到攻击
-
-they are the other. This is central to mass formation psychosis
-他们是异教徒。这是群体形成精神病的核心
-
-And this is what has happened. We had all those conditions
-这就是发生的事情，我们拥有所有这些条件
-
-You remember back before 2019. Everybody was complaining
-你还记得2019年之前，每个人都在抱怨
-
-well, doesn’t make sense. Blah, blah, blah
-好吧，没有意义， 等等等等等等
-
-And we’re all isolated from each other
-我们都彼此孤立
-
-We’re all on our little tools
-我们都在沉迷于我们的小工具
-
-We’re not connected socially anymore, except through social media
-我们不再有社交联系，除了通过社交媒体
-
-And then this thing happened and everybody focused on it
-然后COVID-19发生了，每个人都专注于它
-
-That is how aspiration psychosis happens
-吸入性精神病就是这样发生的
-
-And that is what’s happened here
-这就是这里发生的事情
-
-* * *
-
-Date:01/16/2022
-原视频标题: Dr Robert Malone suggests we are living through a mass formation psychosis
-罗伯特·马龙博士指出我们生活在一种群体形成精神病中
-原视频日期：2022/01/16
-原视频链接: [**https://gettr.com/post/plh19l66e5**](https://gettr.com/post/plh19l66e5)
-任务编号：KE354(3505)
-视频时间段 : 0:00-1:41
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
