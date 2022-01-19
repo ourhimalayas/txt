@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/19/2022 1:08 AM (UTC)`
+
+1/17/2022 Miles Guo: The lives, blood, freedom, and wealth sacrificed by my family led to my awakening, allowing me to lead all humanity to begin taking down the CCP! In a country ravaged by the CCP without the rule of law, what a blessing it is to destroy the CCP!<br/><br/>1/17/2022 文贵直播：文贵以家人的命、鲜血、自由和财富换来个人的觉醒，让文贵今天带着全人类开始灭共！在这个被共产党蹂躏和没有法律的国度里，灭共是件多么幸福的事！<br/>
+![img](https://media.gettr.com/group9/getter/2022/01/19/01/82b2a031-536a-3dcf-5efc-83c9c7cf46b0/out.jpg)
+
+---
+
+`@miles 1/19/2022 1:04 AM (UTC)`
+
+1/17/2022 Miles Guo: What's the story behind the photo I took with my younger brother when I was 7 years old? What did I look like when I was a child? What kind of life did I have as a child in Northeast China back then?<br/><br/>1/17/2022 文贵直播：文贵7岁时跟八弟拍的照片背后有什么有趣的故事？文贵小时候是什么样子的？在当年在东北过着怎样的童年生活？<br/>
+![img](https://media.gettr.com/group35/getter/2022/01/19/01/b0e2e91a-93a4-2989-0363-e12f60277e9b/out.jpg)
+
+---
+
+`@miles 1/19/2022 12:57 AM (UTC)`
+
+1/17/2022 Miles Guo: My upbringing shows how terrible the CCP’s evilness is! The CCP’s murder of my younger brother woke me up early, so from a young age I began to understand the evil of the CCP, and the first thing I seek to eradicate is everything of the CCP!<br/><br/>1/17/2022 文贵直播：文贵的成长经历就说明了共产党的邪恶有多么可怕！中共杀害八弟让文贵很早就觉醒，于是从小便开始了解中共的恶，而文贵第一个要铲除的就是共产党的一切！<br/>
+![img](https://media.gettr.com/group18/getter/2022/01/19/00/b23e8c40-1114-8fe9-dfe7-51d0c5efe0a1/out.jpg)
+
+---
+
 `@miles 1/18/2022 10:59 PM (UTC)`
 
 1/17/2022 Miles Guo: The CCP’s frivolous lawsuits keep pushing us step by step. I predict that the ruling will go against us when the Lady May case goes on trial on February 2nd. The CCP has controlled the entire judicial system in BVI, and Appleby, the law firm representing the opposing party, also has conflicts of interest. Our second battlefield is right in BVI!<br/><br/>1/17/2022 文贵直播：中共缠诉步步紧逼，文贵预测2月2日Lady May的案子开庭将被判大输；BVI的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI！<br/>
@@ -133,27 +154,6 @@ Dr. Geert Vanden Bossche (Virologist-Vaccinologist):<br/>The mass vaccinations a
 
 2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格
 ![img](https://media.gettr.com/group5/origin/2022/01/17/12/7784d909-3719-fcde-523c-c39cc67ad851/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/17/2022 2:44 AM (UTC)`
-
-1/16/2022 Miles Guo’s GETTR: The CCP virus and COVID vaccines have accentuated the ugliness and evilness of the entire humanity to a great extent, pushing the world into darkness. Fellow fighters, please cherish the eternal beauty of the New Federal State of China (NFSC). We will know how great the NFSC is this time next year.<br/><br/>1/16/2022 文贵盖特：中共用病毒和疫苗无限放大了人类所有邪恶和丑陋的东西，让全球陷入黑暗之中；请战友们珍惜无限美好的新中国联邦，明年这个时候我们会知道她有多伟大<br/>
-![img](https://media.gettr.com/group24/getter/2022/01/17/02/42f37d0e-e5bc-c5a7-cdb5-cd240883d753/out.jpg)
-
----
-
-`@miles 1/17/2022 2:26 AM (UTC)`
-
-Jung Sol-jin, vice chairman of South Korea's Shinsegae Group, wrote a series of posts on Instagram with the hashtag Exterminating the Communist Party. Currently, the slogan of exterminating the Communist Party is rapidly gaining popularity in Korea.<br/><br/>韩国新世界集团副会长郑溶镇在Instagram上写了一系列带有灭共标签的帖子。目前，灭共口号在韩国迅速流行。
-![img](https://media.gettr.com/group43/getter/2022/01/17/02/1cd8bdb0-4ff7-82d9-d871-29a7e5733b8f/out.jpg)
-
----
-
-`@miles 1/17/2022 2:22 AM (UTC)`
-
-1月13日，中共病毒真相查明医师会在韩国首尔中区的韩国新闻中心召开的中共病毒实验用疫苗接种者血液检查结果发表紧急记者会，所属内科专家医生陈基业(JEON GI YEOB)院长向人们发出“为了让我们国家延续下去，望大家能协助我们，千万不能让孕妇接种毒疫苗”的请求。<br/><br/>On 13 January, Covid-19 Truth-finding Physicians held an emergency press conference at the Korea Press Center in Seoul, South Korea, to release the blood tests of experimental virus recipients, Dr. JEON GI YEOB, Korean physician/Dean: For the sake of our country's continuity, we hope people will help us to appeal to never take the toxic vaccines
-![img](https://media.gettr.com/group8/getter/2022/01/17/02/76fe1d41-a1ed-2f7a-c539-91d18ae9642e/out.jpg)
 
 ---
 

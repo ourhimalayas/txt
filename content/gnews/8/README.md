@@ -2,22 +2,11 @@
 ---
 
 
-## 樱花灭共诗——答陈一之老而无为诗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1877776/)
+## 日本连续4天新增感染中共病毒人数超2万 大阪创历史新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1877788/)
 
-#### 作者：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-寄信闻伤老 孤灯有所思
-
-太平人悉恋 崩塌子尤知
-
-飒飒风声紧 冥冥月色迟
-
-掩书空怅惘 长夜念君诗
-
-2020.6.6.山东
-
-*校对：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1._19-scaled.jpg)
+*编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
