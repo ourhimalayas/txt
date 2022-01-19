@@ -2,36 +2,53 @@
 ---
 
 
-## 郭先生解析中共惧怕新中国联邦的原因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880709/)
+## 即使疫苗不起作用 明尼苏达仍继续推疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1880752/)
 
-作者：纽约香草山 信息部 – 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月14日的直播中，郭文贵先生谈到了中共如此害怕“郭文贵”和“新中国联邦”的原因所在。
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1510.png)图片来源:[newstarget.com
 
-郭先生提及，在中共外交部近期与中东六国外长的会议中，中共软硬兼施地要求这六国在当地彻底禁止GTV和GNEWS，其对提及“郭文贵”和“新中国联邦”二词讳莫如深、如临大敌。
+明尼阿波利斯市和明尼苏达州圣保罗市市长宣布，现在需要武汉冠状病毒（Covid-19）“疫苗”证明，才能进入提供面对面服务的酒吧和餐馆。新法令将于 1 月 19 日生效。从那天开始，每个想去酒吧或外出就餐的人，都必须出示注射证明，或72 小时内进行的测试“阴性”证明。
 
-郭先生也解释过，中共的本质是推崇精神控制的邪教，其只为利益服务。因此，在墙内民众没有人身自由和人身安全的情况下，共产党大肆控制墙内每个人的言行。相较而言，新中国联邦则是法治立邦，其是正义的化身，也是真正的为人民服务——新中国联邦可以让人们在绝对自由、安全的情况下合法行事并获得自己想要的一切。
+卡特补充说，对于买票进入的场馆，该授权将于 1 月 26 日在他的社区生效。
 
-郭先生强调，邪恶会丧失人性、失去民心，但正义却充满人性、凝聚人心，这是中共和新中国联邦的本质区别，更是邪恶中共惧怕正义的郭文贵和新中国联邦的根本原因！
+顺便说一句，弗雷在乔治·弗洛伊德 (George Floyd) 疯狂行动之后，将在天黑后加油定为“非法”，他因此更臭名昭著。
 
-参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
+“明尼苏达州的酒吧行业，对新的疫苗或阴性测试规则不满意，”FOX 9 的记者西奥·基思（Theo Keith）在推特上写道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+明尼苏达州饮料协会执行董事托尼·切萨克（Tony Chesak）在一份声明中表示，这项疫苗规定“难以理解”，既“不合理且不科学”。
 
-总编：Ivy001
-编辑：百香果
-校正/发稿：谐趣园
+“**在零科学或数据驱动决策之后，它只针对一个特定行业，零关心我们敬业的一线工作人员，现在他们在他们的盘子中又加上了‘执法人员’**。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我们所知道的唯一科学事实是，**它已经摧毁了实施相同任务的城市的酒店业。**”
+
+切萨克继续说，当只有某些行业成为这些繁重任务的目标时，什么“我们都在一起”的口号就是虚伪的。
+
+“他们说我们在一起——但这项任务表明，酒店业显然是被单独针对的，”他说。
+
+“我们知道接种疫苗和未接种疫苗的人**都会传播病毒**，它发生在学校、健身设施、其他零售商、体育赛事等等。”
+
+根据明尼阿波利斯市经济政策和发展主任埃里克·汉森的说法，要么是选择疫苗命令，要么是对所有人实施全面封锁（出于某种未知原因）。
+
+目前，这两个城市的“完全接种疫苗”意味着要么是接受了前两剂（辉瑞-生物科技，莫德纳）mRNA注射，或强生单剂量注射。
+
+汉森警告说，不遵守最终可能意味着轻罪指控，尽管本文作者很想看看这在法庭上会如何成立。事实证明，这些都不是合法的法律，而且所有这些都是违宪的。
+
+为了让未接种疫苗的明尼苏达人，和来这两个城市的游客尽可能地困难，新法令还禁止使用家庭测试来代替注射证明卡。
+
+此外，法令中没有医疗或宗教豁免。而且这些规定对年幼的孩子没有任何意义，专家们已经表示，这将阻止家庭去这两个城市中的任何一个城市的餐馆。
+
+武汉流感暴政像病毒一样蔓延。
+
+新闻来源:[newstarget.com] [Even as Pfizer CEO admits the jabs don’t work, liberal cities continue to roll out vaccine mandates](https://www.newstarget.com/2022-01-17-covid-vaccines-dont-work-liberal-cities-mandates.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

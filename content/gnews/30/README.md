@@ -2,31 +2,36 @@
 ---
 
 
-## 澳大利亚多地提前将加强针注射等待周期缩减至三个月
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1880626/)
+## 郭先生解析中共惧怕新中国联邦的原因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880709/)
 
-撰稿：Gradient Boost
+作者：纽约香草山 信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月14日的直播中，郭文贵先生谈到了中共如此害怕“郭文贵”和“新中国联邦”的原因所在。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011801-1.jpg)网络图片
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-15.jpeg)
 
-澳大利亚东部标准时间1月19日，维多利亚州政府正式宣布将加CCP病毒疫苗加强针的注射等待时间缩短至三个月，并且立即生效。
+郭先生提及，在中共外交部近期与中东六国外长的会议中，中共软硬兼施地要求这六国在当地彻底禁止GTV和GNEWS，其对提及“郭文贵”和“新中国联邦”二词讳莫如深、如临大敌。
 
-这意味着任何三个月前完成第二剂CCP病毒疫苗注射的居民，现在都可以进一步接受加强针注射。随着新规定生效，现在有资格接种第三剂的维州居民总数立即增加了约 120 万人。
+郭先生也解释过，中共的本质是推崇精神控制的邪教，其只为利益服务。因此，在墙内民众没有人身自由和人身安全的情况下，共产党大肆控制墙内每个人的言行。相较而言，新中国联邦则是法治立邦，其是正义的化身，也是真正的为人民服务——新中国联邦可以让人们在绝对自由、安全的情况下合法行事并获得自己想要的一切。
 
-在过去的24小时内，维多利亚州总共记录了 20,769 例新增CCP感染。根据维州卫生局的有关数据，目前该州的活跃病例数约25万左右。媒体认为，提前缩短加强针注射等待时间或许意味着州政府将会更快将强制加强针政策推广到更多工作岗位。
+郭先生强调，邪恶会丧失人性、失去民心，但正义却充满人性、凝聚人心，这是中共和新中国联邦的本质区别，更是邪恶中共惧怕正义的郭文贵和新中国联邦的根本原因！
 
-按照澳大利亚卫生部门提出的相关计划，缩短时间至三月的举措原本是要等到1月31日才开始进行，但是部分州领地已经迫不急待。
+参考链接：[2022年1月14日文贵大直播：为何YouTube在冬奥会前全面封杀爆料革命的频道；再谈病毒疫苗虚拟货币；Joe Rogan 加入盖特前后；小飞象获政庇意义何在](https://gtv.org/video/id=61e1756ca6dfdd6031542867)
 
-南澳大利亚州目前也已经将第三针的注射等待时间缩短至三个月，好像先前已经约定好的一般，宣布日期也同样是1月19日周三。南澳的相关政策意味着加强针需求从现在开始立即增加22.5万剂。今日南澳大利亚州记录了3,482例新增CCP病毒感染，同时有3人不幸因为CCP病毒而死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-新南威尔士州预计将从本周五开始将CCP病毒疫苗加强针的注射等待周期缩短至三个月，由于该州人口较多，根据周总理的说法，这一举措大概会增加300万剂的加强针需求。在过去的24小时之内，该州又记录了 32 例与CCP病毒有关的死亡病例，并且新增 32,297 例CCP病毒感染案例。
+总编：Ivy001
+编辑：百香果
+校正/发稿：谐趣园
 
-新闻参考链接：
-
-新闻一：[COVID-19 death toll jumps in NSW again as millions more eligible for booster](https://www.9news.com.au/national/coronavirus-nsw-updates-new-case-numbers-booster-shots-thousands-new-health-staff-deployed/261b8bf2-621a-4239-84ae-2b8e116df663)
-
-新闻二：[Third jab mandate not ruled out as Victoria slashes COVID-19 booster dose interval to three months](https://www.9news.com.au/national/coronavirus-victoria-update-new-case-numbers-code-brown-hospitals/7b8ed6bc-40dc-4a0f-9cee-7f419f5f260e)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
