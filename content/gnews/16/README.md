@@ -2,44 +2,31 @@
 ---
 
 
-## 中共反腐大片《零容忍》开播 再现“电视认罪”
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1881216/)
+## 有声|GTV新闻访谈简报|2022年1月17日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881277/)
 
-作者：纽约香草山 侠肝义胆
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
+配音：香草山农场 – 纳米
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0117text-SC-1187x1536-1.png)
+文字版原文：[GTV新闻访谈简报|2022年1月17日晚](https://gnews.org/zh-hans/1873524/)
 
-1月15日，中共所谓的反腐大片巜零容忍》在央视黄金时间开播。
-
-剧中，包括孙力军在内的“政法五虎”、原国开行行长胡怀邦、昆明医科大学附属医院院长马林昆等人均以“电视认罪”的形式出现在观众面前。
-
-在灰暗的背景下，所有犯罪嫌疑人均穿着统一的黑色内衣当众表示忏悔，并认罪伏法。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-22.jpeg)图源网络
-尤其中共公安部前副部长孙力军的“电视认罪”颇具讽刺意味。他说：没想到自己成了一个法治建设或者公平正义的破坏者。
-
-有关分析人士认为，中共反腐大片巜零容忍》通过精心设计的台词和画面，想再次以“电视认罪”的伎俩欺骗人民，彰显其反腐败的正当性。但效果适得其反，中共导演的“电视认罪”正是其贱踏法治精神的真实写照。
-
-新闻来源：https://news.cctv.com/2022/01/15/ARTI8KL8EdrStLry5W3eRBon220115.shtml
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-5.png)
-
-编辑/校对/发稿：滚滚长江都是水
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,33 +2,33 @@
 ---
 
 
-## 因应台湾本土新冠病毒病例持续上升，国防部派遣军队对台北主要交通枢纽进行消毒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1881060/)
+## 完全接种加强剂的西弗州长Covid测试阳性并“极度不适”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1881087/)
 
-【撰稿日期】2022.01.17
+编译：Jenny Ball
 
-撰稿：台湾宝岛农场—新中国联邦静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-278.jpeg)
-台湾中央流行病指挥中心（CECC）周一（1 月17 日）宣布了17 例本地COVID 病例，这是自8 月4 日报告了20 例本地病例以来的单日最高病例数。 CECC负责人陈时中也确认了48例输入病例。指挥中心没有宣布任何死亡病例，COVID 死亡人数为851 人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1527.png)图片来源:thegatewaypundit.com
 
-在农历年连假1月29日即将来临前，，陆军33化学兵群40位官兵于1月17日上午9点分成两组被派往台北主要交通枢纽，分别是台北汽车转运站、桃园机场捷运台北站及台北车站其他区域进行消毒进行消毒，北市府环保局官员陈建良表示，从今日起至春节连假前，北市府的防疫消毒大队都将与陆军33化学兵群持续合作，针对台北市各重要交通转运枢纽、防疫旅馆、捷运站及夜市商圈等处所加强公共区域环境喷消，确保民众的安全健康。
+完全接种了\*加强剂\*的西弗吉尼亚州州长吉姆·贾斯蒂斯（Jim Justice）表示，他周二 Covid 检测呈阳性，感到“极度不适”。
 
-【新闻链接】
+“虽然我对我的测试结果呈阳性感到惊讶，但我感谢上帝，我已经接种了疫苗，我得到了鼓舞，并且我有一个令人难以置信的支持系统，尤其是我亲爱的家人，” 贾斯蒂斯在新闻稿中说。“话虽如此，我此时感到非常不适，我别无选择，只能将我的州情咨文演讲推迟到立法机关。”
 
-[https://www.taiwannews.com.tw/en/news/4412807](https://www.taiwannews.com.tw/en/news/4412807)
+这位 70 岁的州长说，他醒来时咳嗽，后来发烧和头痛。
 
-[https://www.taiwannews.com.tw/en/news/4412598](https://www.taiwannews.com.tw/en/news/4412598)
+州长周二接受了一轮单克隆抗体治疗。
 
-[https://mna.gpwb.gov.tw/news/detail/?UserKey=8e18d503-17a7-4873-bb47-5f7981750d52](https://mna.gpwb.gov.tw/news/detail/?UserKey=8e18d503-17a7-4873-bb47-5f7981750d52)
+“这发生在州情咨文的前一天晚上——我知道我不能去——让我很难过。西弗吉尼亚现在发生了很多大的事情，”贾斯蒂斯说。“因此，我为明天晚上无法与你们一起道歉，我特别向所有不得不改变计划的受邀嘉宾道歉。我会很快回到你们面前。”
+
+**评论：就标题一行字就打脸“疫苗”作用：即使篡改传统疫苗定义（防止病毒感染），按照CDC为Covid 量身定制的“疫苗定义”——防止感染后重症住院。如果还有人信CDC关于试验mRNA疫苗注射, 那就舍命去当白老鼠吧。**
+
+新闻来源:[thegatewaypundit.com][Fully Vaccinated \*And Boosted\* West Virginia Governor “Extremely Unwell” After Positive Covid Test](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-boosted-west-virginia-governor-extremely-unwell-positive-covid-test/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
 * * *
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
