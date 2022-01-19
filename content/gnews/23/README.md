@@ -2,26 +2,32 @@
 ---
 
 
-## 中共不放过小动物，香港发现仓鼠新冠将宰杀2000只动物
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1878917/)
+## 荒谬：希腊对60岁以上未接种疫苗群体按月罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1878943/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-48.png)
-图片来源：6do.news
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美联社1月18日报道，香港官员周二说，他们将宰杀2000只小动物，包括仓鼠，因为在宠物店有工作人员感染后检测出几个小动物新冠阳性。
+整理/编辑:文泓
 
-据农业渔业保护部门官员说，这个城市也将停止出售仓鼠以及停止进口一些小动物，该宠物店的店员周一新冠阳性是德尔塔变种，几只从荷兰进口的仓鼠也是新冠阳性。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/MZDIYE8KKX@JR7Q4.png)图片来源：VOA
 
-据美国疾控中心说，动物并没有表现出明显的传播新冠病毒的迹象，但香港的官员说，他们不能除外动物和人传染的可能性。
 
-香港农业渔业保护局主任梁兆辉说： “ 所有的宠物拥有者均必须保持良好的个人卫生，当你接触动物和食物后，就娶清洗你的手，不是去亲宠物。”
+当地时间1月18日，据联合新闻网报道，奥密克戎肆虐欧洲，希腊因感染新冠病毒人数激增，其重症患者多为60岁以上族群，今天政府对此年龄层的民众实施疫苗强制令，对未能接种者实施按月罚款。
 
-他们正在追踪1月7号后从这家宠物店买的仓鼠，并要求强制隔离，并将仓鼠上交政府处理。香港所有宠物店约有2000只小动物，包括仓鼠和毛丝鼠，将被人道处死。
+另据美联社报导，未接种疫苗的年长者，本月起将面临50欧元罚款，之后每个月处以100欧元罚款。
 
-##### **新闻来源： **[Hong Kong to kill 2,000 animals after hamsters get COVID-19](https://apnews.com/article/hong-kong-covid-hamsters-animals-75f2d3507bdb8255cd2aee79e962fc35)
+希腊1070万人口中约69%已完全接种疫苗（两针），略低于欧盟平均值70.3%。希腊政府曾宣布，在去年12月底前60岁以上族群必须强制接种疫苗。根据政府数据，这项强制令锁定的53万人中，完整接种率目前为41.5%。
 
-# ** **
+新闻链接：[希腊宣布60岁以上疫苗強制令 不接种就按月罚球](https://udn.com/news/story/121707/6041761?from=udn_ch2_menu_v2_main_cate)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

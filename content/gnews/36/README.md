@@ -2,45 +2,44 @@
 ---
 
 
-## 加拿大驳斥奥密克戎通过“海外邮件”抵达中国的指控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1878454/)
+## 参议员罗恩•约翰逊追寻与COVID-19有关的政府信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878612/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+据《justthenews.com》作者：Sophie Mann，2022年1月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1470-e1642567444842.png)图片源自 justthenews.com
+参议院常设调查小组委员会的最高共和党人罗恩•约翰逊（Sen. Ron Johnson）要求食品和药物管理局（FDA）以及疾病控制和预防中心（CDC）交出，与接受特定批次COVID-19疫苗的人遭受的不良反应有关的信息。
 
-整理报道：文扬
-编辑：文泓
+约翰逊在信中提到了他从研究人员那里获得的信息，这些研究人员利用CDC的疫苗不良事件报告系统（VAERS）的公开信息，发现了某些批次的COVID-19疫苗与不良事件之间可能存在的关系。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/FQC164R7TQAX4GWSQ.png)图片来源：CTV News Toronto
+**威斯康星州共和党人写道：“利用VAERS数据，这些研究人员发现，在过去30年中，季节性流感疫苗在VAERS中报告的单一批次不良事件从未超过137起。形成鲜明对比的是，在不到一年的时间里，有5297起不良事件与单一批次的COVID-19疫苗有关。此外，186个批次的COVID-19疫苗有超过1000份的不良事件报告，另有70个批次的报告在500-999起之间。”**
+
+“研究人员的分析进一步表明，仅在美国报告给VAERS的COVID-19疫苗的不良事件中，约80%与报告给VAERS的约1%的疫苗批次有关，约80%的严重不良事件（涉及急诊室就诊、住院或死亡）与报告给VAERS的特定疫苗批次约5%有关。”
+
+约翰逊对这些机构对COVID-19疫苗批次进行的各种质量控制检查感到好奇，并对以前报告给VAERS的数字未能在早期促使“认真”调查表示非常沮丧。
+
+该信继续写道：“此外，向VAERS报告的COVID-19疫苗的不良事件和死亡总数在许多个月前，就应该促使进行认真的调查和纠正行动。正如联邦卫生机构所指出的，VAERS上的报告只是实际不良事件的一小部分。”
+
+报告“只是实际不良事件的一小部分”。
+
+**“截至2021年12月17日，全世界共报告了983,758例与COVID-19疫苗相关的不良事件和20,622例死亡。在这20,622例死亡中，6,232例（30%）发生在接种后的第0、1或2天。相比之下，在30年的季节性流感疫苗报告中，总共有200,264起不良事件和2,078起死亡”。**
+
+**约翰逊最近还向国防部询问了与安东尼-福奇博士对其机构据称在中国武汉资助的功能增强研究的了解有关的一些问题，他要求在1月12日之前交付这些信息。**
+
+上周末，这位两届参议员宣布，他将在威斯康星州寻求连任，这必将成为今年秋季一场密切关注的竞选。
+
+原文连接：[https://justthenews.com/government/congress/ron-johnson-asks-fda-cdc-information-related-adverse-covid-19-vaccine-responses](https://justthenews.com/government/congress/ron-johnson-asks-fda-cdc-information-related-adverse-covid-19-vaccine-responses)
+
+翻译：洛杉矶盘古农场- TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 柯镇恶
 
 
-当地时间1月19日，针对中共国报告，北京首例奥密克戎病例可能是由一个人与来自多伦多的受污染邮件互动引起的，加拿大卫生官员对北京方面的说法表示怀疑，称这是“极不可能的”。加拿大专家认为，奥密克戎变种病毒菌株几乎无法在从北美到中国的邮件中幸存下来。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-周一，加拿大卫生部长让·伊夫·杜克洛斯在一个新闻发布会上说：“我认为这是一个非同寻常的观点。”他迅速回应了中国卫生专家早些时候提出的一项指控。
-
-北京疾病控制和预防中心表示，“不能排除”包含一批文件的快递邮件成为该案件的病源，该案件中有一人被诊断为Omicron感染——这是北京的首例此类病例。
-
-据中国媒体报道，该人于周六确诊，他收到了来自加拿大的邮件，随后发现其外包装和内包装表面以及文件本身都存在奥密克戎变种病毒菌株。中共官员说，这种情况下的菌株也与2021年12月在北美和新加坡发现的菌株“相似”。
-
-这一消息在加拿大遭到质疑。卫生部首席医疗顾问苏普里亚·夏尔马博士将这种假设“海外邮件”带病毒的描述称为“极不可能”。
-
-她告诉加拿大媒体，“你必须在一个（存活）物体上发现病毒，它必须在运输过程中存活下来”，她补充说：“这极不可能传播新冠病毒。”
-
-早些时候，中国病毒学家杨占秋说，该病毒即使在室温下也能存活数天，在较低温度下能存活更长时间。不过，加拿大卫生官员似乎并没有被中国专家的论点所说服。
-
-加拿大公共卫生署在一份声明中说：“虽然邮件可能受到污染，但在处理纸质邮件或纸板包裹（包括国际邮件）时感染新冠病毒的风险极低。”
-
-众多加拿大专家争相反驳中共国的说法。很多人还迅速假设，中共国声明背后的驱动因素是政治考量。多伦多大学传染病流行病学专家科林·弗内斯博士说：“中加关系不佳，对于中共病毒感染全世界的指责，它非常热衷于用“海外邮件”输入病毒这种说法来反驳。”
-
-原文链接： [Canada responds to claim Covid arrived in China via ‘overseas deliveries’ — RT World News](https://www.rt.com/news/546415-canada-china-omicron-covid-mail/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
