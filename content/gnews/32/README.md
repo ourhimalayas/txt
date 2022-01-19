@@ -2,61 +2,29 @@
 ---
 
 
-## 泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1880799/)
+## GTV新闻访谈简报|2022年1月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1880860/)
 
-翻译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1515.png)图片来源：naturalnews.com
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
-自然新闻 – “真相工程”（Project Veritas）在泄露的军事文件中，发现了另一个重磅炸弹。
+视频参看：[2022.01.19早GTV新闻访谈](https://gtv.org/video/id=61e811d6533c672fca7f5a77)
 
-事实证明，在治疗福奇流感方面非常有效的伊维菌素，自新冠病毒流行病开始以来，就在美国基本上被禁止使用。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-该文件的一部分显示，伊维菌素“在 2020 年 4 月被确定为有疗效的”，因为它“在疾病的所有阶段都有效，**因为它既能抑制病毒复制，又能调节免疫反应**。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-15.jpg)
 
-你没看错：**政府知道并完全承认**，至少对其他政府内部人士来说，**伊维菌素是一种治疗新冠病毒的药物**，出于政治的原因，这种药物一直没有被美国人民掌握。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-同一份文件还承认，羟氯喹也是一种治疗新冠病毒的物质。它与干扰素一样被概述为“SARSr-Cov 抑制剂”。
-
-正如我们现在看到的那样，**该计划是剥夺公众使用伊维菌素和羟氯喹等治疗药物，以引导人群直接使用瑞德西韦**（托尼·福奇部分拥有）以及“疫苗”。
-
-**泄露的军事文件承认，新冠病毒疫苗****不能预防任何新冠病毒变体**
-
-文件中的另一个启示解释说，生态健康联盟在向 DARPA 提供资金的提案中承认，“疫苗方法缺乏足够的表位覆盖范围来防止冠状病毒的准种。”
-
-当然，这意味着任何偏离原始 SARS-CoV-2 的新突变或变体都可以轻松绕过疫苗注射，及其所谓的“加强剂”。
-
-不仅如此，这些文件还显示注射“可能有害”，**因为它们会破坏免疫系统的抗体反应，尤其是对其他新冠病毒变异体的反应。**
-
-未接种疫苗的人感染原始的福奇流感康复后，会对所有突变和变异**产生永久免疫力**，但完全接种疫苗的人却不能如此，他们的身体将无法应对病毒感染。
-
-这就是这些注射的艾滋病发挥作用的地方，这意味着完全接种疫苗的人，基本上正在经历一个免疫消耗的过程，就像艾滋病患者一样。
-
-文件中写道：“使用具有一个表位的刺突蛋白疫苗，来对抗具有准种的刺突蛋白，疫苗的性质可能解释了接种疫苗的新 COVID 变体中不寻常的（并且可能是有害的）抗体反应。”
-
-从根本上说，除了单表位疫苗对 SARSr-CoV-WIV 几乎没有效果这一现实之外，如所示，该提案提供的信息表明，**应高度优先评估疫苗接种引起的抗体依赖性增强 ****(ADE) ****风险。**”
-
-所有这些都可能在疫苗出现之前就已经写好了，至少应该让公众知道。如果公众知道这些，这就不会有真正的大流行了。
-
-与此同时，**廉价、安全和有效的伊维菌素现在是如此禁忌，连给病人开这种药的医生都要受到终止行医的威胁。**
-
-如果这些证据不足以让你相信当权者想要你死，而不是像他们声称的那样“安全”，那么， 还要怎么你才相信！
-
-“如果有谁通过了历史上最大的心理行动你还没有打疫苗？恭喜！”零对冲的一位评论者开玩笑说。
-
-“是的，美国历史上最大的骗局，”另一个回答说。“为什么福奇还是个自由人（没有在牢狱里）？”
-
-“**他们不仅知道伊维菌素有效，而且他们知道即使在最危急的情况下，高剂量的伊维菌素＋ 维生素 ****C ****也能产生奇迹**，”另一位指出。
-
-素材链接：[naturalnews.com] [Leaked military documents show that ivermectin “works throughout all phases” of covid… so why has the medical establishment SUPPRESSED it for two years?](https://www.naturalnews.com/2022-01-12-leaked-documents-ivermectin-works-throughout-all-phases-covid.html)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
