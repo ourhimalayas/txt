@@ -2,31 +2,38 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月17日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1881277/)
+## 基于国安考量 拜登政府审查阿里云
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1881309/)
 
-配音：香草山农场 – 纳米
+**撰稿：日本东京方舟农场 幽蘭自得**
 
+《中央社》1月18日报道，据3名消息人士透露，拜登政府正在审查中共电子商务巨擘阿里巴巴的云端运算服务，以确认其业务是否会对美国构成国家安全风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0117text-SC-1187x1536-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月17日晚](https://gnews.org/zh-hans/1873524/)
+路透社报道，美国当局的审查重点放在阿里云计算公司（Alibaba Cloud，简称阿里云）如何储存美国客户数据，包含个资与智慧财产，以及中共政府是否可以取得这些数据。一名消息人士指出，中共阻挡美国用户取得云端储存信息的能力也是拜登政府担忧的问题之一。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+据报道，监管机构最终可能强制阿里云采取措施，降低其云端业务带来的风险，或者也可能禁止国内外的美国人使用其服务。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-304.jpg)图片来自中央社
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+据了解，此次审查工作由商务部情报与安全办公室（Office of Intelligence and Security, OIS）带领进行。该机构设立于前总统川普任内，可行使广泛权力，禁止或限制美国公司与来自中共国、俄罗斯、古巴、伊朗、北韩、委内瑞拉等“外国对手”的网络、电信与科技公司进行交易。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+根据一名消息人士和前朝官员的说法，川普治下的商业部也曾对阿里巴巴云端业务心存疑虑，但直到现任总统拜登于去年1月上任后，当局才对阿里云公司展开正式审查。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+川普政府曾于2020年8月警告阿里巴巴等中共国云端服务供货商，称应“避免美国公民最敏感的个资和美国企业最有价值的智能财产…在外国对手能够进入的云端系统上进行储存或处理”。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+针对路透社报道，美国商务部发言人表示，该机构不针对“交易审查存在与否”发表评论。中共驻华盛顿大使馆亦未回应置评请求，阿里巴巴则拒绝就此发表意见。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*参考链接：*
+
+[路透：美基於國安考量 審查阿里巴巴雲端服務](https://www.cna.com.tw/news/aopl/202201180399.aspx)
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 

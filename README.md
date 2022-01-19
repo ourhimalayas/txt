@@ -15,104 +15,104 @@
 
 ---
 
-### [有声|GTV新闻访谈简报|2022年1月17日晚](/content/gnews/1/README.md)
+### [基于国安考量 拜登政府审查阿里云](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|GTV新闻访谈简报|2022年1月17日晚](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [加拿大生活美谈 2022-01-13第三十八期](/content/gnews/2/README.md)
+### [加拿大生活美谈 2022-01-13第三十八期](/content/gnews/3/README.md)
  ` canadalifetalk`
 
-### [习近平出席中纪委全会 空谈 “零容忍”反腐败](/content/gnews/3/README.md)
+### [习近平出席中纪委全会 空谈 “零容忍”反腐败](/content/gnews/4/README.md)
  ` GTV News Talk`
 
-### [2022年1月19日大直播速记精萃](/content/gnews/4/README.md)
+### [2022年1月19日大直播速记精萃](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(二)](/content/gnews/5/README.md)
+### [中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(二)](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共反腐大片《零容忍》开播 再现“电视认罪”](/content/gnews/6/README.md)
+### [中共反腐大片《零容忍》开播 再现“电视认罪”](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [共产党法律超限战非常人所能承受 爆料革命新中国联邦誓死捍卫海外华人的司法公正](/content/gnews/7/README.md)
+### [共产党法律超限战非常人所能承受 爆料革命新中国联邦誓死捍卫海外华人的司法公正](/content/gnews/8/README.md)
  ` 焦點20分`
 
-### [扬帆每日速递 2012年1月19日版（1）](/content/gnews/8/README.md)
+### [扬帆每日速递 2012年1月19日版（1）](/content/gnews/9/README.md)
  ` 温哥华扬帆农场`
 
-### [西喜时事新闻简报—美国时事篇](/content/gnews/9/README.md)
+### [西喜时事新闻简报—美国时事篇](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国护士：我一直坚守岗位，如今却因没有打疫苗将被辞退](/content/gnews/10/README.md)
+### [英国护士：我一直坚守岗位，如今却因没有打疫苗将被辞退](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [第四针疫苗不能阻止Omicron](/content/gnews/11/README.md)
+### [第四针疫苗不能阻止Omicron](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [BVI最大的律师事务所和司法界已经被中共蓝金黄了个透 太平联盟等一系列案件 郭先生一定会赢](/content/gnews/12/README.md)
+### [BVI最大的律师事务所和司法界已经被中共蓝金黄了个透 太平联盟等一系列案件 郭先生一定会赢](/content/gnews/13/README.md)
  ` 焦點20分`
 
-### [以真灭共 依法灭共意义重大 香港所谓“自愿”自杀的实际人数已经超过2万人](/content/gnews/13/README.md)
+### [以真灭共 依法灭共意义重大 香港所谓“自愿”自杀的实际人数已经超过2万人](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [跨越美加边境的货车司机受够了强制疫苗，决定停运罢工](/content/gnews/14/README.md)
+### [跨越美加边境的货车司机受够了强制疫苗，决定停运罢工](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [完全接种加强剂的西弗州长Covid测试阳性并“极度不适”](/content/gnews/15/README.md)
+### [完全接种加强剂的西弗州长Covid测试阳性并“极度不适”](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共警告冬奥会参赛运动员切勿乱说乱动](/content/gnews/16/README.md)
+### [中共警告冬奥会参赛运动员切勿乱说乱动](/content/gnews/17/README.md)
  ` 华盛顿DC-Russian`
 
-### [文贵爆料 1.19： 原来他们才是疫苗的“弄潮儿”](/content/gnews/17/README.md)
+### [文贵爆料 1.19： 原来他们才是疫苗的“弄潮儿”](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [同济大学发布中共国内首款无针疫苗注射机器人](/content/gnews/18/README.md)
+### [同济大学发布中共国内首款无针疫苗注射机器人](/content/gnews/19/README.md)
  ` G-NEWS TAIWAN`
 
-### [因应台湾本土新冠病毒病例持续上升，国防部派遣军队对台北主要交通枢纽进行消毒](/content/gnews/19/README.md)
+### [因应台湾本土新冠病毒病例持续上升，国防部派遣军队对台北主要交通枢纽进行消毒](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [1.19文贵直播：习大神最后的“辉煌”，最后的演讲](/content/gnews/20/README.md)
+### [1.19文贵直播：习大神最后的“辉煌”，最后的演讲](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [加拿大魁北克想對未接種疫苗的人征稅，但專家說會適得其反](/content/gnews/21/README.md)
+### [加拿大魁北克想對未接種疫苗的人征稅，但專家說會適得其反](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [PAG诉郭文贵案暴露美国司法至暗面：美立国根基正被中共凿空](/content/gnews/22/README.md)
+### [PAG诉郭文贵案暴露美国司法至暗面：美立国根基正被中共凿空](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [即将上任的弗州州长计划加入针对拜登疫苗授权的诉讼](/content/gnews/23/README.md)
+### [即将上任的弗州州长计划加入针对拜登疫苗授权的诉讼](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [做一根压死CCP的稻草](/content/gnews/24/README.md)
+### [做一根压死CCP的稻草](/content/gnews/25/README.md)
  ` 银河勇气之星`
 
-### [不要为了买喜币在国内冒着生命危险](/content/gnews/25/README.md)
+### [不要为了买喜币在国内冒着生命危险](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [1月18日联盟答疑，G系列相关信息文字版](/content/gnews/26/README.md)
+### [1月18日联盟答疑，G系列相关信息文字版](/content/gnews/27/README.md)
  ` 全球G系列咨服群`
 
-### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [全球调查显示人们对政府媒体和企业失去信任](/content/gnews/28/README.md)
+### [全球调查显示人们对政府媒体和企业失去信任](/content/gnews/29/README.md)
  ` 华盛顿DC-Russian`
 
-### [加拿大保守党呼吁对中共收购新锂公司进行安全审查](/content/gnews/29/README.md)
+### [加拿大保守党呼吁对中共收购新锂公司进行安全审查](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共间谍在议会活动曝光，英国将立法打击外国干涉](/content/gnews/30/README.md)
+### [中共间谍在议会活动曝光，英国将立法打击外国干涉](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效](/content/gnews/31/README.md)
+### [泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](/content/gnews/32/README.md)
+### [2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
-
-### [【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡](/content/gnews/33/README.md)
- ` 温哥华扬帆农场`
 
 ### [斯洛文尼亚与台湾就互设代表处进行洽谈](/content/gnews/34/README.md)
  ` GTV新闻访谈`
