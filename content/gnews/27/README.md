@@ -2,41 +2,27 @@
 ---
 
 
-## 七哥谈中共邪教的特质（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877622/)
+## 吴征收买FBI前雇员突创郭文贵私宅
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877662/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+整理：雅典娜速记组
+编辑：Rianna
 
-来源：郭先生2022-01-14直播09：47：36摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/R4PTO1JUX0T2CN6XZ3-1.png)图片来源：雅典娜设计组
 
-主崇拜，第一个主崇拜就是毛泽东。毛泽东的像章是什么？毛泽东在中间旁边是个太阳，散发着太阳的光，这就毛泽东，是吧？旧金山，什么北京的金山上毛泽东是红太阳，是吧？主崇拜，第一邪教特质，共产党干了吧？第二条，最核心的聚敛钱财。聚敛钱财，它把土地都给割走了，地主都杀了，是不是啊？就是骗取钱财和聚敛钱财；第三，知道叫什么吗？铲侠？啊？不知道吧铲侠？反社会！共产党反社会吧？全人类反社会；第四个是啥？长岛哥能想想吗？
 
-长岛哥：精神控制，思想控制，是吧？
+2020年病毒期间，郭文贵先生录了一个说准备了口罩，准备了消毒品，需要消毒剂，都在住的这个房子里。3天后，警察、FBI敲门突然出现在郭先生家里，在美国这是不允许的，它没有任何法律依据命令， 他们说有人举报郭先生私自囤积大量的社会被定义为的战时商品，FBI还有警察，结果郭先生的律师还有那个保镖过来说那你看吧，看车库里边儿，口罩手套清洁品是捐献出去的，结果说你们捐给谁了？郭文贵先生马上给他提供捐给的教堂、医院…，整个我住的地方康州，我是唯一一家捐口罩的，代表法制基金，就它一核对是真的，然后抱歉地就离开了。大家知道这是谁干的吗？FBI内部人才能有这样的动力和权力干这种事情，这个FBI的Richard就是原来郭先生的保镖公司的合伙人，和吴征的现在合伙人和PAX官司的调查人，他是整个曼哈顿的老大，差点成为FBI老大， FBI前三号人物。就这人戴着爱马仕领带，跟吴征在那个蒙古包里边吃边看美女跳舞的就是他，他又参与PAX官司，这不就是利益冲突。
 
-郭文贵先生：对了，精神控制，是吧！精神控制，共产党都干了吧？最后呢？最后第六个呢？说说。查你的谷歌呢？最后是啥呀？没人知道啦？
+郭文贵团队一定会找那个FBI的人，一定会问他为什么当时到这块非法的去信息调查？谁让他来的，他们也会起诉KKL律师所。再一个，现在应该是司法部在调查的就是Richard Frankel， FBI的老大和他们之间的关系，还有多维为他公开做假证的这个事情，会对法院法官最后起决定起诉。
 
-小飞象：是那个结社吗？秘密结社？
+资料来源：郭先生GTV和盖特直播视频。
 
-郭文贵先生：秘密结社。共产党在1913年以前它就是秘密结社，是吧？这叫邪教的本质，主控制、骗取钱财、精神控制、反人类，全是它干的。但是它给所有的别人民主的，它全定为是所谓反党的。现在你看这个党有多可怕！在共产党进入中国掌握政权以前，所有共产党的活动都叫民主活动，都叫正义的活动。自从1949年以后，所有在中国的活动或者上街抗议，全列为反党、反社会、反国家，一直到今天。
+发布：  tianzhihuan
 
-校对：HimaFaFA
-发布：HimaBoy
-
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

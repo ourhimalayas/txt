@@ -2,27 +2,37 @@
 ---
 
 
-## 吴征收买FBI前雇员突创郭文贵私宅
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877662/)
+## 习近平威胁：对抗中国将有“灾难性后果”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1877679/)
 
-整理：雅典娜速记组
-编辑：Rianna
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/R4PTO1JUX0T2CN6XZ3-1.png)图片来源：雅典娜设计组
+翻译/整理：Little Lamp
+编辑：守望黎明
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Xi.jpeg)图片来源：Press One
 
 
-2020年病毒期间，郭文贵先生录了一个说准备了口罩，准备了消毒品，需要消毒剂，都在住的这个房子里。3天后，警察、FBI敲门突然出现在郭先生家里，在美国这是不允许的，它没有任何法律依据命令， 他们说有人举报郭先生私自囤积大量的社会被定义为的战时商品，FBI还有警察，结果郭先生的律师还有那个保镖过来说那你看吧，看车库里边儿，口罩手套清洁品是捐献出去的，结果说你们捐给谁了？郭文贵先生马上给他提供捐给的教堂、医院…，整个我住的地方康州，我是唯一一家捐口罩的，代表法制基金，就它一核对是真的，然后抱歉地就离开了。大家知道这是谁干的吗？FBI内部人才能有这样的动力和权力干这种事情，这个FBI的Richard就是原来郭先生的保镖公司的合伙人，和吴征的现在合伙人和PAX官司的调查人，他是整个曼哈顿的老大，差点成为FBI老大， FBI前三号人物。就这人戴着爱马仕领带，跟吴征在那个蒙古包里边吃边看美女跳舞的就是他，他又参与PAX官司，这不就是利益冲突。
+**中国领导人习近平1****月****17****日威胁****说，与中国对抗只会导致“灾难性后果”。2022****年****1****月****17****日，****习近平在****“****达沃斯世界经济论坛****”视频会议上****发表讲话，表示世界需要摆脱他所****说****的“冷战思维”。**
 
-郭文贵团队一定会找那个FBI的人，一定会问他为什么当时到这块非法的去信息调查？谁让他来的，他们也会起诉KKL律师所。再一个，现在应该是司法部在调查的就是Richard Frankel， FBI的老大和他们之间的关系，还有多维为他公开做假证的这个事情，会对法院法官最后起决定起诉。
+**习近平说：****“****我们今天的世界****并不安静****；煽动仇恨和偏见的言论比比皆是。由此产生的遏制、压制或对抗行为会造成****深重****伤害，****更不幸的是，会威胁世界和平和安全****。历史一再证明，对抗不能解决问题，它只会招致灾难性的后果。保护主义和单边主义保护不了任何人；他们最终损害了他人和自己的利益。更甚的是霸道、霸凌行径，逆历史潮流而动。”**
 
-资料来源：郭先生GTV和盖特直播视频。
+**习近平还批评了西方国家，****说****这些国家一直在采取经济政策并结成联盟来对抗中国。例如，美国通过了《维吾尔强迫劳动法》，禁止从中国新疆地区进口涉嫌通过维吾尔人强迫劳动生产的产品。****美国的“清洁网络”**** ****行动将中国的华为公司排除在外。****9 ****月，美国、澳大利亚和英国还达成了一项新的国防技术共享协议，旨在增强澳大利亚在印太地区的军事能力。**
 
-发布：  tianzhihuan
+**习近平说：****“一意孤行地****建设’高墙独院’或’平行体系’，热衷于拼凑排他性的小圈子或集团，使世界两极分化，过度夸大国家安全概念以阻挡其他国家的经济和技术进步，煽动意识形态对立，将经济、科学和技术问题政治化或武器化，这些行为将严重削弱应对共同挑战的国际努力。****”**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**这****已经****不是习近平第一次****谴责****各国采****用****冷战思维****了****。**
+
+原文链接：[China’s Xi threatens ‘catastrophic consequences’ if China confronted](https://americanmilitarynews.com/2022/01/chinas-xi-threatens-catastrophic-consequences-if-china-confronted/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
