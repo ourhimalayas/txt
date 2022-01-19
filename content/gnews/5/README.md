@@ -2,52 +2,46 @@
 ---
 
 
-## 病毒学家和 mRNA 先驱马龙博士预测大觉醒以应对大重置
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1879733/)
+## UFC总裁对否定 Covid 的早期治疗表示不满
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1879817/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip03-4.png)图片来源：newstarget.com
-随着人们对主流媒体持续操纵鼓吹世界经济论坛所支持的“大重置”的认识，今年必将发生“大觉醒”。
+**翻译：Jenny Ball**
 
-著名病毒学家和 mRNA 先驱罗伯特·马龙博士(（Rpbert  Malone）)真实地揭露了实验性辉瑞和 Moderna 疫苗的有害形式，这导致他在 Twitter、YouTube 和 Facebook 被审查，他说，民众正在与主流媒体打一场信息战，主流媒体掩盖真相，并强制推行大型科技公司和大型制药公司的叙述。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip05-5.png)
 
-“这是21 世纪全面的媒体战、信息战、政治战，这是我们以前从未见过的形式，并且，（他们）在全球范围内进行了协调，”马龙告诉 《领队冲》ZeroHedge 作家克里斯蒂·利。 “对我来说，另一件事是，世界经济论坛代表的东西，达成的协议，我个人真的非常抗拒。” （相关：**世界经济论坛模拟可能导致“大重置”的全球网络攻击**。）
+终极格斗锦标赛 (UFC) 总裁达纳·怀特（Dama White）本周末被问及 200 多名“医生和科学专业人士”要求Spotify对与乔·罗根（Joe Rogan）的播客有关的大规模“错误”信息事件采取行动的事件。
 
-马龙说，民众对大重置的真正意图和局限性的认识不断提高，令他感到鼓舞，大型机构自上而下治理的功能失调，结构的改变，将是这种认识的显着结果之一。
+与往常一样，怀特并没有退缩，谈到关于对单克隆抗体和对 Covid 的早期治疗的否认。
 
-虽然很难，但马龙说，他总是在寻找一线希望。
+广受欢迎的播客乔·罗根最近告诉他的数千万听众，他在 48 小时内，通过服用伊维菌素、单克隆抗体和维生素D，治好了 Covid 感染。
 
-“如果人类在历史的这一刻认识到，其相互联系，以及社区意识、完整性和人类尊严的重要性，**我们将有一个大觉醒来应对大重置**，”马龙说。 “人们来找我谈论大重置。我当时想，‘啊，这个太疯狂，’但后来大重置都被记录在案了，然后你看到它被部署了。就在这里——他们毫不隐瞒他们为此感到自豪。”
+罗根说，服用伊维菌素和单克隆抗体后，他几乎立即感觉好多了。
 
-在主流媒体的攻击下，马龙指出，越来越多的证据表明，疫苗是有害的，并且可能致命。专门研究病毒学和疫苗的马龙，**实际上发明了辉瑞和 Moderna 正在使用的 mRNA 技术**。
+然而，真正让那些马克思主义者超速追究的是罗根 12 月 31 日的一集，其主角是 mRNA 和 DNA 疫苗的发明者马龙博士（Robert Malone）。
 
-**马龙对大规模疫苗接种表示担忧**
+马龙博士最近因说出有关 Covid 疫苗危险的真相而被禁止使用 Twitter，因此，现在马克思主义者关注起罗根的播客。
 
-1 月初，马龙在“乔·罗根体验”(Joe Rogan Experience) 的热门节目中做客时，表达了他对世界各国政府大规模疫苗接种计划的担忧。
+当被问及前 UFC 评论员乔·罗根时，**怀特对那些不会为新冠病毒患者开伊维菌素和单克隆抗体的医生表示不满。**
 
-YouTube 已经删除了播客的片段，但第三方频道将这一集上传到了罗根拥有独家协议的“现场” Spotify。审查制度引发了右翼政客和政治评论员的愤怒。
+“这令人作呕……这是我一生中见过的最疯狂的事情之一，”怀特谈到拒绝对 Covid 患者进行有效治疗时说。
 
-马龙将大规模接种疫苗描述为必须停止的违法行为。 “我相信没有人应该对这些实验产品有疫苗授权，”马龙说。 “我认为这完全违反了《**纽伦堡法典》、《赫尔辛基协议》、《共同规则》、《贝尔蒙特报告》等**。这是一种无法无天的行为——必须完全停止。”
+素材视频链接：
 
-马龙承认，尽管有业内人士对医学政治的看法，但他并不准备成为公众关注的焦点，但他表示，他相信，现在的信息控制是全球范围内协调的。
 
-“我没想到会是这样，我发现自己处于这场抵抗风暴的中心。它深刻地改变了我对我们收到的信息的看法，”马龙说。 “我之前没有意识到全球协调的信息控制，它不是评估真相，而是讲述故事。”
 
-马龙表示，在阅读跨国主义书籍后，是否会建立新世界秩序，他持怀疑态度。
+> [UFC President Dana White Goes Off About Denial of Monoclonal Antibodies and Early Treatment for Covid (VIDEO)](https://www.thegatewaypundit.com/2022/01/ufc-president-dana-white-goes-off-denial-monoclonal-antibodies-early-treatment-covid-video/)
 
-原来它就发生在今天。 “[我们] 看到，它以一种国家主权、政府越来越无关紧要的方式实时上演。你知道，这就是人们必须醒来的事情。这与疫苗无关。疫苗只是一种手段。”
 
-**新闻来源**：[newstarget.com][Leading virologist and mRNA pioneer Dr. Robert Malone predicts Great Awakening in response to Great Reset](https://www.newstarget.com/2022-01-17-great-awakening-after-great-reset-will-happen.html)
+
+**新闻来源**：[thegatewaypundit.com][UFC President Dana White Goes Off About Denial of Monoclonal Antibodies and Early Treatment for Covid (VIDEO)](https://www.thegatewaypundit.com/2022/01/ufc-president-dana-white-goes-off-denial-monoclonal-antibodies-early-treatment-covid-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
 * * *
 
-***审核: 文乐
-校对: 阿伯塔
+***审核：文乐
+校对：阿伯塔
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
-
-
 
  
 

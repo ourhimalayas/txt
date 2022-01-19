@@ -2,108 +2,28 @@
 ---
 
 
-## 罗伯特·马龙博士指出我们生活在一种群体形成精神病中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879545/)
+## 蒙塔尼耶:部分医师参与这场毒疫苗的人类大屠杀
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1879626/)
 
-[https://gtv.org/video/id=61e7da0f87664c47acd6ba9d](https://gtv.org/video/id=61e7da0f87664c47acd6ba9d)
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Image-1-2-9.jpg)
+图片:网路
 
-**Dr Robert Malone
-罗伯特·马龙博士**
+“人类正在面临一场大屠杀，刽子手包括部分的医生。”法国病毒学家，2008年诺贝尔生理学或医学奖得主吕克•安托万•蒙塔尼耶（Luc Antoine Montagnier ）在卢森堡议会上指出。
 
-In the 20s and 30s, you know, very intelligent, highly educated population
-在20和30年代，你知道，非常聪明，受过高等教育的人群
+**伤害病人的医学是伪医学**
 
-and they went barking mad
-他们变疯了
+“医生从希波克拉底誓言出发,最重要的就是不能伤害病人。如果说导致死亡的医学可以被称为医学,我绝对反对这样的想法。医学必须是尊重人的生命，医学必须是治癒、治疗病人,而不是杀死他们。” 蒙塔尼耶说，”然而，人类现在正在面临一个大屠杀，刽子手包括部分医生。” 蒙塔尼耶提醒大家，”医学界利用市场行销的商业规则,出售及强制使用能够杀死一定数量人的制剂。即便现在还没有杀死所有的人，但事实上它们已经杀死老人，现在开始杀死年轻、健康的人，甚至是儿童。不可思议的是，当局正在讨论湖和将疫苗接种扩大到儿童身上。” 蒙塔尼耶对世人提出警告。
 
-And how did that happen? The answer is mass formation psychosis
-那是怎么发生的？ 答案是群体形成的精神病
+**COVID疫苗使人体不断复制错误讯息**
 
-When you have a society that has become decoupled from each other
-当你有一个彼此脱钩的社会
+“在医学伦理层面，我绝对反对COVID疫苗。这些疫苗是毒药，它们不是真正的疫苗，它们是mRNA制剂，会在身体不断复制错误的讯息，破坏人体免疫系统。目前没有人清楚这些错误讯息会导致人体多大的灾难，这会是一个可怕的未知数!” 荣获多项奖项的病毒学家蒙塔尼耶提出沉重呼吁。
 
-and has free floating anxiety, in a sense that things don’t make sense
-并且充斥着焦虑时，从某种意义上说，事情就变得没有意义
+**COVID疫苗使人体产生脘蛋白(prion)，导致神经病变**
 
-We can’t understand it
-我们无法理解
+一年多以前已经有研究指出，COVID疫苗会使人体产生脘蛋白(prion)，以一种不可预测的方式在我们的身体诱发蛋白质的变化，一些神经病变也可能与之有关，譬如狂牛症与老年痴呆症。
 
-And then their attention gets focused by a leader
-然后他们的注意力被领导者集中了
-
-or series of events on one small point just like hypnosis
-或在一个小点上发生的一系列事件，就像催眠一样
-
-They literally become hypnotized and can be led anywhere
-他们真的被催眠了而且可以被带到任何地方
-
-And one of the aspects of that phenomena is the people that they identify as their leaders
-这种现象的一个方面是他们认为自己的领导者
-
-The ones typically that come in and say, you have this pain and I can solve it for you
-那些通常会说，你有这种痛苦，我可以为你解决
-
-I and I alone, okay, can fix this problem for you
-我，且只有我，好的，可以为你解决这个问题
-
-Okay, then they will lead, they will follow that person through
-好的，然后人们会跟随那个领导者
-
-It doesn’t matter whether they lie to them, or whatever, the data are irrelevant
-不管领导者是否对他们撒谎，或者无论做什么，数据、事实都是无关紧要的
-
-And furthermore, anybody who questions that narrative is to be immediately attacked
-此外，任何质疑该叙述的人都将立即受到攻击
-
-they are the other. This is central to mass formation psychosis
-他们是异教徒。这是群体形成精神病的核心
-
-And this is what has happened. We had all those conditions
-这就是发生的事情，我们拥有所有这些条件
-
-You remember back before 2019. Everybody was complaining
-你还记得2019年之前，每个人都在抱怨
-
-well, doesn’t make sense. Blah, blah, blah
-好吧，没有意义， 等等等等等等
-
-And we’re all isolated from each other
-我们都彼此孤立
-
-We’re all on our little tools
-我们都在沉迷于我们的小工具
-
-We’re not connected socially anymore, except through social media
-我们不再有社交联系，除了通过社交媒体
-
-And then this thing happened and everybody focused on it
-然后COVID-19发生了，每个人都专注于它
-
-That is how aspiration psychosis happens
-吸入性精神病就是这样发生的
-
-And that is what’s happened here
-这就是这里发生的事情
-
-* * *
-
-Date:01/16/2022
-原视频标题: Dr Robert Malone suggests we are living through a mass formation psychosis
-罗伯特·马龙博士指出我们生活在一种群体形成精神病中
-原视频日期：2022/01/16
-原视频链接: [**https://gettr.com/post/plh19l66e5**](https://gettr.com/post/plh19l66e5)
-任务编号：KE354(3505)
-视频时间段 : 0:00-1:41
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频:[https://gettr.com/post/pp3dazdd66](https://gettr.com/post/pp3dazdd66)
 
  
 
