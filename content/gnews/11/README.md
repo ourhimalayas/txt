@@ -2,25 +2,39 @@
 ---
 
 
-## 共产党的记者准备污蔑造谣我们(四)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1878682/)
+## 有声|中共多地要求低风险返乡民众集中隔离自费食宿
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878732/)
 
-#### 整理：雅典娜速记组
-编辑：陶子
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党的记者准备污蔑造谣我们.004.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-```
-最早看到全视频的是大卫和木兰。这整个路数。共产党玩这个路数，就刚才那哥们说的，他说这件事情，美国FBI应该知道。所以说今天我首先和在线的战友们说，一定要记住，你们还有很多没有在这个直播出现的，同心同框的。 受到伤害的这事儿是一定要给到FBI去报案，你们一定要在法院采取法律行动。我还没说呢，你们一定要采取行动的。这对你们来讲，是未来对准爆料革命是个巨大的威胁。特别是小斯基，你们站在前线的人，就已经是圣人了。现在，你不说话就是说明你认可了他们的假报道。还有说到的所谓那些革命，而且再把你们定为邪教，你看说你们骚扰乱伦彪家威胁他家，就是你们干的。我们骚扰他什么了？就没有一句说到滕彪1万多页的我和我侄儿媳妇上床。
-```
+1月17日，“开封一刀切”的微博话题被顶上墙内热搜。
 
+据了解，河南省开封市17日突然宣布了一条最新的防疫政策，要求来自郑州低风险地区的返乡人员也需进行14天的集中隔离并自费食宿。这条“一刀切”式的政策当即引起了大量需要双城生活的民众的强烈抗议。
 
+但是，开封市政府的这一“霸王条例”并非个案。近期，中共国内的山西、陕西、河南、广西、黑龙江等多个省份下辖的地方政府都纷纷出台政策，要求来自低风险地区的返乡人群必须进行集中隔离，并为自己隔离期间产生的一切费用买单。
 
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
+原文链接：[中共多地要求低风险返乡民众集中隔离自费食宿](https://gnews.org/zh-hans/1873830/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  
