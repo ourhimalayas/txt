@@ -2,35 +2,29 @@
 ---
 
 
-## 英国政府的疫情政策在逐渐放松
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876513/)
+## 【中日财经爆】中共房地产过度开发 粮食危机迫在眉睫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1877702/)
 
-作者：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据英国媒体当地时间1月16日报道，英国政府正在拟定计划，当民众感染中共病毒并痊愈后，不必再接受法律的约束进行自我隔离。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-7.jpg)
-报道指出，随着英国确诊病例的持续下降，英国首相约翰逊希望永久撤销有关中共病毒的紧急法律。虽然官方的指导原则仍将持续，但违反者不会再遭到罚款或者法律处罚。英国卫生部长贾维德上周宣布，为缓解中共病毒奥密克戎变异株对医院和学校造成的压力，确诊者的最低隔离期从7天缩减到5天。如果在隔离的第五天或第六天，取得核酸阴性结果，就可以结束隔离。
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-1-9.png)[*图片来源*](https://www.watchinese.com/sites/watchinese.com/files/article/2020/05/211/b211p76.jpg)
+中共各级政府以刺激经济为目的，通过转售农田来吸引开发商，导致过度开发，空楼林立。现今虽然多地已停止建设，但据高盛公司估计，中共地方政府的未偿债务已经膨胀到840亿美元。
 
-据悉，英国政府废除自我隔离法将在未来几周内制定，预计最早在春季公布。
+恒大集团，佳兆业集团等多家房地产企业的“金融产品”至今未能兑现，预计未偿还的低评级公司债券总额高达650亿美元。
 
-去年12月8日，由于奥密克戎的肆虐，英国启动了包括强制戴口罩、居家办公等在内的所谓“B”计划，致使经济活动减少，很多行业因员工自我隔离缺少人手。如今，随着确诊病例数量的下降，约翰逊也在考虑取消这项计划。
+房地产过度开发导致中国农业急剧衰退，即将发生的温饱问题迫在眉睫。
 
-参考链接：[英国政府的疫情政策在逐渐放松](https://cn.rti.org.tw/news/view/id/2122299)
+去年12月，中央农村工作会议在北京召开，中共总书记习近平发表讲话提到“2025年实现猪肉自给率95%”。奇怪，2025年中国制造计划的目标不是半导体、AI（人工智能）、量子计算机吗？看来这些工业计划已被振兴农业取代了。习近平本人专门敦促增加大豆和菜籽油种植，抢救农村，保农业。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+中共病毒疫情，以及台风、洪水和山体滑坡等自然灾害也使农田遭到严重破坏。此外，到处都建起了住宅区和公寓楼，山区和梯田被太阳能电池板覆盖，农业用地数量急剧减少。大量的大豆、玉米、小麦和猪肉从美国、巴西、阿根廷和乌克兰进口。与2010年相比，2021年大豆进口增长了10倍，而玉米在过去三年中增长了两倍。在2020年度统计中，粮食进口总值为981亿美元，进口量约为7亿吨。
 
-总编：Zion文恩
-编辑：飞虹
-校对/发稿：Hetangyuese
+同时影响也波及到日本，蛋黄酱、食用油、面条、面包等的价格正在上涨，而大豆短缺可能会推高豆腐、酱油和纳豆的价格，所以日本也迎来了新一轮的涨价潮。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息源：[**中国で「豚肉食べられない日が来る」　マンション林立で農耕地激減、農業の劇的な衰退で飢餓迫る**](https://news.yahoo.co.jp/articles/7e81ba4aabce432b031117796dc1d8fb9a0e1046)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
 
  
 

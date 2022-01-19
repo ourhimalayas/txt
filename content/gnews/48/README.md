@@ -2,16 +2,16 @@
 ---
 
 
-## 夏威夷考虑将加强剂纳入完全接种疫苗的考量标准
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876500/)
+## 卡塔尔3周大婴儿因感染中共病毒死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876509/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：新西兰伊甸农场 – 亚伦
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒 18日报道，夏威夷州州长在接受采访时表示，政府正考虑提高完全接种者的门槛，要求国内旅客必须接种完中共病毒疫苗加强剂之后，才能被视为完全接种者，否则将面临隔离，他指出，该政策暂时不会生效，使民众有足够时间适应。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-3.jpg)
-按照现行规定，完全接种疫苗的国内旅客在进入夏威夷之后，可以豁免为期五天的强制隔离期，而未完全接种者必须在前往该州后的一天内提供病毒检测阴性证明。截至目前，夏威夷州中共病毒疫苗的完全接种率已达75.2%。
+台媒 17日报道，卡塔尔日前通报了一起十分罕见的，婴儿感染中共病毒的死亡病例。该国卫生部在声明中指出，一名3周大的婴儿因严重感染中共病毒而不幸死亡，目前，没有发现这名婴儿有任何的遗传疾病或其他潜在的健康问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-6.jpg)
+据了解，这已经是卡塔尔发生的第二起婴幼儿感染中共病毒的死亡病例。对此，卡塔尔卫生部表示，与年长者相比，婴幼儿感染中共病毒后，演变成重症的情形并不常见，但自奥密克戎病毒株广泛传播以来，有不少国家的卫生机构发现，因感染奥密克戎病毒株而需要特别医疗护理的婴幼儿呈上升趋势。
 
-参考链接：[夏威夷考虑将加强剂纳入完全接种疫苗的考量标准](https://www.foxnews.com/politics/hawaii-weighs-requiring-booster-for-travelers-to-be-considered-fully-vaccinated?utm_source=ground.news&amp;utm_medium=referral)
+参考链接：[卡塔尔3周大婴儿因感染中共病毒死亡](https://cn.rti.org.tw/news/view/id/2122295)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 

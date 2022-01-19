@@ -2,21 +2,25 @@
 ---
 
 
-## 抗议疫苗暴政 歌曲被YouTube迅速下架
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876501/)
+## 英国政府的疫情政策在逐渐放松
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876513/)
 
-作者：银河系农场 – 骄子
+作者：纽约磐石农场 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-获奖无数的加拿大音乐人 Matt Brevner 近日在 youtube 上，上传了一首新歌 more of us，歌曲婉转控诉了加拿大政府在中共病毒大流行期间，对民众施行的疫苗暴政，以及对医护工作者的不公对待，包括超时工作，强制疫苗等等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-4.jpg)
-歌曲上线后受到网民追捧，迅速成为热门，同时也引起加拿大当局和 youtube 后台的关注。目前，youtube 平台以涉嫌煽动暴力和传播虚假讯息为由，已将歌曲下架。
+据英国媒体当地时间1月16日报道，英国政府正在拟定计划，当民众感染中共病毒并痊愈后，不必再接受法律的约束进行自我隔离。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture888-7.jpg)
+报道指出，随着英国确诊病例的持续下降，英国首相约翰逊希望永久撤销有关中共病毒的紧急法律。虽然官方的指导原则仍将持续，但违反者不会再遭到罚款或者法律处罚。英国卫生部长贾维德上周宣布，为缓解中共病毒奥密克戎变异株对医院和学校造成的压力，确诊者的最低隔离期从7天缩减到5天。如果在隔离的第五天或第六天，取得核酸阴性结果，就可以结束隔离。
 
-参考链接：[抗议疫苗暴政 歌曲被YouTube迅速下架](https://thenationalpulse.com/2022/01/17/anti-vaxx-mandate-song-more-of-us-deboosted-from-youtube/)
+据悉，英国政府废除自我隔离法将在未来几周内制定，预计最早在春季公布。
+
+去年12月8日，由于奥密克戎的肆虐，英国启动了包括强制戴口罩、居家办公等在内的所谓“B”计划，致使经济活动减少，很多行业因员工自我隔离缺少人手。如今，随着确诊病例数量的下降，约翰逊也在考虑取消这项计划。
+
+参考链接：[英国政府的疫情政策在逐渐放松](https://cn.rti.org.tw/news/view/id/2122299)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：飞虹
-编辑：天滅中共
+总编：Zion文恩
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
