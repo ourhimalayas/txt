@@ -2,20 +2,33 @@
 ---
 
 
-## 墙内多个知名网站转载了东方网报道“诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类”的新闻
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1875715/)
+## 有声|北京冬奥会在即 新型病毒来袭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1875742/)
 
-撰稿在；追着曙光跑
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共北京市卫健委通报，1月15日0时至24时，海淀区新增1例本土确诊病例。当日晚间，北京市中共病毒疫情防控工作第266场新闻发布会通报，北京新增本土确诊病例感染奥密克戎变异株。
 
-据东方网1月18日的报道，当地时间17日，法国著名病毒学家Luc Montagnier 吕克·蒙塔尼耶来到意大利，参加当地的反疫苗集会。在现场，他收到了“英雄般”的欢迎和支持。他称：未接种疫苗的人将拯救人类。他此前还称：大规模接种疫苗是不可接受的错误。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-18-at-22.48.58.jpeg)图片来源：原新闻
-蒙塔尼耶曾获2008年的诺贝尔生理学或医学奖，是世界艾滋病研究及预防基金会的共同奠基人和国际病毒联盟的总监。
+这是首次在北京得到确认的奥密克戎菌株感染病例。下月4日北京冬奥会开幕在即，随着习近平领导层所奉行的“零感染”政策的实施，紧张局势恐进一步加剧。
 
-东方网还把蒙塔尼耶参加当地的反疫苗集会的视频，翻译成中文上传到了此报道里，新浪网新闻、网易新闻和搜狐新闻均转载了此报道。
+该病例近14天内无外省市旅居史，无相关病例接触史，染病源头不明。而根据北京当局公布的信息，病例曾到过多家购物中心、超市、餐馆、咖啡厅，还曾去滑雪场游玩，到剧院看脱口秀。目前北京政府已调集市级流调队伍赴现场，开展溯源工作。
 
-信息来源：[诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
-[网易新闻转载报道](https://3g.163.com/dy/article/GU0HF8M9053469KO.html?spss=adap_pc) [新浪新闻转载报道](https://k.sina.cn/article_7517400647_1c0126e4705902g9ez.html?from=news) [搜狐转载报道](https://m.sohu.com/a/517415465_120823584/?pvid=000115_3w_a&amp;strategyid=00014)
+据报道，中共国目前已有14个省份报告奥密克戎输入病例。截至昨天，有七地通报本土奥密克戎病例，涉北京、上海、广东珠海、广东中山、天津、辽宁大连、河南安阳。
 
+文字版原文：[北京冬奥会在即 新型病毒来袭](https://gnews.org/zh-hans/1869507/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

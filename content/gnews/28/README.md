@@ -2,28 +2,46 @@
 ---
 
 
-## 原中泰策略首席陈龙被抓，或涉嫌操纵证券
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877872/)
+## 郭先生剖析PAG案的后续进展
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877952/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-25.jpg)原中泰策略首席陈龙被抓，或涉嫌操纵证券 网络图片
-据网易新闻1月18日报道，因涉嫌操纵证券及内幕交易，原中泰证券研究所首席策略分析师陈龙被抓。其证券执业证书已被注销，由徐驰接任中泰研究所策略负责人。
-
-陈龙之前有9年的证券从业经验，2019年3月加盟中泰证券股份有限公司。2021年5月9日，私募大佬叶飞微博举报股市暗箱操作。即以所谓的“市值管理”名义，联合游资和机构炒作股票。2020年9月至2021年5月，史某等团伙控制数十个证券账户，违法操纵股价，交易金额达30多亿，叶飞等人目前已经伏法。
-
-中共没有真正的经济，中共的股市充斥着虚假和欺骗。中共操纵股市就是为了洗钱和抢劫老百姓的财富。大鱼吃小鱼，小鱼吃虾米，最后被吃的都是小散户老百姓。在股市崩盘之前，中共早已经脱身，把钱藏到海外。只有推翻中共，才能够找回被抢走的财富。
-
-新闻参考链接：[https://c.m.163.com/news/a/GTVOVGR300018AP2.html?spss=newsapp](https://c.m.163.com/news/a/GTVOVGR300018AP2.html?spss=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：银河系农场—骄子
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+1月17日，郭文贵先生在大直播中与战友分享了共产党会在PAG案的后续操作中必然进行的步骤。 郭先生说，毫无疑问我们最后一定会赢，只是在这个过程中，在赢之前，我们可能需要付出一些代价，如共产党可能勾结美国的法律系统以藐视法庭等罪名对郭先生实施逮捕，可能非法定义并抢夺本不属于郭先生个人的资产，并利用这些来摧毁G系列等。
+
+但是，郭先生说，我们最后会赢在程序、正义、证据的完善以及事实的真相上，美国司法最后毫无选择，一定会给这个案子公平、公正的判决，让真相大白于天下。另外关于这件事情，媒体已经关注并报道了很长时间，最终美国国会、司法部一定会介入调查，把共产党在其间的利益输送链条全部查清楚，剔除西方行政和司法系统的巨大腐败蛀虫，帮助美国、欧洲司法系统找回其应有的公平和独立。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.2-2.jpg)
+最终法庭会发现，对郭先生的所有缠诉案，背后都是固定的人和钱，并且案子涉及到的不仅是美国，还包括欧洲、中东等，共产党的特务蓝金黄渗透几乎遍及全球，窥探隐私，收集各种数据，不讲章法，毫无底线。全世界的人类都会没有任何选择地要灭掉共产党。 新中国联邦会成为那个决不妥协、战斗到底的人类新英雄，继续传播正道主义的力量。
+
+参考信息：
+[1/17/2022 文贵直播：文贵先生对太平联盟案的展望，我们一定要用程序正义、真实的证据让真相大白于天下，最终美国司法部、国会等会全面介入调查，太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除](https://gettr.com/post/poy3v384b1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

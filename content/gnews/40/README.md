@@ -2,37 +2,31 @@
 ---
 
 
-## 芬兰允许伊维菌素用于治疗中共病毒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
+## 研究人员发现，感染中共病毒会对人体免疫系统造成长期影响
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876498/)
 
-#### 撰稿：日本东京方舟农场 JIHO
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒 16日报导，澳洲一名31岁的女护士自去年7月感染中共病毒后，即使已经过治疗，但身体仍然受到病毒副作用的折磨。早前她被确诊患上姿势直立性心动过速综合征和周围神经病变，之后病情就急速恶化，目前她已经几乎不能行走，并且有吞咽困难的状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-56.jpg)
+这位女护士的不幸经历得到不少网友的认同，许多感染过中共病毒的人，一段时间后都患上各种不同的慢性疾病。这与早前澳洲临床医学小组的观察不谋而合，研究人员发现，感染中共病毒会对人体免疫系统造成长期影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
+参考链接：[研究人员发现，感染中共病毒会对人体免疫系统造成长期影响](https://au.yahoo.com/news/woman-with-long-covid-now-struggles-to-swallow-034618820.html)
 
-1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
+总编：飞虹
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
-
-对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
-
-*参考链接：*
-
-1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
-2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
-3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
-
-
-* * *
-
-*素材采编：JIHO*
-
-*编辑： 文顺*
-
-*发布：miumiu*
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,46 +2,28 @@
 ---
 
 
-## 郭先生剖析PAG案的后续进展
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877952/)
+## 斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877973/)
 
-作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-26.jpg)斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处 网络图片
+据美国之音1月19日报道，斯洛文尼亚总理亚内兹∙扬沙赞扬台湾是一个尊重国际民主标准和国际法的“民主国家”，并称正与台湾商谈互设贸易代表处。扬沙未透露谈判进行到哪一步，也没有说明斯洛文尼亚是否会步立陶宛的后尘，用“台湾”的名义在斯洛文尼亚设立代表处。扬沙对北京阻止台湾参与世卫组织（WHO）表示遗憾，强调台湾未来的统独问题应该由台湾人民自己决定。
 
+台海与中共国一直分治分离，互不隶属。但北京一直视台湾为其领土主权的一部分，誓言即使动武也要实现两岸的统一。北京一直在国际上孤立台湾，一方面反对其邦交国与台湾发展任何有官方性质的关系，另一方面则阻止台湾参与很多重要的国际组织。世界上有很多国家以“台北”的名义在本国设立台湾代表处。立陶宛是第一个以“台湾”的名义设立代表处的北京邦交国，因此遭到北京的政治打击和经济制裁。
 
+中共霸凌台湾很多年，现在又试图孤立和打击立陶宛。斯洛文尼亚总理的表态很可能会激怒中共，但是国际社会和民主国家与台湾的理念一致，与中共是本质上的不同和对立。中共的狂妄和傲慢以及通过病毒和疫苗对全球的伤害，会让整个世界联合起来，共同对抗中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新闻参考链接：[https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html](https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html)
 
+* * *
 
-
-1月17日，郭文贵先生在大直播中与战友分享了共产党会在PAG案的后续操作中必然进行的步骤。 郭先生说，毫无疑问我们最后一定会赢，只是在这个过程中，在赢之前，我们可能需要付出一些代价，如共产党可能勾结美国的法律系统以藐视法庭等罪名对郭先生实施逮捕，可能非法定义并抢夺本不属于郭先生个人的资产，并利用这些来摧毁G系列等。
-
-但是，郭先生说，我们最后会赢在程序、正义、证据的完善以及事实的真相上，美国司法最后毫无选择，一定会给这个案子公平、公正的判决，让真相大白于天下。另外关于这件事情，媒体已经关注并报道了很长时间，最终美国国会、司法部一定会介入调查，把共产党在其间的利益输送链条全部查清楚，剔除西方行政和司法系统的巨大腐败蛀虫，帮助美国、欧洲司法系统找回其应有的公平和独立。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2.2-2.jpg)
-最终法庭会发现，对郭先生的所有缠诉案，背后都是固定的人和钱，并且案子涉及到的不仅是美国，还包括欧洲、中东等，共产党的特务蓝金黄渗透几乎遍及全球，窥探隐私，收集各种数据，不讲章法，毫无底线。全世界的人类都会没有任何选择地要灭掉共产党。 新中国联邦会成为那个决不妥协、战斗到底的人类新英雄，继续传播正道主义的力量。
-
-参考信息：
-[1/17/2022 文贵直播：文贵先生对太平联盟案的展望，我们一定要用程序正义、真实的证据让真相大白于天下，最终美国司法部、国会等会全面介入调查，太平联盟案件的结果会带动全球灭共，把共产党深藏在美国欧洲的毒刺彻底拔除](https://gettr.com/post/poy3v384b1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
