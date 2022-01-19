@@ -2,31 +2,37 @@
 ---
 
 
-## 七哥谈喜币交易的改进升级（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877587/)
+## 习近平威胁：对抗中国将有“灾难性后果”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1877679/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-来源：郭先生2022-01-14直播09：39：18摘录
+翻译/整理：Little Lamp
+编辑：守望黎明
 
-设计上就讨论过这个问题，法律上也讨论过，现在他们也正在解决这个问题，目前还会很难，它在解决。一个是交易后的，因为这个HCN未来就是喜币浮动以后的零头兑现的问题；还有一个就是它这个金融政策，它往回汇的问题，还有一个它成本的问题，综合的技术方面的问题。最后的结果它现在只能这样，如果它要改了的话大概应该在第三个到第四个版本会改。它也在改的当中，现在是第一个初级版本嘛，我们大概有7个版本，11个，现在又增加了几个，有11个新的一个升级。你会看到这一切都会、这不是一个，大概我们有800多个需要改进的地方，800多个，这都会改的，就是稍微有点耐心，这个事我是知道的啊，谢谢。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Xi.jpeg)图片来源：Press One
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+**中国领导人习近平1****月****17****日威胁****说，与中国对抗只会导致“灾难性后果”。2022****年****1****月****17****日，****习近平在****“****达沃斯世界经济论坛****”视频会议上****发表讲话，表示世界需要摆脱他所****说****的“冷战思维”。**
 
-Discord 账号
+**习近平说：****“****我们今天的世界****并不安静****；煽动仇恨和偏见的言论比比皆是。由此产生的遏制、压制或对抗行为会造成****深重****伤害，****更不幸的是，会威胁世界和平和安全****。历史一再证明，对抗不能解决问题，它只会招致灾难性的后果。保护主义和单边主义保护不了任何人；他们最终损害了他人和自己的利益。更甚的是霸道、霸凌行径，逆历史潮流而动。”**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**习近平还批评了西方国家，****说****这些国家一直在采取经济政策并结成联盟来对抗中国。例如，美国通过了《维吾尔强迫劳动法》，禁止从中国新疆地区进口涉嫌通过维吾尔人强迫劳动生产的产品。****美国的“清洁网络”**** ****行动将中国的华为公司排除在外。****9 ****月，美国、澳大利亚和英国还达成了一项新的国防技术共享协议，旨在增强澳大利亚在印太地区的军事能力。**
 
-Gettr 账号
+**习近平说：****“一意孤行地****建设’高墙独院’或’平行体系’，热衷于拼凑排他性的小圈子或集团，使世界两极分化，过度夸大国家安全概念以阻挡其他国家的经济和技术进步，煽动意识形态对立，将经济、科学和技术问题政治化或武器化，这些行为将严重削弱应对共同挑战的国际努力。****”**
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**这****已经****不是习近平第一次****谴责****各国采****用****冷战思维****了****。**
+
+原文链接：[China’s Xi threatens ‘catastrophic consequences’ if China confronted](https://americanmilitarynews.com/2022/01/chinas-xi-threatens-catastrophic-consequences-if-china-confronted/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

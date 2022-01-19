@@ -2,31 +2,32 @@
 ---
 
 
-## 七哥说“你知道我们谈喜币的时候共产党为什么害怕吗？”（2022-01-14摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1877579/)
+## 杨洁篪海外抓捕战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877673/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+整理：雅典娜速记组
+编辑：Rianna
 
-来源：郭先生2022-01-14直播09：49：59摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/R4PTO1JUX0T2CN6XZ3-1.png)图片来源：雅典娜设计组
 
-中国人啥时候想过？1949年以前所有的上街抗议还有印发报纸、自由发言，全列为叫民主自由，推翻三座大山。1949年以后所有发言，所有的就是说话、媒体，全列为反党反国家。就像我上次说的一样，你有反国家的权利吗？你有反国家能力吗？你跟国家宪法发过誓吗？宣过言吗？给你过任何契约吗？连护照都不发给你，你是哪国的人民呢？国家认过你吗？双方同意下的公民和国家权利才叫叛国是吧？和爱国，你的国在哪呢？那么我们现在反映到一个最大的问题，刚才谈到这些问题的时候，兄弟姐妹们，你知道我们谈喜币的时候共产党为什么害怕吗？
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+郭文贵先生提前一个月警告大家杨洁篪等人准备去迪拜、塞浦路斯抓战友，塞浦路斯报道了俩战友被抓，但实际上有70多个战友被杨洁篪差点抓回。一个塞浦路斯官员收了这些移民护照人的钱，都是傾家荡产。塞浦路斯岛抓的战友当中，其中一个战友，中共诬陷他在中国犯有强奸幼女罪，所以中共起诉他要把他抓起来。
 
-**关注我们**
+但荒唐的是，当这位战友说要求看罪证，却说让他回中共国去看，最后这个战友14岁就把肾切除，27岁才有一个孩子，怎么可能强奸幼女，可以检查他得病记录。这就是共产党一贯的栽赃诬陷做假案例子。
 
-Discord 账号
+在迪拜被遣返的干经济警察战友本来好好的，突然间就到家抓他，直接从他家抓到机场！一个会中文的警察告诉他抓他的原因，共产党如果不抓他回去，担心他手里掌握曾经职业上的材料，他们也没办法。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+他给郭文贵说：“7哥我真的对不起，跟了我3年爆料，我逃出去了，我带了一堆的信息。”结果警察在迪拜冲到他家，把他的硬盘拿走了，一点没给爆料革命。当年的周永康案、李友案的很多信息，他一张纸没给郭先生，就给拍过几个截屏，结果警察全部连电脑直接给专机带回中国。迪拜都成这样了， 塞浦路斯成这样了，马耳他也成这样了，越南就别提了，新加坡直接装麻袋回去了。
 
-Gettr 账号
+资料来源：郭先生GTV和盖特直播视频。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发布：  tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

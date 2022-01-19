@@ -2,33 +2,34 @@
 ---
 
 
-## 报道台湾遭中共抗议 印度主播表示不听命于任何政府
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1875996/)
+## 美飞弹核潜舰公开访问关岛展示威吓力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876001/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者：纽约香草山医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月15日，美国海军核动力弹道飞弹潜舰内华达号，驶入关岛海军基地。这是自2016年以来弹道飞弹潜舰首度访问关岛，也是此舰从1980年代至今的第2次公开访问。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-21.jpg)
+核动力潜舰平日很少公开现踪，只要公然出现，必然有其政治目的。近日北韩刚试射过导弹，台海也在中共威胁下随时可能发生战事。美国导弹核潜舰在此时此地现身，显然在展示美国在印太区域的威吓力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DA5308D3-A304-4CE5-910D-D9ACCD971543.jpeg)（图片来自《大纪元》）
+美国海军方面表示：此次访问关岛的目的在于加强美国与区域盟友的合作，同时展现美国的战力，灵活度与反应力，以及对印太区域安全与稳定的持续承诺。而这次核潜舰搭载20枚三叉戟弹道飞弹和数十枚核弹头，军事实力目前仍维持压制中共的能力。
 
-据《大纪元》1月16日报道，《今日印度》电视台因为播出了台湾特别节目，并访问了中华民国驻印度代表葛葆萱。
+相关专家表示，印太区域正面临紧张的军事对峙情势，美国需要进行更多的类似军事实力展现。
 
-这期节目介绍了台湾在全球供应链所扮演的重要角色，并讨论印度与台湾的经贸及科技合作前景。后据中央社报导，《今日印度》电视台1月8日在《今日世界》节目首播后，又重播了3次，随即收到中共驻印度大使馆向电视台提出的抗议。
+参考链接：[台海緊張北韓射彈 美彈道飛彈核潛艦罕見現關島](https://www.cna.com.tw/news/aopl/202201170285.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-中共大使馆抗议函中斥责电视台称葛葆萱为“大使”，以及出现青天白日满地红国旗，要求电视台遵守“一个中国原则”（One-China principle）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-电视台女主播莫汉在推特回应说，《今日印度》不听命于任何国家或政府的指示，“我们是独立的新闻网，会对任何国家做我们认为适当的接触或报导。”
+总编: Zion文恩
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-此外，印度英语电视台《寰宇一家》（WION）去年11月底播出“台湾：良善力量与坚毅精神”（Taiwan: A Force for Good and the Spirit of Resilience）专辑，同样收到了来自中共大使馆的抗议。
-
-*参考链接：[报导台湾遭中共抗议 印度主播：不听命任何政府](https://www.epochtimes.com/gb/22/1/15/n13507022.htm)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
