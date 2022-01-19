@@ -2,30 +2,26 @@
 ---
 
 
-## 斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877973/)
+## 七哥分享人生感悟和成功经验（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1878020/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-26.jpg)斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处 网络图片
-据美国之音1月19日报道，斯洛文尼亚总理亚内兹∙扬沙赞扬台湾是一个尊重国际民主标准和国际法的“民主国家”，并称正与台湾商谈互设贸易代表处。扬沙未透露谈判进行到哪一步，也没有说明斯洛文尼亚是否会步立陶宛的后尘，用“台湾”的名义在斯洛文尼亚设立代表处。扬沙对北京阻止台湾参与世卫组织（WHO）表示遗憾，强调台湾未来的统独问题应该由台湾人民自己决定。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-台海与中共国一直分治分离，互不隶属。但北京一直视台湾为其领土主权的一部分，誓言即使动武也要实现两岸的统一。北京一直在国际上孤立台湾，一方面反对其邦交国与台湾发展任何有官方性质的关系，另一方面则阻止台湾参与很多重要的国际组织。世界上有很多国家以“台北”的名义在本国设立台湾代表处。立陶宛是第一个以“台湾”的名义设立代表处的北京邦交国，因此遭到北京的政治打击和经济制裁。
+就是上帝不知道怎么设计的人，就是你拥有最美好的时候你也不知道最美好，你老看着觉得好别人的老公好，别人的老婆好，别人家的车比自己车好，别人家房子，而且身边最最你应该记得你没记住，不该记得谁骂过你啊，谁侮辱过你啊你都记得门儿清。
 
-中共霸凌台湾很多年，现在又试图孤立和打击立陶宛。斯洛文尼亚总理的表态很可能会激怒中共，但是国际社会和民主国家与台湾的理念一致，与中共是本质上的不同和对立。中共的狂妄和傲慢以及通过病毒和疫苗对全球的伤害，会让整个世界联合起来，共同对抗中共。
+所以这个人类呀，它是很奇怪的，啊，刚才回答小飞象小飞侠，你们俩刚才说的话，今天看的是小飞象小飞侠，就在几个月和小王子和佳佳哎这个暂时离开大使馆和办公室之后，就精神上的这种锻炼真的已经完全不是一个人（了），我说的话，我是不是给你们发自内心的？你知道我从来不会浪费，就你们的脸部和表情精神状态，你看我老黑小王子来开玩笑，但小王子的表情和他这种最大的心理状态，他每次都能接招。
 
-新闻参考链接：[https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html](https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html)
+你知道这个星球大战里最可怕的是什么，你知道，就黑势力它能把这个好的势力都给你收回来，完了，黑势力赢了。正能量是因为爱因为爱，最后打败，都是打败了黑势力， 是因为爱打破了黑势力。如果您有俩样，我就有爱，我还能吸附你所有的东西过来的话, 你就天下赢两次，啊，就共产党的原话说，双赢双赢是吧？连赢两次。刚才你看小飞侠你问我的问题..…
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥分享人生感悟和成功经验（二）-.jpg)
+*发布：*tianzhihuan
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)0
 
  
 

@@ -2,23 +2,20 @@
 ---
 
 
-## 加拿大卡车司机在美加边境堵路抗议疫苗强制政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1877189/)
+## 【中日财经爆】日本央行称2022年度物价涨幅预计至1.1%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1877696/)
 
-撰稿：西枫westca
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-22.png)[*图片来源*](https://www.yomiuri.co.jp/economy/20220118-OYT1T50079/)
+日本央行在18日发布的《经济和物价形势展望报告》中指出，预计2022年度物价(不含生鲜食品)涨幅为1.1%。 这表明越来越多的企业在原材料价格上涨的背景下提高了价格。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-11.jpg)图片来源：网络截屏
-据“The Gateway Pundit” 1月18日报道， 加拿大卡车司机反对COVID暴政，于周一晚间在曼尼托巴省封锁了从加拿大双向进入美国的高速公路。卡车上写有”反对强制疫苗接种“
+在同日的日本金融政策决定会议上，日本央行决定维持大规模货币宽松措施。央行行长黑田东彦在新闻发布会上表示，没有伴随工资上涨，而是由资源成本价格上升引起的物价上涨不会持久。
 
-根据政府数据，2019年美加商品和贸易总额估计为7184亿美金。加拿大是美国的第三大商品进口国，美国是加拿大的第一出口国。 70%的贸易是通过卡车运输的。
+信息源：[**日銀、消費者物価上昇率１・１％見通し…原材料価格の上昇で値上げ企業増**](https://news.yahoo.co.jp/articles/da95c6e81e44c8256345b9327b9a41dac183cbd6)
 
-加拿大政府1月15日开始对卡车司机的强制疫苗授权，要求跨境司机提供疫苗证书。而拜登政府对跨境卡车司机的强制疫苗令会从1月22日开始。
-
-强制疫苗政策在越来越多的国家受到民众的抵制。这个政策涉及到了民生问题，食品的通货膨胀已明显在市场上看到。影响卡车司机的强制疫苗，相信会引起更多的反弹。 一个政府在没有科学证明的基础上，强行推广一个医学实验，其目的何在？
-
-**新闻来源：**[VIDEO: Canadian Truckers Against COVID Tyranny BLOCK HIGHWAY to and From United States – With “Mandate Freedom” Signs (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/01/video-canadian-truckers-covid-tyranny-block-highway-united-states-mandate-freedom-signs/)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

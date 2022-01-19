@@ -2,25 +2,85 @@
 ---
 
 
-## 加拿大研究人员：北京冬奥会APP“冬奥通”搜集审查用户数据，存在安全隐患
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1877950/)
+## 中共在会见6个中东外长时诬蔑新中国联邦为邪教组织
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878015/)
 
-翻译：zzballack
-上传：追着曙光跑
+[https://gtv.org/video/id=61e6a10f87664c47acd64571](https://gtv.org/video/id=61e6a10f87664c47acd64571)
 
-据《布雷特巴特新闻网》（Breitbart News）1月18日报道，加拿大多伦多大学的网络安全监督小组“公民实验室（Citizen Lab）”的研究人员1月18日发布报告说，运动员、记者和观众等所有北京冬奥会的与会人员被中共强制要求下载的手机应用程式“冬奥通（MY2022）”存在严重的安全漏洞：用于加密用户语音音频和文件传输的加密技术可以轻易被绕过。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-19-at-10.57.16.jpeg)图片来源：原新闻
-公民实验室还发现，用于传输护照详情、个人健康信息以及医疗旅游史的健康申报表也存在安全漏洞。服务器响应也可以被欺骗，允许攻击者向用户显示虚假指令。“冬奥通”相当直接地要求用户提供与参加奥运会有关的信息，并且收集一系列高度敏感的医疗健康资料等个人隐私信息，但它并没有清楚列出会向谁或哪些机构共享和披露这些高度敏感信息。研究人员指出：“‘冬奥通’包括的功能之一是收集用于健康监测的医疗信息清单，其中包括用户每天自我报告的健康状况，新冠疫苗接种状况，以及新冠地实验室测试结果等等。”
+**郭文贵
+Miles Guo**
 
-“冬奥通”还包括一个让用户向中共当局举报“政治敏感内容”的功能。“冬奥通”有一个秘密的“审查关键词列表”，其中有2442个条目，内容涉及藏传佛教、新疆维吾尔族、天安门广场大屠杀、共产党精英之间的内斗以及对中共国的批评等等。该审查列表在分析的软件版本中没有被启用。但在冬奥会开始后可能会发生变化。“冬奥通”有内置的文本和语音聊天工具，也可能会受到审查。
+兄弟姐妹们，你知道我们谈喜币的时候，共产党为什么害怕吗？
+Brothers and sisters, do you know why the Communist Party is still afraid when we talk about Hcoin?
 
-多伦多大学的团队深入研究了“冬奥通”的隐私政策，发现与其他许多的中共应用程式一样，在“几种情况”下，“冬奥通”可以在未经用户同意的情况下披露私人信息–包括但不限于“国家安全事务、公共卫生事件和刑事调查”。中共有宣布一切都为“国家安全事务”的习惯，所以这相当于为中共情报人员提供了一个全面的许可，以获取他们认为重要的任何用户数据。而且隐私政策在获取个人信息是否需要任何形式的法院命令问题上相当含糊。
+六个中东外长见完外交部，还有王沪宁要求接见
+After the six Middle East foreign ministers met with the Ministry of Foreign Affairs, also Wang Hu-ning wanted to meet them
 
-也许最令人不安的是，该报告发现了许多关键的安全缺陷，比如未能验证安全链接的电子安全证书或对敏感数据进行加密。因此，来自用户手机的大量敏感数据将容易被连接到同一wifi网络的“被动窃听者”窃取。
+其中给他们列了很多条希望他们参加冬奥会
+It listed a lot of requirements for them and hoped that they attend to the Winter Olympics Game
 
-于1月17日上传到苹果商店的最新版本“冬奥通”，不仅没有修复上述这些安全问题，还引入了一个新的安全缺陷–健康码系统要求用户提供旅行文件和医疗记录，然后在没有验证安全证书的情况下将其传输到中国服务器。报告总结说：“我们发现该软件的安全漏洞不仅可能违反谷歌的不受欢迎的软件政策和苹果的应用程序商店指南，而且也可能违反了中共自己的法律和有关隐私保护的国家标准。”
+领导人绝不能支持海外的我党确定的，所谓的邪教组织，新中国联邦
+Their leaders must not support the overseas establishment of the New Federal State of China which so-called cult organization by our Communist Party
 
-信息来源：[Mandatory Olympic Athlete App Gives China Data Goldmine](https://www.breitbart.com/asia/2022/01/18/mandatory-olympic-athlete-app-gives-china-data-goldmine/)
+不能支持喜联储喜币，把它在你国家要屏蔽掉，所有GTV、GNEWS
+Can’t support Himalaya Exchange and Hcoin, block it in your country, and all of GTV, GNEWS
+
+没有盖特，你不敢惹美国的GETTR，他就要搞GTV、GNEWS
+Foreign Affairs didn’t mention Gettr, you dare not mess up with GETTR in the United States, it will mess up with GTV and GNEWS
+
+他多怕我们，如果我们是邪教，你怕啥呢？
+How afraid are they, if we are the cult, what are you afraid of us?
+
+结果这些参加了会谈的人说，Miles你太厉害了
+As as result, those who attend the meeting said, Miles, you’re so powerful
+
+他说我今天见到那几个货，全部都是怕你呀
+He said that I met those shits today, all of them were afraid of you
+
+他说一说到你新中国联邦脸色全部都变了，那么刚才我告诉你小飞象
+He said that once we mentioned you and the New Federal State of China that all their faces changed, so just now I told you Xiao Feixiang
+
+国内有躺币的战友要知道，七哥给你准备躺币的时候，我得让你安全
+There are comrades-in-arms who won the lying flat coin in the country, I have to keep you safe when I’m ready to give the lay flat coins for you
+
+我得让你这人能出来到更多国家去，安全, 能真正的拥有这个币
+I have to let you get out safely to more countries, safely and truly own this coin
+
+而且我们不是邪教，不是精神控制、金钱控制、安全控制
+And we’re not the cult, no mind control, money control, security control
+
+我们恰恰让你绝对的自由安全下获得你想要的
+We will let you get the coins you want with absolute freedom and security
+
+而且共产党是让你绝对的不安全情况下，由我决定你你应该得到什么
+And the Communist Party is making you absolutely insecure, they will decide what you deserve
+
+这是本质上的不同，我们是正义的，为人民服务的
+This is fundamentally different, we are righteous and serve the people
+
+真正的新中国联邦，共产党是真正的邪教，那六条全包含了
+The real New Federal State of China serve the people, the Communist Party is a real cult organization and they are included all the six rules
+
+* * *
+
+Date: 01/17/2022
+原视频标题: 中共在会见6个中东外长时诬蔑新中国联邦为邪教组织
+The CCP slandered the New Federal State of China as the cult organization during a meeting with 6 Middle East foreign ministers
+原视频日期：2022/01/14
+原视频链接：[https://gettr.com/post/popg9i2d29](https://gettr.com/post/popg9i2d29)
+任务编号：KC421(3513)
+视频时间段 : 0:00-1:36
+
+中听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,41 +2,22 @@
 ---
 
 
-## 有声|郭文贵先生诠释 灭共就是天意
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1876466/)
+## 加拿大卡车司机在美加边境堵路抗议疫苗强制政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1877189/)
 
-配音：香草山教育部 – Rose
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-11.jpg)图片来源：网络截屏
+据“The Gateway Pundit” 1月18日报道， 加拿大卡车司机反对COVID暴政，于周一晚间在曼尼托巴省封锁了从加拿大双向进入美国的高速公路。卡车上写有”反对强制疫苗接种“
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-在1月12日的大直播中，郭文贵先生用个人经历和感悟诠释了，灭共就是天意。
+根据政府数据，2019年美加商品和贸易总额估计为7184亿美金。加拿大是美国的第三大商品进口国，美国是加拿大的第一出口国。 70%的贸易是通过卡车运输的。
 
-郭先生谈到，天意没有偶然，永远要相信天意。新中国联邦人不流一滴血，没有任何暴力，在过去五年里，团结亿万战友，唤醒国内无数有良知的人，这是天意。
+加拿大政府1月15日开始对卡车司机的强制疫苗授权，要求跨境司机提供疫苗证书。而拜登政府对跨境卡车司机的强制疫苗令会从1月22日开始。
 
-如果没有习近平、王岐山孟建柱、江家和南普陀会议；没有共产党对外扩张，搞一带一路，灭白计划，叫板美国要平等共治；对内利用反贪抓了100万官员；没有习近平搞所谓的”共享财富“，释放病毒，威胁台湾，灭香港，在新疆西藏搞种族大屠杀，就不可能灭共。这些都是天意。
+强制疫苗政策在越来越多的国家受到民众的抵制。这个政策涉及到了民生问题，食品的通货膨胀已明显在市场上看到。影响卡车司机的强制疫苗，相信会引起更多的反弹。 一个政府在没有科学证明的基础上，强行推广一个医学实验，其目的何在？
 
-郭先生用自己的经历解释，不是所有的人都能领悟什么是天意。郭先生在年少时期去到新疆，后来还去过昆仑山、帕米尔高原、喜马拉雅山脉，从这些游历中，亲身体验到天意。郭先生当年卖掉摩托车支持六四，被关到看守所，出来以后就要拯救中国人和世界，这也是天意。
-
-有天意，就有天机，是上天安排的机会。天机后面是民心，是天时，地利，人和。所以说，灭共就是天意。
-
-文字版原文 ：[郭文贵先生诠释 灭共就是天意](https://gnews.org/zh-hans/1870048/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[VIDEO: Canadian Truckers Against COVID Tyranny BLOCK HIGHWAY to and From United States – With “Mandate Freedom” Signs (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/01/video-canadian-truckers-covid-tyranny-block-highway-united-states-mandate-freedom-signs/)
 
  
 

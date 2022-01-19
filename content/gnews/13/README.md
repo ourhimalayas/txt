@@ -2,26 +2,30 @@
 ---
 
 
-## 嘉宾Kate提问及七哥回答（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877926/)
+## 斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877973/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-26.jpg)斯洛文尼亚总理赞台湾“民主国家”，商谈互设代表处 网络图片
+据美国之音1月19日报道，斯洛文尼亚总理亚内兹∙扬沙赞扬台湾是一个尊重国际民主标准和国际法的“民主国家”，并称正与台湾商谈互设贸易代表处。扬沙未透露谈判进行到哪一步，也没有说明斯洛文尼亚是否会步立陶宛的后尘，用“台湾”的名义在斯洛文尼亚设立代表处。扬沙对北京阻止台湾参与世卫组织（WHO）表示遗憾，强调台湾未来的统独问题应该由台湾人民自己决定。
 
-嘉宾Kate：因为马上要上大学了，还要差一年就要上大学了，您有什么建议吗？
+台海与中共国一直分治分离，互不隶属。但北京一直视台湾为其领土主权的一部分，誓言即使动武也要实现两岸的统一。北京一直在国际上孤立台湾，一方面反对其邦交国与台湾发展任何有官方性质的关系，另一方面则阻止台湾参与很多重要的国际组织。世界上有很多国家以“台北”的名义在本国设立台湾代表处。立陶宛是第一个以“台湾”的名义设立代表处的北京邦交国，因此遭到北京的政治打击和经济制裁。
 
-郭先生：我知道你要问上大学的建议。我都没上过大学。我的建议你千万别听啊。如果说作为一个过来人的话，我就是因为我的孩子都上了大学，我的女儿考上了哥伦比亚大学，她上了大概一年还是多长时间，她自己就不上了，她又去了NYU。我的儿子是在这个伦敦大学， 后来又读什么博士、硕士，我就不让他读啊，我说人活着，不要把时间浪费在无聊的课堂上。 知识不是仅仅在学校能得到的，学校是一个方式，特别不要浪费时间。
+中共霸凌台湾很多年，现在又试图孤立和打击立陶宛。斯洛文尼亚总理的表态很可能会激怒中共，但是国际社会和民主国家与台湾的理念一致，与中共是本质上的不同和对立。中共的狂妄和傲慢以及通过病毒和疫苗对全球的伤害，会让整个世界联合起来，共同对抗中共。
 
-还有一个在大学里是交朋友的地方，是走向社会的最后的一道桥，这道桥上，你要结交更多的有缘人和朋友。要更大胆地认识社会和人性，最重要的是叫放开胸怀。千万不要在最后一道桥上染上更多的庸俗的毛病。比如说现在天天就是低头玩手机啊，再站起来，低头就是看电脑，要与人打交道。一定要记住，不要撒谎，只要你撒过谎，你永远记住不会让人尊重。 千万别撒谎，你可以什么都不说，但千万别撒谎、别造假。什么事都可以干，千万别骗人， 因为你骗完人被传开以后，你这一辈子也摘不开这个帽子。另外一个就是记住，在任何学校, 大学里边，不要在同学之间，就是那种所谓的参与到民族主义，还有各种的宗教主义 ,我觉的都不要掺乎。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾Kate-提问及七哥回答（一）-.jpg)
-*发布：*tianzhihuan
+新闻参考链接：[https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html](https://www.voachinese.com/a/Slovenia-leader-calls-Taiwan-a-country-backs-opening-trade-offices-20220108/6401945.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
