@@ -2,75 +2,35 @@
 ---
 
 
-## 【Michael.Tonny专栏】NSW洲数据表明 接种中共病毒疫苗更易感染住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1880748/)
+## 加拿大保守党呼吁对中共收购新锂公司进行安全审查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1880840/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-19-0745577.jpg)图片来源：www.mining.com
+加拿大保守党领袖艾林·奥图尔(Erin O’Toole)要求政府对中共国紫金矿业收购加拿大新锂公司(多伦多证券交易所创业板：股票代码NLC；美国场外交易公司:股票代码NTTHF)的提议进行国家安全审查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+奥图尔说，他的政党“将召集工业委员会的紧急会议”，以确保自由党解释他们为什么“在一开始不进行审查”。奥图尔在1月17日的新闻发布会上说：“加拿大的保守派呼吁自由党政府立即对一家中国国有企业收购新锂矿业公司的行为进行国家安全审查。”新锂公司没有立即发表评论。
 
-截止至美东时间1月19日上午8时21分，在澳大利亚2,595.7万人中，累计确诊中共病毒感染病例1,955,544例，占澳洲全国总人口的7.53%。继1月8日单日新增COVID-19感染者病例达到创记录的111,907例后，1月12日，澳大利亚单日新增病例竟然达到175,271例，单日新增病例数达到澳洲总人口的千分之6.75。
+中共国的紫金矿业在去年10月宣布计划以每股6.5加元的现金收购新锂公司，新锂公司的股东在12月批准了这笔交易。1月11日，新锂公司表示，它收到了阿根廷环境和矿业当局对其3Q项目建设和运营的许可——这是紫金矿业收购这家初级勘探公司所需的最后条件之一。1月11日，新锂公司在一份新闻稿中表示：“紫金矿业正在获得中华人民共和国相关部门对该交易的批准。”
 
-尽管如此，1月6日，澳大利亚北领地（Northern Territory）行政长官Michael Gunder在新闻发布会上正式宣布，对未“完全接种”Covid-19病毒疫苗的公民未来几天实施新的专制封锁，任何年满16岁且未完全接种疫苗的人不能离开家，即使是去上班或到户外锻炼也不行，仅仅需要获得食物或药物等必需品、为无法自理的人提供护理或接受治疗，才能离家不得超过30公里远。
+保守党领袖奥图尔表示，审查对于加拿大保障其供应和获取锂等关键矿物，“保护我们的经济和我们的竞争优势”至关重要，并确保加拿大矿业公司在“像中国共产党这样专制、非民主的统治下”保持领先于竞争对手。
 
-网球巨星德约科维奇（Novak Djokovic）甚至在1月16日上诉失败后，被澳洲当局以“对公共卫生造成威胁”驱逐出境。
+锂被用来制造为电动汽车提供动力的电池，随着世界寻求实现脱碳目标，全球对锂的需求已经有所增加。奥图尔说：“我们正准备在电动汽车的增长中发挥关键作用。再与加拿大全球领先的自然资源经济相结合……作为全球卓越的矿业金融中心的领先角色，加拿大应该成为电池生产价值链中的一个领导者。” 他补充说：“像新锂公司这样的公司是加拿大人的，因为我们是矿业金融领域的领导者。随着电动汽车变得越来越普遍，加拿大需要确保它拥有资本、市场准入和保持其领先于竞争对手的能力。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a5e4cdd86fd643ac86ddb702a6644510.jpeg)
+10月完成的3Q项目的可行性研究，预测矿山寿命为50年，前20年的平均年产量为2万吨电池级碳酸锂当量(LCE)。按照8%的贴现率，这个35,000公顷的项目将产生11.3亿美元的税后净现值(NPV)，税后内部收益率(IRR)为39.5%。
 
-澳大利亚当局如此疯狂的胁迫打疫苗，目前澳洲的疫情真的是由于没有打Covid-19病毒疫苗或者疫苗打得还不够多造成的吗？
+**简评：**中共的国有企业，中共当然百分之百控制，加拿大对紫金矿业收购新锂公司展开审查是绝对正确的。中共的国有企业本身不能算作企业，他类似于中共政府的一个部门，它只服务于中共政权的权力家族，对这种企业来说，随时可以从银行拿到大额资金用于各种并购。紫金矿业收购新锂公司本质上也不是市场经济行为，它只是在执行共产党的矿产资源侵略计划，其根本目的是为了控制全球稀缺的自然资源，以达到控制和影响其他国家经济，实现共产党控制全球的邪恶计划。
 
-根据澳大利亚政府官方数据，截止至2022年1月19日，总共有4,672万针COVID-19病毒疫苗被打进人的身体，仅仅在过去的24小时内，就有321,959针被注入澳大利亚人的身体。目前，年满16+的澳大利亚人中，95%被打了至少一针疫苗，92.7%被打了两针疫苗，5,553,110名年满18周岁的澳大利亚人被打了至少三针疫苗。
+新闻链接:[https://www.mining.com/canadian-conservative-party-leader-calls-for-security-review-of-chinese-takeover-of-neo-lithium/](https://www.mining.com/canadian-conservative-party-leader-calls-for-security-review-of-chinese-takeover-of-neo-lithium/)
 
-如果以所有人口计算，澳大利亚有81.74%的人最少注射了一针COVID-19病毒疫苗，77.75%最少打了两针，21.53%打了加强针。
+* * *
 
-既然有如此高的疫苗接种率，那么，即使有新增中共病毒感染案例，也应当主要是以未接种疫苗人群为主体才合符逻辑！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-下面以疫苗接种率相当高的新南威尔士洲来分析。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Vaccination-in-NSW.jpg)
-
-截止到2022年1月17日，新南威尔士洲（NSW）年满16岁的人中，95.2%已经打了最少一针COVID-19病毒疫苗，93.8%最少打了两针COVID-19病毒疫苗，27.8%最少打了三针COVID-19病毒疫苗，在12~15岁的青少年中，有78.3%最少打了两针疫苗，甚至5~11岁的儿童也有16.4%最少打了一针疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-vaccination-in-NSW1.jpg)
-
-然而，1月17日上午8时到1月18日上午8时的24小时内，新南威尔士洲新增确诊中共病毒感染者32,297人。
-
-根据2022年1月13日，新南威尔士洲卫生部门发布的每周中共病毒疫情监测报告《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)》，2021年12月26日至22日1月1日的一个星期内，新南威尔士洲总共有152,440例新增中共病毒感染者被确诊。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19.jpg)
-
-其中：108,056例为完全接种疫苗，1,110例为部分接种疫苗，2,765例为未接种疫苗，28,181例疫苗接种状态不确定，12,328例属于0~11岁不符合接种条件。在所有符合COVID-19病毒疫苗接种条件的人中，96.54%的感染者属于已接种COVID-19病毒疫苗，未接种人群仅占2.47%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-2021年12月26日至22日1月1日的一个星期内，新增COVID-19感染后住院的人中，共有1,578名Covid-19住院患者。其中，完全接种者1,280人，部分接种者47人，未接种者仅251人。这意味着，已接种疫苗的人群占Covid-19住院人数的84.09%，未接种疫苗的仅占15.91%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Hospital-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-在2021年11月26日至22年1月1日期间，共有154名符合接种条件的Covid-19感染者进入ICU，其中，完全接种疫苗的104人，部分接种疫苗的占8人，未接种疫苗的只有42人。这意味着，在11月21日26日至22年1月1日期间，感染COVID-19后进入ICU的患者中，72.73%已接种COVID-19病毒疫苗，67.53%属于完全接种疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-ICU-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-在21年11月26日至22年1月1日期间，总共有32人因COVID-19死亡，完全接种疫苗的死亡人数共有22人，部分接种疫苗的人群中有3人死亡，未接种疫苗的人群中只有7人死亡。接种COIVD-19病毒疫苗后，死亡的占78.16%，未接种疫苗的仅占21.84%，尤其完全接种疫苗的人占到68.75%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-Deaths-by-vaccination-status-and-week-reported-NSW-16-June-to-1-January-2022.png)
-
-毫无疑问，澳大利亚南威尔士洲的数据说明，实验性的中共病毒疫苗给南威尔士洲的人带来严重的疫苗灾难，既不能预防感染，也不能减少住院，更不能减少死亡。
-
-参考数据：
-
-[Australia Population](https://www.worldometers.info/world-population/australia-population/)
-
-[Australian Bureau of Statistics](https://www.abs.gov.au/statistics/people/population)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
-
-[Covid-19 Deaths are at record levels in Australia & Official Data shows the Fully Vaccinated account for 4 in every 5 of those deaths since November](https://dailyexpose.uk/2022/01/19/australia-vaccinated-account-for-4-in-5-covid-deaths/)
-
-[德约科维奇惨遭澳大利亚驱逐 “他已成为反疫苗群体的偶像”](https://www.bbc.com/zhongwen/simp/world-60014139)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

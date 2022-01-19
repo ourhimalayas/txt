@@ -2,35 +2,44 @@
 ---
 
 
-## 第四针疫苗不能阻止Omicron
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1881189/)
+## 中共反腐大片《零容忍》开播 再现“电视认罪”
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1881216/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F220105AVS01-640x400-1.jpg)图片来源：The Times of Israel
-根据《国会山报》1月17日报道，以色列的一项初步研究，世界上首次该项研究发现，第四针COVID疫苗不足以防止Omicron的感染。
-
-据路透社报道，Sheba医疗中心传染病科主任Gili Regev-Yochay说，该试验研究了辉瑞公司两周后的强化剂和Moderna公司一周后的强化剂的效果。
-
-结果表明第四针所增加的抗体 “可能对Omicron来说是不够的”。Yochay补充说：”我们现在知道，保护和不被Omicron感染所需的抗体水平对疫苗来说可能太高了，即使这是好疫苗。
-
-《以色列时报》报道，Sheba医疗中心在其150名员工中进行了第二次加强注射的试验，其结果是初步的，没有公布。截至周日，大约50万以色列人已经接种了第四针。
-
-以色列在整个大流行病期间带头推动疫苗接种，是第一个开始为其人口提供加强针的国家。
-
-总理纳夫塔利-贝内特此前宣布，该国将开始为高危人群和弱势群体提供第四种疫苗作为第二针加强针。
-
-尽管走到了疫苗接种前列，以色列本月早些时候报告了近12,000个新的COVID病例，这是自该大流行病开始以来每日病例率的创纪录最高数字。
-
-以色列卫生部的最高公共卫生官员Sharon Alroy-Preis当时对一家当地新闻媒体说：”没有人能够控Omicron病毒浪潮”。
-
-不知要打到第几针的时候民众才能觉醒，疫苗无效有害。事实表明接种率高的国家疫情更严重。
-
-原文链接：
-[https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron](https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron)
+作者：纽约香草山 侠肝义胆
 
 
 
-编辑，发稿 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
+
+
+
+1月15日，中共所谓的反腐大片巜零容忍》在央视黄金时间开播。
+
+剧中，包括孙力军在内的“政法五虎”、原国开行行长胡怀邦、昆明医科大学附属医院院长马林昆等人均以“电视认罪”的形式出现在观众面前。
+
+在灰暗的背景下，所有犯罪嫌疑人均穿着统一的黑色内衣当众表示忏悔，并认罪伏法。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-22.jpeg)图源网络
+尤其中共公安部前副部长孙力军的“电视认罪”颇具讽刺意味。他说：没想到自己成了一个法治建设或者公平正义的破坏者。
+
+有关分析人士认为，中共反腐大片巜零容忍》通过精心设计的台词和画面，想再次以“电视认罪”的伎俩欺骗人民，彰显其反腐败的正当性。但效果适得其反，中共导演的“电视认罪”正是其贱踏法治精神的真实写照。
+
+新闻来源：https://news.cctv.com/2022/01/15/ARTI8KL8EdrStLry5W3eRBon220115.shtml
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-5.png)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

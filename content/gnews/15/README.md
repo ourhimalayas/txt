@@ -2,33 +2,33 @@
 ---
 
 
-## 1.19文贵直播：习大神最后的“辉煌”，最后的演讲
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1881051/)
+## 完全接种加强剂的西弗州长Covid测试阳性并“极度不适”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1881087/)
 
-整撰：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/01/topshot-switzerland-china-wef-economy-health-environment-pandemi.jpeg)
-图片来源：Gettr
+编译：Jenny Ball
 
-2022年1月19号，文贵先生一口气将病毒、冬奥会、中共内斗、达沃斯演讲、疫苗经济的关系解释的清清楚楚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1527.png)图片来源:thegatewaypundit.com
 
-**病毒：** 2022是全人类最黑暗的一年。人类的疫苗灾难5月份开始，但病毒基本接近尾声了。如果不放新毒，这波已经接近尾声了。
+完全接种了\*加强剂\*的西弗吉尼亚州州长吉姆·贾斯蒂斯（Jim Justice）表示，他周二 Covid 检测呈阳性，感到“极度不适”。
 
-**疫苗经济：**习说，大家开始分享疫苗经济，卖药吧，解决心脏病吧。只要你别搞死我，不脱钩，卖骨灰盒啊，卖心脏病药啊，卖不孕症啊。
+“虽然我对我的测试结果呈阳性感到惊讶，但我感谢上帝，我已经接种了疫苗，我得到了鼓舞，并且我有一个令人难以置信的支持系统，尤其是我亲爱的家人，” 贾斯蒂斯在新闻稿中说。“话虽如此，我此时感到非常不适，我别无选择，只能将我的州情咨文演讲推迟到立法机关。”
 
-**冬奥会和内斗**：一定会有冬奥会蓝，天降瑞雪，习主席是上天之子，普天同庆，一定会发生。如果14亿中国人的财富和共产党的邪恶，达不到这一点，就不叫共产党了。一切都是为了内部斗争，塑造习天子的形象，展现与天斗与地斗的无穷的力量。百分百是惨败的冬奥会，没有多少国际领导人会去，没有冬奥经济，是习太阳最后一场搏击演出。
+这位 70 岁的州长说，他醒来时咳嗽，后来发烧和头痛。
 
-**达沃斯：**王岐山不用出手，郭树清和所谓的经济大家们，包括刘鹤，给习出主意，告诉全世界：“你敢戳破印刷钞票的骗局，不让中国人当我的奴隶，大家一起死”。王岐山太高了，能和曾庆红一起，把习玩的一百年都跟不上。
+州长周二接受了一轮单克隆抗体治疗。
 
-**结论：习近平基本上宣告结束，冬奥会将成为他最后一次国际演出，达沃斯将成为习最后一次国际演讲。**
+“这发生在州情咨文的前一天晚上——我知道我不能去——让我很难过。西弗吉尼亚现在发生了很多大的事情，”贾斯蒂斯说。“因此，我为明天晚上无法与你们一起道歉，我特别向所有不得不改变计划的受邀嘉宾道歉。我会很快回到你们面前。”
 
-郭先生还透露，邓（小平）家在卢森堡的老钱，是“天大的钱”, 过去几十年没动了, 最近买了很多黄金和期货。邓家的举动，证明共产党完了。老钱要动，说明习要出大事。说明他们意识到共产党要完了，习要完了。
+**评论：就标题一行字就打脸“疫苗”作用：即使篡改传统疫苗定义（防止病毒感染），按照CDC为Covid 量身定制的“疫苗定义”——防止感染后重症住院。如果还有人信CDC关于试验mRNA疫苗注射, 那就舍命去当白老鼠吧。**
 
-来源：
+新闻来源:[thegatewaypundit.com][Fully Vaccinated \*And Boosted\* West Virginia Governor “Extremely Unwell” After Positive Covid Test](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-boosted-west-virginia-governor-extremely-unwell-positive-covid-test/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
-[2022.1.19文贵大直播](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
+* * *
 
-感谢大雨围城战友
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
