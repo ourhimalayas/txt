@@ -2,47 +2,21 @@
 ---
 
 
-## 病毒学家和 mRNA 先驱马龙博士预测大觉醒以应对大重置
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1879733/)
+## 坎特：如果你的母亲在那些集中营被强奸你还会考虑钱吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1879802/)
 
 **翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip03-4.png)图片来源：newstarget.com
-随着人们对主流媒体持续操纵鼓吹世界经济论坛所支持的“大重置”的认识，今年必将发生“大觉醒”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip04-4.png)图片来源：thegatewaypundit.com
+上周末，NBA 金州勇士队的股东兼董事、社会资本创始人兼首席执行官查马斯·帕里哈皮蒂亚（Chamath Palihapitiya）在播客采访中，无视中共对维吾尔族穆斯林的人权侵犯。他说：“没人关心维吾尔人的遭遇，好吗？ 你提出来是因为你真的很在乎，我认为你很在乎。我们其他人不在乎。我只是在告诉你一个非常残酷、丑陋的事实： 在我关心的所有事情中，是的，这都不在我的考虑之中。
 
-著名病毒学家和 mRNA 先驱罗伯特·马龙博士(（Rpbert  Malone）)真实地揭露了实验性辉瑞和 Moderna 疫苗的有害形式，这导致他在 Twitter、YouTube 和 Facebook 被审查，他说，民众正在与主流媒体打一场信息战，主流媒体掩盖真相，并强制推行大型科技公司和大型制药公司的叙述。
+坎特：“他唯一关心的就是金钱和为中共宣传，宣传他如何利用社会正义为他的公司赚钱，这让我感到恶心。我想问他一个问题：如果你的母亲，如果你的女儿，如果你的姐姐在那些集中营里，每天都被折磨和轮奸，你还会想钱吗？ 你还要保持沉默吗？”
 
-“这是21 世纪全面的媒体战、信息战、政治战，这是我们以前从未见过的形式，并且，（他们）在全球范围内进行了协调，”马龙告诉 《领队冲》ZeroHedge 作家克里斯蒂·利。 “对我来说，另一件事是，世界经济论坛代表的东西，达成的协议，我个人真的非常抗拒。” （相关：**世界经济论坛模拟可能导致“大重置”的全球网络攻击**。）
-
-马龙说，民众对大重置的真正意图和局限性的认识不断提高，令他感到鼓舞，大型机构自上而下治理的功能失调，结构的改变，将是这种认识的显着结果之一。
-
-虽然很难，但马龙说，他总是在寻找一线希望。
-
-“如果人类在历史的这一刻认识到，其相互联系，以及社区意识、完整性和人类尊严的重要性，**我们将有一个大觉醒来应对大重置**，”马龙说。 “人们来找我谈论大重置。我当时想，‘啊，这个太疯狂，’但后来大重置都被记录在案了，然后你看到它被部署了。就在这里——他们毫不隐瞒他们为此感到自豪。”
-
-在主流媒体的攻击下，马龙指出，越来越多的证据表明，疫苗是有害的，并且可能致命。专门研究病毒学和疫苗的马龙，**实际上发明了辉瑞和 Moderna 正在使用的 mRNA 技术**。
-
-**马龙对大规模疫苗接种表示担忧**
-
-1 月初，马龙在“乔·罗根体验”(Joe Rogan Experience) 的热门节目中做客时，表达了他对世界各国政府大规模疫苗接种计划的担忧。
-
-YouTube 已经删除了播客的片段，但第三方频道将这一集上传到了罗根拥有独家协议的“现场” Spotify。审查制度引发了右翼政客和政治评论员的愤怒。
-
-马龙将大规模接种疫苗描述为必须停止的违法行为。 “我相信没有人应该对这些实验产品有疫苗授权，”马龙说。 “我认为这完全违反了《**纽伦堡法典》、《赫尔辛基协议》、《共同规则》、《贝尔蒙特报告》等**。这是一种无法无天的行为——必须完全停止。”
-
-马龙承认，尽管有业内人士对医学政治的看法，但他并不准备成为公众关注的焦点，但他表示，他相信，现在的信息控制是全球范围内协调的。
-
-“我没想到会是这样，我发现自己处于这场抵抗风暴的中心。它深刻地改变了我对我们收到的信息的看法，”马龙说。 “我之前没有意识到全球协调的信息控制，它不是评估真相，而是讲述故事。”
-
-马龙表示，在阅读跨国主义书籍后，是否会建立新世界秩序，他持怀疑态度。
-
-原来它就发生在今天。 “[我们] 看到，它以一种国家主权、政府越来越无关紧要的方式实时上演。你知道，这就是人们必须醒来的事情。这与疫苗无关。疫苗只是一种手段。”
-
-**新闻来源**：[newstarget.com][Leading virologist and mRNA pioneer Dr. Robert Malone predicts Great Awakening in response to Great Reset](https://www.newstarget.com/2022-01-17-great-awakening-after-great-reset-will-happen.html)
+**新闻来源**：[thegatewaypundit.com][“If Your Mother – Your Sister Were Getting Raped in Those Camps – Would You Still Think About Money?” – NBA Player Enes Kanter Freedom Destroys Disgusting NBA Owner Over Uyghur Comments (VIDEO)](https://www.thegatewaypundit.com/2022/01/mother-sister-getting-raped-camps-still-think-money-nba-player-enes-kanter-freedom-destroys-disgusting-nba-owner-uyghur-comments-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
 * * *
 
-***审核: 文乐
-校对: 阿伯塔
+***审核：文乐
+校对：阿伯塔
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)

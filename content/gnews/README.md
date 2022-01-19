@@ -15,113 +15,113 @@
 
 ---
 
-### [用Covid-19疫苗“拯救生命”一年来多州黄金年龄死亡率飙升50%](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [杀手机器人“如果不停止AI武器的扩散，社会将变得荒废”](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [TDK业界首次成功 在MLCC制造工程中PET薄膜的回收利用](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [爆料革命——历史的今天12月08日](/content/gnews/4/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [UFC总裁对否定 Covid 的早期治疗表示不满](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021年12月6-8日 郭先生视频部分内容整理](/content/gnews/6/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [港府诛杀野猪仓鼠　又推《防止虐待动物条例》](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新书介绍：关于儿童大脑和学习的科学认知（一）](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [01/19每日播报｜英国正着手结束所有的大流行病限制](/content/gnews/9/README.md)
+### [01/19每日播报｜美国呼吁联合国在冬奥会前就新疆人权问题发表报告](/content/gnews/1/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [坎特：如果你的母亲在那些集中营被强奸你还会考虑钱吗？](/content/gnews/10/README.md)
+### [用Covid-19疫苗“拯救生命”一年来多州黄金年龄死亡率飙升50%](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线： 外贸行业开年不利 高价海运和低价物流问题凸显](/content/gnews/11/README.md)
+### [【樱花数据分析】奥密克戎的强感染力可能与两针疫苗接种率相关](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [杀手机器人“如果不停止AI武器的扩散，社会将变得荒废”](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [TDK业界首次成功 在MLCC制造工程中PET薄膜的回收利用](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [爆料革命——历史的今天12月08日](/content/gnews/6/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [UFC总裁对否定 Covid 的早期治疗表示不满](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年12月6-8日 郭先生视频部分内容整理](/content/gnews/8/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [港府诛杀野猪仓鼠　又推《防止虐待动物条例》](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新书介绍：关于儿童大脑和学习的科学认知（一）](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [01/19每日播报｜英国正着手结束所有的大流行病限制](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [坎特：如果你的母亲在那些集中营被强奸你还会考虑钱吗？](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线： 外贸行业开年不利 高价海运和低价物流问题凸显](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [病毒学家和 mRNA 先驱马龙博士预测大觉醒以应对大重置](/content/gnews/12/README.md)
+### [病毒学家和 mRNA 先驱马龙博士预测大觉醒以应对大重置](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/01/19 英喜时事速递](/content/gnews/13/README.md)
+### [2022/01/19 英喜时事速递](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/01/18 墙内世界](/content/gnews/14/README.md)
+### [2022/01/18 墙内世界](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [迷信套娃](/content/gnews/15/README.md)
+### [迷信套娃](/content/gnews/17/README.md)
  ` 骄子`
 
-### [中共国希望将美国文化女性化以进行控制](/content/gnews/16/README.md)
+### [中共国希望将美国文化女性化以进行控制](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [蒙塔尼耶:部分医师参与这场毒疫苗的人类大屠杀](/content/gnews/17/README.md)
+### [蒙塔尼耶:部分医师参与这场毒疫苗的人类大屠杀](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大卫作战室直播精要 2022/01/18](/content/gnews/18/README.md)
+### [大卫作战室直播精要 2022/01/18](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [一位美国经验丰富的护士对当前 COVID 疫苗的观察和感受](/content/gnews/19/README.md)
+### [一位美国经验丰富的护士对当前 COVID 疫苗的观察和感受](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录](/content/gnews/20/README.md)
+### [参议员罗杰·马歇尔（Roger Marshall）谈福奇的财务记录](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [短视频：欧盟担忧定期加强针将导致免疫系统紊乱](/content/gnews/21/README.md)
+### [短视频：欧盟担忧定期加强针将导致免疫系统紊乱](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生盖特精要 20220118](/content/gnews/22/README.md)
+### [文贵先生盖特精要 20220118](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大直播后记：马丁•路德金日我们不妥协](/content/gnews/23/README.md)
+### [大直播后记：马丁•路德金日我们不妥协](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [罗伯特·马龙博士指出我们生活在一种群体形成精神病中](/content/gnews/24/README.md)
+### [罗伯特·马龙博士指出我们生活在一种群体形成精神病中](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [出走的少年](/content/gnews/25/README.md)
+### [出走的少年](/content/gnews/27/README.md)
  ` 银河勇气之星`
 
-### [美国立法对于西藏独立的意义](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [中共借福奇之口定性美国疫情应对失败的原因](/content/gnews/27/README.md)
+### [中共借福奇之口定性美国疫情应对失败的原因](/content/gnews/28/README.md)
  ` 儒为`
 
-### [俄罗斯调动数目不详军队，白宫警告随时入侵乌克兰](/content/gnews/28/README.md)
+### [俄罗斯调动数目不详军队，白宫警告随时入侵乌克兰](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [医院有很多打三针疫苗的病人，不要听福奇和CDC的](/content/gnews/29/README.md)
+### [医院有很多打三针疫苗的病人，不要听福奇和CDC的](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [01/19每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/30/README.md)
+### [01/19每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/31/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共要求外国冬奥会人员安装的手机应用存在安全漏洞](/content/gnews/31/README.md)
+### [中共要求外国冬奥会人员安装的手机应用存在安全漏洞](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国政府基于国家安全原因正在审查阿里巴巴云服务](/content/gnews/32/README.md)
+### [美国政府基于国家安全原因正在审查阿里巴巴云服务](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【速报】东京今日确认感染7377例,破历史新高!](/content/gnews/33/README.md)
+### [【速报】东京今日确认感染7377例,破历史新高!](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港共政府甩锅病毒给宠物 无差别扑杀行为被强烈谴责](/content/gnews/34/README.md)
+### [港共政府甩锅病毒给宠物 无差别扑杀行为被强烈谴责](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】2025年日本偿债成本将超过30万亿日圆](/content/gnews/35/README.md)
+### [【中日财经爆】2025年日本偿债成本将超过30万亿日圆](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [01/19每日播报｜新闻简讯 : 阿里巴巴云在美业务恐将不保 美国飞机商疑遭中资转移技术](/content/gnews/36/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [中共间谍渗透英国15年，曾吹嘘会在下议院安插中国人议员](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

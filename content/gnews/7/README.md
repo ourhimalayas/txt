@@ -2,20 +2,47 @@
 ---
 
 
-## 港府诛杀野猪仓鼠　又推《防止虐待动物条例》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1879808/)
+## UFC总裁对否定 Covid 的早期治疗表示不满
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1879817/)
 
-作者：东京樱花团丨阿恩
-![](https://lh6.googleusercontent.com/zZk8mrvhfeTS3y-lD2puDBR5mr1cdPDmHcboROoGwQzO9CpdIoe_somehYZ7BpY010Ih-oOf5LC18pkvHftE4_nT6wUoezxhioPwuak3ltyER6bj25sgNs2wlL_mJlx0XWlFNLrL)
-环境局局长黄锦星指，自推行捕捉野猪令后，截至本月12日，渔农自然护理署在2个月内，共捕杀了38头野猪，未来会继续监察评估。另外，食物及卫生局局长陈肇始指，港府打算在今年上半年向立法会提出修订《防止残酷对待动物条例》，加重残酷对待动物罪行的罚则等。
+**翻译：Jenny Ball**
 
-香港的山多、岛屿多，人和自然一直相处融洽，市民对生态的保护也是一丝不苟，过往行山的人士均会默守将自己的垃圾带回的规则，不带走属于山林的东西，主动营救受伤或有难的野生动物，使得香港郊野山林郁郁葱葱生机盎然。随着中共在香港推行独裁暴政，对民主人士采取残酷的镇压，许多生命被中共残杀；中共连野猪也不肯放过，这些山林的原住民被中共港府以威胁市民安全的借口追杀，仅两月就夺去近四十条生命。昨日港府专家将Delta变种病毒的感染源头归咎于宠物店的仓鼠，并立即下令捕杀全港的仓鼠，令到众多孩童伤心流泪。港府今日进一步引述仓鼠是海外入口前已感染病毒，口吻与中共在内地宣传的海外包裹携带病毒如出一辙。港府还恬不知耻地公布要修订《防止虐待动物条例》，尤其要加重残酷对待动物罪行的罚则。在港人眼中，首先该当罪责的就是中共港府，完全无视民意颁布诛杀野猪令、诛杀仓鼠令，做出这么多残害动物的行径，居然还有脸称要保护动物，中共港府的厚颜无耻真是无人能及，也难怪这种人格分裂的行径贯穿于港府的管理之中，因为港府的后面是更加邪恶的中共在摆布一切。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip05-5.png)
 
-资料来源：[「猪杀令」推行2个月已杀38头野猪渔护署无意叫停](https://hk.on.cc/hk/bkn/cnt/news/20220119/bkn-20220119133301702-0119_00822_001.html)
+终极格斗锦标赛 (UFC) 总裁达纳·怀特（Dama White）本周末被问及 200 多名“医生和科学专业人士”要求Spotify对与乔·罗根（Joe Rogan）的播客有关的大规模“错误”信息事件采取行动的事件。
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+与往常一样，怀特并没有退缩，谈到关于对单克隆抗体和对 Covid 的早期治疗的否认。
+
+广受欢迎的播客乔·罗根最近告诉他的数千万听众，他在 48 小时内，通过服用伊维菌素、单克隆抗体和维生素D，治好了 Covid 感染。
+
+罗根说，服用伊维菌素和单克隆抗体后，他几乎立即感觉好多了。
+
+然而，真正让那些马克思主义者超速追究的是罗根 12 月 31 日的一集，其主角是 mRNA 和 DNA 疫苗的发明者马龙博士（Robert Malone）。
+
+马龙博士最近因说出有关 Covid 疫苗危险的真相而被禁止使用 Twitter，因此，现在马克思主义者关注起罗根的播客。
+
+当被问及前 UFC 评论员乔·罗根时，**怀特对那些不会为新冠病毒患者开伊维菌素和单克隆抗体的医生表示不满。**
+
+“这令人作呕……这是我一生中见过的最疯狂的事情之一，”怀特谈到拒绝对 Covid 患者进行有效治疗时说。
+
+素材视频链接：
+
+
+
+> [UFC President Dana White Goes Off About Denial of Monoclonal Antibodies and Early Treatment for Covid (VIDEO)](https://www.thegatewaypundit.com/2022/01/ufc-president-dana-white-goes-off-denial-monoclonal-antibodies-early-treatment-covid-video/)
+
+
+
+**新闻来源**：[thegatewaypundit.com][UFC President Dana White Goes Off About Denial of Monoclonal Antibodies and Early Treatment for Covid (VIDEO)](https://www.thegatewaypundit.com/2022/01/ufc-president-dana-white-goes-off-denial-monoclonal-antibodies-early-treatment-covid-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
