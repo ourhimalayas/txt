@@ -2,30 +2,28 @@
 ---
 
 
-## 中共间谍渗透英国15年，曾吹嘘会在下议院安插中国人议员
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1879155/)
+## CDC因为隐瞒了“V-Safe”新冠疫苗安全跟踪系统的数据而被起诉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1879161/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1219300230-1200x798-700x4205-1.jpg)图片来源：每日邮报
-《每日邮报》网站2022年1月16日报道，早在2007年，处于军情五处白厅安全警报核心的共产党间谍就吹嘘她计划在下议院安插中国人议员，这个消息昨天流出。现年58岁的律师李贞驹(Christine Lee)被揭露为中共代理人，她在被任命为中共大使馆的“法律顾问”后，宣布了一项让年轻政客掌权的计划。
+##### 翻译：不要代表我Kari
+校对：枳实
+剪辑|字幕：Biggod
+编辑：Mttfly
 
-这位两个孩子的母亲的“政治干预活动”似乎可以追溯到15年前，在走下从北京飞行13个小时的飞机后几个小时，她宣布了一项让第一个中国人议员当选的计划。她告诉伦敦《Time Out》杂志：“我们已经沉默太久了。我们不会再沉默了，这里的中国人不参与英国政治。我们需要用我们的声音让人们看到和听到我们。”
+美国联邦政府规定75年后才能解密辉瑞疫苗数据及文件。联邦政府还构建了V-safe系统，旨在跟踪新冠疫苗对人体造成的伤害。新冠疫苗推广者们承诺使疫苗数据公开，他们向公众全面推出这种实验性的疫苗，但却不允许公众获取数据。就在过去的几周，美国疾病控制与预防中心（CDC）因拒绝公开“V-safe”新冠疫苗不良反应数据而被起诉。
 
-在她现已关闭的网站上，她讲述了自己作为驻伦敦大使馆顾问的影响力。此前，英国军情五处的一名前负责人指责部长们未能对可能阻止她渗透威斯敏斯特的警告采取行动。曾在2007年至2013年期间掌管军情五处的威尔代尔的埃文斯(Evans)勋爵也对《星期日泰晤士报》表示，外国干涉是对民主的“活生生的威胁”。
+视频链接：[ICAN has filed another lawsuit against the CDC, this time for withholding data from the ‘V-Safe’ Covid-19 vaccine safety tracking system.](https://www.bitchute.com/video/s40ElKt1Jn15/)
 
-中共大使馆否认了这一说法，并称：“中国始终坚持不干涉他国内政的原则。”
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**简评：**中共间谍李贞驹事件充分暴露了中共的虚伪，一边张牙舞爪的指控他国干涉内政，一边明目张胆地渗透他国政府，收买国会议员，被拆穿后还仍然摆出一幅道貌岸然的样子，流氓嘴脸暴露无遗。对付中共这种奉行流氓逻辑的独裁政权，需要的是可以打击到它痛处的实际行动，口诛笔伐已经毫无意义。从英国宣布禁止华为参与英国5G网络项目，到如今的中共间谍被曝光事件，英国社会一直在有条不紊地去除中共影响力，尽管会有勾兑和渗透，但西方民主国家的主流社会价值观与独裁中共的共产主义意识形态注定不容。中共的狼子野心和它四处蔓延的共产主义触须，正在向全世界敲响警钟：中共不灭，世界不宁。
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
