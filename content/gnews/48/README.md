@@ -2,33 +2,38 @@
 ---
 
 
-## 有声|喜马拉雅币一周分析与总结（1月10日-1月16日）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1875745/)
+## 芬兰允许伊维菌素用于治疗中共病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-过去一周喜马拉雅币价格从37美元左右上涨至42美元左右，最高价格约42.7美元，平均日交易量约8万喜币。喜币上市以来总交易量约2550万枚 ，占今年总发行量的仅约2.55%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+#### 撰稿：日本东京方舟农场 JIHO
 
-美联储主席鲍威尔本周二表示，私人稳定币可以和数字美元并存。这为喜币、喜美元进入美国市场打开了最重要的一扇大门。据本周郭文贵先生在直播中透露，喜联储正在申请几十个国家的执照，其系统的设计、系统的合法性，在全球的法律安全性以及其稳定币储备金系统是任何其它数字货币所不具备的，未来将成为世界数字货币的规则制定者。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
 
-郭先生还表示，未来在美国没有被认可的数字货币将很难生存。喜联储正在申请美国各州的不同牌照。喜支付上线后，喜币和喜美元将在美国联邦政府、州政府管辖范围内逐步合法化，并最终与美国政府和美元形成亲密的婚姻关系。
+1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
 
-喜交所官方博客最近也发文表示，2022年更多金融监管者将发放加密货币交易所牌照，只有获得牌照的交易所才能在市场中合法运行。喜交所已经为此做好充分准备，必将在这一轮监管竞赛中取胜。
+日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
 
-文字版原文：[喜马拉雅币一周分析与总结（1月10日-1月16日）](https://gnews.org/zh-hans/1869508/)
+此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*参考链接：*
+
+1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
+2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
+3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
+
+
+* * *
+
+*素材采编：JIHO*
+
+*编辑： 文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

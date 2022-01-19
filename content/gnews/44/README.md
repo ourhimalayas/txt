@@ -2,34 +2,30 @@
 ---
 
 
-## 不完全财务披露福奇千万美元投资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875788/)
+## 【中日财经爆】中共房地产过度开发 粮食危机迫在眉睫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1877702/)
 
-作者：加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-《纽约邮报》1月16日报道，新发布的记录显示，截至2020年底，福奇和妻子有1040万美元投资，包括230万美元的未实现收益，分别持有在各种共同基金中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-18-上午8.17.50.png)
-参议员罗杰-马歇尔（R-Kan）周五晚上公开发布了福奇2020年的财务。在周二的参议院程序中，他询问了福奇财务状况，福气当时低声骂他 “蠢货”。福奇2020年工资是43万4千312美元，2021年和2022年的工资仍未被公布。
+撰稿：东京樱花团丨麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-1-9.png)[*图片来源*](https://www.watchinese.com/sites/watchinese.com/files/article/2020/05/211/b211p76.jpg)
+中共各级政府以刺激经济为目的，通过转售农田来吸引开发商，导致过度开发，空楼林立。现今虽然多地已停止建设，但据高盛公司估计，中共地方政府的未偿债务已经膨胀到840亿美元。
 
-保守派非营利组织 “司法观察”(Judicial Watch)于2021年10月，起诉美国卫生与公众服务部，要求提供与福奇财务事务有关的文件。根据法庭文件规定，HHS已经提议从2月1日开始每月发布。美国参议院共和党籍参议员兰德保罗曾在去年7月2日，在法庭听证会质询福奇，武毒所病毒研究是否得到美国政府机构资助时，福奇还反唇相讥地说保罗才是谎言制造者。
+恒大集团，佳兆业集团等多家房地产企业的“金融产品”至今未能兑现，预计未偿还的低评级公司债券总额高达650亿美元。
 
-司法观察组织主席托马斯-费顿指责美国国立卫生研究院，对福奇的记录玩了一个 “空壳游戏”。福奇在美国人眼前撒谎，还有NIH对公众获得其财务信息设置障碍，说明他们在掩盖事实。随着事件的进展，福奇与大药厂以无数生命为代价的金钱交易，将一一呈现。
+房地产过度开发导致中国农业急剧衰退，即将发生的温饱问题迫在眉睫。
 
-参考链接：[Dr. Anthony Fauci’s financial disclosure shows $10.4M in investments](https://nypost.com/2022/01/15/dr-faucis-financial-disclosure-shows-10-4m-in-investments/)
+去年12月，中央农村工作会议在北京召开，中共总书记习近平发表讲话提到“2025年实现猪肉自给率95%”。奇怪，2025年中国制造计划的目标不是半导体、AI（人工智能）、量子计算机吗？看来这些工业计划已被振兴农业取代了。习近平本人专门敦促增加大豆和菜籽油种植，抢救农村，保农业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+中共病毒疫情，以及台风、洪水和山体滑坡等自然灾害也使农田遭到严重破坏。此外，到处都建起了住宅区和公寓楼，山区和梯田被太阳能电池板覆盖，农业用地数量急剧减少。大量的大豆、玉米、小麦和猪肉从美国、巴西、阿根廷和乌克兰进口。与2010年相比，2021年大豆进口增长了10倍，而玉米在过去三年中增长了两倍。在2020年度统计中，粮食进口总值为981亿美元，进口量约为7亿吨。
 
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+同时影响也波及到日本，蛋黄酱、食用油、面条、面包等的价格正在上涨，而大豆短缺可能会推高豆腐、酱油和纳豆的价格，所以日本也迎来了新一轮的涨价潮。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息源：[**中国で「豚肉食べられない日が来る」　マンション林立で農耕地激減、農業の劇的な衰退で飢餓迫る**](https://news.yahoo.co.jp/articles/7e81ba4aabce432b031117796dc1d8fb9a0e1046)
+
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

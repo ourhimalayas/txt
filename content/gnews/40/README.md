@@ -2,31 +2,33 @@
 ---
 
 
-## 研究人员发现，感染中共病毒会对人体免疫系统造成长期影响
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876498/)
+## 中共国人口增长持续放缓，实际就是人口负增长
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1877882/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒 16日报导，澳洲一名31岁的女护士自去年7月感染中共病毒后，即使已经过治疗，但身体仍然受到病毒副作用的折磨。早前她被确诊患上姿势直立性心动过速综合征和周围神经病变，之后病情就急速恶化，目前她已经几乎不能行走，并且有吞咽困难的状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-56.jpg)
-这位女护士的不幸经历得到不少网友的认同，许多感染过中共病毒的人，一段时间后都患上各种不同的慢性疾病。这与早前澳洲临床医学小组的观察不谋而合，研究人员发现，感染中共病毒会对人体免疫系统造成长期影响。
+#### **【雅典娜观察】和您一起洞察世界**
 
-参考链接：[研究人员发现，感染中共病毒会对人体免疫系统造成长期影响](https://au.yahoo.com/news/woman-with-long-covid-now-struggles-to-swallow-034618820.html)
+整理报道：入选文家
+编辑：文泓
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WXXLSMYD3NQ@AMO343.png)图片来源：墨尔本雅典娜农场设计组
 
-总编：飞虹
-编辑：天滅中共
-校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+当地时间1月18日，据墙内媒体报道，中共国国家统计局人口和就业统计司司长王萍萍发布文章称，2021年人口自然增长率为0.34‰，比2020年下降1.11个千分点。她表示，由于出生人口继续减少导致人口增长持续放缓，**潜台词就是实际人口已经负增长，因为除了正常出生还有正常死亡人口。**
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+王萍萍认为是两方面原因，一是育龄妇女人数持续减少。2021年15—49岁育龄妇女比2020年减少约500万人，其中21—35岁育龄妇女减少约300万人。二是生育水平继续下降。受生育观念转变、初婚初育年龄推迟(10年推迟约2岁)等多方面的影响，2021年育龄妇女总和生育率继续下降。
+
+2021年郑州水库开闸泄洪制造人祸；各地中共病毒清零政策，封城导致病死饿死不计其数；疫苗灾难爆发，各地医院心血管疾病大爆发，各种突发梗死和出血热，殡仪馆火葬场“熙熙攘攘”。中共的造假局永远不会告诉人民真实的数据，一切服务于统治需要。爆料革命就是要不断揭开中共的伪装，让真相大白于天下。
+
+**参考新闻**: [国家统计局：2021年21至35岁育龄妇女减少约300万人](https://m.chinanews.com/wap/detail/chs/zw/9655014.shtml)
+
+***发布：***tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

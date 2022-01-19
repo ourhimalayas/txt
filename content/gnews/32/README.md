@@ -2,30 +2,27 @@
 ---
 
 
-## 原中泰策略首席陈龙被抓，或涉嫌操纵证券
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1877872/)
+## GTV新闻访谈简报|2022年1月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1878054/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-25.jpg)原中泰策略首席陈龙被抓，或涉嫌操纵证券 网络图片
-据网易新闻1月18日报道，因涉嫌操纵证券及内幕交易，原中泰证券研究所首席策略分析师陈龙被抓。其证券执业证书已被注销，由徐驰接任中泰研究所策略负责人。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV-Gnews-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0118text-SC.png)
+校对：Stay文苑
 
-陈龙之前有9年的证券从业经验，2019年3月加盟中泰证券股份有限公司。2021年5月9日，私募大佬叶飞微博举报股市暗箱操作。即以所谓的“市值管理”名义，联合游资和机构炒作股票。2020年9月至2021年5月，史某等团伙控制数十个证券账户，违法操纵股价，交易金额达30多亿，叶飞等人目前已经伏法。
+编辑：Stay文苑
 
-中共没有真正的经济，中共的股市充斥着虚假和欺骗。中共操纵股市就是为了洗钱和抢劫老百姓的财富。大鱼吃小鱼，小鱼吃虾米，最后被吃的都是小散户老百姓。在股市崩盘之前，中共早已经脱身，把钱藏到海外。只有推翻中共，才能够找回被抢走的财富。
+发稿：Stay文苑
 
-新闻参考链接：[https://c.m.163.com/news/a/GTVOVGR300018AP2.html?spss=newsapp](https://c.m.163.com/news/a/GTVOVGR300018AP2.html?spss=newsapp)
+视频参看：[1.18  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e7692d533c672fca7f104b)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-13.jpg)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

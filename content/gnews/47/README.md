@@ -2,28 +2,22 @@
 ---
 
 
-## 有声|中共冬奥会或有变数
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1875746/)
+## 研究人员发现，感染中共病毒会对人体免疫系统造成长期影响
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1876498/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月16日，文贵先生在盖特转发，汤姆·科顿参议员的电视采访。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒 16日报导，澳洲一名31岁的女护士自去年7月感染中共病毒后，即使已经过治疗，但身体仍然受到病毒副作用的折磨。早前她被确诊患上姿势直立性心动过速综合征和周围神经病变，之后病情就急速恶化，目前她已经几乎不能行走，并且有吞咽困难的状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-56.jpg)
+这位女护士的不幸经历得到不少网友的认同，许多感染过中共病毒的人，一段时间后都患上各种不同的慢性疾病。这与早前澳洲临床医学小组的观察不谋而合，研究人员发现，感染中共病毒会对人体免疫系统造成长期影响。
 
-汤姆·科顿是阿肯色州的参议员，他一直主张美国全面抵制中共冬奥会。在访问中，他在看到中共令人震惊的隔离点之后，表达了对美国运动员安全的担忧：全天候的电子监控、DNA信息被采集、公然的拘留或绑架……并且，据美国奥委会所言，运动员若是中共病毒检测呈阳性，就会被隔离，而且，时间由中共卫生官员决定。
+参考链接：[研究人员发现，感染中共病毒会对人体免疫系统造成长期影响](https://au.yahoo.com/news/woman-with-long-covid-now-struggles-to-swallow-034618820.html)
 
-现在，美国运动员所面临的风险又增加了一项：假设一个没有染疫的健康运动员，有可能因为违反了中共极为严酷的封锁政策，而被中共逮捕。美国政府真的能保证美国运动员的安全吗？科顿议员认为，这显然不可能。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-有鉴于此，科顿议员呼吁，从一开始就不该把年轻的运动员置于这些危险之中，美国政府应该全面抵制中共冬奥会，以保证美国运动员的安全。由于奥米克戎疫情蔓延，我们应当像东京奥运会一样，把冬奥会延期，延期一年。并且，冬奥会应该被重新竞标，在其他安全、自由和民主之地召开。
-在最后，科顿议员还尖锐的批评，国际奥委会就和世卫组织一样，已经被中共深度渗透，被中共掌控，为金钱和利益沦为中共手中的工具，听命于中共。
-
-科顿议员在半年多以来，一直为抵制中共冬奥会而不停呼吁和努力。现在离冬奥会开幕还剩下几周的时候，文贵先生发这样一个盖特，是想告诉我们什么呢？结合今天每日邮报的“为什么要在没有雪的地方开冬奥会？”报道，不禁让人浮想联翩，事情会不会有了新的进展？峰回路转的变数呢？真是让人充满期待……
-
-文字版原文：[中共冬奥会或有变数](https://gnews.org/zh-hans/1869772/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+总编：飞虹
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +25,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

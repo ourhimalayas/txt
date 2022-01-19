@@ -2,26 +2,37 @@
 ---
 
 
-## 日本确诊中共病毒感染人数创历史新高“超过3万人”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1878319/)
+## 有声|从气候到人权 北京冬奥会举办权遭质疑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1878467/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-169.png)[图片来源](https://sputniknews.cn/20210828/1034363997.html)
-在日本，每天报告的中共病毒（新冠病毒Covid-19）确诊病例超过30,000例，创历史新高。
+配音：香草山农场 – 纳米
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月15日，《每日邮报》撰文质疑北京获得冬奥会举办权的合理性，称其从气候、环境到人权，都不能胜任奥运会的东道主。
 
-日本NHK 18日报道，截至下午6时10分，确诊中共病毒感染人数为32197人，超过3万人。迄今为止的最高人数是去年8月20日的25992人，是“第五波”的高峰期，本次感染人数已远高于此。大阪确诊感染人数为5396人，创历史新高，东京确诊人数超过5000人。
+报道指出，北京冬奥会比赛场所不但极度缺乏降雪，而且周边环境恶略。中共无视北京和张北冬奥场地周边地带经常性缺水问题，为制造人造雪，使用4900万加仑的水，300支雪枪，创冬奥历史之最。
 
-日本政府计划在东京都内的东京、千叶、埼玉、神奈川4县等全国13个都道府县实施相当于紧急情况的防疫措施“防扩散等优先措施”。各媒体报道。申请时间为本月21日至下月13日。日本政府将在19日向国会报告这些内容后正式作出决定。包括已实施防扩散等优先对策的广岛、山口、冲绳等，防扩散等优先对策的对象地区为16个县。
+原文链接：[从气候到人权 北京冬奥会举办权遭质疑](https://gnews.org/zh-hans/1871577/)
 
-日本的中共病毒感染人数在去年夏天东京奥运会和残奥会期间爆发性增长，但在去年10月下降到两位数，这种情况一直持续到年初。但由于传染性强的新型突变株Omicron的扩散，感染人数再次迅速增加，从14日起连续4天每天报告超过2万人。
+音频处理/发稿：Daxia
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-[日本のコロナ新規感染確認が過去最多…「３万人超え」（ハンギョレ新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/21702d93941c416f01456bef0d6d1dfa3062a228)
+**更多资讯，更多关注**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

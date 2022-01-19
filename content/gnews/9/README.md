@@ -2,37 +2,155 @@
 ---
 
 
-## 事实证明中国共产党才是最大的卖国贼（上）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1878291/)
+## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
 
-撰稿：三只松鼠
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-46.png)
-来自网络截图
+[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
 
-前几天，在文贵先生的大直播中，七哥披露了在帕米尔高原，中共国出卖国土给哈萨克斯坦、塔吉克斯坦、阿富汗等国家的无耻行径，同时卖国的江家、朱家赚得盆满钵满，到现在还在收取福利。
+**Steve Bannon:
+史蒂夫班农:**
 
-事实上，翻看一下中共历史，中共一直就在扮演卖国贼的角色。1920年5月，共产国际在上海成立了共产国际东亚书记处，该处下设中国、朝鲜和日本三个科，负责向中、朝、日“输出革命”并推翻各国政府。1921年，中国共产党在共产国际扶持下成立，成立之初，中共每月活动费为五千美元，由共产国际全额拨付。
+I just want to make sure we go through it one more time
+我只是想再一次明确实一下
 
-事实证明，俄国当初扶持成立中国共产党的反华战略是完全成功的。1950年2月14日，中共政府与俄国签定《中苏友好同盟互助条约》。按照《条约》约定，中共无条件承认外蒙古独立，出卖外蒙领土一百五十万平方公里；该条约内容主要包括外蒙独立；苏联在中国驻军；中国将华北、东北的海空基地交给苏联；中国人民解放军改编为国际红军，由红军最高统帅直接指挥；中国负责筹集华工一千万人协助苏联；中国将华北各口岸开放予苏联永久驻兵，并自由出入，其中包括秦皇岛，海州，烟台，威海卫，青岛，大连；中国政府所属各机关，公营事业，应设苏联专门人员为顾问；中苏共同管理长春铁路，及沿路两旁五十华里之地区等，是彻头彻尾的卖国条约。
+The numbers a day you’ve had CPI now PPI
+你每天的数字是消费者物价指数，现在是生产者物价指数
 
-除此外，中共还同意停止国民政府对俄国的所有索土要求，并承认清政府与俄国1850年以来所有不平等领土条约有效。1999年12月9日和10日，中共与俄国签定了《中华人民共和国政府和俄罗斯联邦政府关于中俄国界线东西两段的叙述议定书》，内容包括用远大于珍宝岛面积的150多个中国地区换回了被俄国占领的珍宝岛，彻底承认图们江出海口属于俄国，封死了中国东北的出海口，出卖了唐努乌梁海地区，彻底废弃了《尼布楚条约》，承认了清政府与俄国签订的所有不平等条约，外加中国对俄国开放100公里领空。通过该秘密条约，中共又出卖国土一百五十万平方公里，为了掩人耳目和对付军人的不满，江泽民把当时北方的边防军全部调往福建。不仅如此，《议定书》还将大片未经签约而被沙俄强占的领土永久性地划归俄国， 这其中包括1953年联合国大会表决裁定为中国领土的唐努乌梁海地区（约17万平方公里，相当于贵州省面积）。
+Come by and tell people this is…
+过来告诉人们这是…
 
-2001年7月16号，江泽民再与俄罗斯总统普京在莫斯科签署《中俄睦邻友好合作条约》，使俄罗斯与清政府的一系列“不平等条约”正式合法化。其中包括1860年俄国与清政府签订的不平等条约—《中俄北京条约》。这个条约将属于中国的海参崴及邻近远东地区正式划给俄罗斯，包括俄国屠尽当地中国人占领的江东六十四屯。而江东六十四屯（3,600平方公里，相当于香港面积的3倍多）连不平等条约《瑷珲条约》都承认是中国领土。出卖罪行还包括连同自金代开始即归中国管辖、在《中俄尼布楚条约》中明确划归中国的库页岛 （7.64万平方公里，相当于两个台湾面积）。《条约》承认这些土地“永远”不再为中国领土。
+I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
+鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
 
-江总共出卖了东北地区约300多万平方公里在历史上有争议的疆土给俄国，相当于110个台湾的面积。江还将本属吉林省的图们江出海口划给俄国，从而封死了中国东北通往日本海的唯一出海口。让正在进行的中俄图们江出海口问题的谈判功亏一篑。这意味着吉林省呼喊多年并投入巨大人力物力财力的“开边通海战略”化为乌有。当时珲春土地价格一落千丈，很多投资者遭受重创。江还命令已经从中俄国境线后撤的中国边防军再后撤100公里，100公里内不设防。
+And this is dangerous
+这是很危险的
 
-根据中国1990年《缔结条约程序法》第7条规定，有六种条约国家主席无权直接签署，而必须由全国人大常委会予以批准，其中第一项为“友好合作条约、和平条约等政治性条约”，第二项为“有关领土和划定边界的条约”。一方面，中国大陆当权者从未经过民众选票授权，因此没有权力代表13亿中国人民去签订条约。另一方面，中国的领土归全体民众所有，而非中国大陆当权者的私人土地，在如此重大问题上，应在全国广而告之，必要时可通过全民公投方式决定这些领土的归属。而江泽民与俄国签约的整个过程都是秘密进行的。
+No. 1 our system for these rate increases is talk trying to choke this down
+now our system is set up for negative interest rates
+第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
 
-中国大陆民众对当权者签订的中俄边界的新条约，却一直被蒙在鼓里，到今天还不知道发生了什么事情。卖国条约对中华民族所造成的伤害，人们现在根本无法估量，它已经远远超出了民族尊严、国家主权和领土完整的范畴。江泽民在中俄领土问题上的立场不仅不如蒋介石（拒绝承认不平等条约），而且还是在苏联解体、俄国国力下降，中国国力上升的背景下以法律的形式承认了中俄不平等条约，使今后任何一代中国人都失去了向俄国讨回这些土地的法律根据。
+People don’t understand that the trauma that is going to happen in our financial system
+人们不明白我们金融体系将要发生的创伤
 
-究竟谁是真正的卖国贼？从以上中共成立之初至后面与前苏联、俄罗斯长期交往的种种行径来看，中共才是中国的最大卖国贼，他们应该被钉在历史的耻辱柱上让所有中国人唾弃，所以中共退出历史舞台已是必然！
+That’s going to roll into your personal life, okay?
+将会影响每个人生活，知道吗？
 
-参考消息：[中共卖国之一：大面积出卖领土给苏俄 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/15/9/16/n4528553.htm)
+No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
+第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
 
-[存中剑：谁是真正的反华势力？ | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/11/7/1/n3302753.htm)
+Steve Cortes:
+史蒂夫科尔特斯:
+You’re exactly right Steve
+你是非常对的，史蒂夫
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+Look, if we look at history we see that a lot of political upheaval
+看，如果我们回顾历史，我们会看到很多政治动荡
+
+upheaval that we could say the least evil actually results from inflation
+我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
+
+If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
+如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
+
+If we look at Germany pre-World War II
+如果我们看看二战前的德国
+
+We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
+我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
+
+And in a country that is already as polarized as the United States is
+而在一个已经像美国这样两极分化的国家
+
+This kind of inflation is not just bad economics
+这种通货膨胀不仅仅是糟糕的经济学
+
+It’s actually societally dangerous for our country
+它实际上是对我们国家的社会危险
+
+And that’s why we need to be cleared-eyed about what it is and about policy solution
+而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
+
+Because Steve, we can’t just curse the darkness
+因为，史蒂夫，我们不能只是诅咒黑暗
+
+We have to do that, yes
+是的，我们必须这样做
+
+But as lamentable as this current economic quagmire is
+但与当前的经济泥潭一样可悲的是
+
+This is stagflationary embroil that we face right now in America
+我们美国现在面临的滞胀困境
+
+It does also, Steve, present political opportunity
+史蒂夫，它也确实提供了政治机会
+
+Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
+巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
+
+and to transform the republican party, not of the parties of the chased right
+并改变共和党，而不是被追逐的权利的政党
+
+But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
+反而成为一个真正多民族和多种族的美国工人阶级政党
+
+And the polling is starting to show us that political opening is there
+民意调查开始向我们表明政治开放是存在的
+
+If we have the guts and the gumption to cease it of course the right policies mix as well
+如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
+
+For example, as I mentioned yesterday in the show
+例如，正如我昨天在节目中提到的
+
+I think the most powerful way right now to win both politically as well as get the economy back on track
+我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
+
+get the inflation in control again
+再次控制通胀
+
+and get wages rising is inflation motive
+并提高工资就是通胀动机
+
+We need to absolutely stop illegal migration in this country
+在这个国家，我们需要绝对阻止非法移民
+
+and I believe we need a pause in even legal migration to this country
+并且我相信，就算是合法移民也需要适当暂停
+
+A pause in H-1B and other similar would work which is why let the American people wages starts to rise
+H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
+
+So that we see real wages take off again the way they did under Donald Trump
+这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
+
+instead of the way they are crashing right now under Joe Biden
+而不是现在在乔-拜登领导下崩溃的方式
+
+So, it’s calamity but there’s always opportunity as well in calamity
+因此，这是灾难，但灾难中也总是有机会的
+
+* * *
+
+Date: 01/13/2022
+原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
+Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
+原视频日期：2022/01/13
+原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
+任务编号：KE353（3494）
+视频时间段 : 0:00-02:52
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

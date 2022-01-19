@@ -2,25 +2,26 @@
 ---
 
 
-## 有声|北京冬奥会在即 新型病毒来袭
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1875742/)
+## 中共在美司法超限战进入深水区
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1875842/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共北京市卫健委通报，1月15日0时至24时，海淀区新增1例本土确诊病例。当日晚间，北京市中共病毒疫情防控工作第266场新闻发布会通报，北京新增本土确诊病例感染奥密克戎变异株。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月17日的法律专场大直播中，郭先生以太平联盟PAG历时五年的缠诉为例，剖析了该案审理过程中的种种不公正环节，指出，这是一起反映中共对美国司法界蓝金黄的最典型案例。这场中共对爆料革命进行的在美司法超限战，即将进入疯狂的殊死较量。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-266.jpg)
+1月14日，纽约高院法官巴里·奥斯特拉格取消了卡希尔·高登 & 林德尔律师事务所代理太盟PAG的诉讼资格，这是一个有着历史意义的判决。它将中共的红色资本渗透美国律所及法官，甚至司法部官员的重重黑幕撕开了一个口子。这起案件一开始在纽约立案就存在属地争议，初判结果确认了这一点，但随后令人匪夷所思地重启调查。早就签署解除担保义务的所谓3千万担保未付款，经过一系列黑箱操作，至今竟已涉及18楼房产、游艇，以及逾1.5亿美元的罚款。
 
-这是首次在北京得到确认的奥密克戎菌株感染病例。下月4日北京冬奥会开幕在即，随着习近平领导层所奉行的“零感染”政策的实施，紧张局势恐进一步加剧。
+郭先生强调，中共不惜花费200亿美元在美国展开法律超限战，从远期来说，是要彻底瓦解美国的司法独立体系。而从2017年开始的一系列缠诉，目的是以“藐视法庭”的罪名制造借口，摧毁郭先生一手创立的爆料革命。随着中共末日的来临，其必将进行更加疯狂的攻击。
 
-该病例近14天内无外省市旅居史，无相关病例接触史，染病源头不明。而根据北京当局公布的信息，病例曾到过多家购物中心、超市、餐馆、咖啡厅，还曾去滑雪场游玩，到剧院看脱口秀。目前北京政府已调集市级流调队伍赴现场，开展溯源工作。
+郭先生表示，此案已经引起主流媒体、APA律师协会、司法部，甚至国会议员的高度关注。只要证据确凿真实，程序公正，坚信美国的民主与法制仍会发挥巨大的作用。这场法律超限战，我们最终一定会赢。
 
-据报道，中共国目前已有14个省份报告奥密克戎输入病例。截至昨天，有七地通报本土奥密克戎病例，涉北京、上海、广东珠海、广东中山、天津、辽宁大连、河南安阳。
+参考链接：[2022年1月17日 文贵大直播：纽约高院法官判决；以法灭共再下一城；纽约高级法院取消两位律师事务所代表太平联盟起诉文贵先生的诉讼资格；太平联盟诉讼案未来的走向；中共对美国司法界的渗透](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
 
-文字版原文：[北京冬奥会在即 新型病毒来袭](https://gnews.org/zh-hans/1869507/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+总编: Zion文恩
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
