@@ -2,22 +2,49 @@
 ---
 
 
-## 嘉宾喜安娜和七哥关于记忆力对话（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877945/)
+## 郭先生深度解析：黑暗即将到来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877956/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：银河系农场—骄子
 
-你想多恐怖？我们过了36年了，我用一生来证明了我的爱是真实的。我要做的事一定会做到的，而 且我当时说要孩子的时候，我跟我嫂子说我要一儿一女，我嫂子笑得不得了，她就说你怎么会有孩子啊？现在我的孩子都很优秀。这个世界上实力很重要，行动很重要。所以这生活中，你像我们Kate今天的信号老是不好，但是考上大学了是吧？你看我这信号老好，我连高中都没上，所以现在你们这一代人啊，最大的问题就是生活中没程序，你们这代人到时候生活中是屋里边儿脏乱差。小 王子，走到哪儿都踹电源，是吧？啥事都做得很好，一脚把电源给踹了成为经典的错误，是吧？ 所以说孩子们，你们几个你自己眼前的事儿，自己的生活都照顾不好，你想干什么大事都不可能。 就像我今天换衣服，我可以换一套啊。像你们看到海外民运，一年就穿一双鞋，35美金标价，四代四美金打折的鞋一年四季就那一双，美国叫爷爷鞋是吧？他一年都穿一双鞋，你觉得内裤能换几次？ 是吧。牙不刷，脸不洗。华盛顿我去开庭的时候，发现熊宪民还带个腰包，还系了一个那个狗围巾， 就是像Snow戴的一个围巾，围巾挂在这儿，要装作时尚，结果这边胡子刮了，这边胡子没刮，就是这边顺手是右手刮了胡子，左手这边没刮。你觉得这人上法庭作证，法官能相信他吗？陪审团能信他说的话吗？他一上去，法官就看他，他还没说话，法官就说Stop, Stop。你就想一想，一个人穿衣服都不能认真穿，穿给你自己的，不是穿给别人。今天你们每个人都是精心打扮后上来的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾喜安娜和七哥关于记忆力对话（三）-.jpg)
-*发布：*tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+时隔五年，郭文贵先生再次提及，自己2017年曾经告诫过西方“黑暗即将到来”，这句话的真正意思是什么，下面交给郭先生来解答：
+
+
+
+另外，郭先生还强调，爆料革命坚持“以法灭共”的重要意义，让中国人拥有独立的司法体系，目的是希望共产党对郭先生造成的伤害不会再在其他人身上重演。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.3-1.jpg)
+参考信息：
+[1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统；我们要以法灭共，让中国人有独立的司法系统；如果不为之奋斗，大家也会像七哥一样被中共迫害！](https://gettr.com/post/poydelb8d2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：飞虹
+编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

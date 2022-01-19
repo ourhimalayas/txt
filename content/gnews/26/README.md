@@ -2,24 +2,47 @@
 ---
 
 
-## 嘉宾Kate提问及七哥回答（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877917/)
+## 中共冬奥会确定不公开售票
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877949/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：纽约香草山教育部 – Naughty(文行)
 
-永远别做伤害别人的事情，善待别人，从来不问我具体什么事情。我觉得现在我们中国人当中，父母教育孩子，你说啥你干啥，你怎么站你怎么坐都问。哎呦，我的天哪。为啥中国人没出现哲学家? 哲学第一条就是要批判，是独立的批判精神。独立的人格在某种人和社区之内，对事物，对过去， 对行为，对思想成立的一个大家认可的标准，而且是用来批判的，而且是文明的。我们现在父母都代表了哲学，代表了宗教是吧，太可怕了。所以说现在你要走向大学的时候，大学就是2个地方啊， 要么一生走向一个叫做走向工作的一个好的平台，找了份工作就把自己埋葬了。另外一个是走向自我，挖掘出完全不同的自我。这个成功不是权力、名和多少钱，就是你活得快不快乐，你活得开不开心，就是找出自我。
 
-我觉得你们都小，我不好意思跟你们说啊，这个我们老家出来个当时这个能人在聊城，大官啊，我上那儿去拜访他，我说你是咱们老家出来最能的人，你最开心的是什么事啊？他说想放屁就放屁， 想喝酒就喝酒，想抽烟就抽烟，拉得出来，尿得出去。我当时以为我就是个孩子我就在这儿，这大人是不是懒得理我啊，开玩笑。我现在越来越觉得他老人家是讲的是对的。他从我们老家出去的一个教育界，后来从商，是很有良知的，他的孩子现在是我们爆料革命的战友。他讲的是对的，说白MERRY了就是人能说真话，真实的面对自己，不虚伪，矫揉造作，不服从，不虚伪那就是人生最伟大的。好啊，我就说那么多吧，我说多了我怕你记不住。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾Kate-提问及七哥回答（三）-.jpg)
-*发布：*tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+中共冬奥组委会17日发布消息指，本届冬奥会将不会面向境外观众售票，仅对境内符合疫情防控相关要求的观众售票。另外，门票的订购方式由原来的公开销售调整为定向组织，获得入场观赛资格的观众必须在观赛前、观赛中、及观赛后都严格遵守疫情防控的相关要求。
+
+中共冬奥组委会发言人表示，组委会已于1月4日启动闭环管理试运行，1月23日正式闭村，27日开村，在闭环试运行期间，预计有大约 3,000 名境内外人士来华实地开展工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-293.jpg)
+参考信息：
+[北京冬奥不公开售票定向组织观众现场观赛](https://cj.sina.com.cn/articles/view/3121600265/ba0fd709001017sgs)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：飞虹
+编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

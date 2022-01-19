@@ -2,49 +2,26 @@
 ---
 
 
-## 郭先生深度解析：黑暗即将到来
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877956/)
+## 嘉宾喜安娜和七哥关于记忆力对话（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877977/)
 
-作者：银河系农场—骄子
+整理：雅典娜速记组
+编辑：tianzhihuan
 
+嘉宾喜安娜：我还有一个问题啊，就是关于郭叔的超强记忆力。因为我们知道这个爆料革命当中， 这么多事情。郭叔，怎么做到的呀？怎么办到的？我很想知道。谢谢。
 
+郭先生：你问的问题很多战友都在问我，我觉得这真的是没有任何窍门，没有任何超强的，只是付出了常人所不愿意付出的努力。比如说英文单词，刚才我说了Noah、Ark,就是诺亚方舟。我真的是背了几千遍，我背不下来。我老跟外国人说青蒿素，我怎么办，我说Artemisinin, 一个一个字母念, 念了几千遍。Ivermectin是伊维菌素，对不对？这对你们来讲，简直已经是一下就过了。为什么呢？ 你的英文记忆力比我好啊。我因为这几千遍，都记不住一个单词。不仅是年龄的问题，还有一个最重要的问题是你走没走心。我走心，现在我就能记住啊。那么我觉得我没有任何超越常人的记忆力，我觉的就是我用心。比如说，我做什么事情我不专一我是不会做的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+你们在这生活中看到我，我每天除了睡觉时间是认真睡觉之外，我干每件事都很认真。我最讨厌别人浪费我时间。今天早上起来的时候，拿着手机看木兰的信息，我这边刷了牙，看到这个视频，我就刷完牙了。然后我这边洗鼻子，洗完鼻子以后呢，我这边就刮脸，结果还是没看完，我这又开始刷牙，突然发现我已经刷过牙了啊，就是我认真，不是老年痴呆。我经常有这样的事情啊，我蹲在MERRY马桶上看手机，然后发信息，就忘了蹲在马桶上了，没提裤子，直接站起来就想走，哎哟，突然发现还在马桶上坐着呢，还没擦屁股呢，就是认真到这种程度。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾喜安娜和七哥关于记忆力对话（一）-.jpg)
+*发布：*tianzhihuan
 
-
-
-时隔五年，郭文贵先生再次提及，自己2017年曾经告诫过西方“黑暗即将到来”，这句话的真正意思是什么，下面交给郭先生来解答：
-
-
-
-另外，郭先生还强调，爆料革命坚持“以法灭共”的重要意义，让中国人拥有独立的司法体系，目的是希望共产党对郭先生造成的伤害不会再在其他人身上重演。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2.3-1.jpg)
-参考信息：
-[1/17/2022 文贵直播：黑暗降临世界体现在中共操纵媒体、洗劫民众财富和控制司法系统；我们要以法灭共，让中国人有独立的司法系统；如果不为之奋斗，大家也会像七哥一样被中共迫害！](https://gettr.com/post/poydelb8d2)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：飞虹
-编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

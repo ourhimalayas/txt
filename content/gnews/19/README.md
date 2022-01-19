@@ -2,51 +2,22 @@
 ---
 
 
-## 河南本轮疫情本土确诊病例超过900例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1877951/)
+## 嘉宾喜安娜和七哥关于记忆力对话（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1877962/)
 
-作者：首尔天池农场 -追着曙光跑
+整理：雅典娜速记组
+编辑：tianzhihuan
 
+为什么？你们爱自己，你们要有尊严。你爱生活，爱生命。你不爱你自己，别人怎么会爱你呢？ 对吧？你像彤彤，今天一个小女孩就坐在这儿，不闹不哭。刚才我们三百年飞飞的孩子，仨孩子， 这么小的孩子，准备了钢琴，等了几个小时。这样的人他怎么可能不成功，他未来一定会成功，他干什么事情都执着，他会坚持到底的，一定要他成功。像今天你们喜安娜、安迪，你们姊妹两个的表演，全天下哪有女孩不羡慕你们的，是不是？你们的今天就完全不一样。Muyu,今天这么诚实的, 非常认真地坐在这里听，看大卫王你们每个人，我们刚才所有这些孩子。还有所有人的认真地问问题。你们在做什么？你们在改变自己的生命！再让自己的生命变得传奇，没有人能夺走你们刚刚过去的前十分钟，前一个小时，一定会影响你的人生的。所以说一切都是靠自己双手夺来的。靠自己的腿，靠自己的实际行动换来的，永远不要想，也不要相信，也不要去依靠任何你没有付出的东西，它都不是你的，它都是你的伤害。所以说，说到这个时候，我就告诉你们一定要记住，要走出 你的家庭，要走向社会，而且最重要的是你们要知道什么叫善，什么叫恶，什么叫真，什么叫假， 其他你都可以先不要在乎。只要知道什么叫真，什么叫假，你就是牛人。只要知道什么是善，什么叫恶，你就没有灾难。就这么简单，其他就做自己吧。谢谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/嘉宾喜安娜和七哥关于记忆力对话（四）-.jpg)
+*发布：*tianzhihuan
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-中共官媒1月18日报道，截至1月18日零时，河南全省新增本土确诊病例102例。其中，郑州市4例，安阳市94例，许昌市4例；没有新增无症状感染者和疑似病例。
-
-同时，安阳市公布34名确诊病例轨迹，其中30人为汤阴育才学校学生。这些确诊患者均已闭环转运至定点医院。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2.1-5.jpg)
-最新统计显示，自2021年年底本轮疫情开始，截至2022年1月16日24时，河南本轮疫情累计报告本土确诊病例已突破800例。加上昨天的102例，到1月17日24时，河南本轮疫情本土确诊病例已突破900例。
-
-与此同时，河南各地防控措施越发严格，安阳市封控区内的所有社区（村）都实行了封闭管理。
-
-参考信息：
-1. [“两毒并发”已致河南确诊病例超800例 多名专家谈如何“双线作战”](https://k.sina.cn/article_1893801487_70e11e0f04001bdib.html?from=news&amp;subch=onews&amp;wm=3200_0024)
-2. [河南1月17日新增102例本土确诊病例 其中安阳市94例](https://news.sina.cn/gn/2022-01-18/detail-ikyamrmz5829483.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
