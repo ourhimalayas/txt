@@ -2,8 +2,8 @@
 ---
 
 
-## Gfashion不是为了赚钱为了让 HCN HDO Gclub 赚钱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879367/)
+## 西藏人口 水源 喜马拉雅
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879436/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

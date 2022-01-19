@@ -2,8 +2,8 @@
 ---
 
 
-## 喜马拉雅地理位置的重要性
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879462/)
+## 地理位置对国家的影响 为何中共国要东扩拿回台湾
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1879483/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
