@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 12:09 AM (UTC)`
+
+1/19/2022 Miles Guo: The New Federal State of China is saving the entire humanity! It’s the first time in the past 5 years that I seriously talk about the Party of Davos, the Communist Party of the World. Humankind is faced with the disasters caused by the CCP virus and its vaccines. If the Party of Davos is not brought to justice, the earth will be destroyed! The CCP and the Party of Davos are the origins of all evil!<br/><br/>1/19/2022 文贵直播：新中国联邦在拯救全人类！5年来文贵首次认真谈达沃斯党 - 世界的共产党！人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源!<br/>
+![img](https://media.gettr.com/group46/getter/2022/01/20/00/f93aab59-4cbf-cd2b-a8bc-24e051825ebf/out.jpg)
+
+---
+
 `@miles 1/19/2022 11:19 PM (UTC)`
 
 1/19/2022 Miles Guo: What were they doing in the Davos Forum held in Tianjin? They were injected with blood serum and sexually assaulted beautiful ladies and young girls from Tibet, Xinjiang, and Yunnan. Their evil deeds in the past few years are all the ironclad evidence for their crimes.<br/><br/>1/19/2022 文贵直播：达沃斯天津论坛是干嘛来的？他们打着血清、玩弄着西藏、新疆、云南的美女和小孩子，他们过去这些年的恶行都是犯罪铁证！<br/>
@@ -147,13 +154,6 @@
 
 1/17/2021 Miles Guo: The largest corruption case in the DOJ history reflects the CCP spies’ infiltration in the Western judicial system. Pacific Alliance hired a former FBI official bought off by Bruno Wu as the investigative attorney and even used fake evidence about GTV fabricated by Duowei News, which belongs to the CCP’s intelligence agency network<br/><br/>1/17/2021 文贵直播：美国司法部史上最大的腐败案反映了中共间谍对西方司法的渗透；太平联盟雇了被吴征收买的前FBI官员做调查律师，并使用中共情报网站多维捏造的关于GTV的假证据<br/>
 ![img](https://media.gettr.com/group31/getter/2022/01/18/04/c9d877fd-e5e2-f157-7fc5-28d1f8124c27/out.jpg)
-
----
-
-`@miles 1/18/2022 3:43 AM (UTC)`
-
-1/17/2022 Miles Guo: The lawsuit between Pacific Alliance and me is a life and death fight between the CCP and me - the CCP filed the lawsuit against me one day before VOA cut my broadcast on April 19, 2017, and the CCP sent Liu Yanping and Sun Lijun to threaten me not to blow the whistle. What is the relationship between Pacific Alliance and Bruno Wu? How do the law firm where Edward Moss worked previously and the judge in the Pacific Alliance case have to do with the CCP?<br/><br/>1/17/2022 文贵直播：太平联盟案就是文贵与中共的生死之战 - 中共在VOA 419断播前一天便发起诉讼并先后派出刘彦平和孙力军威胁文贵；太平联盟和吴征有何关系？Edward Moss之前的律所和太平联盟案的法官与中共有何关联？<br/>
-![img](https://media.gettr.com/group18/getter/2022/01/18/03/28aaaa82-6faa-987d-c52b-29f986d2d024/out.jpg)
 
 ---
 
