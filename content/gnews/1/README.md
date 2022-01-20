@@ -2,39 +2,23 @@
 ---
 
 
-## 有声|河南本轮疫情本土确诊病例超过900例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1884769/)
+## 恒大债券持有人考虑采取强制执行措施
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1884831/)
 
-配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-20-at-10.38.14-PM-2.png)图片来源：互联网
+素材：Vicky
 
+**外电引述****Kirkland & Ellis****律师事务所及投行****Moelis & Co****代表中国恒大****(**[**03333**](https://stock360.hkej.com/quotePlus/03333)**)****境外债券持有人特别团体发布新闻稿称，持有人特别团体将严肃考****虑采取强制执行措施。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-中共官媒1月18日报道，截至1月18日零时，河南全省新增本土确诊病例102例。其中，郑州市4例，安阳市94例，许昌市4例；没有新增无症状感染者和疑似病例。
+**新闻稿指出，尽管集团多次发布公告，但遗憾的事，持有人特别团体并未看到恒大积极与境外债券人沟通，为所有利益相关方制定可行的恒大境外重组方案，或积极与债权人保持沟通，努力化解集团风险，维护各方合法权益的实质进展。**
 
-同时，安阳市公布34名确诊病例轨迹，其中30人为汤阴育才学校学生。这些确诊患者均已闭环转运至定点医院。
+**持有人特别团体要求恒大立即与其沟通，完全透明的提供集团财务状况和负债信息，并避免在未与持有人特别团体协商的情况下进行进一步资产处置。持有人特别团体聘请了离岸律师事务所Harneys。**
 
-最新统计显示，自2021年年底本轮疫情开始，截至2022年1月16日24时，河南本轮疫情累计报告本土确诊病例已突破800例。加上昨天的102例，到1月17日24时，河南本轮疫情本土确诊病例已突破900例。
+* * *
 
-与此同时，河南各地防控措施越发严格，安阳市封控区内的所有社区（村）都实行了封闭管理。
+***编辑&发布：Vicky***
 
-文字版原文：[河南本轮疫情本土确诊病例超过900例](https://gnews.org/zh-hans/1877951/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**原文链接：**[恒大债券](https://www2.hkej.com/instantnews/china/article/3023814/%E6%81%92%E5%A4%A7%E5%82%B5%E5%88%B8%E6%8C%81%E6%9C%89%E4%BA%BA%E8%80%83%E6%85%AE%E6%8E%A1%E5%BC%B7%E5%88%B6%E5%9F%B7%E8%A1%8C%E6%8E%AA%E6%96%BD)持有人强制执行
 
  
 
