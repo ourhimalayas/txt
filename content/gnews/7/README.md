@@ -2,52 +2,30 @@
 ---
 
 
-## 达沃斯论坛，克劳斯·施瓦布和大重置
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1886318/)
+## 英国首相宣布取消疫情强制性政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1886345/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ayfe4-y3syt.jpg)
-在2022年1月19日的文贵大直播中，文贵先生谈到的一个重要话题是世界经济论坛，即达沃斯论坛，已成中共倒闭论谈，达沃斯党是世界邪恶的共产党。文贵先生说：＂参加达沃斯论坛的不足1000人，他们影响着各国的政治和军事，控制左右数以亿计人命运的财富，他们跟政府勾结，手上沾满鲜血。只要达沃斯党在，人类就不会安全。”
+作者：纽约香草山 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月19日，据英国媒体消息显示，英国首相约翰逊在当天发布声明表示，鉴于英国大部分地区的新增中共病毒感染病例趋于平缓，自1月27日起，当地的大型活动将放弃使用中共病毒疫苗护照政策，同时，英国民众在出入公共场所时也不需要继续提供中共病毒疫苗接种证明。此外，民众将不再被强制要求佩戴口罩，但政府仍旧建议民众在封闭或拥挤的空间内使用口罩。而自2021年12月13日开始生效的居家办公规定也将随之解除。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-14.jpg)
+约翰逊也提到，强制感染者自我隔离5天的政策也将在未来几周内结束，但由于大流行尚未结束，人们依然需要在应对疫情的问题上保持谨慎
 
-谈到达沃斯论坛，就必须提到克劳斯·施瓦布（Klaus Schwab），他是论坛创办人和执行董事长。
+参考链接：[UK lifts COVID restrictions, says omicron wave ‘has peaked’](https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd)
 
-克劳斯·施瓦布 于1938年3月30日生于纳粹德国拉芬斯堡，先后在弗里堡大学获得经济学博士学位，苏黎世联邦理工学院获得工程师博士学位，哈佛大学约翰肯尼迪政府学院获得公共行政硕士学位。1972 年，他成为日内瓦大学最年轻的教授之一。 他获得了许多国际和国家荣誉，是中国外交学院的荣誉教授。施瓦布能讲流利的英语、法语、德语和意大利语。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-1971年，34岁的施瓦布邀请400位欧洲工商界人士在瑞士发起成立了“欧洲管理论坛”，主要目的是要以新的管理模式来重塑欧洲跨国企业的形象。随着其影响力的不断扩大，1987年改为世界经济论坛，发展成为全球瞩目的顶级商业领袖聚会，世界上最大的非官方经济年会。论坛的年会每年1月底至2月初在瑞士小镇达沃斯召开，故也称“达沃斯论坛”。而小镇达沃斯也因此闻名遐迩。2007年又创建夏季达沃斯论坛，定在每年六月或九月在中国天津或大连举行。
+总编: Jack Li文阳
+编辑：百香果
+校正/发稿：Fei797
 
-达沃斯论坛和中国的联系，始于中国改革开放之初。早在1979年，施瓦布就率代表团访华，与当时的国家计委建立了合作关系。到了1981年，世界经济论坛与中国企业联合会已经开始在北京举办年度“企业管理国际研讨会”，此后一直延续下来。达沃斯论坛从2001年开始已被中国共产党控制。
-
-2020年6月3日，Covid-19肆虐全球之时，施瓦布发表了《是时候了，大重置的时机已到》，文章的要点是：”这场流行病代表了一个难得但狭窄的机会之窗，可以让我们反思、重新构想和重置我们的世界，以创造一个更健康、更公平和更繁荣的未来。” 新冠疫情是实施大重置的最佳时机，为了“确保我们急需的大重置，将需要更强大和更有效的政府”（即赋予政府更多的权力）
-
-2020年7月, 施瓦布新书《新冠病毒: 大重置》出版, 这本书更全面阐述了左翼全球主义“精英”们“大重置”的构想。
-
-大重置就是：“我们在社会和经济的所有方面，从教育、社会契约和工作条件等所有方面要进行全面的改革。要求每个国家都必须参与。从石油和天然气到科技的每个行业都必须进行改”
-
-“世界必须联合起来，迅速行动”
-
-大重置是达沃斯论坛邪恶计划的一部分，实际上就是要从政治上、经济上全面实施大规模的极左主义计划，目的是把世界变成一个巨大的奴隶国家，在这个国家里，我们是附庸，受达沃斯精英统治。无疑，迅速蔓延全球的新冠给他们提供了全球统一号令的最佳机会，或者说新冠正是大重置计划的一部分！
-
-越来越多的人开始觉醒，意识到大重置是一个有计划的阴谋，把新冠危机视为“重置”我们世界的巨大机会，旨在改变我们的整个生活方式，摧毁我们的整个社会。
-
-文贵先生的直播，深刻揭露了达沃斯党是世界邪恶的共产党的真面目，达沃斯党是人类的威胁，是新中国联邦和全世界人民的敌人。
-
-**参考资料：**
-1，Now is the time for a ‘great reset’
-[https://www.weforum.org/agenda/2020/06/now-is-the-time-for-a-great-reset/](https://www.weforum.org/agenda/2020/06/now-is-the-time-for-a-great-reset/)
-2。《Covid19: The Great Reset》英文版：
-[http://reparti.free.fr/schwab2020.pdf](http://reparti.free.fr/schwab2020.pdf)
-2，中文版《新冠病毒: 伟大的重置》部分章节：
-[https://cread.jd.com/read/startRead.action?bookId=30678525&readType=1](https://cread.jd.com/read/startRead.action?bookId=30678525&amp;readType=1)
-
-**文章观点仅代表作者个人，与gnews平台无关**
-
-作者：洛杉矶盘古农场 — 过友（文苏）
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

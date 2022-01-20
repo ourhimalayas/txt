@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 11:23 PM (UTC)`
+
+1/19/2022 Miles Guo: There is no way back for Xi Jinping. Jiang Zemin, Meng Jianzhu, Wang Qishan, and Yang Jiechi set up a trap for Xi, turning him into the most hated person of the 95 million CCP members. Xi’s pouring money into the world is bound to completely destroy the CCP’s economy, so he will inevitably implement the most draconian economic policies. In the end, Xi will definitely invade Taiwan.<br/><br/>1/19/2022 文贵直播：习大神已走上不归路，江、孟、王和杨洁篪设局让习成为9500万党员最恨的人；习的大撒币会彻底毁掉中共经济，习将实行最严厉的经济措施，最后一定打台湾！<br/>
+![img](https://media.gettr.com/group3/getter/2022/01/20/23/49f4a59f-6319-2e98-ad3b-219378dc8b8e/out.jpg)
+
+---
+
+`@miles 1/20/2022 11:18 PM (UTC)`
+
+1/19/2022 Miles Guo: The CCP is extremely frightened by the Whistleblowers’ Movement and the New Federal State of China. The vast majority of the 95 million CCP members resent “God Xi”. They wish Xi to attack Taiwan as soon as possible. Taiwan will gain independence once the CCP sets off the war. We will ensure the US and Europe will stay on Taiwan’s side<br/><br/>1/19/2022 文贵直播：看看中共对爆料革命、新中国联邦有多么的恐惧，但9500万中共党员都恨习大神，希望他赶紧去打台湾，一开枪，台湾就得自由了，我们要做的就是让欧美不要放弃台湾<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/20/23/634cdbbb-9b94-d24e-cf4d-21470438914f/out.jpg)
+
+---
+
+`@miles 1/20/2022 11:11 PM (UTC)`
+
+1/19/2022 Miles Guo: The Whistleblowers’ Movement once again saved humanity in the disasters caused by the COVID vaccines and the CCP virus. Ivermectin and artemisinin are the biggest nightmare of the “Swamp”. The Party of Davos and the media moguls will be brought to justice by 2025. Xi's era is over! Citizens of the New Federal State of China will become the sunniest rising force!<br/><br/>1/19/2022 文贵直播: 爆料革命在疫苗和病毒灾难中再次拯救了人类；伊维菌素和青蒿素是沼泽地最大的噩梦；达沃斯党和媒体大佬们将在2025年前受到正义的审判；习的时代已结束！新中国联邦人将成为最阳光的新兴力量！
+![img](https://media.gettr.com/group13/getter/2022/01/20/23/791afd17-8175-1215-f92b-c1fa845074cf/out.jpg)
+
+---
+
 `@miles 1/20/2022 11:05 PM (UTC)`
 
 1/19/2022 Miles Guo: The miserable, chaotic, and disastrous Winter Olympics will be Xi's final performance on the international stage, with Xi’s speech at the Davos Forum becoming his last international speech. Wang Qishan and his vassals advised Xi to employ the dirty trick to threaten the world by using the "spillover effect" as an excuse.<br/><br/>1/19/2022 文贵直播：凄凉、混乱、惨败的冬奥会将成为习最后一次国际演出，习在达沃斯论坛的演讲会成为他最后一次国际演讲；王岐山及其马仔给习出阴招以外溢效应为由威胁全世界<br/>
@@ -131,27 +152,6 @@
 
 1/19/2022 Miles Guo: Less than 1,000 people attend the World Economic Forum at Davos. They can influence the politics and military of various countries and control the wealth that shapes the fate of hundreds of millions of people, and they collude with governments and have blood on their hands. As long as the Party of Davos still exists, humanity will never be safe<br/><br/>1/19/2022 文贵直播：参加达沃斯论坛的不足1000人，他们影响着各国的政治和军事，控制着左右数以亿计人命运的财富，他们跟政府勾结、手上沾满鲜血；只要达沃斯党在，人类就不会安全<br/>
 ![img](https://media.gettr.com/group21/getter/2022/01/19/22/4c1a6dce-667c-97c4-d45b-b6cbe5ee8442/out.jpg)
-
----
-
-`@miles 1/19/2022 5:28 PM (UTC)`
-
-1月19号：吃饭饭喽……吃包包喽……
-![img](https://media.gettr.com/group9/getter/2022/01/19/17/99274941-755d-b836-563d-9f2f342982fa/out.jpg)
-
----
-
-`@miles 1/19/2022 12:46 PM (UTC)`
-
-2022年1月19日 文贵大直播：太平联盟官司背后的故事；达沃斯已成中共倒闭论坛；与西方经济脱钩洞察其奸；疫苗政策盼转机有备无患
-![img](https://media.gettr.com/group9/origin/2022/01/19/12/d9cf4a0a-b73b-b3dd-d3f1-ce426056f15a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/19/2022 9:31 AM (UTC)`
-
-1/17/2022 Miles Guo: Procedure justice is the key in the Western judicial system. However, Pacific Alliance and the judge in the PAX case disregarded the law and common sense. They didn’t allow me to speak up in court. Nor did I have the permission to question the opposing party. Instead, they charged me with contempt of court. Is that still called the rule of law?<br/><br/>1/17/2022 文贵直播：西方世界的法律讲究的是程序正义，但太平联盟及PAX案的法官罔顾法律和常识，既不允许文贵张嘴说话、也不允许质疑对方，直接判文贵藐视法庭，这还叫法治吗？<br/>
-![img](https://media.gettr.com/group13/getter/2022/01/19/09/608556ca-59b8-6160-7a35-2919f6302b2b/out.jpg)
 
 ---
 
