@@ -2,11 +2,15 @@
 ---
 
 
-## 疫苗公司与医院是否有金钱往来?得到多少报酬?院方未回应
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884302/)
+## 西媒头条 — 第157期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1884410/)
 
-台灣寶島農場
+**制作：蚂蚁兄弟**
 
+**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220120.002.jpeg)
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
