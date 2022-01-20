@@ -2,8 +2,8 @@
 ---
 
 
-## 盘古员工福利HDO国内怎么花
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882368/)
+## G翻身不是卖衣服是找买衣服的人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882376/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

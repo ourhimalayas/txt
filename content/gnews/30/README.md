@@ -2,24 +2,39 @@
 ---
 
 
-## 石油期货价格创7年2个月新高，阿联酋设施爆炸引发担忧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1881989/)
+## 缅因州医生开伊维菌素而被暂停医疗执照30天
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1882032/)
 
-撰稿：东京樱花团/白云朵朵
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-313.jpg)图片来源于本文链接
-在18日的东京市场上，由于人们普遍担心阿拉伯联合酋长国（UAE）首都阿布扎比的国家石油公司设施发生爆炸后，原油供应可能中断，原油期货价格每千升上升到58,000日元左右，这是7年零2个月来的最高值。
+编译：Jenny Ball
 
-东京市场交易的中东产原油期货价格在18日,作为年中的“6月份的期货商品”每1千升涨到了5万8000日元左右。这是自2014年11月以来时隔7年2个月的高价。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/da6df04b172f6b6f40e67c4e0436caca.png)
 
-此前，阿联酋首都阿布扎比的一家国有石油公司的设施发生爆炸，据信是由无人机袭击造成的，引发了人们对石油供应可能中断的担忧。市场相关人士表示,受到中共病毒（新冠病毒Covid-19）疫情打击的各国经济正在恢复正常，对石油的需求预计将保持高位。这次爆炸导致投资者对原油期货的买单增加。
+缅因州医学执照委员会投票决定，让已经行医四十年的70岁的梅丽尔·尼斯医生（Meryl Ness）接受精神病学评估。
 
-信息来源：
+被指控为 COVID 患者开具抗寄生虫药物伊维菌素和疟疾药物羟氯喹。
 
-[原油先物価格 7年2か月ぶり高値 UAEの施設爆発受け懸念広がる](https://www3.nhk.or.jp/news/html/20220118/k10013436531000.html?utm_int=news-business_contents_news-main_004)
+一些病人最终住进了医院，其中一名不得不插管。
 
-*校对：东京樱花团/haruka春香
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+她还给怀孕的 COVID 患者开了羟氯喹。
+
+尼斯向董事会承认，她向药剂师称她的病人患有莱姆病，以获得羟氯喹来治疗 COVID。
+
+受过麻省理工学院教育的内科医生反vaxx组织，称CDC为“犯罪机构”。
+
+70 岁的尼斯是一名内科医生，积极参与儿童健康保护组织，该组织反对疫苗和疫苗授权。委员会在 1 月 12 日的命令中表示，允许尼斯继续行医“对可能接受她的医疗服务的公众的健康和人身安全构成直接威胁”。
+
+**点评：到底谁对公众构成直接威胁？**
+
+**参考资料：**[dailymail.co.uk][MIT-educated anti-vaxxer doctor who treated COVID patients with Ivermectin and hydroxychloroquine has her license suspended and must undergo psychiatric evaluation ‘for spreading misinformation’](https://www.dailymail.co.uk/news/article-10411699/Doctor-treated-COVID-patients-Ivermectin-license-suspended.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

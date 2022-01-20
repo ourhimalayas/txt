@@ -2,21 +2,26 @@
 ---
 
 
-## 魁北克对未接种疫苗者征税将引发社会动荡
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1882133/)
+## 七哥分享人生感悟和成功经验（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882176/)
 
-采编翻译：Spirit          编辑撰稿，发稿：硫酸羟氯喹64
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-35-edited.jpg)图片来源：CTV
+另外一个管好时间，什么样时间就像我手里手机，你打开我手机那个软件就歘歘歘，你说你七哥牛在哪，你知道吗？我手机从来不需要任何人帮我，都是我自己（弄），这就叫与时俱进是吧？我这么手拿着手机，我看着战友小王子啊，我就知道要说啥，我就基本的判断小王子说啥？我再答复就是答案yes还是No，是的我回是的，No,我就会No， 然后我回复一个欢喜拜托了，我能把很多人几乎全都回过8%都用这个回复，因为所有人问的问题基本就是这三答案是吧。（比如）小飞侠，小飞侠你要抛弃掉小飞象是不好的, 我不可能告诉你说把小飞象给踹了吧啊，不可能不行是吧，就完了。
 
+就你脑子的反应，实际上答案就在你心里边儿，很多事情，答案就那么一两个不超过任, 你非要在第4个探讨，那你就完蛋了。王艳萍就在一个问题上，用我老家的骂人的话说， 咬着屎檄子打滴流不松手的那种人，是最惨的，王艳萍一件事儿唠叨来唠叨去，转来转去，答案就是Yes No，这个时候你说就完了，如果再接下来最多你告诉为什么，越是大事儿答案越简单，像咱这，今天直播咱大家就用时间聊，这叫聊。聊的时候，这就是你就完全这是感情故事。
 
-据《CTV新闻》1月12 日报道，多位专家警告魁北克省史无前例地对未接种“新冠病毒”疫苗的成年居民惩罚性征收“健康税”的措施，将会造成社会的极度分裂和对民主自由体制的致命破坏。
+在大事决定上一定要想好，简单直接快啊，这是一个跟你说管理好时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥分享人生感悟和成功经验（五）-.jpg)
+*发布：*tianzhihuan
 
-报道称，[蒙特利尔大学]生物伦理学教授对此表示，由于这项征税措施即没有尊守公平的公共卫生原则，也未尊重公正的宪法规定，因此当局的以上违宪之举不仅不会增加未接种疫苗者的压力和改变其拒绝接种的决定，反而将进一步加剧疫情引发的大量不公平现象所导致的各种灾难。
-
-据悉，[加拿大公民自由协会]在其最近的声明中强调，鉴于《权利和自由宪章》中确定每个人都对其身体健康和医疗决定有着完全的自主权，因此魁省的此项惩罚性税收政策将导致严重的后果，并势必引发民众的强烈反抗和今后对当权政府的全面追责。
-
-原文链接：[https://www.ctvnews.ca/health/coronavirus/quebec-wants-to-tax-the-unvaccinated-but-experts-say-it-could-backfire-1.5737101](https://www.ctvnews.ca/health/coronavirus/quebec-wants-to-tax-the-unvaccinated-but-experts-say-it-could-backfire-1.5737101)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

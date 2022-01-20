@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 3:04 AM (UTC)`
+
+1/19/2022 Miles Guo: What is the “spillover effect” mentioned by the CCP? The CCP daydreams of luring the Party of Davos into enslaving the Chinese people with the so-called “the market potential of Communist China” consisted of the 1.4 billion slaves. This is like the trick played by the Party of Davos to murder the whole world’s people because the Western pension system, insurance companies, banks, and funds are all going to go bankrupt.<br/><br/>1/19/2022 文贵直播：啥是共产党说的“溢出效应”啊？中共幻想继续用所谓14亿奴隶的“中共国市场潜力”勾引达沃斯党奴役中国人民，这和达沃斯党屠杀全世界人民的阴谋异曲同工，因为西方的养老金、保险、银行和基金都要破产倒闭了。
+![img](https://media.gettr.com/group23/getter/2022/01/20/03/39ecc903-4c3d-5923-841d-c5cc0a1d3e48/out.jpg)
+
+---
+
 `@miles 1/20/2022 2:38 AM (UTC)`
 
 1月19号我得乖乖嘞🦅🦅🦅🔥🔥🔥<br/><br/>Miles !!!!!!!!<br/><br/>Huge !!!!!<br/><br/>Too dangerous for Announcers!!!!<br/><br/><br/>https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/
@@ -146,13 +153,6 @@
 
 1月18号：尊敬的战友们好，感谢很多战友为我和b八弟修复照片和制作的视频，万分的感谢！🙏🙏🙏🙏🙏🙏🙏🙏🙏共产党的内部政治斗争和冬奥会的残局……将会带来什么？太平联盟的官司五年来一直和共产党攻击爆料革命的偶然行动：同步进行，这个背后的故事到底是什么？明天直播我们好好聊聊，一切都已经开始！
 ![img](https://media.gettr.com/group38/getter/2022/01/18/15/3ae3c144-2169-1f36-66c3-4b7ba87fee0b/out.jpg)
-
----
-
-`@miles 1/18/2022 9:05 AM (UTC)`
-
-1/17/2022 Miles Guo: The judge in the Pacific Alliance case did not allow us to choose jury trial and gave a huge fine to Lady May, which is not even owned by myself, and the adverse party provided more than 70,000 pages of evidence and over 300,000 pages of documents to overwhelm us, turning the lawsuit about the $30-million loan into the one costing hundreds of millions of dollars in legal fees. The Pacific Alliance admitted that the principal and interest of the loan were paid off, but why did the Beijing police want to assist them to deal with this case?<br/><br/>1/17/2022 文贵直播：太平联盟案的法官不许我们选陪审团审判、给并非文贵所有的Lady May开巨额罚单，对方提供7万多页的证据和30余万页的文件，3000万的官司却要花费上亿律师费；太平联盟承认借款的本息均已还清，但北京警察为何要协助他们处理本案呢？<br/>
-![img](https://media.gettr.com/group34/getter/2022/01/18/09/4e68e0c3-2ad0-bc49-233d-10839724c804/out.jpg)
 
 ---
 

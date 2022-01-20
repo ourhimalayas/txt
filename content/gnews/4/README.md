@@ -2,30 +2,28 @@
 ---
 
 
-## 拜登：承诺解除中共国商品的关税还为时过早
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1882539/)
+## 1月19日大直播后记：不铲除达沃斯（党）不可能有民天下
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882568/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/05931046-8247-4B0E-A1D3-C86BE44BF548_w408_r1_s.jpg)拜登：承诺解除中共国商品的关税还为时过早 网络图片
-据美国之音1月20日报道，美国总统拜登表示，鉴于中共国未能增加购买，解除中共国商品的美国关税还为时过早。
+整理：Ltitle lamp
+编辑：风吹麦浪
 
-在特朗普执政时期，美国对几千亿美元的中共国商品征收25%的关税，但中共国远未实现为期两年的第一阶段贸易协议所做出的保证。到2021年11月，中共国达到了承诺额度的大约60%。美国贸易代表戴琪正在就这个议题努力。
-
-中共外强中干，嘴硬心虚，心里害怕美国一直保持关税，甚至脱钩。但是未来的国际贸易一定会把中共踢出国际秩序，中共靠假骗偷支撑起来的经济不可能在国际上拥有合理的地位。
-
-新闻参考链接：[https://www.voachinese.com/a/biden-said-too-soon-to-ease-tariffs-on-china-20220119/6404532.html](https://www.voachinese.com/a/biden-said-too-soon-to-ease-tariffs-on-china-20220119/6404532.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b601590bfa66f888.png)图片来源：墨尔本雅典娜农场设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+人类一直从过去的封建社会，宗教统治、皇权统治到了工业革命。也就是我们从十九世纪、十八世纪末期，才开始了人类的文明。叫过去的一个人的国家和过去的所谓代表上帝的那些宗教人士统治着人类几千年上万年转向了每个人可以投票选出的个人天下，从家天下、皇权天下、上帝天下、宗教天下变成了我们以个人为（主）的我们民天下。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+但达沃斯论坛是什么影子？它要代表所谓的宗教，代表所谓的人权来统治天下，它不是五十年的。达沃斯和共产党就是过去的封建和宗教统治人类家天下的一个魔鬼的变形的脸，你不把他们铲平它永远不可能让你有民天下。达沃斯和共产党就是几百个家族的家天下的缩影。
 
+资料来源：郭先生GTV和盖特直播视频。
 
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

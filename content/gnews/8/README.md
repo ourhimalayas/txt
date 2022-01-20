@@ -2,8 +2,8 @@
 ---
 
 
-## 喜币无缝链接的绝对安全性
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882451/)
+## 关心建立在共同安全共同利益上
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882460/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
