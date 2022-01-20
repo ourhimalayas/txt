@@ -2,34 +2,41 @@
 ---
 
 
-## 美民主党长达数月推动的《投票权》法案彻底失败
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1885474/)
+## 肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885488/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S-2.jpg)mudgins.com
-事关2022中期选举，事关2024美国大选，事关美国国本，经过昨天（1月19日）的激烈辩论，晚上常规程序投票，以及修改规则投票，最终在22：00点左右自由派惨败，保守人士取得了符合逻辑、常识性的胜利。
+编译：wenwu
 
-是啊，象征美国国本的、神圣的大选投票，怎能当作儿戏？哪里能无需身份验证，随意、随地、随便延时？在一个文明程度、公民素质较高的环境下，这些问题或许无需关注，而当社会环境并非如此时，选举造假舞弊盛行时，就必须加以防范和遏制。2020大选已经出现了巨大的争议，甚至被认为有大量违法、违规的投票。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1593.png)图片来源：thenationalpulse.com
 
-民主党人尝到了甜头，他们还要将这种偷盗选举的手段合法化，去年年初佩洛西就迫不及待地推行所谓的《为人民法案》（《投票权》法案的前身），在她的主持下众议院通过了该法案，却遭到了参议院的否决，经过数月的准备他们欲再次“闯关”。面对红色浪潮席卷全美（共和党保守人士赢得民心），民主党自由派心急如焚，若按照这样的势头，2022年失去两院、丢掉2024大选将是必然的事情，而要力挽狂澜，还需要像2020大选那样，通过暗箱操作，对选票、投票、计票等各环节弄虚作假、浑水摸鱼才能保住选票和位子。为了将这些手段合法化，披上方便选民投票、“为了人民”的外衣，民主党不惜一切代价，甚至改变投票规则也要成全这个《投票权》法案。
+据《国家脉动》独家披露，拜登总统辩论委员会联合主席肯尼斯·沃拉克（Kenneth Wollack）参加了与中共官员和其影响团体的几次”非公开”对话。
 
-昨晚笔者一直在跟进美国参议院的投票情况，并在第一时间报道了常规投票结果【1】。本以为“规则变更”的投票会拖延几日，以便自由派人士的勾兑。看来笔者对美国国会山的运作程序还是缺乏了解。参议院在60 票议案门槛失利后（49:51），没有经过很长时间的辩论，就进入了“规则变更”的投票。这是一个只需简单多数即可通过的投票，如果按照往常大多数党派划分的投票结果，民主党50票，共和党50票，副总统哈里斯的一票即可裁决【2】。
+沃拉克——同时也是公共资助的国家民主基金会（NED）董事会主席——是参加所谓的首届美中高级别政党领袖对话（U.S.-China High-Level Political Party Leaders Dialogue）的十名主要代表之一，该对话由东西方研究所与中共中央对外联络部（International Department of the Central Committee of the Communist Party of China）“合作”主办。
 
-然而，有良知的民主党人还是存在的，民主党人乔·曼钦（Joe Manchin）和凯尔斯滕·西内玛 (Kyrsten Sinema) 与共和党人一起投票反对了规则改革，参议院以 52 票对 48 票否决了规则变更。
+美国代表团由美国前国务卿马德琳·奥尔布赖特（Madeleine K. Albright）率领，尽管她的女儿爱丽丝（Alice）与中国共产党有大量投资，但她最近被选中负责拜登时代的一项关键对外援助计划。
 
-保守派人士大胜，自由派惨败！这最大限度地遏制了中共、集权、独裁体制作假作弊的可能。不过，决不能掉以轻心，在接下来的选举过程中，保守派必须要有足够多的志愿者来监督每个环节，否则，中共那些龌龊、卑鄙的伎俩会无孔不入、无处不在。
+美国代表团总结说：“它寻求通过就治理和外交政策问题交换意见，在美国和中共国的政治精英之间建立理解和信任。”
 
-2022、2024属于正义的保守人士，中共你完了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1595.png)图片来源：thenationalpulse.com
 
-有关链接：
+值得一提的是，东西方研究所（EastWest Institute，如图）在与包括中美交流基金会（CUSEF）在内的首要中共国影响力团体合作方面有着长期的记录；鉴于东西方研究所与北京的密切关系，沃拉克的代表团与中国共产党领导人习近平和中共政权[统战部](https://www.eastwest.ngo/idea/1st-us-china-high-level-political-party-leaders-dialogue-report)的高级官员，进行了“[非正式](https://archive.ph/VPDDC)”会晤。
 
-【1】[https://gnews.org/zh-hans/1882574/](https://gnews.org/zh-hans/1882574/)
+中美交流基金会由中共统战部副部长创办，该组织旨在“收编和化解可能反对中共执政的党政和权力的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。中美交流基金会还赞助了各种美中高级别政党领袖对话。
 
-【2】[https://thehill.com/homenews/senate/590535-manchin-sinema-join-gop-to-sink-filibuster-change-for-voting-bill?rl=1](https://thehill.com/homenews/senate/590535-manchin-sinema-join-gop-to-sink-filibuster-change-for-voting-bill?rl=1)
+第二年（2011年），沃拉克[参加了](https://www.eastwest.ngo/idea/3rd-us-china-high-level-political-party-leaders-dialogue)在中国北京和四川举行的另一次美中高级别政党领导人对话。
 
-**华盛顿DC 望七星**
+东西方研究所解释说：”这次访问标志着对话进程首次扩大到北京以外，包括在中国其他地区举行会议，以努力促进两国政治精英之间更广泛的了解。“
 
-**编辑发布  水星**
+2012年12月，沃拉克参加了另一个以商业为重点的代表团，东西方研究所总结为重点是“如何扩大中共国和美国之间的贸易关系，特别是在省和州一级。”
 
+新闻来源：[thenationalpulse.com] [EXC: Presidential Debate Commission Chief Held ‘Off-The-Record’ Meetings With Chinese Communist Propagandists, And Xi Jinping.](https://thenationalpulse.com/2022/01/18/debate-commission-co-chair-participated-in-ccp-meetings/) | 发布时间：2022年01月18日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
