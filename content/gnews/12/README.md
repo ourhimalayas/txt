@@ -2,20 +2,20 @@
 ---
 
 
-## 感染人数下降，英废除戴口罩义务等规定
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882797/)
+## 【中日财经爆】拜登表示解除对中共国关税为时尚早
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882826/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1537.png)[图片来源](https://www.standard.co.uk/news/uk/boris-johnson-england-british-medical-association-prime-minister-office-for-national-statistics-b977662.html)
-根据2022年1月20日NHK报道，19日英国首相约翰逊宣布了一项政策，取消室内公共设施必须戴口罩等多项规定，以应对中共病毒（新型冠状病毒）感染人数的下降趋势，再次强调了要与中共病毒共生为目标。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1538.png)[图片来源](https://www.voanews.com/a/east-asia-pacific_biden-maintains-trumps-tough-trade-stance-toward-china/6204283.html)
+美国总统拜登周三（1月19日）表示，就取消美国对中共国商品的关税做出承诺还为时过早，但美国贸易代表戴琪正在着手解决这一问题。
 
-在英国，由于Omicron变异株的传播，在本月初每天感染人数超过20万之后，一直在逐渐减少，最近几天每天在10万左右。“虽然感染在一些地区继续蔓延，但总体上已经越过最高峰值，”约翰逊首相19日在众议院解释道。
+前任美国总统川普与中共国签署一项第一阶段贸易协议，中共国承诺在2020-2021年的两年时间内增加采购2,000亿美元的美国商品与服务，目前中共国采购金额截至2021年11月仅达到目标的60%左右。远低于承诺，如何处理这个落差目前仍不明朗。
 
-为此，约翰逊首相宣布将从本月27日起取消伦敦市自上个月以来强制要求在室内公共设施佩戴口罩以及在大型活动中出示疫苗接种证明等规定。此外，他还表示不会延长将于3月到期的感染后隔离措施的规定。
+拜登说，他知道一些商业团体吵着要他开始解除川普对数千亿美元中共国进口商品征收的最高25%的关税，这也是戴琪正在研究这一问题的原因。
 
-郭文贵先生为首的新中国联邦一直致力于揭露中共制造病毒和中共疫苗杀人的真相。可以预见，越来越多的国家会向英国一样取消强制规定，还人们自由空间。
+但他说，鉴于中国未能提高采购，现在推进解除关税为时尚早。
 
-信息来源：[イギリス マスク着用義務など規制撤廃の方針 感染者減少傾向で](https://www3.nhk.or.jp/news/html/20220120/k10013439951000.html)
+消息来源：[美国总统拜登称放宽对中国商品课征关税的时机还未到](https://cn.reuters.com/article/us-biden-china-goods-tariffs-0120-idCNKBS2JU04N)
 
 *校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

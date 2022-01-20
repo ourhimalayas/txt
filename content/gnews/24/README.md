@@ -2,29 +2,27 @@
 ---
 
 
-## 直播预告|磐石农场开幕 + GEdu + GMusic + Rock-Media上线
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1882657/)
+## 有声|GTV新闻访谈简报|2022年1月18日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1882710/)
 
-作者：Kardia
-视频：Ryan
-**新年之后的第一次大直播，文贵先生宣布了喜马拉雅纽约磐石农场的成立。**
-
-**作为一个专业性农场，我们将致力于服务G系列旗下的教育，音乐板块。磐石立足于文化，以媒体见长。**
-
-**经过近一个月紧锣密鼓的筹备建设，终于将在2022年1月21日正式揭开帷幕。更加让人激动的是，这个开幕庆典同时也是G-EDU，G- Music，Rock- Media的上线庆典，令人期待已久的两大G系列的文化品牌也将在此正式亮相，可谓三喜临门，惊喜重重。**
-
-**整个节目将由四大部分组成，包括农场部门和服务介绍，G-EDU团队与课程展示，G- Music团队与网站展示，Rock- Media主创团队与节目剧透，集精美视听和智趣妙语为一体，嘉宾汇聚，共展未来。**
-
-**节目时间：美东时间1月21日7:00 pm，北京时间1月22日8:00 am**
-
-**观赏地址：郭先生的GTV和GETTR账号，磐石农场一台GTV**
-
-**纽约磐石农场即将拉开序幕，三大灭共板块就要启航，期待和您一起共享美好，见证启航！我们不见不散！**
-
-欢迎加入磐石农场discord链接二维码
-![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-17.png)
 
 
+文字版原文：[GTV新闻访谈简报|2022年1月18日早](https://gnews.org/zh-hans/1876666/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

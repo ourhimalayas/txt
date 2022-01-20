@@ -2,46 +2,22 @@
 ---
 
 
-## 鹰之歌
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1882743/)
+## 秘翻在线 : 纽约州总检察长对川普公司的税务问题提出欺诈指控
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1882802/)
 
-推荐人：香草山健身部 – 新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-推荐语：为了追求自由的理想，历来那些勇敢的灵魂像雄鹰般坚韧，没有退缩在崇山巨峰中！
+**撰稿：William**
 
-谁不愿像小鸟
-终日无忧无虑地在林间嬉戏
-谁愿意学雄鹰
-迎着波涛激流飞舞
-绕着崇山峻岭盘旋
-可是，如果没有雄鹰的护卫
-就会有人独霸整个有氧森林
-猎狐者还会编织惊天巨网
-困锁每一双渴望自由的翅膀
-所以，当一批批雄鹰坠落
-请不要悲伤懦弱哭泣
-那不过是他们在完成
-上苍赋予的历史使命
-也不要捡拾那华贵的羽毛
-那是他们最后的遗物
-注定要含笑亲吻大地
-风起时
-那些闪烁着光芒的羽毛
-就像飘荡在空中的旗帜
-唤醒那些永不沉睡的梦
-召唤那些永不屈服的灵魂
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-20-115404.jpg)图片来源：reality blurred
+根据NBC News 的报导, 纽约州总检察长(New York Attorney General )表示，对川普及其企业的调查发现了重要证据，表明存在欺诈行为。一份新的法庭文件指出川普和他的两个孩子对提交给贷方和联邦政府财务报表中的误导信息负有责任。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.png)
-**更多资讯，更多关注**
+纽约总检察长莱蒂蒂娅·詹姆斯(Letitia James )周二晚披露了她对前总统唐纳德·川普(Donald Trump)业务进行民事调查的新细节，称调查发现证据表明该公司对多项资产进行欺诈性估值，并向金融机构歪曲这些价值以谋取经济利益。她特别提到了前总统的两个成年子女小唐纳德·川普(Donald Trump Jr.)和伊凡卡·川普(Ivanka Trump)的责任。詹姆斯在法庭文件中写道: “自 2017 年以来，小唐纳德·川普对大量包含误导性资产估值的财务报表拥有授权”。并写到前白宫顾问伊万卡·川普“是川普集团最大的银行德意志银行的主要联系人。在这项工作中，伊万卡向德意志银行和联邦政府提交了误导性的财务报表。”
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+詹姆斯周二在一份声明中说：“到目前为止，在我们的调查中，我们发现了重要证据，表明唐纳德·J·川普和川普企业错误地和欺诈地评估了多种资产，并为了经济利益向金融机构歪曲了这些价值”和“川普必须遵守我们对文件和证词的合法传票，因为这个国家没有人可以选择法律是否以及如何适用于他们。”
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+州检察长正在协助曼哈顿地区检察官对川普公司的税务欺诈指控进行单独的刑事调查。同时，伊万卡·川普、小唐纳德·川普和他们父亲的律师反对詹姆斯办公室的传票，认为这些传票是不恰当的。川普的律师罗纳德·菲舍蒂(Ronald Fischetti)上个月表示：“他们已经对此进行了三年的调查。我们并不担心，因为他没有做错任何事。”
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源**：[https://www.nbcnews.com/politics/politics-news/ny-ag-says-investigation-trump-business-found-significant-evidence-sug-rcna12685](https://www.nbcnews.com/politics/politics-news/ny-ag-says-investigation-trump-business-found-significant-evidence-sug-rcna12685)
 
  
 

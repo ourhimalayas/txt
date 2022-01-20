@@ -2,48 +2,26 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2022.01.19
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1882651/)
+## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
 
-摘要撰稿人：文俊
+据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
+芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/01/e3fb75a6349a792e35d4fd8d8ffd27ed.jpg)
-### 视频链接：
+法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
 
-[https://gtv.org/video/id=61e8077a533c672fca7f4b09](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
+文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
 
-### 音频链接：
-
-### 摘要：
-
-- 达沃斯控制了世界的财富、政治、国家安全、军事安全。是黑暗力量的俱乐部，控制人类命运的俱乐部，奴隶主俱乐部
-- 世界上金融、军校、警察学校、NGO、好莱坞、媒体平台、世界大的武器制造商、背后全部是达沃斯。控制了你行善的标准，立法权，大脑，判断是非的标准
-- 共济会、光明会、骷髅会等等都是黑暗势力的分支，达沃斯为啥赞同共产党，因为他们都是邪恶的，目标就是控制人类
-- 2001年中国共产党拿下了北京2008年夏季奥运会和WTO的入场券，从那天起，达沃斯论坛就和中国共产党勾结到一起
-- 参加天津达沃斯的人，注射血清，玩弄中国小女孩
-- 达沃斯党和共产党是新冠病毒和疫苗的始作俑者，寻找病毒和疫苗真相，就找中国共产党和达沃斯
-- 达沃斯就是世界共产党。他们制造病毒和疫苗，杀人后不要付养老金、保险赔偿金，还能发疫苗财
-- 达沃斯谈最多的就是：新中国联邦有可能突然被很多国家接受和喜币不可控广泛流通
-- 我们会有去中心化保险和数字太空
-- 王歧山近期去看病发现周围医生全换了，他的专属医生已经服务新的中纪委负责人了
-- 5月份疫苗灾难开始，病毒接近尾声，如果不放新毒，基本病毒结束。开始卖药治疫苗
-- 冬奥会将是习近平最后一次国际演出
-- 国内很快会在家检测核酸
-- 中共自知难逃一劫，被迫脱钩强撑政局
-- 加拿大、澳大利亚、巴西、俄罗斯、日本，打疫苗最多，也许会有三分之一的人口消失，未来无苗族是世界争夺的资源
-- 有新中国联邦在，一定会溯源中共病毒真相
-- 金融界的梵蒂冈卢森堡 ，开始认真研究和新中国联邦合作了
-- 邓小平家族藏在卢森堡的老钱最近开始有动作了，买了很多黄金和期货
-- 躺平币使用即金钱
-- G-TV投资者、GCLUBS会员，会有同价值去中心化保险
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – 柯镇恶
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-
-编辑发布：闪电训练
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

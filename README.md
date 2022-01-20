@@ -15,155 +15,155 @@
 
 ---
 
-### [未来一千天对共产党的盖棺行动，以及明年两个最核心的问题](/content/gnews/1/README.md)
+### [中共国就违反其法律的“任何言论 ”向奥运选手发出警告](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [奥托·瓦姆比尔的家人获得24万多美元朝鲜扣押资产](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [接下来什么都国有化，最黑暗的时代](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [文•贵天成——文贵先生谈“中概股”（十三）](/content/gnews/2/README.md)
+### [秘翻在线：因担心病毒 NBC不会派体育播报团参加北京冬奥会](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [明年最重要的事情，以毒灭共、以苗灭共，要达到最后的核心](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [未来一千天对共产党的盖棺行动，以及明年两个最核心的问题](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [文•贵天成——文贵先生谈“中概股”（十三）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [人类最可悲的就是跟着大部队走](/content/gnews/3/README.md)
+### [人类最可悲的就是跟着大部队走](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [迷信科学和怕死是人类的灾难](/content/gnews/4/README.md)
+### [迷信科学和怕死是人类的灾难](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [【中日财经爆】抖音母公司迫于中共监管 裁撤投资团队](/content/gnews/5/README.md)
+### [【中日财经爆】抖音母公司迫于中共监管 裁撤投资团队](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗两个月内停止](/content/gnews/6/README.md)
+### [疫苗两个月内停止](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [【中日财经爆】拜登表示解除对中共国关税为时尚早](/content/gnews/7/README.md)
+### [【中日财经爆】拜登表示解除对中共国关税为时尚早](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】荷兰继续禁止ASML光刻机出口中共国](/content/gnews/8/README.md)
+### [【中日财经爆】荷兰继续禁止ASML光刻机出口中共国](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党一定会被审判](/content/gnews/9/README.md)
+### [共产党一定会被审判](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [共产党利用西方的逻辑](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [秘翻在线 : 纽约州总检察长对川普公司的税务问题提出欺诈指控](/content/gnews/11/README.md)
+### [秘翻在线 : 纽约州总检察长对川普公司的税务问题提出欺诈指控](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [感染人数下降，英废除戴口罩义务等规定](/content/gnews/12/README.md)
+### [感染人数下降，英废除戴口罩义务等规定](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“喜保险”戳破中共庞氏骗局 “去中心化保险”引领行业发展](/content/gnews/13/README.md)
+### [“喜保险”戳破中共庞氏骗局 “去中心化保险”引领行业发展](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际奥委会称，北京冬奥会官方服装生产不存在强迫劳动](/content/gnews/14/README.md)
+### [国际奥委会称，北京冬奥会官方服装生产不存在强迫劳动](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [鹰之歌](/content/gnews/15/README.md)
+### [鹰之歌](/content/gnews/19/README.md)
  ` 纽约香草山MOS03`
 
-### [美国NBA球星坎特回应姚明邀请 愿访真实中共国](/content/gnews/16/README.md)
+### [美国NBA球星坎特回应姚明邀请 愿访真实中共国](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Reiner Füllmich 律师：最新的 COVID 疫苗批次和毒性的重磅发现将摧毁大型制药公司](/content/gnews/17/README.md)
+### [Reiner Füllmich 律师：最新的 COVID 疫苗批次和毒性的重磅发现将摧毁大型制药公司](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|中共在美司法超限战进入深水区](/content/gnews/18/README.md)
+### [有声|中共在美司法超限战进入深水区](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|生命的意义](/content/gnews/19/README.md)
+### [有声|生命的意义](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2022年1月18日早](/content/gnews/20/README.md)
+### [有声|GTV新闻访谈简报|2022年1月18日早](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [最高法院裁决后，通用电气暂停COVID-19疫苗要求](/content/gnews/21/README.md)
+### [最高法院裁决后，通用电气暂停COVID-19疫苗要求](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国首相约翰逊放弃对COVID-19的限制](/content/gnews/22/README.md)
+### [英国首相约翰逊放弃对COVID-19的限制](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [尚未注射加强针的社区](/content/gnews/23/README.md)
+### [尚未注射加强针的社区](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [直播预告|磐石农场开幕 + GEdu + GMusic + Rock-Media上线](/content/gnews/24/README.md)
+### [直播预告|磐石农场开幕 + GEdu + GMusic + Rock-Media上线](/content/gnews/28/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [郭文贵直播摘要和音频 2022.01.19](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [1/19/2021 文贵直播：共产党的溢出效应是什么？](/content/gnews/26/README.md)
+### [1/19/2021 文贵直播：共产党的溢出效应是什么？](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [快讯：《投票权》法案未在美参议院通过](/content/gnews/27/README.md)
+### [快讯：《投票权》法案未在美参议院通过](/content/gnews/30/README.md)
  ` 华盛顿DC-Russian`
 
-### [GTV新闻访谈简报|2022年1月19日晚](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2022年1月19日晚](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [拜登：承诺解除中共国商品的关税还为时过早](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [1/19/2021 文贵直播：中共和达沃斯党这对邪恶的孪生兄弟离死期不远了](/content/gnews/30/README.md)
+### [1/19/2021 文贵直播：中共和达沃斯党这对邪恶的孪生兄弟离死期不远了](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [疫苗灾难即将到来](/content/gnews/31/README.md)
+### [疫苗灾难即将到来](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [武汉市民质疑中共官方的“死亡人数”](/content/gnews/32/README.md)
+### [武汉市民质疑中共官方的“死亡人数”](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为达沃斯党和中共敲丧钟，新中国联邦和喜币一起开启灭愚之路](/content/gnews/33/README.md)
+### [为达沃斯党和中共敲丧钟，新中国联邦和喜币一起开启灭愚之路](/content/gnews/35/README.md)
  ` YALUN 亚伦`
 
-### [即使中共病毒轻症患者 注意力记忆力也会大幅退化](/content/gnews/34/README.md)
+### [即使中共病毒轻症患者 注意力记忆力也会大幅退化](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/19/2021 文贵直播：人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源](/content/gnews/35/README.md)
+### [1/19/2021 文贵直播：人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
 
-### [中国共产党与世界的经济脱钩，中国人就脱险、脱假以及脱控](/content/gnews/36/README.md)
+### [中国共产党与世界的经济脱钩，中国人就脱险、脱假以及脱控](/content/gnews/38/README.md)
  ` 首尔天池农场`
 
-### [“崽卖爷田不心疼？” 小土豆大撒币背后的猫腻？](/content/gnews/37/README.md)
+### [“崽卖爷田不心疼？” 小土豆大撒币背后的猫腻？](/content/gnews/39/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [石油期货价格创7年2个月新高，阿联酋设施爆炸引发担忧](/content/gnews/38/README.md)
+### [石油期货价格创7年2个月新高，阿联酋设施爆炸引发担忧](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [是梦就“虚幻”能有不碎? 中共副外长北京演讲 不小心泄脱贫梦碎](/content/gnews/39/README.md)
+### [是梦就“虚幻”能有不碎? 中共副外长北京演讲 不小心泄脱贫梦碎](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [太阳光水素制造——太阳能制氢的分子材料](/content/gnews/40/README.md)
+### [太阳光水素制造——太阳能制氢的分子材料](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(一)](/content/gnews/41/README.md)
+### [中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(一)](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线: 北京疫情扩散，当局实施严格清零防控](/content/gnews/42/README.md)
+### [秘翻在线: 北京疫情扩散，当局实施严格清零防控](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年1月19日大直播速记精萃](/content/gnews/43/README.md)
+### [2022年1月19日大直播速记精萃](/content/gnews/45/README.md)
  ` 雅典娜GNotes`
 
-### [文贵爆料 1.19： 原来他们才是疫苗的“弄潮儿”](/content/gnews/44/README.md)
+### [文贵爆料 1.19： 原来他们才是疫苗的“弄潮儿”](/content/gnews/46/README.md)
  ` 秘密翻译组-原创组`
 
-### [1.19文贵直播：习大神最后的“辉煌”，最后的演讲](/content/gnews/45/README.md)
+### [1.19文贵直播：习大神最后的“辉煌”，最后的演讲](/content/gnews/47/README.md)
  ` 秘密翻译组-原创组`
 
-### [PAG诉郭文贵案暴露美国司法至暗面：美立国根基正被中共凿空](/content/gnews/46/README.md)
+### [PAG诉郭文贵案暴露美国司法至暗面：美立国根基正被中共凿空](/content/gnews/48/README.md)
  ` 秘密翻译组-原创组`
 
-### [做一根压死CCP的稻草](/content/gnews/47/README.md)
+### [做一根压死CCP的稻草](/content/gnews/49/README.md)
  ` 银河勇气之星`
 
-### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/48/README.md)
+### [GTV新闻访谈简报|2022年1月19日早](/content/gnews/50/README.md)
  ` 纽约香草山MOS01`
-
-### [2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](/content/gnews/49/README.md)
- ` 秘密翻译组-原创组`
-
-### [斯洛文尼亚与台湾就互设代表处进行洽谈](/content/gnews/50/README.md)
- ` GTV新闻访谈`
 
 ### [美议员推出“争取彭帅自由法案” 制裁国际奥委会高层](/content/gnews/51/README.md)
  ` 日本东京方舟农场`

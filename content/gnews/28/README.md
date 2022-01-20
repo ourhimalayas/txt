@@ -2,31 +2,28 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1882552/)
+## 直播预告|磐石农场开幕 + GEdu + GMusic + Rock-Media上线
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1882657/)
 
-作者：香草山翻译部
+作者：Kardia
+视频：Ryan
+**新年之后的第一次大直播，文贵先生宣布了喜马拉雅纽约磐石农场的成立。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+**作为一个专业性农场，我们将致力于服务G系列旗下的教育，音乐板块。磐石立足于文化，以媒体见长。**
 
+**经过近一个月紧锣密鼓的筹备建设，终于将在2022年1月21日正式揭开帷幕。更加让人激动的是，这个开幕庆典同时也是G-EDU，G- Music，Rock- Media的上线庆典，令人期待已久的两大G系列的文化品牌也将在此正式亮相，可谓三喜临门，惊喜重重。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0119text-SC.png)
-校对：Stay文苑
+**整个节目将由四大部分组成，包括农场部门和服务介绍，G-EDU团队与课程展示，G- Music团队与网站展示，Rock- Media主创团队与节目剧透，集精美视听和智趣妙语为一体，嘉宾汇聚，共展未来。**
 
-编辑：Stay文苑
+**节目时间：美东时间1月21日7:00 pm，北京时间1月22日8:00 am**
 
-发稿：Stay文苑
+**观赏地址：郭先生的GTV和GETTR账号，磐石农场一台GTV**
 
-视频参看：[1.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e8bab8533c672fca7fa66f)
+**纽约磐石农场即将拉开序幕，三大灭共板块就要启航，期待和您一起共享美好，见证启航！我们不见不散！**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-14.jpg)
+欢迎加入磐石农场discord链接二维码
+![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,69 +2,47 @@
 ---
 
 
-## 有声|生命的意义
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1882711/)
+## 鹰之歌
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1882743/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-生命的意义在于
-认准一个正确的方向
-不断地探索与追寻
-不要指望弯道超车
-或者一夜间突然绽放异彩
-而要一步一个脚印
-克服一个又一个艰难险阻
-哪怕每天进步一点点
-也好过一路狂奔
-掉进陷阱或悬崖
-而当你感觉方向错误时
-就要及时抽身回头，
-重新找准方向
-重新上路……
-否则，每多走一步
-都会背离目标越来越远
-越努力就越是在糟蹋浪费生！
-这些都是浅显的道理
-相信每个人都懂
-可是真正能做到者有几个
-许多许多的人
-无不在渴望一夜暴富
-他们绞尽脑汁地算计别人
-没想到有一天终会被人识破
-被别人联合起来抵制
-算计别人者终将被人算计
-害人者终将为人所害
-反倒是那些满含谦卑
-不急功近利之人
-最终才能更行更远
-达到一个别人无法企及的高度
-所以，把生活对你的折磨
-看作是上天对你的考验吧
-迈过那一道道坎
-总有一天
-你会成为上帝眷顾的宠儿
-我爱你 生活
-是你在不断地打磨我 考验我，
-洗尽我的铅华与卑污的尘垢
-出脱成一颗璀璨耀目的钻石
-生命的意义在于爱
-学会生命的意义吧
-学会去爱所有追求真善美的人
+推荐人：香草山健身部 – 新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+推荐语：为了追求自由的理想，历来那些勇敢的灵魂像雄鹰般坚韧，没有退缩在崇山巨峰中！
 
-文字版原文：[生命的意义](https://gnews.org/zh-hans/1876837/)
+谁不愿像小鸟
+终日无忧无虑地在林间嬉戏
+谁愿意学雄鹰
+迎着波涛激流飞舞
+绕着崇山峻岭盘旋
+可是，如果没有雄鹰的护卫
+就会有人独霸整个有氧森林
+猎狐者还会编织惊天巨网
+困锁每一双渴望自由的翅膀
+所以，当一批批雄鹰坠落
+请不要悲伤懦弱哭泣
+那不过是他们在完成
+上苍赋予的历史使命
+也不要捡拾那华贵的羽毛
+那是他们最后的遗物
+注定要含笑亲吻大地
+风起时
+那些闪烁着光芒的羽毛
+就像飘荡在空中的旗帜
+唤醒那些永不沉睡的梦
+召唤那些永不屈服的灵魂
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-82.png)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
