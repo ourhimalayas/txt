@@ -2,42 +2,46 @@
 ---
 
 
-## 为应对中俄的侵犯，美陆军特种部队秘密训练海外合作伙伴
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1882278/)
+## 众议员莫·布鲁克斯：共产主义中国 是美国的敌人，他们不认同我们的民主价值观
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1882468/)
 
-![Army Special Forces Green Berets Nepal](https://i.insider.com/61b3552038f9120018038764?width=700)2020 年 2 月 18 日，美国陆军特种部队士兵和尼泊尔士兵在尼泊尔练习疏散伤员。来自US ARMY
-源自美国《商业内幕》网站2022年01月18日的报道：去年10月，新闻报道强调了在台湾有美国特种作战人员，对当地同行进行了抵御中共国入侵所需的技能培训。但这并非新鲜事。事实上，美国特种作战部队几十年来一直在数十个国家工作，教导当地部队如何成为更好的战士并赢得战斗。这种军事外交强化了美国在全球的存在，并建立了有价值的联盟和伙伴关系，可以在需要时加以利用。
-隶属于美国特种作战司令部(US Special Operations Command)及其更为神秘的下属单位，联合特种作战司令部(Joint Special Operations Command)的大约7万名成员和辅助部队，承担着全球责任，并可以执行多种任务。
-陆军游骑兵团可以直接行动，以打击伊拉克境内的基地组织目标。海军陆战突袭队可以执行战略侦察任务，观察肯尼亚的青年党前哨基地并收集情报。陆军绿色贝雷帽（即美国陆军特种部队），可以通过与当地游击队联手对付塔利班武装分子来进行一场非常规作战行动。
-**教别人如何战斗**
-国防部将外国内部防御，定义为一国政府的民事和军事机构，它们参与“另一政府或其它指定组织，为解放和保护其社会免遭颠覆、无法无天和叛乱而采取的行动计划。”在进行外国内部防御时，特种作战人员与外国军队联合并训练他们，其想法是，更容易和更好地利用资源教外国军队为自己而战。
-“除了战术部分之外，我们还学习如何很好地传播知识。这就是绿色贝雷帽所接受的文化和语言培训”的“真正闪光”之处，绿色贝雷帽说。“我可能认为我是最好的小部队战术（SUT） 教官，但如果我不能简洁有效地传播这些知识，那我就不是真正的教官。”
-通过外国内部防御提供的指导，美国特种作战人员可以在发生冲突时减少或消除所需的援助伙伴部队。这种指导的范围，可以从基本的小单位战术到先进的近距离战斗，以及许多其它技能，“但目标始终是使（东道国）部队能够进行自己的单边行动。如果我们心中没有这个最终目标，那么我们将永远在那里，”国民警卫队绿色贝雷帽说。
-**建立长期合作关系**
-“外国内部防御(FID)可以建立和完善军事力量。这是一个非常多样化的任务集，可以满足不同的需求，并真正成为一个增强军事力量倍增器。在许多方面，外国内部防御是第一道防线，”一位前陆军特种部队军官告诉《内幕》记者。
-“外国内部防御还有一个有趣的演变方面，”这位前官员说。“我们可以在一个国家建立一个特种作战或常规部队，几年后再回到那里，训练他们特定的介入能力，”比如战斗潜水或自由落体跳伞。
-“在很多方面，外国内部防御永远不会结束，我们往往最终与一些单位建立成功的长期合作伙伴关系，”这位前军官说，他和国民警卫队绿色贝雷帽一样，没有得到授权向媒体发言。“但我们也从中得到了一些东西。几年或几十年后，当我们重新访问某国时，就他们现在已有的经验也可以教我们一些东西。外国内部防御可以是一种互惠互利的安排，从长远来看可以增加我们的经验和战斗力。”
-即使是最精锐的特种任务部队，如三角洲部队和以前被称为海豹突击队第六分队的特种部队，有时也不得不进行外国内部防御，作为获得任务的一种方式。
-**简评：**
-无论是否有内幕消息，还是根据局势判断，《商业内幕》在当下放出关于美国特种部队长期协助盟国进行反渗透、反叛乱等的特别培训，并以尼泊尔、伊拉克、台湾举例，其目的无疑是针对目前俄罗斯与乌克兰的军事对峙。伊拉克目前正在进行民主制度转型，台湾是转型成功但面临中共军事威胁的国家，而乌克兰正处于这两种情况之中。
-美国对欧盟是不遗余力的支持，包括美军入驻波兰，美国空降师演习24小时从美国本土空投至爱沙尼亚，以及美军每年都参与欧洲各国防御演习。但对于乌克兰，无法名正言顺入驻或入驻不符合美国利益，所以这篇没有任何新闻的文章隐晦的表明了乌克兰可能有美国特种部队培训教官。针对近日美国政府宣传的俄罗斯特工已经进入乌克兰，并有可能进行false flag operation（假旗行动）给予了正面回应：美国特种部队早在多年前与许多国家通过“外国内部防御(FID)任务集”在当地国的许多方面，已经建立了第一道防线。
-
-新闻链接：[https://www.businessinsider.com/foreign-internal-defense-us-troops-train-partners-to-fight-rivals-2022-1](https://www.businessinsider.com/foreign-internal-defense-us-troops-train-partners-to-fight-rivals-2022-1)
-
-翻译/简评：Brianchow
-
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+众议员莫·布鲁克斯： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是美国的敌人。他们不认同我们的民主价值观。他们奴役中国人民并威胁要入侵美国盟友。那些优先考虑从中共国赚钱而不是尽爱国义务的美国公司应该受到美国人民的追究。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> Communist China is America’s foe. They don't share our democratic values. They enslave the Chinese people & threaten to invade American allies. American companies who prioritize making $$$ off China over their patriotic duty ought to be held accountable by the American people. [pic.twitter.com/hwk8BJkCYe](https://t.co/hwk8BJkCYe)
+> — Mo Brooks (@RepMoBrooks) [January 19, 2022](https://twitter.com/RepMoBrooks/status/1483952080066949122?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥： 当我们阻止（共产）苏联时，我当时是一名战士。 中国共产党也需要一个强大的美国（来阻止和推翻）。 （附华盛顿时报比尔.格茨报道：蓬佩奥支持新的导弹防御计划）
+
+
+
+> I was a soldier when we stopped the Soviets. The Commies in China demand a strong America too. [https://t.co/aoa6jeWJdN](https://t.co/aoa6jeWJdN)
+> — Mike Pompeo (@mikepompeo) [January 19, 2022](https://twitter.com/mikepompeo/status/1483926523413417989?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 美国纳税人的钱不应该资助一个帮助粉饰残暴罪行和种族灭绝的组织。 只要国际奥委会向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 发送数亿美元，它就不应获得美国的免税资格。 【转华尔兹议员官推：今天，华尔兹和Wexton议员提案《不负责任的奥运合作案》剥夺奥委会的免税资格】
+
+
+
+> American taxpayer money should NEVER subsidize an organization that's helping whitewash atrocious crimes & genocide.
+> 
+> As long as the IOC sends hundreds of millions of dollars to the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), it should not receive a U.S. tax exemption. [https://t.co/KnVSgKYMuf](https://t.co/KnVSgKYMuf)
+> — Rep. Mike Waltz (@michaelgwaltz) [January 19, 2022](https://twitter.com/michaelgwaltz/status/1483907605114372096?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯托克： 斯洛文尼亚尊重台湾，并直呼其真名。随着共产主义中国继续其侵略和威胁，美国和所有热爱自由的国家必须向习总书记明确表示，我们支持台湾和所有站在台湾一边的人。 （转ABC新闻：中国谴责斯洛文尼亚升级与台湾关系的计划）
+
+
+
+> Slovenia respects Taiwan and calls it by its real name. As Communist China continues its aggression & threats, the U.S. & every freedom-loving nation must make clear to General Secretary Xi that we support Taiwan & all who stand beside it. [https://t.co/FDC2LKVAO5](https://t.co/FDC2LKVAO5)
+> — Rick Scott (@SenRickScott) [January 19, 2022](https://twitter.com/SenRickScott/status/1483866672897445892?ref_src=twsrc%5Etfw)
+
+
 
  
 

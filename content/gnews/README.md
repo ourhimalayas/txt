@@ -15,116 +15,116 @@
 
 ---
 
-### [郭文贵先生1月18日盖特视频文字版](/content/gnews/1/README.md)
+### [青蒿素百分之百可以消除癌症](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [快讯：《投票权》法案未在美参议院通过](/content/gnews/2/README.md)
- ` 华盛顿DC-Russian`
+### [最高法院裁决后，通用电气暂停COVID-19疫苗要求](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [灭共第十八夜 富国穷民](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [1月19日大直播后记：不铲除达沃斯（党）不可能有民天下](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [拜登：承诺解除中共国商品的关税还为时过早](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [1/19/2021 文贵直播：中共和达沃斯党这对邪恶的孪生兄弟离死期不远了](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [众议员莫·布鲁克斯：共产主义中国 是美国的敌人，他们不认同我们的民主价值观](/content/gnews/7/README.md)
- ` 美国政要直译推`
-
-### [关心建立在共同安全共同利益上](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [喜币无缝链接的绝对安全性](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [疫苗灾难即将到来](/content/gnews/10/README.md)
+### [英国首相约翰逊放弃对COVID-19的限制](/content/gnews/3/README.md)
  ` 纽约香草山MOS02`
 
-### [G翻身不是卖衣服是找买衣服的人](/content/gnews/11/README.md)
+### [尚未注射加强针的社区](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [串珠538:习近平价值10亿的龙椅和千挑万选的玉皇杯](/content/gnews/5/README.md)
+ ` 郭爆料串珠`
+
+### [直播预告|磐石农场开幕 + GEdu + GMusic + Rock-Media上线](/content/gnews/6/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [1/19/2021 文贵直播：共产党的溢出效应是什么？](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [串珠537:Q组织是中共控制来跟美国较量的政治平台](/content/gnews/8/README.md)
+ ` 郭爆料串珠`
+
+### [青蒿素和伊维菌素色神奇](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [盘古员工福利HDO国内怎么花](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [文•贵天成系列——文贵先生谈“中概股”（十一）](/content/gnews/13/README.md)
+### [文•贵天成系列——文贵先生谈“中概股”（十二）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [独立，新中国联邦一定会帮助喜币交易量，价值](/content/gnews/14/README.md)
+### [郭文贵先生1月18日盖特视频文字版](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [接下来怎么支持独立](/content/gnews/15/README.md)
+### [快讯：《投票权》法案未在美参议院通过](/content/gnews/12/README.md)
+ ` 华盛顿DC-Russian`
+
+### [灭共第十八夜 富国穷民](/content/gnews/13/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [1月19日大直播后记：不铲除达沃斯（党）不可能有民天下](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [七哥和安娜、安迪的对话（一）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [为应对中俄的侵犯，美陆军特种部队秘密训练海外合作伙伴](/content/gnews/17/README.md)
+### [拜登：承诺解除中共国商品的关税还为时过早](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥和安娜、安迪的对话（二）](/content/gnews/18/README.md)
+### [1/19/2021 文贵直播：中共和达沃斯党这对邪恶的孪生兄弟离死期不远了](/content/gnews/16/README.md)
+ ` 秘密翻译组-北美组`
+
+### [众议员莫·布鲁克斯：共产主义中国 是美国的敌人，他们不认同我们的民主价值观](/content/gnews/17/README.md)
+ ` 美国政要直译推`
+
+### [关心建立在共同安全共同利益上](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [武汉市民质疑中共官方的“死亡人数”](/content/gnews/19/README.md)
+### [喜币无缝链接的绝对安全性](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [疫苗灾难即将到来](/content/gnews/20/README.md)
+ ` 纽约香草山MOS02`
+
+### [G翻身不是卖衣服是找买衣服的人](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [盘古员工福利HDO国内怎么花](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
+
+### [文•贵天成系列——文贵先生谈“中概股”（十一）](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [独立，新中国联邦一定会帮助喜币交易量，价值](/content/gnews/24/README.md)
+ ` 雅典娜GNotes`
+
+### [为应对中俄的侵犯，美陆军特种部队秘密训练海外合作伙伴](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [武汉市民质疑中共官方的“死亡人数”](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为达沃斯党和中共敲丧钟，新中国联邦和喜币一起开启灭愚之路](/content/gnews/20/README.md)
+### [为达沃斯党和中共敲丧钟，新中国联邦和喜币一起开启灭愚之路](/content/gnews/27/README.md)
  ` YALUN 亚伦`
 
-### [日本感染中共病毒再创新高，16个都县实施重点防疫措施](/content/gnews/21/README.md)
+### [日本感染中共病毒再创新高，16个都县实施重点防疫措施](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [即使中共病毒轻症患者 注意力记忆力也会大幅退化](/content/gnews/22/README.md)
+### [即使中共病毒轻症患者 注意力记忆力也会大幅退化](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/19/2021 文贵直播：人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源](/content/gnews/23/README.md)
+### [1/19/2021 文贵直播：人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥分享人生感悟和成功经验（一）](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
-
-### [七哥分享人生感悟和成功经验（五）](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [魁北克对未接种疫苗者征税将引发社会动荡](/content/gnews/26/README.md)
+### [魁北克对未接种疫苗者征税将引发社会动荡](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [魁北克省长因强征健康税而触犯众怒](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [英国超市使用中共面部识别技术监控购物者](/content/gnews/28/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [“崽卖爷田不心疼？” 小土豆大撒币背后的猫腻？](/content/gnews/29/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [缅因州医生开伊维菌素而被暂停医疗执照30天](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [石油期货价格创7年2个月新高，阿联酋设施爆炸引发担忧](/content/gnews/31/README.md)
+### [石油期货价格创7年2个月新高，阿联酋设施爆炸引发担忧](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [是梦就“虚幻”能有不碎? 中共副外长北京演讲 不小心泄脱贫梦碎](/content/gnews/32/README.md)
+### [是梦就“虚幻”能有不碎? 中共副外长北京演讲 不小心泄脱贫梦碎](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [太阳光水素制造——太阳能制氢的分子材料](/content/gnews/33/README.md)
+### [太阳光水素制造——太阳能制氢的分子材料](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/19/2021 文贵直播：达沃斯天津论坛是干嘛来的？他们打着血清、玩弄着西藏、新疆、云南的美女和小孩子，他们过去这些年的恶行都是犯罪铁证！](/content/gnews/34/README.md)
+### [1/19/2021 文贵直播：达沃斯天津论坛是干嘛来的？他们打着血清、玩弄着西藏、新疆、云南的美女和小孩子，他们过去这些年的恶行都是犯罪铁证！](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/19/2021 文贵直播：达沃斯论坛是黑暗势力和中共勾结以奴役全世界的奴隶主俱乐部](/content/gnews/35/README.md)
+### [1/19/2021 文贵直播：达沃斯论坛是黑暗势力和中共勾结以奴役全世界的奴隶主俱乐部](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/19/2021 文贵直播：参加达沃斯论坛的不足1000人，他们影响着各国的政治和军事，控制着左右数以亿计人命运的财富](/content/gnews/36/README.md)
+### [1/19/2021 文贵直播：参加达沃斯论坛的不足1000人，他们影响着各国的政治和军事，控制着左右数以亿计人命运的财富](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
-
-### [有声|中共国重卡市场断崖式下跌](/content/gnews/37/README.md)
- ` MOSREC`
 
 ### [中共国正在利用经济胁迫作为讹诈，美国和欧盟必须反击(一)](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`

@@ -2,29 +2,26 @@
 ---
 
 
-## 1月19日大直播后记：不铲除达沃斯（党）不可能有民天下
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882568/)
+## 尚未注射加强针的社区
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1882671/)
 
-整理：Ltitle lamp
-编辑：风吹麦浪
+2022-01-19
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b601590bfa66f888.png)图片来源：墨尔本雅典娜农场设计组
+翻译：追郭大姨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C8__MOIDFB8H_BCHS.png)图片来源：[The neighbourhoods where booster shots just aren’t making it into arms](https://www.thestar.com/news/gta/2022/01/19/uptake-of-third-vaccine-doses-lags-in-many-parts-of-the-gta-that-have-been-hot-spots.html)
+大多伦多地区的民众在这场疫苗灾难中渐渐觉醒！尤其是皮尔北部地区和多伦多西北部地区的人民！尽管政府大力宣传和工作，这两个地区民众的第三针注射率仍然不20%！
 
+**评：**什么是星星之火？这就是！虽然迟了一点，可谁也挡不住，它必将燎原！
 
-人类一直从过去的封建社会，宗教统治、皇权统治到了工业革命。也就是我们从十九世纪、十八世纪末期，才开始了人类的文明。叫过去的一个人的国家和过去的所谓代表上帝的那些宗教人士统治着人类几千年上万年转向了每个人可以投票选出的个人天下，从家天下、皇权天下、上帝天下、宗教天下变成了我们以个人为（主）的我们民天下。
+参考链接：[The neighbourhoods where booster shots just aren’t making it into arms](https://www.thestar.com/news/gta/2022/01/19/uptake-of-third-vaccine-doses-lags-in-many-parts-of-the-gta-that-have-been-hot-spots.html)
 
-但达沃斯论坛是什么影子？它要代表所谓的宗教，代表所谓的人权来统治天下，它不是五十年的。达沃斯和共产党就是过去的封建和宗教统治人类家天下的一个魔鬼的变形的脸，你不把他们铲平它永远不可能让你有民天下。达沃斯和共产党就是几百个家族的家天下的缩影。
+编辑：LILY
+发布：肥鯮
+校对：
 
-资料来源：郭先生GTV和盖特直播视频。
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
