@@ -2,19 +2,19 @@
 ---
 
 
-## 迷信是对死亡的恐惧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883874/)
+## 墙内继喜茶降价后，奈雪的茶也要抗不住了
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1883925/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：水滴石穿 
+上传：追着曙光跑
 
-*发布：*Frank2021
+据中共国网易新闻1月18日的报道，有墙内消费者发现奈雪的茶（02150.HK）推出新系列茶饮产品，售价明显下调。 价格降低的几款茶饮属于“限时轻松购”系列。其中，一款茶饮和美式咖啡售价均为9元，另有几款果茶售价在18-21元之间，相比此前的茶饮产品价格低了5-7元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-20-at-18.36.52.jpeg)图片来源：网络
+2021年10月，奈雪的茶披露2021年第三季度运营情况及盈利预警，预计2021年全年将录得经调整净亏损(非国际财务报告准则计量)。 在股价下跌、业绩预亏、对手降价的当前，奈雪的茶或许倍感压力。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+笔者的分析是：墙内的各种奶茶，向来都是年轻人追捧的消费时尚，而当下中共国动荡之时，上层当局不顾墙内的经济萧条，对外大撒币，花费巨资充门面，举办墙内冬奥会，而各地方政府的财政却岌岌可危！而映射到末端消费领域，本来消费旺盛的奶茶行业却出现了如此向下的趋势，当此标定热门消费风向的话，墙内的经济可就要出大问题了！
+
+信息来源：[继喜茶降价后，奈雪的茶也“减配降价”！上市半年股价腰斩，业绩预亏](https://www.163.com/dy/article/GU13RP12051492T3.html)
 
  
 

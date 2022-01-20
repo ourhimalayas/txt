@@ -2,19 +2,12 @@
 ---
 
 
-## 习身边彭蕾的地位，一人之下万人之上
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883826/)
+## 亚裔女子被推入纽约地铁致死，男子被捕
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1883878/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+2022年1月16日 16岁的嫌犯西蒙·马歇尔被指控在地铁站内恶意把一名乘客推到铁轨致其被驶来的火车撞死。受害者据说是一名40岁的亚裔女性，当时在站台等车，与嫌犯毫无瓜葛。过去一年半以来社区内排华的事件似乎更加频繁。
 
-*发布：*Frank2021
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
