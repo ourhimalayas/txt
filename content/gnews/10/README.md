@@ -2,22 +2,25 @@
 ---
 
 
-## 加拿大保守党正谋求反击中共霸权的良方
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1882066/)
+## 英国超市使用中共面部识别技术监控购物者
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1882102/)
 
-编译撰稿：薇文      校对编辑，发稿：硫酸羟氯喹64
+采编： 风云小哥             编译撰稿：自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-33-edited.jpg)左：肿加速师 右：烂土豆 
- 图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-34-edited.jpg)图片来源：DM
 
 
-加拿大[国家邮报]1月18日刊登公共政策分析师赫伊里丁的文章，建议尽快恢复2019年成立的“加中关系委员会”各项工作，包括：“新冠病毒”来源调查，中共间谍科学家甄别，华为通信渗透以及中共染指加拿大内政等事宜，以此对抗中共霸权在加拿大的掠夺和扩张。
+据英国《每日邮报》1月15日报道，英国科浦连锁超市正在使用中共[海康威视]的摄像机监控顾客。该英格兰南部大型食品零售商旗下的35家超市都安装了该公司的面部识别系统，并且所有顾客的脸部数据都将至少保存两年。
 
-文章指出，当前中共对全球霸凌的问题非常严重。从卫生部长不敢直接回应中共有关“来自加拿大的邮件把‘奥密克戎’病毒带入中国”的指控就可见一斑。此外，北京冬奥会将强制各国人员使用一种便于窃听的健康监测程序，以此跟踪和盗取私人信息。但最为邪恶的是，中共正加紧使用绑架，谋杀和威胁家人等犯罪手段，已逼迫海外成千上万的反对者回国受虐。
+报道称，由于[海康威视]的监控设备被广泛使用在新疆集中营以监视镇压少数民族和政治异见者，因此该公司所有产品在美国都已被列为国家安全威胁并禁止使用。英国政府也要求商家切勿使用[海康威视]的摄像系统。
 
-因此，基于加拿大国家安全以及目前的恶劣事态，[加中委员会]的工作比任何时候都重要。但是，加拿大各界联合反抗中共政权的立场并不意味着反华，而是对西方世界民主、自由和人权的依法守护。
+尽管如此，[海康威视]的监控设备仍被英国各地区警方用于对公路交通车牌的识别追踪。对此，保守党议员凯恩斯指出，该公司是中共实施反人类罪和种族灭绝的帮凶，而使用其产品则无疑将所有英国人的个人信息和社会情报都泄露给了中共当局。
 
-资料来源：[Tasha Kheiriddin: Reinstate Canada-China committee to push back against Beijing](https://nationalpost.com/opinion/tasha-kheiriddin-reinstate-canada-china-committee-to-push-back-against-beijing?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1642541910)
+原文链接：
+
+[https://www.dailymail.co.uk/news/article-10406421/Co-op-using-cameras-Chinese-state-owned-company-track-shoppers.html](https://www.dailymail.co.uk/news/article-10406421/Co-op-using-cameras-Chinese-state-owned-company-track-shoppers.html)
+
+校对编辑，发稿：硫酸羟氯喹64
 
  
 

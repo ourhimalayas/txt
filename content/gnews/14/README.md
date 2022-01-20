@@ -2,38 +2,24 @@
 ---
 
 
-## 缅因州医生开伊维菌素而被暂停医疗执照30天
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1882032/)
+## 七哥分享人生感悟和成功经验（十）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882054/)
 
-编译：Jenny Ball
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/da6df04b172f6b6f40e67c4e0436caca.png)
+我从广州换车换飞机，住在那个机场旁边招待所，我跟招待所人，拿出来我说我在那边买了一个荷兰的那个新西兰的那个那个毛衣啊，我说你看我在这买的毛衣啊，20美金啊说好多好多钱呢，这样的毛衣，你知道他们是说什么，说什么破玩意儿啊，不就是那那个那个叫什么，那个那个炒房的那个江浙一带就是什么地方，原来生产这种毛衣，不就那边产的吗？啊，哎哟，不是义乌，是另外一个。所以，你知道游遍世界以后你对 这些人的看法你不一样，你站在高处的时候，当你的发现处理事情（不一样），坐过飞机的人和一辈子做牛车的人想沟通很难，没出过那个村里的人，你给他讲城市和未来太空，你是有毛病。所以我做出一个很明智的选择，我选朋友很注意，再告诉你，我绝不会在我的生命的我的时间单上，有浪费我时间的人。
 
-缅因州医学执照委员会投票决定，让已经行医四十年的70岁的梅丽尔·尼斯医生（Meryl Ness）接受精神病学评估。
+小飞侠，你的狐朋狗友你自己知道，有些人是需要必须忘记的。他不应该出现，就要把他忘记，啊，你看我，我跟发小那么好，是友情，但是我跟他不会做任何事情，我不会跟他聊几个小时，因为我说话他听不懂。需要钱，我给你，需要帮忙，我帮。就像我哥哥我嫂子回家，我绝不会在家呆2个小时，我哥给我讲述他在报纸上看到的新闻，还有什么明星的绯闻是吧？你说我听他干什么？你说你跟他吵架去？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥分享人生感悟和成功经验（十）-.jpg)
+*发布：*tianzhihuan
 
-被指控为 COVID 患者开具抗寄生虫药物伊维菌素和疟疾药物羟氯喹。
-
-一些病人最终住进了医院，其中一名不得不插管。
-
-她还给怀孕的 COVID 患者开了羟氯喹。
-
-尼斯向董事会承认，她向药剂师称她的病人患有莱姆病，以获得羟氯喹来治疗 COVID。
-
-受过麻省理工学院教育的内科医生反vaxx组织，称CDC为“犯罪机构”。
-
-70 岁的尼斯是一名内科医生，积极参与儿童健康保护组织，该组织反对疫苗和疫苗授权。委员会在 1 月 12 日的命令中表示，允许尼斯继续行医“对可能接受她的医疗服务的公众的健康和人身安全构成直接威胁”。
-
-**点评：到底谁对公众构成直接威胁？**
-
-**参考资料：**[dailymail.co.uk][MIT-educated anti-vaxxer doctor who treated COVID patients with Ivermectin and hydroxychloroquine has her license suspended and must undergo psychiatric evaluation ‘for spreading misinformation’](https://www.dailymail.co.uk/news/article-10411699/Doctor-treated-COVID-patients-Ivermectin-license-suspended.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
