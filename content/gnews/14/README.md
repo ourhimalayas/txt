@@ -2,34 +2,19 @@
 ---
 
 
-## 美国推进印太经济合作新框架以应对中共影响力
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1883624/)
+## 习身边彭蕾的地位，一人之下万人之上
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883826/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CB44F069-A877-486B-9DF2-0F732D2C314B.jpeg)（图片来自《大纪元》）
+*发布：*Frank2021
 
-美国一位负责中共国事务的高级政策官员1月19日表示，华盛顿希望在2022年初建立与印度洋及太平洋经济合作的 “共同目标”，用来对抗中共在该地区的影响力。
-
-据加拿大《金融邮报》（The Financial Post）报导，美国总统拜登在去年10月份曾对亚洲国家领导人表示，华盛顿将启动关于建立印度太平洋经济合作框架的会谈,但他一直未对外公布具体实施的细节。
-
-白宫中国事务高级主管劳拉·罗森伯格（Laura Rosenberger）在一次网络研讨会上表示，最近几个月的与合作伙伴的讨论，有助于将政府关于如何实施这一框架的想法“具体化”。
-
-罗森伯格在美国国家亚洲研究局（National Bureau of Asian Research）的智库活动上表示：“我们对拟议中的经济合作领域的初步构想包括：促进贸易、数字经济标准、供应链的弹性、基础设施、脱碳和清洁能源、出口控制、税收和反腐败等方面。”
-
-她表示，将在未来几个月里，即2022年初共同宣布这些目标。
-
-此外，白宫还肯定了已达成的AUKUS协定。根据该协定，美国和英国同意帮助澳大利亚获得核潜艇，美国、澳大利亚、印度和日本之间将举行峰会，而以上这些都是使中共感到“心痛”的具体佐证。
-
-*参考链接：[美国推进印太经济合作新框架 抗中共影响力](https://www.epochtimes.com/gb/22/1/20/n13516851.htm)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

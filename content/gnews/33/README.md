@@ -2,34 +2,26 @@
 ---
 
 
-## 苏格兰将于1月24日起取消所有疫情限制措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883351/)
+## 日本硅半导量子比特助力实现大规模量子计算机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1883485/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-1月18日，苏格兰首席部长尼妮古拉·斯特金宣布，从下周一开始，为应对中共病毒而采取的所有限制措施，都将被取消。 她说该国的中共病毒疫情感染率正处于“下降趋势”，但敦促人们在社交互动中保持谨慎。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1551.png)
-这些取消的措施包括，人们在室内社交聚会中不得超过三家人，酒吧和餐馆的强制性餐桌服务以及进入大型公共活动需出示疫苗通行证。斯特金说，尽管在这波奥密克戎来势汹汹的浪潮中，局势已经发生了根本逆转，但未来几周仍然有可能看到感染病例的上升。希望公众主动调整行为以阻止病毒传播，鼓励居家工作。
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1560.png)[图片来源](https://www.asahi.com/sp/articles/ASPCK5HZHPBYULBJ00N.html)
+20日，由日本理化学研究所等组成的国际研究小组在英国科学杂志《自然》上宣布，已经成功地用硅半导体制成了量子比特，即量子计算机的基本元素，并以可应用的精度对其进行了操作。据悉，由硅制成的量子计算机具有适于大规模运行的特性，这是向实现量子计算机迈出的重要一步。
 
-斯特金的这番声明是在苏格兰保守党一直呼吁1月底取消学校戴口罩等一切限制措施的背景下发出的。作为民族党党魁、苏格兰国民议会第一部长，斯特金女士的表态受到反对党以及民众的欢迎。有评论称，“是时候结束无休止和荒谬的限制了，让自由回到苏格兰”。
+量子计算机具有执行超高速计算的潜力，但问题是可能会出现计算错误。为了投入实际应用，需要对元素的每次操作达到99%以上的准确度，但硅量子比特的两个元素互锁的操作准确度只有98%。
 
-新闻链接: [Scotland Omicron restrictions to end on Monday, says Nicola Sturgeon](https://www.independent.co.uk/news/uk/politics/scotland-covid-restrictions-omicron-sturgeon-b1995427.html)
+由理化学研究所新兴物质科学中心副主任樽茶清悟先生领导的国际团队，通过将两个电子限制在硅内部的微小空间里，创造了利用电子磁性的量子比特。该团队使用了一种结合永久磁铁和微波的独特技术来操纵该量子比特，实现了99.5%的精确度。同时进行了两种类型的计算，以高概率获得了正确答案。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+到目前为止，已经通过“超导”等三种方法生产了相同级别的量子比特，但樽茶氏表示，导体已经开发的加工技术具有各种优势。现在的目标是大规模地制造这些产品。
 
-总编: Irene木木
+国家先进工业科技研究所相关人士表示，一直以来，“超导”是唯一的赢家，但现在出现了一个强大的对手。虽仍有许多问题有待解决，但这是向实用的大规模量子计算机迈出的重要一步。
 
-编辑: Lakeman文仁
+信息源：[超伝導に「ライバル出現」…シリコン半導体で量子コンピューター素子の作製成功](https://news.yahoo.co.jp/articles/eba6f565fe042f4cf4ccc4eb6bad9b43b70c2fa0)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

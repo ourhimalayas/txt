@@ -2,12 +2,19 @@
 ---
 
 
-## 中共国港口封锁导致供应链受冲击全球经济下滑
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1883669/)
+## 七哥对企业的判断
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883863/)
 
-01/14/2022 本·哈恩威尔：中共国目前包括大多数机场及很多港口在内的各种封锁措施，导致了巨大的物流问题。关闭这些港口的后果是完全封锁了中国对西方企业的部件出口。供应链海啸即将席卷美国。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：*Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
