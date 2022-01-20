@@ -15,71 +15,71 @@
 
 ---
 
-### [加拿大保守党正谋求反击中共霸权的良方](/content/gnews/1/README.md)
- ` 扬帆枫叶快讯`
-
-### [英国超市使用中共面部识别技术监控购物者](/content/gnews/2/README.md)
- ` 扬帆枫叶快讯`
-
-### [英国首相宣布取消疫情强制性政策](/content/gnews/3/README.md)
+### [加拿大卫生部批准使用辉瑞中共病毒口服药](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [中共企图超限战控制加拿大锂业资源](/content/gnews/4/README.md)
+### [加拿大保守党正谋求反击中共霸权的良方](/content/gnews/2/README.md)
  ` 扬帆枫叶快讯`
 
-### [1/19/2021 文贵直播：达沃斯和中共是过去的宗教和皇权统治换上魔鬼面孔卷土重来，只有铲除他们才会实现民天下](/content/gnews/5/README.md)
+### [英国超市使用中共面部识别技术监控购物者](/content/gnews/3/README.md)
+ ` 扬帆枫叶快讯`
+
+### [英国首相宣布取消疫情强制性政策](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [中共企图超限战控制加拿大锂业资源](/content/gnews/5/README.md)
+ ` 扬帆枫叶快讯`
+
+### [1/19/2021 文贵直播：达沃斯和中共是过去的宗教和皇权统治换上魔鬼面孔卷土重来，只有铲除他们才会实现民天下](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [达沃斯论坛，克劳斯·施瓦布和大重置](/content/gnews/6/README.md)
+### [达沃斯论坛，克劳斯·施瓦布和大重置](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [魁北克对未接种疫苗者征税将引发社会动荡](/content/gnews/7/README.md)
+### [魁北克对未接种疫苗者征税将引发社会动荡](/content/gnews/8/README.md)
  ` 扬帆枫叶快讯`
 
-### [【粤语配音】2022年1月20日：什么是共产主义？](/content/gnews/8/README.md)
+### [【粤语配音】2022年1月20日：什么是共产主义？](/content/gnews/9/README.md)
  ` MOS香港部`
 
-### [德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/9/README.md)
+### [德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [有声|中共纪委、政法队伍、公安厅为习近平二十大统一思想](/content/gnews/10/README.md)
+### [有声|中共纪委、政法队伍、公安厅为习近平二十大统一思想](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [世卫组织改口并反对青少年加强剂疫苗](/content/gnews/11/README.md)
+### [世卫组织改口并反对青少年加强剂疫苗](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [魁北克省长因强征健康税而触犯众怒](/content/gnews/12/README.md)
+### [魁北克省长因强征健康税而触犯众怒](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [有声|抗议疫苗暴政 歌曲被YouTube迅速下架](/content/gnews/13/README.md)
+### [有声|抗议疫苗暴政 歌曲被YouTube迅速下架](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [唯真不破反洗脑我信谁之二：皇帝的新装](/content/gnews/14/README.md)
+### [唯真不破反洗脑我信谁之二：皇帝的新装](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [1/19/2021 文贵直播：习大神已走上不归路，江、孟、王和杨洁篪设局让习成为9500万党员最恨的人](/content/gnews/15/README.md)
+### [1/19/2021 文贵直播：习大神已走上不归路，江、孟、王和杨洁篪设局让习成为9500万党员最恨的人](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵先生盖特直播精要 2022/01/20](/content/gnews/16/README.md)
+### [文贵先生盖特直播精要 2022/01/20](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [卡车司机疫苗强制令造成混乱](/content/gnews/17/README.md)
+### [卡车司机疫苗强制令造成混乱](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [重磅！G系列家族再添新成员喜保险，GTV、Gclubs投资者获取免费新福利](/content/gnews/18/README.md)
+### [重磅！G系列家族再添新成员喜保险，GTV、Gclubs投资者获取免费新福利](/content/gnews/19/README.md)
  ` YALUN 亚伦`
 
-### [1/19/2021 文贵直播：9500万中共党员都恨习大神，希望他赶紧去打台湾，一开枪，台湾就得自由了，我们要做的就是让欧美不要放弃台湾](/content/gnews/19/README.md)
+### [1/19/2021 文贵直播：9500万中共党员都恨习大神，希望他赶紧去打台湾，一开枪，台湾就得自由了，我们要做的就是让欧美不要放弃台湾](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022/01/19文贵大直播精要](/content/gnews/20/README.md)
+### [2022/01/19文贵大直播精要](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“躺币”会横扫墙内人心中的恐惧](/content/gnews/21/README.md)
+### [“躺币”会横扫墙内人心中的恐惧](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
-
-### [探寻喜金融的无限可能性](/content/gnews/22/README.md)
- ` Himalaya 77 G-Engineers`
 
 ### [扬帆每日速递 2022年1月20日版（1）](/content/gnews/23/README.md)
  ` 温哥华扬帆农场`

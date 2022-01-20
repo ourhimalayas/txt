@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 11:05 PM (UTC)`
+
+1/19/2022 Miles Guo: The miserable, chaotic, and disastrous Winter Olympics will be Xi's final performance on the international stage, with Xi’s speech at the Davos Forum becoming his last international speech. Wang Qishan and his vassals advised Xi to employ the dirty trick to threaten the world by using the "spillover effect" as an excuse.<br/><br/>1/19/2022 文贵直播：凄凉、混乱、惨败的冬奥会将成为习最后一次国际演出，习在达沃斯论坛的演讲会成为他最后一次国际演讲；王岐山及其马仔给习出阴招以外溢效应为由威胁全世界<br/>
+![img](https://media.gettr.com/group12/getter/2022/01/20/23/7aa86721-1172-927c-e23b-17e84e801922/out.jpg)
+
+---
+
 `@miles 1/20/2022 9:38 PM (UTC)`
 
 1月20号：中共国的企业，将会一批一批的倒下……全世界富翁诞生最多最快的地方中共国！就是全世界负翁最多的地方，他们连要饭的机会都不会有……这只是刚刚开始。<br/><br/>【又一家中国公司违约， 不仅今年不付 联23，24年都告知不付了。这种背信弃义的行为真让人无语。 多米诺开始倒了】<br/>https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228
@@ -145,13 +152,6 @@
 
 1/17/2022 Miles Guo: Procedure justice is the key in the Western judicial system. However, Pacific Alliance and the judge in the PAX case disregarded the law and common sense. They didn’t allow me to speak up in court. Nor did I have the permission to question the opposing party. Instead, they charged me with contempt of court. Is that still called the rule of law?<br/><br/>1/17/2022 文贵直播：西方世界的法律讲究的是程序正义，但太平联盟及PAX案的法官罔顾法律和常识，既不允许文贵张嘴说话、也不允许质疑对方，直接判文贵藐视法庭，这还叫法治吗？<br/>
 ![img](https://media.gettr.com/group13/getter/2022/01/19/09/608556ca-59b8-6160-7a35-2919f6302b2b/out.jpg)
-
----
-
-`@miles 1/19/2022 3:47 AM (UTC)`
-
-1/18/2021 Miles Guo: The CCP has infiltrated the whole world’s judicial system by posing threats and implementing the BGY plan, but the US and the rest of the world will wake up for sure. It’s said that the forced confession made by Sun Lijun in the Zero Tolerance documentary showed Xi Jinping giving in to the four major forces of Jiang Zemin, Meng Jianzhu, and Wang Qishan. What will happen after Xi’s speech at Davos and the Winter Olympics?<br/><br/>1/18/2021 文贵盖特：中共使用威胁和蓝金黄对全球司法界实行渗透，美国和全世界一定会醒来！听说孙力军的《零容忍》认罪是习向江曾孟王四大势力妥协的结果，冬奥会习太阳的达沃斯讲话后会发生什么事情呢？<br/>
-![img](https://media.gettr.com/group3/getter/2022/01/19/03/be8a3828-5615-e96b-4f7a-0d5c550b7a11/out.jpg)
 
 ---
 

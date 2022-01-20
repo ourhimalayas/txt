@@ -2,21 +2,33 @@
 ---
 
 
-## 加拿大保守党正谋求反击中共霸权的良方
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1886363/)
+## 加拿大卫生部批准使用辉瑞中共病毒口服药
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1886437/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：加拿大温哥华扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月18日，据相关媒体报道称，加拿大卫生部于本月17日批准了第一种口服中共病毒治疗药物。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-11.jpg)
+资料显示，Paxlovid是辉瑞公司生产的一种口服抗中共病毒药丸，该公司声称其可通过阻止病毒复制起到治疗作用。据加拿大联邦公共服务和采购部长透露，该国已经收到了辉瑞提供的首批3.04万个疗程的口服药物，截止3月底，预计还有12万个疗程的药物到货。同时，加拿大安大略省也表示，本月，当地将有1万个剂量的药物首先在全省15家医院供应。
 
-加拿大[国家邮报]1月18日刊登公共政策分析师赫伊里丁的文章，并建议尽快恢复2019年成立的“加中关系委员会”的各项工作，包括：“新冠病毒”来源调查，中共间谍科学家甄别，华为通信渗透以及中共染指加拿大内政等事关国家安全的任务，以此对抗中共霸权在加拿大的掠夺和扩张。
+分析人士对此指出，辉瑞开发的中共病毒口服药缺少足够的临床测试，这导致该口服药和现有的中共病毒疫苗一样，需要使用人体作为实验样本。相较而言，那些经过长期使用且被证明更有预防及治疗效果的安全药物，如硫酸羟氯喹、伊维菌素和青蒿素等却被政府及各大药厂联合打压。
 
-文章指出，当前中共对全球霸凌的问题非常严重。从卫生部长不敢直接回应中共有关“来自加拿大的邮件把‘奥密克戎’病毒带入中国”的指控就可见一斑。此外，北京冬奥会将强制各国人员使用一种便于窃听的健康监测程序，以此跟踪和盗取私人信息。但最为邪恶的是，中共正加紧使用绑架，谋杀和威胁家人等犯罪手段，以逼迫海外成千上万的反共者回国受刑。
+此外，郭文贵先生也在直播中反复强调，中共病毒口服药的毒性甚至远远超过中共病毒疫苗，它将给人体带来极为严重的健康风险。
 
-因此，基于加拿大的国家安全以及目前的恶劣事态，[加中委员会]的工作比任何时候都更为重要。但是，必须强调：加拿大各界联合反抗中共暴政的立场并不意味着反华，而是对西方世界的民主、自由和人权进行的依法守护。
+参考链接：[Health Canada approves Pfizer’s COVID-19 antiviral pill Paxlovid](https://www.theglobeandmail.com/canada/article-health-canada-approves-pfizers-covid-19-antiviral-pill-paxlovid/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-编辑： 平民正道    发布：平民正道
+总编/编辑：Ivy001
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
