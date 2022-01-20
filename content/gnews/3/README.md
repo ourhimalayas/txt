@@ -2,69 +2,24 @@
 ---
 
 
-## 有声|生命的意义
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1882711/)
+## 【中日财经爆】拜登表示解除对中共国关税为时尚早
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882826/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-生命的意义在于
-认准一个正确的方向
-不断地探索与追寻
-不要指望弯道超车
-或者一夜间突然绽放异彩
-而要一步一个脚印
-克服一个又一个艰难险阻
-哪怕每天进步一点点
-也好过一路狂奔
-掉进陷阱或悬崖
-而当你感觉方向错误时
-就要及时抽身回头，
-重新找准方向
-重新上路……
-否则，每多走一步
-都会背离目标越来越远
-越努力就越是在糟蹋浪费生！
-这些都是浅显的道理
-相信每个人都懂
-可是真正能做到者有几个
-许多许多的人
-无不在渴望一夜暴富
-他们绞尽脑汁地算计别人
-没想到有一天终会被人识破
-被别人联合起来抵制
-算计别人者终将被人算计
-害人者终将为人所害
-反倒是那些满含谦卑
-不急功近利之人
-最终才能更行更远
-达到一个别人无法企及的高度
-所以，把生活对你的折磨
-看作是上天对你的考验吧
-迈过那一道道坎
-总有一天
-你会成为上帝眷顾的宠儿
-我爱你 生活
-是你在不断地打磨我 考验我，
-洗尽我的铅华与卑污的尘垢
-出脱成一颗璀璨耀目的钻石
-生命的意义在于爱
-学会生命的意义吧
-学会去爱所有追求真善美的人
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1538.png)[图片来源](https://www.voanews.com/a/east-asia-pacific_biden-maintains-trumps-tough-trade-stance-toward-china/6204283.html)
+美国总统拜登周三（1月19日）表示，就取消美国对中共国商品的关税做出承诺还为时过早，但美国贸易代表戴琪正在着手解决这一问题。
 
-文字版原文：[生命的意义](https://gnews.org/zh-hans/1876837/)
+前任美国总统川普与中共国签署一项第一阶段贸易协议，中共国承诺在2020-2021年的两年时间内增加采购2,000亿美元的美国商品与服务，目前中共国采购金额截至2021年11月仅达到目标的60%左右。远低于承诺，如何处理这个落差目前仍不明朗。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+拜登说，他知道一些商业团体吵着要他开始解除川普对数千亿美元中共国进口商品征收的最高25%的关税，这也是戴琪正在研究这一问题的原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+但他说，鉴于中国未能提高采购，现在推进解除关税为时尚早。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+消息来源：[美国总统拜登称放宽对中国商品课征关税的时机还未到](https://cn.reuters.com/article/us-biden-china-goods-tariffs-0120-idCNKBS2JU04N)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

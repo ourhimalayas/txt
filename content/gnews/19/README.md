@@ -2,29 +2,69 @@
 ---
 
 
-## 1月19日大直播后记：不铲除达沃斯（党）不可能有民天下
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882568/)
+## 有声|生命的意义
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1882711/)
 
-整理：Ltitle lamp
-编辑：风吹麦浪
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+生命的意义在于
+认准一个正确的方向
+不断地探索与追寻
+不要指望弯道超车
+或者一夜间突然绽放异彩
+而要一步一个脚印
+克服一个又一个艰难险阻
+哪怕每天进步一点点
+也好过一路狂奔
+掉进陷阱或悬崖
+而当你感觉方向错误时
+就要及时抽身回头，
+重新找准方向
+重新上路……
+否则，每多走一步
+都会背离目标越来越远
+越努力就越是在糟蹋浪费生！
+这些都是浅显的道理
+相信每个人都懂
+可是真正能做到者有几个
+许多许多的人
+无不在渴望一夜暴富
+他们绞尽脑汁地算计别人
+没想到有一天终会被人识破
+被别人联合起来抵制
+算计别人者终将被人算计
+害人者终将为人所害
+反倒是那些满含谦卑
+不急功近利之人
+最终才能更行更远
+达到一个别人无法企及的高度
+所以，把生活对你的折磨
+看作是上天对你的考验吧
+迈过那一道道坎
+总有一天
+你会成为上帝眷顾的宠儿
+我爱你 生活
+是你在不断地打磨我 考验我，
+洗尽我的铅华与卑污的尘垢
+出脱成一颗璀璨耀目的钻石
+生命的意义在于爱
+学会生命的意义吧
+学会去爱所有追求真善美的人
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b601590bfa66f888.png)图片来源：墨尔本雅典娜农场设计组
+文字版原文：[生命的意义](https://gnews.org/zh-hans/1876837/)
 
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-人类一直从过去的封建社会，宗教统治、皇权统治到了工业革命。也就是我们从十九世纪、十八世纪末期，才开始了人类的文明。叫过去的一个人的国家和过去的所谓代表上帝的那些宗教人士统治着人类几千年上万年转向了每个人可以投票选出的个人天下，从家天下、皇权天下、上帝天下、宗教天下变成了我们以个人为（主）的我们民天下。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-但达沃斯论坛是什么影子？它要代表所谓的宗教，代表所谓的人权来统治天下，它不是五十年的。达沃斯和共产党就是过去的封建和宗教统治人类家天下的一个魔鬼的变形的脸，你不把他们铲平它永远不可能让你有民天下。达沃斯和共产党就是几百个家族的家天下的缩影。
-
-资料来源：郭先生GTV和盖特直播视频。
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

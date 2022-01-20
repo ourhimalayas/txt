@@ -2,26 +2,20 @@
 ---
 
 
-## 尚未注射加强针的社区
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1882671/)
+## “喜保险”戳破中共庞氏骗局 “去中心化保险”引领行业发展
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882793/)
 
-2022-01-19
+撰稿：东京樱花图/Jimi
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1536.png)
+郭文贵先生在2022年1月19日大直播透露，他正在做一件人类没有的设计，去中心化的保险。去中心化的保险，郭文贵先生已经研究2年了，快做完了，别人想做也来不及了。郭文贵先生强调，没有锚定的保险就是精神安慰剂，就是骗钱。郭文贵先生表示，未来买保险，就会得到数字货币的第三方监管，并且所有的GTV投资者，Gclub会员免费拥有一个同价值的去中心化的保险！
 
-翻译：追郭大姨
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C8__MOIDFB8H_BCHS.png)图片来源：[The neighbourhoods where booster shots just aren’t making it into arms](https://www.thestar.com/news/gta/2022/01/19/uptake-of-third-vaccine-doses-lags-in-many-parts-of-the-gta-that-have-been-hot-spots.html)
-大多伦多地区的民众在这场疫苗灾难中渐渐觉醒！尤其是皮尔北部地区和多伦多西北部地区的人民！尽管政府大力宣传和工作，这两个地区民众的第三针注射率仍然不20%！
+暂且把文贵先生所述的保险称G保险或喜保险，何为去中心化的保险?于不可篡改、强制自动执行的智能合约的保险协议；主要针对币圈常见的风险事件（包括私钥被盗、交易所被攻击、钱包被盗、智能合约出现漏洞被操纵等）提供风险保护。
 
-**评：**什么是星星之火？这就是！虽然迟了一点，可谁也挡不住，它必将燎原！
+相比传统的保险产品，DeFi 保险的优势主要体现在加强赔付效率和透明度上。既由监管机构监管，又由第三方评估机构做出赔付结论。中共国的任何保险公司都是家族控制，是盗国贼的钱袋子，是收割民脂民膏的一种方式。因为，中共的保险公司既出保险产品，其核保核赔又自己说了算，也就是既当运动员又当裁判一个道理。中共国保险的监管是银保监局，历届主席都是王歧山的马仔，所以，中共国的保户就是韭菜和待宰的羔羊。只要G保险或喜保险上线，中共国的保险市场的羞耻布立马被揭开，对各国的传统保险业影响巨大，会更加强大新中国联邦和G系列的影响力。
 
-参考链接：[The neighbourhoods where booster shots just aren’t making it into arms](https://www.thestar.com/news/gta/2022/01/19/uptake-of-third-vaccine-doses-lags-in-many-parts-of-the-gta-that-have-been-hot-spots.html)
-
-编辑：LILY
-发布：肥鯮
-校对：
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

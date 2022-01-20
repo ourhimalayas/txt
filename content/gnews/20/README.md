@@ -2,32 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1882552/)
+## 有声|GTV新闻访谈简报|2022年1月18日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1882710/)
 
-作者：香草山翻译部
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-17.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
 
+文字版原文：[GTV新闻访谈简报|2022年1月18日早](https://gnews.org/zh-hans/1876666/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0119text-SC.png)
-校对：Stay文苑
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e8bab8533c672fca7fa66f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-14.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
