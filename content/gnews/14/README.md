@@ -2,25 +2,38 @@
 ---
 
 
-## 中共企图超限战控制加拿大锂业资源
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1881990/)
+## 缅因州医生开伊维菌素而被暂停医疗执照30天
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1882032/)
 
-采编：青青            编译撰稿：文莱
+编译：Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-31-edited.jpg)图片来源：TNH
+![](https://assets.gnews.org/wp-content/uploads/2022/01/da6df04b172f6b6f40e67c4e0436caca.png)
 
+缅因州医学执照委员会投票决定，让已经行医四十年的70岁的梅丽尔·尼斯医生（Meryl Ness）接受精神病学评估。
 
-据加拿大自媒体【真北方】1月17日报道，加拿大保守党要求特鲁多政府立即调查在不久前，中共国[紫金矿业]收购加拿大重要矿业公司[尼欧锂业公司]的事件。
+被指控为 COVID 患者开具抗寄生虫药物伊维菌素和疟疾药物羟氯喹。
 
-据报道，保守党之所以坚持要求联邦政府重新审查此次收购交易，是因为加拿大已计划在电动汽车行业的增长中发挥一定的作用。为此，政府必须保持相关电池产品关键矿物的供应和获取，以保证加拿大在电动汽车行业中的经济和竞争优势。同时，也以此阻止自由党政府与中共的密切合作而削弱加拿大在此行业中的实力与市场。
+一些病人最终住进了医院，其中一名不得不插管。
 
-据悉，[尼欧锂业公司]的核心资产是位于阿根廷西北部卡塔马卡省的3Q锂盐湖项目。由于该项目资源量大、品质高、开发条件好，因此放弃[尼欧锂业公司]的100%控股权等同于直接将重要的国家资源拱手相让给中共。
+她还给怀孕的 COVID 患者开了羟氯喹。
+
+尼斯向董事会承认，她向药剂师称她的病人患有莱姆病，以获得羟氯喹来治疗 COVID。
+
+受过麻省理工学院教育的内科医生反vaxx组织，称CDC为“犯罪机构”。
+
+70 岁的尼斯是一名内科医生，积极参与儿童健康保护组织，该组织反对疫苗和疫苗授权。委员会在 1 月 12 日的命令中表示，允许尼斯继续行医“对可能接受她的医疗服务的公众的健康和人身安全构成直接威胁”。
+
+**点评：到底谁对公众构成直接威胁？**
+
+**参考资料：**[dailymail.co.uk][MIT-educated anti-vaxxer doctor who treated COVID patients with Ivermectin and hydroxychloroquine has her license suspended and must undergo psychiatric evaluation ‘for spreading misinformation’](https://www.dailymail.co.uk/news/article-10411699/Doctor-treated-COVID-patients-Ivermectin-license-suspended.html)
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
 
-原文链接：[Conservatives demand security review of Chinese takeover of Canadian mine | True North (tnc.news)](https://tnc.news/2022/01/17/conservatives-demand-security-review-of-chinese-takeover-of-canadian-mine/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
 
  
 

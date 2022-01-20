@@ -2,23 +2,24 @@
 ---
 
 
-## 世卫组织改口并反对青少年加强剂疫苗
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1882030/)
+## 七哥分享人生感悟和成功经验（十二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882082/)
 
-原文采编：UCool优酷  翻译编辑：文所未闻
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-32-edited.jpg)图片来源：CTV
+你恰恰要把你的时间，人际关系管理好，你管不好，你们就会更输的更惨，为什么？像你这样，像钟仁这样的像你这样人，你要是一旦犯了一样错误，你将失去爱，甚至没有人爱你，还有个，你不可能成功啊，这就是你看到我这个我盖裕达国贸的时候，你们看到我当时的故事，别人说一年，我二十几天给它拆完，我就赢来了一年；盘古，人家要盖5年的房子，我不到一年建起来，我赢回了五年；收购海通方正，没有人不说你得两年，我都没有超过两个月（就）把它拿下。
 
+我们就是说你们亲身经历的，GTV喜联储所有的这些东西，没有一个人不说是三五年， 你根本任何一个人说，旁边这些人都可以作证，我说每件事它反正不可能，我不是个流氓，我不是个傻子，把不可能说一定可能，然后我告诉他怎么可能，然后我已经准备好, 有没有可能？你们都看见了，我们创造了一切，你们看到七哥这些年创造的，就不要说过去5年，就从过去一年到今年，就不让你们打疫苗这一件事儿你要能明白过来的时候， 你们每个人都是神了，7哥要说出来不让你打疫苗，那要承担多大责任？经过多少的关系和信息的整理？最后小飞侠你说信息怎么整理，我告诉你，久而久之啊，为什么叫老狐狸呀？老狐狸就是见过的猎人太多了，一闻就知道对方是猎人，是吧？就明白了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥分享人生感悟和成功经验（十二）-.jpg)
+*发布：*tianzhihuan
 
-据加拿大《CTV新闻》1月18日报道，世卫组织首席科学家斯瓦米纳坦当天表示，目前尚无医学证据表明健康儿童和青少年需要接种“新冠病毒”加强剂疫苗。
-
-为此，该世卫组织发言人声称，目前不仅需要做更多的研究来确定需要注射疫苗加强针的对象，同时，也无任何证据表明健康儿童或青少年需要接种加强剂。
-
-报道称，以色列政府已开始为年仅12岁的儿童接种加强剂；[美国食品和药物管理局]本月早些时候已授权为12至15岁的儿童注射第三剂疫苗；此外，德国和匈牙利等欧盟国家也正计划推出类似接种政策。
-
-原文链接：[https://www.ctvnews.ca/health/coronavirus/no-evidence-healthy-kids-adolescents-need-covid-19-boosters-who-chief-scientist-says-1.5744617](https://www.ctvnews.ca/health/coronavirus/no-evidence-healthy-kids-adolescents-need-covid-19-boosters-who-chief-scientist-says-1.5744617)
-
-校对编辑，发稿：硫酸羟氯喹64
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
