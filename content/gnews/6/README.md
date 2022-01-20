@@ -2,22 +2,12 @@
 ---
 
 
-## 郭文贵盖特音频2022.01.20
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1885327/)
+## 班农战斗室：功能增强的病毒比核弹头的杀伤力还要大
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885413/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/01/out-8.jpg)
-### 视频链接：
+01/18/2022 参议员罗杰·马歇尔做客战斗室称功能增强的病毒比核弹头的杀伤力还要大。当这场灾难过去的时候，全球死亡人数将会是1000万或者2000万。资助武汉实验室就如同与伊朗一起做核试验研究。
 
-[https://www.gettr.com/post/ppiivsf0d0](https://www.gettr.com/post/ppiivsf0d0)
-
-### 音频链接：
-
-
-
-
-
-编辑发布：闪电训练
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

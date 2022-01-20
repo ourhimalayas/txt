@@ -2,55 +2,147 @@
 ---
 
 
-## 孟建柱和他的隐形帝国（三）
-` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/1885307/)
+## 法律是人类安全公平的社会基石
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1885404/)
 
-作者：文勇、一念
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1157.png)
-图片来源：[网址链接](https://i.epochtimes.com/assets/uploads/2021/05/id12969016-1ed618398a79edf038e2ebe94caecab3-450x300.jpg)
+[https://gtv.org/video/id=61e93d6187664c47acd74538](https://gtv.org/video/id=61e93d6187664c47acd74538)
 
-## 快速导航：
+以法灭共
+Destruir el Partido Comunista de China con la ley
 
-- [第一部分：孟建柱和他的隐形帝国（一）](https://gnews.org/zh-hans/1846904/)
-- [第二部分：孟建柱和他的隐形帝国（二）](https://gnews.org/zh-hans/1862506/)
-- [第三部分：孟建柱和他的隐形帝国（三）](https://gnews.org/zh-hans/1885307/)
-- 第四部分：敬请期待
+让中国人拥有独立的司法系统
+Para que los chinos obtengan un sistema judicial independiente
 
+法律是一个人类安全、公平、有尊严
+La ley es el pilar social más básico
 
+一个最基本的社会基石
+Para un ser humano seguro, justo y digno
 
-> **上期我们回顾了“杀习专案、孟建柱和王岐山”，这期我们着重讨论孟建柱“控制的范围、领域和资源”。**
+它就像道德一样
+Él es como la moralidad
 
+是人和畜牲分开的一个基本的基础
+Es la separación básica entre el ser humano y los animales
 
+任何一个文明的社会一旦失去了做人的道德
+Cualquier sociedad civilizada al perder su moralidad
 
-> **一、控制范围**
+你就跟畜牲没有任何两样
+No tiene diferencia con los animales
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1585.png)
-**思维导图1:控制范围。孟建柱所控制的地域范围非常广泛。他以上海为大本营，通过澳门的洗钱、赌博、情报搜集和“蓝金黄”打造出自己的隐形王国。包括了地球的西半部、中国的西半部和贯穿南北部的走廊；东南亚涉及泰国所有沿岸、马来西亚、菲律宾、缅甸和老挝；大的地区包括东欧、西欧和亚洲。**
+当任何一个社会没有法律的时候
+Una sociedad al no tener una ley
 
+每个人都是下一个被害者
+Cada uno será la próxima víctima
 
-> **二、控制领域**
+一定是如此！
+¡Seguro es así!
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1586.png)
-**思维导图2:控制领域之一。在中共国内，孟建柱控制政法委，也就是俗称的“刀把子”，负责审案判案、派遣警察抓人。孟建柱和孙力军掌控并利用澳门赌场和网上赌球等方式洗钱。洗钱手段多样如：制造中国金融股票危机的同时利用公检法护航。他们还走私武器、人口和毒品，并在海外拥有部队，如毒帮、黑帮通过湄公河案杀人越货、无恶不作。控制的地方军包括了训练有素的正规军，拥有火箭、短程导弹等武器装备，部队分布在缅甸、泰国和湄公河沿岸。数字货币领域控制了：火币和币安。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1587.png)
-**思维导图3:控制领域之二。中共国有名的红黄蓝幼儿园，是有着中共部队背景并在美国上市的公司。这家上市公司最大的股东是孟亮基金，孟亮是孟建柱的家族成员之一。2016年孟建柱、曾庆红曾大张旗鼓地到红黄蓝幼儿园视察。红黄蓝幼儿园主要的职能是满足军人和高管们的变态需求，性侵、性虐和双修学龄前的儿童。红黄蓝幼儿园的内幕曾被公安局副局长举报，但是遭到孟等人的压制。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1588.png)
-**思维导图4:孟建柱控制的绿城，仅纽约的投资项目就高达几百亿美元，即使国内贷款逾期不还也没有任何违约处罚；而且拥有上海九四、上海实业、上海银行、信托等作为其雄厚的背景。另一个大的地产项目是绿地，他利用上海政府的名字获得了超低价购地、超低利率纳税；其中绿地森林城真正的目的是洗钱、成为孟建柱的第二个武装，且绿地巨额利润都已非法转到孟海晶和蒋齐眉名下。孟建柱还控制江西铜业和江西稀有金属钨业控股集团。**
+我们来自于中共国
+Nosotros provenimos de la República Popular de China
 
+深深地感受到被中共无法无天的一党专政的毒害
+Profundamente sentimos el envenenamiento por la dictadura del partido único y sin ley del PCCh
 
-> **三、控制资源**
+我们时刻在看著伊朗
+En cada momento vemos a Irán
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1589.png)
-**思维导图5:孟建柱控制的资源包括：大量的黄金白银，不计其数的英镑美金；他的翡翠、玉石可以合法进入博物馆，变成信托用于展览。**
+和过去的苏哈托、希特勒
+Al pasado Suharto, Hitler
 
-- 整理：一念
-- 校对：面包树
-- 排版上传：文勇
+看到所有过去的苏联
+La Unión Soviética
 
+和今天的北朝鲜发生的事实
+Y la realidad que está sucediendo en Corea del Norte
 
-参考链接：
+以及在新疆的大屠杀
+Así como también la gran masacre en Xinjiang
 
-[https://gnews.org/zh-hans/author/miles-broadcast/](https://gnews.org/zh-hans/author/miles-broadcast/)
+那么在我们身上发生的事情
+Y las cosas que nos está sucediendo
+
+事实上远远地超过大家所想像的
+Realmente sobrepasa mucho más de lo que todos nos imaginamos
+
+你们在屏幕前和我一起参加爆料革命这么多年
+Ustedes han participado tantos años conmigo en el Movimiento de Denunciantes frente a la pantalla
+
+但你们没有闻到过真正的血味儿
+Pero ustedes no han olido sangre real
+
+你们没有感受到那种巨大的压力
+Ustedes no sintieron esa enorme presión
+
+你们没有感受到共产党是如何地恐惧七哥和爆料革命
+Tampoco sintieron cómo es que el PCCh atemoriza al Movimiento de Denunciantes y a mí
+
+每时每刻我们的战斗
+Cada minuto y segundo de nuestra guerra
+
+就在刚才
+Hace rato
+
+我就在二十分钟前跟大卫、跟Rachel打了个招呼
+Hace 20 minutos saludé a David y Rachel
+
+骑侠、Nick还不在的时候
+En ese momento Nick y Qixia aún no estaban
+
+我就收到十几个信息
+Recibí más de 10 mensajes
+
+让我今天不讲这个不讲那个
+Diciendo que hoy no hable de esto y lo otro
+
+然后如何如何威胁
+Y muchas formas de amenazar
+
+这我们是在美国
+Nosotros estamos en Estados Unidos
+
+但是我要告诉大家的事情
+Pero yo les voy a decir a todos una cosa
+
+我们今天的画面上来自于欧洲、
+Hoy nuestra pantalla proviene de Europa,
+
+美国、加拿大、澳大利亚
+EE. UU, Canadá, Australia,
+
+占据了整个地球
+Ha ocupado toda la Tierra
+
+如果我们不奋斗
+Si nosotros no luchamos
+
+你们就是下一个七哥
+Ustedes serán el próximo Miles Guo
+
+但我绝不相信你们能像我一样活到今天！
+¡Pero yo no creo que ustedes puedan sobrevivir como yo hasta el sol de hoy!
+
+* * *
+
+日期：01/19/2022
+原视频标题：法律是人类安全公平的社会基石
+La ley es la piedra angular de una sociedad para una humanidad seguro y justo
+原视频日期：01/17/2022
+原视频网址：**[https://gettr.com/post/pou4ipefd6](https://gettr.com/post/pou4ipefd6)**
+任务编号：KC424(3523)
+视频时间段：0:00-02:11
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
