@@ -2,33 +2,31 @@
 ---
 
 
-## 自然免疫力在美国Delta浪潮中比疫苗更有效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885472/)
+## 德国预计在二月中旬迎来本次CCP病毒感染高峰
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1885543/)
 
-编译：wenwu
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011901.jpg)网络图片
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1592.png)图片来源：insiderpaper.com
 
-一项新的研究在周三（19日）表示，在美国最后一次由Delta变体驱动的中共病毒（冠状病毒）浪潮期间，未接种疫苗的人比那些接种了中共病毒（COVID19）疫苗后未曾有过突破性感染的人得到的保护更好。
+德国卫生部长卡尔·劳特巴赫近日估计，该国的CCP病毒感染人数仍将持续上升数周左右，最终在下个月的时候达到顶峰。
 
-这一发现是对，关于SARS-CoV-2的自然免疫和疫苗获得的免疫的相对优势的辩论的最新评价，但这次研究得到了美国疾病控制和预防中心（CDC）的批准。
+劳特巴赫周三晚间告诉德国公共广播公司，他认为这波浪潮将在 2 月中旬左右达到顶峰。劳特巴赫警告说，虽然目前住院率很低，但在未来几周医疗机构可能依然会面临严重的压力。
 
-**（评论：但不建议主动感染中共病毒）**
+在过去 的24 小时内，德国疾病控制机构报告了 133,536 例新增确诊的CCP感染案例，同时有234 人因感染CCP病毒不幸死亡。
 
-“在研究期间，接种疫苗和在曾在感染中共病毒中幸存下来所提供的保护水平发生了变化，接种疫苗仍然是保护免受Covid-19感染的最安全策略。”CDC补充说。对于Omicron变体，疫苗和感染产生的免疫力似乎都有所下降。
+与其他CCP病毒毒株相比，Omicron变体更加容易传播，并且已经在许多国家占据主导地位。同时更容易感染已接种疫苗或以前接种过疫苗的人。不幸中的万幸是，德国目前50岁以上的高风险人群接种疫苗的比例比其它西欧国家——例如英国和意大利——要更低。
 
-这项新研究涉及2021年5月30日至11月30日期间纽约和加利福尼亚的患者。到了10月3日那一周，没有接种过中共病毒疫苗也未曾感染过中共病毒的人的感染率在加利福尼亚州低了约6倍，在纽约低了5倍；但是，如果曾感染过中共病毒，而且未曾接种过中共病毒疫苗，则会让再次感染的几率大大降低，感染率与接种疫苗的人相比约减少29倍（加州）和15倍（纽约）。
+截至目前，已经有近 73% 的德国人完成了双剂CCP病毒疫苗的注射，而有近 48% 的人接种了额外的CCP病毒加强针。预计德国议会将在未来几个月开始就普遍强制疫苗措施进行提案和辩论，不过该国政府官员也承认这一措施不太可能在几个月内就立即生效。
 
-住院的情况也是如此。
+与此同时，德国警方正在针对伪造CCP病毒疫苗证书的行为进行调查，据称案件数量高达数千起，范围遍布全国的十六个州。这既反映出许多民众对于疫苗的实际作用和安全性缺乏信任，同时也反映了当前的疫苗接种政策，即便不是完全硬性的，也已经很多大程度上将未接种疫苗的居民排除在公共生活之外，让他们不得不伪造证件才得以继续生存下去。
 
-新闻来源：[insiderpaper.com] [Natural immunity more potent than vaccines during US Deltawave: study](https://insiderpaper.com/natural-immunity-more-potent-than-vaccines-during-us-delta-wave-study/) | 发布时间：2022年01月19日
+新闻参考链接：
 
-* * *
+[Germany expects COVID-19 cases to peak in mid-February](https://apnews.com/article/coronavirus-pandemic-business-health-germany-europe-558713cecc425e718a35fa20e1e80a33)
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
+[Report: German police see surge in fake vaccine certificates](https://apnews.com/article/coronavirus-pandemic-business-health-germany-europe-9dac134f0da260850b815612ad3af311)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,147 +2,60 @@
 ---
 
 
-## 法律是人类安全公平的社会基石
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1885404/)
+## 尼古拉-斯特金说：苏格兰的所有Omicron限制将于周一结束
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885436/)
 
-[https://gtv.org/video/id=61e93d6187664c47acd74538](https://gtv.org/video/id=61e93d6187664c47acd74538)
+**编译：七叶之芒**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip08-5.png)*苏格兰第一部长尼古拉-斯特金。照片。PA媒体。*
+尼古拉-斯特金宣布，苏格兰为应对Omicron疫情而出台的所有冠状病毒限制措施将于下周一结束。
 
-以法灭共
-Destruir el Partido Comunista de China con la ley
+在苏格兰议会，第一部长说，夜总会的关闭和招待所的餐桌服务要求将结束。室内活动的上座率限制也将被取消。
 
-让中国人拥有独立的司法系统
-Para que los chinos obtengan un sistema judicial independiente
+斯特金女士说：“从周一开始，我们还将取消要求人们在室内聚会时坚持三家人的限制的指导。”
 
-法律是一个人类安全、公平、有尊严
-La ley es el pilar social más básico
+“然而，必须强调这一点：尽管情况有所改善，但社区内流通的Covid感染水平仍然很高。因此，为了最大限度地减少我们感染病毒的风险，在这个阶段，我们所有人在社会交往中保持谨慎是明智的。”
 
-一个最基本的社会基石
-Para un ser humano seguro, justo y digno
+她继续说：“在这个阶段，我们将继续要求人们尽可能在家工作–并要求雇主为此提供便利。”
 
-它就像道德一样
-Él es como la moralidad
+“然而，我们现在将与企业接触，讨论从2月初开始恢复到更多的混合方法。”
 
-是人和畜牲分开的一个基本的基础
-Es la separación básica entre el ser humano y los animales
+尼古拉-斯特金说，在Omicron浪潮之前已经实施的基线冠状病毒措施将保留。
 
-任何一个文明的社会一旦失去了做人的道德
-Cualquier sociedad civilizada al perder su moralidad
+她告诉MSP：“这意味着在公共室内环境和公共交通工具上仍然必须佩戴口罩。”
 
-你就跟畜牲没有任何两样
-No tiene diferencia con los animales
+第一部长还宣布，苏格兰政府不会将其疫苗认证计划扩展到新的场所。
 
-当任何一个社会没有法律的时候
-Una sociedad al no tener una ley
+谈到内阁对该议题的讨论时，她说：“这无疑是我们今天早上面临的最困难的决定，而且，我们所得出的判断又一次得到了精细的平衡。”
 
-每个人都是下一个被害者
-Cada uno será la próxima víctima
+斯特金女士说：“考虑到情况的改善，我们今天的结论是，在这个阶段延长认证是不相称的。”
 
-一定是如此！
-¡Seguro es así!
+斯特金女士说，苏格兰现在正处于冠状病毒Omicron浪潮感染的“下坡路”。
 
-我们来自于中共国
-Nosotros provenimos de la República Popular de China
+在苏格兰议会发言时，她列出的统计数据显示新病例“显著下降”，尽管国家卫生系统仍然面临“严重的压力”。
 
-深深地感受到被中共无法无天的一党专政的毒害
-Profundamente sentimos el envenenamiento por la dictadura del partido único y sin ley del PCCh
+她说：“考虑到所有这些，并对各种数据来源进行三角分析，我们可以有把握地说，由Omicron驱动的病例上升在1月的第一周达到了顶峰，我们现在正处于这一波病例的下坡。”
 
-我们时刻在看著伊朗
-En cada momento vemos a Irán
+斯特金女士敦促尚未进行疫苗强化注射的苏格兰人站出来。
 
-和过去的苏哈托、希特勒
-Al pasado Suharto, Hitler
+她告诉MSP：“仍有60多万18岁以上的人有资格接受强化注射，但还没有接受。还有数十万人还没有进行第一或第二针。”
 
-看到所有过去的苏联
-La Unión Soviética
+“因此，我鼓励任何属于这些类别的人尽快进行预约，或去一个临时诊所。”
 
-和今天的北朝鲜发生的事实
-Y la realidad que está sucediendo en Corea del Norte
+第一部长说，尽管有了新的乐观情绪，但国家卫生系统仍然面临“巨大的压力”。
 
-以及在新疆的大屠杀
-Así como también la gran masacre en Xinjiang
+“尽管人们可能从媒体的评论中听到了什么，但我们还没有从Covid的流行阶段转向地方性阶段，尽管我希望这一过渡正在进行中。然而，我们正在再次进入疫情的平静阶段。”
 
-那么在我们身上发生的事情
-Y las cosas que nos está sucediendo
+她说，苏格兰政府继续为其未来处理冠状病毒的新战略框架而努力。
 
-事实上远远地超过大家所想像的
-Realmente sobrepasa mucho más de lo que todos nos imaginamos
-
-你们在屏幕前和我一起参加爆料革命这么多年
-Ustedes han participado tantos años conmigo en el Movimiento de Denunciantes frente a la pantalla
-
-但你们没有闻到过真正的血味儿
-Pero ustedes no han olido sangre real
-
-你们没有感受到那种巨大的压力
-Ustedes no sintieron esa enorme presión
-
-你们没有感受到共产党是如何地恐惧七哥和爆料革命
-Tampoco sintieron cómo es que el PCCh atemoriza al Movimiento de Denunciantes y a mí
-
-每时每刻我们的战斗
-Cada minuto y segundo de nuestra guerra
-
-就在刚才
-Hace rato
-
-我就在二十分钟前跟大卫、跟Rachel打了个招呼
-Hace 20 minutos saludé a David y Rachel
-
-骑侠、Nick还不在的时候
-En ese momento Nick y Qixia aún no estaban
-
-我就收到十几个信息
-Recibí más de 10 mensajes
-
-让我今天不讲这个不讲那个
-Diciendo que hoy no hable de esto y lo otro
-
-然后如何如何威胁
-Y muchas formas de amenazar
-
-这我们是在美国
-Nosotros estamos en Estados Unidos
-
-但是我要告诉大家的事情
-Pero yo les voy a decir a todos una cosa
-
-我们今天的画面上来自于欧洲、
-Hoy nuestra pantalla proviene de Europa,
-
-美国、加拿大、澳大利亚
-EE. UU, Canadá, Australia,
-
-占据了整个地球
-Ha ocupado toda la Tierra
-
-如果我们不奋斗
-Si nosotros no luchamos
-
-你们就是下一个七哥
-Ustedes serán el próximo Miles Guo
-
-但我绝不相信你们能像我一样活到今天！
-¡Pero yo no creo que ustedes puedan sobrevivir como yo hasta el sol de hoy!
+**新闻来源**：[independent.ie][All of Scotland’s Omicron restrictions to end on Monday, says Nicola Sturgeon](https://www.independent.ie/news/all-of-scotlands-omicron-restrictions-to-end-on-monday-says-nicola-sturgeon-41252933.html)
 
 * * *
 
-日期：01/19/2022
-原视频标题：法律是人类安全公平的社会基石
-La ley es la piedra angular de una sociedad para una humanidad seguro y justo
-原视频日期：01/17/2022
-原视频网址：**[https://gettr.com/post/pou4ipefd6](https://gettr.com/post/pou4ipefd6)**
-任务编号：KC424(3523)
-视频时间段：0:00-02:11
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：蚂蚁兄弟
+校对：信心满满
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
 
  
 
