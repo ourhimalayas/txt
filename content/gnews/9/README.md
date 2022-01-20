@@ -2,10 +2,10 @@
 ---
 
 
-## 鲍里斯：中共病毒疫苗强制认证将于下周四在英格兰结束
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885659/)
+## 澳大利亚刚执行5-11岁儿童疫苗注射，死亡已经开始
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885714/)
 
-01/19/2022 英首相鲍里斯·约翰逊：中共病毒疫苗强制认证将于下周四在英格兰结束
+01/16/2022 澳大利亚医护人员爆料：才刚开始执行的5-11岁儿童疫苗注射已经导致儿童死亡
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

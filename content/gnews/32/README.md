@@ -2,28 +2,19 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月20日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1885254/)
+## 达沃斯是控制奴役世界人民的黑暗俱乐部 中共为了苟延残喘卖掉了中国人的未来
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1885219/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+达沃斯不到1000人，却控制世界90%以上的财富，这些人必须：1.有影响政治军事的能力；2. 控制的财富能影响上亿人的命运；3.手染鲜血，官商勾结。所以达沃斯党就是控制和奴役世界人民的黑暗力量俱乐部，是人类生存的巨大威胁！
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-19.png)
-文章仅代表作者本人观点，与Gnews无关
+达沃斯论坛自2001年开始，就几乎是共产党在控制。当年天津举办达沃斯，中共特意准备艺术表演团，提供孩子给变态与会者们取乐，还提供注射特殊血清。邪恶到了极点！
 
-视频参看：[2022.01.20早GTV新闻访谈](https://gtv.org/video/id=61e96385533c672fca7feaef)
+习近平提的“溢出效应”：就是怕人民币、房地产贬值到一文不值，中共为了苟延残喘，和魔鬼交易，自愿吞下世界经济泡沫，再转嫁到中国人身上，让中国人世代为奴！
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-15.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频来源: 2022年1月19日郭先生大直播视频
+视频制作: 文星光
+文案:文星光、梦田
+上传: 零点
 
  
 

@@ -2,54 +2,147 @@
 ---
 
 
-## 中共国打算对2022年的北京冬奥会运动员进行监视？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885399/)
+## 法律是人类安全公平的社会基石
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1885404/)
 
-**编译：七龙珠**
+[https://gtv.org/video/id=61e93d6187664c47acd74538](https://gtv.org/video/id=61e93d6187664c47acd74538)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip07-5.png)Mel Almanza / 西班牙语的数字趋势
+以法灭共
+Destruir el Partido Comunista de China con la ley
 
-中共国是否打算对参加北京2022年冬奥会的人进行监视？这是“My2022”上的一份计算机安全报告提出的问题，这个应用程序将是运动员、教练员、记者、摄影师、摄像师和公众，所有参加2022年2月4日至20日期间举行的活动的人必须使用的软件，该程序可在iOS和Android上使用。
+让中国人拥有独立的司法系统
+Para que los chinos obtengan un sistema judicial independiente
 
-“My2022”的主要目的是通过一个名为“绿色健康代码”的功能，收集更多医疗数据，围绕新冠疫情（COVID-19）进行日常记录和监测。然而，根据应用程序商店的描述，它还提供了一些补充服务。
+法律是一个人类安全、公平、有尊严
+La ley es el pilar social más básico
 
-“My2022”的智能手机版本将提供有关体育赛事的服务，如赛事信息、即时通讯，以及交通、饮食、住宿等功能领域的数据，同时还提供与非活动相关的细节，如旅游、购物和娱乐。
+一个最基本的社会基石
+Para un ser humano seguro, justo y digno
 
-“‘My2022’以中文和英文显示信息，并为不同的用户群体提供定制化服务，让他们通过一个应用程序享受完整的中共国体验”该应用程序描述道。
+它就像道德一样
+Él es como la moralidad
 
-“My2022”的安全缺陷是什么？
+是人和畜牲分开的一个基本的基础
+Es la separación básica entre el ser humano y los animales
 
-然而，多伦多大学蒙克全球事务和公共政策学院的网络安全小组Citizen Lab警告说，“My2022”应用程序不提供加密，用户的个人数据和医疗记录面临泄露。
+任何一个文明的社会一旦失去了做人的道德
+Cualquier sociedad civilizada al perder su moralidad
 
-以下是公民实验室（Citizen Lab）的一些发现：
+你就跟畜牲没有任何两样
+No tiene diferencia con los animales
 
-- *保护用户的文件传输和语音音频的加密技术可能被攻破。*
-- *包含护照、医疗和旅行历史信息的健康表格也很容易受到影响。*
-- *服务器响应可以被欺骗，所以攻击者可以向用户显示错误的指示。*
-- *没有说明该应用程序与哪个实体或组织分享其收集的个人数据和医疗记录。*
-- *“MY2022”包括允许用户报告“政治敏感”内容的功能。*
-- *虽然这是一个不活跃的功能，但它包括一个被审查的关键词列表，重点是政治话题和国内问题，如新疆和西藏，以及对中共领导人和政府机构的提及。*
+当任何一个社会没有法律的时候
+Una sociedad al no tener una ley
 
+每个人都是下一个被害者
+Cada uno será la próxima víctima
 
-公民实验室称，这些缺陷违反谷歌和苹果的软件政策，也违反了中共国自己的隐私法。
+一定是如此！
+¡Seguro es así!
 
-有真正的危险吗？
+我们来自于中共国
+Nosotros provenimos de la República Popular de China
 
-公民实验室表示，对中共国应用程序的担心在很大程度上是合理的，因为所有在中共国运营的应用程序基本都存在安全漏洞、侵犯隐私和数据控制的历史。所以，这些发现“令人担忧”，但并不令人惊讶，因为它们回应了大多数中共国开发商在缺乏保护个人数据的法律和法规的情况下所存在的不足。
+深深地感受到被中共无法无天的一党专政的毒害
+Profundamente sentimos el envenenamiento por la dictadura del partido único y sin ley del PCCh
 
-尽管中共国政府对外宣称“遵循全球个人数据保护规则，已经采取措施控制科技公司对个人信息的收集和错误处理”。美国、德国、澳大利亚、加拿大、英国和荷兰的奥委会，都建议其代表团在中国期间使用一次性电话、虚拟私人网络（VPN）和创建电子邮件账户。
+我们时刻在看著伊朗
+En cada momento vemos a Irán
 
-**新闻来源**：[digitaltrends.com][¿China pretende espiar a los deportistas de Beijing 2022?](https://es.digitaltrends.com/deportes/china-app-oficial-beijing-2022/)
+和过去的苏哈托、希特勒
+Al pasado Suharto, Hitler
+
+看到所有过去的苏联
+La Unión Soviética
+
+和今天的北朝鲜发生的事实
+Y la realidad que está sucediendo en Corea del Norte
+
+以及在新疆的大屠杀
+Así como también la gran masacre en Xinjiang
+
+那么在我们身上发生的事情
+Y las cosas que nos está sucediendo
+
+事实上远远地超过大家所想像的
+Realmente sobrepasa mucho más de lo que todos nos imaginamos
+
+你们在屏幕前和我一起参加爆料革命这么多年
+Ustedes han participado tantos años conmigo en el Movimiento de Denunciantes frente a la pantalla
+
+但你们没有闻到过真正的血味儿
+Pero ustedes no han olido sangre real
+
+你们没有感受到那种巨大的压力
+Ustedes no sintieron esa enorme presión
+
+你们没有感受到共产党是如何地恐惧七哥和爆料革命
+Tampoco sintieron cómo es que el PCCh atemoriza al Movimiento de Denunciantes y a mí
+
+每时每刻我们的战斗
+Cada minuto y segundo de nuestra guerra
+
+就在刚才
+Hace rato
+
+我就在二十分钟前跟大卫、跟Rachel打了个招呼
+Hace 20 minutos saludé a David y Rachel
+
+骑侠、Nick还不在的时候
+En ese momento Nick y Qixia aún no estaban
+
+我就收到十几个信息
+Recibí más de 10 mensajes
+
+让我今天不讲这个不讲那个
+Diciendo que hoy no hable de esto y lo otro
+
+然后如何如何威胁
+Y muchas formas de amenazar
+
+这我们是在美国
+Nosotros estamos en Estados Unidos
+
+但是我要告诉大家的事情
+Pero yo les voy a decir a todos una cosa
+
+我们今天的画面上来自于欧洲、
+Hoy nuestra pantalla proviene de Europa,
+
+美国、加拿大、澳大利亚
+EE. UU, Canadá, Australia,
+
+占据了整个地球
+Ha ocupado toda la Tierra
+
+如果我们不奋斗
+Si nosotros no luchamos
+
+你们就是下一个七哥
+Ustedes serán el próximo Miles Guo
+
+但我绝不相信你们能像我一样活到今天！
+¡Pero yo no creo que ustedes puedan sobrevivir como yo hasta el sol de hoy!
 
 * * *
 
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
+日期：01/19/2022
+原视频标题：法律是人类安全公平的社会基石
+La ley es la piedra angular de una sociedad para una humanidad seguro y justo
+原视频日期：01/17/2022
+原视频网址：**[https://gettr.com/post/pou4ipefd6](https://gettr.com/post/pou4ipefd6)**
+任务编号：KC424(3523)
+视频时间段：0:00-02:11
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
