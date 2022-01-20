@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 1:39 PM (UTC)`
+
+澳大利亚救护人员爆料：才刚开始执行的5-11岁儿童疫苗注射已经导致3名儿童死亡<br/><br/>Australian paramedics workers reveal that vaccinations for children aged 5-11 years that have only just been implemented and have already caused three children’s deaths<br/>
+![img](https://media.gettr.com/group5/getter/2022/01/20/13/0b213f75-e401-c36c-5fb4-b194dff9ecd5/out.jpg)
+
+---
+
 `@miles 1/20/2022 11:31 AM (UTC)`
 
 1/19/2022 Miles Guo: The Davos Forum controls various domains in the world such as legislation, finance, media, culture, police, and military as well as the people’s thoughts and actions. Xi Jinping and the Party of Davos are in cahoots, giving prescriptions to the world while releasing the CCP virus at the same time!<br/><br/>1/19/2022 文贵直播：达沃斯论坛掌控了全球的立法、金融、媒体、文化、警察和军事等方面，控制着人们的思想与行为；习近平和达沃斯党沆瀣一气，一边给世界开药方，一边放毒！
@@ -146,13 +153,6 @@
 
 1/17/2022 Miles Guo: What will happen in the hearing to be held on February 2nd? Why is the Pacific Alliance case comparable to the case of Li You tried by Zhang Mingpeng in Xigang District, Dalian? Why did the Pacific Alliance issue subpoenas for the very information that the CCP wants the most? Is there any collusion between Bruno Wu, Wang Qishan, and the law firms that have offices in Communist China? What is the connection between those who were involved in the largest corruption case in the DOJ history and the Pacific Alliance case?<br/><br/>1/17/2022 文贵直播：2月2日的听证会将发生什么？为何说太平联盟案跟大连西岗区张明鹏判的李友案有的一比？太平联盟发传票要求提供的信息为何恰恰是中共最想要的？吴征、王岐山和在中共国设办公室的律所之间有何勾当？美国司法部史上最大腐败案的涉案人员和太平联盟案有何关联？<br/>
 ![img](https://media.gettr.com/group39/getter/2022/01/18/22/43283ff0-83d0-7421-d6bf-4163c308971a/out.jpg)
-
----
-
-`@miles 1/18/2022 10:54 PM (UTC)`
-
-1/17/2022 Miles Guo: Can the Pacific Alliance case represent procedural justice? This lawsuit should not have existed in the first place, and Judge Barry Ostrager had long been turning a blind eye to Bradley Bondi and Edward Moss's clear breach of the lawyers’ professional ethics. The two lawyers not only committed forgery, but their mere conflict of interest nearly devastated us. So, who will make up for the damage they have inflicted on us in the past five years?<br/><br/>1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？这场官司本不应该存在，可Ostrager法官却长期无视Bondi和Edward Moss明显违反律师道德的行为，他们俩不仅造假，区区一次利益冲突就差点要了咱的命，那谁来弥补他们在这5年给我们造成的伤害呢？<br/><br/>
-![img](https://media.gettr.com/group14/getter/2022/01/18/22/1e2df50f-a46d-aa6e-4256-66d22c950391/out.jpg)
 
 ---
 

@@ -3,12 +3,14 @@
 
 
 ## 西媒头条 — 第157期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1884410/)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1884429/)
 
 **制作：蚂蚁兄弟**
 
 **从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220120.002.jpeg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220120.001.jpeg)
+
 *发稿: Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  

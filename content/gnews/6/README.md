@@ -2,69 +2,46 @@
 ---
 
 
-## 全球疫情更新（澳洲病例数突破两百万）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1884445/)
+## 维州强推疫苗不择手段，制作抖音视频鼓励青少年接种
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1884490/)
 
-**整理/编辑：枳实**
+##### 整理报道：文扬
+编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1529.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1581.png)
 
 
-雅典娜疫情更新（2022年 1月20日）
+近日，据《反抗新闻》报道，澳大利亚维多利亚州政府资助的青年委员会正在向青少年展示，如何在父母不知情的情况下进行“疫苗约会”。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+维多利亚州青年事务委员会制作了一个抖音视频，旨在向青少年宣传“疫苗约会”。
 
-**一，全球疫情基本数据**
+“活着，爱着，为了你生命中更多的亲身体验，请接种疫苗！”这是上周在抖音和Instragram上播出的广告词。
 
-感染总数：336,828,562（日新增2,795,461，14天增幅+47%）
+从本质上讲，青少年非常易受外界影响，现在他们被鼓励相互联系并参加秘密的新冠疫苗接种预约，而且在没有父母知情或同意的情况下接种疫苗。
 
-死亡总数：5,563,423（日新增7,299人，14天增幅 +18%）
+在“可爱的约会创意”广告中，一对女孩正在讨论封锁结束后该做什么。在歇斯底里的情节设置中，最终一幕是戴口罩女孩被要求出示疫苗护照才能进入电影院，而其中年少的同伴说：“嗯，我的父母还没有让我接种疫苗。”
 
-**二，全球“疫苗”毒针统计数据**
+“我的意思是，你已经超过14岁了”，另一个女孩回答说：“你实际上不需要得到他们的许可。”
 
-“疫苗”毒针注射总数：93.7亿
+“我不知道？”
 
-完全“接种”：39.2亿人
+“想现在就去做，（我们）去参加一个打疫苗的约会吗？”
 
-完全“接种”百分比：50.3%
+以上的一幕，看起来似乎很有趣。
 
-**三，澳洲疫情和“疫苗”数据**
+这则广告公然鼓励儿童背着父母参与医疗程序，这被视为政府对青少年生命健康控制的一种令人不寒而栗的侵犯。维多利亚州青年事务委员会的大部分资金来自维多利亚州政府平等和青年办公室。
 
-感染总数：2,018,522（今日新增75,668人）
+在一个令人尴尬的失误中，年长女孩的疫苗护照显示她46岁，被Caldron Pool网站发现。这意味着维多利亚州青年事务委员会制作了一个广告，显示成人与未成年人约会。
 
-死亡总数：2,901人（今日新增 60人）
+目前已有几个州政府受到批评，因为它们允许12至17岁的未成年人在没有父母同意的情况下接种疫苗。如果他们被认为是“成熟的未成年人”——这似乎是一个政府的定义，以便在父母不知情的情况下为青少年接种疫苗。澳洲政府针对这一年龄组资助了无耻的疫苗接种营销活动。
 
-每万人感染人数：784.3043人
+“**这意味着卫生专业人员会评估这个年龄段的人是否了解与接种疫苗决定相关的信息以及该决定的影响**，”维州政府网站上写道。新州卫生局的一份备忘录中也出现了几乎相同的信息。
 
-“疫苗”毒针注射总数：47,053,063   （日新增332,808 针）
+为了防止有人怀疑政府故意违背儿童父母的明确意愿为其接种疫苗，新州卫生部发言人澄清说：“将青少年称为成熟的未成年人，是为了确保少数可能难以获得父母同意的14和15岁的儿童能够有机会接种疫苗”。
 
-完全“接种”：19,128,576人
+原文链接： [TikTok video backed by Victorian government encourages teens to get vaccinated WITHOUT parents’ permission – Rebel News](https://www.rebelnews.com/tiktok_video_backed_by_victorian_government_encourages_teens_to_get_vaccinated_without_parents_permission)
 
-第二针“接种”百分比：78.1%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：92.8%
-
-**四，数据分析** 今日澳大利亚感染人数超过两百万，感染比例也逼近十分之一，每万人感染人数已经超过780人。全球的死亡人数增加幅度继续增加，但14天病例增加值增速已经连日下降。从下图可以比较世界主要国家每日新增病例数（每百万人口），可见澳大利亚的疫情凶猛程度仅次于法国。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6L9H@ZIWQM06N69R29Q1C.png)各国每百万人口每日新增病例曲线(图片来源：Our World in Data)
-（从上到下：澳大利亚，法国，美国，英国，德国，加拿大，印度）
-为了说明疫苗接种和新增病例曲线的关系，下面就选择两个现在新增病例（按人口平均）最高的两个国家和最低的两个国家比较一下。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/V1M1Y26F94G0EYXRL5T.png)上图中最高和最低2个国家新增病例（每百万人）曲线的比较(图片来源：Our World in Data)![](https://assets.gnews.org/wp-content/uploads/2022/01/0G0FY0@MI5KY_HZWW8Z3.png)澳大利亚，法国，印度，南非疫苗接种率对比(图片来源：Our World in Data)![](https://assets.gnews.org/wp-content/uploads/2022/01/W8AFEADQDLGTQAHOD@Y7.png)澳大利亚，法国，印度，南非每日疫苗接种比例曲线 (图片来源：Our World in Data)
-如图可见，无论是全民接种率还是每日接种率都是接种越多，疫情越严重。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
+*发布：玉米地守望者*
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

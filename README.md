@@ -15,101 +15,101 @@
 
 ---
 
-### [2022/01/19 墙内世界](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022/01/20 英喜时事速递](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [维州强推疫苗不择手段，制作抖音视频鼓励青少年接种](/content/gnews/3/README.md)
- ` 走进澳洲`
-
-### [英国通胀率创30年新高，英格兰银行将二次加息](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1/20 银河快讯:日本13县开始防止疫情蔓延重点措施；将向汤加提供超100万美元赠款援助](/content/gnews/5/README.md)
+### [1/19 银河快讯:日本央行维持大规模货币宽松措施；日本H3火箭首次发射再次被延期](/content/gnews/1/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [全球疫情更新（澳洲病例数突破两百万）](/content/gnews/6/README.md)
+### [CDC不再强制游轮旅客疫苗接种，建议人们佩戴KN95口罩](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国至少4个省市报告了新增奥米炕变种病毒病例](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2022/01/19 墙内世界](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022/01/20 英喜时事速递](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [维州强推疫苗不择手段，制作抖音视频鼓励青少年接种](/content/gnews/6/README.md)
+ ` 走进澳洲`
+
+### [英国通胀率创30年新高，英格兰银行将二次加息](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《历史上的今天》2022.01.20](/content/gnews/7/README.md)
+### [1/20 银河快讯:日本13县开始防止疫情蔓延重点措施；将向汤加提供超100万美元赠款援助](/content/gnews/8/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [全球疫情更新（澳洲病例数突破两百万）](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《历史上的今天》2022.01.20](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [西媒头条 — 第157期](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵大直播 PAG法律超限战](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [中国央行要开闸大放水，楼市又会大涨吗？](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [西媒头条 — 第157期](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国结束中共病毒相关限制](/content/gnews/12/README.md)
+### [文贵大直播 PAG法律超限战](/content/gnews/12/README.md)
+ ` 波士顿五月花农场`
+
+### [中国央行要开闸大放水，楼市又会大涨吗？](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西媒头条 — 第157期](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英国结束中共病毒相关限制](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共奇葩防疫](/content/gnews/13/README.md)
+### [中共奇葩防疫](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [高院阻止拜登强制令是涉及美国宪法最重要决定之一](/content/gnews/14/README.md)
+### [高院阻止拜登强制令是涉及美国宪法最重要决定之一](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登经济上的支持率达到45年最低水平，供应链面临崩溃](/content/gnews/15/README.md)
+### [拜登经济上的支持率达到45年最低水平，供应链面临崩溃](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [区块链怎么这么受欢迎](/content/gnews/16/README.md)
+### [区块链怎么这么受欢迎](/content/gnews/19/README.md)
  ` 骄子`
 
-### [法国病毒学家 生物学家 诺贝尔生理学医学奖得主吕克•蒙塔尼耶：疫苗并不能保护我们 （感谢石头制作）](/content/gnews/17/README.md)
+### [法国病毒学家 生物学家 诺贝尔生理学医学奖得主吕克•蒙塔尼耶：疫苗并不能保护我们 （感谢石头制作）](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [平民百姓就不能吃肉，骨头都不能啃](/content/gnews/18/README.md)
+### [平民百姓就不能吃肉，骨头都不能啃](/content/gnews/21/README.md)
  ` 骄子`
 
-### [樱花灭共诗——恨海鲜（新韵）](/content/gnews/19/README.md)
+### [樱花灭共诗——恨海鲜（新韵）](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在线日美峰会 日方将邀请美国重返TPP](/content/gnews/20/README.md)
+### [在线日美峰会 日方将邀请美国重返TPP](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：美国开始提供10亿份免费COVID检测](/content/gnews/21/README.md)
+### [每日快报：美国开始提供10亿份免费COVID检测](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗公司与医院是否有金钱往来?得到多少报酬?院方未回应](/content/gnews/22/README.md)
+### [疫苗公司与医院是否有金钱往来?得到多少报酬?院方未回应](/content/gnews/25/README.md)
  ` G-NEWS TAIWAN`
 
-### [1/20/2022 国际财经快讯：全球企业海外投资去年强劲反弹，但基本无助缓解供应紧张状况；美国拟议法案欲限制互联网巨头市场影响力](/content/gnews/23/README.md)
+### [1/20/2022 国际财经快讯：全球企业海外投资去年强劲反弹，但基本无助缓解供应紧张状况；美国拟议法案欲限制互联网巨头市场影响力](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [达沃斯是与中共勾结的暗黑集团 其目标是控制奴役世界](/content/gnews/24/README.md)
+### [达沃斯是与中共勾结的暗黑集团 其目标是控制奴役世界](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共央行连续第二个月降息 宽松政策能否阻止经济下行](/content/gnews/25/README.md)
+### [【中日财经爆】中共央行连续第二个月降息 宽松政策能否阻止经济下行](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [沼泽地的冬天](/content/gnews/26/README.md)
+### [沼泽地的冬天](/content/gnews/29/README.md)
  ` 银河勇气之星`
 
-### [未来保险是去中心化的保险，由第三方监管](/content/gnews/27/README.md)
+### [未来保险是去中心化的保险，由第三方监管](/content/gnews/30/README.md)
  ` G-NEWS TAIWAN`
 
-### [一个善良的、真实的一个基本的教育的系统和让人有基本的信仰比金钱比啥都重要](/content/gnews/28/README.md)
+### [一个善良的、真实的一个基本的教育的系统和让人有基本的信仰比金钱比啥都重要](/content/gnews/31/README.md)
  ` G-NEWS TAIWAN`
 
-### [冠状病毒死亡率不会超过1%，为什么要打来路不明的疫苗](/content/gnews/29/README.md)
- ` G-NEWS TAIWAN`
-
-### [01/20每日播报｜美国佛州最高卫生官员因敦促员工接种疫苗被停职](/content/gnews/30/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [鲍威尔国会作证缓解投资者的担忧](/content/gnews/31/README.md)
+### [鲍威尔国会作证缓解投资者的担忧](/content/gnews/32/README.md)
  ` 秘密翻译组金融团队`
-
-### [秘翻響鼓秀埸 第（四十二）期](/content/gnews/32/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [新西兰财经G乐部2022年1月20日:财经新闻整理](/content/gnews/33/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
