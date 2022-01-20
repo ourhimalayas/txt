@@ -2,10 +2,12 @@
 ---
 
 
-## 1/19/2021 文贵直播：病毒终于接近尾声，疫苗灾难接踵而至
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1885606/)
+## 星巴克、通用电器取消雇员强制疫苗要求
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885608/)
 
-秘密翻译组-北美组
+01/19/2022 高法裁决后，星巴克、通用电气等一些大公司取消了疫苗强制要求
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,32 +2,28 @@
 ---
 
 
-## 七哥谈战斗就在刚才（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1885589/)
+## 【圆成原创】正义的人们在觉醒！
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1885607/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**作者：天空的鸿雁**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5F1830AA-460A-4CA5-84A7-8970F1592ABC.jpeg)图片来源：文贵大直播
+七哥今天大直播观后感：自8964以后，中国大地上再也看不到底层百姓为了自身的权力和利益团结一致，为了大家共同的利益和政治权力发出一致的声音。昨天的香港年轻人走上街头，为了争取自己的权力，走上街头抗议政府公然违背承诺，违反民意强使暴政，剥夺人民的权力，压制民意，不就是8964的再现吗？
 
-来源：郭先生2022-01-17直播08:29:33摘录
+今天的加拿大卡车司机的罢工抗议；西方自由的民主国家民众、护士协会、警察协会、民间团体都走上街头游行示威，抗议政府强权政治，压制民意，公然违反法律，践踏宪法，这背后隐约都能看到CCP蓝金黄的渗透和黑暗势力的影子，如果今天我们再不起来反抗发声，维护自己的权利，8964和昨天香港的前车之鉴，明天就会发生在我们身边！其实，现在已经在发生了！欺骗虚假的宣传，压制病毒的真相，强迫注射毒疫苗就是事实证明！
 
-参加爆料革命这么多年，但你们没有闻到过真正的血味，你们没有感受到那种巨大的压力，你们没有感受到共产党是如何的恐惧七哥和爆料革命，每时每刻，啊！我们的战斗就在刚才啊，我就在20分钟前和大卫跟Rachael打了个招呼啊，骑侠、Nick还不在的时候，我就收到十几个信息啊，让我今天不讲这个不讲那个，然后如何如何威胁。 这我们是在美国，但是我要告诉大家的是我们今天的画面上在来自于欧洲、美国、加拿大、澳大利亚占据了整个地球，如果我们不奋斗，你们就是下一个七哥，但我绝不相信，你们能像我一样活到今天。
+如果今天的我们再不站出来，为了维护自己的权力和利益，发出我们共同的声音，那么，以后我们的后代就再也没有机会发出声音了！就只能成为奴隶或牲畜任人宰割了！
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**新中国联邦承载着人类发展的历史使命，不畏惧强权，不惧怕黑暗势力，为了天下百姓能有自由、民主、法治、尊严，能被平等、公正、公平的对待，新中国联邦人秉承正道主义，永不会向邪恶势力低头屈服！新中国联邦人用不为奴！**
 
-**关注我们**
+**编辑：LILY**
 
-Discord 账号
+**发布：歪桑**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+20220120
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/AA30E5EB-1604-432B-B851-5D739D2B0F01.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

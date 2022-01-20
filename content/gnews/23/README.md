@@ -2,31 +2,32 @@
 ---
 
 
-## 德国预计在二月中旬迎来本次CCP病毒感染高峰
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1885543/)
+## 七哥谈战斗就在刚才（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1885589/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/011901.jpg)网络图片
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-17直播08:29:33摘录
 
-德国卫生部长卡尔·劳特巴赫近日估计，该国的CCP病毒感染人数仍将持续上升数周左右，最终在下个月的时候达到顶峰。
+参加爆料革命这么多年，但你们没有闻到过真正的血味，你们没有感受到那种巨大的压力，你们没有感受到共产党是如何的恐惧七哥和爆料革命，每时每刻，啊！我们的战斗就在刚才啊，我就在20分钟前和大卫跟Rachael打了个招呼啊，骑侠、Nick还不在的时候，我就收到十几个信息啊，让我今天不讲这个不讲那个，然后如何如何威胁。 这我们是在美国，但是我要告诉大家的是我们今天的画面上在来自于欧洲、美国、加拿大、澳大利亚占据了整个地球，如果我们不奋斗，你们就是下一个七哥，但我绝不相信，你们能像我一样活到今天。
 
-劳特巴赫周三晚间告诉德国公共广播公司，他认为这波浪潮将在 2 月中旬左右达到顶峰。劳特巴赫警告说，虽然目前住院率很低，但在未来几周医疗机构可能依然会面临严重的压力。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-在过去 的24 小时内，德国疾病控制机构报告了 133,536 例新增确诊的CCP感染案例，同时有234 人因感染CCP病毒不幸死亡。
+**关注我们**
 
-与其他CCP病毒毒株相比，Omicron变体更加容易传播，并且已经在许多国家占据主导地位。同时更容易感染已接种疫苗或以前接种过疫苗的人。不幸中的万幸是，德国目前50岁以上的高风险人群接种疫苗的比例比其它西欧国家——例如英国和意大利——要更低。
+Discord 账号
 
-截至目前，已经有近 73% 的德国人完成了双剂CCP病毒疫苗的注射，而有近 48% 的人接种了额外的CCP病毒加强针。预计德国议会将在未来几个月开始就普遍强制疫苗措施进行提案和辩论，不过该国政府官员也承认这一措施不太可能在几个月内就立即生效。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-与此同时，德国警方正在针对伪造CCP病毒疫苗证书的行为进行调查，据称案件数量高达数千起，范围遍布全国的十六个州。这既反映出许多民众对于疫苗的实际作用和安全性缺乏信任，同时也反映了当前的疫苗接种政策，即便不是完全硬性的，也已经很多大程度上将未接种疫苗的居民排除在公共生活之外，让他们不得不伪造证件才得以继续生存下去。
+Gettr 账号
 
-新闻参考链接：
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-[Germany expects COVID-19 cases to peak in mid-February](https://apnews.com/article/coronavirus-pandemic-business-health-germany-europe-558713cecc425e718a35fa20e1e80a33)
-
-[Report: German police see surge in fake vaccine certificates](https://apnews.com/article/coronavirus-pandemic-business-health-germany-europe-9dac134f0da260850b815612ad3af311)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
