@@ -2,8 +2,8 @@
 ---
 
 
-## 人类最可悲的就是跟着大部队走
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882874/)
+## 明年最重要的事情，以毒灭共、以苗灭共，要达到最后的核心
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882894/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组
@@ -11,6 +11,8 @@
 ```
 发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
 ```
+
+
 
 
  

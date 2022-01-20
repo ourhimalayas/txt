@@ -2,27 +2,69 @@
 ---
 
 
-## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
+## 有声|生命的意义
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1882711/)
 
-据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
-芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+生命的意义在于
+认准一个正确的方向
+不断地探索与追寻
+不要指望弯道超车
+或者一夜间突然绽放异彩
+而要一步一个脚印
+克服一个又一个艰难险阻
+哪怕每天进步一点点
+也好过一路狂奔
+掉进陷阱或悬崖
+而当你感觉方向错误时
+就要及时抽身回头，
+重新找准方向
+重新上路……
+否则，每多走一步
+都会背离目标越来越远
+越努力就越是在糟蹋浪费生！
+这些都是浅显的道理
+相信每个人都懂
+可是真正能做到者有几个
+许多许多的人
+无不在渴望一夜暴富
+他们绞尽脑汁地算计别人
+没想到有一天终会被人识破
+被别人联合起来抵制
+算计别人者终将被人算计
+害人者终将为人所害
+反倒是那些满含谦卑
+不急功近利之人
+最终才能更行更远
+达到一个别人无法企及的高度
+所以，把生活对你的折磨
+看作是上天对你的考验吧
+迈过那一道道坎
+总有一天
+你会成为上帝眷顾的宠儿
+我爱你 生活
+是你在不断地打磨我 考验我，
+洗尽我的铅华与卑污的尘垢
+出脱成一颗璀璨耀目的钻石
+生命的意义在于爱
+学会生命的意义吧
+学会去爱所有追求真善美的人
 
-法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
+文字版原文：[生命的意义](https://gnews.org/zh-hans/1876837/)
 
-文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

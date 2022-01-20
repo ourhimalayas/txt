@@ -2,8 +2,8 @@
 ---
 
 
-## 未来一千天对共产党的盖棺行动，以及明年两个最核心的问题
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882886/)
+## 接下来什么都国有化，最黑暗的时代
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882916/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组
@@ -11,8 +11,6 @@
 ```
 发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
 ```
-
-
 
 
  
