@@ -2,25 +2,154 @@
 ---
 
 
-## 加拿大研究人员：北京冬奥会APP“冬奥通”搜集审查用户数据，存在安全隐患
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1877950/)
+## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
 
-翻译：zzballack
-上传：追着曙光跑
+[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
 
-据《布雷特巴特新闻网》（Breitbart News）1月18日报道，加拿大多伦多大学的网络安全监督小组“公民实验室（Citizen Lab）”的研究人员1月18日发布报告说，运动员、记者和观众等所有北京冬奥会的与会人员被中共强制要求下载的手机应用程式“冬奥通（MY2022）”存在严重的安全漏洞：用于加密用户语音音频和文件传输的加密技术可以轻易被绕过。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-19-at-10.57.16.jpeg)图片来源：原新闻
-公民实验室还发现，用于传输护照详情、个人健康信息以及医疗旅游史的健康申报表也存在安全漏洞。服务器响应也可以被欺骗，允许攻击者向用户显示虚假指令。“冬奥通”相当直接地要求用户提供与参加奥运会有关的信息，并且收集一系列高度敏感的医疗健康资料等个人隐私信息，但它并没有清楚列出会向谁或哪些机构共享和披露这些高度敏感信息。研究人员指出：“‘冬奥通’包括的功能之一是收集用于健康监测的医疗信息清单，其中包括用户每天自我报告的健康状况，新冠疫苗接种状况，以及新冠地实验室测试结果等等。”
+**Steve Bannon:
+史蒂夫班农:**
 
-“冬奥通”还包括一个让用户向中共当局举报“政治敏感内容”的功能。“冬奥通”有一个秘密的“审查关键词列表”，其中有2442个条目，内容涉及藏传佛教、新疆维吾尔族、天安门广场大屠杀、共产党精英之间的内斗以及对中共国的批评等等。该审查列表在分析的软件版本中没有被启用。但在冬奥会开始后可能会发生变化。“冬奥通”有内置的文本和语音聊天工具，也可能会受到审查。
+I just want to make sure we go through it one more time
+我只是想再一次明确实一下
 
-多伦多大学的团队深入研究了“冬奥通”的隐私政策，发现与其他许多的中共应用程式一样，在“几种情况”下，“冬奥通”可以在未经用户同意的情况下披露私人信息–包括但不限于“国家安全事务、公共卫生事件和刑事调查”。中共有宣布一切都为“国家安全事务”的习惯，所以这相当于为中共情报人员提供了一个全面的许可，以获取他们认为重要的任何用户数据。而且隐私政策在获取个人信息是否需要任何形式的法院命令问题上相当含糊。
+The numbers a day you’ve had CPI now PPI
+你每天的数字是消费者物价指数，现在是生产者物价指数
 
-也许最令人不安的是，该报告发现了许多关键的安全缺陷，比如未能验证安全链接的电子安全证书或对敏感数据进行加密。因此，来自用户手机的大量敏感数据将容易被连接到同一wifi网络的“被动窃听者”窃取。
+Come by and tell people this is…
+过来告诉人们这是…
 
-于1月17日上传到苹果商店的最新版本“冬奥通”，不仅没有修复上述这些安全问题，还引入了一个新的安全缺陷–健康码系统要求用户提供旅行文件和医疗记录，然后在没有验证安全证书的情况下将其传输到中国服务器。报告总结说：“我们发现该软件的安全漏洞不仅可能违反谷歌的不受欢迎的软件政策和苹果的应用程序商店指南，而且也可能违反了中共自己的法律和有关隐私保护的国家标准。”
+I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
+鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
 
-信息来源：[Mandatory Olympic Athlete App Gives China Data Goldmine](https://www.breitbart.com/asia/2022/01/18/mandatory-olympic-athlete-app-gives-china-data-goldmine/)
+And this is dangerous
+这是很危险的
+
+No. 1 our system for these rate increases is talk trying to choke this down
+now our system is set up for negative interest rates
+第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
+
+People don’t understand that the trauma that is going to happen in our financial system
+人们不明白我们金融体系将要发生的创伤
+
+That’s going to roll into your personal life, okay?
+将会影响每个人生活，知道吗？
+
+No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
+第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
+
+Steve Cortes:
+史蒂夫科尔特斯:
+You’re exactly right Steve
+你是非常对的，史蒂夫
+
+Look, if we look at history we see that a lot of political upheaval
+看，如果我们回顾历史，我们会看到很多政治动荡
+
+upheaval that we could say the least evil actually results from inflation
+我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
+
+If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
+如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
+
+If we look at Germany pre-World War II
+如果我们看看二战前的德国
+
+We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
+我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
+
+And in a country that is already as polarized as the United States is
+而在一个已经像美国这样两极分化的国家
+
+This kind of inflation is not just bad economics
+这种通货膨胀不仅仅是糟糕的经济学
+
+It’s actually societally dangerous for our country
+它实际上是对我们国家的社会危险
+
+And that’s why we need to be cleared-eyed about what it is and about policy solution
+而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
+
+Because Steve, we can’t just curse the darkness
+因为，史蒂夫，我们不能只是诅咒黑暗
+
+We have to do that, yes
+是的，我们必须这样做
+
+But as lamentable as this current economic quagmire is
+但与当前的经济泥潭一样可悲的是
+
+This is stagflationary embroil that we face right now in America
+我们美国现在面临的滞胀困境
+
+It does also, Steve, present political opportunity
+史蒂夫，它也确实提供了政治机会
+
+Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
+巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
+
+and to transform the republican party, not of the parties of the chased right
+并改变共和党，而不是被追逐的权利的政党
+
+But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
+反而成为一个真正多民族和多种族的美国工人阶级政党
+
+And the polling is starting to show us that political opening is there
+民意调查开始向我们表明政治开放是存在的
+
+If we have the guts and the gumption to cease it of course the right policies mix as well
+如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
+
+For example, as I mentioned yesterday in the show
+例如，正如我昨天在节目中提到的
+
+I think the most powerful way right now to win both politically as well as get the economy back on track
+我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
+
+get the inflation in control again
+再次控制通胀
+
+and get wages rising is inflation motive
+并提高工资就是通胀动机
+
+We need to absolutely stop illegal migration in this country
+在这个国家，我们需要绝对阻止非法移民
+
+and I believe we need a pause in even legal migration to this country
+并且我相信，就算是合法移民也需要适当暂停
+
+A pause in H-1B and other similar would work which is why let the American people wages starts to rise
+H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
+
+So that we see real wages take off again the way they did under Donald Trump
+这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
+
+instead of the way they are crashing right now under Joe Biden
+而不是现在在乔-拜登领导下崩溃的方式
+
+So, it’s calamity but there’s always opportunity as well in calamity
+因此，这是灾难，但灾难中也总是有机会的
+
+* * *
+
+Date: 01/13/2022
+原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
+Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
+原视频日期：2022/01/13
+原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
+任务编号：KE353（3494）
+视频时间段 : 0:00-02:52
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

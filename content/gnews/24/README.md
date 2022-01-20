@@ -2,8 +2,8 @@
 ---
 
 
-## 独立，新中国联邦一定会帮助喜币交易量，价值
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882353/)
+## 关心建立在共同安全共同利益上
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882460/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

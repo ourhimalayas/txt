@@ -2,27 +2,33 @@
 ---
 
 
-## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
+## 有声|中共在美司法超限战进入深水区
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1882712/)
 
-据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
-芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在1月17日的法律专场大直播中，郭先生以太平联盟PAG历时五年的缠诉为例，剖析了该案审理过程中的种种不公正环节，指出，这是一起反映中共对美国司法界蓝金黄的最典型案例。这场中共对爆料革命进行的在美司法超限战，即将进入疯狂的殊死较量。
 
-法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
+1月14日，纽约高院法官巴里·奥斯特拉格取消了卡希尔·高登 & 林德尔律师事务所代理太盟PAG的诉讼资格，这是一个有着历史意义的判决。它将中共的红色资本渗透美国律所及法官，甚至司法部官员的重重黑幕撕开了一个口子。这起案件一开始在纽约立案就存在属地争议，初判结果确认了这一点，但随后令人匪夷所思地重启调查。早就签署解除担保义务的所谓3千万担保未付款，经过一系列黑箱操作，至今竟已涉及18楼房产、游艇，以及逾1.5亿美元的罚款。
 
-文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
+郭先生强调，中共不惜花费200亿美元在美国展开法律超限战，从远期来说，是要彻底瓦解美国的司法独立体系。而从2017年开始的一系列缠诉，目的是以“藐视法庭”的罪名制造借口，摧毁郭先生一手创立的爆料革命。随着中共末日的来临，其必将进行更加疯狂的攻击。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – 柯镇恶
+郭先生表示，此案已经引起主流媒体、APA律师协会、司法部，甚至国会议员的高度关注。只要证据确凿真实，程序公正，坚信美国的民主与法制仍会发挥巨大的作用。这场法律超限战，我们最终一定会赢。
 
+文字版原文：[中共在美司法超限战进入深水区](https://gnews.org/zh-hans/1875842/)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

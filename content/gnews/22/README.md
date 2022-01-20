@@ -2,16 +2,10 @@
 ---
 
 
-## 盘古员工福利HDO国内怎么花
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882368/)
+## 1/19/2021 文贵直播：中共和达沃斯党这对邪恶的孪生兄弟离死期不远了
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1882525/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-
-
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
-
+秘密翻译组-北美组
 
  
 

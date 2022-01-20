@@ -2,33 +2,40 @@
 ---
 
 
-## 01/19每日播报｜美国呼吁联合国在冬奥会前就新疆人权问题发表报告
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1879861/)
+## 斯洛文尼亚与台湾就互设代表处进行洽谈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880744/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61e7d2bf533c672fca7f3b10)**
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月18日，据台湾媒体消息显示，近日，斯洛文尼亚总理詹沙在接受媒体采访时透露，斯洛文尼亚正与台湾洽谈互设代表处的相关事宜。
 
-**[2022-01-19](https://gtv.org/broadcast/watch/61e7d2bf533c672fca7f3b11)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-11.jpeg)
 
-《华盛顿》1月18日报道，周二，美国国会议员敦促联合国人权组织在北京冬奥会之前，就中共在新疆对维吾尔族以及其他穆斯林少数民族犯下的种族灭绝罪，发布评估报告。此前，美国政府以及其他盟友已经在外交层面上，抵制中共国即将举办的北京冬奥会。
+詹沙总理表示，他曾经访问过台湾，也见证了台湾的民主，同时，他还表态支持台湾加入世界卫生组织。此外，詹沙指出，台湾海峡两岸的生意人有着密切往来，中共当局没有理由阻止其他国家与台湾建立经贸关系。
 
-联合国人权事务高级专员米歇尔·巴切莱特(Michelle Bachelet)自2018年9月以来一直就访问新疆问题与中共进行谈判，当时有指控称约100万维吾尔人被关押在拘留营。她遗憾地表示，她的办公室一直无法进入中共国西部地区，调查有关维吾尔族和其他穆斯林少数民族侵犯人权的指控。
+詹沙也强调，斯洛文尼亚支持台湾人民的主权决定，且无论台湾最终的结果如何，这个决定必须是在没有外来压力以及军事威胁的前提下做出的。
 
-在2021年12月，巴切莱特的办公室表示，正在敲定一份有关新疆局势的报告，希望在未来几周内发表。此前，该办公室与中共官员商议就人权问题的访问进行长期谈判，但没有取得任何进展。
+对于立陶宛因准许台湾设立代表处而遭到中共经济报复的事件，詹沙称，这种试图孤立小国家的做法实属害人听闻。他还提到，中共对立陶宛的报复，就长远来看，对各方都不利。
 
-美国参议员杰夫·默克利(Jeff Merkley)和众议员詹姆斯·麦戈文(James McGovern)分别担任美国国会-行政部门中共国问题委员会(Congressional-Executive Commission on China)主席和共同主席，他们给巴切莱特写了一封公开信，要求她在2月4日的奥运会开幕之前发布这份报告。
+詹沙最后呼吁，亚太地区所有爱好和平的国家应该形成一个统一战线联盟，用以确保区域力量的平衡，进而可以共同对抗来自中共的威胁。
 
-默克利和麦戈文共同表示，报告的公布将发出一个重要的信号，即任何国家都不能逃避严重侵犯人权的国际审查。
+参考链接：[印媒專訪 斯洛維尼亞總理：與台洽談互設代表處](https://cn.rti.org.tw/news/view/id/2122388)
 
-此前，美国及其许多盟友，包括英国、加拿大、澳大利亚、日本和丹麦等国家，都宣布外交抵制北京冬奥会，以抗议中共国糟糕的人权记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-秘翻主编   冰糖葫芦喵编译报道
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-发布:星星
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
