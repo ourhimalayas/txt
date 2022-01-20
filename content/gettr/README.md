@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 11:40 PM (UTC)`
+
+1/19/2022 Miles Guo: It’s announced for the first time that the CCP virus pandemic is going to end this May, but the COVID vaccine disaster will unfold. “Xi the sun” has turned to inviting people at the Davos forum to enjoy a shared post-vaccine economy and to profit from people’s suffering. The CCP has locked the Chinese people in their homes and is presenting a false appearance of peace and prosperity. The false prosperity that will be manifested by the grandiose scenes of the Beijing Winter Olympics will ring the death knell for the CCP.<br/><br/>1/19/2022 文贵直播: 首次公布今年5月份病毒将接近尾声，疫苗灾难将接踵而至；习太阳转而邀约共享疫苗经济；中共粉饰太平，中国老百姓被困家中；北京冬奥涂脂抹粉终将唱响中共丧歌<br/>
+![img](https://media.gettr.com/group45/getter/2022/01/20/23/2757e575-4ede-fcca-97ba-db419da1dc68/out.jpg)
+
+---
+
 `@miles 1/20/2022 11:36 PM (UTC)`
 
 1/19/2022 Miles Guo: The New Federal State of China has become as influential as the swamp because we are the unvaccinated. Behind the ban of ivermectin, artemisinin, and hydroxychloroquine are only a handful of people in the swamp, media, big techs, and European and American governments, who want to eliminate those they can’t tolerate by using the COVID vaccine. The COVID vaccine is the real disaster.<br/><br/>1/19/2022 文贵直播：不打疫苗让新中国联邦跟沼泽地平分秋色；禁止用伊维菌素, 青蒿素和羟氯喹的背后是沼泽地、媒体、科技巨头和欧美政府的极少数人要用疫苗杀掉他们不能容忍的人 - 疫苗才是灾难！<br/>
@@ -145,13 +152,6 @@
 
 1/19/2022 Miles Guo: The New Federal State of China is saving the entire humanity! It’s the first time in the past 5 years that I seriously talk about the Party of Davos, the Communist Party of the World. Humankind is faced with the disasters caused by the CCP virus and its vaccines. If the Party of Davos is not brought to justice, the earth will be destroyed! The CCP and the Party of Davos are the origins of all evil!<br/><br/>1/19/2022 文贵直播：新中国联邦在拯救全人类！5年来文贵首次认真谈达沃斯党 - 世界的共产党！人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源!<br/>
 ![img](https://media.gettr.com/group46/getter/2022/01/20/00/f93aab59-4cbf-cd2b-a8bc-24e051825ebf/out.jpg)
-
----
-
-`@miles 1/19/2022 11:19 PM (UTC)`
-
-1/19/2022 Miles Guo: What were they doing in the Davos Forum held in Tianjin? They were injected with blood serum and sexually assaulted beautiful ladies and young girls from Tibet, Xinjiang, and Yunnan. Their evil deeds in the past few years are all the ironclad evidence for their crimes.<br/><br/>1/19/2022 文贵直播：达沃斯天津论坛是干嘛来的？他们打着血清、玩弄着西藏、新疆、云南的美女和小孩子，他们过去这些年的恶行都是犯罪铁证！<br/>
-![img](https://media.gettr.com/group21/getter/2022/01/19/23/4fc11ca0-9e6b-7550-6811-4440d8499286/out.jpg)
 
 ---
 
