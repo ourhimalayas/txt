@@ -2,28 +2,33 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1880860/)
+## 2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1880783/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2-2.jpg)
+郭文贵先生在2022年1月19日大直播中向战友们介绍了达沃斯论坛的真相，并首次提到了达沃斯党。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-18.png)
-文章仅代表作者本人观点，与Gnews无关
+郭先生指出达沃斯党徒都具备以下三个特征：
 
-视频参看：[2022.01.19早GTV新闻访谈](https://gtv.org/video/id=61e811d6533c672fca7f5a77)
+- 有影响国家的政治和军事的能力
+- 控制着能左右数以亿计人的命运的财富
+- 手上有无数条人命
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-15.jpg)
+郭先生根据共产党在达沃斯的一系列讲话以及参加达沃斯论坛这些人的来源，指出达沃斯党就是一个黑暗力量的俱乐部，控制人类命运的俱乐部，是让全世界当奴隶的奴隶主俱乐部。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+郭先生谈到，从2001年中共拿到了北京2008年夏季奥运会和WTO的入场券那天起，达沃斯论坛就跟中共勾结，中共完全控制了达沃斯论坛，从未让西方人有过话语权，在过去这几十年，达沃斯的所作所为没有一条符合达沃斯宪章。
+
+郭先生指出，如今在全球超发货币，世界经济即将崩溃，美国准备加息之际，中共向达沃斯党承诺，只要不戳穿中共超发货币和房地产的骗局，继续让中共奴役十四亿人民，它会用中国人的血汗和生命去吸收世界经济的泡沫。
+
+郭先生提醒战友，达沃斯党跟每一个中国人都息息相关，达沃斯党是牺牲了中国人七十年的血汗，中国人子孙的未来，中国健康的土地和中国丰富的资源，才让他们能活到今天。
+
+郭先生强调中共就是中国的达沃斯党，达沃斯党就是世界的共产党。达沃斯党是共产党的帮凶。不审判达沃斯党他们就会把世界毁掉。新中国联邦跟达沃斯党会有一场光明与黑暗的大战，达沃斯论坛将成为中共倒闭的论坛。最终新中国联邦会让达沃斯党在中国再无立足之地。
+
+参考链接：https://gtv.org/broadcast/watch/61e8077a533c672fca7f4b0a
+
+
 
  
 
