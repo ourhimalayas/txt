@@ -2,26 +2,27 @@
 ---
 
 
-## 洛杉矶某校未接种新冠疫苗学生受到虐待
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
+## 巴拉圭总统夫妇二人接种两剂疫苗仍旧感染
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883412/)
 
-撰稿: 银河系农场—骄子
+撰稿：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
-据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
+1月18日，巴拉圭卫生部发布通知，该国总统贝尼特斯于当天确诊感染中共病毒，所幸症状轻微，目前正在隔离中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1558.png)
+据悉，贝尼特斯的夫人于16日确诊感染中共病毒，而夫妇二人均已完成两剂疫苗接种。据巴拉圭卫生部公布的数据显示，该国目前累计中共病毒确诊病例超过50万例，累计死亡近1.7万例。
 
-新闻来源:
+新闻链接：
+[台灣友邦巴拉圭總統確診 症狀輕微隔離中](https://news.ltn.com.tw/news/world/breakingnews/3805444)
 
-
-
-> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
+[巴拉圭总统新冠检测呈阳性](http://www.news.cn/world/2022-01/19/c_1128276096.htm)
 
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
 
-总编/编辑: 飞虹
+总编：飞虹
+
+编辑：DM
 
 校正/发稿：浪迹天涯
 

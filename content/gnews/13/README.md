@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命和国际社会合作有了一最大的进步
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884190/)
+## 冠状病毒死亡率不会超过1%，为什么要打来路不明的疫苗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884221/)
 
 台灣寶島農場
 

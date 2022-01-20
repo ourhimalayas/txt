@@ -2,26 +2,215 @@
 ---
 
 
-## 【中日财经爆】中共央行连续第二个月降息 宽松政策能否阻止经济下行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884267/)
+## 每日快报：美国开始提供10亿份免费COVID检测
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1884303/)
 
-撰稿：东京樱花团丨盖特第一批注册
-![](https://lh5.googleusercontent.com/egh1Oxy9BkTe6JpwezcoKgQHkHmMVW2Fue2Hn3tdN3_-XrxiEzzz34japp6U7nMOx9q-i_uAw4xghUAIgUl0G1fvqC79tEXg8wMF0uKl1LUiWyW68ObepQ-ZTcJ1y-d70EbyDN26)[*图片来源*](https://www.blockvalue.com/uploads/autoimage7/2021062121duez0xbxyue.jpg)
-中共国央行中国人民银行周三宣布，将一年期贷款基础利率（LPR）下调0.10%至3.70%，这是连续第二个月的降息，而且降幅比上个月的0.05%有所扩大。在对经济放缓的担忧日益增加的情况下，政府致力于通过加强货币宽松政策来支持经济。
+*作者：*文零
 
-2021年第四季度中国的经济增长率将为4.0%，比上第三季度放缓0.9个百分点。 这是自2020年4月以来最低增长率。除了中共病毒疫情重新出现后对商业活动的限制导致消费放缓外，中国恒大集团的危机也导致了房产市场的冷却。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-中国人民银行也将其五年期LPR下调0.05%至4.6%。 这是一年零九个月以来的第一次削减。 5年期LPR是房产抵押贷款利率的基准，这一政策的出台目的在于刺激房地产市场。
+# ***今日摘要***
 
-去年12月20日中共央行在时隔20个月后首次下调一年期利率，以帮助受影响特别严重的中小型企业（SME）。同月15日央行将存款准备金率下调了0.5%，这是自7月以来的第二次下调，向市场注入约1万亿人民币。
+1. [美国开始提供10亿份免费COVID检测，但还需要更多](https://apnews.com/article/coronavirus-pandemic-science-business-health-bda6ac442be3d753407cfa0d52cd81d3)
+2. [英国取消了对COVID的限制，称Omicron波“已经达到顶峰”](https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd)
+3. [北韩警告可能重新考虑核导弹试验的暂停活动](https://www.reuters.com/world/asia-pacific/nkorea-warns-it-may-rethink-moratorium-nuclear-missile-tests-2022-01-19/)
+4. [蓬佩奥支持新的导弹防御计划](https://www.washingtontimes.com/news/2022/jan/19/pompeo-backs-new-missile-defense-push/)
+5. [加拿大实施卡车司机疫苗强制令后，超市报告食品短缺](https://www.zerohedge.com/geopolitical/supermarkets-report-food-shortages-after-canada-imposes-trucker-vax-mandate)
 
-连续的宽松政策的出台意味着中共经济正快速下滑，经济崩塌随时到来。
 
-信息来源：[**中国、２カ月連続利下げ　緩和強化で経済下支え**](https://www.jiji.com/jc/article?k=2022012000406&amp;g=int&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_auto)
+# 重要事件
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+- [**01.19.APNEWS:美国开始提供10亿份免费COVID检测，但还需要更多;US begins offering 1B free COVID tests, but many more needed**](https://apnews.com/article/coronavirus-pandemic-science-business-health-bda6ac442be3d753407cfa0d52cd81d3)
+
+
+华盛顿（美联社）——美国各地的人们第一次可以登录政府网站并免费在家中进行COVID-19检测。但白宫的推动可能对缓解Omicron激增无济于事，专家表示，华盛顿将不得不做更多工作来修复该国长期陷入困境的检测系统。
+
+网站 COVIDTests.gov 允许人们为每个家庭订购四次家庭检测，无论其公民身份如何，并通过邮件交付。但在预计Omicron病例在许多地区达到顶峰之后，检测试剂将在7到12天内到达。白宫周三还宣布，将开始在药店和社区卫生中心免费提供4亿个N95口罩。这两项举措都代表了欧洲和亚洲部分地区长期以来的大规模政府投资，但在美国却被推迟了。“我们应该早点做更多的检测吗？是的，但我们现在做得更多，”乔·拜登总统周三在回顾他执政的第一年时说。
+
+专家表示，分发10亿份检测的计划是一个很好的开始，但它必须成为应对大流行病的常规部分。他们说，就像它免费提供大量疫苗一样，政府必须利用其购买力来确保稳定的检测供应。巴尔的摩县马里兰大学的健康经济学家佐伊麦克拉伦说：“快速检测的剧本应该看起来与疫苗的剧本完全一样。”“它们既有助于减少病例，又有助于控制COVID。”在Omicron引发的检测热潮中，两件装的家庭检测试剂通常在商店售价超过20美元——如果你能找到一个的话。自上周以来，保险公司被要求承担在药店或在线零售商处购买的多达八次家庭快速检测试剂的费用。
+
+- [**01.19.APNEWS:英国取消了对COVID的限制，称Omicron波“已经达到顶峰”;UK lifts COVID restrictions, says Omicron wave ‘has peaked’**](https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd)
+
+
+伦敦（美联社）-英国首相鲍里斯·约翰逊（Boris Johnson）周三表示，随着该国大部分地区的感染趋于平稳，公共场所将不再强制佩戴口罩，大型活动将放弃COVID-19护照。
+
+约翰逊告诉立法者，这些限制正在放松，因为政府科学家认为，由高度传染性的Omicron变体引发的感染激增“现在可能在全国达到顶峰”。尽管英格兰北部的医院仍然受到高病例数的压力，学校的感染人数仍在上升，但约翰逊表示，英格兰其他地方的重症监护病房的住院人数和患者数量正在稳定或下降。政府不再建议人们在家工作，从周四开始，中学教室将取消强制戴口罩。从1月27日开始，参加大型活动将不需要强制性COVID-19通行证。从那天起，英格兰任何地方都不再需要戴口罩。
+
+约翰逊说：“我们将相信英国人民的判断，不再将任何选择不戴的人定为犯罪。”
+
+- [**01.19.REUTERS：北韩警告可能重新考虑核导弹试验的暂停活动；N.Korea warns it may rethink moratorium on nuclear, missile tests**](https://www.reuters.com/world/asia-pacific/nkorea-warns-it-may-rethink-moratorium-nuclear-missile-tests-2022-01-19/)
+
+
+路透首尔1月20日-朝鲜将加强对美国的防御，并考虑重启“所有暂停的活动”，官方媒体朝中社周四报道，这显然是指自行暂停试验其核弹和远程导弹。
+
+朝鲜最近的一系列导弹试验导致紧张局势升级。在美国推动新制裁之后，平壤做出了激烈反应，引发了重返2017年所谓“火与怒”威胁时期的幽灵。朝鲜领导人金正恩周三召开了执政的劳动党政治局会议，讨论“重要的政策问题”，包括对“敌对”美国政策的对策，朝鲜中央通讯社官方通讯社说。华盛顿的政策和军事威胁已“达到危险线”，并援引美韩联合军事演习、美国在该地区部署尖端战略武器以及实施独立和联合国制裁。朝鲜中央通讯社表示，中央政治局下令重新考虑建立信任的措施，并“立即审查重启所有暂停活动的问题”，同时呼吁“立即加强更强大的物理手段”。“我们应该为与美帝国主义的长期对抗做更充分的准备，”美国国务院和白宫没有立即回应置评请求。
+
+自2017年以来，朝鲜尚未检测其射程最远的洲际弹道导弹(ICBM)或核武器，在朝鲜试射一枚能够打击美国本土的弹道导弹后，朝鲜与华盛顿展开了一系列外交活动。但在2019年峰会失败后，无核化谈判陷入僵局并重新陷入僵局后，它开始检测一系列新型短程弹道导弹(SRBM)。平壤为导弹发射辩护为其主权自卫权，并指责华盛顿对武器试验采用双重标准。周一，朝鲜进行了今年的第四次导弹试验，此前两次发射了能够在起飞后进行高速机动的“高超音速导弹”，另一次涉及铁路导弹系统。异常迅速的发射速度促使美国谴责并推动联合国实施新的制裁，平壤威胁要采取更强有力的行动。政治局的决定似乎比金在2020年初先前发表的言论更进一步，即在美国没有回应要求让步重新开始谈判的呼吁后，他将不再受暂停核试验和洲际弹道导弹试验的约束。华盛顿威尔逊中心的研究员让·李说：“我们应该准备好迎接更多旨在营造好战气氛的剑拔弩张——可能还有更多的挑衅性测试。”“他现在将利用一切机会为进一步的武器检测辩护。”
+
+- [**01.19.The Washington Times：蓬佩奥支持新的导弹防御计划;Pompeo backs new missile defense push**](https://www.washingtontimes.com/news/2022/jan/19/pompeo-backs-new-missile-defense-push/)
+
+
+前国务卿迈克·蓬佩奥（Mike Pompeo）呼吁制定一项新的里根时代战略防御计划，以应对中共国日益增长的核威胁和常规战略威胁。
+
+蓬佩奥先生抢在拜登政府即将进行的核态势评估之前说，需要一个基于先进武器和能力的新的、更强大的战略威慑系统来维持和平。“SDI II是我们这个时代的一项战略防御计划，它应该体现前总统罗纳德·里根的纵深防御愿景，它是强制性的。”蓬佩奥先生在《国家利益》杂志上写道。唐纳德·川普总统领导下的前国务卿也警告说，美国的单边克制政策不会与中共国或俄罗斯的类似战略克制相匹配，只会增加战争的危险。“威慑来自力量，而不是来自软弱，因为软弱会引发好战，”蓬佩奥先生说。“在维持和部署部队方面的单方面克制并不支持威慑，因为如果单方面克制在面对迅速增长的威胁时限制了权力，那么威慑就不可能来自于单方面克制。单方面的克制可能预示着软弱，这可能会导致那些认为自己不受约束的国家做出危险的一连串反应。”
+
+熟悉核态势评估的官员称，拜登总统正在考虑对美国核武器和其他战略力量实施一系列限制，而此时中共国正在部署数百枚新型战略导弹，其中包括一种轨道核弹头高超音速武器，它可以从空间攻击。俄罗斯还在制造新的导弹和其他外来战略武器，包括能够摧毁整个港口城市的核武装无人机鱼雷。可能是总统候选人的蓬佩奥先生概述了可能成为2024年总统大选的共和党国家安全政策的关键要素，他说必须保留陆基和海基导弹和轰炸机的核三位一体。一些拜登政府官员认为，美国可以消除其陆基核导弹，并转向核导弹潜艇和轰炸机的威慑力量。拜登先生过去也曾主张美国不会成为第一个在冲突中使用核武器的国家。蓬佩奥先生说，不首先使用的政策会增加使用化学或生物武器进行非核攻击的危险。
+
+- [**01.19.ZeroHegde：加拿大实施卡车司机疫苗强制令后，超市报告食品短缺；Supermarkets Report Food Shortages After Canada Imposes Trucker Vax Mandate**](https://www.zerohedge.com/geopolitical/supermarkets-report-food-shortages-after-canada-imposes-trucker-vax-mandate)
+
+
+当加拿大实施新的边境命令禁止未接种疫苗的美国卡车司机时，不堪重负的供应链和卡车司机短缺情况进一步恶化。据彭博社报道，由于美国司机的疫苗接种率低，加拿大超市已经报告食品价格上涨和某些产品短缺。加拿大对卡车司机的疫苗强制于周六生效。新规定要求美国卡车司机接种疫苗才能过境。我们本周早些时候警告说，这样的强制将产生“后果”。
+
+疫苗强制令加剧了卡车司机的短缺，并使过境点的等待时间更长。美国和加拿大之间百分之八十的贸易是通过卡车运输的。美国在冬季出口约90%的加拿大水果和蔬菜。由于只有大约一半的美国卡车司机接种了疫苗，因此发货量下降，杂货店报告出现短缺。“我们看到了短缺，”加拿大独立杂货商联合会高级副总裁加里桑兹说，“我们从会员那里听到他们要去一些没有橙子或香蕉的商店。”主要的担忧是，这项强制可能会产生多米诺骨牌效应，并波及已经承受压力的供应链。物流中断是通胀飙升的重要原因。据北美农产品采购商称，从南加州向加拿大运送一卡车新鲜农产品的成本现在是9,500美元，高于7,000美元。这意味着公司正在为运费支付更多费用，并将成本转嫁给消费者。 鉴于符合条件的卡车司机减少，运往加拿大的产品将在美国仓库中建造，在新司机出现之前无处可去。这种情况只会在1月22日美国开始对加拿大卡车司机实施疫苗接种时恶化。加拿大卡车运输协会警告说，这项任务将使多达16,000名卡车司机靠边站。加拿大卡车司机对美国的决定感到愤怒，并封锁了美国-曼尼托巴省国际边界附近的高速公路，以抗议新的强制令。社交媒体上发布的视频显示，边境另一边发生了混乱。跨境疫苗强制令只会使供应链更加紧张，甚至可能破裂。
+
+# 更多要闻链接
+
+1. [最高法院允许1月6日委员会获得川普文件](https://www.washingtontimes.com/news/2022/jan/19/supreme-court-allows-jan-6-committee-get-trump-doc/)
+2. [学校员工将口罩贴在孩子的脸上后，宾夕法尼亚州的父母感到愤怒](https://www.foxnews.com/us/pennsylvania-parents-outraged-after-school-employee-tapes-mask-to-childs-face)
+3. [北京警告冬奥会参赛者：言行违反奥运精神或中共国法规将受罚](https://www.voachinese.com/a/Beijing-2022-official-warns-against-violations-of-Olympic-spirit-20220119/6403489.html)
+4. [佛罗里达州最高卫生官员因支持疫苗接种而休假](https://www.bbc.com/news/world-us-canada-60060308)
+5. [“这是一个战区”：医护人员表现出与退伍军人相似的压力迹象](https://www.theguardian.com/world/2022/jan/19/healthcare-workers-post-traumatic-stress-disorder-pandemic-covid)
+
+
+# 每日推特文摘
+
+
+
+辉瑞疫苗可能引发的副作用列表，你看得清吗？
+
+[https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)
+
+
+
+
+
+> 辉瑞疫苗可能引发的副作用列表，你看得清吗？[https://t.co/qa3mZ7H67p](https://t.co/qa3mZ7H67p) [pic.twitter.com/mZLskQnaqW](https://t.co/mZLskQnaqW)
+> — 🔥火来2号🔥✊🌽🚀 (@jsdfposjpqyuee1) [January 18, 2022](https://twitter.com/jsdfposjpqyuee1/status/1483554270993534976?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+重磅 重磅中的重磅
+
+七哥给战友们红利啦
+
+Ｇ保险——既保险更保命
+
+
+
+
+
+> ❤️重磅 重磅🀄️的重磅❤️
+> 七哥给战友们红利啦
+> 😍😍😍💪💪💪🙏🙏🙏
+> Ｇ保险 —-既保险更保命 [pic.twitter.com/auAMKFq7Uv](https://t.co/auAMKFq7Uv)
+> — 安平 Emma(新生号） (@PingRyan2016) [January 19, 2022](https://twitter.com/PingRyan2016/status/1483841098879537160?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+012500 杨改兰这样的人，在中共国有上千万。甘肃被扶贫的人用了区域性手机，根本出不去，没有自由。黑暗势力对人类的控制，超出想象！
+
+消灭中共是正义的需要，消灭中共是人类生存的需要！ 消灭共产党！消灭共产党！消灭共产党！
+
+
+
+
+
+> 012500 杨改兰这样的人，在中国有上千万。甘肃被扶贫的人用了区域性手机，更本出不去，没有自由。黑暗势力对人类的控制，超出想象！ 
+> 
+> 消灭中共是正义的需要，消灭中共是人类生存的需要！
+> 
+> 消灭共产党！消灭共产党！消灭共产党！✊✊✊[https://t.co/4gSSHVyE4k](https://t.co/4gSSHVyE4k) [pic.twitter.com/LEc5MbWNUb](https://t.co/LEc5MbWNUb)
+> — 88jj（加拿大圆成农场特战队） (@2\_88jj) [January 19, 2022](https://twitter.com/2_88jj/status/1483814075423690755?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+JEON GI YEOB 博士：接种疫苗后，
+
+人体会产生不明物体或寄生虫。
+
+
+
+
+
+
+
+> JEON GI YEOB 博士：接種疫苗後，
+> 人體會產生不明物體或寄生蟲。
+> By：【秘密翻譯組-精翻組】 [pic.twitter.com/PJgqbZe2fc](https://t.co/PJgqbZe2fc)
+> — 台灣｜FORMOSA (@FormosaNfsc) [January 19, 2022](https://twitter.com/FormosaNfsc/status/1483798738577596416?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这个是2002——2021年间，心肌炎的发病案例。还需要更多解释吗？
+
+
+
+
+
+> 这个是2002——2021年间，心肌炎的发病案例。还需要更多解释吗？ [pic.twitter.com/uHJNd3Cqsf](https://t.co/uHJNd3Cqsf)
+> — 阳光明媚 （澳喜特战旅） (@Yang\_guang419) [January 19, 2022](https://twitter.com/Yang_guang419/status/1483766497063452677?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+澳大利亚，
+
+刚刚执行的5~11岁儿童注射疫苗
+
+死亡已经开始
+
+
+
+
+
+> 澳大利亚，
+> 刚刚执行的5~11岁儿童注射疫苗
+> 死亡已经开始↓↓↓ [pic.twitter.com/HqzwSaguGE](https://t.co/HqzwSaguGE)
+> — 澳喜Gnews (@HAGnews01) [January 19, 2022](https://twitter.com/HAGnews01/status/1483762241640235011?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+一个善良的、真实的『基本教育系统』，和让人有基本的『信仰』，比金钱比什么都重要！
+
+
+
+
+
+> 一個善良的、真實的『基本教育系統』，和讓人有基本的『信仰』，比金錢比什麼都重要👇 [pic.twitter.com/iMJqKgAgBr](https://t.co/iMJqKgAgBr)
+> — 台灣｜FORMOSA (@FormosaNfsc) [January 19, 2022](https://twitter.com/FormosaNfsc/status/1483844858007621636?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+*编辑：文零
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,154 +15,154 @@
 
 ---
 
-### [每日快报：美国开始提供10亿份免费COVID检测](/content/gnews/1/README.md)
+### [法国病毒学家 生物学家 诺贝尔生理学医学奖得主吕克•蒙塔尼耶：疫苗并不能保护我们 （感谢石头制作）](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [平民百姓就不能吃肉，骨头都不能啃](/content/gnews/2/README.md)
+ ` 骄子`
+
+### [樱花灭共诗——恨海鲜（新韵）](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [在线日美峰会 日方将邀请美国重返TPP](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报：美国开始提供10亿份免费COVID检测](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗公司与医院是否有金钱往来?得到多少报酬?院方未回应](/content/gnews/2/README.md)
+### [疫苗公司与医院是否有金钱往来?得到多少报酬?院方未回应](/content/gnews/6/README.md)
  ` G-NEWS TAIWAN`
 
-### [1/20/2022 国际财经快讯：全球企业海外投资去年强劲反弹，但基本无助缓解供应紧张状况；美国拟议法案欲限制互联网巨头市场影响力](/content/gnews/3/README.md)
+### [1/20/2022 国际财经快讯：全球企业海外投资去年强劲反弹，但基本无助缓解供应紧张状况；美国拟议法案欲限制互联网巨头市场影响力](/content/gnews/7/README.md)
  ` 秘密翻译组金融团队`
 
-### [达沃斯是与中共勾结的暗黑集团 其目标是控制奴役世界](/content/gnews/4/README.md)
+### [达沃斯是与中共勾结的暗黑集团 其目标是控制奴役世界](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】中共央行连续第二个月降息 宽松政策能否阻止经济下行](/content/gnews/5/README.md)
+### [【中日财经爆】中共央行连续第二个月降息 宽松政策能否阻止经济下行](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [沼泽地的冬天](/content/gnews/6/README.md)
+### [沼泽地的冬天](/content/gnews/10/README.md)
  ` 银河勇气之星`
 
-### [未来保险是去中心化的保险，由第三方监管](/content/gnews/7/README.md)
+### [未来保险是去中心化的保险，由第三方监管](/content/gnews/11/README.md)
  ` G-NEWS TAIWAN`
 
-### [一个善良的、真实的一个基本的教育的系统和让人有基本的信仰比金钱比啥都重要](/content/gnews/8/README.md)
+### [一个善良的、真实的一个基本的教育的系统和让人有基本的信仰比金钱比啥都重要](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
 
-### [冠状病毒死亡率不会超过1%，为什么要打来路不明的疫苗](/content/gnews/9/README.md)
+### [冠状病毒死亡率不会超过1%，为什么要打来路不明的疫苗](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [01/20每日播报｜美国佛州最高卫生官员因敦促员工接种疫苗被停职](/content/gnews/10/README.md)
+### [01/20每日播报｜美国佛州最高卫生官员因敦促员工接种疫苗被停职](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [无视疫情松绑 仍要小学生打科兴毒疫苗](/content/gnews/11/README.md)
+### [无视疫情松绑 仍要小学生打科兴毒疫苗](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [鲍威尔国会作证缓解投资者的担忧](/content/gnews/12/README.md)
+### [鲍威尔国会作证缓解投资者的担忧](/content/gnews/16/README.md)
  ` 秘密翻译组金融团队`
 
-### [爆料革命和国际社会合作有了一最大的进步](/content/gnews/13/README.md)
+### [爆料革命和国际社会合作有了一最大的进步](/content/gnews/17/README.md)
  ` G-NEWS TAIWAN`
 
-### [秘翻響鼓秀埸 第（四十二）期](/content/gnews/14/README.md)
+### [秘翻響鼓秀埸 第（四十二）期](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国高院否决百人以上企业疫苗强制令](/content/gnews/15/README.md)
+### [美国高院否决百人以上企业疫苗强制令](/content/gnews/19/README.md)
  ` 秘密翻译组金融团队`
 
-### [专家称科学与医学无情 支持屠杀动物](/content/gnews/16/README.md)
+### [专家称科学与医学无情 支持屠杀动物](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习的最后绝唱：敢叫天降瑞雪迎冬奥](/content/gnews/17/README.md)
+### [习的最后绝唱：敢叫天降瑞雪迎冬奥](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】达沃斯102位顶级富豪自愿“割肉”为哪般](/content/gnews/18/README.md)
+### [【中日财经爆】达沃斯102位顶级富豪自愿“割肉”为哪般](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国共产党跟世界脱钩，等于脱了控](/content/gnews/19/README.md)
+### [中国共产党跟世界脱钩，等于脱了控](/content/gnews/23/README.md)
  ` G-NEWS TAIWAN`
 
-### [新西兰财经G乐部2022年1月20日:财经新闻整理](/content/gnews/20/README.md)
+### [新西兰财经G乐部2022年1月20日:财经新闻整理](/content/gnews/24/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [达沃斯之战是黑暗与阳光之战](/content/gnews/21/README.md)
- ` G-NEWS TAIWAN`
-
-### [福奇在中共国“重大投资”被披露](/content/gnews/22/README.md)
+### [福奇在中共国“重大投资”被披露](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID19疫苗刺突蛋白脱落会导致人们心脏病发作、中风等疾病](/content/gnews/23/README.md)
+### [COVID19疫苗刺突蛋白脱落会导致人们心脏病发作、中风等疾病](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [达沃斯是黑暗势力的俱乐部，控制人类命运的俱乐部](/content/gnews/24/README.md)
- ` G-NEWS TAIWAN`
-
-### [该清醒了，疫苗接种者们！](/content/gnews/25/README.md)
- ` 澳喜特战旅Gnews`
-
-### [什么原因引起澳大利亚超市断货？](/content/gnews/26/README.md)
+### [什么原因引起澳大利亚超市断货？](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [北京冬奥要求下载的“冬奥通”手机应用存在安全漏洞](/content/gnews/27/README.md)
+### [北京冬奥要求下载的“冬奥通”手机应用存在安全漏洞](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [01/20每日播报｜美国将与印太国家展开合作 制定共同目标对抗中共](/content/gnews/28/README.md)
+### [01/20每日播报｜美国将与印太国家展开合作 制定共同目标对抗中共](/content/gnews/29/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新病毒出现的几个极端现象，以及现在国内的严重情况](/content/gnews/29/README.md)
+### [新病毒出现的几个极端现象，以及现在国内的严重情况](/content/gnews/30/README.md)
  ` 雅典娜GNotes`
 
-### [墙内继喜茶降价后，奈雪的茶也要抗不住了](/content/gnews/30/README.md)
+### [墙内继喜茶降价后，奈雪的茶也要抗不住了](/content/gnews/31/README.md)
  ` 首尔天池农场`
 
-### [战友的改变，共产党的迷信](/content/gnews/31/README.md)
+### [战友的改变，共产党的迷信](/content/gnews/32/README.md)
  ` 雅典娜GNotes`
 
-### [01/20每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/32/README.md)
+### [01/20每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国及西方社会是沉迷于来自中国廉价商品的瘾君子](/content/gnews/33/README.md)
+### [美国及西方社会是沉迷于来自中国廉价商品的瘾君子](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [哥伦比亚将于五月总统大选，杰森·米勒造访该国对抗中共影响](/content/gnews/34/README.md)
+### [哥伦比亚将于五月总统大选，杰森·米勒造访该国对抗中共影响](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [哈恩维尔：路透社报道距冬奥会20天，北京发现中共病毒感染](/content/gnews/35/README.md)
+### [哈恩维尔：路透社报道距冬奥会20天，北京发现中共病毒感染](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [奥巴马和拜登政府将数万亿美元注入市场以支撑房地产和股市](/content/gnews/36/README.md)
+### [奥巴马和拜登政府将数万亿美元注入市场以支撑房地产和股市](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国港口封锁导致供应链受冲击全球经济下滑](/content/gnews/37/README.md)
+### [中共国港口封锁导致供应链受冲击全球经济下滑](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [马龙博士：《真相工程》曝国防部文件是体制内爆料的开始](/content/gnews/38/README.md)
+### [马龙博士：《真相工程》曝国防部文件是体制内爆料的开始](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联邦政府大量生产COVID检测试剂和疫苗，却控制救命的单克隆抗体](/content/gnews/39/README.md)
+### [联邦政府大量生产COVID检测试剂和疫苗，却控制救命的单克隆抗体](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疯子比尔·盖茨威胁说，会出现比新冠更可怕的大流行病](/content/gnews/40/README.md)
+### [疯子比尔·盖茨威胁说，会出现比新冠更可怕的大流行病](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [轻度感染中共病毒后几个月出现注意力和记忆力问题](/content/gnews/41/README.md)
+### [轻度感染中共病毒后几个月出现注意力和记忆力问题](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本自卫队派遣运输机和运输船支援汤加](/content/gnews/42/README.md)
+### [日本自卫队派遣运输机和运输船支援汤加](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本硅半导量子比特助力实现大规模量子计算机](/content/gnews/43/README.md)
+### [日本硅半导量子比特助力实现大规模量子计算机](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因担忧中共国疫情，NBC宣布不会派遣体育报道团队参加 2022北京冬奥会](/content/gnews/44/README.md)
+### [因担忧中共国疫情，NBC宣布不会派遣体育报道团队参加 2022北京冬奥会](/content/gnews/45/README.md)
  ` 首尔天池农场`
 
-### [中国政府以新冠疫情为由，停飞几十个中美国际航班](/content/gnews/45/README.md)
+### [中国政府以新冠疫情为由，停飞几十个中美国际航班](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](/content/gnews/46/README.md)
+### [巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [洛杉矶某校未接种新冠疫苗学生受到虐待](/content/gnews/47/README.md)
+### [洛杉矶某校未接种新冠疫苗学生受到虐待](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/48/README.md)
+### [苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [新加坡以遏制“冲动”交易为由关闭加密货币ATM](/content/gnews/49/README.md)
- ` 墨尔本雅典娜农场`
-
-### [英国全科医生认为，年轻人最不应该接种疫苗](/content/gnews/50/README.md)
+### [新加坡以遏制“冲动”交易为由关闭加密货币ATM](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分](/content/gnews/51/README.md)
