@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 3:15 PM (UTC)`
+
+1/19/2022 Miles Guo: The New Federal State of China is to launch an unprecedented decentralized insurance, which can overcome the shortcomings of traditional insurance and will be based upon the third-party regulated digital currency with 100% guaranteed payouts.<br/><br/>1/19/2022 文贵直播：新中国联邦将推出前所未有的去中心化保险，它克服了传统保险的弊端，以第3方监管的数字货币为基础并100%保证赔付！<br/>
+![img](https://media.gettr.com/group22/getter/2022/01/20/15/1b9eaba0-583b-742b-00d9-a4b956e7efd6/out.jpg)
+
+---
+
 `@miles 1/20/2022 2:09 PM (UTC)`
 
 1月20号：尊敬的战友们好……共产党正在被冬季奥林匹克运动会．房地产崩盘．内部政治斗争……释放观状病毒等等一系列的事情埋葬中！希望中国同胞们不要成为他们的殉葬品，一切都已经开始！
@@ -146,13 +153,6 @@
 
 1/17/2022 Miles Guo: The lives, blood, freedom, and wealth sacrificed by my family led to my awakening, allowing me to lead all humanity to begin taking down the CCP! In a country ravaged by the CCP without the rule of law, what a blessing it is to destroy the CCP!<br/><br/>1/17/2022 文贵直播：文贵以家人的命、鲜血、自由和财富换来个人的觉醒，让文贵今天带着全人类开始灭共！在这个被共产党蹂躏和没有法律的国度里，灭共是件多么幸福的事！<br/>
 ![img](https://media.gettr.com/group9/getter/2022/01/19/01/82b2a031-536a-3dcf-5efc-83c9c7cf46b0/out.jpg)
-
----
-
-`@miles 1/19/2022 1:04 AM (UTC)`
-
-1/17/2022 Miles Guo: What's the story behind the photo I took with my younger brother when I was 7 years old? What did I look like when I was a child? What kind of life did I have as a child in Northeast China back then?<br/><br/>1/17/2022 文贵直播：文贵7岁时跟八弟拍的照片背后有什么有趣的故事？文贵小时候是什么样子的？在当年在东北过着怎样的童年生活？<br/>
-![img](https://media.gettr.com/group35/getter/2022/01/19/01/b0e2e91a-93a4-2989-0363-e12f60277e9b/out.jpg)
 
 ---
 

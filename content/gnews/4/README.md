@@ -2,39 +2,23 @@
 ---
 
 
-## 有声|美参谋首长主席打三剂疫苗仍被确诊
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1884783/)
+## 恒大债券持有人考虑采取强制执行措施
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1884831/)
 
-配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-20-at-10.38.14-PM-2.png)图片来源：互联网
+素材：Vicky
 
+**外电引述****Kirkland & Ellis****律师事务所及投行****Moelis & Co****代表中国恒大****(**[**03333**](https://stock360.hkej.com/quotePlus/03333)**)****境外债券持有人特别团体发布新闻稿称，持有人特别团体将严肃考****虑采取强制执行措施。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月17日，美国参谋首长联席会议主席马克-密利的发言人称，密利在16日的中共病毒检测中呈现阳性，确认被感染，将自主隔离。
+**新闻稿指出，尽管集团多次发布公告，但遗憾的事，持有人特别团体并未看到恒大积极与境外债券人沟通，为所有利益相关方制定可行的恒大境外重组方案，或积极与债权人保持沟通，努力化解集团风险，维护各方合法权益的实质进展。**
 
-在参谋首长联席会议成员中另有一人，中共病毒检验结果也呈现阳性，其余成员在16日的筛检结果都是阴性。
+**持有人特别团体要求恒大立即与其沟通，完全透明的提供集团财务状况和负债信息，并避免在未与持有人特别团体协商的情况下进行进一步资产处置。持有人特别团体聘请了离岸律师事务所Harneys。**
 
-国防部长劳伊德-奥斯汀（Lloyd Austin）在本月初也曾被验出阳性反应，确认感染中共病毒。
+* * *
 
-身体强健的密利已经打完第三剂疫苗，仍然被中共病毒感染。与其他众多已经完全接种仍感染的患者一样，说明疫苗完全无法提供保护功能，甚至疫苗可能就是使人感染病毒的原因。
+***编辑&发布：Vicky***
 
-文字版原文：[美参谋首长主席打三剂疫苗仍被确诊](https://gnews.org/zh-hans/1875789/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**原文链接：**[恒大债券](https://www2.hkej.com/instantnews/china/article/3023814/%E6%81%92%E5%A4%A7%E5%82%B5%E5%88%B8%E6%8C%81%E6%9C%89%E4%BA%BA%E8%80%83%E6%85%AE%E6%8E%A1%E5%BC%B7%E5%88%B6%E5%9F%B7%E8%A1%8C%E6%8E%AA%E6%96%BD)持有人强制执行
 
  
 

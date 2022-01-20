@@ -2,48 +2,136 @@
 ---
 
 
-## 如何避免成为医疗暴政的牺牲品
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1884722/)
+## 前医生起诉休斯顿卫理公会医院 要求提供疫苗反应以及财务报告
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1884742/)
 
-作者：波士顿五月花 北美教练陪练
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ef3242528116f3c3.jpg)
-斯科特·奎纳 (Scott Quiner)，55岁，无基础疾病，感染CCP病毒后走入美国明尼苏达州库恩拉皮兹 (Coon Rapid) 市仁慈医院(mercy Hospital)。这家医院严格执行CDC、FDA推荐的治疗方法：用瑞德西韦(remdesivir), 禁用羟氯奎、禁用伊维菌素，用异丙酚等麻醉镇静类药物消除病人的自主呼吸，造成人为的昏迷状态（induced coma），转而用呼吸机维持病人的呼吸功能。治疗3个月，病情越来越严重。2022年1月11号，医院催促病人的妻子安妮放弃她丈夫的治疗，并要她签署医院的免责文件。安妮拒绝了医院的要求。第二天，尽管没有得到安妮的同意，但医院还是要强行停止治疗。安妮拿着另一位院外的医生的处方，要求试用时，主管医生，埃尔斯医生（Dr. Else）和苏茜医生 （Dr. Soucie）甚至嘲笑称开处方的医生是个傻瓜。苏茜医生不屑一顾地告诉安妮 “如果你丈夫接种了疫苗，这就不成问题了”。2022年1月11号，安妮和他丈夫斯科特的遭遇在网络疯传，震惊了美国。这还是美国吗？这里是医院？还是监狱？（1）
+#### 素材：Rock小哥
 
-首先声明并不是所有的医院、医生、护士都冷漠无情的。美国有好的医生、好的护士！但无情的事实告诉人们，事实上美国医疗系统的溃烂由来已久，只不过这次冠状病毒疫情，让人们更加看清了，以福奇为代表的，所谓医疗建制派精英们的真面目。他们裹挟着医生、护士对美国人民实施医疗暴政。有报道指出，医疗事故是美国第三大死亡原因，仅次于癌症和心脏病（2，3）鉴于此，目前有一种新的职业，病人权益维护者（patient advocate），实际就是帮助病人和家属同医院、医务人员交流，避免上当受骗。
+A former Houston Methodist doctor is suing the hospital over their Covid-19 guidelines, asking data from the hospital detailing the effects of the vaccine and financial reports. Last November, the hospital suspended her by claiming she was spreading misinformation about Covid-19 vaccine and treatments.
 
-现将一位名叫Melanie的病人权益维护者的经验分享给大家（4）。概括起来可用Patients（病人）这个英文单词作为缩略语告诉病人和家属如何同医院、医生、护士打交道。 切记不要让医院、医生替病人做医疗决定！
+一位前休斯顿卫理公会医院医生正在起诉该医院关于他们的新冠指南，要求医院提供疫苗反应以及财务报告的细节。去年十一月，医生被医院以在网上散布中共病毒疫苗和治疗的错误信息为由停职。
 
-P 代表print， 每个病人都应该打印并携带他们所在州的病人权利，医院的权利和责任文件，注明紧急情况下被送往哪里。如果你已经住院了，但还没做，你可以要求索要一份。进医院前就知道这些信息，尤其是家人被拒绝在医院门外时，显得尤其重要。
-
-A 代表advanced directives，事先写好委托书（durable power of attorney for health care (DPOA-HC) form）（5）。委托书无需通过律师，它的意义在于，如果你失去做决定的能力，那就让你最相信的人为你做医疗决定。最好的做法是提前把委托书带到你的医院或你选择的医生那里，让他们扫描到病人的病历中。但如果已经晚了，那就尽快带一份授权书去医院或急诊室。以下链接是一份可以打印的英文委托书样板。
-[https://www.honoringchoicespnw.org/wp-content/uploads/2021/12/HCPNW-Overview-DPOA-HC-non-fillable-m.2021.05.12.pdf](https://www.honoringchoicespnw.org/wp-content/uploads/2021/12/HCPNW-Overview-DPOA-HC-non-fillable-m.2021.05.12.pdf)
-
-T 代表typing up a medication list，打印出病人目前服用的药物清单。医院不允许你吃自己家里带来的药物。医院里，医生必须开处方，否则不会给你任何不在药物清单上的药物。如果你把正在服用的药物，比如维生素D，他们就有必须给你服用。
-
-I 代表initiating the chain of command，就是找负责人。例如:床旁护士、护士长、医生、病人关系、护士部门经理、医院行政或首席护士长。要果断而不是咄咄逼人，坚毅而不惊慌失措。想要为病人提供你想要的东西，但你也想要理解医务人员——承认他们工作过度，人手不足。同情医务人员的处境，医务人员就会同情你的处境。同情会产生巨大的影响。如果还不管用，没人倾听，那就升级到整个指挥系统。问一句:“What’s the chain of command at this hospital?” 这医院是怎么管理的？这样他们就会明白你是个物。
-
-E 代表enroll，注册。 这是住院之前要做的工作。事先登记电子病历(MyChart、MyHealth等)。很重要，因为您可以授权代理查看。相关人都有权知道医疗记录密码，因为这样就可以实时地看到病人正在接受什么检查，用什么药物等。这也是一个很好的方法，可以把信息发送给另一个医生咨询会诊意见。
-
-N 代表Notebook，笔记本。记录一切! 谁、何时、何地做了什么、为什么做。重点是和你交谈的人(最好是就叫他们的姓，把名字拼对，必要时，询问他们的头衔和电子邮件)。谈话是当面说的还是在zoom上说的。 虽然记录很重要，但不必要把手机放在外面，随时记录。要了解你所在州的法律，是否需要双方同意才可录。
-
-T 代表transfer ，转院。病人可以强行出院Against Medical Advice。可以回家，或到临终关怀疗养院。用违反医嘱(AMA)的方法把病人接出来。“T”还有另一个意思，就是“threat，即威慑”。如果有必要，可以用医疗事故律师来威慑起诉。你可以威慑要写信给行医执照管理部门。这些抱怨有一定作用，医务人员都希望避免。
-
-S 代表scripture，经文。祈祷上帝怜悯，帮助病人度过难关！
-
-参考文献：
-1．[https://www.redvoicemedia.com/2022/01/docs-tried-to-kill-unvaxxed-could-face-criminal-charges-sheriff-must-decide/](https://www.redvoicemedia.com/2022/01/docs-tried-to-kill-unvaxxed-could-face-criminal-charges-sheriff-must-decide/)
-2． [https://www.bmj.com/content/353/bmj.i2139](https://www.bmj.com/content/353/bmj.i2139)
-3． [https://www.hopkinsmedicine.org/news/media/releases/study\_suggests\_medical\_errors\_now\_third\_leading\_cause\_of\_death\_in\_the\_us](https://www.hopkinsmedicine.org/news/media/releases/study_suggests_medical_errors_now_third_leading_cause_of_death_in_the_us)
-4． [https://www.redvoicemedia.com/2022/01/in-the-age-of-medical-tyranny-heres-what-you-need-to-know-to-protect-your-loved-ones-patient-advocacy/](https://www.redvoicemedia.com/2022/01/in-the-age-of-medical-tyranny-heres-what-you-need-to-know-to-protect-your-loved-ones-patient-advocacy/)
-5．[https://www.honoringchoicespnw.org/advance-directive-documents/](https://www.honoringchoicespnw.org/advance-directive-documents/)
+A former Houston Methodist doctor is suing the hospital
+一位前休斯顿卫理公会医院医生正在起诉该医院
+over their Covid-19 guidelines.
+关于他们的新冠指南
+Back in November, Dr. Mary Bowden was suspended
+早在（去年）11月，Mary Bowden医生
+over her views on the Covid-19 vaccine.
+由于她关于新冠疫苗的看法而被停职
+According the Methodist, she was spreading
+据卫理公会医院说，她在网上散布
+misinformation online. In the lawsuit,
+错误信息。在诉讼中
+she is asking for data from the Methodist
+她要求卫理公会医院提供
+detailing the effects of the vaccine, and financial reports.
+疫苗作用以及财务报告的细节
+We are not seeking any monetary gain from us,
+我们不寻求任何金钱上获益
+I am not trying to get damages.
+我不是要获得赔偿
+All I want is transparency and the truth.
+我想要的只是透明度和真相
+A recent Supreme Court ruling upheld vaccine mandates
+最高法院最近的一项裁决维持了对大多数
+for most healthcare workers.
+医护人员的疫苗强制令
+We have reached out to Houston Methodist,
+我们已经联系了休斯顿卫理公会医院
+as we are waiting for their comments
+我们正在等待他们的评论
+but are still await getting that at this time.
+但目前没有收到回复
+November, 2021 Fox 26
+A Houston doctor, who had her privileges suspended
+休斯顿的一名医生，在她的权益被
+by the Houston Methodist hospital after they say
+休斯顿卫理公会医院暂停之后，理由为
+she was spreading misinformation on social media,
+她在社交网络上散布错误信息
+well today, the doctor held a press conference
+今天，医生举行了一个新闻发布会
+to tell her side of the story.
+从她的角度来说这个事件
+Fox 26’s Randy Wallace is joining us live from the
+福克斯26的Randy Wallace现在从休斯顿
+southwest side with more on this. Randy.
+西南部加入我们来告诉我们更多。Randy
+Jonathan, the Twitter war
+Jonathan, 休斯顿卫理公会医院
+between the Houston Methodist
+与Mary Bowden医生的
+Hospital and Dr. Mary Bowden began last Friday.
+推特之战始于上周五
+The hospital claimed she was spreading dangerous
+医院声称她正在散布危险的
+misinformation about the Covid-19
+有关新冠疫苗和治疗的
+vaccine and treatments.
+错误信息
+My name has been vilified.
+我的名字被诽谤了
+I have people leaving fake reviews on my website,
+有人在我的网站上和所有媒体上
+all over the media.
+留下虚假的评价
+I have people calling me a sister of the devil,
+有人称我为魔鬼的姐妹
+and misconstruing my intentions.
+并曲解我的意图
+So I want to set the record straight.
+所以我想澄清事实
+Since the pandemic began, Dr. Mary Bowden,
+自从疫情开始，Mary Bowden医生
+an Ear and Nose and Throat specialist, say her
+一名耳鼻喉专科医生，说她
+Kirby Drive clinic has been open 7 days a week.
+在Kirby路的诊所每周7天开放
+She said she has tested 8000 people for Covid
+她说为8000人测试新冠病毒
+and treated more than 2000 patients.
+并治疗了超过2000名病人
+I do not want to be in the media.
+我并不想出现在媒体上
+I do not appreciate the way that Methodist handled this.
+我不认同卫理公会医院处理此事的方式
+I am simply trying to help my patients.
+我只是想帮助我的病人
+In a tweet, Houston’s Methodist stated
+休斯顿卫理公会医院在一条推特中称
+“Dr. Mary Bowden…is using her social media accounts
+“Mary Bowden医生利用她的社交媒体账号
+to express her personal and political opinions
+来表达她关于新冠疫苗和治疗
+about the Covid-19 vaccine and treatments.”
+的个人和政治观点。”
+“These opinions, which are harmful to the community,
+“这些观点是对社区有害的
+do not reflect reliable medical evidence or the
+它们并不反映出可靠的医疗证据或者
+values of Houston Methodist,” the hospital added,
+体现卫理公会医院的价值观，” 医院补充道
+“Dr. Bowden…is spreading dangerous misinformation
+Bowden医生正在散布危险的
+which is not based in science.”
+未基于科学的危险信息。”
+There are groups that are targeting doctors and myself
+有一些群体正在针对包括我在内的医生
+that are just simply trying to speak about
+这些医生仅仅是试图说出他们
+what they are seeing.
+看到的（真相）
+Houston Methodist says she is.
+休斯顿卫理公会医院说她在（散布错误信息）
+Bodwen says she is focusing on treating the unvaccinated.
+Bodwen说她重点在治疗未接种新冠疫苗者
+Eliminate the mandates, let people have a choice!
+取消（疫苗）强制令，让人们有一个选择权！
 
 * * *
 
-*编辑：文合*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
+编辑/发布：霹雳鼠年
 
  
 
