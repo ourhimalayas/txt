@@ -2,41 +2,125 @@
 ---
 
 
-## 英国宣布放弃中共病毒疫情的强制政策
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1881616/)
+## 邪恶至极共产党每年在昆仑山搞活人祭神
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1881727/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B-5.jpg)trustandmoney.com
-《门道专家》1月19日发表文章，题目是“在英国，鲍里斯·约翰逊（Boris Johnson）放弃了中共（新冠）病毒疫情的强制政策：‘我们将相信英国人民的判断’”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/aaaa6eaa-zdg01.jpg)
+[https://gtv.org/video/id=61e85d8787664c47acd6eedb](https://gtv.org/video/id=61e85d8787664c47acd6eedb)
 
-全文如下：
+曾庆红说过共产党一定不会再有什么一百年五十年
+Zeng Qinghong había dicho que el PCCh seguro no tendrá 50, 100 años
 
-英国首相鲍里斯·约翰逊正在取消中共病毒疫情的强制政策。
+他从早就这么认为
+Así le parecía desde un principio
 
-从周四（1月20日）起，学生不再需要在教室戴口罩。
+你觉得习近平认为中国还有多少年吗
+¿Tu piensas que Xi Jinping cree que China aún tiene cuántos años?
 
-1月27日，在英国的任何学校或任何地方都不再强制要求戴口罩，参加大型活动也不再需要疫苗护照，该国政府将转而“推荐”在封闭空间内戴口罩，让人们自行选择是否佩戴。
+习近平他爹为啥要埋在那儿
+Por qué al papa de Xi Jinping lo enterraron ahí
 
-政府还将放弃其中共病毒通行证的要求，不再强迫人们在进入公共场所时出示疫苗接种证明。
+他为啥要建那风水
+Para qué él crea el Fengshui ahí
 
-约翰逊周三（1月19日）欢欣鼓舞地在议会宣布，“在全国范围内，我们将继续建议在封闭或拥挤的空间使用口罩，特别是当你接触到平时不常见面的人时。但我们将相信英国人民的判断，不再将任何选择不戴口罩的人定为刑事犯罪。”
+大家一定搞明白他为啥不让她女儿出镜
+Todos deben entender por qué el no deja que su hija salga frente a la cámara
 
-英国首相还取消了自12月13日起生效的政府在家办公的规定，约翰逊解释说，英国将开始像对待流感一样对待中共病毒。
+他为啥让他的弟弟和彭丽媛在前面扮演这些角色
+¿Por qué dejó que su hermano menor y Peng Liyuan desempeñaran estos papeles al frente?
 
-约翰逊说：“很快就会有一天，我们可以完全取消自我隔离的法律要求，就像我们不会对患有流感的人规定隔离的法律义务一样。随着中共病毒的流行，我们需要以建议和指导取代法律强制，敦促感染中共（新冠）病毒的人小心和体谅他人。”
+他为什么用丁薛祥还有当年的栗战书
+¿Por qué usó a Ding Xuexiang y Li Zhanshu en ese tiempo?
 
-英国国家首脑坚持认为，对中共病毒疫情的限制不再是强制性的，因为政府科学家声称，由奥密克戎变异引起的感染激增“在全国范围内已经达到顶峰”，在英国，超过90%的60岁以上的人至少接种了三剂中共病毒疫苗或加强剂。
+他为什么能把田玉玺抓起来
+¿Por qué arrestó a Tian Yuxi?
 
-（全文完）
+大家一定记住共产党的内部
+Todos deben recordar el interior del Partido Comunista
 
-结束了，随着疫苗护照的取消，疫苗强制接种政策也被废。大英帝国开了先例，正常的日子即将回归。
+它有它的章法
+Tiene sus propias reglas
 
-原文链接：
+它的章法你看透的时候就那么简单的事儿
+Cuando logres ver claramente sus reglas verás que es muy fácil el asunto
 
-[https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/](https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/)
+他是深信这个所谓他不让你信的迷信
+Él cree profundamente en lo que no te deja creer
 
-**华盛顿DC 望七星**
+他100%是依照天地之他认可的规律
+Está 100% de acuerdo con las leyes del cielo y la tierra que él reconoce
 
-**编辑发布  水星**
+和万佛万神他来定自己的乾坤
+Con diez mil budas y diez mil dioses, él mismo determinará su propio destino
+
+掌握自己的未来
+Toma el control de su propio futuro
+
+对待死人什么人权的事你就不用想了
+¿Cómo es el derecho humano al tratar con los muertos?, no tienes que pensar en eso
+
+那扯太远了对他来讲一切都是用具
+Eso es demasiado lejos, para él todo es una herramienta
+
+这是为什么昆仑山上每年
+Eso es por qué todos los años en la montaña de Kunlun
+
+要700个仙女 700 个处女要放那儿去
+Necesitan a 700 vírgenes (hadas) para ponerlas allá
+
+要祭拜昆仑山神
+Para adorar al dios de la montaña Kunlun
+
+为什么要从新疆抓多少仙女、仙神
+¿Por qué deben atrapar hadas y dioses(chicas y chicos) desde Xinjiang?
+
+西藏抓多少女神，蒙古抓多少神
+Unas cuantas diosas del Tíbet y dioses Mongolia
+
+54个民族要抓多少孩子去
+¿Cuántos niños tienen que arrestar de los 54 grupos étnicos?
+
+为什么执行的秘密部队从来没有人回来过
+¿Por qué de la fuerza secreta ejecutada nunca ha regresado una persona?
+你献神了
+Fuiste sacrificado
+
+这种事情能让你们知道吗
+¿Acaso pueden saber este tipo de cosas?
+
+你们不知道
+Usedes no lo saben
+
+你不知道 你就灭不了共
+Sin saberlo no podrán destruir al comunismo
+
+爆料革命知道
+Pero el Movimiento de Denunciantes lo sabe
+
+新中国联邦你七哥知道就能灭共
+Miles del Nuevo Estado Federal de China lo sabe para poder destruir el PCCh
+
+**原视频网址：**[https://gettr.com/post/pney97d2cf](https://gettr.com/post/pney97d2cf)
+
+日期：01/14/2022
+原视频标题：邪恶至极 共产党每年在昆仑山搞活人祭神
+Maldad extrema, el Partido Comunista hace sacrificios a Dioses con humanos en las montañas Kunlun cada año
+
+原视频日期：01/10/2022
+原视频网址：https://gettr.com/post/pney97d2cf
+任务编号：3461
+视频时间段：0:00-01:43
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 -文新战友
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

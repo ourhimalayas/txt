@@ -2,49 +2,50 @@
 ---
 
 
-## 困扰温哥华唐人街社区的破坏行为
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881676/)
+## 灭共者之共产主义家天下
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1881730/)
 
-作者：Sarah Anderson
-翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-311.jpg)
-温哥华历史悠久的唐人街街区在2022年继续遭受“严​​重”破坏。
+**出品：纽约香草山设计部**
 
-1月16日星期日，在中山公园周围发现了一场涂鸦狂欢，第二天，毗邻的中国文化中心的一扇窗户被砸碎。
 
-花园的执行董事 Lorraine Lowe 分享了她的同事关于碎玻璃的图片。
 
-Lowe 告诉 Daily Hive，VPD于1月17日星期一在现场工作，访问附近的企业并为他们的调查收集信息。虽然涂鸦已经被去除，但Lowe说，像这样的破坏行为已经“加剧了”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-VPD 发言人 Tania Visintin 表示，VPD 的财产犯罪部门正在展开调查，目前还没有嫌疑人。
 
-“孙中山花园的涂鸦令人沮丧，”Visintin 说，他仍然希望他们能够成功识别嫌疑人。“我们已经成功地确定了最近发生的部分涂鸦事件的责任人，包括在驹形丸纪念馆、圣裘德教区和中国文化中心造成破坏的嫌疑人。”
 
-唐人街商业协会的一位代表说，最近被盯上的孙中山花园是一个文化机构，也是唐人街的一个重要地标。他们说：“看到这种对我们社区的恶意破坏令人感到悲伤和沮丧。”
 
-“然而，这不是我们第一次看到反亚洲的破坏行为。”他们说：“唐人街越来越多地成为涂鸦标记的目标，窗户被打破是市中心东区普遍社会混乱的一部分。”
 
-“商业社区仍然保持弹性，许多新的商店和餐馆让年轻人和家庭分享当地的氛围。”
 
-来源：https://dailyhive.com/vancouver/vancouver-chinatown-vandalism
 
-（文章仅代表作者个人观点）
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-1_.jpg)The year of 2022 will definitely be cataclysmic for the CCP, including the 20th National Congress where the CCP can almost decide the fate of all Chinese and people of the world. The internal politics of Communist China will be fraught with bloodshed, contests and massacre; don’t expect to find out the final outcome until the last minute. Confronted by the vaccine catastrophe and the virus catastrophe, the world is sliding into the darkest hours. 
+Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1_-1.jpg)2022年绝对是共产党的大灾之年，包括共产党几乎可以决定中国人和全世界人命运的二十大；中国内部的政治会充满了血腥、较量和屠杀，不到最后一分钟都很难定局；世界在疫苗灾难、病毒灾难面前，会黑暗到比刚刚落下的太阳的黑夜还要黑的程度。 
+-2022年1月1日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220118-05.jpg)The atrocity of Communism is to make people ignorant, selfish, cowardly, and eventually degenerated to animals, and that is the state of Communism – uniformed behavior, thoughts, clothing, and music; to only listen to one single person, to realize “Rule by One Family”, of which the whole country is controlled by one or few persons, aka, dictatorship. And that is the essence. 
+– Mr. Miles Guo, GTV/GETTR livecast on Jan. 1, 2022![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220118-03.jpg)共产主义的创伤就是让人变得无知、自私、懦弱，最后就变成了动物，就达到了共产主义——统一的行为、思想、服装、音乐、听一个人说话，达到了家天下和家天下被一个人或几个人控制的目的，这就叫独裁，这就是本质。 
+-2022年1月1日郭文贵先生GTV/GETTR直播
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**编辑/发稿：小鹿**
 
-**关注我们**
 
-Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-Gettr 账号
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 

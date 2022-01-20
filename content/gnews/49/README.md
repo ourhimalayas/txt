@@ -2,65 +2,178 @@
 ---
 
 
-## 一位美国经验丰富的护士对当前 COVID 疫苗的观察和感受
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1879607/)
+## 中共国希望将美国文化女性化以进行控制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879630/)
 
-作者：史蒂夫·基尔希 （[Steve Kirsch](https://substack.com/profile/40661664-steve-kirsch)）
+**Steve Bannon
+史蒂夫·班农**
 
-发布日期：2022年1月18日
+Ken Blackwell, I want to go back this about this central issue of masculinity
+肯·布莱克威尔, 我想回到这个关于男子阳刚之气的核心问题
 
-新闻来源：stevekirsch.substack.com
+and trying to de masculinity this whole attack on males overall
+当试图去男性化对男性整体进行攻击
 
-翻译：V在途中
-![](https://assets.gnews.org/wp-content/uploads/2022/01/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_9897339a-9b4e-4644-95c1-7a55e07069fa_1200x800-2.jpeg)
-**摘要：**
+but particularly on black men
+但尤其是对男性黑人
 
-一名美国经验丰富的护士可能害怕报复，通过朋友把这封信转交给了作者[Steve Kirsch](https://substack.com/profile/40661664-steve-kirsch)，控诉了病毒大流行期间，疫苗对人们的伤害和对社会的撕裂。
+Walk us through what that attack is
+引导我们了解攻击的是什么
 
-**正文**：
+and how does that translate to the practical politics
+以及这如何转化为实际的政治
 
-我从医一生中知道的所有疫苗（白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎、流感、肺炎和肺结核）中，我从未见过一种疫苗迫使我们戴上口罩并保持社交距离，即使您已完全接种疫苗。
+we need to basically destroy root and branch the Democratic Party in November this year
+我们需要在今年11月基本击败民主党
 
-我从未听说过即使在接种疫苗后也会传播病毒的疫苗。
+Ken Blackwell (Commentator, Former Ohio State Treasurer)
+肯·布莱克威尔（评论员，前俄亥俄州财政部长）
 
-我从未听说过接种疫苗的可以给予奖励、折扣和激励措施。
+Steve, It really did start at an accelerated pace with the Great Society Program
+史蒂夫，它确实从大社会主义计划开始加速
 
-我从来没有看到过对那些没有打疫苗人的歧视。
+when in fact they created an incentive system to break up the family
+事实上，他们创造了一个激励系统来打破家庭
 
-如果您没有接种过疫苗，那么没有人试图觉得你是个坏人。
+and to drive unemployed a low wage of black males out of the family
+以及将低工资的黑人男性赶出家庭
 
-我从未见过可以威胁困扰家人、同事和朋友之间关系的疫苗。
+they created a penalty box for intact families
+他们为完整的家庭创造了惩罚箱
 
-我从未见过可以威胁困扰生计、工作或学校的疫苗。
+1960s there were many intact black families as my family
+1960年代有许多完整的黑人家庭就像我的家庭
 
-我从未见过一种接种疫苗可以无需12岁孩子们父母的同意。
+The Great Society Program accelerated the attack on the black on the black males
+大社会计划主义加速了对黑人男性的攻击
 
-在我们见到过白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎、流感、肺炎和肺结核的所有疫苗之后，我从未见过像这样的疫苗，可以撕裂这个社会，可以使人们之间产生分裂和互相歧视。
+We were experiencing that
+我们正在经历这种情况
 
-这个强大的疫苗！除了他们所说的可以免疫，它做到的所有事情，就是一步步地撕裂这个社会 。
+I’ll just go to TikTok, the feminization of America
+我用抖音举例，美国的女性化
 
-如果我们在完全接种两针后仍要接种打加强针，并且在完全接种后仍需要进行阴性检测，并且在完全接种后仍需要戴口罩，并且在完全接种完后感染病毒仍需住院，我们是时候应该承认自己被完全欺骗了。”
+and America America’s family unit which is not a family unit
+而美国的家庭单位，它不是一个家庭单位
 
-史蒂夫·基尔希Steve Kirsch说：这名护士她可能也从未见过：
+‘cause Marxism so big government socialist, they all destroyed the family
+因为马克思主义这么大的政府社会主义者，他们摧毁了家庭
 
-没有一种疫苗，在短暂的有效期后，病毒可以卷土重来继续感染你。请参阅所有以下研究调查证据。[英文版](https://stevekirsch.substack.com/p/incriminating-evidence)：Incriminating evidence
+because they want to create a dependency on the government
+因为他们想建立人们对政府的依赖
 
-没有一种疫苗，可帮助潜伏在人们身体中的病毒或癌症以复仇的方式重新出现。
+They want you on the tip of big government so they can control you
+他们想让你站在大政府的施舍上，这样他们就可以控制你
 
-没有一种疫苗可以杀死至少 150,000 多名以前健康的美国人。
+They’ll move you from being a free citizen to being a subject
+他们会让你从一个自由公民变成一个臣民
 
-没有一种疫苗，当全球VAERS 报告了超过 20,000 人死亡，伟大的CDC还是找不到因疫苗而导致的死亡病例 。
+Now what black males have experience it’s that they in fact around in reality
+现在黑人男性在现实中的经历可以追溯到
 
-对未接种疫苗者的社会封锁可能还需要数年会持续下去 。
+and they see that the left is one pushing a feminization of our community and our America
+他们看到左派正在推动我们社区和美国的女性化
 
-***原文链接******：***
+And they are in fact, continuing to zero in on males
+事实上，他们正在继续对男性进行调查
 
-[https://stevekirsch.substack.com/p/observations-from-an-experienced](https://stevekirsch.substack.com/p/observations-from-an-experienced)
+the Chinese Communist Party along with big government marches in general
+中国共产党和大政府普遍推行
 
+which it’s Putin in Russia
+就是在俄罗斯的普京
 
+they understand that they can feminineness the American culture
+他们明白他们可以使美国文化女性化
 
-审核校对：Barry Jack
-上传排版：V在途中
+they in fact, they gain an advantage on the battlefield
+事实上，他们在战场上获得了优势
+
+What we have to do is to understand that black males are ready to speak up
+我们要做的是了解黑人男性已经准备好发声
+
+Our get to do is to go to Chicago and they are tired of this mess
+我们要做的就是去芝加哥，他们厌倦了这个烂摊子
+
+And in fact, we need to say, look, we have an agenda for freedom
+事实上，我们需要说，看，我们有一个自由议程
+
+We have an agenda for self sufficiency
+我们有一个自给自足的议程
+
+We have an agenda that respects your human agency and your human dignity
+我们有一个尊重你的人的能动性和你的人格尊严的议程
+
+and we can begin to move not in next two years, not in four years
+我们可以开始行动，不是两年后，不是四年后
+
+but this year in this election, we can change things in the margin
+而是在今年这次选举，我们可以在很大程度上改变一些事情
+
+you get black males voting for MAGA candidates
+让黑人男性投票给使美国再次伟大的候选人
+
+who in fact, respect human dignity, respect the family, respect work, and respect freedom
+事实上，是尊重人的尊严，尊重家庭，尊重工作，尊重自由的候选人
+
+you in fact, we’ll win elections for the next 50 or 100 year
+事实上，我们将赢得未来 50 或 100 年的选举
+
+Steve Bannon
+史蒂夫·班农
+
+Ken, how do people get you on social media? How do you get your website?
+肯，人们如何在社交媒体上找到你？ 如何得到你的网站？
+
+Ken Blackwell
+肯·布莱克威尔
+
+Kenblackwell.com, @kenblackwell on Gettr, and twitter
+Kenblackwell.com, @kenblackwell在盖特和推特
+
+I’m deemphasizing on Twitter
+我正在淡化推特
+
+And we’re growing like gangbusters on Gettr
+而且我们在盖特上的发展势头迅猛
+
+Steve Bannon
+史蒂夫·班农
+
+Ken, honor to have you on here. Sir, thank you
+肯，很荣幸有请你在这里， 先生，谢谢你
+
+Ken Blackwell
+肯·布莱克威尔
+
+Good be with you
+高兴和你一起
+
+Steve Bannon
+史蒂夫·班农
+
+Thanks, brother
+谢谢， 兄弟
+
+* * *
+
+Date:01/18/2022
+原视频标题: China Wants To Feminize The Culture Of America For Control
+中共国希望将美国文化女性化以进行控制
+原视频日期：2022/01/18
+原视频链接: [**https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html**](https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html)
+任务编号：KE356(3526)
+视频时间段 : 0:00-3:29
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
