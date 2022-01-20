@@ -2,23 +2,24 @@
 ---
 
 
-## 秘翻在线 : 纽约州总检察长对川普公司的税务问题提出欺诈指控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1882802/)
+## 【中日财经爆】拜登表示解除对中共国关税为时尚早
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882826/)
 
-**撰稿：William**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1538.png)[图片来源](https://www.voanews.com/a/east-asia-pacific_biden-maintains-trumps-tough-trade-stance-toward-china/6204283.html)
+美国总统拜登周三（1月19日）表示，就取消美国对中共国商品的关税做出承诺还为时过早，但美国贸易代表戴琪正在着手解决这一问题。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-20-115404.jpg)图片来源：reality blurred
-根据NBC News 的报导, 纽约州总检察长(New York Attorney General )表示，对川普及其企业的调查发现了重要证据，表明存在欺诈行为。一份新的法庭文件指出川普和他的两个孩子对提交给贷方和联邦政府财务报表中的误导信息负有责任。
+前任美国总统川普与中共国签署一项第一阶段贸易协议，中共国承诺在2020-2021年的两年时间内增加采购2,000亿美元的美国商品与服务，目前中共国采购金额截至2021年11月仅达到目标的60%左右。远低于承诺，如何处理这个落差目前仍不明朗。
 
-纽约总检察长莱蒂蒂娅·詹姆斯(Letitia James )周二晚披露了她对前总统唐纳德·川普(Donald Trump)业务进行民事调查的新细节，称调查发现证据表明该公司对多项资产进行欺诈性估值，并向金融机构歪曲这些价值以谋取经济利益。她特别提到了前总统的两个成年子女小唐纳德·川普(Donald Trump Jr.)和伊凡卡·川普(Ivanka Trump)的责任。詹姆斯在法庭文件中写道: “自 2017 年以来，小唐纳德·川普对大量包含误导性资产估值的财务报表拥有授权”。并写到前白宫顾问伊万卡·川普“是川普集团最大的银行德意志银行的主要联系人。在这项工作中，伊万卡向德意志银行和联邦政府提交了误导性的财务报表。”
+拜登说，他知道一些商业团体吵着要他开始解除川普对数千亿美元中共国进口商品征收的最高25%的关税，这也是戴琪正在研究这一问题的原因。
 
-詹姆斯周二在一份声明中说：“到目前为止，在我们的调查中，我们发现了重要证据，表明唐纳德·J·川普和川普企业错误地和欺诈地评估了多种资产，并为了经济利益向金融机构歪曲了这些价值”和“川普必须遵守我们对文件和证词的合法传票，因为这个国家没有人可以选择法律是否以及如何适用于他们。”
+但他说，鉴于中国未能提高采购，现在推进解除关税为时尚早。
 
-州检察长正在协助曼哈顿地区检察官对川普公司的税务欺诈指控进行单独的刑事调查。同时，伊万卡·川普、小唐纳德·川普和他们父亲的律师反对詹姆斯办公室的传票，认为这些传票是不恰当的。川普的律师罗纳德·菲舍蒂(Ronald Fischetti)上个月表示：“他们已经对此进行了三年的调查。我们并不担心，因为他没有做错任何事。”
+消息来源：[美国总统拜登称放宽对中国商品课征关税的时机还未到](https://cn.reuters.com/article/us-biden-china-goods-tariffs-0120-idCNKBS2JU04N)
 
-**新闻来源**：[https://www.nbcnews.com/politics/politics-news/ny-ag-says-investigation-trump-business-found-significant-evidence-sug-rcna12685](https://www.nbcnews.com/politics/politics-news/ny-ag-says-investigation-trump-business-found-significant-evidence-sug-rcna12685)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

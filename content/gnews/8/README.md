@@ -2,20 +2,20 @@
 ---
 
 
-## 感染人数下降，英废除戴口罩义务等规定
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882797/)
+## 【中日财经爆】荷兰继续禁止ASML光刻机出口中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882825/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1537.png)[图片来源](https://www.standard.co.uk/news/uk/boris-johnson-england-british-medical-association-prime-minister-office-for-national-statistics-b977662.html)
-根据2022年1月20日NHK报道，19日英国首相约翰逊宣布了一项政策，取消室内公共设施必须戴口罩等多项规定，以应对中共病毒（新型冠状病毒）感染人数的下降趋势，再次强调了要与中共病毒共生为目标。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1539.png)[图片来源](https://www.morningbrew.com/emerging-tech/stories/2021/03/15/meet-asml-worlds-largest-semiconductor-equipment-manufacturer)
+艾司摩尔(ASML)首席执行官周三（1月19日）表示，该公司尚未获准向中共国出口其最先进的光刻机。这些设备是制造先进计算机芯片所必需的。
 
-在英国，由于Omicron变异株的传播，在本月初每天感染人数超过20万之后，一直在逐渐减少，最近几天每天在10万左右。“虽然感染在一些地区继续蔓延，但总体上已经越过最高峰值，”约翰逊首相19日在众议院解释道。
+在美国政府的要求下，荷兰政府已拒绝向艾司摩尔颁发出口光刻机的许可证，这些机器是有军事用途的“两用”设备。
 
-为此，约翰逊首相宣布将从本月27日起取消伦敦市自上个月以来强制要求在室内公共设施佩戴口罩以及在大型活动中出示疫苗接种证明等规定。此外，他还表示不会延长将于3月到期的感染后隔离措施的规定。
+艾司摩尔CEOPeterWennink表示，中共国不太可能独立复制顶尖的光刻技术，因为艾司摩尔依赖于“不懈的创新”和整合只有非中共国供应商才能提供的组件。
 
-郭文贵先生为首的新中国联邦一直致力于揭露中共制造病毒和中共疫苗杀人的真相。可以预见，越来越多的国家会向英国一样取消强制规定，还人们自由空间。
+在光刻市场几乎处于垄断地位的艾司摩尔，并不受限于向中共国出口较老的技术。2021年，艾司摩尔在中共国的销售额约为22亿美元，占该公司销售额的16%，仅次于台湾和韩国。
 
-信息来源：[イギリス マスク着用義務など規制撤廃の方針 感染者減少傾向で](https://www3.nhk.or.jp/news/html/20220120/k10013439951000.html)
+消息来源：[艾司摩尔CEO称公司仍未获得向中国出口最先进光刻机的许可证](https://cn.reuters.com/article/asml-ceo-china-export-licence-0120-idCNKBS2JU04Y?il=0)
 
 *校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

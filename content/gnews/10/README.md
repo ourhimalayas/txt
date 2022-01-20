@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的灭白计划
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882788/)
+## 共产党利用西方的逻辑
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882804/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组
