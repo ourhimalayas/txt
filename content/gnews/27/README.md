@@ -2,21 +2,38 @@
 ---
 
 
-## 【樱花数据分析】英国：两针接种者更易感染奥密克戎毒株
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884851/)
+## 有声|天津疑因物资紧缺爆发群众抗议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1884877/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-18.jpg)
-[图片来源](https://cn.nytimes.com/science/20211223/omicron-variant-symptoms-covid/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1582.png)
-英国政府疫苗监督报告显示，在2021年最后四周中，除18岁以下人群以外，各个年龄层的两针疫苗防感染有效率均为负值。即两针接种者更易感染奥密克戎毒株。18岁以上各年龄层人群，感染风险是未接种者的1.08倍～2.51倍。
+1. 配音：香草山佛教部 – 李傻
 
-这个数据再次加强了ADE发生的说服力。除了ADE以外，另一个因素也值得考虑。疫苗的接种破坏了人体自身的免疫系统，降低的免疫力导致接种者更易感染。目前的结果也有可能是两个效果的叠加导致。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+美东时间1月18日晚，有网友在盖特中视频爆料称，中共国天津市的某封控地区近期发生了一起外地人员的群体性抗议事件，并有部分参与民众已被当地警方逮捕。
+
+据了解，事件起因疑是当地政府防疫人员只为隔离期间的天津本地人提供口罩和蔬菜，而同样在此居住的外来务工人员则无同等待遇。在视频中可以看到，一名带头民众激动地站到了车顶，并大声地向几名防疫人员质疑道“外地人们吃什么？”随后，有几十名民众将防疫人员团团围住，并不断对其高呼“放人”、“放人”。
+
+最终，当地政府以同意在第二天为每一名完成核酸检测的民众提供一包泡面为条件，平息了此次的民众抗议。而后，有民众继续追问是否每天都有此待遇，负责人员却无奈表示确实存在物资供给困难。
+
+文字版原文：[天津疑因物资紧缺爆发群众抗议](https://gnews.org/zh-hans/1880552/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

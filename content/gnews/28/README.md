@@ -2,35 +2,21 @@
 ---
 
 
-## 有声|夏威夷考虑将加强剂纳入完全接种疫苗的考量标准
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1884829/)
+## 【樱花数据分析】英国：两针接种者更易感染奥密克戎毒株
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884851/)
 
-配音：香草山农场 – 纳米
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-18.jpg)
+[图片来源](https://cn.nytimes.com/science/20211223/omicron-variant-symptoms-covid/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1582.png)
+英国政府疫苗监督报告显示，在2021年最后四周中，除18岁以下人群以外，各个年龄层的两针疫苗防感染有效率均为负值。即两针接种者更易感染奥密克戎毒株。18岁以上各年龄层人群，感染风险是未接种者的1.08倍～2.51倍。
 
+这个数据再次加强了ADE发生的说服力。除了ADE以外，另一个因素也值得考虑。疫苗的接种破坏了人体自身的免疫系统，降低的免疫力导致接种者更易感染。目前的结果也有可能是两个效果的叠加导致。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-外媒 18日报道，夏威夷州州长在接受采访时表示，政府正考虑提高完全接种者的门槛，要求国内旅客必须接种完中共病毒疫苗加强剂之后，才能被视为完全接种者，否则将面临隔离，他指出，该政策暂时不会生效，使民众有足够时间适应。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-按照现行规定，完全接种疫苗的国内旅客在进入夏威夷之后，可以豁免为期五天的强制隔离期，而未完全接种者必须在前往该州后的一天内提供病毒检测阴性证明。截至目前，夏威夷州中共病毒疫苗的完全接种率已达75.2%。
-
-文字版原文：[夏威夷考虑将加强剂纳入完全接种疫苗的考量标准](https://gnews.org/zh-hans/1876500/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
