@@ -2,33 +2,35 @@
 ---
 
 
-## 【中日财经爆】日本JFE将通过发行过渡债券，为开发新的脱碳技术筹集资金
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884744/)
+## 有声|夏威夷考虑将加强剂纳入完全接种疫苗的考量标准
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1884829/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-32.png)
-图片来自本文网站
+配音：香草山农场 – 纳米
 
-1月20日路透社消息：JFE控股公司(Japan Fe Engineering)今天宣布，将发行过渡债券，为建立脱碳技术筹集资金。
 
-目前，虽然采购金额和发放条件等尚未确定，但资金将用于氢气还原和新炼钢技术的开发以及高炉人工智能改造等更高效率的投资。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+外媒 18日报道，夏威夷州州长在接受采访时表示，政府正考虑提高完全接种者的门槛，要求国内旅客必须接种完中共病毒疫苗加强剂之后，才能被视为完全接种者，否则将面临隔离，他指出，该政策暂时不会生效，使民众有足够时间适应。
 
-该控股公司在其中期计划中宣布，它将在四年内投资3400亿日元用于绿色转型（GX），其中1600亿日元将用于钢铁事业。
+按照现行规定，完全接种疫苗的国内旅客在进入夏威夷之后，可以豁免为期五天的强制隔离期，而未完全接种者必须在前往该州后的一天内提供病毒检测阴性证明。截至目前，夏威夷州中共病毒疫苗的完全接种率已达75.2%。
 
-经济产业省（METI）表示，目前金融正处于转型的起步阶段，积累一些案例非常重要，并计划通过重复示范案例来促进和传播有关信息。
+文字版原文：[夏威夷考虑将加强剂纳入完全接种疫苗的考量标准](https://gnews.org/zh-hans/1876500/)
 
-此次作为筛选的结果，JFE的过渡债券被选为“示范案例”。该公司将为其提供支持，以降低融资成本，包括90%的外部评估机构的费用。这将是日本国内制造业的首个示范案例。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-第一个示范案例是在2021年7月日本邮船发行了200亿日元的过渡债券。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-信息源：
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[ＪＦＥ、脱炭素で移行債を発行へ　新しい製鉄プロセス開発などに充当](https://news.yahoo.co.jp/articles/f580306f307f4493f5cb4e4cd1ffa6aea99c7a25#:~:text=%EF%BC%AA)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

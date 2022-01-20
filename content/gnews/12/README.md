@@ -2,136 +2,49 @@
 ---
 
 
-## 前医生起诉休斯顿卫理公会医院 要求提供疫苗反应以及财务报告
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1884742/)
+## 【樱花深度报道】习近平地位貌似安全，但中共领导层正在摇摇欲坠（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884827/)
 
-#### 素材：Rock小哥
+编译：东京樱花团/Hopkins
 
-A former Houston Methodist doctor is suing the hospital over their Covid-19 guidelines, asking data from the hospital detailing the effects of the vaccine and financial reports. Last November, the hospital suspended her by claiming she was spreading misinformation about Covid-19 vaccine and treatments.
+编者按：《经济学家》2022年1月15日出版的最新一期发表专题文章，文章指出，五年一次的领导层的更替正在影响从经济到covid-19的一切决策，习近平的地位看似稳固，但中共的领导高层正摇摇欲坠，引用昆曲《桃花扇》的一段唱词：眼看他起朱楼，眼看他宴宾客，眼看他楼塌了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-30.jpg)
+（图为习近平在 11 月投票选举党派代表到他的区级代表）
 
-一位前休斯顿卫理公会医院医生正在起诉该医院关于他们的新冠指南，要求医院提供疫苗反应以及财务报告的细节。去年十一月，医生被医院以在网上散布中共病毒疫苗和治疗的错误信息为由停职。
+权力的新一代
 
-A former Houston Methodist doctor is suing the hospital
-一位前休斯顿卫理公会医院医生正在起诉该医院
-over their Covid-19 guidelines.
-关于他们的新冠指南
-Back in November, Dr. Mary Bowden was suspended
-早在（去年）11月，Mary Bowden医生
-over her views on the Covid-19 vaccine.
-由于她关于新冠疫苗的看法而被停职
-According the Methodist, she was spreading
-据卫理公会医院说，她在网上散布
-misinformation online. In the lawsuit,
-错误信息。在诉讼中
-she is asking for data from the Methodist
-她要求卫理公会医院提供
-detailing the effects of the vaccine, and financial reports.
-疫苗作用以及财务报告的细节
-We are not seeking any monetary gain from us,
-我们不寻求任何金钱上获益
-I am not trying to get damages.
-我不是要获得赔偿
-All I want is transparency and the truth.
-我想要的只是透明度和真相
-A recent Supreme Court ruling upheld vaccine mandates
-最高法院最近的一项裁决维持了对大多数
-for most healthcare workers.
-医护人员的疫苗强制令
-We have reached out to Houston Methodist,
-我们已经联系了休斯顿卫理公会医院
-as we are waiting for their comments
-我们正在等待他们的评论
-but are still await getting that at this time.
-但目前没有收到回复
-November, 2021 Fox 26
-A Houston doctor, who had her privileges suspended
-休斯顿的一名医生，在她的权益被
-by the Houston Methodist hospital after they say
-休斯顿卫理公会医院暂停之后，理由为
-she was spreading misinformation on social media,
-她在社交网络上散布错误信息
-well today, the doctor held a press conference
-今天，医生举行了一个新闻发布会
-to tell her side of the story.
-从她的角度来说这个事件
-Fox 26’s Randy Wallace is joining us live from the
-福克斯26的Randy Wallace现在从休斯顿
-southwest side with more on this. Randy.
-西南部加入我们来告诉我们更多。Randy
-Jonathan, the Twitter war
-Jonathan, 休斯顿卫理公会医院
-between the Houston Methodist
-与Mary Bowden医生的
-Hospital and Dr. Mary Bowden began last Friday.
-推特之战始于上周五
-The hospital claimed she was spreading dangerous
-医院声称她正在散布危险的
-misinformation about the Covid-19
-有关新冠疫苗和治疗的
-vaccine and treatments.
-错误信息
-My name has been vilified.
-我的名字被诽谤了
-I have people leaving fake reviews on my website,
-有人在我的网站上和所有媒体上
-all over the media.
-留下虚假的评价
-I have people calling me a sister of the devil,
-有人称我为魔鬼的姐妹
-and misconstruing my intentions.
-并曲解我的意图
-So I want to set the record straight.
-所以我想澄清事实
-Since the pandemic began, Dr. Mary Bowden,
-自从疫情开始，Mary Bowden医生
-an Ear and Nose and Throat specialist, say her
-一名耳鼻喉专科医生，说她
-Kirby Drive clinic has been open 7 days a week.
-在Kirby路的诊所每周7天开放
-She said she has tested 8000 people for Covid
-她说为8000人测试新冠病毒
-and treated more than 2000 patients.
-并治疗了超过2000名病人
-I do not want to be in the media.
-我并不想出现在媒体上
-I do not appreciate the way that Methodist handled this.
-我不认同卫理公会医院处理此事的方式
-I am simply trying to help my patients.
-我只是想帮助我的病人
-In a tweet, Houston’s Methodist stated
-休斯顿卫理公会医院在一条推特中称
-“Dr. Mary Bowden…is using her social media accounts
-“Mary Bowden医生利用她的社交媒体账号
-to express her personal and political opinions
-来表达她关于新冠疫苗和治疗
-about the Covid-19 vaccine and treatments.”
-的个人和政治观点。”
-“These opinions, which are harmful to the community,
-“这些观点是对社区有害的
-do not reflect reliable medical evidence or the
-它们并不反映出可靠的医疗证据或者
-values of Houston Methodist,” the hospital added,
-体现卫理公会医院的价值观，” 医院补充道
-“Dr. Bowden…is spreading dangerous misinformation
-Bowden医生正在散布危险的
-which is not based in science.”
-未基于科学的危险信息。”
-There are groups that are targeting doctors and myself
-有一些群体正在针对包括我在内的医生
-that are just simply trying to speak about
-这些医生仅仅是试图说出他们
-what they are seeing.
-看到的（真相）
-Houston Methodist says she is.
-休斯顿卫理公会医院说她在（散布错误信息）
-Bodwen says she is focusing on treating the unvaccinated.
-Bodwen说她重点在治疗未接种新冠疫苗者
-Eliminate the mandates, let people have a choice!
-取消（疫苗）强制令，让人们有一个选择权！
+但是，至少在习近平仍然掌权期间，很少有观察家预计中共对中国的邪恶控制会有所放松。很难想象回到 1980 年代相对自由的政治气候。从那时起开始其职业生涯的领导人已经受到两个深刻变化的影响：中国作为全球大国的迅速崛起，以及中国人对西方作为政治模式的幻想破灭。
 
-* * *
+在各个层面，都在集中管理领导层的改组，以确保只有忠于习近平的人才能得到提拔。这是一项艰巨的任务。 2011 年，在为习近平上台做准备的模拟演习中，中共中央组织部部长（其庞大的人力资源机器）表示，将有 100,000 多名“高级官员”退休或被分配到新岗位，这次的人员流动可能同样剧烈，变化到农村乡镇的水平。其中包括政府部门和地方立法机构领导层的改组。
 
-编辑/发布：霹雳鼠年
+该党经常将这种五年一次的改组吹捧为民主在行动。党代会的代表据说是由普通党员选举产生的。事实上，民主选择只是表面文章。各级组织部门确保只提拔上级青睐的人才。代表们是根据他们的合规性精心挑选的。
+
+今年的全国代表大会将有2300人参加。挑选它们的工作才刚刚开始。未来几个月，官方媒体将充斥着关于动员党员提名合适候选人的报道。过去的此类努力包括摩托车队穿越偏远草原向党员牧民咨询；党支部向国外党员发信息征求意见；甚至官员上门拜访病人寻求建议。
+
+忠诚习近平作为第一要点
+
+实际上，成员只是用来呼应领导者的选择。在提交提名之前，党委组织宣传活动，宣传部分选拔“劳模”的事迹。信息很明确：从其中选择名称。官僚机构中的党员知道提名谁：他们的领导人。第一轮可能会产生数十万个名字。他们的人数被基层党委审查，这些委员会制定名单以确保达到配额——官员、妇女、少数民族、农民工等的具体百分比。
+
+名单在级别上来回传递，以进一步细化，直到每个省、武装部队和少数其他“选举单位”都有自己的代表名单，以满足组织部的要求。尽管该党在制作这些名单方面发挥了作用，但选定的代表仍需接受广泛的审查。这涉及与同事的面谈、警方检查以及从纳税到遵守计划生育规则等所有方面的记录检查。正如官员所说，任何人都不能被选为“带病”，即在书写的字帖上留下污点。
+
+短暂的民主光芒已经熄灭
+
+曾经闪烁过的任何微弱的民主光芒在习近平时代都已熄灭。 2007 年，在党的十七大（胡锦涛时任总书记）召开前大约三个月，党对中央委员和其他一些人进行了史无前例的民意调查，以评估对近 200 名潜在政治局候选人的支持情况。他们。它被描述为对党内民主具有“重大意义”的场合。五年后，在习近平掌权的全国代表大会之前，党重复了这一做法，这一次也向常委会征求他们的提拔建议。
+
+习近平明确表示他对“单纯靠选票选人”不屑一顾。他的官员们更愿意在意高层人士，而不是民意调查，以评估他们对重要职位候选人的支持。官方通讯社新华社称，习近平的对手曾试图通过贿赂来赢得选票，这些人滥用了民意调查系统。
+
+所以会前的气氛很熟悉。官员们正在争先恐后地确保没有任何事情会扰乱准备工作。本月早些时候，被传为政治新星的陈敏儿（1960年出生）总结道：“我们必须坚决把‘稳定’这个词放在首位。”
+
+在接下来的几个月里，安全将变得越来越严密，官员们对异议的容忍度将越来越低。领导人不太可能通过放松对 covid-19 的零容忍态度来冒健康危机的风险。在《经济学家》发稿之际，北京附近爆发的新疫情正在引起恐慌。首都还得担心另一件大事：下个月的冬奥会。“我们要保持稳定健康的经济环境、清洁的政治环境和和平安全的社会环境，” 陈敏儿在阐述会前工作时说。对于数以百万计的官员来说，稳定压倒一切。
+
+# 原文发表于《经济学家》杂志2022年1月15日期刊上原标题为“All change, bar one”
+
+[信息来源](Xi%20Jinping’s%20job%20is%20safe%20but%20China’s%20leadership%20is%20being%20shaken%20up)：
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

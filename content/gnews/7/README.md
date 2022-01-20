@@ -2,41 +2,58 @@
 ---
 
 
-## 【樱花深度报道】习近平地位貌似安全，但中共领导层正在摇摇欲坠（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884801/)
+## 【Michael.Tonny专栏】英国官方数据表明 接种中共病毒疫苗只会导致更多的感染
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1884925/)
 
-编译：东京樱花团/Hopkins
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-编者按：《经济学家》2022年1月15日出版的最新一期发表专题文章，文章指出，五年一次的领导层的更替正在影响从经济到covid-19的一切决策，习近平的地位看似稳固，但中共的领导高层正摇摇欲坠，引用昆曲《桃花扇》的一段唱词：眼看他起朱楼，眼看他宴宾客，眼看他楼塌了！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-63.jpg)
-中国精英政治目前看似正处于风平浪静的迷雾中。但人们普遍接受一个预测：习近平明年及以后仍将是中国的统治者。在执政十年后，他很可能会违背十年任期的传统并继续留任。但在整个等级制度的其余部分，巨大的变化正在进行中。他们将在今年下半年将达到高潮，在顶部领导层进行彻底的洗牌。习近平可能是个破坏者，但他并没有改变潜在的政治节奏。高层和低层领导人开始了五年一次的更替。在整个官场，紧张局势是显而易见的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-在一次又一次的演讲中，官僚们强调了一项最重要的任务：确保党的二十大取得成功。该党通常对何时举行含糊其辞——只说下半年。它通常要提前几周才能确认日期。但这种每五年举行一次的聚会通常在 10 月或 11 月举行。它们在很大程度上是橡皮图章事务，但却发挥着至关重要的作用。他们“选举”了一个由近 400 名成员组成的新中央委员会，该委员会随后立即召开会议，任命新的政治局（目前为 25 人）和军事最高统帅部。只有做到这一点，官员才会开始放松。
+截止至1月19日，在英国6820万人中，累计确诊中共病毒感染病例1554.4万例，占英国总人口的22.8%，中共投放的SARS-CoV-2生化武器病毒总共杀死152,996名英国人，占英国人口的千分之2.25。继去年11月25日突破1000万例后，从去年11月25日到1月19日共56天内，英国新增COVID-19病毒感染者550.6万人。尤其是1月4日，单日新增感染者就达到22.12万人。
 
-自习近平掌权以来，中国的政治格局发生了很大变化。他比他的任何前任都掌握了更多的控制权，包括在经济问题上，这曾经主要是总理的职权范围，现在是李克强。 2018 年，他修改了宪法，取消了国家主席任期限制，让他可以无限期地保留这份工作。他作为党的总书记的职务没有任期限制，按照惯例，总书记也是国家元首和军队元首。因此，习近平可以终身担任中国领导人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/United-Kingdom-Total-COVID-19-Cases.jpg)
 
-他的位置似乎很稳固。在他于 2012 年被任命为党的十八大领导人之前，几乎没有迹象表明存在激烈的政治争执。但二十大的筹备工作不会一帆风顺。习近平必须决定许多任命并保持警惕。他取消国家主席任期限制的决定引起了争议。受到他对敌人和腐败官员的全面清洗影响的人们可能会心怀不满。
+根据英国卫生部门提供的数据，截止至2022年1月19日，英国共投放1.37亿剂COVID-19病毒疫苗，达全国总人口的2.01倍。共有5215.2万英国人注射了试验性的中共病毒疫苗，占英国总人口的76.46%，有4801.9万人注射了两针中共病毒疫苗，占英国总人口的70.4%，有3662.2万人打了加强针，占英国总人口的53.69%。
 
-一些变化是由现任者的年龄强制执行的。习近平似乎仍然尊重有关高级官员何时退休的不成文规定。假设他继续这样做，25名现任政治局委员中至少有11人，包括两名常委，将不得不在代表大会结束后下台，因为他们已经68岁或以上。 （习先生将是那个年龄，但规则不适用于他。）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccinated-Per-Hundred.jpg)
 
-这意味着一些著名的政治局委员可能面临退休。一位是副总理刘鹤，他一直站在经济政策制定以及与美国的贸易谈判的最前沿。他即将年满70岁。另外一个是中国最高级别外交官杨洁篪，他将72岁。可能离任的常委有负责香港事务的副总理韩正和国务院副总理栗战书。中国立法机关负责人。所有的目光都将集中在他们的退休后留下的空位上。如果他们的继任者中的一个或两个年龄在 62 岁或以下，假设第三人期满后习近平决定下台，他们中的一个可以在 2027 年的第 21 次代表大会上接替习近平。
+如果目前这种试验性的中共病毒疫苗能够预防感染或者减少死亡，那么，即使存在所谓突破性的感染，注射了中共病毒疫苗的人，感染率和死亡率也应当远远比未注射疫苗的人低得多才正常。
 
-另一位常委李克强的前途未卜。宪法规定他必须在两个五年任期后卸任总理，因此他将在 2023 年被接替。但国会召开时他将 67 岁，即足够年轻，可以保住常务委员会席位并担任另一个职务。
+事实却恰恰相反！
 
-政治局的变化——以及其他所有层级的变化——可能会帮助习近平收紧他的强大控制力。官员们强调，对他的忠诚对于晋升至关重要。但代际变化也在进行中，这可能会影响未来几年的政治。半数以上的中央委员很可能在即将召开的代表大会上被更换（传统的更替）。华盛顿布鲁金斯学会的李成说，这将导致 85% 的席位由 1960 年或更晚出生的人担任，而之前只有一半多一点。
+根据英国卫生安全局（UK Health Security Agency）发布的2022年1月13日（第2周）COVID-19疫苗监测报告《[COVID-19 vaccine surveillance report Week 2：13 January 2022](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1047814/Vaccine-surveillance-report-week-2-2022.pdf)》第39页，从2021年12月16日到2022年1月12日的28天内，英国共有3,161,258例新诊中共病毒确诊病例，其中，229,101例疫苗接种状态未知，640,869例未接种疫苗，21,397例为感染前20天内接种了一针疫苗，感染前至少21天打过一针疫苗的有180,939例，2,088,952例打过至少两针疫苗。
 
-芝加哥保尔森基金会内部智囊团马可隆·保罗（Macro Polo）在 12 月的一份报告中称，这一代人的崛起是“中国政治中罕见的动态”。它指出了年轻群体的经历与习近平和大多数其他政治局成员所属的年长群体之间的“鸿沟”。像习近平这样出生于 1950 年代的人是在 1966-76 年毛泽东的恶性文革期间长大的，当时正规教育遭到严重破坏。年轻一代在 1976 年毛泽东去世后逐渐成熟。其成员受到迅速变化的中国向西方开放的影响。该智库表示，属于这一群体的中国政客往往比他们的长辈更亲市场和政治自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-between-week-50-2021-and-week-1-2022.jpg)Health protection
 
-这一代人的进步，甚至可能是 1989 年民主运动期间学生的年轻官员的进步，在省级及以下各级已经很明显。去年初，这些低层开始洗牌。到目前为止，已有六多名省委书记被更换。他们中的一些人是习近平那一代人的领导人，他们的继任者是 1960 年代的官员。大约三分之一的省级党内领导层新进入者出生于 1970 年代。
+接种两针或加强针疫苗后仍然被中共病毒感染的人是未接种疫苗的3.26倍。
 
-##### 原文发表于《经济学家》杂志2022年1月15日期刊上原标题为“All change, bar one”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status1-between-week-50-2021-and-week-1-2022.jpg)
 
-[信息来源](Xi%20Jinping’s%20job%20is%20safe%20but%20China’s%20leadership%20is%20being%20shaken%20up)：
+那是不是因为接种两针或加强针的人口基数大，从而导致接种两针疫苗或加强针后被感染的人数远远高于从未接种疫苗的人呢？
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+在这份报告的第43页，表12（Table 12. Unadjusted rates of COVID-19 infection, hospitalisation and death in vaccinated and unvaccinated populations.），有每100,000人中，接种两针或加强针疫苗和未接疫苗人群的新增确诊数对比。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unadjusted-rates-of-COVID-19-infection-hospitalisation-and-death-in-vaccinated-and-unvaccinated-populations.jpg)Health protection
+
+在18+以上各个年龄段的人群中，每10万未接种疫苗人群确诊率明显比已接种两针或加强针疫苗的人群低。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Covid-19-Case-Rates-per-100K.png)
+
+因此，可以得出结论，根据英国英国卫生安全局发布的2022年1月13日（第2周）COVID-19疫苗监测报告，接种实验性的中共病毒疫苗不能预防中共病毒感染，只会导致人体免疫力急剧下降，导致更多感染。
+
+参考数据：
+
+[Coronavirus (COVID-19) vaccines](https://www.nhs.uk/conditions/coronavirus-covid-19/coronavirus-vaccination/coronavirus-vaccine/)
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+[COVID-19 vaccine surveillance report Week 2：13 January 2022](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1047814/Vaccine-surveillance-report-week-2-2022.pdf)
+
+[UK Government Data proves the Covid-19 Vaccines DOUBLE your chances of catching Covid-19](https://dailyexpose.uk/2022/01/19/vaccines-double-chance-of-catching-covid/)
+
+[Data on COVID-19 (coronavirus) by Our World in Data](https://covid.ourworldindata.org/data/owid-covid-data.xlsx)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
