@@ -2,36 +2,32 @@
 ---
 
 
-## 有声|泽连科医生指出 接种疫苗将造成民众死亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1883165/)
+## 英国结束中共病毒相关限制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1883249/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
+#### 采编/翻译：意翎
 
-泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
+#### 责编：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237825458-700x420-2.jpg)图片来源：the epoch times
+大纪元时代的周莉莉（Lily Zhou）报道，周三，英国首相鲍里斯·约翰逊（Boris Johnson）宣布，英国将取消包括疫苗护照、强制口罩和在家工作要求在内的限制。他还建议，随着中共病毒大流行成为地方病，自我隔离规则可能在3月底被抛弃。
 
-原文链接：[泽连科医生指出 接种疫苗将造成民众死亡](https://gnews.org/zh-hans/1880283/)
+从本周四开始，英国任何地方都将不再强制人们在室内戴口罩，政府也不再要求人们在家工作。1月26日即将到期的对夜总会和大型活动的中共病毒通行授权不再延续。要求中学生在上课和公共场所戴口罩的规定也将从教育部的国家指导中删除。约翰逊作此宣布时，下议会议员们发出热烈的欢呼声。
 
-音频处理/发稿：Daxia
+鲍里斯说：“随着新冠肺炎流行，我们需要以建议和指导取代法律要求，敦促感染病毒的人小心并为他人考虑”。中共病毒检测呈阳性的人以及未接种疫苗的接触者仍需要自我隔离，他“非常希望在相关规定于3月24日到期时不会更新”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+约翰逊被要求取消前往英国接种疫苗者的检测规则，他说，政府正在评估旅行的检测规则，预计将在未来几天宣布。但他拒绝重新考虑为一线医护人员接种疫苗的规定，坚持认为“有证据表明医护人员应该接种疫苗。”
 
-**更多资讯，更多关注**
+周三上午，内阁决定取消所谓的针对中共病毒的“B计划”措施，因为数据表明，中共奥米克戎浪潮已经在全国达到顶峰。而约翰逊将医院入院人数的稳定归因于“非凡的促进运动”和公众对限制措施“B计划”的遵守。而在新冠期间，首相官邸唐宁街10号曝光出在首相主持的聚会存在违反封锁禁令的人士，英国首相正面临要求他辞职的压力越来越大。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+此前，首相的官邸在周一收到了一份20多万人签名的请愿书，呼吁取消疫苗护照和类似的中共病毒证书。而另一份取消医疗工作者接种疫苗授权的请愿书有大约16万人的签名。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+苏格兰和威尔士政府也宣布取消奥米克戎的限制，但强制佩戴室内口罩和中共病毒通行证仍将保留。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+公众对于政客扭捏的表态似乎并不买单，该文评论区置顶的网评嘲讽说，“想象一下，当一名政客面临失去公职的风险时，一种致命具有传染性的病毒就会消失。”
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**原文链接：**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[England Ends All COVID Passports, Mask Mandates, Work Restrictions](https://www.zerohedge.com/markets/england-ends-all-covid-passports-mask-mandates-work-restrictions)
 
  
 

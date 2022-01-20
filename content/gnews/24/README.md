@@ -2,30 +2,36 @@
 ---
 
 
-## 英格兰将结束疫苗护照，苏格兰也将取消疫情限制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1883170/)
-
-##### 整理：小鱼儿
-编辑：MSZG
+## 英国全科医生认为，年轻人最不应该接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1883279/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜统一快讯图片.png)图片来源：雅典娜设计组
+整理报道：小鱼儿
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2@A5DQPORB9DDQPJYKF3.png)图片来源：墨尔本雅典娜农场设计组
 
 
-据反抗新闻(Rebelnews)1月19日报道，英国各地的疫情(COVID-19)限制正在开始结束。英国首相鲍里斯·约翰逊(Boris Johnson)宣布，所有被称为 “B计划 “限制都将在英格兰结束，包括在公共交通和商店中强制戴口罩、在家工作的命令和疫苗护照，将从1月27日星期四起取消。
+当地时间1月19日，据揭秘新闻(The Exposé)报道，一位英国全科医生认为，尤其年轻人不应该接种疫苗，第三次加强针更是完全没有必要的。
 
-首相还暗示，自我隔离规则将在3月或更早的时候被完全废除，目前关于自我隔离的法律将于3月23日到期。约翰逊说，他预计 “不会延长 “这些措施。
+切尔西·哈曼在脸书(Facebook)上分享了一段视频，由视频中显示的号码得知是英格兰奇切斯特(全科医生)的非工作时间，哈曼能够确认，她确实与一名全科医生通话。
 
-这一决定得到了反对党议员的支持，工党领袖基尔·斯塔默爵士(Sir Keir Starmer )说，他的政党支持在首相发表声明后放宽 “B计划 “的限制。他说 “在整个大流行病期间，英国公众做出了巨大的牺牲…我想感谢每一个遵守规则的人”。
+哈曼写道：“（疫苗）注射后4小时，我的头上出现了3个肿块，2个豌豆大小，1个葡萄大小（这些肿块还在这里），周五晚上我打电话给111，被告知医生会电话联系，周六晚上我接到了医生的电话。”
 
-虽然已经宣布在英格兰取消这些限制，但国家卫生服务机构和护理人员仍然需要出示他们接种疫苗的证明，否则他们将面临解雇。
+哈曼问道：“那么，你认为我不应该再接种任何疫苗了？”
 
-苏格兰第一部长尼古拉·斯特金(Nicola Sturgeon)也宣布，圣诞节前实施的限制将从1月24日星期一开始取消。
+全科医生回答说：“是的，我就是这个建议。现在有很多信息出来，而这些信息是以前无法获得的，很快所有的疫苗都将完全停止。”
 
-参考新闻：[Mask mandates, vaccine passports to end in England](https://www.rebelnews.com/mask_mandates_vaccine_passports_to_end_in_england)
+然后赫尔曼被告知，不要担心她的症状，除非这些症状似乎变得更糟，或者如果她出现新的症状。
 
-*发布：玉米地守望者*
+在视频的最后，赫尔曼问医生：“我的妹妹第二天要去接种加强针，是否应该告诉她不要去接种？”
+
+全科医生说：“不，请不要去(接种)，”她恳求这位女士告诉她的妹妹不要接种加强针。
+
+参考新闻：[GP Tells Woman That UK Covid-19 Vaccine Program Will Be Stopped Due to Health Risks](https://dailyexpose.uk/2022/01/19/gp-tells-woman-that-uk-covid-19-vaccine-program-will-be-stopped-due-to-health-risks/)
+
+发布：tianzhihuan
 
 更多资讯，请关注：**
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

@@ -2,39 +2,36 @@
 ---
 
 
-## 新加坡以遏制“冲动”交易为由关闭加密货币ATM
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1883298/)
+## 洛杉矶某校未接种新冠疫苗学生受到虐待
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
+据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
 
-整理/编辑：小红帽
-
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/01/kuaixun.png)图片来源：雅典娜设计组
+新闻来源:
 
 
-根据《路透社》1月19日报道， 为数字代币交易提供便利平台的加密货币自动柜员机(ATM)正在新加坡下线，原因是新加坡金管局(MAS)限制加密货币的消费者广告。
 
-加密货币ATM用户可以用法定货币或政府发行的货币交易比特币和以太币等数字支付代币(DPT)。
+> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
 
-周一，新加坡金管局公布新规定称，便利的加密货币自动柜员机可能会误导公众进行“冲动”交易。
 
-新加坡最大的加密货币ATM运营商Daenerys & Co已关闭了所有加密货币ATM，以遵守相关规定。该公司对这一规定表示意外。
 
-另一家加密货币ATM运营商Deodi Pte在其官网公布，已经关闭了其ATM机，以遵守该规定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
 
-Daenerys和Deodi均在向金管局申请提供DPT服务许可证的一百多家公司的名单中。
+总编/编辑: 飞虹
 
-新闻来源：[新加坡关闭加密货币ATM 以遏制“冲动”交易](https://cn.reuters.com/article/singapore-mas-crypto-currencies-atm-0119-idCNKBS2JT0VG)
+校正/发稿：浪迹天涯
 
-*发布：*tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,17 @@
 ---
 
 
-## 有声|强制卡车司机接种疫苗或将加剧粮食危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1883140/)
+## 港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1883200/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月15 日，据相关媒体报道，加拿大联邦政府此前针对入境的卡车司机实行的疫苗护照政策给当地带了一些严重的问题。
+**撰文/ 港台前线关注组｜发布日期/ 20/1/2022 **
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
 
-资料显示，加拿大政府于2021年11月要求所有从美国入境的卡车司机在入关时出示其中共病毒疫苗的接种证明，此项政策本计划于今年1月15日正式生效。 加拿大卡车联盟对此表示，未接种疫苗的卡车司机在越过边境进入加拿大时，需要接受为期14天的隔离。此举将导致大约一万六千名卡车司机被迫离职。
+《独媒》获得消息指，特区政府向公务员发送内部邮件，通知下月16日起，将收紧“疫苗气泡”的相关细节，要求所有政府雇员，除非持有有效的医生证明，证实身体状况的确不适宜打针，否则必须接种新冠疫苗，才可以进出政府大楼上班，违者将被视为“旷工”而面临纪律处分。
 
-原文链接：[强制卡车司机接种疫苗或将加剧粮食危机](https://gnews.org/zh-hans/1880199/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+局方表示，目前，已有98%的政府雇员已接种过至少一针新冠疫苗，而是次内部邮件中的实施细则，涵盖范围包括公务员，非公务员合约雇员以及退休后返聘雇员，所有政府部门均须纪录员工的接种纪录，若有雇员拒绝配合，则被视为“拒绝执行部门指示”，亦会面临纪律处分。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/下月中旬起-公務員必須接種疫苗-違者或面臨紀律處分.jpg)
+来源｜[獨媒](https://bit.ly/3GKBD2H)
 
  
 
