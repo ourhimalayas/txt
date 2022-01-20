@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 9:38 PM (UTC)`
+
+1月20号：中共国的企业，将会一批一批的倒下……全世界富翁诞生最多最快的地方中共国！就是全世界负翁最多的地方，他们连要饭的机会都不会有……这只是刚刚开始。<br/><br/>【又一家中国公司违约， 不仅今年不付 联23，24年都告知不付了。这种背信弃义的行为真让人无语。 多米诺开始倒了】<br/>https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228
+
+---
+
 `@miles 1/20/2022 7:05 PM (UTC)`
 
 1月20号衷心地，感谢亲爱的伟大的战友，制作的精美的万分感动的视频。😭😭😭😭😭😭😭😭🙏🙏🙏🙏🙏🙏🙏🙏🙏<br/>【思八弟忆往昔，英雄泪洒衣襟。 国恨家仇不报，枉活人世一遭。 邪魔恶党横行，百姓水深火热。 潘多魔盒开启，世界一片狼藉。 天选之子文贵，拔剑铲除红妖。 携新中国联邦，迎接太平盛世。 🙏🙏🌹🌹🌴🌴🌈🌈💫💫】
@@ -146,13 +152,6 @@
 
 1/18/2021 Miles Guo: The CCP has infiltrated the whole world’s judicial system by posing threats and implementing the BGY plan, but the US and the rest of the world will wake up for sure. It’s said that the forced confession made by Sun Lijun in the Zero Tolerance documentary showed Xi Jinping giving in to the four major forces of Jiang Zemin, Meng Jianzhu, and Wang Qishan. What will happen after Xi’s speech at Davos and the Winter Olympics?<br/><br/>1/18/2021 文贵盖特：中共使用威胁和蓝金黄对全球司法界实行渗透，美国和全世界一定会醒来！听说孙力军的《零容忍》认罪是习向江曾孟王四大势力妥协的结果，冬奥会习太阳的达沃斯讲话后会发生什么事情呢？<br/>
 ![img](https://media.gettr.com/group3/getter/2022/01/19/03/be8a3828-5615-e96b-4f7a-0d5c550b7a11/out.jpg)
-
----
-
-`@miles 1/19/2022 2:08 AM (UTC)`
-
-1/18/2021 Miles Guo’s GETTR: How powerful Weijian Shan and Edward Moss really are? In the past five years, why is it that the CCP’s unrestricted lawfare, the smear campaigns, and the attacks on me and the Whistleblowers’ Movement all happened at roughly the same time? Are these just coincidences?<br/><br/>1/18/2021 文贵盖特：单伟建和Edward Moss到底有多大的能耐？过去5年里，为什么中共对文贵和爆料革命的法律超限战以及污蔑与攻击几乎都在同时发生？难道这仅仅是巧合吗？<br/>
-![img](https://media.gettr.com/group47/getter/2022/01/19/02/9bb39d7a-5023-b37a-89c6-c61488c8921c/out.jpg)
 
 ---
 

@@ -2,41 +2,32 @@
 ---
 
 
-## 肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885488/)
+## 七哥谈战斗就在刚才（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1885589/)
 
-编译：wenwu
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1593.png)图片来源：thenationalpulse.com
+来源：郭先生2022-01-17直播08:29:33摘录
 
-据《国家脉动》独家披露，拜登总统辩论委员会联合主席肯尼斯·沃拉克（Kenneth Wollack）参加了与中共官员和其影响团体的几次”非公开”对话。
+参加爆料革命这么多年，但你们没有闻到过真正的血味，你们没有感受到那种巨大的压力，你们没有感受到共产党是如何的恐惧七哥和爆料革命，每时每刻，啊！我们的战斗就在刚才啊，我就在20分钟前和大卫跟Rachael打了个招呼啊，骑侠、Nick还不在的时候，我就收到十几个信息啊，让我今天不讲这个不讲那个，然后如何如何威胁。 这我们是在美国，但是我要告诉大家的是我们今天的画面上在来自于欧洲、美国、加拿大、澳大利亚占据了整个地球，如果我们不奋斗，你们就是下一个七哥，但我绝不相信，你们能像我一样活到今天。
 
-沃拉克——同时也是公共资助的国家民主基金会（NED）董事会主席——是参加所谓的首届美中高级别政党领袖对话（U.S.-China High-Level Political Party Leaders Dialogue）的十名主要代表之一，该对话由东西方研究所与中共中央对外联络部（International Department of the Central Committee of the Communist Party of China）“合作”主办。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-美国代表团由美国前国务卿马德琳·奥尔布赖特（Madeleine K. Albright）率领，尽管她的女儿爱丽丝（Alice）与中国共产党有大量投资，但她最近被选中负责拜登时代的一项关键对外援助计划。
+**关注我们**
 
-美国代表团总结说：“它寻求通过就治理和外交政策问题交换意见，在美国和中共国的政治精英之间建立理解和信任。”
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1595.png)图片来源：thenationalpulse.com
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-值得一提的是，东西方研究所（EastWest Institute，如图）在与包括中美交流基金会（CUSEF）在内的首要中共国影响力团体合作方面有着长期的记录；鉴于东西方研究所与北京的密切关系，沃拉克的代表团与中国共产党领导人习近平和中共政权[统战部](https://www.eastwest.ngo/idea/1st-us-china-high-level-political-party-leaders-dialogue-report)的高级官员，进行了“[非正式](https://archive.ph/VPDDC)”会晤。
+Gettr 账号
 
-中美交流基金会由中共统战部副部长创办，该组织旨在“收编和化解可能反对中共执政的党政和权力的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。中美交流基金会还赞助了各种美中高级别政党领袖对话。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-第二年（2011年），沃拉克[参加了](https://www.eastwest.ngo/idea/3rd-us-china-high-level-political-party-leaders-dialogue)在中国北京和四川举行的另一次美中高级别政党领导人对话。
-
-东西方研究所解释说：”这次访问标志着对话进程首次扩大到北京以外，包括在中国其他地区举行会议，以努力促进两国政治精英之间更广泛的了解。“
-
-2012年12月，沃拉克参加了另一个以商业为重点的代表团，东西方研究所总结为重点是“如何扩大中共国和美国之间的贸易关系，特别是在省和州一级。”
-
-新闻来源：[thenationalpulse.com] [EXC: Presidential Debate Commission Chief Held ‘Off-The-Record’ Meetings With Chinese Communist Propagandists, And Xi Jinping.](https://thenationalpulse.com/2022/01/18/debate-commission-co-chair-participated-in-ccp-meetings/) | 发布时间：2022年01月18日
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

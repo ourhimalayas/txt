@@ -2,10 +2,10 @@
 ---
 
 
-## 星巴克、通用电器取消雇员强制疫苗要求
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885608/)
+## 鲍里斯：中共病毒疫苗强制认证将于下周四在英格兰结束
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885659/)
 
-01/19/2022 高法裁决后，星巴克、通用电气等一些大公司取消了疫苗强制要求
+01/19/2022 英首相鲍里斯·约翰逊：中共病毒疫苗强制认证将于下周四在英格兰结束
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
