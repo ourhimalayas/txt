@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|抗议疫苗暴政 歌曲被YouTube迅速下架
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1886263/)
+## 魁北克对未接种疫苗者征税将引发社会动荡
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1886309/)
 
-配音：香草山农场 – 纳米
+加拿大温哥华扬帆农场    平民正道
 
+据《CTV新闻》1月12 日报道，多位专家警告魁北克省史无前例地对未接种“新冠病毒”疫苗的成年居民惩罚性征收“健康税”的措施，将会造成社会的极度分裂和对民主自由体制的致命破坏。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-获奖无数的加拿大音乐人 Matt Brevner 近日在 youtube 上，上传了一首新歌 more of us，歌曲婉转控诉了加拿大政府在中共病毒大流行期间，对民众施行的疫苗暴政，以及对医护工作者的不公对待，包括超时工作，强制疫苗等等。
+[蒙特利尔大学]生物伦理学教授对此表示，由于魁北克的这项征税措施即没有尊守公平的公共卫生原则，也未尊重公正的宪法规定，因此当局的以上违宪之举不仅不会增加未接种疫苗者的压力和改变其拒绝接种的决定，反而将进一步加剧疫情引发的大量不公平现象所导致的各种次生灾难。
 
-歌曲上线后受到网民追捧，迅速成为热门，同时也引起加拿大当局和 youtube 后台的关注。目前，youtube 平台以涉嫌煽动暴力和传播虚假讯息为由，已将歌曲下架。
+据悉，[加拿大公民自由协会]在其最近的声明中强调，鉴于《权利和自由宪章》中确定每个人都对其身体健康和医疗决定有着完全的自主权，因此魁省的此项惩罚性税收政策将导致严重的后果，并势必引发民众的强烈反抗和今后对当权政府的全面追责。
 
-文字版原文：[抗议疫苗暴政 歌曲被YouTube迅速下架](https://gnews.org/zh-hans/1876501/)
+* * *
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 
