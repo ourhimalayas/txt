@@ -2,8 +2,8 @@
 ---
 
 
-## 冠状病毒死亡率不会超过1%，为什么要打来路不明的疫苗
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884221/)
+## 疫苗公司与医院是否有金钱往来?得到多少报酬?院方未回应
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884302/)
 
 台灣寶島農場
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 达沃斯之战是黑暗与阳光之战
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884120/)
+## 爆料革命和国际社会合作有了一最大的进步
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884190/)
 
 台灣寶島農場
 
