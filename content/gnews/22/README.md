@@ -2,34 +2,27 @@
 ---
 
 
-## 苏格兰将于1月24日起取消所有疫情限制措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883351/)
+## &nbsp; &nbsp; &nbsp; 习近平警告美联储不要加息
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1883435/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-1月18日，苏格兰首席部长尼妮古拉·斯特金宣布，从下周一开始，为应对中共病毒而采取的所有限制措施，都将被取消。 她说该国的中共病毒疫情感染率正处于“下降趋势”，但敦促人们在社交互动中保持谨慎。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1551.png)
-这些取消的措施包括，人们在室内社交聚会中不得超过三家人，酒吧和餐馆的强制性餐桌服务以及进入大型公共活动需出示疫苗通行证。斯特金说，尽管在这波奥密克戎来势汹汹的浪潮中，局势已经发生了根本逆转，但未来几周仍然有可能看到感染病例的上升。希望公众主动调整行为以阻止病毒传播，鼓励居家工作。
+素材：Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-20-at-3.20.53-PM.png)图片来源：互联网
+中共国主席习近平1月17号在瑞士达沃斯世界经济论坛上发表演讲时警告说，大国之间的全球对抗可能产生 “灾难性的后果”，警告美联储不要加息。
 
-斯特金的这番声明是在苏格兰保守党一直呼吁1月底取消学校戴口罩等一切限制措施的背景下发出的。作为民族党党魁、苏格兰国民议会第一部长，斯特金女士的表态受到反对党以及民众的欢迎。有评论称，“是时候结束无休止和荒谬的限制了，让自由回到苏格兰”。
+“如果主要经济体急刹车或货币政策掉头，将会产生严重的负面溢出效应。它们将对全球经济和金融稳定构成挑战，发展中国家将首当其冲，”习近平在讲话中表示。
 
-新闻链接: [Scotland Omicron restrictions to end on Monday, says Nicola Sturgeon](https://www.independent.co.uk/news/uk/politics/scotland-covid-restrictions-omicron-sturgeon-b1995427.html)
+美联储目前预计将四次加息，同时预计美联储将开始缩减其近 9 万亿美元的资产负债表规模。基准 10 年期国债 TMUBMUSD10Y 的收益率周二为 1.855%，达到 2020 年 1 月以来的最高水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+传统上，美联储官员对他们的政策如何影响其他经济体的担忧不予理会，称他们只能为美国经济制定货币政策。
 
-总编: Irene木木
+因此习近平有理由对美联储收紧政策感到紧张，“主要发达国家要采取负责任的经济政策，把控好政策外溢效应，避免给发展中国家造成严重冲击。”习在讲话中警告说。
 
-编辑: Lakeman文仁
+* * *
 
-校正/发稿：浪迹天涯
+*编辑&发布：Vicky*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+参考链接：[达沃斯论坛](https://www.marketwatch.com/story/xi-jinping-warns-fed-against-hiking-interest-rates-11642502735?siteid=yhoof2)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
