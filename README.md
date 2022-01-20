@@ -15,125 +15,125 @@
 
 ---
 
-### [金家女人，越单纯越疯狂](/content/gnews/1/README.md)
+### [习身边彭蕾的地位，一人之下万人之上](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [施巫术之人最后将被巫术给灭掉](/content/gnews/2/README.md)
+### [金家女人，越单纯越疯狂](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [中国人的无知愚昧，到了完全无法想象的程度](/content/gnews/3/README.md)
+### [施巫术之人最后将被巫术给灭掉](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [【#G时新闻】疫苗引发新冠症状，政府误导由病毒引起](/content/gnews/4/README.md)
+### [中国人的无知愚昧，到了完全无法想象的程度](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [从“无冕之王”到只啖“嗟来之食” &#8211; 新西兰前电视主持人痛斥国家主媒堕落](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【#G时新闻】疫苗引发新冠症状，政府误导由病毒引起](/content/gnews/6/README.md)
  ` G-时新闻`
 
-### [中共国港口封锁导致供应链受冲击全球经济下滑](/content/gnews/5/README.md)
+### [美国及西方社会是沉迷于来自中国廉价商品的瘾君子](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [朝鲜暗示可能恢复核试和远程导弹](/content/gnews/6/README.md)
+### [哥伦比亚将于五月总统大选，杰森·米勒造访该国对抗中共影响](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [哈恩维尔：路透社报道距冬奥会20天，北京发现中共病毒感染](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [奥巴马和拜登政府将数万亿美元注入市场以支撑房地产和股市](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国港口封锁导致供应链受冲击全球经济下滑](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [朝鲜暗示可能恢复核试和远程导弹](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [无神论的共产党最迷信](/content/gnews/7/README.md)
+### [无神论的共产党最迷信](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [美国推进印太经济合作新框架以应对中共影响力](/content/gnews/8/README.md)
+### [美国推进印太经济合作新框架以应对中共影响力](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [习近平的政治婚姻](/content/gnews/9/README.md)
+### [习近平的政治婚姻](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [习近平独裁的伊始](/content/gnews/10/README.md)
+### [习近平独裁的伊始](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [马龙博士：《真相工程》曝国防部文件是体制内爆料的开始](/content/gnews/11/README.md)
+### [马龙博士：《真相工程》曝国防部文件是体制内爆料的开始](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联邦政府大量生产COVID检测试剂和疫苗，却控制救命的单克隆抗体](/content/gnews/12/README.md)
+### [联邦政府大量生产COVID检测试剂和疫苗，却控制救命的单克隆抗体](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [福奇是美国所有问题的根源，我们要解雇他](/content/gnews/13/README.md)
+### [福奇是美国所有问题的根源，我们要解雇他](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疯子比尔·盖茨威胁说，会出现比新冠更可怕的大流行病](/content/gnews/14/README.md)
+### [疯子比尔·盖茨威胁说，会出现比新冠更可怕的大流行病](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平彭丽媛出访挪威服装由七哥设计](/content/gnews/15/README.md)
+### [习近平彭丽媛出访挪威服装由七哥设计](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [彭副主席上位的意义](/content/gnews/16/README.md)
+### [彭副主席上位的意义](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [今年送棺材活动只送给施巫术的：习、王、孟、江](/content/gnews/17/README.md)
+### [今年送棺材活动只送给施巫术的：习、王、孟、江](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [中国政府强制安装的奥运app软件有隐私和审查的担忧](/content/gnews/18/README.md)
+### [中国政府强制安装的奥运app软件有隐私和审查的担忧](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [科学小常识：冠状病毒是如何传播的](/content/gnews/19/README.md)
+### [科学小常识：冠状病毒是如何传播的](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [轻度感染中共病毒后几个月出现注意力和记忆力问题](/content/gnews/20/README.md)
+### [轻度感染中共病毒后几个月出现注意力和记忆力问题](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共的独裁邪说是最大的邪教](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [习彭与咱们斗法之年，鹿死谁手等着瞧](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [日本自卫队派遣运输机和运输船支援汤加](/content/gnews/23/README.md)
+### [日本自卫队派遣运输机和运输船支援汤加](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本硅半导量子比特助力实现大规模量子计算机](/content/gnews/24/README.md)
+### [日本硅半导量子比特助力实现大规模量子计算机](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因担忧中共国疫情，NBC宣布不会派遣体育报道团队参加 2022北京冬奥会](/content/gnews/25/README.md)
+### [因担忧中共国疫情，NBC宣布不会派遣体育报道团队参加 2022北京冬奥会](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [中国政府以新冠疫情为由，停飞几十个中美国际航班](/content/gnews/26/README.md)
+### [中国政府以新冠疫情为由，停飞几十个中美国际航班](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美议员指控巴赫等国际奥委会官员帮助中共掩盖彭帅事件，提议对其进行制裁](/content/gnews/27/README.md)
- ` 首尔天池农场`
-
-### [巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](/content/gnews/28/README.md)
+### [巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [洛杉矶某校未接种新冠疫苗学生受到虐待](/content/gnews/29/README.md)
+### [洛杉矶某校未接种新冠疫苗学生受到虐待](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/30/README.md)
+### [苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [新加坡以遏制“冲动”交易为由关闭加密货币ATM](/content/gnews/31/README.md)
+### [新加坡以遏制“冲动”交易为由关闭加密货币ATM](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国全科医生认为，年轻人最不应该接种疫苗](/content/gnews/32/README.md)
+### [英国全科医生认为，年轻人最不应该接种疫苗](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国结束中共病毒相关限制](/content/gnews/33/README.md)
+### [英国结束中共病毒相关限制](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京冬奥APP存在重大安全隐患](/content/gnews/34/README.md)
+### [北京冬奥APP存在重大安全隐患](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分](/content/gnews/35/README.md)
+### [港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分](/content/gnews/38/README.md)
  ` 關注組`
 
-### [英格兰将结束疫苗护照，苏格兰也将取消疫情限制](/content/gnews/36/README.md)
+### [英格兰将结束疫苗护照，苏格兰也将取消疫情限制](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|泽连科医生指出 接种疫苗将造成民众死亡](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [澳洲政府急迫解决新冠导致的工人短缺和长期失业问题](/content/gnews/38/README.md)
+### [澳洲政府急迫解决新冠导致的工人短缺和长期失业问题](/content/gnews/40/README.md)
  ` 走进澳洲`
-
-### [币圈新闻动态：G保险将面世](/content/gnews/39/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [俄罗斯与西方会谈未果，宣布参与中伊联合海军演习](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【中日财经爆】荷兰继续禁止ASML光刻机出口中共国](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

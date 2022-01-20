@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平彭丽媛出访挪威服装由七哥设计
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883568/)
+## 习近平的政治婚姻
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883621/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

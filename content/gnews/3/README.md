@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人的无知愚昧，到了完全无法想象的程度
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883762/)
+## 施巫术之人最后将被巫术给灭掉
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883781/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
