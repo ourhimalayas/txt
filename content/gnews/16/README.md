@@ -2,148 +2,37 @@
 ---
 
 
-## 法律是人类安全公平的社会基石
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1885404/)
+## 距离举办冬奥会不到20天：外交抵制、不透明的数据和压制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885461/)
 
-[https://gtv.org/video/id=61e93d6187664c47acd74538](https://gtv.org/video/id=61e93d6187664c47acd74538)
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip09-3.png)图片来源：cope.es
+2022年冬奥会将于2月4日在北京开幕。北京已成为第一个同时举办夏季和冬季奥运会的城市，但是，面对两周之后将举行的冬奥会一直被不确定性和争议所包围。
 
-以法灭共
-Destruir el Partido Comunista de China con la ley
+由于Omicron的降临，世界各地的病例增加，中共国也敲响了警钟。中共国正在奉行不登记任何病例的策略，而来自世界各地的运动员的汇集使这一目标变得复杂。事实上，活动的组织者已经保证，所有的赛事都将不对外开放，只有当局才能够进入赛场，此事引起争议。
 
-让中国人拥有独立的司法系统
-Para que los chinos obtengan un sistema judicial independiente
+中共国的最新官方数字显示，这个14亿人口的大国，在整个大流行期间，只有11万个阳性病例，4,849人死于该疾病，这个意义重大。而相比之下，西班牙登记的病例总数为8百万多阳性，9万1千人死亡，而西班牙总人口还不到5,000万。
 
-法律是一个人类安全、公平、有尊严
-La ley es el pilar social más básico
+此外，与中共政府的喉舌媒体《环球时报》周一表示，该国2021年的GDP增长了8.1%，显示出巨大的经济复苏，巩固了其作为世界第二大经济体的地位。
 
-一个最基本的社会基石
-Para un ser humano seguro, justo y digno
+这些令人惊讶的数据可能会让人认为中共国是一个管理大流行病的典范，因为他的管控比其他国家严格得多，而且经济增长也很大。然而，一些国际专家认为，自大流行病开始以来，这些数字被当局歪曲了，感染和死亡的人数要高得多。美国情报部门声称，在大流行病开始时，中共国对所提供的数据作假，并确认阳性病例和死亡人数远远高于所提供的数据。CNN通过中共国卫生系统的消息来源获得了所谓的“武汉文件”，证实了中共政府的官方数据与现实不符的假设，这117页来自湖北省疾病预防控制中心的秘密报告被六位独立专家检查，他们核实了这些数据与公开的数据不同。
 
-它就像道德一样
-Él es como la moralidad
+周二，北京市卫生委员会在过去三天里确认了四例阳性病例，包括Omicron和Delta的病例，当局已采取措施，暂时关闭社区，并对所有居民进行测试。在天津等城市，居民被赶出家门，并被带到检疫中心。
 
-是人和畜牲分开的一个基本的基础
-Es la separación básica entre el ser humano y los animales
+中共国把查出的病例归咎于来自外国，这至少可以说是令人好奇的，因为中共国是大流行病的起源地，不同的专家声称他们隐藏了关于该大流行病的数据，而这些数据本可以使各国更早地采取措施。北京当局声称，该市最近一名阳性患者是因为收到了一个来自加拿大的包裹，而这些文件被发现含有病毒，这促使中共国开始对所有包裹进行消毒。而在大流行病开始时，他们为了中饱私囊，声称这些货物是安全的。
 
-任何一个文明的社会一旦失去了做人的道德
-Cualquier sociedad civilizada al perder su moralidad
+这就是将主办2022年冬季奥运会的城市的情况。其他国家的人很难进入中共国，严厉的限制可能会影响比赛的正常进行。世界各地的运动员的到来可能会导致新的病例出现，因此在离比赛只有两个多星期的时候，对参与比赛运动员的不确定性占了上风。
 
-你就跟畜牲没有任何两样
-No tiene diferencia con los animales
+目前一些欧美国家对北京冬奥会进行外交抵制，指责中共国不尊重人权。这一立场是基于中共国政府对新疆地区维吾尔族和穆斯林群体少数民族的严厉镇压，和对网球运动员彭帅失踪多日的抗议。正因为如此，美国、澳大利亚、英国和加拿大等国家加入了外交抵制行动，中共国宣布政治与体育无关，“他们将不得不为此付出代价”。
 
-当任何一个社会没有法律的时候
-Una sociedad al no tener una ley
-
-每个人都是下一个被害者
-Cada uno será la próxima víctima
-
-一定是如此！
-¡Seguro es así!
-
-我们来自于中共国
-Nosotros provenimos de la República Popular de China
-
-深深地感受到被中共无法无天的一党专政的毒害
-Profundamente sentimos el envenenamiento por la dictadura del partido único y sin ley del PCCh
-
-我们时刻在看著伊朗
-En cada momento vemos a Irán
-
-和过去的苏哈托、希特勒
-Al pasado Suharto, Hitler
-
-看到所有过去的苏联
-La Unión Soviética
-
-和今天的北朝鲜发生的事实
-Y la realidad que está sucediendo en Corea del Norte
-
-以及在新疆的大屠杀
-Así como también la gran masacre en Xinjiang
-
-那么在我们身上发生的事情
-Y las cosas que nos está sucediendo
-
-事实上远远地超过大家所想像的
-Realmente sobrepasa mucho más de lo que todos nos imaginamos
-
-你们在屏幕前和我一起参加爆料革命这么多年
-Ustedes han participado tantos años conmigo en el Movimiento de Denunciantes frente a la pantalla
-
-但你们没有闻到过真正的血味儿
-Pero ustedes no han olido sangre real
-
-你们没有感受到那种巨大的压力
-Ustedes no sintieron esa enorme presión
-
-你们没有感受到共产党是如何地恐惧七哥和爆料革命
-Tampoco sintieron cómo es que el PCCh atemoriza al Movimiento de Denunciantes y a mí
-
-每时每刻我们的战斗
-Cada minuto y segundo de nuestra guerra
-
-就在刚才
-Hace rato
-
-我就在二十分钟前跟大卫、跟Rachel打了个招呼
-Hace 20 minutos saludé a David y Rachel
-
-骑侠、Nick还不在的时候
-En ese momento Nick y Qixia aún no estaban
-
-我就收到十几个信息
-Recibí más de 10 mensajes
-
-让我今天不讲这个不讲那个
-Diciendo que hoy no hable de esto y lo otro
-
-然后如何如何威胁
-Y muchas formas de amenazar
-
-这我们是在美国
-Nosotros estamos en Estados Unidos
-
-但是我要告诉大家的事情
-Pero yo les voy a decir a todos una cosa
-
-我们今天的画面上来自于欧洲、
-Hoy nuestra pantalla proviene de Europa,
-
-美国、加拿大、澳大利亚
-EE. UU, Canadá, Australia,
-
-占据了整个地球
-Ha ocupado toda la Tierra
-
-如果我们不奋斗
-Si nosotros no luchamos
-
-你们就是下一个七哥
-Ustedes serán el próximo Miles Guo
-
-但我绝不相信你们能像我一样活到今天！
-¡Pero yo no creo que ustedes puedan sobrevivir como yo hasta el sol de hoy!
+**新闻来源**：[cope.es][China, a menos de 20 días de organizar los JJ. OO. de invierno: boicot diplomático, datos opacos y represión](https://www.cope.es/actualidad/internacional/noticias/china-menos-dias-organizar-los-invierno-boicot-diplomatico-datos-opacos-represion-20220118_1734896)
 
 * * *
 
-日期：01/19/2022
-原视频标题：法律是人类安全公平的社会基石
-La ley es la piedra angular de una sociedad para una humanidad seguro y justo
-原视频日期：01/17/2022
-原视频网址：**[https://gettr.com/post/pou4ipefd6](https://gettr.com/post/pou4ipefd6)**
-任务编号：KC424(3523)
-视频时间段：0:00-02:11
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

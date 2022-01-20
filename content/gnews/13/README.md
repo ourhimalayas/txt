@@ -2,61 +2,41 @@
 ---
 
 
-## 尼古拉-斯特金说：苏格兰的所有Omicron限制将于周一结束
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885436/)
+## 肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885488/)
 
-**编译：七叶之芒**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip08-5.png)*苏格兰第一部长尼古拉-斯特金。照片。PA媒体。*
-尼古拉-斯特金宣布，苏格兰为应对Omicron疫情而出台的所有冠状病毒限制措施将于下周一结束。
+编译：wenwu
 
-在苏格兰议会，第一部长说，夜总会的关闭和招待所的餐桌服务要求将结束。室内活动的上座率限制也将被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1593.png)图片来源：thenationalpulse.com
 
-斯特金女士说：“从周一开始，我们还将取消要求人们在室内聚会时坚持三家人的限制的指导。”
+据《国家脉动》独家披露，拜登总统辩论委员会联合主席肯尼斯·沃拉克（Kenneth Wollack）参加了与中共官员和其影响团体的几次”非公开”对话。
 
-“然而，必须强调这一点：尽管情况有所改善，但社区内流通的Covid感染水平仍然很高。因此，为了最大限度地减少我们感染病毒的风险，在这个阶段，我们所有人在社会交往中保持谨慎是明智的。”
+沃拉克——同时也是公共资助的国家民主基金会（NED）董事会主席——是参加所谓的首届美中高级别政党领袖对话（U.S.-China High-Level Political Party Leaders Dialogue）的十名主要代表之一，该对话由东西方研究所与中共中央对外联络部（International Department of the Central Committee of the Communist Party of China）“合作”主办。
 
-她继续说：“在这个阶段，我们将继续要求人们尽可能在家工作–并要求雇主为此提供便利。”
+美国代表团由美国前国务卿马德琳·奥尔布赖特（Madeleine K. Albright）率领，尽管她的女儿爱丽丝（Alice）与中国共产党有大量投资，但她最近被选中负责拜登时代的一项关键对外援助计划。
 
-“然而，我们现在将与企业接触，讨论从2月初开始恢复到更多的混合方法。”
+美国代表团总结说：“它寻求通过就治理和外交政策问题交换意见，在美国和中共国的政治精英之间建立理解和信任。”
 
-尼古拉-斯特金说，在Omicron浪潮之前已经实施的基线冠状病毒措施将保留。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1595.png)图片来源：thenationalpulse.com
 
-她告诉MSP：“这意味着在公共室内环境和公共交通工具上仍然必须佩戴口罩。”
+值得一提的是，东西方研究所（EastWest Institute，如图）在与包括中美交流基金会（CUSEF）在内的首要中共国影响力团体合作方面有着长期的记录；鉴于东西方研究所与北京的密切关系，沃拉克的代表团与中国共产党领导人习近平和中共政权[统战部](https://www.eastwest.ngo/idea/1st-us-china-high-level-political-party-leaders-dialogue-report)的高级官员，进行了“[非正式](https://archive.ph/VPDDC)”会晤。
 
-第一部长还宣布，苏格兰政府不会将其疫苗认证计划扩展到新的场所。
+中美交流基金会由中共统战部副部长创办，该组织旨在“收编和化解可能反对中共执政的党政和权力的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。中美交流基金会还赞助了各种美中高级别政党领袖对话。
 
-谈到内阁对该议题的讨论时，她说：“这无疑是我们今天早上面临的最困难的决定，而且，我们所得出的判断又一次得到了精细的平衡。”
+第二年（2011年），沃拉克[参加了](https://www.eastwest.ngo/idea/3rd-us-china-high-level-political-party-leaders-dialogue)在中国北京和四川举行的另一次美中高级别政党领导人对话。
 
-斯特金女士说：“考虑到情况的改善，我们今天的结论是，在这个阶段延长认证是不相称的。”
+东西方研究所解释说：”这次访问标志着对话进程首次扩大到北京以外，包括在中国其他地区举行会议，以努力促进两国政治精英之间更广泛的了解。“
 
-斯特金女士说，苏格兰现在正处于冠状病毒Omicron浪潮感染的“下坡路”。
+2012年12月，沃拉克参加了另一个以商业为重点的代表团，东西方研究所总结为重点是“如何扩大中共国和美国之间的贸易关系，特别是在省和州一级。”
 
-在苏格兰议会发言时，她列出的统计数据显示新病例“显著下降”，尽管国家卫生系统仍然面临“严重的压力”。
-
-她说：“考虑到所有这些，并对各种数据来源进行三角分析，我们可以有把握地说，由Omicron驱动的病例上升在1月的第一周达到了顶峰，我们现在正处于这一波病例的下坡。”
-
-斯特金女士敦促尚未进行疫苗强化注射的苏格兰人站出来。
-
-她告诉MSP：“仍有60多万18岁以上的人有资格接受强化注射，但还没有接受。还有数十万人还没有进行第一或第二针。”
-
-“因此，我鼓励任何属于这些类别的人尽快进行预约，或去一个临时诊所。”
-
-第一部长说，尽管有了新的乐观情绪，但国家卫生系统仍然面临“巨大的压力”。
-
-“尽管人们可能从媒体的评论中听到了什么，但我们还没有从Covid的流行阶段转向地方性阶段，尽管我希望这一过渡正在进行中。然而，我们正在再次进入疫情的平静阶段。”
-
-她说，苏格兰政府继续为其未来处理冠状病毒的新战略框架而努力。
-
-**新闻来源**：[independent.ie][All of Scotland’s Omicron restrictions to end on Monday, says Nicola Sturgeon](https://www.independent.ie/news/all-of-scotlands-omicron-restrictions-to-end-on-monday-says-nicola-sturgeon-41252933.html)
+新闻来源：[thenationalpulse.com] [EXC: Presidential Debate Commission Chief Held ‘Off-The-Record’ Meetings With Chinese Communist Propagandists, And Xi Jinping.](https://thenationalpulse.com/2022/01/18/debate-commission-co-chair-participated-in-ccp-meetings/) | 发布时间：2022年01月18日
 
 * * *
 
-***审核：蚂蚁兄弟
+*审核：文乐
 校对：信心满满
-发布：信心满满***
-
+发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

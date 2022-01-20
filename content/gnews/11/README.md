@@ -2,33 +2,25 @@
 ---
 
 
-## 自然免疫力在美国Delta浪潮中比疫苗更有效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885472/)
+## 西澳大利亚推迟重开边境计划
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1885576/)
 
-编译：wenwu
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011902.jpg)网络图片
+由于Omicron 变体持续在澳大利亚东南部地区传播和肆虐，西澳大利亚州州长麦高恩与当地时间1月20日推迟了该州原本要在 2 月 5 日重启的边境开放计划，使该州继续与澳大利亚其他地区隔绝。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1592.png)图片来源：insiderpaper.com
+麦高恩在周四晚上的媒体会议上详细介绍了延期的决定。他说，该州的国内边境将在 2 月 5 日继续关闭，但一些特殊情况将会获得豁免，例如参加葬礼、探望绝症患者等。
 
-一项新的研究在周三（19日）表示，在美国最后一次由Delta变体驱动的中共病毒（冠状病毒）浪潮期间，未接种疫苗的人比那些接种了中共病毒（COVID19）疫苗后未曾有过突破性感染的人得到的保护更好。
+对于原定的边境开放计划，麦高恩表现出忧虑：“如果从 2 月 5 日起，我们允许成百上千的 Omicron 感染者在不进行检测、隔离和遵守公共卫生措施的情况下直接飞往珀斯，这将导致我们全州出现大量新冠病毒感染…… 这将导致感染病例、住院人数的激增，并导致数以千计的居民无法工作或上学…… 而糟糕的公共卫生状况将对经济造成打击。”
 
-这一发现是对，关于SARS-CoV-2的自然免疫和疫苗获得的免疫的相对优势的辩论的最新评价，但这次研究得到了美国疾病控制和预防中心（CDC）的批准。
+虽然西澳政府表示出于同理心将会在封锁边境期间实施一些豁免政策，不过这些入境人士依旧提供完全接种CCP病毒疫苗的证明——如果有条件施打加强针者需要进一步提供加强针的接种证明——并接受两次病毒检测和14天的自我隔离。
 
-**（评论：但不建议主动感染中共病毒）**
+至于边境封锁将持续到什么时候，西澳政府目前没有给出明确的期限，他们目前将主要精力放在监控澳大利亚东部各州的疫情走势上。目前西澳大利亚的CCP病毒加强针注射率为25.8%，州长麦高恩则表示，他希望将这一数字提升到80%-90%这一水平。
 
-“在研究期间，接种疫苗和在曾在感染中共病毒中幸存下来所提供的保护水平发生了变化，接种疫苗仍然是保护免受Covid-19感染的最安全策略。”CDC补充说。对于Omicron变体，疫苗和感染产生的免疫力似乎都有所下降。
+新闻参考链接：[Western Australia delays border reopening plan](https://www.9news.com.au/national/mark-mcgowan-media-conference-livestream-here-western-australia-premier-coronavirus-update/047648fe-9687-4799-8ef2-6f325604d9b5)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-这项新研究涉及2021年5月30日至11月30日期间纽约和加利福尼亚的患者。到了10月3日那一周，没有接种过中共病毒疫苗也未曾感染过中共病毒的人的感染率在加利福尼亚州低了约6倍，在纽约低了5倍；但是，如果曾感染过中共病毒，而且未曾接种过中共病毒疫苗，则会让再次感染的几率大大降低，感染率与接种疫苗的人相比约减少29倍（加州）和15倍（纽约）。
 
-住院的情况也是如此。
-
-新闻来源：[insiderpaper.com] [Natural immunity more potent than vaccines during US Deltawave: study](https://insiderpaper.com/natural-immunity-more-potent-than-vaccines-during-us-delta-wave-study/) | 发布时间：2022年01月19日
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

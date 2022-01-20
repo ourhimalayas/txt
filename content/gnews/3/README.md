@@ -2,10 +2,10 @@
 ---
 
 
-## 星巴克、通用电器取消雇员强制疫苗要求
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885608/)
+## 澳大利亚刚执行5-11岁儿童疫苗注射，死亡已经开始
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1885714/)
 
-01/19/2022 高法裁决后，星巴克、通用电气等一些大公司取消了疫苗强制要求
+01/16/2022 澳大利亚医护人员爆料：才刚开始执行的5-11岁儿童疫苗注射已经导致儿童死亡
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
