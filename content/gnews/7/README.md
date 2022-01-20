@@ -2,26 +2,38 @@
 ---
 
 
-## 七哥分享人生感悟和成功经验（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882003/)
+## 缅因州医生开伊维菌素而被暂停医疗执照30天
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1882032/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+编译：Jenny Ball
 
-刚才你看小飞侠你问我的问题，海量的信息我能处理，我骂王艳萍最多的事情就两件事, 她这个出口伤人啊，就是那个嘴，很多佛家里边最大的罪就是妄语，妄语就是你没办法, 她就是他就天生这个人，她这个嘴跟刀子一样，你们很多人都见过他，现在是不可替代的作用。如果因为我这人永远我是好人当好人，当好当惯了就说不出坏话了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/da6df04b172f6b6f40e67c4e0436caca.png)
 
-所以她这个现在很有用啊，很有价值，但是对她不是好事。第二个王艳萍最大的事情， 说话，开会时间太长啊，如果我在生活中不会管理我的时间，我将一事无成，管理自己成功的几个秘诀，管理自己的人事关系，是你人生中第一把剑，你看喜安娜安迪她姐妹两个，妹妹就是11岁孩子，就是他俩的关系，就一个主角一个配角，你现在她俩调整过 来，年龄问题不现实，还有一个她俩爸她妈可能定好了角色，你看到钟仁，钟仁在短短的就这几个月的，就刚才能讲出这么精彩的话，是吧？
+缅因州医学执照委员会投票决定，让已经行医四十年的70岁的梅丽尔·尼斯医生（Meryl Ness）接受精神病学评估。
 
-中国在过圣诞节的时候把圣诞老人给抓了，这话是多有力量！刚才呢，我们的蚂蚁仔的儿子斯蒂芬刚说完我害羞，刚才啪啪啪就讲最有意思的，你看看这个人，打开心扉， Twins你看，像不像那个印度最牛的那个那个音乐的那个女巫？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥分享人生感悟和成功经验（三）-.jpg)
-*发布：*tianzhihuan
+被指控为 COVID 患者开具抗寄生虫药物伊维菌素和疟疾药物羟氯喹。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+一些病人最终住进了医院，其中一名不得不插管。
+
+她还给怀孕的 COVID 患者开了羟氯喹。
+
+尼斯向董事会承认，她向药剂师称她的病人患有莱姆病，以获得羟氯喹来治疗 COVID。
+
+受过麻省理工学院教育的内科医生反vaxx组织，称CDC为“犯罪机构”。
+
+70 岁的尼斯是一名内科医生，积极参与儿童健康保护组织，该组织反对疫苗和疫苗授权。委员会在 1 月 12 日的命令中表示，允许尼斯继续行医“对可能接受她的医疗服务的公众的健康和人身安全构成直接威胁”。
+
+**点评：到底谁对公众构成直接威胁？**
+
+**参考资料：**[dailymail.co.uk][MIT-educated anti-vaxxer doctor who treated COVID patients with Ivermectin and hydroxychloroquine has her license suspended and must undergo psychiatric evaluation ‘for spreading misinformation’](https://www.dailymail.co.uk/news/article-10411699/Doctor-treated-COVID-patients-Ivermectin-license-suspended.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
 
  
 

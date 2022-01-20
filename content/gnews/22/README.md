@@ -2,135 +2,77 @@
 ---
 
 
-## 美国高院停止了企业疫苗强制令的意义深远
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1881901/)
+## 2022年1月19日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1881946/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a6eaa-zdg01.jpg)
-[https://gtv.org/video/id=61e85a8c87664c47acd6ed0a](https://gtv.org/video/id=61e85a8c87664c47acd6ed0a)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot_副本-3.jpg)
+视频连接：[2022年1月19日 文贵大直播：太平联盟官司背后的故事；达沃斯已成中共倒闭论坛；与西方经济脱钩洞察其奸；疫苗政策盼转机有备无患](https://gettr.com/streaming/ppaxpbfa71)或[2022年1月19日 文贵大直播：太平联盟官司背后的故事；达沃斯已成中共倒闭论坛；与西方经济脱钩洞察其奸；疫苗政策盼转机有备无患](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
 
-你知道它起了最核心的问题, 在哪里吗, 这个高法
-Tú sabes en dónde produjo el problema central, esta Corte Suprema
+1、达沃斯控制了世界的财富、政治、国家安全、军事安全。是黑暗力量的俱乐部，控制人类命运的俱乐部，奴隶主俱乐部；
 
-美国最危险下决定的是美国的白宫, 行政执法
-La decisión más peligrosa es la Casa Blanca de los Estados Unidos, la ejecución ejecutiva
+2、世界上金融、军校、警察学校、NGO、好莱坞、媒体平台、世界大的武器制造商、背后全部是达沃斯。控制了你行善的标准，立法权，大脑，判断是非的标准；
 
-它是执法机关
-Es la aplicación de la ley
+3、共济会、光明会、骷髅会等等都是黑暗势力的分支，达沃斯为啥赞同共产党，因为他们都是邪恶的，目标就是控制人类；
 
-那么这个高法一旦做出这个决定
-Ahora esta Corte Suprema una vez se decida
+4、2001年中国共产党拿下了北京2008年夏季奥运会和WTO的入场券，从那天起，达沃斯论坛就和中国共产党勾结到一起；
 
-它是不可逆转的, 给所有的药厂和疫苗
-Es irreversible para todas las compañías de vacunas farmacéuticas
+5、参加天津达沃斯的人，注射血清，玩弄中国小女孩；
 
-和所有的机构提出了一个美国的问题
-Y se hizo una pregunta de EE. UU hacia todas las instituciones
+6、达沃斯党和共产党是新冠病毒和疫苗的始作俑者，寻找病毒和疫苗真相，就找中国共产党和达沃斯；
 
-我们中国人永远没有这个思路的
-Nosotros los chinos nunca tenemos esta idea
+7、达沃斯就是世界共产党。他们制造病毒和疫苗，杀人后不要付养老金、保险赔偿金，还能发疫苗财；
 
-所有的科学家
-Todos los científicos
+8、达沃斯谈最多的就是：新中国联邦有可能突然被很多国家接受和喜币不可控广泛流通；
 
-所有的最后证据一切都要重新来
-Todas las evidencias finales deben iniciar de nuevo
+9、我们会有去中心化保险和数字太空；
 
-你知道这有多可怕吗
-Sabes qué tan aterrador es esto
+10、王岐山近期去看病发现周围医生全换了，他的专属医生已经服务新的中纪委负责人了；
 
-这是为什么我告诉大家
-Este es el por qué les digo a todos ustedes
+11、5月份疫苗灾难开始，病毒接近尾声，如果不放新毒，基本病毒结束。开始卖药治疫苗；
 
-就像我们当时让美国川普决定了这个旅游令
-Así como habíamos dejado que Trump decidiera esta orden de viaje
+12、冬奥会将是习近平最后一次国际演出；
 
-我们永远不会有证据说明是我们干的
-Nunca habrá evidencias de que lo hicimos nosotros
+13、国内很快会在家检测核酸；
 
-但是我告诉你, 能让法院这样干的
-Pero te digo, lo que causa que la corte haga esto
+14、中共自知难逃一劫，被迫脱钩强撑政局；
 
-它取决于证据
-Depende de las pruebas
+15、加拿大、澳大利亚、巴西、俄罗斯、日本，打疫苗最多，也许会有三分之一的人口消失，未来无苗族是世界争夺的资源；
 
-首先是, 你科学不科学
-Primero que nada es, si es acorde a la ciencia o no
+16、有新中国联邦在，一定会溯源中共病毒真相；
 
-合不合法, 然后是疫苗
-Si es legal o no, luego es la vacuna
+17、金融界的梵蒂冈卢森堡 ，开始认真研究和新中国联邦合作了；
 
-现在是到底怎么来的
-De dónde proviene
+18、邓小平家族藏在卢森堡的老钱最近开始有动作了，买了很多黄金和期货；
 
-我可告诉这个, 只有我们做到了
-Puedo decir que sólo nosotros logramos hacer esto
+19、躺平币使用即金钱；
 
-没有任何人
-No hay nadie más
+20、G-TV投资者、GCLUBS会员，会有同价值去中心化保险；
 
-这是我为什么告诉战友1、2月份
-Este es el motivo por el cual le dije a los compañeros luchadores en enero, febrero
+**注：大直播音讯正在制作和上传中，敬请关注——**
 
-美国从法律开始
-EE. UU comienza desde la ley
+**（大直播音频位置）**
 
-西方不从法律开始, 是永远没有希望的
-Si el occidente no empieza por la ley, nunca habrá esperanza
+编辑整理：文俊；
 
-行政命令你就当它(是)个狗屁
-Las órdenes ejecutivas son como basuras
+发布：黎明之前
 
-这个法律的开始就会在全世界开始
-El inicio de la ley comenzará desde todo el mundo
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-然后科学家就开始质疑
-Luego los científicos empezarán a sospechar
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-然后就是专业开始质疑
-Después los expertos
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-然后就开始到了药厂
-Y al final empezarán con las compañías farmacéuticas
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-所有全世界的法院的开始
-El inicio de la corte en todo el mundo
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-这是真的依法灭疫
-Esto es eliminar a la vacuna mediante la ley
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-从前天开始了6:3 – 5:4的结果
-El Resultado de 6:3 – 5:4 comenzó anteayer
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-这个事儿太大了, 兄弟姊妹们
-Este asunto es muy grande, hermanos y hermanas
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-未来会证明新中国联邦有多牛叉
-Se comprobará lo poderoso que es el Nuevo Estado Federal de China en un futuro
-
-你会看到一系列的文件出来
-Verás que aparecerán una serie de documentos
-
-日期：01/18/2022
-原视频标题：美国高院停止了企业疫苗强制令的意义深远
-El profundo significado de la detención sobre la vacuna obligatoria para las empresas por parte de la Corte Suprema de EE. UU.
-
-**原视频网址：**[https://gettr.com/post/pommak3526](https://gettr.com/post/pommak3526)
-
-原视频日期：01/16/2022
-原视频网址：https://gettr.com/post/pommak3526
-任务编号：KC423（3502）
-视频时间段：00:00-01:31
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
