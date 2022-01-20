@@ -2,22 +2,18 @@
 ---
 
 
-## 【中日财经爆】荷兰继续禁止ASML光刻机出口中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882825/)
+## 拜登警告俄罗斯：若入侵乌克兰，将会付出惨重代价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882867/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1539.png)[图片来源](https://www.morningbrew.com/emerging-tech/stories/2021/03/15/meet-asml-worlds-largest-semiconductor-equipment-manufacturer)
-艾司摩尔(ASML)首席执行官周三（1月19日）表示，该公司尚未获准向中共国出口其最先进的光刻机。这些设备是制造先进计算机芯片所必需的。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1541.png)图片来自本文网站
+1月20日《共同通信》报道，美国总统乔.拜登19日在白宫举行了上任一周年新闻发布会。他警告正在邻国乌克兰边境部署军队的俄罗斯，“如果你入侵乌克兰，你将对造成的严重经济后果付出惨重代价”。强调银行将无法用美元进行交易。并重申他不排除实施大规模的经济制裁措施。
 
-在美国政府的要求下，荷兰政府已拒绝向艾司摩尔颁发出口光刻机的许可证，这些机器是有军事用途的“两用”设备。
+在关于普京要求乌克兰不要部署战略武器的问题上，拜登表示，也许我们可以做些什么，并承认谈判是有可能的。
 
-艾司摩尔CEOPeterWennink表示，中共国不太可能独立复制顶尖的光刻技术，因为艾司摩尔依赖于“不懈的创新”和整合只有非中共国供应商才能提供的组件。
+信息源：[バイデン氏、ロシアに警告　隣国侵攻なら「深刻代償」](https://news.yahoo.co.jp/articles/5fa8e9cc54460f0f2202e0b9d461ac9bf529ea2e)
 
-在光刻市场几乎处于垄断地位的艾司摩尔，并不受限于向中共国出口较老的技术。2021年，艾司摩尔在中共国的销售额约为22亿美元，占该公司销售额的16%，仅次于台湾和韩国。
-
-消息来源：[艾司摩尔CEO称公司仍未获得向中国出口最先进光刻机的许可证](https://cn.reuters.com/article/asml-ceo-china-export-licence-0120-idCNKBS2JU04Y?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  

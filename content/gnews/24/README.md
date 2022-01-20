@@ -2,32 +2,37 @@
 ---
 
 
-## 专家称任何时候都应禁止给儿童接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883141/)
+## 有声|泽连科医生指出 接种疫苗将造成民众死亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1883165/)
 
-撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-1月18日，郭文贵先生盖特转发了一条消息，病毒和疫苗学家格特·范登·博什博士表示，在任何情况下，家长都不应该允许自己的孩子接种中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1547.png)
-博什先生说，接种疫苗有诱发儿童自身免疫反应的风险。因此，当与病毒抗争时，永远不能使用不能阻断传播的疫苗。当疫苗并不能防止传播时，就无法控制疫情大流行，而病毒会逃逸，大规模的疫苗接种，就为更具传染性变种病毒的复制制造了温床。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日，据盖特消息显示，近日，泽连科医生在接受媒体采访时指出，接种中共病毒疫苗将给民众带来急性、亚急性和长期三个阶段的严重不良后果。
 
-博什先生科学地阐明，为儿童接种疫苗绝对没有任何合理性和任何附加值，只有重大风险。他认为，这就是犯罪。而作为一个科学家，他说自己不会轻易地使用这样的言辞。他的结论是，事实上接种疫苗不可能为群体免疫做出贡献。
+泽连科医生解释，急性不良反应发生在接种疫苗后的三个月内。研究表明，中共病毒疫苗将在人体内产生数万亿个刺突蛋白，而大量刺突蛋白附着在患者的血管内壁则是血栓类致死疾病的导火索。据美国CDC的工作人员透露，截止2021年12月底，超过四万五千名美国人死于此类急性不良反应。而真实的死亡数据实际远高于此。
 
-新闻链接：[文贵先生盖特：Geert Vanden Bossche 博士，病毒学家-疫苗学家](https://gettr.com/post/pour1n9b30)
+原文链接：[泽连科医生指出 接种疫苗将造成民众死亡](https://gnews.org/zh-hans/1880283/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+音频处理/发稿：Daxia
 
-总编：飞虹
-
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

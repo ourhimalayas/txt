@@ -2,20 +2,36 @@
 ---
 
 
-## 马明哲、王建林，我们的敌人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883336/)
+## 洛杉矶某校未接种新冠疫苗学生受到虐待
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
+据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
 
-*发布：*Frank2021
+新闻来源:
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
+
+> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+
+总编/编辑: 飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1882552/)
+## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
 
-作者：香草山翻译部
+据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
+芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
+
+文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – 柯镇恶
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0119text-SC.png)
-校对：Stay文苑
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e8bab8533c672fca7fa66f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-14.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

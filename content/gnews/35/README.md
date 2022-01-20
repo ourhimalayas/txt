@@ -2,37 +2,24 @@
 ---
 
 
-## 英国外交大臣表示要与澳洲深化防务关系对抗中共
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1882998/)
+## 新冠患者的恶梦——注意力和记忆力下降
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1883021/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1544.png)图片来源于本文链接
+伦敦，19 日，路透社，英国牛津大学的一项研究表明，轻度中共病毒（新冠病毒Covid-19）患者在感染后6—9个月内注意力和记忆力下降，他们并没有意识到这是后遗症。
 
-整理/编辑：小红帽
+一些人在感染后出现了“长期COVID”后遗症，其特点是认知问题里的注意力集中力欠佳、健忘、疲劳，目前尚不清楚这种注意力后遗症问题会持续多久。这项研究，是针对中共病毒检测阳性者，他们并没有抱怨自己有后遗症，只是进行了记忆力和认知能力的测查。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+结果显示，在感染后长达6个月的情况下，回忆个人经历（称为情景记忆）的能力显著受损。此外，感染9个月后，保持注意力的能力明显低于未感染者。
 
+牛津大学实验心理学系Sijja Zhao博士说：“令人吃惊的是，被测试者并没有感觉到他们的注意力和记忆力下降了。”并且还说“经过数月后认知力的慢性影响才会显现出来。”
 
-根据《澳大利亚人报中文网》1月20日报道，英国外交大臣Liz Truss表示，与澳大利亚的防务关系将继续深化，目前正在进行相互准入防务协议的工作。她警告，世界上的攻击行为越来越多，对中国的经济依赖也不健康。
+信息来源：[コロナ軽症者、注意力や記憶力低下　後遺症の自覚なくても＝英研究](https://jp.reuters.com/article/health-coronavirus-britain-attention-idJPKBN2JT06E)
 
-近日Truss女士接受了《澳大利亚人报》的采访提到，贸易和投资是她建立一个”自由网络 “的核心思想。她认为澳大利亚作为这个支持自由和民主的联盟一员是非常重要的。澳大利亚已经作出了表率。
-
-另外，Truss女士表示，不排除在交付澳大利亚潜艇的问题上改变方式，由AUKUS三方合作开发，而不是选择英国的阿斯图特级或美国的弗吉尼亚级潜艇。
-
-目前，Truss女士正在澳大利亚出席自2018年以来的首次澳大利亚和英国部长级会谈（AUKMIN）。这次会议将制定一个明确的计划，并建立在AUKUS战略态势的深刻转变之上，寻求重新平衡中国在该地区的影响。
-
-重要的是，在英国已经在与盟友日本、印度和印度尼西亚建立更深的经济和安全关系，作为其转向印太地区的计划一部分。
-
-新闻来源：[英国外交大臣Liz Truss：与澳洲深化防务关系对抗中国影响力](https://cn.theaustralian.com.au/2022/01/20/62615/)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

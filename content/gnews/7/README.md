@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人只会工作，不会享受生活
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883284/)
+## 共产党一箭五雕的报仇
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883355/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

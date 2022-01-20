@@ -2,20 +2,23 @@
 ---
 
 
-## 拜登警告俄罗斯：若入侵乌克兰，将会付出惨重代价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882867/)
+## 雅典娜时报-第179期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1882958/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1541.png)图片来自本文网站
-1月20日《共同通信》报道，美国总统乔.拜登19日在白宫举行了上任一周年新闻发布会。他警告正在邻国乌克兰边境部署军队的俄罗斯，“如果你入侵乌克兰，你将对造成的严重经济后果付出惨重代价”。强调银行将无法用美元进行交易。并重申他不排除实施大规模的经济制裁措施。
+#### 《雅典娜时报》汇聚全球新闻时事
 
-在关于普京要求乌克兰不要部署战略武器的问题上，拜登表示，也许我们可以做些什么，并承认谈判是有可能的。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/933544346156933160/155_4.png?width=399&amp;height=594)![圖片](https://media.discordapp.net/attachments/825592691433668612/933544346576371772/155_5.png?width=399&amp;height=594)
+*发布：陶子*
 
-信息源：[バイデン氏、ロシアに警告　隣国侵攻なら「深刻代償」](https://news.yahoo.co.jp/articles/5fa8e9cc54460f0f2202e0b9d461ac9bf529ea2e)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
