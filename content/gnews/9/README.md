@@ -2,10 +2,10 @@
 ---
 
 
-## 伊朗外长访华，共同谴责美国，签署25年全面合作协议
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1883876/)
+## 如果可以强迫你接种不必须的疫苗，还有什么不能做？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1883885/)
 
-01/16/2022 伊朗外长访华，共同谴责美国，签署25年全面合作协议。
+01/03/2022 塔克·卡尔森：如果他们可以强迫你接种你不需要的疫苗，那么还有什么他们不能做的？
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

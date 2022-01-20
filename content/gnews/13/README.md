@@ -2,39 +2,60 @@
 ---
 
 
-## 班农抨击福克斯电视台：FOX真的变了
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1883852/)
+## 2021年1月19 20日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1883875/)
 
-翻译： Jenny Ball
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远-2.png)
+**巴菲特的柏克夏计划投资****39****亿美元建设风能和太阳能项目**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1568.png)图片来源 : thegatewaypundit.com
+**记者**** Katherine Chiglinsky****、****Brian Eckhouse**
 
-史蒂夫·班农（Steve Bannon）与川普竞选战略顾问鲍里斯·爱普什泰恩（Boris Epshteyn）一起，在作战室开启了他的周一节目。
+**【彭博】****— ****沃伦·巴菲特的柏克夏公司计划斥资****39****亿美元，为爱荷华州输送更多风电和太阳能发电。该项目有望成为可再生能源行业规模最大的项目之一。**
 
-两位 MAGA 名人讨论了周末在亚利桑那州佛罗伦萨举行的大规模川普集会，以及格伦·杨金 (Glenn Youngkin) 担任弗吉尼亚州州长的第一天。
+**柏克夏旗下****MidAmerican Energy Co.****周三公告称，这项名为“****Wind Prime****”的可再生能源项目将带来****2,042****兆瓦风电和****50****兆瓦太阳能发电。该公司还计划资助跟碳捕捉、储能和小型核反应堆有关的技术研究。**
 
-在他们的讨论中，话题转向了福克斯新闻。
+**爱荷华州的风电市场本就较大，该项目更是如虎添翼。根据爱荷华州公用事业委员会，****2019****年风能满足了该州****41%****的能源需求，****2006****年这一比例仅为****5.1%****。**
 
-班农：FOX 真的发生了翻天覆地的变化，布赖恩·斯泰尔特（Brian Stelter）就在那里撒谎。你告诉我一个人可以去亚利桑那州的佛罗伦萨，我爱佛罗伦萨，我在亚利桑那州的佛罗伦萨度过了很多时间。但它们都是前不着村后不着店的地方，你能在 NFL 季后赛后的周末去亚利桑那州的佛罗伦萨，并吸引人山人海的人群吗？
+**柏克夏预计，如果该项目获批，建造工作将于****2024****年末完成。**
 
-是的，整个民主党都不会到那里，更别说能吸引那样的人群。但共和党人不是这样……我爱德桑蒂斯他们这些人，他们中会有 50 人到那里，但不会吸引周末（川普集会）人群的1/3。这是一个重大新闻事件。请记住，这开启了取消认证过程。这就是为什么他们不想报道的原因。他们现在被抓住了。CNN、MSNBC 和 FOX，特别是，你们的“弥天大谎”被抓住了。我们正在推进这个取消认证过程。我不在乎。我们在周六的早间节目中预览了集会，我不在乎 Twitter那帮家伙会不会发疯。
+1. **欧元区电费飙升**
 
-班农接着谈到福克斯新闻，“福克斯，你不是新闻机构……福克斯的骗局结束了。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远2-2.png)
+**2.中共国2021年12月进口伊朗石油26万吨。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远3-2.png)
+**3.** **美警告俄罗斯会从白俄罗斯进攻乌克兰**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远4-1.png)网络图片
+**4.美国议员敦促联合国发布维吾尔族人权报告**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远5-2.png)
+**5.中共奥运app有风险**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远6-2.png)网络图片
+**6.中共全球“引渡”政策令各国感到不安**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远7-3.png)网络图片
+**7.** **asml依然没有执照向中国提供光刻机**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远8-3.png)网络图片
+**8.** **spacex获得军方一亿美元合同测试地面运输**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远9-2.png)网络图片
+**9.** **劳斯莱斯推出微型核电站**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远10-2.png)网络图片
+**10. 科索沃禁止比特币挖矿**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远11.png)网络图片
+**11. 从希腊到拉丁，字母演化图示**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远12.png)网络图片
+**12. 微软690亿收购暴雪**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远13.png)网络图片
+**13.** **新西兰警告汤加还会遭遇史无前例的灾难**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远14.png)网络图片
+**14.印尼确认首都搬迁**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远15.png)网络图片
+**15.** **拜登政府将免费提供4亿个n95口罩**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文远16.png)网络图片
+编辑：MG4
 
-新闻来源: [thegatewaypundit.com] [Steve Bannon Blasts FOX News: “FOX Has Really Flipped – You’re Not a News Organization – The FOX Scam Is Over!” (VIDEO)](https://www.thegatewaypundit.com/2022/01/steve-bannon-blasts-fox-news-fox-really-flipped-showed-no-respect-anyone-maga-movement-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+[AUJenny – GNEWS](https://gnews.org/zh-hans/author/aujenny/)
 
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
-
-
-
-
-
+[AUJenny – GNEWS](https://gnews.org/zh-hans/author/aujenny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

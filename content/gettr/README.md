@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 10:13 AM (UTC)`
+
+1/19/2022 Miles Guo: None of the participants at the Davos Forum is vaccinated! The Himalaya Coin is a bright light in the darkness, it is the light that can cure a thousand years of darkness. When the New Federal State of China and the Himalaya Coin are combined as a whole, it is “the ultimate wisdom that can extinguish the ten thousand years of foolishness".<br/><br/>1/19/2022 文贵直播：参加达沃斯论坛的没人打疫苗！喜币就是黑暗中的明灯，一灯能除千年暗，而新中国联邦和喜币连在一起就是“一智能灭万年愚”！<br/>
+![img](https://media.gettr.com/group44/getter/2022/01/20/10/708f473f-3cda-f2cd-0846-522e2336fa80/out.jpg)
+
+---
+
 `@miles 1/20/2022 3:04 AM (UTC)`
 
 1/19/2022 Miles Guo: What is the “spillover effect” mentioned by the CCP? The CCP daydreams of luring the Party of Davos into enslaving the Chinese people with the so-called “the market potential of Communist China” consisted of the 1.4 billion slaves. This is like the trick played by the Party of Davos to murder the whole world’s people because the Western pension system, insurance companies, banks, and funds are all going to go bankrupt.<br/><br/>1/19/2022 文贵直播：啥是共产党说的“溢出效应”啊？中共幻想继续用所谓14亿奴隶的“中共国市场潜力”勾引达沃斯党奴役中国人民，这和达沃斯党屠杀全世界人民的阴谋异曲同工，因为西方的养老金、保险、银行和基金都要破产倒闭了。
@@ -146,13 +153,6 @@
 
 1月18号：最糟糕的时刻还没有到来……<br/><br/>https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E8%82%A1%E5%B8%822022%E5%B9%B4%E4%BC%8A%E5%A7%8B%E5%89%A7%E7%83%88%E9%9C%87%E8%8D%A1-%E6%95%B0%E7%99%BE%E5%8F%AA%E8%82%A1%E7%A5%A8%E8%B7%8C%E5%B9%85%E8%B6%8520-11642479358?tesla=y&s=08
 ![img](https://media.gettr.com/group50/getter/2022/01/18/17/1fe946a6-8e09-ae1f-e0ac-6257565e9f30/811595c584d605169e0e9fb41184a879.jpg)
-
----
-
-`@miles 1/18/2022 3:42 PM (UTC)`
-
-1月18号：尊敬的战友们好，感谢很多战友为我和b八弟修复照片和制作的视频，万分的感谢！🙏🙏🙏🙏🙏🙏🙏🙏🙏共产党的内部政治斗争和冬奥会的残局……将会带来什么？太平联盟的官司五年来一直和共产党攻击爆料革命的偶然行动：同步进行，这个背后的故事到底是什么？明天直播我们好好聊聊，一切都已经开始！
-![img](https://media.gettr.com/group38/getter/2022/01/18/15/3ae3c144-2169-1f36-66c3-4b7ba87fee0b/out.jpg)
 
 ---
 
