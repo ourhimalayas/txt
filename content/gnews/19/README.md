@@ -2,57 +2,80 @@
 ---
 
 
-## 俄罗斯与西方会谈未果，宣布参与中伊联合海军演习
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1883055/)
+## 币圈新闻动态：G保险将面世
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1883101/)
 
-![中国俄罗斯全球战略利益的重叠度增加但仍存局限- BBC News 中文](https://ichef.bbci.co.uk/news/640/cpsprodpb/1C3A/production/_118662270_139238142_15955952830291n.png)资料图
-来自美国《新闻周刊》网站1月18日的报道，俄罗斯表示，它将参加中共国和伊朗的联合海军演习，随着俄罗斯在乌克兰边境附近集结军队，人们开始密切关注莫斯科的军事策略。
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-几天前，莫斯科方面表示，它将对其在俄罗斯远东地区的部队进行快速战备检查，随后，俄罗斯发布了以上声明。目前，世界各国政府对俄罗斯入侵乌克兰的可能性越来越感到担忧。
-
-上周，[俄罗斯和西方官员之间的会谈未能取得突破](https://www.newsweek.com/russia-ukraine-nato-talks-steven-pifer-vladimir-putin-1669453)，该会谈是为平息乌克兰对俄罗斯在其边境的军事存在的担忧。克里姆林宫一再否认自己有任何入侵邻国的计划。
-
-周二，俄罗斯国防部表示，其太平洋舰队的一支分遣队已进入伊朗俾路支斯坦(Baluchestan)省的恰巴哈尔(Chabahar)港。
-
-俄罗斯驻德黑兰大使列万·贾加良(Levan Dzhagaryan)于2021年8月宣布了将在波斯湾举行的名为“CHIRU”的联合海上演习，并计划于2021年底或2022年初举行。
-
-在俄罗斯和中共政权继续加强军事合作之际，贾加良对俄罗斯官方媒体表示，这些演习旨在“确保国际航运安全”和“打击海盗行为”，各机构周二重申了这一信息。
-
-前北约最高军事指挥官柯蒂斯·“麦克”·斯卡帕罗蒂(Curtis“Mike”Scaparrotti)表示，伊朗和中共国将密切关注美国如何处理乌克兰危机。他在由韩裔美国人组织ICAS赞助的一个在线论坛上表示，俄罗斯驻白俄罗斯的军队（与乌克兰和北约国家波兰、拉脱维亚和立陶宛接壤）对欧洲构成了威胁。俄罗斯也有可能夺取连接俄罗斯和克里米亚的狭长地带，俄罗斯在2014年从乌克兰手中吞并了这片土地。
-
-据美国海军研究所(U.S. Naval Institute)报道，斯卡帕罗蒂上周表示，这些举措是“相互关联的，并且将告知[习近平和伊朗”，如果北京升级台湾紧张局势，而德黑兰在中东也采取同样行动，可以据此预期美国将作何反应。](https://www.newsweek.com/topic/xi-jinping)
-
-克里姆林宫发言人德米特里佩斯科夫说，普京将在2月份访问中共国出席北京[冬奥会](https://www.newsweek.com/topic/olympics)开幕式之际，向中共国家主席习近平介绍上周与北约举行的会谈情况。
-
-据路透社报道，上周，俄罗斯国防部宣布，计划在俄罗斯远东地区举行军事演习，意欲“评估军队的准备情况……在俄罗斯境内远距离重新集结后执行所需的任务”。
-
-白俄罗斯总统亚历山大·卢卡申科(Alexander Lukashenko)也表示，俄罗斯军队和装备已经开始抵达白俄罗斯西部。他说，作为“联盟决心军事演习”(Operation Allied Resolve)的一部分，联合军事演习将于2月在北约成员国波兰和立陶宛的边界开始。
-
-简评：
-
-俄罗斯与西方会谈未果，旋即转脸宣布要参与中共与伊朗将举行的军事演习，这一举动需要美国和北约成员国慎重考虑。所有类似的军事或经济会谈，其真实细节永远不可能为外界所知，但是，行动却是一个反映内涵的良好参照物。俄罗斯的行动说明它“很不满意”，它要联合中共和伊朗，是在向外界表明，它有谈判的筹码。
-
-中共政权作为俄罗斯对抗西方世界的一个筹码，它的选择是不多的，面对国内不断下行的经济压力、面对党内激烈的政治斗争、面对来自国际上有关人权、病毒溯源、和对其军事冒进的声讨，如果它离开了俄罗斯的站台，可能瞬间会被国际压力击垮，因此在当下，它对俄罗斯必是言听计从的。
-
-普京的策略很明显，中共的狼子野心世界各国也应该早有警觉，伊朗目前来看还没有撼动世界的能力。北约和美国如果还不能及早认清它们面对的真正威胁是什么，则可能要付出更大的代价。中共政权已经利用新冠病毒对全世界发动了生物战争，如果中共借助俄罗斯与西方国家之间的分歧得以喘息，它必会在未来对国际社会造成更大的伤害。世界的邪恶之源头在中共，而俄罗斯需要的可能只是一个利益上的平衡，孰重孰轻，以美国为首的西方世界当真要谨慎对待。
-
-新闻链接: [https://www.newsweek.com/russia-ukraine-vladimir-putin-kyiv-pacific-fleet-iran-china-1670278](https://www.newsweek.com/russia-ukraine-vladimir-putin-kyiv-pacific-fleet-iran-china-1670278)
-
-翻译/简评:Harvey（叶知秋）
-
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+## 每日一问
 
+
+
+
+
+希望能否开启被体制化的脑袋？
+
+
+
+
+
+## 喜马拉雅交易所要闻
+
+
+
+
+
+- 喜交所网站行情显示，喜币（HCN）价格目前在42.400 HDO，24H最高价格为42.500 HDO，24H最低价格为40.600 HDO，24H成交量约为120023.813 HCN。
+- 文贵先生19日大直播消息，G保险将面世，所有G系列投资，Gclubs会员等都会获得相应保险。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1. 01月20日消息，据DappRadar数据显示，过去24小时内，新兴的NFT交易平台LooksRare交易额达7.0亿美元，而排名第二的OpenSea仅1.4亿美元。LooksRare 24小时交易额是OpenSea五倍。此前报道，1月10日，NFT市场LooksRare宣布正式上线并向用户发放LOOKS代币空投，2021年6月16日至2021年12月16日期间，在OpenSea交易额超3枚（含）ETH用户挂单一枚NFT即可领取。
+2. 01月20日消息，据CryptoSlam数据，截至2022年1月份，Solana区块链上的非同质代币(NFT)销售额突破10亿美元。Solana的最高周交易量发生在2021年8月29日，达到1.6039亿美元。第一个突破100万美元的Solana NFT项目为Degenerate Ape Academy NFT，是10,000只算法生成的3D灵长类动物集合的一部分。
+3. 01月20日消息，据最新数据显示，以太坊链上NFT销售总额突破190亿美元，创下历史新高，本文撰写时为19,084,052,962美元，链上交易数量为5,887,033笔。据历史数据显示，以太坊链上NFT销售总额在2021年10月22日突破80亿美元，11月14日突破90亿美元，11月28日突破100亿美元，12月17日突破110亿美元，12月30日突破120亿美元，2022年1月7日突破130亿美元，1月13日突破140亿美元，1月15日突破150亿美元，1月17日突破160亿美元，1月19日单日连续突破170亿美元和180亿美元，这意味着在不到三个月时间里，以太坊链上NFT总销售额增长超过110亿美元，涨幅达到137.5%。
+4. 01月19日消息，隐私公链Secret Network宣布推出4亿美元的生态系统基金，其中包括2.25亿美元的新生态系统基金和1.75亿美元的加速器池。本次融资延续了增长计划，计划将Secret Network建立为Web3的数据隐私中心。据悉，该生态系统基金由SCRT Labs领投，由25个组织出资，其中包括DeFiance Capital，Alameda Research等。
+5. 01月20日消息，Checkout.com以400亿美元估值在其D轮融资中筹得10亿美元。主要投资者包括奥特米特、德龙集团、富兰克林邓普顿及老虎全球等，该公司的一些现有投资者也参加了此轮融资。
+6. 01月20日消息，Azuro宣布完成350万美元种子轮融资，Gnosis、Flow Ventures、Polymorphic Capital领投，Ethereal Ventures、Arrington XRP Capital、Alliance DAO、Delphi Digital、Meta Cartel Ventures、Merit Circle、Clever Advertising、SevenX、OP Crypto、Citizen X、BR Capital、David Post、Alex Wearn、Sergei Chan等参投。
+7. CryptoNews报道，NFT卡牌游戏Spellfire宣布完成380万美元私募融资，DAO Maker和Shima Capital共同领投，Genblock、IBC Group、Faculty Group、IBA、Maven Capital、Autonomy Capital、Terranova Ventures、x21 Digital等参投。
+8. CryptoNinjas报道，DeFi钱包Math Wallet宣布联合生态系统合作伙伴推出价值5000万美元的风投基金Math DAO，将专注于加速web3初创公司的发展，并提供深入的资金和技术支持。
+9. U.Today报道，摩洛哥最大的银行机构Attijariwafa Bank已加入Ripple Net网络。Attijariwafa Bank管理的资产规模达533亿美元，此次合作将使该银行能够与其合作伙伴进行即时交易。Attijariwafa Bank还宣布与新加坡企业对企业（B2B）跨境支付网络Thunes建立合作伙伴关系。据悉，Ripple Net的银行合作伙伴包括Santander、Bank of America、Indus Ind Bank、Banco Rendimento等。
+10. 官方消息，Coinbase宣布上线Shping Coin(SHPING)，目前已开启存款，如果满足流动性条件，将于北京时间1月21日01:00AM或之后开始交易。
+11. 官方消息，DeFi收益聚合器Pancake Bunny发布2022年路线图，Q1和Q2引入新单资产金库（Single Asset Vaults），基于Venus并自动复合奖励；Bunny将提供stBNB；修订费用结构和治理；NFT质押资金库等。Q3和Q4将推出ZAP（一键查看所有内容）、跨链、投资品建议、资产管理等。
+12. CoinDesk报道，加密货币交易所Gemini在收购数字资产管理公司Bitria不到一周后，收购了交易技术平台Omniex后推出了一家主要经纪公司，希望吸引更多的机构投资者。收购Omniex的条款尚未披露。Omniex为机构加密交易者提供订单、执行和投资组合管理服务。Gemini宣布推出Gemini Prime，旨在通过提供对多个交易所和场外流动性来源的访问来简化机构投资者的交易。Gemini Prime已被部分客户使用，将于第二季度全面推出。
+13. U.Today报道，根据BOT Labs GmbH全资子公司BOT Labs Trusted Entity发布的公告，Social KYC身份验证工具已经在Polkadot生态项目KILT Protocol上线。Social KYC与KILT钱包Sporran一起激活，为加密用户提供安全的工具来存储、管理和展示其社交凭证。Social KYC可以为所有验证电子邮件和社交媒体账号的用户创建一个凭据工具包。为了证明账号和电子邮件地址的所有权，用户需要完成简单的任务。Social KYC的凭证可以取代银行机构和加密货币中心化平台的传统KYC认证。
+14. TheBlock报道，据桌游爆炸猫咪（Exploding Kittens）透露，该公司已经与3D打印公司Glowforge合作，为其最新推出的棋盘游戏Happy Salmon在以太坊区块链上发行10枚NFT。根据Exploding Kittens的联合创始人兼首席执行官透露，NFT所有者可以使用Glowforge 3D打印机将他们的NFT打印到Happy Salmon盒子上，或者在二级市场上出售。
+15. 1月20日消息，Terra公链宣布成立非盈利基金会Luna Foundation Guard（LFG），成员由Terra创始成员和专家委员会组成。据称，该委员会致力于UST的稳定性和采用，将通过有针对性的赠款（Grant）和资金促进各类社区驱动的活动的发展。成员具体名单包括Terra创始人DoKwon、Terra创始成员Nicholas Platias，及治理委员会的Remi Tetot、Jonathan Caras、Jose Maria Delgado、Kanav Kariya和Bill Chin。
+16. CoinDesk报道，为区块链服务网络(BSN)提供技术支持的北京红枣科技正在与深圳市政府和新加坡资讯通信媒体发展局（IMDA）合作，建立基于区块链的跨国贸易网络（BTTN）。使用BTTN，公司将能够在国家和公司之间传输贸易数据，同时遵守当地的数据隐私和安全法。与BSN相似，红枣科将BTTN设想为未来全球区块链架构的基础部分。白皮书称，BTTN可以扩展为“一个多边网络”，该网络将“遵守任何司法管辖区的数据法，并支持任何跨境贸易场景中的信息安全”。红枣科技CEO何亦凡表示，该基础设施基于现有的BSN架构，已经开始向数据中心运营商收费，国家发改委下属的中国城市和小城镇改革发展中心、腾讯发起设立的微众银行、物流供应商Link Logis和新加坡政府科技局也参与了该项目。
+17. Cointelegraph报道，据加拿大新闻媒体TorontoStar周二报道，2020年8月，加拿大中东连锁餐厅Tahini’s Restaurant老板Aly Hamam和Omar Hamam以及他们的表亲Ahmed决定将该公司的储蓄转换为比特币，当时比特币的价格约为12000美元。Hamam说：“早在2020年8月，我们就在公司资产负债表上采用了比特币标准，从那时起，我们的初始投资增长了300%以上。”Tahini’s在安大略省的门店目前都不接受比特币或其他加密货币支付，但它们各自都有一台比特币ATM机，允许顾客在餐前、餐中或餐后购买代币。
+18. 1月20日消息，加密货币交易所势将成为美国证交会（SEC）2022年在数字资产领域的整顿重点。美国证交会主席根斯勒周三表示，希望交易平台将在未来几个月采取措施，以受华盛顿金融监管机构更直接的监管。他表示，加强监管对加密货币投资者获得与股票或其它资产投资者同样的保护至关重要。“我已经要求工作人员研究所有方法，将这些平台纳入投资者保护范围，如果交易平台不受监管，公众将再度经受易受冲击的一年。”
+19. CoinDesk报道，FTXUS Derivatives周三任命Larry Thompson为董事会主席。Thompson曾担任LedgerX的董事会主席，该公司在去年被FTXUS收购后成为FTXUS Derivatives。任命的其他董事会成员包括FTXUS Derivatives首席执行官Zach Dexter，他曾担任LedgerX的首席执行官；DTCC董事总经理兼多元化人才管理和发展主管Keisha Bell；Avanti首席技术官Bryan Bishop；Grapefruit Trading的交易员Joe Keefer；Baton Systems公司总裁Jerome Kemp；Robinhood的副总裁兼副总法律顾问Lucas Moskowiz；FTXUS的政策和监管战略负责人Mark Wetjen等。
+20. U.Today报道，澳大利亚证券和投资委员会主席Joseph Longo表示，对个人警告是要小心，不要把你所有的钱都投入到加密货币中。Longo也明确表示，澳大利亚最高金融监管机构并不反对加密货币行业，但它希望根除不良行为。监管加密货币行业具有挑战性，因为许多项目并未归类为“金融产品”。他还提请注意澳大利亚越来越多的与加密货币相关的骗局。
+21. 官方消息，Plege Finance宣布Jeff Strnad加入其战略咨询团队。Jeff是哈佛大学（物理学学士）和耶鲁大学（法学博士和经济学博士）的毕业生，也是金融、统计、法律和区块链领域有影响力的学者和教师。他一直活跃在金融行业，在互联网繁荣时期为初创企业的新融资方法开发监管空间方面发挥了关键作用。Jeff是一家创业公司的创始人，目前从事开发创新的房地产金融模式，旨在促进区块链和DeFi的应用。Pledge致力于成为世界上的比特币贷款市场，不仅专注于提供长期贷款，还提供创建下一代贷款dApps所需的构建块。
+22. TechCrunch报道，美国加密货币交易所Crypto.com的CEO Kris Marszalek在接受采访时承认，其交易所内400多个客户的交易账户受到了黑客攻击。其称，该交易所在攻击事件发生后“大约13-14小时”重新上线，受影响的账户均已获得赔偿。Marszalek表示，事件原因仍在调查过程中，未来几天内将在公司博客公开调查结果。
+23. 01月20日消息，Multichain被盗事件中一名盗取了20万美元资金的黑客在区块交易中写道：“我是白帽黑客，把你损失WETH的交易发给我，我归还80%，剩下的作为我拯救你们资金的小费。“不确定该黑客是否掌握被盗的143万美元资金的钱包。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
+
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,154 @@
 ---
 
 
-## 报道台湾遭中共抗议 印度主播表示不听命于任何政府
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1875996/)
+## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DA5308D3-A304-4CE5-910D-D9ACCD971543.jpeg)（图片来自《大纪元》）
+**Steve Bannon:
+史蒂夫班农:**
 
-据《大纪元》1月16日报道，《今日印度》电视台因为播出了台湾特别节目，并访问了中华民国驻印度代表葛葆萱。
+I just want to make sure we go through it one more time
+我只是想再一次明确实一下
 
-这期节目介绍了台湾在全球供应链所扮演的重要角色，并讨论印度与台湾的经贸及科技合作前景。后据中央社报导，《今日印度》电视台1月8日在《今日世界》节目首播后，又重播了3次，随即收到中共驻印度大使馆向电视台提出的抗议。
+The numbers a day you’ve had CPI now PPI
+你每天的数字是消费者物价指数，现在是生产者物价指数
 
-中共大使馆抗议函中斥责电视台称葛葆萱为“大使”，以及出现青天白日满地红国旗，要求电视台遵守“一个中国原则”（One-China principle）。
+Come by and tell people this is…
+过来告诉人们这是…
 
-电视台女主播莫汉在推特回应说，《今日印度》不听命于任何国家或政府的指示，“我们是独立的新闻网，会对任何国家做我们认为适当的接触或报导。”
+I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
+鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
 
-此外，印度英语电视台《寰宇一家》（WION）去年11月底播出“台湾：良善力量与坚毅精神”（Taiwan: A Force for Good and the Spirit of Resilience）专辑，同样收到了来自中共大使馆的抗议。
+And this is dangerous
+这是很危险的
 
-*参考链接：[报导台湾遭中共抗议 印度主播：不听命任何政府](https://www.epochtimes.com/gb/22/1/15/n13507022.htm)*
+No. 1 our system for these rate increases is talk trying to choke this down
+now our system is set up for negative interest rates
+第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
+
+People don’t understand that the trauma that is going to happen in our financial system
+人们不明白我们金融体系将要发生的创伤
+
+That’s going to roll into your personal life, okay?
+将会影响每个人生活，知道吗？
+
+No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
+第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
+
+Steve Cortes:
+史蒂夫科尔特斯:
+You’re exactly right Steve
+你是非常对的，史蒂夫
+
+Look, if we look at history we see that a lot of political upheaval
+看，如果我们回顾历史，我们会看到很多政治动荡
+
+upheaval that we could say the least evil actually results from inflation
+我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
+
+If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
+如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
+
+If we look at Germany pre-World War II
+如果我们看看二战前的德国
+
+We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
+我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
+
+And in a country that is already as polarized as the United States is
+而在一个已经像美国这样两极分化的国家
+
+This kind of inflation is not just bad economics
+这种通货膨胀不仅仅是糟糕的经济学
+
+It’s actually societally dangerous for our country
+它实际上是对我们国家的社会危险
+
+And that’s why we need to be cleared-eyed about what it is and about policy solution
+而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
+
+Because Steve, we can’t just curse the darkness
+因为，史蒂夫，我们不能只是诅咒黑暗
+
+We have to do that, yes
+是的，我们必须这样做
+
+But as lamentable as this current economic quagmire is
+但与当前的经济泥潭一样可悲的是
+
+This is stagflationary embroil that we face right now in America
+我们美国现在面临的滞胀困境
+
+It does also, Steve, present political opportunity
+史蒂夫，它也确实提供了政治机会
+
+Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
+巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
+
+and to transform the republican party, not of the parties of the chased right
+并改变共和党，而不是被追逐的权利的政党
+
+But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
+反而成为一个真正多民族和多种族的美国工人阶级政党
+
+And the polling is starting to show us that political opening is there
+民意调查开始向我们表明政治开放是存在的
+
+If we have the guts and the gumption to cease it of course the right policies mix as well
+如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
+
+For example, as I mentioned yesterday in the show
+例如，正如我昨天在节目中提到的
+
+I think the most powerful way right now to win both politically as well as get the economy back on track
+我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
+
+get the inflation in control again
+再次控制通胀
+
+and get wages rising is inflation motive
+并提高工资就是通胀动机
+
+We need to absolutely stop illegal migration in this country
+在这个国家，我们需要绝对阻止非法移民
+
+and I believe we need a pause in even legal migration to this country
+并且我相信，就算是合法移民也需要适当暂停
+
+A pause in H-1B and other similar would work which is why let the American people wages starts to rise
+H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
+
+So that we see real wages take off again the way they did under Donald Trump
+这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
+
+instead of the way they are crashing right now under Joe Biden
+而不是现在在乔-拜登领导下崩溃的方式
+
+So, it’s calamity but there’s always opportunity as well in calamity
+因此，这是灾难，但灾难中也总是有机会的
 
 * * *
 
-*素材采编：子辰*
+Date: 01/13/2022
+原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
+Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
+原视频日期：2022/01/13
+原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
+任务编号：KE353（3494）
+视频时间段 : 0:00-02:52
 
-*编辑：青城道姑*
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*发布：miumiu*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

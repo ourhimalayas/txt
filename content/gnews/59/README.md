@@ -2,160 +2,25 @@
 ---
 
 
-## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
+## 加拿大研究人员：北京冬奥会APP“冬奥通”搜集审查用户数据，存在安全隐患
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1877950/)
 
-Marjorie Taylor Greene (the U.S. representative of Georgia)
-玛乔丽·泰勒·格林 (美国佐治亚州众议员）
+翻译：zzballack
+上传：追着曙光跑
 
-I’m just happy to see that that the media and you know
-我很高兴看到媒体和你知道
+据《布雷特巴特新闻网》（Breitbart News）1月18日报道，加拿大多伦多大学的网络安全监督小组“公民实验室（Citizen Lab）”的研究人员1月18日发布报告说，运动员、记者和观众等所有北京冬奥会的与会人员被中共强制要求下载的手机应用程式“冬奥通（MY2022）”存在严重的安全漏洞：用于加密用户语音音频和文件传输的加密技术可以轻易被绕过。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-19-at-10.57.16.jpeg)图片来源：原新闻
+公民实验室还发现，用于传输护照详情、个人健康信息以及医疗旅游史的健康申报表也存在安全漏洞。服务器响应也可以被欺骗，允许攻击者向用户显示虚假指令。“冬奥通”相当直接地要求用户提供与参加奥运会有关的信息，并且收集一系列高度敏感的医疗健康资料等个人隐私信息，但它并没有清楚列出会向谁或哪些机构共享和披露这些高度敏感信息。研究人员指出：“‘冬奥通’包括的功能之一是收集用于健康监测的医疗信息清单，其中包括用户每天自我报告的健康状况，新冠疫苗接种状况，以及新冠地实验室测试结果等等。”
 
-my colleagues here on Capitol Hill are starting to catch up what
-我在国会山的议员同事们开始跟上了
+“冬奥通”还包括一个让用户向中共当局举报“政治敏感内容”的功能。“冬奥通”有一个秘密的“审查关键词列表”，其中有2442个条目，内容涉及藏传佛教、新疆维吾尔族、天安门广场大屠杀、共产党精英之间的内斗以及对中共国的批评等等。该审查列表在分析的软件版本中没有被启用。但在冬奥会开始后可能会发生变化。“冬奥通”有内置的文本和语音聊天工具，也可能会受到审查。
 
-what the American people have known all along
-美国人民一直都知道的
+多伦多大学的团队深入研究了“冬奥通”的隐私政策，发现与其他许多的中共应用程式一样，在“几种情况”下，“冬奥通”可以在未经用户同意的情况下披露私人信息–包括但不限于“国家安全事务、公共卫生事件和刑事调查”。中共有宣布一切都为“国家安全事务”的习惯，所以这相当于为中共情报人员提供了一个全面的许可，以获取他们认为重要的任何用户数据。而且隐私政策在获取个人信息是否需要任何形式的法院命令问题上相当含糊。
 
-none of us trusted Fauci
-我们都不信任福奇
+也许最令人不安的是，该报告发现了许多关键的安全缺陷，比如未能验证安全链接的电子安全证书或对敏感数据进行加密。因此，来自用户手机的大量敏感数据将容易被连接到同一wifi网络的“被动窃听者”窃取。
 
-And that’s why I introduced the Fire Fauci Act early early last year
-这就是为什么我在去年初介绍了《解雇福奇法案》
+于1月17日上传到苹果商店的最新版本“冬奥通”，不仅没有修复上述这些安全问题，还引入了一个新的安全缺陷–健康码系统要求用户提供旅行文件和医疗记录，然后在没有验证安全证书的情况下将其传输到中国服务器。报告总结说：“我们发现该软件的安全漏洞不仅可能违反谷歌的不受欢迎的软件政策和苹果的应用程序商店指南，而且也可能违反了中共自己的法律和有关隐私保护的国家标准。”
 
-because this is the man that is at the root of all of our problems
-因为这个人是我们所有问题的根源
-
-But I’d like to walk back even a little further
-但我还想往回走得更远一点
-
-Steve, I’m going to go ahead and say this
-史蒂夫，我要继续将这个说下去
-
-and it’s been upsetting to me ever since it happened
-自从病毒发生以来，我一直很不安
-
-But when we shut our country down
-但是当我们关闭我们的国家时
-
-when we shut it down to so called slow the spread
-当我们关闭国家以所谓的减缓传播时
-
-I knew we broke America. We broke our country
-我知道我们破坏了美国，我们破坏了我们的国家
-
-When that happened, we stopped the supply chain
-发生这种情况时，我们停止了供应链
-
-We, you know, factories whose machines stay up running 24 hours a day had to shut down
-我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
-
-people went home and that is really what broke our country
-人们回家了，而且这真的是我们国家崩溃的原因
-
-and now it’s going to take a very long time to get back on track
-现在需要很长时间才能回到正轨
-
-And the biggest problem is, is we have people here in Washington
-最大的问题是，我们在华盛顿这里的人
-
-that are serving global interests or are interested in helping the great reset happen
-为全球利益服务或有兴趣帮助大重置的发生
-
-and are not serving the American people
-并且不为美国人民服务
-
-Inflation is very scary and it’s getting out of control.
-通货膨胀非常可怕，而且正在失控
-
-When the Fed is going to have to step in and raise interest rates
-当美联储将不得不介入并提高利率时
-
-We have long term problem that will not end by next year
-我们有长期的问题，明年不会结束
-
-they’re not going to end it two years
-他们不会在两年内结束它
-
-Here’s here’s the real issue when the cost of producing goods has increased so much
-当生产商品的成本增加如此之多时，这才是真正的问题
-
-and then the ability to provide the goods to the consumer are completely disrupted
-然后将商品提供给消费者的能力被完全破坏
-
-We have stagflation, but we also have real problems
-我们有滞胀，但我们也有真正的问题
-
-The biggest problem driving the cost of producing goods is several factors
-推动商品生产成本的最大问题是几个因素
-
-One of them is this mass COVID testing
-其中之一就是这种大规模的COVID测试
-
-mass COVID testing is continuing the panic in this in the society
-大规模的COVID测试正在继续在社会中引起恐慌
-
-and but it’s also giving people a reason to get out of work.
-但病毒也造成了人们失业
-
-You know what if you have a positive COVID test, whether you’re sick or not
-你知道如果你的COVID测试呈阳性，无论您你是否生病
-
-you have to stay home, and that means
-你必须待在家里，而且这意味着
-
-that it’s more expensive for the company to continue producing the goods or services that they provide
-公司继续生产他们提供的商品或服务的成本会更高
-
-because they less have less people there at work
-因为他们工作的人少了
-
-And then you have less people to unload the train, unload the cargo, put it back on the shelf
-然后你就没有多少人来卸火车，卸货物，把它放回货架上
-
-I mean, we have so many serious problems
-我的意思是，我们有很多严重的问题
-
-and we can point it all at one man that is Dr. Fauci
-我们可以把这一切都指向一个人，那就是福奇博士
-
-Dr. Fauci is responsible for all of this, he created the gain of function
-福奇博士对此负一切责任，他创造了功能增强研究
-
-He gave it to China, they created the bio weapon
-并把它给了中共，中共创造了生物武器
-
-which is COVID-19 and it broke the world
-这就是COVID-19，它破坏了世界
-
-but our government and anyone that goes along with this
-但如果我们的政府和任何工作人员
-
-and doesn’t fire Fauci, investigate him, prosecute him
-不去解雇福奇，调查他，起诉他
-
-and hold him accountable is failing the American people
-追究他的责任，那就是辜负美国人民
-
-* * *
-
-Date:01/15/2022
-原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
-玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
-原视频日期：2022/01/15
-原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
-任务编号：KE350（3492）
-视频时间段 : 0:00-2:44
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作： 洛杉矶盘古农场 – 天涯行
-审片： 洛杉矶盘古农场 – 银龙
-发布： 洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+信息来源：[Mandatory Olympic Athlete App Gives China Data Goldmine](https://www.breitbart.com/asia/2022/01/18/mandatory-olympic-athlete-app-gives-china-data-goldmine/)
 
  
 

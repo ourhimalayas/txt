@@ -2,155 +2,38 @@
 ---
 
 
-## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
+## 迷信套娃
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1879663/)
 
-[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6fa2c1f07cfa418e89f1a75281c4deff_th.png)
+共产党的迷信已经在全世界都传开了，盘古龙头变包头，连最普通的老百姓都知道那个龙头才是风水，怎么能把风水给罩起来。但是习近平才不管那个，你只是个普通老百姓你懂什么，你小心点讲话，多讲一句把你抓起来。就算你人都去美国了，还是要想尽办法不让你说话，要把你抓起来。郭先生从2017年开始被共产党缠讼的官司，一直到现在，就是共产党独裁的统治手段。
 
-**Steve Bannon:
-史蒂夫班农:**
+这五年来，每次官司法官还不知道案情呢，熊宪民和博讯网就和先知预言一样，比任何人都知道案情的结果，甚至还知道具体的金额钱数。共产党每次挑的开庭的日子也是如此蹊跷。最近一段时间连续发生的事情，不难看出为了冬奥会，确切地说是中共为了打击那个最开始抵制北京冬奥会的郭先生，几乎是一套活，整整齐齐都上。首先是对盘古的抢劫，把七哥的老父亲和员工都撵到冬天的大街上，对裕达的“接管”，然后单伟建推出的杨贝贝HBO vice播出了对七哥的污蔑，里面充满了各种各样的伪类，没过多久又是另外一个和Q组织邪教有关的视频，紧接着就是纽约法官宣布取消Cahill代理律师的资格，七哥在这个长达五年的缠讼官司中终于赢了一次。然而情况并没有那么顺利，这个官司后面紧接着，共产党预计在2月2号大年初一，开庭下一个假案子。七哥说共产党就是要挑这些众所周知的欢乐祥和的日子，让七哥承受压力和羞辱，好让共产党得到一丝迷信的喘息机会。
 
-I just want to make sure we go through it one more time
-我只是想再一次明确实一下
+![](https://assets.gnews.org/wp-content/uploads/2022/01/685709c44c8142f5ae27e370696c2f62-180.jpg)习近平考察冬奥会 / 图源：网路
 
-The numbers a day you’ve had CPI now PPI
-你每天的数字是消费者物价指数，现在是生产者物价指数
+这可能也是某些人送给习近平政府2月4号即将到来的冬奥会开幕式的礼物，毕竟习近平对自己的家人好到没话说的，就算他的母亲齐心曾经在他年幼的时候把逃回家的他赶出了家门。冬奥会是习近平母亲的愿望，2月4号的冬奥会开幕式据说早早就在编排节目了。2月2号和2月4号离得这么近，现在全球都是在反对冬奥会，起码西方文明国家都态度明确地表示不去，就连俄罗斯普京就算收了钱，也反悔了，说个人原因去不了。北朝鲜虽然是中共的小弟，但估计是听说了普京连代表个人都不愿意参与时，金家果然就宣布整个国家都不会去冬奥会了。去不去冬奥会变成了一种政治站队。七哥爆料说那些讲条件的中东国家，起初本来就是该答应的都答应给了，又是给钱又是武器又是免债，结果这些国家来了以后又开始提要求，你让我们参加冬奥会可以啊，接受数字人民币可以啊，但你买我这里的东西要用美元结算，并且要随时能够提现的那种，王毅傻了眼了。一个冬奥会劳民伤财不说，国内几千万人都在准备这个冬奥会，天津、河北、西安、郑州这些地方的老百姓被以疫情为由死死地管控起来，出门的永远没有一个老百姓，你一出门就必须得是警察和城管，外面走动的看起来像老百姓的估计都是便衣。天安门历来那些小摊贩们，卖这个卖那个，各种闲逛的，都是便衣。这个冬奥会现在围绕会场的军队驻扎所在地，能够决定共产党生死的那种，全部都围了一圈，里三层外三层，反正不知道谁这么怕死，开个冬奥会看样子吓都能把自己吓死。
 
-Come by and tell people this is…
-过来告诉人们这是…
+而给共产党造成实质性伤害的就是郭先生在2017年开始的这场爆料革命运动，冬奥会是习近平的大日子，怎么能没有点措施实行对爆料革命的打压呢。对郭先生的缠讼案，背后的根本原因就是共产党要阻止郭先生爆出他们所做的邪恶的事情来，窗户纸肯定会被捅破。大洪水的治理方法永远不是堵水，而是输水，想要阻止别人说出你犯过的罪，那你不犯罪还怕别人说吗？共产党心里处处都是鬼，中国大地上冤死的鬼魂们到底有多少，怎么那些中共的警察都害怕打雷呢，一打雷个个都躲得严严实实的，生怕自己被雷劈了。
 
-I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
-鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/15romney-master1050.jpg)
 
-And this is dangerous
-这是很危险的
+七哥说并不想总是说些非自然力量的事情，神神叨叨的。是的，毕竟这些东西，人类目前已知的都有限，一旦被那些坏人给利用了，就被勾走了。尤其是共产党统治下的中共国，随便什么人都能掐指一算，尽管共产党自己标榜着无神论者，不允许国内老百姓信神拜佛，有宗教信仰，但是他们的迷信劲儿可是一样都没少。又是改风水还要大修祭坛，干什么都要挑日子，你看这次要和七哥的开庭，就选在了大年初一，很明显的，七哥说那个官司共产党要让七哥败，共产党就是用这种民间的迷信来开启壬寅年的吗？要造成什么假象？如果共产党的壬寅年一开年就收到的美国法院对七哥的乱判结果，能预示所谓的凶险的壬寅年就可以平安无事地度过吗？民间真有这么一说，开年喜事，一年平安，但这说的是自然而来的事。共产党提前安排那是作弊，和当年修祭坛一样的。共产党都想改中国的风水呢，想代表自然和造物主那神奇而伟大，亘古久远的力量，还愣把自己和6500万年前的昆仑山扯上关系呢，无知狂妄。
 
-No. 1 our system for these rate increases is talk trying to choke this down
-now our system is set up for negative interest rates
-第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
-
-People don’t understand that the trauma that is going to happen in our financial system
-人们不明白我们金融体系将要发生的创伤
-
-That’s going to roll into your personal life, okay?
-将会影响每个人生活，知道吗？
-
-No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
-第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
-
-Steve Cortes:
-史蒂夫科尔特斯:
-You’re exactly right Steve
-你是非常对的，史蒂夫
-
-Look, if we look at history we see that a lot of political upheaval
-看，如果我们回顾历史，我们会看到很多政治动荡
-
-upheaval that we could say the least evil actually results from inflation
-我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
-
-If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
-如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
-
-If we look at Germany pre-World War II
-如果我们看看二战前的德国
-
-We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
-我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
-
-And in a country that is already as polarized as the United States is
-而在一个已经像美国这样两极分化的国家
-
-This kind of inflation is not just bad economics
-这种通货膨胀不仅仅是糟糕的经济学
-
-It’s actually societally dangerous for our country
-它实际上是对我们国家的社会危险
-
-And that’s why we need to be cleared-eyed about what it is and about policy solution
-而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
-
-Because Steve, we can’t just curse the darkness
-因为，史蒂夫，我们不能只是诅咒黑暗
-
-We have to do that, yes
-是的，我们必须这样做
-
-But as lamentable as this current economic quagmire is
-但与当前的经济泥潭一样可悲的是
-
-This is stagflationary embroil that we face right now in America
-我们美国现在面临的滞胀困境
-
-It does also, Steve, present political opportunity
-史蒂夫，它也确实提供了政治机会
-
-Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
-巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
-
-and to transform the republican party, not of the parties of the chased right
-并改变共和党，而不是被追逐的权利的政党
-
-But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
-反而成为一个真正多民族和多种族的美国工人阶级政党
-
-And the polling is starting to show us that political opening is there
-民意调查开始向我们表明政治开放是存在的
-
-If we have the guts and the gumption to cease it of course the right policies mix as well
-如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
-
-For example, as I mentioned yesterday in the show
-例如，正如我昨天在节目中提到的
-
-I think the most powerful way right now to win both politically as well as get the economy back on track
-我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
-
-get the inflation in control again
-再次控制通胀
-
-and get wages rising is inflation motive
-并提高工资就是通胀动机
-
-We need to absolutely stop illegal migration in this country
-在这个国家，我们需要绝对阻止非法移民
-
-and I believe we need a pause in even legal migration to this country
-并且我相信，就算是合法移民也需要适当暂停
-
-A pause in H-1B and other similar would work which is why let the American people wages starts to rise
-H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
-
-So that we see real wages take off again the way they did under Donald Trump
-这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
-
-instead of the way they are crashing right now under Joe Biden
-而不是现在在乔-拜登领导下崩溃的方式
-
-So, it’s calamity but there’s always opportunity as well in calamity
-因此，这是灾难，但灾难中也总是有机会的
+人们常说见多识广，共产党的官员们其实见得也蛮多，又是各国政要，又是性侵幼童，什么艺术家，什么明星艺人网红，再贵的奢侈品再好的艺术创作都是当做自家的抹布来用。要说啥也没见过，也说得通，世界上和共产党同流合污的都是同样的邪恶的人，那些不和他们为伍的早都离开了。物以类聚，人分群邦，到现在了还越是和共产党走的近的，比共产党还贪婪还邪恶，中东国家不就是例子吗。所以习近平开冬奥会，要防的永远不是别人，是共产党内部要杀他的人。
 
 * * *
 
-Date: 01/13/2022
-原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
-Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
-原视频日期：2022/01/13
-原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
-任务编号：KE353（3494）
-视频时间段 : 0:00-02:52
+作者：骄子
+发布：骄子
 
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+ 
 
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
