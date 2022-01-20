@@ -2,12 +2,19 @@
 ---
 
 
-## 哈恩维尔：路透社报道距冬奥会20天，北京发现中共病毒感染
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1883673/)
+## 迷信是对死亡的恐惧
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883874/)
 
-01/15/2022 本·哈恩维尔和班农讨论一篇路透社文章：距冬奥会20天，北京发现中共病毒感染（可能是奥米炕变种）。路透社1.5小时候将文章下架。中共国病毒疫情失控。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：*Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,27 +2,37 @@
 ---
 
 
-## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
+## 巴拉圭总统夫妇二人接种两剂疫苗仍旧感染
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883412/)
 
-据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
-芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+1月18日，巴拉圭卫生部发布通知，该国总统贝尼特斯于当天确诊感染中共病毒，所幸症状轻微，目前正在隔离中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1558.png)
+据悉，贝尼特斯的夫人于16日确诊感染中共病毒，而夫妇二人均已完成两剂疫苗接种。据巴拉圭卫生部公布的数据显示，该国目前累计中共病毒确诊病例超过50万例，累计死亡近1.7万例。
 
-法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
+新闻链接：
+[台灣友邦巴拉圭總統確診 症狀輕微隔離中](https://news.ltn.com.tw/news/world/breakingnews/3805444)
 
-文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – 柯镇恶
+[巴拉圭总统新冠检测呈阳性](http://www.news.cn/world/2022-01/19/c_1128276096.htm)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
 
+总编：飞虹
+
+编辑：DM
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

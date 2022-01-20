@@ -2,36 +2,29 @@
 ---
 
 
-## 洛杉矶某校未接种新冠疫苗学生受到虐待
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
+## 轻度感染中共病毒后几个月出现注意力和记忆力问题
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1883530/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
-据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
+#### 撰稿：彩虹 
 
-新闻来源:
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-18.jpg)图片来源：爱尔兰时报
+1月19日，《国会山报》报道，周三发表的一项新研究显示，经历过轻度感染中共病毒（COVID-19）的人表现出注意力和记忆力问题，但这些问题似乎只是暂时的。
 
+牛津大学的研究人员对136人进行了研究，其中包括感染过中共病毒的人和没有感染过的人。当涉及到睡眠周期、疲劳和焦虑等因素时，曾感染过中共病毒的参与者与对照组的人没有明显区别。
 
+所有这些人都被要求执行12项不同的认知任务，包括物体记忆、空间跨度和运动控制方面的任务。
 
-> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
+研究结果显示：“中共病毒幸存者在感染中共病毒后的9个月内，在一项要求很高的任务上保持注意力的能力明显下降，同时，在长达6个月的时间里，虽然较为轻微，但他们的情节记忆 (Episodic memory)却明显下降”，后者指的是回忆个人过去的事件。
 
+研究人员指出，该研究有一些局限性，如样本量小。
 
+参与该研究的牛津大学教授马苏德·侯赛因（Masud Husain）在一份声明中说：“我们仍然不了解导致这些认知缺陷的机制，但是看到我们测试的大多数人在感染后的6-9个月内这些注意力和记忆力基本恢复正常,这是非常令人鼓舞的” 。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+**新闻来源**
 
-总编/编辑: 飞虹
+[Memory problems seen months after mild COVID-19 infections, researchers say](https://thehill.com/policy/healthcare/590455-memory-problems-seen-months-after-mild-covid-19-infections-researchers-say?rl=1)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
