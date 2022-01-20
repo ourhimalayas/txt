@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 2:20 AM (UTC)`
+
+1/19/2022 Miles Guo: We will have the H-Insurance and the digital space program! The New Federal State of China is from heaven, and we will definitely not allow the Party of Davos to succeed in its plan to create digital slavery. The evil twins, the CCP and the Party of Davos, are not far from their end!<br/><br/>1/19/2022 文贵直播：我们将拥有喜保险和数字太空；新中国联邦从天上来，我们一定不会让达沃斯党创建数字奴隶制的计划得逞；中共和达沃斯党这对邪恶的孪生兄弟离死期不远了！<br/>
+![img](https://media.gettr.com/group30/getter/2022/01/20/02/61bd8037-d013-6e3d-3b28-d374f5a63d10/out.jpg)
+
+---
+
 `@miles 1/20/2022 12:09 AM (UTC)`
 
 1/19/2022 Miles Guo: The New Federal State of China is saving the entire humanity! It’s the first time in the past 5 years that I seriously talk about the Party of Davos, the Communist Party of the World. Humankind is faced with the disasters caused by the CCP virus and its vaccines. If the Party of Davos is not brought to justice, the earth will be destroyed! The CCP and the Party of Davos are the origins of all evil!<br/><br/>1/19/2022 文贵直播：新中国联邦在拯救全人类！5年来文贵首次认真谈达沃斯党 - 世界的共产党！人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源!<br/>
@@ -147,13 +154,6 @@
 
 1/17/2022 Miles Guo: This Pacific Alliance case is so ridiculous! Pacific Alliance sued me, the loan guarantor, out of nothing despite there being legal documents proving that the borrower had repaid the loan. A New York court accepted this case regardless of the fact that the plaintiff is not in New York and neither did the whole thing happen in New York. The defendant was not allowed to challenge the verdict, and they seek to seize the property that does not belong to the defendant<br/><br/>1/17/2022 文贵直播: 太平联盟一案荒谬至极！太平联盟在有法律文件证明借方已还清贷款的情况下却无中生有起诉贷款担保人，而纽约法院受理了一个当事人和事件都不在纽约的案件，而且既不允许被告对判决提出任何质疑，又要查封不属于被告的财产！<br/>
 ![img](https://media.gettr.com/group17/getter/2022/01/18/05/e4554f3f-56bd-6706-3f96-df3e191b2f7a/out.jpg)
-
----
-
-`@miles 1/18/2022 4:28 AM (UTC)`
-
-1/17/2021 Miles Guo: The largest corruption case in the DOJ history reflects the CCP spies’ infiltration in the Western judicial system. Pacific Alliance hired a former FBI official bought off by Bruno Wu as the investigative attorney and even used fake evidence about GTV fabricated by Duowei News, which belongs to the CCP’s intelligence agency network<br/><br/>1/17/2021 文贵直播：美国司法部史上最大的腐败案反映了中共间谍对西方司法的渗透；太平联盟雇了被吴征收买的前FBI官员做调查律师，并使用中共情报网站多维捏造的关于GTV的假证据<br/>
-![img](https://media.gettr.com/group31/getter/2022/01/18/04/c9d877fd-e5e2-f157-7fc5-28d1f8124c27/out.jpg)
 
 ---
 

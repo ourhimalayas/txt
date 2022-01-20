@@ -2,21 +2,26 @@
 ---
 
 
-## 魁北克对未接种疫苗者征税将引发社会动荡
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1882133/)
+## 七哥分享人生感悟和成功经验（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882158/)
 
-采编翻译：Spirit          编辑撰稿，发稿：硫酸羟氯喹64
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-35-edited.jpg)图片来源：CTV
+最早那个女巫披着黑色衣服，长发是吧？哇往那一坐，我最喜欢就是印度的的妖乐，我最喜欢，人家那个女巫，就像刚才twins穿着黑衣服长袍在那里，穿着黑衣服，长袍，然后发出声音喊出来，哇，那个底气就觉得她们那个丹田之气就没完没了，实际上是印度唱歌的叫呼吸。刚才你发现Rica唱歌牛在哪儿吗？
 
+RICA没有呼吸没有断气，厉害呀，真的厉害啊。在印度的最高境界，她这个气就不带管的。你看今天的twins的音乐已经到了这是绝对的音乐的范儿。绝对是音乐的范。但是呢，人与人之间，你看我过去的一年，小飞侠，你看我管理有多少人，每个人的关系我都记得，今天北极星虽然中文表达不清楚啊，让我很不悦悦，英文竟然比我好，你还不学郭式英文，这不对的，你要学郭式英文啊，要中英文都听得懂不用翻译的英文叫郭式英文啊，所以说，你一定要记住啊，就是像今天咱们这些说一下我都能记得很清。
 
-据《CTV新闻》1月12 日报道，多位专家警告魁北克省史无前例地对未接种“新冠病毒”疫苗的成年居民惩罚性征收“健康税”的措施，将会造成社会的极度分裂和对民主自由体制的致命破坏。
+我们的家人，每个人都有不同机会，管理人际关系是你最牛的打开你成功的第一把钥匙。 小飞侠你是绝对缺失这个，你不善与人沟通，你不善于人打开心扉，同样的事，别人也不会给你一块沟通打开心扉。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥分享人生感悟和成功经验（四）-.jpg)
+*发布：*tianzhihuan
 
-报道称，[蒙特利尔大学]生物伦理学教授对此表示，由于这项征税措施即没有尊守公平的公共卫生原则，也未尊重公正的宪法规定，因此当局的以上违宪之举不仅不会增加未接种疫苗者的压力和改变其拒绝接种的决定，反而将进一步加剧疫情引发的大量不公平现象所导致的各种灾难。
-
-据悉，[加拿大公民自由协会]在其最近的声明中强调，鉴于《权利和自由宪章》中确定每个人都对其身体健康和医疗决定有着完全的自主权，因此魁省的此项惩罚性税收政策将导致严重的后果，并势必引发民众的强烈反抗和今后对当权政府的全面追责。
-
-原文链接：[https://www.ctvnews.ca/health/coronavirus/quebec-wants-to-tax-the-unvaccinated-but-experts-say-it-could-backfire-1.5737101](https://www.ctvnews.ca/health/coronavirus/quebec-wants-to-tax-the-unvaccinated-but-experts-say-it-could-backfire-1.5737101)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## G翻身不是卖衣服是找买衣服的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882376/)
+## 喜币无缝链接的绝对安全性
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882451/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
