@@ -15,98 +15,98 @@
 
 ---
 
-### [扬帆每日速递 2022年1月20日版（1）](/content/gnews/1/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [扬帆每日速递 2022年1月20日版（1）](/content/gnews/2/README.md)
  ` 温哥华扬帆农场`
 
-### [家庭反洗脑序列：第44篇 封城](/content/gnews/2/README.md)
+### [家庭反洗脑序列：第44篇 封城](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新冠肺炎：下周四英国将取消强制佩戴口罩和新冠肺炎护照](/content/gnews/3/README.md)
+### [新冠肺炎：下周四英国将取消强制佩戴口罩和新冠肺炎护照](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【圆成原创】中共国利用冠状病毒大流行病扩大了对中南美国家渗透影响](/content/gnews/4/README.md)
+### [【圆成原创】中共国利用冠状病毒大流行病扩大了对中南美国家渗透影响](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新中国联邦在以疫灭共的鏖战中斩获胜果](/content/gnews/5/README.md)
+### [新中国联邦在以疫灭共的鏖战中斩获胜果](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [澳大利亚刚执行5-11岁儿童疫苗注射，死亡已经开始](/content/gnews/6/README.md)
+### [澳大利亚刚执行5-11岁儿童疫苗注射，死亡已经开始](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大通货膨胀率创30年新高](/content/gnews/7/README.md)
+### [加拿大通货膨胀率创30年新高](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [鲍里斯：中共病毒疫苗强制认证将于下周四在英格兰结束](/content/gnews/8/README.md)
+### [鲍里斯：中共病毒疫苗强制认证将于下周四在英格兰结束](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [忽视最高法院对疫苗接种强制令的裁决将导致破产](/content/gnews/9/README.md)
+### [忽视最高法院对疫苗接种强制令的裁决将导致破产](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年1月19日郭文贵先生直播全文字版](/content/gnews/10/README.md)
+### [2022年1月19日郭文贵先生直播全文字版](/content/gnews/11/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [星巴克、通用电器取消雇员强制疫苗要求](/content/gnews/11/README.md)
+### [星巴克、通用电器取消雇员强制疫苗要求](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【圆成原创】正义的人们在觉醒！](/content/gnews/12/README.md)
+### [【圆成原创】正义的人们在觉醒！](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [1/19/2021 文贵直播：病毒终于接近尾声，疫苗灾难接踵而至](/content/gnews/13/README.md)
+### [1/19/2021 文贵直播：病毒终于接近尾声，疫苗灾难接踵而至](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈战斗就在刚才（2022-01-17摘录）](/content/gnews/14/README.md)
+### [七哥谈战斗就在刚才（2022-01-17摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [西澳大利亚推迟重开边境计划](/content/gnews/15/README.md)
+### [西澳大利亚推迟重开边境计划](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [德国预计在二月中旬迎来本次CCP病毒感染高峰](/content/gnews/16/README.md)
+### [德国预计在二月中旬迎来本次CCP病毒感染高峰](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议](/content/gnews/17/README.md)
+### [肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美民主党长达数月推动的《投票权》法案彻底失败](/content/gnews/18/README.md)
+### [美民主党长达数月推动的《投票权》法案彻底失败](/content/gnews/19/README.md)
  ` 华盛顿DC-Russian`
 
-### [自然免疫力在美国Delta浪潮中比疫苗更有效](/content/gnews/19/README.md)
+### [自然免疫力在美国Delta浪潮中比疫苗更有效](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [距离举办冬奥会不到20天：外交抵制、不透明的数据和压制](/content/gnews/20/README.md)
+### [距离举办冬奥会不到20天：外交抵制、不透明的数据和压制](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [尼古拉-斯特金说：苏格兰的所有Omicron限制将于周一结束](/content/gnews/21/README.md)
+### [尼古拉-斯特金说：苏格兰的所有Omicron限制将于周一结束](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [班农战斗室：功能增强的病毒比核弹头的杀伤力还要大](/content/gnews/22/README.md)
+### [班农战斗室：功能增强的病毒比核弹头的杀伤力还要大](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平在2022达沃斯论坛的演讲预示中共灭亡](/content/gnews/23/README.md)
+### [习近平在2022达沃斯论坛的演讲预示中共灭亡](/content/gnews/24/README.md)
  ` 华盛顿DC-Russian`
 
-### [法律是人类安全公平的社会基石](/content/gnews/24/README.md)
+### [法律是人类安全公平的社会基石](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [全球主义家、政客、官僚想通过疫苗政策把人民长久的压迫在指尖之下](/content/gnews/25/README.md)
+### [全球主义家、政客、官僚想通过疫苗政策把人民长久的压迫在指尖之下](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共国打算对2022年的北京冬奥会运动员进行监视？](/content/gnews/26/README.md)
+### [中共国打算对2022年的北京冬奥会运动员进行监视？](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西方以冷漠的态度，允许中共独裁专制资本主义的扩张](/content/gnews/27/README.md)
+### [西方以冷漠的态度，允许中共独裁专制资本主义的扩张](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NBA并不关心中共国的种族灭绝事件，他们收了中共的钱](/content/gnews/28/README.md)
+### [NBA并不关心中共国的种族灭绝事件，他们收了中共的钱](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视](/content/gnews/29/README.md)
+### [埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵盖特音频2022.01.20](/content/gnews/30/README.md)
+### [郭文贵盖特音频2022.01.20](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [Hcoin To the Moon上线49天第41次位列新西兰iTunes摇滚音乐榜首](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [GTV新闻访谈简报|2022年1月20日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
