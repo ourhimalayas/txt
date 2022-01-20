@@ -2,36 +2,37 @@
 ---
 
 
-## 洛杉矶某校未接种新冠疫苗学生受到虐待
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
+## 因担忧中共国疫情，NBC宣布不会派遣体育报道团队参加 2022北京冬奥会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1883468/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
-据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
+翻译/撰稿：GoergeC（乔治）
+校对：zzballack
+上传：追着曙光跑
 
-新闻来源:
+据《今日美国》（USATODAY）1月19日报道，当2022北京冬奥会日益临近时，美国全国广播公司(NBC)的一位发言人本周三下午告诉《今日美国》，由于担心中共国的中共病毒（新冠病毒）疫情加剧，他们不会派遣其任何体育报道团队前往中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-20-at-15.58.39.jpeg)图片来源：原新闻
+NBC体育部的高级通讯副总裁格雷格·休斯（Greg Hughes）在接受电话采访时表示：“出于对中共病毒疫情的担忧，我们将在位于康涅狄格州斯坦福市的总部报道包括花样滑冰在内的冬奥会赛事。”
 
+格雷格称NBC在北京仍有大量的人员，所有的报道将一如既往是一流的，但计划每天都在变化，就像其它大多数报道冬奥会的媒体一样。
 
+NBC的花样滑冰、高山滑雪和单板滑雪转播团队本应在北京实地进行，但这些计划已被取消。
 
-> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
+NBC的奥运会主持人迈克·蒂里科（Mike Tirico）仍将在中共国参加2月4日举行的开幕式和奥运会的前几天赛事，随后他将前往洛杉矶，主持2月13日的超级碗（Super Bowl），NBC也将转播该比赛。
 
+众多冬奥会报道团队已经计划驻扎在康州的斯坦福。NBC在报道2021年7月至8月的东京夏季奥运会时已经采用了类似的策略。但是一些新闻媒体仍选择在现场报道最受欢迎的比赛项目，比如游泳和体操。
 
+当然，早在奥米炕（Omicron）变种开始在世界各地肆虐之前，人们就已经对前往北京有越来越多的担忧。任何前往北京旅行的人，包括世界各国的运动员和经过认证的媒体工作人员，都可能由于在奥运期间检测出阳性而不得不隔离数天甚至数周。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+NBC的奥运会制作总裁兼执行制片人莫利·所罗门 (Molly Solomon)说：“北京模式将与东京非常相似。我们的奥运报道工作实际上将在位于斯坦福的NBC体育总部进行。在总部的人员将比北京多。随着中共病毒的不断变化和中共的零容忍政策，一切都增加了复杂性。NBC为了确保能够为美国观众提供相同水准的优质体验，于是决定在北京和斯坦福两个城市之间进行分工合作。”
 
-总编/编辑: 飞虹
+单板滑雪分析师托德·理查兹（Todd Richards）告诉《今日美国》体育部，NBC本周因担心疫情的相关政策而改变了报道计划。他说：“我认为NBC担心，如果有人中共病毒检测呈阳性，中共政府基本上会带走并隔离你，他们就无法控制局面。所以他们希望有更多的控制权。”
 
-校正/发稿：浪迹天涯
+另外，北京公布的防疫规定说，所有媒体都必须与运动员保持距离。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+理查兹说：“在美国工作的新闻报道人员将在冬奥会期间执行‘吸血鬼时间表’，因为北京时间比美国东海岸时间早13个小时。”
+
+信息来源：[NBC won’t send sports announcing teams to 2022 Winter Olympics in Beijing due to COVID-19](https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

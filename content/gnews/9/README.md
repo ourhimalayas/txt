@@ -2,8 +2,8 @@
 ---
 
 
-## 今年送棺材活动只送给施巫术的：习、王、孟、江
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883542/)
+## 习近平的政治婚姻
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883621/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

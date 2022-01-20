@@ -2,33 +2,36 @@
 ---
 
 
-## 英国结束中共病毒相关限制
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1883249/)
+## 洛杉矶某校未接种新冠疫苗学生受到虐待
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
 
-#### 采编/翻译：意翎
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
+据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
 
-#### 责编：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237825458-700x420-2.jpg)图片来源：the epoch times
-大纪元时代的周莉莉（Lily Zhou）报道，周三，英国首相鲍里斯·约翰逊（Boris Johnson）宣布，英国将取消包括疫苗护照、强制口罩和在家工作要求在内的限制。他还建议，随着中共病毒大流行成为地方病，自我隔离规则可能在3月底被抛弃。
+新闻来源:
 
-从本周四开始，英国任何地方都将不再强制人们在室内戴口罩，政府也不再要求人们在家工作。1月26日即将到期的对夜总会和大型活动的中共病毒通行授权不再延续。要求中学生在上课和公共场所戴口罩的规定也将从教育部的国家指导中删除。约翰逊作此宣布时，下议会议员们发出热烈的欢呼声。
 
-鲍里斯说：“随着新冠肺炎流行，我们需要以建议和指导取代法律要求，敦促感染病毒的人小心并为他人考虑”。中共病毒检测呈阳性的人以及未接种疫苗的接触者仍需要自我隔离，他“非常希望在相关规定于3月24日到期时不会更新”。
 
-约翰逊被要求取消前往英国接种疫苗者的检测规则，他说，政府正在评估旅行的检测规则，预计将在未来几天宣布。但他拒绝重新考虑为一线医护人员接种疫苗的规定，坚持认为“有证据表明医护人员应该接种疫苗。”
+> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
 
-周三上午，内阁决定取消所谓的针对中共病毒的“B计划”措施，因为数据表明，中共奥米克戎浪潮已经在全国达到顶峰。而约翰逊将医院入院人数的稳定归因于“非凡的促进运动”和公众对限制措施“B计划”的遵守。而在新冠期间，首相官邸唐宁街10号曝光出在首相主持的聚会存在违反封锁禁令的人士，英国首相正面临要求他辞职的压力越来越大。
 
-此前，首相的官邸在周一收到了一份20多万人签名的请愿书，呼吁取消疫苗护照和类似的中共病毒证书。而另一份取消医疗工作者接种疫苗授权的请愿书有大约16万人的签名。
 
-苏格兰和威尔士政府也宣布取消奥米克戎的限制，但强制佩戴室内口罩和中共病毒通行证仍将保留。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
 
-公众对于政客扭捏的表态似乎并不买单，该文评论区置顶的网评嘲讽说，“想象一下，当一名政客面临失去公职的风险时，一种致命具有传染性的病毒就会消失。”
+总编/编辑: 飞虹
 
-**原文链接：**
+校正/发稿：浪迹天涯
 
-[England Ends All COVID Passports, Mask Mandates, Work Restrictions](https://www.zerohedge.com/markets/england-ends-all-covid-passports-mask-mandates-work-restrictions)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
