@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 11:36 PM (UTC)`
+
+1/19/2022 Miles Guo: The New Federal State of China has become as influential as the swamp because we are the unvaccinated. Behind the ban of ivermectin, artemisinin, and hydroxychloroquine are only a handful of people in the swamp, media, big techs, and European and American governments, who want to eliminate those they can’t tolerate by using the COVID vaccine. The COVID vaccine is the real disaster.<br/><br/>1/19/2022 文贵直播：不打疫苗让新中国联邦跟沼泽地平分秋色；禁止用伊维菌素, 青蒿素和羟氯喹的背后是沼泽地、媒体、科技巨头和欧美政府的极少数人要用疫苗杀掉他们不能容忍的人 - 疫苗才是灾难！<br/>
+![img](https://media.gettr.com/group16/getter/2022/01/20/23/24502bc8-fc1e-a500-ea2c-94627b9d0ecf/out.jpg)
+
+---
+
+`@miles 1/20/2022 11:31 PM (UTC)`
+
+1/19/2022 Miles Guo: The Party of Davos and the CCP are the comeback of the previous rule of religion and the rule of monarchs in the shape of devils. Only if we eradicate them can we make the world truly belong to the people. What are the differences between faith and superstition? Without the enlightenment of the mysterious forces of nature, I would not have lived till today.<br/><br/>1/19/2022 文贵直播：达沃斯和中共是过去的宗教和皇权统治换上魔鬼面孔卷土重来，只有铲除他们才会实现民天下！信仰和迷信有何区别？若没受到大自然神秘力量的启蒙，文贵活不到今天。
+![img](https://media.gettr.com/group36/getter/2022/01/20/23/567ffdef-48d3-9b5b-dc70-fc51305d8291/out.jpg)
+
+---
+
 `@miles 1/20/2022 11:23 PM (UTC)`
 
 1/19/2022 Miles Guo: There is no way back for Xi Jinping. Jiang Zemin, Meng Jianzhu, Wang Qishan, and Yang Jiechi set up a trap for Xi, turning him into the most hated person of the 95 million CCP members. Xi’s pouring money into the world is bound to completely destroy the CCP’s economy, so he will inevitably implement the most draconian economic policies. In the end, Xi will definitely invade Taiwan.<br/><br/>1/19/2022 文贵直播：习大神已走上不归路，江、孟、王和杨洁篪设局让习成为9500万党员最恨的人；习的大撒币会彻底毁掉中共经济，习将实行最严厉的经济措施，最后一定打台湾！<br/>
@@ -138,20 +152,6 @@
 
 1/19/2022 Miles Guo: What were they doing in the Davos Forum held in Tianjin? They were injected with blood serum and sexually assaulted beautiful ladies and young girls from Tibet, Xinjiang, and Yunnan. Their evil deeds in the past few years are all the ironclad evidence for their crimes.<br/><br/>1/19/2022 文贵直播：达沃斯天津论坛是干嘛来的？他们打着血清、玩弄着西藏、新疆、云南的美女和小孩子，他们过去这些年的恶行都是犯罪铁证！<br/>
 ![img](https://media.gettr.com/group21/getter/2022/01/19/23/4fc11ca0-9e6b-7550-6811-4440d8499286/out.jpg)
-
----
-
-`@miles 1/19/2022 10:50 PM (UTC)`
-
-1/19/2022 Miles Guo: The old CCP kleptocrats have been giving prescriptions to the world at the Davos Forum, resulting in the suffering of the Chinese, and eventually it’s their turn to suffer. What does Xi mean by saying "spillover effect"? The Davos Forum is a slave master's club where the dark forces and the CCP collude to enslave the whole world.<br/><br/>1/19/2022 文贵直播：中共老杂毛在达沃斯给世界开药方，让中国人遭殃，最终轮到他们自己身上；习说的“溢出效应”有何意？达沃斯论坛是黑暗势力和中共勾结以奴役全世界的奴隶主俱乐部<br/>
-![img](https://media.gettr.com/group19/getter/2022/01/19/22/8331e301-f139-a9e4-1db1-d3873b9348c6/out.jpg)
-
----
-
-`@miles 1/19/2022 10:17 PM (UTC)`
-
-1/19/2022 Miles Guo: Less than 1,000 people attend the World Economic Forum at Davos. They can influence the politics and military of various countries and control the wealth that shapes the fate of hundreds of millions of people, and they collude with governments and have blood on their hands. As long as the Party of Davos still exists, humanity will never be safe<br/><br/>1/19/2022 文贵直播：参加达沃斯论坛的不足1000人，他们影响着各国的政治和军事，控制着左右数以亿计人命运的财富，他们跟政府勾结、手上沾满鲜血；只要达沃斯党在，人类就不会安全<br/>
-![img](https://media.gettr.com/group21/getter/2022/01/19/22/4c1a6dce-667c-97c4-d45b-b6cbe5ee8442/out.jpg)
 
 ---
 
