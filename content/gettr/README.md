@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 1:52 PM (UTC)`
+
+加州检察官大卫·沃尔：最高法院驳回了乔·拜登的职业安全与健康管理局疫苗接种强制令，基本上是说行政部门无权发布这样的条例。我认为这个裁决将用于指导任何诉讼。但该裁决如果被一些个别的州忽视，将引发可能导致该州破产的诉讼。<br/><br/>California Attorney David Wohl: The Supreme Court yesterday struck down Joe Biden's OSHA vaccine mandate, essentially saying the executive branch does not have the authority to issue such a rule. It will be used as controlling authority in any lawsuit. This kind of ruling, if ignored by the individual states, will invite lawsuits that could bankrupt states.<br/>
+![img](https://media.gettr.com/group48/getter/2022/01/20/13/87f3dcf3-b5f9-1032-11d2-701aeb70d126/out.jpg)
+
+---
+
+`@miles 1/20/2022 1:46 PM (UTC)`
+
+英首相鲍里斯·约翰逊：中共病毒疫苗强制认证将于下周四在英格兰结束<br/><br/>Boris Johnson: Covid mandatory certification will end in England next Thursday <br/>
+![img](https://media.gettr.com/group35/getter/2022/01/20/13/4128f0c0-b517-4287-a478-002acbdddc3f/out.jpg)
+
+---
+
 `@miles 1/20/2022 1:39 PM (UTC)`
 
 澳大利亚救护人员爆料：才刚开始执行的5-11岁儿童疫苗注射已经导致3名儿童死亡<br/><br/>Australian paramedics workers reveal that vaccinations for children aged 5-11 years that have only just been implemented and have already caused three children’s deaths<br/>
@@ -139,20 +153,6 @@
 
 1/17/2022 Miles Guo: My upbringing shows how terrible the CCP’s evilness is! The CCP’s murder of my younger brother woke me up early, so from a young age I began to understand the evil of the CCP, and the first thing I seek to eradicate is everything of the CCP!<br/><br/>1/17/2022 文贵直播：文贵的成长经历就说明了共产党的邪恶有多么可怕！中共杀害八弟让文贵很早就觉醒，于是从小便开始了解中共的恶，而文贵第一个要铲除的就是共产党的一切！<br/>
 ![img](https://media.gettr.com/group18/getter/2022/01/19/00/b23e8c40-1114-8fe9-dfe7-51d0c5efe0a1/out.jpg)
-
----
-
-`@miles 1/18/2022 10:59 PM (UTC)`
-
-1/17/2022 Miles Guo: The CCP’s frivolous lawsuits keep pushing us step by step. I predict that the ruling will go against us when the Lady May case goes on trial on February 2nd. The CCP has controlled the entire judicial system in BVI, and Appleby, the law firm representing the opposing party, also has conflicts of interest. Our second battlefield is right in BVI!<br/><br/>1/17/2022 文贵直播：中共缠诉步步紧逼，文贵预测2月2日Lady May的案子开庭将被判大输；BVI的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI！<br/>
-![img](https://media.gettr.com/group20/getter/2022/01/18/22/3699a01a-6c7c-35b4-8475-d29db6b79cec/out.jpg)
-
----
-
-`@miles 1/18/2022 10:57 PM (UTC)`
-
-1/17/2022 Miles Guo: What will happen in the hearing to be held on February 2nd? Why is the Pacific Alliance case comparable to the case of Li You tried by Zhang Mingpeng in Xigang District, Dalian? Why did the Pacific Alliance issue subpoenas for the very information that the CCP wants the most? Is there any collusion between Bruno Wu, Wang Qishan, and the law firms that have offices in Communist China? What is the connection between those who were involved in the largest corruption case in the DOJ history and the Pacific Alliance case?<br/><br/>1/17/2022 文贵直播：2月2日的听证会将发生什么？为何说太平联盟案跟大连西岗区张明鹏判的李友案有的一比？太平联盟发传票要求提供的信息为何恰恰是中共最想要的？吴征、王岐山和在中共国设办公室的律所之间有何勾当？美国司法部史上最大腐败案的涉案人员和太平联盟案有何关联？<br/>
-![img](https://media.gettr.com/group39/getter/2022/01/18/22/43283ff0-83d0-7421-d6bf-4163c308971a/out.jpg)
 
 ---
 

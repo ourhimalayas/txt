@@ -2,27 +2,36 @@
 ---
 
 
-## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
+## 洛杉矶某校未接种新冠疫苗学生受到虐待
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
 
-据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
-芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
+据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
 
-法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
-
-文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – 柯镇恶
+新闻来源:
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
 
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+
+总编/编辑: 飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

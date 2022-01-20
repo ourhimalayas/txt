@@ -2,12 +2,19 @@
 ---
 
 
-## 美国及西方社会是沉迷于来自中国廉价商品的瘾君子
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1883677/)
+## 迷信是对死亡的恐惧
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883874/)
 
-01/15/2022 本.哈恩韦尔形容美国及西方社会为“沉迷于来自中国廉价商品的瘾君子”。当中共国因病毒关闭整个国家时，美国人赖以生存的商品及其零部件都将会消失。他赞同美国应把全球的供应链从中国带回。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：*Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

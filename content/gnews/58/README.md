@@ -2,178 +2,48 @@
 ---
 
 
-## 中共国希望将美国文化女性化以进行控制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879630/)
+## 为达沃斯党和中共敲丧钟，新中国联邦和喜币一起开启灭愚之路
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1882246/)
 
-**Steve Bannon
-史蒂夫·班农**
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-Ken Blackwell, I want to go back this about this central issue of masculinity
-肯·布莱克威尔, 我想回到这个关于男子阳刚之气的核心问题
+1月19日，郭文贵先生于GTV、Gettr中第一次认真地谈论世界达沃斯经济论坛，并表示只要达沃斯论坛存在一天，人类就没有安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/59501130_401.jpg)图片来源路透社
 
-and trying to de masculinity this whole attack on males overall
-当试图去男性化对男性整体进行攻击
 
-but particularly on black men
-但尤其是对男性黑人
+达沃斯论坛是世界经济、政治、军事力量的结合，是法律、游戏、金融、制度、文化的创造者和规则制定。全世界所有国家的军校、警察学校、法律学校，和所谓的公义NGO组织都是达沃斯党在背后控制。他们还控制好莱坞所有大的平台，建立是与非的标准，甚至拥有所有军事武器生产厂。
 
-Walk us through what that attack is
-引导我们了解攻击的是什么
+达沃斯论坛实际与会人员不到一千人，所有与会人员必须具备以下三个特征：
 
-and how does that translate to the practical politics
-以及这如何转化为实际的政治
+第一、具备影响一个国家政治和军事的能力；
 
-we need to basically destroy root and branch the Democratic Party in November this year
-我们需要在今年11月基本击败民主党
+第二、控制的财富巨大，能影响数以亿计人的命运；
 
-Ken Blackwell (Commentator, Former Ohio State Treasurer)
-肯·布莱克威尔（评论员，前俄亥俄州财政部长）
+第三、个个都是官商勾结，而且手里都有多条人命。
 
-Steve, It really did start at an accelerated pace with the Great Society Program
-史蒂夫，它确实从大社会主义计划开始加速
+确切的说，达沃斯论坛是一个黑暗势力聚集的、让全世界人民当奴隶的奴隶主俱乐部，达沃斯党是世界邪恶和黑暗的真正源泉。达沃斯党和共产党追求的宗旨是一样的，中国共产党的所有思想就是中国的达沃斯党，在世界的达沃斯党就是世界的共产党。所谓的达沃斯思想和共产主义思想就是追求封建奴隶社会，无论共济会，还是各种会都是邪恶的，这些都只是背后沼泽地力量其中的分支。他们统治法律，制造伤害人民的恶法，制造伪正义；控制媒体提供虚假信息让人无法辨别善恶真假，控制教育把民众变成统治阶级需要的愚蠢模样。
 
-when in fact they created an incentive system to break up the family
-事实上，他们创造了一个激励系统来打破家庭
+当年在天津举办的达沃斯论坛，中共从西藏、新疆、云南甄选出所谓的达沃斯论坛艺术表演团，其中很多都只是未成年的孩子。在现场的中共安全部、政法委的人都看不过去，都感慨说，“这帮孙子哪是来开达沃斯论坛的，这就是来玩小孩儿的。”除此以外，天津还被要求充实血库以便提取血清，要给这些与会人员打血清。
 
-and to drive unemployed a low wage of black males out of the family
-以及将低工资的黑人男性赶出家庭
+找寻此次新冠病毒和新冠毒疫苗的灾难根源，必须追寻到沃斯党和中共。值得一提的是，凡是参加达沃斯论坛的人士，没有一人打过新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/ezgif.com-gif-maker-1-1.jpg)图片来源路透社
 
-they created a penalty box for intact families
-他们为完整的家庭创造了惩罚箱
 
-1960s there were many intact black families as my family
-1960年代有许多完整的黑人家庭就像我的家庭
+习近平之所以在本届达沃斯论坛中提到“外溢效应”，是害怕美国加息（因全球量化宽松面临货币严重超发加通货膨胀）把中共超发货币的骗局戳穿，把总价值100多万亿美元的中国房地产泡沫戳破，希望中共几大家族得以继续奴役14亿奴隶，允许世界再剥削中国劳动力20年，用14亿中国奴隶市场吸收世界的金融泡沫。
 
-The Great Society Program accelerated the attack on the black on the black males
-大社会计划主义加速了对黑人男性的攻击
+所以，达沃斯论坛关系到每一个普通民众的命运，达沃斯党靠的是中国人70年的血汗输出。在达沃斯所有开会的人员都是中共的帮凶，利用新冠病毒、新冠毒疫苗希望可以让更多的无知民众死亡，掩埋社保基金的亏空真相，缓解社会福利产生的债务，剥夺无人认领的银行存款和利息，甚至有理由拒赔一直宣扬免税的人寿保险。
 
-We were experiencing that
-我们正在经历这种情况
+本届达沃斯论坛私下讨论最多的是新中国联邦是否会被很多国家突然承认，成为代表中国人民的政府，以及喜币是否会在全世界全面流通。
 
-I’ll just go to TikTok, the feminization of America
-我用抖音举例，美国的女性化
+喜币就像在黑暗中的一盏明灯，除掉一千年的黑暗统治，为这帮嗜血的达沃斯党和中共敲响了丧钟。
 
-and America America’s family unit which is not a family unit
-而美国的家庭单位，它不是一个家庭单位
+新中国联邦和喜币结合在一起，阻止达沃斯党对全人类的剥削，推倒现代奴隶制和制止新的数字奴隶制，开启一智能灭万年愚之路。
 
-‘cause Marxism so big government socialist, they all destroyed the family
-因为马克思主义这么大的政府社会主义者，他们摧毁了家庭
+与达沃斯党之战，是黑暗与阳光之战。中共一定会被消灭，但是要防止达沃斯党继续尝试在中国培养出一个迷惑性更强的另一个奴隶主。但相信在新中国联邦诞生之后，达沃斯党妄图在中国继续存在的可能性几乎没有了，我们会做到的。
 
-because they want to create a dependency on the government
-因为他们想建立人们对政府的依赖
+**附：**
 
-They want you on the tip of big government so they can control you
-他们想让你站在大政府的施舍上，这样他们就可以控制你
-
-They’ll move you from being a free citizen to being a subject
-他们会让你从一个自由公民变成一个臣民
-
-Now what black males have experience it’s that they in fact around in reality
-现在黑人男性在现实中的经历可以追溯到
-
-and they see that the left is one pushing a feminization of our community and our America
-他们看到左派正在推动我们社区和美国的女性化
-
-And they are in fact, continuing to zero in on males
-事实上，他们正在继续对男性进行调查
-
-the Chinese Communist Party along with big government marches in general
-中国共产党和大政府普遍推行
-
-which it’s Putin in Russia
-就是在俄罗斯的普京
-
-they understand that they can feminineness the American culture
-他们明白他们可以使美国文化女性化
-
-they in fact, they gain an advantage on the battlefield
-事实上，他们在战场上获得了优势
-
-What we have to do is to understand that black males are ready to speak up
-我们要做的是了解黑人男性已经准备好发声
-
-Our get to do is to go to Chicago and they are tired of this mess
-我们要做的就是去芝加哥，他们厌倦了这个烂摊子
-
-And in fact, we need to say, look, we have an agenda for freedom
-事实上，我们需要说，看，我们有一个自由议程
-
-We have an agenda for self sufficiency
-我们有一个自给自足的议程
-
-We have an agenda that respects your human agency and your human dignity
-我们有一个尊重你的人的能动性和你的人格尊严的议程
-
-and we can begin to move not in next two years, not in four years
-我们可以开始行动，不是两年后，不是四年后
-
-but this year in this election, we can change things in the margin
-而是在今年这次选举，我们可以在很大程度上改变一些事情
-
-you get black males voting for MAGA candidates
-让黑人男性投票给使美国再次伟大的候选人
-
-who in fact, respect human dignity, respect the family, respect work, and respect freedom
-事实上，是尊重人的尊严，尊重家庭，尊重工作，尊重自由的候选人
-
-you in fact, we’ll win elections for the next 50 or 100 year
-事实上，我们将赢得未来 50 或 100 年的选举
-
-Steve Bannon
-史蒂夫·班农
-
-Ken, how do people get you on social media? How do you get your website?
-肯，人们如何在社交媒体上找到你？ 如何得到你的网站？
-
-Ken Blackwell
-肯·布莱克威尔
-
-Kenblackwell.com, @kenblackwell on Gettr, and twitter
-Kenblackwell.com, @kenblackwell在盖特和推特
-
-I’m deemphasizing on Twitter
-我正在淡化推特
-
-And we’re growing like gangbusters on Gettr
-而且我们在盖特上的发展势头迅猛
-
-Steve Bannon
-史蒂夫·班农
-
-Ken, honor to have you on here. Sir, thank you
-肯，很荣幸有请你在这里， 先生，谢谢你
-
-Ken Blackwell
-肯·布莱克威尔
-
-Good be with you
-高兴和你一起
-
-Steve Bannon
-史蒂夫·班农
-
-Thanks, brother
-谢谢， 兄弟
-
-* * *
-
-Date:01/18/2022
-原视频标题: China Wants To Feminize The Culture Of America For Control
-中共国希望将美国文化女性化以进行控制
-原视频日期：2022/01/18
-原视频链接: [**https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html**](https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html)
-任务编号：KE356(3526)
-视频时间段 : 0:00-3:29
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+北京冬奥会将成为习近平最后的一次国际演出，本届达沃斯论坛会成为习最后一次的国际演讲。达沃斯论坛还有无良媒体，这些大佬们绝对会在2025年以前受到人类的正义审判。
 
  
 
