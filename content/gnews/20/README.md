@@ -2,147 +2,31 @@
 ---
 
 
-## 法律是人类安全公平的社会基石
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1885404/)
+## 习近平在2022达沃斯论坛的演讲预示中共灭亡
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1885411/)
 
-[https://gtv.org/video/id=61e93d6187664c47acd74538](https://gtv.org/video/id=61e93d6187664c47acd74538)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/X.jpg)newsinfo.inquirer.net
+中共党魁习近平1月17日在北京出席2022年达沃斯世界经济论坛视讯会议，发表了《坚定信心、勇毅前行、共创后疫情时代美好世界》的演讲。不同于此前习对外宣传给世界开药方的一贯立场，此次演讲号召国际力量“摒弃冷战思维”，以化解各类风险，并强调其将“坚定不移推进改革开放”。习的言辞显示了罕有的面向“改革开放”政策的退让，这基于他所面临的严峻国内外压力，甚至更深层地预示着这个一直以强权面目进入国际舞台的政治角色即将谢幕。
 
-以法灭共
-Destruir el Partido Comunista de China con la ley
+达沃斯论坛成立于1971年，对外宣称以研究和探讨世界经济领域存在的问题、促进国际经济合作与交流为宗旨。但种种迹象验证了郭文贵先生对该组织的定义，即这个控制了世界99%财富的组织其实是世界黑暗力量的俱乐部，共济会、光明会、骷髅会等组织通过该论坛协调资源并分配利益。中共自1979年参加达沃斯论坛，同年1月份美国总统卡特也以接待国家元首的礼节在美国接见了邓小平。郭先生此前已透露邓是光明会成员，其很可能是以此身份获得西方资本力量的支持，才能于上世纪70年代末开启中共国大陆的“改革开放”时代。邓所带领的中共在彼时很可能将中国960万平方公里土地的民众作为资本的奴隶献祭给了世界黑暗力量，以换取中共在世界舞台上的生存空间，同年的达沃斯论坛上中共代表以旁听生的姿态参会，小心而谨慎地听取意见。现在大家仍然可以在世界经济论坛官方网站的大事记栏目里看到十几个东方面孔站在一群西装革履的欧美人中的合影，网页左下角注着几行字，标题是“1979年，对中国打开大门”，看上去这十几个东方面孔的人就是猎人的猎物。随着WTO和全球化的进展，中共代表在年会中参与度越来越高，看其演讲就是这个对14亿中国老百姓敲骨吸髓的吸血鬼所做出的年终总结和新年展望。
 
-让中国人拥有独立的司法系统
-Para que los chinos obtengan un sistema judicial independiente
+从中共领导人近年在该论坛的发言看，习近平虽然是中共党魁，但其能力似乎一直并未被黑暗力量所认可。2017年习说“给世界开药方”，2021年指责西方动不动搞脱钩，今年大国之间的对抗可能导致“灾难性的后果”；而王岐山在2019年的论坛上强调与国际社会携手构建人类命运共同体，似乎更符合黑暗力量的胃口和对中共作为黑暗力量代理人的角色定位。习近平或许自己都没有意识到今年的演讲是一个糟糕的总结，在这样的论坛上向整个黑暗力量承认了自己“办事不力”，病毒和疫情已经使得资本的钱袋子遭受损失，更重要的是疫苗的危害可能马上让所有掌握黑暗力量的团体自身难保。放弃习近平还是放弃中国共产党很可能已经是选择项了。
 
-法律是一个人类安全、公平、有尊严
-La ley es el pilar social más básico
+同一天，参加过达沃斯论坛并被习封杀已久的马云和赵薇通过李连杰壹基金参加行为艺术“今天不说话”，更像替江曾孟所代表的旧有黑暗势力的代理人表态：所有的责任都是习的！而习近平对此显然也是恼羞成怒，急忙忙在中共央视通过《零容忍》节目把孙力军、傅政华等江曾孟的政治力量盖棺钉钉。党内斗争之激烈可见一斑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-317.jpg)
+从内外环境来看，习近平都到了危险的境地。如果其主要依靠力量俄罗斯也放弃对他的支持，习可能迅速走进政治生涯的末期，所以正如郭文贵先生所说打台湾可能是他唯一的选择。但习近平个人的倒台并不能让中共逃脱被历史淘汰的命运，其治理体系的僵化和对人个体自身需求的打压，已远远不能让中国960万平方公里得到安宁，高污染的环境和负增长的人口都在给世界带来伤害。社会生产力对发展的需求更加依靠个体的全方位发展和突破来满足，禁锢这一趋势的所有障碍都会被毁灭，中共这次逃脱不了被整体淘汰的命运，而一个适合人类新发展需求的G系列已经诞生并在茁壮成长。
 
-一个最基本的社会基石
-Para un ser humano seguro, justo y digno
+参考链接：
 
-它就像道德一样
-Él es como la moralidad
+[https://www.rfa.org/mandarin/yataibaodao/zhengzhi/hx2-01182022120127.html](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/hx2-01182022120127.html)
 
-是人和畜牲分开的一个基本的基础
-Es la separación básica entre el ser humano y los animales
+[http://politics.people.com.cn/n1/2022/0115/c1001-32332068.html](http://politics.people.com.cn/n1/2022/0115/c1001-32332068.html)
 
-任何一个文明的社会一旦失去了做人的道德
-Cualquier sociedad civilizada al perder su moralidad
+[https://ent.sina.cn/star/tv/2014-04-03/detail-ianshist4126900.d.html?vt=1](https://ent.sina.cn/star/tv/2014-04-03/detail-ianshist4126900.d.html?vt=1)
 
-你就跟畜牲没有任何两样
-No tiene diferencia con los animales
+**华盛顿DC Sat**
 
-当任何一个社会没有法律的时候
-Una sociedad al no tener una ley
-
-每个人都是下一个被害者
-Cada uno será la próxima víctima
-
-一定是如此！
-¡Seguro es así!
-
-我们来自于中共国
-Nosotros provenimos de la República Popular de China
-
-深深地感受到被中共无法无天的一党专政的毒害
-Profundamente sentimos el envenenamiento por la dictadura del partido único y sin ley del PCCh
-
-我们时刻在看著伊朗
-En cada momento vemos a Irán
-
-和过去的苏哈托、希特勒
-Al pasado Suharto, Hitler
-
-看到所有过去的苏联
-La Unión Soviética
-
-和今天的北朝鲜发生的事实
-Y la realidad que está sucediendo en Corea del Norte
-
-以及在新疆的大屠杀
-Así como también la gran masacre en Xinjiang
-
-那么在我们身上发生的事情
-Y las cosas que nos está sucediendo
-
-事实上远远地超过大家所想像的
-Realmente sobrepasa mucho más de lo que todos nos imaginamos
-
-你们在屏幕前和我一起参加爆料革命这么多年
-Ustedes han participado tantos años conmigo en el Movimiento de Denunciantes frente a la pantalla
-
-但你们没有闻到过真正的血味儿
-Pero ustedes no han olido sangre real
-
-你们没有感受到那种巨大的压力
-Ustedes no sintieron esa enorme presión
-
-你们没有感受到共产党是如何地恐惧七哥和爆料革命
-Tampoco sintieron cómo es que el PCCh atemoriza al Movimiento de Denunciantes y a mí
-
-每时每刻我们的战斗
-Cada minuto y segundo de nuestra guerra
-
-就在刚才
-Hace rato
-
-我就在二十分钟前跟大卫、跟Rachel打了个招呼
-Hace 20 minutos saludé a David y Rachel
-
-骑侠、Nick还不在的时候
-En ese momento Nick y Qixia aún no estaban
-
-我就收到十几个信息
-Recibí más de 10 mensajes
-
-让我今天不讲这个不讲那个
-Diciendo que hoy no hable de esto y lo otro
-
-然后如何如何威胁
-Y muchas formas de amenazar
-
-这我们是在美国
-Nosotros estamos en Estados Unidos
-
-但是我要告诉大家的事情
-Pero yo les voy a decir a todos una cosa
-
-我们今天的画面上来自于欧洲、
-Hoy nuestra pantalla proviene de Europa,
-
-美国、加拿大、澳大利亚
-EE. UU, Canadá, Australia,
-
-占据了整个地球
-Ha ocupado toda la Tierra
-
-如果我们不奋斗
-Si nosotros no luchamos
-
-你们就是下一个七哥
-Ustedes serán el próximo Miles Guo
-
-但我绝不相信你们能像我一样活到今天！
-¡Pero yo no creo que ustedes puedan sobrevivir como yo hasta el sol de hoy!
-
-* * *
-
-日期：01/19/2022
-原视频标题：法律是人类安全公平的社会基石
-La ley es la piedra angular de una sociedad para una humanidad seguro y justo
-原视频日期：01/17/2022
-原视频网址：**[https://gettr.com/post/pou4ipefd6](https://gettr.com/post/pou4ipefd6)**
-任务编号：KC424(3523)
-视频时间段：0:00-02:11
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**编辑发布 水星**
 
  
 

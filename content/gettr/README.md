@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 7:05 PM (UTC)`
+
+1月20号衷心地，感谢亲爱的伟大的战友，制作的精美的万分感动的视频。😭😭😭😭😭😭😭😭🙏🙏🙏🙏🙏🙏🙏🙏🙏<br/>【思八弟忆往昔，英雄泪洒衣襟。 国恨家仇不报，枉活人世一遭。 邪魔恶党横行，百姓水深火热。 潘多魔盒开启，世界一片狼藉。 天选之子文贵，拔剑铲除红妖。 携新中国联邦，迎接太平盛世。 🙏🙏🌹🌹🌴🌴🌈🌈💫💫】
+![img](https://media.gettr.com/group17/getter/2022/01/20/19/a9e0c29d-8537-7359-64d1-58caebc3dcab/out.jpg)
+
+---
+
 `@miles 1/20/2022 3:15 PM (UTC)`
 
 1/19/2022 Miles Guo: The New Federal State of China is to launch an unprecedented decentralized insurance, which can overcome the shortcomings of traditional insurance and will be based upon the third-party regulated digital currency with 100% guaranteed payouts.<br/><br/>1/19/2022 文贵直播：新中国联邦将推出前所未有的去中心化保险，它克服了传统保险的弊端，以第3方监管的数字货币为基础并100%保证赔付！<br/>
@@ -146,13 +153,6 @@
 
 1/18/2021 Miles Guo’s GETTR: How powerful Weijian Shan and Edward Moss really are? In the past five years, why is it that the CCP’s unrestricted lawfare, the smear campaigns, and the attacks on me and the Whistleblowers’ Movement all happened at roughly the same time? Are these just coincidences?<br/><br/>1/18/2021 文贵盖特：单伟建和Edward Moss到底有多大的能耐？过去5年里，为什么中共对文贵和爆料革命的法律超限战以及污蔑与攻击几乎都在同时发生？难道这仅仅是巧合吗？<br/>
 ![img](https://media.gettr.com/group47/getter/2022/01/19/02/9bb39d7a-5023-b37a-89c6-c61488c8921c/out.jpg)
-
----
-
-`@miles 1/19/2022 1:08 AM (UTC)`
-
-1/17/2022 Miles Guo: The lives, blood, freedom, and wealth sacrificed by my family led to my awakening, allowing me to lead all humanity to begin taking down the CCP! In a country ravaged by the CCP without the rule of law, what a blessing it is to destroy the CCP!<br/><br/>1/17/2022 文贵直播：文贵以家人的命、鲜血、自由和财富换来个人的觉醒，让文贵今天带着全人类开始灭共！在这个被共产党蹂躏和没有法律的国度里，灭共是件多么幸福的事！<br/>
-![img](https://media.gettr.com/group9/getter/2022/01/19/01/82b2a031-536a-3dcf-5efc-83c9c7cf46b0/out.jpg)
 
 ---
 
