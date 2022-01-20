@@ -2,8 +2,8 @@
 ---
 
 
-## 马明哲、王建林，我们的敌人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883336/)
+## 看国内房地产经济时，要问自己的三个问题
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883371/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
