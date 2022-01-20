@@ -2,25 +2,26 @@
 ---
 
 
-## 英国超市使用中共面部识别技术监控购物者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1882102/)
+## 七哥分享人生感悟和成功经验（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882216/)
 
-采编： 风云小哥             编译撰稿：自由法兰西
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-34-edited.jpg)图片来源：DM
+是不是Burning带面罩的？哦，我没有带过面罩，我是刚开始是那个小兔子的那个虚拟形象啊，然后之后就带了一个眼镜，啊对了，完全明白了你的这个所谓的语言组织能力不好，你能说出这些话来，（其他）你们几个快跳楼，再练20年，你们几个咋没有说出这样的话？
 
+对吧，都说郭先生你很有本事啊，你还知道啥叫汉堡包呢？就这货就刀刀杀我呀，跟我代一二十年，发现我竟然会吃汉堡包啊，是吧？我说几句英文，在palm beach老板你行啊，你会讲几句英文啦了，你说这有多伤我啊，多伤我，这个刚才我就呃，就说完以后回一会儿，回答小飞侠的问题啊，Twins你知道你2个，我是第几个在GTV的关注者？
 
-据英国《每日邮报》1月15日报道，英国科浦连锁超市正在使用中共[海康威视]的摄像机监控顾客。该英格兰南部大型食品零售商旗下的35家超市都安装了该公司的面部识别系统，并且所有顾客的脸部数据都将至少保存两年。
+我为想问你俩今天一个问题，嗯？不知道，这就是你们这一代孩子，很多事情是要不一样的，如果你今天能告诉我，说我记得郭叔uncle Miles你是我第几个关注者，这个事情就不一样了，你去查去我是正好你第100个关注者，哎呀，在100之前，有一个第七个是我另外一个号的关注者，所以我是你的第七号，是100号。而且我不是偶然的，就是上去点击就是这样，所以我记得很清楚，你去看去。所以说你看这跟你是有缘分啊，然后呢, 你爹就跟我的缘分就更深了是吧，真是就是新西兰，你不知道新西兰有多重要，新西兰对我们有多重要，很多兄弟感觉真的永远世界上绝大多数人就是伸手守着宝，你不知道谁叫宝？人类是非常无知的，你知道吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥分享人生感悟和成功经验（一）-.jpg)
+*发布：*tianzhihuan
 
-报道称，由于[海康威视]的监控设备被广泛使用在新疆集中营以监视镇压少数民族和政治异见者，因此该公司所有产品在美国都已被列为国家安全威胁并禁止使用。英国政府也要求商家切勿使用[海康威视]的摄像系统。
-
-尽管如此，[海康威视]的监控设备仍被英国各地区警方用于对公路交通车牌的识别追踪。对此，保守党议员凯恩斯指出，该公司是中共实施反人类罪和种族灭绝的帮凶，而使用其产品则无疑将所有英国人的个人信息和社会情报都泄露给了中共当局。
-
-原文链接：
-
-[https://www.dailymail.co.uk/news/article-10406421/Co-op-using-cameras-Chinese-state-owned-company-track-shoppers.html](https://www.dailymail.co.uk/news/article-10406421/Co-op-using-cameras-Chinese-state-owned-company-track-shoppers.html)
-
-校对编辑，发稿：硫酸羟氯喹64
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

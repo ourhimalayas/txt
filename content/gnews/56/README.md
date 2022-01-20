@@ -2,30 +2,35 @@
 ---
 
 
-## 报道台湾遭中共抗议 印度主播表示不听命于任何政府
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1875996/)
+## 芬兰允许伊维菌素用于治疗中共病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1876046/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+#### 撰稿：日本东京方舟农场 JIHO
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DA5308D3-A304-4CE5-910D-D9ACCD971543.jpeg)（图片来自《大纪元》）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/982A1E4F-C408-4DC6-97FD-B574115ABC88.jpeg)图片来自Mika Niikko的推特
 
-据《大纪元》1月16日报道，《今日印度》电视台因为播出了台湾特别节目，并访问了中华民国驻印度代表葛葆萱。
+1月15日，芬兰社会与健康许可和控制局 (Valvira) 集团负责人 Kirsi Liukkonen 向当地媒体证实，如果医生认为合理且安全，他们可以自由地给患者开伊维菌素用于治疗中共病毒（新冠）。
 
-这期节目介绍了台湾在全球供应链所扮演的重要角色，并讨论印度与台湾的经贸及科技合作前景。后据中央社报导，《今日印度》电视台1月8日在《今日世界》节目首播后，又重播了3次，随即收到中共驻印度大使馆向电视台提出的抗议。
+日前，芬兰议会外交事务委员会主席**Mika Niikko****在社交媒体**发布了一张医生开具的伊维菌素照片。随后当地媒体ILTALEHTI向芬兰社会与健康许可和控制局证实了该消息，并得到了允许医生开具伊维菌素的邮件回复。
 
-中共大使馆抗议函中斥责电视台称葛葆萱为“大使”，以及出现青天白日满地红国旗，要求电视台遵守“一个中国原则”（One-China principle）。
+此前，Mika Niikko 在芬兰议会讲述了自己年初感染中共病毒（新冠）的经历，他在服用医生开具的伊维菌素后，肺部感染迅速得到了治疗，并呼吁政府采取措施以更好地治疗中共病毒。他说：“新冠（中共病毒）大流行似乎并没有通过强制疫苗接种得到改善，应该采用伊维菌素等药物来治疗。”
 
-电视台女主播莫汉在推特回应说，《今日印度》不听命于任何国家或政府的指示，“我们是独立的新闻网，会对任何国家做我们认为适当的接触或报导。”
+不幸的是，因为Mika Niikko分享了自己使用伊维菌素治疗中共病毒的经验，他受到了各种媒体的攻击，并被说成是阴谋论、骗子等等。
 
-此外，印度英语电视台《寰宇一家》（WION）去年11月底播出“台湾：良善力量与坚毅精神”（Taiwan: A Force for Good and the Spirit of Resilience）专辑，同样收到了来自中共大使馆的抗议。
+对此，Mika Niikko 在推文中反击：“什么时候看到过记者们将自己置于 Fimea（芬兰医药局）和主治医生之上？ 当人们说自己已经治愈的经历时，很少看到过这些人被贴上骗子的标签。”
 
-*参考链接：[报导台湾遭中共抗议 印度主播：不听命任何政府](https://www.epochtimes.com/gb/22/1/15/n13507022.htm)*
+*参考链接：*
+
+1. [*Mika Niikon eduskuntapuhe kohautti – Valvira: Lääkärit saavat määrätä loislääkettä koronaan*](https://www.iltalehti.fi/kotimaa/a/a9a9e6d0-edc5-42e6-a083-1ba76d7177df)
+2. [*Eduskunta: Mika Niikko kertoo hoitaneensa koronaansa “loislääkkeellä”, Zyskowicz ihmetteli salaliittoteorioita*](https://www.mtvuutiset.fi/artikkeli/eduskunta-mika-niikko-kertoo-hoitaneensa-koronaansa-loislaakkeella-zyskowicz-ihmetteli-salaliittoteorioita/8327964)
+3. [*https://twitter.com/mikaniikko/status/1481626941618851847/photo/1*](https://twitter.com/mikaniikko/status/1481626941618851847/photo/1)
+
 
 * * *
 
-*素材采编：子辰*
+*素材采编：JIHO*
 
-*编辑：青城道姑*
+*编辑： 文顺*
 
 *发布：miumiu*
 
