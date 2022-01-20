@@ -2,74 +2,26 @@
 ---
 
 
-## 秘翻響鼓秀埸 第（四十二）期
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1884157/)
+## 【中日财经爆】中共央行连续第二个月降息 宽松政策能否阻止经济下行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884267/)
 
-**[——響鼓不用重錘敲   滅共務須真戰友——](https://gtv.org/broadcast/watch/61e93f4e533c672fca7fd710)**
+撰稿：东京樱花团丨盖特第一批注册
+![](https://lh5.googleusercontent.com/egh1Oxy9BkTe6JpwezcoKgQHkHmMVW2Fue2Hn3tdN3_-XrxiEzzz34japp6U7nMOx9q-i_uAw4xghUAIgUl0G1fvqC79tEXg8wMF0uKl1LUiWyW68ObepQ-ZTcJ1y-d70EbyDN26)[*图片来源*](https://www.blockvalue.com/uploads/autoimage7/2021062121duez0xbxyue.jpg)
+中共国央行中国人民银行周三宣布，将一年期贷款基础利率（LPR）下调0.10%至3.70%，这是连续第二个月的降息，而且降幅比上个月的0.05%有所扩大。在对经济放缓的担忧日益增加的情况下，政府致力于通过加强货币宽松政策来支持经济。
 
-🎙**主持：@ Lila｜@ 澄道來了 本期響鼓：@ 寧南（澳喜）｜@ 文智（澳喜）**
-[![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-1-4.jpeg)](https://gtv.org/broadcast/watch/61e93f4e533c672fca7fd710)[點擊圖片可觀看完整節目視頻](https://gtv.org/broadcast/watch/61e93f4e533c672fca7fd710)
-- **🌈主題：去中心化保險 正道保障**
-- 📝**副題：雪崩來臨 無一片雪花無辜 索賠理賠會如期而至嗎 ？一切都在重組中 保險疊代更是不可避免 正道喜保險**
+2021年第四季度中国的经济增长率将为4.0%，比上第三季度放缓0.9个百分点。 这是自2020年4月以来最低增长率。除了中共病毒疫情重新出现后对商业活动的限制导致消费放缓外，中国恒大集团的危机也导致了房产市场的冷却。
 
+中国人民银行也将其五年期LPR下调0.05%至4.6%。 这是一年零九个月以来的第一次削减。 5年期LPR是房产抵押贷款利率的基准，这一政策的出台目的在于刺激房地产市场。
 
+去年12月20日中共央行在时隔20个月后首次下调一年期利率，以帮助受影响特别严重的中小型企业（SME）。同月15日央行将存款准备金率下调了0.5%，这是自7月以来的第二次下调，向市场注入约1万亿人民币。
 
+连续的宽松政策的出台意味着中共经济正快速下滑，经济崩塌随时到来。
 
-*七哥猛料大直播  話音未落掀波折*
+信息来源：[**中国、２カ月連続利下げ　緩和強化で経済下支え**](https://www.jiji.com/jc/article?k=2022012000406&amp;g=int&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_auto)
 
-*源起源去中心化  菩提薩多智慧果*
-
-*勾起無數暇聯想  數典保險弊端多*
-
-*索賠理賠有貓膩  貪嗔癡慢此心魔*
-
-
-
-**索賠本應  天經地義  何來 ＂請求保險人履行義務＂！**
-
-理賠代理  審核確認  制度設計漏洞不可避免 ＂騙保騙賠＂！
-
-經濟災難 金融災難 人道災難 疫苗災難 沒有人認同法幣了
-
-政府 失職失責於選民 沒有人能夠自如存取 銀行 失信於儲民
-
-唯一生存下來的 就是人們買的保險
-
-鄭州水淹 它不賠 打疫苗死 不賠你錢 當不賠到極點 新規則必定來
-
-替你存款 替你徑營 賠了就沒有了 沒有任何貓定 沒有第三方監督
-
-直說就是＂精神安慰劑＂ 或是＂金融安慰劑＂ 傳統意義上保險
-
-保證在任何情況下你應得的 ＂該不該理賠  不是險司說了算；賠嘗多少 也不是險司來定
-
-**＂完全在雙方約定好 ＂白皮書＂未來買保險時 數字貨幣第三方 百分之百監督**
-
-用電腦自然而然給你答覆 叫新中國聯邦 絕對保險
-
-誕生之日起所有的GTV投資者 GCLUB會員 百分之百免費擁有一個 同等價值的保險
-
-叫新中國聯邦 去中心化保險 完美生態圈 閉環緊密連 喜幣為當先 喜配隨後趕
-
-數字牌照珍 國國爭相談
-
-菩薩七哥者 獻奉使命身 凡為真戰友 新邦保障人 人類首嘗試 正道喜保險
-
-GTV連結:[https://gtv.org/broadcast/watch/61e93f4e533c672fca7fd710](https://gtv.org/broadcast/watch/61e93f4e533c672fca7fd710)
-
-
-
-2022年1月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2022/01/01/) | [2](https://gnews.org/zh-hans/date/2022/01/02/) |
-| [3](https://gnews.org/zh-hans/date/2022/01/03/) | [4](https://gnews.org/zh-hans/date/2022/01/04/) | [5](https://gnews.org/zh-hans/date/2022/01/05/) | [6](https://gnews.org/zh-hans/date/2022/01/06/) | [7](https://gnews.org/zh-hans/date/2022/01/07/) | [8](https://gnews.org/zh-hans/date/2022/01/08/) | [9](https://gnews.org/zh-hans/date/2022/01/09/) |
-| [10](https://gnews.org/zh-hans/date/2022/01/10/) | [11](https://gnews.org/zh-hans/date/2022/01/11/) | [12](https://gnews.org/zh-hans/date/2022/01/12/) | [13](https://gnews.org/zh-hans/date/2022/01/13/) | [14](https://gnews.org/zh-hans/date/2022/01/14/) | [15](https://gnews.org/zh-hans/date/2022/01/15/) | [16](https://gnews.org/zh-hans/date/2022/01/16/) |
-| [17](https://gnews.org/zh-hans/date/2022/01/17/) | [18](https://gnews.org/zh-hans/date/2022/01/18/) | [19](https://gnews.org/zh-hans/date/2022/01/19/) | [20](https://gnews.org/zh-hans/date/2022/01/20/) | 21 | 22 | 23 |
-| 24 | 25 | 26 | 27 | 28 | 29 | 30 |
-| 31 |   |
-
-[« 12月](https://gnews.org/zh-hans/date/2021/12/)  
- 
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

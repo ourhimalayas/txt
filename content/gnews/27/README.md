@@ -2,8 +2,8 @@
 ---
 
 
-## 中国共产党跟世界脱钩，等于脱了控
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884135/)
+## 未来保险是去中心化的保险，由第三方监管
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884263/)
 
 台灣寶島農場
 

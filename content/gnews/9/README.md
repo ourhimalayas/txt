@@ -2,10 +2,18 @@
 ---
 
 
-## 法国病毒学家 生物学家 诺贝尔生理学医学奖得主吕克•蒙塔尼耶：疫苗并不能保护我们 （感谢石头制作）
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884338/)
+## 文贵大直播 PAG法律超限战
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1884427/)
 
-台灣寶島農場
+#### 素材：水涨船高
+
+* * *
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵大直播.PAG法律超限战.jpg)
+
+* * *
+
+*发布：霹雳鼠年*
 
  
 

@@ -2,76 +2,31 @@
 ---
 
 
-## 全球疫情更新（澳洲病例数突破两百万）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1884445/)
+## 2022/01/19 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1884511/)
 
-**整理/编辑：枳实**
+1. 1月17日，在西方世界常用的新冠检测试剂盒MADE IN CHINA，但在中共大陆确被禁止使用。为什么？
+2. 1月18日，浙江温州。火车站地下商业广场被政府通知需做核酸检测。现场人山人海。如此的间隔距离是真的为了检测病毒吗？
+3. 天津有的小区被政府告知需集中隔离，小区整体居民被客车集体拉走。老百姓被折腾不已，民怨沸腾。
+4. 1月18日，陕西西安。城市已经被封锁近一个月。即使市民被允许每两天一次出去那个生活必须品，也不可以超过2个小时。百姓的行动受到很大限制。
+5. 疫情期间，国家机器的权力大增。警察在街头可以随意以疫情防控的理由，对老百姓采取强制措施。
+6. 在人员并不密集的乡村地区，老年人不佩戴口罩，亦被执法人员使用电击枪击倒逮捕。
+7. 1月18日，因广东出现确诊病例， 从广东省去往其它省份的市民被要求集中隔离，隔离期间费用自理。
+8. 政府寻街宣传要求市民做核酸检测，检测成为了比老百姓每日吃饭还重要的常态化事务，不做核酸检测的市民将寸步难行。
+9. 1月17日，广东广州。一市民在骑摩托车行驶途中无征兆的倒地抽搐，疑似接种疫苗的后遗症症状。
+10. 即使中共已全面放开二胎三胎政策，从中共近期推出的人口增长报告来看，中共推行的残忍计划生育政策，已经使中国大陆这片土地上的人口出现不可逆的断崖式下降。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1529.png)图片：雅典娜农场设计组 精灵蓝
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-雅典娜疫情更新（2022年 1月20日）
+编辑：【英国伦敦喜庄园编辑部】
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-**一，全球疫情基本数据**
-
-感染总数：336,828,562（日新增2,795,461，14天增幅+47%）
-
-死亡总数：5,563,423（日新增7,299人，14天增幅 +18%）
-
-**二，全球“疫苗”毒针统计数据**
-
-“疫苗”毒针注射总数：93.7亿
-
-完全“接种”：39.2亿人
-
-完全“接种”百分比：50.3%
-
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,018,522（今日新增75,668人）
-
-死亡总数：2,901人（今日新增 60人）
-
-每万人感染人数：784.3043人
-
-“疫苗”毒针注射总数：47,053,063   （日新增332,808 针）
-
-完全“接种”：19,128,576人
-
-第二针“接种”百分比：78.1%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：92.8%
-
-**四，数据分析** 今日澳大利亚感染人数超过两百万，感染比例也逼近十分之一，每万人感染人数已经超过780人。全球的死亡人数增加幅度继续增加，但14天病例增加值增速已经连日下降。从下图可以比较世界主要国家每日新增病例数（每百万人口），可见澳大利亚的疫情凶猛程度仅次于法国。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6L9H@ZIWQM06N69R29Q1C.png)各国每百万人口每日新增病例曲线(图片来源：Our World in Data)
-（从上到下：澳大利亚，法国，美国，英国，德国，加拿大，印度）
-为了说明疫苗接种和新增病例曲线的关系，下面就选择两个现在新增病例（按人口平均）最高的两个国家和最低的两个国家比较一下。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/V1M1Y26F94G0EYXRL5T.png)上图中最高和最低2个国家新增病例（每百万人）曲线的比较(图片来源：Our World in Data)![](https://assets.gnews.org/wp-content/uploads/2022/01/0G0FY0@MI5KY_HZWW8Z3.png)澳大利亚，法国，印度，南非疫苗接种率对比(图片来源：Our World in Data)![](https://assets.gnews.org/wp-content/uploads/2022/01/W8AFEADQDLGTQAHOD@Y7.png)澳大利亚，法国，印度，南非每日疫苗接种比例曲线 (图片来源：Our World in Data)
-如图可见，无论是全民接种率还是每日接种率都是接种越多，疫情越严重。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

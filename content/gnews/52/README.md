@@ -2,26 +2,17 @@
 ---
 
 
-## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
+## 港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1883200/)
 
-据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
-芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
+**撰文/ 港台前线关注组｜发布日期/ 20/1/2022 **
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
 
-法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
+《独媒》获得消息指，特区政府向公务员发送内部邮件，通知下月16日起，将收紧“疫苗气泡”的相关细节，要求所有政府雇员，除非持有有效的医生证明，证实身体状况的确不适宜打针，否则必须接种新冠疫苗，才可以进出政府大楼上班，违者将被视为“旷工”而面临纪律处分。
 
-文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – 柯镇恶
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+局方表示，目前，已有98%的政府雇员已接种过至少一针新冠疫苗，而是次内部邮件中的实施细则，涵盖范围包括公务员，非公务员合约雇员以及退休后返聘雇员，所有政府部门均须纪录员工的接种纪录，若有雇员拒绝配合，则被视为“拒绝执行部门指示”，亦会面临纪律处分。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/下月中旬起-公務員必須接種疫苗-違者或面臨紀律處分.jpg)
+来源｜[獨媒](https://bit.ly/3GKBD2H)
 
  
 
