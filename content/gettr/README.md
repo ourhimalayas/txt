@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 2:09 PM (UTC)`
+
+1月20号：尊敬的战友们好……共产党正在被冬季奥林匹克运动会．房地产崩盘．内部政治斗争……释放观状病毒等等一系列的事情埋葬中！希望中国同胞们不要成为他们的殉葬品，一切都已经开始！
+![img](https://media.gettr.com/group10/getter/2022/01/20/14/462408f8-fff3-4ad5-571f-a16354c071ec/out.jpg)
+
+---
+
 `@miles 1/20/2022 1:52 PM (UTC)`
 
 加州检察官大卫·沃尔：最高法院驳回了乔·拜登的职业安全与健康管理局疫苗接种强制令，基本上是说行政部门无权发布这样的条例。我认为这个裁决将用于指导任何诉讼。但该裁决如果被一些个别的州忽视，将引发可能导致该州破产的诉讼。<br/><br/>California Attorney David Wohl: The Supreme Court yesterday struck down Joe Biden's OSHA vaccine mandate, essentially saying the executive branch does not have the authority to issue such a rule. It will be used as controlling authority in any lawsuit. This kind of ruling, if ignored by the individual states, will invite lawsuits that could bankrupt states.<br/>
@@ -146,13 +153,6 @@
 
 1/17/2022 Miles Guo: What's the story behind the photo I took with my younger brother when I was 7 years old? What did I look like when I was a child? What kind of life did I have as a child in Northeast China back then?<br/><br/>1/17/2022 文贵直播：文贵7岁时跟八弟拍的照片背后有什么有趣的故事？文贵小时候是什么样子的？在当年在东北过着怎样的童年生活？<br/>
 ![img](https://media.gettr.com/group35/getter/2022/01/19/01/b0e2e91a-93a4-2989-0363-e12f60277e9b/out.jpg)
-
----
-
-`@miles 1/19/2022 12:57 AM (UTC)`
-
-1/17/2022 Miles Guo: My upbringing shows how terrible the CCP’s evilness is! The CCP’s murder of my younger brother woke me up early, so from a young age I began to understand the evil of the CCP, and the first thing I seek to eradicate is everything of the CCP!<br/><br/>1/17/2022 文贵直播：文贵的成长经历就说明了共产党的邪恶有多么可怕！中共杀害八弟让文贵很早就觉醒，于是从小便开始了解中共的恶，而文贵第一个要铲除的就是共产党的一切！<br/>
-![img](https://media.gettr.com/group18/getter/2022/01/19/00/b23e8c40-1114-8fe9-dfe7-51d0c5efe0a1/out.jpg)
 
 ---
 
