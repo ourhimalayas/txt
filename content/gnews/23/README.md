@@ -2,20 +2,38 @@
 ---
 
 
-## 英国将冒险停止疫情限制以图恢复正常秩序
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1881993/)
+## 缅因州医生开伊维菌素而被暂停医疗执照30天
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1882032/)
 
-加拿大温哥华扬帆农场    平民正道
+编译：Jenny Ball
 
-据英国《每日电讯报》1月17日报道，英国首相[约翰逊]近期或将秉承“学会与新冠病毒共存亡”的信念，而逐渐取消包括自我隔离规则在内的大多数疫情限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/da6df04b172f6b6f40e67c4e0436caca.png)
 
-报道称，英国政府将在未来几周内取消大部分卫生法规，包括自我隔离、保持社交距离和在某些场所配戴口罩等。虽然该国卫生部门仍然就公众的日常行为方式提供指导，但将不会再执行罚款或相关法律处罚，并同时放宽疫苗护照的使用限度。
+缅因州医学执照委员会投票决定，让已经行医四十年的70岁的梅丽尔·尼斯医生（Meryl Ness）接受精神病学评估。
 
-据悉，英国近期的疫情趋于缓和，日前的全国病毒确诊人数约为 7万例，低于头天的 82000例，并成为自上个月15日以来，最少的每日感染人数。同时，该国超过70%的人口已完全接种了疫苗，因此，首相约翰逊胆敢冒险取消疫情限制措施之举就不足为奇。
+被指控为 COVID 患者开具抗寄生虫药物伊维菌素和疟疾药物羟氯喹。
+
+一些病人最终住进了医院，其中一名不得不插管。
+
+她还给怀孕的 COVID 患者开了羟氯喹。
+
+尼斯向董事会承认，她向药剂师称她的病人患有莱姆病，以获得羟氯喹来治疗 COVID。
+
+受过麻省理工学院教育的内科医生反vaxx组织，称CDC为“犯罪机构”。
+
+70 岁的尼斯是一名内科医生，积极参与儿童健康保护组织，该组织反对疫苗和疫苗授权。委员会在 1 月 12 日的命令中表示，允许尼斯继续行医“对可能接受她的医疗服务的公众的健康和人身安全构成直接威胁”。
+
+**点评：到底谁对公众构成直接威胁？**
+
+**参考资料：**[dailymail.co.uk][MIT-educated anti-vaxxer doctor who treated COVID patients with Ivermectin and hydroxychloroquine has her license suspended and must undergo psychiatric evaluation ‘for spreading misinformation’](https://www.dailymail.co.uk/news/article-10411699/Doctor-treated-COVID-patients-Ivermectin-license-suspended.html)
 
 * * *
 
-编辑： 平民正道    发布：平民正道
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
 
  
 

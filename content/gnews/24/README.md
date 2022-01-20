@@ -2,25 +2,23 @@
 ---
 
 
-## 中共企图超限战控制加拿大锂业资源
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1881990/)
+## 世卫组织改口并反对青少年加强剂疫苗
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1882030/)
 
-采编：青青            编译撰稿：文莱
+原文采编：UCool优酷  翻译编辑：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-31-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-32-edited.jpg)图片来源：CTV
 
 
-据加拿大自媒体【真北方】1月17日报道，加拿大保守党要求特鲁多政府立即调查在不久前，中共国[紫金矿业]收购加拿大重要矿业公司[尼欧锂业公司]的事件。
+据加拿大《CTV新闻》1月18日报道，世卫组织首席科学家斯瓦米纳坦当天表示，目前尚无医学证据表明健康儿童和青少年需要接种“新冠病毒”加强剂疫苗。
 
-据报道，保守党之所以坚持要求联邦政府重新审查此次收购交易，是因为加拿大已计划在电动汽车行业的增长中发挥一定的作用。为此，政府必须保持相关电池产品关键矿物的供应和获取，以保证加拿大在电动汽车行业中的经济和竞争优势。同时，也以此阻止自由党政府与中共的密切合作而削弱加拿大在此行业中的实力与市场。
+为此，该世卫组织发言人声称，目前不仅需要做更多的研究来确定需要注射疫苗加强针的对象，同时，也无任何证据表明健康儿童或青少年需要接种加强剂。
 
-据悉，[尼欧锂业公司]的核心资产是位于阿根廷西北部卡塔马卡省的3Q锂盐湖项目。由于该项目资源量大、品质高、开发条件好，因此放弃[尼欧锂业公司]的100%控股权等同于直接将重要的国家资源拱手相让给中共。
+报道称，以色列政府已开始为年仅12岁的儿童接种加强剂；[美国食品和药物管理局]本月早些时候已授权为12至15岁的儿童注射第三剂疫苗；此外，德国和匈牙利等欧盟国家也正计划推出类似接种政策。
 
-* * *
+原文链接：[https://www.ctvnews.ca/health/coronavirus/no-evidence-healthy-kids-adolescents-need-covid-19-boosters-who-chief-scientist-says-1.5744617](https://www.ctvnews.ca/health/coronavirus/no-evidence-healthy-kids-adolescents-need-covid-19-boosters-who-chief-scientist-says-1.5744617)
 
 校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[Conservatives demand security review of Chinese takeover of Canadian mine | True North (tnc.news)](https://tnc.news/2022/01/17/conservatives-demand-security-review-of-chinese-takeover-of-canadian-mine/)
 
  
 

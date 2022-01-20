@@ -2,28 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1880860/)
+## 1.19文贵直播：习大神最后的“辉煌”，最后的演讲
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1881051/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-3.jpg)
+整撰：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/topshot-switzerland-china-wef-economy-health-environment-pandemi.jpeg)
+图片来源：Gettr
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-18.png)
-文章仅代表作者本人观点，与Gnews无关
+2022年1月19号，文贵先生一口气将病毒、冬奥会、中共内斗、达沃斯演讲、疫苗经济的关系解释的清清楚楚。
 
-视频参看：[2022.01.19早GTV新闻访谈](https://gtv.org/video/id=61e811d6533c672fca7f5a77)
+**病毒：** 2022是全人类最黑暗的一年。人类的疫苗灾难5月份开始，但病毒基本接近尾声了。如果不放新毒，这波已经接近尾声了。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+**疫苗经济：**习说，大家开始分享疫苗经济，卖药吧，解决心脏病吧。只要你别搞死我，不脱钩，卖骨灰盒啊，卖心脏病药啊，卖不孕症啊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-15.jpg)
+**冬奥会和内斗**：一定会有冬奥会蓝，天降瑞雪，习主席是上天之子，普天同庆，一定会发生。如果14亿中国人的财富和共产党的邪恶，达不到这一点，就不叫共产党了。一切都是为了内部斗争，塑造习天子的形象，展现与天斗与地斗的无穷的力量。百分百是惨败的冬奥会，没有多少国际领导人会去，没有冬奥经济，是习太阳最后一场搏击演出。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**达沃斯：**王岐山不用出手，郭树清和所谓的经济大家们，包括刘鹤，给习出主意，告诉全世界：“你敢戳破印刷钞票的骗局，不让中国人当我的奴隶，大家一起死”。王岐山太高了，能和曾庆红一起，把习玩的一百年都跟不上。
+
+**结论：习近平基本上宣告结束，冬奥会将成为他最后一次国际演出，达沃斯将成为习最后一次国际演讲。**
+
+郭先生还透露，邓（小平）家在卢森堡的老钱，是“天大的钱”, 过去几十年没动了, 最近买了很多黄金和期货。邓家的举动，证明共产党完了。老钱要动，说明习要出大事。说明他们意识到共产党要完了，习要完了。
+
+来源：
+
+[2022.1.19文贵大直播](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
+
+感谢大雨围城战友
 
  
 

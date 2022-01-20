@@ -2,39 +2,40 @@
 ---
 
 
-## 01/19每日播报｜英国正着手结束所有的大流行病限制
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1879803/)
+## 斯洛文尼亚与台湾就互设代表处进行洽谈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1880744/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61e7d2bf533c672fca7f3b10)**
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月18日，据台湾媒体消息显示，近日，斯洛文尼亚总理詹沙在接受媒体采访时透露，斯洛文尼亚正与台湾洽谈互设代表处的相关事宜。
 
-**[2022-01-19](https://gtv.org/broadcast/watch/61e7d2bf533c672fca7f3b11)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-11.jpeg)
 
-据TND 1月18日报道，英国首相鲍里斯·约翰逊(Boris Johnson)正计划在3月初取消所有中共病毒COVID-19大流行病的限制。
+詹沙总理表示，他曾经访问过台湾，也见证了台湾的民主，同时，他还表态支持台湾加入世界卫生组织。此外，詹沙指出，台湾海峡两岸的生意人有着密切往来，中共当局没有理由阻止其他国家与台湾建立经贸关系。
 
-据英国一位 “高级政府消息人士 “透露的信息，英国部长们正在 “认真考虑 “取消所有因大流行病而实施的法律限制，转而采用一种 “基于指导 “的制度。
+詹沙也强调，斯洛文尼亚支持台湾人民的主权决定，且无论台湾最终的结果如何，这个决定必须是在没有外来压力以及军事威胁的前提下做出的。
 
-这一消息是在英国的COVID-19病例连续第13天下降的情况下发布的。据报道，这种下降有助于约翰逊和部长们做出决定。
+对于立陶宛因准许台湾设立代表处而遭到中共经济报复的事件，詹沙称，这种试图孤立小国家的做法实属害人听闻。他还提到，中共对立陶宛的报复，就长远来看，对各方都不利。
 
-《每日邮报》的消息来源声称，即使是 “最基本的 “规则也将结束，例如阳性病例的自我检疫和遵守政府的 “测试和追踪 “计划。
+詹沙最后呼吁，亚太地区所有爱好和平的国家应该形成一个统一战线联盟，用以确保区域力量的平衡，进而可以共同对抗来自中共的威胁。
 
-大流行开始时启动的紧急COVID法律已经定于2022年3月到期，但奥米炕病毒和重新出现的COVID病例激增，可能会让这些法律得到更新或延长。
+参考链接：[印媒專訪 斯洛維尼亞總理：與台洽談互設代表處](https://cn.rti.org.tw/news/view/id/2122388)
 
-据《卫报》报道，由于最近的COVID-19病例下降趋势，约翰逊现在更有信心英国能够与病毒共存，他将最终确定让这些 COVID 法律在 3 月终止的计划
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-据报道，其他的COVID-19限制最快将在下周被取消。
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-据《每日邮报》报道，1月24日，将取消对酒吧和餐馆的，只允许为有座位的顾客提供服务的限制。在同一天社会隔离也将被取消，夜总会将再次被允许营业。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-据报道，对参加室内活动的限制也将在1月24日取消。然而，根据英国政府的指导意见，在3月取消所有限制之前，在公共交通和室内仍然需要戴口罩。
 
-秘翻新闻主编 Grace编译报道
-
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
