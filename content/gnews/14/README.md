@@ -2,41 +2,23 @@
 ---
 
 
-## 水龙吟 七哥旧照
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1885015/)
+## 无苗族男士看过来——如何提高精子质量
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1885044/)
 
-作者：香草山翻译部 – 博迪
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-英雄不老山河老，忍看故园荒寂。
-鸿传旧雨，影留前梦，花开棠棣。
-马快鹰翻，春衫放旷，一时睥睨。
-可曾恨天公，太迟生我，累神州，沉无际。
+**撰稿：志在千里**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/maxresdefault-288.jpg)
+通过郭文贵先生的大直播我们知道，在以后的世界，没有接种新冠疫苗的男性精子是非常珍贵的，那我们平时要怎么做来提高自己的精子质量呢？以下是一些建议可供参考：
 
-谁信三十年里，伴虎狼，丹心长寄。
-中原佛手，燕京龙气，九霄霹雳。
-唤取苍生，同袍四海，道行伐逆。
-谈笑飞樯橹，除魔事了，江湖归逸。
+- 定期适量运动，不久坐，维持正常体重
+- 戒烟戒酒不熬夜
+- 不能纵欲过度，注意自己小兄弟的卫生健康，有合理的性生活
+- 避免穿着过紧的内裤洗澡泡澡时水温不要过高
+- 多吃富含锌的食物，例如牡蛎、红肉、菠菜等，补充维生素C和E
+- 注意自己的精神健康，减少压力，就像文贵先生说的“该吃吃，该喝喝，啥事不往心里搁”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1583.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1584.png)
+当然最最重要的是不要打新冠疫苗，不要感染中共病毒！在疫苗灾难的时代，我们新中国联邦无苗族的精子卵子，就是最珍贵稀缺的资源，大家养成良好的习惯，迎接美好的未来吧！
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

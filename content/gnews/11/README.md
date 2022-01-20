@@ -2,26 +2,51 @@
 ---
 
 
-## 【中日财经爆】融创违约评级被下调至“BB-”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1885049/)
+## 苹果和谷歌通过Telegram干涉德国的言论自由
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1885073/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-21.png)
-[图片来源](https://www.sohu.com/a/473300109_115207)
+作者：银河系农场—骄子
 
-凤凰财经1月20日消息，惠誉评级发布报告，将融创中国控股有限公司的长期外币发行人违约评级从“BB”下调至“BB-”，展望为“负面”。将融创的高级无抵押评级及其已发行的美元高级无抵押票据的评级从“BB”下调至“BB-”。
 
-惠誉表示，评级下调反映了融创中国的财务灵活性因资本市场动荡而有所下降。惠誉预计该公司将使用现金储备偿还近期到期的资本市场债务。
 
-有接近融创的消息人士表示，主流房企目前正在积极通过多种途径持续回血，促进资金面回复。自2021年10月以来，融创中国已通过股权配售、大股东借款、资产处置等多种渠道回笼资金约300亿元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-14.jpg)
 
-信息来源：
 
-[“惠誉下调融创评级至从“BB-”-凤凰周刊](http://www.ifengweekly.com/detil.php?id=14860)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+2022年1月15日，德国柏林AfD议会集团的数字政策发言人、联邦董事会成员Joana Cotar揭露了一个审查丑闻：近几天，在应用程序Telegram的一些特定频道，评论一直处于隐藏状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-31.jpg)
+比如Boris Reitschuster，这是一位右翼媒体人，反对强制接种新冠疫苗。在苹果和谷歌商店下载的Telegram下的评论全部受到此影响，只有网页版的Telegram评论显示是正常的。
+
+发言人Joana Cotar说，苹果和谷歌正在干涉德国的言论自由，令人愤慨。国家有义务落实言论自由的基本权利。如果证实政客或当局向两家公司施加压力，迫使其进行这种言论审查，德国即将没有自由。
+
+到目前为止，只有中国、白俄罗斯、伊朗或俄罗斯等国家对telegram采取了行动。德国的加入令人羞愧。
+
+参考来源：
+
+1.[Joana Cotar: Neuer Zensurskandal um Telegram](https://afdbundestag.de/joana-cotar-neuer-zensurskandal-um-telegram/)
+
+2.[强制接种疫苗和副作用：Reitschuster使政府发言人进行解释](https://www.presseteam-austria.at/zh-CN/强制接种的副作用Reitschuster使政府发言人需要解释/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-6.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-15.jpg)
+
 
 
  

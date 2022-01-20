@@ -2,35 +2,46 @@
 ---
 
 
-## 健康码变黄码！中共以防疫之名变相禁止海淘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1885147/)
+## 美国多数孔子学院遭关闭 数量骤降
+` digital fighting` [轉載自GNews](https://gnews.org/zh-hans/1885188/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-48.png)
-[图片来源](https://finance.sina.com.cn/review/jcgc/2021-11-08/doc-iktzscyy4376730.shtml)
+作者：香草山教育部-Casey（兰兰）
 
-近日，中共多地政府宣称境外快递有传播病毒的风险引发关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
 
-1月17日，北京、深圳、珠海三地均在疫情防控发布会上通报了奥密克戎病例溯源最新进展，均不排除因暴露于境外物品感染的可能性。
 
-其中，北京和深圳两地政府官方均宣称其感染病例与境外快递有关：北京病例于1月11日收到1月7日自加拿大发出的邮件，在此期间其仅接触邮件包装外表面和文件纸张首页，未接触包装内表面和其他纸张；深圳病例从事境外冷冻试剂收发货工作，1月12日接触和分拆了来自北美的快递，未做好个人防护；珠海则有早期发病的个案从事某企业客服工作，经常接触境外入境物品。
 
-多位深圳网友表示，自己的健康码因海淘而变为黄码。
+2020年8月13日，美国国务院宣布，要求孔子学院注册为外交使团。时任美国国务卿蓬佩奥先生在公开声明中表示：孔子学院美国中心不仅在全球推动中共国政府的政令宣导，更对美国校园与各级学校产生了有害的影响。2020年9月1日，蓬佩奥表示，他认为美国大学校园内的孔子学院有望在2020年底前全部关闭。
 
-1月19日，中共官媒红星新闻向多位网友确认了此事。位于深圳南山的何先生接受红星新闻记者采访时称，他于1月13日收到网购物品，18日晚接到社区电话提醒，发现自己的健康码变黄了。他当即去医院做核酸检测，走了黄码检测通道，排队时发现大家几乎都是收到境外快递的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片翻拍自大纪元网站.jpeg)
 
-对于通过快递或邮件感染中共病毒，根据中共《环球时报》2021年11月18日题为《快递是否会成为新冠传播新途径？专家：可能性极低，不必过度恐慌！》的报道，一位不愿具名的公共卫生专家在接受《环球时报》记者采访时表示，目前尚未出现民众因为收发快递感染新冠病毒的案例。新冠病毒在自然环境中固然可以存活，但无法增殖，活性也很有限，普通民众通过“物传人”的方式感染病毒的概率是极低的。
+截至2022年1月6日，美国有94所孔子学院已经关闭或正在关闭，尚存27所，这27所还包括了四所计划关闭的孔子学院，另包括一个在大学进行审查时“暂停”的孔子学院。
 
-截至目前，全球范围仅在中共国出现通过快递或邮件感染中共病毒的案例，并且还不是个案，十分蹊跷。反而是中共假借防疫为由变相禁止民众海淘的意图很明显。
+自2004年以来，中共在世界各地的高校校园内资助孔子学院，提供师资、教材和运营资金。在美国国务院正式宣布孔子学院为外交使团之前，中共政府将之前由国家汉办负责的孔子学院进行了重组，由“中国国际中文教育基金会”负责，该基金会于2020年6月成立。同时原来负责孔子学院的“国家汉办”更名为“教育部中外语言交流合作中心”。
 
-信息来源：
+参考信息来源：
 
-[深圳多人因海淘健康码变黄码！多地疾控提醒减少购买境外商品](https://www.sohu.com/a/517751590_116237)
+[How Many Confucius Institutes Are in the United States?（来自全美学者协会官网）](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+[摘译：认定孔子学院美国中心为外国使团](https://china.usembassy-china.org.cn/zh/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
 
+[“认定孔子学院美国中心为外国使团”声明英文全文](https://china.usembassy-china.org.cn/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
+
+[蓬佩奥：孔子学院年底可能全关闭](https://www.dw.com/zh/蓬佩奥-孔子学院年底可能全关闭/a-54788997)
+
+校对/发稿：飞虹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
