@@ -2,32 +2,58 @@
 ---
 
 
-## 秘翻在线： 要给世界“开药方”的全球共产达沃斯党
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1884814/)
+## 【Michael.Tonny专栏】英国官方数据表明 接种中共病毒疫苗只会导致更多的感染
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1884925/)
 
-**撰稿：葛大饼**
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-20-223920.jpg)图片来源： BBC
-根据2022年1月20日人民网报道， 2022年世界经济论坛（又称达沃斯论坛）正在举行视频会议，**福奇、盖茨、耶伦，欧洲央行行长拉加德、中共国家主席习近**平等都参与了此次会议， 习近平提出要与世界“携手合作，化解各类风险，促进世界经济稳定复苏”等理念，致力于为后疫情时代的全球治理把脉。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-新闻称2022年达沃斯论坛视频会议主要围绕疫情、第四次工业革命、能源转型、气候变化、可持续发展和全球经济展望等10个议题展开。
+截止至1月19日，在英国6820万人中，累计确诊中共病毒感染病例1554.4万例，占英国总人口的22.8%，中共投放的SARS-CoV-2生化武器病毒总共杀死152,996名英国人，占英国人口的千分之2.25。继去年11月25日突破1000万例后，从去年11月25日到1月19日共56天内，英国新增COVID-19病毒感染者550.6万人。尤其是1月4日，单日新增感染者就达到22.12万人。
 
-根据该会议发布的《2022年全球风险报告》指出，人类面临的重大问题可归纳为两方面：抗疫和发展。其中持续扩大的‘疫苗鸿沟’成为全球发展失衡的一大诱因。福奇和疫苗制造商莫德纳（Moderna）的首席执行官**斯特凡·班赛尔**（Stéphane Bancel）就中共新冠病毒疫苗问题展开了讨论，莫德纳的目标是在2022年向低收入国家提供10亿剂疫苗， 并且该公司正在研发一种疫苗，将新冠加强针和季节性流感疫苗结合在一起，这样可以让老百姓少打针。 世界卫生组织（WHO）总干事谭德塞也为发展中国家发声，为贫困落后的国家争取更多的中共新冠病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/United-Kingdom-Total-COVID-19-Cases.jpg)
 
-达沃斯论坛创始人兼执行主席**克劳斯·施瓦布**（Klaus Schwab）表示将继续推动疫苗在发展中国家的接种率 （疫苗经济），既不能“大水漫灌”引发通货膨胀 （外溢效应），又不能“忽冷忽热”破坏国际资本的正常流动和稳定性 （经济脱钩），同时反对秉持“以邻为壑”思维肆意加征关税、挑起贸易战 （批评川普）。
+根据英国卫生部门提供的数据，截止至2022年1月19日，英国共投放1.37亿剂COVID-19病毒疫苗，达全国总人口的2.01倍。共有5215.2万英国人注射了试验性的中共病毒疫苗，占英国总人口的76.46%，有4801.9万人注射了两针中共病毒疫苗，占英国总人口的70.4%，有3662.2万人打了加强针，占英国总人口的53.69%。
 
-本次视频会议中，各国参会代表都肯定和赞扬了中共在新冠病毒爆发以来，为世界和平发展起到了‘稳定器’ （14亿奴隶不受疫情影响继续乖乖被剥削）的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccinated-Per-Hundred.jpg)
 
-听听上面这些魔鬼讨论的所谓关系人类未来的话题！郭文贵先生在2022年1月19日的直播中爆料，只要达沃斯党存在一天，人类就没有一天是安全的！阿尔卑斯山就是欧洲版的昆仑山，如果大家觉得达沃斯和你没关系，那只会让你成为达沃斯的奴隶！参加达沃斯会议的人都没有打中共新冠病毒疫苗，达沃斯的参与者不到一千人，却控制着全世界的财富，他们是世界法律、金融、秩序背后的制造者，全世界的军校，NGO，好莱坞等媒体平台，世界大的武器制造商，背后全部是达沃斯共产党！这就是为什么主流媒体都在删除中共病毒和疫苗的真相！达沃斯其实就是黑暗力量的俱乐部，寻找中共新冠病毒真相，就找共产党和达沃斯党！
+如果目前这种试验性的中共病毒疫苗能够预防感染或者减少死亡，那么，即使存在所谓突破性的感染，注射了中共病毒疫苗的人，感染率和死亡率也应当远远比未注射疫苗的人低得多才正常。
 
-**新闻来源：**
+事实却恰恰相反！
 
-[https://m.yicai.com/news/101292402.html](https://m.yicai.com/news/101292402.html)
+根据英国卫生安全局（UK Health Security Agency）发布的2022年1月13日（第2周）COVID-19疫苗监测报告《[COVID-19 vaccine surveillance report Week 2：13 January 2022](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1047814/Vaccine-surveillance-report-week-2-2022.pdf)》第39页，从2021年12月16日到2022年1月12日的28天内，英国共有3,161,258例新诊中共病毒确诊病例，其中，229,101例疫苗接种状态未知，640,869例未接种疫苗，21,397例为感染前20天内接种了一针疫苗，感染前至少21天打过一针疫苗的有180,939例，2,088,952例打过至少两针疫苗。
 
-[http://world.people.com.cn/n1/2022/0120/c1002-32335266.html](http://world.people.com.cn/n1/2022/0120/c1002-32335266.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-between-week-50-2021-and-week-1-2022.jpg)Health protection
 
+接种两针或加强针疫苗后仍然被中共病毒感染的人是未接种疫苗的3.26倍。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status1-between-week-50-2021-and-week-1-2022.jpg)
+
+那是不是因为接种两针或加强针的人口基数大，从而导致接种两针疫苗或加强针后被感染的人数远远高于从未接种疫苗的人呢？
+
+在这份报告的第43页，表12（Table 12. Unadjusted rates of COVID-19 infection, hospitalisation and death in vaccinated and unvaccinated populations.），有每100,000人中，接种两针或加强针疫苗和未接疫苗人群的新增确诊数对比。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unadjusted-rates-of-COVID-19-infection-hospitalisation-and-death-in-vaccinated-and-unvaccinated-populations.jpg)Health protection
+
+在18+以上各个年龄段的人群中，每10万未接种疫苗人群确诊率明显比已接种两针或加强针疫苗的人群低。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Covid-19-Case-Rates-per-100K.png)
+
+因此，可以得出结论，根据英国英国卫生安全局发布的2022年1月13日（第2周）COVID-19疫苗监测报告，接种实验性的中共病毒疫苗不能预防中共病毒感染，只会导致人体免疫力急剧下降，导致更多感染。
+
+参考数据：
+
+[Coronavirus (COVID-19) vaccines](https://www.nhs.uk/conditions/coronavirus-covid-19/coronavirus-vaccination/coronavirus-vaccine/)
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+[COVID-19 vaccine surveillance report Week 2：13 January 2022](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1047814/Vaccine-surveillance-report-week-2-2022.pdf)
+
+[UK Government Data proves the Covid-19 Vaccines DOUBLE your chances of catching Covid-19](https://dailyexpose.uk/2022/01/19/vaccines-double-chance-of-catching-covid/)
+
+[Data on COVID-19 (coronavirus) by Our World in Data](https://covid.ourworldindata.org/data/owid-covid-data.xlsx)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

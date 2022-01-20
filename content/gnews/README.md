@@ -15,98 +15,98 @@
 
 ---
 
-### [1月19日老班长战友联盟答疑，G系列相关信息文字版](/content/gnews/1/README.md)
+### [美国多数孔子学院遭关闭 数量骤降](/content/gnews/1/README.md)
+ ` digital fighting`
+
+### [1/19/2021 文贵直播：凄凉、混乱、惨败的冬奥会将成为习最后一次国际演出](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [健康码变黄码！中共以防疫之名变相禁止海淘](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1月19日老班长战友联盟答疑，G系列相关信息文字版](/content/gnews/4/README.md)
  ` 全球G系列咨服群`
 
-### [1/19/2021 文贵直播：达沃斯论坛掌控了全球的立法、金融、媒体、文化、警察和军事等方面，控制着人们的思想与行为](/content/gnews/2/README.md)
+### [1/19/2021 文贵直播：达沃斯论坛掌控了全球的立法、金融、媒体、文化、警察和军事等方面，控制着人们的思想与行为](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/19/2021 文贵直播：参加达沃斯论坛的没人打疫苗](/content/gnews/3/README.md)
+### [有声|卡塔尔3周大婴儿因感染中共病毒死亡](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [1/19/2021 文贵直播：参加达沃斯论坛的没人打疫苗](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [爆料革命改写人类历史](/content/gnews/4/README.md)
+### [爆料革命改写人类历史](/content/gnews/8/README.md)
  ` 银河勇气之星`
 
-### [有声|以色列称第二剂加强针无法阻挡奥密克戎](/content/gnews/5/README.md)
+### [苹果和谷歌通过Telegram干涉德国的言论自由](/content/gnews/9/README.md)
+ ` GTV News Talk`
+
+### [有声|以色列称第二剂加强针无法阻挡奥密克戎](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [【中日财经爆】融创违约评级被下调至“BB-”](/content/gnews/6/README.md)
+### [【中日财经爆】融创违约评级被下调至“BB-”](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [无苗族男士看过来——如何提高精子质量](/content/gnews/7/README.md)
+### [无苗族男士看过来——如何提高精子质量](/content/gnews/12/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [1/19/2021 文贵直播：新中国联邦将推出前所未有的去中心化保险](/content/gnews/8/README.md)
+### [1/19/2021 文贵直播：新中国联邦将推出前所未有的去中心化保险](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [水龙吟 七哥旧照](/content/gnews/9/README.md)
+### [水龙吟 七哥旧照](/content/gnews/14/README.md)
  ` 纽约香草山MOS03`
 
-### [2021年12月9-10日 郭先生视频部分内容整理](/content/gnews/10/README.md)
+### [2021年12月9-10日 郭先生视频部分内容整理](/content/gnews/15/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [01/20/22 香港快讯 教育人员专业操守议会5月停运 杨润雄曾斥长年由教协及其「党羽」主导](/content/gnews/11/README.md)
+### [国家对媒体的控制是真正的危险](/content/gnews/16/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [01/20/22 香港快讯 教育人员专业操守议会5月停运 杨润雄曾斥长年由教协及其「党羽」主导](/content/gnews/17/README.md)
  ` 英喜-粵語組`
 
-### [【粤语配音】2022年1月19日：达沃斯、冬奥会将是习近平最后的一次表演](/content/gnews/12/README.md)
+### [【粤语配音】2022年1月19日：达沃斯、冬奥会将是习近平最后的一次表演](/content/gnews/18/README.md)
  ` MOS香港部`
 
-### [爆料革命——历史的今天12月10日](/content/gnews/13/README.md)
+### [爆料革命——历史的今天12月10日](/content/gnews/19/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [14岁少女惨遭7名男女暴侵](/content/gnews/14/README.md)
+### [14岁少女惨遭7名男女暴侵](/content/gnews/20/README.md)
  ` 纽约香草山MOS03`
 
-### [加密货币巴士是一艘火箭而不是巴士](/content/gnews/15/README.md)
+### [加密货币巴士是一艘火箭而不是巴士](/content/gnews/21/README.md)
  ` DC政经`
 
-### [【Michael.Tonny专栏】英国官方数据表明 接种中共病毒疫苗只会导致更多的感染](/content/gnews/16/README.md)
+### [【Michael.Tonny专栏】英国官方数据表明 接种中共病毒疫苗只会导致更多的感染](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|灭共者之郭氏情报站（十三）2022/01/17 文贵大直播](/content/gnews/17/README.md)
+### [有声|天津疑因物资紧缺爆发群众抗议](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [【樱花数据分析】英国：两针接种者更易感染奥密克戎毒株](/content/gnews/18/README.md)
+### [【樱花数据分析】英国：两针接种者更易感染奥密克戎毒株](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [恒大债券持有人考虑采取强制执行措施](/content/gnews/19/README.md)
- ` 波士顿五月花农场金融部`
-
-### [有声|夏威夷考虑将加强剂纳入完全接种疫苗的考量标准](/content/gnews/20/README.md)
+### [有声|夏威夷考虑将加强剂纳入完全接种疫苗的考量标准](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [【樱花深度报道】习近平地位貌似安全，但中共领导层正在摇摇欲坠（下）](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线： 要给世界“开药方”的全球共产达沃斯党](/content/gnews/22/README.md)
+### [秘翻在线： 要给世界“开药方”的全球共产达沃斯党](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【樱花深度报道】习近平地位貌似安全，但中共领导层正在摇摇欲坠（上）](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|美参谋首长主席打三剂疫苗仍被确诊](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [DC每日热点0120](/content/gnews/25/README.md)
+### [DC每日热点0120](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【中日财经爆】日本JFE将通过发行过渡债券，为开发新的脱碳技术筹集资金](/content/gnews/26/README.md)
+### [【中日财经爆】日本JFE将通过发行过渡债券，为开发新的脱碳技术筹集资金](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前医生起诉休斯顿卫理公会医院 要求提供疫苗反应以及财务报告](/content/gnews/27/README.md)
- ` 波士顿五月花农场`
-
-### [【中日财经爆】软银集团发布7年期巨额次级债卷，疑经营出问题](/content/gnews/28/README.md)
+### [【中日财经爆】软银集团发布7年期巨额次级债卷，疑经营出问题](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共鼓吹“希腊各界”祝福冬奥会 营造最后的虚假盛世](/content/gnews/29/README.md)
+### [秘翻在线：中共鼓吹“希腊各界”祝福冬奥会 营造最后的虚假盛世](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [如何避免成为医疗暴政的牺牲品](/content/gnews/30/README.md)
+### [如何避免成为医疗暴政的牺牲品](/content/gnews/31/README.md)
  ` 波士顿五月花农场`
-
-### [对金州勇士队老板没人在乎维族人的评论，坎特表示这令人作呕](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中共国珠海和中山陆续出现奥米炕疫情](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

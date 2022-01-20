@@ -2,59 +2,33 @@
 ---
 
 
-## 【Michael.Tonny专栏】英国官方数据表明 接种中共病毒疫苗只会导致更多的感染
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1884925/)
+## 国家对媒体的控制是真正的危险
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1884989/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+作者：HR， 2022年1月18日发表
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-12.tif)图片：Dominic Steinmann/NZZ
+***国家资助会破坏媒体的独立性。《新苏黎世报》（NZZ）得出这样的结论：“媒体经济学的研究文献显示了其中潜藏的陷阱”。***
 
-截止至1月19日，在英国6820万人中，累计确诊中共病毒感染病例1554.4万例，占英国总人口的22.8%，中共投放的SARS-CoV-2生化武器病毒总共杀死152,996名英国人，占英国人口的千分之2.25。继去年11月25日突破1000万例后，从去年11月25日到1月19日共56天内，英国新增COVID-19病毒感染者550.6万人。尤其是1月4日，单日新增感染者就达到22.12万人。
+目前，在奥地利很明显的展现了政治和媒体之间的密切关系是多么的不健康。奥地利所有主流媒体的代表都被国家 “召见”，并在部长级的“呼吁 ”下 “宣誓”对新冠病毒进行忠实于政治路线的报道。不这样做的媒体，例如你好电视台（Servus TV），会在肿瘤媒体上被打成为替罪羊， 按照奥地利“标准”被称为 “新冠病毒无害论者、疫苗接种反对者和盖茨阴谋论者之乡”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/United-Kingdom-Total-COVID-19-Cases.jpg)
+在瑞士新媒体法公投前不到四周，《新苏黎世报》将奥地利作为一个 “警示性的例子”。它以塞巴斯蒂安-库尔茨（Sebastian Kurz）为例：“奥地利的前政治明星最近不得不辞去联邦总理的职务，据称是因为他的随行人员被怀疑用纳税人的钱买通一家小报对他进行正面的报道”。
 
-根据英国卫生部门提供的数据，截止至2022年1月19日，英国共投放1.37亿剂COVID-19病毒疫苗，达全国总人口的2.01倍。共有5215.2万英国人注射了试验性的中共病毒疫苗，占英国总人口的76.46%，有4801.9万人注射了两针中共病毒疫苗，占英国总人口的70.4%，有3662.2万人打了加强针，占英国总人口的53.69%。
+库尔茨的败笔是 “奥地利新闻经费的一个相当特殊的因素”：“在邻国，联邦各州政府机构每年有大约2亿欧元可供支配，可以相对自由地在媒体上投放广告”。这是一个 “公开的秘密”，来自四面八方的政客把这种政府广告用作施压手段：“不守规矩的媒体 ”将受到撤销广告的威胁。相反，正面的报道会得到国家广告费的奖励。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccinated-Per-Hundred.jpg)
+《新苏黎世报》接下来引用了一系列的研究结果，证明媒体越是独立于国家资助，他们的报道对国家的忠诚度就越低。这意味着，通过广告费和私人资助及订阅来获取资金，对媒体独立性而言至关重要。你好电视台（Servus TV）就是很好的例子，它让人看到亲政府媒体对私人广播公司公开的恶意。
 
-如果目前这种试验性的中共病毒疫苗能够预防感染或者减少死亡，那么，即使存在所谓突破性的感染，注射了中共病毒疫苗的人，感染率和死亡率也应当远远比未注射疫苗的人低得多才正常。
+那么，现在正在辩论的关于有利于瑞士媒体的一揽子措施的新联邦法律又是怎样呢？《新苏黎世报》把向网络媒体提供总额为 3000 万瑞士法郎的新资金称为“敏感问题”。“资金额度尤其有问题：网络媒体按此法律能够获得最高为其营业额60%的国家资助”。
 
-事实却恰恰相反！
+这里暗藏一个危险：“媒体经济学的研究清楚地表明，尽可能多地从非政府渠道获得收入是媒体独立性的核心”，《新苏黎世报》再次强调，（而新条文所规定的）向网络媒体提供资助会是首次直接从联邦财政预算中为编辑提供支持：“总的来说，新媒体法的目的是为了缩短媒体与政治之间的距离”。理所当然没有理由在2月13日对瑞士新媒体法投赞成票。
 
-根据英国卫生安全局（UK Health Security Agency）发布的2022年1月13日（第2周）COVID-19疫苗监测报告《[COVID-19 vaccine surveillance report Week 2：13 January 2022](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1047814/Vaccine-surveillance-report-week-2-2022.pdf)》第39页，从2021年12月16日到2022年1月12日的28天内，英国共有3,161,258例新诊中共病毒确诊病例，其中，229,101例疫苗接种状态未知，640,869例未接种疫苗，21,397例为感染前20天内接种了一针疫苗，感染前至少21天打过一针疫苗的有180,939例，2,088,952例打过至少两针疫苗。
+原文链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status-between-week-50-2021-and-week-1-2022.jpg)Health protection
+[https://corona-transition.org/staatliche-vereinnahmung-von-medien-ist-eine-reale-gefahr](https://corona-transition.org/staatliche-vereinnahmung-von-medien-ist-eine-reale-gefahr)
 
-接种两针或加强针疫苗后仍然被中共病毒感染的人是未接种疫苗的3.26倍。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-cases-by-vaccination-status1-between-week-50-2021-and-week-1-2022.jpg)
-
-那是不是因为接种两针或加强针的人口基数大，从而导致接种两针疫苗或加强针后被感染的人数远远高于从未接种疫苗的人呢？
-
-在这份报告的第43页，表12（Table 12. Unadjusted rates of COVID-19 infection, hospitalisation and death in vaccinated and unvaccinated populations.），有每100,000人中，接种两针或加强针疫苗和未接疫苗人群的新增确诊数对比。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unadjusted-rates-of-COVID-19-infection-hospitalisation-and-death-in-vaccinated-and-unvaccinated-populations.jpg)Health protection
-
-在18+以上各个年龄段的人群中，每10万未接种疫苗人群确诊率明显比已接种两针或加强针疫苗的人群低。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Covid-19-Case-Rates-per-100K.png)
-
-因此，可以得出结论，根据英国英国卫生安全局发布的2022年1月13日（第2周）COVID-19疫苗监测报告，接种实验性的中共病毒疫苗不能预防中共病毒感染，只会导致人体免疫力急剧下降，导致更多感染。
-
-参考数据：
-
-[Coronavirus (COVID-19) vaccines](https://www.nhs.uk/conditions/coronavirus-covid-19/coronavirus-vaccination/coronavirus-vaccine/)
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-[COVID-19 vaccine surveillance report Week 2：13 January 2022](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1047814/Vaccine-surveillance-report-week-2-2022.pdf)
-
-[UK Government Data proves the Covid-19 Vaccines DOUBLE your chances of catching Covid-19](https://dailyexpose.uk/2022/01/19/vaccines-double-chance-of-catching-covid/)
-
-[Data on COVID-19 (coronavirus) by Our World in Data](https://covid.ourworldindata.org/data/owid-covid-data.xlsx)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+校对: 英喜德语组 Danny， 貓聲/ 发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
