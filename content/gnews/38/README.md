@@ -2,24 +2,26 @@
 ---
 
 
-## 苏格兰将于1月24日起取消所有疫情限制措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883351/)
+## 洛杉矶某校未接种新冠疫苗学生受到虐待
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883388/)
 
-撰稿：纽约香草山文艺部 – 宁文静
+撰稿: 银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-1月18日，苏格兰首席部长尼妮古拉·斯特金宣布，从下周一开始，为应对中共病毒而采取的所有限制措施，都将被取消。 她说该国的中共病毒疫情感染率正处于“下降趋势”，但敦促人们在社交互动中保持谨慎。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1551.png)
-这些取消的措施包括，人们在室内社交聚会中不得超过三家人，酒吧和餐馆的强制性餐桌服务以及进入大型公共活动需出示疫苗通行证。斯特金说，尽管在这波奥密克戎来势汹汹的浪潮中，局势已经发生了根本逆转，但未来几周仍然有可能看到感染病例的上升。希望公众主动调整行为以阻止病毒传播，鼓励居家工作。
+美国媒体1月18日消息，近日洛杉矶New West Charter学校的几名学生，因未接种中共病毒疫苗受到了严重虐待。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1553.png)
+据悉被虐待学生包括四名新生、一名大二学生、一名大三学生，她们被警察用警戒带封闭在露天场所，与其他学生隔离开来。他们被禁止使用洗手间，甚至还被威胁停学。
 
-斯特金的这番声明是在苏格兰保守党一直呼吁1月底取消学校戴口罩等一切限制措施的背景下发出的。作为民族党党魁、苏格兰国民议会第一部长，斯特金女士的表态受到反对党以及民众的欢迎。有评论称，“是时候结束无休止和荒谬的限制了，让自由回到苏格兰”。
+新闻来源:
 
-新闻链接: [Scotland Omicron restrictions to end on Monday, says Nicola Sturgeon](https://www.independent.co.uk/news/uk/politics/scotland-covid-restrictions-omicron-sturgeon-b1995427.html)
+
+
+> [New West Charter School LA Caught Abusing Young Unvaccinated Girls – Denied Chairs, Forced to Sit Outside on Pavement, Not Allowed to Use Restrooms](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
+
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
 
-总编: Irene木木
-
-编辑: Lakeman文仁
+总编/编辑: 飞虹
 
 校正/发稿：浪迹天涯
 
