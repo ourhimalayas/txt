@@ -2,21 +2,41 @@
 ---
 
 
-## 全球主义家、政客、官僚想通过疫苗政策把人民长久的压迫在指尖之下
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1885403/)
+## 肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885488/)
 
-时至今日，对权力饥渴的官僚们对劳动人民发动的浩劫仍没有停止，这就是为什么几个月来，反对疫苗护照和其他苛刻新冠规定的欧洲人纷纷走上街头，急切地表达自己的意见，过去的一周，德国、比利时、奥地利、捷克、法国，甚至是小岛国马耳他都组织了抗议和游行，加拿大的卡车司机也团结起来，反对要求从美国返回的未打疫苗的加拿大卡车司机，进行隔离检疫的新联邦规定，美国的疫苗任务将于1月22日开始执行，因此如果卡车司机没有接种疫苗，就不能开车进入美国，看来你嫌供应链的问题还不够多，谢谢你乔-拜登。
+编译：wenwu
 
-到目前为止，欧洲和加拿大的民选官员选择站在国际官僚和财阀的一边，他们想要长时间地将人民置于他们的指尖之下。花瓶男孩贾斯汀-特鲁多和埃马纽埃尔-马克龙，已经开始对未接种疫苗的和不遵从规定的人进行公开羞辱，一些国家正在全力推进新的规定，以边缘化、排斥和让公民生活不便，感谢上帝，作为美国人我们比他们有更多的选择。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1593.png)图片来源：thenationalpulse.com
 
-我们可以打官司来争取权利，或者从伊利诺伊和纽约这样的新冠政策州搬到德克萨斯州和佛罗里达等更友好的地方，这就是为什么全球主义者将美国人民视为达到终极全球统治的真正障碍，我们的整个宪法的原则得到了恰当的保护，这对全球主义家们来说是一个巨大的障碍。第一修正案、第二修正案、第四修正案、第十四修正案，它们都保护个人免受国家的压迫，很明显大多数精英阶层更喜欢中国的政府系统，在那里不同意见者很容易被压制，没有例外。
+据《国家脉动》独家披露，拜登总统辩论委员会联合主席肯尼斯·沃拉克（Kenneth Wollack）参加了与中共官员和其影响团体的几次”非公开”对话。
 
-素材：文倩
-翻译：Kent
-字幕：米小乐
+沃拉克——同时也是公共资助的国家民主基金会（NED）董事会主席——是参加所谓的首届美中高级别政党领袖对话（U.S.-China High-Level Political Party Leaders Dialogue）的十名主要代表之一，该对话由东西方研究所与中共中央对外联络部（International Department of the Central Committee of the Communist Party of China）“合作”主办。
 
-编辑/发文：Kent
+美国代表团由美国前国务卿马德琳·奥尔布赖特（Madeleine K. Albright）率领，尽管她的女儿爱丽丝（Alice）与中国共产党有大量投资，但她最近被选中负责拜登时代的一项关键对外援助计划。
 
+美国代表团总结说：“它寻求通过就治理和外交政策问题交换意见，在美国和中共国的政治精英之间建立理解和信任。”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1595.png)图片来源：thenationalpulse.com
+
+值得一提的是，东西方研究所（EastWest Institute，如图）在与包括中美交流基金会（CUSEF）在内的首要中共国影响力团体合作方面有着长期的记录；鉴于东西方研究所与北京的密切关系，沃拉克的代表团与中国共产党领导人习近平和中共政权[统战部](https://www.eastwest.ngo/idea/1st-us-china-high-level-political-party-leaders-dialogue-report)的高级官员，进行了“[非正式](https://archive.ph/VPDDC)”会晤。
+
+中美交流基金会由中共统战部副部长创办，该组织旨在“收编和化解可能反对中共执政的党政和权力的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。中美交流基金会还赞助了各种美中高级别政党领袖对话。
+
+第二年（2011年），沃拉克[参加了](https://www.eastwest.ngo/idea/3rd-us-china-high-level-political-party-leaders-dialogue)在中国北京和四川举行的另一次美中高级别政党领导人对话。
+
+东西方研究所解释说：”这次访问标志着对话进程首次扩大到北京以外，包括在中国其他地区举行会议，以努力促进两国政治精英之间更广泛的了解。“
+
+2012年12月，沃拉克参加了另一个以商业为重点的代表团，东西方研究所总结为重点是“如何扩大中共国和美国之间的贸易关系，特别是在省和州一级。”
+
+新闻来源：[thenationalpulse.com] [EXC: Presidential Debate Commission Chief Held ‘Off-The-Record’ Meetings With Chinese Communist Propagandists, And Xi Jinping.](https://thenationalpulse.com/2022/01/18/debate-commission-co-chair-participated-in-ccp-meetings/) | 发布时间：2022年01月18日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

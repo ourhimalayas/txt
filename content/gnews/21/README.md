@@ -2,58 +2,39 @@
 ---
 
 
-## 【信仰之声】我的老板是大有能力的
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1885202/)
+## 埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1885368/)
 
-作者：纽约香草山福音部 — Joy
+据《布雷巴特新闻》作者：WARNER TODD HUSTON，2022年1月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3532.png)图片源自Getty Images
+埃内斯-坎特抨击了金州勇士队的共同所有者，认为他对中共国正在进行的针对维吾尔人的种族灭绝行为漠不关心，他说：“没有人关心维吾尔人的遭遇。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+周六，勇士队联合老板查马特-帕里哈皮提亚在接受All-In播客采访时，对数百万中共国维吾尔人被奴役的事实漠不关心，即使依然没有人关心他们的遭遇。对他来说，这不是一个值得费心的问题。
 
+埃内斯-坎特则抨击出生于斯里兰卡的帕里哈皮提亚也是种族问题的产生的“共犯”。
 
+“当NBA说我们代表正义的时候，别忘了还有那些为了金钱和生意而出卖自己灵魂的人，比如勇士队的老板查马斯，”他说。“没有人关心维吾尔人的遭遇，”他在1月17日的推特上写道。
 
+“当种族灭绝发生时，正是这样的人让它发生。”这位NBA球员补充道：“耻辱！”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1590.png)图片源自：推特
+当帕里哈皮提亚说没有人关心中共国的种族灭绝时，甚至连播客主持人都感到震惊。
 
+“没有人关心发生在维吾尔人身上的事情，好吗？你提出来是因为你真的关心，我认为你关心是件好事。我们其他人并不关心。我只是告诉你一个非常艰难、丑陋的事实。在我关心的所有事情中，是的，它排的很靠后。在我关心的所有事情中，它低于我的关注范畴。”帕里哈皮提亚说法，让播客主持人大卫-萨克斯感到震惊。
 
+帕里哈皮提亚补充说：“这不是关心。……我关心的是，如果中共国入侵台湾，我们的经济会在一瞬间发生变化。我关心气候变化。我关心美国衰败的医疗保健基础设施。但如果你问我，我是否关心另一个国家的一部分人？除非我们能照顾好自己，否则我不会把他们置于我们之上。”
 
+帕里哈皮蒂亚不屑地补充道：“我想很多人都相信这一点，如果这是个难以启齿的事实，我很抱歉。但每次我说我‘关心维吾尔人’时，如果我不是真的关心，我只是在撒谎，所以我宁愿不对你们撒谎，而选择告诉你们真相。这对我来说不是一个优先事项。”
 
+原文连接：[**https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/**](https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/)
 
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-从前我是被罪恶捆绑的，是黑暗的奴隶，做我不情愿做的污秽的事，陷在罪的泥潭中无法自拔，每日叹息，却无力改变。我就是那天生瞎眼的、瘸腿的，每日乞讨为生，盼望奇迹和救赎可以发生。年复一年，日复一日，在等待变得无望的时候，我遇到了神。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_0837.jpg)
-
-
-
-他大施拯救，叫我站立我就起来，开我的眼睛我就看见。
-
-有一位神他创造宇宙万物、使无变成有、 有权威荣耀慈爱恩典、昔在永在的神，他把我从黑暗的国度移到他爱子荣耀的国度里，使我的罪得赦免。
-
-我的神就是我的新老板。从此以后，所有的征战我不凭自己打，请我的老板帮我打。我的老板又有智慧又有力量，无往不胜。在我困惑的时候，我压抑的时候，我遇到抵挡的时候，孤軍作战力不胜敌的时候，我就请我的老板帮助我。我有一位智慧能力高大无比，无所不胜的老板。我竟然有这么好的老板，我还怕什么哪? 我是他的儿女他一定会为我作战。从此我要向罪宣告得胜，魔鬼撒旦见到我就逃跑，因为我的神和我同在。阿们！
-
-2022年1月20日
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1.jpeg)
-
-*编辑 /校对*：德州牛仔
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

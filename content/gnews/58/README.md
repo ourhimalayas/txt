@@ -2,31 +2,31 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1882552/)
+## 七哥谈“依法抢你的钱”(2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1881922/)
 
-作者：香草山翻译部
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+来源：郭先生2022-01-17直播08：27：01摘录
 
+怎么抢你钱啊？依法抢你的钱。就在刚刚在达沃斯举行的，这个达沃斯所谓的论坛上在场的人的财富，占了人类还不到1%，千分之一都不到，他控制了人类90%的财富。而每次做上宾大佬就是中国共产党习近平、习太阳啊。那么第三个，共产党要想拿走你的钱，又不让你知道现在干什么、过去干了什么、未来干什么，西方世界正在和他们一起勾结，那就是叫什么？控制法律，控制法律的方式那是多方面的，除了蓝金黄威胁收买情报之外，这是一个共产党长期的超限战的一个重要方式。当任何国家的金钱，也就是他的金融机构、和他的媒体、和他的法律部门、一旦和邪恶合作的时候，任何国家的人力都不会再有安全。你的财富随时都会失去，甚至因为你拥有了财富会失去生命，这就是我们从第一天到今天说的，以法灭共，让中国人拥有独立的司法系统，法律是一个人类安全、公平、有尊严，一个最基本的社会基石。他就像道德一样，是人和畜生分开的一个基本的基础，任何一个文明的社会一旦失去做人的道德，你就跟畜生没有任何两样，当任何一个社会，当没有法律的时候，每个人都是下一个被害者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0119text-SC.png)
-校对：Stay文苑
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-编辑：Stay文苑
+**关注我们**
 
-发稿：Stay文苑
+Discord 账号
 
-视频参看：[1.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61e8bab8533c672fca7fa66f)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-14.jpg)
+Gettr 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
