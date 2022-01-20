@@ -2,56 +2,41 @@
 ---
 
 
-## 俄罗斯与西方会谈未果，宣布参与中伊联合海军演习
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1883055/)
+## 疑偷盗技术 中共投资引FBI和投资委员会调查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883160/)
 
-![中国俄罗斯全球战略利益的重叠度增加但仍存局限- BBC News 中文](https://ichef.bbci.co.uk/news/640/cpsprodpb/1C3A/production/_118662270_139238142_15955952830291n.png)资料图
-来自美国《新闻周刊》网站1月18日的报道，俄罗斯表示，它将参加中共国和伊朗的联合海军演习，随着俄罗斯在乌克兰边境附近集结军队，人们开始密切关注莫斯科的军事策略。
+撰稿：MOS- 柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+1月18日，美国媒体透露，美国联邦调查局和外国投资委员会正在调查中共对一家飞机初创公司的投资，此前，有人指控该公司向中进行了不当技术转让。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1548.png)
+据悉，中共企业上海浦东科学技术投资公司，最初以小额投资入股了一家位于加州生产小型两栖飞机的企业，以规避美国外国投资委员会的审查监管。该企业生产的飞行器可被改造，用来生产军用无人机。
 
-几天前，莫斯科方面表示，它将对其在俄罗斯远东地区的部队进行快速战备检查，随后，俄罗斯发布了以上声明。目前，世界各国政府对俄罗斯入侵乌克兰的可能性越来越感到担忧。
+后来，中共企业逐步增资，至2017年成为该飞机企业的第一大股东。随后，它便以选举代理董事及任命经理人等方式向企业施压，要求将技术转移至中共国。
 
-上周，[俄罗斯和西方官员之间的会谈未能取得突破](https://www.newsweek.com/russia-ukraine-nato-talks-steven-pifer-vladimir-putin-1669453)，该会谈是为平息乌克兰对俄罗斯在其边境的军事存在的担忧。克里姆林宫一再否认自己有任何入侵邻国的计划。
+2021年3月，第一架飞机被送至大陆。4月，公司开始知识产权转移，给予了中共“无限制吸收该技术的权利”。
 
-周二，俄罗斯国防部表示，其太平洋舰队的一支分遣队已进入伊朗俾路支斯坦(Baluchestan)省的恰巴哈尔(Chabahar)港。
+目前，美国联邦调查局和外国投资委员会尚未对该调查发表评论。
 
-俄罗斯驻德黑兰大使列万·贾加良(Levan Dzhagaryan)于2021年8月宣布了将在波斯湾举行的名为“CHIRU”的联合海上演习，并计划于2021年底或2022年初举行。
+链接：[Chinese Investment in U.S. Plane Maker Draws FBI, National-Security Reviews](https://www.wsj.com/articles/chinese-investment-in-u-s-plane-maker-draws-fbi-national-security-reviews-11642507206)
 
-在俄罗斯和中共政权继续加强军事合作之际，贾加良对俄罗斯官方媒体表示，这些演习旨在“确保国际航运安全”和“打击海盗行为”，各机构周二重申了这一信息。
+[中共对美航空企业投资引来FBI和国安调查](https://docs.google.com/document/d/1sD567DxtJ7FSgC5hsTTgji3zOciFesKOS22pScFR2ks/edit)
 
-前北约最高军事指挥官柯蒂斯·“麦克”·斯卡帕罗蒂(Curtis“Mike”Scaparrotti)表示，伊朗和中共国将密切关注美国如何处理乌克兰危机。他在由韩裔美国人组织ICAS赞助的一个在线论坛上表示，俄罗斯驻白俄罗斯的军队（与乌克兰和北约国家波兰、拉脱维亚和立陶宛接壤）对欧洲构成了威胁。俄罗斯也有可能夺取连接俄罗斯和克里米亚的狭长地带，俄罗斯在2014年从乌克兰手中吞并了这片土地。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
 
-据美国海军研究所(U.S. Naval Institute)报道，斯卡帕罗蒂上周表示，这些举措是“相互关联的，并且将告知[习近平和伊朗”，如果北京升级台湾紧张局势，而德黑兰在中东也采取同样行动，可以据此预期美国将作何反应。](https://www.newsweek.com/topic/xi-jinping)
+总编：Jack Li文阳
 
-克里姆林宫发言人德米特里佩斯科夫说，普京将在2月份访问中共国出席北京[冬奥会](https://www.newsweek.com/topic/olympics)开幕式之际，向中共国家主席习近平介绍上周与北约举行的会谈情况。
+校正/发稿：浪迹天涯
 
-据路透社报道，上周，俄罗斯国防部宣布，计划在俄罗斯远东地区举行军事演习，意欲“评估军队的准备情况……在俄罗斯境内远距离重新集结后执行所需的任务”。
-
-白俄罗斯总统亚历山大·卢卡申科(Alexander Lukashenko)也表示，俄罗斯军队和装备已经开始抵达白俄罗斯西部。他说，作为“联盟决心军事演习”(Operation Allied Resolve)的一部分，联合军事演习将于2月在北约成员国波兰和立陶宛的边界开始。
-
-简评：
-
-俄罗斯与西方会谈未果，旋即转脸宣布要参与中共与伊朗将举行的军事演习，这一举动需要美国和北约成员国慎重考虑。所有类似的军事或经济会谈，其真实细节永远不可能为外界所知，但是，行动却是一个反映内涵的良好参照物。俄罗斯的行动说明它“很不满意”，它要联合中共和伊朗，是在向外界表明，它有谈判的筹码。
-
-中共政权作为俄罗斯对抗西方世界的一个筹码，它的选择是不多的，面对国内不断下行的经济压力、面对党内激烈的政治斗争、面对来自国际上有关人权、病毒溯源、和对其军事冒进的声讨，如果它离开了俄罗斯的站台，可能瞬间会被国际压力击垮，因此在当下，它对俄罗斯必是言听计从的。
-
-普京的策略很明显，中共的狼子野心世界各国也应该早有警觉，伊朗目前来看还没有撼动世界的能力。北约和美国如果还不能及早认清它们面对的真正威胁是什么，则可能要付出更大的代价。中共政权已经利用新冠病毒对全世界发动了生物战争，如果中共借助俄罗斯与西方国家之间的分歧得以喘息，它必会在未来对国际社会造成更大的伤害。世界的邪恶之源头在中共，而俄罗斯需要的可能只是一个利益上的平衡，孰重孰轻，以美国为首的西方世界当真要谨慎对待。
-
-新闻链接: [https://www.newsweek.com/russia-ukraine-vladimir-putin-kyiv-pacific-fleet-iran-china-1670278](https://www.newsweek.com/russia-ukraine-vladimir-putin-kyiv-pacific-fleet-iran-china-1670278)
-
-翻译/简评:Harvey（叶知秋）
-
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

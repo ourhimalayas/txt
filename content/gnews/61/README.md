@@ -2,151 +2,64 @@
 ---
 
 
-## 国防部正在把福奇暴露出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+## 塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1851946/)
 
-[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
+秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-12.08.23-PM.jpeg)
+塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中。
 
-**Steve Bannon
-史蒂夫·班农**
+事实上，这些是它的参数，因此有死胡同的说法。这是因为，一方面，与中国的外交关系岌岌可危，另一方面，另一个阵营的政治活动家正在被美国承认。
 
-Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
-马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
+整个问题涉及可能引渡两名中国公民，一名母亲和一名儿子，他们获得了共和国的永久居留许可，并通过投资计划在帕福斯省定居。
 
-this Veritas amazing Veritas leak
-这个“真理”项目，惊人的“真理”泄漏
+去年 12 月 8 日（2021 年），根据国际刑警组织的红色通缉令，他们在 Pegeia 被法庭逮捕。出于安全原因，这两个人的姓名和年龄没有透露，在他们的祖国被通缉。他们涉嫌与金融/投资欺诈有关的罪行，据中国当局称，2013 年发生在中国。
 
-that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
-他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
+目前，这对母子被关押在中央监狱，直到帕福斯地方法院就中国当局的引渡请求作出决定。考虑到所有参数，这个决定似乎一点也不简单。
 
-Is this the beginning of more information?
-这将会是更多信息的开始吗？
+与 L.D. 的协议 中国的
 
-Do you think that certain individuals real scientists inside the apparatus
-你认为系统内部的某些真正的科学家
+塞浦路斯共和国和中华人民共和国之间有一项关于引渡逃犯的特别协议，该协议实际上是合法的（参见 2019 年批准法 {Law 12 (III) / 2019.）。这也是建立在幅员辽阔的国家与塞浦路斯共和国之间的良好关系之上。
 
-that’s we’ve had enough we got to stop this madness, Dr. Malone.
-我们已经受够了，我们必须停止这种疯狂，马龙博士
+美国的政治运动
 
-Dr. Robert Malone
-罗伯特·马龙博士
+然而，整个案件因其他相关事实和事件而变得复杂。这两名被拘留者是新中国联邦的成员和政治活动家。这场政治运动，也称为游说，由郭文贵和史蒂夫·班农发起，其既定目标是推翻中国共产党（CCP），进而推翻中国政府。
 
-I think it’s the DOD saying they’ve had enough of this.
-我认为是国防部说他们已经受够了
+它于2020年6月4日在纽约成立，自称是中国的“流亡政府”，间接得到美国的承认。
 
-And I’m not sure if this came from a JAG’s office
-我不确定文件是否来自美国陆军总检察长的办公室
+联邦调查局的支持
 
-because they’re stamped like they are
-因为它们看起来像
+事实上，在 2020 年底，美国联邦调查局正式表达了对中华人民共和国对居住在美国的华人的类似迫害的不满。
 
-based on the file names or if it came from DARPA
-基于文件名或是来自国防高级研究计划局
+该服务办公室主任克里斯托弗·雷 (Christopher Ray) 于 2020 年 10 月 28 日发表了官方声明，除其他外，中国共产党不会被允许针对生活在美国和其他国家的中国人，只是“因为他们被看到作为对政权的威胁。”
 
-But having looked at these again and again in recently communicating with the DOD JAG
-但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
+法治基金致各部委的信
 
-it’s trying to smoke out whose office this might have come out of.
-文件，在试图找出这可能来自谁的办公室
+我们持有并呈现的一封信被添加到整个场景中。法治基金于 1 月 5 日上周三将其发送至塞浦路斯司法和公共秩序部，同时也发送至内政部。
 
-I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
-我认为现在是国防部终于出来说够了
+它是一个同样位于美国（纽约）的激进组织，旨在为中华人民共和国的人权保护服务。作为其活动的一部分，它对中国执政党（CCP）的成员采取了法律行动。
 
-And throwing Tony under the bus, and it could well be the DARPA’s doing it
-把托尼推出来，这很可能是国防高级研究计划局做的
+信中指出，在 Pegeia 被捕的女子自 2020 年 4 月以来一直是法治基金的支持者和成员。
 
-so that the fingers don’t get pointed at them
-这样手指就不会指向他们
+还要注意的是，事实上这对母子是因为他们的政治观点而受到迫害，这些指控是捏造的。
 
-But there’s in my mind, these Veritas documents look, look absolutely authentic
-但在我看来，这些真理文件看起来，看起来绝对真实的
+该机构的运营总监爱丽丝·杨（Alice Young）也签署了这封信，她说：“中国一方，我们认为这适用于两人的案件。”
 
-Steve Bannon
-史蒂夫·班农
+杨女士还引用了美国监管机构的官方声明来支持她的指控。
 
-So you’re saying this is what I’m sure we’re clear here
-所以你说这就是我确定我们在这里很清楚
+困境
 
-You’re saying that, as we know, we take over this year
-你是说，我们知道，今年我们接管了
+简单地说，塞浦路斯当局正面临两难境地。一方面是与友好的中国达成协议。对岸是有组织的团体，在美国的支持下运作，呼吁政治迫害，提出人权问题。
 
-that the investigations deep into the situation of Wuhan lab, the bioweapons program
-对武汉实验室情况的深入调查，生化武器计划
+应该指出的是，塞浦路斯共和国过去在俄罗斯联邦提出的引渡该国公民的请求中处于困境。这是由于担心这些外国国民在被引渡后将面临的条件。
 
-and American scientific and taxpayer money that went into doing any of that
-以及用于做任何这些的美国科学和纳税人的钱
+“政治迫害的理由”
 
-is going to be beyond a hot potato be one of the defining issues going forward
-将超越烫手的山芋成为未来的决定性问题之一
+接管母亲和她儿子的代理的律师 Efstathios K. Efstathiou 在他对“P”的陈述中谈到了政治迫害：“因为我的客户反对美国的纽约政治运动美利坚合众国正在为中华人民共和国的民主化而战。”
 
-what actually happened?
-实际发生了什么
+给予国际保护
 
-You’re saying right now look at the Pentagon Papers
-你说现在看看五角大楼文件
-
-there are people either officially or unofficially, making a move on Tony Fauci
-有人正式或非正式地在对托尼·福奇采取行动
-
-in your mind and you know, DARPA and you know the DOD pretty well
-你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
-
-you’ve been consulted there for many, many years. Correct?
-你已经在那里做了很多很多年的咨询工作, 对吗？
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-Correct. And I’m also in close communication with the senator and his investigations office
-正确，我也在与参议员和他的调查办公室保持密切联系
-
-I don’t want to speak for the senator but this this is one of those situations
-我不想为参议员说话，但这是其中一种情况
-
-If you spent decades dealing with DOD and the hill like I have
-如果你像我一样花了几十年的时间与国防部和国会山打交道
-
-this is how the game gets played
-这就是游戏的玩法
-
-This is how the Kabuki works in DC
-这就是歌舞伎在华盛顿中的运作方式
-
-is they’ll turn on each other when it looks like somebody is going to have to take the fall
-当看起来有人将不得不背锅时，他们是会互相攻击的
-
-And it looks to me like that has now happened in DOD has had enough
-在我看来，现在的情况是国防部已经受够了
-
-It’s important to know that Tony bushwhack DOD after the anthrax attacks
-重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
-
-and grabbed a big chunk of their budget
-而且敛走了他们预算的很大一部分
-
-so there could be some payback opportunity here
-所以这里可能是国防部反击的机会
-
-* * *
-
-Date:01/15/2022
-原视频标题: The DOD Is Throwing Fauci Under The Bus
-国防部正在把福奇暴露出来
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
-任务编号：KE351（3493）
-视频时间段 : 0:00-2:22
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+需要注意的是，已经根据一项特殊的跨国协议提出了另一项引渡中国公民的请求。此案正在拉纳卡地区法院审理中
 
  
 

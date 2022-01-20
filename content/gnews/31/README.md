@@ -2,24 +2,23 @@
 ---
 
 
-## 【中日财经爆】荷兰继续禁止ASML光刻机出口中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882825/)
+## 雅典娜时报-第179期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1882958/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1539.png)[图片来源](https://www.morningbrew.com/emerging-tech/stories/2021/03/15/meet-asml-worlds-largest-semiconductor-equipment-manufacturer)
-艾司摩尔(ASML)首席执行官周三（1月19日）表示，该公司尚未获准向中共国出口其最先进的光刻机。这些设备是制造先进计算机芯片所必需的。
+#### 《雅典娜时报》汇聚全球新闻时事
 
-在美国政府的要求下，荷兰政府已拒绝向艾司摩尔颁发出口光刻机的许可证，这些机器是有军事用途的“两用”设备。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/933544346156933160/155_4.png?width=399&amp;height=594)![圖片](https://media.discordapp.net/attachments/825592691433668612/933544346576371772/155_5.png?width=399&amp;height=594)
+*发布：陶子*
 
-艾司摩尔CEOPeterWennink表示，中共国不太可能独立复制顶尖的光刻技术，因为艾司摩尔依赖于“不懈的创新”和整合只有非中共国供应商才能提供的组件。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-在光刻市场几乎处于垄断地位的艾司摩尔，并不受限于向中共国出口较老的技术。2021年，艾司摩尔在中共国的销售额约为22亿美元，占该公司销售额的16%，仅次于台湾和韩国。
-
-消息来源：[艾司摩尔CEO称公司仍未获得向中国出口最先进光刻机的许可证](https://cn.reuters.com/article/asml-ceo-china-export-licence-0120-idCNKBS2JU04Y?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

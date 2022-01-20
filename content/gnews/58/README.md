@@ -2,25 +2,151 @@
 ---
 
 
-## 加拿大研究人员：北京冬奥会APP“冬奥通”搜集审查用户数据，存在安全隐患
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1877950/)
+## 国防部正在把福奇暴露出来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
 
-翻译：zzballack
-上传：追着曙光跑
+[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
 
-据《布雷特巴特新闻网》（Breitbart News）1月18日报道，加拿大多伦多大学的网络安全监督小组“公民实验室（Citizen Lab）”的研究人员1月18日发布报告说，运动员、记者和观众等所有北京冬奥会的与会人员被中共强制要求下载的手机应用程式“冬奥通（MY2022）”存在严重的安全漏洞：用于加密用户语音音频和文件传输的加密技术可以轻易被绕过。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-19-at-10.57.16.jpeg)图片来源：原新闻
-公民实验室还发现，用于传输护照详情、个人健康信息以及医疗旅游史的健康申报表也存在安全漏洞。服务器响应也可以被欺骗，允许攻击者向用户显示虚假指令。“冬奥通”相当直接地要求用户提供与参加奥运会有关的信息，并且收集一系列高度敏感的医疗健康资料等个人隐私信息，但它并没有清楚列出会向谁或哪些机构共享和披露这些高度敏感信息。研究人员指出：“‘冬奥通’包括的功能之一是收集用于健康监测的医疗信息清单，其中包括用户每天自我报告的健康状况，新冠疫苗接种状况，以及新冠地实验室测试结果等等。”
+**Steve Bannon
+史蒂夫·班农**
 
-“冬奥通”还包括一个让用户向中共当局举报“政治敏感内容”的功能。“冬奥通”有一个秘密的“审查关键词列表”，其中有2442个条目，内容涉及藏传佛教、新疆维吾尔族、天安门广场大屠杀、共产党精英之间的内斗以及对中共国的批评等等。该审查列表在分析的软件版本中没有被启用。但在冬奥会开始后可能会发生变化。“冬奥通”有内置的文本和语音聊天工具，也可能会受到审查。
+Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
+马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
 
-多伦多大学的团队深入研究了“冬奥通”的隐私政策，发现与其他许多的中共应用程式一样，在“几种情况”下，“冬奥通”可以在未经用户同意的情况下披露私人信息–包括但不限于“国家安全事务、公共卫生事件和刑事调查”。中共有宣布一切都为“国家安全事务”的习惯，所以这相当于为中共情报人员提供了一个全面的许可，以获取他们认为重要的任何用户数据。而且隐私政策在获取个人信息是否需要任何形式的法院命令问题上相当含糊。
+this Veritas amazing Veritas leak
+这个“真理”项目，惊人的“真理”泄漏
 
-也许最令人不安的是，该报告发现了许多关键的安全缺陷，比如未能验证安全链接的电子安全证书或对敏感数据进行加密。因此，来自用户手机的大量敏感数据将容易被连接到同一wifi网络的“被动窃听者”窃取。
+that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
+他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
 
-于1月17日上传到苹果商店的最新版本“冬奥通”，不仅没有修复上述这些安全问题，还引入了一个新的安全缺陷–健康码系统要求用户提供旅行文件和医疗记录，然后在没有验证安全证书的情况下将其传输到中国服务器。报告总结说：“我们发现该软件的安全漏洞不仅可能违反谷歌的不受欢迎的软件政策和苹果的应用程序商店指南，而且也可能违反了中共自己的法律和有关隐私保护的国家标准。”
+Is this the beginning of more information?
+这将会是更多信息的开始吗？
 
-信息来源：[Mandatory Olympic Athlete App Gives China Data Goldmine](https://www.breitbart.com/asia/2022/01/18/mandatory-olympic-athlete-app-gives-china-data-goldmine/)
+Do you think that certain individuals real scientists inside the apparatus
+你认为系统内部的某些真正的科学家
+
+that’s we’ve had enough we got to stop this madness, Dr. Malone.
+我们已经受够了，我们必须停止这种疯狂，马龙博士
+
+Dr. Robert Malone
+罗伯特·马龙博士
+
+I think it’s the DOD saying they’ve had enough of this.
+我认为是国防部说他们已经受够了
+
+And I’m not sure if this came from a JAG’s office
+我不确定文件是否来自美国陆军总检察长的办公室
+
+because they’re stamped like they are
+因为它们看起来像
+
+based on the file names or if it came from DARPA
+基于文件名或是来自国防高级研究计划局
+
+But having looked at these again and again in recently communicating with the DOD JAG
+但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
+
+it’s trying to smoke out whose office this might have come out of.
+文件，在试图找出这可能来自谁的办公室
+
+I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
+我认为现在是国防部终于出来说够了
+
+And throwing Tony under the bus, and it could well be the DARPA’s doing it
+把托尼推出来，这很可能是国防高级研究计划局做的
+
+so that the fingers don’t get pointed at them
+这样手指就不会指向他们
+
+But there’s in my mind, these Veritas documents look, look absolutely authentic
+但在我看来，这些真理文件看起来，看起来绝对真实的
+
+Steve Bannon
+史蒂夫·班农
+
+So you’re saying this is what I’m sure we’re clear here
+所以你说这就是我确定我们在这里很清楚
+
+You’re saying that, as we know, we take over this year
+你是说，我们知道，今年我们接管了
+
+that the investigations deep into the situation of Wuhan lab, the bioweapons program
+对武汉实验室情况的深入调查，生化武器计划
+
+and American scientific and taxpayer money that went into doing any of that
+以及用于做任何这些的美国科学和纳税人的钱
+
+is going to be beyond a hot potato be one of the defining issues going forward
+将超越烫手的山芋成为未来的决定性问题之一
+
+what actually happened?
+实际发生了什么
+
+You’re saying right now look at the Pentagon Papers
+你说现在看看五角大楼文件
+
+there are people either officially or unofficially, making a move on Tony Fauci
+有人正式或非正式地在对托尼·福奇采取行动
+
+in your mind and you know, DARPA and you know the DOD pretty well
+你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
+
+you’ve been consulted there for many, many years. Correct?
+你已经在那里做了很多很多年的咨询工作, 对吗？
+
+Dr. Robert Malone
+罗伯特·马龙博士
+
+Correct. And I’m also in close communication with the senator and his investigations office
+正确，我也在与参议员和他的调查办公室保持密切联系
+
+I don’t want to speak for the senator but this this is one of those situations
+我不想为参议员说话，但这是其中一种情况
+
+If you spent decades dealing with DOD and the hill like I have
+如果你像我一样花了几十年的时间与国防部和国会山打交道
+
+this is how the game gets played
+这就是游戏的玩法
+
+This is how the Kabuki works in DC
+这就是歌舞伎在华盛顿中的运作方式
+
+is they’ll turn on each other when it looks like somebody is going to have to take the fall
+当看起来有人将不得不背锅时，他们是会互相攻击的
+
+And it looks to me like that has now happened in DOD has had enough
+在我看来，现在的情况是国防部已经受够了
+
+It’s important to know that Tony bushwhack DOD after the anthrax attacks
+重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
+
+and grabbed a big chunk of their budget
+而且敛走了他们预算的很大一部分
+
+so there could be some payback opportunity here
+所以这里可能是国防部反击的机会
+
+* * *
+
+Date:01/15/2022
+原视频标题: The DOD Is Throwing Fauci Under The Bus
+国防部正在把福奇暴露出来
+原视频日期：2022/01/15
+原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
+任务编号：KE351（3493）
+视频时间段 : 0:00-2:22
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
