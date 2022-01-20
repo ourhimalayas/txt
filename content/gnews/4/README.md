@@ -2,53 +2,38 @@
 ---
 
 
-## 文•贵天成系列——文贵先生谈“中概股”（十）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1881971/)
+## 缅因州医生开伊维菌素而被暂停医疗执照30天
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1882032/)
 
-整理：小儿
-编辑：Kelly
+编译：Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/IJNLWVJACIYK2QPV@1-1536x864-1.png)配图 雅典娜设计组～614
+![](https://assets.gnews.org/wp-content/uploads/2022/01/da6df04b172f6b6f40e67c4e0436caca.png)
 
+缅因州医学执照委员会投票决定，让已经行医四十年的70岁的梅丽尔·尼斯医生（Meryl Ness）接受精神病学评估。
 
-郭文贵先生**2021**年**8**月**19**日直播
+被指控为 COVID 患者开具抗寄生虫药物伊维菌素和疟疾药物羟氯喹。
 
-你跟流氓说：“你可以强奸我，但是你把灯关了。”是吧？这是胡扯的事儿。我觉得西方的国家简直已经虚伪到某种程度，更重要的是，我从2017的爆料就说中概股，现在中概股的“概”已经变成要饭的乞丐的“丐”，叫中丐股了。
+一些病人最终住进了医院，其中一名不得不插管。
 
-从中概股到乞丐股，这是对西方世界打脸打到不行。就是说被人家给强奸了几十年，就为了那点破钱，那点嫖资。最后西方人很不好意思地说：“你不要停嘛，你继续嘛，你停了我就没高潮了嘛。”不就这意思吗？中共把中概股给撤了,你看看这两天。我给美国的人说：“你们要点脸行不行？它是来骗你的钱、骗你的国家、骗你的养老基金、国防基金。”
+她还给怀孕的 COVID 患者开了羟氯喹。
 
-特别是我谈到中概股是来骗你们的钱，搞的是经济战争超级超限战，没有人相信。现在共产党来了，用中概念股骗完你钱再变成中丐股，把美国的这些基金的钱弄走。华尔街的人明知道中丐股骗的美国人的钱，会让美国社会动乱，就为了一个基金的5%的管理费，喊不要停。
+尼斯向董事会承认，她向药剂师称她的病人患有莱姆病，以获得羟氯喹来治疗 COVID。
 
-这几天我们谈文化大革命，在国内引起了巨大的震撼。然后是阿富汗、台湾、现在是国内的企业、中概股变成了乞丐股，还有马云，头两天听说又被专案组彻底修理一顿，又一顿胖揍。因为马云在内部讲话放出信息说：“我马云一定会归来。”
+受过麻省理工学院教育的内科医生反vaxx组织，称CDC为“犯罪机构”。
 
-西亚、南亚稀有的金属矿，在阿富汗最大的金属矿，未来对人类是有重大影响力的，比石油还值钱的十一种金属，阿富汗几乎排在第一和第三名。共产党能不能派军，取决于阿富汗战争的结果。中概股能否回春是中、美之间经济沟通和蓝金黄最关键的输赢鉴定标准。
+70 岁的尼斯是一名内科医生，积极参与儿童健康保护组织，该组织反对疫苗和疫苗授权。委员会在 1 月 12 日的命令中表示，允许尼斯继续行医“对可能接受她的医疗服务的公众的健康和人身安全构成直接威胁”。
 
-郭文贵先生**2021**年**8**月**24**日直播
+**点评：到底谁对公众构成直接威胁？**
 
-中概股让全世界抛掉中国股份的时候，更重要的是华尔街70%多的基金都要面临大量的被赎回，赎回的钱又去哪呢？大家钱在家搁着吗？而且面临着高额的税收，它是用这个来调整市场投资杠杆的，这就叫经济界的疫苗现象。你打疫苗让你眼梗、脑梗、心梗死，还有肛门梗，拉屎拉不出来的肠梗、肛门梗真的有，不是开玩笑的。
+**参考资料：**[dailymail.co.uk][MIT-educated anti-vaxxer doctor who treated COVID patients with Ivermectin and hydroxychloroquine has her license suspended and must undergo psychiatric evaluation ‘for spreading misinformation’](https://www.dailymail.co.uk/news/article-10411699/Doctor-treated-COVID-patients-Ivermectin-license-suspended.html)
 
-资料来源：郭先生GTV和盖特直播视频
+* * *
 
-往期回顾：
-[文·贵天成——文贵先生谈“中概股”（一）](https://gnews.org/zh-hans/1869898/)
-[文·贵天成——文贵先生谈“中概股”（二）](https://gnews.org/zh-hans/1870078/)
-[文·贵天成——文贵先生谈“中概股”（三）](https://gnews.org/zh-hans/1870416/)
-[文·贵天成——文贵先生谈“中概股”（四）](https://gnews.org/zh-hans/1873949/)
-[文·贵天成——文贵先生谈“中概股”（五）](https://gnews.org/zh-hans/1874184/)
-[文•贵天成——文贵先生谈“中概股“（六）](https://gnews.org/zh-hans/1874766/)
-[文•贵天成——文贵先生谈“中概股“（七）](https://gnews.org/zh-hans/1877890/)
-[文•贵天成——文贵先生谈“中概股“（八）](https://gnews.org/zh-hans/1878171/)
-[文•贵天成——文贵先生谈“中概股”（九）](https://gnews.org/zh-hans/1880469/)
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
 
-**发布：**tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)+1
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
 
  
 
