@@ -2,8 +2,8 @@
 ---
 
 
-## 中国共产党跟世界脱钩，等于脱了控
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884135/)
+## 冠状病毒死亡率不会超过1%，为什么要打来路不明的疫苗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884221/)
 
 台灣寶島農場
 

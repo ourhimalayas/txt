@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的溢出效应
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884071/)
+## 爆料革命和国际社会合作有了一最大的进步
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1884190/)
 
 台灣寶島農場
 

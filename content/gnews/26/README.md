@@ -2,8 +2,8 @@
 ---
 
 
-## 迷信是对死亡的恐惧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883874/)
+## 新病毒出现的几个极端现象，以及现在国内的严重情况
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1883929/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

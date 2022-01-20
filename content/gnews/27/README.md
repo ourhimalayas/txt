@@ -2,38 +2,19 @@
 ---
 
 
-## 班农抨击福克斯电视台：FOX真的变了
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1883852/)
+## 墙内继喜茶降价后，奈雪的茶也要抗不住了
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1883925/)
 
-翻译： Jenny Ball
+撰稿：水滴石穿 
+上传：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1568.png)图片来源 : thegatewaypundit.com
+据中共国网易新闻1月18日的报道，有墙内消费者发现奈雪的茶（02150.HK）推出新系列茶饮产品，售价明显下调。 价格降低的几款茶饮属于“限时轻松购”系列。其中，一款茶饮和美式咖啡售价均为9元，另有几款果茶售价在18-21元之间，相比此前的茶饮产品价格低了5-7元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-20-at-18.36.52.jpeg)图片来源：网络
+2021年10月，奈雪的茶披露2021年第三季度运营情况及盈利预警，预计2021年全年将录得经调整净亏损(非国际财务报告准则计量)。 在股价下跌、业绩预亏、对手降价的当前，奈雪的茶或许倍感压力。
 
-史蒂夫·班农（Steve Bannon）与川普竞选战略顾问鲍里斯·爱普什泰恩（Boris Epshteyn）一起，在作战室开启了他的周一节目。
+笔者的分析是：墙内的各种奶茶，向来都是年轻人追捧的消费时尚，而当下中共国动荡之时，上层当局不顾墙内的经济萧条，对外大撒币，花费巨资充门面，举办墙内冬奥会，而各地方政府的财政却岌岌可危！而映射到末端消费领域，本来消费旺盛的奶茶行业却出现了如此向下的趋势，当此标定热门消费风向的话，墙内的经济可就要出大问题了！
 
-两位 MAGA 名人讨论了周末在亚利桑那州佛罗伦萨举行的大规模川普集会，以及格伦·杨金 (Glenn Youngkin) 担任弗吉尼亚州州长的第一天。
-
-在他们的讨论中，话题转向了福克斯新闻。
-
-班农：FOX 真的发生了翻天覆地的变化，布赖恩·斯泰尔特（Brian Stelter）就在那里撒谎。你告诉我一个人可以去亚利桑那州的佛罗伦萨，我爱佛罗伦萨，我在亚利桑那州的佛罗伦萨度过了很多时间。但它们都是前不着村后不着店的地方，你能在 NFL 季后赛后的周末去亚利桑那州的佛罗伦萨，并吸引人山人海的人群吗？
-
-是的，整个民主党都不会到那里，更别说能吸引那样的人群。但共和党人不是这样……我爱德桑蒂斯他们这些人，他们中会有 50 人到那里，但不会吸引周末（川普集会）人群的1/3。这是一个重大新闻事件。请记住，这开启了取消认证过程。这就是为什么他们不想报道的原因。他们现在被抓住了。CNN、MSNBC 和 FOX，特别是，你们的“弥天大谎”被抓住了。我们正在推进这个取消认证过程。我不在乎。我们在周六的早间节目中预览了集会，我不在乎 Twitter那帮家伙会不会发疯。
-
-班农接着谈到福克斯新闻，“福克斯，你不是新闻机构……福克斯的骗局结束了。”
-
-新闻来源: [thegatewaypundit.com] [Steve Bannon Blasts FOX News: “FOX Has Really Flipped – You’re Not a News Organization – The FOX Scam Is Over!” (VIDEO)](https://www.thegatewaypundit.com/2022/01/steve-bannon-blasts-fox-news-fox-really-flipped-showed-no-respect-anyone-maga-movement-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
-
-
-
-
+信息来源：[继喜茶降价后，奈雪的茶也“减配降价”！上市半年股价腰斩，业绩预亏](https://www.163.com/dy/article/GU13RP12051492T3.html)
 
  
 
