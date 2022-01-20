@@ -2,28 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月20日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1885254/)
+## 郭文贵盖特音频2022.01.20
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1885327/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/01/out-8.jpg)
+### 视频链接：
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-19.png)
-文章仅代表作者本人观点，与Gnews无关
+[https://www.gettr.com/post/ppiivsf0d0](https://www.gettr.com/post/ppiivsf0d0)
 
-视频参看：[2022.01.20早GTV新闻访谈](https://gtv.org/video/id=61e96385533c672fca7feaef)
+### 音频链接：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-15.jpg)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+编辑发布：闪电训练
 
  
 

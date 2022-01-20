@@ -2,27 +2,28 @@
 ---
 
 
-## 【中日财经爆】融创违约评级被下调至“BB-”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1885049/)
+## GTV新闻访谈简报|2022年1月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1885254/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-21.png)
-[图片来源](https://www.sohu.com/a/473300109_115207)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
 
-凤凰财经1月20日消息，惠誉评级发布报告，将融创中国控股有限公司的长期外币发行人违约评级从“BB”下调至“BB-”，展望为“负面”。将融创的高级无抵押评级及其已发行的美元高级无抵押票据的评级从“BB”下调至“BB-”。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-19.png)
+文章仅代表作者本人观点，与Gnews无关
 
-惠誉表示，评级下调反映了融创中国的财务灵活性因资本市场动荡而有所下降。惠誉预计该公司将使用现金储备偿还近期到期的资本市场债务。
+视频参看：[2022.01.20早GTV新闻访谈](https://gtv.org/video/id=61e96385533c672fca7feaef)
 
-有接近融创的消息人士表示，主流房企目前正在积极通过多种途径持续回血，促进资金面回复。自2021年10月以来，融创中国已通过股权配售、大股东借款、资产处置等多种渠道回笼资金约300亿元。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-15.jpg)
 
-[“惠誉下调融创评级至从“BB-”-凤凰周刊](http://www.ifengweekly.com/detil.php?id=14860)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

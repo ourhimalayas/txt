@@ -2,36 +2,40 @@
 ---
 
 
-## 距离举办冬奥会不到20天：外交抵制、不透明的数据和压制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885461/)
+## 肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1885488/)
 
-**编译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip09-3.png)图片来源：cope.es
-2022年冬奥会将于2月4日在北京开幕。北京已成为第一个同时举办夏季和冬季奥运会的城市，但是，面对两周之后将举行的冬奥会一直被不确定性和争议所包围。
+编译：wenwu
 
-由于Omicron的降临，世界各地的病例增加，中共国也敲响了警钟。中共国正在奉行不登记任何病例的策略，而来自世界各地的运动员的汇集使这一目标变得复杂。事实上，活动的组织者已经保证，所有的赛事都将不对外开放，只有当局才能够进入赛场，此事引起争议。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1593.png)图片来源：thenationalpulse.com
 
-中共国的最新官方数字显示，这个14亿人口的大国，在整个大流行期间，只有11万个阳性病例，4,849人死于该疾病，这个意义重大。而相比之下，西班牙登记的病例总数为8百万多阳性，9万1千人死亡，而西班牙总人口还不到5,000万。
+据《国家脉动》独家披露，拜登总统辩论委员会联合主席肯尼斯·沃拉克（Kenneth Wollack）参加了与中共官员和其影响团体的几次”非公开”对话。
 
-此外，与中共政府的喉舌媒体《环球时报》周一表示，该国2021年的GDP增长了8.1%，显示出巨大的经济复苏，巩固了其作为世界第二大经济体的地位。
+沃拉克——同时也是公共资助的国家民主基金会（NED）董事会主席——是参加所谓的首届美中高级别政党领袖对话（U.S.-China High-Level Political Party Leaders Dialogue）的十名主要代表之一，该对话由东西方研究所与中共中央对外联络部（International Department of the Central Committee of the Communist Party of China）“合作”主办。
 
-这些令人惊讶的数据可能会让人认为中共国是一个管理大流行病的典范，因为他的管控比其他国家严格得多，而且经济增长也很大。然而，一些国际专家认为，自大流行病开始以来，这些数字被当局歪曲了，感染和死亡的人数要高得多。美国情报部门声称，在大流行病开始时，中共国对所提供的数据作假，并确认阳性病例和死亡人数远远高于所提供的数据。CNN通过中共国卫生系统的消息来源获得了所谓的“武汉文件”，证实了中共政府的官方数据与现实不符的假设，这117页来自湖北省疾病预防控制中心的秘密报告被六位独立专家检查，他们核实了这些数据与公开的数据不同。
+美国代表团由美国前国务卿马德琳·奥尔布赖特（Madeleine K. Albright）率领，尽管她的女儿爱丽丝（Alice）与中国共产党有大量投资，但她最近被选中负责拜登时代的一项关键对外援助计划。
 
-周二，北京市卫生委员会在过去三天里确认了四例阳性病例，包括Omicron和Delta的病例，当局已采取措施，暂时关闭社区，并对所有居民进行测试。在天津等城市，居民被赶出家门，并被带到检疫中心。
+美国代表团总结说：“它寻求通过就治理和外交政策问题交换意见，在美国和中共国的政治精英之间建立理解和信任。”
 
-中共国把查出的病例归咎于来自外国，这至少可以说是令人好奇的，因为中共国是大流行病的起源地，不同的专家声称他们隐藏了关于该大流行病的数据，而这些数据本可以使各国更早地采取措施。北京当局声称，该市最近一名阳性患者是因为收到了一个来自加拿大的包裹，而这些文件被发现含有病毒，这促使中共国开始对所有包裹进行消毒。而在大流行病开始时，他们为了中饱私囊，声称这些货物是安全的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1595.png)图片来源：thenationalpulse.com
 
-这就是将主办2022年冬季奥运会的城市的情况。其他国家的人很难进入中共国，严厉的限制可能会影响比赛的正常进行。世界各地的运动员的到来可能会导致新的病例出现，因此在离比赛只有两个多星期的时候，对参与比赛运动员的不确定性占了上风。
+值得一提的是，东西方研究所（EastWest Institute，如图）在与包括中美交流基金会（CUSEF）在内的首要中共国影响力团体合作方面有着长期的记录；鉴于东西方研究所与北京的密切关系，沃拉克的代表团与中国共产党领导人习近平和中共政权[统战部](https://www.eastwest.ngo/idea/1st-us-china-high-level-political-party-leaders-dialogue-report)的高级官员，进行了“[非正式](https://archive.ph/VPDDC)”会晤。
 
-目前一些欧美国家对北京冬奥会进行外交抵制，指责中共国不尊重人权。这一立场是基于中共国政府对新疆地区维吾尔族和穆斯林群体少数民族的严厉镇压，和对网球运动员彭帅失踪多日的抗议。正因为如此，美国、澳大利亚、英国和加拿大等国家加入了外交抵制行动，中共国宣布政治与体育无关，“他们将不得不为此付出代价”。
+中美交流基金会由中共统战部副部长创办，该组织旨在“收编和化解可能反对中共执政的党政和权力的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。中美交流基金会还赞助了各种美中高级别政党领袖对话。
 
-**新闻来源**：[cope.es][China, a menos de 20 días de organizar los JJ. OO. de invierno: boicot diplomático, datos opacos y represión](https://www.cope.es/actualidad/internacional/noticias/china-menos-dias-organizar-los-invierno-boicot-diplomatico-datos-opacos-represion-20220118_1734896)
+第二年（2011年），沃拉克[参加了](https://www.eastwest.ngo/idea/3rd-us-china-high-level-political-party-leaders-dialogue)在中国北京和四川举行的另一次美中高级别政党领导人对话。
+
+东西方研究所解释说：”这次访问标志着对话进程首次扩大到北京以外，包括在中国其他地区举行会议，以努力促进两国政治精英之间更广泛的了解。“
+
+2012年12月，沃拉克参加了另一个以商业为重点的代表团，东西方研究所总结为重点是“如何扩大中共国和美国之间的贸易关系，特别是在省和州一级。”
+
+新闻来源：[thenationalpulse.com] [EXC: Presidential Debate Commission Chief Held ‘Off-The-Record’ Meetings With Chinese Communist Propagandists, And Xi Jinping.](https://thenationalpulse.com/2022/01/18/debate-commission-co-chair-participated-in-ccp-meetings/) | 发布时间：2022年01月18日
 
 * * *
 
-***审核：Aries的星
+*审核：文乐
 校对：信心满满
-发布：信心满满***
+发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
