@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 11:31 AM (UTC)`
+
+1/19/2022 Miles Guo: The Davos Forum controls various domains in the world such as legislation, finance, media, culture, police, and military as well as the people’s thoughts and actions. Xi Jinping and the Party of Davos are in cahoots, giving prescriptions to the world while releasing the CCP virus at the same time!<br/><br/>1/19/2022 文贵直播：达沃斯论坛掌控了全球的立法、金融、媒体、文化、警察和军事等方面，控制着人们的思想与行为；习近平和达沃斯党沆瀣一气，一边给世界开药方，一边放毒！
+![img](https://media.gettr.com/group40/getter/2022/01/20/11/17886d57-08ed-ca53-e979-2f1e9455617e/out.jpg)
+
+---
+
 `@miles 1/20/2022 10:13 AM (UTC)`
 
 1/19/2022 Miles Guo: None of the participants at the Davos Forum is vaccinated! The Himalaya Coin is a bright light in the darkness, it is the light that can cure a thousand years of darkness. When the New Federal State of China and the Himalaya Coin are combined as a whole, it is “the ultimate wisdom that can extinguish the ten thousand years of foolishness".<br/><br/>1/19/2022 文贵直播：参加达沃斯论坛的没人打疫苗！喜币就是黑暗中的明灯，一灯能除千年暗，而新中国联邦和喜币连在一起就是“一智能灭万年愚”！<br/>
@@ -146,13 +153,6 @@
 
 1/17/2022 Miles Guo: Can the Pacific Alliance case represent procedural justice? This lawsuit should not have existed in the first place, and Judge Barry Ostrager had long been turning a blind eye to Bradley Bondi and Edward Moss's clear breach of the lawyers’ professional ethics. The two lawyers not only committed forgery, but their mere conflict of interest nearly devastated us. So, who will make up for the damage they have inflicted on us in the past five years?<br/><br/>1/17/2022 文贵直播：处处不正常的太平联盟案能代表程序正义吗？这场官司本不应该存在，可Ostrager法官却长期无视Bondi和Edward Moss明显违反律师道德的行为，他们俩不仅造假，区区一次利益冲突就差点要了咱的命，那谁来弥补他们在这5年给我们造成的伤害呢？<br/><br/>
 ![img](https://media.gettr.com/group14/getter/2022/01/18/22/1e2df50f-a46d-aa6e-4256-66d22c950391/out.jpg)
-
----
-
-`@miles 1/18/2022 5:40 PM (UTC)`
-
-1月18号：最糟糕的时刻还没有到来……<br/><br/>https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E8%82%A1%E5%B8%822022%E5%B9%B4%E4%BC%8A%E5%A7%8B%E5%89%A7%E7%83%88%E9%9C%87%E8%8D%A1-%E6%95%B0%E7%99%BE%E5%8F%AA%E8%82%A1%E7%A5%A8%E8%B7%8C%E5%B9%85%E8%B6%8520-11642479358?tesla=y&s=08
-![img](https://media.gettr.com/group50/getter/2022/01/18/17/1fe946a6-8e09-ae1f-e0ac-6257565e9f30/811595c584d605169e0e9fb41184a879.jpg)
 
 ---
 
