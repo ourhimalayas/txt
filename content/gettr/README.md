@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/20/2022 2:38 AM (UTC)`
+
+1月19号我得乖乖嘞🦅🦅🦅🔥🔥🔥<br/><br/>Miles !!!!!!!!<br/><br/>Huge !!!!!<br/><br/>Too dangerous for Announcers!!!!<br/><br/><br/>https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/
+
+---
+
 `@miles 1/20/2022 2:20 AM (UTC)`
 
 1/19/2022 Miles Guo: We will have the H-Insurance and the digital space program! The New Federal State of China is from heaven, and we will definitely not allow the Party of Davos to succeed in its plan to create digital slavery. The evil twins, the CCP and the Party of Davos, are not far from their end!<br/><br/>1/19/2022 文贵直播：我们将拥有喜保险和数字太空；新中国联邦从天上来，我们一定不会让达沃斯党创建数字奴隶制的计划得逞；中共和达沃斯党这对邪恶的孪生兄弟离死期不远了！<br/>
@@ -147,13 +153,6 @@
 
 1/17/2022 Miles Guo: The judge in the Pacific Alliance case did not allow us to choose jury trial and gave a huge fine to Lady May, which is not even owned by myself, and the adverse party provided more than 70,000 pages of evidence and over 300,000 pages of documents to overwhelm us, turning the lawsuit about the $30-million loan into the one costing hundreds of millions of dollars in legal fees. The Pacific Alliance admitted that the principal and interest of the loan were paid off, but why did the Beijing police want to assist them to deal with this case?<br/><br/>1/17/2022 文贵直播：太平联盟案的法官不许我们选陪审团审判、给并非文贵所有的Lady May开巨额罚单，对方提供7万多页的证据和30余万页的文件，3000万的官司却要花费上亿律师费；太平联盟承认借款的本息均已还清，但北京警察为何要协助他们处理本案呢？<br/>
 ![img](https://media.gettr.com/group34/getter/2022/01/18/09/4e68e0c3-2ad0-bc49-233d-10839724c804/out.jpg)
-
----
-
-`@miles 1/18/2022 5:00 AM (UTC)`
-
-1/17/2022 Miles Guo: This Pacific Alliance case is so ridiculous! Pacific Alliance sued me, the loan guarantor, out of nothing despite there being legal documents proving that the borrower had repaid the loan. A New York court accepted this case regardless of the fact that the plaintiff is not in New York and neither did the whole thing happen in New York. The defendant was not allowed to challenge the verdict, and they seek to seize the property that does not belong to the defendant<br/><br/>1/17/2022 文贵直播: 太平联盟一案荒谬至极！太平联盟在有法律文件证明借方已还清贷款的情况下却无中生有起诉贷款担保人，而纽约法院受理了一个当事人和事件都不在纽约的案件，而且既不允许被告对判决提出任何质疑，又要查封不属于被告的财产！<br/>
-![img](https://media.gettr.com/group17/getter/2022/01/18/05/e4554f3f-56bd-6706-3f96-df3e191b2f7a/out.jpg)
 
 ---
 
