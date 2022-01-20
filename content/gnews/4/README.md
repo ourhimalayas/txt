@@ -2,24 +2,26 @@
 ---
 
 
-## 秘翻在线：因担心病毒 NBC不会派体育播报团参加北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1882900/)
+## 美高院很少见地发声明驳斥CNN/NPR关于口罩的假新闻
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1882963/)
 
-**翻译：文斗**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-30.png)
+图片来源：http://www.sinovision.net/
 
-**校对: 人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-20-122752.jpg)
-据今日美国（usatoday） 19日报道，随着2022年北京冬奥会的临近和对中共病毒（COVID-19）的担忧，美国全国广播公司（NBC）体育频道将不派任何播报团队前往中共国，一位发言人周三下午告诉《今日美国体育》。
+零对冲网1月19日报道，美国高等法院周三在一项报道称法官索尼娅·索托马约尔在关于她在法院询事厅不与她的同事坐在一起是因为尼尔·戈萨奇法官拒绝戴口罩。索托马约尔和戈萨奇作出了回应：“ 报道说索托马约尔法官要求戈萨奇法官戴上口罩，这样的报道让我们惊奇，这是假的，我们有时候在法律上会有不同意见，但我们是友善的同事和朋友。”
 
-NBC体育频道的通讯高级副总裁格雷格·休斯（Greg Hughes）在接受电话采访时说：“基于对中共病毒的担忧，我们的奥运会播报团队将在斯坦福（康涅狄格）基地里播报赛事。” 格雷格称NBC在北京仍有大量的人员，所有的报道将一如既往是一流的，但计划每天都在变化，就像大多数报道奥运会的媒体公司一样。
+索托马约尔是奥巴马提名的法官，而戈萨奇是川普提名的，他们共同通过法院发言人向大纪元时报发布该声明。
 
-美国全国广播公司的花样滑冰、高山滑雪和单板滑雪的转播团队原本预计会在北京进行播报工作，但这些计划已经被取消。
+一篇报道来自美国国家广播电台，称法官约翰·罗伯特让其他法官戴上口罩，因为他理解索托马约尔希望大家戴上口罩才觉得放心，
 
-在奥米炕病毒变种开始在世界各地肆虐之前，人们就已经有担忧，即任何前往北京的人，从各国运动员到已注册的媒体成员，都可能在奥运会期间检测出阳性，并不得不在隔离区度过几天甚至几周。
+另一篇报道来自CNN，称索托马约尔离开询事厅是因为她对戈萨奇不戴口罩感到不舒服。
 
-随着中共病毒的不断变化和中共国的零容忍政策，一切都增加了复杂性，NBC为了确保能够为美国观众提供相同质量的体验，于是决定在斯坦福和北京两个城市之间分工合作。
+当然不实信息同样也有来自法官，例如索托马约尔和另外二位法官在美国声称“有10万个儿童出现前所未有的严重感染症状，很多人用上了呼吸机“，而事实是，联邦数据显示只有3500例儿童患新冠住院，其中绝大多数是因为其他原因住院的。
 
-**原文链接：**[https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/](https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/)
+##### **新闻来源： **[Supreme Court Issues Rare Statement Refuting CNN/NPR ‘Fake News’ About Tension Over Masks](https://www.zerohedge.com/political/supreme-court-issues-rare-statement-refuting-cnnnpr-fake-news-about-tension-over-masks)
+
+# ** **
 
  
 

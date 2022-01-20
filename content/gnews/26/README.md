@@ -2,46 +2,28 @@
 ---
 
 
-## 英国首相约翰逊放弃对COVID-19的限制
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1882678/)
+## 美国NBA球星坎特回应姚明邀请 愿访真实中共国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1882717/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1642632607-61e8959f3dbbd.jpg)美国NBA球星坎特回应姚明邀请 愿访真实中共国 网络图片
+据美国之音1月20日报道，以捍卫自由与人权著称的美国NBA篮球明星埃内斯·坎特·自由19日回应中共国篮球协会主席姚明的公开邀请，表示要到中共国参观维族劳教营、西藏、香港和台湾，还想和彭帅自由对话。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+坎特·自由一直呼吁人们关注中共国新疆、西藏、台湾和香港的状况，最近他还呼吁抵制北京冬奥会。坎特表示，“中国共产党不代表卓越、友谊和尊重的奥林匹克核心，他们是残暴的独裁者，他们威胁自由，不尊重人权”。坎特去年11月将自己的姓氏正式改为“自由”，永久宣誓对自由的追求。
 
+因为坎特在中共国问题上大胆敢言，导致腾讯下架并停播了他的球队在中共国的所有赛事。坎特也抨击一些跪舔中共的同行。中共的蓝金黄买通了全世界，但是依然有像坎特一样热爱自由并为之奋斗的勇士，不畏中共的强权，不贪恋中共的利益，持续为中共国的人权发声。只要这个世界上有一个声音在呐喊，有一双眼睛在关注，就会影响并带动很多人。天赋人权，这是每个人生来就拥有的权利，没有人可以剥夺。中国人的人权需要团结起来去争取和捍卫。
 
+新闻参考链接：[https://www.voachinese.com/a/kanter-against-yaoming-20220119/6403983.html](https://www.voachinese.com/a/kanter-against-yaoming-20220119/6403983.html)
 
+* * *
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-19T132403Z_2_LYNXMPEI0I0LU_RTROPTP_0_HEALTH-CORONAVIRUS-BRITAIN_1.jpg)2022年1月6日，在英国伦敦市中心，人们在冠状病毒病（COVID-19）的爆发中走出皮卡迪利广场地铁站。REUTERS/Henry Nicholls
-
-据[OAN网站](https://www.oann.com/uk-pm-johnson-drops-covid-19-restrictions/)援引路透社1月19日报道，英国首相鲍里斯·约翰逊周三表示，从下周起，英国人将不再需要在任何地方佩戴口罩或在家工作，强制性的COVID-19认证将结束。同时他补充说，科学家认为，Omicron中共病毒变种的浪潮在全国范围内已经达到顶峰。
-
-约翰逊还表示，虽然目前仍要求人们进行自我隔离，但他预计不会延长将于3月到期的自我隔离立法，并将研究提前取消这一要求。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

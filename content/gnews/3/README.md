@@ -2,8 +2,8 @@
 ---
 
 
-## 接下来什么都国有化，最黑暗的时代
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882916/)
+## 2万亿维稳经费
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882968/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组

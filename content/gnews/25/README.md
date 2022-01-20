@@ -2,27 +2,26 @@
 ---
 
 
-## 最高法院裁决后，通用电气暂停COVID-19疫苗要求
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1882687/)
+## 国际奥委会称，北京冬奥会官方服装生产不存在强迫劳动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1882771/)
 
-据《路透社》作者：Rajesh Kumar Singh，2022年1月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1533-e1642648763115.png)图片源自《路透社》
-芝加哥，1月14日（路透社）–通用电气公司周五表示，在美国最高法院作出裁决后，它已暂停对员工的COVID-19疫苗或测试要求。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1535.png)图片来自本文链接
+日本“朝日电视新闻在线”1月20日消息：国际奥委会（IOC）表示，北京冬奥会官方服装生产中没有发现存在强迫劳动的问题。
 
-法院周四阻止了乔·拜登总统对大型企业的COVID-19疫苗接种或测试要求——保守派法官认为这一政策对许多美国人的生活和健康造成了不适当的影响——同时认可了联邦对医疗机构疫苗的一个独立要求。
+之前，有指出两家中（共）国公司可能使用了新疆强迫劳动生产的棉花来制作冬奥会的官方服装。
 
-文章来源: [https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
+国际奥委会19日宣布，经第三方调查显示，两家公司没有使用来自中（共）国的棉花，使用的是再生材料，没有使用棉花。并表示，在生产现场没有发现强迫劳动的事情发生，虽然有一些违反工作时间的情况，但已经得到了纠正。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – 柯镇恶
+此次北京举办的冬奥会由于新疆的人权问题，美国和其它国家已经在外交上进行了抵制。
 
+但中共从来不会让你知道真相。所谓的第三方调查和官方的声明往往都是为掩盖事实真相编造出的骗世谎言。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+信息源：[IOC　北京五輪公式ウェア生産に「強制労働ない」](https://news.yahoo.co.jp/articles/8a3051d412cdcf672872a1fcaea91539e79b8e0e)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

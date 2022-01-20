@@ -2,20 +2,14 @@
 ---
 
 
-## 共产党一定会被审判
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882811/)
+## 人类最可悲的就是跟着大部队走
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1882874/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组
 
 ```
-发布：陶子
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
 ```
 
 
