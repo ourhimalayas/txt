@@ -2,34 +2,47 @@
 ---
 
 
-## 健康码变黄码！中共以防疫之名变相禁止海淘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1885147/)
+## 麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1885189/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-48.png)
-[图片来源](https://finance.sina.com.cn/review/jcgc/2021-11-08/doc-iktzscyy4376730.shtml)
+作者：纽约香草山教育部 —Naughty(文行)
 
-近日，中共多地政府宣称境外快递有传播病毒的风险引发关注。
 
-1月17日，北京、深圳、珠海三地均在疫情防控发布会上通报了奥密克戎病例溯源最新进展，均不排除因暴露于境外物品感染的可能性。
 
-其中，北京和深圳两地政府官方均宣称其感染病例与境外快递有关：北京病例于1月11日收到1月7日自加拿大发出的邮件，在此期间其仅接触邮件包装外表面和文件纸张首页，未接触包装内表面和其他纸张；深圳病例从事境外冷冻试剂收发货工作，1月12日接触和分拆了来自北美的快递，未做好个人防护；珠海则有早期发病的个案从事某企业客服工作，经常接触境外入境物品。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
 
-多位深圳网友表示，自己的健康码因海淘而变为黄码。
 
-1月19日，中共官媒红星新闻向多位网友确认了此事。位于深圳南山的何先生接受红星新闻记者采访时称，他于1月13日收到网购物品，18日晚接到社区电话提醒，发现自己的健康码变黄了。他当即去医院做核酸检测，走了黄码检测通道，排队时发现大家几乎都是收到境外快递的人。
 
-对于通过快递或邮件感染中共病毒，根据中共《环球时报》2021年11月18日题为《快递是否会成为新冠传播新途径？专家：可能性极低，不必过度恐慌！》的报道，一位不愿具名的公共卫生专家在接受《环球时报》记者采访时表示，目前尚未出现民众因为收发快递感染新冠病毒的案例。新冠病毒在自然环境中固然可以存活，但无法增殖，活性也很有限，普通民众通过“物传人”的方式感染病毒的概率是极低的。
+麻省理工学院一名研究科学家Seneff（瑟内夫）博士周四晚上在福克斯接受采访时表示：父母应该尽量避免为孩子接种中共病毒疫苗，因为他们死于中共病毒的风险非常非常低。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-65.jpg)
+Seneff（瑟内夫）博士称，中共病毒疫苗对孩子的潜在危害远远大于益处。特别是接种加强针，从长远来看，这对孩子影响将是毁灭性的。
 
-截至目前，全球范围仅在中共国出现通过快递或邮件感染中共病毒的案例，并且还不是个案，十分蹊跷。反而是中共假借防疫为由变相禁止民众海淘的意图很明显。
+Seneff（瑟内夫）博士撰写的文章称，中共病毒疫苗的快速研发和部署引起了多重安全问题。疫苗在与各种急性和长期诱发的病症的潜在关系方面的研究明显不足。Seneff（瑟内夫）博士在另一篇文中指出，中共病毒疫苗的大规模生产和强制接种的快速推进，表明相关机构并未对疫苗的风险性、安全性和对身体健康的有效性做充分的调研。
 
-信息来源：
+参考来源：
 
-[深圳多人因海淘健康码变黄码！多地疾控提醒减少购买境外商品](https://www.sohu.com/a/517751590_116237)
+[MIT Research Scientist Says Kids Should Not Receive COVID Vaccines](https://www.breitbart.com/health/2022/01/15/mit-research-scientist-says-kids-should-not-receive-covid-vaccines/?utm_source=ground.news&amp;utm_medium=referral)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+
 
 
  

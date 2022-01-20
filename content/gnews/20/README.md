@@ -2,52 +2,35 @@
 ---
 
 
-## 苹果和谷歌通过Telegram干涉德国的言论自由
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1885073/)
+## 有声|卡塔尔3周大婴儿因感染中共病毒死亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1885095/)
 
-作者：银河系农场—骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-14.jpg)
+配音：香草山农场 – 纳米
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+台媒 17日报道，卡塔尔日前通报了一起十分罕见的，婴儿感染中共病毒的死亡病例。该国卫生部在声明中指出，一名3周大的婴儿因严重感染中共病毒而不幸死亡，目前，没有发现这名婴儿有任何的遗传疾病或其他潜在的健康问题。
 
-2022年1月15日，德国柏林AfD议会集团的数字政策发言人、联邦董事会成员Joana Cotar揭露了一个审查丑闻：近几天，在应用程序Telegram的一些特定频道，评论一直处于隐藏状态。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-31.jpg)
-比如Boris Reitschuster，这是一位右翼媒体人，反对强制接种新冠疫苗。在苹果和谷歌商店下载的Telegram下的评论全部受到此影响，只有网页版的Telegram评论显示是正常的。
+据了解，这已经是卡塔尔发生的第二起婴幼儿感染中共病毒的死亡病例。对此，卡塔尔卫生部表示，与年长者相比，婴幼儿感染中共病毒后，演变成重症的情形并不常见，但自奥密克戎病毒株广泛传播以来，有不少国家的卫生机构发现，因感染奥密克戎病毒株而需要特别医疗护理的婴幼儿呈上升趋势。
 
-发言人Joana Cotar说，苹果和谷歌正在干涉德国的言论自由，令人愤慨。国家有义务落实言论自由的基本权利。如果证实政客或当局向两家公司施加压力，迫使其进行这种言论审查，德国即将没有自由。
+文字版原文：[卡塔尔3周大婴儿因感染中共病毒死亡](https://gnews.org/zh-hans/1876509/)
 
-到目前为止，只有中国、白俄罗斯、伊朗或俄罗斯等国家对telegram采取了行动。德国的加入令人羞愧。
-
-参考来源：
-
-1.[Joana Cotar: Neuer Zensurskandal um Telegram](https://afdbundestag.de/joana-cotar-neuer-zensurskandal-um-telegram/)
-
-2.[强制接种疫苗和副作用：Reitschuster使政府发言人进行解释](https://www.presseteam-austria.at/zh-CN/强制接种的副作用Reitschuster使政府发言人需要解释/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-6.png)
-
-编辑/校对/发稿：兰兰
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-15.jpg)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
