@@ -2,36 +2,37 @@
 ---
 
 
-## 中共阻挠419VOA直播的一些幕后真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883025/)
+## 有声|英国政府的疫情政策在逐渐放松
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1883102/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-2017年4月19日，在美国之音VOA直播采访中，郭文贵先生揭露了中共王岐山和海航的腐败。直播前，郭先生却受到了中共百般的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1546.png)
-2022年1月17日，郭文贵先生在大直播中讲出了鲜为人知的背后真相：2017年3月，因为郭先生计划在VOA直播中要爆光王岐山和海航的腐败内幕，中共派刘彦平警告郭先生不许参加VOA直播。另一方面，孙力军一再威胁，会拿走郭先生及其家族所有的东西，让他在全世界没有任何生存的机会。并明确告诉郭先生：“太平联盟会让你象疯狗一样，找不到生存的地方。”
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据英国媒体当地时间1月16日报道，英国政府正在拟定计划，当民众感染中共病毒并痊愈后，不必再接受法律的约束进行自我隔离。
 
-4月18号断播门的前一天，太平联盟就以不存在的理由向纽约的一个法院递交了对郭先生的起诉。可笑的是，纽约并非太平联盟所谓的案发地。而涉及419断播门，被爆料的当事人王岐山和海航，正是太平联盟的合作者和股东。另外，吴征也是太平联盟的最大投资者和股东。中共通过其控制的美国司法界打手，对郭文贵先生打起了法律超限战。五年来，在美国的法庭上操控法律，无法无天，荒唐透顶。
+报道指出，随着英国确诊病例的持续下降，英国首相约翰逊希望永久撤销有关中共病毒的紧急法律。虽然官方的指导原则仍将持续，但违反者不会再遭到罚款或者法律处罚。英国卫生部长贾维德上周宣布，为缓解中共病毒奥密克戎变异株对医院和学校造成的压力，确诊者的最低隔离期从7天缩减到5天。如果在隔离的第五天或第六天，取得核酸阴性结果，就可以结束隔离。
 
-然而，文贵先生必定会以详实的证据获得最终的胜利，毕竟，美国这样的民主国家还没有堕落到法律完全失去公正的地步。
+原文链接：[英国政府的疫情政策在逐渐放松](https://gnews.org/zh-hans/1876513/)
 
-链接：[1/17/2022 文贵直播](https://gettr.com/post/pozect4350)
+音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
-
-总编：Ivy001
-
-编辑：Jack Li文阳
-
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

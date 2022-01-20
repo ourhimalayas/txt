@@ -2,36 +2,37 @@
 ---
 
 
-## 有声|英国政府的疫情政策在逐渐放松
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1883102/)
+## 英格兰将结束疫苗护照，苏格兰也将取消疫情限制
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1883170/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据英国媒体当地时间1月16日报道，英国政府正在拟定计划，当民众感染中共病毒并痊愈后，不必再接受法律的约束进行自我隔离。
+##### 整理：小鱼儿
+编辑：MSZG
 
-报道指出，随着英国确诊病例的持续下降，英国首相约翰逊希望永久撤销有关中共病毒的紧急法律。虽然官方的指导原则仍将持续，但违反者不会再遭到罚款或者法律处罚。英国卫生部长贾维德上周宣布，为缓解中共病毒奥密克戎变异株对医院和学校造成的压力，确诊者的最低隔离期从7天缩减到5天。如果在隔离的第五天或第六天，取得核酸阴性结果，就可以结束隔离。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-原文链接：[英国政府的疫情政策在逐渐放松](https://gnews.org/zh-hans/1876513/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜统一快讯图片.png)图片来源：雅典娜设计组
 
 
+据反抗新闻(Rebelnews)1月19日报道，英国各地的疫情(COVID-19)限制正在开始结束。英国首相鲍里斯·约翰逊(Boris Johnson)宣布，所有被称为 “B计划 “限制都将在英格兰结束，包括在公共交通和商店中强制戴口罩、在家工作的命令和疫苗护照，将从1月27日星期四起取消。
+
+首相还暗示，自我隔离规则将在3月或更早的时候被完全废除，目前关于自我隔离的法律将于3月23日到期。约翰逊说，他预计 “不会延长 “这些措施。
+
+这一决定得到了反对党议员的支持，工党领袖基尔·斯塔默爵士(Sir Keir Starmer )说，他的政党支持在首相发表声明后放宽 “B计划 “的限制。他说 “在整个大流行病期间，英国公众做出了巨大的牺牲…我想感谢每一个遵守规则的人”。
+
+虽然已经宣布在英格兰取消这些限制，但国家卫生服务机构和护理人员仍然需要出示他们接种疫苗的证明，否则他们将面临解雇。
+
+苏格兰第一部长尼古拉·斯特金(Nicola Sturgeon)也宣布，圣诞节前实施的限制将从1月24日星期一开始取消。
+
+参考新闻：[Mask mandates, vaccine passports to end in England](https://www.rebelnews.com/mask_mandates_vaccine_passports_to_end_in_england)
+
+*发布：玉米地守望者*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
