@@ -2,37 +2,28 @@
 ---
 
 
-## 日本国会数据再次印证疫苗无效
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1890239/)
+## 澳洲昆士兰地区缩短加强针等待时间至三个月
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1890272/)
 
-作者：日本方舟农场 – Andy5
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1.21B.jpg)网络图片
+当地时间1月21日，澳大利亚昆士兰州记录了16,031例新增CCP病毒确诊患者以及13例因CCP病毒不幸死亡的案例。目前该州有855人因感染CCP病毒而住院，其中有54位处于重症监护状态。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+昆士兰州州长 Palaszczuk 宣布，从下周一开始，该州接种完第二剂CCP病毒疫苗的居民只需要等待三个月的时间就可以进行加强针的注射——这比最初澳大利亚联邦政府制定的计划早了大约一周左右。然而于今日不幸离世的13位患者当中，11人都完成了至少一剂CCP病毒疫苗的注射，其中还有1位接种了加强针。
 
-1月19日，日本国会对防疫政策进行了最新一轮听证答辩。日本经济再生大臣山际大志郎公布日本官方数据，在感染奥密克戎变种并且有临床研究数据的191例感染病例之中，有145例是已经接种2剂疫苗的患者，占总数的75.9%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-19.jpg)
-受此影响，日本政府在19日宣布暂停实施《疫苗接种和检查制度》。该制度是去年11月颁布的，只针对已接种人群以及核酸检测呈阴性人群，解除了一部分外出限制。该制度的叫停意味着日本将对所有国民实施统一的相关政策，不区分他们是否接种了疫苗。
+同样是在下周一，昆士兰州政府还将会公布学生的返校计划，但不包括对学生进行 CCP病毒测试的准则和方针，即便澳洲总理Morrison已认可将学生检测作为第一学期开始时各州和领地可能采用的一项措施。
 
-分析人士指出，日本公布的临床数据已经再次证明现阶段的所谓疫苗对病毒无效，幸运的是日本政府及时根据这些数据做出了调整。
+虽然州长Palaszczuk称目前还没有得到任何有关校园病毒检测的建议，昆士兰州卫生部长Gerrard博士依旧表示，接下来的一周新增病例依然会持续出现，并且预估的增长峰值不会提前到来。
 
-参考链接：
-1) . [20220118-19日本媒體FNN和ANN](https://www.gettr.com/post/ppes9vaf4b)
-2) . [国民の仕事や生活の安定・安心を支える日常生活の回復](https://corona.go.jp/package/)
+“与以往一样，我们的预测是：本次大流行的高峰将在未来两到三周的某个时间临近……毫无疑问，（新增患者）数字会继续增加。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+由统计学家做出的预测则显示，该病毒将在本月底在澳大利亚昆士兰州达到顶峰。
 
-总编: Irene木木
-编辑：飞虹
-校正/发稿：Fei797
+新闻参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[9 News](https://www.9news.com.au/national/coronavirus-queensland-updates-latest-covid-numbers-qld-brisbane-news/1d41187e-7eca-4424-84d0-d9b554b7ed32)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
