@@ -2,35 +2,30 @@
 ---
 
 
-## MV版Hcoin To the Moon上线44天第30次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1890698/)
+## 欧美正竞相永久关闭驻中共国大使馆，西方开启与中共政治经济大脱钩
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1891003/)
 
-1/21/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线44天第30次位列澳门iTunes热门音乐视频榜榜首，第37次位列前三名
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-* * *
-
-[【PDF 下载】Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+1月21日，郭文贵先生于GTV、Gettr直播中透露，欧盟几个国将永久关闭驻中共过大使馆，并正式宣布，西方世界和中共的政治、经济脱钩从今天开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4254c804701f3003a654a832b5f57a59-2_LI.jpg)图片来源Gettr Wolverine
 
 
-[【PDF 下载】Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+欧盟在昨天下午决定，有可能最少三到四个国家会在完全没有最后通牒的情况下，**永久关闭**所有驻中共国大使馆。欧洲这几个大国，只要英国、法国、德国、或者西班牙执行这个决定，中共国就和当年的苏联、伊拉克、利比亚一样。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+这件事情对习近平来说是五雷轰顶，所以他很少见地拍桌子暴怒大骂，突然发觉自己是被杨洁篪和上海帮玩弄了。但是这就是事实，欧盟这几个国家执行关闭大使馆后，美国一定跟着关闭，甚至美国会争抢着最先关闭。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1_e0YiP6rZw7aRi8RyTBuH_A.jpeg)图片来源medium.com（露胸代表追求自由）
+
+
+法国这个国家之所有当年可以在世界享受到无限尊荣和财富，就是因为当年法国大革命为世界的自由革命牺牲，这叫政治投机。今天法国、德国要第一个向中共彻底断交的时候，美国一定不甘落后，一定要抢在前面做第一个。
+
+哪国先向邪恶的组织有正义的行动，哪国就是世界上捍卫自由的领头人，哪国就是世界文明的灯塔。政治脱钩已箭在弦上，不会超过三个月就会发生。
+
+此事意义重大，只要这一刻发生，便意味着政治、经济双脱钩的开始，中共的灭亡正式进入倒计时。只要政治、经济双脱钩开始，世界就需要找一个能合法代表中国人的机构——新中国联邦，**没有任何其他选择**。
+
+不但如此，在政治、经济双脱钩之后，世界和中国的资本将无处可去，唯有喜联储。到那时，GTV的股票会价值几何，会超出想象。
+
+可以说，北京冬奥会对中共地打击是致命的，冬奥会真正成为中共的“冬眠会”。
 
  
 
