@@ -2,34 +2,48 @@
 ---
 
 
-## 七哥谈律师的职业道德（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1886668/)
+## 爆料丑闻：一名加拿大部署在魁北克抗击疫情的武装部队士兵遭被捕，连换衣服的时间都没有，身着军装出现在蒙特利尔法院接受审判
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1886763/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+2022-01-20
 
-来源：郭先生2022-01-17直播09:22:13摘录
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2YYW0UTAH34@JDFD3S.png)图片来源：迈克尔·阮，MICHAEL NGUYEN，2022 年 1 月 19 日星期三 21:10，蒙特利尔日报
+这名士兵在疫苗接种中心，大庭广众之下，遭被捕
 
-那么我说到这的时候我请问大家，你说这么多不正常，还能代表程序正义吗？还能代表法律的最终目的吗？那么我们必须要有理由怀疑，后面有多少个Hagen，美国司法部被腐败的，是吧，在这个时候对方突然提出一条啊，我要换律师事务所，那个原来的时候在美国已经够牛了、前三了，是吧，曼哈顿叫啥名一会儿你可以查一下。然后换到这个Bondi的，曾经代表GTV的，就这件事情上，对方竟然我没有违犯职业道德，你听说过吗？原来是代表大卫的律师，现在大卫要告Rachael，现在他要去代表Rachael告大卫，这是个最简单的常识，你怎么可以呢？他说你找了一个律师事务所，你干了五年的官司，就这法官都没有做出判决。没办法，我们上诉，找了美国最权威的第三家做鉴定，看有没有违犯职业道。别忘了啊，Bondi拿了200万律师费，就那个Bondi现在就要代表太平联盟的拿了战友们的200万律师费，就是GTV的。还有再代表告咱们，你去想想荒唐到什么程度，这在美国任何一个律师都会疯掉的，你这不是自杀吗？不！就这样的律师，法官没判决，我们再一再的抗议、抗议、抗议情况下没办法了，那我们上诉，上述情况下找第三方最后来做出了鉴定，鉴定的一会儿拿出来给你们看一看。这个权威的职业道德，律师凭借机构叫PAB，APB啊，美国那个律师机构ABA、ABA。美国法官和律师最权威的这个委员会，人家这成员决定说他不但违反了职业道德，“强烈”的违反了职业道德，“强烈” 在开庭的时候，所以说在上周开庭时候，法官Ostrager先生说：“我很尊重你，” Ed.Moss这在过去四五年，我们的法官说过多次，很尊重Ed.Moss，Ed.Moss是最成功的律师、最伟大的律师，这让我们感情上是真的很难接受，然后Ostrager法官说：”我不愿意做出这个判决，我迟缓、犹豫做这个判决，甚至很痛苦， ” 就在这种情况下啊，他就这么明显的违反职业道德，强烈违反职业道德，咱们的律师和第三方情况下，法官还说：“但是我必须痛苦做决定，GO，你可以走了。”
+蒙特利尔日报（玛丽迈克尔·阮，MICHAEL NGUYEN，2022 年 1 月 19 日星期三 21:10）发表题为《性侵犯：一名加拿大部署在魁北克的抗击疫情的武装部队士兵在疫苗接种中心，大庭广众之下，遭被捕》的文章称，这名士兵，亚历山大·马修（Alexandre Matheussen），对一名青少年进行性侵犯。这名士兵明天将回到法庭，确定保释听证会的日期。如果罪名成立，他将面临至少一年的监禁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6BBSN9IBRBA7WYRQW3.png)图片来源：照片取自 FACEBOOK，亚历山大·马修森（Alexandre Matheussen）是加拿大武装部队的成员，他被部署在蒙特利尔开展抗击疫情的行动
+一名部署在抗击疫情行动中的士兵在疫苗接种中心中被捕……原因是对一名在互联网上认识的 13 岁女孩进行性侵犯。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+一位熟悉亚历山大·马修森（Alexandre Matheussen）案件的人士告诉《蒙特利尔日报》： “他被带出疫苗接种中心大厅，调查人员就地给他戴上手铐”。
 
-**关注我们**
+20岁的加拿大武装部队成员马修森连换衣服的时间都没有，今天就身着军装出现在蒙特利尔法院。
 
-Discord 账号
+当马修森的律师向他解释说，他被指控引诱一名13岁女孩，然后对其进行性侵犯时，他显得无动于衷并笔直地站着。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+据称，20岁的加拿大武装部队成员马修森唆使这名13岁女孩进行与他性接触，然后实施了这种行为，此外马修森还向这名13岁女孩发送了露骨的色情材料。
 
-Gettr 账号
+面临至少一年的监禁
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+马修森的身份很快被确认，鉴于罪行的严重性，他于周二在疫苗接种诊所被捕。由于官方反对释放他，他今天将不得不在拘留所再呆一晚上。
+
+马修森将于明天回到法庭，确定释放听证会的日期。如果罪名成立，他将面临至少一年的监禁。
+
+日前，蒙特利尔日报（QMI AGENCY，2022 年 1 月 3 日）发表题为《军队为魁北克省的疫苗接种活动伸出援手》的文章报道，从周一（2022 年 1 月 3 日）加拿大联邦开始在魁北克省部署武装部队军人和士兵，旨在促进魁北克省的疫苗接种运动大规模和快速地进行。加拿大第二战区和联合特遣部队（东部战区）公共事务官员， 丹尼尔·亚历杭德罗·皮内达·雷维洛Daniel Alejandro Pineda Revelo 中尉，通过电子邮件表示，军方目前正在进行需求评估，以确定具体需求并部署适当数量的军人和士兵。 “经过最近几天的计划和讨论，已经制定了几个涉及不同地区的沙盘排练和‘战斗方案’。应魁北克省的要求并根据他们提出的优先等级安排，我们目前正专注于蒙特利尔地区”，中尉指出。一部分‘作战’任务是在指定的疫苗接种中心接待前来接种疫苗的人员，以及做清洁和消毒工作。
+
+参考链接：
+
+1. 蒙特利尔日报，迈克尔·阮，MICHAEL NGUYEN，2022 年 1 月 19 日星期三 21:10，Le Journal De Montreal，Agression sexuelle: arrêté en pleine opération vaccins，Le militaire aurait agressé sexuellement une ado， [https://www.journaldemontreal.com/2022/01/19/agression-sexuelle-arrete-en-pleine-operation-vaccins](https://www.journaldemontreal.com/2022/01/19/agression-sexuelle-arrete-en-pleine-operation-vaccins)
+2. 蒙特利尔日报，QMI AGENCY，2022 年 1 月 3 日，星期一，下午 4:44，Le Journal De Montreal，L’armée prête main-forte pour la campagne de vaccination au Québec，[https://www.journaldemontreal.com/2022/01/03/larmee-prete-main-forte-pour-la-campagne-de-vaccination-au-quebec-1-1](https://www.journaldemontreal.com/2022/01/03/larmee-prete-main-forte-pour-la-campagne-de-vaccination-au-quebec-1-1)
 
 
+编辑：LILY
+发布：肥鯮
+校对：班粉小哥
 
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

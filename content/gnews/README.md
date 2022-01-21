@@ -15,110 +15,110 @@
 
 ---
 
-### [美军反驳中共所谓美舰“非法闯入西沙被驱离”](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [串珠539:习废掉常委大权独揽，用国安委架空政府](/content/gnews/1/README.md)
+ ` 郭爆料串珠`
 
-### [七哥谈律师的职业道德（2022-01-17摘录）](/content/gnews/2/README.md)
- ` MG FARM`
+### [爆料丑闻：一名加拿大部署在魁北克抗击疫情的武装部队士兵遭被捕，连换衣服的时间都没有，身着军装出现在蒙特利尔法院接受审判](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [西方世界什么叫法律？(2022-01-17摘录）](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [浅谈F-15EX鹰式战斗机 &#8211; 美军为何继续开发？（上）](/content/gnews/4/README.md)
+### [浅谈F-15EX鹰式战斗机 – 美军为何继续开发？（下）](/content/gnews/3/README.md)
  ` 军情启示录`
 
-### [FDA想75年才公布完疫苗数据却被法官大提速](/content/gnews/5/README.md)
+### [美军反驳中共所谓美舰“非法闯入西沙被驱离”](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥谈律师的职业道德（2022-01-17摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [西方世界什么叫法律？(2022-01-17摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [浅谈F-15EX鹰式战斗机 &#8211; 美军为何继续开发？（上）](/content/gnews/7/README.md)
+ ` 军情启示录`
+
+### [FDA想75年才公布完疫苗数据却被法官大提速](/content/gnews/8/README.md)
  ` 华盛顿DC-Russian`
 
-### [七哥谈用生命和鲜血换来的每一个字（2022-01-17摘录）](/content/gnews/6/README.md)
+### [七哥谈用生命和鲜血换来的每一个字（2022-01-17摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈太平联盟（2022-01-17摘录）](/content/gnews/7/README.md)
+### [七哥谈太平联盟（2022-01-17摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [七哥谈共产党操作的案子（2022-01-17摘录）](/content/gnews/8/README.md)
+### [七哥谈共产党操作的案子（2022-01-17摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [七哥说“今天的意义深远”（2022-01-17摘录）](/content/gnews/9/README.md)
+### [七哥说“今天的意义深远”（2022-01-17摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [跨越美加边境的卡车司机彻底受够了强制疫苗规定，所有人都将为停运付出沉重代价](/content/gnews/10/README.md)
+### [跨越美加边境的卡车司机彻底受够了强制疫苗规定，所有人都将为停运付出沉重代价](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [秘翻在线:又一家千亿级企业奥园官宣“违约”，不支付到期票据本息](/content/gnews/11/README.md)
+### [秘翻在线:又一家千亿级企业奥园官宣“违约”，不支付到期票据本息](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1/19/2021 文贵直播：不打疫苗让新中国联邦跟沼泽地平分秋色](/content/gnews/12/README.md)
+### [1/19/2021 文贵直播：不打疫苗让新中国联邦跟沼泽地平分秋色](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大卫生部批准使用辉瑞中共病毒口服药](/content/gnews/13/README.md)
+### [加拿大卫生部批准使用辉瑞中共病毒口服药](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [拜登指责习近平对病毒隐瞒真相](/content/gnews/14/README.md)
+### [拜登指责习近平对病毒隐瞒真相](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [加拿大保守党正谋求反击中共霸权的良方](/content/gnews/15/README.md)
+### [加拿大保守党正谋求反击中共霸权的良方](/content/gnews/18/README.md)
  ` 扬帆枫叶快讯`
 
-### [英国超市使用中共面部识别技术监控购物者](/content/gnews/16/README.md)
+### [英国超市使用中共面部识别技术监控购物者](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [英国首相宣布取消疫情强制性政策](/content/gnews/17/README.md)
+### [英国首相宣布取消疫情强制性政策](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [中共企图超限战控制加拿大锂业资源](/content/gnews/18/README.md)
+### [中共企图超限战控制加拿大锂业资源](/content/gnews/21/README.md)
  ` 扬帆枫叶快讯`
 
-### [1/19/2021 文贵直播：达沃斯和中共是过去的宗教和皇权统治换上魔鬼面孔卷土重来，只有铲除他们才会实现民天下](/content/gnews/19/README.md)
+### [1/19/2021 文贵直播：达沃斯和中共是过去的宗教和皇权统治换上魔鬼面孔卷土重来，只有铲除他们才会实现民天下](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [达沃斯论坛，克劳斯·施瓦布和大重置](/content/gnews/20/README.md)
+### [达沃斯论坛，克劳斯·施瓦布和大重置](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [魁北克对未接种疫苗者征税将引发社会动荡](/content/gnews/21/README.md)
- ` 扬帆枫叶快讯`
-
-### [【粤语配音】2022年1月20日：什么是共产主义？](/content/gnews/22/README.md)
+### [【粤语配音】2022年1月20日：什么是共产主义？](/content/gnews/24/README.md)
  ` MOS香港部`
 
-### [德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/23/README.md)
+### [德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [有声|中共纪委、政法队伍、公安厅为习近平二十大统一思想](/content/gnews/24/README.md)
+### [有声|中共纪委、政法队伍、公安厅为习近平二十大统一思想](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [世卫组织改口并反对青少年加强剂疫苗](/content/gnews/25/README.md)
- ` 扬帆枫叶快讯`
-
-### [有声|抗议疫苗暴政 歌曲被YouTube迅速下架](/content/gnews/26/README.md)
+### [有声|抗议疫苗暴政 歌曲被YouTube迅速下架](/content/gnews/27/README.md)
  ` MOSREC`
-
-### [唯真不破反洗脑我信谁之二：皇帝的新装](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [重磅！G系列家族再添新成员喜保险，GTV、Gclubs投资者获取免费新福利](/content/gnews/28/README.md)
  ` YALUN 亚伦`
 
-### [扬帆每日速递 2022年1月20日版（1）](/content/gnews/29/README.md)
+### [7·24系列——达沃斯论坛的发起人施瓦布](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [扬帆每日速递 2022年1月20日版（1）](/content/gnews/30/README.md)
  ` 温哥华扬帆农场`
 
-### [家庭反洗脑序列：第44篇 封城](/content/gnews/30/README.md)
+### [家庭反洗脑序列：第44篇 封城](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦在以疫灭共的鏖战中斩获胜果](/content/gnews/31/README.md)
+### [新中国联邦在以疫灭共的鏖战中斩获胜果](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大通货膨胀率创30年新高](/content/gnews/32/README.md)
+### [加拿大通货膨胀率创30年新高](/content/gnews/33/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022年1月19日郭文贵先生直播全文字版](/content/gnews/33/README.md)
+### [2022年1月19日郭文贵先生直播全文字版](/content/gnews/34/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议](/content/gnews/34/README.md)
+### [肯尼斯·沃拉克与大外宣和习近平举行了“非正式”会议](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [美民主党长达数月推动的《投票权》法案彻底失败](/content/gnews/35/README.md)
- ` 华盛顿DC-Russian`
 
 ### [自然免疫力在美国Delta浪潮中比疫苗更有效](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`

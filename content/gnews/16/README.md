@@ -2,21 +2,33 @@
 ---
 
 
-## 英国超市使用中共面部识别技术监控购物者
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1886353/)
+## 加拿大卫生部批准使用辉瑞中共病毒口服药
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1886437/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：加拿大温哥华扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月18日，据相关媒体报道称，加拿大卫生部于本月17日批准了第一种口服中共病毒治疗药物。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-11.jpg)
+资料显示，Paxlovid是辉瑞公司生产的一种口服抗中共病毒药丸，该公司声称其可通过阻止病毒复制起到治疗作用。据加拿大联邦公共服务和采购部长透露，该国已经收到了辉瑞提供的首批3.04万个疗程的口服药物，截止3月底，预计还有12万个疗程的药物到货。同时，加拿大安大略省也表示，本月，当地将有1万个剂量的药物首先在全省15家医院供应。
 
-据英国《每日邮报》1月15日报道，英国[科浦连锁超市]正在使用中共[海康威视]的摄像系统监控其顾客。该英格兰南部大型食品零售商旗下的35家超市都已安装了该公司的面部识别系统，并且所有顾客的脸部数据都将至少保存两年。
+分析人士对此指出，辉瑞开发的中共病毒口服药缺少足够的临床测试，这导致该口服药和现有的中共病毒疫苗一样，需要使用人体作为实验样本。相较而言，那些经过长期使用且被证明更有预防及治疗效果的安全药物，如硫酸羟氯喹、伊维菌素和青蒿素等却被政府及各大药厂联合打压。
 
-报道称，由于[海康威视]的监控设备被广泛使用在中共国及新疆集中营以监视镇压少数民族和政治异见者，因此该公司所有产品在美国都已被列为国家安全威胁并禁止使用。英国政府也要求商家切勿使用[海康威视]的摄像系统。
+此外，郭文贵先生也在直播中反复强调，中共病毒口服药的毒性甚至远远超过中共病毒疫苗，它将给人体带来极为严重的健康风险。
 
-尽管如此，[海康威视]的监控设备仍被英国各地区警方用于对公路交通车牌的识别和追踪。对此，保守党议员凯恩斯指出，该公司是中共实施反人类罪和种族灭绝的帮凶，而使用其产品则无疑将所有英国人的个人信息和社会情报都泄露给了中共当局。
+参考链接：[Health Canada approves Pfizer’s COVID-19 antiviral pill Paxlovid](https://www.theglobeandmail.com/canada/article-health-canada-approves-pfizers-covid-19-antiviral-pill-paxlovid/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-编辑： 平民正道    发布：平民正道
+总编/编辑：Ivy001
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
