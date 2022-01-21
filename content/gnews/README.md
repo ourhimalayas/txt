@@ -105,29 +105,29 @@
 ### [有声|美国以国家安全为由审查阿里巴巴云业务](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|洛杉矶某校未接种新冠疫苗学生受到虐待](/content/gnews/31/README.md)
+### [有声|专家称任何时候都应禁止给儿童接种新冠疫苗](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|专家称任何时候都应禁止给儿童接种新冠疫苗](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/33/README.md)
+### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/32/README.md)
  ` 秘密翻译组金融团队`
 
-### [奥园集团表示不会支付债券暗示违约迫在眉睫](/content/gnews/34/README.md)
+### [奥园集团表示不会支付债券暗示违约迫在眉睫](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗政策情况更新](/content/gnews/35/README.md)
+### [疫苗政策情况更新](/content/gnews/34/README.md)
  ` MilesGuoLivePPT`
 
-### [极权主义妄想疯狂横行：病毒大流行、封锁、戒严令](/content/gnews/36/README.md)
+### [极权主义妄想疯狂横行：病毒大流行、封锁、戒严令](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜马拉雅生态拓展性分析](/content/gnews/37/README.md)
+### [喜马拉雅生态拓展性分析](/content/gnews/36/README.md)
  ` MilesGuoLivePPT`
 
-### [日美发表NPT联合声明呼吁中共国核透明](/content/gnews/38/README.md)
+### [日美发表NPT联合声明呼吁中共国核透明](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [G-EDU | G-Music |Rock-Media三大品牌上线暨喜马拉雅纽约磐石农场开幕典礼预告](/content/gnews/38/README.md)
+ ` 喜马拉雅纽约磐石农场`
 
 ### [英媒：美国设法加速向台湾交付新战机](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

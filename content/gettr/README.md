@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@yueyue930606 1/21/2022 4:10 PM (UTC)`
+
+这个杨贝贝吃狗肉说味道不错。。。
+![img](https://media.gettr.com/group33/getter/2022/01/21/16/78034618-928b-b64a-09bb-a487ab6d0a60/aa2ec7a6d517de0b9bc67e27d6a48db8.jpg)
+
+---
+
 `@miles 1/21/2022 5:12 PM (UTC)`
 
 Mr. Steve K. Bannon said the 2022 Beijing Genocide Games should be shut down for healthy reason that the CCP virus is spreading all over the China, due to the potential harm to athletes and the suppression of LaoBaiXing, and for many obviously moral and ethical reasons. The Chinese LaoBaiXing will be able to win their freedom and the great liberation not just against the transnational criminal organization in Beijing, but also from all their evil partners throughout the world.<br/><br/>班农先生：2022年北京【种族灭绝】冬奥会应该被停办，因为中共病毒正在全国蔓延，因为对运动员的潜在伤害和对老百姓的压迫，因为太多出于道德伦理的原因。 中国老百姓最终将赢得他们的自由和伟大的解放，不仅是从跨国犯罪组织——中共邪恶政权手里，而且还要从他们遍布全球的邪恶同伙手中赢得自由。
@@ -145,13 +152,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1月20号：尊敬的战友们好……共产党正在被冬季奥林匹克运动会．房地产崩盘．内部政治斗争……释放观状病毒等等一系列的事情埋葬中！希望中国同胞们不要成为他们的殉葬品，一切都已经开始！
 ![img](https://media.gettr.com/group10/getter/2022/01/20/14/462408f8-fff3-4ad5-571f-a16354c071ec/out.jpg)
-
----
-
-`@miles 1/20/2022 1:52 PM (UTC)`
-
-加州检察官大卫·沃尔：最高法院驳回了乔·拜登的职业安全与健康管理局疫苗接种强制令，基本上是说行政部门无权发布这样的条例。我认为这个裁决将用于指导任何诉讼。但该裁决如果被一些个别的州忽视，将引发可能导致该州破产的诉讼。<br/><br/>California Attorney David Wohl: The Supreme Court yesterday struck down Joe Biden's OSHA vaccine mandate, essentially saying the executive branch does not have the authority to issue such a rule. It will be used as controlling authority in any lawsuit. This kind of ruling, if ignored by the individual states, will invite lawsuits that could bankrupt states.<br/>
-![img](https://media.gettr.com/group48/getter/2022/01/20/13/87f3dcf3-b5f9-1032-11d2-701aeb70d126/out.jpg)
 
 ---
 
