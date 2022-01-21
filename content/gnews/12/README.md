@@ -2,22 +2,48 @@
 ---
 
 
-## 班农先生对新中国联邦的重要性（中）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1888634/)
+## ASML没有被允许向中（共）国出口光刻机
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888661/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生对新中国联邦的重要性（中）-scaled.jpg)
-包括推行我们的新中国联邦，这是前所未有的，而且我们没流一滴血，没有死一个人。所以说今天的这个时候我们跟班农先生坐在一起，这个世界上最重要的就是今天，你看过去发生的来对比过去的历史，再看我们新闻发布会时出现的那些人当中，现在很多人已经背叛了，这是很正常的。就像我们每天要吃饭要拉屎一样，吃了就得排啊！经过筛选整个的营养成分以后，一定有东西要排出去，我们排出的，现在你知道的九指妖、路大 脑骗、蛇妖闫、火鸡龚，我们排出他们是很正常的，如果不排出的话，这个革命的结果肯定会糟糕了。
+作者：MOS—柳是多水土透
 
-*发布：开智则立*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
+
+
+
+ASML（艾司摩尔，荷兰费尔德霍芬半导体装置制造商）的CEO周三（2022年元月十九日）表示，该公司尚未获准向中（共）国出口最先进的光刻机系统设备。而这些系统设备是制造先进计算机芯片所必需的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220118-03.jpg)
+这些机器被认为是可能有军事用途的两用设备。在美国政府的压力下，荷兰政府已拒绝向ASML颁发出口这种机器的许可证。首席执行官Peter Wennink表示，他认为中（共）国不太可能独立复制顶尖的光刻技术，因为ASML依赖于不懈的创新和整合，只有非中（共）国供应商才能提供组件。
+
+ASML在光刻市场上几乎处于垄断地位，其并不受限于向中（共）国出口较老的技术。中（共）国是全球最大的半导体消费国。 2021年，ASML在中（共）国的销售额约为22亿美元，占该公司销售额的16%，按地域划分，中（共）国是该公司的第三大市场，仅次于台湾和韩国。该公司预计，2022年在华销量将达到类似水平。
+
+参考来源：
+
+[ASML still has no licence to ship newest machines to China – CEO](https://www.yahoo.com/now/asml-still-no-licence-ship-132517417.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-8.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+
+
 
  
 
