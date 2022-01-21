@@ -2,20 +2,33 @@
 ---
 
 
-## 秘翻在线:又一家千亿级企业奥园官宣“违约”，不支付到期票据本息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1886539/)
+## 星巴克取消员工中共病毒疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887677/)
 
-撰稿：西枫westca
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月19日，继美国最高法院裁决取消疫苗强制令后，咖啡巨头星巴克也放弃了疫苗强制政策 。 据悉，星巴克已不再要求其员工接种中共病毒疫苗，推翻了本月早些时候宣布的疫苗强制措施。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-12.jpg)图片来源：路透社
-据新京报1月20日报道，中国奥园官方宣布违约，将不支付2022年1月到期票据剩余本息，在30天宽限期届满后，将不会支付2023年、2024年到期票据的最新利息。其未偿还本金总额10.86亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-9.jpeg)
 
-中国奥园建于1996年，2007年在香港上市。号称涵盖地产、商业、科技、跨境电商、资本投资、建筑工程、医美科技等多元化的千亿级企业。2022年1月7日发布的去年业绩还称仅物业合同已逾1200亿元。在公告中，中国奥园还说，集团管理团队包括高级管理层保持文档，致力改善集团营运情况。
+据内部人士爆料，星巴克首席执行官约翰.卡尔佛在1月18日发给员工的一份备忘录中说：我们尊重并遵守最高法院的裁决。并对员工表示，其正在积极响应美国最高法院上周对企业疫苗强制令的裁决，取消强制接种中共病毒疫苗和定期检测计划。
 
-奥园成为最新一家背信债务义务的中共国开发商。此次公告不仅对本周到期的美元票据宣布违约， 还将未来两年到期日尚未来临前先公告违约，真是神操作。中共国的企业无论国企还是私企，都本着骗你没商量的原则，完全没有公信原则。不灭中共，世界不得安宁。
+参考链接： [Starbucks nixes vaccine mandate after Supreme Court ruling](https://www.yahoo.com/news/starbucks-nixes-vaccine-mandate-supreme-163845289.html)
 
-**新闻来源：**[新京报 – 好新闻，无止境 (bjnews.com.cn)](https://www.bjnews.com.cn/detail/1642609524169876.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：雪梨
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

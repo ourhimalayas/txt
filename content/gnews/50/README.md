@@ -2,23 +2,25 @@
 ---
 
 
-## 星巴克取消员工中共病毒疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887677/)
+## 德州一医院因有关中共病毒的财务问题被起诉
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887694/)
 
-作者：纽约香草山 侠肝义胆
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月19日，继美国最高法院裁决取消疫苗强制令后，咖啡巨头星巴克也放弃了疫苗强制政策 。 据悉，星巴克已不再要求其员工接种中共病毒疫苗，推翻了本月早些时候宣布的疫苗强制措施。
+1月18日，据当地媒体报道，休斯顿医疗巨头，卫理公会医院，因压制使用伊维菌素且与大制药公司合作，向患者开具符合其经济利益的药物，正在被该院一位医生起诉要求其公开中共病毒治疗方面的财务信息和数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-10.jpeg)
 
-据内部人士爆料，星巴克首席执行官约翰.卡尔佛在1月18日发给员工的一份备忘录中说：我们尊重并遵守最高法院的裁决。并对员工表示，其正在积极响应美国最高法院上周对企业疫苗强制令的裁决，取消强制接种中共病毒疫苗和定期检测计划。
+据悉，这名医生在被卫理公会医院停职前坚持使用伊维菌素治疗那些感染了中共病毒的患者，她也因此饱受抨击。随后，该医生作为首位公开反对中共病毒疫苗的医护人员，被卫理公会医院以所谓的“恶意传播中共病毒危险讯息”为由，停职。
 
-参考链接： [Starbucks nixes vaccine mandate after Supreme Court ruling](https://www.yahoo.com/news/starbucks-nixes-vaccine-mandate-supreme-163845289.html)
+离职后，这名医生向德克萨斯州地方法院提起了对卫理公会医院的诉讼。医生表示，医疗自由目前已经被医院、大型制药公司、保险公司和联邦机构劫持，其中，医院通过向患者开具大制药公司研发的药品，使双方获得经济利益。而这些药物甚至包括具有严重副作用的瑞德西韦。为此，该医生依照当地法律向法庭提出，应要求卫理公会医院公开其有关中共病毒疫苗及药物方面的数据和财务信息。 该医生强调，此番诉讼不为寻求任何个人经济利益，但民众有权利知道与自身安全切实相关的真相。 此外，医生也提到，类固醇、维生素 C 和高剂量伊维菌素作为中共病毒早期治疗药物是非常有效的，它能挽救生命，所以不应该被任何机构打压。
+
+参考链接：[Doctor Mary Bowden Sues Houston Methodist Hospital for COVID-19 Data, Financials](https://thetexan.news/doctor-mary-bowden-sues-houston-methodist-hospital-for-covid-19-data-financials/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：雪梨
-编辑：文特
+总编：Ivy001
+编辑：Irene木木 
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

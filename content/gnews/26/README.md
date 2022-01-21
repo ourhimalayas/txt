@@ -2,16 +2,35 @@
 ---
 
 
-## 江曾高调纪念南巡醉翁之意在除习
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1890119/)
+## 有声|巴拉圭总统夫妇二人接种两剂疫苗仍旧感染
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1890165/)
 
-——文贵大直播20220121
+配音：香草山佛教部 – 李傻
 
-撰稿：三票先生（DC）
 
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片8-3.png)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月18日，巴拉圭卫生部发布通知，该国总统贝尼特斯于当天确诊感染中共病毒，所幸症状轻微，目前正在隔离中。
+
+据悉，贝尼特斯的夫人于16日确诊感染中共病毒，而夫妇二人均已完成两剂疫苗接种。据巴拉圭卫生部公布的数据显示，该国目前累计中共病毒确诊病例超过50万例，累计死亡近1.7万例。
+
+文字版原文：[巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](https://gnews.org/zh-hans/1883412/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

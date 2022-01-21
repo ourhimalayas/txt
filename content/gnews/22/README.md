@@ -2,44 +2,37 @@
 ---
 
 
-## 自然免疫力优于针对Delta病毒变种的疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1890166/)
+## 日本国会数据再次印证疫苗无效
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1890239/)
 
-翻译：Jenny Ball
+作者：日本方舟农场 – Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/child-getting-vaccinated-700x420-1.jpg)2022年1月6日，一名儿童在康涅狄格州哈特福德接种辉瑞公司的 COVID-19 疫苗。（Joseph Prezioso/AFP via Getty Images）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-根据CDC发表的一项新研究，疫苗对之前的 COVID-19 病毒感染的保护优于对变种的Delta病毒的保护。
+1月19日，日本国会对防疫政策进行了最新一轮听证答辩。日本经济再生大臣山际大志郎公布日本官方数据，在感染奥密克戎变种并且有临床研究数据的191例感染病例之中，有145例是已经接种2剂疫苗的患者，占总数的75.9%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-19.jpg)
+受此影响，日本政府在19日宣布暂停实施《疫苗接种和检查制度》。该制度是去年11月颁布的，只针对已接种人群以及核酸检测呈阴性人群，解除了一部分外出限制。该制度的叫停意味着日本将对所有国民实施统一的相关政策，不区分他们是否接种了疫苗。
 
-研究人员分析了 2021 年 5 月 30 日至 11 月 20 日期间来自加利福尼亚和纽约的健康记录的报告。他们将​​ COVID-19 患者分为四组：
+分析人士指出，日本公布的临床数据已经再次证明现阶段的所谓疫苗对病毒无效，幸运的是日本政府及时根据这些数据做出了调整。
 
-- 未接种疫苗且之前没有 COVID-19 诊断
-- 未接种疫苗且曾感染 COVID-19
-- 之前没有感染过 COVID-19 的疫苗接种者
-- 之前感染过 COVID-19 的疫苗这种者。
+参考链接：
+1) . [20220118-19日本媒體FNN和ANN](https://www.gettr.com/post/ppes9vaf4b)
+2) . [国民の仕事や生活の安定・安心を支える日常生活の回復](https://corona.go.jp/package/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-根据周三发表的这项研究，与未接种过 COVID-19 疫苗的人相比，那些未接种过 COVID-19 疫苗但之前感染过该病的人，在 CDC 的发病率和死亡率周报中，不太可能检测出 COVID-19 呈阳性。
+总编: Irene木木
+编辑：飞虹
+校正/发稿：Fei797
 
-根据加利福尼亚州的住院记录，没有接种疫苗但确实有过感染（也称为自然免疫）的人也比那些接种疫苗后没有自然免疫的人更不可能住院。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-研究发现，迄今为止，未曾感染且未接种疫苗的人，最有可能感染 COVID-19 ，并需要住院治疗。
-
-“这些结果表明，疫苗接种或可以预防 COVID-19 和相关的住院治疗，但从先前的感染中幸存下来的人，可以防止再次感染。重要的是，在高度传播的 Delta 变种成为主要变异体后，自然免疫对感染衍生的保护作用更大，这与许多人的疫苗诱导免疫力早期下降相吻合，”包括加州公共卫生部托马斯·莱昂在内的研究人员写道。
-
-研究人员说，由于所研究的时间段仅持续到 11 月下旬，因此，需要更多的研究来检验疫苗接种，和先前的感染，是否也能防止 Omicron 病毒变种，这种变种上个月在美国占主导地位。
-
-参考资料：[theepochtimes][Natural Immunity Superior to Vaccination Against Delta Virus Variant: Study](https://www.theepochtimes.com/natural-immunity-superior-to-vaccination-against-delta-virus-variant-study_4223936.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-20)
-
-* * *
-
-*审核：文乐
-校对：Anton（小东）
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
- 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
