@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|巴拉圭总统夫妇二人接种两剂疫苗仍旧感染
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1890165/)
+## 文贵大直播 1/21 巴基斯坦谢里夫案：跟着共产党走进火葬场 无一例外
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1890276/)
 
-配音：香草山佛教部 – 李傻
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2-3.jpg)图片来源 GTV
+巴基斯坦谢里夫案，谢里夫明确讲他没有贪污国家的钱，钱都是中共给的。爆料革命发起人郭文贵先生在1月21日文贵大直播纽约现场愤怒地告诉全球：这是对中国人的极大羞辱。
 
+当嘉宾就谢里夫案询问郭先生内情时，文贵先生直言，蓝金黄为主要手段的贪腐“外交”是中共本性，这是常识。所谓中巴友谊，巴铁外交包括所有一带一路，都是假、骗、偷。中共给谢里夫一个亿，中国人民付出的会是百倍千倍的代价。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月18日，巴拉圭卫生部发布通知，该国总统贝尼特斯于当天确诊感染中共病毒，所幸症状轻微，目前正在隔离中。
+回顾一带一路国家很多领导人的命运，中共没有国家战略，完全是家族利益之私，巴基斯坦就是中共杀人越货、洗钱犯罪的大通道。其他类似国家也毫不例外。
 
-据悉，贝尼特斯的夫人于16日确诊感染中共病毒，而夫妇二人均已完成两剂疫苗接种。据巴拉圭卫生部公布的数据显示，该国目前累计中共病毒确诊病例超过50万例，累计死亡近1.7万例。
+中共对世界各国的蓝金黄，买单的实质是苦难的中国百姓，最大的受害者也是各国百姓，跟着共产党走向火葬场，无论以什么形式都已经被一个个事实所印证，也必会被更多的悲剧反复证实。
 
-文字版原文：[巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](https://gnews.org/zh-hans/1883412/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+【来源链接】https://gtv.org/broadcast/watch/61eaab2f533c672fca80472a
 
  
 

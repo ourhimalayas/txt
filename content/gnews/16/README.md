@@ -2,50 +2,42 @@
 ---
 
 
-## 英国医生说伊维菌素预防COVID死亡有效率高达62%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1890107/)
+## 自然免疫力优于针对Delta病毒变种的疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1890166/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip16-2.png)新闻来源：childrenshealthdefense.org
-世卫组织的医生、研究分析师和顾问特蕾莎·劳里(Theresa Lawrie)博士，在周一接受美国一线医生的采访时，讨论了伊维菌素治疗 COVID 的功效，她还质疑 COVID 疫苗的安全性。
+翻译：Jenny Ball
 
-劳里是英国医生和研究分析师，曾担任世卫组织顾问，创立了英国伊维菌素推荐发展倡议（BiRD International），并且是新成立的世卫理事会的联合创始人，该联盟是由30 多个国家的 80 多个成员组成的国际健康倡导组织。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/child-getting-vaccinated-700x420-1.jpg)2022年1月6日，一名儿童在康涅狄格州哈特福德接种辉瑞公司的 COVID-19 疫苗。（Joseph Prezioso/AFP via Getty Images）
 
-“我们完全独立，由非营利组织资助，”劳里说， “**我们从未做过任何制药行业赞助的工作。**”
+根据CDC发表的一项新研究，疫苗对之前的 COVID-19 病毒感染的保护优于对变种的Delta病毒的保护。
 
-劳里回顾了她与人合作，对 24 项伊维菌素对照试验的结果荟萃分析，该结果发表在《美国治疗学杂志》上。她说，结果显示：**伊维菌素在预防 ****COVID ****死亡方面的有效性为 ****62%****，**在预防性服用时，**预防感染的有效性为 ****86%**。
+研究人员分析了 2021 年 5 月 30 日至 11 月 20 日期间来自加利福尼亚和纽约的健康记录的报告。他们将​​ COVID-19 患者分为四组：
 
-“网络上有误导性的帖子，”她说，其中包括一名记者冒充医学生，声称要揭穿荟萃的分析。
+- 未接种疫苗且之前没有 COVID-19 诊断
+- 未接种疫苗且曾感染 COVID-19
+- 之前没有感染过 COVID-19 的疫苗接种者
+- 之前感染过 COVID-19 的疫苗这种者。
 
-劳里说，**主流媒体忽略了原始的、专业发表的文章，但这种非科学家的****“****揭穿****”****却得到了广泛的报道。**
 
-劳里的同行评议文章也被从她的 LinkedIn 帐户中删除。
+根据周三发表的这项研究，与未接种过 COVID-19 疫苗的人相比，那些未接种过 COVID-19 疫苗但之前感染过该病的人，在 CDC 的发病率和死亡率周报中，不太可能检测出 COVID-19 呈阳性。
 
-劳里说：“这些社交媒体网站删除了该领域专家所做的科学信息。”“为什么社交媒体公司如此热衷于压制试图传达新药信息的科学家？”
+根据加利福尼亚州的住院记录，没有接种疫苗但确实有过感染（也称为自然免疫）的人也比那些接种疫苗后没有自然免疫的人更不可能住院。
 
-虽然劳里说她会自己服用伊维菌素并“给她的孩子”，但针对疫苗，她这样说：
+研究发现，迄今为止，未曾感染且未接种疫苗的人，最有可能感染 COVID-19 ，并需要住院治疗。
 
-“当我在去年年中听说他们已经准备好疫苗时，我非常担心，因为不可能这么快就开发出疫苗，”她说。
+“这些结果表明，疫苗接种或可以预防 COVID-19 和相关的住院治疗，但从先前的感染中幸存下来的人，可以防止再次感染。重要的是，在高度传播的 Delta 变种成为主要变异体后，自然免疫对感染衍生的保护作用更大，这与许多人的疫苗诱导免疫力早期下降相吻合，”包括加州公共卫生部托马斯·莱昂在内的研究人员写道。
 
-她质疑产生刺突蛋白的 mRNA 机制——“它什么时候停止？”——**并引用了缺乏疫苗动物试验的公布结果**。
+研究人员说，由于所研究的时间段仅持续到 11 月下旬，因此，需要更多的研究来检验疫苗接种，和先前的感染，是否也能防止 Omicron 病毒变种，这种变种上个月在美国占主导地位。
 
-（点评：动物实验是疫苗开发必经的第二期试验，之前是试验室试验，之后是人体试验。各国政府强制人们接受未经第二期试验的mRNA刺突蛋白药物，这是公然违法和犯罪。）
-
-“**如果你有安全有效的治疗方法，你就不需要推出实验性疫苗**，”她说，而是提倡进行更多研究，将“旧药”重新用于“新疾病”。
-
-劳里还敦促人们“停止将医疗保健外包给政府”，并列举了每个人都可以做的几件事来保护自己免受新冠病毒的侵害，**其中包括减少糖和酒精的使用，摄入大量的维生素 C、维生素 D 和锌以及使用伊维菌素**。
-
-**新闻来源**：[childrenshealthdefense.org][Ivermectin 62% Effective in Preventing COVID Mortality, 86% Effective in Preventing Infection, UK Doctor Says](https://childrenshealthdefense.org/defender/ivermectin-effective-preventing-covid-mortality-infection/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ec3f8276-caf8-4324-afce-76d804700ba4)
+参考资料：[theepochtimes][Natural Immunity Superior to Vaccination Against Delta Virus Variant: Study](https://www.theepochtimes.com/natural-immunity-superior-to-vaccination-against-delta-virus-variant-study_4223936.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-20)
 
 * * *
 
-***审核：文乐
-校对：小东
-发布：信心满满***
+*审核：文乐
+校对：Anton（小东）
+发稿：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
-
 
  
 
