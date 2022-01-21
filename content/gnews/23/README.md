@@ -2,31 +2,89 @@
 ---
 
 
-## 01/21每日播报｜“奥米炕”变种的出现使各国政府卫生官员对人们获得群体免疫的希望正在消失
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1889323/)
+## 01/21每日播报|社媒消息：蓬佩奥 班农先生
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1889350/)
 
-**By:[秘翻新闻](http://xn--%20%20%201-8p3gla6267fh20bdnm4sbxwao24sm7j7y1ajp4co7sdk0a.xn--%202-db7ag0193it2kpm9ae81e41c.xn--0:%202-qi0ci5386hz1ah1dn6kwzaj2cn6iuxb70o5mgto0e9syb80cb62eicv4o3hfm0a16y8pg.xn--%201-2f5fk4hh1hyqa9sz00rea6955a0hohw1c1in.xn--795%207917%203-2j9vha16gf1o5tvn40dq04m.xn--%2010%206-z95n5mp64a0b018ainh0vjlkw97n8t0do0xaw49b9dusz9fonh.xn--67%204-jp8ijb822c3p3a8s5b10w.xn--%20:%205-nd0mp0fa992e7va01dkvc4xi7c01hwhn79bba36gr83ahzbfa56er75c5i6auj0an0luud3w0d0o3jtluccxlyhmm5ch72da4004d.xn--%206-996aagb7889hsma57n0rh24bw7ad0y3taz0zo0a191aq0bz7tj6cq71dylj420a4xm75t272agldb6h5t7cmmv.xn--%20%20%207-pm2pi1f22dl8h3vi7vblwa814b55gzz0dkdm33b6ry38leiuflzl5wnv7arcas65ncm9avl6g.xn--%20%20%208-xy3pefw3cm9td5bkwfva423b0wcpv5bq51axxfboolt0alhwsemipg8luph3b2x7j1ndsujzr9i.xn--%20%209-fx3k5ir8ftstc217ayd254bn6b4y1b1ki86bhhk2lbv8b8jbz83ijt2c29gdy8mooa16eh48p.xn--%20%2010-nd0mo0k0zfnc0c654csiap71etpao0k4xjp05b1tj22co8z3snunmd62dfa4582erltxr5bt0m.xn--%2051%20%20%21%20gtv:https-ub91b9zay3h2lv8d0ya861ev5icljn0e6uhxmoto0aeenyxcdy7di08aqerdn8c9nxc016hw8ofzsap0i6zwsgbwzas05igv4cqul0jdfy0gedxcex680a//gtv.org/broadcast/watch/61ea752f533c672fca803538)**
+BY:[秘翻新闻](https://gtv.org/broadcast/watch/61ea752f533c672fca803538)
 
-**[2022-01-22](http://xn--%20%20%201-8p3gla6267fh20bdnm4sbxwao24sm7j7y1ajp4co7sdk0a.xn--%202-db7ag0193it2kpm9ae81e41c.xn--0:%202-qi0ci5386hz1ah1dn6kwzaj2cn6iuxb70o5mgto0e9syb80cb62eicv4o3hfm0a16y8pg.xn--%201-2f5fk4hh1hyqa9sz00rea6955a0hohw1c1in.xn--795%207917%203-2j9vha16gf1o5tvn40dq04m.xn--%2010%206-z95n5mp64a0b018ainh0vjlkw97n8t0do0xaw49b9dusz9fonh.xn--67%204-jp8ijb822c3p3a8s5b10w.xn--%20:%205-nd0mp0fa992e7va01dkvc4xi7c01hwhn79bba36gr83ahzbfa56er75c5i6auj0an0luud3w0d0o3jtluccxlyhmm5ch72da4004d.xn--%206-996aagb7889hsma57n0rh24bw7ad0y3taz0zo0a191aq0bz7tj6cq71dylj420a4xm75t272agldb6h5t7cmmv.xn--%20%20%207-pm2pi1f22dl8h3vi7vblwa814b55gzz0dkdm33b6ry38leiuflzl5wnv7arcas65ncm9avl6g.xn--%20%20%208-xy3pefw3cm9td5bkwfva423b0wcpv5bq51axxfboolt0alhwsemipg8luph3b2x7j1ndsujzr9i.xn--%20%209-fx3k5ir8ftstc217ayd254bn6b4y1b1ki86bhhk2lbv8b8jbz83ijt2c29gdy8mooa16eh48p.xn--%20%2010-nd0mo0k0zfnc0c654csiap71etpao0k4xjp05b1tj22co8z3snunmd62dfa4582erltxr5bt0m.xn--%2051%20%20%21%20gtv:https-ub91b9zay3h2lv8d0ya861ev5icljn0e6uhxmoto0aeenyxcdy7di08aqerdn8c9nxc016hw8ofzsap0i6zwsgbwzas05igv4cqul0jdfy0gedxcex680a//gtv.org/broadcast/watch/61ea752f533c672fca803538)**
+**2022-01-21**
 
-路透社1月20日报道，传染病专家认为，奥米炕变种的传播速度远快于以前任何一个版本的中共病毒，不太可能帮助各国实现对中共病毒的所谓群体免疫。
+**1.蓬佩奥1月20日在盖特发文： **没有什么“小”的入侵行为一说。乌克兰是个一个主权国家，它的每一寸土地都应受到保护。顿巴斯（Donbass）并不是俄罗斯的一部分，美国领导人必须明确这一点。
 
-从2020年初全球大流行的最初几天开始，许多国家的公共卫生官员就表示，只要有足够高比例的人口接种疫苗或感染该病毒，就有可能实现针对中共的群体免疫。但随着中共病毒在过去一年中迅速地连续变异成不同新变种，使其能够重新感染接种过疫苗或之前感染过中共病毒的人，这使得群体免疫的希望变得十分渺茫，
+[https://gettr.com/post/ppiw3o0628](https://gettr.com/post/ppiw3o0628)
 
-自去年年底奥米炕变种出现以来，一些国家的卫生官员认为已经恢复了实现群体免疫的可能性。他们认为，这种变种传播速度如此之快并导致病情较轻的事实可能很快就会让足够多的人以一种危害较小的方式接触中共病毒并为身体提供免疫保护。然而，传染病专家指出，奥米炕变种的传染性强得益于这种变种在感染已接种疫苗的人或先前感染过的人的方面甚至比其之前的其他变种更容易的事实。他们说，这提供了一种证据来表明中共病毒将继续寻找突破人类免疫防御的方法。
+**2. 班农先生1月20日在盖特发文：** 美国疾控中心CDC终于不再对美国人撒谎了—他们承认自然免疫力比新冠疫苗更好。 【盖文转《每日来电》（Daily Caller）报道，CDC在1月19日发布的一项研究报告中说，与疫苗相比，从先前的新冠感染中获得的自然免疫力对新冠德尔塔变种提供了更强的保护。在德尔塔占据主导地位之后，拥有自然免疫力的人感染新冠病毒的概率比只接种疫苗的人低。】
 
-北卡罗来纳大学教堂山医学院的传染病专家大卫沃尔博士说：当接种疫苗的人仍然可以传播病毒并感染其他人时，这种病毒改变了游戏规则。
+[https://gettr.com/post/ppi95v88dc](https://gettr.com/post/ppi95v88dc)
 
-伦敦大学学院计算系统生物学教授弗朗索瓦·巴卢克斯告诉路透社：这些言论在媒体上出现：‘当 60% 的人口接种疫苗时，我们将实现群体免疫，然而它没有发生。然后是 80%。群体免疫再一次没有发生。尽管听起来很可怕，但我认为我们必须为绝大多数人，基本上每个人都会接触到中共病毒做好准备。”
+**3. 班农先生1月21日在盖特发文：** 《战斗室》节目不是来统一国家的，而是来对抗你们文化马克思主义和全球主义，你们破坏了中产阶级和工薪阶级，以及世代相传的宪政共和国。这就是我们的论点。请注意，我们在赢，你们在输。 我们还没有开始战斗。如果每个人都专注于此，那么我们就有一个独一无二的机会，在11月8日粉碎这个全球主义和文化马克思主义机构。
 
-（秘翻新闻主编 清风先生编译报道）
+[https://gettr.com/post/pplf8p3b19](https://gettr.com/post/pplf8p3b19)
 
-发布:星星
+[https://gettr.com/post/ppl933059a](https://gettr.com/post/ppl933059a)
+
+**4. 《国家脉动》1月21日在盖特发文：** 口罩强制令导致语言发育迟缓的儿童人数增涨了超过350%。 【盖文转报道，强制口罩规定似乎正在导致幼儿的语言发育迟缓。佛罗里达州北棕榈滩的语言和学习研究所（Speech and Learning Institute）的诊所主任和语言病理学家杰克琳·希克（Jaclyn Theek）强调说：“今年是非常具有挑战性的一年。”在这场大流行中，该诊所的婴幼儿患者增加了364%。在新冠疫情之前，该诊所的病人中只有5%属于这个年龄段，而现在则是20%。希克说：“目前还没有研究说口罩强制会导致语言发育迟缓。但我可以肯定地说它是其中一个因素。非常重要的是，孩子们通过看你的脸来学习，所以他们在观察你的嘴。”一位家长格雷戈·桑托斯Gregg Santos将这种语言延迟归因于“社会隔离和所有人都戴着口罩”。他每周带他的儿子接受两次语言治疗。桑托斯说：“我的孩子出生于大流行早期，一开始非常健康。但是社会隔离和每个人都戴着口罩导致他出现了语言障碍。我孩子现在只会婴儿似的胡言乱语，在表达某些关键词汇时不流畅。“另一位家长告诫说：”在你成长的世界里，当你不能与人们和他们的脸产生互动时，这肯定会产生差异。这对婴儿来说超级重要。”】
+
+[https://gettr.com/post/ppkubmb589](https://gettr.com/post/ppkubmb589)
+
+**5. 罗伯特马龙博士1月20日在盖特发文： **和平抗议可以带来改变。捷克布拉格的全能之春! 2021年12月，捷克政府宣布，从今年3月1日起，将给60岁以上的人、医生和护士等其他保健人员、警察、军人、消防员强制接种新冠疫苗。 但在医生、护士、律师和学生采取了大量行动后，比如发表各种声明和举行示威游行，捷克政府在今天1月19日取消了这一计划。
+
+[https://gettr.com/post/ppgtwra355](https://gettr.com/post/ppgtwra355)
+
+**6． 莲心不染 1月20日发推说：** 加拿大魁北克电视台（Quebec TV）对儿童进行法西斯宣传，以煽动仇恨和暴力。小女孩说：“应该逐渐剥夺未接种新冠疫苗者的权利，直至他们屈服。”男孩说：“看到未接种者，我们应该报告警察！”
+
+
+
+> 在魁北克电视台对儿童进行法西斯宣传，以煽动仇恨和暴力。女孩子说：应该逐渐剥夺未接种者的权利，直至他屈服。男孩说：看到未接种者，应该报告警察！ [https://t.co/tNPGkuJ8Bt](https://t.co/tNPGkuJ8Bt)
+> — PureLotusHeart莲心不染 (@PureLotusHeart1) [January 20, 2022](https://twitter.com/PureLotusHeart1/status/1484037527698817024?ref_src=twsrc%5Etfw)
+
+
+
+**7. 新唐人1月20日在盖特发文：** 白宫首席医学顾问安东尼·福奇1月20日表示，美国食品药品监管局可能会在下个月批准辉瑞和生物新技术公司（BioNTech）联合开发的新冠疫苗用于5岁以下幼儿。
+
+[https://gettr.com/post/ppjibfdf37](https://gettr.com/post/ppjibfdf37)
+
+**8. 《大纪元时报》1月20日在盖特发文：** 在联邦法院1月19日驳回德克萨斯州的诉讼后，美国所有50个州现在都可以对医护人员执行强制疫苗政策。 【盖文转报道，据联邦政府称，医疗护理和医疗救助服务中心要求全美医疗保险和医疗补助认证机构的1040万员工完全接种新冠疫苗。员工可以申请医疗或者宗教豁免，但新冠康复者无法因为已拥有自然免疫力而被豁免，也没有每周进行核酸检测的选项。】
+
+[https://gettr.com/post/ppiq1fbb79](https://gettr.com/post/ppiq1fbb79)
+
+**9. 美国海军陆战队老兵1月21日在盖特发文：** 美国国税局今年夏天将强制用户进行面部识别扫描。 【盖文转《Reclaim The Net》报道，用户必须向第三方提交私人文件、他们的社会安全号码、信用记录，甚至是面部扫描，才能在线获取他们的信息。目前，用户只需要用户名和密码即可登录其国税局帐户。但从 2022 年夏天开始，用户将需要通过名为 ID.me 的第三方身份验证公司来验证自己的身份。该公司声称它只与“选定的合作伙伴”共享一些数据。您的ID.me帐户被删除后，该公司的政策规定它可能会保留您的数据长达7.5年。】
+
+[https://gettr.com/post/ppiy0q84e9](https://gettr.com/post/ppiy0q84e9)
+
+**10. 印太新闻 – 关注中共威胁1月21日发推说：** 中共国的种族主义者竟然公开称呼抵达北京参加冬奥会的美国黑人运动员是“黑鬼（Nigger）”。在英语中，黑鬼是对黑人种族的歧视用语，尤其是针对非裔美国人。
+
+
+
+> Chinese racists are openly attacking [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) black athletes arriving in [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) for 2022 Winter with racial slurs [https://t.co/ISQ8nOWWgq](https://t.co/ISQ8nOWWgq)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [January 21, 2022](https://twitter.com/IndoPac_Info/status/1484325401451134981?ref_src=twsrc%5Etfw)
+
+
+
+**11. Disclose.tv 1月21日在盖特发文： **法国总理让·卡斯泰 (Jean Castex)宣布，法国的疫苗护照将从1月24日开始生效。 未接种新冠疫苗的人将被禁止进入绝大多数公共场所。
+
+[https://gettr.com/post/ppjqv9617b](https://gettr.com/post/ppjqv9617b)
+
+**12. Disclose.tv 1月20日在盖特发文：** 德国2021年12月的生产者物价指数PPI同比增涨了24.2%，是二战之后的最大涨幅。
+
+[https://gettr.com/post/ppirnl9e22](https://gettr.com/post/ppirnl9e22)
+
+**13. 郭文贵先生在1月20日的盖特视频中说：** 国内同胞说爱党，但党爱你吗？为了让俄罗斯和几个小国来给冬奥会捧场，中共挥霍了几万亿！老百姓的生活却越来越差、病越来越多，还找不到好医生、看不起病，悲哀啊！2022年1月19日开启了爆料革命的新时代，我们在传播病毒和疫苗灾难信息的同时，也向世界发出中共不等于中国人、中国人是最大的受害者这样的声音，让世界看清什么是共产主义！今天的大直播要谈谈冬奥会前中共和各国的勾兑，以及中共人工造雪对气候造成的灾难；房产税是一场财富洗劫，冬奥会后中共将加大对老百姓的剥削；中共是人类公敌必须被灭！
+
+[https://gettr.com/post/ppmbdz1103](https://gettr.com/post/ppmbdz1103)
+
+[https://gettr.com/post/ppm0fb58e8](https://gettr.com/post/ppm0fb58e8)
+
+[https://gettr.com/post/ppn3umc5d0](https://gettr.com/post/ppn3umc5d0)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+
+发布：陸柒陸捌
 
 * * *
 
 **By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

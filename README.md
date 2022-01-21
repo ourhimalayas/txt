@@ -15,116 +15,116 @@
 
 ---
 
-### [郭先生2022-1-20盖特概要](/content/gnews/1/README.md)
+### [中共约谈提醒8家网货运和网约车平台公司](/content/gnews/1/README.md)
+ ` 儒为`
+
+### [澳大利亚药品管理局批准了两款治疗新冠病毒的口服药](/content/gnews/2/README.md)
+ ` 喜国公民`
+
+### [郭先生2022-1-20盖特概要](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [](/content/gnews/2/README.md)
+### [不要有臆想症](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵直播大事记——中共魔教（四）：五行属相最迷信](/content/gnews/5/README.md)
+ ` GNotes真.贵.记.录`
+
+### [](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [2022/01/20 墙内世界](/content/gnews/3/README.md)
+### [2022/01/20 墙内世界](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登：俄罗斯只要越过乌克兰边境即被视为入侵](/content/gnews/4/README.md)
+### [新冠病毒为整个世界带来了无法挽回的伤痛](/content/gnews/8/README.md)
+ ` STHK`
+
+### [拜登：俄罗斯只要越过乌克兰边境即被视为入侵](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [中国电信大面积断网 愚民、弱民变本加厉](/content/gnews/5/README.md)
+### [中国电信大面积断网 愚民、弱民变本加厉](/content/gnews/10/README.md)
  ` 焦點20分`
 
-### [文贵直播大事记——中共魔教（三）：3大风水工程](/content/gnews/6/README.md)
+### [文贵直播大事记——中共魔教（三）：3大风水工程](/content/gnews/11/README.md)
  ` GNotes真.贵.记.录`
 
-### [波士顿拒绝挂基督教旗——最高法院现在审理此案](/content/gnews/7/README.md)
+### [波士顿拒绝挂基督教旗——最高法院现在审理此案](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [卢比奥说得对：我们必须阻止美国的亿万富翁给中共国输血](/content/gnews/8/README.md)
+### [卢比奥说得对：我们必须阻止美国的亿万富翁给中共国输血](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [后“疫情”时代](/content/gnews/9/README.md)
+### [后“疫情”时代](/content/gnews/14/README.md)
  ` 银河勇气之星`
 
-### [法国会为疫苗付出沉重代价，整个欧洲处在脱甲换代的时刻](/content/gnews/10/README.md)
+### [法国会为疫苗付出沉重代价，整个欧洲处在脱甲换代的时刻](/content/gnews/15/README.md)
  ` HA-Multilingual澳喜农场多语组`
 
-### [1.19大直播后记：七哥谈中国人展现给世界的形象](/content/gnews/11/README.md)
+### [1.19大直播后记：七哥谈中国人展现给世界的形象](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [欧洲各地的安检设备中共政府和军队有牵连](/content/gnews/12/README.md)
+### [欧洲各地的安检设备中共政府和军队有牵连](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国医生说伊维菌素预防COVID死亡有效率高达62%](/content/gnews/13/README.md)
+### [英国医生说伊维菌素预防COVID死亡有效率高达62%](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Ray Dalio在西方提倡共享财富 习在达沃斯给世界把脉开药方](/content/gnews/14/README.md)
+### [Ray Dalio在西方提倡共享财富 习在达沃斯给世界把脉开药方](/content/gnews/19/README.md)
  ` 焦點20分`
 
-### [参议院司法委员会批准针对大型科技公司的反垄断法案](/content/gnews/15/README.md)
+### [参议院司法委员会批准针对大型科技公司的反垄断法案](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中文财经网站金融界从纳斯达克退市](/content/gnews/16/README.md)
+### [中文财经网站金融界从纳斯达克退市](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
 
-### [大直播后记：共产党向沼泽地献祭70年的总数](/content/gnews/17/README.md)
+### [大直播后记：共产党向沼泽地献祭70年的总数](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [01/21每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/18/README.md)
+### [01/21每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [西班牙警方捣毁剥削中国女性的卖淫网络，犯罪头目亦是中国妇女](/content/gnews/19/README.md)
+### [西班牙警方捣毁剥削中国女性的卖淫网络，犯罪头目亦是中国妇女](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵直播大事记——中共魔教（二）：两大门派](/content/gnews/20/README.md)
+### [文贵直播大事记——中共魔教（二）：两大门派](/content/gnews/25/README.md)
  ` GNotes真.贵.记.录`
 
-### [区块链为什么如此受欢迎（NFT篇2）](/content/gnews/21/README.md)
+### [区块链为什么如此受欢迎（NFT篇2）](/content/gnews/26/README.md)
  ` 骄子`
 
-### [有医生为农村患者设计昂贵但效果最差的方案](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
-
-### [01/21每日播报｜“奥米炕”变种的出现使各国政府卫生官员对人们获得群体免疫的希望正在消失](/content/gnews/23/README.md)
+### [01/21每日播报｜“奥米炕”变种的出现使各国政府卫生官员对人们获得群体免疫的希望正在消失](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [01/21每日播报｜拜登与岸田首次会谈将讨论安全合作和如何对抗中共](/content/gnews/24/README.md)
+### [01/21每日播报｜拜登与岸田首次会谈将讨论安全合作和如何对抗中共](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [区块链为什么如此受欢迎（NFT篇1）](/content/gnews/25/README.md)
+### [区块链为什么如此受欢迎（NFT篇1）](/content/gnews/29/README.md)
  ` 骄子`
 
-### [美国上周近百万儿童感染中共病毒，中国产KN95口罩价格昂贵](/content/gnews/26/README.md)
+### [美国上周近百万儿童感染中共病毒，中国产KN95口罩价格昂贵](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1.19大直播后记：七哥谈新中国联邦未来的教育系统、财富系统](/content/gnews/27/README.md)
+### [ESPN宣布不派遣新闻人员参与北京冬奥会](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [口罩强制令导致语言发育迟缓的儿童人数增涨了350%](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大直播后记：喜币将摧毁达沃斯论坛](/content/gnews/33/README.md)
  ` 雅典娜GNotes`
 
-### [ESPN宣布不派遣新闻人员参与北京冬奥会](/content/gnews/28/README.md)
+### [秘翻在线：法国众议院通过&#8221;中共在新疆实施种族灭绝&#8221;的决议](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：郭文贵拒绝加入共济会](/content/gnews/29/README.md)
- ` 雅典娜GNotes`
-
-### [口罩强制令导致语言发育迟缓的儿童人数增涨了350%](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [大直播后记：喜币将摧毁达沃斯论坛](/content/gnews/31/README.md)
- ` 雅典娜GNotes`
-
-### [秘翻在线：法国众议院通过&#8221;中共在新疆实施种族灭绝&#8221;的决议](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [欧洲议会谴责香港自由恶化 呼吁制裁官员并抵制北京冬奥](/content/gnews/33/README.md)
+### [欧洲议会谴责香港自由恶化 呼吁制裁官员并抵制北京冬奥](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [瑞幸咖啡计划重新在美上市](/content/gnews/34/README.md)
+### [瑞幸咖啡计划重新在美上市](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [巴基斯坦总理伊姆兰·汗隐瞒虚报外国资金引批评](/content/gnews/35/README.md)
+### [巴基斯坦总理伊姆兰·汗隐瞒虚报外国资金引批评](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [COVID-19疫苗刺突蛋白脱落导致人们心脏病发作、中风等](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵直播大事记——中共魔教（一）：昆仑山祭坛地狱之门](/content/gnews/37/README.md)
- ` GNotes真.贵.记.录`
 
 ### [日本疫情创新高 单日确诊4.6万例](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
