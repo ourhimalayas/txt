@@ -2,33 +2,32 @@
 ---
 
 
-## 班农先生谈背叛
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889012/)
+## 中共警告各国运动员谨慎言论
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889141/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生谈背叛_01.jpg)
-新中国，新中国人形成的这个进程中，任何进程都是这样，必然会经历背叛。就连基督来到世上，也是如此。所以一定会有这种人，他们会背叛，今后还会不断出现，也不可能会止息。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
+1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1660.png)
+此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
 
-我知道重要的是：历史会审判我们。这就是为什么我非常愿意把我的生命投入这个使命，对每一天致力所作的一切，我觉得特别的舒服。因为我们是在天使的这一边，我们支持伟大的中国人的自由抗争，最终也是为整个人类的自由。
+链接：[China Warns Olympic Athletes Over “Any Speech” Contrary To Chinese Laws](http://zububrothers.com/2022/01/19/china-warns-olympic-athletes-over-any-speech-contrary-to-chinese-laws/)
 
-有人会背叛，有人会害怕、会软弱，有人会离开。我自己也在受威胁，每隔一星期他们就把我抓起来，想送我进监狱。其实我也可能就会离开或者开派对之类。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
 
-但为了我的使命，责任，义务，当我死的时候，为了我从上帝、 从我的父母亲、从我的家庭、从我的国家、从我的教育、从我的信仰、从我的周围······这一切所赋予给我的各样恩赐，我能问心无愧。
+总编：飞虹
 
-也非常有幸，在年轻的时候去到中国，我爱上这个国家，爱上这些人民。
+编辑：文特/雪梨
 
-所以当面对所有的这些艰难，这些不开心时，都无关紧要。 紧要的是：坚守，坚守已制定的计划，我们要推翻中共Take down the CCP。
+校正/发稿：浪迹天涯
 
-*发布：开智则立*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

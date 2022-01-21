@@ -2,27 +2,40 @@
 ---
 
 
-## 澳媒报道：澳国防部长评论俄乌局势兼及对中共国的担忧
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1888863/)
+## 第四针疫苗不能阻止Omicron
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1889093/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-2.jpg)来自网络截图
-澳媒最新报道，澳洲国防部长对俄罗斯在乌克兰的行动发出“警告”。这个表态是对那些同样存在“欺凌”行为的国家，如中共国表示着澳洲的国家态度。据称，国防部长彼得·达顿即将与澳洲的“英国同行会面”。目的是在“对中共国在印太地区崛起的担忧日益加剧”的前提下，“讨论加强防务关系”。根据报道，澳洲国防部长认为，在当下“英澳关系对该地区至关重要”。
+作者：加拿大温哥华扬帆农场Spirit
 
-来自报道引用澳洲国防部长的发言，“如果我们（澳洲）能够将强大的朋友聚集在一起，我认为我们可以阻止恶霸和可能试图伤害一个国家的人”。同时“据我们（澳洲）所知，英国的家庭，他们是可靠的合作伙伴。我们与他们并肩作战了几代人”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
-此外，文章引用国防部长的观点，对俄罗斯在乌克兰的战争“猛烈抨击”。他认为，“当你看到俄罗斯以他们的方式行事时，它会影响整个世界，它会鼓励其他警察和其他独裁政权也这样做”。他补充说道，这样的行径会发生，“特别是如果没有来自世界其他地方的阻力”。而澳洲正在“随时待命，以支持英国阻止（俄罗斯）侵略行为”。
 
-综上所述，笔者认为，这是澳洲继续和它的西方盟国，以及英联邦利益共同体在其国家价值观和长远利益上的转向以及必然表态。从这里，我们可以看出，首先，澳洲从俄罗斯对乌克兰的做法，看到的是其他独裁政权有可能的效仿。这里不言而喻，谁是那些独裁政权呢，当然中共国是其中之一。而且，毫不夸张地说，中共国政权是首当其冲，对澳洲有着非常巨大的冲击和影响的独裁政府。
 
-从笔者的角度来说，澳洲以对俄罗斯的立场和表态，是另外一种对中共国有可能挑起亚太战争危机的警告。也就是说，澳洲选择和西方盟国，欧洲盟友站在一起，不会对中共国有可能的任何战争举动听之任之。进一步来看，澳洲国防部长的表态极为明确，澳洲国家的价值观和长远利益是和它的西方盟友们一致的；任何有损于澳洲国家利益的其他国家的挑衅和侵略性行为，都是澳洲所不会袖手旁观的。
 
-对于一个在澳洲的华人来说，这是我们乐意看到的一个对中共国的立场和态度；对于爆料革命战友来说，我们也很赞成澳洲在这样的关键事务上拥有自己的明确选择，道义行使。希望澳洲能够站稳脚跟，继续从自己的国家利益和正义出发维护自己的国家共同价值。当然，我们由此也更加看到中共国必将面临一个一旦伺机发起战争，必然招致国际社会全面反对的环境和氛围。
 
-参考消息：
+根据《国会山报》1月17日报道，以色列的一项初步研究第四针COVID疫苗不足以防止Omicron的感染。 据路透社报道，Sheba医疗中心传染病科主任Gili Regev-Yochay说，该试验研究了辉瑞公司两周后的强化剂和Moderna公司一周后的强化剂的效果。结果表明第四针所增加的抗体”可能对Omicron来说是不够的”。
 
-[Peter Dutton lashes out at Russia and China amid concerns of invasion](https://www.perthnow.com.au/business/peter-dutton-lashes-out-at-russia-and-china-amid-concerns-of-invasion-c-5389287)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+以色列在整个大流行病期间带头推动疫苗接种，是第一个为本国公民提供加强针的国家。尽管走到了疫苗接种前列，以色列本月早些时候报告了近12,000个新增COVID病例，这是自大流行病开始以来每日病例最高数字。
+
+不知要打到第几针的时候民众才能觉醒，疫苗无效有害。事实表明接种率高的国家疫情更严重。
+
+
+
+参考链接：
+
+[https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron](https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

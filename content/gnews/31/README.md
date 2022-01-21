@@ -2,39 +2,49 @@
 ---
 
 
-## 四分之一奥米克戎病人出现脑雾症状
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1888160/)
+## 北京四天新增9例阳性， 房山区出现聚集疫情
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888681/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+作者：纽约香草山教育部-Noemi
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)
-
-图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-20.jpg)
 
 
-**整理：Eileen（围剿维尼熊）
-编辑：小红帽 **
 
-据《联合新闻网》1月20日报道，奥米克戎（Omicron）肆虐全球，不少专家认为奥米克戎不会导致重症，可以将其视为流感或者感冒，至于是否会留下后遗症，仍有待商榷。
 
-最新研究指出，约四分之一的奥米克戎病人出现“脑雾”症状，严重时可能影响工作能力、日常生活的专注度和记忆力等。
+![](https://n.sinaimg.cn/news/crawl/103/w550h353/20220118/3635-835456a386c00025d7b78eb433060d44.jpg)（图片来自新浪网）
 
-一个英国应用程式“ZOE新型冠状病毒疾病症状研究”（ZOE COVID Symptom Study）整理出奥米克戎症状除了流鼻水、头痛、疲劳、打喷嚏等感冒症状外，还发现每四个人当中，就有一人出现脑雾症状。
 
-脑雾会出现失忆、思维混乱、注意力无法集中、头晕和健忘等症状。有康复者表示脑雾影响了其工作状态和日常生活。
+当地时间1月19日，墙内媒体报道称，北京市今日新增5例本土阳性，其中房山区某地出现聚集性病例。据了解，确诊4人为同一单位冷库装卸工，另1人为同住密接，一同从事冷库装卸工作。
 
-纽约一项最新研究指，脑雾症状平均会持续约7个月，而且不分年龄且恐影响深远。
+截至目前，北京市在四天内已连续出现9例阳性感染者，感染病例中同时检出了奥密克戎变种与德尔塔变种。海淀区、朝阳区、房山区、丰台区相继都出现了新增本土确诊病例和核酸检测阳性者。
 
-新闻链接：[Omicron多輕症沒在怕？四分之一染疫者出現「腦霧」症狀](https://udn.com/news/story/121707/6046770?from=udn-catelistnews_ch2)
+有相关人士透露，北京此次疫情的源头并不唯一甚至尚不明确，在近期内存在大概率的爆发风险。中共劳民伤财搞的北京冬奥会不会受到影响，成为外界关注的焦点问题。
 
-*发布：**盘古相聚*
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+参考链接：
+
+[https://news.sina.com.cn/c/2022-01-18/doc-ikyamrmz5955557.shtml](https://news.sina.com.cn/c/2022-01-18/doc-ikyamrmz5955557.shtml) [https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6167269.shtml](https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6167269.shtml) [https://news.sina.com.cn/c/2022-01-19/doc-ikyakumy1372298.shtml](https://news.sina.com.cn/c/2022-01-19/doc-ikyakumy1372298.shtml) [https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6199012.shtml](https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6199012.shtml)
+
+
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+
+
 
  
 
