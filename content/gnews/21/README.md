@@ -2,32 +2,43 @@
 ---
 
 
-## 中共警告各国运动员谨慎言论
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889141/)
+## 美奥委会：为免监控，建议运动员不要携带个人手机参加冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1889167/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1660.png)
-此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
+#### **撰稿：**日本东京方舟农场  老孙
 
-链接：[China Warns Olympic Athletes Over “Any Speech” Contrary To Chinese Laws](http://zububrothers.com/2022/01/19/china-warns-olympic-athletes-over-any-speech-contrary-to-chinese-laws/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8146FDFE-4E14-4B88-9CC2-7382410C814A.jpeg)（图片取自法新社）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
+1月20日外媒报道，美国奥委会建议美国运动员不要带自己的手机参加北京冬奥会，并建议运动员使用抛弃式手机，同时随时留意网络安全，避免遭中共政府监控。
 
-总编：飞虹
+美国奥委会发出与往届奥运会不同的指南与建议，而以往只建议运动员遵守当地法规并尊重主办国的文化而已。美国奥委会指出：中共政府大规模监控国内人民，审查社交媒体文章，每个数码设备、通话、短消息和网络活动都可能被监控，设备可能遭恶意软件破解，对未来使用造成负面影响。
 
-编辑：文特/雪梨
+中共政府为北京冬奥会开发了手机APP冬奥通（My2022），规定所有参加冬奥会的代表团成员及媒体必须使用该APP，不过却于近日被国外研究机构发现具有严重的信息安全漏洞。
 
-校正/发稿：浪迹天涯
+为了避免遭中共政府监控，已有多国奥委会呼吁代表团成员参加冬奥时不要携带私人手机。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
+加拿大奥委会表示，北京冬奥会是网络犯罪的大好时机，建议相关人员谨慎留意，保障个人信息安全 。
+
+英国奥委会也颁布数码设备使用建议，让出席人员自行选择。
+
+荷兰当局则表示，会发抛弃式手机给代表团，并在返回荷兰后销毁。
+
+与此同时，德国、比利时等国也发出类似建议。
+
+*参考链接：*
+
+1. [*避免遭中國監控 多國政府勸冬奧運動員「別帶私人手機」*](https://news.ltn.com.tw/news/world/breakingnews/3806907)
+2. [*避免遭中国政府监控 美国奥委会建议运动员不要带手机参加北京冬奥会*](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E9%81%BF%E5%85%8D%E9%81%AD%E4%B8%AD%E5%9B%BD%E6%94%BF%E5%BA%9C%E7%9B%91%E6%8E%A7-%E7%BE%8E%E5%9B%BD%E5%A5%A5%E5%A7%94%E4%BC%9A%E5%BB%BA%E8%AE%AE%E8%BF%90%E5%8A%A8%E5%91%98%E4%B8%8D%E8%A6%81%E5%B8%A6%E6%89%8B%E6%9C%BA%E5%8F%82%E5%8A%A0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A)
+
+
+* * *
+
+*素材采编：老孙*
+
+*编辑： 文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

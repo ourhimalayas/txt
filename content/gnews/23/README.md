@@ -2,31 +2,32 @@
 ---
 
 
-## 英国首相：英格兰即将终止强制接种疫苗政策
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1889129/)
+## 中共警告各国运动员谨慎言论
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889141/)
 
-#### 撰稿：日本东京方舟农场  海星
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
+1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1660.png)
+此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1FEED9C3-B6D2-4354-8032-47464380AB68.jpeg)（图片来源：路透社）
+链接：[China Warns Olympic Athletes Over “Any Speech” Contrary To Chinese Laws](http://zububrothers.com/2022/01/19/china-warns-olympic-athletes-over-any-speech-contrary-to-chinese-laws/)
 
-1月19日，英国首相鲍里斯·约翰逊(Boris Johnso)在国会上宣布，英格兰即将终止强制疫苗政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
 
-据盖特（gettr）盖友郭文贵先生发布的视频显示，英国首相约翰逊在当天的国会上表示，考虑到非比寻常的疫苗加强针运动以及民众对强制接种疫苗的反应，从1月27日开始，将终止在英格兰实施的强制接种疫苗政策。该决定受到在场众议员的广泛支持。
+总编：飞虹
 
-约翰逊补充说，从现在开始，民众已无需在家工作，也不必在任何地方戴口罩。同时他强调说，任何选择不戴口罩的人将不会再被定罪。
+编辑：文特/雪梨
 
-此外，约翰逊表示，对于感染中共病毒的患者，目前自我隔离措施仍然是一项法律要求，不过政府计划于3月24日或提前结束该措施。今后政府将以建议的方式引导民众防范病毒而非强制实施防疫措施。
+校正/发稿：浪迹天涯
 
-*参考链接：[https://gettr.com/post/ppi6jd7f36](https://gettr.com/post/ppi6jd7f36)*
-
-* * *
-
-*素材采编：海星*
-
-*编辑：文顺*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,26 @@
 ---
 
 
-## 在卡车司机的反击下，加拿大独裁者改变了对卡车司机打疫苗的强制要求
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1889182/)
+## 巴基斯坦总理伊姆兰·汗隐瞒虚报外国资金引批评
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889215/)
 
-翻译/整理：阿娜
+#### 撰稿：彩虹
 
-特鲁多和加拿大政府已经被加拿大的卡车司机们送上了一个巨大的礼物，他们拒绝配合该国可笑的疫苗强制任务。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-11.jpg)图片来源：NDTV
+1月6日，《印度教徒报》发表文章，报道巴基斯坦总理伊姆兰·汗（Imran Khan）在执政的正义运动党（Tehreek-i-Insaf party）的国外资金中被查出存在“欺诈行为”。
 
-加拿大政府正在撤销他们对卡车司机的新冠疫苗授权。
+自2019年11月，巴基斯坦前总理纳瓦兹·谢里夫（Nawaz Sharif）因腐败案在拉合尔的科特·拉赫帕特（Kot Lakhpat）监狱服刑七年。在拉合尔高等法院批准他保释四周后，他已经去了伦敦，一直居住在英国，进行自我流放，以便在国外接受治疗。
 
-他们是否开始意识到，强制规定是行不通的？
+根据报道，巴基斯坦选举委员会的一份报告显示，正义运动党在2009-2010财年和2012-2013财年的四年时间里，少报了3.12亿巴基斯坦卢比（约177万美元）。按年份划分的细节显示，仅在2012-2013财政年度就少报了超过1.45亿巴基斯坦卢比（约82万美元）的金额。
 
+对此，前总理纳瓦兹·谢里夫称，这说明伊姆兰·汗是一位“腐败和不诚实的政治骗子”。
 
+重点值得关注的是，谢里夫先生说，选举委员会的报告现在只是揭露了伊姆兰·汗总理和正义运动党，但当他们不得不说出他们从谁那里拿了钱以及在哪里花了钱时，会发生什么？
 
-这对热爱自由的加拿大人来说是一个非常好的消息。
+**新闻来源**
 
-对笔者来说，卡车运输业包括个人会反击这种荒谬的政府过度行为并不奇怪。
-
-加拿大政府最后决定，不值得冒着整个卡车运输业关闭的风险来强迫接种。
-
-显然，加拿大渥太华仍将要求卡车司机接受免疫接种（90%的卡车司机已经接种），否则他们的卡车将被拒绝运行。目前加拿大仍然禁止未接种疫苗的美国卡车司机。
-
-我猜他们在冰冷的北方不需要食物。
-
-周围的人都需要从这些卡车司机和像西南航空公司的飞行员（的做法）得到一些启示。那就是如果每个人，甚至大多数人，都站出来，政府就不能强迫任何人遵守这些强制的规定。不管是打过疫苗的还是没有打过疫苗的。
-
-很高兴看到劳动者赢得了一场胜利。
-
-消息来源：[https://notthebee.com/article/victory-for-the-canadian-working-class-canada-reverses-course-on-vaccine-mandate-for-truckers-after-pushback-from-drivers](https://notthebee.com/article/victory-for-the-canadian-working-class-canada-reverses-course-on-vaccine-mandate-for-truckers-after-pushback-from-drivers)
-
-* * *
-
-原作者: Harris Rigby
+[Pakistan’s PM has been exposed as ‘corrupt and dishonest con man’: Nawaz Sharif](https://www.thehindu.com/news/international/pakistans-pm-has-been-exposed-as-corrupt-and-dishonest-con-man-nawaz-sharif/article38152377.ece/amp/)
 
  
 
