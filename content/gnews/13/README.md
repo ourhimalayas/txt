@@ -2,37 +2,39 @@
 ---
 
 
-## 日本国会数据再次印证疫苗无效
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1890239/)
+## 有声|美国以国家安全为由审查阿里巴巴云业务
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1890304/)
 
-作者：日本方舟农场 – Andy5
+配音：香草山农场 – 纳米
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月19日，日本国会对防疫政策进行了最新一轮听证答辩。日本经济再生大臣山际大志郎公布日本官方数据，在感染奥密克戎变种并且有临床研究数据的191例感染病例之中，有145例是已经接种2剂疫苗的患者，占总数的75.9%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-19.jpg)
-受此影响，日本政府在19日宣布暂停实施《疫苗接种和检查制度》。该制度是去年11月颁布的，只针对已接种人群以及核酸检测呈阴性人群，解除了一部分外出限制。该制度的叫停意味着日本将对所有国民实施统一的相关政策，不区分他们是否接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月18日，外媒称有知情人士透露，拜登政府正在审查中共电子商务巨头阿里巴巴的云业务，以确认它是否对美国国家安全构成风险。此次调查的重点是阿里巴巴如何存储美国客户的数据，包括个人信息和知识产权，以及中共政府是否可以访问这些数据。
 
-分析人士指出，日本公布的临床数据已经再次证明现阶段的所谓疫苗对病毒无效，幸运的是日本政府及时根据这些数据做出了调整。
+报道称，美国监管机构最终可能会选择强制该公司采取措施降低云业务带来的风险，或者禁止国内外美国人使用该服务。
 
-参考链接：
-1) . [20220118-19日本媒體FNN和ANN](https://www.gettr.com/post/ppes9vaf4b)
-2) . [国民の仕事や生活の安定・安心を支える日常生活の回復](https://corona.go.jp/package/)
+对阿里巴巴云业务的调查是由美国商务部“情报和安全办公室”主导的。该办公室由川普政府创建，主要负责禁止或限制美国公司与来自中共国、俄罗斯、古巴、伊朗、朝鲜和委内瑞拉等“境外敌对”国家的互联网、电信和科技公司之间进行交易。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+文字版原文：[美国以国家安全为由审查阿里巴巴云业务](https://gnews.org/zh-hans/1883198/)
 
-总编: Irene木木
-编辑：飞虹
-校正/发稿：Fei797
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

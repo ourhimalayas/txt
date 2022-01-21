@@ -2,49 +2,16 @@
 ---
 
 
-## 民主党大额捐助者称“没人关心”中共在新疆的种族灭绝
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1889998/)
+## 疫苗政策情况更新
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1890047/)
 
-**编译：Jenny Ball**
+——文贵大直播20220121
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip14-5.png)查马斯·帕里哈皮蒂亚
-Mike Windle/Getty Images 为《名利场》拍摄的照片
+撰稿：白子/童媚/Tina（澳喜）文金欠（香草山）不着急（文复）（意农）
 
-亿万富翁，风险投资家查马斯·帕里哈皮蒂亚（Chamath Palihapitiya）向民主党政治基金捐赠了数十万美元，并且是一支 NBA 球队的部分所有者，他在周末表示，“没有人关心”在中共政权下被关进集中营，被强奸和强制绝育的穆斯林维吾尔人的困境。此话一出，引起了广泛批评。
-
-尽管这位亿万富翁捐赠者在面临相当大的反对后试图退出评论，但批评者认为他的“澄清评论”还不够。
-
-“没有人关心维吾尔人的遭遇，”帕里哈皮蒂亚在周六的播客“大家来”(All-In)节目中说， “你提出这个问题是因为你真的很在乎，我认为你在乎这很好，我们其他人都不在乎。 我告诉你一个非常残酷、丑陋的事实，好吗？ 在我关心的所有事情中，是的，它都不在我的考虑范畴。”
-
-总部位于华盛顿特区的智库美国外交政策委员会的印度太平洋研究研究员迈克尔·索博利克，在 1 月 17 日的推文中强调了帕里哈皮蒂亚的评论，并指出“他的这番活，是他从此走下坡路的开始”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip13-2.png)
-
-在播客期间，帕里哈皮蒂亚暗示迫害维吾尔人“可能不是真的”，据报道称，维吾尔人遭到系统性强奸、强制绝育，并被关押在集中营中，在中共监控下接受再教育。实际上这样的待遇是事实。
-
-他的评论是中共政府自己的断言，即酷刑和种族灭绝的说法是“谎言和荒谬的指控”，这引起了人们的关注。
-
-《华盛顿自由灯塔》指出，帕里哈皮蒂亚进一步阐述了中共的谈话要点，称“他‘不确定’”中国是否真的是“野蛮独裁”，美国没有能力在人权问题上对中共进行训诫 。”
-
-这位亿万富翁的言论迅速引起了政治两党的强烈反对，由于他的企业和政治关系，他的言论被认为特别令人震惊。
-
-该媒体指出，帕里哈皮蒂亚“与拜登政府有着深厚的联系”，因为“国务卿安东尼·布林肯和美国国际开发署署长萨曼莎·鲍尔在加入拜登政府之前，曾担任帕里哈皮蒂亚的风险投资公司“社会资本” (Social Capital)的顾问。 ”
-
-与此同时，据报道，帕里哈皮蒂亚已向参议院多数党领袖查克·舒默的政治行动委员会斥资 75 万美元，花费数万美元支持民主党全国委员会和前总统候选人希拉里·克林顿，并在 2020 年捐赠了25万美元给乔·拜登的基金。
-
-**评论**：**难道帕里哈皮蒂亚对新疆发生的种族灭绝的无知，媒体不应该承担责任吗？媒体报道过吗？不仅帕里哈皮蒂亚相信共产党的谎言，有多少美国人知道真相？所以，共产党用生化武器病毒和疫苗，把种族灭绝带到美国和西方世界的家门口。现在人们的遭遇，被封锁，被取消一切人的权利，难道和新疆少数民族的遭遇还差的远吗？也正如NBA球星坎特的质问：如果是你的女儿，姐妹，母亲被中共关在集中营遭受强奸，绝育，你还会说不在意吗？**
-
-**新闻来源**：[lifesitenews.com][Big-ticket Democrat donor says ‘nobody cares’ about China’s genocide of Uyghur Muslims](https://www.lifesitenews.com/news/big-ticket-democrat-donor-says-nobody-cares-about-chinas-genocide-of-uyghur-muslims/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
-
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-10.png)
+*发布：Theodosia*
 
  
 
