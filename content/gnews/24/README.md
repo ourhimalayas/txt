@@ -2,23 +2,27 @@
 ---
 
 
-## 加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1890167/)
+## 日本国会数据再次印证疫苗无效
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1890239/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：日本方舟农场 – Andy5
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据媒体报道，加拿大因未接种疫苗而被解雇的员工提起的诉讼已经堆积如山。 多伦多就业律师，图马金律所联合创始人利奥·桑菲鲁表示，从业20年，从未见过在这么短时间内处理同一问题的案子。仅他的律所就代理了来自加拿大各地的数百名委托人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-27.jpg)
-去年11月，TTC员工工会要求法官停止交通委员会的疫苗政策，称解雇未接种疫苗员工，会导致服务中断，但遭到法官拒绝。桑菲鲁说，雇主有权解雇员工，但只有在雇员犯有 “重大不当行为 “时，才能免于支付遣散费，而 “不接种疫苗”根本不属于这一类。很多雇主还没有意识到，他们不但要面临巨大的诉讼成本，还可能面对“不当解雇”而导致的巨额赔付。
 
-相关评论指出，从越来越多的因未接种疫苗而被解雇的员工发起诉讼来看，很多沉默的人已经开始起来并对疫苗强制政策进行反击。
+1月19日，日本国会对防疫政策进行了最新一轮听证答辩。日本经济再生大臣山际大志郎公布日本官方数据，在感染奥密克戎变种并且有临床研究数据的191例感染病例之中，有145例是已经接种2剂疫苗的患者，占总数的75.9%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-19.jpg)
+受此影响，日本政府在19日宣布暂停实施《疫苗接种和检查制度》。该制度是去年11月颁布的，只针对已接种人群以及核酸检测呈阴性人群，解除了一部分外出限制。该制度的叫停意味着日本将对所有国民实施统一的相关政策，不区分他们是否接种了疫苗。
 
-参考链接：[As unvaccinated workers sue for wrongful dismissal, Ottawa working on shielding employers](https://globalnews.ca/news/8523534/covid-omicron-vaccine-mandate-lawsuit-employer-trudeau/?utm_source=%40globalnews&amp;utm_medium=Twitter)
+分析人士指出，日本公布的临床数据已经再次证明现阶段的所谓疫苗对病毒无效，幸运的是日本政府及时根据这些数据做出了调整。
+
+参考链接：
+1) . [20220118-19日本媒體FNN和ANN](https://www.gettr.com/post/ppes9vaf4b)
+2) . [国民の仕事や生活の安定・安心を支える日常生活の回復](https://corona.go.jp/package/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-总编: Ivy001
-编辑： 百香果
+总编: Irene木木
+编辑：飞虹
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
@@ -28,7 +32,7 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
- 
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
