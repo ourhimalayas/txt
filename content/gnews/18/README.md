@@ -2,22 +2,24 @@
 ---
 
 
-## 中共警告各国运动员谨慎言论
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889141/)
+## NBC表示不会派遣现场体育播报团队参加北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889168/)
 
 撰稿：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1660.png)
-此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
+由于中共病毒的影响，NBC体育于1月19日宣布，将不会派驻现场体育播报团队参加北京冬奥会。花样滑冰、高山滑雪和单板滑雪的电视转播将因此受到影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1666.png)
+NBC的负责人在接受采访时表示，主持人将会参与冬奥会开幕式和冬奥会前几天的报导工作，并将于2月13日返回美国洛杉矶主持其他体育赛事。
 
-链接：[China Warns Olympic Athletes Over “Any Speech” Contrary To Chinese Laws](http://zububrothers.com/2022/01/19/china-warns-olympic-athletes-over-any-speech-contrary-to-chinese-laws/)
+据内部人士透露，鉴于中共的清零强制政策，NBC表示毫无控制权，因此，一些最受欢迎体育项目的现场播报也将被取消。
+
+新闻来源：
+
+[https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/](https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
 
 总编：飞虹
-
-编辑：文特/雪梨
 
 校正/发稿：浪迹天涯
 

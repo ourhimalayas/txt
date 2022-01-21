@@ -2,34 +2,39 @@
 ---
 
 
-## NBC表示不会派遣现场体育播报团队参加北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889168/)
+## 在卡车司机的反击下，加拿大独裁者改变了对卡车司机打疫苗的强制要求
+` Itana` [轉載自GNews](https://gnews.org/zh-hans/1889182/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-由于中共病毒的影响，NBC体育于1月19日宣布，将不会派驻现场体育播报团队参加北京冬奥会。花样滑冰、高山滑雪和单板滑雪的电视转播将因此受到影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1666.png)
-NBC的负责人在接受采访时表示，主持人将会参与冬奥会开幕式和冬奥会前几天的报导工作，并将于2月13日返回美国洛杉矶主持其他体育赛事。
+翻译/整理：阿娜
 
-据内部人士透露，鉴于中共的清零强制政策，NBC表示毫无控制权，因此，一些最受欢迎体育项目的现场播报也将被取消。
+特鲁多和加拿大政府已经被加拿大的卡车司机们送上了一个巨大的礼物，他们拒绝配合该国可笑的疫苗强制任务。
 
-新闻来源：
+加拿大政府正在撤销他们对卡车司机的新冠疫苗授权。
 
-[https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/](https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/)
+他们是否开始意识到，强制规定是行不通的？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
 
-总编：飞虹
 
-校正/发稿：浪迹天涯
+这对热爱自由的加拿大人来说是一个非常好的消息。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
+对笔者来说，卡车运输业包括个人会反击这种荒谬的政府过度行为并不奇怪。
+
+加拿大政府最后决定，不值得冒着整个卡车运输业关闭的风险来强迫接种。
+
+显然，加拿大渥太华仍将要求卡车司机接受免疫接种（90%的卡车司机已经接种），否则他们的卡车将被拒绝运行。目前加拿大仍然禁止未接种疫苗的美国卡车司机。
+
+我猜他们在冰冷的北方不需要食物。
+
+周围的人都需要从这些卡车司机和像西南航空公司的飞行员（的做法）得到一些启示。那就是如果每个人，甚至大多数人，都站出来，政府就不能强迫任何人遵守这些强制的规定。不管是打过疫苗的还是没有打过疫苗的。
+
+很高兴看到劳动者赢得了一场胜利。
+
+消息来源：[https://notthebee.com/article/victory-for-the-canadian-working-class-canada-reverses-course-on-vaccine-mandate-for-truckers-after-pushback-from-drivers](https://notthebee.com/article/victory-for-the-canadian-working-class-canada-reverses-course-on-vaccine-mandate-for-truckers-after-pushback-from-drivers)
+
+* * *
+
+原作者: Harris Rigby
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

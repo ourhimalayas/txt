@@ -2,29 +2,24 @@
 ---
 
 
-## 大直播后记：共产主义源自共济会
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889269/)
+## ESPN宣布不派遣新闻人员参与北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889281/)
 
-整理：雅典娜速记组
-编辑：Rianna
+#### 撰稿：彩虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/DXKC8QFQ1JT@HEED41.png)图片来源：雅典娜设计组（614）
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-19.jpg)图片来源：MSN
+ESPN（Entertainment Sports Programming Network，娱乐与体育节目电视网）是一间24小时专门播放体育节目的美国有线电视联播网，ESPN及ESPN国际在美国9000万家庭和全球147个国家可以收看。
 
+1月20日，《国会山报》报道，周四，ESPN发布声明，出于对中共病毒（COVID-19）的担忧和与疫情有关的限制，表示将不会向北京冬奥会派遣新闻人员。
 
-列宁来自哪里？马克思来自哪里？ 恩格斯来自哪里？马克思、恩格斯、列宁所谓的共产主义来自哪里？爱因斯坦来自哪里（注：此4人均是共济会会员，德国犹太撒旦食人文化派系）？你到伦敦去，马克思在图书馆里边坐着看书的那个木头椅子上，由于生殖器够大，把那个木头上硌个出一大坑出来。估计这哥们得有一米长才能这么样。什么叫邪教的六个基础：个人崇拜、编造邪说、金钱控制、精神控制和反人类行为。编造邪说，谁的生殖器能那么大？（注：编造男性阳具是魔教炼金术、黑魔法巫术精神控制一种）坐这个木头椅子上，郭文贵说我这下边布料都没有硌出个窟窿，任何人都不可能。从大英博物馆、图书馆就开始编这些邪说。
+文章说，ESPN原计划向中国派出四名记者，但这些记者现在将加入远程奥运报道。
 
-斯大林、恩格斯来的地方现在还允许谈斯大林吗？还可以谈恩格斯吗？还可以再谈列宁吗？他出生的地方，他的国家都把他视为邪恶和虚假，邪教。但是这六条：财富，编造邪说，个人崇拜，反社会，反人类，统治全人类，搞神秘的迷信主义，这不就是共产党吗！共产党、达沃斯追求宗旨是一样的，所以达沃斯人认可社会主义，认可共产主义。所谓的达沃斯思想和共产主义思想，就是封建社会，过去的奴才、奴隶主和所谓的马克思、恩格斯、列宁来的地方，包括很多犹太民族过去诞生的各种宗教，还有共济会，你知道的各种会都是邪恶的，这些背后的沼泽地其中的一个分支。
+ESPN的执行副总裁诺比·威廉森（Norby Williamson）一份声明中说：“对我们来说，员工的安全是最重要的。随着（中共病毒）疫情继续成为一个全球性的威胁，以及与中共病毒（COVID）有关的现场限制，在奥运会上将使报道变得非常具有挑战性，我们认为让员工留在家里是对我们最好的决定”。
 
-那你说沼泽地是什么？沼泽地就可以让律师、让所有的人听他所用，统治法律，制造法律，制造正义——这叫做沼泽地。
+**新闻来源**
 
-资料来源：郭先生GTV和盖特直播视频。
-
-发布：  tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[ESPN announces it won’t send reporters to Beijing Olympics due to COVID-19](https://thehill.com/homenews/media/590712-espn-announce-it-wont-send-reporters-to-beijing-olympics-due-to-covid-19)
 
  
 
