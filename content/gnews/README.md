@@ -15,152 +15,152 @@
 
 ---
 
-### [极权主义妄想疯狂横行：病毒大流行、封锁、戒严令](/content/gnews/1/README.md)
+### [中共放毒接近尾声 疫苗灾难将真正到来](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
+
+### [泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/3/README.md)
+ ` 秘密翻译组金融团队`
+
+### [英国医生说伊维菌素预防COVID死亡有效率高达62%](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [01/21/22 香港快讯 欧议会通过决议指香港侵犯自由](/content/gnews/5/README.md)
+ ` 英喜-粵語組`
+
+### [奥园集团表示不会支付债券暗示违约迫在眉睫](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“他只是想打曲棍球”辉瑞杀死了哈特曼17岁的儿子](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [极权主义妄想疯狂横行：病毒大流行、封锁、戒严令](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [民主党大额捐助者称“没人关心”中共在新疆的种族灭绝](/content/gnews/2/README.md)
+### [达沃斯党就是世界的共产党](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [民主党大额捐助者称“没人关心”中共在新疆的种族灭绝](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【粤语配音】2022年1月19日：不要再打疫苗](/content/gnews/3/README.md)
+### [【粤语配音】2022年1月19日：不要再打疫苗](/content/gnews/11/README.md)
  ` MOS香港部`
 
-### [CDC用政治指导防疫 现在彻底逆转（1/2）](/content/gnews/4/README.md)
+### [CDC用政治指导防疫 现在彻底逆转（1/2）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [肯尼迪谈福奇如何将科学转化为大药企的宣传工具（2/2）](/content/gnews/5/README.md)
+### [肯尼迪谈福奇如何将科学转化为大药企的宣传工具（2/2）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1.19大直播后记：排华、排亚裔是七哥最担心的事情](/content/gnews/6/README.md)
+### [1.19大直播后记：排华、排亚裔是七哥最担心的事情](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [请还给我们吃饭的权力！](/content/gnews/7/README.md)
+### [请还给我们吃饭的权力！](/content/gnews/15/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2020年财务记录显示，福奇投资了多家中共国公司](/content/gnews/8/README.md)
+### [2020年财务记录显示，福奇投资了多家中共国公司](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [CDC用政治指导防疫 现在彻底逆转（2/2）](/content/gnews/9/README.md)
+### [CDC用政治指导防疫 现在彻底逆转（2/2）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日美发表NPT联合声明呼吁中共国核透明](/content/gnews/10/README.md)
+### [日美发表NPT联合声明呼吁中共国核透明](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵天成——文贵先生谈“曾庆红”（二）](/content/gnews/11/README.md)
+### [文贵天成——文贵先生谈“曾庆红”（二）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年1月19日：什么是达沃斯？](/content/gnews/12/README.md)
+### [【粤语配音】2022年1月19日：什么是达沃斯？](/content/gnews/20/README.md)
  ` MOS香港部`
 
-### [历史上的今天 2022.1.21](/content/gnews/13/README.md)
+### [历史上的今天 2022.1.21](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [自然免疫力优于针对Delta病毒变种的疫苗](/content/gnews/14/README.md)
+### [自然免疫力优于针对Delta病毒变种的疫苗](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵天成——文贵先生谈“曾庆红”（一）](/content/gnews/15/README.md)
+### [文贵天成——文贵先生谈“曾庆红”（一）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾政府希望美国尽快交付新型F-16战斗机](/content/gnews/16/README.md)
+### [台湾政府希望美国尽快交付新型F-16战斗机](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英媒：美国设法加速向台湾交付新战机](/content/gnews/17/README.md)
+### [英媒：美国设法加速向台湾交付新战机](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墓碑技术墓碑文明](/content/gnews/18/README.md)
+### [墓碑技术墓碑文明](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [慎重参加反疫苗活动](/content/gnews/19/README.md)
+### [慎重参加反疫苗活动](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [第一个为所有成年人引入强制性疫苗的欧洲国家](/content/gnews/20/README.md)
+### [第一个为所有成年人引入强制性疫苗的欧洲国家](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [港府把专家和药厂当盾牌 称为儿童注射负责](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国房企中国奥园美元债违约](/content/gnews/22/README.md)
+### [中国房企中国奥园美元债违约](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灭共第二十夜 中共间谍Isobel Yeung](/content/gnews/23/README.md)
+### [灭共第二十夜 中共间谍Isobel Yeung](/content/gnews/30/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：莫迪参加达沃斯，中印边境争端做交易！](/content/gnews/24/README.md)
+### [秘翻在线：莫迪参加达沃斯，中印边境争端做交易！](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墓碑技术墓碑文明](/content/gnews/25/README.md)
+### [墓碑技术墓碑文明](/content/gnews/32/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦改变我们](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [1/12文贵直播：雷·达利奥等跟中共沆瀣一气在全球推行的“共享财富”就是共产主义（粤语配音）](/content/gnews/27/README.md)
+### [1/12文贵直播：雷·达利奥等跟中共沆瀣一气在全球推行的“共享财富”就是共产主义（粤语配音）](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/12文贵直播：中共在全球制造排华（粤语配音）](/content/gnews/28/README.md)
+### [1/12文贵直播：中共在全球制造排华（粤语配音）](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/12文贵直播：中共假借封城之机搞“共享财富”（粤语配音）](/content/gnews/29/README.md)
+### [1/12文贵直播：中共假借封城之机搞“共享财富”（粤语配音）](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [伊朗、中共国和俄罗斯举行第三次联合海军演习](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：中共主动示好 美国企图取消惩罚关税](/content/gnews/31/README.md)
+### [秘翻在线：中共主动示好 美国企图取消惩罚关税](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [01/21每日播报｜美国将加速向台湾交付新战斗机以应对中共威胁](/content/gnews/32/README.md)
+### [01/21每日播报｜美国将加速向台湾交付新战斗机以应对中共威胁](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [共匪统治下的乱世一角](/content/gnews/33/README.md)
- ` 纽约香草山MOS03`
-
-### [2022/01/20 墙内世界](/content/gnews/34/README.md)
+### [2022/01/20 墙内世界](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [后“疫情”时代](/content/gnews/35/README.md)
+### [后“疫情”时代](/content/gnews/39/README.md)
  ` 银河勇气之星`
 
-### [欧洲各地的安检设备中共政府和军队有牵连](/content/gnews/36/README.md)
+### [欧洲各地的安检设备中共政府和军队有牵连](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [参议院司法委员会批准针对大型科技公司的反垄断法案](/content/gnews/37/README.md)
+### [参议院司法委员会批准针对大型科技公司的反垄断法案](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [01/21每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/38/README.md)
+### [01/21每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [区块链为什么如此受欢迎（NFT篇2）](/content/gnews/39/README.md)
+### [区块链为什么如此受欢迎（NFT篇2）](/content/gnews/43/README.md)
  ` 骄子`
 
-### [区块链为什么如此受欢迎（NFT篇1）](/content/gnews/40/README.md)
+### [区块链为什么如此受欢迎（NFT篇1）](/content/gnews/44/README.md)
  ` 骄子`
 
-### [美国上周近百万儿童感染中共病毒，中国产KN95口罩价格昂贵](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [大直播后记：喜币将摧毁达沃斯论坛](/content/gnews/42/README.md)
- ` 雅典娜GNotes`
-
-### [欧洲议会谴责香港自由恶化 呼吁制裁官员并抵制北京冬奥](/content/gnews/43/README.md)
+### [欧洲议会谴责香港自由恶化 呼吁制裁官员并抵制北京冬奥](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
 
-### [瑞幸咖啡计划重新在美上市](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
-
-### [法国议会高票通过‘维吾尔族决议案’ 认定中共涉种族灭绝](/content/gnews/45/README.md)
+### [法国议会高票通过‘维吾尔族决议案’ 认定中共涉种族灭绝](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
 
-### [01/21每日播报｜新闻简讯 : 世卫组织敦促取消旅行禁令 欧洲吁制裁香港官员并抵制北京冬奥](/content/gnews/46/README.md)
+### [01/21每日播报｜新闻简讯 : 世卫组织敦促取消旅行禁令 欧洲吁制裁香港官员并抵制北京冬奥](/content/gnews/47/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共威胁加剧 美国将加快向台湾交付新一代F16战机](/content/gnews/47/README.md)
+### [中共威胁加剧 美国将加快向台湾交付新一代F16战机](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [捷克新政府废除中共病毒疫苗强制计划](/content/gnews/48/README.md)
+### [捷克新政府废除中共病毒疫苗强制计划](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [浅谈F-15EX鹰式战斗机 – 美军为何继续开发？（下）](/content/gnews/49/README.md)
- ` 军情启示录`
 
 ### [秘翻在线:又一家千亿级企业奥园官宣“违约”，不支付到期票据本息](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
