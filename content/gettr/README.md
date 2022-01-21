@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/21/2022 2:50 AM (UTC)`
+
+Jin Canrong, a political scientist of the CCP, an expert on American issues, deputy dean of the School of International Relations of Renmin University of China, and the CCP's Internet celebrity "Politician Jin", brags that the PLA has no worthy opponent within a range of 1000 nautical miles and the CCP China can defeat the US without any doubt.<br/><br/>金灿荣，中共政治学家、美国问题专家，中国人民大学国际关系学院副院长，中共网红“金政委”吹嘘中共党卫军千里之内无对手，中国绝对打败美国。 
+![img](https://media.gettr.com/group40/getter/2022/01/21/02/1457ab3b-0cb8-9b84-0950-a6a16a3ec0a3/out.jpg)
+
+---
+
 `@miles 1/21/2022 2:31 AM (UTC)`
 
 1月20号，Hcoin To the Moon MV上线第49天位列澳门🇲🇴iTunesMV榜首🥇，累计共43次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜榜首🥇🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇,累计共41次排名第一名🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利，新西兰，老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1885308<br/><br/>Jan 20th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 49 Day of Launch, hit No .1 for 43 times in total🎉🎉🎉<br/><br/>Hit No.1 🥇 on Hungary 🇭🇺 iTunes Rock music video Chart🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Rock Song Chart, hit No.1 for 41 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, New Zealand,and Laos 🙏🙏🙏🙏🙏🙏🙏
@@ -145,13 +152,6 @@
 
 1/19/2022 Miles Guo: The Davos Forum controls various domains in the world such as legislation, finance, media, culture, police, and military as well as the people’s thoughts and actions. Xi Jinping and the Party of Davos are in cahoots, giving prescriptions to the world while releasing the CCP virus at the same time!<br/><br/>1/19/2022 文贵直播：达沃斯论坛掌控了全球的立法、金融、媒体、文化、警察和军事等方面，控制着人们的思想与行为；习近平和达沃斯党沆瀣一气，一边给世界开药方，一边放毒！
 ![img](https://media.gettr.com/group40/getter/2022/01/20/11/17886d57-08ed-ca53-e979-2f1e9455617e/out.jpg)
-
----
-
-`@miles 1/20/2022 10:13 AM (UTC)`
-
-1/19/2022 Miles Guo: None of the participants at the Davos Forum is vaccinated! The Himalaya Coin is a bright light in the darkness, it is the light that can cure a thousand years of darkness. When the New Federal State of China and the Himalaya Coin are combined as a whole, it is “the ultimate wisdom that can extinguish the ten thousand years of foolishness".<br/><br/>1/19/2022 文贵直播：参加达沃斯论坛的没人打疫苗！喜币就是黑暗中的明灯，一灯能除千年暗，而新中国联邦和喜币连在一起就是“一智能灭万年愚”！<br/>
-![img](https://media.gettr.com/group44/getter/2022/01/20/10/708f473f-3cda-f2cd-0846-522e2336fa80/out.jpg)
 
 ---
 
