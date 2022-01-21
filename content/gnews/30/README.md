@@ -2,21 +2,27 @@
 ---
 
 
-## CCP是多么的邪恶 灭共又是多么的幸福 多么的伟大
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1887206/)
+## 有声|中共控制西方法律的明证：未审先知
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1887313/)
 
-《2022年01月17日文贵大直播》节选
+配音：香草山巡管部 – 格格
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+从2017年至今，多起诬告郭先生的案子，为何熊宪民之流总能提前预知判决结果，甚至精确到具体的涉案款项，这背后的原因是什么，衍生出的深刻意义又是什么，一起来听听郭先生怎么说：
 
-你知道共产党有多邪恶，七哥多懂共产党，我太了解共产党！我感谢老天爷，让我（成为）早醒的一个人！当你看到我失去的八弟的时候，你们觉得七哥能不灭共吗？
+文字版原文：[中共控制西方法律的明证：未审先知](https://gnews.org/zh-hans/1877957/)
 
-我真的感谢，我弟弟的生命的付出，他就是来让我来成就灭共的，我就这么想。但凡你想到，你有这样的弟弟，被他们活活地开枪打了两枪，放在一个房间让他疼，疼两三天疼死的。如果你还不去灭共的话，你该当何罪呢？后来我的母亲，你们看到我母亲……，最重要的事情，在我弟弟叫喊、厮杀、痛苦的时候，我在清丰看守所，看到六十几个人被枪毙，你们是看到我八弟的脸，我真的一看到我八弟，我所有那些当着我面被枪毙的脸，都在我眼前出现。一个没有法律的人，一个没有法律的社会和国家，几乎跟地狱和魔鬼没有任何两样，甚至更(夸张)。
+音频处理：Fei797
+发稿：Fei797
 
-我真的庆幸，用我家人的命和鲜血和自由和财富，换来让我的觉醒，否则我就跟所有的中国人现在那个样子，就是炫车、炫房、炫老婆、炫孩子、吹牛，吃一肚子、喝一肚子、玩着麻将死去，生命真的不是这样子的！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-素材，剪輯，字幕：湘江之水 | 发布：文零
-
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

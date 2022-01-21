@@ -2,29 +2,24 @@
 ---
 
 
-## 有声|中共冬奥会确定不公开售票
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1887412/)
+## 免签证申请费：澳大利亚感染迅速增加，劳动力短缺严重
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887504/)
 
-配音：香草山巡管部 – 格格
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中共冬奥组委会17日发布消息指，本届冬奥会将不会面向境外观众售票，仅对境内符合疫情防控相关要求的观众售票。另外，门票的订购方式由原来的公开销售调整为定向组织，获得入场观赛资格的观众必须在观赛前、观赛中、及观赛后都严格遵守疫情防控的相关要求。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12-9.jpg)[图片来源](https://www.reuters.com/world/asia-pacific/sydney-braces-more-omicron-cases-no-lockdowns-now-2021-12-01/)
+自确认 Omicron 菌株出现社区传染以来，澳大利亚的感染人数急剧增加。随着感染人数的增加，作为密切接触者被隔离的人数也在增加，因此劳动力短缺也很严重。
 
-中共冬奥组委会发言人表示，组委会已于1月4日启动闭环管理试运行，1月23日正式闭村，27日开村，在闭环试运行期间，预计有大约 3,000 名境内外人士来华实地开展工作。
+因此，莫里森总理为背包客和其他人提供免签证申请费。
 
-文字版原文：[中共冬奥会确定不公开售票](https://gnews.org/zh-hans/1877949/)
+总理莫里森：“现在就来吧。来澳大利亚享受假期吧。同时，在农业和酒店等劳动密集型领域工作，以支持经济。”
 
-音频处理：Fei797
-发稿：Fei797
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[豪・ビザ申請費用免除　感染急増で労働力不足が深刻](https://news.yahoo.co.jp/articles/ff49d6c43f2c6944fe8534cf40756d691d7580fa)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

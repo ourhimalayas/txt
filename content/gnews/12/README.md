@@ -2,45 +2,34 @@
 ---
 
 
-## 2月2号开庭将把属于Buffalock的Lady May判成七哥的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887428/)
+## 中日财经爆┃GMO联合创始人格兰瑟姆预警股市崩盘一触即发
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887513/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e9f1eb87664c47acd79024](https://gtv.org/video/id=61e9f1eb87664c47acd79024)
+撰稿：东京樱花团/麗子
 
-**郭文贵先生**：Hold on，这不是最重要的，PAG更牛的，就像当时18楼的拥有者，是个BVI公司，这个BVI公司，法官就认为是你郭文贵控制的，所以是你的，就判了18楼归他们了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中日财经爆┃GMO联合创始人格兰瑟姆预警股市崩盘一触即发.png)
 
-这个船的公司BVI是哪呢？也是个BVI公司。
+[图片来源](https://survivingtomorrow.org/a-stock-market-crash-is-coming-and-everyone-knows-it-85299e95a988)
 
-2月2号将有一个重大的开庭，开庭什么呢？上一次你看，就这一次判定他强烈违反职业道德的时候还说到了什么？说关于Lady May的这个藐视法庭，还有一个船属不属于Miles Guo的，2月2号开庭。我的预感2月2号会判我们大输，他会判什么？让你船又是你，又是你郭文贵的了，就不是你家族的，你女儿的。然后再判什么？那个BVI公司叫Buffalock也是你Miles的。
+美国资产管理公司GMO的联合创始人杰里米·格兰瑟姆表示，他一年前预测的历史性股市崩盘目前正在发生，即使美国金融当局采取行动，最终暴跌近50%是不可避免的。他指出，几十年来，市场一直处于泡沫状态。
 
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
+20日，格兰瑟姆先生在GMO网站上发布的一份报告中称，美国股市处于“超级泡沫”状态，在过去的一个世纪中，这种泡沫只出现过四次，包括这次。 就像1929年华尔街崩盘、2000年互联网泡沫破灭、2008年金融危机一样，泡沫必将破灭，预计各大股指将跌至统计标准值或以下。
 
-编辑整理：Jacques；
+他预计标普500指数将收于2,500点。这比1月19日的收盘价低约45%，比1月初达到的高点低48%。纳斯达克综合指数本月已经下跌了8.3%，可能会继续大幅下跌。
 
-字幕文件制作：小满；
+根据他的分析，经济泡沫如今已证据确凿。第一个迹象是在去年2月，当时许多在投机性交易中买入的股票开始下跌。凯西.伍德的Ark Innovation ETF自该月以来已经下跌了52%。而通常在牛市中表现出色的罗素2000指数，在2021年表现低于标普500指数。
 
-视频制作及上传：Cindy；
+格兰瑟姆指出，市场已经存在暗示晚期泡沫的“疯狂投资者行为”。如收购电动汽车 (EV) 品牌的举措、狗狗币等没有实质意义的加密货币 (虚拟货币) 的兴起以及NFT交易的激增等。截至目前，超级泡沫所有必备条件均已显露，动荡随时可能开始。如果悲观情绪重新回到市场，我们可能会经历美国历史上最大的财富崩盘。
 
-G-News发布：小满；
+有一个市场崩塌必有一个市场如旭日东升，爆料革命的G系列无疑会成为最安全的财富避风港。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+信息来源：
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[米国株は「スーパーバブル」、暴落が進行中－ＧＭＯのグランサム氏](https://news.yahoo.co.jp/articles/d3be0c811723430c0c0e2e9774a223b87ef08180)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
