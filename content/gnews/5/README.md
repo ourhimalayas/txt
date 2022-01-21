@@ -2,32 +2,27 @@
 ---
 
 
-## 中共警告各国运动员谨慎言论
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889141/)
+## 巴基斯坦总理伊姆兰·汗隐瞒虚报外国资金引批评
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889215/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1660.png)
-此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
+#### 撰稿：彩虹
 
-链接：[China Warns Olympic Athletes Over “Any Speech” Contrary To Chinese Laws](http://zububrothers.com/2022/01/19/china-warns-olympic-athletes-over-any-speech-contrary-to-chinese-laws/)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-11.jpg)图片来源：NDTV
+1月6日，《印度教徒报》发表文章，报道巴基斯坦总理伊姆兰·汗（Imran Khan）在执政的正义运动党（Tehreek-i-Insaf party）的国外资金中被查出存在“欺诈行为”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
+自2019年11月，巴基斯坦前总理纳瓦兹·谢里夫（Nawaz Sharif）因腐败案在拉合尔的科特·拉赫帕特（Kot Lakhpat）监狱服刑七年。在拉合尔高等法院批准他保释四周后，他已经去了伦敦，一直居住在英国，进行自我流放，以便在国外接受治疗。
 
-总编：飞虹
+根据报道，巴基斯坦选举委员会的一份报告显示，正义运动党在2009-2010财年和2012-2013财年的四年时间里，少报了3.12亿巴基斯坦卢比（约177万美元）。按年份划分的细节显示，仅在2012-2013财政年度就少报了超过1.45亿巴基斯坦卢比（约82万美元）的金额。
 
-编辑：文特/雪梨
+对此，前总理纳瓦兹·谢里夫称，这说明伊姆兰·汗是一位“腐败和不诚实的政治骗子”。
 
-校正/发稿：浪迹天涯
+重点值得关注的是，谢里夫先生说，选举委员会的报告现在只是揭露了伊姆兰·汗总理和正义运动党，但当他们不得不说出他们从谁那里拿了钱以及在哪里花了钱时，会发生什么？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
+**新闻来源**
+
+[Pakistan’s PM has been exposed as ‘corrupt and dishonest con man’: Nawaz Sharif](https://www.thehindu.com/news/international/pakistans-pm-has-been-exposed-as-corrupt-and-dishonest-con-man-nawaz-sharif/article38152377.ece/amp/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

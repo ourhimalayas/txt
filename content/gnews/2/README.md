@@ -2,34 +2,19 @@
 ---
 
 
-## NBC表示不会派遣现场体育播报团队参加北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889168/)
+## 秘翻在线：法国众议院通过&#8221;中共在新疆实施种族灭绝&#8221;的决议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889233/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-由于中共病毒的影响，NBC体育于1月19日宣布，将不会派驻现场体育播报团队参加北京冬奥会。花样滑冰、高山滑雪和单板滑雪的电视转播将因此受到影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1666.png)
-NBC的负责人在接受采访时表示，主持人将会参与冬奥会开幕式和冬奥会前几天的报导工作，并将于2月13日返回美国洛杉矶主持其他体育赛事。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-30.png)（图片源自本文链接）
+TBS新闻1月21日消息：距离北京奥运会只有两个多星期了，法国众议院通过了一项决议，指责中共国在新疆维吾尔自治区进行 “种族灭绝”。
 
-据内部人士透露，鉴于中共的清零强制政策，NBC表示毫无控制权，因此，一些最受欢迎体育项目的现场播报也将被取消。
+法国众议院20日几乎全票通过的决议指出：维吾尔族的人口受到强制绝育政策的压制，孩子被带走的情况十分严重。指责中共有 “消灭维吾尔族的意图”，相当于 “种族灭绝”，要求法国政府正式承认。
 
-新闻来源：
+中共驻法国大使馆发表声明说：这是公然基于对中国的偏见和敌意的谎言。
 
-[https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/](https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/)
+信息源：[新疆ウイグル自治区で中国「ジェノサイド」 仏下院、決議採択（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/eacf9d59946bbcb941601cacd91b376444d77a7f)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
-
-总编：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

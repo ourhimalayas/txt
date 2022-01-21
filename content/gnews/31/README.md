@@ -2,49 +2,56 @@
 ---
 
 
-## 北京四天新增9例阳性， 房山区出现聚集疫情
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888681/)
+## 新西兰财经G乐部2022年1月21日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1888716/)
 
-作者：纽约香草山教育部-Noemi
+采集整理：蚂蚁的城堡
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-20.jpg)
+**提纲：**
 
+1、精华制药遭资金炒作21天14板后声明暂未向辉瑞供货，股东高管已套现
 
+2、中共交通运输部约谈提醒滴滴出行、曹操出行、T3出行、美团出行等8家新业态平台公司
 
+3、中国奥园公开违约：不谈展期，直接宣布海外债务重组
 
-![](https://n.sinaimg.cn/news/crawl/103/w550h353/20220118/3635-835456a386c00025d7b78eb433060d44.jpg)（图片来自新浪网）
+4、美联储发表官方数字美元白皮书，陈述利弊但未提出政策建议
 
+**正文**
 
-当地时间1月19日，墙内媒体报道称，北京市今日新增5例本土阳性，其中房山区某地出现聚集性病例。据了解，确诊4人为同一单位冷库装卸工，另1人为同住密接，一同从事冷库装卸工作。
+**1、精华制药遭资金炒作21天14板后声明暂未向辉瑞供货股东高管套现**
+![精华制药遭资金炒作21天14板声明暂未向辉瑞供货股东高管套现|精华制药_新浪财经_新浪网](https://n.sinaimg.cn/spider20220121/533/w800h533/20220121/416e-ce9fa72289606d3927a6853941f4b762.jpg)
+新冠肺炎疫情肆虐全球，新冠肺炎口服药备受市场关注。精华制药（002349.SZ）因此遭市场资金爆炒。1月20日，二级市场上，精华制药再度一字板涨停，股价为20.81元/股。这是近21个交易日内，精华制药收获的第14个涨停板。公司股价从6元/股涨至20.81元/股，累计涨幅为246.83%。精华制药股价大幅上涨源于“新冠口服药”概念。此前，市场传出，精华制药子公司生产、销售利托那韦系列医药中间体，并向辉瑞供货。对此，精华制药声明，暂没有直接供货。记者发现，精华制药的股价与业绩背离。去年前三季度，公司实现的扣除非经常性损益的净利润（简称扣非净利润）为0.93亿元，同比下降6.77%。此外，公司股东及董监高正在筹划高位减持套现。
 
-截至目前，北京市在四天内已连续出现9例阳性感染者，感染病例中同时检出了奥密克戎变种与德尔塔变种。海淀区、朝阳区、房山区、丰台区相继都出现了新增本土确诊病例和核酸检测阳性者。
+财经G评：发布虚假信息和澄清谣言的都是一波人！
 
-有相关人士透露，北京此次疫情的源头并不唯一甚至尚不明确，在近期内存在大概率的爆发风险。中共劳民伤财搞的北京冬奥会不会受到影响，成为外界关注的焦点问题。
+参考链接：[https://finance.sina.com.cn/stock/relnews/cn/2022-01-21/doc-ikyakumy1690395.shtml](https://finance.sina.com.cn/stock/relnews/cn/2022-01-21/doc-ikyakumy1690395.shtml)
 
+**2、中共交通运输部约谈提醒滴滴出行、曹操出行、T3出行、美团出行等8家新业态平台公司**
+![监管部门约谈满帮、货拉拉等8家货运及网约车平台-蓝鲸财经](https://img.lanjinger.com/news/20220121/113028_ojkwpmggwdnrc.jpeg@!thumb800)
+2022年1月20日上午，中共交通运输新业态协同监管部际联席会议办公室对满帮、货拉拉、滴滴货运、快狗打车等4家互联网道路货运平台公司进行约谈，对滴滴出行、曹操出行、T3出行、美团出行等4家网约车平台公司进行提醒。约谈提醒指出，近期货车司机集中反映互联网道路货运平台随意调整计价规则、上涨会员费，诱导恶性低价竞争，超限超载非法运输等问题，涉嫌侵害从业人员合法权益，引发货车司机普遍不满和社会广泛关注。约谈提醒要求，各平台公司要正视自身存在的问题，认真落实企业主体责任，举一反三，立即进行整改。
 
+财经G评：中共向来都是以行政命令替代法律（虽然中共国法律很烂），中共交通运输部是压在中国人民出行的大山！燃油税、高速费等等到处设卡要钱！
 
-参考链接：
+参考链接：[https://finance.sina.com.cn/chanjing/gsnews/2022-01-21/doc-ikyamrmz6554905.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-01-21/doc-ikyamrmz6554905.shtml)
 
-[https://news.sina.com.cn/c/2022-01-18/doc-ikyamrmz5955557.shtml](https://news.sina.com.cn/c/2022-01-18/doc-ikyamrmz5955557.shtml) [https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6167269.shtml](https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6167269.shtml) [https://news.sina.com.cn/c/2022-01-19/doc-ikyakumy1372298.shtml](https://news.sina.com.cn/c/2022-01-19/doc-ikyakumy1372298.shtml) [https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6199012.shtml](https://news.sina.com.cn/c/2022-01-19/doc-ikyamrmz6199012.shtml)
+**3、中国奥园公开违约：不谈展期，直接宣布海外债务重组**
+![中国奥园爆雷霸气官宣所有境外债集体违约网友：果然欠钱是大爷|融资|期房_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0120%2F784441d5j00r604gw002pd000me00bbp.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
+1月19日晚，中国奥园发布公告称，对于2022年1月到期的两笔美元债，其将不予以兑付；而另外两笔还未到期的美元债，则将不继续付息。　“本集团拟就集团其他境外金融负债采取相同原则。”奥园在公告中坦陈，其所有其他境外金融负债将发生或已发生违约事件。据披露，上述四笔美元债本金余额共计10.86亿美元，包括2022年1月20日到期的4.2%优先票、2022年1月23日到期的8.5%优先票据、2023年6月到期的7.35%优先票据、2024年6月到期的7.95%优先票据，发行规模分别为1.88亿美元、5亿美元、2亿美元、2亿美元。
 
+参考链接：[https://finance.sina.com.cn/jjxw/2022-01-20/doc-ikyakumy1497636.shtml](https://finance.sina.com.cn/jjxw/2022-01-20/doc-ikyakumy1497636.shtml)
 
+**4、美联储发表官方数字美元白皮书 陈述利弊但未提出政策建议**
+![数字美元符号图片素材-正版创意图片400086848-摄图网](https://img95.699pic.com/photo/40008/6848.jpg_wh860.jpg)
+路透1月20日 – 美国联邦储备委员会(FED/美联储)在周四发布的一份讨论文件中称，创建官方数字美元可能会加快支付速度，并为家庭提供一个安全的选择，但这也会带来金融稳定风险和隐私问题。
 
-编辑/校对/发稿：有莫举名
+该报告没有提出政策建议，也没有就美联储在是否推出央行数字货币(CBDC)方面的立场发出明确信号。此外，美联储表示，“如果没有行政部门和国会的明确支持，最理想的方式是通过一项具体的授权法律”，它将不会创建央行数字货币。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-8.png)
+参考链接：[https://cn.reuters.com/article/us-fed-digital-dollar-whitepaper-0121-idCNKBS2JV04B](https://cn.reuters.com/article/us-fed-digital-dollar-whitepaper-0121-idCNKBS2JV04B)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-
-
-
-
+上传排版：文勇
 
  
 

@@ -2,40 +2,35 @@
 ---
 
 
-## 中共与世界经济脱钩，中国人将获自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888966/)
+## 数字货币与法币
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889070/)
 
-撰稿：首尔天池农场 –  追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-在1月19日的大直播中，针对中共和世界经济脱钩，郭文贵先生表示，只要脱钩，中国人将摆脱中共的努力，获得自由。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1656.png)圖片來源：https://investors-corner.bnpparibas-am.com
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/法币与数字币.jpg)
+聪明人都会用数字货币
 
+法币永远尝试攻击数字货币
 
-在中共的统治下，中国人的生活、医疗、教育等将继续被中共奴役和统治。如果中共继续维持高能耗、高污染的经济策略 ，中国的环境污染将无限制地恶化，中国人的生存环境将遭遇空前的危机。一旦中共和世界经济脱钩，中国人将脱离这种险境。
+数字货币和法币的共存才是人类的必须
 
-在中共几十年的统治下，中共欺骗民众，依靠大量进口才能解决人民的粮食问题，高新科技更是依赖外国引进。中共的经济现状更是伪装下的海市蜃楼。一旦中共和世界经济脱钩，中国人将与虚假脱钩。
+数字货币和法币之间的较量，一定会像白天和黑夜一样，白天不能没有黑夜，黑夜也不能没有白天。只是你在美国白天的时候，中国是黑夜。但是你在任何一个地方，黑夜和白天都不是永恒的，只是你的角度变了。
 
-中共70多年来，利用驭民五术奴役中国人民。一旦中共和世界经济脱钩，中国人民将摆脱中共的经济、精神控制，中国人将过上有尊严、有价值的日子。
+未来法币和数字货币之间，若两样都能驾驭，你就是高人。
 
+法币与数字货币共存才是人类的必须。因为大家有选择，你不能只有一个选择。
 
+随着数字货币和法币的共存，世界上另外一个实体就出现了： 就是无固定国土的国家。
 
-[新闻连接]：
+*发布：开智则立*
 
-[https://gtv.org/video/id=61e8077a533c672fca7f4b09](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
-
-总编/编辑：雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

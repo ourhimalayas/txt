@@ -2,40 +2,45 @@
 ---
 
 
-## 第四针疫苗不能阻止Omicron
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1889093/)
+## 1.19大直播后记：中共提出的“溢出效应”的本质
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889140/)
 
-作者：加拿大温哥华扬帆农场Spirit
+整理：雅典娜速记组
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
-
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b601590bfa66f888.png)图片来源：雅典娜设计组（614）
 
 
-根据《国会山报》1月17日报道，以色列的一项初步研究第四针COVID疫苗不足以防止Omicron的感染。 据路透社报道，Sheba医疗中心传染病科主任Gili Regev-Yochay说，该试验研究了辉瑞公司两周后的强化剂和Moderna公司一周后的强化剂的效果。结果表明第四针所增加的抗体”可能对Omicron来说是不够的”。
+中共在达沃斯论坛提出的“溢出效应”是什么意思？就是村长家里边儿，他把这一村人给绑架了，或者村长在茅屎坑里边拉屎，你把一石头扔到茅屎坑里边，溅他一身。现在村长就干啥事儿？你只要敢不听我的，我就把这屎泼到你们全世界。
 
-以色列在整个大流行病期间带头推动疫苗接种，是第一个为本国公民提供加强针的国家。尽管走到了疫苗接种前列，以色列本月早些时候报告了近12,000个新增COVID病例，这是自大流行病开始以来每日病例最高数字。
+共产党达沃斯论坛印的钞票太多了，美国要加息，因为美国是全世界通行。到现在中国人不知道美元是全世界通行，中国人民币全世界不通行！你去问中国人，97%的人不知道中国人民币不能全世界通用的原因。就是人民币你只能在中国花，到外国叫外币，限制你（使用）。全人类只有北朝鲜，连非洲都不这样。你的钱就是纸。
 
-不知要打到第几针的时候民众才能觉醒，疫苗无效有害。事实表明接种率高的国家疫情更严重。
+那现在什么叫溢出效应呢？就是我印的钞票太多了，你现在一加息，人家美元是全球流通，它自己的泡沫就挤出来了，一挤出来他的钱就变纸。你叫我继续奴隶我的中国14亿人民，所谓的比爹娘还亲的共产党，就是你不能把我的钱变成纸，我继续奴隶（中国人）。
 
+第二，更夸张的，大家看到这个溢出效应是什么？房地产。（中国房地产价值）80万亿也好，100万亿美元的房地产，是全世界房地产的总和，全人类地球上的房子加在一起，中国人比它还多。你不能把这个泡沫给我戳了，你戳了我怎么让这些（人继续当）房奴车奴？
 
+广西的一位战友都在说：“七哥，我现在看你直播，我跟我们全家算了个账，我们全家过去30年，打工所有工资，今天我孙子都变老了，我爹娘已经不在了，我的兄弟姐妹和我，现在发现我们家里有什么呢？3套房子、4台车，多有钱。但是七哥，我算了算我把3套房子、4台车全卖完，能把我欠的房贷的1/4能还上，我们家还要继续打工。”更夸张的事情，他算了笔账，他说：“七哥，这些东西能买回我在30年前的什么东西呢？在我们村里面，大概10亩地和村上的2套房子。”
 
-参考链接：
+大家记住了嘛，就你过去在村里面，1000块钱能买的东西，现在你要拿100万的东西买回来。所以老百姓以为我家里存了100万，我存了50万，你那是纸都不如。现在共产党达沃斯论坛说的什么？就是不要给我印刷的老百姓抱着那些冥纸都不如的钱，叫它变成纸，他就给我造反。
 
-[https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron](https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron)
+还有一个大家没有注意到，这个达沃斯论坛不叫溢出效应是什么呀？反对美国加息，美国和西方世界在病毒（大流行期间）印的200多万亿美元的所有的钞票。大家都知道的，这是西方都公开的，这不是我说的（是官方的数字），实际上有260万亿美元，他们要把这水给挤出来，那这水要挤哪儿去呢？
 
-校对/发稿：有莫举名
+共产党现在告诉世界，只要懂一点儿世界金融都懂的，你别挤这泡沫，我来把你泡沫给收回来。我怎么帮助你弄呢？我让中国老百姓的所谓的打工仔、打工妹、中国的农民干一辈子！我要给他10年、20年，我把你泡沫给收了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
+你只要别把我共产党印的钞票的谎局给戳穿，别把我这个100多万亿美元的房地产给戳穿，你让我们这几个家族继续控制中国人、14亿奴隶，我给你干20年免费嘛！继续买便宜的耐克、便宜的内裤、便宜的加工产品，你干嘛把我弄死了？我有14亿奴隶啊！这就叫共产党说的，中国的巨大的市场潜力。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+资料来源：[2022年1月19日文贵大直播](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
+
+*发布：*tianzhihuan
+
+**
+****更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
