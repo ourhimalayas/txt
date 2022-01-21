@@ -2,46 +2,44 @@
 ---
 
 
-## 达沃斯精英企图剥夺私有财产施行共产主义
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1888004/)
+## 一周中共病毒及疫苗伤害信息汇总
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888055/)
 
-作者： 香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
-1 月19 日，在2022年达沃斯视频会议上、102位超级富豪发表了一封信，呼吁引入财富税，并说“是时候对我们富人征税了”。在中共病毒大流行的两年里，世界前10名富豪总财富增加了一倍多，达到1.5万亿美元，而穷人的数量增加，不平等现象急剧扩大。他们拟建议以2%税率为起点，对500万美金以上财产进行征税。
+作者：纽约香草山农场设计部 – 火来，医疗部 – Zion文恩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月11日至18日，除中共国外，全球新增确诊中共病毒2052万余例，同比上周增长百分之12.7，增长率较上周下降了34个百分点；本周新增确诊死亡病例49653例，同比上周增长了百分之9.65.  截止1月18日，全球除中共国累计接种69.4亿剂中共病毒疫苗，同比上周增长百分之2.51；疫苗接种的增长率较下降了0.54个百分点。
 
-这些超级富豪是良心发现了吗？ 答案当然是否定的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-57.jpg)
-自2009年以来，世界经济论坛一直致力于大重置，所谓“大重置”就是精英阶层利用新冠疫情造成的混乱状态，试图建立世界政府的新世界秩序。联合国也希望西方的税收由精英们的大公司来分配。 因此，超级富豪们征税的提议的本质就是贯彻其大重置计划，消灭私有财产，在全世界对普通人施行共产主义，即”你将一无所有，但你很快乐”。(出自2016年，世界经济论坛发布的一段名为”关于2030年的世界的8个预言”的宣传片。)这里的”我们” 绝不是指超级富豪们，而是我们这些日常生活所需，要靠每日工作获得的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12-10.png)
 
-能出席达沃斯论坛的人都是制定经济，金融政策，手握国家机器的人。他们通过家族基金，慈善基金等对于个人财产早做了多层保护及隔离。他们制定的计划不会触及自身利益，而是让普通人身无长物，如2030年8个预言所说:不论你需要什么你都要租。除他们之外所有人都会因他们制定的政策或某些措施变得一贫如洗，而他们是超然物外的，是站在食物链顶端的人，是税收获利者，分配者，而不是纳税人。就如同此次疫情，达沃斯精英在全世界疯狂推行疫苗，而所有参加达沃斯论坛的人全部都没有注射疫苗，并且利用疫情大发横财。
+本周，美国疫苗政策出现重大转向——1月14日美国最高法院以6比3的投票结果，终止美国联邦政府针对私人企业的疫苗政策。基于最高法院的判决，美国通用电气等大型公司随即取消了对员工的强制疫苗要求。英国也宣布松绑疫苗政策，并将终止疫苗护照等工作限制。英国首相鲍里斯·约翰逊也在18日表示，将提前一周，即从下周开始放缓英格兰地区现存的大部分病毒限制措施。
 
-郭文贵先生在1月19日大直播中总结达沃斯党徒都具备以下三个特征：
+另据以色列最新研究显示，接种了辉瑞或莫德纳的第四针疫苗的医护人员，仍然出现了病毒感染，疫苗的免疫保护形同虚设。国际顶级临床医学杂志《柳叶刀》也在上周发表了来自南非的一项研究，结果显示，基于mRNA平台的疫苗加强针对Omicron毒株无效。
 
-1.有影响国家的政治和军事的能力 
-2.控制着能左右数以亿计人的命运的财富 
-3.手上有无数条人命
+同样在本周，美国国家过敏症和传染病研究所负责人安东尼·福奇，在2020年的个人财务状况被曝光, 福奇在2020年共有一千多万美金的投资, 包括Matthews Pacific Tiger Fund基金的投资, 值得注意的是，中共是这项基金的主要投资人。
 
-达沃斯党就是一个黑暗力量的俱乐部，控制人类命运的俱乐部，是让全世界当奴隶的奴隶主俱乐部。
+参考链接：
 
-当人类度过了70年和平生活后，世界可能会迎来最黑暗的一年，战争，瘟疫，贫穷，疾病会同时降临人间。当地球被极少数，甚至不超过1000个最有权最有钱人控制时，绝大多数人不是更幸福了，而是要成为数字社会下奴隶。被关在笼子里的应该是资本与执政者的权力，而不是人民的权力。
+- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-28..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+- S[upreme Court blocks Biden Covid vaccine mandate for businesses, allows health-care worker rule](https://www.cnbc.com/2022/01/13/supreme-court-ruling-biden-covid-vaccine-mandates.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+- [GE suspends COVID-19 vaccine or test requirement after U.S. Supreme Court’s ruling](https://www.reuters.com/business/healthcare-pharmaceuticals/ge-suspends-covid-19-vaccine-or-test-requirement-after-us-supreme-courts-ruling-2022-01-14/)
+- [Dr. Anthony Fauci’s financial disclosure shows $10.4M in investments](https://nypost.com/2022/01/15/dr-faucis-financial-disclosure-shows-10-4m-in-investments/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)
+- [Fourth COVID vaccine still doesn’t stop Omicron, new Israeli study shows](https://nypost.com/2022/01/18/fourth-covid-vaccine-still-doesnt-stop-omicron-israeli-study/?utm_medium=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_campaign=SocialFlow)
+- [Early Omicron Breakthroughs Show mRNA Vaccines’ Weakness](https://www.bloomberg.com/news/articles/2022-01-19/mrna-boosters-don-t-block-omicron-south-african-study-shows)
+- [England Ends All COVID Passports, Mask Mandates, Work Restrictions](https://www.zerohedge.com/markets/england-ends-all-covid-passports-mask-mandates-work-restrictions)
 
-2007 年，Mylan收购印度 Matrix Laboratories Limited,2019年辉瑞和迈兰合并，诞生了世界最大仿制药企业。海得拉巴是迈兰全球两大研发中心之一 ,拥有约 35,000 名员工和40 多个制造工厂，约一半位于印度 。公司的产品包括多个剂型的品牌药和仿制药品种，这些产品销往全球165个国家或地区。
 
-参考来源：[达沃斯精英企图剥夺私有财产施行共产主义](https://gnews.org/zh-hans/1884152/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
-
-编辑/校对/发稿：Hetangyuese
+编辑：雪梨
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

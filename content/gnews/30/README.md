@@ -2,35 +2,37 @@
 ---
 
 
-## 澳洲大利亚计划恢复学校面授课程
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1887979/)
+## 重磅报告发现军事文件与FAUCI的病毒功能增强证词相矛盾
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1888053/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+评论：*若要人不知， 除非己莫为。这句有着中国智慧的语言描述所谓的现任美国国家过敏和传染病研究所所长、白宫冠状病毒工作组成员及总统首席医疗顾问福奇博士的所作所为再恰当不过了。福奇曾表示新冠病毒是他“最可怕的恶梦”，但怎么感觉福奇似乎更象是美国人民的恶梦呢！？*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1642.png)据《Hannity.com》工作人员发布，2022年1月11日报道
+图片源自hannity.com
+美国国立卫生研究院主任Anthony Fauci博士可能会遇到一些麻烦。
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+根据Project Veritas发现的文件，健康联盟（EcoHealth Alliance）是Fauci’s NIH的一个已知合作者，在2018年3月与国防高级研究计划局（DARPA）接触，希望资助Project Defuse —— 一项对蝙蝠的冠状病毒进行功能增强研究的倡议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+据Project Veritas称，由于该提案违反了功能研究的暂停规定，因此被DARPA拒绝。但是，据报道，Fauci仍在推动。
 
+“根据这些文件，NIAID在Fauci博士的指导下，在中国的武汉病毒学实验室和美国其他几个地方进行了研究。” The Post Millennial 报道。
 
-据《澳大利亚人报》1月20日报道，澳洲总理Scott Morrison宣布，全国内阁同意保留目前的新冠病毒（Covid-19）隔离设置。然而，根据国家最高医疗咨询小组的建议，将不改变七天的隔离要求。
+Paul Gosar（R-AZ）议员在Twitter上分享了这一信息。
 
-Morrison先生还宣布保留目前对必要劳动力与病例密切接触后的安排，不扩大放宽隔离限制的必要行业的名单。
+“Project Veritas 刚刚发布的报告令人瞠目结舌。之前从未见过 #ProjectVeritas获得的关于功能增强研究的军事文件与Fauci博士在宣誓后的证词直接矛盾。#ExposeFauci”
 
-另外，各州和领地的领导人同意按照全国统一的计划重开学校。各州领导人将在今天和明天宣布各自的计划。
+* * *
 
-首席医疗官Paul Kelly表示，在去年6月至12月，新州儿童的17，000个Delta病例中，只有15例被送入重症监护室。这些数据令人鼓舞，将有助于平息父母对送孩子回学校的焦虑。
+文章来源: [https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/](https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/)
 
-参考链接：[周四：7天隔离不变，学校面授课程将恢复；新州30825例25死；维州21,996例15死](https://cn.theaustralian.com.au/2022/01/20/62648/)
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – MIlojai
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

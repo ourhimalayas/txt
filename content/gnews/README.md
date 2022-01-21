@@ -15,119 +15,119 @@
 
 ---
 
-### [七哥金句（六）](/content/gnews/1/README.md)
+### [Tongtong想问七哥，说盘古里有什么？（二）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [Ostrager法官以七哥动议判Edward Moss出局意义重大](/content/gnews/2/README.md)
+### [2017年七哥告诉军情处英国有七八十个中共间谍李贞驹](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥金句（五）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句（四）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [若PAG案打不出真相,中国人将永远成为美国司法牺牲品](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [四分之一奥米克戎病人出现脑雾症状](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [邪恶至极 共产党在昆仑山搞活人祭神](/content/gnews/7/README.md)
+### [人是有灵魂的 来到世间就是一场修行](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共环境污染严重 中南坑老杂毛玩弄12亿中国人](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [表面无神论的共产党 在昆仑山修建了巨大的祭坛 那里是共产党权利的来源](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥金句（三）](/content/gnews/10/README.md)
+### [七哥金句（九）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [Edward Moss毫不掩饰被中共撑腰下蹂躏虐待七哥的傲慢](/content/gnews/11/README.md)
+### [每日快报：多国议会谴责中共在新疆对维吾尔人种族灭绝](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [重大证据、证人及中共关联卷宗和程序正义都会扭转官司](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥金句（二）](/content/gnews/12/README.md)
+### [七哥金句（八）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：中共与达沃斯党的勾结（一）](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
+### [大直播&#8212;中共屠刀下的八弟与六四英雄亡灵让七哥下定决心灭共！](/content/gnews/8/README.md)
+ ` GTV News Talk`
 
-### [PAG案凸显美国律师及律所和法官检察官国家安全被控制](/content/gnews/14/README.md)
+### [新西兰表示即使奥米炕爆发也不会采用封锁措施](/content/gnews/9/README.md)
+ ` GTV News Talk`
+
+### [为什么把本不该在纽约立的案子立案是太盟案的关键问题](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥金句（一）](/content/gnews/15/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.300 HDO](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [七哥金句（七）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [奥地利推出新法案，拒绝接种新冠疫苗者重罚](/content/gnews/16/README.md)
+### [共产党在不同的地域实行不同的统治战略](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥对墙内战友购买喜币的三个保证](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [喜联储在短短两个月期间 已经成为前5大交易所](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥金句（六）](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [Ostrager法官以七哥动议判Edward Moss出局意义重大](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥金句（五）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句（四）](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [若PAG案打不出真相,中国人将永远成为美国司法牺牲品](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [四分之一奥米克戎病人出现脑雾症状](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [捷克取消疫苗强制计划](/content/gnews/17/README.md)
+### [邪恶至极 共产党在昆仑山搞活人祭神](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共环境污染严重 中南坑老杂毛玩弄12亿中国人](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [表面无神论的共产党 在昆仑山修建了巨大的祭坛 那里是共产党权利的来源](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [奥地利推出新法案，拒绝接种新冠疫苗者重罚](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [捷克取消疫苗强制计划](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [FBI和辉瑞联手阻挠记者调查疫苗真相](/content/gnews/18/README.md)
+### [FBI和辉瑞联手阻挠记者调查疫苗真相](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美国多所大学反对疫苗加强针](/content/gnews/19/README.md)
+### [美国多所大学反对疫苗加强针](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [重磅报告发现军事文件与FAUCI的病毒功能增强证词相矛盾](/content/gnews/20/README.md)
+### [一周中共病毒及疫苗伤害信息汇总](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [重磅报告发现军事文件与FAUCI的病毒功能增强证词相矛盾](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [太平联盟以缠诉达到案收集信息和法官判定抓捕七哥目的](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [新中国联邦是让战友在绝对的安全下获得想要的](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [申请政庇以法治基金捐款者和新中国联邦战友为优先](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共不会再有20大了 共产党会被消灭在20大](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国高院停止企业疫苗强制令是法律 全世界依法灭疫拉开序幕](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [班农先生论疫苗问题（下）](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [诺奖得主称，未接种疫苗的人将拯救人类](/content/gnews/27/README.md)
+### [诺奖得主称，未接种疫苗的人将拯救人类](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [中国春节劳动力短缺致澳洲快速抗原检测盒面临缺货](/content/gnews/28/README.md)
+### [中国春节劳动力短缺致澳洲快速抗原检测盒面临缺货](/content/gnews/32/README.md)
  ` 走进澳洲`
 
-### [达沃斯精英企图剥夺私有财产施行共产主义](/content/gnews/29/README.md)
+### [达沃斯精英企图剥夺私有财产施行共产主义](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [澳洲大利亚计划恢复学校面授课程](/content/gnews/30/README.md)
+### [澳洲大利亚计划恢复学校面授课程](/content/gnews/34/README.md)
  ` 走进澳洲`
 
-### [中国地产商全部跌出富豪榜前十](/content/gnews/31/README.md)
+### [中国地产商全部跌出富豪榜前十](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第180期](/content/gnews/32/README.md)
+### [雅典娜时报-第180期](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美联储发布备受期待的数字美元报告](/content/gnews/33/README.md)
+### [美联储发布备受期待的数字美元报告](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧洲考虑新的应对新冠病毒策略：接受这个病毒](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [为什么F-35战机会成为中台湾战争的核心？](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [惠誉预测中共国房地产行业持续恶化](/content/gnews/36/README.md)
+### [美国多数孔子学院遭关闭 数量骤降](/content/gnews/38/README.md)
  ` GTV新闻访谈`
-
-### [美国多数孔子学院遭关闭 数量骤降](/content/gnews/37/README.md)
- ` GTV新闻访谈`
-
-### [生活危机加深，英国通胀率升至30年来的高点](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [中日财经爆┃美联储发表官方数字美元白皮书](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

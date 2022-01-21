@@ -2,38 +2,29 @@
 ---
 
 
-## 美国多数孔子学院遭关闭 数量骤降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887687/)
+## 美联储发布备受期待的数字美元报告
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1887842/)
 
-作者：香草山教育部 – Casey（兰兰）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2020年8月13日，美国国务院宣布，要求孔子学院注册为外交使团。时任美国国务卿蓬佩奥先生在公开声明中表示：孔子学院美国中心不仅在全球推动中共国政府的政令宣导，更对美国校园与各级学校产生了有害的影响。2020年9月1日，蓬佩奥表示，他认为美国大学校园内的孔子学院有望在2020年底前全部关闭。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-127.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15-1.png)
+据零对冲1月20日报道，美联储在当天发布了备受期待的关于可能发行美国数字货币的报告。这份35页政府支持的货币的讨论文件没有就是否应该发行CBDC（明确表示目前不“赞成任何政策结果”）做出明确的结论，而是征求反馈意见。在报告中说：“引入中央银行数字货币（CBDC）将代表美国货币的一个非常重要的创新。
 
-截至2022年1月6日，美国有94所孔子学院已经关闭或正在关闭，尚存27所，这27所还包括了四所计划关闭的孔子学院，另包括一个在大学进行审查时“暂停”的孔子学院。
+美联储主席杰罗姆·鲍威尔此前曾表示，任何CBDC都应该“作为现金和当前私营部门数字形式美元的补充，而不是替代，例如商业银行的存款”。
 
-自2004年以来，中共在世界各地的高校校园内资助孔子学院，提供师资、教材和运营资金。在美国国务院正式宣布孔子学院为外交使团之前，中共政府将之前由国家汉办负责的孔子学院进行了重组，由“中国国际中文教育基金会”负责，该基金会于2020年6月成立。同时原来负责孔子学院的“国家汉办”更名为“教育部中外语言交流合作中心”。
+中央银行在文件中说，数字美元可以通过确保美元仍然是国际金融体系中最重要的货币来支持金融体系，改善跨境支付，提高金融包容性，并使美元在新技术中的使用更加便利。然而，央行也警告说，可能会有负面影响，包括从传统银行业抽走存款，使金融公司的挤兑行为更有可能或更严重。
 
-参考链接：
+美联储说，虽然随着支付系统的不断发展，CBDC可以为家庭和企业提供一个安全的数字支付选择，并可能导致国家之间更快的支付选择，但也可能有不利因素。这包括如何确保CBDC保持货币和金融稳定，以及补充现有的支付手段。其他关键的政策考虑包括如何保护公民的隐私和保持打击非法金融的能力。
 
-- [How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
-- [摘译：认定孔子学院美国中心为外国使团](https://china.usembassy-china.org.cn/zh/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [“CONFUCIUS INSTITUTE U.S. CENTER” DESIGNATION AS A FOREIGN MISSION](https://china.usembassy-china.org.cn/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [蓬佩奥: 孔子学院年底可能全关闭](https://www.dw.com/zh/%E8%93%AC%E4%BD%A9%E5%A5%A5-%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2%E5%B9%B4%E5%BA%95%E5%8F%AF%E8%83%BD%E5%85%A8%E5%85%B3%E9%97%AD/a-54788997)
+央行在文件中指出，在开发美国数字货币方面不采取行动可能会削弱美国在全球市场上的权威地位。美联储说：“重要的是……考虑潜在的未来状态的影响，其中许多外国和货币联盟可能已经引入了CBDCs。有些人认为，如果这些新的CBDCs比现有形式的美元更有吸引力，那么全球对美元的使用可能会减少，而美国的CBDC可能有助于维护美元的国际角色。
 
+这份文件在进一步了解美联储是否以及何时向公民释放数字货币方面是个空头支票，因为要征求意见，而且最终要由国会批准。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+鲍威尔在一份声明中说，在研究美国中央银行数字货币的积极性和消极性时，美联储期待着与公众、当选代表和广泛的利益攸关方进行接触。并补充说如果没有行政部门和国会的明确支持，最好是以具体授权法律的形式，美联储不打算着手发行C.B.D.C.。
 
-校正/发稿：海阔天空1
+新闻来源：[Fed Releases Much-Anticipated Report On Digital Dollar](https://www.zerohedge.com/economics/fed-releases-much-anticipated-report-digital-dollar)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

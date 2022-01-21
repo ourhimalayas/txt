@@ -2,31 +2,26 @@
 ---
 
 
-## 诺奖得主称，未接种疫苗的人将拯救人类
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888011/)
+## FBI和辉瑞联手阻挠记者调查疫苗真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888057/)
 
-作者：纽约磐石农场 – 在远方 、首尔天池农场 – 追着曙光跑
+作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月15日，诺贝尔奖得主，法国著名病毒学家吕克.蒙塔尼耶，在意大利当地的反中共病毒疫苗集会中公开表示，未接种中共病毒疫苗的人，将挽救人类并结束这场病毒危机。
+据司法观察1月18日消息，联邦调查局FBI和辉瑞制药联手，企图阻扰非营利性调查性新闻组织-“真相工程”记者调查疫苗真相。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-25.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-12.png)
 
-蒙塔尼耶于2008年获得诺贝尔生理学、医学奖，是世界艾滋病研究与防治基金会主席，也艾滋病病毒的发现者之一。
-
-蒙塔尼耶此前曾表示，大规模接种疫苗是不可接受的错误，疫苗根本没有保护作用，而且一些科学家和患者也发现，接种疫苗的人更有可能感染病毒。
+此前，真相工程发布了针对辉瑞制药的一系列卧底视频。在答复信息自由法案（FOIA）请求时，联邦调查局（FBI）告诉司法观察，在针对真相工程的调查档案中，有联邦调查局与辉瑞公司的通信记录。但在1月6日，联邦调查局却拒绝披露所有关于联邦调查局官员与辉瑞公司之间、关于真相工程来往通信的请求。
 
 参考链接：
 
-- [诺贝尔生理学或医学奖得主参加反疫苗集会，竟称“未接种疫苗的人将拯救人类”](https://www.sohu.com/a/517434726_115479)
-- [诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
-- [诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://3g.163.com/dy/article/GU0HF8M9053469KO.html?spss=adap_pc)
-- [https://k.sina.cn/article\_7517400647\_1c0126e4705902g9ez.html?from=news](https://k.sina.cn/article_7517400647_1c0126e4705902g9ez.html?from=news)
+- [Judicial Watch: FBI Letter Shows Pfizer Tied to Investigative File Targeting Project Veritas](https://www.thegatewaypundit.com/2022/01/judicial-watch-fbi-letter-shows-pfizer-tied-investigative-file-targeting-project-veritas/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Irene木木
-编辑：飞虹
+总编：文特
+编辑：文特/雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

@@ -2,38 +2,41 @@
 ---
 
 
-## 中国春节劳动力短缺致澳洲快速抗原检测盒面临缺货
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1888005/)
+## 美国多所大学反对疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888056/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+美国媒体1月19日报道，美国各大高校的学生们正在采取行动，抗议对在校大学生强制推行疫苗加强针。
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-8.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+由乔治梅森大学法律专业学生罗伯特·费尔纳，发起的 “废除乔治梅森大学的疫苗加强针任务 “的请愿书，已经获得700多人的签署。费尔纳说，CDC并没有声称疫苗可以阻止感染和传播，这不是关于医学疗效的政策，而是强迫学生放弃身体的自主权利，并表示要求学生在45天内接种第三针毫无道理。
+
+在斯坦福大学，已经有超过1600人签署了一份反对该校于1月底生效的加强针命令的请愿书。
+
+康奈尔大学近1000名学生、家长、教育工作者和校友签署了一封公开信，反对加强针。信中强调，越来越多的证据表明，疫苗对年轻人罹患心肌炎、心包炎存在严重风险。
+
+芝加哥大学的学生也加入了这场抗争。截至18日晚上，已有300人签署了请愿书。学生们已经意识到疫苗对健康的影响。
+
+参考链接：
+
+- [College students nationwide protest COVID booster mandates](https://www.thecollegefix.com/college-students-nationwide-protest-covid-booster-mandates/)
 
 
-据《ABC》1月21日报道,在中国春节前后几周里，澳大利亚的快速抗原检测盒（RATs）可能会面临进一步的延迟交货的困境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-尽管一些快速抗原检测盒的制造商向工人提供了经济奖励，并向澳大利亚的供应商承诺会在整个春节假期持续工作，以满足高需求，但是物流和运输可能从1月底到2月初面临放缓的情况。
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-澳大利亚治疗用品管理局（TGA）批准使用的快速抗原检测盒中，大多数产自中国。
-
-澳大利亚健康产品中心（Australian Health Products Central, AHPC）是杭州泰熙生物技术有限公司的快速抗原检测试剂盒产品在澳大利亚的代理商。该公司表示中国的制造商希望在本周增加库存，并在月底前完成订单。
-
-快速抗原检测盒可以在15分钟内测出新冠病毒结果。虽然其准确性低于核酸检测（PCR），但专家仍希望可以通过快速抗原检测盒来减轻核酸检测点的压力。
-
-参考链接：[中国开启过年模式：澳大利亚快速检测盒缺货情况恐进一步加重](https://www.abc.net.au/chinese/2022-01-20/rats-shortage-may-worse-as-china-reduce-production/100767294)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

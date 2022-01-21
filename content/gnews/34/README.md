@@ -2,26 +2,35 @@
 ---
 
 
-## 欧洲考虑新的应对新冠病毒策略：接受这个病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1887822/)
+## 澳洲大利亚计划恢复学校面授课程
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1887979/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-52.png)
-图片来源： www.bbc.com
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-美联社1月20日报道，当新冠病毒疫情最初宣布时，西班牙人被要求待在家三个月以上，好几个星期不让人们出去运动，孩子们不被允许去游乐场，经济完全停止了下来。
+整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-官员们辩称这些严厉措施是为了防止医疗系统奔溃，是为了挽救生命。现在二年过去了，西班牙正在准备采用不同的策略，在这个欧洲疫苗接种率最高的国家之一，政府在为制定下一波感染高峰时，不再作为紧急情况而是作为一种疾病来处理，邻国英国和葡萄牙也在采取相似的措施。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
-这个主意是将危机模式转向控制模式，西班牙希望欧盟考虑相似的改变，这种改变预计在奥米炕高峰下来后实施。
 
-世卫组织认为现在改变模式还太早，欧洲疾控中心正在与各国商讨这波疫情的急性期过后的转型问题。
+据《澳大利亚人报》1月20日报道，澳洲总理Scott Morrison宣布，全国内阁同意保留目前的新冠病毒（Covid-19）隔离设置。然而，根据国家最高医疗咨询小组的建议，将不改变七天的隔离要求。
 
-但德国政府目前认为转型还太早，因为该国只有73%的人口接种了疫苗，还有很多人，尤其是老年人尚未接种，意大利也延长了针对50岁以上的人强制疫苗政策，并对不接种者处以1500欧元罚款，并规定只有接种疫苗者才能进入公共交通，飞机，健身房，旅店及交易场所。
+Morrison先生还宣布保留目前对必要劳动力与病例密切接触后的安排，不扩大放宽隔离限制的必要行业的名单。
 
-##### **新闻来源： **[Europe considers new COVID-19 strategy: Accepting the virus](https://apnews.com/article/coronavirus-pandemic-boris-johnson-health-europe-spain-1ab95ea43fa30bcb36f068c9a8664d12)
+另外，各州和领地的领导人同意按照全国统一的计划重开学校。各州领导人将在今天和明天宣布各自的计划。
 
-# ** **
+首席医疗官Paul Kelly表示，在去年6月至12月，新州儿童的17，000个Delta病例中，只有15例被送入重症监护室。这些数据令人鼓舞，将有助于平息父母对送孩子回学校的焦虑。
+
+参考链接：[周四：7天隔离不变，学校面授课程将恢复；新州30825例25死；维州21,996例15死](https://cn.theaustralian.com.au/2022/01/20/62648/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
