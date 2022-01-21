@@ -2,42 +2,28 @@
 ---
 
 
-## 太平联盟案的核心是把不属于七哥的房子和船判成七哥的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887331/)
+## 英国取消卫生限制让疫情独裁者们张皇失措
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1887370/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e9f13387664c47acd78ff0](https://gtv.org/video/id=61e9f13387664c47acd78ff0)
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-5.jpg)
+英国媒体[贝克尔新闻] 1月19日发表评论指出：实施永久性卫生限制规定是在疫情之下，各国政府对独裁统治的图谋。但英国当局因计划停止各项强制防疫措施，而有望成为首个开始反对该图谋的国家。
 
-**郭文贵先生**：那么这个案子的荒唐在哪里知道了吗？看到刚才核心了吗？这个案子当法官判决这个房子的时候说房子就是你的，就判定是你的了。没办法，人家这个房子拥有者，家族基金宣布破产，宣布破产之后，罚款，又是创造了纽约第一，一个多亿，就3000万的个人担保成了1.25亿，还不拉倒呢，这还在计算中呢，1.25亿。现在这个房子在拍卖中，不可逆转一定会被拍卖。那么这时候又来了，找船了，Lady May这个船也是你的，这个船第一天都叫Lady May，从来没叫过Gentleman Guo ，Miles是吧？大家都知道它叫Lady May。钱哪儿来的？谁汇的钱？谁持有的公司？完全不管。
+报道称，由于目前“奥密克戎”疫情在英国出现减弱趋势，因此，已陷入困境的首相约翰逊当天宣布：政府不久将逐步取消大部分现行疫苗政策和防疫规定，并不再强制配戴口罩以及封锁隔离。
 
-而且大家记住，原来这个船的公司基金是跟我们的合伙人曲国娇同时拥有，曲国娇是在这个时候被抓回大陆的，你们要记住个重点。就共产党它为什么要把这个船的当时的主人、老板，这个公司的拥有者曲国娇绑回大陆？谁有这个本事？法官不管。
+对此，[华盛顿邮报]却把英国首相以上背逆主流的决定与其近几周被曝光的丑闻联系起来。指称约翰逊之所以如此行事，是因为他在其住所和办公室内忽视防疫规定的行为最近被媒体曝光，并使得英国政界要求他辞职的呼声越来越高所导致。
 
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
+文章最后还写道，至始至终都在欺骗公众的福奇，日前在独裁者阵营–[达沃斯论坛]上发出令人不寒而栗的恐吓，警告美国目前正处于“第五波疫情的开始阶段”，并讹称“大量有关疫情的虚假信息完全破坏了美国的公共卫生工作”。
 
-编辑整理：Jacques；
+校对编辑：硫酸羟氯喹64
 
-字幕文件制作：小满；
+发稿： 苦尽甜来 (文來）
 
-视频制作及上传：Cindy；
+资料来源：
 
-G-News发布：小满；
+1、[Freak Out: Covid Dictators Left Scrambling As Major Western Nation Suddenly DROPS Vaccine Mandates & Restrictions](https://beckernews.com/freak-out-covid-dictators-left-scrambling-as-major-western-nation-suddenly-drops-vaccine-mandates-restrictions-43793/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+2、[Fauci Says We’re Just In Phase One Of ‘Five Phases Of The Pandemic’ — Then Issues a Chilling Warning](https://beckernews.com/fauci-says-were-just-in-phase-one-of-five-phases-of-the-pandemic-then-issues-a-chilling-warning-43791/)
 
  
 

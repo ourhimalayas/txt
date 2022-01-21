@@ -15,86 +15,86 @@
 
 ---
 
-### [法国议会将中共政府对待维吾尔人称为种族灭绝](/content/gnews/1/README.md)
+### [ABA判定Edward Moss违反职业道德后法官才扭捏判决](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [短视频：两名已接种疫苗飞行员不能参与同一商业飞行](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [英国取消卫生限制让疫情独裁者们张皇失措](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [大直播后记：达沃斯党来自撒旦魔教](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [法官判七哥藐视法庭剥夺选陪审团的权利并开出天价罚款](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [11.20对今天的影响深远（上）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [法国议会将中共政府对待维吾尔人称为种族灭绝](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大直播后记：达沃斯论坛打造恋童癖精英圈](/content/gnews/2/README.md)
+### [大直播后记：达沃斯论坛打造恋童癖精英圈](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [太平联盟案的核心是把不属于七哥的房子和船判成七哥的](/content/gnews/3/README.md)
+### [太平联盟案的核心是把不属于七哥的房子和船判成七哥的](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥想要的音乐](/content/gnews/4/README.md)
+### [七哥想要的音乐](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [喜联储会成为最有实力的世界金融领头者](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [音乐的本质和未来（二）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大多数染疫住院患者已接种疫苗](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [太平联盟以捏造3000万担保立案后抢夺七哥纽约住所](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [音乐的本质和未来（一）](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [CCP要干掉美元](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [大重启尽义务不求果](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [太平联盟诉七哥的案由来自捏造的七哥担保3000万债务](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [法国将于2月取消COVID限制](/content/gnews/13/README.md)
- ` 温哥华扬帆农场`
-
-### [加拿大卡车司机集结反击政府疫苗政策](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [战友聪明的买药,战友对盘古员工的无私帮助](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [2022.01.19文贵大直播 喜马拉雅真义十解：新中国联邦人负有拯救地球人类的使命](/content/gnews/16/README.md)
- ` 秘密翻译组-原创组`
-
-### [Edward Moss加入曾代表GTV打官司的Bondi的律所背后](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [法国不允许未接种新冠疫苗的外国运动员参加该国比赛](/content/gnews/18/README.md)
- ` GTV News Talk`
-
-### [CCP是多么的邪恶 灭共又是多么的幸福 多么的伟大](/content/gnews/19/README.md)
- ` DC政经`
-
-### [什么是喜美元?什么是喜币?](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [我们不是慈善机构要自救](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [特鲁多继续残酷推行儿童疫苗接种计划](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [1/20/2022 文贵盖特：房产税是一场财富洗劫，冬奥会后中共将加大对老百姓的剥削](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [参议员玛莎·布莱克本： 共产主义中国为了展示自己主办奥运会的实力，正在封锁自由](/content/gnews/24/README.md)
- ` 美国政要直译推`
-
-### [有声|郭先生深度解析：黑暗即将到来](/content/gnews/25/README.md)
+### [有声|中共控制西方法律的明证：未审先知](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [1/20/2022 文贵盖特：为了让俄罗斯和几个小国来给冬奥会捧场，中共挥霍了几万亿](/content/gnews/26/README.md)
+### [喜联储会成为最有实力的世界金融领头者](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [音乐的本质和未来（二）](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大多数染疫住院患者已接种疫苗](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [太平联盟以捏造3000万担保立案后抢夺七哥纽约住所](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [音乐的本质和未来（一）](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [CCP要干掉美元](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [大重启尽义务不求果](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [太平联盟诉七哥的案由来自捏造的七哥担保3000万债务](/content/gnews/19/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [法国将于2月取消COVID限制](/content/gnews/20/README.md)
+ ` 温哥华扬帆农场`
+
+### [加拿大卡车司机集结反击政府疫苗政策](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2022.01.19文贵大直播 喜马拉雅真义十解：新中国联邦人负有拯救地球人类的使命](/content/gnews/22/README.md)
+ ` 秘密翻译组-原创组`
+
+### [法国不允许未接种新冠疫苗的外国运动员参加该国比赛](/content/gnews/23/README.md)
+ ` GTV News Talk`
+
+### [CCP是多么的邪恶 灭共又是多么的幸福 多么的伟大](/content/gnews/24/README.md)
+ ` DC政经`
+
+### [1/20/2022 文贵盖特：房产税是一场财富洗劫，冬奥会后中共将加大对老百姓的剥削](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/20/2022 文贵盖特：昨天开启了爆料革命新时代，我们在传播病毒和疫苗灾难信息的同时，也向世界发出中共不等于中国人、中国人是最大的受害者这样的声音，让世界看清什么是共产主义](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
+### [参议员玛莎·布莱克本： 共产主义中国为了展示自己主办奥运会的实力，正在封锁自由](/content/gnews/26/README.md)
+ ` 美国政要直译推`
+
+### [有声|郭先生深度解析：黑暗即将到来](/content/gnews/27/README.md)
+ ` MOSREC`
 
 ### [美国两党议员提案取消国际奥委会免税资格](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
