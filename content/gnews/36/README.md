@@ -2,18 +2,24 @@
 ---
 
 
-## 秘翻在线：法国众议院通过&#8221;中共在新疆实施种族灭绝&#8221;的决议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889233/)
+## ESPN宣布不派遣新闻人员参与北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889281/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-30.png)（图片源自本文链接）
-TBS新闻1月21日消息：距离北京奥运会只有两个多星期了，法国众议院通过了一项决议，指责中共国在新疆维吾尔自治区进行 “种族灭绝”。
+#### 撰稿：彩虹
 
-法国众议院20日几乎全票通过的决议指出：维吾尔族的人口受到强制绝育政策的压制，孩子被带走的情况十分严重。指责中共有 “消灭维吾尔族的意图”，相当于 “种族灭绝”，要求法国政府正式承认。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-19.jpg)图片来源：MSN
+ESPN（Entertainment Sports Programming Network，娱乐与体育节目电视网）是一间24小时专门播放体育节目的美国有线电视联播网，ESPN及ESPN国际在美国9000万家庭和全球147个国家可以收看。
 
-中共驻法国大使馆发表声明说：这是公然基于对中国的偏见和敌意的谎言。
+1月20日，《国会山报》报道，周四，ESPN发布声明，出于对中共病毒（COVID-19）的担忧和与疫情有关的限制，表示将不会向北京冬奥会派遣新闻人员。
 
-信息源：[新疆ウイグル自治区で中国「ジェノサイド」 仏下院、決議採択（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/eacf9d59946bbcb941601cacd91b376444d77a7f)
+文章说，ESPN原计划向中国派出四名记者，但这些记者现在将加入远程奥运报道。
+
+ESPN的执行副总裁诺比·威廉森（Norby Williamson）一份声明中说：“对我们来说，员工的安全是最重要的。随着（中共病毒）疫情继续成为一个全球性的威胁，以及与中共病毒（COVID）有关的现场限制，在奥运会上将使报道变得非常具有挑战性，我们认为让员工留在家里是对我们最好的决定”。
+
+**新闻来源**
+
+[ESPN announces it won’t send reporters to Beijing Olympics due to COVID-19](https://thehill.com/homenews/media/590712-espn-announce-it-wont-send-reporters-to-beijing-olympics-due-to-covid-19)
 
  
 
