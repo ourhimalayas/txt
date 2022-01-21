@@ -2,20 +2,31 @@
 ---
 
 
-## 秘翻在线:又一家千亿级企业奥园官宣“违约”，不支付到期票据本息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1886539/)
+## 七哥谈共产党操作的案子（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1886615/)
 
-撰稿：西枫westca
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-12.jpg)图片来源：路透社
-据新京报1月20日报道，中国奥园官方宣布违约，将不支付2022年1月到期票据剩余本息，在30天宽限期届满后，将不会支付2023年、2024年到期票据的最新利息。其未偿还本金总额10.86亿美元。
+来源：郭先生2022-01-17直播08：30：27摘录
 
-中国奥园建于1996年，2007年在香港上市。号称涵盖地产、商业、科技、跨境电商、资本投资、建筑工程、医美科技等多元化的千亿级企业。2022年1月7日发布的去年业绩还称仅物业合同已逾1200亿元。在公告中，中国奥园还说，集团管理团队包括高级管理层保持文档，致力改善集团营运情况。
+世界级的一个法律上那个黑洞的答案，较量者是一个人类上地球上最大的，共产党操作的一个案子，而是在美利坚共和国，是在美国的最高法院，纽约最高法院来联系的，律师也是美国最顶尖的律师。这个每个律师事务所一年都是几亿美元的收入。Andy Moss，还有现在那个CAHILL，CAHILL是华盛顿美国最大的律师所之一，一年可能是几亿、十几亿的营业额，CAHILL的Bondi就是曾经的 GTV的律师，代表战友们的，他是原来Elon Musk，代表Elon Musk打 SEC 的律师，Andy Moss，就这个叫做Bondi啊，这个Bondi，叫 CAHILL，这个叫Andy Moss啊，这都是杀手级的人物。在法律界，两个人竟然被这次判决为严重违反啊，这个职业道德，就是这个Andy Moss。5年前这个案子就是Andy Moss的代理，他从原来的流水移到了叫 CAHILL，CAHILL是谁带去了？就是Bondi，Bondi原来是代表整个好几个，包括跟我有法律沟通啊，法律建议，他竟然视这与不顾，要求和他勾结在一起。Andy Moss从过去带了五年的律师事务所，是麦哈顿最大之一，移到了CAHILL，和Bondi当事人的法律顾问原来建议，要同时在弄咱，这是实在是看不过眼了，而且美国最高的三家律师的职业道德评估机构，做出了判断，第三方说他强烈的违反了职业道德，这才把他给踢出局了。说到这了我要告诉大家刚才这个PPT做的非常非常好啊。
 
-奥园成为最新一家背信债务义务的中共国开发商。此次公告不仅对本周到期的美元票据宣布违约， 还将未来两年到期日尚未来临前先公告违约，真是神操作。中共国的企业无论国企还是私企，都本着骗你没商量的原则，完全没有公信原则。不灭中共，世界不得安宁。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**新闻来源：**[新京报 – 好新闻，无止境 (bjnews.com.cn)](https://www.bjnews.com.cn/detail/1642609524169876.html)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
