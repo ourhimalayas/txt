@@ -15,110 +15,110 @@
 
 ---
 
-### [DC大中华时事：中共抹黑欧洲议会](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【#G时新闻】美国飞机制造商指控浦东科技非法转移技术威胁美国国安](/content/gnews/1/README.md)
+ ` G-时新闻`
 
-### [1/21/2022 文贵直播：中共这时候搞冬奥会是找死，清零政策已让习自己变成“0”](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|北京四天新增9例阳性， 房山区出现聚集疫情](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [有声|达沃斯论坛与冬奥会将成为习时代终曲](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [有声|麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [灭共者之CCP毒疫苗正在杀人](/content/gnews/6/README.md)
- ` MOS Designer香草山设计部`
-
-### [有声|德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|为灭共而生的七哥，自幼肉肩担道义](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [2022年1月21日大直播速记精萃](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [有声|北京冬奥APP存在重大安全隐患](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [有声|苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [2022/01/21 文贵先生直播大纲](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022/01/21 大卫作战室直播精要](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/14/README.md)
- ` MOS Designer香草山设计部`
-
-### [有声|不完全财务披露福奇千万美元投资](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [【秘翻在线】联邦法院阻止了拜登政府对联邦雇员的强制疫苗规定](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美联储就数字货币展开辩论](/content/gnews/17/README.md)
- ` 温哥华扬帆农场`
-
-### [法国国民议会称中共对维吾尔人的待遇是“种族灭绝”](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|郭先生剖析PAG案的后续进展](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [立陶宛是在中共国与欧洲的经济和外交斗争的开胃菜 （二）](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [立陶宛是在中共国与欧洲的经济和外交斗争的开胃菜（一）](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [1/21/2022 文贵直播：欧盟国家和美国可能会竞相永久关闭其在中共国的使领馆，这意味着跟中共政治、经济双脱钩](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [西媒头条 — 第158期 – 西媒看天朝](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西媒头条 — 第158期 – 西媒要闻](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [扬帆每日速递 2022年1月21日版（1）](/content/gnews/25/README.md)
- ` 温哥华扬帆农场`
-
-### [中共国居民反抗COVID封锁，上街游行的视频](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵爆料1.21：“脱刻”，荷兰取消中共光刻机订单，习太阳震怒](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [文贵爆料 1.21：重提邓南巡讲话，江派欲扶大厦于将倾](/content/gnews/28/README.md)
- ` 秘密翻译组-原创组`
-
-### [美卡车司机加入加拿大卡车司机大罢工](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [德约科维奇夫妇拥有开发治疗COVID-19的生物公司股份](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [边境官员查获中共国造的假冒FBI徽章](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [杰森·米勒去了反共力量的活动中心——哥伦比亚](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [彼得·施韦泽的新书揭美精英渴望帮中共称霸](/content/gnews/33/README.md)
+### [德州法官阻止拜登的联邦工作人员疫苗强制令](/content/gnews/2/README.md)
  ` 华盛顿DC-Russian`
 
-### [欧美正竞相永久关闭驻中共国大使馆，西方开启与中共政治经济大脱钩](/content/gnews/34/README.md)
- ` YALUN 亚伦`
+### [有声|诸多不利背景下中共依旧公布GDP增幅8.1%](/content/gnews/3/README.md)
+ ` MOSREC`
 
-### [世界上第一艘“液化氢气运输船”抵达澳大利亚，成为去碳化的一张王牌](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [DC大中华时事：中共抹黑欧洲议会](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [1/21/2022 文贵直播：中共这时候搞冬奥会是找死，清零政策已让习自己变成“0”](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [英国仁医恳请病人不可再接种新冠病毒疫苗](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|北京四天新增9例阳性， 房山区出现聚集疫情](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|达沃斯论坛与冬奥会将成为习时代终曲](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [有声|麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [灭共者之CCP毒疫苗正在杀人](/content/gnews/10/README.md)
+ ` MOS Designer香草山设计部`
+
+### [有声|德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [有声|为灭共而生的七哥，自幼肉肩担道义](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [2022年1月21日大直播速记精萃](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|北京冬奥APP存在重大安全隐患](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [有声|苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [2022/01/21 文贵先生直播大纲](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022/01/21 大卫作战室直播精要](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/18/README.md)
+ ` MOS Designer香草山设计部`
+
+### [有声|不完全财务披露福奇千万美元投资](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [【秘翻在线】联邦法院阻止了拜登政府对联邦雇员的强制疫苗规定](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美联储就数字货币展开辩论](/content/gnews/21/README.md)
+ ` 温哥华扬帆农场`
+
+### [法国国民议会称中共对维吾尔人的待遇是“种族灭绝”](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|郭先生剖析PAG案的后续进展](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [立陶宛是在中共国与欧洲的经济和外交斗争的开胃菜 （二）](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西媒头条 — 第158期 – 西媒看天朝](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西媒头条 — 第158期 – 西媒要闻](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [扬帆每日速递 2022年1月21日版（1）](/content/gnews/27/README.md)
+ ` 温哥华扬帆农场`
+
+### [文贵爆料1.21：“脱刻”，荷兰取消中共光刻机订单，习太阳震怒](/content/gnews/28/README.md)
+ ` 秘密翻译组-原创组`
+
+### [文贵爆料 1.21：重提邓南巡讲话，江派欲扶大厦于将倾](/content/gnews/29/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美卡车司机加入加拿大卡车司机大罢工](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [德约科维奇夫妇拥有开发治疗COVID-19的生物公司股份](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [边境官员查获中共国造的假冒FBI徽章](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [杰森·米勒去了反共力量的活动中心——哥伦比亚](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [彼得·施韦泽的新书揭美精英渴望帮中共称霸](/content/gnews/34/README.md)
+ ` 华盛顿DC-Russian`
+
+### [欧美正竞相永久关闭驻中共国大使馆，西方开启与中共政治经济大脱钩](/content/gnews/35/README.md)
+ ` YALUN 亚伦`
 
 ### [オーストラリア、すでに、子供3人が中共ワクチンで死亡](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -132,17 +132,17 @@
 ### [一印度母亲就其儿子死于阿斯利康疫苗向印度政府和比尔·盖茨提起诉讼](/content/gnews/39/README.md)
  ` 首尔天池农场`
 
-### [有声|灭共者之共产主义家天下](/content/gnews/40/README.md)
- ` MOSREC`
-
-### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/41/README.md)
+### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [奥园集团表示不会支付债券暗示违约迫在眉睫](/content/gnews/42/README.md)
+### [奥园集团表示不会支付债券暗示违约迫在眉睫](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [极权主义妄想疯狂横行：病毒大流行、封锁、戒严令](/content/gnews/43/README.md)
+### [极权主义妄想疯狂横行：病毒大流行、封锁、戒严令](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [解直锟经历混蛋的共同点](/content/gnews/43/README.md)
+ ` 雅典娜GNotes`
 
 ### [日美发表NPT联合声明呼吁中共国核透明](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
