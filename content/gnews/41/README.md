@@ -2,45 +2,22 @@
 ---
 
 
-## G-EDU | G-Music |Rock-Media三大品牌上线暨喜马拉雅纽约磐石农场开幕典礼预告
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1889857/)
+## 日美发表NPT联合声明呼吁中共国核透明
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1889907/)
 
-美东时间今天晚上7点（北京时间明早8点）**G-EDU，G- Music，Rock- Media**三大品牌上线庆典暨喜马拉雅纽约磐石农场开幕典礼将在**郭先生的频道**隆重播出**，**令人期待已久的G系列的文化品牌将在此正式亮相，可谓三喜临门，惊喜重重。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1700.png)[新闻源截图](https://news.yahoo.co.jp/articles/1276e28de357312c7b5138c96db53e6bb83513d6)
+21日，日美两国政府发表了一份联合声明，申明《核不扩散条约》（NPT）的重要性，该条约规定了核裁军谈判的义务，重点是呼吁各国政治领导人访问广岛和长崎这两个饱受过核爆危害的城市。声明还指出，中共国的核武器能力不断增强，并呼吁中共应提高透明度，为核裁军的进展作出贡献。
 
-郭先生尤其重视教育，音乐，文化——教育是奠定未来的基石，音乐是能量巨大的核武器，文化借助媒体的力量一点点洗去中共的红毒让中国人在精神和灵魂上得到新生，所以这三大品牌的上线庆典将在郭先生的GTV和Gettre频道及磐石农场的GTV官方频道同时播出，
+美国国防部在去年11月发布的年度报告中分析称，中共国到2030年可能拥有至少1000枚核弹头，但中共国至今并未透露核弹头的数量。联合声明明确呼吁其公开信息并敦促努力实现核裁军。同时要求中共国努力减少“核风险”，如意外发射核导弹。
 
-播出时间：
+两国在声明中强调，《核不扩散条约》将使核武器的数量大大减少，是未来核裁军的重要基础。
 
-**美东时间 2022年1月21日 晚7:00， 北京时间 2022年1月22日早8点**
+信息源：[政治指導者に被爆地訪問呼び掛け　日米共同声明、中国は核軍縮を](https://news.yahoo.co.jp/articles/776472cd79c84bbaefa7770f025c502c965331d7)
 
-频道：
-
-**郭先生的GTV和Gettre频道及磐石农场的GTV官方频道**
-
-**GEDU**
-
-专注为爆料⾰命战友和新中国联邦⼉童提供专业，可持续的教育 服务，搭建国际化的教育平台。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a082a0fc-3c70-4352-92ee-4050f1f3ef07.jpg)
-郭先生寄语——
-
-**希望我们新中国联邦的G教育，能真正的培养出来新中国人的新一代，那就是智慧、勇敢、善良、让人尊敬的、健康的，新中国的新一代。**
-
-**让我们新中国联邦的孩子，打开眼睛，迈开腿，张开嘴，享受生命，探索大自然，创造文明。**
-
-**让中国人在世界上成为最受欢迎的；有最大贡献的；最和平的，最诚实的，最勇敢的；最智慧的；让人尊敬的新一代中国人。**
-
-**GMUSIC**
-
-专注⾳乐领域专业⼯作，包括⾳乐创作，制作，发⾏，推⼴， 艺术家培养发掘，用真正的音乐唤醒人们，用音乐连接信仰和真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_1022.png)
-**ROCK MEDIA**
-
-专注策划和制作⾼品质的爆料⾰命中⽂及多语种节⽬在各⼤媒体平台直播和投放，并⾯向国际友⼈推⼴和传播真相和爆料⾰命。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_1023.png)
-编辑发布：Kardia
-
-欢迎加入磐石农场discord
-![This image has an empty alt attribute; its file name is 磐石discord.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E7%A3%90%E7%9F%B3discord.jpg)![This image has an empty alt attribute; its file name is GTV.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![This image has an empty alt attribute; its file name is b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

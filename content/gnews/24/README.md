@@ -2,85 +2,57 @@
 ---
 
 
-## 2022年1月21日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1890738/)
+## 彼得·施韦泽的新书揭美精英渴望帮中共称霸
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1891038/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ec4d5bc69efb685f04bb5377d512c604.jpg)
-视频连接：[2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](https://gettr.com/streaming/pprfwt1ac4)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/S-3.jpg)newspostwall.com
+《布雷特巴特》（Breitbart）通过福克斯主持人马克·莱文（Mark Levin）推介彼得·施韦泽（Peter Schweizer）的新书《人脏俱在》（Red-Handed），文章用马克·莱文的话作为题目，“彼得·施韦泽的《人脏俱在》是‘迄今为止他的最好的一本书’——‘你所了解的将是多么恐怖‘”。【1】
 
-1、共产党每年向巴基斯坦行贿上百亿美元，到巴基斯坦领导人手里八九亿美元，大部分被共产党贪污了；
+文章说，马克·莱文赞扬了一本即将出版的、由“政府问责研究所”（GAI，the Government Accountability Institute）主席彼得·施韦泽（Peter Schweizer）撰写的《人脏俱在：美国精英如何通过帮助中共获胜而致富》，称这是施韦泽“最好的书”。
 
-2、不超过三个月，欧盟可能会永久关掉中国大使馆；
+莱文在周四（1月20日）的《马克·莱文秀》开始时说，“这是迄今为止他最好的一本书。”他还补充，这本书包含了施韦泽和GAI进行的“广泛研究”。
 
-3、中东是习的天下。东亚，南亚和东欧是江家天下；
+莱文说，《人脏俱在》的读者会对揭露的腐败感到“震惊”，他强调：
 
-4、当初在英国，巴基斯坦两任总统为了见七哥，在门口打架；
+*我在这里告诉你们——读了这本书的绝大多数内容——我了解到了我不知道的东西，我知道这些事实，美国媒体永远不会调查[也]永远不会报道，因为他们就是其中的一部分。*
 
-5、九指妖在法庭上的文件全部造假；
+*你会震惊于你了解的——震惊——即使在这一点上，你自己可能在想，“没有什么会让我更震惊了。”*
 
-6、冬奥会几百万只狗被捕杀。七哥找到了视频证据，西方人看到，震惊，呕吐。会有越来越多的人宣布，不参加冬奥会。
+*你会被你所了解的大科技公司（献媚中共）的程度所震惊——硅谷——背后的支持者习近平，不只是中共国，是习近平，（大科技公司）对他和那个政权的垂涎，就好像是一种宗教般的狂热崇拜，绝对令人难以置信。*
 
-7、习的清零政策犯了3个大忌：
+《福克斯新闻》频道将在周日的《生活、自由与莱文》（Sunday’s Life, Liberty & Levin）节目中播出对施韦泽的长篇访谈，重点是《人脏俱在》的研究。莱文还说，施韦泽不久将与他一起在广播中讨论后者对政治腐败的最新调查。
 
-1）宣布成功太早；
+施韦泽与“政府问责研究所”（GAI）总监埃里克·艾格斯（Eric Eggers）一起主持了深入调查。
 
-2）清零违背常理的自杀行为：
+（全文完）
 
-3）经济崩塌；
+即将在下周出版的《人脏俱在》简介：【2】
 
-8、凡是参加了中共冬奥会的，名单会永远列在新中国联邦的媒体上；
+彼得·施韦泽（Peter Schweizer）说，作为一名调查记者，四分之一个世纪以来，这是他进行过的最可怕的调查。
 
-9、天津封城不低于10万起，卖身求方便面的信息；
+中共政府试图渗透美国机构并不令人惊讶，然而，全新的是美国精英的数量，他们渴望帮助中共国独裁政权以寻求其全球霸权。
 
-10、宣布不参加冬奥会运动员，可以获得秘密喜币基金的喜币；
+总统家族、硅谷大师、华尔街大亨、常春藤联盟大学，甚至职业运动员都愿意在个人财富的祭坛上牺牲美国的力量和安全。
 
-11、荷兰的AMSL光刻机公司，拒绝出售光刻机给中共；
+六届《纽约时报》畅销书调查记者彼得·施韦泽（Peter Schweizer）在《人脏俱在》一书中披露了美国富人为帮助中共国增强军事、技术和经济实力而达成的秘密交易，展示了他迄今为止最令人震惊的发现。同样令人惊讶的是，这些精英中的许多人暗自相信中共的独裁政权优于美国的民主。
 
-12、芯片和金融是共产党的两条腿，芯片是共产党的核心，没有光刻机，共产党全部归零；
+彼得·施韦泽和他的司法调查团队花了一年多的时间，翻阅了大量的全球公司记录和法律文件，来揭露隐藏的交易，中共的相关人员会竭尽全力掩盖这些交易，希望永远不被曝光。正如施韦泽过去在《腐败》、《秘密帝国》和《克林顿·卡什》书中爆炸性地披露的人物介绍所表明的那样，在政治光谱的两端都有坏演员。
 
-13、江曾王孟高调纪念邓小平南巡讲话，是提醒习及时刹车；
+详尽的研究、清晰的叙述，令人毛骨悚然，《人脏俱在》将揭露中共政府和美国精英之间的权力关系。
 
-14、CCP导致排华问题，CCP ≠中国，CCP ≠中国人，是我们新中国联邦最大难题之一；
+相信彼得·施韦泽通过文贵先生直接或间接地得到了很多的资料及线索，这是让美国，让世界了解中共必要的途径，通过了解中共的龌龊手段，以及对文明世界的侵蚀，人们才能真正意识到自己的危险处境，才能觉醒。
 
-15、冬奥会后习近平很大可能急刹车宣布大赦，政治大转弯；
+大觉醒即将到来，中共你完了！
 
-16、脱交后，中国共护照都会作废，回国有可能性，出来就没有可能了；
+有关链接：
 
-17、违反锁币规定套现的人，联盟委员会采取法律行动；
+【1】[https://www.breitbart.com/podcast/2022/01/20/mark-levin-peter-schweizer-red-handed-far-best-book/](https://www.breitbart.com/podcast/2022/01/20/mark-levin-peter-schweizer-red-handed-far-best-book/)
 
-18、昨天为止，没有签协议和锁币的，会被起诉，取消投资资格；
+【2】[https://www.amazon.com/Red-Handed-American-Elites-Helping-China/dp/0063061147/?tag=breitbart035-20](https://www.amazon.com/Red-Handed-American-Elites-Helping-China/dp/0063061147/?tag=breitbart035-20)
 
-19、hpay推出未来的热钱包和冷钱包供我们战友们随意按需使用（热-银行，冷-自己家保险箱）；
+**华盛顿DC 望七星**
 
-20、七哥正在投资外太空数字货币计划，登月计划，核心的数据放在月球，还有卫星式的；
-
-21、数字银行：战友会成立5-6家公司和大股东一样的话语权。战友还没有付钱，已经获得2个银行，多家基金牌照；
-
-**注：大直播音讯正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**编辑发布  水星**
 
  
 
