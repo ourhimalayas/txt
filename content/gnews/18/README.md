@@ -2,27 +2,33 @@
 ---
 
 
-## 七哥金句（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1888193/)
+## 大直播&#8212;中共屠刀下的八弟与六四英雄亡灵让七哥下定决心灭共！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888259/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+七哥在2022年1月17日大直播中再次谈到八弟和“六四”民族英雄。七哥因鼎力支持“八九六四”学生运动而被中共恶警抓捕，差一周就满18岁的八弟因保护七嫂和小郭强而身中中共恶警两枪，警察和医生见死不救，疼了近三天失血而死。七哥在清风看守所亲眼目睹60多个狱友、“六四”民族英雄依次被中共枪毙，并遭受中共狱警惨无人道的肉体和精神上的摧残和虐待，这些家仇国恨让七哥吃下了灭共的定心丸。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获-2.png)
+悟透人生和人性并心怀天下的七哥，每当想到被中共屠杀的八弟、六四英雄、新疆与西藏同胞，以及自焚的藏人和自杀的杨改兰等被冤死和屈死的灵魂既不能上天堂，也不能投胎人间，只能继续游荡在地狱里而永无抬头的机会时，七哥就心如刀绞并坚定了灭共的决心。
 
-Gclub就是所有的新中国联邦人走向全世界的绝对的一张，一个护照，一个身份证一个证明你身份的，还有走入到别人，你根本一个人无法完成并打开一道门的那把钥匙。
+在当下中共用病毒和疫苗荼毒全世界的巨大灾难中，灭共成了七哥最幸福、最快乐的事情！七哥带领的爆料革命成了唤醒和拯救人类唯一的核心力量，决不向中共等邪恶势力低头，直到找到属于我们的公平和正义！
 
-培养好人的一把钥匙，而且跟世界最高的文明接轨的一把钥匙。
+参考链接：
 
-并且不能掺和任何商业，不能掺和任何政治。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句5-.jpg)
-*发布：*tianzhihuan
+- [2022年1月17日 文贵大直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

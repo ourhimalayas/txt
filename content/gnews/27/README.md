@@ -2,26 +2,26 @@
 ---
 
 
-## FBI和辉瑞联手阻挠记者调查疫苗真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888057/)
+## 捷克取消疫苗强制计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888058/)
 
-作者：银河系农场 – 骄子
+作者：纽约磐石农场 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据司法观察1月18日消息，联邦调查局FBI和辉瑞制药联手，企图阻扰非营利性调查性新闻组织-“真相工程”记者调查疫苗真相。
+1月19日，新上任的捷克总理彼得·菲亚拉表示，政府正在取消上届政府提出的、为 60 岁及以上的人强制接种中共病毒疫苗的计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-12.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-15.jpg)
 
-此前，真相工程发布了针对辉瑞制药的一系列卧底视频。在答复信息自由法案（FOIA）请求时，联邦调查局（FBI）告诉司法观察，在针对真相工程的调查档案中，有联邦调查局与辉瑞公司的通信记录。但在1月6日，联邦调查局却拒绝披露所有关于联邦调查局官员与辉瑞公司之间、关于真相工程来往通信的请求。
+此前，前捷克政府曾宣布，从3月1日起，将为卫生工作者、警察、消防员和军队强制接种疫苗。但在当天的记者采访中，菲亚拉强调，政府不想分裂社会，没有人会被强迫接种疫苗。
 
 参考链接：
 
-- [Judicial Watch: FBI Letter Shows Pfizer Tied to Investigative File Targeting Project Veritas](https://www.thegatewaypundit.com/2022/01/judicial-watch-fbi-letter-shows-pfizer-tied-investigative-file-targeting-project-veritas/)
+- [Czechs Scrap Plan For Mandatory Covid Vaccines](https://www.barrons.com/amp/news/czechs-scrap-plan-for-mandatory-covid-vaccines-01642609510)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文特
-编辑：文特/雪梨
+总编：飞虹
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

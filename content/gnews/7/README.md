@@ -2,29 +2,19 @@
 ---
 
 
-## 七哥金句（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1888261/)
+## 上海合作组织的目的 东欧 西欧都是中共的地盘
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1888336/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-不是新中国联邦证明了我们多伟大，你要一个最简单的比喻，我喜欢动物世界，非洲大草原。
+1月12日，郭文贵先生在GTV大直播指出：
 
-你到这个坦桑尼亚大草原大迁移时，你看看狮子。 它会在乎蛇和鬣狗的看法吗？
+中共在杜尚别会议的目的是告诉西方国家，上合组织是中亚、东亚、西欧、北欧、东欧和平的基础，是属于中共的地盘。昆仑山、帕米尔高原、西藏是共产党与俄罗斯利益分配的牺牲品。
 
-鬣狗可热闹了，一群一群的，狮子从来都不会鸟它, 直接冲过去就按倒脖子给它扭断了。
-
-狮子永远是大草原的王。豹子叫二哥是吧。三哥， 叫鬣狗，你觉得改变我这规则吗？啊，当你是狮子王的时候你注定就是孤独。而且你要享受这种孤独, 珍惜这种孤独，因为你与众不同。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句8-.jpg)
-*发布：*tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
