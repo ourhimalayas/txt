@@ -2,26 +2,44 @@
 ---
 
 
-## 喜联储会成为最有实力的世界金融领头者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1887299/)
+## 2月2号开庭将把属于Buffalock的Lady May判成七哥的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887428/)
 
-#### **撰稿：**Hakunamatata
+G-TV视频链接：[https://gtv.org/video/id=61e9f1eb87664c47acd79024](https://gtv.org/video/id=61e9f1eb87664c47acd79024)
 
-#### **责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1634.png)图片来源： twitter
-据多家主流媒体报道，美联储(Federal Reserve)在考虑创建自己的数字货币方面迈出了重要的一步。他们表示，这个举动有助于确保美元在世界舞台上的主导地位。因为美联储正积极应对快速增长的私人加密货币体系和其他国家发行的货币。央行对于发行这种货币并没有做出明确结论。央行表示：在没有白宫和国会支持的情况下，他们不会继续发行，所以短期内不太可能发行一种数字形式的美元。
+**郭文贵先生**：Hold on，这不是最重要的，PAG更牛的，就像当时18楼的拥有者，是个BVI公司，这个BVI公司，法官就认为是你郭文贵控制的，所以是你的，就判了18楼归他们了。
 
-可是周四发布的一份35页的讨论报告中显示，以一种政府支持的货币(央行数字货币，简称CBDC)，标志着美联储在寻求深入研究数字资产之际采取了迄今为止最重要的行动。美联储在报告中表示： CBDC的推出代表美国货币的一项重大创新。希望国会通过立法授权。随后将在5月20日之前听取公众的意见。该联储同时概述了由美国支持的货币可能带来的一系列好处，包括确保美元在国际金融体系中保持的领先地位。央行还提及：CBDC可以改善跨境支付，提高金融包容性，并放宽美元在新技术中的使用。
+这个船的公司BVI是哪呢？也是个BVI公司。
 
-不过，央行也对可能产生的负面影响发出了警告，包括抽走传统银行的存款，以及对金融机构造成的挤兑。另一个问题即因为政府可以直接看到公民个人的交易，所以称美联储：“需要在保护消费者隐私权和提供遏制犯罪活动所需的透明度之间取得适当的平衡。”此外，这个新系统的基础设施可能成为黑客的目标。因此，保护美联储的CBDC可能“很艰难”，报告提到因为它将“比现有支付服务有更多的切入点”。
+2月2号将有一个重大的开庭，开庭什么呢？上一次你看，就这一次判定他强烈违反职业道德的时候还说到了什么？说关于Lady May的这个藐视法庭，还有一个船属不属于Miles Guo的，2月2号开庭。我的预感2月2号会判我们大输，他会判什么？让你船又是你，又是你郭文贵的了，就不是你家族的，你女儿的。然后再判什么？那个BVI公司叫Buffalock也是你Miles的。
 
-一美联储官员跟记者提到：美联储将在评论截止日期后评估下一阶段的措施。但他没有提供最终何时实施数字美元的时间表。央行称，他们将依靠私营部门中介机构，例如传统的贷款机构，或是非银行机构去提供账户并为CBDC支付提供便利，而不仅仅只是自己承担这所有的角色。美联储推动这一数字美元的举措令华尔街感到了担忧，世界各地的央行，尤其是中共国的人民银行(pboc)，正在推进自己的数字货币。
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-中国今年加大了数字人民币的试点力度，预计将在2月份的北京冬奥会上推广使用，一些专家称：中共国和其他数字货币的早期使用者可能会为其他国家制定标准，部分原因是不同国家的数字货币系统最终需要协调跨境支付。这让美联储的这一步行动变得很重要，即使美元数字美元多年没有发行，因为许多国家会寻求定制自己的系统来与美国进行金融方面的整合。
+编辑整理：Jacques；
 
-然而在美联储还没有发行数字美元前，喜马拉雅联储已经推出了自己的稳定币，这些稳定币持有储备以确保这些货币可以在一对一的基础上兑换成法定货币。喜联储将成为未来数字货币，和金融领域的领头者。
+字幕文件制作：小满；
 
-原文链接：[1](https://www.wsj.com/articles/fed-launches-review-of-possible-central-bank-digital-currency-11642706158) [2](https://www.bloomberg.com/news/articles/2022-01-20/fed-takes-key-step-forward-in-deciding-on-digital-coin-issuance)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

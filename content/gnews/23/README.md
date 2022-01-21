@@ -2,50 +2,42 @@
 ---
 
 
-## 法国不允许未接种新冠疫苗的外国运动员参加该国比赛
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1887217/)
+## 太平联盟案的核心是把不属于七哥的房子和船判成七哥的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887331/)
 
-作者：银河系农场—骄子
+G-TV视频链接：[https://gtv.org/video/id=61e9f13387664c47acd78ff0](https://gtv.org/video/id=61e9f13387664c47acd78ff0)
 
+**郭文贵先生**：那么这个案子的荒唐在哪里知道了吗？看到刚才核心了吗？这个案子当法官判决这个房子的时候说房子就是你的，就判定是你的了。没办法，人家这个房子拥有者，家族基金宣布破产，宣布破产之后，罚款，又是创造了纽约第一，一个多亿，就3000万的个人担保成了1.25亿，还不拉倒呢，这还在计算中呢，1.25亿。现在这个房子在拍卖中，不可逆转一定会被拍卖。那么这时候又来了，找船了，Lady May这个船也是你的，这个船第一天都叫Lady May，从来没叫过Gentleman Guo ，Miles是吧？大家都知道它叫Lady May。钱哪儿来的？谁汇的钱？谁持有的公司？完全不管。
 
+而且大家记住，原来这个船的公司基金是跟我们的合伙人曲国娇同时拥有，曲国娇是在这个时候被抓回大陆的，你们要记住个重点。就共产党它为什么要把这个船的当时的主人、老板，这个公司的拥有者曲国娇绑回大陆？谁有这个本事？法官不管。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-15.jpg)
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
+编辑整理：Jacques；
 
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
-日前法国宣布未接种中共病毒疫苗的运动员不得参加本国的体育比赛。据悉六国国际橄榄球比赛将于2月开赛，有三场比赛场地在法国巴黎，涉及英、法、意大利、爱尔兰的运动员。其中英国中锋Henry Slade由于个人原因未接种中共病毒疫苗。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-20-5.jpg)图片来源网络
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-据悉前几周法国对未接种中共病毒疫苗的人进行了严厉惩罚，除了限制各种公共场所及设施的使用，还包括已接种后若不在7个月之内补打下一针的将会和未接种任何一针中共病毒疫苗的人享受同等待遇。目前法国受此限制的大约有56万人。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-参考链接：
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[Djokovic 2.0? – France to Ban Unvaxxed Foreign Athletes from Competition](https://www.breitbart.com/europe/2022/01/18/djokovic-2-0-france-to-ban-unvaxxed-foreign-athletes-from-competition/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![This image has an empty alt attribute; its file name is Jan-7.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-总编: Irene木木
-
-校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-15.jpg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
