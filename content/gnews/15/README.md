@@ -2,36 +2,34 @@
 ---
 
 
-## 法国国民议会称中共对维吾尔人的待遇是“种族灭绝”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891539/)
+## 有声|不完全财务披露福奇千万美元投资
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891565/)
 
-**编译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-8.png)档案 – 法国国民议会。 – VINCENT ISORE / ZUMA PRESS / CONTACTOPHOTO
-中共因涉嫌虐待以穆斯林为主的族裔群体而受到越来越多的批评，尽管中共国当局否认这些指控。法国国民议会周四通过了一项决议，谴责中国政府对待维吾尔族的做法是“种族灭绝”，这些提出决议的法国国民他们大多数居住在法国的西北部。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《纽约邮报》1月16日报道，新发布的记录显示，截至2020年底，福奇和妻子有1040万美元投资，包括230万美元的未实现收益，分别持有在各种共同基金中。
 
-法国议会下院为该决议开了绿灯，几乎所有议员都投了赞成票，69票赞成，只有一票反对。
+参议员罗杰-马歇尔（R-Kan）周五晚上公开发布了福奇2020年的财务。在周二的参议院程序中，他询问了福奇财务状况，福气当时低声骂他 “蠢货”。福奇2020年工资是43万4千312美元，2021年和2022年的工资仍未被公布。
 
-法国议会呼吁结束对这一群体的镇压，通过这一措施，敦促埃马克龙政府对中共国施加压力，同时宣布对维吾尔人的待遇为“种族灭绝”。
+原文链接：[不完全财务披露福奇千万美元投资](https://gnews.org/zh-hans/1875788/)
 
-法国贸易部长弗兰克-里斯特（Franck Riester）表示，从法律上宣布这一问题为“种族灭绝”不是政府的事，尽管他暗指严重侵犯人权。
+音频处理/发稿：Daxia
 
-里斯特表示，法国政府谴责中共政府对维吾尔人的虐待，呼吁结束这种虐待，并试图将这一问题列入国际议程。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-这种情况每天都在成为与中共进行国际外交的十字路口，随着北京的冬奥会即将到来，这种情况更加明显。
+**更多资讯，更多关注**
 
-从许多维吾尔人所在的新疆地区移民的公民讲述了离开中共国时，他们的权利受到的攻击，还被全球围捕，被抓捕者被送回集中营，被迫停止维吾尔族人自己的习俗。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-而中共指责这些维吾尔族团体是分裂主义，甚至指责他们是恐怖袭击的幕后黑手。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**新闻来源**：[europapress.es][La Asamblea Nacional francesa tilda de “genocidio” el trato de China hacia los uigures](https://www.europapress.es/internacional/noticia-asamblea-nacional-francesa-tilda-genocidio-trato-china-uigures-20220121014133.html)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

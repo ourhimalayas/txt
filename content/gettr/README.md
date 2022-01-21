@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/21/2022 10:51 PM (UTC)`
+
+1/21/2022 Miles Guo: Nawaz Sharif is in a good relationship with the Jiang Zemin family, and he has proved that the CCP has been bribing various state leaders around the world. Xi Jinping controls the Middle East, while the Jiang family controls both East Asia and South Asia. Hosting the Olympics at this moment would be suicidal for the CCP. The CCP’s “zero-COVID policy” has screwed up Xi, with himself being eradicated!<br/><br/>1/21/2022 文贵直播：谢里夫和江家好，他证明了中共在全球腐败各国领导人；习控制了中东，江家控制了东亚和南亚；中共这时候搞冬奥会是找死，清零政策已让习自己变成“0”！<br/>
+![img](https://media.gettr.com/group3/getter/2022/01/21/22/47706ee7-1ac9-c2b2-59af-0f2c9b2bb7bf/out.jpg)
+
+---
+
+`@miles 1/21/2022 10:47 PM (UTC)`
+
+1/21/2022 Miles Guo: The EU countries and the US may race to permanently close their embassies and consulates in Communist China, and that means decoupling with the CCP both economically and politically. Then the world will have no choice but to couple with the New Federal State of China and the Himalaya Exchange in terms of politics and economy, respectively.<br/><br/>1/21/2022 文贵直播：欧盟国家和美国可能会竞相永久关闭其在中共国的使领馆，这意味着跟中共政治、经济双脱钩；全世界将别无选择，在政治和经济上分别只能和新中国联邦与喜联储挂钩<br/>
+![img](https://media.gettr.com/group6/getter/2022/01/21/22/8596cb03-6e7d-520a-4593-6cb07bc4f6ce/out.jpg)
+
+---
+
 `@yueyue930606 1/21/2022 4:10 PM (UTC)`
 
 这个杨贝贝吃狗肉说味道不错。。。
@@ -138,20 +152,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1月20号衷心地，感谢亲爱的伟大的战友，制作的精美的万分感动的视频。😭😭😭😭😭😭😭😭🙏🙏🙏🙏🙏🙏🙏🙏🙏<br/>【思八弟忆往昔，英雄泪洒衣襟。 国恨家仇不报，枉活人世一遭。 邪魔恶党横行，百姓水深火热。 潘多魔盒开启，世界一片狼藉。 天选之子文贵，拔剑铲除红妖。 携新中国联邦，迎接太平盛世。 🙏🙏🌹🌹🌴🌴🌈🌈💫💫】
 ![img](https://media.gettr.com/group17/getter/2022/01/20/19/a9e0c29d-8537-7359-64d1-58caebc3dcab/out.jpg)
-
----
-
-`@miles 1/20/2022 3:15 PM (UTC)`
-
-1/19/2022 Miles Guo: The New Federal State of China is to launch an unprecedented decentralized insurance, which can overcome the shortcomings of traditional insurance and will be based upon the third-party regulated digital currency with 100% guaranteed payouts.<br/><br/>1/19/2022 文贵直播：新中国联邦将推出前所未有的去中心化保险，它克服了传统保险的弊端，以第3方监管的数字货币为基础并100%保证赔付！<br/>
-![img](https://media.gettr.com/group22/getter/2022/01/20/15/1b9eaba0-583b-742b-00d9-a4b956e7efd6/out.jpg)
-
----
-
-`@miles 1/20/2022 2:09 PM (UTC)`
-
-1月20号：尊敬的战友们好……共产党正在被冬季奥林匹克运动会．房地产崩盘．内部政治斗争……释放观状病毒等等一系列的事情埋葬中！希望中国同胞们不要成为他们的殉葬品，一切都已经开始！
-![img](https://media.gettr.com/group10/getter/2022/01/20/14/462408f8-fff3-4ad5-571f-a16354c071ec/out.jpg)
 
 ---
 
