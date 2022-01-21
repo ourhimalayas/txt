@@ -2,22 +2,22 @@
 ---
 
 
-## 特鲁多继续残酷推行儿童疫苗接种计划
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1887167/)
+## CCP要干掉美元
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1887261/)
 
-采编：     文莱            编译撰稿：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-7.jpg)
-据加拿大自媒体《后千禧年》1月20日报道，最新官方数据显示，目前在符合接种条件的加拿大人中仅有35%的人已经注射了强化剂疫苗。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CCP要干掉美元-.jpg)
+一个超级富豪，他说美国某种意义上，美元就是个骗局。他说，哪国的法币不是骗局呢？美国只是骗局，给你们最后的残渣就是剩余价值，还是稍微有一点儿时间比较长， 骗局有规律。然后他说，Miles你是什么感受? 我说我今天告诉你，我说我跟班农先生120人在船上得出的结果是，美国有真正的国家最完美的体制和制度，但美国这个时候，很多人才，特别是华尔街，而且接下来病毒给美国带来的是大量的印钞票，通货膨胀、滞涨并存。最后，美元一定背锅，CCP暗地里一下给你打下来，CCP就想干掉美元。
 
-为此，加拿大卫生部长日前誓言，“新冠病毒”疫苗接种工作必须继续进行，直到全面覆盖所有人为止。总理特鲁多当天也敦促道，鉴于目前5至12岁儿童的接种率太低，必须加大力度让他们接种。同时表示其政府有足够的剂量给每个加拿大人都接种疫苗。
+*发布：开智则立*
 
-据悉，按照自由党政府的规定，加拿大人可以在完全接种2剂[辉瑞]或[莫德纳]疫苗之后的六个月内再次被注射加强剂。但近期该国的民意调查则显示，由于疫苗完全无法阻止“奥密克戎”疫情蔓延的事实已路人皆知，因此，当前大多数民众对当局继续接种加强剂疫苗的宣传，普遍持观望或不信任态度。
-
-校对编辑：硫酸羟氯喹64
-
-发稿： 苦尽甜来 (文來）
-
-[原文链接](https://thepostmillennial.com/just-35-percent-of-canadians-have-received-booster-so-far)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

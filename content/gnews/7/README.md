@@ -2,19 +2,22 @@
 ---
 
 
-## 我们不是慈善机构要自救
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1887195/)
+## 加拿大多数染疫住院患者已接种疫苗
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1887294/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+采编：文莱          编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-4.jpg)
+据加拿大媒体【真北方】1月18日报道，该国因感染“新冠病毒”而住院的大部分患者都已完全接种了该病毒疫苗。
 
-*发布：*Frank2021
+报道称，各省卫生部门近期公布的官方数据显示，目前在因感染“新冠病毒”而住院人数最多的六个省份中，除了[艾伯塔省]未接种疫苗的住院人数超过已接种人数外，安大略、魁北克、不列颠哥伦比亚等5省目前总共的4731名住院患者之中，未接种者所占比率为27%、部分接种者为5%，而完全接种者则约为68%。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据悉，加拿大目前有约80%的人口已完全接种了“新冠病毒”疫苗。同时，在当前全国疫情失控所导致的恐慌情绪中，当局借此机会正不遗余力地鼓噪各省民众，立即去接种疫苗加强剂。
+
+校对编辑：硫酸羟氯喹64
+
+发稿： 苦尽甜来 (文來）
+
+[原文链接](https://tnc.news/2022/01/18/majority-of-canadians-currently-hospitalized-are-fully-vaccinated-government-data-shows/)
 
  
 

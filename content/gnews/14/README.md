@@ -2,48 +2,24 @@
 ---
 
 
-## 共产党操作的全地球最大的案子的操盘手Edward Moss等
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887111/)
+## 加拿大卡车司机集结反击政府疫苗政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1887243/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e9ef3a87664c47acd78f2f](https://gtv.org/video/id=61e9ef3a87664c47acd78f2f)
+采编/编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image-6.jpg)
+据加拿大自媒体【真北方】1月20日报道，加拿大各地区的货运卡车司机正在自发集结一支前往渥太华的抗议车队，并以此敦促特鲁多当局立即终止现行的所有违宪疫苗政策。
 
-**郭文贵先生**：大家要记住：这是一个世界级的、一个法律上的一个黑洞的答案，较量者是一个人类上、地球上最大的共产党操作的一个案子，而且是在美利坚共和国，是在美国的最高法院，纽约最高法院来联系的。律师也是美国最顶尖的律师，每个律师事务所一年都是几亿美元的收入。
+报道称，以上车队集结的抗议活动是针对当局此前颁布的一项，要求所有进入加拿大的货运卡车司机在通过美加边境时，都必须出示“新冠病毒”疫苗完全接种证明，否则将无法通行的强制规定。
 
-Edward Moss，还有那个叫做Cahill，Cahill是华盛顿美国最大的律师事务所之一，一年可能是几亿、十几亿的营业额。Cahill的Bondi（Bradley J. Bondi）就是曾经的G-TV的律师，代表战友们的。他是原来Elon Musk，代表Elon Musk打SEC的律师，Edward Moss。
+据悉，目前加拿大卡车司机的疫苗接种率约为80%，而美国的则约为50%。由于特鲁多和拜登政府都实施了相同的疫苗政策，因此，在当前美加两国都面临供应链、劳动力和通胀危机的情况下，货车司机的进一步短缺将极有可能导致物流供应链的断裂。
 
-就是这个叫做Bondi，这个Bondi，（所在事务所）叫Cahill。
+尽管加拿大有部分超市和杂货店由于卡车司机的抗议集结而被迫关闭，但示威活动的组织者表示，人们将不再允许专治政府继续肆无忌惮地借疫情之机剥夺加拿大人的基本权利和自由。
 
-这个叫Edward Moss。这都是杀手级的人物，在法律界。两个人竟然被这次判决为严重违反职业道德，Edward Moss——五年前这个案子就是Edward Moss的代理，他从原来的律师事务所移到了Cahill。Cahill谁带去呢？就是Bondi。
+校对编辑：硫酸羟氯喹64
 
-Bondi原来是代表整个，好几个，包括跟我有法律沟通、法律建议，他竟然视这与不顾，要求和他勾结在一起。Edward Moss从过去呆了五年的律师事务所——曼哈顿最大之一，移到了Cahill，和Bondi——当事人的法律顾问，原来（给咱有法律）建议，要同时在弄咱。这事实在是看不过眼了，而且美国最高的三家对律师的职业道德评估机构做出了判断，第三方说：他强烈违反了职业道德，这才把他给踢出局了。
+发稿： 苦尽甜来 (文來）
 
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[原文链接](https://tnc.news/2022/01/20/canadian-truckers-organizing-convoy-to-end-vaccine-mandates/)
 
  
 

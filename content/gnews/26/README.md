@@ -2,13 +2,11 @@
 ---
 
 
-## 捷克新政府废除中共病毒疫苗强制计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1886884/)
+## 1/20/2022 文贵盖特：为了让俄罗斯和几个小国来给冬奥会捧场，中共挥霍了几万亿
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1886997/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220121-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
