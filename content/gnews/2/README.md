@@ -2,49 +2,55 @@
 ---
 
 
-## 美卡车司机加入加拿大卡车司机大罢工
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891091/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891110/)
 
-编译：Jenny Ball
+翻译: wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Truckers-lined-up-1200x775-700x420-1.jpg)华盛顿拍摄的档案照片中可以看到卡车司机的抗议。（奥利维尔·杜列里/法新社通过盖蒂图片社）
+您若想了解全文报导内容，请点击标题链接
 
-继加拿大公共卫生署宣布，外国卡车司机从 1 月 15 日开始，必须完全接种疫苗后才能进入加拿大，美国职业安全与健康管理局 (OSHA) 宣布，从 1 月 22 日开始，对非美国国家卡车司机进入美国采取类似加拿大的要求，成千上万的卡车司机决定抗议，并将在渥太华聚集，试图阻止这些决定。
+（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
 
-据主办方“加拿大团结和卡车司机联合”称，加拿大卡车司机和全国各地的相关公民，决定采取行动，并计划开往加拿大议会，目的是让数千辆汽车驶入议会，并停在那里抗议。
+1. [洛杉矶新西部特许学校(New West Charter School LA )被抓到虐待未接种疫苗的年轻女孩](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
 
-类似的行动发生在 1 月 17 日，当时一队卡车司机在靠近美加边境的曼尼托巴省艾默生抗议强制令。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1725.png)图片来源:thegatewaypundit.com
 
-美国卡车司机周二开始组织自己的抵抗。
+据《门户网》2022年1月18日电，四名就读 New West Charter LA 的女学生因选择不接种中共病毒（COVID19）疫苗，而受到虐待；这些未接种疫苗的女孩被虐待包括威胁停学，不准上课，不准坐椅子，被迫坐在警戒带的人行道上，并且不被允许使用学校的公共厕所，外加学校警察在警戒带外守卫着。
 
-帕蒂·艾沃瑞（Patty Every）是新斯科舍省的企业主，也是大西洋自由战士的创始人。
+2. [免疫学圣地澳大利亚的耻辱——驱逐拒绝接种疫苗的男网运动员诺瓦克·德约科维奇](https://childrenshealthdefense.org/defender/australian-open-novak-djokovic-immune-covid/)
 
-“通过这次大流行，我看到我们的政府慢慢地破坏了我们的经济、心理健康和这个国家未来的稳定，” 艾沃瑞告诉《大纪元》。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1723.png)图片来源:thegatewaypundit.com
 
-“他们继续非法强加给人民的命令，造成的损害比大流行本身要大得多。加拿大政府继续通过媒体，对加拿大人民使用污秽词语，煽动仇恨打压那些决定行使自己的权利对疫苗说不的人。因此，针对未接种疫苗者的仇恨犯罪开始发生。当我们的领导人正在这样做时，我们该怎么做才能阻止这种情况？加拿大人民受够了。起初，我们很自律，但是看看我们的自律给我们带来了什么？现在是我们站出来保护我们国家所代表的价值的时候了：自由。我们是**“**真正的北方人，强大而自由**”**，加拿大人民已准备好保护它。
+据《捍卫者》2022年1月19日电，2021年12月从COVID19感染中康复的德约科维奇（Djokovic），对COVID19具有相当自然免疫力（无需接种中共病毒疫苗）；澳大利亚政府凌驾于免疫学科学和医学伦理的原则之上，以拒绝接种疫苗为由，把德约科维奇驱逐出澳大利亚边境，不予参加赛事。
 
-“[一位美国组织者] 将发起一场名为‘国家团结起来争取自由’的运动，加拿大和美国将联合起来互相帮助，”艾沃瑞说，他无法控制自己的情绪。 “我们希望通过这样做，其他国家将效仿并相互加入。
+3. [在最高法院推翻拜登OSHA授权后，星巴克取消了疫苗强制要求](https://www.thegatewaypundit.com/2022/01/starbucks-nixes-covid-vaccine-requirement-supreme-court-strikes-biden-osha-mandate/)
 
-从 1 月 23 日开始，“成千上万的车辆”、卡车司机和普通车辆将从“国家的每个角落”驶向首都。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1721.png)图片来源:thegatewaypundit.com
 
-“加拿大各地的多个自由组织联合起来表明立场，”她说。
+据《门户网》2022年1月19日电，美国最高法院驳回了拜登政府关于拥有100名以上员工的美国公司进行全面疫苗授权计划的要求；星巴克首席运营官约翰·卡尔弗（John Culver）周二（18日）尊重法院的裁决，取消强制疫苗规定；通用电气公司（General Electric Co）上周五暂停了对其数十万员工的疫苗强制令。
 
-每个州或省的抗议者，将于 1 月 28 日，在特定时间出发到达首都。根据艾沃瑞的说法，已经有至少 2,000 辆卡车在指定的开始日期之前开始前往渥太华。
+4. [草根组织带头攻击拜登对联邦工作人员的疫苗授权](https://freebeacon.com/courts/grassroots-group-leads-attack-on-biden-vaccine-mandate-for-federal-workers/)
 
-（评论：加油，保护自由的人们！向加拿大卡车司机和美国卡车司机致敬！）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195448.jpg)图片来源 : freebeacon.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CP2858297-1200x683-1.jpg)使用不列颠哥伦比亚省萨里市太平洋公路交叉口的卡车司机，由于 2001 年 9 月 12 日在所有过境点加强安全检查，温哥华南部面临长达五个小时的等待。（加拿大新闻/Richard Lam）
+据《自由灯塔》2022年1月18日电，联邦医疗自由组织（Feds for Medical Freedom）是一个新的草根组织（grassroots organization），其背后得到了几乎所有美国联邦政府实体以及外交机构和军事设施的工人的支持；联邦医疗自由组织代表111万名未接种疫苗的联邦雇员和联邦承包商，总共700万人，在美国各地法院对拜登疫苗强制令发动控诉。
 
-参考资料：[theepochtimes][Thousands of Canadian Truckers to Strike Over Vaccine Mandates, US Truckers to Join](https://www.theepochtimes.com/mkt_morningbrief/thousands-of-canadian-truckers-to-strike-over-vaccine-mandates-us-truckers-to-join_4226302.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2022-01-21&amp;mktids=64936f3d218e74cee3f2732ef5bf45c5&amp;est=kIM+bn6yC/ykgYPhSlnIxsfW00oDj6LeeXgrgs3tLMc8HYk9XqXuDpKC2WF1U8Y4jSyaCg==)
+5. [澳大利亚可能很快就会为 2900 万只宠物接种中共病毒疫苗](https://insiderpaper.com/australia-may-soon-vaccinate-29-million-pets-against-covid-report/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195628.jpg)图片来源 : insiderpaper.com
+
+据《内幕消息》2022年1月19日电，悉尼南十字星宠物医院的科瓦克（Sam Kovac）博士兽医正在努力与澳大利亚农药和兽药管理局合作，为澳大利亚的（2900万）宠物接种俄罗斯生产的疫苗；香港政府因一家宠物店的仓鼠受体（智飞疫苗引用中国仓鼠卵巢）可体外传播中共病毒，打算屠杀数以千计的小动物。
+
+6. [法国引进第五种疫苗Novavax](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220118-%E6%B3%95%E5%9B%BD%E5%BC%95%E8%BF%9B%E7%AC%AC%E4%BA%94%E7%A7%8D%E7%96%AB%E8%8B%97novavax)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-200410.jpg)图片来源: www.rfi.fr
+据《法广网》2022年1月18日电，法国政府周二(18r日)宣布，刚刚获得法国卫生当局（HAS）绿灯的（美国实验室研发）Novavax抗新冠病毒疫苗将在2月21日时抵达法国;Novavax将是在法国接种的第五种疫苗；Novavax疫苗采用了一种更传统的技术，与研制百日咳疫苗的技术类似。
 
 * * *
 
-*审核：文乐
+*审核：阿伯塔
 校对：信心满满
-发稿：信心的选择*
-
+发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

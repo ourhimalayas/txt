@@ -18,107 +18,107 @@
 ### [文贵爆料 1.21：重提邓南巡讲话，江派欲扶大厦于将倾](/content/gnews/1/README.md)
  ` 秘密翻译组-原创组`
 
-### [美卡车司机加入加拿大卡车司机大罢工](/content/gnews/2/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [德约科维奇夫妇拥有开发治疗COVID-19的生物公司股份](/content/gnews/3/README.md)
+### [美卡车司机加入加拿大卡车司机大罢工](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [边境官员查获中共国造的假冒FBI徽章](/content/gnews/4/README.md)
+### [德约科维奇夫妇拥有开发治疗COVID-19的生物公司股份](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [金灿荣吹嘘中共党卫军千里之内无对手](/content/gnews/5/README.md)
+### [边境官员查获中共国造的假冒FBI徽章](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [金灿荣吹嘘中共党卫军千里之内无对手](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒去了反共力量的活动中心——哥伦比亚](/content/gnews/6/README.md)
+### [杰森·米勒去了反共力量的活动中心——哥伦比亚](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [彼得·施韦泽的新书揭美精英渴望帮中共称霸](/content/gnews/7/README.md)
+### [彼得·施韦泽的新书揭美精英渴望帮中共称霸](/content/gnews/8/README.md)
  ` 华盛顿DC-Russian`
 
-### [欧美正竞相永久关闭驻中共国大使馆，西方开启与中共政治经济大脱钩](/content/gnews/8/README.md)
+### [欧美正竞相永久关闭驻中共国大使馆，西方开启与中共政治经济大脱钩](/content/gnews/9/README.md)
  ` YALUN 亚伦`
 
-### [世界上第一艘“液化氢气运输船”抵达澳大利亚，成为去碳化的一张王牌](/content/gnews/9/README.md)
+### [世界上第一艘“液化氢气运输船”抵达澳大利亚，成为去碳化的一张王牌](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵大直播要点（2022年1月21日）](/content/gnews/10/README.md)
+### [文贵大直播要点（2022年1月21日）](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [1/21银河快讯：日本商工会长呼吁执行疫苗护照；JR东日本将提供停薪留职制度](/content/gnews/11/README.md)
+### [1/21银河快讯：日本商工会长呼吁执行疫苗护照；JR东日本将提供停薪留职制度](/content/gnews/12/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2022年1月21日文贵先生直播摘要及音频—银河系农场](/content/gnews/12/README.md)
+### [2022年1月21日文贵先生直播摘要及音频—银河系农场](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中日财经爆│夜壶再现，密集救市就能避免经济崩盘？](/content/gnews/13/README.md)
+### [中日财经爆│夜壶再现，密集救市就能避免经济崩盘？](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [MV版Hcoin To the Moon上线44天第30次位列澳门iTunes热门MV榜首](/content/gnews/14/README.md)
+### [MV版Hcoin To the Moon上线44天第30次位列澳门iTunes热门MV榜首](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [Omicron将COVID的死亡人数推向每天2,000人](/content/gnews/15/README.md)
+### [Omicron将COVID的死亡人数推向每天2,000人](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [オーストラリア、すでに、子供3人が中共ワクチンで死亡](/content/gnews/16/README.md)
+### [オーストラリア、すでに、子供3人が中共ワクチンで死亡](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [什么是新世界秩序？《解密矩阵01》里，人类被囚进母体变成电池被奴役的故事](/content/gnews/17/README.md)
+### [什么是新世界秩序？《解密矩阵01》里，人类被囚进母体变成电池被奴役的故事](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [鲍里斯-约翰逊取消了英格兰的COVID任务——“我们将相信英国人民的判断力”](/content/gnews/18/README.md)
+### [鲍里斯-约翰逊取消了英格兰的COVID任务——“我们将相信英国人民的判断力”](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/19/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [全球疫情更新（比较各国的最新疫苗政策）](/content/gnews/20/README.md)
+### [全球疫情更新（比较各国的最新疫苗政策）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共洗脑，只需要画1个图形](/content/gnews/21/README.md)
+### [中共洗脑，只需要画1个图形](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [非政府组织保护卫士称中共迫使海外数千人回国](/content/gnews/22/README.md)
+### [非政府组织保护卫士称中共迫使海外数千人回国](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2022年1月21日早](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2022年1月21日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [奥地利议会正式批准成人CCP病毒疫苗强制法令](/content/gnews/24/README.md)
+### [奥地利议会正式批准成人CCP病毒疫苗强制法令](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [加州允许12岁及以上青少年绕开父母许可进行疫苗注射](/content/gnews/25/README.md)
+### [加州允许12岁及以上青少年绕开父母许可进行疫苗注射](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [法国国民会议认定中共对新疆进行种族灭绝](/content/gnews/26/README.md)
+### [法国国民会议认定中共对新疆进行种族灭绝](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【Michael.Tonny專欄】CCP不僅威脅全人類 同時威脅所有物種！](/content/gnews/27/README.md)
+### [【Michael.Tonny專欄】CCP不僅威脅全人類 同時威脅所有物種！](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`
 
-### [访澳国际旅客将被允许使用快速抗原测试代替PCR检测](/content/gnews/28/README.md)
+### [访澳国际旅客将被允许使用快速抗原测试代替PCR检测](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [一印度母亲就其儿子死于阿斯利康疫苗向印度政府和比尔·盖茨提起诉讼](/content/gnews/29/README.md)
+### [一印度母亲就其儿子死于阿斯利康疫苗向印度政府和比尔·盖茨提起诉讼](/content/gnews/30/README.md)
  ` 首尔天池农场`
 
-### [有声|美国多数孔子学院遭关闭 数量骤降](/content/gnews/30/README.md)
+### [有声|美国多数孔子学院遭关闭 数量骤降](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|美国以国家安全为由审查阿里巴巴云业务](/content/gnews/31/README.md)
+### [有声|美国以国家安全为由审查阿里巴巴云业务](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|专家称任何时候都应禁止给儿童接种新冠疫苗](/content/gnews/32/README.md)
+### [有声|专家称任何时候都应禁止给儿童接种新冠疫苗](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/33/README.md)
+### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
 
-### [奥园集团表示不会支付债券暗示违约迫在眉睫](/content/gnews/34/README.md)
+### [奥园集团表示不会支付债券暗示违约迫在眉睫](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [疫苗政策情况更新](/content/gnews/35/README.md)
- ` MilesGuoLivePPT`
 
 ### [极权主义妄想疯狂横行：病毒大流行、封锁、戒严令](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
