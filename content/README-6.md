@@ -16,6 +16,8 @@
 ---
 ## 頁面 6/39 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [39](/content/README-39.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[2021年8月22日郭文贵先生健腹轮健身盖特全文字版](/content/2021/08/20210822-1567933.md)
+
 [全文字版2021年8月21日郭文贵先生谈对疫苗的看法第一期第一集](/content/2021/08/20210821-1483943.md)
 
 [全文字版2021年8月21日郭先生第二次G-TV直播](/content/2021/08/20210821-1484599.md)
@@ -63,8 +65,6 @@
 [全文字版2021年7月30日郭文贵先生G-TV直播](/content/2021/07/20210730-1436734.md)
 
 [全文字版2021年7月29日郭文贵先生G-TV直播](/content/2021/07/20210729-1434186.md)
-
-[全文字版2021年7月24日郭文贵先生G-TV直播](/content/2021/07/20210724-1421496.md)
 
 
 ## 頁面 6/39 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [39](/content/README-39.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
