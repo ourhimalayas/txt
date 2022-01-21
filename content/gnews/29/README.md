@@ -2,41 +2,40 @@
 ---
 
 
-## 美国多所大学反对疫苗加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888056/)
+## 四分之一奥米克戎病人出现脑雾症状
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1888160/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国媒体1月19日报道，美国各大高校的学生们正在采取行动，抗议对在校大学生强制推行疫苗加强针。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-8.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)
 
-由乔治梅森大学法律专业学生罗伯特·费尔纳，发起的 “废除乔治梅森大学的疫苗加强针任务 “的请愿书，已经获得700多人的签署。费尔纳说，CDC并没有声称疫苗可以阻止感染和传播，这不是关于医学疗效的政策，而是强迫学生放弃身体的自主权利，并表示要求学生在45天内接种第三针毫无道理。
-
-在斯坦福大学，已经有超过1600人签署了一份反对该校于1月底生效的加强针命令的请愿书。
-
-康奈尔大学近1000名学生、家长、教育工作者和校友签署了一封公开信，反对加强针。信中强调，越来越多的证据表明，疫苗对年轻人罹患心肌炎、心包炎存在严重风险。
-
-芝加哥大学的学生也加入了这场抗争。截至18日晚上，已有300人签署了请愿书。学生们已经意识到疫苗对健康的影响。
-
-参考链接：
-
-- [College students nationwide protest COVID booster mandates](https://www.thecollegefix.com/college-students-nationwide-protest-covid-booster-mandates/)
+图片来源：雅典娜设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**整理：Eileen（围剿维尼熊）
+编辑：小红帽 **
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+据《联合新闻网》1月20日报道，奥米克戎（Omicron）肆虐全球，不少专家认为奥米克戎不会导致重症，可以将其视为流感或者感冒，至于是否会留下后遗症，仍有待商榷。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+最新研究指出，约四分之一的奥米克戎病人出现“脑雾”症状，严重时可能影响工作能力、日常生活的专注度和记忆力等。
+
+一个英国应用程式“ZOE新型冠状病毒疾病症状研究”（ZOE COVID Symptom Study）整理出奥米克戎症状除了流鼻水、头痛、疲劳、打喷嚏等感冒症状外，还发现每四个人当中，就有一人出现脑雾症状。
+
+脑雾会出现失忆、思维混乱、注意力无法集中、头晕和健忘等症状。有康复者表示脑雾影响了其工作状态和日常生活。
+
+纽约一项最新研究指，脑雾症状平均会持续约7个月，而且不分年龄且恐影响深远。
+
+新闻链接：[Omicron多輕症沒在怕？四分之一染疫者出現「腦霧」症狀](https://udn.com/news/story/121707/6046770?from=udn-catelistnews_ch2)
+
+*发布：**盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

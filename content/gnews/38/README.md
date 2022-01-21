@@ -2,28 +2,36 @@
 ---
 
 
-## 中日财经爆┃美联储发表官方数字美元白皮书
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887569/)
+## 澳洲大利亚计划恢复学校面授课程
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1887979/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-31.jpg)[图片来源](https://www.reuters.com/business/finance/boston-feds-first-look-digital-us-dollar-nearly-done-official-says-2021-09-29/)
-美国联邦储备委员会(FED/美联储)在周四(1月20日）发布的一份讨论文件中称，创建官方数字美元可能会加快支付速度，并为家庭提供一个安全的选择，但这也会带来金融稳定风险和隐私问题。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-该报告没有提出政策建议，也没有就美联储在是否推出央行数字货币(CBDC)方面的立场发出明确信号。此外，美联储表示，“如果没有行政部门和国会的明确支持，最理想的方式是通过一项具体的授权法律”，它将不会创建央行数字货币。
+整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-美联储表示，挑战包括维持金融稳定，确保数字美元将是“现有支付手段的补充”。在启动CBDC之前，美联储还需要解决一些重大的政策问题，比如确保CBDC不会侵犯美国人的隐私，以及政府保持其“打击非法金融的能力”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
-至关重要的一点是，如果CBDC通过当前的金融体系“中介”运作，将“最适合”美国的需求，这意味着个人无需在美联储直接拥有CBDC账户。这一做法得到了一些民主党人的支持，他们表示，数字货币可以帮助无银行账户的人。
 
-不过，美联储官员说，他们不排除任何可能性。美联储将在120天内通过在线表格收集对该文件的意见。
+据《澳大利亚人报》1月20日报道，澳洲总理Scott Morrison宣布，全国内阁同意保留目前的新冠病毒（Covid-19）隔离设置。然而，根据国家最高医疗咨询小组的建议，将不改变七天的隔离要求。
 
-消息来源:
+Morrison先生还宣布保留目前对必要劳动力与病例密切接触后的安排，不扩大放宽隔离限制的必要行业的名单。
 
-[焦点：美联储发表官方数字美元白皮书 陈述利弊但未提出政策建议](https://cn.reuters.com/article/us-fed-digital-dollar-whitepaper-0121-idCNKBS2JV04B?il=0)
+另外，各州和领地的领导人同意按照全国统一的计划重开学校。各州领导人将在今天和明天宣布各自的计划。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+首席医疗官Paul Kelly表示，在去年6月至12月，新州儿童的17，000个Delta病例中，只有15例被送入重症监护室。这些数据令人鼓舞，将有助于平息父母对送孩子回学校的焦虑。
+
+参考链接：[周四：7天隔离不变，学校面授课程将恢复；新州30825例25死；维州21,996例15死](https://cn.theaustralian.com.au/2022/01/20/62648/)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
