@@ -2,43 +2,70 @@
 ---
 
 
-## FDA想75年才公布完疫苗数据却被法官大提速
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1886642/)
+## 汪建何许人也（ 一）
+` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1886736/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/V-2.jpg)yalibnan.com
-《汉尼蒂》（Hannity）1月18日发表文章，题目是“法官命令FDA：现在就公布辉瑞公司的中共（新冠）病毒数据。该案律师称‘这是透明度方面的一大胜利’”。
+————深挖中共
 
-全文如下：
+作者：流浪的阳光
 
-FDA一直在拖延发布中共病毒疫苗的数据，直到亚伦·西里（Aaron Siri）律师和“促进公共卫生和医疗专业人员透明度”（the Public Health and Medical Professionals for Transparency）组织，依据“信息自由法案”（FOIA，Freedom of Information Act）（向法庭）提交了相关请求后，现在，美国食品和药物管理局（FDA）的时间表可以提前一点了。
+我们今天聊一聊汪建，1954年，他出生在湖南湘西。1968年，汪建14岁被下放到农村做知青。从物质丰裕的部队大院到饥寒交迫的农村，最惨的时候，他饿到头晕眼花，只能吃老鼠和隔壁村的狗。 这就像8月1日文贵先生说的，所有的记忆都是文化大革命，所有的记忆都是四人帮⋯ 我们看看采访过他的记者是如何说的
 
-FDA每月必须发布55,000页数据，包括遗漏和修订的信息，而不是每月发布500页的数据。
 
-美国德克萨斯州北区地方法院的地方法官马克·皮特曼（Mark Pittman）站在了“促进公共卫生和医疗专业人员透明度”组织一边，要求提高透明度，拒绝了FDA要求推迟发布的请求，理由是疫苗数据具有“至高无上的公共重要性”。
 
-律师亚伦·西里就胜诉发表了以下声明：“这是透明度的巨大胜利，消除了联邦‘卫生’当局对独立科学家提供解决方案和解决当前疫苗计划严重问题所需数据的束缚——包括免疫力下降、疫苗对变异的病毒无法防护，以及CDC已证实的、 疫苗不能阻止传播等问题。”
 
-“任何人都不应该被胁迫接受不想要的医疗。” 他继续说，“政府除了以中共病毒疫苗强制令侵犯了人们的基本自由权利，这已经够糟糕了，政府还想隐藏数据，等到几乎所有今天活着的美国人都死了之后，才完全拿出它所依据的东西来许可这个产品。这种管理形式破坏了自由，与民主社会所要求的开放性背道而驰。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E8WgaRKVcAkNE4U.jpeg)
 
-西里最近在《肖恩·汉尼提秀》（Sean Hannity Show）节目讨论了法官裁决的重要性。
 
-汉尼蒂问西里：“为什么他们要用75年的时间完成这个过程？为什么，75年后这还有什么意义？”
 
-“这是不应该的，大多数美国人的平均预期寿命是77岁，等待75年意味着，在文件完全公布之前，今天活着的人几乎都死了。而在文件和数据完全公布之前，正如构成我所代表的团体的科学家们无数次解释的那样，他们无法进行适当的分析。” 西里说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E8WgaRKVUAwOjpF.jpeg)图片来自网络
 
-（原文完）
 
-按照之前每月500页需要75年，那提速到每月55,000页后，FDA应该在8个月左右可以完全披露所有数据了。是的，西里律师说得对，“这种管理形式破坏了自由，与民主社会所要求的开放性背道而驰。”
 
-FDA，包括白宫，已经成为阴谋集团的帮凶和为罪恶集团摇旗呐喊的鼓手，竟然明目张胆地将一些违背常理、不合逻辑的荒诞做法向人民强推，强制人们接受。拖延疫苗审批信息的发布，掩盖、篡改数据，强制接种疫苗，他们以为操纵了政府、控制了媒体就能为所欲为。答案是否定的，美国人不会那么都被操纵和误导的，还有文贵先生引领的新中国联邦，阴谋罪恶集团遇到克星了。中共你完了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-287.jpeg)
 
-有关链接：
 
-[https://hannity.com/media-room/judge-to-fda-release-pfizer-covid-data-now-case-lawyer-says-a-great-win-for-transparency/](https://hannity.com/media-room/judge-to-fda-release-pfizer-covid-data-now-case-lawyer-says-a-great-win-for-transparency/)
+![](https://pbs.twimg.com/media/E8WgaRTVcAUdSFG?format=jpg&amp;name=large)
 
-**华盛顿DC 望七星**
+1988年，汪建赴美留學 1990年，汪建在美國華盛頓大學擔任高級研究員，從事細胞分化與增殖相關性研究，工作內容涉及基因克隆等 1994年春節，汪建和朋友喝酒，不行別的酒令，只背《毛語錄》。汪建曾說，他能背下整本語錄。酒令行到一半，汪建流著淚說：我們已經紅到骨子裡了！回國吧！ 這樣人的和誰像？
+![Image](https://pbs.twimg.com/media/E8Wv7wrVgAA2Dzc?format=jpg&amp;name=large)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午7.40.19-1.png)
 
-**编辑发布  水星**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午7.40.41.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午7.46.08.png)
+1994年，汪建回國創建北京BGII生物技術有限公司。 1998年，汪建任中國科學院遺傳所人類基因組中心執行主任。 1999年9月，汪建在北京順義空港創建華大基因。 2001年，江澤民在中南海接見了華大基因楊煥明、汪建、于軍等。 看到這裡，發現汪建和中共的淵源好深啊！大家接著往下看，後面更精彩。
+
+![Image](https://pbs.twimg.com/media/E8W1fMiUUAAy8hu?format=jpg&amp;name=medium)
+
+
+![Image](https://pbs.twimg.com/media/E8W1fMeVgAwGvhG?format=jpg&amp;name=900x900)
+
+
+2003年，汪建带领华大基因团队完成了对非典病毒（SARS）的基因测序，时任国家主席的胡锦涛听说后参观了华大基因。随即，中国科学院与华大基因联合组建了中科院北京基因组研究所。给予其90人的正式编制，任命杨焕明为所长，汪建为副所长，按照局级干部发薪。
+
+2007年，汪建带部分员工南下，重新创建深圳华大基因研究院并出任院长；同时创立深圳华大基因科技有限公司，汪建任总裁。 2012年，华大基因1.18亿收购美国硅谷的上市公司Complete Genomics。 2016年9月22日由华大基因研究院主导组建的国家基因库正式落成，华大开始了它的大肆扩张之路 附各地基因分库表。
+
+请注意以下时间点
+
+据财新网报道，早在2019年12月26日，华大基因就收到了来自武汉当地医院的「不明肺炎病例样本」，并进行了测序。 2020年1月15日华大基因在第一时间研制成功新型冠状病毒核酸检测试剂盒。 武汉封城的第2天，汪建到达武汉！ 2020年2月5日，武汉火眼实验室搭建完成，开始投入使用。
+
+未完待续。
+
+
+![Image](https://pbs.twimg.com/media/E8W4LZ9VIAQUfzm?format=jpg&amp;name=900x900)
+
+
+![Image](https://pbs.twimg.com/media/E8W4LZ9UUAAnseq?format=jpg&amp;name=small)
+
+编辑：流浪的阳光
+
+校对/发稿：Serena
+
+新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+
+新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
 
  
 
