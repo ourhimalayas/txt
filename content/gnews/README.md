@@ -15,176 +15,176 @@
 
 ---
 
-### [2022年1月20日郭先生盖特 — 视频1「9分36秒」](/content/gnews/1/README.md)
+### [被众参两院议员及媒体高度关注太盟案将会被拍成影视剧](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中国春节劳动力短缺致澳洲快速抗原检测盒面临缺货](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [文雍漫谈：长歌赋](/content/gnews/3/README.md)
+ ` 文雍`
+
+### [共产党让迪拜塞浦路斯马耳他越南新加坡的战友无路可逃](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [墨西哥政府取消Covid旅行限制](/content/gnews/5/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国高院停止企业疫苗强制令的意义深远](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳洲大利亚计划恢复学校面授课程](/content/gnews/7/README.md)
+ ` 走进澳洲`
+
+### [五年来七哥就活共产党用太平联盟案的伤害和精神虐待下](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中国地产商全部跌出富豪榜前十](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共器官移植 没有道德底线](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共不仅剥夺西藏新疆的财富 还蹂躏着西藏新疆的孩子们](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [雅典娜时报-第180期](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [班农先生论疫苗问题（上）](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [日本研发人工“骨螺钉” 有望减轻患者术后负担](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [一定会让世界看到太平联盟判决背后真相和共产党的剿杀](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2022年1月20日郭先生盖特 — 视频1「9分36秒」](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [死去的八弟和中共新疆西藏香港的大屠杀让七哥感悟生命](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [3人赴餐馆就餐，虽疫苗接种2次仍全员感染](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [开启爆料革命灭共的今天只是昨天那个除暴安良的放大版](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美联储发布备受期待的数字美元报告](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [欧洲考虑新的应对新冠病毒策略：接受这个病毒](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [八弟身中两枪被放任疼痛两三天而死，除了灭共别无二选](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [共产党100%就是邪教 Isbel Yeung就是邪教的传播者](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [在大流行期间亿万富翁财富翻番](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [杰里米-格兰瑟姆预测基准股票将下跌近50%，称下跌已经开始](/content/gnews/10/README.md)
- ` 波士顿五月花农场金融部`
-
-### [中共“种族灭绝” 法众议院通过新疆决议](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [面对被中共严重渗透的美国司法界，七哥誓死战斗到底](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [若忽视太平联盟案件内部逻辑则没有任何彰显正义的可能](/content/gnews/13/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [为什么F-35战机会成为中台湾战争的核心？](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共对维吾尔人的罪行曝光，残忍程度令人咋舌](/content/gnews/15/README.md)
+### [特别是对于亚利桑那州和德克萨斯州来说，边界是一个可怕的、可怕的问题](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [法国人寿保险公司决绝理赔疫苗致死者](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [武汉封城两周年 世人依旧难消对中共的疑虑](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [网传上海优衣库疫情封锁视频打脸中共宣传](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [太平联盟Subpoena要的三样东西是共产党最想要的东西](/content/gnews/19/README.md)
+### [死去的八弟和中共新疆西藏香港的大屠杀让七哥感悟生命](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [生活危机加深，英国通胀率升至30年来的高点](/content/gnews/20/README.md)
+### [班农先生不惧任何攻击](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [3人赴餐馆就餐，虽疫苗接种2次仍全员感染](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [开启爆料革命灭共的今天只是昨天那个除暴安良的放大版](/content/gnews/21/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美联储发布备受期待的数字美元报告](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [欧洲考虑新的应对新冠病毒策略：接受这个病毒](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [天时地利人和民心 灭共就不远了](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年能活下去是最好的 多开开眼灭灭共](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党100%就是邪教 Isbel Yeung就是邪教的传播者](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为什么F-35战机会成为中台湾战争的核心？](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国尽管进行了大量的游说，但美国针对大型科技公司的法案仍获得参议院小组的批准](/content/gnews/21/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [加拿大卡车司机月底将在首都抗议疫苗强制令](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
 
-### [魁北克卡车司机计划“慢速行进”抗议联邦政府的疫苗强制令](/content/gnews/22/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [因坚持新冠疫苗任务，“抵制”公司遭抵制](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
 
-### [澳大利亚西澳州延迟开放边界并大力推广新冠疫苗加强针](/content/gnews/23/README.md)
+### [日研究显示孕妇染疫易转中度以上症状](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [美股新年伊始即现危机](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [诸多不利背景下中共依旧公布GDP增幅8.1%](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [惠誉预测中共国房地产行业持续恶化](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [美国多数孔子学院遭关闭 数量骤降](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [生活危机加深，英国通胀率升至30年来的高点](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳大利亚西澳州延迟开放边界并大力推广新冠疫苗加强针](/content/gnews/36/README.md)
  ` 喜国公民`
 
-### [强化国内经济，降低进口依赖，中共加速返回计划经济](/content/gnews/24/README.md)
+### [强化国内经济，降低进口依赖，中共加速返回计划经济](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆┃恒大境外债权人忍无可忍 考虑强制执行维权](/content/gnews/25/README.md)
+### [中日财经爆┃美联储发表官方数字美元白皮书](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奥地利议会批准强制性新冠肺炎疫苗接种](/content/gnews/26/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中日财经爆┃美联储发表官方数字美元白皮书](/content/gnews/27/README.md)
+### [中共威胁加剧 美国将加快向台湾交付新一代F16战机](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共威胁加剧 美国将加快向台湾交付新一代F16战机](/content/gnews/28/README.md)
+### [中日财经爆┃GMO联合创始人格兰瑟姆预警股市崩盘一触即发](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃GMO联合创始人格兰瑟姆预警股市崩盘一触即发](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [免签证申请费：澳大利亚感染迅速增加，劳动力短缺严重](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生2022年1月20日盖特视频（9分36秒）全文字版](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产党一定要在BVI彻底搞定岛上的法官和律师事务所](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [路透社：美国研究加速交付F-16新战机给台湾](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|中共冬奥会确定不公开售票](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [一位犹他州父亲难掩悲伤 小女儿接种第二剂疫苗几天后去世](/content/gnews/35/README.md)
- ` DC政经`
-
-### [短视频：两名已接种疫苗飞行员不能参与同一商业飞行](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [法国议会将中共政府对待维吾尔人称为种族灭绝](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|中共控制西方法律的明证：未审先知](/content/gnews/38/README.md)
- ` MOSREC`
-
-### [喜联储会成为最有实力的世界金融领头者](/content/gnews/39/README.md)
+### [喜联储会成为最有实力的世界金融领头者](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2022年1月20日晚](/content/gnews/40/README.md)
- ` 纽约香草山MOS01`
-
-### [捷克新政府废除中共病毒疫苗强制计划](/content/gnews/41/README.md)
+### [捷克新政府废除中共病毒疫苗强制计划](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [浅谈F-15EX鹰式战斗机 – 美军为何继续开发？（下）](/content/gnews/42/README.md)
+### [浅谈F-15EX鹰式战斗机 – 美军为何继续开发？（下）](/content/gnews/43/README.md)
  ` 军情启示录`
 
-### [浅谈F-15EX鹰式战斗机 &#8211; 美军为何继续开发？（上）](/content/gnews/43/README.md)
+### [浅谈F-15EX鹰式战斗机 &#8211; 美军为何继续开发？（上）](/content/gnews/44/README.md)
  ` 军情启示录`
 
-### [秘翻在线:又一家千亿级企业奥园官宣“违约”，不支付到期票据本息](/content/gnews/44/README.md)
+### [秘翻在线:又一家千亿级企业奥园官宣“违约”，不支付到期票据本息](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年1月19日郭文贵先生直播全文字版](/content/gnews/45/README.md)
+### [2022年1月19日郭文贵先生直播全文字版](/content/gnews/46/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [班农战斗室：功能增强的病毒比核弹头的杀伤力还要大](/content/gnews/46/README.md)
+### [班农战斗室：功能增强的病毒比核弹头的杀伤力还要大](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国珠海和中山陆续出现奥米炕疫情](/content/gnews/47/README.md)
+### [中共国珠海和中山陆续出现奥米炕疫情](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共为冬奥会关闭了香港上海国际机场的进出港航班](/content/gnews/48/README.md)
+### [中共为冬奥会关闭了香港上海国际机场的进出港航班](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022/01/19 墙内世界](/content/gnews/49/README.md)
+### [2022/01/19 墙内世界](/content/gnews/50/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国通胀率创30年新高，英格兰银行将二次加息](/content/gnews/50/README.md)
+### [英国通胀率创30年新高，英格兰银行将二次加息](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共奇葩防疫](/content/gnews/51/README.md)
+### [中共奇葩防疫](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登经济上的支持率达到45年最低水平，供应链面临崩溃](/content/gnews/52/README.md)
+### [拜登经济上的支持率达到45年最低水平，供应链面临崩溃](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [达沃斯是与中共勾结的暗黑集团 其目标是控制奴役世界](/content/gnews/53/README.md)
+### [达沃斯是与中共勾结的暗黑集团 其目标是控制奴役世界](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [01/20每日播报｜美国将与印太国家展开合作 制定共同目标对抗中共](/content/gnews/54/README.md)
+### [01/20每日播报｜美国将与印太国家展开合作 制定共同目标对抗中共](/content/gnews/55/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [因担忧中共国疫情，NBC宣布不会派遣体育报道团队参加 2022北京冬奥会](/content/gnews/55/README.md)
+### [因担忧中共国疫情，NBC宣布不会派遣体育报道团队参加 2022北京冬奥会](/content/gnews/56/README.md)
  ` 首尔天池农场`
 
-### [港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分](/content/gnews/56/README.md)
+### [港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分](/content/gnews/57/README.md)
  ` 關注組`
-
-### [有声|泽连科医生指出 接种疫苗将造成民众死亡](/content/gnews/57/README.md)
- ` MOSREC`
 
 ### [GTV新闻访谈简报|2022年1月19日晚](/content/gnews/58/README.md)
  ` 纽约香草山MOS01`

@@ -2,34 +2,30 @@
 ---
 
 
-## 短视频：两名已接种疫苗飞行员不能参与同一商业飞行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1887374/)
+## 澳大利亚西澳州延迟开放边界并大力推广新冠疫苗加强针
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1887651/)
 
-##### 翻译：不要代表我Kari
-校对：枳实
-视频剪辑：向上James
-编辑：文泓
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-184.png)图片来自网络
+西澳大利亚州州长马克·麦高文说，在该州第三针新冠疫苗接种率不达到较高的指标之前，该州的边境不会重新开放。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/815.jpg)图片来源：视频截屏
+该州原定于2月5日开放边界，但第三针的接种率届时只能达到35%，目前约为25%。州长麦高文希望在边境重新开放时，该州第三针的接种率能达到80%或90%。
 
+他说，第三针新冠疫苗的推广在12月才开始在澳州推行，很多人还没有资格接种第三针。一些人只打了前两针，需要四个月才能获得打第三针的机会。
 
-让我们从这里的航空公司飞行员开始，因为，你知道，我读一下这个电邮，来自一位在美国西南航空公司工作的听众。
+同时，该州也考虑为儿童接种新冠疫苗提供时间，因为儿童只是在12月10日才开始有资格接种新冠疫苗。
 
-他之前发过电子邮件，他在信上说，我有一个好朋友，他与美国联邦航空管理局（FAA）有非常密切的合作。
+西澳州的做法，完全是基于第三针新冠疫苗会使人们对奥米抗新冠病毒有更强的抵抗力的假设。这个决定并没有参考其它州目前的新冠感染人数，以及其中有多大比例是已经打过第三针。
 
-他给我寄来了这封信。我为你读一些摘录的内容：
+西澳州的决定与美国和英国最近对新冠疫苗接种政策的转向是背道而驰。美国最高法最近院阻止了总拜登对大型企业的新冠疫苗强制接种。大法官认为该政策对美国人的生命和健康不利。
 
-他今天给我打来电话说，这封信中提到的所有内容即将成为现实。此外，他告诉我，两个接种过疫苗的飞行员将不能一起飞行，我猜测是在所有测试完成之前。
+英国首相约翰逊也宣布在本周取消英国的新冠疫苗护照。
 
-视频链接：[Diana Yu 在 Twitter: ““FAA does not allow two vaccinated pilots to fly together on the same plane](https://twitter.com/DianaYu99790322/status/1478938750474358784)
+消息来源：[We need to roll out more third doses’: McGowan hinges border opening on boosters](https://www.skynews.com.au/australia-news/coronavirus/we-need-to-roll-out-more-third-doses-mcgowan-hinges-border-opening-on-boosters/video/c48292909017cbddc3614c12736e31e1)
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Boris Johnson ditches UK’s COVID-19 vaccine passport plan under pressure from his own party](https://www.abc.net.au/news/2021-09-13/britain-johnson-ditches-covid-19-vaccine-passports/100456088)
+
+[Joe Biden’s workplace COVID-19 vaccine mandate blocked by US Supreme Court](https://www.abc.net.au/news/2022-01-14/us-supreme-court-blocks-biden-workplace-covid-vaccine-mandate/100755854)
 
  
 

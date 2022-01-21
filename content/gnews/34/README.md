@@ -2,21 +2,30 @@
 ---
 
 
-## 有声|中共冬奥会确定不公开售票
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1887412/)
+## 美国多数孔子学院遭关闭 数量骤降
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887687/)
 
-配音：香草山巡管部 – 格格
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中共冬奥组委会17日发布消息指，本届冬奥会将不会面向境外观众售票，仅对境内符合疫情防控相关要求的观众售票。另外，门票的订购方式由原来的公开销售调整为定向组织，获得入场观赛资格的观众必须在观赛前、观赛中、及观赛后都严格遵守疫情防控的相关要求。
+作者：香草山教育部 – Casey（兰兰）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2020年8月13日，美国国务院宣布，要求孔子学院注册为外交使团。时任美国国务卿蓬佩奥先生在公开声明中表示：孔子学院美国中心不仅在全球推动中共国政府的政令宣导，更对美国校园与各级学校产生了有害的影响。2020年9月1日，蓬佩奥表示，他认为美国大学校园内的孔子学院有望在2020年底前全部关闭。
 
-中共冬奥组委会发言人表示，组委会已于1月4日启动闭环管理试运行，1月23日正式闭村，27日开村，在闭环试运行期间，预计有大约 3,000 名境内外人士来华实地开展工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/15-1.png)
 
-文字版原文：[中共冬奥会确定不公开售票](https://gnews.org/zh-hans/1877949/)
+截至2022年1月6日，美国有94所孔子学院已经关闭或正在关闭，尚存27所，这27所还包括了四所计划关闭的孔子学院，另包括一个在大学进行审查时“暂停”的孔子学院。
 
-音频处理：Fei797
-发稿：Fei797
+自2004年以来，中共在世界各地的高校校园内资助孔子学院，提供师资、教材和运营资金。在美国国务院正式宣布孔子学院为外交使团之前，中共政府将之前由国家汉办负责的孔子学院进行了重组，由“中国国际中文教育基金会”负责，该基金会于2020年6月成立。同时原来负责孔子学院的“国家汉办”更名为“教育部中外语言交流合作中心”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+参考链接：
+
+- [How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
+- [摘译：认定孔子学院美国中心为外国使团](https://china.usembassy-china.org.cn/zh/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
+- [“CONFUCIUS INSTITUTE U.S. CENTER” DESIGNATION AS A FOREIGN MISSION](https://china.usembassy-china.org.cn/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
+- [蓬佩奥: 孔子学院年底可能全关闭](https://www.dw.com/zh/%E8%93%AC%E4%BD%A9%E5%A5%A5-%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2%E5%B9%B4%E5%BA%95%E5%8F%AF%E8%83%BD%E5%85%A8%E5%85%B3%E9%97%AD/a-54788997)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

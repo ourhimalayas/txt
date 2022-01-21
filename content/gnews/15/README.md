@@ -2,118 +2,52 @@
 ---
 
 
-## 中共对维吾尔人的罪行曝光，残忍程度令人咋舌
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1887723/)
+## 一定会让世界看到太平联盟判决背后真相和共产党的剿杀
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887910/)
 
-[https://gtv.org/video/id=61e9623787664c47acd756dc](https://gtv.org/video/id=61e9623787664c47acd756dc)
+G-TV视频链接：[https://gtv.org/video/id=61ea2ff487664c47acd7a4ad](https://gtv.org/video/id=61ea2ff487664c47acd7a4ad)
 
-100s1000s have been sent to prisons
-数十万人被送进监狱
+**郭文贵先生**：就像太平联盟这个官司，单伟建造的孽，单伟建的孩子造的孽，单伟建还有Edward Moss，就这个王八蛋律师，这个孙子，还有Bondi这种完全、强烈地失去职业道德，他Cahill律师事务所，他一定会受到惩罚。
 
-and an estimated 1.8 million people have been sent to internment camps
-并且估计有180万人被送往拘留营
+七哥，从你看到那个照片到现在，这个时候我已经很大了。好不好！我这时候已经很成人了，你看我那样，我已经很成人了。跟我开会的人，基本都是大人。我基本上想打人，人多的时候，我就会找几个大人帮我一起打去，我在指挥着战役，怎么突袭、怎么进去。
 
-where they endure unimaginable terror in the form of
-他们在那里忍受着难以想象的恐怖
+我告诉你们，就像PAG这官司，就是七哥个性一生的展示。我从来没向邪恶低过头，直到找到属于我们的公平为止。Edward Moss还有Edward Moss的钱，Edward Moss的关系和吴征的关系，和太平联盟的关系，单伟建的关系，共产党的关系，海航的关系，我给他捋不完。如果我不在了，你们要不给我继续捋下去，你们就不配做我们兄弟姐妹，爆料革命战友。
 
-beatings, electric shocks, solitary confinement, deprivation of food, water
-殴打、电击、单独监禁、剥夺食物、水
+你们一定要记住，我打他一万年，我都不会跟他拉倒。在美国这个地方，我要不把这个官司搞明白。我一定让世界知道，到底这个房子该属于谁？到底那个船该属于谁？到底Edward Moss、还有Cahill，还有Bondi，还有这个法庭法官的判决的背后，和共产党的关系、吴征的关系、海航的关系。为什么是4月18号？为什么在你还没爆之前，熊宪民、博讯韦石这些伪类都知道。为什么没判之前，他们都知道？为什么他能预判美国法院的案子？过去五年了，香港都死那么多人了，香港现在说孩子叫自杀，我们非常想了解。
 
-and sleep exposure to extreme cold
-暴露在极冷的环境中睡眠
+2022年这个黑暗的一年，我们有三大官司。一个UBS在英国的官司，你会看到，这是共产党用穷其一切力量，要阻止的。因为他拿走了我们几百亿、上千亿的财富。另外一个PAG案子，就是羞辱你，让你七哥不能有一分钱，让你家族人没有一分钱。缠诉你，让你没精力、没时间。
 
-and the abusive use of restraints, including torture tools like Tiger chairs
-以及滥用约束装置，包括老虎凳等酷刑工具
+几万页文件，不要你……我是不能看英文的，几万页，我得看1000年，我都看不完。我不是看100年，兄弟姐妹们，我看1000年都看不完，因为我不懂英文。所有的文件都是英文，你告诉我，他怎么收拾你？
 
-former detainees recorded having their legs shackled
-前被拘留者记录了他们的腿被镣铐
+第二个，我们从UBS、PAG的案子完了，我们会看到，我们将要诉讼很多人。我们一定会告这个Edward Moss，一定会让他律师执照给他取消了，一定要让这个Bondi，还有Cahill律师事务所，这种流氓律师事务所，还有那个过去的什么取消政庇事务所带来的伤害等等这些人。我们要起诉他们，通过美国的法律让他们知道这些人背后到底干了什么。他们一定是造假，继续造假。骑侠会明白，只要证明了律师造假在美国的结局是什么。一切都是刚刚开始，一切已经开始。
 
-during part of the time of detention, sometimes for up to a year
-在被拘留的部分期间，有时长达一年被镣铐
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-“I could barely walk, it was on 24/7
-“我几乎不能走路，它是24/7戴着
+编辑整理：Jacques；
 
-Every week the guards would check the chain
-每周警卫都会检查链条
+字幕文件制作：小满；
 
-Every two weeks they would tighten the bolts…”
-他们每两周就会拧紧螺栓……”
+视频制作及上传：Cindy；
 
-“Several months after I arrived in the camp
-“在我到达拘留营几个月后
+G-News发布：小满；
 
-They offered us water for showering, but always in the chain on”
-他们为我们提供淋浴用水，但总是拴着链条”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-“when I said I wouldn’t take off my underwear they beat me with an electric baton
-“当我拒绝脱下我的内衣时，他们用电棍殴打我
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-And then I fell
-然后我摔倒了
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-They beat me and I was electrocuted…
-他们打我而且我被电击了……
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-…When I came to my senses, they took off my clothes
-…当我清醒过来时，他们脱掉了我的衣服
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-they searched me, made me bend down
-他们搜查我，让我弯下腰
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-tied my hands behind my neck
-把我的手绑在脖子后面
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-It was very painful ”
-它是非常的痛苦”
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-Prisoners are forced to attend classes for 17 hours a day
-囚犯被迫每天上课17小时
-
-they’re psychologically abused and subjected to harsh physical punishments at the whim of their instructors
-他们受到心理上的虐待，并根据教官的意愿受到严厉的身体惩罚
-
-“During the class there was a Han teacher who wrote Chinese characters on the board
-“上课的时候有个汉族老师在黑板上写汉字
-
-and we just copied it without knowing what it was
-我们只是复制它而不知道它是什么
-
-That was it”
-就是这样”
-
-“We were not allowed to speak Uyghur in class
-“我们不允许在课堂上说维吾尔语
-
-If you did [speak the language other than Mandarin], you got punished.
-如果你[说普通话以外的语言]，你会受到惩罚
-
-You were taken to a room with a tiger chair…”
-你被带到一个有老虎凳的房间……”
-
-I was taken twice
-我被带去过两次
-
-* * *
-
-Date:01/19/2022
-原视频标题: The CCP’s crimes against the Uyghurs have been exposed, and the cruelty is staggering
-中共对维吾尔人的罪行曝光，残忍程度令人咋舌
-原视频日期：2022/01/18
-原视频链接: [https://twitter.com/vocommunism/status/1483522079311814657?s=24](https://twitter.com/vocommunism/status/1483522079311814657?s=24)
-任务编号：KE358（3539）
-视频时间段 : 0:00-1:46
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

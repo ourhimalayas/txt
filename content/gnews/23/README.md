@@ -2,30 +2,26 @@
 ---
 
 
-## 澳大利亚西澳州延迟开放边界并大力推广新冠疫苗加强针
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1887651/)
+## 欧洲考虑新的应对新冠病毒策略：接受这个病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1887822/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-184.png)图片来自网络
-西澳大利亚州州长马克·麦高文说，在该州第三针新冠疫苗接种率不达到较高的指标之前，该州的边境不会重新开放。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-52.png)
+图片来源： www.bbc.com
 
-该州原定于2月5日开放边界，但第三针的接种率届时只能达到35%，目前约为25%。州长麦高文希望在边境重新开放时，该州第三针的接种率能达到80%或90%。
+美联社1月20日报道，当新冠病毒疫情最初宣布时，西班牙人被要求待在家三个月以上，好几个星期不让人们出去运动，孩子们不被允许去游乐场，经济完全停止了下来。
 
-他说，第三针新冠疫苗的推广在12月才开始在澳州推行，很多人还没有资格接种第三针。一些人只打了前两针，需要四个月才能获得打第三针的机会。
+官员们辩称这些严厉措施是为了防止医疗系统奔溃，是为了挽救生命。现在二年过去了，西班牙正在准备采用不同的策略，在这个欧洲疫苗接种率最高的国家之一，政府在为制定下一波感染高峰时，不再作为紧急情况而是作为一种疾病来处理，邻国英国和葡萄牙也在采取相似的措施。
 
-同时，该州也考虑为儿童接种新冠疫苗提供时间，因为儿童只是在12月10日才开始有资格接种新冠疫苗。
+这个主意是将危机模式转向控制模式，西班牙希望欧盟考虑相似的改变，这种改变预计在奥米炕高峰下来后实施。
 
-西澳州的做法，完全是基于第三针新冠疫苗会使人们对奥米抗新冠病毒有更强的抵抗力的假设。这个决定并没有参考其它州目前的新冠感染人数，以及其中有多大比例是已经打过第三针。
+世卫组织认为现在改变模式还太早，欧洲疾控中心正在与各国商讨这波疫情的急性期过后的转型问题。
 
-西澳州的决定与美国和英国最近对新冠疫苗接种政策的转向是背道而驰。美国最高法最近院阻止了总拜登对大型企业的新冠疫苗强制接种。大法官认为该政策对美国人的生命和健康不利。
+但德国政府目前认为转型还太早，因为该国只有73%的人口接种了疫苗，还有很多人，尤其是老年人尚未接种，意大利也延长了针对50岁以上的人强制疫苗政策，并对不接种者处以1500欧元罚款，并规定只有接种疫苗者才能进入公共交通，飞机，健身房，旅店及交易场所。
 
-英国首相约翰逊也宣布在本周取消英国的新冠疫苗护照。
+##### **新闻来源： **[Europe considers new COVID-19 strategy: Accepting the virus](https://apnews.com/article/coronavirus-pandemic-boris-johnson-health-europe-spain-1ab95ea43fa30bcb36f068c9a8664d12)
 
-消息来源：[We need to roll out more third doses’: McGowan hinges border opening on boosters](https://www.skynews.com.au/australia-news/coronavirus/we-need-to-roll-out-more-third-doses-mcgowan-hinges-border-opening-on-boosters/video/c48292909017cbddc3614c12736e31e1)
-
-[Boris Johnson ditches UK’s COVID-19 vaccine passport plan under pressure from his own party](https://www.abc.net.au/news/2021-09-13/britain-johnson-ditches-covid-19-vaccine-passports/100456088)
-
-[Joe Biden’s workplace COVID-19 vaccine mandate blocked by US Supreme Court](https://www.abc.net.au/news/2022-01-14/us-supreme-court-blocks-biden-workplace-covid-vaccine-mandate/100755854)
+# ** **
 
  
 

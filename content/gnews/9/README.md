@@ -2,24 +2,33 @@
 ---
 
 
-## 在大流行期间亿万富翁财富翻番
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1887773/)
+## 中国地产商全部跌出富豪榜前十
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1887950/)
 
-撰稿：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-32.jpg)图片来自网络
-乐施会（*Oxfam*）是一个具有国际影响力的发展和救援组织的联盟。它的一份新报告显示在COVID-19大流行期间，财富两极分化的不平等现象加剧。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-过去两年,澳大利亚47位亿万富翁的财富翻了一番，达到2550亿美元。放眼全球，世界前10位最富有的人，他们的财富以每天16亿美元的速度增长，达到1.9万亿美元。造成这前所未有的贫富悬殊，是COVID-19疫情。
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-各国中央银行向金融市场注入数万亿美元用来拯救经济，但其中大部分落入了虚涨股市中亿万富豪的腰包。澳大利亚最富有的20%，他们的收入是最低收入20%的90倍。
-
-点评：文贵先生在大直播中提到达沃斯党。他们控制着全世界的财富，是世界法律ˎ金融秩序的制订者。想要知道病毒和疫苗灾难的真相，找中共和达沃斯党。我们看到了在COVID-19大流行期间，这些富豪们以飞快的速度增长财富。他们利用病毒和疫苗掠夺我们的财富，夺去我们的健康和生命，这是反人类罪。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/HF@R_EVU09QQE0GH4Q.png)图片来源：雅典娜设计组
 
 
+根据自由亚洲电台报道：去年中国房地产市场接连传出负债等失利消息，地产商身家亦大幅“缩水”。
 
-参考资料：
+根据《2021中国富豪榜》显示，中国房地产富商未能再雄踞前位。碧桂园的杨惠妍家族名列第14位，恒大许家印、万达王健林、融创孙宏斌等房地产巨头，资产均出现缩水情况。其中以许家印资产蒸发1620亿，成为中国房地产界富商财富缩水最多的一位。
 
-[大流行期间亿万富豪财富翻番](https://www.abc.net.au/news/2022-01-17/oxfam-report-covid-pandemic-billionaires-increase-fortune/100760968)
+去年各大媒体道报，恒大卷入债务危机，许家印急忙变卖资产套现。当时恒大出现现金流短缺的经营危机，旗下上市公司股价暴跌，其中以恒大汽跌幅最严重，由近7000亿下滑至412 亿，令许家印资产迅速蒸发。
+
+参考链接：https://www.rfa.org/mandarin/Xinwen/wul0119b-01192022063452.html
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

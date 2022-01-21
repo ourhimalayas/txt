@@ -2,26 +2,41 @@
 ---
 
 
-## 中共威胁加剧 美国将加快向台湾交付新一代F16战机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887539/)
+## 加拿大卡车司机月底将在首都抗议疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887693/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-66.jpg)[图片来源](https://www.scmp.com/news/china/military/article/3004963/taiwans-plan-buy-66-f-16-viper-fighter-jets-us-still-track)
-路透社1月20日报道，美国正在想方设法加快向台湾交付新一代F-16战斗机，以增强台湾空军应对中共军方日益增加的武力威胁。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据1月18日部分社交媒体的信息，加拿大卡车司反抗政府疫苗强制及封锁措施的行动正持续进行，1月17日晚间， 大卡司机在曼尼托巴省封锁了从加拿大双向进入美国的高速公路。其中一辆车上挂着”反对强制疫苗接种“的条幅。
 
-相关美国官员表示，他们还没有拿出如何加快交付Block70 F-16战斗机的方案。Block70 F-16是配备了新功能的升级版战斗机，由洛克希德马丁(LockheedMartin)制造。目前计划的交付时间在2026年底。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-16.png)
 
-台湾一位高级官员称，台湾政府已私下向美国政府表示，希望能加快战斗机的交付。目前，台湾空军频繁出动战机拦截愈发咄咄逼人的中共军机，更多任务意味着台湾战机的损耗会加大。“这一切都与风险评估有关……风险在哪里是显而易见的。”他指的是台湾海峡的紧张局势。
+1月12日，加拿大边境服务局表示，将允许未接种疫苗的加拿大卡车司机从美国入境。但时隔一天，联邦卫生部出尔反尔，宣布疫苗强制令如期推行。如今，这项指令已于1月15日生效。据加拿大卡车协会估计，该政策将涉及18000名司机。
 
-根据2019年批准的一项价值80亿美元的交易，台湾将购买66架新制造的F-16C/DBlock70战斗机，成功交付后，台湾将拥有亚洲最大的F-16战机机队之一。到2026年，包括老式F-16在内，台湾的F-16战斗机总数将超过200架。
+由于美加每年的贸易额超过6500亿加元，约2/3的货物需要通过货运大卡车来往，毫无疑问，疫苗强制令将会加剧两国的物资短缺与物价飞涨。
 
-消息来源:
+抗议的组织者号召全国的卡车司机们自本周日起，从四面八方驶向首都渥太华，本月29日在国会、各大主要政府部门的门前举行抗议，要求特鲁多政府取消对各行各业的疫苗强制令，解除所有的限制措施，还自由于人民。他们还表示，不达目的，不会离开。目前活动的专项捐款已接近40万加元。
 
-[独家：美国正想方设法加快向台湾交付新一代战斗机](https://cn.reuters.com/article/us-tw-warplane-0121-idCNKBS2JV05L?il=0)
+参考链接：
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+- [Truckers are travelling from every province converging in Ottawa](https://twitter.com/thelinecanada/status/1482740798299033601?s=21https://www.reuters.com/world/americas/canadian-truckers-stay-exempt-covid-19-vaccine-requirements-2022-01-13/)
+- [‘Chaos and confusion’: Government error on trucker vaccine mandate sparks disarray](https://www.thestar.com/business/2022/01/14/chaos-and-confusion-government-error-on-trucker-vaccine-mandate-sparks-disarray.html)
+- [January 17, 2022, a truck convoy descended near the U.S.-Canada border in Emerson, Manitoba, Canada to protest the vaccine mandate policies both the U.S. and Canada are implementing.](https://twitter.com/thelinecanada/status/1483245378568863744?s=21https://twitter.com/raw_news1st/status/1483467069895151626?s=21)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

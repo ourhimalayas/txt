@@ -2,26 +2,19 @@
 ---
 
 
-## 奥地利议会批准强制性新冠肺炎疫苗接种
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1887588/)
+## 共产党100%就是邪教 Isbel Yeung就是邪教的传播者
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887780/)
 
-2022-01-20
-![](https://assets.gnews.org/wp-content/uploads/2022/01/36B0F2AD-9814-43DA-960B-CB285D5457DE.jpeg)来源：网络
-**翻译：沉默老歌**
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-奥地利议会在周四的投票中批准了强制性中共病毒疫苗接种，成为第一个这样做的欧洲国家。
+1月12日，郭文贵先生在GTV大直播指出：
 
-国民议会第二任主席多丽丝·伯雷斯在辩论了几个小时后表示，它以（必要的）多数票获得通过。
+中国共产党是彻头彻尾的邪教组织，它完全符合邪教六大特征。杨贝贝之流就是邪教传播者，是中共的帮凶，他们诋毁新中国联邦，制造歪门邪说，对全世界洗脑、控制言论，目的在于制造大规模种族仇恨，危害人类安全，是纯粹的反社会行为。我们要大胆地控诉，戳穿他们的伪装，曝光他们的恶行。
 
-参考链接：[https://www.barrons.com/amp/news/austria-parliament-approves-mandatory-covid-vaccination-01642702508](https://www.barrons.com/amp/news/austria-parliament-approves-mandatory-covid-vaccination-01642702508)
-
-编辑：LILY
-发布：肥鯮
-校对：
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

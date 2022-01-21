@@ -2,41 +2,82 @@
 ---
 
 
-## 武汉封城两周年 世人依旧难消对中共的疑虑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887715/)
+## 特别是对于亚利桑那州和德克萨斯州来说，边界是一个可怕的、可怕的问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1887872/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月19日，据日本媒体报道，本月23日，武汉因中共病毒疫情而封城的两周年祭即将到来。然而直至此刻，中共在武汉疫情问题上的诸多行为仍旧让世人心存疑虑。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午11.17.58.png)
-对此，日媒列举出了三个疑点：
+[https://gtv.org/video/id=61e965f687664c47acd7596d](https://gtv.org/video/id=61e965f687664c47acd7596d)
 
-首先，中共宣称的病毒源发地——华南海鲜市场既没有因中共再次面临病毒溯源而被精心保护，也没有为了消除隐患而被全部拆除。
+John Bachman (Newsmax host)
+约翰·巴赫曼（Newsmax 主持人）
 
-其次，每当有外界的记者希望靠近华南海鲜市场时，中共的公安人员会主动联系相关记者并试图通过虚假宣传劝退他们，这使得中共的防备之心在此可见一斑。
+We got to charge up crowd out there
+我们有那里的人们兴奋起来了
 
-最后，自中共病毒疫情爆发以来，中共国内因该病毒死亡的病例数字一直停滞在四千六百三十六人，相较于全世界的病例通报数据而言，这个数字是荒唐且可笑的。另据一位武汉市民爆料，其两位亲属在疫情当时均死于中共建立的隔离医院中，且二者的死因都是“肺部感染”，但中共当局拒绝将这两个死亡病例纳入到全国的死亡人数之中。
+And they’re very excited to see you, very excited to see Kari Lake
+而且他们很高兴见到你，很高兴见到卡里·雷
 
-分析人士指出，自2021年1月26日以来，中共在应对疫情方面向世界所做出的通报大多都不符合常理与逻辑，无论是武汉人，还是世界其他各国的民众，他们对中共病毒来源的质疑至今无法被抹去。
+It’s going to be important state in 2022
+这将是2022年的重要声明
 
-参考链接：
-1）[https://www.gettr.com/post/pp9s8z1bf9](https://www.gettr.com/post/pp9s8z1bf9)
-2）[https://www.gettr.com/post/pg3tyr3494](https://www.gettr.com/post/pg3tyr3494)
-3）[武汉市新型冠状病毒感染的肺炎疫情防控指挥部通告（第1号）](http://www.gov.cn/xinwen/2020-01/23/content_5471751.htm)
+What do you think is the most important election issue for the voters of 2022 in Arizona?
+您认为亚利桑那州2022年选民最重要的选举问题是什么？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+Donald Trump (Former President of the United States)
+唐纳德·川普（美国前总统）
 
-总编：DM
-编辑：DM
-校正/发稿：呼吸的雾霾（文小呼吸）
+I think the borders are Arizona certainly
+我认为亚利桑那州肯定是边界问题
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+you know the whole country is a border
+你知道整个国家都存在边界问题
+
+if you think about that pouring throughout the country
+你想想如果难民如洪水般地涌入全国
+
+but for Arizona, Texas in particular, the borders are terrible, terrible
+但是对于尤其是亚利桑那州，德克萨斯州，边界是可怕的，可怕的
+
+We have millions of people coming into our country
+我们有数百万人进入我们的国家
+
+and you know many are coming from prison of other countries over 129 countries
+你知道很多人来自其他超过129个国家的监狱
+
+They said last week that people from 129 countries
+他们上周表示，有来自129个国家的人
+
+It not just like Mexico and Honduras, and you know, etc
+不仅是来自墨西哥和洪都拉斯，等等，而且你知道
+
+129 countries and they’re emptying out their prisons
+是129个国家，他们正在清空他们的监狱
+
+the United States is a dumping ground for a lot of people that are not the people that we want
+美国就像个垃圾场，许多我们不想要的移民被输送到这个国家
+
+* * *
+
+Date:01/19/2022
+原视频标题: For Arizona and Texas, in particular, the borders are a terrible, terrible, problem
+特别是对于亚利桑那州和德克萨斯州来说，边界是一个可怕的、可怕的问题
+原视频日期：2022/01/18
+原视频链接: [https://twitter.com/newsmax/status/1483141041041649668?s=24](https://twitter.com/newsmax/status/1483141041041649668?s=24)
+任务编号：KE357（3522）
+视频时间段 : 0:00-0:49
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
