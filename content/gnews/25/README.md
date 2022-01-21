@@ -2,25 +2,26 @@
 ---
 
 
-## 获中共支持的同方威视公司的安检设备大肆入侵欧洲
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1886850/)
+## 历史作证，是谁在逼迫人们施打“疫苗”毒针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1886886/)
 
-翻译：zzballack
-上传：追着曙光跑
+##### 翻译：Julia Gao
+校对：枳实
+剪辑|字幕：向上James
+编辑：Mttfly
 
-据《布雷特巴特新闻网》（Breitbart News）1月20日报道，美联社（Associated Press）的一篇调查报告说，尽管美国出于安全考虑已将中共公司同方威视（Nuctech ）列入工业和安全局（Bureau of Industry and Security）的实体名单，但是同方威视仍成功打入西方的安保市场。欧洲各地的机场、北约与俄罗斯的边界以及达沃斯世界经济论坛均安装了它们的人员、行李和货物的安全扫描系统。事实上，27个欧盟成员国中有26个国家安装了同方威视的安检设备。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-21-at-10.14.27.jpeg)图片来源：原新闻
-欧洲和美国的安全官员都担心使用由中共支持的同方威视机器可能存在重大的安全风险，因为通过该机器的电子设备上的敏感文件或信息可能会被中共特工获取。同样，如果威视机器被改装成允许拥有爆炸物或枪支的个人不受阻碍地通过安检，那么这可能有助于中共支持的活动，比如恐怖袭击。
+新冠疫情以来，我们看到美国总统拜登、白宫冠状病毒工作组福奇等势力以强硬态度推进疫苗政策。另一方面，据美国人寿保险公司称，自新冠病毒疫苗开始推广以来，保险公司的死亡索赔增加了40%。据网上爆料人揭露，装尸袋工厂全速生产。此外，英国政府目前正在市场上寻找能提供临时尸体储存服务的供应商。这些视频就是强制疫苗政策制定者的罪证，历史大审判一定会等着他们。
 
-荷兰国防部前网络安全主任、现任欧洲议会成员巴特·格罗特休斯（Bart Groothuis）表示：“同方威视设备所处理的数据非常敏感，它涵盖了个人数据，军事数据、货物数据，这可能涉及商业机密。你应确保它被掌握在正确的人手中。但是欧洲现在所依赖的中共是一个地缘政治对手和战略对手。”
+视频链接：[Soon Joe Biden and Anthony Fauci will have to apologize for the millions of deaths they’ve accidentally caused](https://www.bitchute.com/video/h2Fvoo9N2v9d/)
 
-在中共国的公司会被中共当局要求交出任何所需的数据，因此人们担忧同方威视会被中共用于干预或间谍活动。加拿大政府认为同方威视存在间谍活动的“高度威胁”。2020年7月，加拿大政府在进行安全审查后得出结论说，同方威视的扫描设备可用于从电子设备中获取敏感信息，并可被改装为允许违禁物品通过而不触发警报。
-
-另外，同方威视的所有权结构十分复杂，而且获得了中共政府的巨额补贴，使其能够击败其竞争对手。英国、阿姆斯特丹、布鲁塞尔、意大利、希腊、瑞士和西班牙的机场都与同方威视签署了设备采购协议，这主要是因为同方威视的交易价格便宜，比其他对手低30%至50%，以及延长保修合同和优惠贷款。
-
-同方威视声称它们已为全球170多个国家和地区的客户提供服务，其中包括2019年在欧洲为政府机构、海关、民航机场和港口安装了1000多台安检设备。
-
-信息来源：[Chinese Communist Party-Backed Company Delivers Security Scanners to Global Hot Spots](https://www.breitbart.com/europe/2022/01/20/chinese-communist-party-backed-company-delivers-security-scanners-to-global-hot-spots/)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

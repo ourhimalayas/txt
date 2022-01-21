@@ -2,21 +2,21 @@
 ---
 
 
-## 历史作证，是谁在逼迫人们施打“疫苗”毒针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1886886/)
+## 怎么确定喜币的发行数量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1887062/)
 
-##### 翻译：Julia Gao
-校对：枳实
-剪辑|字幕：向上James
-编辑：Mttfly
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/直播摘要.jpg)
+很简单，喜联储是中心化的单位，它有人负责，它造了假，是刑事犯罪。如果喜联储被揪出来说发了10亿零一个币， 那是诈骗罪，所有人都会进监狱。比特币，2100万的币，造出2000万亿个，或者1700万个，没有人进监狱，没有人被审查，这是一个根本的问题。
 
-新冠疫情以来，我们看到美国总统拜登、白宫冠状病毒工作组福奇等势力以强硬态度推进疫苗政策。另一方面，据美国人寿保险公司称，自新冠病毒疫苗开始推广以来，保险公司的死亡索赔增加了40%。据网上爆料人揭露，装尸袋工厂全速生产。此外，英国政府目前正在市场上寻找能提供临时尸体储存服务的供应商。这些视频就是强制疫苗政策制定者的罪证，历史大审判一定会等着他们。
+另外一个它叫私块链，私块链是什么？大家去查一查。每个人都可以核实你这个币。比特币是公链，而且是公链最大的，有位最牛的CEO当着我面说，你看比特币有多少个，我看了数据一共有多少个多少个。我问了其中一个韩国人，他一声不吱。
 
-视频链接：[Soon Joe Biden and Anthony Fauci will have to apologize for the millions of deaths they’ve accidentally caused](https://www.bitchute.com/video/h2Fvoo9N2v9d/)
+我说“你告诉我，中本聪是哪国人，你知道吗？ ”他说 “不知道。”我又问“你知道鸡和蛋，蛋和鸡的关系吗？ ” “知道，谁是哪来，在哪里接不知道。 ”公链的设计，你看到了这些的背后，所有你看到说的这些信息都是真实的，有没有可能有第二套同样的系统在运行？那你怎么知道没发生呢？
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
+*发布：开智则立*
+
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

@@ -2,8 +2,8 @@
 ---
 
 
-## 强制打疫苗一定会被停
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1887155/)
+## 战友聪明的买药,战友对盘古员工的无私帮助
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1887227/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

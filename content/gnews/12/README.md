@@ -2,25 +2,52 @@
 ---
 
 
-## 新中国联邦将开启新的文明时代
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1886961/)
+## 七哥与太平联盟的官司的每个字都是用生命和鲜血换来的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887150/)
 
-作者：道行天下
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2020-06-06-上午6.55.39.png)
-新中国联邦将开启一个新的文明时代。全世界在爆料革命的带领下将打破国家对权力的控制，由神权、君权和精英控制国家的行为转为真正的民天下，平民主义将消灭社会主义、共产党主义，取代资本主义。 国家的概念在每一个人心中是至高无上的，然后国家总是被一部分人控制，国家成为他们获利的工具。特别是独裁国家，共产主义国家，人民只是领导人生产的奴隶，人民只是独裁者们享乐的工具。他们以国家的名义控制着一切。
+G-TV视频链接：[https://gtv.org/video/id=61e9ef7f87664c47acd78f47](https://gtv.org/video/id=61e9ef7f87664c47acd78f47)
 
-我们知道，控制国家的权力无非有三个因素：金钱、媒体、军队。而控制金钱的因素最为关键。国家如何控制金钱，毫无疑问就是货币权，国家发行法币的权力。钞票印多印少由国家说了算，他能直接决定老百姓口袋里钱的多少。同样，拥有货币权，就拥有财富主动权，滥发货币成为国家盗取民众财富的主要手段，货币贬值买单的永远是老百姓。
+**郭文贵先生**：我们这每一个字儿都是用生命和鲜血换来的，中国人生生死死上百年，中国人从来没有一个人敢在美国、在世界上，用生命和鲜血和共产党斗争。
 
-喜币的诞生将打造国家对货币的垄断，国家对货币统治地位被打破，人民完全可以选择喜币做为自己的流通货币，每年10亿枚的发行，彻底打破国家滥发货币的行为，人民会选择保值、增值和自由的喜币做为自己的流通币、储存币。
+这个官司的开始到现在一切我们的对手就是共产党，代表打官司的全部是共产党的走狗！这还有什么质疑的吗？
 
-当国家失去了法币的垄断权，也意味着国家没有了控制人民的资本与财富的权力，国家将由权力机构慢慢转型为服务机构。因为财富决定着话语权，我的财富我做主，私人财产神圣不可侵犯，也无人能剥夺，在喜币系统中完全可以轻松实现。
+而且我们从官司的第一天就被违法操作，我4月19号参加VOA大直播，4月18号递的官司，3月份我和刘彦平见面，我4月份在美国才开始，是吧？你想想他怎么跟刘延平沟通啊？他就警告我不要参加VOA。
 
-新中国联邦不仅打破了国家对货币的垄断权，随着GTV、Gnews、盖特的发展，老百姓的话语权也将由自己来掌握。国家、精英们控制的话语权将被打破。老百姓有了自己的发声频道，随着G系列的发展，民众夺回话语权将指日可待。
+然后孙力军就一再警告我：你要敢参加VOA，会让你在全世界上没有任何生存的机会，会拿走你家族和你一切的东西，让你睡在马路上。
 
+而且明确告知PAG，就是太平联盟叫PAX，PAX会让你像疯狗一样在大街上，让你找不到任何地方,让你生存的地方。这是孙力军的原话，它有这么偶然吗？
 
+418和419、王岐山和海航的事情我要爆料的时候就出来了。最关键我那天爆料的当事人王岐山、海航就是PAX的合作者和股东，而2015年宣布要让我倾家荡产拿走一切，并把同事、家人抓走的就是吴征叫Bruno Wu，吴征又是PAX的最大投资者和合作股东——腾讯的音乐。
 
-审核校对：Barry Jack
-上传排版：F
+腾讯音乐百分之百的股东曾经是PAX，而且吴征在里边儿掺和起来，包括美国Digital Group。
+
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
