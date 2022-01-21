@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/21/2022 1:46 AM (UTC)`
+
+1/20/2022 Miles Guo’s GETTR: We are going to talk about the collusion between the CCP and various countries before the Winter Olympics and the disaster caused by the CCP's artificial snowmaking on the climate in the live broadcast tomorrow. The CCP’s property tax seeks to plunder the Chinese people’s wealth, and the CCP’s exploitation of the Lao Baixing will reach a new level after the Winter Olympics. The CCP is the common enemy of humanity and must be destroyed!<br/><br/>1/20/2022 文贵盖特：明天直播要谈冬奥会前中共和各国的勾兑及中共人工造雪对气候造成的灾难；房产税是一场财富洗劫，冬奥会后中共将加大对老百姓的剥削；中共是人类公敌必须被灭！<br/>
+![img](https://media.gettr.com/group9/getter/2022/01/21/01/2f514c67-b985-08a2-539e-471b1bb0d536/out.jpg)
+
+---
+
 `@miles 1/21/2022 12:51 AM (UTC)`
 
 1/20/2022 Miles Guo’s GETTR: Some fellow Chinese are saying that they love the CCP, but does the CCP love them? The CCP has spent trillions of RMB only to have Russia and other several small countries show up for the Winter Olympics. The livelihood of the Chinese Lao Baixing is getting worse and worse, with more and more people getting sick. Yet, good doctors are not available for them, and they couldn’t even afford the healthcare. How pathetic it is!<br/><br/>1/20/2022 文贵盖特：国内同胞说爱党，但党爱你吗？为了让俄罗斯和几个小国来给冬奥会捧场，中共挥霍了几万亿！老百姓的生活却越来越差、病越来越多，还找不到好医生、看不起病，悲哀啊！<br/>
@@ -146,12 +153,6 @@
 
 1/19/2022 Miles Guo: What is the “spillover effect” mentioned by the CCP? The CCP daydreams of luring the Party of Davos into enslaving the Chinese people with the so-called “the market potential of Communist China” consisted of the 1.4 billion slaves. This is like the trick played by the Party of Davos to murder the whole world’s people because the Western pension system, insurance companies, banks, and funds are all going to go bankrupt.<br/><br/>1/19/2022 文贵直播：啥是共产党说的“溢出效应”啊？中共幻想继续用所谓14亿奴隶的“中共国市场潜力”勾引达沃斯党奴役中国人民，这和达沃斯党屠杀全世界人民的阴谋异曲同工，因为西方的养老金、保险、银行和基金都要破产倒闭了。
 ![img](https://media.gettr.com/group23/getter/2022/01/20/03/39ecc903-4c3d-5923-841d-c5cc0a1d3e48/out.jpg)
-
----
-
-`@miles 1/20/2022 2:38 AM (UTC)`
-
-1月19号我得乖乖嘞🦅🦅🦅🔥🔥🔥<br/><br/>Miles !!!!!!!!<br/><br/>Huge !!!!!<br/><br/>Too dangerous for Announcers!!!!<br/><br/><br/>https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/
 
 ---
 
