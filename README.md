@@ -15,73 +15,73 @@
 
 ---
 
-### [有声|麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗](/content/gnews/1/README.md)
+### [有声|达沃斯论坛与冬奥会将成为习时代终曲](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [灭共者之CCP毒疫苗正在杀人](/content/gnews/2/README.md)
+### [有声|麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [灭共者之CCP毒疫苗正在杀人](/content/gnews/3/README.md)
  ` MOS Designer香草山设计部`
 
-### [有声|德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/3/README.md)
+### [有声|德国医生不愿履行中共病毒疫苗强制任务](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|为灭共而生的七哥，自幼肉肩担道义](/content/gnews/4/README.md)
+### [有声|为灭共而生的七哥，自幼肉肩担道义](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [2022年1月21日大直播速记精萃](/content/gnews/5/README.md)
+### [2022年1月21日大直播速记精萃](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [有声|北京冬奥APP存在重大安全隐患](/content/gnews/6/README.md)
+### [有声|北京冬奥APP存在重大安全隐患](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声|苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/7/README.md)
+### [有声|苏格兰将于1月24日起取消所有疫情限制措施](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [2022/01/21 文贵先生直播大纲](/content/gnews/8/README.md)
+### [2022/01/21 文贵先生直播大纲](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/01/21 大卫作战室直播精要](/content/gnews/9/README.md)
+### [2022/01/21 大卫作战室直播精要](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/10/README.md)
+### [灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/11/README.md)
  ` MOS Designer香草山设计部`
 
-### [有声|不完全财务披露福奇千万美元投资](/content/gnews/11/README.md)
+### [有声|不完全财务披露福奇千万美元投资](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [【秘翻在线】联邦法院阻止了拜登政府对联邦雇员的强制疫苗规定](/content/gnews/12/README.md)
+### [【秘翻在线】联邦法院阻止了拜登政府对联邦雇员的强制疫苗规定](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美联储就数字货币展开辩论](/content/gnews/13/README.md)
+### [美联储就数字货币展开辩论](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [法国国民议会称中共对维吾尔人的待遇是“种族灭绝”](/content/gnews/14/README.md)
+### [法国国民议会称中共对维吾尔人的待遇是“种族灭绝”](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|郭先生剖析PAG案的后续进展](/content/gnews/15/README.md)
+### [有声|郭先生剖析PAG案的后续进展](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [立陶宛是在中共国与欧洲的经济和外交斗争的开胃菜 （二）](/content/gnews/16/README.md)
+### [立陶宛是在中共国与欧洲的经济和外交斗争的开胃菜 （二）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [立陶宛是在中共国与欧洲的经济和外交斗争的开胃菜（一）](/content/gnews/17/README.md)
+### [立陶宛是在中共国与欧洲的经济和外交斗争的开胃菜（一）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/21/2022 文贵直播：欧盟国家和美国可能会竞相永久关闭其在中共国的使领馆，这意味着跟中共政治、经济双脱钩](/content/gnews/18/README.md)
+### [1/21/2022 文贵直播：欧盟国家和美国可能会竞相永久关闭其在中共国的使领馆，这意味着跟中共政治、经济双脱钩](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [西媒头条 — 第158期 – 西媒看天朝](/content/gnews/19/README.md)
+### [西媒头条 — 第158期 – 西媒看天朝](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西媒头条 — 第158期 – 西媒要闻](/content/gnews/20/README.md)
+### [西媒头条 — 第158期 – 西媒要闻](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/01/21 英喜时事速递](/content/gnews/21/README.md)
+### [2022/01/21 英喜时事速递](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦在以疫灭共的鏖战中初获胜果](/content/gnews/22/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大与G7国家疫情下的通胀危机](/content/gnews/23/README.md)
+### [新中国联邦在以疫灭共的鏖战中初获胜果](/content/gnews/23/README.md)
  ` 扬帆枫叶快讯`
 
 ### [扬帆每日速递 2022年1月21日版（1）](/content/gnews/24/README.md)

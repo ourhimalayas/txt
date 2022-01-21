@@ -2,34 +2,32 @@
 ---
 
 
-## 灭共者之CCP毒疫苗正在杀人
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1891594/)
+## 有声|麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891607/)
 
-出品：纽约香草山设计部 – 忧伤的兔子，火来
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+配音：香草山健身部 – 玫瑰园
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
 
 
 
+麻省理工学院一名研究科学家Seneff（瑟内夫）博士周四晚上在福克斯接受采访表示：父母应该尽量避免为孩子接种中共病毒疫苗，因为他们死于中共病毒的风险非常非常低。
 
+Seneff（瑟内夫）博士称，中共病毒疫苗对孩子的潜在危害远远大于益处。特别是接种加强针，从长远来看，这对孩子影响将是毁灭性的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-2-1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-71.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-20220118-08.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-20220118-07.jpg)
+Seneff（瑟内夫）博士撰写的文章称，中共病毒疫苗的快速研发和部署引起了多重安全问题。疫苗在与各种急性和长期诱发的病症的潜在关系方面的研究明显不足。Seneff（瑟内夫）博士在另一篇文中指出，中共病毒疫苗的大规模生产和强制接种的快速推进，表明相关机构并未对疫苗的风险性、安全性和对身体健康的有效性做充分的调研。
 
+原文链接：[麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗](https://gnews.org/zh-hans/1885189/)
 
-**编辑/发稿：小鹿**
-
-
+音频处理/发稿：Daxia
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 [**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
@@ -40,8 +38,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
 
 
 
