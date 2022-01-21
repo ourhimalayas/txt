@@ -2,55 +2,53 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891110/)
+## 中共国居民反抗COVID封锁，上街游行的视频
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891323/)
 
-翻译: wenwu
+编译：七叶之芒
 
-您若想了解全文报导内容，请点击标题链接
+在一次罕见的居民抗议迫使政策发生变化之后，中共国西北部的某小区居民成功地结束了长达一个月的封锁。
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+中共国的主要社交媒体的微博上出现了一些被删除的视频，显示数十人在陕西省西安市雁塔区的一个住宅区内进行示威。这座拥有1300万人口的城市于12月23日被全面封锁，但是该地区在一周前就已经被隔离了。邻居们喊道，无限期的封锁造成了困扰，影响了他们的生活。
 
-1. [洛杉矶新西部特许学校(New West Charter School LA )被抓到虐待未接种疫苗的年轻女孩](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
+在警察到达现场管理人群后，抗议者似乎发生了冲突，一些居民显然被按在地上。当地公安局报告说，这次“群体性事件”没有逮捕任何人，这是中共国政府对公民抗命事件的一种说法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1725.png)图片来源:thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-8-2.png)相关视频推特地址：[twitter.com](https://twitter.com/TragedyInChina1/status/1484089789754535942?s=20)
 
-据《门户网》2022年1月18日电，四名就读 New West Charter LA 的女学生因选择不接种中共病毒（COVID19）疫苗，而受到虐待；这些未接种疫苗的女孩被虐待包括威胁停学，不准上课，不准坐椅子，被迫坐在警戒带的人行道上，并且不被允许使用学校的公共厕所，外加学校警察在警戒带外守卫着。
+据报道，位于西安南部的华城国际小区的业主在微博上发帖称，自12月18日以来，他们一直生活在最严格的公共卫生措施之下，此前该市其他地方爆发了COVID的Delta变体。在一个多月的时间里，每个家庭的每个成员都被定期检测，但是该建筑群的所有公寓楼都没有出现过阳性病例。
 
-2. [免疫学圣地澳大利亚的耻辱——驱逐拒绝接种疫苗的男网运动员诺瓦克·德约科维奇](https://childrenshealthdefense.org/defender/australian-open-novak-djokovic-immune-covid/)
+目前正在与Delta和Omicron集群作战的中共国城市将其地区分为三个公共卫生类别：封锁、控制和预防。在第一类中，居民不允许离开他们的家；在第二类中，每个家庭被允许每两天派一名家庭成员去购买物资；在第三类中，他们的行动被限制在其附近地区。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1723.png)图片来源:thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-9-2.png)2022年1月6日，一名居民在中国陕西省西安市一个住宅区内设立的临时摊位上购买食品和日用品。2022年1月20日，自2021年12月18日以来一直被关在西安雁塔区一个小区的居民抗议严格的公共卫生措施。
 
-据《捍卫者》2022年1月19日电，2021年12月从COVID19感染中康复的德约科维奇（Djokovic），对COVID19具有相当自然免疫力（无需接种中共病毒疫苗）；澳大利亚政府凌驾于免疫学科学和医学伦理的原则之上，以拒绝接种疫苗为由，把德约科维奇驱逐出澳大利亚边境，不予参加赛事。
+在30多天的时间里，华城的居民和西安的其他居民一样，在他们的公寓里度过了圣诞节和新年。一些人抱怨不得不靠政府提供的口粮生活，而其他人别无选择，只能通过小区的物业管理机构购买昂贵的杂货。没有人可以离开。
 
-3. [在最高法院推翻拜登OSHA授权后，星巴克取消了疫苗强制要求](https://www.thegatewaypundit.com/2022/01/starbucks-nixes-covid-vaccine-requirement-supreme-court-strikes-biden-osha-mandate/)
+本周早些时候，西安市开始部分放松对某些居民区的封锁，骚乱由此开始。由于周二和周三该市没有报告新的感染病例——自去年以来首次出现COVID零病例，一些公共交通恢复了，某些企业也重新开业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1721.png)图片来源:thegatewaypundit.com
+根据社交媒体的帖子，华城居民要求将该地区的状态从隔离降为控制，允许他们有某种自由。一张据说是由物业机构发布的消息的截图称，当地政府已经批准，并将于周三宣布这一变化。
 
-据《门户网》2022年1月19日电，美国最高法院驳回了拜登政府关于拥有100名以上员工的美国公司进行全面疫苗授权计划的要求；星巴克首席运营官约翰·卡尔弗（John Culver）周二（18日）尊重法院的裁决，取消强制疫苗规定；通用电气公司（General Electric Co）上周五暂停了对其数十万员工的疫苗强制令。
+然而，周四的另一则通知说，该请求被拒绝，因为有一位回国的房主曾在本月早些时候被发现有COVID阳性病例的集中隔离区。根据该通知，华城可以在周六再次申请降级。居民们感到非常愤怒。
 
-4. [草根组织带头攻击拜登对联邦工作人员的疫苗授权](https://freebeacon.com/courts/grassroots-group-leads-attack-on-biden-vaccine-mandate-for-federal-workers/)
+在重新发布的微博视频版本中，人们看到几十个人涌向物业机构的办公室，要求结束他们的封锁。当工作人员报警时，居民们大喊大叫，后来警察参与了似乎是肢体冲突的行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195448.jpg)图片来源 : freebeacon.com
+几个小时后，国家媒体宣布将华城的几个公寓区从隔离状态降为控制状态。当地居民宣布胜利，说如果没有他们为“保护[他们]的权利”而进行的示威，政策的改变就不会发生。
 
-据《自由灯塔》2022年1月18日电，联邦医疗自由组织（Feds for Medical Freedom）是一个新的草根组织（grassroots organization），其背后得到了几乎所有美国联邦政府实体以及外交机构和军事设施的工人的支持；联邦医疗自由组织代表111万名未接种疫苗的联邦雇员和联邦承包商，总共700万人，在美国各地法院对拜登疫苗强制令发动控诉。
+中共国已经对其近90%的人口进行了全面的疫苗接种，但它仍然是唯一仍在推行零感染政策的国家之一。由于中共国在北京举办冬奥会，并在春季和夏季举办其他一些体育赛事，这种不容忍的做法预计将持续全年。今年秋天，中国共产党将举行第二十次全国代表大会，预计中共国国家主席习近平将获得前所未有的第三个任期。
 
-5. [澳大利亚可能很快就会为 2900 万只宠物接种中共病毒疫苗](https://insiderpaper.com/australia-may-soon-vaccinate-29-million-pets-against-covid-report/)
+公共卫生措施对居民很严厉，但非常有效。自12月9日以来，西安市报告了2000多起感染事件，但是该市的感染集群似乎已经消退了。周四，中共国国家卫生委员会表示，1月19日全国有43例本地传播的病例，包括北京东南80英里的港口城市天津的十几例，卫生当局正在追踪1月20日又增加了5例感染的Omicron。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195628.jpg)图片来源 : insiderpaper.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-9-3.jpg)2022年1月14日，在中国陕西西安，居民排队接受COVID-19的核酸检测。2022年1月20日，自2021年12月18日以来一直被关在西安雁塔区一个小区的居民抗议严格的公共卫生措施。
 
-据《内幕消息》2022年1月19日电，悉尼南十字星宠物医院的科瓦克（Sam Kovac）博士兽医正在努力与澳大利亚农药和兽药管理局合作，为澳大利亚的（2900万）宠物接种俄罗斯生产的疫苗；香港政府因一家宠物店的仓鼠受体（智飞疫苗引用中国仓鼠卵巢）可体外传播中共病毒，打算屠杀数以千计的小动物。
-
-6. [法国引进第五种疫苗Novavax](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220118-%E6%B3%95%E5%9B%BD%E5%BC%95%E8%BF%9B%E7%AC%AC%E4%BA%94%E7%A7%8D%E7%96%AB%E8%8B%97novavax)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-200410.jpg)图片来源: www.rfi.fr
-据《法广网》2022年1月18日电，法国政府周二(18r日)宣布，刚刚获得法国卫生当局（HAS）绿灯的（美国实验室研发）Novavax抗新冠病毒疫苗将在2月21日时抵达法国;Novavax将是在法国接种的第五种疫苗；Novavax疫苗采用了一种更传统的技术，与研制百日咳疫苗的技术类似。
+参考资料：[newsweek][China Residents Rebel Against COVID Lockdown, Take to the Streets in Video](https://www.newsweek.com/china-residents-rebel-against-covid-lockdown-take-streets-video-protests-1671132)
 
 * * *
 
-*审核：阿伯塔
+*审核：蚂蚁兄弟
 校对：信心满满
-发稿：Nuevo唐人*
+发稿：信心的选择*
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

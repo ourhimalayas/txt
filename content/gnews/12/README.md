@@ -2,58 +2,55 @@
 ---
 
 
-## 彼得·施韦泽的新书揭美精英渴望帮中共称霸
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1891038/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891110/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S-3.jpg)newspostwall.com
-《布雷特巴特》（Breitbart）通过福克斯主持人马克·莱文（Mark Levin）推介彼得·施韦泽（Peter Schweizer）的新书《人脏俱在》（Red-Handed），文章用马克·莱文的话作为题目，“彼得·施韦泽的《人脏俱在》是‘迄今为止他的最好的一本书’——‘你所了解的将是多么恐怖‘”。【1】
+翻译: wenwu
 
-文章说，马克·莱文赞扬了一本即将出版的、由“政府问责研究所”（GAI，the Government Accountability Institute）主席彼得·施韦泽（Peter Schweizer）撰写的《人脏俱在：美国精英如何通过帮助中共获胜而致富》，称这是施韦泽“最好的书”。
+您若想了解全文报导内容，请点击标题链接
 
-莱文在周四（1月20日）的《马克·莱文秀》开始时说，“这是迄今为止他最好的一本书。”他还补充，这本书包含了施韦泽和GAI进行的“广泛研究”。
+（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
 
-莱文说，《人脏俱在》的读者会对揭露的腐败感到“震惊”，他强调：
+1. [洛杉矶新西部特许学校(New West Charter School LA )被抓到虐待未接种疫苗的年轻女孩](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
 
-*我在这里告诉你们——读了这本书的绝大多数内容——我了解到了我不知道的东西，我知道这些事实，美国媒体永远不会调查[也]永远不会报道，因为他们就是其中的一部分。*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1725.png)图片来源:thegatewaypundit.com
 
-*你会震惊于你了解的——震惊——即使在这一点上，你自己可能在想，“没有什么会让我更震惊了。”*
+据《门户网》2022年1月18日电，四名就读 New West Charter LA 的女学生因选择不接种中共病毒（COVID19）疫苗，而受到虐待；这些未接种疫苗的女孩被虐待包括威胁停学，不准上课，不准坐椅子，被迫坐在警戒带的人行道上，并且不被允许使用学校的公共厕所，外加学校警察在警戒带外守卫着。
 
-*你会被你所了解的大科技公司（献媚中共）的程度所震惊——硅谷——背后的支持者习近平，不只是中共国，是习近平，（大科技公司）对他和那个政权的垂涎，就好像是一种宗教般的狂热崇拜，绝对令人难以置信。*
+2. [免疫学圣地澳大利亚的耻辱——驱逐拒绝接种疫苗的男网运动员诺瓦克·德约科维奇](https://childrenshealthdefense.org/defender/australian-open-novak-djokovic-immune-covid/)
 
-《福克斯新闻》频道将在周日的《生活、自由与莱文》（Sunday’s Life, Liberty & Levin）节目中播出对施韦泽的长篇访谈，重点是《人脏俱在》的研究。莱文还说，施韦泽不久将与他一起在广播中讨论后者对政治腐败的最新调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1723.png)图片来源:thegatewaypundit.com
 
-施韦泽与“政府问责研究所”（GAI）总监埃里克·艾格斯（Eric Eggers）一起主持了深入调查。
+据《捍卫者》2022年1月19日电，2021年12月从COVID19感染中康复的德约科维奇（Djokovic），对COVID19具有相当自然免疫力（无需接种中共病毒疫苗）；澳大利亚政府凌驾于免疫学科学和医学伦理的原则之上，以拒绝接种疫苗为由，把德约科维奇驱逐出澳大利亚边境，不予参加赛事。
 
-（全文完）
+3. [在最高法院推翻拜登OSHA授权后，星巴克取消了疫苗强制要求](https://www.thegatewaypundit.com/2022/01/starbucks-nixes-covid-vaccine-requirement-supreme-court-strikes-biden-osha-mandate/)
 
-即将在下周出版的《人脏俱在》简介：【2】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1721.png)图片来源:thegatewaypundit.com
 
-彼得·施韦泽（Peter Schweizer）说，作为一名调查记者，四分之一个世纪以来，这是他进行过的最可怕的调查。
+据《门户网》2022年1月19日电，美国最高法院驳回了拜登政府关于拥有100名以上员工的美国公司进行全面疫苗授权计划的要求；星巴克首席运营官约翰·卡尔弗（John Culver）周二（18日）尊重法院的裁决，取消强制疫苗规定；通用电气公司（General Electric Co）上周五暂停了对其数十万员工的疫苗强制令。
 
-中共政府试图渗透美国机构并不令人惊讶，然而，全新的是美国精英的数量，他们渴望帮助中共国独裁政权以寻求其全球霸权。
+4. [草根组织带头攻击拜登对联邦工作人员的疫苗授权](https://freebeacon.com/courts/grassroots-group-leads-attack-on-biden-vaccine-mandate-for-federal-workers/)
 
-总统家族、硅谷大师、华尔街大亨、常春藤联盟大学，甚至职业运动员都愿意在个人财富的祭坛上牺牲美国的力量和安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195448.jpg)图片来源 : freebeacon.com
 
-六届《纽约时报》畅销书调查记者彼得·施韦泽（Peter Schweizer）在《人脏俱在》一书中披露了美国富人为帮助中共国增强军事、技术和经济实力而达成的秘密交易，展示了他迄今为止最令人震惊的发现。同样令人惊讶的是，这些精英中的许多人暗自相信中共的独裁政权优于美国的民主。
+据《自由灯塔》2022年1月18日电，联邦医疗自由组织（Feds for Medical Freedom）是一个新的草根组织（grassroots organization），其背后得到了几乎所有美国联邦政府实体以及外交机构和军事设施的工人的支持；联邦医疗自由组织代表111万名未接种疫苗的联邦雇员和联邦承包商，总共700万人，在美国各地法院对拜登疫苗强制令发动控诉。
 
-彼得·施韦泽和他的司法调查团队花了一年多的时间，翻阅了大量的全球公司记录和法律文件，来揭露隐藏的交易，中共的相关人员会竭尽全力掩盖这些交易，希望永远不被曝光。正如施韦泽过去在《腐败》、《秘密帝国》和《克林顿·卡什》书中爆炸性地披露的人物介绍所表明的那样，在政治光谱的两端都有坏演员。
+5. [澳大利亚可能很快就会为 2900 万只宠物接种中共病毒疫苗](https://insiderpaper.com/australia-may-soon-vaccinate-29-million-pets-against-covid-report/)
 
-详尽的研究、清晰的叙述，令人毛骨悚然，《人脏俱在》将揭露中共政府和美国精英之间的权力关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195628.jpg)图片来源 : insiderpaper.com
 
-相信彼得·施韦泽通过文贵先生直接或间接地得到了很多的资料及线索，这是让美国，让世界了解中共必要的途径，通过了解中共的龌龊手段，以及对文明世界的侵蚀，人们才能真正意识到自己的危险处境，才能觉醒。
+据《内幕消息》2022年1月19日电，悉尼南十字星宠物医院的科瓦克（Sam Kovac）博士兽医正在努力与澳大利亚农药和兽药管理局合作，为澳大利亚的（2900万）宠物接种俄罗斯生产的疫苗；香港政府因一家宠物店的仓鼠受体（智飞疫苗引用中国仓鼠卵巢）可体外传播中共病毒，打算屠杀数以千计的小动物。
 
-大觉醒即将到来，中共你完了！
+6. [法国引进第五种疫苗Novavax](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220118-%E6%B3%95%E5%9B%BD%E5%BC%95%E8%BF%9B%E7%AC%AC%E4%BA%94%E7%A7%8D%E7%96%AB%E8%8B%97novavax)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-200410.jpg)图片来源: www.rfi.fr
+据《法广网》2022年1月18日电，法国政府周二(18r日)宣布，刚刚获得法国卫生当局（HAS）绿灯的（美国实验室研发）Novavax抗新冠病毒疫苗将在2月21日时抵达法国;Novavax将是在法国接种的第五种疫苗；Novavax疫苗采用了一种更传统的技术，与研制百日咳疫苗的技术类似。
 
-有关链接：
+* * *
 
-【1】[https://www.breitbart.com/podcast/2022/01/20/mark-levin-peter-schweizer-red-handed-far-best-book/](https://www.breitbart.com/podcast/2022/01/20/mark-levin-peter-schweizer-red-handed-far-best-book/)
-
-【2】[https://www.amazon.com/Red-Handed-American-Elites-Helping-China/dp/0063061147/?tag=breitbart035-20](https://www.amazon.com/Red-Handed-American-Elites-Helping-China/dp/0063061147/?tag=breitbart035-20)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
-
+*审核：阿伯塔
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
