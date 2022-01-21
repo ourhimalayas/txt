@@ -2,26 +2,40 @@
 ---
 
 
-## 加拿大与G7国家疫情下的通胀危机
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1887430/)
+## 在BVI缠诉七哥的APPLEBY律所曾代表过七哥和七哥家族
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887464/)
 
-采编：   UCool 优酷          编译撰稿：   自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image-5.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=KnOF0Rzs&amp;id=FDCE9F57598F01B1FD36FED21FC2A4C244B0EFEA&amp;thid=OIF.%2b%2bFPlMsxVSGwY3rr4lMT7Q&amp;mediaurl=https%3a%2f%2fwww.ctvnews.ca%2fpolopoly_fs%2f1.5748109.1642706518!%2fhttpImage%2fimage.jpg_gen%2fderivatives%2flandscape_960%2fimage.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.2a7385d11cecad80927c3e5c4e20939a%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=540&amp;expw=960&amp;q=The+pandemic%27s+impact+on+inflation+and+how+Canada+compares+to+other+G7+countries&amp;simid=163867030054&amp;FORM=IRPRST&amp;ck=FBE14F94CB315521B0637AEBE25313ED&amp;selectedIndex=10&amp;ajaxhist=0&amp;ajaxserp=0)
+G-TV视频链接：[https://gtv.org/video/id=61e9f22b87664c47acd79030](https://gtv.org/video/id=61e9f22b87664c47acd79030)
 
-加拿大[CTV新闻]1月18日刊文，对疫情爆发以来，加拿大和其他G7国家在受到通货膨胀影的响程度方面进行了比较。并指出：新的“奥密克戎”疫情再次加剧了西方各国难以遏制的通胀危机，而因此造成的所有损失最终都会转嫁到消费者身上。
+**郭文贵先生**：说到这时候大家记住，我们的战场，另外一个战场是在BVI，在BVI这个小岛上，法官和律师，那当地两大律师事务所叫什么APPLEBY，这个是Edward Moss的照片大家都看到了，有一个APPLEBY的，大家看一看啊，APPLEBY是 A、P、P、L、E、B、Y 这家公司，这家律师事务所。你知道什么概念吗？这三四年来他们在BVI的缠诉，这个APPLEBY的律师事务所，竟然是曾经代表过七哥的案子，代表过我们家族的案子，代表过我儿子的案子，这家公司竟然跟PAG（PAX）来合作，来告我们就在PAG上，告我们在BVI代表PAX来告我们，跟这个Bondi Cahill一模一样。
 
-文章指出，疫情最大的负面影响之一就是对全球物资供应链整体的破坏，并因此造成了从汽车产品、日用商品和食品乃至住房等所有物价的飞涨，通货膨胀已成为各国政府必须面对的艰难困境。
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-目前，加拿大的通胀率约为5%，远高于联邦政府和该国银行能控制的3%上限。同时，美国目前的通胀率是7%，为1982年以来的最高值。而欧盟的德国和英国都约为5.2%，也是两国10年来最高水平。
+编辑整理：Jacques；
 
-尽管现在全球的病毒疫情出现了减缓趋势，但随着今年5月前后即将在疫苗高接种率国家出现的疫苗伤害及其次生灾难，西方各国特别是美加的经济将出现不可避免的大崩溃。
+字幕文件制作：小满；
 
-校对编辑：硫酸羟氯喹64
+视频制作及上传：Cindy；
 
-发稿： 苦尽甜来 (文來）
+G-News发布：小满；
 
-[原文链接](https://www.ctvnews.ca/health/coronavirus/the-pandemic-s-impact-on-inflation-and-how-canada-compares-to-other-g7-countries-1.5743508?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61e6f926d7b2470001794760&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

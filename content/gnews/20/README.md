@@ -2,51 +2,43 @@
 ---
 
 
-## 女儿通知我要去打疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1887433/)
+## 共产党一定要在BVI彻底搞定岛上的法官和律师事务所
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887486/)
 
-撰稿：文飞天
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15-3.jpg)（图片来自网络）
-前言
-2020年10月2日，川普总统确诊的消息传来，给我带来巨大震撼，当天开始，我和两个孩子开始服用羟氯喹加锌的预防方法，一直坚持到现在。
-昨晚，读大学的女儿通知我，她决定去打疫苗，原因是她的同学全部打了，而且最近我们居住的城市开始限制电影院和餐厅，未接种者不能进入。
-我知道这一天终究会来，政府步步紧逼，我的父母为了进食肆吃饭，上周悄悄接种后才告知我。
-和女儿争论时我无力的哭了。
-这半年来，我们在预防上也加了维C维D，我总是告诉两个孩子，哪怕不上班不上学，我们也不打疫苗。
+G-TV视频链接：[https://gtv.org/video/id=61e9f26d87664c47acd7903b](https://gtv.org/video/id=61e9f26d87664c47acd7903b)
 
-致我亲爱的女儿：
+**郭文贵先生**：你知道二三年前你看我直播我说过，我说内部人告诉我说，共产党说一定要在BVI巴哈马这地方彻底搞定法官和律师事务所，因为那里总共岛上不超过五个法官，这是战友当时大家直播中大家都提到的。这个律师事务所APPLEBY就明显的这个Bondi、跟Edward Moss一模一样。这是个基本上就Rachel你不能睡在大卫的床上，因为大卫的老婆不是你，就这么简单道理你非说我就睡他床上，我证明我不是他老婆呀，你这不是胡搅蛮缠吗？就这，到现在还是代表PAX官司。他当然现在还没有判决还没有赢呢。
 
-这是我所知道的消息。
-1，疫苗的每一针含有40万亿个刺突蛋白，进入血液后，对身体造成巨大伤害；
-2，打2针是80万亿个刺突蛋白；
-https://gnews.org/zh-hant/1495482/
-3，3针就是120万亿个刺突蛋白；
+那么2月2号听证会什么？法官会像，再可能是……反正两种可能，一个判这船不是Miles Guo的，一个判是Miles Guo的。美国纽约法官是没有做出判决，没有权力做出这样的决定的，但是他会强烈影响BVI。
 
-对身体造成永久伤害，包括
-1，50%的人患癌，10年会因各种病死亡；
-2，常见病，脑梗.心梗.心肌炎等致命疾病；
-3，诱发身体内各种潜伏的不良基因或病，造成提前患病，而且病情严重。
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-对身体的永久伤害包括：
-1，因基因改变，女子将无法生下健康婴儿，男子也是，精子被破坏，无法正常传宗接代。
+编辑整理：Jacques；
 
-作为你的母亲，我相信这个世界上，没有任何人比我更爱你，更想保护你，更希望你平安成长。
-如果我不知道以上信息，我大概也会像所有人一样，去打针，因为相信政府相信所谓的专家，因此，把自己的性命交出去。
-如果你是我，你会让自己的孩子去打针吗？不要说得癌症的机会佔50%，哪怕有可能患癌，哪怕有一丝风险，我也不会让我的孩子去承受这些风险。
+字幕文件制作：小满；
 
-我希望你和弟弟，还有你爸爸，我们4个人能平安活著，不染新冠，不打疫苗，哪怕牺牲你们的工作与学业，还有不足挂齿的社交生活。
-因为我坚信，目前的压迫、强制执行疫苗政策，只是短暂，与我们的漫长人生相比，一定是短暂的，我有责任保护你们，你们三人是我的全部。
-据说，今年5月是全球疫苗灾难的开始，什麽是疫苗灾难？
-全球包括香港，曾经接种疫苗的人，会大量得病大量死亡，从而造成各行各业的供应断缺，城市的生活几乎停顿，到那个时候，我们的食物也可能没有了。
-为什麽是今年5月开始？
-这是根据全球从去年3月开始推行疫苗开始推算，通常疫苗在身体内18个月所产生的副作用。
-如果你不相信以上所述，仍然坚持去打针，去追求你的自由人生，我也希望你不要急，等一等，看看半年后的世界，到底会变成怎样？
-我们常说，宁可信其有，不可信其无，亲爱的女儿，我不会骗你。
-你想过没有？如果你的命都没有了，如果你看到的只是眼前的短暂：不能去学校、不能看电影、不能和朋友去吃饭去玩。
-我想问问你，生命重要健康重要？还是短暂的玩乐重要？
+视频制作及上传：Cindy；
 
-发稿：MG5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

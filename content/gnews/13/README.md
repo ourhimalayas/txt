@@ -2,20 +2,22 @@
 ---
 
 
-## 免签证申请费：澳大利亚感染迅速增加，劳动力短缺严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887504/)
+## 中共威胁加剧 美国将加快向台湾交付新一代F16战机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887539/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-9.jpg)[图片来源](https://www.reuters.com/world/asia-pacific/sydney-braces-more-omicron-cases-no-lockdowns-now-2021-12-01/)
-自确认 Omicron 菌株出现社区传染以来，澳大利亚的感染人数急剧增加。随着感染人数的增加，作为密切接触者被隔离的人数也在增加，因此劳动力短缺也很严重。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-66.jpg)[图片来源](https://www.scmp.com/news/china/military/article/3004963/taiwans-plan-buy-66-f-16-viper-fighter-jets-us-still-track)
+路透社1月20日报道，美国正在想方设法加快向台湾交付新一代F-16战斗机，以增强台湾空军应对中共军方日益增加的武力威胁。
 
-因此，莫里森总理为背包客和其他人提供免签证申请费。
+相关美国官员表示，他们还没有拿出如何加快交付Block70 F-16战斗机的方案。Block70 F-16是配备了新功能的升级版战斗机，由洛克希德马丁(LockheedMartin)制造。目前计划的交付时间在2026年底。
 
-总理莫里森：“现在就来吧。来澳大利亚享受假期吧。同时，在农业和酒店等劳动密集型领域工作，以支持经济。”
+台湾一位高级官员称，台湾政府已私下向美国政府表示，希望能加快战斗机的交付。目前，台湾空军频繁出动战机拦截愈发咄咄逼人的中共军机，更多任务意味着台湾战机的损耗会加大。“这一切都与风险评估有关……风险在哪里是显而易见的。”他指的是台湾海峡的紧张局势。
 
-信息来源：
+根据2019年批准的一项价值80亿美元的交易，台湾将购买66架新制造的F-16C/DBlock70战斗机，成功交付后，台湾将拥有亚洲最大的F-16战机机队之一。到2026年，包括老式F-16在内，台湾的F-16战斗机总数将超过200架。
 
-[豪・ビザ申請費用免除　感染急増で労働力不足が深刻](https://news.yahoo.co.jp/articles/ff49d6c43f2c6944fe8534cf40756d691d7580fa)
+消息来源:
+
+[独家：美国正想方设法加快向台湾交付新一代战斗机](https://cn.reuters.com/article/us-tw-warplane-0121-idCNKBS2JV05L?il=0)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*

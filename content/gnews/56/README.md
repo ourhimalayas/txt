@@ -2,18 +2,32 @@
 ---
 
 
-## 港闻速递｜下月中旬起 公务员必须接种疫苗 违者或面临纪律处分
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1883200/)
+## 天津民众或因物资紧缺奋起抗议 终遭逮捕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1883171/)
 
-**撰文/ 港台前线关注组｜发布日期/ 20/1/2022 **
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月18日晚间，据爆料人士在盖特平台上发布的视频显示，中共国天津市某疫情封控地区近期发生了一起外地人员的群体性抗议事件。截止目前，有部分参与的民众已经被当地警方逮捕。
 
-《独媒》获得消息指，特区政府向公务员发送内部邮件，通知下月16日起，将收紧“疫苗气泡”的相关细节，要求所有政府雇员，除非持有有效的医生证明，证实身体状况的确不适宜打针，否则必须接种新冠疫苗，才可以进出政府大楼上班，违者将被视为“旷工”而面临纪律处分。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-12.jpeg)
 
-局方表示，目前，已有98%的政府雇员已接种过至少一针新冠疫苗，而是次内部邮件中的实施细则，涵盖范围包括公务员，非公务员合约雇员以及退休后返聘雇员，所有政府部门均须纪录员工的接种纪录，若有雇员拒绝配合，则被视为“拒绝执行部门指示”，亦会面临纪律处分。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/下月中旬起-公務員必須接種疫苗-違者或面臨紀律處分.jpg)
-来源｜[獨媒](https://bit.ly/3GKBD2H)
+据悉，在爆发抗议的隔离封锁区内，中共天津政府的防疫人员仅为本地人按时提供口罩和蔬菜，而在此居住的外来务工人员却不能享有同等的待遇。从爆料视频中可以看出，大量的外地人员汇聚在一起向天津市政府抗议，其中，有民众愤怒地站在车顶上向几名防疫人员呐喊质疑：外地人员吃什么。随后，其他参与者将防疫人员团团围住，并不断高呼“放人”。然而，据消息人士透露，民众奋起反抗的结果，除了部分参与人员的牢狱之灾外，只换来当地政府试图息事宁人的一包泡面。此外，有相关负责人也表示，当地确实面临着物资匮乏的严峻挑战。
 
+参考链接：[天津的群体性事件！](https://www.gettr.com/post/pp75jn888e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001 
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
