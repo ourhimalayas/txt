@@ -2,31 +2,28 @@
 ---
 
 
-## 01/21每日播报｜“奥米炕”变种的出现使各国政府卫生官员对人们获得群体免疫的希望正在消失
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1889323/)
+## 大直播后记：共产党向沼泽地献祭70年的总数
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889362/)
 
-**By:[秘翻新闻](http://xn--%20%20%201-8p3gla6267fh20bdnm4sbxwao24sm7j7y1ajp4co7sdk0a.xn--%202-db7ag0193it2kpm9ae81e41c.xn--0:%202-qi0ci5386hz1ah1dn6kwzaj2cn6iuxb70o5mgto0e9syb80cb62eicv4o3hfm0a16y8pg.xn--%201-2f5fk4hh1hyqa9sz00rea6955a0hohw1c1in.xn--795%207917%203-2j9vha16gf1o5tvn40dq04m.xn--%2010%206-z95n5mp64a0b018ainh0vjlkw97n8t0do0xaw49b9dusz9fonh.xn--67%204-jp8ijb822c3p3a8s5b10w.xn--%20:%205-nd0mp0fa992e7va01dkvc4xi7c01hwhn79bba36gr83ahzbfa56er75c5i6auj0an0luud3w0d0o3jtluccxlyhmm5ch72da4004d.xn--%206-996aagb7889hsma57n0rh24bw7ad0y3taz0zo0a191aq0bz7tj6cq71dylj420a4xm75t272agldb6h5t7cmmv.xn--%20%20%207-pm2pi1f22dl8h3vi7vblwa814b55gzz0dkdm33b6ry38leiuflzl5wnv7arcas65ncm9avl6g.xn--%20%20%208-xy3pefw3cm9td5bkwfva423b0wcpv5bq51axxfboolt0alhwsemipg8luph3b2x7j1ndsujzr9i.xn--%20%209-fx3k5ir8ftstc217ayd254bn6b4y1b1ki86bhhk2lbv8b8jbz83ijt2c29gdy8mooa16eh48p.xn--%20%2010-nd0mo0k0zfnc0c654csiap71etpao0k4xjp05b1tj22co8z3snunmd62dfa4582erltxr5bt0m.xn--%2051%20%20%21%20gtv:https-ub91b9zay3h2lv8d0ya861ev5icljn0e6uhxmoto0aeenyxcdy7di08aqerdn8c9nxc016hw8ofzsap0i6zwsgbwzas05igv4cqul0jdfy0gedxcex680a//gtv.org/broadcast/watch/61ea752f533c672fca803538)**
+整理：雅典娜速记组
+编辑：Rianna
 
-**[2022-01-22](http://xn--%20%20%201-8p3gla6267fh20bdnm4sbxwao24sm7j7y1ajp4co7sdk0a.xn--%202-db7ag0193it2kpm9ae81e41c.xn--0:%202-qi0ci5386hz1ah1dn6kwzaj2cn6iuxb70o5mgto0e9syb80cb62eicv4o3hfm0a16y8pg.xn--%201-2f5fk4hh1hyqa9sz00rea6955a0hohw1c1in.xn--795%207917%203-2j9vha16gf1o5tvn40dq04m.xn--%2010%206-z95n5mp64a0b018ainh0vjlkw97n8t0do0xaw49b9dusz9fonh.xn--67%204-jp8ijb822c3p3a8s5b10w.xn--%20:%205-nd0mp0fa992e7va01dkvc4xi7c01hwhn79bba36gr83ahzbfa56er75c5i6auj0an0luud3w0d0o3jtluccxlyhmm5ch72da4004d.xn--%206-996aagb7889hsma57n0rh24bw7ad0y3taz0zo0a191aq0bz7tj6cq71dylj420a4xm75t272agldb6h5t7cmmv.xn--%20%20%207-pm2pi1f22dl8h3vi7vblwa814b55gzz0dkdm33b6ry38leiuflzl5wnv7arcas65ncm9avl6g.xn--%20%20%208-xy3pefw3cm9td5bkwfva423b0wcpv5bq51axxfboolt0alhwsemipg8luph3b2x7j1ndsujzr9i.xn--%20%209-fx3k5ir8ftstc217ayd254bn6b4y1b1ki86bhhk2lbv8b8jbz83ijt2c29gdy8mooa16eh48p.xn--%20%2010-nd0mo0k0zfnc0c654csiap71etpao0k4xjp05b1tj22co8z3snunmd62dfa4582erltxr5bt0m.xn--%2051%20%20%21%20gtv:https-ub91b9zay3h2lv8d0ya861ev5icljn0e6uhxmoto0aeenyxcdy7di08aqerdn8c9nxc016hw8ofzsap0i6zwsgbwzas05igv4cqul0jdfy0gedxcex680a//gtv.org/broadcast/watch/61ea752f533c672fca803538)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/DXKC8QFQ1JT@HEED41.png)图片设计：雅典娜设计组（614）
 
-路透社1月20日报道，传染病专家认为，奥米炕变种的传播速度远快于以前任何一个版本的中共病毒，不太可能帮助各国实现对中共病毒的所谓群体免疫。
 
-从2020年初全球大流行的最初几天开始，许多国家的公共卫生官员就表示，只要有足够高比例的人口接种疫苗或感染该病毒，就有可能实现针对中共的群体免疫。但随着中共病毒在过去一年中迅速地连续变异成不同新变种，使其能够重新感染接种过疫苗或之前感染过中共病毒的人，这使得群体免疫的希望变得十分渺茫，
+我们要消灭共产党，不让你父母让你女儿成为杨改兰，生5个孩子而被迫杀掉，这就是中国的杨改兰。中国有多少杨改兰呢？你相信只有100万吗？你相信只有1000万吗？如果你相信这的话，共产党很简单，把互联网给打开，让世界人民知道，中国人知道过去发生了什么事，现在正发生了什么事，未来会发生什？共产党杀掉了中国多少人呢？就过去70年计划生育公开的说4.5亿，文化大革命，8000万到一个亿；新疆、西藏大屠杀，还有所谓的对日抗战战争，北朝鲜战争借美国人手冻死、杀死所谓过去的国民党所有的叛军，也就是我们的同胞上百万人；大跃进3反5反，从1913年到2022年，中国人死掉最起码6亿人口，这6亿人相信这是冤魂野鬼 。包括杨改兰、包含那些所谓被枪毙了、大跃进还有杀掉那两百多万地主，64坦克碾压的那些人；西藏的713，所有自焚的人，和新疆的所谓313、317事件……这些人要不回来算账是不可能的，这些人是到不了天堂。我们会携着这些冤魂野鬼的灵魂和力量来战胜这些黑暗的共产主义，和达沃斯党对人类的统治和屠杀。如果他们是正义的，不可能王毅说出潘多拉盒子，你真让我要打开潘多拉盒子吗？他是代表中国政府说的话。他就不可能诞生偶然性了。70年，偶然它的达沃斯讲我要给你开药方把脉，就吃出了病毒。然后来到中国武汉还不让你查。如果是偶然，就不可能发生今天香港的突然间100年死了不到5000人，短短2年，“自杀”却将近2万多人。
 
-自去年年底奥米炕变种出现以来，一些国家的卫生官员认为已经恢复了实现群体免疫的可能性。他们认为，这种变种传播速度如此之快并导致病情较轻的事实可能很快就会让足够多的人以一种危害较小的方式接触中共病毒并为身体提供免疫保护。然而，传染病专家指出，奥米炕变种的传染性强得益于这种变种在感染已接种疫苗的人或先前感染过的人的方面甚至比其之前的其他变种更容易的事实。他们说，这提供了一种证据来表明中共病毒将继续寻找突破人类免疫防御的方法。
+郭文贵说是我们新中国联邦的信仰，就是要灭掉中国共产党。有没有想到过2017年第一次直播最后一句话说，为什么要说这话？保命保财报仇？！我们今天会理解更多。报仇，如果你连这样的兄弟被杀害之仇，你都不能报，你能帮别人救别人，你能救自己吗？那么新疆、西藏、香港、台湾被杀害的同胞，还有北朝鲜、文化大革命被杀害同胞，郭文贵的八弟是同胞，那么我们要报仇的就是我的同胞，我包含了所有人。保命保财报仇，你命都不保，中国人可怜到啥程度？在国内是不是你家里边拥有财富？有官员你们都很富有。你到中国农村看，你到广西，你到甘肃去看，你喝着黑的水。所谓的希望工程，搭的房子20平方米。然后就是从河南移民到那儿去的，一年就那几套衣裳。你平均年龄没有超过50岁的，你看看中国人，就是有个媳妇啊，造2个娃娃。只要像猪一样的活着。他就是这种没有任何怨。这为什么杨改兰她不简单？她有勇气杀掉自己，还自己杀掉，就没法活了。杨改兰这样的人在中国现在有多少？绝对是几千万的。就是上周从甘肃的，郭文贵去看过，跟他联络，还真联络上，问他你现在情况怎么样，他说我们偶尔能看看，但是一般看不上。他说真的是过去能看看不了了，最近你发生什么事都不知道。最后郭先生叮嘱他一定要想办法让他看看，过去看过的甘肃那个所谓的被共产党扶了贫的地方。你看到那视频你会无法想象，跟郭先生在2011年和2009年去看过的甘肃那个更糟，没更好，问他那里的人现在都怎么样。还有看过那个姓梅的，梅花的梅很少有姓这个姓的。，梅花的梅一家他俩都死了。而且现在的新的移民，你知道多恐怖吗，他们现在过去还能促进你随便走。现在你一到甘肃，所谓的被扶贫的这些人，你是根本出不去的。现在他们不是每个人都有手机，还是一个地方用一个手机，就像过去的小灵通一样， 区域性手机。就是这个社会是人类之黑暗，你们要不懂的话，你们就不知道你现在有多幸福。你们没打疫苗，又有喜币，还能直播，也看你们穿的长的都这样子，是多幸福的珍惜你们的每1秒钟。不要辜负了上天给我们一切的美好。
 
-北卡罗来纳大学教堂山医学院的传染病专家大卫沃尔博士说：当接种疫苗的人仍然可以传播病毒并感染其他人时，这种病毒改变了游戏规则。
+资料来源：郭先生GTV和盖特直播视频。
 
-伦敦大学学院计算系统生物学教授弗朗索瓦·巴卢克斯告诉路透社：这些言论在媒体上出现：‘当 60% 的人口接种疫苗时，我们将实现群体免疫，然而它没有发生。然后是 80%。群体免疫再一次没有发生。尽管听起来很可怕，但我认为我们必须为绝大多数人，基本上每个人都会接触到中共病毒做好准备。”
+发布：  tianzhihuan
 
-（秘翻新闻主编 清风先生编译报道）
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

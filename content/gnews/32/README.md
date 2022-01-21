@@ -2,26 +2,18 @@
 ---
 
 
-## 巴基斯坦总理伊姆兰·汗隐瞒虚报外国资金引批评
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889215/)
+## 秘翻在线：法国众议院通过&#8221;中共在新疆实施种族灭绝&#8221;的决议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889233/)
 
-#### 撰稿：彩虹
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-30.png)（图片源自本文链接）
+TBS新闻1月21日消息：距离北京奥运会只有两个多星期了，法国众议院通过了一项决议，指责中共国在新疆维吾尔自治区进行 “种族灭绝”。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-11.jpg)图片来源：NDTV
-1月6日，《印度教徒报》发表文章，报道巴基斯坦总理伊姆兰·汗（Imran Khan）在执政的正义运动党（Tehreek-i-Insaf party）的国外资金中被查出存在“欺诈行为”。
+法国众议院20日几乎全票通过的决议指出：维吾尔族的人口受到强制绝育政策的压制，孩子被带走的情况十分严重。指责中共有 “消灭维吾尔族的意图”，相当于 “种族灭绝”，要求法国政府正式承认。
 
-自2019年11月，巴基斯坦前总理纳瓦兹·谢里夫（Nawaz Sharif）因腐败案在拉合尔的科特·拉赫帕特（Kot Lakhpat）监狱服刑七年。在拉合尔高等法院批准他保释四周后，他已经去了伦敦，一直居住在英国，进行自我流放，以便在国外接受治疗。
+中共驻法国大使馆发表声明说：这是公然基于对中国的偏见和敌意的谎言。
 
-根据报道，巴基斯坦选举委员会的一份报告显示，正义运动党在2009-2010财年和2012-2013财年的四年时间里，少报了3.12亿巴基斯坦卢比（约177万美元）。按年份划分的细节显示，仅在2012-2013财政年度就少报了超过1.45亿巴基斯坦卢比（约82万美元）的金额。
-
-对此，前总理纳瓦兹·谢里夫称，这说明伊姆兰·汗是一位“腐败和不诚实的政治骗子”。
-
-重点值得关注的是，谢里夫先生说，选举委员会的报告现在只是揭露了伊姆兰·汗总理和正义运动党，但当他们不得不说出他们从谁那里拿了钱以及在哪里花了钱时，会发生什么？
-
-**新闻来源**
-
-[Pakistan’s PM has been exposed as ‘corrupt and dishonest con man’: Nawaz Sharif](https://www.thehindu.com/news/international/pakistans-pm-has-been-exposed-as-corrupt-and-dishonest-con-man-nawaz-sharif/article38152377.ece/amp/)
+信息源：[新疆ウイグル自治区で中国「ジェノサイド」 仏下院、決議採択（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/eacf9d59946bbcb941601cacd91b376444d77a7f)
 
  
 

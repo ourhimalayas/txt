@@ -2,26 +2,31 @@
 ---
 
 
-## 中共威胁加剧 美国将加快向台湾交付新一代F16战机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887539/)
+## 有声|德国要求中共解除对立陶宛及欧盟的胁迫措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1887865/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-66.jpg)[图片来源](https://www.scmp.com/news/china/military/article/3004963/taiwans-plan-buy-66-f-16-viper-fighter-jets-us-still-track)
-路透社1月20日报道，美国正在想方设法加快向台湾交付新一代F-16战斗机，以增强台湾空军应对中共军方日益增加的武力威胁。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月14日，德国外交部发言人柏格在记者会中表示，德国与欧盟支持立陶宛，并要求中共解除对立陶宛和欧盟内部市场所有正式和非正式的胁迫措施。
 
-相关美国官员表示，他们还没有拿出如何加快交付Block70 F-16战斗机的方案。Block70 F-16是配备了新功能的升级版战斗机，由洛克希德马丁(LockheedMartin)制造。目前计划的交付时间在2026年底。
+立陶宛因为决定设立台湾代表处，被中共无理干涉。 中共利用不合理手段，在海关故意阻扰立陶宛产品及含有立陶宛零件的欧盟产品进行通关程序，致使这些欧盟出口到中共的货物大量卡关堆积，造成欧盟厂商的困扰。
 
-台湾一位高级官员称，台湾政府已私下向美国政府表示，希望能加快战斗机的交付。目前，台湾空军频繁出动战机拦截愈发咄咄逼人的中共军机，更多任务意味着台湾战机的损耗会加大。“这一切都与风险评估有关……风险在哪里是显而易见的。”他指的是台湾海峡的紧张局势。
+欧盟执行委员会已经在检视中共的干预措施是否符合世界贸易组织（WTO）的规范，欧盟主管贸易的执行委员杜姆布罗夫斯基表示，欧盟正在搜集证据，准备对于中共违反世贸组织规范的行为，向世贸组织提出控诉。
 
-根据2019年批准的一项价值80亿美元的交易，台湾将购买66架新制造的F-16C/DBlock70战斗机，成功交付后，台湾将拥有亚洲最大的F-16战机机队之一。到2026年，包括老式F-16在内，台湾的F-16战斗机总数将超过200架。
+文字版原文：[德国要求中共解除对立陶宛及欧盟的胁迫措施](https://gnews.org/zh-hans/1875786/)
 
-消息来源:
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-[独家：美国正想方设法加快向台湾交付新一代战斗机](https://cn.reuters.com/article/us-tw-warplane-0121-idCNKBS2JV05L?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,22 @@
 ---
 
 
-## ESPN宣布不派遣新闻人员参与北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889281/)
+## 有医生为农村患者设计昂贵但效果最差的方案
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1889333/)
 
-#### 撰稿：彩虹
+素材：波士顿五月花 黄金时代
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-19.jpg)图片来源：MSN
-ESPN（Entertainment Sports Programming Network，娱乐与体育节目电视网）是一间24小时专门播放体育节目的美国有线电视联播网，ESPN及ESPN国际在美国9000万家庭和全球147个国家可以收看。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1000-4.jpg)From new.qq.com
 
-1月20日，《国会山报》报道，周四，ESPN发布声明，出于对中共病毒（COVID-19）的担忧和与疫情有关的限制，表示将不会向北京冬奥会派遣新闻人员。
+2021年4月，39岁的肿瘤内科医生张煜在网上公布了一名患者的病例，反映肿瘤的不规范诊疗问题，揭穿乱象。引爆舆论后，张煜就被他所在的医院调离门诊，在住院部工作，至今仍未调回。尽管无法在现实中接诊，但他是网络上的热门医生，好评率100％。
 
-文章说，ESPN原计划向中国派出四名记者，但这些记者现在将加入远程奥运报道。
+医生张煜：许多标准方案被改得一塌糊涂。针对肿瘤的治疗，昂贵的治疗方案不一定是好的，如果只追求使用昂贵药物，完全偏离各种指南，极有可能令患者利益受损。
 
-ESPN的执行副总裁诺比·威廉森（Norby Williamson）一份声明中说：“对我们来说，员工的安全是最重要的。随着（中共病毒）疫情继续成为一个全球性的威胁，以及与中共病毒（COVID）有关的现场限制，在奥运会上将使报道变得非常具有挑战性，我们认为让员工留在家里是对我们最好的决定”。
+原文链接：[医生揭肿瘤治疗乱象：有医生为农村患者设计昂贵但效果最差的方案](https://new.qq.com/omn/20220119/20220119A01K6V00.html)
 
-**新闻来源**
+* * *
 
-[ESPN announces it won’t send reporters to Beijing Olympics due to COVID-19](https://thehill.com/homenews/media/590712-espn-announce-it-wont-send-reporters-to-beijing-olympics-due-to-covid-19)
+*编辑 /发布：吐纳*
 
  
 
