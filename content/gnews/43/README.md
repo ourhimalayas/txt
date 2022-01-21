@@ -2,44 +2,34 @@
 ---
 
 
-## Eglise医生新节目预告《避风港 HAVEN》
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1888990/)
+## 瑞幸咖啡计划重新在美上市
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1889224/)
 
-撰稿：Yousei
-《避风港HAVEN》片头制作：外星人
-2022年1月21日，随着喜马拉雅纽约磐石农场 G-EDU，G- Music，Rock- Media的正式上线，Rock Media 继《鸡血王-喜币大作战》后，将再次推出一档精心打造的专栏节目《避风港 HAVEN》。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-值此中共病毒疫苗漫天笼罩的至暗时刻，太多人失去了生命，人们无处藏身，找不到避风的港湾。当真相甚至在医生这个群体中也不再清晰可见时，人们的健康开始变得更加不堪一击，如何救治生命成了史上最大的挑战。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-**她曾说：“爆料革命让我涅槃重生”。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/8B8GH_6R1Y2VOOKR.png)图片来源：雅典娜设计组
 
-**她曾说：“当她得知真相时，她最想用她的专业所学，通过各种途径帮助人们摆脱病毒的折磨。**
 
-**她还说：“在过去几个月与病毒感染战友的答疑接触中，深深体会到人们不仅生理上需要治愈，同样重要的还有心理康复”。**
+据法国国际广播电台报道，路透社引述英国金融时报消息报道说，瑞幸咖啡在爆出会计丑闻两年后，计划重新在美国上市。
 
-她就是美丽善良、睿智动人、正义勇敢的站友圣母院钟声-Eglise医生，如海边的一缕清风，可以抚平你所有的伤痛和不安，温暖而与众不同。她想帮你搭建那个最安全的“避风港”， 帮你一起找到重生 “秘方”。
+中国咖啡连锁店—瑞幸咖啡在爆出3亿美元会计丑闻，曾于2020年6月从纳斯达克退市。六个月后，该公司同意支付1.8亿美元罚金，以了结美国证券交易委员会(SEC)的会计欺诈指控。
 
-《避风港 HAVEN》是一档定时有效，集医学科普，病案分析，治疗咨询和心理疏导的直播节目，通过Eglise医生的专业指导和建议，帮助受病痛折磨的人们得到医治，庇护和安宁。
+英国《金融时报》周三援引两位消息人士称，该公司正在探讨是否应最快在今年年底在纳斯达克重新上市。据该报，在拟议的重新上市之前，瑞幸咖啡与投资者和顾问举行了会议，讨论其他的增资方案。
 
-栏目播出时间：每周二四六美东时间1月22日3:00 pm，北京时间1月22日4:00 am
+参考链接：
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E4%B8%AD%E5%9B%BD%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E8%AE%A1%E5%88%92%E9%87%8D%E6%96%B0%E5%9C%A8%E7%BE%8E%E4%B8%8A%E5%B8%82](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E4%B8%AD%E5%9B%BD%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E8%AE%A1%E5%88%92%E9%87%8D%E6%96%B0%E5%9C%A8%E7%BE%8E%E4%B8%8A%E5%B8%82)
 
-播放农场台：纽约磐石农场台GTV
+*发布：*tianzhihuan
 
-“一具良方
-
-一座安全的避风港
-
-一同治愈
-
-一起重生
-
-——我是Eglise医生，我在这里，欢迎来到《避风港 HAVEN》”。
-
-编辑/发布：Jenny
-
-欢迎加入磐石农场discord
-![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
