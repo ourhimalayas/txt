@@ -2,38 +2,35 @@
 ---
 
 
-## 中国春节劳动力短缺致澳洲快速抗原检测盒面临缺货
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1888005/)
+## 捷克取消疫苗强制计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888058/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月19日，新上任的捷克总理彼得·菲亚拉表示，政府正在取消上届政府提出的、为 60 岁及以上的人强制接种中共病毒疫苗的计划。
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-15.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+此前，前捷克政府曾宣布，从3月1日起，将为卫生工作者、警察、消防员和军队强制接种疫苗。但在当天的记者采访中，菲亚拉强调，政府不想分裂社会，没有人会被强迫接种疫苗。
+
+参考链接：
+
+- [Czechs Scrap Plan For Mandatory Covid Vaccines](https://www.barrons.com/amp/news/czechs-scrap-plan-for-mandatory-covid-vaccines-01642609510)
 
 
-据《ABC》1月21日报道,在中国春节前后几周里，澳大利亚的快速抗原检测盒（RATs）可能会面临进一步的延迟交货的困境。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-尽管一些快速抗原检测盒的制造商向工人提供了经济奖励，并向澳大利亚的供应商承诺会在整个春节假期持续工作，以满足高需求，但是物流和运输可能从1月底到2月初面临放缓的情况。
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-澳大利亚治疗用品管理局（TGA）批准使用的快速抗原检测盒中，大多数产自中国。
-
-澳大利亚健康产品中心（Australian Health Products Central, AHPC）是杭州泰熙生物技术有限公司的快速抗原检测试剂盒产品在澳大利亚的代理商。该公司表示中国的制造商希望在本周增加库存，并在月底前完成订单。
-
-快速抗原检测盒可以在15分钟内测出新冠病毒结果。虽然其准确性低于核酸检测（PCR），但专家仍希望可以通过快速抗原检测盒来减轻核酸检测点的压力。
-
-参考链接：[中国开启过年模式：澳大利亚快速检测盒缺货情况恐进一步加重](https://www.abc.net.au/chinese/2022-01-20/rats-shortage-may-worse-as-china-reduce-production/100767294)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

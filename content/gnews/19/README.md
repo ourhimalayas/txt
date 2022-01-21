@@ -2,79 +2,41 @@
 ---
 
 
-## 文雍漫谈：长歌赋
-` 文雍` [轉載自GNews](https://gnews.org/zh-hans/1887985/)
+## 美国多所大学反对疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888056/)
 
-```
-作者：文雍 | 伦敦英喜庄园 Himalaya UK美工/排版/发布：Quana 齐天二圣
-```
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+美国媒体1月19日报道，美国各大高校的学生们正在采取行动，抗议对在校大学生强制推行疫苗加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220120-01.jpg)
-**《长歌赋》**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-8.png)
 
-乱世飘零 早历清丰 夙愿藏胸中
+由乔治梅森大学法律专业学生罗伯特·费尔纳，发起的 “废除乔治梅森大学的疫苗加强针任务 “的请愿书，已经获得700多人的签署。费尔纳说，CDC并没有声称疫苗可以阻止感染和传播，这不是关于医学疗效的政策，而是强迫学生放弃身体的自主权利，并表示要求学生在45天内接种第三针毫无道理。
 
-三十余载 关山踏遍 磨砺宝剑锋
+在斯坦福大学，已经有超过1600人签署了一份反对该校于1月底生效的加强针命令的请愿书。
 
-青丝霜染 无怨无悔 快意畅相逢
+康奈尔大学近1000名学生、家长、教育工作者和校友签署了一封公开信，反对加强针。信中强调，越来越多的证据表明，疫苗对年轻人罹患心肌炎、心包炎存在严重风险。
 
-币行天下 纵横四海 气势贯长虹
+芝加哥大学的学生也加入了这场抗争。截至18日晚上，已有300人签署了请愿书。学生们已经意识到疫苗对健康的影响。
 
-佛手必将问鼎 盘古定把天擎
+参考链接：
 
-歃血与天为盟 闪电刺破苍穹
-
-弘道不分今古 信仰无问西东
-
-敢将万丈豪情 铺就锦绣好前程
-
-榜上金曲 壮我长歌行
-
-历尽沧桑 痴心不改 共结天下盟
-
-降妖除魔 换来乾坤净
-
-万众齐聚 喜马拉雅 升起七芒星
+- [College students nationwide protest COVID booster mandates](https://www.thecollegefix.com/college-students-nationwide-protest-covid-booster-mandates/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-这是一首歌词，回顾文贵先生走过的路。旋律用的是网络歌曲《广寒宫》，节奏比较明快，感兴趣的战友可以唱一唱。因为本人不会作曲，所以只能在网络上先寻找旋律，欢迎能谱曲的战友谱曲，弥补这一不足。
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-
-![此图像的alt属性为空；文件名为67d79ae9-90be-4fe9-b19e-37e8c9e419a9.png](https://assets.gnews.org/wp-content/uploads/2021/09/67d79ae9-90be-4fe9-b19e-37e8c9e419a9.png)
-本文仅代表作者观点，与 Gnews 平台无关。
-
-
-```
-阅读更多【文雍漫谈】专栏相关文章：
-文雍漫谈：中共才是不折不扣的邪教组织
-文雍漫谈：半百
-文雍漫谈：一种被打了毒疫苗的审美
-文雍漫谈：这一年 我们仍要穿过谎言去拥抱亲人
-文雍漫谈：中共毒计成笑话 赔了贝贝又折兵
-文雍漫谈：杨贝贝的七宗罪
-文雍漫谈：当告密成为一种被鼓励的行为模式
-文雍漫谈：一种突破底线的无耻
-文雍漫谈：见证
-文雍漫谈：天良丧尽是统治者的通行证 礼义廉耻是穷苦人的墓志铭
-文雍漫谈：塔西佗陷阱的底部是沼泽
-文雍漫谈：在选择与努力之间
-文雍漫谈：他们为什么要让人民比丑
-文雍漫谈：心声
-文雍漫谈：没有什么能够阻挡我们对自由的向往
-文雍漫谈：国家信用 货币 与新世界秩序
-文雍漫谈：一场游戏一场梦
-文雍漫谈：一种超越国家意志的信仰——正道主义
-
-
-或使用 gnews 搜索「文雍」阅读更多
-```
-
-搜索
-搜索
-![此图像的alt属性为空；文件名为d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg](https://assets.gnews.org/wp-content/uploads/2021/04/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

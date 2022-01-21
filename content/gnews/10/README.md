@@ -2,19 +2,23 @@
 ---
 
 
-## 新中国联邦是让战友在绝对的安全下获得想要的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1888043/)
+## 七哥金句（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1888151/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-1月14日，郭文贵先生在GTV大直播指出：
+王雁萍鞋带掉了，我蹲下来就把这鞋带给系上了。班农的鞋带掉了，我就这么蹲下来系鞋带。班农抽烟我就给他点烟。但是中国人会认为什么呢？哎呀，你低人一头了，就像中国人到了外国商店，人家单腿跪地给你系鞋带服务，中国人的鼻子仰起来了，“哇塞，跪在我地上”，多么的无耻啊，把人家的善意对待当成了所谓的屈服，这是多么懦弱的民族，精神阳痿的民族啊！从小到现在，我从不觉得我蹲下来为别人服务，我low了，就像战友来了，像Rachel我给她点烟，有战友说心里很不舒服。你怎么能给她点烟呢？我给战友就发个笑脸，啥也没说。 这位战友还没放下。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句3-1-1.jpg)
+*发布：*tianzhihuan
 
-中共诬蔑新中国联邦为邪教，在会见6个中东外长时，劝中东六国不要支持新中国联邦、喜联储和屏蔽GTV、Gnews，这说明中共对爆料革命已恐惧到了极点。新中国联邦首先以战友的利益为首位，躺平币更是为战友的自由和安全而设计的福利币。新中国联邦是真正为人民服务的团体，中共才是彻头彻尾的邪教。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

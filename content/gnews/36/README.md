@@ -2,29 +2,28 @@
 ---
 
 
-## 美国多数孔子学院遭关闭 数量骤降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887687/)
+## 惠誉预测中共国房地产行业持续恶化
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887688/)
 
-作者：香草山教育部 – Casey（兰兰）
+作者：MOS – 柳是多水土透
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2020年8月13日，美国国务院宣布，要求孔子学院注册为外交使团。时任美国国务卿蓬佩奥先生在公开声明中表示：孔子学院美国中心不仅在全球推动中共国政府的政令宣导，更对美国校园与各级学校产生了有害的影响。2020年9月1日，蓬佩奥表示，他认为美国大学校园内的孔子学院有望在2020年底前全部关闭。
+1月18日，据媒体报道，评级机构惠誉发布预测，2022中共国地产行业预期将更加恶化，中资房企的财务流动性将持续承压，可能会引发更多的违约事件。惠誉预计，流动性压力及随之引发的市场信心下降，将加剧房地产年销量的萎缩。预计，今年合同销售额将同比下降10%-15%，均价则跌5% 。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/14-4.png)
 
-截至2022年1月6日，美国有94所孔子学院已经关闭或正在关闭，尚存27所，这27所还包括了四所计划关闭的孔子学院，另包括一个在大学进行审查时“暂停”的孔子学院。
+中共国房地产行业前景将持续面临挑战，虽然现时实行货币宽松政策，但房企债务高企，巨量的旧债未还，投资者再无信心投入。大部分中资房企都无法在资本市场取得融资渠道。只有少数几家房企能在境内资本市场筹得资金，但需支付高昂的融资成本。
 
-自2004年以来，中共在世界各地的高校校园内资助孔子学院，提供师资、教材和运营资金。在美国国务院正式宣布孔子学院为外交使团之前，中共政府将之前由国家汉办负责的孔子学院进行了重组，由“中国国际中文教育基金会”负责，该基金会于2020年6月成立。同时原来负责孔子学院的“国家汉办”更名为“教育部中外语言交流合作中心”。
+银行贷款是中资房企仅剩的主要融资渠道，但远不足以填补2022年到期的庞大债务规模，导致了一些房企正通过变卖资产来度日。
 
 参考链接：
 
-- [How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
-- [摘译：认定孔子学院美国中心为外国使团](https://china.usembassy-china.org.cn/zh/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [“CONFUCIUS INSTITUTE U.S. CENTER” DESIGNATION AS A FOREIGN MISSION](https://china.usembassy-china.org.cn/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [蓬佩奥: 孔子学院年底可能全关闭](https://www.dw.com/zh/%E8%93%AC%E4%BD%A9%E5%A5%A5-%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2%E5%B9%B4%E5%BA%95%E5%8F%AF%E8%83%BD%E5%85%A8%E5%85%B3%E9%97%AD/a-54788997)
+- [惠譽：房企流動性續受壓](https://hk.news.yahoo.com/%E6%83%A0%E8%AD%BD-%E6%88%BF%E4%BC%81%E6%B5%81%E5%8B%95%E6%80%A7%E7%BA%8C%E5%8F%97%E5%A3%93-192000313.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：Irene木木
+编辑：Jack Li文阳
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

@@ -2,46 +2,27 @@
 ---
 
 
-## 诸多不利背景下中共依旧公布GDP增幅8.1%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887689/)
+## 欧洲考虑新的应对新冠病毒策略：接受这个病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1887822/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-墙内媒体1月17日报道，中共国统计局公布了2021年GPD的实际增幅为8.1%，还称这是继2011年的9.6%以来第二大增幅。由此，也引发了许多质疑中共造假的声音。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-52.png)
+图片来源： www.bbc.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13-6.png)
+美联社1月20日报道，当新冠病毒疫情最初宣布时，西班牙人被要求待在家三个月以上，好几个星期不让人们出去运动，孩子们不被允许去游乐场，经济完全停止了下来。
 
-日媒指出，除了各地疫情蔓延造成生产停滞以外，中共在海南建立的免税购物天堂里，客流量也大不如前。而且，因疫情多次封城管控，民众购物欲望也极速下降。
+官员们辩称这些严厉措施是为了防止医疗系统奔溃，是为了挽救生命。现在二年过去了，西班牙正在准备采用不同的策略，在这个欧洲疫苗接种率最高的国家之一，政府在为制定下一波感染高峰时，不再作为紧急情况而是作为一种疾病来处理，邻国英国和葡萄牙也在采取相似的措施。
 
-同时恒大的经营危机，以及被海南等地强制收回土地，都加重了人们对房地产行业投资的顾虑。甚至墙内已经有投资恒大的老百姓喊出“这不是共同富裕，而是共同贫穷”的口号。
+这个主意是将危机模式转向控制模式，西班牙希望欧盟考虑相似的改变，这种改变预计在奥米炕高峰下来后实施。
 
-分析人士指出，在全年疫情、花样年及恒大等地产爆雷，年初中共六大银行不良贷款率大幅上升、7月郑州水灾、9月各地突然拉闸限电、10月珠三角旱灾的大背景下，GDP增幅8.1%仍超过疫情前四年平均值的6.5%，符合中共一贯造假的逻辑。
+世卫组织认为现在改变模式还太早，欧洲疾控中心正在与各国商讨这波疫情的急性期过后的转型问题。
 
-参考链接：
+但德国政府目前认为转型还太早，因为该国只有73%的人口接种了疫苗，还有很多人，尤其是老年人尚未接种，意大利也延长了针对50岁以上的人强制疫苗政策，并对不接种者处以1500欧元罚款，并规定只有接种疫苗者才能进入公共交通，飞机，健身房，旅店及交易场所。
 
-- [中国2021年实际GDP增8.1%](https://cn.nikkei.com/china/ceconomy/47334-2022-01-17-10-43-53.html)
-- [http://www.gov.cn/xinwen/2020-01/18/content\_5470531.htm3](http://www.gov.cn/xinwen/2020-01/18/content_5470531.htm3)
-- [中国2018年全年GDP同比增长6.6% 首次突破90万亿元](https://finance.sina.com.cn/china/gncj/2019-01-21/doc-ihqfskcn8971209.shtml)
-- [国家统计局关于2017年国内生产总值（GDP）最终核实的公告](http://www.stats.gov.cn/tjsj/zxfb/201901/t20190118_1645555.html)
-- [20220117日本TBS打臉CCP的GDP增加8.1%](https://www.gettr.com/post/poseyyb238)
-- [珠江流域旱情严峻 水利部称保障城乡供水任务艰巨](https://china.caixin.com/2021-10-18/101788006.html)
-- [渤海银行南京分行回应媒体报道：已向公安机关报案，依法寻求司法解决](https://finance.sina.com.cn/money/bank/gsdt/2021-10-24/doc-iktzscyy1466097.shtml)
-- [六大行不良“双升”背后：交行不良贷款率上升幅度最大](https://finance.sina.com.cn/stock/stockzmt/2021-04-08/doc-ikmyaawa8472449.shtml)
+##### **新闻来源： **[Europe considers new COVID-19 strategy: Accepting the virus](https://apnews.com/article/coronavirus-pandemic-boris-johnson-health-europe-spain-1ab95ea43fa30bcb36f068c9a8664d12)
 
+# ** **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：DM
-编辑：DM
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

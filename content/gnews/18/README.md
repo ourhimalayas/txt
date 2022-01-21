@@ -2,46 +2,35 @@
 ---
 
 
-## 达沃斯精英企图剥夺私有财产施行共产主义
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1888004/)
+## FBI和辉瑞联手阻挠记者调查疫苗真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888057/)
 
-作者： 香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
-1 月19 日，在2022年达沃斯视频会议上、102位超级富豪发表了一封信，呼吁引入财富税，并说“是时候对我们富人征税了”。在中共病毒大流行的两年里，世界前10名富豪总财富增加了一倍多，达到1.5万亿美元，而穷人的数量增加，不平等现象急剧扩大。他们拟建议以2%税率为起点，对500万美金以上财产进行征税。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据司法观察1月18日消息，联邦调查局FBI和辉瑞制药联手，企图阻扰非营利性调查性新闻组织-“真相工程”记者调查疫苗真相。
 
-这些超级富豪是良心发现了吗？ 答案当然是否定的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-57.jpg)
-自2009年以来，世界经济论坛一直致力于大重置，所谓“大重置”就是精英阶层利用新冠疫情造成的混乱状态，试图建立世界政府的新世界秩序。联合国也希望西方的税收由精英们的大公司来分配。 因此，超级富豪们征税的提议的本质就是贯彻其大重置计划，消灭私有财产，在全世界对普通人施行共产主义，即”你将一无所有，但你很快乐”。(出自2016年，世界经济论坛发布的一段名为”关于2030年的世界的8个预言”的宣传片。)这里的”我们” 绝不是指超级富豪们，而是我们这些日常生活所需，要靠每日工作获得的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-12.png)
 
-能出席达沃斯论坛的人都是制定经济，金融政策，手握国家机器的人。他们通过家族基金，慈善基金等对于个人财产早做了多层保护及隔离。他们制定的计划不会触及自身利益，而是让普通人身无长物，如2030年8个预言所说:不论你需要什么你都要租。除他们之外所有人都会因他们制定的政策或某些措施变得一贫如洗，而他们是超然物外的，是站在食物链顶端的人，是税收获利者，分配者，而不是纳税人。就如同此次疫情，达沃斯精英在全世界疯狂推行疫苗，而所有参加达沃斯论坛的人全部都没有注射疫苗，并且利用疫情大发横财。
+此前，真相工程发布了针对辉瑞制药的一系列卧底视频。在答复信息自由法案（FOIA）请求时，联邦调查局（FBI）告诉司法观察，在针对真相工程的调查档案中，有联邦调查局与辉瑞公司的通信记录。但在1月6日，联邦调查局却拒绝披露所有关于联邦调查局官员与辉瑞公司之间、关于真相工程来往通信的请求。
 
-郭文贵先生在1月19日大直播中总结达沃斯党徒都具备以下三个特征：
+参考链接：
 
-1.有影响国家的政治和军事的能力 
-2.控制着能左右数以亿计人的命运的财富 
-3.手上有无数条人命
+- [Judicial Watch: FBI Letter Shows Pfizer Tied to Investigative File Targeting Project Veritas](https://www.thegatewaypundit.com/2022/01/judicial-watch-fbi-letter-shows-pfizer-tied-investigative-file-targeting-project-veritas/)
 
-达沃斯党就是一个黑暗力量的俱乐部，控制人类命运的俱乐部，是让全世界当奴隶的奴隶主俱乐部。
 
-当人类度过了70年和平生活后，世界可能会迎来最黑暗的一年，战争，瘟疫，贫穷，疾病会同时降临人间。当地球被极少数，甚至不超过1000个最有权最有钱人控制时，绝大多数人不是更幸福了，而是要成为数字社会下奴隶。被关在笼子里的应该是资本与执政者的权力，而不是人民的权力。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-2007 年，Mylan收购印度 Matrix Laboratories Limited,2019年辉瑞和迈兰合并，诞生了世界最大仿制药企业。海得拉巴是迈兰全球两大研发中心之一 ,拥有约 35,000 名员工和40 多个制造工厂，约一半位于印度 。公司的产品包括多个剂型的品牌药和仿制药品种，这些产品销往全球165个国家或地区。
-
-参考来源：[达沃斯精英企图剥夺私有财产施行共产主义](https://gnews.org/zh-hans/1884152/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2c3ff12a-1aad-413c-bcbf-f68f4a054055-2.jpg)
-
-编辑/校对/发稿：Hetangyuese
+总编：文特
+编辑：文特/雪梨
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
