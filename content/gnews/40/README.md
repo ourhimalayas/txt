@@ -2,31 +2,28 @@
 ---
 
 
-## 【中日财经爆】绿城拟发行美元信用债券获标普“BBB-”评级 中共房地产继续套路世界
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1884649/)
+## GTV新闻访谈简报|2022年1月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1885254/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-179.png)
-[图片来源](https://m.thepaper.cn/rss_newsDetail_11879912?from=)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
 
-1月20日，标普授予绿城中国控股有限公司拟发行的美元信用增强债券“BBB-”长期外币发行信用评级。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-19.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据悉，该无抵押及非次级债券将由浙商银行股份有限公司杭州分行提供的以美元计价的单笔不可撤销备用信用证所支持。
+视频参看：[2022.01.20早GTV新闻访谈](https://gtv.org/video/id=61e96385533c672fca7feaef)
 
-“BBB-”发行评级与浙商银行(BBB-/稳定/A-3)的发行人信用评级相等，以反映标普认为备用信用证将能够及时以及足够覆盖该债券的偿还。所得资金将被这家房地产开发商用于为现有债务进行再融资。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-同日，绿城中国公告称，建议进行一项关于发行债券的国际发售。该等债券将根据美国证券法项下S规则仅于美国境外提呈发售。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-15.jpg)
 
-在中共房地产即将全面暴雷之际，绿城中国借助国际评级机构背书，继续发行美元债券无疑是继续套路和绑架世界经济。
-
-信息来源：
-
-[标普：授予绿城中国拟发行的信用增强美元债券“BBB-”评级](http://www.guandian.cn/article/20220120/282197.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
