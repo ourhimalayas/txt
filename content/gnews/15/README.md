@@ -2,36 +2,37 @@
 ---
 
 
-## 有声|德国医生不愿履行中共病毒疫苗强制任务
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891589/)
+## 有声|北京四天新增9例阳性， 房山区出现聚集疫情
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891682/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月19日，据有关媒体报道，德国健康保险小组医生的负责人加森在接受采访时表示，德国大约有十万名全科医生不愿意履行政府推进的中共病毒疫苗强制接种政策。
+配音：香草山佛教部 – 李傻
 
-加森解释道，医生不应该违背患者的意愿实施强制性的疫苗接种工作。相较于政府而今试图将医疗机构改造成一个执行国家措施的组织，医院的本质是建立在医生和病人间的信任上。
 
-原文链接：[德国医生不愿履行中共病毒疫苗强制任务](https://gnews.org/zh-hans/1886304/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月19日，墙内媒体报道称，北京市今日新增5例本土阳性，其中房山区某地出现聚集性病例。据了解，确诊4人为同一单位冷库装卸工，另1人为同住密接，一同从事冷库装卸工作。
 
-音频处理/发稿：Daxia
+截至目前，北京市在四天内已连续出现9例阳性感染者，感染病例中同时检出了奥密克戎变种与德尔塔变种。海淀区、朝阳区、房山区、丰台区相继都出现了新增本土确诊病例和核酸检测阳性者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+有相关人士透露，北京此次疫情的源头并不唯一甚至尚不明确，在近期内存在大概率的爆发风险。中共劳民伤财搞的北京冬奥会不会受到影响，成为外界关注的焦点问题。
 
+文字版原文：[北京四天新增9例阳性， 房山区出现聚集疫情](https://gnews.org/zh-hans/1888681/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

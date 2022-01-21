@@ -2,38 +2,39 @@
 ---
 
 
-## 有声|达沃斯论坛与冬奥会将成为习时代终曲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891664/)
+## 有声|诸多不利背景下中共依旧公布GDP增幅8.1%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891718/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月19日的直播中，郭文贵先生首次揭开了达沃斯论坛背后的邪恶黑幕。
+配音：香草山农场 – 纳米
 
-郭先生指出，中共就是中国的达沃斯党，而达沃斯则是世界共产主义。当中共病毒及其疫苗的真相浮出水面之时，中共就会成为最终的替罪羊被拿来祭旗。彼时，习时代也将在冬奥会后惨淡落幕。
 
-郭先生解释道，中共于2001年取得了08年北京夏季奥运会及WTO的入场券，随即，达沃斯论坛就开始和中共相互勾结——二者在本质上都是邪恶、血腥的，他们均以控制人类命运为终极目标。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+墙内媒体1月17日报道，中共国统计局公布了2021年GPD的实际增幅为8.1%，还称这是继2011年的9.6%以来第二大增幅。由此，也引发了许多质疑中共造假的声音。
 
-原文链接：[达沃斯论坛与冬奥会将成为习时代终曲](https://gnews.org/zh-hans/1883143/)
+日媒指出，除了各地疫情蔓延造成生产停滞以外，中共在海南建立的免税购物天堂里，客流量也大不如前。而且，因疫情多次封城管控，民众购物欲望也极速下降。
 
-音频处理/发稿：Daxia
+同时恒大的经营危机，以及被海南等地强制收回土地，都加重了人们对房地产行业投资的顾虑。甚至墙内已经有投资恒大的老百姓喊出“这不是共同富裕，而是共同贫穷”的口号。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+分析人士指出，在全年疫情、花样年及恒大等地产爆雷，年初中共六大银行不良贷款率大幅上升、7月郑州水灾、9月各地突然拉闸限电、10月珠三角旱灾的大背景下，GDP增幅8.1%仍超过疫情前四年平均值的6.5%，符合中共一贯造假的逻辑。
 
+文字版原文：[诸多不利背景下中共依旧公布GDP增幅8.1%](https://gnews.org/zh-hans/1887689/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
