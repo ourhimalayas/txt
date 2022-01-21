@@ -2,38 +2,30 @@
 ---
 
 
-## 短视频：94.8万人因注射新冠疫苗遭遇伤害或死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1886840/)
+## 美国两党议员提案取消国际奥委会免税资格
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1886908/)
 
-##### 翻译：Lish
-校对：枳实
-视频剪辑：蛮吉
-编辑：文泓
+![活动人士在国际奥委会总部大楼前抗议（法新社2021年2月3日）](https://gdb.voanews.com/19875D85-91C6-4D4F-9ED1-0CBFD183BE07_w1023_r1_s.jpg)活动人士在国际奥委会总部大楼前抗议（法新社2021年2月3日）
+据美国之音1月20日报道，美国国会两党议员联袂推出最新“追究国际奥委会与中国同谋法”法案，提议取消国际奥委会在美国的免税资格，以制裁该组织漠视中共政府侵犯人权、忽略美国官员及多个国际人权团体敦促将2022冬季奥运会从北京移师他地举行。提案人表示，国际奥委会的行为已经不符合社会福利组织的条件。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/812-1.png)图片来源：视频截屏
+国际奥委会目前被认为符合美国税法501(C)(4)条款登记要求，即属于公益组织、社会福利组织。这类机构有免税待遇。国际奥委会持续与中共国侵犯人权行为共谋，显然与社会福利组织不符，因此不应该再继续享有免税优惠的地位。
 
-图片来源：视频截屏
-数以十万计的美国人报告说，在注射冠状病毒疫苗后出现了奇怪和令人不安的副作用。请看One America新闻Pearson Sharp的报道：
+国际奥委会主要资金来源为全球合作伙伴的企业赞助和赛事转播权。美国企业的赞助和合作合约在国际奥委会的收入中有着举足轻重的地位。国际奥委会将利益置于人权之上。美国已经出台法律，禁止使用新疆强迫劳动的产品。国际奥委会无视此项规定，已经与两家与新疆产品有关联的企业签订合同。国际奥委会堕落到如此地步，如果继续纵容中共的行为，国际人权公约和体育精神就成了笑话，国际奥委会不应该再享有美国的免税资格。
 
-94.6万（疫苗不良反应）！这是个大数字，94.6万！
+新闻参考链接：[https://www.voachinese.com/a/us-congress-bipartisan-bill-to-remove-ioc-tax-exemption-status-20220119/6404698.html](https://www.voachinese.com/a/us-congress-bipartisan-bill-to-remove-ioc-tax-exemption-status-20220119/6404698.html)
 
-左派正在尽一切努力诋毁这个数字。但事实是，这就是有这么多人在注射了新冠疫苗后出现严重的副作用甚至死亡。更糟糕的是，不仅该疫苗似乎对病毒毫无作用，而且接种疫苗的人似乎比那些未接种疫苗的人要糟糕得多。
+编辑：胖丁
 
-这是英国政府的官方数据，记录了8月16日至12月5日期间（为期16周）因新冠死亡的人数。现在看看这个图表，正如The Daily Expose所报道的那样，**显示接种疫苗的人死于新冠的概率比未接种疫苗的人高****286%，这远远超出了任何误差范围。**
+* * *
 
-**如果这个数据是准确的，将表明接种疫苗意味着你比不接种疫苗更有可能死于新冠。**但如果(感染后)你不死会怎样呢？根据美国政府卫生与公众服务部报告的数据，超过10万人在接种疫苗后需要住院治疗。而这些并不只是一页纸上的无名数字。他们都是活生生的人。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-我们正在亲眼目睹这种未经测试、未经证明、仓促推出的疫苗的后果，它比任何人担心的都要糟糕。而这一切只是刚刚开始**。除非美国人和家长站出来反对这些不科学的强制疫苗令，否则我们可能会看到历史上最大的人类实验中对几十万人造成的死亡和永久受伤。**
 
-视频链接：[Government data reveals 948 thousands people injured or dead from the Covid vaccine (bitchute.com)](https://www.bitchute.com/video/9ZYXmi7cbK0W/)
+编辑：【英国伦敦喜庄园编辑部】
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

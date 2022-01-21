@@ -2,26 +2,34 @@
 ---
 
 
-## 新中国联邦在以疫灭共的鏖战中斩获胜果
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1885723/)
+## 德国医生不愿履行中共病毒疫苗强制任务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1886304/)
 
-编译撰稿：硫酸羟氯喹64
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月19日，据有关媒体报道，德国健康保险小组医生的负责人加森在接受采访时表示，德国大约有十万名全科医生不愿意履行政府推进的中共病毒疫苗强制接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-17.jpg)
+加森解释道，医生不应该违背患者的意愿实施强制性的疫苗接种工作。相较于政府而今试图将医疗机构改造成一个执行国家措施的组织，医院的本质是建立在医生和病人间的信任上。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-11-edited.png)图片来源：GTV
+加森也提到，德国政府目前对未接种中共病毒疫苗群体施加的压力令人担忧，这些举措甚至可以被看作是反人类、反人权的违宪行为。
 
+加森强调，是否尊重民众对其身体健康和安全的自由选择权利是区分独裁与宪政国家的红线所在。
 
-据[新中国联邦]GTV新闻1月17日报道，加州检察官大卫·沃尔在当天接受美国电视媒体采访时表示：联邦最高法院日前驳回了拜登政府此前颁布的疫苗接种强制令之举，意味着美国各级行政部门都无权再擅发类似的行政法规。
+参考链接：[Zitat des Tages: Kassenärzte wollen Impfpflicht nicht umsetzen](https://www.compact-online.de/zitat-des-tages-wollen-impfpflicht-nicht-gegen-patientenwillen-exekutieren/)
 
-报道称，高法的以上裁决一出，[美国通用电器公司]就立即停止对其约18万雇员执行的强制接种规定。尽管总统拜登仍顽固表示将继续推动其疫苗政策的实施，但检察官沃尔则认为，在被联邦最高法院否决之后，拜登及各州政府此时在该方面的影响力都已变得非常卑微。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-据悉，该判决不仅使美国各大中型企业的约9000万雇员从中获益，同时还将被用于指导该国任何相关政策的诉讼。换言之，如果该裁决被某些州政府忽视，并愚昧坚持强制接种政策，那么必将引发可能导致该州最终破产的赔偿诉讼。
+总编: Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-审时度势之后，不难发现：[新中国联邦]在向西方世界特别是美国最高司法系统，彻底揭露“中共病毒”及其疫苗真相的鏖战之中，初获胜果，再下一城！
-
-* * *
-
-新闻链接：https://gettr.com/post/ppi6ok461e
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

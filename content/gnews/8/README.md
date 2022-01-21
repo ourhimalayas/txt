@@ -2,30 +2,58 @@
 ---
 
 
-## 美国两党议员提案取消国际奥委会免税资格
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1886908/)
+## 美国中共病毒确诊病例数急剧下降
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1887066/)
 
-![活动人士在国际奥委会总部大楼前抗议（法新社2021年2月3日）](https://gdb.voanews.com/19875D85-91C6-4D4F-9ED1-0CBFD183BE07_w1023_r1_s.jpg)活动人士在国际奥委会总部大楼前抗议（法新社2021年2月3日）
-据美国之音1月20日报道，美国国会两党议员联袂推出最新“追究国际奥委会与中国同谋法”法案，提议取消国际奥委会在美国的免税资格，以制裁该组织漠视中共政府侵犯人权、忽略美国官员及多个国际人权团体敦促将2022冬季奥运会从北京移师他地举行。提案人表示，国际奥委会的行为已经不符合社会福利组织的条件。
-
-国际奥委会目前被认为符合美国税法501(C)(4)条款登记要求，即属于公益组织、社会福利组织。这类机构有免税待遇。国际奥委会持续与中共国侵犯人权行为共谋，显然与社会福利组织不符，因此不应该再继续享有免税优惠的地位。
-
-国际奥委会主要资金来源为全球合作伙伴的企业赞助和赛事转播权。美国企业的赞助和合作合约在国际奥委会的收入中有着举足轻重的地位。国际奥委会将利益置于人权之上。美国已经出台法律，禁止使用新疆强迫劳动的产品。国际奥委会无视此项规定，已经与两家与新疆产品有关联的企业签订合同。国际奥委会堕落到如此地步，如果继续纵容中共的行为，国际人权公约和体育精神就成了笑话，国际奥委会不应该再享有美国的免税资格。
-
-新闻参考链接：[https://www.voachinese.com/a/us-congress-bipartisan-bill-to-remove-ioc-tax-exemption-status-20220119/6404698.html](https://www.voachinese.com/a/us-congress-bipartisan-bill-to-remove-ioc-tax-exemption-status-20220119/6404698.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山教育部 – Naughty(文行)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-20-4.jpg)图片来源网络
+
+
+
+
+
+约翰霍普金斯大学汇编的统计数据显示，周一美国报告了大约 717,800 例新病例。与一周前 1 月 10 日报告的创纪录的 140 万例新病例相比，中共病毒确诊病例明显下降。
+
+最近几天，美国有34个州的感染病例数量急剧下降，其中包括一些Omicron变种感染数量增长巨大的州，包括纽约、加利福尼亚和佛罗里达等州。因中共病毒住院的人数也有所减少。此外，还有一些州单日确诊病例数开始下降。
+
+纽约州州长、民主党人凯茜‧霍楚尔（Kathy Hochul）对此表示，每日确诊病例的大幅下降的原因可能是假期周末引起报告的滞后。虽然她担心在不久的将来，感染后的住院人数可能会回升，但总的来说，对中共病毒疫情的预测要比之前的光明得多。
+
+人们普遍对此持乐观情绪，认为奥米炕变种引发的“感染海啸”正在消退。
+
+
+
+参考链接：
+
+[COVID cases in US drop 47 percent in a week, according to data](https://nypost.com/2022/01/18/covid-cases-in-the-us-drop-47-percent-in-a-week-data/)
+
+[美国多州COVID感染病例数急剧下降](https://www.epochtimes.com/gb/22/1/18/n13514139.htm)
+
+![This image has an empty alt attribute; its file name is Jan-7.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+
+总编: Irene木木
+
+校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
  
 

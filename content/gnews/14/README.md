@@ -2,46 +2,83 @@
 ---
 
 
-## 英国首相希望三月份前取消所有中共病毒限制措施
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1886852/)
+## 新州官方数据显示，完全接种疫苗引发一场致命流行病
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1886942/)
 
-作者：纽约香草山 – 侠肝义胆
+#### **【雅典娜观察】和您一起探究世界**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5825-2.jpg)图片来源：Gnews
 
 
+**翻译：George Warshing**
+**编辑：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-20-2.png)图片来源网络
+**自****2020年3月中共病毒大流行以来,澳大利亚当局采取了最严厉的政策，将未接种疫苗的人标记为公共健康的危险因素，只允许接种疫苗的人参与社会活动。如今在全国范围内均出现了病毒感染病例数、住院人数和死亡人数的单日最大增幅。**
 
-外媒 1月18日报道 英国首相鲍里斯-约翰逊希望政府在3月前废除所有中共病毒限制措施，因为在病毒感染稳步减少的情况下，推动恢复正常的工作秩序是全社会共同期许。 本月下旬，英国国会将就延长11月实施的 “B计划 “限制进行投票，定于1月26日进行的这项投票将很可能结束疫苗护照措施。而仅保留公共场所口罩规则。 根据有关媒体报告，英国政府将推出计划，在3月份前取消英格兰的所有中共病毒限制措施。如果报告的计划得以实现，英国将成为欧洲在中共病毒控制方面最自由的国家之一。 有关人士评论，欧美乃至全世界取消中共病毒疫苗等强制措施已是大势所趋。
+**根据新南威尔士州政府的官方数据，未接种疫苗者不应背负骂名。相反，澳大利亚正经历着疫苗接种引发的疾病大流行，因为该州自****2021年11月26日起的记录显示，每10个病人中的9例，以及每10例住院或死者中的8人，都是疫苗注射达2次或3次的群体。**
 
-参考链接：
+自2021年12月中旬以来，此州确诊的中共病毒病例增加了十倍，打破了自2020年3月该病毒首次进入该地区后确诊病例数的最高记录。
 
-[End of Lockdowns? Boris Looks to Scrap All Coronavirus Restrictions in March](https://www.breitbart.com/europe/2022/01/18/end-of-lockdowns-boris-set-to-scrap-all-coronavirus-restrictions-in-march/)
+12月14日，新州单日病例记录1,347，但2022年在1月14日的单日记录是48,133例。
 
-![This image has an empty alt attribute; its file name is Jan-7.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+中共病毒病例死亡情况也是如此，新年伊始，死亡人数飙升至整个大流行期间的最高水平。
 
-总编: 飞虹
-
-校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1005.jpg)图片来源：The Expose
 
 
+在去年12月29日，新南威尔士州仅记录了一例冠状病毒死亡病例，但到了1月22日，这里一天内登记了36例死亡病例，这是迄今为止记录的最高数字。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+新州政府每周发布一份冠状病毒每周监测报告，其中最新的一份发布于1月13日，其中包含截至2022年1月1日按疫苗接种状态划分的中共病毒病例、住院和死亡数据。
+
+在报告的第8页中，向我们展示了按疫苗接种状态划分的中共病毒病例数。数据显示，自发现奥密克戎病毒以来，**在该州所有有资格接种疫苗的人群中（****12岁以上），有18.56万人曾进行了2次或3次疫苗接种，其中的111,931人是确诊病例。**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1004.jpg)图片来源：The Expose
+
+
+**在部分接种的人群中有1,110例确诊，但未接种的人群中仅有2,765例。**这意味着**自去年11月26日至今年1月1日**（**以下称为“同一时段或这一期间”**），**98%的病人来自进行疫苗接种的人群**。
+
+报告的第8页还展示了按疫苗接种状态划分的感染中共病毒的住院人数。我们再次发现绝大多数住院病人来自于进行疫苗接种的群体。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1003.jpg)图片来源：The Expose
+
+
+根据**同一时段**的报告，**该州有1,578名中共病毒住院患者。其中进行2次和3次疫苗接种者为1,280人，部分接种者为47人，未接种者仅为251人。这意味着自奥密克戎爆发以来，接种疫苗的人群占中共病毒住院人数的84%**。
+
+在英国，由于缺乏数据，名人和政界人士能够对在ICU的大多数中共病毒感染者的疫苗接种状况做出虚假陈词，新南威尔士州政府开明地告知公众ICU内中共病毒患者的数量和他们的疫苗接种情况。
+
+报告第8页也显示，在**同一时段**，**有****154个注射了疫苗的病人因中共病毒感染进入了ICU，同样地，他们中的绝大多数患者进行了2或3次疫苗注射。**
+
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1002.jpg)图片来源：The Expose
+
+
+
+
+**完全接种疫苗的****ICU患者有104人，部分接种疫苗的为8人，未接种疫苗的仅42人。这意味着在这一期间，所有感染中共病毒进入ICU的患者中，接种疫苗的人占73%。**
+
+最后，我们再看下中共病毒导致的死亡人数。报告第8页显示，**按疫苗接种状态划分，同一时段间的中共病毒死亡人数是****32人。**然而，我们从其他可用数据得知，今年1月17日，该州记录的单日死亡人数超过了去年11月26日至今年1月1日间死亡人数的总和。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1001-10.jpg)图片来源：The Expose
+
+
+根据报告，**完全疫苗接种后发生死亡的人数占总数的大部分，共有22人，部分接种的人群中还有3人死亡，未接种疫苗的人群中仅7人死亡。这意味着在这一期间，接种疫苗者占死亡人数的78%。**
+
+在澳大利亚，疫苗接种被称为解决这场“前所未有的大流行”的终极方法。该国已经出现了世界上一些最严厉的限制措施，包括要求获得许可才能离开家、上班，以及通过由武装部队驻守的检查站才能离开某个地区。
+
+澳大利亚人被告知，在一定比例的人口接种疫苗之前，他们不会获得更多的自由“奖励”。
+
+如今他们已经到达了这一里程碑（接种率指标），随即真正的大流行就开始了。**每****10个中共病毒感染中的9例，以及每10个住院和死亡病例中的8例均发生在已经接种疫苗的群体中，这一结果毫无疑问地表明，这将是一场由完全接种疫苗引发的致命流行病。**
+
+原文链接：[Covid-19 Deaths are at record levels in Australia & Official Data shows the Fully Vaccinated account for 4 in every 5 of those deaths since November – The Expose (dailyexpose.uk)](https://dailyexpose.uk/2022/01/19/australia-vaccinated-account-for-4-in-5-covid-deaths/)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
