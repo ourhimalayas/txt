@@ -15,77 +15,77 @@
 
 ---
 
-### [法国国民会议认定中共对新疆进行种族灭绝](/content/gnews/1/README.md)
+### [加州允许12岁及以上青少年绕开父母许可进行疫苗注射](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [法国国民会议认定中共对新疆进行种族灭绝](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【Michael.Tonny專欄】CCP不僅威脅全人類 同時威脅所有物種！](/content/gnews/2/README.md)
+### [【Michael.Tonny專欄】CCP不僅威脅全人類 同時威脅所有物種！](/content/gnews/3/README.md)
  ` 温哥华扬帆农场`
 
-### [访澳国际旅客将被允许使用快速抗原测试代替PCR检测](/content/gnews/3/README.md)
+### [访澳国际旅客将被允许使用快速抗原测试代替PCR检测](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【Michael.Tonny专栏】CCP不仅威胁全人类 同时威胁所有物种！](/content/gnews/4/README.md)
+### [【Michael.Tonny专栏】CCP不仅威胁全人类 同时威胁所有物种！](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|苹果和谷歌通过Telegram干涉德国的言论自由](/content/gnews/5/README.md)
+### [有声|苹果和谷歌通过Telegram干涉德国的言论自由](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [一印度母亲就其儿子死于阿斯利康疫苗向印度政府和比尔·盖茨提起诉讼](/content/gnews/6/README.md)
+### [一印度母亲就其儿子死于阿斯利康疫苗向印度政府和比尔·盖茨提起诉讼](/content/gnews/7/README.md)
  ` 首尔天池农场`
 
-### [文贵大直播要点（2022年1月19日）](/content/gnews/7/README.md)
+### [文贵大直播要点（2022年1月19日）](/content/gnews/8/README.md)
  ` 波士顿五月花农场`
 
-### [DC每日热点0121](/content/gnews/8/README.md)
+### [DC每日热点0121](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗是反人类的基因炸弹](/content/gnews/9/README.md)
+### [疫苗是反人类的基因炸弹](/content/gnews/10/README.md)
  ` 波士顿五月花农场`
 
-### [【玫瑰看新闻】每日快讯 2022年1月18日（新西兰时间）](/content/gnews/10/README.md)
+### [【玫瑰看新闻】每日快讯 2022年1月18日（新西兰时间）](/content/gnews/11/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|中共阻挠419VOA直播的一些幕后真相](/content/gnews/11/README.md)
+### [有声|中共阻挠419VOA直播的一些幕后真相](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [美国及世界疫情简报（01-21-2022）](/content/gnews/12/README.md)
+### [美国及世界疫情简报（01-21-2022）](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [有声|美国以国家安全为由审查阿里巴巴云业务](/content/gnews/13/README.md)
+### [有声|美国以国家安全为由审查阿里巴巴云业务](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [文贵大直播 1/21 巴基斯坦谢里夫案：跟着共产党走进火葬场 无一例外](/content/gnews/14/README.md)
+### [文贵大直播 1/21 巴基斯坦谢里夫案：跟着共产党走进火葬场 无一例外](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [澳洲昆士兰地区缩短加强针等待时间至三个月](/content/gnews/15/README.md)
+### [澳洲昆士兰地区缩短加强针等待时间至三个月](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声|洛杉矶某校未接种新冠疫苗学生受到虐待](/content/gnews/16/README.md)
+### [有声|洛杉矶某校未接种新冠疫苗学生受到虐待](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|专家称任何时候都应禁止给儿童接种新冠疫苗](/content/gnews/17/README.md)
+### [有声|专家称任何时候都应禁止给儿童接种新冠疫苗](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [日本国会数据再次印证疫苗无效](/content/gnews/18/README.md)
+### [日本国会数据再次印证疫苗无效](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [美国及世界疫情简报（01-20-2022）](/content/gnews/19/README.md)
+### [美国及世界疫情简报（01-20-2022）](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山](/content/gnews/20/README.md)
+### [加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [自然免疫力优于针对Delta病毒变种的疫苗](/content/gnews/21/README.md)
+### [自然免疫力优于针对Delta病毒变种的疫苗](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](/content/gnews/22/README.md)
+### [有声|巴拉圭总统夫妇二人接种两剂疫苗仍旧感染](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [中共放毒接近尾声 疫苗灾难将真正到来](/content/gnews/23/README.md)
+### [中共放毒接近尾声 疫苗灾难将真正到来](/content/gnews/24/README.md)
  ` GTV新闻访谈`
-
-### [泄露的军事文件显示伊维菌素在新冠病毒各阶段都有效](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [1/21/2022国际财经快讯：高盛、摩根大通向顶级银行家发放巨额奖金；英特尔计划投资200亿美元芯片制造基地](/content/gnews/25/README.md)
  ` 秘密翻译组金融团队`

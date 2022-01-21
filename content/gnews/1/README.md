@@ -2,40 +2,25 @@
 ---
 
 
-## 法国国民会议认定中共对新疆进行种族灭绝
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1890486/)
+## 加州允许12岁及以上青少年绕开父母许可进行疫苗注射
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1890520/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011202-1.jpg)网络图片
+根据加利福尼亚州参议员周四晚些时候的一项提议，该州将允许 12 岁及以上的青少年儿童在没有取得父母同意的情况下接种疫苗。
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+提议对最低年龄进行修改的旧金山民主党参议员斯科特·维纳（Scott Wiener）还罗列了其他一些州及特区的情况：阿拉巴马州不需要父母同意即可接种疫苗的最小年龄是 14 岁、俄勒冈州 为15 岁、罗德岛和南卡罗来纳州 为16 岁，而华盛顿特区在年龄方面的下限仅为11岁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/M8X4Y3DI@6AH8F37EE.png)图片来源：雅典娜设计组
+维纳认为，加州已经允许 12 岁及以上的青少年自行决定是否接种乙型肝炎和人乳头瘤病毒 (HPV) 疫苗。这类人群也可以自行决定是否进行性传播疾病、药物滥用及心理疾病的治疗。因此他相信将这一准则进一步扩大到所有疫苗是合理的。
 
+目前在加利福尼亚州，12 至 17 岁的未成年人未经父母或监护人许可是不能够接种疫苗的，除非该疫苗专门用于某些特定的预防性传播疾病。
 
-据德国之声中文网报道：北京冬奥会开幕在即，法国议会下院国民议会周四通过了一项议案，谴责中国针对维吾尔人的“种族灭绝”罪行。
+维纳的提案虽然并非强制，但这已经意味着只要被监护者的年龄达到12周岁，他或她就可以在不经过父母同意的情况下注射任何由美国食品药品监督管理局和疾病控制与预防中心所批准的疫苗——这其中当然也包括CCP病毒疫苗！
 
-法国议会下院通过议案，认定中国政府针对维吾尔人采取的暴力为“种族灭绝”，呼吁法国政府“采取必要措施”制止这一行径。
+加利福尼亚州州长加文·纽瑟姆（Gavin Newsom）于 10 月便宣布了全国首个针对学童的CCP病毒疫苗接种要求，不过它可能要到今年晚些时候才会生效。该强制规定虽然允许出于医疗原因、宗教和个人信仰的豁免，但是立法者可能会尝试对非医疗原因进行限制。
 
-这项议案由反对党社会党提出，但也得到了总统马克龙所在的执政党支持，以几乎全票的支持度得到通过。
-
-法国国民议会成为继美国、英国、荷兰和加拿大等七国之后，第八个认为中国对维吾尔人犯下“种族灭绝罪”的议会。
-
-法国社会党主席福尔（Olivier Faure）在国民议会上讲述了再教育营情况，根据维吾尔幸存者的供述，他们这些被关押的人无法躺下休息，还有人遭受强奸、酷刑以及被迫移植器官。
-
-另一边，中国否认在新疆采取“种族灭绝”行动，并且指责那些提供有关证词的维吾尔人是在编造谎言。北京也多次拒绝联合国人权高专办赴新疆调查的请求。
-
-参考链接：[https://m.dw.com/zh/%E6%B3%95%E5%9B%BD%E5%9B%BD%E6%B0%91%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%9A%84%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D/a-60499647](https://m.dw.com/zh/%E6%B3%95%E5%9B%BD%E5%9B%BD%E6%B0%91%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%9A%84%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D/a-60499647)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+新闻参考链接：[Preteens may be vaxed without parents under California bill](https://apnews.com/article/coronavirus-pandemic-business-health-scott-wiener-san-francisco-1878f7be2355e82c1885754fc53514c0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
