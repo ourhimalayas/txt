@@ -2,12 +2,18 @@
 ---
 
 
-## 1/12文贵直播：中共假借封城之机搞“共享财富”（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1889725/)
+## 新中国联邦改变我们
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889751/)
 
-1/12/2022 文贵直播：中共假借封城之机搞“共享财富”，妄图在西安和天津分别夺走120家和200家企业的财富，郑州也已经开始，接下来会轮到江浙！
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
+
+
+
 
  
 

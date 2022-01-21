@@ -2,12 +2,16 @@
 ---
 
 
-## 1/12文贵直播：中共在全球制造排华（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1889726/)
+## 墓碑技术墓碑文明
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889762/)
 
-1/12/2022 文贵直播：中共在全球制造排华，在日本的战友在车上被骂，还有战友被餐厅无故解雇，欧美院校排斥全体亚裔学生；假如没有爆料革命，排华的惨剧将如野火一样蔓延在全世界！
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
+
 
  
 
