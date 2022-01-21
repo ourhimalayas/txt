@@ -2,29 +2,37 @@
 ---
 
 
-## 美国多数孔子学院遭关闭 数量骤降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887687/)
+## 诸多不利背景下中共依旧公布GDP增幅8.1%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887689/)
 
-作者：香草山教育部 – Casey（兰兰）
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2020年8月13日，美国国务院宣布，要求孔子学院注册为外交使团。时任美国国务卿蓬佩奥先生在公开声明中表示：孔子学院美国中心不仅在全球推动中共国政府的政令宣导，更对美国校园与各级学校产生了有害的影响。2020年9月1日，蓬佩奥表示，他认为美国大学校园内的孔子学院有望在2020年底前全部关闭。
+墙内媒体1月17日报道，中共国统计局公布了2021年GPD的实际增幅为8.1%，还称这是继2011年的9.6%以来第二大增幅。由此，也引发了许多质疑中共造假的声音。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13-6.png)
 
-截至2022年1月6日，美国有94所孔子学院已经关闭或正在关闭，尚存27所，这27所还包括了四所计划关闭的孔子学院，另包括一个在大学进行审查时“暂停”的孔子学院。
+日媒指出，除了各地疫情蔓延造成生产停滞以外，中共在海南建立的免税购物天堂里，客流量也大不如前。而且，因疫情多次封城管控，民众购物欲望也极速下降。
 
-自2004年以来，中共在世界各地的高校校园内资助孔子学院，提供师资、教材和运营资金。在美国国务院正式宣布孔子学院为外交使团之前，中共政府将之前由国家汉办负责的孔子学院进行了重组，由“中国国际中文教育基金会”负责，该基金会于2020年6月成立。同时原来负责孔子学院的“国家汉办”更名为“教育部中外语言交流合作中心”。
+同时恒大的经营危机，以及被海南等地强制收回土地，都加重了人们对房地产行业投资的顾虑。甚至墙内已经有投资恒大的老百姓喊出“这不是共同富裕，而是共同贫穷”的口号。
+
+分析人士指出，在全年疫情、花样年及恒大等地产爆雷，年初中共六大银行不良贷款率大幅上升、7月郑州水灾、9月各地突然拉闸限电、10月珠三角旱灾的大背景下，GDP增幅8.1%仍超过疫情前四年平均值的6.5%，符合中共一贯造假的逻辑。
 
 参考链接：
 
-- [How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
-- [摘译：认定孔子学院美国中心为外国使团](https://china.usembassy-china.org.cn/zh/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [“CONFUCIUS INSTITUTE U.S. CENTER” DESIGNATION AS A FOREIGN MISSION](https://china.usembassy-china.org.cn/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [蓬佩奥: 孔子学院年底可能全关闭](https://www.dw.com/zh/%E8%93%AC%E4%BD%A9%E5%A5%A5-%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2%E5%B9%B4%E5%BA%95%E5%8F%AF%E8%83%BD%E5%85%A8%E5%85%B3%E9%97%AD/a-54788997)
+- [中国2021年实际GDP增8.1%](https://cn.nikkei.com/china/ceconomy/47334-2022-01-17-10-43-53.html)
+- [http://www.gov.cn/xinwen/2020-01/18/content\_5470531.htm3](http://www.gov.cn/xinwen/2020-01/18/content_5470531.htm3)
+- [中国2018年全年GDP同比增长6.6% 首次突破90万亿元](https://finance.sina.com.cn/china/gncj/2019-01-21/doc-ihqfskcn8971209.shtml)
+- [国家统计局关于2017年国内生产总值（GDP）最终核实的公告](http://www.stats.gov.cn/tjsj/zxfb/201901/t20190118_1645555.html)
+- [20220117日本TBS打臉CCP的GDP增加8.1%](https://www.gettr.com/post/poseyyb238)
+- [珠江流域旱情严峻 水利部称保障城乡供水任务艰巨](https://china.caixin.com/2021-10-18/101788006.html)
+- [渤海银行南京分行回应媒体报道：已向公安机关报案，依法寻求司法解决](https://finance.sina.com.cn/money/bank/gsdt/2021-10-24/doc-iktzscyy1466097.shtml)
+- [六大行不良“双升”背后：交行不良贷款率上升幅度最大](https://finance.sina.com.cn/stock/stockzmt/2021-04-08/doc-ikmyaawa8472449.shtml)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：DM
+编辑：DM
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

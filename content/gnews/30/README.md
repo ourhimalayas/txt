@@ -2,39 +2,29 @@
 ---
 
 
-## 日研究显示孕妇染疫易转中度以上症状
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887691/)
+## 美联储发布备受期待的数字美元报告
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1887842/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月18日，日本媒体报导，日本国立成育医疗研究中心主导的一项研究显示，相较于未孕女性，孕妇在感染中共病毒后，有更高概率转变成中度以上的病症。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-127.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-11.jpg)
+据零对冲1月20日报道，美联储在当天发布了备受期待的关于可能发行美国数字货币的报告。这份35页政府支持的货币的讨论文件没有就是否应该发行CBDC（明确表示目前不“赞成任何政策结果”）做出明确的结论，而是征求反馈意见。在报告中说：“引入中央银行数字货币（CBDC）将代表美国货币的一个非常重要的创新。
 
-该研究搜集了2020年1月至2021年4月，感染中共病毒的187名孕妇及935名未怀孕女性的资料进行了比较，研究对象的年龄在15～45岁。
+美联储主席杰罗姆·鲍威尔此前曾表示，任何CBDC都应该“作为现金和当前私营部门数字形式美元的补充，而不是替代，例如商业银行的存款”。
 
-该研究的获得三项主要结果：第一，孕妇染疫后发展成中度以上病症的比率是未孕女性的两倍。第二，孕妇在怀孕中期及后期染疫，进展成中度以上病症的比率是怀孕初期染疫者的5至8倍。第三，同住家人中有染疫者的比率，孕妇是未孕女性的两倍。 显示孕妇有较大比率是被已染疫的同住家人传染的。
+中央银行在文件中说，数字美元可以通过确保美元仍然是国际金融体系中最重要的货币来支持金融体系，改善跨境支付，提高金融包容性，并使美元在新技术中的使用更加便利。然而，央行也警告说，可能会有负面影响，包括从传统银行业抽走存款，使金融公司的挤兑行为更有可能或更严重。
 
-以上研究结果值得家庭中有孕妇的人参考。
+美联储说，虽然随着支付系统的不断发展，CBDC可以为家庭和企业提供一个安全的数字支付选择，并可能导致国家之间更快的支付选择，但也可能有不利因素。这包括如何确保CBDC保持货币和金融稳定，以及补充现有的支付手段。其他关键的政策考虑包括如何保护公民的隐私和保持打击非法金融的能力。
 
-参考链接：
+央行在文件中指出，在开发美国数字货币方面不采取行动可能会削弱美国在全球市场上的权威地位。美联储说：“重要的是……考虑潜在的未来状态的影响，其中许多外国和货币联盟可能已经引入了CBDCs。有些人认为，如果这些新的CBDCs比现有形式的美元更有吸引力，那么全球对美元的使用可能会减少，而美国的CBDC可能有助于维护美元的国际角色。
 
-- [日本研究：染疫孕婦更容易變成中等以上症狀](https://www.cna.com.tw/news/aopl/202201180412.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+这份文件在进一步了解美联储是否以及何时向公民释放数字货币方面是个空头支票，因为要征求意见，而且最终要由国会批准。
 
+鲍威尔在一份声明中说，在研究美国中央银行数字货币的积极性和消极性时，美联储期待着与公众、当选代表和广泛的利益攸关方进行接触。并补充说如果没有行政部门和国会的明确支持，最好是以具体授权法律的形式，美联储不打算着手发行C.B.D.C.。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+新闻来源：[Fed Releases Much-Anticipated Report On Digital Dollar](https://www.zerohedge.com/economics/fed-releases-much-anticipated-report-digital-dollar)
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
