@@ -2,22 +2,24 @@
 ---
 
 
-## 口罩强制令导致语言发育迟缓的儿童人数增涨了350%
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889249/)
+## ESPN宣布不派遣新闻人员参与北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889281/)
 
-#### 翻译/撰稿：zzballack
+#### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-2-1.jpg)图片来源：美联社
-据《国家脉动》（National Pulse）1月20日报道，政府在新冠大流行中实施的强制口罩规定似乎正在导致幼儿的语言发育迟缓，它对儿童和婴儿的语言能力开发产生了消极影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-19.jpg)图片来源：MSN
+ESPN（Entertainment Sports Programming Network，娱乐与体育节目电视网）是一间24小时专门播放体育节目的美国有线电视联播网，ESPN及ESPN国际在美国9000万家庭和全球147个国家可以收看。
 
-佛罗里达州北棕榈滩的语言和学习研究所（Speech and Learning Institute）的诊所主任和语言病理学家杰克琳·希克（Jaclyn Theek）强调说：“今年是非常具有挑战性的一年。”在这场大流行中，该诊所的婴幼儿患者增加了364%。在新冠疫情之前，该诊所的病人中只有5%属于这个年龄段，而现在则是20%。
+1月20日，《国会山报》报道，周四，ESPN发布声明，出于对中共病毒（COVID-19）的担忧和与疫情有关的限制，表示将不会向北京冬奥会派遣新闻人员。
 
-希克说：“目前还没有研究确认强制口罩会导致语言发育迟缓。但我可以肯定它是其中一个因素。非常重要的是，孩子们是通过看你的脸来学习，所以他们观察你的嘴。”
+文章说，ESPN原计划向中国派出四名记者，但这些记者现在将加入远程奥运报道。
 
-一位家长格雷戈·桑托斯（Gregg Santos）将这种语言延迟归因于“社会隔离和所有人都戴着口罩”。他每周带他的儿子接受两次语言治疗。桑托斯说：“我的孩子出生于大流行早期，一开始非常健康。但是社会隔离和每个人都戴着口罩导致他出现了语言障碍。我孩子现在只会婴儿似的胡言乱语，在表达某些关键的词汇时不流畅。“另一位家长告诫说：”在你成长的世界里，当你不能与人们和他们的脸产生互动时，这肯定会产生差异。这些互动对婴儿来说超级重要。“
+ESPN的执行副总裁诺比·威廉森（Norby Williamson）一份声明中说：“对我们来说，员工的安全是最重要的。随着（中共病毒）疫情继续成为一个全球性的威胁，以及与中共病毒（COVID）有关的现场限制，在奥运会上将使报道变得非常具有挑战性，我们认为让员工留在家里是对我们最好的决定”。
 
-新闻来源：[REPORT: Mask Mandates Causing Over 350% Surge In Childhood Speech Delays.](https://thenationalpulse.com/2022/01/20/mask-mandates-causing-speech-delays/)
+**新闻来源**
+
+[ESPN announces it won’t send reporters to Beijing Olympics due to COVID-19](https://thehill.com/homenews/media/590712-espn-announce-it-wont-send-reporters-to-beijing-olympics-due-to-covid-19)
 
  
 
