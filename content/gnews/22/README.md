@@ -2,36 +2,66 @@
 ---
 
 
-## 法国国民议会称中共对维吾尔人的待遇是“种族灭绝”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891539/)
+## 灭共者之郭氏情报站（十四）2022/01/20 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1891566/)
 
-**编译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip02-8.png)档案 – 法国国民议会。 – VINCENT ISORE / ZUMA PRESS / CONTACTOPHOTO
-中共因涉嫌虐待以穆斯林为主的族裔群体而受到越来越多的批评，尽管中共国当局否认这些指控。法国国民议会周四通过了一项决议，谴责中国政府对待维吾尔族的做法是“种族灭绝”，这些提出决议的法国国民他们大多数居住在法国的西北部。
+出品：纽约香草山设计部 – ericlau-天龙
 
-法国议会下院为该决议开了绿灯，几乎所有议员都投了赞成票，69票赞成，只有一票反对。
 
-法国议会呼吁结束对这一群体的镇压，通过这一措施，敦促埃马克龙政府对中共国施加压力，同时宣布对维吾尔人的待遇为“种族灭绝”。
 
-法国贸易部长弗兰克-里斯特（Franck Riester）表示，从法律上宣布这一问题为“种族灭绝”不是政府的事，尽管他暗指严重侵犯人权。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-里斯特表示，法国政府谴责中共政府对维吾尔人的虐待，呼吁结束这种虐待，并试图将这一问题列入国际议程。
 
-这种情况每天都在成为与中共进行国际外交的十字路口，随着北京的冬奥会即将到来，这种情况更加明显。
 
-从许多维吾尔人所在的新疆地区移民的公民讲述了离开中共国时，他们的权利受到的攻击，还被全球围捕，被抓捕者被送回集中营，被迫停止维吾尔族人自己的习俗。
 
-而中共指责这些维吾尔族团体是分裂主义，甚至指责他们是恐怖袭击的幕后黑手。
 
-**新闻来源**：[europapress.es][La Asamblea Nacional francesa tilda de “genocidio” el trato de China hacia los uigures](https://www.europapress.es/internacional/noticia-asamblea-nacional-francesa-tilda-genocidio-trato-china-uigures-20220121014133.html)
 
-* * *
 
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
+
+**灭共者-郭氏情报站 **
+
+**2022年1月20日 本内容根据郭文贵先生GETTR直播提炼总结**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/181250.png)
+❖ 普京到北京冬奥会展示一下存在感，就要带走1000多亿美元。
+
+❖ 中共要发射200多万枚火箭造雪弹，营造瑞雪照冬奥的盛世景观。
+
+❖ 新版人民币很快就会发行。现在持有大量现金将来变废纸的概率极高。
+
+❖ 中共房地产税的到来，又是一次大洗劫。
+
+❖ 冬奥会之后，中国经济会崩塌。
+
+❖ 美欧一定溯源冠状病毒！
+
+**上一期：**
+
+**[灭共者之郭氏情报站（十三）2022/01/17 文贵大直播 – GNEWS](https://gnews.org/zh-hans/1877457/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 

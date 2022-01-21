@@ -2,42 +2,27 @@
 ---
 
 
-## 有声|麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891607/)
+## 英国仁医恳请病人不可再接种新冠病毒疫苗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1891687/)
 
-配音：香草山健身部 – 玫瑰园
+加拿大杨帆农场  编译：Cran，校对编辑，发稿：硫酸羟氯喹64
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/c-3-edited.jpg)图片来源：KCW
 
 
+据美国媒体[网关专家] 1月19日报道, 英国医院的一位医生近日在其电话问诊中告知他的病人：“不要再继续接种实验性的新冠病毒疫苗，因为它很快会因为安全问题而被停止使用。”
 
-麻省理工学院一名研究科学家Seneff（瑟内夫）博士周四晚上在福克斯接受采访表示：父母应该尽量避免为孩子接种中共病毒疫苗，因为他们死于中共病毒的风险非常非常低。
+报道称，英国圣理查德医院的医生在与其一位女病人电话问诊期间表示：由于在仓促情况下被使用的“新冠病毒”疫苗是极其危险的，因此它们最终将会在全球范围内被叫停。而且为了病人的健康安全，不应该再继续接种。该医生在电话中还称，尽管目前没有足够的公共信息来证明他的观点是正确的，但对于那些免疫力完好并且已接种的年轻人来说已经足够了，完全没有必要再接种更多剂量的疫苗。
 
-Seneff（瑟内夫）博士称，中共病毒疫苗对孩子的潜在危害远远大于益处。特别是接种加强针，从长远来看，这对孩子影响将是毁灭性的。
+据悉，以上问诊电话录音在被公布之后，立刻引发了舆论的强烈反响。但人们疑惑不解的是，为什么被政府认为是安全有效并被各界广泛推广使用的疫苗，现在却出如此完全否定的医疗专业意见。特别是当女病人问道：“是否这一建议适用于所有人时”，医生回答说：“现在所掌握的很多有关疫苗的信息是以前无法获得的，而且很快所有的疫苗接种都将完全被当局停止。因此，请不要，绝对不要再接种疫苗了！”
 
-Seneff（瑟内夫）博士撰写的文章称，中共病毒疫苗的快速研发和部署引起了多重安全问题。疫苗在与各种急性和长期诱发的病症的潜在关系方面的研究明显不足。Seneff（瑟内夫）博士在另一篇文中指出，中共病毒疫苗的大规模生产和强制接种的快速推进，表明相关机构并未对疫苗的风险性、安全性和对身体健康的有效性做充分的调研。
+* * *
 
-原文链接：[麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗](https://gnews.org/zh-hans/1885189/)
+原文链接:
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+> [WATCH: NHS Doctor Tells Patient NOT to Take Covid Vaccine Because They Will Be PULLED Soon – Warns That Vaccine Data is Being Hidden From Public](https://www.thegatewaypundit.com/2022/01/watch-nhs-doctor-tells-patient-not-take-covid-vaccine-will-pulled-soon-warns-vaccine-data-hidden-public/)
 
 
 
