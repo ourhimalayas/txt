@@ -2,28 +2,32 @@
 ---
 
 
-## 中日财经爆┃美联储发表官方数字美元白皮书
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887569/)
+## 网传上海优衣库疫情封锁视频打脸中共宣传
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887714/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-31.jpg)[图片来源](https://www.reuters.com/business/finance/boston-feds-first-look-digital-us-dollar-nearly-done-official-says-2021-09-29/)
-美国联邦储备委员会(FED/美联储)在周四(1月20日）发布的一份讨论文件中称，创建官方数字美元可能会加快支付速度，并为家庭提供一个安全的选择，但这也会带来金融稳定风险和隐私问题。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月13日，据中共媒体消息显示，中共国内上海某繁华地段的优衣库店铺因为出现过中共病毒确诊病例而被当地政府紧急封锁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午11.17.49.png)
+值得注意的是，这个突然的封锁措施并非单单针对该优衣库店铺，而是当时在整栋大楼内活动的上海市民全部被限制出入，这也导致楼内民众只能利用商场里的睡袋和食物度过被封锁的时间。
 
-该报告没有提出政策建议，也没有就美联储在是否推出央行数字货币(CBDC)方面的立场发出明确信号。此外，美联储表示，“如果没有行政部门和国会的明确支持，最理想的方式是通过一项具体的授权法律”，它将不会创建央行数字货币。
+据悉，中共国如此突然且大面积的封锁在全国范围内频频发生。事后，中共当地政府往往通过发放礼品或拍摄宣传片等方式将这类事件美化。但据日本媒体在当地时间本月19日的报道称，虽然中共镜头下的封锁故事被虚化的严重失真，但互联网上有大量因封锁造成民众恐慌的视频仍在广泛流传。 对此，分析人士则指出，中共目前应对疫情的政策即为“一人感染，整楼封锁”，全然不顾中国老百姓的安危，至于事后为了美化其所作所为的安抚措施不过是中共对外宣传的惯用手段。
 
-美联储表示，挑战包括维持金融稳定，确保数字美元将是“现有支付手段的补充”。在启动CBDC之前，美联储还需要解决一些重大的政策问题，比如确保CBDC不会侵犯美国人的隐私，以及政府保持其“打击非法金融的能力”。
+参考链接：[https://www.gettr.com/post/ppaeyh087f](https://www.gettr.com/post/ppaeyh087f)
 
-至关重要的一点是，如果CBDC通过当前的金融体系“中介”运作，将“最适合”美国的需求，这意味着个人无需在美联储直接拥有CBDC账户。这一做法得到了一些民主党人的支持，他们表示，数字货币可以帮助无银行账户的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-不过，美联储官员说，他们不排除任何可能性。美联储将在120天内通过在线表格收集对该文件的意见。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-消息来源:
-
-[焦点：美联储发表官方数字美元白皮书 陈述利弊但未提出政策建议](https://cn.reuters.com/article/us-fed-digital-dollar-whitepaper-0121-idCNKBS2JV04B?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

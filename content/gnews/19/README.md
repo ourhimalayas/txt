@@ -2,116 +2,46 @@
 ---
 
 
-## 美国司法部被外国机构行贿和腐败
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1887568/)
+## 太平联盟Subpoena要的三样东西是共产党最想要的东西
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887713/)
 
-[https://gtv.org/video/id=61e9619687664c47acd75662](https://gtv.org/video/id=61e9619687664c47acd75662)
+G-TV视频链接：[https://gtv.org/video/id=61e9f2ab87664c47acd7904e](https://gtv.org/video/id=61e9f2ab87664c47acd7904e)
 
-**郭文贵
-Miles Guo**
+**郭文贵先生**：你在美国看到这个案子，你觉得比中共国那个被抓起来的张鹏鸣（注：口误，似应为张明鹏），大连西城区的法院判李友案受贿几个亿的，你觉得这个案子跟那个有一拼吧？
 
-这些律师是多么的夸张，跟马云和阿里巴巴
-Que tan exagerados son estos abogados, junto con Jack Ma y Alibaba
+最可怕的，程序正义在哪里？对方就是这一次强烈的违法职业道德造假吗？多维网站，竟然我们告多维网站也不让我们告，取证也不让取。但是对方却给我们发subpoena超过60个，应该是七八十个人，完全跟他没有关系，全部发subpoena。
 
-他原来的事务所就是跟马云有合作
-Su oficina original cooperaraba con Jack Ma
+发subpoena要什么你知道吗？就要三样东西，你的、钱账单，你的背后控制人，第三个现在你所有的个人信息。战友们你知道谁最想要这东西？那只有共产党啊！为什么PAG要调查的subpoena的东西都是共产党最想要的呢？
 
-跟共产党有合作
-Y el Partido Comunista
+我们国内被抓的战友，G-TV的投资者的所有战友被抓的人，所有都是被索要这三样东西，为什么就和太平联盟弄在一起了？为什么又偏偏是一个太平联盟的吴征、海航、王岐山，而且就在上海和北京银泰、国贸中心圈的这些律师所掺合在一起？他们之间有什么利益？和代表马云的律师事务所他们又有什么利益？难道跟美国司法部，Higginbotham，Elliott Broidy，Nickie Lum Davis，Steve Wynn，美国司法部副部长，川普总统，当时的白宫顾问班农，都牵扯其内，都要被说服，跟这件事情有没有牵连呢？谁能说没牵连呢？
 
-马云又是攻击我们的人
-Jack Ma es la persona que nos estaba atacando
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-包括我们这个法官，Ostriker
-Incluyendo a nuestro juez, Ostriker
+编辑整理：Jacques；
 
-法官是一个资深的法官
-El juez es un juez con muchos años de experiencia
+字幕文件制作：小满；
 
-曾经在的律师事务所
-La firma de abogados en el que estaba
+视频制作及上传：Cindy；
 
-就是跟马云上市的代表律师事务所
-Es la firma de abogados que representa a la empresa cotizada de Jack Ma
+G-News发布：小满；
 
-他本人就是参与这个案子
-Él mismo estuvo involucrado en este caso
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-那你说今天我们面对这个案子的时候
-Ahora tú dices que hoy cuando estamos enfrentando este caso
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-我们再回头看2017年对我最大伤害的是谁？
-Echemos un vistazo ¿quién fue el que me lastimó más en el año 2017?
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-是美国几百年建国历史当中
-En la historia desde la fundación de los Estados Unidos durante cientos de años
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-没有出现过一例美国司法部被外国机构行贿和腐败的案例
-No había aparecido un caso de soborno y corrupción en el Departamento de Justicia de los EE. UU por parte de agencias extranjeras
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-当时就是PAX的投资人、合伙人和海航以及共产党
-En aquel momento era el inversor y socio de PAX (Pacific Alliance Asia Fund Opportunity), HNA Group y el Partido Comunista
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-王岐山还有更多的人
-Wang Qishan y muchas personas más
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-包括PAX在中间，就是这个太平联盟全面参与了
-Incluyendo a PAX en el medio, es decir, esta alianza Pacífica estuvo presente en todo
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-还有单伟健干了个什么事情？
-Y Shan Weijian ¿qué hizo?
-
-Higginbotham司法部律师行贿副部长级别
-Abogados del Ministerio de Justicia de Higginbotham sobornó a nivel de viceministro
-
-在中国驻华盛顿大使馆跟中国大使见面
-Se reunió con el Embajador de China en la Embajada de China en Washington
-
-吴征去游说班农将我遣返
-Wu Zheng fue a presionar a Bannon para que me enviara de regreso
-
-到家去
-A la casa
-
-涉及到美国大佬
-Esto tiene relación con el Boss de EE. UU
-
-赌场大佬Steve Wynn、Elliott Broidy公关亲自见孙立军、见王岐山
-El magnate de los casinos Steve Wynn y Elliott Broidy de relaciones públicas se reunieron en persona con Sun Lijun y Wang Qishan
-
-Nickle Lum Davis，中国派在美国的双胞胎间谍
-Nickle Lum Davis, China envía el espía gemelo a EE. UU
-
-跟今天的英国议会间谍是一样的
-Lo mismo con los espías parlamentarios británicos del día de hoy
-
-司法部都被买通了
-Si el Departamento de Justicia fue sobornados
-
-你觉得法院、还有律师还有买不通的吗？
-¿Crees que los tribunales y los abogados no pueden ser sobornados?
-
-* * *
-
-日期：01/19/2022
-原视频标题：美国司法部被外国机构行贿和腐败
-El Departamento de Justicia de EE. UU. fue sobornado y corrupto por agencias extranjeras
-
-原视频日期：01/17/2022
-原视频网址：[https://gettr.com/post/potfb1af6c](https://gettr.com/post/potfb1af6c)
-任务编号：KC425（3524）
-视频时间段：00:00-01:39
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

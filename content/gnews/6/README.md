@@ -2,118 +2,26 @@
 ---
 
 
-## 中共对维吾尔人的罪行曝光，残忍程度令人咋舌
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1887723/)
+## 欧洲考虑新的应对新冠病毒策略：接受这个病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1887822/)
 
-[https://gtv.org/video/id=61e9623787664c47acd756dc](https://gtv.org/video/id=61e9623787664c47acd756dc)
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-52.png)
+图片来源： www.bbc.com
 
-100s1000s have been sent to prisons
-数十万人被送进监狱
+美联社1月20日报道，当新冠病毒疫情最初宣布时，西班牙人被要求待在家三个月以上，好几个星期不让人们出去运动，孩子们不被允许去游乐场，经济完全停止了下来。
 
-and an estimated 1.8 million people have been sent to internment camps
-并且估计有180万人被送往拘留营
+官员们辩称这些严厉措施是为了防止医疗系统奔溃，是为了挽救生命。现在二年过去了，西班牙正在准备采用不同的策略，在这个欧洲疫苗接种率最高的国家之一，政府在为制定下一波感染高峰时，不再作为紧急情况而是作为一种疾病来处理，邻国英国和葡萄牙也在采取相似的措施。
 
-where they endure unimaginable terror in the form of
-他们在那里忍受着难以想象的恐怖
+这个主意是将危机模式转向控制模式，西班牙希望欧盟考虑相似的改变，这种改变预计在奥米炕高峰下来后实施。
 
-beatings, electric shocks, solitary confinement, deprivation of food, water
-殴打、电击、单独监禁、剥夺食物、水
+世卫组织认为现在改变模式还太早，欧洲疾控中心正在与各国商讨这波疫情的急性期过后的转型问题。
 
-and sleep exposure to extreme cold
-暴露在极冷的环境中睡眠
+但德国政府目前认为转型还太早，因为该国只有73%的人口接种了疫苗，还有很多人，尤其是老年人尚未接种，意大利也延长了针对50岁以上的人强制疫苗政策，并对不接种者处以1500欧元罚款，并规定只有接种疫苗者才能进入公共交通，飞机，健身房，旅店及交易场所。
 
-and the abusive use of restraints, including torture tools like Tiger chairs
-以及滥用约束装置，包括老虎凳等酷刑工具
+##### **新闻来源： **[Europe considers new COVID-19 strategy: Accepting the virus](https://apnews.com/article/coronavirus-pandemic-boris-johnson-health-europe-spain-1ab95ea43fa30bcb36f068c9a8664d12)
 
-former detainees recorded having their legs shackled
-前被拘留者记录了他们的腿被镣铐
-
-during part of the time of detention, sometimes for up to a year
-在被拘留的部分期间，有时长达一年被镣铐
-
-“I could barely walk, it was on 24/7
-“我几乎不能走路，它是24/7戴着
-
-Every week the guards would check the chain
-每周警卫都会检查链条
-
-Every two weeks they would tighten the bolts…”
-他们每两周就会拧紧螺栓……”
-
-“Several months after I arrived in the camp
-“在我到达拘留营几个月后
-
-They offered us water for showering, but always in the chain on”
-他们为我们提供淋浴用水，但总是拴着链条”
-
-“when I said I wouldn’t take off my underwear they beat me with an electric baton
-“当我拒绝脱下我的内衣时，他们用电棍殴打我
-
-And then I fell
-然后我摔倒了
-
-They beat me and I was electrocuted…
-他们打我而且我被电击了……
-
-…When I came to my senses, they took off my clothes
-…当我清醒过来时，他们脱掉了我的衣服
-
-they searched me, made me bend down
-他们搜查我，让我弯下腰
-
-tied my hands behind my neck
-把我的手绑在脖子后面
-
-It was very painful ”
-它是非常的痛苦”
-
-Prisoners are forced to attend classes for 17 hours a day
-囚犯被迫每天上课17小时
-
-they’re psychologically abused and subjected to harsh physical punishments at the whim of their instructors
-他们受到心理上的虐待，并根据教官的意愿受到严厉的身体惩罚
-
-“During the class there was a Han teacher who wrote Chinese characters on the board
-“上课的时候有个汉族老师在黑板上写汉字
-
-and we just copied it without knowing what it was
-我们只是复制它而不知道它是什么
-
-That was it”
-就是这样”
-
-“We were not allowed to speak Uyghur in class
-“我们不允许在课堂上说维吾尔语
-
-If you did [speak the language other than Mandarin], you got punished.
-如果你[说普通话以外的语言]，你会受到惩罚
-
-You were taken to a room with a tiger chair…”
-你被带到一个有老虎凳的房间……”
-
-I was taken twice
-我被带去过两次
-
-* * *
-
-Date:01/19/2022
-原视频标题: The CCP’s crimes against the Uyghurs have been exposed, and the cruelty is staggering
-中共对维吾尔人的罪行曝光，残忍程度令人咋舌
-原视频日期：2022/01/18
-原视频链接: [https://twitter.com/vocommunism/status/1483522079311814657?s=24](https://twitter.com/vocommunism/status/1483522079311814657?s=24)
-任务编号：KE358（3539）
-视频时间段 : 0:00-1:46
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+# ** **
 
  
 

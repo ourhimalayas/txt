@@ -2,30 +2,42 @@
 ---
 
 
-## 法国议会将中共政府对待维吾尔人称为种族灭绝
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1887333/)
+## 共产党一定要在BVI彻底搞定岛上的法官和律师事务所
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887486/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-28.jpg)法国议会将中共政府对待维吾尔人称为种族灭绝 网络图片
-据美国之音1月21日报道，由社会党人和其他在野党领导的法国国民议会20日以169票对1票的压倒性票数通过了一项不具约束力的动议，指出中共当局对新疆维吾尔穆斯林少数民族犯下“反人类罪和种族灭绝罪”，并敦促法国当局谴责北京，保护法国的维吾尔族裔移民社区免受中共的骚扰。
+G-TV视频链接：[https://gtv.org/video/id=61e9f26d87664c47acd7903b](https://gtv.org/video/id=61e9f26d87664c47acd7903b)
 
-法国议会这项举措是在2022年北京冬奥会前夕出台的。包括美国、英国和澳大利亚在内的几个西方国家已经宣布对奥运会进行“外交抵制”，并且不派外交代表团参加。荷兰议会去年通过了一项类似的决议。意大利和比利时也在新疆问题上谴责中共国，但没有使用“种族灭绝”一词。
+**郭文贵先生**：你知道二三年前你看我直播我说过，我说内部人告诉我说，共产党说一定要在BVI巴哈马这地方彻底搞定法官和律师事务所，因为那里总共岛上不超过五个法官，这是战友当时大家直播中大家都提到的。这个律师事务所APPLEBY就明显的这个Bondi、跟Edward Moss一模一样。这是个基本上就Rachel你不能睡在大卫的床上，因为大卫的老婆不是你，就这么简单道理你非说我就睡他床上，我证明我不是他老婆呀，你这不是胡搅蛮缠吗？就这，到现在还是代表PAX官司。他当然现在还没有判决还没有赢呢。
 
-新疆种族灭绝是中共对人类犯下的滔天罪行中的一项。中共70年杀掉的中国人大概有6亿人，中共是在中国人的血汗和尸体上发展起来的。现在中共把杀戮扩展到了全世界，两年时间，中共制造并释放的冠状病毒和疫苗已经杀死了几百万人，造成几亿人感染。而全球范围内的强制接种疫苗的灾难还没有真正开始。到五月份之后，疫苗灾难开始显露时，整个世界会真正地成为人间地狱。不消灭中共，类似新疆的种族杀戮在全世界不会停止。
+那么2月2号听证会什么？法官会像，再可能是……反正两种可能，一个判这船不是Miles Guo的，一个判是Miles Guo的。美国纽约法官是没有做出判决，没有权力做出这样的决定的，但是他会强烈影响BVI。
 
-新闻参考链接：[https://www.voachinese.com/a/france-china-xinjiang-condemnation-20220120/6405579.html](https://www.voachinese.com/a/france-china-xinjiang-condemnation-20220120/6405579.html)
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-* * *
+编辑整理：Jacques；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
-编辑：【英国伦敦喜庄园编辑部】
+G-News发布：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

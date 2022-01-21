@@ -2,31 +2,26 @@
 ---
 
 
-## 路透社：美国研究加速交付F-16新战机给台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1887463/)
+## 中共威胁加剧 美国将加快向台湾交付新一代F16战机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887539/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-29.jpg)路透社：美国研究加速交付F-16新战机给台湾 网络图片
-据台湾中央广播电台1月21日暨路透社独家报道，美国正在寻求加速交付由洛克希德马丁公司制造、配备新性能的F-16 Block 70战机给台湾的可能性，以强化台湾空军的防范能力。这些战机目前预定的交货时间为2026年年底。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-66.jpg)[图片来源](https://www.scmp.com/news/china/military/article/3004963/taiwans-plan-buy-66-f-16-viper-fighter-jets-us-still-track)
+路透社1月20日报道，美国正在想方设法加快向台湾交付新一代F-16战斗机，以增强台湾空军应对中共军方日益增加的武力威胁。
 
-F-16被认为在空对空作战和空对地攻击中，具有高度机动性的飞机。根据2019年通过的80亿美元军售案，一旦取得66架崭新的F-16 Block 70战机，台湾将拥有亚洲最大的F-16战机机队，到2026年的F-16总数量将超过200架。
+相关美国官员表示，他们还没有拿出如何加快交付Block70 F-16战斗机的方案。Block70 F-16是配备了新功能的升级版战斗机，由洛克希德马丁(LockheedMartin)制造。目前计划的交付时间在2026年底。
 
-美国、台湾，包括整个世界已经意识到，中共已经成为全世界最大的的威胁，远远大于伊朗或俄罗斯。中共一直对台湾虎视眈眈，同时也威胁到周边国家的安全。美国的新型战机如果能够及时交付给台湾，台湾的空中打击和防守能力势必得到巨大的提升。
+台湾一位高级官员称，台湾政府已私下向美国政府表示，希望能加快战斗机的交付。目前，台湾空军频繁出动战机拦截愈发咄咄逼人的中共军机，更多任务意味着台湾战机的损耗会加大。“这一切都与风险评估有关……风险在哪里是显而易见的。”他指的是台湾海峡的紧张局势。
 
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2122656](https://cn.rti.org.tw/news/view/id/2122656)
+根据2019年批准的一项价值80亿美元的交易，台湾将购买66架新制造的F-16C/DBlock70战斗机，成功交付后，台湾将拥有亚洲最大的F-16战机机队之一。到2026年，包括老式F-16在内，台湾的F-16战斗机总数将超过200架。
 
-* * *
+消息来源:
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[独家：美国正想方设法加快向台湾交付新一代战斗机](https://cn.reuters.com/article/us-tw-warplane-0121-idCNKBS2JV05L?il=0)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
