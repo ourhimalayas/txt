@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/21/2022 12:51 AM (UTC)`
+
+1/20/2022 Miles Guo’s GETTR: Some fellow Chinese are saying that they love the CCP, but does the CCP love them? The CCP has spent trillions of RMB only to have Russia and other several small countries show up for the Winter Olympics. The livelihood of the Chinese Lao Baixing is getting worse and worse, with more and more people getting sick. Yet, good doctors are not available for them, and they couldn’t even afford the healthcare. How pathetic it is!<br/><br/>1/20/2022 文贵盖特：国内同胞说爱党，但党爱你吗？为了让俄罗斯和几个小国来给冬奥会捧场，中共挥霍了几万亿！老百姓的生活却越来越差、病越来越多，还找不到好医生、看不起病，悲哀啊！<br/>
+![img](https://media.gettr.com/group31/getter/2022/01/21/00/0a69b3e2-d865-9b64-b454-aa58038be224/out.jpg)
+
+---
+
 `@miles 1/21/2022 12:02 AM (UTC)`
 
 1/20/2022 Miles Guo’s GETTR: Yesterday was the beginning of the new era of the Whistleblowers’ Movement. While we are spreading the truths about the CCP virus and the COVID vaccine disaster, we are voicing to the world that the CCP does not equal the Chinese people and that the Chinese are the biggest victims of the CCP so that the world can clearly see what communism is.<br/><br/>1/20/2022 文贵盖特：昨天开启了爆料革命新时代，我们在传播病毒和疫苗灾难信息的同时，也向世界发出中共不等于中国人、中国人是最大的受害者这样的声音，让世界看清什么是共产主义！<br/>
@@ -145,13 +152,6 @@
 `@miles 1/20/2022 2:38 AM (UTC)`
 
 1月19号我得乖乖嘞🦅🦅🦅🔥🔥🔥<br/><br/>Miles !!!!!!!!<br/><br/>Huge !!!!!<br/><br/>Too dangerous for Announcers!!!!<br/><br/><br/>https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/
-
----
-
-`@miles 1/20/2022 2:20 AM (UTC)`
-
-1/19/2022 Miles Guo: We will have the H-Insurance and the digital space program! The New Federal State of China is from heaven, and we will definitely not allow the Party of Davos to succeed in its plan to create digital slavery. The evil twins, the CCP and the Party of Davos, are not far from their end!<br/><br/>1/19/2022 文贵直播：我们将拥有喜保险和数字太空；新中国联邦从天上来，我们一定不会让达沃斯党创建数字奴隶制的计划得逞；中共和达沃斯党这对邪恶的孪生兄弟离死期不远了！<br/>
-![img](https://media.gettr.com/group30/getter/2022/01/20/02/61bd8037-d013-6e3d-3b28-d374f5a63d10/out.jpg)
 
 ---
 
