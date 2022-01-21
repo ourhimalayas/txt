@@ -2,85 +2,37 @@
 ---
 
 
-## 全球疫情更新（比较各国的最新疫苗政策）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1890618/)
+## 1/21银河快讯：日本商工会长呼吁执行疫苗护照；JR东日本将提供停薪留职制度
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1890753/)
 
-**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-131.png)[图片来源](https://www.47news.jp/news/7312659.html)
+**1．****日本****感染中共病毒（新冠肺炎C****OVID****–****19****）****总****病例****超200万**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1683.png)图片：雅典娜农场设计组 精灵蓝
+[朝日新闻1月20日报道，日本总病例数于20日超过200万。自前年1月确认第一例开始到去年8月第100万例，共用一年零七个月的时间，但之后仅用五个多月就增加了第二个100万。截止20日晚8点半，日本新增确诊46199例，连续第三天打破单日新增历史纪录；有9例死亡。](https://news.yahoo.co.jp/articles/155cd59b0ecf0b90f9caa5392f2459aac77cb1c6)
 
+**2****．****日本商工****三村****会****长****呼吁继续执行****“****疫苗****护照****计划****”**
 
-雅典娜疫情更新（2022年 1月21日）
+[据NHK 1月20日报道，关于日本政府决定暂时原则上不适用通过检查疫苗接种证明等来缓解活动限制，日本商工会议所主席三村在20日的例行记者会上呼吁继续执行。他说：“现在出现了停止疫苗护照这个比较负面的事情，但是我们希望能够维持并强化这个措施“。他又补充道：“把预防感染的传播放在首位，而且要使其与社会和经济活动相适应，在这个认识上我认为我们与政府和其他方面是一致的。过去的两年里，医疗系统得到了极大的改善，公共卫生中心的功能也得到了很大的加强。这些努力的结果我们将可以在第六波疫情中看到，情况已经与过去不同了。”](https://www3.nhk.or.jp/news/html/20220120/k10013441231000.html?utm_int=news-business_contents_news-main_005)
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+**3****．日本派遣****自卫队飞机****及****舰艇援助汤加**
 
-**一，全球疫情基本数据**
+[据时事通信社报道，日本防卫大臣岸信夫1月20日宣布，将派遣两架航空自卫队的C-130运输机协助南太平洋岛国汤加。运输机将于当晚出发，携带饮用水前往澳大利亚，预计将于21日抵达。海上自卫队的运输船大隅号也将很快被派往汤加运送大型物资。首相岸田文雄在周三的上院全体会议中说，政府将与澳大利亚和新西兰等相关国家“密切合作，应对局势”。日本政府还宣布打算提供超过100万美元（约1.14亿日元）的紧急拨款援助。](https://news.yahoo.co.jp/articles/3d42c4528e6a52d1eef684a9b189f9f4d7e51aea)
 
-感染总数：340,367,908（日新增2,884,990，14天增幅+47%）
+**4****．****日本12月****进出口****创历史新高**
 
-死亡总数：5,572,912（日新增7,496人，14天增幅 +21%）
+[据共同社报道，日本财务省公布的初步数据显示，出口额较上年同期跃升17.5%，达到7.9万亿日元（690亿美元），连续第10个月增长，而进口额激增41.1%，达到8.5万亿日元，连续11个月增长。因此，日本12月份的货物贸易赤字为5824亿日元，连续第五个月出现赤字。按物品划分，汽车出口比去年同期增长了17.5%，而铁的出口膨胀了75.1%。](https://english.kyodonews.net/news/2022/01/79eccd30202f-update3-japans-exports-imports-hit-record-highs-in-december.html)
 
-**二，全球“疫苗”毒针统计数据**
+**5****．****JR东日本将提供最多两年的****停薪留职制度**
 
-“疫苗”毒针注射总数：93.7亿
+[据共同社1月20日报道，JR东日本客运铁路公司周三表示，该公司计划于4月为所有员工建立一个新的停薪留职制度，最长可达两年。新的制度将无薪，但涵盖出国留学、获取资格证和不孕不育治疗。3月，该公司还将放宽了关于乘坐子弹头列车或快速列车通勤的条件。JR东日本旨在通过这一举措来降低离职率。](https://news.yahoo.co.jp/articles/d9d0f89a55209e1c752bd8974f8f432112385b5f)
 
-完全“接种”：39.2亿人
+**6****．****宝酒造****公司将****从6月起提高****部分****烧酒和****鸡尾酒****的价格**
 
-完全“接种”百分比：50.3%
+[据NHK 1月20日报道，总部位于京都的宝酒造公司宣布，由于原料成本的上升，它将从6月起提高220种产品的价格，包括一部分烧酒和罐装鸡尾酒。涨价幅度为参考零售价的1%至8%，并将影响该公司约20%的产品。主要原因是从海外进口的酒精价格飙升，以及运输成本的上涨。](https://www3.nhk.or.jp/news/html/20220120/k10013441531000.html?utm_int=news-business_contents_list-items_002)
 
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,081,984（今日新增64,523人）
-
-死亡总数：2,984人（今日新增 88人）
-
-每万人感染人数：784.3043人
-
-“疫苗”毒针注射总数：47,406,253   （日新增353,190 针）
-
-完全“接种”：19,143,464人
-
-第二针“接种”百分比：78.1%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：92.8%
-
-**四，疫情疫苗新闻摘要**
-
-昨天，捷克政府“为避免加深社会裂痕”，宣布废除了上届政府制定的对医生，警察等特定职业人员和60岁以上公民的强制疫苗规定。
-
-而今天[奥地利将成为第一个全民强制疫苗接种的欧洲国家](https://www.bbc.com/news/world-europe-60077767)。在议会下议院以 137 票对 33 票压倒性多数投票通过后，奥地利已经接近引入全民疫苗强制令。该法律将于 2 月 1 日生效，从 3 月中旬开始，将对未接种 Covid-19 疫苗的成年人处以最高 3,600 欧元的罚款。奥地利的疫苗接种率已经高达75%，加强针接种更是达到47%。政府将投资 14 亿欧元用于逼迫未接种疫苗的人接受疫苗接种。
-
-奥地利的疫苗订单预计将持续到 2024 年 1 月。假设每3月强制打一次加强针的话（按照最新的研究，加强针的效果，在2个月后就降低了一半，所以现在加强针的建议间隔，缩短到了3个月），每年打4针，2年就需要打8针，反正这些疫苗按照主流媒体所说，是“安全和有效”的，那就多打一些也没关系对吧？这种离谱的想法，奥地利老百姓不买账，自从 11 月当局宣布他们打算引入这种疫苗强制以来，首都维也纳[经常发生抗议活动，其中一些人数超过 40,000 人。](https://www.bbc.co.uk/news/world-europe-59625302)
-
-今天，澳大利亚新南威尔士州，维多利亚州，南澳，首都领地等相继将加强针注射期限缩短为3个月。
-
-而英国首相约翰逊今天宣布将放松限制，将结束在英格兰强制疫苗护照，也不再强制要求人们在任何地方佩戴口罩，包括教室。
-
-澳洲在本月已经开始了对5-11岁儿童的大规模“疫苗”接种。反观英国，疫苗接种和免疫联合委员会 (JCVI)[只建议临床高风险或者与免疫缺陷患者住在一起的儿童接种](https://www.theguardian.com/society/2021/dec/22/jcvi-set-to-recommend-vaccinating-vulnerable-five--to-11-year-olds)。而且一些英国医学专家对于为保护成人而为儿童接种疫苗的合法性提出了担忧，因为对儿童来说，这是一种非常温和的疾病。
-
-比较上述种种大相径庭，互相矛盾的各国疫苗政策，就可以看出疫苗政策的转向已经从一些国家开始了，那些一条道走到黑的政府必将被民众惩罚。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+【日本银河系农场-阿尔法星球】
+作者：帆間知津
+校对：Tagomi
 
  
 
