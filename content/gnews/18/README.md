@@ -2,25 +2,22 @@
 ---
 
 
-## 中共和达沃斯是万恶之源
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889099/)
+## 中共警告各国运动员谨慎言论
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889141/)
 
+撰稿：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-在19日的大直播中，郭文贵先生5年来首次谈达沃斯，强调如果人们继续认为自己与达沃斯没关系，将成为达沃斯永远的奴隶。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1657.png)
-郭先生揭秘，不到世界人口0.001%的达沃斯论坛参会者，控制着世界99%的财富，他们与官方勾结，对某些国家的政治和军事具有绝对的影响力，影响着每个个人的命运。
+1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1660.png)
+此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
 
-郭先生表示，中国共产党这个绝对信神的、超级富豪党派，和达沃斯是万恶之源。
-
-
-
-编辑：雪梨
-
-校对：飞虹
-
-参考链接：[1/19/2022 文贵直播](https://gettr.com/post/ppf7ay3ba8)
+链接：[China Warns Olympic Athletes Over “Any Speech” Contrary To Chinese Laws](http://zububrothers.com/2022/01/19/china-warns-olympic-athletes-over-any-speech-contrary-to-chinese-laws/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
+
+总编：飞虹
+
+编辑：文特/雪梨
 
 校正/发稿：浪迹天涯
 

@@ -2,34 +2,37 @@
 ---
 
 
-## NBC表示不会派遣现场体育播报团队参加北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889168/)
+## 欧洲议会谴责香港自由恶化 呼吁制裁官员并抵制北京冬奥
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1889231/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-由于中共病毒的影响，NBC体育于1月19日宣布，将不会派驻现场体育播报团队参加北京冬奥会。花样滑冰、高山滑雪和单板滑雪的电视转播将因此受到影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1666.png)
-NBC的负责人在接受采访时表示，主持人将会参与冬奥会开幕式和冬奥会前几天的报导工作，并将于2月13日返回美国洛杉矶主持其他体育赛事。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-据内部人士透露，鉴于中共的清零强制政策，NBC表示毫无控制权，因此，一些最受欢迎体育项目的现场播报也将被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/67FABB45-364A-44EF-ACA3-C83CC245E7A0.jpeg)图为2019年7月间香港反送中示威，大批警力驱离群众。（图片来自中央社）
 
-新闻来源：
+1月20日，欧洲议会通过香港基本自由遭受侵害相关决议，强烈谴责香港人权及言论自由的恶化，呼吁制裁相关官员，及敦促欧盟抵制即将举行的北京2022年冬季奥运会。
 
-[https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/](https://www.usatoday.com/story/sports/olympics/2022/01/19/winter-olympics-2022-nbc-tv-beijing-covid-19/6585943001/)
+据《中央社》报道，欧洲议会当天公布香港基本自由遭受侵害决议案表决结果，以585票赞成、46票反对和41票弃权通过。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
+据报道，议会强烈谴责香港人权的恶化，包括集会和新闻自由遭到限制，议员们呼吁香港政府释放所有政治犯，并撤销对近年来被捕的所有和平抗议者的指控。另外，因中共政府正试图将其威权制度对内对外合法化，议会也敦促中共当局废除《国家安全法》。
 
-总编：飞虹
+此外，欧洲议会议员还敦促欧洲联盟对镇压香港人权的官员实施制裁，并要求在外交和政治上抵制北京2022年冬季奥运会。
 
-校正/发稿：浪迹天涯
+早前，两个欧盟成员国丹麦、荷兰因中共国的人权问题已于14日宣布不派政府代表团出席北京冬奥会。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
+*参考链接：*
+
+1. [*歐洲議會譴責香港自由惡化 籲制裁官員及抵制冬奧*](https://www.cna.com.tw/news/aopl/202201210005.aspx)
+2. [*丹麦荷兰不派政府代表团出席北京冬奥*](https://www.zaobao.com.sg/realtime/china/story20220115-1233197)
+
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

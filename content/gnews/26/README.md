@@ -2,40 +2,40 @@
 ---
 
 
-## 中共与世界经济脱钩，中国人将获自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888966/)
+## 第四针疫苗不能阻止Omicron
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1889093/)
 
-撰稿：首尔天池农场 –  追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
-在1月19日的大直播中，针对中共和世界经济脱钩，郭文贵先生表示，只要脱钩，中国人将摆脱中共的努力，获得自由。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1656.png)圖片來源：https://investors-corner.bnpparibas-am.com
+作者：加拿大温哥华扬帆农场Spirit
 
-
-在中共的统治下，中国人的生活、医疗、教育等将继续被中共奴役和统治。如果中共继续维持高能耗、高污染的经济策略 ，中国的环境污染将无限制地恶化，中国人的生存环境将遭遇空前的危机。一旦中共和世界经济脱钩，中国人将脱离这种险境。
-
-在中共几十年的统治下，中共欺骗民众，依靠大量进口才能解决人民的粮食问题，高新科技更是依赖外国引进。中共的经济现状更是伪装下的海市蜃楼。一旦中共和世界经济脱钩，中国人将与虚假脱钩。
-
-中共70多年来，利用驭民五术奴役中国人民。一旦中共和世界经济脱钩，中国人民将摆脱中共的经济、精神控制，中国人将过上有尊严、有价值的日子。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
 
 
-[新闻连接]：
 
-[https://gtv.org/video/id=61e8077a533c672fca7f4b09](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-176.png)
+根据《国会山报》1月17日报道，以色列的一项初步研究第四针COVID疫苗不足以防止Omicron的感染。 据路透社报道，Sheba医疗中心传染病科主任Gili Regev-Yochay说，该试验研究了辉瑞公司两周后的强化剂和Moderna公司一周后的强化剂的效果。结果表明第四针所增加的抗体”可能对Omicron来说是不够的”。
 
-总编/编辑：雪梨
+以色列在整个大流行病期间带头推动疫苗接种，是第一个为本国公民提供加强针的国家。尽管走到了疫苗接种前列，以色列本月早些时候报告了近12,000个新增COVID病例，这是自大流行病开始以来每日病例最高数字。
 
-校正/发稿：浪迹天涯
+不知要打到第几针的时候民众才能觉醒，疫苗无效有害。事实表明接种率高的国家疫情更严重。
+
+
+
+参考链接：
+
+[https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron](https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-8.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

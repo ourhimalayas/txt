@@ -2,40 +2,31 @@
 ---
 
 
-## 第四针疫苗不能阻止Omicron
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1889093/)
+## 英国首相：英格兰即将终止强制接种疫苗政策
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1889129/)
 
-作者：加拿大温哥华扬帆农场Spirit
+#### 撰稿：日本东京方舟农场  海星
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1FEED9C3-B6D2-4354-8032-47464380AB68.jpeg)（图片来源：路透社）
 
+1月19日，英国首相鲍里斯·约翰逊(Boris Johnso)在国会上宣布，英格兰即将终止强制疫苗政策。
 
+据盖特（gettr）盖友郭文贵先生发布的视频显示，英国首相约翰逊在当天的国会上表示，考虑到非比寻常的疫苗加强针运动以及民众对强制接种疫苗的反应，从1月27日开始，将终止在英格兰实施的强制接种疫苗政策。该决定受到在场众议员的广泛支持。
 
+约翰逊补充说，从现在开始，民众已无需在家工作，也不必在任何地方戴口罩。同时他强调说，任何选择不戴口罩的人将不会再被定罪。
 
+此外，约翰逊表示，对于感染中共病毒的患者，目前自我隔离措施仍然是一项法律要求，不过政府计划于3月24日或提前结束该措施。今后政府将以建议的方式引导民众防范病毒而非强制实施防疫措施。
 
-根据《国会山报》1月17日报道，以色列的一项初步研究第四针COVID疫苗不足以防止Omicron的感染。 据路透社报道，Sheba医疗中心传染病科主任Gili Regev-Yochay说，该试验研究了辉瑞公司两周后的强化剂和Moderna公司一周后的强化剂的效果。结果表明第四针所增加的抗体”可能对Omicron来说是不够的”。
+*参考链接：[https://gettr.com/post/ppi6jd7f36](https://gettr.com/post/ppi6jd7f36)*
 
-以色列在整个大流行病期间带头推动疫苗接种，是第一个为本国公民提供加强针的国家。尽管走到了疫苗接种前列，以色列本月早些时候报告了近12,000个新增COVID病例，这是自大流行病开始以来每日病例最高数字。
+* * *
 
-不知要打到第几针的时候民众才能觉醒，疫苗无效有害。事实表明接种率高的国家疫情更严重。
+*素材采编：海星*
 
+*编辑：文顺*
 
+*发布：miumiu*
 
-参考链接：
-
-[https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron](https://thehill.com/policy/international/590109-israeli-study-shows-fourth-vaccine-dose-not-enough-to-stop-omicron)
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
