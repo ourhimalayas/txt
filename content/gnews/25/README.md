@@ -2,30 +2,34 @@
 ---
 
 
-## 英国首相：英格兰即将终止强制接种疫苗政策
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1889129/)
+## 瑞幸咖啡计划重新在美上市
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1889224/)
 
-#### 撰稿：日本东京方舟农场  海星
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1FEED9C3-B6D2-4354-8032-47464380AB68.jpeg)（图片来源：路透社）
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-1月19日，英国首相鲍里斯·约翰逊(Boris Johnso)在国会上宣布，英格兰即将终止强制疫苗政策。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/8B8GH_6R1Y2VOOKR.png)图片来源：雅典娜设计组
 
-据盖特（gettr）盖友郭文贵先生发布的视频显示，英国首相约翰逊在当天的国会上表示，考虑到非比寻常的疫苗加强针运动以及民众对强制接种疫苗的反应，从1月27日开始，将终止在英格兰实施的强制接种疫苗政策。该决定受到在场众议员的广泛支持。
 
-约翰逊补充说，从现在开始，民众已无需在家工作，也不必在任何地方戴口罩。同时他强调说，任何选择不戴口罩的人将不会再被定罪。
+据法国国际广播电台报道，路透社引述英国金融时报消息报道说，瑞幸咖啡在爆出会计丑闻两年后，计划重新在美国上市。
 
-此外，约翰逊表示，对于感染中共病毒的患者，目前自我隔离措施仍然是一项法律要求，不过政府计划于3月24日或提前结束该措施。今后政府将以建议的方式引导民众防范病毒而非强制实施防疫措施。
+中国咖啡连锁店—瑞幸咖啡在爆出3亿美元会计丑闻，曾于2020年6月从纳斯达克退市。六个月后，该公司同意支付1.8亿美元罚金，以了结美国证券交易委员会(SEC)的会计欺诈指控。
 
-*参考链接：[https://gettr.com/post/ppi6jd7f36](https://gettr.com/post/ppi6jd7f36)*
+英国《金融时报》周三援引两位消息人士称，该公司正在探讨是否应最快在今年年底在纳斯达克重新上市。据该报，在拟议的重新上市之前，瑞幸咖啡与投资者和顾问举行了会议，讨论其他的增资方案。
 
-* * *
+参考链接：
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E4%B8%AD%E5%9B%BD%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E8%AE%A1%E5%88%92%E9%87%8D%E6%96%B0%E5%9C%A8%E7%BE%8E%E4%B8%8A%E5%B8%82](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E4%B8%AD%E5%9B%BD%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E8%AE%A1%E5%88%92%E9%87%8D%E6%96%B0%E5%9C%A8%E7%BE%8E%E4%B8%8A%E5%B8%82)
 
-*素材采编：海星*
+*发布：*tianzhihuan
 
-*编辑：文顺*
-
-*发布：miumiu*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

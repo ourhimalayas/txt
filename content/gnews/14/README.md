@@ -2,34 +2,28 @@
 ---
 
 
-## 瑞幸咖啡计划重新在美上市
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1889224/)
+## 美国上周近百万儿童感染中共病毒，中国产KN95口罩价格昂贵
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889293/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-3-1.jpg)图片来源：NPR
+1月20日，《国会山报》报道，根据美国儿科学会（American Academy of Pediatrics）的报告，上周有近100万儿童感染了中共病毒（COVID-19），是去年冬天高峰期的四倍。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/8B8GH_6R1Y2VOOKR.png)图片来源：雅典娜设计组
+报道说，在截至1月13日的一周内，报告了超过98.1万个儿童感染中共病毒病例，比截至1月6日的一周内报告的58万个病例增加了69%，病例数比前两周增加了三倍。
 
+自中共病毒疫情开始以来，近950万名儿童的中共病毒检测结果呈阳性，而所有病例中的10%是在过去一周内增加的。并且，自中共病毒疫情开始以来，儿童占美国总病例的近18%。在截至1月13日的一周里，儿童占每周报告的感染中共病毒病例的21.4%。
 
-据法国国际广播电台报道，路透社引述英国金融时报消息报道说，瑞幸咖啡在爆出会计丑闻两年后，计划重新在美国上市。
+连续第23周，有超过10万个儿童感染中共病毒病例。自9月的第一周以来，已经有超过440万的儿童病例增加。
 
-中国咖啡连锁店—瑞幸咖啡在爆出3亿美元会计丑闻，曾于2020年6月从纳斯达克退市。六个月后，该公司同意支付1.8亿美元罚金，以了结美国证券交易委员会(SEC)的会计欺诈指控。
+美国儿科学会说，它根据各州报告住院情况，只有24个州和纽约市按年龄划分住院情况。但是在各州的报告中，儿童数字低于成人。儿童住院人数占总住院人数的1.7%到4.4%不等，而在这些报告的州中，所有儿童感染中共病毒病例中有0.1%到1.5%导致住院。死亡率则更低。在报告的各州中，儿童占所有感染中共病毒死亡人数的0%至0.26%；有四个州报告没有儿童死亡。
 
-英国《金融时报》周三援引两位消息人士称，该公司正在探讨是否应最快在今年年底在纳斯达克重新上市。据该报，在拟议的重新上市之前，瑞幸咖啡与投资者和顾问举行了会议，讨论其他的增资方案。
+此外，文章说，虽然政府正在向药店和保健中心免费提供4亿个N95口罩，但这些口罩是为成年人准备的。儿科医生施里尔（Schrier）指出，N95口罩并不是为儿童准备的，来自中共国的KN95版本口罩价格昂贵，而且很难找到。并且，当父母找到这些口罩时，也很难分辨它们是真的还是假的。
 
-参考链接：
-[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E4%B8%AD%E5%9B%BD%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E8%AE%A1%E5%88%92%E9%87%8D%E6%96%B0%E5%9C%A8%E7%BE%8E%E4%B8%8A%E5%B8%82](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E4%B8%AD%E5%9B%BD%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E8%AE%A1%E5%88%92%E9%87%8D%E6%96%B0%E5%9C%A8%E7%BE%8E%E4%B8%8A%E5%B8%82)
+**新闻来源**
 
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Nearly 1 million child COVID-19 infections reported in past week](https://thehill.com/policy/healthcare/590695-nearly-1-million-child-covid-19-infections-reported-in-past-week)
 
  
 

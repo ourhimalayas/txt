@@ -2,32 +2,19 @@
 ---
 
 
-## 中共警告各国运动员谨慎言论
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889141/)
+## 秘翻在线：法国众议院通过&#8221;中共在新疆实施种族灭绝&#8221;的决议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889233/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1660.png)
-此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-30.png)（图片源自本文链接）
+TBS新闻1月21日消息：距离北京奥运会只有两个多星期了，法国众议院通过了一项决议，指责中共国在新疆维吾尔自治区进行 “种族灭绝”。
 
-链接：[China Warns Olympic Athletes Over “Any Speech” Contrary To Chinese Laws](http://zububrothers.com/2022/01/19/china-warns-olympic-athletes-over-any-speech-contrary-to-chinese-laws/)
+法国众议院20日几乎全票通过的决议指出：维吾尔族的人口受到强制绝育政策的压制，孩子被带走的情况十分严重。指责中共有 “消灭维吾尔族的意图”，相当于 “种族灭绝”，要求法国政府正式承认。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
+中共驻法国大使馆发表声明说：这是公然基于对中国的偏见和敌意的谎言。
 
-总编：飞虹
+信息源：[新疆ウイグル自治区で中国「ジェノサイド」 仏下院、決議採択（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/eacf9d59946bbcb941601cacd91b376444d77a7f)
 
-编辑：文特/雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

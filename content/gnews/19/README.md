@@ -2,51 +2,32 @@
 ---
 
 
-## 新西兰：政府给孩子们打COVID-19疫苗的程序已经开始，Brian Tamaki（反对COVID-19疫苗人士）再次被捕
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1889172/)
+## 联合国为北京新纳粹背书 要求参赛国遵守“奥利匹克休战协议”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1889263/)
 
-撰稿人：Lois
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-8.png)  照片：Getty Images
-新西兰开始给5到11岁孩子接种COVID-19实验性疫苗，大约50万儿童将接种免费疫苗。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/VYzo2m3HnmgBI3IP9Rk0fcM0-N8d27q2hN4FaZOtVD54wmaTm9e0mscUSjoY8YKxPZi6ch3QpOODDeWJygB7MrVHQ-cWDbBM1tBaZU37JkJHCrltBff1IdHaqHCvS0r_Y5YLpW6m)[*图片来源*](https://www.cbssports.com/olympics/news/winter-olympics-2022-all-200-plus-u-s-athletes-vaccinated-against-covid-19-per-team-doctor/)
+**联大主席沙希德将出席北京冬奥开幕式，并参加火炬接力。他警告参赛国遵守已签署的“奥林匹克休战协议”而不谴责北京。该条款严重违反了奥林匹克精神。 这使本届北京奥运会注定与臭名昭著的德国纳粹奥运会相提并论。北京响应“休战协议”，称任何指控北京人权等问题都会受到具体的处罚。这个申明否认了中共反人类罪的指控。尽管美国领衔发起“外交抵制”，仍允许美国运动员及其相关官员前往参加，但不会向北京冬奥会派遣官方新闻记者。**
 
-Vicki Mount，是380名医生和遍布奥克兰的提供疫苗接种的药房药剂师之一，他说，民众对儿童接种疫苗的兴趣不久前有所增加。
+据中共CGTN大外宣21日消息，联大主席沙希德将出席北京冬奥开幕式。据称，沙希德的办公室发言人周四证实，他也将参加火炬接力。
 
-“我们有好多病人问了好几个月了，咨询什么时候他们的孩子可以开始接种疫苗”。
+“[沙希德](https://www.insidethegames.biz/articles/1118069/un-olympic-truce-appeal)还呼吁193个成员国遵守已于2021年12月于76届联大正式通过的《[北京冬奥会奥林匹克休战协议](https://olympics.com/ioc/news/ioc-welcomes-solemn-appeal-by-united-nations-to-observe-olympic-truce-during-beijing-2022)》的承诺。该条款谈到所谓奥运中立原则，实则为沙希德以联合国名义要求所有国家展示他们对北京——反人类政府的尊重，这一行为本身就违反了[奥林匹克精神](https://en.wikipedia.org/wiki/Olympic_spirit)。
 
-之后，政府在圣诞节之前的公告里说儿童疫苗会从2022年1月17日开始，我们看到巨大的需求，人们打电话到诊所来希望能够预约。
+联合国是二战后成立的国际监督机构，他肩负着捍卫世界和平、正义、公平，并致力于解决国际争端，包括捍卫人权等一些重要任务，但联合国大会主席出席北京冬奥会意味着无视北京犯下种族屠杀的反人类罪并为其背书，使本届北京奥运会注定与臭名昭著的[德国纳粹奥运会](https://en.wikipedia.org/wiki/1936_Summer_Olympics)相提并论。
 
-“显然，中共病毒在奥克兰对人们来说被公认为是个威胁，我的女儿们错过了很多学校的功课。我们考虑再三觉得我们的确应该接种疫苗”。在奥克兰生活的Clare Lang 说。
+- ***延展阅读：***[***美国冰球明星将在北京冬奥会开幕式揭开运动员制服的神秘面纱***](https://www.usatoday.com/story/sports/olympics/2022/01/20/2022-winter-games-opening-ceremony-uniform-ralph-lauren-team-usa/6583866001/)
+- ***延展阅读：***[***美国首席医疗官表示，美国冬奥代表队已完全接种了 COVID-19 疫苗***](https://www.cbssports.com/olympics/news/winter-olympics-2022-all-200-plus-u-s-athletes-vaccinated-against-covid-19-per-team-doctor/)
 
-目前政府已经准备了大概有120000剂疫苗分布在全国的500个地点以方便公民接种。卫生部预计这些疫苗数量将会在未来几周增加，包括针对毛利人和太平洋岛国人群的疫苗接种数量。
 
-“我们现在有足够的储备了-比起我们在6个月甚至九个月以前，我们增加了很多的疫苗接种站。我们现在每天有为30000人接种疫苗的能力”。北部地区卫生局中心的指挥负责人Anthony Jordan医生说。
+北京不惧外界批评，继续所谓成功[**蓝金黄**](https://chinadigitaltimes.net/space/%E8%93%9D%E9%87%91%E9%BB%84)国际政要前来背书，这其中包括[美国相关官员](https://www.scmp.com/news/china/diplomacy/article/3160999/us-applies-china-18-officials-attend-winter-olympics-after-joe)和[俄罗斯总统普京](https://www.foxnews.com/world/putin-to-hold-summit-with-xi-at-start-of-olympics-in-beijing)。但与此同时，北京奥组委杨舒自信地宣布：“[任何指控北京人权等与奥运无关的行为都会受到具体处罚，并取消运动员参赛资格](https://www.bbc.com/japanese/60063866)。”这个声明本身违反了奥林匹克精神，不允许任何冬奥运参与者和官员，包括记者指控中共一再否认的“屠杀穆斯林，包括维吾尔族等少数民族”。
 
-奥克兰小学校长协会主席Stephen Lethbridge表示各个学校会偏向于对每个学生的疫苗接种情况进行记录和监督。
+尽管美国领衔发起“[外交抵制](https://www.bbc.com/news/world-us-canada-59556613)”，但仍派往大规模美国运动员前往参加。不过，美国致力于体育报道的 [ESPN](https://thehill.com/homenews/media/590712-espn-announce-it-wont-send-reporters-to-beijing-olympics-due-to-covid-19) 宣布，由于对 COVID-19 大流行相关的限制，它将不会向北京冬奥会派遣新闻工作者。
 
-“我认为最终每个学校会保留一个非常准确的疫苗接种情况的注册。因此我们会向每个学生的家庭以及家人提出问题，当然他们有权力不披露这些信息”他表示。
+2022年1月21日
 
-在周六（1月15号）新西兰群众自发聚集在一起举行了抗议活动反对政府给孩子们接种COVID-19疫苗。
-
-今天，警察逮捕了Destiny教堂的领导人Brain Tamaki，被捕的理由是他和这次抗议组织人有来往和联系。自由和权力联合委员会声称Brain违反了他的保释条件。
-
-“人们认为我一而再再而三的违反了我的保释条件，我已经反复强调了我没有违法”Mr Tamaki说到。
-
-“我想对那些同意和鼓励把我关进监狱的人说，你们并不理解为什么要抗议，我从开始就没有违反任何法律”。
-
-一大群Mr Tamaki的支持者聚集在Mt Eden监狱前，他们试图将Mr Tamaki送入该监狱的警车的通道堵住。这群人表演了Haka（新西兰特有的文化）以表达他们对Destiny教堂领导人Mr Tamaki的被捕的不满。自由和权力联合委员会拍摄了这场对抗并且将其放到了他们的脸书上。今天早上，该组织一直都在播放这次的抗议活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-53.png)脸书截图：Brain Tamaki的支持者自发组成路障，堵在将他送往Mt Eden的监狱的通道上，并表演Haka舞。
- 
-“不管你是否喜欢Brain Tamaki，不管你认为他是一个好的或者不好的领导者，不可否认，他是那个独立承担的人”。今天下午，一位女士在自由和权力联合委员会的脸书更新上写道。
-
-“不管Mr Tamaki在法庭上会发生什么，总有一天同样的状况也会发生在你，和你的自由权力上，如果你想大声说出你的想法，不管法庭对他的判决是什么，这个案子都会成为先例。所以你们需要到这里来，你需要加入我们的抗议活动，我们恳求你们”！她继续写道。
-
-“尽你最大的能力去找到真实的信息，而不是政府和各大主流媒体”。
-
-参考链接：https://gnews.org/1869762/
-
-审核校对：sherryok (水云间)
-上传排版：F
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

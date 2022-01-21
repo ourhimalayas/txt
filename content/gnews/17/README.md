@@ -2,38 +2,36 @@
 ---
 
 
-## 在卡车司机的反击下，加拿大独裁者改变了对卡车司机打疫苗的强制要求
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1889182/)
+## 大直播后记：郭文贵拒绝加入共济会
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889280/)
 
-翻译/整理：阿娜
+整理：雅典娜速记组
+编辑：Rianna
 
-特鲁多和加拿大政府已经被加拿大的卡车司机们送上了一个巨大的礼物，他们拒绝配合该国可笑的疫苗强制任务。
-
-加拿大政府正在撤销他们对卡车司机的新冠疫苗授权。
-
-他们是否开始意识到，强制规定是行不通的？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/DXKC8QFQ1JT@HEED41.png)图片来源：雅典娜设计组（614）
 
 
+新中国联邦是什么？新中国联邦有一个信仰——干掉共产党，唯真不破；邪恶的力量也有一个信仰——统治全人类，让他们永远成为奴隶。
 
-这对热爱自由的加拿大人来说是一个非常好的消息。
+共产主义、达沃斯论坛、共济会、骷髅会，你都不用想那都是沼泽地的马仔，一根汗毛。为什么郭文贵先生最早成为共济会要招募的人？大众从来没搞明白这些事。以为郭文贵长的好看？他才不在乎你长得好不好看，据他所了解的沼泽地，很多人都是歪瓜裂枣，缺胳膊少腿的。
 
-对笔者来说，卡车运输业包括个人会反击这种荒谬的政府过度行为并不奇怪。
+他们很多都是近亲结婚（注：源自法老乱伦姻亲传统），中东有些国家他就是近亲结婚，姐妹表亲结婚。罗斯柴尔德家族近亲结婚导致了很多问题。这就不用说罗斯柴尔德的家族史，其中代表之一，从战争的借款者高利贷者，变成了当地的财富统治者，他只是之一。
 
-加拿大政府最后决定，不值得冒着整个卡车运输业关闭的风险来强迫接种。
+我们让全人类都要有自己的尊严地活着，让人们要相信真的有上天，谁也不能代替上天，我们是有主人的。我们不仅要明白地球、银河系之间和太阳系爆发到底是怎样的，为什么我们的一个精子、卵子能承载着上百亿、千亿的信息。
 
-显然，加拿大渥太华仍将要求卡车司机接受免疫接种（90%的卡车司机已经接种），否则他们的卡车将被拒绝运行。目前加拿大仍然禁止未接种疫苗的美国卡车司机。
+世界就两个主义：一个叫人类，让人民有尊严，安全地活着，不当奴隶；另一个，奴隶主。
 
-我猜他们在冰冷的北方不需要食物。
+这个邪恶的沼泽地在哪里？ 沼泽地你绝对看不见，但是又是你绝对要面对的。达沃斯共产党就是绝对沼泽地。招募郭文贵干嘛？是扶持他成为在中国代表他们来统治中国未来的人民，成为他们地主收租的奴隶。没想到郭文贵先生不为招募，反而要干掉他们，这一切缘由就这么简单。
 
-周围的人都需要从这些卡车司机和像西南航空公司的飞行员（的做法）得到一些启示。那就是如果每个人，甚至大多数人，都站出来，政府就不能强迫任何人遵守这些强制的规定。不管是打过疫苗的还是没有打过疫苗的。
+资料来源：郭先生GTV和盖特直播视频。
 
-很高兴看到劳动者赢得了一场胜利。
+发布：  tianzhihuan
 
-消息来源：[https://notthebee.com/article/victory-for-the-canadian-working-class-canada-reverses-course-on-vaccine-mandate-for-truckers-after-pushback-from-drivers](https://notthebee.com/article/victory-for-the-canadian-working-class-canada-reverses-course-on-vaccine-mandate-for-truckers-after-pushback-from-drivers)
-
-* * *
-
-原作者: Harris Rigby
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

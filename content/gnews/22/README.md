@@ -2,49 +2,34 @@
 ---
 
 
-## 尽管CDC主任接受了媒体培训课程——民主党人现要更换她
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1889151/)
+## 大直播后记：喜币将摧毁达沃斯论坛
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889248/)
 
-编译： Jenny Ball
+整理：雅典娜速记组
+编辑：Rianna
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1663.png)图片来源:thegatewaypundit.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/DXKC8QFQ1JT@HEED41.png)图片来源：雅典娜设计组
 
-尽管CDC中心主任瓦伦斯基参加了媒体培训课程，以帮助她传达信息，但更换她的压力越来越大。
 
-**（点评：撒谎也需要训练班。）**
+我们拥有人类上最牛叉的数字货币——喜币，今天已达41块多，喜币是唯一在人类上未来全球可以流通的，是全世界政府法律遵守的数字货币。共产党把持数字货币就是你的未来，已经完全封锁。什么是数字货币，就不受政府敲诈的、自由流通的、保密的、谁也拿不走的、新的钱，比黄金，比你的纸币还重要。
 
-拜登挑选的疾控中心主任已经无数次把她自己陷入困境。仅在过去的几周里，她就遭遇了翻车般的事故。12 月 29 日，她承认 CDC 的指导方针是基于他们认为人们可以容忍的，而不是合理的基础。纵观自 COVID 首次出现以来CDC的行动，CDC的方针似乎的确如此发表的。
+如果这个权利共产党给拿走了，叫数字人民币，数字话叫绝对中心化，就没有政府的币，他要绝对政府化，那我们民众是死路一条。我们给了大家喜币，全人类都要，不光是中国人民要买，全人类都要买一定会的，还要全球的流通。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1665.png)图片来源:thegatewaypundit.com
+这次达沃斯论坛说什么吗？郭文贵直播透露，今天可以说达沃斯论坛私下讨论最多，其中之一包括新中国联邦，是否会被很多国家突然给接受，成为代表中国人民的政府，和喜币是否会在全世界全面流通。他说如果喜币流通，腐败金融大鳄就控制不住了，这将成为所谓的他们叫“未来100年金融计划”。看看达沃斯论坛——就是把数字货币化的权利操控在达沃斯手里。
 
-CDC中心主任瓦伦斯基说，根据机构“认为人们能够容忍”的程度（视频），更新了 Covid 指导方针。
+现在习近平害怕，你以为光习近平害怕？你以为光这些达沃斯论道全地球上这个几百个富豪害怕？恋童癖害怕？喜币就像在黑暗中的一盏明灯，一灯能除千年暗啊！一个黑暗都能把1000年的黑暗给除掉，咱就是那个黑暗中的灯——叫喜币。Himalaya Coin —— HCoin to the Moon!这歌对他们来讲，就像敲响了丧钟一样，这帮邪恶腐败变态的精英睡不着觉，我们的这个设计，一智能灭万年愚。
 
-周三，CDC 中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）表示，该机构更新的 Covid 指南是基于人们所能容忍的[尽可能多的暴政]。CDC 突然更新了其 Covid 指南，并考虑了长时间隔离和强制隔离对社会的经济影响。
+喜马拉雅联邦，没有联邦，喜币就没那么厉害，喜币没联邦也没那么厉害。New Federal State——新中国联邦和喜币放在一起，就是灭掉了万年的愚蠢。
 
-1 月 9 日，瓦伦斯基驳斥了奥巴马任命的最高法院法官索托马约尔的言论，法官声称，目前有 100,000 名儿童住院，其中许多人使用呼吸机。这句话又一次证明瓦伦斯基主任所说的话。
+资料来源：郭先生GTV和盖特直播视频。
 
-然而，瓦伦斯基面临着不讲真话，并继续让 COVID 危机存在下去的压力，因此她不会回答迄今为止报告的 COVID 死亡中有多少是由 COVID 疫苗引起的问题，而是要撒谎不是由 COVID 疫苗引起的。这是自 COVID 开始以来最大的错误信息领域之一，她无法澄清这一点。
+发布：  tianzhihuan
 
-1 月 10 日，瓦伦斯基确实站出来分享说，大多数 COVID 死亡与患有多种合并症的人有关，但对于民主党来说，这似乎已经太过分了。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-周一，众议员罗·卡纳(Ro Khanna) 出现在 Fox News 上被问及他上周发送的一条推文，他在推文中说，四面楚歌的 CDC 主任瓦伦斯基博士应该被阿什·贾(Ashish Jha) 博士取代。
-
-自去年 1 月上任以来，瓦伦斯基的任期一直很艰难，CDC 多次因在 Covid 指导上的信息混杂而受到抨击。本月早些时候，据报道，**瓦伦斯基一直在参加媒体培训课程**。
-
-卡纳没有提到瓦伦斯基的名字，她建议由布朗大学公共卫生学院院长贾哈取代她，他在大流行期间一直是 CNN的常客。“让他负责CDC！”卡纳发的推文。
-
-民主党人一直把所有事情都弄错，很少解决问题的根本原因。他们不能，因为他们的谎言是问题的重要原因。例如，瓦伦斯基可能根本不需要关于如何与媒体交谈的课程，她挣扎的真正原因是，很难对寻求真相的问题做出虚假的回应。
-
-平心而论，推销疯狂的民主党 COVID-19 疫苗指令，确实是项艰巨的工作，他们所推出的疫苗无法奏效，而且对健康人来说是致命的。
-
-新闻来源:[thegatewaypundit.com] [Despite CDC Director Walensky Obtaining Media Training Lessons – Democrats Now Calling for Her Replacement](https://www.thegatewaypundit.com/2022/01/despite-cdc-director-walensky-obtaining-media-training-lessons-democrats-now-calling-replacement/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

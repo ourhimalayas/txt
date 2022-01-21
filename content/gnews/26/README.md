@@ -2,39 +2,26 @@
 ---
 
 
-## G保险 &#8211; 新中国联邦首创去中心化保险机制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1889127/)
+## 巴基斯坦总理伊姆兰·汗隐瞒虚报外国资金引批评
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1889215/)
 
-署名：纽约香草山 医疗部 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-郭文贵先生在1月19日的大直播中，首次提及新中国联邦首创的、去中心化的保险机制 – G保险。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1659.png)
-在当前世界的保险机制下，保险公司基于客户提交的保金，做出相应的运营和服务人。客户提出的理赔申请，需在保险公司审核通过的条件下，才能获得理赔。而一旦保险公司运营亏损，客户也将血本无归。
+#### 撰稿：彩虹
 
-相较于这种毫无保障的保险，新中国联邦将首创去中心化的保险机制。客户投保G保险，就相当于拥有了数字货币账户。G保险将在第三方监督下，依照约定的白皮书内容做出相应的理赔，为客户提供安全的理赔保障。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-11.jpg)图片来源：NDTV
+1月6日，《印度教徒报》发表文章，报道巴基斯坦总理伊姆兰·汗（Imran Khan）在执政的正义运动党（Tehreek-i-Insaf party）的国外资金中被查出存在“欺诈行为”。
 
-郭先生还在直播尾声宣布，在新中国联邦去中心化保险诞生之日，所有GTV投资者、G CLUB会员，将免费拥有一份同价值的去中心化G保险。
+自2019年11月，巴基斯坦前总理纳瓦兹·谢里夫（Nawaz Sharif）因腐败案在拉合尔的科特·拉赫帕特（Kot Lakhpat）监狱服刑七年。在拉合尔高等法院批准他保释四周后，他已经去了伦敦，一直居住在英国，进行自我流放，以便在国外接受治疗。
 
-参考链接：
+根据报道，巴基斯坦选举委员会的一份报告显示，正义运动党在2009-2010财年和2012-2013财年的四年时间里，少报了3.12亿巴基斯坦卢比（约177万美元）。按年份划分的细节显示，仅在2012-2013财政年度就少报了超过1.45亿巴基斯坦卢比（约82万美元）的金额。
 
-[https://gtv.org/video/id=61e8077a533c672fca7f4b09](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
+对此，前总理纳瓦兹·谢里夫称，这说明伊姆兰·汗是一位“腐败和不诚实的政治骗子”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2-1.jpg)
+重点值得关注的是，谢里夫先生说，选举委员会的报告现在只是揭露了伊姆兰·汗总理和正义运动党，但当他们不得不说出他们从谁那里拿了钱以及在哪里花了钱时，会发生什么？
 
-总编/ 编辑：雪梨
+**新闻来源**
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-
-
-
+[Pakistan’s PM has been exposed as ‘corrupt and dishonest con man’: Nawaz Sharif](https://www.thehindu.com/news/international/pakistans-pm-has-been-exposed-as-corrupt-and-dishonest-con-man-nawaz-sharif/article38152377.ece/amp/)
 
  
 
