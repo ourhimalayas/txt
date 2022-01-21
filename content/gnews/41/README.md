@@ -2,33 +2,45 @@
 ---
 
 
-## 有声|【信仰之声】彼此交往“对错”很重要吗？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1888809/)
+## Eglise医生新节目预告《避风港 HAVEN》
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1888990/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-前不久，一位刚结婚的年轻人愁眉苦脸的向他的长辈请教，说:“我和妻子吵架了，可是我觉得自己并没有错，不知道怎样才能和她和好哪？”
+撰稿：Yousei
+《避风港HAVEN》片头制作：外星人
+2022年1月21日，随着喜马拉雅纽约磐石农场 G-EDU，G- Music，Rock- Media的正式上线，Rock Media 继《鸡血王-喜币大作战》后，将再次推出一档精心打造的专栏节目《避风港 HAVEN》。
 
-这位长辈充满慈爱的说：“孩子啊，对错不重要，重要的是爱。你们彼此相爱，你就用爱的语言来和她沟通，你们一定会和好的。”这位年轻人马上跑回去见他的妻子，给她一个长长的拥抱，他们真的就和好了，甚至都忘记了起初吵架的原因。
+值此中共病毒疫苗漫天笼罩的至暗时刻，太多人失去了生命，人们无处藏身，找不到避风的港湾。当真相甚至在医生这个群体中也不再清晰可见时，人们的健康开始变得更加不堪一击，如何救治生命成了史上最大的挑战。
 
-亲爱的朋友们，这件事对我触动很大，我们战友、朋友、家人彼此交往，对错真的不重要。如果我们能放下自己的权利，用爱的语言彼此沟通，用爱心互相体谅彼此的软弱，就会有多少冲突可以被化解、多少仇恨和嫉妒会被释放啊！
+**她曾说：“爆料革命让我涅槃重生”。**
 
-“最重要的是彼此相爱，因为爱能遮掩许多的罪（彼得前书4:8）”。愿我们大家都以爱的语言和行动互相沟通，一起建立美好的新生活。
+**她曾说：“当她得知真相时，她最想用她的专业所学，通过各种途径帮助人们摆脱病毒的折磨。**
 
-文字版原文：[【信仰之声】彼此交往“对错”很重要吗？](https://gnews.org/zh-hans/1881583/)
+**她还说：“在过去几个月与病毒感染战友的答疑接触中，深深体会到人们不仅生理上需要治愈，同样重要的还有心理康复”。**
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+她就是美丽善良、睿智动人、正义勇敢的站友圣母院钟声-Eglise医生，如海边的一缕清风，可以抚平你所有的伤痛和不安，温暖而与众不同。她想帮你搭建那个最安全的“避风港”， 帮你一起找到重生 “秘方”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+《避风港 HAVEN》是一档定时有效，集医学科普，病案分析，治疗咨询和心理疏导的直播节目，通过Eglise医生的专业指导和建议，帮助受病痛折磨的人们得到医治，庇护和安宁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+栏目播出时间：每周二四六美东时间1月22日3:00 pm，北京时间1月22日4:00 am
+
+播放农场台：纽约磐石农场台GTV
+
+“一具良方
+
+一座安全的避风港
+
+一同治愈
+
+一起重生
+
+——我是Eglise医生，我在这里，欢迎来到《避风港 HAVEN》”。
+
+编辑/发布：Jenny
+
+欢迎加入磐石农场discord
+![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

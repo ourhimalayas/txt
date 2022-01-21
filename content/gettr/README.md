@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/21/2022 12:06 PM (UTC)`
+
+Mr. Steve K. Bannon: <br/>We have a huge problem with the US attorneys, in the Department of Justice, and throughout the legal system, since the justice system in the United States, including the law firms, has definitely been infiltrated by the Chinese Communist Party, the evil regime.<br/><br/>班农先生：美国检察官，司法部，甚至整个法律系统都出了很大的问题，因为美国的司法系统，包括律师事务所，肯定已经被中共这个邪恶的政权所渗透。
+![img](https://media.gettr.com/group18/origin/2022/01/21/12/7a67ca18-7776-4c39-f462-fb3590659c95/out.jpg)
+
+---
+
 `@miles 1/21/2022 2:50 AM (UTC)`
 
 Jin Canrong, a political scientist of the CCP, an expert on American issues, deputy dean of the School of International Relations of Renmin University of China, and the CCP's Internet celebrity "Politician Jin", brags that the PLA has no worthy opponent within a range of 1000 nautical miles and the CCP China can defeat the US without any doubt.<br/><br/>金灿荣，中共政治学家、美国问题专家，中国人民大学国际关系学院副院长，中共网红“金政委”吹嘘中共党卫军千里之内无对手，中国绝对打败美国。 
@@ -145,13 +152,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 澳大利亚救护人员爆料：才刚开始执行的5-11岁儿童疫苗注射已经导致3名儿童死亡<br/><br/>Australian paramedics workers reveal that vaccinations for children aged 5-11 years that have only just been implemented and have already caused three children’s deaths<br/>
 ![img](https://media.gettr.com/group5/getter/2022/01/20/13/0b213f75-e401-c36c-5fb4-b194dff9ecd5/out.jpg)
-
----
-
-`@miles 1/20/2022 11:31 AM (UTC)`
-
-1/19/2022 Miles Guo: The Davos Forum controls various domains in the world such as legislation, finance, media, culture, police, and military as well as the people’s thoughts and actions. Xi Jinping and the Party of Davos are in cahoots, giving prescriptions to the world while releasing the CCP virus at the same time!<br/><br/>1/19/2022 文贵直播：达沃斯论坛掌控了全球的立法、金融、媒体、文化、警察和军事等方面，控制着人们的思想与行为；习近平和达沃斯党沆瀣一气，一边给世界开药方，一边放毒！
-![img](https://media.gettr.com/group40/getter/2022/01/20/11/17886d57-08ed-ca53-e979-2f1e9455617e/out.jpg)
 
 ---
 
