@@ -2,34 +2,39 @@
 ---
 
 
-## 一印度母亲就其儿子死于阿斯利康疫苗向印度政府和比尔·盖茨提起诉讼
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1890372/)
+## 法国国民会议认定中共对新疆进行种族灭绝
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1890486/)
 
-翻译/撰稿：GeorgeC（乔治）
-校对：zzballack
-上传：追着曙光跑
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据《捍卫者》（The Defender）1月20日报道，一名23岁的印度男子卡德维（Shri Hitesh Kadve）在2021年9月29日接种了阿斯利康新冠疫苗后，由于疫苗副作用在当天不幸死亡。该男子的母亲吉兰·雅德芙（Kiran Yadav）在2021年年底代表她已故儿子向孟买高等法院提交了一份刑事诉讼请愿书（本文称为雅德夫诉马哈拉施特拉邦（Maharashtra）案，Yadav v. Maharashtra），指控比尔·盖茨（Bill Gates）、印度疫苗沙皇阿达尔·普纳瓦拉（Adar Poonawalla）、印度政府和公共卫生官员谋杀了他儿子。这类法律案件可能是全球首例。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-22-at-00.16.34.jpeg)图片来源：原新闻
-起诉书称，一些公务员的故意行为和渎职导致了卡德维的死亡。他们滥用职权制定政策帮助制药业的黑手党，从而应对大规模的疫苗谋杀负责。 起诉书进一步指出，由于虚假宣传说疫苗是完全安全的，以及马哈拉施特拉邦禁止未接种疫苗的人乘坐铁路或进入购物中心等场所，雅德芙的儿子 “不情愿地”被迫接种了疫苗。
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-起诉书称，马哈拉施特拉邦的限制措施违反了印度中央政府的政策，即不能在接种疫苗和未接种疫苗的人之间制造任何歧视。 该案件的其他被告包括马哈拉施特拉邦警察局的局长和总干事、印度中央调查局（Indian Central Bureau of Investigation）和印度卫生与家庭福利部（Indian Ministry of Health and Family Welfare）的首席秘书。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/M8X4Y3DI@6AH8F37EE.png)图片来源：雅典娜设计组
 
-于此同时，该起诉还对比尔·盖茨和印度血清研究所（Serum Institute of India）首席执行官阿达尔·普纳瓦拉提出了指控，后者是全球生产和销售的疫苗剂量最多的疫苗生产商。 血清研究所生产了Covishield疫苗，以及世界一半以上的用于婴儿的疫苗。
 
-雅达芙要求获得100亿卢比（1.34亿美元）的赔偿，包括10亿卢比（1340万美元）的临时赔偿。
+据德国之声中文网报道：北京冬奥会开幕在即，法国议会下院国民议会周四通过了一项议案，谴责中国针对维吾尔人的“种族灭绝”罪行。
 
-她同样要求对盖茨、波纳瓦拉和其他人进行测谎仪和麻醉分析测试。
+法国议会下院通过议案，认定中国政府针对维吾尔人采取的暴力为“种族灭绝”，呼吁法国政府“采取必要措施”制止这一行径。
 
-起诉书说，尽管印度政府承认Covishield疫苗可能是有害的，有副作用和致死可能，但还是要求给人们接种疫苗。
+这项议案由反对党社会党提出，但也得到了总统马克龙所在的执政党支持，以几乎全票的支持度得到通过。
 
-**评论 ：**正如文贵先生在2021年年底的大直播中一再强调的，各国政府的强制疫苗政策很快将陆续结束，同时全世界将掀起对疫苗灾难和病毒起源的严肃追责。发生在印度的这一起法律诉讼正是这一趋势的开始。我们必须看到这不是一个独立事件，而是全世界已经意识到并反思疫苗灾难的体现。
+法国国民议会成为继美国、英国、荷兰和加拿大等七国之后，第八个认为中国对维吾尔人犯下“种族灭绝罪”的议会。
 
-这起法律诉讼的主要被告人之一正是达沃斯（Davos）党的核心人物—比尔·盖茨，可见达沃斯党已从幕后走向台前，继邪恶的中共政权之后，日渐成为疫苗追责的焦点。文贵先生在2022年1月19日的大直播中，已经明确把矛头指向中共的背后力量达沃斯党。
+法国社会党主席福尔（Olivier Faure）在国民议会上讲述了再教育营情况，根据维吾尔幸存者的供述，他们这些被关押的人无法躺下休息，还有人遭受强奸、酷刑以及被迫移植器官。
 
-以文贵先生的一贯做法，开辟新战场意味着旧战场的胜局已定。一方面表明中共气数已尽，它的灭亡只是时间问题！另一方面，消灭世界的黑暗力量达沃斯党的时机已经成熟，决战的号角已经吹响！
+另一边，中国否认在新疆采取“种族灭绝”行动，并且指责那些提供有关证词的维吾尔人是在编造谎言。北京也多次拒绝联合国人权高专办赴新疆调查的请求。
 
-信息来源：[Bill Gates, Indian Government Targeted in Lawsuit Alleging AstraZeneca Vaccine Killed 23-Year-Old](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
+参考链接：[https://m.dw.com/zh/%E6%B3%95%E5%9B%BD%E5%9B%BD%E6%B0%91%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%9A%84%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D/a-60499647](https://m.dw.com/zh/%E6%B3%95%E5%9B%BD%E5%9B%BD%E6%B0%91%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%9A%84%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D/a-60499647)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
