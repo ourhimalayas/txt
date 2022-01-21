@@ -2,40 +2,27 @@
 ---
 
 
-## 新西兰表示即使奥米炕爆发也不会采用封锁措施
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888258/)
+## Tongtong想问七哥，说盘古里有什么？（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1888330/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-新西兰是目前少数几个避免了奥米炕变种爆发的国家之一，但总理杰辛达·阿德恩周四表示，爆发是不可避免的，一旦发现疫情，国家将加强限制，但不会实施以前使用的封锁措施。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3026021-1389678222.jpg)
+七哥回答：盘古里边有什么？啊，那个日本那个游戏叫什么，那个坏蛋叫啥啦，那 个好人叫什么，咱们中……一下想不起来了。就像那白武士黑武士一样。盘古里边, 有两样东西，孩子他们都会亲身去验证，而且他们还当孩子的（时候）就会验证的。 盘古，里边就有外星人。小王子你信不信，我跟你说这个。
 
-阿德恩表示，在社区中检测到奥米炕后 24到48小时内，该国防疫级别将提升至“红色”，此时仍允许企业继续营业，并允许人们继续在国内旅行，但将要求学生戴上口罩，并会限制100人以上的集体活动。
+你们不用信，走着看，盘古里边有外星人，裕达里也有外星人。你们就当我放屁, 你们用未来证实啊，叫Tongtong,叫飞飞的孩子看，盘古里就有外星人，裕达里也 有外星人，这是第一个。
 
-目前新西兰大部分地区处于“橙色”级别，这需要佩戴口罩并提供疫苗接种证明，但不限制人群聚集的规模。
+第二个，如果你认为这个世界上还有一个人类之外的力量的话，我们称为叫神秘的 力量，我们叫做多维的世界，盘古和裕达都有。我能活在今天就能证明这个。我能 让你告诉我2008年奥运会我是1999年买的地，唯一一个私人发展的地在盘古，在中轴线上，在多年之后，在2008年之后，我能梦见我过去的，我大伯给我托梦，说盘古龙头在中国的新中轴线上，对面是大剧院的叫龙蛋，正对着那个叫水蒸蛋，横跨白塔、中南海，中间还有还有几个很神秘的机构，我现在都不能告诉你们。后来盘古，成为中国建国以来搅动中国共产党官场的3000人，刘志华，把所谓的当时的奥运，同一个世界，同一个梦想，变成了绿色的奥运。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Tongtong想问七哥，说盘古里有什么？（一）-.jpg)
+*发布：*tianzhihuan
 
-反对党领袖克里斯托弗·卢克森（Christopher Luxon）表示，阿德恩对奥米炕的计划很糟糕，人们甚至不需要做核酸检测就能进入新西兰。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-新西兰大约有93%的12岁及以上人完全接种了疫苗，52% 的人接种了加强针。目前该国正在为 5 至 11 岁的儿童接种疫苗。
-
-参考链接：
-
-- [New Zealand says it won’t use lockdowns when omicron spreads](https://www.arabnews.com/node/2008221/world)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

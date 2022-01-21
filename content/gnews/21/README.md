@@ -2,19 +2,283 @@
 ---
 
 
-## 共产党在不同的地域实行不同的统治战略
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1888234/)
+## 每日快报：多国议会谴责中共在新疆对维吾尔人种族灭绝
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1888284/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+*作者：*映兰轩
 
-1月12日，郭文贵先生在GTV大直播指出：
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-中共在国内不同的地域有不同的管理战略:让东北人主要是种地,福建男人到海外挣钱,广东是用打工仔打工妹创外汇,让新疆西藏人种棉花、虫草,这些地区保持着低水平文化、没有免费教育……这就是分区分族治理的内涵。这次强制疫苗更是驭民成功的写照——让所有人听话、穷其所命无限忙碌,死不了也活不好。
+# ***今日摘要***
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+1. [美国反垄断法案扩大到包括TikTok和腾讯的微信](https://www.bloomberg.com/news/articles/2022-01-20/u-s-antitrust-bill-expanded-to-include-tiktok-tencent-s-wechat)
+2. [中国奥园表示不会支付债券，预示违约在即](https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228)
+3. [欧洲议会谴责香港自由恶化 呼吁制裁官员抵制冬奥](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E9%A6%99%E6%B8%AF%E8%87%AA%E7%94%B1%E6%81%B6%E5%8C%96-%E5%91%BC%E5%90%81%E5%88%B6%E8%A3%81%E5%AE%98%E5%91%98%E6%8A%B5%E5%88%B6%E5%86%AC%E5%A5%A5)
+4. [多个国家议会决议谴责中共在新疆对维吾尔人种族灭绝](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220120-%E5%A4%9A%E4%B8%AA%E5%9B%BD%E5%AE%B6%E8%AE%AE%E4%BC%9A%E5%86%B3%E8%AE%AE%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)
+5. [由于对COVID的担忧，ESPN将不为中国的冬奥会配备工作人员](https://www.espnfrontrow.com/2022/01/due-to-covid-concerns-espn-will-not-staff-winter-olympics-in-china/)
+
+
+# 重要事件
+
+- ** **[**01.20.Bloomberg ：**美国反垄断法案扩大到包括TikTok和腾讯的微信U.S. Antitrust Bill Expanded to Include TikTok, Tencent’s WeChat](https://www.bloomberg.com/news/articles/2022-01-20/u-s-antitrust-bill-expanded-to-include-tiktok-tencent-s-wechat)
+
+
+美国参议院委员会将于周四审议一项以技术为重点的反垄断法案，该法案将扩大到包括中国最大的两家社交媒体公司–这一变化旨在解决关于该立法将给予外国数字公司优势的批评。
+
+该法案的覆盖平台标准将被扩大，除了现有的5500亿美元的市值门槛外，还包括拥有10亿全球月度用户或5500亿美元净年销售额的公司。这些新标准将涵盖字节跳动有限公司的TikTok和腾讯控股有限公司的微信。
+
+- ** **[**01.20.Bnnbloomberg ：**中国奥园表示不会支付债券，预示违约在即China Aoyuan Says It Won’t Pay Bonds, Signals Default Imminent](https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228)
+
+
+中国奥园集团有限公司将不支付四笔美元债券，并表示这将引发所有其他海外债务的违约，成为最新一个屈服于行业流动性危机的中国开发商。
+
+该公司在周三晚些时候提交的一份香港证券交易所文件中说，该公司将不支付周四到期的美元债券或周日到期的单独债券。根据彭博社汇编的数据，这些票据的未偿本金总额为6.88亿美元。该建筑商还表示，它不会在另外两张票据的30天宽限期结束前支付利息。根据彭博社汇编的数据，这些期限周四结束，票据总额为1530万美元。
+
+奥园在声明中说：集团的所有其他离岸金融债务将发生（或已经发生）违约事件。它说它正在探索资产销售，并且正在与潜在的投资者和购买者进行初步讨论。
+
+在打击行业内过度借贷所引发的现金紧缩中，奥园成为最新一个背弃其债务义务的中国开发商。这场危机助长了房地产市场的低迷，促使政府回调一些措施，周三关于放宽预售房屋收益使用的消息刺激了债券和股市的反弹。奥园公司决定不偿还债务，”以保护其有限的现金资源，并在进行整体债务重组之前保持所有债权人之间的公平”，它说。
+
+奥园位于南方的广东省，该省也是行业巨头中国恒大集团和凯撒集团控股有限公司的所在地，这两家公司上个月被宣布违约。根据彭博汇编的数据，奥园有50亿美元的在岸和离岸债券未偿还。根据中国房地产信息公司的数据，它去年在中国开发商中按销售额排名第37位。
+
+- [** 01.20.Rfi ：**欧洲议会谴责香港自由恶化 呼吁制裁官员抵制冬奥](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E9%A6%99%E6%B8%AF%E8%87%AA%E7%94%B1%E6%81%B6%E5%8C%96-%E5%91%BC%E5%90%81%E5%88%B6%E8%A3%81%E5%AE%98%E5%91%98%E6%8A%B5%E5%88%B6%E5%86%AC%E5%A5%A5)
+
+
+欧洲议会周四通过香港基本自由遭受侵害相关决议，强烈谴责香港人权及言论自由恶化，呼吁制裁相关官员，并敦促欧盟抵制即将举行的北京2022年冬季奥运会。中央社报道，欧洲议会周四公布香港基本自由遭受侵害决议案表决结果，以585票赞成、46票反对和41票弃权通过。
+
+欧洲议会强烈谴责香港人权的恶化，包括集会和新闻自由遭到限制，欧洲议员们呼吁香港政府释放所有政治犯，并撤销对近年来被捕的所有和平抗议者的指控。此外，中国政府正试图将其威权制度对内对外合法化，决议敦促中国当局废除”国家安全法”。此外，欧洲议会议员除敦促欧盟对镇压香港人权的官员实施制裁，并要求在外交和政治上抵制北京2022年冬奥会。
+
+周四晚在进行表决前，多位欧洲议会议员发言力挺香港，斯洛伐克籍的欧洲议会议员莱克斯曼（Miriam Lexmann）表示，香港一系列令人担忧的情势，表明中共正在扼杀热爱自由的人民的生命和灵魂，欧洲议会这项决议表明了与香港人民站在一起的跨党派强烈共识。
+
+她呼吁欧盟对那些镇压人权者实施制裁，并审视欧盟-香港海关事务协定，支持联合国难民署对人权状况恶化问题召开特别会议，并重申必须将香港人权状况及中国对”中英联合声明”的承诺列入批准欧中投资协定的考量。她并敦促欧盟领导人拒绝出席北京冬奥会，声援遭中国经济胁迫的立陶宛，借此展现保护欧盟统一市场。
+
+欧洲议会对中关系代表团团长包瑞翰（Reinhard Bütikofer）表示，香港目前超过150名民主人士及记者有牢狱之灾，欧盟必须对中国所为采取行动，从中国经济胁迫立陶宛的案例中，已证明中国愿意打破一切国际规则来追求其霸权的帝国目标。立陶宛籍的欧洲议员奥弗斯（Petras Auštrevičius）则指出，中共的强大统治导致对反对者的政治迫害日益严重，民主结构系统性地瘫痪。欧盟必须立即采取坚定的行动，阻止中国对立陶宛和国际公司的持续胁迫政策。
+
+而欧盟执行委员凯瑞亚基德斯（Stella Kyriakides）发言时强调，2021年香港局势正在恶化，国家安全法被用来扼杀政治多元化以及人权和基本自由。中国声称香港发生的事情是内部事务，欧盟对此表达不同意，因欧盟与香港有很密切关係。凯瑞亚基德斯表示，当前在香港发生的事情显示中国违反其国际承诺，”中英联合声明”承诺维持”一国两制”。她最后重申欧盟将继续支持香港人民，但并未说明会采取什么措施。
+
+- ** **[**01.20.Rfi ：**多个国家议会决议谴责中共在新疆对维吾尔人种族灭绝](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220120-%E5%A4%9A%E4%B8%AA%E5%9B%BD%E5%AE%B6%E8%AE%AE%E4%BC%9A%E5%86%B3%E8%AE%AE%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)
+
+
+法国国民议会议员20日通过了一项不具约束力的决议，指出国民议会 “正式承认中华人民共和国当局对维吾尔人实施的暴力构成了反人类罪和种族灭绝罪”，并 “谴责 “这一行为。该议案也促请法国政府也谴责中国在新疆种族灭绝。据人权组织指责，中国将100多万穆斯林关在政治再教育集中营。法新社说，在发生了一系列归咎于伊斯兰教徒和分裂分子的恐怖袭击事件后，维吾尔族人尤其成为镇压目标。
+
+据法新社今天报道称，在法国国民议会之前，已经有几个西方国家的议员谴责中国对维吾尔人的 “种族灭绝”。但是北京表示，这些营地实际上是职业培训中心，旨在让他们远离激进主义。
+
+比利时国会议员首先于2021年6月15日在一个议会委员会就一项决议表决，警告中国的穆斯林维吾尔少数民族存在 “严重的种族灭绝风险”。7月8日，该议案在众议院全体会议上得到确认。
+
+英国议会下院于2021年4月22日通过了一项不具约束力的动议，将北京对新疆维吾尔族和其他少数民族的镇压谴责为 “种族灭绝”。
+
+2021年2月25日，荷兰国会议员在欧盟率先通过一项不具约束力的动议，承认 “中国正在发生针对维吾尔少数民族的种族灭绝”。
+
+加拿大国会议员于2021年2月22日通过一项不具约束力的动议，将中国对其维吾尔少数民族的镇压等同于 “种族灭绝”，并呼吁特鲁多的政府也做相同的谴责。
+
+2021年1月19日，在拜登入主白宫的前夕，即将离任的美国国务卿迈克-蓬佩奥说，美国认为中国正在对新疆地区的维吾尔族穆斯林 “实施种族灭绝”。”同一天，拜登政府未来的国务卿安东尼-布林肯在一次议会听证会上回答一位参议员，问他是否同意谈论 “种族灭绝”。拜登在2020年11月的选举前曾说过，根据他的竞选团队在8月发表的声明，对维吾尔这个穆斯林少数民族的镇压构成了 “中国专制政府实施的种族灭绝”。
+
+法新社说，此外，2020年12月17日，欧洲议会以压倒性多数通过了一项决议，谴责中国对维吾尔族、哈萨克族和吉尔吉斯族等少数民族的强迫劳动制度，承认他们是 “相当于反人类罪 “的人权侵犯行为的受害者。
+
+- [** 01.20.Espnfrontrow ：**由于对COVID的担忧，ESPN将不为中国的冬奥会配备工作人员Due to COVID Concerns, ESPN Will Not Staff Winter Olympics in China](https://www.espnfrontrow.com/2022/01/due-to-covid-concerns-espn-will-not-staff-winter-olympics-in-china/)
+
+
+由于对COVID-19和其他COVID相关限制的担忧，ESPN将不向中国冬奥会派遣任何新闻人员，而是集中精力以远程方式报道奥运会，并在下个月比赛开始前推出一项强有力的计划。
+
+“我们员工的安全对我们来说是最重要的，”ESPN执行副总裁、活动和工作室制作及执行编辑Norby Williamson说，”随着大流行病继续成为一个全球性的威胁，以及奥运会的COVID相关现场限制将使报道变得非常具有挑战性，我们认为让我们的员工留在家里是对我们最好的决定。”
+
+ESPN原计划向中国派出四名记者，在去年东京夏季奥运会上派出五名员工，但这些记者现在将加入一个更大的团队，专门远程报道奥运会。与夏季奥运会一样，组织者已经采取措施，为远程报道奥运会的媒体提供信息和在线采访。ESPN为电视和数字新闻平台指派了多名记者来做这项工作。
+
+就像夏季奥运会一样，ESPN.com有一个专门报道奥运会的栏目。我们计划在比赛前和比赛期间继续推出专门针对奥运会的多个专题。ESPN.com和ESPN应用程序还将有记分牌、奖牌计数和其他实时不断更新的统计数据。此外，”体育中心 “将在视频使用限制范围内报道比赛结果并介绍奥运会信息和特色。由于NBC环球公司是奥运会的美国版权持有者，ESPN将像过去的奥运会一样，在视频使用限制范围内运作，所有其他非NBCU的美国新闻机构也是如此。
+
+# 更多要闻链接
+
+1. [新的电子邮件揭露了Fauci在塑造具有高度影响力的论文中的作用，该论文确立了COVID “自然起源 “的说法。New Emails Expose Fauci’s Role In Shaping Highly Influential Paper That Established COVID “Natural Origin” Narrative](https://www.zerohedge.com/political/new-emails-expose-faucis-role-shaping-highly-influential-paper-established-covid-natural)
+2. [NBC决定不派播报团队到北京冬奥会现场改为在美国总部播报](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-nbc%E5%86%B3%E5%AE%9A%E4%B8%8D%E6%B4%BE%E6%92%AD%E6%8A%A5%E5%9B%A2%E9%98%9F%E5%88%B0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E7%8E%B0%E5%9C%BA%E6%94%B9%E4%B8%BA%E5%9C%A8%E7%BE%8E%E5%9B%BD%E6%80%BB%E9%83%A8%E6%92%AD%E6%8A%A5)
+3. [阿姆斯特丹大学终止中国资助](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E9%98%BF%E5%A7%86%E6%96%AF%E7%89%B9%E4%B8%B9%E5%A4%A7%E5%AD%A6%E7%BB%88%E6%AD%A2%E4%B8%AD%E5%9B%BD%E8%B5%84%E5%8A%A9)
+4. [布林肯：俄罗斯若入侵乌克兰必将遭到“迅速而巨大”的回应](https://www.voachinese.com/a/blinken-vows-swift-and-massive-response-should-russia-invade-kuraine-20220120/6405869.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+5. [中国的COVID清零政策让一些人问，在Omicron激增期间，冬奥会如何能继续进行？**China’s zero-COVID policy has some asking how Winter Games can go on during omicron surge**](https://www.usatoday.com/story/sports/columnist/nancy-armour/2022/01/20/beijing-olympics-covid-omicron-china/6591933001/?gnt-cfr=1)
+6. [奥运会前当地COVID病例增加，北京市提高了警惕性Beijing city raises vigilance as local COVID cases tick higher before Olympics](https://www.reuters.com/world/china/beijing-city-raises-vigilance-local-covid-cases-tick-higher-before-olympics-2022-01-20/)
+
+
+# 每日推特文摘
+
+
+
+继天津、深圳之后，吃了35天高价”英雄菜”的西安某小区也暴动了，起因是警察抓了拒绝高价菜的业主，激起民愤，小区内所有人一起高呼放人！ 很早以前就听说，当中国人吃不上饭的时候，就是他们醒悟的时候，果然如此
+
+
+
+
+
+> 继天津、深圳之后，吃了35天高价"英雄菜"的西安某小区也暴动了，起因是警察抓了拒绝高价菜的业主，激起民愤，小区内所有人一起高呼放人！
+> 很早以前就听说，当中国人吃不上饭的时候，就是他们醒悟的时候，果然如此[pic.twitter.com/3YjaO9rYh0](https://t.co/3YjaO9rYh0)
+> — 新闻/真话 (@TuCaoFakeNews) [January 20, 2022](https://twitter.com/TuCaoFakeNews/status/1484093315662639108?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+太棒啦！！！好消息还是很多的！！
+
+英国和苏格兰结束所有 Covid 限制
+
+德国和捷克取消强制接种疫苗
+
+美国20个州取消所有限制
+
+以色列宣布将废除新冠护照 多米诺骨牌正在一个个倒下！
+
+
+
+
+
+> 太棒啦！！！好消息还是很多的！！💪💪💪📢📢📢
+> ➡️英国和苏格兰结束所有 Covid 限制
+> ➡️德国和捷克取消强制接种疫苗
+> ➡️美国20个州取消所有限制
+> ➡️以色列宣布将废除新冠护照
+> 多米诺骨牌正在一个个倒下！
+> — 暗夜KIN (@KIN20220604) [January 21, 2022](https://twitter.com/KIN20220604/status/1484325281481433088?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共国河北邢台市信都区将军墓镇邮政储蓄，百姓想取钱，工作人员告诉银行没钱，太让人气愤了！中共金融崩盘，银行崩盘不久就会到来。共产党你完了。
+
+
+
+
+
+> 中共国河北邢台市信都区将军墓镇邮政储蓄，百姓想取钱，工作人员告诉银行没钱，太让人气愤了！中共金融崩盘，银行崩盘不久就会到来。共产党你完了。 [pic.twitter.com/CrEj9hvwZ1](https://t.co/CrEj9hvwZ1)
+> — 老皮匠Athena Farm (@Jzzrb123) [January 20, 2022](https://twitter.com/Jzzrb123/status/1484216693282979847?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+最新的公共卫生数据显示，新冠病毒疫苗增加了新冠病毒感染、住院和死亡的风险。 英国发布的最新公共卫生数据证实，与未接种疫苗的人口相比，双重接种疫苗的人口更有可能感染新冠病毒，更有可能因新冠病毒住院，并更有可能死于新冠病毒，尽管据称注射新冠病毒将住院和死亡风险降低了高达95%。
+
+
+
+
+
+> 最新的公共卫生数据显示，新冠病毒疫苗增加了新冠病毒感染、住院和死亡的风险。
+> 
+> 英国发布的最新公共卫生数据证实，与未接种疫苗的人口相比，双重接种疫苗的人口更有可能感染新冠病毒，更有可能因新冠病毒住院，并更有可能死于新冠病毒，尽管据称注射新冠病毒将住院和死亡风险降低了高达95%。 [pic.twitter.com/AlfbWdHhJt](https://t.co/AlfbWdHhJt)
+> — 婦女之友-電-8 舊號已封 (@Dcc6S) [January 20, 2022](https://twitter.com/Dcc6S/status/1484054303405150208?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+新鲜出炉！！西班牙官方数据！ 大家注意黄色部分：重症监护室中69.5%的病人是已接种疫苗的，30.5%是未接种疫苗。 死亡案例中：76.5%为已接种疫苗的！！
+
+
+
+
+
+> 📢📢新鲜出炉！！西班牙官方数据！
+> 大家注意黄色部分：重症监护室中69.5%的病人是已接种疫苗的，30.5%是未接种疫苗。
+> 死亡案例中：76.5%为已接种疫苗的！！ [pic.twitter.com/erHAmUdRKR](https://t.co/erHAmUdRKR)
+> — 貓本小哥【雅典娜】 (@xuelian1990) [January 20, 2022](https://twitter.com/xuelian1990/status/1484041696635932672?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+世卫组织首席科学家。”……现在没有证据表明健康的儿童或健康的青少年需要接种加强针疫苗。完全没有证据。”WHO Chief Scientist: “…there’s no evidence right now that healthy children, or healthy adolescents, need boosters. No evidence at all.”
+
+
+
+
+
+> 世卫组织首席科学家。"……现在没有证据表明健康的儿童或健康的青少年需要接种加强针疫苗。完全没有证据。"WHO Chief Scientist: "…there’s no evidence right now that healthy children, or healthy adolescents, need boosters. No evidence at all.” [pic.twitter.com/bYmYm6Esqc](https://t.co/bYmYm6Esqc)
+> — 女版零零七（Covid Vaccine=Murder） (@nvban007) [January 20, 2022](https://twitter.com/nvban007/status/1484173393729835017?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这是墨西哥政府免费为其公民提供的伊维菌素套件。
+
+
+
+
+
+> 這是墨西哥政府免費為其公民提供的伊維菌素套件。 [pic.twitter.com/cl6GCyQBYL](https://t.co/cl6GCyQBYL)
+> — 婦女之友-電-8 舊號已封 (@Dcc6S) [January 19, 2022](https://twitter.com/Dcc6S/status/1483717779270344713?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+文贵先生强调： 伊维菌素和青蒿素是救命药
+![Double exclamation mark](https://abs-0.twimg.com/emoji/v2/svg/203c.svg "Double exclamation mark")
+澳大利亚：口服治疗中共病毒药物即将登场 治疗用品管理局（TGA）已批准临时使用两种口服药治疗新冠感染，是由辉瑞澳大利亚公司生产的PAXLOVID和由默克夏普和多美澳大利亚公司生产的LAGEVRIO，将在症状开始后5天内服用。
+
+
+
+
+
+> 文貴先生強調：
+> 伊维菌素和青蒿素是救命藥‼️
+> 
+> 澳大利亚：口服治疗中共病毒药物即将登场
+> 治疗用品管理局（TGA）已批准临时使用两种口服药治疗新冠感染，是由辉瑞澳大利亚公司生产的PAXLOVID和由默克夏普和多美澳大利亚公司生产的LAGEVRIO，将在症状开始后5天内服用。 [pic.twitter.com/wB3Vyi4FYD](https://t.co/wB3Vyi4FYD)
+> — 澳喜要闻（新号） (@ahnewspace) [January 20, 2022](https://twitter.com/ahnewspace/status/1484005613495787521?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共伪中央宣传部本周向中共国官媒发出通知，要求编辑记者深入基层一线，充分报道各地经济社会发展成就，民众安居乐业的美好景象，为共匪二十大营造良好氛围。 评：下啥基层，直接在高层编就得了。
+
+
+
+
+
+> 中共伪中央宣传部本周向中共国官媒发出通知，要求编辑记者深入基层一线，充分报道各地经济社会发展成就，民众安居乐业的美好景象，为共匪二十大营造良好氛围。
+> 评：下啥基层，直接在高层编就得了。[https://t.co/EjHNLDu92I](https://t.co/EjHNLDu92I) [pic.twitter.com/L6QNqtYVsh](https://t.co/L6QNqtYVsh)
+> — 淘喵信使 (@Baoliaogeming64) [January 21, 2022](https://twitter.com/Baoliaogeming64/status/1484318555445153795?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+厉害了!共匪狗官!
+
+
+
+
+
+> 厉害了!共匪狗官!😡😡👇👇 [pic.twitter.com/b26orn6e4O](https://t.co/b26orn6e4O)
+> — FKJ (@2020zaijianle) [January 20, 2022](https://twitter.com/2020zaijianle/status/1484186848226381824?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：映兰轩
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

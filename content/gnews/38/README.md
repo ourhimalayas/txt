@@ -2,38 +2,28 @@
 ---
 
 
-## 美国多数孔子学院遭关闭 数量骤降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887687/)
+## 中日财经爆┃美联储发表官方数字美元白皮书
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887569/)
 
-作者：香草山教育部 – Casey（兰兰）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2020年8月13日，美国国务院宣布，要求孔子学院注册为外交使团。时任美国国务卿蓬佩奥先生在公开声明中表示：孔子学院美国中心不仅在全球推动中共国政府的政令宣导，更对美国校园与各级学校产生了有害的影响。2020年9月1日，蓬佩奥表示，他认为美国大学校园内的孔子学院有望在2020年底前全部关闭。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-31.jpg)[图片来源](https://www.reuters.com/business/finance/boston-feds-first-look-digital-us-dollar-nearly-done-official-says-2021-09-29/)
+美国联邦储备委员会(FED/美联储)在周四(1月20日）发布的一份讨论文件中称，创建官方数字美元可能会加快支付速度，并为家庭提供一个安全的选择，但这也会带来金融稳定风险和隐私问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15-1.png)
+该报告没有提出政策建议，也没有就美联储在是否推出央行数字货币(CBDC)方面的立场发出明确信号。此外，美联储表示，“如果没有行政部门和国会的明确支持，最理想的方式是通过一项具体的授权法律”，它将不会创建央行数字货币。
 
-截至2022年1月6日，美国有94所孔子学院已经关闭或正在关闭，尚存27所，这27所还包括了四所计划关闭的孔子学院，另包括一个在大学进行审查时“暂停”的孔子学院。
+美联储表示，挑战包括维持金融稳定，确保数字美元将是“现有支付手段的补充”。在启动CBDC之前，美联储还需要解决一些重大的政策问题，比如确保CBDC不会侵犯美国人的隐私，以及政府保持其“打击非法金融的能力”。
 
-自2004年以来，中共在世界各地的高校校园内资助孔子学院，提供师资、教材和运营资金。在美国国务院正式宣布孔子学院为外交使团之前，中共政府将之前由国家汉办负责的孔子学院进行了重组，由“中国国际中文教育基金会”负责，该基金会于2020年6月成立。同时原来负责孔子学院的“国家汉办”更名为“教育部中外语言交流合作中心”。
+至关重要的一点是，如果CBDC通过当前的金融体系“中介”运作，将“最适合”美国的需求，这意味着个人无需在美联储直接拥有CBDC账户。这一做法得到了一些民主党人的支持，他们表示，数字货币可以帮助无银行账户的人。
 
-参考链接：
+不过，美联储官员说，他们不排除任何可能性。美联储将在120天内通过在线表格收集对该文件的意见。
 
-- [How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
-- [摘译：认定孔子学院美国中心为外国使团](https://china.usembassy-china.org.cn/zh/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [“CONFUCIUS INSTITUTE U.S. CENTER” DESIGNATION AS A FOREIGN MISSION](https://china.usembassy-china.org.cn/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
-- [蓬佩奥: 孔子学院年底可能全关闭](https://www.dw.com/zh/%E8%93%AC%E4%BD%A9%E5%A5%A5-%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2%E5%B9%B4%E5%BA%95%E5%8F%AF%E8%83%BD%E5%85%A8%E5%85%B3%E9%97%AD/a-54788997)
+消息来源:
 
+[焦点：美联储发表官方数字美元白皮书 陈述利弊但未提出政策建议](https://cn.reuters.com/article/us-fed-digital-dollar-whitepaper-0121-idCNKBS2JV04B?il=0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

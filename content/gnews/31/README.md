@@ -2,38 +2,40 @@
 ---
 
 
-## 重磅报告发现军事文件与FAUCI的病毒功能增强证词相矛盾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1888053/)
+## 诺奖得主称，未接种疫苗的人将拯救人类
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888011/)
 
-评论：*若要人不知， 除非己莫为。这句有着中国智慧的语言描述所谓的现任美国国家过敏和传染病研究所所长、白宫冠状病毒工作组成员及总统首席医疗顾问福奇博士的所作所为再恰当不过了。福奇曾表示新冠病毒是他“最可怕的恶梦”，但怎么感觉福奇似乎更象是美国人民的恶梦呢！？*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1642.png)据《Hannity.com》工作人员发布，2022年1月11日报道
-图片源自hannity.com
-美国国立卫生研究院主任Anthony Fauci博士可能会遇到一些麻烦。
+作者：纽约磐石农场 – 在远方 、首尔天池农场 – 追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月15日，诺贝尔奖得主，法国著名病毒学家吕克.蒙塔尼耶，在意大利当地的反中共病毒疫苗集会中公开表示，未接种中共病毒疫苗的人，将挽救人类并结束这场病毒危机。
 
-根据Project Veritas发现的文件，健康联盟（EcoHealth Alliance）是Fauci’s NIH的一个已知合作者，在2018年3月与国防高级研究计划局（DARPA）接触，希望资助Project Defuse —— 一项对蝙蝠的冠状病毒进行功能增强研究的倡议。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-25.png)
 
-据Project Veritas称，由于该提案违反了功能研究的暂停规定，因此被DARPA拒绝。但是，据报道，Fauci仍在推动。
+蒙塔尼耶于2008年获得诺贝尔生理学、医学奖，是世界艾滋病研究与防治基金会主席，也艾滋病病毒的发现者之一。
 
-“根据这些文件，NIAID在Fauci博士的指导下，在中国的武汉病毒学实验室和美国其他几个地方进行了研究。” The Post Millennial 报道。
+蒙塔尼耶此前曾表示，大规模接种疫苗是不可接受的错误，疫苗根本没有保护作用，而且一些科学家和患者也发现，接种疫苗的人更有可能感染病毒。
 
-Paul Gosar（R-AZ）议员在Twitter上分享了这一信息。
+参考链接：
 
-“Project Veritas 刚刚发布的报告令人瞠目结舌。之前从未见过 #ProjectVeritas获得的关于功能增强研究的军事文件与Fauci博士在宣誓后的证词直接矛盾。#ExposeFauci”
+- [诺贝尔生理学或医学奖得主参加反疫苗集会，竟称“未接种疫苗的人将拯救人类”](https://www.sohu.com/a/517434726_115479)
+- [诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://j.eastday.com/p/1642484331039074)
+- [诺奖得主公开反对新冠疫苗：未接种疫苗的人将拯救人类](https://3g.163.com/dy/article/GU0HF8M9053469KO.html?spss=adap_pc)
+- [https://k.sina.cn/article\_7517400647\_1c0126e4705902g9ez.html?from=news](https://k.sina.cn/article_7517400647_1c0126e4705902g9ez.html?from=news)
 
-* * *
 
-文章来源: [https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/](https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – MIlojai
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+总编：Irene木木
+编辑：飞虹
+校正/发稿：海阔天空1
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

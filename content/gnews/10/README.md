@@ -2,42 +2,19 @@
 ---
 
 
-## 港共政府以执行“病毒清零”计划为名，强制处理上千只仓鼠
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888316/)
+## 美国CIA同欧洲积极处理哈萨克的事情
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1888430/)
 
-作者：银河系农场—骄子
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+1月9日，郭文贵先生在GTV大直播指出：
 
+哈萨克斯坦在中南亚具有重要的战略意义，2022年哈萨克斯坦抗议，纳扎尔巴耶夫下台，对中共如断臂，对俄如截断下肢，这些事都是美欧乐意促成的。俄面对乌克兰时，若失去纳扎尔巴耶夫团队，俄将经历比苏联解体还惨的十年；对中共的影响，不是打击一带一路那么简单，而是会将这种革命浪潮传到新疆、西藏。
 
-
-![Pedestrians pass a pet shop where an employee and a customer later tested positive for Covid-19 after handling hamsters.](https://i.guim.co.uk/img/media/1c424442ffadee658b1ec449767458653ae96b1d/0_289_5736_3442/master/5736.jpg?width=465&amp;quality=45&amp;auto=format&amp;fit=max&amp;dpr=2&amp;s=172ca7e0c35335492541c4f8db5794ae)（图片来自《卫报》）
-
-近日，香港一家宠物店的11只动物被认为携带新冠病毒，港共当局命令相关人士交出数千只仓鼠进行处置。目前，宠物店已暂停所有啮齿动物的仓鼠销售和进口。
-
-据当地媒体报道，估计即将被处置的仓鼠约有2000只。宠物所有者自12月22日以来购买的任何仓鼠，必须上报并进行测试。 事实上，没有任何研究表明家畜可以把新冠病毒传给人类，全球科学界也对新冠病毒通过国际邮件传播持怀疑态度。但港共政府一意孤行，为了实施所谓新冠病毒清零计划，这些动物不能幸免。
-
-
-
-参考链接：
-
-[https://www.theguardian.com/world/2022/jan/18/hong-kong-cull-thousands-hamsters-covid-pet-shop-virus-animals](https://www.theguardian.com/world/2022/jan/18/hong-kong-cull-thousands-hamsters-covid-pet-shop-virus-animals)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-6.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
