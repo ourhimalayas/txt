@@ -2,73 +2,283 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在42.300 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1888242/)
+## 每日快报：多国议会谴责中共在新疆对维吾尔人种族灭绝
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1888284/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+*作者：*映兰轩
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
+# ***今日摘要***
 
-
-## 每日一问
-
-
-
-
-
-冬天已经过去，春天还会远吗？
+1. [美国反垄断法案扩大到包括TikTok和腾讯的微信](https://www.bloomberg.com/news/articles/2022-01-20/u-s-antitrust-bill-expanded-to-include-tiktok-tencent-s-wechat)
+2. [中国奥园表示不会支付债券，预示违约在即](https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228)
+3. [欧洲议会谴责香港自由恶化 呼吁制裁官员抵制冬奥](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E9%A6%99%E6%B8%AF%E8%87%AA%E7%94%B1%E6%81%B6%E5%8C%96-%E5%91%BC%E5%90%81%E5%88%B6%E8%A3%81%E5%AE%98%E5%91%98%E6%8A%B5%E5%88%B6%E5%86%AC%E5%A5%A5)
+4. [多个国家议会决议谴责中共在新疆对维吾尔人种族灭绝](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220120-%E5%A4%9A%E4%B8%AA%E5%9B%BD%E5%AE%B6%E8%AE%AE%E4%BC%9A%E5%86%B3%E8%AE%AE%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)
+5. [由于对COVID的担忧，ESPN将不为中国的冬奥会配备工作人员](https://www.espnfrontrow.com/2022/01/due-to-covid-concerns-espn-will-not-staff-winter-olympics-in-china/)
 
 
+# 重要事件
+
+- ** **[**01.20.Bloomberg ：**美国反垄断法案扩大到包括TikTok和腾讯的微信U.S. Antitrust Bill Expanded to Include TikTok, Tencent’s WeChat](https://www.bloomberg.com/news/articles/2022-01-20/u-s-antitrust-bill-expanded-to-include-tiktok-tencent-s-wechat)
+
+
+美国参议院委员会将于周四审议一项以技术为重点的反垄断法案，该法案将扩大到包括中国最大的两家社交媒体公司–这一变化旨在解决关于该立法将给予外国数字公司优势的批评。
+
+该法案的覆盖平台标准将被扩大，除了现有的5500亿美元的市值门槛外，还包括拥有10亿全球月度用户或5500亿美元净年销售额的公司。这些新标准将涵盖字节跳动有限公司的TikTok和腾讯控股有限公司的微信。
+
+- ** **[**01.20.Bnnbloomberg ：**中国奥园表示不会支付债券，预示违约在即China Aoyuan Says It Won’t Pay Bonds, Signals Default Imminent](https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228)
+
+
+中国奥园集团有限公司将不支付四笔美元债券，并表示这将引发所有其他海外债务的违约，成为最新一个屈服于行业流动性危机的中国开发商。
+
+该公司在周三晚些时候提交的一份香港证券交易所文件中说，该公司将不支付周四到期的美元债券或周日到期的单独债券。根据彭博社汇编的数据，这些票据的未偿本金总额为6.88亿美元。该建筑商还表示，它不会在另外两张票据的30天宽限期结束前支付利息。根据彭博社汇编的数据，这些期限周四结束，票据总额为1530万美元。
+
+奥园在声明中说：集团的所有其他离岸金融债务将发生（或已经发生）违约事件。它说它正在探索资产销售，并且正在与潜在的投资者和购买者进行初步讨论。
+
+在打击行业内过度借贷所引发的现金紧缩中，奥园成为最新一个背弃其债务义务的中国开发商。这场危机助长了房地产市场的低迷，促使政府回调一些措施，周三关于放宽预售房屋收益使用的消息刺激了债券和股市的反弹。奥园公司决定不偿还债务，”以保护其有限的现金资源，并在进行整体债务重组之前保持所有债权人之间的公平”，它说。
+
+奥园位于南方的广东省，该省也是行业巨头中国恒大集团和凯撒集团控股有限公司的所在地，这两家公司上个月被宣布违约。根据彭博汇编的数据，奥园有50亿美元的在岸和离岸债券未偿还。根据中国房地产信息公司的数据，它去年在中国开发商中按销售额排名第37位。
+
+- [** 01.20.Rfi ：**欧洲议会谴责香港自由恶化 呼吁制裁官员抵制冬奥](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E8%B0%B4%E8%B4%A3%E9%A6%99%E6%B8%AF%E8%87%AA%E7%94%B1%E6%81%B6%E5%8C%96-%E5%91%BC%E5%90%81%E5%88%B6%E8%A3%81%E5%AE%98%E5%91%98%E6%8A%B5%E5%88%B6%E5%86%AC%E5%A5%A5)
+
+
+欧洲议会周四通过香港基本自由遭受侵害相关决议，强烈谴责香港人权及言论自由恶化，呼吁制裁相关官员，并敦促欧盟抵制即将举行的北京2022年冬季奥运会。中央社报道，欧洲议会周四公布香港基本自由遭受侵害决议案表决结果，以585票赞成、46票反对和41票弃权通过。
+
+欧洲议会强烈谴责香港人权的恶化，包括集会和新闻自由遭到限制，欧洲议员们呼吁香港政府释放所有政治犯，并撤销对近年来被捕的所有和平抗议者的指控。此外，中国政府正试图将其威权制度对内对外合法化，决议敦促中国当局废除”国家安全法”。此外，欧洲议会议员除敦促欧盟对镇压香港人权的官员实施制裁，并要求在外交和政治上抵制北京2022年冬奥会。
+
+周四晚在进行表决前，多位欧洲议会议员发言力挺香港，斯洛伐克籍的欧洲议会议员莱克斯曼（Miriam Lexmann）表示，香港一系列令人担忧的情势，表明中共正在扼杀热爱自由的人民的生命和灵魂，欧洲议会这项决议表明了与香港人民站在一起的跨党派强烈共识。
+
+她呼吁欧盟对那些镇压人权者实施制裁，并审视欧盟-香港海关事务协定，支持联合国难民署对人权状况恶化问题召开特别会议，并重申必须将香港人权状况及中国对”中英联合声明”的承诺列入批准欧中投资协定的考量。她并敦促欧盟领导人拒绝出席北京冬奥会，声援遭中国经济胁迫的立陶宛，借此展现保护欧盟统一市场。
+
+欧洲议会对中关系代表团团长包瑞翰（Reinhard Bütikofer）表示，香港目前超过150名民主人士及记者有牢狱之灾，欧盟必须对中国所为采取行动，从中国经济胁迫立陶宛的案例中，已证明中国愿意打破一切国际规则来追求其霸权的帝国目标。立陶宛籍的欧洲议员奥弗斯（Petras Auštrevičius）则指出，中共的强大统治导致对反对者的政治迫害日益严重，民主结构系统性地瘫痪。欧盟必须立即采取坚定的行动，阻止中国对立陶宛和国际公司的持续胁迫政策。
+
+而欧盟执行委员凯瑞亚基德斯（Stella Kyriakides）发言时强调，2021年香港局势正在恶化，国家安全法被用来扼杀政治多元化以及人权和基本自由。中国声称香港发生的事情是内部事务，欧盟对此表达不同意，因欧盟与香港有很密切关係。凯瑞亚基德斯表示，当前在香港发生的事情显示中国违反其国际承诺，”中英联合声明”承诺维持”一国两制”。她最后重申欧盟将继续支持香港人民，但并未说明会采取什么措施。
+
+- ** **[**01.20.Rfi ：**多个国家议会决议谴责中共在新疆对维吾尔人种族灭绝](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220120-%E5%A4%9A%E4%B8%AA%E5%9B%BD%E5%AE%B6%E8%AE%AE%E4%BC%9A%E5%86%B3%E8%AE%AE%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)
+
+
+法国国民议会议员20日通过了一项不具约束力的决议，指出国民议会 “正式承认中华人民共和国当局对维吾尔人实施的暴力构成了反人类罪和种族灭绝罪”，并 “谴责 “这一行为。该议案也促请法国政府也谴责中国在新疆种族灭绝。据人权组织指责，中国将100多万穆斯林关在政治再教育集中营。法新社说，在发生了一系列归咎于伊斯兰教徒和分裂分子的恐怖袭击事件后，维吾尔族人尤其成为镇压目标。
+
+据法新社今天报道称，在法国国民议会之前，已经有几个西方国家的议员谴责中国对维吾尔人的 “种族灭绝”。但是北京表示，这些营地实际上是职业培训中心，旨在让他们远离激进主义。
+
+比利时国会议员首先于2021年6月15日在一个议会委员会就一项决议表决，警告中国的穆斯林维吾尔少数民族存在 “严重的种族灭绝风险”。7月8日，该议案在众议院全体会议上得到确认。
+
+英国议会下院于2021年4月22日通过了一项不具约束力的动议，将北京对新疆维吾尔族和其他少数民族的镇压谴责为 “种族灭绝”。
+
+2021年2月25日，荷兰国会议员在欧盟率先通过一项不具约束力的动议，承认 “中国正在发生针对维吾尔少数民族的种族灭绝”。
+
+加拿大国会议员于2021年2月22日通过一项不具约束力的动议，将中国对其维吾尔少数民族的镇压等同于 “种族灭绝”，并呼吁特鲁多的政府也做相同的谴责。
+
+2021年1月19日，在拜登入主白宫的前夕，即将离任的美国国务卿迈克-蓬佩奥说，美国认为中国正在对新疆地区的维吾尔族穆斯林 “实施种族灭绝”。”同一天，拜登政府未来的国务卿安东尼-布林肯在一次议会听证会上回答一位参议员，问他是否同意谈论 “种族灭绝”。拜登在2020年11月的选举前曾说过，根据他的竞选团队在8月发表的声明，对维吾尔这个穆斯林少数民族的镇压构成了 “中国专制政府实施的种族灭绝”。
+
+法新社说，此外，2020年12月17日，欧洲议会以压倒性多数通过了一项决议，谴责中国对维吾尔族、哈萨克族和吉尔吉斯族等少数民族的强迫劳动制度，承认他们是 “相当于反人类罪 “的人权侵犯行为的受害者。
+
+- [** 01.20.Espnfrontrow ：**由于对COVID的担忧，ESPN将不为中国的冬奥会配备工作人员Due to COVID Concerns, ESPN Will Not Staff Winter Olympics in China](https://www.espnfrontrow.com/2022/01/due-to-covid-concerns-espn-will-not-staff-winter-olympics-in-china/)
+
+
+由于对COVID-19和其他COVID相关限制的担忧，ESPN将不向中国冬奥会派遣任何新闻人员，而是集中精力以远程方式报道奥运会，并在下个月比赛开始前推出一项强有力的计划。
+
+“我们员工的安全对我们来说是最重要的，”ESPN执行副总裁、活动和工作室制作及执行编辑Norby Williamson说，”随着大流行病继续成为一个全球性的威胁，以及奥运会的COVID相关现场限制将使报道变得非常具有挑战性，我们认为让我们的员工留在家里是对我们最好的决定。”
+
+ESPN原计划向中国派出四名记者，在去年东京夏季奥运会上派出五名员工，但这些记者现在将加入一个更大的团队，专门远程报道奥运会。与夏季奥运会一样，组织者已经采取措施，为远程报道奥运会的媒体提供信息和在线采访。ESPN为电视和数字新闻平台指派了多名记者来做这项工作。
+
+就像夏季奥运会一样，ESPN.com有一个专门报道奥运会的栏目。我们计划在比赛前和比赛期间继续推出专门针对奥运会的多个专题。ESPN.com和ESPN应用程序还将有记分牌、奖牌计数和其他实时不断更新的统计数据。此外，”体育中心 “将在视频使用限制范围内报道比赛结果并介绍奥运会信息和特色。由于NBC环球公司是奥运会的美国版权持有者，ESPN将像过去的奥运会一样，在视频使用限制范围内运作，所有其他非NBCU的美国新闻机构也是如此。
+
+# 更多要闻链接
+
+1. [新的电子邮件揭露了Fauci在塑造具有高度影响力的论文中的作用，该论文确立了COVID “自然起源 “的说法。New Emails Expose Fauci’s Role In Shaping Highly Influential Paper That Established COVID “Natural Origin” Narrative](https://www.zerohedge.com/political/new-emails-expose-faucis-role-shaping-highly-influential-paper-established-covid-natural)
+2. [NBC决定不派播报团队到北京冬奥会现场改为在美国总部播报](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-nbc%E5%86%B3%E5%AE%9A%E4%B8%8D%E6%B4%BE%E6%92%AD%E6%8A%A5%E5%9B%A2%E9%98%9F%E5%88%B0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E7%8E%B0%E5%9C%BA%E6%94%B9%E4%B8%BA%E5%9C%A8%E7%BE%8E%E5%9B%BD%E6%80%BB%E9%83%A8%E6%92%AD%E6%8A%A5)
+3. [阿姆斯特丹大学终止中国资助](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E9%98%BF%E5%A7%86%E6%96%AF%E7%89%B9%E4%B8%B9%E5%A4%A7%E5%AD%A6%E7%BB%88%E6%AD%A2%E4%B8%AD%E5%9B%BD%E8%B5%84%E5%8A%A9)
+4. [布林肯：俄罗斯若入侵乌克兰必将遭到“迅速而巨大”的回应](https://www.voachinese.com/a/blinken-vows-swift-and-massive-response-should-russia-invade-kuraine-20220120/6405869.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+5. [中国的COVID清零政策让一些人问，在Omicron激增期间，冬奥会如何能继续进行？**China’s zero-COVID policy has some asking how Winter Games can go on during omicron surge**](https://www.usatoday.com/story/sports/columnist/nancy-armour/2022/01/20/beijing-olympics-covid-omicron-china/6591933001/?gnt-cfr=1)
+6. [奥运会前当地COVID病例增加，北京市提高了警惕性Beijing city raises vigilance as local COVID cases tick higher before Olympics](https://www.reuters.com/world/china/beijing-city-raises-vigilance-local-covid-cases-tick-higher-before-olympics-2022-01-20/)
+
+
+# 每日推特文摘
 
 
 
-## 喜马拉雅交易所要闻
+继天津、深圳之后，吃了35天高价”英雄菜”的西安某小区也暴动了，起因是警察抓了拒绝高价菜的业主，激起民愤，小区内所有人一起高呼放人！ 很早以前就听说，当中国人吃不上饭的时候，就是他们醒悟的时候，果然如此
 
 
 
 
 
-- 喜交所网站行情显示，喜币（HCN）价格目前在42.300 HDO，24H最高价格为42.400 HDO，24H最低价格为41.616 HDO，24H成交量约为38021.512 HCN。
+> 继天津、深圳之后，吃了35天高价"英雄菜"的西安某小区也暴动了，起因是警察抓了拒绝高价菜的业主，激起民愤，小区内所有人一起高呼放人！
+> 很早以前就听说，当中国人吃不上饭的时候，就是他们醒悟的时候，果然如此[pic.twitter.com/3YjaO9rYh0](https://t.co/3YjaO9rYh0)
+> — 新闻/真话 (@TuCaoFakeNews) [January 20, 2022](https://twitter.com/TuCaoFakeNews/status/1484093315662639108?ref_src=twsrc%5Etfw)
 
 
 
 
 
 
-## 新闻动态
+
+太棒啦！！！好消息还是很多的！！
+
+英国和苏格兰结束所有 Covid 限制
+
+德国和捷克取消强制接种疫苗
+
+美国20个州取消所有限制
+
+以色列宣布将废除新冠护照 多米诺骨牌正在一个个倒下！
 
 
 
 
 
-1. 今日恐慌与贪婪指数为19（昨日为24），恐慌程度较昨日有所上升，等级仍为极度恐慌。注：恐慌指数阈值为0-100，包含指标：波动性（25%）＋市场交易量（25%）＋社交媒体热度（15%）＋市场调查（15%）＋比特币在整个市场中的比例（10%）＋谷歌热词分析（10%）。
-2. Coindesk报道，美东时间周四下午，美联储发布央行数字货币白皮书《货币与支付：数字化转型时代的美元》。美联储在新闻稿中指出，作为一份讨论文件，它“审查了潜在的美国中央银行数字货币（CBDC）的利弊”。美联储认为，当前的金融体系可能会通过创建中央银行数字货币（CBDC）得到支持，但这种货币只能在当前私人银行网络中运作，而不是美联储直接向消费者发行的CBDC。美联储在白皮书中没有承诺创建数字美元，但解释了其在处理该问题时需关注的部分，并就隐私、金融稳定性以及如何使用数字美元等问题征求公众意见（为期120天）。白皮书提到，在没有得到行政部门和国会明确支持的情况下，不打算继续发行央行数字货币，最理想的形式是有具体的授权法律；央行数字货币将补充而非取代现有数字支付方式。此外，网络安全、预防金融犯罪和满足未来需求也是美联储发行CBDC之前必须考虑的所有因素。
-3. Bitcoin.com报道，自从加密经济市场低迷以来，比特币在所有现有代币中的市场主导地位已从37%区域缓慢回升至38%。与此同时，以太坊的市场主导地位已经减弱，自1月6日以来已从18.6%下滑至17.7%。
-4. 1月21日消息，据最新数据显示，USDC以太坊链上发行量已突破410亿美元。当前USDC总发行量约为463.3亿美元，除了以太坊之外，Solana链上USDC发行量排名第二，约为4,136,608,844.5美元。
-5. 1月20日消息，Messari发布Uniswap季度报告，报告显示，Uniswap在2021年Q4成交额达到2383.5亿美元，较Q3增长逾61%。第四季度Uniswap LP收入4.986亿美元，环比上涨54%。LP费用正逐渐向更低费用层级滑落，但交易量的激增更大程度上抵消了每笔交易收费降低的影响。此外，在Q4引入0.01%的LP费用级别使Uniswap在面对低费率DEX时竞争力增强。数据显示，USDC/USDT的交易活动有所增加，然而由于费率的减少，LP费用大致保持不变。
-6. Coindesk报道，去中心化交易所Soma.Finance完成650万美元种子轮融资，Animoca Brands领投，Kenetic Capital、Griffin Gaming Partners、GSR、Token Bay Capital、Mind Fund、Unknown VC、Fomocraft、BCW Group、TaiPingShan Capital、Gate Ventures和0x Ventures等参投。Soma.Finance是一家用于交易数字资产和合规数字证券的去中心化交易所。Soma旨在成为面向机构和散户投资者的完全合规的DEX和产品套件，其服务包括内置KYC和AML功能。该公司是总部位于中国香港的DeFi平台Mantra DAO和总部位于美国纽约的Tritaurian Holdings的合资企业，后者拥有金融业监管局（FINRA）许可的经纪交易商子公司。
-7. BitcoinMagazine报道，比特币和闪电基础设施公司Voltage完成600万美元种子轮融资，早期风险投资公司Trammell Venture Partners领投，Craft Ventures、GV、Stillmark、Cavalry Asset Management、Strategic Cyber Ventures、Fulgur Ventures、Tenzing.vc参投。Trammell Venture Partners董事总经理Christopher Calicott将加入Voltage董事会。Voltage为有兴趣在云上运行比特币或闪电节点的用户提供托管服务。该服务还包括一个仪表板，用户可以通过该仪表板进行交互。Voltage表示，此轮融资将支持其增长计划并帮助其扩大团队，进一步扩展和改进其企业级比特币和闪电基础设施解决方案。
-8. TheBlock报道，元宇宙初创公司Cyber已在2021年11月完成670万美元融资，Variant领投，三箭资本（Three Arrows Capital）、TCG Capital Management以及数名天使投资人和NFT收藏家参投，包括Cozomode Medici、艺术家Joey Colombo、Product Hunt创始人Ryan Hoover、Adobe首席产品官Scott Belsky、Not Boring创始人Packy McCormick、Art Blocks创始人Erick Calderon、匿名组合6529、DeeZe和Gmoney。Cyber于2021年2月推出，旨在为NFT建立虚拟展厅。该公司刚刚推出一项新功能，通过一个门户网站将收藏家的虚拟画廊连接在一起。新资金将主要用于扩大团队，同时推进产品开发。Cyber创始人Rayan Boutaleb表示，Cyber的使命是“让人们部署身临其境的空间，无论大小”。
-9. Coindesk报道，美股经纪商Robinhood周四宣布，从候补名单中挑选出1000名客户，推出加密钱包的Beta版本。Robinhood将在3月前将测试范围扩大到10000名客户，然后进一步扩大到Wen Wallets等待名单的其他人员。该公司表示，它将为客户添加一个功能，用于计算发送和接收加密货币的美元金额。Beta测试人员的每日提现总额度为2999美元，每天最多进行10笔交易，并且需要启用双因素身份验证。测试人员将帮助Robinhood评估钱包的功能，并向公司提供反馈。
-10. Blockworks报道，Stash已经开始向用户提供加密货币敞口，在其管理的投资组合中纳入了Grayscale Investments的两个信托基金。该公司将开始将部分用户的Smart Portfolio账户分配给GBTC和ETHE。GBTC和ETHE管理资产分别约为270亿美元和100亿美元。Stash的投资策略总监Elizabeth Marchietti说，根据投资组合的风险状况，对GBTC和ETHE的配置在4%到6%之间，在两个信托基金之间平均分配。她补充说，与直接投资加密资产相比，在现有证券投资组合中投资信托基金在操作上更容易。据悉，Stash成立于2015年，这家投资和银行平台拥有600万客户，管理资产约为30亿美元。
-11. 1月20日消息，FTX官方宣布推出Visa加密借记卡。持卡人可以在全球数百万商户中使用自己的加密货币进行支付，而且是零费用。FTX不会收取任何行政费用或交易处理费用，FTX账户中持有的加密货币将在POS交易时自动转换成对应的法定货币。
-12. 去中心化聚合器1inch Network宣布，1inch聚合协议和1inch限价订单协议已部署在Avalanche和Gnosis Chain。1inch Network表示，其目标是进一步扩展其在DeFi行业中的能力，为用户提供更多低成本、高速交易的选择。截至2022年1月中旬，Gnosis Chain的TVL为2.082亿美元。
-13. U.Today报道，Cardano母公司IOHK宣布了一个重大的规模更新，这意味着Plutus的脚本存储单位将增加到1250万。最初的变更将在1月25日（更新提案程序启动5天后）生效。改进Plutus的内存/CPU参数仍然是Cardano计划在2022年扩展的11种方式之一。其他路径包括区块大小增加、Pipelining、Input Endorsers、节点增强、磁盘存储、侧链，Layer 2 Hydra扩容解决方案、卸载计算和Mithril解决方案。
-14. Coindesk报道，Agoric周四宣布，在Coin List平台在不到两个小时的时间内售出了超过5000万美元的原生BLD代币。公开销售于2021年12月29日进行，私人销售增加了约3200万美元，该销售在Agoric股权证明基础层于2021年11月上线时宣布。结合较早的种子轮融资，该项目迄今已筹集超过8500万美元。Agoric是一家致力于创建基于JavaScript的智能合约的初创公司。
-15. TheBlock报道，机构加密托管平台Fireblocks增加了对Solana原生代币SOL的支持。此举意味着Fireblocks的800多家机构客户现在将能够向该公司发送、接收、保管或抵押SOL。Fireblocks首席执行官Michael Shaulov说：“Fireblocks的客户非常期待对原生Solana代币的支持，在宣布支持SOL的第一个周末，我们看到将近25%的Solana交易量发生在Fireblocks平台上”。Fireblocks目前支持超过1000个代币和30个区块链，该公司还计划在今年第一季度末之前支持基于Solana的其他代币，这种支持将帮助Fireblocks的客户访问去中心化金融。
-16. Coindesk报道，美国金融业监管局（FINRA）首席执行官Robert Cook表示，随着加密货币采用的增长，该自律机构将在今年研究对加密货币法规的潜在变化。Cook表示，美国金融监管局并不打算对现行规则进行全面修改，而是计划发布“早期阶段、概念发布类型的通知”，特别是在广告和披露方面。Cook称不打算监管或从根本上改变这里的监管结构，因为这超出其职责范围。但是他表示担心，监督各种类型加密资产的监管机构的范围可能会在投资者中造成混乱。“我们的成员公司如今参与了一些数字资产的销售，有些是证券，有些不是证券。而当客户与我们的成员之一对接，然后购买加密货币或购买数字资产时，现在有适用的披露规则。我们想借此机会谈谈这些（规则），并看看是否有其他应该适用的强化要求，这样当人们购买不受监管的产品时……他们可能不知道他们正在从经纪交易商制度转向不同的制度，因为他们与同一个经纪交易商打交道。”美国金融监管局计划在下个月内公布其今年的检查重点。
-17. Coindesk报道，投资银行杰富瑞（Jefferies）分析师发布的一份报告表示，数字世界和物理世界的融合正在形成，NFT允许品牌将其范围扩大到“数字化的体验搭配”。该银行将其对NFT市值的预测上调至2022年超过350亿美元和2025年超过800亿美元。分析师称，公司和名人正在The Sandbox和Decentraland购买虚拟“土地”，使他们能够进行数字营销、提高知名度并扩展其品牌。该银行认为，数字资产是一种新兴技术，客户可以选择游戏、玩具以及社交媒体公司建立投资敞口，例如消费板块的孩之宝、美泰、Funko和Game Stop。对于元宇宙概念板块，杰富瑞建议关注的公司包括Meta、Snap、Activision Blizzard、Electronic Arts、Take-Two Interactive Software、Warner Music Group、Universal Music Group和Roblox。
+> 太棒啦！！！好消息还是很多的！！💪💪💪📢📢📢
+> ➡️英国和苏格兰结束所有 Covid 限制
+> ➡️德国和捷克取消强制接种疫苗
+> ➡️美国20个州取消所有限制
+> ➡️以色列宣布将废除新冠护照
+> 多米诺骨牌正在一个个倒下！
+> — 暗夜KIN (@KIN20220604) [January 21, 2022](https://twitter.com/KIN20220604/status/1484325281481433088?ref_src=twsrc%5Etfw)
 
 
 
 
 
-*编辑：aQ
-发布：文顾*
 
 
- 
+中共国河北邢台市信都区将军墓镇邮政储蓄，百姓想取钱，工作人员告诉银行没钱，太让人气愤了！中共金融崩盘，银行崩盘不久就会到来。共产党你完了。
+
+
+
+
+
+> 中共国河北邢台市信都区将军墓镇邮政储蓄，百姓想取钱，工作人员告诉银行没钱，太让人气愤了！中共金融崩盘，银行崩盘不久就会到来。共产党你完了。 [pic.twitter.com/CrEj9hvwZ1](https://t.co/CrEj9hvwZ1)
+> — 老皮匠Athena Farm (@Jzzrb123) [January 20, 2022](https://twitter.com/Jzzrb123/status/1484216693282979847?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+最新的公共卫生数据显示，新冠病毒疫苗增加了新冠病毒感染、住院和死亡的风险。 英国发布的最新公共卫生数据证实，与未接种疫苗的人口相比，双重接种疫苗的人口更有可能感染新冠病毒，更有可能因新冠病毒住院，并更有可能死于新冠病毒，尽管据称注射新冠病毒将住院和死亡风险降低了高达95%。
+
+
+
+
+
+> 最新的公共卫生数据显示，新冠病毒疫苗增加了新冠病毒感染、住院和死亡的风险。
+> 
+> 英国发布的最新公共卫生数据证实，与未接种疫苗的人口相比，双重接种疫苗的人口更有可能感染新冠病毒，更有可能因新冠病毒住院，并更有可能死于新冠病毒，尽管据称注射新冠病毒将住院和死亡风险降低了高达95%。 [pic.twitter.com/AlfbWdHhJt](https://t.co/AlfbWdHhJt)
+> — 婦女之友-電-8 舊號已封 (@Dcc6S) [January 20, 2022](https://twitter.com/Dcc6S/status/1484054303405150208?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+新鲜出炉！！西班牙官方数据！ 大家注意黄色部分：重症监护室中69.5%的病人是已接种疫苗的，30.5%是未接种疫苗。 死亡案例中：76.5%为已接种疫苗的！！
+
+
+
+
+
+> 📢📢新鲜出炉！！西班牙官方数据！
+> 大家注意黄色部分：重症监护室中69.5%的病人是已接种疫苗的，30.5%是未接种疫苗。
+> 死亡案例中：76.5%为已接种疫苗的！！ [pic.twitter.com/erHAmUdRKR](https://t.co/erHAmUdRKR)
+> — 貓本小哥【雅典娜】 (@xuelian1990) [January 20, 2022](https://twitter.com/xuelian1990/status/1484041696635932672?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+世卫组织首席科学家。”……现在没有证据表明健康的儿童或健康的青少年需要接种加强针疫苗。完全没有证据。”WHO Chief Scientist: “…there’s no evidence right now that healthy children, or healthy adolescents, need boosters. No evidence at all.”
+
+
+
+
+
+> 世卫组织首席科学家。"……现在没有证据表明健康的儿童或健康的青少年需要接种加强针疫苗。完全没有证据。"WHO Chief Scientist: "…there’s no evidence right now that healthy children, or healthy adolescents, need boosters. No evidence at all.” [pic.twitter.com/bYmYm6Esqc](https://t.co/bYmYm6Esqc)
+> — 女版零零七（Covid Vaccine=Murder） (@nvban007) [January 20, 2022](https://twitter.com/nvban007/status/1484173393729835017?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这是墨西哥政府免费为其公民提供的伊维菌素套件。
+
+
+
+
+
+> 這是墨西哥政府免費為其公民提供的伊維菌素套件。 [pic.twitter.com/cl6GCyQBYL](https://t.co/cl6GCyQBYL)
+> — 婦女之友-電-8 舊號已封 (@Dcc6S) [January 19, 2022](https://twitter.com/Dcc6S/status/1483717779270344713?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+文贵先生强调： 伊维菌素和青蒿素是救命药
+![Double exclamation mark](https://abs-0.twimg.com/emoji/v2/svg/203c.svg "Double exclamation mark")
+澳大利亚：口服治疗中共病毒药物即将登场 治疗用品管理局（TGA）已批准临时使用两种口服药治疗新冠感染，是由辉瑞澳大利亚公司生产的PAXLOVID和由默克夏普和多美澳大利亚公司生产的LAGEVRIO，将在症状开始后5天内服用。
+
+
+
+
+
+> 文貴先生強調：
+> 伊维菌素和青蒿素是救命藥‼️
+> 
+> 澳大利亚：口服治疗中共病毒药物即将登场
+> 治疗用品管理局（TGA）已批准临时使用两种口服药治疗新冠感染，是由辉瑞澳大利亚公司生产的PAXLOVID和由默克夏普和多美澳大利亚公司生产的LAGEVRIO，将在症状开始后5天内服用。 [pic.twitter.com/wB3Vyi4FYD](https://t.co/wB3Vyi4FYD)
+> — 澳喜要闻（新号） (@ahnewspace) [January 20, 2022](https://twitter.com/ahnewspace/status/1484005613495787521?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共伪中央宣传部本周向中共国官媒发出通知，要求编辑记者深入基层一线，充分报道各地经济社会发展成就，民众安居乐业的美好景象，为共匪二十大营造良好氛围。 评：下啥基层，直接在高层编就得了。
+
+
+
+
+
+> 中共伪中央宣传部本周向中共国官媒发出通知，要求编辑记者深入基层一线，充分报道各地经济社会发展成就，民众安居乐业的美好景象，为共匪二十大营造良好氛围。
+> 评：下啥基层，直接在高层编就得了。[https://t.co/EjHNLDu92I](https://t.co/EjHNLDu92I) [pic.twitter.com/L6QNqtYVsh](https://t.co/L6QNqtYVsh)
+> — 淘喵信使 (@Baoliaogeming64) [January 21, 2022](https://twitter.com/Baoliaogeming64/status/1484318555445153795?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+厉害了!共匪狗官!
+
+
+
+
+
+> 厉害了!共匪狗官!😡😡👇👇 [pic.twitter.com/b26orn6e4O](https://t.co/b26orn6e4O)
+> — FKJ (@2020zaijianle) [January 20, 2022](https://twitter.com/2020zaijianle/status/1484186848226381824?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：映兰轩
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

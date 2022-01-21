@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月18日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1887864/)
+## 有声|德国要求中共解除对立陶宛及欧盟的胁迫措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1887865/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0118text-SC.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月14日，德国外交部发言人柏格在记者会中表示，德国与欧盟支持立陶宛，并要求中共解除对立陶宛和欧盟内部市场所有正式和非正式的胁迫措施。
 
+立陶宛因为决定设立台湾代表处，被中共无理干涉。 中共利用不合理手段，在海关故意阻扰立陶宛产品及含有立陶宛零件的欧盟产品进行通关程序，致使这些欧盟出口到中共的货物大量卡关堆积，造成欧盟厂商的困扰。
 
-文字版原文：[GTV新闻访谈简报|2022年1月18日晚](https://gnews.org/zh-hans/1878054/)
+欧盟执行委员会已经在检视中共的干预措施是否符合世界贸易组织（WTO）的规范，欧盟主管贸易的执行委员杜姆布罗夫斯基表示，欧盟正在搜集证据，准备对于中共违反世贸组织规范的行为，向世贸组织提出控诉。
+
+文字版原文：[德国要求中共解除对立陶宛及欧盟的胁迫措施](https://gnews.org/zh-hans/1875786/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

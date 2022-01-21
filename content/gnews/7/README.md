@@ -2,8 +2,8 @@
 ---
 
 
-## 黑暗势力说打新冠疫苗不会有事，这是一派胡言
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1888899/)
+## 注射疫苗后，免疫力将土崩瓦解
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1888998/)
 
 台灣寶島農場
 

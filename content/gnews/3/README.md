@@ -2,22 +2,41 @@
 ---
 
 
-## 班农与七哥在船上的生活
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1888974/)
+## 七哥为灭共而生，自幼铁肩担道义！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1889049/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班农与七哥在船上的生活-scaled.jpg)
-我们在船上谈家庭、谈生活、谈宗教、谈历史、谈西方、谈法制，班农先生没有一天一刻不关心中国老百姓。每天我们都去小船上抽根雪茄，听中国的音乐，每次都是很感动的聊天，然后共产党就造谣说我们俩同性恋，CCP太Low了，共产党永远以为人与人之间都是裤腰带以下那点破关系。班农先生是一种精神上有真正的宗教，来自爱尔兰，他是天主教徒，每天24小时，除了一点儿的睡觉，都是在工作。我从来没有看到他休息过。最让我感动的事情，我们三年前法治基金捐款的时候，班农先生第一个建议，绝对不要老百姓的钱，1分钱都不能要。CCP只要老百姓的钱，共产党真不知道人性有多高贵。
+作者：纽约香草山 信息部 6zero4
 
-*发布：开智则立*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
+七哥在2022年1月17日的大直播中谈到自己1989年前的照片，都因支持“六四学生运动”而被中共警察洗劫一空，最近意外获得3张儿时的照片。透过这三张照片，可清晰地看到七哥脸上洋溢着某种不屈和不屑，这是七哥一生风风雨雨、风生水起的无尽源泉和动力！
+
+七哥出生于极度偏僻、贫困和落后的吉林省磐石县赵家沟村，自幼就是义薄云天、神通广大的孩子王，带领周边村庄饥寒交迫的小伙伴们自力更生，上山安营扎寨找食材生火炖吃的。即使在今天的赵家沟，所有人都比那时还穷，却并不认为过得特别差，反而觉得共产党让有地种并免缴公粮挺好的。
+
+七哥悲惨的出身和成长环境充分说明了中共的无耻、冷血、残暴和邪恶。从不害羞也从不害怕的七哥自幼对父老乡亲的疾苦看在眼里、急在心头，从小就没有对手的七哥诚实守信、匡扶正义、除霸安良，学习和思考能力超强的七哥不断从身边悲惨的事例中找到了原因和答案，早早觉醒的七哥或许在幼年时期已隐约萌生了灭共的念头！
+
+参考链接：
+
+[https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
 
  
 

@@ -2,46 +2,32 @@
 ---
 
 
-## 泰国将于2月恢复对已接种疫苗入境者的隔离豁免
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888917/)
+## 班农先生谈背叛
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1889012/)
 
-作者：纽约香草山教育部—Naughty(文行)
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生谈背叛_01.jpg)
+新中国，新中国人形成的这个进程中，任何进程都是这样，必然会经历背叛。就连基督来到世上，也是如此。所以一定会有这种人，他们会背叛，今后还会不断出现，也不可能会止息。
 
+我知道重要的是：历史会审判我们。这就是为什么我非常愿意把我的生命投入这个使命，对每一天致力所作的一切，我觉得特别的舒服。因为我们是在天使的这一边，我们支持伟大的中国人的自由抗争，最终也是为整个人类的自由。
 
+有人会背叛，有人会害怕、会软弱，有人会离开。我自己也在受威胁，每隔一星期他们就把我抓起来，想送我进监狱。其实我也可能就会离开或者开派对之类。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-27.jpg)
+但为了我的使命，责任，义务，当我死的时候，为了我从上帝、 从我的父母亲、从我的家庭、从我的国家、从我的教育、从我的信仰、从我的周围······这一切所赋予给我的各样恩赐，我能问心无愧。
 
+也非常有幸，在年轻的时候去到中国，我爱上这个国家，爱上这些人民。
 
+所以当面对所有的这些艰难，这些不开心时，都无关紧要。 紧要的是：坚守，坚守已制定的计划，我们要推翻中共Take down the CCP。
 
-据路透社报道，泰国冠状病毒特别工作组周四（2022年1月20日）表示，泰国将从 2 月 1 日起恢复对已接种疫苗的入境者的“测试与出发”检疫豁免，以预防中共病毒的快速传播。 发言人在简报会上说，该政策要求游客在抵达时和五天后均需进行测试，同时要同意追踪他们的行踪。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/172825.jpg)
-该工作组还准备扩大另一个类似的隔离豁免计划的范围，即接种疫苗的游客必须同意在一个地方停留一周。该计划目前在普吉岛和苏梅岛实施，工作组准备把受人欢迎的东部海滩的芭堤雅和象岛也加入其中。 当局还将允许餐厅供应酒精的时间从晚上 9 点延长至晚上 11 点，但酒吧和夜总会将保持关闭。 这些举措旨在重振因全球旅游需求疲软和泰国严格的检疫要求而遭受重创的旅游业。
+*发布：开智则立*
 
-参考来源：
-
-[Thailand to resume quarantine waiver for arrivals from February](https://www.reuters.com/world/asia-pacific/thailand-resume-quarantine-waiver-vaccinated-arrivals-feb-2022-01-20/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
