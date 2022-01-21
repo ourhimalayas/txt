@@ -2,28 +2,28 @@
 ---
 
 
-## ASML没有被允许向中（共）国出口光刻机
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888661/)
+## 欧盟可能以能耗过大取消加密货币开采的工作模式
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888747/)
 
-作者：MOS—柳是多水土透
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
+作者：银河系农场—骄子
 
 
 
-ASML（艾司摩尔，荷兰费尔德霍芬半导体装置制造商）的CEO周三（2022年元月十九日）表示，该公司尚未获准向中（共）国出口最先进的光刻机系统设备。而这些系统设备是制造先进计算机芯片所必需的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220118-03.jpg)
-这些机器被认为是可能有军事用途的两用设备。在美国政府的压力下，荷兰政府已拒绝向ASML颁发出口这种机器的许可证。首席执行官Peter Wennink表示，他认为中（共）国不太可能独立复制顶尖的光刻技术，因为ASML依赖于不懈的创新和整合，只有非中（共）国供应商才能提供组件。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-20.jpg)
 
-ASML在光刻市场上几乎处于垄断地位，其并不受限于向中（共）国出口较老的技术。中（共）国是全球最大的半导体消费国。 2021年，ASML在中（共）国的销售额约为22亿美元，占该公司销售额的16%，按地域划分，中（共）国是该公司的第三大市场，仅次于台湾和韩国。该公司预计，2022年在华销量将达到类似水平。
+
+
+近日欧盟顶级的金融监管机构认为加密货币开采耗能过大，可能会取消这种能源密集型的开采模式，转而向低能耗的方式转变。此项禁令将会在整个欧盟国家实行。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220104-01.jpg)
+一项剑桥大学的调查显示，全球的加密货币开采每年使用的电量比阿根廷全国都多。同时，Digiconomist（一个关注加密货币等新数字趋势等博客）的一项分析估计，仅比特币开采每年就会产生约9700万吨碳。虽然在一些NFT（一种新型态的虚拟资产）领域已经采取了碳抵消，但这并不是解决问题的关键方法。
+
+目前，全世界金融对加密货币市场的亲睐，需要更有效的技术改革来推动。 美国和欧盟对加密货币的监管正在逐步扩大，更加关注加密货币对气候带来的影响。此禁令虽尚未实施，但在考虑之内。
 
 参考来源：
 
-[ASML still has no licence to ship newest machines to China – CEO](https://www.yahoo.com/now/asml-still-no-licence-ship-132517417.html)
+[EU Regulator Wants to Ban Proof of Work Crypto Mining to Avoid Climate Disaster](https://gizmodo.com/european-union-regulator-proof-of-work-bitcoin-ethereum-1848384679)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-9.png)
 
 编辑/校对/发稿：兰兰
 
@@ -41,7 +41,9 @@ ASML在光刻市场上几乎处于垄断地位，其并不受限于向中（共�
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-24.jpg)
+
+
 
 
 

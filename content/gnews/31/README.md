@@ -2,46 +2,35 @@
 ---
 
 
-## 奥地利推出新法案，拒绝接种新冠疫苗者重罚
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1888063/)
+## FBI和辉瑞联手阻挠记者调查疫苗真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1888057/)
 
-**【雅典娜观察】，紧贴时代脉搏**
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据司法观察1月18日消息，联邦调查局FBI和辉瑞制药联手，企图阻扰非营利性调查性新闻组织-“真相工程”记者调查疫苗真相。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1645.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-12.png)
 
-图片来源：CampusLately
+此前，真相工程发布了针对辉瑞制药的一系列卧底视频。在答复信息自由法案（FOIA）请求时，联邦调查局（FBI）告诉司法观察，在针对真相工程的调查档案中，有联邦调查局与辉瑞公司的通信记录。但在1月6日，联邦调查局却拒绝披露所有关于联邦调查局官员与辉瑞公司之间、关于真相工程来往通信的请求。
+
+参考链接：
+
+- [Judicial Watch: FBI Letter Shows Pfizer Tied to Investigative File Targeting Project Veritas](https://www.thegatewaypundit.com/2022/01/judicial-watch-fbi-letter-shows-pfizer-tied-investigative-file-targeting-project-veritas/)
 
 
-**整理报道：文扬**
-**编 辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-当地时间1月21日，奥地利议会已经通过法案，强制所有公民接种疫苗，拒绝接种的人将面临高达3,600欧元（4,000美元）的罚款。
+总编：文特
+编辑：文特/雪梨
+校正/发稿：海阔天空1
 
-在本周四国会投票中，绝大多数奥地利国会议员投票要求其公民接种新冠疫苗，拒绝接种将面临高额罚款。其中，有137名议员投票支持强制性疫苗接种，只有33名议员投反对票。
-
-该法案现在将进入上议院进行辩论和批准。由于奥地利的执政党是由中右翼的人民党和绿党组成的联盟，在议会中占据多数，因此该法案的通过概率很高。右翼自由党是议会中唯一反对疫苗强制的政党。
-
-该法案将于2月1日生效。届时将要求每位奥地利成年人（孕妇或因医疗豁免的人除外）接种新冠疫苗。拒绝者的罚款将从3月中旬开始执行，不遵守规定的公民最终将被处以最高3,600欧元（4,000美元）的罚款。
-
-该法律将授权当局保留一个数据库，记录每个公民的疫苗接种状况和上述状况的到期日，官员可以搜索查询。该法律有效期将持续到2024年。
-
-早在去年11月，奥地利政府就首次提出强制接种疫苗，该公告引发了大规模抗议。当时，奥地利是欧洲疫苗接种率最低的国家之一，此后一直攀升至欧盟平均水平以上。根据世界卫生组织的数据，目前，奥地利完全接种率刚刚超过70%。
-
-然而，示威活动仍在继续，上周末有数千人走上维也纳的街头，要求废除该法律。在该法通过后，预计本周末会有更多的示威活动。
-
-自去年11月以来，奥地利实施了一系列严厉的措施，以遏制新冠病毒的传播，但显然都没有发挥作用。**尽管对未接种疫苗的人采取了封锁措施，并在全国范围内强制要求戴口罩****——****两者都由警察和严厉的罚款来执行****，然而，****奥地利在周四记录的****新冠****病例比迄今为止大流行期间的任何时候都多**。
-
-原文链接： [Austria makes Covid vaccines mandatory — RT World News](https://www.rt.com/news/546694-vaccine-mandate-bill-passes/)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

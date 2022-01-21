@@ -2,43 +2,46 @@
 ---
 
 
-## 河南安阳文峰区19日晚七点后实行宵禁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888488/)
+## ASML没有被允许向中（共）国出口光刻机
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1888661/)
 
-作者：首尔天池农场 追着曙光跑
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-18.jpg)
+作者：MOS—柳是多水土透
 
 
 
-
-
-![](https://p3.itc.cn/q_70/images03/20220119/eb959bd70d05440ab9a5eef352d2151e.jpeg)（图片来自搜狐网）
-
-据中共国搜狐新闻1月19日的报道，1月18日0-24时，河南省安阳市新增报告中共病毒（新冠肺炎）确诊病例29例，均在汤阴县，其中20例为集中隔离筛查发现，9例为居家隔离筛查发现，所有新增病例均已转至定点医院进行隔离治疗。
-
-自1月8日以来，安阳市已累计报告确诊病例433例，其中汤阴县409例，文峰区19例，滑县和内黄县各2例，安阳县1例。 另外，安阳市文峰区社会面管控升级，19日起将采取更严格的措施： 1、原则上，持工作证明出小区时间限制在早5：30至7：00，进入小区时间限制在晚7：00至8：30。其他时间段内除紧急情况，严禁一切人员出入。 2、辖区之内晚七点后实行宵禁，电动车、行人严禁出小区上路，行人居家隔离，足不出户。 3、所有营业单位全部停业，严禁任何营业单位（特殊民生除外）擅自开门，否则将予以重罚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
 
 
 
-参考链接：
+ASML（艾司摩尔，荷兰费尔德霍芬半导体装置制造商）的CEO周三（2022年元月十九日）表示，该公司尚未获准向中（共）国出口最先进的光刻机系统设备。而这些系统设备是制造先进计算机芯片所必需的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220118-03.jpg)
+这些机器被认为是可能有军事用途的两用设备。在美国政府的压力下，荷兰政府已拒绝向ASML颁发出口这种机器的许可证。首席执行官Peter Wennink表示，他认为中（共）国不太可能独立复制顶尖的光刻技术，因为ASML依赖于不懈的创新和整合，只有非中（共）国供应商才能提供组件。
 
-1. [https://www.sohu.com/a/517660604\_119038](https://www.sohu.com/a/517660604_119038)
+ASML在光刻市场上几乎处于垄断地位，其并不受限于向中（共）国出口较老的技术。中（共）国是全球最大的半导体消费国。 2021年，ASML在中（共）国的销售额约为22亿美元，占该公司销售额的16%，按地域划分，中（共）国是该公司的第三大市场，仅次于台湾和韩国。该公司预计，2022年在华销量将达到类似水平。
 
-2. [https://news.sina.cn/gn/2022-01-19/detail-ikyamrmz6050523.d.html?sinawapsharesource=newsapp&wm=3200\_0024](https://news.sina.cn/gn/2022-01-19/detail-ikyamrmz6050523.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
+参考来源：
 
-编辑/校对/发稿：有莫举名
+[ASML still has no licence to ship newest machines to China – CEO](https://www.yahoo.com/now/asml-still-no-licence-ship-132517417.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-8.png)
+
+编辑/校对/发稿：兰兰
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
 
 
 

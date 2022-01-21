@@ -2,24 +2,23 @@
 ---
 
 
-## 中日财经爆│丰田公司暂停国内21条生产线，一月减产4.7万台
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1888660/)
+## 班农先生对新中国联邦的重要性（下）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1888732/)
 
-撰稿：东京樱花团/百花李香
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生对新中国联邦的重要性（下）-scaled.jpg)
+人类、大自然都是优胜劣汰，这是一个正常的自然现象。但是，要看到为什么班农先生还能跟我在一起，为什么他今天还能有这样的激情，还有这样的影响力。当时FBI的人跟我说：你们中国人就是要脸、要面子，全世界只有美国有一个班农被人家给打到地上，不服输，然后从欧洲回来后成为Number One Hero。他从来没有面子的负担。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/丰田公司暂停国内21条生产线，一月减产4.7万台.png)图片来自本文网站
+*发布：开智则立*
 
-1月20日《读卖新闻》报道，丰田汽车公司20日宣布，由于零部件供应商受中共病毒（新冠病毒Covid-19）感染和半导体短缺的影响，公司将于21日、22日和24日3天关闭在日本的11家工厂的21条生产线。其中包括位于爱知县丰田市的元町工厂。包括目前已经宣布的减产，1月份的减产总数预计为4.7万辆。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-此外，据透露，因筒井工厂（爱知县丰田市）第一线的4位员工感染了中共病毒，20日晚间暂停了生产。截止19日，第二生产线上的14名员工被确认感染后，停工到2月2日为止。
-
-信息源：
-
-[トヨタが国内で最大１１工場停止へ…コロナ感染と半導体不足、１月減産は計４万７千台見込み](https://news.yahoo.co.jp/articles/5bba90898d79f6700931e22c5af37451fd6b00d1#:~:text=%E3%83%88%)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
