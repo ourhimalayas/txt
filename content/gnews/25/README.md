@@ -2,26 +2,24 @@
 ---
 
 
-## 加拿大与G7国家疫情下的通胀危机
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1887430/)
+## 新中国联邦在以疫灭共的鏖战中斩获胜果
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1887502/)
 
-采编：   UCool 优酷          编译撰稿：   自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image-5.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=KnOF0Rzs&amp;id=FDCE9F57598F01B1FD36FED21FC2A4C244B0EFEA&amp;thid=OIF.%2b%2bFPlMsxVSGwY3rr4lMT7Q&amp;mediaurl=https%3a%2f%2fwww.ctvnews.ca%2fpolopoly_fs%2f1.5748109.1642706518!%2fhttpImage%2fimage.jpg_gen%2fderivatives%2flandscape_960%2fimage.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.2a7385d11cecad80927c3e5c4e20939a%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=540&amp;expw=960&amp;q=The+pandemic%27s+impact+on+inflation+and+how+Canada+compares+to+other+G7+countries&amp;simid=163867030054&amp;FORM=IRPRST&amp;ck=FBE14F94CB315521B0637AEBE25313ED&amp;selectedIndex=10&amp;ajaxhist=0&amp;ajaxserp=0)
+编译撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-8.jpg)
+据[新中国联邦]GTV新闻1月17日报道，加州检察官大卫·沃尔在当天接受美国电视媒体采访时表示：联邦最高法院日前驳回了拜登政府此前颁布的疫苗强制接种令之举，意味着美国所有行政部门都无权再发布类似的行政命令。
 
-加拿大[CTV新闻]1月18日刊文，对疫情爆发以来，加拿大和其他G7国家在受到通货膨胀影的响程度方面进行了比较。并指出：新的“奥密克戎”疫情再次加剧了西方各国难以遏制的通胀危机，而因此造成的所有损失最终都会转嫁到消费者身上。
+报道称，高法的以上裁决一出，[美国通用电器公司]就立即停止了对其约18万雇员执行的强制接种规定。尽管总统拜登仍顽固表示将继续推动其疫苗政策的实施，但检察官沃尔则认为，在被联邦最高法院否决之后，拜登及各州政府此时在疫苗政策方面的影响力都已变得非常卑微。
 
-文章指出，疫情最大的负面影响之一就是对全球物资供应链整体的破坏，并因此造成了从汽车产品、日用商品和食品乃至住房等所有物价的飞涨，通货膨胀已成为各国政府必须面对的艰难困境。
+据悉，该联邦法院判决不仅使美国各大中型企业的约9000万雇员获益，同时还将被用于指导任何相关政策的诉讼。换言之，如果该裁决被某些州政府忽视，并继续坚持强制接种政策，那么必将引发可能导致该州最终破产的赔偿诉讼。
 
-目前，加拿大的通胀率约为5%，远高于联邦政府和该国银行能控制的3%上限。同时，美国目前的通胀率是7%，为1982年以来的最高值。而欧盟的德国和英国都约为5.2%，也是两国10年来最高水平。
-
-尽管现在全球的病毒疫情出现了减缓趋势，但随着今年5月前后即将在疫苗高接种率国家出现的疫苗伤害及其次生灾难，西方各国特别是美加的经济将出现不可避免的大崩溃。
+审时度势之后，不难发现：[新中国联邦]在向西方世界特别是美国最高司法系统，彻底揭露“中共病毒”及其疫苗真相的鏖战之中，初获胜果，再下一城！
 
 校对编辑：硫酸羟氯喹64
 
 发稿： 苦尽甜来 (文來）
 
-[原文链接](https://www.ctvnews.ca/health/coronavirus/the-pandemic-s-impact-on-inflation-and-how-canada-compares-to-other-g7-countries-1.5743508?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61e6f926d7b2470001794760&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+新闻链接：https://gettr.com/post/ppi6ok461e
 
  
 

@@ -2,30 +2,48 @@
 ---
 
 
-## 澳大利亚西澳州延迟开放边界并大力推广新冠疫苗加强针
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1887651/)
+## 若忽视太平联盟案件内部逻辑则没有任何彰显正义的可能
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887733/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-184.png)图片来自网络
-西澳大利亚州州长马克·麦高文说，在该州第三针新冠疫苗接种率不达到较高的指标之前，该州的边境不会重新开放。
+G-TV视频链接：[https://gtv.org/video/id=61e9f2e987664c47acd79063](https://gtv.org/video/id=61e9f2e987664c47acd79063)
 
-该州原定于2月5日开放边界，但第三针的接种率届时只能达到35%，目前约为25%。州长麦高文希望在边境重新开放时，该州第三针的接种率能达到80%或90%。
+**郭文贵先生**：说到这再看看伪类，你们再回看2017年咱这个案子开始到现在，这个法官还没接到的文件，最早说出来的是谁？我希望战友们，木兰你赶快找找，是熊宪民。熊宪民提前预告这个郭文贵完了，公寓要输，博讯最早报道的。木兰要去好好找找博讯的报道。而博讯和熊宪民在美国现在被FBI，被国土安全局调查的案子，多起刑事和涉嫌中共间谍的案子。这是偶然吗？而博讯的所有跟七哥的官司的钱的提供者又是吴征。吴征和太平联盟是partner，难道这又是偶然吗？
 
-他说，第三针新冠疫苗的推广在12月才开始在澳州推行，很多人还没有资格接种第三针。一些人只打了前两针，需要四个月才能获得打第三针的机会。
+这在美国是要讲程序正义，要讲证据的，我们在这里说话都要负责任。如果谁忽视了这些逻辑，那我们这一切的正义的彰显可能性是没有的。
 
-同时，该州也考虑为儿童接种新冠疫苗提供时间，因为儿童只是在12月10日才开始有资格接种新冠疫苗。
+为什么一个太平联盟的partner还有海航，还有帮助博讯网站和熊宪民有合作关系的、情报背景的、多年诋毁我们的人，帮他支付律师费也告我们的人，都来自一个律师事务所，同时预告了太平联盟的官司走向，连法官都没接到文件前，他已经作出了判决，熊宪民和博讯，“郭文贵将无家可归，滚开十八楼，马上输，而且会输一个多亿”。
 
-西澳州的做法，完全是基于第三针新冠疫苗会使人们对奥米抗新冠病毒有更强的抵抗力的假设。这个决定并没有参考其它州目前的新冠感染人数，以及其中有多大比例是已经打过第三针。
+你觉得说到这的时候，太平联盟不管最后拿多少钱，他对七哥的法律的超限战和精神上的虐待，时间上的虐待，精神上的打击，和肉体上、心灵上的打击，你拿多少钱能解决得了？谁能经受得了？几十万页的文件，我坐在这任何情况下问我，我都不能说错，我说错一次这事就完了。
 
-西澳州的决定与美国和英国最近对新冠疫苗接种政策的转向是背道而驰。美国最高法最近院阻止了总拜登对大型企业的新冠疫苗强制接种。大法官认为该政策对美国人的生命和健康不利。
+当然法官也不给我说话的机会，他不让我上庭说。到最后判出法官竟然还说出来，我们的Ostrager先生还说呢，我很尊重你，你是很棒的，我很犹豫，痛苦，但你get go。
 
-英国首相约翰逊也宣布在本周取消英国的新冠疫苗护照。
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-消息来源：[We need to roll out more third doses’: McGowan hinges border opening on boosters](https://www.skynews.com.au/australia-news/coronavirus/we-need-to-roll-out-more-third-doses-mcgowan-hinges-border-opening-on-boosters/video/c48292909017cbddc3614c12736e31e1)
+编辑整理：Jacques；
 
-[Boris Johnson ditches UK’s COVID-19 vaccine passport plan under pressure from his own party](https://www.abc.net.au/news/2021-09-13/britain-johnson-ditches-covid-19-vaccine-passports/100456088)
+字幕文件制作：小满；
 
-[Joe Biden’s workplace COVID-19 vaccine mandate blocked by US Supreme Court](https://www.abc.net.au/news/2022-01-14/us-supreme-court-blocks-biden-workplace-covid-vaccine-mandate/100755854)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

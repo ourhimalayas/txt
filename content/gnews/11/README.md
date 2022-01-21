@@ -2,117 +2,56 @@
 ---
 
 
-## 美国司法部被外国机构行贿和腐败
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1887568/)
+## 魁北克卡车司机计划“慢速行进”抗议联邦政府的疫苗强制令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1887659/)
 
-[https://gtv.org/video/id=61e9619687664c47acd75662](https://gtv.org/video/id=61e9619687664c47acd75662)
+2022-01-20
 
-**郭文贵
-Miles Guo**
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1W34AZXZ1D50XZWH3FZ8.png)来自GLOBAL NEWS 一月二十日的新闻报道：
+越来越多的卡车司机计划扰乱和阻塞魁北克道路上的流通，以抗议联邦政府对卡车运输业实施的最新疫苗强制令。
 
-这些律师是多么的夸张，跟马云和阿里巴巴
-Que tan exagerados son estos abogados, junto con Jack Ma y Alibaba
+从东海岸到西海岸，全加拿大反对 COVID-19 疫苗强制令的卡车司机团结在“为自由而集结2022”的旗帜下。
 
-他原来的事务所就是跟马云有合作
-Su oficina original cooperaraba con Jack Ma
+数千名卡车司机计划于 1 月 28 日慢慢聚集包围国会山。
 
-跟共产党有合作
-Y el Partido Comunista
+魁北克地区发言人 Joanie Pelchat 表示，该省的车队将从加拿大-美国边境口岸开始。
 
-马云又是攻击我们的人
-Jack Ma es la persona que nos estaba atacando
+Pelchat 说，司机们的动机是计划以低于限速或“慢速行驶”的速度行进，以谴责政府的不公平做法。
 
-包括我们这个法官，Ostriker
-Incluyendo a nuestro juez, Ostriker
+自周六起，未接种疫苗的外国卡车司机不再被允许越过边境进入加拿大。加拿大卡车司机仍有返回权，但必须进行检测和隔离 14 天。
 
-法官是一个资深的法官
-El juez es un juez con muchos años de experiencia
+美国也将在本周六收紧边境限制。
 
-曾经在的律师事务所
-La firma de abogados en el que estaba
+加拿大卡车货运联盟表示，该行业目前有 10% 至 15% 的司机未接种疫苗。
 
-就是跟马云上市的代表律师事务所
-Es la firma de abogados que representa a la empresa cotizada de Jack Ma
+因此，政府疫苗强制令将使大约 12,000 名加拿大卡车司机和数千名来自美国的卡车司机离开跨境运输。
 
-他本人就是参与这个案子
-Él mismo estuvo involucrado en este caso
+加拿大和美国之间每年交易的 6,500 亿美元商品中，超过三分之二是通过公路运输的。
 
-那你说今天我们面对这个案子的时候
-Ahora tú dices que hoy cuando estamos enfrentando este caso
+全国网上筹款活动已经筹集了近 580,000 美元，目标是达到 700,000 美元。
 
-我们再回头看2017年对我最大伤害的是谁？
-Echemos un vistazo ¿quién fue el que me lastimó más en el año 2017?
+根据网上的帖子，捐款将用于支付燃料、食物和住宿的费用，以帮助缓解“这项艰巨任务”的压力。
 
-是美国几百年建国历史当中
-En la historia desde la fundación de los Estados Unidos durante cientos de años
+“为我们的自由付出一点小代价，我们感谢你们所有人的捐款，并知道你们正在帮助这个曾经美丽的国家恢复到原来的样子”，帖子中写道。
 
-没有出现过一例美国司法部被外国机构行贿和腐败的案例
-No había aparecido un caso de soborno y corrupción en el Departamento de Justicia de los EE. UU por parte de agencias extranjeras
+抗议活动已经在全国范围内爆发。
 
-当时就是PAX的投资人、合伙人和海航以及共产党
-En aquel momento era el inversor y socio de PAX (Pacific Alliance Asia Fund Opportunity), HNA Group y el Partido Comunista
+周一，18 名卡车司机在曼尼托巴省边境抗议，使交通拥堵了几个小时，给驾车者带来不便。
 
-王岐山还有更多的人
-Wang Qishan y muchas personas más
+据魁省警方发言人 Marythe Bolduc 称，魁北克省 安全部门Sûreté du Québec (SQ) 表示已了解即将发生的事件，并正在监测事态发展。
 
-包括PAX在中间，就是这个太平联盟全面参与了
-Incluyendo a PAX en el medio, es decir, esta alianza Pacífica estuvo presente en todo
+Bolduc 警告所有故意扰乱交通的人都将是违反交通安全法规，并可能面临巨额罚款。
 
-还有单伟健干了个什么事情？
-Y Shan Weijian ¿qué hizo?
+原文链接：[https://globalnews.ca/news/8526083/slow-roll-protest-truckers-covid-19-vaccination-mandate/](https://globalnews.ca/news/8526083/slow-roll-protest-truckers-covid-19-vaccination-mandate/)
 
-Higginbotham司法部律师行贿副部长级别
-Abogados del Ministerio de Justicia de Higginbotham sobornó a nivel de viceministro
+编辑：LILY
+发布：肥鯮
+校对：
 
-在中国驻华盛顿大使馆跟中国大使见面
-Se reunió con el Embajador de China en la Embajada de China en Washington
-
-吴征去游说班农将我遣返
-Wu Zheng fue a presionar a Bannon para que me enviara de regreso
-
-到家去
-A la casa
-
-涉及到美国大佬
-Esto tiene relación con el Boss de EE. UU
-
-赌场大佬Steve Wynn、Elliott Broidy公关亲自见孙立军、见王岐山
-El magnate de los casinos Steve Wynn y Elliott Broidy de relaciones públicas se reunieron en persona con Sun Lijun y Wang Qishan
-
-Nickle Lum Davis，中国派在美国的双胞胎间谍
-Nickle Lum Davis, China envía el espía gemelo a EE. UU
-
-跟今天的英国议会间谍是一样的
-Lo mismo con los espías parlamentarios británicos del día de hoy
-
-司法部都被买通了
-Si el Departamento de Justicia fue sobornados
-
-你觉得法院、还有律师还有买不通的吗？
-¿Crees que los tribunales y los abogados no pueden ser sobornados?
-
-* * *
-
-日期：01/19/2022
-原视频标题：美国司法部被外国机构行贿和腐败
-El Departamento de Justicia de EE. UU. fue sobornado y corrupto por agencias extranjeras
-
-原视频日期：01/17/2022
-原视频网址：[https://gettr.com/post/potfb1af6c](https://gettr.com/post/potfb1af6c)
-任务编号：KC425（3524）
-视频时间段：00:00-01:39
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

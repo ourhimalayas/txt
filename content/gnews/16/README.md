@@ -2,24 +2,26 @@
 ---
 
 
-## 免签证申请费：澳大利亚感染迅速增加，劳动力短缺严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887504/)
+## 奥地利议会批准强制性新冠肺炎疫苗接种
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1887588/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-9.jpg)[图片来源](https://www.reuters.com/world/asia-pacific/sydney-braces-more-omicron-cases-no-lockdowns-now-2021-12-01/)
-自确认 Omicron 菌株出现社区传染以来，澳大利亚的感染人数急剧增加。随着感染人数的增加，作为密切接触者被隔离的人数也在增加，因此劳动力短缺也很严重。
+2022-01-20
+![](https://assets.gnews.org/wp-content/uploads/2022/01/36B0F2AD-9814-43DA-960B-CB285D5457DE.jpeg)来源：网络
+**翻译：沉默老歌**
 
-因此，莫里森总理为背包客和其他人提供免签证申请费。
+奥地利议会在周四的投票中批准了强制性中共病毒疫苗接种，成为第一个这样做的欧洲国家。
 
-总理莫里森：“现在就来吧。来澳大利亚享受假期吧。同时，在农业和酒店等劳动密集型领域工作，以支持经济。”
+国民议会第二任主席多丽丝·伯雷斯在辩论了几个小时后表示，它以（必要的）多数票获得通过。
 
-信息来源：
+参考链接：[https://www.barrons.com/amp/news/austria-parliament-approves-mandatory-covid-vaccination-01642702508](https://www.barrons.com/amp/news/austria-parliament-approves-mandatory-covid-vaccination-01642702508)
 
-[豪・ビザ申請費用免除　感染急増で労働力不足が深刻](https://news.yahoo.co.jp/articles/ff49d6c43f2c6944fe8534cf40756d691d7580fa)
+编辑：LILY
+发布：肥鯮
+校对：
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

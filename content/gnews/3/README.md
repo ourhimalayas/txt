@@ -2,56 +2,45 @@
 ---
 
 
-## 魁北克卡车司机计划“慢速行进”抗议联邦政府的疫苗强制令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1887659/)
+## 面对被中共严重渗透的美国司法界，七哥誓死战斗到底
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887758/)
 
-2022-01-20
+G-TV视频链接：[https://gtv.org/video/id=61e9f32087664c47acd7907a](https://gtv.org/video/id=61e9f32087664c47acd7907a)
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1W34AZXZ1D50XZWH3FZ8.png)来自GLOBAL NEWS 一月二十日的新闻报道：
-越来越多的卡车司机计划扰乱和阻塞魁北克道路上的流通，以抗议联邦政府对卡车运输业实施的最新疫苗强制令。
+**郭文贵先生**：美国是讲法律的，我绝对相信共产党就像我曾经爆料一样，在美国司法界，通过律师事务所对美国的渗透，绝对不是那么简单。这个案子，我们必须打到底。别说我活着，就是我死了我家族也会跟他打到底。一定会找出来所有的这种来龙去脉。他为什么那么多偶然？偶然的背后一定是不自然。谁制造的不自然？
 
-从东海岸到西海岸，全加拿大反对 COVID-19 疫苗强制令的卡车司机团结在“为自由而集结2022”的旗帜下。
+我们接下来会说在英国即将打的UBS官司一样，银行，一摸一样的过程，一摸一样的人物，一摸一样的背景。说到白了，这就是看我们在和共产党打官司，和美国的黑暗的、被收买的司法界打官司。
 
-数千名卡车司机计划于 1 月 28 日慢慢聚集包围国会山。
+我爱美国，我觉得美国是伟大的，我要相信美国司法，尊重美国法官，但是从Higginbotham这个案子到现在来发生，过去几年发生的事情，美国的司法界被渗透和黑暗之程度，这成了我们的威胁和担忧。我们很难相信这个审判它会是正义的。但不管如何都要在尊重法律、尊重美国法律系统的情况下，我们誓死战斗到底。绝对不会放弃。
 
-魁北克地区发言人 Joanie Pelchat 表示，该省的车队将从加拿大-美国边境口岸开始。
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-Pelchat 说，司机们的动机是计划以低于限速或“慢速行驶”的速度行进，以谴责政府的不公平做法。
+编辑整理：Jacques；
 
-自周六起，未接种疫苗的外国卡车司机不再被允许越过边境进入加拿大。加拿大卡车司机仍有返回权，但必须进行检测和隔离 14 天。
+字幕文件制作：小满；
 
-美国也将在本周六收紧边境限制。
+视频制作及上传：Cindy；
 
-加拿大卡车货运联盟表示，该行业目前有 10% 至 15% 的司机未接种疫苗。
+G-News发布：小满；
 
-因此，政府疫苗强制令将使大约 12,000 名加拿大卡车司机和数千名来自美国的卡车司机离开跨境运输。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-加拿大和美国之间每年交易的 6,500 亿美元商品中，超过三分之二是通过公路运输的。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-全国网上筹款活动已经筹集了近 580,000 美元，目标是达到 700,000 美元。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-根据网上的帖子，捐款将用于支付燃料、食物和住宿的费用，以帮助缓解“这项艰巨任务”的压力。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“为我们的自由付出一点小代价，我们感谢你们所有人的捐款，并知道你们正在帮助这个曾经美丽的国家恢复到原来的样子”，帖子中写道。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-抗议活动已经在全国范围内爆发。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-周一，18 名卡车司机在曼尼托巴省边境抗议，使交通拥堵了几个小时，给驾车者带来不便。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-据魁省警方发言人 Marythe Bolduc 称，魁北克省 安全部门Sûreté du Québec (SQ) 表示已了解即将发生的事件，并正在监测事态发展。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-Bolduc 警告所有故意扰乱交通的人都将是违反交通安全法规，并可能面临巨额罚款。
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-原文链接：[https://globalnews.ca/news/8526083/slow-roll-protest-truckers-covid-19-vaccination-mandate/](https://globalnews.ca/news/8526083/slow-roll-protest-truckers-covid-19-vaccination-mandate/)
-
-编辑：LILY
-发布：肥鯮
-校对：
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

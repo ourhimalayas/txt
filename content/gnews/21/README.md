@@ -2,41 +2,26 @@
 ---
 
 
-## 在BVI缠诉七哥的APPLEBY律所曾代表过七哥和七哥家族
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1887464/)
+## 中共威胁加剧 美国将加快向台湾交付新一代F16战机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1887539/)
 
-G-TV视频链接：[https://gtv.org/video/id=61e9f22b87664c47acd79030](https://gtv.org/video/id=61e9f22b87664c47acd79030)
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-66.jpg)[图片来源](https://www.scmp.com/news/china/military/article/3004963/taiwans-plan-buy-66-f-16-viper-fighter-jets-us-still-track)
+路透社1月20日报道，美国正在想方设法加快向台湾交付新一代F-16战斗机，以增强台湾空军应对中共军方日益增加的武力威胁。
 
-**郭文贵先生**：说到这时候大家记住，我们的战场，另外一个战场是在BVI，在BVI这个小岛上，法官和律师，那当地两大律师事务所叫什么APPLEBY，这个是Edward Moss的照片大家都看到了，有一个APPLEBY的，大家看一看啊，APPLEBY是 A、P、P、L、E、B、Y 这家公司，这家律师事务所。你知道什么概念吗？这三四年来他们在BVI的缠诉，这个APPLEBY的律师事务所，竟然是曾经代表过七哥的案子，代表过我们家族的案子，代表过我儿子的案子，这家公司竟然跟PAG（PAX）来合作，来告我们就在PAG上，告我们在BVI代表PAX来告我们，跟这个Bondi Cahill一模一样。
+相关美国官员表示，他们还没有拿出如何加快交付Block70 F-16战斗机的方案。Block70 F-16是配备了新功能的升级版战斗机，由洛克希德马丁(LockheedMartin)制造。目前计划的交付时间在2026年底。
 
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
+台湾一位高级官员称，台湾政府已私下向美国政府表示，希望能加快战斗机的交付。目前，台湾空军频繁出动战机拦截愈发咄咄逼人的中共军机，更多任务意味着台湾战机的损耗会加大。“这一切都与风险评估有关……风险在哪里是显而易见的。”他指的是台湾海峡的紧张局势。
 
-编辑整理：Jacques；
+根据2019年批准的一项价值80亿美元的交易，台湾将购买66架新制造的F-16C/DBlock70战斗机，成功交付后，台湾将拥有亚洲最大的F-16战机机队之一。到2026年，包括老式F-16在内，台湾的F-16战斗机总数将超过200架。
 
-字幕文件制作：小满；
+消息来源:
 
-视频制作及上传：Cindy；
+[独家：美国正想方设法加快向台湾交付新一代战斗机](https://cn.reuters.com/article/us-tw-warplane-0121-idCNKBS2JV05L?il=0)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
