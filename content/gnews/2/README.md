@@ -2,43 +2,27 @@
 ---
 
 
-## 自然免疫力优于针对Delta病毒变种的疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1890166/)
+## 澳洲昆士兰地区缩短加强针等待时间至三个月
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1890272/)
 
-翻译：Jenny Ball
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1.21B.jpg)网络图片
+当地时间1月21日，澳大利亚昆士兰州记录了16,031例新增CCP病毒确诊患者以及13例因CCP病毒不幸死亡的案例。目前该州有855人因感染CCP病毒而住院，其中有54位处于重症监护状态。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/child-getting-vaccinated-700x420-1.jpg)2022年1月6日，一名儿童在康涅狄格州哈特福德接种辉瑞公司的 COVID-19 疫苗。（Joseph Prezioso/AFP via Getty Images）
+昆士兰州州长 Palaszczuk 宣布，从下周一开始，该州接种完第二剂CCP病毒疫苗的居民只需要等待三个月的时间就可以进行加强针的注射——这比最初澳大利亚联邦政府制定的计划早了大约一周左右。然而于今日不幸离世的13位患者当中，11人都完成了至少一剂CCP病毒疫苗的注射，其中还有1位接种了加强针。
 
-根据CDC发表的一项新研究，疫苗对之前的 COVID-19 病毒感染的保护优于对变种的Delta病毒的保护。
+同样是在下周一，昆士兰州政府还将会公布学生的返校计划，但不包括对学生进行 CCP病毒测试的准则和方针，即便澳洲总理Morrison已认可将学生检测作为第一学期开始时各州和领地可能采用的一项措施。
 
-研究人员分析了 2021 年 5 月 30 日至 11 月 20 日期间来自加利福尼亚和纽约的健康记录的报告。他们将​​ COVID-19 患者分为四组：
+虽然州长Palaszczuk称目前还没有得到任何有关校园病毒检测的建议，昆士兰州卫生部长Gerrard博士依旧表示，接下来的一周新增病例依然会持续出现，并且预估的增长峰值不会提前到来。
 
-- 未接种疫苗且之前没有 COVID-19 诊断
-- 未接种疫苗且曾感染 COVID-19
-- 之前没有感染过 COVID-19 的疫苗接种者
-- 之前感染过 COVID-19 的疫苗这种者。
+“与以往一样，我们的预测是：本次大流行的高峰将在未来两到三周的某个时间临近……毫无疑问，（新增患者）数字会继续增加。”
 
+由统计学家做出的预测则显示，该病毒将在本月底在澳大利亚昆士兰州达到顶峰。
 
-根据周三发表的这项研究，与未接种过 COVID-19 疫苗的人相比，那些未接种过 COVID-19 疫苗但之前感染过该病的人，在 CDC 的发病率和死亡率周报中，不太可能检测出 COVID-19 呈阳性。
+新闻参考链接：
 
-根据加利福尼亚州的住院记录，没有接种疫苗但确实有过感染（也称为自然免疫）的人也比那些接种疫苗后没有自然免疫的人更不可能住院。
-
-研究发现，迄今为止，未曾感染且未接种疫苗的人，最有可能感染 COVID-19 ，并需要住院治疗。
-
-“这些结果表明，疫苗接种或可以预防 COVID-19 和相关的住院治疗，但从先前的感染中幸存下来的人，可以防止再次感染。重要的是，在高度传播的 Delta 变种成为主要变异体后，自然免疫对感染衍生的保护作用更大，这与许多人的疫苗诱导免疫力早期下降相吻合，”包括加州公共卫生部托马斯·莱昂在内的研究人员写道。
-
-研究人员说，由于所研究的时间段仅持续到 11 月下旬，因此，需要更多的研究来检验疫苗接种，和先前的感染，是否也能防止 Omicron 病毒变种，这种变种上个月在美国占主导地位。
-
-参考资料：[theepochtimes][Natural Immunity Superior to Vaccination Against Delta Virus Variant: Study](https://www.theepochtimes.com/natural-immunity-superior-to-vaccination-against-delta-virus-variant-study_4223936.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-20)
-
-* * *
-
-*审核：文乐
-校对：Anton（小东）
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
-
+[9 News](https://www.9news.com.au/national/coronavirus-queensland-updates-latest-covid-numbers-qld-brisbane-news/1d41187e-7eca-4424-84d0-d9b554b7ed32)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

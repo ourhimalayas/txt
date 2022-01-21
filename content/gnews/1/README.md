@@ -2,32 +2,21 @@
 ---
 
 
-## 加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1890167/)
+## 文贵大直播 1/21 巴基斯坦谢里夫案：跟着共产党走进火葬场 无一例外
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1890276/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据媒体报道，加拿大因未接种疫苗而被解雇的员工提起的诉讼已经堆积如山。 多伦多就业律师，图马金律所联合创始人利奥·桑菲鲁表示，从业20年，从未见过在这么短时间内处理同一问题的案子。仅他的律所就代理了来自加拿大各地的数百名委托人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-27.jpg)
-去年11月，TTC员工工会要求法官停止交通委员会的疫苗政策，称解雇未接种疫苗员工，会导致服务中断，但遭到法官拒绝。桑菲鲁说，雇主有权解雇员工，但只有在雇员犯有 “重大不当行为 “时，才能免于支付遣散费，而 “不接种疫苗”根本不属于这一类。很多雇主还没有意识到，他们不但要面临巨大的诉讼成本，还可能面对“不当解雇”而导致的巨额赔付。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot2-3.jpg)图片来源 GTV
+巴基斯坦谢里夫案，谢里夫明确讲他没有贪污国家的钱，钱都是中共给的。爆料革命发起人郭文贵先生在1月21日文贵大直播纽约现场愤怒地告诉全球：这是对中国人的极大羞辱。
 
-相关评论指出，从越来越多的因未接种疫苗而被解雇的员工发起诉讼来看，很多沉默的人已经开始起来并对疫苗强制政策进行反击。
+当嘉宾就谢里夫案询问郭先生内情时，文贵先生直言，蓝金黄为主要手段的贪腐“外交”是中共本性，这是常识。所谓中巴友谊，巴铁外交包括所有一带一路，都是假、骗、偷。中共给谢里夫一个亿，中国人民付出的会是百倍千倍的代价。
 
-参考链接：[As unvaccinated workers sue for wrongful dismissal, Ottawa working on shielding employers](https://globalnews.ca/news/8523534/covid-omicron-vaccine-mandate-lawsuit-employer-trudeau/?utm_source=%40globalnews&amp;utm_medium=Twitter)
+回顾一带一路国家很多领导人的命运，中共没有国家战略，完全是家族利益之私，巴基斯坦就是中共杀人越货、洗钱犯罪的大通道。其他类似国家也毫不例外。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+中共对世界各国的蓝金黄，买单的实质是苦难的中国百姓，最大的受害者也是各国百姓，跟着共产党走向火葬场，无论以什么形式都已经被一个个事实所印证，也必会被更多的悲剧反复证实。
 
-总编: Ivy001
-编辑： 百香果
-校正/发稿：Fei797
+【来源链接】https://gtv.org/broadcast/watch/61eaab2f533c672fca80472a
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
