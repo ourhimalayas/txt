@@ -2,21 +2,30 @@
 ---
 
 
-## 中共企图超限战控制加拿大锂业资源
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1886337/)
+## 英国首相宣布取消疫情强制性政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1886345/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：纽约香草山 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月19日，据英国媒体消息显示，英国首相约翰逊在当天发布声明表示，鉴于英国大部分地区的新增中共病毒感染病例趋于平缓，自1月27日起，当地的大型活动将放弃使用中共病毒疫苗护照政策，同时，英国民众在出入公共场所时也不需要继续提供中共病毒疫苗接种证明。此外，民众将不再被强制要求佩戴口罩，但政府仍旧建议民众在封闭或拥挤的空间内使用口罩。而自2021年12月13日开始生效的居家办公规定也将随之解除。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-14.jpg)
+约翰逊也提到，强制感染者自我隔离5天的政策也将在未来几周内结束，但由于大流行尚未结束，人们依然需要在应对疫情的问题上保持谨慎
 
-据加拿大自媒体【真北方】1月17日报道，加拿大保守党要求特鲁多政府立即调查在不久前，中共国[紫金矿业]收购加拿大重要矿业公司[尼欧锂业公司]的事件。
+参考链接：[UK lifts COVID restrictions, says omicron wave ‘has peaked’](https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd)
 
-据报道，保守党之所以坚持要求联邦政府重新审查此次收购交易，是因为加拿大已计划在电动汽车行业的增长中发挥主要作用。为此，政府必须保持相关电池产品关键矿物使用的供应和获取，以保证加拿大在电动汽车行业中的技术和竞争优势。同时，也以此阻止自由党政府因与中共密切合作而削弱加拿大在此行业中的实力与市场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-据悉，[尼欧锂业公司]的核心资产是位于阿根廷西北部卡塔马卡省的[3Q锂盐湖]矿产开发项目。由于该项目资源量大、品质高以及开发条件好，因此，加拿大放弃[尼欧锂业公司]的100%控股权等同于直接将重要的国家资源拱手相让给中共。
+总编: Jack Li文阳
+编辑：百香果
+校正/发稿：Fei797
 
-* * *
-
-编辑： 平民正道    发布：平民正道
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

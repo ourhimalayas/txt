@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|抗议疫苗暴政 歌曲被YouTube迅速下架
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1886263/)
+## 魁北克省长因强征健康税而触犯众怒
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1886285/)
 
-配音：香草山农场 – 纳米
+加拿大温哥华扬帆农场    平民正道
 
+据加拿大媒体【真北方】1月17日报道，全球著名在线请愿平台[Change]近期发布请愿书指出，魁北克省长勒戈强施的疫情政策因严重违反了《加拿大权利和自由宪章》而必须被撤职。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-获奖无数的加拿大音乐人 Matt Brevner 近日在 youtube 上，上传了一首新歌 more of us，歌曲婉转控诉了加拿大政府在中共病毒大流行期间，对民众施行的疫苗暴政，以及对医护工作者的不公对待，包括超时工作，强制疫苗等等。
+报道称，目前该请愿书征集的反对签名已超过20万人。书中并痛斥勒戈政府以独裁模式胁迫所有魁北克人都服从当局的命令，并因此制造社会的对立和分裂。魁北克不仅是加拿大第一个引入疫苗护照的省份，而且在接种率几乎最高的情况下，实行了北美最严格的封城锁户措施，甚至还宣布原有的疫苗护照将需要完成第三剂的接种才能重新生效，否则就将作废等多项恶法。
 
-歌曲上线后受到网民追捧，迅速成为热门，同时也引起加拿大当局和 youtube 后台的关注。目前，youtube 平台以涉嫌煽动暴力和传播虚假讯息为由，已将歌曲下架。
+随着“奥米克容”疫情在各地高接种率区域的持续爆发和蔓延，再次证明了疫苗对防控疫情毫无功效的事实。但魁省当局竟罔顾民众反对，并冒天下之大不韪，对未接种疫苗的魁北克人强征“健康税”的荒谬之举，更是引发了举国上下民意的愤怒和对其暴政的反抗。
 
-文字版原文：[抗议疫苗暴政 歌曲被YouTube迅速下架](https://gnews.org/zh-hans/1876501/)
+* * *
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 

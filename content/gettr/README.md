@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/21/2022 12:02 AM (UTC)`
+
+1/20/2022 Miles Guo’s GETTR: Yesterday was the beginning of the new era of the Whistleblowers’ Movement. While we are spreading the truths about the CCP virus and the COVID vaccine disaster, we are voicing to the world that the CCP does not equal the Chinese people and that the Chinese are the biggest victims of the CCP so that the world can clearly see what communism is.<br/><br/>1/20/2022 文贵盖特：昨天开启了爆料革命新时代，我们在传播病毒和疫苗灾难信息的同时，也向世界发出中共不等于中国人、中国人是最大的受害者这样的声音，让世界看清什么是共产主义！<br/>
+![img](https://media.gettr.com/group35/getter/2022/01/21/00/a45a0371-7eb7-dfbe-c0f1-623957f15c4c/out.jpg)
+
+---
+
 `@miles 1/20/2022 11:40 PM (UTC)`
 
 1/19/2022 Miles Guo: It’s announced for the first time that the CCP virus pandemic is going to end this May, but the COVID vaccine disaster will unfold. “Xi the sun” has turned to inviting people at the Davos forum to enjoy a shared post-vaccine economy and to profit from people’s suffering. The CCP has locked the Chinese people in their homes and is presenting a false appearance of peace and prosperity. The false prosperity that will be manifested by the grandiose scenes of the Beijing Winter Olympics will ring the death knell for the CCP.<br/><br/>1/19/2022 文贵直播: 首次公布今年5月份病毒将接近尾声，疫苗灾难将接踵而至；习太阳转而邀约共享疫苗经济；中共粉饰太平，中国老百姓被困家中；北京冬奥涂脂抹粉终将唱响中共丧歌<br/>
@@ -145,13 +152,6 @@
 
 1/19/2022 Miles Guo: We will have the H-Insurance and the digital space program! The New Federal State of China is from heaven, and we will definitely not allow the Party of Davos to succeed in its plan to create digital slavery. The evil twins, the CCP and the Party of Davos, are not far from their end!<br/><br/>1/19/2022 文贵直播：我们将拥有喜保险和数字太空；新中国联邦从天上来，我们一定不会让达沃斯党创建数字奴隶制的计划得逞；中共和达沃斯党这对邪恶的孪生兄弟离死期不远了！<br/>
 ![img](https://media.gettr.com/group30/getter/2022/01/20/02/61bd8037-d013-6e3d-3b28-d374f5a63d10/out.jpg)
-
----
-
-`@miles 1/20/2022 12:09 AM (UTC)`
-
-1/19/2022 Miles Guo: The New Federal State of China is saving the entire humanity! It’s the first time in the past 5 years that I seriously talk about the Party of Davos, the Communist Party of the World. Humankind is faced with the disasters caused by the CCP virus and its vaccines. If the Party of Davos is not brought to justice, the earth will be destroyed! The CCP and the Party of Davos are the origins of all evil!<br/><br/>1/19/2022 文贵直播：新中国联邦在拯救全人类！5年来文贵首次认真谈达沃斯党 - 世界的共产党！人类面临着中共病毒和疫苗的灾难，如不审判达沃斯党，地球将毁灭！中共和达沃斯党是万恶之源!<br/>
-![img](https://media.gettr.com/group46/getter/2022/01/20/00/f93aab59-4cbf-cd2b-a8bc-24e051825ebf/out.jpg)
 
 ---
 
