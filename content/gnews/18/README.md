@@ -2,55 +2,35 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1891110/)
+## 文贵爆料1.21：“脱刻”，荷兰取消中共光刻机订单，习太阳震怒
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1891239/)
 
-翻译: wenwu
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/43d252cc9c441e6fa196d0114557f3a0.jpeg)
+图片：ASML
 
-您若想了解全文报导内容，请点击标题链接
+全球光刻机已由荷兰ASML、日本尼康和佳能公司完全垄断，而中国制造最核心的就是要有芯片，共产党想打台湾的目的之一就是因为台积电是制作芯片的重要一环。
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+“只要中共国制造缺少了芯片了，它的科技全部归零。互联网、防火墙归零。” 郭文贵先生在2022年1月21号直播中信心满满地展望，“随着天空WiFi开始使用，5G，甚至6G马上要投入，共产党就会没有防火墙。没有防火墙后gtv、盖特、Gnews，从喜马拉雅山，东北的山沟，西藏的高原，昆仑山下，福建的武夷山，到中国的南海，任何人都可以轻易上线，使用我们的平台！”
 
-1. [洛杉矶新西部特许学校(New West Charter School LA )被抓到虐待未接种疫苗的年轻女孩](https://www.thegatewaypundit.com/2022/01/new-west-charter-school-la-caught-abusing-young-unvaccinated-girls-denied-chairs-forced-sit-outside-pavement-not-allowed-use-restrooms/)
+郭先生有着清晰的灭共战略：**科技和金融是共产党的两条腿，灭共先打断共产党这两条腿**。所以，他运作了4、5年, 想办法从科技和金融上把共产党撂倒。今天郭先生分享了其中精彩的一个片段，他如何说服荷兰ASML取消中共垂涎三尺，几乎已经到手的光刻机的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1725.png)图片来源:thegatewaypundit.com
+共产党知道在可想象的未来，它绝对解决不了光刻机，就使用蓝金黄手段，派出美女混血儿去睡ASML公司的工程师，包括提前多年结婚、生孩子、一定的时间点要回中国等等，爆料革命通过公关团队中的战友将详细信息告诉ASML公司，让他们明白这些人是来卧底的。一开始他们不相信，觉得我们是神经病，胡说八道，编造邪说。后来，闹明白了，“哇塞，原来我们这班荷兰大傻哥工程师，跑到中共国，回来以后结了婚的都是有目的的”。
 
-据《门户网》2022年1月18日电，四名就读 New West Charter LA 的女学生因选择不接种中共病毒（COVID19）疫苗，而受到虐待；这些未接种疫苗的女孩被虐待包括威胁停学，不准上课，不准坐椅子，被迫坐在警戒带的人行道上，并且不被允许使用学校的公共厕所，外加学校警察在警戒带外守卫着。
+然而，故事在这里有起伏，我们公关团队有两个战友，其中一个“战友”背叛了我们，就在给我们所谓努力工作的时候，私下里面给共产党勾兑，私下告诉荷兰人，相反着说：不要相信Miles Guo，他的目的是要在这里面获得巨大的利益。真实原因是共产党内部政治斗争。荷兰人一下子把我们给拒了，不跟郭先生联系了。
 
-2. [免疫学圣地澳大利亚的耻辱——驱逐拒绝接种疫苗的男网运动员诺瓦克·德约科维奇](https://childrenshealthdefense.org/defender/australian-open-novak-djokovic-immune-covid/)
+但是，就在这个时候，老天在帮我们，这个背叛了我们的“战友”，竟然在英国被抓了，英国政府发现了他电脑里这些信息。郭先生对英国政府说，“你能不能把这信息给荷兰人”？英国政府就把这信息分享给了荷兰政府，荷兰情报部门找他们光刻机公司谈话说，“Miles Guo是对的，这家伙是假的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1723.png)图片来源:thegatewaypundit.com
+事情反转了，结果共产党重金收买的人全被抓，AMSL 公司作出绝然的决定，一个都不会送达中共订购的光刻机。本来5亿美元的机器，中共花了25亿美元，5倍的价格，现在全部被取消了。
 
-据《捍卫者》2022年1月19日电，2021年12月从COVID19感染中康复的德约科维奇（Djokovic），对COVID19具有相当自然免疫力（无需接种中共病毒疫苗）；澳大利亚政府凌驾于免疫学科学和医学伦理的原则之上，以拒绝接种疫苗为由，把德约科维奇驱逐出澳大利亚边境，不予参加赛事。
+到手的肥肉飞了，习太阳，震怒啊！
 
-3. [在最高法院推翻拜登OSHA授权后，星巴克取消了疫苗强制要求](https://www.thegatewaypundit.com/2022/01/starbucks-nixes-covid-vaccine-requirement-supreme-court-strikes-biden-osha-mandate/)
+来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1721.png)图片来源:thegatewaypundit.com
+[2022.1.21 文贵大直播](https://gtv.org/video/id=61eaab2f533c672fca804729)
 
-据《门户网》2022年1月19日电，美国最高法院驳回了拜登政府关于拥有100名以上员工的美国公司进行全面疫苗授权计划的要求；星巴克首席运营官约翰·卡尔弗（John Culver）周二（18日）尊重法院的裁决，取消强制疫苗规定；通用电气公司（General Electric Co）上周五暂停了对其数十万员工的疫苗强制令。
 
-4. [草根组织带头攻击拜登对联邦工作人员的疫苗授权](https://freebeacon.com/courts/grassroots-group-leads-attack-on-biden-vaccine-mandate-for-federal-workers/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195448.jpg)图片来源 : freebeacon.com
-
-据《自由灯塔》2022年1月18日电，联邦医疗自由组织（Feds for Medical Freedom）是一个新的草根组织（grassroots organization），其背后得到了几乎所有美国联邦政府实体以及外交机构和军事设施的工人的支持；联邦医疗自由组织代表111万名未接种疫苗的联邦雇员和联邦承包商，总共700万人，在美国各地法院对拜登疫苗强制令发动控诉。
-
-5. [澳大利亚可能很快就会为 2900 万只宠物接种中共病毒疫苗](https://insiderpaper.com/australia-may-soon-vaccinate-29-million-pets-against-covid-report/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-195628.jpg)图片来源 : insiderpaper.com
-
-据《内幕消息》2022年1月19日电，悉尼南十字星宠物医院的科瓦克（Sam Kovac）博士兽医正在努力与澳大利亚农药和兽药管理局合作，为澳大利亚的（2900万）宠物接种俄罗斯生产的疫苗；香港政府因一家宠物店的仓鼠受体（智飞疫苗引用中国仓鼠卵巢）可体外传播中共病毒，打算屠杀数以千计的小动物。
-
-6. [法国引进第五种疫苗Novavax](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220118-%E6%B3%95%E5%9B%BD%E5%BC%95%E8%BF%9B%E7%AC%AC%E4%BA%94%E7%A7%8D%E7%96%AB%E8%8B%97novavax)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-21-200410.jpg)图片来源: www.rfi.fr
-据《法广网》2022年1月18日电，法国政府周二(18r日)宣布，刚刚获得法国卫生当局（HAS）绿灯的（美国实验室研发）Novavax抗新冠病毒疫苗将在2月21日时抵达法国;Novavax将是在法国接种的第五种疫苗；Novavax疫苗采用了一种更传统的技术，与研制百日咳疫苗的技术类似。
-
-* * *
-
-*审核：阿伯塔
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
