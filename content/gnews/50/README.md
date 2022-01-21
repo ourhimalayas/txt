@@ -2,25 +2,25 @@
 ---
 
 
-## 德州一医院因有关中共病毒的财务问题被起诉
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887694/)
+## 共和党人抨击联邦政府在病毒溯源上不作为
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1887700/)
 
 作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月18日，据当地媒体报道，休斯顿医疗巨头，卫理公会医院，因压制使用伊维菌素且与大制药公司合作，向患者开具符合其经济利益的药物，正在被该院一位医生起诉要求其公开中共病毒治疗方面的财务信息和数据。
+1月17日，据相关媒体消息显示，美国众议院外交事务委员会首席共和党人麦考尔在一份文件中指出，联邦政府这一年内采取了诸多失败的外交政策，尤其在中共病毒溯源问题上更是如此。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-3.jpeg)
 
-据悉，这名医生在被卫理公会医院停职前坚持使用伊维菌素治疗那些感染了中共病毒的患者，她也因此饱受抨击。随后，该医生作为首位公开反对中共病毒疫苗的医护人员，被卫理公会医院以所谓的“恶意传播中共病毒危险讯息”为由，停职。
+麦考尔表示，截至目前，中共病毒大流行已经导致了超过五百万美国人的死亡，还对世界各地的经济造成了严重的影响。更不要说，中国共产党一方面向世界释放病毒，一方面又掩盖病毒真相，同时，世界卫生组织也对病毒起源发出了极具误导性的通报延误了全球反应，这些都让原本可能是本地流行病的中共病毒如今在世界范围内肆虐。
 
-离职后，这名医生向德克萨斯州地方法院提起了对卫理公会医院的诉讼。医生表示，医疗自由目前已经被医院、大型制药公司、保险公司和联邦机构劫持，其中，医院通过向患者开具大制药公司研发的药品，使双方获得经济利益。而这些药物甚至包括具有严重副作用的瑞德西韦。为此，该医生依照当地法律向法庭提出，应要求卫理公会医院公开其有关中共病毒疫苗及药物方面的数据和财务信息。 该医生强调，此番诉讼不为寻求任何个人经济利益，但民众有权利知道与自身安全切实相关的真相。 此外，医生也提到，类固醇、维生素 C 和高剂量伊维菌素作为中共病毒早期治疗药物是非常有效的，它能挽救生命，所以不应该被任何机构打压。
+此外，联邦政府也很清楚，美国纳税人的钱被用来资助武汉病毒研究所的功能增强实验，而该研究所曾多次进行过生物安全方面的危险研究。 对此，麦考尔提出，迄今为止，联邦政府几乎没有采取任何措施向中共及其他相关人员追究他们制造全球疫情的责任，他称，这是美国政府在外交政策上的严重疏失。
 
-参考链接：[Doctor Mary Bowden Sues Houston Methodist Hospital for COVID-19 Data, Financials](https://thetexan.news/doctor-mary-bowden-sues-houston-methodist-hospital-for-covid-19-data-financials/)
+参考链接： [Biden’s Foreign Policy Failures One Year In](https://gop-foreignaffairs.house.gov/press-release/bidens-foreign-policy-failures-one-year-in/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Ivy001
-编辑：Irene木木 
+总编：飞虹
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

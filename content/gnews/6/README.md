@@ -2,35 +2,57 @@
 ---
 
 
-## MV版Hcoin To the Moon上线44天第30次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1890698/)
+## 中日财经爆│夜壶再现，密集救市就能避免经济崩盘？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1890709/)
 
-1/21/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线44天第30次位列澳门iTunes热门音乐视频榜榜首，第37次位列前三名
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-69.jpg)
+夜壶总是在尿急的时候再用。
 
-* * *
+**1997****年亚洲金融危机爆发**，中共国的进出口、外商投资等都受到冲击，经济增速大幅下滑。
 
-[【PDF 下载】Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+1998年7月，中共国务院颁布23 号文，提出“**促使住宅成为新的经济增长点**”，商品房市场启动。
 
-* * *
+1999至2001年，继续放松房贷和住房交易税费等。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+2003年8月份，中共国务院明确将房地产行业作为国民经济的**支柱产业**，经济从金融危机中复苏，楼市出现过热迹象。随即宽松终止，持续**五年**左右。
+
+2004至2008年次贷危机，共发布30多项政策，从土地、商品房供应、税收、信贷等方面，严厉打击房地产，抑制房地产过热。
+
+**次贷危机爆发**，社会经济出现了经济增速放慢、外贸出口严重下滑的趋势，中共推出“四万亿”政策，信贷放松、税费减免，2008年12月发布“国十三条”继续放松调控，房地产市场迎来一波暴涨。2009年上半年经济回暖，12月中共国务院发布“国四条”，加强房地产市场监管，放松终止，持续**15个月**左右。
+
+至2011年底，共发布近十数项政策，依旧在土地、供应、信贷、税收等方面着力抑制房地产过热。
+
+**2012****年受前期货币紧缩和欧债危机的影响，经济下行。**4月至5 月国常会连续提出“扩内需”、“把稳增长放在更重要的位置”等，随后连续降准降息释放流动性稳经济，房地产调控放松。至2013年2月，“新国五条”出台，放松周期终止，持续**10个月**左右。
+
+**2014 ****年，商品房库存高企，中共中央定调“千方百计去库存”。**随后政策全面转向宽松，导致房价大幅上涨，2016年12月，首提“房住不炒”，本轮放松周期持续**18个月**左右。
+
+**2018****年末，**棚改货币化安置退出，**三四线城市销售压力加大，**房地产信贷收紧，**全国出现一波土地流拍潮。**广州、无锡等多个城市放松调控。2019年初热点城市房价抬头，政策放松终止，持续时间**5个月**左右。
+
+**2020****年初中共病毒疫情爆发**，社会经济受到严重冲击，部分城市出台了放松政策，热点城市房价大幅上涨，2020年5月政策转向收紧，本轮放松持续**3个月**左右。
+
+1998年以来共经历了六轮房地产放松周期，从大幅放松拉动经济增长、释放需求到强行逆经济周期驱动，直至总体需求饱和后的无奈去库存，到供需平衡彻底打破后的被动微调，放松周期越来越短，政策效能越来越低，破坏性越来越强。
+
+时间来到2021年，中共国面临内部残酷的政治斗争，房企大暴雷，外企大撤离，消费大崩溃，疫情此起彼伏；外部面临经济脱钩，美元紧缩，能源暴涨，供应链断裂等多重压力。
+
+至2022年初，内忧外患，无以为继之下，中共重新高喊房地产为“主导产业”，“支持商品房市场”，随之，水龙头全开，国债全速增发，信贷全面放松，户籍准入放松，妄图以“经穷壶现”实现乾坤大扭转。
+
+然此一时，彼一时，之前的放松周期是以外部环境的相对稳定，房地产供需尚未彻底崩裂，全社会负债水平尚能承压为前提的。本次放松，所有的前提条件都发生了根本性转变，强行放水只有壶破而经亡一途。
+
+夜壶的确是在尿急的时候再用，只是中共你的夜壶破了。
+
+信息来源：
+
+[以史为鉴：历次房地产放松的主要背景与标志事件](https://stock.finance.sina.com.cn/stock/go.php/vReport_Show/kind/search/rptid/691401681189/index.phtml)
+
+[2003年-2013年中国房地产调控政策一览](https://www.yicai.com/news/2516382.html)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
-[【PDF 下载】Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Friday-21-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
