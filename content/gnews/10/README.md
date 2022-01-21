@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈太平联盟（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1886632/)
+## 美军反驳中共所谓美舰“非法闯入西沙被驱离”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1886735/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-27.jpg)美军反驳中共所谓美舰“非法闯入西沙被驱离” 网络图片
+据美国之音1月20日报道，中共国南部战区新闻发言人称，美军“本福德”号导弹驱逐舰“非法闯入中共国西沙领海”，被中共国军队驱离。
 
-来源：郭先生2022-01-17直播09:11:30摘录
+美军第七舰队声称，“本福德”号导弹驱逐舰20日在帕拉塞尔群岛（中共国称“西沙群岛”）“依法”执行航行自由行动，挑战中华人民共和国、台湾和越南对无害通行设置的限制，并挑战中共国在帕拉塞尔群岛周边划设的海权基线，目的是维护国际法所赋予的航行自由权，以及合法使用海洋的权利。美国将继续在国际法所允许的任何地方飞越和航行。
 
-最夸张的事情啊，我们从我在之前，我在之后我就是打了一件事，他所说的大家要记住这个 PPT，因为你不了解这官司，他几个大重点，太平联盟告文贵的是当年2008年的一个北京盘古，向太平联盟放高利贷的，作为一个三千万，一亿美元一共，其中说三千万美元没还的这么一个我个人担保。那么我在2008年年底已经签署了，盘古跟这个案子也完了，跟这个债务关系，一个亿都还给他了，他也承认都还给他。他从来没否定用这一个亿还给他，然后他后来说：“噢，我还有一个三千万，你忘了还给我了。” 你看这矛盾了，你承认还了你一个亿，一共盘古借了一个亿，就给了你一个亿，你怎么还有一个三千万呢？然后说：“这个盘古不给我，那你得给我履行担保责任” 我只是履行担保责任，我从来没否认我做过个人担保，但我说2008年，我最后签过一个跟你们三方和解协议，你们把钱还完了，我的个人担保关系结束了，而且对方也出具了文件，这个三千万我还了，他也都签暑了就这么一个东西。就来告我来了，我说这个文件是2009年以后所有的文件都是假的，你可以去鉴定。就在这个案子上利与不利，被美国法院给否了，否了以后到了这里，跟这完全没有关系，所有当事人、所有证据没在纽约发生，而且我当时并不常住在纽约。大家要知道，他没有任何法律意义。立上之后，他最大的判决说，这个3三千万合同是真是假，你提供、你以后就不能再质疑这个问题了。就第一天就不让你质疑了，你不可以怀疑，你这个再提供证据，这个东西证明你是真是假，你还要打什么官司？竟然太平联盟，不出任何证据的情况下先锁你的资产，根本不属于我的。
+中共把占山为王、划地圈钱的把戏玩到了国际，自己看好的地界就圈成自己家的领地，又建人工岛屿、又修跑道。谁想从此过，留下买路财。这是中共惯用的伎俩。中共完全忽视国际仲裁法庭的最终判决，为了国际海域的和平，最终一定会扫平中共的非法势力。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新闻参考链接：[https://www.voachinese.com/a/us-warship-south-china-sea-20220120/6404679.html](https://www.voachinese.com/a/us-warship-south-china-sea-20220120/6404679.html)
 
-**关注我们**
+* * *
 
-Discord 账号
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

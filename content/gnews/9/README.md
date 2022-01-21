@@ -2,31 +2,70 @@
 ---
 
 
-## 七哥谈用生命和鲜血换来的每一个字（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1886634/)
+## 汪建何许人也（ 一）
+` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1886736/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+————深挖中共
 
-来源：郭先生2022-01-17直播09:04:12摘录
+作者：流浪的阳光
 
-我们这每一个字，都是用生命和鲜血换来的，中国人生生死死上百年，中国人从来没有一个人敢在美国，在世界上，用生命和鲜血和共产党斗争。这个官司的开始到现在一切，我们的对手就是共产党，代表打官司的全部是共产党的走狗，这还有什么质疑的吗？而且我们从官司的第一天就被违法操作，我4月19号参加VOA大直播，4月18号递的官司，3月份我和刘彦平见面，我4月份在美国才开始，是吧。你想想他怎么跟那个刘彦平沟通啊，他就要警告我不要参加VOA，然后孙立军就一再警告我，你要敢参加VOA，会让你在全世界上没有任何生存的机会，会拿走你家族和你的一切的东西，让你睡在马路上，而且明确告知 PAG啊，就太平联盟叫 PAS，会让你像疯狗一样在大街上，让你找不到任何地方生存的地方，这是孙立军的原话。他有这么偶然吗？4.18和4.19，王岐山和海航，就事情我要爆料的时候他就出来了，最关键我那天爆料的当事人，王岐山、海航，就是 PAS的合作者和股东。2015年宣布要让我倾家荡产，拿走一切，并把同事家人抓走的就是吴征，叫Bruno Wu，吴征又是 PAS 的最大投资者和合作股东。腾讯的音乐，腾讯音乐，百分之百的股东曾经是 PAS，而且Bruno Wu在里边串通起来。这个Ed.Moss，这个律师你看着这我跟他多次打交道我一会再说，Ed.Moss在北京在上海都有律师事务所，在北京的银泰、在上海的金融区。这个律师在中国有营业执照，这些律师是多么的夸张，跟马云和阿里巴巴，他原来的事务所就是跟马云有合作的，跟共产党有合作。马云又是攻击我们的人，包括我们这个法官，法官，Ostrager是一个资深的法官，曾经在律师事务所，就是给马云上市的代表律师事务所，他本人就是参与这个案子。那你说今天我们面对这个案子的时候，我们再回头看，2017年对我最大伤害的是谁？是美国几百年建国历史当中，没有出现过一例，美国司法部被外国机构行贿和腐败的案例，当时就是PAS的投资人、合伙人和海航，以及共产党、王岐山，还有更多的人，包括 PAS在中间，就是这个太平联盟的全面参与的。还有单伟健，干了个什么事情，Hagen , 司法部律师行贿副部长级别，在中国驻华盛大使馆跟中国大使见面，吴征去游说Bannon将我遣返到家去，涉及到美国大佬赌场大佬史蒂芬文、埃里布瑞迪，亲自见孙立军，见王岐山，妮克拉姆戴维斯，中国派在美国的双胞胎间谍，跟今天的英国议会间谍是一样的。司法部都被买通了，你觉得法院还有律师还有买不通的吗？史蒂芬文当场问，埃里布瑞迪全面认罪，还有那个吴征的合伙人，还有纽约 FBI的一个，Richard Miller，跟吴征在北京，蒙古包吃肉看美女跳舞，竟然被列为这一次，PAS官司的调查的律师。不但如此，GTV 投资所有的信息，被非法的让 PAS给拿到，作为证据来攻击我们。为了证明这个证据不是他偷来骗来的，像可能是 FBI这个钱，所谓纽约区的长官，Richard给黑客或偷来的，或者是，当时的Bondi作为 GTV 的一个律师，他是提供给他们的，非法提供他们，他突然提供了一个证据，我们说这个证据是不能动的，这是假的。他说从哪找的？结果说中国全人类，连月亮上的猪都会知道，中国的多维，是中国的北京的总部的间谍情报报网，竟然看出了照片，说这是郭文贵当年说的，还有多维的报道。结果我们战友发现了多维这张照片是晚于这个所谓的案件，就是他po的。太平联盟使用的 GTV信息，早于这个所谓他所说的来自多维的照片，你看造假到什么程度。就是纽约迈哈顿法官想要的证据，共产党马上在网上造出假出来。而且是来自于中国的情报网站—多维。这是美国政府，美国法官都认可的，这个时候的律师是谁啊？Bondi。就是代表GTV打官司就刚才那个Bondi，这个Bondi的律师所叫 CAHILL。
+我们今天聊一聊汪建，1954年，他出生在湖南湘西。1968年，汪建14岁被下放到农村做知青。从物质丰裕的部队大院到饥寒交迫的农村，最惨的时候，他饿到头晕眼花，只能吃老鼠和隔壁村的狗。 这就像8月1日文贵先生说的，所有的记忆都是文化大革命，所有的记忆都是四人帮⋯ 我们看看采访过他的记者是如何说的
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E8WgaRKVcAkNE4U.jpeg)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E8WgaRKVUAwOjpF.jpeg)图片来自网络
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-287.jpeg)
+
+
+![](https://pbs.twimg.com/media/E8WgaRTVcAUdSFG?format=jpg&amp;name=large)
+
+1988年，汪建赴美留學 1990年，汪建在美國華盛頓大學擔任高級研究員，從事細胞分化與增殖相關性研究，工作內容涉及基因克隆等 1994年春節，汪建和朋友喝酒，不行別的酒令，只背《毛語錄》。汪建曾說，他能背下整本語錄。酒令行到一半，汪建流著淚說：我們已經紅到骨子裡了！回國吧！ 這樣人的和誰像？
+![Image](https://pbs.twimg.com/media/E8Wv7wrVgAA2Dzc?format=jpg&amp;name=large)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午7.40.19-1.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午7.40.41.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-20-下午7.46.08.png)
+1994年，汪建回國創建北京BGII生物技術有限公司。 1998年，汪建任中國科學院遺傳所人類基因組中心執行主任。 1999年9月，汪建在北京順義空港創建華大基因。 2001年，江澤民在中南海接見了華大基因楊煥明、汪建、于軍等。 看到這裡，發現汪建和中共的淵源好深啊！大家接著往下看，後面更精彩。
+
+![Image](https://pbs.twimg.com/media/E8W1fMiUUAAy8hu?format=jpg&amp;name=medium)
+
+
+![Image](https://pbs.twimg.com/media/E8W1fMeVgAwGvhG?format=jpg&amp;name=900x900)
+
+
+2003年，汪建带领华大基因团队完成了对非典病毒（SARS）的基因测序，时任国家主席的胡锦涛听说后参观了华大基因。随即，中国科学院与华大基因联合组建了中科院北京基因组研究所。给予其90人的正式编制，任命杨焕明为所长，汪建为副所长，按照局级干部发薪。
+
+2007年，汪建带部分员工南下，重新创建深圳华大基因研究院并出任院长；同时创立深圳华大基因科技有限公司，汪建任总裁。 2012年，华大基因1.18亿收购美国硅谷的上市公司Complete Genomics。 2016年9月22日由华大基因研究院主导组建的国家基因库正式落成，华大开始了它的大肆扩张之路 附各地基因分库表。
+
+请注意以下时间点
+
+据财新网报道，早在2019年12月26日，华大基因就收到了来自武汉当地医院的「不明肺炎病例样本」，并进行了测序。 2020年1月15日华大基因在第一时间研制成功新型冠状病毒核酸检测试剂盒。 武汉封城的第2天，汪建到达武汉！ 2020年2月5日，武汉火眼实验室搭建完成，开始投入使用。
+
+未完待续。
+
+
+![Image](https://pbs.twimg.com/media/E8W4LZ9VIAQUfzm?format=jpg&amp;name=900x900)
+
+
+![Image](https://pbs.twimg.com/media/E8W4LZ9UUAAnseq?format=jpg&amp;name=small)
+
+编辑：流浪的阳光
+
+校对/发稿：Serena
+
+新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+
+新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
 
  
 

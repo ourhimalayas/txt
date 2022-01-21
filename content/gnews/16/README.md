@@ -2,33 +2,32 @@
 ---
 
 
-## 加拿大卫生部批准使用辉瑞中共病毒口服药
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1886437/)
+## 七哥谈用生命和鲜血换来的每一个字（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1886634/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月18日，据相关媒体报道称，加拿大卫生部于本月17日批准了第一种口服中共病毒治疗药物。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-11.jpg)
-资料显示，Paxlovid是辉瑞公司生产的一种口服抗中共病毒药丸，该公司声称其可通过阻止病毒复制起到治疗作用。据加拿大联邦公共服务和采购部长透露，该国已经收到了辉瑞提供的首批3.04万个疗程的口服药物，截止3月底，预计还有12万个疗程的药物到货。同时，加拿大安大略省也表示，本月，当地将有1万个剂量的药物首先在全省15家医院供应。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-分析人士对此指出，辉瑞开发的中共病毒口服药缺少足够的临床测试，这导致该口服药和现有的中共病毒疫苗一样，需要使用人体作为实验样本。相较而言，那些经过长期使用且被证明更有预防及治疗效果的安全药物，如硫酸羟氯喹、伊维菌素和青蒿素等却被政府及各大药厂联合打压。
+来源：郭先生2022-01-17直播09:04:12摘录
 
-此外，郭文贵先生也在直播中反复强调，中共病毒口服药的毒性甚至远远超过中共病毒疫苗，它将给人体带来极为严重的健康风险。
+我们这每一个字，都是用生命和鲜血换来的，中国人生生死死上百年，中国人从来没有一个人敢在美国，在世界上，用生命和鲜血和共产党斗争。这个官司的开始到现在一切，我们的对手就是共产党，代表打官司的全部是共产党的走狗，这还有什么质疑的吗？而且我们从官司的第一天就被违法操作，我4月19号参加VOA大直播，4月18号递的官司，3月份我和刘彦平见面，我4月份在美国才开始，是吧。你想想他怎么跟那个刘彦平沟通啊，他就要警告我不要参加VOA，然后孙立军就一再警告我，你要敢参加VOA，会让你在全世界上没有任何生存的机会，会拿走你家族和你的一切的东西，让你睡在马路上，而且明确告知 PAG啊，就太平联盟叫 PAS，会让你像疯狗一样在大街上，让你找不到任何地方生存的地方，这是孙立军的原话。他有这么偶然吗？4.18和4.19，王岐山和海航，就事情我要爆料的时候他就出来了，最关键我那天爆料的当事人，王岐山、海航，就是 PAS的合作者和股东。2015年宣布要让我倾家荡产，拿走一切，并把同事家人抓走的就是吴征，叫Bruno Wu，吴征又是 PAS 的最大投资者和合作股东。腾讯的音乐，腾讯音乐，百分之百的股东曾经是 PAS，而且Bruno Wu在里边串通起来。这个Ed.Moss，这个律师你看着这我跟他多次打交道我一会再说，Ed.Moss在北京在上海都有律师事务所，在北京的银泰、在上海的金融区。这个律师在中国有营业执照，这些律师是多么的夸张，跟马云和阿里巴巴，他原来的事务所就是跟马云有合作的，跟共产党有合作。马云又是攻击我们的人，包括我们这个法官，法官，Ostrager是一个资深的法官，曾经在律师事务所，就是给马云上市的代表律师事务所，他本人就是参与这个案子。那你说今天我们面对这个案子的时候，我们再回头看，2017年对我最大伤害的是谁？是美国几百年建国历史当中，没有出现过一例，美国司法部被外国机构行贿和腐败的案例，当时就是PAS的投资人、合伙人和海航，以及共产党、王岐山，还有更多的人，包括 PAS在中间，就是这个太平联盟的全面参与的。还有单伟健，干了个什么事情，Hagen , 司法部律师行贿副部长级别，在中国驻华盛大使馆跟中国大使见面，吴征去游说Bannon将我遣返到家去，涉及到美国大佬赌场大佬史蒂芬文、埃里布瑞迪，亲自见孙立军，见王岐山，妮克拉姆戴维斯，中国派在美国的双胞胎间谍，跟今天的英国议会间谍是一样的。司法部都被买通了，你觉得法院还有律师还有买不通的吗？史蒂芬文当场问，埃里布瑞迪全面认罪，还有那个吴征的合伙人，还有纽约 FBI的一个，Richard Miller，跟吴征在北京，蒙古包吃肉看美女跳舞，竟然被列为这一次，PAS官司的调查的律师。不但如此，GTV 投资所有的信息，被非法的让 PAS给拿到，作为证据来攻击我们。为了证明这个证据不是他偷来骗来的，像可能是 FBI这个钱，所谓纽约区的长官，Richard给黑客或偷来的，或者是，当时的Bondi作为 GTV 的一个律师，他是提供给他们的，非法提供他们，他突然提供了一个证据，我们说这个证据是不能动的，这是假的。他说从哪找的？结果说中国全人类，连月亮上的猪都会知道，中国的多维，是中国的北京的总部的间谍情报报网，竟然看出了照片，说这是郭文贵当年说的，还有多维的报道。结果我们战友发现了多维这张照片是晚于这个所谓的案件，就是他po的。太平联盟使用的 GTV信息，早于这个所谓他所说的来自多维的照片，你看造假到什么程度。就是纽约迈哈顿法官想要的证据，共产党马上在网上造出假出来。而且是来自于中国的情报网站—多维。这是美国政府，美国法官都认可的，这个时候的律师是谁啊？Bondi。就是代表GTV打官司就刚才那个Bondi，这个Bondi的律师所叫 CAHILL。
 
-参考链接：[Health Canada approves Pfizer’s COVID-19 antiviral pill Paxlovid](https://www.theglobeandmail.com/canada/article-health-canada-approves-pfizers-covid-19-antiviral-pill-paxlovid/)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**关注我们**
 
-总编/编辑：Ivy001
-校正/发稿：Fei797
+Discord 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
