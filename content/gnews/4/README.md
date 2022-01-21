@@ -2,8 +2,8 @@
 ---
 
 
-## 黑暗势力说打新冠疫苗不会有事，这是一派胡言
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1888899/)
+## 不管任何政权告诉人民不照做，就是不爱国、有危险，这些言论是否似曾相识
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1888958/)
 
 台灣寶島農場
 
