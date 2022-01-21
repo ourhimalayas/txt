@@ -2,51 +2,37 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1890619/)
+## 鲍里斯-约翰逊取消了英格兰的COVID任务——“我们将相信英国人民的判断力”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1890677/)
 
-翻译:wenwu
+**编译：七叶之芒**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip01-6.png)英国首相鲍里斯-约翰逊正在废止COVID的任务。
+从周四开始，学生不再需要在教室里戴口罩。
 
-您若想了解全文报导内容，请点击标题链接
+1月27日，在英国的任何学校或任何地方，口罩将不再是强制性的，参加大型活动也不再需要疫苗护照。政府将转而“建议”在封闭的空间内使用口罩，但让人们选择是否佩戴口罩。
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+政府还将放弃其COVID通行证的要求，不再强迫人们在进入公共场所时出示疫苗接种证明。
 
-1. [在纽约市的反疫苗授权抗议活动中，纽约警察局带走未接种疫苗的儿童](https://www.thegatewaypundit.com/2022/01/shocking-footage-nypd-take-unvaccinated-child-police-car-anti-mandate-protest-nyc-must-see-video/)
+“在全国范围内，我们将继续建议在封闭或拥挤的空间使用口罩，特别是当你与你平时不接触的人接触时，但我们将相信英国人民的判断，不再将选择不戴口罩的人定罪”，约翰逊周三在议会欢呼时宣布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1708.png)图片来源 :thegatewaypundit.com
+英国首相还取消了政府自12月13日起生效的在家工作的要求。英国将开始像对待流感一样对待COVID，约翰逊解释说。
 
-据《门户网》2022年1月19日电，一名未接种疫苗的（5岁以上）儿童因未接种中共病毒（COVID19）疫苗被警察从曼哈顿的自然历史博物馆[带走](https://youtu.be/WK-dPxY-Fb8)，上了警车；保安将未出示接种疫苗护照的抗议者锁在博物馆里，直到警察到来。
+“很快就会有这么一天，我们可以完全取消自我隔离的法律要求，就像我们不给人们规定法律义务，如果他们患有流感，就要进行隔离”，约翰逊说，“随着COVID的流行，我们将需要用建议和指导取代法律要求，敦促感染病毒的人小心谨慎，为他人着想。”
 
-2. [令人毛骨悚然的比尔·盖茨威胁政府增加疫苗供应](https://www.thegatewaypundit.com/2022/01/creepy-bill-gates-gives-warning-pandemics-far-worse-covid-19-calls-government-increase-vaccine-supplies/)
+英国国家元首坚持认为COVID限制不再是强制性的，因为政府科学家声称，由Omicron变体引发的感染激增“现在已经在全国范围内达到顶峰”，而且英国60岁以上的人中有90%以上已经接受了至少三剂量的Covid疫苗或加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1710.png)图片来源 :thegatewaypundit.com
+就这样，英国变得比美国更自由。
 
-据《门户网》2022年1月19日电，比尔·盖茨周二（达沃斯党）呼吁：各国政府捐助数十亿美元来应对未来的病原体，并增加疫苗供应；比尔及梅林达·盖茨基金会和英国的威康信托基金正在向流行病防备创新联盟（CEPI）提供3亿美元，用于把“下一代”疫苗的开发时间压缩到100天；CEPI已经投资了14种候选疫苗（包括阿斯利康、Moderna和Novavax）。
-
-3. [奥密克戎高峰若结束，是否意味着结束新冠大流行？](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220120-%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E%E9%AB%98%E5%B3%B0%E8%8B%A5%E7%BB%93%E6%9D%9F%EF%BC%8C%E6%98%AF%E5%90%A6%E6%84%8F%E5%91%B3%E7%9D%80%E7%BB%93%E6%9D%9F%E6%96%B0%E5%86%A0%E5%A4%A7%E6%B5%81%E8%A1%8C)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1717.png)图片来源 : www.rfi.fr
-
-据《法广网》2022年1月20日电，奥密克戎毒性下降的现象，首先在南非被人发现，之后在英国，丹麦和法国均得到了证实；杜克大学传染病专家伍兹说：中共病毒（新冠病毒）从大流行病转为地方病（死亡率下降），该病毒会变得常规，我们将为所有人提供更好、更公平的疫苗、治疗和诊断方法。
-
-4. [北京5天增9例本土确诊 冬奥有压力](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220120-%E5%8C%97%E4%BA%AC5%E5%A4%A9%E5%A2%9E9%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A-%E5%86%AC%E5%A5%A5%E6%9C%89%E5%8E%8B%E5%8A%9B)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1719.png)图片来源 : www.rfi.fr
-
-据《法广网》2022年1月20日电，北京新冠肺炎病毒疫情严峻，自15日通报1例本土确诊后，5天内共通报9起病例，涉及Omicron或Delta病毒变体，而且分散于海淀、朝阳、房山及丰台区（感染源来自冷冻库），至少有3条传播链；中共国疾控中心副研究员张宇日前表示，仍在调查朝阳区病例的感染源头。
-
-5. [PayPal禁止处理反对疫苗授权的非营利组织的需求](https://childrenshealthdefense.org/defender/paypal-nonprofits-opposed-vaccine-mandates/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1712.png)图片来源 : childrenshealthdefense.org
-
-据《捍卫者》2022年1月19日电，PayPal于12月21日通知非盈利组织国家疫苗信息中心（National Vaccine Information Center）：任何人无法为该机构捐款，立即生效；PayPal是最新加入Cancle Culture的科技巨头，它关闭了为各种（阻止疫苗授权的）非营利组织提供服务;PayPal与硅谷大科技公司有着千丝万缕的[关系](https://www.businessinsider.com/tech-companies-founded-by-paypal-mafia-full-list-2020-10#secretive-data-company-palantir-was-founded-in-part-by-peter-thiel-paypals-cofounder-1)。
+**新闻来源**：[thegatewaypundit.com][Boris Johnson Scraps COVID Mandates in England: ‘We Will Trust The Judgment of the British People’](https://www.thegatewaypundit.com/2022/01/boris-johnson-scraps-covid-mandates-england-will-trust-judgment-british-people/)
 
 * * *
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
+***审核：蚂蚁兄弟
+校对：花羽
+发布：信心满满***
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-2.jpeg)
+
 
 
  
