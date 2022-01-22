@@ -2,16 +2,12 @@
 ---
 
 
-## 中共国金融界、音乐界、官界的龌龊故事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892597/)
+## 科技寡头和世界各地政府利用疫情建立中央集权式管理
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892685/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-图片来源：雅典娜设计组
+01/17/2022 乔‧艾伦通过介绍纪录片“新常态”讲述了科技寡头和世界各地政府如何利用疫情来摧毁我们的自由和生活，以建立一种中央集权国家的管理模式
 
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

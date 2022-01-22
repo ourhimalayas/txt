@@ -2,24 +2,26 @@
 ---
 
 
-## 日本专家建议 “年轻人可以不用就医在家治疗”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892664/)
+## 胶片上可以印刷半导体电路 碳纳米管的涂装技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892707/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-10.jpg)[图片来源](https://www.google.com.hk/search?q=Omicron&amp;newwindow=1&amp;rlz=1C1YKST_enUS900US901&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiHqo_Zz8T1AhVYJ0QIHeLkBXAQ_AUoAXoECAIQAw#imgrc=TkyzVAaVrKtWJM)
-雅虎新闻报道，专家就中共病毒（新冠病毒Covid-19）对策21日向政府提供建议，Omicron毒株的传播应考虑“恶化风险低的年轻一代仅通过症状进行检测和诊断。”并建议，修改方案，去掉“未经检查”的部分。
+撰稿：东京樱花团/白云朵朵
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-40.png)[图片来源](https://news.yahoo.co.jp/articles/24d2324c6275b312dfa8dfe798fab608fb55c9ac/images/000)
+东丽工业公司（TORAY）日前宣布，它已经建立了一项技术，利用其专有的高性能半导体碳纳米管（CNT）复合材料在胶片上涂覆形成半导体电路。该公司在两年前的成功基础上进行了改进，创造了一种作为玻璃基材上的涂层类型的世界最高水平的半导体。该公司的目标是通过将该技术推广到射频识别（RFID）应用和传感器，在未来将其销售额扩大到100亿日元。
 
-建议称，“高峰最早可能会在最近两周左右达到”，如果所有疑似感染者都使用医疗机构，“将超出医疗提供系统的能力。”
+半导电CNT复合材料是通过在CNT表面沉积半导电聚合物而制成的，在保持CNT导电性的同时可以均匀地分散，并将分散的液体用于制作半导体。东丽公司通过使用该技术实现了半导体中空穴和电子移动性的世界最高水平，即每秒每伏182平方厘米。
 
-此外还表示很多50岁以下没有基础病或肥胖的人，即使感染了，不必去医疗机构就可以在家中接受治疗。”
+这次为了应对胶片，改良了各材料，将工艺低温化、缩短，抑制了胶片的伸缩。运用东丽工程(东京都中央区)的形状追踪型高精度喷墨技术，可以形成各种半导体电路和内存。同时，在通用聚酯上创建了UHF波段RFID和湿度检测传感器，并演示了它的无线可操作性。
 
-信息来源：[“若者受診せず療養”　専門家ら提言を発表（フジテレビ系（FNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/578c6d3158358f513706c090c87c12c19e77f515)
+它旨在分销用RFID标签及防伪、医疗和护理等方面的应用。除了能够通过印刷生产小批量产品外，与硅半导体相比，简单的制造工艺有望降低成本。
 
-*校对：东京樱花团/知了知了
+信息来源：
+
+[フィルム上に半導体回路を形成できる。カーボンナノチューブの塗布技術を確立](https://news.yahoo.co.jp/articles/24d2324c6275b312dfa8dfe798fab608fb55c9ac)
+
+*校对：东京樱花团/haruka春香
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

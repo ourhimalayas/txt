@@ -2,31 +2,24 @@
 ---
 
 
-## 欧洲议会高票赞同检视香港世贸独立会籍
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1892721/)
+## 夏普开发新材料，可按需调节密闭空间湿度
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892727/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-32.jpg)欧洲议会高票赞同检视香港世贸独立会籍 网络ttutu p图片
-据美国之音1月21日报道，欧洲议会20日以585票大比数通过最新的香港决议，列举大量香港自由被剥夺，香港言论、结社、新闻自由被侵犯的事例，重申欧洲议会支持香港人争取民主自由，更首次要求欧盟委员会检视香港在世界贸易组织的独立地位。中共大陆、香港、澳门三地都在世贸组织有独立的席位。
+撰稿：东京樱花团/白云朵朵
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-24.jpg)图片来源于本文链接
+大型电机制造商夏普开发了可以根据保管物品的特征，将密闭空间调节为最佳湿度的新材料。期待在乐器和食品等的保管中得到应用。
 
-决议要求欧洲理事会制裁林郑月娥、李家超等侵犯人权的8名香港及中共国官员，并要求制定一份制裁清单，惩罚与香港人权问题有关的公司，释放和平示威的香港人。“香港国安法”生效后，数十名民主派政治人物被捕，几家民主报纸及网站停运，国际特赦组织关闭两个办公室，超过60个公民团体解散。
+夏普已经开发了两种新的固体材料，一种是片状（板状）的，另一种是直径约5毫米的珠子状，它们可以将一个封闭的空间保持在最佳的湿度水平。该材料可以对应你想要保持的湿度，例如保持40%的湿度或60%的湿度，并且不需要电源，以吸收和释放水分来控制调节。例如，被调节成保持40%到50%湿度水平的珠型材料，适合于保管小提琴等乐器，如果调节成70%左右的话，可以用于在酒窖中促进红酒的适当成熟及各种物品的保管中。此外，板型材料用于住宅墙壁和运输集装箱等方面，有望防止结露。
 
-中共以强权和武力打击香港，但是香港人至今还在抗争。自由民主在香港一百年，成就了香港举世瞩目的辉煌。香港曾经拥有的民主自由已经不复存在，香港在世贸的地位也可能被剥夺。如果世界继续充当中共的帮凶，世界的未来也会面临和香港同样的命运。中共想把谁踢出去就把谁踢出去，没有任何国际规则可以约束中共，整个世界都会被中共踩在脚下。欧盟应该认真对待香港问题。
+夏普具有开发液晶的技术也擅长温度管理，这次关注湿度的新材料，将在今春商品化。研究开发事业本部的香村胜一课长说:“由于有保持湿度的需求，所以才开始研发。今后也想探索在医疗和健康领域的活用。”
 
-新闻参考链接：[https://www.voachinese.com/a/EU-parliament-passes-new-resolution-urging-for-review-of-support-for-Hong-Kong-s-seat-at-world-trade-organization-20220121/6406805.html](https://www.voachinese.com/a/EU-parliament-passes-new-resolution-urging-for-review-of-support-for-Hong-Kong-s-seat-at-world-trade-organization-20220121/6406805.html)
+信息来源：
 
-* * *
+[シャープが新素材開発 密閉空間を最適な湿度に調節](https://www3.nhk.or.jp/news/html/20220118/k10013436801000.html?utm_int=news-business_contents_news-main_003)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/haruka春香
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## VICE记者杨贝贝喜欢吃狗肉，并说：“其实味道很不错”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892943/)
+## 美国和加拿大卡车司机在边境集结以抗议疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892981/)
 
-10/22/2014 VICE记者杨贝贝（Isobel Yeung）喜欢吃狗肉，并说：“其实味道很不错”
+01/19/2022 北美的疫情限制正在对供应链危机产生不利影响。美国和加拿大卡车司机在边境集结抗议疫苗强制令
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
