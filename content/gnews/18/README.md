@@ -2,31 +2,41 @@
 ---
 
 
-## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
+## 民主党议员被揭露是伪君子 一边周游世界一边拒绝上班
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1893484/)
 
-**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1771.png)美国国会议员刘云平
 
+加利福尼亚州洛杉矶县生活新闻（LifeSiteNews） – 加州自由党国会议员刘云平 （Ted Lieu）告诉美国众议院，“由于持续的公共卫生紧急情况”，他不能前往华盛顿特区工作，但被抓到他同时正在度假和享受世界。
 
-Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
+《红州》（RedState）报道说，刘“带着他年迈的父母去百慕大过感恩节，然后去夏威夷过圣诞节，并在10月份与他的妻子和兄弟一起，在洛杉矶的索菲体育场“不戴口罩”观看了一场NFL比赛。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
+《红州》出版物的两篇文章包含刘的旅行照片。他没有挑战天主教主教拒绝为他公开宣扬的一系列致命罪过圣餐，但他显然享受度假。
 
+1 月 10 日，在前往夏威夷仅两周后，刘提交了代理投票请求，要求允许另一位国会议员代替他投票。
 
-据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
-本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+此前2021 年 7 月，刘曾批评在 COVID 封锁 14 个月后选择不戴口罩的人是“少数人的暴政”。
 
-台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
-台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
-来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
+“你无权将你的呼吸道飞沫传播给我、给其他人和公共场所及企业，”刘在一条推文中回应了一个拥有 182 名关注者的账户。“大多数理性的美国人都会反对少数人的暴政，他们坚持把唾液留在所到之处。 而且我们会战胜他们。”
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1773.png)图片来源：lifesitenews.com
+
+“保守派嘲笑刘的说法，因为我们一直在遵循预防措施的常识，而不是加入福奇崇拜，”《红州》编辑詹妮弗·范·拉尔（Jennifer Van Laar）写道，“但我想知道，数百万戴口罩的恐惧上瘾的民主党人，他们几乎仅在快速咬一口东西或啜一口饮料时才摘下口罩，他们独自开着丰田车时也戴着口罩，如果另一个人走进他们 6 英尺的泡沫范围，他们会觉得进入了这些新的社会习俗的恐慌模式？ “
+
+“他们真的会在乎吗？ 那么一线工人怎么办？他们无法远程完成工作，并被迫与未洗过手的群众密切接触，而刘使用流行病为借口，让他人代替投票而不用去工作？” 她问道。
+
+**评论：任何不诚实都将付出代价，政客也一样，人民看清他们伪善就不会再投票给他们。中共就是靠虚伪，假和骗，走到了今天塔西坨的灭亡陷阱。**
+
+素材链接：[lifesitenews.com][Democrat Congressman unmasked as a COVID hypocrite, traveling for fun while refusing to go to work](https://www.lifesitenews.com/blogs/democrat-congressman-uses-covid-emergency-as-excuse-not-to-go-to-d-c-but-travels-for-fun/)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,38 @@
 ---
 
 
-## 如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（七）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893556/)
+## 多家媒体报道塞浦路斯法院释放新中国联邦成员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1893669/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 撰稿：彩虹
 
-我们要让我们的孩子要健康地、自由地、有爱心地，有耐心地（生活），还有更重 要的事情，一定让孩子更多的认知这个世界，不要自私地活下去。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-36.jpg)图片来源：worldakkam
+1月21日，美国《巴伦周刊》、印度《Worldakkam》、塞浦路斯《金融镜》等多家媒体报道，周五，中共在塞浦路斯针对新中国联邦成员进行的引渡请求，法院对该欺诈指控出现了转折，法院在没有收到必须的文件情况下将这对新中国联邦成员母子予以保释。
 
-Rica你看刚才你看到我跟这些年纪大的，我从来没有觉得我多老过，我也从来没觉 得我年轻过，你看到今天，我都认为我不老，你就知道我当年我小的时候从来不认 为我小的（态度）一样。我当年跟那些贺老、郑老打交道，我都是十几岁呀。我12、 13岁时候就（跟）比我大的人打交道，我就是真诚啊，我从来不觉得给人家倒个茶, 点个烟，提个鞋，是什么丢人，我从来没有过。到今天，王雁萍就坐在我旁边，王雁萍，这鞋带掉了，我蹲下来就把这鞋带给系上了。班农的鞋带掉了，我就这么蹲下来系鞋带。班农抽烟我就帮他点烟，因为我担心啥，他那打火机老这样，对着自Bo哇塞，这是自杀，我说，求求你了，你千万别（火对自己），我来帮你点。但是中国人会认为什么？哎呀，你低人一头了。就像中国人到了人家，外国商店，人家单腿跪地给你系鞋带服务，中国人的鼻子仰起来了，哇塞，跪在我地上，多么的无耻啊，把人家的善意对待当成了所谓的屈服，这是多么懦弱的民族，精神阳痿的民族啊。所以说我从小到现在，我从不觉得我蹲下来我为别人服务，我low了，就像战友来了，像Rachel我给她点烟，是吧？有战友给我发信息，七哥你不能这样。长岛哥、Rachel到那儿去，你给Rachel点烟，我们心里很不舒服。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/如何跟年纪大的人打交道面对病毒怎么做来拯救家人朋友（七）-.jpg)
-发布： *tianzhihuan*
+报道说，度假镇帕福斯的地区法院下令从周一开始释放两人，每人保释金为25,000欧元，直到文书工作完成。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+《巴伦周刊》说，根据报道，母子二人通过投资拥有了塞浦路斯的居留权，但由于参与了在美国的相关政治团体，从而因政治信仰而受到中共的打压伤害。
+
+据塞浦路斯警方称，母亲（61岁）和儿子（39岁）是根据中共国当局发出的逮捕令，涉嫌在2013年3月1日至2014年3月31日期间在中共国进行投资欺诈。12月8日在佩亚被逮捕。
+
+辩护律师埃夫斯塔蒂奥斯·埃夫斯塔蒂乌（Efstathios Efstathiou）告诉法新社，由于中共当局将引渡请求发送到塞浦路斯驻北京大使馆，塞浦路斯外交部长没有时间授权法院所需的请求。他说：“只有在部长对引渡请求进行授权后，才能开始引渡，而法院并没有收到引渡请求。没有授权，就不可能有引渡”。
+
+文章说，母子二人反对中共引渡的斗争获得了美国游说团体的支持，包括与美国总统川普（Donald Trump）前顾问史蒂夫·班农（Steve Bannon）有关的游说团体。
+
+值得注意的是，文章公开报道说，辩护律师埃夫斯塔蒂奥斯说，这对母子是新中国联邦（New Federal State of China）的成员，这是一个反对中共政府的组织。同时，报道也提及了郭文贵先生，报道指母子二人与另一个反对中共政府的美国团体法治基金（Rule of Law Foundation）有关系。
+
+另据塞浦路斯当地报纸《Politis》报道说，司法部和内政部收到了法治基金的一封信，信中指出该组织旨在“保护公开反对中国腐败和非法活动的个人”。
+
+辩护律师指出，与性别、宗教或政治信仰有关的歧视是不执行引渡的理由。同时，“不仅仅是政治因素，由于案件的复杂性，引渡程序会长达18个月”。
+
+**新闻来源**
+
+[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
+
+[Cyprus extradition twist for Chinese pair](https://www.financialmirror.com/2022/01/21/cyprus-extradition-twist-for-chinese-pair/)
+
+[Cyprus Handover Twist for Chinese Pairs](https://worldakkam.com/cyprus-handover-twist-for-chinese-pairs/664344/amp/)
 
  
 
