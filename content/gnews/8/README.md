@@ -2,37 +2,37 @@
 ---
 
 
-## 春节防疫层层加码 部分返乡人员被“误伤”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893980/)
+## 路透社独家报道： 美国反对加强世界卫生组织的计划
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1894078/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+新闻来源：路透社
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642851207833.jpg)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/FZLEIBRX2BOPJJK3JOGWZSLVGE-2.jpg)
 
 
-据21世纪经济报道：当前疫情形势下，部分返乡人员在各地层层加码的防疫政策下被中途“劝返”，还有部分人员被途经地强制隔离。
+资料来源：路透社
 
-目前，中共国各地对于“中高风险”区域在理解和执行防疫措施时出现了“扩大化”趋势，导致很多春节返乡人被“一刀切”。
+四名参与谈判的官员表示，作为世界卫生组织的最大捐助国，美国正在拒绝让该机构更加独立的提议，这引发了人们对拜登政府对联合国的长期支持的质疑。
 
-据了解，多地疫情防控政策人群分类并不精确。虽然配合防疫是每个公民的义务，但各地在落实防疫时却有着不同程度的升级，误伤了大量来自中风险地区所在城市的返乡人员。
+根据世界卫生组织 1 月 4 日在线发布的一份文件，该提案由世界卫生组织可持续融资工作组提出，将增加每个成员国的常设年度捐款。
 
-中共国国家发改委秘书长赵辰昕之前指出，去年过年，一些地方出现擅自加码防控标准，甚至个别出现劝返、强制隔离等情况，当时对这些问题坚决予以纠正。
+该计划是由 COVID-19 大流行激发的更广泛改革进程的一部分，这凸显了世卫组织在危机早期干预的权力的局限性。
 
-国家卫健委新闻发言人米锋2021年12月18日表示，元旦春节临近，冬春季疫情防控要始终坚持“动态清零”总方针，着力在科学精准上下功夫。要因地制宜、分类指导、分区施策，在落实防控措施的同时，保障人员安全、有序流动，坚决防止简单化、“一刀切”等，最大限度减少对群众生产生活的影响。
+但美国官员告诉路透社，美国政府反对这项改革，因为它担心世卫组织应对未来威胁的能力，包括来自中国的威胁。
 
-参考链接：[https://c.m.163.com/news/a/GU957RR805199NPP.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GU957RR805199NPP.html?spss=today-news-hotrank)
+相反，它正在推动建立一个由捐助者直接控制的单独基金，为预防和控制突发卫生事件提供资金。
 
-*发布：tianzhihuan*
+参与会谈的四名欧洲官员证实了美国的反对意见，他们拒绝透露姓名，因为他们无权向媒体发表讲话。美国政府没有立即发表评论。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+一段时间以来，华盛顿一直对世卫组织持批评态度。
+
+日本、中国和巴西政府没有立即发表评论。
+
+🔗 [美国拒绝强大世界卫生组织](https://www.reuters.com/world/us/exclusive-us-opposes-plans-strengthen-world-health-organization-2022-01-21/)
+
+责任编辑/发布： Shuizhuyu
 
  
 
