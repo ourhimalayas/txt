@@ -2,33 +2,35 @@
 ---
 
 
-## 加入新中国联邦改变人生
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892448/)
+## 英国警告中俄：民主国家将团结对抗独裁专制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1892553/)
 
-作者：纽约香草山农场教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月19日，郭文贵先生答疑战友时指出，新中国联邦目前真正能帮助到的同胞非常有限，还有更多人被中共奴役而不自知，这些同胞只有主动靠近新中国联邦才能自救。目前真正加入到新中国联邦中来的只有三百万人左右，仅仅是14亿的同胞中的沧海一粟。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-10.png)
-郭先生说，喜币、喜联储和G系列终会成为世界金融的未来，并彻底改变战友们的命运。在喜币上市短短两个月，已经创造了人类史、金融史上都是从未有过的奇迹。呼吁战友们不要害怕和懒惰，使用盖特和GTV，以获得“使用即金钱”的躺平币，尝试购买喜币，抓住机遇，改变人生。
+#### **撰稿：**日本东京方舟农场  老孙
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E4E919E8-2271-423E-B482-F0CD64C9C466.png)（图片取自推特）
 
-- [2022年1月19日 文贵大直播](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
+1月21日路透社报道，英国外相特拉斯周五在对澳大利亚进行访问时，向中俄元首发出警告，英国及其盟友将会团结一致为民主而战，对抗专制政府独裁，并表示目前独裁专制国家是自冷战以来态度最为嚣张的时期。
 
+英国外相特拉斯与英国国防大臣华勒斯（Ben Wallace），在今天出席悉尼召开的「澳洲－英国部长级咨商会议」（AUKMIN）（Liz Truss）时表示，英国与其来自由世界的盟友，必须联手应对全球性威胁，深化与印太地区（Indo-Pacific）民主国家的关系，遏止全球侵略者，这些侵略者凭借自己对他国的经济影响力为所欲为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+英国与澳洲两国部长发表联合声明，就俄罗斯在乌克兰边界增兵表达关切，并表示两国绝对力挺乌克兰的主权和领土完整。
 
-总编：飞虹
-编辑：百香果
-校正/发稿：海阔天空1
+双方还在会上讨论了澳洲向英国购买核潜舰的相关事宜，并签署了资助该地区基础设施的协议，以抗衡中共国政府的影响。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+特拉斯表示，民主国家必须坚定立场，并称中国对澳洲的经济胁迫，是对英国的警示。
+
+随后，特拉斯在澳洲外交政策智库：罗伊国际政策研究院（Lowy Institute）发表演说时警告普京，勿冒进并从乌克兰撤军，以免犯下重大战略错误。英国必须与诸如澳洲、以色列、印度、日本与印度尼西亚等盟友合作，遏止全球侵略者，尤其是在太平洋地区。
+
+*参考链接：[英國警告中俄 民主國家將團結對抗獨裁專制](https://www.cna.com.tw/news/aopl/202201210377.aspx)*
+
+* * *
+
+*素材采编：老孙*
+
+*编辑： 文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

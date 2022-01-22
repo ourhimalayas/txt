@@ -2,38 +2,37 @@
 ---
 
 
-## 阻止房地产崩盘，2022年多家房企加速融资
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1892431/)
+## 华人将对中共法律超限战抗争到底
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892449/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+郭先生在2022年1月17日马丁·路德金纪念日的大直播中，谈到单伟健通过纽约中心区法院的案件，交给郭先生7万多页所谓的“证据”和30多万页法律文件，在既不许选择陪审团，也不许说话和质疑的情况下，直接判郭先生藐视法庭，如此滥用司法管辖权且毫无程序正义，是PAG背后中共一手操纵的法律超限战，滥诉、缠诉。
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-13.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+PAG缠诉案不再是郭先生一人的经济纠纷案，牵扯到美国司法系统被中共渗透，甚至种族歧视等巨大问题。如果我们在PAG案前妥协和放弃而没揭开真相，中共就会穷追猛打，华人在美国将永远成为司法牺牲品而无安全感。
+
+马丁·路德金以宁死不屈的精神成为改变美国司法公正和民主进程的圣贤。新中国联邦人将通过PAG案进一步了解美国司法体系及其法治精髓，感受郭先生为新中国联邦司法体系建立的理念和愿景，成就中国人的法治梦想！
+
+参考链接：
+
+- [2022年1月17日 文贵大直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
 
 
-据《中国经济网》1月20日报道：2022年1月17日，首开股份发布公告称，拟申请注册发行不超过45亿元定向债务融资工具（PPN），期限不超过5年，将采用固定利率，拟用于偿还公司债务和法律法规允许的其他用途。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-1月还没过，房企融资已经大规模开闸，从1月3日旭辉发布的一笔美元债开始，正式开启了2022年开年融资计划。
+总编：童谣
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-022年已有包括龙湖、融创、合生创展等10余家房企通过配股或发债等手段开展融资计划。即便整体市场迎来融资开闸，但偿债高峰的到来，房企仍然面临很大压力。
-
-仅2022年1月份，房企需偿还到期信用债、海外债金额总计达到681.4亿元，占全年需偿还6589.4亿元到期债务的10.3%，而3月份到期债务达到776.3亿元，占比增至11.8%。
-
-受企业违约事件的影响，2021年第三季度房企融资进一步下滑到3079亿元，同比下降32%；到四季度房企的融资一度降到冰点，融资量仅为1767亿元，同比减少55%。
-
-参考链接：[逾6500亿债券将到期，2022开年房企融资加速](http://m.ce.cn/cj/gd/202201/20/t20220120_37273056.shtml)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

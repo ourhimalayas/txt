@@ -2,16 +2,12 @@
 ---
 
 
-## 中植将是下一个海航
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892726/)
+## 天津市人民：我们饿了！我们要吃饭！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892869/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-图片来源：雅典娜设计组
+1月17日晚，天津市西青区大寺镇，外地人因没有物质，吃不上饭，集体抗议，有人当场被抓，引发群众大喊。大批中共匪警赶往天津西青区大寺镇，镇压被困在那里没饭吃的外地人。“这些人居然敢喊饿，查查是不是反华势力煽动”。
 
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
