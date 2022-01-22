@@ -2,16 +2,21 @@
 ---
 
 
-## 中共国反对斯洛文尼亚加强台湾关系的计划
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1893360/)
+## 如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893420/)
 
-翻译/简评：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01222.jpg)图片来自luiss.it
-在欧盟国家宣布打算加强与台湾岛的关系后，中共国批评了斯洛文尼亚。当局声称台湾是自己的领土，如果有必要，有一天会以武力夺回。近年来，北京加大了在外交上孤立台湾的力度，并一再抗议国际社会向台湾提供的任何形式的支持，因为国际社会可能会赋予该岛的国际合法性。中共国外交部发言人赵立坚今天在新闻发布会上说：“我们注意到斯洛文尼亚领导人亚内兹·扬萨公开发表危险言论，挑战“一个中国”原则，支持“台独”。”
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-原文链接：[https://www.ansa.it/nuova\_europa/it/notizie/rubriche/altrenews/2022/01/19/cina-contro-slovenia-per-piani-rafforzamento-rapporti-taiwan\_8dae7c70-6de0-4afe-990a-e72e4f593ca4.html](https://www.ansa.it/nuova_europa/it/notizie/rubriche/altrenews/2022/01/19/cina-contro-slovenia-per-piani-rafforzamento-rapporti-taiwan_8dae7c70-6de0-4afe-990a-e72e4f593ca4.html)
+班农先生弟弟染上好过来了，妹妹癌症病人染上缓过来了，昨天CFO也染上了，皮 尔（音译）染上了，女儿又染上了。今天早晨，他女儿给我发信息，感动的不得了。 所以说大卫王，Rica还有你们共同的问题，要想和不同年代人打交道，你真的要有爱心，爱心加上耐心，你就是魅力无限。更重要的事情，千万不要听你爸妈的，特别是别听你爸妈，我再重申一遍。中国的爸妈教给孩子的，无意识间就是“什么人家呀。你别吃亏呀！他不一定是好人呐。沾咱便宜呀。”哎呀我的妈呀，我一听着中国人这个教育，我就快疯掉了。我们家是个几百口人的家族，我一看到我的嫂子们，和我的哥哥跟孩子说话，是我最痛苦的事。说心里话，是我最痛苦的。他们的教育，他们的知识，他永远这么说啊。一看我看张报纸，“哎，那谁明星昨天给我打电话了，怎么样？台湾那个什么明星，”台湾的很多明星跟我哥都很熟很熟的，男的女的很熟，实际是想接近我嘛。“那谁明星啊、啥啊，老七她想能不能见你啊？ “你知道我说啥？然后就给他孩子“哎，我跟你谁见什么明星去啊。”你说这孩子有出息吗？就他爹把这个明星当成了最高偶像，他孩子能有出息吗？还有个动不动说，“咱不吃亏啊，咱得下手为强啊。这事儿咱不能吃亏啊，先先拿到手再 说。”都这样。所以中国移民出来的我们所有的战友们，我每次直播就告诉大家。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/如何跟年纪大的人打交道面对病毒怎么做来拯救家人朋友（六）-.jpg)
+发布： *tianzhihuan*
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 因为讲伊维菌素有用而被解雇,医生将医院告上法庭
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893120/)
+## 本·哈恩威尔：NBC和ESPN知道中共病毒在北京失控
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893159/)
 
-01/20/2022 一名前休斯顿卫理会医院的医生因为讲伊维菌素有用而被医院以传播“错误信息”的理由而解雇。现该医生已将医院告上法庭。
+01/21/2022 本·哈恩威尔：NBC和ESPN不派播报团队，因为知道中共病毒在北京失控。战斗室，2022年1月21日。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

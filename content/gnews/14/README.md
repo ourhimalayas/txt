@@ -2,16 +2,20 @@
 ---
 
 
-## 陈凯歌就是垃圾
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893227/)
+## 爱尔兰取消了几乎所有的限制
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1893297/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-图片来源：雅典娜设计组
+翻译/简评：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01221.jpg)图片来自tgcom24
+爱尔兰总理迈克尔·马丁在向全国发表的电视讲话中宣布：从01月22日开始，爱尔兰取消几乎所有为应对 Omicron 变体而引入的反 Covid 限制。
 
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
+因此，本周末爱尔兰的酒吧和餐馆恢复正常，不再要求顾客提供绿色通行证。此外，消除了社交距离的指示以及观众对户外和室内活动的限制。
 
+从周一开始，智能工作的指示也将停止，并将逐步恢复工作。戴口罩的义务将至少持续到 2 月底，国际旅行仍需要绿色通行证，有症状的人也需要自我隔离。
+
+原文链接：https://www.ansa.it/sito/notizie/topnews/2022/01/21/covid-irlanda-elimina-quasi-tutte-le-restrizioni\_d9d2dd23-577c-4439-bdd1-c5c0b110e0f3.html
+
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

@@ -2,28 +2,16 @@
 ---
 
 
-## 世界卫生组织(WHO)近期会议【建议】世界各国解除禁令
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1893246/)
+## 中共国反对斯洛文尼亚加强台湾关系的计划
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1893360/)
 
-撰文: 新中国联邦静2022/01/21
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-302.jpeg)
-世界卫生组织(WHO)于2022年1月19日的会议决议内容中第6项和第7项公布:
+翻译/简评：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01222.jpg)图片来自luiss.it
+在欧盟国家宣布打算加强与台湾岛的关系后，中共国批评了斯洛文尼亚。当局声称台湾是自己的领土，如果有必要，有一天会以武力夺回。近年来，北京加大了在外交上孤立台湾的力度，并一再抗议国际社会向台湾提供的任何形式的支持，因为国际社会可能会赋予该岛的国际合法性。中共国外交部发言人赵立坚今天在新闻发布会上说：“我们注意到斯洛文尼亚领导人亚内兹·扬萨公开发表危险言论，挑战“一个中国”原则，支持“台独”。”
 
-6. 赞成解除或放宽国际旅行禁令。
+原文链接：[https://www.ansa.it/nuova\_europa/it/notizie/rubriche/altrenews/2022/01/19/cina-contro-slovenia-per-piani-rafforzamento-rapporti-taiwan\_8dae7c70-6de0-4afe-990a-e72e4f593ca4.html](https://www.ansa.it/nuova_europa/it/notizie/rubriche/altrenews/2022/01/19/cina-contro-slovenia-per-piani-rafforzamento-rapporti-taiwan_8dae7c70-6de0-4afe-990a-e72e4f593ca4.html)
 
-7. 赞成国际旅行不需要新冠疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-300.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-301.jpeg)
-引用来源
-
-[https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-(2005)-emergency-committee-regarding-the-coronavirus-disease-(covid-19)-pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
