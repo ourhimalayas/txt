@@ -2,8 +2,8 @@
 ---
 
 
-## 欧盟最少三到四个国家，可能关掉中共的大使馆
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895203/)
+## 冬奥绝对会成为中共的噩梦
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895359/)
 
 台灣寶島農場
 

@@ -2,24 +2,38 @@
 ---
 
 
-## 比尔盖茨&#8212;一个有精神病的小偷想控制全 世界
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1894841/)
+## 面对刑事诉讼，币安在泰国“推陈出新”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1895015/)
 
-###### **整理：雅典娜速记组**
-**编辑：请你喝可乐**
+据《Bitcoin.com》记者Kevin Helms，2022年1月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1804-e1642869734825.png)图片源自：Bitcoin.com
+泰国证券交易委员会（SEC）对币安（Binance）无牌经营提起诉讼。而币安与泰国上市公司海湾能源发展公司（Gulf Energy Development）签署协议，尝试建立新的加密货币交易所。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/比尔盖茨-一个有精神病的小偷想控制全世界-.jpg)
+**泰国上市公司海湾能源发展公司周一通知泰国证券交易所（SET），其全资子公司海湾Innova已与币安集团签署谅解备忘录，共同研究数字资产交易所和相关领域的发展途径。**
 
-几个极端政府，像澳大利亚几个州长，几 个警察头子出来把人往死里整， 凡是推广打疫苗的，全世界就那二、三十 个人，没有一个是好东西，没有一个不跟 共产党有来往的，没有一个不看着眼目狰 狞的。 比尔盖茨那个烂货，生活中就是一个精神 不健康的人，你看他赚钱，他的技术都是 偷来的，一个精神不健康的小偷，他还想 统治全人类呢，媒体集体的堕落。 世界上几个邪恶政治家同时在一、二年内, 被莫名其妙地选举当上了官员和国家领导 人，然后叫自己国家人全闭嘴。 小土豆，加拿大那个家伙，他绝对不正常, 你七哥见到的事太多了，前2天见一个人， 他说，你千万不用WIFI，我也不用WIFI，所 有你用过的WIFI，都会在暗网中出现。 所以，想干这一票疫苗灾难的人，掌握所 有这些国家领导人及家人的视频，太容易了
+**该公司补充，随着经济越来越受创新和技术的推动，泰国数字基础设施将快速增长。数字资产和相关技术在提升该国金融基础设施和满足泰国市场需求方面发挥着突出作用。**
 
-*发布：请你喝可乐*
+**海湾能源详述认为, 与币安的合作将帮助泰国推进其数字资产和区块链基础设施的发展。**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+币安最近在泰国证券交易委员会遇到了麻烦。该委员会去年7月宣布，它向泰国皇家警察（ECD）经济犯罪打击部门提起针对币安刑事诉讼。
+
+根据证券交易委员会的说法，币安未经许可经营加密货币交易业务，并认为该公司“可能受到刑事制裁”。
+
+文章来源：[https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/](https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场– 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

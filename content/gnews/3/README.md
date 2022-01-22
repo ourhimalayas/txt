@@ -2,8 +2,8 @@
 ---
 
 
-## 艺术可以成为我们共同的语言
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895141/)
+## 中共对艾司摩尔公司的渗透破功
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895325/)
 
 台灣寶島農場
 

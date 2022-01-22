@@ -2,32 +2,35 @@
 ---
 
 
-## 中共挥霍数万亿邀外国政要站台北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894926/)
+## 有声|达沃斯党就是世界的共产党
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895032/)
 
-作者：纽约香草山教育部-Noemi
+配音：香草山健身部 – 玫瑰园
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，郭文贵先生在盖特视频中透露，中共不惜花费数万亿人民币利诱俄罗斯以及其他几个小国家给此次冬奥会站台、捧场。
+郭文贵先生在1月19日的大直播中指出，达沃斯党就是面向全世界的共产党，而中共就是中国境内的达沃斯集团。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-19.jpeg)
+郭先生解释道，近年来，世界上仅有为数不多的几个人可以参与达沃斯论坛。而对于近几年的西方世界而言，即使是美国总统或日本大财团都不在其中。这也导致了达沃斯的核心只有以中国共产党为首的极少数人，且这些核心无论身处何种党派，追根溯源都能找到与创立共产党的马克思、恩格斯等的联系。
 
-郭先生爆料称，在即将到来的中共北京冬奥会上，仅普京一人24小时的出场费就高达一千多亿美元，这相当于中共国内某省份整整一年的总产值。然而，努力创造了这些财富的中国人民却变得日益穷困、多病，更遭受着非人的待遇。郭先生为此感叹道，中共国的财富都是由百姓创造的，但它们却被中共盗国贼们拿去肆意挥霍。而普通百姓的悲哀在于，他们的快乐更少，疾病却越来越多。
+原文链接：[达沃斯党就是世界的共产党](https://gnews.org/zh-hans/1890021)
 
-参考链接：[https://www.gettr.com/post/ppmbdz1103](https://www.gettr.com/post/ppmbdz1103)
+音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：童谣
-编辑：DM
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  

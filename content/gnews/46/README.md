@@ -2,28 +2,38 @@
 ---
 
 
-## 日美线上首脑峰会新设经济版“2+2”另有深意
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893902/)
+## 美媒抨击强制疫苗令危害远胜切尔诺贝利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894157/)
 
-撰稿：东京樱花团｜麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-1-11.png)[*图片来源*](https://www.sankei.com/resizer/EzDm8rHsSUKHAXd6k8H6g5hbj5I=/1142x737/smart/cloudfront-ap-northeast-1.images.arcpublishing.com/sankei/ZCE2RI65UJBAHGPMYPJEHA2HXQ.jpg)
-1月21日晚，日本首相岸田文雄与美国总统拜登举行线上峰会。两国同意加强日美同盟，推进“自由开放的印太”理念，建立“2+2”经济版，作为两国外交与经济方面部长级交流的新框架。 拜登政府不信任岸田政府的“对华立场”，但此时回应会晤的真正意图是什么？一位学者说，这是为了“争取支持率”和“牵制日本商业界”。
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
 
-据白宫透露，这次高调会谈持续了大约1小时20分钟，由于双方都有翻译，会议实际上持续了大约40分钟。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.38.50-PM.png)
 
-此时，除了开头提到的经济版 “2+2” 协议外，还讨论了以下问题：日美安全条约第5条对冲绳县尖阁诸岛的适用；对中共国人权状况的共同关切；确认《核不扩散条约》的重要性；确认在太空、网络、信息安全和先进技术等下一代领域的合作；继续对日本国防部门进行投资；防止中共病毒在驻日美军中蔓延；日美就乌克兰局势进行合作；以及岸田首相对“新资本主义”的说明。这些会谈内容都是美日外交当局事先协调的结果。
+据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
 
-日本相关评论人士表示，拜登政府针对中共病毒、阿富汗撤军、乌克兰问题等一系列措施遭到美国人民的严厉批评，此次会谈可能目的在于利用美日经济版的 “2+2” 作为在11月中期选举前恢复其暴跌的支持率的一种方式。
+该媒体还提到，美国政府在应对该生物武器引发的疫情时，竟然推出了一种危险的、具有快速跟踪功能的mRNA刺突蛋白“疫苗”。值得注意的是，这种所谓的“疫苗”其实是一种破坏血管和神经系统的工程基因疗法，但美国政府正在试图将其强加给全美民众。数据表明，全美因中共病毒疫苗死亡的人数已超过了80万，而这一数据还在不断攀升。
 
-拜登政府似乎也对信息和技术从日本流向中共国感到担忧。去年12月，日本经济团体联合会和日本企业经营者协会敦促谨慎对待日本对北京冬奥会的“外交抵制”，所以美方的经济版 “2+2” 的提议也意在牵扯日本商界。
+该媒体最后列举到，前苏共政府在上世纪80年代因官僚腐败和掩盖真相导致了切尔诺贝利核灾难的发生，彼时有数千人丧生于灾难之中，而联邦政府目前推行的强制疫苗令已经并且将继续造成比切尔诺贝利更恐怖的灾难。
 
-看来拜登要提高支持率只有灭共，并且要加大力度灭共，还要拉上同盟国日本并牵扯其商业界坚决支持灭共。
+参考链接：[The vaccine holocaust is America’s CHERNOBYL… but USA leaders are committing even MORE deaths and deeper EVIL than former Soviet Union officials](https://newstarget.com/2022-01-20-the-vaccine-holocaust-is-americas-chernobyl.html)
 
-信息来源：[**経済版「２プラス２」新設へ　日米オンライン首脳会談、バイデン政権の狙いは中間選挙見据え「支持率ＵＰ」と中国に非常に甘い「日本牽制」**](https://news.yahoo.co.jp/articles/ebd6bc374f2570c860e90d5a18f3ea0cc1dd7776)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑：Kathy文艺 
+总编：童谣
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
