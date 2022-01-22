@@ -2,8 +2,8 @@
 ---
 
 
-## 房地产没有脆断是好事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1895989/)
+## 七哥什么时候盯上王歧山的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1896098/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组
