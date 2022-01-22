@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥绝对会成为中共的噩梦
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895359/)
+## 冬奥会和中共政权暴政
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895409/)
 
 台灣寶島農場
 

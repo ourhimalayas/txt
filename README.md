@@ -15,122 +15,122 @@
 
 ---
 
-### [美国务院下令驻乌克兰大使馆人员家属撤离](/content/gnews/1/README.md)
+### [有声|奥地利议会通过对所有成年人实行强制性疫苗接种的规定](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [有声|星巴克取消员工中共病毒疫苗强制令](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|拜登政府计划向民众免费发放N95口罩](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [冬奥会和中共政权暴政](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [有声|港共政府以执行“病毒清零”计划为名，强制处理上千只仓鼠](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [对中共国军事和经济影响的担忧，美日希望在“经济安全”上更紧密地合作。](/content/gnews/6/README.md)
+ ` Shuizhuyu`
+
+### [美国务院下令驻乌克兰大使馆人员家属撤离](/content/gnews/7/README.md)
  ` 华盛顿DC-Russian`
 
-### [美国派遣航空母舰到日本](/content/gnews/2/README.md)
+### [美国派遣航空母舰到日本](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声|泰国将于2月恢复对已接种疫苗入境者的隔离豁免](/content/gnews/3/README.md)
+### [有声|泰国将于2月恢复对已接种疫苗入境者的隔离豁免](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [冬奥绝对会成为中共的噩梦](/content/gnews/4/README.md)
+### [冬奥绝对会成为中共的噩梦](/content/gnews/10/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声|八弟和六四英雄们的生命唤醒了七哥灭共的决心](/content/gnews/5/README.md)
+### [有声|八弟和六四英雄们的生命唤醒了七哥灭共的决心](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [文贵爆料1.19 金融界梵蒂冈卢森堡将与新中国联邦正式合作](/content/gnews/6/README.md)
+### [文贵爆料1.19 金融界梵蒂冈卢森堡将与新中国联邦正式合作](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共对艾司摩尔公司的渗透破功](/content/gnews/7/README.md)
+### [中共对艾司摩尔公司的渗透破功](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声|中共和达沃斯是万恶之源](/content/gnews/8/README.md)
+### [有声|中共和达沃斯是万恶之源](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [中共的愚蠢无知在冬奥委会显露无遗](/content/gnews/9/README.md)
+### [中共的愚蠢无知在冬奥委会显露无遗](/content/gnews/15/README.md)
  ` G-NEWS TAIWAN`
 
-### [未来最安全冷钱包的拥有者，将是人类财富的最大守护者](/content/gnews/10/README.md)
+### [未来最安全冷钱包的拥有者，将是人类财富的最大守护者](/content/gnews/16/README.md)
  ` YALUN 亚伦`
 
-### [疫苗国度：请相信‘科学’](/content/gnews/11/README.md)
+### [疫苗国度：请相信‘科学’](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [为应付中共造假，美国不得不录像](/content/gnews/12/README.md)
+### [为应付中共造假，美国不得不录像](/content/gnews/18/README.md)
  ` G-NEWS TAIWAN`
 
-### [Omicron 病例激增正在破坏针对其他健康问题的医疗护理](/content/gnews/13/README.md)
+### [Omicron 病例激增正在破坏针对其他健康问题的医疗护理](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
 
-### [欧盟最少三到四个国家，可能关掉中共的大使馆](/content/gnews/14/README.md)
+### [欧盟最少三到四个国家，可能关掉中共的大使馆](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共国奥园集团有限公司美债违约](/content/gnews/15/README.md)
+### [中共国奥园集团有限公司美债违约](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新冠病毒 Omicron 及治疗解读](/content/gnews/16/README.md)
+### [新冠病毒 Omicron 及治疗解读](/content/gnews/22/README.md)
  ` 香草山醫療部`
 
-### [澳洲维多利亚呼吁退休教师及准毕业生加入师资储备](/content/gnews/17/README.md)
+### [澳洲维多利亚呼吁退休教师及准毕业生加入师资储备](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [艺术可以成为我们共同的语言](/content/gnews/18/README.md)
- ` G-NEWS TAIWAN`
-
-### [澳研究中心：CCP病毒肆虐导致饮食失调的案例增加](/content/gnews/19/README.md)
+### [澳研究中心：CCP病毒肆虐导致饮食失调的案例增加](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
 
-### [WHO表示，没有证据表明健康的儿童和青少年需要加强针](/content/gnews/20/README.md)
+### [WHO表示，没有证据表明健康的儿童和青少年需要加强针](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [要把中国人从噩梦中解脱](/content/gnews/21/README.md)
- ` G-NEWS TAIWAN`
-
-### [币安倒掉对喜币的影响](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [2022/01/22 英喜时事速递](/content/gnews/23/README.md)
+### [2022/01/22 英喜时事速递](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2022年1月22日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2022年1月22日早](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [面对刑事诉讼，币安在泰国“推陈出新”](/content/gnews/25/README.md)
+### [面对刑事诉讼，币安在泰国“推陈出新”](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [川普称 中共将在冬奥会后挑动台海局势](/content/gnews/26/README.md)
+### [川普称 中共将在冬奥会后挑动台海局势](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [1/21/2022 文贵直播：《新中国联邦宣言》体现出我们的价值和追求跟西方社会是一致的](/content/gnews/27/README.md)
+### [1/21/2022 文贵直播：《新中国联邦宣言》体现出我们的价值和追求跟西方社会是一致的](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭先生爆料西方社会将与中共双脱钩](/content/gnews/28/README.md)
+### [郭先生爆料西方社会将与中共双脱钩](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [1/21/2022 文贵直播：中共已穷途末路 &#8211; 面临外交脱钩、科技脱钩、冬奥会惨淡收场和全世界展开病毒溯源](/content/gnews/29/README.md)
+### [1/21/2022 文贵直播：中共已穷途末路 &#8211; 面临外交脱钩、科技脱钩、冬奥会惨淡收场和全世界展开病毒溯源](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/30/README.md)
+### [中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议](/content/gnews/31/README.md)
+### [越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [诺贝尔奖获得者Luc Montagnier教授称新冠疫苗是毒药！](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [NBC体育频道不会派播报团队去北京冬奥会](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [独家: 阻止联邦政府与北京冬奥会赞助商签订合同的立法正被“沼泽地”挫败](/content/gnews/34/README.md)
+### [独家: 阻止联邦政府与北京冬奥会赞助商签订合同的立法正被“沼泽地”挫败](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年中共国减少了500万育龄妇女](/content/gnews/35/README.md)
+### [2021年中共国减少了500万育龄妇女](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [01/22/22 香港快讯 葵涌村2700人居家隔离 至少70宗初步确诊](/content/gnews/36/README.md)
+### [01/22/22 香港快讯 葵涌村2700人居家隔离 至少70宗初步确诊](/content/gnews/37/README.md)
  ` 英喜-粵語組`
 
-### [【玫瑰看新闻】每日快讯 2022年1月17日（新西兰时间）](/content/gnews/37/README.md)
+### [【玫瑰看新闻】每日快讯 2022年1月17日（新西兰时间）](/content/gnews/38/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [1/22/2022国际财经快讯：美国暂停中国航空公司44个美国航班；耶伦称普及学前教育和收入税收抵免是核心](/content/gnews/38/README.md)
+### [1/22/2022国际财经快讯：美国暂停中国航空公司44个美国航班；耶伦称普及学前教育和收入税收抵免是核心](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
-
-### [春节百姓返乡 中共无能懒政一刀切](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/40/README.md)
  ` 首尔天池农场`

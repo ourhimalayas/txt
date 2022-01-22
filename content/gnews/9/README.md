@@ -2,10 +2,42 @@
 ---
 
 
-## 中共的愚蠢无知在冬奥委会显露无遗
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895246/)
+## 有声|泰国将于2月恢复对已接种疫苗入境者的隔离豁免
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895370/)
 
-台灣寶島農場
+配音：香草山福音部 – 文凯琳
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-27.jpg)
+
+
+
+据路透社报道，泰国冠状病毒特别工作组周四（2022年1月20日）表示，泰国将从 2 月 1 日起恢复对已接种疫苗的入境者的“测试与出发”检疫豁免，以预防中共病毒的快速传播。 发言人在简报会上说，该政策要求游客在抵达时和五天后均需进行测试，同时要同意追踪他们的行踪。
+
+该工作组还准备扩大另一个类似的隔离豁免计划的范围，即接种疫苗的游客必须同意在一个地方停留一周。该计划目前在普吉岛和苏梅岛实施，工作组准备把受人欢迎的东部海滩的芭堤雅和象岛也加入其中。 当局还将允许餐厅供应酒精的时间从晚上 9 点延长至晚上 11 点，但酒吧和夜总会将保持关闭。 这些举措旨在重振因全球旅游需求疲软和泰国严格的检疫要求而遭受重创的旅游业。
+
+原文链接：[泰国将于2月恢复对已接种疫苗入境者的隔离豁免](https://gnews.org/zh-hans/1888917/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

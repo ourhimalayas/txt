@@ -2,29 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1895022/)
+## 澳研究中心：CCP病毒肆虐导致饮食失调的案例增加
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1895135/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+撰稿：Gradient Boost
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/01/012105.jpg)网络图片
 
-视频参看：[2022.01.22早GTV新闻访谈](https://gtv.org/video/id=61ec064b533c672fca80fb8b)
+在澳大利亚CCP病毒大流行期间，患有饮食失调症的居民出现“显着增加”。于是一个新的国家治疗和预防研究中心InsideOut 研究所应运而生，专门负责此项调查。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+该研究所调查了在2020 年第一次CCP病毒爆发浪潮期间的 1723 名患有饮食失调症状的人，结论显示有66% 的参与者出现了暴饮暴食的症状，49% 的人出现运动过量的症状，25% 的人开始进行更多的自我催吐的行为。同时，有88%增加了他们对于对自身形体的担忧，74% 的参与者开始刻意限制食物的摄取。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+心理健康委员会首席执行官克里斯蒂娜·摩根表示，“饮食失调症呈爆炸式增长”。她表示：“最令人担忧的是，小孩患早发性饮食失调的概率正在增加……过去我们估计有超过一百万澳大利亚人患有饮食失调症，我相信这个数字现在正在大幅增加。”
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+研究所的首席研究员米斯科维奇-惠特利博士说，这些症状的增加是由于 CCP病毒大流行造成的——因为人们的日常生活发生了变化，并且无法获得治疗和支持。
 
+米斯科维奇-惠特利博士说：“CCP病毒大流行公共卫生应对措施虽然是必要的，但对饮食失调患者的心理健康状况产生了不利影响。我不希望我们低估对受饮食失调影响的人的长期影响——这是我们目前正在调查的事情。”
+
+新闻参考链接：[National research centre announced as COVID-19 sparks rise in eating disorders](https://www.9news.com.au/national/eating-disorder-australia-national-research-centre-announced-as-covid-19-sparks-rise-in-eating-disorders/c324e24f-d5cb-48a0-b765-4830a8747e19)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

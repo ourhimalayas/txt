@@ -2,8 +2,8 @@
 ---
 
 
-## 艺术可以成为我们共同的语言
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895141/)
+## 为应付中共造假，美国不得不录像
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895231/)
 
 台灣寶島農場
 

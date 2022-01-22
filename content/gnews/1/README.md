@@ -2,37 +2,46 @@
 ---
 
 
-## 美国务院下令驻乌克兰大使馆人员家属撤离
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1895388/)
+## 有声|奥地利议会通过对所有成年人实行强制性疫苗接种的规定
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895431/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/U-2.jpg)ussanews.com
-《福克斯新闻》刚刚（1月22日）发表文章，“官员称，美国驻乌克兰大使馆人员家属被命令最早于下周一开始撤离”。副标题称，下周，国务院还将鼓励美国人开始乘坐商业航班离开乌克兰。
+配音：香草山福音部 – 文凯琳
 
-全文如下：
 
-美国官员告诉《福克斯新闻》，国务院已命令美国驻乌克兰大使馆工作人员家属最快于周一开始撤离乌克兰。
 
-一位官员说，预计下周国务院还将鼓励美国人开始乘坐商业航班，“当这些航班还在时”，离开乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-周五（1月21日）深夜，美国驻乌克兰大使馆宣布，按照拜登总统的指示，第一批武器已经抵达。
 
-美国官员说，国务院称这是20万英镑极具杀伤力武器中的一部分，其中大部分为小武器。这些援助是乌克兰前线士兵所需要的，美国官员还告诉福克斯，“标枪”（Javelin）反坦克导弹预计将于下周初从波罗的海国家和美国军用储备库中运抵。
 
-俄罗斯先进的战斗机现已抵达乌克兰北部的白俄罗斯，另一位官员补充说，五角大楼担心乌克兰首都“现在正处于众目睽睽之下”。
+据[布赖特巴特新闻网](https://www.breitbart.com/europe/2022/01/21/austrian-parliament-votes-overwhelmingly-to-introduce-mandatory-vaccination-for-all-adults/)1月21日报道，周四，奥地利议会以137票对仅33票的投票中，以压倒性的优势投票决定对所有18岁以上的居民强制接种中共病毒疫苗。
 
-官员们说，美国政府计划在未来几天向乌克兰运送“一吨”的武器弹药。
+因医疗原因不能接种疫苗者和孕妇将被免除强制接种，那些已经从中共病毒中康复的人也将在康复后的6个月内获得豁免。但那些拒绝接种疫苗的人可能面临高达3600欧元的罚款。
 
-（原文完）
-
-看来美俄外交部长会面没有成果，希望拜登这次别像阿富汗撤军那样，让美国在全世界面前丢尽颜面。美国、北约也应该意识到谁是背后的始作俑者，加上最近金三胖的蠢蠢欲动，事出反常必有妖。只有把中共这个恶魔除掉，世界才能得以安宁。
+从3月中旬开始，奥地利警方将在例行检查和交通检查中核查疫苗接种情况，并对那些不能证明已完全接种中共病毒疫苗的人处以罚款。对此，警察工会负责人沃纳·赫伯特（Werner Herbert）表示，警察在这里被用于政治目的是很不恰当的！
 
 原文链接：
 
-[https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
+原文链接：[奥地利议会通过对所有成年人实行强制性疫苗接种的规定](https://gnews.org/zh-hans/1891846/)
 
-**华盛顿DC 望七星**
+音频处理/发稿：Daxia
 
-**编辑发布  水星**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

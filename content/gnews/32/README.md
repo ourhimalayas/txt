@@ -2,12 +2,10 @@
 ---
 
 
-## 诺贝尔奖获得者Luc Montagnier教授称新冠疫苗是毒药！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1894774/)
+## 1/21/2022 文贵直播：中共已穷途末路 &#8211; 面临外交脱钩、科技脱钩、冬奥会惨淡收场和全世界展开病毒溯源
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1894962/)
 
-01/17/2022 诺贝尔奖获得者Luc Montagnier教授：新冠疫苗不仅没起到保护作用，而且正相反，它是毒药！
-
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 
