@@ -2,27 +2,39 @@
 ---
 
 
-## 樱花数据分析│加拿大：两针接种者更易感染奥密克戎毒株
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1894566/)
+## 有声|一周中共病毒及疫苗伤害信息汇总
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894631/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-50.png)
-加拿大阿尔伯塔省官方数据显示，自12月中下旬以来的每10万人新增感染人数，两针接种者超过了未接种者。这与奥密克戎毒株出现的时间相符。
+配音：香草山农场 – 纳米
 
-并与我们观察到的安大略省的数据一致。即两针接种者更易感染奥密克戎毒株。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1794.png)
-按1月20日数据计算，对于两针接种者，疫苗有效率为 -20.8%。 即两针接种者感染风险为未接种者的1.2倍。 ADE和疫苗对免疫系统的破坏需要被调查。
 
-备注：有效率 = 1 – 接种者中感染比例 / 未接种者中感染比例*100%**= 1 – 接种者每10万人感染人数 / 未接种者每10万人感染人数*100%
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月11日至18日，除中共国外，全球新增确诊中共病毒2052万余例，同比上周增长百分之12.7，增长率较上周下降了34个百分点；本周新增确诊死亡病例49653例，同比上周增长了百分之9.65.  截止1月18日，全球除中共国累计接种69.4亿剂中共病毒疫苗，同比上周增长百分之2.51；疫苗接种的增长率较下降了0.54个百分点。
 
-数据来源：
+本周，美国疫苗政策出现重大转向——1月14日美国最高法院以6比3的投票结果，终止美国联邦政府针对私人企业的疫苗政策。基于最高法院的判决，美国通用电气等大型公司随即取消了对员工的强制疫苗要求。英国也宣布松绑疫苗政策，并将终止疫苗护照等工作限制。英国首相鲍里斯·约翰逊也在18日表示，将提前一周，即从下周开始放缓英格兰地区现存的大部分病毒限制措施。
 
-[COVID-19 Alberta statistics](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
+另据以色列最新研究显示，接种了辉瑞或莫德纳的第四针疫苗的医护人员，仍然出现了病毒感染，疫苗的免疫保护形同虚设。国际顶级临床医学杂志《柳叶刀》也在上周发表了来自南非的一项研究，结果显示，基于mRNA平台的疫苗加强针对Omicron毒株无效。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+同样在本周，美国国家过敏症和传染病研究所负责人安东尼·福奇，在2020年的个人财务状况被曝光, 福奇在2020年共有一千多万美金的投资, 包括Matthews Pacific Tiger Fund基金的投资, 值得注意的是，中共是这项基金的主要投资人。
 
+文字版原文：[一周中共病毒及疫苗伤害信息汇总](https://gnews.org/zh-hans/1888055/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

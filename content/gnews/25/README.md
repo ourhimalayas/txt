@@ -2,26 +2,37 @@
 ---
 
 
-## 福奇拒绝为污蔑备受尊敬的流行病学家而道歉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894453/)
+## 有声|诺奖得主称，未接种疫苗的人将拯救人类
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894519/)
 
-##### 翻译：Frank
-校对：精靈藍
-剪辑|字幕：Biggod
-编辑：Mttfly
+配音：香草山农场 – 纳米
 
-斯坦福大学医学教授Bhattacharya博士在接受福克斯采访时称，福奇是国家过敏性传染病研究所的负责人，几乎每一个著名的传染病流行病学家和病毒学家都从他那里得到工资。福奇控制了整个科学界的声音并让人们不断打加强针。Bhattacharya博士呼吁，福奇已经造成了太多伤害，应该让福奇退休了。
 
-视频链接：[Fauci refuses to apologize for smearing highly respected epidemiologists](https://video.foxnews.com/v/6291380964001#sp=show-clips)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月15日，诺贝尔奖得主，法国著名病毒学家吕克.蒙塔尼耶，在意大利当地的反中共病毒疫苗集会中公开表示，未接种中共病毒疫苗的人，将挽救人类并结束这场病毒危机。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+蒙塔尼耶于2008年获得诺贝尔生理学、医学奖，是世界艾滋病研究与防治基金会主席，也艾滋病病毒的发现者之一。
+
+蒙塔尼耶此前曾表示，大规模接种疫苗是不可接受的错误，疫苗根本没有保护作用，而且一些科学家和患者也发现，接种疫苗的人更有可能感染病毒。
+
+文字版原文：[诺奖得主称，未接种疫苗的人将拯救人类](https://gnews.org/zh-hans/1888011/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

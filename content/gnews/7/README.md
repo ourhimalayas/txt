@@ -2,32 +2,42 @@
 ---
 
 
-## 习听闻欧盟多国将同时关闭住中使馆后大怒上海帮
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894674/)
+## 美国将加强芯片投资 以增强对华竞争力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894731/)
 
-撰稿：纽约香草山农场福音部-恩永存
+**【雅典娜快讯】，紧贴时代脉搏**
 
-2022年1月21日，据郭先生在大直播中透露，昨天下午，欧盟多国将同时关闭所有住中国的大使馆，而且是永久关闭。习听说这一消息后大怒，突然觉得上海帮玩弄了他。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-34.jpg)
-郭先生以为，如果欧盟开始关闭住中使馆，美国一定跟着，美国的同盟也会跟着。这一刻如果发生，就预示着政治经济双脱钩，意味着中共开始倒计时。郭先生以前苏联为例，说其解体前，欧洲几大国就先与其断交，世界多国就跟着断交。中共走到今天是因他们对多国使用假、骗、偷，在世界放出黄、金、毒。
-
-郭先生认为，多国与中共断交，是新中国联帮的实力所致，这些与中共断交的国家，必找一个代表中国人的机构，新中国联帮就是唯一的选择。这些与中共经济脱钩的国家，他们的钱只有一个好去处，那就是喜联储。
-
-参考链接：[https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-35.jpg)
 
 
-总编：Irene木木
-校正/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+图片来源：雅典娜设计组
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+整理：Eileen（围剿维尼熊）
+编辑：5m
+
+据路透社报道：1月21日美国众议院议长佩洛希(Nancy Pelosi)表示，美国众议院将提出一项法案，以提高美国对中国的竞争力，并增加在半导体方面的支出。拜登政府正寻求增加国内芯片生产。
+
+英特尔宣布，将向俄亥俄州的两家新的芯片制造厂投资逾200亿美元，这是一个可能在未来几年受益于联邦资金的大型制造项目。
+
+拜登政府正努力说服国会批准提供资金，帮助美国的芯片生产。目前，用于汽车和电脑的关键零部件的短缺加剧了供应链瓶颈问题。
+
+美国参议院去年通过了《美国创新与竞争法案》，其中包括520亿美元用于增加美国半导体生产，并授权1900亿美元用于加强美国的技术和研究。
+
+拜登之前表示，通胀飙升“与供应链密切相关”，美国必须有自力更生生产汽车所需的电脑芯片的能力。
+
+参考链接：[https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

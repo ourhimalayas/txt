@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 4:38 PM (UTC)`
+
+1月22号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切已经开始【相关美股区块链概念股也纷纷走低。Coinbase ( COIN.O ) 一度跌 11.42%，Riot Blockchain ( RIOT.O ) 一度跌 8.4%，嘉楠科技 ( CAN.O ) 一度跌 7.84%，Bit Digital ( BTBT.O ) 一度跌 7.5%，【Marathon Digital ( MARA.O ) 一度跌 8.3%。<br/><br/>截至目前，比特币指数数报 36253.4 美元。<br/><br/>值得注意的是 2021 年 11 月，比特币创出了 60002 美元的新高，随后比特币一路下跌，2021 年 12 月 4 日最大跌幅高达 20%，截至目前，比特币指数较 60002 的高点，跌幅超 50%，投资者损失惨重。】
+![img](https://media.gettr.com/group25/getter/2022/01/22/16/d933dd52-dde4-b718-b8b2-23d676aefe4c/out.jpg)
+
+---
+
 `@miles 1/22/2022 4:18 PM (UTC)`
 
 1/21/2022 Miles Guo: The Declaration of the New Federal State of China indicates that what we value and pursue are consistent with that of the Western society. The CCP’s turning the Winter Olympics into the games for only a few people is an insult to the Olympics spirit. I wisely convinced the athletes not to attend the Winter Olympics by using the videos of the dogs being caught in Beijing.<br/><br/>1/21/2022 文贵直播: 《新中国联邦宣言》体现出我们的价值和追求跟西方社会是一致的；中共把奥运会变成极少数人的运动会是对奥林匹克精神的亵渎；文贵机智地用北京抓狗的视频说服了运动员不参加冬奥会<br/>
@@ -146,13 +153,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/20/2022 Miles Guo’s GETTR: We are going to talk about the collusion between the CCP and various countries before the Winter Olympics and the disaster caused by the CCP's artificial snowmaking on the climate in the live broadcast tomorrow. The CCP’s property tax seeks to plunder the Chinese people’s wealth, and the CCP’s exploitation of the Lao Baixing will reach a new level after the Winter Olympics. The CCP is the common enemy of humanity and must be destroyed!<br/><br/>1/20/2022 文贵盖特：明天直播要谈冬奥会前中共和各国的勾兑及中共人工造雪对气候造成的灾难；房产税是一场财富洗劫，冬奥会后中共将加大对老百姓的剥削；中共是人类公敌必须被灭！<br/>
 ![img](https://media.gettr.com/group9/getter/2022/01/21/01/2f514c67-b985-08a2-539e-471b1bb0d536/out.jpg)
-
----
-
-`@miles 1/21/2022 12:51 AM (UTC)`
-
-1/20/2022 Miles Guo’s GETTR: Some fellow Chinese are saying that they love the CCP, but does the CCP love them? The CCP has spent trillions of RMB only to have Russia and other several small countries show up for the Winter Olympics. The livelihood of the Chinese Lao Baixing is getting worse and worse, with more and more people getting sick. Yet, good doctors are not available for them, and they couldn’t even afford the healthcare. How pathetic it is!<br/><br/>1/20/2022 文贵盖特：国内同胞说爱党，但党爱你吗？为了让俄罗斯和几个小国来给冬奥会捧场，中共挥霍了几万亿！老百姓的生活却越来越差、病越来越多，还找不到好医生、看不起病，悲哀啊！<br/>
-![img](https://media.gettr.com/group31/getter/2022/01/21/00/0a69b3e2-d865-9b64-b454-aa58038be224/out.jpg)
 
 ---
 

@@ -15,80 +15,80 @@
 
 ---
 
-### [1/21/2022 文贵直播：新中国联邦为什么要和世界签千年和平协议？](/content/gnews/1/README.md)
+### [有声|中共放毒接近尾声 疫苗灾难将真正到来](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [1/21/2022 文贵直播：中共为引诱外国官员参加北京冬奥会，泯灭人性提供变态食材](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [LANCET论文：7名注射3针中共病毒疫苗的德国人全部感染](/content/gnews/2/README.md)
- ` 温哥华扬帆农场`
-
-### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [独家: 阻止联邦政府与北京冬奥会赞助商签订合同的立法正被“沼泽地”挫败](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [奥密克戎席卷澳洲，精酿啤酒厂面临供应链危机](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1/21/2022 文贵直播：中共行贿各国元首是以国家的名义伤害中国人](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [习听闻欧盟多国将同时关闭住中使馆后大怒上海帮](/content/gnews/7/README.md)
- ` GTV News Talk`
-
-### [安省“弱势群体”在觉醒](/content/gnews/8/README.md)
+### [Hcoin带你飞](/content/gnews/3/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [1月21日木兰联盟答疑G系列相关信息文字版](/content/gnews/9/README.md)
- ` 全球G系列咨服群`
+### [越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年中共国减少了500万育龄妇女](/content/gnews/10/README.md)
+### [1/21/2022 文贵直播：新中国联邦为什么要和世界签千年和平协议？](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [LANCET论文：7名注射3针中共病毒疫苗的德国人全部感染](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [独家: 阻止联邦政府与北京冬奥会赞助商签订合同的立法正被“沼泽地”挫败](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国停飞中国航司44个航班](/content/gnews/11/README.md)
+### [奥密克戎席卷澳洲，精酿啤酒厂面临供应链危机](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《共产党的股票市场绝不是金融市场》](/content/gnews/12/README.md)
+### [1/21/2022 文贵直播：中共行贿各国元首是以国家的名义伤害中国人](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [习听闻欧盟多国将同时关闭住中使馆后大怒上海帮](/content/gnews/11/README.md)
+ ` GTV News Talk`
+
+### [安省“弱势群体”在觉醒](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [1月21日木兰联盟答疑G系列相关信息文字版](/content/gnews/13/README.md)
+ ` 全球G系列咨服群`
+
+### [2021年中共国减少了500万育龄妇女](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国停飞中国航司44个航班](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《共产党的股票市场绝不是金融市场》](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [01/22/22 香港快讯 葵涌村2700人居家隔离 至少70宗初步确诊](/content/gnews/13/README.md)
+### [01/22/22 香港快讯 葵涌村2700人居家隔离 至少70宗初步确诊](/content/gnews/17/README.md)
  ` 英喜-粵語組`
 
-### [有声|一周中共病毒及疫苗伤害信息汇总](/content/gnews/14/README.md)
+### [有声|一周中共病毒及疫苗伤害信息汇总](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [县长大人的“恶意返乡”论](/content/gnews/15/README.md)
+### [县长大人的“恶意返乡”论](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共加强掌控香港教育大学不承认学生会地位](/content/gnews/16/README.md)
+### [中共加强掌控香港教育大学不承认学生会地位](/content/gnews/20/README.md)
  ` GTV News Talk`
 
-### [有声|美国多所大学反对疫苗加强针](/content/gnews/17/README.md)
+### [有声|美国多所大学反对疫苗加强针](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [樱花数据分析│加拿大：两针接种者更易感染奥密克戎毒株](/content/gnews/18/README.md)
+### [樱花数据分析│加拿大：两针接种者更易感染奥密克戎毒株](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [接种疫苗后的可怕后遗症](/content/gnews/19/README.md)
+### [接种疫苗后的可怕后遗症](/content/gnews/23/README.md)
  ` GTV News Talk`
 
-### [1.21大直播后记：冬奥会是灭共的天机](/content/gnews/20/README.md)
+### [1.21大直播后记：冬奥会是灭共的天机](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|FBI和辉瑞联手阻挠记者调查疫苗真相](/content/gnews/21/README.md)
+### [有声|诺奖得主称，未接种疫苗的人将拯救人类](/content/gnews/25/README.md)
  ` MOSREC`
-
-### [有声|诺奖得主称，未接种疫苗的人将拯救人类](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|捷克取消疫苗强制计划](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [荷兰光刻机巨头阿斯麦（ASML）2021年收入和净利润大幅增长，却意外调低2022年销售额预期增速降至20%，文贵先生爆料ASML将停止向中共国供应光刻机](/content/gnews/24/README.md)
- ` 秘密翻译组金融团队`
-
-### [福奇拒绝为污蔑备受尊敬的流行病学家而道歉](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [【玫瑰看新闻】每日快讯 2022年1月17日（新西兰时间）](/content/gnews/26/README.md)
  ` 【🌹玫瑰新闻】`

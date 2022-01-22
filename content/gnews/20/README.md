@@ -2,31 +2,36 @@
 ---
 
 
-## 1.21大直播后记：冬奥会是灭共的天机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894548/)
+## 中共加强掌控香港教育大学不承认学生会地位
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894626/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2021122-1280x720.jpg)
+署名：纽约香草山 医疗部 云豹
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-图片设计：0-0
+当地时间1月20日，香港教育大学宣布不再承认该校学生会地位，该校原有的学生会未来不能再使用教育大学的名称。 校方同时收回原有学生会的会址，并接管学生会帐下900万港币的存款。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1920x1080_197240410426.jpg)
 
-**整理：雅典娜速记组 
-编辑：Rianna**
+自从中共全面进驻香港，将香港中共化后，原来在2019年积极参与香港反送中运动的多所香港大学院校，已经出现被整肃的现象。 此前已经有香港中文大学学生会被解散、香港大学校方不承认学生会地位，以及多所大学的校方拒绝帮学生会代收会费的事件。
 
-为了冬奥会的清零，习近平犯了三个大错误：第一，宣布成功太早；第二，清零决定，自杀行为。这是违背常理的。包括他这次想通过清零，以及大面积的封城，还想给西方人证明这个病毒不是来自我这儿的病毒，我们也控制不了。外国人一来，就开始关飞机，停航线，这是想干啥？就跟路大脑袋（王定刚）、蛇妖闫（闫丽梦）一样，他没办法向大家交代；第三，做伪经济，共产党冬奥会清零封城，谁能活下去了？看看天津，天津到什么程度？ 房子没有热气，没有饭吃，网上很多发信息，你们看看很多都被屏蔽掉了。说谁要能给我弄点儿方便面，我完全陪睡，最后发现还没人理，又发信息看看我长的咋样，从发脸部到发胸部。在国内、在天津，最起码发生不低于十万起这样卖身求方便面的事件。 有的家里养的宠物，把兔子杀了吃，大家看到吗？屏蔽到了疯狂。这样的一个封城的经济结果是什么？谁还能出去打工？ 在湖南更是出现了惨绝人寰的现象。 大企业还能在中国么？全都撤了。 黑龙江、吉林、辽宁，各地方的外资企业都在撤，美资外资都撤。 这三招决定了冬奥会绝对是老天赐给我们的礼物，是共产党的噩梦。
+ 此次教育大学紧缩学生自治权的举动，再度证明中共黑手逐步伸入香港高等教育学府，企图将香港高等教育全面中共化.
 
-奥运会成就了郭文贵最牛的人生和辉煌的时刻，就在2008北京奥运会，郭先生独享天下，他在那时候积累的政治财富和经济财富，天下无人能比，甭说中共国了，全世界没人能比。全世界的精英围绕在郭文贵身边，又赚钱又赚名，还赚机会，郭文贵玩奥运时，习近平算什么，共产党算什么，冬奥会比他习近平玩得更厉害，郭先生跟冬奥会真有关系。 有一天你们知道的时候，绝对让你震惊。这种操作，绝对是一人打一国的这种超级范儿。 拍电影都拍不出来郭文贵这实际的攻击力，新中国联邦未来历史上最核心之一，未来有人拍电影的时候，冬奥会这帮人都不敢去了。你们看到G系列，现在还不能说，说了就破功，现在还是咱得保持着这个童子功。 老天在帮我们，如果郭文贵没有经历过2008的奥运会，从1999年到现在，怎么有能力有智慧有本事干掉北京冬奥？干掉北京冬奥会光有钱、光有脑子、光有钱权力是不行的，得懂这个人际关系。哪个奥林匹克官员跟郭先生没有关系？怎么知道他在盘古睡觉的时候是不是玩小姑娘，郭文贵有没有给他录点小视频呢？共产党他会玩的咱也会玩，对坏人用的招咱都会用。 冬奥会，我最担心他去年说“我不开了”，这完了，这是老天给我们灭工的天机呀。
+参考链接：[https://www.cna.com.tw/news/acn/202201210110.aspx?](https://www.cna.com.tw/news/acn/202201210110.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-资料来源：郭先生GTV和盖特直播视频。
+总编：童谣
+校正/发稿：Daxia
 
-**发布：星谕**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

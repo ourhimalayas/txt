@@ -2,39 +2,41 @@
 ---
 
 
-## 接种疫苗后的可怕后遗症
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894558/)
+## 县长大人的“恶意返乡”论
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1894627/)
 
-撰稿：银河系农场-骄子
+撰稿：菜园子112～尕虎
+视频来自社群媒体
+近日一段视频在墙内网上流传，河南省郸城县县长董鸿在电视会议上，声色俱厉，杀气腾腾的讲话：“凡是从中高风险地区试图返回，不讲你有没有疫苗接种证明，不讲你有没有48小时核酸检测，你只要返回，先隔离再拘留。”
 
+董鸿这番话传出后，惹得舆论大哗。随后，董鸿回应媒体采访时称：上述视频经过剪辑，不真实，剪辑掉了“不听劝阻，恶意返乡”等内容。
 
+墙内网友说：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+“啥叫恶意返乡？老百姓干啥了？辛苦一年回家过年管这叫恶意返乡？”
 
+“那我生在河南我是不是属于恶意投胎了？”
 
+“回家都成恶意了，地方官员为了乌纱无所不用其极！”
 
-一位名叫Mark Ruston，接种过两针阿斯利康新冠疫苗的男性正在承受严重的后遗症。据Mark回忆，他之前进行过肾移植手术，因此免疫系统较脆弱，比很多人都要早地去接种了新冠疫苗。
+什么是“恶意返乡”？
 
-接种以后身体出现的问题有：长时间的浑身发冷、不间断地流臭鼻水、视力变模糊、听觉功能丧失、严重头痛、甚至发生过严重的胸痛事件。左腿和手臂都出现了血凝块，左腿的去医院后被药物溶解了，手臂的血凝块巨大，只能通过做手术切除。Mark说自己做血透析做了不到5年，每周3次，在接种新冠疫苗之前从未有过血凝块。Mark非常后悔自己接种了新冠疫苗。
+老百姓要回自己的家乡，因为那里有离不开的故土，有忘不了的乡情，有日夜惦记的老爹老娘，有朝思暮想的兄弟姊妹，这能有什么“恶意”呢？春节到了，老百姓返个乡，能有什么恶意呢？
 
-参考链接：
-https://gettr.com/post/ppmtsnc6d7
+县长大人你给我们草民解释一下，什么是“恶意返乡”？
 
+郸城是中国的郸城，是郸城百姓的家乡，不是你董县长的私宅。然而，郸城却搞了一套自己的土地政策，对百姓返乡实行严控，对不听话者重拳出击。
 
-总编：童谣
-校正/发稿：Daxia
+这其中，哪里有什么“恶意返乡”啊，分明就是“恶意加码”！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+另有墙内网友作诗一首：“独在疫乡为疫客，每逢佳节甭思亲。尔等恶意回家时，先封家门再拘人。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+注：部分内容引用自墙内网友
 
+新闻参考链接：
 
+[新浪网](https://news.sina.com.cn/c/2022-01-22/doc-ikyakumy1847621.shtml)（中共国墙内网站）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
