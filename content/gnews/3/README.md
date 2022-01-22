@@ -2,36 +2,41 @@
 ---
 
 
-## 有声|中共警告各国运动员谨慎言论
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891921/)
+## 吃起狗肉来有声有色的杨贝贝Isobel Yeung是真心爱狗吗
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1891970/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获_副本-1.png)
+郭文贵先生转了杨贝贝吃狗肉的盖特——
+![](https://assets.gnews.org/wp-content/uploads/2022/01/001.png)
+下面我们就按图索骥来看一下原片——
 
-此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
+视频来源：[纪录片 《玉林狗肉节》 美国记者抨击中国人吃狗肉……](http://k.sina.com.cn/article_7530565666_m1c0db502203300w5uq.html?display=0&amp;retcode=0)
 
-原文链接：[中共警告各国运动员谨慎言论](https://gnews.org/zh-hans/1889141/)
+曾经看过一个故事说一个在英国受过高等教育的白人到非洲冒险，他来到了食人生番部落并最终融入食人生番的部落，多年后他的同胞在非洲从林里碰到了这位白人同胞，看到他大快朵颐地吃人肉，就非常吃惊地问他，你来自文明世界如何能吃得下人肉呢？这位已经融入食人生番的白人回答说：No! 我跟他们还是不一样的，你没看到我在吃人肉的时候用的是刀叉吗？
 
-音频处理/发稿：Daxia
+相较于食人生番，把吃狗看成天经地义的中国也是另一种的落后，这种血腥的落后需要革除，而那个到玉林狗肉节探班的杨贝贝Isobel Yeung则不然，她和她所任职的VICE的到来意味着文明世界对玉林狗肉节的审视，但是吃起狗肉来有声有色的杨贝贝Isobel Yeung却又一次地惊掉了我们的下巴，为什么呢？因为这一次吃狗肉的是来自文明世界的并且是说英语的美国女记者，那么她与那些视吃狗肉为天经地义的中国同胞有什么不同呢？——她分明是用拿惯刀和叉的手在吃狗肉嘛！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+撰稿：喜马拉雅的肉夹馍；
 
-**更多资讯，更多关注**
+审核：喜马拉雅的馍夹肉；
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+校对：Maarago；
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（文章内容仅代表作者个人观点）
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

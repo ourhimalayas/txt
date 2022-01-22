@@ -2,44 +2,39 @@
 ---
 
 
-## 有声|麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891607/)
+## 有声|诸多不利背景下中共依旧公布GDP增幅8.1%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891718/)
 
-配音：香草山健身部 – 玫瑰园
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+配音：香草山农场 – 纳米
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+墙内媒体1月17日报道，中共国统计局公布了2021年GPD的实际增幅为8.1%，还称这是继2011年的9.6%以来第二大增幅。由此，也引发了许多质疑中共造假的声音。
 
-麻省理工学院一名研究科学家Seneff（瑟内夫）博士周四晚上在福克斯接受采访表示：父母应该尽量避免为孩子接种中共病毒疫苗，因为他们死于中共病毒的风险非常非常低。
+日媒指出，除了各地疫情蔓延造成生产停滞以外，中共在海南建立的免税购物天堂里，客流量也大不如前。而且，因疫情多次封城管控，民众购物欲望也极速下降。
 
-Seneff（瑟内夫）博士称，中共病毒疫苗对孩子的潜在危害远远大于益处。特别是接种加强针，从长远来看，这对孩子影响将是毁灭性的。
+同时恒大的经营危机，以及被海南等地强制收回土地，都加重了人们对房地产行业投资的顾虑。甚至墙内已经有投资恒大的老百姓喊出“这不是共同富裕，而是共同贫穷”的口号。
 
-Seneff（瑟内夫）博士撰写的文章称，中共病毒疫苗的快速研发和部署引起了多重安全问题。疫苗在与各种急性和长期诱发的病症的潜在关系方面的研究明显不足。Seneff（瑟内夫）博士在另一篇文中指出，中共病毒疫苗的大规模生产和强制接种的快速推进，表明相关机构并未对疫苗的风险性、安全性和对身体健康的有效性做充分的调研。
+分析人士指出，在全年疫情、花样年及恒大等地产爆雷，年初中共六大银行不良贷款率大幅上升、7月郑州水灾、9月各地突然拉闸限电、10月珠三角旱灾的大背景下，GDP增幅8.1%仍超过疫情前四年平均值的6.5%，符合中共一贯造假的逻辑。
 
-原文链接：[麻省理工学院研究科学家表示：儿童不宜接种中共病毒疫苗](https://gnews.org/zh-hans/1885189/)
+文字版原文：[诸多不利背景下中共依旧公布GDP增幅8.1%](https://gnews.org/zh-hans/1887689/)
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

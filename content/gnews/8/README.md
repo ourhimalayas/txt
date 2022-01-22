@@ -2,52 +2,39 @@
 ---
 
 
-## 奥地利议会通过对所有成年人实行强制性疫苗接种的规定
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1891846/)
+## 有声|法国人寿保险公司拒绝理赔疫苗致死者
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891922/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+配音：香草山农场 – 纳米
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月18日，据相关媒体报道，法国一家人寿保险公司拒绝赔偿一起因接种中共病毒疫苗导致死亡的案件。
 
+该保险公司表示，死者明知接种中共病毒疫苗存在严重风险，但其仍旧选择自愿参与疫苗医学试验，此案件应属拒赔范围。
 
+资料显示，2021年，全球范围内寿险索赔的年轻人数量激增，其中，绝大多数死亡案例与接种中共病毒疫苗相关——这些巨额的索赔案件很可能把人寿保险公司推向经营困难的窘境。
 
-据[布赖特巴特新闻网](https://www.breitbart.com/europe/2022/01/21/austrian-parliament-votes-overwhelmingly-to-introduce-mandatory-vaccination-for-all-adults/)1月21日报道，周四，奥地利议会以137票对仅33票的投票中，以压倒性的优势投票决定对所有18岁以上的居民强制接种中共病毒疫苗。
+对此，有保险经纪人透露，法国人寿保险的年理赔总额已经从2020年的3亿5千万美元激增至2021年的5亿5千万美元，而这一增长的主要原因在于政府推广了那些所谓“挽救生命”的中共病毒疫苗。 评论人士也提到，目前这种危险的趋势让很多人寿保险公司开始质疑中共病毒疫苗接种者的健康安全，同时，他们也在高度关注疫苗的风险性，从而可以规避那些疫苗伤害案例带来的巨大理赔风险。但对于接种了疫苗的普通民众而言，这将是更大灾难的开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237852125-e1642721903229-640x480-1.jpg)Roland SCHLAGER/APA via Getty APA Images
+文字版原文：[法国人寿保险公司拒绝理赔疫苗致死者](https://gnews.org/zh-hans/1887716/)
 
-因医疗原因不能接种疫苗者和孕妇将被免除强制接种，那些已经从中共病毒中康复的人也将在康复后的6个月内获得豁免。但那些拒绝接种疫苗的人可能面临高达3600欧元的罚款。
-
-从3月中旬开始，奥地利警方将在例行检查和交通检查中核查疫苗接种情况，并对那些不能证明已完全接种中共病毒疫苗的人处以罚款。对此，警察工会负责人沃纳·赫伯特（Werner Herbert）表示，警察在这里被用于政治目的是很不恰当的！
-
-虽然奥地利议会的绝大多数成员都投票支持这项措施，但由赫伯特·克尔（Herbert Kickl）领导的民粹主义自由党却投票反对这项措施。
-
-克尔在脸书上表示，“今天是奥地利议会和我们民主的耻辱日，民粹主义自由党的代表们一致投票反对这项不公正的法律，这是极端的极权主义，我们将尽一切可能减少对大多数公民的强制接种。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

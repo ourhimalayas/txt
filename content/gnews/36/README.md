@@ -2,25 +2,12 @@
 ---
 
 
-## オーストラリア、すでに、子供3人が中共ワクチンで死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1890690/)
+## 杰森·米勒去了反共力量的活动中心——哥伦比亚
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1891039/)
 
-翻译： 東京櫻花団/夏目&山竹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-189.png)
-1月21日、郭文貴氏のGETTR:
+01/18/2022 杰森·米勒: 除了巴西之外，哥伦比亚在很大程度上是反共力量的活动中心。哥伦比亚对于从民主到反共的一切都至关重要。我们参加了参议员玛丽亚·费尔南达·卡巴尔的应用程序揭幕。她非常具有反共和赤色恐慌精神。我们有 2 万人在盖特在线观看她的新闻发布会直播。该平台运行一切顺畅。
 
-オーストラリアの救急隊員は、導入されたばかりの5歳から11歳の子どもへの中共ワクチン(新型コロナワクチン)接種の結果、すでに3人の子どもが死亡していることを明らかにした
-
-情報源：
-
-[https://gettr.com/post/ppij0zf07a](https://gettr.com/post/ppij0zf07a)
-
-校正：東京桜花団/风翼
-アップロード：東京桜花団/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
