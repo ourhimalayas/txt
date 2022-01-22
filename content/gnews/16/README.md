@@ -2,12 +2,10 @@
 ---
 
 
-## 越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1894778/)
+## 1/21/2022 文贵直播：中共为引诱外国官员参加北京冬奥会，泯灭人性提供变态食材
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1894876/)
 
-01/19/2022 Eva Vlaardingerbroek: 世界各地的人民都非常担心我们的自由，担心宪法不断被侵犯。我们必须一起站出来阻止世界各地这种暴政的发生
-
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

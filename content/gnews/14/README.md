@@ -2,24 +2,36 @@
 ---
 
 
-## 比尔盖茨&#8212;一个有精神病的小偷想控制全 世界
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1894841/)
+## 有声|中共放毒接近尾声 疫苗灾难将真正到来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894945/)
 
-###### **整理：雅典娜速记组**
-**编辑：请你喝可乐**
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+同一期的大直播中，郭先生提到，2022年将是人类历史上最黑暗的一年。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/比尔盖茨-一个有精神病的小偷想控制全世界-.jpg)
+郭先生解释道，最新的情报数据和科学家们的讨论结果表明，若中共近期不再释放新的变种病毒，当前这波疫情极大可能是中共的最后一波放毒，这预示着中共的放毒计划已经接近尾声。自此，持续了两年多的中共病毒超限战将落下帷幕。
 
-几个极端政府，像澳大利亚几个州长，几 个警察头子出来把人往死里整， 凡是推广打疫苗的，全世界就那二、三十 个人，没有一个是好东西，没有一个不跟 共产党有来往的，没有一个不看着眼目狰 狞的。 比尔盖茨那个烂货，生活中就是一个精神 不健康的人，你看他赚钱，他的技术都是 偷来的，一个精神不健康的小偷，他还想 统治全人类呢，媒体集体的堕落。 世界上几个邪恶政治家同时在一、二年内, 被莫名其妙地选举当上了官员和国家领导 人，然后叫自己国家人全闭嘴。 小土豆，加拿大那个家伙，他绝对不正常, 你七哥见到的事太多了，前2天见一个人， 他说，你千万不用WIFI，我也不用WIFI，所 有你用过的WIFI，都会在暗网中出现。 所以，想干这一票疫苗灾难的人，掌握所 有这些国家领导人及家人的视频，太容易了
+原文链接：[中共放毒接近尾声 疫苗灾难将真正到来](https://gnews.org/zh-hans/1890146)
 
-*发布：请你喝可乐*
+音频处理/发稿：Daxia
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

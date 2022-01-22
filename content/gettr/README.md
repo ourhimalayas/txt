@@ -17,6 +17,24 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 1/21/2022 6:16 PM (UTC)`
+
+New Release                                              Shop Now at www.gfashion.com
+![img](https://media.gettr.com/group46/getter/2022/01/21/18/e501efd7-6d18-a516-bc13-846218667fe0/3a5d049dbe2a34f5160528d245fc160f.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 1/22/2022 5:18 PM (UTC)`
+
+New Drop coming Monday at Noon on www.gfashion.com
+![img](https://media.gettr.com/group38/getter/2022/01/22/17/9394e5dc-aafc-8d68-cc58-3aedc3427f52/61c670e6a53b55d9942330faa32383b8.jpg)
+
+---
+
 `@miles 1/22/2022 4:38 PM (UTC)`
 
 1月22号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切已经开始【相关美股区块链概念股也纷纷走低。Coinbase ( COIN.O ) 一度跌 11.42%，Riot Blockchain ( RIOT.O ) 一度跌 8.4%，嘉楠科技 ( CAN.O ) 一度跌 7.84%，Bit Digital ( BTBT.O ) 一度跌 7.5%，【Marathon Digital ( MARA.O ) 一度跌 8.3%。<br/><br/>截至目前，比特币指数数报 36253.4 美元。<br/><br/>值得注意的是 2021 年 11 月，比特币创出了 60002 美元的新高，随后比特币一路下跌，2021 年 12 月 4 日最大跌幅高达 20%，截至目前，比特币指数较 60002 的高点，跌幅超 50%，投资者损失惨重。】
@@ -140,19 +158,6 @@ Mr. Steve K. Bannon: <br/>We have a huge problem with the US attorneys, in the D
 
 Jin Canrong, a political scientist of the CCP, an expert on American issues, deputy dean of the School of International Relations of Renmin University of China, and the CCP's Internet celebrity "Politician Jin", brags that the PLA has no worthy opponent within a range of 1000 nautical miles and the CCP China can defeat the US without any doubt.<br/><br/>金灿荣，中共政治学家、美国问题专家，中国人民大学国际关系学院副院长，中共网红“金政委”吹嘘中共党卫军千里之内无对手，中国绝对打败美国。 
 ![img](https://media.gettr.com/group40/getter/2022/01/21/02/1457ab3b-0cb8-9b84-0950-a6a16a3ec0a3/out.jpg)
-
----
-
-`@miles 1/21/2022 2:31 AM (UTC)`
-
-1月20号，Hcoin To the Moon MV上线第49天位列澳门🇲🇴iTunesMV榜首🥇，累计共43次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜榜首🥇🎉🎉🎉<br/><br/>位列新西兰🇳🇿iTunes摇滚歌曲榜榜首🥇,累计共41次排名第一名🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利，新西兰，老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1885308<br/><br/>Jan 20th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 49 Day of Launch, hit No .1 for 43 times in total🎉🎉🎉<br/><br/>Hit No.1 🥇 on Hungary 🇭🇺 iTunes Rock music video Chart🎉🎉🎉<br/><br/>Hit No.1🥇 on New Zealand 🇳🇿 iTunes Rock Song Chart, hit No.1 for 41 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, New Zealand,and Laos 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 1/21/2022 1:46 AM (UTC)`
-
-1/20/2022 Miles Guo’s GETTR: We are going to talk about the collusion between the CCP and various countries before the Winter Olympics and the disaster caused by the CCP's artificial snowmaking on the climate in the live broadcast tomorrow. The CCP’s property tax seeks to plunder the Chinese people’s wealth, and the CCP’s exploitation of the Lao Baixing will reach a new level after the Winter Olympics. The CCP is the common enemy of humanity and must be destroyed!<br/><br/>1/20/2022 文贵盖特：明天直播要谈冬奥会前中共和各国的勾兑及中共人工造雪对气候造成的灾难；房产税是一场财富洗劫，冬奥会后中共将加大对老百姓的剥削；中共是人类公敌必须被灭！<br/>
-![img](https://media.gettr.com/group9/getter/2022/01/21/01/2f514c67-b985-08a2-539e-471b1bb0d536/out.jpg)
 
 ---
 

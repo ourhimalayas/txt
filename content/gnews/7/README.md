@@ -2,36 +2,38 @@
 ---
 
 
-## 有声|加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894965/)
+## 面对刑事诉讼，币安在泰国“推陈出新”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1895015/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据媒体报道，加拿大因未接种疫苗而被解雇的员工提起的诉讼已经堆积如山。 多伦多就业律师，图马金律所联合创始人利奥·桑菲鲁表示，从业20年，从未见过在这么短时间内处理同一问题的案子。仅他的律所就代理了来自加拿大各地的数百名委托人。
+据《Bitcoin.com》记者Kevin Helms，2022年1月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1804-e1642869734825.png)图片源自：Bitcoin.com
+泰国证券交易委员会（SEC）对币安（Binance）无牌经营提起诉讼。而币安与泰国上市公司海湾能源发展公司（Gulf Energy Development）签署协议，尝试建立新的加密货币交易所。
 
-去年11月，TTC员工工会要求法官停止交通委员会的疫苗政策，称解雇未接种疫苗员工，会导致服务中断，但遭到法官拒绝。桑菲鲁说，雇主有权解雇员工，但只有在雇员犯有 “重大不当行为 “时，才能免于支付遣散费，而 “不接种疫苗”根本不属于这一类。很多雇主还没有意识到，他们不但要面临巨大的诉讼成本，还可能面对“不当解雇”而导致的巨额赔付。
+**泰国上市公司海湾能源发展公司周一通知泰国证券交易所（SET），其全资子公司海湾Innova已与币安集团签署谅解备忘录，共同研究数字资产交易所和相关领域的发展途径。**
 
-原文链接：[加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山](https://gnews.org/zh-hans/1890167)
+**该公司补充，随着经济越来越受创新和技术的推动，泰国数字基础设施将快速增长。数字资产和相关技术在提升该国金融基础设施和满足泰国市场需求方面发挥着突出作用。**
 
-音频处理/发稿：Daxia
+**海湾能源详述认为, 与币安的合作将帮助泰国推进其数字资产和区块链基础设施的发展。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+币安最近在泰国证券交易委员会遇到了麻烦。该委员会去年7月宣布，它向泰国皇家警察（ECD）经济犯罪打击部门提起针对币安刑事诉讼。
 
-**更多资讯，更多关注**
+根据证券交易委员会的说法，币安未经许可经营加密货币交易业务，并认为该公司“可能受到刑事制裁”。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+文章来源：[https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/](https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+翻译：洛杉矶盘古农场 – Raul
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+校对：洛杉矶盘古农场 – Mike Li
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：洛杉矶盘古农场 – WenXiong
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+发布：洛杉矶盘古农场– 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,38 +2,41 @@
 ---
 
 
-## 接种疫苗后的可怕后遗症
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894558/)
+## 有声|美国多所大学反对疫苗加强针
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894579/)
 
-撰稿：银河系农场-骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+配音：香草山农场 – 纳米
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+美国媒体1月19日报道，美国各大高校的学生们正在采取行动，抗议对在校大学生强制推行疫苗加强针。
 
-一位名叫Mark Ruston，接种过两针阿斯利康新冠疫苗的男性正在承受严重的后遗症。据Mark回忆，他之前进行过肾移植手术，因此免疫系统较脆弱，比很多人都要早地去接种了新冠疫苗。
+由乔治梅森大学法律专业学生罗伯特·费尔纳，发起的 “废除乔治梅森大学的疫苗加强针任务 “的请愿书，已经获得700多人的签署。费尔纳说，CDC并没有声称疫苗可以阻止感染和传播，这不是关于医学疗效的政策，而是强迫学生放弃身体的自主权利，并表示要求学生在45天内接种第三针毫无道理。
 
-接种以后身体出现的问题有：长时间的浑身发冷、不间断地流臭鼻水、视力变模糊、听觉功能丧失、严重头痛、甚至发生过严重的胸痛事件。左腿和手臂都出现了血凝块，左腿的去医院后被药物溶解了，手臂的血凝块巨大，只能通过做手术切除。Mark说自己做血透析做了不到5年，每周3次，在接种新冠疫苗之前从未有过血凝块。Mark非常后悔自己接种了新冠疫苗。
+在斯坦福大学，已经有超过1600人签署了一份反对该校于1月底生效的加强针命令的请愿书。
 
-参考链接：
-https://gettr.com/post/ppmtsnc6d7
+康奈尔大学近1000名学生、家长、教育工作者和校友签署了一封公开信，反对加强针。信中强调，越来越多的证据表明，疫苗对年轻人罹患心肌炎、心包炎存在严重风险。
 
+芝加哥大学的学生也加入了这场抗争。截至18日晚上，已有300人签署了请愿书。学生们已经意识到疫苗对健康的影响。
 
-总编：童谣
-校正/发稿：Daxia
+文字版原文：[美国多所大学反对疫苗加强针](https://gnews.org/zh-hans/1888056/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

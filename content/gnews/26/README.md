@@ -2,26 +2,41 @@
 ---
 
 
-## 1月21日木兰联盟答疑G系列相关信息文字版
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1894668/)
+## 美国将加强芯片投资 以增强对华竞争力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894731/)
 
-G-听写：鲁西西
+**【雅典娜快讯】，紧贴时代脉搏**
 
-1、现在还能报名投资数字银行吗？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-35.jpg)
 
-答：现在总部基金满了，可以报名联盟基金。私信我或长岛哥领取表格链接。
 
-2、关于G1、G2何时能退款？
 
-答：都在SEC的监管之下，要等SEC公布退款细则。
+图片来源：雅典娜设计组
 
-G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
 
-语音链接：[https://mega.nz/file/JXJm0DZA#nJB1NiJLA\_FNGbBHGthC5\_tsUCJMtak01Hn3Vu9D6Ks](https://mega.nz/file/JXJm0DZA#nJB1NiJLA_FNGbBHGthC5_tsUCJMtak01Hn3Vu9D6Ks)
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-审核：夏目&山竹
+据路透社报道：1月21日美国众议院议长佩洛希(Nancy Pelosi)表示，美国众议院将提出一项法案，以提高美国对中国的竞争力，并增加在半导体方面的支出。拜登政府正寻求增加国内芯片生产。
 
-发布：夏目&山竹
+英特尔宣布，将向俄亥俄州的两家新的芯片制造厂投资逾200亿美元，这是一个可能在未来几年受益于联邦资金的大型制造项目。
+
+拜登政府正努力说服国会批准提供资金，帮助美国的芯片生产。目前，用于汽车和电脑的关键零部件的短缺加剧了供应链瓶颈问题。
+
+美国参议院去年通过了《美国创新与竞争法案》，其中包括520亿美元用于增加美国半导体生产，并授权1900亿美元用于加强美国的技术和研究。
+
+拜登之前表示，通胀飙升“与供应链密切相关”，美国必须有自力更生生产汽车所需的电脑芯片的能力。
+
+参考链接：[https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
