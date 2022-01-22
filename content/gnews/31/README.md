@@ -2,10 +2,10 @@
 ---
 
 
-## 诺贝尔奖获得者Luc Montagnier教授称新冠疫苗是毒药！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1894774/)
+## 越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1894778/)
 
-01/17/2022 诺贝尔奖获得者Luc Montagnier教授：新冠疫苗不仅没起到保护作用，而且正相反，它是毒药！
+01/19/2022 Eva Vlaardingerbroek: 世界各地的人民都非常担心我们的自由，担心宪法不断被侵犯。我们必须一起站出来阻止世界各地这种暴政的发生
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

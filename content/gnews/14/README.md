@@ -2,8 +2,8 @@
 ---
 
 
-## 艺术可以成为我们共同的语言
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895141/)
+## 欧盟最少三到四个国家，可能关掉中共的大使馆
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895203/)
 
 台灣寶島農場
 

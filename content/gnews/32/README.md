@@ -2,10 +2,10 @@
 ---
 
 
-## NBC体育频道不会派播报团队去北京冬奥会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1894773/)
+## 诺贝尔奖获得者Luc Montagnier教授称新冠疫苗是毒药！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1894774/)
 
-01/20/2022 WAVY TV 10：NBC体育频道表示，将不会派节目播报人前往北京参加即将在几周内开幕的冬奥会。出于对中共病毒的担忧，其奥运会的所有播报团队，都将从康涅狄格州斯坦福德的基地进行远程播出。
+01/17/2022 诺贝尔奖获得者Luc Montagnier教授：新冠疫苗不仅没起到保护作用，而且正相反，它是毒药！
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
