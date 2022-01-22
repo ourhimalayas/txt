@@ -2,12 +2,12 @@
 ---
 
 
-## 卢森堡-金融界的梵蒂冈 相信病毒是中共制造的生化武器
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1894230/)
+## 邪恶沼泽地的一部分 共产党放毒注定灭亡
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1894244/)
 
 #### 设计：波士顿五月花 水涨船高
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/卢森堡-金融界的梵蒂冈-相信病毒是中共制造的生化武器.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/邪恶沼泽地的一部分-共产党放毒那一刻就注定灭亡.jpg)
 
 * * *
 

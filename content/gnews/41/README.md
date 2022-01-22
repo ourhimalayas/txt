@@ -2,35 +2,43 @@
 ---
 
 
-## 疫情管控 西澳医院医疗用品出现供应危机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893829/)
+## 周四晚Twitter发生严重宕机事故
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1893845/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：银河系农场 – 骄子
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-3.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-305.jpeg)图片来源：THE U.S.SUN NEWS
+据外媒报道，1月20日周四晚6点至8点，大量用户报告在使用Twitter时发生了问题。
+
+据Downdetector称，53%的Twitter用户在使用该网站时遇到问题，36%的用户在使用该应用程序时遇到问题，12%的用户报告在服务器连接时遇到问题。
+
+目前事故原因尚未确定。
+
+参考链接 [https://www.the-sun.com/news/4507772/twitter-down-website-outages-worldwide-downdetector/](https://www.the-sun.com/news/4507772/twitter-down-website-outages-worldwide-downdetector/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+编辑：童谣
+校对/发稿：文敬
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
-据澳大利亚人报中文报道：西澳大利亚金伯利地区的主要医院即将耗尽数十种基本必需医疗用品。
 
-医院供应危机的出现之际，西澳州长马克·麦高恩在周四晚上宣布，原计划于2月5日全面重新开放该州边境的免隔离检疫旅行将被推迟。他表示说由于疫情，住院人数增加了900%。
-
-《澳大利亚人报》获得的布鲁姆乡村地区医院的一份备忘录称，由于运输问题以及供应商因圣诞节和新冠问题而关闭，该医院的供应仓库出现了采购延误。如果医院工作人员需要升级任何物品，请向仓库提供一份清单，他们可能会从其他医院采购库存。
-
-西澳州卫生局首席执行官杰夫·莫菲特说，库存短缺是在医院的供应仓库而非医院本身感受到的，这是最近几周全国各地供应链中断的结果。他还表示社区应该放心，西澳卫生局会提前为所有的医院下库存订单，医院如果需要，可以获得应急库存。
-
-参考链接：[https://cn.theaustralian.com.au/2022/01/21/62665/](https://cn.theaustralian.com.au/2022/01/21/62665/)
-
-*发布*：*tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
