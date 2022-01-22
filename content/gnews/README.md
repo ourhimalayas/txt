@@ -15,92 +15,92 @@
 
 ---
 
-### [2022年世界经济论坛将在达沃斯举行](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [世界卫生组织(WHO)近期会议【建议】世界各国解除禁令](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
 
-### [本·哈恩威尔：NBC和ESPN知道中共病毒在北京失控](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国要求联合国制裁相关朝鲜人士，中俄从中拖延](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [橙郡妇女佛洛蕊斯在接种第二剂Moderna疫苗后死亡](/content/gnews/4/README.md)
- ` DC政经`
-
-### [中方反对斯洛文尼亚总理称台湾为国家](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [因为讲伊维菌素有用而被解雇,医生将医院告上法庭](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [去塑料时代的到来 生物降解材料](/content/gnews/7/README.md)
+### [古巴已为所有2岁以上儿童接种中共病毒疫苗](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [回家过年却成恶意返乡？](/content/gnews/8/README.md)
+### [陈凯歌就是垃圾](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [中共一直推行简化汉字背后的阴谋（下）](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [巴基斯坦外长私下谈话透露出习近平已经躲了两年多](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [俄罗斯反卫星试验碎片与中共空间卫星发生“极危险交汇”](/content/gnews/5/README.md)
+ ` G-NEWS TAIWAN`
 
-### [得过冠状病毒的声明（一）](/content/gnews/10/README.md)
+### [七哥谈国内明星（一）](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [北朝鲜接受美国提供的中共病毒疫苗，小兄弟打脸中共](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [中共一直推行简化汉字背后的阴谋（上）](/content/gnews/7/README.md)
+ ` 澳喜农场`
 
-### [“查马斯是在为世界新秩序和中共之间继续勾兑进行辩护”](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [别人拿发糕七哥拿发糕票粮票，钱票](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [澳洲证券交易所下跌2.3%，当地股市陷入全球抛售困境](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [菲律宾银行计划启动加密货币交易和托管服务](/content/gnews/15/README.md)
+### [2022年世界经济论坛将在达沃斯举行](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“一人户”数量破亿意味着中共国稳定社会的根基在坍塌](/content/gnews/16/README.md)
- ` 澳喜农场`
+### [本·哈恩威尔：NBC和ESPN知道中共病毒在北京失控](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [95%的重病患者都接种了疫苗](/content/gnews/17/README.md)
- ` DC政经`
-
-### [最好的安全就是大家彼此相信](/content/gnews/18/README.md)
+### [得过冠状病毒的声明（二）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [DC大中华时事：中共三孩政策配套措施正陆续出台](/content/gnews/19/README.md)
+### [美国要求联合国制裁相关朝鲜人士，中俄从中拖延](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [橙郡妇女佛洛蕊斯在接种第二剂Moderna疫苗后死亡](/content/gnews/12/README.md)
+ ` DC政经`
+
+### [中方反对斯洛文尼亚总理称台湾为国家](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [因为讲伊维菌素有用而被解雇,医生将医院告上法庭](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [去塑料时代的到来 生物降解材料](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [回家过年却成恶意返乡？](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [巴基斯坦外长私下谈话透露出习近平已经躲了两年多](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [得过冠状病毒的声明（一）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [北朝鲜接受美国提供的中共病毒疫苗，小兄弟打脸中共](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“查马斯是在为世界新秩序和中共之间继续勾兑进行辩护”](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [别人拿发糕七哥拿发糕票粮票，钱票](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [澳洲证券交易所下跌2.3%，当地股市陷入全球抛售困境](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [菲律宾银行计划启动加密货币交易和托管服务](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [“一人户”数量破亿意味着中共国稳定社会的根基在坍塌](/content/gnews/24/README.md)
+ ` 澳喜农场`
+
+### [95%的重病患者都接种了疫苗](/content/gnews/25/README.md)
+ ` DC政经`
+
+### [最好的安全就是大家彼此相信](/content/gnews/26/README.md)
+ ` 雅典娜GNotes`
+
+### [DC大中华时事：中共三孩政策配套措施正陆续出台](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥没有任何秘密](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [英澳誓言在“恶意行为者”崛起的情况下加强国防合作](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国和加拿大卡车司机在边境集结以抗议疫苗强制令](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [一万个灭共的理由-家仇国恨](/content/gnews/23/README.md)
- ` 澳喜农场`
-
-### [中共军方：在西沙群岛警告驱离美国驱逐舰](/content/gnews/24/README.md)
+### [中共军方：在西沙群岛警告驱离美国驱逐舰](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [VICE记者杨贝贝喜欢吃狗肉，并说：“其实味道很不错”](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [七哥儿时的照片](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [WHO前副主席：中共病毒疫苗杀死的人比中共病毒杀死的人还多](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭文贵先生诉瑞银UBS案件开始发酵与太平联盟案件的疯狂](/content/gnews/28/README.md)
+### [郭文贵先生诉瑞银UBS案件开始发酵与太平联盟案件的疯狂](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
-
-### [所有接种过疫苗的人必须在冬季进行隔离，否则有可能患上严重疾病](/content/gnews/29/README.md)
- ` DC政经`
 
 ### [秘翻在线：脱钩重大进展——荷兰拒售中共高端光刻机！](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`

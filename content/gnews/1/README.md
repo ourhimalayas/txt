@@ -2,36 +2,28 @@
 ---
 
 
-## 2022年世界经济论坛将在达沃斯举行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893171/)
+## 世界卫生组织(WHO)近期会议【建议】世界各国解除禁令
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1893246/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰文: 新中国联邦静2022/01/21
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-302.jpeg)
+世界卫生组织(WHO)于2022年1月19日的会议决议内容中第6项和第7项公布:
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+6. 赞成解除或放宽国际旅行禁令。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642836502292.jpg)图片来源：雅典娜设计组
+7. 赞成国际旅行不需要新冠疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-300.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-301.jpeg)
+引用来源
 
+[https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-(2005)-emergency-committee-regarding-the-coronavirus-disease-(covid-19)-pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
 
-据土耳其之声报道：自1971年以来，达沃斯峰会每年一月在达沃斯举行。因新型冠状病毒（Covid-19）疫情而被取消举行的2021年世界经济论坛（WEF）计划于2022年1月17日至21日在瑞士达沃斯举行。
+* * *
 
-据世界经济论坛方面发表的声明，计划于2022年1月17日至21日在达沃斯以“携手合作，重建信任”为主题，汇聚世界领先领导人。
-
-声明中指出，来自商界、政府和非政府组织的领导人将在峰会上讨论因疫情而恶化的全球经济等问题。
-
-2021年1月25日至29日，世界经济论坛组织了一场名为“2021达沃斯议程”的在线活动，来自约70个国家的1500多名商界人士、政界人士、学者和非政府组织代表参加此次活动。
-
-参考链接：
-[https://www.trt.net.tr/chinese/cai-jing/2021/09/17/shi-jie-jing-ji-lun-tan-jiang-yu-2022zai-da-wo-si-ju-xing-1707062](https://www.trt.net.tr/chinese/cai-jing/2021/09/17/shi-jie-jing-ji-lun-tan-jiang-yu-2022zai-da-wo-si-ju-xing-1707062)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

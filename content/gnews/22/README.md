@@ -2,10 +2,10 @@
 ---
 
 
-## 美国和加拿大卡车司机在边境集结以抗议疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892981/)
+## 澳洲证券交易所下跌2.3%，当地股市陷入全球抛售困境
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893051/)
 
-01/19/2022 北美的疫情限制正在对供应链危机产生不利影响。美国和加拿大卡车司机在边境集结抗议疫苗强制令
+01/21/2022 澳大利亚证券交易所下跌2.3%，当地股市陷入全球抛售的困境
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

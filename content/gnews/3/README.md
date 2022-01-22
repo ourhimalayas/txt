@@ -2,12 +2,16 @@
 ---
 
 
-## 美国要求联合国制裁相关朝鲜人士，中俄从中拖延
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893139/)
+## 陈凯歌就是垃圾
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893227/)
 
-01/21/2022 印度WION新闻：美国要求联合国对相关朝鲜人士予以制裁，中共和俄罗斯从中拖延
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
+
 
  
 
