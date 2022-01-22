@@ -2,36 +2,35 @@
 ---
 
 
-## 法国疫苗通行证即将生效
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893242/)
+## 美联储密切关注数字现金的发展
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893290/)
 
-撰稿：加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
-根据1月20日外媒报道，法国总理卡斯特周四于巴黎宣布，政府将在2月份取消大部分中共病毒封锁限制，但需持有疫苗通行证，并在室内戴口罩。卡斯特在新闻发布会上说，疫苗通行证将于周一生效。人们将不再被允许出示阴性检测结果进入餐馆、酒吧、剧院、博物馆和体育场或乘坐火车，只接受疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626757.jpg)
-从2月2日开始，许多城市的体育场、竞技场和其他大容量场所，将被允许再次满负荷运行。必须在家工作的规定将被取消，户外将不再需要佩戴口罩。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-过去一周，法国平均每天中共病毒患者高达32万例。在强制施行疫苗通行证后，法国的疫情走向将会如何，我们会持续关注报道。
+整理/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
 
+据《THE VERG》1月21日报道， CNBC引述，美联储的一份新文件显示，由美国政府支持的数字美元可能会导致更快的资金转移，并且比当前的银行系统更容易获得。
 
-总编：童谣
+该文件作为“讨论的第一步”，并不提倡实际创建“中央银行数字货币”（或 CBDC）。尽管如此，数字美元的创建将是一个巨大的转变。然而，其中也会潜在不利因素，包括：降低商业银行对消费者的吸引力，并影响美联储影响金融体系的能力。美联储现在正在征求意见，包括对该文件可能遗漏的任何内容。
 
-编辑：Lakeman文仁
+据路透社报道，该文件朝着数字美元的存迈出了一步，当时大约有 90 个其他国家正在考虑创建自己的数字货币。欧洲中央银行正在研究创建数字欧元，中国一直在测试数字人民币。
 
-新闻：[France to lift COVID-19 restrictions in February](https://www.politico.eu/article/france-to-lift-covid-19-restrictions-in-february/)
+与此同时，在加密货币领域中，稳定币（其中一些将其价值与美元挂钩）的地位一直在上升。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-3.png)
+参考链接：[Digital cash gets a look from the Fed](https://www.theverge.com/2022/1/21/22894101/federal-reserve-us-government-digital-dollar-central-bank-currency)
 
-校正/发稿：浪迹天涯
+*发布：tianzhihuan*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

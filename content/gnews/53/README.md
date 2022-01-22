@@ -2,41 +2,20 @@
 ---
 
 
-## 吃起狗肉来有声有色的杨贝贝Isobel Yeung是真心爱狗吗
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1891970/)
+## 姚明邀请NBA球员埃内斯·坎特访问中国 埃内斯的精彩回复
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1892089/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获_副本-1.png)
-郭文贵先生转了杨贝贝吃狗肉的盖特——
-![](https://assets.gnews.org/wp-content/uploads/2022/01/001.png)
-下面我们就按图索骥来看一下原片——
+埃内斯问姚明，这次旅行，我们能不能参观维吾尔族的奴隶劳改营？我们能去趟西藏吗？能访问香港和台湾吗？能见一见网球运动员彭帅吗？ 我今年夏天想来中国亲眼看看一切，让世界能看到中国真实的一面。
 
-视频来源：[纪录片 《玉林狗肉节》 美国记者抨击中国人吃狗肉……](http://k.sina.com.cn/article_7530565666_m1c0db502203300w5uq.html?display=0&amp;retcode=0)
+就在昨天，我在新闻上看到前NBA 球员姚明，邀请我去中国。我想说得非常清楚，我并不反对中国人民，我是反对中国共产党这个邪教和残暴的独裁者习近平。好吧，我想说谢谢你的好意，我接受你的邀请，我今年夏天想来中国亲眼看看一切。
 
-曾经看过一个故事说一个在英国受过高等教育的白人到非洲冒险，他来到了食人生番部落并最终融入食人生番的部落，多年后他的同胞在非洲从林里碰到了这位白人同胞，看到他大快朵颐地吃人肉，就非常吃惊地问他，你来自文明世界如何能吃得下人肉呢？这位已经融入食人生番的白人回答说：No! 我跟他们还是不一样的，你没看到我在吃人肉的时候用的是刀叉吗？
+这次旅行，我能不能参观维吾尔奴隶劳改营，或探访被折磨、强奸和虐待的无辜妇女？我们能看看该政权在摘取器官后是如何销毁尸体，以便无据可查的？你们只给我们看宣传？在中国的时候，我们能去趟西藏吗？我们能看看这个政权在对这些美丽的人做什么吗？在中共政府的统治下，西藏人民没有基本权利和自由，让我们向世界展示中国共产党是如何抹杀，西藏人的特征、宗教和文化。
 
-相较于食人生番，把吃狗看成天经地义的中国也是另一种的落后，这种血腥的落后需要革除，而那个到玉林狗肉节探班的杨贝贝Isobel Yeung则不然，她和她所任职的VICE的到来意味着文明世界对玉林狗肉节的审视，但是吃起狗肉来有声有色的杨贝贝Isobel Yeung却又一次地惊掉了我们的下巴，为什么呢？因为这一次吃狗肉的是来自文明世界的并且是说英语的美国女记者，那么她与那些视吃狗肉为天经地义的中国同胞有什么不同呢？——她分明是用拿惯刀和叉的手在吃狗肉嘛！
+这次旅行我们能一起访问香港吗？香港曾经是世界上自由的城市之一，然而现在新闻自由被毁灭，对权利的打压和更多的逮捕每一天都在发生。在这次旅行中，我们能不能一起访问台湾？这样你可以看到民主是如何蓬勃发展的，即使他们担心中国随时会入侵。让我们看看台湾人的笑脸，当你告诉他们你支持的政权想要杀他们，如果他们不想成为中国的一部分。
 
-撰稿：喜马拉雅的肉夹馍；
+当我在中国的时候，我可以去看看网球运动员彭帅吗？我可以直接跟她说话问她是否安全无恙吗？她能自由地回答吗？如果你同意做我提到的事情，我会访问中国，听好了姚明，你或你的共产党收买不了我。我不需要豪华的中国之旅，我想让世界看到真实的中国，在中国共产党邪教残酷统治下的奴隶劳改营。数以百万计的人因为被监视而生活在恐惧之中，你根本无法逃脱。请告诉我，我会自己买票乘第一班航班去中国。谢谢你。
 
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+视频剪辑：阿丙 | 翻译：烟波浩淼 | 视频制作+字幕：芥末 |编辑 & 发布：断播
 
  
 

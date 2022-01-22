@@ -2,23 +2,30 @@
 ---
 
 
-## 如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893391/)
+## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
 
-像我是短发的，肯定不是音乐家。然后呢还有他的小儿子，他现在也是音乐家的姿 态在现场。所以你看我们今天刚才上了这么多人节目，包括这孩子，300年飞飞的 家里面这3个孩子，还有我们一个个的孩子，包括我们这个文风啊，米线伦敦的是 吧，你看他的孩子Eta。小提琴、唱歌的、钢琴的，我们爆料革命的成长，你看看 是每时每刻就在你觉得这个直播可能根本不重要的时候，它就这样发生。那么刚才 Rica问这个问题的时候，实际上是非常重要的，生活中你每次（遇到）所有的人， 你都把当下这一刻（珍惜），（如果）都不严肃地（对待），几乎是全中国人，我 走到世界去，中国人和非洲人最想，就非洲人老觉得叫kill time,英文叫消磨时光。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-他们唯一的快乐就是音乐，就是大家在村里边儿围着草房子，转着圈，哼哈哼哈唱。咱们中国人东北叫扭秧歌，南方人叫煲汤，然后再一个打麻将，再一个就是男的女的蹲在地上，扯那些无聊的闲篇。就是你学到世上最聊聊无事，当下就是等死，混日子，完全没有时间概念的，就是非洲和咱们中国。而且所有中国人的生活打交道打麻将的人，抽着烟，说什么饼啊，几项啊（麻将用于），都这样是吧？ 一打就是打到死，全世界只有中国人打麻将，能打麻将的味儿是一样。你七嫂，最爱就是麻 将。我回到家一看，她打麻将，我永远是支持地看她，我永远没学会，他们问我意见，我说我真到现在没闹懂，你们为什么打麻将？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/如何跟年纪大的人打交道面对病毒怎么做来拯救家人朋友（二）-.jpg)
-发布： *tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
+
+
+据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
+本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+
+台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
+台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
+来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
 
  
 
