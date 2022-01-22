@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 4:12 AM (UTC)`
+
+1/21/2022 Miles Guo: Why is the New Federal State of China going to sign the “One Thousand Year Peace Treaty” with the world? Why is the statement made by Sharif a huge insult to the Chinese people? Yang Jiechi, Wang Yi, Wang Huning, Wang Qishan, Tang Jiaxuan, and Li Zhaoxing are more vicious than Zhao Gao and Li Si (evil officials under the Qin Shi Huang emperor in ancient China).<br/><br/>1/21/2022 文贵直播：新中国联邦为什么要和世界签千年和平协议？为什么谢里夫的讲话是对中国人巨大的羞辱？杨洁篪、王毅、王沪宁、王岐山、唐家璇、李肇星比赵高、李斯还要坏！<br/>
+![img](https://media.gettr.com/group49/getter/2022/01/22/04/4f3a82f8-8951-816e-f97c-e8a6b9e196ca/out.jpg)
+
+---
+
 `@miles 1/22/2022 4:05 AM (UTC)`
 
 1/21/2022 Miles Guo: The CCP’s bribing various state leaders harms the Chinese people in the name of the country. Pakistan is one of the places for the CCP to kill people, and conducting drug trafficking, smuggling, human trafficking, organ transplants, and money laundering. What are the consequences of colluding with the CCP? You can find it out just by looking at today’s Venezuela, Afghanistan, and Kazakhstan!<br/><br/>1/21/2022 文贵直播：中共行贿各国元首是以国家的名义伤害中国人；巴基斯坦是中共杀人、贩毒、走私、贩卖人口、器官移植、洗钱最关键的地方之一；跟着中共有什么后果？看看现在的委内瑞拉、阿富汗、哈萨克斯坦就知道了！<br/>
@@ -144,13 +151,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/19/2022 Miles Guo: The Party of Davos and the CCP are the comeback of the previous rule of religion and the rule of monarchs in the shape of devils. Only if we eradicate them can we make the world truly belong to the people. What are the differences between faith and superstition? Without the enlightenment of the mysterious forces of nature, I would not have lived till today.<br/><br/>1/19/2022 文贵直播：达沃斯和中共是过去的宗教和皇权统治换上魔鬼面孔卷土重来，只有铲除他们才会实现民天下！信仰和迷信有何区别？若没受到大自然神秘力量的启蒙，文贵活不到今天。
 ![img](https://media.gettr.com/group36/getter/2022/01/20/23/567ffdef-48d3-9b5b-dc70-fc51305d8291/out.jpg)
-
----
-
-`@miles 1/20/2022 11:23 PM (UTC)`
-
-1/19/2022 Miles Guo: There is no way back for Xi Jinping. Jiang Zemin, Meng Jianzhu, Wang Qishan, and Yang Jiechi set up a trap for Xi, turning him into the most hated person of the 95 million CCP members. Xi’s pouring money into the world is bound to completely destroy the CCP’s economy, so he will inevitably implement the most draconian economic policies. In the end, Xi will definitely invade Taiwan.<br/><br/>1/19/2022 文贵直播：习大神已走上不归路，江、孟、王和杨洁篪设局让习成为9500万党员最恨的人；习的大撒币会彻底毁掉中共经济，习将实行最严厉的经济措施，最后一定打台湾！<br/>
-![img](https://media.gettr.com/group3/getter/2022/01/20/23/49f4a59f-6319-2e98-ad3b-219378dc8b8e/out.jpg)
 
 ---
 
