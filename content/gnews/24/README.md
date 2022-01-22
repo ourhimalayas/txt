@@ -2,8 +2,8 @@
 ---
 
 
-## 音乐与灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892320/)
+## 音乐的传染性及干扰性
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892372/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组

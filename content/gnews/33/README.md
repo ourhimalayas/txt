@@ -2,24 +2,23 @@
 ---
 
 
-## 美议员指控奥委会官员助中共掩盖彭帅事件
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892128/)
+## 有声|“一灯能除千年暗 一智能灭万年愚”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892231/)
 
-作者：首尔天池农场—zzballac
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在距离中共北京冬奥会正式开幕仅剩两周之际，美国众议员，麦克-加拉格尔，于当天提出了一份《争取彭帅自由法案》。在这份法案中，他要求美国政府依据《全球马格尼茨基人权问责法》对国际奥林匹克委员会的主要官员实施制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-上午9.55.46.png)
-加拉格尔议员指责称，国际奥委会与中国共产党串通一气，帮助中共化解由彭帅失踪事件所带来的公关危机，为北京冬奥会顺利举行排除了障碍。但加拉格尔强调，国际奥委会的介入并没有减轻世人对彭帅的担忧，相反的，全球民众更因此看清了国际奥委会与中共沆瀣一气的真面目。那就是，奥委会没有与彭帅站在一起，反而为中共提供掩护。
+配音：香草山健身部-格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭先生揭秘，本次达沃斯论坛的一项核心议题—— “未来100年金融计划”，即掌控数字货币化的权利。在数字货币时代到来之际，与全世界奉行的去中心化机制相对立，中共的数字化人民币却强调绝对中心化，绝对政府化。除了面向中共国人民，中共还强行向世界推广数字人民币。
 
-加拉格尔还提到，彭帅缺席了正在举行的澳大利亚网球公开赛，这表明她依然没有获得自由。而鉴于国际奥委会帮助中共当局掩饰其严重侵犯人权行为的做法，加拉格尔呼吁道，仅仅抵制中共北京冬奥会或要求易地举行冬奥会是不够的，应该对巴赫和与中共当局同谋的其他奥委会官员实施制裁。
+达沃斯依靠资本奴役、操控全世界。喜币，作为遵守全世界政府法律、未来在全球流通的数字货币，而世界经济即将崩溃之际，喜币将挑战和推翻达沃斯操纵下的旧的金融体系，成为一盏消灭黑暗的明灯。
 
-参考链接：[Rep. Gallagher to push sanctions on Olympic committee over alleged complicity in CCP Peng Shuai disappearance](https://news.yahoo.com/rep-gallagher-push-sanctions-olympic-220211153.html)
+在病毒、疫苗灾难面前，全球主流媒体审查、封锁信息，新中国联邦在GTV、盖特上向世界宣扬正道主义，传播真相。新中国联邦和喜币，就是“一智能灭万年愚”！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+文字版原文：[“一灯能除千年暗 一智能灭万年愚”](https://gnews.org/zh-hans/1889112/)
 
-总编：文特
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,31 @@
 ---
 
 
-## 有声|美国中共病毒确诊病例数急剧下降
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892227/)
+## 美政府暂停中共国航空公司飞往中共国的44个航班
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1892357/)
 
-配音：香草山健身部-格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-约翰霍普金斯大学汇编的统计数据显示，周一美国报告了大约 717,800 例新病例。与一周前 1 月 10 日报告的创纪录的 140 万例新病例相比，中共病毒确诊病例明显下降。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-30.jpg)美政府暂停中共国航空公司飞往中共国的44个航班 网络图片
+据美国之音1月22日报道，美国政府21日宣布将暂停中共国厦门航空公司、国际航空公司、南方航空公司和东方航空公司四家中共国航空公司从美国飞往中共国的44个航班，将从1月30日厦门航空公司从洛杉矶飞往厦门的航班开始，一直持续到3月29日。美国航空协会表示支持华盛顿的行动。
 
-最近几天，美国有34个州的感染病例数量急剧下降，其中包括一些Omicron变种感染数量增长巨大的州，包括纽约、加利福尼亚和佛罗里达等州。因中共病毒住院的人数也有所减少。此外，还有一些州单日确诊病例数开始下降。
+这是美国对中共国政府暂停一些美国的航班而做出的回应。由于一些乘客的COVID-19检测呈阳性，从2021年12月31日起，中共当局暂停了美国联合航空公司的20个航班、美国航空公司的10个航班以及达美航空公司的14个航班。
 
-纽约州州长、民主党人凯茜‧霍楚尔（Kathy Hochul）对此表示，每日确诊病例的大幅下降的原因可能是假期周末引起报告的滞后。虽然她担心在不久的将来，感染后的住院人数可能会回升，但总的来说，对中共病毒疫情的预测要比之前的光明得多。
+美国运输部说，中共国暂停这些航班“违反公共利益，理应有相称的救济行动”。自从去年12月奥密克戎变种给美国带来创纪录的感染病例，被取消的美国航班数目激增其实。就算停掉所有的航班，只要中共还在，病毒和变种就会一直存在，因为疫苗就是产生变种病毒的根源。消灭中共，找出病毒原始毒株，推广伊维菌素、青蒿素等防病毒和解疫苗的药物，才能解决这场旷世的病毒疫苗大灾难。
 
-人们普遍对此持乐观情绪，认为奥米炕变种引发的“感染海啸”正在消退。
+新闻参考链接：[https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html](https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html)
 
-文字版原文：[美国中共病毒确诊病例数急剧下降](https://gnews.org/zh-hans/1887066/)
+* * *
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
