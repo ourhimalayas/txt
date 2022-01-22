@@ -2,22 +2,41 @@
 ---
 
 
-## 爆料革命的目的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1894040/)
+## 随着冬奥会的临近，北京将维持COVID紧急状态
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1894127/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/爆料革命的目的-scaled.jpg)
-我们来看看整个我们运动的历史，你们要记得自己和很多人都有一些不同的动机，有些人有很多的企图。为什么说，我在几年当中特别喜欢和班农先生在一起，就是他第一天的时候，其实也是帮助了我们，一定要消灭共产党，因为它们是一个跨国际的犯罪集团。所有的人，他们支持我们的很多运动，比如天安门事件之类的。有很多的美国人，比方说， 其实从来没有一个人，说中国共产党并不是一个合法的政党，它就是一个跨国际的犯罪集团。其实这一点来讲，在美国人的这个思想里头非常重要，这是非常重大的一个事件。我们要记得任何一个运动，特别是我们来想一想，我们要完成的这个目的，也就是我们的郭先生以及和我们的运动，我们整个的目的就像是要建设历史上最为优秀的，历史和文明要比印度的宗教还要悠久，比整个的古希腊，比西方的基督教，还大的最大的文明。
+新闻来源：路透社
 
-*发布：开智则立*
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/SKVMIXCOZFN7VMNHNRWWXFZXF4-2.jpg)
+
+
+资料来源：路透社
+
+中共国首都北京周六敦促其所有地方保持“全面应急模式”，因为距冬季奥运会开幕还有不到两周的时间，该市继续报告新的本地冠状病毒病例.
+
+北京市疾病预防控制局官员周六在新闻发布会上说，自1月15日以来，北京共发现27例确诊的国内传播病例和5例本地无症状感染者。
+
+在其他地方，东北城市哈尔滨将从周一开始在全市范围内对大约 1000 万人进行 COVID-19 测试，尽管最近没有病例，称这是在漫长的农历新年之前先发制人假期。
+
+最近几周，中共国各地的城市实施了更严格的限制措施，试图控制 COVID-19 的新爆发，随着北京准备在下月初举办冬奥会，这项任务也变得格外紧迫。
+
+许多城市建议居民留在原地或要求旅行者在抵达前几天报告他们的行程。
+
+国家卫生当局周六表示，中国大陆在 1 月 21 日报告了 63 例新的 COVID-19 病例，低于一天前的 73 例。
+
+国家卫健委在一份声明中表示，新增病例中有23例为本地传播，与前一天相同，其余为境外输入。
+
+中共国未归类为确诊病例的新无症状病例数从一天前的31例上升至43例。
+
+没有新的死亡病例，死亡人数为 4,636 人。
+
+截至1月21日，中国大陆确诊病例105547例。
+
+🔗 [https://www.reuters.com/world/china/chinas-harbin-conduct-city-wide-covid-tests-ahead-long-holiday-2022-01-22/](https://www.reuters.com/world/china/chinas-harbin-conduct-city-wide-covid-tests-ahead-long-holiday-2022-01-22/)
+
+责任编辑/发布： Shuizhuyu
 
  
 

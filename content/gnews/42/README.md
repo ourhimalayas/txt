@@ -2,31 +2,34 @@
 ---
 
 
-## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
+## 纽约女子大骂“中国人带病毒”被捕，我们要传播病毒真相应对排华
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893441/)
 
-**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-329.jpg)[图片来源](https://k.sina.cn/article_1686546714_6486a91a020014pk5.html)
+曼哈顿中城23街地铁站2021年底发生一起仇恨华人犯罪案件，涉事非洲裔女子赖特(Tandika Wright)日前被逮捕并被控仇恨犯罪，郭文贵先生指出我们要努力传播病毒疫苗真相，和中共不等于中国人，来化解西方的排华浪潮。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+警方称，赖特目前仍在保释期间，此前她因谋杀、纵火等重罪被判入狱多次，逮捕纪录有35次。警方表示，35岁的赖特于去年12月9日下午6时15分，在一辆南行的F线列车上接近了一名26岁的亚裔男子，随后大骂“你是中国佬吗？你们的人把病毒带到这，杀死了我们的人。”(Hey, are you ac—k? You people brought the virus here. You people killed my people) 随后还猛推了受害者。
 
+警方称，赖特在本月被捕，并被控以仇恨犯罪和严重骚扰罪。
 
-Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
+赖特曾于2014年12月11日被捕，并被控二级谋杀，但州纪录显示，她最终被判一级过失杀人未遂，并在2015年至2019年期间服刑，期间她获得假释，此次被捕时她仍在保释期间。纪录还显示，2011年至2013年，赖特还因四级纵火罪被判入狱，她有35次被捕纪录。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
+这起案件的发生也再次验证了郭文贵先生的担忧，在2022年1月21日的《文贵大直播》中郭文贵先生表示，关于在西方排华反华这件事，他真的是很担心。中共在这方面给大家带来的危险是我们很多人都没有意识到的，我们中国人从来没有遇到过像今天这样面对全世界的怀疑和质疑，我们威胁到了全人类的存在。
 
+对于如何应对各国出现的排华事件，我们该怎么做？做什么？文贵先生明确指出，我们要传播爆料革命真相，一定要勤劳认真，把他当成神圣的使命，我们和共产党不是一回事。
 
-据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
-本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+要让西方人知道是我们最早说出这是中共的病毒生化武器，我们最早说的疫苗是灾难，病毒是手段。我们最早说出伊维菌素、羟氯喹和青蒿素。
 
-台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
-台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
-来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
+消息来源:
 
+[纽约地铁站骂「中国佬携病毒」非裔女曾被捕35次](https://tw.news.yahoo.com/%E7%B4%90%E7%B4%84%E5%9C%B0%E9%90%B5%E7%AB%99%E7%BD%B5-%E4%B8%AD%E5%9C%8B%E4%BD%AC%E6%94%9C%E7%97%85%E6%AF%92-%E9%9D%9E%E8%A3%94%E5%A5%B3%E6%9B%BE%E8%A2%AB%E6%8D%9535%E6%AC%A1-072917592.html)
+
+[2022/01/21 文贵先生直播大纲](https://gnews.org/zh-hans/1891572/)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
