@@ -2,35 +2,30 @@
 ---
 
 
-## 美联储密切关注数字现金的发展
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893290/)
+## 中日财经爆│美国发起反击 暂停中共国航空公司44个航班
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893374/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-193.png)[图片来源](https://s.newtalk.tw/album/news/701/61eb75f218eb9.png)
+美国运输部周五(1月21日）表示，将暂停四家中共国航空公司从美国飞往中国的44个航班，以回应中共政府因担心中共病毒（新冠病毒Covid-19）疫情而暂停部分美国航空公司航班的决定。
 
-整理/编辑：小红帽
+在美国政府采取这一行动之前，中共国有关部门暂停了美国联合航空公司、美国航空集团和达美航空的总共44个航班，因此前有乘客检测出中共病毒阳性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+这一决定从1月30日起生效，从厦门航空原定从洛杉矶飞往厦门的航班开始实施，并将削减厦门航空、中国国航、中国南方航空和中国东方航空的部分航班。
 
+美国运输部表示，中共国暂停一些航班“不利于公众利益，有必要采取适当的补救行动。”声明还说，中共国“对被点名的美国航空公司采取的单方面行动与中美双边协议不符”。
 
-据《THE VERG》1月21日报道， CNBC引述，美联储的一份新文件显示，由美国政府支持的数字美元可能会导致更快的资金转移，并且比当前的银行系统更容易获得。
+美国运输部表示，如果中共国修改“其政策，为美国航空公司带来必要的改善情况，运输部已做好充分准备，将再次重新考虑这一行动。”但它也警告称，如果中共国取消更多航班，“我们保留采取进一步行动的权利。”
 
-该文件作为“讨论的第一步”，并不提倡实际创建“中央银行数字货币”（或 CBDC）。尽管如此，数字美元的创建将是一个巨大的转变。然而，其中也会潜在不利因素，包括：降低商业银行对消费者的吸引力，并影响美联储影响金融体系的能力。美联储现在正在征求意见，包括对该文件可能遗漏的任何内容。
+自去年12月以来，被取消的美国航班数量激增，因为高传染性的中共病毒Omicron变种在美国引发的感染飙升至创纪录高点。
 
-据路透社报道，该文件朝着数字美元的存迈出了一步，当时大约有 90 个其他国家正在考虑创建自己的数字货币。欧洲中央银行正在研究创建数字欧元，中国一直在测试数字人民币。
+消息来源:
 
-与此同时，在加密货币领域中，稳定币（其中一些将其价值与美元挂钩）的地位一直在上升。
+[美国将从1月30日起暂停四家中国航司从美国飞往中国的44个航班（更新版）](https://cn.reuters.com/article/us-biden-china-airlines-0122-idCNKBS2JW02S?il=0)
 
-参考链接：[Digital cash gets a look from the Fed](https://www.theverge.com/2022/1/21/22894101/federal-reserve-us-government-digital-dollar-central-bank-currency)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

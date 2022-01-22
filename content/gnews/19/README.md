@@ -2,28 +2,43 @@
 ---
 
 
-## FBI高官与中共的勾兑
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1893776/)
+## 周四晚Twitter发生严重宕机事故
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1893845/)
 
-我们一定要找到FBI的人, 你为什么当初非法的虚假信息调查。谁让你来的? 谁举报的?
+作者：银河系农场 – 骄子
 
-**【郭先生直播摘要】 2022.1.17 FBI高官与中共的勾兑**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-**郭先生:**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-305.jpeg)图片来源：THE U.S.SUN NEWS
+据外媒报道，1月20日周四晚6点至8点，大量用户报告在使用Twitter时发生了问题。
 
-我给大家说一个大家可能根本不知道的事情。2020年病毒期间， 我在上面录制了一个节目，我说我们准备了口罩，准备了消毒剂，就在我现在住的这个房子。三天后警察FBI敲门，突然出现在家。在美国这是不可以的，他没有任何法律程序，他说当时川普总统公布了一个所谓的特殊时期，可以没有这个法律程序。他说有人举报你私自囤积大量的，社会被定义为的战时物资。
+据Downdetector称，53%的Twitter用户在使用该网站时遇到问题，36%的用户在使用该应用程序时遇到问题，12%的用户报告在服务器连接时遇到问题。
 
-FBI来了，还有警察，结果我们的律师马上联络上，马上保镖过来，说那你看吧，看车库里口罩手套和清洁品。这件事我从来没跟你们说过。结果他们问你们捐给谁了，我马上提供清单
+目前事故原因尚未确定。
 
-捐给教堂和医院。整个我住在这个康州地方，我是唯一一家捐口罩的，捐这个东西。我们是代表法治基金。结果他们一核对都是真的，然后抱歉的就离开了。
+参考链接 [https://www.the-sun.com/news/4507772/twitter-down-website-outages-worldwide-downdetector/](https://www.the-sun.com/news/4507772/twitter-down-website-outages-worldwide-downdetector/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+编辑：童谣
+校对/发稿：文敬
 
-你知道这是谁干的吗？FBi内部人才能有这样的动力和权力干这种事情。 这个FBI的Richard就是原来我的保镖公司合伙人，和吴征的现在合伙人，和PAG现在的调查人，他是整个曼哈顿的老大，差点成为FBI的老大，FBI的头三号人物。就这小子，Richard Frankel，爱马仕领带看得没有，跟吴征在蒙古包里看美女跳舞的就是他。他又参与PAG官司，你说这叫不叫利益冲突，你看了看这叫不叫利益冲突？我们一定要找到FBI的人，你为什么当初非法的虚假信息调查，谁让你来的？谁举报的？
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
 
-
-
-视频剪辑：北方信使 |听写：雨山溪桥客 | 翻译：Arthur | 校对：tony |视频制作+字幕 ： CG.|编辑&发布：闪电训练
 
  
 

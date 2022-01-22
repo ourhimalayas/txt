@@ -2,42 +2,30 @@
 ---
 
 
-## 新罕布什尔州寻求将伊维菌素作为法律规定的中共病毒替代疗法
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1893380/)
+## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
 
-#### 撰稿：彩虹
+**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16x9.jpg)图片来源：SBS
-爱丽丝·乔达诺（Alice Giordano）曾是《波士顿环球报》、《美联社》和《纽约时报》新英格兰分社的新闻记者。1月21日，她在《大纪元英文》发表文章，报道新罕布什尔州准备成为美国第一个将伊维菌素作为非处方药提供并批准其作为中共病毒（COVID-19）的保护性治疗的州，该法案已提交给州众议院卫生、公众服务和老年人事务委员会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-文章说，虽然其他三个州提出的类似法案反响不佳，但新罕布什尔州法案的主要发起人告诉《大纪元》，她希望稍加修正的版本能够获得共和党多数委员的足够票数，将其提交给共和党控制的众议院批准。
 
-根据报道，州众议院已经对其他与中共病毒有关的法案表示了支持，包括全州范围内禁止政府和私人实施与该病毒有关的强制措施。
+Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
 
-对于该法案，作为一名注册护士的州共和党众议员利亚·库什玛（Leah Cushman）向《大纪元》介绍了她提出的这个HB3005法案，“人用级别的伊维菌素如果能够提供给COVID（中共病毒）患者，我绝对相信会拯救人命”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
 
-当然，也有医生表示了反对。例如，达特茅斯-希区柯克医疗中心（Dartmouth-Hitchcock Medical Center）的大卫·莱文（David Levine）医生，无视事实，照本宣科并威胁说道，开出伊维菌素是“危险的，完全不符合全世界的医疗标准。我绝不希望给自己或家人开这种药，并将对向我的亲人推荐这种药的人采取法律行动”。
 
-而美国医师协会新罕布什尔州分会（New Hampshire Chapter of the American College of Physicians）会长威廉·帕尔默（William Palmer）博士也提交了关于该法案的书面证词，危言耸听说，他担心如果该法案获得通过，将有可能使该州的医疗保健系统因“伊维菌素引起的副作用”而不堪重负。
+据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
+本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
 
-但是，在其领域内发表过600多篇同行评审论文的神经重症监护医生保罗·马里克（Paul Marik）博士作证说，伊维菌素“是这个星球上最安全的药物之一”。
-
-马里克博士告诉人们，人类级别的伊维菌素在79个国家被批准用于治疗病毒。他引用世界卫生组织自己的数据指出，自从1987年发现伊维菌素作为一种抗寄生虫药物以来，已经向人类发放了37亿剂。
-
-因此，他说：“所以日本人、印度人、巴西人可以安全地服用它（伊维菌素），但说它对美国人来说是有毒的。你们一定是在开玩笑！”
-
-作者提及，与新罕布什尔州提案类似的法案最近在印第安纳州被提交给其主要由共和党人组成的卫生委员会，然而，该法案招致了该州医疗官员的大量批评，他们称之为危险的法案。
-
-2021年10月份，亚利桑那州共和党参议员凯利·汤森（Kelly Townsed）提出一项法案，禁止药剂师在公共卫生紧急情况下拒绝为伊维菌素的“标签外（off-label）”用途配药。
-
-早些时候在宾夕法尼亚州，共和党州众议员道恩·基弗尔（Dawn Keefer）也提出一项法案，允许医生开出伊维菌素以及硫酸羟氯喹的处方，用于治疗中共病毒（COVID-19）。
-
-但是，这些法案都还没有通过。
-
-**新闻来源**
-
-[New Hampshire Seeks to Make Ivermectin an Alternative COVID Treatment Under Law](https://www.theepochtimes.com/new-hampshire-seeks-to-make-ivermectin-an-alternative-covid-treatment-under-law_4228066.html?welcomeuser=1)
+台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
+台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
+来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
 
  
 
