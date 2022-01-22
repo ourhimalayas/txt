@@ -2,24 +2,33 @@
 ---
 
 
-## 面对刑事诉讼，币安在泰国“推陈出新”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1895015/)
+## WHO表示，没有证据表明健康的儿童和青少年需要加强针
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1895125/)
 
-据《Bitcoin.com》记者Kevin Helms，2022年1月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1804-e1642869734825.png)图片源自：Bitcoin.com
-泰国证券交易委员会（SEC）对币安（Binance）无牌经营提起诉讼。而币安与泰国上市公司海湾能源发展公司（Gulf Energy Development）签署协议，尝试建立新的加密货币交易所。
+据《CNBC》记者Jessica Bursztynsky，2022年1月18日报道：
 
-**泰国上市公司海湾能源发展公司周一通知泰国证券交易所（SET），其全资子公司海湾Innova已与币安集团签署谅解备忘录，共同研究数字资产交易所和相关领域的发展途径。**
+**关键点**
+• 世卫组织首席科学家苏米亚·斯瓦米纳坦（Soumya Swaminathan）博士周二表示，目前没有证据表明健康的儿童和青少年需要加强针来补充Covid-19疫苗接种。
+• 斯瓦米纳坦透露，该机构咨询小组本周晚些开会，讨论各国应该如何安排加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1810-e1642871202755.png)2020年7月3日，COVID-19爆发期间，世界卫生组织 (WHO) 首席科学家苏米亚·斯瓦米纳坦 (Soumya Swaminathan) 出席日内瓦联合国记者协会 (ACANU) 组织的新闻发布会。
+图片源自：法布里斯·科弗里尼 | 路透社
+**世界卫生组织首席科学家苏米亚·斯瓦米纳坦（Soumya Swaminathan）博士周二表示，目前没有证据表明健康的儿童和青少年需要加强针来补充Covid-19疫苗接种。**
 
-**该公司补充，随着经济越来越受创新和技术的推动，泰国数字基础设施将快速增长。数字资产和相关技术在提升该国金融基础设施和满足泰国市场需求方面发挥着突出作用。**
+斯瓦米纳坦说，该机构的免疫专家战略咨询小组（Sage），将于本周晚些开会，研究各国应如何使用加强针。
 
-**海湾能源详述认为, 与币安的合作将帮助泰国推进其数字资产和区块链基础设施的发展。**
+斯瓦米纳坦在世卫组织媒体简报会上说：“目的是保护最脆弱的人，保护那些面临严重疾病和死亡风险高的人，这些人包括老年人口、免疫力低下的基础疾病人群以及卫生保健从业者。”
 
-币安最近在泰国证券交易委员会遇到了麻烦。该委员会去年7月宣布，它向泰国皇家警察（ECD）经济犯罪打击部门提起针对币安刑事诉讼。
+世卫组织突发卫生事件计划执行主任迈克尔·瑞安博士表示，该机构仍未清楚加强针正确的接种间隔和接种次数。
 
-根据证券交易委员会的说法，币安未经许可经营加密货币交易业务，并认为该公司“可能受到刑事制裁”。
+“我认为人们确实有一定的恐惧，担心加强针需要每两三个月一次，担心每个人都必须获得加强针。我认为我们还没有答案，” 瑞安说。
 
-文章来源：[https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/](https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/)
+他说，科学家最终可能会重新定义注射疫苗需要的剂量。虽然大多数健康人可能只需要两针，但他认为老年人或免疫力低的人群可能需要三针或四针。
+
+斯瓦米纳坦和瑞安的评论发表在美国疾病控制和预防中心批准对12至17岁的青少年进行加强注射后大约两周的时间。目前冠状病毒病例激增由高度传染性的Omicron变体引发。
+
+激增还导致儿科病例急剧增加。根据美国儿科学会最新更新的数据，1月6日当周，共计有超过580,000例儿童冠状病毒病例，比12月30日前一周增加了78%。
+
+文章来源：[https://www.cnbc.com/2022/01/18/who-says-theres-no-evidence-healthy-children-adolescents-need-covid-boosters.html](https://www.cnbc.com/2022/01/18/who-says-theres-no-evidence-healthy-children-adolescents-need-covid-boosters.html)
 
 翻译：洛杉矶盘古农场 – Raul
 

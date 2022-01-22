@@ -2,37 +2,38 @@
 ---
 
 
-## 郭先生爆料西方社会将与中共双脱钩
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894964/)
+## 面对刑事诉讼，币安在泰国“推陈出新”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1895015/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在1月21日的大直播中爆料称，欧盟至少有三到四个国家将永久关闭其驻中共国大使馆。
+据《Bitcoin.com》记者Kevin Helms，2022年1月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1804-e1642869734825.png)图片源自：Bitcoin.com
+泰国证券交易委员会（SEC）对币安（Binance）无牌经营提起诉讼。而币安与泰国上市公司海湾能源发展公司（Gulf Energy Development）签署协议，尝试建立新的加密货币交易所。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-20.jpeg)
+**泰国上市公司海湾能源发展公司周一通知泰国证券交易所（SET），其全资子公司海湾Innova已与币安集团签署谅解备忘录，共同研究数字资产交易所和相关领域的发展途径。**
 
-据郭先生判断，如果欧盟开始出手，美国则一定会跟进，甚至可能先于欧盟采取措施。究其原因，先行动的一方将更加代表世界自由的灯塔。因此，这些国家一旦做出决定，他们和中共的关系将发生巨大的变化，即与中共在经济和政治方面双脱钩。
+**该公司补充，随着经济越来越受创新和技术的推动，泰国数字基础设施将快速增长。数字资产和相关技术在提升该国金融基础设施和满足泰国市场需求方面发挥着突出作用。**
 
-对此，郭先生补充道，双脱钩发生后，世界必然需要寻找一个能够代表中国人的合法机构，而这一职能非新中国联邦莫属。此外，双脱钩之后，那些中国和全世界无处可去的资金只能进入喜联储，彼时GTV的股票必将一飞冲天。
+**海湾能源详述认为, 与币安的合作将帮助泰国推进其数字资产和区块链基础设施的发展。**
 
-郭先生解释道，各国与中共的政治脱钩眼下已箭在弦上，短期内必然发生。而中共北京冬奥会将是共产党的冬眠会，其对中共的打击是致命的，这也让共产党逐步开始死亡倒计时。
+币安最近在泰国证券交易委员会遇到了麻烦。该委员会去年7月宣布，它向泰国皇家警察（ECD）经济犯罪打击部门提起针对币安刑事诉讼。
 
-参考链接：[2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](https://gtv.org/video/id=61eaab2f533c672fca804729)
+根据证券交易委员会的说法，币安未经许可经营加密货币交易业务，并认为该公司“可能受到刑事制裁”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+文章来源：[https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/](https://news.bitcoin.com/binance-launch-new-cryptocurrency-exchange-thailand-thai-sec-filed-criminal-complaint/)
 
-总编：文真
-编辑：文特
-校正/发稿：谐趣园
+翻译：洛杉矶盘古农场 – Raul
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：洛杉矶盘古农场 – Mike Li
 
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场– 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
