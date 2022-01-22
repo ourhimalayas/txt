@@ -2,30 +2,44 @@
 ---
 
 
-## 美政府暂停中共国航空公司飞往中共国的44个航班
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1892357/)
+## 谁动了我的韭菜：中国2021年人口净增长仅48万
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1892396/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-30.jpg)美政府暂停中共国航空公司飞往中共国的44个航班 网络图片
-据美国之音1月22日报道，美国政府21日宣布将暂停中共国厦门航空公司、国际航空公司、南方航空公司和东方航空公司四家中共国航空公司从美国飞往中共国的44个航班，将从1月30日厦门航空公司从洛杉矶飞往厦门的航班开始，一直持续到3月29日。美国航空协会表示支持华盛顿的行动。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-这是美国对中共国政府暂停一些美国的航班而做出的回应。由于一些乘客的COVID-19检测呈阳性，从2021年12月31日起，中共当局暂停了美国联合航空公司的20个航班、美国航空公司的10个航班以及达美航空公司的14个航班。
+整理：Little lamp
+编辑：小红帽
 
-美国运输部说，中共国暂停这些航班“违反公共利益，理应有相称的救济行动”。自从去年12月奥密克戎变种给美国带来创纪录的感染病例，被取消的美国航班数目激增其实。就算停掉所有的航班，只要中共还在，病毒和变种就会一直存在，因为疫苗就是产生变种病毒的根源。消灭中共，找出病毒原始毒株，推广伊维菌素、青蒿素等防病毒和解疫苗的药物，才能解决这场旷世的病毒疫苗大灾难。
-
-新闻参考链接：[https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html](https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜技术组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据《BBC》1月20日报道，中国国家统计局1月17日公布的数据显示，2021年中国**出生人口1062万人，人口出生率进一步降至7.52‰。**中国政府专门为此开放了三胎政策。但对此似乎很多网友并不买账。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/FSSHUUSO0D@26EHFQTLV.png)图片来源：新浪微博截图
+近几年，中国关于“老龄化”、“少子化”的讨论不绝于耳，“人口焦虑”愈演愈烈。但刚刚公布的去年人口数据，还是出乎很多人但意料。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+“人口负增长”的前兆？
 
+2020年中国出生人口为多少？这个问题在去年从年头吵到年尾——原本4月就要公布的第七次人口普查数据，到5月依然没有公布，《金融时报》一度援引知情人士称中国人口已经出现“负增长”，不过中国官方随后澄清并非如此。
 
+去年底公布的《中国统计年鉴2021》显示，2020年中国人口出生率为8.52‰，为首次跌破10‰，人口净增204万人，自然增长率为1.45%。
+
+2020年净增204万人的消息，掀起波澜，虽然中国人口尚未出现负增长，但净增人口近几年断崖式下跌。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/@LJ4LHANZMU8CSZS4BJ.png)图片来源：新浪微博截图
+负增长时代可能大大提前
+
+潜台词是，2022年中国人口可能进入“负增长”时代，如果成真，这一时间点将大大早于专家们的预测。
+
+谁动了我的韭菜，民心和民意如果不被覆盖，暴露的真相又何止令人发指呢？
+
+新闻来源：[中国人口：2021年净增长仅48万意味着什么](https://www.bbc.com/zhongwen/simp/chinese-news-60052580)
+
+发布：*tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

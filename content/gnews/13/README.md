@@ -2,56 +2,30 @@
 ---
 
 
-## Edward Moss从Melveny到Cahill目的是毁掉所有G系列
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892321/)
+## 美政府暂停中共国航空公司飞往中共国的44个航班
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1892357/)
 
-G-TV视频链接：[https://gtv.org/video/id=61eacf9f87664c47acd7d5c1](https://gtv.org/video/id=61eacf9f87664c47acd7d5c1)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-30.jpg)美政府暂停中共国航空公司飞往中共国的44个航班 网络图片
+据美国之音1月22日报道，美国政府21日宣布将暂停中共国厦门航空公司、国际航空公司、南方航空公司和东方航空公司四家中共国航空公司从美国飞往中共国的44个航班，将从1月30日厦门航空公司从洛杉矶飞往厦门的航班开始，一直持续到3月29日。美国航空协会表示支持华盛顿的行动。
 
-**郭文贵先生**：Melveny是曼哈顿上百人、上千人的律师事务所，这个Edward Moss在那那么长时间，五年的官司，这是赚…..8000万的律师费他得分多少吧你去想想，是吧？然后他现在突然又去了Cahill就是Bondi这个律师事务所，这就说明为啥？
+这是美国对中共国政府暂停一些美国的航班而做出的回应。由于一些乘客的COVID-19检测呈阳性，从2021年12月31日起，中共当局暂停了美国联合航空公司的20个航班、美国航空公司的10个航班以及达美航空公司的14个航班。
 
-Bondi律师事务所还有这Cahill，这哥们儿是在华盛顿，这要玩更多的政治。这哥们儿你想想光发出的subpoena就七八十个，七八十个，就把祖宗八辈儿都给你调查完了，完全没管，完全胡搅蛮缠，完全没有胡扯。
+美国运输部说，中共国暂停这些航班“违反公共利益，理应有相称的救济行动”。自从去年12月奥密克戎变种给美国带来创纪录的感染病例，被取消的美国航班数目激增其实。就算停掉所有的航班，只要中共还在，病毒和变种就会一直存在，因为疫苗就是产生变种病毒的根源。消灭中共，找出病毒原始毒株，推广伊维菌素、青蒿素等防病毒和解疫苗的药物，才能解决这场旷世的病毒疫苗大灾难。
 
-你看Edward Moss这个subpoena，而且得到了法官的支持，没有被动议，你就知道现在黑暗到什么程度了。所有参加的律师都觉得是无法接受、不可思议的。就现在你真的能看到这个案子已经开到了就完全是荒唐的结果，相当于中国赵本山拍的电视剧的感觉了。
+新闻参考链接：[https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html](https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html)
 
-从Melveny到Cahill到Bondi的介入，完全视美国法官和法律、法庭的严肃性和真实性完全不在，目的非常简单，就是把所有的G系列全部给你毁掉。
+* * *
 
-你想想当时Bondi是代表像美国SEC说这个G-TV不是Miles Guo的，然后就说G-TV你是冤枉的，然后证明了一系列G-TV的价值不是评估太高了，是评估太便宜了。现在他又跑去PAG帮助告我们，他竟然否认一切：“我不觉得G-TV跟Miles Guo有任何关系”，他本人：“我从来没跟他怎么怎么样”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-他跟我开律师会就在这视频上，同一个电视，同一个话筒，这在法律上是多可怕的事情！你给我这么多的法律建议，你竟然现在说跟我没有利益冲突，你不是找死吗这不是？
 
-就这个背后你看到，刚才Nick问得很好，这是一场阴谋的新的开始。Cahill要不顾一切法律把政治、华盛顿资源跟Edward Moss连在一起，跟共产党一起把它升级化整个G系列的威胁。
+编辑：【英国伦敦喜庄园编辑部】
 
-刚才你铲共说得对，大家不行动，你们不开始行动，就像那个贝贝杨一样，Isobel Yeung，你就可能成为昨天在曼哈顿在地铁里被推下地轨的那个人。你可以懒，你可以骗自己，你可以掩盖，可以自私，你怎么知道你不是被推下地铁的那个人呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-Isobel Yeung现在在全球造成的对华人的仇视、种族的危难，铲共你觉得你是律师，人家推你的时候因为你是律师不推你吗？你以为你脸上几个吃水的褶子多，就不推你吗？绝不会因为这个不推你。大家要没意识到这个问题，有敌人是卷沙带土、夹枪带棒，携邪恶力量对我们来了。
 
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,20 +2,20 @@
 ---
 
 
-## 太平联盟及单伟建与中共动用国家力量剿杀七哥环环相扣
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892334/)
+## 七哥以身证明法律和共产党的邪恶,让西方重回法治独立
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892378/)
 
-G-TV视频链接：[https://gtv.org/video/id=61eacfee87664c47acd7d5ce](https://gtv.org/video/id=61eacfee87664c47acd7d5ce)
+G-TV视频链接：[https://gtv.org/video/id=61eaf18f87664c47acd7e195](https://gtv.org/video/id=61eaf18f87664c47acd7e195)
 
-**郭文贵先生**：我一点都不积极，这个案子几乎是，黑暗还没有…..他们还没有动狠招儿呢，一定会比你想象得黑暗，他们花太多钱了！
+**郭文贵先生**：最后非常重要的，你大家会看到这个案子到最后，发现一个很让大家意外的问题，就这个案子的过程整个不仅是牵扯到美国，还牵扯到欧洲，就像那个李贞驹英国的案子，还有日本马上也会出来几个这样的李贞驹，包括就最可相信的俄罗斯甚至沙特都有共产党的无数的渗透。
 
-而且单伟建在美国太有力量，这是一个超级的金融间谍。而且你看Isobel Yeung和他之间这个案子都是，每次只要单伟建、太平联盟要开庭的时候，对我的什么双面间谍、郭文贵又要被审查了、被起诉了，还有Isobel Yeung都是连在一起的。
+最可怕的，这些渗透当中，共产党操控了监听美国人的手机、电脑、法官、检察官、律师的各种证据，最后西方不得不选出灭掉共产党或彻底改变。但是我相信会灭掉共产党，记住，就是共产党今天死了，这些事情也需要过程来证明。
 
-就是共产党完全组织一场，就是我要踢大卫兄弟的时候，Nick在旁边就给一棒子，我去打左脸的，Rachel就尿他一脸，然后铲侠就给他来一刀，永远是这个结局共产党。
+我们一定要西方通过程序上事实上法律上证明这些伤害在美国存在，才能把美国和欧洲藏在病体里的毒拔出来。它不可能共产党没了，这些人就消失了，这事儿就拉倒了，不可能的。我们就是要干的这个事儿，通过以身来证明法律和共产党的邪恶，让西方重新回到法治独立。
 
-所以你一看整个过去这五年，就太平联盟案子是整个共产党、是中南坑共产党这个国家机器，包括在香港的资产查封、银行、威胁、红通、4·19、政治庇护，一套活儿！现在它到收割的时候它怎么可能收手呢？
+一个法治是统治阶级和人民之间的桥梁，是一个社会分配财富，和绝大多数人与政府之间那个公约，它是一个履行方式。法律是结果、平衡，基本的公平和分配方式，维持社会的运转，这是法律的目的。我们不能让这个东西在西方毁掉，西方毁掉我们大家都是不安全的。
 
-它对它绑架的法官，它对它绑架的美国司法系统、司法部甚至白宫，它要穷其一切力量利用这个所谓的他们这个平台这个抓手伤害咱。2月2号一点都不看好。
+如果今天战友爆料革命当中谁要能意识到今天直播是七哥的案子，那你就今天白听了，它不是为了七哥来的，是为了灭爆料革命来的。而现在Edward Moss和Cahill和Melveny这些所有做的恶，包括背后的力量是对着新中国联邦来的，七哥也让你看到了这几年你根本无法想象的面对的挑战和付出。
 
 字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
@@ -35,15 +35,15 @@ G-News发布：小满；
 
 Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
 推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-GTV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

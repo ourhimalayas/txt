@@ -2,27 +2,31 @@
 ---
 
 
-## 马云的蚂蚁金服被暗示涉及中共前高官的贪腐丑闻
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892207/)
+## 有声|因坚持新冠疫苗任务，“抵制”公司遭抵制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892230/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-132.png)
-图片来源：www.ntdtv.com
+配音：香草山健身部-格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国媒体1月18日消息，位于密歇根州一家名为“抵制·卡哈特”的工作服公司，日前在最高法驳回了拜登的疫苗强制任务后，依然在内部邮件中称要为员工强制接种新冠疫苗。
 
-零对冲网1月21日报道，在马云被中共踢出阿里巴巴之前的2019年，我们报道了来自海曼资本的卡尔·巴斯的预测，说马云在离开阿里巴巴主席位置后很快将会被关监狱或被消失。
+消息一出立即引来抨击，某电视主持人呼吁停止购买该公司的商品。
 
-在中共破坏了由马云领导的蚂蚁金服上市后，马云就突然被消失，蚂蚁金服是在中共国市场上广泛运用的阿里巴巴的金融膀臂，我们很担心还会发生什么更糟的事。
+目前该公司员工已经提出强烈抗议，拒绝履行强制疫苗计划。
 
-即使马云后来表白上看又出来了，但已经判若两人，不再有那种在中共国是最富有的人的气场，更糟糕的是这标志着中共开始打击正在中国蓬勃发展的技术公司。最近在中共国中央电视台发布了一个报道暗示马云的总部在杭州的蚂蚁金服存在广泛的腐败丑闻，这样的丑闻在中共国可以被判死刑。
+文字版原文：[因坚持新冠疫苗任务，“抵制”公司遭抵制](https://gnews.org/zh-hans/1887692/)
 
-该报告文件并没有直指蚂蚁金服，但它进一步暗示去年8月份有中共高官的家属被抓。蚂蚁金服在房地产地块和其他政府政策支持下获得低价优惠。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-一名原杭州市委书记周江勇己被关监狱，许多人的指控涉及他的兄弟，一个商人，他曾帮助当地政府实体获得很多合同。在文件中，周江勇交代说他弟弟之所以能做生意是因为有他在政府握有权力。蚂蚁金服与周江勇的弟弟有一系列的买卖，有人说，现在可能是蚂蚁金服付出代价的时候了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-##### **新闻来源： **[Jack Ma’s Ant Group Implicated In Major Corruption Scandal Involving Ex-CCP Official](https://www.zerohedge.com/technology/alibaba-slides-ant-group-implicated-corruption-scandal-involving-ex-ccp-official)
-
-# ** **
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

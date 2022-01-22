@@ -2,44 +2,28 @@
 ---
 
 
-## 14岁就被切了肾脏的塞浦路斯战友竟被以强奸幼女罪引渡
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892246/)
+## 美宣布暂停中共国4家航空公司44个航班以回击中共
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892328/)
 
-G-TV视频链接：[https://gtv.org/video/id=61eacf4987664c47acd7d5b0](https://gtv.org/video/id=61eacf4987664c47acd7d5b0)
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-133.png)
+资料照片：中共国厦门航空公司的一架波音737-800客机（图片来自 《美国之音》）
 
-**郭文贵先生**：你们，我都挡不住的敌人和蓝金黄，你们谁能挡得住？下一步找你大卫，我说你大卫犯强奸罪，强奸你老婆，在英国我告你，在英国一定会立案的，为什么？有李贞驹等着你呢。把你老婆给绑架了，让你老婆说强奸她了，是不是啊，你俩孩子都不是你俩生的到时候，是不是啊，大卫强奸我了，强奸我，绑架我，这事儿都……你一点儿都别觉得是笑话。
+美国政府星期五（1月21日）宣布，将暂停四家中共国航空公司从美国飞往中共国的44个航班。这是美国方面对于中共政府以担心中共病毒疫情为由暂停一些美国航班的举动所做出的回应。
 
-塞浦路斯岛抓的战友当中，其中一个战友你知道抓起来说他什么吗？说：“因为你在中国犯有强奸幼女罪，所以中共起诉你，我要把你抓起来”。结果你知道荒唐到什么程度？咱这个战友说：“我要求看强奸幼女罪的资料”，他说：“你回到中国去看去！”最后这个人说：“你知道我是多大把肾切除的吗？我14岁把肾切除了，我27岁才有了一个孩子，你说我怎么强奸幼女？你检查我的病记录。”
+据《美国之音》1月22日报道，美国运输部表示，暂停中共国航空公司航班的行动将从1月30日厦门航空公司计划从洛杉矶飞往厦门的航班开始实施，并将一直持续到3月29日。这一决定将影响厦门航空公司、中国国际航空公司、中国南方航空公司和中国东方航空公司。
 
-这共产党干这荒唐事就不是一般的荒唐了！你觉得七哥挡不住，你觉得BVI谁能挡住？你觉得你们谁能挡住？李贞驹的事情那甚至九牛一毛都不算呐！
+在此之前，中共当局宣布，自2021年12月31日起，暂停美国联合航空公司的20个航班、美国航空公司的10个航班以及达美航空公司的14个航班。而在本周二，中共政府又宣布了新的取消美国航班的决定。
 
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
+代表三家受影响的美国航空公司的行业组织——美国航空协会（Airlines for America）表态支持美国政府的行动，并称该行动是为确保美国的航空公司在中共国市场受到公平对待。
 
-编辑整理：Jacques；
+美国运输部指出，中共国对上述美国航空公司采取的单方面行动不符合两国的双边协议。中共国暂停这些航班违反公共利益，理应采取对应行动。美国运输部还警告称，如果中共国取消更多航班，美国方面将保留采取进一步行动的权利。
 
-字幕文件制作：小满；
+此外，据美国运输部披露，法国和德国也对中共国的防疫行动采取了类似措施。《美国之音》的报道指出，中共国实际上对旅行者关闭了边境。根据中共国家民用航空局去年9月公布的数据，中共当局已将国际航班总数减少到了每星期200个班次，仅相当于疫情前的2%。
 
-视频制作及上传：Cindy；
+对于美国政府的回击行动，中共一如既往地表现出“只许州官放火，不许百姓点灯”的无耻嘴脸。中共驻美国大使馆发言人刘鹏宇星期五恬不知耻地回应称，美国方面的举措极不合理，中方敦促美方停止干扰和限制中（共）国航空公司的正常客运航班。
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻链接：[https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html](https://www.voachinese.com/a/us-suspends-44-flights-by-chinese-carriers-after-beijing-action-20220121/6407886.html)
 
  
 

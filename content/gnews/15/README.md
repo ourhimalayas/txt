@@ -2,26 +2,48 @@
 ---
 
 
-## 德州法官阻止拜登对全国联邦雇员的疫苗强制令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892250/)
+## 太平联盟及单伟建与中共动用国家力量剿杀七哥环环相扣
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892334/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-55.png)
-图片来源：网络截图
+G-TV视频链接：[https://gtv.org/video/id=61eacfee87664c47acd7d5ce](https://gtv.org/video/id=61eacfee87664c47acd7d5ce)
 
-据零对冲1月21日报道，在上周美国最高法院驳回了政府通过OSHA强迫所有拥有100名以上工人的私营部门雇主以及美国邮政部门对其雇员进行测试或接种疫苗的强制令的企图后，德克萨斯州的一家联邦法院周五又发布禁令，反对拜登对联邦工作人员的疫苗强制令，这是政府试图将疫苗强加给不情愿的美国人的另一部分。拜登已经放弃了这一策略，转而向所有美国人提供在家的中共病毒测试。拜登早在9月就通过行政命令发布了这两项强制令。
+**郭文贵先生**：我一点都不积极，这个案子几乎是，黑暗还没有…..他们还没有动狠招儿呢，一定会比你想象得黑暗，他们花太多钱了！
 
-川普任命的美国德克萨斯州南区法院法官杰弗里·布朗说，该案不是关于个人是否应该接种疫苗，甚至不是关于更广泛的联邦权力。相反，他说这是关于“总统是否可以在没有国会意见的情况下用笔一划，要求数以百万计的联邦雇员接受一项医疗程序，作为他们就业的条件，”布朗写道。
+而且单伟建在美国太有力量，这是一个超级的金融间谍。而且你看Isobel Yeung和他之间这个案子都是，每次只要单伟建、太平联盟要开庭的时候，对我的什么双面间谍、郭文贵又要被审查了、被起诉了，还有Isobel Yeung都是连在一起的。
 
-“根据最高法院最近刚刚表达的法律现状，这是自不量力，好高骛远。”
+就是共产党完全组织一场，就是我要踢大卫兄弟的时候，Nick在旁边就给一棒子，我去打左脸的，Rachel就尿他一脸，然后铲侠就给他来一刀，永远是这个结局共产党。
 
-根据《政府执行官》的一份报告，反对对联邦工作人员强制令的案件是由联邦医疗自由组织提起的，该组织已经对该强制令提起了三起不同的诉讼。
+所以你一看整个过去这五年，就太平联盟案子是整个共产党、是中南坑共产党这个国家机器，包括在香港的资产查封、银行、威胁、红通、4·19、政治庇护，一套活儿！现在它到收割的时候它怎么可能收手呢？
 
-大多数联邦机构已经开始执行要求接种疫苗或测试的强制令，一些机构已经开始下令暂停未能达到要求的工人。
+它对它绑架的法官，它对它绑架的美国司法系统、司法部甚至白宫，它要穷其一切力量利用这个所谓的他们这个平台这个抓手伤害咱。2月2号一点都不看好。
 
-这一最新裁决将阻止（至少是暂时的）这些停职行动的进行。虽然授予的禁令仍有可能被推翻，但考虑到美最高法院的保守派多数及其之前对其他联邦疫苗强制令的裁决，任何面临停职的工人可能可以松一口气了。
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-新闻来源：[Texas Judge Blocks Biden’s Vaccine Mandate For Federal Employees Nationwide](https://www.zerohedge.com/political/federal-judge-blocks-bidens-vaccine-mandate-federal-employees)
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+GTV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,17 +2,30 @@
 ---
 
 
-## 音乐的传染性及干扰性
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892372/)
+## 樱花灭共诗——与大学同窗石鹏飞对酒相赠
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892412/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-图片来源：雅典娜设计组
+#### 作者：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+见我卿休哭，
 
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
+当年上学郎。
 
+胸中存社稷，
 
+笔下有篇章。
+
+矗矗青松影，
+
+团团白月光。
+
+蹭蹬今十载，
+
+未肯事君王。
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
