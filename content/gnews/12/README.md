@@ -2,31 +2,91 @@
 ---
 
 
-## 浅析Edward Moss在太平联盟诉案中违背职业行为示范规则的缘由
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1895799/)
+## 全球疫情更新(英国疫苗报告中隐藏的人尸丸真相）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1895872/)
 
-作者：阿舟 华盛顿DC农场
+**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1814.png)图片：雅典娜农场设计组（精灵蓝）
+雅典娜疫情更新（2022年 1月22日）
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-由中共控制的太平联盟集团（PAG）作为原告发起的一场诉郭文贵先生合同违约的法律超限战，起始于2017年4月18日。近日，美国律师协会ABA对原告方代理律师Edward Moss和Bradley J Bondi做出严重违反职业行为示范规则的判决，取消了此二人在这一案件中继续代理太平联盟集团的资格。
+**一，全球疫情基本数据**
 
-2022年2月2日将迎来郭文贵先生就此案对原告进行反诉的法庭判决。对于判决结果，追求公平、正义的人们，无不期待着法庭能够以事实真相为依据，做出公正的判决，从而维护美国法律的庄严，让正义得以伸张。
+感染总数：345,711,978（日新增3,126,878，14天增幅+44%）
 
-在这场缺乏立案条件、旨在构陷的违约案里，美国法律界极具名气的律师Edward Moss，在诉讼过程中，罔顾事实真相和利益冲突，向法院提供原告蓄意炮制的虚假证据以及违反诉讼程序获取的证据，在诸多方面违背律师的职业行为准则，以缠诉的手段，对被告郭文贵先生造成严重的经济损失、精神伤害、精力上的牵制和消耗，以期达到协助中共铲除政治异己的目的。特别值得指出的是，Edward Moss在2021年10月成为美国Cahill Gordon & Reindel LLP律师事务所合伙人之前，曾担任美国O’Melveny & Myers LLP（美迈斯）律师事务所合伙人长达近七年之久（注释1）。为什么Edward Moss身为美国法律界精英，经验丰富、业务能力超强，却与中共合作，知规违规，构陷被告呢？根据公开资料，Edward Moss曾担任合伙人的O’Melveny & Myers LLP（美迈斯）律师事务所在中共国的两个重要城市北京和上海分别设有代表处。不仅如此，美迈斯律师事务所还在北京和上海两地为政法大学及大学法学院设立了美迈斯法学奖学金，旨在“协助中国培养优秀法律人才，增进美中两国法学界的交流与合作”（注释2）。下面是美迈斯法学奖学金北京地区颁奖典礼仪式的图片（注释3）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B07A4B0A-FAEF-4802-B325-8C37B6FD6CAF.jpeg)
-显而易见的是，中共治下的《宪法》规定“中国共产党领导是中国特色社会主义最本质的特征”（注释4），中共治下的《教育法》也明确规定，国家坚持中国共产党的领导，坚持以马列毛邓江胡习思想为指导，遵循宪法确定的基本原则，发展社会主义的教育事业（注释5）。中共治下的政法大学和法学院无一例外地坚持和拥护中共的独裁专制统治。在如此一党独大、没有言论自由、没有宗教信仰自由、没有民主、无视人权、党媒不断煽动百姓仇恨美国的中共国，美国美迈斯律师事务所竟然能够获得中共国司法部的许可，在中国境内执业，甚至被允许设立法学奖学金，为中共培养法律人才，这可谓是令人难以置信的事实。一当美迈斯设立的法学奖学金被中共的法治理念和教育原则所准允，很自然地，中共便可以采用任何蓝金黄手段，轻而易举地渗透并操控美迈斯的法律业务，美迈斯必然向中共的独裁统治俯首称臣。就Edward Moss而言，不论其在美迈斯，还是在Cahill，违背律师应当恪守的职业行为示范规则，甘愿做中共的走狗帮凶，也就成为顺理成章的事情。
+死亡总数：5,583,500（日新增7,726人，14天增幅 +23%）
 
-* * *
+**二，全球“疫苗”毒针统计数据**
 
-*发布：Theodosia*
+“疫苗”毒针注射总数：98.2亿
 
-注释：
+完全“接种”：40.7亿人
 
-1. Edward Moss的职业历史https://www.bloomberg.com/profile/person/18355095
-2. 美迈斯法学奖学金210c2673c2ec4740898818555b9acf2f.pdf (pku.edu.cn)
-3. 美迈斯律师事务所https://baike.baidu.com/item/%E7%BE%8E%E8%BF%88%E6%96%AF%E5%BE%8B%E5%B8%88%E4%BA%8B%E5%8A%A1%E6%89%80/5893283?fr=aladdin
-4. 中华人民共和国宪法 http://www.gov.cn/guoqing/2018-03/22/content\_5276318.htm
-5. 中华人民共和国教育法http://www.moe.gov.cn/jyb\_xxgk/xxgk\_jyfl/flfg\_jyfl/202107/t20210730\_547843.html
+完全“接种”百分比：52.2 %
 
+**三，澳洲疫情和“疫苗”数据**** **
+
+感染总数：2,145,415（今日新增54,810人）
+
+死亡总数：3,053人（今日新增 64人）
+
+每万人感染人数：825.8376人
+
+“疫苗”毒针注射总数：47,742,207   （日新增335,954 针）
+
+完全“接种”：19,157,236人
+
+第二针“接种”百分比：78.2%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：92.9%
+
+**四，疫情新闻摘要**
+
+今日全球疫情总体维持病例增长速度下降而死亡增长上升的趋势，澳洲的每日病例数字也开始有下降趋势。然而，[今日波兰，俄罗斯，日本都报告了创下历史记录的每日新增病例数。](https://www.theguardian.com/world/live/2022/jan/22/coronavirus-live-japan-and-taiwan-report-omicron-surges-ireland-lifts-restrictions)而香港政府则继续忙着帮助中共把责任甩锅给仓鼠，竟然下令杀死所有12月22日以后购买的宠物，媒体上充满哭泣的孩子与心爱的宠物告别的镜头。
+
+继英国之后，爱尔兰也取消了大部分疫情封锁措施，包括疫苗护照。
+
+昨天，捷克政府“为避免加深社会裂痕”，宣布废除了上届政府制定的对医生，警察等特定职业人员和60岁以上公民的强制疫苗规定。 今天关于强制疫苗的最大的新闻是全球自由集会。在全球各地首府城市和区域城市，包括澳洲的墨尔本，悉尼，布里斯班，珀斯等各地都爆发了集会，抗议强制疫苗，疫苗护照，尤其是给年仅5岁的儿童注射基因治疗针剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1815.png)集会蜿蜒穿过墨尔本城市街道（图片来源：澳大利亚新闻集团David Crosling）![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1816.png)游行参加者所用的道具，道具棺材上的文字：澳洲孩子 2017-2022 ~安息~
+（图片来源：澳大利亚新闻集团）
+**五.数据分析**
+
+今天读到了一篇很棒的博客[《疫情编年史》](https://eugyppius.substack.com/)，其中[一篇文章分析和挖掘了英国卫生安全局（The UK Health Security Agency, UKHSA)的最新疫苗追踪报告中披露的数字](https://eugyppius.substack.com/p/unboostered-brits-infected-and-dying)，并把数字图形化，让人一目了然，对这些基因治疗针剂的真相触目惊心。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1817.png)
+以上是这篇文章中的图表之一，显示了各年龄段每十万人的病例数，未接种（灰色），两针（黑色）和3针（黄色）的对比。需要特别指出的是，如图所见，接种两针的病例数实在太难看，在UKHSA的报告中被隐藏了，两针的数字是博客作者通过简单的加减法推导出来的。
+
+[郭先生去年2月的直播](https://gnews.org/zh-hans/1456445/)中就点明，这个所谓的疫苗是武侠小说中的那种人尸丸，就是用来控制你的工具。从这个图表也可以看出，2针“疫苗”的病例数在所有18岁以上的各年龄组中都明显增高，打了“加强针”后才下降到接近或稍高于未打疫苗组者的水平。不要忘记，现在推荐的加强针可是每3月打一次，也就是说只要中共病毒仍然在社区传播，每年就需要打4次毒针，无怪乎现在越来越多的当初毫不犹豫去打针的人们也开始觉得不对劲了，也开始犹豫到底要不要这样没完没了的打毒针？
+
+明天的疫情更新将继续分享这篇文章中的数据分析，请继续关注。
+
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

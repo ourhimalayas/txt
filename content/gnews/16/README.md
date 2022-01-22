@@ -2,33 +2,16 @@
 ---
 
 
-## MV版Hcoin To the Moon上线45天第31次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1895664/)
+## 解直锟是被做掉的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1895796/)
 
-1/22/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线45天第31次位列澳门iTunes热门音乐视频榜榜首，第38次位列前三名
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-* * *
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
-[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
-
-
-[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,16 +2,26 @@
 ---
 
 
-## 有声|星巴克取消员工中共病毒疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895418/)
+## 有声|奥地利议会通过对所有成年人实行强制性疫苗接种的规定
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895431/)
 
 配音：香草山福音部 – 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月19日，继美国最高法院裁决取消疫苗强制令后，咖啡巨头星巴克也放弃了疫苗强制政策 。 据悉，星巴克已不再要求其员工接种中共病毒疫苗，推翻了本月早些时候宣布的疫苗强制措施。
 
-据内部人士爆料，星巴克首席执行官约翰.卡尔佛在1月18日发给员工的一份备忘录中说：我们尊重并遵守最高法院的裁决。并对员工表示，其正在积极响应美国最高法院上周对企业疫苗强制令的裁决，取消强制接种中共病毒疫苗和定期检测计划。
 
-原文链接：[星巴克取消员工中共病毒疫苗强制令](https://gnews.org/zh-hans/1887677/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+据[布赖特巴特新闻网](https://www.breitbart.com/europe/2022/01/21/austrian-parliament-votes-overwhelmingly-to-introduce-mandatory-vaccination-for-all-adults/)1月21日报道，周四，奥地利议会以137票对仅33票的投票中，以压倒性的优势投票决定对所有18岁以上的居民强制接种中共病毒疫苗。
+
+因医疗原因不能接种疫苗者和孕妇将被免除强制接种，那些已经从中共病毒中康复的人也将在康复后的6个月内获得豁免。但那些拒绝接种疫苗的人可能面临高达3600欧元的罚款。
+
+从3月中旬开始，奥地利警方将在例行检查和交通检查中核查疫苗接种情况，并对那些不能证明已完全接种中共病毒疫苗的人处以罚款。对此，警察工会负责人沃纳·赫伯特（Werner Herbert）表示，警察在这里被用于政治目的是很不恰当的！
+
+原文链接：
+
+原文链接：[奥地利议会通过对所有成年人实行强制性疫苗接种的规定](https://gnews.org/zh-hans/1891846/)
 
 音频处理/发稿：Daxia
 
