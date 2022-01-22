@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 4:05 AM (UTC)`
+
+1/21/2022 Miles Guo: The CCP’s bribing various state leaders harms the Chinese people in the name of the country. Pakistan is one of the places for the CCP to kill people, and conducting drug trafficking, smuggling, human trafficking, organ transplants, and money laundering. What are the consequences of colluding with the CCP? You can find it out just by looking at today’s Venezuela, Afghanistan, and Kazakhstan!<br/><br/>1/21/2022 文贵直播：中共行贿各国元首是以国家的名义伤害中国人；巴基斯坦是中共杀人、贩毒、走私、贩卖人口、器官移植、洗钱最关键的地方之一；跟着中共有什么后果？看看现在的委内瑞拉、阿富汗、哈萨克斯坦就知道了！<br/>
+![img](https://media.gettr.com/group20/getter/2022/01/22/04/7d5f096d-23c7-40ec-09c4-3d15f3dd87fd/out.jpg)
+
+---
+
 `@miles 1/22/2022 12:40 AM (UTC)`
 
 1/21/2022 Miles Guo: The CCP will be finished once its technological and financial sectors are destroyed. With the launch of 5G and 6G, the CCP’s Great Firewall will be gone so that everyone in Communist China will be able to use our platforms. What is the story behind the Dutch photolithography machine manufacturer’s cancellation of the $2.5 billion order from the CCP?<br/><br/>1/21/2022 文贵直播：干掉了科技和金融，中共就玩完；随着5G、6G的投入，防火墙将消失，任何人都将可以使用我们的平台；荷兰光刻机巨头取消中共25亿美元订单的背后有着怎样的故事？
@@ -144,13 +151,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/19/2022 Miles Guo: There is no way back for Xi Jinping. Jiang Zemin, Meng Jianzhu, Wang Qishan, and Yang Jiechi set up a trap for Xi, turning him into the most hated person of the 95 million CCP members. Xi’s pouring money into the world is bound to completely destroy the CCP’s economy, so he will inevitably implement the most draconian economic policies. In the end, Xi will definitely invade Taiwan.<br/><br/>1/19/2022 文贵直播：习大神已走上不归路，江、孟、王和杨洁篪设局让习成为9500万党员最恨的人；习的大撒币会彻底毁掉中共经济，习将实行最严厉的经济措施，最后一定打台湾！<br/>
 ![img](https://media.gettr.com/group3/getter/2022/01/20/23/49f4a59f-6319-2e98-ad3b-219378dc8b8e/out.jpg)
-
----
-
-`@miles 1/20/2022 11:18 PM (UTC)`
-
-1/19/2022 Miles Guo: The CCP is extremely frightened by the Whistleblowers’ Movement and the New Federal State of China. The vast majority of the 95 million CCP members resent “God Xi”. They wish Xi to attack Taiwan as soon as possible. Taiwan will gain independence once the CCP sets off the war. We will ensure the US and Europe will stay on Taiwan’s side<br/><br/>1/19/2022 文贵直播：看看中共对爆料革命、新中国联邦有多么的恐惧，但9500万中共党员都恨习大神，希望他赶紧去打台湾，一开枪，台湾就得自由了，我们要做的就是让欧美不要放弃台湾<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/20/23/634cdbbb-9b94-d24e-cf4d-21470438914f/out.jpg)
 
 ---
 
