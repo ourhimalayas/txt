@@ -2,38 +2,37 @@
 ---
 
 
-## 有声|达沃斯论坛与冬奥会将成为习时代终曲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891664/)
+## 有声|北京四天新增9例阳性， 房山区出现聚集疫情
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891682/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月19日的直播中，郭文贵先生首次揭开了达沃斯论坛背后的邪恶黑幕。
+配音：香草山佛教部 – 李傻
 
-郭先生指出，中共就是中国的达沃斯党，而达沃斯则是世界共产主义。当中共病毒及其疫苗的真相浮出水面之时，中共就会成为最终的替罪羊被拿来祭旗。彼时，习时代也将在冬奥会后惨淡落幕。
 
-郭先生解释道，中共于2001年取得了08年北京夏季奥运会及WTO的入场券，随即，达沃斯论坛就开始和中共相互勾结——二者在本质上都是邪恶、血腥的，他们均以控制人类命运为终极目标。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月19日，墙内媒体报道称，北京市今日新增5例本土阳性，其中房山区某地出现聚集性病例。据了解，确诊4人为同一单位冷库装卸工，另1人为同住密接，一同从事冷库装卸工作。
 
-原文链接：[达沃斯论坛与冬奥会将成为习时代终曲](https://gnews.org/zh-hans/1883143/)
+截至目前，北京市在四天内已连续出现9例阳性感染者，感染病例中同时检出了奥密克戎变种与德尔塔变种。海淀区、朝阳区、房山区、丰台区相继都出现了新增本土确诊病例和核酸检测阳性者。
 
-音频处理/发稿：Daxia
+有相关人士透露，北京此次疫情的源头并不唯一甚至尚不明确，在近期内存在大概率的爆发风险。中共劳民伤财搞的北京冬奥会不会受到影响，成为外界关注的焦点问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+文字版原文：[北京四天新增9例阳性， 房山区出现聚集疫情](https://gnews.org/zh-hans/1888681/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

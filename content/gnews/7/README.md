@@ -2,43 +2,40 @@
 ---
 
 
-## 有声|武汉封城两周年 世人依旧难消对中共的疑虑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891787/)
+## 拜登授权通过波罗的海盟国向乌克兰紧急运送美国武器
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1891801/)
 
-配音：香草山农场 – 纳米
+**【雅典娜快讯】，紧贴时代脉搏**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/815-1.jpg)图片来源：Eorense.com
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月19日，据日本媒体报道，本月23日，武汉因中共病毒疫情而封城的两周年祭即将到来。然而直至此刻，中共在武汉疫情问题上的诸多行为仍旧让世人心存疑虑。
+**整理报道：文扬
+编辑：文泓**
 
-对此，日媒列举出了三个疑点：
+拜登政府正在采取实质行动，向乌克兰援助反坦克武器和防空系统，以协助击退任何潜在的俄罗斯入侵。此外，据《华尔街日报》报道，有官员说，“白宫已通知国会，它打算向乌克兰派遣五架Mi-17运输直升机”。
 
-首先，中共宣称的病毒源发地——华南海鲜市场既没有因中共再次面临病毒溯源而被精心保护，也没有为了消除隐患而被全部拆除。
+但这种武器转让是通过第三方盟友——即爱沙尼亚、立陶宛和拉脱维亚来促成。本周早些时候，美国公布了向乌克兰提供进一步有限军事援助的拟议计划，截至周四下午，政府已批准该计划。
 
-其次，每当有外界的记者希望靠近华南海鲜市场时，中共的公安人员会主动联系相关记者并试图通过虚假宣传劝退他们，这使得中共的防备之心在此可见一斑。
+哥伦比亚广播公司(CBS)新闻还报道说，“美国官员向哥伦比亚广播公司新闻证实，拜登政府已允许几个北约盟国向乌克兰紧急运送美国制造的武器——包括反坦克导弹——以加强该国的防御。”
 
-最后，自中共病毒疫情爆发以来，中共国内因该病毒死亡的病例数字一直停滞在四千六百三十六人，相较于全世界的病例通报数据而言，这个数字是荒唐且可笑的。另据一位武汉市民爆料，其两位亲属在疫情当时均死于中共建立的隔离医院中，且二者的死因都是“肺部感染”，但中共当局拒绝将这两个死亡病例纳入到全国的死亡人数之中。
+该报道详细说明，就在拜登表示，“猜测”普京准备“进入”乌克兰的之后的一天，美国国务院消息人士称，包括爱沙尼亚、拉脱维亚、立陶宛和英国在内的盟国已获准将美国制造和供应的设备经“第三方转让”给乌克兰，一位官员称这是“为乌克兰获得尽可能多的装备”的计划的一部分”。
 
-分析人士指出，自2021年1月26日以来，中共在应对疫情方面向世界所做出的通报大多都不符合常理与逻辑，无论是武汉人，还是世界其他各国的民众，他们对中共病毒来源的质疑至今无法被抹去。
+目前为止，尚不清楚美国政府可能在多大程度上授权任何级别的军事反应。多年来，美国已经为乌克兰军队提供了军事装备，甚至在该国派遣了数量有限的特种部队训练乌克兰特种部队。
 
-文字版原文：[武汉封城两周年 世人依旧难消对中共的疑虑](https://gnews.org/zh-hans/1887715/)
+本周早些时候，英国国防部长本·华莱士宣布向乌克兰运送武器，据报道，在过去三天内，一系列飞往基辅的军用航班一直在运送这些武器。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+随着拜登现在为波罗的海盟国开绿灯，同时也开始向酝酿中的乌克兰顿巴斯冲突投入更多武器，将莫斯科和北约之间的紧张局势进一步推向边缘，欧洲可能更接近于看到其周边地区爆发全面战争。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接： [Biden Authorizes Rush Deliveries Of US Weapons To Ukraine Via Baltic Allies | ZeroHedge](https://www.zerohedge.com/markets/biden-authorizes-rush-deliveries-us-weapons-ukraine-baltic-allies)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：文泓
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
