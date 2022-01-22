@@ -2,31 +2,27 @@
 ---
 
 
-## 有声|网传上海优衣库疫情封锁视频打脸中共宣传
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892229/)
+## 德州法官阻止拜登对全国联邦雇员的疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892250/)
 
-配音：香草山健身部-格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间1月13日，据中共媒体消息显示，中共国内上海某繁华地段的优衣库店铺因为出现过中共病毒确诊病例而被当地政府紧急封锁。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-55.png)
+图片来源：网络截图
 
-值得注意的是，这个突然的封锁措施并非单单针对该优衣库店铺，而是当时在整栋大楼内活动的上海市民全部被限制出入，这也导致楼内民众只能利用商场里的睡袋和食物度过被封锁的时间。
+据零对冲1月21日报道，在上周美国最高法院驳回了政府通过OSHA强迫所有拥有100名以上工人的私营部门雇主以及美国邮政部门对其雇员进行测试或接种疫苗的强制令的企图后，德克萨斯州的一家联邦法院周五又发布禁令，反对拜登对联邦工作人员的疫苗强制令，这是政府试图将疫苗强加给不情愿的美国人的另一部分。拜登已经放弃了这一策略，转而向所有美国人提供在家的中共病毒测试。拜登早在9月就通过行政命令发布了这两项强制令。
 
-据悉，中共国如此突然且大面积的封锁在全国范围内频频发生。事后，中共当地政府往往通过发放礼品或拍摄宣传片等方式将这类事件美化。但据日本媒体在当地时间本月19日的报道称，虽然中共镜头下的封锁故事被虚化的严重失真，但互联网上有大量因封锁造成民众恐慌的视频仍在广泛流传。 对此，分析人士则指出，中共目前应对疫情的政策即为“一人感染，整楼封锁”，全然不顾中国老百姓的安危，至于事后为了美化其所作所为的安抚措施不过是中共对外宣传的惯用手段。
+川普任命的美国德克萨斯州南区法院法官杰弗里·布朗说，该案不是关于个人是否应该接种疫苗，甚至不是关于更广泛的联邦权力。相反，他说这是关于“总统是否可以在没有国会意见的情况下用笔一划，要求数以百万计的联邦雇员接受一项医疗程序，作为他们就业的条件，”布朗写道。
 
-文字版原文：[网传上海优衣库疫情封锁视频打脸中共宣传](https://gnews.org/zh-hans/1887714/)
+“根据最高法院最近刚刚表达的法律现状，这是自不量力，好高骛远。”
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+根据《政府执行官》的一份报告，反对对联邦工作人员强制令的案件是由联邦医疗自由组织提起的，该组织已经对该强制令提起了三起不同的诉讼。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+大多数联邦机构已经开始执行要求接种疫苗或测试的强制令，一些机构已经开始下令暂停未能达到要求的工人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+这一最新裁决将阻止（至少是暂时的）这些停职行动的进行。虽然授予的禁令仍有可能被推翻，但考虑到美最高法院的保守派多数及其之前对其他联邦疫苗强制令的裁决，任何面临停职的工人可能可以松一口气了。
+
+新闻来源：[Texas Judge Blocks Biden’s Vaccine Mandate For Federal Employees Nationwide](https://www.zerohedge.com/political/federal-judge-blocks-bidens-vaccine-mandate-federal-employees)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

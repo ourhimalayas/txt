@@ -2,29 +2,41 @@
 ---
 
 
-## 扬帆每日速递 2022年1月21日版（2）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1891925/)
+## 吃起狗肉来有声有色的杨贝贝Isobel Yeung是真心爱狗吗
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1891970/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获_副本-1.png)
+郭文贵先生转了杨贝贝吃狗肉的盖特——
+![](https://assets.gnews.org/wp-content/uploads/2022/01/001.png)
+下面我们就按图索骥来看一下原片——
 
-1、1月19日晚，广东房企中国奥园官宣违约，对2022年1月到期的两笔美元债，其将不予以兑付；而另外两笔还未到期的美元债，则将不继续付息。所有其它境外金融负债将发生或已发生违约事件。
+视频来源：[纪录片 《玉林狗肉节》 美国记者抨击中国人吃狗肉……](http://k.sina.com.cn/article_7530565666_m1c0db502203300w5uq.html?display=0&amp;retcode=0)
 
-2、1月21日，据香港漁护署在30多家宠物店取样，其中元朗宠物店I love rabbit的仓鼠笼验出新冠病毒阳性样本，当局表示动物传人的机会提高。评:沒有最荒谬，只有更荒谬！ 3、在美国最高院驳回拜登政府对私营企业的疫苗强制令之后，美国一地方联邦法院法官杰弗里·布朗进一步对对拜登政府作出其无权“强制所有联邦政府雇员同意接种中共病毒疫苗或失去工作”的裁决。
+曾经看过一个故事说一个在英国受过高等教育的白人到非洲冒险，他来到了食人生番部落并最终融入食人生番的部落，多年后他的同胞在非洲从林里碰到了这位白人同胞，看到他大快朵颐地吃人肉，就非常吃惊地问他，你来自文明世界如何能吃得下人肉呢？这位已经融入食人生番的白人回答说：No! 我跟他们还是不一样的，你没看到我在吃人肉的时候用的是刀叉吗？
 
-4、美联储终于发布一份文件，就开发自己的中央银行数字货币的利弊发表了意见，但没有给出任何明确的结论。
+相较于食人生番，把吃狗看成天经地义的中国也是另一种的落后，这种血腥的落后需要革除，而那个到玉林狗肉节探班的杨贝贝Isobel Yeung则不然，她和她所任职的VICE的到来意味着文明世界对玉林狗肉节的审视，但是吃起狗肉来有声有色的杨贝贝Isobel Yeung却又一次地惊掉了我们的下巴，为什么呢？因为这一次吃狗肉的是来自文明世界的并且是说英语的美国女记者，那么她与那些视吃狗肉为天经地义的中国同胞有什么不同呢？——她分明是用拿惯刀和叉的手在吃狗肉嘛！
 
-5、据文贵大直播：杨洁篪、王毅、王沪宁、王岐山、李肇星及唐家璇，出卖国家利益，对中国人民的伤害在中国历史上比赵高、李斯还要坏。巴基斯坦前总理谢里夫在国际上作证中国共产党在全世界腐败各国合法有效政府领导人！
+撰稿：喜马拉雅的肉夹馍；
 
-6、据文贵大直播：拜登政府对中共的强硬要求：要么按照美国要求打开武汉实验室追溯病毒来源；要么政治经济完全脱钩。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-21简2_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
+审核：喜马拉雅的馍夹肉；
 
-编辑：文敏
+校对：Maarago；
 
-发布：风起云间（文敏）
+（文章内容仅代表作者个人观点）
 
-海报图片设计：飞天面、 Shuang
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

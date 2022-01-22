@@ -2,26 +2,46 @@
 ---
 
 
-## 德州法官阻止拜登对全国联邦雇员的疫苗强制令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892250/)
+## 美国司法部最终会把太平联盟与司法部和吴征等案件了结
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892361/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-55.png)
-图片来源：网络截图
+G-TV视频链接：[https://gtv.org/video/id=61eaf15b87664c47acd7e181](https://gtv.org/video/id=61eaf15b87664c47acd7e181)
 
-据零对冲1月21日报道，在上周美国最高法院驳回了政府通过OSHA强迫所有拥有100名以上工人的私营部门雇主以及美国邮政部门对其雇员进行测试或接种疫苗的强制令的企图后，德克萨斯州的一家联邦法院周五又发布禁令，反对拜登对联邦工作人员的疫苗强制令，这是政府试图将疫苗强加给不情愿的美国人的另一部分。拜登已经放弃了这一策略，转而向所有美国人提供在家的中共病毒测试。拜登早在9月就通过行政命令发布了这两项强制令。
+**郭文贵先生**：第二个，现在这次媒体上已经关注了将近一年多时间，包括要拍电视剧的，包括要连续报道的，然后美国司法部一定会调查。司法部就是中国的检察院嘛，就是司法部检察官，一定会调查。
 
-川普任命的美国德克萨斯州南区法院法官杰弗里·布朗说，该案不是关于个人是否应该接种疫苗，甚至不是关于更广泛的联邦权力。相反，他说这是关于“总统是否可以在没有国会意见的情况下用笔一划，要求数以百万计的联邦雇员接受一项医疗程序，作为他们就业的条件，”布朗写道。
+国会一定会调查，一定会调查，就单伟建和Edward Moss等以及包括在BVI未来的勾兑和钱来钱往，它盖不住，它铲不平的，最终一定会把在西方包括在BVI的政治勾兑、利益输送查得清清楚楚，一点儿不用怀疑。而且我相信会把当年和Higginbotham白宫的这些腐败和在美国司法部的腐败，最终这些，你会发现最有趣的事情。
 
-“根据最高法院最近刚刚表达的法律现状，这是自不量力，好高骛远。”
+太平联盟案子跟Higginbotham案子，Jho Low跟Burno Wu的案子、博讯的案子、熊宪民的案子，什么夏业良、郭宝胜的案子，所有的案子，太平联盟案子，全部，包括吴征诈骗还有腾讯音乐还有什么Digtal Group全部会放在一起，美国司法部会做个了结。
 
-根据《政府执行官》的一份报告，反对对联邦工作人员强制令的案件是由联邦医疗自由组织提起的，该组织已经对该强制令提起了三起不同的诉讼。
+哇～原来就这些三四个人，还有这一笔钱，然后搞得这个事情，最后大白于天下。美国会让看到彻底清除共产党在美国司法部、司法部门儿渗透“蓝金黄”的黑暗力量，同时惩罚那些收了黑钱泯灭良知的人。还有最后就是新中国联邦在美国成为一个正义的英雄的力量，成为一个真正的传奇，拍成电影和电视剧。
 
-大多数联邦机构已经开始执行要求接种疫苗或测试的强制令，一些机构已经开始下令暂停未能达到要求的工人。
+字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
 
-这一最新裁决将阻止（至少是暂时的）这些停职行动的进行。虽然授予的禁令仍有可能被推翻，但考虑到美最高法院的保守派多数及其之前对其他联邦疫苗强制令的裁决，任何面临停职的工人可能可以松一口气了。
+编辑整理：Jacques；
 
-新闻来源：[Texas Judge Blocks Biden’s Vaccine Mandate For Federal Employees Nationwide](https://www.zerohedge.com/political/federal-judge-blocks-bidens-vaccine-mandate-federal-employees)
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

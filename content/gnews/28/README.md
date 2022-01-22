@@ -2,27 +2,31 @@
 ---
 
 
-## 马云的蚂蚁金服被暗示涉及中共前高官的贪腐丑闻
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892207/)
+## 有声|网传上海优衣库疫情封锁视频打脸中共宣传
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892229/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-132.png)
-图片来源：www.ntdtv.com
+配音：香草山健身部-格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月13日，据中共媒体消息显示，中共国内上海某繁华地段的优衣库店铺因为出现过中共病毒确诊病例而被当地政府紧急封锁。
 
-零对冲网1月21日报道，在马云被中共踢出阿里巴巴之前的2019年，我们报道了来自海曼资本的卡尔·巴斯的预测，说马云在离开阿里巴巴主席位置后很快将会被关监狱或被消失。
+值得注意的是，这个突然的封锁措施并非单单针对该优衣库店铺，而是当时在整栋大楼内活动的上海市民全部被限制出入，这也导致楼内民众只能利用商场里的睡袋和食物度过被封锁的时间。
 
-在中共破坏了由马云领导的蚂蚁金服上市后，马云就突然被消失，蚂蚁金服是在中共国市场上广泛运用的阿里巴巴的金融膀臂，我们很担心还会发生什么更糟的事。
+据悉，中共国如此突然且大面积的封锁在全国范围内频频发生。事后，中共当地政府往往通过发放礼品或拍摄宣传片等方式将这类事件美化。但据日本媒体在当地时间本月19日的报道称，虽然中共镜头下的封锁故事被虚化的严重失真，但互联网上有大量因封锁造成民众恐慌的视频仍在广泛流传。 对此，分析人士则指出，中共目前应对疫情的政策即为“一人感染，整楼封锁”，全然不顾中国老百姓的安危，至于事后为了美化其所作所为的安抚措施不过是中共对外宣传的惯用手段。
 
-即使马云后来表白上看又出来了，但已经判若两人，不再有那种在中共国是最富有的人的气场，更糟糕的是这标志着中共开始打击正在中国蓬勃发展的技术公司。最近在中共国中央电视台发布了一个报道暗示马云的总部在杭州的蚂蚁金服存在广泛的腐败丑闻，这样的丑闻在中共国可以被判死刑。
+文字版原文：[网传上海优衣库疫情封锁视频打脸中共宣传](https://gnews.org/zh-hans/1887714/)
 
-该报告文件并没有直指蚂蚁金服，但它进一步暗示去年8月份有中共高官的家属被抓。蚂蚁金服在房地产地块和其他政府政策支持下获得低价优惠。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-一名原杭州市委书记周江勇己被关监狱，许多人的指控涉及他的兄弟，一个商人，他曾帮助当地政府实体获得很多合同。在文件中，周江勇交代说他弟弟之所以能做生意是因为有他在政府握有权力。蚂蚁金服与周江勇的弟弟有一系列的买卖，有人说，现在可能是蚂蚁金服付出代价的时候了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-##### **新闻来源： **[Jack Ma’s Ant Group Implicated In Major Corruption Scandal Involving Ex-CCP Official](https://www.zerohedge.com/technology/alibaba-slides-ant-group-implicated-corruption-scandal-involving-ex-ccp-official)
-
-# ** **
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
