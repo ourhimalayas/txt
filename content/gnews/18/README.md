@@ -2,41 +2,24 @@
 ---
 
 
-## 澳洲药品管理局批准辉瑞和默克的新冠口服药
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1892649/)
+## 夏普开发新材料，可按需调节密闭空间湿度
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892727/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/白云朵朵
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-24.jpg)图片来源于本文链接
+大型电机制造商夏普开发了可以根据保管物品的特征，将密闭空间调节为最佳湿度的新材料。期待在乐器和食品等的保管中得到应用。
 
-整理/编辑：小红帽
+夏普已经开发了两种新的固体材料，一种是片状（板状）的，另一种是直径约5毫米的珠子状，它们可以将一个封闭的空间保持在最佳的湿度水平。该材料可以对应你想要保持的湿度，例如保持40%的湿度或60%的湿度，并且不需要电源，以吸收和释放水分来控制调节。例如，被调节成保持40%到50%湿度水平的珠型材料，适合于保管小提琴等乐器，如果调节成70%左右的话，可以用于在酒窖中促进红酒的适当成熟及各种物品的保管中。此外，板型材料用于住宅墙壁和运输集装箱等方面，有望防止结露。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+夏普具有开发液晶的技术也擅长温度管理，这次关注湿度的新材料，将在今春商品化。研究开发事业本部的香村胜一课长说:“由于有保持湿度的需求，所以才开始研发。今后也想探索在医疗和健康领域的活用。”
 
+信息来源：
 
-据《澳大利亚人报》1月21日报道，澳大利亚药品监管局（Therapeutic Goods Administration）临时批准了两种声称可以让新冠病毒（Covid-19）阳性患者远离重症监护的突破性治疗方法。
+[シャープが新素材開発 密閉空間を最適な湿度に調節](https://www3.nhk.or.jp/news/html/20220118/k10013436801000.html?utm_int=news-business_contents_news-main_003)
 
-澳大利亚药品监管局局长John Skerritt周四宣布，该监管机构临时批准本国第一批口服治疗药物Paxlovid和Legevrio。（尽管大众已经熟知伊维菌素，硫酸氢氯喹和青蒿素是治疗新冠病毒最有效药物。）
-
-12月，辉瑞（Pfizer）公司声称，Paxlovid的临床试验表明，其可以抵御Omicron变体，并将高危人群的住院率和死亡率大幅降低近90%。
-
-Paxlovid是由Nirmatrelvir和Ritonavir两种药物组合，疗程为五天。
-
-由制药巨头默克（Merck）公司生产的抗病毒治疗药物Legevrio也被主流媒体热捧，并宣称它是一种针对新冠病毒患者的有效 “家庭治疗”药物。
-
-Skerritt教授告诉记者，这些治疗方法将首先用于针对老年护理机构，并强调这两种药物都不应被用来替代（新冠）疫苗接种。
-
-虽然这两种药物都获得了临时批准，但随着未来更广泛地使用这些药物，制造商将被要求向TGA提交进一步的数据。
-
-参考链接：[澳洲药品管理局批准两种新的Covid口服药](https://cn.theaustralian.com.au/2022/01/21/62679/)
-
-*发布：*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/haruka春香
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

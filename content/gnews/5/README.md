@@ -2,12 +2,18 @@
 ---
 
 
-## 欧洲正在因为疫苗护照而变成中共国的模样
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892845/)
+## 七哥儿时的照片
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892936/)
 
-01/19/2022 法律哲学家伊娃：宪法赋予我们的权力正在被无限期地废除。疫苗护照让我们想到社会信用系统最初的样子。欧洲正在变成中共国的模样。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
+
+
+
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 6:48 AM (UTC)`
+
+1/21/2022 Miles Guo: In order to attract the foreign officials to attending the Beijing Winter Olympics, the CCP will provide all kinds of cruel food ingredients such as raw monkey brain and other protected animals. Many influential people have canceled their trips to the Beijing Olympics after seeing the videos I sent to them. All those who attend the Winter Olympics will be put on the list of “Participants of CCP’s 2022 Winter Olympics” by the New Federal State of China and will be condemned forever!<br/><br/>1/21/2022 文贵直播: 中共为引诱外国官员参加北京冬奥会，泯灭人性提供变态食材！许多大佬看到文贵提供的录像后取消了赴奥行程。参加冬奥会的人员会被新中国联邦列入2022冬奥会参加者名单并永远遭到谴责！<br/>
+![img](https://media.gettr.com/group33/getter/2022/01/22/06/82d3c273-0cad-a1d6-dc0d-ab2b4d5d5407/out.jpg)
+
+---
+
 `@miles 1/22/2022 4:12 AM (UTC)`
 
 1/21/2022 Miles Guo: Why is the New Federal State of China going to sign the “One Thousand Year Peace Treaty” with the world? Why is the statement made by Sharif a huge insult to the Chinese people? Yang Jiechi, Wang Yi, Wang Huning, Wang Qishan, Tang Jiaxuan, and Li Zhaoxing are more vicious than Zhao Gao and Li Si (evil officials under the Qin Shi Huang emperor in ancient China).<br/><br/>1/21/2022 文贵直播：新中国联邦为什么要和世界签千年和平协议？为什么谢里夫的讲话是对中国人巨大的羞辱？杨洁篪、王毅、王沪宁、王岐山、唐家璇、李肇星比赵高、李斯还要坏！<br/>
@@ -144,13 +151,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/19/2022 Miles Guo: The New Federal State of China has become as influential as the swamp because we are the unvaccinated. Behind the ban of ivermectin, artemisinin, and hydroxychloroquine are only a handful of people in the swamp, media, big techs, and European and American governments, who want to eliminate those they can’t tolerate by using the COVID vaccine. The COVID vaccine is the real disaster.<br/><br/>1/19/2022 文贵直播：不打疫苗让新中国联邦跟沼泽地平分秋色；禁止用伊维菌素, 青蒿素和羟氯喹的背后是沼泽地、媒体、科技巨头和欧美政府的极少数人要用疫苗杀掉他们不能容忍的人 - 疫苗才是灾难！<br/>
 ![img](https://media.gettr.com/group16/getter/2022/01/20/23/24502bc8-fc1e-a500-ea2c-94627b9d0ecf/out.jpg)
-
----
-
-`@miles 1/20/2022 11:31 PM (UTC)`
-
-1/19/2022 Miles Guo: The Party of Davos and the CCP are the comeback of the previous rule of religion and the rule of monarchs in the shape of devils. Only if we eradicate them can we make the world truly belong to the people. What are the differences between faith and superstition? Without the enlightenment of the mysterious forces of nature, I would not have lived till today.<br/><br/>1/19/2022 文贵直播：达沃斯和中共是过去的宗教和皇权统治换上魔鬼面孔卷土重来，只有铲除他们才会实现民天下！信仰和迷信有何区别？若没受到大自然神秘力量的启蒙，文贵活不到今天。
-![img](https://media.gettr.com/group36/getter/2022/01/20/23/567ffdef-48d3-9b5b-dc70-fc51305d8291/out.jpg)
 
 ---
 
