@@ -2,30 +2,26 @@
 ---
 
 
-## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
+## 今天的帝国主义来自东方
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1893438/)
 
-**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
+翻译/简评：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01223.jpg)图片来自repubblica.it
+知识分子并没有停止谴责西方的帝国主义传统。但今天的帝国主义在东方，俄罗斯和中共国现在决心吞并乌克兰和台湾。高科技加剧了这场争夺帝国地理的斗争。由于高超音速导弹、致命自主武器和信息战时代减少了对热核弹的重视，大国之间的战争变得可以想象。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+中共国正在前苏联的中亚地区取得大规模的经济发展，并为该地区的穆斯林共和国提供援助和安全部队。而俄罗斯总统几乎不需要与西方结盟来制衡中公国，而事实恰恰相反：普京需要中共国来制衡西方。
 
+普京的目标不仅仅是以某种方式恢复前苏联，而是建立一个横跨中东欧的影响区，大致相当于前华约的边界。
 
-Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
+在西巴尔干，塞尔维亚领导人多迪克威胁要在俄罗斯和中共国的支持下分裂波斯尼亚和黑塞哥维那，而俄罗斯的目标是作为权力的调解人进入欧洲。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
+现在的问题不是帝国主义本身，而是帝国主义与列宁主义控制方法的融合，这种控制方法被俄罗斯和中共国政府重新定义。因此，美国别无选择，只能必须坚决反对它们的前进。
 
+遏制是一个没人喜欢大声说出来的词，但它却有效。请记住，越南战争中的脱离接触政策以及苏联的最终自行解体。俄罗斯和中共国的内部紧张局势虽然不透明，但不应被低估并助长他们的侵略。
 
-据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
-本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+原文链接：[https://www.repubblica.it/esteri/2022/01/21/news/l\_imperialismo\_oggi\_viene\_da\_est\_biden\_contenga\_mosca\_e\_pechino-334748900/?ref=RHTP-VS-I287621970-P14-S2-T1](https://www.repubblica.it/esteri/2022/01/21/news/l_imperialismo_oggi_viene_da_est_biden_contenga_mosca_e_pechino-334748900/?ref=RHTP-VS-I287621970-P14-S2-T1)
 
-台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
-台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
-来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

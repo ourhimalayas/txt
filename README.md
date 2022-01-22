@@ -15,152 +15,152 @@
 
 ---
 
-### [中共中央对郑州7•20特大暴雨灾害事件时任书记立案审查](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（六）](/content/gnews/2/README.md)
+### [1.21大直播后记：共产党瞒骗外国政要吃狗肉](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（九）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
+### [12个迹象表明食物短缺已经到来](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者](/content/gnews/4/README.md)
- ` 關注組`
-
-### [日本研究团队：奥米克戒不易感染肺部和呼吸道](/content/gnews/5/README.md)
+### [纽约女子大骂“中国人带病毒”被捕，我们要传播病毒真相应对排华](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（二）](/content/gnews/6/README.md)
+### [今天的帝国主义来自东方](/content/gnews/4/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共中央对郑州7•20特大暴雨灾害事件时任书记立案审查](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（六）](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [独立媒体人宋阳标在前往机场途中被刑拘](/content/gnews/7/README.md)
+### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（九）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者](/content/gnews/8/README.md)
+ ` 關注組`
+
+### [日本研究团队：奥米克戒不易感染肺部和呼吸道](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（二）](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [独立媒体人宋阳标在前往机场途中被刑拘](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [做好5～10年 甚至更长时间的经济准备](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [中日财经爆│美国发起反击 暂停中共国航空公司44个航班](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（八）](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [中共国反对斯洛文尼亚加强台湾关系的计划](/content/gnews/11/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [如果你不跟我们一起圣诞节直播你会做什么？（一）](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [如果你不跟我们一起圣诞节直播你会做什么？（二）](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [爱尔兰取消了几乎所有的限制](/content/gnews/14/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [美联储密切关注数字现金的发展](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [全球通涨通缩滞涨并存](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [美联储干了什么坏事](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [什么是法币](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [拜登政府利用金钱鼓励医院误诊甚至杀害市民](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [世界卫生组织(WHO)近期会议【建议】世界各国解除禁令](/content/gnews/20/README.md)
- ` G-NEWS TAIWAN`
-
-### [法国疫苗通行证即将生效](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [古巴已为所有2岁以上儿童接种中共病毒疫苗](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [陈凯歌就是垃圾](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [近900万美国人因中共病毒向雇主请病假](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [2022年世界经济论坛将在达沃斯举行](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [本·哈恩威尔：NBC和ESPN知道中共病毒在北京失控](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国要求联合国制裁相关朝鲜人士，中俄从中拖延](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [橙郡妇女佛洛蕊斯在接种第二剂Moderna疫苗后死亡](/content/gnews/29/README.md)
- ` DC政经`
-
-### [中方反对斯洛文尼亚总理称台湾为国家](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [因为讲伊维菌素有用而被解雇,医生将医院告上法庭](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [巴基斯坦外长私下谈话透露出习近平已经躲了两年多](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [“查马斯是在为世界新秩序和中共之间继续勾兑进行辩护”](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [菲律宾银行计划启动加密货币交易和托管服务](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [DC大中华时事：中共三孩政策配套措施正陆续出台](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共军方：在西沙群岛警告驱离美国驱逐舰](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [郭文贵先生诉瑞银UBS案件开始发酵与太平联盟案件的疯狂](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
-
-### [秘翻在线：脱钩重大进展——荷兰拒售中共高端光刻机！](/content/gnews/38/README.md)
+### [新罕布什尔州寻求将伊维菌素作为法律规定的中共病毒替代疗法](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗灾情｜巴西 10 岁女孩接种疫苗 12 小时后心脏骤停 情况危殆](/content/gnews/39/README.md)
+### [做好5～10年 甚至更长时间的经济准备](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [中日财经爆│美国发起反击 暂停中共国航空公司44个航班](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（八）](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国反对斯洛文尼亚加强台湾关系的计划](/content/gnews/16/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [如果你不跟我们一起圣诞节直播你会做什么？（一）](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [如果你不跟我们一起圣诞节直播你会做什么？（二）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [爱尔兰取消了几乎所有的限制](/content/gnews/19/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [美联储密切关注数字现金的发展](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球通涨通缩滞涨并存](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [拜登政府利用金钱鼓励医院误诊甚至杀害市民](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [世界卫生组织(WHO)近期会议【建议】世界各国解除禁令](/content/gnews/23/README.md)
+ ` G-NEWS TAIWAN`
+
+### [法国疫苗通行证即将生效](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [古巴已为所有2岁以上儿童接种中共病毒疫苗](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [近900万美国人因中共病毒向雇主请病假](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [2022年世界经济论坛将在达沃斯举行](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [本·哈恩威尔：NBC和ESPN知道中共病毒在北京失控](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国要求联合国制裁相关朝鲜人士，中俄从中拖延](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [橙郡妇女佛洛蕊斯在接种第二剂Moderna疫苗后死亡](/content/gnews/31/README.md)
+ ` DC政经`
+
+### [中方反对斯洛文尼亚总理称台湾为国家](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [因为讲伊维菌素有用而被解雇,医生将医院告上法庭](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [巴基斯坦外长私下谈话透露出习近平已经躲了两年多](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [“查马斯是在为世界新秩序和中共之间继续勾兑进行辩护”](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [菲律宾银行计划启动加密货币交易和托管服务](/content/gnews/36/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [DC大中华时事：中共三孩政策配套措施正陆续出台](/content/gnews/37/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共军方：在西沙群岛警告驱离美国驱逐舰](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵先生诉瑞银UBS案件开始发酵与太平联盟案件的疯狂](/content/gnews/39/README.md)
+ ` 秘密翻译组-原创组`
+
+### [秘翻在线：脱钩重大进展——荷兰拒售中共高端光刻机！](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫苗灾情｜巴西 10 岁女孩接种疫苗 12 小时后心脏骤停 情况危殆](/content/gnews/41/README.md)
  ` 關注組`
 
-### [夏普开发新材料，可按需调节密闭空间湿度](/content/gnews/40/README.md)
+### [夏普开发新材料，可按需调节密闭空间湿度](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [史蒂夫‧柯蒂斯谈拜登疫苗强制令对美国通胀的影响](/content/gnews/41/README.md)
+### [史蒂夫‧柯蒂斯谈拜登疫苗强制令对美国通胀的影响](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [胶片上可以印刷半导体电路 碳纳米管的涂装技术](/content/gnews/42/README.md)
+### [胶片上可以印刷半导体电路 碳纳米管的涂装技术](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [科技寡头和世界各地政府利用疫情建立中央集权式管理](/content/gnews/43/README.md)
+### [科技寡头和世界各地政府利用疫情建立中央集权式管理](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英澳建构自由网络 反制中俄侵略](/content/gnews/44/README.md)
+### [英澳建构自由网络 反制中俄侵略](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
 
-### [炸裂！中共新冠疫苗二期临床试验正招募志愿者](/content/gnews/45/README.md)
+### [炸裂！中共新冠疫苗二期临床试验正招募志愿者](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国警告中俄：民主国家将团结对抗独裁专制](/content/gnews/46/README.md)
+### [英国警告中俄：民主国家将团结对抗独裁专制](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [华人将对中共法律超限战抗争到底](/content/gnews/47/README.md)
+### [加入新中国联邦改变人生](/content/gnews/49/README.md)
  ` GTV新闻访谈`
-
-### [加入新中国联邦改变人生](/content/gnews/48/README.md)
- ` GTV新闻访谈`
-
-### [美国警告可能禁止向俄罗斯出口芯片](/content/gnews/49/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [1.19大直播后记：达沃斯和冬奥会将是习近平最后的出演](/content/gnews/50/README.md)
  ` 雅典娜GNotes`

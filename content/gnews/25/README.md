@@ -2,34 +2,28 @@
 ---
 
 
-## 美检察官：高法裁决驳回疫苗强制令影响广泛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893172/)
+## 古巴已为所有2岁以上儿童接种中共病毒疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893238/)
 
-撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
-1月20日，郭文贵先生盖特转发了一则视频，针对最高法院驳回拜登政府的疫苗强制令，加州检察官大卫·沃尔在接受采访时表示，判决发生后，虽然拜登政府仍在继续推动企业制定自己的疫苗强制令，但他们的影响力已经非常微弱。最高法院的裁决则会产生更广泛的影响。如果某个州——比如加州——有意忽视的话，会引发可能导致该州破产的诉讼。而职业安全与健康管理局，确实可以监管医疗保健行业，但超过其监管权之外，下命令让公司继续推行强制疫苗则是非常愚蠢的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626754.jpg)
-谈到因拒绝接种疫苗，或者拒绝每周一次的病毒检测而被解雇的员工，沃尔称，他们可以依据最高法院的判决，提起非常有力的不当解雇诉讼，其中许多人会重新获得工作，甚至包括惩罚性赔偿。
+撰稿：东京樱花团/向海
 
-对于很多人关心、但高法裁决没有直接涉及的儿童接种疫苗事宜，沃尔认为，最高法院的裁决可以指导任何相关的诉讼，当涉及人们选择允许进入自己身体的药物和疫苗时，高法认为政府不应该越权。而试图越权的州政府则会给自己带来麻烦。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/古巴已为所有2岁以上儿童接种中共病毒疫苗.png)[图片来源](https://www.dw.com/zh/%E6%9D%A5%E8%87%AA%E5%8F%A4%E5%B7%B4%E7%9A%84%E5%A5%87%E8%BF%B9%E7%96%AB%E8%8B%97/a-58120482)
 
-总编/编辑: 飞虹
+22日日本雅虎新闻报，古巴宣布已为所有2岁以上的儿童接种中共病毒（新冠病毒Covid-19）疫苗。
 
-新闻链接：[郭文贵先生盖特](https://gettr.com/post/ppi6ok461e)
+古巴外交部21日宣布，已为所有2岁以上儿童接种中共病毒疫苗，并“显示出极好的效果”。古巴去年8月开始为2岁以上的儿童接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-1.png)
+据西班牙通讯社报道，给儿童接种的中共病毒疫苗是古巴自己研发的三类疫苗，均在临床试验中发现有效率超过90%，甚至在委内瑞拉、尼加拉瓜等其他国家也施打了同样疫苗。但是，这些疫苗还未经世界卫生组织（WHO）批准。在古巴，87.5% 的人口已完成疫苗接种。
 
-校正/发稿：浪迹天涯
+据卫生部称，截至21日，中共病毒累计感染人数为101.5203​​万人，近期每日新增感染人数达到3000人的水平。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+信息来源：
 
+[キューバ、２歳以上の全ての子どもへ新型コロナのワクチン接種を実施（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/74613a49d1b6f22c5ed725c6e8c615a9b708ddb5)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

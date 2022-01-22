@@ -2,33 +2,22 @@
 ---
 
 
-## 美联储密切关注数字现金的发展
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893290/)
+## 如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（八）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893361/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-整理/编辑：小红帽
+你怎么能给她点烟呢？我给他战友就发个笑脸，啥也没说。这位战友还没放下。如 不果是Rachel那天屁股需要我擦，我也帮她擦屁股，我也毫不犹豫，她愿意的话啊，小王子让我帮他擦，我一定给他擦。你试试。为什么？你需要，你不是变态的需要， 说我现在小王子身体不舒服了，七哥，你帮我照顾我，帮我擦屁股。我答应我绝对会去，我擦得比擦我自己的还干净。这里不会标榜着高低。这就是我们跟人打交道的时候，所有的这些老年人，就是当年的那些打交道，他们没见过一个我，我爱干净，我爱擦、爱拾捣，从不闲着。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+而且我爱照顾人，我想到人家到时间吃饭我都想办法弄饭吃去，酒不够了，我想办法弄酒去。我从来没有得失之心，从来没有高低卑微之心来衡量我自己。包括对孩子，我觉的谁家，我向天发誓，我从来没觉得我儿子，我女儿跟我哥家的儿女不一 样过。我看的QMay的孩子看任何人的孩子，我从来没觉得（有差别），我真的是孩子我看到就喜欢。因为孩子，他来到这个世界上对他来讲，只有一个，他快乐和不 快乐，他真的没有别的选择。我为什么要在我的孩子身上做下那么多标准，让孩子那么多选择呢？当然我对别人也不会这样，我对老人更不会了。一个不尊重老人的人怎么会是正常的人呢？所以说刚才大卫王问的问题，我就回答，我现在我想拿鞋底呼你两下去，是吧，你要该想到什么大卫王？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/如何跟年纪大的人打交道面对病毒怎么做来拯救家人朋友（八）-.jpg)
+发布： *tianzhihuan*
 
-
-据《THE VERG》1月21日报道， CNBC引述，美联储的一份新文件显示，由美国政府支持的数字美元可能会导致更快的资金转移，并且比当前的银行系统更容易获得。
-
-该文件作为“讨论的第一步”，并不提倡实际创建“中央银行数字货币”（或 CBDC）。尽管如此，数字美元的创建将是一个巨大的转变。然而，其中也会潜在不利因素，包括：降低商业银行对消费者的吸引力，并影响美联储影响金融体系的能力。美联储现在正在征求意见，包括对该文件可能遗漏的任何内容。
-
-据路透社报道，该文件朝着数字美元的存迈出了一步，当时大约有 90 个其他国家正在考虑创建自己的数字货币。欧洲中央银行正在研究创建数字欧元，中国一直在测试数字人民币。
-
-与此同时，在加密货币领域中，稳定币（其中一些将其价值与美元挂钩）的地位一直在上升。
-
-参考链接：[Digital cash gets a look from the Fed](https://www.theverge.com/2022/1/21/22894101/federal-reserve-us-government-digital-dollar-central-bank-currency)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
