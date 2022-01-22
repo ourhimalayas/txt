@@ -2,52 +2,29 @@
 ---
 
 
-## 奥地利议会通过对所有成年人实行强制性疫苗接种的规定
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1891846/)
+## 扬帆每日速递 2022年1月21日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1891925/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+**加拿大温哥华扬帆农场 海报组**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+1、1月19日晚，广东房企中国奥园官宣违约，对2022年1月到期的两笔美元债，其将不予以兑付；而另外两笔还未到期的美元债，则将不继续付息。所有其它境外金融负债将发生或已发生违约事件。
 
+2、1月21日，据香港漁护署在30多家宠物店取样，其中元朗宠物店I love rabbit的仓鼠笼验出新冠病毒阳性样本，当局表示动物传人的机会提高。评:沒有最荒谬，只有更荒谬！ 3、在美国最高院驳回拜登政府对私营企业的疫苗强制令之后，美国一地方联邦法院法官杰弗里·布朗进一步对对拜登政府作出其无权“强制所有联邦政府雇员同意接种中共病毒疫苗或失去工作”的裁决。
 
+4、美联储终于发布一份文件，就开发自己的中央银行数字货币的利弊发表了意见，但没有给出任何明确的结论。
 
+5、据文贵大直播：杨洁篪、王毅、王沪宁、王岐山、李肇星及唐家璇，出卖国家利益，对中国人民的伤害在中国历史上比赵高、李斯还要坏。巴基斯坦前总理谢里夫在国际上作证中国共产党在全世界腐败各国合法有效政府领导人！
 
+6、据文贵大直播：拜登政府对中共的强硬要求：要么按照美国要求打开武汉实验室追溯病毒来源；要么政治经济完全脱钩。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-21简2_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
-据[布赖特巴特新闻网](https://www.breitbart.com/europe/2022/01/21/austrian-parliament-votes-overwhelmingly-to-introduce-mandatory-vaccination-for-all-adults/)1月21日报道，周四，奥地利议会以137票对仅33票的投票中，以压倒性的优势投票决定对所有18岁以上的居民强制接种中共病毒疫苗。
+编辑：文敏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237852125-e1642721903229-640x480-1.jpg)Roland SCHLAGER/APA via Getty APA Images
+发布：风起云间（文敏）
 
-因医疗原因不能接种疫苗者和孕妇将被免除强制接种，那些已经从中共病毒中康复的人也将在康复后的6个月内获得豁免。但那些拒绝接种疫苗的人可能面临高达3600欧元的罚款。
-
-从3月中旬开始，奥地利警方将在例行检查和交通检查中核查疫苗接种情况，并对那些不能证明已完全接种中共病毒疫苗的人处以罚款。对此，警察工会负责人沃纳·赫伯特（Werner Herbert）表示，警察在这里被用于政治目的是很不恰当的！
-
-虽然奥地利议会的绝大多数成员都投票支持这项措施，但由赫伯特·克尔（Herbert Kickl）领导的民粹主义自由党却投票反对这项措施。
-
-克尔在脸书上表示，“今天是奥地利议会和我们民主的耻辱日，民粹主义自由党的代表们一致投票反对这项不公正的法律，这是极端的极权主义，我们将尽一切可能减少对大多数公民的强制接种。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+海报图片设计：飞天面、 Shuang
 
  
 

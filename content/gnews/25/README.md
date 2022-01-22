@@ -2,36 +2,41 @@
 ---
 
 
-## 有声|大直播—中共屠刀下的八弟与六四英雄亡灵让七哥下定决心灭共！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891916/)
+## 吃起狗肉来有声有色的杨贝贝Isobel Yeung是真心爱狗吗
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1891970/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-七哥在2022年1月17日大直播中再次谈到八弟和“六四”民族英雄。七哥因鼎力支持“八九六四”学生运动而被中共恶警抓捕，差一周就满18岁的八弟因保护七嫂和小郭强而身中中共恶警两枪，警察和医生见死不救，疼了近三天失血而死。七哥在清风看守所亲眼目睹60多个狱友、“六四”民族英雄依次被中共枪毙，并遭受中共狱警惨无人道的肉体和精神上的摧残和虐待，这些家仇国恨让七哥吃下了灭共的定心丸。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获_副本-1.png)
+郭文贵先生转了杨贝贝吃狗肉的盖特——
+![](https://assets.gnews.org/wp-content/uploads/2022/01/001.png)
+下面我们就按图索骥来看一下原片——
 
-悟透人生和人性并心怀天下的七哥，每当想到被中共屠杀的八弟、六四英雄、新疆与西藏同胞，以及自焚的藏人和自杀的杨改兰等被冤死和屈死的灵魂既不能上天堂，也不能投胎人间，只能继续游荡在地狱里而永无抬头的机会时，七哥就心如刀绞并坚定了灭共的决心。
+视频来源：[纪录片 《玉林狗肉节》 美国记者抨击中国人吃狗肉……](http://k.sina.com.cn/article_7530565666_m1c0db502203300w5uq.html?display=0&amp;retcode=0)
 
-原文链接：[大直播—中共屠刀下的八弟与六四英雄亡灵让七哥下定决心灭共！](https://gnews.org/zh-hans/1888259/)
+曾经看过一个故事说一个在英国受过高等教育的白人到非洲冒险，他来到了食人生番部落并最终融入食人生番的部落，多年后他的同胞在非洲从林里碰到了这位白人同胞，看到他大快朵颐地吃人肉，就非常吃惊地问他，你来自文明世界如何能吃得下人肉呢？这位已经融入食人生番的白人回答说：No! 我跟他们还是不一样的，你没看到我在吃人肉的时候用的是刀叉吗？
 
-音频处理/发稿：Daxia
+相较于食人生番，把吃狗看成天经地义的中国也是另一种的落后，这种血腥的落后需要革除，而那个到玉林狗肉节探班的杨贝贝Isobel Yeung则不然，她和她所任职的VICE的到来意味着文明世界对玉林狗肉节的审视，但是吃起狗肉来有声有色的杨贝贝Isobel Yeung却又一次地惊掉了我们的下巴，为什么呢？因为这一次吃狗肉的是来自文明世界的并且是说英语的美国女记者，那么她与那些视吃狗肉为天经地义的中国同胞有什么不同呢？——她分明是用拿惯刀和叉的手在吃狗肉嘛！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+撰稿：喜马拉雅的肉夹馍；
 
-**更多资讯，更多关注**
+审核：喜马拉雅的馍夹肉；
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+校对：Maarago；
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（文章内容仅代表作者个人观点）
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

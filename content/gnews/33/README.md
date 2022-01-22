@@ -2,47 +2,62 @@
 ---
 
 
-## 德州法官阻止拜登的联邦工作人员疫苗强制令
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1891761/)
+## 汪建何许人也（二）
+` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1891810/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F-2.jpg)investmentrockers.com
-《国会山》（the hill）1月21日发表文章，题目是“德克萨斯联邦法官阻止了拜登对联邦工作人员的疫苗强制令”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-4.png)
 
-全文如下：
+———— 深挖中共
 
-对白宫中共病毒疫苗强制令的最新打击，是德克萨斯联邦法官今天（1月21日）阻止了拜登对联邦工作人员的疫苗强制令。
+作者： 流浪的阳光
 
-前总统川普任命的杰弗里·布朗（Jeffrey Brown）法官写道，该行政令超出了总统的权限。
+接著我们来看看和汪建有交集的几个人 比尔盖茨 2012年9月25日，华大与盖茨基金会签署合作备忘录。 2013年4月8日，比尔·盖茨一行到访香港华大基因。 2017年10月31日，比尔盖茨基金会成员到访国家基因库。 2018年10月3日，在美国西雅图 ，华大基因和比尔盖茨基金会签署谅解备忘录。
 
-布朗写道，这起案件是关于“总统是否可以在没有国会支持的情况下，大笔一挥，要求数百万联邦雇员接受医疗程序，作为他们受雇的条件。”
+![Image](https://pbs.twimg.com/media/E9O0bhSUcAYl7hB?format=jpg&amp;name=large)
 
-司法部立即表示将提出上诉。
+![Image](https://pbs.twimg.com/media/E9O0bhQUUAYb7VX?format=jpg&amp;name=large)
 
-这项行政令是在最高法院本月早些时候否决了拜登关于100名或100名以上员工的企业，要求员工接种疫苗或定期检测的强制令，同时维持了卫生保健工作者的疫苗强制令之后发布的。
+![Image](https://pbs.twimg.com/media/E9O0bhRUcAQuYJf?format=jpg&amp;name=900x900)
 
-联邦政府为其雇员强制接种疫苗的权力被认为具有更强的法律基础，尽管周五（1月21日）的裁决强调了争议的持续性。
+![Image](https://pbs.twimg.com/media/E9O0bhQUcAE_svk?format=jpg&amp;name=large)
 
-“对不起，但这简直是疯狂。” 德克萨斯大学法律教授史蒂夫·弗拉德克（Steve Vladeck）在推特上写道，“联邦政府没有权力要求自己的雇员接种疫苗？”
+法兰西斯·柯林斯，美国遗传学家，领导人类基因组计划， 2000 年 6 月 26 日，克林顿在白宫宣布完成人类基因组草图，法兰西斯·柯林斯在侧。 2001年8月28日，江泽民在中南海接见国际人类基因组计划主要负责人，其中有Francis Collins和汪建2009年7月8日，奥巴马提名柯林斯为美国国立卫生研究院院长。
 
-布朗法官指出，“保持个人根据自己的信念做出强烈的个人决定的自由”是一种利益。
+![Image](https://pbs.twimg.com/media/E9R5mpYVcAcXP2D?format=jpg&amp;name=900x900)
 
-共和党人发起了一场反对拜登疫苗强制令的重大法律运动，并谴责他们侵犯了人们的个人选择。
+![Image](https://pbs.twimg.com/media/E9R5mptVEAAhhyg?format=jpg&amp;name=900x900)
 
-许多健康专家称赞强制令让更多人接种疫苗，是预防中共病毒引起严重疾病的关键一步。
+![Image](https://pbs.twimg.com/media/E9R5mpXVgAEaIGZ?format=jpg&amp;name=large)
 
-本月早些时候，大型企业的强制令被取消后，拜登继续敦促企业自行对员工实施疫苗接种。
+![Image](https://pbs.twimg.com/media/E9R5mpvVEAAPXT-?format=jpg&amp;name=small)
 
-（全文完）
+说到这里，就要聊一聊美国国立卫生研究院了，安东尼．福奇就是美国国立卫生研究院(NIH)下属美国国家过敏和传染病研究所的所长，换言之 弗朗西斯·柯林斯是福奇的顶头上司，他们俩还是好朋友！ 就是柯林斯和福奇一起批准了用美国纳税人的钱给武毒研究所进行了功能增强实验，使病毒武器化，然后来祸害世界。
 
-又一次考验最高法院的时候了，川普总统任命的大法官布雷特·卡瓦诺（Brett Kavanaugh）站在了自由派一边，使得拜登对卫生保健工作者的疫苗强制接种令涉险过关（5:4通过），令保守人士大跌眼镜。随着全球对疫苗阴谋在清醒，相信美国最高法院这次会作出更明智的选择，直接下令，维持原判，不予受理。
+就是这位柯林斯，在2020年3月26日，在NlH官方博客发表了《基因研究显示 新冠肺炎病毒起源于自然》的博文
+也是这位柯林斯，在2020年12月13日接受NBC电视台的采访中呼吁民众要消除对新冠疫苗的怀疑，鼓励大家去打疫苗！
+还是这位柯林斯，在2017 年 6 月和福奇与比尔盖茨一起讨论全球健康领域的研究机会！
 
-原文链接：
+![Image](https://pbs.twimg.com/media/E9XNjR0VUAEzcVM?format=jpg&amp;name=large)![Image](https://pbs.twimg.com/media/E9XNjR1UYAE7195?format=jpg&amp;name=large)
 
-[https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers?rl=1](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers?rl=1)
+![Image](https://pbs.twimg.com/media/E9XNjR0VgAYK5Hl?format=jpg&amp;name=900x900)
 
-**华盛顿DC 望七星**
+![Image](https://pbs.twimg.com/media/E9XNjR1VIAA9Q1b?format=jpg&amp;name=small)
 
-**编辑发布  水星**
+未完待续。
+
+编辑：流浪的阳光
+
+校对/发稿：Serena
+
+汪建何许人也（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
+
+新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+
+新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
+
+
 
  
 

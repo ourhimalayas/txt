@@ -2,38 +2,39 @@
 ---
 
 
-## 有声|G保险 – 新中国联邦首创去中心化保险机制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891920/)
+## 有声|日研究显示孕妇染疫易转中度以上症状
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891982/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-文贵先生在1月19日的大直播中，首次提及新中国联邦首创的、去中心化的保险机制 – G保险。
+配音：香草山农场 – 纳米
 
-在当前世界的保险机制下，保险公司基于客户提交的保金，做出相应的运营和服务人。客户提出的理赔申请，需在保险公司审核通过的条件下，才能获得理赔。而一旦保险公司运营亏损，客户也将血本无归。
 
-相较于这种毫无保障的保险，新中国联邦将首创去中心化的保险机制。客户投保G保险，就相当于拥有了数字货币账户。G保险将在第三方监督下，依照约定的白皮书内容做出相应的理赔，为客户提供安全的理赔保障。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月18日，日本媒体报导，日本国立成育医疗研究中心主导的一项研究显示，相较于未孕女性，孕妇在感染中共病毒后，有更高概率转变成中度以上的病症。
 
-原文链接：[G保险 – 新中国联邦首创去中心化保险机制](https://gnews.org/zh-hans/1889127/)
+该研究搜集了2020年1月至2021年4月，感染中共病毒的187名孕妇及935名未怀孕女性的资料进行了比较，研究对象的年龄在15～45岁。
 
-音频处理/发稿：Daxia
+该研究获得三项主要结果：第一，孕妇染疫后发展成中度以上病症的比率是未孕女性的两倍。第二，孕妇在怀孕中期及后期染疫，进展成中度以上病症的比率是怀孕初期染疫者的5至8倍。第三，同住家人中有染疫者的比率，孕妇是未孕女性的两倍。 显示孕妇有较大比率是被已染疫的同住家人传染的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+以上研究结果值得家庭中有孕妇的人参考。
 
+文字版原文：[日研究显示孕妇染疫易转中度以上症状](https://gnews.org/zh-hans/1887691/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

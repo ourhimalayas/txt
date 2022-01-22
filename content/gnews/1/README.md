@@ -2,32 +2,27 @@
 ---
 
 
-## 美议员指控奥委会官员助中共掩盖彭帅事件
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892128/)
+## 马云的蚂蚁金服被暗示涉及中共前高官的贪腐丑闻
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892207/)
 
-作者：首尔天池农场—zzballac
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在距离中共北京冬奥会正式开幕仅剩两周之际，美国众议员，麦克-加拉格尔，于当天提出了一份《争取彭帅自由法案》。在这份法案中，他要求美国政府依据《全球马格尼茨基人权问责法》对国际奥林匹克委员会的主要官员实施制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-上午9.55.46.png)
-加拉格尔议员指责称，国际奥委会与中国共产党串通一气，帮助中共化解由彭帅失踪事件所带来的公关危机，为北京冬奥会顺利举行排除了障碍。但加拉格尔强调，国际奥委会的介入并没有减轻世人对彭帅的担忧，相反的，全球民众更因此看清了国际奥委会与中共沆瀣一气的真面目。那就是，奥委会没有与彭帅站在一起，反而为中共提供掩护。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-132.png)
+图片来源：www.ntdtv.com
 
-加拉格尔还提到，彭帅缺席了正在举行的澳大利亚网球公开赛，这表明她依然没有获得自由。而鉴于国际奥委会帮助中共当局掩饰其严重侵犯人权行为的做法，加拉格尔呼吁道，仅仅抵制中共北京冬奥会或要求易地举行冬奥会是不够的，应该对巴赫和与中共当局同谋的其他奥委会官员实施制裁。
+零对冲网1月21日报道，在马云被中共踢出阿里巴巴之前的2019年，我们报道了来自海曼资本的卡尔·巴斯的预测，说马云在离开阿里巴巴主席位置后很快将会被关监狱或被消失。
 
-参考链接：[Rep. Gallagher to push sanctions on Olympic committee over alleged complicity in CCP Peng Shuai disappearance](https://news.yahoo.com/rep-gallagher-push-sanctions-olympic-220211153.html)
+在中共破坏了由马云领导的蚂蚁金服上市后，马云就突然被消失，蚂蚁金服是在中共国市场上广泛运用的阿里巴巴的金融膀臂，我们很担心还会发生什么更糟的事。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+即使马云后来表白上看又出来了，但已经判若两人，不再有那种在中共国是最富有的人的气场，更糟糕的是这标志着中共开始打击正在中国蓬勃发展的技术公司。最近在中共国中央电视台发布了一个报道暗示马云的总部在杭州的蚂蚁金服存在广泛的腐败丑闻，这样的丑闻在中共国可以被判死刑。
 
-总编：文特
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+该报告文件并没有直指蚂蚁金服，但它进一步暗示去年8月份有中共高官的家属被抓。蚂蚁金服在房地产地块和其他政府政策支持下获得低价优惠。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一名原杭州市委书记周江勇己被关监狱，许多人的指控涉及他的兄弟，一个商人，他曾帮助当地政府实体获得很多合同。在文件中，周江勇交代说他弟弟之所以能做生意是因为有他在政府握有权力。蚂蚁金服与周江勇的弟弟有一系列的买卖，有人说，现在可能是蚂蚁金服付出代价的时候了。
+
+##### **新闻来源： **[Jack Ma’s Ant Group Implicated In Major Corruption Scandal Involving Ex-CCP Official](https://www.zerohedge.com/technology/alibaba-slides-ant-group-implicated-corruption-scandal-involving-ex-ccp-official)
+
+# ** **
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
