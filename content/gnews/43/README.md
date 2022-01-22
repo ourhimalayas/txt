@@ -2,22 +2,26 @@
 ---
 
 
-## 美检察官：高法裁决驳回疫苗强制令影响广泛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893172/)
+## 法国疫苗通行证即将生效
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893242/)
 
-撰稿：纽约磐石农场—在远方
+撰稿：加拿大温哥华扬帆农场 – Spirit
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
-1月20日，郭文贵先生盖特转发了一则视频，针对最高法院驳回拜登政府的疫苗强制令，加州检察官大卫·沃尔在接受采访时表示，判决发生后，虽然拜登政府仍在继续推动企业制定自己的疫苗强制令，但他们的影响力已经非常微弱。最高法院的裁决则会产生更广泛的影响。如果某个州——比如加州——有意忽视的话，会引发可能导致该州破产的诉讼。而职业安全与健康管理局，确实可以监管医疗保健行业，但超过其监管权之外，下命令让公司继续推行强制疫苗则是非常愚蠢的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626754.jpg)
-谈到因拒绝接种疫苗，或者拒绝每周一次的病毒检测而被解雇的员工，沃尔称，他们可以依据最高法院的判决，提起非常有力的不当解雇诉讼，其中许多人会重新获得工作，甚至包括惩罚性赔偿。
+根据1月20日外媒报道，法国总理卡斯特周四于巴黎宣布，政府将在2月份取消大部分中共病毒封锁限制，但需持有疫苗通行证，并在室内戴口罩。卡斯特在新闻发布会上说，疫苗通行证将于周一生效。人们将不再被允许出示阴性检测结果进入餐馆、酒吧、剧院、博物馆和体育场或乘坐火车，只接受疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626757.jpg)
+从2月2日开始，许多城市的体育场、竞技场和其他大容量场所，将被允许再次满负荷运行。必须在家工作的规定将被取消，户外将不再需要佩戴口罩。
 
-对于很多人关心、但高法裁决没有直接涉及的儿童接种疫苗事宜，沃尔认为，最高法院的裁决可以指导任何相关的诉讼，当涉及人们选择允许进入自己身体的药物和疫苗时，高法认为政府不应该越权。而试图越权的州政府则会给自己带来麻烦。
+过去一周，法国平均每天中共病毒患者高达32万例。在强制施行疫苗通行证后，法国的疫情走向将会如何，我们会持续关注报道。
 
-总编/编辑: 飞虹
 
-新闻链接：[郭文贵先生盖特](https://gettr.com/post/ppi6ok461e)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-1.png)
+总编：童谣
+
+编辑：Lakeman文仁
+
+新闻：[France to lift COVID-19 restrictions in February](https://www.politico.eu/article/france-to-lift-covid-19-restrictions-in-february/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-3.png)
 
 校正/发稿：浪迹天涯
 
@@ -27,9 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

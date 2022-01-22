@@ -2,38 +2,23 @@
 ---
 
 
-## 多家媒体报道塞浦路斯法院释放新中国联邦成员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1893669/)
+## 团队中或工作环境中，对待年纪大的人是否用同样的方式？（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893726/)
 
-#### 撰稿：彩虹
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-36.jpg)图片来源：worldakkam
-1月21日，美国《巴伦周刊》、印度《Worldakkam》、塞浦路斯《金融镜》等多家媒体报道，周五，中共在塞浦路斯针对新中国联邦成员进行的引渡请求，法院对该欺诈指控出现了转折，法院在没有收到必须的文件情况下将这对新中国联邦成员母子予以保释。
+这就你看我现在每天坐在这里，我这么多全世界所有的团队所有的事情，我说错一个事情, 对另外一边人都带来巨大伤害。就像有人跟我说小王子怎么样怎么样不行，我从来没有觉得小王子不行，我从来没有过。我自己知道有没有。王雁萍她坐在这儿，她可以知道，我说他太年轻需要历练。就像小飞侠一样，我说他年轻需要历练，而且毕竟会回来，而且会回来的非常精彩。为什么？我就是最好的例子，我在我家里边就是惹气的魔王啊，他踹掉电源算啥呀？我弟弟因我而死，我母亲因我而死，我多次被抓起来，全家都灭族的危急, 现在我爹已经被碾在了大街上，全部家族和同事受到了牵连，你觉得我是个祸根呢，我还是英雄呢？
 
-报道说，度假镇帕福斯的地区法院下令从周一开始释放两人，每人保释金为25,000欧元，直到文书工作完成。
+你这个踹断电源的人，大卫王没踹断电源，大卫王就压根没来总部，他在照顾他爹他妈呢, 他一直想着如果走了我爹妈家人会不会得病毒，这个他这个小我，他永远不来踹你电源。 你这么看待问题的时候你就会发现，所有有问题的人可能都是最有价值的。你看看希特勒这个家伙这个魔头身边的人，他聚集了人类上有史以来最多的军事天才。他本身就是就是雕塑大师、服装大师、宣传大师、外宣大师，几乎让他所有的（人都愿意跟随他），你看戈培尔这样的人。是不是，曼斯坦因（追随者）、施佩尔最伟大的建筑师，全当他下边（的人），这也是世界的魔头。你就是要想到一个，凡是没有麻烦的人，甚至你一定要记住，凡是说话让你舒服到不行的人，你就开始要怀疑他了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/团队中或工作环境中，对待年纪大的人是否用同样的方式？-（二）-.jpg)
+发布： *tianzhihuan*
 
-《巴伦周刊》说，根据报道，母子二人通过投资拥有了塞浦路斯的居留权，但由于参与了在美国的相关政治团体，从而因政治信仰而受到中共的打压伤害。
-
-据塞浦路斯警方称，母亲（61岁）和儿子（39岁）是根据中共国当局发出的逮捕令，涉嫌在2013年3月1日至2014年3月31日期间在中共国进行投资欺诈。12月8日在佩亚被逮捕。
-
-辩护律师埃夫斯塔蒂奥斯·埃夫斯塔蒂乌（Efstathios Efstathiou）告诉法新社，由于中共当局将引渡请求发送到塞浦路斯驻北京大使馆，塞浦路斯外交部长没有时间授权法院所需的请求。他说：“只有在部长对引渡请求进行授权后，才能开始引渡，而法院并没有收到引渡请求。没有授权，就不可能有引渡”。
-
-文章说，母子二人反对中共引渡的斗争获得了美国游说团体的支持，包括与美国总统川普（Donald Trump）前顾问史蒂夫·班农（Steve Bannon）有关的游说团体。
-
-值得注意的是，文章公开报道说，辩护律师埃夫斯塔蒂奥斯说，这对母子是新中国联邦（New Federal State of China）的成员，这是一个反对中共政府的组织。同时，报道也提及了郭文贵先生，报道指母子二人与另一个反对中共政府的美国团体法治基金（Rule of Law Foundation）有关系。
-
-另据塞浦路斯当地报纸《Politis》报道说，司法部和内政部收到了法治基金的一封信，信中指出该组织旨在“保护公开反对中国腐败和非法活动的个人”。
-
-辩护律师指出，与性别、宗教或政治信仰有关的歧视是不执行引渡的理由。同时，“不仅仅是政治因素，由于案件的复杂性，引渡程序会长达18个月”。
-
-**新闻来源**
-
-[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
-
-[Cyprus extradition twist for Chinese pair](https://www.financialmirror.com/2022/01/21/cyprus-extradition-twist-for-chinese-pair/)
-
-[Cyprus Handover Twist for Chinese Pairs](https://worldakkam.com/cyprus-handover-twist-for-chinese-pairs/664344/amp/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

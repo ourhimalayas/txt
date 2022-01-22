@@ -2,27 +2,29 @@
 ---
 
 
-## 中方反对斯洛文尼亚总理称台湾为国家
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893137/)
+## 2022年世界经济论坛将在达沃斯举行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893171/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
 整理：Eileen（围剿维尼熊）
 编辑：5m
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642836106857.jpg)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642836502292.jpg)图片来源：雅典娜设计组
 
 
-据环球时报报道：斯洛文尼亚总理扬沙，于当地时间17日接受印度官方媒体全印电视台专访中，15次提到中国，涉及台湾问题、中立关系和中欧关系等方面。
+据土耳其之声报道：自1971年以来，达沃斯峰会每年一月在达沃斯举行。因新型冠状病毒（Covid-19）疫情而被取消举行的2021年世界经济论坛（WEF）计划于2022年1月17日至21日在瑞士达沃斯举行。
 
-扬沙透露，斯洛文尼亚正与台湾洽谈互设“代表处”，称台湾为“国家”，对中国反对台湾加入世界卫生组织感到遗憾。
+据世界经济论坛方面发表的声明，计划于2022年1月17日至21日在达沃斯以“携手合作，重建信任”为主题，汇聚世界领先领导人。
 
-在1月19日中国外交部例行记者会上，发言人赵立坚在回应相关提问时表示：斯洛文尼亚领导人公然发表挑战一个中国原则、支持“台独”的危险言论，我们对此深感震惊，强烈反对。赵立坚还强调，中华人民共和国政府是代表全中国的唯一合法政府，一个中国原则是公认的国际关系准则和国际社会普遍共识。
+声明中指出，来自商界、政府和非政府组织的领导人将在峰会上讨论因疫情而恶化的全球经济等问题。
+
+2021年1月25日至29日，世界经济论坛组织了一场名为“2021达沃斯议程”的在线活动，来自约70个国家的1500多名商界人士、政界人士、学者和非政府组织代表参加此次活动。
 
 参考链接：
-[https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank)
+[https://www.trt.net.tr/chinese/cai-jing/2021/09/17/shi-jie-jing-ji-lun-tan-jiang-yu-2022zai-da-wo-si-ju-xing-1707062](https://www.trt.net.tr/chinese/cai-jing/2021/09/17/shi-jie-jing-ji-lun-tan-jiang-yu-2022zai-da-wo-si-ju-xing-1707062)
 
-*发布：tianzhihuan*
+*发布：*tianzhihuan
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

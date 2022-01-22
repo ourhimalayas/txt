@@ -2,27 +2,25 @@
 ---
 
 
-## 菲律宾银行计划启动加密货币交易和托管服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893047/)
+## 中方反对斯洛文尼亚总理称台湾为国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893137/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理/编辑：小红帽
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642836106857.jpg)图片来源：雅典娜设计组
 
 
-据《Business World》1月21日报道， 菲律宾联合银行（UNION BANK ）计划为加密货币提供交易和托管服务，以利用数字代币在亚洲国家快速应用的优势。
+据环球时报报道：斯洛文尼亚总理扬沙，于当地时间17日接受印度官方媒体全印电视台专访中，15次提到中国，涉及台湾问题、中立关系和中欧关系等方面。
 
-该银行区块链和应用程序接口组负责人凯茜·卡萨斯 (Cathy Casas) 表示，假设市场“稳定”，菲律宾投资者可能在五年内将个人资产的 3% 至 5%用来持有比特币等数字资产。目前这一比例是 1% 至 2% 左右。她说，许多加密货币投资者都是年轻人，其中一些人通过玩虚拟游戏来赚取代币。
+扬沙透露，斯洛文尼亚正与台湾洽谈互设“代表处”，称台湾为“国家”，对中国反对台湾加入世界卫生组织感到遗憾。
 
-卡萨斯估计，大约 5% 的当地人口涉足加密货币。该银行的数字资产托管服务还将涵盖代币化债券。该行已经在帮助客户发行这些债券。
+在1月19日中国外交部例行记者会上，发言人赵立坚在回应相关提问时表示：斯洛文尼亚领导人公然发表挑战一个中国原则、支持“台独”的危险言论，我们对此深感震惊，强烈反对。赵立坚还强调，中华人民共和国政府是代表全中国的唯一合法政府，一个中国原则是公认的国际关系准则和国际社会普遍共识。
 
-2019 年，联合银行成为第一家推出自己的稳定币（称为 PHX）的菲律宾贷方，让其网络中的农村银行更容易获得汇款和支付。
-
-根据 Metaco 周四的一份声明，联合银行将使用瑞士 Metaco 开发的系统来管理其数字资产业务。
-
-参考链接：[Crypto enthusiasm prompts Philippine bank to launch trading](https://www.bworldonline.com/crypto-enthusiasm-prompts-philippine-bank-to-launch-trading/)
+参考链接：
+[https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank)
 
 *发布：tianzhihuan*
 
