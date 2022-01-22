@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 12:15 AM (UTC)`
+
+January 21st,2022 Through these media reports, the days when the swamp enslaves the 1.4 billion Chinese people and the people of the world under the financial licenses of the legitimate gangsters are about to be gone for good. What I want is not the $500 million. What we have lost is more than tens of billions of dollars, and the damage it has done to us is immeasurable in terms of money! This lawsuit will show the ugly faces of the swamp to the public. Let’s wait and see!!! Whether it's the CCP, the Party of Davos, or the swamp, all of them are a bunch of financial devils enslaving the people of the world! We must change the rules of the game!✊✊✊🔥🔥🔥<br/><br/>https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending
+
+---
+
 `@miles 1/22/2022 12:09 AM (UTC)`
 
 1月21日，通过这些媒体报道，沼泽地这些打着合法黑社会金融牌照奴役14亿中国人民，奴役世界人民的日子即将一去不复返。郭文贵想要的不是5亿美元，我们损失的是几十亿美元也不止，它给我们造成的损失是用金钱无法估量的！这个案子将会把沼泽地的丑陋面孔昭示在人们面前，咱们走着看！！！无论是共产党，还是达沃斯党，沼泽地，都是一帮奴役世界人民的金融魔鬼！我们必须改变游戏规则！✊✊✊🔥🔥🔥<br/><br/>【瑞士媒体报道：企业家、白手起家的亿万富翁、政权的批评者，现在是索赔总额达数亿美元的原告：这一切都是郭文贵——现在对瑞银来说简直是一场噩梦。据彭博社报道，郭想从瑞银那里拿回5亿美元的巨款。】<br/><br/>https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending
@@ -145,13 +151,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/19/2022 Miles Guo: The Whistleblowers’ Movement once again saved humanity in the disasters caused by the COVID vaccines and the CCP virus. Ivermectin and artemisinin are the biggest nightmare of the “Swamp”. The Party of Davos and the media moguls will be brought to justice by 2025. Xi's era is over! Citizens of the New Federal State of China will become the sunniest rising force!<br/><br/>1/19/2022 文贵直播: 爆料革命在疫苗和病毒灾难中再次拯救了人类；伊维菌素和青蒿素是沼泽地最大的噩梦；达沃斯党和媒体大佬们将在2025年前受到正义的审判；习的时代已结束！新中国联邦人将成为最阳光的新兴力量！
 ![img](https://media.gettr.com/group13/getter/2022/01/20/23/791afd17-8175-1215-f92b-c1fa845074cf/out.jpg)
-
----
-
-`@miles 1/20/2022 11:05 PM (UTC)`
-
-1/19/2022 Miles Guo: The miserable, chaotic, and disastrous Winter Olympics will be Xi's final performance on the international stage, with Xi’s speech at the Davos Forum becoming his last international speech. Wang Qishan and his vassals advised Xi to employ the dirty trick to threaten the world by using the "spillover effect" as an excuse.<br/><br/>1/19/2022 文贵直播：凄凉、混乱、惨败的冬奥会将成为习最后一次国际演出，习在达沃斯论坛的演讲会成为他最后一次国际演讲；王岐山及其马仔给习出阴招以外溢效应为由威胁全世界<br/>
-![img](https://media.gettr.com/group12/getter/2022/01/20/23/7aa86721-1172-927c-e23b-17e84e801922/out.jpg)
 
 ---
 
