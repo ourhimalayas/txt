@@ -2,23 +2,27 @@
 ---
 
 
-## 有声|“一灯能除千年暗 一智能灭万年愚”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892231/)
+## 接种者疫苗蛋白脱落或可感染未接种者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892366/)
 
-配音：香草山健身部-格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭先生揭秘，本次达沃斯论坛的一项核心议题—— “未来100年金融计划”，即掌控数字货币化的权利。在数字货币时代到来之际，与全世界奉行的去中心化机制相对立，中共的数字化人民币却强调绝对中心化，绝对政府化。除了面向中共国人民，中共还强行向世界推广数字人民币。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+外媒消息，接种中共病毒疫苗将会引起严重的并发症，如心脏病等。如果疫苗接种者体内的刺突蛋白脱落，对于未接种过疫苗的人来说，或也会引发不安全问题。2021年11月14日文贵大直播，有Eglise医生讲述孩子发生过敏反应，或由脱落的刺突蛋白导致。
 
-达沃斯依靠资本奴役、操控全世界。喜币，作为遵守全世界政府法律、未来在全球流通的数字货币，而世界经济即将崩溃之际，喜币将挑战和推翻达沃斯操纵下的旧的金融体系，成为一盏消灭黑暗的明灯。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-50.png)
 
-在病毒、疫苗灾难面前，全球主流媒体审查、封锁信息，新中国联邦在GTV、盖特上向世界宣扬正道主义，传播真相。新中国联邦和喜币，就是“一智能灭万年愚”！
+另外有研究证实，密切接触过刺突蛋白可能引发的疾病有：心包炎、带状疱疹、肺炎、四肢和大脑血凝块、贝尔麻痹、阴道出血、流产风险显著增加、自身免疫性疾病，跨越血脑屏障，各种神经并发症。并且对儿童的影响高于成人。
 
-文字版原文：[“一灯能除千年暗 一智能灭万年愚”](https://gnews.org/zh-hans/1889112/)
+参考链接：
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+- [COVID-19 vaccine spike proteins are SHEDDING, giving people heart attacks, strokes and more](https://www.naturalnews.com/2022-01-18-covid-vaccine-spike-proteins-shedding-unvaccinated.html)
+- [2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

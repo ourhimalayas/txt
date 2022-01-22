@@ -2,35 +2,37 @@
 ---
 
 
-## 获中共支持的同方威视公司的安检设备大肆入侵欧洲
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892364/)
+## 秘翻在线：瑞银（UBS）的噩梦——郭文贵先生
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892405/)
 
-作者：首尔天池农场 – zzballack
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据外媒1月20日报道，美联社的一篇调查报告说，尽管美国出于安全考虑已将中共公司同方威视列入工业和安全局的实体名单，但是同方威视仍成功打入西方的安保市场。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-15.png)
-欧洲和美国的安全官员都担心使用由中共支持的同方威视机器可能存在重大的安全风险，因为通过该机器的电子设备上的敏感文件或信息可能会被中共特工获取。同样，如果威视机器设置被修改成允许拥有爆炸物或枪支的个人不受阻碍地通过安检，那么这可能有助于中共支持的活动，比如恐怖袭击。加拿大政府认为同方威视存在间谍活动的“高度威胁”。
+**翻译：Nstar**
 
-尽管存在这些安全问题，同方威视已为全球170多个国家和地区的客户提供服务，其中包括2019年在欧洲为政府机构、海关、民航机场和港口安装了1000多台安检设备。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/222.jpg)
+许多瑞士银行正在吸引来自新兴国家的超级富豪客户，但正如行业领导者瑞银现在所经历的那样，这始终是走钢丝。
 
-参考链接：
+企业家、白手起家的亿万富翁、中共政权的批评者，现在是索赔总额达数亿美元的原告：**郭文贵**先生——现在对瑞银来说简直是一场噩梦。
 
-- [Chinese Communist Party-Backed Company Delivers Security Scanners to Global Hot Spots](https://www.breitbart.com/europe/2022/01/20/chinese-communist-party-backed-company-delivers-security-scanners-to-global-hot-spots/)
+因为这家瑞士银行正在尽最大努力阻止郭先生在伦敦提出的损害赔偿要求。据彭博社报道，郭文贵先生想从瑞银那里拿回5亿美元的巨款。瑞士当地媒体也报道了此案。
+
+这与 2015 年的所谓追加保证金有关，金融机构没收了作为贷款抵押品的股票，并显然以低价出售。这是“放贷”业务的一个迹象，自2019年资产管理重组以来，这家大银行也一直在推动这一业务。提供存款抵押贷款可能是有利可图的，但追加保证金被证明是市场下跌的潜在风险——而且往往以纠纷告终。另一方面，有些客户尽管损失了数百万美元，但仍然可以承担昂贵的诉讼费用。
+
+除了郭文贵先生让瑞银睡不好觉，报道还提到不够“幸运”的瑞幸咖啡也让瑞士信贷（CS）严重受挫。2020 年春季，瑞幸咖啡的股票在操纵销售后暴跌——该银行不得不绞尽脑汁来应对高额的贷款违约，因为作为抵押品的证券已经贬值太多。
+
+对于瑞士大银行来说，这类事情不会停止。据媒体报道，去年 11 月，瑞信对一名据称欠瑞士研究所 7800 万美元巨款的沙特阿拉伯王子提起诉讼。该王子用这笔钱资助了一座别墅和一艘游艇。而瑞银最近也通过法院命令取消了前印度啤酒厂维杰·马利亚的伦敦城市宫殿的赎回权。该银行曾于2012年将这处房产作为其发放的相当于 2520 万瑞士法郎贷款的抵押品，但马利亚无法按时偿还贷款。
+
+关于郭文贵先生是否可以在伦敦提交诉讼，报道称还存在争议，但是正如郭先生所说，他相信美国和英国的法律系统，再难的诉讼他也要打下去，因为这是有关中共蓝金黄世界、关于正义是否可以得到伸张的重要案件，瑞银的噩梦才刚刚开始！
+
+**[新闻来源](https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending)**
+
+**相关Gnews文章**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：童谣
-编辑：Lakeman文仁
-校正/发稿：海阔天空1
+> [郭文贵先生起诉瑞银（UBS）](https://gnews.org/zh-hans/535815/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

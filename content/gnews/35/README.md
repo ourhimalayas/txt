@@ -2,26 +2,24 @@
 ---
 
 
-## 接种者疫苗蛋白脱落或可感染未接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892366/)
+## 加入新中国联邦改变人生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892448/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山农场教育部 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-外媒消息，接种中共病毒疫苗将会引起严重的并发症，如心脏病等。如果疫苗接种者体内的刺突蛋白脱落，对于未接种过疫苗的人来说，或也会引发不安全问题。2021年11月14日文贵大直播，有Eglise医生讲述孩子发生过敏反应，或由脱落的刺突蛋白导致。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-50.png)
-
-另外有研究证实，密切接触过刺突蛋白可能引发的疾病有：心包炎、带状疱疹、肺炎、四肢和大脑血凝块、贝尔麻痹、阴道出血、流产风险显著增加、自身免疫性疾病，跨越血脑屏障，各种神经并发症。并且对儿童的影响高于成人。
+1月19日，郭文贵先生答疑战友时指出，新中国联邦目前真正能帮助到的同胞非常有限，还有更多人被中共奴役而不自知，这些同胞只有主动靠近新中国联邦才能自救。目前真正加入到新中国联邦中来的只有三百万人左右，仅仅是14亿的同胞中的沧海一粟。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-10.png)
+郭先生说，喜币、喜联储和G系列终会成为世界金融的未来，并彻底改变战友们的命运。在喜币上市短短两个月，已经创造了人类史、金融史上都是从未有过的奇迹。呼吁战友们不要害怕和懒惰，使用盖特和GTV，以获得“使用即金钱”的躺平币，尝试购买喜币，抓住机遇，改变人生。
 
 参考链接：
 
-- [COVID-19 vaccine spike proteins are SHEDDING, giving people heart attacks, strokes and more](https://www.naturalnews.com/2022-01-18-covid-vaccine-spike-proteins-shedding-unvaccinated.html)
-- [2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
+- [2022年1月19日 文贵大直播](https://gtv.org/video/id=61e8077a533c672fca7f4b09)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：童谣
+总编：飞虹
+编辑：百香果
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

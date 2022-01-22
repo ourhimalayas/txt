@@ -2,29 +2,30 @@
 ---
 
 
-## 欧洲议会高票赞同检视香港世贸独立会籍
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1892721/)
+## 难道频繁的名人死亡都是偶然吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892857/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-32.jpg)欧洲议会高票赞同检视香港世贸独立会籍 网络ttutu p图片
-据美国之音1月21日报道，欧洲议会20日以585票大比数通过最新的香港决议，列举大量香港自由被剥夺，香港言论、结社、新闻自由被侵犯的事例，重申欧洲议会支持香港人争取民主自由，更首次要求欧盟委员会检视香港在世界贸易组织的独立地位。中共大陆、香港、澳门三地都在世贸组织有独立的席位。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-12.jpg)[图片源](https://www.cw.com.tw/article/5117592)
+近日，笔者注意到日文网站上频繁出现名人死亡的消息，但在这个疫苗已引起全球关注的特殊时期，却几乎都不公开死者是否接种了疫苗。实在令人费解！
 
-决议要求欧洲理事会制裁林郑月娥、李家超等侵犯人权的8名香港及中共国官员，并要求制定一份制裁清单，惩罚与香港人权问题有关的公司，释放和平示威的香港人。“香港国安法”生效后，数十名民主派政治人物被捕，几家民主报纸及网站停运，国际特赦组织关闭两个办公室，超过60个公民团体解散。
+1月18日，人气帅哥演员加斯帕尔-乌里尔在法国罗讷-阿尔卑斯大区萨瓦省滑雪时与另一名滑雪者相撞，受了重伤，被直升机送往格勒诺布尔的大学医院后去世，年仅37岁。事故是否与疫苗副作用发作有关？不详。
 
-中共以强权和武力打击香港，但是香港人至今还在抗争。自由民主在香港一百年，成就了香港举世瞩目的辉煌。香港曾经拥有的民主自由已经不复存在，香港在世贸的地位也可能被剥夺。如果世界继续充当中共的帮凶，世界的未来也会面临和香港同样的命运。中共想把谁踢出去就把谁踢出去，没有任何国际规则可以约束中共，整个世界都会被中共踩在脚下。欧盟应该认真对待香港问题。
+信息来源：[ギャスパー・ウリエル、スキー事故により37歳で死去。映画人やフランス首相も追悼（MOVIE WALKER PRESS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/138265d8cabd229755742f6565c358f0244dfe4f)
 
-新闻参考链接：[https://www.voachinese.com/a/EU-parliament-passes-new-resolution-urging-for-review-of-support-for-Hong-Kong-s-seat-at-world-trade-organization-20220121/6406805.html](https://www.voachinese.com/a/EU-parliament-passes-new-resolution-urging-for-review-of-support-for-Hong-Kong-s-seat-at-world-trade-organization-20220121/6406805.html)
+1月21日，Facebook上发表声明，美国摇滚歌手和演员Meat Loaf去世，享年74岁。只有夜间死在他妻子的身边的描述，死因尚未披露。但一些美国媒体称，该病人感染了中共病毒（新冠病毒Covid-19），而且是重症。是否接种了疫苗了呢？
 
-* * *
+信息来源：[ミートローフ氏死去（米ロック歌手・俳優）（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ae086e12d03fc655f68acd6a2672ee606f2e4474)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1月21日，诗人柳原白莲的长女、唐卡社团（日语叫短歌社团）和日中交流的民间组织滔天社负责人、曾经的山村插花学校荣誉插花师、《女儿的白莲花的故事》一书的作者，宫崎蕗苳女士因失用症在东京的一家医院去世，终年96岁。没有是否接种过疫苗相关报道。
 
+信息来源：[宮崎蕗苳さん死去　短歌結社主宰（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1dbc7691e3d84b7f86f2d1e532525e455fa6da54)
 
-编辑：【英国伦敦喜庄园编辑部】
+以上仅仅是其中几个例子而已。短短几天，如此密集的名人死亡，那些不可能被报道的普通人的死亡又会有多少呢？如此世界大流行的病毒，如此被多国政府强制接种的疫苗，难道医学界、病毒感染学界等等，都不需要这样的信息吗？要根据什么来判断疫苗造成的死亡率到底有多大呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  
