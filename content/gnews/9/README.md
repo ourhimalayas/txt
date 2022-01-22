@@ -2,37 +2,26 @@
 ---
 
 
-## 有声|诺奖得主称，未接种疫苗的人将拯救人类
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894519/)
+## 1月21日木兰联盟答疑G系列相关信息文字版
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1894668/)
 
-配音：香草山农场 – 纳米
+G-听写：鲁西西
 
+1、现在还能报名投资数字银行吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日，诺贝尔奖得主，法国著名病毒学家吕克.蒙塔尼耶，在意大利当地的反中共病毒疫苗集会中公开表示，未接种中共病毒疫苗的人，将挽救人类并结束这场病毒危机。
+答：现在总部基金满了，可以报名联盟基金。私信我或长岛哥领取表格链接。
 
-蒙塔尼耶于2008年获得诺贝尔生理学、医学奖，是世界艾滋病研究与防治基金会主席，也艾滋病病毒的发现者之一。
+2、关于G1、G2何时能退款？
 
-蒙塔尼耶此前曾表示，大规模接种疫苗是不可接受的错误，疫苗根本没有保护作用，而且一些科学家和患者也发现，接种疫苗的人更有可能感染病毒。
+答：都在SEC的监管之下，要等SEC公布退款细则。
 
-文字版原文：[诺奖得主称，未接种疫苗的人将拯救人类](https://gnews.org/zh-hans/1888011/)
+G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+语音链接：[https://mega.nz/file/JXJm0DZA#nJB1NiJLA\_FNGbBHGthC5\_tsUCJMtak01Hn3Vu9D6Ks](https://mega.nz/file/JXJm0DZA#nJB1NiJLA_FNGbBHGthC5_tsUCJMtak01Hn3Vu9D6Ks)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+审核：夏目&山竹
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：夏目&山竹
 
  
 

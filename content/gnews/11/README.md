@@ -2,28 +2,41 @@
 ---
 
 
-## 荷兰光刻机巨头阿斯麦（ASML）2021年收入和净利润大幅增长，却意外调低2022年销售额预期增速降至20%，文贵先生爆料ASML将停止向中共国供应光刻机
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1894486/)
+## 美国停飞中国航司44个航班
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894653/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220122-1.png)[图片来源](http://www.asml.com)：ASML官方网站截图
-阿斯麦(ASML)2022年1月19日在官网发布了2021年四季度和全年业绩快报，2021年ASML销售额为186亿欧元、年增长率约为33%，净利润59亿欧元、年增长率为65.5%。但令人觉得意外的是，在全球缺芯片的良好势头下，却意外调低2022年的销售增长预期至20%，即2022年预计销售额约为223亿欧元。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-对于一家上市公司来说，调低增速对于股东、投资人和股价来说，都不是一个好消息，何故ASML要大幅度调低销售收入增长率？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q4-presentation-ftyjlo_Page_01.jpg)图片来源：ASML2021年第四季度和2021年度财务数据公开报告
-根据2022年1月21日文贵大直播爆料，阿斯麦（ASML）会停止对中共国供应光刻机，似乎刚好解释了为什么ASML大幅调低销售收入的增长率。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-5.png)
 
-根据ASML公开的财务报告数据，2020年ASML的总销售额为139.8亿欧元，在中共国销售收入占比为16.63%，大约是23.25亿欧元。按照2020年度数据测算，倘若ASML停止对中共国供应光刻机，ASML至少会损失23亿欧元的订单，这正好解释了销售收入调低的预期。如果按照30%增长率计算，2022年预计销售额预计值应该在242亿欧元左右，但目前ASML把预期销售额调低为约223亿欧元，非常有可能是把中共国至少23亿订单的预期排除在外。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/各国收入占比.jpg)
-（本文仅代表作者个人观点）
 
-By 【秘密翻译组-金融组】
-作者：Apple
 
-参考链接：
+图片来源：雅典娜设计组
 
-[https://gtv.org/video/id=61eaab2f533c672fca804729](https://gtv.org/video/id=61eaab2f533c672fca804729)
 
-[https://www.asml.com/en/investors/financial-results/q4-2021?icmp=button-Q4-2021-financial-results](https://www.asml.com/en/investors/financial-results/q4-2021?icmp=button-Q4-2021-financial-results)
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+
+据21世纪经济报道：美国时间1月21日，美国交通部发出通知，将暂停四家中国航空公司从美国飞往中国的44个航班，原因是中方借口一些乘客的新冠病毒检测呈阳性，暂停了美国联合航空公司、美国航空公司和达美航空公司的44个航班。
+
+美国交通部的这一决定，将影响厦门航空、中国国航、中国南方航空和中国东方航空的1月到3月的部分航班。受影响最深的是东航和厦航，分别有16和13个航班被停飞。
+
+1月15日之后，中国民航局又发了多份熔断令，共实施熔断措施28次，熔断航班70班。其中包括美国航空的两个航班，达美航空4个航班，美联航10个航班。
+
+美国交通部称，如果中国取消更多航班，“我们保留采取进一步行动的权利。”
+
+由于近期多个美国回国航班因为被熔断而停飞，其中包括3家美国航司的44个航班。 美国交通部当地时间周五发布通告，由中国的航司运营的44个美中航班也将被取消。
+
+参考链接：[https://c.m.163.com/news/a/GUABI01605199NPP.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GUABI01605199NPP.html?spss=today-news-hotrank)
+
+*发布：*星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

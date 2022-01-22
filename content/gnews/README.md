@@ -15,136 +15,136 @@
 
 ---
 
-### [01/22/22 香港快讯 葵涌村2700人居家隔离 至少70宗初步确诊](/content/gnews/1/README.md)
- ` 英喜-粵語組`
+### [1/21/2022 文贵直播：新中国联邦为什么要和世界签千年和平协议？](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [有声|一周中共病毒及疫苗伤害信息汇总](/content/gnews/2/README.md)
- ` MOSREC`
+### [LANCET论文：7名注射3针中共病毒疫苗的德国人全部感染](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
 
-### [县长大人的“恶意返乡”论](/content/gnews/3/README.md)
- ` 澳喜特战旅Gnews`
-
-### [中共加强掌控香港教育大学不承认学生会地位](/content/gnews/4/README.md)
- ` GTV News Talk`
-
-### [樱花数据分析│加拿大：两针接种者更易感染奥密克戎毒株](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [接种疫苗后的可怕后遗症](/content/gnews/6/README.md)
- ` GTV News Talk`
-
-### [1.21大直播后记：冬奥会是灭共的天机](/content/gnews/7/README.md)
+### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|FBI和辉瑞联手阻挠记者调查疫苗真相](/content/gnews/8/README.md)
- ` MOSREC`
+### [独家: 阻止联邦政府与北京冬奥会赞助商签订合同的立法正被“沼泽地”挫败](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|诺奖得主称，未接种疫苗的人将拯救人类](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [有声|捷克取消疫苗强制计划](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [荷兰光刻机巨头阿斯麦（ASML）2021年收入和净利润大幅增长，却意外调低2022年销售额预期增速降至20%，文贵先生爆料ASML将停止向中共国供应光刻机](/content/gnews/11/README.md)
- ` 秘密翻译组金融团队`
-
-### [福奇拒绝为污蔑备受尊敬的流行病学家而道歉](/content/gnews/12/README.md)
+### [奥密克戎席卷澳洲，精酿啤酒厂面临供应链危机](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【玫瑰看新闻】每日快讯 2022年1月17日（新西兰时间）](/content/gnews/13/README.md)
- ` 【🌹玫瑰新闻】`
+### [1/21/2022 文贵直播：中共行贿各国元首是以国家的名义伤害中国人](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
 
-### [谈谈看到七哥童年照片时的感想](/content/gnews/14/README.md)
- ` 纽约香草山MOS03`
+### [习听闻欧盟多国将同时关闭住中使馆后大怒上海帮](/content/gnews/7/README.md)
+ ` GTV News Talk`
 
-### [1/22/2022国际财经快讯：美国暂停中国航空公司44个美国航班；耶伦称普及学前教育和收入税收抵免是核心](/content/gnews/15/README.md)
- ` 秘密翻译组金融团队`
+### [安省“弱势群体”在觉醒](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [春节百姓返乡 中共无能懒政一刀切](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [1月21日木兰联盟答疑G系列相关信息文字版](/content/gnews/9/README.md)
+ ` 全球G系列咨服群`
 
-### [匿在英国的中共国间谍](/content/gnews/17/README.md)
- ` 焦點20分`
+### [2021年中共国减少了500万育龄妇女](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美建议冬奥选手：别带个人手机 担忧中共国监视](/content/gnews/18/README.md)
- ` 焦點20分`
+### [美国停飞中国航司44个航班](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [DC每日热点0122](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [网球头号选手科维奇 有一位勇敢发声的母亲](/content/gnews/20/README.md)
- ` 焦點20分`
-
-### [奥地利打倒纸牌屋](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/22/README.md)
- ` 首尔天池农场`
-
-### [历史的今天2021.01.22](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [达沃斯是黑暗的力量](/content/gnews/24/README.md)
- ` 波士顿五月花农场`
-
-### [北京冬奥之火水下传递暗藏风水玄机](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [信仰之路](/content/gnews/26/README.md)
- ` 纽约香草山MOS03`
-
-### [邪恶沼泽地的一部分 共产党放毒注定灭亡](/content/gnews/27/README.md)
- ` 波士顿五月花农场`
-
-### [如今社会主义比恐怖主义威胁更大](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [卢森堡-金融界的梵蒂冈 相信病毒是中共制造的生化武器](/content/gnews/29/README.md)
- ` 波士顿五月花农场`
-
-### [中共三十年撒币千亿美元渗透中亚五国](/content/gnews/30/README.md)
- ` 日本东京方舟农场`
-
-### [文贵直播大事记——人物篇（一）：让世界不安全的国安王毅](/content/gnews/31/README.md)
- ` GNotes真.贵.记.录`
-
-### [本田与美国企业签订共同开发合同，&#8221;锂金属二次电池&#8221;到底是什么？](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [印太空军将领举行在线会议 台湾空军司令军服与会](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [班农先生谈天安门事件，谈科罗拉多一位勇敢的母亲](/content/gnews/34/README.md)
+### [《共产党的股票市场绝不是金融市场》](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [中共脖子上的绞索正在不断的勒紧](/content/gnews/35/README.md)
+### [01/22/22 香港快讯 葵涌村2700人居家隔离 至少70宗初步确诊](/content/gnews/13/README.md)
+ ` 英喜-粵語組`
+
+### [有声|一周中共病毒及疫苗伤害信息汇总](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [县长大人的“恶意返乡”论](/content/gnews/15/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中共加强掌控香港教育大学不承认学生会地位](/content/gnews/16/README.md)
+ ` GTV News Talk`
+
+### [有声|美国多所大学反对疫苗加强针](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [樱花数据分析│加拿大：两针接种者更易感染奥密克戎毒株](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾入境检验显示近93%是突破性感染](/content/gnews/36/README.md)
- ` GTV新闻访谈`
+### [接种疫苗后的可怕后遗症](/content/gnews/19/README.md)
+ ` GTV News Talk`
 
-### [美媒抨击强制疫苗令危害远胜切尔诺贝利](/content/gnews/37/README.md)
- ` GTV新闻访谈`
-
-### [欧盟报告由疫苗引起的副作用超90万例](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [随着冬奥会的临近，北京将维持COVID紧急状态](/content/gnews/39/README.md)
- ` Shuizhuyu`
-
-### [从印度政府和个人起诉比尔盖茨 来看中共反人类组织的荒谬和非法](/content/gnews/40/README.md)
- ` chongerfei777`
-
-### [有“恶意返乡”就或有“恶意参赛” 中共的冬奥会你还敢来吗](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [春节防疫层层加码 部分返乡人员被“误伤”](/content/gnews/42/README.md)
+### [1.21大直播后记：冬奥会是灭共的天机](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日美线上首脑峰会新设经济版“2+2”另有深意](/content/gnews/43/README.md)
+### [有声|FBI和辉瑞联手阻挠记者调查疫苗真相](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [有声|诺奖得主称，未接种疫苗的人将拯救人类](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|捷克取消疫苗强制计划](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [荷兰光刻机巨头阿斯麦（ASML）2021年收入和净利润大幅增长，却意外调低2022年销售额预期增速降至20%，文贵先生爆料ASML将停止向中共国供应光刻机](/content/gnews/24/README.md)
+ ` 秘密翻译组金融团队`
+
+### [福奇拒绝为污蔑备受尊敬的流行病学家而道歉](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【玫瑰看新闻】每日快讯 2022年1月17日（新西兰时间）](/content/gnews/26/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [1/22/2022国际财经快讯：美国暂停中国航空公司44个美国航班；耶伦称普及学前教育和收入税收抵免是核心](/content/gnews/27/README.md)
+ ` 秘密翻译组金融团队`
+
+### [春节百姓返乡 中共无能懒政一刀切](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [充满艺术色彩的“福岛之冬”：冰封湖畔的树木和朝霞染红的磐梯山](/content/gnews/44/README.md)
+### [DC每日热点0122](/content/gnews/29/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/30/README.md)
+ ` 首尔天池农场`
+
+### [历史的今天2021.01.22](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [北京冬奥之火水下传递暗藏风水玄机](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [信仰之路](/content/gnews/33/README.md)
+ ` 纽约香草山MOS03`
+
+### [中共三十年撒币千亿美元渗透中亚五国](/content/gnews/34/README.md)
+ ` 日本东京方舟农场`
+
+### [文贵直播大事记——人物篇（一）：让世界不安全的国安王毅](/content/gnews/35/README.md)
+ ` GNotes真.贵.记.录`
+
+### [本田与美国企业签订共同开发合同，&#8221;锂金属二次电池&#8221;到底是什么？](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印太空军将领举行在线会议 台湾空军司令军服与会](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共脖子上的绞索正在不断的勒紧](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾入境检验显示近93%是突破性感染](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [美媒抨击强制疫苗令危害远胜切尔诺贝利](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [欧盟报告由疫苗引起的副作用超90万例](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [从印度政府和个人起诉比尔盖茨 来看中共反人类组织的荒谬和非法](/content/gnews/42/README.md)
+ ` chongerfei777`
+
+### [有“恶意返乡”就或有“恶意参赛” 中共的冬奥会你还敢来吗](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日美线上首脑峰会新设经济版“2+2”另有深意](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [新冠移动记录揭示出中国农民工的艰苦生活](/content/gnews/45/README.md)

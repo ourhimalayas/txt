@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 4:18 PM (UTC)`
+
+1/21/2022 Miles Guo: The Declaration of the New Federal State of China indicates that what we value and pursue are consistent with that of the Western society. The CCP’s turning the Winter Olympics into the games for only a few people is an insult to the Olympics spirit. I wisely convinced the athletes not to attend the Winter Olympics by using the videos of the dogs being caught in Beijing.<br/><br/>1/21/2022 文贵直播: 《新中国联邦宣言》体现出我们的价值和追求跟西方社会是一致的；中共把奥运会变成极少数人的运动会是对奥林匹克精神的亵渎；文贵机智地用北京抓狗的视频说服了运动员不参加冬奥会<br/>
+![img](https://media.gettr.com/group28/getter/2022/01/22/16/29d447a8-d549-991e-c71d-3621ba37c410/out.jpg)
+
+---
+
 `@miles 1/22/2022 4:05 PM (UTC)`
 
 1/21/2022 Miles Guo: The CCP is doomed, facing the diplomatic decoupling, technological decoupling, gloomy Winter Olympics, and the global investigation into the origin of the CCP virus. The CCP is commemorating Deng Xiaoping’s Southern Trip Speech in the hope of applying the emergency brake to sustain the regime, indicating the fierceness of the political infighting in the CCP. Only the one-person-one-vote election can save China! The Declaration of the New Federal State of China can resolve all the problems in China!<br/><br/>1/21/2022 文贵直播: 中共已穷途末路 - 面临外交脱钩、科技脱钩、冬奥会惨淡收场和全世界展开病毒溯源；中共纪念邓小平南巡讲话寄希望踩急刹车以续命， 突显中共激烈内斗！只有一人一票才能救中国！《新中国联邦宣言》能解决中国的所有问题！<br/>
@@ -146,13 +153,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/20/2022 Miles Guo’s GETTR: Some fellow Chinese are saying that they love the CCP, but does the CCP love them? The CCP has spent trillions of RMB only to have Russia and other several small countries show up for the Winter Olympics. The livelihood of the Chinese Lao Baixing is getting worse and worse, with more and more people getting sick. Yet, good doctors are not available for them, and they couldn’t even afford the healthcare. How pathetic it is!<br/><br/>1/20/2022 文贵盖特：国内同胞说爱党，但党爱你吗？为了让俄罗斯和几个小国来给冬奥会捧场，中共挥霍了几万亿！老百姓的生活却越来越差、病越来越多，还找不到好医生、看不起病，悲哀啊！<br/>
 ![img](https://media.gettr.com/group31/getter/2022/01/21/00/0a69b3e2-d865-9b64-b454-aa58038be224/out.jpg)
-
----
-
-`@miles 1/21/2022 12:02 AM (UTC)`
-
-1/20/2022 Miles Guo’s GETTR: Yesterday was the beginning of the new era of the Whistleblowers’ Movement. While we are spreading the truths about the CCP virus and the COVID vaccine disaster, we are voicing to the world that the CCP does not equal the Chinese people and that the Chinese are the biggest victims of the CCP so that the world can clearly see what communism is.<br/><br/>1/20/2022 文贵盖特：昨天开启了爆料革命新时代，我们在传播病毒和疫苗灾难信息的同时，也向世界发出中共不等于中国人、中国人是最大的受害者这样的声音，让世界看清什么是共产主义！<br/>
-![img](https://media.gettr.com/group35/getter/2022/01/21/00/a45a0371-7eb7-dfbe-c0f1-623957f15c4c/out.jpg)
 
 ---
 

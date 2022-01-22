@@ -2,32 +2,32 @@
 ---
 
 
-## 1.21大直播后记：冬奥会是灭共的天机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894548/)
+## 习听闻欧盟多国将同时关闭住中使馆后大怒上海帮
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894674/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2021122-1280x720.jpg)
+撰稿：纽约香草山农场福音部-恩永存
+
+2022年1月21日，据郭先生在大直播中透露，昨天下午，欧盟多国将同时关闭所有住中国的大使馆，而且是永久关闭。习听说这一消息后大怒，突然觉得上海帮玩弄了他。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-34.jpg)
+郭先生以为，如果欧盟开始关闭住中使馆，美国一定跟着，美国的同盟也会跟着。这一刻如果发生，就预示着政治经济双脱钩，意味着中共开始倒计时。郭先生以前苏联为例，说其解体前，欧洲几大国就先与其断交，世界多国就跟着断交。中共走到今天是因他们对多国使用假、骗、偷，在世界放出黄、金、毒。
+
+郭先生认为，多国与中共断交，是新中国联帮的实力所致，这些与中共断交的国家，必找一个代表中国人的机构，新中国联帮就是唯一的选择。这些与中共经济脱钩的国家，他们的钱只有一个好去处，那就是喜联储。
+
+参考链接：[https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
 
 
-图片设计：0-0
+总编：Irene木木
+校正/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
-**整理：雅典娜速记组 
-编辑：Rianna**
-
-为了冬奥会的清零，习近平犯了三个大错误：第一，宣布成功太早；第二，清零决定，自杀行为。这是违背常理的。包括他这次想通过清零，以及大面积的封城，还想给西方人证明这个病毒不是来自我这儿的病毒，我们也控制不了。外国人一来，就开始关飞机，停航线，这是想干啥？就跟路大脑袋（王定刚）、蛇妖闫（闫丽梦）一样，他没办法向大家交代；第三，做伪经济，共产党冬奥会清零封城，谁能活下去了？看看天津，天津到什么程度？ 房子没有热气，没有饭吃，网上很多发信息，你们看看很多都被屏蔽掉了。说谁要能给我弄点儿方便面，我完全陪睡，最后发现还没人理，又发信息看看我长的咋样，从发脸部到发胸部。在国内、在天津，最起码发生不低于十万起这样卖身求方便面的事件。 有的家里养的宠物，把兔子杀了吃，大家看到吗？屏蔽到了疯狂。这样的一个封城的经济结果是什么？谁还能出去打工？ 在湖南更是出现了惨绝人寰的现象。 大企业还能在中国么？全都撤了。 黑龙江、吉林、辽宁，各地方的外资企业都在撤，美资外资都撤。 这三招决定了冬奥会绝对是老天赐给我们的礼物，是共产党的噩梦。
-
-奥运会成就了郭文贵最牛的人生和辉煌的时刻，就在2008北京奥运会，郭先生独享天下，他在那时候积累的政治财富和经济财富，天下无人能比，甭说中共国了，全世界没人能比。全世界的精英围绕在郭文贵身边，又赚钱又赚名，还赚机会，郭文贵玩奥运时，习近平算什么，共产党算什么，冬奥会比他习近平玩得更厉害，郭先生跟冬奥会真有关系。 有一天你们知道的时候，绝对让你震惊。这种操作，绝对是一人打一国的这种超级范儿。 拍电影都拍不出来郭文贵这实际的攻击力，新中国联邦未来历史上最核心之一，未来有人拍电影的时候，冬奥会这帮人都不敢去了。你们看到G系列，现在还不能说，说了就破功，现在还是咱得保持着这个童子功。 老天在帮我们，如果郭文贵没有经历过2008的奥运会，从1999年到现在，怎么有能力有智慧有本事干掉北京冬奥？干掉北京冬奥会光有钱、光有脑子、光有钱权力是不行的，得懂这个人际关系。哪个奥林匹克官员跟郭先生没有关系？怎么知道他在盘古睡觉的时候是不是玩小姑娘，郭文贵有没有给他录点小视频呢？共产党他会玩的咱也会玩，对坏人用的招咱都会用。 冬奥会，我最担心他去年说“我不开了”，这完了，这是老天给我们灭工的天机呀。
-
-资料来源：郭先生GTV和盖特直播视频。
-
-**发布：星谕**
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

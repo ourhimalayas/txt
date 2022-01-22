@@ -2,39 +2,50 @@
 ---
 
 
-## 有声|一周中共病毒及疫苗伤害信息汇总
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894631/)
+## LANCET论文：7名注射3针中共病毒疫苗的德国人全部感染
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1894756/)
 
-配音：香草山农场 – 纳米
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+注射实验性的中共病毒疫苗不能预防感染！[THE LANCET](https://www.thelancet.com/)本月18日发表的论文提到的7名到南非的德国游客，在注射3针COVID-19病毒疫苗后22~59天内全部感染中共病毒的omicron变种版本就是很好的例子。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccine-COVID-19.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月11日至18日，除中共国外，全球新增确诊中共病毒2052万余例，同比上周增长百分之12.7，增长率较上周下降了34个百分点；本周新增确诊死亡病例49653例，同比上周增长了百分之9.65.  截止1月18日，全球除中共国累计接种69.4亿剂中共病毒疫苗，同比上周增长百分之2.51；疫苗接种的增长率较下降了0.54个百分点。
+本文摘自南非Stellenbosch大学医学与健康科学学院医学病毒学部（Division of Medical Virology Faculty of Medicine and Health Sciences University of Stellenbosch）和南非开普敦Tygerberg校区（Tygerberg Campus, Cape Town, South Africa）国家卫生服务实验室(National Health Laboratory Service，NHLS) Constanze Kuhlmann、Wolfgang Preiser等人于2022年1月18日发表在《柳叶刀》（[THE LANCET](https://www.thelancet.com/)）上的论文[Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2822%2900090-3/fulltext)中的案例。
 
-本周，美国疫苗政策出现重大转向——1月14日美国最高法院以6比3的投票结果，终止美国联邦政府针对私人企业的疫苗政策。基于最高法院的判决，美国通用电气等大型公司随即取消了对员工的强制疫苗要求。英国也宣布松绑疫苗政策，并将终止疫苗护照等工作限制。英国首相鲍里斯·约翰逊也在18日表示，将提前一周，即从下周开始放缓英格兰地区现存的大部分病毒限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Lancet.jpeg)
 
-另据以色列最新研究显示，接种了辉瑞或莫德纳的第四针疫苗的医护人员，仍然出现了病毒感染，疫苗的免疫保护形同虚设。国际顶级临床医学杂志《柳叶刀》也在上周发表了来自南非的一项研究，结果显示，基于mRNA平台的疫苗加强针对Omicron毒株无效。
+7名注射了中共病毒疫苗加强针（3 doses）的德国游客，先后在2021年11月30日至12月2日期间，感染中共病毒的omicron变种版本 (PANGO lineage B.1.1.529, Nextstrain clade 21K)。
 
-同样在本周，美国国家过敏症和传染病研究所负责人安东尼·福奇，在2020年的个人财务状况被曝光, 福奇在2020年共有一千多万美金的投资, 包括Matthews Pacific Tiger Fund基金的投资, 值得注意的是，中共是这项基金的主要投资人。
+这7人是德国两个不相关社会团体的成员，包含5名白人女性和2名白人男性，年龄在25~39岁之间。由于都是从事医学相关职业，因此都注射了3针中共病毒疫苗。在感染omicron病毒以前，均无SARS-CoV-2病毒感染史。
 
-文字版原文：[一周中共病毒及疫苗伤害信息汇总](https://gnews.org/zh-hans/1888055/)
+其中，3名女性和2名男性注射的三针疫苗全部为BioNTech的BNT162b2疫苗，1名27岁的女子前2针注射的是BioNTech BNT162b2疫苗，第三针是Moderna的CX-024414疫苗，另1名27岁的女子第1针注射的是AstraZeneca的ChAdOx1-S疫苗。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+在注射加强针后，这7人都具有与接种第2针疫苗4周后相似的病毒刺突蛋白结合抗体（viral spike protein binding antibodies）水平。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Basic-demographic-data-vaccination-history-and-laboratory-findings.jpg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+在感染中共病毒omicron变种版本后，胸闷（Chest pressure）、干咳（Dry cough）、疲劳（Fatigue）、头痛（Headache）、鼻炎（Rhinitis）、窦压（Sinus pressure）和咽喉痛（Sore throat）是最多的症状。尤其咽喉痛、疲劳、头痛、干咳非常常见，干咳和疲劳几乎一直存在。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Clinical-symptoms-during-the-observation-period.jpg)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+这7位中，有4人属于轻度COVID-19症状，3人属于中度（呼吸急促，shortness of breath）COVID-19症状，血氧水平（Blood oxygenation levels (SPO2)）&gt;94%，属于正常范围内，没有人住院或死亡。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+每毫升RNA拭子（swab eluate）病毒RNA载量log10值为4·07~8·22，平均值5.83为。血清（serum）内防突刺蛋白抗体（Anti-spike antibody）水平为15,000~40,000 AU/mL(毫升)，平均值为22,000 AU/mL。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+所有人都是在注射第二针疫苗后21–37周内注射第3针疫苗（加强针），在注射完加强针后22~59内被感染。
+
+试验性的中共病毒疫苗不能预防中共病毒！
+
+参考数据：
+
+[Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://doi.org/10.1016/S0140-6736%2822%2900090-3)
+
+[Correspondence：Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/action/showPdf?pii=S0140-6736%2822%2900090-3)
+
+[Supplementary Material：Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/cms/10.1016/S0140-6736%2822%2900090-3/attachment/ee482364-eb89-448a-9b5a-754decfcb729/mmc1.pdf)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

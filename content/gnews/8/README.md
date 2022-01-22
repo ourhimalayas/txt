@@ -2,35 +2,28 @@
 ---
 
 
-## 有声|FBI和辉瑞联手阻挠记者调查疫苗真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894530/)
+## 安省“弱势群体”在觉醒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1894673/)
 
-配音：香草山农场 – 纳米
+by:温哥华圆成农场
 
+翻译：追郭大姨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-140.png)
+据**ICES**数据显示，安省只有**22%**的孕妇和**10%**年龄在**65**岁以下的无家可归者接受了“第三针”的注射。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据司法观察1月18日消息，联邦调查局FBI和辉瑞制药联手，企图阻扰非营利性调查性新闻组织-“真相工程”记者调查疫苗真相。
+于是“专家”们出来警告和呼吁：“要更加努力的工作，好让这些高危的弱势群体更多的接受第三针，以抵挡来式凶猛的**Omicron**”。
 
-此前，真相工程发布了针对辉瑞制药的一系列卧底视频。在答复信息自由法案（FOIA）请求时，联邦调查局（FBI）告诉司法观察，在针对真相工程的调查档案中，有联邦调查局与辉瑞公司的通信记录。但在1月6日，联邦调查局却拒绝披露所有关于联邦调查局官员与辉瑞公司之间、关于真相工程来往通信的请求。
+**评论：**在媒体和所谓“专家”的推波助澜下，“第三针”快速席卷了整个安省。骗人的把戏上演了一次，又一次，现在又要上演第三次！第四次可能在路上了！而且每一次他们鬼把戏的上演都有堂而皇之的理由。这次他们打着“保护弱势群体”的旗号，让本不该被定义为“高危人群”的孕妇和无家可归者打第三针。试问要有多少一尸两命的人间惨剧发生，这些媒体和专家们才会良心发现？不！也许他们永远都不会发现，因为原本他们就是魔！
 
-文字版原文：[FBI和辉瑞联手阻挠记者调查疫苗真相](https://gnews.org/zh-hans/1888057/)
+今天的世界是多么的扭曲和悖谬，完全掌握在邪恶者的手里！只有我们新中国联邦给这黑暗的世界带来一缕阳光！我们双手合十向我们的神祷告：愿普天下善良的人们快快醒来！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+新闻链接：[High-risk Ontarians lagging on third doses of COVID vaccine | The Star](https://www.thestar.com/news/gta/2022/01/21/high-risk-ontarians-lagging-on-third-doses-of-covid-vaccine.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：LILY
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+发布：面包飞上天
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+20220121
 
  
 

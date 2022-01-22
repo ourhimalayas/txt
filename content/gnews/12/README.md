@@ -2,21 +2,19 @@
 ---
 
 
-## 福奇拒绝为污蔑备受尊敬的流行病学家而道歉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894453/)
+## 《共产党的股票市场绝不是金融市场》
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1894652/)
 
-##### 翻译：Frank
-校对：精靈藍
-剪辑|字幕：Biggod
-编辑：Mttfly
+###### **整理：雅典娜速记组**
+**编辑：请你喝可乐**
 
-斯坦福大学医学教授Bhattacharya博士在接受福克斯采访时称，福奇是国家过敏性传染病研究所的负责人，几乎每一个著名的传染病流行病学家和病毒学家都从他那里得到工资。福奇控制了整个科学界的声音并让人们不断打加强针。Bhattacharya博士呼吁，福奇已经造成了太多伤害，应该让福奇退休了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/《共产党的股票市场绝不是金融市场》-.jpg)
 
-视频链接：[Fauci refuses to apologize for smearing highly respected epidemiologists](https://video.foxnews.com/v/6291380964001#sp=show-clips)
+咱们今天看这个共产党的这个股票 市场，多少人把一生的积蓄投到股 票市场，结局可悲可哀可恨。 共产党的股票市场就是赌场，他没 规则！不透明！不受监管！唯一的 一个股东，就是共产党。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
+*发布：请你喝可乐*
+
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

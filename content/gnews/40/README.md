@@ -2,27 +2,37 @@
 ---
 
 
-## 从印度政府和个人起诉比尔盖茨 来看中共反人类组织的荒谬和非法
-` chongerfei777` [轉載自GNews](https://gnews.org/zh-hans/1894076/)
+## 美媒抨击强制疫苗令危害远胜切尔诺贝利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894157/)
 
-作者：Aiolis
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-22-194849.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.38.50-PM.png)
 
-图片来自网络
+据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
 
-从文贵先生开启爆料革命以来，无数次揭露中共的假和黑，反人类性质，并在中共病毒肆虐世界的大环境下，在被威胁中勇敢地在直播中告诉世界：「不要打疫苗，疫苗的mRNA就是病毒」，目前疫苗造成的伤害远远高于病毒本身，而且未来十年甚至更久的时间都会出现严重副作用甚至导致死亡的后果。
+该媒体还提到，美国政府在应对该生物武器引发的疫情时，竟然推出了一种危险的、具有快速跟踪功能的mRNA刺突蛋白“疫苗”。值得注意的是，这种所谓的“疫苗”其实是一种破坏血管和神经系统的工程基因疗法，但美国政府正在试图将其强加给全美民众。数据表明，全美因中共病毒疫苗死亡的人数已超过了80万，而这一数据还在不断攀升。
 
-事件的主人公Kiran Yadav在2021年年底的时候递交了一份诉状，关于她23岁的儿子在打了阿斯利康疫苗后死亡，因此她起诉比尔盖茨，印度的疫苗沙皇阿达尔·普奥纳瓦拉、印度政府和公共卫生官员。她的儿子在去年9月接种疫苗，29日当天死于疫苗副作用。
+该媒体最后列举到，前苏共政府在上世纪80年代因官僚腐败和掩盖真相导致了切尔诺贝利核灾难的发生，彼时有数千人丧生于灾难之中，而联邦政府目前推行的强制疫苗令已经并且将继续造成比切尔诺贝利更恐怖的灾难。
 
-她在起诉文件中强调公职人员帮助黑恶势力的大药企，面对「疫苗大屠杀」不作为，他们撒下弥天大谎，宣称疫苗完全安全，限制交通和购物，造成对未接种疫苗公民的政策歧视。警察局长、印度中央调查局局长以及卫生福利部首席秘书。同时对比尔盖茨和印度血清研究所提出指控，因为该研究所是全球最大的疫苗制造商，按生产和销售剂量计算。这样的起诉，在中共国能发生吗？中共就是土匪，他是反人类组织，腾讯公司在南山法院打官司从来没输过，为什么？文贵先生在中共国，因为中共找不到任何合法的理由，就以各种栽赃嫁祸，暴力手段侮辱和威胁的方式对郭先生下面的员工，包括非法剥夺资产，在中共国的「党和国家领导人」你网上说一句不是，都要被派出所轻则拘留写保证书，重则判刑和肉体消失甚至株连屠城。
+参考链接：[The vaccine holocaust is America’s CHERNOBYL… but USA leaders are committing even MORE deaths and deeper EVIL than former Soviet Union officials](https://newstarget.com/2022-01-20-the-vaccine-holocaust-is-americas-chernobyl.html)
 
-在中共国比尔盖茨一直被宣传为正面形象，就像人类历史最大的屠夫「毛太阳」，比尔盖茨和武汉生化实验室以及福奇的关系，中共心知肚明。中共把反人类的变态塑造成伟光正的英雄人物，践踏一切法律，党最大，一切党说了算，背后就是中南坑老杂毛们，不仅盗取14亿国人财富，还奴役他们进行非法残暴统治，并祸害着全世界，要为其生殖器乱国的后代们挥霍和延续红色江山，其行为已经天怒人怨。新中国联邦在未来必将让他们接受审判，他们过去践踏的法律，践踏的奴隶，最终都是要制裁他们的抓手和天意！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-[参考链接](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
+编辑：Kathy文艺 
+总编：童谣
+校正/发稿：我不在这里
 
-*审阅：丘杰斯
-发稿：Hong*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
