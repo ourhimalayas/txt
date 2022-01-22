@@ -2,30 +2,38 @@
 ---
 
 
-## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
+## 中共中央对郑州7•20特大暴雨灾害事件时任书记立案审查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893429/)
 
-**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-
-Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642842208489.jpg)图片来源：雅典娜设计组
 
 
-据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
-本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+据网易新闻报道：日前，中共国国务院常务会议听取了河南郑州“7·20”特大暴雨灾害调查情况的汇报，并审议通过了河南郑州“7·20”特大暴雨灾害调查报告。
 
-台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
-台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
-来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
+国务院调查组对“7·20”特大暴雨灾害造成重大伤亡和社会关注的事件进行了深入调查。
+
+针对事件追责，经中共中央批准，中央纪委对河南省委原常委、郑州市委书记徐立毅在河南郑州“7·20”特大暴雨灾害中违纪问题进行了立案审查。
+
+经查，徐立毅对河南郑州“7·20”特大暴雨灾害风险认识不足、警惕性不高、防范组织不力，灾害发生后统筹领导和应急处置不当，督导检查和履职尽责不到位，造成严重后果和不良影响。徐立毅对暴雨灾害的相关问题，负有重要领导责任，应予严肃问责。
+
+依据《中国共产党问责条例》、《中国共产党纪律处分条例》、《中华人民共和国监察法》和《中华人民共和国公职人员政务处分法》等有关规定，经中共中央批准，决定给予徐立毅党内严重警告处分，由国家监委给予其政务降级处分。
+
+参考链接：
+[https://c.m.163.com/news/a/GU93FB3F0514FGV8.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GU93FB3F0514FGV8.html?spss=today-news-hotrank)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

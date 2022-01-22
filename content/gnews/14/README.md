@@ -2,24 +2,23 @@
 ---
 
 
-## 疫情新闻全球最新速报（1月18日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893882/)
+## 当中国人有法治民主自由的时候
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893906/)
 
-撰稿：东京樱花团/NewSGman
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/当中国人有法治民主自由的时候-scaled.jpg)
+当中国人有自由、民主、法治的时候，有宗教自由的时候，有财产所有权的时候，他们会变得更加繁荣，所以这就是法治基金、法治社会在做的非常重要的事情，就是让人民变得更加繁荣。在法治社会里，你看不在中共控制之内的其他中国人，这些中国人到了西方，比如说到了美国，竞争很激烈，但机会是有的，因为是法治的社会，你看到华裔美国人，他们是很繁荣的，加拿大新西兰，这些国家都是这样的，所以是非常重要的。法治的这个概念的传播，我们也调查了，一直在暴露中共的邪恶等等。我们这三年都一直谈了很多的改变，看到越来越多的人都加入了我们的队伍。同时我们看到有一些人叛变了，他们离开了我们的爆料革命。
 
-以色列财政部长李柏曼刚接种疫苗四针，仍感染中共新冠病毒。
+*发布：开智则立*
 
-以色列卫生部强推疫苗，声称加强针注射后，就能增强保护力成笑话。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-以色列外交部长拉皮德1月10日亦宣布确诊感染中共病毒。以色列周五1月14日重症患者创下近3个月来新高，自疫情以来，人口仅970万的以色列已累计确诊170万例、逾8000人病逝。
-
-美军最高指挥官米利将军已接种疫苗加强针仍感染中共新冠病毒。
-
-盖特链接：[https://www.gettr.com/post/poz5za148c](https://www.gettr.com/post/poz5za148c)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

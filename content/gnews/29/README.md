@@ -2,12 +2,12 @@
 ---
 
 
-## 太平联盟案我们必定赢的核心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893751/)
+## 太平联盟在419断播事件前动用美国深层力量把被法官驳回的案子重新立案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893815/)
 
 撰稿：东京樱花团/NewSGman
 
-郭文贵先生2022年1月17日大直播时表示，太平联盟（PAG）案在于对方程序、证据、审判皆不合法，对方律师牌照必定被取消。单伟建必定会被美国司法部调查，美国独立检察官和美议会议员必定介入调查此案真相。
+郭文贵先生2022年1月17日大直播时表示，太平联盟（PAG）在VOA“419断播”事件前动用美国深层力量把被法官驳回的案子重新立案。
 
 盖特链接：[https://www.gettr.com/post/pp2wws7b08](https://www.gettr.com/post/pp2wws7b08)
 
