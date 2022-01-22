@@ -2,35 +2,30 @@
 ---
 
 
-## 中方反对斯洛文尼亚总理称台湾为国家
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893137/)
+## 中日财经爆│美国发起反击 暂停中共国航空公司44个航班
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893374/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-193.png)[图片来源](https://s.newtalk.tw/album/news/701/61eb75f218eb9.png)
+美国运输部周五(1月21日）表示，将暂停四家中共国航空公司从美国飞往中国的44个航班，以回应中共政府因担心中共病毒（新冠病毒Covid-19）疫情而暂停部分美国航空公司航班的决定。
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+在美国政府采取这一行动之前，中共国有关部门暂停了美国联合航空公司、美国航空集团和达美航空的总共44个航班，因此前有乘客检测出中共病毒阳性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642836106857.jpg)图片来源：雅典娜设计组
+这一决定从1月30日起生效，从厦门航空原定从洛杉矶飞往厦门的航班开始实施，并将削减厦门航空、中国国航、中国南方航空和中国东方航空的部分航班。
 
+美国运输部表示，中共国暂停一些航班“不利于公众利益，有必要采取适当的补救行动。”声明还说，中共国“对被点名的美国航空公司采取的单方面行动与中美双边协议不符”。
 
-据环球时报报道：斯洛文尼亚总理扬沙，于当地时间17日接受印度官方媒体全印电视台专访中，15次提到中国，涉及台湾问题、中立关系和中欧关系等方面。
+美国运输部表示，如果中共国修改“其政策，为美国航空公司带来必要的改善情况，运输部已做好充分准备，将再次重新考虑这一行动。”但它也警告称，如果中共国取消更多航班，“我们保留采取进一步行动的权利。”
 
-扬沙透露，斯洛文尼亚正与台湾洽谈互设“代表处”，称台湾为“国家”，对中国反对台湾加入世界卫生组织感到遗憾。
+自去年12月以来，被取消的美国航班数量激增，因为高传染性的中共病毒Omicron变种在美国引发的感染飙升至创纪录高点。
 
-在1月19日中国外交部例行记者会上，发言人赵立坚在回应相关提问时表示：斯洛文尼亚领导人公然发表挑战一个中国原则、支持“台独”的危险言论，我们对此深感震惊，强烈反对。赵立坚还强调，中华人民共和国政府是代表全中国的唯一合法政府，一个中国原则是公认的国际关系准则和国际社会普遍共识。
+消息来源:
 
-参考链接：
-[https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank)
+[美国将从1月30日起暂停四家中国航司从美国飞往中国的44个航班（更新版）](https://cn.reuters.com/article/us-biden-china-airlines-0122-idCNKBS2JW02S?il=0)
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

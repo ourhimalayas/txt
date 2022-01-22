@@ -2,20 +2,26 @@
 ---
 
 
-## 匿在英国的中共国间谍
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1894373/)
+## 福奇拒绝为污蔑备受尊敬的流行病学家而道歉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894453/)
 
-英国脱欧领袖奈杰尔·法拉奇（Nigel Farage）警告英国政府，在有消息称一名涉嫌中共国间谍向英国左翼政客捐赠了数十万英镑后，威斯敏斯特可能有“更多”中共间谍在活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/download-7-1.jpg)
-英国华人项目的创始人克里斯蒂娜·李（Christine Lee）在政治上捐赠了大约 70 万英镑，其中绝大多数是针对工党，特别是左翼 Corbyn 助手 Barry Gardiner 议员。自由民主党领袖埃德戴维爵士也从李女士那里获得了 5,000 英镑。两位政客均否认受中共影响。
+##### 翻译：Frank
+校对：精靈藍
+剪辑|字幕：Biggod
+编辑：Mttfly
 
-法拉奇对间谍渗透到议会层面，并不惊讶，并且公开表示，“议会中绝对不止有一名中共国间谍，需要彻彻底底地调查”。郭先生在近期的大直播透露，在英国还有七八十名中共隐藏的间谍！
+斯坦福大学医学教授Bhattacharya博士在接受福克斯采访时称，福奇是国家过敏性传染病研究所的负责人，几乎每一个著名的传染病流行病学家和病毒学家都从他那里得到工资。福奇控制了整个科学界的声音并让人们不断打加强针。Bhattacharya博士呼吁，福奇已经造成了太多伤害，应该让福奇退休了。
 
-中共的蓝金黄是长期的、全面的策略。通过对司法、法律渗透、对经济的超限战等对各国进行威逼利诱，是整体的协同作战。中共的体制把西方民主的基石破坏了，所以才有今天的强打疫苗。欧洲在行动，我们爆料革命的盟友在行动，新中国联邦通过几年来情报的准确及真相的揭示上，赢得了更多国际政治的尊重。
+视频链接：[Fauci refuses to apologize for smearing highly respected epidemiologists](https://video.foxnews.com/v/6291380964001#sp=show-clips)
 
-文案编辑：文勇
-
-校对整理：霖霖霖
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

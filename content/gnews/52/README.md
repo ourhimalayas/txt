@@ -2,30 +2,26 @@
 ---
 
 
-## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
+## COVID-19 最新情报｜阿黛尔哭了 因为疫苗根本没用
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893440/)
 
-**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
+**撰文｜疫情关注组 / 发布时间｜22/01/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/阿黛爾哭了-因為疫苗根本沒用.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+好莱坞著名女歌手阿黛尔（Adele Laurie Blue Adkins）原定于1月21日开始的演出“与阿黛尔共渡周末”临到最后一刻取消，原因是，包括阿黛尔在内的所有工作团队成员，即使完全接种 COVID-19 疫苗，都仍然有至少一半的人感染上病毒，导致演出被迫腰斩。
 
+是次演出原本会在1月21日至4月16日期间，逢周五、周六晚在拉斯维加斯的凯撒宫举行，尽管票价不菲，但凭藉着阿黛尔的高人气，所有时段的门票均已全部售罊，全球各地的歌迷都为此提前计划了行程。
 
-Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
+最重要的是，虽然当地政府，包括凯撒宫本身并未就防疫措施有过于严苛的要求，但阿黛尔仍然额外要求所有参与者必须出示疫苗通行证，以及入场前48小时内 COVID-19 阴性检测证明。去年10年，阿黛尔在社交平台表示，自己已完成两剂COVID-19 疫苗的接种。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_20220122-153217_Twitter.jpg)
 
+可惜，就在演出开场前的几个小时，阿黛尔在推特哭着宣布，演出取消。她说“我很抱歉，但我的节目还没有准备好。我们想尽一切办法希望及时将演出安排妥当…但是，延迟交货和新冠病毒彻底摧毁了一切，我的一半工作人员染上病毒，已经不可能完成演出了。”
 
-据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
-本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+阿黛尔承诺会重新安排演出，不过对成千上万为了见她一面的歌迷来说，已经支付的旅费和已经打下的疫苗是无法重新来过了。
 
-台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
-台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
-来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
+来源｜[Adele推特](https://twitter.com/Adele/status/1484296618191069186?s=20)
 
  
 
