@@ -2,30 +2,41 @@
 ---
 
 
-## 欧美正竞相永久关闭驻中共国大使馆，西方开启与中共政治经济大脱钩
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1891003/)
+## 吃起狗肉来有声有色的杨贝贝Isobel Yeung是真心爱狗吗
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1891970/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获_副本-1.png)
+郭文贵先生转了杨贝贝吃狗肉的盖特——
+![](https://assets.gnews.org/wp-content/uploads/2022/01/001.png)
+下面我们就按图索骥来看一下原片——
 
-1月21日，郭文贵先生于GTV、Gettr直播中透露，欧盟几个国将永久关闭驻中共过大使馆，并正式宣布，西方世界和中共的政治、经济脱钩从今天开始。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4254c804701f3003a654a832b5f57a59-2_LI.jpg)图片来源Gettr Wolverine
+视频来源：[纪录片 《玉林狗肉节》 美国记者抨击中国人吃狗肉……](http://k.sina.com.cn/article_7530565666_m1c0db502203300w5uq.html?display=0&amp;retcode=0)
 
+曾经看过一个故事说一个在英国受过高等教育的白人到非洲冒险，他来到了食人生番部落并最终融入食人生番的部落，多年后他的同胞在非洲从林里碰到了这位白人同胞，看到他大快朵颐地吃人肉，就非常吃惊地问他，你来自文明世界如何能吃得下人肉呢？这位已经融入食人生番的白人回答说：No! 我跟他们还是不一样的，你没看到我在吃人肉的时候用的是刀叉吗？
 
-欧盟在昨天下午决定，有可能最少三到四个国家会在完全没有最后通牒的情况下，**永久关闭**所有驻中共国大使馆。欧洲这几个大国，只要英国、法国、德国、或者西班牙执行这个决定，中共国就和当年的苏联、伊拉克、利比亚一样。
+相较于食人生番，把吃狗看成天经地义的中国也是另一种的落后，这种血腥的落后需要革除，而那个到玉林狗肉节探班的杨贝贝Isobel Yeung则不然，她和她所任职的VICE的到来意味着文明世界对玉林狗肉节的审视，但是吃起狗肉来有声有色的杨贝贝Isobel Yeung却又一次地惊掉了我们的下巴，为什么呢？因为这一次吃狗肉的是来自文明世界的并且是说英语的美国女记者，那么她与那些视吃狗肉为天经地义的中国同胞有什么不同呢？——她分明是用拿惯刀和叉的手在吃狗肉嘛！
 
-这件事情对习近平来说是五雷轰顶，所以他很少见地拍桌子暴怒大骂，突然发觉自己是被杨洁篪和上海帮玩弄了。但是这就是事实，欧盟这几个国家执行关闭大使馆后，美国一定跟着关闭，甚至美国会争抢着最先关闭。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1_e0YiP6rZw7aRi8RyTBuH_A.jpeg)图片来源medium.com（露胸代表追求自由）
+撰稿：喜马拉雅的肉夹馍；
 
+审核：喜马拉雅的馍夹肉；
 
-法国这个国家之所有当年可以在世界享受到无限尊荣和财富，就是因为当年法国大革命为世界的自由革命牺牲，这叫政治投机。今天法国、德国要第一个向中共彻底断交的时候，美国一定不甘落后，一定要抢在前面做第一个。
+校对：Maarago；
 
-哪国先向邪恶的组织有正义的行动，哪国就是世界上捍卫自由的领头人，哪国就是世界文明的灯塔。政治脱钩已箭在弦上，不会超过三个月就会发生。
+（文章内容仅代表作者个人观点）
 
-此事意义重大，只要这一刻发生，便意味着政治、经济双脱钩的开始，中共的灭亡正式进入倒计时。只要政治、经济双脱钩开始，世界就需要找一个能合法代表中国人的机构——新中国联邦，**没有任何其他选择**。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-不但如此，在政治、经济双脱钩之后，世界和中国的资本将无处可去，唯有喜联储。到那时，GTV的股票会价值几何，会超出想象。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-可以说，北京冬奥会对中共地打击是致命的，冬奥会真正成为中共的“冬眠会”。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

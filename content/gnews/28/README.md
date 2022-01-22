@@ -2,36 +2,30 @@
 ---
 
 
-## 法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892363/)
+## 樱花灭共诗——与大学同窗石鹏飞对酒相赠
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892412/)
 
-作者：纽约香草山农场 – 007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。决议表示，中共组织与规划极端且系统性的政治暴力，构成种族灭绝。
+#### 作者：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+见我卿休哭，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-17.png)
+当年上学郎。
 
-前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
+胸中存社稷，
 
-此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
+笔下有篇章。
 
-参考链接：
+矗矗青松影，
 
-- [法國議會壓倒性決議 認定中國對維吾爾人種族滅絕](https://www.cna.com.tw/news/aopl/202201200378.aspx)
+团团白月光。
 
+蹭蹬今十载，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+未肯事君王。
 
-总编：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

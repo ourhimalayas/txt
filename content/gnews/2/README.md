@@ -2,42 +2,24 @@
 ---
 
 
-## 医学专家敦促澳大利亚停止为儿童接种新冠疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1892609/)
+## 夏普开发新材料，可按需调节密闭空间湿度
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892727/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/白云朵朵
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-24.jpg)图片来源于本文链接
+大型电机制造商夏普开发了可以根据保管物品的特征，将密闭空间调节为最佳湿度的新材料。期待在乐器和食品等的保管中得到应用。
 
-整理报道：小鱼儿
-编辑：文泓
+夏普已经开发了两种新的固体材料，一种是片状（板状）的，另一种是直径约5毫米的珠子状，它们可以将一个封闭的空间保持在最佳的湿度水平。该材料可以对应你想要保持的湿度，例如保持40%的湿度或60%的湿度，并且不需要电源，以吸收和释放水分来控制调节。例如，被调节成保持40%到50%湿度水平的珠型材料，适合于保管小提琴等乐器，如果调节成70%左右的话，可以用于在酒窖中促进红酒的适当成熟及各种物品的保管中。此外，板型材料用于住宅墙壁和运输集装箱等方面，有望防止结露。
 
-- ![](https://gnews.org/3fcbd9a8-d7bd-479d-a990-ef0b7eceda73)图片来源：The Courier
+夏普具有开发液晶的技术也擅长温度管理，这次关注湿度的新材料，将在今春商品化。研究开发事业本部的香村胜一课长说:“由于有保持湿度的需求，所以才开始研发。今后也想探索在医疗和健康领域的活用。”
 
+信息来源：
 
-当地时间1月19日，据捍卫者新闻(The Defender)报道，在给澳大利亚领导人的一封信中，包括数千名医生、护士和联合医务人员在内的六个医学协会呼吁，政府应该停止为5至11岁儿童推出新冠病毒疫苗接种计划。
+[シャープが新素材開発 密閉空間を最適な湿度に調節](https://www3.nhk.or.jp/news/html/20220118/k10013436801000.html?utm_int=news-business_contents_news-main_003)
 
-专家们引用了辉瑞公司关于安全问题的新披露，并指出现在已存在疫苗替代品，警告说，这些疫苗可能对儿童造成严重伤害。
-
-公开信中，专家们写道，“最近，我们非常惊讶地发现，有证据表明辉瑞公司知道一系列可能与他们的产品有关的不良事件，这是一种基于基因的新型疫苗，与以前所有的疫苗技术完全不同”。
-
-辉瑞公司承认不良事件报告的“大幅增加”，在仅仅10周的时间内就有1200多人死亡。辉瑞公司的数据列出的疫苗伤害，包括：心脏疾病、血液病症、肾脏病症、自身免疫性疾病、神经系统疾病。
-
-信中指出，根据儿童的风险/效益比，最初并不赞成接种新冠疫苗，“现在无论如何地合理评估，都很可能是非常负面的”。
-
-作者还指出，《医生和医学科学家宣言》列出了38篇科学论文来支持他们的立场。
-
-他们还指出，作为与辉瑞合同谈判的一部分，澳洲政府不得不给予辉瑞公司全额的赔偿，而且联邦政府还进一步赔偿了医疗从业人员和疫苗管理人员，因此没有人对疫苗造成的伤害负责。
-
-新闻链接：[No COVID Vaccines for Kids, Medical Experts Tell Australia’s Leaders](https://childrenshealthdefense.org/defender/no-covid-vaccines-for-kids-medical-experts-tell-australias-leaders/)
-
-发布：*tianzhihuan*
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/haruka春香
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

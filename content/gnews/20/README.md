@@ -2,46 +2,23 @@
 ---
 
 
-## 珍惜亲人和朋友，不要等到失去后才知道珍惜才感到后悔
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892401/)
+## 七哥谈国内明星（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892529/)
 
-G-TV视频链接：[https://gtv.org/video/id=61eaf23b87664c47acd7e1d3](https://gtv.org/video/id=61eaf23b87664c47acd7e1d3)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-**郭文贵先生**：再个今天对八弟和我的照片播出来以后，大家更要珍惜自己的亲人和兄弟。我原来说，你们听不懂，你们一定要孝敬自己的老人，拥抱自己的兄弟姐们，不要因为一点儿钱、一点儿名就是撕破了脸。活着，只要有亲人有朋友，是多么的重要，不要等到失去时候才知道珍惜，才感到后悔，每个人都不要这么做。
+刘晓庆，就专门有一个看刘晓庆的狱警，虐待刘晓庆，曾经写在海外一个网站叫留园网，啊，在留园网上拍的那些照片，不堪入目啊，狱警就敢这么弄啊，把她折腾成啥样？但是，曾庆淮这句话具有典型的意义啊，现在王力宏是曾庆淮的人是吧，现在要是曾家所有的演艺界，通通都得灭。台湾的杨登魁黑道来投奔的是曾庆淮，统统都得灭。
 
-这是为什么我告诉大家一定要爱家人，一定要父母，一定要爱家人，等你失去，你想想任何一个家人失去你都是接受不了的。在这个时候大家记住，今天说到疫苗，疫苗灾难，七哥说一定会给它停止，我们新中国联邦一定会让它停止，但在停止前你别死了，你得活着。
+网红是孟建柱的事业，孙立军控制的香港台湾黑道，后来是孟建柱，都得灭。所以说你们看王力宏，说实在话，王力宏没有任何错的，他哪儿错了我都不知道。他所有干的事情共产党干的都比他多1万倍，多1百倍都是善良的人了，演艺界没人不干。小飞侠是北京圈里人是吧？能听到看到的哪个不这样？你敢说谁不这样？是吧？小飞侠都比他玩的都嗨，啊，当时就是香港的，就是咱就说吧，就是王姓的女天皇，女天皇啊, 在我们的四合院，吃鱼子酱，香港的十几个大咖全在那，我在那个鱼子酱吃完以后， 我在那块我是喝完了，我一天晚上好几桌醉嘛哈的，我就跑另外一个院子去喝，去了等一会儿，我回来的时候我说屋咋没人了呀，我是进去以后，人呢？因为那二楼就是四合院，都进屋了，那个吃鱼子酱，那是2.5公斤鱼子酱，那一盒现在是100多万美元那么大的一盒，不是，是5公斤鱼子酱200万美元一盒啊，一直到吃完的鱼子酱盒子下边，他们竟然就慌了，那白粉呢！就是白粉，这是我最接受不了了，我当时就火了， 我说都给我轰出去！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥谈国内明星（四）-.jpg)
+发布： *tianzhihuan*
 
-执着，坚持，坚定的相信自己做的是对的事情你再去做。这就是七哥从7岁到今天的搏杀到今天，我从来不会浪费一分时间在我不相信的事儿上，除了那个之外。
-
-我就最后给大家说一句话，一定要记住，大家要防病毒，迎接唯一的属于新中国联邦最美好的时代的到来，所有他们的疯狂都会成为我们消灭它的证据和武器，你们走着看。还是那句话，莘县阳谷县搭县，咱走走看！共产党，你完了！
-
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,23 +2,27 @@
 ---
 
 
-## 有声|网传上海优衣库疫情封锁视频打脸中共宣传
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892229/)
+## 接种者疫苗蛋白脱落或可感染未接种者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892366/)
 
-配音：香草山健身部-格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间1月13日，据中共媒体消息显示，中共国内上海某繁华地段的优衣库店铺因为出现过中共病毒确诊病例而被当地政府紧急封锁。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+外媒消息，接种中共病毒疫苗将会引起严重的并发症，如心脏病等。如果疫苗接种者体内的刺突蛋白脱落，对于未接种过疫苗的人来说，或也会引发不安全问题。2021年11月14日文贵大直播，有Eglise医生讲述孩子发生过敏反应，或由脱落的刺突蛋白导致。
 
-值得注意的是，这个突然的封锁措施并非单单针对该优衣库店铺，而是当时在整栋大楼内活动的上海市民全部被限制出入，这也导致楼内民众只能利用商场里的睡袋和食物度过被封锁的时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-50.png)
 
-据悉，中共国如此突然且大面积的封锁在全国范围内频频发生。事后，中共当地政府往往通过发放礼品或拍摄宣传片等方式将这类事件美化。但据日本媒体在当地时间本月19日的报道称，虽然中共镜头下的封锁故事被虚化的严重失真，但互联网上有大量因封锁造成民众恐慌的视频仍在广泛流传。 对此，分析人士则指出，中共目前应对疫情的政策即为“一人感染，整楼封锁”，全然不顾中国老百姓的安危，至于事后为了美化其所作所为的安抚措施不过是中共对外宣传的惯用手段。
+另外有研究证实，密切接触过刺突蛋白可能引发的疾病有：心包炎、带状疱疹、肺炎、四肢和大脑血凝块、贝尔麻痹、阴道出血、流产风险显著增加、自身免疫性疾病，跨越血脑屏障，各种神经并发症。并且对儿童的影响高于成人。
 
-文字版原文：[网传上海优衣库疫情封锁视频打脸中共宣传](https://gnews.org/zh-hans/1887714/)
+参考链接：
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+- [COVID-19 vaccine spike proteins are SHEDDING, giving people heart attacks, strokes and more](https://www.naturalnews.com/2022-01-18-covid-vaccine-spike-proteins-shedding-unvaccinated.html)
+- [2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

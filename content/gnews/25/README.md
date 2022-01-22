@@ -2,26 +2,28 @@
 ---
 
 
-## 接种者疫苗蛋白脱落或可感染未接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892366/)
+## 华人将对中共法律超限战抗争到底
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892449/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山信息部 – 6zero4
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-外媒消息，接种中共病毒疫苗将会引起严重的并发症，如心脏病等。如果疫苗接种者体内的刺突蛋白脱落，对于未接种过疫苗的人来说，或也会引发不安全问题。2021年11月14日文贵大直播，有Eglise医生讲述孩子发生过敏反应，或由脱落的刺突蛋白导致。
+郭先生在2022年1月17日马丁·路德金纪念日的大直播中，谈到单伟健通过纽约中心区法院的案件，交给郭先生7万多页所谓的“证据”和30多万页法律文件，在既不许选择陪审团，也不许说话和质疑的情况下，直接判郭先生藐视法庭，如此滥用司法管辖权且毫无程序正义，是PAG背后中共一手操纵的法律超限战，滥诉、缠诉。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-50.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-13.png)
 
-另外有研究证实，密切接触过刺突蛋白可能引发的疾病有：心包炎、带状疱疹、肺炎、四肢和大脑血凝块、贝尔麻痹、阴道出血、流产风险显著增加、自身免疫性疾病，跨越血脑屏障，各种神经并发症。并且对儿童的影响高于成人。
+PAG缠诉案不再是郭先生一人的经济纠纷案，牵扯到美国司法系统被中共渗透，甚至种族歧视等巨大问题。如果我们在PAG案前妥协和放弃而没揭开真相，中共就会穷追猛打，华人在美国将永远成为司法牺牲品而无安全感。
+
+马丁·路德金以宁死不屈的精神成为改变美国司法公正和民主进程的圣贤。新中国联邦人将通过PAG案进一步了解美国司法体系及其法治精髓，感受郭先生为新中国联邦司法体系建立的理念和愿景，成就中国人的法治梦想！
 
 参考链接：
 
-- [COVID-19 vaccine spike proteins are SHEDDING, giving people heart attacks, strokes and more](https://www.naturalnews.com/2022-01-18-covid-vaccine-spike-proteins-shedding-unvaccinated.html)
-- [2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
+- [2022年1月17日 文贵大直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：童谣
+编辑：Lakeman文仁
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

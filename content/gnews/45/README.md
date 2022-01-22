@@ -2,13 +2,13 @@
 ---
 
 
-## 杰森·米勒去了反共力量的活动中心——哥伦比亚
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1891039/)
+## 德州法官废除拜登中共病毒疫苗强制令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1892013/)
 
-01/18/2022 杰森·米勒: 除了巴西之外，哥伦比亚在很大程度上是反共力量的活动中心。哥伦比亚对于从民主到反共的一切都至关重要。我们参加了参议员玛丽亚·费尔南达·卡巴尔的应用程序揭幕。她非常具有反共和赤色恐慌精神。我们有 2 万人在盖特在线观看她的新闻发布会直播。该平台运行一切顺畅。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220122-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

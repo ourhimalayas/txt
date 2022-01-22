@@ -2,46 +2,36 @@
 ---
 
 
-## 美国司法部最终会把太平联盟与司法部和吴征等案件了结
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1892361/)
+## 秘翻在线：瑞银（UBS）的噩梦——郭文贵先生
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1892405/)
 
-G-TV视频链接：[https://gtv.org/video/id=61eaf15b87664c47acd7e181](https://gtv.org/video/id=61eaf15b87664c47acd7e181)
+**翻译：Nstar**
 
-**郭文贵先生**：第二个，现在这次媒体上已经关注了将近一年多时间，包括要拍电视剧的，包括要连续报道的，然后美国司法部一定会调查。司法部就是中国的检察院嘛，就是司法部检察官，一定会调查。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/222.jpg)
+许多瑞士银行正在吸引来自新兴国家的超级富豪客户，但正如行业领导者瑞银现在所经历的那样，这始终是走钢丝。
 
-国会一定会调查，一定会调查，就单伟建和Edward Moss等以及包括在BVI未来的勾兑和钱来钱往，它盖不住，它铲不平的，最终一定会把在西方包括在BVI的政治勾兑、利益输送查得清清楚楚，一点儿不用怀疑。而且我相信会把当年和Higginbotham白宫的这些腐败和在美国司法部的腐败，最终这些，你会发现最有趣的事情。
+企业家、白手起家的亿万富翁、中共政权的批评者，现在是索赔总额达数亿美元的原告：**郭文贵**先生——现在对瑞银来说简直是一场噩梦。
 
-太平联盟案子跟Higginbotham案子，Jho Low跟Burno Wu的案子、博讯的案子、熊宪民的案子，什么夏业良、郭宝胜的案子，所有的案子，太平联盟案子，全部，包括吴征诈骗还有腾讯音乐还有什么Digtal Group全部会放在一起，美国司法部会做个了结。
+因为这家瑞士银行正在尽最大努力阻止郭先生在伦敦提出的损害赔偿要求。据彭博社报道，郭文贵先生想从瑞银那里拿回5亿美元的巨款。瑞士当地媒体也报道了此案。
 
-哇～原来就这些三四个人，还有这一笔钱，然后搞得这个事情，最后大白于天下。美国会让看到彻底清除共产党在美国司法部、司法部门儿渗透“蓝金黄”的黑暗力量，同时惩罚那些收了黑钱泯灭良知的人。还有最后就是新中国联邦在美国成为一个正义的英雄的力量，成为一个真正的传奇，拍成电影和电视剧。
+这与 2015 年的所谓追加保证金有关，金融机构没收了作为贷款抵押品的股票，并显然以低价出售。这是“放贷”业务的一个迹象，自2019年资产管理重组以来，这家大银行也一直在推动这一业务。提供存款抵押贷款可能是有利可图的，但追加保证金被证明是市场下跌的潜在风险——而且往往以纠纷告终。另一方面，有些客户尽管损失了数百万美元，但仍然可以承担昂贵的诉讼费用。
 
-字幕来源：[2022年1月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1877008/)
+除了郭文贵先生让瑞银睡不好觉，报道还提到不够“幸运”的瑞幸咖啡也让瑞士信贷（CS）严重受挫。2020 年春季，瑞幸咖啡的股票在操纵销售后暴跌——该银行不得不绞尽脑汁来应对高额的贷款违约，因为作为抵押品的证券已经贬值太多。
 
-编辑整理：Jacques；
+对于瑞士大银行来说，这类事情不会停止。据媒体报道，去年 11 月，瑞信对一名据称欠瑞士研究所 7800 万美元巨款的沙特阿拉伯王子提起诉讼。该王子用这笔钱资助了一座别墅和一艘游艇。而瑞银最近也通过法院命令取消了前印度啤酒厂维杰·马利亚的伦敦城市宫殿的赎回权。该银行曾于2012年将这处房产作为其发放的相当于 2520 万瑞士法郎贷款的抵押品，但马利亚无法按时偿还贷款。
 
-字幕文件制作：小满；
+关于郭文贵先生是否可以在伦敦提交诉讼，报道称还存在争议，但是正如郭先生所说，他相信美国和英国的法律系统，再难的诉讼他也要打下去，因为这是有关中共蓝金黄世界、关于正义是否可以得到伸张的重要案件，瑞银的噩梦才刚刚开始！
 
-视频制作及上传：Cindy；
+**[新闻来源](https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending)**
 
-G-News发布：小满；
+**相关Gnews文章**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+> [郭文贵先生起诉瑞银（UBS）](https://gnews.org/zh-hans/535815/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,41 +2,28 @@
 ---
 
 
-## 有声|鹰之歌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892145/)
+## 法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892363/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-推荐语：为了追求自由的理想，历来那些勇敢的灵魂像雄鹰般坚韧，没有退缩在崇山巨峰中！
+作者：纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。决议表示，中共组织与规划极端且系统性的政治暴力，构成种族灭绝。
 
-谁不愿像小鸟
-终日无忧无虑地在林间嬉戏
-谁愿意学雄鹰
-迎着波涛激流飞舞
-绕着崇山峻岭盘旋
-可是，如果没有雄鹰的护卫
-就会有人独霸整个有氧森林
-猎狐者还会编织惊天巨网
-困锁每一双渴望自由的翅膀
-所以，当一批批雄鹰坠落
-请不要悲伤懦弱哭泣
-那不过是他们在完成
-上苍赋予的历史使命
-也不要捡拾那华贵的羽毛
-那是他们最后的遗物
-注定要含笑亲吻大地
-风起时
-那些闪烁着光芒的羽毛
-就像飘荡在空中的旗帜
-唤醒那些永不沉睡的梦
-召唤那些永不屈服的灵魂
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-17.png)
 
-文字版原文：[鹰之歌](https://gnews.org/zh-hans/1882743/)
+前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+参考链接：
+
+- [法國議會壓倒性決議 認定中國對維吾爾人種族滅絕](https://www.cna.com.tw/news/aopl/202201200378.aspx)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -44,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
