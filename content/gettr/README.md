@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@max_fei 1/22/2022 8:02 PM (UTC)`
+
+啥也不说了，战友们太棒了！<br/>
+![img](https://media.gettr.com/group40/getter/2022/01/22/20/ad6ba460-373b-8d68-4a81-b1b512f7cefd/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@gfashion 1/21/2022 6:16 PM (UTC)`
 
 New Release                                              Shop Now at www.gfashion.com
@@ -151,13 +160,6 @@ Mr. Steve K. Bannon said the 2022 Beijing Genocide Games should be shut down for
 
 Mr. Steve K. Bannon: <br/>We have a huge problem with the US attorneys, in the Department of Justice, and throughout the legal system, since the justice system in the United States, including the law firms, has definitely been infiltrated by the Chinese Communist Party, the evil regime.<br/><br/>班农先生：美国检察官，司法部，甚至整个法律系统都出了很大的问题，因为美国的司法系统，包括律师事务所，肯定已经被中共这个邪恶的政权所渗透。
 ![img](https://media.gettr.com/group18/origin/2022/01/21/12/7a67ca18-7776-4c39-f462-fb3590659c95/out.jpg)
-
----
-
-`@miles 1/21/2022 2:50 AM (UTC)`
-
-Jin Canrong, a political scientist of the CCP, an expert on American issues, deputy dean of the School of International Relations of Renmin University of China, and the CCP's Internet celebrity "Politician Jin", brags that the PLA has no worthy opponent within a range of 1000 nautical miles and the CCP China can defeat the US without any doubt.<br/><br/>金灿荣，中共政治学家、美国问题专家，中国人民大学国际关系学院副院长，中共网红“金政委”吹嘘中共党卫军千里之内无对手，中国绝对打败美国。 
-![img](https://media.gettr.com/group40/getter/2022/01/21/02/1457ab3b-0cb8-9b84-0950-a6a16a3ec0a3/out.jpg)
 
 ---
 

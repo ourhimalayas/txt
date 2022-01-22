@@ -2,56 +2,33 @@
 ---
 
 
-## 中共生化超限战民众当用生化知识自救（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1895569/)
+## MV版Hcoin To the Moon上线45天第31次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1895664/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-33.jpg)
+1/22/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线45天第31次位列澳门iTunes热门音乐视频榜榜首，第38次位列前三名
 
-作者：纽约香草山 医疗部 信望爱
+* * *
+
+[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
 
+[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-新中国联邦创始人郭文贵先生曾经在爆料时指出，冠状病毒和毒疫苗是中共及其背后的黑暗权势对人类发起的一场旷日持久的、非对称生化超限战争。郭文贵先生在直播中还提及全球生产毒疫苗的主要厂家，大都与中共及其背后的黑暗权势在资本或其它方面有某些关联，他们在冠状病毒功能增强、病毒散播流行，毒疫苗的研发、推广、强制注射、媒体欺骗性宣传误导、掩盖病毒及毒疫苗真相等许多方面，体现出了高度协同。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗災難-1.jpg)
-既然这是一场主要由极权中共发起的灭人类的非对称生化战争，我们除了要广泛寻找真相、传播真相、把民众引入到爆料革命新中国联邦的G-TV、GNEWS、GETTR 等这些传播真相的自媒体平台上，唤醒民众，我们还要从生物化学的角度做好预防和治疗工作。
-
-我们从爆料革命新中国联邦的G-TV、GNEWS、GETTR 等这些传播真相的自媒体平台上得知，某些中共毒疫苗的主要成分是信使核糖核酸（mRNA），为了解决它的不稳定性，在制成疫苗时用了脂质纳米石墨烯包裹技术。上述关于中共毒疫苗的主要成份，在新型自媒体平台盖特上，经常看到业内人士和专业人士有详细介绍。郭文贵先生在多次直播时，引用了从中共国逃到欧洲的中共军方良心科学家提供的内部情报，也证实了某些毒疫苗的主要成份是mRNA，且每支标准毒疫苗内含40万亿个致病信使核糖核酸（mRNA）分子。
-
-人体感染冠状病毒后，病毒通过一种称为内吞作用的过程，从细胞膜表面进入细胞浆内进行病毒复制（见视频截图，有心人可以找密翻组，查看那个短视频），病毒以自身的核糖核酸作为模板，利用被侵入的细胞帮自己复制出更多的病毒核糖核酸，然后再释出细胞外，来侵犯更多的宿主细胞，达成病毒自我繁衍的目地。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗災難-2.jpg)
-大胡子医生是在美国治疗中共病毒感染最著名的医生，他治愈过数千名被中共病毒感染的病患。他的防治方案，对于许多传播爆料革命的战友来说都是耳熟能详，他的方案主要用药是羟氯喹、伊维菌素、斛皮素、锌、D3、VC等。其中羟氯喹、伊维菌素、斛皮素等是锌离子进入人体细胞的载体。正是因为碱性金属阳离子锌与病毒核糖核酸（RNA）的酸性中和后，使病毒核糖核酸失出活性。若病毒在人体内五个小时左右，不能复制，便失去了活性，从而阻断了病毒复制。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗災難-3.jpg)
-传播爆料革命、传播中共病毒真相的亿万战友，不仅要坚决拒绝毒疫苗，还要做好防治中共病毒的物质准备。包括按照美国大胡子医生的公开处方，采购好各种药品，供平时预防和感染后的实时治疗，也为邻居和亲友做一些药品的备份，以便在紧急情况时能伸以援手。
-
-人体在有早期感冒症状迹象、疑似感染中共病毒的情况下，如能在第一时间按照大胡子医生的处方指引，口服治疗剂量的药物，赶在病毒还未在全身深度感染的情况下，进行早期有效治疗，一般会起到事半功倍的效果。同时要做到自我隔离休息，与他人亲密接触时一定要相互带口罩，约每二到四个小时左右换一次口罩，不要用含有石墨烯的口罩，禁食甜食这种含糖量高的酸性食物，多补充矿物质，多饮暖开水，促进排汗排尿。
-
-如果感冒症状是在非中共病毒感染的情况下引起的，按照大胡子医生的方案，短期内服用治疗剂量的药物，其副作用一般也是很微小或不明显，一般来说几乎是零风险，但赢得了早期快速阻断病毒复制的宝贵时间，大大的减少了得重症感染的风险。
-
-另外一种常见情况是，许多人在有感冒症状时，会花一两天时间排队检测核酸、及等待核酸测试结果。排队等待检查会增加被感染和感染别人的风险，也会给病毒在体内的快速复制提供了充足的时间。
-
-对于己知是阳性的患者，如果你找到的医生拥有羟氯喹、和伊维菌素的处方权，他也愿意给你开羟氯喹或伊维菌素加锌，治疗你的中共病毒，此时配合医生治疗是很好的选择。
-
-对于己知是阳性的患者，另外一种普遍的情况是，在中共超限舆论误导及黑暗权势的压力下，许多国家的行政部门和医疗行业规定，不许医生开羟氯喹或伊维菌素来治疗中共病毒。有些医生不愿意或者无权给你开羟氯喹或伊维菌素加锌来治疗中共病毒。碰到这样的医生，他可能不仅难以救治你，还给病毒在体内快速大面积复制提供了更多的时间，会有拖延至重症、甚至死亡的巨大风险。因此，平时按照大胡子医生的处方，充分准备好中共病毒的防治药物，学会第一时间快速自救，是应对中共病毒非对称超限战的最佳方法之一。
-
-（免责声明：本文不具有针对任何具体个人的治疗指导作用）
-
-(本文为作者观点，不代表GNEWS立场)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-83.png)
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

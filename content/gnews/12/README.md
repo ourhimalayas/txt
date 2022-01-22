@@ -2,37 +2,42 @@
 ---
 
 
-## 美国务院下令驻乌克兰大使馆人员家属撤离
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1895388/)
+## 有声|拜登政府计划向民众免费发放N95口罩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895413/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/U-2.jpg)ussanews.com
-《福克斯新闻》刚刚（1月22日）发表文章，“官员称，美国驻乌克兰大使馆人员家属被命令最早于下周一开始撤离”。副标题称，下周，国务院还将鼓励美国人开始乘坐商业航班离开乌克兰。
+配音：香草山福音部 – 文凯琳
 
-全文如下：
 
-美国官员告诉《福克斯新闻》，国务院已命令美国驻乌克兰大使馆工作人员家属最快于周一开始撤离乌克兰。
 
-一位官员说，预计下周国务院还将鼓励美国人开始乘坐商业航班，“当这些航班还在时”，离开乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
-周五（1月21日）深夜，美国驻乌克兰大使馆宣布，按照拜登总统的指示，第一批武器已经抵达。
 
-美国官员说，国务院称这是20万英镑极具杀伤力武器中的一部分，其中大部分为小武器。这些援助是乌克兰前线士兵所需要的，美国官员还告诉福克斯，“标枪”（Javelin）反坦克导弹预计将于下周初从波罗的海国家和美国军用储备库中运抵。
 
-俄罗斯先进的战斗机现已抵达乌克兰北部的白俄罗斯，另一位官员补充说，五角大楼担心乌克兰首都“现在正处于众目睽睽之下”。
+据白宫知情人士透露，拜登政府将于周三宣布一项计划，通过药店和社区网站分发数亿个免费、高质量的N95口罩，这些口罩都来自政府的全国战略储备。
 
-官员们说，美国政府计划在未来几天向乌克兰运送“一吨”的武器弹药。
+此举是拜登政府为确保美国人在中共病毒爆发期间能够获得更具保护性的口罩的努力的一部分。 有证据表明，布料覆盖物对更易传播的奥米炕变体效果不佳，拜登政府正面临越来越大的压力去说服人们放弃布口罩去使用更具保护性的口罩。
 
-（原文完）
+原文链接：[拜登政府计划向民众免费发放N95口罩](https://gnews.org/zh-hans/1888386/)
 
-看来美俄外交部长会面没有成果，希望拜登这次别像阿富汗撤军那样，让美国在全世界面前丢尽颜面。美国、北约也应该意识到谁是背后的始作俑者，加上最近金三胖的蠢蠢欲动，事出反常必有妖。只有把中共这个恶魔除掉，世界才能得以安宁。
+音频处理/发稿：Daxia
 
-原文链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-[https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
+**更多资讯，更多关注**
 
-**华盛顿DC 望七星**
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**编辑发布  水星**
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
