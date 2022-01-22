@@ -2,48 +2,23 @@
 ---
 
 
-## WHO表示，没有证据表明健康的儿童和青少年需要加强针
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1895125/)
+## 澳洲维多利亚呼吁退休教师及准毕业生加入师资储备
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1895166/)
 
-据《CNBC》记者Jessica Bursztynsky，2022年1月18日报道：
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011207.jpg)网络图片
+澳大利亚维多利亚州政府今日公开呼吁，希望已经退休教师和即将毕业的教育专业学生成为 CCP病毒大流行下的储备师资。该州政府正试图在学年开始之前进行备用人力资源的征集，虽然该州记录的每日新增病例数目前略有下降。维州防疫响应指挥官 Jeroen Weimar 说：“这是一项简单而务实的措施，可以真正确保我们有一个良好的开端。”
 
-**关键点**
-• 世卫组织首席科学家苏米亚·斯瓦米纳坦（Soumya Swaminathan）博士周二表示，目前没有证据表明健康的儿童和青少年需要加强针来补充Covid-19疫苗接种。
-• 斯瓦米纳坦透露，该机构咨询小组本周晚些开会，讨论各国应该如何安排加强针。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1810-e1642871202755.png)2020年7月3日，COVID-19爆发期间，世界卫生组织 (WHO) 首席科学家苏米亚·斯瓦米纳坦 (Soumya Swaminathan) 出席日内瓦联合国记者协会 (ACANU) 组织的新闻发布会。
-图片源自：法布里斯·科弗里尼 | 路透社
-**世界卫生组织首席科学家苏米亚·斯瓦米纳坦（Soumya Swaminathan）博士周二表示，目前没有证据表明健康的儿童和青少年需要加强针来补充Covid-19疫苗接种。**
+目前教师搜寻的范围包括寻找退休或不活跃的教师、校长、学校即将毕业的学生和行政人员。一旦入选他们将签订短期的定期合同，公立学校的隔离期也会在合同中被考虑。
 
-斯瓦米纳坦说，该机构的免疫专家战略咨询小组（Sage），将于本周晚些开会，研究各国应如何使用加强针。
+然而即便符合条件，预备教师还是必须完成两剂CCP病毒疫苗的接种，并持有当前能够与儿童一起工作的登记证明。这意味着即便在目前教师资源紧张的形势下，未接种CCP病毒疫苗或未完整接种CCP病毒疫苗的人士依然被边缘化并排除在外。事实上，完整的疫苗接种似乎也并没有成功防止学校成为CCP病毒爆发传播的源头之一。
 
-斯瓦米纳坦在世卫组织媒体简报会上说：“目的是保护最脆弱的人，保护那些面临严重疾病和死亡风险高的人，这些人包括老年人口、免疫力低下的基础疾病人群以及卫生保健从业者。”
+在过去 24 小时内，澳大利亚维多利亚州共记录了 16,016 例新增CCP病毒感染。虽然在数字方面稍有下降，然而仍有超过1000人目前依然处于住院状态。
 
-世卫组织突发卫生事件计划执行主任迈克尔·瑞安博士表示，该机构仍未清楚加强针正确的接种间隔和接种次数。
+维多利亚州政府现在正朝着强制加强针注射的方向发展，以增加接种第三针 CCP病毒疫苗的人数。澳大利亚第九新闻台预计，维多利亚州的居民可能很快就必须在接种CCP病毒加强针之后才能进入咖啡馆或餐馆等设施。
 
-“我认为人们确实有一定的恐惧，担心加强针需要每两三个月一次，担心每个人都必须获得加强针。我认为我们还没有答案，” 瑞安说。
-
-他说，科学家最终可能会重新定义注射疫苗需要的剂量。虽然大多数健康人可能只需要两针，但他认为老年人或免疫力低的人群可能需要三针或四针。
-
-斯瓦米纳坦和瑞安的评论发表在美国疾病控制和预防中心批准对12至17岁的青少年进行加强注射后大约两周的时间。目前冠状病毒病例激增由高度传染性的Omicron变体引发。
-
-激增还导致儿科病例急剧增加。根据美国儿科学会最新更新的数据，1月6日当周，共计有超过580,000例儿童冠状病毒病例，比12月30日前一周增加了78%。
-
-文章来源：[https://www.cnbc.com/2022/01/18/who-says-theres-no-evidence-healthy-children-adolescents-need-covid-boosters.html](https://www.cnbc.com/2022/01/18/who-says-theres-no-evidence-healthy-children-adolescents-need-covid-boosters.html)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场– 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+新闻参考链接：[Retired teachers being called on to become COVID-19 relief resources in Victoria](https://www.9news.com.au/national/coronavirus-victoria-update-booster-mandate-looms-for-victorians-to-be-considers-triple-vaccinated-when-entering-cafes-and-restaurants/d73a9c77-b3c1-4f24-a976-fc50e561d8a3)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
