@@ -2,26 +2,37 @@
 ---
 
 
-## 【秘翻在线】联邦法院阻止了拜登政府对联邦雇员的强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1891555/)
+## 7天7次核酸检测后才确诊，中共国迷一样的核酸检测
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1891590/)
 
-**撰稿：Grace**
+**【国内新闻短评】**
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2021-12-05-at-5.03.16-PM.jpeg)图片来源： unitedpushback
-据USSA NEWS 1月21日报道， 德克萨斯州的美国法官周五发布了一项全国范围的禁令，禁止联邦政府执行拜登政府的要求，即没有合格的医疗或宗教豁免的联邦工作人员必须接种中共病毒Covid-19疫苗。
+**中国新闻周刊2022年1月16日报道：7天7次核酸检测后才确诊，检测试剂怎么了？**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a0ayv-ha0lp-1.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2022/01/huo.jpg)
+**短评：**
 
-被川普总统任命为德克萨斯州南部地区法院（District Court for the Southern District of Texas）法官的杰弗里·布朗裁定（Jeffrey Brown），反对拜登对联邦雇员进行疫苗接种的人有可能在审判中获胜，并阻止政府执行这一要求。
+经多次核酸检测才呈阳性的现象并非个个案。早前，西安也曾出现7次核酸后才确诊的病例。石家庄有人核酸检测6次才呈阳性。去年，深圳甚至出现过核酸11次确诊的情况……那么，究竟要多少次检测才能确定？为什么要大规模的检测？中共国的核酸检测简直就是个迷。
 
-布朗写道，问题在于拜登是否 “可以在没有国会意见的情况下，通过一支笔，要求数以百万计的联邦雇员接受一项医疗程序，作为他们就业的条件。” 他还写道：“根据最高法院最近刚刚表述的法律现状，这是太过雄心勃勃的行为。”
+首先，这些多次检测如果是对特定关注对象的检测，可以无休止的检测，一直到被检测出“阳性”为止。那么，是否被关注的对象都是这样得出“阳性”结论的？如果不是这样，那又如何能够确定第5次、6次，甚至于深圳案例的第10次，直至N次检测阴性就能确定“阴性”？究竟要多少次检测才算是结论？
 
-据报道，司法部表示，它将对该裁决提出上诉。
+其次，对于非特定关注对象，一般常规的核酸检测一次就能有效？中共规定持48小时内核酸检测就能乘坐交通工具，那么前提条件是——所有被检测者必须一次检测都准确有效，才能确保所有乘客安全。显然，这是不可能的，那么，一次核酸检测可以作为依据？应该检测几次才能放心？
 
-该诉讼是由联邦医疗自由（Feds for Medical Freedom）组织提起的。
+再次，最近中共国开始全员核酸检测运动。既然无法确定哪一次检测准确，既然没有确实科学的准确率，那么，全民核酸检测数据有价值？既然是不准确无价值的无效结果，为何还要劳民伤财的全民检测？决策依据在哪里？是为了不准确的数据欺骗愚民？还是利益？或是别的不可告人的目的？
 
-今天对美国来说又是一个巨大的胜利！
+中共治下，一切你看到的听到的都不是真相。对于迷一样的核酸检测亦非普通奴隶能得到答案的，也是不能容许追问的，因为谎言和阴谋最害怕的就是追问。
 
-**新闻来源：**[BREAKING: A Federal Court Has BLOCKED Joe Biden’s COVID Vaccine Mandate for Federal Employees](https://ussanews.com/breaking-a-federal-court-has-blocked-joe-bidens-covid-vaccine-mandate-for-federal-employees/)
+**声明：文章观点仅代表作者，与Gnews 平台无关**
+
+**新闻链接**：[https://3g.163.com/dy/article/GTRM2HR30514BE2Q.html?spss=adap\_pc](https://3g.163.com/dy/article/GTRM2HR30514BE2Q.html?spss=adap_pc)
+
+素材：洛杉矶盘古农场 — 鲁西西
+评论：洛杉矶盘古农场 — 心照
+编审：洛杉矶盘古农场 — 柯震恶
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,29 +2,39 @@
 ---
 
 
-## 英国仁医恳请病人不可再接种新冠病毒疫苗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1891687/)
+## 有声|诸多不利背景下中共依旧公布GDP增幅8.1%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891718/)
 
-加拿大杨帆农场  编译：Cran，校对编辑，发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/c-3-edited.jpg)图片来源：KCW
+配音：香草山农场 – 纳米
 
 
-据美国媒体[网关专家] 1月19日报道, 英国医院的一位医生近日在其电话问诊中告知他的病人：“不要再继续接种实验性的新冠病毒疫苗，因为它很快会因为安全问题而被停止使用。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+墙内媒体1月17日报道，中共国统计局公布了2021年GPD的实际增幅为8.1%，还称这是继2011年的9.6%以来第二大增幅。由此，也引发了许多质疑中共造假的声音。
 
-报道称，英国圣理查德医院的医生在与其一位女病人电话问诊期间表示：由于在仓促情况下被使用的“新冠病毒”疫苗是极其危险的，因此它们最终将会在全球范围内被叫停。而且为了病人的健康安全，不应该再继续接种。该医生在电话中还称，尽管目前没有足够的公共信息来证明他的观点是正确的，但对于那些免疫力完好并且已接种的年轻人来说已经足够了，完全没有必要再接种更多剂量的疫苗。
+日媒指出，除了各地疫情蔓延造成生产停滞以外，中共在海南建立的免税购物天堂里，客流量也大不如前。而且，因疫情多次封城管控，民众购物欲望也极速下降。
 
-据悉，以上问诊电话录音在被公布之后，立刻引发了舆论的强烈反响。但人们疑惑不解的是，为什么被政府认为是安全有效并被各界广泛推广使用的疫苗，现在却出如此完全否定的医疗专业意见。特别是当女病人问道：“是否这一建议适用于所有人时”，医生回答说：“现在所掌握的很多有关疫苗的信息是以前无法获得的，而且很快所有的疫苗接种都将完全被当局停止。因此，请不要，绝对不要再接种疫苗了！”
+同时恒大的经营危机，以及被海南等地强制收回土地，都加重了人们对房地产行业投资的顾虑。甚至墙内已经有投资恒大的老百姓喊出“这不是共同富裕，而是共同贫穷”的口号。
 
-* * *
+分析人士指出，在全年疫情、花样年及恒大等地产爆雷，年初中共六大银行不良贷款率大幅上升、7月郑州水灾、9月各地突然拉闸限电、10月珠三角旱灾的大背景下，GDP增幅8.1%仍超过疫情前四年平均值的6.5%，符合中共一贯造假的逻辑。
 
-原文链接:
+文字版原文：[诸多不利背景下中共依旧公布GDP增幅8.1%](https://gnews.org/zh-hans/1887689/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-> [WATCH: NHS Doctor Tells Patient NOT to Take Covid Vaccine Because They Will Be PULLED Soon – Warns That Vaccine Data is Being Hidden From Public](https://www.thegatewaypundit.com/2022/01/watch-nhs-doctor-tells-patient-not-take-covid-vaccine-will-pulled-soon-warns-vaccine-data-hidden-public/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

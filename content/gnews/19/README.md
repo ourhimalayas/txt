@@ -2,40 +2,47 @@
 ---
 
 
-## 拜登授权通过波罗的海盟国向乌克兰紧急运送美国武器
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1891801/)
+## 纽约市亚裔女子因遭遇孤狼式袭击而丧失生命
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1891839/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+**据《NBC新闻》作者：妮可·阿塞维多 (Nicole Acevedo)，2022年1月15日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/ai2l8-7t1g6.jpg)**警方和公交人员调查周六在时代广场地铁站发生的致命袭击事件。图片来源：NBC**
+纽约市的犯罪统计数据显示，去年反亚裔仇恨犯罪大幅增加。纽约市警察局去年年底说，到2021年12月，针对亚裔的事件比前一年前增加了361%。反亚裔仇恨犯罪事件在大流行期间数目激增。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/815-1.jpg)图片来源：Eorense.com
+周六上午，纽约市一名妇女在一辆迎面而来的火车前被推倒致死。
 
+纽约市警方表示，事件发生在上午9:30左右，地点在第42街和百老汇附近的时代广场地铁站。
 
-**整理报道：文扬
-编辑：文泓**
+警方发言人说，这名40岁的妇女被推倒在铁轨上，并被一辆南行的R型列车撞到。她在现场被宣布死亡。
 
-拜登政府正在采取实质行动，向乌克兰援助反坦克武器和防空系统，以协助击退任何潜在的俄罗斯入侵。此外，据《华尔街日报》报道，有官员说，“白宫已通知国会，它打算向乌克兰派遣五架Mi-17运输直升机”。
+警察局长基尚·休厄尔(Keechant Sewell)在与市长埃里克·亚当斯 (Eric Adams)在车站举行的新闻发布会上介绍，被认为负有责任的男子逃离现场，但不久后向交通警察自首。
 
-但这种武器转让是通过第三方盟友——即爱沙尼亚、立陶宛和拉脱维亚来促成。本周早些时候，美国公布了向乌克兰提供进一步有限军事援助的拟议计划，截至周四下午，政府已批准该计划。
+休厄尔(Sewell)说：“这一事件是孤狼式的，受害者似乎与该嫌疑人没有任何关联。”
 
-哥伦比亚广播公司(CBS)新闻还报道说，“美国官员向哥伦比亚广播公司新闻证实，拜登政府已允许几个北约盟国向乌克兰紧急运送美国制造的武器——包括反坦克导弹——以加强该国的防御。”
+另一名妇女告诉警方，该男子几分钟前曾接近她，她担心会被推到铁轨上。
 
-该报道详细说明，就在拜登表示，“猜测”普京准备“进入”乌克兰的之后的一天，美国国务院消息人士称，包括爱沙尼亚、拉脱维亚、立陶宛和英国在内的盟国已获准将美国制造和供应的设备经“第三方转让”给乌克兰，一位官员称这是“为乌克兰获得尽可能多的装备”的计划的一部分”。
+警方在周六晚上确认嫌疑人是61岁的西蒙·马蒂亚尔(Simon Martial)。警方称马蒂亚尔无家可归。他被指控犯有二级谋杀罪。目前还不知道他是否有可以发表意见的律师。
 
-目前为止，尚不清楚美国政府可能在多大程度上授权任何级别的军事反应。多年来，美国已经为乌克兰军队提供了军事装备，甚至在该国派遣了数量有限的特种部队训练乌克兰特种部队。
+马蒂亚尔有犯罪史，并且一直在假释中。在过去，他有三次与警方的遭遇。
 
-本周早些时候，英国国防部长本·华莱士宣布向乌克兰运送武器，据报道，在过去三天内，一系列飞往基辅的军用航班一直在运送这些武器。
+地铁的条件和安全已经成为许多纽约人在大流行期间的担忧。虽然警方的统计数据显示，过去两年地铁中的重大案件数量有所下降，但乘客人数也在下降，因此难以比较。
 
-随着拜登现在为波罗的海盟国开绿灯，同时也开始向酝酿中的乌克兰顿巴斯冲突投入更多武器，将莫斯科和北约之间的紧张局势进一步推向边缘，欧洲可能更接近于看到其周边地区爆发全面战争。
+“我们想继续强调人们接受正确的心理健康服务是多么的必要，特别是在我们的地铁系统方面，” 市长周六说。 “以这种方式失去一个纽约人，只会继续提升个人不使用我们地铁系统的恐惧。”
 
-原文链接： [Biden Authorizes Rush Deliveries Of US Weapons To Ukraine Via Baltic Allies | ZeroHedge](https://www.zerohedge.com/markets/biden-authorizes-rush-deliveries-us-weapons-ukraine-baltic-allies)
+“我们的复苏取决于这个城市和地铁系统的公共安全，” 亚当斯(Adams)说。
 
-发布：文泓
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+上周与亚当斯(Adams)一起讨论地铁状况时，州长凯西·霍楚尔说，她正计划组建五个由社会工作者和医疗专业人士组成的团队，帮助城市引导生活在街道和地铁上的人们前往避难所、住房和服务。
+
+**文章来源:**[https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367](https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Freeearth
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
