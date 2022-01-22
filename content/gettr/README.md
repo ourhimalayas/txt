@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 8:50 PM (UTC)`
+
+1月22号：衷心地，感谢战友们的用心．制作直播后的视频剪辑！
+![img](https://media.gettr.com/group11/getter/2022/01/22/20/c02c3f5e-c77a-2363-4d7d-6539cacccc81/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@max_fei 1/22/2022 8:02 PM (UTC)`
@@ -153,13 +160,6 @@ Mr. Steve K. Bannon said the 2022 Beijing Genocide Games should be shut down for
 
 2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富
 ![img](https://media.gettr.com/group9/origin/2022/01/21/12/5941da4c-4a9b-95bb-f297-e73f44503076/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/21/2022 12:06 PM (UTC)`
-
-Mr. Steve K. Bannon: <br/>We have a huge problem with the US attorneys, in the Department of Justice, and throughout the legal system, since the justice system in the United States, including the law firms, has definitely been infiltrated by the Chinese Communist Party, the evil regime.<br/><br/>班农先生：美国检察官，司法部，甚至整个法律系统都出了很大的问题，因为美国的司法系统，包括律师事务所，肯定已经被中共这个邪恶的政权所渗透。
-![img](https://media.gettr.com/group18/origin/2022/01/21/12/7a67ca18-7776-4c39-f462-fb3590659c95/out.jpg)
 
 ---
 
