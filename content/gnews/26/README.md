@@ -2,38 +2,29 @@
 ---
 
 
-## 近900万美国人因中共病毒向雇主请病假
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893209/)
+## 世界卫生组织(WHO)近期会议【建议】世界各国解除禁令
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1893246/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月20日，据统计，已有近900万美国人向雇主请病假，称已感染中共病毒，或需要照顾被病毒感染的人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626756.jpg)
-这个数字是一个月前的三倍，占美国总劳动力的6%。同时，有320万人说找不到工作，比去年12月增加了25% 。薪资服务公司古斯特的经济学家鲁克·帕杜表示，经济能否复苏与病毒流行状况和政府有关的公共卫生政策有关。他举例说，近期航空公司员工因中共病毒请病假而取消了数以万计的航班；在纽约，服务行业人员的工作时间已经从40小时降至21小时。
+撰文: 新中国联邦静2022/01/21
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-302.jpeg)
+世界卫生组织(WHO)于2022年1月19日的会议决议内容中第6项和第7项公布:
 
-据美国CDC的数据，目前奥密克戎占中共病毒确诊病例的98%，成为感染率和传播率最高的变种病毒。评论人士认为，从就业数据看，美国的用工状况仍在进一步恶化，经济还没有真正复苏。
+6. 赞成解除或放宽国际旅行禁令。
 
-接下来继续关注美加跨境卡车司机动向，据了解，为抗议美国和加拿大政府的强制疫苗政策，卡车车队在艾默生入境口岸附近参与示威活动，具体现场情况，我们来观看以下视频。
+7. 赞成国际旅行不需要新冠疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-300.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-301.jpeg)
+引用来源
 
-[https://mega.nz/folder/19xEyAZR#nE3CR0BayHuDdZKziQblKw](https://mega.nz/folder/19xEyAZR#nE3CR0BayHuDdZKziQblKw)
+[https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-(2005)-emergency-committee-regarding-the-coronavirus-disease-(covid-19)-pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
 
-新闻链接：[Nearly 9 Million Americans Call In Sick With COVID-19](https://www.newsmax.com/finance/streettalk/covid-19-workforce-calling-in-sick/2022/01/20/id/1053263/)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-2.png)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-总编：Ivy001
-
-编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

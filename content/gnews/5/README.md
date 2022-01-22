@@ -2,39 +2,41 @@
 ---
 
 
-## 中共中央对郑州7•20特大暴雨灾害事件时任书记立案审查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893429/)
+## 民主党议员被揭露是伪君子 一边周游世界一边拒绝上班
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1893484/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+编译： Jenny Ball
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1771.png)美国国会议员刘云平
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642842208489.jpg)图片来源：雅典娜设计组
+加利福尼亚州洛杉矶县生活新闻（LifeSiteNews） – 加州自由党国会议员刘云平 （Ted Lieu）告诉美国众议院，“由于持续的公共卫生紧急情况”，他不能前往华盛顿特区工作，但被抓到他同时正在度假和享受世界。
 
+《红州》（RedState）报道说，刘“带着他年迈的父母去百慕大过感恩节，然后去夏威夷过圣诞节，并在10月份与他的妻子和兄弟一起，在洛杉矶的索菲体育场“不戴口罩”观看了一场NFL比赛。”
 
-据网易新闻报道：日前，中共国国务院常务会议听取了河南郑州“7·20”特大暴雨灾害调查情况的汇报，并审议通过了河南郑州“7·20”特大暴雨灾害调查报告。
+《红州》出版物的两篇文章包含刘的旅行照片。他没有挑战天主教主教拒绝为他公开宣扬的一系列致命罪过圣餐，但他显然享受度假。
 
-国务院调查组对“7·20”特大暴雨灾害造成重大伤亡和社会关注的事件进行了深入调查。
+1 月 10 日，在前往夏威夷仅两周后，刘提交了代理投票请求，要求允许另一位国会议员代替他投票。
 
-针对事件追责，经中共中央批准，中央纪委对河南省委原常委、郑州市委书记徐立毅在河南郑州“7·20”特大暴雨灾害中违纪问题进行了立案审查。
+此前2021 年 7 月，刘曾批评在 COVID 封锁 14 个月后选择不戴口罩的人是“少数人的暴政”。
 
-经查，徐立毅对河南郑州“7·20”特大暴雨灾害风险认识不足、警惕性不高、防范组织不力，灾害发生后统筹领导和应急处置不当，督导检查和履职尽责不到位，造成严重后果和不良影响。徐立毅对暴雨灾害的相关问题，负有重要领导责任，应予严肃问责。
+“你无权将你的呼吸道飞沫传播给我、给其他人和公共场所及企业，”刘在一条推文中回应了一个拥有 182 名关注者的账户。“大多数理性的美国人都会反对少数人的暴政，他们坚持把唾液留在所到之处。 而且我们会战胜他们。”
 
-依据《中国共产党问责条例》、《中国共产党纪律处分条例》、《中华人民共和国监察法》和《中华人民共和国公职人员政务处分法》等有关规定，经中共中央批准，决定给予徐立毅党内严重警告处分，由国家监委给予其政务降级处分。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1773.png)图片来源：lifesitenews.com
 
-参考链接：
-[https://c.m.163.com/news/a/GU93FB3F0514FGV8.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GU93FB3F0514FGV8.html?spss=today-news-hotrank)
+“保守派嘲笑刘的说法，因为我们一直在遵循预防措施的常识，而不是加入福奇崇拜，”《红州》编辑詹妮弗·范·拉尔（Jennifer Van Laar）写道，“但我想知道，数百万戴口罩的恐惧上瘾的民主党人，他们几乎仅在快速咬一口东西或啜一口饮料时才摘下口罩，他们独自开着丰田车时也戴着口罩，如果另一个人走进他们 6 英尺的泡沫范围，他们会觉得进入了这些新的社会习俗的恐慌模式？ “
 
-*发布：tianzhihuan*
+“他们真的会在乎吗？ 那么一线工人怎么办？他们无法远程完成工作，并被迫与未洗过手的群众密切接触，而刘使用流行病为借口，让他人代替投票而不用去工作？” 她问道。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**评论：任何不诚实都将付出代价，政客也一样，人民看清他们伪善就不会再投票给他们。中共就是靠虚伪，假和骗，走到了今天塔西坨的灭亡陷阱。**
 
+素材链接：[lifesitenews.com][Democrat Congressman unmasked as a COVID hypocrite, traveling for fun while refusing to go to work](https://www.lifesitenews.com/blogs/democrat-congressman-uses-covid-emergency-as-excuse-not-to-go-to-d-c-but-travels-for-fun/)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

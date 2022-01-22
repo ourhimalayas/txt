@@ -2,23 +2,30 @@
 ---
 
 
-## 如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893361/)
+## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
 
-你怎么能给她点烟呢？我给他战友就发个笑脸，啥也没说。这位战友还没放下。如 不果是Rachel那天屁股需要我擦，我也帮她擦屁股，我也毫不犹豫，她愿意的话啊，小王子让我帮他擦，我一定给他擦。你试试。为什么？你需要，你不是变态的需要， 说我现在小王子身体不舒服了，七哥，你帮我照顾我，帮我擦屁股。我答应我绝对会去，我擦得比擦我自己的还干净。这里不会标榜着高低。这就是我们跟人打交道的时候，所有的这些老年人，就是当年的那些打交道，他们没见过一个我，我爱干净，我爱擦、爱拾捣，从不闲着。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-而且我爱照顾人，我想到人家到时间吃饭我都想办法弄饭吃去，酒不够了，我想办法弄酒去。我从来没有得失之心，从来没有高低卑微之心来衡量我自己。包括对孩子，我觉的谁家，我向天发誓，我从来没觉得我儿子，我女儿跟我哥家的儿女不一 样过。我看的QMay的孩子看任何人的孩子，我从来没觉得（有差别），我真的是孩子我看到就喜欢。因为孩子，他来到这个世界上对他来讲，只有一个，他快乐和不 快乐，他真的没有别的选择。我为什么要在我的孩子身上做下那么多标准，让孩子那么多选择呢？当然我对别人也不会这样，我对老人更不会了。一个不尊重老人的人怎么会是正常的人呢？所以说刚才大卫王问的问题，我就回答，我现在我想拿鞋底呼你两下去，是吧，你要该想到什么大卫王？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/如何跟年纪大的人打交道面对病毒怎么做来拯救家人朋友（八）-.jpg)
-发布： *tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
+
+
+据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
+本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+
+台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
+台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
+来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
 
  
 
