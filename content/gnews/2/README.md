@@ -2,42 +2,39 @@
 ---
 
 
-## 有声|大直播—“兄弟姐妹”一词对七哥的神圣意义！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891908/)
+## 有声|法国人寿保险公司拒绝理赔疫苗致死者
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891922/)
 
-配音：香草山健身部 – 玫瑰园
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+配音：香草山农场 – 纳米
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月18日，据相关媒体报道，法国一家人寿保险公司拒绝赔偿一起因接种中共病毒疫苗导致死亡的案件。
 
-七哥在2022年1月17日的大直播中谈到“兄弟姐妹”这个词的神圣意义，因为七哥灭共的一切初衷和动力都来自这个词，本可独自享受顶级大亨悠闲而富足生活的七哥，却偏偏选择了一条最难、最苦、最累、最险的灭共道路，以解救和解放被共产党奴役的兄弟姐妹！
+该保险公司表示，死者明知接种中共病毒疫苗存在严重风险，但其仍旧选择自愿参与疫苗医学试验，此案件应属拒赔范围。
 
-七哥在与战友互动的任何时候都脱口而出“亲爱的兄弟姐妹们”这个词，绝不是我们中国人见面时称兄道弟那么随便和无意，而是七哥由衷的倾注心血的深情厚意，七哥真情实意地把我们跟随的战友当成自己的亲兄弟姐妹一样对待。不管是百岁老人，还是学龄儿童，不分男女老少，不分种族民族，只要反共灭共的人都是七哥的兄弟姐妹，我们战友都是七哥活着的八弟！
+资料显示，2021年，全球范围内寿险索赔的年轻人数量激增，其中，绝大多数死亡案例与接种中共病毒疫苗相关——这些巨额的索赔案件很可能把人寿保险公司推向经营困难的窘境。
 
-原文链接：[大直播—“兄弟姐妹”一词对七哥的神圣意义！](https://gnews.org/zh-hans/1886923/)
+对此，有保险经纪人透露，法国人寿保险的年理赔总额已经从2020年的3亿5千万美元激增至2021年的5亿5千万美元，而这一增长的主要原因在于政府推广了那些所谓“挽救生命”的中共病毒疫苗。 评论人士也提到，目前这种危险的趋势让很多人寿保险公司开始质疑中共病毒疫苗接种者的健康安全，同时，他们也在高度关注疫苗的风险性，从而可以规避那些疫苗伤害案例带来的巨大理赔风险。但对于接种了疫苗的普通民众而言，这将是更大灾难的开始。
 
-音频处理/发稿：Daxia
+文字版原文：[法国人寿保险公司拒绝理赔疫苗致死者](https://gnews.org/zh-hans/1887716/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 12:40 AM (UTC)`
+
+1/21/2022 Miles Guo: The CCP will be finished once its technological and financial sectors are destroyed. With the launch of 5G and 6G, the CCP’s Great Firewall will be gone so that everyone in Communist China will be able to use our platforms. What is the story behind the Dutch photolithography machine manufacturer’s cancellation of the $2.5 billion order from the CCP?<br/><br/>1/21/2022 文贵直播：干掉了科技和金融，中共就玩完；随着5G、6G的投入，防火墙将消失，任何人都将可以使用我们的平台；荷兰光刻机巨头取消中共25亿美元订单的背后有着怎样的故事？
+![img](https://media.gettr.com/group46/getter/2022/01/22/00/51856546-c5af-952f-8354-8bdca61c3eef/out.jpg)
+
+---
+
 `@miles 1/22/2022 12:15 AM (UTC)`
 
 January 21st,2022 Through these media reports, the days when the swamp enslaves the 1.4 billion Chinese people and the people of the world under the financial licenses of the legitimate gangsters are about to be gone for good. What I want is not the $500 million. What we have lost is more than tens of billions of dollars, and the damage it has done to us is immeasurable in terms of money! This lawsuit will show the ugly faces of the swamp to the public. Let’s wait and see!!! Whether it's the CCP, the Party of Davos, or the swamp, all of them are a bunch of financial devils enslaving the people of the world! We must change the rules of the game!✊✊✊🔥🔥🔥<br/><br/>https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending
@@ -144,13 +151,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/19/2022 Miles Guo: The CCP is extremely frightened by the Whistleblowers’ Movement and the New Federal State of China. The vast majority of the 95 million CCP members resent “God Xi”. They wish Xi to attack Taiwan as soon as possible. Taiwan will gain independence once the CCP sets off the war. We will ensure the US and Europe will stay on Taiwan’s side<br/><br/>1/19/2022 文贵直播：看看中共对爆料革命、新中国联邦有多么的恐惧，但9500万中共党员都恨习大神，希望他赶紧去打台湾，一开枪，台湾就得自由了，我们要做的就是让欧美不要放弃台湾<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/20/23/634cdbbb-9b94-d24e-cf4d-21470438914f/out.jpg)
-
----
-
-`@miles 1/20/2022 11:11 PM (UTC)`
-
-1/19/2022 Miles Guo: The Whistleblowers’ Movement once again saved humanity in the disasters caused by the COVID vaccines and the CCP virus. Ivermectin and artemisinin are the biggest nightmare of the “Swamp”. The Party of Davos and the media moguls will be brought to justice by 2025. Xi's era is over! Citizens of the New Federal State of China will become the sunniest rising force!<br/><br/>1/19/2022 文贵直播: 爆料革命在疫苗和病毒灾难中再次拯救了人类；伊维菌素和青蒿素是沼泽地最大的噩梦；达沃斯党和媒体大佬们将在2025年前受到正义的审判；习的时代已结束！新中国联邦人将成为最阳光的新兴力量！
-![img](https://media.gettr.com/group13/getter/2022/01/20/23/791afd17-8175-1215-f92b-c1fa845074cf/out.jpg)
 
 ---
 
