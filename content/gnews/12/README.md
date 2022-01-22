@@ -2,33 +2,31 @@
 ---
 
 
-## MV版Hcoin To the Moon上线45天第31次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1895664/)
+## 浅析Edward Moss在太平联盟诉案中违背职业行为示范规则的缘由
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1895799/)
 
-1/22/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线45天第31次位列澳门iTunes热门音乐视频榜榜首，第38次位列前三名
+作者：阿舟 华盛顿DC农场
+
+由中共控制的太平联盟集团（PAG）作为原告发起的一场诉郭文贵先生合同违约的法律超限战，起始于2017年4月18日。近日，美国律师协会ABA对原告方代理律师Edward Moss和Bradley J Bondi做出严重违反职业行为示范规则的判决，取消了此二人在这一案件中继续代理太平联盟集团的资格。
+
+2022年2月2日将迎来郭文贵先生就此案对原告进行反诉的法庭判决。对于判决结果，追求公平、正义的人们，无不期待着法庭能够以事实真相为依据，做出公正的判决，从而维护美国法律的庄严，让正义得以伸张。
+
+在这场缺乏立案条件、旨在构陷的违约案里，美国法律界极具名气的律师Edward Moss，在诉讼过程中，罔顾事实真相和利益冲突，向法院提供原告蓄意炮制的虚假证据以及违反诉讼程序获取的证据，在诸多方面违背律师的职业行为准则，以缠诉的手段，对被告郭文贵先生造成严重的经济损失、精神伤害、精力上的牵制和消耗，以期达到协助中共铲除政治异己的目的。特别值得指出的是，Edward Moss在2021年10月成为美国Cahill Gordon & Reindel LLP律师事务所合伙人之前，曾担任美国O’Melveny & Myers LLP（美迈斯）律师事务所合伙人长达近七年之久（注释1）。为什么Edward Moss身为美国法律界精英，经验丰富、业务能力超强，却与中共合作，知规违规，构陷被告呢？根据公开资料，Edward Moss曾担任合伙人的O’Melveny & Myers LLP（美迈斯）律师事务所在中共国的两个重要城市北京和上海分别设有代表处。不仅如此，美迈斯律师事务所还在北京和上海两地为政法大学及大学法学院设立了美迈斯法学奖学金，旨在“协助中国培养优秀法律人才，增进美中两国法学界的交流与合作”（注释2）。下面是美迈斯法学奖学金北京地区颁奖典礼仪式的图片（注释3）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/B07A4B0A-FAEF-4802-B325-8C37B6FD6CAF.jpeg)
+显而易见的是，中共治下的《宪法》规定“中国共产党领导是中国特色社会主义最本质的特征”（注释4），中共治下的《教育法》也明确规定，国家坚持中国共产党的领导，坚持以马列毛邓江胡习思想为指导，遵循宪法确定的基本原则，发展社会主义的教育事业（注释5）。中共治下的政法大学和法学院无一例外地坚持和拥护中共的独裁专制统治。在如此一党独大、没有言论自由、没有宗教信仰自由、没有民主、无视人权、党媒不断煽动百姓仇恨美国的中共国，美国美迈斯律师事务所竟然能够获得中共国司法部的许可，在中国境内执业，甚至被允许设立法学奖学金，为中共培养法律人才，这可谓是令人难以置信的事实。一当美迈斯设立的法学奖学金被中共的法治理念和教育原则所准允，很自然地，中共便可以采用任何蓝金黄手段，轻而易举地渗透并操控美迈斯的法律业务，美迈斯必然向中共的独裁统治俯首称臣。就Edward Moss而言，不论其在美迈斯，还是在Cahill，违背律师应当恪守的职业行为示范规则，甘愿做中共的走狗帮凶，也就成为顺理成章的事情。
 
 * * *
 
-[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+*发布：Theodosia*
 
-* * *
+注释：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+1. Edward Moss的职业历史https://www.bloomberg.com/profile/person/18355095
+2. 美迈斯法学奖学金210c2673c2ec4740898818555b9acf2f.pdf (pku.edu.cn)
+3. 美迈斯律师事务所https://baike.baidu.com/item/%E7%BE%8E%E8%BF%88%E6%96%AF%E5%BE%8B%E5%B8%88%E4%BA%8B%E5%8A%A1%E6%89%80/5893283?fr=aladdin
+4. 中华人民共和国宪法 http://www.gov.cn/guoqing/2018-03/22/content\_5276318.htm
+5. 中华人民共和国教育法http://www.moe.gov.cn/jyb\_xxgk/xxgk\_jyfl/flfg\_jyfl/202107/t20210730\_547843.html
 
-
-[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

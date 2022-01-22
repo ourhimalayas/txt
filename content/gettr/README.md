@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 10:27 PM (UTC)`
+
+1/21/2022 Miles Guo: It matters to us whether the Americans are taking down the CCP or not, but we don’t care if they’re Republicans or Democrats; the CCP’s lying skills reached all-time high which made the U.S. videotape its military operations to defend them against the CCP’s bald-faced lies; Nawaz Sharif is a witness proving the CCP has been bribing foreign countries in the world.<br/><br/>1/21/2022 文贵直播：在我们眼里只有灭共或不灭共的美国人，无党派之分！中共造假登峰造极，逼得美军破例录像保留证据，以防中共撒谎造假；谢里夫就是证明中共行贿世界各国的证人！
+![img](https://media.gettr.com/group26/getter/2022/01/22/22/ce5837ba-3080-a8e3-6339-a0130a89afb6/out.jpg)
+
+---
+
 `@miles 1/22/2022 8:50 PM (UTC)`
 
 1月22号：衷心地，感谢战友们的用心．制作直播后的视频剪辑！
@@ -153,13 +160,6 @@ January 21st,2022 Through these media reports, the days when the swamp enslaves 
 
 Mr. Steve K. Bannon said the 2022 Beijing Genocide Games should be shut down for healthy reason that the CCP virus is spreading all over the China, due to the potential harm to athletes and the suppression of LaoBaiXing, and for many obviously moral and ethical reasons. The Chinese LaoBaiXing will be able to win their freedom and the great liberation not just against the transnational criminal organization in Beijing, but also from all their evil partners throughout the world.<br/><br/>班农先生：2022年北京【种族灭绝】冬奥会应该被停办，因为中共病毒正在全国蔓延，因为对运动员的潜在伤害和对老百姓的压迫，因为太多出于道德伦理的原因。 中国老百姓最终将赢得他们的自由和伟大的解放，不仅是从跨国犯罪组织——中共邪恶政权手里，而且还要从他们遍布全球的邪恶同伙手中赢得自由。
 ![img](https://media.gettr.com/group10/origin/2022/01/21/17/907ba063-fb54-2976-5bca-a980a05ae38b/out.jpg)
-
----
-
-`@miles 1/21/2022 12:47 PM (UTC)`
-
-2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富
-![img](https://media.gettr.com/group9/origin/2022/01/21/12/5941da4c-4a9b-95bb-f297-e73f44503076/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
