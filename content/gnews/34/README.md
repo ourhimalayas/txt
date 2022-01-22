@@ -2,36 +2,26 @@
 ---
 
 
-## 法国疫苗通行证即将生效
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893242/)
+## 拜登政府利用金钱鼓励医院误诊甚至杀害市民
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893250/)
 
-撰稿：加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
-根据1月20日外媒报道，法国总理卡斯特周四于巴黎宣布，政府将在2月份取消大部分中共病毒封锁限制，但需持有疫苗通行证，并在室内戴口罩。卡斯特在新闻发布会上说，疫苗通行证将于周一生效。人们将不再被允许出示阴性检测结果进入餐馆、酒吧、剧院、博物馆和体育场或乘坐火车，只接受疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626757.jpg)
-从2月2日开始，许多城市的体育场、竞技场和其他大容量场所，将被允许再次满负荷运行。必须在家工作的规定将被取消，户外将不再需要佩戴口罩。
+##### 翻译：ElonMask
+校对：Lish
+剪辑|字幕：向上James
+编辑：Mttfly
 
-过去一周，法国平均每天中共病毒患者高达32万例。在强制施行疫苗通行证后，法国的疫情走向将会如何，我们会持续关注报道。
+据一位医生爆料，如果医院确诊一位患新冠病人，那么医院可能从这个病人身上获得七笔奖金。拜登政府规定，新冠测试、诊断新冠病人、新冠病人入院治疗、给新冠病人使用瑞德西韦、使用呼吸机、死亡证明诊断是新冠，甚至在藏尸间，医院都能因此获得奖金。拜登政府实际上是在付钱给医院，让他们杀了你。这就是正在发生的事情。据估计，医院从每个新冠病人得到10万美元的费用。
 
+视频链接：[The Biden administration encourages hospitals via bonus payments to misdiagnose and even kill citzens](https://www.bitchute.com/video/qzBbVu1WSw62/)
 
+*发布：Mttfly*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-总编：童谣
-
-编辑：Lakeman文仁
-
-新闻：[France to lift COVID-19 restrictions in February](https://www.politico.eu/article/france-to-lift-covid-19-restrictions-in-february/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-3.png)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

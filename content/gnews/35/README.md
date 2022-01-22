@@ -2,37 +2,35 @@
 ---
 
 
-## 近900万美国人因中共病毒向雇主请病假
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893209/)
+## 法国疫苗通行证即将生效
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893242/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月20日，据统计，已有近900万美国人向雇主请病假，称已感染中共病毒，或需要照顾被病毒感染的人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626756.jpg)
-这个数字是一个月前的三倍，占美国总劳动力的6%。同时，有320万人说找不到工作，比去年12月增加了25% 。薪资服务公司古斯特的经济学家鲁克·帕杜表示，经济能否复苏与病毒流行状况和政府有关的公共卫生政策有关。他举例说，近期航空公司员工因中共病毒请病假而取消了数以万计的航班；在纽约，服务行业人员的工作时间已经从40小时降至21小时。
+撰稿：加拿大温哥华扬帆农场 – Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+根据1月20日外媒报道，法国总理卡斯特周四于巴黎宣布，政府将在2月份取消大部分中共病毒封锁限制，但需持有疫苗通行证，并在室内戴口罩。卡斯特在新闻发布会上说，疫苗通行证将于周一生效。人们将不再被允许出示阴性检测结果进入餐馆、酒吧、剧院、博物馆和体育场或乘坐火车，只接受疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626757.jpg)
+从2月2日开始，许多城市的体育场、竞技场和其他大容量场所，将被允许再次满负荷运行。必须在家工作的规定将被取消，户外将不再需要佩戴口罩。
 
-据美国CDC的数据，目前奥密克戎占中共病毒确诊病例的98%，成为感染率和传播率最高的变种病毒。评论人士认为，从就业数据看，美国的用工状况仍在进一步恶化，经济还没有真正复苏。
+过去一周，法国平均每天中共病毒患者高达32万例。在强制施行疫苗通行证后，法国的疫情走向将会如何，我们会持续关注报道。
 
-接下来继续关注美加跨境卡车司机动向，据了解，为抗议美国和加拿大政府的强制疫苗政策，卡车车队在艾默生入境口岸附近参与示威活动，具体现场情况，我们来观看以下视频。
 
-[https://mega.nz/folder/19xEyAZR#nE3CR0BayHuDdZKziQblKw](https://mega.nz/folder/19xEyAZR#nE3CR0BayHuDdZKziQblKw)
 
-新闻链接：[Nearly 9 Million Americans Call In Sick With COVID-19](https://www.newsmax.com/finance/streettalk/covid-19-workforce-calling-in-sick/2022/01/20/id/1053263/)
+总编：童谣
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-2.png)
+编辑：Lakeman文仁
 
-总编：Ivy001
+新闻：[France to lift COVID-19 restrictions in February](https://www.politico.eu/article/france-to-lift-covid-19-restrictions-in-february/)
 
-编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-3.png)
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
  
 

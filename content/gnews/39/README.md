@@ -2,10 +2,10 @@
 ---
 
 
-## 美国要求联合国制裁相关朝鲜人士，中俄从中拖延
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893139/)
+## 本·哈恩威尔：NBC和ESPN知道中共病毒在北京失控
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893159/)
 
-01/21/2022 印度WION新闻：美国要求联合国对相关朝鲜人士予以制裁，中共和俄罗斯从中拖延
+01/21/2022 本·哈恩威尔：NBC和ESPN不派播报团队，因为知道中共病毒在北京失控。战斗室，2022年1月21日。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
