@@ -2,23 +2,25 @@
 ---
 
 
-## 疫情新闻全球最新速报（1月18日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893882/)
+## 充满艺术色彩的“福岛之冬”：冰封湖畔的树木和朝霞染红的磐梯山
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893888/)
 
-撰稿：东京樱花团/NewSGman
+作者：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-2-7.png)[*图片来源*](https://muji-pctr.c.yimg.jp/AqrN6ZEr8hvRuGCKSskqoOFmQ42SdQNPcXrCedfEsfSjAP21AV5lqseAU3H3GmeLeiA6Y0j3Y33tNKzr5HCeXUZLQGUQUfDGJMOSMupk34VJ0no9gw6p-XiCoepAs_X3)
+这是居住在福岛县一位博客（nana）于1月16日早晨在猪苗代湖天神滨附近拍摄的照片。树上结着密密麻麻的冰块，也就是“花冰”现象。
 
-以色列财政部长李柏曼刚接种疫苗四针，仍感染中共新冠病毒。
+据福岛县旅游信息网站“福岛之旅”透露，猪苗代湖水在严冬期间被西风吹到岸边的树木上结冰，预计从天神岸边穿过南侧树林，流向长濑川河口附近。
 
-以色列卫生部强推疫苗，声称加强针注射后，就能增强保护力成笑话。
+投稿人nana将浅粉红色的天空映照的磐梯山放入视角中，在回复栏中，被其美丽吸引的网民络绎不绝，“太漂亮了”、“美极了”、“太美景了”。
 
-以色列外交部长拉皮德1月10日亦宣布确诊感染中共病毒。以色列周五1月14日重症患者创下近3个月来新高，自疫情以来，人口仅970万的以色列已累计确诊170万例、逾8000人病逝。
+1月18日，J.Townnet记者向投稿人询问拍摄条件后，为了拍照，于前一天抵达了当地。nana说：“从上周开始天气不好，风也很大，所以还以为是水花冰在生长。”
 
-美军最高指挥官米利将军已接种疫苗加强针仍感染中共新冠病毒。
+拍摄前一天和当天，天气预报说“这是可以同时拍摄朝霞和花冰的机会”，因此深夜出发，
 
-盖特链接：[https://www.gettr.com/post/poz5za148c](https://www.gettr.com/post/poz5za148c)
+到达当地后，发现比想象中还要多地生长着“浪花冰”，回味有余地说，“拍摄到了被朝霞染红的磐梯山和阳光灿烂的浪花冰。”
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
+*校对：东京樱花团/kana2020*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

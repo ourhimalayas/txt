@@ -2,26 +2,26 @@
 ---
 
 
-## 美媒抨击强制疫苗令危害远胜切尔诺贝利
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894157/)
+## 台湾入境检验显示近93%是突破性感染
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894158/)
 
-作者：纽约香草山 侠肝义胆
+作者：纽约香草山医疗部 云豹
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.38.50-PM.png)
+当地时间1月21日，在例行记者会上，台湾中央流行疫情指挥中心医疗应变组副组长罗一钧告了中共病毒检测的最新数据统计资料。
 
-据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.25.50-PM.png)
 
-该媒体还提到，美国政府在应对该生物武器引发的疫情时，竟然推出了一种危险的、具有快速跟踪功能的mRNA刺突蛋白“疫苗”。值得注意的是，这种所谓的“疫苗”其实是一种破坏血管和神经系统的工程基因疗法，但美国政府正在试图将其强加给全美民众。数据表明，全美因中共病毒疫苗死亡的人数已超过了80万，而这一数据还在不断攀升。
+资料显示，截至目前，入境台湾的旅客中已经检测到了364例境外输入的奥密克戎变异毒株感染病例。其中，有338例感染者已经完全接种了两剂中共病毒疫苗。对此，罗一钧也提到，在近期检测到的境外输入案例中，奥密克戎变种已经成为主要感染毒株，同时，该感染趋势已经逐渐蔓延至东南亚及南亚地区。
 
-该媒体最后列举到，前苏共政府在上世纪80年代因官僚腐败和掩盖真相导致了切尔诺贝利核灾难的发生，彼时有数千人丧生于灾难之中，而联邦政府目前推行的强制疫苗令已经并且将继续造成比切尔诺贝利更恐怖的灾难。
+而评论人士则指出，据当前的数据分析表明，超过九成的中共病毒感染者属突破性感染，这证实了完全接种中共病毒疫苗对新变异病毒的防护力极低。
 
-参考链接：[The vaccine holocaust is America’s CHERNOBYL… but USA leaders are committing even MORE deaths and deeper EVIL than former Soviet Union officials](https://newstarget.com/2022-01-20-the-vaccine-holocaust-is-americas-chernobyl.html)
+参考链接：[Omicron境外移入364例超越Delta 國內首現中重症患者](https://www.cna.com.tw/news/ahel/202201210201.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：Kathy文艺 
+编辑：文真
 总编：童谣
 校正/发稿：我不在这里
 

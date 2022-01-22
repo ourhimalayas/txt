@@ -2,22 +2,22 @@
 ---
 
 
-## 欧盟报告由疫苗引起的副作用超90万例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894156/)
+## 美媒抨击强制疫苗令危害远胜切尔诺贝利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894157/)
 
-作者：银河系农场 骄子
-
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
 
-当地时间1月20日，据相关媒体报道称，欧盟药品管理局EMA于近日要求其药物警戒风险评估委员会PRAC对中共病毒疫苗的副作用进行全面检测和报告，任何因中共病毒疫苗导致的可疑副作用都将被更新在EMA官方网站每月的不良反应数据库中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.38.50-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.33.21-PM.png)
+据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
 
-据统计，欧盟自中共病毒大流行开始已经向该地区民众提供了超过7亿剂中共病毒疫苗。然而，截止当天，EMA不良反应数据库报告的疫苗副作用超过了90万例，几乎覆盖了市面上所有的中共病毒疫苗品牌。
+该媒体还提到，美国政府在应对该生物武器引发的疫情时，竟然推出了一种危险的、具有快速跟踪功能的mRNA刺突蛋白“疫苗”。值得注意的是，这种所谓的“疫苗”其实是一种破坏血管和神经系统的工程基因疗法，但美国政府正在试图将其强加给全美民众。数据表明，全美因中共病毒疫苗死亡的人数已超过了80万，而这一数据还在不断攀升。
 
-加之近期频频出现的突破性感染案例，有分析人士指出，西方世界里中共病毒疫苗的制造者和推进者罔顾民众宪政政府尊重人权本质，彰显了其大搞疫苗经济的邪恶动机。
+该媒体最后列举到，前苏共政府在上世纪80年代因官僚腐败和掩盖真相导致了切尔诺贝利核灾难的发生，彼时有数千人丧生于灾难之中，而联邦政府目前推行的强制疫苗令已经并且将继续造成比切尔诺贝利更恐怖的灾难。
 
-参考链接：[Europe Confirms Over 900,000 COVID-19 Vaccine Side Effects](https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects)
+参考链接：[The vaccine holocaust is America’s CHERNOBYL… but USA leaders are committing even MORE deaths and deeper EVIL than former Soviet Union officials](https://newstarget.com/2022-01-20-the-vaccine-holocaust-is-americas-chernobyl.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
