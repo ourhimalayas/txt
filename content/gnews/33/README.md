@@ -2,60 +2,50 @@
 ---
 
 
-## 汪建何许人也（二）
-` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1891810/)
+## 奥地利议会通过对所有成年人实行强制性疫苗接种的规定
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1891846/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-4.png)
+作者：纽约香草山农场 – 四季
 
-———— 深挖中共
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-作者： 流浪的阳光
 
-接著我们来看看和汪建有交集的几个人 比尔盖茨 2012年9月25日，华大与盖茨基金会签署合作备忘录。 2013年4月8日，比尔·盖茨一行到访香港华大基因。 2017年10月31日，比尔盖茨基金会成员到访国家基因库。 2018年10月3日，在美国西雅图 ，华大基因和比尔盖茨基金会签署谅解备忘录。
 
-![Image](https://pbs.twimg.com/media/E9O0bhSUcAYl7hB?format=jpg&amp;name=large)
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUUAYb7VX?format=jpg&amp;name=large)
 
-![Image](https://pbs.twimg.com/media/E9O0bhRUcAQuYJf?format=jpg&amp;name=900x900)
+据[布赖特巴特新闻网](https://www.breitbart.com/europe/2022/01/21/austrian-parliament-votes-overwhelmingly-to-introduce-mandatory-vaccination-for-all-adults/)1月21日报道，周四，奥地利议会以137票对仅33票的投票中，以压倒性的优势投票决定对所有18岁以上的居民强制接种中共病毒疫苗。
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUcAE_svk?format=jpg&amp;name=large)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237852125-e1642721903229-640x480-1.jpg)Roland SCHLAGER/APA via Getty APA Images
 
-法兰西斯·柯林斯，美国遗传学家，领导人类基因组计划， 2000 年 6 月 26 日，克林顿在白宫宣布完成人类基因组草图，法兰西斯·柯林斯在侧。 2001年8月28日，江泽民在中南海接见国际人类基因组计划主要负责人，其中有Francis Collins和汪建2009年7月8日，奥巴马提名柯林斯为美国国立卫生研究院院长。
+因医疗原因不能接种疫苗者和孕妇将被免除强制接种，那些已经从中共病毒中康复的人也将在康复后的6个月内获得豁免。但那些拒绝接种疫苗的人可能面临高达3600欧元的罚款。
 
-![Image](https://pbs.twimg.com/media/E9R5mpYVcAcXP2D?format=jpg&amp;name=900x900)
+从3月中旬开始，奥地利警方将在例行检查和交通检查中核查疫苗接种情况，并对那些不能证明已完全接种中共病毒疫苗的人处以罚款。对此，警察工会负责人沃纳·赫伯特（Werner Herbert）表示，警察在这里被用于政治目的是很不恰当的！
 
-![Image](https://pbs.twimg.com/media/E9R5mptVEAAhhyg?format=jpg&amp;name=900x900)
+虽然奥地利议会的绝大多数成员都投票支持这项措施，但由赫伯特·克尔（Herbert Kickl）领导的民粹主义自由党却投票反对这项措施。
 
-![Image](https://pbs.twimg.com/media/E9R5mpXVgAEaIGZ?format=jpg&amp;name=large)
+克尔在脸书上表示，“今天是奥地利议会和我们民主的耻辱日，民粹主义自由党的代表们一致投票反对这项不公正的法律，这是极端的极权主义，我们将尽一切可能减少对大多数公民的强制接种。”
 
-![Image](https://pbs.twimg.com/media/E9R5mpvVEAAPXT-?format=jpg&amp;name=small)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
 
-说到这里，就要聊一聊美国国立卫生研究院了，安东尼．福奇就是美国国立卫生研究院(NIH)下属美国国家过敏和传染病研究所的所长，换言之 弗朗西斯·柯林斯是福奇的顶头上司，他们俩还是好朋友！ 就是柯林斯和福奇一起批准了用美国纳税人的钱给武毒研究所进行了功能增强实验，使病毒武器化，然后来祸害世界。
+编辑/校对/发稿：小鹿
 
-就是这位柯林斯，在2020年3月26日，在NlH官方博客发表了《基因研究显示 新冠肺炎病毒起源于自然》的博文
-也是这位柯林斯，在2020年12月13日接受NBC电视台的采访中呼吁民众要消除对新冠疫苗的怀疑，鼓励大家去打疫苗！
-还是这位柯林斯，在2017 年 6 月和福奇与比尔盖茨一起讨论全球健康领域的研究机会！
 
-![Image](https://pbs.twimg.com/media/E9XNjR0VUAEzcVM?format=jpg&amp;name=large)![Image](https://pbs.twimg.com/media/E9XNjR1UYAE7195?format=jpg&amp;name=large)
 
-![Image](https://pbs.twimg.com/media/E9XNjR0VgAYK5Hl?format=jpg&amp;name=900x900)
+**更多资讯，更多关注**
 
-![Image](https://pbs.twimg.com/media/E9XNjR1VIAA9Q1b?format=jpg&amp;name=small)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-未完待续。
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-编辑：流浪的阳光
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-校对/发稿：Serena
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-汪建何许人也（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
 
 
 

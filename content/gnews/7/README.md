@@ -2,24 +2,27 @@
 ---
 
 
-## 美议员指控奥委会官员助中共掩盖彭帅事件
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892128/)
+## 有声|斯洛文尼亚与台湾就互设代表处进行洽谈
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892141/)
 
-作者：首尔天池农场—zzballac
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在距离中共北京冬奥会正式开幕仅剩两周之际，美国众议员，麦克-加拉格尔，于当天提出了一份《争取彭帅自由法案》。在这份法案中，他要求美国政府依据《全球马格尼茨基人权问责法》对国际奥林匹克委员会的主要官员实施制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-上午9.55.46.png)
-加拉格尔议员指责称，国际奥委会与中国共产党串通一气，帮助中共化解由彭帅失踪事件所带来的公关危机，为北京冬奥会顺利举行排除了障碍。但加拉格尔强调，国际奥委会的介入并没有减轻世人对彭帅的担忧，相反的，全球民众更因此看清了国际奥委会与中共沆瀣一气的真面目。那就是，奥委会没有与彭帅站在一起，反而为中共提供掩护。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间1月18日，据台湾媒体消息显示，近日，斯洛文尼亚总理詹沙在接受媒体采访时透露，斯洛文尼亚正与台湾洽谈互设代表处的相关事宜。
 
-加拉格尔还提到，彭帅缺席了正在举行的澳大利亚网球公开赛，这表明她依然没有获得自由。而鉴于国际奥委会帮助中共当局掩饰其严重侵犯人权行为的做法，加拉格尔呼吁道，仅仅抵制中共北京冬奥会或要求易地举行冬奥会是不够的，应该对巴赫和与中共当局同谋的其他奥委会官员实施制裁。
+詹沙总理表示，他曾经访问过台湾，也见证了台湾的民主，同时，他还表态支持台湾加入世界卫生组织。此外，詹沙指出，台湾海峡两岸的生意人有着密切往来，中共当局没有理由阻止其他国家与台湾建立经贸关系。
 
-参考链接：[Rep. Gallagher to push sanctions on Olympic committee over alleged complicity in CCP Peng Shuai disappearance](https://news.yahoo.com/rep-gallagher-push-sanctions-olympic-220211153.html)
+詹沙也强调，斯洛文尼亚支持台湾人民的主权决定，且无论台湾最终的结果如何，这个决定必须是在没有外来压力以及军事威胁的前提下做出的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+对于立陶宛因准许台湾设立代表处而遭到中共经济报复的事件，詹沙称，这种试图孤立小国家的做法实属害人听闻。他还提到，中共对立陶宛的报复，就长远来看，对各方都不利。
 
-总编：文特
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+詹沙最后呼吁，亚太地区所有爱好和平的国家应该形成一个统一战线联盟，用以确保区域力量的平衡，进而可以共同对抗来自中共的威胁。
+
+文字版原文：[斯洛文尼亚与台湾就互设代表处进行洽谈](https://gnews.org/zh-hans/1880744/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
