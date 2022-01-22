@@ -2,62 +2,47 @@
 ---
 
 
-## 汪建何许人也（二）
-` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1891810/)
+## 纽约市亚裔女子因遭遇孤狼式袭击而丧失生命
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1891839/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-4.png)
+**据《NBC新闻》作者：妮可·阿塞维多 (Nicole Acevedo)，2022年1月15日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/ai2l8-7t1g6.jpg)**警方和公交人员调查周六在时代广场地铁站发生的致命袭击事件。图片来源：NBC**
+纽约市的犯罪统计数据显示，去年反亚裔仇恨犯罪大幅增加。纽约市警察局去年年底说，到2021年12月，针对亚裔的事件比前一年前增加了361%。反亚裔仇恨犯罪事件在大流行期间数目激增。
 
-———— 深挖中共
+周六上午，纽约市一名妇女在一辆迎面而来的火车前被推倒致死。
 
-作者： 流浪的阳光
+纽约市警方表示，事件发生在上午9:30左右，地点在第42街和百老汇附近的时代广场地铁站。
 
-接著我们来看看和汪建有交集的几个人 比尔盖茨 2012年9月25日，华大与盖茨基金会签署合作备忘录。 2013年4月8日，比尔·盖茨一行到访香港华大基因。 2017年10月31日，比尔盖茨基金会成员到访国家基因库。 2018年10月3日，在美国西雅图 ，华大基因和比尔盖茨基金会签署谅解备忘录。
+警方发言人说，这名40岁的妇女被推倒在铁轨上，并被一辆南行的R型列车撞到。她在现场被宣布死亡。
 
-![Image](https://pbs.twimg.com/media/E9O0bhSUcAYl7hB?format=jpg&amp;name=large)
+警察局长基尚·休厄尔(Keechant Sewell)在与市长埃里克·亚当斯 (Eric Adams)在车站举行的新闻发布会上介绍，被认为负有责任的男子逃离现场，但不久后向交通警察自首。
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUUAYb7VX?format=jpg&amp;name=large)
+休厄尔(Sewell)说：“这一事件是孤狼式的，受害者似乎与该嫌疑人没有任何关联。”
 
-![Image](https://pbs.twimg.com/media/E9O0bhRUcAQuYJf?format=jpg&amp;name=900x900)
+另一名妇女告诉警方，该男子几分钟前曾接近她，她担心会被推到铁轨上。
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUcAE_svk?format=jpg&amp;name=large)
+警方在周六晚上确认嫌疑人是61岁的西蒙·马蒂亚尔(Simon Martial)。警方称马蒂亚尔无家可归。他被指控犯有二级谋杀罪。目前还不知道他是否有可以发表意见的律师。
 
-法兰西斯·柯林斯，美国遗传学家，领导人类基因组计划， 2000 年 6 月 26 日，克林顿在白宫宣布完成人类基因组草图，法兰西斯·柯林斯在侧。 2001年8月28日，江泽民在中南海接见国际人类基因组计划主要负责人，其中有Francis Collins和汪建2009年7月8日，奥巴马提名柯林斯为美国国立卫生研究院院长。
+马蒂亚尔有犯罪史，并且一直在假释中。在过去，他有三次与警方的遭遇。
 
-![Image](https://pbs.twimg.com/media/E9R5mpYVcAcXP2D?format=jpg&amp;name=900x900)
+地铁的条件和安全已经成为许多纽约人在大流行期间的担忧。虽然警方的统计数据显示，过去两年地铁中的重大案件数量有所下降，但乘客人数也在下降，因此难以比较。
 
-![Image](https://pbs.twimg.com/media/E9R5mptVEAAhhyg?format=jpg&amp;name=900x900)
+“我们想继续强调人们接受正确的心理健康服务是多么的必要，特别是在我们的地铁系统方面，” 市长周六说。 “以这种方式失去一个纽约人，只会继续提升个人不使用我们地铁系统的恐惧。”
 
-![Image](https://pbs.twimg.com/media/E9R5mpXVgAEaIGZ?format=jpg&amp;name=large)
+“我们的复苏取决于这个城市和地铁系统的公共安全，” 亚当斯(Adams)说。
 
-![Image](https://pbs.twimg.com/media/E9R5mpvVEAAPXT-?format=jpg&amp;name=small)
+上周与亚当斯(Adams)一起讨论地铁状况时，州长凯西·霍楚尔说，她正计划组建五个由社会工作者和医疗专业人士组成的团队，帮助城市引导生活在街道和地铁上的人们前往避难所、住房和服务。
 
-说到这里，就要聊一聊美国国立卫生研究院了，安东尼．福奇就是美国国立卫生研究院(NIH)下属美国国家过敏和传染病研究所的所长，换言之 弗朗西斯·柯林斯是福奇的顶头上司，他们俩还是好朋友！ 就是柯林斯和福奇一起批准了用美国纳税人的钱给武毒研究所进行了功能增强实验，使病毒武器化，然后来祸害世界。
+**文章来源:**[https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367](https://www.nbcnews.com/news/us-news/asian-woman-pushed-death-front-oncoming-train-nyc-rcna12367)
 
-就是这位柯林斯，在2020年3月26日，在NlH官方博客发表了《基因研究显示 新冠肺炎病毒起源于自然》的博文
-也是这位柯林斯，在2020年12月13日接受NBC电视台的采访中呼吁民众要消除对新冠疫苗的怀疑，鼓励大家去打疫苗！
-还是这位柯林斯，在2017 年 6 月和福奇与比尔盖茨一起讨论全球健康领域的研究机会！
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Freeearth
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![Image](https://pbs.twimg.com/media/E9XNjR0VUAEzcVM?format=jpg&amp;name=large)![Image](https://pbs.twimg.com/media/E9XNjR1UYAE7195?format=jpg&amp;name=large)
-
-![Image](https://pbs.twimg.com/media/E9XNjR0VgAYK5Hl?format=jpg&amp;name=900x900)
-
-![Image](https://pbs.twimg.com/media/E9XNjR1VIAA9Q1b?format=jpg&amp;name=small)
-
-未完待续。
-
-编辑：流浪的阳光
-
-校对/发稿：Serena
-
-汪建何许人也（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
-
-新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
-
-新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
