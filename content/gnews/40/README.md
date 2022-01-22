@@ -2,28 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1890544/)
+## オーストラリア、すでに、子供3人が中共ワクチンで死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1890690/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+翻译： 東京櫻花団/夏目&山竹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-189.png)
+1月21日、郭文貴氏のGETTR:
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-20.png)
-文章仅代表作者本人观点，与Gnews无关
+オーストラリアの救急隊員は、導入されたばかりの5歳から11歳の子どもへの中共ワクチン(新型コロナワクチン)接種の結果、すでに3人の子どもが死亡していることを明らかにした
 
-视频参看：[2022.01.21早GTV新闻访谈](https://gtv.org/video/id=61eab4b8533c672fca805b15)
+情報源：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+[https://gettr.com/post/ppij0zf07a](https://gettr.com/post/ppij0zf07a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-16.jpg)
+校正：東京桜花団/风翼
+アップロード：東京桜花団/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
  
 

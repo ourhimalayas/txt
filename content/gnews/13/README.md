@@ -2,36 +2,39 @@
 ---
 
 
-## 有声|中共警告各国运动员谨慎言论
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891921/)
+## 有声|加拿大卡车司机月底将在首都抗议疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1891937/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-9.png)
-1月18日，中共奥组委发出警告，冬奥会期间，外国运动员若违反中共的言论审查法律，将会受到惩罚。
+配音：香草山农场 – 纳米
 
-此前，针对中共开发的一款、泄露运动员隐私的应用程序引发广泛讨论。而美国一直就冬奥会运动员的言论自由和人权问题表示担心，再加上近期中共国运动员彭帅因言论受到迫害事件，中共对言论和人权的打压受到国际社会的广泛关注。而这也将使中共在冬奥会期间实施更加严格的政治言论管制。目前，国际奥委会尚未宣布任何措施，来保护运动员的权利。
 
-原文链接：[中共警告各国运动员谨慎言论](https://gnews.org/zh-hans/1889141/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据1月18日部分社交媒体的信息，加拿大卡车司机反抗政府疫苗强制及封锁措施的行动正持续进行，1月17日晚间， 大卡司机在曼尼托巴省封锁了从加拿大双向进入美国的高速公路。其中一辆车上挂着”反对强制疫苗接种“的条幅。
 
-音频处理/发稿：Daxia
+1月12日，加拿大边境服务局表示，将允许未接种疫苗的加拿大卡车司机从美国入境。但时隔一天，联邦卫生部出尔反尔，宣布疫苗强制令如期推行。如今，这项指令已于1月15日生效。据加拿大卡车协会估计，该政策将涉及18000名司机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+由于美加每年的贸易额超过6500亿加元，约2/3的货物需要通过货运大卡车来往，毫无疑问，疫苗强制令将会加剧两国的物资短缺与物价飞涨。
 
+抗议的组织者号召全国的卡车司机们自本周日起，从四面八方驶向首都渥太华，本月29日在国会、各大主要政府部门的门前举行抗议，要求特鲁多政府取消对各行各业的疫苗强制令，解除所有的限制措施，还自由于人民。他们还表示，不达目的，不会离开。目前活动的专项捐款已接近40万加元。
+
+文字版原文：[加拿大卡车司机月底将在首都抗议疫苗强制令](https://gnews.org/zh-hans/1887693/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
