@@ -2,10 +2,10 @@
 ---
 
 
-## 澳洲证券交易所下跌2.3%，当地股市陷入全球抛售困境
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893051/)
+## 巴基斯坦外长私下谈话透露出习近平已经躲了两年多
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893100/)
 
-01/21/2022 澳大利亚证券交易所下跌2.3%，当地股市陷入全球抛售的困境
+01/19/2022 巴基斯坦外长私下谈话透露出习近平已经躲了两年多
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

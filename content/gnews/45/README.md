@@ -2,27 +2,26 @@
 ---
 
 
-## 法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892363/)
+## 获中共支持的同方威视公司的安检设备大肆入侵欧洲
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892364/)
 
-作者：纽约香草山农场 – 007
+作者：首尔天池农场 – zzballack
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。决议表示，中共组织与规划极端且系统性的政治暴力，构成种族灭绝。
+据外媒1月20日报道，美联社的一篇调查报告说，尽管美国出于安全考虑已将中共公司同方威视列入工业和安全局的实体名单，但是同方威视仍成功打入西方的安保市场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-15.png)
+欧洲和美国的安全官员都担心使用由中共支持的同方威视机器可能存在重大的安全风险，因为通过该机器的电子设备上的敏感文件或信息可能会被中共特工获取。同样，如果威视机器设置被修改成允许拥有爆炸物或枪支的个人不受阻碍地通过安检，那么这可能有助于中共支持的活动，比如恐怖袭击。加拿大政府认为同方威视存在间谍活动的“高度威胁”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-17.png)
-
-前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
-
-此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
+尽管存在这些安全问题，同方威视已为全球170多个国家和地区的客户提供服务，其中包括2019年在欧洲为政府机构、海关、民航机场和港口安装了1000多台安检设备。
 
 参考链接：
 
-- [法國議會壓倒性決議 認定中國對維吾爾人種族滅絕](https://www.cna.com.tw/news/aopl/202201200378.aspx)
+- [Chinese Communist Party-Backed Company Delivers Security Scanners to Global Hot Spots](https://www.breitbart.com/europe/2022/01/20/chinese-communist-party-backed-company-delivers-security-scanners-to-global-hot-spots/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：童谣
+编辑：Lakeman文仁
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

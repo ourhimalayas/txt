@@ -2,28 +2,20 @@
 ---
 
 
-## 世界卫生组织(WHO)近期会议【建议】世界各国解除禁令
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1893246/)
+## 爱尔兰取消了几乎所有的限制
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1893297/)
 
-撰文: 新中国联邦静2022/01/21
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-302.jpeg)
-世界卫生组织(WHO)于2022年1月19日的会议决议内容中第6项和第7项公布:
+翻译/简评：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01221.jpg)图片来自tgcom24
+爱尔兰总理迈克尔·马丁在向全国发表的电视讲话中宣布：从01月22日开始，爱尔兰取消几乎所有为应对 Omicron 变体而引入的反 Covid 限制。
 
-6. 赞成解除或放宽国际旅行禁令。
+因此，本周末爱尔兰的酒吧和餐馆恢复正常，不再要求顾客提供绿色通行证。此外，消除了社交距离的指示以及观众对户外和室内活动的限制。
 
-7. 赞成国际旅行不需要新冠疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-300.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-301.jpeg)
-引用来源
+从周一开始，智能工作的指示也将停止，并将逐步恢复工作。戴口罩的义务将至少持续到 2 月底，国际旅行仍需要绿色通行证，有症状的人也需要自我隔离。
 
-[https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-(2005)-emergency-committee-regarding-the-coronavirus-disease-(covid-19)-pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
+原文链接：https://www.ansa.it/sito/notizie/topnews/2022/01/21/covid-irlanda-elimina-quasi-tutte-le-restrizioni\_d9d2dd23-577c-4439-bdd1-c5c0b110e0f3.html
 
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

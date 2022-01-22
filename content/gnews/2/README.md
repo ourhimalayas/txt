@@ -2,28 +2,35 @@
 ---
 
 
-## 古巴已为所有2岁以上儿童接种中共病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893238/)
+## 美联储密切关注数字现金的发展
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893290/)
 
-撰稿：东京樱花团/向海
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/古巴已为所有2岁以上儿童接种中共病毒疫苗.png)[图片来源](https://www.dw.com/zh/%E6%9D%A5%E8%87%AA%E5%8F%A4%E5%B7%B4%E7%9A%84%E5%A5%87%E8%BF%B9%E7%96%AB%E8%8B%97/a-58120482)
+整理/编辑：小红帽
 
-22日日本雅虎新闻报，古巴宣布已为所有2岁以上的儿童接种中共病毒（新冠病毒Covid-19）疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
-古巴外交部21日宣布，已为所有2岁以上儿童接种中共病毒疫苗，并“显示出极好的效果”。古巴去年8月开始为2岁以上的儿童接种疫苗。
 
-据西班牙通讯社报道，给儿童接种的中共病毒疫苗是古巴自己研发的三类疫苗，均在临床试验中发现有效率超过90%，甚至在委内瑞拉、尼加拉瓜等其他国家也施打了同样疫苗。但是，这些疫苗还未经世界卫生组织（WHO）批准。在古巴，87.5% 的人口已完成疫苗接种。
+据《THE VERG》1月21日报道， CNBC引述，美联储的一份新文件显示，由美国政府支持的数字美元可能会导致更快的资金转移，并且比当前的银行系统更容易获得。
 
-据卫生部称，截至21日，中共病毒累计感染人数为101.5203​​万人，近期每日新增感染人数达到3000人的水平。
+该文件作为“讨论的第一步”，并不提倡实际创建“中央银行数字货币”（或 CBDC）。尽管如此，数字美元的创建将是一个巨大的转变。然而，其中也会潜在不利因素，包括：降低商业银行对消费者的吸引力，并影响美联储影响金融体系的能力。美联储现在正在征求意见，包括对该文件可能遗漏的任何内容。
 
-信息来源：
+据路透社报道，该文件朝着数字美元的存迈出了一步，当时大约有 90 个其他国家正在考虑创建自己的数字货币。欧洲中央银行正在研究创建数字欧元，中国一直在测试数字人民币。
 
-[キューバ、２歳以上の全ての子どもへ新型コロナのワクチン接種を実施（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/74613a49d1b6f22c5ed725c6e8c615a9b708ddb5)
+与此同时，在加密货币领域中，稳定币（其中一些将其价值与美元挂钩）的地位一直在上升。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+参考链接：[Digital cash gets a look from the Fed](https://www.theverge.com/2022/1/21/22894101/federal-reserve-us-government-digital-dollar-central-bank-currency)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
