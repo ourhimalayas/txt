@@ -2,27 +2,37 @@
 ---
 
 
-## 从印度政府和个人起诉比尔盖茨 来看中共反人类组织的荒谬和非法
-` chongerfei777` [轉載自GNews](https://gnews.org/zh-hans/1894076/)
+## 欧盟报告由疫苗引起的副作用超90万例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894156/)
 
-作者：Aiolis
+作者：银河系农场 骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-22-194849.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-图片来自网络
+当地时间1月20日，据相关媒体报道称，欧盟药品管理局EMA于近日要求其药物警戒风险评估委员会PRAC对中共病毒疫苗的副作用进行全面检测和报告，任何因中共病毒疫苗导致的可疑副作用都将被更新在EMA官方网站每月的不良反应数据库中。
 
-从文贵先生开启爆料革命以来，无数次揭露中共的假和黑，反人类性质，并在中共病毒肆虐世界的大环境下，在被威胁中勇敢地在直播中告诉世界：「不要打疫苗，疫苗的mRNA就是病毒」，目前疫苗造成的伤害远远高于病毒本身，而且未来十年甚至更久的时间都会出现严重副作用甚至导致死亡的后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.33.21-PM.png)
 
-事件的主人公Kiran Yadav在2021年年底的时候递交了一份诉状，关于她23岁的儿子在打了阿斯利康疫苗后死亡，因此她起诉比尔盖茨，印度的疫苗沙皇阿达尔·普奥纳瓦拉、印度政府和公共卫生官员。她的儿子在去年9月接种疫苗，29日当天死于疫苗副作用。
+据统计，欧盟自中共病毒大流行开始已经向该地区民众提供了超过7亿剂中共病毒疫苗。然而，截止当天，EMA不良反应数据库报告的疫苗副作用超过了90万例，几乎覆盖了市面上所有的中共病毒疫苗品牌。
 
-她在起诉文件中强调公职人员帮助黑恶势力的大药企，面对「疫苗大屠杀」不作为，他们撒下弥天大谎，宣称疫苗完全安全，限制交通和购物，造成对未接种疫苗公民的政策歧视。警察局长、印度中央调查局局长以及卫生福利部首席秘书。同时对比尔盖茨和印度血清研究所提出指控，因为该研究所是全球最大的疫苗制造商，按生产和销售剂量计算。这样的起诉，在中共国能发生吗？中共就是土匪，他是反人类组织，腾讯公司在南山法院打官司从来没输过，为什么？文贵先生在中共国，因为中共找不到任何合法的理由，就以各种栽赃嫁祸，暴力手段侮辱和威胁的方式对郭先生下面的员工，包括非法剥夺资产，在中共国的「党和国家领导人」你网上说一句不是，都要被派出所轻则拘留写保证书，重则判刑和肉体消失甚至株连屠城。
+加之近期频频出现的突破性感染案例，有分析人士指出，西方世界里中共病毒疫苗的制造者和推进者罔顾民众宪政政府尊重人权本质，彰显了其大搞疫苗经济的邪恶动机。
 
-在中共国比尔盖茨一直被宣传为正面形象，就像人类历史最大的屠夫「毛太阳」，比尔盖茨和武汉生化实验室以及福奇的关系，中共心知肚明。中共把反人类的变态塑造成伟光正的英雄人物，践踏一切法律，党最大，一切党说了算，背后就是中南坑老杂毛们，不仅盗取14亿国人财富，还奴役他们进行非法残暴统治，并祸害着全世界，要为其生殖器乱国的后代们挥霍和延续红色江山，其行为已经天怒人怨。新中国联邦在未来必将让他们接受审判，他们过去践踏的法律，践踏的奴隶，最终都是要制裁他们的抓手和天意！
+参考链接：[Europe Confirms Over 900,000 COVID-19 Vaccine Side Effects](https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects)
 
-[参考链接](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-*审阅：丘杰斯
-发稿：Hong*
+编辑：Kathy文艺 
+总编：童谣
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

@@ -2,25 +2,26 @@
 ---
 
 
-## 春节百姓返乡 中共无能懒政一刀切
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1894404/)
+## 福奇拒绝为污蔑备受尊敬的流行病学家而道歉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894453/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-341.jpg)
-[图片来源](http://www.xinhuanet.com/2021-01/21/c_1127006973.htm)
+##### 翻译：Frank
+校对：精靈藍
+剪辑|字幕：Biggod
+编辑：Mttfly
 
-1月22日，中共国务院联防联控机制举行新闻发布会。会上，中共国家卫健委新闻发言人米锋表示，春节临近，人员开始返乡，对于来自不同风险区域的返乡群众，各地要分类、分区精准落实防控措施，防止政策执行简单化、一刀切，防止层层加码。
+斯坦福大学医学教授Bhattacharya博士在接受福克斯采访时称，福奇是国家过敏性传染病研究所的负责人，几乎每一个著名的传染病流行病学家和病毒学家都从他那里得到工资。福奇控制了整个科学界的声音并让人们不断打加强针。Bhattacharya博士呼吁，福奇已经造成了太多伤害，应该让福奇退休了。
 
-由于中共体制的痼疾，政策执行历来是层层加码，简单粗暴。当前，中共国内疫情此起彼伏，加之正值北京冬奥会和各级“两会”即将召开之际。不管中共国家机关嘴上如何讲，在实操层面，都只会是层层加码，层层甩锅，最终苦的还是返乡过节的普通百姓。
+视频链接：[Fauci refuses to apologize for smearing highly respected epidemiologists](https://video.foxnews.com/v/6291380964001#sp=show-clips)
 
-信息来源：
-
-[国家卫健委：春节临近，返乡政策防止一刀切](https://www.toutiao.com/i7055920137068675617/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1642839644&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_android&amp;use_new_style=1&amp;req_id=20220122162044010212183147006ED741&amp;share_token=b9b285c6-3)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

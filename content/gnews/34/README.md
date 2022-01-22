@@ -2,37 +2,22 @@
 ---
 
 
-## 台湾入境检验显示近93%是突破性感染
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894158/)
+## 班农先生谈天安门事件，谈科罗拉多一位勇敢的母亲
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1894172/)
 
-作者：纽约香草山医疗部 云豹
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生谈天安门事件、谈科罗拉多一位勇敢的母亲1.jpg)
+表面上来讲，西方世界说在帮助中共国，不想让这个国家政权倒在天安门广场，我们看看整个历史的演变，天安门事件为什么这么样的重要？就是在柏林墙倒下的时候，很多年轻的人，也包括郭文贵先生，他也是很年轻，站起来说我们马上就要自由了，我们一定会自由！西方世界也就是布什他们当时支持了这个政权。整个经济上的争论，对我们的美国老百姓来讲：我们越来越多和中国共产党在一起工作，我们一定会改变他们，整个经济会更好。他们会看到整个资本主义的一些利益，市场的开放，他们一定会跟我们一样，他们会变成我们自由中的一个，拥有我们的法制，拥有西方所拥有的一切。这是一个谎言，完全就是谎言，这一切根本没有发生，完全相反的事情却发生了。作为一个全球主义者，他们在全世界更加的猖獗。在西方世界，特别是达沃斯的这些力量，也就是整个的华尔街，他们越来越强大了。我们来看看，在科罗拉多，有这么一位勇敢的美国的母亲，她的儿子和女儿在战争中勇敢献出了自己的生命。我们的社会当中没有任何一个人会比这样的母亲更伟大。FBI竟然是踢开了他的门，然后做调查，整个是失控，为什么呢？他们完全模拟了拜登的政府，完全就是整个华尔街，所有的机构都完全模拟了中国共产党执政的方式，我们要记住这一点。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发布：开智则立*
 
-当地时间1月21日，在例行记者会上，台湾中央流行疫情指挥中心医疗应变组副组长罗一钧告了中共病毒检测的最新数据统计资料。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.25.50-PM.png)
-
-资料显示，截至目前，入境台湾的旅客中已经检测到了364例境外输入的奥密克戎变异毒株感染病例。其中，有338例感染者已经完全接种了两剂中共病毒疫苗。对此，罗一钧也提到，在近期检测到的境外输入案例中，奥密克戎变种已经成为主要感染毒株，同时，该感染趋势已经逐渐蔓延至东南亚及南亚地区。
-
-而评论人士则指出，据当前的数据分析表明，超过九成的中共病毒感染者属突破性感染，这证实了完全接种中共病毒疫苗对新变异病毒的防护力极低。
-
-参考链接：[Omicron境外移入364例超越Delta 國內首現中重症患者](https://www.cna.com.tw/news/ahel/202201210201.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
-
-编辑：文真
-总编：童谣
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,38 +2,33 @@
 ---
 
 
-## 美媒抨击强制疫苗令危害远胜切尔诺贝利
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894157/)
+## 中共脖子上的绞索正在不断的勒紧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1894166/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-194.png)
+2022年1月21日，郭文贵周五大直播爆料有两个巨大的好消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.38.50-PM.png)
+第一个好消息：西方世界和中共的政治经济脱钩今天开始！
 
-据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
+欧盟可能会有至少3—4个国家永久关闭中共国大使馆，而且英法德这几个大国很可能会参加这样的决定！美国可能会抢着干，因为谁先干，谁就代表着自由世界的老大。习近平大怒，认为被上海帮玩弄了！ 相信只要这一刻发生，就意味着西方世界和中共在政治、经济双脱钩。全世界在政治上只能和新中国联邦，经济只能和喜联储挂钩！！
 
-该媒体还提到，美国政府在应对该生物武器引发的疫情时，竟然推出了一种危险的、具有快速跟踪功能的mRNA刺突蛋白“疫苗”。值得注意的是，这种所谓的“疫苗”其实是一种破坏血管和神经系统的工程基因疗法，但美国政府正在试图将其强加给全美民众。数据表明，全美因中共病毒疫苗死亡的人数已超过了80万，而这一数据还在不断攀升。
+第二个好消息：荷兰的AMSL光刻机公司已经明确拒绝出售光刻机给中共！
 
-该媒体最后列举到，前苏共政府在上世纪80年代因官僚腐败和掩盖真相导致了切尔诺贝利核灾难的发生，彼时有数千人丧生于灾难之中，而联邦政府目前推行的强制疫苗令已经并且将继续造成比切尔诺贝利更恐怖的灾难。
+芯片是中共的核心，只要中共制造缺少了芯片了，它的科技、互联网、防火墙全部归零！现在，AMD在重庆投资的100亿全部打水漂了。英国MI6是爆料革命绝对的盟友，他们向荷兰人解释了，中共派去AMSL卧底的混血儿，睡他们的工程师、蓝金黄手段和中共吃狗肉的信息，就这样，中共花了25亿美元购买市场价为5亿美元的光刻机的春梦彻底破灭了……
 
-参考链接：[The vaccine holocaust is America’s CHERNOBYL… but USA leaders are committing even MORE deaths and deeper EVIL than former Soviet Union officials](https://newstarget.com/2022-01-20-the-vaccine-holocaust-is-americas-chernobyl.html)
+科技和金融是中共的两条腿，灭共首先要打断中共这两条腿！相信随着天空WiFi开始使用，5G，甚至6G马上要投入，中共就会没有防火墙。没有防火墙后GTV、盖特、Gnews，任何人都可以轻易上线，通过使用我们的G平台，中共的“假恶偷”等诸多罪行会彻底曝光！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+现在，中共只有在国际监督下彻底解体，并进行真正一人一票选举的政治改革，才是唯一正确的道路！！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-73.jpg)
+信息来源：
 
-编辑：Kathy文艺 
-总编：童谣
-校正/发稿：我不在这里
+[2022年1月21日 文贵大直播](https://gtv.org/video/id=61eb498e533c672fca809f27)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*配图：东京樱花团设计组*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

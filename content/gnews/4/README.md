@@ -2,35 +2,36 @@
 ---
 
 
-## 有声|FBI和辉瑞联手阻挠记者调查疫苗真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894530/)
+## 中共加强掌控香港教育大学不承认学生会地位
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894626/)
 
-配音：香草山农场 – 纳米
+署名：纽约香草山 医疗部 云豹
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据司法观察1月18日消息，联邦调查局FBI和辉瑞制药联手，企图阻扰非营利性调查性新闻组织-“真相工程”记者调查疫苗真相。
+当地时间1月20日，香港教育大学宣布不再承认该校学生会地位，该校原有的学生会未来不能再使用教育大学的名称。 校方同时收回原有学生会的会址，并接管学生会帐下900万港币的存款。
 
-此前，真相工程发布了针对辉瑞制药的一系列卧底视频。在答复信息自由法案（FOIA）请求时，联邦调查局（FBI）告诉司法观察，在针对真相工程的调查档案中，有联邦调查局与辉瑞公司的通信记录。但在1月6日，联邦调查局却拒绝披露所有关于联邦调查局官员与辉瑞公司之间、关于真相工程来往通信的请求。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1920x1080_197240410426.jpg)
 
-文字版原文：[FBI和辉瑞联手阻挠记者调查疫苗真相](https://gnews.org/zh-hans/1888057/)
+自从中共全面进驻香港，将香港中共化后，原来在2019年积极参与香港反送中运动的多所香港大学院校，已经出现被整肃的现象。 此前已经有香港中文大学学生会被解散、香港大学校方不承认学生会地位，以及多所大学的校方拒绝帮学生会代收会费的事件。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+ 此次教育大学紧缩学生自治权的举动，再度证明中共黑手逐步伸入香港高等教育学府，企图将香港高等教育全面中共化.
+
+参考链接：[https://www.cna.com.tw/news/acn/202201210110.aspx?](https://www.cna.com.tw/news/acn/202201210110.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+总编：童谣
+校正/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

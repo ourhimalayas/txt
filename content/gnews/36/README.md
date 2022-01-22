@@ -2,26 +2,26 @@
 ---
 
 
-## 欧盟报告由疫苗引起的副作用超90万例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894156/)
+## 台湾入境检验显示近93%是突破性感染
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894158/)
 
-作者：银河系农场 骄子
+作者：纽约香草山医疗部 云豹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-当地时间1月20日，据相关媒体报道称，欧盟药品管理局EMA于近日要求其药物警戒风险评估委员会PRAC对中共病毒疫苗的副作用进行全面检测和报告，任何因中共病毒疫苗导致的可疑副作用都将被更新在EMA官方网站每月的不良反应数据库中。
+当地时间1月21日，在例行记者会上，台湾中央流行疫情指挥中心医疗应变组副组长罗一钧告了中共病毒检测的最新数据统计资料。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.33.21-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.25.50-PM.png)
 
-据统计，欧盟自中共病毒大流行开始已经向该地区民众提供了超过7亿剂中共病毒疫苗。然而，截止当天，EMA不良反应数据库报告的疫苗副作用超过了90万例，几乎覆盖了市面上所有的中共病毒疫苗品牌。
+资料显示，截至目前，入境台湾的旅客中已经检测到了364例境外输入的奥密克戎变异毒株感染病例。其中，有338例感染者已经完全接种了两剂中共病毒疫苗。对此，罗一钧也提到，在近期检测到的境外输入案例中，奥密克戎变种已经成为主要感染毒株，同时，该感染趋势已经逐渐蔓延至东南亚及南亚地区。
 
-加之近期频频出现的突破性感染案例，有分析人士指出，西方世界里中共病毒疫苗的制造者和推进者罔顾民众宪政政府尊重人权本质，彰显了其大搞疫苗经济的邪恶动机。
+而评论人士则指出，据当前的数据分析表明，超过九成的中共病毒感染者属突破性感染，这证实了完全接种中共病毒疫苗对新变异病毒的防护力极低。
 
-参考链接：[Europe Confirms Over 900,000 COVID-19 Vaccine Side Effects](https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects)
+参考链接：[Omicron境外移入364例超越Delta 國內首現中重症患者](https://www.cna.com.tw/news/ahel/202201210201.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：Kathy文艺 
+编辑：文真
 总编：童谣
 校正/发稿：我不在这里
 

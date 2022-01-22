@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/22/2022 1:11 PM (UTC)`
+
+EP6: The Truth. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第六集：真相。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles  #thetruth #theccpvirus #annihilationofwhitepopulation #electionbeingrigged #hbovice #hbovice訪談真相
+![img](https://media.gettr.com/group33/origin/2022/01/22/13/7b91cad0-5c17-718c-4c22-36d0c4bcf3e8/out.jpg)
+
+---
+
 `@miles 1/22/2022 6:48 AM (UTC)`
 
 1/21/2022 Miles Guo: In order to attract the foreign officials to attending the Beijing Winter Olympics, the CCP will provide all kinds of cruel food ingredients such as raw monkey brain and other protected animals. Many influential people have canceled their trips to the Beijing Olympics after seeing the videos I sent to them. All those who attend the Winter Olympics will be put on the list of “Participants of CCP’s 2022 Winter Olympics” by the New Federal State of China and will be condemned forever!<br/><br/>1/21/2022 文贵直播: 中共为引诱外国官员参加北京冬奥会，泯灭人性提供变态食材！许多大佬看到文贵提供的录像后取消了赴奥行程。参加冬奥会的人员会被新中国联邦列入2022冬奥会参加者名单并永远遭到谴责！<br/>
@@ -144,13 +153,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/19/2022 Miles Guo: It’s announced for the first time that the CCP virus pandemic is going to end this May, but the COVID vaccine disaster will unfold. “Xi the sun” has turned to inviting people at the Davos forum to enjoy a shared post-vaccine economy and to profit from people’s suffering. The CCP has locked the Chinese people in their homes and is presenting a false appearance of peace and prosperity. The false prosperity that will be manifested by the grandiose scenes of the Beijing Winter Olympics will ring the death knell for the CCP.<br/><br/>1/19/2022 文贵直播: 首次公布今年5月份病毒将接近尾声，疫苗灾难将接踵而至；习太阳转而邀约共享疫苗经济；中共粉饰太平，中国老百姓被困家中；北京冬奥涂脂抹粉终将唱响中共丧歌<br/>
 ![img](https://media.gettr.com/group45/getter/2022/01/20/23/2757e575-4ede-fcca-97ba-db419da1dc68/out.jpg)
-
----
-
-`@miles 1/20/2022 11:36 PM (UTC)`
-
-1/19/2022 Miles Guo: The New Federal State of China has become as influential as the swamp because we are the unvaccinated. Behind the ban of ivermectin, artemisinin, and hydroxychloroquine are only a handful of people in the swamp, media, big techs, and European and American governments, who want to eliminate those they can’t tolerate by using the COVID vaccine. The COVID vaccine is the real disaster.<br/><br/>1/19/2022 文贵直播：不打疫苗让新中国联邦跟沼泽地平分秋色；禁止用伊维菌素, 青蒿素和羟氯喹的背后是沼泽地、媒体、科技巨头和欧美政府的极少数人要用疫苗杀掉他们不能容忍的人 - 疫苗才是灾难！<br/>
-![img](https://media.gettr.com/group16/getter/2022/01/20/23/24502bc8-fc1e-a500-ea2c-94627b9d0ecf/out.jpg)
 
 ---
 

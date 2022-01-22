@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|诺奖得主称，未接种疫苗的人将拯救人类
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894519/)
+## 樱花数据分析│加拿大：两针接种者更易感染奥密克戎毒株
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1894566/)
 
-配音：香草山农场 – 纳米
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-50.png)
+加拿大阿尔伯塔省官方数据显示，自12月中下旬以来的每10万人新增感染人数，两针接种者超过了未接种者。这与奥密克戎毒株出现的时间相符。
 
+并与我们观察到的安大略省的数据一致。即两针接种者更易感染奥密克戎毒株。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1794.png)
+按1月20日数据计算，对于两针接种者，疫苗有效率为 -20.8%。 即两针接种者感染风险为未接种者的1.2倍。 ADE和疫苗对免疫系统的破坏需要被调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日，诺贝尔奖得主，法国著名病毒学家吕克.蒙塔尼耶，在意大利当地的反中共病毒疫苗集会中公开表示，未接种中共病毒疫苗的人，将挽救人类并结束这场病毒危机。
+备注：有效率 = 1 – 接种者中感染比例 / 未接种者中感染比例*100%**= 1 – 接种者每10万人感染人数 / 未接种者每10万人感染人数*100%
 
-蒙塔尼耶于2008年获得诺贝尔生理学、医学奖，是世界艾滋病研究与防治基金会主席，也艾滋病病毒的发现者之一。
+数据来源：
 
-蒙塔尼耶此前曾表示，大规模接种疫苗是不可接受的错误，疫苗根本没有保护作用，而且一些科学家和患者也发现，接种疫苗的人更有可能感染病毒。
+[COVID-19 Alberta statistics](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
 
-文字版原文：[诺奖得主称，未接种疫苗的人将拯救人类](https://gnews.org/zh-hans/1888011/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
