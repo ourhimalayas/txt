@@ -2,30 +2,31 @@
 ---
 
 
-## 中日财经爆│美国发起反击 暂停中共国航空公司44个航班
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893374/)
+## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-193.png)[图片来源](https://s.newtalk.tw/album/news/701/61eb75f218eb9.png)
-美国运输部周五(1月21日）表示，将暂停四家中共国航空公司从美国飞往中国的44个航班，以回应中共政府因担心中共病毒（新冠病毒Covid-19）疫情而暂停部分美国航空公司航班的决定。
+**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
 
-在美国政府采取这一行动之前，中共国有关部门暂停了美国联合航空公司、美国航空集团和达美航空的总共44个航班，因此前有乘客检测出中共病毒阳性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-这一决定从1月30日起生效，从厦门航空原定从洛杉矶飞往厦门的航班开始实施，并将削减厦门航空、中国国航、中国南方航空和中国东方航空的部分航班。
 
-美国运输部表示，中共国暂停一些航班“不利于公众利益，有必要采取适当的补救行动。”声明还说，中共国“对被点名的美国航空公司采取的单方面行动与中美双边协议不符”。
+Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
 
-美国运输部表示，如果中共国修改“其政策，为美国航空公司带来必要的改善情况，运输部已做好充分准备，将再次重新考虑这一行动。”但它也警告称，如果中共国取消更多航班，“我们保留采取进一步行动的权利。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
 
-自去年12月以来，被取消的美国航班数量激增，因为高传染性的中共病毒Omicron变种在美国引发的感染飙升至创纪录高点。
 
-消息来源:
+据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
+本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
 
-[美国将从1月30日起暂停四家中国航司从美国飞往中国的44个航班（更新版）](https://cn.reuters.com/article/us-biden-china-airlines-0122-idCNKBS2JW02S?il=0)
+台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
+台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
+来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
