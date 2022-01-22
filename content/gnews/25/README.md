@@ -2,10 +2,10 @@
 ---
 
 
-## 欧洲正在因为疫苗护照而变成中共国的模样
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892845/)
+## VICE记者杨贝贝喜欢吃狗肉，并说：“其实味道很不错”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892943/)
 
-01/19/2022 法律哲学家伊娃：宪法赋予我们的权力正在被无限期地废除。疫苗护照让我们想到社会信用系统最初的样子。欧洲正在变成中共国的模样。
+10/22/2014 VICE记者杨贝贝（Isobel Yeung）喜欢吃狗肉，并说：“其实味道很不错”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

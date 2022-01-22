@@ -2,12 +2,16 @@
 ---
 
 
-## 美国和加拿大卡车司机在边境集结以抗议疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892981/)
+## 别人拿发糕七哥拿发糕票粮票，钱票
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893056/)
 
-01/19/2022 北美的疫情限制正在对供应链危机产生不利影响。美国和加拿大卡车司机在边境集结抗议疫苗强制令
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
+
 
  
 

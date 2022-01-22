@@ -2,12 +2,16 @@
 ---
 
 
-## WHO前副主席：中共病毒疫苗杀死的人比中共病毒杀死的人还多
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1892911/)
+## 最好的安全就是大家彼此相信
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893025/)
 
-01/18/2022 世卫组织前副主席在欧盟峰会上发表讲话：中共病毒疫苗杀死的人比中共病毒杀死的人还多。批准和推广该疫苗是医学史上最大的丑闻。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
+
 
  
 

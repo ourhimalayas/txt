@@ -2,16 +2,12 @@
 ---
 
 
-## 最好的安全就是大家彼此相信
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893025/)
+## 巴基斯坦外长私下谈话透露出习近平已经躲了两年多
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1893100/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-图片来源：雅典娜设计组
+01/19/2022 巴基斯坦外长私下谈话透露出习近平已经躲了两年多
 
-```
-发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
-```
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
