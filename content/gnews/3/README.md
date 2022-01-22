@@ -2,32 +2,10 @@
 ---
 
 
-## 币安倒掉对喜币的影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1895053/)
+## 艺术可以成为我们共同的语言
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895141/)
 
-###### **整理：雅典娜速记组**
-**编辑：请你喝可乐**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/币安倒掉对喜币的影响、清水冷香_01.jpg)
-
-赵长鹏的结局被做掉，对咱喜币有啥好处？ 所有的好处都是咱的， 全人类只有一个能接受中国人数字货币的合法 的，就是喜交所。 
-我们有
- ♦ 信用国际化，
- ♦ 有公司，
- ♦ 有总部，
- ♦ 有储备金，
- ♦ 有黄金，
- ♦ 有专业的团队，
- ♦ 有合法牌照。
-
-*发布：请你喝可乐*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+台灣寶島農場
 
  
 

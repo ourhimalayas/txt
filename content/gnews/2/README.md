@@ -2,43 +2,23 @@
 ---
 
 
-## 有声|ASML没有被允许向中（共）国出口光刻机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895087/)
+## 澳洲维多利亚呼吁退休教师及准毕业生加入师资储备
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1895166/)
 
-配音：香草山健身部 – 玫瑰园
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/011207.jpg)网络图片
+澳大利亚维多利亚州政府今日公开呼吁，希望已经退休教师和即将毕业的教育专业学生成为 CCP病毒大流行下的储备师资。该州政府正试图在学年开始之前进行备用人力资源的征集，虽然该州记录的每日新增病例数目前略有下降。维州防疫响应指挥官 Jeroen Weimar 说：“这是一项简单而务实的措施，可以真正确保我们有一个良好的开端。”
 
+目前教师搜寻的范围包括寻找退休或不活跃的教师、校长、学校即将毕业的学生和行政人员。一旦入选他们将签订短期的定期合同，公立学校的隔离期也会在合同中被考虑。
 
+然而即便符合条件，预备教师还是必须完成两剂CCP病毒疫苗的接种，并持有当前能够与儿童一起工作的登记证明。这意味着即便在目前教师资源紧张的形势下，未接种CCP病毒疫苗或未完整接种CCP病毒疫苗的人士依然被边缘化并排除在外。事实上，完整的疫苗接种似乎也并没有成功防止学校成为CCP病毒爆发传播的源头之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
+在过去 24 小时内，澳大利亚维多利亚州共记录了 16,016 例新增CCP病毒感染。虽然在数字方面稍有下降，然而仍有超过1000人目前依然处于住院状态。
 
+维多利亚州政府现在正朝着强制加强针注射的方向发展，以增加接种第三针 CCP病毒疫苗的人数。澳大利亚第九新闻台预计，维多利亚州的居民可能很快就必须在接种CCP病毒加强针之后才能进入咖啡馆或餐馆等设施。
 
-
-ASML（艾司摩尔，荷兰费尔德霍芬半导体装置制造商）的CEO周三（2022年元月十九日）表示，该公司尚未获准向中（共）国出口最先进的光刻机系统设备。而这些系统设备是制造先进计算机芯片所必需的。
-
-这些机器被认为是可能有军事用途的两用设备。在美国政府的压力下，荷兰政府已拒绝向ASML颁发出口这种机器的许可证。首席执行官Peter Wennink表示，他认为中（共）国不太可能独立复制顶尖的光刻技术，因为ASML依赖于不懈的创新和整合，只有非中（共）国供应商才能提供组件。
-
-原文链接：[ASML没有被允许向中（共）国出口光刻机](https://gnews.org/zh-hans/1888661/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+新闻参考链接：[Retired teachers being called on to become COVID-19 relief resources in Victoria](https://www.9news.com.au/national/coronavirus-victoria-update-booster-mandate-looms-for-victorians-to-be-considers-triple-vaccinated-when-entering-cafes-and-restaurants/d73a9c77-b3c1-4f24-a976-fc50e561d8a3)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

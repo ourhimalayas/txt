@@ -2,28 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1895022/)
+## 要把中国人从噩梦中解脱
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1895117/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2022.01.22早GTV新闻访谈](https://gtv.org/video/id=61ec064b533c672fca80fb8b)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+台灣寶島農場
 
  
 

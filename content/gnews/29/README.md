@@ -2,32 +2,51 @@
 ---
 
 
-## 习听闻欧盟多国将同时关闭住中使馆后大怒上海帮
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894674/)
+## LANCET论文：7名注射3针中共病毒疫苗的德国人全部感染
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1894756/)
 
-撰稿：纽约香草山农场福音部-恩永存
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+注射实验性的中共病毒疫苗不能预防感染！[THE LANCET](https://www.thelancet.com/)本月18日发表的论文提到的7名到南非的德国游客，在注射3针COVID-19病毒疫苗后22~59天内全部感染中共病毒的omicron变种版本就是很好的例子。
 
-2022年1月21日，据郭先生在大直播中透露，昨天下午，欧盟多国将同时关闭所有住中国的大使馆，而且是永久关闭。习听说这一消息后大怒，突然觉得上海帮玩弄了他。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-34.jpg)
-郭先生以为，如果欧盟开始关闭住中使馆，美国一定跟着，美国的同盟也会跟着。这一刻如果发生，就预示着政治经济双脱钩，意味着中共开始倒计时。郭先生以前苏联为例，说其解体前，欧洲几大国就先与其断交，世界多国就跟着断交。中共走到今天是因他们对多国使用假、骗、偷，在世界放出黄、金、毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccine-COVID-19.png)
 
-郭先生认为，多国与中共断交，是新中国联帮的实力所致，这些与中共断交的国家，必找一个代表中国人的机构，新中国联帮就是唯一的选择。这些与中共经济脱钩的国家，他们的钱只有一个好去处，那就是喜联储。
+本文摘自南非Stellenbosch大学医学与健康科学学院医学病毒学部（Division of Medical Virology Faculty of Medicine and Health Sciences University of Stellenbosch）和南非开普敦Tygerberg校区（Tygerberg Campus, Cape Town, South Africa）国家卫生服务实验室(National Health Laboratory Service，NHLS) Constanze Kuhlmann、Wolfgang Preiser等人于2022年1月18日发表在《柳叶刀》（[THE LANCET](https://www.thelancet.com/)）上的论文[Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2822%2900090-3/fulltext)中的案例。
 
-参考链接：[https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Lancet.jpeg)
 
+7名注射了中共病毒疫苗加强针（3 doses）的德国游客，先后在2021年11月30日至12月2日期间，感染中共病毒的omicron变种版本 (PANGO lineage B.1.1.529, Nextstrain clade 21K)。
 
-总编：Irene木木
-校正/发稿：Daxia
+这7人是德国两个不相关社会团体的成员，包含5名白人女性和2名白人男性，年龄在25~39岁之间。由于都是从事医学相关职业，因此都注射了3针中共病毒疫苗。在感染omicron病毒以前，均无SARS-CoV-2病毒感染史。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+其中，3名女性和2名男性注射的三针疫苗全部为BioNTech的BNT162b2疫苗，1名27岁的女子前2针注射的是BioNTech BNT162b2疫苗，第三针是Moderna的CX-024414疫苗，另1名27岁的女子第1针注射的是AstraZeneca的ChAdOx1-S疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在注射加强针后，这7人都具有与接种第2针疫苗4周后相似的病毒刺突蛋白结合抗体（viral spike protein binding antibodies）水平。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Basic-demographic-data-vaccination-history-and-laboratory-findings.jpg)
+
+在感染中共病毒omicron变种版本后，胸闷（Chest pressure）、干咳（Dry cough）、疲劳（Fatigue）、头痛（Headache）、鼻炎（Rhinitis）、窦压（Sinus pressure）和咽喉痛（Sore throat）是最多的症状。尤其咽喉痛、疲劳、头痛、干咳非常常见，干咳和疲劳几乎一直存在。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Clinical-symptoms-during-the-observation-period.jpg)
+
+这7位中，有4人属于轻度COVID-19症状，3人属于中度（呼吸急促，shortness of breath）COVID-19症状，血氧水平（Blood oxygenation levels (SPO2)）&gt;94%，属于正常范围内，没有人住院或死亡。
+
+每毫升RNA拭子（swab eluate）病毒RNA载量log10值为4·07~8·22，平均值5.83为。血清（serum）内防突刺蛋白抗体（Anti-spike antibody）水平为15,000~40,000 AU/mL(毫升)，平均值为22,000 AU/mL。
+
+所有人都是在注射第二针疫苗后21–37周内注射第3针疫苗（加强针），在注射完加强针后22~59内被感染。
+
+试验性的中共病毒疫苗不能预防中共病毒！
+
+参考数据：
+
+[Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://doi.org/10.1016/S0140-6736%2822%2900090-3)
+
+[Correspondence：Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/action/showPdf?pii=S0140-6736%2822%2900090-3)
+
+[Supplementary Material：Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/cms/10.1016/S0140-6736%2822%2900090-3/attachment/ee482364-eb89-448a-9b5a-754decfcb729/mmc1.pdf)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
