@@ -2,37 +2,28 @@
 ---
 
 
-## 有声|诺奖得主称，未接种疫苗的人将拯救人类
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894519/)
+## 安省“弱势群体”在觉醒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1894673/)
 
-配音：香草山农场 – 纳米
+by:温哥华圆成农场
 
+翻译：追郭大姨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-140.png)
+据**ICES**数据显示，安省只有**22%**的孕妇和**10%**年龄在**65**岁以下的无家可归者接受了“第三针”的注射。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月15日，诺贝尔奖得主，法国著名病毒学家吕克.蒙塔尼耶，在意大利当地的反中共病毒疫苗集会中公开表示，未接种中共病毒疫苗的人，将挽救人类并结束这场病毒危机。
+于是“专家”们出来警告和呼吁：“要更加努力的工作，好让这些高危的弱势群体更多的接受第三针，以抵挡来式凶猛的**Omicron**”。
 
-蒙塔尼耶于2008年获得诺贝尔生理学、医学奖，是世界艾滋病研究与防治基金会主席，也艾滋病病毒的发现者之一。
+**评论：**在媒体和所谓“专家”的推波助澜下，“第三针”快速席卷了整个安省。骗人的把戏上演了一次，又一次，现在又要上演第三次！第四次可能在路上了！而且每一次他们鬼把戏的上演都有堂而皇之的理由。这次他们打着“保护弱势群体”的旗号，让本不该被定义为“高危人群”的孕妇和无家可归者打第三针。试问要有多少一尸两命的人间惨剧发生，这些媒体和专家们才会良心发现？不！也许他们永远都不会发现，因为原本他们就是魔！
 
-蒙塔尼耶此前曾表示，大规模接种疫苗是不可接受的错误，疫苗根本没有保护作用，而且一些科学家和患者也发现，接种疫苗的人更有可能感染病毒。
+今天的世界是多么的扭曲和悖谬，完全掌握在邪恶者的手里！只有我们新中国联邦给这黑暗的世界带来一缕阳光！我们双手合十向我们的神祷告：愿普天下善良的人们快快醒来！
 
-文字版原文：[诺奖得主称，未接种疫苗的人将拯救人类](https://gnews.org/zh-hans/1888011/)
+新闻链接：[High-risk Ontarians lagging on third doses of COVID vaccine | The Star](https://www.thestar.com/news/gta/2022/01/21/high-risk-ontarians-lagging-on-third-doses-of-covid-vaccine.html)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+编辑：LILY
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发布：面包飞上天
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+20220121
 
  
 

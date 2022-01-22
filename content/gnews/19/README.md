@@ -2,41 +2,51 @@
 ---
 
 
-## 县长大人的“恶意返乡”论
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1894627/)
+## LANCET论文：7名注射3针中共病毒疫苗的德国人全部感染
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1894756/)
 
-撰稿：菜园子112～尕虎
-视频来自社群媒体
-近日一段视频在墙内网上流传，河南省郸城县县长董鸿在电视会议上，声色俱厉，杀气腾腾的讲话：“凡是从中高风险地区试图返回，不讲你有没有疫苗接种证明，不讲你有没有48小时核酸检测，你只要返回，先隔离再拘留。”
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+注射实验性的中共病毒疫苗不能预防感染！[THE LANCET](https://www.thelancet.com/)本月18日发表的论文提到的7名到南非的德国游客，在注射3针COVID-19病毒疫苗后22~59天内全部感染中共病毒的omicron变种版本就是很好的例子。
 
-董鸿这番话传出后，惹得舆论大哗。随后，董鸿回应媒体采访时称：上述视频经过剪辑，不真实，剪辑掉了“不听劝阻，恶意返乡”等内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccine-COVID-19.png)
 
-墙内网友说：
+本文摘自南非Stellenbosch大学医学与健康科学学院医学病毒学部（Division of Medical Virology Faculty of Medicine and Health Sciences University of Stellenbosch）和南非开普敦Tygerberg校区（Tygerberg Campus, Cape Town, South Africa）国家卫生服务实验室(National Health Laboratory Service，NHLS) Constanze Kuhlmann、Wolfgang Preiser等人于2022年1月18日发表在《柳叶刀》（[THE LANCET](https://www.thelancet.com/)）上的论文[Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2822%2900090-3/fulltext)中的案例。
 
-“啥叫恶意返乡？老百姓干啥了？辛苦一年回家过年管这叫恶意返乡？”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Lancet.jpeg)
 
-“那我生在河南我是不是属于恶意投胎了？”
+7名注射了中共病毒疫苗加强针（3 doses）的德国游客，先后在2021年11月30日至12月2日期间，感染中共病毒的omicron变种版本 (PANGO lineage B.1.1.529, Nextstrain clade 21K)。
 
-“回家都成恶意了，地方官员为了乌纱无所不用其极！”
+这7人是德国两个不相关社会团体的成员，包含5名白人女性和2名白人男性，年龄在25~39岁之间。由于都是从事医学相关职业，因此都注射了3针中共病毒疫苗。在感染omicron病毒以前，均无SARS-CoV-2病毒感染史。
 
-什么是“恶意返乡”？
+其中，3名女性和2名男性注射的三针疫苗全部为BioNTech的BNT162b2疫苗，1名27岁的女子前2针注射的是BioNTech BNT162b2疫苗，第三针是Moderna的CX-024414疫苗，另1名27岁的女子第1针注射的是AstraZeneca的ChAdOx1-S疫苗。
 
-老百姓要回自己的家乡，因为那里有离不开的故土，有忘不了的乡情，有日夜惦记的老爹老娘，有朝思暮想的兄弟姊妹，这能有什么“恶意”呢？春节到了，老百姓返个乡，能有什么恶意呢？
+在注射加强针后，这7人都具有与接种第2针疫苗4周后相似的病毒刺突蛋白结合抗体（viral spike protein binding antibodies）水平。
 
-县长大人你给我们草民解释一下，什么是“恶意返乡”？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Basic-demographic-data-vaccination-history-and-laboratory-findings.jpg)
 
-郸城是中国的郸城，是郸城百姓的家乡，不是你董县长的私宅。然而，郸城却搞了一套自己的土地政策，对百姓返乡实行严控，对不听话者重拳出击。
+在感染中共病毒omicron变种版本后，胸闷（Chest pressure）、干咳（Dry cough）、疲劳（Fatigue）、头痛（Headache）、鼻炎（Rhinitis）、窦压（Sinus pressure）和咽喉痛（Sore throat）是最多的症状。尤其咽喉痛、疲劳、头痛、干咳非常常见，干咳和疲劳几乎一直存在。
 
-这其中，哪里有什么“恶意返乡”啊，分明就是“恶意加码”！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Clinical-symptoms-during-the-observation-period.jpg)
 
-另有墙内网友作诗一首：“独在疫乡为疫客，每逢佳节甭思亲。尔等恶意回家时，先封家门再拘人。”
+这7位中，有4人属于轻度COVID-19症状，3人属于中度（呼吸急促，shortness of breath）COVID-19症状，血氧水平（Blood oxygenation levels (SPO2)）&gt;94%，属于正常范围内，没有人住院或死亡。
 
-注：部分内容引用自墙内网友
+每毫升RNA拭子（swab eluate）病毒RNA载量log10值为4·07~8·22，平均值5.83为。血清（serum）内防突刺蛋白抗体（Anti-spike antibody）水平为15,000~40,000 AU/mL(毫升)，平均值为22,000 AU/mL。
 
-新闻参考链接：
+所有人都是在注射第二针疫苗后21–37周内注射第3针疫苗（加强针），在注射完加强针后22~59内被感染。
 
-[新浪网](https://news.sina.com.cn/c/2022-01-22/doc-ikyakumy1847621.shtml)（中共国墙内网站）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+试验性的中共病毒疫苗不能预防中共病毒！
+
+参考数据：
+
+[Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://doi.org/10.1016/S0140-6736%2822%2900090-3)
+
+[Correspondence：Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/action/showPdf?pii=S0140-6736%2822%2900090-3)
+
+[Supplementary Material：Breakthrough infections with SARS-CoV-2 omicron despite mRNA vaccine booster dose](https://www.thelancet.com/cms/10.1016/S0140-6736%2822%2900090-3/attachment/ee482364-eb89-448a-9b5a-754decfcb729/mmc1.pdf)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

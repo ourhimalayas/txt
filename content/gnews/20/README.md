@@ -2,36 +2,41 @@
 ---
 
 
-## 中共加强掌控香港教育大学不承认学生会地位
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894626/)
+## 美国将加强芯片投资 以增强对华竞争力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894731/)
 
-署名：纽约香草山 医疗部 云豹
+**【雅典娜快讯】，紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-35.jpg)
 
-当地时间1月20日，香港教育大学宣布不再承认该校学生会地位，该校原有的学生会未来不能再使用教育大学的名称。 校方同时收回原有学生会的会址，并接管学生会帐下900万港币的存款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1920x1080_197240410426.jpg)
 
-自从中共全面进驻香港，将香港中共化后，原来在2019年积极参与香港反送中运动的多所香港大学院校，已经出现被整肃的现象。 此前已经有香港中文大学学生会被解散、香港大学校方不承认学生会地位，以及多所大学的校方拒绝帮学生会代收会费的事件。
+图片来源：雅典娜设计组
 
- 此次教育大学紧缩学生自治权的举动，再度证明中共黑手逐步伸入香港高等教育学府，企图将香港高等教育全面中共化.
 
-参考链接：[https://www.cna.com.tw/news/acn/202201210110.aspx?](https://www.cna.com.tw/news/acn/202201210110.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-总编：童谣
-校正/发稿：Daxia
+据路透社报道：1月21日美国众议院议长佩洛希(Nancy Pelosi)表示，美国众议院将提出一项法案，以提高美国对中国的竞争力，并增加在半导体方面的支出。拜登政府正寻求增加国内芯片生产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
+英特尔宣布，将向俄亥俄州的两家新的芯片制造厂投资逾200亿美元，这是一个可能在未来几年受益于联邦资金的大型制造项目。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+拜登政府正努力说服国会批准提供资金，帮助美国的芯片生产。目前，用于汽车和电脑的关键零部件的短缺加剧了供应链瓶颈问题。
 
+美国参议院去年通过了《美国创新与竞争法案》，其中包括520亿美元用于增加美国半导体生产，并授权1900亿美元用于加强美国的技术和研究。
+
+拜登之前表示，通胀飙升“与供应链密切相关”，美国必须有自力更生生产汽车所需的电脑芯片的能力。
+
+参考链接：[https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

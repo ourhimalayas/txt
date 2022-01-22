@@ -2,34 +2,36 @@
 ---
 
 
-## 历史的今天2021.01.22
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1894321/)
+## 中共加强掌控香港教育大学不承认学生会地位
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894626/)
 
-作者：JAY (杰伊)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-26.jpeg)
-1，1949年1月22日：中共接管北平。
+署名：纽约香草山 医疗部 云豹
 
-2，1951年1月22日： 中共镇压反革命运动，毛泽东电告中共中央华南分局广东方面负责人称：“你们已杀了三千七百多，这很好，再杀三四千人”，“今年可以杀八九千人为目标”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-3，1968年1月22日：美国为阻止共产党渗透到南越，开始安装电子监视系统。
+当地时间1月20日，香港教育大学宣布不再承认该校学生会地位，该校原有的学生会未来不能再使用教育大学的名称。 校方同时收回原有学生会的会址，并接管学生会帐下900万港币的存款。
 
-4，1999年1月22日：纳粹大屠杀幸存者与瑞士一些银行达成协议，银行支付12.5亿美元，作为战后未归还大屠杀时期资产的赔偿。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1920x1080_197240410426.jpg)
 
-5，2013年1月22日：菲律宾针对中共国对南中国海主张采取法律步骤，正式通知中共国，其正在寻求国际仲裁，宣布中共国在该海域的非法行为。
+自从中共全面进驻香港，将香港中共化后，原来在2019年积极参与香港反送中运动的多所香港大学院校，已经出现被整肃的现象。 此前已经有香港中文大学学生会被解散、香港大学校方不承认学生会地位，以及多所大学的校方拒绝帮学生会代收会费的事件。
 
-6，2013年1月22日：在朝鲜试射一枚远程导弹后，联合国批准加强对朝鲜的制裁。
+ 此次教育大学紧缩学生自治权的举动，再度证明中共黑手逐步伸入香港高等教育学府，企图将香港高等教育全面中共化.
 
-7，2019年1月22日：习近平表示警惕既要高度警惕“黑天鹅”事件，也要防范“灰犀牛”事件；既要有防范风险的先手，也要有应对和化解风险挑战的高招；既要打好防范和抵御风险的有准备之战，也要打好化险为夷、转危为机的战略主动战。
+参考链接：[https://www.cna.com.tw/news/acn/202201210110.aspx?](https://www.cna.com.tw/news/acn/202201210110.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-8，2019年1月22日，中共国要求美国放弃要求加拿大引渡华为高管孟晚舟，将所谓损害中加关系的案件的责任推给美国。
+总编：童谣
+校正/发稿：Daxia
 
-9，2020年1月22日，世卫组织总干事谭德塞首次就CCP病毒发表示对是否宣布此次疫情为国际关注的突发公共卫生事件极为慎重。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
-10，2021年1月22日，中共通过其“海警法”，授权其海警部队对外动武。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
-
-*发布：Theodosia*
 
  
 

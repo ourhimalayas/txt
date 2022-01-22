@@ -2,41 +2,36 @@
 ---
 
 
-## 美国将加强芯片投资 以增强对华竞争力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1894731/)
+## 有声|加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1894965/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，据媒体报道，加拿大因未接种疫苗而被解雇的员工提起的诉讼已经堆积如山。 多伦多就业律师，图马金律所联合创始人利奥·桑菲鲁表示，从业20年，从未见过在这么短时间内处理同一问题的案子。仅他的律所就代理了来自加拿大各地的数百名委托人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-35.jpg)
+去年11月，TTC员工工会要求法官停止交通委员会的疫苗政策，称解雇未接种疫苗员工，会导致服务中断，但遭到法官拒绝。桑菲鲁说，雇主有权解雇员工，但只有在雇员犯有 “重大不当行为 “时，才能免于支付遣散费，而 “不接种疫苗”根本不属于这一类。很多雇主还没有意识到，他们不但要面临巨大的诉讼成本，还可能面对“不当解雇”而导致的巨额赔付。
+
+原文链接：[加拿大对未接种疫苗员工的“不当解雇”诉讼堆积如山](https://gnews.org/zh-hans/1890167)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-
-图片来源：雅典娜设计组
-
-
-整理：Eileen（围剿维尼熊）
-编辑：5m
-
-据路透社报道：1月21日美国众议院议长佩洛希(Nancy Pelosi)表示，美国众议院将提出一项法案，以提高美国对中国的竞争力，并增加在半导体方面的支出。拜登政府正寻求增加国内芯片生产。
-
-英特尔宣布，将向俄亥俄州的两家新的芯片制造厂投资逾200亿美元，这是一个可能在未来几年受益于联邦资金的大型制造项目。
-
-拜登政府正努力说服国会批准提供资金，帮助美国的芯片生产。目前，用于汽车和电脑的关键零部件的短缺加剧了供应链瓶颈问题。
-
-美国参议院去年通过了《美国创新与竞争法案》，其中包括520亿美元用于增加美国半导体生产，并授权1900亿美元用于加强美国的技术和研究。
-
-拜登之前表示，通胀飙升“与供应链密切相关”，美国必须有自力更生生产汽车所需的电脑芯片的能力。
-
-参考链接：[https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932)
-
-发布：星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

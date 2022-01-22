@@ -2,99 +2,39 @@
 ---
 
 
-## 信仰之路
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1894252/)
+## 接种疫苗后的可怕后遗症
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1894558/)
 
-作者：香草山健身部 – 新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-我们逃离了头顶的镰刀斧头
-我们挣脱了奴役的枷锁
-我们从假大丑中迷途知返
-得到摆渡的灵魂轻松愉快
+撰稿：银河系农场-骄子
 
-原来自由就是美好的开始
-真实就是幸福的由来
 
-独裁的统治下没有人权
-何来尊严
-万恶的中共没有人性
-何来公平
 
-![](https://cdn.discordapp.com/attachments/902176588546850836/934323304137887814/E862F4A2-6FA8-41A8-907E-FE06813E5DCB.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-布满荆棘的神州
-找不到一丝丝为人概念的希望
-只有金灿灿的谎言下丑陋狰狞的嘴脸
-所有的真相如羊入虎口进了防火墙
 
-没有自由的人们就没有安全
-没有真相的民心愚不可及
 
-垄断市场让你穷
-垄断信息要你傻
-化学食品要你病
+一位名叫Mark Ruston，接种过两针阿斯利康新冠疫苗的男性正在承受严重的后遗症。据Mark回忆，他之前进行过肾移植手术，因此免疫系统较脆弱，比很多人都要早地去接种了新冠疫苗。
 
-外来邪灵的家天下
-传承千年的国人成了居民
+接种以后身体出现的问题有：长时间的浑身发冷、不间断地流臭鼻水、视力变模糊、听觉功能丧失、严重头痛、甚至发生过严重的胸痛事件。左腿和手臂都出现了血凝块，左腿的去医院后被药物溶解了，手臂的血凝块巨大，只能通过做手术切除。Mark说自己做血透析做了不到5年，每周3次，在接种新冠疫苗之前从未有过血凝块。Mark非常后悔自己接种了新冠疫苗。
 
-8964的先贤们
-712圣城不屈的英魂们
-多少悲壮慨歌
-为追求普世价值
-千万个被杀害
-几万个被自杀
-依然铁骨铮铮为理想
-如雄鹰断翅悬崖学飞翔
-前仆后继浪推浪
+参考链接：
+https://gettr.com/post/ppmtsnc6d7
 
-![](https://cdn.discordapp.com/attachments/902176588546850836/934323458849013841/6AC181D6-36AB-40B3-BDE6-6E104695BAFB.png)
 
-那代表着自由民主的蓝色国旗
-闪耀着七七四十九个星
-象征着五湖四海的和平
-飘扬在阳光下
-召唤着善良的世人
-开启从善利他的新文明
-凝聚起晶莹剔透的灵魂
-引领世界正道潮流
-三山五岳知道你的爱
-五十六个民族懂得你的情谊
+总编：童谣
+校正/发稿：Daxia
 
-全自由的平台
-新星般横空问世的盖特
-火炬的火焰蓬勃向上
-向世界传播共产之恶
-日夜不停扑灭疫苗灾难
-为人类带来健康的8/30余音绕梁
-
-爆料革命唯真不破
-传递着正义和真相
-为达喜马拉雅之顶峰
-不惧飓风洪水
-勇创喜系列之传奇
-再建G系列之帝国
-
-为实现公平公正、人权尊严
-铺平道路
-为世界千年和平
-烟火脉脉绣人间！
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
-
-**校对/发稿：童谣**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-90.jpeg)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
