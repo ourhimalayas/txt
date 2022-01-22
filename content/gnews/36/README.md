@@ -2,35 +2,44 @@
 ---
 
 
-## 01/22每日播报｜美国众议院即将推出芯片投资法案对抗中共竞争
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1893793/)
+## 周四晚Twitter发生严重宕机事故
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1893845/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61ebc6a8533c672fca80e48f)**
+作者：银河系农场 – 骄子
 
-**[2022-01-21](https://gtv.org/broadcast/watch/61ebc6a8533c672fca80e490)**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-《路透社》华盛顿1月21日报道，周五，美国众议院议长南希-佩洛西（Nancy Pelosi）表示，在美国政府寻求国内芯片生产之际，美国众议院将很快推出一项法案，以提高美国对抗中共的竞争力，并增加联邦在半导体方面的支出。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-305.jpeg)图片来源：THE U.S.SUN NEWS
+据外媒报道，1月20日周四晚6点至8点，大量用户报告在使用Twitter时发生了问题。
 
-佩洛西对民主党同事说：”众议院将很快提出《竞争法案》。她在给民主党同事的一封信中表示：“众议院的立法将增加我们对芯片的投资，加强我们的供应链并改变我们的研究能力，还有许多其他关键条款。
+据Downdetector称，53%的Twitter用户在使用该网站时遇到问题，36%的用户在使用该应用程序时遇到问题，12%的用户报告在服务器连接时遇到问题。
 
-在宣布这一消息前几个小时，英特尔公司宣布将在俄亥俄州的两个新的芯片制造厂投资超过200亿美元，这是一个大型制造项目，该项目可能在未来几年从联邦获得资金帮助。
+目前事故原因尚未确定。
 
-由于汽车和电脑中关键芯片的短缺，加剧了相关产品供应的紧张，美国政府正在说服国会批准资金，以帮助提高美国的芯片产能。
+参考链接 [https://www.the-sun.com/news/4507772/twitter-down-website-outages-worldwide-downdetector/](https://www.the-sun.com/news/4507772/twitter-down-website-outages-worldwide-downdetector/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+编辑：童谣
+校对/发稿：文敬
 
-去年参议院通过了《美国创新和竞争法》（U.S. Innovation and Competition Act），其中包括520亿美元拨款，用于增加美国的半导体生产，并授权使用1900亿美元加强美国的技术和研究对抗中共竞争。
+**更多资讯，更多关注**
 
-拜登在本周早些时候表示，飙升的通货膨胀 “与供应链有关”，美国有能力在制造汽车所需的计算机芯片方面实现自力更生。政府已经为缓解芯片短缺做出了努力，包括与行业高管和盟友会面讨论这一话题，并启动了商务部的一项研究，以确定瓶颈和其他问题。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据报道，英特尔最初的200亿美元投资项目，将在新奥尔巴尼1000英亩的土地上创造3000个就业机会。英特尔首席执行官帕特·盖尔辛格(Pat Gelsinger)对路透社表示，这项投资可能会增长到1000亿美元，政府的资助促使这项投资更快地启动并发展壮大。而这将是俄亥俄州历史上最大的一笔投资。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-（ 秘翻新闻主编   冰糖葫芦喵编译报道 ）
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-发布:星星
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-* * *
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
