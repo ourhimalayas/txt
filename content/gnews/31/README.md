@@ -2,41 +2,35 @@
 ---
 
 
-## 吃起狗肉来有声有色的杨贝贝Isobel Yeung是真心爱狗吗
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1891970/)
+## 比特币价格暴跌：加密货币指数暴跌9.62%，数十亿美元从市场上蒸发！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1892045/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获_副本-1.png)
-郭文贵先生转了杨贝贝吃狗肉的盖特——
-![](https://assets.gnews.org/wp-content/uploads/2022/01/001.png)
-下面我们就按图索骥来看一下原片——
+作者：新西兰伊甸农场 V在途中
 
-视频来源：[纪录片 《玉林狗肉节》 美国记者抨击中国人吃狗肉……](http://k.sina.com.cn/article_7530565666_m1c0db502203300w5uq.html?display=0&amp;retcode=0)
 
-曾经看过一个故事说一个在英国受过高等教育的白人到非洲冒险，他来到了食人生番部落并最终融入食人生番的部落，多年后他的同胞在非洲从林里碰到了这位白人同胞，看到他大快朵颐地吃人肉，就非常吃惊地问他，你来自文明世界如何能吃得下人肉呢？这位已经融入食人生番的白人回答说：No! 我跟他们还是不一样的，你没看到我在吃人肉的时候用的是刀叉吗？
 
-相较于食人生番，把吃狗看成天经地义的中国也是另一种的落后，这种血腥的落后需要革除，而那个到玉林狗肉节探班的杨贝贝Isobel Yeung则不然，她和她所任职的VICE的到来意味着文明世界对玉林狗肉节的审视，但是吃起狗肉来有声有色的杨贝贝Isobel Yeung却又一次地惊掉了我们的下巴，为什么呢？因为这一次吃狗肉的是来自文明世界的并且是说英语的美国女记者，那么她与那些视吃狗肉为天经地义的中国同胞有什么不同呢？——她分明是用拿惯刀和叉的手在吃狗肉嘛！
+[加密货币](https://www.independent.co.uk/topic/cryptocurrency)市场已经出现了戏剧性的崩盘，从市场上消失了9.62%。
 
-撰稿：喜马拉雅的肉夹馍；
+[比特币](https://www.independent.co.uk/topic/bitcoin)在过去24小时内下跌了8.47%，全周下跌14.95%。以太坊24小时下跌了11.83%，全周下跌21.11%。
 
-审核：喜马拉雅的馍夹肉；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/BTC-USD.gif)比特币/美元
 
-校对：Maarago；
 
-（文章内容仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/ETH-USD.gif)以太坊币/美元
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+这是在交易量急剧增加情况下发生的，主要是因为人们急于摆脱快速贬值的加密货币而造成巨幅下跌。根据跟踪网站CoinMarketCap的数据，加密市场交易量增长了111.73%。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+最近的下跌意味着比特币已经轻松跌破了人们非常重要的心里指标40，000美元大关，达到收盘36，559.63 。以太坊币收盘达到2，605.12
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+今年糟糕的表现与去年2021年底破纪录的表现形成鲜明对比。比特币在11月创下历史新高，几乎触及7万美元，但现在比这一纪录低45.89%。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+对”加密货币冬天”的日益担忧可能即将成真。比特币在新的一年里就有了最糟糕的“里程碑”开局。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 
