@@ -2,26 +2,29 @@
 ---
 
 
-## 【秘翻在线】联邦法院阻止了拜登政府对联邦雇员的强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1891555/)
+## 英国仁医恳请病人不可再接种新冠病毒疫苗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1891687/)
 
-**撰稿：Grace**
+加拿大杨帆农场  编译：Cran，校对编辑，发稿：硫酸羟氯喹64
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2021-12-05-at-5.03.16-PM.jpeg)图片来源： unitedpushback
-据USSA NEWS 1月21日报道， 德克萨斯州的美国法官周五发布了一项全国范围的禁令，禁止联邦政府执行拜登政府的要求，即没有合格的医疗或宗教豁免的联邦工作人员必须接种中共病毒Covid-19疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/c-3-edited.jpg)图片来源：KCW
 
-被川普总统任命为德克萨斯州南部地区法院（District Court for the Southern District of Texas）法官的杰弗里·布朗裁定（Jeffrey Brown），反对拜登对联邦雇员进行疫苗接种的人有可能在审判中获胜，并阻止政府执行这一要求。
 
-布朗写道，问题在于拜登是否 “可以在没有国会意见的情况下，通过一支笔，要求数以百万计的联邦雇员接受一项医疗程序，作为他们就业的条件。” 他还写道：“根据最高法院最近刚刚表述的法律现状，这是太过雄心勃勃的行为。”
+据美国媒体[网关专家] 1月19日报道, 英国医院的一位医生近日在其电话问诊中告知他的病人：“不要再继续接种实验性的新冠病毒疫苗，因为它很快会因为安全问题而被停止使用。”
 
-据报道，司法部表示，它将对该裁决提出上诉。
+报道称，英国圣理查德医院的医生在与其一位女病人电话问诊期间表示：由于在仓促情况下被使用的“新冠病毒”疫苗是极其危险的，因此它们最终将会在全球范围内被叫停。而且为了病人的健康安全，不应该再继续接种。该医生在电话中还称，尽管目前没有足够的公共信息来证明他的观点是正确的，但对于那些免疫力完好并且已接种的年轻人来说已经足够了，完全没有必要再接种更多剂量的疫苗。
 
-该诉讼是由联邦医疗自由（Feds for Medical Freedom）组织提起的。
+据悉，以上问诊电话录音在被公布之后，立刻引发了舆论的强烈反响。但人们疑惑不解的是，为什么被政府认为是安全有效并被各界广泛推广使用的疫苗，现在却出如此完全否定的医疗专业意见。特别是当女病人问道：“是否这一建议适用于所有人时”，医生回答说：“现在所掌握的很多有关疫苗的信息是以前无法获得的，而且很快所有的疫苗接种都将完全被当局停止。因此，请不要，绝对不要再接种疫苗了！”
 
-今天对美国来说又是一个巨大的胜利！
+* * *
 
-**新闻来源：**[BREAKING: A Federal Court Has BLOCKED Joe Biden’s COVID Vaccine Mandate for Federal Employees](https://ussanews.com/breaking-a-federal-court-has-blocked-joe-bidens-covid-vaccine-mandate-for-federal-employees/)
+原文链接:
+
+
+
+> [WATCH: NHS Doctor Tells Patient NOT to Take Covid Vaccine Because They Will Be PULLED Soon – Warns That Vaccine Data is Being Hidden From Public](https://www.thegatewaypundit.com/2022/01/watch-nhs-doctor-tells-patient-not-take-covid-vaccine-will-pulled-soon-warns-vaccine-data-hidden-public/)
+
+
 
  
 

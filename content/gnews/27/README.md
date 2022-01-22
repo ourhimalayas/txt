@@ -2,60 +2,68 @@
 ---
 
 
-## 汪建何许人也（二）
-` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1891810/)
+## 打一针即可获得疫苗通行证：跟着法国总理Jean Castex，我们都在打折季！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1891903/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-4.png)
+译评：香草山商业部 — 文锤
 
-———— 深挖中共
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-作者： 流浪的阳光
 
-接著我们来看看和汪建有交集的几个人 比尔盖茨 2012年9月25日，华大与盖茨基金会签署合作备忘录。 2013年4月8日，比尔·盖茨一行到访香港华大基因。 2017年10月31日，比尔盖茨基金会成员到访国家基因库。 2018年10月3日，在美国西雅图 ，华大基因和比尔盖茨基金会签署谅解备忘录。
 
-![Image](https://pbs.twimg.com/media/E9O0bhSUcAYl7hB?format=jpg&amp;name=large)
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUUAYb7VX?format=jpg&amp;name=large)
 
-![Image](https://pbs.twimg.com/media/E9O0bhRUcAQuYJf?format=jpg&amp;name=900x900)
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUcAE_svk?format=jpg&amp;name=large)
 
-法兰西斯·柯林斯，美国遗传学家，领导人类基因组计划， 2000 年 6 月 26 日，克林顿在白宫宣布完成人类基因组草图，法兰西斯·柯林斯在侧。 2001年8月28日，江泽民在中南海接见国际人类基因组计划主要负责人，其中有Francis Collins和汪建2009年7月8日，奥巴马提名柯林斯为美国国立卫生研究院院长。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-35.jpg)[图片来源](https://fr.sputniknews.com/20220121/lacces-au-pass-vaccinal-avec-une-seule-dose-avec-castex-cest-deja-les-soldes--1054537991.html)
 
-![Image](https://pbs.twimg.com/media/E9R5mpYVcAcXP2D?format=jpg&amp;name=900x900)
+法国总理Jean Castex宣布疫苗通行证政策将于 1 月 24 日生效，并在 2 月中旬之前为疫苗的首次接种者提供了一个例外，即打一针即可获得疫苗通行证。病毒学家 Hervé Fleury 在这个提议措施中看到了“蛊惑人心的限制”。
 
-![Image](https://pbs.twimg.com/media/E9R5mptVEAAhhyg?format=jpg&amp;name=900x900)
+实施和解除新的健康限制的时间表变得越来越复杂。 为了“加强”法国的疫苗接种——法国有 52,378,629 人完全接种了疫苗，但超过400万法国人没有接种任何疫苗——行政人员提议“放宽”获得疫苗通行证的条件。
 
-![Image](https://pbs.twimg.com/media/E9R5mpXVgAEaIGZ?format=jpg&amp;name=large)
+因此，总理宣布“对于任何在 2 月 15 日之前首次接种疫苗者只要接种第一针疫苗，就可以获得疫苗通行证”，只要他承诺在 28天内接种第二针。
 
-![Image](https://pbs.twimg.com/media/E9R5mpvVEAAPXT-?format=jpg&amp;name=small)
+Sputnik 联系了病毒学家 Hervé Fleury ，他仍然对这一措施持怀疑态度。 “这可能是销售旺季！！！”，他打趣道。
 
-说到这里，就要聊一聊美国国立卫生研究院了，安东尼．福奇就是美国国立卫生研究院(NIH)下属美国国家过敏和传染病研究所的所长，换言之 弗朗西斯·柯林斯是福奇的顶头上司，他们俩还是好朋友！ 就是柯林斯和福奇一起批准了用美国纳税人的钱给武毒研究所进行了功能增强实验，使病毒武器化，然后来祸害世界。
+除此之外，接种者还需要“在 24 小时内提交阴性测试”才能从特殊制度中受益。对于我们的病毒学家 Hervé Fleury来说，这涉及到对复杂数据的监控：“潜伏期、必须进行抗原检测的时间……”。 我们用“道德高尚”解决了这些医学性质的技术难题：“相信那些承诺将第二次接种疫苗的人”。
 
-就是这位柯林斯，在2020年3月26日，在NlH官方博客发表了《基因研究显示 新冠肺炎病毒起源于自然》的博文
-也是这位柯林斯，在2020年12月13日接受NBC电视台的采访中呼吁民众要消除对新冠疫苗的怀疑，鼓励大家去打疫苗！
-还是这位柯林斯，在2017 年 6 月和福奇与比尔盖茨一起讨论全球健康领域的研究机会！
+此外，这种特殊的管理方法，我们依靠那些迄今为止拒绝注射的人遵守纪律！ 请记住，去年 9 月，根据健康保险提供的数据，近 36,000 名投保人被怀疑收到了假的健康通行证。 12 月份有 2,300 份虚假证明被吊销。
 
-![Image](https://pbs.twimg.com/media/E9XNjR0VUAEzcVM?format=jpg&amp;name=large)![Image](https://pbs.twimg.com/media/E9XNjR1UYAE7195?format=jpg&amp;name=large)
+**疫苗接种政策和超短的政策**
 
-![Image](https://pbs.twimg.com/media/E9XNjR0VgAYK5Hl?format=jpg&amp;name=900x900)
+本周五，即 1 月 21 日，宪法委员会刚刚通过了Jean Castex （法国总理）和 Olivier Véran （卫生部长）关于疫苗通行证将于 1 月 24 日生效的公告。 但总理还计划“在 2 月份逐步取消为遏制疫情而采取的大部分限制措施，这要归功于新的疫苗通行证”。
 
-![Image](https://pbs.twimg.com/media/E9XNjR1VIAA9Q1b?format=jpg&amp;name=small)
+病毒学家 Hervé Fleury宁愿看到总理宣布的放松时间表的“背后在下一盘大棋”。
 
-未完待续。
+对于这位科学家来说，Jean Castex （法国总理）“本可以免除这些规定”。 尤其是不久之后，“有必要离开 ENA 或综合技术学院，以便能够在智力上遵循不断变化的义务”。 他预测，“当现任总统宣布他再次成为候选人时，我们将取消疫苗接种通行证”。
 
-编辑：流浪的阳光
+译者评：太有趣了，有的人打一针就有疫苗通行证，而有的人打了两针都没有，却还要通过打加强针才能获得。疫苗通行证已经不再跟预防中共病毒有关，而是跟今年4月的大选有关。试想在小马哥宣布为竞选总统的候选人后，疫苗通行证取消了，会有多少人为之欢呼呢？ 智商的警钟再次在法国上空敲响！
 
-校对/发稿：Serena
+**原文阅读：**
 
-汪建何许人也（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
+[**L’accès au pass vaccinal avec une seule dose: avec Castex, c’est déjà les soldes! – 21.01.2022, Sputnik France (sputniknews.com)**](https://fr.sputniknews.com/20220121/lacces-au-pass-vaccinal-avec-une-seule-dose-avec-castex-cest-deja-les-soldes--1054537991.html)
 
-新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
 
-新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
+编辑/校对/发稿：小鹿
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 
