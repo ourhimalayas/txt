@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/22/2022 4:05 PM (UTC)`
+
+1/21/2022 Miles Guo: The CCP is doomed, facing the diplomatic decoupling, technological decoupling, gloomy Winter Olympics, and the global investigation into the origin of the CCP virus. The CCP is commemorating Deng Xiaoping’s Southern Trip Speech in the hope of applying the emergency brake to sustain the regime, indicating the fierceness of the political infighting in the CCP. Only the one-person-one-vote election can save China! The Declaration of the New Federal State of China can resolve all the problems in China!<br/><br/>1/21/2022 文贵直播: 中共已穷途末路 - 面临外交脱钩、科技脱钩、冬奥会惨淡收场和全世界展开病毒溯源；中共纪念邓小平南巡讲话寄希望踩急刹车以续命， 突显中共激烈内斗！只有一人一票才能救中国！《新中国联邦宣言》能解决中国的所有问题！<br/>
+![img](https://media.gettr.com/group43/getter/2022/01/22/16/63d3b7a7-4224-d34d-3543-c4e43e55a7f9/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 1/22/2022 1:11 PM (UTC)`
@@ -146,13 +153,6 @@ Jin Canrong, a political scientist of the CCP, an expert on American issues, dep
 
 1/20/2022 Miles Guo’s GETTR: Yesterday was the beginning of the new era of the Whistleblowers’ Movement. While we are spreading the truths about the CCP virus and the COVID vaccine disaster, we are voicing to the world that the CCP does not equal the Chinese people and that the Chinese are the biggest victims of the CCP so that the world can clearly see what communism is.<br/><br/>1/20/2022 文贵盖特：昨天开启了爆料革命新时代，我们在传播病毒和疫苗灾难信息的同时，也向世界发出中共不等于中国人、中国人是最大的受害者这样的声音，让世界看清什么是共产主义！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/01/21/00/a45a0371-7eb7-dfbe-c0f1-623957f15c4c/out.jpg)
-
----
-
-`@miles 1/20/2022 11:40 PM (UTC)`
-
-1/19/2022 Miles Guo: It’s announced for the first time that the CCP virus pandemic is going to end this May, but the COVID vaccine disaster will unfold. “Xi the sun” has turned to inviting people at the Davos forum to enjoy a shared post-vaccine economy and to profit from people’s suffering. The CCP has locked the Chinese people in their homes and is presenting a false appearance of peace and prosperity. The false prosperity that will be manifested by the grandiose scenes of the Beijing Winter Olympics will ring the death knell for the CCP.<br/><br/>1/19/2022 文贵直播: 首次公布今年5月份病毒将接近尾声，疫苗灾难将接踵而至；习太阳转而邀约共享疫苗经济；中共粉饰太平，中国老百姓被困家中；北京冬奥涂脂抹粉终将唱响中共丧歌<br/>
-![img](https://media.gettr.com/group45/getter/2022/01/20/23/2757e575-4ede-fcca-97ba-db419da1dc68/out.jpg)
 
 ---
 
