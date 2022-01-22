@@ -2,38 +2,92 @@
 ---
 
 
-## 美媒抨击强制疫苗令危害远胜切尔诺贝利
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1894157/)
+## 樱花灭共诗——叫兽
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1894167/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
+#### 作者：东京樱花团/在路上
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+这是一个新物种
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-9.38.50-PM.png)
+它由人类
 
-据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
+在环境污染和毒液侵蚀下
 
-该媒体还提到，美国政府在应对该生物武器引发的疫情时，竟然推出了一种危险的、具有快速跟踪功能的mRNA刺突蛋白“疫苗”。值得注意的是，这种所谓的“疫苗”其实是一种破坏血管和神经系统的工程基因疗法，但美国政府正在试图将其强加给全美民众。数据表明，全美因中共病毒疫苗死亡的人数已超过了80万，而这一数据还在不断攀升。
+基因变异而来
 
-该媒体最后列举到，前苏共政府在上世纪80年代因官僚腐败和掩盖真相导致了切尔诺贝利核灾难的发生，彼时有数千人丧生于灾难之中，而联邦政府目前推行的强制疫苗令已经并且将继续造成比切尔诺贝利更恐怖的灾难。
+它是一种类人生物
 
-参考链接：[The vaccine holocaust is America’s CHERNOBYL… but USA leaders are committing even MORE deaths and deeper EVIL than former Soviet Union officials](https://newstarget.com/2022-01-20-the-vaccine-holocaust-is-americas-chernobyl.html)
+有着人的外形
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+和人的智商
 
-编辑：Kathy文艺 
-总编：童谣
-校正/发稿：我不在这里
+像人一样直立行走
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+它吃喝拉撒全靠上面一张口
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+它吃人肉喝人血
 
+然后又吐出恶臭难闻的毒液
+
+吃的人肉越多
+
+吐出来的毒液越臭
+
+它的心脏比铁还硬
+
+它的血液比墨水还黑
+
+不但恶臭难闻
+
+还奇毒无比
+
+它的叫声如鬼般凄厉
+
+如指甲划过黑板般刺耳
+
+具有震碎人灵魂的魔力
+
+这是它特有的技能
+
+它的皮坚硬如龟壳
+
+不惧任何攻击
+
+它的防御
+
+堪称无敌
+
+它的强大
+
+让人束手无策
+
+它的危害
+
+让人毛骨悚然
+
+我们对它无可奈何
+
+只能祈祷上天
+
+让它快点死去
+
+除此之外毫无办法
+
+它的灭绝
+
+只能靠环境的改变
+
+只要条件具备
+
+它们就不会断绝
+
+爆料革命就是为送终他们而生
+
+2022年1月22日
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

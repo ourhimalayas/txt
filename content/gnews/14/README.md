@@ -2,12 +2,12 @@
 ---
 
 
-## 邪恶沼泽地的一部分 共产党放毒注定灭亡
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1894244/)
+## 达沃斯是黑暗的力量
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1894268/)
 
 #### 设计：波士顿五月花 水涨船高
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/邪恶沼泽地的一部分-共产党放毒那一刻就注定灭亡.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/达沃斯是黑暗的力量.jpg)
 
 * * *
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 达沃斯会受人类审判 新中国联邦是人类阳光
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1894214/)
+## 卢森堡-金融界的梵蒂冈 相信病毒是中共制造的生化武器
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1894230/)
 
 #### 设计：波士顿五月花 水涨船高
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/达沃斯会受人类审判-新中国联邦是人类阳光.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/卢森堡-金融界的梵蒂冈-相信病毒是中共制造的生化武器.jpg)
 
 * * *
 
