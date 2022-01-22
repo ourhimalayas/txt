@@ -2,16 +2,18 @@
 ---
 
 
-## 有声|英国首相约翰逊放弃对COVID-19的限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892144/)
+## 有声|因坚持新冠疫苗任务，“抵制”公司遭抵制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892230/)
 
-配音：香草山教育部 – Rose
+配音：香草山健身部-格格
 ![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[OAN网站](https://www.oann.com/uk-pm-johnson-drops-covid-19-restrictions/)援引路透社1月19日报道，英国首相鲍里斯·约翰逊周三表示，从下周起，英国人将不再需要在任何地方佩戴口罩或在家工作，强制性的COVID-19认证将结束。同时他补充说，科学家认为，Omicron中共病毒变种的浪潮在全国范围内已经达到顶峰。
+美国媒体1月18日消息，位于密歇根州一家名为“抵制·卡哈特”的工作服公司，日前在最高法驳回了拜登的疫苗强制任务后，依然在内部邮件中称要为员工强制接种新冠疫苗。
 
-约翰逊还表示，虽然目前仍要求人们进行自我隔离，但他预计不会延长将于3月到期的自我隔离立法，并将研究提前取消这一要求。
+消息一出立即引来抨击，某电视主持人呼吁停止购买该公司的商品。
 
-文字版原文：[英国首相约翰逊放弃对COVID-19的限制](https://gnews.org/zh-hans/1882678/)
+目前该公司员工已经提出强烈抗议，拒绝履行强制疫苗计划。
+
+文字版原文：[因坚持新冠疫苗任务，“抵制”公司遭抵制](https://gnews.org/zh-hans/1887692/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

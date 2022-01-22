@@ -2,26 +2,32 @@
 ---
 
 
-## 七哥谈国内明星（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892109/)
+## 美议员指控奥委会官员助中共掩盖彭帅事件
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892128/)
 
-整理：雅典娜速记组
-编辑：文泓
+作者：首尔天池农场—zzballac
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在距离中共北京冬奥会正式开幕仅剩两周之际，美国众议员，麦克-加拉格尔，于当天提出了一份《争取彭帅自由法案》。在这份法案中，他要求美国政府依据《全球马格尼茨基人权问责法》对国际奥林匹克委员会的主要官员实施制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-上午9.55.46.png)
+加拉格尔议员指责称，国际奥委会与中国共产党串通一气，帮助中共化解由彭帅失踪事件所带来的公关危机，为北京冬奥会顺利举行排除了障碍。但加拉格尔强调，国际奥委会的介入并没有减轻世人对彭帅的担忧，相反的，全球民众更因此看清了国际奥委会与中共沆瀣一气的真面目。那就是，奥委会没有与彭帅站在一起，反而为中共提供掩护。
 
-香港的几个大歌星到北京，什么香港的twins啊，台湾的所有的歌星啊，到北京去都是在那卡拉0K那唱，一唱唱几天，他们从来不唱自己的歌，都唱别人的歌。啊。唉，刘德华呀，什么张学友吧？就是就是，别提了那就啊，生活中很无知，生活中很谦虚，更重要的事情（是），一点尊严一点自由都没。他在人前多风光，背后就（有）多（少）人踩在他脸上，因为越说人粉丝（多）他们这些人踩在（明星）脸上，越有荣耀感。七哥那时候一进去哎，谁坐那儿坐哪儿啊， 从哪儿先唱，先唱首（歌）然后先喝几杯啊，一会儿哪个部长来了啊。就是你能看到港澳台的歌星、老板在中国共产党面前真的是这个（卑贱），我在你们面前，你们都太小，（有些）话不能说。
+加拉格尔还提到，彭帅缺席了正在举行的澳大利亚网球公开赛，这表明她依然没有获得自由。而鉴于国际奥委会帮助中共当局掩饰其严重侵犯人权行为的做法，加拉格尔呼吁道，仅仅抵制中共北京冬奥会或要求易地举行冬奥会是不够的，应该对巴赫和与中共当局同谋的其他奥委会官员实施制裁。
 
-王力宏得罪过谁你们知道吗？第2个问题，谁能回答得了？网上可以查得出来，王力宏跟谁发生过争执？钟仁Google半天了，啥找不着，你都成了圣诞老人圣母了，一个答案没有。
+参考链接：[Rep. Gallagher to push sanctions on Olympic committee over alleged complicity in CCP Peng Shuai disappearance](https://news.yahoo.com/rep-gallagher-push-sanctions-olympic-220211153.html)
 
-王力宏没有兑现黑道的规矩，王力宏很可怜，就王力宏能在咱这个节目上占那么长时间，他真是八辈子烧了祖香了，他最后一次辉煌，当年已经不在世的台湾的小黑子，就是飞越黄河那个，据（说）台湾和香港艺人讲过一句话，香港有多荣耀？香港或台湾过去整个电影电影事业有多荣耀，这些演员就有多么的可怜和可恨！啊，徐小凤像这样的人，像邓丽君这样的人啊，几乎啊，像高胜美这样的人，到后来都是很惨的很惨很惨！王力宏这些人都会很惨的，所有台湾香港歌星，都是富豪的玩物，没别人要了，或玩够了以后再抛到社会上去，返几回手，你看这两天，我看到 好几个香港的老歌星，都跟我很熟，都出来了，为啥？没钱花了。这就为啥我告诉唱歌（的人），让咱们新中国联邦人，我们未来，就要今天我本来想严肃宣布，但是今天我看了以后看了RACA twins,还有这么多人唱歌以后，我都不敢严肃宣布了，我怕严肃完以后就是这个世界会大乱。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥谈国内明星（二）-.jpg)
-发布： *tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编：文特
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

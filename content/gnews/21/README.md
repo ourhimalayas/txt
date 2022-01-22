@@ -2,51 +2,29 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2022.01.21
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1892122/)
+## 有声|英国首相约翰逊放弃对COVID-19的限制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892144/)
 
-摘要撰稿人：文俊
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[OAN网站](https://www.oann.com/uk-pm-johnson-drops-covid-19-restrictions/)援引路透社1月19日报道，英国首相鲍里斯·约翰逊周三表示，从下周起，英国人将不再需要在任何地方佩戴口罩或在家工作，强制性的COVID-19认证将结束。同时他补充说，科学家认为，Omicron中共病毒变种的浪潮在全国范围内已经达到顶峰。
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/01/f82b9e2301641db11a8d0c15456ae114.jpg)
-### 视频链接：
+约翰逊还表示，虽然目前仍要求人们进行自我隔离，但他预计不会延长将于3月到期的自我隔离立法，并将研究提前取消这一要求。
 
-[https://gtv.org/video/id=61eaab2f533c672fca804729](https://gtv.org/video/id=61eaab2f533c672fca804729)
+文字版原文：[英国首相约翰逊放弃对COVID-19的限制](https://gnews.org/zh-hans/1882678/)
 
-### 音频链接：
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-### 摘要：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-- 共产党每年向巴基斯坦行贿上百亿美元，到巴基斯坦领导人手里八九亿美元，大部分被共产党贪污了
-- 不超过三个月，欧盟可能会永久关掉中国大使馆
-- 中东是习的天下。东亚，南亚和东欧是江家天下
-- 当初在英国，巴基斯坦两任总统为了见七哥，在门口打架
-- 九指妖在法庭上的文件全部造假
-- 冬奥会几百万只狗被捕杀。七哥找到了视频证据，西方人看到，震惊，呕吐。会有越来越多的人宣布，不参加冬奥会。
-- 习的清零政策犯了3个大忌：1宣布成功太早，2清零违背常理的自杀行为，3经济崩塌
-- 凡是参加了中共冬奥会的，名单会永远列在新中国联邦的媒体上
-- 天津封城不低于10万起，卖身求方便面的信息
-- 宣布不参加冬奥会运动员，可以获得秘密喜币基金的喜币
-- 荷兰的AMSL光刻机公司，拒绝出售光刻机给中共
-- 芯片和金融是共产党的两条腿，芯片是共产党的核心，没有光刻机，共产党全部归零
-- 江曾王孟高调纪念邓小平南巡讲话，是提醒习及时刹车
-- CCP导致排华问题，CCP ≠中国，CCP ≠中国人，是我们新中国联邦最大难题之一
-- 冬奥会后习近平很大可能急刹车宣布大赦，政治大转弯
-- 脱交后，中国共护照都会作废，回国有可能性，出来就没有可能了
-- 违反锁币规定套现的人，联盟委员会采取法律行动
-- 昨天为止，没有签协议和锁币的，会被起诉，取消投资资格
-- hpay推出未来的热钱包和冷钱包供我们战友们随意按需使用（热-银行，冷-自己家保险箱）
-- 七哥正在投资外太空数字货币计划，登月计划，核心的数据放在月球，还有卫星式的
-- 数字银行：战友会成立5-6家公司和大股东一样的话语权。战友还没有付钱，已经获得2个银行，多家基金牌照
-- 星期天直播
-
-
-
-
-
-
-编辑发布：闪电训练
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

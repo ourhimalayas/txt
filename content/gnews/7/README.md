@@ -2,29 +2,17 @@
 ---
 
 
-## 有声|法国不允许未接种新冠疫苗的外国运动员参加该国比赛
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1892228/)
+## 音乐与灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1892320/)
 
-配音：香草山健身部-格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-日前法国宣布未接种中共病毒疫苗的运动员不得参加本国的体育比赛。据悉六国国际橄榄球比赛将于2月开赛，有三场比赛场地在法国巴黎，涉及英、法、意大利、爱尔兰的运动员。其中英国中锋Henry Slade由于个人原因未接种中共病毒疫苗。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
 
-据悉前几周法国对未接种中共病毒疫苗的人进行了严厉惩罚，除了限制各种公共场所及设施的使用，还包括已接种后若不在7个月之内补打下一针的将会和未接种任何一针中共病毒疫苗的人享受同等待遇。目前法国受此限制的大约有56万人。
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
-文字版原文：[法国不允许未接种新冠疫苗的外国运动员参加该国比赛](https://gnews.org/zh-hans/1887217/)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
