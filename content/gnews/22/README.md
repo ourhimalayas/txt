@@ -2,60 +2,33 @@
 ---
 
 
-## 中共企业同方威视扫描设备的安全性正在引起美欧的警觉
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1895614/)
+## MV版Hcoin To the Moon上线45天第31次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1895664/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/jeff-bezos3.jpg)Joe Raedle摄/盖蒂图片社
-来自《布赖特巴特新闻网》2020年1月20日的报道，
-
-摘要翻译：
-
-欧洲的安全可能受到威胁，因为敏感地点的安全扫描仪周四被披露是由一家中共国共产党支持的公司制造的。
-
-尽管美国出于安全考虑将中共国公司同方威视(Nuctech)列入工业和安全局(Bureau of Industry and Security)实体清单，但同方威视仍为欧洲各地的机场、北约与俄罗斯边境之间以及世界各地的机场提供人员、行李和货物的安全扫描设备，并且达沃斯经济论坛上也在使用——事实上，27个欧盟成员国中的26个目前仍在使用这些设备。
-
-欧洲和美国的安全官员都表示担心，使用共产主义中共国支持的同方威视设备可能是一个重大的安全风险，因为通过机器的电子设备上的敏感文件或信息可能会被中共国特工扫描。同样，如果同方威视的设备被改造，以允许拥有爆炸物或枪支的个人不受限制地通过安检，这些设备也可以帮助促进中共国国家资助的事件，例如一次恐怖袭击。
-
-荷兰国防部前网络安全主任，现任欧洲议会议员(MEP)巴特‧格罗特休斯(Bart Groothuis)说：“这些设备正在处理的数据非常敏感。它是个人数据、军事数据、货物数据。这可能危及商业机密。”
-
-“你依赖于一个外国演员，它可能是一个地缘政治对手和战略对手。”他继续说道。对中共国的干涉或间谍活动的担忧是基于它会要求中共国公司交出中共国当局要求的任何数据。
-
-加拿大政府认为同方威视存在从事间谍活动的“严重威胁”，2020年7月，加拿大政府对同方威视进行的安全审查得出结论，他们的扫描设备可被用于从电子设备中获取敏感信息，并可以被修改，以允许违禁物品在不触发警报的情况下通过。
-
-中共政权对监视个人毫无疑虑，并且有(在海关秘密窃听他们的手机后)监视前往这个共产主义国家的游客的历史。安全问题如此之大，以至于参加冬季奥运会的世界各地的运动员都被告知不要将他们的个人电子设备带到中共国。
-
-尽管存在这些安全问题，同方威视声称已为170多个国家和地区的客户提供了服务，其中包括2019年在欧洲为政府机构、海关、民航和港口安装了1000多台安全扫描设备。
-
-尽管人们对欧洲恐怖主义的担忧日益增加，英国、阿姆斯特丹、布鲁塞尔、意大利、希腊、瑞士和西班牙的机场都签署了采购同方威视设备的协议。这主要是由于同方威视以“比竞争对手低30%到50%”的价格提供设备交易，以及延长的维保合同和优惠贷款。
-
-**简评：**
-
-共产党长期利用蓝金黄手段并通过民间资本投资他国对世界各国进行渗透，结果导致西方国家从官方到民间，在利益的驱使下，长期使用廉价但充满安全隐患的中共国产品，因此换来的是国家安全信息和个人隐私信息的泄露。中共国的官企、民企皆为党企，而中共的目标是要借助这些企业对世界各国进行渗透，让世界各国对其形成依赖，从而达到最终控制全世界的目的。
-
-所幸的是，美国正在逐步将中共企业具有安全隐患的产品列入工业和安全局的实体清单，而欧洲的安全机构也正在清醒过来，相信随着西方国家的全面觉醒，随着爆料革命对中共政权罪恶行径的揭露，中共政权意欲统治世界的阴谋最终不会得逞。
-
-
-
-新闻链接：[Chinese Communist Party-Backed Company Delivers Security Scanners to Global Hot Spots](https://www.breitbart.com/europe/2022/01/20/chinese-communist-party-backed-company-delivers-security-scanners-to-global-hot-spots/)
-
-*翻译/简评: TS2020相聚盘古*
-
-*校对: Harvey（叶知秋）*
+1/22/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线45天第31次位列澳门iTunes热门音乐视频榜榜首，第38次位列前三名
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+[【PDF 下载】Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-22-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

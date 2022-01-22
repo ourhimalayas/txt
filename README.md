@@ -15,89 +15,89 @@
 
 ---
 
-### [有声|第四针疫苗不能阻止Omicron](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [房地产没有脆断是好事](/content/gnews/2/README.md)
+### [习对王歧山霸占的金融界的异像早有察觉](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [工作笔记](/content/gnews/3/README.md)
- ` 纽约香草山MOS03`
-
-### [有声|GTV新闻访谈简报|2022年1月21日晚](/content/gnews/4/README.md)
+### [有声|郭先生在马丁·路德金纪念日谈PAG缠诉案的现实意义](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [【玫瑰看新闻】每日快讯2022年1月19日（新西兰时间）](/content/gnews/5/README.md)
+### [解直锟玩假骗 结局注定不会老死](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|第四针疫苗不能阻止Omicron](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [房地产没有脆断是好事](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [工作笔记](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|GTV新闻访谈简报|2022年1月21日晚](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [【玫瑰看新闻】每日快讯2022年1月19日（新西兰时间）](/content/gnews/8/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [法院阻止对联邦雇员的疫苗强制要求](/content/gnews/6/README.md)
+### [法院阻止对联邦雇员的疫苗强制要求](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [大型制药公司袭击维加诺大主教（三）](/content/gnews/7/README.md)
+### [大型制药公司袭击维加诺大主教（三）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共生化超限战民众当用生化知识自救](/content/gnews/8/README.md)
+### [中共生化超限战民众当用生化知识自救](/content/gnews/11/README.md)
  ` genwsGNEWS`
 
-### [扬帆每日速递 2022年1月22日版（1）](/content/gnews/9/README.md)
+### [扬帆每日速递 2022年1月22日版（1）](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大议员支持卡车司机反对疫苗的抗议，称强制令：错误、不道德、不符合宪法！](/content/gnews/10/README.md)
+### [加拿大议员支持卡车司机反对疫苗的抗议，称强制令：错误、不道德、不符合宪法！](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [1/21/2022 文贵直播：在我们眼里只有灭共或不灭共的美国人，无党派之分](/content/gnews/11/README.md)
+### [1/21/2022 文贵直播：在我们眼里只有灭共或不灭共的美国人，无党派之分](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [全球疫情更新(英国疫苗报告中隐藏的人尸丸真相）](/content/gnews/12/README.md)
+### [全球疫情更新(英国疫苗报告中隐藏的人尸丸真相）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大卡车司机抗议疫苗强制令宣言](/content/gnews/13/README.md)
+### [加拿大卡车司机抗议疫苗强制令宣言](/content/gnews/16/README.md)
  ` 华盛顿DC-Russian`
 
-### [矩阵的定义-全息宇宙学](/content/gnews/14/README.md)
+### [矩阵的定义-全息宇宙学](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [浅析Edward Moss在太平联盟诉案中违背职业行为示范规则的缘由](/content/gnews/15/README.md)
+### [浅析Edward Moss在太平联盟诉案中违背职业行为示范规则的缘由](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [解直锟是被做掉的](/content/gnews/16/README.md)
+### [解直锟是被做掉的](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [郭先生寄语G| Music，共襄1月21日上线盛举](/content/gnews/17/README.md)
+### [郭先生寄语G| Music，共襄1月21日上线盛举](/content/gnews/20/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [大型制药公司袭击维加诺大主教（二）](/content/gnews/18/README.md)
+### [大型制药公司袭击维加诺大主教（二）](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [MV版Hcoin To the Moon上线45天第31次位列澳门iTunes热门MV榜首](/content/gnews/19/README.md)
+### [MV版Hcoin To the Moon上线45天第31次位列澳门iTunes热门MV榜首](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大型制药公司袭击维加诺大主教（一）](/content/gnews/20/README.md)
+### [大型制药公司袭击维加诺大主教（一）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [音乐是最廉价也是最无价的，用金钱和用权利无法达到——GMusic上线庆典直播同步文字](/content/gnews/21/README.md)
+### [音乐是最廉价也是最无价的，用金钱和用权利无法达到——GMusic上线庆典直播同步文字](/content/gnews/24/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [中共企业同方威视扫描设备的安全性正在引起美欧的警觉](/content/gnews/22/README.md)
+### [中共企业同方威视扫描设备的安全性正在引起美欧的警觉](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共生化超限战民众当用生化知识自救（一）](/content/gnews/23/README.md)
- ` 纽约香草山MOS03`
-
-### [有声|德州一医院因有关中共病毒的财务问题被起诉](/content/gnews/24/README.md)
+### [有声|德州一医院因有关中共病毒的财务问题被起诉](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|奥地利议会通过对所有成年人实行强制性疫苗接种的规定](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [2022年1月21日郭文贵先生直播全文字版](/content/gnews/26/README.md)
+### [2022年1月21日郭文贵先生直播全文字版](/content/gnews/27/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [国家加密货币法提交议会之际土耳其对币安处以75万美元的罚款](/content/gnews/27/README.md)
+### [国家加密货币法提交议会之际土耳其对币安处以75万美元的罚款](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|星巴克取消员工中共病毒疫苗强制令](/content/gnews/28/README.md)
- ` MOSREC`
 
 ### [2021年职业足球运动员的心脏病发作率增加300%](/content/gnews/29/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
