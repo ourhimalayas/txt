@@ -2,29 +2,27 @@
 ---
 
 
-## 2022年世界经济论坛将在达沃斯举行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893171/)
+## 美联储密切关注数字现金的发展
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893290/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+整理/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642836502292.jpg)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
 
-据土耳其之声报道：自1971年以来，达沃斯峰会每年一月在达沃斯举行。因新型冠状病毒（Covid-19）疫情而被取消举行的2021年世界经济论坛（WEF）计划于2022年1月17日至21日在瑞士达沃斯举行。
+据《THE VERG》1月21日报道， CNBC引述，美联储的一份新文件显示，由美国政府支持的数字美元可能会导致更快的资金转移，并且比当前的银行系统更容易获得。
 
-据世界经济论坛方面发表的声明，计划于2022年1月17日至21日在达沃斯以“携手合作，重建信任”为主题，汇聚世界领先领导人。
+该文件作为“讨论的第一步”，并不提倡实际创建“中央银行数字货币”（或 CBDC）。尽管如此，数字美元的创建将是一个巨大的转变。然而，其中也会潜在不利因素，包括：降低商业银行对消费者的吸引力，并影响美联储影响金融体系的能力。美联储现在正在征求意见，包括对该文件可能遗漏的任何内容。
 
-声明中指出，来自商界、政府和非政府组织的领导人将在峰会上讨论因疫情而恶化的全球经济等问题。
+据路透社报道，该文件朝着数字美元的存迈出了一步，当时大约有 90 个其他国家正在考虑创建自己的数字货币。欧洲中央银行正在研究创建数字欧元，中国一直在测试数字人民币。
 
-2021年1月25日至29日，世界经济论坛组织了一场名为“2021达沃斯议程”的在线活动，来自约70个国家的1500多名商界人士、政界人士、学者和非政府组织代表参加此次活动。
+与此同时，在加密货币领域中，稳定币（其中一些将其价值与美元挂钩）的地位一直在上升。
 
-参考链接：
-[https://www.trt.net.tr/chinese/cai-jing/2021/09/17/shi-jie-jing-ji-lun-tan-jiang-yu-2022zai-da-wo-si-ju-xing-1707062](https://www.trt.net.tr/chinese/cai-jing/2021/09/17/shi-jie-jing-ji-lun-tan-jiang-yu-2022zai-da-wo-si-ju-xing-1707062)
+参考链接：[Digital cash gets a look from the Fed](https://www.theverge.com/2022/1/21/22894101/federal-reserve-us-government-digital-dollar-central-bank-currency)
 
-*发布：*tianzhihuan
+*发布：tianzhihuan*
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

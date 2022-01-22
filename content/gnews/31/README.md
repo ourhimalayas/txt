@@ -2,30 +2,23 @@
 ---
 
 
-## 日本研究团队：奥米克戒不易感染肺部和呼吸道
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1893392/)
+## 雅典娜时报-第181期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893516/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-49.png)图片来源于本文链接
-据朝日新闻医疗门户网站报道：自中共病毒（新冠病毒COVID-19）的新菌种奥米克戒于去年11月首次被报道，现已扩散到世界各地，但它的特点还没有被完全了解。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-东京大学医学科学研究所和国家传染病研究所等团体，从美国和日本的奥米克戒感染者提取菌株感染仓鼠和小鼠，调查病毒如何增加和症状表现。感染了德尔塔菌株的仓鼠在几天内就会失去体重。感染奥米克戒菌株，体重没有变化，肺部的病毒量也很低。同时在几个品种的小鼠进行的实验中，奥米克戒菌株的这些特性也是相似的。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/934369572692324433/155.png?width=399&amp;height=594)![圖片](https://media.discordapp.net/attachments/825592691433668612/934369573258551366/155_1.png?width=399&amp;height=594)
+*发布：陶子*
 
-对仓鼠肺部的详细计算机断层扫描（CT）显示，德尔塔菌株显示出肺部的炎症，类似于在中共病毒中看到的炎症，而奥米克戒菌株只显示出轻微的炎症。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-实验中显示，仓鼠在感染中共病毒后通常不会死亡，但当仓鼠细胞经过基因改造，成为一种能附着在人类细胞表面的中共病毒的分子时，病情会恶化。当四只转基因仓鼠感染了Alpha前突变体时，它们在10天内全部死亡，但感染了奥米克戒株的四只仓鼠中只有一只在15天内死亡。
-
-实验结果指出，中共病毒的奥米克戒毒株比传统毒株相比，不容易感染肺部和呼吸道感染症状。并将这一研究结果发表在科学杂志《自然》上。
-
-东京大学医学科学研究所的特聘教授河冈义裕还表示，目前只是在仓鼠和其它动物上的实验结果，是否适用于人类，还需要进一步研究。并表示还将进一步研究为什么病毒的数量不高但传染性如此之强等问题。
-
-信息来源：
-
-[東大などオミクロン株を分析　肺で増殖や炎症が「減弱」ハムスターで](https://www.asahi.com/sp/articles/ASQ1Q319PQ1PULBJ01K.html?iref=sp_photo_gallery_bottom)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

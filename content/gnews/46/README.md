@@ -2,24 +2,34 @@
 ---
 
 
-## 疫苗灾情｜巴西 10 岁女孩接种疫苗 12 小时后心脏骤停 情况危殆
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1892861/)
+## 中方反对斯洛文尼亚总理称台湾为国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893137/)
 
-**撰文/ 疫情关注组｜发布日期/ 22/01/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-104.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-巴西圣保罗的一名 10 岁女孩 Luisa Petenuci 在接种完辉瑞 COVID-19 疫苗后，仅 12 小时，就发生心脏骤停，目前情况危殆。
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-当地政府早前授权为 5～11 岁儿童接种 COVID-19 疫苗，Luisa 的家人遵照当局规定，于 1 月 18 日接种了第一剂辉瑞 COVID-19 疫苗，据 Luisa 的父亲回忆，女儿在接种后不久就倒下，所幸及时进行心脏复甦，目前仍在重症监护室，情况不容乐观。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642836106857.jpg)图片来源：雅典娜设计组
 
-事件发生后，当地市政府宣布立即宣布停止为 5～11 岁儿童接种 COVID-19 疫苗，政府在公告中承认指“自周二（1月18日）推出儿童疫苗以来，已有 46 名儿童发生健康问题，正接受严密监护。”
 
-不过，当地政府的这一举措遭到了圣保罗卫生部长 Jean Gorinchteyn 的强烈反对，他批评指：“在未有任何确切结论之前，该地市政府就仓促认为与疫苗有关，这是不负责任的。大多数情况下，疫苗接种后的不良反应都是巧合，和疫苗没有任何因果关系。”
+据环球时报报道：斯洛文尼亚总理扬沙，于当地时间17日接受印度官方媒体全印电视台专访中，15次提到中国，涉及台湾问题、中立关系和中欧关系等方面。
 
-值得留意的是，巴西总统博尔索纳罗 Jair Bolsonaro 曾在 12 月 28 日表示，他将不会为他的 11 岁的女儿接种疫苗，因为没有足够的证据证明儿童接种疫苗的合理性。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/巴西-10-歲女孩接種疫苗12小時後心臟驟停-情況危殆.jpg)
-来源｜[nomoresilence](https://nomoresilence.world/pfizer-biontech/luisa-petenuci-aged-10-pfizer-severe-adverse-reaction/)
+扬沙透露，斯洛文尼亚正与台湾洽谈互设“代表处”，称台湾为“国家”，对中国反对台湾加入世界卫生组织感到遗憾。
+
+在1月19日中国外交部例行记者会上，发言人赵立坚在回应相关提问时表示：斯洛文尼亚领导人公然发表挑战一个中国原则、支持“台独”的危险言论，我们对此深感震惊，强烈反对。赵立坚还强调，中华人民共和国政府是代表全中国的唯一合法政府，一个中国原则是公认的国际关系准则和国际社会普遍共识。
+
+参考链接：
+[https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GU3SHQ270530NLC9.html?spss=today-news-hotrank)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

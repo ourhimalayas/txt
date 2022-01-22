@@ -2,33 +2,44 @@
 ---
 
 
-## 福奇撒谎：福奇的功能增益证词与军事文件相矛盾
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1893526/)
+## 中共查处“中石油倒卖进口原油”目的及说辞让人费解
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1893713/)
 
-**翻译：Lulumi**
+**【国内新闻短评】**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1775.png)ttutu’ptu’p’ltu’p’l’y图片来源：hannity.com
+网易新闻2022年1月20日转新华网报道：中石油倒卖进口原油近1.8亿吨被调查处理
+![](https://assets.gnews.org/wp-content/uploads/2022/01/75.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1778.png)
+**短评：**
 
-美国国立卫生研究院院长（NIH）安东尼·福奇博士在这里可能会遇到一些麻烦。
+经中共国务院联合调查组核查：自2006年6月，中石油出现倒卖进口原油行为。多年来，中石油累计倒卖进口原油1.795亿吨。
 
-根据“真相工程”（Project Veritas）发现的文件，生态健康联盟（EcoHealth Alliance）作为福奇领导的NIH的一个已知合作者，在2018年3月与国防高级研究计划局（DARPA）接触，希望资助Project Defuse——一项对蝙蝠的冠状病毒进行功能增益研究的倡议。
+为什么这么多年以后才查处此事？
 
-据真相工程称，由于该提案违反了功能增益研究的暂停规定，因此被DARPA拒绝。但是据报道，福奇仍在推动。
+中石油的始于2006年6月，距今15年年之久。按照国际近15年的原油价格50美元/桶，按照大数1吨=7桶计算，1吨原油价格在350美元左右。1.8亿吨价值630亿美元，折合人民币约4千亿元。15年挪用4千亿，对于中石油的腐败来说是个小数，所得的利益更是个小数。即使这些倒卖原油利益到几个人手里，更是个小数。
 
-The Post Millennial报道说：“根据这些文件，美国国家过敏和传染病研究所（NIAID）在福奇博士的指导下，在中国的武汉病毒学实验室和美国其他几个地方进行了研究”。
+那么，为什么这么小的事情，怎么久的事，为什么，现在拿出来调查，其背后的原因是什么？是为了劫富济富？还是为了政治清洗？还是杀鸡儆猴？
 
-保罗·戈萨（亚利桑那州共和党）议员在推特上分享了这一信息：
+谁破坏了公平竞争的市场环境
 
-“真相工程刚刚发布的报告令人瞠目结舌。之前从未见过真相工程获得的关于功能增益的军事文件与福奇博士在宣誓后的证词直接矛盾。”
+原文有以下几句：“破坏了公平竞争的市场环境”，“切实加强党对国有企业的领导，推动各类企业依法依规经营，打造公平竞争的营商环境，推动完善社会主义市场经济体制。”
 
-**素材链接：**[hannity.com] [FAUCI THE FRAUD: Bombshell Report Finds Military Documents Contradict Fauci’s Gain of Function Testimony](https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/)
+作为中共喉舌的新华社，上述言辞的逻辑混乱到了让人匪夷所思的地步。“中石油倒卖原油破坏公平竞争的市场经济环境”，请问中共中石油、中石化、中海油对石油能源的垄断，以及更多的国企在各行业的垄断，造就的是公平竞争的市场经济环境？对于原本不存在的“公平竞争的市场经济环境”又何来“破坏”一说？既然是“党领导国企”，那么党是不公平竞争的制造者，又如何“打造公平的营商环境”？
 
-* * *
+中石油倒卖原油事件处理的目的我们不敢武断。但是，以此摆个姿态表示中共“零容忍”的决心和表达牠的“伟大光荣正确”来愚弄奴隶是一定的。
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+声明：文章观点仅代表作者，与GNews 平台无关
+
+新闻链接：[**https://c.m.163.com/news/a/GU3MBK1A0001899O.html?spss=newsapp**](https://c.m.163.com/news/a/GU3MBK1A0001899O.html?spss=newsapp)
+
+素材：洛杉矶盘古农场 — 鲁西西
+评论：洛杉矶盘古农场 — 心照
+编审：洛杉矶盘古农场 —柯镇恶
+发布：洛杉矶盘古农场 —恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
