@@ -2,43 +2,38 @@
 ---
 
 
-## 橙郡妇女佛洛蕊斯在接种第二剂Moderna疫苗后死亡
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1893138/)
+## 近900万美国人因中共病毒向雇主请病假
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1893209/)
 
-【疫苗危害回顾系列】
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月20日，据统计，已有近900万美国人向雇主请病假，称已感染中共病毒，或需要照顾被病毒感染的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/S__7626756.jpg)
+这个数字是一个月前的三倍，占美国总劳动力的6%。同时，有320万人说找不到工作，比去年12月增加了25% 。薪资服务公司古斯特的经济学家鲁克·帕杜表示，经济能否复苏与病毒流行状况和政府有关的公共卫生政策有关。他举例说，近期航空公司员工因中共病毒请病假而取消了数以万计的航班；在纽约，服务行业人员的工作时间已经从40小时降至21小时。
 
-【字幕】
+据美国CDC的数据，目前奥密克戎占中共病毒确诊病例的98%，成为感染率和传播率最高的变种病毒。评论人士认为，从就业数据看，美国的用工状况仍在进一步恶化，经济还没有真正复苏。
 
-主持人：橙郡正在调查一位接种第二针莫得纳疫苗几天后去世的女性死亡原因。 家人说这位母亲/祖母在接种疫苗前非常健康，她的猝死令人震惊。 我们的记者杰西卡将带来进一步报道。
+接下来继续关注美加跨境卡车司机动向，据了解，为抗议美国和加拿大政府的强制疫苗政策，卡车车队在艾默生入境口岸附近参与示威活动，具体现场情况，我们来观看以下视频。
 
-记者：这位橙郡的孩子怀疑他母亲离世是因为接种了第二针莫得纳疫苗。 和当地警局员工的对话，使佛洛蕊斯的儿子卡德纳斯及家人脑中警铃大作。
+[https://mega.nz/folder/19xEyAZR#nE3CR0BayHuDdZKziQblKw](https://mega.nz/folder/19xEyAZR#nE3CR0BayHuDdZKziQblKw)
 
-卡德纳斯：“听起来我妈的死亡不是警局收到的第一个类似报告”。
+新闻链接：[Nearly 9 Million Americans Call In Sick With COVID-19](https://www.newsmax.com/finance/streettalk/covid-19-workforce-calling-in-sick/2022/01/20/id/1053263/)
 
-记者：橙郡的副警长奥尔森说卡德纳斯的说法是对的。 奥尔森跟“见证者媒体”记者说，包括佛洛蕊斯在内的多起死亡事件正在调查中， 因为这些死亡都发生在打完新冠疫苗后的1-3天内。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-2.png)
 
-奥尔森：“这意味着我们的医生要做进一步研究，无论是毒理学、微生物学还是仅仅审查医疗记录，以了解这些死去的人的治疗过程，并寻找其他可能的疾病。但现在我们还不能下结论说疫苗与死亡有直接关系。”
+总编：Ivy001
 
-记者：卡德纳斯说他妈是一位健康、外向、勤劳的母亲和祖母。
+编辑：飞虹
 
-卡德纳斯：“永远开心，微笑，一直告诉我她非常爱我。”
+校正/发稿：浪迹天涯
 
-记者：4月14日在橙郡的一家CVS药店打完第二针疫苗后的第二天，佛洛蕊斯抱怨说有预期的副作用，包括寒战、身体疼痛和发烧。
-
-卡德纳斯：”她看起来真的很苍白，她只是说她很累，要回家睡觉”。
-
-记者：佛洛蕊斯第二针疫苗的两天后， 家人发现她死于自己房中。
-
-卡德纳斯：“我现在非常非常担心大众的安全，如果我妈因为打疫苗去世，那会有多少人将离世？”
-
-* * *
-
-搜集：36CIA | 听写，翻译：文徐 | 剪辑，字幕：文零
-
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 陈凯歌就是垃圾
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893227/)
+## 美联储干了什么坏事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893275/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组

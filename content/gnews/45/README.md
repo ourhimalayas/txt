@@ -2,20 +2,22 @@
 ---
 
 
-## 获中共支持的同方威视公司的安检设备大肆入侵欧洲
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892364/)
+## 华人将对中共法律超限战抗争到底
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1892449/)
 
-作者：首尔天池农场 – zzballack
+作者：纽约香草山信息部 – 6zero4
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据外媒1月20日报道，美联社的一篇调查报告说，尽管美国出于安全考虑已将中共公司同方威视列入工业和安全局的实体名单，但是同方威视仍成功打入西方的安保市场。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-15.png)
-欧洲和美国的安全官员都担心使用由中共支持的同方威视机器可能存在重大的安全风险，因为通过该机器的电子设备上的敏感文件或信息可能会被中共特工获取。同样，如果威视机器设置被修改成允许拥有爆炸物或枪支的个人不受阻碍地通过安检，那么这可能有助于中共支持的活动，比如恐怖袭击。加拿大政府认为同方威视存在间谍活动的“高度威胁”。
+郭先生在2022年1月17日马丁·路德金纪念日的大直播中，谈到单伟健通过纽约中心区法院的案件，交给郭先生7万多页所谓的“证据”和30多万页法律文件，在既不许选择陪审团，也不许说话和质疑的情况下，直接判郭先生藐视法庭，如此滥用司法管辖权且毫无程序正义，是PAG背后中共一手操纵的法律超限战，滥诉、缠诉。
 
-尽管存在这些安全问题，同方威视已为全球170多个国家和地区的客户提供服务，其中包括2019年在欧洲为政府机构、海关、民航机场和港口安装了1000多台安检设备。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-13.png)
+
+PAG缠诉案不再是郭先生一人的经济纠纷案，牵扯到美国司法系统被中共渗透，甚至种族歧视等巨大问题。如果我们在PAG案前妥协和放弃而没揭开真相，中共就会穷追猛打，华人在美国将永远成为司法牺牲品而无安全感。
+
+马丁·路德金以宁死不屈的精神成为改变美国司法公正和民主进程的圣贤。新中国联邦人将通过PAG案进一步了解美国司法体系及其法治精髓，感受郭先生为新中国联邦司法体系建立的理念和愿景，成就中国人的法治梦想！
 
 参考链接：
 
-- [Chinese Communist Party-Backed Company Delivers Security Scanners to Global Hot Spots](https://www.breitbart.com/europe/2022/01/20/chinese-communist-party-backed-company-delivers-security-scanners-to-global-hot-spots/)
+- [2022年1月17日 文贵大直播](https://gtv.org/video/id=61e56ad5a0fd8e5c735add1b)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
