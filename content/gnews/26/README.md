@@ -2,63 +2,46 @@
 ---
 
 
-## 汪建何许人也（二）
-` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1891810/)
+## 法国总理称疫苗通行证将于周一生效
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1891825/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-4.png)
+**编译：沉默老歌**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4B2FAF0A-FE87-4A70-8144-ECDB66B2D945.png)来源：网络
+**巴黎（美联社）：法国总理让·卡斯特克斯（Jean Castex）表示，新的 COVID-19 通行证将于周一生效，通过禁止他们进入国内航班、餐馆、体育赛事和其他场所，严重限制那些拒绝接种疫苗的人的公共生活。**
 
-———— 深挖中共
+“如果我们想在出现新变种时保持和增加我们的疫苗接种覆盖率，通行证是必要的”，Castex 周四表示。 他补充说，所谓的疫苗通行证 “显然限制了未接种疫苗的人”。
 
-作者： 流浪的阳光
+从下周一开始，进入餐厅和酒吧、电影院、剧院和其他休闲和体育设施，以及乘坐跨地区火车和国内航班，都需要进行全面接种。 该措施适用于 16 岁及以上的所有人。 政府表示，计划为最近从 COVID-19 中康复的人提供一些例外情况。
 
-接著我们来看看和汪建有交集的几个人 比尔盖茨 2012年9月25日，华大与盖茨基金会签署合作备忘录。 2013年4月8日，比尔·盖茨一行到访香港华大基因。 2017年10月31日，比尔盖茨基金会成员到访国家基因库。 2018年10月3日，在美国西雅图 ，华大基因和比尔盖茨基金会签署谅解备忘录。
+Castex 还表示，法国的病毒激增显示出减弱的迹象，但医院面临的压力仍然很大，这就是政府希望将目前的限制措施再维持 12 天的原因。
 
-![Image](https://pbs.twimg.com/media/E9O0bhSUcAYl7hB?format=jpg&amp;name=large)
+总理在巴黎举行的新闻发布会上说：“这一特殊浪潮尚未结束，但其减弱的影响是一个积极的信号”。他说，从 2 月 2 日开始，将不再强制要求每周至少在家工作三天，并且将取消在户外戴口罩，夜总会将于 2 月 16 日开放。
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUUAYb7VX?format=jpg&amp;name=large)
+Castex 说，同样从周一开始，12 至 17 岁的儿童将有资格进行加强针。 他说疫苗通行证是阻止高度传染性 omicron 变体传播的关键。 但他承认，如果感染人数急剧下降，医院的负担明显减轻，该措施可能会暂停。
 
-![Image](https://pbs.twimg.com/media/E9O0bhRUcAQuYJf?format=jpg&amp;name=900x900)
+在高度传染性的 omicron 变种的推动下，法国一直是该病毒在欧洲的震中。 仅在周一，法国就报告了创纪录的 525,525 例新病例。
 
-![Image](https://pbs.twimg.com/media/E9O0bhQUcAE_svk?format=jpg&amp;name=large)
+过去一周平均每天记录超过 320,000 例病例，但是同期入住医院重症监护病房的新患者人数减少了 15%，这让政府希望未来几周情况会有所好转。
 
-法兰西斯·柯林斯，美国遗传学家，领导人类基因组计划， 2000 年 6 月 26 日，克林顿在白宫宣布完成人类基因组草图，法兰西斯·柯林斯在侧。 2001年8月28日，江泽民在中南海接见国际人类基因组计划主要负责人，其中有Francis Collins和汪建2009年7月8日，奥巴马提名柯林斯为美国国立卫生研究院院长。
+周四早些时候，政府发言人加布里埃尔·阿塔尔（Gabriel Attal）表示，在疫苗通行证计划宣布后，过去一个月有超过 100 万成年人接种了他们的第一次 COVID-19 疫苗。
 
-![Image](https://pbs.twimg.com/media/E9R5mpYVcAcXP2D?format=jpg&amp;name=900x900)
+大约 92% 的法国成年人，超过 4800 万人，已经完全接种了疫苗，94% 的人至少接种了一次疫苗。
 
-![Image](https://pbs.twimg.com/media/E9R5mptVEAAhhyg?format=jpg&amp;name=900x900)
+经过数周的激烈辩论，法国议会在周末批准了这项新措施，宪法委员会将于周五公布其评估结果。
 
-![Image](https://pbs.twimg.com/media/E9R5mpXVgAEaIGZ?format=jpg&amp;name=large)
+**来源链接：**
 
-![Image](https://pbs.twimg.com/media/E9R5mpvVEAAPXT-?format=jpg&amp;name=small)
+[**French Premier Says Vaccine Pass to Go Into Effect Monday**](https://www.usnews.com/news/health-news/articles/2022-01-20/1-million)
 
-说到这里，就要聊一聊美国国立卫生研究院了，安东尼．福奇就是美国国立卫生研究院(NIH)下属美国国家过敏和传染病研究所的所长，换言之 弗朗西斯·柯林斯是福奇的顶头上司，他们俩还是好朋友！ 就是柯林斯和福奇一起批准了用美国纳税人的钱给武毒研究所进行了功能增强实验，使病毒武器化，然后来祸害世界。
+**编辑：LILY**
 
-就是这位柯林斯，在2020年3月26日，在NlH官方博客发表了《基因研究显示 新冠肺炎病毒起源于自然》的博文
-也是这位柯林斯，在2020年12月13日接受NBC电视台的采访中呼吁民众要消除对新冠疫苗的怀疑，鼓励大家去打疫苗！
-还是这位柯林斯，在2017 年 6 月和福奇与比尔盖茨一起讨论全球健康领域的研究机会！
+**发布：歪桑**
 
-![Image](https://pbs.twimg.com/media/E9XNjR0VUAEzcVM?format=jpg&amp;name=large)![Image](https://pbs.twimg.com/media/E9XNjR1UYAE7195?format=jpg&amp;name=large)
+20220121
 
-![Image](https://pbs.twimg.com/media/E9XNjR0VgAYK5Hl?format=jpg&amp;name=900x900)
-
-![Image](https://pbs.twimg.com/media/E9XNjR1VIAA9Q1b?format=jpg&amp;name=small)
-
-未完待续。
-
-编辑：流浪的阳光
-
-校对/发稿：Serena
-
-汪建何许人也（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
-
-新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
-
-新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/AA30E5EB-1604-432B-B851-5D739D2B0F01.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

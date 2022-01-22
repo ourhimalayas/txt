@@ -2,42 +2,79 @@
 ---
 
 
-## 吃起狗肉来有声有色的杨贝贝Isobel Yeung是真心爱狗吗
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1891970/)
+## 为什么法官命令 FDA 立即发布 Covid-19 疫苗数据
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1891996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获_副本-1.png)
-郭文贵先生转了杨贝贝吃狗肉的盖特——
-![](https://assets.gnews.org/wp-content/uploads/2022/01/001.png)
-下面我们就按图索骥来看一下原片——
+2022-01-21
 
-视频来源：[纪录片 《玉林狗肉节》 美国记者抨击中国人吃狗肉……](http://k.sina.com.cn/article_7530565666_m1c0db502203300w5uq.html?display=0&amp;retcode=0)
+作者：AARON SIRI
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NMMMDZGS4CK604VSVMYHD-1.png)图片来源：网络
+一群科学家和医学研究人员根据 FOIA (讯息自由法）起诉 FDA（食品与药物管理局），要求公布数十万份与 Pfizer-BioNTech （辉瑞生物技术）Covid-19 疫苗许可相关的数十万份文件。代表该组织的原告律师 Aaron Siri 解释了导致联邦法院下令加快发布该机构声称需要数十年才能处理的文件的斗争。
 
-曾经看过一个故事说一个在英国受过高等教育的白人到非洲冒险，他来到了食人生番部落并最终融入食人生番的部落，多年后他的同胞在非洲从林里碰到了这位白人同胞，看到他大快朵颐地吃人肉，就非常吃惊地问他，你来自文明世界如何能吃得下人肉呢？这位已经融入食人生番的白人回答说：No! 我跟他们还是不一样的，你没看到我在吃人肉的时候用的是刀叉吗？
+为响应《信息自由法》的要求，美国食品和药物管理局要求联邦法官允许公众等到 2096 年才披露其获得辉瑞 Covid-19 疫苗许可所依赖的所有数据。
 
-相较于食人生番，把吃狗看成天经地义的中国也是另一种的落后，这种血腥的落后需要革除，而那个到玉林狗肉节探班的杨贝贝Isobel Yeung则不然，她和她所任职的VICE的到来意味着文明世界对玉林狗肉节的审视，但是吃起狗肉来有声有色的杨贝贝Isobel Yeung却又一次地惊掉了我们的下巴，为什么呢？因为这一次吃狗肉的是来自文明世界的并且是说英语的美国女记者，那么她与那些视吃狗肉为天经地义的中国同胞有什么不同呢？——她分明是用拿惯刀和叉的手在吃狗肉嘛！
+那不是错别字，FDA 希望法院批准长达 75 年的时间才公开披露这些信息。
 
-撰稿：喜马拉雅的肉夹馍；
+在努力为 Covid-19 疫苗建立公众支持的过程中，FDA 一再承诺“完全透明”，并重申其在许可辉瑞的 Covid-19 疫苗时 “对透明度的承诺”。
 
-审核：喜马拉雅的馍夹肉；
+考虑到这一承诺，在 2020 年 8 月疫苗获得许可后，公共卫生和医疗专业人员透明化，一群高资历的科学家向 FDA 提交了一份 FOIA 请求，要求提供辉瑞公司提交的数据。科学家们解释说，在所有数据生成之前，无法进行适当的审查，因为即使缺少一个数据组，也可能导致任何分析失败。
 
-校对：Maarago；
+作为回应，FDA 什么也没做。因此，在 2021 年 9 月，由 Siri & Glimstad 的律师代表的科学家起诉FDA，要求其在 2022 年 3 月之前提供这些数据。
 
-（文章内容仅代表作者个人观点）
+该机构最初估计需要处理 329,000 页报告，并请求法院允许每月仅处理 500 页，这需要 55 年。在向法院提交的最后简报中，FDA 承认总页数至少为 451,000 页，但仍寻求允许每月仅处理 500 页。这意味著它可能需要 75 年才能完全公开披露这些信息，而今天大多数美国人都将死去。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+1 月 6 日，德克萨斯州北区的一家联邦法院下令加快公布。截至 1 月 12 日，FDA 尚未表示打算上诉。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+科学家要求在获得 FDA 许可后提供数据
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+FDA于2021年 8 月 23 日批准了辉瑞疫苗，仅在辉瑞开始向该机构提供记录108 天后。在此期间，FDA 声称它对这些文件进行了深入、有力和彻底的分析，向公众保证辉瑞疫苗是安全有效的。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+然而，当被要求与公众分享这些文件时，FDA声称它需要超过 20,000 天。FDA 的制作时间表与其透明度承诺相冲突。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+FOIA 的目的是政府透明度。就辉瑞疫苗而言，对透明度的需求是前所未有的。现在，大多数美国人被要求接种 Covid-19 疫苗，否则将面临失业或更严重的后果。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+这是以前从未做过的。通常，成人疫苗的授权是有限的；即使是美国最高法院的疫苗授权决定，Jacobson 诉马萨诸塞州，也只涉及国家征收的 5 美元罚款，而且学校疫苗授权历来有自由的宗教或个人信仰豁免政策。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更成问题的是，美国人如果受伤害，就不能起诉辉瑞。几乎没有其他产品禁止消费者起诉生产、销售和从该产品中获利的公司。
 
+将公司的利润利益与其对安全的利益脱钩会造成道德风险，并背离了数百年来的产品责任原则。因此，美国人必须使用该产品，否则将被开除出工作、学校、军队和公民生活，但他们不能就任何由此造成的伤害起诉辉瑞。
+
+联邦政府创造了这种前所未有的局面。它授予豁免权，许可产品，并积极寻求授权。因此，这种情况需要前所未有的透明度。
+
+正如当时的总统候选人乔·拜登告诉美国人民的那样，“你必须将所有这些[疫苗数据]提供给全国其他专家， 以便他们可以查看和查看。” 他多次重申需要共享数据。过道两边 的参议员和众议员也是如此。
+
+FDA声称它不能遵守，法官命令遵守
+
+FDA 显然不同意。在 2021 年 12 月 14 日的听证会上，其律师坚定地坚持认为，法院不应要求该机构每月处埋超过 500 页，反复强调 FDA 声称的有限资源、编辑个人信息的必要性和保护辉瑞商业秘密利益的义务，同时一直无视美国人民的利益。
+
+FDA 的借口令人难以置信。FDA 拥有超过 18,000 名员工和超过 65 亿美元的预算。如果任何一家价值数十亿美元的公司出庭并声称贫困以逃避处理文件，那将是可笑的，但这是 FDA 的立场。
+
+美国德克萨斯州北区地区法官 Mark T. Pittman 对 FDA 提议的处理速度表示失望。他认为 FDA 要求的持续时间不合理，将其与极权国家的行动相比较。因此，法官在 1 月 6 日下令FDA 每月至少生处理 55,000 页。
+
+法官在他的裁决中承认，这些数据的发布对公众至关重要，应该是 FDA 的最高优先事项之一。他引用詹姆斯麦迪逊的话说，“一个没有大众信息或获取大众信息的手段的大众政府，只是一场闹剧或悲剧的序幕”，约翰·F·肯尼迪解释说，“一个害怕让其人们在公开市场上判断真假是一个害怕其人民的国家。”
+
+美国拥有一些世界上最伟大的学习机构。我们需要政府内外的科学界来解决疫苗计划中持续存在的严重问题，包括免疫力下降 、变种逃避疫苗，以及接种疫苗的人仍然可以传播病毒。
+
+FDA 试图关闭大门，并将独立科学家排除在解决这些问题所需的数据之外，这是不负责任的。
+
+需要透明、独立的审查
+
+政府闭门造车的失败体现在 FDA 没有派代表出席法庭听证会，因为正如政府律师解释的那样，FDA 的 Covid-19 协议不允许这样做。
+
+这意味著，尽管早在 2021 年 11 月，联邦卫生机构报告的疫苗接种率超过 96% ，而且 FDA 声称这些疫苗是“有效的”，但 Covid-19 仍在扰乱日常生活。这突出了打开大门并让独立科学家参与的必要性。
+
+正如皮特曼所认识到的那样，美国需要透明度和独立的科学家来审查这些数据——不是在 75 年后，而是现在。
+
+参考链接：[https://news.bloomberglaw.com/health-law-and-business/why-a-judge-ordered-fda-to-release-covid-19-vaccine-data-pronto](https://news.bloomberglaw.com/health-law-and-business/why-a-judge-ordered-fda-to-release-covid-19-vaccine-data-pronto)
+
+编辑：LILY
+发布：肥鯮
+校对：
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
