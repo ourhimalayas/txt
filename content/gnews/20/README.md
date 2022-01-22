@@ -2,39 +2,22 @@
 ---
 
 
-## 美日双方加强合作 共同应对中国威胁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1893506/)
+## 如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893556/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+我们要让我们的孩子要健康地、自由地、有爱心地，有耐心地（生活），还有更重 要的事情，一定让孩子更多的认知这个世界，不要自私地活下去。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642843494707.jpg)图片来源：雅典娜设计组
+Rica你看刚才你看到我跟这些年纪大的，我从来没有觉得我多老过，我也从来没觉 得我年轻过，你看到今天，我都认为我不老，你就知道我当年我小的时候从来不认 为我小的（态度）一样。我当年跟那些贺老、郑老打交道，我都是十几岁呀。我12、 13岁时候就（跟）比我大的人打交道，我就是真诚啊，我从来不觉得给人家倒个茶, 点个烟，提个鞋，是什么丢人，我从来没有过。到今天，王雁萍就坐在我旁边，王雁萍，这鞋带掉了，我蹲下来就把这鞋带给系上了。班农的鞋带掉了，我就这么蹲下来系鞋带。班农抽烟我就帮他点烟，因为我担心啥，他那打火机老这样，对着自Bo哇塞，这是自杀，我说，求求你了，你千万别（火对自己），我来帮你点。但是中国人会认为什么？哎呀，你低人一头了。就像中国人到了人家，外国商店，人家单腿跪地给你系鞋带服务，中国人的鼻子仰起来了，哇塞，跪在我地上，多么的无耻啊，把人家的善意对待当成了所谓的屈服，这是多么懦弱的民族，精神阳痿的民族啊。所以说我从小到现在，我从不觉得我蹲下来我为别人服务，我low了，就像战友来了，像Rachel我给她点烟，是吧？有战友给我发信息，七哥你不能这样。长岛哥、Rachel到那儿去，你给Rachel点烟，我们心里很不舒服。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/如何跟年纪大的人打交道面对病毒怎么做来拯救家人朋友（七）-.jpg)
+发布： *tianzhihuan*
 
-
-路透社报道：美国总统拜登和日本首相岸田文雄周五举行线上会晤，同意在经济和安全问题上加强合作，这些问题包括中国、朝鲜导弹以及俄罗斯对乌克兰的威胁。
-
-这次会晤是双方自岸田文雄就任日本首相以来的首次实质性会谈。
-
-岸田文雄表示，他和拜登已同意合作实现自由开放的印太地区，在中国和朝鲜导弹问题上密切协作，并在乌克兰问题上进行合作。
-
-岸田文雄对记者说：“我们同意在与中国有关的问题，包括东海和南海、香港和新疆维吾尔自治区，以及朝鲜核武器和导弹问题上密切合作。”并表示他和拜登将密切合作，防止俄罗斯入侵乌克兰，并“与其他盟友和伙伴保持密切联系，继续就这一点进行沟通，即将对俄罗斯的任何攻击采取强有力的行动”。
-
-白宫在一份声明中表示，拜登欢迎岸田文雄增加国防开支的决定，并强调了未来维持这些关键投资的重要性。
-
-声明称，双方强调了加强网络安全的重要性，并决心回击中国试图改变东海和南海现状的企图。
-
-参考链接：
-[https://cn.reuters.com/article/us-japan-talk-security-china-0122-idCNKBS2JW03F](https://cn.reuters.com/article/us-japan-talk-security-china-0122-idCNKBS2JW03F)
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

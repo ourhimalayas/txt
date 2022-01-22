@@ -2,33 +2,24 @@
 ---
 
 
-## 福奇撒谎：福奇的功能增益证词与军事文件相矛盾
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1893526/)
+## 如何跟年纪大的人打交道&amp;面对病毒怎么做来拯救家人朋友（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1893576/)
 
-**翻译：Lulumi**
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1775.png)ttutu’ptu’p’ltu’p’l’y图片来源：hannity.com
+反过来你就说人和人打交道，中国人生活中只要身边亲的人、近的人，几乎都没有 尊重，更不在乎穿什么衣服，更没有礼。礼和节是两回事。礼是我对你表现的尊重 的一个态度，节是标准。就没标准的穿，打麻将的时候越打，打十次以上基本上不 光脏都行了，穿越少越好。然后把鞋，几乎中国人打麻将，把鞋都脱下来，光着脚。 那个钱”pia pia pia”数着钱是吧，多亲多近打麻将都能打翻脸了。
 
-美国国立卫生研究院院长（NIH）安东尼·福奇博士在这里可能会遇到一些麻烦。
+那么我跟贺龄乐先生，还有这些当年的北京军区司令，周痛子周司令，炮兵部司令, 你们是没看过他给我写信，我哪天能给你们看看，你们会更加震惊。包括当时我从 看守出来，夏平董事长，日本的大西进，日本的几大家族，欧洲的包括爱马仕，包 括Barbara （音译）这些大牌子，美国的Coach,台湾的世家，全世界真的都是最牛的 人，你觉得人家和我们打交道，觉得最不同是什么？就是人家珍惜时间。你知道 Rica我有多可怜吗？我在清风看守所出来之后，我才知道啥叫备忘录，我才知道什么叫时间表。我到今天对时间的安排都不能适应，为什么？因为咱是农民，咱没受过正统的教育。但是就是跟贺龄乐、郑部长这样的人，告诉我，你要有时间概念， 尊重时间就是尊重别人。凡是晚到不尊重时间的，是不会被人尊重。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/如何跟年纪大的人打交道面对病毒怎么做来拯救家人朋友（三）-.jpg)
+发布： *tianzhihuan*
 
-根据“真相工程”（Project Veritas）发现的文件，生态健康联盟（EcoHealth Alliance）作为福奇领导的NIH的一个已知合作者，在2018年3月与国防高级研究计划局（DARPA）接触，希望资助Project Defuse——一项对蝙蝠的冠状病毒进行功能增益研究的倡议。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-据真相工程称，由于该提案违反了功能增益研究的暂停规定，因此被DARPA拒绝。但是据报道，福奇仍在推动。
-
-The Post Millennial报道说：“根据这些文件，美国国家过敏和传染病研究所（NIAID）在福奇博士的指导下，在中国的武汉病毒学实验室和美国其他几个地方进行了研究”。
-
-保罗·戈萨（亚利桑那州共和党）议员在推特上分享了这一信息：
-
-“真相工程刚刚发布的报告令人瞠目结舌。之前从未见过真相工程获得的关于功能增益的军事文件与福奇博士在宣誓后的证词直接矛盾。”
-
-**素材链接：**[hannity.com] [FAUCI THE FRAUD: Bombshell Report Finds Military Documents Contradict Fauci’s Gain of Function Testimony](https://hannity.com/media-room/fauci-the-fraud-bombshell-report-finds-military-documents-contradict-faucis-gain-of-function-testimony/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
