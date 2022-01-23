@@ -2,31 +2,33 @@
 ---
 
 
-## 可口可乐赞助北京冬奥会遭批
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896604/)
+## 有声|美股新年伊始即现危机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896615/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-34.jpg)可口可乐赞助北京冬奥会遭批 网络图片
-据俄罗斯卫星通讯社1月23 日暨《华盛顿时报》报道，监督组织“媒介准确”发起了一项活动，在可口可乐公司总部前放了一块牌子写着：“为什么可口可乐赞助种族灭绝？”
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国媒体1月19报道，2022年新年伊始，美股正在经历2016年以来最糟糕的开局，超过220家市值100亿美元以上的美国上市公司，目前较其高点累计至少下跌了20%。以科技股为主的纳斯达克综合指数的波动尤其剧烈。
 
-中共国非法剥夺了香港的自由；威胁台湾；在西藏践踏人权；在新疆实施种族灭绝；中共国制造了COVID-19新冠病毒并把它扩散到全世界，造成前所未有的大灾难。可口可乐对中共这些侵犯人权和反人类的行为完全保持沉默，通过赞助北京冬奥会，表达对中共国的支持。
+纳指中，约39%的股票至少已较高点跌去一半，而该指数较最高点下跌了约8%。据统计，自1999年互联网泡沫前后以来，从未有如此之多的纳指成分股在该指数接近其高点之时，出现大幅度下跌的情况。
 
-北京冬奥会是独裁者的个人秀，是种族灭绝运动会，各个国家和政府纷纷谴责，并外交抵制。可口可乐充当中共走狗的行为，既不可口，也不可乐。
+而美股平均较过去的52周最高点下跌了38%。动荡的2022年初，一些经济评论家纷纷表示美股在2022年很有可能将会出现20%-40%的调整。
 
-新闻参考链接：[https://sputniknews.cn/20220122/–1037234891.html](https://sputniknews.cn/20220122/--1037234891.html)
+而据郭文贵先生透露，2022年，将会是人类最黑暗的一年，因为中共病毒疫苗和经济危机，世界经济面临崩塌。而目前，多数大基金却误以为经济只跌20%-40%，在其他人陷入灾难的时候，大基金会活下来并创造更多金融工具敛财。郭先生说，多数大基金被中共激活了人性中丑陋的一面。
 
-* * *
+文字版原文：[美股新年伊始即现危机](https://gnews.org/zh-hans/1887690/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

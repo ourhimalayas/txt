@@ -2,31 +2,33 @@
 ---
 
 
-## 比特币较高点跌幅超50% 首次跌破35000 美元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896571/)
+## 有声|中共与世界经济脱钩，中国人将获自由
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896612/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-33.jpg)比特币较高点跌幅超50% 首次跌破35000 美元 网络图片
-据俄罗斯卫星通讯社1月22日报道，比特币价格在本周六下跌超过 9%，比特币价格在交易过程中自 2021 年 7 月以来首次跌破35000 美元大关。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在1月19日的大直播中，针对中共和世界经济脱钩，郭文贵先生表示，只要脱钩，中国人将摆脱中共的奴隶，获得自由。
 
-在交易量最大的加密货币交易所币安上，比特币价格下跌 8.9% 至3.54 万美元。根据计算 20 多家交易所平均价格的CoinMarketCap 门户网站的数据，比特币下跌 9% 至3.49 万美元。
+在中共的统治下，中国人的生活、医疗、教育等将继续被中共奴役和统治。如果中共继续维持高能耗、高污染的经济策略 ，中国的环境污染将无限制地恶化，中国人的生存环境将遭遇空前的危机。一旦中共和世界经济脱钩，中国人将脱离这种险境。
 
-2021 年 11 月，比特币创出了 60002 美元的新高，随后比特币一路下跌，2021 年 12 月 4 日最大跌幅高达 20%，截至目前，比特币指数较 60002 的高点，跌幅超 50%，投资者损失惨重。一两年前郭文贵先生就在直播中公开指出比特币一定会跌到一文不值，并多次提醒比特币投资者要远离比特币。如今郭先生的警告一次次验证，跟着共产党走进火葬场。
+在中共几十年的统治下，中共欺骗民众，依靠大量进口才能解决人民的粮食问题，高新科技更是依赖外国引进。中共的经济现状更是伪装下的海市蜃楼。一旦中共和世界经济脱钩，中国人将与虚假脱钩。
 
-新闻参考链接：[https://sputniknews.cn/20220122/-9–7-35000–1037246528.html](https://sputniknews.cn/20220122/-9--7-35000--1037246528.html)
+中共70多年来，利用驭民五术奴役中国人民。一旦中共和世界经济脱钩，中国人民将摆脱中共的经济、精神控制，中国人将过上有尊严、有价值的日子。
 
-* * *
+文字版原文：[中共与世界经济脱钩，中国人将获自由](https://gnews.org/zh-hans/1888966/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
