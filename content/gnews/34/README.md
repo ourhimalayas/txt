@@ -2,34 +2,37 @@
 ---
 
 
-## 为拉近和中亚关系，中共近年狂撒数千亿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897566/)
+## 美参议院提出对中共入侵台湾实施全面经济金融制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897760/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
 整理：Eileen（围剿维尼熊）
 编辑：5m
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642928368586.jpg)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642934422283.jpg)图片来源：雅典娜设计组
 
 
-据美国之音报道：哈萨克斯坦局势的动荡不仅全球瞩目，也使中国在中亚地区的影响更加引人注意。中国近年来在中亚五个国家撒下数千亿人民币，拉近了和这些国家的关系。
+据美国之音报道：美国参议院军事委员会成员丹·沙利文1月21日提出“2022年与台湾站在一起”(S.T.A.N.D. with Taiwan Act)法案。
 
-1991年苏联解体。1992年1月中国与中亚五国乌兹别克斯坦、哈萨克斯坦、吉尔吉斯斯坦、塔吉克斯坦和土库曼斯坦建交。2022年1月，在与五国建交30周年之际，习近平同五国总统互致贺电。
+法案将在“人民解放军或其代理人”启动对台湾的军事侵略时，采取“后果严重及全面性的经济和金融制裁”，包括对中国共产党成员及产业界的制裁，以及禁止美国金融机构，包含投资公司、私人资本公司、风险资金公司和避险基金投资于任何与中国共产党有联系的中国实体。
 
-根据弗吉尼亚威廉玛丽学院研究实验室 AidData的政策分析主任萨曼莎·卡斯特 (Samantha Custer) 的说法，中国在中亚的影响力在过去几十年中呈指数级增长。上个月，卡斯特和她的合著者在一份新报告《权力走廊》中分析了中国如何利用巨额财政援助来赢得中亚和南亚国家的朋友和盟友。
+法案也将禁止进口包括开采、制造，全部及部分在中国生产的特定产品。
 
-报告称，近二十年来，中国政府向中亚和南亚地区提供了1270亿美元的财政援助。中亚国家在吸引北京财政援助的资金方面名列前茅。
+沙利文表示，他提出的法案旨在对习近平表明，军事侵略台湾的代价是什么。
 
-另外，格鲁吉亚智库 Geocase 中东研究主任埃米尔·阿夫达利安尼（Emil Avdaliani）表示，尽管中国在中亚国家的地位已经相当成功，但中国仍然面临着诸如中亚国家的民族主义和政治精英对北京的不信任等障碍。
+他说，中国共产党完全知道它想在全世界达成的目标：让全世界对它的威权政府更安全、向其他国家输出它的独裁模式。
+
+法案条文还提到，如果人民解放军发动对台湾的军事侵略，那将中断地区和平稳定并威胁全球和平稳定、破坏美国核心政治、安全及经济利益，作为对台湾军事侵略的重要威慑措施，中国共产党必须理解到，发动这种侵略将导致毁灭性的经济和金融后果。
 
 参考链接：
-[https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html](https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html)
 
-*发布：tianzhihuan*
+[https://www.voachinese.com/a/senator-sullivan-introduces-bill-to-sanction-china-if-it-invades-taiwan-20220121/6407564.html](https://www.voachinese.com/a/senator-sullivan-introduces-bill-to-sanction-china-if-it-invades-taiwan-20220121/6407564.html)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+*发布：*tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

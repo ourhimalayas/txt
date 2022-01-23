@@ -2,22 +2,20 @@
 ---
 
 
-## 七哥过去很多次戴七哥特有红色领带配西服都有重大意义
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898085/)
+## 达沃斯党勾结中共始于它2001拿到奥运会和WTO入场券
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898190/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf02487664c47acd8acdc](https://gtv.org/video/id=61ecf02487664c47acd8acdc)
+G-TV视频链接：[https://gtv.org/video/id=61ecf14587664c47acd8ad60](https://gtv.org/video/id=61ecf14587664c47acd8ad60)
 
-**郭文贵先生**：今天这个我是新的一条领带和这个西装配的，看到没有。全新的，连衬衣都是新的。为什么今天要配上这个红呢，红的系列呢，大家记得我过去曾经穿过很多次类似于七哥这独特的红，配的各种西装，都有重大意义。所以说国内的有战友给我发信息，七哥，我要收藏一套你穿红的锁边儿还有红领带的那套东西。愿意用几头猪来换你那套西装，战友们把我给笑坏了。
+**郭文贵先生**：你再看李源潮，还有一个所谓的“警告西方”，天天“警告西方”，现在是全世界已经对“警告”这词儿已经麻木了。
 
-我说你的猪继续留着，把猪蹄存好，七哥去吃。西装可以给你，我就送给他一套。结果这个战友穿上西装给我发回照片，这都是一年前的事儿了，让我很惊讶。这个战友支持爆料革命几年，竟然是我一个老友。
+但同时发生了什么？大家看到了吗？习近平在今年的讲话用出了四个字儿叫“溢出效应”。溢出效应之前是王毅的叫潘多拉盒子，潘多拉盒子之前是开药方，然后动不动就要脱钩什么的。
 
-所以爆料革命当中，我们的神秘，和我们战友们储存的各种力量，以及我们战友所创造的各种的事迹。就像上次大直播当中，我推出我的儿时的照片，我当时照这照片的时候绝对不会想到，在今年将近四十三年以后，这个在一个全世界几千万人在电视上播出，几亿人要看。
+现在是什么概念？但凡中国人有一点脑子的人看一看共产党在达沃斯的一系列讲话，达沃斯论坛这些人的来源，我告诉你，这就是黑暗力量的一个俱乐部——控制人类命运的俱乐部，完全不希望人类有75亿人口的俱乐部，然后是让全世界当奴隶的俱乐部，严格讲，它叫奴隶主俱乐部。
 
-那么生活中你和每个人相处，和你的先生和你的姐妹兄弟，还有你的爱人，你不会想到你今天做的事情未来几十年会发生什么，甚至几年。所以珍惜当下，明天你根本不知道发生什么，昨天以前发生的事情你根本无法挽回。
+跟谁控制过去这些年？你见过这些年川普参加了吗？拜登参加了吗？你见几个外国元首参加的？好元首不会参加这个会议，全是中国共产党控制。共产党从什么时候控制的？2001年中国共产党拿到了北京2008的夏季奥运会和WTO的入场券，中国共产党从1.3万亿的美元，到达了今天的15万亿美元。从那天起，达沃斯论坛就跟他们勾结在一起，从没让西方人有过话语权。
 
-今天就是你的一切，人生只有一天。我们那位战友穿到这套西装以后，照照片说：“七哥，几十年前，我与你相遇，我支持你爆料革命，我知道你说的都是真的。”他是我曾经在清丰看守所的一位狱友，安阳人，出来以后创业。
-
-所以今天我专门儿穿上类似这套衣服，让这位战友，我知道他在镜头前，我让他看到。七哥有几套这样的衣服，多套这样的衣服，我希望能多一些像这位狱友一样，能走出来站出来，最后能跟七哥一起来追求一个人类上最伟大的事业——灭掉邪恶的共产党。
+达沃斯论坛的宪章你们看过吗？兄弟姐妹们？你看看它过去这几十年，有一条符合它的宪章吗？从一九七几年开始。
 
 字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
@@ -37,15 +35,15 @@ G-News发布：小满；
 
 Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
 推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-GTV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

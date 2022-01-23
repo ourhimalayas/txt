@@ -2,23 +2,44 @@
 ---
 
 
-## 希望与力量，绝妙
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898019/)
+## 能影响国家左右数亿人命运手上沾满鲜血者入选达沃斯党
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898122/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+G-TV视频链接：[https://gtv.org/video/id=61ecf0cb87664c47acd8ad2d](https://gtv.org/video/id=61ecf0cb87664c47acd8ad2d)
 
-今天这词写得，我觉得“爆二代——希望与力量”，绝了，绝了！“希望与力量”这是谁写的我不知道。圣诞特别节目，这俩词简直，“希望”是人类 生存下来的根本；“力量”真的是，希望与力量就是有信仰、有正道主义， 一旦邪恶了就是邪恶的力量。
+**郭文贵先生**：这些人他要具备着以下三个特征，兄弟姐妹们。如果这些人没有影响国家的政治和军事的能力，他不可能去到达沃斯。
 
-所以说，我们现在面对着世界上邪恶的力量对我们的威胁。今天的这个节目真的是太好了。今天你早说一开始是音乐，我就不准备吃呀，小王子，你说这音乐和羊肉怎么也放不到放一起去呀，我本来馋你们呢，现在结果是我被音乐给兜回来了这回。你这是踹了我一阴阳脚啊，整得我现在狼狈不堪呀。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/希望与力量，绝妙.jpg)
-发布： *tianzhihuan*
+第二，他控制的财富，如果不能左右数以亿计人的命运，你光有钱没个鸟用，你这个钱能影响别人的命运。就刚才说能影响国家政权、军事政权、安全。就这些财富还继续影响这你的命运，你不可能到达达沃斯。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+第三个，这些达沃斯到的人没有和官方勾结，如果手里没有多少条人命的人，你不可能到达达沃斯。所以“达沃斯党”是什么概念，兄弟姐妹们你记住，人类只要存在达沃斯，人类上就没有一天是安全的。
+
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
