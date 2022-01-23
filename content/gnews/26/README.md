@@ -2,31 +2,238 @@
 ---
 
 
-## 有声|法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896784/)
+## 每日快报：疫苗三针注射的感染率比未接种的人更高更快
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1896946/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。
+*作者：GSeries*
 
-前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
+# ***今日摘要***
 
-文字版原文：[法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”](https://gnews.org/zh-hans/1892363/)
+1. **[英国最新数据显示 疫苗三针注射的感染率比未接种的人更高更快](https://www.thegatewaypundit.com/2022/01/just-latest-uk-data-shows-covid-infection-rate-among-triple-jabbed-boosted-higher-rising-faster-unvaccinated-across-almost-every-age-group-proving-vax-passports-effecti/)**
+2. **[武汉合作者 “生态健康联盟 “刚又获得拜登政府有史以来最大的一笔资助](https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/)**
+3. **[美国大使馆下令从乌克兰疏散非必要的工作人员和外交官的家属](https://www.zerohedge.com/geopolitical/us-embassy-ukraine-orders-evacuation-all-non-essential-staff-diplomats-family-members)**
+4. **[英国报道：克里姆林宫试图在乌克兰安插亲俄领导人](https://www.newsmax.com/world/globaltalk/kremlin/2022/01/22/id/1053548/)**
+5. [**可口可乐赞助北京冬奥会遭批**](https://gnews.org/zh-hans/1896604/)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+# 重要事件
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+- **[01.22. Gateway Pundit：英国最新数据显示，在几乎所有的年龄组中，三针注射的Covid感染率比未接种的人更高，而且上升速度更快 JUST IN: Latest UK Data Shows Covid Infection RATE Among the Triple Jabbed (Boosted) Is HIGHER And RISING FASTER Than The Unvaccinated Across ALMOST EVERY Age Group](https://www.thegatewaypundit.com/2022/01/just-latest-uk-data-shows-covid-infection-rate-among-triple-jabbed-boosted-higher-rising-faster-unvaccinated-across-almost-every-age-group-proving-vax-passports-effecti/)**
+
+
+英国政府的最新官方健康数据显示，在12月20日至1月16日期间，三联疫苗接种者再次占所有Covid-19住院病人的大多数，而双联疫苗接种者–以前被称为完全打过疫苗的人–也不远。不足为奇的是，即使在高感染性和类似于常染色体的Omicron变体成为主导菌株的情况下，未接种疫苗的人也保持了稳定的感染率。
+
+推特用户@tlowdon把一个长长的推特主题放在一起，他在其中谈到了英国最近发布的数据中的信息。但从另一个角度来看，不仅两针/三针接种者占了总体病例的大多数，而且接种者实际上以每10万人中明显高于未接种者的速度传播病毒–这几乎涉及所有年龄段的人口。如图所示，只有18岁以下或18-29岁之间的人在接种三联疫苗时没有经历明显的高感染率，而这些人是最不可能接种疫苗的人，更不用说他们的加强剂了。从30岁开始，已接种疫苗者的病例开始急剧增加，超过了未接种疫苗者，50-59岁年龄段的病例高达3,996/100,000，与该年龄段未接种疫苗者的2,133/100,000的比率相比，惊人地高出89%。
+
+换句话说，已接种疫苗的人和完全接种疫苗的人是传播这种病毒的主力军，这基本上证明了疫苗护照和围绕疫苗的类似规定实际上是毫无意义的。事实上，数据还显示，就像上一轮公共卫生数据一样，完全接种疫苗的人继续占每4个欧米茄住院病人中的3个，这与英国的整体疫苗接种率相一致。但是，三针疫苗接种者的数量最大，他们也在以越来越快的速度传播病毒。
+
+
+
+- **[01.23 The National Pulse：武汉合作者 “生态健康 “刚刚获得乔-拜登政府有史以来最大的一笔资助 Wuhan Collaborators ‘EcoHealth’ Just Received One Their Largest EVER Grants, From Joe Biden’s Government](https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/)**
+
+
+生态健康联盟–一个与武汉病毒研究所合作操纵类似COVID-19的蝙蝠冠状病毒的美国非营利组织–获得了乔-拜登的白宫有史以来最大的一笔拨款。
+
+在失宠的彼得-达斯扎克–安东尼-福奇的长期盟友–的领导下，生态健康公司的拜登时代的新拨款于2021年10月26日开始。这是在美国国立卫生研究院（NIH）承认该组织与武汉实验室一起从事功能增益研究后不到一周的时间，该组织未能 “按照资助条款的要求 “报告其研究结果。
+
+功能增益研究需要增加病原体的致命性、毒力和传播性，武汉病毒研究所网站删除的网页显示，该实验室与生态健康联盟一起参与了这项研究。正如罗格斯大学化学和化学生物学理事会教授理查德-埃布莱特博士在10月20日的信中解释的那样：NIH纠正了NIH主任Collins和NIAID主任Fauci的不实之词，即NIH没有资助武汉的功能增益研究。
+
+拜登的拨款将为达斯扎克提供新的470万美元的美国纳税人现金，直到2026年。”美国国际开发署的CWA是通过加强保护区和帮助社区减少对保护资源的依赖来保护受威胁和濒危物种，”拨款的描述指出。这笔现金是生态健康联盟从美国国际开发署获得的最大一笔资金，下一笔资金总额不到200万美元。拜登支持的470万美元拨款也是该组织从联邦机构获得的第三大拨款。
+
+除了生态健康联盟关于其参与武汉病毒研究所功能增益研究的谎言之外，该组织的主席彼得-达斯扎克还与中国共产党及其宣传喉舌步调一致，带头努力粉碎关于COVID-19有实验室来源的说法。在《国家脉搏》揭露了达斯扎克的广泛利益冲突后，他被《柳叶刀》医学杂志的COVID-19起源委员会回避。
+
+
+
+- **[01.22. ZeroHedge：美国大使馆下令从乌克兰疏散非必要的工作人员和外交官的家属 US Embassy Orders Evacuation Of Non-Essential Staff & Diplomats’ Family Members From Ukraine](https://www.zerohedge.com/geopolitical/us-embassy-ukraine-orders-evacuation-all-non-essential-staff-diplomats-family-members)**
+
+
+福克斯新闻的五角大楼记者周六早些时候报道，所有在乌克兰基辅的美国使馆人员的家属已经被命令撤离。”国务院命令美国驻乌克兰大使馆人员的家属最快于周一开始撤离该国。美国官员，”福克斯的卢卡斯-汤姆林森报道。
+
+周五首次出现的消息是，拜登政府正在酝酿一项计划，作为一项 “预防措施 “从乌克兰撤离外交官的家属，在持续的危机中，华盛顿预测俄罗斯会在乌克兰边境发动某种程度的进攻。目前还不清楚这是否意味着美国情报部门在乌克兰边境附近发现了来自俄罗斯的特定新 “威胁”。
+
+正如汤姆林森进一步报道的那样，俄罗斯战斗机在周五至周六开始抵达附近的白俄罗斯，美国官员对乌克兰的首都 “现在处于十字路口 “表示震惊。福克斯新闻的五角大楼记者周六早些时候报道，所有在乌克兰基辅的美国使馆人员的家属已经被命令撤离。”国务院命令美国驻乌克兰大使馆人员的家属最快于周一开始撤离该国。美国官员，”福克斯的卢卡斯-汤姆林森报道。
+
+周五首次出现的消息是，拜登政府正在酝酿一项计划，作为一项 “预防措施 “从乌克兰撤离外交官的家属，在持续的危机中，华盛顿预测俄罗斯会在乌克兰边境发动某种程度的进攻。目前还不清楚这是否意味着美国情报部门在乌克兰边境附近发现了来自俄罗斯的特定新 “威胁”。
+
+正如汤姆林森进一步报道的那样，俄罗斯战斗机在周五至周六开始抵达附近的白俄罗斯，美国官员对乌克兰的首都 “现在处于十字路口 “表示震惊。周五，安东尼-布林肯和俄罗斯总理谢尔盖-拉夫罗夫在日内瓦会谈期间，似乎有积极的迹象表明，对话正在向缓和局势开放。就在这之后，美国驻基辅大使馆发布了新近抵达的美国为乌克兰部队提供援助的照片。
+
+
+
+- **[01.22. NewsMAX：英国报道：克里姆林宫试图在乌克兰安插亲俄领导人 UK: Kremlin Trying to Install Pro-Russian Leader in Ukraine](https://www.newsmax.com/world/globaltalk/kremlin/2022/01/22/id/1053548/)**
+
+
+英国周六指责克里姆林宫试图在乌克兰安插一个亲俄罗斯的领导人，并称俄罗斯情报人员一直在与一些前乌克兰政治家接触，这是入侵计划的一部分。
+
+英国外交部拒绝提供支持其指控的证据，该指控发生在俄罗斯和西方国家因俄罗斯在其与乌克兰边境附近集结军队而关系高度紧张的时候。莫斯科坚称它没有入侵的计划。英国外交部说，它掌握的信息是，俄罗斯政府正在考虑将乌克兰前立法者耶夫亨-穆拉耶夫作为亲俄领导层的潜在候选人。
+
+英国外交大臣利兹-特拉斯在一份声明中说：”今天公布的信息照亮了俄罗斯旨在颠覆乌克兰的活动范围，也是对克里姆林宫思维的一种洞察。俄罗斯必须缓和局势，结束其侵略和虚假信息的活动，并寻求外交途径。正如英国和我们的合作伙伴一再表示的那样，俄罗斯对乌克兰的任何军事入侵都将是一个巨大的战略错误，并将付出严重的代价。”
+
+英国的声明是在莫斯科和基辅时间周日的凌晨发布的，克里姆林宫和穆拉耶夫没有立即发表声明。外交部的一位消息人士说，分享情报事项不是通常的做法，这些细节是在仔细考虑后才解密的，以阻止俄罗斯的侵略。英国的说法是在美国和俄罗斯高层外交官未能在解决乌克兰危机的会谈中取得重大突破的第二天提出的，尽管他们同意继续会谈。俄罗斯向美国提出了安全要求，包括停止北约的东扩，并保证永远不允许乌克兰加入西方军事联盟。
+
+- [** 01.23. GNEWS ：可口可乐赞助北京冬奥会遭批**](https://gnews.org/zh-hans/1896604/)
+
+
+据俄罗斯卫星通讯社1月23 日暨《华盛顿时报》报道，监督组织“媒介准确”发起了一项活动，在可口可乐公司总部前放了一块牌子写着：“为什么可口可乐赞助种族灭绝？”
+
+中共国非法剥夺了香港的自由；威胁台湾；在西藏践踏人权；在新疆实施种族灭绝；中共国制造了COVID-19新冠病毒并把它扩散到全世界，造成前所未有的大灾难。可口可乐对中共这些侵犯人权和反人类的行为完全保持沉默，通过赞助北京冬奥会，表达对中共国的支持。
+
+北京冬奥会是独裁者的个人秀，是种族灭绝运动会，各个国家和政府纷纷谴责，并外交抵制。可口可乐充当中共走狗的行为，既不可口，也不可乐。
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/04/2ac2055bcd4c1347.png)
+# 更多要闻链接
+
+1. [IMF：中国清零政策已成负担影响中国及全球复苏](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220122-imf-%E4%B8%AD%E5%9B%BD%E6%B8%85%E9%9B%B6%E6%94%BF%E7%AD%96%E5%B7%B2%E6%88%90%E8%B4%9F%E6%8B%85%E5%BD%B1%E5%93%8D%E4%B8%AD%E5%9B%BD%E5%8F%8A%E5%85%A8%E7%90%83%E5%A4%8D%E8%8B%8F)
+2. [北京官员谈疫情罕见流露焦急不安，冬奥会以‘全封闭’方式进行](https://www.voachinese.com/a/beijing-to-maintain-covid-emergency-status-as-winter-olympics-loom/6408107.html)
+3. [中国经济胁迫长袖善舞，立陶宛因挺台遭受德国大公司施压](https://www.voachinese.com/a/German-big-business-piles-pressure-on-Lithuania-in-China-row-20220121/6407010.html)
+4. [马来西亚约两百民众上街抗议 要求反贪首长下台](https://www.rfi.fr/cn/%E9%A9%AC%E6%9D%A5%E8%A5%BF%E4%BA%9A%E7%BA%A6%E4%B8%A4%E7%99%BE%E6%B0%91%E4%BC%97%E4%B8%8A%E8%A1%97%E6%8A%97%E8%AE%AE-%E8%A6%81%E6%B1%82%E5%8F%8D%E8%B4%AA%E9%A6%96%E9%95%BF%E4%B8%8B%E5%8F%B0)
+5. [习近平反腐算旧账，马云的麻烦看来还没完](https://www.voachinese.com/a/Ant-Group-is-connected-to-former-Hangzhou-Party-Secretary-s-corruption-case-20220121/6407155.html)
+
+
+# 每日推特文摘
+
+
+
+【#MilesGuo的广播要点】2022.1.19
+中国人民必须为70年来的轻信和无知偿还#债务
+编辑：#HimalayaWashingtonDC
+
+[#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hashtag_click)’s Broadcast Highlights】 2022.1.19 The [#Chinese](https://twitter.com/hashtag/Chinese?src=hashtag_click) People Have to Pay Off Their [#Debts](https://twitter.com/hashtag/Debts?src=hashtag_click) for the 70 Years’ Worth of Being Gullible and Ignorant 
+Edited by [#HimalayaWashingtonDC](https://twitter.com/hashtag/HimalayaWashingtonDC?src=hashtag_click)
+
+
+
+
+
+> [https://t.co/eYdbge0cj2](https://t.co/eYdbge0cj2)
+> 【 [#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hash&amp;ref_src=twsrc%5Etfw)’s Broadcast Highlights】 2022.1.19 
+> The [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) People Have to Pay Off Their [#Debts](https://twitter.com/hashtag/Debts?src=hash&amp;ref_src=twsrc%5Etfw) for the 70 Years’ Worth of Being Gullible and Ignorant 
+> 
+> Edited by [#HimalayaWashingtonDC](https://twitter.com/hashtag/HimalayaWashingtonDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/NNCjBhmCMI](https://t.co/NNCjBhmCMI)
+> — 喜马拉雅华盛顿DC2 (@Dc235284371Dc2) [January 23, 2022](https://twitter.com/Dc235284371Dc2/status/1485101142312820740?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+瑞典🇸🇪反疫苗暴政，瑞典🇸🇪人民在行动……
+
+Sweden🇸🇪Anti-vaccine tyranny, the people of Sweden🇸🇪 are in action…
+
+
+
+
+
+> 瑞典🇸🇪反疫苗暴政，瑞典🇸🇪人民在行动……
+> 
+> Sweden🇸🇪Anti-vaccine tyranny, the people of Sweden🇸🇪 are in action… [pic.twitter.com/hLlwDp6lqz](https://t.co/hLlwDp6lqz)
+> — 老皮匠Athena Farm (@Jzzrb123) [January 22, 2022](https://twitter.com/Jzzrb123/status/1484968082850426881?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+墨尔本的反疫苗示威
+
+
+
+
+
+> 墨爾本的反疫苗示威 [pic.twitter.com/98fGKDrAZf](https://t.co/98fGKDrAZf)
+> — 婦女之友-電-8 舊號已封 (@Dcc6S) [January 22, 2022](https://twitter.com/Dcc6S/status/1484770615949426689?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+看新闻，已经过着隐士生活的基努里维斯公开站出来挺人权、反中共。
+真好！
+
+愿这世界少一些麻木纵容，多一点正义良知。
+
+
+
+
+
+> 看新闻，已经过着隐士生活的基努里维斯公开站出来挺人权、反中共。
+> 真好！
+> 
+> 愿这世界少一些麻木纵容，多一点正义良知。 [pic.twitter.com/taV7dYpoLQ](https://t.co/taV7dYpoLQ)
+> — KUI YANG-葵阳先生 (@KUI\_\_YANG) [January 21, 2022](https://twitter.com/KUI__YANG/status/1484645896600305664?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+上天啊，这个Isobel Yeung能看到这么多狗狗被圈起来，被屠宰，最后还能兴高采烈的说着好吃，和牛羊肉差不多。狗是咱们人类的好朋友啊。这坐小船逃出中共国的爹就是这般教导他的孩子的？
+
+
+
+
+
+> 上天啊，这个Isobel Yeung能看到这么多狗狗被圈起来，被屠宰，最后还能兴高采烈的说着好吃，和牛羊肉差不多。狗是咱们人类的好朋友啊。这坐小船逃出中共国的爹就是这般教导他的孩子的？ [pic.twitter.com/tm9ahh0H9J](https://t.co/tm9ahh0H9J)
+> — 翌珊 (@Margare51267855) [January 21, 2022](https://twitter.com/Margare51267855/status/1484622197822038022?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+1月22号：尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！
+
+
+
+
+
+> [https://t.co/9la9JQr9yr](https://t.co/9la9JQr9yr) 1月22号：尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！
+> — 卡西歐 (@zi1P9NBMBHWIUH8) [January 23, 2022](https://twitter.com/zi1P9NBMBHWIUH8/status/1485104428592300033?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*作者：GSeries
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

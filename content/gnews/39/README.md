@@ -2,25 +2,30 @@
 ---
 
 
-## 以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1896306/)
+## 美国ESPN不会派遣新闻人员参加北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1896556/)
 
-翻译：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-197.png)图片来自网络
-希里尔·科恩教授是巴伊兰大学免疫学系主任，也是以色列政府疫苗咨询委员会的成员。在一次采访中，这位教授说，面对欧米抗病毒的蔓延，疫苗护照已不再适用，应该被淘汰。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日，美国娱乐与体育节目电视网ESPN在其官方网站上发布声明表示，由于对中共病毒及其相关限制的担忧，ESPN将不会向中共北京冬奥会派遣任何新闻人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-22-下午9.23.51.png)
+该网站的制作执行副总裁兼执行编辑威廉姆森在声明中强调，随着中共病毒持续在全球范围内肆虐，加之此次冬奥会现场由于病毒和其他相关因素所导致的诸多限制措施，这些都让现场报道变得非常具有挑战性。此外，员工的安全对于ESPN而言至关重要，因此，该公司认为，减少员工奔波是最好的决定。
 
-他和他的同事们对疫苗没有像他们预想的那样防止新冠病毒的传播感到惊讶和失望。面对欧米抗病毒，接种新冠疫苗的人和没有接种的人之间的差异非常小，两者都可能感染新冠病毒。
+参考链接：[Due to COVID Concerns, ESPN Will Not Staff Winter Olympics in China](https://www.espnfrontrow.com/2022/01/due-to-covid-concerns-espn-will-not-staff-winter-olympics-in-china/)
 
-新冠疫苗护照的实施并不一定是为了防止传播新冠病毒，而是为了鼓励人们去接种新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-他认为是否接种新冠疫苗是一种个人选择。接种新冠疫苗还是选择自然免疫，都应该由个人来决定。科学家们经常犯错误，因此，他们不应该假装什么都懂。科学家必须停止扮演上帝的角色。
+总编：飞虹
+编辑：DM
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-自从新冠病毒大流行以来，科恩教授看过的几十个科学家访谈中，很多人承认关于新冠病毒没有任何线索。
-
-科恩教授建议民众不要盲目地 “跟着科学走”。他认为那只是一种政治手段。
-
-信息来源：[Israeli vaccine advisor: “We have made mistakes”](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-2.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
