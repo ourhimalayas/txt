@@ -2,40 +2,46 @@
 ---
 
 
-## 数据显示，盖特在周六晚收视率盖过CNN
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898251/)
+## 浅谈台湾推行疫苗接种数位证明的动机与代价
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1898329/)
 
-撰稿：纽约香草山农场 – Delilah小胖
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-3.png)
-1月20日，盖特援引尼尔森媒体研究公司的最新数据称，盖特在上周六晚间黄金时段的收视率碾压了CNN。当时盖特的三家直播账户最高有近100万观众，在线观看了美国前总统川普在亚利桑那州的集会活动。这一数字，令同时段CNN有线新闻网新闻和电影节目所吸引的70.5万人显得黯然失色。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1866.png)
-盖特首席执行官杰森·米勒说：“这些数字应该给大科技公司和大媒体公司敲响警钟：你们的受众正成群结队地离开你们，去寻找一个支持言论自由和可以获取有价值信息的平台。”
+台湾宝岛农场 斗阵来拼
 
-盖特2021年度全球用户奖项评选中——中共最大噩梦奖项的获奖者郭文贵先生，在其1月21日的盖特大直播中表示，未来盖特对于用户而言，更有“使用即获得金钱”的价值。
+台湾国内版“数位新冠病毒健康证明“是“疫苗护照“其中一种，此案在没有经过民意与法源基础下于21日开始启用，将配合中央流行疫情指挥中心，要求打完2剂疫苗者才可到八大行业消费，其他行业也可评估跟进；此“即令即行“的做法是否合理，必须接受社会公评。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-319.jpeg)
+图片来源: 取自台湾中央流行疫情指挥中心记者会
+
+笔者观察，为何身边绝大多数的亲友对此政策并无太大的反应？甚至积极配合政府推行此做法，除了主动下载数位新冠健康证明，也争相走告亲友尽快配合政府推动以加速其普及率，无知地将自己的权利及隐私权完全交付给政府管控，也表示放弃捍卫宪法保障我们基本人权的权利。
+
+为何民众的权益已被剥夺，却仍如此无感呢? 主因台湾民众根本无法从主流媒体上获得正确的疫苗资讯，加上台湾政客与官员们天天在萤光幕前、嘶声力竭地鼓励民众，配合政府推广“数位新冠病毒健康证明“（疫苗护照之一）的政策，宣扬如此才能有效对抗新冠疫情快速传播的假象，此观点完全没有任何论证支撑，动机实是令人质疑?
+
+但仍有民众质疑Omicron变种传播力超强，不管打一剂或两剂中共病毒( 新冠病毒covid 19) 疫苗都会突破性感染；因此就算有疫苗护照，周遭环境也不见得安全，由此可察，“疫苗护照“完全只是制造假性安全感的工具！
+
+另外，有专家表示，日本去年底也开始推动疫苗护照，不过今年以来，日本确诊病例又大爆发，代表疫苗护照成效不彰，政策也暂时喊卡；不只日本，英国也将放宽及取消疫苗护照的强制政策。
+
+反观台湾，美其名并无强制人民接种中共病毒( 新冠病毒covid 19) 疫苗, 但每每中央及地方所推行有关疫苗的行政命令，不免让人联想，其最终目的是为了给民众制造无形的压力与氛围，迫使民众自愿接受施打中共病毒( 新冠病毒covid 19) 疫苗。 “数位新冠病毒健康证明“的启用，不仅加深台湾社会“已苗“与“无苗“两个族群之间的对立，也明显违反中华民国宪法对于人权的基本保障。
+
+因笔者的孩子，长期与病魔对抗，陪伴孩子进出医院治疗已成为我的日常与家常便饭的事情了。然现今台湾政府，在无法源基础下，竟正式启用“数位新冠病毒健康证明“的相关规定；倘若各大医院也比照跟进，民众必须出示“数位新冠病毒健康证明“才能入院的规定，将可能剥夺没有施打中共病毒( 新冠病毒covid 19) 疫苗的家长，无法陪伴孩子入院治疗的权利；试问未成年的孩子在没有家人陪伴的情况下，如何独自面对频繁治疗的恐惧呢？孩子的基本人权又由谁来捍卫呢？
+
+笔者不反疫苗，只针对施打中共病毒( 新冠病毒covid 19) 疫苗的必要性与安全性提出质疑，任何人都有选择自己是否要施打中共病毒( 新冠病毒covid 19) 疫苗的权利，而非强制民众接种；何况推行疫苗护照并非抗疫的解方，其本质上既反人类并已侵犯基本人权自由!
+
+(本文只是笔者观点，不代表G NEWS立场)
+
+参考资料:
+
+- [https://udn.com/news/story/122190/6048049](https://udn.com/news/story/122190/6048049)
+- [https://news.tvbs.com.tw/life/1695388](https://news.tvbs.com.tw/life/1695388)
+- [https://www.moneydj.com/kmdj/news/newsviewer.aspx?a=4137e88c-8c89-464d-99ad-c0050b59a2f9](https://www.moneydj.com/kmdj/news/newsviewer.aspx?a=4137e88c-8c89-464d-99ad-c0050b59a2f9)
 
 
+* * *
 
-新闻链接:
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-[GETTR Dominates CNN in Saturday Night Ratings](https://about.gettr.com/press/gettr-dominates-cnn-in-saturday-night-ratings)
-
-[2021 Annual Worldwide Getties](https://gettr.com/post/plouyne846)
-
-
-
-总编: 飞虹
-
-编辑: DM
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

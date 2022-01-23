@@ -2,26 +2,28 @@
 ---
 
 
-## 瑞典清理孔子学院迎来台湾华语学习中心
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898261/)
+## 美反对强化世卫计划阻止中共渗透
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898331/)
 
 撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-台媒1月21日报道，台湾华语文学习中心春季班，将于2月份在瑞典开课。这是自2020年瑞典关闭境内所有中共孔子学院和孔子课堂之后，与台湾进行的一项重要文化交流项目。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1867.png)
-台湾华语文学习中心首任校长陈羿廷表示，先前，中共孔子学院使用中共教材，教授瑞典学生学习简体字，但其课堂上却禁止谈论包括台湾、西藏、天安门在内的“3T”话题。这在非常重视自由、民主和平等的瑞典，引起当局重视，遂将其全部关闭。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1877.png)
+根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
 
-陈羿廷强调说，台湾华语文中心让学生们知道，中文不仅有简体字，还有可以了解每个中文字背后故事渊源的正体字。该中心将不断促进台湾与瑞典的文化学习交流。
+美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
+
+虽然拜登上任后不久美国重新加入世卫，但美国认为世卫组织需要进行重大改革。他们反对此项提案的理由，是担心世卫组织应对未来威胁，尤其是中共国威胁的能力有限。
+
+美国正在推动建立一个由捐助者直接控制的独立基金，可以为预防和控制突发卫生事件提供资金。
 
 
 
-总编: 童谣
+新闻链接：https://cn.rti.org.tw/news/view/id/2122766
 
-编辑: 小鹿妞妞
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-2.png)
 
-新闻链接: https://cn.rti.org.tw/news/view/id/2122727
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-3.png)
+总编/编辑：飞虹
 
 校正/发稿：浪迹天涯
 
@@ -31,7 +33,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

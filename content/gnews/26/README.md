@@ -2,31 +2,49 @@
 ---
 
 
-## 公共卫生领域对新冠病毒的基本特性仍然不清楚
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1898099/)
+## 达沃斯党勾结中共始于它2001拿到奥运会和WTO入场券
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898190/)
 
-【疫苗危害回顾系列】
+G-TV视频链接：[https://gtv.org/video/id=61ecf14587664c47acd8ad60](https://gtv.org/video/id=61ecf14587664c47acd8ad60)
 
-Marty Makary医生，约翰-霍普金斯大学教授，公共卫生研究员，“今日医学”编辑，纽约时报”我们付出的代价”的作者，信奉“科学领域进行诚实的辩论是件好事”。
+**郭文贵先生**：你再看李源潮，还有一个所谓的“警告西方”，天天“警告西方”，现在是全世界已经对“警告”这词儿已经麻木了。
 
-【字幕】
+但同时发生了什么？大家看到了吗？习近平在今年的讲话用出了四个字儿叫“溢出效应”。溢出效应之前是王毅的叫潘多拉盒子，潘多拉盒子之前是开药方，然后动不动就要脱钩什么的。
 
-Marty: 当新冠袭来时，美国对这个病毒并没有很坚实的研究。 每个人都联系我们，包括每个正在看我们这个采访的人。 他们联系你，联系我。 人们给我们发短信、打电话和发电子邮件。 他们问：新冠如何传播？ 什么时候传染性最强？ 会第二次感染吗？ 诸如此类的问题。
+现在是什么概念？但凡中国人有一点脑子的人看一看共产党在达沃斯的一系列讲话，达沃斯论坛这些人的来源，我告诉你，这就是黑暗力量的一个俱乐部——控制人类命运的俱乐部，完全不希望人类有75亿人口的俱乐部，然后是让全世界当奴隶的俱乐部，严格讲，它叫奴隶主俱乐部。
 
-主持人：诸如“无症状感染者会不会传播病毒？”
+跟谁控制过去这些年？你见过这些年川普参加了吗？拜登参加了吗？你见几个外国元首参加的？好元首不会参加这个会议，全是中国共产党控制。共产党从什么时候控制的？2001年中国共产党拿到了北京2008的夏季奥运会和WTO的入场券，中国共产党从1.3万亿的美元，到达了今天的15万亿美元。从那天起，达沃斯论坛就跟他们勾结在一起，从没让西方人有过话语权。
 
-Marty: 还有“需要隔离多长时间？ 在哪里会被感染？ 怎么会被感染？口罩有用吗”？所以我们受到一大堆这样问题的轰炸。 可我们没有好的数据，实际上几乎没有数据去回答这些问题。NIH去年用于研究延缓衰老的资金是用于研究新冠病毒的两倍。他们将不到预算的 5% 用于 COVID 研究。 所以对这些问题我们没有答案。 因此，新冠研究有数据的真空，而填补这一真空的是政治观点。
+达沃斯论坛的宪章你们看过吗？兄弟姐妹们？你看看它过去这几十年，有一条符合它的宪章吗？从一九七几年开始。
 
-主持人:所以实际上，对新冠看法如此两极分化的部分原因是缺乏真正的科学。 人们说要”听从科学”，就像科学是圣经。 但实际上对于新冠，连基本的有足够数据的科学研究都没有做。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-Marty:对啊，我们被告知的真相只是一种看法， 就像我们当中很多人根据SARS病毒是通过气溶胶传播， 就形成自己的看法一样。所以我们根据已知的病毒来猜测新冠这些问题的答案， 但一年后的今天我们慢慢开始了解新冠病毒了， 比如“85%的人在发病前几天在外面吃过饭”，是室内，还是室外，是酒馆还是咖啡馆？ 而且我们需要数据做研究的时候，我们怎么才只有这么点儿数据？ 我们在NIH花费了420亿美元。 看看这笔钱NIH花在了什么地方, 用于所谓的新冠研究的资金甚至花在不是你所想象项目上： 57项拨款是关于新冠治疗的不平等，当然这是一个重要的话题，但没有一项拨款是关于新冠如何在年轻人当中传播的。 4项拨款是关于新冠传播，1.9%的资金用于临床研究，但其实很多都用在实验室物资设备。 所以我们需要知道的关于新冠的基本信息没有答案，而且这个问题现在仍然存在。
+编辑整理：Jacques；
 
-* * *
+字幕文件制作：小满；
 
-素材，翻译：蔻依 | 剪辑，字幕：文零
+视频制作及上传：Cindy；
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

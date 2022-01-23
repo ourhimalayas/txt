@@ -2,31 +2,46 @@
 ---
 
 
-## 参议员兰德・保罗： 强迫儿童接种疫苗是医疗渎职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1898191/)
+## 不要溢出效应就是不要把人民币变冥纸使得老百姓造反
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898250/)
 
-翻译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/01/微信截图_20220123211637.png)
-独立新闻媒体 信息战（Infowars.com）1月22日报道。
+G-TV视频链接：[https://gtv.org/video/id=61ecf1fb87664c47acd8adaf](https://gtv.org/video/id=61ecf1fb87664c47acd8adaf)
 
-共和党参议员兰德・保罗（肯塔基州）警告说，由于疫苗在该年龄段的健康风险，强制要求儿童注射COVID（中共病毒）疫苗可能导致大规模的意外后果。
+**郭文贵先生**：第二，更夸张的，大家看到这个溢出效应是什么？房地产。80万亿也好、100万亿美元的房地产，是全世界加在房地产的总和，全人类地球上的房子加在一起，中国人比它还多。你不能把这个泡沫给我戳了，你戳了我怎么让这些房奴、车奴（继续被奴役）？
 
-保罗周五在“英格拉姆角（Ingraham Angle）”节目中说：“我认为强迫儿童尤其是青少年接种疫苗是医疗渎职。”
-保罗指出，自该疫苗推出以来，青少年男性的严重心血管不良反应已有大量记录。
+广西的一位战友昨天说：“七哥，我现在看你的直播，我给我们全家算了个账，我们全家过去30年打工所有工资，今天是我孙子都变老了，我爹娘已经不在了，我的兄弟姐妹和我，现在发现我们家有什么呢？3套房子、4台车，多有钱。”
 
-“我们现在有科学证据表明，打疫苗给年轻男性患心肌炎的风险已经大于疾病了，”保罗解释说。“我们还知道，这种疾病–死亡率更接近于百万分之一。我们还知道，你接种的疫苗越多，心肌炎的风险就越高。因此，90%的心肌炎是在第二次接种疫苗时发生的。当给他们注射第三次疫苗时，你认为会发生什么？”
+“但是七哥我算了算，我把3套房子、4台车全卖完，能把我欠的房贷的四分之一能还上，我们家还要继续打工。” 更夸张的事情，他算了笔账，他说：“七哥，这些东西能买回我在30年前的什么东西呢？在我们村里边的大概十亩地，村上的两套房子”。
 
-这位肯塔基州的参议员随后警告说，如果政府和学术机构继续强迫年轻人接种疫苗，就会给自己带来法律问题。
+大家记住了吗？就你过去在村里面一千块钱能买的东西，现在你要拿一百万东西买回来。所以老百姓家里以为我家里存了一百万，我存了50万，你那是纸都不如。现在共产党达沃斯论坛说的什么？就不要给我印刷的老百姓抱着那些冥纸都不如的钱叫它变成纸，它就给我造反。
 
-“我认为像芝加哥、普林斯顿、耶鲁这样的大学，如果强制要求年轻男性接种第三次疫苗，我认为他们将承担法律责任，如果这些男孩，这些年轻男女得了心肌炎，并且死了，上帝保佑，千万别。他们将承担法律责任，因为他们违背了科学，”保罗补充说。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-“但是就有这样的左翼学者，他们把头埋在沙子里，就这样了。福奇博士希望我们这样做，（认为）我们应该这样做。他们没有考虑到这一点，但他们会因为强行给孩子注射这种疫苗而承担重大责任。”
+编辑整理：Jacques；
 
-在保罗发出警告的同时，美国国家过敏和传染病研究所（NIAID）主任安东尼・福奇最近表示，他希望FDA（美国食品和药物管理局）很快就会授权5岁以下的儿童注射这种疫苗，并补充说他们将接受三剂注射。
+字幕文件制作：小满；
 
-尽管FDA很快就授权幼儿注射这种实验性针剂，但COVID疫苗制造商辉瑞公司承认，研究5-12岁儿童接种疫苗的心肌炎风险大约需要5年时间。
+视频制作及上传：Cindy；
 
-新闻来源：https://www.infowars.com/posts/sen-rand-paul-its-medical-malpractice-to-force-vaccines-on-children/
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

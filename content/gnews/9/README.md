@@ -2,33 +2,30 @@
 ---
 
 
-## 班农先生对疫苗问题的反思
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898246/)
+## 欧洲议会新决议再次敦促成员国抵制北京冬奥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898281/)
 
-#### 作者：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班龙对疫苗的反思_01.jpg)
-班农先生：
-全世界现在正在质疑疫苗强制，今天都在抗议，反对强制，因为失去了自由。
-新中国联邦，G系列爆料革命，取得 了多大的成就？
- 三年前皮埃尔酒店，大家都在想，这个疫苗真的能 解决问题吗？
-你们现在强制性的疫苗，这个是对的吗？所以你看到自由社会的人们会质疑。
-你必须要告诉我，我作为一个公民，你告诉我疫苗的理由在哪里？这是很有力的证明。
-那么这种运动 一定会越来越强。你看到中国人，你们天生是有权利有才能的, 在海外是受到法律保护的。
+作者：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，在离北京2022年冬奥会仅有两周之际，欧洲议会高票通过了香港自由决议，决议中直接认定中共国人权状况不仅没有任何改善，还进一步恶化，议会再次敦促欧盟委员会、理事会和各成员国，拒绝政府代表和外交官出席北京冬奥的邀请。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-上午9.10.45.png)
+据悉，欧洲议会早在2021 年 7 月 8 日就已经作出决议，并呼吁拒绝出席北京冬奥，除非中共能证明香港人权状况有改善。
 
-发布：于white
+参考链接：
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

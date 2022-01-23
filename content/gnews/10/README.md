@@ -2,25 +2,34 @@
 ---
 
 
-## 布鲁塞尔再次反对新冠病毒措施的示威
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1898234/)
+## IMF主席称中共清零政策已成世界经济负担
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898280/)
 
-翻译：英喜德语组 Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-12.tiff)图片来源：Belga
-周日上午，大量民众再次走上布鲁塞尔街头，抗议新冠措施。
+作者：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日，国际货币基金组织IMF总裁表示，中共国在对待冠状病毒采取的“清零”政策，已经成为世界经济的负担，而需要重新评估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-上午9.10.36.png)
+“清零”政策是指政府通过强硬的公共卫生措施，如大规模核酸检测、封闭整个城市、转移并集中监控整个社区，以及严格的边境检疫等等极端措施，意图彻底消除病毒。
 
-抗议游行于上午11：30从火车北站出发。组织者呼吁就新冠措施进行全面的公共辩论。
+IMF总裁格奥尔基耶娃在接受媒体采访时说，中共国的“清零”政策，在大流行开始之初，遏制战略似乎比较成功。但这些严厉的手段对传染率惊人的奥密克戎来说，已经没有多少成效了。相反，带来的风险远多于益处，对中共国内和整个世界的经济复苏都造成了冲击。
 
-“欧洲联盟”组织与来自欧洲各地的 600 个协会一起组织了这次示威活动。 他们为自由、民主、人权和对宪法的尊重而走上街头。下午14:30将有演讲者在五十周年纪念公园（Jubelpark）进行发言。
+格奥尔基耶娃指出，中共国这种“清零”政策越来越成为世界经济重启的负担。另外，所有国家都必须重新评估应对大流行病的最佳方案。
 
-示威组织者希望能引起人们注意这样一个事实，即越来越多的人在公共辩论中被边缘化。他们希望通过公众辩论以解决新冠措施的支持者和反对者之间的两极分化。
+参考链接：
 
-这是两个月内的第五次反对新冠措施的示威游行。(belga)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-发布：Luckycky
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-原文链接：[https://www.grenzecho.net/68451/artikel/2022-01-23/erneut-demonstration-gegen-corona-massnahmen-brussel](https://www.grenzecho.net/68451/artikel/2022-01-23/erneut-demonstration-gegen-corona-massnahmen-brussel)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
