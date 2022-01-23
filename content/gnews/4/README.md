@@ -2,55 +2,44 @@
 ---
 
 
-## 瑞士银行要求撤销郭文贵先生的5亿美元诉讼案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1899888/)
+## 欧洲确认超过900,000例COVID-19疫苗副作用
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1899920/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/012109.jpg)
-来自Bloomberg 2022年01月20日的报道，
-摘要：
+**据《Precison Vaccionations》记者Don Ward Hackett，2022年1月20日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a1h4e-hjzhd.jpg)
+欧洲药品管理局（EMA）今天确认关于四种已获授权COVID-19疫苗的安全性信息已经获得月度更新。
 
-(彭博社) — 瑞银集团(UBS Group AG)要求伦敦法官驳回一名流亡中国亿万富翁(郭文贵先生)就2015年一次代价高昂的保证金追缴提出的5亿美元的诉讼。
+EMA附属的疫苗药物警戒风险评估委员会（PRAC）针对COVID-19疫苗的安全监测计划，要求监测欧盟境内个人和医疗专业人员报告的可疑副作用。
 
-瑞银集团周四在法庭上表示，伦敦无权审理郭文贵提起的部分诉讼，郭文贵先生是一位富商，与前川普总统的顾问史蒂夫•班农先生关系密切。
+PRAC 报告称，截至2022年1月20日，已向欧盟（EU）和欧洲经济区（EEA）提供超过7.35亿剂疫苗。在COVID-19大流行期间报告超过900,000例副作用。
 
-郭称，瑞银提供了疏忽的建议，导致他借钱购买了中共国券商海通证券公司的股票。 他说，在香港上市股票在市场溃败期间暴跌后，瑞银强制出售了该股票，这项投资几乎完全失败。
+**EMA今天报告以下数据：**
 
-郭于2014年逃离中共国，此后对中共国政府提出了一系列指控。2020年，班农先生，这位川普前总统顾问因被指控合谋挪用竞选资金用于修建美国南部边境的隔离墙而在郭的游艇上被捕，这凸显了郭和班农的密切关系。川普后来赦免了班农。
+• Comirnaty – 提供545,000,000剂，报告522,530例副作用 （.0009）；
+• SpikeVax – 提供103,000,000剂，报告124,410例副作用 （.001）；
+• Vaxzevria – 提供69,000,000剂，报告231,363例副作用 （.003）；
+• Janssen （J&J）- 提供18,700,000 剂，报告35,027例副作用 （0.0018）。
 
-郭的律师拒绝对该案发表评论。瑞银集团没有立即回应评论请求。
+EMA表示，疑似副作用为接种COVID-19疫苗后观察到的医学事件，但不一定与疫苗相关或由疫苗引起。
 
-瑞银的律师周四告诉一名伦敦法官，该案不应该在伦敦审理，因为瑞银的总部在瑞士，整个案件发生在中共国，而且唯一被指控有过失的人是当时的香港财富经理。
+名为EudraVigilance的欧盟数据库拥有这些疫苗副作用信息。此外，欧洲可疑药物不良反应数据库在兼顾欧盟数据保护法同时，以多种方式向公众提供这些数据的访问权限。
 
-郭的律师说：“瑞银伦敦公司参与了交易意味着伦敦法院应该审理此案。事实上是，法院将负责调查的损失正是由瑞银伦敦在伦敦的行为造成的，即在2015年7月出售了股票”。
+截至2022年1月20日，EMA已授权五种COVID-19疫苗，包括位于马里兰州的Nuvaxovid 疫苗。
 
-瑞银集团表示，其伦敦分行并没有促成所谓的过失行为。
+此外，EMA正在审查Sputnik V、Sinovac、Vidprevtyn和Valneva的VLA2001候选疫苗。
 
-此案回溯到2015年海通股份的过山车时期，此后海通股份一直没有恢复。为了避免引发监管部门的审查，这些股票由一家中共背景的投资基金控制，该基金在股票暴跌45%后抛售股票，将损失转嫁给郭。郭的律师说郭“遭受了不可逆转的、非常巨大的经济损失”。
+EMA的使命是促进药品评估和监督的科学卓越性，以造福欧盟的公众和动物健康。
 
-在伦敦的案件之前，郭曾试图在纽约起诉瑞银，但法官以管辖权为由将其驳回。
+**文章来源：**[https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects](https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects)
 
-**简评：**
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-瑞银仗着自己财大气粗到处耀武扬威，但没想到这次撞到战神的枪口上了，瑞银的死期将至。郭文贵先生也多次在大直播中提到，瑞士银行在共产党奴役中国人民的过程中扮演着重要角色，盗国贼盗取的很大一部分财富就藏在瑞士银行。郭文贵先生以他本人亲身经历的案例来反击瑞士银行开启了中国人民向瑞士银行要真相的第一步。
-
-新闻链接：[UBS Wants $500 Million Suit From Chinese Billionaire Tossed](https://www.bloombergquint.com/onweb/ubs-wants-500-million-suit-from-chinese-billionaire-tossed)
-
-*翻译/简评: kkoto(芬兰大灰狼)*
-
-*校对: 感恩*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
