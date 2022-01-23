@@ -2,25 +2,29 @@
 ---
 
 
-## 传统加密货币价格暴跌，千亿美元蒸发
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898704/)
+## 山东聊城公开招募中共病毒新疫苗试验者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898744/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约香草山- 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日外媒报道，数字货币市场主要加密数字货币价格下跌，其中最流行和最知名的数字货币：比特币的价格跌破40,000 美元，下跌约 10%，以太坊下跌约 13%。加密数字货币市场损失达 1500 亿美元。
+据墙内媒体消息，1月21日，山东省聊城市疾控中心公开招募400名志愿者，进行“中共病毒“新型腺病毒疫苗的2期临床试验。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-7.jpeg)
 
-此前有消息称，俄罗斯中央银行提议在该国禁止加密货币。由于该国是世界第三大加密货币开采地区，所以，俄罗斯的数字货币政策的变化，对靠采矿生产的数字货币，比如说——比特币等，有重大的影响。
+此次招募条件是18-59岁的成年健康男女，并且是之前未接种过中共病毒疫苗者。受试者有能力了解试验程序，配合所有试验计划随访。
 
-但对不依赖采矿的数字货币，就没有什么影响力了。相比之下，喜马拉雅交易所的HCoin在最近24小时内，价格只有0.7%的小幅波动。以黄金为锚的HCoin，未来会成为数字货币市场中最具价值的数字货币。
+据悉，此次完成新疫苗所有测试项目，会补助1万元。
 
-参考链接：[Crypto prices nosedive, wiping out billions in value](https://thehill.com/policy/technology/590824-crypto-crashes-wiping-out-billions-in-value)
+一贯以来，中共当局极力掩盖其病毒感染人数，其医药研发产业的透明度、以及伦理问题也一度广受诟病。令人匪夷所思的是，2020年疫情爆发后的2个月内，中共已申请各类“中共病毒“疫苗等数十项专利，更是在疫情爆发后的三个月推出首款灭活疫苗。
+
+有关人士评论，这明显是聊城疾控中心在给中共又一种或几种新的毒疫苗做试验采集数据。截止发稿时，尚未知道有多少人参加中共这种危险的疫苗试验。
+
+参考链接：**[所有人 每人万元补助，山东聊城招募新冠疫苗志愿者，有这些条件](https://baijiahao.baidu.com/s?id=1722529490510240786&amp;wfr=spider&amp;for=pc&amp;searchword=山东聊城市招募新冠疫苗测试者)**
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Ivy001
-编辑：Jack Li文阳
+总编：飞虹
+编辑：文特
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

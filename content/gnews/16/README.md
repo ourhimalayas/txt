@@ -2,48 +2,35 @@
 ---
 
 
-## 共济会招募七哥为的是扶持七哥代表他们统治和奴役中国
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898925/)
+## 中共重提“改革开放” 习近平可能被动政策转向
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1898956/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf7c987664c47acd8b032](https://gtv.org/video/id=61ecf7c987664c47acd8b032)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D.jpg)nytimes.com
+1月18日是中共邓小平南巡30周年日，《深圳特区报》当天发表中共中央党校教授的纪念文章，强调邓在南方谈话中旗帜鲜明地指出：“不坚持社会主义，不改革开放，不发展经济，不改善人民生活，只能是死路一条。” 在此前一天，习近平借达沃斯论坛演讲早一天强调坚持改革开放，“中国将坚定不移推进改革开放……中国都将高举改革开放的旗帜”。有外界猜测这是否预示着习近平领导的中共会在目前内外交困的局面下向邓的改革开放路线倾斜，但各种迹象表明这只是习与江曾王孟激烈绞杀的一次交锋，无论改革开放政策是否再次施行，中共都无法摆脱被世界淘汰的死局。
 
-**郭文贵先生**：为啥七哥最早成为共济会要招募的人？你们从来没搞明白这件事，你以为我长得好看？他才不在乎你长不长得好看呢。据我所了解的沼泽地很多人都是歪瓜裂枣的，缺胳膊少腿的，因为他们都是近亲结婚，很多都是近亲结婚。
+在达沃斯论坛会议期间，影响世界走向的沼泽地力量再次讨论政治经济形势。在中共病毒疫情蔓延的第三个年头，大家发现除了个别病毒和疫苗的直接参与者，大多数利益集团没有从中共所鼓吹的“人类命运共同体”中获得稳定的财富，各国和组织都在持续分裂和动荡中艰难寻找平衡。更重要的是，在爆料革命的情报支持下，越来越多的组织发现了中共借助疫苗残害人类健康、扩大影响并侵吞财富的真实目的。中共国内也是危机四伏，全面“向左”的政策所引发的经济社会衰退已越来越难以掩盖，物价飞涨、企业倒闭、房地产危机、自然灾害危机、地方债危机、疫情管理危机。百姓和地方政府，地方政府和中共中央也越来越多地爆发矛盾。这种情况下回顾改革开放会引发对现有状况的怀疑与责问，引发国内外相关组织审视“罪魁祸首”。此次纪念邓南巡讲话的文章未见于中共中央一级的媒体，而中共党媒在习论坛演讲的要点回顾中已删除了与改革开放相关的内容。江曾王孟操作此事的迹象明显，如果成功就让习近平一人对开“改革开放”倒车之事负责，自己则披上继承邓“改革者”的外皮，不但能逃脱自身罪责，还能获得足够政治资本。
 
-就像你看到中东有些国家，他就是近亲结婚，缺胳膊少腿，傻呼呼的，是吧？姐妹表亲结婚，罗斯柴尔德家里面不就很多近亲结婚导致了很多问题嘛，是不是？这就不用说。罗斯柴尔德家族只是其中代表之一，从战争的借款者高利贷者变成了当地财富的统治者，他只是之一。
+习近平的脑子里只有极左的毛泽东思想，江曾王孟不是省油的灯，中共体制下换谁也解决不了危机。郭文贵先生爆料2021年夏天的北戴河会议期间，习近平问政宋平和胡锦涛，习的左倾做法明显得到了宋和胡的支持。如郭先生所说陈云培养了宋平，1981年宋平由陈云点名调动进京，担任国家计委主持日常工作的副主任，两年后即晋升国务委员兼计划委员会主任，1987年陈云让宋平以国务院国务委员身份兼任中共中央的组织部长。陈云是中共党内计划经济的顽固坚持者，他主导和开创了中共国第一个五年计划，并帮助邓小平确立了中共改革开放的主调，即计划经济始终为主，市场经济只是补充。宋平的政治观念和陈云力出一孔。在任组织部长期间，宋很是支持有上海地下党背景的干部，并形成了维护计划经济体系的派系，其中包括江泽民，所以江曾王孟的政治势力也和习近平一样认同计划经济的手段，换上台也是换汤不换料。
 
-所以说是一个共同的信仰，我要统治全人类，你要解放全人类，咱俩都是不同的信仰。所以说现在我们所反击的事情是什么？就让全人类都要有自己的尊严地活着，让人们要相信真的有上天，谁也不能代替上天，我们是有主人的。我们要闹明白地球和银河系之间和太阳系爆发到底是咋回事？为什么我们的一个精子卵子能承载着上百亿千亿的信息？
+郭文贵先生透露习将不得不进行政策转向。这或许是习在内外危机加剧下保存政治资源不得已的选择，这一选择同时也是中共避免快速倒台的权宜之计，但所有这些都挡不住它很快灭亡的结局。人类发展与自然和平相处的解决方案还在新中国联邦。
 
-你说这个共济会，兄弟，宁南兄弟，还有什么这个会那个会，那就是一根毛儿。世界就两个主义现在，就两个东西：一个叫人类，让人们有尊严、安全地活着，不是要当奴隶、奴隶主；另外一个就是我要你当奴隶主。
+参考链接：
 
-这个邪恶的沼泽地在哪里呢？沼泽地是你绝对看不见的，但是又是你绝对面对的。达沃斯、共产党就是绝对的沼泽地。招募七哥是干嘛？是扶持七哥成为中国代表他们来统治中国未来的人民，成为他们地主收租子、奴隶你们的。没想到七哥不被招募，我要干掉他们，是吧！这就这么简单嘛。
+[http://politics.people.com.cn/n1/2022/0119/c1001-32335230.html](http://politics.people.com.cn/n1/2022/0119/c1001-32335230.html)
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+[https://www.rfa.org/mandarin/yataibaodao/zhengzhi/ql1-01192022053616.html](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/ql1-01192022053616.html)
 
-编辑整理：Jacques；
+[http://gov.hebnews.cn/2015-06/18/content\_4850185.htm](http://gov.hebnews.cn/2015-06/18/content_4850185.htm)
 
-字幕文件制作：小满；
+[https://m.sohu.com/a/227751946\_557768/?pvid=000115\_3w\_a](https://m.sohu.com/a/227751946_557768/?pvid=000115_3w_a)
 
-视频制作及上传：Cindy；
+[https://www.bannedbook.org/bnews/cbnews/20211016/1638689.html](https://www.bannedbook.org/bnews/cbnews/20211016/1638689.html)
 
-G-News发布：小满；
+[https://cn.nytimes.com/china/20161209/archives-chen-yun-dies/](https://cn.nytimes.com/china/20161209/archives-chen-yun-dies/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**华盛顿DC 土星**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**编辑发布  水星**
 
  
 

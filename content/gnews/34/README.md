@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|接种疫苗后的可怕后遗症
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1898626/)
+## 传统加密货币价格暴跌，千亿美元蒸发
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898704/)
 
-配音：香草山农场 – 纳米
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日外媒报道，数字货币市场主要加密数字货币价格下跌，其中最流行和最知名的数字货币：比特币的价格跌破40,000 美元，下跌约 10%，以太坊下跌约 13%。加密数字货币市场损失达 1500 亿美元。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-4.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-一位名叫Mark Ruston，接种过两针阿斯利康新冠疫苗的男性正在承受严重的后遗症。据Mark回忆，他之前进行过肾移植手术，因此免疫系统较脆弱，比很多人都要早地去接种了新冠疫苗。
+此前有消息称，俄罗斯中央银行提议在该国禁止加密货币。由于该国是世界第三大加密货币开采地区，所以，俄罗斯的数字货币政策的变化，对靠采矿生产的数字货币，比如说——比特币等，有重大的影响。
 
-接种以后身体出现的问题有：长时间的浑身发冷、不间断地流臭鼻水、视力变模糊、听觉功能丧失、严重头痛、甚至发生过严重的胸痛事件。左腿和手臂都出现了血凝块，左腿的去医院后被药物溶解了，手臂的血凝块巨大，只能通过做手术切除。Mark说自己做血透析做了不到5年，每周3次，在接种新冠疫苗之前从未有过血凝块。Mark非常后悔自己接种了新冠疫苗。
+但对不依赖采矿的数字货币，就没有什么影响力了。相比之下，喜马拉雅交易所的HCoin在最近24小时内，价格只有0.7%的小幅波动。以黄金为锚的HCoin，未来会成为数字货币市场中最具价值的数字货币。
 
-文字版原文：[接种疫苗后的可怕后遗症](https://gnews.org/zh-hans/1894558/)
+参考链接：[Crypto prices nosedive, wiping out billions in value](https://thehill.com/policy/technology/590824-crypto-crashes-wiping-out-billions-in-value)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
