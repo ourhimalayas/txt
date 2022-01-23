@@ -2,35 +2,36 @@
 ---
 
 
-## 有声|接种疫苗后的可怕后遗症
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1898626/)
+## 班农先生谈背叛
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898713/)
 
-配音：香草山农场 – 纳米
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生谈背叛_01-1.jpg)
+新中国，新中国人形成的这个进程中，任何进程都是这样，必然会经历背叛。就连基督来到地上，也是如此。所以一定会有这种 人，他们会背叛，今后还会不断出现，也不可能会止息。
 
+我知道重要的是：历史会审判我们。这就是为什么我非常愿意把 我的生命投入这个使命，对每一天致力所作的一切，我觉得特别 的舒服。因为我们是在天使的这一边，我们支持伟大的中国人的自由抗争，最终也是为整个人类的自由。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-一位名叫Mark Ruston，接种过两针阿斯利康新冠疫苗的男性正在承受严重的后遗症。据Mark回忆，他之前进行过肾移植手术，因此免疫系统较脆弱，比很多人都要早地去接种了新冠疫苗。
+有人会背叛，有人会害怕软弱，有人会离开。我自己也在受威胁, 每隔一星期他们就把我抓起来，想送我进监狱。其实我也可能就 会离开或者开派对之类。
 
-接种以后身体出现的问题有：长时间的浑身发冷、不间断地流臭鼻水、视力变模糊、听觉功能丧失、严重头痛、甚至发生过严重的胸痛事件。左腿和手臂都出现了血凝块，左腿的去医院后被药物溶解了，手臂的血凝块巨大，只能通过做手术切除。Mark说自己做血透析做了不到5年，每周3次，在接种新冠疫苗之前从未有过血凝块。Mark非常后悔自己接种了新冠疫苗。
+但为着我的使命，责任，义务，当我死的时候，为着我从上帝、 从我的父母亲、从我的家庭、从我的国家、从我的教育、从我的信仰、从我的周围…这一切所赋予给我的各样恩赐，我能问心无愧.
 
-文字版原文：[接种疫苗后的可怕后遗症](https://gnews.org/zh-hans/1894558/)
+也非常有幸，在年轻的时候去到了中国，我爱上这个国家，爱上 这些人民。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+所以当面对所有的这些艰难，这些不开心时，都无关紧要。 紧要的是：坚守，坚守巨制定的计划：我们要推翻中共take down the CCP,这是毫不怀疑的。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发布：于white
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

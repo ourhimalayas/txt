@@ -2,44 +2,78 @@
 ---
 
 
-## 是共产党和达沃斯党威胁全世界打开潘多拉给世界开药方
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898616/)
+## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898709/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf6b987664c47acd8afa4](https://gtv.org/video/id=61ecf6b987664c47acd8afa4)
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-**郭文贵先生**：现在威胁全世界、放毒、潘多拉盒子、给世界开药方的所有东西都是来自中国共产党，然后这些人统治着全世界。记住我说的话，人类这次冠状病毒，就是中国共产党病毒和疫苗灾难，最后要不审判达沃斯党，达沃斯党就会把地球毁掉。我从来没说过达沃斯，过去五年，班农先生挂在嘴边的达沃斯党，我从来不提的。现在我第一次我认真谈达沃斯党。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-你告诉我，中南坑叫无产阶级的共产党，你告诉我哪个人不是最有钱的阶级？某个省的一个县长都可能比那个达沃斯党都值钱，在广东、在上海，他们是无产阶级党吗？共产党一个唯无神论的党，从来不相信神的人，把盘古龙头，相信我们爆料革命能改变共产党的所谓的龙命、龙运和太子命，改成了男人的包头儿，你觉得它不是无神党吗？在昆仑山上开祭坛，已经开了将近百年了，你相信它是无神党吗？
+苏格兰公共卫生部门每周发布的[苏格兰公共卫生COVID-19 和冬季统计报告](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)严重高估了未接种COVID-19疫苗感染者数据，存在对试验性的中共病毒疫苗对预防感染作用的严重夸大和信息误导！
 
-南普陀会议选在南普陀，它咋不选在南家沟、李家沟呢？所以说一个绝对的信神的党，绝对的超级富豪党和达沃斯党是世界上最好的邪恶的缩影。谁要找到冠状病毒和疫苗的灾难真相，找达沃斯党和中国共产党，这才是真正的邪恶的来源。
+全球各地的数据证明，注射试验性的中共病毒疫苗，既不能预防感染，也不能减少住院或死亡。注射中共病毒疫苗，只会带来严重的COVID-19病毒疫苗副作用。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+根据[中共国务院新闻办公室网站](http://www.scio.gov.cn/index.htm)新闻，[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)消息，在本月12日中共国天津市疾病预防控制中心主任、市卫生健康委副主任韩金艳，市委教育工委专职副书记孙志良，津南区副区长陈妍卉，市疾病预防控制中心副主任张颖主持的天津市疫情防控的有关情况会上公布的数据，“天津107例感染者中，103例完成全程接种（包括完成加强接种32例），3例仅接种1剂次灭活疫苗，1例未接种”。
 
-编辑整理：Jacques；
+天津此轮感染者中，接种过中共病毒疫苗的人占99.07%，未接种疫苗的人仅占0.93%！
 
-字幕文件制作：小满；
+在没有真相的中共国，天津疾控中心工作人员在不小心泄露中共国的疫苗灾难后，肯定会受到中南坑老杂毛的处罚。在这之后的任何新闻发布会中，均未再次有任何部门提及确诊者中，接种过中共病毒疫苗和未接种疫苗的人，在确诊者中的比例！
 
-视频制作及上传：Cindy；
+而在苏格兰公共卫生部门1月19日发布的苏格兰公共卫生COVID-19 和冬季统计报告（[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)）中，详细记录了2021年12月18日到2022年1月14日期间，根据COVID-19疫苗接种状态划分的每周100,000人新增COVID-19确诊、住院和死亡人数。
 
-G-News发布：小满；
+下表为这份报告的第38页，表14（Age-standardised case rate per 100,000 individuals by week and vaccination status, 18 December 2021 to 14 January 2022），2021年12月18日至2022年1月14日按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19确诊率。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-case-rate-per-100000-individuals-by-week-and-vaccination-status.jpg)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+下图为按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19确诊率变化趋势：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-case-rate-per-100000-individuals-by-week-and-vaccination-status1.jpg)
+通过这个图，很容易注意到，尽管未接种疫苗的人，感染率明显低于注射两针疫苗的人，但注射1针和3针或加强针的人感染率尽管也一直比未接种疫苗的人要高，但相差不是很大。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+下表为这份报告的第44页，表15（Age-standardised rates of acute hospital admissions where an individual had a COVID-19 positive PCR test up to 14 days prior, on admission, or during their stay in hospital, by week and vaccination status, 18 December 2021 to 14 January 2022），2021年12月18日至2022年1月14日按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19住院率。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-rates-of-acute-hospital-admissions.jpg)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+下图为按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19住院率变化趋势：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-hospitalisation-rate-per-100000-95-confidence-intervals.jpg)
+通过这个图，很容易认为，接种3针或加强针的人住院率比未接种疫苗的人明显低很多。而接种1针、两针的人，住院率和未接种疫苗的人没有太大区别！
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+下表为这份报告的第50页，表16（Number of confirmed COVID-19 related deaths by vaccination status at time of test and age-standardised mortality rate per 100,000, 11 December 2021 to 07 January 2022），2021年12月11日至2022年1月7日按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19死亡率。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Number-of-confirmed-COVID-19-related-deaths-by-vaccination-status.jpg)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+下图为按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19死亡率变化趋势：
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Number-of-confirmed-COVID-19-related-deaths-by-vaccination-status-at-time-of-test-and-age-standardised-mortality-rate-per-100000-1.jpg)
+
+通过这个图，很容易被误导，接种3针或加强针的人死亡率比未接种疫苗的人明显低很多。而接种1针、两针的人，死亡率和未接种疫苗的人没有太大区别！甚至得出接种3针或加强针的人，死亡率低很多的结论。
+
+很多政客也正在宣称，接种COVID病毒疫苗，可减少重症和死亡！
+
+任何人根据这些政府发布的报告，应该都会觉得注射试验性的COVID-19病毒疫苗，即使没有预防效果，最少应该也不会有其它明显的问题，甚至错误的以为，接种３针或加强针，能够预防重症和死亡，很多无苗族甚至受到有苗族和政客们的指责和限制。
+
+然而，这些数字背后，隐藏着惊人的欺骗！如果任何人根据这些报告，在政府高压下打了试验性的COVID-19病毒疫苗，那就上当了！
+
+接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](https://gnews.org/zh-hans/1898792/)
+
+参考数据：
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
+
+[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
+
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
+
+[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+
+[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

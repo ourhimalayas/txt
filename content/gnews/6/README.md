@@ -2,42 +2,34 @@
 ---
 
 
-## 1.21大直播后记：七哥谈新西兰的疫苗政策
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898685/)
+## 加拿大阿省500名未接种医护人员重返岗位
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898768/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1900.png)
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒1月20日报道，加拿大艾伯塔省卫生局表示，在该省1400名未接种过中共病毒疫苗的医护人员中，有500人在选择接受定期核酸检测之后，正在重返医院和其它医疗机构的工作岗位。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10.jpeg)
 
+该省卫生局表示：奥密克戎感染病例的激增，使得整个医疗系统人手短缺越来越严重。虽然通过招聘填补空缺来应对人员配置的挑战，但仍然不能满足正常运转。由于长期从事医疗护理的专业人员在工作安置上享有优先权，因此欢迎更多未接种过中共病毒疫苗的人士，在接受检测的前提条件下回到工作岗位上。
 
-图片来源：雅典娜设计组（614）
+与此同时，该省雇员工会副主席邦妮·戈斯托拉说，这些检测的费用，不应该由重返工作的医护人员承担。雇员工会也已经代表那些认为疫苗接种及核酸测试政策不公平的员工，向该省卫生局提出了数百份申诉。
 
+参考链接： [500 unvaccinated AHS staff back to work after opting into testing program](https://www.cbc.ca/news/canada/calgary/unvaccinated-ahs-staff-1.6321139?cmp=rss)
 
-整理：雅典娜速记组
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-嘉宾文空：好的，谢谢七哥，我为新西兰战友提几个问题吧。我们新西兰一直都是五眼联盟里动作比较慢的，包括全世界都在开始停止疫苗的时候，我们新西兰终于不负众望的推出了，5到11岁儿童可以开始打疫苗的政策。而且新西兰政府，在打儿童疫苗的时候，当时就有新闻报道说倒了5个。但是新闻现在没说，而且还出来辟谣。新西兰政府公权力是越来越大，而且权力特别集中。包括地方政府的一些权力。包括市政的水都开始被收归国有。在这个方面，跟共产党这个爹跑的是越来越快。所以七哥现在能不能跟我们新西兰的战友讲一讲，关于新西兰的这些事情，包括新西兰未来的疫苗。
+总编：Zion文恩
+编辑：Delilah小胖
+校正/发稿：谐趣园
 
-七哥：谢谢，文空兄弟。首先，新西兰、新加坡、韩国，甚至像东欧的一些小国家，在和中共的勾兑等。新西兰和像巴基斯坦这类国家还真不一样。还有个最核心的问题，就是人种、价值观、法律系统。它是一个民主的社会，而且过去声誉极好。
-
-但是从过去的10-12年吧，就习之前2008年以后，到2010年主要开始，中共成为新西兰最大的海外贸易国。一年大概从30亿到了300亿美元交易的时候，然后就渗透，特别是中国的一些富豪大佬、高官的家属、常委政治局的家属藏在新西兰。之后，新西兰政党的选举制度和选举资产需要中共的钱来控制。新西兰这个国家，绝对已经在精神上、经济上、社会基础上被共产党基本（控制）。
-
-他不像韩国人民，还有很多人清醒、明白。那么在疫苗政策、在这一切上，它走的都是共产党这一套手段，深受共产党的影响。特别是共产党在新西兰的一些富豪，家里边也都是政治局、省长、副省长、马明哲的家人。像腾讯的很多高管的家人、民生的股东的家人都在新西兰，还有澳大利亚。影响特别深啊。
-
-但是呢，就像我原来说的疫苗这个事情一样，新西兰一定会很快。我有绝对的把握。它渗透，咱反渗透，咱反渗透力量一点不比它小，而且一定很快让它停。停完以后会把这些推广疫苗的人，绳之以法。而且爆料革命一定会让新西兰回到西方的这个民主法治的大家庭中。
-
-世界上最邪恶的，你看看就是德国，这个纳粹思想、共产主义的诞生地。还有又漂亮、又穷、又垃圾的意大利政府，极为极端，是吧？只有七哥说，一定让英国政府（强制疫苗）彻底废了，这都做到了。在新西兰，我今天再重申，你们等着，很快新中国联邦就给你们送大礼。你们看到不喜欢的人基本上都会烟消云散。而且我告诉你，疫苗之后的大审判，新西兰首当其冲。你放心啊，好好过吧，新中国联邦为你带来意想不到的好处。
-
-资料来源：[2022年1月21日文贵大直播](https://gtv.org/video/id=61eaab2f533c672fca804729)
-
-发布：星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
