@@ -2,53 +2,45 @@
 ---
 
 
-## 共产党是要统治法律制造法律制造正义的沼泽地魔鬼之一
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898934/)
+## 面对中共欲接管全球市场的野心，拜登加速推进美国制造
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1899027/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf80b87664c47acd8b046](https://gtv.org/video/id=61ecf80b87664c47acd8b046)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1234486521-e1642763171233-640x4813-1.jpg)图片来自《悉尼先驱晨报》
+来自《悉尼先驱晨报》1月22日的报道，鉴于从智能手机到汽车等各种领域的全球性半导体短缺，英特尔公司表示将投资200多亿美元在美国建立两家新的芯片制造工厂，以期提高自己的产能。
 
-**郭文贵先生**：所以说你现在看到美国的，我们直播完PAG太平联盟官司以后，世界震撼大不大？我们的法官多次在法庭上，过去几年多次表达对对方的Edward Moss律师“我很尊重你，你是很成功的律师，有极高的道德”，结果他现在是强烈地违反了道德规律给踢出去了。
+美国总统乔·拜登(Joe Biden)周五利用英特尔在俄亥俄州的声明，推动了一项520亿美元(723亿澳元)的法案，等待众议院的批准。这笔资金将投资于芯片行业，并帮助确保更多的芯片在美国生产。
 
-你知道在这个中间我们的律师，Melveny这家律师是美国也是这么大的，就他们这个Melveny律师事务所是最大之一，我们的律师也是纽约也是最大的，被法官多次警告：“你不要违反了职业道德！” 你想想，法官能多次夸奖告我们造假的律师，他不让我提供证据，又同时警告我们的律师不道德，结果对方的律师现在因为被法官判令为强烈违反职业道德（给）干掉了。
+拜登在白宫表示：“中国正在尽其所能接管全球市场，以便他们能够在竞争中超越我们其他国家，并拥有包括军事应用在内的大量应用。”
 
-你看美国西方的法治给了老百姓就是一个幌子，所谓的正义，最重要的审判是什么？你有两个选择在西方，就是什么？——陪审团审判，你对法官这个制度，我可以选择陪审团呀，那你就得认了，是吧？不管对错你都得认。
+“我们将在美国投资。”他说，“我们正在投资美国工人。我们将尽我们所能把所有产品都印上‘美国制造’的标签，尤其是这些计算机芯片。”
 
-像郭宝胜、夏业良跟我打官司一样，法官“呱唧”，法官都傻了，法官看到下面陪审团出来，当时那法官……你知道我们开了四、五天庭，那眼睛都熬大了，一直摇头，为什么？他没想到陪审团能判七哥全赢，他以为也就赔个一、二万美元，没想到全力支持。
+宣布建立新工厂是英特尔首席执行官帕特·格尔辛格(Pat Gelsinger)战略的一部分。该战略旨在重建英特尔在芯片制造领域的主导地位，并减少美国对亚洲制造中心的依赖。亚洲制造中心对市场有着类似邪恶的控制。
 
-但是（PAG案件）我们被剥夺了美国法律最根本的陪审团呐，我们的律师被强烈谴责为违反职业道德，而且赞扬对方的律师，这法官大人做的呀。你想想Edward Moss狂妄到什么程度？被法官多次赞扬为成功的、让人尊敬的律师，他最后违反职业道德，如此之嚣张他傲慢到什么程度？他会相信有法律吗？他会相信有正义吗？他会相信不搞假证不作假吗？
+尽管芯片制造商都在争先恐后地提高产能，英特尔的新工厂规划不会缓解当前的供应紧张。因为这样的综合体要花费数年来打造。格尔辛格之前说他预计芯片短缺会持续到2023年。
 
-竟然找到了就Cahill华盛顿最大律师事务所，就是像Bondi这样的人，Bondi的妹妹是谁你们知道吗？Bondi的妹妹是川普总统的律师呀，Bondi的妹妹是川普总统最重要的一员，是真正的，法律上只有一个律师是真正的川普律师，就是Bondi的妹妹，曾经也准备帮我们的人，Bondi在G-TV拿了二百万美元的律师费，竟然如此之不顾利益冲突，竟然要帮PAG，还把Edward Moss弄过去，你见这个世界之荒唐！
+作为成为一家面向外部客户的主要芯片制造商转型计划的一部分，英特尔的两家工厂去年9月份在亚利桑那州破土动工。耗资200亿美元的工厂将使英特尔位于凤凰城郊区钱德勒园区的工厂总数达到6个。
 
-那你说沼泽地是什么？沼泽地就可以让你律师、让你所有的人听他所用，就是没有正义、统治法律、制造法律、制造正义，这叫做沼泽地，共产党就是沼泽地的魔鬼之一。
+计划在俄亥俄州投资的可能是一个包括8家工厂的综合体将耗资数百亿美元，并在哥伦布郊外的利金县占地1000英亩的场地上创造3000个永久性工作岗位和7000个建筑工作岗位。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+前两个工厂的规划将马上开始，预计将于2022年底开始建造，并于2025年开始生产。
 
-编辑整理：Jacques；
+简评：
 
-字幕文件制作：小满；
+芯片是众多高科技产品不断推陈出新的核心部件，其广泛的应用给大家的日常生活带来了便利，让社会运行更加有序高效。然而由于中共病毒大流行对全球供应链造成的破坏，以及中共政权利用制造大国的地位在疫情期间对全球供应链施加控制，使得全球芯片供应问题变得尤为突出。
 
-视频制作及上传：Cindy；
+在后疫情时代，在全球竞争日益激烈的背景之下，为了本国的国家安全和经济发展，美国拜登总统的决心让人印象深刻——“我们将尽我们所能把所有产品都印上‘美国制造’的标签”，这句话充分体现了美国以人为本的国家精神。反观中共政权现在在做什么？它们利用所谓偷税漏税和涉嫌垄断的名义搜刮民营企业家的财产，利用房地产税和虚假的股市来收刮老百姓的财富，同时利用独裁者手中的权力，继续向外大撒币，通过免除债务和赠送金钱等方式诱惑他国领导人前来参加彰显其独裁统治能力的北京冬奥会，完全不顾疫情之下已经身处水深火热之中的中共国老百姓的死活。两相对比，高低立现。所以说，中共政权不除，中共国的老百姓将永远不会有未来。
 
-G-News发布：小满；
+新闻链接：[https://www.smh.com.au/world/north-america/us-china-chip-battle-takes-centre-stage-as-intel-flags-new-plant-in-ohio-20220122-p59qc0.html?ref=rss&utm\_medium=rss&utm\_source=feedly\_world](https://www.smh.com.au/world/north-america/us-china-chip-battle-takes-centre-stage-as-intel-flags-new-plant-in-ohio-20220122-p59qc0.html?ref=rss&amp;utm_medium=rss&amp;utm_source=feedly_world)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+* * *
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

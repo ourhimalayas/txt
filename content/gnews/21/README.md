@@ -2,38 +2,24 @@
 ---
 
 
-## 山东聊城公开招募中共病毒新疫苗试验者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898744/)
+## 美联储或将与喜联储合作全面使用喜币
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1898831/)
 
-作者：纽约香草山- 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据墙内媒体消息，1月21日，山东省聊城市疾控中心公开招募400名志愿者，进行“中共病毒“新型腺病毒疫苗的2期临床试验。
+加拿大温哥华扬帆农场 编辑撰稿，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-7.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/xibi-edited.png)图片来源：GTV
 
-此次招募条件是18-59岁的成年健康男女，并且是之前未接种过中共病毒疫苗者。受试者有能力了解试验程序，配合所有试验计划随访。
 
-据悉，此次完成新疫苗所有测试项目，会补助1万元。
+根据对[GTV新闻]和[福布斯]近日的综合报道，美联储首次公开启动了关于引入央行数字货币的计划，并将可能与[新中国联邦]的[喜联储]合作，以顺应全球新型数字金融的未来趋势，以及试图持续保持美元的国际优势地位。
 
-一贯以来，中共当局极力掩盖其病毒感染人数，其医药研发产业的透明度、以及伦理问题也一度广受诟病。令人匪夷所思的是，2020年疫情爆发后的2个月内，中共已申请各类“中共病毒“疫苗等数十项专利，更是在疫情爆发后的三个月推出首款灭活疫苗。
+报道称，[美联储]要求在未来3个月内就应用“潜在的央行数字货币金融系统”提出可行性方案，并最终能使个人和企业能使用该系统进行基本的商品和服务采购和支付账单，政府则可以使用它来征税或直接向国民支付福利等。从而在根本上改变现有美国金融体系的运行结构。
 
-有关人士评论，这明显是聊城疾控中心在给中共又一种或几种新的毒疫苗做试验采集数据。截止发稿时，尚未知道有多少人参加中共这种危险的疫苗试验。
+为此，[GTV]1月21日文贵大直播指出，作为目前世界上唯一稳定，安全，合法的最先进加密数字货币系统，[新中国联邦]的数字金融机构[喜联储]，将极有可能成为美联储现在和将来，唯一可信赖且最具实力的合作伙伴。同时也将是美国保持全球金融领导地位和维护美元优势的最佳选择。
 
-参考链接：**[所有人 每人万元补助，山东聊城招募新冠疫苗志愿者，有这些条件](https://baijiahao.baidu.com/s?id=1722529490510240786&amp;wfr=spider&amp;for=pc&amp;searchword=山东聊城市招募新冠疫苗测试者)**
+原文链接：[https://www.ft.com/content/df3ef633-d514-4f9f-8e96-b345a22b0630](https://www.ft.com/content/df3ef633-d514-4f9f-8e96-b345a22b0630)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+新闻连接：https://gtv.org/video/id=61eaab2f533c672fca804729
 
-总编：飞虹
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

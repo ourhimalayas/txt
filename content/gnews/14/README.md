@@ -2,20 +2,48 @@
 ---
 
 
-## 克罗地亚不允许医生帮助他们的病人！
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1898825/)
+## 共济会招募七哥为的是扶持七哥代表他们统治和奴役中国
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898925/)
 
-**作者：日本东京方舟农场 JIHO**
+G-TV视频链接：[https://gtv.org/video/id=61ecf7c987664c47acd8b032](https://gtv.org/video/id=61ecf7c987664c47acd8b032)
 
-克罗地亚卫生系统和卫生部不允许医生帮助他们的新冠病人！MEP呼吁欧洲抗议者在布鲁塞尔团结起来反对政府的Covid政策：“布鲁塞尔是它开始的地方，也是它必须结束的地方。”
+**郭文贵先生**：为啥七哥最早成为共济会要招募的人？你们从来没搞明白这件事，你以为我长得好看？他才不在乎你长不长得好看呢。据我所了解的沼泽地很多人都是歪瓜裂枣的，缺胳膊少腿的，因为他们都是近亲结婚，很多都是近亲结婚。
 
-* * *
+就像你看到中东有些国家，他就是近亲结婚，缺胳膊少腿，傻呼呼的，是吧？姐妹表亲结婚，罗斯柴尔德家里面不就很多近亲结婚导致了很多问题嘛，是不是？这就不用说。罗斯柴尔德家族只是其中代表之一，从战争的借款者高利贷者变成了当地财富的统治者，他只是之一。
 
-*素材采编：JIHO*
+所以说是一个共同的信仰，我要统治全人类，你要解放全人类，咱俩都是不同的信仰。所以说现在我们所反击的事情是什么？就让全人类都要有自己的尊严地活着，让人们要相信真的有上天，谁也不能代替上天，我们是有主人的。我们要闹明白地球和银河系之间和太阳系爆发到底是咋回事？为什么我们的一个精子卵子能承载着上百亿千亿的信息？
 
-*发布：Ranting*
+你说这个共济会，兄弟，宁南兄弟，还有什么这个会那个会，那就是一根毛儿。世界就两个主义现在，就两个东西：一个叫人类，让人们有尊严、安全地活着，不是要当奴隶、奴隶主；另外一个就是我要你当奴隶主。
 
-*封面制作：S*
+这个邪恶的沼泽地在哪里呢？沼泽地是你绝对看不见的，但是又是你绝对面对的。达沃斯、共产党就是绝对的沼泽地。招募七哥是干嘛？是扶持七哥成为中国代表他们来统治中国未来的人民，成为他们地主收租子、奴隶你们的。没想到七哥不被招募，我要干掉他们，是吧！这就这么简单嘛。
+
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

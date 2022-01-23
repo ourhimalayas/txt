@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|接种疫苗后的可怕后遗症
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1898626/)
+## 丹麦报纸为盲目给政府新冠言论背书而道歉
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1898712/)
 
-配音：香草山农场 – 纳米
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1..jpg)
+图片来源：Extra Bladet
 
+一家丹麦主流报纸《Ekstra Bladet》1月7号为之前 “催眠式 “地、不加怀疑地追随政府对冠状病毒的叙述而向其读者公开道歉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-一位名叫Mark Ruston，接种过两针阿斯利康新冠疫苗的男性正在承受严重的后遗症。据Mark回忆，他之前进行过肾移植手术，因此免疫系统较脆弱，比很多人都要早地去接种了新冠疫苗。
+Ekstra Bladet的标题是：”我们失败了”，该报编辑部在其中写道：”近两年来，作为媒体和民众，我们几乎被当局每天的冠状病毒数字催眠了”。 文章指责政客和当局在大流行的各个方面“撒谎”，导致这些机构失去公众信任，并指出卫生当局也大大夸大了疫苗结束大流行的功效。 该文质疑丹麦对儿童进行的大规模疫苗接种，而瑞典或挪威均还没有这样做过。
 
-接种以后身体出现的问题有：长时间的浑身发冷、不间断地流臭鼻水、视力变模糊、听觉功能丧失、严重头痛、甚至发生过严重的胸痛事件。左腿和手臂都出现了血凝块，左腿的去医院后被药物溶解了，手臂的血凝块巨大，只能通过做手术切除。Mark说自己做血透析做了不到5年，每周3次，在接种新冠疫苗之前从未有过血凝块。Mark非常后悔自己接种了新冠疫苗。
+作为媒体，本应该对政府保持警觉和监督，而媒体却失职了。文章说，官方公布的住院人数比医院实际住院人数高出 27%，而有多少人死于新冠病毒的数据早应该被公布，当局本应该“负责及时、准确和诚实地告知民众”。
 
-文字版原文：[接种疫苗后的可怕后遗症](https://gnews.org/zh-hans/1894558/)
+“疫苗一直被称为我们的‘超级武器’。我们的医院被称为‘超级医院’，”编辑写道。 “这些超级医院显然受到了最大的压力，尽管几乎所有人员都配备了超级武器。甚至儿童也大规模接种了疫苗，这在我们的邻国还没有做。” 编辑嘲讽说，当局与民众的沟通绝对配不上“超级”一词。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+公开道歉是欧洲媒体日益增长的趋势，媒体已开始质疑政府的叙述和反应。例如，德国顶级报纸之一的《图片报》就去年 8 月对新冠病毒的恐慌发表了道歉，当时该报声称孩子们“会谋杀他们的祖母”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+《图片报》主编 Julian Reichelt 说，“对于我们的社会对这个国家的数百万儿童负责，我想在这里表达我们的政府和总理都不敢告诉你们的话， 我们请求您原谅我们，我们的这些政策让孩子们成为暴力、忽视、孤立和孤独的受害者。我们曾经说服我们的孩子，说如果他们敢于做他们自己，他们会谋杀他们的祖母，或者他们的朋友。而我们说这些都没有得到科学证明。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+来源链接
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[Extra Bladet](https://ekstrabladet.dk/nyheder/lederen/vi-fejlede/9072013)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[‘WE FAILED!”](https://gellerreport.com/2022/01/we-failed-denmarks-largest-newspaper-apologizes-for-mindlessly-parroting-government-narrative.html/)
 
  
 
