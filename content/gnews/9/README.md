@@ -2,45 +2,43 @@
 ---
 
 
-## 如果医院使用泽连科疗法Covid-19相关死亡将几乎不存在
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1898957/)
+## 爱尔兰在限制未接种疫苗者半年后取消了疫苗护照
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1898976/)
 
-翻译： Jennny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1234486521-e1642763171233-640x4812-1.jpg)图片来源：《布赖特巴特新闻网》
+《布赖特巴特新闻网》2022年1月22日报道，在疫苗护照系统运行约6个月后，爱尔兰将再次允许未接种疫苗者使用在餐厅和酒吧的室内餐饮等服务。该通行证于去年6月首次在爱尔兰境内推出，阻止未接种中共病毒疫苗且未在近期感染过中共病毒的个人进入餐厅和电影院等场所，同时也阻止他们访问疗养院。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1903.png)图片来源：naturalnews.com
+根据《爱尔兰独立报》的报道，所有的国内场馆和活动的通行证现已被取消，爱尔兰总理米歇尔·马丁(Micheál Martin)表示不再需要这些措施。该出版物报道马丁的话说：“我认为我们正进入大流行病的新阶段，即不再需要我们于前几个阶段实施的那些限制的阶段。” “春天即将到来，我不知道我是否曾经像期待这一次一样期待春天的到来，”总理还指出。
 
-自然新闻 – 一项多中心、随机、开放标签研究，评估了维生素 D 和泽连科疗法（Zelenko Protocol）（羟氯喹、锌和阿奇霉素）的有效性。土耳其的七家医院应用了含和不含维生素C的治疗方案，以研究其在缩短疾病持续时间和预防死亡方面的有效性。
+该国许多人一直在庆祝这一消息，爱奥纳研究所(Iona Institute)所长大卫·奎因 (David Quinn)发布的一张被撕掉的欧盟中共病毒通行证(EU COVID cert)的图片在社交媒体上获得了超过1000个点赞。
 
-在 237 名住院患者（年龄 22-99 岁）中，一名在 70 岁时去世。该患者患有严重的维生素 D 缺乏症和潜在的心肺疾病。其余 99.58% 的患者恢复了广谱、自然免疫。在研究过程中，研究人员发现，所有住院患者中，有 97% 缺乏维生素 D。严重缺乏维生素 D 的患者 (55%) 更有可能最终进入 ICU ，并住院更长时间。大多数（73%）住院患者还患有糖尿病、心脏病和肺病等潜在合并症。
+然而，此后一些政治人士就取消限制措施向公众发出警告，总理马丁警告说，这场大流行病可能会有“进一步的转折”。该国副总理利奥·瓦拉德卡(Leo Varadkar)对这种谨慎的表态表示赞同。
 
-研究人员发现，静脉注射维生素 C 可将患者在医院的平均恢复时间从 45 天缩短到 15 天。该研究得出的结论是，“羟氯喹、阿奇霉素和锌联合或不联合维生素 C 的治疗方案，在治疗 COVID-19 时是安全有效的，高剂量的静脉注射维生素 C 可显著加快恢复。”
+瓦拉德卡说：“免疫力会减弱——它总是这样。可能会有更多令人担忧的变种病毒，而且寒冬还会再来。你可以设想这样一种情况，我们会有第六、第七、第八、第九、第十波疫情。”
 
-对有效治疗的压制使医院变成了现代毒气室
+“我不知道，我们目前还不能说这可能是多么轻微或严重，”副总理继续说。“作为一个政府，我们在未来几周内要做的就是为此制定计划。”在英国上周三宣布将大幅放宽其中共病毒限制规定后不久，爱尔兰就废除了其国内的疫苗通行证制度。该国已经取消了所有强制戴口罩的规定，以及去年底开始实施的居家办公令。
 
-在WHO于 2020 年 2 月宣布“全球大流行”之后，所有的目光都集中在医院的容量上。尽管全国大多数医院从未目睹过备受期待的感染激增，但市中心的医院系统的死亡率却在迅速上升。**纽约市的医院是最先宣传他们治疗 Covid-19 患者失败的医院之一。**
+“在仔细研究数据后，内阁得出结论，一旦法规失效，政府将不再强制要求在任何地方佩戴口罩，”首相鲍里斯·约翰逊(Boris Johnson)在谈到限制措施时说。“……随着中共病毒变成地方性流行病，我们将需要用建议和指导来取代法律要求，敦促病毒携带者小心谨慎并为他人着想，”他继续说到。
 
-这些市中心的医院通常挤满了流感、肺炎、RSV 和各种院内感染患者，但在 2020 年的Covid-19 期间，全世界都看到了医疗系统中的问题：绝望的呼吸机从一开始就是护理标准。在福奇的领导下，联邦的冠状病毒应对措施迫使这些机器的大量生产。
+尽管英国和爱尔兰已经开始放宽其中共病毒限制措施，然而欧洲的其他国家只是在考虑进一步收紧限制。法国和意大利都承诺围绕其中共病毒疫苗通行证采取进一步措施，特别是法国将在 1 月 24 日之前推出新的疫苗通行证制度。
 
-由于担心一种未知的严重急性呼吸系统综合症病毒株的传播，医院被鼓励及早并经常诊断 Covid-19，即使只是怀疑也要诊断。欺诈性 PCR 检测被大规模推出，尽管它从未被设计用于识别和正确诊断单一传染病。成群结队的医院病人被紧急送往一个闭环系统，也就是呼吸机，以阻止他们“扩散”或把呼吸扩散到周围的空气中。**这些死亡装置会破坏肺部，造成氧化损伤，引起医院感染和细胞因子风暴，导致可怕的死亡率**。在这种恐怖和医源性错误的系统下**，****医院系统被暴露为现代毒气室****。**
+与之前爱尔兰的规定一样，根据法国的新规定，未接种和未康复的个人很快将无法通过中共病毒测试的阴性结果来绕过疫苗要求，从而完全禁止他们进入该国的各种设施。
 
-在福奇的领导下，患者被迫忍受痛苦，通过生物武器疫苗实验，迫使更多的痛苦。
+与此同时，德国正威胁要对其所有成年人实施强制疫苗接种，其邻国奥地利已经承诺采取这一措施，并在本周早些时候通过了强制疫苗接种的立法。那些在该国仍未接种疫苗的人现在可能面临高达 3,000 欧元的巨额罚款。
 
-在福奇的领导下，医院系统无视世界各地成功使用的所有有效治疗方案。美国独立诊所的有效治疗方案也被忽视和审查。泽连科疗法**早期使用羟氯喹 ****(HCQ)****、锌和阿奇霉素成功治疗了数千名患者。**但保险公司和制药行业主导着医疗行业，他们利用 FDA 等监管机构，将他们所谓的科学强加给医疗专业人员。福奇很快在美国禁止了泽连科疗法，但推动了高利润的瑞德西韦（Remdesivir）的广泛使用，这只会导致肾功能衰竭、医源性错误和死亡率增加。
+**简评：**紧随美英的步伐，爱尔兰政府取消长达半年的疫苗通行证政策，未接种者也可以进入各种社会设施，将一个公民的基本权益还之于民。我们欣喜地看到，爱尔兰人天生的正直勇敢、血气方刚并没有在疫苗骗局面前失去颜色，政治最终倒向了平民一侧。反观老牌资本主义国家德法意非但不及时收手，还意欲更进一步推进疫苗通行证，其政治形势左转到这一田地，几乎要与中共并驾齐驱，委实令人唏嘘。
 
-为了合法地批准具有 FDA 紧急使用授权的“疫苗”，必须是不存在有效的治疗方案。**被强加给美国和世界其他地区的****mRNA ****疫苗实验，导致更多医疗错误和过早死亡。**原因很简单：**隐瞒有关可行治疗的宝贵信息，并禁止使用营养药物、抗病毒药物、草药、支气管扩张剂、免疫调节剂和抗炎药。**在跟踪这些反人类罪两年之后，许多医疗专业人员推动宣传“疫苗”，并拒绝有效的治疗，现在显然看起来他们都像门格勒木偶皮诺曹。
+在大量事实证明下，中共病毒疫苗已经不能称之为一款疫苗，因其不具备防止感染和停止传播的基本功能，这是否是英国首相在取消强制令时所提及的“在仔细研究数据后”背后的真正原因？令人担忧的变种病毒以及未来可能存在一波又一波的疫情，伴随着爆料革命对真相坚持不懈的推动，定会让各国政府醒悟，追讨中共病毒及疫苗真相。
 
-福奇、CDC和 FDA 不需要调查，因为他们的罪行是公开的。**福奇和 ****CDC ****的独裁者，将惊人的 ****Covid-19 ****死亡人数归咎于未接种疫苗的人，**但这些公共卫生宣传员，实际上只是利用无辜的人作为替罪羊来掩盖政府广泛的犯罪清单。与此同时，“未接种疫苗”的人在美国医院仍然受到不良待遇，当他们在医院死亡室被错误地隔离、歧视和虐待时，他们就必须起来争取使用基本抗病毒方案的权利。
+新闻链接：[https://www.breitbart.com/politics/2022/01/22/ireland-rips-up-vaccine-passport-after-half-a-year-of-restrictions-on-the-unvaxxed/](https://www.breitbart.com/politics/2022/01/22/ireland-rips-up-vaccine-passport-after-half-a-year-of-restrictions-on-the-unvaxxed/)
 
-**如果医院使用羟氯喹 (HCQ)、锌和阿奇霉素（泽连科疗法），以及静脉注射维生素 C、维生素 D、营养液、伊维菌素和植物性抗病毒药物，那么与 Covid-19 相关的死亡几乎就不存在**。这些治疗方案早在 2020 年之前就已成为常识，但医院并没有在经济上激励他们正确使用治疗患者。更可悲的是：善良的医疗保健专业人员被迫在这种绝望的强制性环境中工作，在一个分裂、虐待的文化中沉沦，他们甚至不再拥有对自己的良心或身体自主权的权力。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-新闻来源：[naturalnews.com][If hospitals had utilized the Zelenko protocol with intravenous vitamin C and vitamin D, then covid-19-associated deaths would be virtually nonexistent](https://www.naturalnews.com/2022-01-21-zelenko-protocol-intravenous-vitamin-c-and-d-covid19-deaths.html#) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8712288/) / [NaturalNews.com](https://naturalnews.com/2021-09-17-hydroxychloroquine-and-ivermectin-treatments-covid19.html) / [CNBC.com](https://www.cnbc.com/2020/04/29/dr-anthony-fauci-says-data-from-remdesivir-coronavirus-drug-trial-shows-quite-good-news.html) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC7290825/) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo)
 
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+[![](https://express.adobe.com/page/0jn7HKHL0hc0q/images/53130c6a-ffac-4866-8ce6-310a66feb95e.jpg?asset_id=2f481aef-15ab-4423-b26d-fb7b00402694&amp;img_etag=%2279c96383556a5136235d40a9d69aea3d%22&amp;size=1024)](https://express.adobe.com/page/0jn7HKHL0hc0q/images/53130c6a-ffac-4866-8ce6-310a66feb95e.jpg?asset_id=2f481aef-15ab-4423-b26d-fb7b00402694&amp;img_etag=%2279c96383556a5136235d40a9d69aea3d%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

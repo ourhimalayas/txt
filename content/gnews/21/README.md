@@ -2,23 +2,36 @@
 ---
 
 
-## 美联储或将与喜联储合作全面使用喜币
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1898831/)
+## MV版Hcoin To the Moon上线46天第32次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1898832/)
 
-加拿大温哥华扬帆农场 编辑撰稿，发稿：硫酸羟氯喹64
+1/23/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线46天第32次位列澳门iTunes热门音乐视频榜榜首，第39次位列前三名
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/xibi-edited.png)图片来源：GTV
+* * *
+
+[【PDF 下载】Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
 
-根据对[GTV新闻]和[福布斯]近日的综合报道，美联储首次公开启动了关于引入央行数字货币的计划，并将可能与[新中国联邦]的[喜联储]合作，以顺应全球新型数字金融的未来趋势，以及试图持续保持美元的国际优势地位。
+[【PDF 下载】Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-23-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-报道称，[美联储]要求在未来3个月内就应用“潜在的央行数字货币金融系统”提出可行性方案，并最终能使个人和企业能使用该系统进行基本的商品和服务采购和支付账单，政府则可以使用它来征税或直接向国民支付福利等。从而在根本上改变现有美国金融体系的运行结构。
-
-为此，[GTV]1月21日文贵大直播指出，作为目前世界上唯一稳定，安全，合法的最先进加密数字货币系统，[新中国联邦]的数字金融机构[喜联储]，将极有可能成为美联储现在和将来，唯一可信赖且最具实力的合作伙伴。同时也将是美国保持全球金融领导地位和维护美元优势的最佳选择。
-
-原文链接：[https://www.ft.com/content/df3ef633-d514-4f9f-8e96-b345a22b0630](https://www.ft.com/content/df3ef633-d514-4f9f-8e96-b345a22b0630)
-
-新闻连接：https://gtv.org/video/id=61eaab2f533c672fca804729
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,52 +2,88 @@
 ---
 
 
-## 达沃斯党控制人类生存环境制定非对错标准控制你的大脑
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898775/)
+## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898792/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf71987664c47acd8afdd](https://gtv.org/video/id=61ecf71987664c47acd8afdd)
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-**郭文贵先生**：达沃斯论坛在干什么你知道吗？我要从这给你说起，达沃斯论坛是世界上法律、游戏、金融、制度、文化的创造者、制定者。这就是你说的它在50年前，它就开始设计人类上未来的金融模式、生存模式、城市化，甚至太空化。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-还有一个更关键的不要忘了，全世界所有国家的军校，军校，我说的是军校、警察学校、法治学校，所谓的NGO工业组织，你告诉我哪一个背后不是达沃斯共产党控制的？你给我找一个出来。
+接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）](https://gnews.org/zh-hans/1898709/)
 
-我控制了你行善的权利和标准，我控制了从小到大执法的警察所有的思想和标准和行为，甚至它执法的依据的法律，我是立法权。我拥有了世界上看电影、电视剧，你告诉我好莱坞所有的大的媒体平台，哪个不是达沃斯控制的呢？就是你精神上认可对和错的标准由我来制定，我不是洗你脑，我是控制你的脑。洗脑那是，你是漏网之鱼我才洗你，我让你生来之前我就把脑子给你设计好了。
+让我们翻到这份报告的第63页，看看苏格兰公共卫生部门对COVID-19病毒疫苗接种状态的定义吧。
 
-那人类出来说啥话？你看看福建人他会说东北话吗？很难，东北人会说广东话吗？七哥到现在都不会说。你为啥会讲英文？是因为你在美国学习了，你会讲日文吗？你不会。那么最重要的问题，就是你的生存环境，特别是媒体比核武器还厉害，决定是与非、对与错、真与假，我过去干过什么坏事，现在在干什么坏事、未来我想干啥坏事，你谁都不知道，媒体的权力哪个不是达沃斯控制的呢？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-status.jpg)
 
-你从娘胎里边接受的音乐和电影，和爹妈的思想都已经是我的奴隶了；你生下来以后，吃的牛奶、喝的东西、生活的学校、当着警察、选择的职务以及看的媒体、是与非的标准、法律的制定都是我说了算，你还有活的机会吗？
+COVID-19疫苗接种状态的定义：
 
-好，这些都被漏网了，我拥有人类上最强大的军队，你告诉我世界上哪一个生产武器商不是达沃斯控制的？现在人类上75亿人染上病毒了，全人类闭嘴不问病毒哪来的，但是我给你开出了药方，习近平。习近平2019年就给全世界开药方，2016年他就提出来要给全世界也要开药方、把脉，结果全世界得了病毒。你觉得这是偶然吗？
+未接种疫苗：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-你像七哥这样的人老说流水、双修，你说我不好色可能吗？你的语言和行为语言一定是跟你过去的经历有关系的，我要是一太监或者我是什么，我就不会有双修的概念。他这个把脉还有什么开药方，他一定是研究药很多时间了、老开会，他才给世界把脉、开药方，老中医，是吧？
+接种过1针疫苗：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+接种过2针疫苗：指PCR检测COVID-19呈阳性时，接种过2针疫苗，且接种第2针疫苗的时间超过14天。
 
-编辑整理：Jacques；
+接种过3针或加强针疫苗：指PCR检测COVID-19时呈阳性，接种过3针，且接种第3针的日期超过14天。
 
-字幕文件制作：小满；
+很明显，这样的疫苗接种状态定义与正常人的认知差别很大。任何人的常识都是在打完针的下一秒开始，就认为自己已经打了COVID-19疫苗！
 
-视频制作及上传：Cindy；
+这样的定义有什么意义呢？大量打完第1针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在未打疫苗群体内。大量打完第2针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了1针疫苗群体内。大量打完第3针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了2针疫苗群体内。
 
-G-News发布：小满；
+总之，会让统计报告看起来，感染COVID-19病毒的人中，未打疫苗的比实际要多得多！
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+比如，英国卫生部门2022年1月20日发布的每周Covid-19疫苗监测报告（[COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)）第38页，表12，2021年12月26日至2022年1月16日，英国每100,000接种３针或加强针疫苗和未接种疫苗的人群中未经调整的COVID-19 感染率、住院率和死亡率数据：
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12.-Unadjusted-rates-of-COVID-19-infection-hospitalisation-and-death-in-vaccinated-and-unvaccinated-populations..jpg)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+我们注意到，对于30岁以上的人群来说，接种3针疫苗的人群感染率明显比未接种疫苗的人群高。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+但对于18岁以下和18~29岁的人群，接种3针疫苗人群感染率比未接种疫苗人群要低很多。尤其是18岁以下人群，未接种疫苗比接种3针疫苗感染率明显高得多。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+看到这样的报告，很容易被误导去打疫苗，甚至是打3针或加强针。尤其护子心切的家长们，是不是有迫不急待让自己孩子打３针疫苗的冲动呢？
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+千万记住，这是在误导！
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+这样的数据有什么问题呢？
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+在这份报告的第17页，有英国各年龄段人群接种第1针疫苗的时间
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose1.jpg)
+在这份报告的第18页，有英国各年龄段人群接种第2针疫苗的时间
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose2.jpg)
+
+在这份报告的第19页，有英国各年龄段人群接种第3针疫苗的时间
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose3.jpg)
+
+通过这3个图可以看到，英国很多18岁以下的人是在最近才接种1针、2针或3针COVID-19病毒疫苗的。
+
+也就是说，存在很多打完第1针不超过21天的18岁以下的人，被计算到未打疫苗范围内。也存在很多打完3针不超过14天的18岁以下的人，被计算到只打了两针。
+
+如果仅仅是这一种误导，后果可能还远没有到非常严重的地步。
+
+更可怕的是，打完第1针疫苗后感染的人群中，50%左右是在接种完第1针后14天之内感染、住院或死亡的！
+
+接【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
+
+参考数据：
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
+
+[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
+
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
+
+[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+
+[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
