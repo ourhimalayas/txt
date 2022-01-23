@@ -2,52 +2,59 @@
 ---
 
 
-## 一元复始，万象更新
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896171/)
+## 2022 年 1 月 22 日魁北克省蒙特利尔再次发生反对卫生措施的示威活动
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1896231/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/175_copy.jpg)
+2022-01-22
 
-**作者：文护念**
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8J160GPA@EIT_TGFA3M.png)图片来源：LA PRESSE，2022 年 1 月 22日
+## 数百人聚集在蒙特利尔，反对现行卫生措施。
 
-自中共打开潘多拉盒子释放病毒以来，中共病毒（冠状病毒）已经肆虐全球两年之久，染疫人数高达3.46亿，无数的大中小城市已沦为鬼域，人类的生存方式已发生翻天覆地的变化，前有美利坚的福奇之流兴风作浪，后有中共国钟南山之辈助纣为虐。大千世界，芸芸众生，如魑魅魍魎群魔乱舞。我们赖以生存的地球家园何以遭此般痛楚？科技虽日益昌明，但人与人之间的距离却越拉越阔，越走越远。
+##### **LA PRESSE（2022 年 1 月 22日）发表题为《蒙特利尔举行反对卫生措施的示威活动》的文章报道，周六（2022 年 1 月 22 日），数百人聚集在魁北克省蒙特利尔市，反对旨在遏制 COVID-19 传播的现行卫生措施。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/BL7UB_3@486FSJFZ1JYB.png)图片来源：LA PRESSE，2022 年 1 月 22 日
+示威者聚集在皇家山区（Plateau-Mont-Royal）的拉丰丹公园（parc La Fontaine）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2R8EY5AYG04JE5_40.png)图片来源：LA PRESSE，2022 年 1 月 22 日
+示威者的标语牌上写道，”反对一切（现行卫生措施）”、”释放阿马莱加Amalega （阿马莱加Amalega Bitondo 曾经组织过几次示威活动）”，以及，”提倡自然免疫，宵禁杀人”， 等。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E_KGNHYIYCVSX3OG08.png)图片来源：LA PRESSE，2022 年 1 月 22 日
+寒冷并没有减弱这些反对卫生措施的示威者的热情，他们随后冲上街头，向皇家山脚下走去。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/RN0O@1O1UBJJ5A4@UUE.png)图片来源：LA PRESSE，2022 年 1 月 22 日
+## 魁北克在不到两年的时间里实施了 393 天的宵禁
 
-皆因我们大部分人都住在私欲的“信息茧房”，不闻窗外事，总觉得周遭发生的变化，与自己无关，总是事不关己高高挂起。殊不知，邪恶的统治者以一种“随风潜入夜，润物细无声”的温水煮青蛙的方式让大家逐渐适应，进而窥探每个群体的忍耐力，把爆发的临界点扼杀于萌芽的状态，愚民五术运用得“炉火纯青”。
+另外，24heures（2022 年 1 月 20日）发表题为《魁北克，宵禁天数世界冠军？》的文章报道，魁北克省自2020年3月13日以来，总共宵禁天数为393天。自疫情大流行以来魁北克省的宵禁天数是世界上所有国家或地区中最多的地区。换句话说，如果把宵禁天数作为一项奥运项目，魁北克省已经摘取了宵禁天数的金牌
+![](https://assets.gnews.org/wp-content/uploads/2022/01/VMLSY4D2JBBZVOWE9K.png)图片来源：LA PRESSE，2022 年 1 月 22 日
+截止到2022 年 1 月 20 日，星期四，魁北克在不到两年的时间里实施了 393 天的宵禁，这相当于 13 个月的时间。第一次宵禁，持续了三个多月，从2020年3月13日至6月22日，101天。第二次宵禁于2020年10月1日颁布，最初期限为28天，最终将延长至2021年6月28日，即总共271天。最后一次宵禁，持续21天。
 
-心理学有这么一个观点：人质对劫持者会产生一种心理上的依赖感，他们的生死操控在劫持者手里，劫持者让他们活下来，他们会感激不尽，他们与劫持者便是“命运共同体”，把劫持者的前途误当自己的前途，把劫持者的安危视为自己的安危，于是他们会把解救者当成了敌人。人一旦落入无法摆脱的痛苦之中，到了难以承受的地步，就会把这种痛苦当做是自己的幸福，感谢劫持者的“不杀之恩”，会用这种方式来寻求解脱。
+## 不会进一步放宽卫生措施
 
-当每个人习惯了路径依赖，就很难抽身离场，正所谓嗜欲者，逐祸之马也，人一旦成为欲念的奴隶，就永远也解脱不了。在这场世纪大瘟疫当中，普罗大众为自己的懦弱与自私付出了沉重的代价，在雪崩的时候，没有一片雪花是无辜的。
+蒙特利尔日报（2022 年 1 月 20日）发表文章报道，魁北克省省长弗朗索瓦•勒戈（François Legault）周四宣布：我们不会进一步放宽卫生措施。他的政府无法“负担”进一步放松目前实施的卫生措施。
 
-上帝不动情地写了一封《哀的美敦书》给人类，同时，上天有好生之德，亦恩赐给人类中共病毒的解药——青蒿素。但是面对不同的民族，每个人的教育程度大相径庭，每个人的生活方式相异，要他们“贸贸然”去相信冠状病毒是中共制造的生化武器，病毒是手段，疫苗是目的，这并非一朝一夕就能做到的事情。我们普通战友唯一能做的就是各司其职，向身边不同的族群传播真相。无论如何，扼言之，自救者，天救之。
+魁北克省省长弗朗索瓦•勒戈（François Legault）说“我们似乎已经达到住院高峰期 […] 这是个好消息 […] 如果我们保持在这个水平，我们将不需要在医疗卫生健康保健系统中设置 B 计划”。“我要求你们保持谨慎和耐心 […] 我们最终会摆脱困境”， 魁北克省省长弗朗索瓦•勒戈（François Legault）敦促道。 魁北克省省长弗朗索瓦•勒戈（François Legault）还说，尽管住院人数已达到顶峰，但魁北克省仍将在大型企业中推进疫苗护照实施。
 
-[![](https://express.adobe.com/page/059ZeAqcfBXNN/images/e56fe3e1-7869-47e4-b716-b9408071f7d4.jpg?asset_id=020cb9e1-2394-4215-b560-99b271e9ee34&amp;img_etag=%226cbae639ff863066aa46817b664cb7c2%22&amp;size=1024)](https://express.adobe.com/page/059ZeAqcfBXNN/images/e56fe3e1-7869-47e4-b716-b9408071f7d4.jpg?asset_id=020cb9e1-2394-4215-b560-99b271e9ee34&amp;img_etag=%226cbae639ff863066aa46817b664cb7c2%22&amp;size=1024)
+## 安大略省，从 1 月 31日起逐步解除限制
 
-中国人常言“变化”，两字可分言，亦可合言。故周易曰：乾道变化。又言：四时变化，而能久战。宋理学家又言：变化气质。此乃“变化”合言之。《汉书外戚传》言：世俗岁殊，时间变日化。四时之“变”，由于每一日之“化”；在日与日之间，则不觉得其有变。然今日非昨日，明日又非今日，自春至夏。则已渐移而默化矣，故曰“时变日化”，此乃“变化”分言之者。
+与魁北克省相反，安大略省宣布，从 1 月 31日起逐步解除限制，届时餐厅、酒吧、电影院和健身房将能够以 50% 的容量重新开放。
 
-新年伊始，随着美国联邦第五巡回法庭停止疫苗强制令，欧洲各国相率紧跟“变”了，陆续终止了疫苗强制令。毫无疑问，这背后的推动者有正义的良知人以及新中国联邦提供强有力的证据，进而促成这一新局面。那么“化”需要每个人努力去争取，这与每个人都休戚相关，没人可以置身事外。故周易曰：化而裁之存乎变，推而行之存乎通。变通者，趋时者也。期盼被强制打疫苗的群体、受过伤害的人民早日醒过来，去做你们应该做的事情，去找回属于你们的尊严。物有本末，事有终始；物极必反，否极泰来。
+## 英国将取消公共场所强制佩戴口罩和新冠肺炎护照
 
-故曰：天不变，道亦不变。美利坚对于强制疫苗的“变天”，势必在国际舞台掀起波澜，其他西方文明国家对于强制疫苗的政策也会相应发生变化。天地不变，不成施化；阴阳不变，物不畅茂。
+BBC新闻（玛丽-杰克逊和玛丽-奥康纳，BBC，, 2022 年 1 月 19 日）发表题为《新冠肺炎：英国将取消公共场所强制佩戴口罩和新冠肺炎护照》的文章报道，英国首相，鲍里斯·约翰逊（Boris Johnson），宣布，英格兰的 B 计划措施将于下周四（2022 年 1 月 27 日）结束，公共场所强制佩戴口罩和新冠肺炎护照都将被取消。首相还表示，政府将立即放弃对人们在家工作的建议。首相表示，英格兰正在恢复“A 计划”。他告诉国会议员，科学家们认为这一波奥米克戎Omicron疫情已经在全国范围内达到了顶峰（高峰期已经过去）。在唐宁街的新闻发布会上，卫生部长萨吉德-贾维德说, “这是一个我们都可以感到自豪的时刻”。“这提醒我们，当我们共同努力时，我们这个国家就可以取得成就”。但是，他说，这不应该被视为“终点线”，因为无法根除新冠病毒和新冠病毒未来的变种。相反，“我们必须学会与新冠病毒共存，就像我们与流感共存一样”。他敦促人们继续采取措施阻止病毒传播，包括洗手、通风和自我隔离（如果呈阳性），并敦促那些未接种疫苗的人挺身而出接受疫苗接种。口罩将不再是强制性的，但仍建议人们在封闭或拥挤的空间以及与陌生人见面时佩戴口罩。从周四（2022 年 1 月 27 日）开始，中学生将不再需要在教室里戴口罩，政府关于在公共区域使用口罩的措施“很快”会被取消。英国首相，鲍里斯·约翰逊（Boris Johnson），补充说，预计未来几天将进一步宣布放宽旅行规则和限制英格兰的养老院探访。
 
-春夏秋冬四季像在变，但气象本体并不变；生老病死四态像在变，但其背后之灵魂本体并未变。人身只落在现象界，灵魂始是其本体。万物之有生无生，都只是现象，只有天地大自然始是其本体。大方乃是本体，一曲只是现象。“变”只变其现象，变此一曲；若论本体，只有“化”，并无变。对于笔者而言，唯一不变的是对自然的敬畏，对生命的尊重，对弱者的同情，对诺言的遵守，对正义的捍卫，对是非的分明。各位手足要心怀信念，深信此番墓碑文明过后，人类必定掀开新篇章，进入新纪元，一元复始，万象更新。
+**参考资料**：
 
-[![](https://express.adobe.com/page/059ZeAqcfBXNN/images/d6416766-c72f-44c0-bc5d-7f0a6deedd9d.jpg?asset_id=e7f4e770-a122-4a78-bea7-04cb6549f473&amp;img_etag=%225fc1b6bba6ce06b00a4c3f256bccb23a%22&amp;size=1024)](https://express.adobe.com/page/059ZeAqcfBXNN/images/d6416766-c72f-44c0-bc5d-7f0a6deedd9d.jpg?asset_id=e7f4e770-a122-4a78-bea7-04cb6549f473&amp;img_etag=%225fc1b6bba6ce06b00a4c3f256bccb23a%22&amp;size=1024)
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对：穆清| 审核：仙女儿-文善|Page：小六月*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+1. LA PRESSE，2022 年 1 月 22，LA PRESSE，Manifestation contre les mesures sanitaires à Montréal，[https://www.lapresse.ca/actualites/grand-montreal/2022-01-22/manifestation-contre-les-mesures-sanitaires-a-montreal.php](https://www.lapresse.ca/actualites/grand-montreal/2022-01-22/manifestation-contre-les-mesures-sanitaires-a-montreal.php)
+2. 蒙特利尔日报，2022 年 1 月 20，Le Journal De Montreal，COVID-19 au Québec: pas de nouveaux assouplissements des mesures sanitaires，[https://www.journaldemontreal.com/2022/01/20/en-directcovid-19-francois-legault-fait-le-point-sur-levolution-de-la-pandemie](https://www.journaldemontreal.com/2022/01/20/en-directcovid-19-francois-legault-fait-le-point-sur-levolution-de-la-pandemie)
+3. 蒙特利尔日报，2022 年 1 月 20，Le Journal De Montreal，Mesures sanitaires: beaucoup de pression sur le PM，[https://www.journaldemontreal.com/2022/01/20/en-directcovid-19-francois-legault-fait-le-point-sur-levolution-de-la-pandemie](https://www.journaldemontreal.com/2022/01/20/en-directcovid-19-francois-legault-fait-le-point-sur-levolution-de-la-pandemie)
+4. 24heures，2022 年 1 月 20日，Le Québec, champion mondial du confinement? [https://www.24heures.ca/2022/01/20/le-quebec-champion-mondial-du-confinement](https://www.24heures.ca/2022/01/20/le-quebec-champion-mondial-du-confinement)
+5. BBC新闻，2022 年 1 月 19 日，玛丽-杰克逊和玛丽-奥康纳Marie Jackson & Mary O’Connor，BBC News，Covid: Face mask rules and Covid passes to end in England，[https://www.bbc.com/news/uk-60047438](https://www.bbc.com/news/uk-60047438)
 
 
+编辑：LILY
+发布：肥鯮
+校对：
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

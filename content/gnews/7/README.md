@@ -2,30 +2,31 @@
 ---
 
 
-## 美国ESPN不会派遣新闻人员参加北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1896556/)
+## 可口可乐赞助北京冬奥会遭批
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896604/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，美国娱乐与体育节目电视网ESPN在其官方网站上发布声明表示，由于对中共病毒及其相关限制的担忧，ESPN将不会向中共北京冬奥会派遣任何新闻人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-22-下午9.23.51.png)
-该网站的制作执行副总裁兼执行编辑威廉姆森在声明中强调，随着中共病毒持续在全球范围内肆虐，加之此次冬奥会现场由于病毒和其他相关因素所导致的诸多限制措施，这些都让现场报道变得非常具有挑战性。此外，员工的安全对于ESPN而言至关重要，因此，该公司认为，减少员工奔波是最好的决定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-34.jpg)可口可乐赞助北京冬奥会遭批 网络图片
+据俄罗斯卫星通讯社1月23 日暨《华盛顿时报》报道，监督组织“媒介准确”发起了一项活动，在可口可乐公司总部前放了一块牌子写着：“为什么可口可乐赞助种族灭绝？”
 
-参考链接：[Due to COVID Concerns, ESPN Will Not Staff Winter Olympics in China](https://www.espnfrontrow.com/2022/01/due-to-covid-concerns-espn-will-not-staff-winter-olympics-in-china/)
+中共国非法剥夺了香港的自由；威胁台湾；在西藏践踏人权；在新疆实施种族灭绝；中共国制造了COVID-19新冠病毒并把它扩散到全世界，造成前所未有的大灾难。可口可乐对中共这些侵犯人权和反人类的行为完全保持沉默，通过赞助北京冬奥会，表达对中共国的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+北京冬奥会是独裁者的个人秀，是种族灭绝运动会，各个国家和政府纷纷谴责，并外交抵制。可口可乐充当中共走狗的行为，既不可口，也不可乐。
 
-总编：飞虹
-编辑：DM
-校正/发稿：呼吸的雾霾（文小呼吸）
+新闻参考链接：[https://sputniknews.cn/20220122/–1037234891.html](https://sputniknews.cn/20220122/--1037234891.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

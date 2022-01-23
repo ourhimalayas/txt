@@ -2,33 +2,41 @@
 ---
 
 
-## 世卫组织建议各国取消COVID旅行禁令
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1896489/)
+## 美国将加强芯片投资 以增强对华竞争力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896523/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/334478b7f3b140998e8713ad4cb8d257.jpeg)图片来源：CGTN
-根据《VOA》1月20日报道，世界卫生组织本周建议各国取消或放宽现有的与COVID-19有关的旅行限制，称这些限制可能加剧与该大流行病有关的经济和社会压力。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-这项新建议是世卫组织国际卫生条例应急委员会在最近一次会议后于周三提出的。报告说，各国应该取消禁令和限制，因为委员会发现 “这些措施没有提供附加值，并继续助长公民所经历的经济和社会压力”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/拳头.png)
 
-报告称，旅行限制未能限制引起COVID-19的病毒的omicron变体的国际传播，这表明这种措施随着时间的推移是无效的。
-
-报告接着说，其他旅行安全措施，如戴口罩、测试、隔离,检疫和疫苗接种，应以风险评估为基础，以避免给国际旅行者带来过多的经济负担。
-
-与此同时，世卫组织本周推荐了两种治疗COVID-19的新药。
-
-第一种药物，即巴立替尼(baricitinib)，强烈建议用于严重或危重的COVID-19患者。这种药物是口服的，通常用于治疗类风湿性关节炎。世卫组织建议将其与皮质类固醇一起使用。
-
-世卫组织也有条件地推荐使用单克隆抗体药物索特罗维(sotrovimab)单抗来治疗住院风险高的轻度或中度COVID-19患者。包括年龄较大、免疫力低下、有糖尿病、高血压和肥胖症等基础疾病的患者，以及未接种疫苗的患者。
-
-对于COVID传播，WHO指出旅行限制无效，但并未指出疫苗无效, 也未推荐伊维菌素等物美价廉的有效药物。
-
-原文链接：
-[https://www.voanews.com/a/who-recommends-nations-lift-or-ease-covid-19-related-travel-bans/6405130.html](https://www.voanews.com/a/who-recommends-nations-lift-or-ease-covid-19-related-travel-bans/6405130.html)
-
-编辑，发稿 Spirit
+图片来源：雅典娜设计组
 
 
+**整理：Eileen（围剿维尼熊）**
+**编辑：朝花夕拾**
+
+据路透社报道：1月21日美国众议院议长佩洛希(Nancy Pelosi)表示，美国众议院将提出一项法案，以提高美国对中国的竞争力，并增加在半导体方面的支出。拜登政府正寻求增加国内芯片生产。
+
+几个小时前，英特尔宣布，将向俄亥俄州的两家新的芯片制造厂投资逾200亿美元，这是一个可能在未来几年受益于联邦资金的大型制造项目。
+
+拜登政府正努力说服国会批准提供资金，帮助美国的芯片生产。目前，用于汽车和电脑的关键零部件的短缺加剧了供应链瓶颈问题。
+
+美国参议院去年通过了《美国创新与竞争法案》，其中包括520亿美元用于增加美国半导体生产，并授权1,900亿美元用于加强美国的技术和研究。
+
+拜登之前表示，通胀飙升与供应链密切相关，美国必须有自力更生生产汽车所需的电脑芯片的能力。
+
+参考链接：
+
+[https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932)
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
