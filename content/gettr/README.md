@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/23/2022 4:12 PM (UTC)`
+
+1月23号：邪恶的共产党再也不会．回到还想干什么，就干什么的，那个时代了！共产党．正在以光的速度走向死亡。【塞浦路斯法官因技术问题保释中国二人组 】Another article from the biggest newspaper in Cyprus: <br/><br/>https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality
+
+---
+
 `@miles 1/23/2022 3:04 PM (UTC)`
 
 1月23号：在欧洲议会上．震聋发聩的声音．和有良知人的正义的力量．最终会战胜邪恶的！这个视频我看了很多遍！谋杀就是谋杀．谋杀就是谋杀……那些没有受过高等教育和专业医疗教育的人，怎么会知道疫苗是没有经过验证和充分的科学证明的谋杀人的生化武器呢？这说的太好了，问的太好了．新中国联邦朋友无处不在……力量无处不在，我们将改变这个世界上无处不在的黑暗势力……
@@ -156,13 +162,6 @@ EP6: The Truth. Let's tear down the monstrous lies of this despicable #HBO #VICE
 
 1/21/2022 Miles Guo: Why is the New Federal State of China going to sign the “One Thousand Year Peace Treaty” with the world? Why is the statement made by Sharif a huge insult to the Chinese people? Yang Jiechi, Wang Yi, Wang Huning, Wang Qishan, Tang Jiaxuan, and Li Zhaoxing are more vicious than Zhao Gao and Li Si (evil officials under the Qin Shi Huang emperor in ancient China).<br/><br/>1/21/2022 文贵直播：新中国联邦为什么要和世界签千年和平协议？为什么谢里夫的讲话是对中国人巨大的羞辱？杨洁篪、王毅、王沪宁、王岐山、唐家璇、李肇星比赵高、李斯还要坏！<br/>
 ![img](https://media.gettr.com/group49/getter/2022/01/22/04/4f3a82f8-8951-816e-f97c-e8a6b9e196ca/out.jpg)
-
----
-
-`@miles 1/22/2022 4:05 AM (UTC)`
-
-1/21/2022 Miles Guo: The CCP’s bribing various state leaders harms the Chinese people in the name of the country. Pakistan is one of the places for the CCP to kill people, and conducting drug trafficking, smuggling, human trafficking, organ transplants, and money laundering. What are the consequences of colluding with the CCP? You can find it out just by looking at today’s Venezuela, Afghanistan, and Kazakhstan!<br/><br/>1/21/2022 文贵直播：中共行贿各国元首是以国家的名义伤害中国人；巴基斯坦是中共杀人、贩毒、走私、贩卖人口、器官移植、洗钱最关键的地方之一；跟着中共有什么后果？看看现在的委内瑞拉、阿富汗、哈萨克斯坦就知道了！<br/>
-![img](https://media.gettr.com/group20/getter/2022/01/22/04/7d5f096d-23c7-40ec-09c4-3d15f3dd87fd/out.jpg)
 
 ---
 

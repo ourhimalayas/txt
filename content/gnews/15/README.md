@@ -2,33 +2,34 @@
 ---
 
 
-## 班农先生说：我们一定要解放中国人民！
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898675/)
+## 加拿大阿省500名未接种医护人员重返岗位
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898768/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生说：我们一定要解放中国人民！-1.jpg)
-拜登政府当中的激进分子，他们说：我们把人权放在一边，我们把所有维吾尔族的问题放在一边，所有的宗教、天主教徒、基督教徒，佛教徒问题放到 一边。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒1月20日报道，加拿大艾伯塔省卫生局表示，在该省1400名未接种过中共病毒疫苗的医护人员中，有500人在选择接受定期核酸检测之后，正在重返医院和其它医疗机构的工作岗位。
 
-这个政权根本不在乎中国的空气有多么的差。我特别的荣幸，我就是 处在反对全球主义的这个战争当中。其实中国共产党是中心点，我们要记住 这一点：整个全球主义经济完全是建立在中国老百姓的这个肩膀上，我们要 解救他们，我们要把中国老百姓解救出来、解放出来，他们就垮掉了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10.jpeg)
 
-我们 一定要解放所有的中国的人民。现在我们已经看到了，他们奴役人民，用了 全球经济的这种方式，西方的整个的经济机构都是和他们勾结，我们就是反对他们。拜登政府、司法部他们恨我吗？
+该省卫生局表示：奥密克戎感染病例的激增，使得整个医疗系统人手短缺越来越严重。虽然通过招聘填补空缺来应对人员配置的挑战，但仍然不能满足正常运转。由于长期从事医疗护理的专业人员在工作安置上享有优先权，因此欢迎更多未接种过中共病毒疫苗的人士，在接受检测的前提条件下回到工作岗位上。
 
-其实华尔街要比他们更加恨我10倍, 我知道他们是邪恶，而我们都是好人！
+与此同时，该省雇员工会副主席邦妮·戈斯托拉说，这些检测的费用，不应该由重返工作的医护人员承担。雇员工会也已经代表那些认为疫苗接种及核酸测试政策不公平的员工，向该省卫生局提出了数百份申诉。
 
-发布：于white
+参考链接： [500 unvaccinated AHS staff back to work after opting into testing program](https://www.cbc.ca/news/canada/calgary/unvaccinated-ahs-staff-1.6321139?cmp=rss)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+总编：Zion文恩
+编辑：Delilah小胖
+校正/发稿：谐趣园
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
