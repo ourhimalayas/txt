@@ -2,34 +2,31 @@
 ---
 
 
-## 传统加密货币价格暴跌，千亿美元蒸发
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898704/)
+## 丹麦报纸为盲目给政府新冠言论背书而道歉
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1898712/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日外媒报道，数字货币市场主要加密数字货币价格下跌，其中最流行和最知名的数字货币：比特币的价格跌破40,000 美元，下跌约 10%，以太坊下跌约 13%。加密数字货币市场损失达 1500 亿美元。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1..jpg)
+图片来源：Extra Bladet
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-4.jpeg)
+一家丹麦主流报纸《Ekstra Bladet》1月7号为之前 “催眠式 “地、不加怀疑地追随政府对冠状病毒的叙述而向其读者公开道歉。
 
-此前有消息称，俄罗斯中央银行提议在该国禁止加密货币。由于该国是世界第三大加密货币开采地区，所以，俄罗斯的数字货币政策的变化，对靠采矿生产的数字货币，比如说——比特币等，有重大的影响。
+Ekstra Bladet的标题是：”我们失败了”，该报编辑部在其中写道：”近两年来，作为媒体和民众，我们几乎被当局每天的冠状病毒数字催眠了”。 文章指责政客和当局在大流行的各个方面“撒谎”，导致这些机构失去公众信任，并指出卫生当局也大大夸大了疫苗结束大流行的功效。 该文质疑丹麦对儿童进行的大规模疫苗接种，而瑞典或挪威均还没有这样做过。
 
-但对不依赖采矿的数字货币，就没有什么影响力了。相比之下，喜马拉雅交易所的HCoin在最近24小时内，价格只有0.7%的小幅波动。以黄金为锚的HCoin，未来会成为数字货币市场中最具价值的数字货币。
+作为媒体，本应该对政府保持警觉和监督，而媒体却失职了。文章说，官方公布的住院人数比医院实际住院人数高出 27%，而有多少人死于新冠病毒的数据早应该被公布，当局本应该“负责及时、准确和诚实地告知民众”。
 
-参考链接：[Crypto prices nosedive, wiping out billions in value](https://thehill.com/policy/technology/590824-crypto-crashes-wiping-out-billions-in-value)
+“疫苗一直被称为我们的‘超级武器’。我们的医院被称为‘超级医院’，”编辑写道。 “这些超级医院显然受到了最大的压力，尽管几乎所有人员都配备了超级武器。甚至儿童也大规模接种了疫苗，这在我们的邻国还没有做。” 编辑嘲讽说，当局与民众的沟通绝对配不上“超级”一词。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+公开道歉是欧洲媒体日益增长的趋势，媒体已开始质疑政府的叙述和反应。例如，德国顶级报纸之一的《图片报》就去年 8 月对新冠病毒的恐慌发表了道歉，当时该报声称孩子们“会谋杀他们的祖母”。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+《图片报》主编 Julian Reichelt 说，“对于我们的社会对这个国家的数百万儿童负责，我想在这里表达我们的政府和总理都不敢告诉你们的话， 我们请求您原谅我们，我们的这些政策让孩子们成为暴力、忽视、孤立和孤独的受害者。我们曾经说服我们的孩子，说如果他们敢于做他们自己，他们会谋杀他们的祖母，或者他们的朋友。而我们说这些都没有得到科学证明。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+来源链接
+
+[Extra Bladet](https://ekstrabladet.dk/nyheder/lederen/vi-fejlede/9072013)
+
+[‘WE FAILED!”](https://gellerreport.com/2022/01/we-failed-denmarks-largest-newspaper-apologizes-for-mindlessly-parroting-government-narrative.html/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

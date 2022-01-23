@@ -66,68 +66,68 @@
 ### [一线护士揭露德国疫苗灾难（四）](/content/gnews/17/README.md)
  ` HA-Multilingual澳喜农场多语组`
 
-### [班农先生谈天安门事件谈科罗拉多一位勇敢的母亲](/content/gnews/18/README.md)
+### [G-EDU｜一朵最特别的教育的蓝莲花——G-EDU上线庆典直播同步文字](/content/gnews/18/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [班农先生谈天安门事件谈科罗拉多一位勇敢的母亲](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [2022/01/23 英喜时事速递](/content/gnews/19/README.md)
+### [2022/01/23 英喜时事速递](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）](/content/gnews/20/README.md)
+### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [达沃斯党与共产党一脉相承搞神秘主义反人类统治全人类](/content/gnews/21/README.md)
+### [达沃斯党与共产党一脉相承搞神秘主义反人类统治全人类](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [MV版Hcoin To the Moon上线46天第32次位列澳门iTunes热门MV榜首](/content/gnews/22/README.md)
+### [MV版Hcoin To the Moon上线46天第32次位列澳门iTunes热门MV榜首](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美联储或将与喜联储合作全面使用喜币](/content/gnews/23/README.md)
+### [美联储或将与喜联储合作全面使用喜币](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [克罗地亚不允许医生帮助他们的病人！](/content/gnews/24/README.md)
+### [克罗地亚不允许医生帮助他们的病人！](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [爆料革命要把达沃斯的家天下皇权天下上帝天下变为民天下](/content/gnews/25/README.md)
+### [爆料革命要把达沃斯的家天下皇权天下上帝天下变为民天下](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](/content/gnews/26/README.md)
+### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大阿省500名未接种医护人员重返岗位](/content/gnews/27/README.md)
+### [加拿大阿省500名未接种医护人员重返岗位](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [山东聊城公开招募中共病毒新疫苗试验者](/content/gnews/28/README.md)
+### [山东聊城公开招募中共病毒新疫苗试验者](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [班农先生谈背叛](/content/gnews/29/README.md)
+### [班农先生谈背叛](/content/gnews/30/README.md)
  ` 雅典娜GNotes`
 
-### [丹麦报纸为盲目给政府新冠言论背书而道歉](/content/gnews/30/README.md)
+### [丹麦报纸为盲目给政府新冠言论背书而道歉](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [传统加密货币价格暴跌，千亿美元蒸发](/content/gnews/31/README.md)
+### [传统加密货币价格暴跌，千亿美元蒸发](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [有声|中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/32/README.md)
+### [有声|中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声|接种疫苗后的可怕后遗症](/content/gnews/33/README.md)
+### [有声|接种疫苗后的可怕后遗症](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [骗取喜币是犯罪行为](/content/gnews/34/README.md)
+### [骗取喜币是犯罪行为](/content/gnews/35/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声|谈谈看到七哥童年照片时的感想](/content/gnews/35/README.md)
+### [有声|谈谈看到七哥童年照片时的感想](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [过去和现在的七哥，不同的脸庞一样的灵魂！](/content/gnews/36/README.md)
+### [过去和现在的七哥，不同的脸庞一样的灵魂！](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略](/content/gnews/37/README.md)
+### [英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [未接种疫苗的人导致了大瘟疫，英格兰的数据并不支持这点](/content/gnews/38/README.md)
- ` DC政经`
 
 ### [IMF主席称中共清零政策已成世界经济负担](/content/gnews/39/README.md)
  ` GTV新闻访谈`
