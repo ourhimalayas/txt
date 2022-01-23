@@ -2,11 +2,11 @@
 ---
 
 
-## 习对王歧山霸占的金融界的异像早有察觉
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1896073/)
+## 七哥全世界第一个亚洲房地产信托
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1896110/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
-图片来源：雅典娜设计组
+“文贵大直播精选视频”
 
 ```
 发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台

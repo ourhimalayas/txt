@@ -2,14 +2,30 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月21日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895959/)
+## 有声|灭共者之郭氏情报站（十四）2022/01/20 文贵大直播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895991/)
 
 配音：香草山农场 – 纳米
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0121text-SC-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月21日晚](https://gnews.org/zh-hans/1892113/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+**灭共者-郭氏情报站**
+
+**2022年1月20日 本内容根据郭文贵先生GETTR直播提炼总结**
+
+❖ 普京到北京冬奥会展示一下存在感，就要带走1000多亿美元。
+
+❖ 中共要发射200多万枚火箭造雪弹，营造瑞雪照冬奥的盛世景观。
+
+❖ 新版人民币很快就会发行。现在持有大量现金将来变废纸的概率极高。
+
+❖ 中共房地产税的到来，又是一次大洗劫。
+
+❖ 冬奥会之后，中国经济会崩塌。
+
+❖ 美欧一定溯源冠状病毒！
+
+文字版原文：[灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](https://gnews.org/zh-hans/1891566/)
 
 音频处理：Tom Li
 发稿：Tom Li
