@@ -2,88 +2,59 @@
 ---
 
 
-## 全球疫情更新（官方报告的数据证明疫苗令疫情恶化）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897747/)
+## 美国及世界疫情简报 （01-22-2022）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1897785/)
 
-**整理/编辑：枳实**
+整理：波士顿五月花 老枪6
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01-1.jpg)
+**1．美国疫情**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1827.png)图片：雅典娜农场设计组 精灵蓝
+昨日美国新增新冠患者645,429人.总确诊人数为69,329,860人。新增死亡人数2,479人。总死亡 860,989人。
 
+康州新增新冠感染4,805人，新增死亡13人。
 
-雅典娜疫情更新（2022年 1月23日）
+纽约州新增新冠确诊人数30,075人。新增死亡人数201人。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+新泽西州昨天新增病例为12,074人。新增死亡为161人。
 
-**一，全球疫情基本数据**
+马萨诸塞州新增新冠患者为16,385人, 死亡87人。
 
-感染总数：348,161,862（日新增3,128,314，14天增幅+35%）
+马里兰州昨日新增新冠患者8,897人。新增死亡人数为70人。
 
-死亡总数：5,589,066（日新增7,641人，14天增幅 +19%）
+加州昨日新增68,979人，死亡206人。得克萨斯州新增46,415人，死亡为183人。佛罗里达州新45,668人，死亡0人。亚利桑那州新增17,724人，死亡为13人。乔治亚州新增22,684人，死亡134人。北卡罗来纳新增29,580人，死亡71人。
 
-**二，全球“疫苗”毒针统计数据**
+**2.世界疫情**
 
-“疫苗”毒针注射总数：98.5亿
+1） 亚洲疫情：
 
-完全“接种”：40.9亿人
+昨日印度新增新冠患者347,254人；日本新增45,997人；印尼新增2,116人；菲律宾新增30,853人；孟加拉新增10,888人。土耳其新增71,843人。台湾昨日新增36, 韩国昨日新增6,766人, 中国新增100人（中共发布的数字只作参考）。
 
-完全“接种”百分比：52.4 %
+2）非洲疫情：
 
-**三，澳洲疫情和“疫苗”数据**
+南非昨日新增新冠患者8,282人。埃塞俄比亚新增643人。摩洛哥新增9,061人。
 
-感染总数：2,197,108（今日新增48,981人）
+3）拉美疫情：
 
-死亡总数：3,121人（今日新增 58人）
+巴西昨日新增新冠患者169,786人；哥伦比亚新增30,506人。阿根廷新增129,709人。智利新增13,864人。墨西哥新增\_人。
 
-每万人感染人数：851.8891人
+4）欧洲疫情
 
-“疫苗”毒针注射总数：47,934,083 （日新增191,876 针）
+俄罗斯昨日新增新冠患者38,508人。德国新增140,870人。法国新增 427,315人。英国新增108,124人。意大利新增198,865人。西班牙新增157,447人。
 
-完全“接种”：19,164,031人
+5）全球新冠总感染人数为345,975,189人。总死亡人数为5,584,189人。
 
-第二针“接种”百分比：78.2%
+**3.新闻简报**
 
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+1。Omicron 的新变体 BA.2 已经开始在一些欧洲国家超过 Omicron 的原始菌株，引发人们担心，它将导致世界各地的病例数更高。 英国卫生安全局刚刚将 BA.2 指定为“正在调查的变体”，这基本上意味着我们知道它存在，但我们还不确定它会有多危险。
+2。周四下午ESPN(娱乐体育节目网)发表声明，宣布其新闻人员将不会在中国观看冬奥会。 ESPN 在 COVID-19 和其他与 COVID 相关的限制条件下做出了这一决定。
+3。康涅狄格州纽黑文 (WTNH) — 耶鲁大学的研究人员表示，在 COVID 病例方面，我们正朝着正确的方向前进，而且证据就在废水中。废水中的 COVID 水平与社区中的感染量之间存在直接联系。研究人员正在研究从该州一些最大城市的污水处理厂采集的样本，包括纽黑文、哈特福德、沃特伯里和新伦敦。目前，该病毒比他们在 1 月初看到的要低四到五倍。
+4。澳大利亚国立大学国王学院的研究人员发现，吸入一个疗程的肝素后，70% 的患者呼吸和氧气水平有所改善。 肝素是独一无二的，因为它具有抗病毒、抗炎和抗凝血作用，被认为与 COVID-19 患者的治疗相关。
+5。2022 年 1 月 19 日，由于 Omicron 变体，南非的冠状病毒病例激增，而后一样急剧下降，第四波疫情现在被认为已“结束”。
+6。世界心脏联合会表示，任何程度的饮酒都可能导致健康生活的损失，其试图否定每天一杯葡萄酒可能对你有好处的想法。
 
-16岁以上人口接种至少两剂疫苗的比例：92.9%
+* * *
 
-**四，疫情新闻摘要**
-
-[英国企业拒绝强制员工接种疫苗。](https://www.theguardian.com/law/2022/jan/22/uk-firms-weigh-risks-of-forcing-their-staff-to-get-coronavirus-jabs)
-
-在英国，大多数私营企业都对强制员工接种疫苗持否定态度。就业律师和工会警告称，要求员工接种疫苗的企业——所谓的“不打针，不工作”政策——是一个道德雷区，在法律上也存在争议。只有例如Next、Ikea 和 Ocado 等公司高高在上，他们改變了他們的公司疾病政策，削减了未接种疫苗工人的病假工资。儘管如此，絕大多數英國雇主已經表明他們不願意在員工中強制接種疫苗。
-
-[著名橄榄球队主力前鋒傑克達林成为西澳第一个拒絕接種中共病毒疫苗的球员。](https://thewest.com.au/sport/west-coast-eagles/west-coast-eagles-forward-jack-darling-barred-from-club-after-refusing-covid-19-vaccination-c-5390801)
-
-以亲共著称，谨慎避免批评中共在香港和新疆的暴行的西澳州长麥高恩评论说，“為此放棄你的足球生涯，我認為這不是一個明智的決定”。 卡尔顿的利亚姆·琼斯（Liam Jones）在选择不接种疫苗后退役，北墨尔本的杰德·安德森也没有在阿登街训练。
-
-**五.数据分析**
-
-今天继续介绍[《疫情编年史》](https://eugyppius.substack.com/)的这[篇文章](https://eugyppius.substack.com/p/unboostered-brits-infected-and-dying)的精彩部分。下面这个图表来源于[蘇格蘭公共衛生部的數據](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)。zhe
-![](https://assets.gnews.org/wp-content/uploads/2022/01/N1RUBM18AATFK0YVPE1F.png)
-这个图表显示了苏格兰公共卫生部的数据中去年12月和今年1月的两个星期中的病例中未接种疫苗（绿色），一剂疫苗（黄色），两剂疫苗（橙色），三剂疫苗（红色）的每十万人口的感染病例数字。从这个图表看出，这四个星期，无论疫情如何，未注射疫苗的病例数都更低，病例数最高的就是注射2针的人群。
-
-这个图表简直就是在嘲笑这些所谓的疫苗，越打病例数越多。这个数据也与[我们之前提到](https://gnews.org/zh-hans/1817504/)的[丹麦研究](https://t.co/A8gp5cTnYR)相符合：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/252Y6_KZXXP0RXU5P.png)
-也就是说，英国，爱尔兰，丹麦的数据都表明，在奥米克戎毒株面前，接种疫苗反而导致人们更容易感染。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑 /发布：吐纳*
 
  
 

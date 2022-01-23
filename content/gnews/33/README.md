@@ -2,10 +2,10 @@
 ---
 
 
-## 网友吐槽哈尔滨防疫形同虚设，发视频却被威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1897523/)
+## 中共病毒对接受了3剂疫苗的受众影响最大
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1897527/)
 
-01/14/2022 网友吐槽哈尔滨防疫形同虚设，只要花钱做核酸测试，不用等报告出来就可以进市区，而花钱做的检测却没有报告，他的视频上热搜却被威胁删贴。
+01/13/2022 意大利国家卫生研究院的传染病主任Anna Teresa Palamara教授：中共病毒对接受了3剂疫苗的受众影响最大。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

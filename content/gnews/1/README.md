@@ -2,42 +2,46 @@
 ---
 
 
-## 一些西方富裕国家可能很快就会放弃疫苗护照
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1898063/)
+## 不了解达沃斯党就不会知道让你终生劳作而不富裕的原因
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898104/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+G-TV视频链接：[https://gtv.org/video/id=61ecf09087664c47acd8ad14](https://gtv.org/video/id=61ecf09087664c47acd8ad14)
 
-整理报道：文扬
-编辑：文泓
+**郭文贵先生**：我们今天谈的这些话题呢，很多战友们包括我们绝大多数战友们认为达沃斯跟我没关系。是吧，我们为啥要提前说，把这个说细一点儿。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/11O54SJALJZS0EI6T8U.png)图片来源：The Local Switzerland
+就是这个最简单的思想——达沃斯和我没关系，就让你成为永远的达沃斯的奴隶。什么是达沃斯知道吗，就是在你村儿里边儿活着的时候，你村里边儿生产队长和会计，最多带一个武装部长。它是一个村儿里边儿，财务、政治、安全力量的结合。
 
+到了世界的时候，达沃斯就是决定，记住啊，记住，记住啊，记住，我说这话。达沃斯刚才那几千人，不是拥有世界1%的人拥有全人类99%的财富。记住，它连世界上0.001%（人口）都没有，它只是实际上不到一千人，没有几千人。
 
-当地时间1月23日，据RT电视台报道，瑞士卫生部长阿兰·贝尔塞特表示，该国正朝着正确的方向前进，同时警告称，新冠病毒可能是“不可预测的”。
+这个到场的1000人里边儿年可能包含谁，达沃斯论坛。你见过日本的几家大富豪去过，你见过几个香港大富豪参加过，你们一定要知道谁是达沃斯啊。否则你不知道中国人被奴役的这几十年，让你一直睡在东北那炕上，让你一直睡在山东的城墙里，让你一辈子都在辛苦地打工。你都不知道为什么活来的这个世界的，就是达沃斯这帮孙子干的。为什么，它是0.001%，全世界75亿人口，现在，过去七十年生生死死几百亿人口，加在一起1000人现在。是多少比例呀，多少比例。
 
-阿兰·贝尔塞特指出，正在这个阿尔卑斯山国家存有争议的使用新冠疫苗证书制度（疫苗护照）可能很快就会结束，因为公共卫生（体系）对这一流行病的反应，似乎“走上了正确的轨道”。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-疫苗护照——表明一个人是否接种过疫苗，接受过检测或从冠状病毒中恢复过来，并决定是否能够进入公共场所，自2021年7月以来一直在使用。但贝尔塞特部长周六建议，现在可能是到了取消该系统的时候。
+编辑整理：Jacques；
 
-他告诉瑞士周末报，“疫苗护照制度几乎接近结束了”，瑞士看起来处于正确的轨道上。
+字幕文件制作：小满；
 
-在过去的一年里，一些城市因疫苗护照和其他各种限制而爆发了抗议活动。
+视频制作及上传：Cindy；
 
-自12月20日以来，只有那些接种了新冠疫苗或从感染中恢复的人被允许进入餐馆、文化、体育和休闲场所以及参加室内活动。此外，如果有哪怕一个16岁及以上的人不具备自然或疫苗获得的免疫水平，私人聚会将被限制在10人以内。
+G-News发布：小满；
 
-上周三，政府宣布将隔离和强制性在家工作规则延长至2月底。它还概述了在该国抗击第五波大流行之际将其他限制措施保持到3月的暂定计划。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-尽管周五24小时内报告了近38,000例新病例，但贝尔塞特部长周六表示，如果未来几周情况有所改善，政府可以“将强制在家工作的命令转变为建议，并结束隔离制度”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-新闻链接： [Covid certificates could soon be dropped by wealthy nation — RT World News](https://www.rt.com/news/546856-swiss-health-minister-covid-certificates/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-发布：*tianzhihuan*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
