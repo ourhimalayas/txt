@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月20日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896616/)
+## 有声|区块链和加密货币将带领人类进入下一个未来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896617/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0120text-SC.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒记者文章，新技术的演变、金融创新和数字货币的戏剧性变化，正在改变人类使用货币的方式。
 
+由于新冠病毒的大流行，金融变成一种纯粹的线上体验，目前人类正处于一种新金融形式的悬崖边，它将使用一系列技术来改变我们使用和管理货币。区块链和加密货币正在改变人们的货币观念，并挑战监管机构。
 
-文字版原文：[GTV新闻访谈简报|2022年1月20日晚](https://gnews.org/zh-hans/1887247/)
+目前加密货币存在的问题是因不受监管而沦为洗钱、违法犯罪行动和规避资本管制的手段。
+
+文字版原文：[区块链和加密货币将带领人类进入下一个未来](https://gnews.org/zh-hans/1886809/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

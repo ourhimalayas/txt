@@ -2,27 +2,46 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月21日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896620/)
+## 英国外交大臣警告，中共和俄罗斯的威胁已经波及全球
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896642/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-20.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1832.png)周五，英国外交大臣玛丽斯·佩恩 (Marise Payne) 与英国外交大臣丽兹·特拉斯 (Liz Truss) 和国防部长本·华莱士 (Ben Wallace) 在基里比利大厦 (Kirribilli House)。
+来自澳大利亚《世纪报》2022年01月21日的报道，英国和澳大利亚已同意深化其经济、安全和技术合作，以应对来自中共和俄罗斯日益增长的威胁。
+英国外交大臣莉兹·特拉斯(Liz Truss)警告包括澳大利亚在内的全球伙伴，关于迫切需要共同努力应对来自两国的全球威胁，这两个国家正享受着70年来最紧密的关系。她说，中共国和俄罗斯已经变得胆大妄为，这是自冷战以来前所未有的，并警告说，如果俄罗斯入侵乌克兰，就有可能陷入一个“泥潭”。
+特拉斯女士说，与澳大利亚建立更紧密的国防、技术和经济联系，将有助于英国打击来自俄罗斯和中共国的“恶意活动”。
+她在悉尼洛伊研究所(Lowy Institute)智库的一次演讲中说：“对自由、民主和法治的威胁不仅仅是区域性的，它们是全球性的。这就是为什么我们必须共同应对。”
+“俄罗斯和中共国正在越来越多地合作，它们努力制定人工智能等技术的标准，通过联合军事演习和在太空领域的合作来宣扬它们对西方和太平洋地区的主导地位。”
+特拉斯女士正与英国国防大臣本·华莱士(Ben Wallace)一起访问澳大利亚，并与澳大利亚外交部长玛丽斯·佩恩(Marise Payne)和国防部长彼得·达顿(Peter Dutton)进行讨论。如果英国首相鲍里斯·约翰逊(Boris Johnson)因在中共病毒封锁期间在其住所举行派对的指控而遭到愤怒的反击之后被迫下台，特拉斯女士被吹捧为取代英国首相的主要竞争者。特拉斯女士说，约翰逊先生的“工作做得十分出色”，并得到了她“百分之百的支持”。
+她说：“我们需要所有人都站出来，与我们的盟友一起，我们将继续与乌克兰站在一起，敦促俄罗斯缓和局势。东欧发生的事情对全世界都很重要。”
+当天早些时候，在基里比利(Kirribilli)的水师提督府(Admiralty House)举行的联合新闻发布会上，特拉斯女士说，英国 “没有比澳大利亚更好的朋友”，尤其是在面对来自俄罗斯和中共国不断上升的威胁时。
+她说：“我们正肩并肩地站在一起捍卫自由和民主，我们决心面对这些日益增长的威胁。”
+佩恩参议员说，她在周三与乌克兰外交部长德米特罗·库莱巴(Dmytro Kuleba)的电话交谈中“明确重申了澳大利亚对乌克兰主权和领土完整的支持”。
+她说：“我表示，澳大利亚将准备考虑在我们可以向乌克兰提供援助的地区提出的请求，目前乌克兰还没有提出正式请求。”
+“要明确的是，这不是关于直接的军事援助。从澳大利亚的角度来看，这并不是摆在桌面上的问题。但我们将在未来几天和几周内与乌克兰密切合作，应对他们正在面临的挑战，并继续申明我们对其主权和领土完整的观点。”
+特拉斯女士说，三个关键的优先事项是，国防、技术和经济安全——包括推进为澳大利亚提供一支核动力潜艇舰队的AUKUS协议。
+佩恩参议员说，本周的讨论侧重于通过新举措进行的“实际合作”，包括一种联合的网络和关键技术的合作伙伴关系，以及在印度-太平洋地区的新的基础设施投资。她说，AUKUS协议将包括提高人工智能、量子计算和网络能力。
+佩恩女士说：“这些新的合作领域直击影响印度-太平洋地区的和平、稳定和繁荣的挑战的核心。”
+佩恩参议员说，澳大利亚和英国在打击恶性独裁主义、捍卫人权和维护基于规则的国际秩序方面是天然的合作伙伴。
+**简评：**
+中共胆敢肆无忌惮的在全球放病毒，杀死全球几百万人，阻止世界各国对新冠病毒起源的调查，根本原因就是西方文明国家对中共政权所采取的绥靖政策。邪恶的中共统治集团具有典型的‘小人’人格，欺软怕硬，恃强凌弱，它只认拳头，你弱它就强，你强它就弱。幸运的是，西方国家已经开始醒悟，正如特拉斯女士的演讲所说：“对自由、民主和法治的威胁不仅仅是区域性的，它们是全球性的。这就是为什么我们必须共同应对”。中共不仅仅威胁着中共国人民，中共对整个世界都是威胁，消灭中共不仅仅是正义的必须，也是全球所有人的必须。
+
+新闻链接:[https://www.theage.com.au/national/liz-truss-warns-of-growing-threats-from-china-and-russia-20220120-p59q0m.html?ref=rss&utm\_medium=rss&utm\_source=feedly\_feed](https://www.theage.com.au/national/liz-truss-warns-of-growing-threats-from-china-and-russia-20220120-p59q0m.html?ref=rss&amp;utm_medium=rss&amp;utm_source=feedly_feed)
+
+翻译/简评: kkoto(芬兰大灰狼)
+
+PR:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-文字版原文：[GTV新闻访谈简报|2022年1月21日早](https://gnews.org/zh-hans/1890544/)
+编辑：【英国伦敦喜庄园编辑部】
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

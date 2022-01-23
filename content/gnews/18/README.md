@@ -2,26 +2,22 @@
 ---
 
 
-## 欧盟药监机构担忧定期加强针的危害，福奇听证会发飙
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896703/)
+## 秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1896717/)
 
-##### 翻译：文载Jenny
-校对：枳实
-剪辑|字幕：向上James
-编辑：Mttfly
+撰稿:沙莉
+![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-34.png)(图片源于本文链接)
+1月22日，伊维菌素的研制者大村智教授，在冈山市就伊维菌素对治疗中共病毒(新冠病毒)感染的有效性作了说明。
 
-据福克斯新闻报道，欧洲药品管理者表示怀疑是否有必要打第四加强针疫苗。 其在周二对是否有必要注射新冠疫苗第四剂加强针表示怀疑, 并且对于每四个月需要打一次加强针的前景表示关注,担忧这是否会让人们的免疫系统超载。嘉宾表示，公众已经对接种加强针感到质疑，对得不到病毒真相感到疲倦。福奇也在继续提供混乱的信息，福奇在听证会戴着口罩走进来， 但是当兰德保罗开始质疑他，福奇变得疯狂，扯下口罩。
+诺贝尔医学生理学获得者、北里大学特别荣誉教授大村智先生22日在冈山市举办了一场讲座。 大村先生表示对自己开发的，贡献于人类的抗寄生虫药物伊维菌素在治疗中共病毒(新冠病毒)感染的有效性上有信心。
 
-视频链接：[European Union’s drug regulator raised concerns that giving boosters every four months hypothetically poses the risk of overloading people’s immune systems. Dr. Fauci got mad under the questioning of Senator Marshall.](https://video.foxnews.com/v/6291384634001#sp=show-clips)
+伊维菌素是用于治疗由寄生虫和蜱虫引起的感染的口服药，在海外被发现它能有效地抑制中共病毒冠状病毒的增长。目前日本正在进行临床试验，以期获准它能成为中共病毒冠状病毒的治疗药。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+由于病毒感染人数的迅速增长，讲座以预先录制的视频形式进行。大村先生解释说：已发现伊维菌素可以防止病毒的生长并增强人体的免疫力。实际上它已在印度的一些州和印度尼西亚被使用，并且已被证明具有诸如平息感染传播的效果。
+
+信息来源:[抗寄生虫薬 コロナ治療効果に自信　ノーベル賞大村氏、岡山で講演：山陽新聞デジタル｜さんデジ (sanyonews.jp)](https://www.sanyonews.jp/article/1221093/)
+
+责编:待命(文晓)
 
  
 

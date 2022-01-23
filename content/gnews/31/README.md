@@ -2,30 +2,31 @@
 ---
 
 
-## 可口可乐赞助北京冬奥会遭批
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896604/)
+## GTV新闻访谈简报|2022年1月22日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1896606/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-34.jpg)可口可乐赞助北京冬奥会遭批 网络图片
-据俄罗斯卫星通讯社1月23 日暨《华盛顿时报》报道，监督组织“媒介准确”发起了一项活动，在可口可乐公司总部前放了一块牌子写着：“为什么可口可乐赞助种族灭绝？”
+作者：香草山翻译部
 
-中共国非法剥夺了香港的自由；威胁台湾；在西藏践踏人权；在新疆实施种族灭绝；中共国制造了COVID-19新冠病毒并把它扩散到全世界，造成前所未有的大灾难。可口可乐对中共这些侵犯人权和反人类的行为完全保持沉默，通过赞助北京冬奥会，表达对中共国的支持。
-
-北京冬奥会是独裁者的个人秀，是种族灭绝运动会，各个国家和政府纷纷谴责，并外交抵制。可口可乐充当中共走狗的行为，既不可口，也不可乐。
-
-新闻参考链接：[https://sputniknews.cn/20220122/–1037234891.html](https://sputniknews.cn/20220122/--1037234891.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC.png)
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑：Stay文苑
 
+发稿：Stay文苑
 
+视频参看：[1.22  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ecaf26533c672fca8156b7)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

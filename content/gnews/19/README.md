@@ -2,31 +2,26 @@
 ---
 
 
-## 扬帆每日速递 2022年1月22日版（2）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1896702/)
+## 欧盟药监机构担忧定期加强针的危害，福奇听证会发飙
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896703/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-1、一篇“流调（流行病学调查）中最辛苦的中国人”新闻砸了中共全民小康、共同富裕的招牌。事件主角岳荣贵儿子失踪一年多，多次向警方报案无果，赴京历尽艰辛寻找儿子。在岳荣贵的新闻被大量转载后，威海市公安局作出回应称，岳跃仝已经死亡，但岳家不认可。
+##### 翻译：文载Jenny
+校对：枳实
+剪辑|字幕：向上James
+编辑：Mttfly
 
-2、1月22日，香港立法会主席梁君彦宣称，新一届立法会议员不会是橡皮图章，立法会将快马加鞭通过每一条法例。评:史上最不好笑的笑話！一群忠诚废物祸港、乱港、卖港。
+据福克斯新闻报道，欧洲药品管理者表示怀疑是否有必要打第四加强针疫苗。 其在周二对是否有必要注射新冠疫苗第四剂加强针表示怀疑, 并且对于每四个月需要打一次加强针的前景表示关注,担忧这是否会让人们的免疫系统超载。嘉宾表示，公众已经对接种加强针感到质疑，对得不到病毒真相感到疲倦。福奇也在继续提供混乱的信息，福奇在听证会戴着口罩走进来， 但是当兰德保罗开始质疑他，福奇变得疯狂，扯下口罩。
 
-3、由于公司盈利不稳和美国利率上升的前景，美股市场在科技股的领跌下，经历中共病毒爆发以来最糟糕的一周。
+视频链接：[European Union’s drug regulator raised concerns that giving boosters every four months hypothetically poses the risk of overloading people’s immune systems. Dr. Fauci got mad under the questioning of Senator Marshall.](https://video.foxnews.com/v/6291384634001#sp=show-clips)
 
-4、当地时间21日，美国政府将暂停四家中共国航空公司从美国出发飞往中共国的44个航班，以回应中共政府因所谓担心输入性中共病毒案例而决定暂停一些美国航空公司航班的决定。
-
-5、据文贵大直播：喜联储的硬钱包将与量子电脑技术、生物科技连在一起，打破法币的国家垄断，个人财富不再受到监管。
-
-6、据文贵大直播：为欺骗国内百姓，习近平付给普京1千多亿美元求其出席冬奥会；免除非洲15国债务以及以各种承诺和威逼利诱他国出席冬奥会。
-
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体1-22-2_page-0001.jpg)
-素材提供战友：Revelation熙攘、Shuang、从来多难不兴邦
-
-编辑：文敏
-
-发布：风起云间（文敏）
-
-海报图片设计：飞天面、 Shuang
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
