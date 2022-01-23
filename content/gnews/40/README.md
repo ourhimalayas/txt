@@ -2,27 +2,34 @@
 ---
 
 
-## 郭共大战美国战场法律超限战涉及的机构和人物关联图
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1896763/)
+## 美日元首召开视频会议 承诺共抗中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1897026/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220122-1-scaled.jpg)图片来源：GNews
-相关案件资料链接：
+#### **撰稿：**日本东京方舟农场  老孙
 
-1. 2020年8月17日，美利坚合众国（原告）诉[妮基·马里·鲁姆·戴维斯](https://www.followcn.com/chinese/wp-content/uploads/2020/08/DOJ_20200817_Case1_20-cr-00068-LEK-Simplified.V3.pdf)（NICKIE MALI LUM DAVIS被告）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5CB35A18-C469-4C4F-B140-1C70885D865E.jpeg)（图片取自德国之声）
 
-2. 2018年11月30日，美司法部雇员[George Higginbotham认罪](https://www.justice.gov/opa/pr/former-justice-department-employee-pleads-guilty-conspiracy-deceive-us-banks-about-millions)的新闻报道
+1月22日，美国总统拜登与日本首相岸田文雄周五举行了线上会议，并在会议上承诺，美日共同对抗中共在亚太地区的野心。
 
-3. 2020年2月19日，[Samuel Dan Nunberg（原告）诉 Guo Wengui（被告）](https://lawandcrime.com/lawsuit/former-trump-aide-sues-billionaire-chinese-mar-a-lago-member-for-defamation/)
+据法新社报道，两人强调台海的和平稳定与和平解决两岸问题的重要性，反对中国改变东海与南海现状的企图，并表示坚决“反对中国改变东海和南海现状企图”，并对中国在新疆与香港作为感到担忧。
 
-4. 2021年9月13日，SEC与GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.,的[和解书](https://www.sec.gov/litigation/admin/2021/33-10979.pdf)
+拜登申明，美日安保条约第5条适用于钓鱼台诸岛，美国将坚定不移地致力于利用所有能力保卫日本。
 
-5. 2021年6月22日，郭文贵先生（Eastern Profit，原告）诉French Wallop和Mike Waller（Strategic Vision，被告）议案的[判决书](https://www.docketalarm.com/cases/New_York_Southern_District_Court/1--18-cv-02185/Eastern_Profit_Corporation_Limited_v._Strategic_Vision_US_LLC/372/)
+在经济议题上，两人同意设立经济版2+2会谈，讨论新技术、供应链等议题。岸田文雄也表达对美国提出的印太经济架构的强力支持。
 
-6. 2020年12月18日，与CCP利益关系密切的法官Barry Ostrager偏向PAX的[阶段性裁决](https://cases.justia.com/new-york/other-courts/2020-2020-ny-slip-op-34210-u.pdf?ts=1608761660)
+拜登在视频会议结束后发推文表示，“很荣幸会见岸田首相并深化了美日之间的联盟关系，这场会谈进一步强化了美日同盟关系，这是印太地区和全球和平与安全的基石”。
 
-7. 2022年1月14日，法官撤销Cahill的律师Edwards Moss代理PAX（原告）诉郭文贵先生（被告）一案的[资格的新闻报道](https://www.reuters.com/legal/litigation/judge-disqualifies-cahill-law-firm-investor-fight-with-billionaire-guo-wengui-2022-01-15/)
+据透露，拜登接受了岸田文雄的访日邀请，将出席预计在春末举行的美国、印度、日本与澳洲的四方安全对话。
 
-校对：
+*参考链接：[拜登与岸田视频会议承诺协调一致共同对抗中国](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220121-%E6%8B%9C%E7%99%BB%E4%B8%8E%E5%B2%B8%E7%94%B0%E8%A7%86%E9%A2%91%E4%BC%9A%E8%AE%AE%E6%89%BF%E8%AF%BA%E5%8D%8F%E8%B0%83%E4%B8%80%E8%87%B4%E5%85%B1%E5%90%8C%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%9B%BD)*
+
+* * *
+
+*素材采编：老孙*
+
+*编辑： 文顺*
+
+*发布：miumiu*
 
  
 

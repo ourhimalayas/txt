@@ -2,24 +2,25 @@
 ---
 
 
-## 电话录音曝光：良知英国医生阻止患者注射加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897101/)
+## 美国务院已下令撤离驻乌克兰大使馆工作人员家属
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897274/)
 
-医学上，我跟你说过多次，现在有很多信息出来了，这些信息之前还没有出来。很快这些疫苗会完全停止。信息真的出来了，短期内你还不会在电视上看到。可能因为。。。但是的很快会停的，但人们还不知道。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1843.png)[(图片来自视频源截图)](https://m.youtube.com/watch?v=KV4lHNPghec)
+23日，据一些美国媒体报道，俄罗斯可能入侵乌克兰，形势日益严峻，美国国务院已经命令驻乌克兰首都基辅大使馆工作人员的家人撤离该国。
 
-翻译：George Yang
-校对：枳实
-剪辑/字幕：清净
-发布：枳实
+福克斯新闻报道称，据多位美国官员称，美国国务院已下令美驻乌克兰大使馆工作人员家属24日开始撤离。
 
-视频链接：[English doctor told patient not to get covid vaccine](https://gettr.com/post/poyk1d9377)
+预计下周将使用商业飞机帮助在乌克兰的普通美国人撤离该国。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据美国媒体透露，拜登总统在周末紧急与国家安全顾问沙利文讨论了乌克兰局势。
+
+信息源：[米　ウクライナの大使館員家族に退避命令か](https://news.yahoo.co.jp/articles/d61227b33ba313275bc1217a4b6aa7c56b8550e9)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
 
  
 

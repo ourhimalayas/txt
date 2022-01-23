@@ -2,31 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月22日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1896606/)
+## 中共巨额资助荷兰大学 影响其学术独立性
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1897000/)
 
-作者：香草山翻译部
+#### 撰稿：日本东京方舟农场  海星
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3615434B-CB33-495F-B912-CEF2A2160EF9.jpeg)（图片来源：法新社）
 
+近期，荷兰媒体披露中共巨额资助了荷兰阿姆斯特丹自由大学（Vrije Universiteit Amsterdam）的人权研究计划，质疑其影响该大学的学术独立性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC.png)
-校对：Stay文苑
+据《中央社》报导，荷兰广播基金会（NOS）新闻网站19日刊登的一篇名为《中共资助阿姆斯特丹自由大学人权研究计划》（China financiert onderzoek naar mensenrechten aan）的文章，披露中共西南政法大学在2018年至2020年期间，每年资助阿姆斯特丹自由大学设立的“跨文化人权中心（CCHRC）”，金额高达25万至30万欧元（人民币180万元至216万元）。
 
-编辑：Stay文苑
+报导指出，CCHRC通过中共资助的资金出版学术刊物和召开学术研讨会，并在官网上为中共侵犯人权及在新疆持续发生种族灭绝的罪行辩解，同时推广中共反西方普世价值观的思想。
 
-发稿：Stay文苑
+多位荷兰学者在接受采访时表示，阿姆斯特丹自由大学接受中共资金的行为会影响其学术独立性，涉嫌为中共侵犯人权的罪行合理化。
 
-视频参看：[1.22  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ecaf26533c672fca8156b7)
+其中，荷兰莱登大学（Leiden University）国际关系教授罗伯德维克（Rob de Wijk）批评CCHRC主任泽瓦特（Tom Zwart）经常参与中共学术会议以及接受中共官媒采访的行为，这会诱导中国人民误解西方的普世价值观，巩固其专制政权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+据报道，阿姆斯特丹自由大学在其学术独立性受到广泛质疑后表示，将终止与中共的合作。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*参考链接：[中國透過資助影響學術獨立 荷蘭大學終止合作](https://www.cna.com.tw/news/aopl/202201220207.aspx)*
+
+* * *
+
+*素材采编：海星*
+
+*编辑：文顺*
+
+*发布：miumiu*
 
  
 
