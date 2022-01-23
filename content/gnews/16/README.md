@@ -2,104 +2,89 @@
 ---
 
 
-## 【圆成原创】人吃人的社会，救救孩子
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1898749/)
+## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898792/)
 
-**作者：面包飞上天**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/AF479DB3-F544-4098-9CD1-0616CC530849.jpeg)图片来源：网络
-关于打新冠疫苗，最近身边发生了几件事，心里翻江倒海非常不舒服，不吐不快。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-现象1：中国政府强制打疫苗，为完成清零目标，凑不够人数，就进行摊派。跨地区、给钱、送礼物都在所不惜，还有大巴专车接送。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-现象2：学校的孩子拉去打疫苗，没打的不准上学。
+接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）](https://gnews.org/zh-hans/1898709/)
 
-中国体制内某地开展新冠疫苗接种“小手拉大手”活动，中小学生开学报名时采取“1+6+N”形式，即每名学生入学报到时，需持有父母（监护人）、爷爷奶奶、外公外婆及其共同居住的近亲属新冠疫苗接种证明，否则不予接收或暂缓入校。
+让我们翻到这份报告的第63页，看看苏格兰公共卫生部门对COVID-19病毒疫苗接种状态的定义吧。
 
-通过孩子给家长甚至是亲戚施压，这不是人能干出来的事，既不法治，也不文明，拿孩子当小白鼠，畜生的作为。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-status.jpg)
 
-现在，我只能说，在很多问题上，孩子都是一个社会的底线。
+COVID-19疫苗接种状态的定义：
 
-马上就要开学了，我们应该做的，是给孩子们提供一个无忧无虑、快快乐乐的学习环境，他们的任务是学习、是成长，而不是作为当地政府部门完成KPI的工具。
+未接种疫苗：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-这样的政府做事有人权吗？没有。
+接种过1针疫苗：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。
 
-只考虑自己完成任务，哪管别人的死活。接种率就是KPI，考核官员的政绩最重要。
+接种过2针疫苗：指PCR检测COVID-19呈阳性时，接种过2针疫苗，且接种第2针疫苗的时间超过14天。
 
-就像鲁迅在《狂人日记》里说的：
+接种过3针或加强针疫苗：指PCR检测COVID-19时呈阳性，接种过3针，且接种第3针的日期超过14天。
 
-我翻开历史一查，
+很明显，这样的疫苗接种状态定义与正常人的认知差别很大。任何人的常识都是在打完针的下一秒开始，就认为自己已经打了COVID-19疫苗！
 
-这历史没有年代，
+这样的定义有什么意义呢？大量打完第1针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在未打疫苗群体内。大量打完第2针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了1针疫苗群体内。大量打完第3针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了2针疫苗群体内。
 
-歪歪斜斜的每页上都写着“仁义道德”几个字。
+总之，会让统计报告看起来，感染COVID-19病毒的人中，未打疫苗的比实际要多得多！
 
-我横竖睡不着，
+比如，英国卫生部门2022年1月20日发布的每周Covid-19疫苗监测报告（[COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)）第38页，表12，2021年12月26日至2022年1月16日，英国每100,000接种３针或加强针疫苗和未接种疫苗的人群中未经调整的COVID-19 感染率、住院率和死亡率数据：
 
-仔细看了半夜，
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12.-Unadjusted-rates-of-COVID-19-infection-hospitalisation-and-death-in-vaccinated-and-unvaccinated-populations..jpg)
 
-才从字缝里看出字来，满本都写着两个字是“吃人”!
+我们注意到，对于30岁以上的人群来说，接种3针疫苗的人群感染率明显比未接种疫苗的人群高。
 
-救救孩子吧。
+但对于18岁以下和18~29岁的人群，接种3针疫苗人群感染率比未接种疫苗人群要低很多。尤其是18岁以下人群，未接种疫苗比接种3针疫苗感染率明显高得多。
 
-**强制向基层摊派施打疫苗指标引争议**
+看到这样的报告，很容易被误导去打疫苗，甚至是打3针或加强针。尤其护子心切的家长们，是不是有迫不急待让自己孩子打３针疫苗的冲动呢？
 
-固始县位于河南省东南端，豫皖两省交界处，南依大别山，北临淮河，河南人口第一大县，劳务输出大县。
+千万记住，这是在误导！
 
-近段时间，让固始县吃财政饭的乡镇、村基层干部和教师苦恼的是，为了完成县里强制摊派施打疫苗任务，可谓使尽浑身解数，不得不自掏腰包花高价，四处寻找18岁以上，未接种过新冠疫苗者。
+这样的数据有什么问题呢？
 
-我们街道社区干部每人摊派一个施打疫苗任务，县里规定必须在8月31日下午5点钟完成摊派任务，村里年轻人都到外地打工去了，在外地都打过第一针疫苗，18岁以下年龄不够不让打，周边安徽也找不到没打过疫苗的，为了完成县里摊派指标，我们不得不带着医生开车去江苏盛泽镇去，花费实在太大了，一位街道社区干部诉苦说。
+在这份报告的第17页，有英国各年龄段人群接种第1针疫苗的时间
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose1.jpg)
+在这份报告的第18页，有英国各年龄段人群接种第2针疫苗的时间
 
-快把人逼疯了，逼疯了，也要完成县里摊派的指标，为了完成县里摊派施打疫苗任务，基层干部被逼得四处托亲告友，开始每人给二百块钱，8月31日，每人涨到一千，有人出到三千，为了完成任务，连老人也不放过，人被车拉去施打疫苗，包括敬老院里老人，一位村干部电话里告诉笔者。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose2.jpg)
 
-根据市、县疫苗接种调度会议精神，结止8月31日前，疫苗接种主要以18岁以上人群第一剂必须全部完成。请各校各单位对各自单位的干部、职工、聘用人员及离退休人员，再排查，再督促。确实不能接种的，要动员其亲戚替其接种（必须是第一剂次）并上报接种证明方能销号，否则视其未完成、未接种。现在县实行一日三调度，到时完不成，是要追责的……X局副局长这样向全县教职员工发手机短信。
+在这份报告的第19页，有英国各年龄段人群接种第3针疫苗的时间
 
-固始一位网友在朋友圈写道，河南固始：掀起全民接种高潮，但凡你还有一口气，管你80岁、90岁，还是100岁，这几天都得想方设法拉你去接种，不信？你看。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose3.jpg)
 
-关于新冠疫苗接种，国家卫健委多次明确，新冠疫苗接种遵循“知情、同意、自愿”的基本原则。河南固始县强行向基层摊派疫苗接种指标，在执行谁的政策？（吴贤德）
+通过这3个图可以看到，英国很多18岁以下的人是在最近才接种1针、2针或3针COVID-19病毒疫苗的。
 
-我是信阳光山的，我奶奶84岁了，做过心脏搭桥手术，现在用电子起搏器，8月22日左右，在我们家人不知情的情况下，被村里带去打了疫苗，奶奶在打之前分别告诉村干部和医生她的身体情况，但医生还是给她打了，打完后一直头晕，现在身体一天不如一天了，投诉无门。
+也就是说，存在很多打完第1针不超过21天的18岁以下的人，被计算到未打疫苗范围内。也存在很多打完3针不超过14天的18岁以下的人，被计算到只打了两针。
 
-**存在哪些危害？**
+如果仅仅是这一种误导，后果可能还远没有到非常严重的地步。
 
-上述凭借“利益诱惑、变相强制”接种疫苗的做法，违背了自愿接种的初衷，不仅会扰乱各地疫苗接种的秩序，也会带来潜在安全隐患。
+更可怕的是，打完第1针疫苗后感染的人群中，50%左右是在接种完第1针后14天之内感染、住院或死亡的！
 
-譬如，个别地方非法异地接种疫苗，由于疫苗的保存和接种都需要一定温度，而从外地来的疫苗接种点 **无法保证冷链设备和急救设备的跟进**，也无法跟进后续的治疗效果，无疑加大生命健康危险系数。
+接【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
 
-更为重要的是，为完成上级分配的任务指标，基层干部不得不硬着头皮想办法，甚至不得不走歪门邪道，旁门左道，加大基层干部的工作负担，影响到正常工作的开展， **严重损害政府的公信力**。
+参考数据：
 
-辽宁省鞍山市台安县一份“新冠疫苗接种情况统计表”近日在网上流传，统计表“疫苗接种情况”的统计对象均为当地公职人员，分别来自县住建局、县政法委、辖区内的镇政府、镇司法所等部门。从这份统计表可以看到，体制内工作人员大都以感冒、过敏、高血压、备孕等理由拒绝疫苗接种，甚至还有“牙疼”、“身体不好”这样的理由。整体来看，疫苗接种率较低，这份样本也足以显示出当地公职人员队伍对于统一的国产疫苗接种存在着不信任与抵触情绪。
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
 
-新台镇是台安县下辖镇，以下统计来自新台镇政府、新台镇水利站、新台镇司法所、新台镇动监所、新台镇行政执法大队几个部门，65人中仅有三人接种了疫苗：
+[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
 
-kespon99699：这一看就是干部们为了百姓操劳啊，呕心沥血一身病啊。人民好干部啊！
+[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
 
-gossipyfox：原来公务员都是有病的。
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
 
-z\_revived：（图一）打疫苗的这三人大概没什么背景，类似于老实人被摊派上了反革命指标。
+[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
 
-wheat28476160：可见党国对基层的控制力就剩下利益了，一到涉及自身利益了，都开始自保了。
+[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
 
-tjs1iafZCECK2aL：看来中国的公务员作为人民公仆，平时为了人民的事都累坏了身体。
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
 
-Shawn\_Skyriver：我朋友也是公务员系统的，她同事基本都是各种理由推脱。
+[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
 
-xyskathleen：老百姓终于享受特供了，谁说太阳不会打西边出来？
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-他列举以往大陆的疫苗问题说：“这个（大陆疫苗）安全率、合格率、有效率都是很低的，以前就有小孩子被打疫苗后，残的残，傻的傻。（中共病毒疫苗）在这短短的时间内，它们（当局）明知道质量不太高的情况下，还向十来亿人强推这个东西，实在感觉太恐怖了，真的是拿人的命开玩笑，现在全国轰轰烈烈地，表面上像是一种福利似的打疫苗，实际上是带有强迫性的”。
-
-“包括为灾难捐款，本来捐款都是自愿的，实际都是摊派，强迫的。它们（中共）很多时候，总是用这种表面上很光鲜的形象出现，实际上背后是很邪恶、罪恶的一种手段”，吴先生说。
-
-此前，秘鲁曾做临床试验显示，两款大陆国药集团研发的疫苗，有效率仅为11.5%和33%；巴西临床数据显示，科兴疫苗的有效率仅为50%。
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220123
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

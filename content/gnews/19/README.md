@@ -2,37 +2,34 @@
 ---
 
 
-## 班农先生谈背叛
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898713/)
+## 加拿大阿省500名未接种医护人员重返岗位
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898768/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生谈背叛_01-1.jpg)
-新中国，新中国人形成的这个进程中，任何进程都是这样，必然会经历背叛。就连基督来到地上，也是如此。所以一定会有这种 人，他们会背叛，今后还会不断出现，也不可能会止息。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒1月20日报道，加拿大艾伯塔省卫生局表示，在该省1400名未接种过中共病毒疫苗的医护人员中，有500人在选择接受定期核酸检测之后，正在重返医院和其它医疗机构的工作岗位。
 
-我知道重要的是：历史会审判我们。这就是为什么我非常愿意把 我的生命投入这个使命，对每一天致力所作的一切，我觉得特别 的舒服。因为我们是在天使的这一边，我们支持伟大的中国人的自由抗争，最终也是为整个人类的自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10.jpeg)
 
-有人会背叛，有人会害怕软弱，有人会离开。我自己也在受威胁, 每隔一星期他们就把我抓起来，想送我进监狱。其实我也可能就 会离开或者开派对之类。
+该省卫生局表示：奥密克戎感染病例的激增，使得整个医疗系统人手短缺越来越严重。虽然通过招聘填补空缺来应对人员配置的挑战，但仍然不能满足正常运转。由于长期从事医疗护理的专业人员在工作安置上享有优先权，因此欢迎更多未接种过中共病毒疫苗的人士，在接受检测的前提条件下回到工作岗位上。
 
-但为着我的使命，责任，义务，当我死的时候，为着我从上帝、 从我的父母亲、从我的家庭、从我的国家、从我的教育、从我的信仰、从我的周围…这一切所赋予给我的各样恩赐，我能问心无愧.
+与此同时，该省雇员工会副主席邦妮·戈斯托拉说，这些检测的费用，不应该由重返工作的医护人员承担。雇员工会也已经代表那些认为疫苗接种及核酸测试政策不公平的员工，向该省卫生局提出了数百份申诉。
 
-也非常有幸，在年轻的时候去到了中国，我爱上这个国家，爱上 这些人民。
+参考链接： [500 unvaccinated AHS staff back to work after opting into testing program](https://www.cbc.ca/news/canada/calgary/unvaccinated-ahs-staff-1.6321139?cmp=rss)
 
-所以当面对所有的这些艰难，这些不开心时，都无关紧要。 紧要的是：坚守，坚守巨制定的计划：我们要推翻中共take down the CCP,这是毫不怀疑的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-发布：于white
+总编：Zion文恩
+编辑：Delilah小胖
+校正/发稿：谐趣园
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,50 +2,74 @@
 ---
 
 
-## 爆料革命要把达沃斯的家天下皇权天下上帝天下变为民天下
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898801/)
+## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898840/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf74e87664c47acd8aff3](https://gtv.org/video/id=61ecf74e87664c47acd8aff3)
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-**郭文贵先生**：那达沃斯论坛跟你搞的这一套，都垄断完以后，你告诉我Rosemary，他设计50年是你知道的。人类上一直在过去的封建社会、宗教统治、皇权统治，到了工业革命，也就是我们从19世纪、18世纪末期才开始了人类的文明，叫过去的一个人的国家和过去所谓的代表上帝的那些宗教人士统治着人类几千年、上万年，转向了每个人可以投票选出的个人天下，从家天下、皇权天下、上帝天下、宗教天下，变成了我们人、以个人为单位的我们民天下。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-但达沃斯论坛是什么影子？它要代表所谓的宗教、代表所有的皇权来统治人类，它不是50年了。达沃斯和共产党就是过去的封建和宗教统治人类“家天下”的一个魔鬼的变形的脸。你不把他们铲平，它永远不可能让你有“民天下”。达沃斯和共产党就是几百个家族的家天下的缩影。
+接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](https://gnews.org/zh-hans/1898792/)
 
-那么我这三十几年干啥了？Rosemary？我现在就像我说，我的香港同事说他从来不相信鬼的，他现在看到了躺在床上的小Baby和死掉的男士女士来管他要烧纸，王雁平哭得稀里哗啦的，赶快给人家烧纸去。
+在2021年3月8日丹麦学者Ida Rask Moustsen-Helms等人发表的临床研究论文《[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)》一文中，详细记录了39,040名居住在长期护理机构（LTCF）的老人和331,039名一线医护人员（HCW）接种疫苗和接种疫苗后感染情况。
 
-这事发生不是一年了吧？你觉得七哥没有见过死去的人？你们觉得我跟八弟那个回阴你觉得那是假的吗？我找到沙发下欠的账单，你说那是假的吗？你觉得我们在深山老林里没见过这个那个，你觉得这是可能吗？
+在这份文件的第3页，表1（Table 1 –Descriptive overview of median age, median follow-up and SARS-CoV-2 confirmation by vaccination status in 39,040 LTCF residents and 331,039 HCW followed from 27 December 2020, to 18 February 2021 in Denmark.）记录了疫苗接种情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-1-–Descriptive-overview-of-median-age-median-follow-up-and-SARS-CoV-2-confirmation.jpg)
+在这份文件的第4页，表2（Table 2 – Vaccine effectiveness with accompanying 95 % confidence intervals for LTCF residents and HCW after first and second vaccine dose）记录了接种COVID-19疫苗后，感染的时间
 
-如果七哥没有受到大自然或者说神秘力量的启蒙，我活不到今天，我一天都活不了。我从赵家沟走到今天，我从西曹营走到今天，我上过十几个学校，去过清丰看守所，看过六十几人的死亡，我最早走出国门，走向世界，非洲、整个北极、南极全逛完，你觉得我就没见点儿和你不一样的东西吗？那是不可能的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-2-–-Vaccine-effectiveness-with-accompanying-95-confidence-intervals.jpg)
 
-回答答案是：七哥的故事还没开始呢，新中国联邦的秘密你们完全不懂。但你别神道了，Rosemary老神道不行，因为我现在说的话，如果五年前说，我就成神经病了。咱得适当的说出你的秘密，才能被人接受，不被人接受的东西那叫迷信，被人接受的（是）事实，超自然的事实称为叫信仰。
+居住在长期护理机构（LTCF）的39,040名老人中，有95.2%打了1针疫苗，86%打了2针疫苗，其中760人是在接种完第1针COVID病毒疫苗后14天内感染，占投种1针后感染的55%。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+在331,039名一线医护人员中，有27.8%打了第1针疫苗，其中1189人是在接种完第1针COVID病毒疫苗后14天内感染，占接种一针后感染的35%。
 
-编辑整理：Jacques；
+加拿大Alberta省在网站关于《[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)》中申明，接种第1针疫苗后14天内的人感染中共病毒，不算接种1针COVID-19病毒疫苗后感染，而是计算在未接种疫苗感染COVID-19病毒范围内。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-case-outcomes-in-Alberta-by-vaccine-status.png)
+多么可怕的误导！
 
-字幕文件制作：小满；
+因此Alberta省得出了以下结论：自2021年1月1日以来，0.5%的人（18,612/3,516,687）在第一次接种中共病毒疫苗后14天被诊断出感染COVID-19；在第二次接种中共病毒疫苗后14天，有3.5%的人(113,969/3,240,167)被诊断出感染COVID-19；在接种3针中共病毒疫苗后14天，有1.1%的人 (15,286/1,333,330)被诊断出感染COVID-19； 59.3%的病例(215,489/363,356)未接种疫苗或在接种第1针中共病毒疫苗后两周内被诊断出感染COVID-19；74.6%的住院病例(10,595/14,208)未接种疫苗或在第1针疫苗接种后两周内被感染；72.8%的COVID-19死亡(1,381/1,898)病例，未接种疫苗或在接种第1针疫苗后两周内被诊断出感染COVID-19。
 
-视频制作及上传：Cindy；
+没有区分出相当比例的接种第1针COVID-19病毒疫苗后确诊的感染者！而是把这些接种COVID-19病毒疫苗不超过14天的感染者和真正从未接种疫苗的人混到一起计算！
 
-G-News发布：小满；
+非常幸运的是，尽管加拿大Alberta省突然争先恐后地从他们的网站上删除了早期数据，但[从2020年3月20日到2022年1月14日的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)被Joel Smalley等人完事的保留下来。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+这份文件详细记录了注射完第1针中共病毒疫苗后第1天到373天内，各年龄段的人群确诊COVID-19、因COVID-19住院和因COVID19死亡的数量统计。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+这是一份非常珍贵的文件！
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+根据这份文件的数据统计，在注射中共病毒疫苗后确诊感染COVID-19的人中，有39.4%是在打完针后14天内被确诊，76.6%的人是在打完针后45天内被确诊。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date.jpg)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+在注射中共病毒疫苗后住院的COVID-19病例中，有47.6%是在打完针后14天内发生，79.6%的人是在打完针后45天内发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date2.jpg)
+在注射中共病毒疫苗后死亡的COVID-19病例中，有55.6%是在打完针后14天内发生，89.3%的人是在打完针后45天内发生。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-deaths-date-to-COVID-19-diagnosis-date3.jpg)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+通过这份文件记录的数据，可以想像，有多少打完COVID-19病毒疫苗后感染、住院和死亡的人，被错误的记录到了未接种疫苗人群中，导致人们根据政府的疫苗监测报告而做出错误的判断！
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+中共病毒疫苗有毒，千万不要被公共卫生部门误导性的疫苗监测报告误导！
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+参考数据：
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
+
+[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
+
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
+
+[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+
+[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

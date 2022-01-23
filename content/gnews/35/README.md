@@ -2,40 +2,28 @@
 ---
 
 
-## 数据显示，盖特在周六晚收视率盖过CNN
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898251/)
+## 英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1898406/)
 
-撰稿：纽约香草山农场 – Delilah小胖
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-3.png)
-1月20日，盖特援引尼尔森媒体研究公司的最新数据称，盖特在上周六晚间黄金时段的收视率碾压了CNN。当时盖特的三家直播账户最高有近100万观众，在线观看了美国前总统川普在亚利桑那州的集会活动。这一数字，令同时段CNN有线新闻网新闻和电影节目所吸引的70.5万人显得黯然失色。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1866.png)
-盖特首席执行官杰森·米勒说：“这些数字应该给大科技公司和大媒体公司敲响警钟：你们的受众正成群结队地离开你们，去寻找一个支持言论自由和可以获取有价值信息的平台。”
+作者: 青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/51234282_101.jpg)
+普京与习近平（图片来自网络）
 
-盖特2021年度全球用户奖项评选中——中共最大噩梦奖项的获奖者郭文贵先生，在其1月21日的盖特大直播中表示，未来盖特对于用户而言，更有“使用即获得金钱”的价值。
+据《联合早报》1月23日报道，英国外长特拉斯将中俄比喻为“协同合作的侵略者”，并警告称，中（共）国可能会趁俄罗斯入侵乌克兰之际，在印太区发动侵略行动。
 
+特拉斯在访问澳大利亚期间接受《悉尼先驱晨报》和《时代报》访问时表示，上述可能性不可排除。她说：“俄罗斯与中（共）国的配合前所未有的紧密。侵略者正协同合作，我认为我们这些国家有责任联手抗击。”
 
+特拉斯还在访谈中指出，英国关注中国（中共）政府的恶意举动，因为“中（共）国的影响力是全球性的”，北京（中共）正利用经济胁迫手段对付立陶宛和澳洲，同时还试图将其势力扩展至全球各地。
 
-新闻链接:
+英国首相约翰逊近日因“派对门”丑闻遭到党内外逼宫，如果他下台，特拉斯是接任首相的热门人选。
 
-[GETTR Dominates CNN in Saturday Night Ratings](https://about.gettr.com/press/gettr-dominates-cnn-in-saturday-night-ratings)
+俄罗斯近日在与乌克兰接壤的边界集结了10万大军，被指意图入侵乌克兰。与此同时，中共军方近几个月显著提升了其军机进入台湾防空识别区的规模和频率。美国防长奥斯汀上月称，中（共）国的举动似乎是在为进攻台湾进行“彩排”。
 
-[2021 Annual Worldwide Getties](https://gettr.com/post/plouyne846)
+美国外交政策分析师布兰德斯近日也指出，最大的危险在于“美国可能必须同时与中（共）国和俄罗斯交战”。不过，也有不少分析人士认为，以普京的政治智慧，他不会愚蠢到真的与穷途末路的世界公敌中共联手发动战争。
 
+新闻链接：
+https://www.zaobao.com/news/world/story20220123-1235701
 
-
-总编: 飞虹
-
-编辑: DM
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

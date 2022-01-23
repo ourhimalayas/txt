@@ -2,49 +2,45 @@
 ---
 
 
-## 共济会招募七哥为的是扶持七哥代表他们统治和奴役中国
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898925/)
+## 如果医院使用泽连科疗法Covid-19相关死亡将几乎不存在
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1898957/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf7c987664c47acd8b032](https://gtv.org/video/id=61ecf7c987664c47acd8b032)
+翻译： Jennny Ball
 
-**郭文贵先生**：为啥七哥最早成为共济会要招募的人？你们从来没搞明白这件事，你以为我长得好看？他才不在乎你长不长得好看呢。据我所了解的沼泽地很多人都是歪瓜裂枣的，缺胳膊少腿的，因为他们都是近亲结婚，很多都是近亲结婚。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1903.png)图片来源：naturalnews.com
 
-就像你看到中东有些国家，他就是近亲结婚，缺胳膊少腿，傻呼呼的，是吧？姐妹表亲结婚，罗斯柴尔德家里面不就很多近亲结婚导致了很多问题嘛，是不是？这就不用说。罗斯柴尔德家族只是其中代表之一，从战争的借款者高利贷者变成了当地财富的统治者，他只是之一。
+自然新闻 – 一项多中心、随机、开放标签研究，评估了维生素 D 和泽连科疗法（Zelenko Protocol）（羟氯喹、锌和阿奇霉素）的有效性。土耳其的七家医院应用了含和不含维生素C的治疗方案，以研究其在缩短疾病持续时间和预防死亡方面的有效性。
 
-所以说是一个共同的信仰，我要统治全人类，你要解放全人类，咱俩都是不同的信仰。所以说现在我们所反击的事情是什么？就让全人类都要有自己的尊严地活着，让人们要相信真的有上天，谁也不能代替上天，我们是有主人的。我们要闹明白地球和银河系之间和太阳系爆发到底是咋回事？为什么我们的一个精子卵子能承载着上百亿千亿的信息？
+在 237 名住院患者（年龄 22-99 岁）中，一名在 70 岁时去世。该患者患有严重的维生素 D 缺乏症和潜在的心肺疾病。其余 99.58% 的患者恢复了广谱、自然免疫。在研究过程中，研究人员发现，所有住院患者中，有 97% 缺乏维生素 D。严重缺乏维生素 D 的患者 (55%) 更有可能最终进入 ICU ，并住院更长时间。大多数（73%）住院患者还患有糖尿病、心脏病和肺病等潜在合并症。
 
-你说这个共济会，兄弟，宁南兄弟，还有什么这个会那个会，那就是一根毛儿。世界就两个主义现在，就两个东西：一个叫人类，让人们有尊严、安全地活着，不是要当奴隶、奴隶主；另外一个就是我要你当奴隶主。
+研究人员发现，静脉注射维生素 C 可将患者在医院的平均恢复时间从 45 天缩短到 15 天。该研究得出的结论是，“羟氯喹、阿奇霉素和锌联合或不联合维生素 C 的治疗方案，在治疗 COVID-19 时是安全有效的，高剂量的静脉注射维生素 C 可显著加快恢复。”
 
-这个邪恶的沼泽地在哪里呢？沼泽地是你绝对看不见的，但是又是你绝对面对的。达沃斯、共产党就是绝对的沼泽地。招募七哥是干嘛？是扶持七哥成为中国代表他们来统治中国未来的人民，成为他们地主收租子、奴隶你们的。没想到七哥不被招募，我要干掉他们，是吧！这就这么简单嘛。
+对有效治疗的压制使医院变成了现代毒气室
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+在WHO于 2020 年 2 月宣布“全球大流行”之后，所有的目光都集中在医院的容量上。尽管全国大多数医院从未目睹过备受期待的感染激增，但市中心的医院系统的死亡率却在迅速上升。**纽约市的医院是最先宣传他们治疗 Covid-19 患者失败的医院之一。**
 
-编辑整理：Jacques；
+这些市中心的医院通常挤满了流感、肺炎、RSV 和各种院内感染患者，但在 2020 年的Covid-19 期间，全世界都看到了医疗系统中的问题：绝望的呼吸机从一开始就是护理标准。在福奇的领导下，联邦的冠状病毒应对措施迫使这些机器的大量生产。
 
-字幕文件制作：小满；
+由于担心一种未知的严重急性呼吸系统综合症病毒株的传播，医院被鼓励及早并经常诊断 Covid-19，即使只是怀疑也要诊断。欺诈性 PCR 检测被大规模推出，尽管它从未被设计用于识别和正确诊断单一传染病。成群结队的医院病人被紧急送往一个闭环系统，也就是呼吸机，以阻止他们“扩散”或把呼吸扩散到周围的空气中。**这些死亡装置会破坏肺部，造成氧化损伤，引起医院感染和细胞因子风暴，导致可怕的死亡率**。在这种恐怖和医源性错误的系统下**，****医院系统被暴露为现代毒气室****。**
 
-视频制作及上传：Cindy；
+在福奇的领导下，患者被迫忍受痛苦，通过生物武器疫苗实验，迫使更多的痛苦。
 
-G-News发布：小满；
+在福奇的领导下，医院系统无视世界各地成功使用的所有有效治疗方案。美国独立诊所的有效治疗方案也被忽视和审查。泽连科疗法**早期使用羟氯喹 ****(HCQ)****、锌和阿奇霉素成功治疗了数千名患者。**但保险公司和制药行业主导着医疗行业，他们利用 FDA 等监管机构，将他们所谓的科学强加给医疗专业人员。福奇很快在美国禁止了泽连科疗法，但推动了高利润的瑞德西韦（Remdesivir）的广泛使用，这只会导致肾功能衰竭、医源性错误和死亡率增加。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+为了合法地批准具有 FDA 紧急使用授权的“疫苗”，必须是不存在有效的治疗方案。**被强加给美国和世界其他地区的****mRNA ****疫苗实验，导致更多医疗错误和过早死亡。**原因很简单：**隐瞒有关可行治疗的宝贵信息，并禁止使用营养药物、抗病毒药物、草药、支气管扩张剂、免疫调节剂和抗炎药。**在跟踪这些反人类罪两年之后，许多医疗专业人员推动宣传“疫苗”，并拒绝有效的治疗，现在显然看起来他们都像门格勒木偶皮诺曹。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+福奇、CDC和 FDA 不需要调查，因为他们的罪行是公开的。**福奇和 ****CDC ****的独裁者，将惊人的 ****Covid-19 ****死亡人数归咎于未接种疫苗的人，**但这些公共卫生宣传员，实际上只是利用无辜的人作为替罪羊来掩盖政府广泛的犯罪清单。与此同时，“未接种疫苗”的人在美国医院仍然受到不良待遇，当他们在医院死亡室被错误地隔离、歧视和虐待时，他们就必须起来争取使用基本抗病毒方案的权利。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**如果医院使用羟氯喹 (HCQ)、锌和阿奇霉素（泽连科疗法），以及静脉注射维生素 C、维生素 D、营养液、伊维菌素和植物性抗病毒药物，那么与 Covid-19 相关的死亡几乎就不存在**。这些治疗方案早在 2020 年之前就已成为常识，但医院并没有在经济上激励他们正确使用治疗患者。更可悲的是：善良的医疗保健专业人员被迫在这种绝望的强制性环境中工作，在一个分裂、虐待的文化中沉沦，他们甚至不再拥有对自己的良心或身体自主权的权力。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+新闻来源：[naturalnews.com][If hospitals had utilized the Zelenko protocol with intravenous vitamin C and vitamin D, then covid-19-associated deaths would be virtually nonexistent](https://www.naturalnews.com/2022-01-21-zelenko-protocol-intravenous-vitamin-c-and-d-covid19-deaths.html#) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8712288/) / [NaturalNews.com](https://naturalnews.com/2021-09-17-hydroxychloroquine-and-ivermectin-treatments-covid19.html) / [CNBC.com](https://www.cnbc.com/2020/04/29/dr-anthony-fauci-says-data-from-remdesivir-coronavirus-drug-trial-shows-quite-good-news.html) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC7290825/) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+* * *
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

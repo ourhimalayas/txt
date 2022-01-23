@@ -15,149 +15,149 @@
 
 ---
 
-### [共产党是要统治法律制造法律制造正义的沼泽地魔鬼之一](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [班农与七哥在船上的生活](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [共济会招募七哥为的是扶持七哥代表他们统治和奴役中国](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [一线护士揭露德国疫苗灾难（四）](/content/gnews/4/README.md)
- ` HA-Multilingual澳喜农场多语组`
-
-### [班农先生谈天安门事件谈科罗拉多一位勇敢的母亲](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [2022/01/23 英喜时事速递](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）](/content/gnews/7/README.md)
- ` 温哥华扬帆农场`
-
-### [达沃斯党与共产党一脉相承搞神秘主义反人类统治全人类](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [MV版Hcoin To the Moon上线46天第32次位列澳门iTunes热门MV榜首](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [克罗地亚不允许医生帮助他们的病人！](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [爆料革命要把达沃斯的家天下皇权天下上帝天下变为民天下](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](/content/gnews/12/README.md)
- ` 温哥华扬帆农场`
-
-### [达沃斯党控制人类生存环境制定非对错标准控制你的大脑](/content/gnews/13/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中日财经爆│日本在世界半导体行业不可或缺](/content/gnews/14/README.md)
+### [日本静冈大学怎么会有杨海英这样的畜生教授](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大阿省500名未接种医护人员重返岗位](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [【圆成原创】人吃人的社会，救救孩子](/content/gnews/16/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [山东聊城公开招募中共病毒新疫苗试验者](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦绝对会阻止中共和达沃斯党剥削奴役整个人类](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [班农先生谈背叛](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [丹麦报纸为盲目给政府新冠言论背书而道歉](/content/gnews/20/README.md)
- ` 秘密翻译组-原创组`
-
-### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）](/content/gnews/21/README.md)
- ` 温哥华扬帆农场`
-
-### [传统加密货币价格暴跌，千亿美元蒸发](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [【圆成原创】中共国经济必垮的理论支撑](/content/gnews/23/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [1/22 银河快讯:日本央行决定延长中小企业支持措施；日本批准辉瑞疫苗用于5-11岁儿童](/content/gnews/25/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [有声|接种疫苗后的可怕后遗症](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [中国证劵报22日消息：春节返乡政策有望撬动检测试剂超千亿市场增量。](/content/gnews/27/README.md)
- ` 首尔天池农场`
-
-### [骗取喜币是犯罪行为](/content/gnews/28/README.md)
- ` G-NEWS TAIWAN`
-
-### [有声|谈谈看到七哥童年照片时的感想](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [1/23银河快讯:岸田内阁支持率仍保持在52%；30%政府收入将来自债券](/content/gnews/30/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [未接种疫苗的人导致了大瘟疫，英格兰的数据并不支持这点](/content/gnews/32/README.md)
- ` DC政经`
-
-### [IMF主席称中共清零政策已成世界经济负担](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [荷兰光刻机大厂抓出中共内鬼取销中共订单](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [数据显示，盖特在周六晚收视率盖过CNN](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [布鲁塞尔再次反对新冠病毒措施的示威](/content/gnews/36/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [北京冬奥雪上项目主要举办地张家口崇礼区已被军队接管](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [宣扬中共病毒自然起源的科学家从福奇手中获取大笔资助](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [1/23/2022国内经济财经周报：奥园公开叫嚣未来2年不还债；中石油子公司倒卖原油1.8亿吨](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
-
-### [郭先生在磐石农场开幕典礼谈及教育](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦创始人郭文贵先生寄语G-EDU上线](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [数据灭共：老百姓的钱都去哪了](/content/gnews/42/README.md)
- ` GTV新闻访谈`
-
-### [62%注射过mRNA新冠疫苗的病人有细小血栓](/content/gnews/43/README.md)
- ` DC政经`
-
-### [春天的故事](/content/gnews/44/README.md)
- ` 骄子`
-
-### [7•24系列——中共梦断ASML高端光刻机](/content/gnews/45/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美参议院提出对中共入侵台湾实施全面经济金融制裁](/content/gnews/46/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2022/01/21 墙内世界](/content/gnews/47/README.md)
+### [爱尔兰在限制未接种疫苗者半年后取消了疫苗护照](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [宋词新作：谒金门·人生各梦——为何七哥做到无我](/content/gnews/48/README.md)
- ` 喜马拉雅农场新西兰站`
+### [如果医院使用泽连科疗法Covid-19相关死亡将几乎不存在](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [共产党是要统治法律制造法律制造正义的沼泽地魔鬼之一](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [班农与七哥在船上的生活](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [德国“政治地震”——前海军中将因发表反中共言论被噤声](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [共济会招募七哥为的是扶持七哥代表他们统治和奴役中国](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [一线护士揭露德国疫苗灾难（四）](/content/gnews/8/README.md)
+ ` HA-Multilingual澳喜农场多语组`
+
+### [班农先生谈天安门事件谈科罗拉多一位勇敢的母亲](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [2022/01/23 英喜时事速递](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）](/content/gnews/11/README.md)
+ ` 温哥华扬帆农场`
+
+### [达沃斯党与共产党一脉相承搞神秘主义反人类统治全人类](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [MV版Hcoin To the Moon上线46天第32次位列澳门iTunes热门MV榜首](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [克罗地亚不允许医生帮助他们的病人！](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [爆料革命要把达沃斯的家天下皇权天下上帝天下变为民天下](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](/content/gnews/16/README.md)
+ ` 温哥华扬帆农场`
+
+### [达沃斯党控制人类生存环境制定非对错标准控制你的大脑](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中日财经爆│日本在世界半导体行业不可或缺](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大阿省500名未接种医护人员重返岗位](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [【圆成原创】人吃人的社会，救救孩子](/content/gnews/20/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [山东聊城公开招募中共病毒新疫苗试验者](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦绝对会阻止中共和达沃斯党剥削奴役整个人类](/content/gnews/22/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [班农先生谈背叛](/content/gnews/23/README.md)
+ ` 雅典娜GNotes`
+
+### [丹麦报纸为盲目给政府新冠言论背书而道歉](/content/gnews/24/README.md)
+ ` 秘密翻译组-原创组`
+
+### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场`
+
+### [传统加密货币价格暴跌，千亿美元蒸发](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [【圆成原创】中共国经济必垮的理论支撑](/content/gnews/27/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [1/22 银河快讯:日本央行决定延长中小企业支持措施；日本批准辉瑞疫苗用于5-11岁儿童](/content/gnews/29/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [有声|接种疫苗后的可怕后遗症](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [骗取喜币是犯罪行为](/content/gnews/31/README.md)
+ ` G-NEWS TAIWAN`
+
+### [有声|谈谈看到七哥童年照片时的感想](/content/gnews/32/README.md)
+ ` MOSREC`
+
+### [1/23银河快讯:岸田内阁支持率仍保持在52%；30%政府收入将来自债券](/content/gnews/33/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [过去和现在的七哥，不同的脸庞一样的灵魂！](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [未接种疫苗的人导致了大瘟疫，英格兰的数据并不支持这点](/content/gnews/36/README.md)
+ ` DC政经`
+
+### [IMF主席称中共清零政策已成世界经济负担](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [荷兰光刻机大厂抓出中共内鬼取销中共订单](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [布鲁塞尔再次反对新冠病毒措施的示威](/content/gnews/39/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [1/23/2022国内经济财经周报：奥园公开叫嚣未来2年不还债；中石油子公司倒卖原油1.8亿吨](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [郭先生在磐石农场开幕典礼谈及教育](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦创始人郭文贵先生寄语G-EDU上线](/content/gnews/42/README.md)
+ ` GTV新闻访谈`
+
+### [数据灭共：老百姓的钱都去哪了](/content/gnews/43/README.md)
+ ` GTV新闻访谈`
+
+### [62%注射过mRNA新冠疫苗的病人有细小血栓](/content/gnews/44/README.md)
+ ` DC政经`
+
+### [春天的故事](/content/gnews/45/README.md)
+ ` 骄子`
+
+### [7•24系列——中共梦断ASML高端光刻机](/content/gnews/46/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美参议院提出对中共入侵台湾实施全面经济金融制裁](/content/gnews/47/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022/01/21 墙内世界](/content/gnews/48/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [网友吐槽哈尔滨防疫形同虚设，发视频却被威胁](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

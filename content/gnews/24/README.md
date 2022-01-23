@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|中共挥霍数万亿邀外国政要站台北京冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1898674/)
+## 丹麦报纸为盲目给政府新冠言论背书而道歉
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1898712/)
 
-配音：香草山农场 – 纳米
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1..jpg)
+图片来源：Extra Bladet
 
+一家丹麦主流报纸《Ekstra Bladet》1月7号为之前 “催眠式 “地、不加怀疑地追随政府对冠状病毒的叙述而向其读者公开道歉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月21日，郭文贵先生在盖特视频中透露，中共不惜花费数万亿人民币利诱俄罗斯以及其他几个小国家给此次冬奥会站台、捧场。
+Ekstra Bladet的标题是：”我们失败了”，该报编辑部在其中写道：”近两年来，作为媒体和民众，我们几乎被当局每天的冠状病毒数字催眠了”。 文章指责政客和当局在大流行的各个方面“撒谎”，导致这些机构失去公众信任，并指出卫生当局也大大夸大了疫苗结束大流行的功效。 该文质疑丹麦对儿童进行的大规模疫苗接种，而瑞典或挪威均还没有这样做过。
 
-郭先生爆料称，在即将到来的中共北京冬奥会上，仅普京一人24小时的出场费就高达一千多亿美元，这相当于中共国内某省份整整一年的总产值。然而，努力创造了这些财富的中国人民却变得日益穷困、多病，更遭受着非人的待遇。郭先生为此感叹道，中共国的财富都是由百姓创造的，但它们却被中共盗国贼们拿去肆意挥霍。而普通百姓的悲哀在于，他们的快乐更少，疾病却越来越多。
+作为媒体，本应该对政府保持警觉和监督，而媒体却失职了。文章说，官方公布的住院人数比医院实际住院人数高出 27%，而有多少人死于新冠病毒的数据早应该被公布，当局本应该“负责及时、准确和诚实地告知民众”。
 
-文字版原文：[中共挥霍数万亿邀外国政要站台北京冬奥会](https://gnews.org/zh-hans/1894926/)
+“疫苗一直被称为我们的‘超级武器’。我们的医院被称为‘超级医院’，”编辑写道。 “这些超级医院显然受到了最大的压力，尽管几乎所有人员都配备了超级武器。甚至儿童也大规模接种了疫苗，这在我们的邻国还没有做。” 编辑嘲讽说，当局与民众的沟通绝对配不上“超级”一词。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+公开道歉是欧洲媒体日益增长的趋势，媒体已开始质疑政府的叙述和反应。例如，德国顶级报纸之一的《图片报》就去年 8 月对新冠病毒的恐慌发表了道歉，当时该报声称孩子们“会谋杀他们的祖母”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+《图片报》主编 Julian Reichelt 说，“对于我们的社会对这个国家的数百万儿童负责，我想在这里表达我们的政府和总理都不敢告诉你们的话， 我们请求您原谅我们，我们的这些政策让孩子们成为暴力、忽视、孤立和孤独的受害者。我们曾经说服我们的孩子，说如果他们敢于做他们自己，他们会谋杀他们的祖母，或者他们的朋友。而我们说这些都没有得到科学证明。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+来源链接
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[Extra Bladet](https://ekstrabladet.dk/nyheder/lederen/vi-fejlede/9072013)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[‘WE FAILED!”](https://gellerreport.com/2022/01/we-failed-denmarks-largest-newspaper-apologizes-for-mindlessly-parroting-government-narrative.html/)
 
  
 
