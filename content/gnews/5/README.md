@@ -2,26 +2,27 @@
 ---
 
 
-## 欧盟药监机构担忧定期加强针的危害，福奇听证会发飙
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896703/)
+## 郭共大战美国战场法律超限战涉及的机构和人物关联图
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1896763/)
 
-##### 翻译：文载Jenny
-校对：枳实
-剪辑|字幕：向上James
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220122-1-scaled.jpg)图片来源：GNews
+相关案件资料链接：
 
-据福克斯新闻报道，欧洲药品管理者表示怀疑是否有必要打第四加强针疫苗。 其在周二对是否有必要注射新冠疫苗第四剂加强针表示怀疑, 并且对于每四个月需要打一次加强针的前景表示关注,担忧这是否会让人们的免疫系统超载。嘉宾表示，公众已经对接种加强针感到质疑，对得不到病毒真相感到疲倦。福奇也在继续提供混乱的信息，福奇在听证会戴着口罩走进来， 但是当兰德保罗开始质疑他，福奇变得疯狂，扯下口罩。
+1. 2020年8月17日，美利坚合众国（原告）诉[妮基·马里·鲁姆·戴维斯](https://www.followcn.com/chinese/wp-content/uploads/2020/08/DOJ_20200817_Case1_20-cr-00068-LEK-Simplified.V3.pdf)（NICKIE MALI LUM DAVIS被告）
 
-视频链接：[European Union’s drug regulator raised concerns that giving boosters every four months hypothetically poses the risk of overloading people’s immune systems. Dr. Fauci got mad under the questioning of Senator Marshall.](https://video.foxnews.com/v/6291384634001#sp=show-clips)
+2. 2018年11月30日，美司法部雇员[George Higginbotham认罪](https://www.justice.gov/opa/pr/former-justice-department-employee-pleads-guilty-conspiracy-deceive-us-banks-about-millions)的新闻报道
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+3. 2020年2月19日，[Samuel Dan Nunberg（原告）诉 Guo Wengui（被告）](https://lawandcrime.com/lawsuit/former-trump-aide-sues-billionaire-chinese-mar-a-lago-member-for-defamation/)
+
+4. 2021年9月13日，SEC与GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.,的[和解书](https://www.sec.gov/litigation/admin/2021/33-10979.pdf)
+
+5. 2021年6月22日，郭文贵先生（Eastern Profit，原告）诉French Wallop和Mike Waller（Strategic Vision，被告）议案的[判决书](https://www.docketalarm.com/cases/New_York_Southern_District_Court/1--18-cv-02185/Eastern_Profit_Corporation_Limited_v._Strategic_Vision_US_LLC/372/)
+
+6. 2020年12月18日，与CCP利益关系密切的法官Barry Ostrager偏向PAX的[阶段性裁决](https://cases.justia.com/new-york/other-courts/2020-2020-ny-slip-op-34210-u.pdf?ts=1608761660)
+
+7. 2022年1月14日，法官撤销Cahill的律师Edwards Moss代理PAX（原告）诉郭文贵先生（被告）一案的[资格的新闻报道](https://www.reuters.com/legal/litigation/judge-disqualifies-cahill-law-firm-investor-fight-with-billionaire-guo-wengui-2022-01-15/)
+
+校对：
 
  
 

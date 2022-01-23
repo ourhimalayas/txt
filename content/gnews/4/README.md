@@ -2,22 +2,26 @@
 ---
 
 
-## 秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1896717/)
+## 盖特正在从硅谷的寡头手中夺取并分散更多的话语权
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896769/)
 
-撰稿:沙莉
-![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-34.png)(图片源于本文链接)
-1月22日，伊维菌素的研制者大村智教授，在冈山市就伊维菌素对治疗中共病毒(新冠病毒)感染的有效性作了说明。
+##### 翻译：Lish
+校对：精靈藍
+剪辑|字幕：蛮吉
+编辑：Mttfly
 
-诺贝尔医学生理学获得者、北里大学特别荣誉教授大村智先生22日在冈山市举办了一场讲座。 大村先生表示对自己开发的，贡献于人类的抗寄生虫药物伊维菌素在治疗中共病毒(新冠病毒)感染的有效性上有信心。
+盖特CEO杰森·米勒在接受福克斯玛丽亚采访时表示，像马龙博士那样的人参加对于疫苗副作用的激烈辩论，这本就是民主思想与中共专制思想的区别。盖特最近达到了400万用户，在问及盖特要去向何方以及川普总统的“真相媒体”时，米勒先生表示，希望更多的平台崛起，夺回话语权。
 
-伊维菌素是用于治疗由寄生虫和蜱虫引起的感染的口服药，在海外被发现它能有效地抑制中共病毒冠状病毒的增长。目前日本正在进行临床试验，以期获准它能成为中共病毒冠状病毒的治疗药。
+视频链接：[GETTR is taking power away from Silicon Valley oligarchs and decentralizing more](https://www.gettr.com/post/pnp3z2f178)
 
-由于病毒感染人数的迅速增长，讲座以预先录制的视频形式进行。大村先生解释说：已发现伊维菌素可以防止病毒的生长并增强人体的免疫力。实际上它已在印度的一些州和印度尼西亚被使用，并且已被证明具有诸如平息感染传播的效果。
-
-信息来源:[抗寄生虫薬 コロナ治療効果に自信　ノーベル賞大村氏、岡山で講演：山陽新聞デジタル｜さんデジ (sanyonews.jp)](https://www.sanyonews.jp/article/1221093/)
-
-责编:待命(文晓)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

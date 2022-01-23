@@ -2,27 +2,23 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月20日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896616/)
+## 中国人要为过去的这70年的轻信和无知付出代价
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1896682/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0120text-SC.png)
+中国人的懦弱无知，像猪狗一样的活着。这些年给生灵涂炭带来的代价，和社会和自然，要付出代价的。
 
+**【郭先生直播摘要】**** 2022.1.19 ****中国人要为过去的这****70****年的轻信和无知付出代价**
 
-文字版原文：[GTV新闻访谈简报|2022年1月20日晚](https://gnews.org/zh-hans/1887247/)
+**郭先生****:**
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+马上不会超过一个，全世界很多国家政府就是测核糖核酸，都是在家测和电脑上测。那么 PCR的检测不（用了），大家都在家可以检测的时候，这个过程呢失去了一个抓手。那么共产党当面临着国内。很多心脏病和打了疫苗，特别是打了第三针，我再重申一遍，三针之内的两针吃青蒿素。因为菌数一定能产出，你所有身上的毒能救你。如果你不吃你50%机会得癌症。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+我再重申一遍，那么这个打了3针以上的疫苗的孩子，老人后遗症，心脏病心肌炎，你看到了现在500个世界级的运动员。死掉或者休克，你看看澳洲的澳网的人，打着打着扑腾就蹲在地上了。人类上从来没发生过，最健康最年轻的人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+那么这种情况下官方就穷凶极恶了，我要找各种理由把你们关在家里，一定会发生无数次的香港大屠杀，天安门大屠杀。就是中国人，可能是人类上就像阿富汗。此时此刻很多人在饿死一样，啊中国人要为过去的这70年的轻信，和无知真心的相信爹亲，娘亲不如党亲的这种流氓思想，和中国人的懦弱无知。像猪狗一样的活着，说这些年，给生灵涂炭带来的代价和社会和自然，你要付出的。
+
+视频剪辑：CG. |听写：烟波浩淼 | 翻译：阿基米德 | 校对：Polaris | 视频制作+字幕：CG. |编辑&发布：断播
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
