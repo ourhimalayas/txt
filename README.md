@@ -15,94 +15,94 @@
 
 ---
 
-### [班农先生说：我们一定要解放中国人民！](/content/gnews/1/README.md)
+### [【圆成原创】人吃人的社会，救救孩子](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [山东聊城公开招募中共病毒新疫苗试验者](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦绝对会阻止中共和达沃斯党剥削奴役整个人类](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [传统加密货币价格暴跌，千亿美元蒸发](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [【圆成原创】中共国经济必垮的理论支撑](/content/gnews/5/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [1.21大直播后记：七哥谈新西兰的疫苗政策](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [有声|中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/2/README.md)
+### [班农先生说：我们一定要解放中国人民！](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [1/22 银河快讯:日本央行决定延长中小企业支持措施；日本批准辉瑞疫苗用于5-11岁儿童](/content/gnews/3/README.md)
+### [1/22 银河快讯:日本央行决定延长中小企业支持措施；日本批准辉瑞疫苗用于5-11岁儿童](/content/gnews/9/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [是共产党和达沃斯党威胁全世界打开潘多拉给世界开药方](/content/gnews/4/README.md)
+### [有声|接种疫苗后的可怕后遗症](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [是共产党和达沃斯党威胁全世界打开潘多拉给世界开药方](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [骗取喜币是犯罪行为](/content/gnews/5/README.md)
+### [中国证劵报22日消息：春节返乡政策有望撬动检测试剂超千亿市场增量。](/content/gnews/12/README.md)
+ ` 首尔天池农场`
+
+### [骗取喜币是犯罪行为](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [班农谈谁是我们的敌人，谁是我们家人](/content/gnews/6/README.md)
+### [班农谈谁是我们的敌人，谁是我们家人](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦和喜币放在一起敲响达沃斯党丧钟灭掉万年愚](/content/gnews/7/README.md)
+### [新中国联邦和喜币放在一起敲响达沃斯党丧钟灭掉万年愚](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳英加强军事合作应对中共国风险](/content/gnews/8/README.md)
+### [澳英加强军事合作应对中共国风险](/content/gnews/16/README.md)
  ` 走进澳洲`
 
-### [一人一票的选择是我们所追求的](/content/gnews/9/README.md)
+### [一人一票的选择是我们所追求的](/content/gnews/17/README.md)
  ` G-NEWS TAIWAN`
 
-### [美国及世界疫情简报 （01-23-2022）](/content/gnews/10/README.md)
+### [美国及世界疫情简报 （01-23-2022）](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [班农谈平民运动](/content/gnews/11/README.md)
+### [班农谈平民运动](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [有声|谈谈看到七哥童年照片时的感想](/content/gnews/12/README.md)
+### [有声|谈谈看到七哥童年照片时的感想](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [1/23银河快讯:岸田内阁支持率仍保持在52%；30%政府收入将来自债券](/content/gnews/13/README.md)
+### [1/23银河快讯:岸田内阁支持率仍保持在52%；30%政府收入将来自债券](/content/gnews/21/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [喜币让想把数字货币权力操控在手里的达沃斯党寝食难安](/content/gnews/14/README.md)
+### [喜币让想把数字货币权力操控在手里的达沃斯党寝食难安](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦冷钱包将断送中共金融命脉](/content/gnews/15/README.md)
+### [新中国联邦冷钱包将断送中共金融命脉](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
 
-### [班农先生一想到一说到能帮助中国老百姓，眼睛都放光](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [过去和现在的七哥，不同的脸庞一样的灵魂！](/content/gnews/17/README.md)
+### [过去和现在的七哥，不同的脸庞一样的灵魂！](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略](/content/gnews/18/README.md)
+### [英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [爆料革命郭文贵预言美国经济暴跌不打疫苗推出虚拟货币](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [疫苗停止后的法律争议](/content/gnews/20/README.md)
- ` G-NEWS TAIWAN`
-
-### [强制中共病毒疫苗接种就是执行死刑](/content/gnews/21/README.md)
+### [强制中共病毒疫苗接种就是执行死刑](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [仿制口服抗中共病毒药物将要祸害中低收入国家](/content/gnews/22/README.md)
+### [仿制口服抗中共病毒药物将要祸害中低收入国家](/content/gnews/27/README.md)
  ` G-NEWS TAIWAN`
 
-### [不要溢出效应就是用14亿中国奴隶把西方的泡沫收回去](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美反对强化世卫计划阻止中共渗透](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [浅谈台湾推行疫苗接种数位证明的动机与代价](/content/gnews/25/README.md)
- ` G-NEWS TAIWAN`
-
-### [班农先生不惧任何攻击](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [未接种疫苗的人导致了大瘟疫，英格兰的数据并不支持这点](/content/gnews/27/README.md)
+### [未接种疫苗的人导致了大瘟疫，英格兰的数据并不支持这点](/content/gnews/28/README.md)
  ` DC政经`
 
-### [欧洲议会新决议再次敦促成员国抵制北京冬奥](/content/gnews/28/README.md)
+### [欧洲议会新决议再次敦促成员国抵制北京冬奥](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [IMF主席称中共清零政策已成世界经济负担](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [日本即将终结对华“官方开发援助”](/content/gnews/30/README.md)
+### [IMF主席称中共清零政策已成世界经济负担](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [荷兰光刻机大厂抓出中共内鬼取销中共订单](/content/gnews/31/README.md)
