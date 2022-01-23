@@ -15,94 +15,94 @@
 
 ---
 
-### [每日快报：疫苗三针注射的感染率比未接种的人更高更快](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [文贵天成——文贵先生谈“曾庆红”（三）](/content/gnews/2/README.md)
+### [7.24系列——魔鬼的盛宴：七哥眼里的达沃斯党](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：目前比特币全网未确认交易数量为9712笔](/content/gnews/3/README.md)
+### [新中国联邦创始人郭文贵先生寄语G-EDU上线](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [每日快报：疫苗三针注射的感染率比未接种的人更高更快](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年1月22日郭先生盖特 — 视频1「2分36秒」](/content/gnews/4/README.md)
+### [文贵天成——文贵先生谈“曾庆红”（三）](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [币圈新闻动态：目前比特币全网未确认交易数量为9712笔](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2022年1月22日郭先生盖特 — 视频1「2分36秒」](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [数据显示，加强针接种者正快速演变为艾滋病](/content/gnews/5/README.md)
+### [数据显示，加强针接种者正快速演变为艾滋病](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灭共者之郭氏情报站（十五）2022/01/21 文贵大直播](/content/gnews/6/README.md)
+### [灭共者之郭氏情报站（十五）2022/01/21 文贵大直播](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [文贵视角:达沃斯就是吸取地球人血液的吸血鬼、恶魔](/content/gnews/7/README.md)
+### [文贵视角:达沃斯就是吸取地球人血液的吸血鬼、恶魔](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|周四晚Twitter发生严重宕机事故](/content/gnews/8/README.md)
+### [有声|周四晚Twitter发生严重宕机事故](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|近900万美国人因中共病毒向雇主请病假](/content/gnews/9/README.md)
+### [有声|近900万美国人因中共病毒向雇主请病假](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”](/content/gnews/10/README.md)
+### [有声|法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [盖特正在从硅谷的寡头手中夺取并分散更多的话语权](/content/gnews/11/README.md)
+### [盖特正在从硅谷的寡头手中夺取并分散更多的话语权](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [私人航天投资创历史新高 去年有145亿美元涌入航天业](/content/gnews/12/README.md)
+### [私人航天投资创历史新高 去年有145亿美元涌入航天业](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭共大战美国战场法律超限战涉及的机构和人物关联图](/content/gnews/13/README.md)
+### [郭共大战美国战场法律超限战涉及的机构和人物关联图](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [世茂300亿卖上海项目，7.7折卖地块股权](/content/gnews/14/README.md)
+### [世茂300亿卖上海项目，7.7折卖地块股权](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/21/2022 文贵直播：文贵的亲身经历反映出中共让全世界对海外华人产生的反感，因此我们要更加勤奋地传播爆料革命真相，这是我们神圣的使命](/content/gnews/15/README.md)
+### [1/21/2022 文贵直播：文贵的亲身经历反映出中共让全世界对海外华人产生的反感，因此我们要更加勤奋地传播爆料革命真相，这是我们神圣的使命](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [巴基斯坦谢里夫证明中共腐败各国的领导人](/content/gnews/16/README.md)
+### [巴基斯坦谢里夫证明中共腐败各国的领导人](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新罕布什尔州寻求将非处方使用伊维菌素合法化](/content/gnews/17/README.md)
+### [新罕布什尔州寻求将非处方使用伊维菌素合法化](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心](/content/gnews/18/README.md)
+### [秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟药监机构担忧定期加强针的危害，福奇听证会发飙](/content/gnews/19/README.md)
+### [欧盟药监机构担忧定期加强针的危害，福奇听证会发飙](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [扬帆每日速递 2022年1月22日版（2）](/content/gnews/20/README.md)
+### [扬帆每日速递 2022年1月22日版（2）](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [英国外交大臣警告，中共和俄罗斯的威胁已经波及全球](/content/gnews/21/README.md)
+### [英国外交大臣警告，中共和俄罗斯的威胁已经波及全球](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|GTV新闻访谈简报|2022年1月21日早](/content/gnews/22/README.md)
+### [有声|GTV新闻访谈简报|2022年1月21日早](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|中美在南海西沙群岛区域发生争执](/content/gnews/23/README.md)
+### [有声|中美在南海西沙群岛区域发生争执](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|日本国会数据再次印证疫苗无效](/content/gnews/24/README.md)
+### [有声|日本国会数据再次印证疫苗无效](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|区块链和加密货币将带领人类进入下一个未来](/content/gnews/25/README.md)
+### [有声|区块链和加密货币将带领人类进入下一个未来](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2022年1月20日晚](/content/gnews/26/README.md)
+### [有声|GTV新闻访谈简报|2022年1月20日晚](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|美股新年伊始即现危机](/content/gnews/27/README.md)
+### [有声|美股新年伊始即现危机](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [有声|达沃斯精英企图剥夺私有财产施行共产主义](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声|欧盟可能以能耗过大取消加密货币开采的工作模式](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [有声|中共与世界经济脱钩，中国人将获自由](/content/gnews/30/README.md)
+### [有声|达沃斯精英企图剥夺私有财产施行共产主义](/content/gnews/30/README.md)
  ` MOSREC`
 
 ### [GTV新闻访谈简报|2022年1月22日晚](/content/gnews/31/README.md)

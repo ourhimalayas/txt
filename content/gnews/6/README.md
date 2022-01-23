@@ -2,67 +2,20 @@
 ---
 
 
-## 灭共者之郭氏情报站（十五）2022/01/21 文贵大直播
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1896866/)
+## 2022年1月22日郭先生盖特 — 视频1「2分36秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1896877/)
 
-出品：纽约香草山设计部 – 喜马拉雅大喵儿，天马星空J
+听写：洛杉矶盘古农场 — Antsee-GTV
 
+Video link: [https://gettr.com/post/ppys4db8a8](https://gettr.com/post/ppys4db8a8)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/426D257D-65CE-4532-91DE-E86E630AB82E.jpeg)
+兄弟姐妹们，你健身了吗？兄弟姐妹们，这共产党真完球蛋了：在国内抓人；银行钱取不出来；房地产很多城市打5折都没人买 — 咋弄嘞？！下周你会看到冬奥会的很多灾难的新闻会出来。完了！完了！完了！
 
+【🎵】Hcoin To the Moon～～～飞啦！飞啦！Hcoin To the Moon！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+真好！别忘了锻炼，兄弟姐妹们。昨天的大直播太好了。给大家报告一下：明天星期天没有大直播，星期一也不确定，因为连着两天都开很重要很重要的会。如果星期一开完了，星期一有大直播；如果星期天没开完星期一还要继续开，那就是星期二直播了，甚至推到星期三了。
 
-
-
-
-
-
-
-
-
-**灭共者-郭氏情报站 **
-**2022年1月21日 文贵大直播总结提炼**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C2C49B37-1894-45BB-B246-7E5E137C0F5E.png)
-
-1、西方世界和中共的政治经济脱钩今天开始！全世界没有选择，政治上只能和新中国联邦，经济只能和喜联储挂钩！
-
-2、冬奥会是上天的礼物，是共产党的噩梦。习近平的清零政策犯了3个大忌。1）宣布成功太早；2）清零违背常理的自杀行为；3）经济崩塌！
-
-3、科技和金融是共产党的两条腿，灭共先打断共产党这两条腿。芯片是共产党的核心，没有科技，共产党全部归零。
-
-4、七哥对中国人改掉“羊文化”没有信心，是最大的难题之一。警告：脱交后，中共国护照都会作废，回国有可能性，出来就没有可能了。
-
-5、美国正在研究和稳定的私人数字货币机构合作，这个私人机构，只有喜联储一家。喜支付上线，流通规模有多大，无人可挡。喜联储未来7%的回报存款，还有贷款、保险、钱包（热-银行，冷-自己家保险箱）。数字银行的投资，战友会成立5-6家公司，和大股东一样的话语权。
-
-**上一期：**
-
-**[灭共者之郭氏情报站（十四）2022/01/20 文贵大直播 – GNEWS](https://gnews.org/zh-hans/1891566/)**
-
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+没办法了兄弟姐妹们，抱歉，好吧？等通知吧。啥都不说了，姆盖嗮～
 
  
 

@@ -2,30 +2,39 @@
 ---
 
 
-## 世茂300亿卖上海项目，7.7折卖地块股权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896755/)
+## 私人航天投资创历史新高 去年有145亿美元涌入航天业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896764/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-35.jpg)世茂300亿卖上海项目，7.7折卖地块股权 网络图片
-据澎湃新闻1月22日报道，世茂集团21日公告称，以10.6亿元的总价出售上海北外滩核心区项目公司股权。该项目原报价13.8亿元，现以七七折售出。自从去年8月宣布出售资产至今，世茂集团已经成交两个项目，回笼现金31.46亿元。
+**翻译：文扬**
+**编辑：Candy**
 
-世茂集团放售上海10个项目，总报价为296.06亿元。除了北外滩，其他9个项目对外报价近282.26亿元，已经抵押融资163.18亿元。如果10个项目全部出售，世茂集团最多可回笼资金129.68亿元。
-
-当初多大手笔买，如今多大手笔卖，中共国房地产业已经病入膏肓。变卖资产只是打一剂强心针，勉强支撑一下，最后还是要倒下，再也站不起来。假的就是假的，不可能撑到最后。
-
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16400756](https://www.thepaper.cn/newsDetail_forward_16400756)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/太空.png)图片来源：RT商务网
 
 
-编辑：【英国伦敦喜庄园编辑部】
+总部位于纽约的太空资本公司(Space Capital)的研究显示，太空基础设施公司在2021年得到了数十亿美元的私人投资。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+这些资金比前一年增长了50%以上，达到创纪录的145亿美元。
 
+在经历了历史性的载人航天第三季度之后，第四季度带来了43亿美元的收入。这要归功于Sierra Space、埃隆·马斯克(Elon Musk)的SpaceX和Planet Labs的2.5亿美元或以上的 “巨额融资”。
 
+太空资本总共追踪了1694家公司，这些公司自2012年以来，在全球范围内累计筹集了近2530亿美元的股权投资，涉及三个空间类别——基础设施、分销和应用。
+
+太空资本的管理合伙人查德·安德森(Chad Anderson)说：“当我们展望未来时，我们看到了巨大的机会，可以大规模采用现有的基础设施，因为我们寻找全新的方法来建造和运营以航天为基础的资产。”
+
+报告称，航天相关公司去年获得了 171 亿美元的风险投资，占 2021 年全球风险投资总额的 3%。
+
+安德森说: “对于投资者来说，重要的是要意识到对太空经济的投资需要专业知识。 我们相信这将在 2022 年变得更加明显，因为其中一些被高估的公司回归现实，而优质公司则脱颖而出。”
+
+**原文链接：** [Private space investment hits all-time high — RT Business News](https://www.rt.com/business/546422-private-space-investment-high/)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

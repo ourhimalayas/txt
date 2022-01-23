@@ -2,77 +2,238 @@
 ---
 
 
-## 币圈新闻动态：目前比特币全网未确认交易数量为9712笔
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1896916/)
+## 每日快报：疫苗三针注射的感染率比未接种的人更高更快
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1896946/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+*作者：GSeries*
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
+# ***今日摘要***
 
-
-## 每日一问
-
-
-
-
-
-币圈极端恐慌时，我们该做些什么？
+1. **[英国最新数据显示 疫苗三针注射的感染率比未接种的人更高更快](https://www.thegatewaypundit.com/2022/01/just-latest-uk-data-shows-covid-infection-rate-among-triple-jabbed-boosted-higher-rising-faster-unvaccinated-across-almost-every-age-group-proving-vax-passports-effecti/)**
+2. **[武汉合作者 “生态健康联盟 “刚又获得拜登政府有史以来最大的一笔资助](https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/)**
+3. **[美国大使馆下令从乌克兰疏散非必要的工作人员和外交官的家属](https://www.zerohedge.com/geopolitical/us-embassy-ukraine-orders-evacuation-all-non-essential-staff-diplomats-family-members)**
+4. **[英国报道：克里姆林宫试图在乌克兰安插亲俄领导人](https://www.newsmax.com/world/globaltalk/kremlin/2022/01/22/id/1053548/)**
+5. [**可口可乐赞助北京冬奥会遭批**](https://gnews.org/zh-hans/1896604/)
 
 
+# 重要事件
+
+- **[01.22. Gateway Pundit：英国最新数据显示，在几乎所有的年龄组中，三针注射的Covid感染率比未接种的人更高，而且上升速度更快 JUST IN: Latest UK Data Shows Covid Infection RATE Among the Triple Jabbed (Boosted) Is HIGHER And RISING FASTER Than The Unvaccinated Across ALMOST EVERY Age Group](https://www.thegatewaypundit.com/2022/01/just-latest-uk-data-shows-covid-infection-rate-among-triple-jabbed-boosted-higher-rising-faster-unvaccinated-across-almost-every-age-group-proving-vax-passports-effecti/)**
 
 
+英国政府的最新官方健康数据显示，在12月20日至1月16日期间，三联疫苗接种者再次占所有Covid-19住院病人的大多数，而双联疫苗接种者–以前被称为完全打过疫苗的人–也不远。不足为奇的是，即使在高感染性和类似于常染色体的Omicron变体成为主导菌株的情况下，未接种疫苗的人也保持了稳定的感染率。
 
-## 喜马拉雅交易所要闻
+推特用户@tlowdon把一个长长的推特主题放在一起，他在其中谈到了英国最近发布的数据中的信息。但从另一个角度来看，不仅两针/三针接种者占了总体病例的大多数，而且接种者实际上以每10万人中明显高于未接种者的速度传播病毒–这几乎涉及所有年龄段的人口。如图所示，只有18岁以下或18-29岁之间的人在接种三联疫苗时没有经历明显的高感染率，而这些人是最不可能接种疫苗的人，更不用说他们的加强剂了。从30岁开始，已接种疫苗者的病例开始急剧增加，超过了未接种疫苗者，50-59岁年龄段的病例高达3,996/100,000，与该年龄段未接种疫苗者的2,133/100,000的比率相比，惊人地高出89%。
 
-
-
-
-
-- 喜交所网站行情显示，喜币（HCN）价格目前在41.370 HDO，24H最高价格为42.000 HDO，24H最低价格为41.100 HDO，24H成交量约为37108.843HCN。
+换句话说，已接种疫苗的人和完全接种疫苗的人是传播这种病毒的主力军，这基本上证明了疫苗护照和围绕疫苗的类似规定实际上是毫无意义的。事实上，数据还显示，就像上一轮公共卫生数据一样，完全接种疫苗的人继续占每4个欧米茄住院病人中的3个，这与英国的整体疫苗接种率相一致。但是，三针疫苗接种者的数量最大，他们也在以越来越快的速度传播病毒。
 
 
 
+- **[01.23 The National Pulse：武汉合作者 “生态健康 “刚刚获得乔-拜登政府有史以来最大的一笔资助 Wuhan Collaborators ‘EcoHealth’ Just Received One Their Largest EVER Grants, From Joe Biden’s Government](https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/)**
+
+
+生态健康联盟–一个与武汉病毒研究所合作操纵类似COVID-19的蝙蝠冠状病毒的美国非营利组织–获得了乔-拜登的白宫有史以来最大的一笔拨款。
+
+在失宠的彼得-达斯扎克–安东尼-福奇的长期盟友–的领导下，生态健康公司的拜登时代的新拨款于2021年10月26日开始。这是在美国国立卫生研究院（NIH）承认该组织与武汉实验室一起从事功能增益研究后不到一周的时间，该组织未能 “按照资助条款的要求 “报告其研究结果。
+
+功能增益研究需要增加病原体的致命性、毒力和传播性，武汉病毒研究所网站删除的网页显示，该实验室与生态健康联盟一起参与了这项研究。正如罗格斯大学化学和化学生物学理事会教授理查德-埃布莱特博士在10月20日的信中解释的那样：NIH纠正了NIH主任Collins和NIAID主任Fauci的不实之词，即NIH没有资助武汉的功能增益研究。
+
+拜登的拨款将为达斯扎克提供新的470万美元的美国纳税人现金，直到2026年。”美国国际开发署的CWA是通过加强保护区和帮助社区减少对保护资源的依赖来保护受威胁和濒危物种，”拨款的描述指出。这笔现金是生态健康联盟从美国国际开发署获得的最大一笔资金，下一笔资金总额不到200万美元。拜登支持的470万美元拨款也是该组织从联邦机构获得的第三大拨款。
+
+除了生态健康联盟关于其参与武汉病毒研究所功能增益研究的谎言之外，该组织的主席彼得-达斯扎克还与中国共产党及其宣传喉舌步调一致，带头努力粉碎关于COVID-19有实验室来源的说法。在《国家脉搏》揭露了达斯扎克的广泛利益冲突后，他被《柳叶刀》医学杂志的COVID-19起源委员会回避。
 
 
 
-## 新闻动态
+- **[01.22. ZeroHedge：美国大使馆下令从乌克兰疏散非必要的工作人员和外交官的家属 US Embassy Orders Evacuation Of Non-Essential Staff & Diplomats’ Family Members From Ukraine](https://www.zerohedge.com/geopolitical/us-embassy-ukraine-orders-evacuation-all-non-essential-staff-diplomats-family-members)**
+
+
+福克斯新闻的五角大楼记者周六早些时候报道，所有在乌克兰基辅的美国使馆人员的家属已经被命令撤离。”国务院命令美国驻乌克兰大使馆人员的家属最快于周一开始撤离该国。美国官员，”福克斯的卢卡斯-汤姆林森报道。
+
+周五首次出现的消息是，拜登政府正在酝酿一项计划，作为一项 “预防措施 “从乌克兰撤离外交官的家属，在持续的危机中，华盛顿预测俄罗斯会在乌克兰边境发动某种程度的进攻。目前还不清楚这是否意味着美国情报部门在乌克兰边境附近发现了来自俄罗斯的特定新 “威胁”。
+
+正如汤姆林森进一步报道的那样，俄罗斯战斗机在周五至周六开始抵达附近的白俄罗斯，美国官员对乌克兰的首都 “现在处于十字路口 “表示震惊。福克斯新闻的五角大楼记者周六早些时候报道，所有在乌克兰基辅的美国使馆人员的家属已经被命令撤离。”国务院命令美国驻乌克兰大使馆人员的家属最快于周一开始撤离该国。美国官员，”福克斯的卢卡斯-汤姆林森报道。
+
+周五首次出现的消息是，拜登政府正在酝酿一项计划，作为一项 “预防措施 “从乌克兰撤离外交官的家属，在持续的危机中，华盛顿预测俄罗斯会在乌克兰边境发动某种程度的进攻。目前还不清楚这是否意味着美国情报部门在乌克兰边境附近发现了来自俄罗斯的特定新 “威胁”。
+
+正如汤姆林森进一步报道的那样，俄罗斯战斗机在周五至周六开始抵达附近的白俄罗斯，美国官员对乌克兰的首都 “现在处于十字路口 “表示震惊。周五，安东尼-布林肯和俄罗斯总理谢尔盖-拉夫罗夫在日内瓦会谈期间，似乎有积极的迹象表明，对话正在向缓和局势开放。就在这之后，美国驻基辅大使馆发布了新近抵达的美国为乌克兰部队提供援助的照片。
+
+
+
+- **[01.22. NewsMAX：英国报道：克里姆林宫试图在乌克兰安插亲俄领导人 UK: Kremlin Trying to Install Pro-Russian Leader in Ukraine](https://www.newsmax.com/world/globaltalk/kremlin/2022/01/22/id/1053548/)**
+
+
+英国周六指责克里姆林宫试图在乌克兰安插一个亲俄罗斯的领导人，并称俄罗斯情报人员一直在与一些前乌克兰政治家接触，这是入侵计划的一部分。
+
+英国外交部拒绝提供支持其指控的证据，该指控发生在俄罗斯和西方国家因俄罗斯在其与乌克兰边境附近集结军队而关系高度紧张的时候。莫斯科坚称它没有入侵的计划。英国外交部说，它掌握的信息是，俄罗斯政府正在考虑将乌克兰前立法者耶夫亨-穆拉耶夫作为亲俄领导层的潜在候选人。
+
+英国外交大臣利兹-特拉斯在一份声明中说：”今天公布的信息照亮了俄罗斯旨在颠覆乌克兰的活动范围，也是对克里姆林宫思维的一种洞察。俄罗斯必须缓和局势，结束其侵略和虚假信息的活动，并寻求外交途径。正如英国和我们的合作伙伴一再表示的那样，俄罗斯对乌克兰的任何军事入侵都将是一个巨大的战略错误，并将付出严重的代价。”
+
+英国的声明是在莫斯科和基辅时间周日的凌晨发布的，克里姆林宫和穆拉耶夫没有立即发表声明。外交部的一位消息人士说，分享情报事项不是通常的做法，这些细节是在仔细考虑后才解密的，以阻止俄罗斯的侵略。英国的说法是在美国和俄罗斯高层外交官未能在解决乌克兰危机的会谈中取得重大突破的第二天提出的，尽管他们同意继续会谈。俄罗斯向美国提出了安全要求，包括停止北约的东扩，并保证永远不允许乌克兰加入西方军事联盟。
+
+- [** 01.23. GNEWS ：可口可乐赞助北京冬奥会遭批**](https://gnews.org/zh-hans/1896604/)
+
+
+据俄罗斯卫星通讯社1月23 日暨《华盛顿时报》报道，监督组织“媒介准确”发起了一项活动，在可口可乐公司总部前放了一块牌子写着：“为什么可口可乐赞助种族灭绝？”
+
+中共国非法剥夺了香港的自由；威胁台湾；在西藏践踏人权；在新疆实施种族灭绝；中共国制造了COVID-19新冠病毒并把它扩散到全世界，造成前所未有的大灾难。可口可乐对中共这些侵犯人权和反人类的行为完全保持沉默，通过赞助北京冬奥会，表达对中共国的支持。
+
+北京冬奥会是独裁者的个人秀，是种族灭绝运动会，各个国家和政府纷纷谴责，并外交抵制。可口可乐充当中共走狗的行为，既不可口，也不可乐。
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/04/2ac2055bcd4c1347.png)
+# 更多要闻链接
+
+1. [IMF：中国清零政策已成负担影响中国及全球复苏](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220122-imf-%E4%B8%AD%E5%9B%BD%E6%B8%85%E9%9B%B6%E6%94%BF%E7%AD%96%E5%B7%B2%E6%88%90%E8%B4%9F%E6%8B%85%E5%BD%B1%E5%93%8D%E4%B8%AD%E5%9B%BD%E5%8F%8A%E5%85%A8%E7%90%83%E5%A4%8D%E8%8B%8F)
+2. [北京官员谈疫情罕见流露焦急不安，冬奥会以‘全封闭’方式进行](https://www.voachinese.com/a/beijing-to-maintain-covid-emergency-status-as-winter-olympics-loom/6408107.html)
+3. [中国经济胁迫长袖善舞，立陶宛因挺台遭受德国大公司施压](https://www.voachinese.com/a/German-big-business-piles-pressure-on-Lithuania-in-China-row-20220121/6407010.html)
+4. [马来西亚约两百民众上街抗议 要求反贪首长下台](https://www.rfi.fr/cn/%E9%A9%AC%E6%9D%A5%E8%A5%BF%E4%BA%9A%E7%BA%A6%E4%B8%A4%E7%99%BE%E6%B0%91%E4%BC%97%E4%B8%8A%E8%A1%97%E6%8A%97%E8%AE%AE-%E8%A6%81%E6%B1%82%E5%8F%8D%E8%B4%AA%E9%A6%96%E9%95%BF%E4%B8%8B%E5%8F%B0)
+5. [习近平反腐算旧账，马云的麻烦看来还没完](https://www.voachinese.com/a/Ant-Group-is-connected-to-former-Hangzhou-Party-Secretary-s-corruption-case-20220121/6407155.html)
+
+
+# 每日推特文摘
+
+
+
+【#MilesGuo的广播要点】2022.1.19
+中国人民必须为70年来的轻信和无知偿还#债务
+编辑：#HimalayaWashingtonDC
+
+[#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hashtag_click)’s Broadcast Highlights】 2022.1.19 The [#Chinese](https://twitter.com/hashtag/Chinese?src=hashtag_click) People Have to Pay Off Their [#Debts](https://twitter.com/hashtag/Debts?src=hashtag_click) for the 70 Years’ Worth of Being Gullible and Ignorant 
+Edited by [#HimalayaWashingtonDC](https://twitter.com/hashtag/HimalayaWashingtonDC?src=hashtag_click)
 
 
 
 
 
-1. 今日恐慌与贪婪指数为11（昨日为13），恐慌程度较昨日大幅上升，等级仍为极度恐慌。注：恐慌指数阈值为0-100，包含指标：波动性（25%）＋市场交易量（25%）＋社交媒体热度（15%）＋市场调查（15%）＋比特币在整个市场中的比例（10%）＋谷歌热词分析（10%）。
-2. BTC.com数据显示，目前比特币全网未确认交易数量为9712笔，全网算力为190.73EH/s，24小时交易速率为3.06交易/秒，目前全网难度为26.64T，预测下次难度下调0.01%至26.64T，距离调整还剩12天14小时。
-3. Coindesk报道，ARK Invest创始人Cathie Wood在接受《时代》杂志采访时表示，2022年她主要关注的五大趋势分别为：DNA测序、机器人技术、新能源储能、人工智能、区块链技术。Wood表示，区块链技术中最新的发展是去中心化金融（DeFi）和非同质代币（NFT），DeFi将从传统金融服务公司中获得大量市场份额，NFT将很多权力重新投入到创作者的手中，2021年NFT的激增令人着迷，它们将在2022年继续发展。
-4. Theblock报道，Dapp Radar跟踪的数据显示，当前有398款“活跃”的区块链游戏，这比一年前增加了92%。“活跃”定义为过去24小时内游戏中至少有一个活跃的钱包。区块链游戏总数在过去一年中攀升了71%，达到1,179个。区块链游戏的采用速度也在加快。根据Massoit的数据，去年与游戏相关智能合约交互的每日唯一钱包数量激增至130万个，比2020年底的2.8万个增加了46倍。
-5. PRNewswire报道，Medi Ledger Network背后的科技公司Chronicled与Parity Technologies（Polkadot和Substrate的开发商）达成了合作关系。两者将共同利用现代点对点通信和区块链技术，以提高生命科学供应链的完整性和效率。据悉，Medi Ledger Network是使用Parity的区块链框架Substrate开发的区块链系统，目标是追踪处方药的供应链，更好地制止假药流通。
-6. 1月22日消息，元宇宙项目Infinite Virtual Space宣布，计划投入100万美元支持IVSDAO的全面建设。这笔资金将长期用于发起一系列Metaverse马拉松竞赛，主题为“Meta-Armstrong”的首次启动将于2月8日开始。
-7. IT之家报道，近日，微软宣布计划以每股95美元的现金收购游戏开发和互动娱乐内容发行商动视暴雪，交易总金额约为687亿美元。据悉，这是微软有史以来规模最大的一笔收购，一跃成为全球第三大游戏公司，仅次于腾讯和索尼互动娱乐。据路透社报道，世界银行行长David Malpass批评了微软Xbox以690亿美元收购动视暴雪的协议，称这笔钱本可以更好地投资于贫困国家和地区的艰难经济。
-8. 1月23日消息，加密风投机构Outlier Ventures宣布与孵化器DAO组织New Order合作推出加速器计划，将在未来两年内推出30-40家DeFi初创公司，涵盖多个不同的群组，第一批项目将于今年4月开始。Outlier Ventures的加速器计划帮助初创公司完善业务战略，实现产品与市场的契合，刺激社区发展，并定义代币设计和治理。
-9. BlockWorks报道，加密货币衍生品交易所Deribit正在推出Solana（SOL）期货产品，Deribit几个月来一直在衡量期权做市商对Solana产品的兴趣。该公司向Blockworks证实，它正在内部测试SOL产品，计划于本季度末或第二季度初推出。总部位于巴拿马的Deribit目前仅提供比特币和以太坊期权产品。Dereibit首席商务官Luuk Strijers表示，该公司之前曾考虑增加其他代币，但担心流动性和做市商的覆盖率，Strijers说：“当前对SOL的需求非常明显”。仅接受加密存款的Deribit正在构建Solana钱包以促进这些交易，用户必须存入SOL才能交易SOL衍生品，该公司计划提供永续交易、期权、期货和投资组合保证金服务。
-10. 彭博社报道，Pantera Capital Management曾是一只押注宏观经济趋势的传统对冲基金，截至年底，该基金管理的加密货币资产达到56亿美元。此外，该公司还向投资者返还了60亿美元。与此同时，Pantera Bitcoin Fund自2013年以来的回报率超过65000%。Pantera不只是押注于比特币。它的风险投资基金还投资支持加密生态系统的公司，包括FTX、Coinbase和Gemini等交易所，而该公司的代币基金则投资于区块链开发者。最近，Pantera专注于DeFi领域。除了Pantera Bitcoin Fund的收益，2013年推出的风险基金也产生了51%的内部回报率，Pantera的Liquid Token Fund仅在2021年就飙升了385%。今年年初，该公司管理着约56亿美元的资金，其中第四只基金在去年11月筹资6亿美元。这低于Pantera在11月底管理的64亿美元。
-11. 1月23日消息，欧洲著名电竞俱乐部G2E sports将于2月份发布基于Solana区块链的NFT系列“Samurai Army NFT”，该系列总共有6,262个NFT，将使用Solana的Metaplex协议铸造，每一个都具有随机生成的资料图片，NFT将为持有者提供独家访问权和其他俱乐部特权，例如与其他用户一起进入社交俱乐部，与G2的专业电子竞技玩家互动，提前获得G2未来的NFT发布等等。报道称，Samurai Army与Metaplex的合作是一个“长期项目”，最终将扩展到其他方式，包括游戏、漫画、音乐等。
-12. News.bitcoin报道，印度尼西亚的Tarjih委员会和Muhammadiyah的中央执行官Tajdid发布了一项法令，规定该国穆斯林使用或投资加密货币是非法的。法特瓦指出，波动性以及缺乏国家支持是穆斯林必须避免投资或使用加密货币的原因。伊斯兰组织指出加密货币的波动性是发布法令的原因之一。该组织辩称，由于像比特币这样的加密货币没有资产支持并且被认为是模糊的，因此印度尼西亚穆斯林使用它们是非法的。
-13. 搜狐新闻报道，近日，北京市东城法院经审理案件认为：比特币（Bitcoin）是一种通过特定计算机程序计算出来的虚拟货币，具有去中心化、总量有限、匿名性等特点，是一种结合开源软件工程模式、密码学原理和工作量证明机制的开源程序，参与者在执行特定算法成功后，有机会获得一定数量的比特币作为奖励，通过这种途径获得比特币的方法被称为“挖矿”。从性质上看，比特币是一种特定的虚拟商品，不具有与货币等同的法律地位，比特币“挖矿”本质上属于追求虚拟商品收益的风险投资活动，投资者须自行承担相关投资风险；从行为效力上看，“挖矿”活动电力能源消耗巨大，案涉685台“矿机”日均耗电量达57500余度，且生产交易环节威胁国家金融安全，社会稳定衍生风险突出，已经成为一种投机性工具，与《民法典》“绿色原则”精神相悖，属于行政法规禁止投资的淘汰类产业，违反公序良俗，应属无效合同；从责任负担上看，比特币“挖矿”活动中出现的政策风险、技术风险及由此引发的投资损失风险，应由投资者自行负担，因双方对合同无效均存在过错，故相关损失后果亦应由各方自担，故判决驳回原告勤某公司的诉讼请求。
-14. 1月23日消息，贝莱德表示，在美国经济尚未恢复到满负荷运转且通胀由供应限制引发的状况下，政策制定者就会面临忍受高通胀和抑制经济增长的抉择。目前市场主要风险是，如果供应限制持续存在，而美联储倾向于认为高通胀推升通胀预期，就会踩下刹车，随着政策利率提升至抑制经济增长的水平，将不利于债券和美股的表现。
-15. U.Today报道，根据加密交易员和分析师Edward Morra发推称，以太坊基金会（再次）成功在顶部卖出ETH套现。自那以后，ETH下跌了40%以上。上述交易发生在去年11月11日下午2点56分（UTC时间）。当时以太坊基金会在Kraken上卖出了9000万美元的ETH，ETH成交价为4810美元。该分析师强调，这不是以太坊基金会第一次在以太坊行情的顶部或附近套现。
-16. 1月22日消息，加密分析师发推称，比特币有史以来最糟糕的下跌是由于矿工投降造成的（2018年12月，2020年3月），当BTC跌至生产成本以下时，就将面临着矿工投降的风险。BTC矿工在6月面临30000美元投降的风险，现在又面临34000美元的风险。
-17. BeInCrypto报道，OMNIA协议的联合创始人、安全分析师和密码学家Alexandru Lupascu称MetaMask钱包存在漏洞风险，恶意攻击者可以简单地创建一个NFT，并通过转移该NFT的免费所有权来获取用户的IP地址，黑客只需花费50美元就能攻击他人的隐私。Lupascu表示，他在2021年12月14日发现了这个安全漏洞，并向MetaMask团队提出了解决方案，但他们忽视了这个问题，并表示将在2022年第二季度之前解决。在这项研究向公众展示之后，MetaMask的创始人Daniel Finlay承认了这一事件：“我认为这个问题已经被大众广泛知晓很久了，所以我认为披露期并不适用。”Finlay补充说：“Lupascu说我们没有尽早解决这个问题，他说得没错。我们现在就开始着手解决这一问题。谢谢你的提醒。”
-18. 1月22日消息，新兴的NFT市场LooksRare上线第11日交易手续费收入达4028枚ETH（价值1030万美元），将全部分发给LOOKS质押者。
-19. 1月23日消息，据DefiLlama数据显示，目前Avalanche链上DeFi协议总锁仓量为85.2亿美元，24小时减少15.57%。锁仓资产排名前五分别为AAVE（22.2亿美元）、Trader Joe（11.8亿美元）、Benqi（9.78亿美元）、Curve（9.06亿美元）、multichan（8.54亿美元）。
-20. 1月23日消息，据DefiL lama数据显示，当前Terra链上DeFi锁仓量为159.4亿美元，在公链中仍排名第2位。目前，锁仓量排名前5的公链分别为以太坊（1173.6亿美元）、Terra（159.4亿美元）、BSC（117亿美元）、Fantom（96.7亿美元）、Avalanche（89.24.6亿美元）。
-21. 1月23日消息，据Dapp Radar数据显示，过去24小时内，NFT交易平台LooksRare交易额为4.49亿美元，排名第一；OpenSea交易额为0.75亿美元，排名第二。Magic Eden排名第三为452万美元，Axie Infinity排名第四为416万美元，CryptoPunks排名第五为309万美元。
+> [https://t.co/eYdbge0cj2](https://t.co/eYdbge0cj2)
+> 【 [#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hash&amp;ref_src=twsrc%5Etfw)’s Broadcast Highlights】 2022.1.19 
+> The [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) People Have to Pay Off Their [#Debts](https://twitter.com/hashtag/Debts?src=hash&amp;ref_src=twsrc%5Etfw) for the 70 Years’ Worth of Being Gullible and Ignorant 
+> 
+> Edited by [#HimalayaWashingtonDC](https://twitter.com/hashtag/HimalayaWashingtonDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/NNCjBhmCMI](https://t.co/NNCjBhmCMI)
+> — 喜马拉雅华盛顿DC2 (@Dc235284371Dc2) [January 23, 2022](https://twitter.com/Dc235284371Dc2/status/1485101142312820740?ref_src=twsrc%5Etfw)
 
 
 
 
 
-*编辑：aQ
-发布：文顾*
+
+
+瑞典🇸🇪反疫苗暴政，瑞典🇸🇪人民在行动……
+
+Sweden🇸🇪Anti-vaccine tyranny, the people of Sweden🇸🇪 are in action…
+
+
+
+
+
+> 瑞典🇸🇪反疫苗暴政，瑞典🇸🇪人民在行动……
+> 
+> Sweden🇸🇪Anti-vaccine tyranny, the people of Sweden🇸🇪 are in action… [pic.twitter.com/hLlwDp6lqz](https://t.co/hLlwDp6lqz)
+> — 老皮匠Athena Farm (@Jzzrb123) [January 22, 2022](https://twitter.com/Jzzrb123/status/1484968082850426881?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+墨尔本的反疫苗示威
+
+
+
+
+
+> 墨爾本的反疫苗示威 [pic.twitter.com/98fGKDrAZf](https://t.co/98fGKDrAZf)
+> — 婦女之友-電-8 舊號已封 (@Dcc6S) [January 22, 2022](https://twitter.com/Dcc6S/status/1484770615949426689?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+看新闻，已经过着隐士生活的基努里维斯公开站出来挺人权、反中共。
+真好！
+
+愿这世界少一些麻木纵容，多一点正义良知。
+
+
+
+
+
+> 看新闻，已经过着隐士生活的基努里维斯公开站出来挺人权、反中共。
+> 真好！
+> 
+> 愿这世界少一些麻木纵容，多一点正义良知。 [pic.twitter.com/taV7dYpoLQ](https://t.co/taV7dYpoLQ)
+> — KUI YANG-葵阳先生 (@KUI\_\_YANG) [January 21, 2022](https://twitter.com/KUI__YANG/status/1484645896600305664?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+上天啊，这个Isobel Yeung能看到这么多狗狗被圈起来，被屠宰，最后还能兴高采烈的说着好吃，和牛羊肉差不多。狗是咱们人类的好朋友啊。这坐小船逃出中共国的爹就是这般教导他的孩子的？
+
+
+
+
+
+> 上天啊，这个Isobel Yeung能看到这么多狗狗被圈起来，被屠宰，最后还能兴高采烈的说着好吃，和牛羊肉差不多。狗是咱们人类的好朋友啊。这坐小船逃出中共国的爹就是这般教导他的孩子的？ [pic.twitter.com/tm9ahh0H9J](https://t.co/tm9ahh0H9J)
+> — 翌珊 (@Margare51267855) [January 21, 2022](https://twitter.com/Margare51267855/status/1484622197822038022?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+1月22号：尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！
+
+
+
+
+
+> [https://t.co/9la9JQr9yr](https://t.co/9la9JQr9yr) 1月22号：尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！
+> — 卡西歐 (@zi1P9NBMBHWIUH8) [January 23, 2022](https://twitter.com/zi1P9NBMBHWIUH8/status/1485104428592300033?ref_src=twsrc%5Etfw)
+
+
+
+
 
 
  
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*作者：GSeries
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,32 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月21日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896620/)
+## 扬帆每日速递 2022年1月22日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1896702/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-20.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、一篇“流调（流行病学调查）中最辛苦的中国人”新闻砸了中共全民小康、共同富裕的招牌。事件主角岳荣贵儿子失踪一年多，多次向警方报案无果，赴京历尽艰辛寻找儿子。在岳荣贵的新闻被大量转载后，威海市公安局作出回应称，岳跃仝已经死亡，但岳家不认可。
 
+2、1月22日，香港立法会主席梁君彦宣称，新一届立法会议员不会是橡皮图章，立法会将快马加鞭通过每一条法例。评:史上最不好笑的笑話！一群忠诚废物祸港、乱港、卖港。
 
-文字版原文：[GTV新闻访谈简报|2022年1月21日早](https://gnews.org/zh-hans/1890544/)
+3、由于公司盈利不稳和美国利率上升的前景，美股市场在科技股的领跌下，经历中共病毒爆发以来最糟糕的一周。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+4、当地时间21日，美国政府将暂停四家中共国航空公司从美国出发飞往中共国的44个航班，以回应中共政府因所谓担心输入性中共病毒案例而决定暂停一些美国航空公司航班的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+5、据文贵大直播：喜联储的硬钱包将与量子电脑技术、生物科技连在一起，打破法币的国家垄断，个人财富不再受到监管。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+6、据文贵大直播：为欺骗国内百姓，习近平付给普京1千多亿美元求其出席冬奥会；免除非洲15国债务以及以各种承诺和威逼利诱他国出席冬奥会。
+
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体1-22-2_page-0001.jpg)
+素材提供战友：Revelation熙攘、Shuang、从来多难不兴邦
+
+编辑：文敏
+
+发布：风起云间（文敏）
+
+海报图片设计：飞天面、 Shuang
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
