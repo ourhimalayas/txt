@@ -2,24 +2,22 @@
 ---
 
 
-## 有声|法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896784/)
+## 有声|周四晚Twitter发生严重宕机事故
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896786/)
 
 配音：香草山巡管部 – 格格
 ![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。
+据外媒报道，1月20日周四晚6点至8点，大量用户报告在使用Twitter时发生了问题。
 
-前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
+据Downdetector称，53%的Twitter用户在使用该网站时遇到问题，36%的用户在使用该应用程序时遇到问题，12%的用户报告在服务器连接时遇到问题。
 
-此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
+目前事故原因尚未确定。
 
-文字版原文：[法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”](https://gnews.org/zh-hans/1892363/)
+文字版原文：[周四晚Twitter发生严重宕机事故](https://gnews.org/zh-hans/1893845/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

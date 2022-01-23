@@ -2,27 +2,24 @@
 ---
 
 
-## 汤加政府公布最新情况
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897217/)
+## 共产党的擀面杖子经济
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897292/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-43.png)[图片来源](https://news.yahoo.co.jp/articles/cb1545402311ca8a7d55a1da52f009cd6f2a0aec/images/000)
-1月22日HUFFPOST要闻在线消息：汤加政府1月21日发表了火山爆发一周后的最新情况。
+#### **整理：雅典娜速记组**
+**编辑：请你喝可乐**
 
-据汤加驻东京大使馆发表的消息，火山喷发产生的火山灰和海啸已经影响了估计84%的人口。到目前为止有三人被确认死亡，包括一名英国人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党的擀面杖子经济-、北酒_01-1.jpg)
 
-国际援助也正在抵达。日本自卫队于22日向该地区运送了三吨饮用水。一艘新西兰军舰也已经抵达，除运送水和救援物资外，还将对海底进行调查。澳大利亚军舰也将在下周初抵达。其它表明支援的有，世界银行的800万美元，亚洲开发银行的1000万美元，澳大利亚和日本的各100万美元，以及中国的10万美元。
+中国现在的股市11万亿美元的市值， 美国是他的四五倍。 就这样也增长了 20-30%, 大家要注意到一个细节， 过去的三年，国内GDP绝对是降的，就股 票和印发的钞票涨了，M2一直在兑水。 股市涨了那么多，体现在哪里？ 共产党今年的本币市场多印了 20万亿人 民币，中国GDP不是15万亿美元吗，这涨 6%是多少，中国只有出口贸易是赚钱的 总体来讲还是在下降，也就5000亿美元。 最重要的是， 共产党的交易所86%都是国有企业，如 果没人卖，有人买，那就只能一直涨， 北交所自己玩都涨不起来，说明市场已 经完全没信心了，也没钱了。 啥叫红色资本，就是玩老千，玩的就是 老百姓，骗老百姓钱，喜币受监管，共 产党的交易所不受监管。
 
-目前岛屿之间的通信仍然困难，但一些电话和卫星通信已经恢复，目前正在进行全面的修复工作。其中包括了有外国援助以修复光纤电缆。
+*发布：请你喝可乐*
 
-信息源：
-
-[「国民の84%が降灰と津波で被害」トンガ噴火、最新の被害状況が公表される](https://news.yahoo.co.jp/articles/cb1545402311ca8a7d55a1da52f009cd6f2a0aec#:~:text=%E3%80%8C%E)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

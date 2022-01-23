@@ -2,21 +2,24 @@
 ---
 
 
-## 问题:您为什么给我们播了这么久（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897262/)
+## 战争临近，美国拟撤离驻乌克兰大使馆非必要工作人员和家属
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1897336/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 撰稿：彩虹        
 
-我觉得这不是我一个人的能量和经历的问题，这是上天给我的力量，不是每个人都做到的。你知道我在没有爆料革命之前我直播之前有什么习惯吗，我只要连续讲话我嗓子一定哑，是我们老郭家的基因，只要是一上火一生气，嗓子一定哑。那时候抽雪茄还没抽那么多，结果爆料革命这种灭共的动力竟然让我连着讲，我有时候开会能开十几个小时，我连着多少天，王燕萍问的最多的话是, 你怎么能撑得住呢?！是吧，她到现在还在问我。为什么能撑的住，这就是一个人，有信仰有活头有希望的力量，就是文缘，我们战友写的希望和力量，就是信仰的希望和力量，所以说我这9个小时根本就不会有任何问题。说老实话咱们今天再直播9个小时我都不会有任何问题，但是今天摄像机已经不行了，现在已经把画面聊惨了，我们在这里一定要完成圣诞之夜最重要的，祈福。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/问题-您为什么给我们播了这么久（二）-.jpg)
-发布： *tianzhihuan*
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-142.png)图片来源：CNN
+1月22日，《新闻极限》引述CNN的报道，指美国驻乌克兰基辅大使馆已要求国务院授权所有非必要的工作人员及其家属离开。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+根据CNN的说法，该消息是一位接近乌克兰政府的消息人士透露的，说美国已经通知了乌克兰，“可能最早在下周开始撤离（相关人员）”。
+
+之前，12月20日，美国国务院对乌克兰发布了最高级别的旅行警告，告诉美国人“不要旅行”，称原因是由于中共病毒感染病例的激增和“来自俄罗斯的威胁增加”。
+
+对于这个新的消息，国务院的一位发言人说，他们“目前没有什么可宣布的。关于美国外交官员和其家人的有关事情有所决定和改变的话，那么美国公民不应预期会有美国政府资助的疏散行动。目前，商业航班可用于支持离开（乌克兰）”。
+
+**新闻来源**
+
+[US Embassy in Kyiv Asks to Evacuate Nonessential Personnel](https://www.newsmax.com/newsfront/ukraine-russia-invasion-kyiv/2022/01/22/id/1053525/)
 
  
 

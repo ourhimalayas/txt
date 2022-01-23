@@ -2,38 +2,37 @@
 ---
 
 
-## 私人外太空基础设施投资创历史新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897018/)
+## 首批美援助军火目前运抵乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897052/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-整理报道：文扬
-编辑：文泓
+整理：Eileen（围剿维尼熊）
+编辑：5m
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642918175243.jpg)图片来源：雅典娜设计组（614）
+来自网易新闻：据福克斯新闻1月22日报道，美国国务院已下令美国驻乌克兰大使馆人员家属最早于1月24日开始撤离乌克兰。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/EMADKTX8QT5G7J_8R.png)图片来源：SpaceNews
+与此同时，美国驻乌克兰大使馆宣布，美国第一批安全援助物资和弹药已于22日清晨运抵乌克兰。
 
+美驻乌使馆22日在社交媒体发文说，首批由美国向乌提供的援助21日晚间运抵乌克兰，包括大约90吨“可致命的”军事援助，其中有给乌克兰前线军人的弹药。
 
-当地时间1月23日，据RT电视台报道，去年全球有145亿美元私人资本涌入航天外太空。
+另外，“标枪”反坦克导弹预计将于下周从波罗的海国家和美国的武器库运往乌克兰。
 
-位于纽约的专门投资于外太空的空间资本(Space Capital)的研究显示，太空基础设施公司在2021年得到了数十亿美元的私人投资，总资金比前一年增长了50%以上，达到创纪录的145亿美元。
+美国政府去年12月决定向乌克兰提供价值2亿美元的军火。美国务院官员当时称，这批军援是为了“防御性”。
 
-在经历了去年历史性的载人航天第三季度之后，第四季度带来了43亿美元的收入，这要归功于塞拉空间（Sierra Space）、埃隆·马斯克的SpaceX和行星实验室(Planet Labs)的“巨额融资”。
+此次运抵的是首批军援，由一架美货运飞机运至乌克兰首都基辅。
 
-空间资本总共追踪了1694家公司，这些公司自2012年以来在全球股权投资中累计筹集了近2530亿美元，涉及三个空间类别——（太空）基础设施、分销和应用。
+美使馆称，这批援助和美国2014年以来向乌克兰所提供总价值27亿美元的军援，表明“美国决心帮助乌克兰在俄罗斯咄咄逼人的情况下加强防御”。
 
-空间资本的管理合伙人查德·安德森说：“当我们展望未来时，我们看到了巨大的机会，可以大规模采用现有的基础设施，因为我们寻找全新的方法来建造和运营天基资产。”
+参考链接：
 
-报告称，航天相关公司去年获得了171亿美元的风险投资，占2021年全球风险投资总额的3%。
+[https://c.m.163.com/news/a/GUCLAI7C00019K82.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GUCLAI7C00019K82.html?spss=today-news-hotrank)
 
-安德森说：“对于投资者来说，重要的是要意识到对太空经济的投资需要专业知识。我们相信这将在2022年变得更加明显，因为其中一些被高估的公司将回归现实，而优质公司则脱颖而出。”
+*发布：tianzhihuan*
 
-原文链接： [Private space investment hits all-time high — RT Business News](https://www.rt.com/business/546422-private-space-investment-high/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

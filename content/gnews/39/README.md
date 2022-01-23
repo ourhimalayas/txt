@@ -2,36 +2,36 @@
 ---
 
 
-## 美联储公布关于发行中央数字货币的讨论资料
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1896559/)
+## 1.21大直播后记:喜支付和喜钱包功能即将上线
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896575/)
 
-作者：银河系农场—骄子 / 加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据有关媒体报道称，美国联邦储备系统当天公布了外界期待已久的数字货币白皮书，并首次启动了关于引入央行数字货币的辩论和公众评论期，以期能跟上全球金融创新的步伐并保持美元的优势地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-22-下午9.24.14.png)
-据悉，该白皮书并未承诺美联储是否将发行数字美元，当中只是提及了目前遭遇到的各类问题，并承诺会在未来120天内，就隐私、财务稳定和使用数字美元等问题征求公众意见。
+**整理：雅典娜速记组
+编辑：小红帽**
 
-美联储表示，发行中央银行数字货币会为当前的金融体系提供支撑。同时，在新的货币体系中，美联储希望私人银行等金融部门仍然能够在央行和个人之间充当媒介。此外，美联储也希望获得来自国会和联邦政府行政部门的“明确支持”，并且最好以具体授权的法律形式作为支持。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1831.png)
 
-该白皮书中也发出警告称，如果美国没有属于自己的数字货币，这或将削弱美国在全球市场上的优势地位。在当前许多外国政府和货币联盟正在引入数字货币系统的情况下，美联储发行的央行数字货币可以有助于维护美元的国际角色。
+图片来源：雅典娜设计组
 
-参考链接：
-1）[In Long-Awaited CBDC White Paper, Fed Flags Privacy, Financial Stability Risks](https://www.coindesk.com/policy/2022/01/20/federal-reserve-highlights-privacy-financial-stability-concerns-in-cbdc-white-paper/?outputType=amp)
-2）[Fed opens debate over possible digital currency](https://www.ft.com/content/df3ef633-d514-4f9f-8e96-b345a22b0630)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+大家要记住，相信七哥说的话， 喜币的价格还早着呢，它真的连九牛一毛都没开始。我有些话现在不能说，大家走着看。
 
-总编：飞虹 /Irene木木
-编辑：飞虹 /Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+现在共产党这个冬奥（会），还有共产党的这个倒闭，还有共产党的经济，还有共产党的这种房地产，还有它的金融，还有世界上货币形式。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国停止疫苗，英国就停，很多国家都停，就连这邪恶纳粹思想的德国都会停。不用讲，一定都会停的。美国要研究和私人机构稳定币合作。那就是我们新中国联邦这一家了，喜联储这一家，那还用想吗？不光是美国研究，新西兰也在研究，日本也在研究，俄罗斯都在研究，法国、德国都在研究，都在跟我们联系。你想想世界上还有谁有咱这个系统，就是这个稳定币。你想想，多少家在做，谁做成了，谁能做得到。而且，咱们接下来躺平币是绝对去中心化的币。就是刚才政清说这个，我们在这个喜联储可以发行各种币，可以发行各种去中心化币。我们有中心化币也有去中心化币。
+
+重要的事情，我们有一系列的，就像我们说的喜保险。（关于）喜保险，大家别搞错了，不是说GClub投资者、GFashion投资者和Gtv投资者终身免保险。（但是）会送给你个等价值的，比如说你投了100万就拥有100万的保险。（那个）100万保险，你（可以）说，我现在我有个其中一个内裤保险、胸罩保险、眼镜保险，你可以随便选。（也可以）我都不选，我就选一样，我选汽车保险，等价值的保险，而且受第三方监督。这跟喜联储没关系，这是完全新开发的一种去中心化的币。这个牛吧？但是大家没有想到，喜支付上线，全面流通，它是全球流通（的）。全球流通多少不是任何人说了算，没任何政府能影响我们，而是战友你有多大本事你能扫到哪。从东北赵家沟到黑龙江鹤岗到新疆帕皮尔高原、昆仑山、巴基斯坦还是南非开普敦，还是阿根廷、巴西、美国、委内瑞拉，只要有战友，只要有人接受，没有人能挡住我们。太阳系有人接受都可以支付给他，只要你开了KYC账号都可以。
+
+那支付的开始，接下来是什么？是钱包。就国内的阿里巴巴的支付宝钱包，那是建立在共产党有效范围内的，跟法币连接的钱包。你在中共国内管用和中共国的人民币系统内管用，结算系统内管用，它到不了全世界，甚至很多法律都不接受。咱这是全球化，跟它就不是一个级别的。很多国内的战友不懂得这个，乱猜，但是体制内的人懂。（体制内的人）说，你的支付系统上线以后，包括我们的存款业务，很快就要推出来了。喜联储推出了存款，如果存款100万美元，7%利息，确切说不叫利息，可能以另外一个方式支付利息，就是类似于回报利息。你想这是啥概念，然后就会有贷款。贷款就是专门给战友提供贷款，又能贷款又能存款，还有保险。但是未来的最重要的问题就是钱包。
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,21 @@
 ---
 
 
-## 电话录音曝光：良知英国医生阻止患者注射加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897101/)
+## 雅典娜时报-第182期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897187/)
 
-医学上，我跟你说过多次，现在有很多信息出来了，这些信息之前还没有出来。很快这些疫苗会完全停止。信息真的出来了，短期内你还不会在电视上看到。可能因为。。。但是的很快会停的，但人们还不知道。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-翻译：George Yang
-校对：枳实
-剪辑/字幕：清净
-发布：枳实
-
-视频链接：[English doctor told patient not to get covid vaccine](https://gettr.com/post/poyk1d9377)
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080081956884/155_1-8.png?width=860&amp;height=1281)![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080794959922/155_3-1.png?width=860&amp;height=1281)
+*发布：陶子*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
