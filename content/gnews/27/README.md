@@ -2,49 +2,43 @@
 ---
 
 
-## 共济会招募七哥为的是扶持七哥代表他们统治和奴役中国
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898925/)
+## 爱尔兰在限制未接种疫苗者半年后取消了疫苗护照
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1898976/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf7c987664c47acd8b032](https://gtv.org/video/id=61ecf7c987664c47acd8b032)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1234486521-e1642763171233-640x4812-1.jpg)图片来源：《布赖特巴特新闻网》
+《布赖特巴特新闻网》2022年1月22日报道，在疫苗护照系统运行约6个月后，爱尔兰将再次允许未接种疫苗者使用在餐厅和酒吧的室内餐饮等服务。该通行证于去年6月首次在爱尔兰境内推出，阻止未接种中共病毒疫苗且未在近期感染过中共病毒的个人进入餐厅和电影院等场所，同时也阻止他们访问疗养院。
 
-**郭文贵先生**：为啥七哥最早成为共济会要招募的人？你们从来没搞明白这件事，你以为我长得好看？他才不在乎你长不长得好看呢。据我所了解的沼泽地很多人都是歪瓜裂枣的，缺胳膊少腿的，因为他们都是近亲结婚，很多都是近亲结婚。
+根据《爱尔兰独立报》的报道，所有的国内场馆和活动的通行证现已被取消，爱尔兰总理米歇尔·马丁(Micheál Martin)表示不再需要这些措施。该出版物报道马丁的话说：“我认为我们正进入大流行病的新阶段，即不再需要我们于前几个阶段实施的那些限制的阶段。” “春天即将到来，我不知道我是否曾经像期待这一次一样期待春天的到来，”总理还指出。
 
-就像你看到中东有些国家，他就是近亲结婚，缺胳膊少腿，傻呼呼的，是吧？姐妹表亲结婚，罗斯柴尔德家里面不就很多近亲结婚导致了很多问题嘛，是不是？这就不用说。罗斯柴尔德家族只是其中代表之一，从战争的借款者高利贷者变成了当地财富的统治者，他只是之一。
+该国许多人一直在庆祝这一消息，爱奥纳研究所(Iona Institute)所长大卫·奎因 (David Quinn)发布的一张被撕掉的欧盟中共病毒通行证(EU COVID cert)的图片在社交媒体上获得了超过1000个点赞。
 
-所以说是一个共同的信仰，我要统治全人类，你要解放全人类，咱俩都是不同的信仰。所以说现在我们所反击的事情是什么？就让全人类都要有自己的尊严地活着，让人们要相信真的有上天，谁也不能代替上天，我们是有主人的。我们要闹明白地球和银河系之间和太阳系爆发到底是咋回事？为什么我们的一个精子卵子能承载着上百亿千亿的信息？
+然而，此后一些政治人士就取消限制措施向公众发出警告，总理马丁警告说，这场大流行病可能会有“进一步的转折”。该国副总理利奥·瓦拉德卡(Leo Varadkar)对这种谨慎的表态表示赞同。
 
-你说这个共济会，兄弟，宁南兄弟，还有什么这个会那个会，那就是一根毛儿。世界就两个主义现在，就两个东西：一个叫人类，让人们有尊严、安全地活着，不是要当奴隶、奴隶主；另外一个就是我要你当奴隶主。
+瓦拉德卡说：“免疫力会减弱——它总是这样。可能会有更多令人担忧的变种病毒，而且寒冬还会再来。你可以设想这样一种情况，我们会有第六、第七、第八、第九、第十波疫情。”
 
-这个邪恶的沼泽地在哪里呢？沼泽地是你绝对看不见的，但是又是你绝对面对的。达沃斯、共产党就是绝对的沼泽地。招募七哥是干嘛？是扶持七哥成为中国代表他们来统治中国未来的人民，成为他们地主收租子、奴隶你们的。没想到七哥不被招募，我要干掉他们，是吧！这就这么简单嘛。
+“我不知道，我们目前还不能说这可能是多么轻微或严重，”副总理继续说。“作为一个政府，我们在未来几周内要做的就是为此制定计划。”在英国上周三宣布将大幅放宽其中共病毒限制规定后不久，爱尔兰就废除了其国内的疫苗通行证制度。该国已经取消了所有强制戴口罩的规定，以及去年底开始实施的居家办公令。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+“在仔细研究数据后，内阁得出结论，一旦法规失效，政府将不再强制要求在任何地方佩戴口罩，”首相鲍里斯·约翰逊(Boris Johnson)在谈到限制措施时说。“……随着中共病毒变成地方性流行病，我们将需要用建议和指导来取代法律要求，敦促病毒携带者小心谨慎并为他人着想，”他继续说到。
 
-编辑整理：Jacques；
+尽管英国和爱尔兰已经开始放宽其中共病毒限制措施，然而欧洲的其他国家只是在考虑进一步收紧限制。法国和意大利都承诺围绕其中共病毒疫苗通行证采取进一步措施，特别是法国将在 1 月 24 日之前推出新的疫苗通行证制度。
 
-字幕文件制作：小满；
+与之前爱尔兰的规定一样，根据法国的新规定，未接种和未康复的个人很快将无法通过中共病毒测试的阴性结果来绕过疫苗要求，从而完全禁止他们进入该国的各种设施。
 
-视频制作及上传：Cindy；
+与此同时，德国正威胁要对其所有成年人实施强制疫苗接种，其邻国奥地利已经承诺采取这一措施，并在本周早些时候通过了强制疫苗接种的立法。那些在该国仍未接种疫苗的人现在可能面临高达 3,000 欧元的巨额罚款。
 
-G-News发布：小满；
+**简评：**紧随美英的步伐，爱尔兰政府取消长达半年的疫苗通行证政策，未接种者也可以进入各种社会设施，将一个公民的基本权益还之于民。我们欣喜地看到，爱尔兰人天生的正直勇敢、血气方刚并没有在疫苗骗局面前失去颜色，政治最终倒向了平民一侧。反观老牌资本主义国家德法意非但不及时收手，还意欲更进一步推进疫苗通行证，其政治形势左转到这一田地，几乎要与中共并驾齐驱，委实令人唏嘘。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+在大量事实证明下，中共病毒疫苗已经不能称之为一款疫苗，因其不具备防止感染和停止传播的基本功能，这是否是英国首相在取消强制令时所提及的“在仔细研究数据后”背后的真正原因？令人担忧的变种病毒以及未来可能存在一波又一波的疫情，伴随着爆料革命对真相坚持不懈的推动，定会让各国政府醒悟，追讨中共病毒及疫苗真相。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻链接：[https://www.breitbart.com/politics/2022/01/22/ireland-rips-up-vaccine-passport-after-half-a-year-of-restrictions-on-the-unvaxxed/](https://www.breitbart.com/politics/2022/01/22/ireland-rips-up-vaccine-passport-after-half-a-year-of-restrictions-on-the-unvaxxed/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+编辑：【英国伦敦喜庄园编辑部】
+[![](https://express.adobe.com/page/0jn7HKHL0hc0q/images/53130c6a-ffac-4866-8ce6-310a66feb95e.jpg?asset_id=2f481aef-15ab-4423-b26d-fb7b00402694&amp;img_etag=%2279c96383556a5136235d40a9d69aea3d%22&amp;size=1024)](https://express.adobe.com/page/0jn7HKHL0hc0q/images/53130c6a-ffac-4866-8ce6-310a66feb95e.jpg?asset_id=2f481aef-15ab-4423-b26d-fb7b00402694&amp;img_etag=%2279c96383556a5136235d40a9d69aea3d%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

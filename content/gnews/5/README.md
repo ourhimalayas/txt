@@ -2,48 +2,55 @@
 ---
 
 
-## 新中国联邦成员在塞浦路斯获保释
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899318/)
+## 研究发现的冠状病毒自然疗法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1899519/)
 
-撰稿：西枫westca
+**编译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip07-6.png)甘草甜素（甘草）似乎在冠状病毒复制的早期阶段更有效。
+（美联社照片/帕特里克·西森）
+与大众主流媒体的假设相反，冠状病毒并非未知领域。事实上，人类冠状病毒每年导致 15-30% 的普通感冒。在严重急性呼吸系统综合症 (SARS) 和中东呼吸系统综合症 (MERS) 爆发期间，观察到了更严重的冠状病毒感染病例，这两种冠状病毒感染，导致一些感染者出现肺炎。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-36-1.jpg)图片来源：worldakkam
-据塞浦路斯KNEWS1月23日报道， 一对来自中共国的母子因中共指控其投资欺诈被通缉，在塞浦路斯面临引渡。帕福斯的法官以起诉文件延误为由允许保释他们。
+这些爆发引起了新的医学界的兴趣，他们开始研究治疗 SARS 和 MERS 感染的自然解决方案，这些研究已汇编在我们关于冠状病毒感染和冠状病毒疾病的综合数据库中。
 
-周五，帕福斯的一名法官下令休庭，以便检察官有更多时间完成所有必要的文书工作。这两名在塞浦路斯的中国公民以每人25000欧元保释金获释。
+考虑到两者密切相关，并且共享相同的血管紧张素转换酶** II **介导的感染，证明对 SARS 冠状病毒具有病毒抑制作用的天然物质，可能对 2019 冠状病毒也有效。换句话说，SARS冠状病毒和2019新型冠状病毒在结构和机制上都相似，可以被相同的物质靶向。
 
-详细情况尚未立即公布，但媒体报道指出，塞浦路斯外交部长没有及时签署检察官的文件，使之无法在法庭呈现。
+事实上，发表在《中华预防医学杂志》上的一篇论文指出，2019 年新型冠状病毒的致病性实际上低于 SARS 冠状病毒，这表明，这些天然物质的冠状病毒抑制特性可能更有效。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip08-6.png)蓝莓和草莓含有大量的类黄酮。 (Jupiterimages/Photos.com)
+下面讨论这些天然存在的、全食物来源的物质，这些物质具有经证实的冠状病毒抑制特性：
 
-**“未经授权，不得引渡”**
+- 甘草。甘草甜素是甘草根的一种活性成分，已被证明对 SARS 冠状病毒复制具有有效的抑制活性。此外，甘草甜素似乎在冠状病毒复制的早期阶段更有效。
 
-引述辩护律师的话说”只有在部长批准引渡请求后，才能开始引渡程序，”，这表明法院所需的文书工作未得到授权。
 
-据该案的辩护律师称，塞浦路斯的外交部长没有时间授权引渡文件，同时指出该文件已被中国当局送往塞浦路斯驻北京大使馆。
+- 类黄酮。冠状病毒蛋白酶的活性是冠状病毒在细胞中繁殖能力的关键因素。然而，类黄酮直接抑制冠状病毒蛋白酶活性，导致病毒传播减少，具有最高病毒抑制能力的类黄酮似乎是草本素、异巴伐查酮、槲皮素 3-β-d-葡萄糖苷和蜡菊素。
 
-这对母子在获释前正在尼科西亚的监狱中等待引渡听证会，他们于12月初在佩亚被拘留，罪名是与中国正在调查的金融犯罪有关的投资欺诈，据说这些犯罪发生在2013年3月至2014年3月之间。
 
-但引渡案超出了文书工作和程序的范围，因为塞浦路斯发现自己处于一场涉及中国和美国利益的政治性引渡战中。
+- 变色龙植物（鱼腥草）。在一项动物研究中，变色龙植物水提取物，在体内表现出对 SARS 冠状病毒的显着抗病毒活性。该研究还发现，这种草药以剂量依赖性方式刺激小鼠脾淋巴细胞的增殖，这表明它还具有免疫调节植物的作用。
 
-本月早些时候，塞浦路斯政府收到了一封来自一个美国组织的信函，寻求 “保护对中国的腐败和非法活动大声疾呼的个人“。称对母子俩的指控是”出于政治动机”。该组织与富裕的中国流亡者郭文贵和曾担任川普总统前顾问的对华鹰派人士史蒂夫·班农有关联。
 
-已离开该组织的班农于2020年8月在郭文贵的游艇上被捕，引发了对欺诈调查的质疑，并进一步呈现了围绕这位2014年逃离中国的房地产大亨所拥有的非营利组织的神秘色彩。
+- 中药制剂。中医药经常被用作治疗 SARS 患者的辅助疗法，科克伦（Cochrane）系统评价证明，中医药作为辅助疗法“可以改善症状、生活质量和肺部浸润的吸收，并减少非典患者”。另一项研究也提出了疏风解毒胶囊和莲花清瘟胶囊，作为 2019 年新型冠状病毒的潜在有效治疗方法，因为之前的研究表明，它们具有治疗和预防呼吸道传染性病毒的能力。
 
-这对母子均为新联邦中国的成员，该运动旨在推翻中国政府。
 
-下一次听证会将于2月3日进行。
+参考索引：
 
-**新闻来源：**
+1.导致普通感冒的人类冠状病毒会大量杀死树突状细胞，但不会杀死单核细胞。病毒学杂志。[https://doi.org/10.1128/JVI.00269-12](https://doi.org/10.1128/JVI.00269-12)
 
-[Cypriot judge bails Chinese duo on technicality , KNEWS](https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality)
+2. 推进网络出版[https://doi.org/10.3760/cma.j.issn.0253-9624.2020.0001](https://doi.org/10.3760/cma.j.issn.0253-9624.2020.0001)
 
-[多家媒体报道塞浦路斯法院释放新中国联邦成员](https://gnews.org/zh-hans/1893669/)
+**评论：**
 
-[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
+**很欣慰有自然疗法让人类可以防御和治疗冠状病毒，同时，又很痛心，冠状病毒已经肆虐两年，这样的信息才得以出来，值得我们反思当今的社会弊端，引以为戒，让我们的后代牢记：没有言论自由，就什么自由都没有了，所以发生了如今因为一个并非未知领域的冠状病毒，让上百万人死亡的灾难！**
 
-[Cyprus extradition twist for Chinese pair](https://www.financialmirror.com/2022/01/21/cyprus-extradition-twist-for-chinese-pair/)
+**新闻来源**：[theepochtimes.com][Studies Find Natural Treatments for Coronavirus](https://www.theepochtimes.com/studies-find-natural-treatments-for-coronavirus_4218452.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-01-23&amp;utm_medium=email&amp;est=kuetHIGbT5zhxwyhcmfkv9rVKdZlbHXOUo9%2Fj9zNC38sWkfQQ4qpzFMDrz9JCZIIG8j%2FXg%3D%3D)
 
-[Cyprus Handover Twist for Chinese Pairs](https://worldakkam.com/cyprus-handover-twist-for-chinese-pairs/664344/amp/)
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+
+
 
  
 

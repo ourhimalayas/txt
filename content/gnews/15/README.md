@@ -2,49 +2,27 @@
 ---
 
 
-## 多位医学法律专家将于本周日在“击败授权”集会上发表讲话
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1899043/)
+## 欧盟和美国将澳大利亚从旅行名单中剔除
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1899268/)
 
-翻译：Jenny Ball
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/012201.jpg)网络图片
+由于 Omicron 变异病毒的诞生导致澳洲乃至全世界出现了CCP病毒感染的激增浪潮，许多国家的边境目前正在向澳大利亚旅行者关闭。美国和欧洲各国本周都下调了澳大利亚的旅行安全等级，使澳大利亚人的国际旅行变得更加困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1907.png)图片来源：lifesitenews.com
+欧洲理事会将澳大利亚、阿根廷和加拿大从其绿色旅行名单中删除——即便澳大利亚在Omicron浪潮之前基本都安然无恙——这意味着对非必要旅行的限制。与此同时，美国也发布了“避免前往澳大利亚”的警告，将澳洲列为最高风险等级。
 
-华盛顿特区——在医学、法律和生物学方面具有专业知识的知名人士，包括罗伯特·马龙博士、小罗伯特·肯尼迪博士和彼得·麦卡洛博士，将在本周日在华盛顿特区举行的 反对强制 COVID 疫苗授权集会上发表讲话。
+美国疾病控制与预防中心 (CDC) 本周将多达 22 个国家列为 COVID-19 的最高风险旅行类别，而上周还仅有两个国家被列为四级或“非常高”风险。当过去 28 天内每 100,000 名居民中登记的病例超过 500 例时，CDC就会将该目的地定为 4 级，同时 建议旅行者避免前往 4 级国家/地区。
 
-由喜剧演员和自称“自由斗士” JP西尔斯（JP Sears ）主持的“击败授权”游行和集会，现正在组织中，以召集人们“团结起来一致说 ：COVID授权必须结束。
+澳大利亚旅游媒体创始人昆汀·朗表示：“自发旅行似乎在未来或过去都遥遥无期——所以你必须做到有条理并了解所有条款和条件……以测试规则为例，你需要了解你在什么时候必须测试？在哪里测试？如何证明你的测试？此外需要报告什么？如果生病了怎么办？”
 
-该活动[网站](https://defeatthemandatesdc.com/)将这次聚会称为“美国回归”，将汇集“各种阶级和肤色的美国人”、“民主党人和共和党人”，“接种过疫苗和未接种过疫苗”，同时将强制命令描述为不符合美国人意愿。
+昆汀·朗认为，国际旅行的不便可能会是的国内旅行变得更为频繁：“如果我在澳大利亚，那么我现在就会选择预定国内的游玩路线。”
 
-**聚会的价值观和使命的描述如下**：
+然而笔者认为，在当前疫情肆虐的情况下，减少一切非必要旅行甚至外出都非常重要。我们不能简单将Omicron与普通感冒一视同仁，反而要加个人强防护同时定期遵照建议服用预防性的药物。希望各位读者及亲人在这个新春即将到来之际都能平安健康。
 
-对疫苗授权说不。
+新闻参考链接：[EU and US cut Australia from travel lists as Omicron surges](https://www.9news.com.au/world/coronavirus-travel-news-eu-and-us-cut-australia-from-travel-lists-as-omicron-surges/a1ddeda5-e1d7-4a38-a446-1507e3ff7db0)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-对疫苗护照说不。
 
-不能强迫儿童接种 Covid-19 疫苗。
-
-拒绝在不承担风险的情况下强制接种疫苗。
-
-对审查制度说不。
-
-对限制合理辩论说不。
-
-“是的，我们相信自然免疫的力量。是的，我们坚持知情同意。同意医生和患者在不受干扰的情况下做出决定”。
-
-将在活动中发言的其他知名人士包括，流行病学专家、世界卫生组织 (WHO) 和川普政府前顾问保罗·亚历山大（Paul Alexander）博士；前生物学教授和作家布雷特·温斯坦（Bret Weinstein）；和保守的播客主持人兼作家威尔·维特（Will Witt）。
-
-加州大学欧文分校医学院前教授、医学伦理项目主任亚伦·赫里亚蒂（Aaron Kheriaty）博士，也将发表讲话。赫里亚蒂也是《天主教抑郁症指南》的作者，因拒绝接受冠状病毒注射而被解雇，他经常写关于医学伦理、冠状病毒暴政和自然免疫的文章。
-
-该活动定于 1 月 23 日星期日上午 11:30 在华盛顿纪念碑举行。
-
-素材链接：[lifesitenews.com] [mRNA pioneer Dr. Malone, RFK Jr., Dr. McCullough to speak at ‘Defeat the Mandates’ DC rally this Sunday](https://www.lifesitenews.com/news/mrna-pioneer-dr-malone-rfk-jr-dr-mccullough-to-speak-at-defeat-the-mandates-dc-rally-this-sunday/)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
