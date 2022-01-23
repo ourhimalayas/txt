@@ -2,26 +2,30 @@
 ---
 
 
-## 欧盟药监机构担忧定期加强针的危害，福奇听证会发飙
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896703/)
+## 世茂300亿卖上海项目，7.7折卖地块股权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896755/)
 
-##### 翻译：文载Jenny
-校对：枳实
-剪辑|字幕：向上James
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-35.jpg)世茂300亿卖上海项目，7.7折卖地块股权 网络图片
+据澎湃新闻1月22日报道，世茂集团21日公告称，以10.6亿元的总价出售上海北外滩核心区项目公司股权。该项目原报价13.8亿元，现以七七折售出。自从去年8月宣布出售资产至今，世茂集团已经成交两个项目，回笼现金31.46亿元。
 
-据福克斯新闻报道，欧洲药品管理者表示怀疑是否有必要打第四加强针疫苗。 其在周二对是否有必要注射新冠疫苗第四剂加强针表示怀疑, 并且对于每四个月需要打一次加强针的前景表示关注,担忧这是否会让人们的免疫系统超载。嘉宾表示，公众已经对接种加强针感到质疑，对得不到病毒真相感到疲倦。福奇也在继续提供混乱的信息，福奇在听证会戴着口罩走进来， 但是当兰德保罗开始质疑他，福奇变得疯狂，扯下口罩。
+世茂集团放售上海10个项目，总报价为296.06亿元。除了北外滩，其他9个项目对外报价近282.26亿元，已经抵押融资163.18亿元。如果10个项目全部出售，世茂集团最多可回笼资金129.68亿元。
 
-视频链接：[European Union’s drug regulator raised concerns that giving boosters every four months hypothetically poses the risk of overloading people’s immune systems. Dr. Fauci got mad under the questioning of Senator Marshall.](https://video.foxnews.com/v/6291384634001#sp=show-clips)
+当初多大手笔买，如今多大手笔卖，中共国房地产业已经病入膏肓。变卖资产只是打一剂强心针，勉强支撑一下，最后还是要倒下，再也站不起来。假的就是假的，不可能撑到最后。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16400756](https://www.thepaper.cn/newsDetail_forward_16400756)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

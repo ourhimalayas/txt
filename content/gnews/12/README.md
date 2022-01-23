@@ -2,22 +2,27 @@
 ---
 
 
-## 秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1896717/)
+## 郭共大战美国战场法律超限战涉及的机构和人物关联图
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1896763/)
 
-撰稿:沙莉
-![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-34.png)(图片源于本文链接)
-1月22日，伊维菌素的研制者大村智教授，在冈山市就伊维菌素对治疗中共病毒(新冠病毒)感染的有效性作了说明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220122-1-scaled.jpg)图片来源：GNews
+相关案件资料链接：
 
-诺贝尔医学生理学获得者、北里大学特别荣誉教授大村智先生22日在冈山市举办了一场讲座。 大村先生表示对自己开发的，贡献于人类的抗寄生虫药物伊维菌素在治疗中共病毒(新冠病毒)感染的有效性上有信心。
+1. 2020年8月17日，美利坚合众国（原告）诉[妮基·马里·鲁姆·戴维斯](https://www.followcn.com/chinese/wp-content/uploads/2020/08/DOJ_20200817_Case1_20-cr-00068-LEK-Simplified.V3.pdf)（NICKIE MALI LUM DAVIS被告）
 
-伊维菌素是用于治疗由寄生虫和蜱虫引起的感染的口服药，在海外被发现它能有效地抑制中共病毒冠状病毒的增长。目前日本正在进行临床试验，以期获准它能成为中共病毒冠状病毒的治疗药。
+2. 2018年11月30日，美司法部雇员[George Higginbotham认罪](https://www.justice.gov/opa/pr/former-justice-department-employee-pleads-guilty-conspiracy-deceive-us-banks-about-millions)的新闻报道
 
-由于病毒感染人数的迅速增长，讲座以预先录制的视频形式进行。大村先生解释说：已发现伊维菌素可以防止病毒的生长并增强人体的免疫力。实际上它已在印度的一些州和印度尼西亚被使用，并且已被证明具有诸如平息感染传播的效果。
+3. 2020年2月19日，[Samuel Dan Nunberg（原告）诉 Guo Wengui（被告）](https://lawandcrime.com/lawsuit/former-trump-aide-sues-billionaire-chinese-mar-a-lago-member-for-defamation/)
 
-信息来源:[抗寄生虫薬 コロナ治療効果に自信　ノーベル賞大村氏、岡山で講演：山陽新聞デジタル｜さんデジ (sanyonews.jp)](https://www.sanyonews.jp/article/1221093/)
+4. 2021年9月13日，SEC与GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.,的[和解书](https://www.sec.gov/litigation/admin/2021/33-10979.pdf)
 
-责编:待命(文晓)
+5. 2021年6月22日，郭文贵先生（Eastern Profit，原告）诉French Wallop和Mike Waller（Strategic Vision，被告）议案的[判决书](https://www.docketalarm.com/cases/New_York_Southern_District_Court/1--18-cv-02185/Eastern_Profit_Corporation_Limited_v._Strategic_Vision_US_LLC/372/)
+
+6. 2020年12月18日，与CCP利益关系密切的法官Barry Ostrager偏向PAX的[阶段性裁决](https://cases.justia.com/new-york/other-courts/2020-2020-ny-slip-op-34210-u.pdf?ts=1608761660)
+
+7. 2022年1月14日，法官撤销Cahill的律师Edwards Moss代理PAX（原告）诉郭文贵先生（被告）一案的[资格的新闻报道](https://www.reuters.com/legal/litigation/judge-disqualifies-cahill-law-firm-investor-fight-with-billionaire-guo-wengui-2022-01-15/)
+
+校对：
 
  
 

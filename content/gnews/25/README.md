@@ -2,20 +2,14 @@
 ---
 
 
-## 有声|中共与世界经济脱钩，中国人将获自由
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896612/)
+## 有声|GTV新闻访谈简报|2022年1月20日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896616/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在1月19日的大直播中，针对中共和世界经济脱钩，郭文贵先生表示，只要脱钩，中国人将摆脱中共的奴隶，获得自由。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0120text-SC.png)
 
-在中共的统治下，中国人的生活、医疗、教育等将继续被中共奴役和统治。如果中共继续维持高能耗、高污染的经济策略 ，中国的环境污染将无限制地恶化，中国人的生存环境将遭遇空前的危机。一旦中共和世界经济脱钩，中国人将脱离这种险境。
 
-在中共几十年的统治下，中共欺骗民众，依靠大量进口才能解决人民的粮食问题，高新科技更是依赖外国引进。中共的经济现状更是伪装下的海市蜃楼。一旦中共和世界经济脱钩，中国人将与虚假脱钩。
-
-中共70多年来，利用驭民五术奴役中国人民。一旦中共和世界经济脱钩，中国人民将摆脱中共的经济、精神控制，中国人将过上有尊严、有价值的日子。
-
-文字版原文：[中共与世界经济脱钩，中国人将获自由](https://gnews.org/zh-hans/1888966/)
+文字版原文：[GTV新闻访谈简报|2022年1月20日晚](https://gnews.org/zh-hans/1887247/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

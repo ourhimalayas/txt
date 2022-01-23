@@ -2,33 +2,44 @@
 ---
 
 
-## 有声|近900万美国人因中共病毒向雇主请病假
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896785/)
+## 数据显示，加强针接种者正快速演变为艾滋病
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896876/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月20日，据统计，已有近900万美国人向雇主请病假，称已感染中共病毒，或需要照顾被病毒感染的人。
+#### 【雅典娜观察】和您一起探究世界
 
-这个数字是一个月前的三倍，占美国总劳动力的6%。同时，有320万人说找不到工作，比去年12月增加了25% 。薪资服务公司古斯特的经济学家鲁克·帕杜表示，经济能否复苏与病毒流行状况和政府有关的公共卫生政策有关。他举例说，近期航空公司员工因中共病毒请病假而取消了数以万计的航班；在纽约，服务行业人员的工作时间已经从40小时降至21小时。
+整理报道：George Warshing
+编辑：文泓
 
-据美国CDC的数据，目前奥密克戎占中共病毒确诊病例的98%，成为感染率和传播率最高的变种病毒。评论人士认为，从就业数据看，美国的用工状况仍在进一步恶化，经济还没有真正复苏。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WK15T1V@3WPZLZCBE8.png)图片来源：墨尔本雅典娜农场设计组
 
-接下来继续关注美加跨境卡车司机动向，据了解，为抗议美国和加拿大政府的强制疫苗政策，卡车车队在艾默生入境口岸附近参与示威活动，具体现场情况，我们来观看以下视频。
 
-文字版原文：[近900万美国人因中共病毒向雇主请病假](https://gnews.org/zh-hans/1893209/)
+近日，据曝光新闻（The Expose）报道，英国卫生安全局对本国官方政府数据进行了深入调查，似乎验证了曝光新闻之前的预测，即**接种加强针将为接种疫苗人群的免疫系统提供非常短暂的暂时增强，然后比已经接种两剂新冠疫苗的人，用更快的速度摧毁他们的免疫系统。**
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+简而言之，英国政府官方数据强烈表明，接种新冠疫苗的人群正在发展成为由某种新型新冠疫苗诱发的获得性免疫缺陷综合症——艾滋病。
 
-![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+最初，辉瑞公司在发布其mRNA疫苗不久，声称该产品的有效性为95%。他们之所以能够声称这一点，是因为在仍在进行的临床试验的最早阶段，对接种疫苗组和未接种疫苗组确认的感染数量进行了简单的计算。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**现在，英国卫生安全局发布了****5****个月内对进行疫苗注射后新冠病毒发病率的连续数据，这段时间是自****2021****年****8****月****16****日至****2021****年****1****月****2****日。**曝光新闻能够使用与计算辉瑞疫苗95%有效性相同的计算来计算Covid-19疫苗的真实世界有效性，不幸的是，这些数据描绘了一幅极其令人担忧的画面。
+
+**曝光新闻对这些资料进行深入研究分析，结果发现，**辉瑞公司最初为了证明其产品的有效性，采用了不当的计算方式，因而计算结果是不客观的。
+
+通过对比数据的计算他们发现，第1次疫苗注射后，**对所有年龄组的接种者来说，他们**的免疫能力都出现了下降，**与仅接受两剂注射的人群相比，注射“增强针”后尽管**大部分人群的免疫能力仍低于未接种者的水平，但与注射前相比有不同程度的短暂提高；然而很快，进行加强针注射的**会比仅接种两剂者以异常快的速度出现免疫系统摧毁**现象，**即正在形成疫苗诱导的获得性免疫功能缺陷。**
+
+获得性免疫缺陷综合征是一种导致免疫细胞丧失并使个体易受其他感染，并诱发某些类型癌症的疾病，也就是说，它完全摧毁了免疫系统——**艾滋病**。
+
+因而依据现有数据分析得出的结论是，**进行了疫苗接种的人群的免疫能力已低于注射前的水平，进行了加强针注射的人群会面临由疫苗引发的获得性免疫功能缺陷综合征的危险**。
+
+原文链接：[Official data suggests the Triple Vaccinated are developing Acquired Immunodeficiency Syndrome at an alarming rate – The Expose (dailyexpose.uk)](https://dailyexpose.uk/2022/01/15/triple-vaccinated-developing-ade/)
+
+发布：*tianzhihuan*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
