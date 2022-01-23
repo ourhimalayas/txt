@@ -2,13 +2,30 @@
 ---
 
 
-## 日本研究发现中共病毒Omicron重症率是原始毒株的十分之一
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1896491/)
+## 美国ESPN不会派遣新闻人员参加北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1896556/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._23-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日，美国娱乐与体育节目电视网ESPN在其官方网站上发布声明表示，由于对中共病毒及其相关限制的担忧，ESPN将不会向中共北京冬奥会派遣任何新闻人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-22-下午9.23.51.png)
+该网站的制作执行副总裁兼执行编辑威廉姆森在声明中强调，随着中共病毒持续在全球范围内肆虐，加之此次冬奥会现场由于病毒和其他相关因素所导致的诸多限制措施，这些都让现场报道变得非常具有挑战性。此外，员工的安全对于ESPN而言至关重要，因此，该公司认为，减少员工奔波是最好的决定。
+
+参考链接：[Due to COVID Concerns, ESPN Will Not Staff Winter Olympics in China](https://www.espnfrontrow.com/2022/01/due-to-covid-concerns-espn-will-not-staff-winter-olympics-in-china/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：飞虹
+编辑：DM
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

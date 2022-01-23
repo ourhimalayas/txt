@@ -2,22 +2,25 @@
 ---
 
 
-## 基努李维斯将参加西藏之家线上音乐会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1896557/)
+## 有声|中共与世界经济脱钩，中国人将获自由
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896612/)
 
-作者：银河系农场—骄子 / 加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，美国娱乐与体育节目电视网ESPN在其官方网站上发布声明表示，由于对中共病毒及其相关限制的担忧，ESPN将不会向中共北京冬奥会派遣任何新闻人员。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-22-下午9.24.05.png)
-该网站的制作执行副总裁兼执行编辑威廉姆森在声明中强调，随着中共病毒持续在全球范围内肆虐，加之此次冬奥会现场由于病毒和其他相关因素所导致的诸多限制措施，这些都让现场报道变得非常具有挑战性。此外，员工的安全对于ESPN而言至关重要，因此，该公司认为，减少员工奔波是最好的决定。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在1月19日的大直播中，针对中共和世界经济脱钩，郭文贵先生表示，只要脱钩，中国人将摆脱中共的奴隶，获得自由。
 
-参考链接：[Whoa: Keanu Reeves Joins Tibet House Lineup](https://www.rollingstone.com/music/music-news/keanu-reeves-2022-tibet-house-benefit-livestream-patti-smith-trey-anastasio-1287923/amp/)
+在中共的统治下，中国人的生活、医疗、教育等将继续被中共奴役和统治。如果中共继续维持高能耗、高污染的经济策略 ，中国的环境污染将无限制地恶化，中国人的生存环境将遭遇空前的危机。一旦中共和世界经济脱钩，中国人将脱离这种险境。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+在中共几十年的统治下，中共欺骗民众，依靠大量进口才能解决人民的粮食问题，高新科技更是依赖外国引进。中共的经济现状更是伪装下的海市蜃楼。一旦中共和世界经济脱钩，中国人将与虚假脱钩。
 
-总编：童谣
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+中共70多年来，利用驭民五术奴役中国人民。一旦中共和世界经济脱钩，中国人民将摆脱中共的经济、精神控制，中国人将过上有尊严、有价值的日子。
+
+文字版原文：[中共与世界经济脱钩，中国人将获自由](https://gnews.org/zh-hans/1888966/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

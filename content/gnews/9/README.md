@@ -2,18 +2,14 @@
 ---
 
 
-## 有声|欧盟可能以能耗过大取消加密货币开采的工作模式
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896613/)
+## 有声|GTV新闻访谈简报|2022年1月21日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896620/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-近日欧盟顶级的金融监管机构认为加密货币开采耗能过大，可能会取消这种能源密集型的开采模式，转而向低能耗的方式转变。此项禁令将会在整个欧盟国家实行。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-20.png)
 
-一项剑桥大学的调查显示，全球的加密货币开采每年使用的电量比阿根廷全国都多。同时，Digiconomist（一个关注加密货币等新数字趋势等博客）的一项分析估计，仅比特币开采每年就会产生约9700万吨碳。虽然在一些NFT（一种新型态的虚拟资产）领域已经采取了碳抵消，但这并不是解决问题的关键方法。
 
-目前，全世界金融对加密货币市场的亲睐，需要更有效的技术改革来推动。 美国和欧盟对加密货币的监管正在逐步扩大，更加关注加密货币对气候带来的影响。此禁令虽尚未实施，但在考虑之内。
-
-文字版原文：[欧盟可能以能耗过大取消加密货币开采的工作模式](https://gnews.org/zh-hans/1888747/)
+文字版原文：[GTV新闻访谈简报|2022年1月21日早](https://gnews.org/zh-hans/1890544/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

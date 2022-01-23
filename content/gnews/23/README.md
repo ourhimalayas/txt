@@ -2,35 +2,36 @@
 ---
 
 
-## 【秘翻在线】拜登的司法部撤销对被指为中共工作的麻省理工学院科学家的指控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1896513/)
+## 美联储公布关于发行中央数字货币的讨论资料
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1896559/)
 
-**撰稿：Grace**
+作者：银河系农场—骄子 / 加拿大温哥华扬帆农场 Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，据有关媒体报道称，美国联邦储备系统当天公布了外界期待已久的数字货币白皮书，并首次启动了关于引入央行数字货币的辩论和公众评论期，以期能跟上全球金融创新的步伐并保持美元的优势地位。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-22-下午9.24.14.png)
+据悉，该白皮书并未承诺美联储是否将发行数字美元，当中只是提及了目前遭遇到的各类问题，并承诺会在未来120天内，就隐私、财务稳定和使用数字美元等问题征求公众意见。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-8.48.16-PM.jpeg)图片来源：qanons
-据《国家脉搏》（The National Pulse ）1月22日报道，拜登的司法部撤销了对陈刚的指控，陈刚是川普政府起诉的麻省理工学院教授，他在接受美国联邦研究资助时隐瞒了与中共的财务关系。
+美联储表示，发行中央银行数字货币会为当前的金融体系提供支撑。同时，在新的货币体系中，美联储希望私人银行等金融部门仍然能够在央行和个人之间充当媒介。此外，美联储也希望获得来自国会和联邦政府行政部门的“明确支持”，并且最好以具体授权的法律形式作为支持。
 
-联邦检察官决定撤销此案之前，白宫聘请了麻省理工学院 (MIT) 的另一位教授伊丽莎白·雷诺兹 (Elisabeth Reynolds) 担任国家经济委员会 (NEC) 的高级职位。
+该白皮书中也发出警告称，如果美国没有属于自己的数字货币，这或将削弱美国在全球市场上的优势地位。在当前许多外国政府和货币联盟正在引入数字货币系统的情况下，美联储发行的央行数字货币可以有助于维护美元的国际角色。
 
-《国家脉搏》此前曾透露，雷诺兹与陈在同一所大学工作之外的联系：她与陈一起参加了 2017 年在中共国举行的一次会议， 麻省理工学院的教授们在会上就经济和技术发展向中共提供建议。
+参考链接：
+1）[In Long-Awaited CBDC White Paper, Fed Flags Privacy, Financial Stability Risks](https://www.coindesk.com/policy/2022/01/20/federal-reserve-highlights-privacy-financial-stability-concerns-in-cbdc-white-paper/?outputType=amp)
+2）[Fed opens debate over possible digital currency](https://www.ft.com/content/df3ef633-d514-4f9f-8e96-b345a22b0630)
 
-一家国营媒体对该活动的摘要还显示，会议发言人向来自上海的官员推广他们的专业知识: 据区政府称，组织者希望本地的初创企业能通过演讲得到启发或找到一些有价值的技术。[…]美国人在会议期间向驻杨浦的企业家和公司官员提供指导和建议。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-据报道， 上海官员最终 “与麻省理工学院签署了一项协议，作为杨浦区企业与麻省理工学院工业联络计划（MIT Industrial Liaison Program）之间的桥梁，该计划帮助企业从该大学的五个学院和33个部门寻找合适的资源。”
+总编：飞虹 /Irene木木
+编辑：飞虹 /Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-该摘要还补充道, “杨浦区政府拥有麻省理工学院项目的‘顶级’会员资格，而本地企业可以选择支付会员费，拥有‘第二会员资格’，允许他们随时向麻省理工学院的专业人士寻求帮助和建议。”
-
-报道指出，在川普政府时期，司法部指称，自2012年以来，在中共纽约领事馆的要求下，陈某担任了中共的“海外专家”，并获得了约2900万美元的外国资金。
-
-根据最初的指控，尽管陈刚在美国工作并接受纳税人的钱来资助他的研究，但他同时 “通过提供建议和专业知识–有时直接向中国政府官员提供–并经常换取经济补偿，来促进中国的技术和科学发展。”
-
-据报道，在起诉被驳回之前，斯坦福大学的教授们还游说司法部停止其 “中国倡议”（“China Initiative”）：这是川普时代针对与中共有联系的学者利用美国大学进行知识产权盗窃和间谍活动的计划。
-
-
-
-**新闻来源： [Biden DOJ Drops Charges Against MIT Scientist Allegedly Working For Chinese Communist Party](https://thenationalpulse.com/2022/01/22/biden-doj-drops-charges-against-mit-scientist-allegedly-working-for-chinese-communist-party/)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

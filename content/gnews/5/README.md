@@ -2,22 +2,26 @@
 ---
 
 
-## 中国人要为过去的这70年的轻信和无知付出代价
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1896682/)
+## 欧盟药监机构担忧定期加强针的危害，福奇听证会发飙
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896703/)
 
-中国人的懦弱无知，像猪狗一样的活着。这些年给生灵涂炭带来的代价，和社会和自然，要付出代价的。
+##### 翻译：文载Jenny
+校对：枳实
+剪辑|字幕：向上James
+编辑：Mttfly
 
-**【郭先生直播摘要】**** 2022.1.19 ****中国人要为过去的这****70****年的轻信和无知付出代价**
+据福克斯新闻报道，欧洲药品管理者表示怀疑是否有必要打第四加强针疫苗。 其在周二对是否有必要注射新冠疫苗第四剂加强针表示怀疑, 并且对于每四个月需要打一次加强针的前景表示关注,担忧这是否会让人们的免疫系统超载。嘉宾表示，公众已经对接种加强针感到质疑，对得不到病毒真相感到疲倦。福奇也在继续提供混乱的信息，福奇在听证会戴着口罩走进来， 但是当兰德保罗开始质疑他，福奇变得疯狂，扯下口罩。
 
-**郭先生****:**
+视频链接：[European Union’s drug regulator raised concerns that giving boosters every four months hypothetically poses the risk of overloading people’s immune systems. Dr. Fauci got mad under the questioning of Senator Marshall.](https://video.foxnews.com/v/6291384634001#sp=show-clips)
 
-马上不会超过一个，全世界很多国家政府就是测核糖核酸，都是在家测和电脑上测。那么 PCR的检测不（用了），大家都在家可以检测的时候，这个过程呢失去了一个抓手。那么共产党当面临着国内。很多心脏病和打了疫苗，特别是打了第三针，我再重申一遍，三针之内的两针吃青蒿素。因为菌数一定能产出，你所有身上的毒能救你。如果你不吃你50%机会得癌症。
-
-我再重申一遍，那么这个打了3针以上的疫苗的孩子，老人后遗症，心脏病心肌炎，你看到了现在500个世界级的运动员。死掉或者休克，你看看澳洲的澳网的人，打着打着扑腾就蹲在地上了。人类上从来没发生过，最健康最年轻的人。
-
-那么这种情况下官方就穷凶极恶了，我要找各种理由把你们关在家里，一定会发生无数次的香港大屠杀，天安门大屠杀。就是中国人，可能是人类上就像阿富汗。此时此刻很多人在饿死一样，啊中国人要为过去的这70年的轻信，和无知真心的相信爹亲，娘亲不如党亲的这种流氓思想，和中国人的懦弱无知。像猪狗一样的活着，说这些年，给生灵涂炭带来的代价和社会和自然，你要付出的。
-
-视频剪辑：CG. |听写：烟波浩淼 | 翻译：阿基米德 | 校对：Polaris | 视频制作+字幕：CG. |编辑&发布：断播
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -15,113 +15,113 @@
 
 ---
 
-### [巴基斯坦谢里夫证明中共腐败各国的领导人](/content/gnews/1/README.md)
+### [世茂300亿卖上海项目，7.7折卖地块股权](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [1/21/2022 文贵直播：文贵的亲身经历反映出中共让全世界对海外华人产生的反感，因此我们要更加勤奋地传播爆料革命真相，这是我们神圣的使命](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [巴基斯坦谢里夫证明中共腐败各国的领导人](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心](/content/gnews/2/README.md)
+### [秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟药监机构担忧定期加强针的危害，福奇听证会发飙](/content/gnews/3/README.md)
+### [欧盟药监机构担忧定期加强针的危害，福奇听证会发飙](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [扬帆每日速递 2022年1月22日版（2）](/content/gnews/4/README.md)
+### [扬帆每日速递 2022年1月22日版（2）](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [中国人要为过去的这70年的轻信和无知付出代价](/content/gnews/5/README.md)
+### [中国人要为过去的这70年的轻信和无知付出代价](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [英国外交大臣警告，中共和俄罗斯的威胁已经波及全球](/content/gnews/6/README.md)
+### [英国外交大臣警告，中共和俄罗斯的威胁已经波及全球](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|美股新年伊始即现危机](/content/gnews/7/README.md)
+### [有声|GTV新闻访谈简报|2022年1月21日早](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|达沃斯精英企图剥夺私有财产施行共产主义](/content/gnews/8/README.md)
+### [有声|中美在南海西沙群岛区域发生争执](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|欧盟可能以能耗过大取消加密货币开采的工作模式](/content/gnews/9/README.md)
+### [有声|日本国会数据再次印证疫苗无效](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|中共与世界经济脱钩，中国人将获自由](/content/gnews/10/README.md)
+### [有声|区块链和加密货币将带领人类进入下一个未来](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [GTV新闻访谈简报|2022年1月22日晚](/content/gnews/11/README.md)
+### [有声|GTV新闻访谈简报|2022年1月20日晚](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|美股新年伊始即现危机](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [有声|达沃斯精英企图剥夺私有财产施行共产主义](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [有声|欧盟可能以能耗过大取消加密货币开采的工作模式](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [有声|中共与世界经济脱钩，中国人将获自由](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [GTV新闻访谈简报|2022年1月22日晚](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [可口可乐赞助北京冬奥会遭批](/content/gnews/12/README.md)
+### [可口可乐赞助北京冬奥会遭批](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [战友描述七哥的经历，令人动目&#8230;](/content/gnews/13/README.md)
+### [战友描述七哥的经历，令人动目&#8230;](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [1.21大直播后记:喜支付和喜钱包功能即将上线](/content/gnews/14/README.md)
+### [1.21大直播后记:喜支付和喜钱包功能即将上线](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [比特币较高点跌幅超50% 首次跌破35000 美元](/content/gnews/15/README.md)
+### [比特币较高点跌幅超50% 首次跌破35000 美元](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美联储公布关于发行中央数字货币的讨论资料](/content/gnews/16/README.md)
+### [美联储公布关于发行中央数字货币的讨论资料](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [基努李维斯将参加西藏之家线上音乐会](/content/gnews/17/README.md)
+### [基努李维斯将参加西藏之家线上音乐会](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [美国ESPN不会派遣新闻人员参加北京冬奥会](/content/gnews/18/README.md)
+### [美国ESPN不会派遣新闻人员参加北京冬奥会](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [1/21/2022 文贵直播：习最亲的发小告诉习，是他的极左政策让中国失去了市场的价值和信用，习跟西方的对抗让中国人和中国成为全球三分之二的人的公敌，若不搞政治改革，习的任何改变都不可能成功](/content/gnews/19/README.md)
+### [1/21/2022 文贵直播：习最亲的发小告诉习，是他的极左政策让中国失去了市场的价值和信用，习跟西方的对抗让中国人和中国成为全球三分之二的人的公敌，若不搞政治改革，习的任何改变都不可能成功](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/20/README.md)
+### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.21大直播后记：郭文贵谈如何战胜痛苦](/content/gnews/21/README.md)
+### [1.21大直播后记：郭文贵谈如何战胜痛苦](/content/gnews/28/README.md)
  ` 雅典娜GNotes`
 
-### [1/21/2022 文贵直播：面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦](/content/gnews/22/README.md)
+### [1/21/2022 文贵直播：面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [【秘翻在线】拜登的司法部撤销对被指为中共工作的麻省理工学院科学家的指控](/content/gnews/23/README.md)
+### [【秘翻在线】拜登的司法部撤销对被指为中共工作的麻省理工学院科学家的指控](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1.21大直播后记：南巡讲话内幕](/content/gnews/24/README.md)
+### [1.21大直播后记：南巡讲话内幕](/content/gnews/31/README.md)
  ` 雅典娜GNotes`
 
-### [日本研究发现中共病毒Omicron重症率是原始毒株的十分之一](/content/gnews/25/README.md)
+### [日本研究发现中共病毒Omicron重症率是原始毒株的十分之一](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世卫组织建议各国取消COVID旅行禁令](/content/gnews/26/README.md)
+### [世卫组织建议各国取消COVID旅行禁令](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [共产党会通过冬奥会编排台湾](/content/gnews/27/README.md)
+### [共产党会通过冬奥会编排台湾](/content/gnews/34/README.md)
  ` 雅典娜GNotes`
 
-### [暴政必亡，历史铁律](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [冬奥会的剧本已被共产党写好](/content/gnews/29/README.md)
- ` 雅典娜GNotes`
-
-### [冬奥会一定会有运动员感染治理](/content/gnews/30/README.md)
- ` 雅典娜GNotes`
-
-### [震撼呐喊：欧洲议会议员呼吁结束封锁和对未接种疫苗人的歧视](/content/gnews/31/README.md)
+### [震撼呐喊：欧洲议会议员呼吁结束封锁和对未接种疫苗人的歧视](/content/gnews/35/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|法国疫苗通行证即将生效](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [有声|接种者疫苗蛋白脱落或可感染未接种者](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [共产党必死的三点原因](/content/gnews/34/README.md)
- ` 雅典娜GNotes`
-
-### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/35/README.md)
+### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/36/README.md)
  ` 澳喜农场`
-
-### [文贵先生直播精要 2022/01/21](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [资深护士发声发对强制疫苗](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`

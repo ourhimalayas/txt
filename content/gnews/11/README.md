@@ -2,32 +2,31 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月22日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1896606/)
+## 有声|日本国会数据再次印证疫苗无效
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896618/)
 
-作者：香草山翻译部
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月19日，日本国会对防疫政策进行了最新一轮听证答辩。日本经济再生大臣山际大志郎公布日本官方数据，在感染奥密克戎变种并且有临床研究数据的191例感染病例之中，有145例是已经接种2剂疫苗的患者，占总数的75.9%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-4.jpg)
+受此影响，日本政府在19日宣布暂停实施《疫苗接种和检查制度》。该制度是去年11月颁布的，只针对已接种人群以及核酸检测呈阴性人群，解除了一部分外出限制。该制度的叫停意味着日本将对所有国民实施统一的相关政策，不区分他们是否接种了疫苗。
 
+分析人士指出，日本公布的临床数据已经再次证明现阶段的所谓疫苗对病毒无效，幸运的是日本政府及时根据这些数据做出了调整。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC.png)
-校对：Stay文苑
+文字版原文：[日本国会数据再次印证疫苗无效](https://gnews.org/zh-hans/1890239/)
 
-编辑：Stay文苑
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-发稿：Stay文苑
-
-视频参看：[1.22  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ecaf26533c672fca8156b7)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

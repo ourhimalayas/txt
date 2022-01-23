@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党必死的三点原因
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1896319/)
+## 共产党会通过冬奥会编排台湾
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1896471/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 图片来源：雅典娜设计组
