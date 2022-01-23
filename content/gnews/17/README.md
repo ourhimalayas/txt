@@ -2,18 +2,14 @@
 ---
 
 
-## 有声|日本国会数据再次印证疫苗无效
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896618/)
+## 有声|GTV新闻访谈简报|2022年1月21日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896620/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月19日，日本国会对防疫政策进行了最新一轮听证答辩。日本经济再生大臣山际大志郎公布日本官方数据，在感染奥密克戎变种并且有临床研究数据的191例感染病例之中，有145例是已经接种2剂疫苗的患者，占总数的75.9%。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-20.png)
 
-受此影响，日本政府在19日宣布暂停实施《疫苗接种和检查制度》。该制度是去年11月颁布的，只针对已接种人群以及核酸检测呈阴性人群，解除了一部分外出限制。该制度的叫停意味着日本将对所有国民实施统一的相关政策，不区分他们是否接种了疫苗。
 
-分析人士指出，日本公布的临床数据已经再次证明现阶段的所谓疫苗对病毒无效，幸运的是日本政府及时根据这些数据做出了调整。
-
-文字版原文：[日本国会数据再次印证疫苗无效](https://gnews.org/zh-hans/1890239/)
+文字版原文：[GTV新闻访谈简报|2022年1月21日早](https://gnews.org/zh-hans/1890544/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
