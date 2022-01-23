@@ -2,31 +2,88 @@
 ---
 
 
-## 1.21大直播后记:喜钱包（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897700/)
+## 全球疫情更新（官方报告的数据证明疫苗令疫情恶化）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897747/)
 
-整理：雅典娜速记组
-编辑：小红帽
+**整理/编辑：枳实**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b601590bfa66f888.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1827.png)图片：雅典娜农场设计组 精灵蓝
 
 
-今天你以为我跟你谈数字货币（是）说着玩（的）？七哥不跟你玩点高的，哪能显出七哥的高啊。你看你今天做PPT都是炒冷饭，是吧？战友比你还明白.你不说，战友都明白。你把战友当孩子呢。服不服？政清冷钱包？
+雅典娜疫情更新（2022年 1月23日）
 
-今天我一听说政清要当主持人，那咱得跟主持人有点儿特长交流，是吧？你给郝海东先生当主持人，你讲讲流水的事儿，是吧？人家国内有战友跟我说：“7哥呀，你知道这个海东睡过的人太多了。”他说某个张姓女演员，亲自飞大连跟他睡觉啊。然后，这个女孩去昆仑酒店就跟他睡觉啊。（这个）张姓女演员超牛的啊。他说，那可了不得。海东睡过的女演员那比王岐山多多了。然后，我问，跟那什么冰有一腿吗？他说，那冰都被他“冰”过了，都是自愿的，还带吃带喝去冰的呀。所以我要跟东弟当主持人，我就谈流水的事。跟你就谈喜币。谈喜币咱有点儿杀手锏，就是热钱包、冷钱包。政清，你就热钱包、冷钱包没谈。你们没有任何人看到喜联储，还有咱们未来的躺平币。躺平币（的）下一步在中国没有人搞明白，战友使用盖特、GTV、Gnews即金钱。你在手机上呆了10个小时，就应该得到多少币自动就给你。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-那我咋用呢，是吧？在福建武夷山养蛇的农民，武夷山养蛇的多，那我咋花呀？有这个喜支付，还有盖特支付，你可以在（这个）范围内一找，有（没）卖双修药的。你（在）这儿找到他，你就发信息–咱都是喜支付的人。对方认可了，找到了，就政清离我100公里，咱俩一对接就完了。我想买点包子，找找周围有没有，有的我接受，我就买了。为什么？天空Wifi已经脱离了当地的通信控制，你找不着我。第二个，我的数字货币是去中心化的货币，你也找不着人。第三，我有热钱包、冷钱包。很多商家准备了冷钱包。我下载完，我就放我冷钱包了。我有冷钱包，（那）我干啥去？我批发的双休药卖给你。我就拿冷钱包去批发，就是在共产党控制的范围内，我拿冷钱包玩，你找不着我了。但是，如果跟小额的（交易），我拿热钱包支付。我玩死它共产党。你认为老杂毛他能懂这个吗？ 懂这个的都给你杀了，都不让你活着。咱们就在电脑上这么玩死老杂毛。让你看着，我开你家门，我开你家保险箱，拿走你的钱，还让你找不着我。让共产党发现，哇塞，抓不着偷我钱的人，还有你藏钱的方式。那我（共产党）也想当这个人啊。我就把我的钱放到硬钱包去。
+**一，全球疫情基本数据**
 
-当共产党王岐山、习近平家人相信，这个硬钱包谁也查不着，谁也找不着，谁也抢不走时候，给我们做最大贡献的就是习近平这老杂毛。你看张高丽，第一个就是给他老婆说，宇宙无限大，地球是一粒沙。谁也别相信，只相信郭文贵，把钱放那个硬钱包吧。肯定是这个，就相信郭文贵宇宙无限大。而且，这个在世界上，我们要买保险，我们要给硬钱包人买保险，比如说你有了10亿个币在你的硬钱包里，你丢了我赔你。你在这买保险。如果你被哪个政府强迫弄走了，我赔你。 你哪天晚上喝多了被小女孩给骗走了，我赔你。这就是喜保险和它的对应（服务），叫你永远安全不可找、不可抢、不可骗，永不丢，这就是热钱包、冷钱包。你用好了（它们）（将发挥）无穷无尽大的（作用）。
+感染总数：348,161,862（日新增3,128,314，14天增幅+35%）
 
-*发布：tianzhihuan*
+死亡总数：5,589,066（日新增7,641人，14天增幅 +19%）
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+**二，全球“疫苗”毒针统计数据**
+
+“疫苗”毒针注射总数：98.5亿
+
+完全“接种”：40.9亿人
+
+完全“接种”百分比：52.4 %
+
+**三，澳洲疫情和“疫苗”数据**
+
+感染总数：2,197,108（今日新增48,981人）
+
+死亡总数：3,121人（今日新增 58人）
+
+每万人感染人数：851.8891人
+
+“疫苗”毒针注射总数：47,934,083 （日新增191,876 针）
+
+完全“接种”：19,164,031人
+
+第二针“接种”百分比：78.2%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：92.9%
+
+**四，疫情新闻摘要**
+
+[英国企业拒绝强制员工接种疫苗。](https://www.theguardian.com/law/2022/jan/22/uk-firms-weigh-risks-of-forcing-their-staff-to-get-coronavirus-jabs)
+
+在英国，大多数私营企业都对强制员工接种疫苗持否定态度。就业律师和工会警告称，要求员工接种疫苗的企业——所谓的“不打针，不工作”政策——是一个道德雷区，在法律上也存在争议。只有例如Next、Ikea 和 Ocado 等公司高高在上，他们改變了他們的公司疾病政策，削减了未接种疫苗工人的病假工资。儘管如此，絕大多數英國雇主已經表明他們不願意在員工中強制接種疫苗。
+
+[著名橄榄球队主力前鋒傑克達林成为西澳第一个拒絕接種中共病毒疫苗的球员。](https://thewest.com.au/sport/west-coast-eagles/west-coast-eagles-forward-jack-darling-barred-from-club-after-refusing-covid-19-vaccination-c-5390801)
+
+以亲共著称，谨慎避免批评中共在香港和新疆的暴行的西澳州长麥高恩评论说，“為此放棄你的足球生涯，我認為這不是一個明智的決定”。 卡尔顿的利亚姆·琼斯（Liam Jones）在选择不接种疫苗后退役，北墨尔本的杰德·安德森也没有在阿登街训练。
+
+**五.数据分析**
+
+今天继续介绍[《疫情编年史》](https://eugyppius.substack.com/)的这[篇文章](https://eugyppius.substack.com/p/unboostered-brits-infected-and-dying)的精彩部分。下面这个图表来源于[蘇格蘭公共衛生部的數據](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)。zhe
+![](https://assets.gnews.org/wp-content/uploads/2022/01/N1RUBM18AATFK0YVPE1F.png)
+这个图表显示了苏格兰公共卫生部的数据中去年12月和今年1月的两个星期中的病例中未接种疫苗（绿色），一剂疫苗（黄色），两剂疫苗（橙色），三剂疫苗（红色）的每十万人口的感染病例数字。从这个图表看出，这四个星期，无论疫情如何，未注射疫苗的病例数都更低，病例数最高的就是注射2针的人群。
+
+这个图表简直就是在嘲笑这些所谓的疫苗，越打病例数越多。这个数据也与[我们之前提到](https://gnews.org/zh-hans/1817504/)的[丹麦研究](https://t.co/A8gp5cTnYR)相符合：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/252Y6_KZXXP0RXU5P.png)
+也就是说，英国，爱尔兰，丹麦的数据都表明，在奥米克戎毒株面前，接种疫苗反而导致人们更容易感染。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
