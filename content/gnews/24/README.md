@@ -2,25 +2,24 @@
 ---
 
 
-## 美国务院已下令撤离驻乌克兰大使馆工作人员家属
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897274/)
+## 中共你产啥，你能卖啥？（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897338/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1843.png)[(图片来自视频源截图)](https://m.youtube.com/watch?v=KV4lHNPghec)
-23日，据一些美国媒体报道，俄罗斯可能入侵乌克兰，形势日益严峻，美国国务院已经命令驻乌克兰首都基辅大使馆工作人员的家人撤离该国。
+#### **整理：雅典娜速记组**
+**编辑：请你喝可乐**
 
-福克斯新闻报道称，据多位美国官员称，美国国务院已下令美驻乌克兰大使馆工作人员家属24日开始撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党你产啥2、北酒_01.jpg)
 
-预计下周将使用商业飞机帮助在乌克兰的普通美国人撤离该国。
+不要忘了第二个问题，全人类所有的大公司，包括日本，包括中共，包括 北朝鲜之外的企业，北朝鲜在越南很多所谓的挂着日本的企业，我告诉你, 只要挣钱的几乎百分之八十九十都是美国基金构成。 你给我查查任何一个中国大企业，没有美国投资的你给我找一家出来。两 个结果：一、他不大，二、他糊弄你。一定是百分之八十九十的。 那你中共控制谁呢？中共是你看到投资了什么红杉资本在美国，我可以告 诉你，最后的红利，绝大多数钱都是交给美国，包括英国、德国、日本。 你共产党，我想说你的经济在所有的股票市场，所有的房地产全都是假的, 比冥币都不值钱。为什么现在有数字货币了？印冥币还得印纸呢，还得有 人搬运呢。
 
-据美国媒体透露，拜登总统在周末紧急与国家安全顾问沙利文讨论了乌克兰局势。
+*发布：请你喝可乐*
 
-信息源：[米　ウクライナの大使館員家族に退避命令か](https://news.yahoo.co.jp/articles/d61227b33ba313275bc1217a4b6aa7c56b8550e9)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

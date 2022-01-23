@@ -2,33 +2,26 @@
 ---
 
 
-## 众议员迈克尔·麦考尔预测俄罗斯2月份入侵乌克兰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1897518/)
+## 日本政府将启动一项免费“数字化”教育计划促再就业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897581/)
 
-#### 撰稿：彩虹
+撰稿：东京樱花团｜麗子
+![](https://lh3.googleusercontent.com/s47lO_p6lvk7wpS9047V9dyKgRWqP3EnncDHARQtBlKXlheFGZyNKPJyQjbYYXhhHLVd-zbjo-K2HPbtFFE67shH1tkLGs1UCAeCTLYo6NRzlUrSsOVC4JHfDeXXd75w5qM-Y10F)[*图片来源*](https://www.gmosign.com/media/wp-content/themes/agree/thumb.php?src=https://www.gmosign.com/media/wp-content/uploads/2020/08/20200807-a-03.jpg&amp;w=1200)
+1月23日据日本媒体报道，从2022年度开始，政府将为受中共病毒蔓延影响的非正式员工和失业人员启动一项教育计划，帮助他们获得数字领域的知识和技能。岸田内阁将“数字化”作为其增长战略的一个支柱，其目的是发展人力资源。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-20.jpg)图片来源：The Telegraph
-1月22日，《新闻极限》引用福克斯新闻的报道，美国德克萨斯州联邦众议员迈克尔·麦考尔（Michael McCaul）周五援引美国情报说，弗拉基米尔·普京（Vladimir Putin）总统正在关注一个“非常激进的时间表”，他预测俄罗斯军队将于下个月内入侵乌克兰。
+据厚生劳动省称，因中共病毒影响而被解雇或停职的员工总数超过12万（包括将要失业人员）。 政府希望与当地企业和劳动人事局合作，支持这批人员掌握数字技术，为其就业或转职提供支援。
 
-麦考尔在众议院外交事务委员会中排名第一，他在给福克斯的一份声明中说，对于拜登政府面对俄罗斯在该地区的侵略行为的反应，他极不认同。
+该计划将主要在全国大学和职业学校设置25处培训机构，预计约有750人参与。将免费提供信息安全知识和编程基础，并模拟在当地公司的工作场景。
 
-他认为，“解决俄罗斯侵略的关键是威慑。本届政府在阻止俄罗斯进一步入侵乌克兰方面做得太少了。这就是为何我提出了《卫士法案》（GUARD Act）。这项法案加快了对乌克兰大量额外关键援助，并立刻制裁普京的影响恶劣的项目：北溪2号管道”。
+此外，为了对在职员工进行再教育，政府将启动一项计划帮助他们学习更多实用技术，如大数据分析、人工智能（AI）的深度学习以及“物联网”技术，并将在全国高校选择设置约10个基地。政府的目标是从2023年度起将这些项目扩展到全国高校及职业学校。
 
-他进一步强调指出：“当基辅位于可能是二战以来最大冲突的中心时，缓慢地提供这种类型的援助和支持是绝对不可接受的”。
+授之以鱼不如授之以渔。中共病毒持续蔓延，比起给各企业与个人支付各种补贴外，提供适应后疫情时代发展的实用课程显得更加意义重大，从长期看更有助于维持社会稳定、促进经济发展。
 
-据福克斯新闻报道，众议院目前正在推进由外交委员会主席格雷戈里·米克斯（Gregory Meeks）撰写的立法，以制裁俄罗斯并授权向乌克兰提供5亿美元的补充性紧急安全援助。
+信息来源：[**「コロナ失業」の労働者にデジタル教育、受講無料…就職・転職を後押し**](https://news.yahoo.co.jp/articles/ae2cb1fbf4d99a61fd18245cec19679a3247bd67)
 
-另外，周六，美国驻乌克兰基辅大使馆宣布，为乌克兰军队提供的2亿美元“安全援助”计划的一部分已于当天清晨抵达该国。美国大使馆在脸书（FaceBook）上发文说：“这笔捐款包括近20万磅的关键性安全援助，包括为乌克兰前线保卫者提供的弹药，显示了美国对乌克兰主权自卫权的坚定承诺”。
-
-大使馆指出，在过去的一年里，美国向乌克兰承诺了超过6.5亿美元的安全援助，自2014年以来超过27亿美元。
-
-**新闻来源**
-
-[GOP Leader Predicts Russia Will Invade Ukraine ‘in the Next Month’](https://www.newsmax.com/politics/russia-ukraine-foreign-policy-war/2022/01/21/id/1053502/)
-
-[Part of US military support package arrives in Ukraine](https://thehill.com/homenews/administration/590893-part-of-us-military-support-package-arrives-in-ukraine)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,24 @@
 ---
 
 
-## 中共巨额资助荷兰大学 影响其学术独立性
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1897000/)
+## 电话录音曝光：良知英国医生阻止患者注射加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897101/)
 
-#### 撰稿：日本东京方舟农场  海星
+医学上，我跟你说过多次，现在有很多信息出来了，这些信息之前还没有出来。很快这些疫苗会完全停止。信息真的出来了，短期内你还不会在电视上看到。可能因为。。。但是的很快会停的，但人们还不知道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3615434B-CB33-495F-B912-CEF2A2160EF9.jpeg)（图片来源：法新社）
+翻译：George Yang
+校对：枳实
+剪辑/字幕：清净
+发布：枳实
 
-近期，荷兰媒体披露中共巨额资助了荷兰阿姆斯特丹自由大学（Vrije Universiteit Amsterdam）的人权研究计划，质疑其影响该大学的学术独立性。
+视频链接：[English doctor told patient not to get covid vaccine](https://gettr.com/post/poyk1d9377)
 
-据《中央社》报导，荷兰广播基金会（NOS）新闻网站19日刊登的一篇名为《中共资助阿姆斯特丹自由大学人权研究计划》（China financiert onderzoek naar mensenrechten aan）的文章，披露中共西南政法大学在2018年至2020年期间，每年资助阿姆斯特丹自由大学设立的“跨文化人权中心（CCHRC）”，金额高达25万至30万欧元（人民币180万元至216万元）。
-
-报导指出，CCHRC通过中共资助的资金出版学术刊物和召开学术研讨会，并在官网上为中共侵犯人权及在新疆持续发生种族灭绝的罪行辩解，同时推广中共反西方普世价值观的思想。
-
-多位荷兰学者在接受采访时表示，阿姆斯特丹自由大学接受中共资金的行为会影响其学术独立性，涉嫌为中共侵犯人权的罪行合理化。
-
-其中，荷兰莱登大学（Leiden University）国际关系教授罗伯德维克（Rob de Wijk）批评CCHRC主任泽瓦特（Tom Zwart）经常参与中共学术会议以及接受中共官媒采访的行为，这会诱导中国人民误解西方的普世价值观，巩固其专制政权。
-
-据报道，阿姆斯特丹自由大学在其学术独立性受到广泛质疑后表示，将终止与中共的合作。
-
-*参考链接：[中國透過資助影響學術獨立 荷蘭大學終止合作](https://www.cna.com.tw/news/aopl/202201220207.aspx)*
-
-* * *
-
-*素材采编：海星*
-
-*编辑：文顺*
-
-*发布：miumiu*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
