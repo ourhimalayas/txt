@@ -2,42 +2,36 @@
 ---
 
 
-## 拜登禁止未接种卡车司机进入美国导致供应链更加混乱
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1899452/)
+## 接种疫苗最多的以色列创COVID-19病例新记录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1899493/)
 
-翻译：**Lulumi**
+**编译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip06-5.png)2021 年 11 月 29 日，一名医务人员在以色列耶路撒冷的一个 COVID-19 直通测试点从一名以色列边防警卫那里收集拭子样本。（Ahmad Gharabli/AFP via Getty Images）
+以色列卫生部本周宣布，超过 72,000 人的 CCP病毒检测呈阳性，这是自大流行开始以来感染人数的最大增幅。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-6-5.jpg)图片来源：thenationalpulse.com
+根据该国卫生部 1 月 19 日发布的声明，该国的活跃病例总数上升至近 40 万人，其中 533 人目前住院治疗，情况危急。
 
-此举肯定会加剧美国现有的供应链问题。
+以色列总理纳夫塔利·贝内特（Naftali Bennett）本月警告说，随着 Omicron 变种的传播，预计 CCP 病毒病例将迅速增加，因为他提供的政府数据表明，预计在当前爆发期间，将有 200 到 400 万以色列人感染 COVID-19 。
 
-拜登正在要求所有非美国公民——包括墨西哥和加拿大的卡车司机，只有出示中共病毒COVID-19疫苗接种证明，才能通过所有陆地入境口岸和轮渡码头进入美国。此举肯定会加剧美国现有的供应链问题。
+“在内阁会议上提供的信息表明，在以色列当前的浪潮中，总共将有 200-400 万公民被感染，”贝内特的声明中写道。
 
-国土安全部（DHS）于1月22日宣布了这项新政策：
+根据 1 月 20 日的数据，以色列是世界上 COVID-19 疫苗接种率最高的国家之一，已经有近一半的公民接种了三针，在人均每日新增病例方面处于世界领先地位。
 
-“国土安全部将要求通过我国北部和南部边境的陆地入境口岸或渡轮码头进入美国的非美国人全面接种COVID-19疫苗，并准备好出示相关的疫苗接种证明，”部长亚历杭德罗·马约卡斯解释说。
+据以色列时报报道，魏茨曼科学研究所的生物学家伊兰·西格尔（Eran Segal ）对这一数据进行了验证，并解释说，在比较每个国家的 7 天运行平均值后，以色列位居榜首。
 
-“这些新的限制将适用于因必要和非必要原因旅行的非美国人。它们将不适用于美国公民、合法永久居民或美国国民，”国土安全部说。
+该国卫生部上周宣布，它开始对最脆弱的人群进行第二次加强注射，已经有 500,000 人接受了第四次注射。政府数据显示，总共有近 73% 的以色列人接种了至少一剂疫苗，而大约 66% 的人完全接种了疫苗。
 
-国土安全部详细说明了所有通过陆地入境口岸或渡轮码头前往美国的非美国人，无论是出于必要还是非必要的原因，必须能够做到以下几点：
+以色列是一年前首批推出疫苗的国家之一，并于去年夏天开始广泛提供第三剂疫苗，当局表示，他们希望第四次注射能够减缓由 Omicron 引发的一波感染浪潮。
 
-- 口头证明他们的COVID-19疫苗接种情况。
-- 提供如CDC网站所述批准的COVID-19疫苗接种证明。
-- 出示符合西半球旅行倡议（WHTI）的有效文件，如有效护照、可信旅行者计划卡或强化部落卡。
-- 准备出示美国海关和边境保护局（CBP）官员在边境检查期间要求的任何其他相关文件。
+事实证明，Omicron 更加逃避 COVID-19 疫苗诱导的抗体，并且在最近几周已经感染了全球数百万接种疫苗的人。
 
-
-这一决定是在美国的杂货店面临前所未有的短缺和光秃秃的货架的情况下作出的，鉴于该政策与试图通过墨西哥或加拿大边境进入美国的卡车司机有关，这一问题可能会加剧供应链问题。这项措施也是在制药巨头达到前所未有的游说水平之后采取的——无论从支出还是雇用的人员数量来看。尽管研究显示疫苗在防止中共病毒COVID-19感染方面并不一定有效。
-
-虽然拜登政权（对卡车司机）进行打击行动，但却继续开放边界给恋童癖和人口贩子使用——允许居住在美国的非法外国人使用刑事逮捕令作为在机场旅行的有效文件。
-
-参考资料：[thenationalpulse][Biden Bans Unvaxed Truckers From US, Exacerbating Supply Chain Carnage.](https://thenationalpulse.com/2022/01/22/dhs-mandates-vaccines-for-all-us-entry/)
+**新闻来源**：[theepochtimes.com][Israel, One of Most Vaccinated Countries in the World, Sets New COVID-19 Case Record](https://www.theepochtimes.com/israel-one-of-most-vaccinated-countries-in-the-world-sets-new-covid-19-case-record_4229781.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-01-23&amp;utm_medium=email&amp;est=tLboNWaRjAMMSHTeuu2GVtcAuwCh3TKePJPEOV5622yJCMa7smXzMZ4SzHopBxig9%2BxeJw%3D%3D)
 
 * * *
 
-*审核：文乐
+***审核：文乐
 校对：阿伯塔
-发稿：信心的选择*
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
 
