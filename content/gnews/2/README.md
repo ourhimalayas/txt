@@ -2,41 +2,30 @@
 ---
 
 
-## 美国将加强芯片投资 以增强对华竞争力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896523/)
+## 比特币较高点跌幅超50% 首次跌破35000 美元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896571/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-33.jpg)比特币较高点跌幅超50% 首次跌破35000 美元 网络图片
+据俄罗斯卫星通讯社1月22日报道，比特币价格在本周六下跌超过 9%，比特币价格在交易过程中自 2021 年 7 月以来首次跌破35000 美元大关。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/拳头.png)
+在交易量最大的加密货币交易所币安上，比特币价格下跌 8.9% 至3.54 万美元。根据计算 20 多家交易所平均价格的CoinMarketCap 门户网站的数据，比特币下跌 9% 至3.49 万美元。
 
-图片来源：雅典娜设计组
+2021 年 11 月，比特币创出了 60002 美元的新高，随后比特币一路下跌，2021 年 12 月 4 日最大跌幅高达 20%，截至目前，比特币指数较 60002 的高点，跌幅超 50%，投资者损失惨重。一两年前郭文贵先生就在直播中公开指出比特币一定会跌到一文不值，并多次提醒比特币投资者要远离比特币。如今郭先生的警告一次次验证，跟着共产党走进火葬场。
+
+新闻参考链接：[https://sputniknews.cn/20220122/-9–7-35000–1037246528.html](https://sputniknews.cn/20220122/-9--7-35000--1037246528.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**整理：Eileen（围剿维尼熊）**
-**编辑：朝花夕拾**
+编辑：【英国伦敦喜庄园编辑部】
 
-据路透社报道：1月21日美国众议院议长佩洛希(Nancy Pelosi)表示，美国众议院将提出一项法案，以提高美国对中国的竞争力，并增加在半导体方面的支出。拜登政府正寻求增加国内芯片生产。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-几个小时前，英特尔宣布，将向俄亥俄州的两家新的芯片制造厂投资逾200亿美元，这是一个可能在未来几年受益于联邦资金的大型制造项目。
 
-拜登政府正努力说服国会批准提供资金，帮助美国的芯片生产。目前，用于汽车和电脑的关键零部件的短缺加剧了供应链瓶颈问题。
-
-美国参议院去年通过了《美国创新与竞争法案》，其中包括520亿美元用于增加美国半导体生产，并授权1,900亿美元用于加强美国的技术和研究。
-
-拜登之前表示，通胀飙升与供应链密切相关，美国必须有自力更生生产汽车所需的电脑芯片的能力。
-
-参考链接：
-
-[https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2JW02U?irpc=932)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

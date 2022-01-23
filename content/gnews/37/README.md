@@ -2,40 +2,91 @@
 ---
 
 
-## 中共国奥园集团有限公司美债违约
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1895193/)
+## 全球疫情更新(英国疫苗报告中隐藏的人尸丸真相）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1895872/)
 
-据《www.bnnbloomberg.ca》作者：Russell Ward和Kevin Kingsbury，2022年1月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1811-e1642872037230.png)2021年3月14日星期日，中共国上海郊区一个住宅项目施工现场，一名工人站在起重机旁。2月份，中共国的房价以6个月最快的速度增长。因为假日期间项目供应减少，增加了买家的恐惧。
-图片源自：Qilai Shen/彭博社
-**彭博社——中共国奥园集团有限公司无力支付四笔美元债券，将引发其他海外债务的违约，使其成为最新一个屈服于流动性危机的中共国房地产开发商。**
+**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1814.png)图片：雅典娜农场设计组（精灵蓝）
+雅典娜疫情更新（2022年 1月22日）
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-该建筑商在周三提交给香港证券交易所文件中披露，将不支付周四到期的美元债券和周日到期的另一项债券。根据彭博社收集的数据，这些票据的未偿本金总额为6.88亿美元。其还表示，它不会在另外两张票据的30天宽限期结束前支付利息。利息总额为1530万美元。
+**一，全球疫情基本数据**
 
-**奥园在声明中披露：“集团的所有其他离岸金融债务将发生（或已经发生）违约事件。公司正在寻求资产销售，并且正在与潜在的投资者和购买者进行初步讨论。”**
+感染总数：345,711,978（日新增3,126,878，14天增幅+44%）
 
-在打击行业内过度借贷引发的现金紧缩中，奥园成为最新一家债务违约的中共国开发商。危机引致房地产市场低迷，促使政府回调部分政策措施，周三关于放宽预售房屋收益使用的消息刺激了债券和股市的反弹。
+死亡总数：5,583,500（日新增7,726人，14天增幅 +23%）
 
-奥园公司拒绝偿还债务，以保护其有限的现金资源，并在进行债务重组前保持所有债权人的公平。
+**二，全球“疫苗”毒针统计数据**
 
-奥园位于广东省，该省也是行业巨头中共国恒大集团和凯撒集团控股有限公司的所在地，这两家公司上个月均违约。根据彭博社数据，奥园有50亿美元的在岸和离岸债券未偿还。
+“疫苗”毒针注射总数：98.2亿
 
-**根据中共国房地产信息公司的数据，奥园去年在中共国开发商中按销售额排名第37位。**
+完全“接种”：40.7亿人
 
-奥园表示：“市场持续低迷和购买者信心减弱，为集团库存合理处置带来困难。”
+完全“接种”百分比：52.2 %
 
-原文连接：[https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228](https://www.bnnbloomberg.ca/china-aoyuan-says-it-won-t-pay-bonds-signals-default-imminent-1.1710228)
+**三，澳洲疫情和“疫苗”数据**** **
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+感染总数：2,145,415（今日新增54,810人）
 
+死亡总数：3,053人（今日新增 64人）
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+每万人感染人数：825.8376人
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“疫苗”毒针注射总数：47,742,207   （日新增335,954 针）
+
+完全“接种”：19,157,236人
+
+第二针“接种”百分比：78.2%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：92.9%
+
+**四，疫情新闻摘要**
+
+今日全球疫情总体维持病例增长速度下降而死亡增长上升的趋势，澳洲的每日病例数字也开始有下降趋势。然而，[今日波兰，俄罗斯，日本都报告了创下历史记录的每日新增病例数。](https://www.theguardian.com/world/live/2022/jan/22/coronavirus-live-japan-and-taiwan-report-omicron-surges-ireland-lifts-restrictions)而香港政府则继续忙着帮助中共把责任甩锅给仓鼠，竟然下令杀死所有12月22日以后购买的宠物，媒体上充满哭泣的孩子与心爱的宠物告别的镜头。
+
+继英国之后，爱尔兰也取消了大部分疫情封锁措施，包括疫苗护照。
+
+昨天，捷克政府“为避免加深社会裂痕”，宣布废除了上届政府制定的对医生，警察等特定职业人员和60岁以上公民的强制疫苗规定。 今天关于强制疫苗的最大的新闻是全球自由集会。在全球各地首府城市和区域城市，包括澳洲的墨尔本，悉尼，布里斯班，珀斯等各地都爆发了集会，抗议强制疫苗，疫苗护照，尤其是给年仅5岁的儿童注射基因治疗针剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1815.png)集会蜿蜒穿过墨尔本城市街道（图片来源：澳大利亚新闻集团David Crosling）![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1816.png)游行参加者所用的道具，道具棺材上的文字：澳洲孩子 2017-2022 ~安息~
+（图片来源：澳大利亚新闻集团）
+**五.数据分析**
+
+今天读到了一篇很棒的博客[《疫情编年史》](https://eugyppius.substack.com/)，其中[一篇文章分析和挖掘了英国卫生安全局（The UK Health Security Agency, UKHSA)的最新疫苗追踪报告中披露的数字](https://eugyppius.substack.com/p/unboostered-brits-infected-and-dying)，并把数字图形化，让人一目了然，对这些基因治疗针剂的真相触目惊心。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1817.png)
+以上是这篇文章中的图表之一，显示了各年龄段每十万人的病例数，未接种（灰色），两针（黑色）和3针（黄色）的对比。需要特别指出的是，如图所见，接种两针的病例数实在太难看，在UKHSA的报告中被隐藏了，两针的数字是博客作者通过简单的加减法推导出来的。
+
+[郭先生去年2月的直播](https://gnews.org/zh-hans/1456445/)中就点明，这个所谓的疫苗是武侠小说中的那种人尸丸，就是用来控制你的工具。从这个图表也可以看出，2针“疫苗”的病例数在所有18岁以上的各年龄组中都明显增高，打了“加强针”后才下降到接近或稍高于未打疫苗组者的水平。不要忘记，现在推荐的加强针可是每3月打一次，也就是说只要中共病毒仍然在社区传播，每年就需要打4次毒针，无怪乎现在越来越多的当初毫不犹豫去打针的人们也开始觉得不对劲了，也开始犹豫到底要不要这样没完没了的打毒针？
+
+明天的疫情更新将继续分享这篇文章中的数据分析，请继续关注。
+
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
