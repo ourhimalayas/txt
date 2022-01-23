@@ -2,53 +2,45 @@
 ---
 
 
-## 共产党是要统治法律制造法律制造正义的沼泽地魔鬼之一
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898934/)
+## 如果医院使用泽连科疗法Covid-19相关死亡将几乎不存在
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1898957/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf80b87664c47acd8b046](https://gtv.org/video/id=61ecf80b87664c47acd8b046)
+翻译： Jennny Ball
 
-**郭文贵先生**：所以说你现在看到美国的，我们直播完PAG太平联盟官司以后，世界震撼大不大？我们的法官多次在法庭上，过去几年多次表达对对方的Edward Moss律师“我很尊重你，你是很成功的律师，有极高的道德”，结果他现在是强烈地违反了道德规律给踢出去了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1903.png)图片来源：naturalnews.com
 
-你知道在这个中间我们的律师，Melveny这家律师是美国也是这么大的，就他们这个Melveny律师事务所是最大之一，我们的律师也是纽约也是最大的，被法官多次警告：“你不要违反了职业道德！” 你想想，法官能多次夸奖告我们造假的律师，他不让我提供证据，又同时警告我们的律师不道德，结果对方的律师现在因为被法官判令为强烈违反职业道德（给）干掉了。
+自然新闻 – 一项多中心、随机、开放标签研究，评估了维生素 D 和泽连科疗法（Zelenko Protocol）（羟氯喹、锌和阿奇霉素）的有效性。土耳其的七家医院应用了含和不含维生素C的治疗方案，以研究其在缩短疾病持续时间和预防死亡方面的有效性。
 
-你看美国西方的法治给了老百姓就是一个幌子，所谓的正义，最重要的审判是什么？你有两个选择在西方，就是什么？——陪审团审判，你对法官这个制度，我可以选择陪审团呀，那你就得认了，是吧？不管对错你都得认。
+在 237 名住院患者（年龄 22-99 岁）中，一名在 70 岁时去世。该患者患有严重的维生素 D 缺乏症和潜在的心肺疾病。其余 99.58% 的患者恢复了广谱、自然免疫。在研究过程中，研究人员发现，所有住院患者中，有 97% 缺乏维生素 D。严重缺乏维生素 D 的患者 (55%) 更有可能最终进入 ICU ，并住院更长时间。大多数（73%）住院患者还患有糖尿病、心脏病和肺病等潜在合并症。
 
-像郭宝胜、夏业良跟我打官司一样，法官“呱唧”，法官都傻了，法官看到下面陪审团出来，当时那法官……你知道我们开了四、五天庭，那眼睛都熬大了，一直摇头，为什么？他没想到陪审团能判七哥全赢，他以为也就赔个一、二万美元，没想到全力支持。
+研究人员发现，静脉注射维生素 C 可将患者在医院的平均恢复时间从 45 天缩短到 15 天。该研究得出的结论是，“羟氯喹、阿奇霉素和锌联合或不联合维生素 C 的治疗方案，在治疗 COVID-19 时是安全有效的，高剂量的静脉注射维生素 C 可显著加快恢复。”
 
-但是（PAG案件）我们被剥夺了美国法律最根本的陪审团呐，我们的律师被强烈谴责为违反职业道德，而且赞扬对方的律师，这法官大人做的呀。你想想Edward Moss狂妄到什么程度？被法官多次赞扬为成功的、让人尊敬的律师，他最后违反职业道德，如此之嚣张他傲慢到什么程度？他会相信有法律吗？他会相信有正义吗？他会相信不搞假证不作假吗？
+对有效治疗的压制使医院变成了现代毒气室
 
-竟然找到了就Cahill华盛顿最大律师事务所，就是像Bondi这样的人，Bondi的妹妹是谁你们知道吗？Bondi的妹妹是川普总统的律师呀，Bondi的妹妹是川普总统最重要的一员，是真正的，法律上只有一个律师是真正的川普律师，就是Bondi的妹妹，曾经也准备帮我们的人，Bondi在G-TV拿了二百万美元的律师费，竟然如此之不顾利益冲突，竟然要帮PAG，还把Edward Moss弄过去，你见这个世界之荒唐！
+在WHO于 2020 年 2 月宣布“全球大流行”之后，所有的目光都集中在医院的容量上。尽管全国大多数医院从未目睹过备受期待的感染激增，但市中心的医院系统的死亡率却在迅速上升。**纽约市的医院是最先宣传他们治疗 Covid-19 患者失败的医院之一。**
 
-那你说沼泽地是什么？沼泽地就可以让你律师、让你所有的人听他所用，就是没有正义、统治法律、制造法律、制造正义，这叫做沼泽地，共产党就是沼泽地的魔鬼之一。
+这些市中心的医院通常挤满了流感、肺炎、RSV 和各种院内感染患者，但在 2020 年的Covid-19 期间，全世界都看到了医疗系统中的问题：绝望的呼吸机从一开始就是护理标准。在福奇的领导下，联邦的冠状病毒应对措施迫使这些机器的大量生产。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+由于担心一种未知的严重急性呼吸系统综合症病毒株的传播，医院被鼓励及早并经常诊断 Covid-19，即使只是怀疑也要诊断。欺诈性 PCR 检测被大规模推出，尽管它从未被设计用于识别和正确诊断单一传染病。成群结队的医院病人被紧急送往一个闭环系统，也就是呼吸机，以阻止他们“扩散”或把呼吸扩散到周围的空气中。**这些死亡装置会破坏肺部，造成氧化损伤，引起医院感染和细胞因子风暴，导致可怕的死亡率**。在这种恐怖和医源性错误的系统下**，****医院系统被暴露为现代毒气室****。**
 
-编辑整理：Jacques；
+在福奇的领导下，患者被迫忍受痛苦，通过生物武器疫苗实验，迫使更多的痛苦。
 
-字幕文件制作：小满；
+在福奇的领导下，医院系统无视世界各地成功使用的所有有效治疗方案。美国独立诊所的有效治疗方案也被忽视和审查。泽连科疗法**早期使用羟氯喹 ****(HCQ)****、锌和阿奇霉素成功治疗了数千名患者。**但保险公司和制药行业主导着医疗行业，他们利用 FDA 等监管机构，将他们所谓的科学强加给医疗专业人员。福奇很快在美国禁止了泽连科疗法，但推动了高利润的瑞德西韦（Remdesivir）的广泛使用，这只会导致肾功能衰竭、医源性错误和死亡率增加。
 
-视频制作及上传：Cindy；
+为了合法地批准具有 FDA 紧急使用授权的“疫苗”，必须是不存在有效的治疗方案。**被强加给美国和世界其他地区的****mRNA ****疫苗实验，导致更多医疗错误和过早死亡。**原因很简单：**隐瞒有关可行治疗的宝贵信息，并禁止使用营养药物、抗病毒药物、草药、支气管扩张剂、免疫调节剂和抗炎药。**在跟踪这些反人类罪两年之后，许多医疗专业人员推动宣传“疫苗”，并拒绝有效的治疗，现在显然看起来他们都像门格勒木偶皮诺曹。
 
-G-News发布：小满；
+福奇、CDC和 FDA 不需要调查，因为他们的罪行是公开的。**福奇和 ****CDC ****的独裁者，将惊人的 ****Covid-19 ****死亡人数归咎于未接种疫苗的人，**但这些公共卫生宣传员，实际上只是利用无辜的人作为替罪羊来掩盖政府广泛的犯罪清单。与此同时，“未接种疫苗”的人在美国医院仍然受到不良待遇，当他们在医院死亡室被错误地隔离、歧视和虐待时，他们就必须起来争取使用基本抗病毒方案的权利。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**如果医院使用羟氯喹 (HCQ)、锌和阿奇霉素（泽连科疗法），以及静脉注射维生素 C、维生素 D、营养液、伊维菌素和植物性抗病毒药物，那么与 Covid-19 相关的死亡几乎就不存在**。这些治疗方案早在 2020 年之前就已成为常识，但医院并没有在经济上激励他们正确使用治疗患者。更可悲的是：善良的医疗保健专业人员被迫在这种绝望的强制性环境中工作，在一个分裂、虐待的文化中沉沦，他们甚至不再拥有对自己的良心或身体自主权的权力。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻来源：[naturalnews.com][If hospitals had utilized the Zelenko protocol with intravenous vitamin C and vitamin D, then covid-19-associated deaths would be virtually nonexistent](https://www.naturalnews.com/2022-01-21-zelenko-protocol-intravenous-vitamin-c-and-d-covid19-deaths.html#) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8712288/) / [NaturalNews.com](https://naturalnews.com/2021-09-17-hydroxychloroquine-and-ivermectin-treatments-covid19.html) / [CNBC.com](https://www.cnbc.com/2020/04/29/dr-anthony-fauci-says-data-from-remdesivir-coronavirus-drug-trial-shows-quite-good-news.html) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC7290825/) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
