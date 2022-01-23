@@ -15,80 +15,80 @@
 
 ---
 
-### [共产党必死的三点原因](/content/gnews/1/README.md)
+### [暴政必亡，历史铁律](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [冬奥会的剧本已被共产党写好](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [【秘翻在线】NFL季后赛球队未接种疫苗的球员不再接受每日Covid-19测试](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [抵制冬奥会引发的思考](/content/gnews/5/README.md)
+### [冬奥会一定会有运动员感染治理](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [2022 年 1 月 22 日魁北克省蒙特利尔再次发生反对卫生措施的示威活动](/content/gnews/6/README.md)
+### [震撼呐喊：欧洲议会议员呼吁结束封锁和对未接种疫苗人的歧视](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [参加奥运会的运动员会不会得病怎么宣传（三）](/content/gnews/7/README.md)
+### [有声|法国疫苗通行证即将生效](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|接种者疫苗蛋白脱落或可感染未接种者](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [共产党必死的三点原因](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [大烟草制造商“勇敢 悲壮”地承担起替罪羊的角色！](/content/gnews/8/README.md)
+### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [【秘翻在线】NFL季后赛球队未接种疫苗的球员不再接受每日Covid-19测试](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [抵制冬奥会引发的思考](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [2022 年 1 月 22 日魁北克省蒙特利尔再次发生反对卫生措施的示威活动](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [参加奥运会的运动员会不会得病怎么宣传（三）](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [大烟草制造商“勇敢 悲壮”地承担起替罪羊的角色！](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [文贵先生直播精要 2022/01/21](/content/gnews/9/README.md)
+### [文贵先生直播精要 2022/01/21](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [资深护士发声发对强制疫苗](/content/gnews/10/README.md)
+### [资深护士发声发对强制疫苗](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [家长的革命](/content/gnews/11/README.md)
+### [家长的革命](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [参加奥运会的运动员会不会得病怎么宣传（二）](/content/gnews/12/README.md)
+### [参加奥运会的运动员会不会得病怎么宣传（二）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [一元复始，万象更新](/content/gnews/13/README.md)
+### [一元复始，万象更新](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [参加奥运会的运动员会不会得病怎么宣传（一）](/content/gnews/14/README.md)
+### [参加奥运会的运动员会不会得病怎么宣传（一）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [共产党的政治金融骗局](/content/gnews/15/README.md)
+### [共产党的政治金融骗局](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [共产党对中国民族带来的伤害](/content/gnews/16/README.md)
+### [共产党对中国民族带来的伤害](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [CCP毁坏中国的自然环境和人文环境](/content/gnews/17/README.md)
- ` 温哥华扬帆农场`
-
-### [LPR,贷款市场报价利率,全面降息,房地产崩溃](/content/gnews/18/README.md)
+### [LPR,贷款市场报价利率,全面降息,房地产崩溃](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥全世界第一个亚洲房地产信托](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [逃离传统职业是一种全球新冠病毒趋势](/content/gnews/20/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [有声|郭先生在马丁·路德金纪念日谈PAG缠诉案的现实意义](/content/gnews/21/README.md)
+### [有声|郭先生在马丁·路德金纪念日谈PAG缠诉案的现实意义](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|第四针疫苗不能阻止Omicron](/content/gnews/22/README.md)
+### [有声|灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/25/README.md)
  ` MOSREC`
-
-### [有声|灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|GTV新闻访谈简报|2022年1月21日晚](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [文贵首次讲病毒基本结束](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [【玫瑰看新闻】每日快讯2022年1月19日（新西兰时间）](/content/gnews/26/README.md)
  ` 【🌹玫瑰新闻】`
