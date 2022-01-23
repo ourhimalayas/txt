@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/23/2022 2:24 AM (UTC)`
+
+1月22号：尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！
+![img](https://media.gettr.com/group40/getter/2022/01/23/02/ae1c1413-a09d-fd0e-79f6-f63dfc5dc1cf/out.jpg)
+
+---
+
+`@miles 1/23/2022 2:23 AM (UTC)`
+
+1/21/2022 Miles Guo: Xi’s closest childhood friend told Xi that a) it’s his far-left policies that led to China’s loss of market value and credibility; b) The confrontation between Xi and the West has rendered both the Chinese people and China the common enemies of two thirds of the world’s population; and c) if Xi doesn’t reform the political system, he won’t be able to make any changes.<br/><br/>1/21/2022 文贵直播：习最亲的发小告诉习，是他的极左政策让中国失去了市场的价值和信用，习跟西方的对抗让中国人和中国成为全球三分之二的人的公敌，若不搞政治改革，习的任何改变都不可能成功<br/>
+![img](https://media.gettr.com/group17/getter/2022/01/23/02/00b1e930-39fa-239a-5205-da37cca7fcb2/out.jpg)
+
+---
+
+`@miles 1/23/2022 2:15 AM (UTC)`
+
+1/21/2022 Miles Guo: The CCP will certainly be taken down before 2025, and all the CCP factions will be finished. In the face of diplomatic decoupling and technological decoupling from Europe and the US, Xi Jinping is very likely to make a U-turn by restarting reform and opening up and declaring a general amnesty. Visas are going to be voided after the diplomatic decoupling. Although fellow fighters may be able to travel back to China, they won’t be able to get out. You will own nothing if the CCP is not destroyed!<br/><br/>1/21/2022 文贵直播：2025前共产党一定灭，中共所有派系都将完蛋；面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦；脱交后签证作废，战友能回国但出不来；不灭共，你啥都没有！<br/>
+![img](https://media.gettr.com/group3/getter/2022/01/23/02/9f37451b-f8da-c4d7-faf3-56dc317434dd/out.jpg)
+
+---
+
 `@miles 1/23/2022 12:39 AM (UTC)`
 
 1月22号，Hcoin To the Moon MV上线第45天位列澳门🇲🇴iTunesMV榜首🥇，累计共31次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利，老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1895664/<br/><br/>Jan 22nd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 45 Day of Launch, hit No .1 for 31 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes Rock Song Chart🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
@@ -138,27 +159,6 @@ January 21st,2022 Through these media reports, the days when the swamp enslaves 
 
 喜马拉雅纽约磐石农场开幕典礼
 ![img](https://media.gettr.com/group13/origin/2022/01/21/23/68e5d99c-c4f6-0269-3c82-7f4964fc3ff9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/21/2022 10:51 PM (UTC)`
-
-1/21/2022 Miles Guo: Nawaz Sharif is in a good relationship with the Jiang Zemin family, and he has proved that the CCP has been bribing various state leaders around the world. Xi Jinping controls the Middle East, while the Jiang family controls both East Asia and South Asia. Hosting the Olympics at this moment would be suicidal for the CCP. The CCP’s “zero-COVID policy” has screwed up Xi, with himself being eradicated!<br/><br/>1/21/2022 文贵直播：谢里夫和江家好，他证明了中共在全球腐败各国领导人；习控制了中东，江家控制了东亚和南亚；中共这时候搞冬奥会是找死，清零政策已让习自己变成“0”！<br/>
-![img](https://media.gettr.com/group3/getter/2022/01/21/22/47706ee7-1ac9-c2b2-59af-0f2c9b2bb7bf/out.jpg)
-
----
-
-`@miles 1/21/2022 10:47 PM (UTC)`
-
-1/21/2022 Miles Guo: The EU countries and the US may race to permanently close their embassies and consulates in Communist China, and that means decoupling with the CCP both economically and politically. Then the world will have no choice but to couple with the New Federal State of China and the Himalaya Exchange in terms of politics and economy, respectively.<br/><br/>1/21/2022 文贵直播：欧盟国家和美国可能会竞相永久关闭其在中共国的使领馆，这意味着跟中共政治、经济双脱钩；全世界将别无选择，在政治和经济上分别只能和新中国联邦与喜联储挂钩<br/>
-![img](https://media.gettr.com/group6/getter/2022/01/21/22/8596cb03-6e7d-520a-4593-6cb07bc4f6ce/out.jpg)
-
----
-
-`@yueyue930606 1/21/2022 4:10 PM (UTC)`
-
-这个杨贝贝吃狗肉说味道不错。。。
-![img](https://media.gettr.com/group33/getter/2022/01/21/16/78034618-928b-b64a-09bb-a487ab6d0a60/aa2ec7a6d517de0b9bc67e27d6a48db8.jpg)
 
 ---
 

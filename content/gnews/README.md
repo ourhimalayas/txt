@@ -15,134 +15,134 @@
 
 ---
 
-### [世卫组织建议各国取消COVID旅行禁令](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
+### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [共产党会通过冬奥会编排台湾](/content/gnews/2/README.md)
+### [1.21大直播后记：郭文贵谈如何战胜痛苦](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [暴政必亡，历史铁律](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [1/21/2022 文贵直播：面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
 
-### [冬奥会的剧本已被共产党写好](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [冬奥会一定会有运动员感染治理](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [震撼呐喊：欧洲议会议员呼吁结束封锁和对未接种疫苗人的歧视](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|法国疫苗通行证即将生效](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|接种者疫苗蛋白脱落或可感染未接种者](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [共产党必死的三点原因](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [【秘翻在线】NFL季后赛球队未接种疫苗的球员不再接受每日Covid-19测试](/content/gnews/11/README.md)
+### [【秘翻在线】拜登的司法部撤销对被指为中共工作的麻省理工学院科学家的指控](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [抵制冬奥会引发的思考](/content/gnews/13/README.md)
+### [1.21大直播后记：南巡讲话内幕](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [2022 年 1 月 22 日魁北克省蒙特利尔再次发生反对卫生措施的示威活动](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [日本研究发现中共病毒Omicron重症率是原始毒株的十分之一](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参加奥运会的运动员会不会得病怎么宣传（三）](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [文贵先生直播精要 2022/01/21](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [资深护士发声发对强制疫苗](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [家长的革命](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [参加奥运会的运动员会不会得病怎么宣传（二）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [一元复始，万象更新](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [参加奥运会的运动员会不会得病怎么宣传（一）](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [共产党的政治金融骗局](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [共产党对中国民族带来的伤害](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [LPR,贷款市场报价利率,全面降息,房地产崩溃](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|郭先生在马丁·路德金纪念日谈PAG缠诉案的现实意义](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [有声|灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [【玫瑰看新闻】每日快讯2022年1月19日（新西兰时间）](/content/gnews/27/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [扬帆每日速递 2022年1月22日版（1）](/content/gnews/28/README.md)
+### [世卫组织建议各国取消COVID旅行禁令](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大议员支持卡车司机反对疫苗的抗议，称强制令：错误、不道德、不符合宪法！](/content/gnews/29/README.md)
- ` 喜马拉雅农场新西兰站`
+### [共产党会通过冬奥会编排台湾](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
 
-### [全球疫情更新(英国疫苗报告中隐藏的人尸丸真相）](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加拿大卡车司机抗议疫苗强制令宣言](/content/gnews/31/README.md)
- ` 华盛顿DC-Russian`
-
-### [中共企业同方威视扫描设备的安全性正在引起美欧的警觉](/content/gnews/32/README.md)
+### [暴政必亡，历史铁律](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年1月21日郭文贵先生直播全文字版](/content/gnews/33/README.md)
+### [冬奥会的剧本已被共产党写好](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [冬奥会一定会有运动员感染治理](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [震撼呐喊：欧洲议会议员呼吁结束封锁和对未接种疫苗人的歧视](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|法国疫苗通行证即将生效](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|接种者疫苗蛋白脱落或可感染未接种者](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [共产党必死的三点原因](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [【秘翻在线】NFL季后赛球队未接种疫苗的球员不再接受每日Covid-19测试](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [抵制冬奥会引发的思考](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [2022 年 1 月 22 日魁北克省蒙特利尔再次发生反对卫生措施的示威活动](/content/gnews/20/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [参加奥运会的运动员会不会得病怎么宣传（三）](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵先生直播精要 2022/01/21](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [资深护士发声发对强制疫苗](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [家长的革命](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [参加奥运会的运动员会不会得病怎么宣传（二）](/content/gnews/25/README.md)
+ ` 雅典娜GNotes`
+
+### [一元复始，万象更新](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [参加奥运会的运动员会不会得病怎么宣传（一）](/content/gnews/27/README.md)
+ ` 雅典娜GNotes`
+
+### [LPR,贷款市场报价利率,全面降息,房地产崩溃](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [【玫瑰看新闻】每日快讯2022年1月19日（新西兰时间）](/content/gnews/30/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [扬帆每日速递 2022年1月22日版（1）](/content/gnews/31/README.md)
+ ` 温哥华扬帆农场`
+
+### [加拿大议员支持卡车司机反对疫苗的抗议，称强制令：错误、不道德、不符合宪法！](/content/gnews/32/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [全球疫情更新(英国疫苗报告中隐藏的人尸丸真相）](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022年1月21日郭文贵先生直播全文字版](/content/gnews/34/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021年职业足球运动员的心脏病发作率增加300%](/content/gnews/34/README.md)
+### [2021年职业足球运动员的心脏病发作率增加300%](/content/gnews/35/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [未来最安全冷钱包的拥有者，将是人类财富的最大守护者](/content/gnews/35/README.md)
+### [未来最安全冷钱包的拥有者，将是人类财富的最大守护者](/content/gnews/36/README.md)
  ` YALUN 亚伦`
 
-### [中共国奥园集团有限公司美债违约](/content/gnews/36/README.md)
+### [中共国奥园集团有限公司美债违约](/content/gnews/37/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2022年1月22日早](/content/gnews/37/README.md)
+### [GTV新闻访谈简报|2022年1月22日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [川普称 中共将在冬奥会后挑动台海局势](/content/gnews/38/README.md)
+### [川普称 中共将在冬奥会后挑动台海局势](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [郭先生爆料西方社会将与中共双脱钩](/content/gnews/39/README.md)
+### [郭先生爆料西方社会将与中共双脱钩](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/40/README.md)
+### [中共挥霍数万亿邀外国政要站台北京冬奥会](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议](/content/gnews/41/README.md)
+### [越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/22/2022国际财经快讯：美国暂停中国航空公司44个美国航班；耶伦称普及学前教育和收入税收抵免是核心](/content/gnews/42/README.md)
+### [1/22/2022国际财经快讯：美国暂停中国航空公司44个美国航班；耶伦称普及学前教育和收入税收抵免是核心](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
-
-### [彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/43/README.md)
- ` 首尔天池农场`
 
 ### [北京冬奥之火水下传递暗藏风水玄机](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
