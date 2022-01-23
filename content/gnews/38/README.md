@@ -2,25 +2,24 @@
 ---
 
 
-## 美国务院已下令撤离驻乌克兰大使馆工作人员家属
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897274/)
+## 战争临近，美国拟撤离驻乌克兰大使馆非必要工作人员和家属
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1897336/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1843.png)[(图片来自视频源截图)](https://m.youtube.com/watch?v=KV4lHNPghec)
-23日，据一些美国媒体报道，俄罗斯可能入侵乌克兰，形势日益严峻，美国国务院已经命令驻乌克兰首都基辅大使馆工作人员的家人撤离该国。
+#### 撰稿：彩虹        
 
-福克斯新闻报道称，据多位美国官员称，美国国务院已下令美驻乌克兰大使馆工作人员家属24日开始撤离。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-142.png)图片来源：CNN
+1月22日，《新闻极限》引述CNN的报道，指美国驻乌克兰基辅大使馆已要求国务院授权所有非必要的工作人员及其家属离开。
 
-预计下周将使用商业飞机帮助在乌克兰的普通美国人撤离该国。
+根据CNN的说法，该消息是一位接近乌克兰政府的消息人士透露的，说美国已经通知了乌克兰，“可能最早在下周开始撤离（相关人员）”。
 
-据美国媒体透露，拜登总统在周末紧急与国家安全顾问沙利文讨论了乌克兰局势。
+之前，12月20日，美国国务院对乌克兰发布了最高级别的旅行警告，告诉美国人“不要旅行”，称原因是由于中共病毒感染病例的激增和“来自俄罗斯的威胁增加”。
 
-信息源：[米　ウクライナの大使館員家族に退避命令か](https://news.yahoo.co.jp/articles/d61227b33ba313275bc1217a4b6aa7c56b8550e9)
+对于这个新的消息，国务院的一位发言人说，他们“目前没有什么可宣布的。关于美国外交官员和其家人的有关事情有所决定和改变的话，那么美国公民不应预期会有美国政府资助的疏散行动。目前，商业航班可用于支持离开（乌克兰）”。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**新闻来源**
 
+[US Embassy in Kyiv Asks to Evacuate Nonessential Personnel](https://www.newsmax.com/newsfront/ukraine-russia-invasion-kyiv/2022/01/22/id/1053525/)
 
  
 

@@ -2,28 +2,41 @@
 ---
 
 
-## 政府能解释五岁的孩子在注射新冠疫苗一小时后死亡吗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897685/)
+## 美参议院提出对中共入侵台湾实施全面经济金融制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897760/)
 
-##### 翻译：奮鬥
-校对：枳实
-剪辑|字幕：Biggod
-编辑：Mttfly
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-要研发一种针对新发现的疾病的疫苗，最短的时间是大约7年，平均时间是20年。但是各国政府仅用了几个月的时间就研发并大规模的强制接种新冠疫苗。一位悉尼五岁的孩子在接种新冠疫苗一小时后就死亡，媒体和政府能够解释这种事情吗？为什么政府要把还处在试验阶段的疫苗对民众强制接种呢？
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-视频链接：[Media and Governments talked about COVID 19 – Five Year Old Dies One Hour After Jab. Why?](https://www.bitchute.com/video/27wDZKodz6eN/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642934422283.jpg)图片来源：雅典娜设计组
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+据美国之音报道：美国参议院军事委员会成员丹·沙利文1月21日提出“2022年与台湾站在一起”(S.T.A.N.D. with Taiwan Act)法案。
+
+法案将在“人民解放军或其代理人”启动对台湾的军事侵略时，采取“后果严重及全面性的经济和金融制裁”，包括对中国共产党成员及产业界的制裁，以及禁止美国金融机构，包含投资公司、私人资本公司、风险资金公司和避险基金投资于任何与中国共产党有联系的中国实体。
+
+法案也将禁止进口包括开采、制造，全部及部分在中国生产的特定产品。
+
+沙利文表示，他提出的法案旨在对习近平表明，军事侵略台湾的代价是什么。
+
+他说，中国共产党完全知道它想在全世界达成的目标：让全世界对它的威权政府更安全、向其他国家输出它的独裁模式。
+
+法案条文还提到，如果人民解放军发动对台湾的军事侵略，那将中断地区和平稳定并威胁全球和平稳定、破坏美国核心政治、安全及经济利益，作为对台湾军事侵略的重要威慑措施，中国共产党必须理解到，发动这种侵略将导致毁灭性的经济和金融后果。
+
+参考链接：
+
+[https://www.voachinese.com/a/senator-sullivan-introduces-bill-to-sanction-china-if-it-invades-taiwan-20220121/6407564.html](https://www.voachinese.com/a/senator-sullivan-introduces-bill-to-sanction-china-if-it-invades-taiwan-20220121/6407564.html)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
 
  
 

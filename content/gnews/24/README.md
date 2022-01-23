@@ -2,33 +2,28 @@
 ---
 
 
-## 2022/01/21 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1897582/)
+## 政府能解释五岁的孩子在注射新冠疫苗一小时后死亡吗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897685/)
 
-1. 1月20日，深圳笋岗田心村，爆发群体性事件！群众冲击防控封锁线！齐喊解封！有人被抓走！
-2. 1月20日，西安雁塔区华城国际小区，被封35天，业主只能买物业卖的高价菜！业主下楼讨说法，被警察暴打！业主们联合起来反抗，齐喊放人！
-3. 1月18日，河南男子核酸检测47.5小时后上高速，到了目的地却因核酸检测超过48小时过期被撵回，在高速徘徊。
-4. 1月19日，擅长制造社会矛盾的中共政府，又让新型硬核宣传标语产生，“疫情返乡，不孝之孙”。
-5. 1月16日，河南开封杞县，各地高速路口也是设卡拦截。从低风险区域到低风险区域，没有地方村里的证明不放行！
-6. 1月19日，河南开封兰考县，长途行驶的车辆因为要经过高风险区域，被防控部门贴上封条行驶途中禁止下车。
-7. 1月21日，湖南张家界。男子未出月子的老婆和20天的宝宝住在人员并不密集的农村也要被拉去集中隔离。
-8. 1月20日，江西九江。一名男子在驾驶途中，突发疾病死亡。
-9. 1月17日，四川什邡抢劫枪击刑事案件监控曝光。
-10. 1月18日，河南许昌。建筑单位项目经理威胁来讨薪的农名工，并放狠话：“你玩的过中建二局(中共央企)吗？”
-11. 1月20日，网传江苏睢宁一养老机构工作人员殴打老人，老人不断发出哀嚎。
-12. 1月20日，江苏徐州。六岁视障女孩放假期间想为家里减轻负担，一天帮妈妈折千支纸盒。
+##### 翻译：奮鬥
+校对：枳实
+剪辑|字幕：Biggod
+编辑：Mttfly
 
+要研发一种针对新发现的疾病的疫苗，最短的时间是大约7年，平均时间是20年。但是各国政府仅用了几个月的时间就研发并大规模的强制接种新冠疫苗。一位悉尼五岁的孩子在接种新冠疫苗一小时后就死亡，媒体和政府能够解释这种事情吗？为什么政府要把还处在试验阶段的疫苗对民众强制接种呢？
 
-* * *
+视频链接：[Media and Governments talked about COVID 19 – Five Year Old Dies One Hour After Jab. Why?](https://www.bitchute.com/video/27wDZKodz6eN/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

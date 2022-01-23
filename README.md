@@ -15,146 +15,146 @@
 
 ---
 
-### [七哥金句（二）](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [历史上的今天 2021.01.23](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥金句（一）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [达沃斯党与中共狼狈为奸 二者终将被灭除](/content/gnews/4/README.md)
- ` 纽约香草山MOS03`
-
-### [文贵先生磐石农场直播要点-图片（2022.01.21）](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [1.21大直播后记 七哥谈路大脑骗（一）](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥爱七嫂36年的根本原因](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [1.19大直播后记：海外仇华排华情绪山雨欲来](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [佛教、哲学、信仰](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [大善和大恶的关系，对佛和魔的理解（四）](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [大善和大恶的关系，对佛和魔的理解（三）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [提防中共的日本首部经济安保法框架公布](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大善和大恶的关系，对佛和魔的理解（二）](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [俄乌开战之日，极可能就是中共攻打台湾之时](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [基因突变的癌细胞、有望成为新的“分子靶向”药物](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国及世界疫情简报 （01-22-2022）](/content/gnews/16/README.md)
- ` 波士顿五月花农场`
-
-### [7•24系列——中共梦断ASML高端光刻机](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美参议院提出对中共入侵台湾实施全面经济金融制裁](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [全球疫情更新（官方报告的数据证明疫苗令疫情恶化）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [“我的疫苗批次有多糟糕”——我的疫苗受伤故事](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [政府能解释五岁的孩子在注射新冠疫苗一小时后死亡吗](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [以色列官员对疫苗不能阻止新冠传播表示非常惊讶和失望](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共紧盯俄乌冲突，或考虑奥运会后攻打台湾](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2022/01/21 墙内世界](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本政府将启动一项免费“数字化”教育计划促再就业](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [宋词新作：谒金门·人生各梦——为何七哥做到无我](/content/gnews/26/README.md)
+### [灭共第二十一夜 一盏明灯照新疆](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [为拉近和中亚关系，中共近年狂撒数千亿](/content/gnews/27/README.md)
+### [小sarah：狗从哪里来](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [62%注射过mRNA新冠疫苗的病人有细小血栓](/content/gnews/3/README.md)
+ ` DC政经`
+
+### [希望与力量，绝妙](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七嫂珍惜王雁平，送茅台](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [中日财经爆│蚌埠为什么绷不住](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [瑞士奥运短跑运动员注射辉瑞疫苗后患心包炎](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥七嫂对儿女严厉管教，不受诱惑](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句（二）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [习近平在香港、两岸关系和中俄关系上的失败（五）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共病毒对接受了3剂疫苗的受众影响最大](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [历史上的今天 2021.01.23](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [因拒绝疫苗强制令，一加拿大卡车司机被停工停薪](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [郭文贵精品视频-喜币的诞生使达沃斯党的“100年金融计划”受挫](/content/gnews/12/README.md)
+ ` cindy`
 
-### [网友吐槽哈尔滨防疫形同虚设，发视频却被威胁](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [七哥金句（一）](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
 
-### [玛丽·鲍登医生将对休斯敦卫理公会医院采取法律行动](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [达沃斯党与中共狼狈为奸 二者终将被灭除](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
 
-### [即便你赢遍了全世界的金牌，也比不上你的道德、原则和价值观](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [文贵先生磐石农场直播要点-图片（2022.01.21）](/content/gnews/15/README.md)
+ ` 波士顿五月花农场`
 
-### [众议员迈克尔·麦考尔预测俄罗斯2月份入侵乌克兰](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共遗嘱库 为中国人量身定做遗产和器官的 “无偿捐赠”](/content/gnews/34/README.md)
- ` 帕米尔高原水`
-
-### [新冠疫苗的副作用：辉瑞公司的大屠杀仍在继续](/content/gnews/35/README.md)
+### [1.21大直播后记 七哥谈路大脑骗（一）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [战争临近，美国拟撤离驻乌克兰大使馆非必要工作人员和家属](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
+### [七哥爱七嫂36年的根本原因](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
 
-### [法国、爱尔兰效仿英国放宽中共病毒限制政策](/content/gnews/37/README.md)
+### [喜联储有望成为最具合作潜力的私人数字货币机构](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [美国及世界疫情简报 （01-22-2022）](/content/gnews/19/README.md)
+ ` 波士顿五月花农场`
+
+### [7•24系列——中共梦断ASML高端光刻机](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美参议院提出对中共入侵台湾实施全面经济金融制裁](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球疫情更新（官方报告的数据证明疫苗令疫情恶化）](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [“我的疫苗批次有多糟糕”——我的疫苗受伤故事](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [政府能解释五岁的孩子在注射新冠疫苗一小时后死亡吗](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [以色列官员对疫苗不能阻止新冠传播表示非常惊讶和失望](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共紧盯俄乌冲突，或考虑奥运会后攻打台湾](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022/01/21 墙内世界](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国务院已下令撤离驻乌克兰大使馆工作人员家属](/content/gnews/38/README.md)
+### [日本政府将启动一项免费“数字化”教育计划促再就业](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧洲各国首府爆发新一轮反对强制接种中共病毒疫苗游行](/content/gnews/39/README.md)
+### [宋词新作：谒金门·人生各梦——为何七哥做到无我](/content/gnews/29/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [为拉近和中亚关系，中共近年狂撒数千亿](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共病毒对接受了3剂疫苗的受众影响最大](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [因拒绝疫苗强制令，一加拿大卡车司机被停工停薪](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [网友吐槽哈尔滨防疫形同虚设，发视频却被威胁](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [玛丽·鲍登医生将对休斯敦卫理公会医院采取法律行动](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [即便你赢遍了全世界的金牌，也比不上你的道德、原则和价值观](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [众议员迈克尔·麦考尔预测俄罗斯2月份入侵乌克兰](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [汤加政府公布最新情况](/content/gnews/40/README.md)
+### [中共遗嘱库 为中国人量身定做遗产和器官的 “无偿捐赠”](/content/gnews/37/README.md)
+ ` 帕米尔高原水`
+
+### [战争临近，美国拟撤离驻乌克兰大使馆非必要工作人员和家属](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国、爱尔兰效仿英国放宽中共病毒限制政策](/content/gnews/39/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国务院已下令撤离驻乌克兰大使馆工作人员家属](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第182期](/content/gnews/41/README.md)
- ` 墨尔本雅典娜农场`
+### [欧洲各国首府爆发新一轮反对强制接种中共病毒疫苗游行](/content/gnews/41/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [美日元首召开视频会议 承诺共抗中共](/content/gnews/42/README.md)
+### [汤加政府公布最新情况](/content/gnews/42/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美日元首召开视频会议 承诺共抗中共](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [中共巨额资助荷兰大学 影响其学术独立性](/content/gnews/43/README.md)
+### [中共巨额资助荷兰大学 影响其学术独立性](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [7.24系列——魔鬼的盛宴：七哥眼里的达沃斯党](/content/gnews/44/README.md)
+### [7.24系列——魔鬼的盛宴：七哥眼里的达沃斯党](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭共大战美国战场法律超限战涉及的机构和人物关联图](/content/gnews/45/README.md)
+### [郭共大战美国战场法律超限战涉及的机构和人物关联图](/content/gnews/46/README.md)
  ` 秘密翻译组-原创组`
 
-### [GTV新闻访谈简报|2022年1月22日晚](/content/gnews/46/README.md)
+### [GTV新闻访谈简报|2022年1月22日晚](/content/gnews/47/README.md)
  ` 纽约香草山MOS01`
-
-### [1.21大直播后记:喜支付和喜钱包功能即将上线](/content/gnews/47/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [加拿大议员支持卡车司机反对疫苗的抗议，称强制令：错误、不道德、不符合宪法！](/content/gnews/48/README.md)
  ` 喜马拉雅农场新西兰站`

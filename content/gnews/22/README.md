@@ -2,74 +2,88 @@
 ---
 
 
-## 以色列官员对疫苗不能阻止新冠传播表示非常惊讶和失望
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897684/)
+## 全球疫情更新（官方报告的数据证明疫苗令疫情恶化）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897747/)
 
-#### 【雅典娜观察】和您一起探究世界
+**整理/编辑：枳实**
 
-翻译整理：月映万川
-编辑：文明明来了/文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/SI24_I9WRQYAPQL_9_L.png)图片来源：Aljazeera
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1827.png)图片：雅典娜农场设计组 精灵蓝
 
 
-以色列政府一位重要的疫苗政顾问透露，他和他的同事们对去年发生的（病毒传播）感到“惊讶”和“失望”，因为很明显，疫苗接种并不会阻止新冠病毒的传播。
+雅典娜疫情更新（2022年 1月23日）
 
-以色列政府疫苗咨询委员会成员、巴尔伊兰大学免疫学教授西里尔·科恩，周三在接受英国新闻网站无源（UnHerd）的采访时，发表了上述观点。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-自2020年12月开始，拥有940万人口的以色列一直在推广新冠疫苗接种方面处在世界领先地位。
+**一，全球疫情基本数据**
 
-在2021年4月，辉瑞公司首席执行官阿尔伯特·布尔拉说，早期临床试验数据显示其疫苗“对新冠重症病患有100%的效果”。
+感染总数：348,161,862（日新增3,128,314，14天增幅+35%）
 
-“您之前是否期望疫苗在预防传播方面比目前的实际效果更好呢？”主持人弗雷迪·赛尔斯问科恩教授。
+死亡总数：5,589,066（日新增7,641人，14天增幅 +19%）
 
-“是的……特别是基于我们在3月和4月看到的情况，”他回答说。
+**二，全球“疫苗”毒针统计数据**
 
-“去年春天我们在以色列的感觉是，我们经历一个超过4000人死亡的致命1月，在三次封锁之后，突然我们开始开放，但是病例却在减少，医院变得空荡荡的。我不是在开玩笑，我的同事们，医生们高兴得在走廊里跳舞，他们（认为）这次大流行就此结束了。”
+“疫苗”毒针注射总数：98.5亿
 
-“我们当时认为，疫苗也许在（被注射）后不久能防止传播病毒，但这一效果可能无法维持很长时间，但我们最后惊讶地发现，疫苗没有保护我们，也没有实现我们所期望的消除性免疫注1 。”
+完全“接种”：40.9亿人
 
-很多国家的公共卫生官员们，包括澳大利亚的，现在开始宣称尽管疫苗没有阻断新冠病毒的传播，但是他们减轻了疾病的烈度，进而减轻了医院的负担。
+完全“接种”百分比：52.4 %
 
-科恩教授也同意赛尔斯的观点，奥密克戎病毒的高传播性已经导致以色列的“绿色”疫苗通行证不在有任何实质意义。
+**三，澳洲疫情和“疫苗”数据**
 
-“我也倾向于这样认为，”他说，“虽然疫苗护照仍然存在，但是，随着人民反对的呼声越来越大，以及奥密克戎病例的不断飙升，目前现行的疫苗政策已经不可能继续执行下去了。”
+感染总数：2,197,108（今日新增48,981人）
 
-他说：“我们没有看到接种疫苗的人和未接种疫苗的人之间在抵御病毒感染上有什么区别，病毒在两个群体中的传播速度是一致的。”
+死亡总数：3,121人（今日新增 58人）
 
-特拉维夫大学微生物学和免疫学负责人埃胡德·齐姆龙教授为N12新闻撰文，并公开呼吁以色列卫生部 “承认失败”。
+每万人感染人数：851.8891人
 
-超过80%的以色列成年人现在已经接受了两剂新冠疫苗，超过一半的人已经接受了加强针的注射。
+“疫苗”毒针注射总数：47,934,083 （日新增191,876 针）
 
-以色列上个月宣布，他们打算开始推出疫苗第四针，以对抗奥密克戎的传播，尽管这一决策缺乏关于疫苗效果的科学依据。
+完全“接种”：19,164,031人
 
-本周早些时候，以色列研究人员表示，对270名医疗工作者的早期研究数据表示，在接种第四针疫苗后，其仍然对奥密克戎病毒防护效果不佳。
+第二针“接种”百分比：78.2%
 
-与此同时，周二发表在《柳叶刀》上的一项南非的研究，通过对接受过疫苗加强针的人群中第一例突破性感染案例的调查，得出的结论是mRNA疫苗的强化针未能阻止奥密克戎病毒。
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
 
-世界卫生组织公开呼吁制药公司要更新疫苗成分，并警告称，基于“重复注射原始疫苗”的战略是“不合理的且不可持续的。”
+16岁以上人口接种至少两剂疫苗的比例：92.9%
 
-辉瑞公司的布尔拉博士上周说，其目前的两剂新冠疫苗的对奥密克戎病毒提供 “非常有限的保护，如果这种保护存在的话”。但是三针疫苗可以“提供一定保护性，避免感染者入院或者死亡。”
+**四，疫情新闻摘要**
 
-他说辉瑞正在研发针对奥密克戎病毒的疫苗，并目前计划在三月前上市。
+[英国企业拒绝强制员工接种疫苗。](https://www.theguardian.com/law/2022/jan/22/uk-firms-weigh-risks-of-forcing-their-staff-to-get-coronavirus-jabs)
 
-莫德纳也在开发升级版本的疫苗，并计划在今年晚些时候上市。
+在英国，大多数私营企业都对强制员工接种疫苗持否定态度。就业律师和工会警告称，要求员工接种疫苗的企业——所谓的“不打针，不工作”政策——是一个道德雷区，在法律上也存在争议。只有例如Next、Ikea 和 Ocado 等公司高高在上，他们改變了他們的公司疾病政策，削减了未接种疫苗工人的病假工资。儘管如此，絕大多數英國雇主已經表明他們不願意在員工中強制接種疫苗。
 
-“我们现在正在和全世界公共卫生的领导者讨论一个新策略，就是在2022年秋季推广未来的加强针。”莫德纳的首席执行官斯蒂芬·班赛（Stephane Bancel）对CNBC说到。“我们相信它就可以控制奥密克戎病毒”
+[著名橄榄球队主力前鋒傑克達林成为西澳第一个拒絕接種中共病毒疫苗的球员。](https://thewest.com.au/sport/west-coast-eagles/west-coast-eagles-forward-jack-darling-barred-from-club-after-refusing-covid-19-vaccination-c-5390801)
 
-注1:消除性免疫 (sterilizing immunity)指的是身体在接受疫苗之后产生大量免疫细胞能够大量消灭病毒，进而阻断病毒在人群中的传播。相对应的是效果性免疫（effective immunity），人体并不能产生足够量的免疫细胞，导致虽然对自身有一定免疫效果，但却并不会对病毒传播产生阻断，也被称为自私的免疫。
+以亲共著称，谨慎避免批评中共在香港和新疆的暴行的西澳州长麥高恩评论说，“為此放棄你的足球生涯，我認為這不是一個明智的決定”。 卡尔顿的利亚姆·琼斯（Liam Jones）在选择不接种疫苗后退役，北墨尔本的杰德·安德森也没有在阿登街训练。
 
-编者按：疫苗的推广原本追求的是阻断传播的利他效果，但如果疫苗只有有限的利己效果，则大面积推广疫苗的实际意义就是存疑的。
+**五.数据分析**
 
-原文链接： [Israeli officials were ‘surprised and disappointed’ vaccines did not stop transmission](https://www.news.com.au/technology/science/human-body/israeli-officials-were-surprised-and-disappointed-vaccines-did-not-stop-transmission/news-story/9c925c5c0f7ae3b2e645519b5bd0dce6)
+今天继续介绍[《疫情编年史》](https://eugyppius.substack.com/)的这[篇文章](https://eugyppius.substack.com/p/unboostered-brits-infected-and-dying)的精彩部分。下面这个图表来源于[蘇格蘭公共衛生部的數據](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)。zhe
+![](https://assets.gnews.org/wp-content/uploads/2022/01/N1RUBM18AATFK0YVPE1F.png)
+这个图表显示了苏格兰公共卫生部的数据中去年12月和今年1月的两个星期中的病例中未接种疫苗（绿色），一剂疫苗（黄色），两剂疫苗（橙色），三剂疫苗（红色）的每十万人口的感染病例数字。从这个图表看出，这四个星期，无论疫情如何，未注射疫苗的病例数都更低，病例数最高的就是注射2针的人群。
 
-发布： *tianzhihuan*
+这个图表简直就是在嘲笑这些所谓的疫苗，越打病例数越多。这个数据也与[我们之前提到](https://gnews.org/zh-hans/1817504/)的[丹麦研究](https://t.co/A8gp5cTnYR)相符合：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/252Y6_KZXXP0RXU5P.png)
+也就是说，英国，爱尔兰，丹麦的数据都表明，在奥米克戎毒株面前，接种疫苗反而导致人们更容易感染。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
