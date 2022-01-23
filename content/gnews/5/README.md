@@ -2,38 +2,24 @@
 ---
 
 
-## 有声|基努李维斯将参加西藏之家线上音乐会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1899721/)
+## 【秘翻在线】超过2万名美国人参加了华盛顿特区游行，反对强制疫苗和医疗暴政
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899736/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据相关媒体消息显示，影星基努-李维斯确认将参加美国西藏之家于3月3日举办的第35届慈善音乐会，但他的演出细节目前尚未被披露。
+**撰稿：Grace**
 
-据了解，美国西藏之家是应达赖喇嘛的请求于1987年所成立的一个国际性非盈利文化保护组织，其宗旨在于展示和保护1950年中共入侵前的西藏哲学与文化资料，以期延续其民族文化和传统。自成立后，该组织每年都会在纽约卡内基音乐厅举办一场慈善音乐会。而自中共病毒疫情爆发后，今年的音乐会被迫再次以线上形式开启公益演出。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-3.29.08-PM.jpeg)图片来源：newswars
+据The Gateway Pundit 1月23日报道，今天有超过2万名美国人冒着严寒参加了在华盛顿特区举行的 “战胜强制”（“DEFEAT THE MANDATES”）集会。
 
-原文链接：[基努李维斯将参加西藏之家线上音乐会](https://gnews.org/zh-hans/1896557/)
+报道称，目前美国国内关于冠状病毒的几位发声者和顶级权威人士都参加了这次和平集会。
 
-音频处理/发稿：Daxia
+演讲者包括：小罗伯特·肯尼迪（**Robert F. Kennedy, Jr., ）**，保罗·亚历山大博士 (Dr. Paul Alexander) 、罗伯特·马龙博士 (Dr. Robert Malone) 、彼得·麦卡洛博士 (Dr. Peter McCullogh) 、劳拉·洛根 (Lara Logan) 、史蒂夫·基尔希 (Steve Kirsch) 等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+据报道，超过六千名联邦工作人员也将参加在华盛顿的集会，包括：消防员、急救人员、医生和参加了“美国人参加和平游行”的 人，以挫败中共病毒Covid-19疫苗强制规定。
 
 
 
-
+**新闻来源： ****[PHOTOS AND VIDEO: Over 20,000 Americans March in Washington DC Against Vaccine Mandates and Medical Tyranny](https://www.thegatewaypundit.com/2022/01/20000-americans-march-washington-vaccine-mandates-medical-tyranny/)**
 
  
 
