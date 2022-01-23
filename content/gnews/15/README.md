@@ -2,28 +2,28 @@
 ---
 
 
-## 11.20对今天的影响深远（上）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897678/)
+## 政府能解释五岁的孩子在注射新冠疫苗一小时后死亡吗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897685/)
 
-#### 作者：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-26.png)
-谁想到在3年之后，共产党不仅杀掉了王建，他杀掉了世界几 百万人，几亿人现在都是染上了病毒。
+##### 翻译：奮鬥
+校对：枳实
+剪辑|字幕：Biggod
+编辑：Mttfly
 
-我们成立了法治基金、 法制社会，在美国在西方合法的呼吁，我们是第一个告诉世界冠状病毒是共产党的生化武器，我们是最早告诉世界冠状病毒不是最重要的，疫苗灾难才真正是重要的。
+要研发一种针对新发现的疾病的疫苗，最短的时间是大约7年，平均时间是20年。但是各国政府仅用了几个月的时间就研发并大规模的强制接种新冠疫苗。一位悉尼五岁的孩子在接种新冠疫苗一小时后就死亡，媒体和政府能够解释这种事情吗？为什么政府要把还处在试验阶段的疫苗对民众强制接种呢？
 
-我们跟班农先生最 早告诉世界的，共产党在美国的影响的事例，华尔街金融无处不在。在班农先生身上就能体现出来，一次一次被抓，就能体现出来。而且这个事情再看1120,班农先生最早提出来成立法 治基金、法治社会，它这个大师级的判断，这个脑袋不是一般 的人。
+视频链接：[Media and Governments talked about COVID 19 – Five Year Old Dies One Hour After Jab. Why?](https://www.bitchute.com/video/27wDZKodz6eN/)
 
-然后再看当时王建事件我们全球的调查和情报能力，和 执行能力，可以说到今天为止，天下无双。
-
-发布：于white
-
-**更多资讯，请关注：
+*发布：Mttfly*
+**
+更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

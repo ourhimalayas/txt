@@ -2,38 +2,33 @@
 ---
 
 
-## 为拉近和中亚关系，中共近年狂撒数千亿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897566/)
+## 2022/01/21 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1897582/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+1. 1月20日，深圳笋岗田心村，爆发群体性事件！群众冲击防控封锁线！齐喊解封！有人被抓走！
+2. 1月20日，西安雁塔区华城国际小区，被封35天，业主只能买物业卖的高价菜！业主下楼讨说法，被警察暴打！业主们联合起来反抗，齐喊放人！
+3. 1月18日，河南男子核酸检测47.5小时后上高速，到了目的地却因核酸检测超过48小时过期被撵回，在高速徘徊。
+4. 1月19日，擅长制造社会矛盾的中共政府，又让新型硬核宣传标语产生，“疫情返乡，不孝之孙”。
+5. 1月16日，河南开封杞县，各地高速路口也是设卡拦截。从低风险区域到低风险区域，没有地方村里的证明不放行！
+6. 1月19日，河南开封兰考县，长途行驶的车辆因为要经过高风险区域，被防控部门贴上封条行驶途中禁止下车。
+7. 1月21日，湖南张家界。男子未出月子的老婆和20天的宝宝住在人员并不密集的农村也要被拉去集中隔离。
+8. 1月20日，江西九江。一名男子在驾驶途中，突发疾病死亡。
+9. 1月17日，四川什邡抢劫枪击刑事案件监控曝光。
+10. 1月18日，河南许昌。建筑单位项目经理威胁来讨薪的农名工，并放狠话：“你玩的过中建二局(中共央企)吗？”
+11. 1月20日，网传江苏睢宁一养老机构工作人员殴打老人，老人不断发出哀嚎。
+12. 1月20日，江苏徐州。六岁视障女孩放假期间想为家里减轻负担，一天帮妈妈折千支纸盒。
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642928368586.jpg)图片来源：雅典娜设计组
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-据美国之音报道：哈萨克斯坦局势的动荡不仅全球瞩目，也使中国在中亚地区的影响更加引人注意。中国近年来在中亚五个国家撒下数千亿人民币，拉近了和这些国家的关系。
+编辑：【英国伦敦喜庄园编辑部】
 
-1991年苏联解体。1992年1月中国与中亚五国乌兹别克斯坦、哈萨克斯坦、吉尔吉斯斯坦、塔吉克斯坦和土库曼斯坦建交。2022年1月，在与五国建交30周年之际，习近平同五国总统互致贺电。
-
-根据弗吉尼亚威廉玛丽学院研究实验室 AidData的政策分析主任萨曼莎·卡斯特 (Samantha Custer) 的说法，中国在中亚的影响力在过去几十年中呈指数级增长。上个月，卡斯特和她的合著者在一份新报告《权力走廊》中分析了中国如何利用巨额财政援助来赢得中亚和南亚国家的朋友和盟友。
-
-报告称，近二十年来，中国政府向中亚和南亚地区提供了1270亿美元的财政援助。中亚国家在吸引北京财政援助的资金方面名列前茅。
-
-另外，格鲁吉亚智库 Geocase 中东研究主任埃米尔·阿夫达利安尼（Emil Avdaliani）表示，尽管中国在中亚国家的地位已经相当成功，但中国仍然面临着诸如中亚国家的民族主义和政治精英对北京的不信任等障碍。
-
-参考链接：
-[https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html](https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

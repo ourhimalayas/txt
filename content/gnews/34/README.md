@@ -2,24 +2,28 @@
 ---
 
 
-## 战争临近，美国拟撤离驻乌克兰大使馆非必要工作人员和家属
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1897336/)
+## 新冠疫苗的副作用：辉瑞公司的大屠杀仍在继续
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897369/)
 
-#### 撰稿：彩虹        
+##### 翻译：Julia Gao
+校对：Lish
+剪辑|字幕：Biggod
+编辑：Mttfly
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-142.png)图片来源：CNN
-1月22日，《新闻极限》引述CNN的报道，指美国驻乌克兰基辅大使馆已要求国务院授权所有非必要的工作人员及其家属离开。
+在视频中，一位疫苗强制受害者凯西，强忍着身体的剧痛和颤抖，向人们揭露疫苗可怕的副作用。她表示虽然传播疫苗真相很难，不被别人理解，但我们还应该做这件事。她讲述打完疫苗后的反应，从最初的疼痛、阵阵头痛、疲劳、麻木，到后来一个医生帮助看护她的癫痫和嗜睡症。她呼吁，表示友善的最好方法就是揭露疫苗真相，停止强制接种。
 
-根据CNN的说法，该消息是一位接近乌克兰政府的消息人士透露的，说美国已经通知了乌克兰，“可能最早在下周开始撤离（相关人员）”。
+视频链接：[COVID 19 SIDE EFFECTS 106 – PFIZER CARNAGE CONTINUES](https://www.bitchute.com/video/eYDoFvtssfgd/)
 
-之前，12月20日，美国国务院对乌克兰发布了最高级别的旅行警告，告诉美国人“不要旅行”，称原因是由于中共病毒感染病例的激增和“来自俄罗斯的威胁增加”。
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-对于这个新的消息，国务院的一位发言人说，他们“目前没有什么可宣布的。关于美国外交官员和其家人的有关事情有所决定和改变的话，那么美国公民不应预期会有美国政府资助的疏散行动。目前，商业航班可用于支持离开（乌克兰）”。
 
-**新闻来源**
-
-[US Embassy in Kyiv Asks to Evacuate Nonessential Personnel](https://www.newsmax.com/newsfront/ukraine-russia-invasion-kyiv/2022/01/22/id/1053525/)
 
  
 
