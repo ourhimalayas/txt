@@ -15,92 +15,92 @@
 
 ---
 
-### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1.21大直播后记：郭文贵谈如何战胜痛苦](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [1/21/2022 文贵直播：面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦](/content/gnews/3/README.md)
+### [1/21/2022 文贵直播：习最亲的发小告诉习，是他的极左政策让中国失去了市场的价值和信用，习跟西方的对抗让中国人和中国成为全球三分之二的人的公敌，若不搞政治改革，习的任何改变都不可能成功](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [【秘翻在线】拜登的司法部撤销对被指为中共工作的麻省理工学院科学家的指控](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
+### [美国将加强芯片投资 以增强对华竞争力](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [1.21大直播后记：南巡讲话内幕](/content/gnews/5/README.md)
+### [1.21大直播后记：郭文贵谈如何战胜痛苦](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [日本研究发现中共病毒Omicron重症率是原始毒株的十分之一](/content/gnews/6/README.md)
+### [1/21/2022 文贵直播：面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【秘翻在线】拜登的司法部撤销对被指为中共工作的麻省理工学院科学家的指控](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [1.21大直播后记：南巡讲话内幕](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [日本研究发现中共病毒Omicron重症率是原始毒株的十分之一](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世卫组织建议各国取消COVID旅行禁令](/content/gnews/7/README.md)
+### [世卫组织建议各国取消COVID旅行禁令](/content/gnews/8/README.md)
  ` 温哥华扬帆农场`
 
-### [共产党会通过冬奥会编排台湾](/content/gnews/8/README.md)
+### [共产党会通过冬奥会编排台湾](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [暴政必亡，历史铁律](/content/gnews/9/README.md)
+### [暴政必亡，历史铁律](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [冬奥会的剧本已被共产党写好](/content/gnews/10/README.md)
+### [冬奥会的剧本已被共产党写好](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [冬奥会一定会有运动员感染治理](/content/gnews/11/README.md)
+### [冬奥会一定会有运动员感染治理](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [震撼呐喊：欧洲议会议员呼吁结束封锁和对未接种疫苗人的歧视](/content/gnews/12/README.md)
+### [震撼呐喊：欧洲议会议员呼吁结束封锁和对未接种疫苗人的歧视](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|法国疫苗通行证即将生效](/content/gnews/13/README.md)
+### [有声|法国疫苗通行证即将生效](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|接种者疫苗蛋白脱落或可感染未接种者](/content/gnews/14/README.md)
+### [有声|接种者疫苗蛋白脱落或可感染未接种者](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [共产党必死的三点原因](/content/gnews/15/README.md)
+### [共产党必死的三点原因](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/16/README.md)
+### [以色列疫苗顾问：新冠疫苗并不能防止感染欧米抗病毒](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [【秘翻在线】NFL季后赛球队未接种疫苗的球员不再接受每日Covid-19测试](/content/gnews/17/README.md)
+### [【秘翻在线】NFL季后赛球队未接种疫苗的球员不再接受每日Covid-19测试](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/18/README.md)
+### [有声|美检察官：高法裁决驳回疫苗强制令影响广泛](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [抵制冬奥会引发的思考](/content/gnews/19/README.md)
+### [抵制冬奥会引发的思考](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [2022 年 1 月 22 日魁北克省蒙特利尔再次发生反对卫生措施的示威活动](/content/gnews/20/README.md)
+### [2022 年 1 月 22 日魁北克省蒙特利尔再次发生反对卫生措施的示威活动](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [参加奥运会的运动员会不会得病怎么宣传（三）](/content/gnews/21/README.md)
+### [参加奥运会的运动员会不会得病怎么宣传（三）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [文贵先生直播精要 2022/01/21](/content/gnews/22/README.md)
+### [文贵先生直播精要 2022/01/21](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [资深护士发声发对强制疫苗](/content/gnews/23/README.md)
+### [资深护士发声发对强制疫苗](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [家长的革命](/content/gnews/24/README.md)
+### [家长的革命](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [参加奥运会的运动员会不会得病怎么宣传（二）](/content/gnews/25/README.md)
+### [参加奥运会的运动员会不会得病怎么宣传（二）](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [一元复始，万象更新](/content/gnews/26/README.md)
+### [一元复始，万象更新](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [参加奥运会的运动员会不会得病怎么宣传（一）](/content/gnews/27/README.md)
+### [参加奥运会的运动员会不会得病怎么宣传（一）](/content/gnews/28/README.md)
  ` 雅典娜GNotes`
 
-### [LPR,贷款市场报价利率,全面降息,房地产崩溃](/content/gnews/28/README.md)
+### [LPR,贷款市场报价利率,全面降息,房地产崩溃](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
-
-### [有声|灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](/content/gnews/29/README.md)
- ` MOSREC`
 
 ### [【玫瑰看新闻】每日快讯2022年1月19日（新西兰时间）](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
