@@ -2,28 +2,37 @@
 ---
 
 
-## 不撒谎欺人，不骄奢淫欲，爱你的父母
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897406/)
+## 为拉近和中亚关系，中共近年狂撒数千亿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897566/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-你一定要相信你七哥跟你说的话，我见过天下所有的物质界王子、王孙、官二代、富二代。所有人类你能想象的奢侈，我都经历了，这点你们不用怀疑吧？而且比他们高得多得多。
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-我从未见过一个有钱的、有名的、有权力的所谓的他们的二代，在钱、名、权的这种光环下，他真的活得像个人样，真的活得快乐，从来没见过。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642928368586.jpg)图片来源：雅典娜设计组
 
-我昨天跟我儿子说，我说：你爸爸你妈妈一生当中，最最大的骄傲就是教育你两个，不撒谎、不欺人，更不骄奢， 骄奢淫欲。大家说实在的，花钱谁不会花呀！这个世界都会花，傻花、什么花都会花。干混蛋的事谁不会干呢？ 是不是？你关键是，很多人，这个富二代在炫钱的时候，还有官二代，你有没有想过，钱是你挣的吗？
 
-花钱不是本事，挣钱才是本事。你挣到钱了吗？钱是来让你来作为一个来表达你一个人性的互相之间的各种关系、 生产力的交换，你怎么会变成对别人的一种征服，和这种所谓的对别人的伤害呢？炫耀呢？而且人性是要驾驭财 富的，它怎么财富去驾驭了人性去了呢？是吧？
+据美国之音报道：哈萨克斯坦局势的动荡不仅全球瞩目，也使中国在中亚地区的影响更加引人注意。中国近年来在中亚五个国家撒下数千亿人民币，拉近了和这些国家的关系。
 
-特别那官二代，有名的，他妈是名人，他爸是唱歌的，我一看这孩子，我从来没见过几个健康的，躲在一个名人和权力的人，还有像我这样爹的人背后，这是孩子的不幸，他很难过。你们最幸运的就是没有一个像郭文贵这样的父亲，和像王岐山这样的什么父亲，像姚明姗这样的娘，像彭丽媛这样的母亲，习近平这样的爹，还有什么美国总统的爹。我告诉你，所有这些爹，几乎都是混蛋的、该死的爹，没几个是正儿八经的人。 所以说我今天跟你们说，还有另外一个话题，爱你们的爸爸妈妈。为什么爱他们？咱先不要说中国的文化、不要说人性。最简单的，你爸爸妈妈最起码不会给你带来权力的杀身之祸。富有的、不可确定的失去和杀身之祸，和 名人，当了名人给你带来的他的衰老和必然衰老的周期，他的不健康的心理，和给你带来的魔咒。在那种光环下, 你是不可能健康成长的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/不撒谎欺人，不骄奢淫欲，爱你的父母.jpg)
-发布： *tianzhihuan*
+1991年苏联解体。1992年1月中国与中亚五国乌兹别克斯坦、哈萨克斯坦、吉尔吉斯斯坦、塔吉克斯坦和土库曼斯坦建交。2022年1月，在与五国建交30周年之际，习近平同五国总统互致贺电。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+根据弗吉尼亚威廉玛丽学院研究实验室 AidData的政策分析主任萨曼莎·卡斯特 (Samantha Custer) 的说法，中国在中亚的影响力在过去几十年中呈指数级增长。上个月，卡斯特和她的合著者在一份新报告《权力走廊》中分析了中国如何利用巨额财政援助来赢得中亚和南亚国家的朋友和盟友。
+
+报告称，近二十年来，中国政府向中亚和南亚地区提供了1270亿美元的财政援助。中亚国家在吸引北京财政援助的资金方面名列前茅。
+
+另外，格鲁吉亚智库 Geocase 中东研究主任埃米尔·阿夫达利安尼（Emil Avdaliani）表示，尽管中国在中亚国家的地位已经相当成功，但中国仍然面临着诸如中亚国家的民族主义和政治精英对北京的不信任等障碍。
+
+参考链接：
+[https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html](https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

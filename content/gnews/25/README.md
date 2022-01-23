@@ -2,24 +2,30 @@
 ---
 
 
-## 美国弗吉尼亚州新州长下令，停止学校口罩强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897186/)
+## 欧洲各国首府爆发新一轮反对强制接种中共病毒疫苗游行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1897272/)
 
-我们重申父母在养育、教育和照顾其子女方面的权利。这项行政命令特别涉及父母的权利，父母有权对他们的孩子是否在学校戴口罩做决定。
+#### 撰稿：彩虹 
 
-翻译：Frank
-校对：Lish
-剪辑/字幕：Biggod
-发布：枳实
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-37.jpg)图片来源：欧洲新闻
+1月22日，《国会山报》报道，在欧洲的几个首府城市，抗议者成群结队地出来示威游行，反对强制接种中共病毒（COVID-19）疫苗和相关限制措施，这是欧洲民众针对中共病毒疫情措施发生的最新一波抗议活动。
 
-视频链接：[Glenn Youngkin, the new Republican governor of the US state of Virginia, signed an executive order to end the requirement to wear masks in schools.](https://gettr.com/post/pp3oc8b3dd)
+据美联社报道，从巴黎、雅典、斯德哥尔摩、伦敦到赫尔辛基，周六，成千上万的人走上街头，抗议各种中共病毒（COVID-19）疫情措施。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+周六，在瑞典首都斯德哥尔摩和第二大城市哥德堡，大约4000人参加了抗议活动，抗议针对50人以上的室内活动必须有疫苗证书的规定。
+
+报道说，尽管当地报道称有新纳粹北欧抵抗运动成员出现，但是到周六下午晚些时候，斯德哥尔摩并没有发生重大事件的报道。
+
+同时，在芬兰首都赫尔辛基，也没有立即发生暴力事件的报道，此前约有4000人在白天举行示威，反对政府授意下制定的中共病毒疫情限制措施，例如强制要求活动和餐馆使用疫苗通行证，以及将大学过渡到远程学习。
+
+法国以前采用的疫苗通行证要求居民出示疫苗接种证明、中共病毒测试阴性或最近刚从感染中共病毒后康复的证明，才能进入某些公共场所。
+
+除法国其他城市外，巴黎也在周六举行了示威活动，人们抗议从周一开始实行的更严厉的中共病毒疫苗通行证。美联社指出，根据措施，法国的一些地方，例如电影院、酒吧、国内航班等都将不允许未接种疫苗的人进入。
+
+**新闻来源**
+
+[Thousands protest COVID-19 restrictions in European capitals](https://thehill.com/policy/international/590922-thousands-protest-covid-19-restrictions-in-european-capitals)
 
  
 

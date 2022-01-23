@@ -2,21 +2,25 @@
 ---
 
 
-## 雅典娜时报-第182期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897187/)
+## 美国务院已下令撤离驻乌克兰大使馆工作人员家属
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897274/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1843.png)[(图片来自视频源截图)](https://m.youtube.com/watch?v=KV4lHNPghec)
+23日，据一些美国媒体报道，俄罗斯可能入侵乌克兰，形势日益严峻，美国国务院已经命令驻乌克兰首都基辅大使馆工作人员的家人撤离该国。
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080081956884/155_1-8.png?width=860&amp;height=1281)![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080794959922/155_3-1.png?width=860&amp;height=1281)
-*发布：陶子*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+福克斯新闻报道称，据多位美国官员称，美国国务院已下令美驻乌克兰大使馆工作人员家属24日开始撤离。
+
+预计下周将使用商业飞机帮助在乌克兰的普通美国人撤离该国。
+
+据美国媒体透露，拜登总统在周末紧急与国家安全顾问沙利文讨论了乌克兰局势。
+
+信息源：[米　ウクライナの大使館員家族に退避命令か](https://news.yahoo.co.jp/articles/d61227b33ba313275bc1217a4b6aa7c56b8550e9)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
 
  
 
