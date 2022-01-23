@@ -2,22 +2,23 @@
 ---
 
 
-## 小王子提问七哥关于外星人话题（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897359/)
+## 中共你产啥，你能卖啥？（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897366/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### **整理：雅典娜速记组**
+**编辑：请你喝可乐**
 
-所以说小王子，你每次问外星人的时候，对外星人的认知就是一个社会科技文明和对大自然，真的是要知道宇宙无限大，地球是一粒沙的基本的逻辑非常好。 但是你放心，你会见到很多外星人，而且很快，当这个太空旅行开始的时候， 你会见到你想象不到的，这个我可以给你保证你是想象不到的。你自己有私人飞机横跨世界，你就已经感觉到这个人类上绝大多数人是真的是无知。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党你产啥3、北酒_01.jpg)
 
-你不能想象时差原因，白昼暗一下子就直接变成黑夜，然后地球是弧形的，因为喷气飞机是比坐这个波音和空客要多飞一两万尺的。当你往北部，东欧那边, 北欧、俄罗斯飞行的时候，和到南部，包括到巴西、阿根廷这些地方，还有澳大利亚，这完全是不一样的感觉。你坐在那个前面驾驶舱飞行舱，看着那个星球的时候，你才发现人类真的很伟大，我在天上。然后你一想，我家人、我身边人很无知，原来他们什么都不懂。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/小王子提问七哥关于外星人话题（四）-.jpg)
-发布： *tianzhihuan*
+头两天是国内的烧纸的节日啊，我让人给高辉先生，我说就帮我送点冥币, 多烧点今年，我说我这边战斗结果不错，很快，我就可以上坟去拜他去。 结果给他烧纸的小朋友说，七哥，我先生说去年买的纸和今年买的纸差了 4倍的价格。哇塞，我说，这共产党的冥纸涨价了。他说高辉先生的墓地 旁边烧纸的人少了，因为这个（冥）币太贵。 冥币都涨了好几倍了，为什么？运输费、纸都贵了。 共产党产啥呀，我就问兄弟姐妹，你看股票、金融市场、房地产必然崩盘。 装修、室内建筑、水泥、工人，一系列都将崩塌，大量的失业，然后你搞 一带一路去。所以说兄弟姐妹们，今天咱们直播有多重要，有脑子有良知 的人，你问问共产党产啥？中国人产啥？你能卖啥？
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+*发布：请你喝可乐*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
