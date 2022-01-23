@@ -2,23 +2,30 @@
 ---
 
 
-## 杰森•米勒做客卡罗拉播客访谈 摘要 强调盖特捍卫言论自由反对删除文化
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1893021/)
+## COVID-19 最新情报｜台湾omicron病例数暴增 中重症皆发生于完全接种者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1893413/)
 
-撰稿—GeorgeC（乔治）
-校对/上传—无明逆流
+**撰文｜疫情關注組 / 發佈時間｜22/1/2022**
 
-盖特CEO杰森·米勒（Jason Miller）先生在1月21日接受亚当·卡罗拉(Adam Carolla)播客节目采访中详细阐述了盖特的价值观，就是不以政治观点来区别对待盖特用户，反对广泛存在于其他社交媒体的歧视现象，反对取消文化（Cancel Culture）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-22-at-21.50.36.jpeg)图片来源：网络
-杰森·米勒先生表示，去年7月4日推出以后，盖特的定位就是一个真正被用户拥有的平台。而不是像大型科技公司和社交媒体公司所做的那样，只保留被左派价值观一致的观点，对不认同的观点贴上标签甚至加以警告。他认为中共病毒和治疗中共病毒的药品（如青蒿素、伊维菌素、硫酸羟氯喹等）的信息被大量主流社交媒体打压删除就是一个很好的例子。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-杰森·米勒先生进一步以罗伯特·马龙博士(Dr. Robert Malone)为例说明删除文化。罗伯特·马龙博士是核磁共振成像和疫苗技术的发明者之一，同时一直旗帜鲜明的反对中共疫苗。然而，就在几天前，马龙博士因为发表了一些不被推特认同的有关疫苗的医学观点而被销号。此外，米勒先生还提到2020年初在推特上发表中共病毒来自实验室的观点就会收到打压，而今连《华盛顿邮报》(Washington Post)这种左派媒体也认为中共病毒来自武汉的病毒实验室。这说明作为言论发表平台的媒体不应该作为观点正确与否的裁判。
 
-杰森·米勒先生同时谈到了最近同样因为遭受推特打压而加入盖特的著名播客主持人乔·罗根(Joe Rogan)先生。他也解释了罗根先生对盖特的关注者数量误会，也就是之前关注者数量是推特和盖特的总和，而现在为了避免误会盖特已经将盖特关注数量和推特关注数量分开统计和显示。同时，米勒先生表示已经和罗根先生团队进行了积极的沟通，而且很乐意和罗根本人对话。
+Omicron变异株自去年11月被发现后，不到一个月就成为全球最主要病毒株。台湾从12月11日发现首起Omicron境外移入案例后，一个月间本土疫情爆发，从机场工作人员、到歌友会、到西餐厅。
 
-杰森·米勒先生最后还明确说明了对中共的态度和观点。首先，米勒表示盖特没有任何来自中共的投资资金，公司本身和中共也没有任何联系。其次，他认同美国正在建立的关于中共资金的审查制度，例如该审查制度阻止了几个月前中共控制的蚂蚁金服对速汇金（MoneyGram）的收购。更重要的是，米勒先生认为在美国有很多爱国的美籍华人，中共不等于中国人，中共在西藏新疆等地犯下的反人类罪行必将受到审判。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.07.11.jpeg)
 
-新闻来源：[https://www.podcastone.com/episode/Part-1-Jason-Miller-on-Social-Media-Joe-Rogan-and-Donald-Trump-plus-comedian-Jodi-Miller-ACS-Jan-21](https://www.podcastone.com/episode/Part-1-Jason-Miller-on-Social-Media-Joe-Rogan-and-Donald-Trump-plus-comedian-Jodi-Miller-ACS-Jan-21)
+
+据防疫中心公布资讯，1月20-21日台湾新增病例从37暴增到68例，22日台湾[公布](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)新增130例COVID-19确定病例，分别为**82例本土个案**及48例境外移入；另确诊个案中无新增死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-22-下午4.26.40.png)
+本土个案为12例男性、70例女性，年龄介于未满10岁至70多岁。另，有关于omicron境外移入确定病例之分析，台湾相关单位数据显示364例确定病例有“338例”突破性感染，25例非突破性感染及1例待查。感染年龄集中于“20-50岁”占286例。症状部分，362例无状症或轻症，2例中重症以上。
+
+台湾发生的两例中重症，分别为20多岁男子、30多岁孕妇，皆为完全接种者。男子接种1剂AZ、2剂BNT，女子则是两剂AZ。两例中度以上症状皆在接受药物治疗后康复，并未住进加护病房。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-22-16.11.32.jpeg)
+台湾政府目前力推第三剂新冠疫苗加强剂，但已经转口称新冠疫苗之效力为““有效预防重症机率”并未对疫苗之预防效力进一步解释。又台湾截至22日，已经可确定Omicron进入社区感染期，且据统计数据**感染发生重症者至少接种两剂疫苗，又年龄层较低之事实**观之，新冠疫苗有效预防重症效力之解释是否专指“进入加护病房”程度，尚无法确定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio.png)
+来源｜[台灣衛生福利部](https://www.cdc.gov.tw/Category/ListContent/EmXemht4IT-IRAPrAnyG9A?uaid=5MtrgzOJApOSjivffWLWRw)
 
  
 

@@ -2,34 +2,21 @@
 ---
 
 
-## 美日元首召开视频会议 承诺共抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1897026/)
+## 雅典娜时报-第182期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897187/)
 
-#### **撰稿：**日本东京方舟农场  老孙
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5CB35A18-C469-4C4F-B140-1C70885D865E.jpeg)（图片取自德国之声）
-
-1月22日，美国总统拜登与日本首相岸田文雄周五举行了线上会议，并在会议上承诺，美日共同对抗中共在亚太地区的野心。
-
-据法新社报道，两人强调台海的和平稳定与和平解决两岸问题的重要性，反对中国改变东海与南海现状的企图，并表示坚决“反对中国改变东海和南海现状企图”，并对中国在新疆与香港作为感到担忧。
-
-拜登申明，美日安保条约第5条适用于钓鱼台诸岛，美国将坚定不移地致力于利用所有能力保卫日本。
-
-在经济议题上，两人同意设立经济版2+2会谈，讨论新技术、供应链等议题。岸田文雄也表达对美国提出的印太经济架构的强力支持。
-
-拜登在视频会议结束后发推文表示，“很荣幸会见岸田首相并深化了美日之间的联盟关系，这场会谈进一步强化了美日同盟关系，这是印太地区和全球和平与安全的基石”。
-
-据透露，拜登接受了岸田文雄的访日邀请，将出席预计在春末举行的美国、印度、日本与澳洲的四方安全对话。
-
-*参考链接：[拜登与岸田视频会议承诺协调一致共同对抗中国](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220121-%E6%8B%9C%E7%99%BB%E4%B8%8E%E5%B2%B8%E7%94%B0%E8%A7%86%E9%A2%91%E4%BC%9A%E8%AE%AE%E6%89%BF%E8%AF%BA%E5%8D%8F%E8%B0%83%E4%B8%80%E8%87%B4%E5%85%B1%E5%90%8C%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%9B%BD)*
-
-* * *
-
-*素材采编：老孙*
-
-*编辑： 文顺*
-
-*发布：miumiu*
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080081956884/155_1-8.png?width=860&amp;height=1281)![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080794959922/155_3-1.png?width=860&amp;height=1281)
+*发布：陶子*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
