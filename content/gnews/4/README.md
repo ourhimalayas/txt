@@ -2,24 +2,27 @@
 ---
 
 
-## 希望与力量，绝妙
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898019/)
+## 62%注射过mRNA新冠疫苗的病人有细小血栓
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1898027/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+【疫苗危害回顾系列】
 
-今天这词写得，我觉得“爆二代——希望与力量”，绝了，绝了！“希望与力量”这是谁写的我不知道。圣诞特别节目，这俩词简直，“希望”是人类 生存下来的根本；“力量”真的是，希望与力量就是有信仰、有正道主义， 一旦邪恶了就是邪恶的力量。
+Chrles Hoffe医生为他的病人做D-二聚体检测，发现62%注射过mRNA新冠疫苗的病人有细小血栓。 他说这些人现在是永久性的残疾，将”不能够做他们过去能做的事情”。
 
-所以说，我们现在面对着世界上邪恶的力量对我们的威胁。今天的这个节目真的是太好了。今天你早说一开始是音乐，我就不准备吃呀，小王子，你说这音乐和羊肉怎么也放不到放一起去呀，我本来馋你们呢，现在结果是我被音乐给兜回来了这回。你这是踹了我一阴阳脚啊，整得我现在狼狈不堪呀。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/希望与力量，绝妙.jpg)
-发布： *tianzhihuan*
+【字幕】
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+D-二聚体是一种显示近期血栓的血液检查。 除了最近的血栓之外，它不显示其他任何东西。 它不会显示旧的血栓，它只显示新的血栓。
 
+我一直给我的一些病人做这项检查，这些病人在过去7天内， 确切地说是在过去4-7天内接种过新冠疫苗，我给他们做D-二聚体的血液检查。
+
+我还在收集更多这方面的数据。 但就我目前掌握的信息来看，D-二聚体的检测结果表明62%的人有血栓，这意味着打了疫苗后出现血栓并不罕见，也意味着打了疫苗后大多数人得了血栓而自己并不知情。 因此Laurelyn，最令人震惊的是，我们身体的一些器官，比如心脏，大脑，脊椎和肺是不能再生的。 当其中的组织被里面血管损坏时，这对器官的损害是永久性的。
+
+* * *
+
+搜集：36CIA | 听写，翻译：蔻依 | 剪辑，字幕： 文零
+
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

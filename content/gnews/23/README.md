@@ -2,65 +2,89 @@
 ---
 
 
-## “我的疫苗批次有多糟糕”——我的疫苗受伤故事
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1897731/)
+## 全球疫情更新（官方报告的数据证明疫苗令疫情恶化）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897747/)
 
-翻译：Jenny Ball
+**整理/编辑：枳实**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1857.png)图片来源：rwmalonemd.substack.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1827.png)图片：雅典娜农场设计组 精灵蓝
 
-事实上，我确实有个人生活，我和我 42 岁的妻子实际上很私密，分享个人历史不是我每天要做的事情。然而，正如你们许多人所知——我接种了两剂莫德纳疫苗，并且受到了相当严重的疫苗伤害。这是疫苗推出的早期阶段，**早在 ****FOIA ****日本临床前试验数据出现如此多的危险信号和违规行为之前**，早在我们了解临床试验的所有问题之前，早在 VAERS 和不良事件开始为人所知之前。
 
-我要写它，我从来都不是一个“反疫苗”的人。我的职业生涯一直与疫苗打交道，我也知道有些疫苗很“热带”，安全性较低。通常这些类型的疫苗是为埃博拉病毒或黄热病等极其危险的病毒保留的，目标是使疫苗100％有效。其他广泛分发的疫苗，如流感疫苗，需要是非常安全的。权衡发现它们的效果较低。制作疫苗以应对某些“威胁”是一门完整的科学和艺术。所以，我知道在使用实验产品或任何疫苗之前，要阅读文献、自己要进行足够的调查等。我认为这些我都做了：政府向我们保证，这些疫苗非常安全。我也永远不会想象临床数据会被破坏甚至伪造——正如我们现在所知道的情况。
+雅典娜疫情更新（2022年 1月23日）
 
-无论如何，回到我的故事。我在 2021 年 4 月初就知道，我必须要出国旅行，街上流传的消息是，欧盟将要求在夏天进入任何欧盟国家之前进行全面疫苗接种（顺便说一句，这实际上从未发生过）。我知道完全的疫苗接种方案需要几周的时间——我最好早点开始！此外，有很多争论关于疫苗接种有助于保护“长期 COVID”感染者的说法。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-我已经感染过 COVID，只是无法摆脱感染后出现的一些慢性问题。坦率地说，我应该为此做更多的功课——因为那个说法真的经不起推敲。
+**一，全球疫情基本数据**
 
-尽管如此，在 2021 年 4 月，我接种了疫苗。在这个周期的早期，我别无选择，只能接种莫德纳疫苗，因为我所在地区只有这种疫苗。疫苗在当地一所大学分发，由陆军预备役管理该项目。
+感染总数：348,161,862（日新增3,128,314，14天增幅+35%）
 
-第一剂很好，没有问题。
+死亡总数：5,589,066（日新增7,641人，14天增幅 +19%）
 
-第二剂差点要了我的命， 简直跟死一回差不多。
+**二，全球“疫苗”毒针统计数据**
 
-注射后，我出现了通常的疲劳、肌肉疼痛，然后开始出现心悸和呼吸急促。几天之内，情况变得更糟——我是一个不轻易去看医生的人，但幸运的是，我碰巧和我的医生有一个例行的预约。她给我测血压，我的收缩压飙升。由于她也是一名心脏病专家，她进行了更多的测试，让我开始服用高血压药物，我得到了控制，我觉得我欠她一条命。她是天使般的博韦医生（Bove）。
+“疫苗”毒针注射总数：98.5亿
 
-长话短说快进到今天。评论我的 《子堆栈》上的文章的一个人，将我指向这个网站：[https://www.howbadismybatch.com/](https://www.howbadismybatch.com/)
+完全“接种”：40.9亿人
 
-该网站将疫苗批次代码与来自 VAERS 系统的信息进行匹配，VAERS 系统是 CDC 运行的事件报告系统。该网站将疫苗批次与 VAERS 系统中的药物不良反应、死亡、残疾和危及生命的疾病相匹配。
+完全“接种”百分比：52.4 %
 
-根据上述网站，网站上转载的 VAERS 报告的数据显示，莫德纳批次引发的不良事件差异很大。
+**三，澳洲疫情和“疫苗”数据**
 
-• 5% 的批次似乎产生了 90% 的不良反应
+感染总数：2,197,108（今日新增48,981人）
 
-• 与其他批次相比，某些莫德纳批次的死亡和残疾人数是其他批次的50倍。
+死亡总数：3,121人（今日新增 58人）
 
-有了这些知识，我在搜索框中输入了我的批处理代码。第一剂批次几乎没有与之相关的重大不良事件。第二剂批次，坦率地说让我震惊。
+每万人感染人数：851.8891人
 
-结果如下：
+“疫苗”毒针注射总数：47,934,083 （日新增191,876 针）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1859.png)图片来源：rwmalonemd.substack.com
+完全“接种”：19,164,031人
 
-我不知道每批有多少剂量， 但我确实知道我的批次绝对是前5%。因此，回想起来，我有如此严重的不良事件，就不足为奇了。
+第二针“接种”百分比：78.2%
 
-我一直觉得我很幸运那天我碰巧去看了我的医生，她也是一名心脏病专家（她是我的内科医生——我并不是去看她的专业心脏病的）。
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
 
-但是想想——我们的政府在 VAER 系统中，早在去年夏天就有这些数据。这些数据是如此引人注目，然而……天啊。如果发布这些数据，他们可以救到多少人？ 像我这样的人，如果我不是医生，并且没有去看我的医生，早就死了。
+16岁以上人口接种至少两剂疫苗的比例：92.9%
 
-我们的政府有什么问题，CDC 或 FDA 无法提供这样的网站？如果有人对这些疫苗的不良事件有任何疑问，请查看或查看 VAERS 数据中有关年轻人和儿童死亡的数据。
+**四，疫情新闻摘要**
 
-人们有权就医疗程序的风险和收益有知情同意权。如果隐藏了风险，则不会给予知情同意。
+[英国企业拒绝强制员工接种疫苗。](https://www.theguardian.com/law/2022/jan/22/uk-firms-weigh-risks-of-forcing-their-staff-to-get-coronavirus-jabs)
 
-哪里有风险，哪里就应该有选择
+在英国，大多数私营企业都对强制员工接种疫苗持否定态度。就业律师和工会警告称，要求员工接种疫苗的企业——所谓的“不打针，不工作”政策——是一个道德雷区，在法律上也存在争议。只有例如Next、Ikea 和 Ocado 等公司高高在上，他们改變了他們的公司疾病政策，削减了未接种疫苗工人的病假工资。儘管如此，絕大多數英國雇主已經表明他們不願意在員工中強制接種疫苗。
 
-素材链接：[rwmalonemd.substack.com][“How Bad is my Batch”](https://rwmalonemd.substack.com/p/how-bad-is-my-batch)
+[著名橄榄球队主力前鋒傑克達林成为西澳第一个拒絕接種中共病毒疫苗的球员。](https://thewest.com.au/sport/west-coast-eagles/west-coast-eagles-forward-jack-darling-barred-from-club-after-refusing-covid-19-vaccination-c-5390801)
 
-* * *
+以亲共著称，谨慎避免批评中共在香港和新疆的暴行的西澳州长麥高恩评论说，“為此放棄你的足球生涯，我認為這不是一個明智的決定”。 卡尔顿的利亚姆·琼斯（Liam Jones）在选择不接种疫苗后退役，北墨尔本的杰德·安德森也没有在阿登街训练。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+**五.数据分析**
+
+今天继续介绍[《疫情编年史》](https://eugyppius.substack.com/)的这[篇文章](https://eugyppius.substack.com/p/unboostered-brits-infected-and-dying)的精彩部分。下面这个图表来源于[蘇格蘭公共衛生部的數據](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)。zhe
+![](https://assets.gnews.org/wp-content/uploads/2022/01/N1RUBM18AATFK0YVPE1F.png)
+这个图表显示了苏格兰公共卫生部的数据中去年12月和今年1月的两个星期中的病例中未接种疫苗（绿色），一剂疫苗（黄色），两剂疫苗（橙色），三剂疫苗（红色）的每十万人口的感染病例数字。从这个图表看出，这四个星期，无论疫情如何，未注射疫苗的病例数都更低，病例数最高的就是注射2针的人群。
+
+这个图表简直就是在嘲笑这些所谓的疫苗，越打病例数越多。这个数据也与[我们之前提到](https://gnews.org/zh-hans/1817504/)的[丹麦研究](https://t.co/A8gp5cTnYR)相符合：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/252Y6_KZXXP0RXU5P.png)
+也就是说，英国，爱尔兰，丹麦的数据都表明，在奥米克戎毒株面前，接种疫苗反而导致人们更容易感染。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
