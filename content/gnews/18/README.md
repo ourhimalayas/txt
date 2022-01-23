@@ -2,45 +2,42 @@
 ---
 
 
-## 浅谈台湾推行疫苗接种数位证明的动机与代价
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1898329/)
+## 不要溢出效应就是用14亿中国奴隶把西方的泡沫收回去
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898333/)
 
-台湾宝岛农场 斗阵来拼
+G-TV视频链接：[https://gtv.org/video/id=61ecf22c87664c47acd8adca](https://gtv.org/video/id=61ecf22c87664c47acd8adca)
 
-台湾国内版“数位新冠病毒健康证明“是“疫苗护照“其中一种，此案在没有经过民意与法源基础下于21日开始启用，将配合中央流行疫情指挥中心，要求打完2剂疫苗者才可到八大行业消费，其他行业也可评估跟进；此“即令即行“的做法是否合理，必须接受社会公评。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-319.jpeg)
-图片来源: 取自台湾中央流行疫情指挥中心记者会
+**郭文贵先生**：还有一个大家没有注意到，这个达沃斯论坛不叫溢出效应是什么呀？反对美国加息，美国和西方世界病毒印的200多万亿美元的所有的钞票，大家都知道，这是西方都公开的，这不是我说的，是吧？官方上实际260万亿美元，他们要把这水给挤出来，这水要挤哪去呢？共产党现在告诉世界，只要懂一点世界金融的都懂，你别挤这泡沫，我来把你的泡沫给收回来。
 
-笔者观察，为何身边绝大多数的亲友对此政策并无太大的反应？甚至积极配合政府推行此做法，除了主动下载数位新冠健康证明，也争相走告亲友尽快配合政府推动以加速其普及率，无知地将自己的权利及隐私权完全交付给政府管控，也表示放弃捍卫宪法保障我们基本人权的权利。
+我怎么帮助你弄呢？我让中国老百姓，所谓的打工仔、打工妹、中国的农民，中国农民干一辈子的，我要给它十年、二十年，我把你这泡沫给收了，你只要别把我共产党印的钞票的谎局给戳穿，别把我这100多万亿美元的房地产局给戳穿，你让我们这几个家族继续控制中国人，有14亿奴隶，我给你干20年免费嘛，继续买便宜的耐克、便宜的内裤、便宜的加工产品，你干嘛把我弄死呢？我有14亿奴隶。这就叫共产党说的：中国的巨大的市场潜力。
 
-为何民众的权益已被剥夺，却仍如此无感呢? 主因台湾民众根本无法从主流媒体上获得正确的疫苗资讯，加上台湾政客与官员们天天在萤光幕前、嘶声力竭地鼓励民众，配合政府推广“数位新冠病毒健康证明“（疫苗护照之一）的政策，宣扬如此才能有效对抗新冠疫情快速传播的假象，此观点完全没有任何论证支撑，动机实是令人质疑?
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-但仍有民众质疑Omicron变种传播力超强，不管打一剂或两剂中共病毒( 新冠病毒covid 19) 疫苗都会突破性感染；因此就算有疫苗护照，周遭环境也不见得安全，由此可察，“疫苗护照“完全只是制造假性安全感的工具！
+编辑整理：Jacques；
 
-另外，有专家表示，日本去年底也开始推动疫苗护照，不过今年以来，日本确诊病例又大爆发，代表疫苗护照成效不彰，政策也暂时喊卡；不只日本，英国也将放宽及取消疫苗护照的强制政策。
+字幕文件制作：小满；
 
-反观台湾，美其名并无强制人民接种中共病毒( 新冠病毒covid 19) 疫苗, 但每每中央及地方所推行有关疫苗的行政命令，不免让人联想，其最终目的是为了给民众制造无形的压力与氛围，迫使民众自愿接受施打中共病毒( 新冠病毒covid 19) 疫苗。 “数位新冠病毒健康证明“的启用，不仅加深台湾社会“已苗“与“无苗“两个族群之间的对立，也明显违反中华民国宪法对于人权的基本保障。
+视频制作及上传：Cindy；
 
-因笔者的孩子，长期与病魔对抗，陪伴孩子进出医院治疗已成为我的日常与家常便饭的事情了。然现今台湾政府，在无法源基础下，竟正式启用“数位新冠病毒健康证明“的相关规定；倘若各大医院也比照跟进，民众必须出示“数位新冠病毒健康证明“才能入院的规定，将可能剥夺没有施打中共病毒( 新冠病毒covid 19) 疫苗的家长，无法陪伴孩子入院治疗的权利；试问未成年的孩子在没有家人陪伴的情况下，如何独自面对频繁治疗的恐惧呢？孩子的基本人权又由谁来捍卫呢？
+G-News发布：小满；
 
-笔者不反疫苗，只针对施打中共病毒( 新冠病毒covid 19) 疫苗的必要性与安全性提出质疑，任何人都有选择自己是否要施打中共病毒( 新冠病毒covid 19) 疫苗的权利，而非强制民众接种；何况推行疫苗护照并非抗疫的解方，其本质上既反人类并已侵犯基本人权自由!
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-(本文只是笔者观点，不代表G NEWS立场)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-参考资料:
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-- [https://udn.com/news/story/122190/6048049](https://udn.com/news/story/122190/6048049)
-- [https://news.tvbs.com.tw/life/1695388](https://news.tvbs.com.tw/life/1695388)
-- [https://www.moneydj.com/kmdj/news/newsviewer.aspx?a=4137e88c-8c89-464d-99ad-c0050b59a2f9](https://www.moneydj.com/kmdj/news/newsviewer.aspx?a=4137e88c-8c89-464d-99ad-c0050b59a2f9)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-* * *
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

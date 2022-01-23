@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/23/2022 3:04 PM (UTC)`
+
+1月23号：在欧洲议会上．震聋发聩的声音．和有良知人的正义的力量．最终会战胜邪恶的！这个视频我看了很多遍！谋杀就是谋杀．谋杀就是谋杀……那些没有受过高等教育和专业医疗教育的人，怎么会知道疫苗是没有经过验证和充分的科学证明的谋杀人的生化武器呢？这说的太好了，问的太好了．新中国联邦朋友无处不在……力量无处不在，我们将改变这个世界上无处不在的黑暗势力……
+![img](https://media.gettr.com/group33/getter/2022/01/23/15/8db6b157-76ff-79a8-2815-145841a818df/out.jpg)
+
+---
+
 `@miles 1/23/2022 2:48 PM (UTC)`
 
 1月23号：尊敬和战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
@@ -156,13 +163,6 @@ EP6: The Truth. Let's tear down the monstrous lies of this despicable #HBO #VICE
 
 1/21/2022 Miles Guo: The CCP’s bribing various state leaders harms the Chinese people in the name of the country. Pakistan is one of the places for the CCP to kill people, and conducting drug trafficking, smuggling, human trafficking, organ transplants, and money laundering. What are the consequences of colluding with the CCP? You can find it out just by looking at today’s Venezuela, Afghanistan, and Kazakhstan!<br/><br/>1/21/2022 文贵直播：中共行贿各国元首是以国家的名义伤害中国人；巴基斯坦是中共杀人、贩毒、走私、贩卖人口、器官移植、洗钱最关键的地方之一；跟着中共有什么后果？看看现在的委内瑞拉、阿富汗、哈萨克斯坦就知道了！<br/>
 ![img](https://media.gettr.com/group20/getter/2022/01/22/04/7d5f096d-23c7-40ec-09c4-3d15f3dd87fd/out.jpg)
-
----
-
-`@miles 1/22/2022 12:40 AM (UTC)`
-
-1/21/2022 Miles Guo: The CCP will be finished once its technological and financial sectors are destroyed. With the launch of 5G and 6G, the CCP’s Great Firewall will be gone so that everyone in Communist China will be able to use our platforms. What is the story behind the Dutch photolithography machine manufacturer’s cancellation of the $2.5 billion order from the CCP?<br/><br/>1/21/2022 文贵直播：干掉了科技和金融，中共就玩完；随着5G、6G的投入，防火墙将消失，任何人都将可以使用我们的平台；荷兰光刻机巨头取消中共25亿美元订单的背后有着怎样的故事？
-![img](https://media.gettr.com/group46/getter/2022/01/22/00/51856546-c5af-952f-8354-8bdca61c3eef/out.jpg)
 
 ---
 

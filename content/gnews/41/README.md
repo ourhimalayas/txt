@@ -2,31 +2,38 @@
 ---
 
 
-## 公共卫生领域对新冠病毒的基本特性仍然不清楚
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1898099/)
+## 塞浦路斯引渡案获进展 战友母子获准保释
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898153/)
 
-【疫苗危害回顾系列】
+作者：纽约香草山文艺部 宁文静
 
-Marty Makary医生，约翰-霍普金斯大学教授，公共卫生研究员，“今日医学”编辑，纽约时报”我们付出的代价”的作者，信奉“科学领域进行诚实的辩论是件好事”。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-【字幕】
+当地时间1月21日，外媒报道中共在塞浦路斯发起的，针对新中国联邦成员的引渡案有了新进展，帕福斯地区法院批准了战友母子的保释申请。每人保释金为25,000欧元，直到文件补充完成。
 
-Marty: 当新冠袭来时，美国对这个病毒并没有很坚实的研究。 每个人都联系我们，包括每个正在看我们这个采访的人。 他们联系你，联系我。 人们给我们发短信、打电话和发电子邮件。 他们问：新冠如何传播？ 什么时候传染性最强？ 会第二次感染吗？ 诸如此类的问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0123am（1）.001.jpeg)
 
-主持人：诸如“无症状感染者会不会传播病毒？”
+辩护律师埃夫斯塔蒂奥在接受媒体采访时说，中共当局将引渡请求发送到塞浦路斯驻北京大使馆，塞浦路斯外交部长无暇授权法院所需的请求。没有授权，就不会有引渡。律师还证实这对母子是新中国联邦的成员，因政治观点歧义而受到中共政府的欺诈诬陷。众所周知，性别、宗教或政治信仰等，不能成为引渡的理由。因案子的政治复杂性，引渡程序将需要长达18个月时间。
 
-Marty: 还有“需要隔离多长时间？ 在哪里会被感染？ 怎么会被感染？口罩有用吗”？所以我们受到一大堆这样问题的轰炸。 可我们没有好的数据，实际上几乎没有数据去回答这些问题。NIH去年用于研究延缓衰老的资金是用于研究新冠病毒的两倍。他们将不到预算的 5% 用于 COVID 研究。 所以对这些问题我们没有答案。 因此，新冠研究有数据的真空，而填补这一真空的是政治观点。
+外媒指出，新中国联邦是以美国为基地，推翻中国共产党为政治诉求的团体。这起引渡案，已获川普总统前顾问史蒂夫·班农先生高度关注，也获得了法治基金的鼎力支持与援助。
 
-主持人:所以实际上，对新冠看法如此两极分化的部分原因是缺乏真正的科学。 人们说要”听从科学”，就像科学是圣经。 但实际上对于新冠，连基本的有足够数据的科学研究都没有做。
+参考链接：[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
 
-Marty:对啊，我们被告知的真相只是一种看法， 就像我们当中很多人根据SARS病毒是通过气溶胶传播， 就形成自己的看法一样。所以我们根据已知的病毒来猜测新冠这些问题的答案， 但一年后的今天我们慢慢开始了解新冠病毒了， 比如“85%的人在发病前几天在外面吃过饭”，是室内，还是室外，是酒馆还是咖啡馆？ 而且我们需要数据做研究的时候，我们怎么才只有这么点儿数据？ 我们在NIH花费了420亿美元。 看看这笔钱NIH花在了什么地方, 用于所谓的新冠研究的资金甚至花在不是你所想象项目上： 57项拨款是关于新冠治疗的不平等，当然这是一个重要的话题，但没有一项拨款是关于新冠如何在年轻人当中传播的。 4项拨款是关于新冠传播，1.9%的资金用于临床研究，但其实很多都用在实验室物资设备。 所以我们需要知道的关于新冠的基本信息没有答案，而且这个问题现在仍然存在。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-* * *
+编辑：Kathy文艺
+总编：文真
+校正/发稿：我不在这里
 
-素材，翻译：蔻依 | 剪辑，字幕：文零
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

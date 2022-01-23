@@ -2,28 +2,39 @@
 ---
 
 
-## 班农先生不惧任何攻击
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898324/)
+## 美反对强化世卫计划阻止中共渗透
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898331/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班龙先生不惧_01-1.jpg)
-班农先生说： 我就想让他们痛恨我，我就想让他们压着我的声音，我喜欢让他们每天攻击我，因为他们 这样做，就说明 ”我”就是他们的目标。
-那么星期一就是另外一天，就是另外抗争的一天。
-他们攻击我就像 CCP攻击郭文贵先生一样。伟大的信仰和理想的时候, 你一定会失去你所拥有的。我们要的是一人一票的政治、 平等的人权。
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1877.png)
+根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
 
-发布：于white
+美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+虽然拜登上任后不久美国重新加入世卫，但美国认为世卫组织需要进行重大改革。他们反对此项提案的理由，是担心世卫组织应对未来威胁，尤其是中共国威胁的能力有限。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+美国正在推动建立一个由捐助者直接控制的独立基金，可以为预防和控制突发卫生事件提供资金。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：https://cn.rti.org.tw/news/view/id/2122766
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-2.png)
+
+总编/编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+
 
  
 

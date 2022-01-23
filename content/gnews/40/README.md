@@ -2,27 +2,33 @@
 ---
 
 
-## 塞浦路斯引渡案获进展 战友母子获准保释
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898153/)
+## 数据灭共：老百姓的钱都去哪了
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898154/)
 
-作者：纽约香草山文艺部 宁文静
+作者：香草山教育部 文斗
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-当地时间1月21日，外媒报道中共在塞浦路斯发起的，针对新中国联邦成员的引渡案有了新进展，帕福斯地区法院批准了战友母子的保释申请。每人保释金为25,000欧元，直到文件补充完成。
+据2021年中共国最新经济年报显示，国内人均GDP达到8万976元，按年平均汇率折算，达1万2千551美元，突破1.2万美元。中共官方自吹已经接近世界银行的高收入国家门槛。消息一出，官媒一片欢腾。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-10.24.44-PM.png)
+自加入WTO以来，中共国经济高速增长，经济体量占世界第二，中共因此有了“引领全球治理体系变革”的野心。但是，“国强”并不代表“民富”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/0123am（1）.001.jpeg)
+根据世界银行公布的数据，长期以来，中共国老百姓收入占GDP的比例严重低于世界平均水平。世界银行数据显示收入占GDP比重方面，中共国2018年达16.54%，而世界2019年的平均值是25.60%，差距超过9个点。从图表可以发现，这个差距已经持续多年。
 
-辩护律师埃夫斯塔蒂奥在接受媒体采访时说，中共当局将引渡请求发送到塞浦路斯驻北京大使馆，塞浦路斯外交部长无暇授权法院所需的请求。没有授权，就不会有引渡。律师还证实这对母子是新中国联邦的成员，因政治观点歧义而受到中共政府的欺诈诬陷。众所周知，性别、宗教或政治信仰等，不能成为引渡的理由。因案子的政治复杂性，引渡程序将需要长达18个月时间。
+中共一贯喜欢以“国情特殊论”为自己开脱：中共国与高收入国家不能比；全世界数据太复杂，不能与世界平均相比。当选取中低收入国家的数据进行比较时，中共国在2018年仍然低了3个点，差距也是由来已久。
 
-外媒指出，新中国联邦是以美国为基地，推翻中国共产党为政治诉求的团体。这起引渡案，已获川普总统前顾问史蒂夫·班农先生高度关注，也获得了法治基金的鼎力支持与援助。
+面对这种状况，中共国百姓应该要问一声：钱都去哪了。
 
-参考链接：[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
+参考链接：
+
+1. [Projected GDP Ranking](https://statisticstimes.com/economy/projected-world-gdp-ranking.php)
+2. [Real GDP growth: PEOPLE’S REPUBLIC OF CHINA](https://www.imf.org/en/Countries/CHN)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
 编辑：Kathy文艺
-总编：文真
+总编：Zion文恩
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
