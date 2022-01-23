@@ -2,10 +2,10 @@
 ---
 
 
-## 因拒绝疫苗强制令，一加拿大卡车司机被停工停薪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1897525/)
+## 中共病毒对接受了3剂疫苗的受众影响最大
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1897527/)
 
-01/17/2022 因为拒绝执行疫苗强制令，一位加拿大卡车司机被公司停工停薪。美国和加拿大的疫苗强制令规定驾车穿越美加边境的卡车司机必须完全接种疫苗。
+01/13/2022 意大利国家卫生研究院的传染病主任Anna Teresa Palamara教授：中共病毒对接受了3剂疫苗的受众影响最大。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

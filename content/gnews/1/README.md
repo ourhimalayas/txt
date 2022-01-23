@@ -2,28 +2,24 @@
 ---
 
 
-## 提防中共的日本首部经济安保法框架公布
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897843/)
+## 七哥金句（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897965/)
 
-撰稿：东京樱花团/麗子
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/提防中共的日本首部经济安保法框架公布.png)[图片来源](https://mainichi.jp/articles/20220113/k00/00m/020/204000c)
+这个世界上不可能永远只有佛，这个世界上不可能 永远只有魔。佛魔永远会相并存在，此消彼长。
 
-政府将向国会提交的经济安全保障相关法案的大纲于23日公布。该法案建立了一个新的体系，根据该体系，能源、电信和其他基础设施企业引进设备系统，或将维护工作外包给其他供应商时，政府有权提前审查。同时还将建立一个体系，加强半导体等重要商品的国内制造基地，以强化供应链。
+但你的性格当中，每个人心中都有魔的一面，也有佛的一面。找到佛的一面，要有信仰，要相信万物世界是有主人的，要相信这一切不是偶然的，相信上天，太阳和月亮和银河系和地球之间，它是有规律的。当你相信这个的时候，你就记住，善恶是你一切的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2.jpg)
+发布： *tianzhihuan*
 
-该法案的暂定名称为《经济安全保障综合推进法案》。包括四大方面:1、加强供应链；2、确保关键基础设施的安全性和可靠性；3、先进重要技术的官民合作；4、专利申请的保密制度。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-中共病毒（新冠病毒Covid-19）暴露了依赖中共国供应药品等重要物资的危险。在基础设施方面，美国政府正在着手淘汰中共国制造的通信设备。鉴于此，在法案中，政府将明确需要稳定供应的重要物资，要求致力重点供应链的企业制定计划，政府将建立制度，支持新计划落实。
-
-官民技术合作方面，要求研究人员和相关机构顺利安全地共享信息，以防信息外流。此外，新发明内容的公开将受到限制，并明确政府将赔偿由此造成的损失。
-
-信息源:
-
-[インフラ機器導入に事前審査　対中念頭、経済安保法](https://news.yahoo.co.jp/articles/49e83a59e742041f2cbbb06043e0bd95f9933409)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
