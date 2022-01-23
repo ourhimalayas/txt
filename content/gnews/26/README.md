@@ -2,88 +2,66 @@
 ---
 
 
-## 全球疫情更新（官方报告的数据证明疫苗令疫情恶化）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897747/)
+## 7•24系列——中共梦断ASML高端光刻机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897767/)
 
-**整理/编辑：枳实**
+整理：雅典娜情报组
+编辑：MSGZ
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1827.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642935047238.jpg)图片来源：asia.nikkei.com
 
 
-雅典娜疫情更新（2022年 1月23日）
+**在最新一期的大直播中，郭文贵先生透露爆料革命在阻止荷兰ASML光刻机出口中共国方面所起到的关键作用。他称这是天意，在关键时刻由英国情报部门捕获了背叛爆料革命的叛徒获取了相关情报，并把这一情报分享给了荷兰方面……**
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+本文将介绍在芯片制造领域的重要地位，以及各方面在阻止ASML高端光刻机技术设备流入中共国的努力。
 
-**一，全球疫情基本数据**
+荷兰ASML公司中文名称为阿斯麦尔（中国大陆）、艾司摩尔（中国台湾）。
 
-感染总数：348,161,862（日新增3,128,314，14天增幅+35%）
+这是一家总部设在荷兰埃因霍芬（Eindhoven）的全球最大的半导体设备制造商之一，向全球复杂集成电路生产企业提供领先的综合性关键设备。ASML的股票分别在阿姆斯特丹及纽约上市。全球市场占有率75%。最高端市场（例如沉浸式光刻机），ASML大约占据80%的市场份额。
 
-死亡总数：5,589,066（日新增7,641人，14天增幅 +19%）
+ASML为半导体生产商提供光刻机及相关服务，TWINSCAN系列是世界上精度最高，生产效率最高，应用最为广泛的高端光刻机型。全球绝大多数半导体生产厂商，都向ASML采购TWINSCAN机型，比如英特尔（Intel）、三星（Samsung）、海力士（Hynix）、台积电（TSMC）、中芯国际（SMIC）等。
 
-**二，全球“疫苗”毒针统计数据**
+ASML在光刻机市场几乎占据垄断地位。该机器对制造先进的微处理器至关重要。这种独一无二的180吨的机器被英特尔、韩国的三星电子和苹果公司供应商台积电等公司所使用，制造各个领域——从尖端智能手机和5G蜂窝设备再到用于人工智能的计算机，所需的高端芯片。
 
-“疫苗”毒针注射总数：98.5亿
+ASML 的设备使用由激光产生，并通过巨型镜子聚焦的极紫外（EUV）光束，在硅片（被称为晶圆）上铺设非常狭窄的电路。这能让厂商制造更快、更强大的微处理器、内存芯片和其他先进元件；而这些元件不论是对消费类电子产，还是对军事应用来说都至关重要。
 
-完全“接种”：40.9亿人
+目前，只有少数几家公司有能力生产最复杂的芯片，包括美国的英特尔公司、韩国的三星电子和中国台湾的台积电。同时，中国已把提高芯片制造技术作为一项优先级很高的重要任务，并为此投入了数百亿美元的资金。
 
-完全“接种”百分比：52.4 %
+2022年1月19日，荷兰光刻机巨头阿斯麦（ASML）的首席执行官彼得·维尼克(Peter Wennink)表示，公司仍未获得许可，将其任何最先进的光刻机运往中国，这些机器是制造先进计算机芯片的必要设备。没有ASML的先进芯片机，中共难以在国内生产先进芯片。他称，中国可以去试，但不可能独立复制顶级光刻技术，因为ASML依靠的是“不懈的创新”以及整合来自非中国供应商提供的相关组件。他说，中国供应商无法提供这些组件。
 
-**三，澳洲疫情和“疫苗”数据**
+在美国政府的施压下，荷兰政府暂停向ASML发放出口先进光刻机的许可证，这些机器被认为是可用于军事目的的“双重用途”产品。据美国官员表示，拜登政府出于国家安全考虑，要求荷兰政府限制销售。这一立场是前总统川普（特朗普）政策的延续，川普政府首先确定了ASML光刻机的战略价值，并联络了荷兰官员。
 
-感染总数：2,197,108（今日新增48,981人）
+2020年5月，美国商务部修改“外国直接产品规则”（Foreign Direct Product Rule），规定在未获得美政府许可的情况下，禁止芯片制造商向华为出售使用美国技术和设备生产的芯片。这一禁令实际上几乎涵盖了全球所有高端芯片制造商，包括台积电在内。
 
-死亡总数：3,121人（今日新增 58人）
+《华尔街日报》在2021年7月的一篇报导中也披露了中共难以获得先进芯片机的问题。报导说，中共想要为国内芯片制造商提供价值1.5亿美元的机器，使得智能手机巨头华为和其它中国科技公司可以减少对外国供应商的依赖。但ASML因为没有从荷兰政府获得许可证，连一台机器也没有提供。
 
-每万人感染人数：851.8891人
+彭博社也表示，如果华为旗下的海思半导体打算在中国国内建立一个不含美国设备和技术的芯片加工厂，那是白日做梦，因为它需要荷兰的ASML公司生产的极紫外光刻机，这是下一代芯片制造的先决条件。然而，ASML公司的机器也使用了美国的技术。
 
-“疫苗”毒针注射总数：47,934,083 （日新增191,876 针）
+川普政府时期，时任副国家安全顾问查尔斯‧库珀曼（Charles Kupperman）曾向荷兰官员明确，如果没有美国的零部件，ASML的机器就无法工作，而白宫有权限制向荷兰出口这些零部件。
 
-完全“接种”：19,164,031人
+据路透社也曾报道过，川普政府为了“阻止荷兰向中国出售芯片制造技术”，暗中进行了大量工作。2019 年 6 月，时任国务卿迈克 · 蓬佩奥（Mike Pompeo）曾直接游说荷兰首相马克 · 吕特（Mark Rutte）阻止光刻机出口中国。此外，美国官员也多次在不同场合向荷兰政府官员施压。
 
-第二针“接种”百分比：78.2%
+而此前并没有关于美国政府高层动作的消息被披露出来，此次内容也展示了白宫对阻止中国获得制造世界上最快微处理器所需要的机器的重视程度，并暴露了美国政府单方面在极力阻止先进技术流入中国的 “良苦” 用心。
 
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+美国的“阻止运动” 开始于 2018 年，也正是在这一年，荷兰政府向 ASML 发放了出口许可证，允许其向一家中国公司出口一台价值为 1.5 亿美元的 EUV 光刻机。
 
-16岁以上人口接种至少两剂疫苗的比例：92.9%
+美国为了阻止ASML向中国出口光刻机对荷兰进行多次施压，至少历经了至少四轮谈判。
 
-**四，疫情新闻摘要**
+2019 年 7 月 18 日，白宫方面的努力达到了高潮。当时，美国总统国家安全事务代理助理查尔斯 · 库珀曼（Charles Kupperman）给到访华盛顿的荷兰首相马克 · 吕特一份秘密情报，报告中大谈“中国获得光刻机的可能后果”。这似乎收到了成效，在马克 · 吕特访问过白宫不久之后，荷兰政府选择不续签 ASML 的出口许可。
 
-[英国企业拒绝强制员工接种疫苗。](https://www.theguardian.com/law/2022/jan/22/uk-firms-weigh-risks-of-forcing-their-staff-to-get-coronavirus-jabs)
+ASML 公司从未披露过中国客户的身份，但据不同媒体报道，该客户是世界领先的集成电路芯片代工企业之一，也是中国内地规模最大、技术最先进的集成电路芯片制造企业——中芯国际（SMIC）。但对此，中芯国际没有进行任何表态。
 
-在英国，大多数私营企业都对强制员工接种疫苗持否定态度。就业律师和工会警告称，要求员工接种疫苗的企业——所谓的“不打针，不工作”政策——是一个道德雷区，在法律上也存在争议。只有例如Next、Ikea 和 Ocado 等公司高高在上，他们改變了他們的公司疾病政策，削减了未接种疫苗工人的病假工资。儘管如此，絕大多數英國雇主已經表明他們不願意在員工中強制接種疫苗。
+中共最终无法获得ASML 公司相关的光刻机设备，彻底阻断了中共在高端芯片制造领域达成国产替代，技术自主可控的幻想。也进一步扼杀了中共妄图在军事工业领域扩张的野心。
 
-[著名橄榄球队主力前鋒傑克達林成为西澳第一个拒絕接種中共病毒疫苗的球员。](https://thewest.com.au/sport/west-coast-eagles/west-coast-eagles-forward-jack-darling-barred-from-club-after-refusing-covid-19-vaccination-c-5390801)
+*素材搜集：WEI*
+*发布：tianzhihuan*
 
-以亲共著称，谨慎避免批评中共在香港和新疆的暴行的西澳州长麥高恩评论说，“為此放棄你的足球生涯，我認為這不是一個明智的決定”。 卡尔顿的利亚姆·琼斯（Liam Jones）在选择不接种疫苗后退役，北墨尔本的杰德·安德森也没有在阿登街训练。
-
-**五.数据分析**
-
-今天继续介绍[《疫情编年史》](https://eugyppius.substack.com/)的这[篇文章](https://eugyppius.substack.com/p/unboostered-brits-infected-and-dying)的精彩部分。下面这个图表来源于[蘇格蘭公共衛生部的數據](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)。zhe
-![](https://assets.gnews.org/wp-content/uploads/2022/01/N1RUBM18AATFK0YVPE1F.png)
-这个图表显示了苏格兰公共卫生部的数据中去年12月和今年1月的两个星期中的病例中未接种疫苗（绿色），一剂疫苗（黄色），两剂疫苗（橙色），三剂疫苗（红色）的每十万人口的感染病例数字。从这个图表看出，这四个星期，无论疫情如何，未注射疫苗的病例数都更低，病例数最高的就是注射2针的人群。
-
-这个图表简直就是在嘲笑这些所谓的疫苗，越打病例数越多。这个数据也与[我们之前提到](https://gnews.org/zh-hans/1817504/)的[丹麦研究](https://t.co/A8gp5cTnYR)相符合：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/252Y6_KZXXP0RXU5P.png)
-也就是说，英国，爱尔兰，丹麦的数据都表明，在奥米克戎毒株面前，接种疫苗反而导致人们更容易感染。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
