@@ -2,26 +2,48 @@
 ---
 
 
-## Omicron浪潮让美国食物银行出现志愿者用工荒
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1899293/)
+## 新中国联邦成员在塞浦路斯获保释
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899318/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/012102-1.jpg)网络图片
-全美各地的食物银行都面临着志愿者的严重短缺，因为 Omicron 变异病毒的肆虐使许多工作人员都停止了通常的轮班，而定期提供大量志愿者的公司和学校机构则因为担心病毒而取消了合作。
+撰稿：西枫westca
 
-在许多情况下，用工短缺会导致食物银行的支出大幅增加，同时它们已经因通货膨胀和供应链问题而面临更高的食品成本。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-36-1.jpg)图片来源：worldakkam
+据塞浦路斯KNEWS1月23日报道， 一对来自中共国的母子因中共指控其投资欺诈被通缉，在塞浦路斯面临引渡。帕福斯的法官以起诉文件延误为由允许保释他们。
 
-“食物银行一般依靠志愿者运行——这就是我们保持低成本的方式，”北阿拉巴马州食物银行的首席执行官雪莉·斯科菲尔德说，“虽然这项工作仍然可以由雇佣工人完成，但费用要高得多。”
+周五，帕福斯的一名法官下令休庭，以便检察官有更多时间完成所有必要的文书工作。这两名在塞浦路斯的中国公民以每人25000欧元保释金获释。
 
-在这样的情况下，许多食物银行今年选择取消他们部分供给计划，或者相比大流行之前发放更少的供给份额。在佛罗里达州的塔拉哈西，由于所有志愿者都退出了，因此在假期举行的志愿者活动计划被突然取消。
+详细情况尚未立即公布，但媒体报道指出，塞浦路斯外交部长没有及时签署检察官的文件，使之无法在法庭呈现。
 
-斯科菲尔德称，她在阿拉巴马州亨茨维尔的食品银行的高管们正在讨论是否要减少移动食品储藏室的分发活动，因为他们根本没有足够的志愿者包装食品盒来分发。
+**“未经授权，不得引渡”**
 
-虽然部分地区的志愿者数量并未受到特别大的影响，但有好几家食物银行都报告了类似的情况：2021 年大部分时间志愿者人数一直处于较低水平，然后在去年秋天到 11 月和 12 月激增，最终在 1 月份出现断崖式下跌。
+引述辩护律师的话说”只有在部长批准引渡请求后，才能开始引渡程序，”，这表明法院所需的文书工作未得到授权。
 
-新闻参考链接：[Omicron wave leaves US food banks scrambling for volunteers](https://apnews.com/article/business-lifestyle-alabama-d4623b478d6c293850343557afd7f559)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+据该案的辩护律师称，塞浦路斯的外交部长没有时间授权引渡文件，同时指出该文件已被中国当局送往塞浦路斯驻北京大使馆。
 
+这对母子在获释前正在尼科西亚的监狱中等待引渡听证会，他们于12月初在佩亚被拘留，罪名是与中国正在调查的金融犯罪有关的投资欺诈，据说这些犯罪发生在2013年3月至2014年3月之间。
+
+但引渡案超出了文书工作和程序的范围，因为塞浦路斯发现自己处于一场涉及中国和美国利益的政治性引渡战中。
+
+本月早些时候，塞浦路斯政府收到了一封来自一个美国组织的信函，寻求 “保护对中国的腐败和非法活动大声疾呼的个人“。称对母子俩的指控是”出于政治动机”。该组织与富裕的中国流亡者郭文贵和曾担任川普总统前顾问的对华鹰派人士史蒂夫·班农有关联。
+
+已离开该组织的班农于2020年8月在郭文贵的游艇上被捕，引发了对欺诈调查的质疑，并进一步呈现了围绕这位2014年逃离中国的房地产大亨所拥有的非营利组织的神秘色彩。
+
+这对母子均为新联邦中国的成员，该运动旨在推翻中国政府。
+
+下一次听证会将于2月3日进行。
+
+**新闻来源：**
+
+[Cypriot judge bails Chinese duo on technicality , KNEWS](https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality)
+
+[多家媒体报道塞浦路斯法院释放新中国联邦成员](https://gnews.org/zh-hans/1893669/)
+
+[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
+
+[Cyprus extradition twist for Chinese pair](https://www.financialmirror.com/2022/01/21/cyprus-extradition-twist-for-chinese-pair/)
+
+[Cyprus Handover Twist for Chinese Pairs](https://worldakkam.com/cyprus-handover-twist-for-chinese-pairs/664344/amp/)
 
  
 
