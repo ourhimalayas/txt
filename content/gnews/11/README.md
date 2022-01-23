@@ -2,32 +2,46 @@
 ---
 
 
-## 共产党成公敌，冬奥会遭抵制
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1898142/)
+## 达沃斯天津会场是达沃斯党恋童抽人血打血清的犯罪专场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898219/)
 
-作者：波士顿五月花 老枪6
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220123.jpg)
-在中共国疫情到处蔓延的情况下，中共为了办冬奥会，向世界展示一下自己所谓的抗疫措施，不顾一切地把本国的老百姓当作了牺牲品。
+G-TV视频链接：[https://gtv.org/video/id=61ecf19687664c47acd8ad80](https://gtv.org/video/id=61ecf19687664c47acd8ad80)
 
-我们看到，西安、天津、河南等城市采取了最严密的封城、封户。各种公共设施停摆，当地的百姓被封城弄得苦不堪言、怨声载道。更有甚者，很多人是有病无处求医，家中断药断粮，死活沒人管。有人为了活命出外买点食物却遭到管控人员的殴打和抓捕；待产孕妇不让进医院而当街流产等等，这就是共产党对待人民的态度。
+**郭文贵先生**：达沃斯论坛在天津的时候，搞内场的时候，当时安全部的人抽出来四五百人在现场，提前采取、提前安装、提前设计所有的视频，包括取样儿。
 
-当党需要你的时候，好话说尽，说什么社会主义人民地位高，人民才是国家的主人；当党不需要你的时候，人民就是多余的，而且转眼就成了共产党的包袱，哪有什么地位，连猪狗都不如！
+你知道，你们现在再回头看看天津当年那个达沃斯论坛会的时候，从西藏、新疆、云南选出来所谓的叫达沃斯论坛艺术表演团，你看看有多少小姑娘？包括多少孩子参加？你们现在回去看，不要听我胡说八道，你们自己去查去。
 
-共产党牺牲人民的时候毫不犹豫，但绝对不可以损害到党的利益。中共为了这次冬奥会，假借疫情为由，不断加大管控人民的力度。它们不择手段，让人民在痛苦中挣扎；它们无视人民的死活，就是为了保住其虚伪而丑陋的“面子”。
+其中在现场有就咱们当时的安全部、政法委的人，他说七哥，这哪是开达沃斯论坛？这帮孙子来，就是来玩小孩来了。他说更夸张的事情，血液，他说我突然发现现在有大量的血液充实血库，以备不（时之）需。血液里面只有中国人我相信，现在还提取血清，给这些人都要打上血清。你见过在哪开会都打盹儿，这帮老王八蛋，你见过在天津有打盹儿的吗？你回头看看去，这是多少年的事了？
 
-往往人算不如天算。共产党越是这样疯狂，越是天怒人怨。现在已经临近冬奥会，世界上许多国家和运动员都明确表示不来参加，这等于往中共的脸上重重地扇了一巴掌。
+你看看天津当时建造的那些酒店，你问问那些酒店有一个老百姓让你住的吗当时？一个人都占一层。一共是千把人来了，你用得着上万个房间的酒店全给清空吗？一个城全清空吗？那干啥呢？当今天再看达沃斯论坛，刚才战友整得特别好，过去这些年的时候。过去这些年就是它的犯罪的证据。
 
-笔者认为，这次世界大面积抵制北京冬奥会，使得中共在全世界人民面前颜面尽失，狠狠地打击了中共的嚣张气焰。从另一方面我们可以看到，世界上越来越多爱好和平正义的人开始厌恶共产党，与中共划清界限。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-本次冬奥会是中共在外交上的一次重大失败，中共只能自己吞下这个恶果。不参加北京冬奥会，抵制北京冬奥会，是许多国家和运动员非常明智的选择。同时也能证明，共产党已经成为全世界人民的公敌，即将被扫进历史的垃圾堆，而这一切都是天意！
+编辑整理：Jacques；
 
-* * *
+字幕文件制作：小满；
 
-*编辑：跟随战神*
+视频制作及上传：Cindy；
 
-*封面：霹雳鼠年*
+G-News发布：小满；
 
-*发布：吐纳*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

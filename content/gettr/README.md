@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@thepotomacview 1/23/2022 4:09 AM (UTC)`
+
+⚠️ Nazi’s propaganda turned countless ordinary people into murderers of 6 million Jews. <br/>⚠️ Check out 1️⃣ part of the real conspiracy behind the fake news that puts millions of Chinese lives into jeopardy. <br/>#ViceIsViolence #ViceNewsIsVice #CancelVice #CancelHBO
+![img](https://media.gettr.com/group4/getter/2022/01/23/04/03912a31-2eea-bc3f-d27b-382f3688bdc0/out.jpg)
+
+---
+
 `@miles 1/23/2022 3:56 AM (UTC)`
 
 1/21/2022 Miles Guo: My personal experiences reflect the world’s antipathy towards the Chinese diasporas instigated by the CCP. So, we must work diligently to spread the truth provided by the Whistleblowers’ Movement, and this is our sacred mission! The "sheep culture" that renders the Chinese people indifferent, selfish, and cowardly is the biggest challenge to the New Federal State of China!<br/><br/>1/21/2022 文贵直播：文贵的亲身经历反映出中共让全世界对海外华人产生的反感，因此我们要更加勤奋地传播爆料革命真相，这是我们神圣的使命！让中国人麻木、自私、懦弱的“羊文化”是新中国联邦最大的难题！<br/><br/>
@@ -153,12 +162,6 @@ EP6: The Truth. Let's tear down the monstrous lies of this despicable #HBO #VICE
 `@miles 1/22/2022 12:15 AM (UTC)`
 
 January 21st,2022 Through these media reports, the days when the swamp enslaves the 1.4 billion Chinese people and the people of the world under the financial licenses of the legitimate gangsters are about to be gone for good. What I want is not the $500 million. What we have lost is more than tens of billions of dollars, and the damage it has done to us is immeasurable in terms of money! This lawsuit will show the ugly faces of the swamp to the public. Let’s wait and see!!! Whether it's the CCP, the Party of Davos, or the swamp, all of them are a bunch of financial devils enslaving the people of the world! We must change the rules of the game!✊✊✊🔥🔥🔥<br/><br/>https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending
-
----
-
-`@miles 1/22/2022 12:09 AM (UTC)`
-
-1月21日，通过这些媒体报道，沼泽地这些打着合法黑社会金融牌照奴役14亿中国人民，奴役世界人民的日子即将一去不复返。郭文贵想要的不是5亿美元，我们损失的是几十亿美元也不止，它给我们造成的损失是用金钱无法估量的！这个案子将会把沼泽地的丑陋面孔昭示在人们面前，咱们走着看！！！无论是共产党，还是达沃斯党，沼泽地，都是一帮奴役世界人民的金融魔鬼！我们必须改变游戏规则！✊✊✊🔥🔥🔥<br/><br/>【瑞士媒体报道：企业家、白手起家的亿万富翁、政权的批评者，现在是索赔总额达数亿美元的原告：这一切都是郭文贵——现在对瑞银来说简直是一场噩梦。据彭博社报道，郭想从瑞银那里拿回5亿美元的巨款。】<br/><br/>https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending
 
 ---
 

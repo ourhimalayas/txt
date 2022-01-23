@@ -2,32 +2,40 @@
 ---
 
 
-## 参议员兰德・保罗： 强迫儿童接种疫苗是医疗渎职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1898191/)
+## 数据显示，盖特在周六晚收视率盖过CNN
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898251/)
 
-翻译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/01/微信截图_20220123211637.png)
-独立新闻媒体 信息战（Infowars.com）1月22日报道。
+撰稿：纽约香草山农场 – Delilah小胖
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-3.png)
+1月20日，盖特援引尼尔森媒体研究公司的最新数据称，盖特在上周六晚间黄金时段的收视率碾压了CNN。当时盖特的三家直播账户最高有近100万观众，在线观看了美国前总统川普在亚利桑那州的集会活动。这一数字，令同时段CNN有线新闻网新闻和电影节目所吸引的70.5万人显得黯然失色。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1866.png)
+盖特首席执行官杰森·米勒说：“这些数字应该给大科技公司和大媒体公司敲响警钟：你们的受众正成群结队地离开你们，去寻找一个支持言论自由和可以获取有价值信息的平台。”
 
-共和党参议员兰德・保罗（肯塔基州）警告说，由于疫苗在该年龄段的健康风险，强制要求儿童注射COVID（中共病毒）疫苗可能导致大规模的意外后果。
+盖特2021年度全球用户奖项评选中——中共最大噩梦奖项的获奖者郭文贵先生，在其1月21日的盖特大直播中表示，未来盖特对于用户而言，更有“使用即获得金钱”的价值。
 
-保罗周五在“英格拉姆角（Ingraham Angle）”节目中说：“我认为强迫儿童尤其是青少年接种疫苗是医疗渎职。”
-保罗指出，自该疫苗推出以来，青少年男性的严重心血管不良反应已有大量记录。
 
-“我们现在有科学证据表明，打疫苗给年轻男性患心肌炎的风险已经大于疾病了，”保罗解释说。“我们还知道，这种疾病–死亡率更接近于百万分之一。我们还知道，你接种的疫苗越多，心肌炎的风险就越高。因此，90%的心肌炎是在第二次接种疫苗时发生的。当给他们注射第三次疫苗时，你认为会发生什么？”
 
-这位肯塔基州的参议员随后警告说，如果政府和学术机构继续强迫年轻人接种疫苗，就会给自己带来法律问题。
+新闻链接:
 
-“我认为像芝加哥、普林斯顿、耶鲁这样的大学，如果强制要求年轻男性接种第三次疫苗，我认为他们将承担法律责任，如果这些男孩，这些年轻男女得了心肌炎，并且死了，上帝保佑，千万别。他们将承担法律责任，因为他们违背了科学，”保罗补充说。
+[GETTR Dominates CNN in Saturday Night Ratings](https://about.gettr.com/press/gettr-dominates-cnn-in-saturday-night-ratings)
 
-“但是就有这样的左翼学者，他们把头埋在沙子里，就这样了。福奇博士希望我们这样做，（认为）我们应该这样做。他们没有考虑到这一点，但他们会因为强行给孩子注射这种疫苗而承担重大责任。”
+[2021 Annual Worldwide Getties](https://gettr.com/post/plouyne846)
 
-在保罗发出警告的同时，美国国家过敏和传染病研究所（NIAID）主任安东尼・福奇最近表示，他希望FDA（美国食品和药物管理局）很快就会授权5岁以下的儿童注射这种疫苗，并补充说他们将接受三剂注射。
 
-尽管FDA很快就授权幼儿注射这种实验性针剂，但COVID疫苗制造商辉瑞公司承认，研究5-12岁儿童接种疫苗的心肌炎风险大约需要5年时间。
 
-新闻来源：https://www.infowars.com/posts/sen-rand-paul-its-medical-malpractice-to-force-vaccines-on-children/
+总编: 飞虹
 
+编辑: DM
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

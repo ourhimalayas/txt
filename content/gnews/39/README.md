@@ -2,26 +2,42 @@
 ---
 
 
-## 日本政府将启动一项免费“数字化”教育计划促再就业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897581/)
+## 美参议院提出对中共入侵台湾实施全面经济金融制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897760/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh3.googleusercontent.com/s47lO_p6lvk7wpS9047V9dyKgRWqP3EnncDHARQtBlKXlheFGZyNKPJyQjbYYXhhHLVd-zbjo-K2HPbtFFE67shH1tkLGs1UCAeCTLYo6NRzlUrSsOVC4JHfDeXXd75w5qM-Y10F)[*图片来源*](https://www.gmosign.com/media/wp-content/themes/agree/thumb.php?src=https://www.gmosign.com/media/wp-content/uploads/2020/08/20200807-a-03.jpg&amp;w=1200)
-1月23日据日本媒体报道，从2022年度开始，政府将为受中共病毒蔓延影响的非正式员工和失业人员启动一项教育计划，帮助他们获得数字领域的知识和技能。岸田内阁将“数字化”作为其增长战略的一个支柱，其目的是发展人力资源。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据厚生劳动省称，因中共病毒影响而被解雇或停职的员工总数超过12万（包括将要失业人员）。 政府希望与当地企业和劳动人事局合作，支持这批人员掌握数字技术，为其就业或转职提供支援。
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-该计划将主要在全国大学和职业学校设置25处培训机构，预计约有750人参与。将免费提供信息安全知识和编程基础，并模拟在当地公司的工作场景。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642934422283.jpg)图片来源：雅典娜设计组
 
-此外，为了对在职员工进行再教育，政府将启动一项计划帮助他们学习更多实用技术，如大数据分析、人工智能（AI）的深度学习以及“物联网”技术，并将在全国高校选择设置约10个基地。政府的目标是从2023年度起将这些项目扩展到全国高校及职业学校。
 
-授之以鱼不如授之以渔。中共病毒持续蔓延，比起给各企业与个人支付各种补贴外，提供适应后疫情时代发展的实用课程显得更加意义重大，从长期看更有助于维持社会稳定、促进经济发展。
+据美国之音报道：美国参议院军事委员会成员丹·沙利文1月21日提出“2022年与台湾站在一起”(S.T.A.N.D. with Taiwan Act)法案。
 
-信息来源：[**「コロナ失業」の労働者にデジタル教育、受講無料…就職・転職を後押し**](https://news.yahoo.co.jp/articles/ae2cb1fbf4d99a61fd18245cec19679a3247bd67)
+法案将在“人民解放军或其代理人”启动对台湾的军事侵略时，采取“后果严重及全面性的经济和金融制裁”，包括对中国共产党成员及产业界的制裁，以及禁止美国金融机构，包含投资公司、私人资本公司、风险资金公司和避险基金投资于任何与中国共产党有联系的中国实体。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+法案也将禁止进口包括开采、制造，全部及部分在中国生产的特定产品。
+
+沙利文表示，他提出的法案旨在对习近平表明，军事侵略台湾的代价是什么。
+
+他说，中国共产党完全知道它想在全世界达成的目标：让全世界对它的威权政府更安全、向其他国家输出它的独裁模式。
+
+法案条文还提到，如果人民解放军发动对台湾的军事侵略，那将中断地区和平稳定并威胁全球和平稳定、破坏美国核心政治、安全及经济利益，作为对台湾军事侵略的重要威慑措施，中国共产党必须理解到，发动这种侵略将导致毁灭性的经济和金融后果。
+
+参考链接：
+
+[https://www.voachinese.com/a/senator-sullivan-introduces-bill-to-sanction-china-if-it-invades-taiwan-20220121/6407564.html](https://www.voachinese.com/a/senator-sullivan-introduces-bill-to-sanction-china-if-it-invades-taiwan-20220121/6407564.html)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

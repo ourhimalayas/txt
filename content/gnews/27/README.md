@@ -2,69 +2,51 @@
 ---
 
 
-## 瑞士奥运短跑运动员注射辉瑞疫苗后患心包炎
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1897972/)
+## 七哥过去很多次戴七哥特有红色领带配西服都有重大意义
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898085/)
 
-编译： Jenny Ball
+G-TV视频链接：[https://gtv.org/video/id=61ecf02487664c47acd8acdc](https://gtv.org/video/id=61ecf02487664c47acd8acdc)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1870.png)图片来源：childrenshealthdefense.org
+**郭文贵先生**：今天这个我是新的一条领带和这个西装配的，看到没有。全新的，连衬衣都是新的。为什么今天要配上这个红呢，红的系列呢，大家记得我过去曾经穿过很多次类似于七哥这独特的红，配的各种西装，都有重大意义。所以说国内的有战友给我发信息，七哥，我要收藏一套你穿红的锁边儿还有红领带的那套东西。愿意用几头猪来换你那套西装，战友们把我给笑坏了。
 
-美国CDC今天发布的新数据显示，在 2020 年 12 月 14 日至 2022 年 1 月 14 日期间，共有 1,053,830 份 COVID 疫苗后的不良事件报告提交VAERS。VAERS 是美国政府资助的主要用于报告疫苗不良反应的系统。
+我说你的猪继续留着，把猪蹄存好，七哥去吃。西装可以给你，我就送给他一套。结果这个战友穿上西装给我发回照片，这都是一年前的事儿了，让我很惊讶。这个战友支持爆料革命几年，竟然是我一个老友。
 
-数据显示，在同一时间段内，共有 22,193 起死亡报告——比前一周增加了 448 起——和 174,864 起包括死亡在内的重伤报告——比前一周增加了 4,418 起。
+所以爆料革命当中，我们的神秘，和我们战友们储存的各种力量，以及我们战友所创造的各种的事迹。就像上次大直播当中，我推出我的儿时的照片，我当时照这照片的时候绝对不会想到，在今年将近四十三年以后，这个在一个全世界几千万人在电视上播出，几亿人要看。
 
-排除 VAERS 的“外国报告”，2020 年 12 月 14 日至 2022 年 1 月 14 日期间，美国报告了 732,883 起不良事件，包括 10,162 人死亡和 66,059 人重伤。
+那么生活中你和每个人相处，和你的先生和你的姐妹兄弟，还有你的爱人，你不会想到你今天做的事情未来几十年会发生什么，甚至几年。所以珍惜当下，明天你根本不知道发生什么，昨天以前发生的事情你根本无法挽回。
 
-外国报告是外国子公司向美国疫苗制造商发送的报告。根据美国FDA的规定，如果制造商收到一份外国病例报告，该报告描述的事件既严重又未出现在产品标签上，则制造商必须向 VAERS 提交报告。
+今天就是你的一切，人生只有一天。我们那位战友穿到这套西装以后，照照片说：“七哥，几十年前，我与你相遇，我支持你爆料革命，我知道你说的都是真的。”他是我曾经在清丰看守所的一位狱友，安阳人，出来以后创业。
 
-截至 1 月 14 日，美国报告的 10,162 例死亡病例中，**19% ****发生在接种疫苗后 ****24 ****小时内，****24% ****发生在接种疫苗后 ****48 ****小时内，****61% ****发生在接种疫苗后 ****48 ****小时内出现症状的人中。**
+所以今天我专门儿穿上类似这套衣服，让这位战友，我知道他在镜头前，我让他看到。七哥有几套这样的衣服，多套这样的衣服，我希望能多一些像这位狱友一样，能走出来站出来，最后能跟七哥一起来追求一个人类上最伟大的事业——灭掉邪恶的共产党。
 
-截至 1 月 14 日，美国已接种 5.252 亿剂 COVID 疫苗，其中包括 3.07 亿剂辉瑞(Pfizer)、2 亿剂莫德纳(Moderna)和 1800 万剂强生（J&J）。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1872.png)图片来源：childrenshealthdefense.org
+编辑整理：Jacques；
 
-每周五，VAERS 都会发布在指定日期收到的疫苗伤害报告。提交给 VAERS 的报告需要进一步调查才能确认因果关系。从历史上看，VAERS 仅报告了实际疫苗不良事件的 1%。
+字幕文件制作：小满；
 
-美国 VAERS 数据从 2020 年 12 月 14 日到 2022 年 1 月 14 日，针对 5 至 11 岁儿童的数据显示：
+视频制作及上传：Cindy；
 
-6,722 起不良事件，包括 147 起严重事件和 3 起死亡报告。
+G-News发布：小满；
 
-最近的死亡事件涉及来自明尼苏达州的一名 7 岁女孩（VAERS I.D. 1975356），她在接种第一剂辉瑞 COVID 疫苗 11 天后被母亲发现没有反应而死亡。尸检正在进行中。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-美国 VAERS 数据从 2020 年 12 月 14 日到 2022 年 1 月 14 日，针对 12 至 17 岁的儿童显示：
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-27,205 起不良事件，包括 1,559 起严重事件和 35 起报告死亡事件。最近的死亡事件涉及一名来自明尼苏达州的 15 岁女孩（VAERS ID 1974744），她在接受第二剂辉瑞的注射剂后 177 天死亡。尸检正在进行中。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-截至 1 月 14 日，4,879 名孕妇报告了与 COVID 疫苗相关的不良事件，其中包括 1,560 例流产或早产报告。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-CDC 数据显示，全国 18 至 49 岁的超额死亡人数增加了 40%
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-CDC 的死亡证明数据显示，在截至 2021 年 10 月的 12 个月期间，18 至 49 岁的美国人的超额死亡人数与大流行前的 2018 年至 2019 年同期相比增加了 40% 以上。新冠病毒仅造成约 42% 的死亡。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
 
-超额死亡被定义为在特定时间范围内观察到的死亡人数，与同一时期内预期的死亡人数之间的差异。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-同一 12 个月期间的州级数据也显示出增长。例如，在内华达州，超额死亡人数高达 65%，而 COVID 仅占 36%。哥伦比亚特区的人数增加了 72%，而新冠病毒并不是造成任何死亡的因素。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-瑞士奥运短跑运动员在辉瑞的 COVID 加强剂后患上心包炎
+GTV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-在 1 月 17 日的社交媒体帖子中，瑞士奥运短跑选手莎拉·阿乔（Sarah Atcho）表示，她在接受辉瑞加强注射后出现心包炎。
-
-12 月 22 日，阿乔接受了加强剂，因为她“不想在赛季开始时为此麻烦”，并被告知辉瑞（即使她第一次注射莫德纳）更安全，以避免心脏副作用。
-
-12 月 27 日，阿乔说她开始感到胸闷，走路时感到头晕。一位心脏病专家诊断阿乔患有心包炎——心脏周围的薄膜发炎。
-
-阿乔在几个星期内不允许让她的心率加快，以让她的心脏休息并从炎症中恢复过来。她说她很沮丧，没有人谈论年轻和健康的人在接种 COVID 疫苗后所经历的“严重副作用”。
-
-**评论：媒体在这次mRNA刺突蛋白药物实施的人类大屠杀中， 充当着掩盖真相、传播谎言的宣传作用，是大屠杀的最大帮凶。**
-
-素材链接：[childrenshealthdefense.org] [Swiss Olympic Sprinter Gets Pericarditis After Pfizer Booster, 22,193 Deaths After COVID Shots Reported to CDC](https://childrenshealthdefense.org/defender/vaers-cdc-olympic-sprinter-pericarditis-pfizer-booster/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=f60c7a7b-b140-4120-95aa-6351ebe741c0)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

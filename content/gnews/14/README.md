@@ -2,12 +2,10 @@
 ---
 
 
-## 中共是全世界最大的邪教组织
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1898111/)
+## 新中国联邦救中国
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1898194/)
 
-**视频制作：雨人**
-
-
+台灣寶島農場
 
  
 
