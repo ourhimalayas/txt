@@ -2,39 +2,95 @@
 ---
 
 
-## 专家：现在不是儿童强制接种疫苗的时候
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1899562/)
+## 加拿大通胀爆表！”小土豆”抱薪救火
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1899637/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mpx-doc-talk-vaccines.jpg)图片来源：CBC
-根据《CBC新闻》1月23报道，在加拿大5至11岁的儿童中，只有不到一半的人接种了第一针COVID-19疫苗，但加拿大专家说，现在不是强制面授学生接种疫苗时候。
+**加拿大温哥华扬帆农场路仁**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_0408.png)
+据[加拿大国家广播电台CBC报道](https://www.cbc.ca/news/business/inflation-canada-1.6320085)，根据加拿大统计局1月19日发布的统计报告，2021年12月份的年通货膨胀率攀升至4.8%，使得加拿大总体通货膨胀率达到自1991年来30年最高点。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D3A29E3D-6C45-4806-9FBA-C1404D7BB1C2.jpeg)
+其中，副食品价格同比上涨 5.7%——这是十年来的最大涨幅。以及住房价格，与 2020 年 12 月相比上涨 9.3% 。是推动消费价格指数增长的最主要的因素。于此同时，家用电器价格也同比上涨了8.9%，是自 1982 年 6 月以来的最大年度涨幅。这也导致了装修房屋及房价更加昂贵。
 
-公共卫生研究员德文-格雷森（Devon Greyson）说：”对于那些没有疫苗强制政策的省份来说，围绕疫苗接种的情绪非常高涨，在谈论疫苗强制是一种危险的行为”。
+尽管由于公共卫生限制令需求受到抑制，燃油价格环比下降，但 12 月汽油价格仍同比上涨 33.3%。12 月份价格的同比变化超过了同期工资的增长。加拿大统计局表示，从 2020 年 12 月到上个月，工资上涨了 2.6%，这意味着加拿大人的购买力下降了。
 
-格雷森说，事实上，在一些司法管辖区，疫苗强制弊大于利，这将一些人推离了疫苗接种。
+加拿大总理特鲁多（Trudeau的普通话谐音和“土豆”相似，人们呢称其：“小土豆”）在周三的发布会上，把通胀爆表的原因归咎于开始于2020年初的中共病毒大流行和全球范围内的供应链中断。
 
-加拿大没有省或地区政府宣布在学校强制接种COVID-19疫苗的计划，但安大略省和新不伦瑞克省等管辖区已经要求进入公立学校系统的学生接种预防某种疾病的疫苗。
+当然，通胀爆表和购买力下降这些并不是”小土豆”关心的重点。”小土豆”关心的是，如何把他购买给加拿大人的4亿剂疫苗给推销下去。在世界上众多国家，已经开始逐步取消疫苗强制令，放松封锁限制的时刻。”小土豆”却把他的独裁“手腕“伸向了加拿大的卡车司机。就如同医护工作者，在2020年，当所有人称赞他们是加拿大的“英雄”的时候，然而到了2021年，他们中又有多少人因为不愿意注射实验性的疫苗而被强迫离职。
 
-2020年提出了加强新不伦瑞克省学童强制性疫苗接种规则的立法，但被否决了。
+而自2020年疫情爆发以来，卡车司机们，作为最必不可少的工作者之一，一直默默无闻的奔波在为了加拿大人提供生活保障的前沿战线上。他们不像医护工作者需要每天接触大量的人。他们背井离家、风餐露宿，很少与人接触。但正是他们的辛勤劳作，才得以保障在两年多的疫情封锁下加拿大人没有经历物资匮乏的困境。
 
-为不愿接种疫苗的父母提供咨询的儿科传染病专家科拉-康斯坦丁斯库博士说，随着5至11岁儿童的疫苗接种率降低，以及儿童重返课堂，她希望儿童尽快接种疫苗，但并不要求进行强制。
+早在去年12月15日，”小土豆”就禁止了未接种疫苗的乘坐飞机和火车以及邮轮等交通工具。然而，加拿大还是未能逃过和世界同步达到最新一波疫情高峰。所谓的疫苗及疫苗强制令在现实面前根本就是一个笑话。而”小土豆”此番的“神操作”势必更加加剧副食品价格等进一步飙升，令在疫情中饱受困苦的加拿大人“雪上加霜”。
 
-根据加拿大公共卫生局的数据，大约5%的5至11岁儿童已经完全接种疫苗。总理贾斯汀-特鲁多（Justin Trudeau）周三对疫苗接种率低表示担忧，称“这使社会上最脆弱的人面临更大的风险”。
+然而，这些勇敢的有血性的卡车司机们，并不愿意屈服于这个独裁的行政命令。 此时此刻，成千的卡车正在开往加拿大首都渥太华，卡车司机们要组织一个“自由车队2022”（FREEDOM CONVEY 2022）的大型抗议活动来抗议”小土豆”政府的独裁强制令。
 
-与此同时，在美国，纽约市现在要求学生在参加课外活动之前必须接种疫苗。加利福尼亚州已经对学生有严格的疫苗要求，正在酝酿将COVID-19疫苗加入该清单。
+就连左派报纸《国家邮报》也发文称：[现在可能不是加拿大与卡车司机打架的最佳时机。](https://nationalpost.com/news/canada/first-reading-probably-not-the-best-time-for-canada-to-pick-a-fight-with-truckers)
 
-辉瑞生物技术公司的Comirnaty疫苗在11月底获得加拿大卫生部批准，用于5至11岁的人群–就在假期前几周，非紧急医疗预约会被放缓。
+而最新的1月22日，阿尔伯塔省长杰森肯尼[发表视频推文](https://twitter.com/jkenney/status/1484925402002989062)：**渥太华的卡车司机疫苗强制令必须取消。我们正处于供应链中断的高峰期，全国各地都出现了空货架。我们负担不起失去成千上万的卡车司机。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/66F1B2E5-DD23-4B2C-9747-20760445F7B9.jpeg)
+“自由车队2022”大型抗议活动，在gofundme网站上发起了一个募捐，在不到一个礼拜的时间，就已经募集了超过190万的资金，这笔资金将用以补偿在抗议活动期间的各种费用补贴。
 
-康斯坦丁内斯库说，与成人疫苗剂量相比，儿科疫苗剂量不太方便获得，这使得父母更难让他们的孩子接种疫苗。然而他认为，接种率低的一个关键因素是儿童在感染COVID-19症状比较温和。还有，强制接种疫苗也因为父母对疫苗持怀疑态度，使儿童不去学校学习。
+1月18日发表在[《Western Standard》的署名文章](https://westernstandardonline.com/2022/01/slobodian-truckers-going-pedal-to-the-metal-for-canadian-freedoms/)：**加拿大的卡车司机正在为加拿大的自由而全力以赴！**副标题为：***“*****我们认为，卡车运输业实际上是这个国家恢复自由的最后希望。*****”***文中采访了温科勒曼卡车公司总裁沃尔，他也是“自由车队2022”的组织者之一。他的一段话非常值得深思：
 
-加拿大没有强制儿童接种疫苗，至少不会胁迫儿童接种疫苗。希望疫苗接种尽快停下来，可以使更多的孩子免于疫苗灾难。
+*“*这个国家已经被撕裂了，我们需要像以前一样重新团聚，彼此相爱和尊重。我们的政府在分裂我们、摧毁我们方面做了巨大的工作。*”    “*我们由于健康决定而互相憎恨。这是不对的*……*我们需要睁开眼睛。*”*
+
+参考链接：
+
+[https://www.cbc.ca/news/business/inflation-canada-1.6320085](https://www.cbc.ca/news/business/inflation-canada-1.6320085)
+
+[https://nationalpost.com/news/canada/first-reading-probably-not-the-best-time-for-canada-to-pick-a-fight-with-truckers](https://nationalpost.com/news/canada/first-reading-probably-not-the-best-time-for-canada-to-pick-a-fight-with-truckers)
 
 
 
-原文链接：
-[https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-is-not-the-time-for-vaccine-mandates-even-as-vaccinations-among-children-remain-low-experts-1.6324433](https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-is-not-the-time-for-vaccine-mandates-even-as-vaccinations-among-children-remain-low-experts-1.6324433)
+> Ottawa’s trucker vaccine mandate has to go.
+> 
+> We are at the peak of supply chain constraints with empty shelves popping up all over the country.
+> 
+> We can't afford to lose thousands of truckers. [pic.twitter.com/aBkkOlHdj7](https://t.co/aBkkOlHdj7)
+> — Jason Kenney (@jkenney) [January 22, 2022](https://twitter.com/jkenney/status/1484925402002989062?ref_src=twsrc%5Etfw)
 
-编辑，发稿 Spirit
+
+
+
+
+> [SLOBODIAN: Truckers going pedal-to-the-metal for Canadian freedoms](https://westernstandardonline.com/2022/01/slobodian-truckers-going-pedal-to-the-metal-for-canadian-freedoms/)
+
+
+
+**编审：风起云间（文敏）****发布：天予**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+> [SLOBODIAN: Truckers going pedal-to-the-metal for Canadian freedoms](https://westernstandardonline.com/2022/01/slobodian-truckers-going-pedal-to-the-metal-for-canadian-freedoms/)
+
+
+
+
+
+
+
+> [SLOBODIAN: Truckers going pedal-to-the-metal for Canadian freedoms](https://westernstandardonline.com/2022/01/slobodian-truckers-going-pedal-to-the-metal-for-canadian-freedoms/)
+
+
+
+
+
+
 
  
 
