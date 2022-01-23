@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/23/2022 12:39 AM (UTC)`
+
+1月22号，Hcoin To the Moon MV上线第45天位列澳门🇲🇴iTunesMV榜首🥇，累计共31次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利，老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1895664/<br/><br/>Jan 22nd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 45 Day of Launch, hit No .1 for 31 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes Rock Song Chart🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 1/22/2022 10:27 PM (UTC)`
 
 1/21/2022 Miles Guo: It matters to us whether the Americans are taking down the CCP or not, but we don’t care if they’re Republicans or Democrats; the CCP’s lying skills reached all-time high which made the U.S. videotape its military operations to defend them against the CCP’s bald-faced lies; Nawaz Sharif is a witness proving the CCP has been bribing foreign countries in the world.<br/><br/>1/21/2022 文贵直播：在我们眼里只有灭共或不灭共的美国人，无党派之分！中共造假登峰造极，逼得美军破例录像保留证据，以防中共撒谎造假；谢里夫就是证明中共行贿世界各国的证人！
@@ -153,13 +159,6 @@ January 21st,2022 Through these media reports, the days when the swamp enslaves 
 
 这个杨贝贝吃狗肉说味道不错。。。
 ![img](https://media.gettr.com/group33/getter/2022/01/21/16/78034618-928b-b64a-09bb-a487ab6d0a60/aa2ec7a6d517de0b9bc67e27d6a48db8.jpg)
-
----
-
-`@miles 1/21/2022 5:12 PM (UTC)`
-
-Mr. Steve K. Bannon said the 2022 Beijing Genocide Games should be shut down for healthy reason that the CCP virus is spreading all over the China, due to the potential harm to athletes and the suppression of LaoBaiXing, and for many obviously moral and ethical reasons. The Chinese LaoBaiXing will be able to win their freedom and the great liberation not just against the transnational criminal organization in Beijing, but also from all their evil partners throughout the world.<br/><br/>班农先生：2022年北京【种族灭绝】冬奥会应该被停办，因为中共病毒正在全国蔓延，因为对运动员的潜在伤害和对老百姓的压迫，因为太多出于道德伦理的原因。 中国老百姓最终将赢得他们的自由和伟大的解放，不仅是从跨国犯罪组织——中共邪恶政权手里，而且还要从他们遍布全球的邪恶同伙手中赢得自由。
-![img](https://media.gettr.com/group10/origin/2022/01/21/17/907ba063-fb54-2976-5bca-a980a05ae38b/out.jpg)
 
 ---
 
