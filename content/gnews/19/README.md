@@ -2,28 +2,24 @@
 ---
 
 
-## 新冠疫苗的副作用：辉瑞公司的大屠杀仍在继续
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897369/)
+## 共产党是如何扩张的（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1897381/)
 
-##### 翻译：Julia Gao
-校对：Lish
-剪辑|字幕：Biggod
-编辑：Mttfly
+#### **整理：雅典娜速记组**
+**编辑：请你喝可乐**
 
-在视频中，一位疫苗强制受害者凯西，强忍着身体的剧痛和颤抖，向人们揭露疫苗可怕的副作用。她表示虽然传播疫苗真相很难，不被别人理解，但我们还应该做这件事。她讲述打完疫苗后的反应，从最初的疼痛、阵阵头痛、疲劳、麻木，到后来一个医生帮助看护她的癫痫和嗜睡症。她呼吁，表示友善的最好方法就是揭露疫苗真相，停止强制接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党是如何扩张的1、北酒_01.jpg)
 
-视频链接：[COVID 19 SIDE EFFECTS 106 – PFIZER CARNAGE CONTINUES](https://www.bitchute.com/video/eYDoFvtssfgd/)
+大家想我们中国，广东省香港自治区、台湾西藏独立，大家都这么想 99.999%。你永远别忘了共产党花那么多年1.5万亿的维稳费当中，40% 花在了境外。 七哥2017年说1万多亿维稳费用，你知道那谁把我骂的狗血喷头说我胡扯 八扯，整个国家才800亿维稳费，这帮孙子无耻到几点。，一骗30年，人 家说共产党70年你是被洗脑了，在国内，但你到海外的人，这30年你干啥 了呀？你比他还low。 共产党从来没认为国家这个概念适合于今天的，他把将近40%的维稳费用 在了海外全球化。就影响这个国家的权力的范围。 共产党很多人面临对着外国人问无数次的我认为是最愚蠢的问题，竟然有 人现在还当成问题，是因为你太无耻了。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
+*发布：请你喝可乐*
+
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
 
  
 

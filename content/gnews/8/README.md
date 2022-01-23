@@ -2,32 +2,38 @@
 ---
 
 
-## 众议员迈克尔·麦考尔预测俄罗斯2月份入侵乌克兰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1897518/)
+## 为拉近和中亚关系，中共近年狂撒数千亿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897566/)
 
-#### 撰稿：彩虹
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-20.jpg)图片来源：The Telegraph
-1月22日，《新闻极限》引用福克斯新闻的报道，美国德克萨斯州联邦众议员迈克尔·麦考尔（Michael McCaul）周五援引美国情报说，弗拉基米尔·普京（Vladimir Putin）总统正在关注一个“非常激进的时间表”，他预测俄罗斯军队将于下个月内入侵乌克兰。
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-麦考尔在众议院外交事务委员会中排名第一，他在给福克斯的一份声明中说，对于拜登政府面对俄罗斯在该地区的侵略行为的反应，他极不认同。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1642928368586.jpg)图片来源：雅典娜设计组
 
-他认为，“解决俄罗斯侵略的关键是威慑。本届政府在阻止俄罗斯进一步入侵乌克兰方面做得太少了。这就是为何我提出了《卫士法案》（GUARD Act）。这项法案加快了对乌克兰大量额外关键援助，并立刻制裁普京的影响恶劣的项目：北溪2号管道”。
 
-他进一步强调指出：“当基辅位于可能是二战以来最大冲突的中心时，缓慢地提供这种类型的援助和支持是绝对不可接受的”。
+据美国之音报道：哈萨克斯坦局势的动荡不仅全球瞩目，也使中国在中亚地区的影响更加引人注意。中国近年来在中亚五个国家撒下数千亿人民币，拉近了和这些国家的关系。
 
-据福克斯新闻报道，众议院目前正在推进由外交委员会主席格雷戈里·米克斯（Gregory Meeks）撰写的立法，以制裁俄罗斯并授权向乌克兰提供5亿美元的补充性紧急安全援助。
+1991年苏联解体。1992年1月中国与中亚五国乌兹别克斯坦、哈萨克斯坦、吉尔吉斯斯坦、塔吉克斯坦和土库曼斯坦建交。2022年1月，在与五国建交30周年之际，习近平同五国总统互致贺电。
 
-另外，周六，美国驻乌克兰基辅大使馆宣布，为乌克兰军队提供的2亿美元“安全援助”计划的一部分已于当天清晨抵达该国。美国大使馆在脸书（FaceBook）上发文说：“这笔捐款包括近20万磅的关键性安全援助，包括为乌克兰前线保卫者提供的弹药，显示了美国对乌克兰主权自卫权的坚定承诺”。
+根据弗吉尼亚威廉玛丽学院研究实验室 AidData的政策分析主任萨曼莎·卡斯特 (Samantha Custer) 的说法，中国在中亚的影响力在过去几十年中呈指数级增长。上个月，卡斯特和她的合著者在一份新报告《权力走廊》中分析了中国如何利用巨额财政援助来赢得中亚和南亚国家的朋友和盟友。
 
-大使馆指出，在过去的一年里，美国向乌克兰承诺了超过6.5亿美元的安全援助，自2014年以来超过27亿美元。
+报告称，近二十年来，中国政府向中亚和南亚地区提供了1270亿美元的财政援助。中亚国家在吸引北京财政援助的资金方面名列前茅。
 
-**新闻来源**
+另外，格鲁吉亚智库 Geocase 中东研究主任埃米尔·阿夫达利安尼（Emil Avdaliani）表示，尽管中国在中亚国家的地位已经相当成功，但中国仍然面临着诸如中亚国家的民族主义和政治精英对北京的不信任等障碍。
 
-[GOP Leader Predicts Russia Will Invade Ukraine ‘in the Next Month’](https://www.newsmax.com/politics/russia-ukraine-foreign-policy-war/2022/01/21/id/1053502/)
+参考链接：
+[https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html](https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html)
 
-[Part of US military support package arrives in Ukraine](https://thehill.com/homenews/administration/590893-part-of-us-military-support-package-arrives-in-ukraine)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
