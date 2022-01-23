@@ -2,17 +2,17 @@
 ---
 
 
-## 电话录音曝光：良知英国医生阻止患者注射加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897101/)
+## 美国弗吉尼亚州新州长下令，停止学校口罩强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897186/)
 
-医学上，我跟你说过多次，现在有很多信息出来了，这些信息之前还没有出来。很快这些疫苗会完全停止。信息真的出来了，短期内你还不会在电视上看到。可能因为。。。但是的很快会停的，但人们还不知道。
+我们重申父母在养育、教育和照顾其子女方面的权利。这项行政命令特别涉及父母的权利，父母有权对他们的孩子是否在学校戴口罩做决定。
 
-翻译：George Yang
-校对：枳实
-剪辑/字幕：清净
+翻译：Frank
+校对：Lish
+剪辑/字幕：Biggod
 发布：枳实
 
-视频链接：[English doctor told patient not to get covid vaccine](https://gettr.com/post/poyk1d9377)
+视频链接：[Glenn Youngkin, the new Republican governor of the US state of Virginia, signed an executive order to end the requirement to wear masks in schools.](https://gettr.com/post/pp3oc8b3dd)
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

@@ -2,34 +2,41 @@
 ---
 
 
-## 中共巨额资助荷兰大学 影响其学术独立性
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1897000/)
+## 私人外太空基础设施投资创历史新高
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897018/)
 
-#### 撰稿：日本东京方舟农场  海星
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3615434B-CB33-495F-B912-CEF2A2160EF9.jpeg)（图片来源：法新社）
+整理报道：文扬
+编辑：文泓
 
-近期，荷兰媒体披露中共巨额资助了荷兰阿姆斯特丹自由大学（Vrije Universiteit Amsterdam）的人权研究计划，质疑其影响该大学的学术独立性。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/EMADKTX8QT5G7J_8R.png)图片来源：SpaceNews
 
-据《中央社》报导，荷兰广播基金会（NOS）新闻网站19日刊登的一篇名为《中共资助阿姆斯特丹自由大学人权研究计划》（China financiert onderzoek naar mensenrechten aan）的文章，披露中共西南政法大学在2018年至2020年期间，每年资助阿姆斯特丹自由大学设立的“跨文化人权中心（CCHRC）”，金额高达25万至30万欧元（人民币180万元至216万元）。
 
-报导指出，CCHRC通过中共资助的资金出版学术刊物和召开学术研讨会，并在官网上为中共侵犯人权及在新疆持续发生种族灭绝的罪行辩解，同时推广中共反西方普世价值观的思想。
+当地时间1月23日，据RT电视台报道，去年全球有145亿美元私人资本涌入航天外太空。
 
-多位荷兰学者在接受采访时表示，阿姆斯特丹自由大学接受中共资金的行为会影响其学术独立性，涉嫌为中共侵犯人权的罪行合理化。
+位于纽约的专门投资于外太空的空间资本(Space Capital)的研究显示，太空基础设施公司在2021年得到了数十亿美元的私人投资，总资金比前一年增长了50%以上，达到创纪录的145亿美元。
 
-其中，荷兰莱登大学（Leiden University）国际关系教授罗伯德维克（Rob de Wijk）批评CCHRC主任泽瓦特（Tom Zwart）经常参与中共学术会议以及接受中共官媒采访的行为，这会诱导中国人民误解西方的普世价值观，巩固其专制政权。
+在经历了去年历史性的载人航天第三季度之后，第四季度带来了43亿美元的收入，这要归功于塞拉空间（Sierra Space）、埃隆·马斯克的SpaceX和行星实验室(Planet Labs)的“巨额融资”。
 
-据报道，阿姆斯特丹自由大学在其学术独立性受到广泛质疑后表示，将终止与中共的合作。
+空间资本总共追踪了1694家公司，这些公司自2012年以来在全球股权投资中累计筹集了近2530亿美元，涉及三个空间类别——（太空）基础设施、分销和应用。
 
-*参考链接：[中國透過資助影響學術獨立 荷蘭大學終止合作](https://www.cna.com.tw/news/aopl/202201220207.aspx)*
+空间资本的管理合伙人查德·安德森说：“当我们展望未来时，我们看到了巨大的机会，可以大规模采用现有的基础设施，因为我们寻找全新的方法来建造和运营天基资产。”
 
-* * *
+报告称，航天相关公司去年获得了171亿美元的风险投资，占2021年全球风险投资总额的3%。
 
-*素材采编：海星*
+安德森说：“对于投资者来说，重要的是要意识到对太空经济的投资需要专业知识。我们相信这将在2022年变得更加明显，因为其中一些被高估的公司将回归现实，而优质公司则脱颖而出。”
 
-*编辑：文顺*
+原文链接： [Private space investment hits all-time high — RT Business News](https://www.rt.com/business/546422-private-space-investment-high/)
 
-*发布：miumiu*
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
