@@ -2,23 +2,31 @@
 ---
 
 
-## 秘翻在线: 大村智教授对自己研制的伊维菌素治疗中共病毒有信心
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1896717/)
+## 有声|法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896784/)
 
-撰稿:沙莉
-![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-34.png)(图片源于本文链接)
-1月22日，伊维菌素的研制者大村智教授，在冈山市就伊维菌素对治疗中共病毒(新冠病毒)感染的有效性作了说明。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。
 
-诺贝尔医学生理学获得者、北里大学特别荣誉教授大村智先生22日在冈山市举办了一场讲座。 大村先生表示对自己开发的，贡献于人类的抗寄生虫药物伊维菌素在治疗中共病毒(新冠病毒)感染的有效性上有信心。
+前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
 
-伊维菌素是用于治疗由寄生虫和蜱虫引起的感染的口服药，在海外被发现它能有效地抑制中共病毒冠状病毒的增长。目前日本正在进行临床试验，以期获准它能成为中共病毒冠状病毒的治疗药。
+此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
 
-由于病毒感染人数的迅速增长，讲座以预先录制的视频形式进行。大村先生解释说：已发现伊维菌素可以防止病毒的生长并增强人体的免疫力。实际上它已在印度的一些州和印度尼西亚被使用，并且已被证明具有诸如平息感染传播的效果。
+文字版原文：[法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”](https://gnews.org/zh-hans/1892363/)
 
-信息来源:[抗寄生虫薬 コロナ治療効果に自信　ノーベル賞大村氏、岡山で講演：山陽新聞デジタル｜さんデジ (sanyonews.jp)](https://www.sanyonews.jp/article/1221093/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-责编:待命(文晓)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,17 +2,17 @@
 ---
 
 
-## 欧盟药监机构担忧定期加强针的危害，福奇听证会发飙
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896703/)
+## 盖特正在从硅谷的寡头手中夺取并分散更多的话语权
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896769/)
 
-##### 翻译：文载Jenny
-校对：枳实
-剪辑|字幕：向上James
+##### 翻译：Lish
+校对：精靈藍
+剪辑|字幕：蛮吉
 编辑：Mttfly
 
-据福克斯新闻报道，欧洲药品管理者表示怀疑是否有必要打第四加强针疫苗。 其在周二对是否有必要注射新冠疫苗第四剂加强针表示怀疑, 并且对于每四个月需要打一次加强针的前景表示关注,担忧这是否会让人们的免疫系统超载。嘉宾表示，公众已经对接种加强针感到质疑，对得不到病毒真相感到疲倦。福奇也在继续提供混乱的信息，福奇在听证会戴着口罩走进来， 但是当兰德保罗开始质疑他，福奇变得疯狂，扯下口罩。
+盖特CEO杰森·米勒在接受福克斯玛丽亚采访时表示，像马龙博士那样的人参加对于疫苗副作用的激烈辩论，这本就是民主思想与中共专制思想的区别。盖特最近达到了400万用户，在问及盖特要去向何方以及川普总统的“真相媒体”时，米勒先生表示，希望更多的平台崛起，夺回话语权。
 
-视频链接：[European Union’s drug regulator raised concerns that giving boosters every four months hypothetically poses the risk of overloading people’s immune systems. Dr. Fauci got mad under the questioning of Senator Marshall.](https://video.foxnews.com/v/6291384634001#sp=show-clips)
+视频链接：[GETTR is taking power away from Silicon Valley oligarchs and decentralizing more](https://www.gettr.com/post/pnp3z2f178)
 
 *发布：Mttfly*
 **

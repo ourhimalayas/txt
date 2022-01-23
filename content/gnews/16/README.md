@@ -2,28 +2,65 @@
 ---
 
 
-## 世茂300亿卖上海项目，7.7折卖地块股权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896755/)
+## 灭共者之郭氏情报站（十五）2022/01/21 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1896866/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-35.jpg)世茂300亿卖上海项目，7.7折卖地块股权 网络图片
-据澎湃新闻1月22日报道，世茂集团21日公告称，以10.6亿元的总价出售上海北外滩核心区项目公司股权。该项目原报价13.8亿元，现以七七折售出。自从去年8月宣布出售资产至今，世茂集团已经成交两个项目，回笼现金31.46亿元。
-
-世茂集团放售上海10个项目，总报价为296.06亿元。除了北外滩，其他9个项目对外报价近282.26亿元，已经抵押融资163.18亿元。如果10个项目全部出售，世茂集团最多可回笼资金129.68亿元。
-
-当初多大手笔买，如今多大手笔卖，中共国房地产业已经病入膏肓。变卖资产只是打一剂强心针，勉强支撑一下，最后还是要倒下，再也站不起来。假的就是假的，不可能撑到最后。
-
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16400756](https://www.thepaper.cn/newsDetail_forward_16400756)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+出品：纽约香草山设计部 – 喜马拉雅大喵儿，天马星空J
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+
+**灭共者-郭氏情报站 **
+**2022年1月21日 文贵大直播总结提炼**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C2C49B37-1894-45BB-B246-7E5E137C0F5E.png)
+
+1、西方世界和中共的政治经济脱钩今天开始！全世界没有选择，政治上只能和新中国联邦，经济只能和喜联储挂钩！
+
+2、冬奥会是上天的礼物，是共产党的噩梦。习近平的清零政策犯了3个大忌。1）宣布成功太早；2）清零违背常理的自杀行为；3）经济崩塌！
+
+3、科技和金融是共产党的两条腿，灭共先打断共产党这两条腿。芯片是共产党的核心，没有科技，共产党全部归零。
+
+4、七哥对中国人改掉“羊文化”没有信心，是最大的难题之一。警告：脱交后，中共国护照都会作废，回国有可能性，出来就没有可能了。
+
+5、美国正在研究和稳定的私人数字货币机构合作，这个私人机构，只有喜联储一家。喜支付上线，流通规模有多大，无人可挡。喜联储未来7%的回报存款，还有贷款、保险、钱包（热-银行，冷-自己家保险箱）。数字银行的投资，战友会成立5-6家公司，和大股东一样的话语权。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（十四）2022/01/20 文贵大直播 – GNEWS](https://gnews.org/zh-hans/1891566/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 

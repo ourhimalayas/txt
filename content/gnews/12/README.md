@@ -2,31 +2,44 @@
 ---
 
 
-## 有声|法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896784/)
+## 文贵天成——文贵先生谈“曾庆红”（三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1896935/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。
+整理：tianzhihuan
+编辑：Kelly
 
-前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/T0DTFUX4BKDV4FPDQG.png)图片来源:雅典娜设计组（614）
 
-此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
 
-文字版原文：[法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”](https://gnews.org/zh-hans/1892363/)
+郭文贵**2018**年**3**月**14**日视频
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+昨天、前天、大前天，开封市所谓专案组到我们河南裕达企业又是查现金又是查合同等等。北京市所谓的专案组找了我几个家人和员工、北京的朋友进行威胁。让郭文贵你不要说这个人、那个人，你不要提到这些。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+还有更夸张的是北京三中院分秒必争要把文贵的资产盘古、政泉，都给拍卖了。大家都知道，盘古龙头的24 层以下被当时李友的担保押给了上海银行，上海银行的老板是江家，现在拼命的要把你龙头的那一半给拿走，要的利息是多少呢？65%！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+就这样法官还跟你说不允许有任何的意见。我们就正常提了一个中泰合同以及该合同一个执行异议，北京市高院立案了，北京三中院立案了，但是他们告诉我们说：“你自己要求把案子撤了。”这不就是抢劫吗？
+
+这就是爆料了江家以后，我们得到这结果，把盘古龙头给你拿走，65%的利息，黑社会放贷也没这么厉害呀？！中泰大家也知道，中泰是曾家的，曾宝宝的，要把我们 龙头后面的盘古公寓40多套房产，实际上按今天价值最起码也将近 200 亿了，她现在要以一个超过了45%的利息给拿走。
+
+郭文贵**2018**年**3**月**15**日视频
+
+我说：“老领导，文贵就是一个天生的精神科医生，我现在到了海外来，在国内专对付盗国贼，在中国近代历史上还没有一个像我一样敢挑战刘志华，把他给灭了的。”
+
+而且，刘志华受国家刑法被判处死刑缓刑，上千人的腐败贪官被抓，后来我又挑战N个当官的，现在挑战盗国贼王岐山、孟建柱、傅政华、孙力军、以及江氏、曾氏家族在国内盘踞的势力，他们绑架了国家。到了海外来，我这个精神科医生，天生的，无论砸郭的、挺郭的，通过这个事实就能显现出来谁是精神病？
+
+有些人眼睛贪婪的想把世界都占有、嘴巴贪婪的要把全世界的东西全吞到肚子里、手贪婪的恨不得把全世界的美女都拥抱到怀里，但是，肚子很小，消化能力很差，手也没劲，啥也得不到，就是一口炮，什么都不是。
+
+资料来源：郭先生GTV和盖特直播视频
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
