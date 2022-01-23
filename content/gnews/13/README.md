@@ -2,24 +2,27 @@
 ---
 
 
-## 电话录音曝光：良知英国医生阻止患者注射加强针
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897101/)
+## 汤加政府公布最新情况
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1897217/)
 
-医学上，我跟你说过多次，现在有很多信息出来了，这些信息之前还没有出来。很快这些疫苗会完全停止。信息真的出来了，短期内你还不会在电视上看到。可能因为。。。但是的很快会停的，但人们还不知道。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-43.png)[图片来源](https://news.yahoo.co.jp/articles/cb1545402311ca8a7d55a1da52f009cd6f2a0aec/images/000)
+1月22日HUFFPOST要闻在线消息：汤加政府1月21日发表了火山爆发一周后的最新情况。
 
-翻译：George Yang
-校对：枳实
-剪辑/字幕：清净
-发布：枳实
+据汤加驻东京大使馆发表的消息，火山喷发产生的火山灰和海啸已经影响了估计84%的人口。到目前为止有三人被确认死亡，包括一名英国人。
 
-视频链接：[English doctor told patient not to get covid vaccine](https://gettr.com/post/poyk1d9377)
+国际援助也正在抵达。日本自卫队于22日向该地区运送了三吨饮用水。一艘新西兰军舰也已经抵达，除运送水和救援物资外，还将对海底进行调查。澳大利亚军舰也将在下周初抵达。其它表明支援的有，世界银行的800万美元，亚洲开发银行的1000万美元，澳大利亚和日本的各100万美元，以及中国的10万美元。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+目前岛屿之间的通信仍然困难，但一些电话和卫星通信已经恢复，目前正在进行全面的修复工作。其中包括了有外国援助以修复光纤电缆。
+
+信息源：
+
+[「国民の84%が降灰と津波で被害」トンガ噴火、最新の被害状況が公表される](https://news.yahoo.co.jp/articles/cb1545402311ca8a7d55a1da52f009cd6f2a0aec#:~:text=%E3%80%8C%E)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
 
  
 
