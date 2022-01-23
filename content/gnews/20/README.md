@@ -2,22 +2,31 @@
 ---
 
 
-## 文贵首次讲病毒基本结束
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1895955/)
+## 有声|GTV新闻访谈简报|2022年1月21日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895959/)
 
-我根据最近和科学家的讨论，以及最近和我们国内的各种情报讨论，人类的疫苗灾难五月份开始，但是病毒这一波基本接近尾声，可能会有一个大的缓冲。
+配音：香草山农场 – 纳米
 
-**【郭先生直播摘要】 2022.1.19 文贵首次讲病毒基本结束**
 
-**郭先生****:**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/0121text-SC-768x994-1.png)
+文字版原文：[GTV新闻访谈简报|2022年1月21日晚](https://gnews.org/zh-hans/1892113/)
 
-爆料革命又跟大家说，2022年是最黑暗的。 我今天我有一个重大的情报， 但愿你们不要相信我的话，我是胡说八道。我根据最近和科学家的讨论，以及最近和我们国内的各种情报讨论，人类的疫苗灾难五月份开始，但是病毒这一波基本接近尾声，可能会有一个大的缓冲。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-我从2019年12月病毒开始第一次说到病毒的正面。这一波已经是基本到达尾声，如果不再放新毒的话这个病毒会过。人类将走上疫苗的灾难，所以习看到了这一点要享受的是什么。大家共同面对享受疫苗经济，这个话有意思，病毒的事没了，这一波这一株全放完了，反正大家打了疫苗以后死的死，心脏病卖药吧。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-我们解决心脏病，我们玩这个去，所以你只要别搞死我，只要是你别弄死我，别跟我脱钩，别逼我跟你脱钩，我们共同开火葬场，卖骨灰盒、卖心脏药，还有什么不孕症这些药就来了。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-视频剪辑：GC|听写：雨山溪桥客 |翻译：Arthur | 校对：烟波浩淼 | 视频制作+字幕：芥末|编辑 & 发布：断播
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

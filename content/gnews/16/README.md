@@ -2,47 +2,18 @@
 ---
 
 
-## 有声|灭共者之郭氏情报站（十四）2022/01/20 文贵大直播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1895991/)
+## 解直锟玩假骗 结局注定不会老死
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1896026/)
 
-配音：香草山农场 – 纳米
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+图片来源：雅典娜设计组
+
+```
+发布：陶子更多资讯，请关注：澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena澳大利亚墨尔本农场Gettr：himalayaathena澳大利亚墨尔本雅典娜农场YouTube澳大利亚墨尔本雅典娜农场Discord澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-**灭共者-郭氏情报站**
 
-**2022年1月20日 本内容根据郭文贵先生GETTR直播提炼总结**
-
-❖ 普京到北京冬奥会展示一下存在感，就要带走1000多亿美元。
-
-❖ 中共要发射200多万枚火箭造雪弹，营造瑞雪照冬奥的盛世景观。
-
-❖ 新版人民币很快就会发行。现在持有大量现金将来变废纸的概率极高。
-
-❖ 中共房地产税的到来，又是一次大洗劫。
-
-❖ 冬奥会之后，中国经济会崩塌。
-
-❖ 美欧一定溯源冠状病毒！
-
-文字版原文：[灭共者之郭氏情报站（十四）2022/01/20 文贵大直播](https://gnews.org/zh-hans/1891566/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
