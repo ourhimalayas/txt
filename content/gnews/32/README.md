@@ -2,24 +2,21 @@
 ---
 
 
-## 美国弗吉尼亚州新州长下令，停止学校口罩强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897186/)
+## 雅典娜时报-第182期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1897187/)
 
-我们重申父母在养育、教育和照顾其子女方面的权利。这项行政命令特别涉及父母的权利，父母有权对他们的孩子是否在学校戴口罩做决定。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-翻译：Frank
-校对：Lish
-剪辑/字幕：Biggod
-发布：枳实
-
-视频链接：[Glenn Youngkin, the new Republican governor of the US state of Virginia, signed an executive order to end the requirement to wear masks in schools.](https://gettr.com/post/pp3oc8b3dd)
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080081956884/155_1-8.png?width=860&amp;height=1281)![圖片](https://media.discordapp.net/attachments/825592691433668612/934653080794959922/155_3-1.png?width=860&amp;height=1281)
+*发布：陶子*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
