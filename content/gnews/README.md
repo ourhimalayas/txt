@@ -15,167 +15,167 @@
 
 ---
 
-### [疫苗停止后的法律争议](/content/gnews/1/README.md)
+### [骗取喜币是犯罪行为](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [强制中共病毒疫苗接种就是执行死刑](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [新中国联邦和喜币放在一起敲响达沃斯党丧钟灭掉万年愚](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [仿制口服抗中共病毒药物将要祸害中低收入国家](/content/gnews/3/README.md)
+### [澳英加强军事合作应对中共国风险](/content/gnews/3/README.md)
+ ` 走进澳洲`
+
+### [一人一票的选择是我们所追求的](/content/gnews/4/README.md)
  ` G-NEWS TAIWAN`
 
-### [不要溢出效应就是用14亿中国奴隶把西方的泡沫收回去](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美反对强化世卫计划阻止中共渗透](/content/gnews/5/README.md)
- ` GTV新闻访谈`
-
-### [浅谈台湾推行疫苗接种数位证明的动机与代价](/content/gnews/6/README.md)
- ` G-NEWS TAIWAN`
-
-### [班农先生不惧任何攻击](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [出手反制 美暂停中共国44期航班](/content/gnews/8/README.md)
- ` GTV新闻访谈`
-
-### [欧洲议会新决议再次敦促成员国抵制北京冬奥](/content/gnews/9/README.md)
- ` GTV新闻访谈`
-
-### [IMF主席称中共清零政策已成世界经济负担](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [日本即将终结对华“官方开发援助”](/content/gnews/11/README.md)
- ` GTV新闻访谈`
-
-### [英国官方报告显示接种疫苗无法防止传播感染中共病毒](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [荷兰光刻机大厂抓出中共内鬼取销中共订单](/content/gnews/13/README.md)
- ` GTV新闻访谈`
-
-### [瑞典清理孔子学院迎来台湾华语学习中心](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [数据显示，盖特在周六晚收视率盖过CNN](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [不要溢出效应就是不要把人民币变冥纸使得老百姓造反](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [接种第二针辉瑞疫苗后玛丽扎患上了心肌炎](/content/gnews/17/README.md)
- ` DC政经`
-
-### [班农先生对疫苗问题的反思](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [布鲁塞尔再次反对新冠病毒措施的示威](/content/gnews/19/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [达沃斯天津会场是达沃斯党恋童抽人血打血清的犯罪专场](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [北京冬奥雪上项目主要举办地张家口崇礼区已被军队接管](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [宣扬中共病毒自然起源的科学家从福奇手中获取大笔资助](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新中国联邦救中国](/content/gnews/23/README.md)
- ` G-NEWS TAIWAN`
-
-### [1/23/2022国内经济财经周报：奥园公开叫嚣未来2年不还债；中石油子公司倒卖原油1.8亿吨](/content/gnews/24/README.md)
- ` 秘密翻译组金融团队`
-
-### [参议员兰德・保罗： 强迫儿童接种疫苗是医疗渎职](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [达沃斯党勾结中共始于它2001拿到奥运会和WTO入场券](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [1.21大直播后记 七哥谈路大脑骗（二）](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [美国大使馆下令从乌克兰疏散非必要的工作人员和外交官的家属](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国医学杂志要求马上释放所有冠状病毒疫苗治疗数据](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新中国联邦创始人郭文贵先生寄语G-EDU上线](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [塞浦路斯引渡案获进展 战友母子获准保释](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [共产党成公敌，冬奥会遭抵制](/content/gnews/32/README.md)
+### [美国及世界疫情简报 （01-23-2022）](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [给世界开药方威胁全世界的李源潮、王岐山最后轮到自己](/content/gnews/33/README.md)
+### [班农谈平民运动](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [1/23银河快讯:岸田内阁支持率仍保持在52%；30%政府收入将来自债券](/content/gnews/7/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [喜币让想把数字货币权力操控在手里的达沃斯党寝食难安](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共是全世界最大的邪教组织](/content/gnews/34/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [新中国联邦冷钱包将断送中共金融命脉](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
 
-### [公共卫生领域对新冠病毒的基本特性仍然不清楚](/content/gnews/35/README.md)
- ` DC政经`
+### [班农先生一想到一说到能帮助中国老百姓，眼睛都放光](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
 
-### [冬奥会将成为灭共的契机](/content/gnews/36/README.md)
+### [英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [爆料革命郭文贵预言美国经济暴跌不打疫苗推出虚拟货币](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [疫苗停止后的法律争议](/content/gnews/13/README.md)
+ ` G-NEWS TAIWAN`
+
+### [强制中共病毒疫苗接种就是执行死刑](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [仿制口服抗中共病毒药物将要祸害中低收入国家](/content/gnews/15/README.md)
+ ` G-NEWS TAIWAN`
+
+### [不要溢出效应就是用14亿中国奴隶把西方的泡沫收回去](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美反对强化世卫计划阻止中共渗透](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [一些西方富裕国家可能很快就会放弃疫苗护照](/content/gnews/37/README.md)
+### [浅谈台湾推行疫苗接种数位证明的动机与代价](/content/gnews/18/README.md)
+ ` G-NEWS TAIWAN`
+
+### [班农先生不惧任何攻击](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [未接种疫苗的人导致了大瘟疫，英格兰的数据并不支持这点](/content/gnews/20/README.md)
+ ` DC政经`
+
+### [出手反制 美暂停中共国44期航班](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [欧洲议会新决议再次敦促成员国抵制北京冬奥](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [IMF主席称中共清零政策已成世界经济负担](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [日本即将终结对华“官方开发援助”](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [英国官方报告显示接种疫苗无法防止传播感染中共病毒](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [春天的故事](/content/gnews/38/README.md)
+### [荷兰光刻机大厂抓出中共内鬼取销中共订单](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [数据显示，盖特在周六晚收视率盖过CNN](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [不要溢出效应就是不要把人民币变冥纸使得老百姓造反](/content/gnews/28/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [接种第二针辉瑞疫苗后玛丽扎患上了心肌炎](/content/gnews/29/README.md)
+ ` DC政经`
+
+### [布鲁塞尔再次反对新冠病毒措施的示威](/content/gnews/30/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [北京冬奥雪上项目主要举办地张家口崇礼区已被军队接管](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [宣扬中共病毒自然起源的科学家从福奇手中获取大笔资助](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [1/23/2022国内经济财经周报：奥园公开叫嚣未来2年不还债；中石油子公司倒卖原油1.8亿吨](/content/gnews/33/README.md)
+ ` 秘密翻译组金融团队`
+
+### [参议员兰德・保罗： 强迫儿童接种疫苗是医疗渎职](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国大使馆下令从乌克兰疏散非必要的工作人员和外交官的家属](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国医学杂志要求马上释放所有冠状病毒疫苗治疗数据](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭先生在磐石农场开幕典礼谈及教育](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦创始人郭文贵先生寄语G-EDU上线](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [数据灭共：老百姓的钱都去哪了](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [塞浦路斯引渡案获进展 战友母子获准保释](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [公共卫生领域对新冠病毒的基本特性仍然不清楚](/content/gnews/41/README.md)
+ ` DC政经`
+
+### [62%注射过mRNA新冠疫苗的病人有细小血栓](/content/gnews/42/README.md)
+ ` DC政经`
+
+### [春天的故事](/content/gnews/43/README.md)
  ` 骄子`
 
-### [DC每日热点0123](/content/gnews/39/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [7•24系列——中共梦断ASML高端光刻机](/content/gnews/40/README.md)
+### [7•24系列——中共梦断ASML高端光刻机](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美参议院提出对中共入侵台湾实施全面经济金融制裁](/content/gnews/41/README.md)
+### [美参议院提出对中共入侵台湾实施全面经济金融制裁](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022/01/21 墙内世界](/content/gnews/42/README.md)
+### [2022/01/21 墙内世界](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [宋词新作：谒金门·人生各梦——为何七哥做到无我](/content/gnews/43/README.md)
+### [宋词新作：谒金门·人生各梦——为何七哥做到无我](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [网友吐槽哈尔滨防疫形同虚设，发视频却被威胁](/content/gnews/44/README.md)
+### [网友吐槽哈尔滨防疫形同虚设，发视频却被威胁](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共遗嘱库 为中国人量身定做遗产和器官的 “无偿捐赠”](/content/gnews/45/README.md)
+### [中共遗嘱库 为中国人量身定做遗产和器官的 “无偿捐赠”](/content/gnews/49/README.md)
  ` 帕米尔高原水`
 
-### [汤加政府公布最新情况](/content/gnews/46/README.md)
+### [汤加政府公布最新情况](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美日元首召开视频会议 承诺共抗中共](/content/gnews/47/README.md)
+### [美日元首召开视频会议 承诺共抗中共](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [中共巨额资助荷兰大学 影响其学术独立性](/content/gnews/48/README.md)
- ` 日本东京方舟农场`
-
-### [加拿大议员支持卡车司机反对疫苗的抗议，称强制令：错误、不道德、不符合宪法！](/content/gnews/49/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [2022年1月21日郭文贵先生直播全文字版](/content/gnews/50/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [未来最安全冷钱包的拥有者，将是人类财富的最大守护者](/content/gnews/51/README.md)
+### [未来最安全冷钱包的拥有者，将是人类财富的最大守护者](/content/gnews/52/README.md)
  ` YALUN 亚伦`
 
-### [孟建柱和他的隐形帝国（四）](/content/gnews/52/README.md)
+### [孟建柱和他的隐形帝国（四）](/content/gnews/53/README.md)
  ` 新西兰伊甸农场听写编辑组`
 
-### [越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议](/content/gnews/53/README.md)
+### [越来越多的欧洲人民为反对强制疫苗接种而走上街头抗议](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [北京冬奥之火水下传递暗藏风水玄机](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [印太空军将领举行在线会议 台湾空军司令军服与会](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

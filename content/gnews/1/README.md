@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗停止后的法律争议
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1898390/)
+## 骗取喜币是犯罪行为
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1898605/)
 
 台灣寶島農場
 

@@ -2,49 +2,42 @@
 ---
 
 
-## 达沃斯党勾结中共始于它2001拿到奥运会和WTO入场券
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1898190/)
+## 荷兰光刻机大厂抓出中共内鬼取销中共订单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898269/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf14587664c47acd8ad60](https://gtv.org/video/id=61ecf14587664c47acd8ad60)
+纽约香草山 医疗部 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+当地时间1月21日，郭文贵先生在大直播中谈到中共在发展晶片产业上遭受重大挫败。 其中爆料革命战友发挥了重要的关键角色。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1868.png)
+中共多年前利用蓝金黄方式收买了荷兰光刻机大厂艾司摩尔派驻到中共的工程师。 中共女间谍与其结婚生子，借此方式进行渗透。 这些真相经由战友提供给艾司摩尔公司，并经过英国情报部门的证实，终于让该公司警觉到中共的渗透。同时在美国的施压下，荷兰政府拒绝授予艾司摩尔出口先进光刻机系统许可证，最终取消了中共先前超越市场行情的高价订单。
 
-**郭文贵先生**：你再看李源潮，还有一个所谓的“警告西方”，天天“警告西方”，现在是全世界已经对“警告”这词儿已经麻木了。
+艾司摩尔公司总裁暨执行长温·彼得 于1月19日证实了该消息，他表示对中共出口设备未获得荷兰政府许可，所以该公司的光刻机不会运送给中共国
 
-但同时发生了什么？大家看到了吗？习近平在今年的讲话用出了四个字儿叫“溢出效应”。溢出效应之前是王毅的叫潘多拉盒子，潘多拉盒子之前是开药方，然后动不动就要脱钩什么的。
+当地时间1月21日，郭文贵先生在大直播中谈到中共在发展晶片产业上遭受重大挫败。 其中爆料革命战友发挥了重要的关键角色。
 
-现在是什么概念？但凡中国人有一点脑子的人看一看共产党在达沃斯的一系列讲话，达沃斯论坛这些人的来源，我告诉你，这就是黑暗力量的一个俱乐部——控制人类命运的俱乐部，完全不希望人类有75亿人口的俱乐部，然后是让全世界当奴隶的俱乐部，严格讲，它叫奴隶主俱乐部。
+中共多年前利用蓝金黄方式收买了荷兰光刻机大厂艾司摩尔派驻到中共的工程师。 中共女间谍与其结婚生子，借此方式进行渗透。 这些真相经由战友提供给艾司摩尔公司，并经过英国情报部门的证实，终于让该公司警觉到中共的渗透。同时在美国的施压下，荷兰政府拒绝授予艾司摩尔出口先进光刻机系统许可证，最终取消了中共先前超越市场行情的高价订单。
 
-跟谁控制过去这些年？你见过这些年川普参加了吗？拜登参加了吗？你见几个外国元首参加的？好元首不会参加这个会议，全是中国共产党控制。共产党从什么时候控制的？2001年中国共产党拿到了北京2008的夏季奥运会和WTO的入场券，中国共产党从1.3万亿的美元，到达了今天的15万亿美元。从那天起，达沃斯论坛就跟他们勾结在一起，从没让西方人有过话语权。
+艾司摩尔公司总裁暨执行长温·彼得 于1月19日证实了该消息，他表示对中共出口设备未获得荷兰政府许可，所以该公司的光刻机不会运送给中共国。
 
-达沃斯论坛的宪章你们看过吗？兄弟姐妹们？你看看它过去这几十年，有一条符合它的宪章吗？从一九七几年开始。
+新闻连接：ASML光刻機禁運 中國無法進軍高階晶片
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+[2022年1月21日 文贵大直播](https://gtv.org/video/id=61eaab2f533c672fca804729)
 
-编辑整理：Jacques；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-3.png)
 
-字幕文件制作：小满；
+总编：Jack Li文阳
 
-视频制作及上传：Cindy；
+编辑：Lakeman文仁
 
-G-News发布：小满；
+校正/发稿：浪迹天涯
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

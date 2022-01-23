@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/23/2022 2:48 PM (UTC)`
+
+1月23号：尊敬和战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group37/getter/2022/01/23/14/15c3a75d-8c83-8ad2-be3e-293fdc7f74ef/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@thepotomacview 1/23/2022 4:09 AM (UTC)`
@@ -156,12 +163,6 @@ EP6: The Truth. Let's tear down the monstrous lies of this despicable #HBO #VICE
 
 1/21/2022 Miles Guo: The CCP will be finished once its technological and financial sectors are destroyed. With the launch of 5G and 6G, the CCP’s Great Firewall will be gone so that everyone in Communist China will be able to use our platforms. What is the story behind the Dutch photolithography machine manufacturer’s cancellation of the $2.5 billion order from the CCP?<br/><br/>1/21/2022 文贵直播：干掉了科技和金融，中共就玩完；随着5G、6G的投入，防火墙将消失，任何人都将可以使用我们的平台；荷兰光刻机巨头取消中共25亿美元订单的背后有着怎样的故事？
 ![img](https://media.gettr.com/group46/getter/2022/01/22/00/51856546-c5af-952f-8354-8bdca61c3eef/out.jpg)
-
----
-
-`@miles 1/22/2022 12:15 AM (UTC)`
-
-January 21st,2022 Through these media reports, the days when the swamp enslaves the 1.4 billion Chinese people and the people of the world under the financial licenses of the legitimate gangsters are about to be gone for good. What I want is not the $500 million. What we have lost is more than tens of billions of dollars, and the damage it has done to us is immeasurable in terms of money! This lawsuit will show the ugly faces of the swamp to the public. Let’s wait and see!!! Whether it's the CCP, the Party of Davos, or the swamp, all of them are a bunch of financial devils enslaving the people of the world! We must change the rules of the game!✊✊✊🔥🔥🔥<br/><br/>https://www.finews.ch/news/banken/49745-ubs-cs-traumkunden-margin-call-guo-wengui-lu-zhengyao-lending
 
 ---
 

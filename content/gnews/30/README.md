@@ -2,36 +2,25 @@
 ---
 
 
-## 新中国联邦创始人郭文贵先生寄语G-EDU上线
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898155/)
+## 布鲁塞尔再次反对新冠病毒措施的示威
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1898234/)
 
-作者：纽约香草山农场 文鹰
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-12.tiff)图片来源：Belga
+周日上午，大量民众再次走上布鲁塞尔街头，抗议新冠措施。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+抗议游行于上午11：30从火车北站出发。组织者呼吁就新冠措施进行全面的公共辩论。
 
-1月21日盖特消息，郭文贵先生对新中国联邦GEDU教育平台上线寄予厚望。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-10.19.27-PM.png)
-GEDU教育平台由喜马拉雅纽约磐石农场开发，历经两个月运行，于1月21日正式上线。郭先生庆贺G-EDU教育平台成功上线，并感谢教育平台战友们的辛勤付出。
+“欧洲联盟”组织与来自欧洲各地的 600 个协会一起组织了这次示威活动。 他们为自由、民主、人权和对宪法的尊重而走上街头。下午14:30将有演讲者在五十周年纪念公园（Jubelpark）进行发言。
 
-郭先生表示，新中国联邦的教育平台上线意义重大。在病毒疫情的艰难时刻，我们有了新的希望，新的未来。它的目标和方向，就是在没有共产党的新中国联邦来后，培养一批智慧，勇敢，善良，有信仰的，健康诚实的，让人尊敬的新中国新一代人！
+示威组织者希望能引起人们注意这样一个事实，即越来越多的人在公共辩论中被边缘化。他们希望通过公众辩论以解决新冠措施的支持者和反对者之间的两极分化。
 
-参考链接：[新中国联邦创始人郭文贵先生对GEDU的寄语：](https://gettr.com/post/ppruuf777d)
+这是两个月内的第五次反对新冠措施的示威游行。(belga)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+发布：Luckycky
 
-编辑：Ivy001
-总编：Jack Li文阳
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+原文链接：[https://www.grenzecho.net/68451/artikel/2022-01-23/erneut-demonstration-gegen-corona-massnahmen-brussel](https://www.grenzecho.net/68451/artikel/2022-01-23/erneut-demonstration-gegen-corona-massnahmen-brussel)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

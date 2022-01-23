@@ -2,32 +2,28 @@
 ---
 
 
-## 日本即将终结对华“官方开发援助”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898279/)
+## 英外长警告称俄若入侵乌克兰中共可能在印太区发动侵略
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1898406/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月14日消息，日本即将结束历时40余年的对华 “官方开发援助计划” 。该计划自1979年12月开始，结束日期为2022年3月。援助形式包括资金、技术和人才培养等各个方面。截止2015年，该计划的援助金额合计322亿美元，涉及多项中共国内大型基建目，包含北京国际机场、上海浦东机场、武汉天河机场、中日友好医院及北京地铁2号线等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-上午9.10.28.png)路透資料照
-40年来，日本的友好援助和中共国的改革开放相重叠，支撑中共国走上经济大国之路。然而中共国内对此援助计划鲜有提及，大部分中国人并不知道有此援助计划，以及相应的援助资金及行动。
+作者: 青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/51234282_101.jpg)
+普京与习近平（图片来自网络）
 
-参考链接：
-1）[落下历史帷幕的日本对华ODA](https://cn.nikkei.com/columnviewpoint/column/47307-2022-01-14-04-55-10.html)
-2）[日本對華援助將終止 中共隱瞞真相40年](https://www.epochtimes.com/b5/22/1/22/n13521719.htm)
+据《联合早报》1月23日报道，英国外长特拉斯将中俄比喻为“协同合作的侵略者”，并警告称，中（共）国可能会趁俄罗斯入侵乌克兰之际，在印太区发动侵略行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+特拉斯在访问澳大利亚期间接受《悉尼先驱晨报》和《时代报》访问时表示，上述可能性不可排除。她说：“俄罗斯与中（共）国的配合前所未有的紧密。侵略者正协同合作，我认为我们这些国家有责任联手抗击。”
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+特拉斯还在访谈中指出，英国关注中国（中共）政府的恶意举动，因为“中（共）国的影响力是全球性的”，北京（中共）正利用经济胁迫手段对付立陶宛和澳洲，同时还试图将其势力扩展至全球各地。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国首相约翰逊近日因“派对门”丑闻遭到党内外逼宫，如果他下台，特拉斯是接任首相的热门人选。
+
+俄罗斯近日在与乌克兰接壤的边界集结了10万大军，被指意图入侵乌克兰。与此同时，中共军方近几个月显著提升了其军机进入台湾防空识别区的规模和频率。美国防长奥斯汀上月称，中（共）国的举动似乎是在为进攻台湾进行“彩排”。
+
+美国外交政策分析师布兰德斯近日也指出，最大的危险在于“美国可能必须同时与中（共）国和俄罗斯交战”。不过，也有不少分析人士认为，以普京的政治智慧，他不会愚蠢到真的与穷途末路的世界公敌中共联手发动战争。
+
+新闻链接：
+https://www.zaobao.com/news/world/story20220123-1235701
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

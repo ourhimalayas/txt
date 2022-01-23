@@ -2,34 +2,24 @@
 ---
 
 
-## 冬奥会将成为灭共的契机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898065/)
+## 英国医学杂志要求马上释放所有冠状病毒疫苗治疗数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1898157/)
 
-撰稿: 香草山农场-晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2022年1月21日大直播中，文贵先生谈到他获取并向西方人播放了几百只狗被捕杀的视频，西方人看后感到震惊甚至不适呕吐。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1865.png)
-据悉，冬奥会还将用西藏受保护的鱼等西方人不敢触及的食物，供运动员食用。如此行径导致好莱坞团队决定不参加冬奥会，相信还会有越来越多的人放弃参加。另外习近平的清零政策犯了3个大忌，一，太早宣布成功；二，清零政策是违背常理的自杀行为；三，经济交换导致经济崩塌。
+翻译： Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/微信截图_20220123211552.png)
+图片来源：www.bbc.com
 
-文贵先生指出，冬奥会是上天送的礼物，是共产党的噩梦，冬奥会促成习近平打开了病毒溯源的鬼门关，拜登政府给了共产党溯源和脱钩的必选题。爆料革命对中共冬奥会的操作，未来会成为一人战一国的经典案例。中共冬奥会灾难已经无可挽回，成为灭共的有利契机。
+零对冲网1月22日报道，英国医学杂志（BMJ)已经发出要求立即释放有关新冠病毒疫苗和治疗的所有数据，说这是公共利益必须如此做。
+BMJ是每周刊出一期的英国医学协会贸易同盟，它提出释放数据刊登在周三的编辑版上。
+BMJ说：“今天尽管新冠疫苗在全球推出，但在临床试验中匿名的参与者水平的数据一直无法被医生，研究人员和公众所知，而且可能还需要好多年。但这是道德上站不住脚的，尤其这是涉及绝大多数公众健康干预的问题。”
+BMJ也指控了制药公司“收割巨大的利益却没有适当的独立的科学检验”。
+总部在纽约的辉瑞公司仍然握着数据不放，认为至少要到2025年5月，即最初的临床研究结果完成之时(2023年5月15日）的24个月后。
+同时，美国食品药物管理局(FDA)已经要求法官给予辉瑞75年时间发表数据。但法官本月巳经要求FDA本月底前发布12000页辉瑞公司疫苗数据。而且FDA还必须每月释放56000页辉瑞公司疫苗数据。
+BMJ也注意到阿斯利康公司提示该公司可以提供很多三期数据，但是总部在剑桥的该公司说这些数据根据要求可有变化，可能需要化上一年才能发布完整的分析，决定，匿名化和可分享的数据。
+英国医学杂志是全球最老资格的全科医学杂志，始于1840年，由大不列颠医学协会自主编辑。
 
-新闻链接:
+新闻来源： British Medical Journal Demands Immediate Release of All COVID-19 Vaccine, Treatment Data
 
-[2022年1月21日 文贵大直播](https://gtv.org/video/id=61eaab2f533c672fca804729)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-1.png)
-
-编辑: Kathy文艺
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
