@@ -2,68 +2,27 @@
 ---
 
 
-## 沉静黑暗中的萤火虫
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1899202/)
+## 澳洲新南威尔士州长宣布新学期返校计划
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1899313/)
 
-作者：纽约香草山香港部 – 格格树
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/012104.jpg)网络图片
+根据澳媒当地时间1月23日的最新报道，澳大利亚新南威尔士州州长 Perrottet 宣布了该州的返校计划，学生们或将在数日之内返回教室。
 
+根据该计划，新南威尔士州的高中生将被要求佩戴口罩，学生和教师将被要求在开学的最初 4 周每周进行两次快速抗原检测。
 
+Perrottet 州长强调说：“这非常重要，我们一直在夜以继日地工作，以确保我们在第一学期的第一天以安全的方式让孩子们回到教室……我们都知道孩子们在学校能够更好地成长——不仅从教育的角度来看，而且从心理健康和社会成果的角度来看。学校是我们的孩子最适合学习的地方，也是创造机会的地方。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2.jpg)
+在返校计划中，3 年级及以上的学生都被建议进行口罩佩戴。此外，学校的访问将受到限制，并且任何形式的的短途旅行也将出台对应的防疫安全计划。体育、音乐和露营等集体活动也将在防疫安全计划的框架下继续进行。
 
+不过州首席卫生官钱特博士也提醒说，一旦孩子们重返课堂，新冠病毒很可能会在学校传播，因此父母也需要采取措施帮助降低接触和传播的风险。
 
+钱特博士表示：“我希望学生家长在开学的前四个星期尽量减少孩子的活动以及与其他孩子的联系，包括在外面过夜和其他可能导致感染的活动。”
 
-似水流年，平凡的日子已成了遥远的往事。
-人生的万千风景中，都伴随着一段段记忆。
-那些刻骨的，平淡的，都随着岁月风烟渐行渐远。
-或许时光可以老去，
-光阴对面，永不老却的是爱和温暖和感动。
-处身在黑暗时，唯一支撑下去的就是内心的信念。
+教育部长米切尔表态称，如果在学校社区发现病例，学校将不会关闭：“但是，如果您所在的学校社区出现新冠病毒，家长、照顾者和家庭成员将收到通知，以便您监测症状和您的孩子……对于因感染新冠病毒或可能是家庭接触者而在家的学生，如果需要，我们当然会提供大量材料来支持您的孩子在家学习一周。”
 
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/DSCF0559_%2849404490631%29.jpg/1280px-DSCF0559_%2849404490631%29.jpg)图片来源：维基百科
-
-人生没有如果，在激情燃烧的岁月裡，
-这个世界永远留存着您们永不妥协的气息。
-每个人都在自己的角色裡演释着自己的故事，
-创造着自己燃烧青春岁月的奇迹⋯⋯
-您们就像黑暗中的萤火虫， 既使生命的短暂，
-依然给这个黑白无常的世界带来那一点光。
-兄弟姐妹们，您日夜奔跑着的身影，太累了，安息吧！
-——致天堂的手足
-
-人生就像蒲公英，看似自由，却心不由己。
-带着信念各处寻找自己扎根的地方。
-无论您们身在何方，
-心中惦念的依然是那熟悉的味道。
-兄弟姐妹们，微笑的活着，好好的活着。保重吧！
-——致远离家乡的手足
-
-新的一年又到了，心中感慨万千。
-祝所有正义常存的您无论在何方或天堂
-永远自由快乐的绽放！这个世界我们来过⋯⋯
-
-请欣赏粤语配音版：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1-1.jpeg)
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2.jpg)
-
+新闻参考链接：[NSW Premier Dominic Perrottet announces state’s back to school plan](https://7news.com.au/lifestyle/health-wellbeing/nsw-premier-dominic-perrottet-announces-states-back-to-school-plan-c-5412849)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
 
  
