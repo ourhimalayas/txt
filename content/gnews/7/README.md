@@ -2,38 +2,39 @@
 ---
 
 
-## 接种疫苗最多的以色列创COVID-19病例新记录
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1899493/)
+## 专家：现在不是儿童强制接种疫苗的时候
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1899562/)
 
-**编译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip06-5.png)2021 年 11 月 29 日，一名医务人员在以色列耶路撒冷的一个 COVID-19 直通测试点从一名以色列边防警卫那里收集拭子样本。（Ahmad Gharabli/AFP via Getty Images）
-以色列卫生部本周宣布，超过 72,000 人的 CCP病毒检测呈阳性，这是自大流行开始以来感染人数的最大增幅。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/mpx-doc-talk-vaccines.jpg)图片来源：CBC
+根据《CBC新闻》1月23报道，在加拿大5至11岁的儿童中，只有不到一半的人接种了第一针COVID-19疫苗，但加拿大专家说，现在不是强制面授学生接种疫苗时候。
 
-根据该国卫生部 1 月 19 日发布的声明，该国的活跃病例总数上升至近 40 万人，其中 533 人目前住院治疗，情况危急。
+公共卫生研究员德文-格雷森（Devon Greyson）说：”对于那些没有疫苗强制政策的省份来说，围绕疫苗接种的情绪非常高涨，在谈论疫苗强制是一种危险的行为”。
 
-以色列总理纳夫塔利·贝内特（Naftali Bennett）本月警告说，随着 Omicron 变种的传播，预计 CCP 病毒病例将迅速增加，因为他提供的政府数据表明，预计在当前爆发期间，将有 200 到 400 万以色列人感染 COVID-19 。
+格雷森说，事实上，在一些司法管辖区，疫苗强制弊大于利，这将一些人推离了疫苗接种。
 
-“在内阁会议上提供的信息表明，在以色列当前的浪潮中，总共将有 200-400 万公民被感染，”贝内特的声明中写道。
+加拿大没有省或地区政府宣布在学校强制接种COVID-19疫苗的计划，但安大略省和新不伦瑞克省等管辖区已经要求进入公立学校系统的学生接种预防某种疾病的疫苗。
 
-根据 1 月 20 日的数据，以色列是世界上 COVID-19 疫苗接种率最高的国家之一，已经有近一半的公民接种了三针，在人均每日新增病例方面处于世界领先地位。
+2020年提出了加强新不伦瑞克省学童强制性疫苗接种规则的立法，但被否决了。
 
-据以色列时报报道，魏茨曼科学研究所的生物学家伊兰·西格尔（Eran Segal ）对这一数据进行了验证，并解释说，在比较每个国家的 7 天运行平均值后，以色列位居榜首。
+为不愿接种疫苗的父母提供咨询的儿科传染病专家科拉-康斯坦丁斯库博士说，随着5至11岁儿童的疫苗接种率降低，以及儿童重返课堂，她希望儿童尽快接种疫苗，但并不要求进行强制。
 
-该国卫生部上周宣布，它开始对最脆弱的人群进行第二次加强注射，已经有 500,000 人接受了第四次注射。政府数据显示，总共有近 73% 的以色列人接种了至少一剂疫苗，而大约 66% 的人完全接种了疫苗。
+根据加拿大公共卫生局的数据，大约5%的5至11岁儿童已经完全接种疫苗。总理贾斯汀-特鲁多（Justin Trudeau）周三对疫苗接种率低表示担忧，称“这使社会上最脆弱的人面临更大的风险”。
 
-以色列是一年前首批推出疫苗的国家之一，并于去年夏天开始广泛提供第三剂疫苗，当局表示，他们希望第四次注射能够减缓由 Omicron 引发的一波感染浪潮。
+与此同时，在美国，纽约市现在要求学生在参加课外活动之前必须接种疫苗。加利福尼亚州已经对学生有严格的疫苗要求，正在酝酿将COVID-19疫苗加入该清单。
 
-事实证明，Omicron 更加逃避 COVID-19 疫苗诱导的抗体，并且在最近几周已经感染了全球数百万接种疫苗的人。
+辉瑞生物技术公司的Comirnaty疫苗在11月底获得加拿大卫生部批准，用于5至11岁的人群–就在假期前几周，非紧急医疗预约会被放缓。
 
-**新闻来源**：[theepochtimes.com][Israel, One of Most Vaccinated Countries in the World, Sets New COVID-19 Case Record](https://www.theepochtimes.com/israel-one-of-most-vaccinated-countries-in-the-world-sets-new-covid-19-case-record_4229781.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-01-23&amp;utm_medium=email&amp;est=tLboNWaRjAMMSHTeuu2GVtcAuwCh3TKePJPEOV5622yJCMa7smXzMZ4SzHopBxig9%2BxeJw%3D%3D)
+康斯坦丁内斯库说，与成人疫苗剂量相比，儿科疫苗剂量不太方便获得，这使得父母更难让他们的孩子接种疫苗。然而他认为，接种率低的一个关键因素是儿童在感染COVID-19症状比较温和。还有，强制接种疫苗也因为父母对疫苗持怀疑态度，使儿童不去学校学习。
 
-* * *
+加拿大没有强制儿童接种疫苗，至少不会胁迫儿童接种疫苗。希望疫苗接种尽快停下来，可以使更多的孩子免于疫苗灾难。
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+
+原文链接：
+[https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-is-not-the-time-for-vaccine-mandates-even-as-vaccinations-among-children-remain-low-experts-1.6324433](https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-is-not-the-time-for-vaccine-mandates-even-as-vaccinations-among-children-remain-low-experts-1.6324433)
+
+编辑，发稿 Spirit
 
  
 

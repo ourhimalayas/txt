@@ -2,43 +2,49 @@
 ---
 
 
-## 如果医院使用泽连科疗法Covid-19相关死亡将几乎不存在
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1898957/)
+## 立法者敦促FDA解释儿童加强剂的“不寻常决定”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1898990/)
 
-翻译： Jennny Ball
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1903.png)图片来源：naturalnews.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1905.png)众议员奇普·罗伊（Chip Roy）于 2021 年 9 月 22 日在华盛顿美国国会大厦举行的新闻发布会上发表讲话。（Kevin Dietsch/Getty Images）
 
-自然新闻 – 一项多中心、随机、开放标签研究，评估了维生素 D 和泽连科疗法（Zelenko Protocol）（羟氯喹、锌和阿奇霉素）的有效性。土耳其的七家医院应用了含和不含维生素C的治疗方案，以研究其在缩短疾病持续时间和预防死亡方面的有效性。
+25 名国会议员要求美国药品监管机构（FDA）解释：为什么他们在未咨询专家顾问小组的情况下，批准为 12 至 15 岁的儿童的 COVID-19 疫苗加强剂注射。
 
-在 237 名住院患者（年龄 22-99 岁）中，一名在 70 岁时去世。该患者患有严重的维生素 D 缺乏症和潜在的心肺疾病。其余 99.58% 的患者恢复了广谱、自然免疫。在研究过程中，研究人员发现，所有住院患者中，有 97% 缺乏维生素 D。严重缺乏维生素 D 的患者 (55%) 更有可能最终进入 ICU ，并住院更长时间。大多数（73%）住院患者还患有糖尿病、心脏病和肺病等潜在合并症。
+**这组人群因 ****COVID-19 ****患重病或死亡的风险很小，但本月早些时候，****FDA****却授权辉瑞为该年龄段的人群加强注射。**
 
-研究人员发现，静脉注射维生素 C 可将患者在医院的平均恢复时间从 45 天缩短到 15 天。该研究得出的结论是，“羟氯喹、阿奇霉素和锌联合或不联合维生素 C 的治疗方案，在治疗 COVID-19 时是安全有效的，高剂量的静脉注射维生素 C 可显著加快恢复。”
+众议员奇普·罗伊、参议员泰德·克鲁斯（Ted Cruz ) 和其他 23 位立法者，在一封新信中要求 FDA 代理主任珍妮·伍德考克（Janet Woodcock）博士确定，所有为该机构的决定，不召集疫苗和相关生物制品咨询委员会，该委员会去年拒绝了为所有 16 岁及以上成年人授权加强剂。
 
-对有效治疗的压制使医院变成了现代毒气室
+他们还要求解释，**为什么在****“****不寻常的决定****”****之前，没有召集专家组，包括使用了哪些因素，以及 ****FDA ****依赖哪些科学材料**。
 
-在WHO于 2020 年 2 月宣布“全球大流行”之后，所有的目光都集中在医院的容量上。尽管全国大多数医院从未目睹过备受期待的感染激增，但市中心的医院系统的死亡率却在迅速上升。**纽约市的医院是最先宣传他们治疗 Covid-19 患者失败的医院之一。**
+“我们应该为美国人站出来反对官僚驱动的政策，这些政策剥夺了父母的权力和信息权，以便为他们的孩子做出正确的选择。FDA绕过其正常委员会批准程序的不同寻常决定，使儿童处于危险之中。行政命令应对大流行执行的错误联邦政策比比皆是——从封锁到永久戴口罩，再到仓促的疫苗政策——都让我们深感担忧，”罗伊在一封电子邮件声明中告诉《大纪元》。
 
-这些市中心的医院通常挤满了流感、肺炎、RSV 和各种院内感染患者，但在 2020 年的Covid-19 期间，全世界都看到了医疗系统中的问题：绝望的呼吸机从一开始就是护理标准。在福奇的领导下，联邦的冠状病毒应对措施迫使这些机器的大量生产。
+“从乔·拜登一直到县和市政府官员，民主党人在过去两年里，一直试图通过关闭学校、实施专制授权和有选择地实施封锁来阻止父母为孩子选择最适合他们的方式。这**些小暴君**对敢于挑战他们的父母**进行了可耻的诽谤和迫害**。父母为孩子们挺身而出，并要求答案和问责是正确的，我很自豪能为他们而战，”克鲁兹补充道。
 
-由于担心一种未知的严重急性呼吸系统综合症病毒株的传播，医院被鼓励及早并经常诊断 Covid-19，即使只是怀疑也要诊断。欺诈性 PCR 检测被大规模推出，尽管它从未被设计用于识别和正确诊断单一传染病。成群结队的医院病人被紧急送往一个闭环系统，也就是呼吸机，以阻止他们“扩散”或把呼吸扩散到周围的空气中。**这些死亡装置会破坏肺部，造成氧化损伤，引起医院感染和细胞因子风暴，导致可怕的死亡率**。在这种恐怖和医源性错误的系统下**，****医院系统被暴露为现代毒气室****。**
+FDA 发言人确认收到了这封信，并表示该机构将直接向国会作出回应。
 
-在福奇的领导下，患者被迫忍受痛苦，通过生物武器疫苗实验，迫使更多的痛苦。
+在 FDA 和CDC决定是否为推动加强剂清除障碍之前，拜登政府高级官员在秋季表示，所有 16 岁或以上的人都需要加强剂，理由是疫苗保护作用减弱。
 
-在福奇的领导下，医院系统无视世界各地成功使用的所有有效治疗方案。美国独立诊所的有效治疗方案也被忽视和审查。泽连科疗法**早期使用羟氯喹 ****(HCQ)****、锌和阿奇霉素成功治疗了数千名患者。**但保险公司和制药行业主导着医疗行业，他们利用 FDA 等监管机构，将他们所谓的科学强加给医疗专业人员。福奇很快在美国禁止了泽连科疗法，但推动了高利润的瑞德西韦（Remdesivir）的广泛使用，这只会导致肾功能衰竭、医源性错误和死亡率增加。
+但 FDA 的专家小组拒绝了这一企图，建议该机构缩小美国人接受加强剂的范围。
 
-为了合法地批准具有 FDA 紧急使用授权的“疫苗”，必须是不存在有效的治疗方案。**被强加给美国和世界其他地区的****mRNA ****疫苗实验，导致更多医疗错误和过早死亡。**原因很简单：**隐瞒有关可行治疗的宝贵信息，并禁止使用营养药物、抗病毒药物、草药、支气管扩张剂、免疫调节剂和抗炎药。**在跟踪这些反人类罪两年之后，许多医疗专业人员推动宣传“疫苗”，并拒绝有效的治疗，现在显然看起来他们都像门格勒木偶皮诺曹。
+小组成员之一的保罗·奥菲特博士，最近在一次大纪元采访中说，**小组成员没有看到****“****明显的好处****”****，并且担心疫苗接种后的心脏炎症。**
 
-福奇、CDC和 FDA 不需要调查，因为他们的罪行是公开的。**福奇和 ****CDC ****的独裁者，将惊人的 ****Covid-19 ****死亡人数归咎于未接种疫苗的人，**但这些公共卫生宣传员，实际上只是利用无辜的人作为替罪羊来掩盖政府广泛的犯罪清单。与此同时，“未接种疫苗”的人在美国医院仍然受到不良待遇，当他们在医院死亡室被错误地隔离、歧视和虐待时，他们就必须起来争取使用基本抗病毒方案的权利。
+FDA 也同意，但该机构却在 11 月，决定推出所有三种疫苗的加强剂，仅在清除强生公司的额外一剂疫苗之前咨询过专家组。
 
-**如果医院使用羟氯喹 (HCQ)、锌和阿奇霉素（泽连科疗法），以及静脉注射维生素 C、维生素 D、营养液、伊维菌素和植物性抗病毒药物，那么与 Covid-19 相关的死亡几乎就不存在**。这些治疗方案早在 2020 年之前就已成为常识，但医院并没有在经济上激励他们正确使用治疗患者。更可悲的是：善良的医疗保健专业人员被迫在这种绝望的强制性环境中工作，在一个分裂、虐待的文化中沉沦，他们甚至不再拥有对自己的良心或身体自主权的权力。
+此后，FDA一直避免召集委员会决定授权辉瑞为 12 至 17 岁的儿童和年仅 5 岁的免疫功能低下的儿童注射加强剂。
 
-新闻来源：[naturalnews.com][If hospitals had utilized the Zelenko protocol with intravenous vitamin C and vitamin D, then covid-19-associated deaths would be virtually nonexistent](https://www.naturalnews.com/2022-01-21-zelenko-protocol-intravenous-vitamin-c-and-d-covid19-deaths.html#) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8712288/) / [NaturalNews.com](https://naturalnews.com/2021-09-17-hydroxychloroquine-and-ivermectin-treatments-covid19.html) / [CNBC.com](https://www.cnbc.com/2020/04/29/dr-anthony-fauci-says-data-from-remdesivir-coronavirus-drug-trial-shows-quite-good-news.html) / [NCBI.NLM.NIH.gov](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC7290825/) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo) / [LifesiteNews.com](https://www.lifesitenews.com/news/hospital-death-camps-attorney-says-covid-patients-are-trapped-and-receiving-harmful-treatments/?fbclid=IwAR3-sP_Rl05COjuI9hdZN-lze1Kmg_pzdwowYrXpbxDN-h8vbh0zzEzhOzo)
+监管机构在为年仅 12 岁的儿童授权辉瑞 (Pfizer) 加强剂时，严重依赖来自以色列的数据，声称来自该国的数据显示“该人群没有新的安全问题”，因为“迄今为止，这些人群中没有报告新的心肌炎或心包炎病例”。”
+
+美国立法者指出，在大流行期间，很少有年轻人死于 COVID-19，而且**与疫苗相关的风险在儿童和青少年中更高，**有几项研究发现，接种疫苗后，某些副作用造成感染或住院的风险实际上高于 COVID- 19病毒。
+
+他们说：“FDA 有责任通过确保数据和科学，表明这种加强疫苗对 12 至 15 岁的儿童是安全的，从而保护我们国家的儿童。”“儿童仍在成长和发育，这些是确保这种额外疫苗剂量适当的考虑因素，特别是因为 12 至 15 岁年龄组的早期青少年因 COVID-19 死亡和住院的风险极低 。”
+
+素材链接：[theepochtimes.com][Lawmakers Urge FDA to Explain ‘Unusual Decision’ to Clear Booster Shots for Children](https://www.theepochtimes.com/lawmakers-urge-fda-to-explain-unusual-decision-to-clear-booster-shots-for-children_4223215.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-20)
 
 * * *
 
 *审核：文乐
-校对：信心满满
+校对：小东
 发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  

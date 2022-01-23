@@ -2,18 +2,26 @@
 ---
 
 
-## 好声音战友的爆料
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1899056/)
+## 香草山翻译部周刊|2022年1月23日第32期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1899201/)
 
-我们的战友是某个明星的前经纪人，她说好声音藏污纳垢，全都是交易，她要爆料好声音的料。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-**【郭先生盖特摘要】**** 2022.1.18****好声音战友的爆料**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CN-1-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-我们的战友是某个明星的前经纪人，现在是好声音里面重要的一个投资者，她说好声音藏污纳垢，全都是交易。 她说假到什么程度，什么时候掉眼泪，什么时候哭，什么时候演员和所谓的裁判勾兑，都是一系列的设计。而且告诉他们这叫国际化。好声音现在在中国整成这样，成为性交易的平台。
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-这位战友最近到了加拿大要爆料，要爆好声音的料，她要爆料好声音的料热闹了。到了加拿大这个战友，她说到了加拿大才知道爆料革命多厉害，在海关的时候给拦下来了，打开电子设备和电脑一看有GTV。海关问你为什么看GTV，这个姐们吓坏了，她说我就是看一看，这个人说我也看GTV。另外找了一个翻译，翻译香港人，他说你知道Miles Guo吗？她点点头但是不敢承认。他说你过吧，我就天天看GTV，他说明天Miles Guo大直播。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
 
-视频剪辑：CG.|听写：雨山溪桥客 | 翻译：Arthur |校对：Polaris | 视频制作+字幕：刀锋舞者| 编辑&发布: 断播
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
