@@ -2,30 +2,40 @@
 ---
 
 
-## 欧洲议会新决议再次敦促成员国抵制北京冬奥
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898281/)
+## 美反对强化世卫计划阻止中共渗透
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898331/)
 
-作者：
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，在离北京2022年冬奥会仅有两周之际，欧洲议会高票通过了香港自由决议，决议中直接认定中共国人权状况不仅没有任何改善，还进一步恶化，议会再次敦促欧盟委员会、理事会和各成员国，拒绝政府代表和外交官出席北京冬奥的邀请。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-上午9.10.45.png)
-据悉，欧洲议会早在2021 年 7 月 8 日就已经作出决议，并呼吁拒绝出席北京冬奥，除非中共能证明香港人权状况有改善。
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1877.png)
+根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
 
-参考链接：
+美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+虽然拜登上任后不久美国重新加入世卫，但美国认为世卫组织需要进行重大改革。他们反对此项提案的理由，是担心世卫组织应对未来威胁，尤其是中共国威胁的能力有限。
 
-总编：
-编辑：
-校正/发稿：呼吸的雾霾（文小呼吸）
+美国正在推动建立一个由捐助者直接控制的独立基金，可以为预防和控制突发卫生事件提供资金。
+
+
+
+新闻链接：https://cn.rti.org.tw/news/view/id/2122766
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-2.png)
+
+总编/编辑：飞虹
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-9.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

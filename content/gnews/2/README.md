@@ -2,31 +2,35 @@
 ---
 
 
-## 班农谈谁是我们的敌人，谁是我们家人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1898578/)
+## 有声|中共挥霍数万亿邀外国政要站台北京冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1898674/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班农谈谁是我们的敌人，谁是我们家人-1-scaled.jpg)
-中共对我来说是敌人，中国老百姓不是。中共是中国老百姓的 敌人和美国的敌人，而且是人类的敌人。
-很好的例子就是新中国联邦人，你的母亲感染中共病毒，你非常担心你的生命受到威胁, 你的家人受到威胁，大家一起救人。
-CCP摧毁了中国人的价值观， 看看中共病毒造成了多少病亡，中共是唯物主义无神论，他们没 有信仰，他们不相信上帝，他们就想要权力和钱。
-共产党让我们 所有人都受到威胁，我告诉你，我的家人都感染了，我跟文贵说， 文贵马上找了志愿者，马上到了卡罗来纳州，然后马上就给了硫酸羟氯奎、伊维菌素，几天之内就好了，这就是新中国联邦的精神。
+配音：香草山农场 – 纳米
 
-郭先生一个电话，新中国联邦人20小时开车到了卡罗来纳州，救了我的家人，志愿者这种精神就是新中国联邦人的精神，家人才是最重要的，根本不是中共最重要的。
 
-发布：于white
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月21日，郭文贵先生在盖特视频中透露，中共不惜花费数万亿人民币利诱俄罗斯以及其他几个小国家给此次冬奥会站台、捧场。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+郭先生爆料称，在即将到来的中共北京冬奥会上，仅普京一人24小时的出场费就高达一千多亿美元，这相当于中共国内某省份整整一年的总产值。然而，努力创造了这些财富的中国人民却变得日益穷困、多病，更遭受着非人的待遇。郭先生为此感叹道，中共国的财富都是由百姓创造的，但它们却被中共盗国贼们拿去肆意挥霍。而普通百姓的悲哀在于，他们的快乐更少，疾病却越来越多。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+文字版原文：[中共挥霍数万亿邀外国政要站台北京冬奥会](https://gnews.org/zh-hans/1894926/)
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
