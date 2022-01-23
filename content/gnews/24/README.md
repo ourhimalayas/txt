@@ -2,31 +2,31 @@
 ---
 
 
-## 世茂300亿卖上海项目，7.7折卖地块股权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1896755/)
+## 有声|法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896784/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-35.jpg)世茂300亿卖上海项目，7.7折卖地块股权 网络图片
-据澎湃新闻1月22日报道，世茂集团21日公告称，以10.6亿元的总价出售上海北外滩核心区项目公司股权。该项目原报价13.8亿元，现以七七折售出。自从去年8月宣布出售资产至今，世茂集团已经成交两个项目，回笼现金31.46亿元。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月20日，法国国民议会以169票对1票，压倒性通过决议案，认定并谴责中共在新疆犯下“反人类与种族灭绝罪”。
 
-世茂集团放售上海10个项目，总报价为296.06亿元。除了北外滩，其他9个项目对外报价近282.26亿元，已经抵押融资163.18亿元。如果10个项目全部出售，世茂集团最多可回笼资金129.68亿元。
+前一天，法国总统马克龙在欧洲议会表示，将捍卫欧盟禁止使用强迫劳动生产的产品的禁令。并强调若强迫劳动的公约没有获得批准，就不会有欧中投资协议。
 
-当初多大手笔买，如今多大手笔卖，中共国房地产业已经病入膏肓。变卖资产只是打一剂强心针，勉强支撑一下，最后还是要倒下，再也站不起来。假的就是假的，不可能撑到最后。
+此前，美国、英国、荷兰、加拿大、比利时、立陶宛、捷克等国家议会，先后认定中共对维吾尔族犯下种族灭绝罪行。
 
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16400756](https://www.thepaper.cn/newsDetail_forward_16400756)
+文字版原文：[法国议会压倒性通过决议，认定中共犯下“反人类与种族灭绝罪”](https://gnews.org/zh-hans/1892363/)
 
-* * *
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

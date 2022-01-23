@@ -2,29 +2,21 @@
 ---
 
 
-## 有声|周四晚Twitter发生严重宕机事故
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1896786/)
+## 2022年1月22日郭先生盖特 — 视频1「2分36秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1896877/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据外媒报道，1月20日周四晚6点至8点，大量用户报告在使用Twitter时发生了问题。
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-据Downdetector称，53%的Twitter用户在使用该网站时遇到问题，36%的用户在使用该应用程序时遇到问题，12%的用户报告在服务器连接时遇到问题。
+Video link: [https://gettr.com/post/ppys4db8a8](https://gettr.com/post/ppys4db8a8)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/426D257D-65CE-4532-91DE-E86E630AB82E.jpeg)
+兄弟姐妹们，你健身了吗？兄弟姐妹们，这共产党真完球蛋了：在国内抓人；银行钱取不出来；房地产很多城市打5折都没人买 — 咋弄嘞？！下周你会看到冬奥会的很多灾难的新闻会出来。完了！完了！完了！
 
-目前事故原因尚未确定。
+【🎵】Hcoin To the Moon～～～飞啦！飞啦！Hcoin To the Moon！
 
-文字版原文：[周四晚Twitter发生严重宕机事故](https://gnews.org/zh-hans/1893845/)
+真好！别忘了锻炼，兄弟姐妹们。昨天的大直播太好了。给大家报告一下：明天星期天没有大直播，星期一也不确定，因为连着两天都开很重要很重要的会。如果星期一开完了，星期一有大直播；如果星期天没开完星期一还要继续开，那就是星期二直播了，甚至推到星期三了。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+没办法了兄弟姐妹们，抱歉，好吧？等通知吧。啥都不说了，姆盖嗮～
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
