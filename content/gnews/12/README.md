@@ -2,57 +2,47 @@
 ---
 
 
-## 阿尔伯塔省承认玩弄了新冠疫苗接种的统计数据
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904546/)
+## 小罗伯特·肯尼迪发表演讲反对强制疫苗和医疗暴政
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1904547/)
 
-#### 超过一半的新接种疫苗的死亡病例被混杂在未接种疫苗的人身上
+翻译：**Lulumi**
 
-2021-01-24
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Bobby-Kennedy-Jr..jpg)图片来源：thegatewaypundit.com
 
-原文作者：Joel Smalley
+数以千计的美国人在这个寒冷的日子里来到华盛顿特区，参加“反对强制疫苗和医疗暴政”的游行。
 
-**翻译：Sandy**
+我的一位朋友分享说，小罗伯特·肯尼迪今天的演讲是林肯纪念堂有史以来最伟大的演讲之一。
 
-那些做过一点点研究的人都会知道，第一剂 COVID 疫苗没有带来任何保护。
+小罗伯特·肯尼迪在反对疯狂的COVID-19强制疫苗方面发挥重要作用，同时与医学界的那些医生和世界各地的人们站在一起，反对正在发生的疫苗和医疗暴政。肯尼迪因其著作《真正的福奇》而闻名，这是一本畅销书，对COVID中共病毒大流行进行了直率的讨论。
 
-因此，想像一下，如果你把所有在第一次接种疫苗后的14 天内的感染事件（病例、住院和死亡）全部转移到未接种疫苗的人群中，疫苗有效性统计数据将是何等的混杂。
+以下是今天小罗伯特演讲的部分内容：
 
-好吧，现在我们从[阿尔伯塔省政府公布的数据](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)中可以肯定地知道, 这些数据与世界上其他任何地方一样，他们通过遵循药物制造商在双盲临床试验中设定的欺诈标准,  声称疫苗的有效性极佳，即忽略给药后最初两周的不良结果。
+…在操纵和过度扩大PCR测试的使用方面、精心策划的混乱和恐惧方面，我称之为信息混乱。通过改变死亡证明的计算方法，完全没有任何关于病例死亡率或感染死亡率的良好数据，也没有我们的公共卫生机构应该告诉我们的所有事情，以便我们能够与我们的医生一起单独评估风险、治疗和预防方案。我们没有得到任何这些信息。我们得到的信息被严重地、严重地操纵了……
 
-但后来他们做得更过份，实际上也夸大了未接种疫苗的感染人数。自然，这次是把接种第 2 剂疫苗 14 天内的人数赖到只接种一针的人数之中。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fe3a665fa-6888-4992-9fb0-b03b9565b7d3_3251x1822.png)完成接种新冠疫苗的时间和住院率
-新接种疫苗的所有 COVID 住院患者中，**几乎有一半发生在 14 天内**，这意味着他们在统计数据中被视为未接种疫苗。
+…顺便说一下，辉瑞和FDA拒绝出示50万页的疫情数据，因为他们说这太麻烦了….他们说55年内都不能给我们看。
 
-幸运的是，他们还公布了每个案例从剂量到感染的时间，从而无意中让我们了解了这种不诚实的程度，从而使我们能够重新计算有多少前 14 天内的病例从接种疫苗者转移到未接种疫苗人群。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F155db86f-32bb-4756-a9a7-b896e72eac0c_3251x1822.png)完成接种新冠疫苗的时间和实际住院治疗病例
-不仅如此，几乎 80% 的病例发生在接种疫苗 45 天内。我得和我的朋友 Jessica Rose核实一下，她是时间因果关系方面的专家，但对我来说这看起来很有说服力。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fbd5508a8-bb5a-4886-8c51-2b81580631cf_3251x1822.png) 完成接种新冠疫苗的时间和死亡率
-在死亡人数方面，不诚实的情况更为严重，新接种疫苗的死亡人数中近 56% 发生在接种14天内，近 90%发生在45天内。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F36ab346b-3156-4bdc-af59-aee8f903522c_3251x1822.png) 完成接种新冠疫苗的时间和死亡数量
-像往常一样，如果你对公共卫生信息感兴趣，你应该非常警惕来自公共卫生当局的任何信息，这些信息随后被宣传媒体和他们的其他傀儡所宣传。
+…如果你注射了疫苗，你在未来六个月内死亡的几率会增加21%…
 
-你的生活很可能取决于这些信息。
+…他们必须注射2.2万支疫苗才能保护一个人不会死于COVID。如果你用2.2万支疫苗来防止一个人死亡，你最好确保疫苗不会杀死任何人，因为如果它杀死任何一个人，已经抵消了（疫苗）所有的好处。 但正如我们所看到的，疫苗组有21人死亡，而安慰剂组只有17人，那么这些多余的死亡来自哪里？这个问题的答案是心脏病发作…
 
-后记
+… 在我们指定一个人做科学之前，实际首先要通过正式地做研究来确定科学。
 
-作为对读者评论的回应，我还包括了病例数据。 它显然遵循相同的接种 14 天的模式。**新接种疫苗的所有 COVID 住院患者中，40% 的病例、48% 的住院到 56% 的死亡等发生在接种 14 天内。 **
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F86de4fbc-0404-4e8e-865b-932f55a244ef_3251x1822.png)完成接种新冠疫苗的时间和确诊率![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F7cfc241f-8adf-4466-b3c4-e8816991f84d_3251x1822.png)完成接种新冠疫苗的时间和确诊病例
-我想住院人数超过病例数和死亡人数超过住院人数可能会受到优先考虑病人的影响，但我认为这并不重要。无论如何，需要保护的是病人，而不是健康人！如果它没有改善病人的结果，那到底有什么意义呢？
+…现在他们知道11年前的系统已经坏了，他们知道11年前只计算了1%的疫苗伤害，现在他们告诉你这是高估了的疫苗伤害。那两万人并没有真正死于疫苗。那10万人并不是真的受伤……没有一项研究表明VAERS高估了疫苗伤害……。
 
-仅作记录，这里是病例的完整历史，并附有大规模疫苗接种运动的开始时间。是不是很有趣？
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F23f5b9e2-80d9-4cf8-8cf3-7fa9a2f80e96_3623x2113.png)每周确诊人数，附大规模疫苗接种运动的开始时间
-因此，事实证明，阿尔伯塔省突然争先恐后地从他们的网站上删除了有罪的数据。所以，这里是记录的[副本](https://twitter.com/mdccclxx/status/1482322137255923713?s=20)，这是[网络档案](https://web.archive.org/web/20220107094256/https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)。 真相不再被隐瞒。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fec838ce9-57c6-4413-bafd-f6aedf10ede2_1058x1244.jpeg)新冠疫苗接种时长和感染情况的记录
-**原文链接：
-**[Alberta just inadvertently confessed to fiddling the COVID vaccination stats.](https://metatron.substack.com/p/alberta-just-inadvertently-confessed?r=9hpvu&amp;utm_campaign=post&amp;utm_medium=email&amp;fbclid=IwAR0NOo_eA99bOeEz3zzOGXauZl08XkjSle5ruHMYzc6nYwNI7xfSfofH0aQ)
+…我们热爱美国的宪法。在过去的20个月里，我们目睹了一场针对民主的政变，以及对美国宪法和权利法案的毁坏，一个被控制的破坏，一切从审查开始。詹姆斯·麦迪逊、约翰·亚当斯、托马斯·杰斐逊都说过同样的话，我们把言论自由放在第一修正案中，因为我们试图保护的所有其他权利都依赖于这一权利……
 
-**编辑：MQ**
+…当他们把疫苗护照递给你的那一刻，你所拥有的每一项权利都变成了一种特权，取决于你是否服从政府武断的指令。
 
-**发布：MQ**
+参考资料：[thegatewaypundit][Bobby Kennedy Jr. Gives Historic Speech at Lincoln Memorial Today for March Against Vaccine Mandates and Medical Tyranny](https://www.thegatewaypundit.com/2022/01/bobby-kennedy-jr-gives-historic-speech-lincoln-memorial-today-march-vaccine-mandates-medical-tyranny/)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+* * *
+
+*审核：文乐
+校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
