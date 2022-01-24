@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 1/24/2022 6:07 PM (UTC)`
+
+New Release                                              Shop Now at www.gfashion.com
+![img](https://media.gettr.com/group9/getter/2022/01/24/18/b57304f8-6933-2483-e003-9d24a9eaba05/2489cbb273ed7cd22ce4b14ccbc159c1.jpg)
+
+---
+
 `@miles 1/24/2022 1:04 PM (UTC)`
 
 2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化
@@ -153,13 +162,6 @@ New Drop coming Monday at Noon on www.gfashion.com
 
 1/21/2022 Miles Guo: The Declaration of the New Federal State of China indicates that what we value and pursue are consistent with that of the Western society. The CCP’s turning the Winter Olympics into the games for only a few people is an insult to the Olympics spirit. I wisely convinced the athletes not to attend the Winter Olympics by using the videos of the dogs being caught in Beijing.<br/><br/>1/21/2022 文贵直播: 《新中国联邦宣言》体现出我们的价值和追求跟西方社会是一致的；中共把奥运会变成极少数人的运动会是对奥林匹克精神的亵渎；文贵机智地用北京抓狗的视频说服了运动员不参加冬奥会<br/>
 ![img](https://media.gettr.com/group28/getter/2022/01/22/16/29d447a8-d549-991e-c71d-3621ba37c410/out.jpg)
-
----
-
-`@miles 1/22/2022 4:05 PM (UTC)`
-
-1/21/2022 Miles Guo: The CCP is doomed, facing the diplomatic decoupling, technological decoupling, gloomy Winter Olympics, and the global investigation into the origin of the CCP virus. The CCP is commemorating Deng Xiaoping’s Southern Trip Speech in the hope of applying the emergency brake to sustain the regime, indicating the fierceness of the political infighting in the CCP. Only the one-person-one-vote election can save China! The Declaration of the New Federal State of China can resolve all the problems in China!<br/><br/>1/21/2022 文贵直播: 中共已穷途末路 - 面临外交脱钩、科技脱钩、冬奥会惨淡收场和全世界展开病毒溯源；中共纪念邓小平南巡讲话寄希望踩急刹车以续命， 突显中共激烈内斗！只有一人一票才能救中国！《新中国联邦宣言》能解决中国的所有问题！<br/>
-![img](https://media.gettr.com/group43/getter/2022/01/22/16/63d3b7a7-4224-d34d-3543-c4e43e55a7f9/out.jpg)
 
 ---
 

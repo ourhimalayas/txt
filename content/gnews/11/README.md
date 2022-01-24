@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|德州一联邦法官暂时阻止了对联邦雇员的疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904566/)
+## 摩托车手梅兰德里反对疫苗：“我故意得新冠病毒，绿色通行证是一种勒索”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1904577/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登总统对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
+**翻译：**文豪
+**校对：**小布丁奶茶
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Schermata-2022-01-15-alle-13.27.23.png)
+罗马——“我得新冠病毒是因为我自己想染上它，而且与许多接种疫苗的人不同，我付出了巨大的努力才被感染。 我这样做是为了能够保持良好的信誉至少几个月，这并不容易。 我不得不被感染，不得不工作并且不考虑将疫苗作为有效的替代品。 另一方面，我认识很多接种两次疫苗的人尝试感染新冠以避免第三剂。 然而，对我来说，绿色通行证过去和现在都是一种敲诈。我只会在工作时和必须陪伴女儿的情况下使用它。 我愿意只将它用于绝对必要的事情”。
 
-这个针对拜登政府疫苗强制令的诉讼，是由一个叫医疗自由联盟的组织发起的。
+Marco Melandri （马克-梅兰德里）在接受 Mowmag.com 采访时透露自己是一名未接种疫苗者，他在采访中承认他已尽一切努力感染病毒，以免接种疫苗。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+这位前摩托GP车手在社交媒体上宣布了他的积极性，并写到他被一个打了疫苗的人感染了。 梅兰德里说他“反对侵犯自由“。 宪法告诉我们，我们可以自由选择和选择对待自己的东西，而政府现在明显对我们不利。 我非常担心接下来会发生的事”。
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
+梅兰德里使用了无疫苗的所有修辞说法：疫苗的不确定性、死亡人数的不可靠性、媒体的夸大其词，甚至质疑种族主义。 当然，梅兰德里为德约科维奇辩护：“这太荒谬了。 他绝对没有过错，并且会毫无问题地呆在家里。 但是，就像其它事一样，他们随心所欲地出售它。 无论谁组织了世界上最重要的锦标赛之一，都不能不获得第一名，因此是他们竭尽全力让他进入。 但后来政治接管了，因为这个问题与健康无关。 德约科维奇被卷入了澳网组织者和政府之间的战争中，在猛烈一拳之后，他不能丢了面子。 我认为他对自己的职业生涯毫不在乎，我非常尊重他，因为他有价值观，这是正确的，因为这不再是健康紧急情况，而只是政治问题”。
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+**新闻来源**：[https://www.dire.it/15-01-2022/699146-moto-melandri-no-vax-ho-preso-il-covid-apposta-green-pass-un-ricatto/](https://www.dire.it/15-01-2022/699146-moto-melandri-no-vax-ho-preso-il-covid-apposta-green-pass-un-ricatto/)
 
-文字版原文：[德州一联邦法官暂时阻止了对联邦雇员的疫苗强制令](https://gnews.org/zh-hans/1901921/)
+* * *
 
-音频处理：Fei797
-发稿：Fei797
+原作者：[Mario Piccirillo](https://www.dire.it/author/mario-piccirillo/)
+发布：小布丁奶茶
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
