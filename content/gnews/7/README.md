@@ -2,30 +2,19 @@
 ---
 
 
-## 有声|信仰之路
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900373/)
+## 有声|美媒抨击强制疫苗令危害远胜切尔诺贝利
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900380/)
 
 配音：香草山福音部 – 文凯琳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-我们逃离了头顶的镰刀斧头
-我们挣脱了奴役的枷锁
-我们从假大丑中迷途知返
-得到摆渡的灵魂轻松愉快
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
 
-原来自由就是美好的开始
-真实就是幸福的由来
+据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
 
-独裁的统治下没有人权
-何来尊严
-万恶的中共没有人性
-何来公平
-
-原文链接：[信仰之路](https://gnews.org/zh-hans/1894252/)
+原文链接：[美媒抨击强制疫苗令危害远胜切尔诺贝利](https://gnews.org/zh-hans/1894157/)
 
 音频处理/发稿：Daxia
-
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -37,9 +26,7 @@
 [**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
 
 
  

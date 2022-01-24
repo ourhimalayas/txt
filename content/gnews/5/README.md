@@ -2,19 +2,21 @@
 ---
 
 
-## 有声|美媒抨击强制疫苗令危害远胜切尔诺贝利
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900380/)
+## 有声|中共国“负翁” 房产商奥园违约在即
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900390/)
 
 配音：香草山福音部 – 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月20日，郭文贵先生在盖特上就奥园不会支付债券时表示，中共国的企业，将会一批一批的倒下。同时，中共国也是全世界“负翁”最多的地方，这些企业连要饭的机会都不会有，而这只是刚刚开始。
 
-据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
+近日，中共国房地产商奥园集团表示，将不会支付2022年1月票据的余下本金及利息，亦不会支付2023及2024年票据项下利息。据相关信息显示，这些周四到期的美元票据和周日到期的单独债券，未偿票据本金总额达6.88亿美元。
 
-原文链接：[美媒抨击强制疫苗令危害远胜切尔诺贝利](https://gnews.org/zh-hans/1894157/)
+原文链接：[中共国“负翁” 房产商奥园违约在即](https://gnews.org/zh-hans/1892365/)
 
 音频处理/发稿：Daxia
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +28,9 @@
 [**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  

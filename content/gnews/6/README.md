@@ -2,130 +2,39 @@
 ---
 
 
-## 伊索贝尔·杨（Isobel Yeung), 爱吃狗肉
-` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/1900376/)
+## 有声|习听闻欧盟多国将同时关闭住中使馆后大怒上海帮
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900385/)
 
-作者：五月花农场 DM
+配音：香草山福音部 – 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月21日，据郭先生在大直播中透露，昨天下午，欧盟多国将同时关闭所有住中国的大使馆，而且是永久关闭。习听说这一消息后大怒，突然觉得上海帮玩弄了他。
 
-七年前，VICE记者制作人伊索贝尔·杨（Isobel Yeung）在中共国玉林狗肉节上吃狗肉，还赞狗肉味道不错，有牛、羊肉的感觉。而她也曾在个人账户上发布了想吃自己狗的帖文。
+郭先生以为，如果欧盟开始关闭住中使馆，美国一定跟着，美国的同盟也会跟着。这一刻如果发生，就预示着政治经济双脱钩，意味着中共开始倒计时。郭先生以前苏联为例，说其解体前，欧洲几大国就先与其断交，世界多国就跟着断交。中共走到今天是因他们对多国使用假、骗、偷，在世界放出黄、金、毒。
 
-据《新中国联邦宣言》12之规定，为促进人与动物生态和谐的共处。应立法禁食国家保护动物及于人类亲密的动物，如猫、狗、猴等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/c338d465-bb6b-45b8-a0c0-bdac4d1d0c41.jpg)
-- [64文宣作品选登](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/64%e6%96%87%e5%ae%a3%e4%bd%9c%e5%93%81%e9%80%89%e7%99%bb/)
-- [Articles](https://gnews.org/zh-hans/category/articles-3-zh-hans/)
-- [CCP](https://gnews.org/zh-hans/category/chinainsight-cn/ccp-news-zh-hans/)
-- [CCP Virus](https://gnews.org/zh-hans/category/ccp-virus-zh-hans/)
-- [Featured Articles](https://gnews.org/zh-hans/category/featured-articles-zh-hans/)
-- [Top Stories](https://gnews.org/zh-hans/category/top-stories-zh-hans/)
-- [Vaccine](https://gnews.org/zh-hans/category/vaccine-zh-hans/)
-- [专栏](https://gnews.org/zh-hans/category/columnist-cn/)
-- [专栏](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e7%a7%91%e5%ad%a6%e8%ae%ba%e2%bd%82%e5%8f%8a%e4%b8%93%e6%a0%8f/%e4%b8%93%e6%a0%8f/)
-- [中东](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/%e4%b8%ad%e4%b8%9c/)
-- [中国](https://gnews.org/zh-hans/category/chinainsight-cn/china-news-cn/)
-- [中国观察](https://gnews.org/zh-hans/category/chinainsight-cn/)
-- [中美经济](https://gnews.org/zh-hans/category/home-cn/china-us-economy-cn/)
-- [亚洲](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/%e4%ba%9a%e6%b4%b2/)
-- [亨特拜登](https://gnews.org/zh-hans/category/home-cn/hunter-biden-cn/)
-- [佳作推荐](https://gnews.org/zh-hans/category/home-cn/%e4%bd%b3%e4%bd%9c%e6%8e%a8%e8%8d%90/)
-- [全球灭共](https://gnews.org/zh-hans/category/world-news-cn/)
-- [全球追责](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e5%85%a8%e7%90%83%e8%bf%bd%e8%b4%a3/)
-- [六四图片类](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e5%85%ad%e5%9b%9b%e6%96%87%e5%ae%a3%e5%a4%a7%e8%b5%9b%e4%bd%9c%e5%93%81/%e5%85%ad%e5%9b%9b%e5%9b%be%e7%89%87%e7%b1%bb/)
-- [六四文宣大赛作品](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e5%85%ad%e5%9b%9b%e6%96%87%e5%ae%a3%e5%a4%a7%e8%b5%9b%e4%bd%9c%e5%93%81/)
-- [六四文章类](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e5%85%ad%e5%9b%9b%e6%96%87%e5%ae%a3%e5%a4%a7%e8%b5%9b%e4%bd%9c%e5%93%81/%e5%85%ad%e5%9b%9b%e6%96%87%e7%ab%a0%e7%b1%bb/)
-- [六四视频类](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e5%85%ad%e5%9b%9b%e6%96%87%e5%ae%a3%e5%a4%a7%e8%b5%9b%e4%bd%9c%e5%93%81/%e5%85%ad%e5%9b%9b%e8%a7%86%e9%a2%91%e7%b1%bb/)
-- [农场活动新闻](https://gnews.org/zh-hans/category/new-china-aniversary-cn/%e5%86%9c%e5%9c%ba%e6%b4%bb%e5%8a%a8%e6%96%b0%e9%97%bb/)
-- [北美洲](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/%e5%8c%97%e7%be%8e%e6%b4%b2/)
-- [医治⽅案](https://gnews.org/zh-hans/category/uncategorized-zh-zh-hans/%e5%8c%bb%e6%b2%bb%e2%bd%85%e6%a1%88/)
-- [华府新闻](https://gnews.org/zh-hans/category/bannon-usa-cn/)
-- [南美洲](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/%e5%8d%97%e7%be%8e%e6%b4%b2/)
-- [喜联盟](https://gnews.org/zh-hans/category/home-cn/%e5%96%9c%e8%81%94%e7%9b%9f/)
-- [图片](https://gnews.org/zh-hans/category/%e5%9b%be%e7%89%87/)
-- [地区新闻](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/)
-- [墙内404](https://gnews.org/zh-hans/category/%e5%a2%99%e5%86%85404/)
-- [大洋洲](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/%e5%a4%a7%e6%b4%8b%e6%b4%b2/)
-- [对⼈体危害](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e5%af%b9%e2%bc%88%e4%bd%93%e5%8d%b1%e5%ae%b3/)
-- [对社会危害](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e6%96%b0%e5%86%a0%e7%97%85%e6%af%92%e5%8d%b1%e5%ae%b3/%e5%af%b9%e7%a4%be%e4%bc%9a%e5%8d%b1%e5%ae%b3/)
-- [屏蔽](https://gnews.org/zh-hans/category/chinainsight-cn/china-news-cn/censored-news_cn/)
-- [川普总统](https://gnews.org/zh-hans/category/home-cn/donald-trump-cn/)
-- [往期直播](https://gnews.org/zh-hans/category/guo-cn/miles-broardcast-cn/broadcast-previous-years-cn/ "往年的直播文字整理")
-- [总统就职日](https://gnews.org/zh-hans/category/home-cn/inauguration-day-cn/)
-- [战友](https://gnews.org/zh-hans/category/contributors-cn/friends-cn/)
-- [战友](https://gnews.org/zh-hans/category/contributors-cn/%e6%88%98%e5%8f%8b/)
-- [战友故事](https://gnews.org/zh-hans/category/%e6%88%98%e5%8f%8b%e6%95%85%e4%ba%8b%e6%88%98%e5%8f%8b%e5%bf%83%e5%a3%b0/)
-- [战友故事&战友心声](https://gnews.org/zh-hans/category/new-china-aniversary-cn/%e6%88%b0%e5%8f%8b%e6%95%85%e4%ba%8b%e6%88%b0%e5%8f%8b%e5%bf%83%e8%81%b2-zh-hans/)
-- [战友观点](https://gnews.org/zh-hans/category/contributors-cn/)
-- [挖料战友](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/opinion/)
-- [推荐-墙内视频](https://gnews.org/zh-hans/category/home-cn/editor-pick-video-cn/)
-- [播客](https://gnews.org/zh-hans/category/video-cn/podcasts-cn/)
-- [政商各界](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e5%85%a8%e7%90%83%e8%bf%bd%e8%b4%a3/%e6%94%bf%e5%95%86%e5%90%84%e7%95%8c/)
-- [文章](https://gnews.org/zh-hans/category/contributors-cn/articles-cn/)
-- [⽂章](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e5%85%a8%e7%90%83%e8%bf%bd%e8%b4%a3/%e7%a7%91%e5%ad%a6%e7%95%8c%e5%92%8c%e5%8c%bb%e7%95%8c/%e2%bd%82%e7%ab%a0/)
-- [⽂章](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e5%85%a8%e7%90%83%e8%bf%bd%e8%b4%a3/%e6%94%bf%e5%95%86%e5%90%84%e7%95%8c/%e2%bd%82%e7%ab%a0-zh-hans/)
-- [⽂章](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%96%ab%e8%8b%97%e5%ae%9e%e5%86%b5/%e2%bd%82%e7%ab%a0-zh-hans-2/)
-- [⽂章](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e9%82%aa%e6%81%b6%e7%9a%84%e4%b8%ad%e5%9b%bd%e5%85%b1%e4%ba%a7%e5%85%9a/%e2%bd%82%e7%ab%a0-zh-hans-3/)
-- [文贵视角](https://gnews.org/zh-hans/category/guo-cn/miles-perspective-cn/)
-- [新中国联邦](https://gnews.org/zh-hans/category/chinainsight-cn/nfn-cn/)
-- [新中国联邦一周年庆典](https://gnews.org/zh-hans/category/new-china-aniversary-cn/ "新中国联邦一周年庆典")
-- [新冠病毒危害](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e6%96%b0%e5%86%a0%e7%97%85%e6%af%92%e5%8d%b1%e5%ae%b3/)
-- [新闻轮播图](https://gnews.org/zh-hans/category/new-china-aniversary-cn/%e6%96%b0%e9%97%bb%e8%bd%ae%e6%92%ad%e5%9b%be/)
-- [新闻速递](https://gnews.org/zh-hans/category/home-cn/news-flash-cn/)
-- [最新动态](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e6%9c%80%e6%96%b0%e5%8a%a8%e6%80%81/)
-- [最新研究](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e6%9c%80%e6%96%b0%e7%a0%94%e7%a9%b6/)
-- [未分类](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/)
-- [未分類](https://gnews.org/zh-hans/category/uncategorized-zh-zh-hans/)
-- [欧洲](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/%e6%ac%a7%e6%b4%b2/)
-- [每日郭文](https://gnews.org/zh-hans/category/guo-cn/daily-miles-cn/)
-- [民间爆料](https://gnews.org/zh-hans/category/chinainsight-cn/china-news-cn/people-revealed-cn/)
-- [灭共政策](https://gnews.org/zh-hans/category/home-cn/anti-ccp-policy-cn/)
-- [灭共者联盟](https://gnews.org/zh-hans/category/home-cn/alliances-cn/)
-- [热点头条](https://gnews.org/zh-hans/category/home-cn/home-breaking-cn/)
-- [班农](https://gnews.org/zh-hans/category/bannon-usa-cn/bannon-cn/)
-- [⽣物武器研究](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8/%e2%bd%a3%e7%89%a9%e6%ad%a6%e5%99%a8%e7%a0%94%e7%a9%b6/)
-- [电视台](https://gnews.org/zh-hans/category/nfsctv-cn/)
-- [疫情时间线](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%96%ab%e6%83%85%e6%97%b6%e9%97%b4%e7%ba%bf/)
-- [疫苗-病毒](https://gnews.org/zh-hans/category/ccpvirus-cn/)
-- [疫苗实况](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%96%ab%e8%8b%97%e5%ae%9e%e5%86%b5/)
-- [病毒真相](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8/)
-- [病毒真相资料库(病毒专栏专用)](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/)
-- [盖特](https://gnews.org/zh-hans/category/guo-cn/miles-getter-cn/)
-- [直播](https://gnews.org/zh-hans/category/guo-cn/miles-broardcast-cn/)
-- [短视频](https://gnews.org/zh-hans/category/guo-cn/video-clips-cn/)
-- [研究与报道](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e9%a2%84%e9%98%b2%e4%b8%8e%e6%b2%bb%e7%96%97/%e7%a0%94%e7%a9%b6%e4%b8%8e%e6%8a%a5%e9%81%93/)
-- [社交媒体](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e7%a4%be%e4%ba%a4%e5%aa%92%e4%bd%93/)
-- [科学界和医界](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e5%85%a8%e7%90%83%e8%bf%bd%e8%b4%a3/%e7%a7%91%e5%ad%a6%e7%95%8c%e5%92%8c%e5%8c%bb%e7%95%8c/)
-- [科学论⽂](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8/%e7%a7%91%e5%ad%a6%e8%ae%ba%e2%bd%82/)
-- [科学论⽂及专栏](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e7%a7%91%e5%ad%a6%e8%ae%ba%e2%bd%82%e5%8f%8a%e4%b8%93%e6%a0%8f/)
-- [秘密翻译组](https://gnews.org/zh-hans/category/columnist-cn/columnist-secret-translate-team-cn/)
-- [经典回顾](https://gnews.org/zh-hans/category/home-focus-cn/highlights-cn/)
-- [经典回顾](https://gnews.org/zh-hans/category/guo-cn/classic-review-cn/)
-- [自由香港](https://gnews.org/zh-hans/category/chinainsight-cn/freehk-cn/)
-- [要闻](https://gnews.org/zh-hans/category/home-focus-cn/)
-- [观点](https://gnews.org/zh-hans/category/contributors-cn/opinions-cn/)
-- [观点](https://gnews.org/zh-hans/category/guo-cn/guo-opinions-cn/)
-- [视频](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e5%85%a8%e7%90%83%e8%bf%bd%e8%b4%a3/%e7%a7%91%e5%ad%a6%e7%95%8c%e5%92%8c%e5%8c%bb%e7%95%8c/%e8%a7%86%e9%a2%91/)
-- [视频](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e5%85%a8%e7%90%83%e8%bf%bd%e8%b4%a3/%e6%94%bf%e5%95%86%e5%90%84%e7%95%8c/%e8%a7%86%e9%a2%91-zh-hans/)
-- [视频](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%96%ab%e8%8b%97%e5%ae%9e%e5%86%b5/%e8%a7%86%e9%a2%91-zh-hans-2/)
-- [视频](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e9%82%aa%e6%81%b6%e7%9a%84%e4%b8%ad%e5%9b%bd%e5%85%b1%e4%ba%a7%e5%85%9a/%e8%a7%86%e9%a2%91-zh-hans-3/)
-- [视频播客](https://gnews.org/zh-hans/category/video-cn/)
-- [视频文字](https://gnews.org/zh-hans/category/guo-cn/video-text-cn/)
-- [视频文字](https://gnews.org/zh-hans/category/video-cn/%e8%a7%86%e9%a2%91%e6%96%87%e5%ad%97/)
-- [视频访谈](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e9%a2%84%e9%98%b2%e4%b8%8e%e6%b2%bb%e7%96%97/%e8%a7%86%e9%a2%91%e8%ae%bf%e8%b0%88/)
-- [误导信息揭露](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8/%e8%af%af%e5%af%bc%e4%bf%a1%e6%81%af%e6%8f%ad%e9%9c%b2/)
-- [邪恶的中国共产党](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e9%82%aa%e6%81%b6%e7%9a%84%e4%b8%ad%e5%9b%bd%e5%85%b1%e4%ba%a7%e5%85%9a/)
-- [郭文贵](https://gnews.org/zh-hans/category/guo-cn/)
-- [郭爆料](https://gnews.org/zh-hans/category/guo-cn/miles-expose-cn/)
-- [重大新闻](https://gnews.org/zh-hans/category/new-china-aniversary-cn/%e9%87%8d%e5%a4%a7%e6%96%b0%e9%97%bb/)
-- [重点推荐](https://gnews.org/zh-hans/category/ccpvirus-cn/editors-pick-cn/)
-- [闫博士视频访谈](https://gnews.org/zh-hans/category/uncategorized-zh-zh-hans/%e9%97%ab%e5%8d%9a%e2%bc%a0%e7%a7%91%e5%ad%a6%e6%8a%a5%e5%91%8a/%e9%97%ab%e5%8d%9a%e5%a3%ab%e8%a7%86%e9%a2%91%e8%ae%bf%e8%b0%88/)
-- [非洲](https://gnews.org/zh-hans/category/%e5%9c%b0%e5%8c%ba%e6%96%b0%e9%97%bb/%e9%9d%9e%e6%b4%b2/)
-- [预防与治疗](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e9%a2%84%e9%98%b2%e4%b8%8e%e6%b2%bb%e7%96%97/)
-- [预防与治疗⽅案](https://gnews.org/zh-hans/category/%e7%97%85%e6%af%92%e7%9c%9f%e7%9b%b8%e8%b5%84%e6%96%99%e5%ba%93/%e9%a2%84%e9%98%b2%e4%b8%8e%e6%b2%bb%e7%96%97/%e9%a2%84%e9%98%b2%e4%b8%8e%e6%b2%bb%e7%96%97%e2%bd%85%e6%a1%88/)
-- [预防与治疗⽅案0](https://gnews.org/zh-hans/category/%e6%9c%aa%e5%88%86%e7%b1%bb/%e9%a2%84%e9%98%b2%e4%b8%8e%e6%b2%bb%e7%96%97%e2%bd%85%e6%a1%880/)
-- [首页-公告区](https://gnews.org/zh-hans/category/home-cn/home-bulletin-cn/)
-- [首页-图片新闻](https://gnews.org/zh-hans/category/home-cn/home-pic-cn/)
-- [首页特别分类](https://gnews.org/zh-hans/category/home-cn/)
+郭先生认为，多国与中共断交，是新中国联帮的实力所致，这些与中共断交的国家，必找一个代表中国人的机构，新中国联帮就是唯一的选择。这些与中共经济脱钩的国家，他们的钱只有一个好去处，那就是喜联储。
 
- 
+原文链接：[习听闻欧盟多国将同时关闭住中使馆后大怒上海帮](https://gnews.org/zh-hans/1894674/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
