@@ -2,44 +2,54 @@
 ---
 
 
-## 奥地利议会批准成人疫苗强制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1904453/)
+## 日本民调显示八成五民众对中共无好感，对台美印象佳
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904499/)
 
-据《ABC新闻》转《美联社》作者：EMILY SCHULTHEIS 和 GEIR MOULSON，2022年1月20日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2007-e1643044060337.png)图片来源：wrek.com
-**维也纳——奥地利议会周四投票决定从2月1日起对成人实施 COVID-19强制疫苗，成为欧洲首个实施疫苗强制令的国家。对不遵守疫苗规定的人在经过多次提醒（无效）后最高可能处以3,600欧元（4,000美元）的罚款。**
+**作者**：纽约香草山 医疗部-云豹
 
-该措施适用于所有18岁及以上的奥地利居民。 孕妇、因医疗原因无法接种疫苗的人或在过去六个月内从冠状病毒中康复的人可以豁免。
-
-经过激烈辩论后，该措施在议会轻松通过。卡尔·内哈默（Karl Nehammer）总理执政联盟，由保守派奥地利人民党和绿党组成，与议会三个反对党中的两个就该计划达成了合作。极右翼自由党强烈反对。
-
-**“我感到无比震惊，”自由党领袖赫伯特·基克尔（Herbert Kickl）说，“这项法律除了是对奥地利人自由的巨大打击，什么也不是。”**
-
-其他四个政党发言人批评所谓自由党蓄意在奥地利煽动反疫苗情绪的企图，指责它故意散布关于现有疫苗安全性和有效性的谎言。
-
-反对党社会民主党领袖帕梅拉·伦迪-瓦格纳（Pamela Rendi-Wagner）表示，疫苗强制是“我们都不想要的”，但“不幸的是，有必要弥合奥地利仍然存在的疫苗接种缺口。”
-
-**自疫苗强制计划宣布以来，该措施已导致维也纳多次大规模示威活动，其中一些示威活动吸引了超过40,000名抗议者。**
-
-其他一些欧洲国家已经针对特定专业或年龄组引入了疫苗强制计划。
-
-奥地利的邻国德国正在考虑对所有人进行强制疫苗，但目前尚不清楚这是否会发生，在何时以及以何种形式发生。
-
-原文连接：[https://abcnews.go.com/Health/wireStory/austrian-parliament-vote-universal-vaccine-mandate-82368990](https://abcnews.go.com/Health/wireStory/austrian-parliament-vote-universal-vaccine-mandate-82368990)
-
-翻译：洛杉矶盘古农场 – 海潮
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+当地时间1月22日，日本媒体报导日本政府所做的民调结果，显示八成五的日本民众认为日本与中共的关系不良好。九成一的民众认为日本与美国的关系良好。另外台湾驻日代表处委托民调单位所做的结果显示，近八成的日本民众觉得对台湾有亲近感。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1024x768_20210106000123.jpg)
+
+日本政府是在去年9月底至11月针对全国18岁以上的3000人以邮寄方式实施民调，获得1701人（约56.7%）作答。与上次民调比较，此次民调中，民众认为与中共关系良好的减少了近三个百分点。认为与美国关系良好的增加了五个百分点。
+
+台湾驻日代表处是于去年11月14日至26日，委托日本民调公司进行日本民众对台湾观感的民调。结果显示，七成八的日本受访者对台湾有亲近感，近七成到八成的受访者觉得台湾可信赖、台日关系良好，以及认为台日关系将来会有发展。
+
+新闻链接：
+
+[https://www.cna.com.tw/news/firstnews/202101060285.aspx](https://www.cna.com.tw/news/firstnews/202101060285.aspx)
+
+[https://www.cna.com.tw/news/aopl/202201230003.aspx](https://www.cna.com.tw/news/aopl/202201230003.aspx)
+
+***总编：文真***
+
+***校对/发稿：遍地开花***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
+
+
+
+
 
  
 

@@ -2,33 +2,44 @@
 ---
 
 
-## 毕尔巴鄂反对疫苗和COVID护照示威游行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1904377/)
+## 英国央行称通胀可能在长时间保持高位
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904390/)
 
-翻译：七龙珠
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/EW7ZRZOD4FJERGJ77GD7BKUBI4.jpg)
+英国央行总裁Andrew Bailey认为，通胀压力可能比之前预测的更持久，理由是能源成本飙升，且有迹象表明成本压力正在影响薪资水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-24-173356.jpg)图片来源 ：elcorreo.com
+Bailey表示，英国央行将竭尽全力缓解家庭压力。稍早，英国国家统计局表示，英国12月消费者物价指数(CPI)较上年同期上涨5.4%，涨幅高于预期，且创1992年3月以来的最大涨幅，11月为上涨5.1%。
 
-根据市警察局的估计，超过15000人，本周六在西班牙毕尔巴鄂市举行“反对covid护照”示威游行。在“停止独裁护照，自由”的口号下，示威由Bizitza平台召集，该平台汇集了约30个不同类型的社会、文化和专业协会。
+投资者认为，英国央行在2月3日将银行利率上调至0.5%的可能性超过80%，12月，英国央行将利率从0.1%上调至0.25%，成为自疫情爆发以来第一个上调借贷成本的主要央行。
 
-游行者来自巴斯克地区的各个地方：伊伦、杜兰戈、圣塞巴斯蒂安、埃尔戈巴尔……，也有来自纳瓦拉、阿斯图里亚斯、坎塔布里亚和阿拉贡，他们各自举着各个州的旗帜，许多人乘坐停在体育场附近的大约15辆巴士到达这里。
+同时，欧洲央行会议记录显示决策者对通胀前景的看法存在严重分歧。欧洲央行在12月16日的会议上削减了对经济的刺激力度，但将债券购买计划延长至至少2022年底，理由是到今年年底通胀可能会回落至2%的目标以下，这一决定并没有获得一致通过，会议记录显示，决策者对这一前景存在严重分歧，25名政策制定者中有不少人认为，通胀有超出预期的风险。
 
-在消防员的带领下，示威者在下午五点在卡西利亚集合。人们散发着传单，谴责强迫儿童戴口罩“是虐待儿童”，反对“接种实验性药物”——疫苗，尤其是对儿童，并说 “那些想要征服我们的人对所有热爱自由的人类所宣称的战争远未结束”。Bizitza则分发了一张纸条，详细说明了“在接种实验性药物（疫苗）之前你应该要求的权利”。
+欧洲央行在会议记录中称，“有人警告称，不能排除通胀‘在更长时间内超过目标’的情况。”“对于2023年和2024年，基线预测中的通胀已经相对接近2%，考虑到预测的上行风险，通胀很容易就会保持在2%之上。”
 
-许多示威者举着标语，上面写着“停止vacunazi护照”；“Urkullu，我们也投票”；“健康证——奴隶制”，“恐怖主义记者”或“这不是保健，是独裁”等信息。在整个游行过程中，人们高呼类似的信息，号召“人民团结起来永远不会被打败”、“自由”和“继续前进（战斗），直到胜利”等经典语录，游行顺利进行。
+25名管委会成员中有五人反对12月的政策举措，对于通常争取共识且不总是进行正式投票的管委会来说，持不同意见的人数之多实属罕见。欧洲央行的主流观点是，即便不采取政策行动，通胀率也将会自行减弱。
 
-在许多没有戴口罩的示威者中，很容易收集到反对媒体的意见：“只公布官方数据，这是被操纵的”，一位来自帕萨亚的年轻妇女说，她和她的两个女儿参与了游行。“我不反疫苗，但我反对他们强迫我们这样做”。她补充说：“这是歧视”。COVID护照是一种控制手段，但并不代表真实的健康。来自坎塔布里亚的奥尔加-达里奥说：“这是一种社会控制的工具，一种强迫你接种疫苗的方式，但毫无意义。我没打疫苗，但我是健康的，他们不让我进入健身房，而你如果接种疫苗而且被感染了，因为你有疫苗护照，你可以去任何你想去的地方并感染其他每个人。”
+目前，通胀率已达到创纪录的5%，是欧洲央行目标的两倍多。过去10年，欧洲央行的预测一直与实际通胀发展水平不符，政策制定者在最近几次会议上对该行的预测模型提出了质疑。
 
-晚上七点游行者到达市政厅广场，他们用巴斯克语和西班牙语宣读宣言，呼吁反抗强加的“耻辱护照”，要求“自由和尊重”，并呼吁所有人们团结起来“捍卫被盗、被掩盖的真理”。
+新闻链接：
+1:[https://www.reuters.com/business/bank-england-raise-rates-again-february-inflation-surges-2022-01-21](https://www.reuters.com/business/bank-england-raise-rates-again-february-inflation-surges-2022-01-21)
+2:[https://www.reuters.com/world/uk/boe-needs-lean-against-rising-price-pressures-mann-2022-01-21/](https://www.reuters.com/world/uk/boe-needs-lean-against-rising-price-pressures-mann-2022-01-21/)
+3:[https://www.reuters.com/world/uk/boes-bailey-sees-extra-inflation-risk-russia-ukraine-tension-2022-01-19/](https://www.reuters.com/world/uk/boes-bailey-sees-extra-inflation-risk-russia-ukraine-tension-2022-01-19/)
 
-新闻来源：[elcorreo.com] [15.000 personas se manifiestan en Bilbao contra la vacuna y el pase covid](https://www.elcorreo.com/bizkaia/manifestacion-bilbao-pasaporte-covid-20220122160810-nt.html)
+编辑/校对/发稿：文留
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*审核：Aries的星
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
