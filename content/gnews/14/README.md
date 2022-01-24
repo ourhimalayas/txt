@@ -2,25 +2,42 @@
 ---
 
 
-## 【秘翻在线】超过2万名美国人参加了华盛顿特区游行，反对强制疫苗和医疗暴政
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899736/)
+## 加密货币近日大跌浅析
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1899747/)
 
-**撰稿：Grace**
+**译评：Elli**
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-3.29.08-PM.jpeg)图片来源：newswars
-据The Gateway Pundit 1月23日报道，今天有超过2万名美国人冒着严寒参加了在华盛顿特区举行的 “战胜强制”（“DEFEAT THE MANDATES”）集会。
+以太坊和比特币这两日大幅下跌，主流媒体归咎于以太坊和比特币近期大幅下跌的背景是通胀持续飙升、2021年12月令人失望的美国就业报告，以及美联储12月FMOC会议纪要表明美国中央银行将开始放慢提振经济的措施。
 
-报道称，目前美国国内关于冠状病毒的几位发声者和顶级权威人士都参加了这次和平集会。
+2022年1月20日，媒体报道俄罗斯表示像比特币这样的加密货币非常不稳定，认为其主要用于逃税和欺诈等邪恶活动，俄罗斯中央银行正在考虑在全国范围内禁止使用和开采加密货币。而巧合的是，美联储则表示正在权衡其数字美元 CBDC（全称Central Bank Digital Currency，也就是央行的数位货币。 虽然目前多数国家央行对于CBDC的发行架构、方式仍在研究试验阶段）。当日比特币（BTC）本来反弹到43500美金，当时看起来熊市已经服软认输，牛市反弹在际。随后急剧下跌到38000美金，很多交易者都低估BTC的当日巨大波动性而被强制平仓。
 
-演讲者包括：小罗伯特·肯尼迪（**Robert F. Kennedy, Jr., ）**，保罗·亚历山大博士 (Dr. Paul Alexander) 、罗伯特·马龙博士 (Dr. Robert Malone) 、彼得·麦卡洛博士 (Dr. Peter McCullogh) 、劳拉·洛根 (Lara Logan) 、史蒂夫·基尔希 (Steve Kirsch) 等。
+比特币等加密货币从诞生之日，就不断被各国央行打压，宣判死亡达500次以上，尤其被俄罗斯、中国和印度惯以金融犯罪，洗钱等罪名恐吓镇压加密货币。中国也正在走向中央银行数字货币，2021年迫不及待驱逐禁止所有加密货币在境内的交易挖矿。似乎没有主流媒体质疑各国中央银行印发的纸币（fiat money）也早就应用于电商平台，是实际的纸币数字化版本，相比较之下，加密货币并不是真正的新鲜事物。
 
-据报道，超过六千名联邦工作人员也将参加在华盛顿的集会，包括：消防员、急救人员、医生和参加了“美国人参加和平游行”的 人，以挫败中共病毒Covid-19疫苗强制规定。
+俄国中央银行从什么时候对任何类型的资产发出过警告？俄罗斯关于比特币BTC逃税和欺诈的废话，甚至美联储主席耶伦也认为是无稽之谈。银行家们或许意识到他们无法欺骗大众关于超发货币的谎言，或许只是想吓唬和阻止新投资者发现加密货币。
+
+要知道加密货币的目的就是拆毁纸币的无上限被各国政府当成印钞机的模式，是中央银行的死对头，仇家的评论怎么会公允呢？主流媒体大肆报道每次不同政府对比特币等加密货币的批评打压，却忽略俄罗斯货币卢布在过去20年里已经下降了90%，土耳其货币里拉最近一年也是暴跌，他们批评加密货币波动性剧烈，难道这两个国家的主权法币波动就不剧烈？
+
+目前加密货币市场情绪急剧看跌，如下图所示恐惧指数低至13，属于极度恐惧的范畴。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/A3E07538-6FA3-4F07-A5A5-C154B9B8BF61.png)虚拟货币恐惧指数，图片来源：[Alternative.me](https://alternative.me/crypto/fear-and-greed-index/)
 
 
+绝大多数都认为BTC现在正在走低并且加密货币牛市已经结束。其中很大一部分理论依据来自简单地将过去的牛市周期施加到当前的牛市周期中。注意BTC是一项正在成熟的资产，其购买者的结构正在发生变化。不管你喜欢与否，华尔街和机构资金已经进入了这个市场，而且很可能会继续涌入。随着美元指数（DXY）下跌（2022 年），这次空头袭击加密货币可能为了振作美元而进行的多方面有预谋的协调袭击。表层之下暗涛汹涌，只有在1月20日参与袭击的卖家才知道详情。即使金融崩溃的发生使加密货币继续走低，极端的低点价位也会稍纵即逝。每个人都预期BTC继续大跌的时候，事实反而不会发生。
 
-**新闻来源： ****[PHOTOS AND VIDEO: Over 20,000 Americans March in Washington DC Against Vaccine Mandates and Medical Tyranny](https://www.thegatewaypundit.com/2022/01/20000-americans-march-washington-vaccine-mandates-medical-tyranny/)**
+**评：文贵先生之前就反复强调BTC市场是6%的人拥有94%的比特币，严重被操纵，也一定会归零。也是3年前所有人都不看好比特币的时候，认为期未来价值可以在10万，20万美金以上，并且在2022年1月22日的大直播中提到比特币很有可能涨到10万，50万，甚至100万美金。加密货币市场动荡起伏，但对比这两年各国央行印钞大放水的纸币，其总市值占比连百分之一都不到。而且其背后的区块链技术是人类金融史上前所未有的突破，潜力足以打破数百年来中央银行对货币的垄断。路遥知马力，日久见币值。 **
 
+**参考链接：**
+
+1. [https://dollarvigilante.com/blog/2020/05/20/bitcoin/#updatelink](https://dollarvigilante.com/blog/2020/05/20/bitcoin/#updatelink)
+
+2. [https://www.investopedia.com/terms/c/central-bank-digital-currency-cbdc.asp](https://www.investopedia.com/terms/c/central-bank-digital-currency-cbdc.asp)
+
+**编辑：MQ**
+
+**发布：歪桑**
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

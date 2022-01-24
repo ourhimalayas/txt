@@ -2,30 +2,45 @@
 ---
 
 
-## 接种疫苗最多的以色列创COVID-19病例新记录
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1899493/)
+## 研究发现的冠状病毒自然疗法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1899519/)
 
 **编译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip06-5.png)2021 年 11 月 29 日，一名医务人员在以色列耶路撒冷的一个 COVID-19 直通测试点从一名以色列边防警卫那里收集拭子样本。（Ahmad Gharabli/AFP via Getty Images）
-以色列卫生部本周宣布，超过 72,000 人的 CCP病毒检测呈阳性，这是自大流行开始以来感染人数的最大增幅。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip07-6.png)甘草甜素（甘草）似乎在冠状病毒复制的早期阶段更有效。
+（美联社照片/帕特里克·西森）
+与大众主流媒体的假设相反，冠状病毒并非未知领域。事实上，人类冠状病毒每年导致 15-30% 的普通感冒。在严重急性呼吸系统综合症 (SARS) 和中东呼吸系统综合症 (MERS) 爆发期间，观察到了更严重的冠状病毒感染病例，这两种冠状病毒感染，导致一些感染者出现肺炎。
 
-根据该国卫生部 1 月 19 日发布的声明，该国的活跃病例总数上升至近 40 万人，其中 533 人目前住院治疗，情况危急。
+这些爆发引起了新的医学界的兴趣，他们开始研究治疗 SARS 和 MERS 感染的自然解决方案，这些研究已汇编在我们关于冠状病毒感染和冠状病毒疾病的综合数据库中。
 
-以色列总理纳夫塔利·贝内特（Naftali Bennett）本月警告说，随着 Omicron 变种的传播，预计 CCP 病毒病例将迅速增加，因为他提供的政府数据表明，预计在当前爆发期间，将有 200 到 400 万以色列人感染 COVID-19 。
+考虑到两者密切相关，并且共享相同的血管紧张素转换酶** II **介导的感染，证明对 SARS 冠状病毒具有病毒抑制作用的天然物质，可能对 2019 冠状病毒也有效。换句话说，SARS冠状病毒和2019新型冠状病毒在结构和机制上都相似，可以被相同的物质靶向。
 
-“在内阁会议上提供的信息表明，在以色列当前的浪潮中，总共将有 200-400 万公民被感染，”贝内特的声明中写道。
+事实上，发表在《中华预防医学杂志》上的一篇论文指出，2019 年新型冠状病毒的致病性实际上低于 SARS 冠状病毒，这表明，这些天然物质的冠状病毒抑制特性可能更有效。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip08-6.png)蓝莓和草莓含有大量的类黄酮。 (Jupiterimages/Photos.com)
+下面讨论这些天然存在的、全食物来源的物质，这些物质具有经证实的冠状病毒抑制特性：
 
-根据 1 月 20 日的数据，以色列是世界上 COVID-19 疫苗接种率最高的国家之一，已经有近一半的公民接种了三针，在人均每日新增病例方面处于世界领先地位。
+- 甘草。甘草甜素是甘草根的一种活性成分，已被证明对 SARS 冠状病毒复制具有有效的抑制活性。此外，甘草甜素似乎在冠状病毒复制的早期阶段更有效。
 
-据以色列时报报道，魏茨曼科学研究所的生物学家伊兰·西格尔（Eran Segal ）对这一数据进行了验证，并解释说，在比较每个国家的 7 天运行平均值后，以色列位居榜首。
 
-该国卫生部上周宣布，它开始对最脆弱的人群进行第二次加强注射，已经有 500,000 人接受了第四次注射。政府数据显示，总共有近 73% 的以色列人接种了至少一剂疫苗，而大约 66% 的人完全接种了疫苗。
+- 类黄酮。冠状病毒蛋白酶的活性是冠状病毒在细胞中繁殖能力的关键因素。然而，类黄酮直接抑制冠状病毒蛋白酶活性，导致病毒传播减少，具有最高病毒抑制能力的类黄酮似乎是草本素、异巴伐查酮、槲皮素 3-β-d-葡萄糖苷和蜡菊素。
 
-以色列是一年前首批推出疫苗的国家之一，并于去年夏天开始广泛提供第三剂疫苗，当局表示，他们希望第四次注射能够减缓由 Omicron 引发的一波感染浪潮。
 
-事实证明，Omicron 更加逃避 COVID-19 疫苗诱导的抗体，并且在最近几周已经感染了全球数百万接种疫苗的人。
+- 变色龙植物（鱼腥草）。在一项动物研究中，变色龙植物水提取物，在体内表现出对 SARS 冠状病毒的显着抗病毒活性。该研究还发现，这种草药以剂量依赖性方式刺激小鼠脾淋巴细胞的增殖，这表明它还具有免疫调节植物的作用。
 
-**新闻来源**：[theepochtimes.com][Israel, One of Most Vaccinated Countries in the World, Sets New COVID-19 Case Record](https://www.theepochtimes.com/israel-one-of-most-vaccinated-countries-in-the-world-sets-new-covid-19-case-record_4229781.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-01-23&amp;utm_medium=email&amp;est=tLboNWaRjAMMSHTeuu2GVtcAuwCh3TKePJPEOV5622yJCMa7smXzMZ4SzHopBxig9%2BxeJw%3D%3D)
+
+- 中药制剂。中医药经常被用作治疗 SARS 患者的辅助疗法，科克伦（Cochrane）系统评价证明，中医药作为辅助疗法“可以改善症状、生活质量和肺部浸润的吸收，并减少非典患者”。另一项研究也提出了疏风解毒胶囊和莲花清瘟胶囊，作为 2019 年新型冠状病毒的潜在有效治疗方法，因为之前的研究表明，它们具有治疗和预防呼吸道传染性病毒的能力。
+
+
+参考索引：
+
+1.导致普通感冒的人类冠状病毒会大量杀死树突状细胞，但不会杀死单核细胞。病毒学杂志。[https://doi.org/10.1128/JVI.00269-12](https://doi.org/10.1128/JVI.00269-12)
+
+2. 推进网络出版[https://doi.org/10.3760/cma.j.issn.0253-9624.2020.0001](https://doi.org/10.3760/cma.j.issn.0253-9624.2020.0001)
+
+**评论：**
+
+**很欣慰有自然疗法让人类可以防御和治疗冠状病毒，同时，又很痛心，冠状病毒已经肆虐两年，这样的信息才得以出来，值得我们反思当今的社会弊端，引以为戒，让我们的后代牢记：没有言论自由，就什么自由都没有了，所以发生了如今因为一个并非未知领域的冠状病毒，让上百万人死亡的灾难！**
+
+**新闻来源**：[theepochtimes.com][Studies Find Natural Treatments for Coronavirus](https://www.theepochtimes.com/studies-find-natural-treatments-for-coronavirus_4218452.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-01-23&amp;utm_medium=email&amp;est=kuetHIGbT5zhxwyhcmfkv9rVKdZlbHXOUo9%2Fj9zNC38sWkfQQ4qpzFMDrz9JCZIIG8j%2FXg%3D%3D)
 
 * * *
 
@@ -34,6 +49,8 @@
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+
+
 
  
 

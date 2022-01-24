@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/24/2022 12:06 AM (UTC)`
+
+1月23号：👉👉👉尊敬的战友们好，明天上午8:30开始7哥大直播<br/><br/>【七哥您好! 似乎小飞象因为参加爆料革命，几个月能拿到政庇让这些伪类很受伤。腾彪原来是傅希秋搞政庇的，看样子一直都搞不定身份，现在开始反水互咬了。傅希秋吴建民参加1月6日国会事件，现在民主党正在深挖这件事期望定性为暴乱，这是他们在中期选举和2024大选能攻击对手最后的希望，肯定不会轻轻放过，傅希秋他们完球蛋了，腾彪一看形势不对，马上切割。这群孙子。🤣🙏🙏🙏🙏】
+![img](https://media.gettr.com/group48/getter/2022/01/24/00/98ebe37f-93e2-b82b-ae2f-faa90c9a4c40/e719afb5691c5b4b6ea571207c4efcac.jpg)
+
+---
+
 `@miles 1/23/2022 4:12 PM (UTC)`
 
 1月23号：邪恶的共产党再也不会．回到还想干什么，就干什么的，那个时代了！共产党．正在以光的速度走向死亡。【塞浦路斯法官因技术问题保释中国二人组 】Another article from the biggest newspaper in Cyprus: <br/><br/>https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality
@@ -155,13 +162,6 @@ EP6: The Truth. Let's tear down the monstrous lies of this despicable #HBO #VICE
 
 1/21/2022 Miles Guo: In order to attract the foreign officials to attending the Beijing Winter Olympics, the CCP will provide all kinds of cruel food ingredients such as raw monkey brain and other protected animals. Many influential people have canceled their trips to the Beijing Olympics after seeing the videos I sent to them. All those who attend the Winter Olympics will be put on the list of “Participants of CCP’s 2022 Winter Olympics” by the New Federal State of China and will be condemned forever!<br/><br/>1/21/2022 文贵直播: 中共为引诱外国官员参加北京冬奥会，泯灭人性提供变态食材！许多大佬看到文贵提供的录像后取消了赴奥行程。参加冬奥会的人员会被新中国联邦列入2022冬奥会参加者名单并永远遭到谴责！<br/>
 ![img](https://media.gettr.com/group33/getter/2022/01/22/06/82d3c273-0cad-a1d6-dc0d-ab2b4d5d5407/out.jpg)
-
----
-
-`@miles 1/22/2022 4:12 AM (UTC)`
-
-1/21/2022 Miles Guo: Why is the New Federal State of China going to sign the “One Thousand Year Peace Treaty” with the world? Why is the statement made by Sharif a huge insult to the Chinese people? Yang Jiechi, Wang Yi, Wang Huning, Wang Qishan, Tang Jiaxuan, and Li Zhaoxing are more vicious than Zhao Gao and Li Si (evil officials under the Qin Shi Huang emperor in ancient China).<br/><br/>1/21/2022 文贵直播：新中国联邦为什么要和世界签千年和平协议？为什么谢里夫的讲话是对中国人巨大的羞辱？杨洁篪、王毅、王沪宁、王岐山、唐家璇、李肇星比赵高、李斯还要坏！<br/>
-![img](https://media.gettr.com/group49/getter/2022/01/22/04/4f3a82f8-8951-816e-f97c-e8a6b9e196ca/out.jpg)
 
 ---
 

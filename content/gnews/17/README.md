@@ -2,36 +2,40 @@
 ---
 
 
-## 有声|美国ESPN不会派遣新闻人员参加北京冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1899699/)
+## 海合会外长会议表明中共孤立无援
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1899735/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，美国娱乐与体育节目电视网ESPN在其官方网站上发布声明表示，由于对中共病毒及其相关限制的担忧，ESPN将不会向中共北京冬奥会派遣任何新闻人员。
+【**国内新闻短评**】
 
-该网站的制作执行副总裁兼执行编辑威廉姆森在声明中强调，随着中共病毒持续在全球范围内肆虐，加之此次冬奥会现场由于病毒和其他相关因素所导致的诸多限制措施，这些都让现场报道变得非常具有挑战性。此外，员工的安全对于ESPN而言至关重要，因此，该公司认为，减少员工奔波是最好的决定。
+**据新浪2022年01月16日报道：无锡，见证了中国外交的10大突破！**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/azwzu-7bkpm.jpg)图片来源： 新闻原文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/as.jpg)
+**短评：**
 
-原文链接：[美国ESPN不会派遣新闻人员参加北京冬奥会](https://gnews.org/zh-hans/1896556/)
+短短几天内，六个中东国家外长（海合会成员国）在北京冬奥之前，接连访问无锡，成为外交突破事件，也是所谓中共最大规模的一次接待外长事件。
 
-音频处理/发稿：Daxia
+孔子曰：“损者三友，友便辟，友善柔，友便佞，损矣” 。损者三友道出和中共交好的国家的本质。即便是损友来访，也是靠大撒币外加蓝金黄换来海合会成员国的一场政治表演秀，全靠花钱撑场面，赔本赚吆喝。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+首先，中共目前处境内忧外患，每况愈下。世界要求病毒溯源追责，各国经济制裁不断，冬奥会即将成为泡影，这些都成为紧紧缠绕在中共脖颈的绳索，并且越拉越紧。在冬奥召开之际，花钱收买拿不上台面的流氓国家组团来访，还要大肆宣传，足以证明中共被世界文明法治国家集体孤立，已经走到穷途末路。
 
-**更多资讯，更多关注**
+其次， 地点选择无锡装门面方便快捷。北方冬季寒冷，需要烧煤集中供暖，容易形成雾霾有碍于彰显大国脸面。 无锡作为经济发达城市，集中显示中共经济实力不受国际经济制裁影响。疫情管控严格表明中共作为疫情防控标杆，抗疫有方。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+再次，这些海合会成员国均没被邀请参加美国举办的民主峰会，却被强国花钱请来参加外长会议。这场表演秀透支老百姓血汗钱，请来的都是缺乏法治和民主的流氓国家。中共自己恐怕也知道，一旦政治经济局势变坏，这群损友随时都有可能和中共一拍两散，并且给中共软肋一刀。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+中共政权临近崩塌的前夕，所谓外交突破就是损友表演秀。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**声明**：**文章观点仅代表作者个人，与gnews平台无关**
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**链接**：[https://news.sina.com.cn/c/2022-01-16/doc-ikyamrmz5470158.shtm](https://news.sina.com.cn/c/2022-01-16/doc-ikyamrmz5470158.shtm)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
