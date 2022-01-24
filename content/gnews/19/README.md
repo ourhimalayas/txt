@@ -2,32 +2,24 @@
 ---
 
 
-## 新罕布什尔州寻求立法将伊维菌素作为中共病毒的替代疗法
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901680/)
-
-作者：纽约香草山教育部 – Naughty(文行)
-
-
+## 再次揭露HBO精心编织的谎言（part2）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901682/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-1月19日，美国众议院卫生、公众服务和老年事务委员会草拟一项法案，新罕布什尔州有望成为美国第一个批准将伊维菌素作为中共病毒保护性治疗的州。
+1月22日GTV新闻访谈晚间播放的第一个视频中，提出了与HBO谎言有关的四个核心问题。今天的视频将就第一个问题进行解答，即为什么他们的视频不注重传播真相，只想利用一切机会诋毁、攻击郭文贵先生。
 
-新罕布什尔州法案的主要发起人表示，她希望稍加修正的版本能够获得共和党多数派委员会的足够票数，来得到众议院批准。 目前，众议院已经对其他与中共病毒有关的法案表示了支持，包括在全州范围内禁止政府和私人实施与该病毒有关的强制措施。
-
-神经重症监护医生保罗·马里克博士引用世界卫生组织的数据指出，自伊维菌素作为一种抗寄生虫药物以来，已经向人类发放了37亿剂，伊维菌素是这个星球上最安全的药物之一。 目前，人用伊维菌素已经在79个国家被批准用于治疗中共病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-4.jpg)
+我们可以看到，郭先生四五年以来一直致力于揭露中共压制剥削本国人民、盗取国家财富、腐蚀破坏世界其他国家的真相，中共对他的攻击和迫害始终没有停止过，而HBO的视频，就是这一系列攻击的极其重要的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide15-1.jpg)
 参考信息：
-1. Newsweek: [New Hampshire Pharmacies Could Soon Dispense Ivermectin Without Doctor Approval](https://www.newsweek.com/new-hampshire-pharmacies-could-soon-dispense-ivermectin-without-doctor-approval-1670883)
-2. MSN –[New Hampshire Pharmacies Could Soon Dispense Ivermectin Without Doctor Approval](https://www.msn.com/en-us/health/medical/new-hampshire-pharmacies-could-soon-dispense-ivermectin-without-doctor-approval/ar-AASWHxW?ocid=uxbndlbing)
-3. [New Hampshire Seeks to Make Ivermectin an Alternative COVID Treatment Under Law](https://www.theepochtimes.com/new-hampshire-seeks-to-make-ivermectin-an-alternative-covid-treatment-under-law_4228066.html)
+1. [The Truth Behind Mr. Miles Guo’s Interview with HBO Vice](https://www.youtube.com/watch?v=VTQ91werzk8) （Full video）
+2. [【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-2】： **‼️**反击HBO-VICE诋毁郭先生进行大规模个人崇拜](https://gettr.com/post/pkgaif1cfa)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：文真
-编辑：文特
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

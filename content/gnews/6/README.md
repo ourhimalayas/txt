@@ -2,25 +2,46 @@
 ---
 
 
-## 关于3年的行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901869/)
+## 巨变：法国、爱尔兰将效仿英国放宽新冠疫情限制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1901936/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+据《Breitbart》作者：PETER CADDLE, 2022年1月21日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1970-e1643005572679.png)图片来源：网络
+冠状病毒政策巨变的迹象似乎正在欧洲出现，因为爱尔兰和法国都将效仿英国放宽限制。
 
-关于送棺材的事情，请联系联盟委员会，我们有秘密行动啊，一定会3年继续行动 下去啊，同时战友们要把自己说过的话一定要承诺兑现，我们要6周高调的来反击 伊萨贝拉杨对我们的诬陷攻击，不要停，说过的话要兑现。
+**就在英国首相鲍里斯·约翰逊（Boris Johnson）宣布将立即取消在众多公共场所强制佩戴口罩等多种限制措施后，法国和爱尔兰似乎都将开始放宽对 COVID疫情的限制。**
 
-第2个，刚才我觉的安平说的特别好，我们战友中间，特别不要学我们中国人，你 像人家什么王力宏啊出事儿了，好像是所有人都要评价人家一样是吧？你听的是王 力宏的歌，王力宏从来没向你承诺过他道德有多高尚，他也从来没说过他自己有多 伟大，是你想象，以为歌星道德就伟大啊，你管人家？你能做到人家那样吗？你 有啥资格评价人家呢？你听谁说的呢？就全人类上就没有像咱中国人这样子，恨 不得天下人都死光，只要有钱有名的，只要跟也没关系的，一看有人踩，就上去就 踩脚，一看人家需要梯子，扭头就跑。
+根据《爱尔兰独立报》的一份报告，爱尔兰现在也在考虑放弃各种封锁规定，包括取消令该国酒店业陷入困境的所有有关措施。
 
-你啥时候能做到别人需要梯的时候你给提个梯子过去，或者扶人家一把？ ！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/关于3年的行动-.jpg)
-发布： *tianzhihuan*
+该报称，爱尔兰的国家公共卫生应急小组（Nphet）还建议结束该国的内部疫苗证书系统，可能终止疫苗相关禁令。之前除非他们可以证明自己已经从冠状病毒中康复，爱尔兰境内没有接种疫苗的个人被禁止在室内用餐。在爱尔兰，COVID阴性的测试结果从未能够绕过疫苗的限制。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+与此同时，法国也公布了摆脱封锁的计划。据《世界报》（Le Monde）报道，该国总理让·卡斯特克斯（Jean Castex）周四公布了取消限制的时间表。
+
+从 2 月 2 日开始，该国将开始取消一些相对严厉的限制，例如在户外场所强制佩戴口罩。2 月 16 日夜总会将重新开放。
+
+卡斯特克斯（Castex） 指出，如果国内围绕冠状病毒的情况进一步改善，政府甚至可能考虑暂停其疫苗通行证制度。
+
+尽管法国和爱尔兰政府的突然宣布可能代表欧洲对 COVID 疫情的态度发生了翻天覆地的变化，但仍有理由怀疑。
+
+例如，法国正在继续推出新的疫苗通行证制度，该制度将于 1 月 24 日生效。根据新规定，该国许多未接种疫苗的人将完全无法使用该国的各种便利设施，例如酒吧、餐馆和跨地区公共交通。
+
+与此同时，爱尔兰政府有一个令人讨厌的习惯，即在国内放宽限制的承诺上出现180度大转弯。
+
+爱尔兰的疫苗通行证制度于 2021 年 6 月 26 日首次实施，最初承诺只是一项临时措施，设定的有效期为 10 月 9 日。政府后来将通行证有效期延长至 10 月 22 日。然而，这个日期也错过了，措施再次延长，且没有设定结束日期。
+
+原文链接：[https://www.breitbart.com/europe/2022/01/21/sea-change-france-ireland-set-to-follow-england-in-easing-covid-restrictions/](https://www.breitbart.com/europe/2022/01/21/sea-change-france-ireland-set-to-follow-england-in-easing-covid-restrictions/)
+
+翻译：洛杉矶盘古农场- 海潮
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 柯镇恶
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

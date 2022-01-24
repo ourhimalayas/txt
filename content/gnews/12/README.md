@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党对爆料革命发起了全面的行动 更疯狂的在后头
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901818/)
+## 青蒿素伊维菌素是解药
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901877/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

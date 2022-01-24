@@ -2,50 +2,46 @@
 ---
 
 
-## 聘请大陆审计机构将为美国企业带来风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901584/)
+## 反对拜登政府强制疫苗，首都华盛顿抗议大游行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901587/)
 
-作者：纽约香草山农场 – 柳是多水土透
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理报道：文泓
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-1月20日，美国媒体报道称，一项由三名会计学教授进行的研究显示，使用中共审计机构会给美国公司带来风险。在美国公司海外审计机构所在的排名前15的国家中，中共国是唯一一个既阻止美国审查又法治薄弱的国家。
-
-该研究发现，一家公司如果使用设在中共国等法治薄弱国家的审计公司，就会面临更大的爆出会计问题的风险。随着中共国审计机构所做审计工作占比上升，企业业绩重复报告、延迟报告的风险也在增加。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-5.jpg)
-目前，大约200家中共公司正面临被美国证券交易所摘牌的危险，因为它们聘用的是中共的审计机构，而这些机构的审计底稿无法接受美国监管机构审查。议员们表示，此举是为了保护美国投资者。
-
-参考信息：
-1. [China-Based Auditors Pose Risks for U.S. Companies, Study Shows](https://www.wsj.com/articles/china-based-auditors-pose-risks-for-u-s-companies-study-shows-11642674601)
-2. [聘请大陆审计机构将为美国企业带来风险](https://docs.google.com/document/d/1NQ0Gca1qwUTCJfzuZGlzTVN6enGFzSZE25dMjaE7NOw/edit)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：Zion 文恩
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/SNLLPR9_RI8QXOXX.png)图片来源：Ford Fischer推特账号
 
 
+当地时间1月23日，据RT电视台报道，众多的抗议者聚集在美国华盛顿林肯纪念堂前。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+在周日，成千上万的示威者走上首都华盛顿的街头，抗议拜登政府新冠疫苗强制接种政策，抗议者呼吁结束医疗政策造成的“隔离”。
 
+在从华盛顿纪念碑到林肯纪念堂的过程中，抗议者们高呼，“我的身体，我的选择”！“没有强制（疫苗）”！“人民不会服从”！
 
+在这次活动中，有许多知名人士发表演讲，包括前川普政府卫生官员保罗·亚历山大博士和mRNA疫苗研究员罗伯特·马龙博士，以及其他至少10名医生和小罗伯特·肯尼迪。肯尼迪是美国第35任总统约翰·肯尼迪的侄子和被暗杀的司法部长罗伯特·肯尼迪的儿子。
+
+在活动现场还可以看到一个只有少数人的小型反抗议活动，有一名妇女被记录下来，她对抗议者大发雷霆，指责他们是“白人至上主义者”和前总统唐纳德·川普的支持者。
+
+在活动网站上，“击败授权”组织呼吁当局和企业停止“大规模解雇”和“按疫苗接种情况进行人为隔离”。
+
+“美国不要疫苗强制，”组织者宣称：“我们想要自由，自由工作、自由旅行、自由学习、自由质疑、自由发言、自由祈祷！自由地说‘
+
+’”。
+
+本月，美国最高法院阻止了总统乔·拜登要求大公司的所有员工全面接种疫苗的任务。拜登对法院的决定表示抗议，指责它阻止了“常识性的救生要求”，并呼吁企业自己执行这一任务。
+
+德克萨斯州的一名联邦法官最近也阻止了拜登政府本月对联邦雇员执行一项单独的疫苗接种任务，称总统在没有“国会意见”的情况下要求数百万联邦雇员接受一项医疗程序作为其工作就业条件是不可思议的事情。
+
+新闻链接：[Thousands of anti-vaccine mandate protesters descend on DC (VIDEOS) — RT World News](https://www.rt.com/news/546902-washington-vaccine-mandates-protest/)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

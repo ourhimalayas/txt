@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗灾难一定会停止
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901865/)
+## 两个人类最邪恶组织
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901927/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

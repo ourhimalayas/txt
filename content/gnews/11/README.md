@@ -2,8 +2,8 @@
 ---
 
 
-## OMICRON的危害绝对超出我们想像
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901833/)
+## Omicron很危险
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901893/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

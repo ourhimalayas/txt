@@ -2,26 +2,34 @@
 ---
 
 
-## 州长反驳福奇曾经所说的“接种率达到50%就不会有激增”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901089/)
+## NBA球星坎特呛声姚明 称想到访新疆集中营
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1901115/)
 
-翻译：George Yang
-校对：精靈藍
-剪辑|字幕：向上James
-编辑：Mttfly
+#### **撰稿：日本东京方舟农场 Kevin wang**
 
-美州长罗恩·德桑蒂斯（Ron DeSantis）说拜登和福奇在疫苗接种方面上的做法是错误的。其指出，在拜登执政之前，全国单日新增最多的一天为25万6千例；现在，一天有80万和90万新增病例。所以很明显，新冠疫苗并没有阻止人们感染奥马哈（omachron）。疫苗推广者们曾说过疫苗将结束疫情。福奇说，如果50%的人接种了疫苗，就不会再出现激增。这是多么的荒谬！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DB1F5E29-B475-4EC5-AAF0-7E8BC6533C31.jpeg)（图片来自中央社）
 
-视频链接：[Governor rebuts Fauci’s once-held claim that there will be no surge if vaccination rates reach 50 percent](https://twitter.com/johndoe1284495/status/1482030573019607043?s=21)
+中共国篮球协会主席姚明日前邀请NBA球员坎特访问中共国，坎特回复他愿意，但前提是要能看到中共国真实面貌以及能到访新疆集中营，并反邀姚明一同访问台湾和香港，并让他跟中共国网球选手彭帅自由对话。
 
-*发布：tianzhihuan*
+据中央社1月23日的报道，NBA球星坎特日前在推特表示：我真的想要亲眼去看看那里的一切，但这趟旅行，我想要问姚明先生，我能够参观新疆的劳动营吗？可以拜访被虐待和强暴的无辜女性吗？可以看到中共政权强摘器官后如何毁尸吗？我能见到网球选手彭帅吗？我能直接跟她谈话，问她安不安全、好不好吗？她能够自由答复吗？还是你只是会给我听那些宣传？
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+坎特提到，在中共政府残忍统治下，藏人没有基本权利和自由；香港曾是全球最自由的城市之一，现在天天上演的是新闻自由被毁、权利遭打压以及逮人场景。
+
+此外，坎特还告诉姚明，中共不能收买他，「我不需要中共提供的豪华行程，我希望全世界看到中国真实的一面」。
+
+他最后表示，如果姚明答应他的要求，「我会自己买机票，搭今夏第一个航班到中国」。
+
+据悉，根据美国国务院估计，自2017年以来，有高达200万维吾尔人和其他少数民族被拘留在新疆集中营。中共在新疆犯下种族灭绝的罪行得到大多数欧美国家的确认，这些国家对于中共在相关方面的制裁政策也在不断推行当中。
+
+*参考链接：[NBA球星坎特願睹中國真面貌 邀姚明訪台見證民主](https://www.cna.com.tw/news/aopl/202201230177.aspx)*
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
 
  
 

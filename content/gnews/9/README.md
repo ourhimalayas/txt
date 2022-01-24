@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗在不同的地区，不同的人身上，造成的后果完全不一样
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901845/)
+## 活着才能实现目标
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901909/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

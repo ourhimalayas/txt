@@ -2,30 +2,40 @@
 ---
 
 
-## GEDU的第一课《自由女神》-获得文贵先生高度赞誉
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1901433/)
+## 金融科技初创公司NextPay着眼于加密服务产品
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901435/)
 
-磐石农场G-EDU教育组Qmay提供
-视频剪辑：Mark 
-磐石农场万众瞩目的开幕典礼上，高潮迭起，令战友们印象最深刻的当属Happy 老师的那节课《自由女神》。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-整节课跨语文，数学以及历史多学科，集多个知识点于一体，深入浅出令人折服。栩栩如生的讲述把每一位屏幕前的大人和小孩子的学习兴趣都最大限度的调动了起来，连文贵先生听完都大加褒赞，说自己是Happy 老师最好的学生。
+整理/编辑：小红帽
 
-文贵先生的赞赏全文如下：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
-文贵先生说：我忘了开麦，我也会不开麦，你看看，所以说再好的学生也会犯错。请问HAPPY老师，你长那么帅，结婚了没有？有没有男朋友啊?
 
-HAPPY老师回答说：已经结婚了。
+根据《GMA》1月23日报道，在去年录得价值10亿比索的交易后，为了保持增长，金融技术初创公司NextPay正在寻求扩大其服务范围，其中包括加密货币服务。
 
-文贵先生：“结婚了？这是个很大的遗憾啊。你长得太帅了，又长得帅，你又讲那么好。
+NextPay首席体验官兼联合创始人奥尔德里奇·谭（Aldrich Tan）表示，NextPay对2022 年持乐观态度，因其正在探索几个推动增长的关键举措。
 
-**刚才我听你讲，说心里话，如果在几十年前你让我知道这么多自由女神像的信息，我对自由女神会有更多更多的理解和行动。你今天讲的80%甚至90%我都不知道。你真是个好老师，这GEDU第一课就是这个自由女神 。**
+“我们的目标是引入更灵活的支付方式，并探索贸易融资、企业卡和加密货币服务等高增长领域，”奥尔德里奇在电子邮件声明中表示。
 
-**兴趣是最好的老师，你让我的兴趣一下子就起来了，真的很爱你啊，不光因为你长得帅，你讲得太好了，GEDU真的是开门第一课最好的学生就是七哥。你的课我一定要听。谢谢**。
+该投资包括来自硅谷Y Combinator的种子前支持，该公司还支持本地公司Kalibrr、PayMongo、Avion School和Dashlabs.ai。投资者还包括新加坡风险投资家金门，以及苏氏家族的私人投资工具Gentree Fund。
 
-编辑发布：Jenny
-磐石农场三大板块宣传片![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+NextPay表示计划在今年上半年开始筹集资金，但没有详细说明它希望利用哪些类型的融资。
 
+该公司于2020年推出，提供民主化的金融服务，例如数字发票、现金管理以及向当地银行和电子钱包的批量支付。
+
+另外，NextPay于去年推出了可重复使用的支付链接服务，使企业能够通过一个链接收集客户付款。该链接允许通过多种方法进行支付结算。
+
+新闻来源：[Fintech startup NextPay eyes crypto services offering](https://www.gmanetwork.com/news/money/companies/819216/fintech-startup-nextpay-eyes-crypto-services-offering/story/)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
