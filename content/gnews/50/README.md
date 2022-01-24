@@ -2,74 +2,48 @@
 ---
 
 
-## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898840/)
+## 新中国联邦用太盟投资PAG案揭露西方司法系统的腐败，重塑司法公正
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1900016/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+据路透社1月14日报道，纽约郡最高法院取消了美国律师事务所Cahill Gordon & Reindel代表太盟投资集团（PAG）对亿万富翁郭文贵先生的诉讼资格。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/https___cdn.cnn_.com_cnnnext_dam_assets_201124130733-department-of-justice-headquarters-file.jpg)图片来源CNN
 
-接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](https://gnews.org/zh-hans/1898792/)
 
-在2021年3月8日丹麦学者Ida Rask Moustsen-Helms等人发表的临床研究论文《[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)》一文中，详细记录了39,040名居住在长期护理机构（LTCF）的老人和331,039名一线医护人员（HCW）接种疫苗和接种疫苗后感染情况。
+郭文贵先生于1月17日的GTV、Gettr大直播中做出强力回应，美国最权威的3家律师职业道德评估机构作出判断，指出Bradley Bondi和Edward Moss强烈地违反了职业道德。
 
-在这份文件的第3页，表1（Table 1 –Descriptive overview of median age, median follow-up and SARS-CoV-2 confirmation by vaccination status in 39,040 LTCF residents and 331,039 HCW followed from 27 December 2020, to 18 February 2021 in Denmark.）记录了疫苗接种情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-1-–Descriptive-overview-of-median-age-median-follow-up-and-SARS-CoV-2-confirmation.jpg)
-在这份文件的第4页，表2（Table 2 – Vaccine effectiveness with accompanying 95 % confidence intervals for LTCF residents and HCW after first and second vaccine dose）记录了接种COVID-19疫苗后，感染的时间
+**太盟投资集团（****PAG）案的起源建立在虚假之上**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-2-–-Vaccine-effectiveness-with-accompanying-95-confidence-intervals.jpg)
+2008年，北京盘古向太盟投资借款1亿美元。同年年底北京盘古偿还了1亿美元借款并签署了解除债务关系协议，而且得到对方的承认。
 
-居住在长期护理机构（LTCF）的39,040名老人中，有95.2%打了1针疫苗，86%打了2针疫苗，其中760人是在接种完第1针COVID病毒疫苗后14天内感染，占投种1针后感染的55%。
+现在太盟投资起诉郭先生的是，在归还的1亿美元借款中，仍有郭先生个人担保的3000万美元尚未偿还。实际是郭先生在2008年签署的还款协议后，个人担保关系已结束，并且得到对方出具的确认文件。
 
-在331,039名一线医护人员中，有27.8%打了第1针疫苗，其中1189人是在接种完第1针COVID病毒疫苗后14天内感染，占接种一针后感染的35%。
+所以，这个案子的起点就是无中生有的诬告，案中所使用的2009年以后所有的文件都是太盟投资私自伪造的。
 
-加拿大Alberta省在网站关于《[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)》中申明，接种第1针疫苗后14天内的人感染中共病毒，不算接种1针COVID-19病毒疫苗后感染，而是计算在未接种疫苗感染COVID-19病毒范围内。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-case-outcomes-in-Alberta-by-vaccine-status.png)
-多么可怕的误导！
+**太盟投资集团（****PAG）案发生的地点与起诉立案地点矛盾**
 
-因此Alberta省得出了以下结论：自2021年1月1日以来，0.5%的人（18,612/3,516,687）在第一次接种中共病毒疫苗后14天被诊断出感染COVID-19；在第二次接种中共病毒疫苗后14天，有3.5%的人(113,969/3,240,167)被诊断出感染COVID-19；在接种3针中共病毒疫苗后14天，有1.1%的人 (15,286/1,333,330)被诊断出感染COVID-19； 59.3%的病例(215,489/363,356)未接种疫苗或在接种第1针中共病毒疫苗后两周内被诊断出感染COVID-19；74.6%的住院病例(10,595/14,208)未接种疫苗或在第1针疫苗接种后两周内被感染；72.8%的COVID-19死亡(1,381/1,898)病例，未接种疫苗或在接种第1针疫苗后两周内被诊断出感染COVID-19。
+所谓的违约合同、签字、谈判、执行等都发生在中国大陆或香港，跟纽约没有任何联系。只是在2017年4月份的时候，郭先生恰巧住在纽约的一套公寓，而且需要强调的是，这套公寓并非在个人名下而是家族基金所有。
 
-没有区分出相当比例的接种第1针COVID-19病毒疫苗后确诊的感染者！而是把这些接种COVID-19病毒疫苗不超过14天的感染者和真正从未接种疫苗的人混到一起计算！
+然而在2017年的4月18号，太盟投资的起诉状送达美国纽约郡的法院，这是没有任何法律依据的。
 
-非常幸运的是，尽管加拿大Alberta省突然争先恐后地从他们的网站上删除了早期数据，但[从2020年3月20日到2022年1月14日的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)被Joel Smalley等人完事的保留下来。
+**太盟投资集团（****PAG）案的发生背景**
 
-这份文件详细记录了注射完第1针中共病毒疫苗后第1天到373天内，各年龄段的人群确诊COVID-19、因COVID-19住院和因COVID19死亡的数量统计。
+太盟投资在2017年4月18日提起诉讼，正是美国之音（VOA）419断播门的前一天。同年3月份，刘彦平曾警告郭先生不要接受VOA的专访。而后，孙力军也一再威胁地说，如果胆敢接受专访，会让郭先生像疯狗一样在大街上找不到任何生存的地方，还会夺走其家族的一切资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/bb808d01-65c0-4c37-a20e-949dcdeed27a-2.jpg)图片来源Gettr
 
-这是一份非常珍贵的文件！
 
-根据这份文件的数据统计，在注射中共病毒疫苗后确诊感染COVID-19的人中，有39.4%是在打完针后14天内被确诊，76.6%的人是在打完针后45天内被确诊。
+这是一个由世界级邪恶势力中共操纵的案子，发生在美国纽约的最高法院，涉及美国最顶尖的律师团队。中共正在和西方的少数团体勾结，从多方面（包括蓝金黄、威胁、收买情报）控制法律，这是中共长期超限战的一个重要方式。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date.jpg)
+**但是，这个案子有两个板上钉钉的事实不可回避：**
 
-在注射中共病毒疫苗后住院的COVID-19病例中，有47.6%是在打完针后14天内发生，79.6%的人是在打完针后45天内发生。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date2.jpg)
-在注射中共病毒疫苗后死亡的COVID-19病例中，有55.6%是在打完针后14天内发生，89.3%的人是在打完针后45天内发生。
+第一、最终我们一定会赢得官司，赢在程序正义，赢在真实的完整证据。美国司法没有任何选择，一定会给这个案子带来公正的审判。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-deaths-date-to-COVID-19-diagnosis-date3.jpg)
+第二、现在媒体界已经关注此案将近一年多时间，既要做延续报道又要把此案拍成电视连续剧，所以美国司法部一定会深入调查。美国国会也一定会查清单伟健和Edward Moss等在BVI的勾兑和资金往来，彻底清除中共在美国司法部门的渗透力量。同时，依法惩处所有收黑钱泯灭良知的人。而新中国联邦正在成为美国正义的英雄，成为真正的传奇。
 
-通过这份文件记录的数据，可以想像，有多少打完COVID-19病毒疫苗后感染、住院和死亡的人，被错误的记录到了未接种疫苗人群中，导致人们根据政府的疫苗监测报告而做出错误的判断！
+当一个国家的金融机构、媒体和法律部门一同成为邪恶势力帮凶的时候，任何人都不会有安全，每个人都可能是下一个受害者。
 
-中共病毒疫苗有毒，千万不要被公共卫生部门误导性的疫苗监测报告误导！
-
-参考数据：
-
-[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
-
-[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
-
-[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
-
-[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
-
-[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
-
-[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
-
-[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
-
-[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+只有证明西方世界的司法系统存在的腐败，才能把被渗透的司法系统带回原本正义的轨道。因为法律是统治阶级和人民之间的公约，是保证社会公平、维持社会运转的支柱。
 
  
 

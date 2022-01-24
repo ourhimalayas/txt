@@ -2,82 +2,42 @@
 ---
 
 
-## 【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1902175/)
+## DC大中华时事：中共“火眼金睛”助力冬奥精准防疫
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1902179/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5135BA19-56EA-44AD-9EF0-A604D9E34E0B.jpeg)
-2022年1月23日，据福克斯新闻刊文报道，在华盛顿特区举行了大型抗议疫苗授权活动，有30,000 至 35,000 人参加了本次抗议活动。
+*编辑：冰川 / 作图：*hans（文玄）
 
-“击败授权”抗议疫苗授权[游行走上](https://www.foxnews.com/category/us/us-protests)[华盛顿特区](https://www.foxnews.com/category/us/washington-dc)的街道和纪念碑，抗议者和演讲者呼吁在全国范围内结束[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus) [疫苗](https://www.foxnews.com/category/health/infectious-disease/vaccines)授权。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-目前为止，包括华盛顿特区、纽约市、洛杉矶、芝加哥、明尼阿波利斯和波士顿在内的一些美国主要城市已经实施了全市范围的规定，要求居民在某些场所（例如餐馆和健身房）出示疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3D0EE3F5-861E-41F6-9EEA-A053634D3A59.jpeg)
+#   墙国妄语每日驳
 
+### **01.23. 新华网 香港政界谴责欧洲议会所谓涉港决议**
 
-和平抗议活动于中午左右在华盛顿纪念碑开始进行，首先前往林肯纪念堂。在那里，一系列演讲者们分享了他们在过去一年的经历以及他们呼吁结束疫苗授权的理由.
+*香港特区第十三届全国人大代表日前发表声明，强烈谴责及坚决反对欧洲议会所谓决议，并强烈要求欧洲议会尊重历史和现实，恪守国际法和国际关系基本准则，立即停止一切诋毁“一国两制”和反中乱港的粗暴行为。声明指出，事实胜于雄辩，针对近年香港的乱局，中央政府审时度势，出台香港国安法，完善特区选举制度，坚定落实“爱国者治港”原则，不仅推动香港民主发展重回正轨，更为香港特区翻开良政善治的新篇章。香港特区立法会88位议员日前发表联署声明表示，强烈谴责欧洲议会公然违背国际法和国际关系基本准则，肆意干预属于中国内政的香港事务。声明指出，香港国安法有效保障国家安全、市民的人身安全、权利和自由，香港在香港国安法下恢复法治和社会秩序，并通过完善选举制度，展开民主发展的新里程。欧洲议会通过的所谓决议无视这些事实，恶意歪曲“一国两制”在香港落实的真实情况，充分反映欧洲议会某些政客只求政治私利，一而再地以自由、人权为幌子干涉香港事务，并为反中乱港分子撑腰。这些政客必须停止进行毫无意义的政治表演，多做有益于中欧关系、有益于双方人民的事情。香港自由党也发表声明表示，谴责欧洲议会严重干扰香港特区事务，促请欧洲议会立即停止插手中国内政。*
 
+***简评：*乱港、害港的不是外国势力，而是中共。中共不仅屠杀了争取自由的香港人，也屠杀了无数的新疆人、西藏人、汉人。中共手上沾满了中国人民的鲜血，全世界人民都不会忘记中共的罪行。不管中共安排多少人出来表演，都改变不了国际上一浪一浪的反共潮流。中共寿终正寝的时刻已经到了。**
 
+### 01.24. 人民网 “火眼金睛”助力冬奥精准防疫
 
-> Big enthusiastic crowd braved the cold in DC to [#defeatthemandatesdc](https://twitter.com/hashtag/defeatthemandatesdc?src=hash&amp;ref_src=twsrc%5Etfw). ⁦[@P\_McCulloughMD](https://twitter.com/P_McCulloughMD?ref_src=twsrc%5Etfw)⁩ ⁦[@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw)⁩ ⁦[@TruthMav](https://twitter.com/TruthMav?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/TukJ99sp2d](https://t.co/TukJ99sp2d)
-> — Richard Amerling (@dramerling) [January 23, 2022](https://twitter.com/dramerling/status/1485354150502281216?ref_src=twsrc%5Etfw)
+*北京2022年冬奥会即将举办，用科技手段助力疫情精准防控，保障赛事安全运行，是筹备工作最重要的环节之一。近日，北京疫情再次反复，给冬奥防疫工作带来严峻的挑战。特别是在赛事举办期间，各个场馆涉奥人员众多，身份复杂，活动频繁，急需实现精准防疫，对场馆内进行全场景、全过程、全细节记录，“火眼金睛”无死角扫清监控盲区，筑牢冬奥保障防线。*
 
+***简评：*“火眼金睛”分明是一个监控手段，“全场景、全过程、全细节、无死角”的无感人脸识别及全程记录让人不寒而栗。这次冬奥会并不对外售票，观众系中共指定的群众演员，中共大动干戈地用这样的监控手段，他们到底害怕什么？中共利用科技搞监控，已经把中国变成了世界上最大的监狱。他们不以为耻，反而大肆炫耀。真是又蠢又坏。此外，除了监控中国人民，实在看不出监控科技手段与防疫有什么必然的联系。**
 
+### 01.23. 环球网 2021年中国下达环境行政处罚决定书13.28万份 罚没款116.87亿元
 
+*中国生态环境部22日消息，2021年，全国共下达环境行政处罚决定书13.28万份，罚没款数额总计116.87亿元(人民币)，案件平均罚款金额8.8万元。环境保护法配套办法执行情况显示，2021年，全国五类案件总数为15454件。其中，按日连续处罚案件数量为199件，罚款金额为18580.62万元；适用查封、扣押案件数量为8897件；适用限产、停产案件数量为1093件；移送拘留案件数量为3397件；移送涉嫌环境污染犯罪案件数量为1868件。2021年，环境行政处罚案件数量排名前五的省份为：河北、江苏、广东、山东、河南。罚款金额排名前五的省份为：山东、广东、江苏、河北、浙江。*
 
+***简评：*罚款100多亿让中国的天变蓝了吗？水污染、空气污染、食品不安全改变了吗？中国掠夺式的发展模式已经让中国变成了污染大国，人民深受其害。官员要政绩，对污染是睁一只眼闭一只眼，象征性罚款后，污染依旧。环保部门的职能是保护环境，减少污染，而不仅仅是罚款。现在环保部门把罚款100多亿作为政绩来吹嘘，实在是本末倒置。**
 
-> Fighting for medical freedom will always and forever be on the right side of history. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W8cEEuhZfd](https://t.co/W8cEEuhZfd)
-> — Debra Lea (@thedebralea) [January 23, 2022](https://twitter.com/thedebralea/status/1485374947971194886?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/935045888013914132/1.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/935046019849269298/2.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/935046049830174750/6.PNG?width=1043&amp;height=586)
 
 
 
 
-
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
-
-
-
-30,000 至 35,000 人参加了抗议活动，[要求](https://defeatthemandatesdc.com/about/)终止疫苗授权和疫苗护照，他们呼吁进行合理辩论和知情同意的权力。
-
-游行组织者威尔·维特（Will Witt）是非营利组织 PragerU 的作家和政治评论员，她说：“你会听到很多左派人士说这是一场大型的反疫苗集会——人们进来否认科学，”
-
-“但是，这次游行是关于抗议我们现在在全国各地看到的严厉措施，特别是在华盛顿特区、纽约市、洛杉矶、旧金山等地。”
-
-几个团体赞助了这次活动，包括前线 COVID-19 重症监护联盟、世界卫生委员会、疫苗安全研究基金会和儿童健康防御组织——由小罗伯特·肯尼迪领导。
-
-演讲者包括罗伯特·马龙博士，Peter McCullough 博士、Christina Parks 博士、Paul Alexander 博士和[Maddie De Garay 的母亲 Stephanie De Garay](https://www.foxnews.com/media/ohio-woman-daughter-covid-vaccine-reaction-wheelchair)。
-
-
-
-> 🔥 Dr. Robert Malone destroys the approved narrative in 2 minutes. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/l9R9bid56L](https://t.co/l9R9bid56L)
-> — Zach (nine meals from anarchy) (@Just\_\_\_Zach) [January 23, 2022](https://twitter.com/Just___Zach/status/1485345169432096769?ref_src=twsrc%5Etfw)
-
-
-
-正义网络点评：
-
-“在我一生所知道的所有疫苗中（脊髓灰质炎、天花、白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎和肺结核），我还想加上流感和肺炎。我从未见过一种疫苗能强迫我要戴口罩，并保持社交距离，即使您已完全接种疫苗。
-
-我从未听说过即使在接种疫苗后也会传播病毒的疫苗。我从未听说过接种疫苗的奖励、折扣、奖励措施。我从未见过对那些没有接种的人的歧视。如果你没有接种过疫苗，没有人试图让你觉得你是个坏人。我从未见过一种疫苗会威胁到家人、同事和朋友之间的关系。我从未见过用于威胁生计、工作或学校。我从未见过一种疫苗可以让 12 岁的孩子无视父母的同意。在我上面列出的所有疫苗之后，我从未见过像这样的疫苗，它会歧视、分裂和评判社会。随着社会结构的收紧……这是一种强大的“疫苗！”
-
-即使我们已经完全接种了所谓的疫苗，之后，仍需要注射加强剂量；并且，在完全接种后仍需要进行阴性检测；并且，在完全接种后仍需要戴口罩；并且，在接种完后仍需感染！仍需住院！仍需死亡！
-
-在经历着无休无止的折磨之后，很可能会出现一个想法：“是时候让我们承认：我们被完全欺骗了”！“是时候叫停疫苗强制令了！”
-
-[新闻来源](https://www.foxnews.com/politics/washington-dc-defeat-mandates-march-covid-vaccine)
-
-撰稿/雅典娜之矛
-
-审阅/正义网络
-
-上传/侠客行
+*编辑：*冰川
+*作图：hans（文玄）
+发布：文顾*
 
  
 
