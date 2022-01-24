@@ -2,57 +2,53 @@
 ---
 
 
-## 阿尔伯塔省承认玩弄了新冠疫苗接种的统计数据
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904546/)
+## 刺突疫苗伤害终于被证实
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1904550/)
 
-#### 超过一半的新接种疫苗的死亡病例被混杂在未接种疫苗的人身上
+作者：KD， 2022年1月20日发表
 
-2021-01-24
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-10.tiff)图片：2020 News
+刺突疫苗伤害终于被证实。德国病理学家团队率先在一名接种后的死者身上检测到新冠病毒基因制剂的刺突蛋白。这种可证性也涉及到责任问题。
 
-原文作者：Joel Smalley
+与新冠病毒基因注射有关的部分严重伤害和死亡报告正在增加。对许多潜在的疫苗伤害案例，管理局、制造商和治疗医生迄今为止都否认了与接种有因果关系。
 
-**翻译：Sandy**
+这在未来不会再发生。正如《2020新闻》报道的那样，参加病理学会议的科学家已经成功地在一名因接种疫苗而死的人的组织样本中检测到了新冠病毒mRNA制剂的刺突蛋白。
 
-那些做过一点点研究的人都会知道，第一剂 COVID 疫苗没有带来任何保护。
+2021年9月和12月，病理学家阿讷-伯克哈德（Arne Burkhardt）教授博士和瓦尔特-朗（Walter Lang）教授博士与其他科学家一起，展示了对19名接种疫苗后不久死亡的人的组织样本检查结果（我们报道过）。
 
-因此，想像一下，如果你把所有在第一次接种疫苗后的14 天内的感染事件（病例、住院和死亡）全部转移到未接种疫苗的人群中，疫苗有效性统计数据将是何等的混杂。
+心脏病，包括心肌炎和心包炎，以及血栓性疾病被诊断为最常见的死亡原因。组织的变化也表明淋巴细胞的过度激活（”疯狂的淋巴细胞”）。
 
-好吧，现在我们从[阿尔伯塔省政府公布的数据](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)中可以肯定地知道, 这些数据与世界上其他任何地方一样，他们通过遵循药物制造商在双盲临床试验中设定的欺诈标准,  声称疫苗的有效性极佳，即忽略给药后最初两周的不良结果。
+淋巴细胞是白细胞的一个亚群，负责对病原体的免疫反应。 根据病理学家的说法，过度激活可归因于过度的免疫反应，并有患自身免疫性疾病的风险。
 
-但后来他们做得更过份，实际上也夸大了未接种疫苗的感染人数。自然，这次是把接种第 2 剂疫苗 14 天内的人数赖到只接种一针的人数之中。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fe3a665fa-6888-4992-9fb0-b03b9565b7d3_3251x1822.png)完成接种新冠疫苗的时间和住院率
-新接种疫苗的所有 COVID 住院患者中，**几乎有一半发生在 14 天内**，这意味着他们在统计数据中被视为未接种疫苗。
+据《2020新闻》报道，从那时起，科学家们一直致力于研究接种疫苗和死亡之间可能存在因果关系的证据。现在已经成功地通过样本案例证明了刺突蛋白造成的伤害。
 
-幸运的是，他们还公布了每个案例从剂量到感染的时间，从而无意中让我们了解了这种不诚实的程度，从而使我们能够重新计算有多少前 14 天内的病例从接种疫苗者转移到未接种疫苗人群。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F155db86f-32bb-4756-a9a7-b896e72eac0c_3251x1822.png)完成接种新冠疫苗的时间和实际住院治疗病例
-不仅如此，几乎 80% 的病例发生在接种疫苗 45 天内。我得和我的朋友 Jessica Rose核实一下，她是时间因果关系方面的专家，但对我来说这看起来很有说服力。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fbd5508a8-bb5a-4886-8c51-2b81580631cf_3251x1822.png) 完成接种新冠疫苗的时间和死亡率
-在死亡人数方面，不诚实的情况更为严重，新接种疫苗的死亡人数中近 56% 发生在接种14天内，近 90%发生在45天内。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F36ab346b-3156-4bdc-af59-aee8f903522c_3251x1822.png) 完成接种新冠疫苗的时间和死亡数量
-像往常一样，如果你对公共卫生信息感兴趣，你应该非常警惕来自公共卫生当局的任何信息，这些信息随后被宣传媒体和他们的其他傀儡所宣传。
+2022年1月17日，科学家们在病理学会议的网站上以“在一名接种新冠病毒疫苗的死者的体内首次检测到疫苗刺突蛋白”为标题宣布：*“*免疫组织学首次证实如下推测，即*“*新冠病毒疫苗*”*接种在体内形成的刺突蛋白可能是病理上检测到的血管炎症和病变的原因*”*。
 
-你的生活很可能取决于这些信息。
+该团队成功地在一名接种四个月后的死者的血管中准确的检测到该基因制剂的刺突蛋白，此死者患有血管损伤和疫苗引起的心肌炎。 通过在组织切片上使用常规的免疫组化法，对刺突蛋白特有抗体进行了成功的检测。
 
-后记
+病理学家解释说，此检测方法适用于在接种新冠病毒后明显出现器官和细胞损伤的病理诊断上。因此，出于 “道德、法律及科学的原因……立即对由新冠病毒‘疫苗’造成伤害的组织病理学检查都以此检测方法进行完善”。
 
-作为对读者评论的回应，我还包括了病例数据。 它显然遵循相同的接种 14 天的模式。**新接种疫苗的所有 COVID 住院患者中，40% 的病例、48% 的住院到 56% 的死亡等发生在接种 14 天内。 **
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F86de4fbc-0404-4e8e-865b-932f55a244ef_3251x1822.png)完成接种新冠疫苗的时间和确诊率![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F7cfc241f-8adf-4466-b3c4-e8816991f84d_3251x1822.png)完成接种新冠疫苗的时间和确诊病例
-我想住院人数超过病例数和死亡人数超过住院人数可能会受到优先考虑病人的影响，但我认为这并不重要。无论如何，需要保护的是病人，而不是健康人！如果它没有改善病人的结果，那到底有什么意义呢？
+正如《2020新闻》所指出的，病理学家的发现从几个方面来看都是引人注目的。例如，他们为更好地理解基因制剂的作用机制提供了基础，这将会为那些疫苗受害者带来治疗的希望。
 
-仅作记录，这里是病例的完整历史，并附有大规模疫苗接种运动的开始时间。是不是很有趣？
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F23f5b9e2-80d9-4cf8-8cf3-7fa9a2f80e96_3623x2113.png)每周确诊人数，附大规模疫苗接种运动的开始时间
-因此，事实证明，阿尔伯塔省突然争先恐后地从他们的网站上删除了有罪的数据。所以，这里是记录的[副本](https://twitter.com/mdccclxx/status/1482322137255923713?s=20)，这是[网络档案](https://web.archive.org/web/20220107094256/https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)。 真相不再被隐瞒。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fec838ce9-57c6-4413-bafd-f6aedf10ede2_1058x1244.jpeg)新冠疫苗接种时长和感染情况的记录
-**原文链接：
-**[Alberta just inadvertently confessed to fiddling the COVID vaccination stats.](https://metatron.substack.com/p/alberta-just-inadvertently-confessed?r=9hpvu&amp;utm_campaign=post&amp;utm_medium=email&amp;fbclid=IwAR0NOo_eA99bOeEz3zzOGXauZl08XkjSle5ruHMYzc6nYwNI7xfSfofH0aQ)
+现在，检测的可能性也迫使管理局和制造商更彻底地处理基因制剂产生的危险，而不是继续否认它们与伤害的因果关系。有鉴于此，在弄清关系之前，也应考虑停止接种疫苗。
 
-**编辑：MQ**
+新的发现也提出了疫苗接种者、疫苗接种中心和制造公司所承担责任的重要问题。如果从医学上可以证明刺突蛋白是造成伤害的原因，那么疫苗接种信息的不足和病史（新冠病毒接种的常见情况），会使医生承担责任。
 
-**发布：MQ**
+此外，由于基因制剂实际上只能通过处方获得，所有这些使举证责任的倒置。现在不再应该由病人证明医生的过失，而是医生应该证明自己的清白。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+早在2021年6月，病毒免疫学家白拉姆-布里德博士（Byram Bridle）在研究中发现，在接种过摩德纳（Moderna）公司新冠病毒疫苗的13名年轻医院员工中，有3人的血浆中检测出刺突蛋白（我们曾报道过）。
+
+布里德还提到了一项尚未公开的日本生物分布研究。 这表明疫苗的脂质纳米颗粒并没有像疫苗开发人员声称的那样停留在注射处的三角肌中，而是在全身循环并在器官和组织中大量累积（我们报道过）。 从某种意义上说，脂质纳米颗粒是运输 mRNA 的“盒子”。
+
+Corona-Transition评论：
+
+德国病理学团队的研究结果意义深远。 首先，从医学的角度来看，这是令人担忧的。 但如之前所说，它可能会产生法律影响，从而结束或至少限制疫苗接种的疯狂。 应该指出的是，此检查结果尚未有正式研究报告，目前只有科学家的通知。
+
+原文链接：[https://corona-transition.org/spike-impfschaden-endlich-nachweisbar](https://corona-transition.org/spike-impfschaden-endlich-nachweisbar)
+
+校对：幺蛾子/发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,104 +15,104 @@
 
 ---
 
-### [【国际时评】法国防疫策略新动向及其影响](/content/gnews/1/README.md)
+### [北约将向东欧派遣更多船只和战斗机](/content/gnews/1/README.md)
+ ` Shuizhuyu`
+
+### [有声|法国佩皮尼昂议员Romain Grau被健康通行证的反对者袭击](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [【国际时评】法国防疫策略新动向及其影响](/content/gnews/3/README.md)
  ` 温哥华扬帆农场`
 
-### [英国多个地区 NHS工作人员举行集会抗议强制疫苗计划](/content/gnews/2/README.md)
+### [英国多个地区 NHS工作人员举行集会抗议强制疫苗计划](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [《灾难性的道德犯罪》——HBO名嘴吐槽左翼州中共病毒疫苗政策](/content/gnews/3/README.md)
+### [《灾难性的道德犯罪》——HBO名嘴吐槽左翼州中共病毒疫苗政策](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界大对决，热战序幕正在拉开](/content/gnews/4/README.md)
+### [世界大对决，热战序幕正在拉开](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [白宫正在为加密货币领域制定宏伟计划](/content/gnews/5/README.md)
+### [白宫正在为加密货币领域制定宏伟计划](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵爆料 1.24：万物萧瑟中，喜币一枝独秀](/content/gnews/6/README.md)
+### [文贵爆料 1.24：万物萧瑟中，喜币一枝独秀](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [摩托车手梅兰德里反对疫苗：“我故意得新冠病毒，绿色通行证是一种勒索”](/content/gnews/7/README.md)
+### [摩托车手梅兰德里反对疫苗：“我故意得新冠病毒，绿色通行证是一种勒索”](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [世卫组织：针对Omicron疫苗无用，两个月半数欧洲人将被感染](/content/gnews/8/README.md)
+### [世卫组织：针对Omicron疫苗无用，两个月半数欧洲人将被感染](/content/gnews/10/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|德州一联邦法官暂时阻止了对联邦雇员的疫苗强制令](/content/gnews/9/README.md)
+### [有声|德州一联邦法官暂时阻止了对联邦雇员的疫苗强制令](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [距习公开点名孟建柱还有多远？](/content/gnews/10/README.md)
+### [距习公开点名孟建柱还有多远？](/content/gnews/12/README.md)
  ` 华盛顿DC-Russian`
 
-### [刺突疫苗伤害终于被证实](/content/gnews/11/README.md)
+### [刺突疫苗伤害终于被证实](/content/gnews/13/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [小罗伯特·肯尼迪发表演讲反对强制疫苗和医疗暴政](/content/gnews/12/README.md)
+### [小罗伯特·肯尼迪发表演讲反对强制疫苗和医疗暴政](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [阿尔伯塔省承认玩弄了新冠疫苗接种的统计数据](/content/gnews/13/README.md)
+### [阿尔伯塔省承认玩弄了新冠疫苗接种的统计数据](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|再次揭露HBO精心编织的谎言（part1）](/content/gnews/14/README.md)
+### [有声|再次揭露HBO精心编织的谎言（part1）](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [日本民调显示八成五民众对中共无好感，对台美印象佳](/content/gnews/15/README.md)
+### [日本民调显示八成五民众对中共无好感，对台美印象佳](/content/gnews/17/README.md)
  ` GTV News Talk`
 
-### [为什么参加蒙特利尔反对卫生措施的示威活动？](/content/gnews/16/README.md)
+### [为什么参加蒙特利尔反对卫生措施的示威活动？](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [奥地利议会批准成人疫苗强制令](/content/gnews/17/README.md)
+### [奥地利议会批准成人疫苗强制令](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵大直播要点（2022年1月24日）](/content/gnews/18/README.md)
+### [文贵大直播要点（2022年1月24日）](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [美海军拦截了一艘伊朗的船只](/content/gnews/19/README.md)
+### [美海军拦截了一艘伊朗的船只](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [男版杨贝贝](/content/gnews/20/README.md)
+### [男版杨贝贝](/content/gnews/22/README.md)
  ` 银河勇气之星`
 
-### [【TopNews】超超限战：“甜蜜蜜运动”将堪比和平洋刀直插中共心脏](/content/gnews/21/README.md)
+### [【TopNews】超超限战：“甜蜜蜜运动”将堪比和平洋刀直插中共心脏](/content/gnews/23/README.md)
  ` topnews`
 
-### [意大利CCP病毒疫情趋于稳定](/content/gnews/22/README.md)
+### [意大利CCP病毒疫情趋于稳定](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [华盛顿特区：数千名抗议者反对疫苗强制](/content/gnews/23/README.md)
+### [华盛顿特区：数千名抗议者反对疫苗强制](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [毕尔巴鄂反对疫苗和COVID护照示威游行](/content/gnews/24/README.md)
+### [毕尔巴鄂反对疫苗和COVID护照示威游行](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|塞浦路斯引渡案获进展 战友母子获准保释](/content/gnews/25/README.md)
+### [有声|塞浦路斯引渡案获进展 战友母子获准保释](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [串珠543:中共认为红旗不沾血权力不稳经常要杀点人](/content/gnews/26/README.md)
+### [串珠543:中共认为红旗不沾血权力不稳经常要杀点人](/content/gnews/28/README.md)
  ` 郭爆料串珠`
 
-### [MV版Hcoin To the Moon上线47天第33次位列澳门iTunes热门MV榜首](/content/gnews/27/README.md)
+### [MV版Hcoin To the Moon上线47天第33次位列澳门iTunes热门MV榜首](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [天津爆发大规模抗议 超十万民众声讨中共当局](/content/gnews/28/README.md)
+### [天津爆发大规模抗议 超十万民众声讨中共当局](/content/gnews/30/README.md)
  ` GTV News Talk`
 
-### [文贵大直播 1/24 冬奥和病毒：CCP造假秉性难移 努力演好最后一场戏](/content/gnews/29/README.md)
+### [文贵大直播 1/24 冬奥和病毒：CCP造假秉性难移 努力演好最后一场戏](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共在河北发射55枚火箭人工降雪 解决北京冬奥会降雪不足问题](/content/gnews/30/README.md)
+### [中共在河北发射55枚火箭人工降雪 解决北京冬奥会降雪不足问题](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/31/README.md)
+### [安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/33/README.md)
  ` GTV News Talk`
-
-### [有声|再次揭露HBO精心编织的谎言（part2）](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [担心俄罗斯的侵略行为 日本政府建议国民避免在乌克兰旅行](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [GTV新闻访谈简报|2022年1月24日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
