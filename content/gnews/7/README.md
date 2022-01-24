@@ -2,40 +2,103 @@
 ---
 
 
-## 文•贵天成（特别篇）——爆料革命历史上的1月26日（三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900569/)
+## 深挖华大基因 (三）
+` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1900579/)
 
-整理：BENJ1
-编辑：淑芳
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5-25.png)图片来源：雅典娜设计组
+————疯子与魔鬼之间的交集
 
 
-**李友案只是对盗国贼战争的刚刚开始**
 
-对李友的宣判，只是对过去我们检举揭发的一个应付，对社会的一个应付。它掩盖了更大的罪行，那就是国有资产被侵呑大量资产被转移，小股民利益被侵占，然后内幕交易，证监会和他们一起被协调，所谓的惩罚六十万的罚款，掩盖了他们真正的罪行。这就是我所说的，李友背后的这些亲属老板，这些政治后台真正站出来了。这就是我们说这场战争刚刚开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
 
-**文贵先生第一次爆料傅政华**
 
-李友背后真正的老板，那都是政治局常委级别的，这些人才是他的老板。这些人是要通过李友拿钱，是要藏钱是要洗钱的，这个跟我郭文贵之间没啥关系。我是要保护我的钱，是不是? 我要保护我的钱，我就要找人来帮我保护钱，我没那个本事。结果我找错人了。我找了两三拨人，结果我这是引狼入室。其中三拨人都答应帮我摆平李友这事，结果，其中的一个人呢，地位不是太高但是权力很重。过去这四年在中国是兴风作浪，很多大案都是他办的，是中国中纪委和公安的项目组的组长。江湖上有句话：纪委加公安，权力大过天。我说过坏纪委人员和坏公安就能翻了天! 其中就是这么一个人。我们在未来（要）一一地说很多，今天说不完，我们需要未来的更多的时间来一一地说。
 
-我们有四个目标，我们把其中一个最小的级别的人，级别最低的，但是他是比较重要，就是今天公安部的常务副部长傅政华，背后的其中一个黑手，就是傅政华。
+作者：流浪的阳光
 
-**因李友案找上了傅政华**
+几个疯子与魔鬼之间的交集 2013年比尔盖茨给汪建的信 2018 年 12 月 11 日马里兰州贝塞斯达举行第五届全球健康年度咨询研讨会。比尔盖茨、福奇和柯林斯一起参加 2021年福奇邮件曝光：比尔盖茨和福奇定期交谈内容外泄 2016年柯林斯参加华大组织的国际基因组学会议称华大基因联合创始人杨焕明是我的朋友。
 
-当初我们和李友合并了之后呢，真正李友背后的老板提出来，马上要让郭文贵同意定向增发两百亿。那就是我一共换来了18亿股，我付了120亿现金。当天下午李友打电话，就要定向增发两百亿！我说，这是你的主意吗？你这不是抢钱吗? 他说那不关我，（不是我）的主意，你知道我背后的那几个老板，那谁谁谁，那家人说了，必须得定向增发。我说你定向增发洗掉了我一半的钱! 他说那你要不答应，那你郭文贵就等着家破人亡吧！这话就来了。那我说，你要让我家破人亡，那我说李友，我只有和你干一仗了。这个时候呢，我就去找人了，结果我刚才就说，其中就找了傅政华先生。
+![Image](https://pbs.twimg.com/media/E9jz2GSXsAAfRVI?format=jpg&amp;name=900x900)
 
-**傅政华弟弟在北京江湖上顶一个政治局委员的权力**
+![Image](https://pbs.twimg.com/media/E9jz2GIX0AoTdCr?format=jpg&amp;name=large)
 
-傅政华的家人就找上门来，他的家人之前跟我的家人都有联系，他的弟弟是他的亲属代表。他的弟弟叫傅老三，在北京江湖上那可以说是顶一个政治局委员就这么一个权力。他想抓谁那肯定抓谁，傅政华说你反党、说你涉及什么案子，就把你抓了。而且，他毎天都打着口号说深受习近平书记、王岐山书记、孟建柱书记的信任，除了他们仨之外都听他的了，所以就都找傅老三办事。他要想害谁那是一句话，他想帮谁、捞谁也是一句话。而且所有的跟中纪委的项目组办案的成员，都是北京经侦的人，都是老傅的手下。不用老傅说话，老傅只要是稍微给一点态度就很明确了，让你死就得死。
+![Image](https://pbs.twimg.com/media/E9jz2GPWQAsfhLH?format=jpg&amp;name=large)
 
-*发布：tianzhihuan*
+![Image](https://pbs.twimg.com/media/E9jz2GaXMAUjvjE?format=jpg&amp;name=large)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+关于福奇的邮件，有几个需要特别注意的地方：
+福奇和盖茨于 2020 年 4 月 1 日通电话，他们讨论了盖茨可以帮助资助疫苗的方式
+盖茨代表甚至参加了 NIH 的一个关键疫苗工作组。其实比尔盖茨对疫苗的热情早已开始,2013年盖茨在NlH说对疫苗充满希望！2019年盖茨接受白岩松的专访称疫苗的作用很神奇！
+
+![Image](https://pbs.twimg.com/media/E9mF9WdUYAQDTBH?format=jpg&amp;name=large)
+![Image](https://pbs.twimg.com/media/E9mF9WaUUAsvMGN?format=jpg&amp;name=medium)
+2010年9月盖茨去北京科兴生物制品有限公司考察。2015年，比尔·盖茨在TED大会上的预言.2020年4月9日，比尔盖茨作客新闻1＋1谈对疫苗的投资是值得的！2021年6月3日比尔盖茨远程参加浦江创新论坛并发言：期待更多来自中国的新冠疫苗！他对疫苗的追求好执著啊.
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgUUAEDhvp?format=jpg&amp;name=small)
+
+![Image](https://pbs.twimg.com/media/E9m-emgVkAMQrUK?format=jpg&amp;name=large)
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgVEAMHLMk?format=jpg&amp;name=small)
+
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgVIAIk8zY?format=jpg&amp;name=large)
+
+其实比尔盖茨和中共互动频繁，早在2007年他已经访华十次了，而且多次和中共领导人见面，光江泽民就见了三回
+按说一个推销电脑系统的，顶多也就去中关村晃悠晃悠就完了，这么削尖了脑袋往中南坑里钻是为什么呢？
+1994年盖茨首次来到北京与江泽民会见。1995年江泽民再次会见盖茨。2003年江泽民又一次见盖茨。
+
+
+
+![Image](https://pbs.twimg.com/media/E-W90zyUcAI7sxi?format=jpg&amp;name=900x900)
+
+
+![Image](https://pbs.twimg.com/media/E-W90zxVcAIqaPh?format=jpg&amp;name=medium)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90z1VIAAqBEw-2.jpeg)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90zwVkAEkzuk.jpeg)
+
+
+
+2007年4月比尔·盖茨在海南接受水均益的专访。比尔·盖茨说：2008年将携带家人和有「股神」之称的世界第二大富豪巴菲特前来北京观看奥运会。
+那他住在哪儿呢？就是盘古四合院！比尔·盖茨和巴菲特好到什么程度呢？有点像汪建和王石一样，好得穿一条裤子，一块儿打牌，一块儿旅游，一块儿接受钥匙澜采访！
+
+![Image](https://pbs.twimg.com/media/E-XOZldUcAYxWl3?format=jpg&amp;name=large)
+
+
+
+![Image](https://pbs.twimg.com/media/E-XOZlVUYAI-WYD?format=jpg&amp;name=large)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-XOZlvUYAIyJkZ.jpeg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-下午8.46.01.png)
+
+未完待续
+
+编辑：流浪的阳光
+
+校对/发稿 Serena
+
+深挖华大基因（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
+
+深挖华大基因 （二）[https://gnews.org/zh-hans/1891810/](https://gnews.org/zh-hans/1891810/)
+
+新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+
+新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
+
+
+
+
 
  
 
