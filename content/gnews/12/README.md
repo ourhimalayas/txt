@@ -2,20 +2,32 @@
 ---
 
 
-## 台湾谴责中共国战机的大规模入侵
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1902419/)
+## 爆料革命的目的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902448/)
 
-翻译：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01242.jpg)图片来自repubblica.it
-中共国人民解放军 (PLA) 派出了 34 架战斗机，外加 4 架电子战机和一架 H-6轰炸机出现在了其中大部分由台湾控制的普拉塔斯群岛附近的台湾防空识别区的西南部。台湾部署了战斗机、发射无线电信息并使用防空防御系统监视活动，并谴责中共国空军一年来在该岛附近多次执行任务。
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/爆料革命的目的-1-scaled.jpg)
+我们来看看整个我们运动的历史，你们要记得自己很多人都有一些不同的动机，有些人来讲他们有很多的企图。
 
-北京方面没有立即发表评论，北京过去曾声称此类行动只是为了保护自己的国家。现在中共国加大了对台湾的压力，要求其接受其主权主张。
+为什么说我在几年当中特别喜欢和班农先生在一起，就是他第一天的时候，其实就是帮助了我们，一定要消灭共产党，因为它们是一个跨国际的犯罪集团。
 
-10 月，台湾报告称，从中共国庆祝国庆节的 10 月 1 日开始，为期四天的时间里，有 148 架中共国空军飞机在其防空区南部和西南部部署。从那以后，台湾几乎每天都报告中共国军机进入同一空域，但今天的军机数量是自 4 个月前突袭以来单日最高的。
+所有的人，他们支持我们的很多的运动，比如天安门事件之类的。有很多的美国人，比方说， 其实从来没有一个人，像我一样，认识到中国共产党并不是一个合法的政党，它就是个 跨国际的一个犯罪集团。
 
-原文链接：[https://www.repubblica.it/esteri/2022/01/23/news/taiwan\_incursione\_caccia\_cinesi-334977927/](https://www.repubblica.it/esteri/2022/01/23/news/taiwan_incursione_caccia_cinesi-334977927/)
+其实这一点来讲，在我们美国人的这个思想里头 非常重要的，这是非常重大的一个事件。我们要记得任何一个运动，特别是我们来想一想，我们要完成的这个目的，也就是我们的郭先生以及和我们的运动，我们整个的目的就像是（要建设）历史上最为优秀的，历史和文明要比印度的宗教还要有悠久，比整个的古希腊，当然是比西方的基督教，最大的文明。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+发布：于white
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
