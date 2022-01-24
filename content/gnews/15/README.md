@@ -2,31 +2,19 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1900803/)
+## Vice对郭先生的采访绝非是偶然的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901000/)
 
-作者：香草山翻译部
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+*发布：*Frank2021
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-1.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.23  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ee00ad28a108147c614d3c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

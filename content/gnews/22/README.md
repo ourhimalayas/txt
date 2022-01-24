@@ -2,30 +2,25 @@
 ---
 
 
-## 【秘翻在线】拜登考虑向欧洲北约盟国部署数千名军队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1900696/)
+## 在任何情况下，你都不应该让你的孩子接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900808/)
 
-**撰稿：Grace**
+翻译：文载Jenny
+校对：Lish
+剪辑|字幕：向上James
+编辑：Mttfly
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-8.53.45-PM.jpeg)图片来源：Daily wire
-据 Just the News 1月23日报道，拜登政府官员告诉《纽约时报》，随着俄乌边境的紧张局势加剧，拜登正在考虑向东欧（Eastern Europe）和波罗的海（ Baltics）地区的北约盟国（NATO allies）部署数千名军队, 另外还有飞机和军舰。
+疫苗学家、病毒学家Geert Vanden Bossche在采访中表示，当你在与病毒斗争的在战场上时，永远不要使用不能阻断病毒传播的疫苗。换句话说，对于大规模接种疫苗，正在为更多的传染性变种的复制提供一个温床。从科学上讲，让儿童接种疫苗没有任何好处，只有重大的担忧和风险。他的建议十分明确，即在任何情况下，你都不应该让你的孩子接种新冠疫苗。
 
-美国国防部长奥列克西·雷兹尼科夫 (Oleksii Reznikov) 周日表示，美国在周末向乌克兰运送了80多吨价值2亿美元的军事装备。
+视频链接：[Under no circumstance should you allow your child to be vaccinated](https://gettr.com/post/poc4ro6f83)
 
-当天，美国驻乌克兰大使馆下令疏散外交官的家属，而其他雇员则被授权自愿离开。
+*发布：tianzhihuan*
 
-据《纽约时报》报道，拜登周六在戴维营(Camp David) 与五角大楼 (Pentagon)的高级官员举行了一次会议，讨论对乌克兰的几个军事方案。其中一个方案是向东欧国家部署1,000至5,000名美国军队，如果需要，可以将服务人员增加10倍。
-
-官员们告诉《纽约时报》，拜登可能会在本周做出决定，但目前的方案都不涉及直接向乌克兰部署美国军队。据报道，俄罗斯总统弗拉基米尔·普京 （Vladimir Putin） 希望避免将服务成员派往北约成员国爱沙尼亚 (Estonia)、拉脱维亚 (Latvia) 和立陶宛 (Lithuania)。报道称，这是拜登政府正在考虑的一个选项。
-
-据报道，拜登的官员正在密切关注是否有任何迹象表明俄罗斯可能会正如俄罗斯当局所言，在其边境部署战术核武器。
-
-报道还指出，拜登因其对正在发生的危机的反应而受到了批评。在上周的一次新闻发布会后，他因否定了普京对乌克兰的假设性 “小规模入侵”而被指责。
-
-
-
-**新闻来源： ****[Biden considering deploying thousands of troops to European NATO allies: Report](https://justthenews.com/government/white-house/biden-considering-deploying-thousands-troops-european-nato-allies-report)**
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

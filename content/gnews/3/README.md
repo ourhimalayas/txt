@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党对七哥的攻击向来都是组合拳
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900971/)
+## 伊莎贝拉对我们的危险
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901092/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

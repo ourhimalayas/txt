@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党对海外华人的长期影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900924/)
+## 伊莎贝拉你认不认识吴征,胡舒立,单伟健.你为什么不报道PAG
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901071/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

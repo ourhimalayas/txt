@@ -2,42 +2,30 @@
 ---
 
 
-## 有声|中共生化超限戰民眾當用生化知識自救（一）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900496/)
+## 【秘翻在线】拜登考虑向欧洲北约盟国部署数千名军队
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1900696/)
 
-配音：香草山巡管部– 文凯琳
+**撰稿：Grace**
 
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-8.53.45-PM.jpeg)图片来源：Daily wire
+据 Just the News 1月23日报道，拜登政府官员告诉《纽约时报》，随着俄乌边境的紧张局势加剧，拜登正在考虑向东欧（Eastern Europe）和波罗的海（ Baltics）地区的北约盟国（NATO allies）部署数千名军队, 另外还有飞机和军舰。
 
+美国国防部长奥列克西·雷兹尼科夫 (Oleksii Reznikov) 周日表示，美国在周末向乌克兰运送了80多吨价值2亿美元的军事装备。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-32.jpg)
+当天，美国驻乌克兰大使馆下令疏散外交官的家属，而其他雇员则被授权自愿离开。
 
+据《纽约时报》报道，拜登周六在戴维营(Camp David) 与五角大楼 (Pentagon)的高级官员举行了一次会议，讨论对乌克兰的几个军事方案。其中一个方案是向东欧国家部署1,000至5,000名美国军队，如果需要，可以将服务人员增加10倍。
 
+官员们告诉《纽约时报》，拜登可能会在本周做出决定，但目前的方案都不涉及直接向乌克兰部署美国军队。据报道，俄罗斯总统弗拉基米尔·普京 （Vladimir Putin） 希望避免将服务成员派往北约成员国爱沙尼亚 (Estonia)、拉脱维亚 (Latvia) 和立陶宛 (Lithuania)。报道称，这是拜登政府正在考虑的一个选项。
 
-新中國聯邦創始人郭文貴先生曾經在爆料時指出，冠狀病毒和毒疫苗是中共及其背後的黑暗權勢對人類發起的一場曠日持久的、非對稱生化超限戰爭。郭文貴先生在直播中還提及全球生產毒疫苗的主要廠家，大都與中共及其背後的黑暗權勢在資本或其它方面有某些關聯，他們在冠狀病毒功能增強、病毒散播流行，毒疫苗的研發、推廣、強制注射、媒體欺騙性宣傳誤導、掩蓋病毒及毒疫苗真相等許多方面，體現出了高度協同。
+据报道，拜登的官员正在密切关注是否有任何迹象表明俄罗斯可能会正如俄罗斯当局所言，在其边境部署战术核武器。
 
-既然這是一場主要由極權中共發起的滅人類的非對稱生化戰爭，我們除了要廣泛尋找真相、傳播真相、把民眾引入到爆料革命新中國聯邦的G-TV、GNEWS、GETTR 等這些傳播真相的自媒體平台上，喚醒民眾，我們還要從生物化學的角度做好預防和治療工作。
-
-原文链接：[中共生化超限戰民眾當用生化知識自救（一）](https://gnews.org/zh-hant/1895457/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+报道还指出，拜登因其对正在发生的危机的反应而受到了批评。在上周的一次新闻发布会后，他因否定了普京对乌克兰的假设性 “小规模入侵”而被指责。
 
 
+
+**新闻来源： ****[Biden considering deploying thousands of troops to European NATO allies: Report](https://justthenews.com/government/white-house/biden-considering-deploying-thousands-troops-european-nato-allies-report)**
 
  
 

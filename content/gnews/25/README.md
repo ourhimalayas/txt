@@ -2,47 +2,28 @@
 ---
 
 
-## 有声|灭共者之郭氏情报站（十五）2022/01/21 文贵大直播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900596/)
+## 冬奥会前夕北京丰台两百万人进行核酸检测
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1900787/)
 
-配音：香草山巡管部– 文凯琳
+![北京市民在一个流动检测站前排起长龙，等待进行新冠病毒核酸检测。](https://gdb.voanews.com/B44FE9AC-1105-4BD2-966D-DE2266835B4E_w1023_r1_s.jpg)北京市民在一个流动检测站前排起长龙，等待进行新冠病毒核酸检测。
+据美国之音1月23 日报道，距离北京冬奥会开幕不到两个星期，北京丰台区约200万居民被下令做全民核酸检测。同时，所谓高风险区的居民不得离开北京。
 
+北京现在已经进入深冬，丰台区市民在寒冷和拥挤的天气下排队几个小时接受核酸检测，隔离距离呢？安全措施呢？没感染的都会被感染。中南坑也在北京，中南坑需不需要大冬天站在外面忍着寒风排队接受核酸检测？作为几千万人口的超级大都市，官方通报几例感染，就大张旗鼓地强令几百万人隔离做检测，这背后真实的感染数据到底是多少？你不知我不知，天地知，中共知。上天是能够欺哄的吗？
 
+新闻参考链接：[https://www.voachinese.com/a/beijing-introduces-more-covid-measures-as-cases-mount-before-olympics-20220123/6408878.html](https://www.voachinese.com/a/beijing-introduces-more-covid-measures-as-cases-mount-before-olympics-20220123/6408878.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+编辑：胖丁
 
+* * *
 
-
-**灭共者-郭氏情报站**
-**2022年1月21日 文贵大直播总结提炼**
-
-1、西方世界和中共的政治经济脱钩今天开始！全世界没有选择，政治上只能和新中国联邦，经济只能和喜联储挂钩！
-
-2、冬奥会是上天的礼物，是共产党的噩梦。习近平的清零政策犯了3个大忌。1）宣布成功太早；2）清零违背常理的自杀行为；3）经济崩塌！
-
-3、科技和金融是共产党的两条腿，灭共先打断共产党这两条腿。芯片是共产党的核心，没有科技，共产党全部归零。
-
-原文链接：[灭共者之郭氏情报站（十五）2022/01/21 文贵大直播](https://gnews.org/zh-hans/1896866/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
