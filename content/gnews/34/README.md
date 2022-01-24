@@ -2,24 +2,26 @@
 ---
 
 
-## 白宫正在为加密货币市场制定重大计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903768/)
+## 美国重量级众议员预测中共将在冬奥会后入侵台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903769/)
 
-作者：银河系农场—骄子
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒1月23日报道，俄罗斯、英国、欧盟、美国，最近均在为加密货币市场提供更严厉的监管，此举已引起众多加密货币价格震荡。尽管如此，美国白宫正在为加密货币市场制定一项重大计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.32.15.png)
-消息人士称，美国概述加密货币行业风险和机遇的文件，预计于2022年2月发布。彼时，关于加密货币的行政命令，将使拜登政府在行业内成为焦点。
+英国媒体01月22日报道，美国众议院外交事务委员会领导人迈克尔·麦考尔在1月21日，与记者通话时预测，中共可能会在2月北京举行的冬奥会之后，军事侵略台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.31.53.png)
+麦考尔指出，在过去几十年来，中共一直声称台湾不是一个主权国家，是中共国的一部分。而现在中共吞并台湾的野心马上会付诸行动。
 
-据悉，该计划是在美国证券监管机构，商品监管机构，和美国财政部等机构的指导下进行的。下一阶段，金融稳定监督委员会，和美国商务部等其他机构，也将可能参与进来。
-美国SEC主席说，加密交易所将受到更多监管，同时，亦将其置于 “投资者保护职权范围” 之下。美联储数字货币可能已做好发行准备。
+麦考尔同时预测，俄罗斯很可能在下个月入侵乌克兰。美国政府对此高度关注，警告俄罗斯入侵乌克兰将付出严重的经济代价。
 
-参考链接：[With crypto winter back, the White House is making big plans for the sector](https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/)
+正如郭文贵先生此前爆料揭露，中共预谋和俄罗斯同时开战，分别攻打台湾和入侵乌克兰，让美国无暇同时应付东西两场战争，从而逼迫美国政府妥协，默认中共侵占台湾的既成事实。
+有关人士认为，目前中共政权已经内外交困、穷途末路，冬奥会之后军事侵略台湾，是中共为转移统治危机的孤注一掷。
+
+参考链接：[Republican Rep: We Might ‘Begin To See’ China Invade Taiwan ‘After The Olympics’](https://www.dailywire.com/news/republican-rep-we-might-begin-to-see-china-invade-taiwan-after-the-olympics)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：Jack Li文阳
-编辑：Kathy文艺
+总编：文真
+编辑：Ivy001
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

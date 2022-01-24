@@ -2,22 +2,25 @@
 ---
 
 
-## 研究称自然免疫力比病毒疫苗更能抗击中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903790/)
+## 法国民众继续游行抗议政府疫苗强制政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903841/)
 
-作者：银河系农场 – 骄子
+作者：纽约磐石农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月22日，位于俄亥俄州CDC发布了一项研究结果显示，人体自然免疫力比中共病毒疫苗，更能够有效地预防德尔塔变体毒株的感染。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-16.jpg)
-据悉，该项调查数据来源于纽约与加州，在2021年5月至11月的中共病毒患者情况。起初，因中共病毒疫苗尚未大面积推广，感染率差别并不很大，随着接种疫苗的范围和剂次不断扩大，人们变得越来越容易感染病毒。
-研究称，中共病毒疫苗的接种，会使人们失去自然免疫力，对中共病毒的抵抗力逐步下降。
+法国内政部1月22日表示，当日法国各地约有3万8千名民众走上街头示威，抗议即将在24日施行的中共病毒疫苗通行证政策，该措施将对大部分的公共生活做出强制规定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.jpg)
+据悉，从24日开始，法国16岁以上的民众必须出示疫苗接种证明，才能进入公共设施，以及使用跨区域的公共运输。
 
-参考链接：[Natural immunity was more effective than vaccines alone against delta variant, CDC study shows](https://fox8.com/news/coronavirus/natural-immunity-was-more-effective-than-vaccines-alone-against-delta-variant-cdc-study-shows/)
+在当前多个欧洲国家已取消疫苗护照和强制疫苗政策的背景下，法国仍然推行强硬的疫苗政策，导致了国内民众持续上街示威表示反对。
+
+参加示威游行的民众表示，疫苗强制措施将影响公民的日常自由，并批评政府强制的隔离形式，是对社会的分隔。
+
+参考链接：[抗議疫苗通行證 法國3萬8千人抗議](https://cn.rti.org.tw/news/view/id/2122870)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-总编: 文特
-编辑： Lakeman文仁
+总编: Jack Li文阳
+编辑： Ivy001
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

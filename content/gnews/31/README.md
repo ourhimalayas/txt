@@ -2,34 +2,52 @@
 ---
 
 
-## 美众议院提出《武装台湾法案》
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903782/)
+## 印度疫苗致死患者家属起诉政府和比尔-盖茨
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1903807/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：首尔天池农场—GeorgeC（乔治）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/50303486-AC8E-4401-A2FC-6C67072DD644.jpeg)（图片来自Wikimedia Commons photo）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
-近日，美国众议员迈克尔-加拉格尔Michael Gallagher提出了《武装台湾法案》：由国防部长建立台湾安全援助倡议，并批准从2023-2027年每年为该倡议提供30亿美元。
 
-据《台湾新闻》报导，加拉格尔表示，中国领导人习近平已将与台湾的统一作为 “其（中共国）遗产的关键部分”，并警告说，中国共产党正变得越来越有侵略性，因为它认为拜登政府在国外软弱无力。
 
-“国会需要挺身而出，在为时已晚之前恢复威慑力。我很自豪地与霍利参议员一起提出《武装台湾法》，为台湾提供必要的资源和武器，以挫败入侵企图，”加拉格尔说。
 
-该法案规定了如何使用分配给台湾的年度防务资金，特别侧重于提供设备、培训和其他必要的支持，以加强台湾的非对称性防御能力，阻止中共国的入侵。
 
-该法案还要求台湾配合美国对其非对称性防御的投资，增加国防开支，获得非对称防御能力，并实施国防改革，以获得台湾安全援助计划的资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Gates-India-lawsuit-feature-1024x534-1.jpg)图片来源：网络 
 
-此外，该法案还规定，“美国未来向台湾出售、租赁或以其他方式提供常规武器的条件是，台湾在实现可信的非对称防御方面取得明显进展。”
+当地时间1月20日，据相关媒体报道，印度一名23岁的男子卡德维于2021年9月29日接种了阿斯利康中共病毒疫苗后，因疫苗副作用在当天不幸身亡。随后，其母在当年年底代替她已故的儿子向孟买高等法院提交了一份刑事诉讼请愿书。
 
-*参考链接： [Arm Taiwan Act introduced in US House](https://www.taiwannews.com.tw/en/news/4419220)*
+据悉，这位母亲在该请愿书中指控比尔-盖茨、印度疫苗沙皇阿达尔-普纳瓦拉、印度政府和当地公共卫生官员共同谋杀了她的儿子，而此类法律案件可能是全球首例。
 
-* * *
+起诉书中提及，一些公务员的故意和渎职行为导致了卡德维的死亡。这些官员与大制药公司勾结，滥用职权强制推广中共病毒疫苗，甚至还虚假宣传疫苗的安全性。而鉴于政府严厉的封锁措施，卡德维“不得不”被迫接种了中共病毒疫苗。至于比尔-盖茨和阿达尔-普纳瓦拉则是在印度研发、推广及销售中共病毒疫苗的相关负责人。
 
-*素材采编：幽蘭自得*
+值得注意的是，起诉书中强调，印度政府承认当地生产的中共病毒疫苗可能对人体有害，甚至会出现致死等严重副作用，但政府仍然强制要求当地民众接种疫苗。为此，卡德维的母亲要求被告支付100亿卢比的经济赔偿。
 
-*编辑：青城道姑*
+新闻来源：
 
-*发布：miumiu*
+[https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
+
+编辑：Irene木木 校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+
+
+
+
 
  
 

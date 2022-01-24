@@ -2,12 +2,28 @@
 ---
 
 
-## 美国政府将暂停44个飞往中国的航班
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1904030/)
+## GTV新闻访谈简报|2022年1月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1904159/)
 
-01/22/2022 印度媒体Wion：美国政府周五表示将暂停四家中国航空公司从美国飞往中国的44个航班，以回应中共国政府以中共病毒为由取消部分美国航空公司的航班。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-23.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2022.01.24早GTV新闻访谈](https://gtv.org/video/id=61eea96c28a108147c61b16f)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

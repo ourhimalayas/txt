@@ -2,41 +2,29 @@
 ---
 
 
-## 有声|山东聊城公开招募中共病毒新疫苗试验者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904038/)
+## 担心俄罗斯的侵略行为 日本政府建议国民避免在乌克兰旅行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904166/)
 
-配音：香草山农场 – 纳米
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-39.jpg)
+[图片来源](https://www.bbc.com/news/uk-60033012)
 
+日本外务省1月24日，出于对俄罗斯可能会发生军事侵略的担忧，将整个乌克兰的旅行警报提高到3级。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据墙内媒体消息，1月21日，山东省聊城市疾控中心公开招募400名志愿者，进行“中共病毒“新型腺病毒疫苗的2期临床试验。
+日本外务省还敦促在乌克兰的日本人尽快乘坐商务飞机离开该国。
 
-此次招募条件是18-59岁的成年健康男女，并且是之前未接种过中共病毒疫苗者。受试者有能力了解试验程序，配合所有试验计划随访。
+此前，与俄罗斯接壤的两个东部省份和克里米亚半岛处于3级，而该国其他地区处于1级旅行警报。
 
-据悉，此次完成新疫苗所有测试项目，会补助1万元。
+根据日本外务省的数据，在乌克兰有大约200多名日本国民。 如果军事紧张局势加剧，预计自卫队的飞机将很难救援他们，因此日本政府要求他们在商业飞机还在运行时离开该国。
 
-一贯以来，中共当局极力掩盖其病毒感染人数，其医药研发产业的透明度、以及伦理问题也一度广受诟病。令人匪夷所思的是，2020年疫情爆发后的2个月内，中共已申请各类“中共病毒“疫苗等数十项专利，更是在疫情爆发后的三个月推出首款灭活疫苗。
+信息来源：
 
-有关人士评论，这明显是聊城疾控中心在给中共又一种或几种新的毒疫苗做试验采集数据。截止发稿时，尚未知道有多少人参加中共这种危险的疫苗试验。
+[ウクライナ全土、渡航中止勧告　ロシア侵攻懸念で日本政府](https://news.yahoo.co.jp/articles/eee7c928aaf8a1fa1a2256ba996861b2589174be)
 
-文字版原文：[山东聊城公开招募中共病毒新疫苗试验者](https://gnews.org/zh-hans/1898744/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -15,116 +15,116 @@
 
 ---
 
-### [2022年1月20日，文贵先生在直播中揭露什么是共产主义](/content/gnews/1/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [马龙博士在历史性的“击败授权”游行中向数万人的演讲](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [01/24/22 香港快讯 《羊村》故事书5人被控串谋刊印煽动刊物罪7月审讯](/content/gnews/2/README.md)
- ` 英喜-粵語組`
+### [文贵大直播 1/24 冬奥和病毒：CCP造假秉性难移 努力演好最后一场戏](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
 
-### [杰森·米勒：盖特由两家国际投资基金资助，没有中共一分钱](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [杰森·米勒谈盖特如何避免Parler被关服务器的相同遭遇](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [卡车司机抗议疫苗强制的众筹款超300万美元](/content/gnews/5/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|山东聊城公开招募中共病毒新疫苗试验者](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [美国政府将暂停44个飞往中国的航班](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [冬奥会勾起小时候的回忆](/content/gnews/8/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [换汤不换药法国将取消大部分疫情限制](/content/gnews/9/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [奥地利将成欧洲首个国家立法，几乎强制全民接种Covid疫苗](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|传统加密货币价格暴跌，千亿美元蒸发](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [有声|經濟海嘯將至 黑吃黑達沃斯黨滅共產黨](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [1月23日起加拿大卡车司机将在全国开始行动](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国将于数月后建成人造月亮设施](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共用金钱收买西方网红 为中共冬奥唱赞歌](/content/gnews/15/README.md)
- ` 日本东京方舟农场`
-
-### [有声|郭先生在磐石农场开幕典礼谈及教育](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [习近平如何迫使上万名&#8221;逃犯&#8221;返回中共国](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [澳大利亚演员亚伦·杰弗里及其妻子对儿童疫苗接种表示担忧](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中学生因未接种疫苗而被学校停学](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美军两个航母打击群进入南海争议区域 表达维护盟友立场](/content/gnews/20/README.md)
- ` 日本东京方舟农场`
-
-### [母女受困雪地哭诉无门](/content/gnews/21/README.md)
- ` 纽约香草山MOS03`
-
-### [秘翻在线：意大利新冠疫情传染曲线开始稳定](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国解放军在印度阿鲁纳恰尔邦境内绑架17岁男孩](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美疾控中心改口称：自然免疫优于接种疫苗](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [【全字幕+视频】郭文贵2017年6月6日王歧山2完整版](/content/gnews/25/README.md)
- ` 郭文贵全文字幕&#38;视频`
-
-### [法国民众继续游行抗议政府疫苗强制政策](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：对党不忠诚的蔡锷生同志被党抛弃了](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [印度疫苗致死患者家属起诉政府和比尔-盖茨](/content/gnews/28/README.md)
- ` GTV News Talk`
-
-### [樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株](/content/gnews/29/README.md)
+### [中共在河北发射55枚火箭人工降雪 解决北京冬奥会降雪不足问题](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [研究称自然免疫力比病毒疫苗更能抗击中共病毒](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [有声|欧洲议会新决议再次敦促成员国抵制北京冬奥](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [美众议院提出《武装台湾法案》](/content/gnews/31/README.md)
+### [特鲁多与索罗斯合作深度操纵难民慈善基金](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [担心俄罗斯的侵略行为 日本政府建议国民避免在乌克兰旅行](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [GTV新闻访谈简报|2022年1月24日早](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [2022年1月20日，文贵先生在直播中揭露什么是共产主义](/content/gnews/8/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [有声|沉静黑暗中的萤火虫](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [01/24/22 香港快讯 《羊村》故事书5人被控串谋刊印煽动刊物罪7月审讯](/content/gnews/10/README.md)
+ ` 英喜-粵語組`
+
+### [世卫组织呼吁各国取消疫情旅行禁令](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [杰森·米勒：盖特由两家国际投资基金资助，没有中共一分钱](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [杰森·米勒谈盖特如何避免Parler被关服务器的相同遭遇](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [卡车司机抗议疫苗强制的众筹款超300万美元](/content/gnews/14/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|山东聊城公开招募中共病毒新疫苗试验者](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [美国政府将暂停44个飞往中国的航班](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [冬奥会勾起小时候的回忆](/content/gnews/17/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [换汤不换药法国将取消大部分疫情限制](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [奥地利将成欧洲首个国家立法，几乎强制全民接种Covid疫苗](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|传统加密货币价格暴跌，千亿美元蒸发](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [法官发全国禁制令，禁止执行拜登的联邦雇员疫苗强制](/content/gnews/21/README.md)
+ ` GTV News Talk`
+
+### [有声|經濟海嘯將至 黑吃黑達沃斯黨滅共產黨](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [1月23日起加拿大卡车司机将在全国开始行动](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国将于数月后建成人造月亮设施](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共用金钱收买西方网红 为中共冬奥唱赞歌](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [澳网场外抗议人士呼吁 “关注彭帅”遭警察驱离](/content/gnews/32/README.md)
+### [有声|郭先生在磐石农场开幕典礼谈及教育](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [美军两个航母打击群进入南海争议区域 表达维护盟友立场](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [母女受困雪地哭诉无门](/content/gnews/28/README.md)
+ ` 纽约香草山MOS03`
+
+### [秘翻在线：意大利新冠疫情传染曲线开始稳定](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国民众继续游行抗议政府疫苗强制政策](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [美国重量级众议员预测中共将在冬奥会后入侵台湾](/content/gnews/33/README.md)
+### [印度疫苗致死患者家属起诉政府和比尔-盖茨](/content/gnews/31/README.md)
+ ` GTV News Talk`
+
+### [美众议院提出《武装台湾法案》](/content/gnews/32/README.md)
+ ` 日本东京方舟农场`
+
+### [澳网场外抗议人士呼吁 “关注彭帅”遭警察驱离](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [白宫正在为加密货币市场制定重大计划](/content/gnews/34/README.md)
+### [美国重量级众议员预测中共将在冬奥会后入侵台湾](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [美国务院下令撤离驻乌克兰大使馆人员家属](/content/gnews/35/README.md)
+### [白宫正在为加密货币市场制定重大计划](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针](/content/gnews/36/README.md)
+### [美国务院下令撤离驻乌克兰大使馆人员家属](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针](/content/gnews/37/README.md)
  ` 關注組`
-
-### [最新世界经济金融重大变化](/content/gnews/37/README.md)
- ` MilesGuoLivePPT`
 
 ### [四面楚歌 十面埋伏的北京冬奥会](/content/gnews/38/README.md)
  ` MilesGuoLivePPT`

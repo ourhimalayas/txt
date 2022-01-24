@@ -2,53 +2,49 @@
 ---
 
 
-## 印度疫苗致死患者家属起诉政府和比尔-盖茨
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1903807/)
+## 母女受困雪地哭诉无门
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1903904/)
 
-作者：首尔天池农场—GeorgeC（乔治）
+作者：香草山健身部 – 新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2022年1月22号，河南禹州许昌高中生，放假回家被卡点拦住在家附近，不能回家，妈妈出来陪同孩子投奔亲戚也被卡点拒绝，母女俩被挡在雪中活活冻了一夜。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+这期间不停的联系有关部门无人处理，甚至还打了110，12345市政电话，都没有得到实质行动，直到凌晨三点还在雪地徘徊。悲伤的母亲在视频里哭诉：现在是有家回不去，有校不能返，禹州一高官方通知学生可以回家，学校就已经做了18轮核酸检测，全部都是阴性。孩子返回到家的时候已经晚上6点多了，孩子拿核算证明到防疫卡点，值班人员不让回。下着雪没有办法，领着孩子步行到姥姥哪里，那边卡口也不让进。
 
+![](https://cdn.discordapp.com/attachments/902176588546850836/935078583263711232/IMG_9828.jpg)
 
+因为女孩是低风险区过来的，她求防疫人员能不能让她们先回去。可见当时董女士提出了合理要求，愿意全家隔离却依然不予放行，随后母女二人才步行投奔姥姥家，都遭卡点堵截，无奈只得再次返回。就这样俩母女在家的附近，在大雪中站了一整夜。
 
+23日早10时 ，董女士再次与女儿学校联系，学校派车将女儿接回才算是有了妥善安置。
 
+此视频一出，欣起众怒，评论区一片骂声，满屏骂恶毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Gates-India-lawsuit-feature-1024x534-1.jpg)图片来源：网络 
+如此冰天雪地、寒风刺骨，一对母女受尽身体心理双层的煎熬和无助。怎是一般人能忍耐的。
 
-当地时间1月20日，据相关媒体报道，印度一名23岁的男子卡德维于2021年9月29日接种了阿斯利康中共病毒疫苗后，因疫苗副作用在当天不幸身亡。随后，其母在当年年底代替她已故的儿子向孟买高等法院提交了一份刑事诉讼请愿书。
+所幸母女身体健康，硬是坚持下来。如果是老人身体不太好的人怎么办？如果因此造成了某些后果，谁该为此负责？
 
-据悉，这位母亲在该请愿书中指控比尔-盖茨、印度疫苗沙皇阿达尔-普纳瓦拉、印度政府和当地公共卫生官员共同谋杀了她的儿子，而此类法律案件可能是全球首例。
+就有网友留言，如果是这样对我女儿，我一定杀他个血流成河……
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled.001-8.jpeg)
+在对这对母女既同情又感到庆幸的同时，不少网友也敏锐地发现了新闻最后的一段内容：23日，禹州市夏都街道办工作人员表示，知悉此事后向董女士告知了有关政策，对卡点人员缺少人情做法进行批评，对董家母女称对此表示同情却也无奈。
 
-起诉书中提及，一些公务员的故意和渎职行为导致了卡德维的死亡。这些官员与大制药公司勾结，滥用职权强制推广中共病毒疫苗，甚至还虚假宣传疫苗的安全性。而鉴于政府严厉的封锁措施，卡德维“不得不”被迫接种了中共病毒疫苗。至于比尔-盖茨和阿达尔-普纳瓦拉则是在印度研发、推广及销售中共病毒疫苗的相关负责人。
+那意思就是防疫卡点工作人员拦下母女不予放行，不是不近人情，也不是故意刁难，而是“有关政策”规定的，他们是执行者，没有错。我们中国人呀，没有信仰的人心冷漠起来比病毒更可怕。
 
-值得注意的是，起诉书中强调，印度政府承认当地生产的中共病毒疫苗可能对人体有害，甚至会出现致死等严重副作用，但政府仍然强制要求当地民众接种疫苗。为此，卡德维的母亲要求被告支付100亿卢比的经济赔偿。
+![](https://cdn.discordapp.com/attachments/873743101305430037/926527191443972196/2c3ff12a-1aad-413c-bcbf-f68f4a054055.jpg)
 
-新闻来源：
-
-[https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/](https://childrenshealthdefense.org/defender/bill-gates-indian-government-lawsuit-astrazeneca-vaccine-killed-shri-hitesh-kadve/)
-
-编辑：Irene木木 校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
-
-
-
-
-
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
