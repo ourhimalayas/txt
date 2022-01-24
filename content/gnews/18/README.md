@@ -2,21 +2,104 @@
 ---
 
 
-## 美国实验室猴子逃跑事件背后的阴谋
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1900515/)
+## 深挖华大基因 (三）
+` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1900579/)
 
-撰稿：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-228.png)图片来自网络
-根据海外网1月23日报道 综合美国全国广播公司、英国《卫报》报道，当地时间21日下午，美国宾夕法尼亚州一辆运送100只猴子前往实验室的卡车发生交通事故，其中4只猴子逃跑，警方随后捕获其中3只，仍有1只在逃。当地人被警告不要接近这只危险的猴子。
+————疯子与魔鬼之间的交集
 
-首先，这个事件被媒体大量报道，我们看过1995年上映的美国灾难片电影《恐怖地带》当中的剧情也是一个猴子为病毒宿主被非法引进美国，然后实验动物中心的员工詹姆士·金宝·史考特将贝琪偷走后带到[加州](https://zh.wikipedia.org/wiki/%E5%8A%A0%E5%B7%9E)锡达河黑市进行买卖，运送途中金宝已遭到感染。最后开始了疯狂的病毒传染，这个好莱坞的预言场景，跟这次的新闻不谋而合。不知道后面是否有利益集团的有意安排，当然背后的指挥者肯定有中共的参与。
 
-其次，在2021年11月5日的新闻报道中，微软创始人比尔盖茨也同样发出了声明，让全世界做好生物恐怖袭击的准备，他们这些邪恶势力，都一次次的对人类发出了挑战和威胁。通过这次中共病毒大流行想彻底控制全人类，这次的猴子丢失事件不能不说是一次有意安排的病毒恐怖袭击做准备。我们可以拭目以待。
 
-最后，无论邪恶势力怎么安排恐怖袭击人类。经过两年多的大流行和爆料革命和新中国联邦的真相的爆料，让全球的人类在苏醒中。正义和光明终将会来到人间，人类文明的进步，需要剔除这些以中共为首的邪恶势力。祈祷我们每个被正义唤醒的人们都能走过这次人类大浩劫。去迎接真正的人类更高文明的到来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
 
-新闻参考：[美国实验室猴子运输途中逃跑 警方发通知：危险，别靠近](https://world.huanqiu.com/article/46Vzf5AV8ih)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-2.jpg)
+
+
+作者：流浪的阳光
+
+几个疯子与魔鬼之间的交集 2013年比尔盖茨给汪建的信 2018 年 12 月 11 日马里兰州贝塞斯达举行第五届全球健康年度咨询研讨会。比尔盖茨、福奇和柯林斯一起参加 2021年福奇邮件曝光：比尔盖茨和福奇定期交谈内容外泄 2016年柯林斯参加华大组织的国际基因组学会议称华大基因联合创始人杨焕明是我的朋友。
+
+![Image](https://pbs.twimg.com/media/E9jz2GSXsAAfRVI?format=jpg&amp;name=900x900)
+
+![Image](https://pbs.twimg.com/media/E9jz2GIX0AoTdCr?format=jpg&amp;name=large)
+
+![Image](https://pbs.twimg.com/media/E9jz2GPWQAsfhLH?format=jpg&amp;name=large)
+
+![Image](https://pbs.twimg.com/media/E9jz2GaXMAUjvjE?format=jpg&amp;name=large)
+
+关于福奇的邮件，有几个需要特别注意的地方：
+福奇和盖茨于 2020 年 4 月 1 日通电话，他们讨论了盖茨可以帮助资助疫苗的方式
+盖茨代表甚至参加了 NIH 的一个关键疫苗工作组。其实比尔盖茨对疫苗的热情早已开始,2013年盖茨在NlH说对疫苗充满希望！2019年盖茨接受白岩松的专访称疫苗的作用很神奇！
+
+![Image](https://pbs.twimg.com/media/E9mF9WdUYAQDTBH?format=jpg&amp;name=large)
+![Image](https://pbs.twimg.com/media/E9mF9WaUUAsvMGN?format=jpg&amp;name=medium)
+2010年9月盖茨去北京科兴生物制品有限公司考察。2015年，比尔·盖茨在TED大会上的预言.2020年4月9日，比尔盖茨作客新闻1＋1谈对疫苗的投资是值得的！2021年6月3日比尔盖茨远程参加浦江创新论坛并发言：期待更多来自中国的新冠疫苗！他对疫苗的追求好执著啊.
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgUUAEDhvp?format=jpg&amp;name=small)
+
+![Image](https://pbs.twimg.com/media/E9m-emgVkAMQrUK?format=jpg&amp;name=large)
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgVEAMHLMk?format=jpg&amp;name=small)
+
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgVIAIk8zY?format=jpg&amp;name=large)
+
+其实比尔盖茨和中共互动频繁，早在2007年他已经访华十次了，而且多次和中共领导人见面，光江泽民就见了三回
+按说一个推销电脑系统的，顶多也就去中关村晃悠晃悠就完了，这么削尖了脑袋往中南坑里钻是为什么呢？
+1994年盖茨首次来到北京与江泽民会见。1995年江泽民再次会见盖茨。2003年江泽民又一次见盖茨。
+
+
+
+![Image](https://pbs.twimg.com/media/E-W90zyUcAI7sxi?format=jpg&amp;name=900x900)
+
+
+![Image](https://pbs.twimg.com/media/E-W90zxVcAIqaPh?format=jpg&amp;name=medium)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90z1VIAAqBEw-2.jpeg)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90zwVkAEkzuk.jpeg)
+
+
+
+2007年4月比尔·盖茨在海南接受水均益的专访。比尔·盖茨说：2008年将携带家人和有「股神」之称的世界第二大富豪巴菲特前来北京观看奥运会。
+那他住在哪儿呢？就是盘古四合院！比尔·盖茨和巴菲特好到什么程度呢？有点像汪建和王石一样，好得穿一条裤子，一块儿打牌，一块儿旅游，一块儿接受钥匙澜采访！
+
+![Image](https://pbs.twimg.com/media/E-XOZldUcAYxWl3?format=jpg&amp;name=large)
+
+
+
+![Image](https://pbs.twimg.com/media/E-XOZlVUYAI-WYD?format=jpg&amp;name=large)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-XOZlvUYAIyJkZ.jpeg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-下午8.46.01.png)
+
+未完待续
+
+编辑：流浪的阳光
+
+校对/发稿 Serena
+
+深挖华大基因（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
+
+深挖华大基因 （二）[https://gnews.org/zh-hans/1891810/](https://gnews.org/zh-hans/1891810/)
+
+新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+
+新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

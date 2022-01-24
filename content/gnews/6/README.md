@@ -2,28 +2,68 @@
 ---
 
 
-## 1.21大直播后记：共产党的防火墙一定会消失
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900673/)
+## 法国佩皮尼昂议员Romain Grau被健康通行证的反对者袭击
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1900740/)
 
-整理：雅典娜速记组
-编辑：Rianna
+翻译：香草山商业部 – 文锤
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/QYD@UNQ8QOHBB3025TN.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-郭文贵透露第2个好消息：他们团队及背后支持者运作了45年，在科技上，尤其科技金融方面。只要能把它共产党撂倒，它2条腿基本就完。 就像它中共打台湾，看着台积电很好，我们会让它一切完蛋。 AMD在重庆投资的100亿美元，现在都没了。互联网最核心的就是它的芯片，只要没有芯片，它的科技全部归零！互联网防火墙归零！ 随着天空WiFi开始使用，大家记得5G投入，甚至6G的马上要开始，共产党没有防火墙的GTV、盖特、Gnews和喜马拉雅系统，从东北的山沟、西藏的高原、昆仑山下、福建的武夷山，到中国的南海，任何人轻易的迅速上线，使用这些媒体。但是共产党垂死挣扎，在这个荷兰最主要是拿光刻机，结局绝对在可想象的未来，共产党绝对解决不了。
 
-大家知道光刻机的公司是什么吗？ASML。这个光科技公司我们有战友团队公关，从这个中共吃狗的邪恶和冬奥会，到知道中共派出什么样的美女、混血儿、新疆、西藏培养长大的混血儿和外国的混血儿，睡他们的工程师，包括提前多年结婚，生孩子背景都让他们知道。荷兰人后来闹明白了，原来我们这帮荷兰大傻子跑去中共过日子，结了婚的都是有目的。 我们给他提供很准确的信息：这个人什么时候结的婚、怎么认识的？这个老婆为什么生了4、5个孩子， 生完孩子为什么要规定时间点要求回国？ 那都是来卧底。一开始他们工程师觉得我们就像邪教一样，说你这胡说八道、编造邪说。他们说郭先生你这说得不对吧，你是怎么知道这些信息呢？是编造的吧？ 我们其中有2个战友，一个战友背叛了，并且跟我们努力工作的时候，私下里突然告诉荷兰人，相反地说：“不要相信Miles说的，他是一个老板，他的目的是要在这个芯片上获得巨大利益，真实身份是共产党，内部政治斗争。” 荷兰人听了一下子不跟郭文贵联系了。但就在这个时候，老天在帮我们， 这个背叛我们的战友竟然在英国被抓了，去英国跟那些卧底的特务见面，抓完以后发现了他电脑里边这些信息，表明那11个人要把喜马拉雅农场给灭了，把大卫这些人全给灭了。结果被英国政府抓，英国绝对有信心，MI6绝对是郭文贵团队的关系，这来自天意。结果郭文贵告诉这个英国政府，他们特务能够把这个信息给荷兰人，荷兰找他们谈话说这个Miles的信息是对的，这家伙是假的，他是特务，事情反转了。 反转的结果是听闻他被共产党重金收买，他供职的ASML公司决定一个光刻机都不送给共产党。买的一个机器多少钱， 本来5亿美元的机器，花了25亿美元5倍的价格，现在全部取消，听说习近平习太阳很震怒。
 
-资料来源：郭先生GTV和盖特直播视频。
 
-发布：  *tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-148.png)[图片来源](https://www.francebleu.fr/amp/infos/faits-divers-justice/agression-du-depute-lrem-romain-grau-a-perpignan-lors-d-une-manifestation-1642887133)
+
+在法国佩皮尼昂，国民议会议员Romain Grau昨天遭到反卫生通行证活动人士的袭击。事情发生在他在市中心的议会办公室，在与一名司法部长的顾问一起工作时，这位马克龙共和国前进党LREM的议员声称被击中了脸部。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-59.png)[Twitter视频链接](https://mobile.twitter.com/RomainGrau/status/1485000552656289796?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1485000552656289796%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fd-27729644502712831489.ampproject.net%2F2201071715000%2Fframe.html)
+
+这是三年来的第三次，共和国前进党LREM 代表佩皮尼昂议会的办公室成为示威者的目标。在 2019 年的黄背心之后，是健康通行证的反对者来到 Romain Grau 的工作场所，并希望与之抗争。这一次，这位议员和司法部长的顾问 Guillem Gervilla 也在现场。
+
+要了解现场的暴力情况，只需观看示威者自己拍摄并发布在社交网络上的视频即可。几十个非常愤怒的人围攻办公室。议员走到街上试图打开对话，然后他被带到口头上完成任务。我们看到一些示威者试图抓住他，辱骂声爆发，一名男子多次喊“去死！ ”。紧张是显而易见的。
+
+“我的下巴被打了一拳”——Romain Grau，共和国前进党LREM 东比利牛斯山脉大区的议员
+
+“我们被非常粗暴地对待。他们显然想用相当严重的侮辱让我们崩溃”，这位议员透露道。根据 Romain Grau 的说法，一个邻居在被扇耳光之前试图干预。这位议员还说他“下巴挨了一拳”。
+
+两人终于躲到了办公室里，而游行示威队伍最终散去。共和国前进党LREM 议员Romain Grau 随后宣布，他想在周日提出投诉。在一条推文中，东比利牛斯省保证“将尽一切努力查明肇事者”。
+
+这不是Romain Grau的议会办公室第一次成为目标。在 2019 年 7 月的“黄色背心”示威活动中，窗户已经被摧毁，然后在同年 9 月被扔石头。
+
+在另一条推文中，国家教育部长让·米歇尔·布朗克尔表达了他的愤慨：“一次又一次太过分了，一位民选代表在示威活动的间隙遭到攻击。这些行为是不可接受的，呼吁团结”。
+
+译者评：在一个法治社会，暴力行为当然是不可接受的，但是当疫苗通行证被证明是犯罪的那一天，所有推动强制疫苗政策的政客都要肩负起不可推卸的法律责任！
+
+**原文阅读：**
+
+**[VIDÉO – Le député de Perpignan Romain Grau agressé par des opposants au pass sanitaire (francebleu.fr)](https://www.francebleu.fr/amp/infos/faits-divers-justice/agression-du-depute-lrem-romain-grau-a-perpignan-lors-d-une-manifestation-1642887133)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

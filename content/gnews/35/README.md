@@ -2,39 +2,26 @@
 ---
 
 
-## 专家：现在不是儿童强制接种疫苗的时候
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1899562/)
+## 法国各地3.8万人上街抗议疫苗通行证
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1899810/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/mpx-doc-talk-vaccines.jpg)图片来源：CBC
-根据《CBC新闻》1月23报道，在加拿大5至11岁的儿童中，只有不到一半的人接种了第一针COVID-19疫苗，但加拿大专家说，现在不是强制面授学生接种疫苗时候。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1440x810_6789415524851.jpg)图片来源：取自facebook.com/philippot.f
+据法新社1月22日报道，从24日起，16岁以上法国民众必须拥有完整的疫苗接种证明才能进入剧院、餐厅、酒吧从事娱乐活动以及搭乘高铁等。除了儿童以外，COVID阴性证明将不再足够，但进出医疗机构无需出示疫苗通行证。 法国各地约有3.8万人上街抗议这项政策，首都巴黎估计约有5200人上街，部分抗议民众带着小孩。
 
-公共卫生研究员德文-格雷森（Devon Greyson）说：”对于那些没有疫苗强制政策的省份来说，围绕疫苗接种的情绪非常高涨，在谈论疫苗强制是一种危险的行为”。
+完全接种疫苗的人不断感染病毒，并且感染人数不断攀升，已经证明疫苗不起作用。法国总统马克龙不顾事实，继续草菅人命，还在强推疫苗政策，魔鬼化作人形在世间作恶。等到病毒和疫苗真相公告天下之后，马克龙这等魔鬼必将受到最严厉的审判。
 
-格雷森说，事实上，在一些司法管辖区，疫苗强制弊大于利，这将一些人推离了疫苗接种。
+新闻参考链接：[疫苗通行证即将上路 法国各地3.8万人上街抗议](https://www.rfi.fr/cn/%E7%96%AB%E8%8B%97%E9%80%9A%E8%A1%8C%E8%AF%81%E5%8D%B3%E5%B0%86%E4%B8%8A%E8%B7%AF-%E6%B3%95%E5%9B%BD%E5%90%84%E5%9C%B03-8%E4%B8%87%E4%BA%BA%E4%B8%8A%E8%A1%97%E6%8A%97%E8%AE%AE)
 
-加拿大没有省或地区政府宣布在学校强制接种COVID-19疫苗的计划，但安大略省和新不伦瑞克省等管辖区已经要求进入公立学校系统的学生接种预防某种疾病的疫苗。
+* * *
 
-2020年提出了加强新不伦瑞克省学童强制性疫苗接种规则的立法，但被否决了。
-
-为不愿接种疫苗的父母提供咨询的儿科传染病专家科拉-康斯坦丁斯库博士说，随着5至11岁儿童的疫苗接种率降低，以及儿童重返课堂，她希望儿童尽快接种疫苗，但并不要求进行强制。
-
-根据加拿大公共卫生局的数据，大约5%的5至11岁儿童已经完全接种疫苗。总理贾斯汀-特鲁多（Justin Trudeau）周三对疫苗接种率低表示担忧，称“这使社会上最脆弱的人面临更大的风险”。
-
-与此同时，在美国，纽约市现在要求学生在参加课外活动之前必须接种疫苗。加利福尼亚州已经对学生有严格的疫苗要求，正在酝酿将COVID-19疫苗加入该清单。
-
-辉瑞生物技术公司的Comirnaty疫苗在11月底获得加拿大卫生部批准，用于5至11岁的人群–就在假期前几周，非紧急医疗预约会被放缓。
-
-康斯坦丁内斯库说，与成人疫苗剂量相比，儿科疫苗剂量不太方便获得，这使得父母更难让他们的孩子接种疫苗。然而他认为，接种率低的一个关键因素是儿童在感染COVID-19症状比较温和。还有，强制接种疫苗也因为父母对疫苗持怀疑态度，使儿童不去学校学习。
-
-加拿大没有强制儿童接种疫苗，至少不会胁迫儿童接种疫苗。希望疫苗接种尽快停下来，可以使更多的孩子免于疫苗灾难。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-原文链接：
-[https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-is-not-the-time-for-vaccine-mandates-even-as-vaccinations-among-children-remain-low-experts-1.6324433](https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-is-not-the-time-for-vaccine-mandates-even-as-vaccinations-among-children-remain-low-experts-1.6324433)
-
-编辑，发稿 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,30 +2,35 @@
 ---
 
 
-## 【秘翻在线】拜登考虑向欧洲北约盟国部署数千名军队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1900696/)
+## 宝琳·汉森参议员抨击澳洲政府疫情虚假报道
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1900775/)
 
-**撰稿：Grace**
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-8.53.45-PM.jpeg)图片来源：Daily wire
-据 Just the News 1月23日报道，拜登政府官员告诉《纽约时报》，随着俄乌边境的紧张局势加剧，拜登正在考虑向东欧（Eastern Europe）和波罗的海（ Baltics）地区的北约盟国（NATO allies）部署数千名军队, 另外还有飞机和军舰。
+整理报道：小鱼儿
+编辑：文泓
 
-美国国防部长奥列克西·雷兹尼科夫 (Oleksii Reznikov) 周日表示，美国在周末向乌克兰运送了80多吨价值2亿美元的军事装备。
-
-当天，美国驻乌克兰大使馆下令疏散外交官的家属，而其他雇员则被授权自愿离开。
-
-据《纽约时报》报道，拜登周六在戴维营(Camp David) 与五角大楼 (Pentagon)的高级官员举行了一次会议，讨论对乌克兰的几个军事方案。其中一个方案是向东欧国家部署1,000至5,000名美国军队，如果需要，可以将服务人员增加10倍。
-
-官员们告诉《纽约时报》，拜登可能会在本周做出决定，但目前的方案都不涉及直接向乌克兰部署美国军队。据报道，俄罗斯总统弗拉基米尔·普京 （Vladimir Putin） 希望避免将服务成员派往北约成员国爱沙尼亚 (Estonia)、拉脱维亚 (Latvia) 和立陶宛 (Lithuania)。报道称，这是拜登政府正在考虑的一个选项。
-
-据报道，拜登的官员正在密切关注是否有任何迹象表明俄罗斯可能会正如俄罗斯当局所言，在其边境部署战术核武器。
-
-报道还指出，拜登因其对正在发生的危机的反应而受到了批评。在上周的一次新闻发布会后，他因否定了普京对乌克兰的假设性 “小规模入侵”而被指责。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Y61ZG48EL2LL6JKO5RJW.png)图片来源：The Spectator Australia
 
 
+当地时间1月23日，据澳洲新闻网报道,一国党(One Nation)的领袖宝琳·汉森参议员在一个网上反疫苗强制活动中发言称，在大流行病期间有多少人死亡的这个问题上，澳大利亚人被政府欺骗了。
 
-**新闻来源： ****[Biden considering deploying thousands of troops to European NATO allies: Report](https://justthenews.com/government/white-house/biden-considering-deploying-thousands-troops-european-nato-allies-report)**
+她说：“我将站在一个论坛上，我相信我们需要一个皇家委员会来调查新冠病毒和它的处理方式。虽然我们已经有了总理、卫生专业人员和其他一些人，但他们在这个问题上蹒跚前行，他们没有对公众实话实说，这意味着我们需要对此获得答案。”
+
+昆士兰卫生部长伊薇特·达斯则在周日的新闻发布会上抨击了一国党领袖。她说，那些声称因疫苗强制接种而产生社会“隔离”的政客是“不负责任的和令人厌恶的”。
+
+在整个大流行病期间，汉森参议员一直直言不讳地批评政府疫苗强制接种政策，她和同为一国党的参议员马尔科姆·罗伯茨将在议会开始时继续阻止政府的相关立法。
+
+新闻链接：[“](https://www.news.com.au/national/queensland/news/irresponsible-and-dangerous-pauline-hanson-cops-fiery-blast/news-story/02927aa7a0424022bcebb28a6a4cd7df)[Irresponsible and dangerous”: Pauline Hanson cops fiery blast](https://www.news.com.au/national/queensland/news/irresponsible-and-dangerous-pauline-hanson-cops-fiery-blast/news-story/02927aa7a0424022bcebb28a6a4cd7df)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
