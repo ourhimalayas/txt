@@ -2,34 +2,24 @@
 ---
 
 
-## 法国民众继续游行抗议政府疫苗强制政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903841/)
+## 秘翻在线：意大利新冠疫情传染曲线开始稳定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1903895/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-法国内政部1月22日表示，当日法国各地约有3万8千名民众走上街头示威，抗议即将在24日施行的中共病毒疫苗通行证政策，该措施将对大部分的公共生活做出强制规定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.jpg)
-据悉，从24日开始，法国16岁以上的民众必须出示疫苗接种证明，才能进入公共设施，以及使用跨区域的公共运输。
+**翻译：蚂蚁爱钓鱼**
 
-在当前多个欧洲国家已取消疫苗护照和强制疫苗政策的背景下，法国仍然推行强硬的疫苗政策，导致了国内民众持续上街示威表示反对。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/73ca52f2726cc2115734d168196232e7.jpg) IMAGE SOURCE: PIXELATED 
+据安莎社报道，2022年1月21日高等卫生研究所（ISS）负责人西尔维奥·布鲁萨弗罗（Silvio Brusaferro）表示，意大利最新一波 COVID-19 传染的曲线开始稳定下来。
 
-参加示威游行的民众表示，疫苗强制措施将影响公民的日常自由，并批评政府强制的隔离形式，是对社会的分隔。
+布鲁萨弗罗在介绍卫生部和高等卫生研究所（ISS）的每周冠状病毒监测报告时表示：“与前几周相比，我们看到曲线显示疫情增长放缓”。根据最新的冠状病毒监测报告，意大利的 COVID-19 Rt传播数量已经下降，而病例发病率则保持稳定。
 
-参考链接：[抗議疫苗通行證 法國3萬8千人抗議](https://cn.rti.org.tw/news/view/id/2122870)
+报告称，12 月 22 日至 1 月 4 日期间的 Rt（传播） 指数为 1.31，低于上周报告中的 1.56。然而，报告补充说，本周的数字可能略低于应有的数字，因为一些地区在发送数据时遇到了问题。Rt（传播）值大于 1 表明疫情正在扩大。报告指出，每 100,000 名居民的发病率为 2,011 例，与上周的 1,988 例相比基本稳定。报告指出，新型冠状病毒患者占据的普通病房医院病房比例从27.1%上升到31.6%。但重症监护病房的COVID患者入住率实际上稳定在 17.3%，而1月15日为 17.5%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+Valle d’Aosta 是普通病房COVID患者入住率最高的地区，为 54.5%，其次是卡拉布里亚 (40.1%) 和利古里亚 (39.7%)。新型冠状病毒患者占用ICU病床比例最高的地区是马尔凯（23.9%）和弗留利威尼斯朱利亚（22.9%）自治省的 COVID 发病率最高，每 100,000 名居民中有 3,468.7 例病例。
 
-总编: Jack Li文阳
-编辑： Ivy001
-校正/发稿：Fei797
+**原文链接：**
+[https://www.ansa.it/english/news/2022/01/21/covid-19-contagion-curve-starting-to-stabilize-iss\_f0b6bb74-d1e1-4212-9578-1da636e2b803.html](https://www.ansa.it/english/news/2022/01/21/covid-19-contagion-curve-starting-to-stabilize-iss_f0b6bb74-d1e1-4212-9578-1da636e2b803.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

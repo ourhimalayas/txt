@@ -2,26 +2,23 @@
 ---
 
 
-## 美国重量级众议员预测中共将在冬奥会后入侵台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903769/)
+## 澳网场外抗议人士呼吁 “关注彭帅”遭警察驱离
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903770/)
 
-作者：纽约香草山 侠肝义胆
+作者：纽约磐石农场—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体01月22日报道，美国众议院外交事务委员会领导人迈克尔·麦考尔在1月21日，与记者通话时预测，中共可能会在2月北京举行的冬奥会之后，军事侵略台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.31.53.png)
-麦考尔指出，在过去几十年来，中共一直声称台湾不是一个主权国家，是中共国的一部分。而现在中共吞并台湾的野心马上会付诸行动。
+外媒报道，当地时间1月22日，在澳网公开赛场地外围，两名抗议者展示呼吁关注彭帅的衣服和布条，遭到保安人员拦截。视频显示，现场至少有两名警察将他们驱离现场。
+![](https://img.thedailybeast.com/image/upload/c_crop,d_placeholder_euli9k,h_2025,w_3600,x_0,y_18/dpr_1.5/c_limit,w_608/fl_lossy,q_auto/v1642935617/2021-12-20T000000Z_1673071457_RC22IR992FB6_RTRMADP_3_TENNIS-CHINA-PENG_b86i4r)Damir Sagolj/Reuters
+这两名抗议者向警察解释，他们并非从事政治活动，而是呼吁各界关注一名著名中国籍网球运动员的人身安全。他们还谴责澳网主办单位和警方打压公民言论自由，并强调，澳网公开赛不应该为了中共国企业赞助的利益，而打压关注彭帅人身安全的声音。
 
-麦考尔同时预测，俄罗斯很可能在下个月入侵乌克兰。美国政府对此高度关注，警告俄罗斯入侵乌克兰将付出严重的经济代价。
+分析人士批评指出，当地警方成为政治打压的工具，澳网公开赛亦配合中共进行丑恶勾当。正是因为彭帅处境仍不明朗，世界女子职业网球协会才撤销了该会所有在中共国和香港的赛事。
 
-正如郭文贵先生此前爆料揭露，中共预谋和俄罗斯同时开战，分别攻打台湾和入侵乌克兰，让美国无暇同时应付东西两场战争，从而逼迫美国政府妥协，默认中共侵占台湾的既成事实。
-有关人士认为，目前中共政权已经内外交困、穷途末路，冬奥会之后军事侵略台湾，是中共为转移统治危机的孤注一掷。
-
-参考链接：[Republican Rep: We Might ‘Begin To See’ China Invade Taiwan ‘After The Olympics’](https://www.dailywire.com/news/republican-rep-we-might-begin-to-see-china-invade-taiwan-after-the-olympics)
+参考链接：[Australian Open Organizers Ban ‘Where’s Peng Shuai’ T-Shirts](https://www.thedailybeast.com/australian-open-organizers-ban-wheres-peng-shuai-t-shirts)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
 总编：文真
-编辑：Ivy001
+编辑：Kathy文艺
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

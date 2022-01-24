@@ -2,29 +2,24 @@
 ---
 
 
-## 卡车司机抗议疫苗强制的众筹款超300万美元
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1904047/)
+## 特鲁多与索罗斯合作深度操纵难民慈善基金
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1904179/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/62629349_1642203087871377_r.jpg)图片来源：GoFundMe
-根据《CTV》1月22日报道，一项名为 “2022年自由车队”的运动只用一周多的时间，该活动的筹款已经超过300万美元。
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image2-2.jpg)
+据加拿大[反叛者新闻]1月22日报道，在联邦信息专员作出不利于特鲁多政府的裁决之前，一份被加拿大移民局谎称不存在的文件，包括28 页的简报和大量电子邮件突然在近日被公开，并因此曝光了特鲁多与索罗斯“开放社会基金”非法合作的利益关系。
 
-该众筹是由Alberta省的一名女士Tamara Lich发起的，旨在反对联邦政府关于COVID大流行病的疫苗强制和其它规定。根据GoFundMe页面，这笔钱预计将用于参加车队的抗议者的燃料、食物和住宿费用。
+报道称，继2016年9月美国前总统奥巴马提出《全球难民赞助倡议》后，加拿大政府、索罗斯基金和渥太华大学启动了一项联合行动，旨在促使政府、个人、团体和企业参与该国迎接，安置和服务新难民等相关福利工作。
 
-上周，联邦政府说犯了一个错误，开始称将豁免加拿大卡车司机穿越边境时疫苗强制规定。然而，渥太华表示，疫苗强制将适用于所有卡车司机，无论他们来自哪个国家。
+尽管总理特鲁多声称该计划不具行政约束力，但被公开的文件显示以上的难民政策已进入实施阶段，并将重点放在气候移民和经济移民上。此外，前移民部长麦卡勒姆与索罗斯此前曾公开宣称该合作计划的成功开展，足以证明了该金融大鳄的“开放社会基金”与特鲁多当局的深层利益关系早已“根深蒂固”。
 
-卡车运输业的许多人抗议此举，认为由于这些的要求，将对运输产生负面影响。
+校对编辑：硫酸羟氯喹64
 
-其他人则更进一步，加入了一场驱车前往首都亲自在国会山抗议的运动，反对疫苗强制同时推动渥太华支持石油和天然气行业以及管道建设.
+发稿： 苦尽甜来 (文來）
 
-卡车司机勇敢地用行动抗议政府暴政，众筹款也表现了民心。我们继续关注事态发展。
+[信息来源1](https://www.rebelnews.com/immigration_ministry_briefing_note_declares_partnership_with_soros_backed_charity_entrenched_in_the_department)
 
-原文链接：
-[https://calgary.ctvnews.ca/fundraiser-for-rally-to-protest-vaccine-mandate-on-truckers-exceeds-1-3m-1.5750751](https://calgary.ctvnews.ca/fundraiser-for-rally-to-protest-vaccine-mandate-on-truckers-exceeds-1-3m-1.5750751)
-
-编辑，发稿 Spirit
-
-
+[信息来源2](https://drive.google.com/viewerng/viewer?url=https://d3n8a8pro7vhmx.cloudfront.net/therebel/pages/56532/attachments/original/1642878973/soros-atip-jan22-watermarked.pdf?1642878973)
 
  
 

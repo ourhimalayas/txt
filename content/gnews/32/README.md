@@ -2,35 +2,34 @@
 ---
 
 
-## 美众议院提出《武装台湾法案》
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903782/)
+## 法国民众继续游行抗议政府疫苗强制政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903841/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+法国内政部1月22日表示，当日法国各地约有3万8千名民众走上街头示威，抗议即将在24日施行的中共病毒疫苗通行证政策，该措施将对大部分的公共生活做出强制规定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.jpg)
+据悉，从24日开始，法国16岁以上的民众必须出示疫苗接种证明，才能进入公共设施，以及使用跨区域的公共运输。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/50303486-AC8E-4401-A2FC-6C67072DD644.jpeg)（图片来自Wikimedia Commons photo）
+在当前多个欧洲国家已取消疫苗护照和强制疫苗政策的背景下，法国仍然推行强硬的疫苗政策，导致了国内民众持续上街示威表示反对。
 
-近日，美国众议员迈克尔-加拉格尔Michael Gallagher提出了《武装台湾法案》：由国防部长建立台湾安全援助倡议，并批准从2023-2027年每年为该倡议提供30亿美元。
+参加示威游行的民众表示，疫苗强制措施将影响公民的日常自由，并批评政府强制的隔离形式，是对社会的分隔。
 
-据《台湾新闻》报导，加拉格尔表示，中国领导人习近平已将与台湾的统一作为 “其（中共国）遗产的关键部分”，并警告说，中国共产党正变得越来越有侵略性，因为它认为拜登政府在国外软弱无力。
+参考链接：[抗議疫苗通行證 法國3萬8千人抗議](https://cn.rti.org.tw/news/view/id/2122870)
 
-“国会需要挺身而出，在为时已晚之前恢复威慑力。我很自豪地与霍利参议员一起提出《武装台湾法》，为台湾提供必要的资源和武器，以挫败入侵企图，”加拉格尔说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-该法案规定了如何使用分配给台湾的年度防务资金，特别侧重于提供设备、培训和其他必要的支持，以加强台湾的非对称性防御能力，阻止中共国的入侵。
+总编: Jack Li文阳
+编辑： Ivy001
+校正/发稿：Fei797
 
-该法案还要求台湾配合美国对其非对称性防御的投资，增加国防开支，获得非对称防御能力，并实施国防改革，以获得台湾安全援助计划的资金。
-
-此外，该法案还规定，“美国未来向台湾出售、租赁或以其他方式提供常规武器的条件是，台湾在实现可信的非对称防御方面取得明显进展。”
-
-*参考链接： [Arm Taiwan Act introduced in US House](https://www.taiwannews.com.tw/en/news/4419220)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

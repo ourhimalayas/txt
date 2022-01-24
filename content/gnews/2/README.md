@@ -2,33 +2,44 @@
 ---
 
 
-## 马龙博士在历史性的“击败授权”游行中向数万人的演讲
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1904213/)
+## 英国央行称通胀可能在长时间保持高位
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904390/)
 
-翻译：Jenny Ball
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/EW7ZRZOD4FJERGJ77GD7BKUBI4.jpg)
+英国央行总裁Andrew Bailey认为，通胀压力可能比之前预测的更持久，理由是能源成本飙升，且有迹象表明成本压力正在影响薪资水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1995.png)周日，罗伯特·马龙博士向数以万计在首都游行抗议疫苗授权的人发表讲话。
+Bailey表示，英国央行将竭尽全力缓解家庭压力。稍早，英国国家统计局表示，英国12月消费者物价指数(CPI)较上年同期上涨5.4%，涨幅高于预期，且创1992年3月以来的最大涨幅，11月为上涨5.1%。
 
-“我请求你们允许我一点时间，谈谈我们的孩子，以及我们必须保护他们的基本责任，”马龙博士对众人群说。“别的不说，我们必须培养和保护我们的孩子这是第一重要的工作。这是你的工作，这是我的工作，而不是他们的工作去保护我们。在过去的两年中，我们的社会和公共卫生应对措施却未能保护他们。”
+投资者认为，英国央行在2月3日将银行利率上调至0.5%的可能性超过80%，12月，英国央行将利率从0.1%上调至0.25%，成为自疫情爆发以来第一个上调借贷成本的主要央行。
 
-“我们的公共卫生系统要求我们对孩子做的许多事情在直接伤害着他们。世界各地的儿童自残、自杀和吸毒已经开始大流行，”马龙博士继续说道。“焦虑、欺凌、恐吓、胁迫，这些都已经成为常态。测量非常幼小孩子的智商已经显示下降了。”
+同时，欧洲央行会议记录显示决策者对通胀前景的看法存在严重分歧。欧洲央行在12月16日的会议上削减了对经济的刺激力度，但将债券购买计划延长至至少2022年底，理由是到今年年底通胀可能会回落至2%的目标以下，这一决定并没有获得一致通过，会议记录显示，决策者对这一前景存在严重分歧，25名政策制定者中有不少人认为，通胀有超出预期的风险。
 
-马龙博士继续讲到媒体和大型科技公司是如何用扭曲公共政策”的叙述来推动 COVID-19 疫苗“，“我真诚地相信我们打破这种媒体大肆疯狂的影响。传统媒体和大科技的影响，助长了恐惧和心理操纵，这些都严重扭曲了公共卫生政策，”马龙博士说。
+欧洲央行在会议记录中称，“有人警告称，不能排除通胀‘在更长时间内超过目标’的情况。”“对于2023年和2024年，基线预测中的通胀已经相对接近2%，考虑到预测的上行风险，通胀很容易就会保持在2%之上。”
 
-“Omicron 已经摧毁了他们对疫苗有效说法，以及早期药物治疗不起作用的说法。我们总统预测的，由媒体恐惧散播者推说的 黑暗冬天未能实现！”马龙博士说。
+25名管委会成员中有五人反对12月的政策举措，对于通常争取共识且不总是进行正式投票的管委会来说，持不同意见的人数之多实属罕见。欧洲央行的主流观点是，即便不采取政策行动，通胀率也将会自行减弱。
 
-抗议游行最初是由马龙宣布的，他是公认的 mRNA 疫苗的发明者之一，并且对当前的 COVID-19 大流行策略持怀疑态度。马龙上个月出现在“Joe Rogan ence”播客中时宣布了这一活动， 他和罗根的访谈在网上疯传，并导致一些医疗专业人士呼吁罗根的业主流媒体平台公司Spotify审查罗根。
+目前，通胀率已达到创纪录的5%，是欧洲央行目标的两倍多。过去10年，欧洲央行的预测一直与实际通胀发展水平不符，政策制定者在最近几次会议上对该行的预测模型提出了质疑。
 
-中午，人群聚集在林肯纪念堂周围，聆听运动员、医生和记者的演讲。华盛顿大规模游行还有包括彼得·麦卡洛博士(Peter A. McCullough)其他发言人。
+新闻链接：
+1:[https://www.reuters.com/business/bank-england-raise-rates-again-february-inflation-surges-2022-01-21](https://www.reuters.com/business/bank-england-raise-rates-again-february-inflation-surges-2022-01-21)
+2:[https://www.reuters.com/world/uk/boe-needs-lean-against-rising-price-pressures-mann-2022-01-21/](https://www.reuters.com/world/uk/boe-needs-lean-against-rising-price-pressures-mann-2022-01-21/)
+3:[https://www.reuters.com/world/uk/boes-bailey-sees-extra-inflation-risk-russia-ukraine-tension-2022-01-19/](https://www.reuters.com/world/uk/boes-bailey-sees-extra-inflation-risk-russia-ukraine-tension-2022-01-19/)
 
-素材链接：[thepostmillennial.com][WATCH: Dr. Robert Malone addresses tens of thousands at historic Defeat the Mandates march](Dr.%20Robert%20Malone%20addresses%20tens%20of%20thousands%20at%20historic%20Defeat%20the%20Mandates%20march)
+编辑/校对/发稿：文留
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

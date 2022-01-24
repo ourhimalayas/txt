@@ -2,59 +2,33 @@
 ---
 
 
-## 有声|沉静黑暗中的萤火虫
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904103/)
+## 有声|IMF主席称中共清零政策已成世界经济负担
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904227/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月21日，国际货币基金组织IMF总裁表示，中共国在对待冠状病毒采取的“清零”政策，已经成为世界经济的负担，而需要重新评估。
 
+“清零”政策是指政府通过强硬的公共卫生措施，如大规模核酸检测、封闭整个城市、转移并集中监控整个社区，以及严格的边境检疫等等极端措施，意图彻底消除病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-似水流年，平凡的日子已成了遥远的往事。
-人生的万千风景中，都伴随着一段段记忆。
-那些刻骨的，平淡的，都随着岁月风烟渐行渐远。
-或许时光可以老去，
-光阴对面，永不老却的是爱和温暖和感动。
-处身在黑暗时，唯一支撑下去的就是内心的信念。
+IMF总裁格奥尔基耶娃在接受媒体采访时说，中共国的“清零”政策，在大流行开始之初，遏制战略似乎比较成功。但这些严厉的手段对传染率惊人的奥密克戎来说，已经没有多少成效了。相反，带来的风险远多于益处，对中共国内和整个世界的经济复苏都造成了冲击。
 
-人生没有如果，在激情燃烧的岁月裡，
-这个世界永远留存着您们永不妥协的气息。
-每个人都在自己的角色裡演释着自己的故事，
-创造着自己燃烧青春岁月的奇迹⋯⋯
-您们就像黑暗中的萤火虫， 既使生命的短暂，
-依然给这个黑白无常的世界带来那一点光。
-兄弟姐妹们，您日夜奔跑着的身影，太累了，安息吧！
-——致天堂的手足
+格奥尔基耶娃指出，中共国这种“清零”政策越来越成为世界经济重启的负担。另外，所有国家都必须重新评估应对大流行病的最佳方案。
 
-人生就像蒲公英，看似自由，却心不由己。
-带着信念各处寻找自己扎根的地方。
-无论您们身在何方，
-心中惦念的依然是那熟悉的味道。
-兄弟姐妹们，微笑的活着，好好的活着。保重吧！
-——致远离家乡的手足
+文字版原文：[IMF主席称中共清零政策已成世界经济负担](https://gnews.org/zh-hans/1898280/)
 
-新的一年又到了，心中感慨万千。
-祝所有正义常存的您无论在何方或天堂
-永远自由快乐的绽放！这个世界我们来过⋯⋯
+音频处理：Fei797
+发稿：Fei797
 
-文字版原文：[沉静黑暗中的萤火虫](https://gnews.org/zh-hans/1899202/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

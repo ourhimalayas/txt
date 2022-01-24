@@ -2,33 +2,23 @@
 ---
 
 
-## 有声|IMF主席称中共清零政策已成世界经济负担
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904227/)
+## 意大利CCP病毒疫情趋于稳定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1904391/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月21日，国际货币基金组织IMF总裁表示，中共国在对待冠状病毒采取的“清零”政策，已经成为世界经济的负担，而需要重新评估。
+**撰稿：蚂蚁爱钓鱼**
 
-“清零”政策是指政府通过强硬的公共卫生措施，如大规模核酸检测、封闭整个城市、转移并集中监控整个社区，以及严格的边境检疫等等极端措施，意图彻底消除病毒。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16430424351.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16430424351.png)
+据安莎社报道，2022年1月21日-，高等卫生研究所（ISS）负责人西尔维奥·布鲁萨弗罗（Silvio Brusaferro）周五表示，意大利最新一波 COVID-19 传染的曲线开始稳定下来。
 
-IMF总裁格奥尔基耶娃在接受媒体采访时说，中共国的“清零”政策，在大流行开始之初，遏制战略似乎比较成功。但这些严厉的手段对传染率惊人的奥密克戎来说，已经没有多少成效了。相反，带来的风险远多于益处，对中共国内和整个世界的经济复苏都造成了冲击。
+报告称，12 月 22 日至 1 月 4 日期间的 Rt（传播） 指数为 1.31，低于上周报告中的 1.56。然而，报告补充说，本周的数字可能略低于应有的数字，因为一些地区在发送数据时遇到了问题。
 
-格奥尔基耶娃指出，中共国这种“清零”政策越来越成为世界经济重启的负担。另外，所有国家都必须重新评估应对大流行病的最佳方案。
+报告指出，每 100,000 名居民的发病率为 2,011 例，与上周的 1,988 例相比基本稳定。报告指出，新型冠状病毒患者占据的普通病房医院病房比例从27.1%上升到31.6%。但重症监护病房的COVID患者入住率实际上稳定在 17.3%，而1月15日为 17.5%。
 
-文字版原文：[IMF主席称中共清零政策已成世界经济负担](https://gnews.org/zh-hans/1898280/)
+[原文链接](https://www.ansa.it/english/news/2022/01/21/covid-19-contagion-curve-starting-to-stabilize-iss_f0b6bb74-d1e1-4212-9578-1da636e2b803.html)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
