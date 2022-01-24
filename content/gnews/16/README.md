@@ -2,186 +2,52 @@
 ---
 
 
-## 七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903131/)
+## 七哥开启爆料革命喊出的保命保财报仇是为所有冤魂报仇
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1903161/)
 
-[https://gtv.org/video/id=61ec713587664c47acd879c5](https://gtv.org/video/id=61ec713587664c47acd879c5)
+G-TV视频链接：[https://gtv.org/video/id=61ee407e87664c47acd930df](https://gtv.org/video/id=61ee407e87664c47acd930df)
 
-今天我要告诉大家
-Hoy les digo a todos
+**郭文贵先生**：你们有没有想到过一点：七哥2017年第一次直播最后一句话说：“你为什么要对共产党这样？” 我说：“保命、保财、报仇！” 你们今天理解更多了吗？是吧？报仇！如果你连这样的兄弟被杀害之仇你都不能报，你能帮别人救别人、你能救自己吗？
 
-(面对)今天的Omicron
-(Enfrentando) el Omicron de hoy en día
+我八弟是我八弟，他是不是你同胞呢？罗伊、Rosemary？你们新疆、西藏、香港、台湾被杀害的同胞，还有北朝鲜、文化大革命被杀害的同胞，Alice、Tiger被共产党强迫做掉的两个孩子，是不是我们同胞呢？我八弟是你们同胞、也是你们八弟或你们八哥八叔。那么我要报仇的就是我的同胞，我包含了所有人。
 
-一定要戴口罩
-Deben usar mascarillas
+保命、保财、报仇，你命都不保你报什么狗屁仇呀你呀，是吧？中国人这个民族现在可怜到啥程度？罗伊，你在国内是不是，你家里面拥有财富拥有官员，你们都很富有，绝大中国比——你到中国农村看，你到广西，你到甘肃去看，你喝着黑的水，所谓的“希望工程”搭的房子20平方米，然后是从河南移民到那儿去的，然后一家人家抄着手，一家人一年就那几件儿衣裳，平均年龄没有超过50岁的。
 
-这是今天我第一个给大家提醒的
-Esto es lo primero que hoy les recuerdo
+你看看中国人就是有个媳妇，造两个娃娃，只要像猪一样地活着，这就没有任何怨言了，这种窘境它比杀了还可怕，还不如让他死了呢。这为什么杨改兰她不简单，她有勇气杀掉自己，还自己杀掉——就没法了活啦！我告诉你们，杨改兰这样的人在中国现在有多少？绝对是几千万。
 
-这次东弟一定要记住
-Esta vez, hermano Dong debes recordar
+就短短的…就是上周从甘肃的，我去看过的我跟他联络，还真联络上了，我说：“你现在情况怎么样？”他说：“七哥，我们偶尔能看看，但是一般看不上。”他说：“真的，过去能看，看不了了。最近你发生什么事儿都不知道。”最后我说：“你一定要想办法让我看看我过去看过的甘肃那个所谓的被共产党扶了贫的地方儿。” 兄弟们，你看到那视频你会无法想象，跟我在2011年和2009年去看过的甘肃那个，只更糟没更好。
 
-口罩是绝对救命的
-Las mascarillas son salvavidas en lo absoluto
+我问他：“现在那里的人现在都怎么样？”他说：“我看过那个姓梅的，梅花儿的“梅”，很少有姓这个姓儿的，梅花儿的“梅”——梅家，他说：“都死啦，都没啦！这是新的一批移民。” 而且现在的新的移民你知道罗伊多恐怖吗？他们过去还能出去随便儿走，现在你一到甘肃所谓被扶贫的这些人，你是根本出不去的，现在他们不是每个人都有手机，还是一个地方用一个手机，就像过去的小铃铛（疑指：小灵通）一样，区域性手机。
 
-第2条大家要记住
-Segundo, todos recuerden
+就是这个社会之人类之黑暗，兄弟姐妹们，你们要不懂的话，你们就不知道你们现在有多幸福。你们没打疫苗又有喜币，还能直播，你看你们穿得长得都这样子，是多幸福的！珍惜你们的每一秒钟，不要辜负了上天给我们的一切的美好！所以说，我跟八弟的时候没有探讨这个灭共，那时候儿还不敢说这话，再一个我跟八弟没探讨过灭共这事儿，谢谢！
 
-这次的Omicron都是扯蛋的事情
-El Omicron de esta vez es una tontería
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-绝大多数的染病者都是打了2针3针疫苗的
-La mayoría de las personas contagiadas son los que se han vacunado la segunda y tercera dosis
+编辑整理：Jacques；
 
-只要你坐在那儿(外面)一定要戴口罩
-Así estés sentado afuera debes tener la mascarilla puesta
+字幕文件制作：小满；
 
-因为打了疫苗的人就是你最大的传染源
-Porque las personas vacunadas es tu mayor origen de contagio
+视频制作及上传：Cindy；
 
-我再告诉大家
-También les digo
+G-News发布：小满；
 
-疫苗本身就是病毒
-La vacuna en sí es un virus
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-它叫mRNA的权限给你打开了
-Es una autorización que se abre para ti llamado mRNA
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-刺突蛋白本身(对你)就是病毒
-Las propias espículas de glicoproteínas es un virus (para ti)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-你们要有点常识
-Ustedes deben tener un poco de conocimiento común
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-咱们现在是最弱势群体
-Ahora somos el grupo más vulnerables
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-因为凡是服务员都是打过疫苗的
-Porque bien sea el mesonero también está vacunado
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-他就是你的最大威胁
-Él es tu mayor amenaza
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-你们清楚了吧
-Ahora están claros
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-最后一个我要告诉大家
-Por último les quiero decir
-
-(关于)这个共产党放热毒的问题
-(Sobre) el problema del Partido Comunista que ha liberado el veneno caliente
-
-啥叫热毒
-A qué se le llama veneno caliente
-
-疫苗就是热毒
-La vacuna es el veneno caliente
-
-疫苗本身在不同的人体和不同的情况下
-La enfermedad producida por la propia vacuna en diferentes personas y condiciones
-
-爆发出来的病就是新的病种
-Es una enfermedad nueva
-
-更重要的事情
-Y lo más importante
-
-我们现在向西方和包括美国高法所有的人
-El occidente, incluyendo todas las personas de la Corte Suprema en EE. UU
-
-包括美国国会议员
-Y los miembros del Congreso de los EE. UU
-
-我们要提供的就两件东西
-Hay dos cosas que les vamos a proporcionar
-
-在欧洲的科学家
-Los científicos que están en Europa
-
-他给我们提供的一些文件
-Ellos nos entregaron unos documentos
-
-就共产党这个事儿我们敢公开喊
-Este asunto del Partido Comunista que nos atrevemos a gritarlo en público
-
-这是共产党的生化病毒
-Este es el virus bioquímico del Partido Comunista
-
-(生化)病毒是不可能有疫苗的
-El virus (bioquímico) es imposible de tener vacunas
-
-就是生化武器
-Es un arma bioquímico
-
-所以说你记住这个原则以后
-Por eso luego cuando recuerdes este principio
-
-你就不要再讨论其他问题了
-No sigas discutiendo otros problemas
-第一, 不能打疫苗
-Primero, no se puede vacunar
-
-第二, 你必须戴口罩
-Segundo, debes tener la mascarilla puesta
-
-第三, 你最近都不要出去
-Tercero, no vayas a salir últimamente
-
-第四, 大家要记住
-Cuarto, todos recuerden
-
-这个世界如果咱要能决定, 什么是黑和白, 红和黑
-Si en este mundo podemos hacer decisiones, qué es blanco y negro, rojo y negro
-
-我们可能是新中国联邦已经不叫新中国联邦了
-Quizás no nos llamaremos el Nuevo Estado Federal de China
-
-就叫太阳联邦了
-Sino Federación del Sol
-
-我们还是很渺小的力量
-Todavía somos una fuerza muy mínima
-
-跟国家的权力
-A comparación con el poder de un país
-
-跟世界比我们是很很很渺小的
-Y el mundo somos muy, muy pequeño
-
-真的是像张高丽说的
-Así como dijo Zhang Gaoli
-
-人家是宇宙无限大
-El Universo es infinito
-
-我们连地球的一粒沙都不是
-Nosotros ni siquiera somos un granito de arena de este mundo
-
-就跟这个国家政权比. 咱连一粒沙子都不是
-Comparados con el régimen de este país, no somos ni un grano de arena
-
-* * *
-
-日期：01/21/2022
-原视频标题：七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
-Miles Guo vuelve a advertir solemnemente de que el virus es el arma bioquímica del PCCh y no puede haber vacuna
-
-原视频日期：01/19/2022
-原视频网址：**[https://gettr.com/post/pp6l0y8f93](https://gettr.com/post/pp6l0y8f93)**
-任务编号：KC428（3534）
-视频时间段：00:00-02:19
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

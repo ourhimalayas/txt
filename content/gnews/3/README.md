@@ -2,36 +2,23 @@
 ---
 
 
-## 日本红十字会关于中共病毒疫苗接种者的献血标准
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903239/)
+## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-56.png)（图片源自本文链接）
-日本红十字会于2021年２月，就中共病毒（新冠病毒Covid-19）疫苗接种者的献血标准发布了如下通知．
+**疫情關注組 / 發佈時間｜24/1/2022**
 
-关于新型冠状病毒疫苗接种者的献血
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-2021年2月22日
 
-感谢您对献血的理解和合作！
+据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
 
-有关新型冠状病毒疫苗接种者的献血标准，政府仍在探讨中。因此，在标准确定之前，还望大家对此予以理解！
+[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
 
-标准预计在公众广泛接种疫苗之前确定，确定后会在网站上公布。
+以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
+来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
 
-感谢您一如既往的支持！
-
-日本红十字会
-![](https://assets.gnews.org/wp-content/uploads/2022/01/22-4.jpg)（通知原文）
-一年过去，并没有看到上述式样的正式通知．笔者在日本红十字会网站上找到了如下内容．
-
-新型冠状病毒的RNA疫苗（包括mRNA疫苗）接种者，接种48小时后可以献血。目前获批的有辉瑞公司和武田/莫德纳公司生产的RNA疫苗。此外，已经接种过阿斯利康病毒载体疫苗的人，目前不接受献血。有关此类疫苗接种者的献血标准，厚生省正在审查中。
-
-信息来源：[一定期間内に予防接種を受けた方｜献血をご遠慮いただく場合｜献血の流れ｜献血について｜日本赤十字社 (jrc.or.jp)](https://www.jrc.or.jp/donation/about/refrain/detail_08/)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

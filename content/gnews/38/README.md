@@ -2,12 +2,24 @@
 ---
 
 
-## 达沃斯论坛创始人—KlausSchwab探究
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1902838/)
+## 新书揭露硅谷寡头如何向中共绥靖，帮助其实现全球霸主地位
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1902876/)
 
-作者：磨刀石
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCC7B400-1392-49BD-8CCB-917518E08152.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C4CBC299-4C89-4B2D-81A0-6522D7C8F4A1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C009E4F2-34EE-4875-9F11-A21BBEA63666.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C2016475-F4B4-47A7-AB51-BBEEFB5DB443.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6D7768EE-E4DF-4493-B06C-BF9CE07B058A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B67F8D59-A57D-4343-8980-5CF49C93E1BE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/BEDF2C95-660A-4451-B2F6-5C6505BE22C5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/A59A0112-292A-4F36-9925-0BE22594C44B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/ADF3FA7B-031D-4C42-B2ED-FC45D67D6F1E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/58786887-DC76-49AC-91CA-EDE6967AC9EB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/48A483FF-5A01-417E-A857-D8B1BAC981E2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/84B32CF5-D9A2-4F00-9E63-7F5FE6FCAE79.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/252874E9-2534-4ECF-B4F9-8C01472516FA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B68A889E-D9CC-48E2-9773-A61C41AB27A2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B25826D0-B9D9-462A-B9DD-E35D3AA0350D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4C6BB001-AA38-4228-BF26-76F0129B26DA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/174D88E5-2C9C-4709-8644-B1DD4E5184C1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B6114E07-2706-4434-BA71-DB2510E68D06.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C82C3C14-DA2F-4FF2-A926-69553236ED96.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3050510D-EE38-48D7-86BE-5BF1E47D9E3F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/29856C05-4352-4BDC-B9FB-CFD2DD07FD56.jpeg)
-*发布：Theodosia*
+翻译：zzballack
+上传：追着曙光跑
+
+据《布莱特巴特新闻网》（Breitbart News）1月22日报道，《纽约邮报》（New York Post）摘录了由《布莱巴特新闻网》高级撰稿人、“政府问责研究所”（GAI）主席彼得·施魏策尔（Peter Schweizer）撰写的新书《人脏俱在：美国精英如何通过帮助中共获胜而致富》（Red-Handed: How American Elites Get Rich Helping China Win）的节选。讲述了贪得无厌的美国大科技公司为讨好中共而与其勾兑、将他们用户的数据和美国国家安全置于危险之中，并列出了一些最典型的例子。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-20.44.36.jpeg)图片来源：原新闻
+脸书
+2015年，奥巴马政府在白宫为中共领导人习近平举行了国宴。与会客人包括了来自政界和商界的200名精英，其中包括了脸书首席执行官马克·扎克伯格 (Mark Zuckerberg)及其当时已经怀孕七个月的妻子普莉希拉・陈 (Priscilla Chan)。当扎克伯格获得与习近平面对面的机会时，他希望这位中共独裁者能给他的孩子取一个中国名字，习近平以“责任太大”婉拒了这个要求。另外，2014年年底，当时任中共网信办主任鲁炜拜访脸书的加州总部时，扎克伯格在其办公桌上摆放了一本《习近平谈治国理政》，并向鲁炜解释说他也给同事们买了这本书，以便让他们了解中国特色社会主义。
+
+谷歌
+2017年，谷歌宣布在中共国成立人工智能研究中心，其中包括 “一小群获数百名驻中共国工程师支持的研究人员”。该中心由李飞飞和李佳领导，李飞飞是斯坦福大学人工智能实验室的负责人，李佳是谷歌云业务的人工智能部门研发主管。同一年，中共宣布了其 “人工智能发展计划”。谷歌说它将利用人工智能来帮助中共实现 “伟大复兴”。时任美国参谋长联席会议主席的詹姆斯·鄧福德(James Dunford)告诉美国参议院委员会说：“北京已宣布，在人工智能领域超过美国是‘国家的优先事项’。谷歌在中共国所做的工作将直接使中共军队受益。”
+
+特斯拉
+为了让特斯拉在中共国建立汽车生产工厂，数家中资银行联合向特斯拉提供了14亿美元的贷款，其中的繁文缛节也被中共当局取消。美国权威评级机构晨星公司 (Morningstar Inc.)的分析师伊文·苏（Ivan Su）解释说：”令我惊讶的是，中共政府很快就批准了监管程序，而且这个大型工厂在不到一年的时间里就建设完成。”2019年1月，伊隆·马斯克 (Elon Musk)在上海参加了工厂的奠基仪式，并与国务院总理李克强等中共高官会面，李克强甚至提出让马斯克成为中共国的永久居民。
+
+信息来源：[Peter Schweizer’s ‘Red-Handed’ Exposes Communist China’s Silicon Valley Sympathizers](https://www.breitbart.com/tech/2022/01/22/peter-schweizers-red-handed-exposes-communist-chinas-silicon-valley-sympathizers/)
 
  
 

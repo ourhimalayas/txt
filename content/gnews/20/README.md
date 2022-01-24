@@ -2,28 +2,186 @@
 ---
 
 
-## 郭文贵精品视频-中共在美国的法律超限战
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/1903069/)
+## 七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903131/)
 
-撰稿：澳喜cindy
+[https://gtv.org/video/id=61ec713587664c47acd879c5](https://gtv.org/video/id=61ec713587664c47acd879c5)
 
-中共为了实现早已预谋好的3F方案即：搞弱美国、搞乱美国、搞死美国，从2001年加入世贸组织之后，一方面到世界各国实施吸金大法，无规划、大肆无底线的借钱、圈钱搞本国的房地产投资的同时，另一方面在欧美国家全方位的有目的的渗透，挖空心思破坏西方国家的三权分立。用蓝、金、黄的手段渗透联邦、州层级的要员（立法部门）；用大量资金以做广告的形式投入到众多海外媒体，从而控制媒体对他们不利的信息的披露，做他们的喉舌，替他们发声，封杀反对他们的声音的账户（媒体监督）；用下三烂的手法搞定美国的律师、控制法官（执法部门），以备需要时派上用处。
+今天我要告诉大家
+Hoy les digo a todos
 
-郭先生在近四年的爆料革命运动中，揭露了中共这个邪恶政权的一些窃国大盗、杀死无辜百姓的罪行，遭到了中共国家级疯狂的打压。中共对他进行法律缠诉，在美国多达70个官司之多。企图消耗郭先生的精力、财力以阻止他的爆料计划。早已被中共腐化的美国律师和司法人员在郭先生的诸多官司中与中共勾兑，制造虚假文件，攻击爆料革命。
+(面对)今天的Omicron
+(Enfrentando) el Omicron de hoy en día
 
-太平联盟一案荒谬至极！太平联盟在有法律文件证明借方已还清贷款的情况下却无中生有起诉贷款担保人郭文贵先生。纽约法院受理了一个当事人和事件都不在纽约的案件，而且既不允许被告对判决提出任何质疑，又要查封不属于被告的财产！不能质疑原告信息，不能质疑律师利益关系，程序正义性荡然无存。
+一定要戴口罩
+Deben usar mascarillas
 
-在中国改革开放二十年间，西方国家很多法官、律师来到中国做生意，中共利用巨大的潜在市场和投资的诱惑在全球招摇撞骗，用威胁和利诱拿下了美国的律师和律师事务所。比如前不久被抓的傅政华，他管理律师牌照和海外律师联络的事宜，他利用这些律师事务所敲诈、转钱、洗钱。欧洲及美国很多律师、法官都被动的参与其中，形成了利益共同体。与此同时，这些律师也就被中共绑架成一体了。所以这些律师在处理与中共领导人相关的案件时，不会站在公平、公正的立场行事的。从而使美国最引以为荣的司法系统不可撼动的根基开始动摇了。
+这是今天我第一个给大家提醒的
+Esto es lo primero que hoy les recuerdo
 
-西方国家资本在中共包括香港，投资总额高达14.6万亿美元。很多律师，会计师都参与了其中的业务。经手这些业务的欧美律师一年拿走约500亿美元律师费。
+这次东弟一定要记住
+Esta vez, hermano Dong debes recordar
 
-另外，这些律师在中国赚钱最多的是代理王岐山的银行上市包括：建行上市、农行上市、邮储银行上市、上海银行、投行、基金 等。每一笔投资背后必须有律师事务所，每一笔投资必须有基金，每一笔投资都必须有会计师，这些相关人员都已被“蓝、金、黄”所击倒。中共控制法官和律师的家人，做假合同、假签名、可想而知官司能公正吗？
+口罩是绝对救命的
+Las mascarillas son salvavidas en lo absoluto
 
-共产党的邪恶力量早已跟西方的大财团、大科技公司、大药企勾结，控制了他们的媒体和政法界。中共对西方司法、科技、媒体、医学界的蓝金黄，使西方国家领导人、法律界、科技界、媒体界的人士堕落程度令人惊叹！因此郭先生誓言将对西方司法界、公检法系统进行一个彻底的大起底、大揭露。彻底击败中共在美国的法律超限战。
+第2条大家要记住
+Segundo, todos recuerden
 
-*编辑：cindy*
+这次的Omicron都是扯蛋的事情
+El Omicron de esta vez es una tontería
 
-**【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】**
+绝大多数的染病者都是打了2针3针疫苗的
+La mayoría de las personas contagiadas son los que se han vacunado la segunda y tercera dosis
+
+只要你坐在那儿(外面)一定要戴口罩
+Así estés sentado afuera debes tener la mascarilla puesta
+
+因为打了疫苗的人就是你最大的传染源
+Porque las personas vacunadas es tu mayor origen de contagio
+
+我再告诉大家
+También les digo
+
+疫苗本身就是病毒
+La vacuna en sí es un virus
+
+它叫mRNA的权限给你打开了
+Es una autorización que se abre para ti llamado mRNA
+
+刺突蛋白本身(对你)就是病毒
+Las propias espículas de glicoproteínas es un virus (para ti)
+
+你们要有点常识
+Ustedes deben tener un poco de conocimiento común
+
+咱们现在是最弱势群体
+Ahora somos el grupo más vulnerables
+
+因为凡是服务员都是打过疫苗的
+Porque bien sea el mesonero también está vacunado
+
+他就是你的最大威胁
+Él es tu mayor amenaza
+
+你们清楚了吧
+Ahora están claros
+
+最后一个我要告诉大家
+Por último les quiero decir
+
+(关于)这个共产党放热毒的问题
+(Sobre) el problema del Partido Comunista que ha liberado el veneno caliente
+
+啥叫热毒
+A qué se le llama veneno caliente
+
+疫苗就是热毒
+La vacuna es el veneno caliente
+
+疫苗本身在不同的人体和不同的情况下
+La enfermedad producida por la propia vacuna en diferentes personas y condiciones
+
+爆发出来的病就是新的病种
+Es una enfermedad nueva
+
+更重要的事情
+Y lo más importante
+
+我们现在向西方和包括美国高法所有的人
+El occidente, incluyendo todas las personas de la Corte Suprema en EE. UU
+
+包括美国国会议员
+Y los miembros del Congreso de los EE. UU
+
+我们要提供的就两件东西
+Hay dos cosas que les vamos a proporcionar
+
+在欧洲的科学家
+Los científicos que están en Europa
+
+他给我们提供的一些文件
+Ellos nos entregaron unos documentos
+
+就共产党这个事儿我们敢公开喊
+Este asunto del Partido Comunista que nos atrevemos a gritarlo en público
+
+这是共产党的生化病毒
+Este es el virus bioquímico del Partido Comunista
+
+(生化)病毒是不可能有疫苗的
+El virus (bioquímico) es imposible de tener vacunas
+
+就是生化武器
+Es un arma bioquímico
+
+所以说你记住这个原则以后
+Por eso luego cuando recuerdes este principio
+
+你就不要再讨论其他问题了
+No sigas discutiendo otros problemas
+第一, 不能打疫苗
+Primero, no se puede vacunar
+
+第二, 你必须戴口罩
+Segundo, debes tener la mascarilla puesta
+
+第三, 你最近都不要出去
+Tercero, no vayas a salir últimamente
+
+第四, 大家要记住
+Cuarto, todos recuerden
+
+这个世界如果咱要能决定, 什么是黑和白, 红和黑
+Si en este mundo podemos hacer decisiones, qué es blanco y negro, rojo y negro
+
+我们可能是新中国联邦已经不叫新中国联邦了
+Quizás no nos llamaremos el Nuevo Estado Federal de China
+
+就叫太阳联邦了
+Sino Federación del Sol
+
+我们还是很渺小的力量
+Todavía somos una fuerza muy mínima
+
+跟国家的权力
+A comparación con el poder de un país
+
+跟世界比我们是很很很渺小的
+Y el mundo somos muy, muy pequeño
+
+真的是像张高丽说的
+Así como dijo Zhang Gaoli
+
+人家是宇宙无限大
+El Universo es infinito
+
+我们连地球的一粒沙都不是
+Nosotros ni siquiera somos un granito de arena de este mundo
+
+就跟这个国家政权比. 咱连一粒沙子都不是
+Comparados con el régimen de este país, no somos ni un grano de arena
+
+* * *
+
+日期：01/21/2022
+原视频标题：七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
+Miles Guo vuelve a advertir solemnemente de que el virus es el arma bioquímica del PCCh y no puede haber vacuna
+
+原视频日期：01/19/2022
+原视频网址：**[https://gettr.com/post/pp6l0y8f93](https://gettr.com/post/pp6l0y8f93)**
+任务编号：KC428（3534）
+视频时间段：00:00-02:19
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

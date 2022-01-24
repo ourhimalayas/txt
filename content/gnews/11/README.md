@@ -2,53 +2,41 @@
 ---
 
 
-## 消灭共产党后达沃斯党在中国继续存在的可能性几乎为零
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1903183/)
+## 北京冬奥在即 言论失控、病毒扩散 引发“再溯源”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903197/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ee40dc87664c47acd93101](https://gtv.org/video/id=61ee40dc87664c47acd93101)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-29.png)[*图片来源*](https://media.nownews.com/nn_media/thumbnail/2022/01/1642994091430-5b972be3ab294faaa02770583d8647a9-1200x800.jpg?unShow=false)
+**冬奥会临近，北京会不会因为疫情扩散导致奥运期间意外事件发生？外界持续关注这场史无前例的“纳粹奥运会”，但中共官方罕见地否定了自己新的疫情推责说法——物传人，导致陷入言论混乱。更加罕见的是，美国总统拜登再提“病毒起源”时要求习近平配合，并罕见表示，这里有“秘钥”。**
 
-**郭文贵先生**：这个达沃斯还会有的，甚至共产党没消灭以后一段时间还会存在的。就达沃斯拥有的财富你看马云就可以看得出来，马云能带着一二十个全世界最好的厨师天天在那儿开party，鱼子酱几十公斤、几十公斤地买，是吧？就在那短短的不到一周的时间，马云给这些政要们达成的所谓的顾问，你看——你回去查马云，你回去查别听我说，都在七哥脑子呢。
+据中共国[CDC](https://www.chinacdc.cn/jkzt/crb/zl/szkb_11803/jszl_11809/202201/t20220124_256513.html)相关疫情数据显示，截止1月23日0—24时，31个省市和新疆报告新增确诊病例57例，其中境外输入病例39例。备受关注的北京新增1例，北京本土病例6例，其中，丰台区新增病例4例、房山区1例、大兴区1例；河北3例（均在雄安新区）。另据[北京日报](https://ie.bjd.com.cn/5b165687a010550e5ddc0e6a/contentApp/5b16573ae4b02a9fe2d558f9/AP61ed2508e4b06028eb1e834c.html?isshare=1&amp;contentType=0&amp;isBjh=0)消息，此轮疫情又有一地升级中风险。
 
-给全世界请的所谓退休的政治家发出的顾问协议，一年要付上亿美元——中国人的十几亿人民币。就马云到那儿不是撒钱去了，烧钱都烧不那么快。今天的马云在哪儿呢？马云现在是什么结果？他们“尿”都不“尿”你马云，为什么呀？就是中国共产党是邪恶的达沃斯党一部分，中国的所谓有钱人，什么马化腾啊，什么李彦宏啊，什么王健林呐，轮不着你，看不着你。
+该消息认为“境外输入现有确诊病例1104例（无重症病例），累计治愈出院病例11285例，无死亡病例”。 中共自武汉发动中共病毒疫情以来数据一直不透明，备受质疑，但从其所呈现的数据证实，中共国疫情正在呈全面爆发态势。
 
-你叫暴富，简句话叫说“你不够层次”，你的财富还不够我掠夺，还达不到帮我去管理奴隶的层次，而且非常清楚，你这个奴隶是我的三代奴隶，共产党都听我的，我让它弄死你就弄死你，所以人家拿他当着玩儿。“达沃斯论党”之势力之大，你只知道昆仑山脉，你知道阿尔卑斯山，阿尔卑斯山周围都什么国家？瑞士、德国、比利时、意大利、法国——骄傲的法国，还有那个傲慢的德国，是吧？阿尔卑斯山整个欧洲、就是欧洲的昆仑山脉、喜马拉雅。
+- ***延展阅读：***[***由于担心仓鼠将新冠病毒传播给人类，香港将杀死2000只宠物***](https://fortune.com/2022/01/18/china-covid-zero-cases-mail-beijing-hong-kong-hamsters/)
+- ***延展阅读：***[***深夜消息！北京21名冷库工作人员感染，疫情外溢两省3地，多地紧急寻人***](https://www.sohu.com/a/518628270_115362)
 
-但是“达沃斯党”控制了所有的阿尔卑斯山所有的资源，滑雪，从阿尔卑斯山下边儿的水，你看帕米尔高原的水是中国共产党多年喝的水，阿尔卑斯山的神圣的山顶之水谁喝？你花多少钱你都买不到，它们坐落在哪里？——瑞士——达沃斯！
 
-瑞士最牛叉儿的UBS银行是王岐山第一个来伤害七哥的、（和）爆料革命——UBS！你再看那个单伟建这个孙子，是桥水基金Ray Dalio的、TPG的、PAG太平联盟的，你看看那个单伟建几乎“达沃斯论坛党”的所有人他都去了一遍，结果是跟谁呀？共产党的所有几个情报机构全混在一起。就单伟建这个人要不被美国西方政府抓了，不可能达沃斯有什么事儿。
+值得注意的是，中共国CDC再三强调“无死亡病例”，并从所谓数据反映，强调了境外输入病例是主因，中共针对Omicron多次指责境外冷链和邮件传播所致。对此，中共国新华社20日说，“‘物传人’风险要警惕！”从此，“物传人”的新闻舆论铺垫开启了前后矛盾的攻势，一片混乱，并出现官方无法统一口径的局面。
 
-就是共产党在西方存的钱，像UBS银行，像德意志银行，像海航这样的，它不出事儿我们的黑暗还早着呢。答案是，跟达沃斯之战是黑暗与阳光之战，几乎很难很难。但是共产党一定会被消灭，但是它会尝试在中国培养出一个让你看上去比共产党好的，所谓的另外一个奴隶主：哎，你看我让你选举呀，我让你民主啊。然后呢，他的财富继续拥有，继续奴隶中国人。
+“物传人”说法最早在1月10日，[中新网](https://www.chinanews.com.cn/sh/2022/01-10/9648816.shtml)消息称，《深圳此轮疫情源头或为境外物品》输入，意在推责海外输入。[南华早报](https://www.scmp.com/news/china/science/article/3163657/did-omicron-arrive-chinas-capital-beijing-mail-canada)也证实这一说法，称，“Omicron是从加拿大邮寄到中国首都北京的吗？”
 
-这是我们新中国联邦的另外一层力量。很艰难，但是我相信有新中国联邦的诞生之后，达沃斯论党想在中国继续存下去的可能性，几乎没了，我们会做到的。谢谢！
+中共国[卫健委](http://health.people.com.cn/n1/2022/0122/c14739-32337370.html)22日说，“目前非冷冻入境物品导致境内人员感染的证据尚不充足。到目前为止，专家们没有足够的证据证明非冷冻进口商品会将 Covid-19 传染给中国人。”彭博社对此援引中共相关官员的话证实了这一点。22日，[中共国政府](http://www.gov.cn/fuwu/2022-01/22/content_5669968.htm)也予以证实说，“物传人不是新冠病毒主要传播途径”。23日，中共国[新华社](http://m.news.cn/ha/2022-01/23/c_1128291195.htm)称，“压实全链条责任，织密阻断‘物传人’防线。”23日当天，新华社为自己说过的话反悔，称“物传人可能性如何应对?”
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+- ***延展阅读：***[***北京新增本土确诊病例7例无症状感染者2例，丰台新增2个中风险地区***](https://cn.reuters.com/article/%E3%80%8A%E7%96%AB%E6%83%85%E7%AE%80%E8%AE%AF%E3%80%8B%E5%8C%97%E4%BA%AC%E6%96%B0%E5%A2%9E%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B7%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%852%E4%BE%8B%EF%BC%8C%E4%B8%B0%E5%8F%B0%E6%96%B0%E5%A2%9E2%E4%B8%AA%E4%B8%AD%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA-idCNL4S2U30OR)
 
-编辑整理：Jacques；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1989.png)
+[*图为拜登总统与习近平连线会议*](https://nypost.com/wp-content/uploads/sites/2/2022/01/BidenJinping.jpg?quality=90&amp;strip=all)
 
-字幕文件制作：小满；
+如今，中共政府多次表明物传人没证据，这种说法造成的混乱已经在民间引起了民族情绪，但这些消息体现了北京对即将举行的冬季奥运会能否成功举办的担忧。
 
-视频制作及上传：Cindy；
+随着全球疫苗灾难的延伸引发了各国对“病毒起源”的急迫感，中共深知自己总有一天要面对这一噩梦般的一天。自从2021年7月23日，[中共国拒绝世卫组织第二阶段病毒起源调查计划](https://www.bbc.com/news/world-asia-china-57926368)后，[拜登总统在本月19日再提“病毒起源”，他坚持要求中国国家主席习近平公开 COVID – 19 疫情的起源](https://nypost.com/2022/01/19/biden-insists-he-pressed-chinas-xi-on-covid-origin-but-aides-werent-in-room/)。该要求是在周三，拜登年内第二次新闻发布会上回答《华盛顿邮报》提出的病毒起源问题时做出这一宣告的，并坚称媒体并不知道这场病毒起源的“秘密交易”。
 
-G-News发布：小满；
+2022年1月24日
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

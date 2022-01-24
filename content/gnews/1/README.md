@@ -2,26 +2,42 @@
 ---
 
 
-## 布基纳法索政变：卡博雷总统和部长显然被捕
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1903269/)
+## 苏格兰公共卫生部数据：未接种新冠疫苗者相比接种者拥有最低的新冠病毒感染率
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1903559/)
 
-信息来源： 德国法兰克福报网页版
+编者：寻文客
+![](https://assets.gnews.org/wp-content/uploads/2022/01/164291009625932_P15352683.jpg)
+苏格兰公共卫生部于1 月19 日公布了当地最新的新冠病毒(COVID 19) 持续性报告。[1] 报告列举的大量苏格兰新冠病毒疫情的数据中有一条数据格外引人注意：报告统计了2021 年5 月10 日至2022 年1 月14 日不同剂次的新冠疫苗接种者（分别为：未接种、一剂、两剂、三剂或加强针，
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/proteste-am-wochenende-in.jpg)
-图片来源： 法新社
+共4 组）经过年龄标准化（排除了年龄影响）后的新冠病毒感染率，统计数据显示未接种新冠疫苗者的新冠病毒感染率是4 组中最低的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1991.png)
+图片以星期为单位显示了不同剂次的新冠疫苗接种者每十万人中感染
 
-据安全消息人士称，在布基纳法索，总统罗赫·马克·克里斯蒂安·卡博雷已被叛乱士兵逮捕。据几位安全消息人士周一称，除了卡博雷，议会首脑和部长们也在首都瓦加杜古军营的士兵手中。这个西非国家已经被周末的动乱动摇了；几个军营里有人开枪。然而，政府否认发生军事政变。
+新冠病毒的人数，从而显示出不同剂次的新冠疫苗接种者的新冠病毒感染率。从图片数据可以看出如下信息：
 
-周六已经发生了针对政府的暴力抗议活动，示威者与安全部队之间也发生了暴力冲突。卡博雷总统随后发布了宵禁。
+*•*不同剂次新冠疫苗接种者的新冠病毒感染率均符合苏格兰当地新冠疫情流行趋势。
 
-一天后，士兵们在全国多个军营开枪，称他们要求解雇一些高级陆军首领和更好的装备。首都居民后来报告了总统私人住宅附近的枪击事件。
+*•*相比接种新冠疫苗一剂、两剂、三剂或加强针的人群，未接种新冠疫苗者的感染曲线最“平坦”，同时感染峰值最低（每十万人约200 人/周），而接种新冠疫苗一剂、两剂、三剂人群的感染峰值都超过了300，接种两剂人群的感染峰值甚至超过了400。体现出未接种新冠疫苗者相比接种者拥有最低的新冠病毒感染率。
 
-就在周日，政府宣布没有“军队接管”，政治机构“目前”没有受到威胁。她拒绝了在线网络上的相应报道，并呼吁“民众保持冷静”。
+尽管报告称这项数据“由于人群不同和新冠疫苗品种不同的因素，不
 
-西非布基纳法索是世界上最贫穷的国家之一。与萨赫勒地区的其他国家一样，该国也在与伊斯兰民兵组织的袭击作斗争，其中一些与基地组织或恐怖民兵组织伊斯兰国（IS）有关。
+能由此推断新冠疫苗的效果”。然而苏格兰政府已经宣布将于1 月24 日起取消包括疫苗通行证在内的所有新冠病毒限制措施。[2]
 
-🔗 [布基纳法索政变](https://www.faz.net/aktuell/politik/ausland/putsch-in-burkina-faso-praesident-kabore-offenbar-festgenommen-17748233.html)
+编者评价：新冠疫苗不能预防新冠病毒甚至促进感染新冠病毒，因此
+
+强制接种新冠疫苗、实施疫苗通行证都没有其科学依据。停止接种新冠疫苗、取消疫苗通行证是保护人民健康于人权的必须。
+
+参考来源
+
+[1] [https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter*publicationreport.pdf*\[2\] https://news.sky.com/story/covid-19-all-omicron-restrictions-in-scotland to-be-lifted-next-monday-12519177](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winterpublicationreport.pdf%20[2]%20https://news.sky.com/story/covid-19-all-omicron-restrictions-in-scotland%20to-be-lifted-next-monday-12519177)
+
+* * *
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
