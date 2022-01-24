@@ -2,34 +2,40 @@
 ---
 
 
-## 英国：将对俄罗斯实施严厉的经济制裁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1901392/)
+## 金融科技初创公司NextPay着眼于加密服务产品
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901435/)
 
-#### **撰稿：日本东京方舟农场 洛夫斯基灭ССР**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/AFC649E9-4A09-43B7-B60F-3E248A92A2A3.jpeg)（图片来源：路透社）
+整理/编辑：小红帽
 
-1月23日，据《消息报》报道，英国副首相鲍里斯·约翰逊、司法部长多米尼克·拉布宣布，伦敦将对俄罗斯实施严厉的经济制裁，因为俄罗斯试图让亲俄的政治家在基辅上台。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
-《天空新闻电视频道》援引他的话说：“如果俄罗斯试图入侵乌克兰，并建立一个傀儡政权，它将面临严重后果。”
 
-拉布说，伦敦将支持基辅在国际社会面前，对莫斯科进行自卫。他指出，在俄罗斯可能入侵乌克兰的问题上，盟友们将“并肩作战”。
+根据《GMA》1月23日报道，在去年录得价值10亿比索的交易后，为了保持增长，金融技术初创公司NextPay正在寻求扩大其服务范围，其中包括加密货币服务。
 
-在被问及英国是否考虑切断俄罗斯与SWIFT国际银行系统的联系时。这位副首相说，将对莫斯科实施一揽子广泛的“经济和金融限制”。
+NextPay首席体验官兼联合创始人奥尔德里奇·谭（Aldrich Tan）表示，NextPay对2022 年持乐观态度，因其正在探索几个推动增长的关键举措。
 
-拉布补充说，伦敦不太可能向乌克兰派兵以保护其免受侵略。但他指出，**军事教官长期以来一直在训练乌克兰军队**。
+“我们的目标是引入更灵活的支付方式，并探索贸易融资、企业卡和加密货币服务等高增长领域，”奥尔德里奇在电子邮件声明中表示。
 
-《电讯报》前一天报道说，英国政府正在考虑采取最后的措施，即在假设发生入侵乌克兰的情况下切断俄罗斯与SWIFT国际银行间系统的联系。
+该投资包括来自硅谷Y Combinator的种子前支持，该公司还支持本地公司Kalibrr、PayMongo、Avion School和Dashlabs.ai。投资者还包括新加坡风险投资家金门，以及苏氏家族的私人投资工具Gentree Fund。
 
-*参考链接：[МИД Австрии сообщил о разработке Евросоюзом санкций против РФ из-за Украины](https://iz.ru/1281093/2022-01-23/mid-avstrii-soobshchil-o-razrabotke-evrosoiuzom-sanktcii-protiv-rf-iz-za-ukrainy)*
+NextPay表示计划在今年上半年开始筹集资金，但没有详细说明它希望利用哪些类型的融资。
 
-* * *
+该公司于2020年推出，提供民主化的金融服务，例如数字发票、现金管理以及向当地银行和电子钱包的批量支付。
 
-*素材：洛夫斯基灭ССР*
+另外，NextPay于去年推出了可重复使用的支付链接服务，使企业能够通过一个链接收集客户付款。该链接允许通过多种方法进行支付结算。
 
-*编辑：文顺*
+新闻来源：[Fintech startup NextPay eyes crypto services offering](https://www.gmanetwork.com/news/money/companies/819216/fintech-startup-nextpay-eyes-crypto-services-offering/story/)
 
-*发布：miumiu*
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

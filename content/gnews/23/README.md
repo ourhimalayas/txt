@@ -2,19 +2,26 @@
 ---
 
 
-## 美国著名律师被认定为强烈违反职业道德 被判出局
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901341/)
+## 拜登没能威慑俄罗斯和中共国，我们可能最终会陷入一场全球冲突
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901386/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+翻译：Frank
+校对：Lish
+剪辑|字幕：蛮吉
+编辑：Mttfly
 
-1月17日，郭文贵先生在GTV大直播指出：
+前中央情报局站长丹·霍夫曼在接受福克斯新闻采访时表示，俄罗斯已经潜藏了10万军队，他们现在有一把上了膛的枪对准乌克兰。哈德逊研究所的高级研究员丽贝卡·海因里希斯认为，美国参议员们并没有为保卫乌克兰做出实质性帮助。章家敦认为，亚洲也面临同样的情况。俄罗斯和中共在军事上一旦有动作，朝鲜人、伊朗人、巴基斯坦人也会跟进，所以我们可能最终会陷入一场全球冲突。
 
-太平联盟案是一个世界级的法律黑洞大案，较量的对手是由中国共产党操纵的美国无良法律界。此案涉及法律界杀手级律师，他们利欲熏心，助纣为虐。他们的恶行被美国职业道德评估机构判为严重违反职业道德，被踢出局是罪有应得，是可忍孰不可忍。
+视频链接：[Senators meet in Ukraine to reaffirm US is united against ‘Putin’s belligerence’](https://www.foxnews.com/politics/senators-meet-ukraine-reaffirm-us-united-against-putins-belligerence)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**发布：***tianzhihuan*
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

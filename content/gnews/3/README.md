@@ -2,25 +2,38 @@
 ---
 
 
-## 典型的美国人的核心利益
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901493/)
+## 有声|美反对强化世卫计划阻止中共渗透
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901562/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
 
-因为七哥几十年的这个信仰和理想，中共咱必须得研究，咱得知共啊，才能说灭共，然后要知美，知道世界，咱才能知道世界的力量，以美灭共。这个法案里边大家也看到一个几个核心，这个法案是美国的制度，跟中国不一样，不是中国。
+根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
 
-习近平是不是在厕所里边放个屁，就从8000可以改成8亿，8亿可以改成0? 一个美国， 它有它的司法制度，它有它的国家真正的三权鼎立的相互制衡的制度，是谁来开始起草法案的？大家一定要记住，是美国国会参众两院。参众两院里边最重要的是众院啊，就军事委员会，还有国防预算委员会。在美国参众两院是绝对民主党控制，而且民主党里边是跟共产党，这是相对来讲，他们是比较亲近的，有很多共同点，而且被蓝金黄的所有的华尔街、好莱坞和硅谷，绝大多数这些地方是没有共和党的地方。你可真是很极端化的，就像这两院，那都是所谓的共产党，觉得跟自己亲近的民主党和蓝金黄的对象是吧？
+美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
 
-这个时候能通过这个法案，不是川普2.0版。大家一定要记住，这都是媒体上瞎胡吹胡的。这个是真正的中美关系的体温计。这是典型的美国人的核心利益。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/典型的美国人的核心利益.001.jpeg)
-发布： *tianzhihuan*
+原文链接：[美反对强化世卫计划阻止中共渗透](https://gnews.org/zh-hans/1898331/)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

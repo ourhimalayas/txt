@@ -2,36 +2,25 @@
 ---
 
 
-## 拜登政府最早于2月发布加密货币的行政命令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901463/)
+## 典型的美国人的核心利益
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901493/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-整理/编辑：小红帽
+因为七哥几十年的这个信仰和理想，中共咱必须得研究，咱得知共啊，才能说灭共，然后要知美，知道世界，咱才能知道世界的力量，以美灭共。这个法案里边大家也看到一个几个核心，这个法案是美国的制度，跟中国不一样，不是中国。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+习近平是不是在厕所里边放个屁，就从8000可以改成8亿，8亿可以改成0? 一个美国， 它有它的司法制度，它有它的国家真正的三权鼎立的相互制衡的制度，是谁来开始起草法案的？大家一定要记住，是美国国会参众两院。参众两院里边最重要的是众院啊，就军事委员会，还有国防预算委员会。在美国参众两院是绝对民主党控制，而且民主党里边是跟共产党，这是相对来讲，他们是比较亲近的，有很多共同点，而且被蓝金黄的所有的华尔街、好莱坞和硅谷，绝大多数这些地方是没有共和党的地方。你可真是很极端化的，就像这两院，那都是所谓的共产党，觉得跟自己亲近的民主党和蓝金黄的对象是吧？
 
-
-根据《CoinDesk》1月24日报道，美国拜登政府最早将于2月发布关于加密货币的行政命令。该命令将要求联邦机构确定数字资产带来的风险和机会。
-
-《彭博社》周五援引未透露姓名的消息来源报道，白宫正在准备最早于下个月发布一项行政命令，该命令将概述政府对加密货币的全面战略，并要求联邦机构确定其风险和机会。
-
-该指令将使白宫在监督制定政策和监管数字资产方面发挥核心作用。联邦机构多年来一直在研究和提供围绕数字资产领域的监管指导。
-
-货币监理署（OCC）、美国证券交易委员会（SEC）和美国商品交易委员会（CFTC）已经发布指导信、非正式声明和公开规则制定工作，以指导加密货币行业的不同方面应如何遵守联邦法律。
-
-拜登政府高级官员已多次开会讨论该指令，该指令将在未来几周提交给总统。
-
-新闻来源：[Biden Administration to Release Executive Order on Crypto as Early as February: Report](https://www.coindesk.com/policy/2022/01/24/biden-administration-to-release-executive-order-on-crypto-as-early-as-february-report/)
-
-发布：*tianzhihuan*
+这个时候能通过这个法案，不是川普2.0版。大家一定要记住，这都是媒体上瞎胡吹胡的。这个是真正的中美关系的体温计。这是典型的美国人的核心利益。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/典型的美国人的核心利益.001.jpeg)
+发布： *tianzhihuan*
 
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

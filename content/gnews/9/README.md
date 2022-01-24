@@ -2,19 +2,37 @@
 ---
 
 
-## 太平联盟案我们一定会赢 美国一定会调查 否则美国承受不起这个代价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901456/)
+## 有声|日本即将终结对华“官方开发援助”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901488/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月14日消息，日本即将结束历时40余年的对华 “官方开发援助计划” 。该计划自1979年12月开始，结束日期为2022年3月。援助形式包括资金、技术和人才培养等各个方面。截止2015年，该计划的援助金额合计322亿美元，涉及多项中共国内大型基建目，包含北京国际机场、上海浦东机场、武汉天河机场、中日友好医院及北京地铁2号线等。
 
-1月17日，郭文贵先生在GTV大直播指出：
+40年来，日本的友好援助和中共国的改革开放相重叠，支撑中共国走上经济大国之路。然而中共国内对此援助计划鲜有提及，大部分中国人并不知道有此援助计划，以及相应的援助资金及行动。
 
-太平联盟之案，中共倾其一国之力，不惜一切代价，用尽一切下作手段企图伤害郭先生，但由于程序不正义，证据不属实，审判不合法，毋庸置疑地最终他们一定会失败。并且美国国会议员一定会参与调查此案，因为这个案件的实质，关系到司法正义和美国人的安全。中共渗透、绑架美国司法系统的恶行将暴露无遗。
+原文链接：[日本即将终结对华“官方开发援助”](https://gnews.org/zh-hans/1898279/)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

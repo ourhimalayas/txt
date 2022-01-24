@@ -2,178 +2,60 @@
 ---
 
 
-## 中共国希望将美国文化女性化以进行控制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879630/)
+## 未来最安全冷钱包的拥有者，将是人类财富的最大守护者
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1895242/)
 
-**Steve Bannon
-史蒂夫·班农**
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-Ken Blackwell, I want to go back this about this central issue of masculinity
-肯·布莱克威尔, 我想回到这个关于男子阳刚之气的核心问题
+1月21日，郭文贵先生于GTV、Gettr直播中透露，等到Hpay（喜支付）的上线和数字货币的全球流通，接下来最重要的问题就是钱包。
 
-and trying to de masculinity this whole attack on males overall
-当试图去男性化对男性整体进行攻击
+![](https://assets.gnews.org/wp-content/uploads/2022/01/24_05_cold-6.jpg)图片来源thecoinshark
 
-but particularly on black men
-但尤其是对男性黑人
 
-Walk us through what that attack is
-引导我们了解攻击的是什么
 
-and how does that translate to the practical politics
-以及这如何转化为实际的政治
+加密数字货币钱包是数字货币的公钥与私钥、私钥所对应的地址、该地址（群）的货币结算，以及货币交易的支持系统。
 
-we need to basically destroy root and branch the Democratic Party in November this year
-我们需要在今年11月基本击败民主党
+按照私钥存储方式钱包分为：
 
-Ken Blackwell (Commentator, Former Ohio State Treasurer)
-肯·布莱克威尔（评论员，前俄亥俄州财政部长）
+热钱包就是“在线钱包”，联网钱包可以在浏览器或移动设备上使用。但黑客可能通过互联网访问用户的私钥，因此安全性低。
 
-Steve, It really did start at an accelerated pace with the Great Society Program
-史蒂夫，它确实从大社会主义计划开始加速
+冷钱包就是“离线钱包”，通常在硬盘里装着让私钥永不触网，能有效防止黑客窃取。
 
-when in fact they created an incentive system to break up the family
-事实上，他们创造了一个激励系统来打破家庭
+冷钱包之间也可以实现交易，这也是最安全的方式。在中共控制网络的情况下，冷钱包会成为中共灭亡前中国人存放财富最安全的地方。
 
-and to drive unemployed a low wage of black males out of the family
-以及将低工资的黑人男性赶出家庭
+过去冷钱包的技术主要靠硬盘设备，现在冷钱包可以跟量子电脑、生物科技连在一起，通过手纹、视网膜、心脏脉搏跳动、脚纹，甚至用屁做为个人识别机制。
 
-they created a penalty box for intact families
-他们为完整的家庭创造了惩罚箱
+这事的意义重大，将打破国家对法币使用的强制垄断， 摆脱在国家界限内受法币压制做奴隶的命运。存放在冷钱包里的数字货币永不丢失，因为在设计当中有一个寻回机制。无论在无意或有意的情况下丢失钱包，只要启动当初设定的个人识别机制，就能按原数失而复得。不记名存币机制，使得谁也查询不到数字货币的持币人（因为没有这个技术）。
 
-1960s there were many intact black families as my family
-1960年代有许多完整的黑人家庭就像我的家庭
+而且我们正在参与某大公司的投资，预备合作发行一种超级外太空数字货币，把数字货币的核心数据信息存放到外太空（发射卫星）。或者干脆把数据信息存放在月球，如果谁想黑客捣乱只能去月球跑一趟。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5ccaf1f2758ac13047ada648b7feddf1.jpg)图片来源Gettr 香草山
 
-The Great Society Program accelerated the attack on the black on the black males
-大社会计划主义加速了对黑人男性的攻击
 
-We were experiencing that
-我们正在经历这种情况
+当喜支付和盖特支付的全面上线，只需在一定的范围内找到交易的人，在对方认可的前提下就可完成一切交易。天空WiFi脱离了当地的通信限制，数字货币去中心化的特质使得无法确认持币人和交易对象，所以即便在中共占领的区域内，使用冷钱包交易也将畅行无阻。可以做到中共明明知道有人在用数字货币交易，就是抓不到是谁在使用数字货币，也找不到存放数字货币的地方。
 
-I’ll just go to TikTok, the feminization of America
-我用抖音举例，美国的女性化
+最后持有大钱的中共高层也会使用这个系统藏钱，购买数字货币存放到冷钱包，甚至习家都会想办法买币藏钱。
 
-and America America’s family unit which is not a family unit
-而美国的家庭单位，它不是一个家庭单位
+除了找寻机制，还配有保险服务，给冷钱包的安全性上了双保险。真正做到永远安全不可找、不可抢、不可骗，永不丢，这就是冷钱包的魅力所在。可以说，未来最安全冷钱包的拥有者，将是人类财富的最大守护者。
 
-‘cause Marxism so big government socialist, they all destroyed the family
-因为马克思主义这么大的政府社会主义者，他们摧毁了家庭
+另外，美国正研究和私人机构稳定币的合作，符合标准的唯有喜联储。不仅是美国，新西兰、日本、俄罗斯、法国、德国都在研究，都在跟喜联储联系洽谈中。
 
-because they want to create a dependency on the government
-因为他们想建立人们对政府的依赖
+**附：**
 
-They want you on the tip of big government so they can control you
-他们想让你站在大政府的施舍上，这样他们就可以控制你
+未来的“躺平币”，下一步只要使用Gettr、GTV、Gnews即赚币。根据使用情况，系统按标准自动发放给使用人。
 
-They’ll move you from being a free citizen to being a subject
-他们会让你从一个自由公民变成一个臣民
+**相关Gnews链接：**
 
-Now what black males have experience it’s that they in fact around in reality
-现在黑人男性在现实中的经历可以追溯到
+“躺平币”是向中共讨债的工具，解放更多的灭共力量
 
-and they see that the left is one pushing a feminization of our community and our America
-他们看到左派正在推动我们社区和美国的女性化
+[https://gnews.org/zh-hans/1737197/](https://gnews.org/zh-hans/1737197/)
 
-And they are in fact, continuing to zero in on males
-事实上，他们正在继续对男性进行调查
+揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路
 
-the Chinese Communist Party along with big government marches in general
-中国共产党和大政府普遍推行
 
-which it’s Putin in Russia
-就是在俄罗斯的普京
 
-they understand that they can feminineness the American culture
-他们明白他们可以使美国文化女性化
+> [揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](https://gnews.org/zh-hans/1741851/)
 
-they in fact, they gain an advantage on the battlefield
-事实上，他们在战场上获得了优势
 
-What we have to do is to understand that black males are ready to speak up
-我们要做的是了解黑人男性已经准备好发声
-
-Our get to do is to go to Chicago and they are tired of this mess
-我们要做的就是去芝加哥，他们厌倦了这个烂摊子
-
-And in fact, we need to say, look, we have an agenda for freedom
-事实上，我们需要说，看，我们有一个自由议程
-
-We have an agenda for self sufficiency
-我们有一个自给自足的议程
-
-We have an agenda that respects your human agency and your human dignity
-我们有一个尊重你的人的能动性和你的人格尊严的议程
-
-and we can begin to move not in next two years, not in four years
-我们可以开始行动，不是两年后，不是四年后
-
-but this year in this election, we can change things in the margin
-而是在今年这次选举，我们可以在很大程度上改变一些事情
-
-you get black males voting for MAGA candidates
-让黑人男性投票给使美国再次伟大的候选人
-
-who in fact, respect human dignity, respect the family, respect work, and respect freedom
-事实上，是尊重人的尊严，尊重家庭，尊重工作，尊重自由的候选人
-
-you in fact, we’ll win elections for the next 50 or 100 year
-事实上，我们将赢得未来 50 或 100 年的选举
-
-Steve Bannon
-史蒂夫·班农
-
-Ken, how do people get you on social media? How do you get your website?
-肯，人们如何在社交媒体上找到你？ 如何得到你的网站？
-
-Ken Blackwell
-肯·布莱克威尔
-
-Kenblackwell.com, @kenblackwell on Gettr, and twitter
-Kenblackwell.com, @kenblackwell在盖特和推特
-
-I’m deemphasizing on Twitter
-我正在淡化推特
-
-And we’re growing like gangbusters on Gettr
-而且我们在盖特上的发展势头迅猛
-
-Steve Bannon
-史蒂夫·班农
-
-Ken, honor to have you on here. Sir, thank you
-肯，很荣幸有请你在这里， 先生，谢谢你
-
-Ken Blackwell
-肯·布莱克威尔
-
-Good be with you
-高兴和你一起
-
-Steve Bannon
-史蒂夫·班农
-
-Thanks, brother
-谢谢， 兄弟
-
-* * *
-
-Date:01/18/2022
-原视频标题: China Wants To Feminize The Culture Of America For Control
-中共国希望将美国文化女性化以进行控制
-原视频日期：2022/01/18
-原视频链接: [**https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html**](https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html)
-任务编号：KE356(3526)
-视频时间段 : 0:00-3:29
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
