@@ -2,30 +2,36 @@
 ---
 
 
-## GEDU的第一课《自由女神》-获得文贵先生高度赞誉
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1901433/)
+## 拜登政府最早于2月发布加密货币的行政命令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901463/)
 
-磐石农场G-EDU教育组Qmay提供
-视频剪辑：Mark 
-磐石农场万众瞩目的开幕典礼上，高潮迭起，令战友们印象最深刻的当属Happy 老师的那节课《自由女神》。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-整节课跨语文，数学以及历史多学科，集多个知识点于一体，深入浅出令人折服。栩栩如生的讲述把每一位屏幕前的大人和小孩子的学习兴趣都最大限度的调动了起来，连文贵先生听完都大加褒赞，说自己是Happy 老师最好的学生。
+整理/编辑：小红帽
 
-文贵先生的赞赏全文如下：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
-文贵先生说：我忘了开麦，我也会不开麦，你看看，所以说再好的学生也会犯错。请问HAPPY老师，你长那么帅，结婚了没有？有没有男朋友啊?
 
-HAPPY老师回答说：已经结婚了。
+根据《CoinDesk》1月24日报道，美国拜登政府最早将于2月发布关于加密货币的行政命令。该命令将要求联邦机构确定数字资产带来的风险和机会。
 
-文贵先生：“结婚了？这是个很大的遗憾啊。你长得太帅了，又长得帅，你又讲那么好。
+《彭博社》周五援引未透露姓名的消息来源报道，白宫正在准备最早于下个月发布一项行政命令，该命令将概述政府对加密货币的全面战略，并要求联邦机构确定其风险和机会。
 
-**刚才我听你讲，说心里话，如果在几十年前你让我知道这么多自由女神像的信息，我对自由女神会有更多更多的理解和行动。你今天讲的80%甚至90%我都不知道。你真是个好老师，这GEDU第一课就是这个自由女神 。**
+该指令将使白宫在监督制定政策和监管数字资产方面发挥核心作用。联邦机构多年来一直在研究和提供围绕数字资产领域的监管指导。
 
-**兴趣是最好的老师，你让我的兴趣一下子就起来了，真的很爱你啊，不光因为你长得帅，你讲得太好了，GEDU真的是开门第一课最好的学生就是七哥。你的课我一定要听。谢谢**。
+货币监理署（OCC）、美国证券交易委员会（SEC）和美国商品交易委员会（CFTC）已经发布指导信、非正式声明和公开规则制定工作，以指导加密货币行业的不同方面应如何遵守联邦法律。
 
-编辑发布：Jenny
-磐石农场三大板块宣传片![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+拜登政府高级官员已多次开会讨论该指令，该指令将在未来几周提交给总统。
 
+新闻来源：[Biden Administration to Release Executive Order on Crypto as Early as February: Report](https://www.coindesk.com/policy/2022/01/24/biden-administration-to-release-executive-order-on-crypto-as-early-as-february-report/)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

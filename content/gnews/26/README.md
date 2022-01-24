@@ -2,36 +2,41 @@
 ---
 
 
-## 有声|美反对强化世卫计划阻止中共渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901562/)
+## 再次揭露HBO精心编织的谎言（part2）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901682/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
 
-美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
 
-原文链接：[美反对强化世卫计划阻止中共渗透](https://gnews.org/zh-hans/1898331/)
+1月22日GTV新闻访谈晚间播放的第一个视频中，提出了与HBO谎言有关的四个核心问题。今天的视频将就第一个问题进行解答，即为什么他们的视频不注重传播真相，只想利用一切机会诋毁、攻击郭文贵先生。
 
-音频处理/发稿：Daxia
+我们可以看到，郭先生四五年以来一直致力于揭露中共压制剥削本国人民、盗取国家财富、腐蚀破坏世界其他国家的真相，中共对他的攻击和迫害始终没有停止过，而HBO的视频，就是这一系列攻击的极其重要的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide15-1.jpg)
+参考信息：
+1. [The Truth Behind Mr. Miles Guo’s Interview with HBO Vice](https://www.youtube.com/watch?v=VTQ91werzk8) （Full video）
+2. [【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-2】： **‼️**反击HBO-VICE诋毁郭先生进行大规模个人崇拜](https://gettr.com/post/pkgaif1cfa)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

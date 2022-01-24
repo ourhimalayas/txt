@@ -2,45 +2,25 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月17日-1月23日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901593/)
+## 关于3年的行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901869/)
 
-作者：纽约香草山金融部 – ILOVE战神
+整理：雅典娜速记组
+编辑：tianzhihuan
 
+关于送棺材的事情，请联系联盟委员会，我们有秘密行动啊，一定会3年继续行动 下去啊，同时战友们要把自己说过的话一定要承诺兑现，我们要6周高调的来反击 伊萨贝拉杨对我们的诬陷攻击，不要停，说过的话要兑现。
 
+第2个，刚才我觉的安平说的特别好，我们战友中间，特别不要学我们中国人，你 像人家什么王力宏啊出事儿了，好像是所有人都要评价人家一样是吧？你听的是王 力宏的歌，王力宏从来没向你承诺过他道德有多高尚，他也从来没说过他自己有多 伟大，是你想象，以为歌星道德就伟大啊，你管人家？你能做到人家那样吗？你 有啥资格评价人家呢？你听谁说的呢？就全人类上就没有像咱中国人这样子，恨 不得天下人都死光，只要有钱有名的，只要跟也没关系的，一看有人踩，就上去就 踩脚，一看人家需要梯子，扭头就跑。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+你啥时候能做到别人需要梯的时候你给提个梯子过去，或者扶人家一把？ ！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/关于3年的行动-.jpg)
+发布： *tianzhihuan*
 
-
-
-过去一周喜马拉雅币价格在42美元附近浮动，平均日交易量约5万喜币。喜币上市以来总交易量约2590万枚 ，占今年总发行量仅约2.59%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-
-据本周郭文贵先生在直播中透露，喜支付上线后喜币可在全球流通，不受任何政府管辖与法币兑换的限制。未来喜联储最重要的一大服务就是冷钱包的服务。热钱包存在于互联网，有被黑客的风险。冷钱包存在于硬件中，互相之间也可以交易。喜联储的冷钱包将成为中国共产党灭亡前后中国大量财富最安全储存的地方。冷钱包未来可以和量子电脑，生物科技结合，钱包密码识别人体生物特征，不受法币被人监管的限制，彻底打破法币对金融系统的国家垄断。冷钱包中的币不会丢失，硬件钱包即使丢失其中的币也可以寻回。喜联储正在与某公司合作发行外太空数字货币的计划，将冷钱包核心数据放在月球或太空中的卫星上。未来最安全的冷钱包就是人类财富的最大保险箱。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide16-1.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

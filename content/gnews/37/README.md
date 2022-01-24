@@ -2,25 +2,40 @@
 ---
 
 
-## 拜登没能威慑俄罗斯和中共国，我们可能最终会陷入一场全球冲突
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901386/)
+## 金融科技初创公司NextPay着眼于加密服务产品
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901435/)
 
-翻译：Frank
-校对：Lish
-剪辑|字幕：蛮吉
-编辑：Mttfly
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-前中央情报局站长丹·霍夫曼在接受福克斯新闻采访时表示，俄罗斯已经潜藏了10万军队，他们现在有一把上了膛的枪对准乌克兰。哈德逊研究所的高级研究员丽贝卡·海因里希斯认为，美国参议员们并没有为保卫乌克兰做出实质性帮助。章家敦认为，亚洲也面临同样的情况。俄罗斯和中共在军事上一旦有动作，朝鲜人、伊朗人、巴基斯坦人也会跟进，所以我们可能最终会陷入一场全球冲突。
+整理/编辑：小红帽
 
-视频链接：[Senators meet in Ukraine to reaffirm US is united against ‘Putin’s belligerence’](https://www.foxnews.com/politics/senators-meet-ukraine-reaffirm-us-united-against-putins-belligerence)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
-**发布：***tianzhihuan*
 
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+根据《GMA》1月23日报道，在去年录得价值10亿比索的交易后，为了保持增长，金融技术初创公司NextPay正在寻求扩大其服务范围，其中包括加密货币服务。
+
+NextPay首席体验官兼联合创始人奥尔德里奇·谭（Aldrich Tan）表示，NextPay对2022 年持乐观态度，因其正在探索几个推动增长的关键举措。
+
+“我们的目标是引入更灵活的支付方式，并探索贸易融资、企业卡和加密货币服务等高增长领域，”奥尔德里奇在电子邮件声明中表示。
+
+该投资包括来自硅谷Y Combinator的种子前支持，该公司还支持本地公司Kalibrr、PayMongo、Avion School和Dashlabs.ai。投资者还包括新加坡风险投资家金门，以及苏氏家族的私人投资工具Gentree Fund。
+
+NextPay表示计划在今年上半年开始筹集资金，但没有详细说明它希望利用哪些类型的融资。
+
+该公司于2020年推出，提供民主化的金融服务，例如数字发票、现金管理以及向当地银行和电子钱包的批量支付。
+
+另外，NextPay于去年推出了可重复使用的支付链接服务，使企业能够通过一个链接收集客户付款。该链接允许通过多种方法进行支付结算。
+
+新闻来源：[Fintech startup NextPay eyes crypto services offering](https://www.gmanetwork.com/news/money/companies/819216/fintech-startup-nextpay-eyes-crypto-services-offering/story/)
+
+发布：*tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
