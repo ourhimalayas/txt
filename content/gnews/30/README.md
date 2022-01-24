@@ -2,27 +2,27 @@
 ---
 
 
-## 以色列：从疫苗接种世界冠军到新的感染世界冠军
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1902324/)
+## 美国国土安全部的疫苗新规将影响运输行业，加剧供应链危机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902544/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2022/01/243.jpg)图片来自网络
-以色列的CCP病毒疫苗接种运动目前依然全速推进中：超过 50 万以色列人已经接种了第二剂加强针。尽管如此，卫生部在周四的一天内仍旧报告了 68,513 例新增CCP病毒感染。
+#### 翻译/撰稿：zzballack
 
-德国卫生当局则在同一天向罗伯特科赫研究所（RKI）报告了 140,840 例新感染病例。然而，联邦共和国的居民人数大约是以色列的九倍，拥有 940 万公民。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-38.jpg)图片来源：路透社
+据《真正美国之声》（Real America’s Voice）1月24日报道，从1月22日开始，美国国土安全部（DHS）要求通过美国北部和南部边境的陆路入境口岸或渡轮码头进入美国的非美国公民必须完全接种新冠疫苗。加拿大卡车运输联盟（CTA）说，这项新规定可能会影响到每天跨越边境的12000多名司机，汽车、水果等行业的供应链会面临更多挑战。
 
-这些感染数字证实了Gili Regev-Yochay最近发表的一项研究：第四次接种对Omikron只有 “适度的效果”，而接种后抗体的增加 “并不十分显著”。Regev-Yochay说，接种第四针的抗体水平与接种三针后的结果相同。
+CTA说：“根据联盟所做的调查，以及全国疫苗接种的平均水平，这项新规将会导致目前进行跨界旅行的12万名卡车司机中，10%-15%的人会退出。CTA将继续与美国货运协会（American Trucking Associations）、美国海关和边境保护局（CBP）就这项要求的执行细节进行合作。”
 
-第二剂加强针剂（或是第四剂CCP病毒疫苗）或许已经预示了CCP病毒疫苗接种的完全失败。根据路透社的新冠疫情报道，以色列的感染率是迄今为止最高的，每10万名居民中有3,290人感染。然而这一数字在美国为1573人，在英国为965人，匈牙利则仅有761人。在德国，最近七天的感染率为每10万居民中出现706人。
+CTA不鼓励人们在公共道路上抗议。该组织在一份声明中说：“CTA不支持并强烈反对在公共道路、高速公路和桥梁上进行任何抗议。因为这种行动–特别是那些干扰公共安全的行动–不应用这种方式来表达对政府政策的异议。”
 
-不过德国联邦卫生部长卡尔劳特巴赫对这些数字和事实并不感兴趣。在推特上，他将研究结果描述为“令人失望”。尽管如此，这位社民党政客仍然坚持他的口头禅，并依旧毫无悔改之意地强调加强针接种的重要性。他甚至声明称，德国的强制接种疫苗政策也必须尽快到来。
+但是CTA鼓励人们参加有组织的、合法的抗议活动。它说：“想要公开表达对政府政策不满的卡车运输业成员可以选择在国会山庄（Parliament Hill）举行有组织的、合法的活动，而不是扰乱公众的出行。”
 
-参考文献：
+这些规定可能会进一步破坏一些行业的供应链，包括汽车行业。美国市场信息公司君迪 (J.D. Power)的全球汽车部门总裁道格·贝特斯（Doug Betts）告诉全国广播公司NBC说：“加拿大是汽车制造业相当重要的一部分。如果有任何[美国]汽车没有至少一个来自加拿大的部件，我将感到惊讶。任何部件如果没有到达，或者有什么问题，你就不能制造它，会出现更多故障。”
 
-[https://reitschuster.de/post/israel-vom-impfweltmeister-zum-neuinfektions-weltmeister/](https://reitschuster.de/post/israel-vom-impfweltmeister-zum-neuinfektions-weltmeister/)
+消费者可能会受到这项新规的打击。总部设在蒙特利尔的水果经销商Canadawide Fruits的总裁和首席执行官乔治·皮特斯库里斯（George Pitsikoulis）说：“最终，是消费者为此付出代价。”
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+新闻来源：[Vaccine mandate at Canadian border could cost consumers](https://americasvoice.news/justthenews/vaccine-mandate-canadian-border-could-cost-consumers/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,45 +2,53 @@
 ---
 
 
-## 刚刚 乌克兰危机升级-因担忧战争英国从基辅撤出了部分大使馆工作人员
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1902630/)
+## 2022年1月21-24日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1902812/)
 
-作者：Holly Bancroft
-发布日期：2022年1月24日
-新闻来源：www.independent.co.uk
-翻译：V在途中
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-361.jpg)
+**七哥****2021.12.29****大直播：**有战友问我，当时去年六四的时候，说：“郝海东朗读的这个宣言里面“保护动物是郝海东说的？是你说的？郝海东不会说出这话吧？”我说：“为啥郝海东不能说这话？”他说：“那不一定是郝海东，这是你们谁的主意啊？”
 
-俄罗斯已经开始向乌克兰邻国白俄罗斯运送部队、装备和战斗机并进行了军事演习。鉴于此种状况，美国已下令撤出乌克兰大使馆工作人员和家属。
+我说：“包含郝海东，是新中国联邦的主意，为啥不是郝海东的主意呢？” 对吧？“就这个话怎么可能在……”他说：“你们连这都写进去啊，你还能灭共产党吗？共产党连人都吃，你们连狗肉连什么动物都不吃。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/乌克兰.gif)
+**我说这是很重要的，是我们很多战友提出来的，是我们每个人都要遵守的原则。**
 
-英国已开始将大使馆工作人员及其家人迁出乌克兰，因为对俄罗斯入侵的担忧加剧。
+1. **内华达州要求保险公司不得歧视一些狗品种**
 
-周日，美国国务院下令其驻[乌克兰](https://www.independent.co.uk/topic/ukraine)大使馆工作人员的家属离开该国，理由是”俄罗斯重大军事行动的威胁不断增加”。
-
-如果美国外交官愿意，也可以离开这个国家，尽管他们还没有被命令这样做。非必要的大使馆工作人员和美国公民已被敦促离开，一名国务院官员告诉*法新社*，如果发生入侵，美国政府”将无法撤离美国公民”。
-
-英国目前开始从基辅撤出一些大使馆工作人员和家庭成员，以”应对来自俄罗斯日益增长的威胁”。
-
-周一在外交部网站上发布的简短更新称，尽管英国大使馆还要继续开放和运营，但是一些工作人员正在离开大使馆。
-
-据报道，英国部长们就俄罗斯潜在的入侵将如何影响欧洲的天然气和汽油价格进行了高层讨论。
-
-### 部长们警告说，如果俄罗斯入侵乌克兰，天然气价格将创纪录
-
-据*“泰晤士报”*报道，英国政府高级官员警告说，[俄罗斯](https://www.independent.co.uk/topic/russia)可以通过限制向欧洲大陆供应天然气来”武器化”其自然资源。
-
-尽管英国没有进口大量俄罗斯天然气，但对欧洲供应的任何限制都可能使英国面临破纪录的批发价格。
-
-英国天然气供应的很大一部分来自进口的液化天然气，这些天然气通过海运到达。部长们被告知，如果俄罗斯决定减少供应，这些供应可能特别容易受到价格上涨的影响，并有可能天然气价格将创纪录！
-
-[原文链接：](https://www.independent.co.uk/news/world/europe/russia-ukraine-news-live-putin-war-b1999221.html)
-
-审核校对：Barry Jack
-上传排版：V在途中
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-82.jpg)
+**2.** **美议会讨论要求比特币挖矿使用新能源**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-37.jpg)
+**3.** **抽水储能可以储存巨量新能源**
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-31.jpg)
+**4. 这个网页列出了区块链的英文学习资源**[**https://betterprogramming.pub/how-to-become-a-blockchain-engineer-fa4386a0504f**](https://betterprogramming.pub/how-to-become-a-blockchain-engineer-fa4386a0504f)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-23.jpg)
+**5. 英特尔获得一份比特币挖矿芯片订单**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-26.jpg)
+**6.中共国有一家房企违约，不支付明天(25日)到期票据的本金及利息**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-20.jpg)
+**7.世贸拟出售上海物业还债**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-17.jpg)
+**8. 美国反击中共，停运厦航、国航、南航、东航44个航班**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-14.jpg)
+**9.1月21日沙特空袭也门，造成超77人死亡，50多人被埋，200多人受伤。这次空袭和2013年8月21日的叙利亚化学武器危机一样。是项庄舞剑意在沛公，都在保美债率不失控。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-13.jpg)
+**10.11.12 乌克兰危机：俄罗斯可能进攻城市、德国将领因不当发言递交辞呈、美国资助乌克兰第二批军火**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/13-5.jpg)
+**13.意大利国家元首选举开锣**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/14-3.jpg)
+**14.19岁少女驾驶飞机环游世界5万公里。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/15-5.jpg)
+**15.德国每日确诊中共病毒超14万例**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16-2.jpg)
+**16.新式测毒方法**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/17-3.jpg)
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

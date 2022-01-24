@@ -2,53 +2,35 @@
 ---
 
 
-## 2022年1月21-24日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1902812/)
+## 01/24每日播报｜美国食品供应链因“奥米炕”感染潮面临巨大压力
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1902997/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-361.jpg)
-**七哥****2021.12.29****大直播：**有战友问我，当时去年六四的时候，说：“郝海东朗读的这个宣言里面“保护动物是郝海东说的？是你说的？郝海东不会说出这话吧？”我说：“为啥郝海东不能说这话？”他说：“那不一定是郝海东，这是你们谁的主意啊？”
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61ee6ab028a108147c618939)**
 
-我说：“包含郝海东，是新中国联邦的主意，为啥不是郝海东的主意呢？” 对吧？“就这个话怎么可能在……”他说：“你们连这都写进去啊，你还能灭共产党吗？共产党连人都吃，你们连狗肉连什么动物都不吃。”
+**2022-01-24**
 
-**我说这是很重要的，是我们很多战友提出来的，是我们每个人都要遵守的原则。**
+《华尔街日报》1月23日报道，随着中共病毒“奥米炕”变种感染数量激增，从食品加工厂、超市到杂货店都出现了劳动力短缺，美国的食品供应系统正面临巨大压力，超市货架上也出现了商品短缺。
 
-1. **内华达州要求保险公司不得歧视一些狗品种**
+在亚利桑那州，一家大型农产品公司有十分之一的加工工人和配送工人生病。美国东南部的一家连锁杂货店，因为配送中心有大约三分之一的员工生病，不得不雇用临时工。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-82.jpg)
-**2.** **美议会讨论要求比特币挖矿使用新能源**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-37.jpg)
-**3.** **抽水储能可以储存巨量新能源**
+2020初，因中共病毒爆发所采取的封城政策导致了商品采购激增，商店货架上的肉类、烘焙原料和纸制品等商品被一扫而空。而现在，一些企业高管表示，当前供应链挑战比以往任何时候都要严峻。
 
+纽约州诺斯波特一家商店的产品经理表示，在1月初，该公司五分之一的员工感染了中共病毒。配送也受到了冲击：本月早些时候，他只收到了他所订购的 48 箱草莓中的17 箱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-31.jpg)
-**4. 这个网页列出了区块链的英文学习资源**[**https://betterprogramming.pub/how-to-become-a-blockchain-engineer-fa4386a0504f**](https://betterprogramming.pub/how-to-become-a-blockchain-engineer-fa4386a0504f)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-23.jpg)
-**5. 英特尔获得一份比特币挖矿芯片订单**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-26.jpg)
-**6.中共国有一家房企违约，不支付明天(25日)到期票据的本金及利息**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-20.jpg)
-**7.世贸拟出售上海物业还债**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-17.jpg)
-**8. 美国反击中共，停运厦航、国航、南航、东航44个航班**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-14.jpg)
-**9.1月21日沙特空袭也门，造成超77人死亡，50多人被埋，200多人受伤。这次空袭和2013年8月21日的叙利亚化学武器危机一样。是项庄舞剑意在沛公，都在保美债率不失控。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-13.jpg)
-**10.11.12 乌克兰危机：俄罗斯可能进攻城市、德国将领因不当发言递交辞呈、美国资助乌克兰第二批军火**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/13-5.jpg)
-**13.意大利国家元首选举开锣**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14-3.jpg)
-**14.19岁少女驾驶飞机环游世界5万公里。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15-5.jpg)
-**15.德国每日确诊中共病毒超14万例**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16-2.jpg)
-**16.新式测毒方法**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/17-3.jpg)
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+报道指出，在阿拉巴马州和乔治亚州的一家连锁超市，在1 月份的第一周，其配送中心组织产品和装载卡车的拣货员中，约有三分之一的人生病请假。主管米尔根先生说，由于司机短缺和人员配备问题没有得到改善，冷冻蔬菜和罐装饼干都卖光了。
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
+总部位于中西部的一家生鲜食品超市的主管丹•奥尼尔表示，超市的冷冻早餐产品、罐装豆类和其他商品一直处于短缺状态，该公司正努力试图从其他供应商那里获得更多库存。
+
+卡车运输公司的司机短缺，使得公司履行订单变得更加困难。位于威斯康星州的货运公司的总裁布兰登·约翰逊表示，这波“奥米炕”病毒的袭击对公司员工的影响与疫情爆发初期一样严重，他已经习惯了告诉客户，他已经没有司机来搬运货物了。
+
+秘翻主编   清风先生编译报道
+
+发布 :文橙
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

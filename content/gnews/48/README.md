@@ -2,29 +2,37 @@
 ---
 
 
-## GEDU的第一课《自由女神》-获得文贵先生高度赞誉
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1901433/)
+## 有声|美反对强化世卫计划阻止中共渗透
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901562/)
 
-磐石农场G-EDU教育组Qmay提供
-视频剪辑：Mark 
-磐石农场万众瞩目的开幕典礼上，高潮迭起，令战友们印象最深刻的当属Happy 老师的那节课《自由女神》。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
 
-整节课跨语文，数学以及历史多学科，集多个知识点于一体，深入浅出令人折服。栩栩如生的讲述把每一位屏幕前的大人和小孩子的学习兴趣都最大限度的调动了起来，连文贵先生听完都大加褒赞，说自己是Happy 老师最好的学生。
+根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
 
-文贵先生的赞赏全文如下：
+美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
 
-文贵先生说：我忘了开麦，我也会不开麦，你看看，所以说再好的学生也会犯错。请问HAPPY老师，你长那么帅，结婚了没有？有没有男朋友啊?
+原文链接：[美反对强化世卫计划阻止中共渗透](https://gnews.org/zh-hans/1898331/)
 
-HAPPY老师回答说：已经结婚了。
+音频处理/发稿：Daxia
 
-文贵先生：“结婚了？这是个很大的遗憾啊。你长得太帅了，又长得帅，你又讲那么好。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-**刚才我听你讲，说心里话，如果在几十年前你让我知道这么多自由女神像的信息，我对自由女神会有更多更多的理解和行动。你今天讲的80%甚至90%我都不知道。你真是个好老师，这GEDU第一课就是这个自由女神 。**
+**更多资讯，更多关注**
 
-**兴趣是最好的老师，你让我的兴趣一下子就起来了，真的很爱你啊，不光因为你长得帅，你讲得太好了，GEDU真的是开门第一课最好的学生就是七哥。你的课我一定要听。谢谢**。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑发布：Jenny
-磐石农场三大板块宣传片![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  

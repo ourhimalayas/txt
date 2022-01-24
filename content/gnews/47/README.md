@@ -2,26 +2,39 @@
 ---
 
 
-## 中日财经爆│从根本上改变银行业务引进新系统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901470/)
+## 得州一联邦法官暂时阻止了对联邦雇员的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901921/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-76.jpg)[图片来源](https://www.google.com/search?q=%EF%BC%B3%EF%BC%A2%EF%BC%A9%E5%9C%B0%E9%8A%80%EF%BC%A8%EF%BC%A4&amp;rlz=1C1YKST_enUS900US901&amp;biw=1366&amp;bih=625&amp;sxsrf=AOaemvKg_NSEa_zFmUdr_dANXXIugiUOOg:1642997159758&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjMxcuwwcn1AhV_JUQIHWSwAXoQ_AUoAnoECAEQBA#imgrc=mDJjBsN822HiKM&amp;imgdii=53zECSE5XWxeIM)
-网络银行SBI控股公司（HD）旗下，向多家地方银行出资的SBI地银HD总经理森田俊平接受了采访。
+作者：香草山教育部 – Naughty(文行)、Delilah小胖 、007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月21日，得克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登总统对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-11.png)
+这个针对拜登政府疫苗强制令的诉讼，是由一个叫医疗自由联盟的组织发起的。
 
-森田表示，到2030年为止，将在10家银行引进正在开发中的新一代基干系统。他强调，通过新系统加速地银数字化，从根本上改变银行业务。
+最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
 
-福岛银行20日决定引进新系统，这是福岛银行的第一步。其特点是能迅速引进智能手机投资融资和结算等先进的数字金融服务。年使用费为10亿日元左右，而开发资金则由SBI集团设立的基金承担。即使是小规模的地银，也可以降低初期费用，采用新系统。森田康夫指出:“要想在现有系统上连接数字服务，需要投入巨额费用。对于要求变革的银行来说，这是非常合适的。”森田还表示，随着数字化的发展，原则上不需要传票和印章等营业店的事务工作也将大幅减少，因此可以增加顾客咨询业务等的人力。“如果不认真支援顾客的本业，地银就无法生存下去。为此，变革是必不可少的。”
+布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
 
-对于SBIHD子公司化的新生银行，他强调说:“如果与（出资方）地银进行投资融资联系，将会产生很大的影响。”同时还表示，对于此前个别地银无法应对的地方企业扩大规模的资金需求，也可以通过与新生银的合作来应对。
+拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
 
-信息来源：
+参考链接：
 
-[銀行業務を抜本的に変革　新システム導入で―森田ＳＢＩ地銀ＨＤ社長](https://www.jiji.com/sp/article?k=2022012300245&amp;g=eco)
+- [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
+- [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Ivy001 / 飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

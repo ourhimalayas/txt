@@ -2,37 +2,13 @@
 ---
 
 
-## 01/23每日播报｜台海局势急剧升级 中共战机最大规模入侵台湾空识区
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1902632/)
+## 达沃斯论坛创始人—KlausSchwab探究
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1902838/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61ee6ab028a108147c618939)**
+作者：磨刀石
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DCC7B400-1392-49BD-8CCB-917518E08152.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C4CBC299-4C89-4B2D-81A0-6522D7C8F4A1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C009E4F2-34EE-4875-9F11-A21BBEA63666.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C2016475-F4B4-47A7-AB51-BBEEFB5DB443.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6D7768EE-E4DF-4493-B06C-BF9CE07B058A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B67F8D59-A57D-4343-8980-5CF49C93E1BE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/BEDF2C95-660A-4451-B2F6-5C6505BE22C5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/A59A0112-292A-4F36-9925-0BE22594C44B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/ADF3FA7B-031D-4C42-B2ED-FC45D67D6F1E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/58786887-DC76-49AC-91CA-EDE6967AC9EB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/48A483FF-5A01-417E-A857-D8B1BAC981E2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/84B32CF5-D9A2-4F00-9E63-7F5FE6FCAE79.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/252874E9-2534-4ECF-B4F9-8C01472516FA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B68A889E-D9CC-48E2-9773-A61C41AB27A2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B25826D0-B9D9-462A-B9DD-E35D3AA0350D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4C6BB001-AA38-4228-BF26-76F0129B26DA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/174D88E5-2C9C-4709-8644-B1DD4E5184C1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B6114E07-2706-4434-BA71-DB2510E68D06.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C82C3C14-DA2F-4FF2-A926-69553236ED96.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3050510D-EE38-48D7-86BE-5BF1E47D9E3F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/29856C05-4352-4BDC-B9FB-CFD2DD07FD56.jpeg)
+*发布：Theodosia*
 
-**[2022-01-23](https://gtv.org/broadcast/watch/61ee6ab028a108147c618939)**
-
-《路透社》台北1月23日报道，周日，台湾国防部报告称，有39架中共战机侵入台湾防空识别区，这是自2021年10月以来规模最大的一次入侵。标志着台湾海峡紧张局势再次升级。
-
-台湾国防部表示，中共的这次军事行动，动用了34架战斗机、4架电子战飞机和一架轰炸机。国防部还说，台湾已经派出战斗机予以警告，同时部署了导弹系统来监视中共军机在西南防空识别区的入侵行动。
-
-一年多来，中共加大了对台湾的施压。最近，中共空军再度增加了在民主台湾附近的军事活动，这些军事活动通常在位于台湾防空识别区的西南部分，靠近台湾控制的普拉塔斯群岛(Pratas Islands)。
-
-报道指出，台湾国防部报告称，在2021年10月1日开始的四天里，共有148架中共空军飞机在其防空识别区南部和西南部飞行，而10月1日恰好是中共国的国庆节。
-
-自10月1日以来，台湾几乎每天都报告中共空军进入同一空域，但周日的飞机数量是自去年10月中共空军进入该空域以来的最大单日数量。
-
-台湾称中共在附近反复进行的军事活动为“灰色地带”战争，其目的是让台湾军队不断紧张，从而消耗他们的战斗力，同时也是不断试探台湾的反应。
-
-本周早些时候，美国表示正在寻求加速向台湾交付新型战斗机的解决方案，以增强台湾空军应对中共军方日益增加的威胁。台湾军事分析人士称，中共军机的频繁骚扰导致台湾军机的损耗将威胁到台湾空军的战斗能力，而新型战斗机的加速交付，能极大的提高台湾空中与陆地的作战能力。
-
-台湾政府称，中共这一举动威胁到该地区的和平与稳定。政府还表示，台湾希望和平，但如果受到攻击，它会坚决自卫。
-
-（ 秘翻主编  冰糖葫芦喵编译报道 ）
-
-发布 :星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
