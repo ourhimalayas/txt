@@ -2,39 +2,28 @@
 ---
 
 
-## 北约将向东欧派遣更多船只和战斗机
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1904889/)
+## 全球数十万人走向街头抗议强制疫苗政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1904944/)
 
-新闻来源：华盛顿邮报
+撰稿：西枫westca
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-54.png)图片来源：网络照片
+据多家媒体报道，在过去的这个周末，成千上万的加拿大人在全国各地数十个城市参加“为自由而抗争”的活动，抗议强制疫苗政策。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/imrs-1-scaled.jpg)
+“为自由而抗争”是全球活动，几十万人在世界各地走上街头，公开反对强制接种疫苗、疫苗护照、为未成年儿童接种疫苗等。美国、加拿大、法国、意大利、英国、澳大利亚、新西兰、瑞士、阿根廷、乌拉圭、南非等超过200个城市参加了这个周末的活动，
 
+在多伦多，PPC领袖Maxime Bernier 发表讲话说“当暴政成为法律时，革命就成为我们的责任”， “我们正在赢得这场战斗，因为真相将永远获胜” 。在华盛顿，马龙博士及十几名医生参加了此次示威。 他在演讲时称“”疫苗不能保护我们的孩子免受Omicron感染。它们不能防止受感染的儿童感染他人。相比之下，制药公司和政府几乎完全受到保护，免受这些产品可能造成的任何损害。
 
-资料来源：Getty Images
+此外，“2022年自由车队”的成千上万的卡车司机从加拿大西部BC出发，与其他成员聚在首都渥太华，抗议政府对卡车司机的强制疫苗政策，一周来为卡车司机的捐款已逾三百万，参加人数可能超过50万人。
 
-围绕乌克兰的紧张冲突进一步转变为全面危机模式，北约表示正在将更多军事装备转移到东欧，而俄罗斯继续在与乌克兰接壤的边境集结军队，担心它会入侵邻国。
+我们非常高兴看到北美、南美洲、欧洲的民众开始清醒、抵抗全球主义极权的宣传、为我们失去的自由而奋战。
 
-克里姆林宫发言人德米特里佩斯科夫表示，俄罗斯正在关注北约的行动，总统弗拉基米尔普京“正在采取措施确保我们的安全和利益得到适当保护。”
+**新闻来源：**
 
-白俄罗斯国防部周一表示，俄罗斯军队继续抵达与乌克兰接壤的该国，准备下个月举行一次大型训练演习。周一社交媒体上出现了更多视频，显示俄罗斯军事车队和配备军事装备的火车穿越俄罗斯南部和白俄罗斯
+[Tens of thousands of Canadians protest COVID-19 restrictions at freedom rallies across country | True North (tnc.news)](https://tnc.news/2022/01/23/tens-of-thousands-of-canadians-protest-covid-19-restrictions-at-freedom-rallies-across-country/)
 
-北约周一表示，它将向东欧派遣更多的船只和战斗机。此前有报道称，拜登政府正在考虑派遣数千名美军和武器以加强在波兰和波罗的海的北约盟国，并实施旨在破坏俄罗斯战略工业的新出口管制。
-
-北约表示，随着俄罗斯继续在乌克兰及其周边地区进行军事集结，北约成员国正在“让部队待命，并向北约部署的东欧派遣更多的舰船和战斗机，以加强盟军的威慑和防御。”
-
-“我欢迎盟国贡献更多力量，”北约秘书长延斯·斯托尔滕贝格在一份声明中说。 “北约将继续采取一切必要措施保护和保卫所有盟国，包括加强联盟东部地区。”
-
-白宫表示，拜登总统将于周一下午与欧洲领导人举行安全视频通话，讨论“俄罗斯在乌克兰边境的军事集结”。
-
-西方国家也开始采取那种为预期的武装行动前夕保留的戏剧性步骤。
-
-在美国下令外交官家属离开基辅并授权非必要外交人员离开的第二天，英国下令一些外交官及其家属离开乌克兰。美国国务院还警告美国公民考虑离开乌克兰，美国官员警告称，袭击“随时”可能发生。
-
-🔗 [北约将向东欧派遣更多船只和战斗机](https://www.washingtonpost.com/world/2022/01/24/ukraine-eu-us-embassy-russia/)
-
-责任编辑/发布： Shuizhuyu
+[Dr. Malone, Mrna Inventor, Gives Speech Against Vaccine Mandates In Washington D. C. Freedom Rally – The Washington County Auditor](https://thewashingtoncountyauditor.com/dr-malone-mrna-inventor-gives-speech-against-vaccine-mandates-in-washington-d-c-freedom-rally/)
 
  
 

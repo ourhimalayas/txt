@@ -2,69 +2,42 @@
 ---
 
 
-## 我们的道德责任是不服从不公正的授权
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1905071/)
+## 七哥2017年说的踢出中概股和美国金融危机已如期而至
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905143/)
 
-**据《www.lifesitenews.com》作者：EmilyMangiaracina，2022年1月21日报道：**
-西尔斯（Sears）问，“你会在多大程度上服从命令？”他回顾了一个著名的实验，该实验表明大多数人都会“不惜一切代价”去服从。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3427-a7x16-do3qr-7.jpg)
-(LifeSiteNews)一位以发人深省的讽刺剧闻名的喜剧演员周一发出了强有力的呼吁，要求将米尔格拉姆实验中关于服从和勇气的教训应用到今天的COVID规定中。
+G-TV视频链接：[https://gtv.org/video/id=61ee421a87664c47acd93190](https://gtv.org/video/id=61ee421a87664c47acd93190)
 
-在过去两年中，受欢迎的YouTuber J.P. Sears将他的大部分短剧用于强调COVID的“专制”法令，以及自由主义和“清醒（woke）”意识形态的荒谬性，他在最近的一个更严肃的视频中挑战听众，要求他们不服从以COVID名义施加的道德上的不公正命令。
+**郭文贵先生**：大家记住，只有七哥说的话啊，只有咱新中国联邦说的话，两三年前我说过：中资股都会被踢出美国和西方。2017年说的脱钩，我是第一个说的，路大脑骗这个孙子这个垃圾，把我跟他私人说的话报出去的，记住了吧？现在发生，中资股还有吗？没了吧！
 
-他唤起了人们对当今许多全球法律的记忆，“很多人似乎都非常渴望”遵守这些法律。“当局根据你是否携带证件，告诉我们谁可以在哪里吃饭；孩子们被迫在学校戴口罩；人们因为拒绝遵守专制主义的规定而失去工作。”
+第二我说过：美国的股票和金融危机一定是有史以来最糟糕的，现在已经跌了20%了。你看这几天记住七哥我告诉你们的，美国的年报就是从现在开始，你看看高盛的年报，你看看几个金融机构的年报和几个大基金的年报，丑到不能再丑。战友们你们要懂得，美国的年报它今年赔的钱和今年所有做的假，在今年的时候还有机会再弄，明年就没机会了，为什么？它是一个逐渐的过程，它现在往上凑，它现在你看大部分是亏20%、30%将近，接下来会更多，你会看到美国和欧洲的经济“啪”就下来。
 
-西尔斯问道，“你会在多大程度上服从命令？你会在多大程度上对自己的自由意志作出妥协？你会牺牲你知道的正确的东西，忽视你的原则，你的本能，你的心和直觉吗？如果一个有权威的人要求你做一些你心里知道是错误的事情，你会怎样？”
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-西尔斯回顾说，历史上曾发生过许多“可怕的、不合情理的”行为，例如纳粹政权对犹太人的大规模屠杀，“都是由那些只是服从命令的人造成的”。
-西尔斯指出，”很容易说，好吧，我不会那样做。我会抵制，但你会违背一个道德上不公正的命令吗，即使这意味着个人牺牲？”
+编辑整理：Jacques；
 
-然后，西尔斯描述了20世纪60年代进行的关于服从权威的“惊人的”米尔格拉姆（Stanley Milgram）实验，该实验旨在解释“种族灭绝的心理学”。
+字幕文件制作：小满；
 
-在这个实验中，毫无戒心的受试者——大多数是来自各种职业的男性——被命令对绑在“电椅”上的人实施他们认为是越来越大的电击。穿着白大褂的研究人员——被认为是一个权威人物——告诉他们对记忆测试的错误答案进行电击。
+视频制作及上传：Cindy；
 
-西尔斯指出，真正的受试者并不知道，坐在电椅上的人也参与了实验，他们并没有真正经历电击，而是按照剧本行事。当他们最终喊出“痛苦”，甚至抗议要离开电椅时，“随着错误答案数量的增加，电击的严重程度也在增加” 。
+G-News发布：小满；
 
-西尔斯指出，“令人吃惊的是，65%的受试者服从了继续实验的坚定命令”，以至于“实施”巨大的、致命的450伏电击，“仅仅是因为穿着白大褂的研究人员坚持这样做”即使在“受害者”发出声音抗议和哭喊之后。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-西尔斯说，“实验的设计者，耶鲁大学的心理学家斯坦利-米尔格拉姆（Stanley Milgram）得出结论，当权威与受试者最强烈的反对伤害他人的道德要求对立起来时，在受试者的耳朵里响起了受害者的尖叫声，权威往往获胜。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-据西尔斯说，在这个历史时刻，这项研究对我们所有人都有意义，因为我们自己就是服从性实验的对象。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-西尔斯说：“问问你自己，今天谁在穿白大褂？”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他继续说：“在这个关于服从的现实世界研究中，戴口罩的人、戴口罩的儿童、疫苗接种的人和那些穿着真实或形象的白大褂的人强加的强制隔离是新的休克治疗。”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-“他们正在研究，看他们能走多远，我们会服从多久。”
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-西尔斯说，就像米尔格拉姆实验的受试者被指示逐步实施电击一样，今天我们被要求逐步适应专制措施。“暴政的进展是缓慢的，一英寸一英寸，一个法令一个法令，一个任务一个任务，每一项都在削弱自由，直到我们正式认为，理所当然的东西不复存在。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-这些实验和历史支持了18世纪政治家埃德蒙-伯克的声明：“邪恶胜利的唯一必要条件是，好人什么都不做。”
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-西尔斯说：“我们愿意在道德上有意义的时候不服从当局，忠于我们的是非观，是我们拥有的最强大武器。”
-
-响应小马丁-路德-金和圣雄甘地的劝告，西尔斯敦促听众：“不服从命令是我们的道德责任和神圣义务，现在就这样做。”
-
-对于所有的悲剧，西尔斯指出，米尔格拉姆实验包含了对我们的启发。
-
-除了35%的受试者拒绝遵守实验的残酷要求这一鼓励外，该实验“最好的部分”是，它证明了勇敢的行为会给其他人壮胆。
-
-西尔斯说，“当一个受试者拒绝服从，而其他人目睹了这一点，那些其他人继续施以电击的意愿从65%骤降到只有10%。” 这证明了什么？勇气是会传染的。
-
-“当尘埃落定时，你想站在历史的哪一边？”
-
-JP-西尔斯目前在YouTube上有超过200万的订阅者。多年来，他一直以使用死板、讽刺的表达方式来照亮非理性和破坏性的思想和行为模式或社会惯例而闻名。
-
-**原文连接：**[https://www.lifesitenews.com/news/comedian-jp-sears-its-now-our-moral-responsibility-to-disobey-unjust-mandates/](https://www.lifesitenews.com/news/comedian-jp-sears-its-now-our-moral-responsibility-to-disobey-unjust-mandates/)
-
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

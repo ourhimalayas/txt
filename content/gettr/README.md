@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/24/2022 11:35 PM (UTC)`
+
+1月24号：尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这首最伟大的跨代的歌曲……迅速屏蔽．这就是共产党的恐惧，和我们有灭共能力的证据，一切都已经开始！
+![img](https://media.gettr.com/group21/getter/2022/01/24/23/d30350f8-649a-5cb4-b9a2-8779a8526aba/out.jpg)
+
+---
+
 `@miles 1/24/2022 10:10 PM (UTC)`
 
 1/24/2022 Miles Guo: Xi Jinping has no confidence in what the Winter Olympics will turn out to be. At the opening ceremony of the Winter Olympics, it is forbidden to mention that Deng Xiaoping “drew a circle” in southern China, and it is required that Xi should be called “the core leader of the Party and the State”, granting him dictatorship. It is also ordered to describe the Winter Olympics as “reform and opening up leading to a new era”.<br/><br/>1/24/2022 文贵直播：习神对冬奥会能办成啥样很不自信；冬奥会开幕式不允许提邓小平在南方画了个圈，要称习为党和国家核心领导人以定一尊，还要把冬奥会说成是改革开放走向新纪元<br/>
@@ -155,13 +162,6 @@ New Release                                              Shop Now at www.gfashio
 
 New Drop coming Monday at Noon on www.gfashion.com
 ![img](https://media.gettr.com/group38/getter/2022/01/22/17/9394e5dc-aafc-8d68-cc58-3aedc3427f52/61c670e6a53b55d9942330faa32383b8.jpg)
-
----
-
-`@miles 1/22/2022 4:38 PM (UTC)`
-
-1月22号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切已经开始【相关美股区块链概念股也纷纷走低。Coinbase ( COIN.O ) 一度跌 11.42%，Riot Blockchain ( RIOT.O ) 一度跌 8.4%，嘉楠科技 ( CAN.O ) 一度跌 7.84%，Bit Digital ( BTBT.O ) 一度跌 7.5%，【Marathon Digital ( MARA.O ) 一度跌 8.3%。<br/><br/>截至目前，比特币指数数报 36253.4 美元。<br/><br/>值得注意的是 2021 年 11 月，比特币创出了 60002 美元的新高，随后比特币一路下跌，2021 年 12 月 4 日最大跌幅高达 20%，截至目前，比特币指数较 60002 的高点，跌幅超 50%，投资者损失惨重。】
-![img](https://media.gettr.com/group25/getter/2022/01/22/16/d933dd52-dde4-b718-b8b2-23d676aefe4c/out.jpg)
 
 ---
 
