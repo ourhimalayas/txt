@@ -2,16 +2,20 @@
 ---
 
 
-## 最新世界经济金融重大变化
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1903302/)
+## 欧议员呼吁结束欧盟在5亿多人身上进行的疫苗医学实验
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903750/)
 
-——文贵大直播20220124
+**作者：日本东京方舟农场 JIHO**
 
-撰稿：Nine lee（DC）
+欧洲议会议员Mislav Kolakusic对Ursula von der Leyen（欧盟委员会主席）的讲话：“你关于欧盟人权状况的报告是捏造的，不真实的，结束疯狂的分裂和对公民的歧视。”我们已经践踏了几个世纪的科学和医学专业。在欧盟5亿多人身上进行的医学实验应该结束。
 
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片8-4.png)
-*发布：Theodosia*
+* * *
+
+*素材采编：JIHO*
+
+*发布：Ranting*
+
+*封面制作：S*
 
  
 

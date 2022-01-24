@@ -2,43 +2,35 @@
 ---
 
 
-## 苏格兰公共卫生部数据：未接种新冠疫苗者相比接种者拥有最低的新冠病毒感染率
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1903559/)
+## 美国重量级众议员预测中共将在冬奥会后入侵台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903769/)
 
-编者：寻文客
-![](https://assets.gnews.org/wp-content/uploads/2022/01/164291009625932_P15352683.jpg)
-苏格兰公共卫生部于1 月19 日公布了当地最新的新冠病毒(COVID 19) 持续性报告。[1] 报告列举的大量苏格兰新冠病毒疫情的数据中有一条数据格外引人注意：报告统计了2021 年5 月10 日至2022 年1 月14 日不同剂次的新冠疫苗接种者（分别为：未接种、一剂、两剂、三剂或加强针，
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国媒体01月22日报道，美国众议院外交事务委员会领导人迈克尔·麦考尔在1月21日，与记者通话时预测，中共可能会在2月北京举行的冬奥会之后，军事侵略台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.31.53.png)
+麦考尔指出，在过去几十年来，中共一直声称台湾不是一个主权国家，是中共国的一部分。而现在中共吞并台湾的野心马上会付诸行动。
 
-共4 组）经过年龄标准化（排除了年龄影响）后的新冠病毒感染率，统计数据显示未接种新冠疫苗者的新冠病毒感染率是4 组中最低的。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1991.png)
-图片以星期为单位显示了不同剂次的新冠疫苗接种者每十万人中感染
+麦考尔同时预测，俄罗斯很可能在下个月入侵乌克兰。美国政府对此高度关注，警告俄罗斯入侵乌克兰将付出严重的经济代价。
 
-新冠病毒的人数，从而显示出不同剂次的新冠疫苗接种者的新冠病毒感染率。从图片数据可以看出如下信息：
+正如郭文贵先生此前爆料揭露，中共预谋和俄罗斯同时开战，分别攻打台湾和入侵乌克兰，让美国无暇同时应付东西两场战争，从而逼迫美国政府妥协，默认中共侵占台湾的既成事实。
+有关人士认为，目前中共政权已经内外交困、穷途末路，冬奥会之后军事侵略台湾，是中共为转移统治危机的孤注一掷。
 
-*•*不同剂次新冠疫苗接种者的新冠病毒感染率均符合苏格兰当地新冠疫情流行趋势。
+参考链接：[Republican Rep: We Might ‘Begin To See’ China Invade Taiwan ‘After The Olympics’](https://www.dailywire.com/news/republican-rep-we-might-begin-to-see-china-invade-taiwan-after-the-olympics)
 
-*•*相比接种新冠疫苗一剂、两剂、三剂或加强针的人群，未接种新冠疫苗者的感染曲线最“平坦”，同时感染峰值最低（每十万人约200 人/周），而接种新冠疫苗一剂、两剂、三剂人群的感染峰值都超过了300，接种两剂人群的感染峰值甚至超过了400。体现出未接种新冠疫苗者相比接种者拥有最低的新冠病毒感染率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-尽管报告称这项数据“由于人群不同和新冠疫苗品种不同的因素，不
+总编：文真
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-能由此推断新冠疫苗的效果”。然而苏格兰政府已经宣布将于1 月24 日起取消包括疫苗通行证在内的所有新冠病毒限制措施。[2]
-
-编者评价：新冠疫苗不能预防新冠病毒甚至促进感染新冠病毒，因此
-
-强制接种新冠疫苗、实施疫苗通行证都没有其科学依据。停止接种新冠疫苗、取消疫苗通行证是保护人民健康于人权的必须。
-
-参考来源
-
-[1] [https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter*publicationreport.pdf*\[2\] https://news.sky.com/story/covid-19-all-omicron-restrictions-in-scotland to-be-lifted-next-monday-12519177](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winterpublicationreport.pdf%20[2]%20https://news.sky.com/story/covid-19-all-omicron-restrictions-in-scotland%20to-be-lifted-next-monday-12519177)
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

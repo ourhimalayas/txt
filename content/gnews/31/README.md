@@ -2,30 +2,25 @@
 ---
 
 
-## 德州联邦法官暂时阻止对联邦雇员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903552/)
+## 白宫正在为加密货币市场制定重大计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903768/)
 
-作者：香草山教育部 – Naughty(文行) , Delilah小胖 , 007
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-15.jpg)
-此项针对拜登政府疫苗强制令的诉讼，是由一个名为“医疗自由联盟”的组织发起的。
+据外媒1月23日报道，俄罗斯、英国、欧盟、美国，最近均在为加密货币市场提供更严厉的监管，此举已引起众多加密货币价格震荡。尽管如此，美国白宫正在为加密货币市场制定一项重大计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.32.15.png)
+消息人士称，美国概述加密货币行业风险和机遇的文件，预计于2022年2月发布。彼时，关于加密货币的行政命令，将使拜登政府在行业内成为焦点。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+据悉，该计划是在美国证券监管机构，商品监管机构，和美国财政部等机构的指导下进行的。下一阶段，金融稳定监督委员会，和美国商务部等其他机构，也将可能参与进来。
+美国SEC主席说，加密交易所将受到更多监管，同时，亦将其置于 “投资者保护职权范围” 之下。美联储数字货币可能已做好发行准备。
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
+参考链接：[With crypto winter back, the White House is making big plans for the sector](https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/)
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-参考链接：
-1) . [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
-2) . [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
-3) . [Texas federal judge temporarily blocks Biden vaccine mandate for federal employees](https://www.foxnews.com/politics/texas-federal-judge-vaccine-mandate-federal-employees)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-总编： Ivy001，飞虹 
-校正/发稿：Fei797
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,8 +29,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

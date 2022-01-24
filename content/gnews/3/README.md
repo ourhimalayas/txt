@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国解放军在印度阿鲁纳恰尔邦境内绑架17岁男孩
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1903893/)
+## 中共国将于数月后建成人造月亮设施
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1903961/)
 
-01/20/2022 中共国解放军在印度阿鲁纳恰尔邦境内绑架17岁男孩
+01/19/2022 印媒WION：中共国将建造一个人工月球设施，模拟月球条件和环境，供科学家测试新技术和未来的科研项目。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

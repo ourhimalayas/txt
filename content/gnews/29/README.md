@@ -2,44 +2,32 @@
 ---
 
 
-## 批评人士：澳网公开赛置商业利益于人权之上
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903560/)
+## 澳网场外抗议人士呼吁 “关注彭帅”遭警察驱离
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903770/)
 
-#### 撰稿：日本东京方舟农场 北极
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒报道，当地时间1月22日，在澳网公开赛场地外围，两名抗议者展示呼吁关注彭帅的衣服和布条，遭到保安人员拦截。视频显示，现场至少有两名警察将他们驱离现场。
+![](https://img.thedailybeast.com/image/upload/c_crop,d_placeholder_euli9k,h_2025,w_3600,x_0,y_18/dpr_1.5/c_limit,w_608/fl_lossy,q_auto/v1642935617/2021-12-20T000000Z_1673071457_RC22IR992FB6_RTRMADP_3_TENNIS-CHINA-PENG_b86i4r)Damir Sagolj/Reuters
+这两名抗议者向警察解释，他们并非从事政治活动，而是呼吁各界关注一名著名中国籍网球运动员的人身安全。他们还谴责澳网主办单位和警方打压公民言论自由，并强调，澳网公开赛不应该为了中共国企业赞助的利益，而打压关注彭帅人身安全的声音。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/88C49BB1-FEDF-4099-A1EC-6611D53E0BF1.jpeg)资料照：中国网球名将彭帅。（图片来自美国之音）
+分析人士批评指出，当地警方成为政治打压的工具，澳网公开赛亦配合中共进行丑恶勾当。正是因为彭帅处境仍不明朗，世界女子职业网球协会才撤销了该会所有在中共国和香港的赛事。
 
-1月22日在社交媒体上流传的一段视频显示，澳网公开赛安保人员强行没收两名观众印有“彭帅”头像和文字的T恤。批评人士直指澳网公开赛置商业利益于人权之上。
+参考链接：[Australian Open Organizers Ban ‘Where’s Peng Shuai’ T-Shirts](https://www.thedailybeast.com/australian-open-organizers-ban-wheres-peng-shuai-t-shirts)
 
-视频显示，赛场安保人员要求一男一女两名观众脱下他们的T恤衫，T恤衫正面是中国女子网球明星彭帅的照片，下面是“寻人”二字，T恤衫背面印着“彭帅在哪里？”几个字。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-澳网一名发言人星期日证实称，根据他们的门票条件，不允许有商业或政治性的服装、横幅或标志。
+总编：文真
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-批评人士表示，澳网公开赛不应该为了顾虑来自中资企业赞助的利益，而打压关注彭帅人身安全的声音，应该停止骚扰关注人权和呼吁关注彭帅下落的人士，并且立即公开要求中国政府释放彭帅。有相关报道称，澳网的主要商业赞助伙伴之一是中（共）国高端白酒国窖1573，
-
-前世界女子网球大姐大和赛事评论员玛蒂娜·纳芙拉蒂洛娃在推特上表示，澳网主办方的做法“令人悲哀”。
-
-澳网主办方的做法与国际女子网球协会WTA的立场对比鲜明，后者为了保护彭帅，已宣布2022年不会在中国举办任何比赛，女子网球协会主席西蒙表示，“原则高于利益”。这意味WTA准备牺牲其年度收入很大的一部分。
-
-中（共）国网球明星彭帅去年11月2日在微博上公开指称前任中共政治局常委、国务院副总理的张高丽逼迫她与其发生性关系，这条微博很快被删除。此事在国际舆论引起震动，彭帅随后与外界失去联系，中共同时对相关信息实行了严格的网络审查。
-
-彭帅事件在国际舆论广泛关注当中，不少人士依然在通过各种渠道为其发声，国际奥委会曾经在中共安排下与彭帅交谈。随后，国际奥委会发表声明称彭帅“住在北京的家中，她平安无事，但希望此时尊重她的隐私”。对于国际奥委会的声明，美国国会两党议员上周接连提出两部法案对其进行制裁。上周二推出“争取彭帅自由法案”，制裁国际奥委会主席及其他高层人员；上周三提出“追究国际奥委会与中（共）国同谋法”，提议取消国际奥委会在美国的免税资格。
-
-*参考链接：*
-
-1. *[澳网公开赛禁止球迷穿印有“彭帅在哪里？”字样T恤衫引发争议](https://www.voachinese.com/a/political-peng-messages-banned-at-australian-open-20220123/6408864.html)*
-2. [*澳网公开赛T恤衫事件再度引发聚焦彭帅遭遇*](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220123-%E6%BE%B3%E7%BD%91%E5%85%AC%E5%BC%80%E8%B5%9Bt%E6%81%A4%E8%A1%AB%E4%BA%8B%E4%BB%B6%E5%86%8D%E5%BA%A6%E5%BC%95%E5%8F%91%E8%81%9A%E7%84%A6%E5%BD%AD%E5%B8%85%E9%81%AD%E9%81%87)
-3. [*美两党议员再次提案制裁国际奥委会*](https://gnews.org/zh-hans/1884620/)
-
-
-* * *
-
-*素材采编：北极*
-
-*编辑： 青城道姑*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

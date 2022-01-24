@@ -2,28 +2,26 @@
 ---
 
 
-## 美国务院下令撤离驻乌克兰大使馆人员家属
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903767/)
+## 法国民众继续游行抗议政府疫苗强制政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903841/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约磐石农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据美国媒体1月22日报道，美国国务院已下令美国驻乌克兰大使馆人员家属，最早于1月24日开始撤离乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.32.06.png)
-与此同时，美国驻乌克兰大使馆宣布，美国第一批安全援助物资和弹药，已于22日清晨运抵乌克兰。
+法国内政部1月22日表示，当日法国各地约有3万8千名民众走上街头示威，抗议即将在24日施行的中共病毒疫苗通行证政策，该措施将对大部分的公共生活做出强制规定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.jpg)
+据悉，从24日开始，法国16岁以上的民众必须出示疫苗接种证明，才能进入公共设施，以及使用跨区域的公共运输。
 
-一名美国官员称，下周，预计美国国务院还将鼓励美国人，乘坐商业航班从乌克兰撤离。
+在当前多个欧洲国家已取消疫苗护照和强制疫苗政策的背景下，法国仍然推行强硬的疫苗政策，导致了国内民众持续上街示威表示反对。
 
-预计下周，从波罗的海国家和美国的武器库，将“标枪”反坦克导弹运往乌克兰。同时，美国政府计划在未来几天，将更多武器和弹药运往乌克兰。
+参加示威游行的民众表示，疫苗强制措施将影响公民的日常自由，并批评政府强制的隔离形式，是对社会的分隔。
 
-参考链接：
-1）[Families of US Embassy personnel in Ukraine ordered to begin evacuating as soon as Monday: officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
-2）[Families of US Embassy personnel in Ukraine ordered to begin evacuating as soon as Monday: officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
+参考链接：[抗議疫苗通行證 法國3萬8千人抗議](https://cn.rti.org.tw/news/view/id/2122870)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编: Jack Li文阳
+编辑： Ivy001
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
