@@ -15,73 +15,73 @@
 
 ---
 
-### [华盛顿反强制令游行 助威17000名医生的实名宣言](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [股市到了大崩盘的时候吗？](/content/gnews/2/README.md)
+### [柳传志、马云、许家印、董文标、马化腾、车峰谁在盘古最最受欢迎？](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [新罕布什尔州药房将很快开始出售不需要处方的伊维菌素](/content/gnews/3/README.md)
+### [华盛顿反强制令游行 助威17000名医生的实名宣言](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [封城下的西安官方扔掉各地捐赠的食品蔬菜却不发给百姓](/content/gnews/4/README.md)
+### [股市到了大崩盘的时候吗？](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [新罕布什尔州药房将很快开始出售不需要处方的伊维菌素](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我同住的老爸被证实新冠阳性后 我的处置纪录](/content/gnews/5/README.md)
+### [封城下的西安官方扔掉各地捐赠的食品蔬菜却不发给百姓](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [我同住的老爸被证实新冠阳性后 我的处置纪录](/content/gnews/6/README.md)
  ` 香草山醫療部`
 
-### [美参议员提武装台湾法案，助台湾提升不对称战力](/content/gnews/6/README.md)
+### [美参议员提武装台湾法案，助台湾提升不对称战力](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共单日又派39架军机扰台 数量创新年新高](/content/gnews/7/README.md)
+### [中共单日又派39架军机扰台 数量创新年新高](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [温吞水式的教会如何杀掉信徒的火热](/content/gnews/8/README.md)
+### [温吞水式的教会如何杀掉信徒的火热](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [共产党造的孽](/content/gnews/9/README.md)
+### [共产党造的孽](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [德海军司令警告中共国“不是一个好国家”后辞职](/content/gnews/10/README.md)
+### [德海军司令警告中共国“不是一个好国家”后辞职](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年底之前，纳斯达克将因通胀持续下降](/content/gnews/11/README.md)
+### [2022年底之前，纳斯达克将因通胀持续下降](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [没有信仰的民族多么可悲（四）](/content/gnews/12/README.md)
+### [没有信仰的民族多么可悲（四）](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [罗伯特·马龙博士在“打倒强制令”集会上呼吁人们保护孩子](/content/gnews/13/README.md)
+### [罗伯特·马龙博士在“打倒强制令”集会上呼吁人们保护孩子](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [没有信仰的民族多么可悲（三）](/content/gnews/14/README.md)
+### [没有信仰的民族多么可悲（三）](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [共产党是如何扩张的（二）](/content/gnews/15/README.md)
+### [共产党是如何扩张的（二）](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [没有信仰的民族多么可悲（二）](/content/gnews/16/README.md)
+### [没有信仰的民族多么可悲（二）](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [巨变：法国、爱尔兰将效仿英国放宽新冠疫情限制](/content/gnews/17/README.md)
+### [巨变：法国、爱尔兰将效仿英国放宽新冠疫情限制](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [两个人类最邪恶组织](/content/gnews/18/README.md)
+### [两个人类最邪恶组织](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [没有信仰的民族多么可悲（一）](/content/gnews/19/README.md)
+### [没有信仰的民族多么可悲（一）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [活着才能实现目标](/content/gnews/20/README.md)
+### [活着才能实现目标](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [回顾苏联解体](/content/gnews/21/README.md)
+### [回顾苏联解体](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [Omicron很危险](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [关于3年的行动](/content/gnews/23/README.md)
+### [Omicron很危险](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
 ### [藏在巧克力棒中的伊维菌素挽救了英国COVID患者的生命](/content/gnews/24/README.md)

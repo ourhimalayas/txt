@@ -2,30 +2,33 @@
 ---
 
 
-## 股市到了大崩盘的时候吗？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902052/)
+## 华盛顿反强制令游行 助威17000名医生的实名宣言
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902055/)
 
-#### **整理：雅典娜速记组**
-**编辑：请你喝可乐**
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-22.jpg)
+图片来源： 零对冲网
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/股市到了大崩盘的时候吗？-.jpg)
+“零对冲”网1月23日报道，成千上万的人参加了当日在华盛顿举行的“击败疫苗强制令”（Defeat The Mandates）游行，抗议各级政府在疫情期间的权力扩张，抗议疫苗强制令和相关法规。
 
-没到，还早着呢！
+这是美国自新冠疫情爆发以来规模最大的抗议活动之一。据活动组织者说，游行参与者包括新冠疫苗的接种和未接种者、既有民主党人也有共和党等人，而演讲者中90%都接种了新冠疫苗。数以千计的示威者聚集在林肯纪念堂前，听取著名医生、科学家、记者、职业运动员、演员和主要思想领袖等嘉宾的演讲。
 
-最简单的逻辑，咱们家里过日子的 溢桶效应，当你桶里放满了水的时 候，你扔一个石头就漾出来水，不 等于石头的体积，真正多出来的水 被挤出去的时候，那就不是几滴了, 而是整个倾倒式的。
+mRNA技术的奠基人马龙（Robert Malone）在集会上呼吁民众不要盲目服从疫苗强制令。美国顶级的心脏病专家麦卡洛（Peter McCullough）博士说，“只有你才对自己的身体拥有自主权，你的身体你自由做主！” 美国“前线新冠重症监护联盟”（FLCCC）的 科里（Pierre Cory） 博士说，推广早期治疗应该优先于疫苗接种，“而他们就是无休止地让我们接种疫苗，尽管这个单一政策已经明显失败”。健康研究员、前政府官员亚历山大（Paul Alexander）则呼吁取消对疫苗公司的责任保护，“如果他们想让你的孩子接种任何新冠疫苗，你就站出来说，取消责任保护！” “美国前线医生”组织（AFLDS）的乌索（Richard Urso）医生则向人们大声疾呼，“我们有17000名医生和科学家，我们比NIH国立卫生研究院、CDC疾控与预防中心、和FDA食品药品监管局更强大！”，“我们遭到解雇、被噤声、被从维基百科删除，但我们仍然站在这里，和你们一起！”
 
-现在市场看到一个最可怕的现象， 是前所未有，水桶溢出的水滴比原 来的水桶还大，你看这几天这个交 易量一海量，你敢放到一年前，二 年前，股市已崩盘了。一天几百亿, 上千亿，怎么可能呢，它就是搞出 来的一个一20万亿，一个多出来的 市场，原来马桶的水叫25万亿，现 在叫50万亿，今天几百亿是一丝丝。
+马龙博士参加此次活动前夕，联合全球超过 17,000 名实名认证的医生及医疗专家，在全球23个月的数百项临床试验数据、数百万患者得到治疗的基础上，签署和发表了《新冠宣言》（COVID Declaration），提出3项原则共识：
 
-早着呢，崩盘的时候一定是，喇， 下来，几年前就说了，一定是直线 下去的，崩盘式的。
+1. 健康儿童不应被强制接种：他们面临的新冠病毒风险微不足道，但如果接种疫苗，他们的健康将面临潜在的永久和不可挽回的风险，包括心脏、大脑、生殖和免疫系统的损害。
 
-*发布：请你喝可乐*
+2. 对自然免疫力的否定导致了疫情的延长，并不必要地限制了康复者的生活；口罩、封锁和其他限制措施对儿童造成了巨大伤害，并延迟了新冠病毒向普通地方性流行病的转变。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+3. 卫生机构须停止干涉医患关系。早期治疗新冠病患被证明治愈率接近 100%，而政策制定者刻意阻挠和禁止新冠早期治疗，对数十万人的死亡负有直接责任。
+
+**新闻来源：**
+
+1. [“Do Not Comply” – Top Doctors Speak At ‘Defeat The Mandates’ Rally In DC](https://www.zerohedge.com/political/disinformation-extremism-and-violence-all-eyes-dc-defeat-mandates-rally-organizers)
+2. [Thousands march on Washington, D.C., in rally against vaccine mandates](https://www.upi.com/Top_News/US/2022/01/23/thousands-march-Washington-DC-rally-against-vaccine-mandates/6221642966129/)
+3. [Press Release: On The Eve of Washington March, COVID Declaration](https://rwmalonemd.substack.com/p/press-release-on-the-eve-of-washington)
+
 
  
 
