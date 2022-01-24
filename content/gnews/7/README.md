@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|德州一联邦法官暂时阻止了对联邦雇员的疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904566/)
+## 世卫组织：针对Omicron疫苗无用，两个月半数欧洲人将被感染
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1904573/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登总统对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
+*世界卫生组织警告大流行不可阻挡的发展，并希望快速开发出可以免疫新变种的特定血清*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gente-mascherine.jpg)
+Omicron 变体非常猖獗，以至于世界卫生组织的认为：“在两个月内，欧洲一半的人将被感染。以及目前的疫苗对Omicron 无效。
 
-这个针对拜登政府疫苗强制令的诉讼，是由一个叫医疗自由联盟的组织发起的。
+因此，世卫组织对感染呈指数增长以及导致新冠的新病毒变种的高传播能力表示担忧。 世卫组织欧洲办事处估计，在未来六到八周内，超过一半的欧洲人可能会受到影响。 世卫组织欧洲部主任汉斯·克鲁格强调，这种变体也可以感染以前生病或接种过疫苗的人，但强调保持教学正常运行的重要性，因为 “学校应该是最后关闭的地方，和第一个重新开启的地方”。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+世界卫生组织也寄希望于快速开发能够有效覆盖 Omicron 变体的疫苗。 特别是世界卫生组织的专家表示，鉴于新的变种，继续用现有疫苗进行加强免疫是没有用的。  “基于当前疫苗反复加强的疫苗接种策略几乎没有合适或可持续的机会。”
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
+他们补充说，在这些新疫苗面世之前，可能需要更新当前新冠疫苗的成分，以确保它们继续提供世界卫生组织建议的保护水平，防止由变体引起的感染和疾病。
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+与此同时，欧洲药品管理局 (Ema) 间接证实了这一方向，指出目前没有证据支持第二次加强免疫：“正在讨论使用目前使用的相同疫苗进行第二次加强免疫的可能性：没有尚未生成数据来支持这种方法”。 欧洲药品管理局 (EMA) 疫苗接种战略负责人 Marco Cavaleri 在新闻发布会上说，他表示： “如果可以将加强剂的使用视为应急计划的一部分，那么在短时间内重复接种疫苗将不是可持续的长期战略”。
 
-文字版原文：[德州一联邦法官暂时阻止了对联邦雇员的疫苗强制令](https://gnews.org/zh-hans/1901921/)
+Cavaleri 认为，Omicron “正在迅速成为主要的变体”并且“似乎会导致不太严重的感染，但需要更多的数据”，并补充说，然而，新的变体是 “医院的潜在负担”，因此 “它不该被低估”。
 
-音频处理：Fei797
-发稿：Fei797
+欧洲药品管理局批准用于应对 Omicron 变体的疫苗可能会在 4 月或 5 月到来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**原新闻链接：**[https://www.ilreggino.it/sanita/2022/01/11/covid-oms-vaccini-inutili-contro-omicron-mezza-europa-contagiata-in-due-mesi/](https://www.ilreggino.it/sanita/2022/01/11/covid-oms-vaccini-inutili-contro-omicron-mezza-europa-contagiata-in-due-mesi/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译：文豪
+校对：小布丁奶茶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
