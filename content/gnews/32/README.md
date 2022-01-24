@@ -2,18 +2,35 @@
 ---
 
 
-## 文贵大直播 1/24 冬奥和病毒：CCP造假秉性难移 努力演好最后一场戏
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1904212/)
+## MV版Hcoin To the Moon上线47天第33次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1904255/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-4.jpg)图片来源 GTV
-北京冬奥提前入驻的人，在所谓病毒检测时，遭遇到的是羞辱和恐惧；很多人对中共国病毒检测几乎草木皆兵，感受到的是困惑… …
+1/24/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线47天第33次位列澳门iTunes热门音乐视频榜榜首，第40次位列前三名
 
-爆料革命发起人郭文贵先生1月24号于美国再次揭秘：这都是中共愚民成习，而且膨胀到认为可以愚弄全世界；一切都为了掩盖病毒真相、疫苗真相，要把戏演到底，事实就是造假。他们要让全世界看到，中共国不是病毒发源地，他们对病毒很认真、很严格等等。
+* * *
 
-文贵先生淡定地告诉现场嘉宾，如果中共不在此时此刻把盘古龙头变“龟头”；如果不让不明真相的人亲身感受到中共邪恶的痛；灭共不会如此迅速为世人所知。
+[【PDF 下载】Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-【来源链接】https://gtv.org/broadcast/watch/61eea3ca28a108147c61a4dd
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+
+
+[【PDF 下载】Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,36 +2,46 @@
 ---
 
 
-## 美海军拦截了一艘伊朗的船只
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1904430/)
+## 小罗伯特·肯尼迪发表演讲反对强制疫苗和医疗暴政
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1904547/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月23日，据《消息报》援引美国海军第五舰队宣布的消息，美国海军（US Navy）于1月18日拦截了一艘从伊朗驶来的船只，据称该船载有爆炸性物质。
+翻译：**Lulumi**
 
-“由于对该船的国籍进行检查时，美国部队发现了40吨尿素，这是一种用于农业肥料的化合物，也被用来制造炸药。”它在Twitter上说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Bobby-Kennedy-Jr..jpg)图片来源：thegatewaypundit.com
 
-据美国海军称，这艘船是在向也门胡塞武装运送武器的途中，这表明美国军方拦截了另一批运往也门安萨尔-阿拉（胡塞武装）叛乱运动成员的货物。
+数以千计的美国人在这个寒冷的日子里来到华盛顿特区，参加“反对强制疫苗和医疗暴政”的游行。
 
-此外，这艘船去年2月在索马里海岸被扣留，并被发现携带武器，包括“数千支 “AK-47步枪、狙击步枪、反坦克榴弹发射器和其他武器。”海军补充说。
+我的一位朋友分享说，小罗伯特·肯尼迪今天的演讲是林肯纪念堂有史以来最伟大的演讲之一。
 
-11月，据报道，伊朗军方在波斯湾扣留了一艘无国籍的外国船只，怀疑其试图走私15万升燃料。
+小罗伯特·肯尼迪在反对疯狂的COVID-19强制疫苗方面发挥重要作用，同时与医学界的那些医生和世界各地的人们站在一起，反对正在发生的疫苗和医疗暴政。肯尼迪因其著作《真正的福奇》而闻名，这是一本畅销书，对COVID中共病毒大流行进行了直率的讨论。
 
-此前，伊朗海军曾报告说，它阻止了美国军队在阿曼湾扣押一艘伊朗油轮的企图。五角大楼则否认它拦截了这批石油货物，并指责伊朗军队在阿曼湾的国际水域扣押了这艘商船。
+以下是今天小罗伯特演讲的部分内容：
 
-[https://iz.ru/1281264/2022-01-24/vms-ssha-soobshchili-o-zaderzhanii-sudna-iz-irana-s-komponentami-vzryvchatki](https://iz.ru/1281264/2022-01-24/vms-ssha-soobshchili-o-zaderzhanii-sudna-iz-irana-s-komponentami-vzryvchatki)
+…在操纵和过度扩大PCR测试的使用方面、精心策划的混乱和恐惧方面，我称之为信息混乱。通过改变死亡证明的计算方法，完全没有任何关于病例死亡率或感染死亡率的良好数据，也没有我们的公共卫生机构应该告诉我们的所有事情，以便我们能够与我们的医生一起单独评估风险、治疗和预防方案。我们没有得到任何这些信息。我们得到的信息被严重地、严重地操纵了……
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
-**更多资讯，更多关注**
+…顺便说一下，辉瑞和FDA拒绝出示50万页的疫情数据，因为他们说这太麻烦了….他们说55年内都不能给我们看。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+…如果你注射了疫苗，你在未来六个月内死亡的几率会增加21%…
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+…他们必须注射2.2万支疫苗才能保护一个人不会死于COVID。如果你用2.2万支疫苗来防止一个人死亡，你最好确保疫苗不会杀死任何人，因为如果它杀死任何一个人，已经抵消了（疫苗）所有的好处。 但正如我们所看到的，疫苗组有21人死亡，而安慰剂组只有17人，那么这些多余的死亡来自哪里？这个问题的答案是心脏病发作…
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+… 在我们指定一个人做科学之前，实际首先要通过正式地做研究来确定科学。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+…现在他们知道11年前的系统已经坏了，他们知道11年前只计算了1%的疫苗伤害，现在他们告诉你这是高估了的疫苗伤害。那两万人并没有真正死于疫苗。那10万人并不是真的受伤……没有一项研究表明VAERS高估了疫苗伤害……。
+
+…我们热爱美国的宪法。在过去的20个月里，我们目睹了一场针对民主的政变，以及对美国宪法和权利法案的毁坏，一个被控制的破坏，一切从审查开始。詹姆斯·麦迪逊、约翰·亚当斯、托马斯·杰斐逊都说过同样的话，我们把言论自由放在第一修正案中，因为我们试图保护的所有其他权利都依赖于这一权利……
+
+…当他们把疫苗护照递给你的那一刻，你所拥有的每一项权利都变成了一种特权，取决于你是否服从政府武断的指令。
+
+参考资料：[thegatewaypundit][Bobby Kennedy Jr. Gives Historic Speech at Lincoln Memorial Today for March Against Vaccine Mandates and Medical Tyranny](https://www.thegatewaypundit.com/2022/01/bobby-kennedy-jr-gives-historic-speech-lincoln-memorial-today-march-vaccine-mandates-medical-tyranny/)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
 
  
 

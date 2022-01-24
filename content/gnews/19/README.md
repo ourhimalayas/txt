@@ -2,54 +2,29 @@
 ---
 
 
-## 日本民调显示八成五民众对中共无好感，对台美印象佳
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904499/)
+## 世卫组织：针对Omicron疫苗无用，两个月半数欧洲人将被感染
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1904573/)
 
-**作者**：纽约香草山 医疗部-云豹
+*世界卫生组织警告大流行不可阻挡的发展，并希望快速开发出可以免疫新变种的特定血清*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gente-mascherine.jpg)
+Omicron 变体非常猖獗，以至于世界卫生组织的认为：“在两个月内，欧洲一半的人将被感染。以及目前的疫苗对Omicron 无效。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
+因此，世卫组织对感染呈指数增长以及导致新冠的新病毒变种的高传播能力表示担忧。 世卫组织欧洲办事处估计，在未来六到八周内，超过一半的欧洲人可能会受到影响。 世卫组织欧洲部主任汉斯·克鲁格强调，这种变体也可以感染以前生病或接种过疫苗的人，但强调保持教学正常运行的重要性，因为 “学校应该是最后关闭的地方，和第一个重新开启的地方”。
 
+世界卫生组织也寄希望于快速开发能够有效覆盖 Omicron 变体的疫苗。 特别是世界卫生组织的专家表示，鉴于新的变种，继续用现有疫苗进行加强免疫是没有用的。  “基于当前疫苗反复加强的疫苗接种策略几乎没有合适或可持续的机会。”
 
+他们补充说，在这些新疫苗面世之前，可能需要更新当前新冠疫苗的成分，以确保它们继续提供世界卫生组织建议的保护水平，防止由变体引起的感染和疾病。
 
+与此同时，欧洲药品管理局 (Ema) 间接证实了这一方向，指出目前没有证据支持第二次加强免疫：“正在讨论使用目前使用的相同疫苗进行第二次加强免疫的可能性：没有尚未生成数据来支持这种方法”。 欧洲药品管理局 (EMA) 疫苗接种战略负责人 Marco Cavaleri 在新闻发布会上说，他表示： “如果可以将加强剂的使用视为应急计划的一部分，那么在短时间内重复接种疫苗将不是可持续的长期战略”。
 
+Cavaleri 认为，Omicron “正在迅速成为主要的变体”并且“似乎会导致不太严重的感染，但需要更多的数据”，并补充说，然而，新的变体是 “医院的潜在负担”，因此 “它不该被低估”。
 
-当地时间1月22日，日本媒体报导日本政府所做的民调结果，显示八成五的日本民众认为日本与中共的关系不良好。九成一的民众认为日本与美国的关系良好。另外台湾驻日代表处委托民调单位所做的结果显示，近八成的日本民众觉得对台湾有亲近感。
+欧洲药品管理局批准用于应对 Omicron 变体的疫苗可能会在 4 月或 5 月到来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1024x768_20210106000123.jpg)
+**原新闻链接：**[https://www.ilreggino.it/sanita/2022/01/11/covid-oms-vaccini-inutili-contro-omicron-mezza-europa-contagiata-in-due-mesi/](https://www.ilreggino.it/sanita/2022/01/11/covid-oms-vaccini-inutili-contro-omicron-mezza-europa-contagiata-in-due-mesi/)
 
-日本政府是在去年9月底至11月针对全国18岁以上的3000人以邮寄方式实施民调，获得1701人（约56.7%）作答。与上次民调比较，此次民调中，民众认为与中共关系良好的减少了近三个百分点。认为与美国关系良好的增加了五个百分点。
-
-台湾驻日代表处是于去年11月14日至26日，委托日本民调公司进行日本民众对台湾观感的民调。结果显示，七成八的日本受访者对台湾有亲近感，近七成到八成的受访者觉得台湾可信赖、台日关系良好，以及认为台日关系将来会有发展。
-
-新闻链接：
-
-[https://www.cna.com.tw/news/firstnews/202101060285.aspx](https://www.cna.com.tw/news/firstnews/202101060285.aspx)
-
-[https://www.cna.com.tw/news/aopl/202201230003.aspx](https://www.cna.com.tw/news/aopl/202201230003.aspx)
-
-***总编：文真***
-
-***校对/发稿：遍地开花***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
-
-
-
-
+翻译：文豪
+校对：小布丁奶茶
 
  
 

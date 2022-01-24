@@ -2,57 +2,33 @@
 ---
 
 
-## 阿尔伯塔省承认玩弄了新冠疫苗接种的统计数据
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904546/)
+## 文贵爆料 1.24：万物萧瑟中，喜币一枝独秀
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1904588/)
 
-#### 超过一半的新接种疫苗的死亡病例被混杂在未接种疫苗的人身上
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-9.28.49-PM.jpeg)
+正当世界经济如一叶小舟，在这场病毒和疫苗的风暴中，随风狂舞、摇摇欲坠之际，喜币却一路高歌、渐入佳境。在1月24日的大直播中，郭文贵先生说，喜联储是这场灾难的第一受益者，喜支付后，还会有喜保险、喜金融、喜贷款和喜抵押。喜币滚滚之势，不可阻挡。
 
-2021-01-24
+人类从来没有像今天这样，真的就像北京烤鸭店的鸭子一样，在被烤之前，还在那儿手舞足蹈。鸭子忘了，手舞足蹈不是因为兴奋，而是脚下被加热了。今天全世界的经济都被共产党绑架了，被共产党的病毒扼杀了，你看到很多人还在买房子，房子也还在涨，这就像鸭子在手舞足蹈一样，不自然啊！
 
-原文作者：Joel Smalley
+大家没有意识到，股票都已经跌了百分之二十，有的是百分之四十。如果美国股票跌百分之二十，很多基金和金融机构就会垮掉。不到二十六个月的时间，全人类印发了二百六十万亿美元，这是世界GDP的将近两倍，这二百六十万亿到了数字货币只有三万多亿美元。
 
-**翻译：Sandy**
+拥有喜币者，你们将看到无法想象的新局面。一个实力雄厚的大投资者买完Hcoin后，偷偷地测试能不能卖出去，他以二十四块钱的价格，卖了大概七十万个币啊，然后提走了所有的钱，他傻眼了。我说你现在是时候站出来投数字货币了，而且你要成立数字货币基金，要成为人类第一家，要领导人类，让数字货币走向世界，这不亚于你拥有一个新的美元系统。
 
-那些做过一点点研究的人都会知道，第一剂 COVID 疫苗没有带来任何保护。
+头一段时间，我用了两个小时，给他和一些投资者讲了Hcoin的设计、流通、应用，及与其它数字币的差别等问题。他们都想成为Hcoin的投资者。我说，我喜欢你们加入，我没有决策权，但可以推荐。但永远要记住，进来的前提是，我的持六亿多币战友们的利益是第一位，你不能跟他们争名夺利，他们是第一优先。我说了Hcoin未来的价格，我说了个数，他就愣在那儿。
 
-因此，想像一下，如果你把所有在第一次接种疫苗后的14 天内的感染事件（病例、住院和死亡）全部转移到未接种疫苗的人群中，疫苗有效性统计数据将是何等的混杂。
+最后，这个人所在国家组成了个团队，对各种虚拟货币进行了调查。我告诉他，我们最牛的是，我们有全人类最好的kyc，我们有五十亿美元的现金等着kyc。他说，Hcoin现在四十二块钱，四百多倍，把我们给震住了，我们每天都数着你们的每个币。最后我给他讲了讲我们和各国政府之间互动。所有参会者都发自内心地说，这个设计太牛了！天才呀！太厉害了啊！
 
-好吧，现在我们从[阿尔伯塔省政府公布的数据](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)中可以肯定地知道, 这些数据与世界上其他任何地方一样，他们通过遵循药物制造商在双盲临床试验中设定的欺诈标准,  声称疫苗的有效性极佳，即忽略给药后最初两周的不良结果。
+我告诉了他们Hcoin未来会到什么程度，当打开无疆界的支付系统后，特别是有热钱包、冷钱包后，没有任何人或机构可以控制你的币，你可以随时买卖。你可以把它变成冷钱包，放在了一个硬盘里，可以加入你的眼、指纹、脚指纹、皮指纹，什么纹都行，没有任何人可以拿走，即丢失了，也会再找回，而且没有一个人可以看到你的个人信息。
 
-但后来他们做得更过份，实际上也夸大了未接种疫苗的感染人数。自然，这次是把接种第 2 剂疫苗 14 天内的人数赖到只接种一针的人数之中。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fe3a665fa-6888-4992-9fb0-b03b9565b7d3_3251x1822.png)完成接种新冠疫苗的时间和住院率
-新接种疫苗的所有 COVID 住院患者中，**几乎有一半发生在 14 天内**，这意味着他们在统计数据中被视为未接种疫苗。
+你们知道我恨共产党，但即使王岐山、习近平把钱放在这，我也拿不走。另外，在流通后，能买面包、能买汽油，还能买飞机。未来的数字货币有去中心化，还有一个就是他有没有稳定币的问题，谁在负责任的问题。我们最牛的是kyc，比特币最终一定归零，因为它量的钱是暗网、深网，是作为犯罪和洗钱的工具。
 
-幸运的是，他们还公布了每个案例从剂量到感染的时间，从而无意中让我们了解了这种不诚实的程度，从而使我们能够重新计算有多少前 14 天内的病例从接种疫苗者转移到未接种疫苗人群。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F155db86f-32bb-4756-a9a7-b896e72eac0c_3251x1822.png)完成接种新冠疫苗的时间和实际住院治疗病例
-不仅如此，几乎 80% 的病例发生在接种疫苗 45 天内。我得和我的朋友 Jessica Rose核实一下，她是时间因果关系方面的专家，但对我来说这看起来很有说服力。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fbd5508a8-bb5a-4886-8c51-2b81580631cf_3251x1822.png) 完成接种新冠疫苗的时间和死亡率
-在死亡人数方面，不诚实的情况更为严重，新接种疫苗的死亡人数中近 56% 发生在接种14天内，近 90%发生在45天内。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F36ab346b-3156-4bdc-af59-aee8f903522c_3251x1822.png) 完成接种新冠疫苗的时间和死亡数量
-像往常一样，如果你对公共卫生信息感兴趣，你应该非常警惕来自公共卫生当局的任何信息，这些信息随后被宣传媒体和他们的其他傀儡所宣传。
+郭先生说，喜币最后价值是什么呢？等喜支付后，还会有喜保险、喜金融、喜贷款和喜抵押。
 
-你的生活很可能取决于这些信息。
+参考链接：
 
-后记
+[2022年1月24日 文贵大直播](https://gettr.com/streaming/pqa8gpf229)
 
-作为对读者评论的回应，我还包括了病例数据。 它显然遵循相同的接种 14 天的模式。**新接种疫苗的所有 COVID 住院患者中，40% 的病例、48% 的住院到 56% 的死亡等发生在接种 14 天内。 **
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F86de4fbc-0404-4e8e-865b-932f55a244ef_3251x1822.png)完成接种新冠疫苗的时间和确诊率![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F7cfc241f-8adf-4466-b3c4-e8816991f84d_3251x1822.png)完成接种新冠疫苗的时间和确诊病例
-我想住院人数超过病例数和死亡人数超过住院人数可能会受到优先考虑病人的影响，但我认为这并不重要。无论如何，需要保护的是病人，而不是健康人！如果它没有改善病人的结果，那到底有什么意义呢？
-
-仅作记录，这里是病例的完整历史，并附有大规模疫苗接种运动的开始时间。是不是很有趣？
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F23f5b9e2-80d9-4cf8-8cf3-7fa9a2f80e96_3623x2113.png)每周确诊人数，附大规模疫苗接种运动的开始时间
-因此，事实证明，阿尔伯塔省突然争先恐后地从他们的网站上删除了有罪的数据。所以，这里是记录的[副本](https://twitter.com/mdccclxx/status/1482322137255923713?s=20)，这是[网络档案](https://web.archive.org/web/20220107094256/https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)。 真相不再被隐瞒。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fec838ce9-57c6-4413-bafd-f6aedf10ede2_1058x1244.jpeg)新冠疫苗接种时长和感染情况的记录
-**原文链接：
-**[Alberta just inadvertently confessed to fiddling the COVID vaccination stats.](https://metatron.substack.com/p/alberta-just-inadvertently-confessed?r=9hpvu&amp;utm_campaign=post&amp;utm_medium=email&amp;fbclid=IwAR0NOo_eA99bOeEz3zzOGXauZl08XkjSle5ruHMYzc6nYwNI7xfSfofH0aQ)
-
-**编辑：MQ**
-
-**发布：MQ**
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,57 @@
 ---
 
 
-## 男版杨贝贝
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1904407/)
+## 阿尔伯塔省承认玩弄了新冠疫苗接种的统计数据
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904546/)
 
-By：银河勇气星｜天雷滚滚
+#### 超过一半的新接种疫苗的死亡病例被混杂在未接种疫苗的人身上
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1ce0227deb71a4c53630e4cc05bc82ee.jpg)
+2021-01-24
 
-杨贝贝制造的排华事件已经把海外华人黄种人置于危险之中了，共产党还不罢休，又在同是黄种人的日本制造了排华事件，它们派出了豢养已久的走狗特务杨海英，在该国发行量非常大的报纸上撰文，大肆宣扬中共等同于中国人民。并且指出，中国人帮助中国共匪大肆屠杀蒙古人。
+原文作者：Joel Smalley
 
-杨海英真不愧是共产邪魔的走狗特务，跟杨贝贝是一个德性。杨贝贝她父亲被共产党逼得离乡背景，当年坐着一条小船，偷渡到香港，经香港千里迢迢来到了英国，英国这块土地收留了她的父亲，并跟英籍的女子结婚，才生下了她，按理，父辈的血海深仇不报，也没人说她是孬种，不料，杨贝贝不仅不报父仇，反而认贼作父，为了一点狗粮，竟然数典忘祖，当起了共匪的帮凶。现在，杨海英也干起了杨贝贝的勾当了。杨海英为日籍蒙古人，生于1964年，现为日本静冈大学教授。1967年到1969，在他四五岁时，共产党在内蒙古自治区进行了一场大规模肃反运动，将上百万人定性为内蒙古人民革命党（简称“内人党”）成员，其中有数以万计的人被屠杀或遭迫害致死，杨海英的家人也受到私刑，家产被夺走。其母亲每天都被迫参加政治批斗会，周围的人相继死去，这些事件令他万分恐怖。2000年，他归化日本，并因其著作《没有墓碑的草原：内蒙古文革大屠杀实录》获得司马辽太郎奖。如果说，杨海英只是一个普通的蒙古牧民，他把这个恨归结给汉人的压迫，也是情有可原，毕竟，那只是无知。可是，作为多年研究中国的文化大革命问题的文化人类学教授，说他不懂共匪的文化大革命的罪魁祸首是毛泽东，是中国共产党，不知道汉人也是最大的受害者，不是蠢就是坏。并且，杨海英又在共匪成了过街老鼠，在全世界各国正在形成合围之势，准备消灭中共的当下，跟杨贝贝一样，颠倒黑白混淆是非，又为了什么呢？
+**翻译：Sandy**
 
-我想共匪自知穷途末路，但他不甘心束手就擒，求生的欲望，让他穷凶极恶。首先，他们最害怕的团体是爆料革命，这个世界上只要有爆料革命新中国联邦存在，那么，共匪是食不能知味，寝不能安眠，于是，放了许多的特务汉奸，潜伏的，官司缠讼的，还有各种大外宣抹黑的，等等，只有我们想不到的，没有他做不出的。但是，最后呢，都铩羽而归，而爆料革命越做越大，越做越强。无奈，他们就用了非常毒的一招，贼喊捉贼，自己是这个世界上最大邪教，却把爆料革命诬为邪教；自己是恐怖主义，比纳粹还凶残的纳粹，却把爆料所有的中国人打成是暴恐分子，是西方民主制度的最大破坏者。用尽一切可以利用的力量，企图借助西方的民众，把全部海外华人屠杀殆尽，就像当年的印尼排华事件，中共不费一刀一枪，就达到了他的邪恶目的。这还不够，在亚洲的华人，共匪也要斩草除根，永绝后患，于是，那个蒙古人的叛徒杨海英就出来狂吠了。
+那些做过一点点研究的人都会知道，第一剂 COVID 疫苗没有带来任何保护。
 
-共匪太阴毒了。由于共匪长期在海外组织华人大肆进行一些所谓的爱党爱国的活动，还有一些走狗特务在海外的渗透和宣传，使得大部分人的老外搞不清中国人跟中国共产党的区别，尽管我们现在有了GTV和GNEWS等媒体，还有班农先生和彼特·纳瓦罗先生的大声疾呼，但是，毕竟推特、非死不可等指鹿为马媒体都是共匪的走狗，我们的力量毕竟有限，让西方民众难以分清是非，加上，共匪倾一国之力在主流媒体上的造谣诽谤的破坏力也不可小觑，因此，一旦共匪的阴谋达成，后果将是不堪设想。从普通民众层面，就像郭先生说的，不仅会引发大范围的排华事件，而且可能会引发大范围的排亚裔种族事件。从各国的领导层面来讲，要根除中共，就要把十四亿中国人都得一起消灭，这种成本太高太高，没有哪一国家或者即使所有国家都联合起来，也不可能实现。因此，他们会放弃灭共，但又为了自保，他们完全可能把十四亿中国人围堵在960万平方各里的孤岛上，甚至互联网都不跟你相通，就像北韩的家族一样，让所有的中国人自生自灭。这是共匪最愿意看到的，以上两种，无论哪一种，共匪就能再一次续命，但哪一种都将是中华民族的灾难。
+因此，想像一下，如果你把所有在第一次接种疫苗后的14 天内的感染事件（病例、住院和死亡）全部转移到未接种疫苗的人群中，疫苗有效性统计数据将是何等的混杂。
 
-但是，共匪的阴谋能得逞吗？有了爆料革命，我看很难。当然，前提是，我们每一个战友要行动，多用各种平台传播真相，学习班农先生教我们的，同一事件反复做，特别是中共不同于中国人，共匪所做的种种阴毒之事，多转发；共匪所有虚假的宣传，多揭露，尽我们的一切努力，为灭共添上最后一根稻草。
+好吧，现在我们从[阿尔伯塔省政府公布的数据](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)中可以肯定地知道, 这些数据与世界上其他任何地方一样，他们通过遵循药物制造商在双盲临床试验中设定的欺诈标准,  声称疫苗的有效性极佳，即忽略给药后最初两周的不良结果。
 
-* * *
+但后来他们做得更过份，实际上也夸大了未接种疫苗的感染人数。自然，这次是把接种第 2 剂疫苗 14 天内的人数赖到只接种一针的人数之中。
+![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fe3a665fa-6888-4992-9fb0-b03b9565b7d3_3251x1822.png)完成接种新冠疫苗的时间和住院率
+新接种疫苗的所有 COVID 住院患者中，**几乎有一半发生在 14 天内**，这意味着他们在统计数据中被视为未接种疫苗。
 
-作者：天雷滚滚
-发布：骄子
+幸运的是，他们还公布了每个案例从剂量到感染的时间，从而无意中让我们了解了这种不诚实的程度，从而使我们能够重新计算有多少前 14 天内的病例从接种疫苗者转移到未接种疫苗人群。
+![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F155db86f-32bb-4756-a9a7-b896e72eac0c_3251x1822.png)完成接种新冠疫苗的时间和实际住院治疗病例
+不仅如此，几乎 80% 的病例发生在接种疫苗 45 天内。我得和我的朋友 Jessica Rose核实一下，她是时间因果关系方面的专家，但对我来说这看起来很有说服力。
+![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fbd5508a8-bb5a-4886-8c51-2b81580631cf_3251x1822.png) 完成接种新冠疫苗的时间和死亡率
+在死亡人数方面，不诚实的情况更为严重，新接种疫苗的死亡人数中近 56% 发生在接种14天内，近 90%发生在45天内。
+![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F36ab346b-3156-4bdc-af59-aee8f903522c_3251x1822.png) 完成接种新冠疫苗的时间和死亡数量
+像往常一样，如果你对公共卫生信息感兴趣，你应该非常警惕来自公共卫生当局的任何信息，这些信息随后被宣传媒体和他们的其他傀儡所宣传。
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎各位战友加入。欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-3.jpg) 
+你的生活很可能取决于这些信息。
+
+后记
+
+作为对读者评论的回应，我还包括了病例数据。 它显然遵循相同的接种 14 天的模式。**新接种疫苗的所有 COVID 住院患者中，40% 的病例、48% 的住院到 56% 的死亡等发生在接种 14 天内。 **
+![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F86de4fbc-0404-4e8e-865b-932f55a244ef_3251x1822.png)完成接种新冠疫苗的时间和确诊率![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F7cfc241f-8adf-4466-b3c4-e8816991f84d_3251x1822.png)完成接种新冠疫苗的时间和确诊病例
+我想住院人数超过病例数和死亡人数超过住院人数可能会受到优先考虑病人的影响，但我认为这并不重要。无论如何，需要保护的是病人，而不是健康人！如果它没有改善病人的结果，那到底有什么意义呢？
+
+仅作记录，这里是病例的完整历史，并附有大规模疫苗接种运动的开始时间。是不是很有趣？
+![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F23f5b9e2-80d9-4cf8-8cf3-7fa9a2f80e96_3623x2113.png)每周确诊人数，附大规模疫苗接种运动的开始时间
+因此，事实证明，阿尔伯塔省突然争先恐后地从他们的网站上删除了有罪的数据。所以，这里是记录的[副本](https://twitter.com/mdccclxx/status/1482322137255923713?s=20)，这是[网络档案](https://web.archive.org/web/20220107094256/https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)。 真相不再被隐瞒。
+![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fec838ce9-57c6-4413-bafd-f6aedf10ede2_1058x1244.jpeg)新冠疫苗接种时长和感染情况的记录
+**原文链接：
+**[Alberta just inadvertently confessed to fiddling the COVID vaccination stats.](https://metatron.substack.com/p/alberta-just-inadvertently-confessed?r=9hpvu&amp;utm_campaign=post&amp;utm_medium=email&amp;fbclid=IwAR0NOo_eA99bOeEz3zzOGXauZl08XkjSle5ruHMYzc6nYwNI7xfSfofH0aQ)
+
+**编辑：MQ**
+
+**发布：MQ**
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
