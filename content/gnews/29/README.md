@@ -2,32 +2,19 @@
 ---
 
 
-## 班农先生对新中国联邦的重要性（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902253/)
+## 喜联储拥有最安全的钱包 是储存财富的理想之处
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1902315/)
 
-整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生对新中国联邦的重要性（下）-1-scaled.jpg)
-人类大自然都是优胜劣汰，这是一个正常的自然现象。
+喜联储未来将给存款，7%的回报利息，之后还会开展贷款、保险等业务。
 
-但是 要看到为什么班农先生还能跟我在一起，为什么他今天还能有这样的激情，还有这样的影响力。
+数字货币最重要的两大钱包：热钱包和冷钱包。热钱包是联网储存私钥，非常容易受到黑客攻击。相比之下，非联网储存的冷钱包就安全很多。如果共产党断网，拥有喜联储账户的人还可以用硬钱包进行交易转账，所以喜联储是最安全的钱包。
 
-当时FBI的人跟我说：你们 中国人就是要脸、要面子,全世界只有美国有一个Stephen K. Bannon,说被人家给打到地上，不服输，然后从欧洲回来以后， 成为Number One Hero。
+现在量子电脑、生物识别技术，已运用在硬钱包的设计上。这就打破了法币固有的国家监管和地域界限。硬钱包只认钱不认人，不可寻，永不丢失。未来，谁拥有最安全的硬钱包，就是人类财富的拥有者。
 
-他从来没有面子的负担。I want to win, don’t give me, face.
-
-发布：于white
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频来源: 2022年1月21日郭先生大直播视频
+视频制作: 文星光
+文案:文星光、梦田
+上传: 零点
 
  
 

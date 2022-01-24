@@ -2,29 +2,35 @@
 ---
 
 
-## GEDU的第一课《自由女神》-获得文贵先生高度赞誉
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1901433/)
+## 有声|日本即将终结对华“官方开发援助”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901488/)
 
-磐石农场G-EDU教育组Qmay提供
-视频剪辑：Mark 
-磐石农场万众瞩目的开幕典礼上，高潮迭起，令战友们印象最深刻的当属Happy 老师的那节课《自由女神》。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月14日消息，日本即将结束历时40余年的对华 “官方开发援助计划” 。该计划自1979年12月开始，结束日期为2022年3月。援助形式包括资金、技术和人才培养等各个方面。截止2015年，该计划的援助金额合计322亿美元，涉及多项中共国内大型基建目，包含北京国际机场、上海浦东机场、武汉天河机场、中日友好医院及北京地铁2号线等。
 
-整节课跨语文，数学以及历史多学科，集多个知识点于一体，深入浅出令人折服。栩栩如生的讲述把每一位屏幕前的大人和小孩子的学习兴趣都最大限度的调动了起来，连文贵先生听完都大加褒赞，说自己是Happy 老师最好的学生。
+40年来，日本的友好援助和中共国的改革开放相重叠，支撑中共国走上经济大国之路。然而中共国内对此援助计划鲜有提及，大部分中国人并不知道有此援助计划，以及相应的援助资金及行动。
 
-文贵先生的赞赏全文如下：
+原文链接：[日本即将终结对华“官方开发援助”](https://gnews.org/zh-hans/1898279/)
 
-文贵先生说：我忘了开麦，我也会不开麦，你看看，所以说再好的学生也会犯错。请问HAPPY老师，你长那么帅，结婚了没有？有没有男朋友啊?
+音频处理/发稿：Daxia
 
-HAPPY老师回答说：已经结婚了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-文贵先生：“结婚了？这是个很大的遗憾啊。你长得太帅了，又长得帅，你又讲那么好。
+**更多资讯，更多关注**
 
-**刚才我听你讲，说心里话，如果在几十年前你让我知道这么多自由女神像的信息，我对自由女神会有更多更多的理解和行动。你今天讲的80%甚至90%我都不知道。你真是个好老师，这GEDU第一课就是这个自由女神 。**
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**兴趣是最好的老师，你让我的兴趣一下子就起来了，真的很爱你啊，不光因为你长得帅，你讲得太好了，GEDU真的是开门第一课最好的学生就是七哥。你的课我一定要听。谢谢**。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-编辑发布：Jenny
-磐石农场三大板块宣传片![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  

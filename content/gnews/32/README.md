@@ -2,82 +2,49 @@
 ---
 
 
-## 【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1902175/)
+## 国内病毒失控，全世界最大的金融危机将在今年爆发
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1902286/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5135BA19-56EA-44AD-9EF0-A604D9E34E0B.jpeg)
-2022年1月23日，据福克斯新闻刊文报道，在华盛顿特区举行了大型抗议疫苗授权活动，有30,000 至 35,000 人参加了本次抗议活动。
+作者：顺其自然
+编辑：小红帽
 
-“击败授权”抗议疫苗授权[游行走上](https://www.foxnews.com/category/us/us-protests)[华盛顿特区](https://www.foxnews.com/category/us/washington-dc)的街道和纪念碑，抗议者和演讲者呼吁在全国范围内结束[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus) [疫苗](https://www.foxnews.com/category/health/infectious-disease/vaccines)授权。
-
-目前为止，包括华盛顿特区、纽约市、洛杉矶、芝加哥、明尼阿波利斯和波士顿在内的一些美国主要城市已经实施了全市范围的规定，要求居民在某些场所（例如餐馆和健身房）出示疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3D0EE3F5-861E-41F6-9EEA-A053634D3A59.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/UV0YW0C3T2ZKQS4TW_X5.png)图片来源：雅典娜设计组
 
 
-和平抗议活动于中午左右在华盛顿纪念碑开始进行，首先前往林肯纪念堂。在那里，一系列演讲者们分享了他们在过去一年的经历以及他们呼吁结束疫苗授权的理由.
+在美国时间的1月23日，郭先生发了个盖特小视频。在小视频中，郭先生讲了：
 
+1）国内的病毒控制不住了，失控了。作恶者必自毙，放毒给人家，但现在自己控制不住了。光靠打压，强力政策，没有人民的配合，他啥也干不成。现在人民在觉醒，有爆料革命，有新中国联邦，人们不可能再被愚弄下去了。
 
+2）看看金融危机，全世界都闻到了郭先生这几年一直说的，全世界最大的金融危机会在2022年到来。2022年是最危险，最黑暗，最有希望的一年。
 
-> Big enthusiastic crowd braved the cold in DC to [#defeatthemandatesdc](https://twitter.com/hashtag/defeatthemandatesdc?src=hash&amp;ref_src=twsrc%5Etfw). ⁦[@P\_McCulloughMD](https://twitter.com/P_McCulloughMD?ref_src=twsrc%5Etfw)⁩ ⁦[@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw)⁩ ⁦[@TruthMav](https://twitter.com/TruthMav?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/TukJ99sp2d](https://t.co/TukJ99sp2d)
-> — Richard Amerling (@dramerling) [January 23, 2022](https://twitter.com/dramerling/status/1485354150502281216?ref_src=twsrc%5Etfw)
+3）这周是世界的一大星期。3月5日以前，这个世界会有大动静。
 
+针对郭先生说的疫情失控，我们看一下国内疫情数据。北京疾控中心报告，周六新增本土感染病例13例（新增9例本土确诊、4例本土无症状感染者），周五新增12例。北京自1月15日以来，两条传播链9天累计报告43例阳性。
 
+距离北京冬奥会还有不到两周的时间，北京的疫情不仅没有好转，反而还在恶化。北京市丰台区的通告称，由于出现区聚集性疫情，面临社区传播风险，于1月23日组织全区核酸检测。北京市10个区，包括东城、西城、朝阳、海淀、石景山等派4600名医护人员去丰台，帮助进行检测。
 
+周六，北京市疾控中心副主任庞星火以罕见的严肃语气谈论北京的疫情。她称：“当前，全市疫情呈现多点散发态势。”并呼吁全市“以最快速度、最有效措施、最大限度阻止疫情蔓延。”
 
+熟悉中共“内紧外松”抗疫模式的人士都知道，中共官员以如此严峻的口气和非常的方式谈论疫情，往往意味着疫情的真实情况非常糟糕。
 
-> Fighting for medical freedom will always and forever be on the right side of history. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W8cEEuhZfd](https://t.co/W8cEEuhZfd)
-> — Debra Lea (@thedebralea) [January 23, 2022](https://twitter.com/thedebralea/status/1485374947971194886?ref_src=twsrc%5Etfw)
+深圳疾控中心报告，1月15日，深圳出现本轮疫情第17例阳性。经初步流调分析可能是另一传播链。
 
+关于郭先生说的2022年会发生全世界最大的金融危机，我做一下我的解读：
 
+纳斯达克指数，目前已较去年11月中旬的历史收盘高点跌超14%。《彭博社》称，纳指这么跌，是不寻常的。GMO创始人Jeremy警告，史上第四大超级泡沫即将破裂，美股将暴跌50%。面对美国国内屡破历史新高的通胀水平以及创下历史记录的失业率，美联储必须开始回收之前释放的流动性。在这个背景下，全球资产定价之锚–十年期美债收益率也随即飙升，依赖未来现金流的科技股也更加岌岌可危。
 
+我们知道，这场危机的开始不是由这几年的风险积累起来，而是从各国放弃金本位开始的，尤其是从1971年布雷顿森林体系的最终瓦解开始的，从各国为了经济的发展，扩张，疯狂印钞开始的。货币增加的表现就是涌入各种领域，推高各类资产价格上涨，居高不下。要命的是，货币的超发不是以发钱的模式来释放的，而是以信贷的角色出现的。如果说当初资本是以资产推动资产滚动发展开始，然后就是资产推动负债滚动发展，到如今的负债推动负债滚动苟延残喘。也就是说，当初借出去的债务因为资本回报率，尤其是制造业回报率的极速下降，企业，个人最终陷入了负债滚动负债的最坏情况。负债是需要支出利息的，是需要到期还本的。如果当企业，个人的利润，收入，连利息都最终支付不来，那么必然会导致企业破产，个人信用陷入毁灭性打击。
 
+原本2008年的次贷危机，这本来是一个很好集中处理债务的机会，但是各国为了维护原有债务关系，进行了再次量化宽松。这不仅使得原有的债务关系继续续存，反而因为货币超发形成了新的债务。所以就造成了现在政府，企业，个人都是扛着一大堆的债务。这可是累积了50多年的债务，这个破环力再发作起来的时候，可是非常惊人的。更加要命的是，美联储2021年一年的印钞量相当于美联储成立至2020年的全部年份的总和。所以在2021年美国以及世界各国物价飞涨。2022年美联储只能加息了。只要加息，这个超级大泡沫就会爆炸。另外，再加上疫情原因的封城，商铺关门，强制打疫苗导致劳动力短缺。因此，这次金融经济危机一定是自1929年以来最严重的一次。很多人的资产会清零，也会有很多人从富翁变成负翁。
 
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+发布：*tianzhihuan*
 
-
-
-
-
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
-
-
-
-30,000 至 35,000 人参加了抗议活动，[要求](https://defeatthemandatesdc.com/about/)终止疫苗授权和疫苗护照，他们呼吁进行合理辩论和知情同意的权力。
-
-游行组织者威尔·维特（Will Witt）是非营利组织 PragerU 的作家和政治评论员，她说：“你会听到很多左派人士说这是一场大型的反疫苗集会——人们进来否认科学，”
-
-“但是，这次游行是关于抗议我们现在在全国各地看到的严厉措施，特别是在华盛顿特区、纽约市、洛杉矶、旧金山等地。”
-
-几个团体赞助了这次活动，包括前线 COVID-19 重症监护联盟、世界卫生委员会、疫苗安全研究基金会和儿童健康防御组织——由小罗伯特·肯尼迪领导。
-
-演讲者包括罗伯特·马龙博士，Peter McCullough 博士、Christina Parks 博士、Paul Alexander 博士和[Maddie De Garay 的母亲 Stephanie De Garay](https://www.foxnews.com/media/ohio-woman-daughter-covid-vaccine-reaction-wheelchair)。
-
-
-
-> 🔥 Dr. Robert Malone destroys the approved narrative in 2 minutes. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/l9R9bid56L](https://t.co/l9R9bid56L)
-> — Zach (nine meals from anarchy) (@Just\_\_\_Zach) [January 23, 2022](https://twitter.com/Just___Zach/status/1485345169432096769?ref_src=twsrc%5Etfw)
-
-
-
-正义网络点评：
-
-“在我一生所知道的所有疫苗中（脊髓灰质炎、天花、白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎和肺结核），我还想加上流感和肺炎。我从未见过一种疫苗能强迫我要戴口罩，并保持社交距离，即使您已完全接种疫苗。
-
-我从未听说过即使在接种疫苗后也会传播病毒的疫苗。我从未听说过接种疫苗的奖励、折扣、奖励措施。我从未见过对那些没有接种的人的歧视。如果你没有接种过疫苗，没有人试图让你觉得你是个坏人。我从未见过一种疫苗会威胁到家人、同事和朋友之间的关系。我从未见过用于威胁生计、工作或学校。我从未见过一种疫苗可以让 12 岁的孩子无视父母的同意。在我上面列出的所有疫苗之后，我从未见过像这样的疫苗，它会歧视、分裂和评判社会。随着社会结构的收紧……这是一种强大的“疫苗！”
-
-即使我们已经完全接种了所谓的疫苗，之后，仍需要注射加强剂量；并且，在完全接种后仍需要进行阴性检测；并且，在完全接种后仍需要戴口罩；并且，在接种完后仍需感染！仍需住院！仍需死亡！
-
-在经历着无休无止的折磨之后，很可能会出现一个想法：“是时候让我们承认：我们被完全欺骗了”！“是时候叫停疫苗强制令了！”
-
-[新闻来源](https://www.foxnews.com/politics/washington-dc-defeat-mandates-march-covid-vaccine)
-
-撰稿/雅典娜之矛
-
-审阅/正义网络
-
-上传/侠客行
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

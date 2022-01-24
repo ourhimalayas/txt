@@ -2,18 +2,30 @@
 ---
 
 
-## 布鲁塞尔No Vax and No Pass 示威
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1902460/)
+## 不可能什么都做到，但是我们要做出正确的，这就是班农先生
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902523/)
 
-翻译：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01243.jpg)图片来自repubblica.it
-昨天在布鲁塞尔举行的反对疫苗接种和针对 Covid-19 的限制措施的示威活动已演变为暴力事件。
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/不可能什么都做到，但是我们要做出正确的，这就是班农先生-1-scaled.jpg)
+因为我们谈的都太大了，我们谈到了郝海东先生、叶钊颖女士的安全，我们谈到了未来新西兰需要我们的保护；我们谈到 了澳大利亚，现在发生了一系列的事件，我们谈到了加拿大， 现在我们知道的情报会对华人社会有什么样的威胁；
 
-警方发射催泪瓦斯并使用消防栓驱散人群。游行有数千人参加。据警方称，约有5万人参加了在比利时首都布鲁塞尔举行的游行，而组织者称人数翻了一番。其中包括许多比利时人、荷兰人和法国人，他们高喊着“自由”的口号。在这次游行中至少有 70 人因破坏公共设施以及运输危险或非法物品等原因被捕，另有 3 名警察和 12 名示威者受伤。
+我们谈到日本什么样，会对我们的威胁，包括在台湾、香港。每时每刻都对我们很重要。
 
-原文链接：[https://www.repubblica.it/esteri/2022/01/23/news/bruxelles\_manifestazione\_no\_vax\_no\_pass\_scontri\_violenze\_polizia-334962410/](https://www.repubblica.it/esteri/2022/01/23/news/bruxelles_manifestazione_no_vax_no_pass_scontri_violenze_polizia-334962410/)
+我们作出系列的决定，要不要做这个，要不要做那个。不可能什么都做到，但是我们要做出正确的，这就是班农先生，他绝对是我们的master大师啊。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+发布：于white
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
