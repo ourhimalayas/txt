@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|郭先生在磐石农场开幕典礼谈及教育
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1903956/)
+## 卡车司机抗议疫苗强制的众筹款超300万美元
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1904047/)
 
-配音：香草山农场 – 纳米
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/62629349_1642203087871377_r.jpg)图片来源：GoFundMe
+根据《CTV》1月22日报道，一项名为 “2022年自由车队”的运动只用一周多的时间，该活动的筹款已经超过300万美元。
+
+该众筹是由Alberta省的一名女士Tamara Lich发起的，旨在反对联邦政府关于COVID大流行病的疫苗强制和其它规定。根据GoFundMe页面，这笔钱预计将用于参加车队的抗议者的燃料、食物和住宿费用。
+
+上周，联邦政府说犯了一个错误，开始称将豁免加拿大卡车司机穿越边境时疫苗强制规定。然而，渥太华表示，疫苗强制将适用于所有卡车司机，无论他们来自哪个国家。
+
+卡车运输业的许多人抗议此举，认为由于这些的要求，将对运输产生负面影响。
+
+其他人则更进一步，加入了一场驱车前往首都亲自在国会山抗议的运动，反对疫苗强制同时推动渥太华支持石油和天然气行业以及管道建设.
+
+卡车司机勇敢地用行动抗议政府暴政，众筹款也表现了民心。我们继续关注事态发展。
+
+原文链接：
+[https://calgary.ctvnews.ca/fundraiser-for-rally-to-protest-vaccine-mandate-on-truckers-exceeds-1-3m-1.5750751](https://calgary.ctvnews.ca/fundraiser-for-rally-to-protest-vaccine-mandate-on-truckers-exceeds-1-3m-1.5750751)
+
+编辑，发稿 Spirit
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月21日，郭先生在喜马拉雅纽约磐石农场开幕典礼上，谈到了教育。他指出，最好的教育是激发孩子对学习的兴趣，并保持对学习的愉悦态度。能让孩子张开嘴，睁开眼，迈开腿的教育就是最好的教育。
-
-所谓张开嘴，就是孩子在发现了问题后能够去问，把问题搞懂；睁开眼就是多看书本和世界；迈开腿就是行万里路，从书本中出来，走到现实生活中，去实践并积累知识和阅历。所有填鸭式的教育都是人类的灾难。郭先生谦称自己没有资格谈教育，但却在学校老师和社会上遇到的特别有缘人的指导教育下，才取得今天的成就。
-
-郭先生还指出，人的智慧和本能是天生的。即使没有学校教育，人也不会偏离轨道。如果让孩子保持愉悦的心情，激发他学习的兴趣，尽早知道人和动物、大自然、他人之间关系的基本原则，他们就会成为人类到今天，无论是爱因斯坦还是原苏联高尔基都承认的那种天才。天才都是在忘却学校所有教育后，激发对社会的兴趣，从而对社会和人生的关系，人与大自然的关系进行思考之后，才成为对人类和大自然有特殊贡献的杰出人物的。
-
-文字版原文：[郭先生在磐石农场开幕典礼谈及教育](https://gnews.org/zh-hans/1898156/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

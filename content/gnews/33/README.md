@@ -2,47 +2,35 @@
 ---
 
 
-## 文贵天成——文贵先生谈“曾庆红”（六）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1903752/)
+## 美国重量级众议员预测中共将在冬奥会后入侵台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903769/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1992.png)
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国媒体01月22日报道，美国众议院外交事务委员会领导人迈克尔·麦考尔在1月21日，与记者通话时预测，中共可能会在2月北京举行的冬奥会之后，军事侵略台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.31.53.png)
+麦考尔指出，在过去几十年来，中共一直声称台湾不是一个主权国家，是中共国的一部分。而现在中共吞并台湾的野心马上会付诸行动。
 
+麦考尔同时预测，俄罗斯很可能在下个月入侵乌克兰。美国政府对此高度关注，警告俄罗斯入侵乌克兰将付出严重的经济代价。
 
+正如郭文贵先生此前爆料揭露，中共预谋和俄罗斯同时开战，分别攻打台湾和入侵乌克兰，让美国无暇同时应付东西两场战争，从而逼迫美国政府妥协，默认中共侵占台湾的既成事实。
+有关人士认为，目前中共政权已经内外交困、穷途末路，冬奥会之后军事侵略台湾，是中共为转移统治危机的孤注一掷。
 
-**图片来源：雅典娜设计组（614）**
+参考链接：[Republican Rep: We Might ‘Begin To See’ China Invade Taiwan ‘After The Olympics’](https://www.dailywire.com/news/republican-rep-we-might-begin-to-see-china-invade-taiwan-after-the-olympics)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-**整理：tianzhihuan**
-**编辑：5m**
+总编：文真
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-**郭文贵2018年12月29日谈马建案**
-
-我告诉你，我还是那句话，中国这几百年出了最伟大的三个政治人物，其中就包括曾庆红。你要让我今天选，谁是中国现在领导人，我还选曾庆红。为什么？那个人可不是一般人，那真是了不得的人！这些人全都是曾庆红的粉丝，不是李源潮的粉丝，也不是李克强的粉丝，这些人骨子里边是曾庆红那一派的。
-
-向松祚的演讲，严格说开启了2019年的政治斗争。这个不是开玩笑的，这点上说，路德先生（现在已经背叛爆料革命，即路大脑袋、路大脑骗）你们还太小，经历太少，我这跟这帮老流氓在茅屎坑里游那么多年了，他们一冒泡儿我就知道这是怎么来的，你知道我啥意思了吧？
-
-向松祚的出手，他敢出手，他敢冒生死出手，还提前准备好，而且敢说1.64，甚至是负、零(指GDP增长)，而且说过去一年出了很多大事儿，然后私人企业家多少跑了，上市公司60%是国企，一大半腰斩，另外一半百分之二十、三十，然后美国有上百万亿美元的企业数不胜数，中国有几个？然后私人企业家都寒了心了，然后直接点出了共产党的这个罪恶历史，所有这些话我告诉你，你只要是跟常去中南海人一听，就一个人说的，曾庆红。李源潮没这个尿性啊，他也没这个水平，令计划更没这水平，薄熙来也不会关心这个政治，这里边这都是曾庆红的话。
-
-**郭文贵2019年10月4日**
-
-你记得普京头两天被采访说，如果你和川普总统（双方对话信息）被公布你咋看？普京这话，这家伙是玩政治的，他说我也不是生下来就当总统，但是我想到我每句话都会被公开。当年第一次我见曾庆红的时候，很多年以前了，在86、87年的时候吧，那时候曾庆红还在广东呢，他两句话我一生牢记，曾庆说过不会保护朋友的人不能交这个朋友。你看他这话最早很影响我的，第二句话说什么？当你张嘴的时候，你一定想到这句话会被人记住，有一天会拿出来质证你。所以说他是个政治家，我始终认为曾庆红是个了不起的政治家。
-
-往期回顾：
-[文贵天成——文贵先生谈“曾庆红”（一）](https://gnews.org/zh-hans/1889878/)
-[文贵天成——文贵先生谈“曾庆红”（二）](https://gnews.org/zh-hans/1889899/)
-[文贵天成——文贵先生谈“曾庆红”（三）](https://gnews.org/zh-hans/1896935/)
-[文贵天成——文贵先生谈“曾庆红”（四）](https://gnews.org/zh-hans/1897035/)
-[文贵天成——文贵先生谈“曾庆红”（五）](https://gnews.org/zh-hans/1903196/)
-
-**发布：星谕**
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

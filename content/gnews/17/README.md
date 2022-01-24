@@ -2,31 +2,12 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月22日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1903842/)
+## 习近平如何迫使上万名&#8221;逃犯&#8221;返回中共国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1903941/)
 
-配音：香草山农场 – 纳米
+01/20/2022 北京正在强迫逃往海外的公民返回中国。一个人权非政府组织发表的一份报告详细说明了中共国如何依靠天网行动胁迫和绑架，迫使近10,000名”逃犯”回国
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月22日晚](https://gnews.org/zh-hans/1896606/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,23 +2,37 @@
 ---
 
 
-## 秘翻在线：意大利新冠疫情传染曲线开始稳定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1903895/)
+## 有声|传统加密货币价格暴跌，千亿美元蒸发
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904002/)
 
-**翻译：蚂蚁爱钓鱼**
+配音：香草山农场 – 纳米
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/73ca52f2726cc2115734d168196232e7.jpg) IMAGE SOURCE: PIXELATED 
-据安莎社报道，2022年1月21日高等卫生研究所（ISS）负责人西尔维奥·布鲁萨弗罗（Silvio Brusaferro）表示，意大利最新一波 COVID-19 传染的曲线开始稳定下来。
 
-布鲁萨弗罗在介绍卫生部和高等卫生研究所（ISS）的每周冠状病毒监测报告时表示：“与前几周相比，我们看到曲线显示疫情增长放缓”。根据最新的冠状病毒监测报告，意大利的 COVID-19 Rt传播数量已经下降，而病例发病率则保持稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月21日外媒报道，数字货币市场主要加密数字货币价格下跌，其中最流行和最知名的数字货币：比特币的价格跌破40,000 美元，下跌约 10%，以太坊下跌约 13%。加密数字货币市场损失达 1500 亿美元。
 
-报告称，12 月 22 日至 1 月 4 日期间的 Rt（传播） 指数为 1.31，低于上周报告中的 1.56。然而，报告补充说，本周的数字可能略低于应有的数字，因为一些地区在发送数据时遇到了问题。Rt（传播）值大于 1 表明疫情正在扩大。报告指出，每 100,000 名居民的发病率为 2,011 例，与上周的 1,988 例相比基本稳定。报告指出，新型冠状病毒患者占据的普通病房医院病房比例从27.1%上升到31.6%。但重症监护病房的COVID患者入住率实际上稳定在 17.3%，而1月15日为 17.5%。
+此前有消息称，俄罗斯中央银行提议在该国禁止加密货币。由于该国是世界第三大加密货币开采地区，所以，俄罗斯的数字货币政策的变化，对靠采矿生产的数字货币，比如说——比特币等，有重大的影响。
 
-Valle d’Aosta 是普通病房COVID患者入住率最高的地区，为 54.5%，其次是卡拉布里亚 (40.1%) 和利古里亚 (39.7%)。新型冠状病毒患者占用ICU病床比例最高的地区是马尔凯（23.9%）和弗留利威尼斯朱利亚（22.9%）自治省的 COVID 发病率最高，每 100,000 名居民中有 3,468.7 例病例。
+但对不依赖采矿的数字货币，就没有什么影响力了。相比之下，喜马拉雅交易所的HCoin在最近24小时内，价格只有0.7%的小幅波动。以黄金为锚的HCoin，未来会成为数字货币市场中最具价值的数字货币。
 
-**原文链接：**
-[https://www.ansa.it/english/news/2022/01/21/covid-19-contagion-curve-starting-to-stabilize-iss\_f0b6bb74-d1e1-4212-9578-1da636e2b803.html](https://www.ansa.it/english/news/2022/01/21/covid-19-contagion-curve-starting-to-stabilize-iss_f0b6bb74-d1e1-4212-9578-1da636e2b803.html)
+文字版原文：[传统加密货币价格暴跌，千亿美元蒸发](https://gnews.org/zh-hans/1898704/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

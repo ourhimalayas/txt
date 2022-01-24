@@ -2,22 +2,18 @@
 ---
 
 
-## 美国务院下令撤离驻乌克兰大使馆人员家属
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903767/)
+## 澳网场外抗议人士呼吁 “关注彭帅”遭警察驱离
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903770/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约磐石农场—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据美国媒体1月22日报道，美国国务院已下令美国驻乌克兰大使馆人员家属，最早于1月24日开始撤离乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.32.06.png)
-与此同时，美国驻乌克兰大使馆宣布，美国第一批安全援助物资和弹药，已于22日清晨运抵乌克兰。
+外媒报道，当地时间1月22日，在澳网公开赛场地外围，两名抗议者展示呼吁关注彭帅的衣服和布条，遭到保安人员拦截。视频显示，现场至少有两名警察将他们驱离现场。
+![](https://img.thedailybeast.com/image/upload/c_crop,d_placeholder_euli9k,h_2025,w_3600,x_0,y_18/dpr_1.5/c_limit,w_608/fl_lossy,q_auto/v1642935617/2021-12-20T000000Z_1673071457_RC22IR992FB6_RTRMADP_3_TENNIS-CHINA-PENG_b86i4r)Damir Sagolj/Reuters
+这两名抗议者向警察解释，他们并非从事政治活动，而是呼吁各界关注一名著名中国籍网球运动员的人身安全。他们还谴责澳网主办单位和警方打压公民言论自由，并强调，澳网公开赛不应该为了中共国企业赞助的利益，而打压关注彭帅人身安全的声音。
 
-一名美国官员称，下周，预计美国国务院还将鼓励美国人，乘坐商业航班从乌克兰撤离。
+分析人士批评指出，当地警方成为政治打压的工具，澳网公开赛亦配合中共进行丑恶勾当。正是因为彭帅处境仍不明朗，世界女子职业网球协会才撤销了该会所有在中共国和香港的赛事。
 
-预计下周，从波罗的海国家和美国的武器库，将“标枪”反坦克导弹运往乌克兰。同时，美国政府计划在未来几天，将更多武器和弹药运往乌克兰。
-
-参考链接：
-1）[Families of US Embassy personnel in Ukraine ordered to begin evacuating as soon as Monday: officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
-2）[Families of US Embassy personnel in Ukraine ordered to begin evacuating as soon as Monday: officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
+参考链接：[Australian Open Organizers Ban ‘Where’s Peng Shuai’ T-Shirts](https://www.thedailybeast.com/australian-open-organizers-ban-wheres-peng-shuai-t-shirts)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 

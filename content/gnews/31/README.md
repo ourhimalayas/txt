@@ -2,33 +2,35 @@
 ---
 
 
-## 白宫正在为加密货币市场制定重大计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903768/)
+## 美众议院提出《武装台湾法案》
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903782/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒1月23日报道，俄罗斯、英国、欧盟、美国，最近均在为加密货币市场提供更严厉的监管，此举已引起众多加密货币价格震荡。尽管如此，美国白宫正在为加密货币市场制定一项重大计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.32.15.png)
-消息人士称，美国概述加密货币行业风险和机遇的文件，预计于2022年2月发布。彼时，关于加密货币的行政命令，将使拜登政府在行业内成为焦点。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-据悉，该计划是在美国证券监管机构，商品监管机构，和美国财政部等机构的指导下进行的。下一阶段，金融稳定监督委员会，和美国商务部等其他机构，也将可能参与进来。
-美国SEC主席说，加密交易所将受到更多监管，同时，亦将其置于 “投资者保护职权范围” 之下。美联储数字货币可能已做好发行准备。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/50303486-AC8E-4401-A2FC-6C67072DD644.jpeg)（图片来自Wikimedia Commons photo）
 
-参考链接：[With crypto winter back, the White House is making big plans for the sector](https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/)
+近日，美国众议员迈克尔-加拉格尔Michael Gallagher提出了《武装台湾法案》：由国防部长建立台湾安全援助倡议，并批准从2023-2027年每年为该倡议提供30亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+据《台湾新闻》报导，加拉格尔表示，中国领导人习近平已将与台湾的统一作为 “其（中共国）遗产的关键部分”，并警告说，中国共产党正变得越来越有侵略性，因为它认为拜登政府在国外软弱无力。
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+“国会需要挺身而出，在为时已晚之前恢复威慑力。我很自豪地与霍利参议员一起提出《武装台湾法》，为台湾提供必要的资源和武器，以挫败入侵企图，”加拉格尔说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该法案规定了如何使用分配给台湾的年度防务资金，特别侧重于提供设备、培训和其他必要的支持，以加强台湾的非对称性防御能力，阻止中共国的入侵。
+
+该法案还要求台湾配合美国对其非对称性防御的投资，增加国防开支，获得非对称防御能力，并实施国防改革，以获得台湾安全援助计划的资金。
+
+此外，该法案还规定，“美国未来向台湾出售、租赁或以其他方式提供常规武器的条件是，台湾在实现可信的非对称防御方面取得明显进展。”
+
+*参考链接： [Arm Taiwan Act introduced in US House](https://www.taiwannews.com.tw/en/news/4419220)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,36 @@
 ---
 
 
-## 安大略省政府计划逐步取消疫情限制
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1903745/)
+## 美国务院下令撤离驻乌克兰大使馆人员家属
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903767/)
 
-采编：文莱         编译撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image-8.jpg)
-[图片来源](https://theworldlivenews.com/wp-content/uploads/2022/01/ontario-announces-three-step-plan-to-gradually-lift-covid-19-restrictions.jpg)
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美国媒体1月22日报道，美国国务院已下令美国驻乌克兰大使馆人员家属，最早于1月24日开始撤离乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.32.06.png)
+与此同时，美国驻乌克兰大使馆宣布，美国第一批安全援助物资和弹药，已于22日清晨运抵乌克兰。
 
-据加拿大媒体【CTV新闻】1月20日报道，安大略省宣布将允许室内餐饮场所和健身房重新开放，这是该省放宽疫情限制的三步计划之一。
+一名美国官员称，下周，预计美国国务院还将鼓励美国人，乘坐商业航班从乌克兰撤离。
 
-报道称，从 1 月 31 日起，室内社交聚会人数限制将增加到10 人，室外则为25人。室内餐厅、购物中心和电影院将以50%的容量重新开放。其他公共娱乐场所，例如博物馆、动物园、赌场等也将重新开放。
+预计下周，从波罗的海国家和美国的武器库，将“标枪”反坦克导弹运往乌克兰。同时，美国政府计划在未来几天，将更多武器和弹药运往乌克兰。
 
-此外，自2 月 21 日开始，安省除了大幅提高室内社交聚会人数限制外，还将取消需要提供疫苗护照的室内公共场所的容量限制，包括餐馆、室内运动场馆，娱乐设施以及电影院等。
+参考链接：
+1）[Families of US Embassy personnel in Ukraine ordered to begin evacuating as soon as Monday: officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
+2）[Families of US Embassy personnel in Ukraine ordered to begin evacuating as soon as Monday: officials](https://www.foxnews.com/world/us-embassy-personnel-family-in-ukraine-ordered-begin-evacuating-officials)
 
-随后在3 月 14 日，将取消室内公共场所的所有容量限制，但仍将需要疫苗接种证明。省长福特对此表示，当局目前并未考虑将疫苗护照的要求从两剂增加为三剂，但将继续执行疫苗护照和配戴口罩等强制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-校对编辑：硫酸羟氯喹64
+总编：文真
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-发稿： 苦尽甜来 (文來）
-
-[原文链接](https://toronto.ctvnews.ca/ontario-announces-three-step-plan-to-gradually-lift-covid-19-restrictions-1.5747444)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
