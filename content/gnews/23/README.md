@@ -2,35 +2,52 @@
 ---
 
 
-## 有声|再次揭露HBO精心编织的谎言（part2）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904178/)
+## 天津爆发大规模抗议 超十万民众声讨中共当局
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904214/)
 
-配音：香草山佛教部 – 李傻
+**作者**：纽约香草山教育部-Noemi
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-24.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月22日GTV新闻访谈晚间播放的第一个视频中，提出了与HBO谎言有关的四个核心问题。今天的视频将就第一个问题进行解答，即为什么他们的视频不注重传播真相，只想利用一切机会诋毁、攻击郭文贵先生。
 
-我们可以看到，郭先生四五年以来一直致力于揭露中共压制剥削本国人民、盗取国家财富、腐蚀破坏世界其他国家的真相，中共对他的攻击和迫害始终没有停止过，而HBO的视频，就是这一系列攻击的极其重要的一部分。
 
-文字版原文：[再次揭露HBO精心编织的谎言（part2）](https://gnews.org/zh-hans/1901682/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+1月23日，有盖特网友视频爆料，中共国天津市在近日发生了大规模的民众抗议，参与抗议的整体人数已超过了十万人次。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_2556.jpg)
+
+从视频中可见，拍摄时间为深夜，有大量民众聚集在当地的一处广场上一边摄像一边发出高声抗议。而中共派出的大量警方人员已与当地民众激烈推搡在一起，有个别民众遭到警方逮捕。现场上可见一位民众在被警方殴打后已当场丧失意识。
+
+据了解，这些抗议的市民先后占领了当地的多个公共广场并向中共当局发起了强烈声讨，但随后就被当地政府派出的大量武警、特警镇压。截至目前，已有多名市民重伤、被捕。
+
+新闻来源：
+
+[https://www.gettr.com/post/pq1oa94d2e](https://www.gettr.com/post/pq1oa94d2e)
+
+***总编：飞虹***
+
+***校对/发稿：遍地开花***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+
+
+
+
 
  
 

@@ -2,28 +2,29 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1904159/)
+## 中共在河北发射55枚火箭人工降雪 解决北京冬奥会降雪不足问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904200/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-235.png)
+[图片来源](http://www.heb.chinanews.com.cn/ylxc/20220124420797.shtml)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-23.png)
-文章仅代表作者本人观点，与Gnews无关
+中共1月21日在河北省发射了火箭，试图通过人工降雪来解决冬奥会无雪问题。
 
-视频参看：[2022.01.24早GTV新闻访谈](https://gtv.org/video/id=61eea96c28a108147c61b16f)
+中共中央电视台报道说，当天共发射了55枚火箭弹，并在该地区观察到约一厘米的雪。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+当地气象官员说，发射火箭的目的是希望没有雪会有助于奥运会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+据说中共在2008年夏季奥运会之前发射了火箭，人为地造成降雨，以便有一个晴朗的开幕式。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息来源:
+
+[雪不足の北京五輪会場に…ロケット弾55発で人工降雪　中国・河北省](https://news.yahoo.co.jp/articles/4421d61f1f2c3f124ce739e3c22a7559b5fd3313)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

@@ -2,37 +2,31 @@
 ---
 
 
-## 新中国联邦为何要与世界签署千年和平协议
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904242/)
+## 有声|塞浦路斯引渡案获进展 战友母子获准保释
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904364/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-25-001858.jpg)
-1月21日的大直播中，郭文贵先生透露了新中国联邦，为何要与世界签署和平协议的重要原因。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间1月21日，外媒报道中共在塞浦路斯发起的，针对新中国联邦成员的引渡案有了新进展，帕福斯地区法院批准了战友母子的保释申请。每人保释金为25,000欧元，直到文件补充完成。
 
-郭先生手持新中国联邦宣言表示，全世界永远不要忘记，只有和世界和平相处的中国人，只有一个给人带来和平的中国人。全球75亿人口，仅仅东亚的中共国 、日本、印度和巴基斯坦这四个国家，就将近占了世界一半人口。如果我们在亚洲没有一个好邻居，没有一个和平的、良好的相处环境。如果像中共那样，靠腐败侵蚀别国的政治和领导人，不但给他国带来灾难，同样给自己带来无穷无尽的麻烦。
+辩护律师埃夫斯塔蒂奥在接受媒体采访时说，中共当局将引渡请求发送到塞浦路斯驻北京大使馆，塞浦路斯外交部长无暇授权法院所需的请求。没有授权，就不会有引渡。律师还证实这对母子是新中国联邦的成员，因政治观点歧异而受到中共政府的欺诈诬陷。众所周知，性别、宗教或政治信仰等，不能成为引渡的理由。因案子的政治复杂性，引渡程序将需要长达18个月时间。
 
-比如像巴基斯坦的穆沙拉夫和谢里夫的家人，为了见文贵先生都打了起来，一次在英国，一次在盘古酒店。郭先生感慨说，由此就能看出，这两个统治了巴基斯坦很多年的总统，其卖国求荣之心多么卑劣。
+外媒指出，新中国联邦是以美国为基地，推翻中国共产党为政治诉求的团体。这起引渡案，已获川普总统前顾问史蒂夫·班农先生高度关注，也获得了法治基金的鼎力支持与援助。
 
-再如柬埔寨红色高棉对国内人民的大屠杀，再看看西哈努克家族全家人的生死存亡，这就是为什么新中国联邦，一定要与世界签署一个千年和平协议的重要原因。因为中国有14人，只要我们不主动侵略他国，他国敢于侵略我们的几乎没有。新中国联邦要有绝对的国防力量，但决不能有侵略的力量。
+文字版原文：[塞浦路斯引渡案获进展 战友母子获准保释](https://gnews.org/zh-hans/1898153/)
 
-郭先生强调说，谢里夫对记者的表态，是对中国人的极大侮辱。谢里夫拿到了钱，并非是中共国外交行为，也并非是为国家利益，他是利用国家所谓外交战略，来骗取中国老百姓的钱。像王岐山、杨洁篪、王毅、王沪宁、李肇星和唐家璇，这些盗国贼，比中国历史上的赵高和李斯还要坏。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/欢迎新中国联邦战友回家！-2-400x225-1.jpg)
-新闻链接：[https://www.gettr.com/post/ppw49ecb64](https://www.gettr.com/post/ppw49ecb64)
+音频处理：Fei797
+发稿：Fei797
 
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
