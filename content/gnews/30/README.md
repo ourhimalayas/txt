@@ -2,19 +2,24 @@
 ---
 
 
-## 共产党让世界变黑暗的三种方式
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901504/)
+## 回顾苏联解体
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901894/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-1月17日，郭文贵先生在GTV大直播指出：
+其实我们回看想跟大家分享一下。
 
-中共为了不让真相公开于世，试图控制媒体。中共为了在世界上独大，试图控制财富。中共为了为所欲为，正在与西方邪恶势力勾结，利用蓝金黄的手段，试图控制法律。如果让中共得逞，世界将失去太平，人们会失去财富，或因财富失去生命。
+在12月25日30日，多年前的这一天，也就是前几天是苏联解体30年了，那么苏联解体，如果大家有兴趣去读一下苏联解体前，前面的几年的他们，这个党内的一些分裂和改变吧，包括它东欧一些社会主义阵营国家，当时局势已经内部的改变，其实现在中共呢，已见一些端倪。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/回顾苏联解体.001.jpeg)
+发布： *tianzhihuan*
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
