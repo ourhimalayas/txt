@@ -2,26 +2,35 @@
 ---
 
 
-## 布基纳法索政变：卡博雷总统和部长显然被捕
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1903269/)
+## 疫情和疫苗政策正严重破坏纽约医疗保健系统
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903737/)
 
-信息来源： 德国法兰克福报网页版
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据1月22日外媒消息，纽约市一家高级医院的官员表示，由奥密克戎变体引起的医护人员短缺，正在对包括太平间在内的医疗保健系统造成严重破坏。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.jpg)
+该区中部疗养院和医院组成的One Brooklyn Health首席执行官布朗，周五告诉记者，人员短缺问题继续困扰着整个医疗保健系统。一些医院甚至很难将尸体运送到太平间和殡仪馆。
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/proteste-am-wochenende-in.jpg)
-图片来源： 法新社
+布朗说，目前，许多员工都感染了中共病毒，或者与生病的家人一起被隔离；加上纽约州的疫苗强制接种政策，使没有接种的医护人员无法参加工作，导致人们在急诊室的候诊时间变得更长，被安排住院需等待更久。
 
-据安全消息人士称，在布基纳法索，总统罗赫·马克·克里斯蒂安·卡博雷已被叛乱士兵逮捕。据几位安全消息人士周一称，除了卡博雷，议会首脑和部长们也在首都瓦加杜古军营的士兵手中。这个西非国家已经被周末的动乱动摇了；几个军营里有人开枪。然而，政府否认发生军事政变。
+中共病毒疫情疫苗政策的蔓延及实施，不仅未能制止疫情的恶化，反而严重影响了医疗系统的工作人员的正常服务及工作效率，可谓雪上加霜。
 
-周六已经发生了针对政府的暴力抗议活动，示威者与安全部队之间也发生了暴力冲突。卡博雷总统随后发布了宵禁。
+参考链接：[COVID staff shortages strain NYC hospital morgues, ERs](https://pix11.com/news/coronavirus/covid-staff-shortages-strain-nyc-hospital-morgues-ers/)
 
-一天后，士兵们在全国多个军营开枪，称他们要求解雇一些高级陆军首领和更好的装备。首都居民后来报告了总统私人住宅附近的枪击事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-就在周日，政府宣布没有“军队接管”，政治机构“目前”没有受到威胁。她拒绝了在线网络上的相应报道，并呼吁“民众保持冷静”。
+总编: Jack Li文阳
+编辑： Kathy文艺
+校正/发稿：Fei797
 
-西非布基纳法索是世界上最贫穷的国家之一。与萨赫勒地区的其他国家一样，该国也在与伊斯兰民兵组织的袭击作斗争，其中一些与基地组织或恐怖民兵组织伊斯兰国（IS）有关。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-🔗 [布基纳法索政变](https://www.faz.net/aktuell/politik/ausland/putsch-in-burkina-faso-praesident-kabore-offenbar-festgenommen-17748233.html)
 
  
 

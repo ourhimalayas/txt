@@ -2,51 +2,39 @@
 ---
 
 
-## 文贵天成——文贵先生谈“曾庆红”（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1903196/)
+## 德州联邦法官暂时阻止对联邦雇员的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903552/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1988.png)
+作者：香草山教育部 – Naughty(文行) , Delilah小胖 , 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-15.jpg)
+此项针对拜登政府疫苗强制令的诉讼，是由一个名为“医疗自由联盟”的组织发起的。
 
+最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
 
+布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
 
-**图片来源：雅典娜设计组（614）**
+拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
 
+参考链接：
+1) . [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
+2) . [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
+3) . [Texas federal judge temporarily blocks Biden vaccine mandate for federal employees](https://www.foxnews.com/politics/texas-federal-judge-vaccine-mandate-federal-employees)
 
-**整理：tianzhihuan**
-**编辑：5m**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-**郭文贵2018年3月24日视频**
+总编： Ivy001，飞虹 
+校正/发稿：Fei797
 
-西方世界是容不得这样的，西方是依法的国家，真的依法治国的国家，不是依法治“郭”。不像那个曾庆红家族，要通过中泰“依法”抢走我42套公寓，100多亿的房子要用10个亿抢走；不像江家控制的上海银行37 个亿要拿走我300亿的房产，而且要通过法院拍卖拿走。大家都知道，谁要拿走盘古，还有人敢去拍卖吗？——不敢拍卖，谁敢拍卖，打个电话你就被抓了，谁也不敢，而且是网上拍卖，要在马云的阿里巴巴和什么商城，网上卖。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-背后都是他们在控制，没有人敢出标，那最后，一标不行、二标不行，第一次七折，第二次六五折，第三次，问人家买家，那个欠钱的，也就是欠江家和曾家的：你要不要？你要你拿走(打折)50%，原来评估是30万一平米，实际就评估成13万一平方米了，13万的50%就是6.5万，拿不拿？他说“我拿”，他就拿走了；他要是不拿，这个合约担保就算取消了。
-
-大家去想一想，江、曾两家的权力还用打电话吗？只要中国人知道这是江、曾家想要的，上海银行想要的，谁敢去投那个标的呢？所以北京三中院的法官，还有姓刘的叫什么刘军的这个，这个执行庭之所以那么的积极，一秒钟都不等要把程序全走完，而且连送达的时间都不给。
-
-像河北的董仚生要把曲龙15年的罪行取消，就用一句话“不自然”，就是审判不自然，他把整个最高法、最高检、公安部给河北的指定管辖全部推翻，然后把曲龙的15年刑(期)给取消，还把曲龙资产还给他，我们的资产也要给他。在我们还他的时候，当着法官的面，让曲龙带着七八个(人)，像黑社会一样侮辱我们的律师，在大堂里指着鼻子骂。
-
-这就是中国的“依法治国”，这就是中南坑的妖怪，利用一国之力、一国之权，为所欲为，想干什么干什么。就像高俅的小舅子、高俅的侄子说“全天下的女人都是我的 、全天下的房子都是我的，我想住哪儿就住哪儿，全天下的命都是我的，我想杀谁就杀谁”，这就是中南坑的妖，叫“中南妖”和“中南怪”。
-
-但是过去是高俅、赵高，没有外国人管，没有世界人民管，没有Social Media，没有社交媒体，现在不可能了，咱们拭目以待！赵高、高俅、傅政华，还有王岐山，还有孙力军、孟建柱，咱们走着看吧。
-
-**郭文贵2018年7月17日路德访谈（一）**
-
-再往下看：2012年的6月4日发生了什么事情？有一次视频我说胡锦涛访美是错的，是胡锦涛访丹麦。访丹麦之前发生了所谓的傅振华告密，揭发令谷死亡的重大事件，向江泽民、朱镕基、习近平，还有曾庆红等这些老同志，包括了郭伯雄。所以他们就在玉泉山开了会，做出了所谓的决定对十八大召开前十八大筹备小组人事安排的决定。所以呢？胡锦涛在回国下飞机以后他已经没有什么官员接机了，因为总书记出国后回国机场接待，北京市公安局那傅振华跟狗似的，一定要去，公安部的部长、警卫局长、中央警卫局长必到的一些人，结果已没人接机了，什么胡锦涛中央警卫局的警卫任务都得给他变了，说白了你就是被绑架了，然后呢？被江、朱、曾、郭伯雄、习、王等政变成功。明白这个意思了吧？
-
-往期回顾：
-[文贵天成——文贵先生谈“曾庆红”（一）](https://gnews.org/zh-hans/1889878/)
-[文贵天成——文贵先生谈“曾庆红”（二）](https://gnews.org/zh-hans/1889899/)
-[文贵天成——文贵先生谈“曾庆红”（三）](https://gnews.org/zh-hans/1896935/)
-[*文贵天成——文贵先生谈“曾庆红”（四）*](https://gnews.org/zh-hans/1897035/)
-
-**发布：星谕**
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

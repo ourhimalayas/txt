@@ -2,39 +2,46 @@
 ---
 
 
-## 德州联邦法官暂时阻止对联邦雇员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903552/)
+## 文贵天成——文贵先生谈“曾庆红”（六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1903752/)
 
-作者：香草山教育部 – Naughty(文行) , Delilah小胖 , 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-15.jpg)
-此项针对拜登政府疫苗强制令的诉讼，是由一个名为“医疗自由联盟”的组织发起的。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1992.png)
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+**图片来源：雅典娜设计组（614）**
 
-参考链接：
-1) . [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
-2) . [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
-3) . [Texas federal judge temporarily blocks Biden vaccine mandate for federal employees](https://www.foxnews.com/politics/texas-federal-judge-vaccine-mandate-federal-employees)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**整理：tianzhihuan**
+**编辑：5m**
 
-总编： Ivy001，飞虹 
-校正/发稿：Fei797
+**郭文贵2018年12月29日谈马建案**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我告诉你，我还是那句话，中国这几百年出了最伟大的三个政治人物，其中就包括曾庆红。你要让我今天选，谁是中国现在领导人，我还选曾庆红。为什么？那个人可不是一般人，那真是了不得的人！这些人全都是曾庆红的粉丝，不是李源潮的粉丝，也不是李克强的粉丝，这些人骨子里边是曾庆红那一派的。
 
+向松祚的演讲，严格说开启了2019年的政治斗争。这个不是开玩笑的，这点上说，路德先生（现在已经背叛爆料革命，即路大脑袋、路大脑骗）你们还太小，经历太少，我这跟这帮老流氓在茅屎坑里游那么多年了，他们一冒泡儿我就知道这是怎么来的，你知道我啥意思了吧？
+
+向松祚的出手，他敢出手，他敢冒生死出手，还提前准备好，而且敢说1.64，甚至是负、零(指GDP增长)，而且说过去一年出了很多大事儿，然后私人企业家多少跑了，上市公司60%是国企，一大半腰斩，另外一半百分之二十、三十，然后美国有上百万亿美元的企业数不胜数，中国有几个？然后私人企业家都寒了心了，然后直接点出了共产党的这个罪恶历史，所有这些话我告诉你，你只要是跟常去中南海人一听，就一个人说的，曾庆红。李源潮没这个尿性啊，他也没这个水平，令计划更没这水平，薄熙来也不会关心这个政治，这里边这都是曾庆红的话。
+
+**郭文贵2019年10月4日**
+
+你记得普京头两天被采访说，如果你和川普总统（双方对话信息）被公布你咋看？普京这话，这家伙是玩政治的，他说我也不是生下来就当总统，但是我想到我每句话都会被公开。当年第一次我见曾庆红的时候，很多年以前了，在86、87年的时候吧，那时候曾庆红还在广东呢，他两句话我一生牢记，曾庆说过不会保护朋友的人不能交这个朋友。你看他这话最早很影响我的，第二句话说什么？当你张嘴的时候，你一定想到这句话会被人记住，有一天会拿出来质证你。所以说他是个政治家，我始终认为曾庆红是个了不起的政治家。
+
+往期回顾：
+[文贵天成——文贵先生谈“曾庆红”（一）](https://gnews.org/zh-hans/1889878/)
+[文贵天成——文贵先生谈“曾庆红”（二）](https://gnews.org/zh-hans/1889899/)
+[文贵天成——文贵先生谈“曾庆红”（三）](https://gnews.org/zh-hans/1896935/)
+[文贵天成——文贵先生谈“曾庆红”（四）](https://gnews.org/zh-hans/1897035/)
+[文贵天成——文贵先生谈“曾庆红”（五）](https://gnews.org/zh-hans/1903196/)
+
+**发布：星谕**
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

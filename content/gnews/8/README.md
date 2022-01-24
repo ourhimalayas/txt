@@ -2,31 +2,24 @@
 ---
 
 
-## 律师指责火币运营的加密货币交易所不负责任
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903662/)
+## 欧盟委员会欲增加对乌克兰的援助
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1903778/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：okr
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6D5D993F-FEE2-43F0-95A6-C7B61D31B9D4.jpeg)（图片来自Bitcoin.com）
+翻译：英喜德语组 Luckycky
 
-据《Bitcoin》1月24日报道，火币在塞舌尔注册的加密货币交易所Houbi Global公司被律师乔纳森-利维（Jonathan Levy）指控在运营中不对任何司法管辖区负责。
+欧盟委员会主席乌苏拉-冯德莱恩（Ursula von der Leyen）表示，欧盟委员会希望在短期内向乌克兰提供数十亿美元的额外援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-9.tiff)欧盟委员会主席乌苏拉-冯德莱恩宣布向乌克兰提供进一步的援助（图片：John Thys/AFP）。
 
-据报道，在乔纳森-利维提出指控之前，一名法国国民在火币上交易时被骗，然后他在Ciphertrace的帮助下，成功找到了这位骗子的火币账户。之后，法国国家警察也开始介入调查，并要求这家设在塞舌尔的加密货币交易所协助追回资金。
+除其他外，她提出了12亿欧元的紧急贷款方案。委员会还希望今年向该国增加1.2亿欧元的资助，这几乎翻了一番。
 
-然而，由于该交易所在塞舌尔的存在的只是一个邮寄地址，他们对该犯罪没有管辖权，因此这位欺诈受害者追回资金的努力最终受挫。
+自2014年以来，欧盟及其金融机构总共向该国提供了超过170亿欧元的贷款和资助。（dpa/okr）
 
-对此，利维指责火币加密货币交易所运行的是一个分散的全球业务，”在任何地方运作，但在任何地方都不负责任”。
+发布：Luckycky
 
-*参考链接： [Lawyer Accuses Huobi of Operating a Cryptocurrency Exchange That’s ‘Held Accountable Nowhere’](https://news.bitcoin.com/lawyer-accuses-huobi-of-operating-a-cryptocurrency-exchange-thats-held-accountable-nowhere/)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
-
+原文链接：[https://brf.be/international/1568182/](https://brf.be/international/1568182/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

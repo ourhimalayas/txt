@@ -2,22 +2,22 @@
 ---
 
 
-## 人民已经开始觉醒和反击（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1903190/)
+## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/人民已经开始觉醒和反击（下）-scaled.jpg)
-文贵先生2017年向西方警告，我们现在是3年纪念日。法治社会，法治基金，新中国联邦，所有这些机构都是很年轻的，盖特，GTV，现在已经是最大的平台了，每天分享并加强自己，让我非常的有信心， 我们在赢，我们一定要大赢，中共一定会失败，他们想要控制所有人，把人们抓到监狱。这就是表明他们懦弱，他们越凶残的时候，他们越懦弱，所以信用积分就是这样的，表明他们非常的懦弱，如果他们有自信的话，就开放防火墙啊。因为你中共这么好，不是90% 的支持率嘛，那你就把防火墙打开呀，所以中共知道一旦老百姓能投票，中共就完蛋了，所以他们的疯狂就是懦弱。
+**疫情關注組 / 發佈時間｜24/1/2022**
 
-*发布：开智则立*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
+
+[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
+
+以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
+来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
 
  
 

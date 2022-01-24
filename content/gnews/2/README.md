@@ -2,20 +2,31 @@
 ---
 
 
-## 欧议员呼吁结束欧盟在5亿多人身上进行的疫苗医学实验
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903750/)
+## 有声|GTV新闻访谈简报|2022年1月22日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1903842/)
 
-**作者：日本东京方舟农场 JIHO**
+配音：香草山农场 – 纳米
 
-欧洲议会议员Mislav Kolakusic对Ursula von der Leyen（欧盟委员会主席）的讲话：“你关于欧盟人权状况的报告是捏造的，不真实的，结束疯狂的分裂和对公民的歧视。”我们已经践踏了几个世纪的科学和医学专业。在欧盟5亿多人身上进行的医学实验应该结束。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-768x994-1.png)
+文字版原文：[GTV新闻访谈简报|2022年1月22日晚](https://gnews.org/zh-hans/1896606/)
 
-*素材采编：JIHO*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-*发布：Ranting*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*封面制作：S*
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

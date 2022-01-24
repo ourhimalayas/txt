@@ -2,34 +2,24 @@
 ---
 
 
-## 疫情和疫苗政策正严重破坏纽约医疗保健系统
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903737/)
+## 樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903806/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据1月22日外媒消息，纽约市一家高级医院的官员表示，由奥密克戎变体引起的医护人员短缺，正在对包括太平间在内的医疗保健系统造成严重破坏。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.jpg)
-该区中部疗养院和医院组成的One Brooklyn Health首席执行官布朗，周五告诉记者，人员短缺问题继续困扰着整个医疗保健系统。一些医院甚至很难将尸体运送到太平间和殡仪馆。
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-83.jpg)
+制图：chuansang
 
-布朗说，目前，许多员工都感染了中共病毒，或者与生病的家人一起被隔离；加上纽约州的疫苗强制接种政策，使没有接种的医护人员无法参加工作，导致人们在急诊室的候诊时间变得更长，被安排住院需等待更久。
+英国政府1月20日公布了最新疫苗监督报告，值得注意的是，其统计内容已从两针接种者感染变为三针接种者感染。
 
-中共病毒疫情疫苗政策的蔓延及实施，不仅未能制止疫情的恶化，反而严重影响了医疗系统的工作人员的正常服务及工作效率，可谓雪上加霜。
+数据显示，在最近四周中，除29岁以下人群以外，各个年龄层的两针疫苗防感染有效率均为负值。即大多数三针接种者更易感染奥密克戎毒株。30岁以上各年龄层人群，感染风险是未接种者的1.19倍～2.04倍。
 
-参考链接：[COVID staff shortages strain NYC hospital morgues, ERs](https://pix11.com/news/coronavirus/covid-staff-shortages-strain-nyc-hospital-morgues-ers/)
+这个数据表明，ADE，以及疫苗接种造成的人体自身的免疫系统的破坏极有可能正在发生。三针的加强针对于遏制疫情扩大不但没有效果，反而会加速病毒扩散。所谓“接种第三针遏制疫情”，没有科学依据，是被验证了的严重的错误。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[数据来源](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf) :
 
-总编: Jack Li文阳
-编辑： Kathy文艺
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

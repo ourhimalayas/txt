@@ -15,169 +15,169 @@
 
 ---
 
-### [文贵天成——文贵先生谈“曾庆红”（六）](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [欧议员呼吁结束欧盟在5亿多人身上进行的疫苗医学实验](/content/gnews/2/README.md)
+### [中共冬奥会恶意采用超出常规的新冠检测标准](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [【全字幕+视频】 郭文贵2021年7月21号：尊敬的战友们好！郑州所谓的千年不遇的天灾人祸……](/content/gnews/3/README.md)
- ` 郭文贵全文字幕`
+### [有声|GTV新闻访谈简报|2022年1月22日晚](/content/gnews/2/README.md)
+ ` MOSREC`
 
-### [澳总理微信公众号遭盗用 改贴中共政府宣传文](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
+### [美国及世界疫情简报 （01-24-2022）](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
 
-### [疫情和疫苗政策正严重破坏纽约医疗保健系统](/content/gnews/5/README.md)
+### [杰森·米勒：我们努力确保GETTR无政治歧视](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [研究称自然免疫力比病毒疫苗更能抗击中共病毒](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [【全字幕+视频】郭文贵2017年9月4日关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清](/content/gnews/6/README.md)
+### [美众议院提出《武装台湾法案》](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [欧盟委员会欲增加对乌克兰的援助](/content/gnews/8/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [【全字幕+视频】 2021年7月20号：尊敬的战友好．共产党策划的．最大的灭爆行动已经宣告彻底失败](/content/gnews/9/README.md)
  ` 郭文贵全文字幕`
 
-### [2022.1.24大直播 郭先生爆料习为成功举办冬奥会再次跟普京勾兑](/content/gnews/7/README.md)
+### [樱花数据分析｜日本：疫苗对防止住院没有帮助](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国重量级众议员预测中共将在冬奥会后入侵台湾](/content/gnews/11/README.md)
+ ` GTV新闻访谈`
+
+### [文贵天成——文贵先生谈“曾庆红”（六）](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [欧议员呼吁结束欧盟在5亿多人身上进行的疫苗医学实验](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [【全字幕+视频】 郭文贵2021年7月21号：尊敬的战友们好！郑州所谓的千年不遇的天灾人祸……](/content/gnews/14/README.md)
+ ` 郭文贵全文字幕`
+
+### [安大略省政府计划逐步取消疫情限制](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [澳总理微信公众号遭盗用 改贴中共政府宣传文](/content/gnews/16/README.md)
+ ` 日本东京方舟农场`
+
+### [疫情和疫苗政策正严重破坏纽约医疗保健系统](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [【全字幕+视频】郭文贵2017年9月4日关于鲍彤先生痛心我与老领导见面的音频，几个问题得澄清](/content/gnews/18/README.md)
+ ` 郭文贵全文字幕`
+
+### [2022.1.24大直播 郭先生爆料习为成功举办冬奥会再次跟普京勾兑](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [律师指责火币运营的加密货币交易所不负责任](/content/gnews/8/README.md)
+### [律师指责火币运营的加密货币交易所不负责任](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [北京200万居民将接受第二轮大规模CCP病毒检测](/content/gnews/9/README.md)
+### [北京200万居民将接受第二轮大规模CCP病毒检测](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [批评人士：澳网公开赛置商业利益于人权之上](/content/gnews/10/README.md)
+### [批评人士：澳网公开赛置商业利益于人权之上](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [苏格兰公共卫生部数据：未接种新冠疫苗者相比接种者拥有最低的新冠病毒感染率](/content/gnews/11/README.md)
+### [苏格兰公共卫生部数据：未接种新冠疫苗者相比接种者拥有最低的新冠病毒感染率](/content/gnews/23/README.md)
  ` G-NEWS TAIWAN`
 
-### [德州联邦法官暂时阻止对联邦雇员的疫苗强制令](/content/gnews/12/README.md)
+### [德州联邦法官暂时阻止对联邦雇员的疫苗强制令](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [澳洲维多利亚地区超过 200 万居民被敦促接种加强针](/content/gnews/13/README.md)
+### [澳洲维多利亚地区超过 200 万居民被敦促接种加强针](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针](/content/gnews/14/README.md)
+### [COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针](/content/gnews/26/README.md)
  ` 關注組`
 
-### [【全字幕+视频】郭文贵2017年8月4日 关于香港警察调查郭文贵以自己的1600亿诈骗自己的360亿的案件](/content/gnews/15/README.md)
+### [【全字幕+视频】郭文贵2017年8月4日 关于香港警察调查郭文贵以自己的1600亿诈骗自己的360亿的案件](/content/gnews/27/README.md)
  ` 郭文贵全文字幕`
 
-### [全球疫苗接种灾难与希望并存](/content/gnews/16/README.md)
+### [全球疫苗接种灾难与希望并存](/content/gnews/28/README.md)
  ` MilesGuoLivePPT`
 
-### [布基纳法索政变：卡博雷总统和部长显然被捕](/content/gnews/17/README.md)
+### [布基纳法索政变：卡博雷总统和部长显然被捕](/content/gnews/29/README.md)
  ` Shuizhuyu`
 
-### [人类若没有好的教育、宗教和信仰系统就跟魔鬼别无二致](/content/gnews/18/README.md)
+### [人类若没有好的教育、宗教和信仰系统就跟魔鬼别无二致](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日本红十字会关于中共病毒疫苗接种者的献血标准](/content/gnews/19/README.md)
+### [日本红十字会关于中共病毒疫苗接种者的献血标准](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【全字幕+视频】郭文贵 2021年7月14号 文贵直播：接下来的90天将有灭共的重大事件发生](/content/gnews/20/README.md)
+### [【全字幕+视频】郭文贵 2021年7月14号 文贵直播：接下来的90天将有灭共的重大事件发生](/content/gnews/32/README.md)
  ` 郭文贵全文字幕`
 
-### [中共走狗齐求中共支援香港选民检测](/content/gnews/21/README.md)
+### [内资充外资 港府称国安法无损外资驻港](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [内资充外资 港府称国安法无损外资驻港](/content/gnews/22/README.md)
+### [北京冬奥在即 言论失控、病毒扩散 引发“再溯源”](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京冬奥在即 言论失控、病毒扩散 引发“再溯源”](/content/gnews/23/README.md)
+### [亲共团体助私人机构鲸吞公营房屋建设](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵天成——文贵先生谈“曾庆红”（五）](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [亲共团体助私人机构鲸吞公营房屋建设](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [人民已经开始觉醒和反击（下）](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [消灭共产党后达沃斯党在中国继续存在的可能性几乎为零](/content/gnews/27/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [七哥开启爆料革命喊出的保命保财报仇是为所有冤魂报仇](/content/gnews/28/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [人民已经开始觉醒和反击（上）](/content/gnews/29/README.md)
- ` 雅典娜GNotes`
-
-### [1/24银河快讯：日本2021咖啡店关门数量历史最多；油价飙升，汽车轮胎价格上涨](/content/gnews/30/README.md)
+### [1/24银河快讯：日本2021咖啡店关门数量历史最多；油价飙升，汽车轮胎价格上涨](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [研究人员发现某些批次的新冠疫苗比其它批次更为致命](/content/gnews/31/README.md)
+### [研究人员发现某些批次的新冠疫苗比其它批次更为致命](/content/gnews/37/README.md)
  ` 首尔天池农场`
 
-### [1/24/2022国际财经快讯：美众院两党人士游说拜登总统削减美对华关税；拜登政府将美联邦雇员的最低时薪涨至15美元](/content/gnews/32/README.md)
+### [1/24/2022国际财经快讯：美众院两党人士游说拜登总统削减美对华关税；拜登政府将美联邦雇员的最低时薪涨至15美元](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [郭文贵精品视频-中共在美国的法律超限战](/content/gnews/33/README.md)
- ` cindy`
-
-### [历史上的今天 2022.01.24](/content/gnews/34/README.md)
+### [历史上的今天 2022.01.24](/content/gnews/39/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [官方的新冠谎言正在迅速土崩瓦解](/content/gnews/35/README.md)
+### [官方的新冠谎言正在迅速土崩瓦解](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西媒头条 — 第159期 – 西媒看天朝](/content/gnews/36/README.md)
+### [西媒头条 — 第159期 – 西媒看天朝](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/37/README.md)
+### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [阿联酋发射导弹](/content/gnews/38/README.md)
+### [阿联酋发射导弹](/content/gnews/43/README.md)
  ` Shuizhuyu`
 
-### [西媒头条 — 第159期 – 西媒要闻](/content/gnews/39/README.md)
+### [西媒头条 — 第159期 – 西媒要闻](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [全球疫情更新（达沃斯论坛上披露的邪恶构想）](/content/gnews/40/README.md)
- ` 墨尔本雅典娜农场`
-
-### [冬奥闭馆仅限自己人买票](/content/gnews/41/README.md)
+### [冬奥闭馆仅限自己人买票](/content/gnews/45/README.md)
  ` 骄子`
 
-### [新书揭露硅谷寡头如何向中共绥靖，帮助其实现全球霸主地位](/content/gnews/42/README.md)
+### [新书揭露硅谷寡头如何向中共绥靖，帮助其实现全球霸主地位](/content/gnews/46/README.md)
  ` 首尔天池农场`
 
-### [新西兰财经G乐部2022年1月24日:财经新闻整理](/content/gnews/43/README.md)
+### [新西兰财经G乐部2022年1月24日:财经新闻整理](/content/gnews/47/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [我们天上见](/content/gnews/44/README.md)
+### [我们天上见](/content/gnews/48/README.md)
  ` 骄子`
 
-### [北京“疫”直烧, 北京冬奥会能如期吗？](/content/gnews/45/README.md)
+### [北京“疫”直烧, 北京冬奥会能如期吗？](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [01/24每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/46/README.md)
+### [01/24每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/50/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共如何在西方进行间谍活动](/content/gnews/47/README.md)
+### [中共如何在西方进行间谍活动](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾前线｜Omicron感染持续扩大 首批默沙东口服药抵台](/content/gnews/48/README.md)
+### [台湾前线｜Omicron感染持续扩大 首批默沙东口服药抵台](/content/gnews/52/README.md)
  ` 關注組`
 
-### [美国国土安全部的疫苗新规将影响运输行业，加剧供应链危机](/content/gnews/49/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [岸田内阁支持率达66%](/content/gnews/50/README.md)
+### [岸田内阁支持率达66%](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令](/content/gnews/51/README.md)
+### [【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令](/content/gnews/54/README.md)
  ` topnews`
 
-### [美国务院正式要求撤离在乌克兰工作人员、家属和美国公民](/content/gnews/52/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [与一带一路竞争，澳大利亚资助巴新升级港口](/content/gnews/53/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中日财经爆│从根本上改变银行业务引进新系统](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登没能威慑俄罗斯和中共国，我们可能最终会陷入一场全球冲突](/content/gnews/55/README.md)
+### [与一带一路竞争，澳大利亚资助巴新升级港口](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [GTV新闻访谈简报|2022年1月23日晚](/content/gnews/56/README.md)
