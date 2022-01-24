@@ -2,27 +2,36 @@
 ---
 
 
-## 62%注射过mRNA新冠疫苗的病人有细小血栓
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1898027/)
+## 新中国联邦创始人郭文贵先生寄语G-EDU上线
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898155/)
 
-【疫苗危害回顾系列】
+作者：纽约香草山农场 文鹰
 
-Chrles Hoffe医生为他的病人做D-二聚体检测，发现62%注射过mRNA新冠疫苗的病人有细小血栓。 他说这些人现在是永久性的残疾，将”不能够做他们过去能做的事情”。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-【字幕】
+1月21日盖特消息，郭文贵先生对新中国联邦GEDU教育平台上线寄予厚望。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-10.19.27-PM.png)
+GEDU教育平台由喜马拉雅纽约磐石农场开发，历经两个月运行，于1月21日正式上线。郭先生庆贺G-EDU教育平台成功上线，并感谢教育平台战友们的辛勤付出。
 
-D-二聚体是一种显示近期血栓的血液检查。 除了最近的血栓之外，它不显示其他任何东西。 它不会显示旧的血栓，它只显示新的血栓。
+郭先生表示，新中国联邦的教育平台上线意义重大。在病毒疫情的艰难时刻，我们有了新的希望，新的未来。它的目标和方向，就是在没有共产党的新中国联邦来后，培养一批智慧，勇敢，善良，有信仰的，健康诚实的，让人尊敬的新中国新一代人！
 
-我一直给我的一些病人做这项检查，这些病人在过去7天内， 确切地说是在过去4-7天内接种过新冠疫苗，我给他们做D-二聚体的血液检查。
+参考链接：[新中国联邦创始人郭文贵先生对GEDU的寄语：](https://gettr.com/post/ppruuf777d)
 
-我还在收集更多这方面的数据。 但就我目前掌握的信息来看，D-二聚体的检测结果表明62%的人有血栓，这意味着打了疫苗后出现血栓并不罕见，也意味着打了疫苗后大多数人得了血栓而自己并不知情。 因此Laurelyn，最令人震惊的是，我们身体的一些器官，比如心脏，大脑，脊椎和肺是不能再生的。 当其中的组织被里面血管损坏时，这对器官的损害是永久性的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-* * *
+编辑：Ivy001
+总编：Jack Li文阳
+校正/发稿：我不在这里
 
-搜集：36CIA | 听写，翻译：蔻依 | 剪辑，字幕： 文零
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

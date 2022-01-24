@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|【信仰之声】我的老板是大有能力的
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900422/)
+## 有声|美联储公布关于发行中央数字货币的讨论资料
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900525/)
 
 配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月20日，据有关媒体报道称，美国联邦储备系统当天公布了外界期待已久的数字货币白皮书，并首次启动了关于引入央行数字货币的辩论和公众评论期，以期能跟上全球金融创新的步伐并保持美元的优势地位。
 
+据悉，该白皮书并未承诺美联储是否将发行数字美元，当中只是提及了目前遭遇到的各类问题，并承诺会在未来120天内，就隐私、财务稳定和使用数字美元等问题征求公众意见。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
-
-
-
-从前我是被罪恶捆绑的，是黑暗的奴隶，做我不情愿做的污秽的事，陷在罪的泥潭中无法自拔，每日叹息，却无力改变。我就是那天生瞎眼的、瘸腿的，每日乞讨为生，盼望奇迹和救赎可以发生。年复一年，日复一日，在等待变得无望的时候，我遇到了神。
-
-他大施拯救，叫我站立我就起来，开我的眼睛我就看见。
-
-有一位神他创造宇宙万物、使无变成有、 有权威荣耀慈爱恩典、昔在永在的神，他把我从黑暗的国度移到他爱子荣耀的国度里，使我的罪得赦免。
-
-原文链接：[【信仰之声】我的老板是大有能力的](https://gnews.org/zh-hans/1885202/)
+原文链接：[美联储公布关于发行中央数字货币的讨论资料](https://gnews.org/zh-hans/1896559/)
 
 音频处理/发稿：Daxia
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,7 +28,11 @@
 [**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
 
 
  
