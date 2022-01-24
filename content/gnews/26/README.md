@@ -2,36 +2,26 @@
 ---
 
 
-## 有声|美国ESPN不会派遣新闻人员参加北京冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1899699/)
+## 法国各地3.8万人上街抗议疫苗通行证
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1899810/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，美国娱乐与体育节目电视网ESPN在其官方网站上发布声明表示，由于对中共病毒及其相关限制的担忧，ESPN将不会向中共北京冬奥会派遣任何新闻人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1440x810_6789415524851.jpg)图片来源：取自facebook.com/philippot.f
+据法新社1月22日报道，从24日起，16岁以上法国民众必须拥有完整的疫苗接种证明才能进入剧院、餐厅、酒吧从事娱乐活动以及搭乘高铁等。除了儿童以外，COVID阴性证明将不再足够，但进出医疗机构无需出示疫苗通行证。 法国各地约有3.8万人上街抗议这项政策，首都巴黎估计约有5200人上街，部分抗议民众带着小孩。
 
-该网站的制作执行副总裁兼执行编辑威廉姆森在声明中强调，随着中共病毒持续在全球范围内肆虐，加之此次冬奥会现场由于病毒和其他相关因素所导致的诸多限制措施，这些都让现场报道变得非常具有挑战性。此外，员工的安全对于ESPN而言至关重要，因此，该公司认为，减少员工奔波是最好的决定。
+完全接种疫苗的人不断感染病毒，并且感染人数不断攀升，已经证明疫苗不起作用。法国总统马克龙不顾事实，继续草菅人命，还在强推疫苗政策，魔鬼化作人形在世间作恶。等到病毒和疫苗真相公告天下之后，马克龙这等魔鬼必将受到最严厉的审判。
 
-原文链接：[美国ESPN不会派遣新闻人员参加北京冬奥会](https://gnews.org/zh-hans/1896556/)
+新闻参考链接：[疫苗通行证即将上路 法国各地3.8万人上街抗议](https://www.rfi.fr/cn/%E7%96%AB%E8%8B%97%E9%80%9A%E8%A1%8C%E8%AF%81%E5%8D%B3%E5%B0%86%E4%B8%8A%E8%B7%AF-%E6%B3%95%E5%9B%BD%E5%90%84%E5%9C%B03-8%E4%B8%87%E4%BA%BA%E4%B8%8A%E8%A1%97%E6%8A%97%E8%AE%AE)
 
-音频处理/发稿：Daxia
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

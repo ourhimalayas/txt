@@ -2,44 +2,38 @@
 ---
 
 
-## 欧洲确认超过900,000例COVID-19疫苗副作用
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1899920/)
+## 有声|习听闻欧盟多国将同时关闭住中使馆后大怒上海帮
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900385/)
 
-**据《Precison Vaccionations》记者Don Ward Hackett，2022年1月20日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a1h4e-hjzhd.jpg)
-欧洲药品管理局（EMA）今天确认关于四种已获授权COVID-19疫苗的安全性信息已经获得月度更新。
+配音：香草山福音部 – 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月21日，据郭先生在大直播中透露，昨天下午，欧盟多国将同时关闭所有住中国的大使馆，而且是永久关闭。习听说这一消息后大怒，突然觉得上海帮玩弄了他。
 
-EMA附属的疫苗药物警戒风险评估委员会（PRAC）针对COVID-19疫苗的安全监测计划，要求监测欧盟境内个人和医疗专业人员报告的可疑副作用。
+郭先生以为，如果欧盟开始关闭住中使馆，美国一定跟着，美国的同盟也会跟着。这一刻如果发生，就预示着政治经济双脱钩，意味着中共开始倒计时。郭先生以前苏联为例，说其解体前，欧洲几大国就先与其断交，世界多国就跟着断交。中共走到今天是因他们对多国使用假、骗、偷，在世界放出黄、金、毒。
 
-PRAC 报告称，截至2022年1月20日，已向欧盟（EU）和欧洲经济区（EEA）提供超过7.35亿剂疫苗。在COVID-19大流行期间报告超过900,000例副作用。
+郭先生认为，多国与中共断交，是新中国联帮的实力所致，这些与中共断交的国家，必找一个代表中国人的机构，新中国联帮就是唯一的选择。这些与中共经济脱钩的国家，他们的钱只有一个好去处，那就是喜联储。
 
-**EMA今天报告以下数据：**
+原文链接：[习听闻欧盟多国将同时关闭住中使馆后大怒上海帮](https://gnews.org/zh-hans/1894674/)
 
-• Comirnaty – 提供545,000,000剂，报告522,530例副作用 （.0009）；
-• SpikeVax – 提供103,000,000剂，报告124,410例副作用 （.001）；
-• Vaxzevria – 提供69,000,000剂，报告231,363例副作用 （.003）；
-• Janssen （J&J）- 提供18,700,000 剂，报告35,027例副作用 （0.0018）。
+音频处理/发稿：Daxia
 
-EMA表示，疑似副作用为接种COVID-19疫苗后观察到的医学事件，但不一定与疫苗相关或由疫苗引起。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-名为EudraVigilance的欧盟数据库拥有这些疫苗副作用信息。此外，欧洲可疑药物不良反应数据库在兼顾欧盟数据保护法同时，以多种方式向公众提供这些数据的访问权限。
+**更多资讯，更多关注**
 
-截至2022年1月20日，EMA已授权五种COVID-19疫苗，包括位于马里兰州的Nuvaxovid 疫苗。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-此外，EMA正在审查Sputnik V、Sinovac、Vidprevtyn和Valneva的VLA2001候选疫苗。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-EMA的使命是促进药品评估和监督的科学卓越性，以造福欧盟的公众和动物健康。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**文章来源：**[https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects](https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
