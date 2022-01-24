@@ -2,31 +2,20 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月23日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904900/)
+## 除疫苗护照外法国将取消大部分疫情限制
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1904972/)
 
-配音：香草山农场 – 纳米
+加拿大温哥华扬帆农场    平民正道
 
+据法国媒体《Politico》1月20日报道，法国总理卡斯特当天宣布，政府将在2月份取消大部分“新冠病毒”疫情的限制政策，但仍执行疫苗护照规定和在室内配戴口罩等强制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-1-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月23日晚](https://gnews.org/zh-hans/1900803/)
+据悉，从2月2日开始，法国所有体育场馆和其他大型公共场所将被允许再次正常对公众开放。虽然政府仍将鼓励远程工作，但必须隔离在家上班的规定将被取消，同时，在户外将不再需要配戴口罩。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+报道称，在过去一周内，尽管法国平均每天确诊32万个病毒感染病例，但目前的疫情特别是”奥密克戎”病毒的破坏力都已明显趋缓。由于当局仍执意实施严格的疫苗护照政策，因此，就算取消了其他卫生措施，仍无法真正改变政府独裁专治的邪恶本质。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 

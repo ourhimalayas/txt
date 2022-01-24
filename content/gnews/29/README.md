@@ -2,57 +2,55 @@
 ---
 
 
-## 阿尔伯塔省承认玩弄了新冠疫苗接种的统计数据
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904546/)
+## 白宫正在为加密货币领域制定宏伟计划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1904591/)
 
-#### 超过一半的新接种疫苗的死亡病例被混杂在未接种疫苗的人身上
+**【简评】***美联储正朝着数字货币迈出关键一步，发行央行数字货币将极大改变美国的金融体系。*
 
-2021-01-24
+据《AMB加密货币》作者：Shraddha Sharma 2022年1月23日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2014-e1643049375774.png)图片来源：Pixabay
+从去年69,000美元的历史新高(ATH)开始，比特币如今在当前的市场下跌中损失了50%的价值。我们可以看到市场动荡不定，该行业的接受度无疑已处于顶峰。
 
-原文作者：Joel Smalley
+**货币政策和监管环境**
 
-**翻译：Sandy**
+许多专家认为市场疲软是美联储从市场撤出流动性的结果。但是，人们对法规扼杀行业的担忧也很高。
 
-那些做过一点点研究的人都会知道，第一剂 COVID 疫苗没有带来任何保护。
+俄罗斯对加密货币的封杀措施即将来临，英国对加密广告的要求越来越严格，而欧盟则担心该行业的比特采矿业。与此同时，在美国，唯一突出的争论是关于加密代币的“安全”由什么构成。瑞波币（Ripple）与美国证券交易委员会的诉讼正处于此辩论的最前沿。
 
-因此，想像一下，如果你把所有在第一次接种疫苗后的14 天内的感染事件（病例、住院和死亡）全部转移到未接种疫苗的人群中，疫苗有效性统计数据将是何等的混杂。
+话虽如此，据报道，拜登政府正在准备其政府范围内的数字资产战略。
 
-好吧，现在我们从[阿尔伯塔省政府公布的数据](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)中可以肯定地知道, 这些数据与世界上其他任何地方一样，他们通过遵循药物制造商在双盲临床试验中设定的欺诈标准,  声称疫苗的有效性极佳，即忽略给药后最初两周的不良结果。
+彭博社援引消息人士的话说，预计将于2022年2月发布概述该行业风险和机遇的初步版本。届时，有关加密货币的行政命令将使拜登总统及其政府成为加密行业的焦点。
 
-但后来他们做得更过份，实际上也夸大了未接种疫苗的感染人数。自然，这次是把接种第 2 剂疫苗 14 天内的人数赖到只接种一针的人数之中。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fe3a665fa-6888-4992-9fb0-b03b9565b7d3_3251x1822.png)完成接种新冠疫苗的时间和住院率
-新接种疫苗的所有 COVID 住院患者中，**几乎有一半发生在 14 天内**，这意味着他们在统计数据中被视为未接种疫苗。
+这一发展是在证券监管机构（SEC）、商品监管机构（CFTC）和美国财政部等机构的一些初步和不完整的指导下进行的。
 
-幸运的是，他们还公布了每个案例从剂量到感染的时间，从而无意中让我们了解了这种不诚实的程度，从而使我们能够重新计算有多少前 14 天内的病例从接种疫苗者转移到未接种疫苗人群。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F155db86f-32bb-4756-a9a7-b896e72eac0c_3251x1822.png)完成接种新冠疫苗的时间和实际住院治疗病例
-不仅如此，几乎 80% 的病例发生在接种疫苗 45 天内。我得和我的朋友 Jessica Rose核实一下，她是时间因果关系方面的专家，但对我来说这看起来很有说服力。
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fbd5508a8-bb5a-4886-8c51-2b81580631cf_3251x1822.png) 完成接种新冠疫苗的时间和死亡率
-在死亡人数方面，不诚实的情况更为严重，新接种疫苗的死亡人数中近 56% 发生在接种14天内，近 90%发生在45天内。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F36ab346b-3156-4bdc-af59-aee8f903522c_3251x1822.png) 完成接种新冠疫苗的时间和死亡数量
-像往常一样，如果你对公共卫生信息感兴趣，你应该非常警惕来自公共卫生当局的任何信息，这些信息随后被宣传媒体和他们的其他傀儡所宣传。
+最近，美国证券交易委员会主席加里·根斯勒（Gary Gensler）指出，加密货币交易所将受到监管机构更严格的审查。重点是将该行业纳入“投资者保护范围”。值得一提的是，在这方面我们刚刚看到监管机构击落了另外两支有实物支持的比特币上市交易基金(ETF)。
 
-你的生活很可能取决于这些信息。
+**全方位的指导？**
 
-后记
+现在，该报告指出，即将发布的有关加密货币指南的后期草案将概述加密货币领域的“经济、监管和国家安全挑战”。
 
-作为对读者评论的回应，我还包括了病例数据。 它显然遵循相同的接种 14 天的模式。**新接种疫苗的所有 COVID 住院患者中，40% 的病例、48% 的住院到 56% 的死亡等发生在接种 14 天内。 **
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F86de4fbc-0404-4e8e-865b-932f55a244ef_3251x1822.png)完成接种新冠疫苗的时间和确诊率![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F7cfc241f-8adf-4466-b3c4-e8816991f84d_3251x1822.png)完成接种新冠疫苗的时间和确诊病例
-我想住院人数超过病例数和死亡人数超过住院人数可能会受到优先考虑病人的影响，但我认为这并不重要。无论如何，需要保护的是病人，而不是健康人！如果它没有改善病人的结果，那到底有什么意义呢？
+据报道，该指令将让金融稳定监督委员会和美国商务部等其他机构参与进来。此外，该报告还提到美国央行数字货币（CBDC）也可能即将出台。
 
-仅作记录，这里是病例的完整历史，并附有大规模疫苗接种运动的开始时间。是不是很有趣？
-![](https://cdn.substack.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2F23f5b9e2-80d9-4cf8-8cf3-7fa9a2f80e96_3623x2113.png)每周确诊人数，附大规模疫苗接种运动的开始时间
-因此，事实证明，阿尔伯塔省突然争先恐后地从他们的网站上删除了有罪的数据。所以，这里是记录的[副本](https://twitter.com/mdccclxx/status/1482322137255923713?s=20)，这是[网络档案](https://web.archive.org/web/20220107094256/https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)。 真相不再被隐瞒。
-![](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fbucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com%2Fpublic%2Fimages%2Fec838ce9-57c6-4413-bafd-f6aedf10ede2_1058x1244.jpeg)新冠疫苗接种时长和感染情况的记录
-**原文链接：
-**[Alberta just inadvertently confessed to fiddling the COVID vaccination stats.](https://metatron.substack.com/p/alberta-just-inadvertently-confessed?r=9hpvu&amp;utm_campaign=post&amp;utm_medium=email&amp;fbclid=IwAR0NOo_eA99bOeEz3zzOGXauZl08XkjSle5ruHMYzc6nYwNI7xfSfofH0aQ)
+就在最近，美联储在其初步文件中表示，
 
-**编辑：MQ**
+**“引入央行数字货币（CBDC）将代表美国货币的一项重大意义创新”**。
 
-**发布：MQ**
+虽然中央银行已经为未来的央行数字货币（CBDC）打开了大门，但美联储在 2022年5月20日之前仍会就该文件征求公众意见。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+文章来源：[https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/](https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/)
+
+翻译/评论：洛杉矶盘古农场 – maru
+
+编辑：洛杉矶盘古农场 – 柯镇恶
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
