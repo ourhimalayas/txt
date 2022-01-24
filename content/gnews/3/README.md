@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|美反对强化世卫计划阻止中共渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901562/)
+## 北京大外宣，雇用大量西方网红粉饰冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901678/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1967.png)（图片来源于本文链接）
+据卫报（The Guardian）报导，中共驻纽约总领事馆与Vippi Media签署了一份价值30万元的合约，由其发动西方网红大军，来帮助粉饰中共形象和2022年北京冬奥会。
 
-根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
+Vippi Media的老板是“新闻周刊”（Newsweek）撰稿人、前福斯新闻和汇丰银行高级主管贾斯瓦（Vipinder Jaswal）。该合同文件显示，于2021年11月开始，至2022年3月冬季残奥会结束。合同签署后，贾斯瓦已收到了中共21万美元的预付款。
 
-美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
+根据合同约定，贾斯瓦将帮助中共展开社交媒体攻势，向美国人宣传北京冬奥会和残奥会。贾斯瓦计划在年轻人经常光顾的TikTok、Instagram和 Twitch等社交媒体平台上，聘请大量西方网红做节目。在合同期间拟提供340万次对中共的正面宣传。贾斯瓦称，他的公司已经收到了多达五十多个网红的合作意向，其中包括前奥运会运动员和企业家。
 
-原文链接：[美反对强化世卫计划阻止中共渗透](https://gnews.org/zh-hans/1898331/)
+合同还制定了详细的社交媒体战略，西方网红将负责为其目标受众制作三到五条节目。根据粉丝数量和平台活动，网红们被分为三个层次：“宏观影响者”（大网红）、“中层影响者”（中网红）和“社交发布者”（小网红）。
 
-音频处理/发稿：Daxia
+美国政治家对贾斯瓦提出了批评，谴责他跟中共达成交易，本月早些时候，佛罗里达州参议员里克·斯科特（Rick Scott）致信贾斯瓦担任撰稿人的《新闻周刊》，要求该报社，基于中共迫害人权的恶劣纪录，请他们重新考虑与贾斯瓦的工作关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+根据总部位于华盛顿、追踪美国政治资金的组织Open Secrets的统计，在过去十多年，中共在海外媒体信息传递方面大撒币，2020年在美国的支出接近6000万美元，2021年为2300万美元。
 
-**更多资讯，更多关注**
+信息来源：[北京雇用大量西方网红 为冬奥会唱赞歌](https://www.aboluowang.com/2022/0124/1699745.html)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

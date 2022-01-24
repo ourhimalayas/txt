@@ -2,48 +2,30 @@
 ---
 
 
-## 新中国联邦成员在塞浦路斯获保释
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899318/)
+## 【秘翻在线】拜登考虑向欧洲北约盟国部署数千名军队
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1900696/)
 
-撰稿：西枫westca
+**撰稿：Grace**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-36-1.jpg)图片来源：worldakkam
-据塞浦路斯KNEWS1月23日报道， 一对来自中共国的母子因中共指控其投资欺诈被通缉，在塞浦路斯面临引渡。帕福斯的法官以起诉文件延误为由允许保释他们。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-8.53.45-PM.jpeg)图片来源：Daily wire
+据 Just the News 1月23日报道，拜登政府官员告诉《纽约时报》，随着俄乌边境的紧张局势加剧，拜登正在考虑向东欧（Eastern Europe）和波罗的海（ Baltics）地区的北约盟国（NATO allies）部署数千名军队, 另外还有飞机和军舰。
 
-周五，帕福斯的一名法官下令休庭，以便检察官有更多时间完成所有必要的文书工作。这两名在塞浦路斯的中国公民以每人25000欧元保释金获释。
+美国国防部长奥列克西·雷兹尼科夫 (Oleksii Reznikov) 周日表示，美国在周末向乌克兰运送了80多吨价值2亿美元的军事装备。
 
-详细情况尚未立即公布，但媒体报道指出，塞浦路斯外交部长没有及时签署检察官的文件，使之无法在法庭呈现。
+当天，美国驻乌克兰大使馆下令疏散外交官的家属，而其他雇员则被授权自愿离开。
 
-**“未经授权，不得引渡”**
+据《纽约时报》报道，拜登周六在戴维营(Camp David) 与五角大楼 (Pentagon)的高级官员举行了一次会议，讨论对乌克兰的几个军事方案。其中一个方案是向东欧国家部署1,000至5,000名美国军队，如果需要，可以将服务人员增加10倍。
 
-引述辩护律师的话说”只有在部长批准引渡请求后，才能开始引渡程序，”，这表明法院所需的文书工作未得到授权。
+官员们告诉《纽约时报》，拜登可能会在本周做出决定，但目前的方案都不涉及直接向乌克兰部署美国军队。据报道，俄罗斯总统弗拉基米尔·普京 （Vladimir Putin） 希望避免将服务成员派往北约成员国爱沙尼亚 (Estonia)、拉脱维亚 (Latvia) 和立陶宛 (Lithuania)。报道称，这是拜登政府正在考虑的一个选项。
 
-据该案的辩护律师称，塞浦路斯的外交部长没有时间授权引渡文件，同时指出该文件已被中国当局送往塞浦路斯驻北京大使馆。
+据报道，拜登的官员正在密切关注是否有任何迹象表明俄罗斯可能会正如俄罗斯当局所言，在其边境部署战术核武器。
 
-这对母子在获释前正在尼科西亚的监狱中等待引渡听证会，他们于12月初在佩亚被拘留，罪名是与中国正在调查的金融犯罪有关的投资欺诈，据说这些犯罪发生在2013年3月至2014年3月之间。
+报道还指出，拜登因其对正在发生的危机的反应而受到了批评。在上周的一次新闻发布会后，他因否定了普京对乌克兰的假设性 “小规模入侵”而被指责。
 
-但引渡案超出了文书工作和程序的范围，因为塞浦路斯发现自己处于一场涉及中国和美国利益的政治性引渡战中。
 
-本月早些时候，塞浦路斯政府收到了一封来自一个美国组织的信函，寻求 “保护对中国的腐败和非法活动大声疾呼的个人“。称对母子俩的指控是”出于政治动机”。该组织与富裕的中国流亡者郭文贵和曾担任川普总统前顾问的对华鹰派人士史蒂夫·班农有关联。
 
-已离开该组织的班农于2020年8月在郭文贵的游艇上被捕，引发了对欺诈调查的质疑，并进一步呈现了围绕这位2014年逃离中国的房地产大亨所拥有的非营利组织的神秘色彩。
-
-这对母子均为新联邦中国的成员，该运动旨在推翻中国政府。
-
-下一次听证会将于2月3日进行。
-
-**新闻来源：**
-
-[Cypriot judge bails Chinese duo on technicality , KNEWS](https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality)
-
-[多家媒体报道塞浦路斯法院释放新中国联邦成员](https://gnews.org/zh-hans/1893669/)
-
-[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
-
-[Cyprus extradition twist for Chinese pair](https://www.financialmirror.com/2022/01/21/cyprus-extradition-twist-for-chinese-pair/)
-
-[Cyprus Handover Twist for Chinese Pairs](https://worldakkam.com/cyprus-handover-twist-for-chinese-pairs/664344/amp/)
+**新闻来源： ****[Biden considering deploying thousands of troops to European NATO allies: Report](https://justthenews.com/government/white-house/biden-considering-deploying-thousands-troops-european-nato-allies-report)**
 
  
 

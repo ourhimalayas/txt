@@ -2,38 +2,40 @@
 ---
 
 
-## 乌克兰-俄罗斯冲突再起，中共考虑侵台时机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901351/)
+## 金融科技初创公司NextPay着眼于加密服务产品
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901435/)
 
-#### **【雅典娜观察】和您一起探究世界**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-整理报道：Little lamp
-编辑：文泓
+整理/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/KR475YGGHRT_VR3.png)图片来源：Qirim News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
 
 
-当地时间1月2日，据《大纪元》报导，美国前国家安全顾问罗伯特‧奥布莱恩上周五警告，美国的敌人正在密切关注拜登和普京总统在乌克兰-俄罗斯冲突的举措。如果时机到来，中共就值得冒险攻打台湾，进而引发严重后果，进一步威胁到美国利益。
+根据《GMA》1月23日报道，在去年录得价值10亿比索的交易后，为了保持增长，金融技术初创公司NextPay正在寻求扩大其服务范围，其中包括加密货币服务。
 
-“我们在欧洲主要国家安全利益在于确保北约得到捍卫，因此我们不希望俄罗斯对非北约朋友横行霸道，给我们的北约盟国带来更多压力。这是其一。”
+NextPay首席体验官兼联合创始人奥尔德里奇·谭（Aldrich Tan）表示，NextPay对2022 年持乐观态度，因其正在探索几个推动增长的关键举措。
 
-如果普京选择入侵乌克兰，“俄罗斯将付出沉重代价”。奥布莱恩说，与此同时，“中共国正在非常仔细地观察此事。习近平正在观察弗拉基米尔‧普京的一举一动，正在权衡——他在考虑是否在奥运会后入侵台湾的问题。”
+“我们的目标是引入更灵活的支付方式，并探索贸易融资、企业卡和加密货币服务等高增长领域，”奥尔德里奇在电子邮件声明中表示。
 
-“台湾是（美国）太平洋上的软木塞，”奥布莱恩说，如果台湾沦陷，中共军队“就会流向太平洋，威胁到夏威夷，威胁到加利福尼亚或阿拉斯加州的阿留申群岛”。
+该投资包括来自硅谷Y Combinator的种子前支持，该公司还支持本地公司Kalibrr、PayMongo、Avion School和Dashlabs.ai。投资者还包括新加坡风险投资家金门，以及苏氏家族的私人投资工具Gentree Fund。
 
-中共入侵台湾也可能切断美日联盟，还可能切断美国与新西兰、澳大利亚和菲律宾的盟友关系。
+NextPay表示计划在今年上半年开始筹集资金，但没有详细说明它希望利用哪些类型的融资。
 
-“一些独裁国家以为可以靠入侵及征服邻国实现自身利益，但这不是国际关系中的新常态。因为它的后果将远远超出乌克兰一地，”他总结说。
+该公司于2020年推出，提供民主化的金融服务，例如数字发票、现金管理以及向当地银行和电子钱包的批量支付。
 
-新闻来源：[美前国安顾问：中共紧盯乌俄冲突 考虑攻台时机](https://www.epochtimes.com/gb/22/1/22/n13522918.htm)
+另外，NextPay于去年推出了可重复使用的支付链接服务，使企业能够通过一个链接收集客户付款。该链接允许通过多种方法进行支付结算。
 
-*发布：tianzhihuan*
+新闻来源：[Fintech startup NextPay eyes crypto services offering](https://www.gmanetwork.com/news/money/companies/819216/fintech-startup-nextpay-eyes-crypto-services-offering/story/)
+
+发布：*tianzhihuan*
 
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

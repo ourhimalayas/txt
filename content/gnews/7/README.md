@@ -2,19 +2,30 @@
 ---
 
 
-## 共产党让世界变黑暗的三种方式
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901504/)
+## 冬奥会各国的态度及与CCP的勾兑嘉宾谈（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901638/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-1月17日，郭文贵先生在GTV大直播指出：
+文贵先生：
 
-中共为了不让真相公开于世，试图控制媒体。中共为了在世界上独大，试图控制财富。中共为了为所欲为，正在与西方邪恶势力勾结，利用蓝金黄的手段，试图控制法律。如果让中共得逞，世界将失去太平，人们会失去财富，或因财富失去生命。
+第一件事儿，我到欧洲去，我买空客了。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+挑拨美欧这波音公司里打款，我买空客一定在清单上买空客了，只要一到美国一定去西雅图啊。
+
+去比尔盖茨家吃饭，从江泽民到胡锦涛到温家宝，到所有人去空客看1圈。然后我买波音了 他在美欧之间就玩的游戏就是空客，而空客的大股东是谁？
+
+你们要搞明白。空哥的大股东局70%的股东是德国和法国，英国占了一点事吧，就在几个发动机，所以说他这个整个欧盟所谓的联合生产体，卖一个空客得到的钱就法德70。而且生产基地在哪里呀？到德国去了，全部在德国，而且德国是在这个里边核心的利益体。所以波音飞机，空客飞机成了共产党和欧洲美国玩儿的最重要一个牌。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/冬奥会各国的态度及与CCP的勾兑嘉宾谈.006.jpeg)
+发布： *tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

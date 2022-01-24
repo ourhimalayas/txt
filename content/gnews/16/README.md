@@ -2,19 +2,49 @@
 ---
 
 
-## 共产党的邪恶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901432/)
+## 共和党议员为抵制强制疫苗退出国会山俱乐部
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901585/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+作者：银河系农场—骄子
 
-1月12日，郭文贵先生在GTV大直播指出：
 
-从郭先生的成长经历，看出中共的邪恶，也反映出郭先生对中共的了解之深。郭先生小时候生活的赵家沟，过去山上的树，沼泽地的草甸子，现在几乎都没有了。过去一百多户人家，到现在剩十来户，极少有人走出赵家沟，所有的人比过去还穷，生活很惨，可怕的是他们觉得现状挺好，可想共产党的统治有多么邪恶。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据美国媒体1月21日报道，一些共和党议员正在退出国会山俱乐部以抵制强制疫苗计划。该俱乐部所在地哥伦比亚特区，目前正在施行强制疫苗要求，未接种中共病毒疫苗的商业机构将面临严重的罚款，自1000美元开始，每次翻倍。
+
+据报道，弗吉尼亚共和党议员鲍勃.古德为此项活动的发起人，越来越多的共和党人加入抵制队伍。目前级别最高的是来自肯塔基州的兰德.保罗，他在社交媒体上表示，不愿做一个会随意透露会员医疗记录的俱乐部成员。
+
+据悉，国会山俱乐部成立与1951年，是共和党与其支持者进行活动和社交聚会的首选地点。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-5.jpg)
+参考信息：
+[Lawmakers cancel Republican club memberships over vaccine mandate enforcement](https://www.washingtonexaminer.com/news/lawmakers-cancel-republican-club-memberships-over-vaccine-mandate-enforcement?_amp)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

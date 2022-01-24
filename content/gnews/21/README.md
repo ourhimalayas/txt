@@ -2,19 +2,37 @@
 ---
 
 
-## 控制粮食 房地产 就是用的商鞅驭民五术
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901391/)
+## 有声|日本即将终结对华“官方开发援助”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901488/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月14日消息，日本即将结束历时40余年的对华 “官方开发援助计划” 。该计划自1979年12月开始，结束日期为2022年3月。援助形式包括资金、技术和人才培养等各个方面。截止2015年，该计划的援助金额合计322亿美元，涉及多项中共国内大型基建目，包含北京国际机场、上海浦东机场、武汉天河机场、中日友好医院及北京地铁2号线等。
 
-1月5日，郭文贵先生在GTV大直播指出：
+40年来，日本的友好援助和中共国的改革开放相重叠，支撑中共国走上经济大国之路。然而中共国内对此援助计划鲜有提及，大部分中国人并不知道有此援助计划，以及相应的援助资金及行动。
 
-商鞅驭民五术中的核心是疲民，让老百姓疲于奔命，无暇思考。中共通过控制房地产和粮食，阻止房地产的流通性，让中国老百姓一代甚至几代人疲于奔命，却只能勉强维持生活。中共控制了房地产，就控制了中国人的整个未来。房地产市场和粮食价格一旦崩溃，中共势必灭亡。
+原文链接：[日本即将终结对华“官方开发援助”](https://gnews.org/zh-hans/1898279/)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
