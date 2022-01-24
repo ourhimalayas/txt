@@ -2,17 +2,32 @@
 ---
 
 
-## 巴基斯坦是共产党杀人 走私人口 贩毒 买卖人体器官 洗钱最关键的地方之一
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1902218/)
+## 班农先生对新中国联邦的重要性（下）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902253/)
 
-共产党对海外的大撒币和蓝金黄，不但是海外控制，还是洗钱的一种手段。每年中共从巴基斯坦洗钱高达上百亿美元，巴方的人拿几亿，其余全部被共产党拿走了。共产党打着一带一路国家战略的名义，实际上是盗取中国人民的财富，中国人是最大的受害者！
+整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生对新中国联邦的重要性（下）-1-scaled.jpg)
+人类大自然都是优胜劣汰，这是一个正常的自然现象。
 
-巴基斯坦是共产党杀人，走私人口，贩毒，买卖人体器官，洗钱最关键的地方之一。王岐山、王毅，杨洁篪，王沪宁、李肇星、唐家璇等人，比赵高、李斯还要坏！东欧、东南亚是江家的天下，谢利夫是江家的关系。习近平看不清形势，举行冬奥，实行清零政策，就快把自己给清零了！
+但是 要看到为什么班农先生还能跟我在一起，为什么他今天还能有这样的激情，还有这样的影响力。
 
-视频来源: 2022年1月21日郭先生大直播视频
-视频制作: 文星光
-文案:文星光、梦田
-上传: 零点
+当时FBI的人跟我说：你们 中国人就是要脸、要面子,全世界只有美国有一个Stephen K. Bannon,说被人家给打到地上，不服输，然后从欧洲回来以后， 成为Number One Hero。
+
+他从来没有面子的负担。I want to win, don’t give me, face.
+
+发布：于white
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
