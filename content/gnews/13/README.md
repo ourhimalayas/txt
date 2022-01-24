@@ -2,33 +2,22 @@
 ---
 
 
-## 爆料革命的目的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902448/)
+## “宇宙日本食品”也可以成为救灾食品！JAXA和JDFS联合合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1902480/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/爆料革命的目的-1-scaled.jpg)
-我们来看看整个我们运动的历史，你们要记得自己很多人都有一些不同的动机，有些人来讲他们有很多的企图。
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-3-3.png)[*图片来源*](https://news.yahoo.co.jp/articles/b7e8f3c3a3a7fc34f7416e2867fefba62b7aaf37/images/000)
+JAXA（宇宙航空研究开发机构）和JDFS（一般社团法人日本灾害食品学会）于2022年1月17日宣布，通过比较简单的审查就可以被认证为“宇宙日本食品”的食品。
 
-为什么说我在几年当中特别喜欢和班农先生在一起，就是他第一天的时候，其实就是帮助了我们，一定要消灭共产党，因为它们是一个跨国际的犯罪集团。
+“宇宙日本食品”是为了在宇宙中能享受到日本的味道而开发的食品，食品制造商提出的视频方案都要符合JAXA的认定标准。另外，“宇宙日本食品”与JDFS运营认证制度的“日本救灾食品”相比，在常温下可以长期保存等诸多特性相似，因此共同进行了合作讨论。
 
-所有的人，他们支持我们的很多的运动，比如天安门事件之类的。有很多的美国人，比方说， 其实从来没有一个人，像我一样，认识到中国共产党并不是一个合法的政党，它就是个 跨国际的一个犯罪集团。
+“日本救灾食品”的目的是帮助经受自然灾害人们的生活，并防止次生健康灾难的发生。据说，今后正在讨论把被认定为“日本救灾食品”的食品认证为“宇宙日本食品”的程序。
 
-其实这一点来讲，在我们美国人的这个思想里头 非常重要的，这是非常重大的一个事件。我们要记得任何一个运动，特别是我们来想一想，我们要完成的这个目的，也就是我们的郭先生以及和我们的运动，我们整个的目的就像是（要建设）历史上最为优秀的，历史和文明要比印度的宗教还要有悠久，比整个的古希腊，当然是比西方的基督教，最大的文明。
+信息来源：[**宇宙日本食が災害食にもなる！JAXAとJDFSが連携**](https://news.yahoo.co.jp/articles/b7e8f3c3a3a7fc34f7416e2867fefba62b7aaf37)
 
-发布：于white
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

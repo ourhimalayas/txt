@@ -2,30 +2,27 @@
 ---
 
 
-## 得州一联邦法官暂时阻止了对联邦雇员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901921/)
+## 世卫组织建议取消国际旅行疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901922/)
 
-作者：香草山教育部 – Naughty(文行)、Delilah小胖 、007
+作者：新中国联邦静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月21日，得克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登总统对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-11.png)
-这个针对拜登政府疫苗强制令的诉讼，是由一个叫医疗自由联盟的组织发起的。
+1月19日，世界卫生组织发布了1月13日召开的中共病毒大流行紧急委员会临时会议的声明。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.png)
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
+声明中提出了世卫组织给缔约国的11项临时建议，其中第六条为“赞成解除或放宽国际旅行禁令”，第七条为“赞成国际旅行不需要中共病毒疫苗接种证明”。即世卫组织至少在建议取消国际旅行中的疫苗护照了。
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+分析人士认为，尽管还不明确世卫组织此举意图何在，但这个建议至少对受到它影响的很多国家来说，在取消疫苗强制方面，还是有积极作用的。
 
 参考链接：
 
-- [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
-- [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
+- [Statement on the tenth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Ivy001 / 飞虹
+总编：童谣
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
