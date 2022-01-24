@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花数据分析｜日本：疫苗对防止住院没有帮助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903772/)
+## 杰森·米勒：我们努力确保GETTR无政治歧视
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1903811/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-363.jpg)
-制图：chuansang
+01/21/2022 杰森·米勒做客亚当·卡罗拉节目谈盖特：我们要做的是确保我们有个平台，人们能参与到社交媒体，有自己的谈话，而不会有政治歧视
 
-日本TBS电视台1月18日播出的节目中，展示了因中共病毒（新冠病毒）住院患者的疫苗接种情况。
-
-其中，未接种为35人，一针接种为4人，两针接种为145人，三针接种为7人。 其中疫苗接种者达到81.7%。 算成有效率，则疫苗对于防住院效果为-8%。 这可以说疫苗对于防治住院毫无效果，甚至是有可能增强住院风险。
-
-所谓“疫苗防重症”这一说法，也不再站得住脚。
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

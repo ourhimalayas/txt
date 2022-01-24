@@ -2,35 +2,26 @@
 ---
 
 
-## 美国重量级众议员预测中共将在冬奥会后入侵台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903769/)
+## 樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903806/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体01月22日报道，美国众议院外交事务委员会领导人迈克尔·麦考尔在1月21日，与记者通话时预测，中共可能会在2月北京举行的冬奥会之后，军事侵略台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.31.53.png)
-麦考尔指出，在过去几十年来，中共一直声称台湾不是一个主权国家，是中共国的一部分。而现在中共吞并台湾的野心马上会付诸行动。
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-83.jpg)
+制图：chuansang
 
-麦考尔同时预测，俄罗斯很可能在下个月入侵乌克兰。美国政府对此高度关注，警告俄罗斯入侵乌克兰将付出严重的经济代价。
+英国政府1月20日公布了最新疫苗监督报告，值得注意的是，其统计内容已从两针接种者感染变为三针接种者感染。
 
-正如郭文贵先生此前爆料揭露，中共预谋和俄罗斯同时开战，分别攻打台湾和入侵乌克兰，让美国无暇同时应付东西两场战争，从而逼迫美国政府妥协，默认中共侵占台湾的既成事实。
-有关人士认为，目前中共政权已经内外交困、穷途末路，冬奥会之后军事侵略台湾，是中共为转移统治危机的孤注一掷。
+数据显示，在最近四周中，除29岁以下人群以外，各个年龄层的两针疫苗防感染有效率均为负值。即大多数三针接种者更易感染奥密克戎毒株。30岁以上各年龄层人群，感染风险是未接种者的1.19倍～2.04倍。
 
-参考链接：[Republican Rep: We Might ‘Begin To See’ China Invade Taiwan ‘After The Olympics’](https://www.dailywire.com/news/republican-rep-we-might-begin-to-see-china-invade-taiwan-after-the-olympics)
+这个数据表明，ADE，以及疫苗接种造成的人体自身的免疫系统的破坏极有可能正在发生。三针的加强针对于遏制疫情扩大不但没有效果，反而会加速病毒扩散。所谓“接种第三针遏制疫情”，没有科学依据，是被验证了的严重的错误。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+[数据来源](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf) :
 
-总编：文真
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

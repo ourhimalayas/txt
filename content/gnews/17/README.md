@@ -2,26 +2,27 @@
 ---
 
 
-## 疫情和疫苗政策正严重破坏纽约医疗保健系统
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903737/)
+## 美国重量级众议员预测中共将在冬奥会后入侵台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903769/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据1月22日外媒消息，纽约市一家高级医院的官员表示，由奥密克戎变体引起的医护人员短缺，正在对包括太平间在内的医疗保健系统造成严重破坏。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.jpg)
-该区中部疗养院和医院组成的One Brooklyn Health首席执行官布朗，周五告诉记者，人员短缺问题继续困扰着整个医疗保健系统。一些医院甚至很难将尸体运送到太平间和殡仪馆。
+英国媒体01月22日报道，美国众议院外交事务委员会领导人迈克尔·麦考尔在1月21日，与记者通话时预测，中共可能会在2月北京举行的冬奥会之后，军事侵略台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-24-上午9.31.53.png)
+麦考尔指出，在过去几十年来，中共一直声称台湾不是一个主权国家，是中共国的一部分。而现在中共吞并台湾的野心马上会付诸行动。
 
-布朗说，目前，许多员工都感染了中共病毒，或者与生病的家人一起被隔离；加上纽约州的疫苗强制接种政策，使没有接种的医护人员无法参加工作，导致人们在急诊室的候诊时间变得更长，被安排住院需等待更久。
+麦考尔同时预测，俄罗斯很可能在下个月入侵乌克兰。美国政府对此高度关注，警告俄罗斯入侵乌克兰将付出严重的经济代价。
 
-中共病毒疫情疫苗政策的蔓延及实施，不仅未能制止疫情的恶化，反而严重影响了医疗系统的工作人员的正常服务及工作效率，可谓雪上加霜。
+正如郭文贵先生此前爆料揭露，中共预谋和俄罗斯同时开战，分别攻打台湾和入侵乌克兰，让美国无暇同时应付东西两场战争，从而逼迫美国政府妥协，默认中共侵占台湾的既成事实。
+有关人士认为，目前中共政权已经内外交困、穷途末路，冬奥会之后军事侵略台湾，是中共为转移统治危机的孤注一掷。
 
-参考链接：[COVID staff shortages strain NYC hospital morgues, ERs](https://pix11.com/news/coronavirus/covid-staff-shortages-strain-nyc-hospital-morgues-ers/)
+参考链接：[Republican Rep: We Might ‘Begin To See’ China Invade Taiwan ‘After The Olympics’](https://www.dailywire.com/news/republican-rep-we-might-begin-to-see-china-invade-taiwan-after-the-olympics)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编: Jack Li文阳
-编辑： Kathy文艺
-校正/发稿：Fei797
+总编：文真
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,8 +31,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

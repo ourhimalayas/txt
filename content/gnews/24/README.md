@@ -2,29 +2,25 @@
 ---
 
 
-## 德州联邦法官暂时阻止对联邦雇员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903552/)
+## 疫情和疫苗政策正严重破坏纽约医疗保健系统
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903737/)
 
-作者：香草山教育部 – Naughty(文行) , Delilah小胖 , 007
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-15.jpg)
-此项针对拜登政府疫苗强制令的诉讼，是由一个名为“医疗自由联盟”的组织发起的。
+据1月22日外媒消息，纽约市一家高级医院的官员表示，由奥密克戎变体引起的医护人员短缺，正在对包括太平间在内的医疗保健系统造成严重破坏。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.jpg)
+该区中部疗养院和医院组成的One Brooklyn Health首席执行官布朗，周五告诉记者，人员短缺问题继续困扰着整个医疗保健系统。一些医院甚至很难将尸体运送到太平间和殡仪馆。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+布朗说，目前，许多员工都感染了中共病毒，或者与生病的家人一起被隔离；加上纽约州的疫苗强制接种政策，使没有接种的医护人员无法参加工作，导致人们在急诊室的候诊时间变得更长，被安排住院需等待更久。
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
+中共病毒疫情疫苗政策的蔓延及实施，不仅未能制止疫情的恶化，反而严重影响了医疗系统的工作人员的正常服务及工作效率，可谓雪上加霜。
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
-
-参考链接：
-1) . [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
-2) . [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
-3) . [Texas federal judge temporarily blocks Biden vaccine mandate for federal employees](https://www.foxnews.com/politics/texas-federal-judge-vaccine-mandate-federal-employees)
+参考链接：[COVID staff shortages strain NYC hospital morgues, ERs](https://pix11.com/news/coronavirus/covid-staff-shortages-strain-nyc-hospital-morgues-ers/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-总编： Ivy001，飞虹 
+总编: Jack Li文阳
+编辑： Kathy文艺
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

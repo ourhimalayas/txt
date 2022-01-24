@@ -2,20 +2,17 @@
 ---
 
 
-## 内资充外资 港府称国安法无损外资驻港
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903215/)
+## 全球疫苗接种灾难与希望并存
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1903303/)
 
-作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-327.jpeg)
-投资推广署署长傅仲森指，目前未有明显证据反映《港区国安法》致外资撤离，反而不少企业对投资香港抱兴趣，当中最多投资项目来自内地，美国及英国紧随其后。他称，香港的定位为背靠内地，不少外资以香港作为踏脚石进入内地，或内地企业亦以香港集资，甚至从美国退市后考虑来港上市，因此预期内地公司在香港的数量，将继续保持高水平的增幅。
+——文贵大直播20220124
 
-中共在香港施行国安法，国际社会都目睹港府如何利用国安法残酷打压香港民主，将香港陷入白色恐怖中，大量国际热钱和外企及驻港机构纷纷撤出香港，加上港府高度配合中共对疫情的管制，闭关锁港限制人流和物流，导致香港经济发展停滞，各行各业为求续命不断向港府申请防疫基金，进一步拖累香港的财政储备。港府还要为萧条的经济涂脂抹粉，赞美国安法吸引了更多的“外资”入港，却又无耐透露这些资金大部分是来自内地。中共早已当众单方面撕毁了《中英联合声明》，三权也被中共独揽，香港在国际社会已经是彻底的一国一制，如今港府将内地投资定义为“外资”简直是掩耳盗铃。至于那些在美国退市的中资企业，选择落户香港实在是避难的无耐之举，港府将这些悉数纳入外资充数，可见国安法不仅镇压了香港的民主，还成功吓退了国际资金，不愧是杀人又重创自己的恶法。
+撰稿：莲心不染/ Myway /坐看云起时（扬帆）白子（澳喜）
 
-资料来源：[**外资驻港数目创新高逾9,000个  投资推广署：未见国安法引致撤资**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/727904/%E5%A4%96%E8%B3%87%E9%A7%90%E6%B8%AF%E6%95%B8%E7%9B%AE%E5%89%B5%E6%96%B0%E9%AB%98%E9%80%BE9-000%E5%80%8B-%E6%8A%95%E8%B3%87%E6%8E%A8%E5%BB%A3%E7%BD%B2-%E6%9C%AA%E8%A6%8B%E5%9C%8B%E5%AE%89%E6%B3%95%E5%BC%95%E8%87%B4%E6%92%A4%E8%B3%87)
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide5-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9.png)
+*发布：Theodosia*
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

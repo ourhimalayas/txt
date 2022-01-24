@@ -2,22 +2,22 @@
 ---
 
 
-## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
+## 2022.1.24大直播 郭先生爆料习为成功举办冬奥会再次跟普京勾兑
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1903677/)
 
-**疫情關注組 / 發佈時間｜24/1/2022**
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-9.28.49-PM.jpeg)
+郭文贵先生在2022年1月24日大直播中爆料，中共为了避免世界对所谓“现在崛起的新势力（俄罗斯、中国、朝鲜、伊朗等独裁国家）”的孤立，再次跟普京勾兑，要求普京留京时间从原来的24小时再延长20小时，同时全面提升习普会见规格，把地点从奥运村盘古大厦换到人民大会堂，而满足这些要求的代价就是再次支付俄罗斯高额费用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+另外，为了把这次冬奥会办成一个圆满成功的冬奥会，专门安排张艺谋导演了一场规模盛大的开幕式。
+
+郭先生还提到，目前冬奥村已经开始试运行，各国运动员陆续到京，北京的战友们随时向郭先生反应运动员的悲惨遭遇，他们平时只能待在宾馆房间；奥运村里到处安装摄像头，360度监控，用餐的餐厅里布满了国安人员。运动员入驻冬奥村跟进监狱一样。
+
+郭先生意有所指的表示希望这次冬奥会能成功举办，并感谢“习太阳”这一系列作为。郭先生称，他深切的感受到在过去的48小时，昆仑山脉和喜马拉雅的七座山峰正在发挥力量。
+
+参考链接：https://gtv.org/broadcast/watch/61eea3ca28a108147c61a4dd
 
 
-据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
-
-[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
-
-以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
-来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
 
  
 
