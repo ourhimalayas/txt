@@ -2,8 +2,8 @@
 ---
 
 
-## 被共产党造成伤害一定要报案反击采取法律行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900913/)
+## HBO和Vice的关系
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900934/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

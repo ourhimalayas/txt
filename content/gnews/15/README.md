@@ -2,28 +2,31 @@
 ---
 
 
-## 冬奥会前夕北京丰台两百万人进行核酸检测
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1900787/)
+## GTV新闻访谈简报|2022年1月23日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1900803/)
 
-![北京市民在一个流动检测站前排起长龙，等待进行新冠病毒核酸检测。](https://gdb.voanews.com/B44FE9AC-1105-4BD2-966D-DE2266835B4E_w1023_r1_s.jpg)北京市民在一个流动检测站前排起长龙，等待进行新冠病毒核酸检测。
-据美国之音1月23 日报道，距离北京冬奥会开幕不到两个星期，北京丰台区约200万居民被下令做全民核酸检测。同时，所谓高风险区的居民不得离开北京。
+作者：香草山翻译部
 
-北京现在已经进入深冬，丰台区市民在寒冷和拥挤的天气下排队几个小时接受核酸检测，隔离距离呢？安全措施呢？没感染的都会被感染。中南坑也在北京，中南坑需不需要大冬天站在外面忍着寒风排队接受核酸检测？作为几千万人口的超级大都市，官方通报几例感染，就大张旗鼓地强令几百万人隔离做检测，这背后真实的感染数据到底是多少？你不知我不知，天地知，中共知。上天是能够欺哄的吗？
-
-新闻参考链接：[https://www.voachinese.com/a/beijing-introduces-more-covid-measures-as-cases-mount-before-olympics-20220123/6408878.html](https://www.voachinese.com/a/beijing-introduces-more-covid-measures-as-cases-mount-before-olympics-20220123/6408878.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-1.png)
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.23  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ee00ad28a108147c614d3c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

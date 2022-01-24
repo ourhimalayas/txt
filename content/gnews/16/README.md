@@ -2,34 +2,51 @@
 ---
 
 
-## 宝琳·汉森参议员抨击澳洲政府疫情虚假报道
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1900775/)
+## 海军陆战队只批准了两人宗教豁免请求
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900791/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+翻译：彩虹
+编辑：彩虹
 
-整理报道：小鱼儿
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Y61ZG48EL2LL6JKO5RJW.png)图片来源：The Spectator Australia
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/4W859_5M5MP29FEM394.png)图片来源：福克斯新闻
 
 
-当地时间1月23日，据澳洲新闻网报道,一国党(One Nation)的领袖宝琳·汉森参议员在一个网上反疫苗强制活动中发言称，在大流行病期间有多少人死亡的这个问题上，澳大利亚人被政府欺骗了。
+面对强制接种中国病毒（COVID-19）疫苗，海军陆战队超过3200名军人提出了宗教豁免请求，但海军陆战队高层只批准了两人。
 
-她说：“我将站在一个论坛上，我相信我们需要一个皇家委员会来调查新冠病毒和它的处理方式。虽然我们已经有了总理、卫生专业人员和其他一些人，但他们在这个问题上蹒跚前行，他们没有对公众实话实说，这意味着我们需要对此获得答案。”
+据《海军陆战队时报》报道，截至1月12日，在3212份宗教豁免申请中，只有两份获得批准。该中共病毒疫苗强制接种规定所有现役海军陆战队员必须在2021年11月28日之前接种。这个数字仅相当于0.06%的请求被批准。
 
-昆士兰卫生部长伊薇特·达斯则在周日的新闻发布会上抨击了一国党领袖。她说，那些声称因疫苗强制接种而产生社会“隔离”的政客是“不负责任的和令人厌恶的”。
+如果海军陆战队员既没有接种中共病毒疫苗，也没有获得豁免，他们将被遣散。
 
-在整个大流行病期间，汉森参议员一直直言不讳地批评政府疫苗强制接种政策，她和同为一国党的参议员马尔科姆·罗伯茨将在议会开始时继续阻止政府的相关立法。
+目前，大约有150份豁免请求仍在等待审查。
 
-新闻链接：[“](https://www.news.com.au/national/queensland/news/irresponsible-and-dangerous-pauline-hanson-cops-fiery-blast/news-story/02927aa7a0424022bcebb28a6a4cd7df)[Irresponsible and dangerous”: Pauline Hanson cops fiery blast](https://www.news.com.au/national/queensland/news/irresponsible-and-dangerous-pauline-hanson-cops-fiery-blast/news-story/02927aa7a0424022bcebb28a6a4cd7df)
+安德鲁·伍德（Andrew Wood）上尉对《海军陆战队时报》说：“出于隐私考虑，我们无法讨论任何个人请求的具体情况。”
 
-发布：*tianzhihuan*
+他概述了海军陆战队员寻求中共病毒疫苗豁免的审查过程：
+
+最初的请求由提出请求的海军陆战队的中校指挥官、上校指挥官和指挥官审查，然后再送交负责人力和储备事务的副指挥官。
+
+在人力和储备事务部门，一个三人小组在向副司令官提出建议之前审查每项请求。
+
+如果请求被拒绝，最初提出请求的海军陆战队员有权向海军陆战队助理司令官提出上诉，然后由助理司令官亲自审查每项上诉，然后做出最终决定。
+
+自疫苗规定首次推出以来，海军陆战队一直是国防部中接种中共病毒疫苗最少的部队。
+
+海军陆战队司令大卫·伯杰（David Berger）将军将这种犹豫归咎于网上的“虚假信息”。
+
+11月4日在阿斯彭安全论坛上，伯杰说：“你必须问每个海军陆战队员他们的理由。”
+
+这位指挥官感叹道：“但我认为我们受到了‘虚假信息’的挑战，这些‘虚假信息’仍然在四处游荡，如关于（中共病毒）起源在哪里，这种疫苗是如何被批准的，它是否安全，它是否符合道德，所有这些都在互联网上游荡，他们看到了所有这些，他们阅读了所有这些。”
+
+**新闻链接**
+
+[Vax Data: Just 0.06% of Religious Exemption Requests Have Been Granted for U.S. Marines](https://thenationalpulse.com/2022/01/23/less-than-1-percent-of-marine-exemptions-granted/)
+
+发布： *tianzhihuan*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

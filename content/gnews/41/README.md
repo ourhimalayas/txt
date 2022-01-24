@@ -2,31 +2,88 @@
 ---
 
 
-## 过去和现在的七哥，不同的脸庞一样的灵魂！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1898411/)
+## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898792/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-23-225848.jpg)
-七哥在几天前的大直播里晒出几张珍贵的老照片。那是一九七七年七哥刚好七岁，最珍贵的一张是他与死去的八弟及侄女的合照，还有两张同龄人的照片。那是一个时代的记录，更是一个时代的缩影，记录着所有当时中国人的悲惨命运。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-我也出生在东北吉林，与七哥是同龄人，面对这几张老照片我有着更深的体会与感受。他的老照片一下子将我的记忆带回到过去，带回到四十多年前。照片中天寒地冻，白雪皑皑，几个衣衫褴褛，食不裹腹的孩子在野外疯跑被照片意外的记录下来。照片中的七哥有着与年龄不符的成熟，表情凝重、眼神里若有所思，不像一个七岁的男孩，更像一个十四、五岁的少年，八弟与侄女倒是稚气未脱，与七哥对比强烈的是那张单独照片里的男孩兴高采烈、无忧无虑样子。七哥从小成为孩子王，展现出领袖气质，不是没有原因的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-照片里的这些孩子在零下三十四、五度的严冬，统统都没戴耳包，没有手套。我能想像他们皲裂的手，冻伤的耳朵，不合体的旧棉衣，然后每天蹬着自制的冰滑满山遍野地疯跑，只为取暖，只为寻找食物填饱肚子。这是所谓的“新中国”成立近三十年的生活写照，它是如此清晰，如此的真实。家里几天揭不开锅是常事。冬天他的母亲要在积雪地里拾捡柴草去烧饭取暖，那时许多人家冷得像冰窖一样，没有煤炭取暖，他时常站在山上眺望自家的烟筒，若不冒烟，就知道没啥东西可吃，经常两三天吃不上饭。从小他最担心的是母亲不堪生活重负而自杀抛下他们几个兄弟。每次他下山回家第一件事就是趴在自家的那口水井往下看，母亲是否在井里面？
+接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）](https://gnews.org/zh-hans/1898709/)
 
-杨改兰之死对他的触痛深入骨髓，因为感同深受，他母亲就是曾经的杨改兰。只是中国还有多少这样的母亲啊！中共建国七十年后还有千千万万个杨改兰生活在极度的贫困中，而中共的谎言却无处不在，已经是全球第二大经济体，世界上到处大撒币，却还有人因为被取消那几百块的低保杀死了自己和孩子们。
+让我们翻到这份报告的第63页，看看苏格兰公共卫生部门对COVID-19病毒疫苗接种状态的定义吧。
 
-你们相信吗？七哥说他从小就抓蛇、套狐狸、放火烧山。跟随他的发小有十五个人，活下来的只有三、四个人，你能说这不是中共统治下的中国底层民众的缩影吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-status.jpg)
 
-“天降大任于斯人也，必先苦其心志。”生活的艰辛磨炼了他钢铁般的意志，大山赋于他自由不羁的个性，上天赋于他绝顶的聪明与智慧。他聪慧好学，精力旺盛，永远有问不完的为什么？别的小孩都在寻找食物中苟活，但他却在生活实践中不断成长进步，而且从小就没有那些条条框框的束缚。他的双商之高让大人小孩没有不喜欢他的，他与成人的交往游刃有余，成人从他身上看到无限的未来与可能，而小伙伴则公认他是自己的领袖，注定他从小就是传奇的开始。
+COVID-19疫苗接种状态的定义：
 
-小时候他可以带人砸粪坑，溅人一身粪便，可以哄骗有钱子弟的糖果，可以领着小孩摸进生产队长的家里偷馍馍，可是他从来不曾失去心中的善良与正义。这来源于他母亲的言传身教。母亲是虔诚的佛教徒，她虽然大字不识，说不出漂亮的语言，讲不出高深的哲理，但她相信因果报应，相信善有善报，相信天道轮回。当她向邻居借一碗米，还米时一定是上尖碗的米，刮风下雨自家与邻居的茅草屋内都漏雨，她一定要儿子先帮助邻居，然后才是自己家。这种最朴素的善良，七哥从她的身上学会了感恩、分享、担当。七哥的父亲是个老实巴交的人，看管鱼塘被乡里恶霸打折了腿，几个哥哥跟那伙人理论发生争执，被砍了上百刀几乎丧命。这件事对他心理创伤难以磨灭，让从小他就懂得这个社会没有公平正义可言，那时他只有七八岁的样子。这也是促使他异常早熟的原因吧？
+未接种疫苗：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-当母亲领着他翻山越岭到乡医院去探望哥哥们，走廊里到处都是血，母亲絶望无助地哭嚎，在他幼小的心里播下对强权仇恨的种子。这可能是他日后苦练腿功，打遍十里八村、方原百里无敌手的主要原因，他以匡扶正义，除暴安良为已任，身边聚起了十几个小伙伴，他的八弟自然成了他的追随者，崇拜者。七哥成了这伙人的带头大哥，就像他成为新中国联邦人的带头大哥一样。如果生活顺着这条轨迹延伸，充其量七哥会成为像乔四一样的黑社会老大。
+接种过1针疫苗：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。
 
-然而八九、六四事件，清风看守所二十一个月的关押折磨，让他凤凰涅槃，浴火重生。八弟的惨死，十八年的相伴手足情深，他用自己短暂的生命唤醒了七哥复仇的决心与意志！消灭中共是正义的需要。从此开始七哥的传奇人生，完成上天赋于他的使命去推翻中共的邪恶统治，解救千千万万的杨改兰！
+接种过2针疫苗：指PCR检测COVID-19呈阳性时，接种过2针疫苗，且接种第2针疫苗的时间超过14天。
 
-三十年的卧薪尝胆，掀起了这场史无前例的推翻中共暴政的爆料革命。当这场革命已进入到深水区，七哥与中共全力搏杀之际，他是一人战一国。这几张四十多年前的老照片，展现在镜头前，他依旧控制不住自己的情绪，数次落泪。他说“他推翻中共解救亿万中国人，就是为了他的八弟，为了让他能够投胎转世，不上天堂，也不要下地狱。言语朴实无华，却打动无数人心。
+接种过3针或加强针疫苗：指PCR检测COVID-19时呈阳性，接种过3针，且接种第3针的日期超过14天。
 
-有战友将现在的七哥照片与四十多年前的老照片放在一起进行对比。发现此时的七哥两鬓染霜，却目光清澈明亮，有着孩子般纯真的笑脸，与七岁时凝重的表情，若有所思的眼神，形成了鲜明的对比。这是不是就是人们所说的返璞归真呢？
+很明显，这样的疫苗接种状态定义与正常人的认知差别很大。任何人的常识都是在打完针的下一秒开始，就认为自己已经打了COVID-19疫苗！
+
+这样的定义有什么意义呢？大量打完第1针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在未打疫苗群体内。大量打完第2针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了1针疫苗群体内。大量打完第3针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了2针疫苗群体内。
+
+总之，会让统计报告看起来，感染COVID-19病毒的人中，未打疫苗的比实际要多得多！
+
+比如，英国卫生部门2022年1月20日发布的每周Covid-19疫苗监测报告（[COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)）第38页，表12，2021年12月26日至2022年1月16日，英国每100,000接种３针或加强针疫苗和未接种疫苗的人群中未经调整的COVID-19 感染率、住院率和死亡率数据：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12.-Unadjusted-rates-of-COVID-19-infection-hospitalisation-and-death-in-vaccinated-and-unvaccinated-populations..jpg)
+
+我们注意到，对于30岁以上的人群来说，接种3针疫苗的人群感染率明显比未接种疫苗的人群高。
+
+但对于18岁以下和18~29岁的人群，接种3针疫苗人群感染率比未接种疫苗人群要低很多。尤其是18岁以下人群，未接种疫苗比接种3针疫苗感染率明显高得多。
+
+看到这样的报告，很容易被误导去打疫苗，甚至是打3针或加强针。尤其护子心切的家长们，是不是有迫不急待让自己孩子打３针疫苗的冲动呢？
+
+千万记住，这是在误导！
+
+这样的数据有什么问题呢？
+
+在这份报告的第17页，有英国各年龄段人群接种第1针疫苗的时间
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose1.jpg)
+在这份报告的第18页，有英国各年龄段人群接种第2针疫苗的时间
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose2.jpg)
+
+在这份报告的第19页，有英国各年龄段人群接种第3针疫苗的时间
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose3.jpg)
+
+通过这3个图可以看到，英国很多18岁以下的人是在最近才接种1针、2针或3针COVID-19病毒疫苗的。
+
+也就是说，存在很多打完第1针不超过21天的18岁以下的人，被计算到未打疫苗范围内。也存在很多打完3针不超过14天的18岁以下的人，被计算到只打了两针。
+
+如果仅仅是这一种误导，后果可能还远没有到非常严重的地步。
+
+更可怕的是，打完第1针疫苗后感染的人群中，50%左右是在接种完第1针后14天之内感染、住院或死亡的！
+
+接【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
+
+参考数据：
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
+
+[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
+
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
+
+[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+
+[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

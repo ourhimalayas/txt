@@ -2,30 +2,74 @@
 ---
 
 
-## 丹麦报纸为盲目给政府新冠言论背书而道歉
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1898712/)
+## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898840/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1..jpg)
-图片来源：Extra Bladet
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-一家丹麦主流报纸《Ekstra Bladet》1月7号为之前 “催眠式 “地、不加怀疑地追随政府对冠状病毒的叙述而向其读者公开道歉。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-Ekstra Bladet的标题是：”我们失败了”，该报编辑部在其中写道：”近两年来，作为媒体和民众，我们几乎被当局每天的冠状病毒数字催眠了”。 文章指责政客和当局在大流行的各个方面“撒谎”，导致这些机构失去公众信任，并指出卫生当局也大大夸大了疫苗结束大流行的功效。 该文质疑丹麦对儿童进行的大规模疫苗接种，而瑞典或挪威均还没有这样做过。
+接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](https://gnews.org/zh-hans/1898792/)
 
-作为媒体，本应该对政府保持警觉和监督，而媒体却失职了。文章说，官方公布的住院人数比医院实际住院人数高出 27%，而有多少人死于新冠病毒的数据早应该被公布，当局本应该“负责及时、准确和诚实地告知民众”。
+在2021年3月8日丹麦学者Ida Rask Moustsen-Helms等人发表的临床研究论文《[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)》一文中，详细记录了39,040名居住在长期护理机构（LTCF）的老人和331,039名一线医护人员（HCW）接种疫苗和接种疫苗后感染情况。
 
-“疫苗一直被称为我们的‘超级武器’。我们的医院被称为‘超级医院’，”编辑写道。 “这些超级医院显然受到了最大的压力，尽管几乎所有人员都配备了超级武器。甚至儿童也大规模接种了疫苗，这在我们的邻国还没有做。” 编辑嘲讽说，当局与民众的沟通绝对配不上“超级”一词。
+在这份文件的第3页，表1（Table 1 –Descriptive overview of median age, median follow-up and SARS-CoV-2 confirmation by vaccination status in 39,040 LTCF residents and 331,039 HCW followed from 27 December 2020, to 18 February 2021 in Denmark.）记录了疫苗接种情况
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-1-–Descriptive-overview-of-median-age-median-follow-up-and-SARS-CoV-2-confirmation.jpg)
+在这份文件的第4页，表2（Table 2 – Vaccine effectiveness with accompanying 95 % confidence intervals for LTCF residents and HCW after first and second vaccine dose）记录了接种COVID-19疫苗后，感染的时间
 
-公开道歉是欧洲媒体日益增长的趋势，媒体已开始质疑政府的叙述和反应。例如，德国顶级报纸之一的《图片报》就去年 8 月对新冠病毒的恐慌发表了道歉，当时该报声称孩子们“会谋杀他们的祖母”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-2-–-Vaccine-effectiveness-with-accompanying-95-confidence-intervals.jpg)
 
-《图片报》主编 Julian Reichelt 说，“对于我们的社会对这个国家的数百万儿童负责，我想在这里表达我们的政府和总理都不敢告诉你们的话， 我们请求您原谅我们，我们的这些政策让孩子们成为暴力、忽视、孤立和孤独的受害者。我们曾经说服我们的孩子，说如果他们敢于做他们自己，他们会谋杀他们的祖母，或者他们的朋友。而我们说这些都没有得到科学证明。”
+居住在长期护理机构（LTCF）的39,040名老人中，有95.2%打了1针疫苗，86%打了2针疫苗，其中760人是在接种完第1针COVID病毒疫苗后14天内感染，占投种1针后感染的55%。
 
-来源链接
+在331,039名一线医护人员中，有27.8%打了第1针疫苗，其中1189人是在接种完第1针COVID病毒疫苗后14天内感染，占接种一针后感染的35%。
 
-[Extra Bladet](https://ekstrabladet.dk/nyheder/lederen/vi-fejlede/9072013)
+加拿大Alberta省在网站关于《[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)》中申明，接种第1针疫苗后14天内的人感染中共病毒，不算接种1针COVID-19病毒疫苗后感染，而是计算在未接种疫苗感染COVID-19病毒范围内。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-case-outcomes-in-Alberta-by-vaccine-status.png)
+多么可怕的误导！
 
-[‘WE FAILED!”](https://gellerreport.com/2022/01/we-failed-denmarks-largest-newspaper-apologizes-for-mindlessly-parroting-government-narrative.html/)
+因此Alberta省得出了以下结论：自2021年1月1日以来，0.5%的人（18,612/3,516,687）在第一次接种中共病毒疫苗后14天被诊断出感染COVID-19；在第二次接种中共病毒疫苗后14天，有3.5%的人(113,969/3,240,167)被诊断出感染COVID-19；在接种3针中共病毒疫苗后14天，有1.1%的人 (15,286/1,333,330)被诊断出感染COVID-19； 59.3%的病例(215,489/363,356)未接种疫苗或在接种第1针中共病毒疫苗后两周内被诊断出感染COVID-19；74.6%的住院病例(10,595/14,208)未接种疫苗或在第1针疫苗接种后两周内被感染；72.8%的COVID-19死亡(1,381/1,898)病例，未接种疫苗或在接种第1针疫苗后两周内被诊断出感染COVID-19。
+
+没有区分出相当比例的接种第1针COVID-19病毒疫苗后确诊的感染者！而是把这些接种COVID-19病毒疫苗不超过14天的感染者和真正从未接种疫苗的人混到一起计算！
+
+非常幸运的是，尽管加拿大Alberta省突然争先恐后地从他们的网站上删除了早期数据，但[从2020年3月20日到2022年1月14日的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)被Joel Smalley等人完事的保留下来。
+
+这份文件详细记录了注射完第1针中共病毒疫苗后第1天到373天内，各年龄段的人群确诊COVID-19、因COVID-19住院和因COVID19死亡的数量统计。
+
+这是一份非常珍贵的文件！
+
+根据这份文件的数据统计，在注射中共病毒疫苗后确诊感染COVID-19的人中，有39.4%是在打完针后14天内被确诊，76.6%的人是在打完针后45天内被确诊。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date.jpg)
+
+在注射中共病毒疫苗后住院的COVID-19病例中，有47.6%是在打完针后14天内发生，79.6%的人是在打完针后45天内发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date2.jpg)
+在注射中共病毒疫苗后死亡的COVID-19病例中，有55.6%是在打完针后14天内发生，89.3%的人是在打完针后45天内发生。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-deaths-date-to-COVID-19-diagnosis-date3.jpg)
+
+通过这份文件记录的数据，可以想像，有多少打完COVID-19病毒疫苗后感染、住院和死亡的人，被错误的记录到了未接种疫苗人群中，导致人们根据政府的疫苗监测报告而做出错误的判断！
+
+中共病毒疫苗有毒，千万不要被公共卫生部门误导性的疫苗监测报告误导！
+
+参考数据：
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
+
+[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
+
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
+
+[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+
+[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
+
+[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
+
+[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

@@ -2,26 +2,26 @@
 ---
 
 
-## 新中国联邦创始人郭文贵先生寄语G-EDU上线
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898155/)
+## IMF主席称中共清零政策已成世界经济负担
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1898280/)
 
-作者：纽约香草山农场 文鹰
-
+作者：
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日，国际货币基金组织IMF总裁表示，中共国在对待冠状病毒采取的“清零”政策，已经成为世界经济的负担，而需要重新评估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-上午9.10.36.png)
+“清零”政策是指政府通过强硬的公共卫生措施，如大规模核酸检测、封闭整个城市、转移并集中监控整个社区，以及严格的边境检疫等等极端措施，意图彻底消除病毒。
 
-1月21日盖特消息，郭文贵先生对新中国联邦GEDU教育平台上线寄予厚望。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-10.19.27-PM.png)
-GEDU教育平台由喜马拉雅纽约磐石农场开发，历经两个月运行，于1月21日正式上线。郭先生庆贺G-EDU教育平台成功上线，并感谢教育平台战友们的辛勤付出。
+IMF总裁格奥尔基耶娃在接受媒体采访时说，中共国的“清零”政策，在大流行开始之初，遏制战略似乎比较成功。但这些严厉的手段对传染率惊人的奥密克戎来说，已经没有多少成效了。相反，带来的风险远多于益处，对中共国内和整个世界的经济复苏都造成了冲击。
 
-郭先生表示，新中国联邦的教育平台上线意义重大。在病毒疫情的艰难时刻，我们有了新的希望，新的未来。它的目标和方向，就是在没有共产党的新中国联邦来后，培养一批智慧，勇敢，善良，有信仰的，健康诚实的，让人尊敬的新中国新一代人！
+格奥尔基耶娃指出，中共国这种“清零”政策越来越成为世界经济重启的负担。另外，所有国家都必须重新评估应对大流行病的最佳方案。
 
-参考链接：[新中国联邦创始人郭文贵先生对GEDU的寄语：](https://gettr.com/post/ppruuf777d)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-编辑：Ivy001
-总编：Jack Li文阳
-校正/发稿：我不在这里
+总编：
+编辑：
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,9 +29,7 @@ GEDU教育平台由喜马拉雅纽约磐石农场开发，历经两个月运行�
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
