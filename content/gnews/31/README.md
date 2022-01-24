@@ -2,33 +2,33 @@
 ---
 
 
-## 再次揭露HBO精心编织的谎言（part1）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901931/)
+## 封城下的西安官方扔掉各地捐赠的食品蔬菜却不发给百姓
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902041/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-前几周，我们播放了针对HBO污蔑郭先生、爆料革命以及中国人民的反击视频，主要用HBO采访的真实记录揭露他们是如何造假的。从今天开始，我们将连续播放另一组揭露HBO编织谎言的视频，给大家提供更多真相。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-34.jpg)
+西安市民拍摄到的被扔进垃圾堆里的白馍（图片来自阿波罗新闻网 ）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13-7.png)
+中共国陕西省西安市因中共病毒疫情被“封城”超过一个月，在此期间，缺菜少粮等民生问题令市民怨声载道、苦不堪言。然而近日，有当地市民拍摄视频揭露，各地捐赠的大量食品和蔬菜被西安官方扔进了垃圾堆，引发了民众的愤怒。
 
-今天，我们首先提出与HBO谎言有关的几个问题，然后会在接下来的视频播放中为大家一一解答。请看揭露HBO精心编织的谎言第一部分。
+据《阿波罗新闻网》1月24日报道，陕西省安康市市民王军1月初为西安捐赠了一万个爱心白馍。为了赶制这批白馍，王军的店铺甚至还停业了3天。据王军介绍，有十几个志愿者前来帮忙加工，并将爱心白馍送往西安捐赠给市民。
 
-参考链接：
+然而据网民近日转载的一段拍摄于1月22日的视频显示，安康市民为西安百姓捐赠的白馍被扔进了垃圾桶！此事引发了网民的愤怒。
 
-- [HBO Vice’s Interview with Mr.Miles Guo without Edits: Thoroughly Exposing HBO Vice’s Sinister Attack](https://www.youtube.com/watch?v=z9HvjLuSgA8)
+据了解，根据规定，各地捐赠物资均须由当地政府部门统一协调分配。西安市官方23日对此回应称，这是当地一家店铺的饼因存放发霉而扔进了垃圾桶。不过，对于这一解释网民们并不买账，因为中共官方的说辞几乎没人会信。
 
+无独有偶，1月23日，有西安市民拍摄到的另一则视频显示，各地捐赠的大量爱心蔬菜被扔进了垃圾堆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+拍摄视频的市民表示，疫情期间百姓吃不上菜，可整箱整箱完好的菜就这样全被扔掉了，这简直不是人干的事。该市民还现场打开了一箱扔掉的菜，拿出几个用泡沫薄膜包着的西葫芦。去掉薄膜可见，西葫芦新鲜且没有任何坏损， 然而却被整箱地扔进了垃圾堆。
 
-编辑：飞虹
-校正/发稿：海阔天空1
+在视频中，该市民还拍摄到了被扔掉的同样完好的豆角等蔬菜。被扔掉的蔬菜箱大概有几十箱，有些甚至连箱子都没打开过。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共官方扔掉或截留捐赠物资之事屡见不鲜，此前就曾被多次曝光这类丑闻：大量捐赠的食品和蔬菜被官方当作垃圾处理掉；有些蔬菜烂在仓库里没人管；而有些蔬菜则被当地官员、警察、城管和社区管理人员瓜分，甚至还出现将捐赠物资高价卖给当地市民的令人发指的恶举。
+
+新闻链接：[https://www.aboluowang.com/2022/0124/1699858.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0124/1699858.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+
+* * *
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,26 @@
 ---
 
 
-## 乌克兰-俄罗斯冲突再起，中共考虑侵台时机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901351/)
+## 中日财经爆│从根本上改变银行业务引进新系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901470/)
 
-#### **【雅典娜观察】和您一起探究世界**
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-76.jpg)[图片来源](https://www.google.com/search?q=%EF%BC%B3%EF%BC%A2%EF%BC%A9%E5%9C%B0%E9%8A%80%EF%BC%A8%EF%BC%A4&amp;rlz=1C1YKST_enUS900US901&amp;biw=1366&amp;bih=625&amp;sxsrf=AOaemvKg_NSEa_zFmUdr_dANXXIugiUOOg:1642997159758&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjMxcuwwcn1AhV_JUQIHWSwAXoQ_AUoAnoECAEQBA#imgrc=mDJjBsN822HiKM&amp;imgdii=53zECSE5XWxeIM)
+网络银行SBI控股公司（HD）旗下，向多家地方银行出资的SBI地银HD总经理森田俊平接受了采访。
 
-整理报道：Little lamp
-编辑：文泓
+森田表示，到2030年为止，将在10家银行引进正在开发中的新一代基干系统。他强调，通过新系统加速地银数字化，从根本上改变银行业务。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/KR475YGGHRT_VR3.png)图片来源：Qirim News
+福岛银行20日决定引进新系统，这是福岛银行的第一步。其特点是能迅速引进智能手机投资融资和结算等先进的数字金融服务。年使用费为10亿日元左右，而开发资金则由SBI集团设立的基金承担。即使是小规模的地银，也可以降低初期费用，采用新系统。森田康夫指出:“要想在现有系统上连接数字服务，需要投入巨额费用。对于要求变革的银行来说，这是非常合适的。”森田还表示，随着数字化的发展，原则上不需要传票和印章等营业店的事务工作也将大幅减少，因此可以增加顾客咨询业务等的人力。“如果不认真支援顾客的本业，地银就无法生存下去。为此，变革是必不可少的。”
 
+对于SBIHD子公司化的新生银行，他强调说:“如果与（出资方）地银进行投资融资联系，将会产生很大的影响。”同时还表示，对于此前个别地银无法应对的地方企业扩大规模的资金需求，也可以通过与新生银的合作来应对。
 
-当地时间1月2日，据《大纪元》报导，美国前国家安全顾问罗伯特‧奥布莱恩上周五警告，美国的敌人正在密切关注拜登和普京总统在乌克兰-俄罗斯冲突的举措。如果时机到来，中共就值得冒险攻打台湾，进而引发严重后果，进一步威胁到美国利益。
+信息来源：
 
-“我们在欧洲主要国家安全利益在于确保北约得到捍卫，因此我们不希望俄罗斯对非北约朋友横行霸道，给我们的北约盟国带来更多压力。这是其一。”
+[銀行業務を抜本的に変革　新システム導入で―森田ＳＢＩ地銀ＨＤ社長](https://www.jiji.com/sp/article?k=2022012300245&amp;g=eco)
 
-如果普京选择入侵乌克兰，“俄罗斯将付出沉重代价”。奥布莱恩说，与此同时，“中共国正在非常仔细地观察此事。习近平正在观察弗拉基米尔‧普京的一举一动，正在权衡——他在考虑是否在奥运会后入侵台湾的问题。”
-
-“台湾是（美国）太平洋上的软木塞，”奥布莱恩说，如果台湾沦陷，中共军队“就会流向太平洋，威胁到夏威夷，威胁到加利福尼亚或阿拉斯加州的阿留申群岛”。
-
-中共入侵台湾也可能切断美日联盟，还可能切断美国与新西兰、澳大利亚和菲律宾的盟友关系。
-
-“一些独裁国家以为可以靠入侵及征服邻国实现自身利益，但这不是国际关系中的新常态。因为它的后果将远远超出乌克兰一地，”他总结说。
-
-新闻来源：[美前国安顾问：中共紧盯乌俄冲突 考虑攻台时机](https://www.epochtimes.com/gb/22/1/22/n13522918.htm)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

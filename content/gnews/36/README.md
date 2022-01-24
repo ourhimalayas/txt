@@ -2,39 +2,35 @@
 ---
 
 
-## 有声|美反对强化世卫计划阻止中共渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901562/)
+## 爱尔兰取消几乎所有封锁措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901923/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月21日，爱尔兰总理迈克尔·马丁在全国的电视讲话中说，爱尔兰将于次日取消几乎所有的中共病毒限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-19.png)
+马丁表示，该国经受住了奥密克戎的考验。就在上周，爱尔兰的中共病毒确诊率还位居欧洲第二，但随后病例数迅速下降，住院和死亡人数保持平稳。因此，爱尔兰政府决定从1月22日开始，酒吧和餐馆不再需要晚上8点关门，也不再要求顾客提供疫苗接种证明。室内外公共场地的人数不再受限制。但2月底之前，人们仍然需要在公共交通工具和商店超市里戴口罩。
 
-根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
+评论人士指出，爱尔兰一直是欧盟中对病毒风险最为谨慎的国家之一，对旅游业、服务业的限制持续时间最长。宣布解封，无疑受到这些行业的欢迎。目前，“英伦三岛”已经先于欧盟其它成员国，甚至北美、澳洲等国，也放弃了实施两年的封锁措施，为经济进一步的复苏提供了良好条件。
 
-美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
+参考链接：
 
-原文链接：[美反对强化世卫计划阻止中共渗透](https://gnews.org/zh-hans/1898331/)
+- [Ireland drops most COVID restrictions in wake of ‘Omicron storm’](https://www.reuters.com/business/healthcare-pharmaceuticals/ireland-set-rapidly-drop-almost-all-covid-19-restrictions-2022-01-21/)
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Lakeman文仁
+编辑：Ivy001
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

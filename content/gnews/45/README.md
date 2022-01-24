@@ -2,34 +2,25 @@
 ---
 
 
-## NBA球星坎特呛声姚明 称想到访新疆集中营
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1901115/)
+## 拜登没能威慑俄罗斯和中共国，我们可能最终会陷入一场全球冲突
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901386/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+翻译：Frank
+校对：Lish
+剪辑|字幕：蛮吉
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DB1F5E29-B475-4EC5-AAF0-7E8BC6533C31.jpeg)（图片来自中央社）
+前中央情报局站长丹·霍夫曼在接受福克斯新闻采访时表示，俄罗斯已经潜藏了10万军队，他们现在有一把上了膛的枪对准乌克兰。哈德逊研究所的高级研究员丽贝卡·海因里希斯认为，美国参议员们并没有为保卫乌克兰做出实质性帮助。章家敦认为，亚洲也面临同样的情况。俄罗斯和中共在军事上一旦有动作，朝鲜人、伊朗人、巴基斯坦人也会跟进，所以我们可能最终会陷入一场全球冲突。
 
-中共国篮球协会主席姚明日前邀请NBA球员坎特访问中共国，坎特回复他愿意，但前提是要能看到中共国真实面貌以及能到访新疆集中营，并反邀姚明一同访问台湾和香港，并让他跟中共国网球选手彭帅自由对话。
+视频链接：[Senators meet in Ukraine to reaffirm US is united against ‘Putin’s belligerence’](https://www.foxnews.com/politics/senators-meet-ukraine-reaffirm-us-united-against-putins-belligerence)
 
-据中央社1月23日的报道，NBA球星坎特日前在推特表示：我真的想要亲眼去看看那里的一切，但这趟旅行，我想要问姚明先生，我能够参观新疆的劳动营吗？可以拜访被虐待和强暴的无辜女性吗？可以看到中共政权强摘器官后如何毁尸吗？我能见到网球选手彭帅吗？我能直接跟她谈话，问她安不安全、好不好吗？她能够自由答复吗？还是你只是会给我听那些宣传？
+**发布：***tianzhihuan*
 
-坎特提到，在中共政府残忍统治下，藏人没有基本权利和自由；香港曾是全球最自由的城市之一，现在天天上演的是新闻自由被毁、权利遭打压以及逮人场景。
-
-此外，坎特还告诉姚明，中共不能收买他，「我不需要中共提供的豪华行程，我希望全世界看到中国真实的一面」。
-
-他最后表示，如果姚明答应他的要求，「我会自己买机票，搭今夏第一个航班到中国」。
-
-据悉，根据美国国务院估计，自2017年以来，有高达200万维吾尔人和其他少数民族被拘留在新疆集中营。中共在新疆犯下种族灭绝的罪行得到大多数欧美国家的确认，这些国家对于中共在相关方面的制裁政策也在不断推行当中。
-
-*参考链接：[NBA球星坎特願睹中國真面貌 邀姚明訪台見證民主](https://www.cna.com.tw/news/aopl/202201230177.aspx)*
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
