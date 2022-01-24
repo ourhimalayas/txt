@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|加拿大卡车司机开始封堵美加边境的高速通道
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904916/)
+## 全球数十万人走向街头抗议强制疫苗政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1904944/)
 
-配音：香草山农场 – 纳米
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-54.png)图片来源：网络照片
+据多家媒体报道，在过去的这个周末，成千上万的加拿大人在全国各地数十个城市参加“为自由而抗争”的活动，抗议强制疫苗政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-在全球各地的人们面对“no jab，no job”这种粗暴侵犯基本人权的中共病毒疫苗暴政之时，卡车司机群体一向是最坚强和团结的群体。加拿大的卡车司机们付诸行动，除了在加拿大各地抗议，1月22日，他们开始关闭加拿大和美国之间的物流通道，希望通过这些举措夺回自己的权利。
+“为自由而抗争”是全球活动，几十万人在世界各地走上街头，公开反对强制接种疫苗、疫苗护照、为未成年儿童接种疫苗等。美国、加拿大、法国、意大利、英国、澳大利亚、新西兰、瑞士、阿根廷、乌拉圭、南非等超过200个城市参加了这个周末的活动，
 
-文字版原文：[加拿大卡车司机开始封堵美加边境的高速通道](https://gnews.org/zh-hans/1901681/)
+在多伦多，PPC领袖Maxime Bernier 发表讲话说“当暴政成为法律时，革命就成为我们的责任”， “我们正在赢得这场战斗，因为真相将永远获胜” 。在华盛顿，马龙博士及十几名医生参加了此次示威。 他在演讲时称“”疫苗不能保护我们的孩子免受Omicron感染。它们不能防止受感染的儿童感染他人。相比之下，制药公司和政府几乎完全受到保护，免受这些产品可能造成的任何损害。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+此外，“2022年自由车队”的成千上万的卡车司机从加拿大西部BC出发，与其他成员聚在首都渥太华，抗议政府对卡车司机的强制疫苗政策，一周来为卡车司机的捐款已逾三百万，参加人数可能超过50万人。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我们非常高兴看到北美、南美洲、欧洲的民众开始清醒、抵抗全球主义极权的宣传、为我们失去的自由而奋战。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**新闻来源：**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[Tens of thousands of Canadians protest COVID-19 restrictions at freedom rallies across country | True North (tnc.news)](https://tnc.news/2022/01/23/tens-of-thousands-of-canadians-protest-covid-19-restrictions-at-freedom-rallies-across-country/)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Dr. Malone, Mrna Inventor, Gives Speech Against Vaccine Mandates In Washington D. C. Freedom Rally – The Washington County Auditor](https://thewashingtoncountyauditor.com/dr-malone-mrna-inventor-gives-speech-against-vaccine-mandates-in-washington-d-c-freedom-rally/)
 
  
 

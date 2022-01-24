@@ -2,53 +2,31 @@
 ---
 
 
-## 天津爆发大规模抗议 超十万民众声讨中共当局
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904214/)
+## 华盛顿特区：数千名抗议者反对疫苗强制
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904389/)
 
-**作者**：纽约香草山教育部-Noemi
+2022-01-22
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-24.jpg)
-
-
+**翻译报道：沉默老歌**
 
 
+华盛顿特区抗议疫苗强制现场，WUSA9报道
+据Kyros于2022年1月24日在WUSA9的报道，周日（1月23日），反疫苗强制的活动家们抵达华盛顿特区参加“击败强制”集会。
 
-1月23日，有盖特网友视频爆料，中共国天津市在近日发生了大规模的民众抗议，参与抗议的整体人数已超过了十万人次。
+有数千名抗议者参加在购物中心举行的集会，也是华盛顿特区规定当地企业必须出示疫苗接种证明的一周后。居民们担心，全市范围内的要求将引发外地抗议者和当地人之间的冲突。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_2556.jpg)
+来源链接：
+[WUSA9: Thousands rally in DC Sunday against vaccine mandates](https://www.wusa9.com/amp/article/news/local/thousands-of-protestors-arriving-in-dc-ahead-of-anti-vaccine-rally/65-37fdd7fd-b628-4236-82aa-7a54ffc25204)
 
-从视频中可见，拍摄时间为深夜，有大量民众聚集在当地的一处广场上一边摄像一边发出高声抗议。而中共派出的大量警方人员已与当地民众激烈推搡在一起，有个别民众遭到警方逮捕。现场上可见一位民众在被警方殴打后已当场丧失意识。
+编辑：LILY
 
-据了解，这些抗议的市民先后占领了当地的多个公共广场并向中共当局发起了强烈声讨，但随后就被当地政府派出的大量武警、特警镇压。截至目前，已有多名市民重伤、被捕。
+发布：MQ
 
-新闻来源：
+校对：MQ
 
-[https://www.gettr.com/post/pq1oa94d2e](https://www.gettr.com/post/pq1oa94d2e)
-
-***总编：飞虹***
-
-***校对/发稿：遍地开花***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
-
-
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

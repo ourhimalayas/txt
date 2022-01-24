@@ -15,116 +15,116 @@
 
 ---
 
-### [在最黑暗的2022年病毒基本结束后人类步入疫苗灾难期](/content/gnews/1/README.md)
+### [王岐山和曾庆红把习近平推上冬奥会和达沃斯论坛的谢幕](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](/content/gnews/2/README.md)
+### [习近平提疫苗经济就是要用被打疫苗者的生病和死亡发财](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [加拿大魁北克省一家医院的护士无意间说出了关于疫苗和疫情的真相](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [在最黑暗的2022年病毒基本结束后人类步入疫苗灾难期](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](/content/gnews/5/README.md)
  ` YALUN 亚伦`
 
-### [每日快报： 新罕布什尔州药店可能很快可以提供伊维菌素](/content/gnews/3/README.md)
+### [每日快报： 新罕布什尔州药店可能很快可以提供伊维菌素](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [习近平最怕美国加息挤破中国泡沫中国老百姓去杀共产党](/content/gnews/4/README.md)
+### [习近平最怕美国加息挤破中国泡沫中国老百姓去杀共产党](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥2017年说的踢出中概股和美国金融危机已如期而至](/content/gnews/5/README.md)
+### [七哥2017年说的踢出中概股和美国金融危机已如期而至](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [孙力军明白电视一认罪就不会死就会看着习、王互相弄死](/content/gnews/6/README.md)
+### [孙力军明白电视一认罪就不会死就会看着习、王互相弄死](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文贵先生直播重点大纲2022/01/24](/content/gnews/7/README.md)
+### [文贵先生直播重点大纲2022/01/24](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平以外溢效应暗示脱钩就输出革命和贫穷大家一起死](/content/gnews/8/README.md)
+### [习近平以外溢效应暗示脱钩就输出革命和贫穷大家一起死](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [世界与共产党脱钩意味着中国人民彻底脱险、脱假、脱控](/content/gnews/9/README.md)
+### [世界与共产党脱钩意味着中国人民彻底脱险、脱假、脱控](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [1/24/2022 文贵直播：冬奥会开幕式不允许提邓小平在南方画了个圈，要称习为党和国家核心领导人以定一尊，还要把冬奥会说成是改革开放走向新纪元](/content/gnews/10/README.md)
+### [1/24/2022 文贵直播：冬奥会开幕式不允许提邓小平在南方画了个圈，要称习为党和国家核心领导人以定一尊，还要把冬奥会说成是改革开放走向新纪元](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [教育和金融系统是喜联储新中国联邦及G系列设计的由来](/content/gnews/11/README.md)
+### [教育和金融系统是喜联储新中国联邦及G系列设计的由来](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [我们的道德责任是不服从不公正的授权](/content/gnews/12/README.md)
+### [我们的道德责任是不服从不公正的授权](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美联储审时度势或将与喜联储全面合作](/content/gnews/13/README.md)
+### [美联储审时度势或将与喜联储全面合作](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多与索罗斯合作深度操纵难民慈善基金](/content/gnews/14/README.md)
+### [特鲁多与索罗斯合作深度操纵难民慈善基金](/content/gnews/17/README.md)
  ` 扬帆枫叶快讯`
 
-### [世卫组织呼吁各国取消疫情旅行禁令](/content/gnews/15/README.md)
+### [世卫组织呼吁各国取消疫情旅行禁令](/content/gnews/18/README.md)
  ` 扬帆枫叶快讯`
 
-### [除疫苗护照外法国将取消大部分疫情限制](/content/gnews/16/README.md)
+### [除疫苗护照外法国将取消大部分疫情限制](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [美疾控中心改口称：自然免疫优于接种疫苗](/content/gnews/17/README.md)
+### [美疾控中心改口称：自然免疫优于接种疫苗](/content/gnews/20/README.md)
  ` 扬帆枫叶快讯`
 
-### [安大略省政府计划逐步取消疫情限制](/content/gnews/18/README.md)
- ` 扬帆枫叶快讯`
-
-### [北京冬奥会的雪，是最毒的雪](/content/gnews/19/README.md)
+### [北京冬奥会的雪，是最毒的雪](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年1月24日大直播速记精萃](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [中共国对冬奥运动员寄语：闭嘴滑雪](/content/gnews/21/README.md)
- ` Shuizhuyu`
-
-### [有声|加拿大卡车司机开始封堵美加边境的高速通道](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|GTV新闻访谈简报|2022年1月23日晚](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [北约将向东欧派遣更多船只和战斗机](/content/gnews/24/README.md)
- ` Shuizhuyu`
-
-### [【国际时评】法国防疫策略新动向及其影响](/content/gnews/25/README.md)
- ` 温哥华扬帆农场`
-
-### [英国多个地区 NHS工作人员举行集会抗议强制疫苗计划](/content/gnews/26/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [《灾难性的道德犯罪》——HBO名嘴吐槽左翼州中共病毒疫苗政策](/content/gnews/27/README.md)
+### [全球数十万人走向街头抗议强制疫苗政策](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界大对决，热战序幕正在拉开](/content/gnews/28/README.md)
+### [2022年1月24日大直播速记精萃](/content/gnews/23/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国对冬奥运动员寄语：闭嘴滑雪](/content/gnews/24/README.md)
+ ` Shuizhuyu`
+
+### [北约将向东欧派遣更多船只和战斗机](/content/gnews/25/README.md)
+ ` Shuizhuyu`
+
+### [【国际时评】法国防疫策略新动向及其影响](/content/gnews/26/README.md)
+ ` 温哥华扬帆农场`
+
+### [英国多个地区 NHS工作人员举行集会抗议强制疫苗计划](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [白宫正在为加密货币领域制定宏伟计划](/content/gnews/29/README.md)
+### [《灾难性的道德犯罪》——HBO名嘴吐槽左翼州中共病毒疫苗政策](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [世界大对决，热战序幕正在拉开](/content/gnews/29/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [白宫正在为加密货币领域制定宏伟计划](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵爆料 1.24：万物萧瑟中，喜币一枝独秀](/content/gnews/30/README.md)
+### [文贵爆料 1.24：万物萧瑟中，喜币一枝独秀](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [小罗伯特·肯尼迪发表演讲反对强制疫苗和医疗暴政](/content/gnews/31/README.md)
+### [小罗伯特·肯尼迪发表演讲反对强制疫苗和医疗暴政](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [奥地利议会批准成人疫苗强制令](/content/gnews/32/README.md)
+### [奥地利议会批准成人疫苗强制令](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美海军拦截了一艘伊朗的船只](/content/gnews/33/README.md)
+### [美海军拦截了一艘伊朗的船只](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [【TopNews】超超限战：“甜蜜蜜运动”将堪比和平洋刀直插中共心脏](/content/gnews/34/README.md)
+### [【TopNews】超超限战：“甜蜜蜜运动”将堪比和平洋刀直插中共心脏](/content/gnews/35/README.md)
  ` topnews`
 
-### [华盛顿特区：数千名抗议者反对疫苗强制](/content/gnews/35/README.md)
+### [华盛顿特区：数千名抗议者反对疫苗强制](/content/gnews/36/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [天津爆发大规模抗议 超十万民众声讨中共当局](/content/gnews/36/README.md)
+### [天津爆发大规模抗议 超十万民众声讨中共当局](/content/gnews/37/README.md)
  ` GTV News Talk`
-
-### [GTV新闻访谈简报|2022年1月24日早](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
 
 ### [美军两个航母打击群进入南海争议区域 表达维护盟友立场](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
@@ -162,35 +162,35 @@
 ### [我们天上见](/content/gnews/49/README.md)
  ` 骄子`
 
-### [台湾前线｜Omicron感染持续扩大 首批默沙东口服药抵台](/content/gnews/50/README.md)
+### [01/24每日播报|社媒消息：蓬佩奥 班农先生](/content/gnews/50/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [台湾前线｜Omicron感染持续扩大 首批默沙东口服药抵台](/content/gnews/51/README.md)
  ` 關注組`
 
-### [岸田内阁支持率达66%](/content/gnews/51/README.md)
+### [岸田内阁支持率达66%](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令](/content/gnews/52/README.md)
+### [【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令](/content/gnews/53/README.md)
  ` topnews`
 
-### [NBC和ESPN拒绝派播报团队出席北京冬奥会](/content/gnews/53/README.md)
+### [NBC和ESPN拒绝派播报团队出席北京冬奥会](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [中共大外宣伊索贝尔爱吃狗肉](/content/gnews/54/README.md)
+### [中共大外宣伊索贝尔爱吃狗肉](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生解析数字货币钱包的含义](/content/gnews/55/README.md)
+### [郭文贵先生解析数字货币钱包的含义](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [中共高调纪念南巡讲话的真正动机](/content/gnews/56/README.md)
+### [中共高调纪念南巡讲话的真正动机](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2022年1月23日晚](/content/gnews/57/README.md)
+### [GTV新闻访谈简报|2022年1月23日晚](/content/gnews/58/README.md)
  ` 纽约香草山MOS01`
 
-### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）](/content/gnews/58/README.md)
+### [【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）](/content/gnews/59/README.md)
  ` 温哥华扬帆农场`
-
-### [丹麦报纸为盲目给政府新冠言论背书而道歉](/content/gnews/59/README.md)
- ` 秘密翻译组-原创组`
 
 ### [中共国希望将美国文化女性化以进行控制](/content/gnews/60/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

@@ -2,42 +2,36 @@
 ---
 
 
-## 七哥2017年说的踢出中概股和美国金融危机已如期而至
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905143/)
+## 瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1905173/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ee421a87664c47acd93190](https://gtv.org/video/id=61ee421a87664c47acd93190)
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-**郭文贵先生**：大家记住，只有七哥说的话啊，只有咱新中国联邦说的话，两三年前我说过：中资股都会被踢出美国和西方。2017年说的脱钩，我是第一个说的，路大脑骗这个孙子这个垃圾，把我跟他私人说的话报出去的，记住了吧？现在发生，中资股还有吗？没了吧！
+1月24日，郭文贵先生于GTV、Gettr直播中透露了近日和准备大额投资Hcoin（喜币）的人士（用瑞士的资金间接投资Coinbase、 ETH的前五大股东）的会议内容，并表示，一个Hcoin（喜币）达到价值10万美元不算是目标。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/abf83ee7ec7a8bc6af3932e51cdf1b42.jpg)图片来源Gettr香草山
 
-第二我说过：美国的股票和金融危机一定是有史以来最糟糕的，现在已经跌了20%了。你看这几天记住七哥我告诉你们的，美国的年报就是从现在开始，你看看高盛的年报，你看看几个金融机构的年报和几个大基金的年报，丑到不能再丑。战友们你们要懂得，美国的年报它今年赔的钱和今年所有做的假，在今年的时候还有机会再弄，明年就没机会了，为什么？它是一个逐渐的过程，它现在往上凑，它现在你看大部分是亏20%、30%将近，接下来会更多，你会看到美国和欧洲的经济“啪”就下来。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+据悉，有与会人士后悔地透露，为了测试喜交所系统的真实性，自己曾偷偷地以24美元一个Hcoin（喜币）的价格卖掉70万个币，并且成功把所有现金提走。而且表示，Hcoin（喜币）也是他们家族唯一直接持有的数字货币，现在都以拥有Hcoin（喜币）为荣。与之对比的是，币安的赵长鹏通过行贿他的下属，以此希望他能投资币安。但通过郭先生的提醒后马上表示，整个国家绝对不再接触币安，而且会全力配合加拿大、日本、台湾对币安案件的调查，还会在有必要的情况下把赵长鹏遣送到这些国家。
 
-编辑整理：Jacques；
+郭先生建议不要再说Cryptocurrency，而是Digital Currency（数字货币）。同时希望对方早日成立世界第一家数字货币基金，可以领导人类货币走向新世界，其意义不亚于拥有一个新的美元系统。
 
-字幕文件制作：小满；
+最关键的，从2019年年底开始在不到26个月的时间里，全球通过量化宽松（QE）印发了260万亿美元，将近是世界GDP的两倍。然而，目前数字货币总市值也就只有3万多亿美元。在这些新增的法币当中，倘若只有10%流入到数字货币市场，数字货币市场的市值将不可想象。而3-5年的短期内最值钱的数字货币将只有三种，即Hcoin（喜币）、Bitcoin（比特币）和ETH（以太坊），三者会占据数字货币80%的市值。到那个时候，可能三者都会超过10万美元一个。所以，一个Hcoin（喜币）**价值**** 10万美元并不算是目标**。
 
-视频制作及上传：Cindy；
+况且，能自由流通的，从第一天就有最完善合法KYC开户系统的，每年用发行币值的20%购买黄金储备的，既有稳定币又有浮动币的，有中心化机构负责的，唯有Hcoin（喜币）。反观币安，币安的KYC问题是无法弥补的隐患，而且还跟随中共出卖投资人的个人信息。比特币也一定会在不久的将来归零，因为比特币已然成为暗网犯罪和黑暗势力洗钱的工具。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5ccaf1f2758ac13047ada648b7feddf1-1.jpg)图片来源Gettr
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+此外，Hcoin（喜币）还有自己的小生态系统，集合了喜保险、喜存款、喜贷款、喜金融和Hpay（喜支付）。目前已有六大世界品牌接受Hcoin（喜币）交易，等到Hpay（喜支付）的正式上线和更多喜交所KYC的开户后宣布。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+有无疆界的支付系统，有热钱包、冷钱包多线交易方式，任何人通过手机可以实现数字货币的自由流通。Hcoin（喜币）不但可以买面包，还能买飞机、豪车。近日，就有战友通过Hcoin（喜币）的线下交易，成功购买了2架小型飞机（庞巴迪挑战者系列），或者超级豪车。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+通过两个小时私下视频对Hcoin（喜币）的设计和Bitcoin（比特币）、ETH（以太坊）、和Hcoin（喜币）之间差别地全面阐述，这些人士立即决定大额进场喜交所。郭先生表示欢迎，但重申持有6.7亿个币的战友们的利益永远是第一位的，绝不允许影响战友的利益。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**注：**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+Hcoin（喜币）的价格浮动完全是市场行为，只是基金在动用自己持有的8000万个币压制价格（目的是等待更多人KYC成功和更多资金入池），而现在基金压价存量只剩2700多万个币，若不是刻意压价，Hcoin（喜币）价格早就过千。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+目前有50亿美元现金准备进场，正在等待喜交所KYC开户结果。
 
  
 
