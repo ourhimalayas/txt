@@ -2,36 +2,54 @@
 ---
 
 
-## 美海军拦截了一艘伊朗的船只
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1904430/)
+## 日本民调显示八成五民众对中共无好感，对台美印象佳
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904499/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月23日，据《消息报》援引美国海军第五舰队宣布的消息，美国海军（US Navy）于1月18日拦截了一艘从伊朗驶来的船只，据称该船载有爆炸性物质。
+**作者**：纽约香草山 医疗部-云豹
 
-“由于对该船的国籍进行检查时，美国部队发现了40吨尿素，这是一种用于农业肥料的化合物，也被用来制造炸药。”它在Twitter上说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
 
-据美国海军称，这艘船是在向也门胡塞武装运送武器的途中，这表明美国军方拦截了另一批运往也门安萨尔-阿拉（胡塞武装）叛乱运动成员的货物。
 
-此外，这艘船去年2月在索马里海岸被扣留，并被发现携带武器，包括“数千支 “AK-47步枪、狙击步枪、反坦克榴弹发射器和其他武器。”海军补充说。
 
-11月，据报道，伊朗军方在波斯湾扣留了一艘无国籍的外国船只，怀疑其试图走私15万升燃料。
 
-此前，伊朗海军曾报告说，它阻止了美国军队在阿曼湾扣押一艘伊朗油轮的企图。五角大楼则否认它拦截了这批石油货物，并指责伊朗军队在阿曼湾的国际水域扣押了这艘商船。
 
-[https://iz.ru/1281264/2022-01-24/vms-ssha-soobshchili-o-zaderzhanii-sudna-iz-irana-s-komponentami-vzryvchatki](https://iz.ru/1281264/2022-01-24/vms-ssha-soobshchili-o-zaderzhanii-sudna-iz-irana-s-komponentami-vzryvchatki)
+当地时间1月22日，日本媒体报导日本政府所做的民调结果，显示八成五的日本民众认为日本与中共的关系不良好。九成一的民众认为日本与美国的关系良好。另外台湾驻日代表处委托民调单位所做的结果显示，近八成的日本民众觉得对台湾有亲近感。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1024x768_20210106000123.jpg)
+
+日本政府是在去年9月底至11月针对全国18岁以上的3000人以邮寄方式实施民调，获得1701人（约56.7%）作答。与上次民调比较，此次民调中，民众认为与中共关系良好的减少了近三个百分点。认为与美国关系良好的增加了五个百分点。
+
+台湾驻日代表处是于去年11月14日至26日，委托日本民调公司进行日本民众对台湾观感的民调。结果显示，七成八的日本受访者对台湾有亲近感，近七成到八成的受访者觉得台湾可信赖、台日关系良好，以及认为台日关系将来会有发展。
+
+新闻链接：
+
+[https://www.cna.com.tw/news/firstnews/202101060285.aspx](https://www.cna.com.tw/news/firstnews/202101060285.aspx)
+
+[https://www.cna.com.tw/news/aopl/202201230003.aspx](https://www.cna.com.tw/news/aopl/202201230003.aspx)
+
+***总编：文真***
+
+***校对/发稿：遍地开花***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
+
+
+
+
 
  
 

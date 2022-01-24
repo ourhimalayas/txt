@@ -2,48 +2,27 @@
 ---
 
 
-## 美国谋杀率达到自1990年以来的最高水平
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904008/)
+## 卡车司机抗议疫苗强制的众筹款超300万美元
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1904047/)
 
-**作者**：银河系农场-骄子
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/62629349_1642203087871377_r.jpg)图片来源：GoFundMe
+根据《CTV》1月22日报道，一项名为 “2022年自由车队”的运动只用一周多的时间，该活动的筹款已经超过300万美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
+该众筹是由Alberta省的一名女士Tamara Lich发起的，旨在反对联邦政府关于COVID大流行病的疫苗强制和其它规定。根据GoFundMe页面，这笔钱预计将用于参加车队的抗议者的燃料、食物和住宿费用。
 
+上周，联邦政府说犯了一个错误，开始称将豁免加拿大卡车司机穿越边境时疫苗强制规定。然而，渥太华表示，疫苗强制将适用于所有卡车司机，无论他们来自哪个国家。
 
+卡车运输业的许多人抗议此举，认为由于这些的要求，将对运输产生负面影响。
 
+其他人则更进一步，加入了一场驱车前往首都亲自在国会山抗议的运动，反对疫苗强制同时推动渥太华支持石油和天然气行业以及管道建设.
 
+卡车司机勇敢地用行动抗议政府暴政，众筹款也表现了民心。我们继续关注事态发展。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/crime-scene-6490202_1280-e1642707762749.jpg)
+原文链接：
+[https://calgary.ctvnews.ca/fundraiser-for-rally-to-protest-vaccine-mandate-on-truckers-exceeds-1-3m-1.5750751](https://calgary.ctvnews.ca/fundraiser-for-rally-to-protest-vaccine-mandate-on-truckers-exceeds-1-3m-1.5750751)
 
-自新冠病毒大流行以来，美国各地的谋杀率在不断飙升。2020年，凶杀案飙升至近30%，为30年来新高。2021年，大多数城市又在此基础上增长了4%。其中，每10万公民中有6.9人被谋杀，是1996年以来最高的谋杀率。涉及到谋杀率较高的城市有，洛杉矶、芝加哥、费城、休斯顿、凤凰城。
-
-随着犯罪率的上升，2020年的枪支购买量也在上升，创下了对希望购买枪支的美国人进行背景调查的记录，为2100万次。
-
-新闻来源：
-
-[https://rsbnetwork.com/news/murder-rates-in-the-us-hits-highest-level-since-1990s/](https://rsbnetwork.com/news/murder-rates-in-the-us-hits-highest-level-since-1990s/)
-
-***总编：飞虹***
-
-***校对/发稿：遍地开花***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
-
-
+编辑，发稿 Spirit
 
 
 
