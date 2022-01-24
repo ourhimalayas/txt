@@ -2,27 +2,26 @@
 ---
 
 
-## 世卫组织建议取消国际旅行疫苗护照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901922/)
+## 爱尔兰取消几乎所有封锁措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901923/)
 
-作者：新中国联邦静
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月19日，世界卫生组织发布了1月13日召开的中共病毒大流行紧急委员会临时会议的声明。
+1月21日，爱尔兰总理迈克尔·马丁在全国的电视讲话中说，爱尔兰将于次日取消几乎所有的中共病毒限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-19.png)
+马丁表示，该国经受住了奥密克戎的考验。就在上周，爱尔兰的中共病毒确诊率还位居欧洲第二，但随后病例数迅速下降，住院和死亡人数保持平稳。因此，爱尔兰政府决定从1月22日开始，酒吧和餐馆不再需要晚上8点关门，也不再要求顾客提供疫苗接种证明。室内外公共场地的人数不再受限制。但2月底之前，人们仍然需要在公共交通工具和商店超市里戴口罩。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.png)
-
-声明中提出了世卫组织给缔约国的11项临时建议，其中第六条为“赞成解除或放宽国际旅行禁令”，第七条为“赞成国际旅行不需要中共病毒疫苗接种证明”。即世卫组织至少在建议取消国际旅行中的疫苗护照了。
-
-分析人士认为，尽管还不明确世卫组织此举意图何在，但这个建议至少对受到它影响的很多国家来说，在取消疫苗强制方面，还是有积极作用的。
+评论人士指出，爱尔兰一直是欧盟中对病毒风险最为谨慎的国家之一，对旅游业、服务业的限制持续时间最长。宣布解封，无疑受到这些行业的欢迎。目前，“英伦三岛”已经先于欧盟其它成员国，甚至北美、澳洲等国，也放弃了实施两年的封锁措施，为经济进一步的复苏提供了良好条件。
 
 参考链接：
 
-- [Statement on the tenth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
+- [Ireland drops most COVID restrictions in wake of ‘Omicron storm’](https://www.reuters.com/business/healthcare-pharmaceuticals/ireland-set-rapidly-drop-almost-all-covid-19-restrictions-2022-01-21/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：童谣
+总编：Lakeman文仁
+编辑：Ivy001
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

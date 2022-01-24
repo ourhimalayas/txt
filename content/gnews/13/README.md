@@ -2,22 +2,49 @@
 ---
 
 
-## 新罕布什尔州药房将很快开始出售不需要处方的伊维菌素
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902048/)
+## 与一带一路竞争，澳大利亚资助巴新升级港口
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1902083/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-30.jpg)
-图片来源： zhuanlan.zhihu.com
+#### 【雅典娜观察】和您一起探究世界
 
-零对冲网1月23日报道，在新罕布什尔州正在通过立法允许居民从药店购买伊维菌素，作为委托规范医生或专科护士可开处方。用户于在药品标示外的新冠病毒感染的治疗。
-该州议会提出的2011议案将在有病人有医疗记录下，作为计划评估和治疗副作用的情况下，允许药房出售伊维菌素。仔细阅读这项议案，“任何这种处方应该被看作是法律允许范围的作为治疗目的的处方，可以在职业实践中作为常规措施。”
-伊维菌素，是一种蛋白酶抑制剂，类似于辉瑞的新药治疗新冠病毒的，川普总统曾经建议过，但受到一些“专家们”的攻击，
-很多文章显示，伊维菌素具有较高的预防作用(达82-84%)和一定的治疗作用(62-73%),在印度和巴西可能已经挽救了几十万人的生命。
-而在美国，美国食品药品监督管理局(FDA)却一直不允许伊维菌素作为预防和治疗，而这个药是世界卫生组织列出来的基本药物，已经在人类中发放了37亿剂药物(不包括动物),这是人类中最安全的药物之一。而且我们的联邦政府却在经济上资助实验性治疗，而那些治疗增加人们死亡的危险。
+整理报道：文扬
+编辑：文泓
 
-##### 新闻来源： [New Hampshire Pharmacies Could Soon Begin Dispensing Ivermectin Without Doctor’s Prescription](https://www.zerohedge.com/covid-19/new-hampshire-pharmacies-could-soon-begin-dispensing-ivermectin-without-doctors)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/JX4_KYZ@217Z7UQR.png)图片来源：PNG Business News
 
-#  
+
+在这场与中共国的战略竞争中，澳大利亚将资助巴布亚新几内亚的港口升级。在莫里森政府提供的关键基础设施基金支持下，澳洲将提供5.8亿澳元的贷款和赠款，用于升级巴布亚新几内亚的港口，该基金专门针对中共国一带一路倡议的竞争而设立的。
+
+上周五，总理斯科特·莫里森和巴布亚新几内亚总理詹姆斯·马拉佩在一次虚拟会议上签署了该协议。
+
+这笔资金将对PNG的六个港口（其中一些已有70年的历史）进行维修或升级，并雄心勃勃地想把巴新最大的港口莱潮汐盆地（Lae Tidal Basin,）打造成为太平洋地区的区域交通枢纽，扩大其接收来自东南亚的集装箱货船的能力。
+
+马努斯岛上的洛伦高港也正在进行整修，该港口靠近澳大利亚和美国正在帮助巴新升级的海军基地。
+
+莫里森先生说：“这项投资将改善该地区的贸易和连通性，支持疫情下的经济复苏，并帮助保障巴布亚新几内亚的关键基础设施的发展。”
+
+这是巴布亚新几内亚的第二个项目，由澳方的澳大利亚太平洋基础设施融资基金资助。该基金的设立旨在为发展中国家提供新的资金来源，以替代中共国的“一带一路”倡议。“一带一路”倡议被称为“债务陷阱外交”，加重了受援国的财政负担。
+
+在双方达成协议的前一天，中共国驻澳大利亚使馆临时代办王晰宁建议堪培拉和北京在太平洋地区的安全事务上进行合作，以促进所罗门群岛骚乱后的稳定，他说两国有“共同的利益”。
+
+王先生的建议是在中澳关系持续紧张数年后提出的，北京已对澳大利亚200多亿澳元的出口产品实施了贸易制裁和惩罚性关税。
+
+然而，王晰宁这个潜在的外交破冰者不太可能赢得莫里森政府的支持。一位消息人士说，王的文章发出了一个信息，即中国想在太平洋地区巩固自己的地位。
+
+澳大利亚战略政策研究所执行主任彼得·詹宁斯认为王先生的合作呼吁是“狡猾的言辞”，不值得认真对待。
+
+他说：“与中共国在太平洋地区开展卓有成效的合作前景渺茫，他们的思路是零和，现在是中共国竭力减少我们我们在本地区的影响，增加他们自己的影响。”
+
+新闻链接：[Scott Morrison strikes Papua New Guinea port upgrade deal to rival China (afr.com)](https://www.afr.com/politics/federal/australia-to-fund-png-port-upgrade-amid-strategic-rivalry-with-china-20220121-p59q5y)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,26 +2,28 @@
 ---
 
 
-## 没有信仰的民族多么可悲（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901959/)
+## 共产党造的孽
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902016/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### **整理：雅典娜速记组**
+**编辑：请你喝可乐**
 
-现在有摄像机了以后你可以感到这个动物世界有多夸张。有多少的灵气，万物皆有情。中国人吃猴子那样吃，你见吃蛇吗？广东就卖蛇馆的，一个广东一年杀掉的蛇，养的蛇，绝对是把半个地球蛇基本给消灭完了。因为他大量养殖嘛。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党造的孽-.jpg)
 
-你去想一想，一个南海渔村，一年大概就是将近100万条蛇。
+我非常同意国内有些人说的话，我们中国这代过去100年到现在，未来的人类可能对我们这几 代人要大审判。无知，贪婪，无信仰，没人性。贪婪到了你无法想象，对地球之毁害，对人 类之伤害，对宗教信仰之打击，对人类整个文明进步的影响。 你看到国内 
+♦ 一个袁鹏飞都没有资格活下去； 
+♦ 一个崔永元都容不下； 
+♦ 一个彭帅18年都宇宙无限大地球是一粒沙； 
+♦ 一个郭晶晶伏明霞11岁都有避孕套。 
+现在，冠状病毒来源没人敢说，没人敢问。没人敢问疫苗哪来的？疫苗的研发最起码的信息竟 然不让公开，要50年以后！这就是共产党对人类的伤害之深，比中国的空气污染土地污染水 污染，还要严重得多得多。 人家怎么会不歧视我们华人？共产党给我们造的孽，我们把共产党和我们分开了，但真的就 能彻底分开吗？你看看共产党怎么对待同胞的，你看他怎么对待马云，柳传志，许家印的，不 是劣币驱逐良币，是劣币把良币要变成劣币，关键是坏人要把好人变成比他更恶的人。
 
-中国人能把老鼠活吃，老鼠还得刚出生的，蘸点酱油咬到嘴里还得咯吱咯吱响。你说恶心到什么程度？
+*发布：请你喝可乐*
 
-所以雅阁从这个角度来讲，没有任何信仰，无论是邪教还是正教没有一个允许你这样杀害生灵的，而且你乐在其中，你享受在其中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/没有信仰的民族多么可悲.003.jpeg)
-发布： *tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

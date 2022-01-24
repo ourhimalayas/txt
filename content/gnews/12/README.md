@@ -2,29 +2,31 @@
 ---
 
 
-## 股市到了大崩盘的时候吗？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902052/)
+## 班农先生对新中国联邦的重要性（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902090/)
 
-#### **整理：雅典娜速记组**
-**编辑：请你喝可乐**
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生对新中国联邦的重要性（上）-1-scaled.jpg)
+每时每刻，我们都是改变了人类和世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/股市到了大崩盘的时候吗？-.jpg)
+但这个当中有一 个最重要的就是班农先生，不但他支持中国人，他父亲，他兄弟，他妹妹全家啊，都支持新中国联邦，而且班农先生冒着生死威胁创建法治基金、法治社会，然后一起创建一切。
 
-没到，还早着呢！
+我们新中国联邦人可以说第一次向中国人展示了我们跟白人, 要么就是我们的敌人，要么就是我们的奴隶，或者我们的主 人，不是这个关系。
 
-最简单的逻辑，咱们家里过日子的 溢桶效应，当你桶里放满了水的时 候，你扔一个石头就漾出来水，不 等于石头的体积，真正多出来的水 被挤出去的时候，那就不是几滴了, 而是整个倾倒式的。
+我们平等相处，我们可以互敬互爱互尊, 而且我们完全没有种族观念，和班农先生在推进全球的这个 全球的平民主义。
 
-现在市场看到一个最可怕的现象， 是前所未有，水桶溢出的水滴比原 来的水桶还大，你看这几天这个交 易量一海量，你敢放到一年前，二 年前，股市已崩盘了。一天几百亿, 上千亿，怎么可能呢，它就是搞出 来的一个一20万亿，一个多出来的 市场，原来马桶的水叫25万亿，现 在叫50万亿，今天几百亿是一丝丝。
+发布：于white
 
-早着呢，崩盘的时候一定是，喇， 下来，几年前就说了，一定是直线 下去的，崩盘式的。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-*发布：请你喝可乐*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

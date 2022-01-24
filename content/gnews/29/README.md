@@ -2,26 +2,29 @@
 ---
 
 
-## 爱尔兰取消几乎所有封锁措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901923/)
+## 欧洲议会通过香港自由决议，首提检讨香港WTO资格
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901924/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山农场 – 007
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月21日，爱尔兰总理迈克尔·马丁在全国的电视讲话中说，爱尔兰将于次日取消几乎所有的中共病毒限制措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-19.png)
-马丁表示，该国经受住了奥密克戎的考验。就在上周，爱尔兰的中共病毒确诊率还位居欧洲第二，但随后病例数迅速下降，住院和死亡人数保持平稳。因此，爱尔兰政府决定从1月22日开始，酒吧和餐馆不再需要晚上8点关门，也不再要求顾客提供疫苗接种证明。室内外公共场地的人数不再受限制。但2月底之前，人们仍然需要在公共交通工具和商店超市里戴口罩。
+1月20日，欧洲议会以585票赞成、46票反对、41票弃权，通过关于侵犯香港基本自由的决议。基于香港自由被严重侵犯和剥夺的大量案例，决议提出了欧盟和成员国应采取的26条行动措施，覆盖政治、经济、外交、教育等领域。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-18.png)
+决议强烈谴责香港人权及言论自由恶化， 重申声援香港人民争取自由和民主的斗争。要求欧盟理事会制裁8名香港和中共官员，并针对涉侵犯香港人权的企业，另制定了一份清单。
 
-评论人士指出，爱尔兰一直是欧盟中对病毒风险最为谨慎的国家之一，对旅游业、服务业的限制持续时间最长。宣布解封，无疑受到这些行业的欢迎。目前，“英伦三岛”已经先于欧盟其它成员国，甚至北美、澳洲等国，也放弃了实施两年的封锁措施，为经济进一步的复苏提供了良好条件。
+鉴于香港在”一国两制 “模式下的自治已被摧毁，决议首次提出，要检讨欧盟与香港的海关合作和互助协定，以及欧盟对香港世贸组织席位的态度。
+
+决议通过后，中共反应强烈，当天和21日，中共驻欧盟使团、中共外交部及其驻港公署、香港中联办、香港政府纷纷回应，指责欧洲议会干预香港事务。
 
 参考链接：
 
-- [Ireland drops most COVID restrictions in wake of ‘Omicron storm’](https://www.reuters.com/business/healthcare-pharmaceuticals/ireland-set-rapidly-drop-almost-all-covid-19-restrictions-2022-01-21/)
+- [Human rights breaches in Hong Kong, Kazakhstan and Sudan](https://www.europarl.europa.eu/news/en/press-room/20220114IPR21026/human-rights-breaches-in-hong-kong-kazakhstan-and-sudan)
+- [JOINT MOTION FOR A RESOLUTION](https://www.europarl.europa.eu/doceo/document/RC-9-2022-0067_EN.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Lakeman文仁
-编辑：Ivy001
+总辑：飞虹
+编编：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
