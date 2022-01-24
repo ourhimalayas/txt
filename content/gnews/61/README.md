@@ -2,151 +2,54 @@
 ---
 
 
-## 国防部正在把福奇暴露出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+## 7·24系列——西藏黄金部队
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1871111/)
 
-[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
+**整理：**雅典娜情报组
+**编辑：**翼族
 
-**Steve Bannon
-史蒂夫·班农**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/fb1b-hexfcvm3124903.jpg)图片来源：壁纸网
 
-Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
-马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
 
-this Veritas amazing Veritas leak
-这个“真理”项目，惊人的“真理”泄漏
+近期有“西藏冒险王”之称的王相军不幸遇难，死因成谜引起了民众的极大关注。郭文贵先生在2022年1月14日大直播中回答王相军遇难的相关问题时谈到了西藏的黄金部队（概要）：
 
-that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
-他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
+##### 王相军在西藏那个别墅、直升机，兄弟姐妹们，我要告诉你们，你们太天真！西藏那曲现在的虫草一年是多少钱？你上网查查去，那曲是全世界拥有路虎最多的地方、美国悍马最多的地方、现金最多的地方、保险箱最多的地方。西藏人养牦牛的、西藏人卖牦牛肉的、西藏人卖药材的、西藏人卖矿的，最厉害的值多少钱？你去查查。
 
-Is this the beginning of more information?
-这将会是更多信息的开始吗？
+##### 我再告诉你，西藏西部，中国叫“黄金部队”，当年是刘源管。黄金部队在西藏每年开采的黄金是多少？特别是一些特殊的矿，像什么钴，什么镍，我搞不清楚，十几种重金属都是在西藏。西藏的木头、西藏的矿、西藏的水、西藏的虫草、西藏的药材，几乎在中国超过30%，甚至有的占60、70%。加入世贸以后，在西藏、新疆、昆仑山、喀什、帕米尔高原、嘎孜玛峰（音），出现了无数豪宅，特别是你去看看所谓的“小瑞士”，还有像墨脱，都是当官享受的地方，领导度假的地方。所以直升机在那儿逛来逛去。
 
-Do you think that certain individuals real scientists inside the apparatus
-你认为系统内部的某些真正的科学家
+##### 一个“黄金部队”一年弄走多少百吨黄金都不止。那虫草一年80%-90%都是给共产党养的，那处女、那享受，西藏、新疆、哈萨克斯坦、彝族、达斡尔族处女，是领导每年必然有的活动。像七哥这号人，他们都说，哎呀，赶快来西藏、来新疆，下次来，我们有十个处女给你安排着，跟你属相都合的，你听这话了吗？跟你属相还得合！就你问的这问题，对他们来说是正常生活好不好？我曾经问过一个当时“黄金部队”的人，我说你们这么弄，有多少姑娘不都被你们弄死个球了吗？他说：你知道西藏一年、新疆一年新生儿多少吗？这是割不完的韭菜，长不完的芙蓉花，长不完的黑莲，用之不尽的……比那虫草还旺盛。你要说在西藏“黄金部队”你没弄金子，在西藏边防部队没搞过处女，当过厅级干部你没搞过处女，你绝对不是正常人，在共产党里你就不是我党的好党员，你咋为人民服务？
 
-that’s we’ve had enough we got to stop this madness, Dr. Malone.
-我们已经受够了，我们必须停止这种疯狂，马龙博士
+“黄金部队”，顾名思义应该是一支挖黄金的部队。1974年夏，周恩来找到被称为新疆“杀人王”的王震说，“你要把金子抓一抓，搞建设不能没有黄金”。1977年到1979年，中共开始慢慢与西方接触，开始引进西方工业技术设备，但由于缺乏外汇等硬通货，中共急需黄金，这时王震提出了“让部队去找金子”的想法，并得以实施，中共开始组建黄金部队。
 
-Dr. Robert Malone
-罗伯特·马龙博士
+1979年3月7日，中共成立了解放军基本建设工程兵黄金指挥部，扩编了基本建设工程兵第51支队，整编了工程兵第52、第53支队。这三支部队后来衍变为黄金部队的“第一总队、第二总队和第三总队”，下辖12支“支队”。其中“第十一支队”驻扎西藏，隶属于总部设在四川成都的武警黄金三总队；而“第八支队”则驻扎新疆，隶属于武警黄金二总队。
 
-I think it’s the DOD saying they’ve had enough of this.
-我认为是国防部说他们已经受够了
+从1985年1月1日起，基建工程兵黄金指挥部列入武警部队，称中国人民武装警察部队黄金指挥部，受冶金工业部和公安部双重领导，但以冶金工业部为主。随后黄金部队经过一系列的调配，到了2018年8月28日，武警黄金部队转为非现役专业队伍，所属官兵集体转业，归自然资源部领导，原有的部分企业职能划转中国黄金集团公司。刘少奇之子刘源，于1992年开始在武警高层任职，直到2003年后调任解放军任总后勤部副政委，在此期间刘源曾负责过黄金部队。
 
-And I’m not sure if this came from a JAG’s office
-我不确定文件是否来自美国陆军总检察长的办公室
+组建30多年的武警黄金部队，是世界上唯一一支寻宝部队，一直由中国人民供养着。据[中共媒体公开报道](https://finance.qq.com/a/20100928/002924.htm)，迄今黄金部队已累计探获的黄金资源达1800多吨。但据郭文贵先生爆料，一个“黄金部队”一年弄走百吨黄金都不止，那么黄金部队上报的1800吨黄金之外，又有多少黄金进入了权贵个人的腰包？
 
-because they’re stamped like they are
-因为它们看起来像
+结合到过这片藏区的战友的亲身经历，从下图可以看到，整个西藏地区的藏北与新疆的南疆相连，从新藏公路219国道，覆盖昆仑山脉、冈底斯山脉、念青唐古拉山脉和可可西里等地，无论作战部队还是工程部队，以及深入新藏青腹地的黄金部队，物资供给与兵源的输送均在大红柳滩至三十里营房一带，其中三十里营房更是大型工程机械设备的中转地。
 
-based on the file names or if it came from DARPA
-基于文件名或是来自国防高级研究计划局
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/photo_2022-01-17_20-11-14.jpg)
 
-But having looked at these again and again in recently communicating with the DOD JAG
-但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
+图片来源：tibetway
+三十里营房的行政规划为新疆境内的皮山县，连接新疆至西藏通往边界地带及辐射青海的重要咽喉要塞，常能在此地见到穿着迷彩服一脸稚气的新兵或灰头满面的士兵，只要被派往边界的士兵或深入腹地的黄金部队都必须在此补给休整。
 
-it’s trying to smoke out whose office this might have come out of.
-文件，在试图找出这可能来自谁的办公室
+另外在三十里营房这鸟不拉屎的地方，常常能在见到成群结队的农民工兄弟，他们头戴安全帽，衣衫褴褛。他们往往都隶属于某地方工程队，即某某中字头的工程公司，例如二建、铁建等等，这些农民工来这里都是因为承接了外包出来的工程项目，这其中是否有黄金部队的金矿项目，不得而知。
 
-I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
-我认为现在是国防部终于出来说够了
+找黄金的人，在外人眼里收入一定很高，但事实上，黄金部队的普通“技术干部”和队员的年薪只有六七万元。能找到金矿的地方，往往都是人迹罕至、自然条件艰苦的地方，从藏北的无人区到冰封雪覆的阿尔金山，再到青海的可可西里……
 
-And throwing Tony under the bus, and it could well be the DARPA’s doing it
-把托尼推出来，这很可能是国防高级研究计划局做的
+相较于这些黄金部队的正规编制人员，农民工的收入就更低，他们只是这些所谓“军民融合”项目里的韭菜，最多做一些前期搬砖与后期填埋的苦力活。而从上到下的西藏黄金产业，则如吸血鬼一般吸附在西部广袤的土地上，不但没有给藏区人民带来任何的福报，反而破坏了藏区美丽的自然环境。
 
-so that the fingers don’t get pointed at them
-这样手指就不会指向他们
+中共的黄金部队，只是盗国贼们中饱私囊的工具，养肥了一批又一批的权贵。军队、政府与当地的黑道以及各种利益交织的人物形成利益共同体，将一个国家的各种矿产资源变成财富，供个人挥霍和享受。而“西藏冒险王”，也许只不过是这个利益共同体的一个小小牺牲品。
 
-But there’s in my mind, these Veritas documents look, look absolutely authentic
-但在我看来，这些真理文件看起来，看起来绝对真实的
+*素材收集：翼族、禄森
+发布：翼族*
 
-Steve Bannon
-史蒂夫·班农
-
-So you’re saying this is what I’m sure we’re clear here
-所以你说这就是我确定我们在这里很清楚
-
-You’re saying that, as we know, we take over this year
-你是说，我们知道，今年我们接管了
-
-that the investigations deep into the situation of Wuhan lab, the bioweapons program
-对武汉实验室情况的深入调查，生化武器计划
-
-and American scientific and taxpayer money that went into doing any of that
-以及用于做任何这些的美国科学和纳税人的钱
-
-is going to be beyond a hot potato be one of the defining issues going forward
-将超越烫手的山芋成为未来的决定性问题之一
-
-what actually happened?
-实际发生了什么
-
-You’re saying right now look at the Pentagon Papers
-你说现在看看五角大楼文件
-
-there are people either officially or unofficially, making a move on Tony Fauci
-有人正式或非正式地在对托尼·福奇采取行动
-
-in your mind and you know, DARPA and you know the DOD pretty well
-你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
-
-you’ve been consulted there for many, many years. Correct?
-你已经在那里做了很多很多年的咨询工作, 对吗？
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-Correct. And I’m also in close communication with the senator and his investigations office
-正确，我也在与参议员和他的调查办公室保持密切联系
-
-I don’t want to speak for the senator but this this is one of those situations
-我不想为参议员说话，但这是其中一种情况
-
-If you spent decades dealing with DOD and the hill like I have
-如果你像我一样花了几十年的时间与国防部和国会山打交道
-
-this is how the game gets played
-这就是游戏的玩法
-
-This is how the Kabuki works in DC
-这就是歌舞伎在华盛顿中的运作方式
-
-is they’ll turn on each other when it looks like somebody is going to have to take the fall
-当看起来有人将不得不背锅时，他们是会互相攻击的
-
-And it looks to me like that has now happened in DOD has had enough
-在我看来，现在的情况是国防部已经受够了
-
-It’s important to know that Tony bushwhack DOD after the anthrax attacks
-重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
-
-and grabbed a big chunk of their budget
-而且敛走了他们预算的很大一部分
-
-so there could be some payback opportunity here
-所以这里可能是国防部反击的机会
-
-* * *
-
-Date:01/15/2022
-原视频标题: The DOD Is Throwing Fauci Under The Bus
-国防部正在把福奇暴露出来
-原视频日期：2022/01/15
-原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
-任务编号：KE351（3493）
-视频时间段 : 0:00-2:22
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

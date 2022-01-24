@@ -2,48 +2,40 @@
 ---
 
 
-## 新中国联邦成员在塞浦路斯获保释
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899318/)
+## 【秘翻在线】塞浦路斯法官以技术性理由保释两名中共国公民
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899270/)
 
-撰稿：西枫westca
+**撰稿：Grace**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-36-1.jpg)图片来源：worldakkam
-据塞浦路斯KNEWS1月23日报道， 一对来自中共国的母子因中共指控其投资欺诈被通缉，在塞浦路斯面临引渡。帕福斯的法官以起诉文件延误为由允许保释他们。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-1.12.25-PM.jpeg)图片来源： corruptionbuzz
+据Knews 1月23日报道，一对来自中共国的母子因投资欺诈指控在塞浦路斯（Cyprus）面临引渡，已被保释，帕福斯（Paphos）的法官以检方文书工作延误为由允许他们自由出入。
 
-周五，帕福斯的一名法官下令休庭，以便检察官有更多时间完成所有必要的文书工作。这两名在塞浦路斯的中国公民以每人25000欧元保释金获释。
+两名在塞浦路斯共和国的中共国公民， 因投资欺诈指控而被中共国当局追捕，周五，帕福斯的一名地区法官下令休庭，以便让检察官有更多时间完成所有必要的文书工作，他们每人获得了25,000欧元的保释。
 
-详细情况尚未立即公布，但媒体报道指出，塞浦路斯外交部长没有及时签署检察官的文件，使之无法在法庭呈现。
+详细情况没有立即公布，但媒体报道指出，检察官的文件没有及时由塞浦路斯外交部长签署以提交给法庭。
 
-**“未经授权，不得引渡”**
+**“没有授权，就不可能有引渡”**
 
-引述辩护律师的话说”只有在部长批准引渡请求后，才能开始引渡程序，”，这表明法院所需的文书工作未得到授权。
+辩护律师说：“只有在部长授权引渡请求后才能开始引渡。” 这表明法院所需的文书工作没有得到授权。
 
-据该案的辩护律师称，塞浦路斯的外交部长没有时间授权引渡文件，同时指出该文件已被中国当局送往塞浦路斯驻北京大使馆。
+据该案的辩护律师称，塞浦路斯的外交部长没有时间授权引渡文件，同时指出该文件已被中共国当局送往塞浦路斯驻北京大使馆。
 
-这对母子在获释前正在尼科西亚的监狱中等待引渡听证会，他们于12月初在佩亚被拘留，罪名是与中国正在调查的金融犯罪有关的投资欺诈，据说这些犯罪发生在2013年3月至2014年3月之间。
+该律师说：“没有授权，就不可能有引渡。”
 
-但引渡案超出了文书工作和程序的范围，因为塞浦路斯发现自己处于一场涉及中国和美国利益的政治性引渡战中。
+据报道，这对母子在获释前一直在尼科西亚 （Nicosia）的监狱中等待引渡听证会，他们于12月初在佩亚（Peyia）被拘留，罪名是与中共国正在调查的金融犯罪有关的投资欺诈，据说是在2013年3月至2014年3月期间发生的。
 
-本月早些时候，塞浦路斯政府收到了一封来自一个美国组织的信函，寻求 “保护对中国的腐败和非法活动大声疾呼的个人“。称对母子俩的指控是”出于政治动机”。该组织与富裕的中国流亡者郭文贵和曾担任川普总统前顾问的对华鹰派人士史蒂夫·班农有关联。
+但引渡案件超出了文书工作和程序的范围，因为塞浦路斯发现自己处于一场涉及中共国和美国利益的政治性引渡战中。
 
-已离开该组织的班农于2020年8月在郭文贵的游艇上被捕，引发了对欺诈调查的质疑，并进一步呈现了围绕这位2014年逃离中国的房地产大亨所拥有的非营利组织的神秘色彩。
+据说华盛顿和北京都与尼科西亚有着良好的外交关系。
 
-这对母子均为新联邦中国的成员，该运动旨在推翻中国政府。
+本月早些时候，塞浦路斯政府收到了一封来自一个美国组织的关于此案的信件，该组织寻求 “保护在中国公开反对腐败和非法活动的个人”。
 
-下一次听证会将于2月3日进行。
+报道称，下一次听证会已安排在2月3日。
 
-**新闻来源：**
 
-[Cypriot judge bails Chinese duo on technicality , KNEWS](https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality)
 
-[多家媒体报道塞浦路斯法院释放新中国联邦成员](https://gnews.org/zh-hans/1893669/)
-
-[Chinese Pair Granted Bail In Cyprus Extradition Twist](https://www.barrons.com/amp/news/chinese-pair-granted-bail-in-cyprus-extradition-twist-01642782907)
-
-[Cyprus extradition twist for Chinese pair](https://www.financialmirror.com/2022/01/21/cyprus-extradition-twist-for-chinese-pair/)
-
-[Cyprus Handover Twist for Chinese Pairs](https://worldakkam.com/cyprus-handover-twist-for-chinese-pairs/664344/amp/)
+**新闻来源：[Cypriot judge bails Chinese duo on technicality](https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality)**
 
  
 

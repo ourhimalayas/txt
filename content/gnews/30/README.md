@@ -2,28 +2,25 @@
 ---
 
 
-## 冬奥会前夕北京丰台两百万人进行核酸检测
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1900787/)
+## 在任何情况下，你都不应该让你的孩子接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900808/)
 
-![北京市民在一个流动检测站前排起长龙，等待进行新冠病毒核酸检测。](https://gdb.voanews.com/B44FE9AC-1105-4BD2-966D-DE2266835B4E_w1023_r1_s.jpg)北京市民在一个流动检测站前排起长龙，等待进行新冠病毒核酸检测。
-据美国之音1月23 日报道，距离北京冬奥会开幕不到两个星期，北京丰台区约200万居民被下令做全民核酸检测。同时，所谓高风险区的居民不得离开北京。
+翻译：文载Jenny
+校对：Lish
+剪辑|字幕：向上James
+编辑：Mttfly
 
-北京现在已经进入深冬，丰台区市民在寒冷和拥挤的天气下排队几个小时接受核酸检测，隔离距离呢？安全措施呢？没感染的都会被感染。中南坑也在北京，中南坑需不需要大冬天站在外面忍着寒风排队接受核酸检测？作为几千万人口的超级大都市，官方通报几例感染，就大张旗鼓地强令几百万人隔离做检测，这背后真实的感染数据到底是多少？你不知我不知，天地知，中共知。上天是能够欺哄的吗？
+疫苗学家、病毒学家Geert Vanden Bossche在采访中表示，当你在与病毒斗争的在战场上时，永远不要使用不能阻断病毒传播的疫苗。换句话说，对于大规模接种疫苗，正在为更多的传染性变种的复制提供一个温床。从科学上讲，让儿童接种疫苗没有任何好处，只有重大的担忧和风险。他的建议十分明确，即在任何情况下，你都不应该让你的孩子接种新冠疫苗。
 
-新闻参考链接：[https://www.voachinese.com/a/beijing-introduces-more-covid-measures-as-cases-mount-before-olympics-20220123/6408878.html](https://www.voachinese.com/a/beijing-introduces-more-covid-measures-as-cases-mount-before-olympics-20220123/6408878.html)
+视频链接：[Under no circumstance should you allow your child to be vaccinated](https://gettr.com/post/poc4ro6f83)
 
-编辑：胖丁
+*发布：tianzhihuan*
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
