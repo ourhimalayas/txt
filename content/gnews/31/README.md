@@ -2,31 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1900803/)
+## NBA球星坎特呛声姚明 称想到访新疆集中营
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1901115/)
 
-作者：香草山翻译部
+#### **撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DB1F5E29-B475-4EC5-AAF0-7E8BC6533C31.jpeg)（图片来自中央社）
 
+中共国篮球协会主席姚明日前邀请NBA球员坎特访问中共国，坎特回复他愿意，但前提是要能看到中共国真实面貌以及能到访新疆集中营，并反邀姚明一同访问台湾和香港，并让他跟中共国网球选手彭帅自由对话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-1.png)
-校对：Stay文苑
+据中央社1月23日的报道，NBA球星坎特日前在推特表示：我真的想要亲眼去看看那里的一切，但这趟旅行，我想要问姚明先生，我能够参观新疆的劳动营吗？可以拜访被虐待和强暴的无辜女性吗？可以看到中共政权强摘器官后如何毁尸吗？我能见到网球选手彭帅吗？我能直接跟她谈话，问她安不安全、好不好吗？她能够自由答复吗？还是你只是会给我听那些宣传？
 
-编辑：Stay文苑
+坎特提到，在中共政府残忍统治下，藏人没有基本权利和自由；香港曾是全球最自由的城市之一，现在天天上演的是新闻自由被毁、权利遭打压以及逮人场景。
 
-发稿：Stay文苑
+此外，坎特还告诉姚明，中共不能收买他，「我不需要中共提供的豪华行程，我希望全世界看到中国真实的一面」。
 
-视频参看：[1.23  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ee00ad28a108147c614d3c)
+他最后表示，如果姚明答应他的要求，「我会自己买机票，搭今夏第一个航班到中国」。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+据悉，根据美国国务院估计，自2017年以来，有高达200万维吾尔人和其他少数民族被拘留在新疆集中营。中共在新疆犯下种族灭绝的罪行得到大多数欧美国家的确认，这些国家对于中共在相关方面的制裁政策也在不断推行当中。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*参考链接：[NBA球星坎特願睹中國真面貌 邀姚明訪台見證民主](https://www.cna.com.tw/news/aopl/202201230177.aspx)*
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
 
  
 
