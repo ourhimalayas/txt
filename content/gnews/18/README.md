@@ -2,24 +2,26 @@
 ---
 
 
-## 【秘翻在线】超过2万名美国人参加了华盛顿特区游行，反对强制疫苗和医疗暴政
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899736/)
+## 法国各地3.8万人上街抗议疫苗通行证
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1899810/)
 
-**撰稿：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1440x810_6789415524851.jpg)图片来源：取自facebook.com/philippot.f
+据法新社1月22日报道，从24日起，16岁以上法国民众必须拥有完整的疫苗接种证明才能进入剧院、餐厅、酒吧从事娱乐活动以及搭乘高铁等。除了儿童以外，COVID阴性证明将不再足够，但进出医疗机构无需出示疫苗通行证。 法国各地约有3.8万人上街抗议这项政策，首都巴黎估计约有5200人上街，部分抗议民众带着小孩。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-3.29.08-PM.jpeg)图片来源：newswars
-据The Gateway Pundit 1月23日报道，今天有超过2万名美国人冒着严寒参加了在华盛顿特区举行的 “战胜强制”（“DEFEAT THE MANDATES”）集会。
+完全接种疫苗的人不断感染病毒，并且感染人数不断攀升，已经证明疫苗不起作用。法国总统马克龙不顾事实，继续草菅人命，还在强推疫苗政策，魔鬼化作人形在世间作恶。等到病毒和疫苗真相公告天下之后，马克龙这等魔鬼必将受到最严厉的审判。
 
-报道称，目前美国国内关于冠状病毒的几位发声者和顶级权威人士都参加了这次和平集会。
+新闻参考链接：[疫苗通行证即将上路 法国各地3.8万人上街抗议](https://www.rfi.fr/cn/%E7%96%AB%E8%8B%97%E9%80%9A%E8%A1%8C%E8%AF%81%E5%8D%B3%E5%B0%86%E4%B8%8A%E8%B7%AF-%E6%B3%95%E5%9B%BD%E5%90%84%E5%9C%B03-8%E4%B8%87%E4%BA%BA%E4%B8%8A%E8%A1%97%E6%8A%97%E8%AE%AE)
 
-演讲者包括：小罗伯特·肯尼迪（**Robert F. Kennedy, Jr., ）**，保罗·亚历山大博士 (Dr. Paul Alexander) 、罗伯特·马龙博士 (Dr. Robert Malone) 、彼得·麦卡洛博士 (Dr. Peter McCullogh) 、劳拉·洛根 (Lara Logan) 、史蒂夫·基尔希 (Steve Kirsch) 等。
+* * *
 
-据报道，超过六千名联邦工作人员也将参加在华盛顿的集会，包括：消防员、急救人员、医生和参加了“美国人参加和平游行”的 人，以挫败中共病毒Covid-19疫苗强制规定。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**新闻来源： ****[PHOTOS AND VIDEO: Over 20,000 Americans March in Washington DC Against Vaccine Mandates and Medical Tyranny](https://www.thegatewaypundit.com/2022/01/20000-americans-march-washington-vaccine-mandates-medical-tyranny/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

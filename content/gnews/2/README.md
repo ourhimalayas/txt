@@ -2,19 +2,21 @@
 ---
 
 
-## 有声|美媒抨击强制疫苗令危害远胜切尔诺贝利
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900380/)
+## 有声|华人将对中共法律超限战抗争到底
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900392/)
 
-配音：香草山福音部 – 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月20日，据相关消息显示，美国一家媒体日前猛烈抨击联邦政府实施的中共病毒疫苗强制接种政策。该媒体表示，疫苗强制令实质上就是大屠杀。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+郭先生在2022年1月17日马丁·路德金纪念日的大直播中，谈到单伟健通过纽约中心区法院的案件，交给郭先生7万多页所谓的“证据”和30多万页法律文件，在既不许选择陪审团，也不许说话和质疑的情况下，直接判郭先生藐视法庭，如此滥用司法管辖权且毫无程序正义，是PAG背后中共一手操纵的法律超限战，滥诉、缠诉。
 
-据悉，截至目前，已有接近一百万美国人被中共病毒杀死。而经过调查确认后发现，由福奇领导的美国国立卫生研究院及国家过敏和传染病研究所长期资助中共武汉病毒实验室进行病毒功能增强实验。该实验室制造出的生化武器如今却被用来对付美国人民，这是美国政府的严重渎职行为。
+PAG缠诉案不再是郭先生一人的经济纠纷案，牵扯到美国司法系统被中共渗透，甚至种族歧视等巨大问题。如果我们在PAG案前妥协和放弃而没揭开真相，中共就会穷追猛打，华人在美国将永远成为司法牺牲品而无安全感。
 
-原文链接：[美媒抨击强制疫苗令危害远胜切尔诺贝利](https://gnews.org/zh-hans/1894157/)
+原文链接：[华人将对中共法律超限战抗争到底](https://gnews.org/zh-hans/1892449/)
 
 音频处理/发稿：Daxia
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +28,9 @@
 [**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  

@@ -2,34 +2,32 @@
 ---
 
 
-## 有声|美国ESPN不会派遣新闻人员参加北京冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1899699/)
+## 文贵先生盖特精要2022/01/23
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1899746/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，美国娱乐与体育节目电视网ESPN在其官方网站上发布声明表示，由于对中共病毒及其相关限制的担忧，ESPN将不会向中共北京冬奥会派遣任何新闻人员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1926.png)
+国内的病毒控制不住了，大家要多加注意。作恶者必自毙，向他人放毒，现在遭反噬了吧，中共只靠暴力打压强力政策，没有人民的配合，啥也干不成。现在出现了爆料革命新中国联邦，人民正在觉醒，愚昧将会成为过往。
 
-该网站的制作执行副总裁兼执行编辑威廉姆森在声明中强调，随着中共病毒持续在全球范围内肆虐，加之此次冬奥会现场由于病毒和其他相关因素所导致的诸多限制措施，这些都让现场报道变得非常具有挑战性。此外，员工的安全对于ESPN而言至关重要，因此，该公司认为，减少员工奔波是最好的决定。
+看看这些基金，全世界都已经嗅到了金融危机的来临。七哥在早几年前就提醒过大家，在2022年会发生一场巨大的金融危机，就快来到了。
 
-原文链接：[美国ESPN不会派遣新闻人员参加北京冬奥会](https://gnews.org/zh-hans/1896556/)
+这2022年是最危险、最黑暗的，但也却是最有希望的一年。接下来的一周是极为重要且充满意义的，在3月5号前将有很多的大事发生。Take down the CCP!
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-**更多资讯，更多关注**
+*听写：阿甘*
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*校对：小雨*
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

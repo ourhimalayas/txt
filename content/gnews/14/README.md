@@ -2,26 +2,44 @@
 ---
 
 
-## 法国各地3.8万人上街抗议疫苗通行证
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1899810/)
+## 欧洲确认超过900,000例COVID-19疫苗副作用
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1899920/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1440x810_6789415524851.jpg)图片来源：取自facebook.com/philippot.f
-据法新社1月22日报道，从24日起，16岁以上法国民众必须拥有完整的疫苗接种证明才能进入剧院、餐厅、酒吧从事娱乐活动以及搭乘高铁等。除了儿童以外，COVID阴性证明将不再足够，但进出医疗机构无需出示疫苗通行证。 法国各地约有3.8万人上街抗议这项政策，首都巴黎估计约有5200人上街，部分抗议民众带着小孩。
+**据《Precison Vaccionations》记者Don Ward Hackett，2022年1月20日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/a1h4e-hjzhd.jpg)
+欧洲药品管理局（EMA）今天确认关于四种已获授权COVID-19疫苗的安全性信息已经获得月度更新。
 
-完全接种疫苗的人不断感染病毒，并且感染人数不断攀升，已经证明疫苗不起作用。法国总统马克龙不顾事实，继续草菅人命，还在强推疫苗政策，魔鬼化作人形在世间作恶。等到病毒和疫苗真相公告天下之后，马克龙这等魔鬼必将受到最严厉的审判。
+EMA附属的疫苗药物警戒风险评估委员会（PRAC）针对COVID-19疫苗的安全监测计划，要求监测欧盟境内个人和医疗专业人员报告的可疑副作用。
 
-新闻参考链接：[疫苗通行证即将上路 法国各地3.8万人上街抗议](https://www.rfi.fr/cn/%E7%96%AB%E8%8B%97%E9%80%9A%E8%A1%8C%E8%AF%81%E5%8D%B3%E5%B0%86%E4%B8%8A%E8%B7%AF-%E6%B3%95%E5%9B%BD%E5%90%84%E5%9C%B03-8%E4%B8%87%E4%BA%BA%E4%B8%8A%E8%A1%97%E6%8A%97%E8%AE%AE)
+PRAC 报告称，截至2022年1月20日，已向欧盟（EU）和欧洲经济区（EEA）提供超过7.35亿剂疫苗。在COVID-19大流行期间报告超过900,000例副作用。
 
-* * *
+**EMA今天报告以下数据：**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+• Comirnaty – 提供545,000,000剂，报告522,530例副作用 （.0009）；
+• SpikeVax – 提供103,000,000剂，报告124,410例副作用 （.001）；
+• Vaxzevria – 提供69,000,000剂，报告231,363例副作用 （.003）；
+• Janssen （J&J）- 提供18,700,000 剂，报告35,027例副作用 （0.0018）。
 
+EMA表示，疑似副作用为接种COVID-19疫苗后观察到的医学事件，但不一定与疫苗相关或由疫苗引起。
 
-编辑：【英国伦敦喜庄园编辑部】
+名为EudraVigilance的欧盟数据库拥有这些疫苗副作用信息。此外，欧洲可疑药物不良反应数据库在兼顾欧盟数据保护法同时，以多种方式向公众提供这些数据的访问权限。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+截至2022年1月20日，EMA已授权五种COVID-19疫苗，包括位于马里兰州的Nuvaxovid 疫苗。
+
+此外，EMA正在审查Sputnik V、Sinovac、Vidprevtyn和Valneva的VLA2001候选疫苗。
+
+EMA的使命是促进药品评估和监督的科学卓越性，以造福欧盟的公众和动物健康。
+
+**文章来源：**[https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects](https://www.precisionvaccinations.com/2022/01/20/europe-confirms-over-900000-covid-19-vaccine-side-effects)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
