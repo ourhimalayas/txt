@@ -2,26 +2,58 @@
 ---
 
 
-## 世卫组织呼吁各国取消疫情旅行禁令
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1904098/)
+## 有声|沉静黑暗中的萤火虫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904103/)
 
-采编翻译：Spirit      编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-6.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=cAfqlEGL&amp;id=CC83AD9739AFF929671FD2B78F45920DC3D64541&amp;thid=OIF.%2fvWDErdaSy0fhcIf3CMI8w&amp;mediaurl=https%3a%2f%2fstalliontimes.com%2fwp-content%2fuploads%2f2022%2f01%2fTravel-ban.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.7007ea94418bd4f098d15bf29a4dfa59%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=378&amp;expw=672&amp;q=WHO+Recommends+Nations+Lift+or+Ease+COVID-19-Related+Travel+Bans&amp;simid=232582389051&amp;FORM=IRPRST&amp;ck=FEF58312B75A4B2D1F85C21FDC2308F3&amp;selectedIndex=2&amp;ajaxhist=0&amp;ajaxserp=0)
+配音：香草山佛教部 – 李傻
 
-据《美国之音》1月20日报道，[世界卫生组织]当天以“可能加剧全球经济和社会压力”为由，突然建议各国取消或放宽现有的疫情旅行限制措施。
 
-报道称，这项突如其来的建议是世卫组织[卫生应急委员会]在1月19日提出的，同时表示：由于目前在国际上实施的各项旅行限制并未减缓“奥米克戎”病毒疫情的蔓延，因此从长远来看，各国采取的防疫手段基本上是无效的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+似水流年，平凡的日子已成了遥远的往事。
+人生的万千风景中，都伴随着一段段记忆。
+那些刻骨的，平淡的，都随着岁月风烟渐行渐远。
+或许时光可以老去，
+光阴对面，永不老却的是爱和温暖和感动。
+处身在黑暗时，唯一支撑下去的就是内心的信念。
 
-此外，建议中还强调，其他旅行健康安全措施，如配戴口罩、病毒检测、感染隔离和疫苗护照等，都应以合理的风险评估为基础，以避免给国际旅行者带来过多的经济负担。
+人生没有如果，在激情燃烧的岁月裡，
+这个世界永远留存着您们永不妥协的气息。
+每个人都在自己的角色裡演释着自己的故事，
+创造着自己燃烧青春岁月的奇迹⋯⋯
+您们就像黑暗中的萤火虫， 既使生命的短暂，
+依然给这个黑白无常的世界带来那一点光。
+兄弟姐妹们，您日夜奔跑着的身影，太累了，安息吧！
+——致天堂的手足
 
-世卫组织以上不断自相否定，出尔反尔的公共卫生建议，不仅不能正确指导各国实行有效的疫情限制措施，实际上还造成了全球防疫政策的严重混乱，并加剧了近期“奥米克戎”病毒的迅速传播。
+人生就像蒲公英，看似自由，却心不由己。
+带着信念各处寻找自己扎根的地方。
+无论您们身在何方，
+心中惦念的依然是那熟悉的味道。
+兄弟姐妹们，微笑的活着，好好的活着。保重吧！
+——致远离家乡的手足
 
-校对编辑：硫酸羟氯喹64
+新的一年又到了，心中感慨万千。
+祝所有正义常存的您无论在何方或天堂
+永远自由快乐的绽放！这个世界我们来过⋯⋯
 
-发稿： 苦尽甜来 (文來）
+文字版原文：[沉静黑暗中的萤火虫](https://gnews.org/zh-hans/1899202/)
 
-[原文链接](https://www.voanews.com/a/who-recommends-nations-lift-or-ease-covid-19-related-travel-bans/6405130.html)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

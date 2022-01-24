@@ -2,33 +2,82 @@
 ---
 
 
-## 台湾前线｜Omicron感染持续扩大 首批默沙东口服药抵台
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1902545/)
+## 【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1902175/)
 
-** 港台前線關注組｜發佈日期/ 22/1/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5135BA19-56EA-44AD-9EF0-A604D9E34E0B.jpeg)
+2022年1月23日，据福克斯新闻刊文报道，在华盛顿特区举行了大型抗议疫苗授权活动，有30,000 至 35,000 人参加了本次抗议活动。
 
-台湾中央流行疫情指挥中心24日表示，首批默沙东口服抗病毒药Molnupiravi清晨到达台湾，未来将提供具有重症风险因子之轻中度COVID-19个案治疗使用。截至目前，台湾统计数据指出新冠确诊中84%为轻中度症状，死亡则占所有确诊数4.6%。
+“击败授权”抗议疫苗授权[游行走上](https://www.foxnews.com/category/us/us-protests)[华盛顿特区](https://www.foxnews.com/category/us/washington-dc)的街道和纪念碑，抗议者和演讲者呼吁在全国范围内结束[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus) [疫苗](https://www.foxnews.com/category/health/infectious-disease/vaccines)授权。
 
-- [COVID-19 最新情報｜日本考慮公費負擔新冠口服藥 郭文貴曾爆新藥副作用極強](https://gnews.org/zh-hant/1770349/)
+目前为止，包括华盛顿特区、纽约市、洛杉矶、芝加哥、明尼阿波利斯和波士顿在内的一些美国主要城市已经实施了全市范围的规定，要求居民在某些场所（例如餐馆和健身房）出示疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3D0EE3F5-861E-41F6-9EEA-A053634D3A59.jpeg)
 
 
-## 台湾Omicron感染持续 呼吸道症状就医应采检
+和平抗议活动于中午左右在华盛顿纪念碑开始进行，首先前往林肯纪念堂。在那里，一系列演讲者们分享了他们在过去一年的经历以及他们呼吁结束疫苗授权的理由.
 
-自1月开始台湾发现首起本土Omicron病例，本土确诊数量不断增加，感染区域集中在台湾北部（台北、新北、桃园）。位于桃园的远雄自由贸易港区加值园区亚旭电脑群聚感染成为目前最大规模的群聚感染案，该公司聘请之外籍移工受感染后于宿舍（大通铺）传播，此群聚感染目前共累计有70名确诊。桃园市长郑文灿发布命令，**全（桃园）市医疗院所只要遇到上呼吸道症状民众就诊，一率采检**。
 
-24日，台湾疫情指挥中心公布新增15例本土个案，其中8例发生在高雄，Omicron已在台湾发生隐性传播链。防疫指挥官陈时中表示，24日的新增个案已经大幅减少，觉得庆幸但危机还没有过（年节将至）。又高雄港发生的感染，指挥中心公布个案间具有关联性，因此判定高雄疫情尚无扩大迹象。
 
-针对高雄港区疫情，高雄市长陈其迈表示，高雄发现的15例感染目前都与新光轮（高雄港区疫情起始点）群聚有关，研判感染已延伸，考量到港区工作环境繁杂，为阻断传播链，23日起高雄将扩大采检，民众若出现呼吸道症状就诊经医生评估后免费发放居家快筛试剂，民众再将采检结果回报诊所。
+> Big enthusiastic crowd braved the cold in DC to [#defeatthemandatesdc](https://twitter.com/hashtag/defeatthemandatesdc?src=hash&amp;ref_src=twsrc%5Etfw). ⁦[@P\_McCulloughMD](https://twitter.com/P_McCulloughMD?ref_src=twsrc%5Etfw)⁩ ⁦[@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw)⁩ ⁦[@TruthMav](https://twitter.com/TruthMav?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/TukJ99sp2d](https://t.co/TukJ99sp2d)
+> — Richard Amerling (@dramerling) [January 23, 2022](https://twitter.com/dramerling/status/1485354150502281216?ref_src=twsrc%5Etfw)
 
-## 台湾实施疫苗数位证明
 
-台湾政府依照欧盟规格于1月21日推行疫苗数位证明（疫苗护照），引起民众热议。目前，台湾疫苗数位证明仅用于进出歌舞厅、夜总会、具乐部、酒家、酒罢、理容院、夜店、三温暖等受管制之八大场所，然未来是否扩大疫苗数位证明适用场所值得关注。
 
-在台湾中央政府推动疫苗数位证明前，台北市、新北市原拟推行疫苗通行证，要求进入校园应出示疫苗接种记录，再逐步扩大到餐厅、运动中心等公共场所。双北市的疫苗通行证计划遭到卫福部长陈时中之反对，他表示：“不能过于强烈限制人身自由”。然而，在卫福部长反对双北提出的疫苗通行证后，中央政府随即实施疫苗数位证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Food-Dine-Socia-Media-Youtube-Banner.png)
-来源｜[yahoo即時新聞](https://tw.news.yahoo.com/首批抗疫口服藥抵台-將提供具重症風險因子之輕中度確診治療-063606872.html)、[自由時報](https://news.ltn.com.tw/news/life/breakingnews/3810177)、[TVBS](https://tw.news.yahoo.com/桃園-高雄人注意-1症狀就醫-強制採檢-即日起實施-000744559.html)
+
+
+> Fighting for medical freedom will always and forever be on the right side of history. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W8cEEuhZfd](https://t.co/W8cEEuhZfd)
+> — Debra Lea (@thedebralea) [January 23, 2022](https://twitter.com/thedebralea/status/1485374947971194886?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
+> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
+> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+
+
+
+30,000 至 35,000 人参加了抗议活动，[要求](https://defeatthemandatesdc.com/about/)终止疫苗授权和疫苗护照，他们呼吁进行合理辩论和知情同意的权力。
+
+游行组织者威尔·维特（Will Witt）是非营利组织 PragerU 的作家和政治评论员，她说：“你会听到很多左派人士说这是一场大型的反疫苗集会——人们进来否认科学，”
+
+“但是，这次游行是关于抗议我们现在在全国各地看到的严厉措施，特别是在华盛顿特区、纽约市、洛杉矶、旧金山等地。”
+
+几个团体赞助了这次活动，包括前线 COVID-19 重症监护联盟、世界卫生委员会、疫苗安全研究基金会和儿童健康防御组织——由小罗伯特·肯尼迪领导。
+
+演讲者包括罗伯特·马龙博士，Peter McCullough 博士、Christina Parks 博士、Paul Alexander 博士和[Maddie De Garay 的母亲 Stephanie De Garay](https://www.foxnews.com/media/ohio-woman-daughter-covid-vaccine-reaction-wheelchair)。
+
+
+
+> 🔥 Dr. Robert Malone destroys the approved narrative in 2 minutes. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/l9R9bid56L](https://t.co/l9R9bid56L)
+> — Zach (nine meals from anarchy) (@Just\_\_\_Zach) [January 23, 2022](https://twitter.com/Just___Zach/status/1485345169432096769?ref_src=twsrc%5Etfw)
+
+
+
+正义网络点评：
+
+“在我一生所知道的所有疫苗中（脊髓灰质炎、天花、白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎和肺结核），我还想加上流感和肺炎。我从未见过一种疫苗能强迫我要戴口罩，并保持社交距离，即使您已完全接种疫苗。
+
+我从未听说过即使在接种疫苗后也会传播病毒的疫苗。我从未听说过接种疫苗的奖励、折扣、奖励措施。我从未见过对那些没有接种的人的歧视。如果你没有接种过疫苗，没有人试图让你觉得你是个坏人。我从未见过一种疫苗会威胁到家人、同事和朋友之间的关系。我从未见过用于威胁生计、工作或学校。我从未见过一种疫苗可以让 12 岁的孩子无视父母的同意。在我上面列出的所有疫苗之后，我从未见过像这样的疫苗，它会歧视、分裂和评判社会。随着社会结构的收紧……这是一种强大的“疫苗！”
+
+即使我们已经完全接种了所谓的疫苗，之后，仍需要注射加强剂量；并且，在完全接种后仍需要进行阴性检测；并且，在完全接种后仍需要戴口罩；并且，在接种完后仍需感染！仍需住院！仍需死亡！
+
+在经历着无休无止的折磨之后，很可能会出现一个想法：“是时候让我们承认：我们被完全欺骗了”！“是时候叫停疫苗强制令了！”
+
+[新闻来源](https://www.foxnews.com/politics/washington-dc-defeat-mandates-march-covid-vaccine)
+
+撰稿/雅典娜之矛
+
+审阅/正义网络
+
+上传/侠客行
 
  
 

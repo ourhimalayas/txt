@@ -2,33 +2,23 @@
 ---
 
 
-## 世卫组织建议各国取消COVID旅行禁令
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904371/)
+## 意大利CCP病毒疫情趋于稳定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1904391/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
-根据《VOA》1月20日报道，世界卫生组织本周建议各国取消或放宽现有的与COVID-19有关的旅行限制，称这些限制可能加剧与该大流行病有关的经济和社会压力。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/553F40F8-B4E0-4C64-A4DF-D44BD651265E_w1023_r1_s.png)
-这项新建议是世卫组织国际卫生条例应急委员会在最近一次会议后于周三提出的。报告称，旅行限制未能限制引起COVID-19的病毒的omicron变体的国际传播，这表明这种措施随着时间的推移是无效的。
+**撰稿：蚂蚁爱钓鱼**
 
-报告接着说，其他旅行安全措施，如戴口罩、测试、隔离,检疫和疫苗接种，应以风险评估为基础，以避免给国际旅行者带来过多的经济负担。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16430424351.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16430424351.png)
+据安莎社报道，2022年1月21日-，高等卫生研究所（ISS）负责人西尔维奥·布鲁萨弗罗（Silvio Brusaferro）周五表示，意大利最新一波 COVID-19 传染的曲线开始稳定下来。
 
-新闻链接：[https://www.voanews.com/a/who-recommends-nations-lift-or-ease-covid-19-related-travel-bans/6405130.html](https://www.voanews.com/a/who-recommends-nations-lift-or-ease-covid-19-related-travel-bans/6405130.html)
+报告称，12 月 22 日至 1 月 4 日期间的 Rt（传播） 指数为 1.31，低于上周报告中的 1.56。然而，报告补充说，本周的数字可能略低于应有的数字，因为一些地区在发送数据时遇到了问题。
 
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
+报告指出，每 100,000 名居民的发病率为 2,011 例，与上周的 1,988 例相比基本稳定。报告指出，新型冠状病毒患者占据的普通病房医院病房比例从27.1%上升到31.6%。但重症监护病房的COVID患者入住率实际上稳定在 17.3%，而1月15日为 17.5%。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[原文链接](https://www.ansa.it/english/news/2022/01/21/covid-19-contagion-curve-starting-to-stabilize-iss_f0b6bb74-d1e1-4212-9578-1da636e2b803.html)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

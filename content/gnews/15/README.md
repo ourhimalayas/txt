@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|欧洲议会新决议再次敦促成员国抵制北京冬奥
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904184/)
+## 马龙博士在历史性的“击败授权”游行中向数万人的演讲
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1904213/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月20日，在离北京2022年冬奥会仅有两周之际，欧洲议会高票通过了香港自由决议，决议中直接认定中共国人权状况不仅没有任何改善，还进一步恶化，议会再次敦促欧盟委员会、理事会和各成员国，拒绝政府代表和外交官出席北京冬奥的邀请。
+翻译：Jenny Ball
 
-据悉，欧洲议会早在2021 年 7 月 8 日就已经作出决议，并呼吁拒绝出席北京冬奥，除非中共能证明香港人权状况有改善。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1995.png)周日，罗伯特·马龙博士向数以万计在首都游行抗议疫苗授权的人发表讲话。
 
-文字版原文：[欧洲议会新决议再次敦促成员国抵制北京冬奥](https://gnews.org/zh-hans/1898281/)
+“我请求你们允许我一点时间，谈谈我们的孩子，以及我们必须保护他们的基本责任，”马龙博士对众人群说。“别的不说，我们必须培养和保护我们的孩子这是第一重要的工作。这是你的工作，这是我的工作，而不是他们的工作去保护我们。在过去的两年中，我们的社会和公共卫生应对措施却未能保护他们。”
 
-音频处理：Fei797
-发稿：Fei797
+“我们的公共卫生系统要求我们对孩子做的许多事情在直接伤害着他们。世界各地的儿童自残、自杀和吸毒已经开始大流行，”马龙博士继续说道。“焦虑、欺凌、恐吓、胁迫，这些都已经成为常态。测量非常幼小孩子的智商已经显示下降了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+马龙博士继续讲到媒体和大型科技公司是如何用扭曲公共政策”的叙述来推动 COVID-19 疫苗“，“我真诚地相信我们打破这种媒体大肆疯狂的影响。传统媒体和大科技的影响，助长了恐惧和心理操纵，这些都严重扭曲了公共卫生政策，”马龙博士说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“Omicron 已经摧毁了他们对疫苗有效说法，以及早期药物治疗不起作用的说法。我们总统预测的，由媒体恐惧散播者推说的 黑暗冬天未能实现！”马龙博士说。
+
+抗议游行最初是由马龙宣布的，他是公认的 mRNA 疫苗的发明者之一，并且对当前的 COVID-19 大流行策略持怀疑态度。马龙上个月出现在“Joe Rogan ence”播客中时宣布了这一活动， 他和罗根的访谈在网上疯传，并导致一些医疗专业人士呼吁罗根的业主流媒体平台公司Spotify审查罗根。
+
+中午，人群聚集在林肯纪念堂周围，聆听运动员、医生和记者的演讲。华盛顿大规模游行还有包括彼得·麦卡洛博士(Peter A. McCullough)其他发言人。
+
+素材链接：[thepostmillennial.com][WATCH: Dr. Robert Malone addresses tens of thousands at historic Defeat the Mandates march](Dr.%20Robert%20Malone%20addresses%20tens%20of%20thousands%20at%20historic%20Defeat%20the%20Mandates%20march)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

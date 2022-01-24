@@ -2,30 +2,37 @@
 ---
 
 
-## 美军两个航母打击群进入南海争议区域 表达维护盟友立场
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903905/)
+## 有声|传统加密货币价格暴跌，千亿美元蒸发
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904002/)
 
-#### 撰稿：日本东京方舟农场 Kevin wang
+配音：香草山农场 – 纳米
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13E05279-95EB-4026-8636-80E0B105AF00.jpeg)（图片来自中央社）
 
-1月24日，美国国防部表示，美军2个航空母舰打击群于23日驶入南海争议海域进行训练，美军指挥官表示，此举意在表示对区域盟友的支持，并展现美方「对抗恶意影响」的决心。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月21日外媒报道，数字货币市场主要加密数字货币价格下跌，其中最流行和最知名的数字货币：比特币的价格跌破40,000 美元，下跌约 10%，以太坊下跌约 13%。加密数字货币市场损失达 1500 亿美元。
 
-中央社报道， 美国五角大厦24日发布声明称，海军卡尔文森号（USS Carl Vinson CVN-70）、林肯号（USS Abraham Lincoln CVN-72）航空母舰打击群23日在南海展开行动。美国国防部表示，这两个航舰打击群将进行反潜作战、空中作战、海上拦截等演训行动，以加强战备能力。
+此前有消息称，俄罗斯中央银行提议在该国禁止加密货币。由于该国是世界第三大加密货币开采地区，所以，俄罗斯的数字货币政策的变化，对靠采矿生产的数字货币，比如说——比特币等，有重大的影响。
 
-该声明还引述林肯号打击群指挥官安德森少将（Rear Admiral J.T. Anderson）说法称：「此类行动能提高我们的可恃战力，让我们的盟友和伙伴安心，展现美国海军捍卫区域稳定及对抗恶意影响的决心。」
+但对不依赖采矿的数字货币，就没有什么影响力了。相比之下，喜马拉雅交易所的HCoin在最近24小时内，价格只有0.7%的小幅波动。以黄金为锚的HCoin，未来会成为数字货币市场中最具价值的数字货币。
 
-此外，日美于本月17日至22日间举行联合训练，日方派出大型护卫舰日向号（满载排水量1万9000吨），美方则派出卡尔文森号、林肯号及两栖突击舰与驱逐舰等，总计日美共10艘舰艇参与。
+文字版原文：[传统加密货币价格暴跌，千亿美元蒸发](https://gnews.org/zh-hans/1898704/)
 
-*参考链接： [五角大廈：2艘航艦在南海訓練 以對抗惡意影響](https://www.cna.com.tw/news/aopl/202201240318.aspx)*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*素材采编：Kevin wang*
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*编辑： 青城道姑*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*发布：miumiu*
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

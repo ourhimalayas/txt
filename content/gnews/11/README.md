@@ -2,33 +2,27 @@
 ---
 
 
-## 有声|IMF主席称中共清零政策已成世界经济负担
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904227/)
+## 美联储审时度势或将与喜联储全面合作
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1904250/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月21日，国际货币基金组织IMF总裁表示，中共国在对待冠状病毒采取的“清零”政策，已经成为世界经济的负担，而需要重新评估。
+采编： Spirit       编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image-9.jpg)
+根据对[GTV新闻]和[福布斯]近日的综合报道，[美联储]首次公开启动了关于引入美国央行数字货币的计划，并将可能与[新中国联邦]的[喜联储]合作，以顺应全球新型数字金融的未来趋势，以及试图持续保持美元的国际优势地位。
 
-“清零”政策是指政府通过强硬的公共卫生措施，如大规模核酸检测、封闭整个城市、转移并集中监控整个社区，以及严格的边境检疫等等极端措施，意图彻底消除病毒。
+报道称，[美联储]要求在未来3个月内就应用“潜在的央行数字货币金融系统”提出可行性方案，并最终能使个人和企业能使用该系统进行基本的商品和服务采购和支付账单，政府则可以使用它来征税或直接向国民支付福利等。从而在根本上改变现有美国金融体系的运行结构。
 
-IMF总裁格奥尔基耶娃在接受媒体采访时说，中共国的“清零”政策，在大流行开始之初，遏制战略似乎比较成功。但这些严厉的手段对传染率惊人的奥密克戎来说，已经没有多少成效了。相反，带来的风险远多于益处，对中共国内和整个世界的经济复苏都造成了冲击。
+为此，[GTV]1月21日文贵大直播指出，作为目前世界上唯一稳定，安全，合法的最先进加密数字货币系统，[新中国联邦]的数字金融机构[喜联储]，将极有可能成为美联储现在和将来，唯一可信赖且最具实力的合作伙伴。同时也将是美国保持全球金融领导地位和维护美元优势的最佳选择。
 
-格奥尔基耶娃指出，中共国这种“清零”政策越来越成为世界经济重启的负担。另外，所有国家都必须重新评估应对大流行病的最佳方案。
+校对编辑：硫酸羟氯喹64
 
-文字版原文：[IMF主席称中共清零政策已成世界经济负担](https://gnews.org/zh-hans/1898280/)
+发稿： 苦尽甜来 (文來）
 
-音频处理：Fei797
-发稿：Fei797
+[原文链接](https://www.ft.com/content/df3ef633-d514-4f9f-8e96-b345a22b0630)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[新闻链接](https://gtv.org/video/id=61eaab2f533c672fca804729)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

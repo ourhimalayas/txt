@@ -2,30 +2,29 @@
 ---
 
 
-## 担心俄罗斯的侵略行为 日本政府建议国民避免在乌克兰旅行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904166/)
+## 有声|欧洲议会新决议再次敦促成员国抵制北京冬奥
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904184/)
 
-撰稿：东京樱花团/黑猫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-39.jpg)
-[图片来源](https://www.bbc.com/news/uk-60033012)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月20日，在离北京2022年冬奥会仅有两周之际，欧洲议会高票通过了香港自由决议，决议中直接认定中共国人权状况不仅没有任何改善，还进一步恶化，议会再次敦促欧盟委员会、理事会和各成员国，拒绝政府代表和外交官出席北京冬奥的邀请。
 
-日本外务省1月24日，出于对俄罗斯可能会发生军事侵略的担忧，将整个乌克兰的旅行警报提高到3级。
+据悉，欧洲议会早在2021 年 7 月 8 日就已经作出决议，并呼吁拒绝出席北京冬奥，除非中共能证明香港人权状况有改善。
 
-日本外务省还敦促在乌克兰的日本人尽快乘坐商务飞机离开该国。
+文字版原文：[欧洲议会新决议再次敦促成员国抵制北京冬奥](https://gnews.org/zh-hans/1898281/)
 
-此前，与俄罗斯接壤的两个东部省份和克里米亚半岛处于3级，而该国其他地区处于1级旅行警报。
+音频处理：Fei797
+发稿：Fei797
 
-根据日本外务省的数据，在乌克兰有大约200多名日本国民。 如果军事紧张局势加剧，预计自卫队的飞机将很难救援他们，因此日本政府要求他们在商业飞机还在运行时离开该国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-信息来源：
-
-[ウクライナ全土、渡航中止勧告　ロシア侵攻懸念で日本政府](https://news.yahoo.co.jp/articles/eee7c928aaf8a1fa1a2256ba996861b2589174be)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
