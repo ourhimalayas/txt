@@ -2,35 +2,105 @@
 ---
 
 
-## 01/24每日播报｜美国食品供应链因“奥米炕”感染潮面临巨大压力
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1902997/)
+## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61ee6ab028a108147c618939)**
+[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
 
-**2022-01-24**
+**Steve Bannon
+史蒂夫·班农**
 
-《华尔街日报》1月23日报道，随着中共病毒“奥米炕”变种感染数量激增，从食品加工厂、超市到杂货店都出现了劳动力短缺，美国的食品供应系统正面临巨大压力，超市货架上也出现了商品短缺。
+I want the people
+我希望人们
 
-在亚利桑那州，一家大型农产品公司有十分之一的加工工人和配送工人生病。美国东南部的一家连锁杂货店，因为配送中心有大约三分之一的员工生病，不得不雇用临时工。
+also the here’s the more fundamental thing for people in the audience right now
+也对现在观众中的人们来说这是更基本的事情
 
-2020初，因中共病毒爆发所采取的封城政策导致了商品采购激增，商店货架上的肉类、烘焙原料和纸制品等商品被一扫而空。而现在，一些企业高管表示，当前供应链挑战比以往任何时候都要严峻。
+other than capital markets
+除了资本市场，
+because capital markets are reactive to this
+因为资本市场对此有反应
 
-纽约州诺斯波特一家商店的产品经理表示，在1月初，该公司五分之一的员工感染了中共病毒。配送也受到了冲击：本月早些时候，他只收到了他所订购的 48 箱草莓中的17 箱。
+You’ve had these cheerleaders like Jim Cramer and others,
+你有像吉姆·克莱默和其他人这样的啦啦队员，
 
-报道指出，在阿拉巴马州和乔治亚州的一家连锁超市，在1 月份的第一周，其配送中心组织产品和装载卡车的拣货员中，约有三分之一的人生病请假。主管米尔根先生说，由于司机短缺和人员配备问题没有得到改善，冷冻蔬菜和罐装饼干都卖光了。
+Jamie Dimon up there,
+杰米·戴蒙在那里
 
-总部位于中西部的一家生鲜食品超市的主管丹•奥尼尔表示，超市的冷冻早餐产品、罐装豆类和其他商品一直处于短缺状态，该公司正努力试图从其他供应商那里获得更多库存。
+cheerleading for Biden’s economic plan
+为拜登的经济计划做拉拉队，
 
-卡车运输公司的司机短缺，使得公司履行订单变得更加困难。位于威斯康星州的货运公司的总裁布兰登·约翰逊表示，这波“奥米炕”病毒的袭击对公司员工的影响与疫情爆发初期一样严重，他已经习惯了告诉客户，他已经没有司机来搬运货物了。
+which we said is a disaster
+我们说这是一场灾难
 
-秘翻主编   清风先生编译报道
+And Kramer was on TV said the greatest economy in his life in his life.
+克莱默在电视上说是他一生中最伟大的经济
 
-发布 :文橙
+Just a couple of weeks ago
+就在几周前
+
+This is right now getting oil at $85 a barrel. Right?
+现在的油价是每桶85美元，对吧？
+
+Yeah, they’re about to announce
+是的，他们即将宣布
+
+they’re going to redo the forecast for the first quarter slowing GDP
+他们将重做第一季度GDP放缓的预测
+
+There’s you could see that yesterday
+昨天你可以看到
+
+The reason Goldman Sachs is so important of missing the earnings
+高盛失去收益如此重要的原因
+
+Why is that important?
+为什么这很重要？
+
+Why do we focus on that?
+我们为什么要专注于此？
+
+Because in this complex financial capital market driven world
+因为在这个复杂的金融资本市场驱动的世界里
+
+who would have a better understanding of it than Goldman Sachs
+谁能比高盛更了解它
+
+when they miss earnings that badly that is bad
+当他们严重失去收入时，这很糟糕
+
+everybody in the world capital markets say
+世界资本市场上的每个人都说
+
+and hi the Goldman guys missed it this badly?
+嗨，高盛的人的损失这么的糟糕？
+
+It’s worse than we thought
+比我们想象的还要糟糕
+
+Okay, that’s why the stocks off so much.
+好吧，这就是为什么股票下跌这么多
 
 * * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+Date:01/19/2022
+原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
+当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+原视频日期：2022/01/18
+原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
+任务编号：KE361(3538)
+视频时间段 : 0:00-0:59
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

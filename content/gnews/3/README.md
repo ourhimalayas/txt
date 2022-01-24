@@ -2,104 +2,63 @@
 ---
 
 
-## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
+## 官方的新冠谎言正在迅速土崩瓦解
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1903022/)
 
-[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
+#### **【雅典娜观察】和您一起探究世界**
 
-**Steve Bannon
-史蒂夫·班农**
+整理报道：不要代表我Kari
+编辑：文泓
 
-I want the people
-我希望人们
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/G5LQDDNMDYUXHF.png)图片来源：雅典娜设计组
 
-also the here’s the more fundamental thing for people in the audience right now
-也对现在观众中的人们来说这是更基本的事情
 
-other than capital markets
-除了资本市场，
-because capital markets are reactive to this
-因为资本市场对此有反应
+当地时间1月23日，据自然新闻报道，随着围绕武汉冠状病毒对全球心理操控的谎言不断被打破，这里有五件你需要知道的事情（由史蒂夫·基尔什解释）：
 
-You’ve had these cheerleaders like Jim Cramer and others,
-你有像吉姆·克莱默和其他人这样的啦啦队员，
+**1****、世界卫生组织（****WHO****）也警告不要接种新冠疫苗加强针**
 
-Jamie Dimon up there,
-杰米·戴蒙在那里
+对一些人来说，只是接种一剂或两剂“福奇流感疫苗”，最初人们以为接种是有些道理的。时至今日，政府要求人们接种第三剂甚至是第四剂加强针，很多人表示已经“受够了”。
 
-cheerleading for Biden’s economic plan
-为拜登的经济计划做拉拉队，
+欧亚经济联盟（EEU）的监管机构和世卫组织的官员现在都承认，新冠疫苗加强针没有意义，这就是他们建议公众不要打加强针的原因。没有证据可以支持加强针的议程，所有人都知道。
 
-which we said is a disaster
-我们说这是一场灾难
+**2****、更多的疫苗接种意味着更多的病毒感染**
 
-And Kramer was on TV said the greatest economy in his life in his life.
-克莱默在电视上说是他一生中最伟大的经济
+他们一直试图向公众隐瞒这一事实，但数据清楚地表明，人们打的针越多，就越有可能出现与“新冠”病毒有关的症状。同时，未接种疫苗的人与“完全接种疫苗”的人相比，平均来说更为健康。
 
-Just a couple of weeks ago
-就在几周前
+**3****、新冠疫苗本身并不安全**
 
-This is right now getting oil at $85 a barrel. Right?
-现在的油价是每桶85美元，对吧？
+除了没有像之前声称的那样起作用之外，新冠疫苗本身也是不安全的。许多以前支持疫苗的医生和其他健康专家正在公开反对这种疫苗，警告说疫苗根本没有作用。
 
-Yeah, they’re about to announce
-是的，他们即将宣布
+“这是个好消息”，基尔什写道：“还没有人公开发表这个消息，但他们都很生气，意识到他们被误导了。（对他们来说）这不是件好事。但对于我们来说这当然是个好消息”。
 
-they’re going to redo the forecast for the first quarter slowing GDP
-他们将重做第一季度GDP放缓的预测
+4)戴口罩不能防止疾病
 
-There’s you could see that yesterday
-昨天你可以看到
+“专家们”用了很长时间才认识到这一点，美国疾病控制和预防中心（CDC）终于承认，戴布质口罩在预防新冠病毒或其他传染性疾病传播方面毫无用处。
 
-The reason Goldman Sachs is so important of missing the earnings
-高盛失去收益如此重要的原因
+腐败的美国CDC负责人罗谢尔·瓦伦斯基在数据公布后不敢承认这一事实，非专业的口罩不是一种可行的医疗干预手段。
 
-Why is that important?
-为什么这很重要？
+**5****、年轻人最不应该接种疫苗加强针**
 
-Why do we focus on that?
-我们为什么要专注于此？
+尽管福奇另有（不可告人的）想法，没有证据表明新冠病毒疫苗对年轻人是安全且有效的。
 
-Because in this complex financial capital market driven world
-因为在这个复杂的金融资本市场驱动的世界里
+事实上，尽管全国各地的左翼学院和大学都在要求重返校园的学生接种“疫苗加强针”，但许多医生和健康专家都在警告父母不要让他们的孩子接种。
 
-who would have a better understanding of it than Goldman Sachs
-谁能比高盛更了解它
+“在这一点上有人大错特错了，但这一次不是世界卫生组织，”基尔什说。
 
-when they miss earnings that badly that is bad
-当他们严重失去收入时，这很糟糕
+基尔什说，人们应该知道的其它几件事是：瑞德西韦是危险且无效的，将这种药物用作治疗新冠肺炎患者已成为美国各地医院的标准程序，这是因为每次将瑞德西韦注射到患者体内时，福奇就会有钱进账。
 
-everybody in the world capital markets say
-世界资本市场上的每个人都说
+基尔什的一位订阅者指出，从一开始就很明显，所有的这些都是无稽之谈。但迟到的答案总比没有答案好，不是吗？
 
-and hi the Goldman guys missed it this badly?
-嗨，高盛的人的损失这么的糟糕？
+新闻链接：[Piece by piece, the official covid narrative is rapidly disintegrating – NaturalNews.com](https://www.naturalnews.com/2022-01-23-covid-narrative-rapidly-disintegrating-piece-by-piece.html)
 
-It’s worse than we thought
-比我们想象的还要糟糕
+发布：tianzhihuan
 
-Okay, that’s why the stocks off so much.
-好吧，这就是为什么股票下跌这么多
-
-* * *
-
-Date:01/19/2022
-原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
-当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-原视频日期：2022/01/18
-原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
-任务编号：KE361(3538)
-视频时间段 : 0:00-0:59
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

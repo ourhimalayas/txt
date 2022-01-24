@@ -2,63 +2,168 @@
 ---
 
 
-## 官方的新冠谎言正在迅速土崩瓦解
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1903022/)
+## 【文贵大直播】中共内斗篇：新中国联邦一定把中共消灭在二十大！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903075/)
 
-#### **【雅典娜观察】和您一起探究世界**
+[https://gtv.org/video/id=61ec26bd87664c47acd86316](https://gtv.org/video/id=61ec26bd87664c47acd86316)
 
-整理报道：不要代表我Kari
-编辑：文泓
+你记住周永康在抓之前、薄熙来被抓之前
+Recuerda, antes de que Zhou Yongkang y Bo Xilai fueron arrestados
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/G5LQDDNMDYUXHF.png)图片来源：雅典娜设计组
+他都多次来证明自己没事儿，还搞新闻记者招待会呢
+Él varias veces vino a comprobar que no le pasaba nada, hasta hizo una conferencia de prensa
 
+薄熙来的事情告诉中国一个政治之残酷
+El asunto de Bo Xilai cuenta una crueldad política a China
 
-当地时间1月23日，据自然新闻报道，随着围绕武汉冠状病毒对全球心理操控的谎言不断被打破，这里有五件你需要知道的事情（由史蒂夫·基尔什解释）：
+甭说咱这些老百姓你不知道
+No digamos que tú como ciudadano no lo sabes
 
-**1****、世界卫生组织（****WHO****）也警告不要接种新冠疫苗加强针**
+真正想干这事儿之前中南坑也不都知道
+Antes de querer hacer esto la cueva del PCCh tampoco lo sabía
 
-对一些人来说，只是接种一剂或两剂“福奇流感疫苗”，最初人们以为接种是有些道理的。时至今日，政府要求人们接种第三剂甚至是第四剂加强针，很多人表示已经“受够了”。
+习要保不保栗战书，别人保不保栗战书？
+Xi quiere proteger a Li Zhanshu, ¿será que los otros también?
 
-欧亚经济联盟（EEU）的监管机构和世卫组织的官员现在都承认，新冠疫苗加强针没有意义，这就是他们建议公众不要打加强针的原因。没有证据可以支持加强针的议程，所有人都知道。
+那不是一个他能出面就能证明的
+Esto no es algo que él pueda comprobar apareciendo
 
-**2****、更多的疫苗接种意味着更多的病毒感染**
+不要看这具象
+No vean lo físico
 
-他们一直试图向公众隐瞒这一事实，但数据清楚地表明，人们打的针越多，就越有可能出现与“新冠”病毒有关的症状。同时，未接种疫苗的人与“完全接种疫苗”的人相比，平均来说更为健康。
+海外华人媒体
+Los medios de comunicación de los chinos que están en el extranjero
 
-**3****、新冠疫苗本身并不安全**
+你给我找一个说过真正的共产党政治说对的吗？
+Búscame uno que diga realmente lo correcto sobre la política del Partido Comunista
 
-除了没有像之前声称的那样起作用之外，新冠疫苗本身也是不安全的。许多以前支持疫苗的医生和其他健康专家正在公开反对这种疫苗，警告说疫苗根本没有作用。
+就是海外华人媒体未来在中国历史上被审判的时候
+Cuando los medios chinos que están en el extranjero sean juzgados en la historia de China en un futuro
 
-“这是个好消息”，基尔什写道：“还没有人公开发表这个消息，但他们都很生气，意识到他们被误导了。（对他们来说）这不是件好事。但对于我们来说这当然是个好消息”。
+它跟共产党是同等的罪行，叫小骂大帮忙
+Tienen la misma ofensa que el Partido Comunista, significa que, para alabar a una persona, debes pretender criticar un poco sus defectos
+什么《万维》呀、《多维》呀、什么《明镜》啊
+Que si “Creaders”, Duowei News”, “Mirror Media”
 
-4)戴口罩不能防止疾病
+什么一堆儿这些垃圾媒体，全是误国误民
+Un motón de estos medios de basura, todos están engañando al país y al pueblo
 
-“专家们”用了很长时间才认识到这一点，美国疾病控制和预防中心（CDC）终于承认，戴布质口罩在预防新冠病毒或其他传染性疾病传播方面毫无用处。
+那么同时二十大你看到了这个腥风血雨的斗争啊
+Y al mismo tiempo viste en el XX Congreso Nacional, la lucha sangrienta
 
-腐败的美国CDC负责人罗谢尔·瓦伦斯基在数据公布后不敢承认这一事实，非专业的口罩不是一种可行的医疗干预手段。
+还没开始呢
+Todavía no ha comenzado
 
-**5****、年轻人最不应该接种疫苗加强针**
+你看王岐山当了副主席你看看好像天塌地陷似的,
+Mira a Wang Qishan como vicepresidente, parece que el cielo se está cayendo
 
-尽管福奇另有（不可告人的）想法，没有证据表明新冠病毒疫苗对年轻人是安全且有效的。
+你见过有一点儿懂历史的中国的副主席
+Si viste la historia de China, los vicepresidentes
 
-事实上，尽管全国各地的左翼学院和大学都在要求重返校园的学生接种“疫苗加强针”，但许多医生和健康专家都在警告父母不要让他们的孩子接种。
+什么高岗啊、刘少奇啊、林彪有一个好下场的吗？
+Que si Gao gang, Liu Shaoqi, Lin biao ¿terminaron con un buen resultado?
 
-“在这一点上有人大错特错了，但这一次不是世界卫生组织，”基尔什说。
+二十大是老天爷给咱更大的机会
+El XX Congreso es la oportunidad más grande que nos otorgó Dios
 
-基尔什说，人们应该知道的其它几件事是：瑞德西韦是危险且无效的，将这种药物用作治疗新冠肺炎患者已成为美国各地医院的标准程序，这是因为每次将瑞德西韦注射到患者体内时，福奇就会有钱进账。
+他不搞二十大，就没有内部的这种厮杀
+Si él no realiza este Congreso, no habrá esta lucha interna
 
-基尔什的一位订阅者指出，从一开始就很明显，所有的这些都是无稽之谈。但迟到的答案总比没有答案好，不是吗？
+不搞二十大，就没有这种掠夺
+Si no realiza el XX Congreso, no habrá este tipo de saqueo
 
-新闻链接：[Piece by piece, the official covid narrative is rapidly disintegrating – NaturalNews.com](https://www.naturalnews.com/2022-01-23-covid-narrative-rapidly-disintegrating-piece-by-piece.html)
+不搞二十大，他就不会在全世界更加的疯狂
+Si no realiza este Congreso, él no estará más loco en todo el mundo
 
-发布：tianzhihuan
+不搞二十大，就没有今天的利用核糖核酸
+Si no realiza este Congreso, hoy no habría ningún uso de ácido ribonucleico
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+把北京和首都最大的周围的城市全部给你核糖核酸化
+Llevando a Beijing y las ciudades más grandes de los alrededores de la capital con ácido ribonucleico
+
+也就叫“宵禁化”
+También llamado “toque de queda”
+
+不为这个就不会给你搞“共用财富”
+Si no es por esto, no habrá lo que es “riqueza compartida”
+
+二十大，谁是赢家？新中国联邦是唯一的赢家！
+En el XX Congreso, ¿quién es el ganador? ¡El Nuevo Estado Federal de China es el único ganador!
+
+连习他所有人都是输家
+Hasta Xi y todas las personas son perdedores
+
+不会再有二十大了
+No habrá más XX Congreso
+
+不会再有二十大了！你放心吧
+¡No habrá más XX Congreso! Tenlo por seguro
+
+七哥从十一大看着共产党看到今天
+Desde el XI Congreso he estado viendo al Partido Comunista hasta ahora
+
+十一大1977年它是干啥呀？
+El XI Congreso, ¿de qué estaba haciendo en el año 1977?
+
+胡耀邦总书记、邓小平军委主席
+El secretario general Hu Yaobang, Deng Xiaoping presidente de la Comisión Militar
+
+然后华国锋宣布了“两个凡是”
+Luego Hua Guofeng anunció “dos lo que sea”
+
+凡是毛主席说的都是正确的！
+¡Lo que sea que diga el presidente Mao es correcto!
+
+凡是毛主席定的咱都要坚决执行和维护！
+¡Lo que sea que establezca el presidente Mao, debemos implementar y mantener resueltamente!
+
+到了1978年邓小平就搞定了 “两个凡是”
+Hasta el año 1978, Deng Xiaoping ha resuelto los “dos lo que sea”
+
+十一大，你再看看今天是二十大了
+El XI Congreso, ahora ves que hoy es el XX Congreso
+
+九大都过去了，那时候七哥都闯江湖了，是不是啊？
+Han pasado nueve congresos, en aquel momento ya he estado experimentando de todo, ¿cierto?
+
+我都已经抠墙上的报纸去了，是不是啊？
+Ya he rapado los periódicos de la pared, ¿cierto?
+
+七哥不是老天爷派来的吗？
+¿No soy enviado por Dios?
+
+就是老天爷派来的！
+¡Fuí enviado por Dios!
+
+保证解决二十大！保证把共产党消灭在二十大！
+¡Prometer resolver el XX Congreso! ¡Prometer eliminar al Partido Comunista en el XX Congreso!
+
+放心吧
+Tenlo por seguro
+
+谢谢！
+¡Gracias!
+
+* * *
+
+日期：01/17/2022
+原视频标题：【文贵大直播】中共内斗篇：新中国联邦一定把中共消灭在二十大！
+(La transmisión en vivo de Wengui) Luchas internas del PCCh: ¡El Nuevo Estado Federal de China definitivamente eliminará al PCCh en el XX Congreso Nacional!
+
+原视频日期：01/14/2022
+原视频网址：**[https://twitter.com/maryann\_3040/status/1481775782834106371?s=24](https://twitter.com/maryann_3040/status/1481775782834106371?s=24)**
+任务编号：KC426（3490）
+视频时间段：00:00-02:12
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
