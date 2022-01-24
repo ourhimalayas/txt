@@ -2,28 +2,38 @@
 ---
 
 
-## 没有信仰的民族多么可悲（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901919/)
+## 欧洲议会通过香港自由决议，首提检讨香港WTO资格
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901924/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月20日，欧洲议会以585票赞成、46票反对、41票弃权，通过关于侵犯香港基本自由的决议。基于香港自由被严重侵犯和剥夺的大量案例，决议提出了欧盟和成员国应采取的26条行动措施，覆盖政治、经济、外交、教育等领域。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-18.png)
+决议强烈谴责香港人权及言论自由恶化， 重申声援香港人民争取自由和民主的斗争。要求欧盟理事会制裁8名香港和中共官员，并针对涉侵犯香港人权的企业，另制定了一份清单。
 
-雅阁是一个有绝对宗教信仰的人，我们新中国联邦人一定要明白，信仰对人类有 多重要！
+鉴于香港在”一国两制 “模式下的自治已被摧毁，决议首次提出，要检讨欧盟与香港的海关合作和互助协定，以及欧盟对香港世贸组织席位的态度。
 
-刘亚洲在生活中老讲述中国人什么都吃，吃的有多残忍，他到四川，看到过吃猴 子，把猴子放在一个笼子里，脖子卡住，把猴毛一刮，当时餐厅外面上百只猴 子，当面把猴头骨敲开，拿勺子挖着脑子吃。还有掌声还争着拍照。
+决议通过后，中共反应强烈，当天和21日，中共驻欧盟使团、中共外交部及其驻港公署、香港中联办、香港政府纷纷回应，指责欧洲议会干预香港事务。
 
-就这个民族，这个国家你能把一个猴子就这么活活的，一个餐厅一天100只，一 天100只，你想想吃了多少猴子。
+参考链接：
 
-我认为这个有性繁殖的世界里边，最聪明的不是人，各种动物都比我们聪明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/没有信仰的民族多么可悲.001.jpeg)
-发布： *tianzhihuan*
+- [Human rights breaches in Hong Kong, Kazakhstan and Sudan](https://www.europarl.europa.eu/news/en/press-room/20220114IPR21026/human-rights-breaches-in-hong-kong-kazakhstan-and-sudan)
+- [JOINT MOTION FOR A RESOLUTION](https://www.europarl.europa.eu/doceo/document/RC-9-2022-0067_EN.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总辑：飞虹
+编编：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

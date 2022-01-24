@@ -2,39 +2,47 @@
 ---
 
 
-## 得州一联邦法官暂时阻止了对联邦雇员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901921/)
+## 巨变：法国、爱尔兰将效仿英国放宽新冠疫情限制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1901936/)
 
-作者：香草山教育部 – Naughty(文行)、Delilah小胖 、007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月21日，得克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登总统对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-11.png)
-这个针对拜登政府疫苗强制令的诉讼，是由一个叫医疗自由联盟的组织发起的。
+据《Breitbart》作者：PETER CADDLE, 2022年1月21日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1970-e1643005572679.png)图片来源：网络
+冠状病毒政策巨变的迹象似乎正在欧洲出现，因为爱尔兰和法国都将效仿英国放宽限制。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+**就在英国首相鲍里斯·约翰逊（Boris Johnson）宣布将立即取消在众多公共场所强制佩戴口罩等多种限制措施后，法国和爱尔兰似乎都将开始放宽对 COVID疫情的限制。**
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
+根据《爱尔兰独立报》的一份报告，爱尔兰现在也在考虑放弃各种封锁规定，包括取消令该国酒店业陷入困境的所有有关措施。
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+该报称，爱尔兰的国家公共卫生应急小组（Nphet）还建议结束该国的内部疫苗证书系统，可能终止疫苗相关禁令。之前除非他们可以证明自己已经从冠状病毒中康复，爱尔兰境内没有接种疫苗的个人被禁止在室内用餐。在爱尔兰，COVID阴性的测试结果从未能够绕过疫苗的限制。
 
-参考链接：
+与此同时，法国也公布了摆脱封锁的计划。据《世界报》（Le Monde）报道，该国总理让·卡斯特克斯（Jean Castex）周四公布了取消限制的时间表。
 
-- [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
-- [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
+从 2 月 2 日开始，该国将开始取消一些相对严厉的限制，例如在户外场所强制佩戴口罩。2 月 16 日夜总会将重新开放。
+
+卡斯特克斯（Castex） 指出，如果国内围绕冠状病毒的情况进一步改善，政府甚至可能考虑暂停其疫苗通行证制度。
+
+尽管法国和爱尔兰政府的突然宣布可能代表欧洲对 COVID 疫情的态度发生了翻天覆地的变化，但仍有理由怀疑。
+
+例如，法国正在继续推出新的疫苗通行证制度，该制度将于 1 月 24 日生效。根据新规定，该国许多未接种疫苗的人将完全无法使用该国的各种便利设施，例如酒吧、餐馆和跨地区公共交通。
+
+与此同时，爱尔兰政府有一个令人讨厌的习惯，即在国内放宽限制的承诺上出现180度大转弯。
+
+爱尔兰的疫苗通行证制度于 2021 年 6 月 26 日首次实施，最初承诺只是一项临时措施，设定的有效期为 10 月 9 日。政府后来将通行证有效期延长至 10 月 22 日。然而，这个日期也错过了，措施再次延长，且没有设定结束日期。
+
+原文链接：[https://www.breitbart.com/europe/2022/01/21/sea-change-france-ireland-set-to-follow-england-in-easing-covid-restrictions/](https://www.breitbart.com/europe/2022/01/21/sea-change-france-ireland-set-to-follow-england-in-easing-covid-restrictions/)
+
+翻译：洛杉矶盘古农场- 海潮
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 柯镇恶
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-总编：Ivy001 / 飞虹
-校正/发稿：海阔天空1
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
