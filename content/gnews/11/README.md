@@ -2,13 +2,28 @@
 ---
 
 
-## 达沃斯论坛创始人—KlausSchwab探究
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1902838/)
+## 北京将迎来雾霾冬奥运会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1902964/)
 
-作者：磨刀石
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCC7B400-1392-49BD-8CCB-917518E08152.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C4CBC299-4C89-4B2D-81A0-6522D7C8F4A1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C009E4F2-34EE-4875-9F11-A21BBEA63666.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C2016475-F4B4-47A7-AB51-BBEEFB5DB443.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6D7768EE-E4DF-4493-B06C-BF9CE07B058A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B67F8D59-A57D-4343-8980-5CF49C93E1BE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/BEDF2C95-660A-4451-B2F6-5C6505BE22C5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/A59A0112-292A-4F36-9925-0BE22594C44B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/ADF3FA7B-031D-4C42-B2ED-FC45D67D6F1E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/58786887-DC76-49AC-91CA-EDE6967AC9EB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/48A483FF-5A01-417E-A857-D8B1BAC981E2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/84B32CF5-D9A2-4F00-9E63-7F5FE6FCAE79.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/252874E9-2534-4ECF-B4F9-8C01472516FA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B68A889E-D9CC-48E2-9773-A61C41AB27A2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B25826D0-B9D9-462A-B9DD-E35D3AA0350D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4C6BB001-AA38-4228-BF26-76F0129B26DA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/174D88E5-2C9C-4709-8644-B1DD4E5184C1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/B6114E07-2706-4434-BA71-DB2510E68D06.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/C82C3C14-DA2F-4FF2-A926-69553236ED96.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3050510D-EE38-48D7-86BE-5BF1E47D9E3F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/29856C05-4352-4BDC-B9FB-CFD2DD07FD56.jpeg)
-*发布：Theodosia*
+撰稿：东京樱花团/盖特第一批注册
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/北京将迎来雾霾冬奥运会.png)图片来源于本文链接
+
+北京，2月24日路透社消息——中共国生态环境部的发言人周四表示，2月4日北京奥运会开幕式当天的大气状况不尽人意，空气质量非常不好，政府将对污染源采取措施，确保“良好的环境”。
+
+北京的雾霾特别严重。北京和河北省将共同采取紧急措施减轻污染，并将对污染程度高的企业和车辆进行处理。
+
+自2015年申办冬奥会以来，中共国一直在加强其环保措施。然而，根据环境部的数据，截至1月24日，北京PM2.5的浓度为每立方米205微克。
+
+据发言人称，北京和河北两省已被授权采取必要措施，停止对经济影响相对较小，污染相对较大企业的运营，而与能源供应相关的企业和预防新冠状病毒感染的产品相关的企业将被排除在外，以确保对经济不会产生重大影响。
+
+信息源：
+
+[北京五輪で大気汚染リスク、環境省「緊急対策講じる」](https://jp.reuters.com/article/worldNews/idJPKBN2JY08T)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

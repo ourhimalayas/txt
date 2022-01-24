@@ -2,39 +2,33 @@
 ---
 
 
-## 有声|美反对强化世卫计划阻止中共渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901562/)
+## 再次揭露HBO精心编织的谎言（part1）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901931/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒1月22日报道，4位欧洲官员近日表示，世卫组织最大的捐助国美国，因为担心中共渗透的威胁，拒绝了一项使世卫组织更加独立的提案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+前几周，我们播放了针对HBO污蔑郭先生、爆料革命以及中国人民的反击视频，主要用HBO采访的真实记录揭露他们是如何造假的。从今天开始，我们将连续播放另一组揭露HBO编织谎言的视频，给大家提供更多真相。
 
-根据1月4日世卫组织公布的公文，上述提案是世卫组织可持续融资工作小组提出的，旨在增加每个成员国的年度捐款。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13-7.png)
 
-美国一直对世卫组织持批评态度，前总统川普指责世卫组织偏袒中共国。中共在2019年中共病毒爆发初期，极力掩盖事实真相，延误与世界分享资讯，导致疫情在全球蔓延。川普因此宣布美国退出世卫。
+今天，我们首先提出与HBO谎言有关的几个问题，然后会在接下来的视频播放中为大家一一解答。请看揭露HBO精心编织的谎言第一部分。
 
-原文链接：[美反对强化世卫计划阻止中共渗透](https://gnews.org/zh-hans/1898331/)
+参考链接：
 
-音频处理/发稿：Daxia
+- [HBO Vice’s Interview with Mr.Miles Guo without Edits: Thoroughly Exposing HBO Vice’s Sinister Attack](https://www.youtube.com/watch?v=z9HvjLuSgA8)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
