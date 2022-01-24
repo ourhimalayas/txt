@@ -2,36 +2,44 @@
 ---
 
 
-## 美海军拦截了一艘伊朗的船只
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1904430/)
+## 奥地利议会批准成人疫苗强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1904453/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月23日，据《消息报》援引美国海军第五舰队宣布的消息，美国海军（US Navy）于1月18日拦截了一艘从伊朗驶来的船只，据称该船载有爆炸性物质。
+据《ABC新闻》转《美联社》作者：EMILY SCHULTHEIS 和 GEIR MOULSON，2022年1月20日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2007-e1643044060337.png)图片来源：wrek.com
+**维也纳——奥地利议会周四投票决定从2月1日起对成人实施 COVID-19强制疫苗，成为欧洲首个实施疫苗强制令的国家。对不遵守疫苗规定的人在经过多次提醒（无效）后最高可能处以3,600欧元（4,000美元）的罚款。**
 
-“由于对该船的国籍进行检查时，美国部队发现了40吨尿素，这是一种用于农业肥料的化合物，也被用来制造炸药。”它在Twitter上说。
+该措施适用于所有18岁及以上的奥地利居民。 孕妇、因医疗原因无法接种疫苗的人或在过去六个月内从冠状病毒中康复的人可以豁免。
 
-据美国海军称，这艘船是在向也门胡塞武装运送武器的途中，这表明美国军方拦截了另一批运往也门安萨尔-阿拉（胡塞武装）叛乱运动成员的货物。
+经过激烈辩论后，该措施在议会轻松通过。卡尔·内哈默（Karl Nehammer）总理执政联盟，由保守派奥地利人民党和绿党组成，与议会三个反对党中的两个就该计划达成了合作。极右翼自由党强烈反对。
 
-此外，这艘船去年2月在索马里海岸被扣留，并被发现携带武器，包括“数千支 “AK-47步枪、狙击步枪、反坦克榴弹发射器和其他武器。”海军补充说。
+**“我感到无比震惊，”自由党领袖赫伯特·基克尔（Herbert Kickl）说，“这项法律除了是对奥地利人自由的巨大打击，什么也不是。”**
 
-11月，据报道，伊朗军方在波斯湾扣留了一艘无国籍的外国船只，怀疑其试图走私15万升燃料。
+其他四个政党发言人批评所谓自由党蓄意在奥地利煽动反疫苗情绪的企图，指责它故意散布关于现有疫苗安全性和有效性的谎言。
 
-此前，伊朗海军曾报告说，它阻止了美国军队在阿曼湾扣押一艘伊朗油轮的企图。五角大楼则否认它拦截了这批石油货物，并指责伊朗军队在阿曼湾的国际水域扣押了这艘商船。
+反对党社会民主党领袖帕梅拉·伦迪-瓦格纳（Pamela Rendi-Wagner）表示，疫苗强制是“我们都不想要的”，但“不幸的是，有必要弥合奥地利仍然存在的疫苗接种缺口。”
 
-[https://iz.ru/1281264/2022-01-24/vms-ssha-soobshchili-o-zaderzhanii-sudna-iz-irana-s-komponentami-vzryvchatki](https://iz.ru/1281264/2022-01-24/vms-ssha-soobshchili-o-zaderzhanii-sudna-iz-irana-s-komponentami-vzryvchatki)
+**自疫苗强制计划宣布以来，该措施已导致维也纳多次大规模示威活动，其中一些示威活动吸引了超过40,000名抗议者。**
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
-**更多资讯，更多关注**
+其他一些欧洲国家已经针对特定专业或年龄组引入了疫苗强制计划。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+奥地利的邻国德国正在考虑对所有人进行强制疫苗，但目前尚不清楚这是否会发生，在何时以及以何种形式发生。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+原文连接：[https://abcnews.go.com/Health/wireStory/austrian-parliament-vote-universal-vaccine-mandate-82368990](https://abcnews.go.com/Health/wireStory/austrian-parliament-vote-universal-vaccine-mandate-82368990)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+翻译：洛杉矶盘古农场 – 海潮
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
