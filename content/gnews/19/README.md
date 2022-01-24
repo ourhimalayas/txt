@@ -2,53 +2,25 @@
 ---
 
 
-## 2022年1月21-24日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1902812/)
+## 朱利安·阿桑奇可以对引渡提出上诉
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1902979/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-361.jpg)
-**七哥****2021.12.29****大直播：**有战友问我，当时去年六四的时候，说：“郝海东朗读的这个宣言里面“保护动物是郝海东说的？是你说的？郝海东不会说出这话吧？”我说：“为啥郝海东不能说这话？”他说：“那不一定是郝海东，这是你们谁的主意啊？”
+信息来源： 德国法兰克福报网页版
 
-我说：“包含郝海东，是新中国联邦的主意，为啥不是郝海东的主意呢？” 对吧？“就这个话怎么可能在……”他说：“你们连这都写进去啊，你还能灭共产党吗？共产党连人都吃，你们连狗肉连什么动物都不吃。”
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/BRITAIN-USA-ASSANGE-MEXICO.jpg)
+图片来源： 路透社
 
-**我说这是很重要的，是我们很多战友提出来的，是我们每个人都要遵守的原则。**
+在英国被拘留的维基解密创始人朱利安·阿桑奇（Julian Assange）受到引渡到美国的威胁。现在伦敦法院裁定阿桑奇可以上诉。预计英国最高法院将作出裁决。
 
-1. **内华达州要求保险公司不得歧视一些狗品种**
+维基解密创始人朱利安·阿桑奇被允许就他被引渡到美国的诉讼提出上诉。在阿桑奇的律师提出论点后，伦敦高等法院周一宣布了这一消息。这意味着在英国最高法院最高法院与美国的法律拉锯战应该继续下去。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-82.jpg)
-**2.** **美议会讨论要求比特币挖矿使用新能源**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-37.jpg)
-**3.** **抽水储能可以储存巨量新能源**
+美国司法部门希望以间谍罪名对阿桑奇进行审判。如果罪名成立，这位土生土长的澳大利亚人将面临最高 175 年的监禁。他被指控与举报人切尔西曼宁一起窃取并公布了美国在伊拉克和阿富汗的军事行动的秘密材料，从而危及美国线人的生命。另一方面，他的支持者将他视为揭露战争罪行的调查记者。这位 50 岁的老人已在伦敦的贝尔马什高安全性监狱关押了两年多。
 
+由于阿桑奇的心理健康，一家英国法院最初禁止将阿桑奇引渡到美国。然而，美国对相应的医疗报告表示怀疑，提出上诉，也成功了。上诉法院去年 12 月解除了引渡禁令。阿桑奇现在希望在最高法院审查这一决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-31.jpg)
-**4. 这个网页列出了区块链的英文学习资源**[**https://betterprogramming.pub/how-to-become-a-blockchain-engineer-fa4386a0504f**](https://betterprogramming.pub/how-to-become-a-blockchain-engineer-fa4386a0504f)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-23.jpg)
-**5. 英特尔获得一份比特币挖矿芯片订单**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-26.jpg)
-**6.中共国有一家房企违约，不支付明天(25日)到期票据的本金及利息**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-20.jpg)
-**7.世贸拟出售上海物业还债**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-17.jpg)
-**8. 美国反击中共，停运厦航、国航、南航、东航44个航班**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-14.jpg)
-**9.1月21日沙特空袭也门，造成超77人死亡，50多人被埋，200多人受伤。这次空袭和2013年8月21日的叙利亚化学武器危机一样。是项庄舞剑意在沛公，都在保美债率不失控。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-13.jpg)
-**10.11.12 乌克兰危机：俄罗斯可能进攻城市、德国将领因不当发言递交辞呈、美国资助乌克兰第二批军火**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/12-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/13-5.jpg)
-**13.意大利国家元首选举开锣**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/14-3.jpg)
-**14.19岁少女驾驶飞机环游世界5万公里。**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/15-5.jpg)
-**15.德国每日确诊中共病毒超14万例**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16-2.jpg)
-**16.新式测毒方法**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/17-3.jpg)
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+https://www.welt.de/politik/ausland/article236432947/Julian-Assange-darf-gegen-Auslieferung-Berufung-einlegen.html
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

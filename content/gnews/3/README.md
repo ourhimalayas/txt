@@ -2,63 +2,186 @@
 ---
 
 
-## 官方的新冠谎言正在迅速土崩瓦解
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1903022/)
+## 七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903131/)
 
-#### **【雅典娜观察】和您一起探究世界**
+[https://gtv.org/video/id=61ec713587664c47acd879c5](https://gtv.org/video/id=61ec713587664c47acd879c5)
 
-整理报道：不要代表我Kari
-编辑：文泓
+今天我要告诉大家
+Hoy les digo a todos
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/G5LQDDNMDYUXHF.png)图片来源：雅典娜设计组
+(面对)今天的Omicron
+(Enfrentando) el Omicron de hoy en día
 
+一定要戴口罩
+Deben usar mascarillas
 
-当地时间1月23日，据自然新闻报道，随着围绕武汉冠状病毒对全球心理操控的谎言不断被打破，这里有五件你需要知道的事情（由史蒂夫·基尔什解释）：
+这是今天我第一个给大家提醒的
+Esto es lo primero que hoy les recuerdo
 
-**1****、世界卫生组织（****WHO****）也警告不要接种新冠疫苗加强针**
+这次东弟一定要记住
+Esta vez, hermano Dong debes recordar
 
-对一些人来说，只是接种一剂或两剂“福奇流感疫苗”，最初人们以为接种是有些道理的。时至今日，政府要求人们接种第三剂甚至是第四剂加强针，很多人表示已经“受够了”。
+口罩是绝对救命的
+Las mascarillas son salvavidas en lo absoluto
 
-欧亚经济联盟（EEU）的监管机构和世卫组织的官员现在都承认，新冠疫苗加强针没有意义，这就是他们建议公众不要打加强针的原因。没有证据可以支持加强针的议程，所有人都知道。
+第2条大家要记住
+Segundo, todos recuerden
 
-**2****、更多的疫苗接种意味着更多的病毒感染**
+这次的Omicron都是扯蛋的事情
+El Omicron de esta vez es una tontería
 
-他们一直试图向公众隐瞒这一事实，但数据清楚地表明，人们打的针越多，就越有可能出现与“新冠”病毒有关的症状。同时，未接种疫苗的人与“完全接种疫苗”的人相比，平均来说更为健康。
+绝大多数的染病者都是打了2针3针疫苗的
+La mayoría de las personas contagiadas son los que se han vacunado la segunda y tercera dosis
 
-**3****、新冠疫苗本身并不安全**
+只要你坐在那儿(外面)一定要戴口罩
+Así estés sentado afuera debes tener la mascarilla puesta
 
-除了没有像之前声称的那样起作用之外，新冠疫苗本身也是不安全的。许多以前支持疫苗的医生和其他健康专家正在公开反对这种疫苗，警告说疫苗根本没有作用。
+因为打了疫苗的人就是你最大的传染源
+Porque las personas vacunadas es tu mayor origen de contagio
 
-“这是个好消息”，基尔什写道：“还没有人公开发表这个消息，但他们都很生气，意识到他们被误导了。（对他们来说）这不是件好事。但对于我们来说这当然是个好消息”。
+我再告诉大家
+También les digo
 
-4)戴口罩不能防止疾病
+疫苗本身就是病毒
+La vacuna en sí es un virus
 
-“专家们”用了很长时间才认识到这一点，美国疾病控制和预防中心（CDC）终于承认，戴布质口罩在预防新冠病毒或其他传染性疾病传播方面毫无用处。
+它叫mRNA的权限给你打开了
+Es una autorización que se abre para ti llamado mRNA
 
-腐败的美国CDC负责人罗谢尔·瓦伦斯基在数据公布后不敢承认这一事实，非专业的口罩不是一种可行的医疗干预手段。
+刺突蛋白本身(对你)就是病毒
+Las propias espículas de glicoproteínas es un virus (para ti)
 
-**5****、年轻人最不应该接种疫苗加强针**
+你们要有点常识
+Ustedes deben tener un poco de conocimiento común
 
-尽管福奇另有（不可告人的）想法，没有证据表明新冠病毒疫苗对年轻人是安全且有效的。
+咱们现在是最弱势群体
+Ahora somos el grupo más vulnerables
 
-事实上，尽管全国各地的左翼学院和大学都在要求重返校园的学生接种“疫苗加强针”，但许多医生和健康专家都在警告父母不要让他们的孩子接种。
+因为凡是服务员都是打过疫苗的
+Porque bien sea el mesonero también está vacunado
 
-“在这一点上有人大错特错了，但这一次不是世界卫生组织，”基尔什说。
+他就是你的最大威胁
+Él es tu mayor amenaza
 
-基尔什说，人们应该知道的其它几件事是：瑞德西韦是危险且无效的，将这种药物用作治疗新冠肺炎患者已成为美国各地医院的标准程序，这是因为每次将瑞德西韦注射到患者体内时，福奇就会有钱进账。
+你们清楚了吧
+Ahora están claros
 
-基尔什的一位订阅者指出，从一开始就很明显，所有的这些都是无稽之谈。但迟到的答案总比没有答案好，不是吗？
+最后一个我要告诉大家
+Por último les quiero decir
 
-新闻链接：[Piece by piece, the official covid narrative is rapidly disintegrating – NaturalNews.com](https://www.naturalnews.com/2022-01-23-covid-narrative-rapidly-disintegrating-piece-by-piece.html)
+(关于)这个共产党放热毒的问题
+(Sobre) el problema del Partido Comunista que ha liberado el veneno caliente
 
-发布：tianzhihuan
+啥叫热毒
+A qué se le llama veneno caliente
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+疫苗就是热毒
+La vacuna es el veneno caliente
+
+疫苗本身在不同的人体和不同的情况下
+La enfermedad producida por la propia vacuna en diferentes personas y condiciones
+
+爆发出来的病就是新的病种
+Es una enfermedad nueva
+
+更重要的事情
+Y lo más importante
+
+我们现在向西方和包括美国高法所有的人
+El occidente, incluyendo todas las personas de la Corte Suprema en EE. UU
+
+包括美国国会议员
+Y los miembros del Congreso de los EE. UU
+
+我们要提供的就两件东西
+Hay dos cosas que les vamos a proporcionar
+
+在欧洲的科学家
+Los científicos que están en Europa
+
+他给我们提供的一些文件
+Ellos nos entregaron unos documentos
+
+就共产党这个事儿我们敢公开喊
+Este asunto del Partido Comunista que nos atrevemos a gritarlo en público
+
+这是共产党的生化病毒
+Este es el virus bioquímico del Partido Comunista
+
+(生化)病毒是不可能有疫苗的
+El virus (bioquímico) es imposible de tener vacunas
+
+就是生化武器
+Es un arma bioquímico
+
+所以说你记住这个原则以后
+Por eso luego cuando recuerdes este principio
+
+你就不要再讨论其他问题了
+No sigas discutiendo otros problemas
+第一, 不能打疫苗
+Primero, no se puede vacunar
+
+第二, 你必须戴口罩
+Segundo, debes tener la mascarilla puesta
+
+第三, 你最近都不要出去
+Tercero, no vayas a salir últimamente
+
+第四, 大家要记住
+Cuarto, todos recuerden
+
+这个世界如果咱要能决定, 什么是黑和白, 红和黑
+Si en este mundo podemos hacer decisiones, qué es blanco y negro, rojo y negro
+
+我们可能是新中国联邦已经不叫新中国联邦了
+Quizás no nos llamaremos el Nuevo Estado Federal de China
+
+就叫太阳联邦了
+Sino Federación del Sol
+
+我们还是很渺小的力量
+Todavía somos una fuerza muy mínima
+
+跟国家的权力
+A comparación con el poder de un país
+
+跟世界比我们是很很很渺小的
+Y el mundo somos muy, muy pequeño
+
+真的是像张高丽说的
+Así como dijo Zhang Gaoli
+
+人家是宇宙无限大
+El Universo es infinito
+
+我们连地球的一粒沙都不是
+Nosotros ni siquiera somos un granito de arena de este mundo
+
+就跟这个国家政权比. 咱连一粒沙子都不是
+Comparados con el régimen de este país, no somos ni un grano de arena
+
+* * *
+
+日期：01/21/2022
+原视频标题：七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
+Miles Guo vuelve a advertir solemnemente de que el virus es el arma bioquímica del PCCh y no puede haber vacuna
+
+原视频日期：01/19/2022
+原视频网址：**[https://gettr.com/post/pp6l0y8f93](https://gettr.com/post/pp6l0y8f93)**
+任务编号：KC428（3534）
+视频时间段：00:00-02:19
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

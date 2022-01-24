@@ -2,82 +2,31 @@
 ---
 
 
-## 【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1902175/)
+## 不动产登记与税务系统实时联网，个人房地产税来了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1902308/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5135BA19-56EA-44AD-9EF0-A604D9E34E0B.jpeg)
-2022年1月23日，据福克斯新闻刊文报道，在华盛顿特区举行了大型抗议疫苗授权活动，有30,000 至 35,000 人参加了本次抗议活动。
+作者：顺其自然
+编辑：小红帽
 
-“击败授权”抗议疫苗授权[游行走上](https://www.foxnews.com/category/us/us-protests)[华盛顿特区](https://www.foxnews.com/category/us/washington-dc)的街道和纪念碑，抗议者和演讲者呼吁在全国范围内结束[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus) [疫苗](https://www.foxnews.com/category/health/infectious-disease/vaccines)授权。
-
-目前为止，包括华盛顿特区、纽约市、洛杉矶、芝加哥、明尼阿波利斯和波士顿在内的一些美国主要城市已经实施了全市范围的规定，要求居民在某些场所（例如餐馆和健身房）出示疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3D0EE3F5-861E-41F6-9EEA-A053634D3A59.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/94I3AOIAL2MN@RBXH96CF.png)图片来源：qq.com
 
 
-和平抗议活动于中午左右在华盛顿纪念碑开始进行，首先前往林肯纪念堂。在那里，一系列演讲者们分享了他们在过去一年的经历以及他们呼吁结束疫苗授权的理由.
+2022年1月17日《搜狐》财经新闻报道，国家税务总局，自然资源部关于进一步深化信息共享，便利不动产登记和办税的通知（税总财行发〔2022〕1号）。2022年底前，全国所有市县税务部门和自然资源主管部门应实现不动产登记涉税业务的全流程信息实时共享。发布的文件指出要共享所有不动产信息：包括权利人、证件号、共有情况、不动产单元号、坐落、面积、交易价格、权利类型、登记类型、登记时间等不动产登记信息，以及办理纳税申报时所需的其他登记信息。
 
+从文件的具体内容来看，字里行间都在为房地产税的征收打下基础。这已经不是什么预期，而是直接开始想着怎么做了。
 
+现在很多贫穷省份县市的公务员只发基础工资、绩效奖金之类的，已经没有（收入）了。所以对于地方政府来说，是非常渴望房地产税的开征的，哪怕冒着政权垮台的危险。因为这些非常贫穷的地方政府和他们的公务员已经顾不上了。
 
-> Big enthusiastic crowd braved the cold in DC to [#defeatthemandatesdc](https://twitter.com/hashtag/defeatthemandatesdc?src=hash&amp;ref_src=twsrc%5Etfw). ⁦[@P\_McCulloughMD](https://twitter.com/P_McCulloughMD?ref_src=twsrc%5Etfw)⁩ ⁦[@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw)⁩ ⁦[@TruthMav](https://twitter.com/TruthMav?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/TukJ99sp2d](https://t.co/TukJ99sp2d)
-> — Richard Amerling (@dramerling) [January 23, 2022](https://twitter.com/dramerling/status/1485354150502281216?ref_src=twsrc%5Etfw)
+估计他们的收税标准是政府评估价格，不会用市场浮动价格，否则大量的税基是不达标准的。也就是说，本来这个房子市场价值50万，但是政府评估价给你评估80万，那么你就要按照80万的评估价来上税。这就是政府对于普通老百姓的明抢。很多人说中共不会征收房地产税，因为现在很多人收入下降或者是失业半失业在家，本来就没有多少钱了，还怎么能征收房地产税呢？但是现在这个不动产信息实时联网打破了这些人的幻想。中共一定会征收房地产税的。现在有大数据支持。谁有几套房，都在哪，一打开网络就全知道了。这个税是逃不掉的。很多人说，有多套房的是让别人代持的，但代持的人会给你交税吗？不可能，最后这个税还得自己交。这对于有多套房的人绝对不是一个好消息。
 
+发布：tianzhihuan
 
-
-
-
-> Fighting for medical freedom will always and forever be on the right side of history. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W8cEEuhZfd](https://t.co/W8cEEuhZfd)
-> — Debra Lea (@thedebralea) [January 23, 2022](https://twitter.com/thedebralea/status/1485374947971194886?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
-
-
-
-30,000 至 35,000 人参加了抗议活动，[要求](https://defeatthemandatesdc.com/about/)终止疫苗授权和疫苗护照，他们呼吁进行合理辩论和知情同意的权力。
-
-游行组织者威尔·维特（Will Witt）是非营利组织 PragerU 的作家和政治评论员，她说：“你会听到很多左派人士说这是一场大型的反疫苗集会——人们进来否认科学，”
-
-“但是，这次游行是关于抗议我们现在在全国各地看到的严厉措施，特别是在华盛顿特区、纽约市、洛杉矶、旧金山等地。”
-
-几个团体赞助了这次活动，包括前线 COVID-19 重症监护联盟、世界卫生委员会、疫苗安全研究基金会和儿童健康防御组织——由小罗伯特·肯尼迪领导。
-
-演讲者包括罗伯特·马龙博士，Peter McCullough 博士、Christina Parks 博士、Paul Alexander 博士和[Maddie De Garay 的母亲 Stephanie De Garay](https://www.foxnews.com/media/ohio-woman-daughter-covid-vaccine-reaction-wheelchair)。
-
-
-
-> 🔥 Dr. Robert Malone destroys the approved narrative in 2 minutes. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/l9R9bid56L](https://t.co/l9R9bid56L)
-> — Zach (nine meals from anarchy) (@Just\_\_\_Zach) [January 23, 2022](https://twitter.com/Just___Zach/status/1485345169432096769?ref_src=twsrc%5Etfw)
-
-
-
-正义网络点评：
-
-“在我一生所知道的所有疫苗中（脊髓灰质炎、天花、白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎和肺结核），我还想加上流感和肺炎。我从未见过一种疫苗能强迫我要戴口罩，并保持社交距离，即使您已完全接种疫苗。
-
-我从未听说过即使在接种疫苗后也会传播病毒的疫苗。我从未听说过接种疫苗的奖励、折扣、奖励措施。我从未见过对那些没有接种的人的歧视。如果你没有接种过疫苗，没有人试图让你觉得你是个坏人。我从未见过一种疫苗会威胁到家人、同事和朋友之间的关系。我从未见过用于威胁生计、工作或学校。我从未见过一种疫苗可以让 12 岁的孩子无视父母的同意。在我上面列出的所有疫苗之后，我从未见过像这样的疫苗，它会歧视、分裂和评判社会。随着社会结构的收紧……这是一种强大的“疫苗！”
-
-即使我们已经完全接种了所谓的疫苗，之后，仍需要注射加强剂量；并且，在完全接种后仍需要进行阴性检测；并且，在完全接种后仍需要戴口罩；并且，在接种完后仍需感染！仍需住院！仍需死亡！
-
-在经历着无休无止的折磨之后，很可能会出现一个想法：“是时候让我们承认：我们被完全欺骗了”！“是时候叫停疫苗强制令了！”
-
-[新闻来源](https://www.foxnews.com/politics/washington-dc-defeat-mandates-march-covid-vaccine)
-
-撰稿/雅典娜之矛
-
-审阅/正义网络
-
-上传/侠客行
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

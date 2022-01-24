@@ -2,31 +2,36 @@
 ---
 
 
-## GEDU的第一课《自由女神》-获得文贵先生高度赞誉
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1901433/)
+## 世卫组织建议取消国际旅行疫苗护照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901922/)
 
-磐石农场G-EDU教育组Qmay提供
-视频剪辑：Mark 
-磐石农场万众瞩目的开幕典礼上，高潮迭起，令战友们印象最深刻的当属Happy 老师的那节课《自由女神》。
+作者：新中国联邦静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月19日，世界卫生组织发布了1月13日召开的中共病毒大流行紧急委员会临时会议的声明。
 
-整节课跨语文，数学以及历史多学科，集多个知识点于一体，深入浅出令人折服。栩栩如生的讲述把每一位屏幕前的大人和小孩子的学习兴趣都最大限度的调动了起来，连文贵先生听完都大加褒赞，说自己是Happy 老师最好的学生。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.png)
 
-文贵先生的赞赏全文如下：
+声明中提出了世卫组织给缔约国的11项临时建议，其中第六条为“赞成解除或放宽国际旅行禁令”，第七条为“赞成国际旅行不需要中共病毒疫苗接种证明”。即世卫组织至少在建议取消国际旅行中的疫苗护照了。
 
-文贵先生说：我忘了开麦，我也会不开麦，你看看，所以说再好的学生也会犯错。请问HAPPY老师，你长那么帅，结婚了没有？有没有男朋友啊?
+分析人士认为，尽管还不明确世卫组织此举意图何在，但这个建议至少对受到它影响的很多国家来说，在取消疫苗强制方面，还是有积极作用的。
 
-HAPPY老师回答说：已经结婚了。
+参考链接：
 
-文贵先生：“结婚了？这是个很大的遗憾啊。你长得太帅了，又长得帅，你又讲那么好。
-
-**刚才我听你讲，说心里话，如果在几十年前你让我知道这么多自由女神像的信息，我对自由女神会有更多更多的理解和行动。你今天讲的80%甚至90%我都不知道。你真是个好老师，这GEDU第一课就是这个自由女神 。**
-
-**兴趣是最好的老师，你让我的兴趣一下子就起来了，真的很爱你啊，不光因为你长得帅，你讲得太好了，GEDU真的是开门第一课最好的学生就是七哥。你的课我一定要听。谢谢**。
-
-编辑发布：Jenny
-磐石农场三大板块宣传片![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+- [Statement on the tenth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

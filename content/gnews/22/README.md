@@ -2,42 +2,81 @@
 ---
 
 
-## 谁是真正卖国者？中共撒币数千亿换取在中亚的影响力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1902802/)
+## 参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1902954/)
 
-整理：Little lamp
-编辑：jasse01
+[https://gtv.org/video/id=61ebffc187664c47acd84ffe](https://gtv.org/video/id=61ebffc187664c47acd84ffe)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/13-9.png)图片来源：雅典娜设计组
+Ron Johnson (WI Senator)
+罗恩·约翰逊（威斯康星州参议员）
 
+No, we’ll see. He’s living in a fantasy world, he really is
+不，我们拭目以待，他生活在一个幻想世界，他真的是
 
-中共国近年来在中亚五个国家撒下数千亿人民币，拉近了和这些国家的关系。
+But but here on planet earth when you spend a trillion dollars we don’t have
+但是，在地球上，当你花费我们没有的一万亿美元时
 
-30年前，1991年苏联解体后中亚五个国家获得独立。此后中共与这五个国家建交。在与五国建交30周年之际，中国国家主席习近平同五国总统互致贺电。
+when you pay people not to work
+当你付钱让人们不去工作时
 
-根据弗吉尼亚威廉玛丽学院研究实验室（AidData）的政策分析主任萨曼莎·卡斯特（Samantha Custer）的说法，中国在中亚的影响力在过去几十年中呈指数级增长，因为经济机会是中亚国家寻求与中国建立更紧密联系的重要驱动力。
+and reduce the supply of goods that’s going to cause inflation
+并减少商品供应，这一定会导致通货膨胀的
 
-中国领导人在中亚地方层面相对更重视金融外交，而不是软实力提议，北京优先考虑获得能源供应和过境路线的战略定位。
+I was amazed at the notes that I hadn’t get to watch the entire press conference
+我没有观看整个新闻发布会，后来看了会议记录后感到惊讶
 
-近二十年来，中国政府向中亚和南亚地区提供了1270亿美元的财政援助。中亚国家在吸引北京财政援助的资金方面名列前茅。
+but he said that he outperformed expectations
+但他说他的表现超出预期
 
-中国领导人在过去二十年中通过教育、文化、交流和媒体在软实力方面加倍努力。
+Again, I’m not sure what planet he’s inhabiting
+再说一次，我不确定他住在哪个星球
 
-为了成为中亚学生的首选留学目的地，中国提供的签证要求低，并提供大量奖学金、英语课程和新的培训方式。并且中亚学生获得了最多的北京奖学金。
+but again here on planet earth
+但是再次在这个星球
 
-遗憾的是大撒币之后，中共仍然面临中亚国家的民族主义和政治精英对北京的不信任。
+What he has governed is is a huge radical leftists
+他所统治的是一个巨大的激进左派
 
-至此，谁才是真正的卖国者？谁为他的政权巩固不择手段？
+he’s not the moderate that the press is going to be said he’s a radical leftist
+他不是媒体会说他是激进左派的温和派
 
-新闻来源：[中国撒币数千亿，换取在中亚国家影响力](https://www.voachinese.com/a/chinese-money-is-the-main-factor-in-winning-influence-in-central-asian-countries/6407210.html)
+He’s opened up the borders. He caused the inflation
+他打开了边界，他引发了通货膨胀
 
-发布：*tianzhihuan*
+We have catch released out of the border
+我们释放了已逮捕非法入境人员
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+but also in our criminal justice system
+这情况也在我们的刑事司法系统中发生
+
+the embarrassing and dangerous surrender in Afghanistan
+阿富汗尴尬而危险的投降
+
+I mean It is a record of failure
+我的意思是这是失败的记录
+
+It’s almost surprising to his approval ratings are as high as they are
+他的支持率还有如此之高几乎令人惊讶
+
+* * *
+
+Date:01/20/2022
+原视频标题: Senator Ron Johnson talks on Biden claims that “Build Back Better” will reduce inflation
+参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
+原视频日期：2022/01/20
+原视频链接: [**https://twitter.com/senronjohnson/status/1483943148212662275?s=24**](https://twitter.com/senronjohnson/status/1483943148212662275?s=24)
+任务编号：KE359（3544）
+视频时间段 : 0:00-0:54
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

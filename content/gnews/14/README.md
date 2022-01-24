@@ -2,82 +2,35 @@
 ---
 
 
-## 参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1902954/)
+## 01/24每日播报｜美国食品供应链因“奥米炕”感染潮面临巨大压力
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1902997/)
 
-[https://gtv.org/video/id=61ebffc187664c47acd84ffe](https://gtv.org/video/id=61ebffc187664c47acd84ffe)
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61ee6ab028a108147c618939)**
 
-Ron Johnson (WI Senator)
-罗恩·约翰逊（威斯康星州参议员）
+**2022-01-24**
 
-No, we’ll see. He’s living in a fantasy world, he really is
-不，我们拭目以待，他生活在一个幻想世界，他真的是
+《华尔街日报》1月23日报道，随着中共病毒“奥米炕”变种感染数量激增，从食品加工厂、超市到杂货店都出现了劳动力短缺，美国的食品供应系统正面临巨大压力，超市货架上也出现了商品短缺。
 
-But but here on planet earth when you spend a trillion dollars we don’t have
-但是，在地球上，当你花费我们没有的一万亿美元时
+在亚利桑那州，一家大型农产品公司有十分之一的加工工人和配送工人生病。美国东南部的一家连锁杂货店，因为配送中心有大约三分之一的员工生病，不得不雇用临时工。
 
-when you pay people not to work
-当你付钱让人们不去工作时
+2020初，因中共病毒爆发所采取的封城政策导致了商品采购激增，商店货架上的肉类、烘焙原料和纸制品等商品被一扫而空。而现在，一些企业高管表示，当前供应链挑战比以往任何时候都要严峻。
 
-and reduce the supply of goods that’s going to cause inflation
-并减少商品供应，这一定会导致通货膨胀的
+纽约州诺斯波特一家商店的产品经理表示，在1月初，该公司五分之一的员工感染了中共病毒。配送也受到了冲击：本月早些时候，他只收到了他所订购的 48 箱草莓中的17 箱。
 
-I was amazed at the notes that I hadn’t get to watch the entire press conference
-我没有观看整个新闻发布会，后来看了会议记录后感到惊讶
+报道指出，在阿拉巴马州和乔治亚州的一家连锁超市，在1 月份的第一周，其配送中心组织产品和装载卡车的拣货员中，约有三分之一的人生病请假。主管米尔根先生说，由于司机短缺和人员配备问题没有得到改善，冷冻蔬菜和罐装饼干都卖光了。
 
-but he said that he outperformed expectations
-但他说他的表现超出预期
+总部位于中西部的一家生鲜食品超市的主管丹•奥尼尔表示，超市的冷冻早餐产品、罐装豆类和其他商品一直处于短缺状态，该公司正努力试图从其他供应商那里获得更多库存。
 
-Again, I’m not sure what planet he’s inhabiting
-再说一次，我不确定他住在哪个星球
+卡车运输公司的司机短缺，使得公司履行订单变得更加困难。位于威斯康星州的货运公司的总裁布兰登·约翰逊表示，这波“奥米炕”病毒的袭击对公司员工的影响与疫情爆发初期一样严重，他已经习惯了告诉客户，他已经没有司机来搬运货物了。
 
-but again here on planet earth
-但是再次在这个星球
+秘翻主编   清风先生编译报道
 
-What he has governed is is a huge radical leftists
-他所统治的是一个巨大的激进左派
-
-he’s not the moderate that the press is going to be said he’s a radical leftist
-他不是媒体会说他是激进左派的温和派
-
-He’s opened up the borders. He caused the inflation
-他打开了边界，他引发了通货膨胀
-
-We have catch released out of the border
-我们释放了已逮捕非法入境人员
-
-but also in our criminal justice system
-这情况也在我们的刑事司法系统中发生
-
-the embarrassing and dangerous surrender in Afghanistan
-阿富汗尴尬而危险的投降
-
-I mean It is a record of failure
-我的意思是这是失败的记录
-
-It’s almost surprising to his approval ratings are as high as they are
-他的支持率还有如此之高几乎令人惊讶
+发布 :文橙
 
 * * *
 
-Date:01/20/2022
-原视频标题: Senator Ron Johnson talks on Biden claims that “Build Back Better” will reduce inflation
-参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
-原视频日期：2022/01/20
-原视频链接: [**https://twitter.com/senronjohnson/status/1483943148212662275?s=24**](https://twitter.com/senronjohnson/status/1483943148212662275?s=24)
-任务编号：KE359（3544）
-视频时间段 : 0:00-0:54
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

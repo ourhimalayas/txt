@@ -2,58 +2,68 @@
 ---
 
 
-## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898709/)
+## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898792/)
 
 作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-苏格兰公共卫生部门每周发布的[苏格兰公共卫生COVID-19 和冬季统计报告](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)严重高估了未接种COVID-19疫苗感染者数据，存在对试验性的中共病毒疫苗对预防感染作用的严重夸大和信息误导！
+接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（上）](https://gnews.org/zh-hans/1898709/)
 
-全球各地的数据证明，注射试验性的中共病毒疫苗，既不能预防感染，也不能减少住院或死亡。注射中共病毒疫苗，只会带来严重的COVID-19病毒疫苗副作用。
+让我们翻到这份报告的第63页，看看苏格兰公共卫生部门对COVID-19病毒疫苗接种状态的定义吧。
 
-根据[中共国务院新闻办公室网站](http://www.scio.gov.cn/index.htm)新闻，[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)消息，在本月12日中共国天津市疾病预防控制中心主任、市卫生健康委副主任韩金艳，市委教育工委专职副书记孙志良，津南区副区长陈妍卉，市疾病预防控制中心副主任张颖主持的天津市疫情防控的有关情况会上公布的数据，“天津107例感染者中，103例完成全程接种（包括完成加强接种32例），3例仅接种1剂次灭活疫苗，1例未接种”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-status.jpg)
 
-天津此轮感染者中，接种过中共病毒疫苗的人占99.07%，未接种疫苗的人仅占0.93%！
+COVID-19疫苗接种状态的定义：
 
-在没有真相的中共国，天津疾控中心工作人员在不小心泄露中共国的疫苗灾难后，肯定会受到中南坑老杂毛的处罚。在这之后的任何新闻发布会中，均未再次有任何部门提及确诊者中，接种过中共病毒疫苗和未接种疫苗的人，在确诊者中的比例！
+未接种疫苗：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-而在苏格兰公共卫生部门1月19日发布的苏格兰公共卫生COVID-19 和冬季统计报告（[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)）中，详细记录了2021年12月18日到2022年1月14日期间，根据COVID-19疫苗接种状态划分的每周100,000人新增COVID-19确诊、住院和死亡人数。
+接种过1针疫苗：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。
 
-下表为这份报告的第38页，表14（Age-standardised case rate per 100,000 individuals by week and vaccination status, 18 December 2021 to 14 January 2022），2021年12月18日至2022年1月14日按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19确诊率。
+接种过2针疫苗：指PCR检测COVID-19呈阳性时，接种过2针疫苗，且接种第2针疫苗的时间超过14天。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-case-rate-per-100000-individuals-by-week-and-vaccination-status.jpg)
+接种过3针或加强针疫苗：指PCR检测COVID-19时呈阳性，接种过3针，且接种第3针的日期超过14天。
 
-下图为按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19确诊率变化趋势：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-case-rate-per-100000-individuals-by-week-and-vaccination-status1.jpg)
-通过这个图，很容易注意到，尽管未接种疫苗的人，感染率明显低于注射两针疫苗的人，但注射1针和3针或加强针的人感染率尽管也一直比未接种疫苗的人要高，但相差不是很大。
+很明显，这样的疫苗接种状态定义与正常人的认知差别很大。任何人的常识都是在打完针的下一秒开始，就认为自己已经打了COVID-19疫苗！
 
-下表为这份报告的第44页，表15（Age-standardised rates of acute hospital admissions where an individual had a COVID-19 positive PCR test up to 14 days prior, on admission, or during their stay in hospital, by week and vaccination status, 18 December 2021 to 14 January 2022），2021年12月18日至2022年1月14日按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19住院率。
+这样的定义有什么意义呢？大量打完第1针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在未打疫苗群体内。大量打完第2针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了1针疫苗群体内。大量打完第3针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了2针疫苗群体内。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-rates-of-acute-hospital-admissions.jpg)
+总之，会让统计报告看起来，感染COVID-19病毒的人中，未打疫苗的比实际要多得多！
 
-下图为按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19住院率变化趋势：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Age-standardised-hospitalisation-rate-per-100000-95-confidence-intervals.jpg)
-通过这个图，很容易认为，接种3针或加强针的人住院率比未接种疫苗的人明显低很多。而接种1针、两针的人，住院率和未接种疫苗的人没有太大区别！
+比如，英国卫生部门2022年1月20日发布的每周Covid-19疫苗监测报告（[COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)）第38页，表12，2021年12月26日至2022年1月16日，英国每100,000接种３针或加强针疫苗和未接种疫苗的人群中未经调整的COVID-19 感染率、住院率和死亡率数据：
 
-下表为这份报告的第50页，表16（Number of confirmed COVID-19 related deaths by vaccination status at time of test and age-standardised mortality rate per 100,000, 11 December 2021 to 07 January 2022），2021年12月11日至2022年1月7日按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19死亡率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12.-Unadjusted-rates-of-COVID-19-infection-hospitalisation-and-death-in-vaccinated-and-unvaccinated-populations..jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Number-of-confirmed-COVID-19-related-deaths-by-vaccination-status.jpg)
+我们注意到，对于30岁以上的人群来说，接种3针疫苗的人群感染率明显比未接种疫苗的人群高。
 
-下图为按周和疫苗接种状态划分的每100,000人的年龄标准化COVID-19死亡率变化趋势：
+但对于18岁以下和18~29岁的人群，接种3针疫苗人群感染率比未接种疫苗人群要低很多。尤其是18岁以下人群，未接种疫苗比接种3针疫苗感染率明显高得多。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Number-of-confirmed-COVID-19-related-deaths-by-vaccination-status-at-time-of-test-and-age-standardised-mortality-rate-per-100000-1.jpg)
+看到这样的报告，很容易被误导去打疫苗，甚至是打3针或加强针。尤其护子心切的家长们，是不是有迫不急待让自己孩子打３针疫苗的冲动呢？
 
-通过这个图，很容易被误导，接种3针或加强针的人死亡率比未接种疫苗的人明显低很多。而接种1针、两针的人，死亡率和未接种疫苗的人没有太大区别！甚至得出接种3针或加强针的人，死亡率低很多的结论。
+千万记住，这是在误导！
 
-很多政客也正在宣称，接种COVID病毒疫苗，可减少重症和死亡！
+这样的数据有什么问题呢？
 
-任何人根据这些政府发布的报告，应该都会觉得注射试验性的COVID-19病毒疫苗，即使没有预防效果，最少应该也不会有其它明显的问题，甚至错误的以为，接种３针或加强针，能够预防重症和死亡，很多无苗族甚至受到有苗族和政客们的指责和限制。
+在这份报告的第17页，有英国各年龄段人群接种第1针疫苗的时间
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose1.jpg)
+在这份报告的第18页，有英国各年龄段人群接种第2针疫苗的时间
 
-然而，这些数字背后，隐藏着惊人的欺骗！如果任何人根据这些报告，在政府高压下打了试验性的COVID-19病毒疫苗，那就上当了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose2.jpg)
 
-接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](https://gnews.org/zh-hans/1898792/)
+在这份报告的第19页，有英国各年龄段人群接种第3针疫苗的时间
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulative-weekly-vaccine-uptake-by-age-Dose3.jpg)
+
+通过这3个图可以看到，英国很多18岁以下的人是在最近才接种1针、2针或3针COVID-19病毒疫苗的。
+
+也就是说，存在很多打完第1针不超过21天的18岁以下的人，被计算到未打疫苗范围内。也存在很多打完3针不超过14天的18岁以下的人，被计算到只打了两针。
+
+如果仅仅是这一种误导，后果可能还远没有到非常严重的地步。
+
+更可怕的是，打完第1针疫苗后感染的人群中，50%左右是在接种完第1针后14天之内感染、住院或死亡的！
+
+接【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
 
 参考数据：
 
@@ -65,7 +75,7 @@
 
 [天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
 
-[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
 
 [UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
 
