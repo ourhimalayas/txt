@@ -2,25 +2,39 @@
 ---
 
 
-## 为了后代，抵制媒体和医疗暴政
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1900426/)
+## 有声|新西兰表示即使奥米炕爆发也不会采用封锁措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1900468/)
 
-今天（2022年1月23日）Dr. Richard Urso 火力全开。 在华盛顿DC几万人反对强制疫苗的抗议中，Dr. Urso 抨击媒体与政府医疗部门，并号召人们站出来，为了后代，抵制媒体和医疗暴政：
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+新西兰是目前少数几个避免了奥米炕变种爆发的国家之一，但总理杰辛达·阿德恩周四表示，爆发是不可避免的，一旦发现疫情，国家将加强限制，但不会实施以前使用的封锁措施。
 
-我们不仅只有1名医生，我们有17,000名医生。我们的人数超过NIH（美国国立卫生研究院），超过CDC，超过FDA。 这些文件都有签名，签名都经过核实。
+阿德恩表示，在社区中检测到奥米炕后 24到48小时内，该国防疫级别将提升至“红色”，此时仍允许企业继续营业，并允许人们继续在国内旅行，但将要求学生戴上口罩，并会限制100人以上的集体活动。
 
-大家都知道，有种强大的力量反对我们，那就是新闻媒体。你还相信曾深受我们信任的新闻媒体吗？你还相信CDC，还相信FDA吗？你还相信福奇吗？
+目前新西兰大部分地区处于“橙色”级别，这需要佩戴口罩并提供疫苗接种证明，但不限制人群聚集的规模。
 
-因为说真话，我们医生被解雇，被审查，被从维基百科上抹去， 但我们决不妥协，因为我们和你们在一起。今天，我们再次代表17000名医生，科学家以及整个人类。 我们有三个几乎无可辩驳， 有高质量数据支持的提议。
+原文链接：[新西兰表示即使奥米炕爆发也不会采用封锁措施](https://gnews.org/zh-hans/1888258/)
 
-而我今天对你们有个要求。今天你们听到真相后，请鼓起勇气，加入我们，来帮助我们的后代抵制这种新冠暴政。
+音频处理/发稿：Daxia
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-听写，翻译：蔻依 | 发布： 文零
+**更多资讯，更多关注**
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

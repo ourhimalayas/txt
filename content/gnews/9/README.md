@@ -2,103 +2,42 @@
 ---
 
 
-## 深挖华大基因 (三）
-` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1900579/)
+## 炒作任正非、孟晚舟患绝症，中共为下一步灭口放风
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900603/)
 
-————疯子与魔鬼之间的交集
+作者：闲聊澳洲
+编辑：文泓
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/TX7Y7@E5TILJ0J9U6A.png)图片来源：CNN
 
 
-作者：流浪的阳光
+1月18日，墙内网易登载了一篇文章，“孟晚舟与甲状腺癌症抗争的十年，我们能学到什么？”文中写道，在2011年，孟晚舟女士因患有甲状腺乳头状癌，进行了甲状腺摘除手术，之后也不断地进行TSH抑制治疗。那次术后，孟晚舟却又罹患睡眠呼吸暂停综合征，这是甲状腺全切术后一种罕见的后遗症。
 
-几个疯子与魔鬼之间的交集 2013年比尔盖茨给汪建的信 2018 年 12 月 11 日马里兰州贝塞斯达举行第五届全球健康年度咨询研讨会。比尔盖茨、福奇和柯林斯一起参加 2021年福奇邮件曝光：比尔盖茨和福奇定期交谈内容外泄 2016年柯林斯参加华大组织的国际基因组学会议称华大基因联合创始人杨焕明是我的朋友。
+文章中还写道，除了孟晚舟，他的父亲任正非也曾罹患皮肤癌。这是一种十分可怕的恶性肿瘤，带来的疼痛能把人折磨的生不如死。最有意思的是，在文章的开头儿有这么一句话，“在疾病面前，人人平等，病魔选择袭击的目标，从不以口袋里的金钱数量去衡量”。
 
-![Image](https://pbs.twimg.com/media/E9jz2GSXsAAfRVI?format=jpg&amp;name=900x900)
+之前我们看到这样的文章，一定是以为孟晚舟、任正非肯定是患上绝症了，他们正在与病魔做斗争，还做了几次手术。然而，跟随郭先生爆料革命这五年，战友们都练就了一双火眼金睛。都知道这对父女掌握了中共国重要机密，他们的生死由不得自己，随时可能被死亡，什么心欢死、跳楼死、拍照死、癌症死，阳台烧书死，各种死法在等着他们。
 
-![Image](https://pbs.twimg.com/media/E9jz2GIX0AoTdCr?format=jpg&amp;name=large)
+一般不重要的人，知名度高的人，也许就直接跳楼死，或者是心脏病死了，因为大家对他们不了解。而任家父女知名度实在太高，所以，要提前放风，说什么得癌症了。那么，到最后死亡发生时，老百姓也不会觉得惊讶。怎么会突然死了呢？之前必须做好铺垫，所以现在媒体已经在放风了。任正非、孟晚舟，这父女俩已经走在被死亡的路上了。
 
-![Image](https://pbs.twimg.com/media/E9jz2GPWQAsfhLH?format=jpg&amp;name=large)
+在2018年，孟晚舟被加拿大拘捕后，中共动用举国之力来捞人。2021年9月27日，华春莹在例行记者会上证实，孟晚舟这事习近平是亲自部署、亲自关心。作为华为的首席财务官，孟深度介入了华为的国际业务拓展，特别是华为跟伊朗的关系，如何逃避美国制裁，对伊朗进行秘密的技术和产品输送，帮伊朗进行电信系统的开发，在这一块儿上，孟是重要的当事人，她手中有很多秘密，中共对这点很忌惮。如果孟晚舟被引渡到美国，她掌握的情况，如果向美国披露的话，这对中共是一个重大的打击。所以鉴于孟晚舟的敏感性，中共要花很大力气把孟晚舟给弄回去。但是，我们知道，中共曾经的王牌间谍金无怠为中共立下了汗马功劳，包括尼克松访华，美国要的的底牌他都摸到了，但是后来金无怠被美国抓获之后，中共拒绝承担任何责任，导致金无怠非常绝望，最后在狱中自杀。中共一向是过河拆桥、卸磨杀驴，为什么这次在孟晚舟这事情上，中共要有个180度的大转弯呢？
 
-![Image](https://pbs.twimg.com/media/E9jz2GaXMAUjvjE?format=jpg&amp;name=large)
+我们知道，华为是总参和安全部控制的间谍企业，华为的产品、技术、监控已经遍及了世界几乎所有的角落。在中共打造的利用科技蓝金黄对西方的战略上，特别是5G和通信系统领域，华为绝对是工具。如果华为的本质暴露于美国和西方面前，所有过去这些年在西方埋下的技术情报和蓝金黄网络将全部暴露，特别是华为的资金和技术来源。所以孟晚舟如果被引渡美国，她有可能曝光的情报对中共，以及与中共勾兑的华尔街、军方、政府的人都是致命的打击。
 
-关于福奇的邮件，有几个需要特别注意的地方：
-福奇和盖茨于 2020 年 4 月 1 日通电话，他们讨论了盖茨可以帮助资助疫苗的方式
-盖茨代表甚至参加了 NIH 的一个关键疫苗工作组。其实比尔盖茨对疫苗的热情早已开始,2013年盖茨在NlH说对疫苗充满希望！2019年盖茨接受白岩松的专访称疫苗的作用很神奇！
+即使华为这么重要，但也不需要习近平亲自出面来捞华为孟大公主啊？这里还有一个深层原因，就是华为虽是总参和安全部的企业，但华为的背后股东是习近平的姐夫，中兴和华为是习家控制的，所以为了利益，习也会利用国家的名义，把孟晚舟接引回国。最主要，孟晚舟是习家在海外隐藏的巨额资产钱路的钥匙，孟晚舟都是通过信托和家族信托等方式代持这些钱的。任正非在海外至少存有3000亿以上的资金，想要动用这些钱，就必须要孟出面签字，所以孟晚舟就是取钱的密码，这才是习近平动用一国之力来捞人的最主要原因。
 
-![Image](https://pbs.twimg.com/media/E9mF9WdUYAQDTBH?format=jpg&amp;name=large)
-![Image](https://pbs.twimg.com/media/E9mF9WaUUAsvMGN?format=jpg&amp;name=medium)
-2010年9月盖茨去北京科兴生物制品有限公司考察。2015年，比尔·盖茨在TED大会上的预言.2020年4月9日，比尔盖茨作客新闻1＋1谈对疫苗的投资是值得的！2021年6月3日比尔盖茨远程参加浦江创新论坛并发言：期待更多来自中国的新冠疫苗！他对疫苗的追求好执著啊.
+只有死人才能永久保守秘密，所以掌握这么多秘密的任正非、孟晚舟父女俩最后的结局一定是被消失、被死亡。现在孟晚舟回国已经近半年，估计习家在海外财富已经该转移的转移，改换密码的换了密码，很多应该也不会再让孟晚舟一人掌握密码了，所以，就为他父女俩的被死亡做铺垫，因此媒体就放风他父女俩得了癌症，等到所有的财富密码转移完，就是他父女俩的死亡之日。
 
+对习皇而言，若是任正非孟晚舟活着，他俩投到江曾王孟派系呢？这个险习近平可不敢冒。现在习近平与上海帮可是斗的你死我活，若江曾势力得到任正非、孟晚舟父女俩，那习皇不惨了？所以从各个方面来看，这父女俩都必须得死。现在只是媒体先放风，然后在某个合适的时间，他们就被癌症死了。
 
-![Image](https://pbs.twimg.com/media/E9m-emgUUAEDhvp?format=jpg&amp;name=small)
+资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
 
-![Image](https://pbs.twimg.com/media/E9m-emgVkAMQrUK?format=jpg&amp;name=large)
+发布：*tianzhihuan*
 
-
-![Image](https://pbs.twimg.com/media/E9m-emgVEAMHLMk?format=jpg&amp;name=small)
-
-
-
-![Image](https://pbs.twimg.com/media/E9m-emgVIAIk8zY?format=jpg&amp;name=large)
-
-其实比尔盖茨和中共互动频繁，早在2007年他已经访华十次了，而且多次和中共领导人见面，光江泽民就见了三回
-按说一个推销电脑系统的，顶多也就去中关村晃悠晃悠就完了，这么削尖了脑袋往中南坑里钻是为什么呢？
-1994年盖茨首次来到北京与江泽民会见。1995年江泽民再次会见盖茨。2003年江泽民又一次见盖茨。
-
-
-
-![Image](https://pbs.twimg.com/media/E-W90zyUcAI7sxi?format=jpg&amp;name=900x900)
-
-
-![Image](https://pbs.twimg.com/media/E-W90zxVcAIqaPh?format=jpg&amp;name=medium)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90z1VIAAqBEw-2.jpeg)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90zwVkAEkzuk.jpeg)
-
-
-
-2007年4月比尔·盖茨在海南接受水均益的专访。比尔·盖茨说：2008年将携带家人和有「股神」之称的世界第二大富豪巴菲特前来北京观看奥运会。
-那他住在哪儿呢？就是盘古四合院！比尔·盖茨和巴菲特好到什么程度呢？有点像汪建和王石一样，好得穿一条裤子，一块儿打牌，一块儿旅游，一块儿接受钥匙澜采访！
-
-![Image](https://pbs.twimg.com/media/E-XOZldUcAYxWl3?format=jpg&amp;name=large)
-
-
-
-![Image](https://pbs.twimg.com/media/E-XOZlVUYAI-WYD?format=jpg&amp;name=large)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E-XOZlvUYAIyJkZ.jpeg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-下午8.46.01.png)
-
-未完待续
-
-编辑：流浪的阳光
-
-校对/发稿 Serena
-
-深挖华大基因（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
-
-深挖华大基因 （二）[https://gnews.org/zh-hans/1891810/](https://gnews.org/zh-hans/1891810/)
-
-新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
-
-新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
-
-
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

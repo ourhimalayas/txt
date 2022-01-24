@@ -2,31 +2,24 @@
 ---
 
 
-## 扬帆每日速递2022年1月23日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1899660/)
+## 【秘翻在线】超过2万名美国人参加了华盛顿特区游行，反对强制疫苗和医疗暴政
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1899736/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、“北京丰台”微信公众号1月23日凌晨通告，丰台区出现聚集性疫情，面临社区传播风险，全区进行核酸检测。在当天的疫情防控新闻发布会上，北京市政府新闻发言人徐和建表示，当前北京疫情严峻复杂，防控工作容不得半点迟疑。
+**撰稿：Grace**
 
-2、1月23日港共林郑月娥公布:映葵楼即时起围封检5天！当局表示葵涌邨有3.48万名居必须接受检测。评:港共为达政治清零目的制造恐慌，至今百多名被指感染者均为「初确诊者」在家隔离。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-3.29.08-PM.jpeg)图片来源：newswars
+据The Gateway Pundit 1月23日报道，今天有超过2万名美国人冒着严寒参加了在华盛顿特区举行的 “战胜强制”（“DEFEAT THE MANDATES”）集会。
 
-3、拜登政府1也22日要求所有非美国公民——包括墨西哥和加拿大卡车司机——在通过所有陆路入境口岸和渡轮码头进入美国时须出示中共病毒疫苗接种证明。此举肯定会更加恶化美国现有的供应链问题。
+报道称，目前美国国内关于冠状病毒的几位发声者和顶级权威人士都参加了这次和平集会。
 
-4、中共周日表示，在1月4日至22日期间入境中共国的2586名与冬奥会相关的人员中确认了72例中共病毒病例。而171名运动员和团队官员中没有发现病例。
+演讲者包括：小罗伯特·肯尼迪（**Robert F. Kennedy, Jr., ）**，保罗·亚历山大博士 (Dr. Paul Alexander) 、罗伯特·马龙博士 (Dr. Robert Malone) 、彼得·麦卡洛博士 (Dr. Peter McCullogh) 、劳拉·洛根 (Lara Logan) 、史蒂夫·基尔希 (Steve Kirsch) 等。
 
-5、据文贵大直播：中共在“一带一路”项目中拉下马的领导人有：前巴基斯坦总理谢里夫、马来西亚前首相纳吉布、泰国前总理他信、英拉兄妹、哈萨克斯坦前总统纳扎尔巴耶夫、缅甸前最高领导人昂山素季等，跟着共产党，走进火葬场。
+据报道，超过六千名联邦工作人员也将参加在华盛顿的集会，包括：消防员、急救人员、医生和参加了“美国人参加和平游行”的 人，以挫败中共病毒Covid-19疫苗强制规定。
 
-6、据文贵大直播：《新中国联邦宣言》经欧洲议会几个小组研究后认为，如果真能落实，人类将走向大同的世界。
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板123_page-0001.jpg)
-素材提供战友：Revelation熙攘、shuang、文敏、从来多难不兴邦
 
-编辑：文敏
-
-发布：风起云间（文敏）
-
-海报图片设计：飞天面、 Shuang
+**新闻来源： ****[PHOTOS AND VIDEO: Over 20,000 Americans March in Washington DC Against Vaccine Mandates and Medical Tyranny](https://www.thegatewaypundit.com/2022/01/20000-americans-march-washington-vaccine-mandates-medical-tyranny/)**
 
  
 

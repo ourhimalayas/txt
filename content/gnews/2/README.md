@@ -2,30 +2,23 @@
 ---
 
 
-## 【秘翻在线】拜登考虑向欧洲北约盟国部署数千名军队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1900696/)
+## 拜登法案和阿富汗事情（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900734/)
 
-**撰稿：Grace**
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-8.53.45-PM.jpeg)图片来源：Daily wire
-据 Just the News 1月23日报道，拜登政府官员告诉《纽约时报》，随着俄乌边境的紧张局势加剧，拜登正在考虑向东欧（Eastern Europe）和波罗的海（ Baltics）地区的北约盟国（NATO allies）部署数千名军队, 另外还有飞机和军舰。
+我100%的认为，我们每个人都为今天中国发生的事情而感到可耻悲哀。我们的家人和我们每个人，包括你们每个人，包括小王子，你说你这是多年轻！我们都是中国的罪人。 我们怎么能容忍共产党，让他在我们这儿呆那么多年？邪恶到这么多年还继续让他邪恶呢？阿富汗的答案是一样的，你不要指望着别人来救你，而且救你就一次还不行得救一辈子。救得不好还不行，还得继续救。这就是非洲巴基斯坦阿富汗，是吧？这些国家的一个结果。
 
-美国国防部长奥列克西·雷兹尼科夫 (Oleksii Reznikov) 周日表示，美国在周末向乌克兰运送了80多吨价值2亿美元的军事装备。
+我们中国人也基本都这样了，人家美国不给你搞贸易吧，不行！你就是，美国必须搞贸易，必须你奴隶我必须虐待我。人家美国欠你的吗？所以回答这个问题很简单，美国的安全和战略经济的基本需要，和阿富汗现在即将触发的巨大的问题。阿富汗的就是干掉了总统的哥们，你没见过他家族腐败到什么程度。阿富汗100％的通信被他女婿和他在控制着，100%的银行被他控制着，他家里养着狮子，养着豹子。在美国，在迪拜，在欧洲，无数高级房产。你知道这个国家腐败到这个程度。你觉得要让美国大兵拿着钱拿着枪保护你腐败？你在开什么玩笑！你的人民呢？所以说记住，日本就是最好的例子。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/拜登法案和阿富汗事情三.png)
+发布： *tianzhihuan*
 
-当天，美国驻乌克兰大使馆下令疏散外交官的家属，而其他雇员则被授权自愿离开。
-
-据《纽约时报》报道，拜登周六在戴维营(Camp David) 与五角大楼 (Pentagon)的高级官员举行了一次会议，讨论对乌克兰的几个军事方案。其中一个方案是向东欧国家部署1,000至5,000名美国军队，如果需要，可以将服务人员增加10倍。
-
-官员们告诉《纽约时报》，拜登可能会在本周做出决定，但目前的方案都不涉及直接向乌克兰部署美国军队。据报道，俄罗斯总统弗拉基米尔·普京 （Vladimir Putin） 希望避免将服务成员派往北约成员国爱沙尼亚 (Estonia)、拉脱维亚 (Latvia) 和立陶宛 (Lithuania)。报道称，这是拜登政府正在考虑的一个选项。
-
-据报道，拜登的官员正在密切关注是否有任何迹象表明俄罗斯可能会正如俄罗斯当局所言，在其边境部署战术核武器。
-
-报道还指出，拜登因其对正在发生的危机的反应而受到了批评。在上周的一次新闻发布会后，他因否定了普京对乌克兰的假设性 “小规模入侵”而被指责。
-
-
-
-**新闻来源： ****[Biden considering deploying thousands of troops to European NATO allies: Report](https://justthenews.com/government/white-house/biden-considering-deploying-thousands-troops-european-nato-allies-report)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

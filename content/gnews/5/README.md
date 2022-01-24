@@ -2,49 +2,30 @@
 ---
 
 
-## 各国官方报告表明，疫苗正在接种者中造成灾难性伤害
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900649/)
+## 【秘翻在线】拜登考虑向欧洲北约盟国部署数千名军队
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1900696/)
 
-翻译：不要代表我Kari
-校对编辑：彩虹
+**撰稿：Grace**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/B6I7YJGQKBE0DG4U9.png)图片来源：Nota Akhir Zaman
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-23-at-8.53.45-PM.jpeg)图片来源：Daily wire
+据 Just the News 1月23日报道，拜登政府官员告诉《纽约时报》，随着俄乌边境的紧张局势加剧，拜登正在考虑向东欧（Eastern Europe）和波罗的海（ Baltics）地区的北约盟国（NATO allies）部署数千名军队, 另外还有飞机和军舰。
 
+美国国防部长奥列克西·雷兹尼科夫 (Oleksii Reznikov) 周日表示，美国在周末向乌克兰运送了80多吨价值2亿美元的军事装备。
 
-来自世界各地的政府和公共卫生官方数据强烈表明，接种了三剂或二剂中共病毒疫苗的人群正在遭受抗体依赖性增强的伤害。
+当天，美国驻乌克兰大使馆下令疏散外交官的家属，而其他雇员则被授权自愿离开。
 
-在某些情况下，抗体可以增强病毒进入细胞和复制细胞。这种现象被称为抗体依赖性感染增强（ADE）。ADE不仅促使病毒被靶细胞识别并进入靶细胞，而且还影响到靶细胞中的信号传输。
+据《纽约时报》报道，拜登周六在戴维营(Camp David) 与五角大楼 (Pentagon)的高级官员举行了一次会议，讨论对乌克兰的几个军事方案。其中一个方案是向东欧国家部署1,000至5,000名美国军队，如果需要，可以将服务人员增加10倍。
 
-换句话说，当免疫反应中产生的抗体识别并与病原体结合时，就会发生ADE，但它们无法防止感染。相反，这些抗体起到了“特洛伊木马”的作用，使病原体进入细胞并加剧了免疫反应。
+官员们告诉《纽约时报》，拜登可能会在本周做出决定，但目前的方案都不涉及直接向乌克兰部署美国军队。据报道，俄罗斯总统弗拉基米尔·普京 （Vladimir Putin） 希望避免将服务成员派往北约成员国爱沙尼亚 (Estonia)、拉脱维亚 (Latvia) 和立陶宛 (Lithuania)。报道称，这是拜登政府正在考虑的一个选项。
 
-结果往往比未接种疫苗的人病情更严重，而这正是我们现在在世界各地看到的情况。
+据报道，拜登的官员正在密切关注是否有任何迹象表明俄罗斯可能会正如俄罗斯当局所言，在其边境部署战术核武器。
 
-- 英格兰的数据显示，中共病毒疫苗的实际效果低至-151%，而且这一数字正在逐周下降。这实际上意味着完全接种了三剂疫苗的成年人的免疫系统功能正在被削弱。事实数据显示，在2021年12月20日至2022年1月16日期间，每10
-- 感染中共病毒而住院病人中有7人已完全接种疫苗，而每10
-- 感染中共病毒而死亡的病人中有8位已完全接种疫苗。
-- 苏格兰的数据显示，中共病毒疫苗在所有年龄组中的平均实际效果低至-132%，这再次意味着他们的免疫系统功能正在被削弱。这一事实得到了数据的支持，现在的数据显示，每10万人口中的住院率和死亡率在完全接种了二剂中共病毒疫苗者中是最高的。
-
-
-- 澳大利亚的数据显示，一场真正的中共病毒疫情才刚刚开始，而且是一场完全接种中共病毒疫苗者的疫情。这个国家出现了一些世界上最严厉的限制措施，包括通过由武装部队把守的检查站检查相关许可才能出门、工作或离开某个地区。
-- 澳大利亚人被告知，在一定比例的人口接种中共病毒疫苗之前，他们不会被“奖励”得到更多自由。但是现在，他们正在经历前所未有的创纪录的中共病毒病例、住院和死亡人数，而且绝大多数是完全接种了中共病毒疫苗的人。
-- 广泛的研究还显示，职业橄榄球/足球运动员因心血管问题而死亡的人数每三个月翻一番，2021年12月发生的该死亡人数相当于过去12年的年平均数。
+报道还指出，拜登因其对正在发生的危机的反应而受到了批评。在上周的一次新闻发布会后，他因否定了普京对乌克兰的假设性 “小规模入侵”而被指责。
 
 
-总的来说，2021 年职业橄榄球/足球运动员的死亡率是 2009 年至 2020 年十几年间记录的平均死亡率的 4 倍。这表明中共病毒疫苗不仅会导致抗体依赖性增强，还会对心血管系统产生灾难性影响，这一事实得到了美国心肌炎病例数创历史新高数据的支持。
 
-事实证明，上述所有情况表明这不是一种安全有效的疫苗,表明这种失败的疫苗正在造成严重的伤害和死亡，同时削弱接种者的免疫系统，导致了中共病毒疫苗诱发的获得性免疫缺陷综合症，或抗体依赖性增强。
-
-**原文链接：**
-
-[A comparison of official Government reports suggests the Fully Vaccinated are suffering Antibody Dependent Enhancement](https://dailyexpose.uk/2022/01/23/world-government-data-shows-covid-vaccinated-suffering-ade/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源： ****[Biden considering deploying thousands of troops to European NATO allies: Report](https://justthenews.com/government/white-house/biden-considering-deploying-thousands-troops-european-nato-allies-report)**
 
  
 

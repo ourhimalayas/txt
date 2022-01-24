@@ -2,38 +2,103 @@
 ---
 
 
-## 文•贵天成（特别篇）——爆料革命历史上的1月26日（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900530/)
+## 深挖华大基因 (三）
+` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1900579/)
 
-整理：BENJ1
-编辑：文敏
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/5-25.png)图片来源：雅典娜设计组
+————疯子与魔鬼之间的交集
 
 
-**郭文贵先生第一次说“一切都是刚刚开始”**
 
-这两年里，我一直都在观察海外媒体，确确实实，明镜是让我很尊敬的媒体。不造谣、不诽谤、不欺弱、不惧上，而且特别坚持了媒体的基本原则。在今天这个假新闻盛嚣尘上的年代里面这是难能可贵的。所以当初《香港商报》采访我的时候，我说了一句话“一切只是刚刚开始”，为什么呢？因为当时是我们几方都被抓了，而且事情确实涉及的经济数额几千亿，涉及的总体经济数额都快要上万亿了，涉及了国有资产，涉及了数以万计的人、几十万计的人，员工达到一百多人，那么这样的事情是要经历一个调查过程的。之前我说什么呢？我不应该说，我没有能力说，也不具备那个条件。我觉得应该等调查到了一定的段落以后证明到底是他们是错的，还是我是错的，他是好人我是好人，他有什么罪我有什么罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
 
-**郭文贵先生第一次由李友案谈起“保命，保财，报仇”**
 
-随着李友案的宣判，这个事情已经证明了我们当初检举揭发的97%都是对的。而且李友的宣判证明了我们现在的检举揭发保护了国有资产，保护了小股民利益。更重要的事情是我们揭发了很多贪官，而且都已经被判刑，被抓起来了。可是这件事情只是刚刚开始。因为李友这个四年半的宣判，真正地说明，李友被他们的后台给保护起来了。为什么要保护他们呢？因为还有几千亿的资产即将开始真正争夺的时间，他背后的老板也站出来了。所以说，我今天选择明镜站出来说话，很简单，保命、保钱、还要报仇。
 
-**文贵先生谈李友案**
+作者：流浪的阳光
 
-李友四年半的宣判，这五条罪实际上大家完全可以看到，就是跟我们过去检举揭发的材料——你往回看——是相对应的。它只是对我们检举揭发的材料和所提供的证据的一个回应。除此之外他没有在这个之上有任何所谓的新罪行。
+几个疯子与魔鬼之间的交集 2013年比尔盖茨给汪建的信 2018 年 12 月 11 日马里兰州贝塞斯达举行第五届全球健康年度咨询研讨会。比尔盖茨、福奇和柯林斯一起参加 2021年福奇邮件曝光：比尔盖茨和福奇定期交谈内容外泄 2016年柯林斯参加华大组织的国际基因组学会议称华大基因联合创始人杨焕明是我的朋友。
 
-李友从被抓起来之后，一直我们在掌握着案情的进展，这就是为什么我们一直在等待着他的宣判。因为在李友被抓起来以后，李友就买通了所有办案的北京市公安经侦上的人，和中纪委成立的所谓的项目组，也同时是办我的案子的，还有大连市的公安局经侦的专案组。项目组在办案当中已经很快就被他们收买了。也就是（李友）很少的时间呆在里面，就是所谓的保外就医，以患肝癌为名，躲到外面去了。李友患肝癌已经是七年前的事情了，不是现在。李友早就准备好换肝了。李友这个金蝉脱壳之计早设计好了。那么他进去以后，所有的他这些在公安上的人，马上就把他保护起来了。确实他有肝癌，他早就有。然后在里边，减减肥，躺在病床上，开始同时动手指挥了这一场审判。
+![Image](https://pbs.twimg.com/media/E9jz2GSXsAAfRVI?format=jpg&amp;name=900x900)
 
-李友实际上他哪一条罪行，只要敢公布细节，就可以枪毙他两次以上，不要说是四年半了。很简单，现在他涉及的所有五条罪行的数额没有公布。北大是国有资产，北大方正集团和方正集团下属的所有十三个金融牌照，这里面被李友合并侵吞的资产超过千亿以上。同时，这个内幕交易罪，他获利达三百亿以上，向海外洗钱四百亿以上。这些高官，我们政治局里面，包括过现在常委里面，都有他行贿的高官。这些事情哪一样说出来，他都会被枪毙两次以上。
+![Image](https://pbs.twimg.com/media/E9jz2GIX0AoTdCr?format=jpg&amp;name=large)
 
-*发布：tianzhihuan*
+![Image](https://pbs.twimg.com/media/E9jz2GPWQAsfhLH?format=jpg&amp;name=large)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![Image](https://pbs.twimg.com/media/E9jz2GaXMAUjvjE?format=jpg&amp;name=large)
+
+关于福奇的邮件，有几个需要特别注意的地方：
+福奇和盖茨于 2020 年 4 月 1 日通电话，他们讨论了盖茨可以帮助资助疫苗的方式
+盖茨代表甚至参加了 NIH 的一个关键疫苗工作组。其实比尔盖茨对疫苗的热情早已开始,2013年盖茨在NlH说对疫苗充满希望！2019年盖茨接受白岩松的专访称疫苗的作用很神奇！
+
+![Image](https://pbs.twimg.com/media/E9mF9WdUYAQDTBH?format=jpg&amp;name=large)
+![Image](https://pbs.twimg.com/media/E9mF9WaUUAsvMGN?format=jpg&amp;name=medium)
+2010年9月盖茨去北京科兴生物制品有限公司考察。2015年，比尔·盖茨在TED大会上的预言.2020年4月9日，比尔盖茨作客新闻1＋1谈对疫苗的投资是值得的！2021年6月3日比尔盖茨远程参加浦江创新论坛并发言：期待更多来自中国的新冠疫苗！他对疫苗的追求好执著啊.
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgUUAEDhvp?format=jpg&amp;name=small)
+
+![Image](https://pbs.twimg.com/media/E9m-emgVkAMQrUK?format=jpg&amp;name=large)
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgVEAMHLMk?format=jpg&amp;name=small)
+
+
+
+![Image](https://pbs.twimg.com/media/E9m-emgVIAIk8zY?format=jpg&amp;name=large)
+
+其实比尔盖茨和中共互动频繁，早在2007年他已经访华十次了，而且多次和中共领导人见面，光江泽民就见了三回
+按说一个推销电脑系统的，顶多也就去中关村晃悠晃悠就完了，这么削尖了脑袋往中南坑里钻是为什么呢？
+1994年盖茨首次来到北京与江泽民会见。1995年江泽民再次会见盖茨。2003年江泽民又一次见盖茨。
+
+
+
+![Image](https://pbs.twimg.com/media/E-W90zyUcAI7sxi?format=jpg&amp;name=900x900)
+
+
+![Image](https://pbs.twimg.com/media/E-W90zxVcAIqaPh?format=jpg&amp;name=medium)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90z1VIAAqBEw-2.jpeg)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90zwVkAEkzuk.jpeg)
+
+
+
+2007年4月比尔·盖茨在海南接受水均益的专访。比尔·盖茨说：2008年将携带家人和有「股神」之称的世界第二大富豪巴菲特前来北京观看奥运会。
+那他住在哪儿呢？就是盘古四合院！比尔·盖茨和巴菲特好到什么程度呢？有点像汪建和王石一样，好得穿一条裤子，一块儿打牌，一块儿旅游，一块儿接受钥匙澜采访！
+
+![Image](https://pbs.twimg.com/media/E-XOZldUcAYxWl3?format=jpg&amp;name=large)
+
+
+
+![Image](https://pbs.twimg.com/media/E-XOZlVUYAI-WYD?format=jpg&amp;name=large)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E-XOZlvUYAIyJkZ.jpeg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-下午8.46.01.png)
+
+未完待续
+
+编辑：流浪的阳光
+
+校对/发稿 Serena
+
+深挖华大基因（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
+
+深挖华大基因 （二）[https://gnews.org/zh-hans/1891810/](https://gnews.org/zh-hans/1891810/)
+
+新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
+
+新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
+
+
+
+
 
  
 
