@@ -2,44 +2,51 @@
 ---
 
 
-## 英国央行称通胀可能在长时间保持高位
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904390/)
+## 【TopNews】超超限战：“甜蜜蜜运动”将堪比和平洋刀直插中共心脏
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1904403/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/EW7ZRZOD4FJERGJ77GD7BKUBI4.jpg)
-英国央行总裁Andrew Bailey认为，通胀压力可能比之前预测的更持久，理由是能源成本飙升，且有迹象表明成本压力正在影响薪资水平。
+**2022年1月24日文贵先生大直播**精彩时刻节选：
 
-Bailey表示，英国央行将竭尽全力缓解家庭压力。稍早，英国国家统计局表示，英国12月消费者物价指数(CPI)较上年同期上涨5.4%，涨幅高于预期，且创1992年3月以来的最大涨幅，11月为上涨5.1%。
+🌟**六周后将发生大事**。
 
-投资者认为，英国央行在2月3日将银行利率上调至0.5%的可能性超过80%，12月，英国央行将利率从0.1%上调至0.25%，成为自疫情爆发以来第一个上调借贷成本的主要央行。
+🌟**“甜蜜蜜运动”将会如同和平洋刀直插中共心脏**。届时，北京二环以内将在各个角落响起《甜蜜蜜》的歌声！文贵先生在大直播中提到：走到了这一步，应该就是灭共的第三道大门彻底打开了！
 
-同时，欧洲央行会议记录显示决策者对通胀前景的看法存在严重分歧。欧洲央行在12月16日的会议上削减了对经济的刺激力度，但将债券购买计划延长至至少2022年底，理由是到今年年底通胀可能会回落至2%的目标以下，这一决定并没有获得一致通过，会议记录显示，决策者对这一前景存在严重分歧，25名政策制定者中有不少人认为，通胀有超出预期的风险。
+六周后将是爆料革命新中国联邦走向一个新的篇章！文贵先生的超超限战最高境界，远在万里之外，把敌人消灭在无形之中，没有伤亡！共产党会在《甜蜜蜜》的歌声里非常痛苦的恐惧和颤抖！爆料革命是最高段落的革命，不流血，不用人牺牲！
 
-欧洲央行在会议记录中称，“有人警告称，不能排除通胀‘在更长时间内超过目标’的情况。”“对于2023年和2024年，基线预测中的通胀已经相对接近2%，考虑到预测的上行风险，通胀很容易就会保持在2%之上。”
+对方犯规就是我们的赢得胜利机会，中共在疫苗灾难，中共病毒疫情期间搞冬奥会是犯规；中共搞新疆大屠杀是犯规！在香港（的暴政）也是犯规！
 
-25名管委会成员中有五人反对12月的政策举措，对于通常争取共识且不总是进行正式投票的管委会来说，持不同意见的人数之多实属罕见。欧洲央行的主流观点是，即便不采取政策行动，通胀率也将会自行减弱。
+🌟我们要用现代化的超超限战灭共！首先要强大，先强大经济，强大团队，统一思想，坚决灭共，团结地球上所有可能的力量！连被中共迫害的冤魂野鬼都和我们站在一起灭共，万佛万神也都和我们新中国联邦站在一起！
 
-目前，通胀率已达到创纪录的5%，是欧洲央行目标的两倍多。过去10年，欧洲央行的预测一直与实际通胀发展水平不符，政策制定者在最近几次会议上对该行的预测模型提出了质疑。
+🌟未来：**毛主席纪念堂会改建为十亿冤魂纪念**堂；**人民英雄纪念碑会改建为母亲纪念碑**！
 
-新闻链接：
-1:[https://www.reuters.com/business/bank-england-raise-rates-again-february-inflation-surges-2022-01-21](https://www.reuters.com/business/bank-england-raise-rates-again-february-inflation-surges-2022-01-21)
-2:[https://www.reuters.com/world/uk/boe-needs-lean-against-rising-price-pressures-mann-2022-01-21/](https://www.reuters.com/world/uk/boe-needs-lean-against-rising-price-pressures-mann-2022-01-21/)
-3:[https://www.reuters.com/world/uk/boes-bailey-sees-extra-inflation-risk-russia-ukraine-tension-2022-01-19/](https://www.reuters.com/world/uk/boes-bailey-sees-extra-inflation-risk-russia-ukraine-tension-2022-01-19/)
+🌟喜币是新中国联邦传宗接代的未来！
 
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
+🌟我们会结束所有中国人的恐惧！
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+🌟共产党最后的疯狂还会带走多少人？希望六周后的甜蜜蜜运动让更多的人觉醒！唤醒更多人！挽回更多人的生命！
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+🌟军人出身的战友问道：这次运动应该叫什么运动？
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+七哥和商讨“甜蜜蜜运动”的国内将军说，就叫“甜蜜蜜运动”。提到原因，文贵先生说请这位将军去看三百年的飞飞唱的甜蜜蜜。飞飞就是现代版活着的杨改兰，因为跟随了爆料革命新中国联邦而救了自己和自己的孩子们。飞飞在新中国联邦治愈疾病后活得美丽幸福，挑战一切邪恶！七哥在2021年12月就决定了这场运动叫“甜蜜蜜运动”。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+🌟【甜蜜蜜运动】已经开始行动了！而且，得到了各方支持！
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+🌟史无前例的北京冬奥会举行同时，《甜蜜蜜》的歌声会响遍北京二环以内！响彻各个角落！
+
+🌟我们将用甜蜜蜜开启共产党的噩梦！
+
+
+
+来源：2022年1月24日文贵先生大直播
+
+撰稿/雅典娜之矛
+
+审阅/正义网络
+
+上传/侠客行
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

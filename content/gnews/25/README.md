@@ -2,35 +2,18 @@
 ---
 
 
-## MV版Hcoin To the Moon上线47天第33次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1904255/)
+## 中共大外宣伊索贝尔爱吃狗肉
+` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/1904350/)
 
-1/24/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线47天第33次位列澳门iTunes热门音乐视频榜榜首，第40次位列前三名
-
-* * *
-
-[【PDF 下载】Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
+作者：五月花农场 DM
 
 
-[【PDF 下载】Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-24-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+七年前，VICE记者制作人伊索贝尔·杨（Isobel Yeung）在中共国玉林狗肉节上吃狗肉，还赞狗肉味道不错，有牛、羊肉的感觉。而她也曾在个人账户上发布了想吃自己狗的帖文。
+
+据《新中国联邦宣言》12之规定，促进人于大自然，动物生态的和谐共处。建议立即制定环境保护法案，治理污染，让大自然休息生息。除宗教和民族风俗原因外，应立法禁食国家保护动物及于人类亲密的动物，如猫、狗、猴等。
+
+编辑/校对/发稿： 五月花农场 DM
 
  
 

@@ -2,35 +2,29 @@
 ---
 
 
-## 有声|再次揭露HBO精心编织的谎言（part2）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904178/)
+## 中共在河北发射55枚火箭人工降雪 解决北京冬奥会降雪不足问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904200/)
 
-配音：香草山佛教部 – 李傻
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-235.png)
+[图片来源](http://www.heb.chinanews.com.cn/ylxc/20220124420797.shtml)
 
+中共1月21日在河北省发射了火箭，试图通过人工降雪来解决冬奥会无雪问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月22日GTV新闻访谈晚间播放的第一个视频中，提出了与HBO谎言有关的四个核心问题。今天的视频将就第一个问题进行解答，即为什么他们的视频不注重传播真相，只想利用一切机会诋毁、攻击郭文贵先生。
+中共中央电视台报道说，当天共发射了55枚火箭弹，并在该地区观察到约一厘米的雪。
 
-我们可以看到，郭先生四五年以来一直致力于揭露中共压制剥削本国人民、盗取国家财富、腐蚀破坏世界其他国家的真相，中共对他的攻击和迫害始终没有停止过，而HBO的视频，就是这一系列攻击的极其重要的一部分。
+当地气象官员说，发射火箭的目的是希望没有雪会有助于奥运会。
 
-文字版原文：[再次揭露HBO精心编织的谎言（part2）](https://gnews.org/zh-hans/1901682/)
+据说中共在2008年夏季奥运会之前发射了火箭，人为地造成降雨，以便有一个晴朗的开幕式。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+信息来源:
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[雪不足の北京五輪会場に…ロケット弾55発で人工降雪　中国・河北省](https://news.yahoo.co.jp/articles/4421d61f1f2c3f124ce739e3c22a7559b5fd3313)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
