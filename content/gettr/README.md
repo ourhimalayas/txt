@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/24/2022 1:04 PM (UTC)`
+
+2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化
+![img](https://media.gettr.com/group15/origin/2022/01/24/12/7c0bde1a-da0d-390a-1f0c-6c00f675c134/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/24/2022 10:30 AM (UTC)`
 
 1月24号：尊敬的战友们好．蔡锷生此人作恶多端，全因是王岐山为他撑腰！他公开喊话，只有对中国老百姓必须采取最严格的管理制度，才能保证党的统治！【新华社  2022-01-24 【原银监会副主席蔡鄂生被开除党籍】日前，经中共中央批准，中央纪委国家监委对原中国银行业监督管理委员会党委委员、副主席蔡鄂生严重违纪违法问题进行了立案审查调查。<br/><br/>经查，蔡鄂生丧失理想信念，背弃初心使命，政治上彻底蜕变，对党不忠诚不老实，搞两面派、做两面人，滥用金融监管权，严重扰乱金融市场秩序，严重污染金融领域政治生态，对抗组织审查；无视中央八项规定精神，奢靡腐化，违规收受礼品礼金，接受可能影响公正执行公务的宴请、旅游和打高尔夫球等活动安排，多次违规出入私人会所；组织观念淡漠，不按规定报告个人有关事项；寡廉鲜耻，大搞权色、钱色交易；不正确履行职责，违规干预和插手行政许可事项；目无法纪，“退而不休”，顶风作案，利用职务便利和影响力为他人在融资贷款、项目承揽、职务晋升等方面谋利，并非法收受巨额财物。<br/><br/>蔡鄂生严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿、利用影响力受贿、滥用职权犯罪，且在党的十八大后不收敛不收手不知止，性质严重，影响恶劣，应予严肃处理。依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予蔡鄂生开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。<br/><br/>💥评论💥 ：二十大在即，中共党内高层互相厮杀，不管你是什么职位，最终都会被这个绞肉机吞噬。蔡鄂生也是文贵先生爆料中的热门人物哦。😅😅😅】<br/><br/>
@@ -153,15 +160,6 @@ New Drop coming Monday at Noon on www.gfashion.com
 
 1/21/2022 Miles Guo: The CCP is doomed, facing the diplomatic decoupling, technological decoupling, gloomy Winter Olympics, and the global investigation into the origin of the CCP virus. The CCP is commemorating Deng Xiaoping’s Southern Trip Speech in the hope of applying the emergency brake to sustain the regime, indicating the fierceness of the political infighting in the CCP. Only the one-person-one-vote election can save China! The Declaration of the New Federal State of China can resolve all the problems in China!<br/><br/>1/21/2022 文贵直播: 中共已穷途末路 - 面临外交脱钩、科技脱钩、冬奥会惨淡收场和全世界展开病毒溯源；中共纪念邓小平南巡讲话寄希望踩急刹车以续命， 突显中共激烈内斗！只有一人一票才能救中国！《新中国联邦宣言》能解决中国的所有问题！<br/>
 ![img](https://media.gettr.com/group43/getter/2022/01/22/16/63d3b7a7-4224-d34d-3543-c4e43e55a7f9/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/22/2022 1:11 PM (UTC)`
-
-EP6: The Truth. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第六集：真相。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles  #thetruth #theccpvirus #annihilationofwhitepopulation #electionbeingrigged #hbovice #hbovice訪談真相
-![img](https://media.gettr.com/group33/origin/2022/01/22/13/7b91cad0-5c17-718c-4c22-36d0c4bcf3e8/out.jpg)
 
 ---
 

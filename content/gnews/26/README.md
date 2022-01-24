@@ -2,32 +2,82 @@
 ---
 
 
-## 我们天上见
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1902825/)
+## 参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1902954/)
 
-文：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/834e775ff94629b823ae7c82362f93e691e4d410.jpg)图源：网路
-以前听人讲神佛故事，说是某位来自天上的大人物，因为发大愿要拯救苍生于危难之中，自愿来到人间。当时他从天上来的时候吧，很多童子仙女还有各种小精灵和神仙都自愿下凡，跟随他来实现这个大愿。因为这个大愿就比地藏王菩萨的那个地狱不空誓不成佛的大愿都大，是无限的大愿，大多数跟随一起下凡来的都不是啥普通人。这两年网路上总在流传，啊我为什么要下凡来到人间云云，曾经在某段时间内，夸某些人天生丽质，就会说这个人好像仙女，仙子，甚至仙女、小仙女这个词，现在都是中文互联网的热门词汇。
+[https://gtv.org/video/id=61ebffc187664c47acd84ffe](https://gtv.org/video/id=61ebffc187664c47acd84ffe)
 
-暂且不说别的，一些用词总带着强烈的时代印记，打个比方说，建国时期给孩子取名字都是建国、中华、建华，现在孩子的名字都是子轩，紫昂，梓涵，重名的太多太多了，一个时代有一个时代的特色。不仅在中国，在其他国家也是如此，比如在美国，你一听trump、Nancy这些名字，这人指定年轻不了，起码得是40年前之前生人，Lysa、Elizabeth，这也年轻不了，而James，Jess，看起来都比之前这些要年轻。马斯克的孩子直接取了一个乱码的名字，一看就是新新人类，出生就可以去外太空的那种，确实，这个孩子一定有机会去很多次外太空。
+Ron Johnson (WI Senator)
+罗恩·约翰逊（威斯康星州参议员）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/202005061258-main.cropped_1588744767.jpg)
+No, we’ll see. He’s living in a fantasy world, he really is
+不，我们拭目以待，他生活在一个幻想世界，他真的是
 
-人们总是在不同的时代创造出很多新的词汇来，比如中文互联网特别流行的旧词新解，一部分是因为社会的变化，这个词语原来的意思就变了，人们发现在目前的框架下有了另外的意思，大家也喜闻乐见这种新颖的创造方法，于是使用的人越来越多了起来。还有一部分词汇，完全扭曲了原来的意思，比如共产党内部的词语，干爹，现在这个词真得非常难听，本来民间习俗里，很多刚出生的小孩子不好养，天天哭，老辈人一般都会建议孩子认一个干爹，一个干妈，这样孩子就不会哭了，吃得好睡得好，慢慢就好养大了。但是共产党的干爹文化，明明就是岁数大的共产党官员找年轻的孩子睡觉，对外都以干爹来称谓，这个词后来愈演愈烈，甚至都成为包养情妇的代名词了，不想奋斗了是吧，找个干爹吧，这意思就是包养。好好的一个词语，就变得如此肮脏不堪了，没多少人愿意用这个词了。再比如，什么大大，爸爸，管谁都能这么叫，自己的亲生父亲都没叫过的，很多小粉红脑子进水了，管习近平叫习大大，许家印许大大，马云马爸爸，引来一大片年轻人的跟风，发展到什么程度呢，公司的客户都是爸爸，老板也是爸爸，甚至男女爱情关系，男方也要求女方管自己叫爸，这非常畸形，再往下走，就演变成和共产党一模一样的乱性淫秽关系了。之所以整个社会的病态，其实无不是源于社会环境的影响，尤其是共产党的这种畸形病态和洗脑，以及严重的阶级分化，不允许普通草根家里的孩子往上越级，你只能叫爸，党比你的爹妈都亲，你要时刻准备好为党卖命。在这种普遍的高压之下，苦中作乐的老百姓从哪儿来打发这些地狱般的时间，就只有通过歪曲词义，创造一些莫名其妙的网络流行词。在人间的难熬时光里，总是文字能给人慰藉。毕竟文字是人类独有的，且是那个最基本的沟通方式。拥抱和精神交流虽然也可以达到这种要求，但是那不是挺不方便的嘛。再说，也不是一定就需要沟通得多么深，有些交流只是无法避免的交流，没有任何意义，就比如大家一起说那个网络流行语，你也要一起附和，才不会显得那么格格不入。
+But but here on planet earth when you spend a trillion dollars we don’t have
+但是，在地球上，当你花费我们没有的一万亿美元时
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/MAIN201406250737000175855517899.jpg)
+when you pay people not to work
+当你付钱让人们不去工作时
 
-互联网上时时处处充满了戾气，也是因为人们发现文字有时候是一把利剑，看着是那么几个字，但直直插入人心，连缓冲的余地都没有。在所有的大型事件，比如被性侵的孩子，被杀害的情敌，被虐待的小动物，会在全网引发人性的探讨。有的营销号甚至不惜一切博眼球，什么话都敢讲。常常一个陌生人都能给当事人带来网暴的巨大伤害，所以言语的力量是不能忽视的。不管背后是什么样的人，满足变态需求成为一切借口。随着共产党对互联网的控制，很多小粉红都是来自监狱，多发几条讯息，多回几条评论，人家能够得到减刑的机会，普通网友你跟着瞎凑什么热闹？往往有那些不明所以的自干零们，在这种变态的伤人种找到了存在感，找回了自信，就开始把网路暴力延伸到线下也有可能，很多虐猫虐狗的，都要把视频发到网路上寻求存在感，点赞的人越多，会越高潮。
+and reduce the supply of goods that’s going to cause inflation
+并减少商品供应，这一定会导致通货膨胀的
 
-所以互联网上充满了暴力和不适内容的时候，也同时存在着那些天天管自己叫仙女、仙子、神仙的人，虽然看起来格格不入，但起码从语言范围里找到一种平衡，即：有大规模伤害的地方，一定会有神仙般神奇力量。之前有很多网友拍到没见过的天气，比如大风大雨什么的，都会说这是那位神仙在渡劫，这是哪位仙家在做法，这些话虽然看上去像个神经病，但也不是没道理。七哥那天说我们都是天上来的，看来开头那个传说可能是真的，因为这些人的下凡，人间也当然会有对照的反应，比如互联网出现的这些词汇就很明显，早不出现，晚不出现，就从爆料革命这几年开始才出现的，蛮神奇的。
+I was amazed at the notes that I hadn’t get to watch the entire press conference
+我没有观看整个新闻发布会，后来看了会议记录后感到惊讶
+
+but he said that he outperformed expectations
+但他说他的表现超出预期
+
+Again, I’m not sure what planet he’s inhabiting
+再说一次，我不确定他住在哪个星球
+
+but again here on planet earth
+但是再次在这个星球
+
+What he has governed is is a huge radical leftists
+他所统治的是一个巨大的激进左派
+
+he’s not the moderate that the press is going to be said he’s a radical leftist
+他不是媒体会说他是激进左派的温和派
+
+He’s opened up the borders. He caused the inflation
+他打开了边界，他引发了通货膨胀
+
+We have catch released out of the border
+我们释放了已逮捕非法入境人员
+
+but also in our criminal justice system
+这情况也在我们的刑事司法系统中发生
+
+the embarrassing and dangerous surrender in Afghanistan
+阿富汗尴尬而危险的投降
+
+I mean It is a record of failure
+我的意思是这是失败的记录
+
+It’s almost surprising to his approval ratings are as high as they are
+他的支持率还有如此之高几乎令人惊讶
 
 * * *
 
-作者：骄子
-发布：骄子
+Date:01/20/2022
+原视频标题: Senator Ron Johnson talks on Biden claims that “Build Back Better” will reduce inflation
+参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
+原视频日期：2022/01/20
+原视频链接: [**https://twitter.com/senronjohnson/status/1483943148212662275?s=24**](https://twitter.com/senronjohnson/status/1483943148212662275?s=24)
+任务编号：KE359（3544）
+视频时间段 : 0:00-0:54
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

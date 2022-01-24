@@ -2,32 +2,21 @@
 ---
 
 
-## 樱花灭共诗——庚子鬼节夜归有作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1902996/)
+## 西媒头条 — 第159期 – 西媒看天朝
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1903021/)
 
-撰稿：东京樱花团/小小杜
+**制作：蚂蚁兄弟**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/樱花灭共诗——庚子鬼节夜归有作.png)
+**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
 
-难后尤多鬼，
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220124.002.jpeg)
 
-生人祭更繁。
+***发稿：信心满满***
 
-烈风如有哭，
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
 
-冥火似无言。
 
-捻纸空怀痛，
 
-焚香自诉冤。
-
-阴霾深入夜，
-
-何处是中原。
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
