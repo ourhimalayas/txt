@@ -2,28 +2,29 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1904159/)
+## 担心俄罗斯的侵略行为 日本政府建议国民避免在乌克兰旅行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904166/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-39.jpg)
+[图片来源](https://www.bbc.com/news/uk-60033012)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-23.png)
-文章仅代表作者本人观点，与Gnews无关
+日本外务省1月24日，出于对俄罗斯可能会发生军事侵略的担忧，将整个乌克兰的旅行警报提高到3级。
 
-视频参看：[2022.01.24早GTV新闻访谈](https://gtv.org/video/id=61eea96c28a108147c61b16f)
+日本外务省还敦促在乌克兰的日本人尽快乘坐商务飞机离开该国。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+此前，与俄罗斯接壤的两个东部省份和克里米亚半岛处于3级，而该国其他地区处于1级旅行警报。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+根据日本外务省的数据，在乌克兰有大约200多名日本国民。 如果军事紧张局势加剧，预计自卫队的飞机将很难救援他们，因此日本政府要求他们在商业飞机还在运行时离开该国。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息来源：
+
+[ウクライナ全土、渡航中止勧告　ロシア侵攻懸念で日本政府](https://news.yahoo.co.jp/articles/eee7c928aaf8a1fa1a2256ba996861b2589174be)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

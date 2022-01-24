@@ -2,29 +2,30 @@
 ---
 
 
-## 有声|欧洲议会新决议再次敦促成员国抵制北京冬奥
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904184/)
+## 中共在河北发射55枚火箭人工降雪 解决北京冬奥会降雪不足问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904200/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月20日，在离北京2022年冬奥会仅有两周之际，欧洲议会高票通过了香港自由决议，决议中直接认定中共国人权状况不仅没有任何改善，还进一步恶化，议会再次敦促欧盟委员会、理事会和各成员国，拒绝政府代表和外交官出席北京冬奥的邀请。
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-235.png)
+[图片来源](http://www.heb.chinanews.com.cn/ylxc/20220124420797.shtml)
 
-据悉，欧洲议会早在2021 年 7 月 8 日就已经作出决议，并呼吁拒绝出席北京冬奥，除非中共能证明香港人权状况有改善。
+中共1月21日在河北省发射了火箭，试图通过人工降雪来解决冬奥会无雪问题。
 
-文字版原文：[欧洲议会新决议再次敦促成员国抵制北京冬奥](https://gnews.org/zh-hans/1898281/)
+中共中央电视台报道说，当天共发射了55枚火箭弹，并在该地区观察到约一厘米的雪。
 
-音频处理：Fei797
-发稿：Fei797
+当地气象官员说，发射火箭的目的是希望没有雪会有助于奥运会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+据说中共在2008年夏季奥运会之前发射了火箭，人为地造成降雨，以便有一个晴朗的开幕式。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源:
+
+[雪不足の北京五輪会場に…ロケット弾55発で人工降雪　中国・河北省](https://news.yahoo.co.jp/articles/4421d61f1f2c3f124ce739e3c22a7559b5fd3313)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

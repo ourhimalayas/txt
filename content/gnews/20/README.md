@@ -2,37 +2,22 @@
 ---
 
 
-## 有声|传统加密货币价格暴跌，千亿美元蒸发
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904002/)
+## 换汤不换药法国将取消大部分疫情限制
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1904007/)
 
-配音：香草山农场 – 纳米
+采编编译： Spirit      编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-5.jpg)
+据法国媒体《Politico》1月20日报道，法国总理卡斯特当天宣布，政府将在2月份取消大部分“新冠病毒”疫情的限制政策，但仍执行疫苗护照规定和在室内配戴口罩等强制措施。
 
+据悉，从2月2日开始，法国所有体育场馆和其他大型公共场所将被允许再次正常对公众开放。虽然政府仍将鼓励远程工作，但必须隔离在家上班的规定将被取消，同时，在户外将不再需要配戴口罩。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月21日外媒报道，数字货币市场主要加密数字货币价格下跌，其中最流行和最知名的数字货币：比特币的价格跌破40,000 美元，下跌约 10%，以太坊下跌约 13%。加密数字货币市场损失达 1500 亿美元。
+报道称，在过去一周内，尽管法国平均每天确诊32万个病毒感染病例，但目前的疫情特别是”奥密克戎”病毒的破坏力都已明显趋缓。由于当局仍执意实施严格的疫苗护照政策，因此，就算取消了其他卫生措施，仍无法真正改变政府独裁专治的邪恶本质。
 
-此前有消息称，俄罗斯中央银行提议在该国禁止加密货币。由于该国是世界第三大加密货币开采地区，所以，俄罗斯的数字货币政策的变化，对靠采矿生产的数字货币，比如说——比特币等，有重大的影响。
+校对编辑：硫酸羟氯喹64
 
-但对不依赖采矿的数字货币，就没有什么影响力了。相比之下，喜马拉雅交易所的HCoin在最近24小时内，价格只有0.7%的小幅波动。以黄金为锚的HCoin，未来会成为数字货币市场中最具价值的数字货币。
+发稿： 苦尽甜来 (文來）
 
-文字版原文：[传统加密货币价格暴跌，千亿美元蒸发](https://gnews.org/zh-hans/1898704/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[原文链接](https://www.politico.eu/article/france-to-lift-covid-19-restrictions-in-february/)
 
  
 
