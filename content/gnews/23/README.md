@@ -2,33 +2,29 @@
 ---
 
 
-## 有声|Tucker把中共病毒疫苗比做纳粹活人实验，引来一片哗然
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904126/)
+## 担心俄罗斯的侵略行为 日本政府建议国民避免在乌克兰旅行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904166/)
 
-配音：香草山佛教部 – 李傻
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-39.jpg)
+[图片来源](https://www.bbc.com/news/uk-60033012)
 
+日本外务省1月24日，出于对俄罗斯可能会发生军事侵略的担忧，将整个乌克兰的旅行警报提高到3级。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月22日，福克斯主持人Tucker在采访Malone时将中共病毒疫苗比做纳粹活人实验，Malone说中共病毒疫苗是生物武器，是邪恶和非法的，他很高兴看到最高法否决了疫苗强制计划。 Tucker将新冠疫苗类比与二战时期纳粹进行的生物病毒活人实验，此说法在Twitter平台引起一片哗然，大部分人并无任何事实依据，但却都来抨击此说法，有的甚至刻意挑起种族歧视与仇恨。鉴于twitter已经对反中共病毒疫苗的言论尽数删除，并实行共产主义式的严格言论审查制度，twitter平台已无任何真话。
+日本外务省还敦促在乌克兰的日本人尽快乘坐商务飞机离开该国。
 
-文字版原文：[Tucker把中共病毒疫苗比做纳粹活人实验，引来一片哗然](https://gnews.org/zh-hans/1901586/)
+此前，与俄罗斯接壤的两个东部省份和克里米亚半岛处于3级，而该国其他地区处于1级旅行警报。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+根据日本外务省的数据，在乌克兰有大约200多名日本国民。 如果军事紧张局势加剧，预计自卫队的飞机将很难救援他们，因此日本政府要求他们在商业飞机还在运行时离开该国。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息来源：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[ウクライナ全土、渡航中止勧告　ロシア侵攻懸念で日本政府](https://news.yahoo.co.jp/articles/eee7c928aaf8a1fa1a2256ba996861b2589174be)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

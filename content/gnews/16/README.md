@@ -2,19 +2,33 @@
 ---
 
 
-## 文贵大直播 1/24 冬奥和病毒：CCP造假秉性难移 努力演好最后一场戏
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1904212/)
+## 有声|IMF主席称中共清零政策已成世界经济负担
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904227/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-4.jpg)图片来源 GTV
-北京冬奥提前入驻的人，在所谓病毒检测时，遭遇到的是羞辱和恐惧；很多人对中共国病毒检测几乎草木皆兵，感受到的是困惑… …
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月21日，国际货币基金组织IMF总裁表示，中共国在对待冠状病毒采取的“清零”政策，已经成为世界经济的负担，而需要重新评估。
 
-爆料革命发起人郭文贵先生1月24号于美国再次揭秘：这都是中共愚民成习，而且膨胀到认为可以愚弄全世界；一切都为了掩盖病毒真相、疫苗真相，要把戏演到底，事实就是造假。他们要让全世界看到，中共国不是病毒发源地，他们对病毒很认真、很严格等等。
+“清零”政策是指政府通过强硬的公共卫生措施，如大规模核酸检测、封闭整个城市、转移并集中监控整个社区，以及严格的边境检疫等等极端措施，意图彻底消除病毒。
 
-文贵先生淡定地告诉现场嘉宾，如果中共不在此时此刻把盘古龙头变“龟头”；如果不让不明真相的人亲身感受到中共邪恶的痛；灭共不会如此迅速为世人所知。
+IMF总裁格奥尔基耶娃在接受媒体采访时说，中共国的“清零”政策，在大流行开始之初，遏制战略似乎比较成功。但这些严厉的手段对传染率惊人的奥密克戎来说，已经没有多少成效了。相反，带来的风险远多于益处，对中共国内和整个世界的经济复苏都造成了冲击。
 
-【来源链接】https://gtv.org/broadcast/watch/61eea3ca28a108147c61a4dd
+格奥尔基耶娃指出，中共国这种“清零”政策越来越成为世界经济重启的负担。另外，所有国家都必须重新评估应对大流行病的最佳方案。
 
+文字版原文：[IMF主席称中共清零政策已成世界经济负担](https://gnews.org/zh-hans/1898280/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,104 @@
 ---
 
 
-## 1/24/2022国际财经快讯：美众院两党人士游说拜登总统削减美对华关税；拜登政府将美联邦雇员的最低时薪涨至15美元
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1903095/)
+## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-151.png)[图片来源](https://kwwl.com)
-**1.** **美众院两党人士游说拜登总统削减美对华关税**
+[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
 
-[共有140名众议院共和党人和民主党人正在游说总统乔-拜登削减美国对价值数十亿美元的中国制造进口产品的关税。众议员Darin LaHood（R-IL）、Jackie Walorski（R-IN）、Ron Kind（D-WI）和Rep. Suzan DelBene（D-WA）正在争取立法者签署他们给美国贸易代表（USTR）Katherine Tai的信–敦促她允许更多 “中国制造 “的进口产品避免美国的关税。对价值数十亿美元的中国制造产品征收301条款关税，是前总统川普在华盛顿特区达成数十年的自由贸易共识后首次实施的，从2001年到2018年，美国经济中的370万个美国就业机会被取消。尽管拜登政府将保留大部分的中国关税，但戴琪目前正在审查500多种可能被排除在关税之外的中国制造产品。](https://www.breitbart.com/politics/2022/01/22/house-republicans-democrats-lobby-joe-biden-to-cut-u-s-tariffs-on-china/)
+**Steve Bannon
+史蒂夫·班农**
 
-[美国服装和鞋类协会（AAFA）正在支持这一游说努力，因为一些最大的服装生产商，如Calvin Klein、Macy’s、Ralph Lauren和Reebok，都在中国生产其产品。正如Breitbart News经济编辑John Carney多年来所记录的那样，几乎没有证据表明美国对中国征收关税提高了美国人的消费成本。2019年的一项研究发现，美国对所有中国进口产品征收25%的永久性关税将在五年内创造超过一百万个美国就业机会。](https://www.breitbart.com/politics/2022/01/22/house-republicans-democrats-lobby-joe-biden-to-cut-u-s-tariffs-on-china/)
+I want the people
+我希望人们
 
-**2****.** **拜登政府将美联邦雇员的最低时薪涨至****15****美元**
+also the here’s the more fundamental thing for people in the audience right now
+也对现在观众中的人们来说这是更基本的事情
 
-[路透社报道，根据人事管理办公室（OPM）的一项新指示，美国联邦机构被指示将政府雇员的最低时薪提高到15美元。人事管理办公室周五在一份声明中说，该指令将影响近7万名联邦雇员，其中大部分人在国防部、农业部和退伍军人事务部工作。去年拜登发布了一项行政命令，将联邦合同工的最低时薪提高到15美元。拜登总统将支持蓝领工人作为其总统竞选的优先事项，称强大的工会和更高的工资可以激活美国的中产阶级，同时帮助消除经济和种族不平等。人事管理办公室主任Kiran Ahuja在声明中说：”将整个联邦政府的工资标准提高到最低时薪15美元，反映了我们对联邦劳动力的赞赏和我们作为一个国家的价值观。”声明说，人事管理局已要求各机构在1月30日之前实施新的工资标准，它不包括美国邮政服务和邮政监管委员会。](https://www.reuters.com/world/us/biden-administration-raises-minimum-wage-federal-employees-15-axios-2022-01-21/)
+other than capital markets
+除了资本市场，
+because capital markets are reactive to this
+因为资本市场对此有反应
 
-**3. 2021****年美国的银行零售分行关闭数量创纪录**** **
+You’ve had these cheerleaders like Jim Cramer and others,
+你有像吉姆·克莱默和其他人这样的啦啦队员，
 
-[随着客户越来越多地转向数字银行和行业整合，美国的银行业在2021年关闭的零售网点数量创下了纪录。根据标普全球市场情报公司的数据，去年美国银行业关闭了近4,000家分行，并开设了1,000多家分行，净关闭了2927家分行。由于新冠病毒疫情加速了数字应用，在2020年创造了之前的高点之后，银行关闭的另一个记录年出现了。加拿大皇家银行资本市场(RBC Capital Markets)美国银行股票策略主管杰拉德-卡西迪(Gerard Cassidy)告诉CNBC，“我们预计分支机构的下降趋势将持续数年，因为银行业务中更多以交易为导向的方面是通过数字化完成的。随着整合的继续，当交易被批准时，有重叠的分支机构，没有必要在同一大街上有两个分支机构。”根据标普全球的数据，分支机构的关闭也是随着银行的整合而来的，2021年该行业的并购交易额高达770亿美元，是2006年以来的最高水平。富国银行是2021年关闭网点最多的银行，去年净关闭267个零售网点。虽然摩根大通去年是第六大分行净关闭者，但随着其向新市场的扩张，该公司在2021年开设了最多的分行，有169个新地点。](https://www.cnbc.com/2022/01/21/banks-close-record-number-of-branches-in-2021-led-by-wells-fargo.html)
+Jamie Dimon up there,
+杰米·戴蒙在那里
 
-**4.****联合国向塔利班捐赠****3200****万美元**
+cheerleading for Biden’s economic plan
+为拜登的经济计划做拉拉队，
 
-[据报道，12月，联合国同意开始每周向阿富汗发送现金，以资助人道主义工作，到2022年3月，金额将增加到每周2000万美元。阿富汗塔利班控制的中央银行周四宣布从联合国收到了3200万美元的现金，表面上是为了资助人道主义援助。现金援助计划旨在通过向阿富汗注入美元来稳定其经济，以避免流动性危机。在乔-拜登总统灾难性的撤军和塔利班8月的接管之后，阿富汗的银行系统进入了危机模式。联合国开发计划署（UNDP）在11月报告说，银行系统的 “巨大 “故障可能即将发生。开发计划署承认，通过注入美元来稳定银行系统的努力将面临塔利班简单地偷走现金的风险。”我们需要找到一种方法，以确保如果我们支持银行业，我们就不是在支持塔利班，”联合国开发计划署阿富汗办事处负责人阿卜杜拉-达尔达里（Abdallah al Dardari）在11月说。12月下旬，联合国宣布了一项雄心勃勃的80亿美元的阿富汗援助计划，在已经花费的10亿美元基础上，这是联合国为一个国家提出的最大资金需求之一。联合国官员说，他们的议程远远超出了基本的人道主义援助，包括重建经济、补贴教育、恢复社会服务和稳定金融体系。](https://www.breitbart.com/asia/2022/01/21/u-n-gifts-taliban-32-million/)
+which we said is a disaster
+我们说这是一场灾难
 
-**5.****比特币再次下跌，最新日跌幅****4%**
+And Kramer was on TV said the greatest economy in his life in his life.
+克莱默在电视上说是他一生中最伟大的经济
 
-[路透社报道，1月22日 再次比特币周六下跌，全天最后一次下跌约4%，徘徊在35,000美元的水平。比特币是世界上最大和最知名的加密货币，现在大约是其11月份69,000美元峰值的一半。它最后的价格是35,049美元，此前最低跌至34,000美元，并在周五大幅下跌。由于对通货膨胀的担忧和对美国联邦储备局更积极的加息步伐的预期，风险偏好下降，该货币的价格大幅波动并受到打击。其他风险资产纷纷下跌，股票在周五下跌。标准普尔500指数和纳斯达克指数录得自2020年3月大流行开始以来的最大周百分比跌幅。OANDA的美洲高级市场分析师Edward Moya在周五的一份研究报告中说，比特币正在下跌，因为 “加密货币交易商在股市血洗之后降低了投资组合的风险”，而且是赶在下周的美联储政策会议之前。比特币仍然处于危险区域，如果37,000美元被打破，那么在30000美元的水平之前没有什么支撑。](https://www.reuters.com/technology/bitcoin-falls-56-34448-2022-01-22/)
+Just a couple of weeks ago
+就在几周前
 
-**6.** **德国汉莎航空将购买意大利航空的继任者****ITA****的****40%****股份**
+This is right now getting oil at $85 a barrel. Right?
+现在的油价是每桶85美元，对吧？
 
-[路透社报道，意大利日报《Il Foglio》周六报道，德国汉莎航空公司（LHAG.DE）将收购国有意大利航空公司的继任者ITA航空公司40%的股份，交易可能在下周揭晓。ITA航空公司于10月15日开始飞行，有近2300名员工，机队规模不到意大利航空公司的一半，这家有75年历史的前国家航空公司经历了一系列令人眼花缭乱的重组和所有权变更。该报没有给出任何交易的价格，但表示两家公司非常接近于就一些关键条款达成一致，例如罗马的菲乌米奇诺机场作为直飞非洲和一些美洲航线的枢纽的作用。ITA发言人周六表示，该航空公司的高层管理人员将于1月31日向公司董事会提交一份战略计划。他补充说，一个数据室将在接下来的日子里开放，允许潜在的投标人或合作伙伴获得关键的财务文件，以评估公司的价值。此前，ITA正在与汉莎航空、英国航空（ICAG.L）和美国达美航空（DAL.N）就股权合作进行接触，称正式谈判可能于3月底开始。](https://www.reuters.com/business/aerospace-defense/germanys-lufthansa-is-set-buy-40-stake-alitalias-successor-ita-paper-2022-01-22/)
+Yeah, they’re about to announce
+是的，他们即将宣布
 
-**7.**** 德国外长称切断俄罗斯的SWIFT并非最锋利的剑**
+they’re going to redo the forecast for the first quarter slowing GDP
+他们将重做第一季度GDP放缓的预测
 
-[路透社报道，德国外交部长Annalena Baerbock在接受《南德意志报》采访时对切断俄罗斯银行与Swift全球支付系统的联系表示怀疑。她告诉该报：”将所有支付交易脱钩也许是最大的棍子，但不一定是最锋利的剑。西方国家正在密切关注哪些经济和金融制裁会真正影响到俄罗斯的经济和领导力，而不会产生反弹效应。总理和我已经说得很清楚，在进一步的军事升级方面，任何手段和措施都在桌面上。而这包括北溪2号。”德国《商报》本周援引政府消息人士的话说，西方政府不再考虑切断俄罗斯银行与SWIFT的联系。将俄罗斯排除在SWIFT之外，这将有效地切断该国与全球经济的联系，长期以来一直被认为是西方国家可以对俄罗斯采取的最终制裁，以阻止其对邻国乌克兰的进一步军事行动。SWIFT是一个全球网络，全世界几乎所有的金融机构都用它来互相汇钱，是国际支付系统的一个基石。](https://www.reuters.com/world/europe/german-foreign-minister-cutting-russia-off-swift-not-sharpest-sword-2022-01-21/)
+There’s you could see that yesterday
+昨天你可以看到
 
-**8.****土耳其的通货膨胀率据称将在****2022****年达到约****40%****的峰值**
+The reason Goldman Sachs is so important of missing the earnings
+高盛失去收益如此重要的原因
 
-[周六在伊斯坦布尔与60名经济学家和分析师举行的会议上，土耳其财政部长努雷丁-内巴蒂告诉经济学家，提供了他对2022年消费者价格的最详细的展望，他预计未来几个月的通货膨胀率将在40%左右达到峰值，今年不会超过50%。通货膨胀率在今年年底之前可能不会降到30%以下。这次会议对外不公开，土耳其财政部拒绝发表评论。土耳其12月的通货膨胀率达到36.1%，是总统雷杰普-塔伊普-埃尔多安执政19年以来的最高值。根据央行1月份对市场参与者的调查，未来12个月的通胀预期从21.39%跃升至25.37%。一些华尔街银行预测，去年的货币危机可能会使通货膨胀率超过50%。土耳其央行在连续四次会议上将其基准利率降低了500个基点，然后在周四宣布暂停其宽松周期，这对价格的跳升起到了推动作用。埃尔多安要求采取积极的宽松政策，他认为较低的利率将控制消费价格并促进增长。里拉贬值和全球能源价格上涨是通货膨胀的最大驱动力。土耳其货币在三个月内损失了多达一半的价值，然后在政府于12月推出紧急措施后才稳定下来，其中包括一项对货币大跌的里拉持有人进行补偿的计划。](https://finance.yahoo.com/news/turkey-said-see-inflation-rate-204638267.html)
+Why is that important?
+为什么这很重要？
 
-By【秘密翻译组-金融组】
-作者：Opal
+Why do we focus on that?
+我们为什么要专注于此？
+
+Because in this complex financial capital market driven world
+因为在这个复杂的金融资本市场驱动的世界里
+
+who would have a better understanding of it than Goldman Sachs
+谁能比高盛更了解它
+
+when they miss earnings that badly that is bad
+当他们严重失去收入时，这很糟糕
+
+everybody in the world capital markets say
+世界资本市场上的每个人都说
+
+and hi the Goldman guys missed it this badly?
+嗨，高盛的人的损失这么的糟糕？
+
+It’s worse than we thought
+比我们想象的还要糟糕
+
+Okay, that’s why the stocks off so much.
+好吧，这就是为什么股票下跌这么多
+
+* * *
+
+Date:01/19/2022
+原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
+当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+原视频日期：2022/01/18
+原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
+任务编号：KE361(3538)
+视频时间段 : 0:00-0:59
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

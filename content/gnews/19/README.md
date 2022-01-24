@@ -2,24 +2,29 @@
 ---
 
 
-## 特鲁多与索罗斯合作深度操纵难民慈善基金
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1904179/)
+## 中共在河北发射55枚火箭人工降雪 解决北京冬奥会降雪不足问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904200/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image2-2.jpg)
-据加拿大[反叛者新闻]1月22日报道，在联邦信息专员作出不利于特鲁多政府的裁决之前，一份被加拿大移民局谎称不存在的文件，包括28 页的简报和大量电子邮件突然在近日被公开，并因此曝光了特鲁多与索罗斯“开放社会基金”非法合作的利益关系。
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-235.png)
+[图片来源](http://www.heb.chinanews.com.cn/ylxc/20220124420797.shtml)
 
-报道称，继2016年9月美国前总统奥巴马提出《全球难民赞助倡议》后，加拿大政府、索罗斯基金和渥太华大学启动了一项联合行动，旨在促使政府、个人、团体和企业参与该国迎接，安置和服务新难民等相关福利工作。
+中共1月21日在河北省发射了火箭，试图通过人工降雪来解决冬奥会无雪问题。
 
-尽管总理特鲁多声称该计划不具行政约束力，但被公开的文件显示以上的难民政策已进入实施阶段，并将重点放在气候移民和经济移民上。此外，前移民部长麦卡勒姆与索罗斯此前曾公开宣称该合作计划的成功开展，足以证明了该金融大鳄的“开放社会基金”与特鲁多当局的深层利益关系早已“根深蒂固”。
+中共中央电视台报道说，当天共发射了55枚火箭弹，并在该地区观察到约一厘米的雪。
 
-校对编辑：硫酸羟氯喹64
+当地气象官员说，发射火箭的目的是希望没有雪会有助于奥运会。
 
-发稿： 苦尽甜来 (文來）
+据说中共在2008年夏季奥运会之前发射了火箭，人为地造成降雨，以便有一个晴朗的开幕式。
 
-[信息来源1](https://www.rebelnews.com/immigration_ministry_briefing_note_declares_partnership_with_soros_backed_charity_entrenched_in_the_department)
+信息来源:
 
-[信息来源2](https://drive.google.com/viewerng/viewer?url=https://d3n8a8pro7vhmx.cloudfront.net/therebel/pages/56532/attachments/original/1642878973/soros-atip-jan22-watermarked.pdf?1642878973)
+[雪不足の北京五輪会場に…ロケット弾55発で人工降雪　中国・河北省](https://news.yahoo.co.jp/articles/4421d61f1f2c3f124ce739e3c22a7559b5fd3313)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
