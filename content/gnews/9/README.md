@@ -2,33 +2,33 @@
 ---
 
 
-## 世卫组织建议各国取消COVID旅行禁令
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904371/)
+## 毕尔巴鄂反对疫苗和COVID护照示威游行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1904377/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
-根据《VOA》1月20日报道，世界卫生组织本周建议各国取消或放宽现有的与COVID-19有关的旅行限制，称这些限制可能加剧与该大流行病有关的经济和社会压力。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/553F40F8-B4E0-4C64-A4DF-D44BD651265E_w1023_r1_s.png)
-这项新建议是世卫组织国际卫生条例应急委员会在最近一次会议后于周三提出的。报告称，旅行限制未能限制引起COVID-19的病毒的omicron变体的国际传播，这表明这种措施随着时间的推移是无效的。
+翻译：七龙珠
 
-报告接着说，其他旅行安全措施，如戴口罩、测试、隔离,检疫和疫苗接种，应以风险评估为基础，以避免给国际旅行者带来过多的经济负担。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-24-173356.jpg)图片来源 ：elcorreo.com
 
-新闻链接：[https://www.voanews.com/a/who-recommends-nations-lift-or-ease-covid-19-related-travel-bans/6405130.html](https://www.voanews.com/a/who-recommends-nations-lift-or-ease-covid-19-related-travel-bans/6405130.html)
+根据市警察局的估计，超过15000人，本周六在西班牙毕尔巴鄂市举行“反对covid护照”示威游行。在“停止独裁护照，自由”的口号下，示威由Bizitza平台召集，该平台汇集了约30个不同类型的社会、文化和专业协会。
 
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
+游行者来自巴斯克地区的各个地方：伊伦、杜兰戈、圣塞巴斯蒂安、埃尔戈巴尔……，也有来自纳瓦拉、阿斯图里亚斯、坎塔布里亚和阿拉贡，他们各自举着各个州的旗帜，许多人乘坐停在体育场附近的大约15辆巴士到达这里。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在消防员的带领下，示威者在下午五点在卡西利亚集合。人们散发着传单，谴责强迫儿童戴口罩“是虐待儿童”，反对“接种实验性药物”——疫苗，尤其是对儿童，并说 “那些想要征服我们的人对所有热爱自由的人类所宣称的战争远未结束”。Bizitza则分发了一张纸条，详细说明了“在接种实验性药物（疫苗）之前你应该要求的权利”。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+许多示威者举着标语，上面写着“停止vacunazi护照”；“Urkullu，我们也投票”；“健康证——奴隶制”，“恐怖主义记者”或“这不是保健，是独裁”等信息。在整个游行过程中，人们高呼类似的信息，号召“人民团结起来永远不会被打败”、“自由”和“继续前进（战斗），直到胜利”等经典语录，游行顺利进行。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+在许多没有戴口罩的示威者中，很容易收集到反对媒体的意见：“只公布官方数据，这是被操纵的”，一位来自帕萨亚的年轻妇女说，她和她的两个女儿参与了游行。“我不反疫苗，但我反对他们强迫我们这样做”。她补充说：“这是歧视”。COVID护照是一种控制手段，但并不代表真实的健康。来自坎塔布里亚的奥尔加-达里奥说：“这是一种社会控制的工具，一种强迫你接种疫苗的方式，但毫无意义。我没打疫苗，但我是健康的，他们不让我进入健身房，而你如果接种疫苗而且被感染了，因为你有疫苗护照，你可以去任何你想去的地方并感染其他每个人。”
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+晚上七点游行者到达市政厅广场，他们用巴斯克语和西班牙语宣读宣言，呼吁反抗强加的“耻辱护照”，要求“自由和尊重”，并呼吁所有人们团结起来“捍卫被盗、被掩盖的真理”。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+新闻来源：[elcorreo.com] [15.000 personas se manifiestan en Bilbao contra la vacuna y el pase covid](https://www.elcorreo.com/bizkaia/manifestacion-bilbao-pasaporte-covid-20220122160810-nt.html)
+
+* * *
+
+*审核：Aries的星
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,54 +2,30 @@
 ---
 
 
-## 法官发全国禁制令，禁止执行拜登的联邦雇员疫苗强制
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904001/)
+## 美军两个航母打击群进入南海争议区域 表达维护盟友立场
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903905/)
 
-作者：纽约香草山农场 007
+#### 撰稿：日本东京方舟农场 Kevin wang
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13E05279-95EB-4026-8636-80E0B105AF00.jpeg)（图片来自中央社）
 
+1月24日，美国国防部表示，美军2个航空母舰打击群于23日驶入南海争议海域进行训练，美军指挥官表示，此举意在表示对区域盟友的支持，并展现美方「对抗恶意影响」的决心。
 
+中央社报道， 美国五角大厦24日发布声明称，海军卡尔文森号（USS Carl Vinson CVN-70）、林肯号（USS Abraham Lincoln CVN-72）航空母舰打击群23日在南海展开行动。美国国防部表示，这两个航舰打击群将进行反潜作战、空中作战、海上拦截等演训行动，以加强战备能力。
 
+该声明还引述林肯号打击群指挥官安德森少将（Rear Admiral J.T. Anderson）说法称：「此类行动能提高我们的可恃战力，让我们的盟友和伙伴安心，展现美国海军捍卫区域稳定及对抗恶意影响的决心。」
 
+此外，日美于本月17日至22日间举行联合训练，日方派出大型护卫舰日向号（满载排水量1万9000吨），美方则派出卡尔文森号、林肯号及两栖突击舰与驱逐舰等，总计日美共10艘舰艇参与。
 
-1月21日，美国一名联邦法官，发布了全国范围的禁制令，禁止执行针对联邦雇员的中共新冠病毒疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pfizer-covid-19-vaccine-syringe-1880x1254-1.jpg)图片来源：A medical staff member prepares the Pfizer Covid-19 vaccine at Tudor Ranch in Mecca, California, on Jan. 21, 2021. (AP Photo/Jae C. Hong)
-去年9月，拜登政府宣布350万联邦雇员必须接种疫苗，11月生效。本案原告Feds for Medical Freedom ，是一家由数千名联邦机构雇员组成的非营利组织，其数十名成员就疫苗强制令，于12月起诉拜登政府官员。
+*参考链接： [五角大廈：2艘航艦在南海訓練 以對抗惡意影響](https://www.cna.com.tw/news/aopl/202201240318.aspx)*
 
-德克萨斯州的联邦法官布朗，撰写禁制令时，引用了联邦最高法院日前的裁决，该裁决推翻了拜登政府要求私营雇主让员工接种疫苗的强制令。布朗注意到，政府没有提供以前的总统援引宪法第二条权力、对文职联邦雇员实施医疗程序的例子，他认为拜登越权，甚至反问，“这是事实上的警察权力吗？”
+* * *
 
-美国司法部表示，将就布朗的命令提出上诉。
+*素材采编：Kevin wang*
 
-新闻链接：
+*编辑： 青城道姑*
 
-
-
-> [Judge blocks Biden vaccine mandate for federal workers](https://www.courthousenews.com/judge-blocks-biden-vaccine-mandate-for-federal-workers/)
-
-
-
-总编：飞虹 校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
-
-
-
-
+*发布：miumiu*
 
  
 

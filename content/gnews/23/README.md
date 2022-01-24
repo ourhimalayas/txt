@@ -2,29 +2,35 @@
 ---
 
 
-## 担心俄罗斯的侵略行为 日本政府建议国民避免在乌克兰旅行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1904166/)
+## 有声|再次揭露HBO精心编织的谎言（part2）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904178/)
 
-撰稿：东京樱花团/黑猫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-39.jpg)
-[图片来源](https://www.bbc.com/news/uk-60033012)
+配音：香草山佛教部 – 李傻
 
-日本外务省1月24日，出于对俄罗斯可能会发生军事侵略的担忧，将整个乌克兰的旅行警报提高到3级。
 
-日本外务省还敦促在乌克兰的日本人尽快乘坐商务飞机离开该国。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月22日GTV新闻访谈晚间播放的第一个视频中，提出了与HBO谎言有关的四个核心问题。今天的视频将就第一个问题进行解答，即为什么他们的视频不注重传播真相，只想利用一切机会诋毁、攻击郭文贵先生。
 
-此前，与俄罗斯接壤的两个东部省份和克里米亚半岛处于3级，而该国其他地区处于1级旅行警报。
+我们可以看到，郭先生四五年以来一直致力于揭露中共压制剥削本国人民、盗取国家财富、腐蚀破坏世界其他国家的真相，中共对他的攻击和迫害始终没有停止过，而HBO的视频，就是这一系列攻击的极其重要的一部分。
 
-根据日本外务省的数据，在乌克兰有大约200多名日本国民。 如果军事紧张局势加剧，预计自卫队的飞机将很难救援他们，因此日本政府要求他们在商业飞机还在运行时离开该国。
+文字版原文：[再次揭露HBO精心编织的谎言（part2）](https://gnews.org/zh-hans/1901682/)
 
-信息来源：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-[ウクライナ全土、渡航中止勧告　ロシア侵攻懸念で日本政府](https://news.yahoo.co.jp/articles/eee7c928aaf8a1fa1a2256ba996861b2589174be)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

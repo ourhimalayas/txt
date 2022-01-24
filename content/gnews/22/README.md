@@ -2,35 +2,24 @@
 ---
 
 
-## 有声|再次揭露HBO精心编织的谎言（part2）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1904178/)
+## 特鲁多与索罗斯合作深度操纵难民慈善基金
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1904179/)
 
-配音：香草山佛教部 – 李傻
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image2-2.jpg)
+据加拿大[反叛者新闻]1月22日报道，在联邦信息专员作出不利于特鲁多政府的裁决之前，一份被加拿大移民局谎称不存在的文件，包括28 页的简报和大量电子邮件突然在近日被公开，并因此曝光了特鲁多与索罗斯“开放社会基金”非法合作的利益关系。
 
+报道称，继2016年9月美国前总统奥巴马提出《全球难民赞助倡议》后，加拿大政府、索罗斯基金和渥太华大学启动了一项联合行动，旨在促使政府、个人、团体和企业参与该国迎接，安置和服务新难民等相关福利工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月22日GTV新闻访谈晚间播放的第一个视频中，提出了与HBO谎言有关的四个核心问题。今天的视频将就第一个问题进行解答，即为什么他们的视频不注重传播真相，只想利用一切机会诋毁、攻击郭文贵先生。
+尽管总理特鲁多声称该计划不具行政约束力，但被公开的文件显示以上的难民政策已进入实施阶段，并将重点放在气候移民和经济移民上。此外，前移民部长麦卡勒姆与索罗斯此前曾公开宣称该合作计划的成功开展，足以证明了该金融大鳄的“开放社会基金”与特鲁多当局的深层利益关系早已“根深蒂固”。
 
-我们可以看到，郭先生四五年以来一直致力于揭露中共压制剥削本国人民、盗取国家财富、腐蚀破坏世界其他国家的真相，中共对他的攻击和迫害始终没有停止过，而HBO的视频，就是这一系列攻击的极其重要的一部分。
+校对编辑：硫酸羟氯喹64
 
-文字版原文：[再次揭露HBO精心编织的谎言（part2）](https://gnews.org/zh-hans/1901682/)
+发稿： 苦尽甜来 (文來）
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+[信息来源1](https://www.rebelnews.com/immigration_ministry_briefing_note_declares_partnership_with_soros_backed_charity_entrenched_in_the_department)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[信息来源2](https://drive.google.com/viewerng/viewer?url=https://d3n8a8pro7vhmx.cloudfront.net/therebel/pages/56532/attachments/original/1642878973/soros-atip-jan22-watermarked.pdf?1642878973)
 
  
 

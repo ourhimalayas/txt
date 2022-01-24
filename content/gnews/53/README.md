@@ -2,29 +2,28 @@
 ---
 
 
-## 中共大外宣伊索贝尔爱吃狗肉
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901466/)
+## 郭文贵先生解析数字货币钱包的含义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901436/)
 
-作者：香草山 – 往后余生Jane
+作者：纽约香草山 信息部 – 6zero4
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，据盖特消息显示，七年前，VICE记者兼制作人伊索贝尔·杨，即杨贝贝，在中共国玉林狗肉节上吃狗肉，还称赞狗肉味道不错。而她也曾公开在个人社交媒体账户上发布了想吃自己狗的帖文。
+2022年1月21日的大直播中，郭文贵先生分别解释了数字货币的热钱包和冷钱包含义。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DAWAIXUAN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/数字货币-.png)
 
-相关伊索贝尔吃狗肉的视频，在社交媒体上引起了中外舆论极大的愤怒。有人指出，此图片和视频仿佛中国人是像她这样的食狗肉者，而99%的中国人不会这样做。但她却从不报道中共颁发狗肉许可证，以及中国人救狗的事实。
+“热钱包”可以理解为在线的钱包，也叫“中心化钱包”，用于在线存取和交易。存在银行的法币，和当前市场上流通的数字货币，99%都使用在一定范围内流通的热钱包。其缺点是，里面的资金易被黑客盗走；宕机则无法使用；银行或数字货币发行商一旦发生倒闭，客户将损失惨重，乃至清零。
 
-伊索贝尔是一个明目张胆的说谎者。她曾在2021年5月18日采访郭文贵先生，在整个采访过程中，她暴露出了极不寻常的动机。12月20日，她蓄意用经过后期加工的VICE假新闻视频，来诽谤、陷害郭文贵先生和新中国联邦。
+相对于热钱包，离线的钱包就是“冷钱包”，也叫“去中心化钱包”，或“硬钱包”，即将数字货币存放在物理硬盘里，类似于存放现金的保险箱，这是最安全的存钱方式。当热钱包的钱币数量降到设定值时，触发充钱机制，从冷钱包取币。天空互联网开通时，可避开中共网络封锁进行交易。
 
-参考链接： 
-1）[这个杨贝贝吃狗肉说味道不错。。。](https://gettr.com/comment/ciubpd32fb)
-2）[https://gettr.com/post/pptv71516f](https://gettr.com/post/pptv71516f)
-3）[https://gettr.com/comment/cix7m0c5fb](https://gettr.com/comment/cix7m0c5fb)
-4）[https://gettr.com/post/pptl5u2bc2](https://gettr.com/post/pptl5u2bc2)
+“冷钱包”属于郭先生的首创，将整合量子电脑加密技术和生物特征识别科技，甚至可将硬钱包核心数据，放到月球或卫星上，让冷钱包里的钱不可找、不可抢、不可骗，万一丢失也可通过寻回机制找回，或得到G保险全额赔付，达到永不丢失。即使在被中共完全断网的情况下，亦可在冷钱包之间进行交易，打破受人监管的法币国家垄断，让中共找不着北，成为中共灭亡前后存钱最安全的地方。
+
+参考链接：
+[2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](https://gtv.org/video/id=61eaab2f533c672fca804729)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文真
-编辑：文特
+总编：Jack Li文阳
+编辑：Kathy文艺
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -34,6 +33,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
