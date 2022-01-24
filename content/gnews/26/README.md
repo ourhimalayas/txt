@@ -2,81 +2,24 @@
 ---
 
 
-## 参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1902954/)
+## 骨灰级战友心声（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902998/)
 
-[https://gtv.org/video/id=61ebffc187664c47acd84ffe](https://gtv.org/video/id=61ebffc187664c47acd84ffe)
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/骨灰1_01.jpg)
+卡丽熙：尊敬的战友们好，今天非常荣幸与我们伟大的班农先生和文贵先生同心同框。作为2018年11月20日王建之死新闻发布会的亲历者，我今天非常感动。因为在2018年11月20日的时候，我们爆料革命的发起者文贵先生遭到中共的打击和追杀，甚至他的追随者也不同程度地遭到追杀。 所以我们伟大的班农先生和文贵先生创造了爆料革命这一切，成立法治基金救助受迫害的人。三年来发生了翻天覆地的变化，到新中国联邦的成立，我们有了自己的货币，有了自己的信仰正道主义。所以今天我非常开心跟所有正义的伟大的人相聚在一起。
 
-Ron Johnson (WI Senator)
-罗恩·约翰逊（威斯康星州参议员）
+杨丹荷女士：从2017年文贵先生第一次出来爆料，保命、保财、报仇，就是用自己的生命，自己家人的生命，自己的财产做为抵押，一分钱没有带到海外，从419的断播， 说黑暗降临美国，到1120说盗国贼对整个世界人类的威胁。 到今天爆料革命代表一切全世界的草根克服恐惧，我的不恐惧就是他们的恐惧。我们每一个人都很了不起，都很有力量。
 
-No, we’ll see. He’s living in a fantasy world, he really is
-不，我们拭目以待，他生活在一个幻想世界，他真的是
+*发布：开智则立*
 
-But but here on planet earth when you spend a trillion dollars we don’t have
-但是，在地球上，当你花费我们没有的一万亿美元时
-
-when you pay people not to work
-当你付钱让人们不去工作时
-
-and reduce the supply of goods that’s going to cause inflation
-并减少商品供应，这一定会导致通货膨胀的
-
-I was amazed at the notes that I hadn’t get to watch the entire press conference
-我没有观看整个新闻发布会，后来看了会议记录后感到惊讶
-
-but he said that he outperformed expectations
-但他说他的表现超出预期
-
-Again, I’m not sure what planet he’s inhabiting
-再说一次，我不确定他住在哪个星球
-
-but again here on planet earth
-但是再次在这个星球
-
-What he has governed is is a huge radical leftists
-他所统治的是一个巨大的激进左派
-
-he’s not the moderate that the press is going to be said he’s a radical leftist
-他不是媒体会说他是激进左派的温和派
-
-He’s opened up the borders. He caused the inflation
-他打开了边界，他引发了通货膨胀
-
-We have catch released out of the border
-我们释放了已逮捕非法入境人员
-
-but also in our criminal justice system
-这情况也在我们的刑事司法系统中发生
-
-the embarrassing and dangerous surrender in Afghanistan
-阿富汗尴尬而危险的投降
-
-I mean It is a record of failure
-我的意思是这是失败的记录
-
-It’s almost surprising to his approval ratings are as high as they are
-他的支持率还有如此之高几乎令人惊讶
-
-* * *
-
-Date:01/20/2022
-原视频标题: Senator Ron Johnson talks on Biden claims that “Build Back Better” will reduce inflation
-参议员罗恩·约翰逊谈拜登声称“重建得更好”将降低通货膨胀
-原视频日期：2022/01/20
-原视频链接: [**https://twitter.com/senronjohnson/status/1483943148212662275?s=24**](https://twitter.com/senronjohnson/status/1483943148212662275?s=24)
-任务编号：KE359（3544）
-视频时间段 : 0:00-0:54
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

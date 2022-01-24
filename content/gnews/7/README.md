@@ -2,187 +2,41 @@
 ---
 
 
-## 七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903131/)
+## 北京冬奥在即 言论失控、病毒扩散 引发“再溯源”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903197/)
 
-[https://gtv.org/video/id=61ec713587664c47acd879c5](https://gtv.org/video/id=61ec713587664c47acd879c5)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-29.png)[*图片来源*](https://media.nownews.com/nn_media/thumbnail/2022/01/1642994091430-5b972be3ab294faaa02770583d8647a9-1200x800.jpg?unShow=false)
+**冬奥会临近，北京会不会因为疫情扩散导致奥运期间意外事件发生？外界持续关注这场史无前例的“纳粹奥运会”，但中共官方罕见地否定了自己新的疫情推责说法——物传人，导致陷入言论混乱。更加罕见的是，美国总统拜登再提“病毒起源”时要求习近平配合，并罕见表示，这里有“秘钥”。**
 
-今天我要告诉大家
-Hoy les digo a todos
+据中共国[CDC](https://www.chinacdc.cn/jkzt/crb/zl/szkb_11803/jszl_11809/202201/t20220124_256513.html)相关疫情数据显示，截止1月23日0—24时，31个省市和新疆报告新增确诊病例57例，其中境外输入病例39例。备受关注的北京新增1例，北京本土病例6例，其中，丰台区新增病例4例、房山区1例、大兴区1例；河北3例（均在雄安新区）。另据[北京日报](https://ie.bjd.com.cn/5b165687a010550e5ddc0e6a/contentApp/5b16573ae4b02a9fe2d558f9/AP61ed2508e4b06028eb1e834c.html?isshare=1&amp;contentType=0&amp;isBjh=0)消息，此轮疫情又有一地升级中风险。
 
-(面对)今天的Omicron
-(Enfrentando) el Omicron de hoy en día
+该消息认为“境外输入现有确诊病例1104例（无重症病例），累计治愈出院病例11285例，无死亡病例”。 中共自武汉发动中共病毒疫情以来数据一直不透明，备受质疑，但从其所呈现的数据证实，中共国疫情正在呈全面爆发态势。
 
-一定要戴口罩
-Deben usar mascarillas
+- ***延展阅读：***[***由于担心仓鼠将新冠病毒传播给人类，香港将杀死2000只宠物***](https://fortune.com/2022/01/18/china-covid-zero-cases-mail-beijing-hong-kong-hamsters/)
+- ***延展阅读：***[***深夜消息！北京21名冷库工作人员感染，疫情外溢两省3地，多地紧急寻人***](https://www.sohu.com/a/518628270_115362)
 
-这是今天我第一个给大家提醒的
-Esto es lo primero que hoy les recuerdo
 
-这次东弟一定要记住
-Esta vez, hermano Dong debes recordar
+值得注意的是，中共国CDC再三强调“无死亡病例”，并从所谓数据反映，强调了境外输入病例是主因，中共针对Omicron多次指责境外冷链和邮件传播所致。对此，中共国新华社20日说，“‘物传人’风险要警惕！”从此，“物传人”的新闻舆论铺垫开启了前后矛盾的攻势，一片混乱，并出现官方无法统一口径的局面。
 
-口罩是绝对救命的
-Las mascarillas son salvavidas en lo absoluto
+“物传人”说法最早在1月10日，[中新网](https://www.chinanews.com.cn/sh/2022/01-10/9648816.shtml)消息称，《深圳此轮疫情源头或为境外物品》输入，意在推责海外输入。[南华早报](https://www.scmp.com/news/china/science/article/3163657/did-omicron-arrive-chinas-capital-beijing-mail-canada)也证实这一说法，称，“Omicron是从加拿大邮寄到中国首都北京的吗？”
 
-第2条大家要记住
-Segundo, todos recuerden
+中共国[卫健委](http://health.people.com.cn/n1/2022/0122/c14739-32337370.html)22日说，“目前非冷冻入境物品导致境内人员感染的证据尚不充足。到目前为止，专家们没有足够的证据证明非冷冻进口商品会将 Covid-19 传染给中国人。”彭博社对此援引中共相关官员的话证实了这一点。22日，[中共国政府](http://www.gov.cn/fuwu/2022-01/22/content_5669968.htm)也予以证实说，“物传人不是新冠病毒主要传播途径”。23日，中共国[新华社](http://m.news.cn/ha/2022-01/23/c_1128291195.htm)称，“压实全链条责任，织密阻断‘物传人’防线。”23日当天，新华社为自己说过的话反悔，称“物传人可能性如何应对?”
 
-这次的Omicron都是扯蛋的事情
-El Omicron de esta vez es una tontería
+- ***延展阅读：***[***北京新增本土确诊病例7例无症状感染者2例，丰台新增2个中风险地区***](https://cn.reuters.com/article/%E3%80%8A%E7%96%AB%E6%83%85%E7%AE%80%E8%AE%AF%E3%80%8B%E5%8C%97%E4%BA%AC%E6%96%B0%E5%A2%9E%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B7%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%852%E4%BE%8B%EF%BC%8C%E4%B8%B0%E5%8F%B0%E6%96%B0%E5%A2%9E2%E4%B8%AA%E4%B8%AD%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA-idCNL4S2U30OR)
 
-绝大多数的染病者都是打了2针3针疫苗的
-La mayoría de las personas contagiadas son los que se han vacunado la segunda y tercera dosis
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1989.png)
+[*图为拜登总统与习近平连线会议*](https://nypost.com/wp-content/uploads/sites/2/2022/01/BidenJinping.jpg?quality=90&amp;strip=all)
 
-只要你坐在那儿(外面)一定要戴口罩
-Así estés sentado afuera debes tener la mascarilla puesta
+如今，中共政府多次表明物传人没证据，这种说法造成的混乱已经在民间引起了民族情绪，但这些消息体现了北京对即将举行的冬季奥运会能否成功举办的担忧。
 
-因为打了疫苗的人就是你最大的传染源
-Porque las personas vacunadas es tu mayor origen de contagio
+随着全球疫苗灾难的延伸引发了各国对“病毒起源”的急迫感，中共深知自己总有一天要面对这一噩梦般的一天。自从2021年7月23日，[中共国拒绝世卫组织第二阶段病毒起源调查计划](https://www.bbc.com/news/world-asia-china-57926368)后，[拜登总统在本月19日再提“病毒起源”，他坚持要求中国国家主席习近平公开 COVID – 19 疫情的起源](https://nypost.com/2022/01/19/biden-insists-he-pressed-chinas-xi-on-covid-origin-but-aides-werent-in-room/)。该要求是在周三，拜登年内第二次新闻发布会上回答《华盛顿邮报》提出的病毒起源问题时做出这一宣告的，并坚称媒体并不知道这场病毒起源的“秘密交易”。
 
-我再告诉大家
-También les digo
+2022年1月24日
 
-疫苗本身就是病毒
-La vacuna en sí es un virus
-
-它叫mRNA的权限给你打开了
-Es una autorización que se abre para ti llamado mRNA
-
-刺突蛋白本身(对你)就是病毒
-Las propias espículas de glicoproteínas es un virus (para ti)
-
-你们要有点常识
-Ustedes deben tener un poco de conocimiento común
-
-咱们现在是最弱势群体
-Ahora somos el grupo más vulnerables
-
-因为凡是服务员都是打过疫苗的
-Porque bien sea el mesonero también está vacunado
-
-他就是你的最大威胁
-Él es tu mayor amenaza
-
-你们清楚了吧
-Ahora están claros
-
-最后一个我要告诉大家
-Por último les quiero decir
-
-(关于)这个共产党放热毒的问题
-(Sobre) el problema del Partido Comunista que ha liberado el veneno caliente
-
-啥叫热毒
-A qué se le llama veneno caliente
-
-疫苗就是热毒
-La vacuna es el veneno caliente
-
-疫苗本身在不同的人体和不同的情况下
-La enfermedad producida por la propia vacuna en diferentes personas y condiciones
-
-爆发出来的病就是新的病种
-Es una enfermedad nueva
-
-更重要的事情
-Y lo más importante
-
-我们现在向西方和包括美国高法所有的人
-El occidente, incluyendo todas las personas de la Corte Suprema en EE. UU
-
-包括美国国会议员
-Y los miembros del Congreso de los EE. UU
-
-我们要提供的就两件东西
-Hay dos cosas que les vamos a proporcionar
-
-在欧洲的科学家
-Los científicos que están en Europa
-
-他给我们提供的一些文件
-Ellos nos entregaron unos documentos
-
-就共产党这个事儿我们敢公开喊
-Este asunto del Partido Comunista que nos atrevemos a gritarlo en público
-
-这是共产党的生化病毒
-Este es el virus bioquímico del Partido Comunista
-
-(生化)病毒是不可能有疫苗的
-El virus (bioquímico) es imposible de tener vacunas
-
-就是生化武器
-Es un arma bioquímico
-
-所以说你记住这个原则以后
-Por eso luego cuando recuerdes este principio
-
-你就不要再讨论其他问题了
-No sigas discutiendo otros problemas
-第一, 不能打疫苗
-Primero, no se puede vacunar
-
-第二, 你必须戴口罩
-Segundo, debes tener la mascarilla puesta
-
-第三, 你最近都不要出去
-Tercero, no vayas a salir últimamente
-
-第四, 大家要记住
-Cuarto, todos recuerden
-
-这个世界如果咱要能决定, 什么是黑和白, 红和黑
-Si en este mundo podemos hacer decisiones, qué es blanco y negro, rojo y negro
-
-我们可能是新中国联邦已经不叫新中国联邦了
-Quizás no nos llamaremos el Nuevo Estado Federal de China
-
-就叫太阳联邦了
-Sino Federación del Sol
-
-我们还是很渺小的力量
-Todavía somos una fuerza muy mínima
-
-跟国家的权力
-A comparación con el poder de un país
-
-跟世界比我们是很很很渺小的
-Y el mundo somos muy, muy pequeño
-
-真的是像张高丽说的
-Así como dijo Zhang Gaoli
-
-人家是宇宙无限大
-El Universo es infinito
-
-我们连地球的一粒沙都不是
-Nosotros ni siquiera somos un granito de arena de este mundo
-
-就跟这个国家政权比. 咱连一粒沙子都不是
-Comparados con el régimen de este país, no somos ni un grano de arena
-
-* * *
-
-日期：01/21/2022
-原视频标题：七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
-Miles Guo vuelve a advertir solemnemente de que el virus es el arma bioquímica del PCCh y no puede haber vacuna
-
-原视频日期：01/19/2022
-原视频网址：**[https://gettr.com/post/pp6l0y8f93](https://gettr.com/post/pp6l0y8f93)**
-任务编号：KC428（3534）
-视频时间段：00:00-02:19
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

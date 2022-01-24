@@ -2,24 +2,25 @@
 ---
 
 
-## 骨灰级战友心声（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902998/)
+## 研究人员发现某些批次的新冠疫苗比其它批次更为致命
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1903107/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/骨灰1_01.jpg)
-卡丽熙：尊敬的战友们好，今天非常荣幸与我们伟大的班农先生和文贵先生同心同框。作为2018年11月20日王建之死新闻发布会的亲历者，我今天非常感动。因为在2018年11月20日的时候，我们爆料革命的发起者文贵先生遭到中共的打击和追杀，甚至他的追随者也不同程度地遭到追杀。 所以我们伟大的班农先生和文贵先生创造了爆料革命这一切，成立法治基金救助受迫害的人。三年来发生了翻天覆地的变化，到新中国联邦的成立，我们有了自己的货币，有了自己的信仰正道主义。所以今天我非常开心跟所有正义的伟大的人相聚在一起。
+翻译：zzballack
+上传：追着曙光跑
 
-杨丹荷女士：从2017年文贵先生第一次出来爆料，保命、保财、报仇，就是用自己的生命，自己家人的生命，自己的财产做为抵押，一分钱没有带到海外，从419的断播， 说黑暗降临美国，到1120说盗国贼对整个世界人类的威胁。 到今天爆料革命代表一切全世界的草根克服恐惧，我的不恐惧就是他们的恐惧。我们每一个人都很了不起，都很有力量。
+据《Info Wars》1月23日报道，研究人员在采集并分析了有关新冠疫苗的疫苗不良反应报告（VAERS）数据后发现，这似乎是一场针对红州（共和党州）的致命政治战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-21.14.19.jpeg)图片来源：原新闻
+在查看与特定批次的新冠疫苗有关的不良反应时，分析人员发现剧毒疫苗批次被派往保守派地区。这份独家的里斯报告（Reese Report）分析了全球主义者如何在红州部署致命的疫苗批次，以惩罚他们的政治反对派并为其大重置计划（The Great Reset）铺平道路。
 
-*发布：开智则立*
+前辉瑞公司副总裁兼首席科学官迈克·耶登博士（Michael Yeadon）在对VAERs的数据进行逆向工程后发现，某些批次的新冠疫苗远比其他疫苗更致命。更具体地说，大约有0.5%的疫苗被发现具有“剧毒性”，它会导致人们在接种后数天或数周内导致住院、残疾甚至死亡。然而，大多数批次的疫苗似乎都是无害的安慰剂。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+但这些数据揭示了更令人不寒而栗的事情：辉瑞公司、莫德纳公司和强生（Janssen）公司协调部署无害和有毒批次的疫苗，在实验环境下监测疫苗对公众的影响。
+
+这种部署模式使政府有能力将致命批次的疫苗投放到特定人群中–比如红州。事实上，VAERs的数据显示，红州的人均疫苗死亡人数比蓝州（民主党州）高得多。据研究人员克雷格·帕德库珀（Craig Paardekooper）称，造成这种差异的原因是，红州收到的致命批次数量是蓝州的两倍。
+
+这是全球主义者进行的一个典型的社会工程试验，以测试mRNA疫苗在民众中的“最大容忍剂量（maximum tolerated dose）”，同时杀死乔·拜登的政治反对派。
+
+信息来源：[Breaking: Red States Targeted With Tainted COVID Vaccines, Warns Former Science Adviser](Red%20States%20Targeted%20With%20Tainted%20COVID%20Vaccines,%20Warns%20Former%20Science%20Adviser)
 
  
 

@@ -2,100 +2,182 @@
 ---
 
 
-## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
+## 七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903131/)
 
-[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
+[https://gtv.org/video/id=61ec713587664c47acd879c5](https://gtv.org/video/id=61ec713587664c47acd879c5)
 
-**Steve Bannon
-史蒂夫·班农**
+今天我要告诉大家
+Hoy les digo a todos
 
-I want the people
-我希望人们
+(面对)今天的Omicron
+(Enfrentando) el Omicron de hoy en día
 
-also the here’s the more fundamental thing for people in the audience right now
-也对现在观众中的人们来说这是更基本的事情
+一定要戴口罩
+Deben usar mascarillas
 
-other than capital markets
-除了资本市场，
-because capital markets are reactive to this
-因为资本市场对此有反应
+这是今天我第一个给大家提醒的
+Esto es lo primero que hoy les recuerdo
 
-You’ve had these cheerleaders like Jim Cramer and others,
-你有像吉姆·克莱默和其他人这样的啦啦队员，
+这次东弟一定要记住
+Esta vez, hermano Dong debes recordar
 
-Jamie Dimon up there,
-杰米·戴蒙在那里
+口罩是绝对救命的
+Las mascarillas son salvavidas en lo absoluto
 
-cheerleading for Biden’s economic plan
-为拜登的经济计划做拉拉队，
+第2条大家要记住
+Segundo, todos recuerden
 
-which we said is a disaster
-我们说这是一场灾难
+这次的Omicron都是扯蛋的事情
+El Omicron de esta vez es una tontería
 
-And Kramer was on TV said the greatest economy in his life in his life.
-克莱默在电视上说是他一生中最伟大的经济
+绝大多数的染病者都是打了2针3针疫苗的
+La mayoría de las personas contagiadas son los que se han vacunado la segunda y tercera dosis
 
-Just a couple of weeks ago
-就在几周前
+只要你坐在那儿(外面)一定要戴口罩
+Así estés sentado afuera debes tener la mascarilla puesta
 
-This is right now getting oil at $85 a barrel. Right?
-现在的油价是每桶85美元，对吧？
+因为打了疫苗的人就是你最大的传染源
+Porque las personas vacunadas es tu mayor origen de contagio
 
-Yeah, they’re about to announce
-是的，他们即将宣布
+我再告诉大家
+También les digo
 
-they’re going to redo the forecast for the first quarter slowing GDP
-他们将重做第一季度GDP放缓的预测
+疫苗本身就是病毒
+La vacuna en sí es un virus
 
-There’s you could see that yesterday
-昨天你可以看到
+它叫mRNA的权限给你打开了
+Es una autorización que se abre para ti llamado mRNA
 
-The reason Goldman Sachs is so important of missing the earnings
-高盛失去收益如此重要的原因
+刺突蛋白本身(对你)就是病毒
+Las propias espículas de glicoproteínas es un virus (para ti)
 
-Why is that important?
-为什么这很重要？
+你们要有点常识
+Ustedes deben tener un poco de conocimiento común
 
-Why do we focus on that?
-我们为什么要专注于此？
+咱们现在是最弱势群体
+Ahora somos el grupo más vulnerables
 
-Because in this complex financial capital market driven world
-因为在这个复杂的金融资本市场驱动的世界里
+因为凡是服务员都是打过疫苗的
+Porque bien sea el mesonero también está vacunado
 
-who would have a better understanding of it than Goldman Sachs
-谁能比高盛更了解它
+他就是你的最大威胁
+Él es tu mayor amenaza
 
-when they miss earnings that badly that is bad
-当他们严重失去收入时，这很糟糕
+你们清楚了吧
+Ahora están claros
 
-everybody in the world capital markets say
-世界资本市场上的每个人都说
+最后一个我要告诉大家
+Por último les quiero decir
 
-and hi the Goldman guys missed it this badly?
-嗨，高盛的人的损失这么的糟糕？
+(关于)这个共产党放热毒的问题
+(Sobre) el problema del Partido Comunista que ha liberado el veneno caliente
 
-It’s worse than we thought
-比我们想象的还要糟糕
+啥叫热毒
+A qué se le llama veneno caliente
 
-Okay, that’s why the stocks off so much.
-好吧，这就是为什么股票下跌这么多
+疫苗就是热毒
+La vacuna es el veneno caliente
+
+疫苗本身在不同的人体和不同的情况下
+La enfermedad producida por la propia vacuna en diferentes personas y condiciones
+
+爆发出来的病就是新的病种
+Es una enfermedad nueva
+
+更重要的事情
+Y lo más importante
+
+我们现在向西方和包括美国高法所有的人
+El occidente, incluyendo todas las personas de la Corte Suprema en EE. UU
+
+包括美国国会议员
+Y los miembros del Congreso de los EE. UU
+
+我们要提供的就两件东西
+Hay dos cosas que les vamos a proporcionar
+
+在欧洲的科学家
+Los científicos que están en Europa
+
+他给我们提供的一些文件
+Ellos nos entregaron unos documentos
+
+就共产党这个事儿我们敢公开喊
+Este asunto del Partido Comunista que nos atrevemos a gritarlo en público
+
+这是共产党的生化病毒
+Este es el virus bioquímico del Partido Comunista
+
+(生化)病毒是不可能有疫苗的
+El virus (bioquímico) es imposible de tener vacunas
+
+就是生化武器
+Es un arma bioquímico
+
+所以说你记住这个原则以后
+Por eso luego cuando recuerdes este principio
+
+你就不要再讨论其他问题了
+No sigas discutiendo otros problemas
+第一, 不能打疫苗
+Primero, no se puede vacunar
+
+第二, 你必须戴口罩
+Segundo, debes tener la mascarilla puesta
+
+第三, 你最近都不要出去
+Tercero, no vayas a salir últimamente
+
+第四, 大家要记住
+Cuarto, todos recuerden
+
+这个世界如果咱要能决定, 什么是黑和白, 红和黑
+Si en este mundo podemos hacer decisiones, qué es blanco y negro, rojo y negro
+
+我们可能是新中国联邦已经不叫新中国联邦了
+Quizás no nos llamaremos el Nuevo Estado Federal de China
+
+就叫太阳联邦了
+Sino Federación del Sol
+
+我们还是很渺小的力量
+Todavía somos una fuerza muy mínima
+
+跟国家的权力
+A comparación con el poder de un país
+
+跟世界比我们是很很很渺小的
+Y el mundo somos muy, muy pequeño
+
+真的是像张高丽说的
+Así como dijo Zhang Gaoli
+
+人家是宇宙无限大
+El Universo es infinito
+
+我们连地球的一粒沙都不是
+Nosotros ni siquiera somos un granito de arena de este mundo
+
+就跟这个国家政权比. 咱连一粒沙子都不是
+Comparados con el régimen de este país, no somos ni un grano de arena
 
 * * *
 
-Date:01/19/2022
-原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
-当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-原视频日期：2022/01/18
-原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
-任务编号：KE361(3538)
-视频时间段 : 0:00-0:59
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+日期：01/21/2022
+原视频标题：七哥再次郑重警告，病毒就是中共的生化武器，不可能有疫苗
+Miles Guo vuelve a advertir solemnemente de que el virus es el arma bioquímica del PCCh y no puede haber vacuna
+
+原视频日期：01/19/2022
+原视频网址：**[https://gettr.com/post/pp6l0y8f93](https://gettr.com/post/pp6l0y8f93)**
+任务编号：KC428（3534）
+视频时间段：00:00-02:19
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
