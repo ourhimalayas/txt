@@ -2,20 +2,19 @@
 ---
 
 
-## 伊莎贝拉你认不认识吴征,胡舒立,单伟健.你为什么不报道PAG
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1901071/)
+## 立陶宛总统私生活被习抓住 哈萨克斯坦因不还中共黄金而发生动乱
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901165/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-*发布：*Frank2021
+1月5日，郭文贵先生在GTV大直播指出：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+立陶宛总统的私生活授习以柄，被迫就台湾问题服软。台湾祸中藏福，立陶宛总统终将与习对战，支持台湾。哈萨克斯坦纳扎尔巴耶夫强硬回应中共秘使王毅的叫板，拒绝归还中共盗国贼家族黄金，引发本国暴乱。与中共勾兑，势必付出代价。而中共机关算尽，也难逃灭亡结局。
 
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
