@@ -2,33 +2,82 @@
 ---
 
 
-## 华盛顿反强制令游行 助威17000名医生的实名宣言
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902055/)
+## 【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1902175/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-22.jpg)
-图片来源： 零对冲网
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5135BA19-56EA-44AD-9EF0-A604D9E34E0B.jpeg)
+2022年1月23日，据福克斯新闻刊文报道，在华盛顿特区举行了大型抗议疫苗授权活动，有30,000 至 35,000 人参加了本次抗议活动。
 
-“零对冲”网1月23日报道，成千上万的人参加了当日在华盛顿举行的“击败疫苗强制令”（Defeat The Mandates）游行，抗议各级政府在疫情期间的权力扩张，抗议疫苗强制令和相关法规。
+“击败授权”抗议疫苗授权[游行走上](https://www.foxnews.com/category/us/us-protests)[华盛顿特区](https://www.foxnews.com/category/us/washington-dc)的街道和纪念碑，抗议者和演讲者呼吁在全国范围内结束[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus) [疫苗](https://www.foxnews.com/category/health/infectious-disease/vaccines)授权。
 
-这是美国自新冠疫情爆发以来规模最大的抗议活动之一。据活动组织者说，游行参与者包括新冠疫苗的接种和未接种者、既有民主党人也有共和党等人，而演讲者中90%都接种了新冠疫苗。数以千计的示威者聚集在林肯纪念堂前，听取著名医生、科学家、记者、职业运动员、演员和主要思想领袖等嘉宾的演讲。
+目前为止，包括华盛顿特区、纽约市、洛杉矶、芝加哥、明尼阿波利斯和波士顿在内的一些美国主要城市已经实施了全市范围的规定，要求居民在某些场所（例如餐馆和健身房）出示疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3D0EE3F5-861E-41F6-9EEA-A053634D3A59.jpeg)
 
-mRNA技术的奠基人马龙（Robert Malone）在集会上呼吁民众不要盲目服从疫苗强制令。美国顶级的心脏病专家麦卡洛（Peter McCullough）博士说，“只有你才对自己的身体拥有自主权，你的身体你自由做主！” 美国“前线新冠重症监护联盟”（FLCCC）的 科里（Pierre Cory） 博士说，推广早期治疗应该优先于疫苗接种，“而他们就是无休止地让我们接种疫苗，尽管这个单一政策已经明显失败”。健康研究员、前政府官员亚历山大（Paul Alexander）则呼吁取消对疫苗公司的责任保护，“如果他们想让你的孩子接种任何新冠疫苗，你就站出来说，取消责任保护！” “美国前线医生”组织（AFLDS）的乌索（Richard Urso）医生则向人们大声疾呼，“我们有17000名医生和科学家，我们比NIH国立卫生研究院、CDC疾控与预防中心、和FDA食品药品监管局更强大！”，“我们遭到解雇、被噤声、被从维基百科删除，但我们仍然站在这里，和你们一起！”
 
-马龙博士参加此次活动前夕，联合全球超过 17,000 名实名认证的医生及医疗专家，在全球23个月的数百项临床试验数据、数百万患者得到治疗的基础上，签署和发表了《新冠宣言》（COVID Declaration），提出3项原则共识：
+和平抗议活动于中午左右在华盛顿纪念碑开始进行，首先前往林肯纪念堂。在那里，一系列演讲者们分享了他们在过去一年的经历以及他们呼吁结束疫苗授权的理由.
 
-1. 健康儿童不应被强制接种：他们面临的新冠病毒风险微不足道，但如果接种疫苗，他们的健康将面临潜在的永久和不可挽回的风险，包括心脏、大脑、生殖和免疫系统的损害。
 
-2. 对自然免疫力的否定导致了疫情的延长，并不必要地限制了康复者的生活；口罩、封锁和其他限制措施对儿童造成了巨大伤害，并延迟了新冠病毒向普通地方性流行病的转变。
 
-3. 卫生机构须停止干涉医患关系。早期治疗新冠病患被证明治愈率接近 100%，而政策制定者刻意阻挠和禁止新冠早期治疗，对数十万人的死亡负有直接责任。
+> Big enthusiastic crowd braved the cold in DC to [#defeatthemandatesdc](https://twitter.com/hashtag/defeatthemandatesdc?src=hash&amp;ref_src=twsrc%5Etfw). ⁦[@P\_McCulloughMD](https://twitter.com/P_McCulloughMD?ref_src=twsrc%5Etfw)⁩ ⁦[@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw)⁩ ⁦[@TruthMav](https://twitter.com/TruthMav?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/TukJ99sp2d](https://t.co/TukJ99sp2d)
+> — Richard Amerling (@dramerling) [January 23, 2022](https://twitter.com/dramerling/status/1485354150502281216?ref_src=twsrc%5Etfw)
 
-**新闻来源：**
 
-1. [“Do Not Comply” – Top Doctors Speak At ‘Defeat The Mandates’ Rally In DC](https://www.zerohedge.com/political/disinformation-extremism-and-violence-all-eyes-dc-defeat-mandates-rally-organizers)
-2. [Thousands march on Washington, D.C., in rally against vaccine mandates](https://www.upi.com/Top_News/US/2022/01/23/thousands-march-Washington-DC-rally-against-vaccine-mandates/6221642966129/)
-3. [Press Release: On The Eve of Washington March, COVID Declaration](https://rwmalonemd.substack.com/p/press-release-on-the-eve-of-washington)
 
+
+
+> Fighting for medical freedom will always and forever be on the right side of history. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W8cEEuhZfd](https://t.co/W8cEEuhZfd)
+> — Debra Lea (@thedebralea) [January 23, 2022](https://twitter.com/thedebralea/status/1485374947971194886?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
+> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
+> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+
+
+
+30,000 至 35,000 人参加了抗议活动，[要求](https://defeatthemandatesdc.com/about/)终止疫苗授权和疫苗护照，他们呼吁进行合理辩论和知情同意的权力。
+
+游行组织者威尔·维特（Will Witt）是非营利组织 PragerU 的作家和政治评论员，她说：“你会听到很多左派人士说这是一场大型的反疫苗集会——人们进来否认科学，”
+
+“但是，这次游行是关于抗议我们现在在全国各地看到的严厉措施，特别是在华盛顿特区、纽约市、洛杉矶、旧金山等地。”
+
+几个团体赞助了这次活动，包括前线 COVID-19 重症监护联盟、世界卫生委员会、疫苗安全研究基金会和儿童健康防御组织——由小罗伯特·肯尼迪领导。
+
+演讲者包括罗伯特·马龙博士，Peter McCullough 博士、Christina Parks 博士、Paul Alexander 博士和[Maddie De Garay 的母亲 Stephanie De Garay](https://www.foxnews.com/media/ohio-woman-daughter-covid-vaccine-reaction-wheelchair)。
+
+
+
+> 🔥 Dr. Robert Malone destroys the approved narrative in 2 minutes. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/l9R9bid56L](https://t.co/l9R9bid56L)
+> — Zach (nine meals from anarchy) (@Just\_\_\_Zach) [January 23, 2022](https://twitter.com/Just___Zach/status/1485345169432096769?ref_src=twsrc%5Etfw)
+
+
+
+正义网络点评：
+
+“在我一生所知道的所有疫苗中（脊髓灰质炎、天花、白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎和肺结核），我还想加上流感和肺炎。我从未见过一种疫苗能强迫我要戴口罩，并保持社交距离，即使您已完全接种疫苗。
+
+我从未听说过即使在接种疫苗后也会传播病毒的疫苗。我从未听说过接种疫苗的奖励、折扣、奖励措施。我从未见过对那些没有接种的人的歧视。如果你没有接种过疫苗，没有人试图让你觉得你是个坏人。我从未见过一种疫苗会威胁到家人、同事和朋友之间的关系。我从未见过用于威胁生计、工作或学校。我从未见过一种疫苗可以让 12 岁的孩子无视父母的同意。在我上面列出的所有疫苗之后，我从未见过像这样的疫苗，它会歧视、分裂和评判社会。随着社会结构的收紧……这是一种强大的“疫苗！”
+
+即使我们已经完全接种了所谓的疫苗，之后，仍需要注射加强剂量；并且，在完全接种后仍需要进行阴性检测；并且，在完全接种后仍需要戴口罩；并且，在接种完后仍需感染！仍需住院！仍需死亡！
+
+在经历着无休无止的折磨之后，很可能会出现一个想法：“是时候让我们承认：我们被完全欺骗了”！“是时候叫停疫苗强制令了！”
+
+[新闻来源](https://www.foxnews.com/politics/washington-dc-defeat-mandates-march-covid-vaccine)
+
+撰稿/雅典娜之矛
+
+审阅/正义网络
+
+上传/侠客行
 
  
 
