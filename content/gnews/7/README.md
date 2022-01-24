@@ -2,17 +2,32 @@
 ---
 
 
-## 荷兰AMSL光刻机公司终止了和共产党的合作
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1902161/)
+## 班农先生对新中国联邦的重要性（下）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1902253/)
 
-要灭共，就要砍掉它的科技和金融两条腿。芯片是核心，如果共产党没芯片了，它的科技、互联网、防火墙几乎归零。天空Wi-Fi，5G、6G的投入和普及，将把共产党的防火墙变成历史。中共几年前盯上了荷兰的AMSL光刻机公司, 利用蓝金黄手段拿下了该公司的工程师。
+整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/班农先生对新中国联邦的重要性（下）-1-scaled.jpg)
+人类大自然都是优胜劣汰，这是一个正常的自然现象。
 
-但，天助爆料革命！英国抓捕了隐藏在爆料革命里的中共间谍，把中共的密谋布局曝光给了AMSL公司。最终，该公司终止了和共产党的合作。中共以25亿美元购买一台机器（5亿报价）的订单，全部取消交货。
+但是 要看到为什么班农先生还能跟我在一起，为什么他今天还能有这样的激情，还有这样的影响力。
 
-视频来源: 2022年1月21日郭先生大直播视频
-视频制作: 文星光
-文案:文星光、梦田
-上传: 零点
+当时FBI的人跟我说：你们 中国人就是要脸、要面子,全世界只有美国有一个Stephen K. Bannon,说被人家给打到地上，不服输，然后从欧洲回来以后， 成为Number One Hero。
+
+他从来没有面子的负担。I want to win, don’t give me, face.
+
+发布：于white
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

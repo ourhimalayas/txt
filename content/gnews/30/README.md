@@ -2,35 +2,25 @@
 ---
 
 
-## 爱尔兰取消几乎所有封锁措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901923/)
+## 罗伯特·马龙博士在“打倒强制令”集会上呼吁人们保护孩子
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1901963/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月21日，爱尔兰总理迈克尔·马丁在全国的电视讲话中说，爱尔兰将于次日取消几乎所有的中共病毒限制措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-19.png)
-马丁表示，该国经受住了奥密克戎的考验。就在上周，爱尔兰的中共病毒确诊率还位居欧洲第二，但随后病例数迅速下降，住院和死亡人数保持平稳。因此，爱尔兰政府决定从1月22日开始，酒吧和餐馆不再需要晚上8点关门，也不再要求顾客提供疫苗接种证明。室内外公共场地的人数不再受限制。但2月底之前，人们仍然需要在公共交通工具和商店超市里戴口罩。
+### 翻译/撰稿：zzballack
 
-评论人士指出，爱尔兰一直是欧盟中对病毒风险最为谨慎的国家之一，对旅游业、服务业的限制持续时间最长。宣布解封，无疑受到这些行业的欢迎。目前，“英伦三岛”已经先于欧盟其它成员国，甚至北美、澳洲等国，也放弃了实施两年的封锁措施，为经济进一步的复苏提供了良好条件。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-21.jpg)图片来源：福布斯
+据《The Post Millennial》1月24日报道，1月23日，数万人聚集在华盛顿特区的华盛顿纪念碑和林肯纪念堂附近，举行了名为“打倒强制令：美国回归（Defeat The Mandates: An American Homecoming）”的示威游行活动，旨在反对疫苗强制令和疫情防控期间的所有强制措施。mRNA技术发明人罗伯特·马龙博士 (Robert Malone)去年12月在做客乔·罗根（Joe Rogan）的播客节目时首次提出了这个游行计划。
 
-参考链接：
+马龙博士向参加游行活动的数万民众说：“我请求你们允许我向你们谈一谈我们的孩子以及我们保护他们的基本责任。培养和保护我们的孩子是我们大家的首要工作。但在过去两年里，我们的社会和公共卫生对策未能保护他们。我们的公共卫生系统要求我们对孩子做的许多事情都对他们造成了直接伤害。世界各地出现的儿童自残、自杀和药物滥用现象层出不穷。焦虑、欺凌、恐吓、胁迫已成为常态，婴幼儿的智商下降。”
 
-- [Ireland drops most COVID restrictions in wake of ‘Omicron storm’](https://www.reuters.com/business/healthcare-pharmaceuticals/ireland-set-rapidly-drop-almost-all-covid-19-restrictions-2022-01-21/)
+马龙博士还谈到了在新冠疫情方面，大科技公司和媒体如何推动叙事“扭曲公共政策”：“我真诚地相信，我们可以突破群体性精神病的影响。传统媒体和大科技公司利用恐惧和心理操纵，已经深深地扭曲了公共卫生政策。但奥米炕变种正在摧毁所谓的疫苗安全有效、早期药物治疗不管用的说法。我们总统所预言的、并由媒体中的恐惧者所推动的黑暗冬天并未实现。”
 
+中午时分，人们聚集在林肯纪念堂周围，听取运动员、医生和记者的演讲。美国心脏病专家彼得·麦卡洛 (Peter McCullough)博士也发表了演讲。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+从加拿大的卡车司机，到美国的最高法院终止疫苗强制令，再到欧洲一波又一波的抗议游行，反对毒疫苗以及新冠暴政的活动正在全球各地如火如荼地上演。全球精英、达沃斯党以及中共合谋的邪恶计划正被世人拆穿。在此抗争中，新中国联邦一直在孜孜不倦地向世界传播病毒、疫苗和残暴中共政权的真相，拯救众生。这场正邪之战会很难，但我们一定会获胜。
 
-总编：Lakeman文仁
-编辑：Ivy001
-校正/发稿：海阔天空1
+新闻来源：[WATCH: Dr. Robert Malone addresses tens of thousands at historic Defeat the Mandates march](https://thepostmillennial.com/watch-dr-robert-malone-defeat-mandates-march)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

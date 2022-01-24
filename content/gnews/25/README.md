@@ -2,40 +2,22 @@
 ---
 
 
-## 2022年底之前，纳斯达克将因通胀持续下降
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1901986/)
+## 新罕布什尔州药房将很快开始出售不需要处方的伊维菌素
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902048/)
 
-**【简评】**2022年美国仍将面临较高的通胀压力，美联储存在延续当前收紧货币政策趋势的可能，市场也完全反映出美联储3月加息和2022年共升息四次的前景。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-30.jpg)
+图片来源： zhuanlan.zhihu.com
 
-据《亚洲时代》作者：DAVID P. GOLDMAN 2022年1月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1971-e1643006610279.png)图片来源：美国住房和城市发展部
-Zillow（美国一家线上房地产公司）美国租金指数的最新数据显示，美国历史上最严重的房地产通胀并未减弱。根据该房地产网站的数据，美国平均租金比去年同期上涨了14%。股票投资者应该对此感到担忧，他们目睹了纳斯达克在过去一周随着债券收益率上升而减少了近8%的市值。
+零对冲网1月23日报道，在新罕布什尔州正在通过立法允许居民从药店购买伊维菌素，作为委托规范医生或专科护士可开处方。用户于在药品标示外的新冠病毒感染的治疗。
+该州议会提出的2011议案将在有病人有医疗记录下，作为计划评估和治疗副作用的情况下，允许药房出售伊维菌素。仔细阅读这项议案，“任何这种处方应该被看作是法律允许范围的作为治疗目的的处方，可以在职业实践中作为常规措施。”
+伊维菌素，是一种蛋白酶抑制剂，类似于辉瑞的新药治疗新冠病毒的，川普总统曾经建议过，但受到一些“专家们”的攻击，
+很多文章显示，伊维菌素具有较高的预防作用(达82-84%)和一定的治疗作用(62-73%),在印度和巴西可能已经挽救了几十万人的生命。
+而在美国，美国食品药品监督管理局(FDA)却一直不允许伊维菌素作为预防和治疗，而这个药是世界卫生组织列出来的基本药物，已经在人类中发放了37亿剂药物(不包括动物),这是人类中最安全的药物之一。而且我们的联邦政府却在经济上资助实验性治疗，而那些治疗增加人们死亡的危险。
 
-住房占美国政府消费者价格指数的三分之一，但官方数据远远落后于私营部门的调查。滞后的数据报告意味着，今天观察到的价格上涨将在几个月后加速消费者价格指数(CPI)通胀，给美联储收紧信贷带来更大压力。这对股票不利。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1972.png)图片源自Zillow
-**通胀压力并没有减弱，包括服务企业的投入成本、二手车、运输成本以及住房。 可以肯定的是，美国制造商的投入成本在12月份上升的速度的确较慢，但随后的油价飙升至七年高位可能会导致1月份的数据更差。**
+##### 新闻来源： [New Hampshire Pharmacies Could Soon Begin Dispensing Ivermectin Without Doctor’s Prescription](https://www.zerohedge.com/covid-19/new-hampshire-pharmacies-could-soon-begin-dispensing-ivermectin-without-doctors)
 
-我们需注意对住房成本的低估。滞后意味着私人和官方租金通胀指标的一部分差异。 随着租约的续期和更新，更高的租金会在经济中发挥作用。
-
-例如，Zillow指数的变化会对消费者价格指数(CPI)住房通胀率产生长达8个月的滞后影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1973.png)图片源自Zillow
-**通货膨胀还未达到顶峰，它甚至未曾减速。通胀上升、对加息上升的预期和美联储收紧政策的周期，将继续对股市造成压力，至少在今年上半年是这样。**
-
-文章来源：[https://asiatimes.com/2022/01/more-inflation-shoes-to-drop-on-nasdaq-by-end-2022/](https://asiatimes.com/2022/01/more-inflation-shoes-to-drop-on-nasdaq-by-end-2022/)
-
-翻译/评论：洛杉矶盘古农场 – maru
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – 柯镇恶
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+#  
 
  
 

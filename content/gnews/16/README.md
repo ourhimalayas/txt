@@ -2,33 +2,28 @@
 ---
 
 
-## 华盛顿反强制令游行 助威17000名医生的实名宣言
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902055/)
+## 美国务院正式要求撤离在乌克兰工作人员、家属和美国公民
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902144/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-22.jpg)
-图片来源： 零对冲网
+#### 撰稿：彩虹
 
-“零对冲”网1月23日报道，成千上万的人参加了当日在华盛顿举行的“击败疫苗强制令”（Defeat The Mandates）游行，抗议各级政府在疫情期间的权力扩张，抗议疫苗强制令和相关法规。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-12.jpg)图片来源：卫报
+继昨日报道，美国驻乌克兰大使馆请求美国国务院批准撤离非必要工作人员家属的消息新闻后（详情请见《[战争临近，美国拟撤离驻乌克兰大使馆非必要工作人员和家属](https://gnews.org/zh-hans/1897336/)》），1月23日，美国国务院已正式下令美国驻基辅大使馆的政府雇员的家属撤离该国，同时也允许非必要的工作人员离开。《国会山报》对此作了报道。
 
-这是美国自新冠疫情爆发以来规模最大的抗议活动之一。据活动组织者说，游行参与者包括新冠疫苗的接种和未接种者、既有民主党人也有共和党等人，而演讲者中90%都接种了新冠疫苗。数以千计的示威者聚集在林肯纪念堂前，听取著名医生、科学家、记者、职业运动员、演员和主要思想领袖等嘉宾的演讲。
+在国务院的一份公告中这样表示，由于“俄罗斯军事行动（造成）的持续威胁”，该机构授权直接雇佣的员工可以自愿离开，并命令符合条件的家庭成员离开。
 
-mRNA技术的奠基人马龙（Robert Malone）在集会上呼吁民众不要盲目服从疫苗强制令。美国顶级的心脏病专家麦卡洛（Peter McCullough）博士说，“只有你才对自己的身体拥有自主权，你的身体你自由做主！” 美国“前线新冠重症监护联盟”（FLCCC）的 科里（Pierre Cory） 博士说，推广早期治疗应该优先于疫苗接种，“而他们就是无休止地让我们接种疫苗，尽管这个单一政策已经明显失败”。健康研究员、前政府官员亚历山大（Paul Alexander）则呼吁取消对疫苗公司的责任保护，“如果他们想让你的孩子接种任何新冠疫苗，你就站出来说，取消责任保护！” “美国前线医生”组织（AFLDS）的乌索（Richard Urso）医生则向人们大声疾呼，“我们有17000名医生和科学家，我们比NIH国立卫生研究院、CDC疾控与预防中心、和FDA食品药品监管局更强大！”，“我们遭到解雇、被噤声、被从维基百科删除，但我们仍然站在这里，和你们一起！”
+同时，针对在乌克兰的普通美国公民，公告说：“在乌克兰的美国公民应该考虑现在使用商业或其他私人可用的交通方式离开（乌克兰）。在乌克兰的美国公民应该知道，俄罗斯在乌克兰任何地方的军事行动将严重影响美国大使馆提供领事服务的能力，包括协助美国公民离开乌克兰。”
 
-马龙博士参加此次活动前夕，联合全球超过 17,000 名实名认证的医生及医疗专家，在全球23个月的数百项临床试验数据、数百万患者得到治疗的基础上，签署和发表了《新冠宣言》（COVID Declaration），提出3项原则共识：
+周日，国务院高级官员对记者说：“授权自愿离境适用于非紧急情况下的美国政府雇员，如果他们这样做，他们现在就可以选择离开该国。但是，家庭成员将被命令离开该国。”
 
-1. 健康儿童不应被强制接种：他们面临的新冠病毒风险微不足道，但如果接种疫苗，他们的健康将面临潜在的永久和不可挽回的风险，包括心脏、大脑、生殖和免疫系统的损害。
+国务院官员们没有说大约有多少美国公民在乌克兰，因为该机构说它没有这些数字。
 
-2. 对自然免疫力的否定导致了疫情的延长，并不必要地限制了康复者的生活；口罩、封锁和其他限制措施对儿童造成了巨大伤害，并延迟了新冠病毒向普通地方性流行病的转变。
+根据报道，由于感染中共病毒（COVID-19）的风险很高，国务院和CDC（美国疾病控制和预防中心）之前已经建议美国公民不要去乌克兰旅行。
 
-3. 卫生机构须停止干涉医患关系。早期治疗新冠病患被证明治愈率接近 100%，而政策制定者刻意阻挠和禁止新冠早期治疗，对数十万人的死亡负有直接责任。
+**新闻来源**
 
-**新闻来源：**
-
-1. [“Do Not Comply” – Top Doctors Speak At ‘Defeat The Mandates’ Rally In DC](https://www.zerohedge.com/political/disinformation-extremism-and-violence-all-eyes-dc-defeat-mandates-rally-organizers)
-2. [Thousands march on Washington, D.C., in rally against vaccine mandates](https://www.upi.com/Top_News/US/2022/01/23/thousands-march-Washington-DC-rally-against-vaccine-mandates/6221642966129/)
-3. [Press Release: On The Eve of Washington March, COVID Declaration](https://rwmalonemd.substack.com/p/press-release-on-the-eve-of-washington)
-
+[US orders families of embassy staff in Ukraine to leave country](https://thehill.com/policy/international/russia/590991-state-department-authorizes-departure-of-government-employees-at)
 
  
 

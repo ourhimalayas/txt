@@ -2,33 +2,27 @@
 ---
 
 
-## 再次揭露HBO精心编织的谎言（part1）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901931/)
+## 中共单日又派39架军机扰台 数量创新年新高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1902019/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-前几周，我们播放了针对HBO污蔑郭先生、爆料革命以及中国人民的反击视频，主要用HBO采访的真实记录揭露他们是如何造假的。从今天开始，我们将连续播放另一组揭露HBO编织谎言的视频，给大家提供更多真相。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-78.jpg)
+（图片来自 《德国之声》）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/13-7.png)
+据《德国之声》中文网1月24日报道，中国（中共）解放军周日 （1月23日）派出39架军机飞入台湾西南方的防空识别区 （ADIZ)）。台湾空军也再次派出巡逻兵力应对，用广播驱离并以防空飞弹追踪监控。
 
-今天，我们首先提出与HBO谎言有关的几个问题，然后会在接下来的视频播放中为大家一一解答。请看揭露HBO精心编织的谎言第一部分。
+根据台湾国防部周日提供的资讯，在39架中共解放军的军机中有34架是战斗机。当日39架军机侵扰台湾也创下了2022年以来的新高，同时也是台湾国防部自2020年9月开始发布中共军机资讯以来的第二高数字。自2022年起，中共军方已派遣了约70架军机飞入台湾防空识别区。
 
-参考链接：
+台湾国防部的资讯显示，周日中共解放军总共派出24架“歼十六”战斗机、10架“歼十”战斗机、1架“轰六”轰炸机、2架“运九”通信对抗机及2架“运八”电侦机，且这批军机已非常靠近台湾的东沙群岛。
 
-- [HBO Vice’s Interview with Mr.Miles Guo without Edits: Thoroughly Exposing HBO Vice’s Sinister Attack](https://www.youtube.com/watch?v=z9HvjLuSgA8)
+根据台湾军方的统计，去年10月4日中共解放军曾派出56架军机进入台湾西南防空识别区，是自台湾官方有纪录以来中共军机扰台数量最高的一天，而周日的侵扰行动则是有纪录以来的第二高数量。
 
+台湾方面指出，中共在附近区域反复进行的军事活动是“灰色地带行动”，这些行动的宗旨是通过让台湾空军反复派遣军机监控情势来消耗台军的战力，同时也是为了测试台湾的反应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+新闻链接：[https://www.dw.com/zh/%E7%BE%8E%E6%97%A5%E5%AE%8C%E6%88%90%E8%81%94%E5%90%88%E5%86%9B%E6%BC%94-%E4%B8%AD%E5%9B%BD%E6%B4%BE39%E6%9E%B6%E5%86%9B%E6%9C%BA%E6%89%B0%E5%8F%B0/a-60531688](https://www.dw.com/zh/%E7%BE%8E%E6%97%A5%E5%AE%8C%E6%88%90%E8%81%94%E5%90%88%E5%86%9B%E6%BC%94-%E4%B8%AD%E5%9B%BD%E6%B4%BE39%E6%9E%B6%E5%86%9B%E6%9C%BA%E6%89%B0%E5%8F%B0/a-60531688)
 
-编辑：飞虹
-校正/发稿：海阔天空1
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
