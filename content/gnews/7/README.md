@@ -2,38 +2,21 @@
 ---
 
 
-## 德州联邦法官暂时阻止对联邦雇员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903552/)
+## 2022.1.24大直播 郭先生爆料习为成功举办冬奥会再次跟普京勾兑
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1903677/)
 
-作者：香草山教育部 – Naughty(文行) , Delilah小胖 , 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-15.jpg)
-此项针对拜登政府疫苗强制令的诉讼，是由一个名为“医疗自由联盟”的组织发起的。
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-9.28.49-PM.jpeg)
+郭文贵先生在2022年1月24日大直播中爆料，中共为了避免世界对所谓“现在崛起的新势力（俄罗斯、中国、朝鲜、伊朗等独裁国家）”的孤立，再次跟普京勾兑，要求普京留京时间从原来的24小时再延长20小时，同时全面提升习普会见规格，把地点从奥运村盘古大厦换到人民大会堂，而满足这些要求的代价就是再次支付俄罗斯高额费用。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+另外，为了把这次冬奥会办成一个圆满成功的冬奥会，专门安排张艺谋导演了一场规模盛大的开幕式。
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
+郭先生还提到，目前冬奥村已经开始试运行，各国运动员陆续到京，北京的战友们随时向郭先生反应运动员的悲惨遭遇，他们平时只能待在宾馆房间；奥运村里到处安装摄像头，360度监控，用餐的餐厅里布满了国安人员。运动员入驻冬奥村跟进监狱一样。
 
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+郭先生意有所指的表示希望这次冬奥会能成功举办，并感谢“习太阳”这一系列作为。郭先生称，他深切的感受到在过去的48小时，昆仑山脉和喜马拉雅的七座山峰正在发挥力量。
 
-参考链接：
-1) . [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
-2) . [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
-3) . [Texas federal judge temporarily blocks Biden vaccine mandate for federal employees](https://www.foxnews.com/politics/texas-federal-judge-vaccine-mandate-federal-employees)
+参考链接：https://gtv.org/broadcast/watch/61eea3ca28a108147c61a4dd
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-总编： Ivy001，飞虹 
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

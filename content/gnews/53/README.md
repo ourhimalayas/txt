@@ -2,26 +2,50 @@
 ---
 
 
-## 中日财经爆│从根本上改变银行业务引进新系统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901470/)
+## 与一带一路竞争，澳大利亚资助巴新升级港口
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1902083/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-76.jpg)[图片来源](https://www.google.com/search?q=%EF%BC%B3%EF%BC%A2%EF%BC%A9%E5%9C%B0%E9%8A%80%EF%BC%A8%EF%BC%A4&amp;rlz=1C1YKST_enUS900US901&amp;biw=1366&amp;bih=625&amp;sxsrf=AOaemvKg_NSEa_zFmUdr_dANXXIugiUOOg:1642997159758&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjMxcuwwcn1AhV_JUQIHWSwAXoQ_AUoAnoECAEQBA#imgrc=mDJjBsN822HiKM&amp;imgdii=53zECSE5XWxeIM)
-网络银行SBI控股公司（HD）旗下，向多家地方银行出资的SBI地银HD总经理森田俊平接受了采访。
+#### 【雅典娜观察】和您一起探究世界
 
-森田表示，到2030年为止，将在10家银行引进正在开发中的新一代基干系统。他强调，通过新系统加速地银数字化，从根本上改变银行业务。
+整理报道：文扬
+编辑：文泓
 
-福岛银行20日决定引进新系统，这是福岛银行的第一步。其特点是能迅速引进智能手机投资融资和结算等先进的数字金融服务。年使用费为10亿日元左右，而开发资金则由SBI集团设立的基金承担。即使是小规模的地银，也可以降低初期费用，采用新系统。森田康夫指出:“要想在现有系统上连接数字服务，需要投入巨额费用。对于要求变革的银行来说，这是非常合适的。”森田还表示，随着数字化的发展，原则上不需要传票和印章等营业店的事务工作也将大幅减少，因此可以增加顾客咨询业务等的人力。“如果不认真支援顾客的本业，地银就无法生存下去。为此，变革是必不可少的。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/JX4_KYZ@217Z7UQR.png)图片来源：PNG Business News
 
-对于SBIHD子公司化的新生银行，他强调说:“如果与（出资方）地银进行投资融资联系，将会产生很大的影响。”同时还表示，对于此前个别地银无法应对的地方企业扩大规模的资金需求，也可以通过与新生银的合作来应对。
 
-信息来源：
+在这场与中共国的战略竞争中，澳大利亚将资助巴布亚新几内亚的港口升级。在莫里森政府提供的关键基础设施基金支持下，澳洲将提供5.8亿澳元的贷款和赠款，用于升级巴布亚新几内亚的港口，该基金专门针对中共国一带一路倡议的竞争而设立的。
 
-[銀行業務を抜本的に変革　新システム導入で―森田ＳＢＩ地銀ＨＤ社長](https://www.jiji.com/sp/article?k=2022012300245&amp;g=eco)
+上周五，总理斯科特·莫里森和巴布亚新几内亚总理詹姆斯·马拉佩在一次虚拟会议上签署了该协议。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+这笔资金将对PNG的六个港口（其中一些已有70年的历史）进行维修或升级，并雄心勃勃地想把巴新最大的港口莱潮汐盆地（Lae Tidal Basin,）打造成为太平洋地区的区域交通枢纽，扩大其接收来自东南亚的集装箱货船的能力。
+
+马努斯岛上的洛伦高港也正在进行整修，该港口靠近澳大利亚和美国正在帮助巴新升级的海军基地。
+
+莫里森先生说：“这项投资将改善该地区的贸易和连通性，支持疫情下的经济复苏，并帮助保障巴布亚新几内亚的关键基础设施的发展。”
+
+这是巴布亚新几内亚的第二个项目，由澳方的澳大利亚太平洋基础设施融资基金资助。该基金的设立旨在为发展中国家提供新的资金来源，以替代中共国的“一带一路”倡议。“一带一路”倡议被称为“债务陷阱外交”，加重了受援国的财政负担。
+
+在双方达成协议的前一天，中共国驻澳大利亚使馆临时代办王晰宁建议堪培拉和北京在太平洋地区的安全事务上进行合作，以促进所罗门群岛骚乱后的稳定，他说两国有“共同的利益”。
+
+王先生的建议是在中澳关系持续紧张数年后提出的，北京已对澳大利亚200多亿澳元的出口产品实施了贸易制裁和惩罚性关税。
+
+然而，王晰宁这个潜在的外交破冰者不太可能赢得莫里森政府的支持。一位消息人士说，王的文章发出了一个信息，即中国想在太平洋地区巩固自己的地位。
+
+澳大利亚战略政策研究所执行主任彼得·詹宁斯认为王先生的合作呼吁是“狡猾的言辞”，不值得认真对待。
+
+他说：“与中共国在太平洋地区开展卓有成效的合作前景渺茫，他们的思路是零和，现在是中共国竭力减少我们我们在本地区的影响，增加他们自己的影响。”
+
+新闻链接：[Scott Morrison strikes Papua New Guinea port upgrade deal to rival China (afr.com)](https://www.afr.com/politics/federal/australia-to-fund-png-port-upgrade-amid-strategic-rivalry-with-china-20220121-p59q5y)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

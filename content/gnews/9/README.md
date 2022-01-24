@@ -2,23 +2,27 @@
 ---
 
 
-## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
+## 北京200万居民将接受第二轮大规模CCP病毒检测
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1903561/)
 
-**疫情關注組 / 發佈時間｜24/1/2022**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/012302-1.jpg)网络图片
+在本周一西安正式解禁1300 万居民的封锁之后，北京发现的CCP病毒感染案例又促使当局在冬奥会开幕前的两周对数百万人进行检测并采取新的限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+北京官员表示，他们将对丰台区的 200 万居民进行第二轮大规模检测。自 1 月 15 日以来，首都的 40 例冠状病毒病例中的大部分都在丰台区被发现。此前一天，当局甚至宣布任何在过去两周内购买过发烧、咳嗽或某些其他药物的人都必须在 72 小时内接受 CCP病毒测试。
 
+中共对 CCP病毒的“零容忍”政策要求在发现病例后即使进行封锁、旅行限制和大规模检测。尽管病例数量相对较少，但上述严厉甚至荒唐的行动说明了政府官员对 2北京冬奥会的严重关切。
 
-据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
+总体而言，中共国报告的新病例数量已从西安疫情高峰时的每天 100 多例下降到周日的 18 例，其中 6 例在北京。尽管如此，但在奥运会之前，防疫控制仍然在大幅收紧，所有的运动会参与者将会每天接受检测，并与公众完全隔离。
 
-[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
+任何在北京高风险感染地区居住的人们将不得离开本地。除了在北京丰台区进行了一轮大规模检测外，政府周日还在其他六个区的住宅小区进行了针对性检测。
 
-以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
-来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
+目前尚不清楚到底是哪些人接受测试。该报称，一位社区负责人表示，如果居民去过丰台或房山的高风险地区，整栋楼的住户必须接受两次检测。
 
+本次冬奥会大概率将是一次四分五裂的运动会，运动员、工作人员、记者和官员与居民在运动会举办期间都将被区隔开来。中共举办方周一表示，在 1 月 4 日之后抵达的 2,586 名运动员、官员和其他工作人员中，有 39 人在降落北京机场时被检测出病毒呈阳性。
+
+新闻参考链接：[China tests 2M in Beijing, lifts COVID lockdown in Xi’an](https://apnews.com/article/winter-olympics-coronavirus-pandemic-sports-travel-health-63e4ebc0a67c939bf020c93cd715297a)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

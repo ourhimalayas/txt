@@ -2,41 +2,55 @@
 ---
 
 
-## 北京冬奥在即 言论失控、病毒扩散 引发“再溯源”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903197/)
+## 人类若没有好的教育、宗教和信仰系统就跟魔鬼别无二致
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1903243/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-29.png)[*图片来源*](https://media.nownews.com/nn_media/thumbnail/2022/01/1642994091430-5b972be3ab294faaa02770583d8647a9-1200x800.jpg?unShow=false)
-**冬奥会临近，北京会不会因为疫情扩散导致奥运期间意外事件发生？外界持续关注这场史无前例的“纳粹奥运会”，但中共官方罕见地否定了自己新的疫情推责说法——物传人，导致陷入言论混乱。更加罕见的是，美国总统拜登再提“病毒起源”时要求习近平配合，并罕见表示，这里有“秘钥”。**
+G-TV视频链接：[https://gtv.org/video/id=61ee411687664c47acd93113](https://gtv.org/video/id=61ee411687664c47acd93113)
 
-据中共国[CDC](https://www.chinacdc.cn/jkzt/crb/zl/szkb_11803/jszl_11809/202201/t20220124_256513.html)相关疫情数据显示，截止1月23日0—24时，31个省市和新疆报告新增确诊病例57例，其中境外输入病例39例。备受关注的北京新增1例，北京本土病例6例，其中，丰台区新增病例4例、房山区1例、大兴区1例；河北3例（均在雄安新区）。另据[北京日报](https://ie.bjd.com.cn/5b165687a010550e5ddc0e6a/contentApp/5b16573ae4b02a9fe2d558f9/AP61ed2508e4b06028eb1e834c.html?isshare=1&amp;contentType=0&amp;isBjh=0)消息，此轮疫情又有一地升级中风险。
+**郭文贵先生**：你记住一个社会当中，没有一个合适的婚姻，没有合适的教育，没有一个正儿八经的、让人幸福的、一个好的能坚持的宗教和信仰系统，这个人类跟魔鬼没任何两样。
 
-该消息认为“境外输入现有确诊病例1104例（无重症病例），累计治愈出院病例11285例，无死亡病例”。 中共自武汉发动中共病毒疫情以来数据一直不透明，备受质疑，但从其所呈现的数据证实，中共国疫情正在呈全面爆发态势。
+我不知道你们是什么感受，我一生的最痛苦之一，就是跟很多身边人，我看到这些人就是很无知地、愚蠢地、浪费着生命地、“幸福”地活着。我不知道你们能不能懂我这话的意思。你看到整个中国，你看我在中国我很少出去，你看我的历史，我很少出去，我很少参加什么应酬，除了我需要，他就上我这来，我需要谁谁往我这儿来，我很少出去。
 
-- ***延展阅读：***[***由于担心仓鼠将新冠病毒传播给人类，香港将杀死2000只宠物***](https://fortune.com/2022/01/18/china-covid-zero-cases-mail-beijing-hong-kong-hamsters/)
-- ***延展阅读：***[***深夜消息！北京21名冷库工作人员感染，疫情外溢两省3地，多地紧急寻人***](https://www.sohu.com/a/518628270_115362)
+你看七哥为啥能干这么多，包括现在，我这边Webex开着会，我这边上着网，电脑，我这边同时跟他们开着会，我一般都三四个会同时干。如果我天天迷恋于所谓的男女性事房事、玩麻将、所谓的旅游，像那个太平联盟那个好人叫郑奕叫Ian，他跟他媳妇很恩爱，一生就是旅游、打高尔夫。
 
+你觉得人生这一辈子就这三万多天，在你能动弹的时候打打高尔夫，一天浪费七八小时，你觉得这是对的吗？肉体的欢愉、精神的麻痹、嘴上的贪吃和一时的快感，所有肉体和物质的要求，这都是上天和麻木你的、奴隶你的其中方式。你没信仰，你不知道人来到这个世界，有点小病吓半死的，就觉得死了就完了。
 
-值得注意的是，中共国CDC再三强调“无死亡病例”，并从所谓数据反映，强调了境外输入病例是主因，中共针对Omicron多次指责境外冷链和邮件传播所致。对此，中共国新华社20日说，“‘物传人’风险要警惕！”从此，“物传人”的新闻舆论铺垫开启了前后矛盾的攻势，一片混乱，并出现官方无法统一口径的局面。
+你不知道人是不生不灭，你到这儿就是来修炼自己的。人生没明天没昨天就今天，你为啥不把今天活好。你像我今天，我起来，我是5:40起来，赶快发几个信息，开个小会，刷牙洗脸，沐浴更衣，然后回信息，跟你们直播，我这一天很充实啊。那么你要想到什么让你快乐，就你做你喜欢又能做，而且对别人好的事情。
 
-“物传人”说法最早在1月10日，[中新网](https://www.chinanews.com.cn/sh/2022/01-10/9648816.shtml)消息称，《深圳此轮疫情源头或为境外物品》输入，意在推责海外输入。[南华早报](https://www.scmp.com/news/china/science/article/3163657/did-omicron-arrive-chinas-capital-beijing-mail-canada)也证实这一说法，称，“Omicron是从加拿大邮寄到中国首都北京的吗？”
+而不是天天脱了裤子，就是咂吧那个，两个男女在那几十分钟，谁不会呀？是不是啊？还有，你一个社会到今天最根本就是没有教育。所以共产党，你看看包括阿明、苏哈托、斯大林、列宁、希特勒，首先控制媒体、控制教育。你看看曼斯坦因，就是希特勒的大将，曼斯坦因是多高的教育出来的人啊，但是他就受了个魔教。
 
-中共国[卫健委](http://health.people.com.cn/n1/2022/0122/c14739-32337370.html)22日说，“目前非冷冻入境物品导致境内人员感染的证据尚不充足。到目前为止，专家们没有足够的证据证明非冷冻进口商品会将 Covid-19 传染给中国人。”彭博社对此援引中共相关官员的话证实了这一点。22日，[中共国政府](http://www.gov.cn/fuwu/2022-01/22/content_5669968.htm)也予以证实说，“物传人不是新冠病毒主要传播途径”。23日，中共国[新华社](http://m.news.cn/ha/2022-01/23/c_1128291195.htm)称，“压实全链条责任，织密阻断‘物传人’防线。”23日当天，新华社为自己说过的话反悔，称“物传人可能性如何应对?”
+受了一个最大的影响：德国人是最优秀的。我们在一战输得太惨啦，对我们不公平，割走我们的土地，不让我们拥有军队，而且我们那么优秀。她妈妈跟人家偷情的时候，他听到了一个最叫他记忆深刻的话，他从窗户里看到他妈妈跟那个养父偷情，养父说：你这样的女人只配我拥有。哇噻！他觉得对啊：德国的女人只配我拥有。
 
-- ***延展阅读：***[***北京新增本土确诊病例7例无症状感染者2例，丰台新增2个中风险地区***](https://cn.reuters.com/article/%E3%80%8A%E7%96%AB%E6%83%85%E7%AE%80%E8%AE%AF%E3%80%8B%E5%8C%97%E4%BA%AC%E6%96%B0%E5%A2%9E%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B7%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%852%E4%BE%8B%EF%BC%8C%E4%B8%B0%E5%8F%B0%E6%96%B0%E5%A2%9E2%E4%B8%AA%E4%B8%AD%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA-idCNL4S2U30OR)
+这种邪魔上身以后，一生就完了。共产党的教育，你去看一看，爹亲娘亲不如党亲。你看那个中央电视台的赵赫死了，李瑞英儿子跳楼了，她竟然还继续直播，这叫伟大。一个连儿子都不要的人，你觉得这是人吗？所以教育系统是最可怕的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1989.png)
-[*图为拜登总统与习近平连线会议*](https://nypost.com/wp-content/uploads/sites/2/2022/01/BidenJinping.jpg?quality=90&amp;strip=all)
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-如今，中共政府多次表明物传人没证据，这种说法造成的混乱已经在民间引起了民族情绪，但这些消息体现了北京对即将举行的冬季奥运会能否成功举办的担忧。
+编辑整理：Jacques；
 
-随着全球疫苗灾难的延伸引发了各国对“病毒起源”的急迫感，中共深知自己总有一天要面对这一噩梦般的一天。自从2021年7月23日，[中共国拒绝世卫组织第二阶段病毒起源调查计划](https://www.bbc.com/news/world-asia-china-57926368)后，[拜登总统在本月19日再提“病毒起源”，他坚持要求中国国家主席习近平公开 COVID – 19 疫情的起源](https://nypost.com/2022/01/19/biden-insists-he-pressed-chinas-xi-on-covid-origin-but-aides-werent-in-room/)。该要求是在周三，拜登年内第二次新闻发布会上回答《华盛顿邮报》提出的病毒起源问题时做出这一宣告的，并坚称媒体并不知道这场病毒起源的“秘密交易”。
+字幕文件制作：小满；
 
-2022年1月24日
+视频制作及上传：Cindy；
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

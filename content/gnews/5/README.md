@@ -2,43 +2,35 @@
 ---
 
 
-## 批评人士：澳网公开赛置商业利益于人权之上
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903560/)
+## 疫情和疫苗政策正严重破坏纽约医疗保健系统
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903737/)
 
-#### 撰稿：日本东京方舟农场 北极
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据1月22日外媒消息，纽约市一家高级医院的官员表示，由奥密克戎变体引起的医护人员短缺，正在对包括太平间在内的医疗保健系统造成严重破坏。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.jpg)
+该区中部疗养院和医院组成的One Brooklyn Health首席执行官布朗，周五告诉记者，人员短缺问题继续困扰着整个医疗保健系统。一些医院甚至很难将尸体运送到太平间和殡仪馆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/88C49BB1-FEDF-4099-A1EC-6611D53E0BF1.jpeg)资料照：中国网球名将彭帅。（图片来自美国之音）
+布朗说，目前，许多员工都感染了中共病毒，或者与生病的家人一起被隔离；加上纽约州的疫苗强制接种政策，使没有接种的医护人员无法参加工作，导致人们在急诊室的候诊时间变得更长，被安排住院需等待更久。
 
-1月22日在社交媒体上流传的一段视频显示，澳网公开赛安保人员强行没收两名观众印有“彭帅”头像和文字的T恤。批评人士直指澳网公开赛置商业利益于人权之上。
+中共病毒疫情疫苗政策的蔓延及实施，不仅未能制止疫情的恶化，反而严重影响了医疗系统的工作人员的正常服务及工作效率，可谓雪上加霜。
 
-视频显示，赛场安保人员要求一男一女两名观众脱下他们的T恤衫，T恤衫正面是中国女子网球明星彭帅的照片，下面是“寻人”二字，T恤衫背面印着“彭帅在哪里？”几个字。
+参考链接：[COVID staff shortages strain NYC hospital morgues, ERs](https://pix11.com/news/coronavirus/covid-staff-shortages-strain-nyc-hospital-morgues-ers/)
 
-澳网一名发言人星期日证实称，根据他们的门票条件，不允许有商业或政治性的服装、横幅或标志。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-批评人士表示，澳网公开赛不应该为了顾虑来自中资企业赞助的利益，而打压关注彭帅人身安全的声音，应该停止骚扰关注人权和呼吁关注彭帅下落的人士，并且立即公开要求中国政府释放彭帅。有相关报道称，澳网的主要商业赞助伙伴之一是中（共）国高端白酒国窖1573，
+总编: Jack Li文阳
+编辑： Kathy文艺
+校正/发稿：Fei797
 
-前世界女子网球大姐大和赛事评论员玛蒂娜·纳芙拉蒂洛娃在推特上表示，澳网主办方的做法“令人悲哀”。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-澳网主办方的做法与国际女子网球协会WTA的立场对比鲜明，后者为了保护彭帅，已宣布2022年不会在中国举办任何比赛，女子网球协会主席西蒙表示，“原则高于利益”。这意味WTA准备牺牲其年度收入很大的一部分。
-
-中（共）国网球明星彭帅去年11月2日在微博上公开指称前任中共政治局常委、国务院副总理的张高丽逼迫她与其发生性关系，这条微博很快被删除。此事在国际舆论引起震动，彭帅随后与外界失去联系，中共同时对相关信息实行了严格的网络审查。
-
-彭帅事件在国际舆论广泛关注当中，不少人士依然在通过各种渠道为其发声，国际奥委会曾经在中共安排下与彭帅交谈。随后，国际奥委会发表声明称彭帅“住在北京的家中，她平安无事，但希望此时尊重她的隐私”。对于国际奥委会的声明，美国国会两党议员上周接连提出两部法案对其进行制裁。上周二推出“争取彭帅自由法案”，制裁国际奥委会主席及其他高层人员；上周三提出“追究国际奥委会与中（共）国同谋法”，提议取消国际奥委会在美国的免税资格。
-
-*参考链接：*
-
-1. *[澳网公开赛禁止球迷穿印有“彭帅在哪里？”字样T恤衫引发争议](https://www.voachinese.com/a/political-peng-messages-banned-at-australian-open-20220123/6408864.html)*
-2. [*澳网公开赛T恤衫事件再度引发聚焦彭帅遭遇*](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220123-%E6%BE%B3%E7%BD%91%E5%85%AC%E5%BC%80%E8%B5%9Bt%E6%81%A4%E8%A1%AB%E4%BA%8B%E4%BB%B6%E5%86%8D%E5%BA%A6%E5%BC%95%E5%8F%91%E8%81%9A%E7%84%A6%E5%BD%AD%E5%B8%85%E9%81%AD%E9%81%87)
-3. [*美两党议员再次提案制裁国际奥委会*](https://gnews.org/zh-hans/1884620/)
-
-
-* * *
-
-*素材采编：北极*
-
-*编辑： 青城道姑*
-
-*发布：miumiu*
 
  
 

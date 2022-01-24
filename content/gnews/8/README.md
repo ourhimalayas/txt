@@ -2,24 +2,30 @@
 ---
 
 
-## 澳洲维多利亚地区超过 200 万居民被敦促接种加强针
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1903401/)
+## 律师指责火币运营的加密货币交易所不负责任
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903662/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/01/012301-1.jpg)网络图片
-在过去的24小时之内，澳大利亚的维多利亚州记录了数周以来最低的每日新增CCP病毒感染人数，尽管数字仍然在10000以上。与此同时，超过 200 万的维多利亚人被敦促接种加强针，因为他们已经具备了接种第三针CCP病毒疫苗的资格。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-维州州长安德鲁斯表示，希望维多利亚州的居民尽快完成CCP病毒疫苗的加强针注射，并让更多的孩子们去接种疫苗。他还鼓吹说维多利亚州从未有过比现在更多的CCP病毒疫苗的预约。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6D5D993F-FEE2-43F0-95A6-C7B61D31B9D4.jpeg)（图片来自Bitcoin.com）
 
-安德鲁斯催促说：“现在177 万维州人已经接种了第三剂疫苗，还有大约 220 万人符合条件但尚未接种第三剂疫苗。”
+据《Bitcoin》1月24日报道，火币在塞舌尔注册的加密货币交易所Houbi Global公司被律师乔纳森-利维（Jonathan Levy）指控在运营中不对任何司法管辖区负责。
 
-迄今为止，澳洲维多利亚地区已有大约32%的成年人接种第三剂加强针，还有 176,371 名 5-11 岁的维多利亚儿童接种了第一针CCP病毒疫苗。显然州长先生对于这样的数字并不满意，他已经通过各项政令迫使从事某些职业的居民进行CCP病毒疫苗接种，否则将会失去饭碗。
+据报道，在乔纳森-利维提出指控之前，一名法国国民在火币上交易时被骗，然后他在Ciphertrace的帮助下，成功找到了这位骗子的火币账户。之后，法国国家警察也开始介入调查，并要求这家设在塞舌尔的加密货币交易所协助追回资金。
 
-首席卫生官布雷特·萨顿昨天表示，在昨日记录了 13,091 例新增感染之后，维州的 Omicron 高峰可能已经过去。不过该州政府也承认，即便疫情出现稳定迹象，依然有大量患者因身体不适而需要入院治疗。医疗机构中有许多员工都处于生病状态，许多工作者被CCP病毒感染不得不离开，这意味着卫生系统承受着巨大的压力。
+然而，由于该交易所在塞舌尔的存在的只是一个邮寄地址，他们对该犯罪没有管辖权，因此这位欺诈受害者追回资金的努力最终受挫。
 
-新闻参考链接：[Millions due for booster shots as Victoria’s COVID-19 case numbers drop](https://www.9news.com.au/national/push-to-resume-elective-surgery-after-victorias-covid19-case-numbers-drop/9d452247-cf4d-4668-875e-aee233918b87)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+对此，利维指责火币加密货币交易所运行的是一个分散的全球业务，”在任何地方运作，但在任何地方都不负责任”。
 
+*参考链接： [Lawyer Accuses Huobi of Operating a Cryptocurrency Exchange That’s ‘Held Accountable Nowhere’](https://news.bitcoin.com/lawyer-accuses-huobi-of-operating-a-cryptocurrency-exchange-thats-held-accountable-nowhere/)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青城道姑*
+
+*发布：miumiu*
 
  
 
