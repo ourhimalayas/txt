@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命全体作战（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900838/)
+## Vice记者采访的目的是为了污蔑郭先生
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900960/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

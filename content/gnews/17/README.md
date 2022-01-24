@@ -2,27 +2,69 @@
 ---
 
 
-## 怎么理解文贵先生的墙内病毒失控
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1900583/)
+## 法国佩皮尼昂议员Romain Grau被健康通行证的反对者袭击
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1900740/)
 
-撰稿：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-229.png)图片来自网络
-在23号早上的健身直播中，文贵先生透露，中共墙内的病毒已经失控，提醒墙内战友和百姓要注意防护，为何说现在全球都在陆续停止疫苗和口罩政策的时候，中共国却失去了控制，迎来了灾难的后果呢？
+翻译：香草山商业部 – 文锤
 
-第一：中共自从通过残害自己的百姓投毒全世界的这一刻起，墙内的数据一直是个谜团，从来没有公开过真实的数据，百姓根本不知道自己身边到底有多危险，所有的政策和措施都是跟着中共政府的利益去实施和执行的。根本没有考虑到百姓的死活。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-第二：毒疫苗出现后，为了配合全球的演戏和推广，在墙内强迫百姓接种疫苗，而且最早一批的都是医务人员，公职人员，教师职工等，经过将近一年的疫苗的潜伏期，到现在来看，基本到了全国疫苗后遗症爆发的阶段，但是中共提前把自己的医疗系统自己摧毁了。墙内现在多个医院的医护人员极其短缺。根本无法应付这个突如其来的疫苗后遗症的病例增加。
 
-第三：在中共国内，疫苗的剂量也是层次不齐，例如西安的这种高剂量的病毒疫苗注射，当到后遗症爆发期到来的时候，一个城市瞬间崩塌，根本无法控制。
 
-第四：中共凡是在墙内出现疫情后，基本就是三把斧：集中核酸检测，集中隔离，高物价剥削百姓。这个措施都是增加了病毒的再次传播和激起百姓的愤怒。为进一步失控中共自己创造了多个条件。
 
-第四：中共为了统治百姓，其实在每次疫情来临之时，都是借用一部分人斗一部分人，但是双方都是被搞的精疲力尽。比如核酸的医护人员，一个一千多万人口的城市，要求一两天出一次全部核酸的结果，就必须连夜加班测试，根本连吃饭和休息的时间都没有。路上排队的百姓愤怒，测试的医护人员人员愤怒。这样也加大了墙内各个层级之间人们的仇恨。最后都会找到中共政府算帐。
 
-第五：习包子为核心的家族集权统治，已经让中共党内互斗到了白热化地步。通过疫情和病毒互相向对方的利益集团进行袭击。但是在最后党内的厮杀中，最终受害的还是底层的百姓。
 
-综上，可以看出中共墙内的病毒内外夹击到了失控状态，而且会比起全球其他国家更加惨烈，希望墙内的战友和百姓们，做好黑暗时刻的到来，保护好自己和家人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-2.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-148.png)[图片来源](https://www.francebleu.fr/amp/infos/faits-divers-justice/agression-du-depute-lrem-romain-grau-a-perpignan-lors-d-une-manifestation-1642887133)
+
+在法国佩皮尼昂，国民议会议员Romain Grau昨天遭到反卫生通行证活动人士的袭击。事情发生在他在市中心的议会办公室，在与一名司法部长的顾问一起工作时，这位马克龙共和国前进党LREM的议员声称被击中了脸部。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-59.png)[Twitter视频链接](https://mobile.twitter.com/RomainGrau/status/1485000552656289796?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1485000552656289796%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fd-27729644502712831489.ampproject.net%2F2201071715000%2Fframe.html)
+
+这是三年来的第三次，共和国前进党LREM 代表佩皮尼昂议会的办公室成为示威者的目标。在 2019 年的黄背心之后，是健康通行证的反对者来到 Romain Grau 的工作场所，并希望与之抗争。这一次，这位议员和司法部长的顾问 Guillem Gervilla 也在现场。
+
+要了解现场的暴力情况，只需观看示威者自己拍摄并发布在社交网络上的视频即可。几十个非常愤怒的人围攻办公室。议员走到街上试图打开对话，然后他被带到口头上完成任务。我们看到一些示威者试图抓住他，辱骂声爆发，一名男子多次喊“去死！ ”。紧张是显而易见的。
+
+“我的下巴被打了一拳”——Romain Grau，共和国前进党LREM 东比利牛斯山脉大区的议员
+
+“我们被非常粗暴地对待。他们显然想用相当严重的侮辱让我们崩溃”，这位议员透露道。根据 Romain Grau 的说法，一个邻居在被扇耳光之前试图干预。这位议员还说他“下巴挨了一拳”。
+
+两人终于躲到了办公室里，而游行示威队伍最终散去。共和国前进党LREM 议员Romain Grau 随后宣布，他想在周日提出投诉。在一条推文中，东比利牛斯省保证“将尽一切努力查明肇事者”。
+
+这不是Romain Grau的议会办公室第一次成为目标。在 2019 年 7 月的“黄色背心”示威活动中，窗户已经被摧毁，然后在同年 9 月被扔石头。
+
+在另一条推文中，国家教育部长让·米歇尔·布朗克尔表达了他的愤慨：“一次又一次太过分了，一位民选代表在示威活动的间隙遭到攻击。这些行为是不可接受的，呼吁团结”。
+
+译者评：在一个法治社会，暴力行为当然是不可接受的，但是当疫苗通行证被证明是犯罪的那一天，所有推动强制疫苗政策的政客都要肩负起不可推卸的法律责任！
+
+**原文阅读：**
+
+**[VIDÉO – Le député de Perpignan Romain Grau agressé par des opposants au pass sanitaire (francebleu.fr)](https://www.francebleu.fr/amp/infos/faits-divers-justice/agression-du-depute-lrem-romain-grau-a-perpignan-lors-d-une-manifestation-1642887133)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

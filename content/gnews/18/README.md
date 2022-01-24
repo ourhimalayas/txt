@@ -2,103 +2,23 @@
 ---
 
 
-## 深挖华大基因 (三）
-` 流浪的陽光` [轉載自GNews](https://gnews.org/zh-hans/1900579/)
+## 拜登法案和阿富汗事情（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900734/)
 
-————疯子与魔鬼之间的交集
+整理：雅典娜速记组
+编辑：tianzhihuan
 
+我100%的认为，我们每个人都为今天中国发生的事情而感到可耻悲哀。我们的家人和我们每个人，包括你们每个人，包括小王子，你说你这是多年轻！我们都是中国的罪人。 我们怎么能容忍共产党，让他在我们这儿呆那么多年？邪恶到这么多年还继续让他邪恶呢？阿富汗的答案是一样的，你不要指望着别人来救你，而且救你就一次还不行得救一辈子。救得不好还不行，还得继续救。这就是非洲巴基斯坦阿富汗，是吧？这些国家的一个结果。
 
+我们中国人也基本都这样了，人家美国不给你搞贸易吧，不行！你就是，美国必须搞贸易，必须你奴隶我必须虐待我。人家美国欠你的吗？所以回答这个问题很简单，美国的安全和战略经济的基本需要，和阿富汗现在即将触发的巨大的问题。阿富汗的就是干掉了总统的哥们，你没见过他家族腐败到什么程度。阿富汗100％的通信被他女婿和他在控制着，100%的银行被他控制着，他家里养着狮子，养着豹子。在美国，在迪拜，在欧洲，无数高级房产。你知道这个国家腐败到这个程度。你觉得要让美国大兵拿着钱拿着枪保护你腐败？你在开什么玩笑！你的人民呢？所以说记住，日本就是最好的例子。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/拜登法案和阿富汗事情三.png)
+发布： *tianzhihuan*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
-
-
-
-作者：流浪的阳光
-
-几个疯子与魔鬼之间的交集 2013年比尔盖茨给汪建的信 2018 年 12 月 11 日马里兰州贝塞斯达举行第五届全球健康年度咨询研讨会。比尔盖茨、福奇和柯林斯一起参加 2021年福奇邮件曝光：比尔盖茨和福奇定期交谈内容外泄 2016年柯林斯参加华大组织的国际基因组学会议称华大基因联合创始人杨焕明是我的朋友。
-
-![Image](https://pbs.twimg.com/media/E9jz2GSXsAAfRVI?format=jpg&amp;name=900x900)
-
-![Image](https://pbs.twimg.com/media/E9jz2GIX0AoTdCr?format=jpg&amp;name=large)
-
-![Image](https://pbs.twimg.com/media/E9jz2GPWQAsfhLH?format=jpg&amp;name=large)
-
-![Image](https://pbs.twimg.com/media/E9jz2GaXMAUjvjE?format=jpg&amp;name=large)
-
-关于福奇的邮件，有几个需要特别注意的地方：
-福奇和盖茨于 2020 年 4 月 1 日通电话，他们讨论了盖茨可以帮助资助疫苗的方式
-盖茨代表甚至参加了 NIH 的一个关键疫苗工作组。其实比尔盖茨对疫苗的热情早已开始,2013年盖茨在NlH说对疫苗充满希望！2019年盖茨接受白岩松的专访称疫苗的作用很神奇！
-
-![Image](https://pbs.twimg.com/media/E9mF9WdUYAQDTBH?format=jpg&amp;name=large)
-![Image](https://pbs.twimg.com/media/E9mF9WaUUAsvMGN?format=jpg&amp;name=medium)
-2010年9月盖茨去北京科兴生物制品有限公司考察。2015年，比尔·盖茨在TED大会上的预言.2020年4月9日，比尔盖茨作客新闻1＋1谈对疫苗的投资是值得的！2021年6月3日比尔盖茨远程参加浦江创新论坛并发言：期待更多来自中国的新冠疫苗！他对疫苗的追求好执著啊.
-
-
-![Image](https://pbs.twimg.com/media/E9m-emgUUAEDhvp?format=jpg&amp;name=small)
-
-![Image](https://pbs.twimg.com/media/E9m-emgVkAMQrUK?format=jpg&amp;name=large)
-
-
-![Image](https://pbs.twimg.com/media/E9m-emgVEAMHLMk?format=jpg&amp;name=small)
-
-
-
-![Image](https://pbs.twimg.com/media/E9m-emgVIAIk8zY?format=jpg&amp;name=large)
-
-其实比尔盖茨和中共互动频繁，早在2007年他已经访华十次了，而且多次和中共领导人见面，光江泽民就见了三回
-按说一个推销电脑系统的，顶多也就去中关村晃悠晃悠就完了，这么削尖了脑袋往中南坑里钻是为什么呢？
-1994年盖茨首次来到北京与江泽民会见。1995年江泽民再次会见盖茨。2003年江泽民又一次见盖茨。
-
-
-
-![Image](https://pbs.twimg.com/media/E-W90zyUcAI7sxi?format=jpg&amp;name=900x900)
-
-
-![Image](https://pbs.twimg.com/media/E-W90zxVcAIqaPh?format=jpg&amp;name=medium)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90z1VIAAqBEw-2.jpeg)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E-W90zwVkAEkzuk.jpeg)
-
-
-
-2007年4月比尔·盖茨在海南接受水均益的专访。比尔·盖茨说：2008年将携带家人和有「股神」之称的世界第二大富豪巴菲特前来北京观看奥运会。
-那他住在哪儿呢？就是盘古四合院！比尔·盖茨和巴菲特好到什么程度呢？有点像汪建和王石一样，好得穿一条裤子，一块儿打牌，一块儿旅游，一块儿接受钥匙澜采访！
-
-![Image](https://pbs.twimg.com/media/E-XOZldUcAYxWl3?format=jpg&amp;name=large)
-
-
-
-![Image](https://pbs.twimg.com/media/E-XOZlVUYAI-WYD?format=jpg&amp;name=large)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E-XOZlvUYAIyJkZ.jpeg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-23-下午8.46.01.png)
-
-未完待续
-
-编辑：流浪的阳光
-
-校对/发稿 Serena
-
-深挖华大基因（ 一）[https://gnews.org/zh-hans/1886736](https://gnews.org/zh-hans/1886736/)
-
-深挖华大基因 （二）[https://gnews.org/zh-hans/1891810/](https://gnews.org/zh-hans/1891810/)
-
-新加坡狮城盖特：[https://gettr.com/user/himalaya\_sg](https://gettr.com/user/himalaya_sg)
-
-新加坡狮城农场：Discord[https://discord.gg/he7c7nPytW](https://discord.gg/he7c7nPytW)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-21-下午5.13.46-3.png)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

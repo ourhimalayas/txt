@@ -2,25 +2,19 @@
 ---
 
 
-## 在任何情况下，你都不应该让你的孩子接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1900808/)
+## 有共产党背景的Vice
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1900952/)
 
-翻译：文载Jenny
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-疫苗学家、病毒学家Geert Vanden Bossche在采访中表示，当你在与病毒斗争的在战场上时，永远不要使用不能阻断病毒传播的疫苗。换句话说，对于大规模接种疫苗，正在为更多的传染性变种的复制提供一个温床。从科学上讲，让儿童接种疫苗没有任何好处，只有重大的担忧和风险。他的建议十分明确，即在任何情况下，你都不应该让你的孩子接种新冠疫苗。
+*发布：*Frank2021
 
-视频链接：[Under no circumstance should you allow your child to be vaccinated](https://gettr.com/post/poc4ro6f83)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
