@@ -2,27 +2,24 @@
 ---
 
 
-## 世卫组织建议取消国际旅行疫苗护照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901922/)
+## 再次揭露HBO精心编织的谎言（part1）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901931/)
 
-作者：新中国联邦静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月19日，世界卫生组织发布了1月13日召开的中共病毒大流行紧急委员会临时会议的声明。
+前几周，我们播放了针对HBO污蔑郭先生、爆料革命以及中国人民的反击视频，主要用HBO采访的真实记录揭露他们是如何造假的。从今天开始，我们将连续播放另一组揭露HBO编织谎言的视频，给大家提供更多真相。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13-7.png)
 
-声明中提出了世卫组织给缔约国的11项临时建议，其中第六条为“赞成解除或放宽国际旅行禁令”，第七条为“赞成国际旅行不需要中共病毒疫苗接种证明”。即世卫组织至少在建议取消国际旅行中的疫苗护照了。
-
-分析人士认为，尽管还不明确世卫组织此举意图何在，但这个建议至少对受到它影响的很多国家来说，在取消疫苗强制方面，还是有积极作用的。
+今天，我们首先提出与HBO谎言有关的几个问题，然后会在接下来的视频播放中为大家一一解答。请看揭露HBO精心编织的谎言第一部分。
 
 参考链接：
 
-- [Statement on the tenth meeting of the International Health Regulations (2005) Emergency Committee regarding the coronavirus disease (COVID-19) pandemic](https://www.who.int/news/item/19-01-2022-statement-on-the-tenth-meeting-of-the-international-health-regulations-%282005%29-emergency-committee-regarding-the-coronavirus-disease-%28covid-19%29-pandemic)
+- [HBO Vice’s Interview with Mr.Miles Guo without Edits: Thoroughly Exposing HBO Vice’s Sinister Attack](https://www.youtube.com/watch?v=z9HvjLuSgA8)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：童谣
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

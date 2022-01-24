@@ -2,74 +2,34 @@
 ---
 
 
-## 【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1898840/)
+## NBA球星坎特呛声姚明 称想到访新疆集中营
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1901115/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+#### **撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DB1F5E29-B475-4EC5-AAF0-7E8BC6533C31.jpeg)（图片来自中央社）
 
-接[【Michael.Tonny专栏】苏格兰 加拿大Alberta省疫苗监测数据存在严重误导（中）](https://gnews.org/zh-hans/1898792/)
+中共国篮球协会主席姚明日前邀请NBA球员坎特访问中共国，坎特回复他愿意，但前提是要能看到中共国真实面貌以及能到访新疆集中营，并反邀姚明一同访问台湾和香港，并让他跟中共国网球选手彭帅自由对话。
 
-在2021年3月8日丹麦学者Ida Rask Moustsen-Helms等人发表的临床研究论文《[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)》一文中，详细记录了39,040名居住在长期护理机构（LTCF）的老人和331,039名一线医护人员（HCW）接种疫苗和接种疫苗后感染情况。
+据中央社1月23日的报道，NBA球星坎特日前在推特表示：我真的想要亲眼去看看那里的一切，但这趟旅行，我想要问姚明先生，我能够参观新疆的劳动营吗？可以拜访被虐待和强暴的无辜女性吗？可以看到中共政权强摘器官后如何毁尸吗？我能见到网球选手彭帅吗？我能直接跟她谈话，问她安不安全、好不好吗？她能够自由答复吗？还是你只是会给我听那些宣传？
 
-在这份文件的第3页，表1（Table 1 –Descriptive overview of median age, median follow-up and SARS-CoV-2 confirmation by vaccination status in 39,040 LTCF residents and 331,039 HCW followed from 27 December 2020, to 18 February 2021 in Denmark.）记录了疫苗接种情况
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-1-–Descriptive-overview-of-median-age-median-follow-up-and-SARS-CoV-2-confirmation.jpg)
-在这份文件的第4页，表2（Table 2 – Vaccine effectiveness with accompanying 95 % confidence intervals for LTCF residents and HCW after first and second vaccine dose）记录了接种COVID-19疫苗后，感染的时间
+坎特提到，在中共政府残忍统治下，藏人没有基本权利和自由；香港曾是全球最自由的城市之一，现在天天上演的是新闻自由被毁、权利遭打压以及逮人场景。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-2-–-Vaccine-effectiveness-with-accompanying-95-confidence-intervals.jpg)
+此外，坎特还告诉姚明，中共不能收买他，「我不需要中共提供的豪华行程，我希望全世界看到中国真实的一面」。
 
-居住在长期护理机构（LTCF）的39,040名老人中，有95.2%打了1针疫苗，86%打了2针疫苗，其中760人是在接种完第1针COVID病毒疫苗后14天内感染，占投种1针后感染的55%。
+他最后表示，如果姚明答应他的要求，「我会自己买机票，搭今夏第一个航班到中国」。
 
-在331,039名一线医护人员中，有27.8%打了第1针疫苗，其中1189人是在接种完第1针COVID病毒疫苗后14天内感染，占接种一针后感染的35%。
+据悉，根据美国国务院估计，自2017年以来，有高达200万维吾尔人和其他少数民族被拘留在新疆集中营。中共在新疆犯下种族灭绝的罪行得到大多数欧美国家的确认，这些国家对于中共在相关方面的制裁政策也在不断推行当中。
 
-加拿大Alberta省在网站关于《[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)》中申明，接种第1针疫苗后14天内的人感染中共病毒，不算接种1针COVID-19病毒疫苗后感染，而是计算在未接种疫苗感染COVID-19病毒范围内。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-case-outcomes-in-Alberta-by-vaccine-status.png)
-多么可怕的误导！
+*参考链接：[NBA球星坎特願睹中國真面貌 邀姚明訪台見證民主](https://www.cna.com.tw/news/aopl/202201230177.aspx)*
 
-因此Alberta省得出了以下结论：自2021年1月1日以来，0.5%的人（18,612/3,516,687）在第一次接种中共病毒疫苗后14天被诊断出感染COVID-19；在第二次接种中共病毒疫苗后14天，有3.5%的人(113,969/3,240,167)被诊断出感染COVID-19；在接种3针中共病毒疫苗后14天，有1.1%的人 (15,286/1,333,330)被诊断出感染COVID-19； 59.3%的病例(215,489/363,356)未接种疫苗或在接种第1针中共病毒疫苗后两周内被诊断出感染COVID-19；74.6%的住院病例(10,595/14,208)未接种疫苗或在第1针疫苗接种后两周内被感染；72.8%的COVID-19死亡(1,381/1,898)病例，未接种疫苗或在接种第1针疫苗后两周内被诊断出感染COVID-19。
+* * *
 
-没有区分出相当比例的接种第1针COVID-19病毒疫苗后确诊的感染者！而是把这些接种COVID-19病毒疫苗不超过14天的感染者和真正从未接种疫苗的人混到一起计算！
+*素材采编：Kevin wang*
 
-非常幸运的是，尽管加拿大Alberta省突然争先恐后地从他们的网站上删除了早期数据，但[从2020年3月20日到2022年1月14日的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)被Joel Smalley等人完事的保留下来。
+*编辑：青城道姑*
 
-这份文件详细记录了注射完第1针中共病毒疫苗后第1天到373天内，各年龄段的人群确诊COVID-19、因COVID-19住院和因COVID19死亡的数量统计。
-
-这是一份非常珍贵的文件！
-
-根据这份文件的数据统计，在注射中共病毒疫苗后确诊感染COVID-19的人中，有39.4%是在打完针后14天内被确诊，76.6%的人是在打完针后45天内被确诊。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date.jpg)
-
-在注射中共病毒疫苗后住院的COVID-19病例中，有47.6%是在打完针后14天内发生，79.6%的人是在打完针后45天内发生。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-immunization-date-to-COVID-19-diagnosis-date2.jpg)
-在注射中共病毒疫苗后死亡的COVID-19病例中，有55.6%是在打完针后14天内发生，89.3%的人是在打完针后45天内发生。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Time-from-deaths-date-to-COVID-19-diagnosis-date3.jpg)
-
-通过这份文件记录的数据，可以想像，有多少打完COVID-19病毒疫苗后感染、住院和死亡的人，被错误的记录到了未接种疫苗人群中，导致人们根据政府的疫苗监测报告而做出错误的判断！
-
-中共病毒疫苗有毒，千万不要被公共卫生部门误导性的疫苗监测报告误导！
-
-参考数据：
-
-[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
-
-[COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta](https://www.alberta.ca/stats/covid-19-alberta-statistics.htm#vaccine-outcomes)
-
-[从2020年3月20日到2022年1月14日加拿大Alberta省的数据副本](https://docs.google.com/spreadsheets/d/1ATtp4tGN_gfSOZsW-HZOC_cRRC0xN9d3/edit?usp=sharing&amp;ouid=108444380134617054259&amp;rtpof=true&amp;sd=true)
-
-[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
-
-[Public  Health  Scotland COVID19 & Winter Statistical  Report As at 17 January 2022 Publication  date: 19 January 2022 As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
-
-[UK Health Security Agency COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
-
-[Vaccine effectiveness after 1st and 2nd dose of the BNT162b2 mRNA Covid-19 Vaccine in long-term care facility residents and healthcare workers – a Danish cohort study](https://www.medrxiv.org/content/10.1101/2021.03.08.21252200v1)
-
-[Horowitz: The very concerning data from Scotland](https://www.theblaze.com/op-ed/horowitz-the-very-concerning-data-from-scotland)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+*发布：miumiu*
 
  
 
