@@ -2,23 +2,36 @@
 ---
 
 
-## 人民已经开始觉醒和反击（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1903190/)
+## 日本红十字会关于中共病毒疫苗接种者的献血标准
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903239/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/人民已经开始觉醒和反击（下）-scaled.jpg)
-文贵先生2017年向西方警告，我们现在是3年纪念日。法治社会，法治基金，新中国联邦，所有这些机构都是很年轻的，盖特，GTV，现在已经是最大的平台了，每天分享并加强自己，让我非常的有信心， 我们在赢，我们一定要大赢，中共一定会失败，他们想要控制所有人，把人们抓到监狱。这就是表明他们懦弱，他们越凶残的时候，他们越懦弱，所以信用积分就是这样的，表明他们非常的懦弱，如果他们有自信的话，就开放防火墙啊。因为你中共这么好，不是90% 的支持率嘛，那你就把防火墙打开呀，所以中共知道一旦老百姓能投票，中共就完蛋了，所以他们的疯狂就是懦弱。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-56.png)（图片源自本文链接）
+日本红十字会于2021年２月，就中共病毒（新冠病毒Covid-19）疫苗接种者的献血标准发布了如下通知．
 
-*发布：开智则立*
+关于新型冠状病毒疫苗接种者的献血
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2021年2月22日
 
+感谢您对献血的理解和合作！
+
+有关新型冠状病毒疫苗接种者的献血标准，政府仍在探讨中。因此，在标准确定之前，还望大家对此予以理解！
+
+标准预计在公众广泛接种疫苗之前确定，确定后会在网站上公布。
+
+感谢您一如既往的支持！
+
+日本红十字会
+![](https://assets.gnews.org/wp-content/uploads/2022/01/22-4.jpg)（通知原文）
+一年过去，并没有看到上述式样的正式通知．笔者在日本红十字会网站上找到了如下内容．
+
+新型冠状病毒的RNA疫苗（包括mRNA疫苗）接种者，接种48小时后可以献血。目前获批的有辉瑞公司和武田/莫德纳公司生产的RNA疫苗。此外，已经接种过阿斯利康病毒载体疫苗的人，目前不接受献血。有关此类疫苗接种者的献血标准，厚生省正在审查中。
+
+信息来源：[一定期間内に予防接種を受けた方｜献血をご遠慮いただく場合｜献血の流れ｜献血について｜日本赤十字社 (jrc.or.jp)](https://www.jrc.or.jp/donation/about/refrain/detail_08/)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

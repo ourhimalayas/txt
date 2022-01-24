@@ -2,36 +2,40 @@
 ---
 
 
-## 日本红十字会关于中共病毒疫苗接种者的献血标准
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903239/)
+## 德州联邦法官暂时阻止对联邦雇员的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1903552/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-56.png)（图片源自本文链接）
-日本红十字会于2021年２月，就中共病毒（新冠病毒Covid-19）疫苗接种者的献血标准发布了如下通知．
+作者：香草山教育部 – Naughty(文行) , Delilah小胖 , 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日，德克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-15.jpg)
+此项针对拜登政府疫苗强制令的诉讼，是由一个名为“医疗自由联盟”的组织发起的。
 
-关于新型冠状病毒疫苗接种者的献血
+最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
 
-2021年2月22日
+布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
 
-感谢您对献血的理解和合作！
+拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
 
-有关新型冠状病毒疫苗接种者的献血标准，政府仍在探讨中。因此，在标准确定之前，还望大家对此予以理解！
+参考链接：
+1) . [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
+2) . [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
+3) . [Texas federal judge temporarily blocks Biden vaccine mandate for federal employees](https://www.foxnews.com/politics/texas-federal-judge-vaccine-mandate-federal-employees)
 
-标准预计在公众广泛接种疫苗之前确定，确定后会在网站上公布。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-感谢您一如既往的支持！
+总编： Ivy001，飞虹 
+校正/发稿：Fei797
 
-日本红十字会
-![](https://assets.gnews.org/wp-content/uploads/2022/01/22-4.jpg)（通知原文）
-一年过去，并没有看到上述式样的正式通知．笔者在日本红十字会网站上找到了如下内容．
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-新型冠状病毒的RNA疫苗（包括mRNA疫苗）接种者，接种48小时后可以献血。目前获批的有辉瑞公司和武田/莫德纳公司生产的RNA疫苗。此外，已经接种过阿斯利康病毒载体疫苗的人，目前不接受献血。有关此类疫苗接种者的献血标准，厚生省正在审查中。
 
-信息来源：[一定期間内に予防接種を受けた方｜献血をご遠慮いただく場合｜献血の流れ｜献血について｜日本赤十字社 (jrc.or.jp)](https://www.jrc.or.jp/donation/about/refrain/detail_08/)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

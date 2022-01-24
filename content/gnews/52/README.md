@@ -2,30 +2,24 @@
 ---
 
 
-## 得州一联邦法官暂时阻止了对联邦雇员的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901921/)
+## 再次揭露HBO精心编织的谎言（part1）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901931/)
 
-作者：香草山教育部 – Naughty(文行)、Delilah小胖 、007
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月21日，得克萨斯州南区地方法院法官杰弗里·文森特·布朗，发布了一项全国性的禁制令，暂时阻止了拜登总统对联邦雇员的疫苗强制接种命令，称他无权在没有国会意见的情况下批准这样做。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-11.png)
-这个针对拜登政府疫苗强制令的诉讼，是由一个叫医疗自由联盟的组织发起的。
+前几周，我们播放了针对HBO污蔑郭先生、爆料革命以及中国人民的反击视频，主要用HBO采访的真实记录揭露他们是如何造假的。从今天开始，我们将连续播放另一组揭露HBO编织谎言的视频，给大家提供更多真相。
 
-最近几个月，拜登推动了多项疫苗强制接种令，其中一项针是对大型企业的，但被最高法院阻止了；另一项针对医护人员的，目前被允许生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13-7.png)
 
-布朗法官的裁决不是对该政策的最终裁决，只是在诉讼未决期间阻止强制执行。
-
-拜登政府当天表示，计划向第五巡回上诉法院上诉，第五巡回法院的裁决还可能会被上诉到最高法院。
+今天，我们首先提出与HBO谎言有关的几个问题，然后会在接下来的视频播放中为大家一一解答。请看揭露HBO精心编织的谎言第一部分。
 
 参考链接：
 
-- [BREAKING: A federal court has blocked Joe Biden’s COVID vaccine mandate for federal employees.](https://gettr.com/post/ppsplfa210)
-- [Federal judge in Texas blocks Biden’s vaccine mandate for federal workers](https://thehill.com/policy/healthcare/590797-federal-judge-in-texas-blocks-bidens-vaccine-mandate-for-federal-workers)
+- [HBO Vice’s Interview with Mr.Miles Guo without Edits: Thoroughly Exposing HBO Vice’s Sinister Attack](https://www.youtube.com/watch?v=z9HvjLuSgA8)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Ivy001 / 飞虹
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
