@@ -2,55 +2,42 @@
 ---
 
 
-## 白宫正在为加密货币领域制定宏伟计划
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1904591/)
+## 英国多个地区 NHS工作人员举行集会抗议强制疫苗计划
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904622/)
 
-**【简评】***美联储正朝着数字货币迈出关键一步，发行央行数字货币将极大改变美国的金融体系。*
+**编译:沉默老歌**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D6C3901B-9DD3-4A5E-B14E-F055771AB97D.jpeg)图片来源:网络
+● NHS 工作人员与反疫苗者合作，在全国各地的示威活动中对抗强制疫苗
+● 反vaxxers称疫苗是一种“实验药物”
+● 如果在 4 月 1 日之前没有完全接种疫苗，超过 80,000 名 NHS 工作人员将面临解雇
+● 数百人走上伦敦、曼彻斯特和纽卡斯尔街头表达不满
+● 然而，就在上周，卫生部⻓ Sajid Javid 表示，政府仍然致力于这些计划
+周六，NHS 的工作人员加入了全国各地的反疫苗者行列，抗议强制性的疫苗规定，那些拒绝 接受 Covid 疫苗接种的人将被解雇，卫生主管将从下个月开始发出正式的解雇警告。
+在伦敦，有人看到数十名卫生工作者向唐宁街外的警察扔衣服，而其他人则在特拉法加广场摆设制服。
+当他们聚集在 BBC 广播大楼外时，反疫苗接种者皮尔斯·科尔宾 (Piers Corbyn) 也在人群中，其中一名抗议者戴着鱿⻥游戏面具和生物危害防护服，并配有充气注射器。
+一名救护⻋工作人员的制服被挂在Regent的公园，背面写着一条信息，上面写着:“护理人 员 9 年，周四鼓掌，周一唾弃”。
 
-据《AMB加密货币》作者：Shraddha Sharma 2022年1月23日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2014-e1643049375774.png)图片来源：Pixabay
-从去年69,000美元的历史新高(ATH)开始，比特币如今在当前的市场下跌中损失了50%的价值。我们可以看到市场动荡不定，该行业的接受度无疑已处于顶峰。
+所谓的“自由集会”也在曼彻斯特、伯明翰、利兹和纽卡斯尔举行，抗议者在那里举着标语:“没有疫苗授权”和“英雄归零——从鼓掌到解雇”。
+尽管随着越来越多的人接种疫苗，英国的死亡率大幅下降，但一些反对接种疫苗护士坚持认 为，挽救生命的疫苗注射是一种“实验药物”。
+尽管一再努力提高接种率，但仍有超过 80,000 名 NHS 工作人员(占从业人员的 6%)未接种疫苗。
+从 2 月 4 日起，所有未接种疫苗的一线工人都将被召集参加正式会议，并警告他们将面临解雇。
+英格兰国⺠保健暑( NHS England )指南称，将从当天开始发出通知，3月31日标志着通 知期的结束。
+所有一线工作人员都必须在 4 月 1 日之前接受两剂 Covid 疫苗接种，这意味着必须在 2 月 3 日之前进行第一次疫苗注射。
+周六的示威活动发生在皇家全科医生学院呼吁政府延⻓最后期限之际，以防止医疗服务人员大量短缺。
+主席⻢丁·⻢歇尔(Martin Marshall)表示，对卫生专业人员强制接种疫苗“不是正确的前进方向”，一些医院和全科医生手术室中约有 10% 的工作人员没有接种过 Covid 疫苗。
+32 岁的救护⻋工作人员 Christabelle Gregory 在伦敦抗议说:“人们曾经为我们鼓掌，但现在已经没有了感激之情。 我还年轻，我在前线工作已经产生了抗体，所以我不想接种疫苗。”
 
-**货币政策和监管环境**
+**原文链接:**
 
-许多专家认为市场疲软是美联储从市场撤出流动性的结果。但是，人们对法规扼杀行业的担忧也很高。
+[NHS staff leave scrubs at No 10 after joining anti-vaxxers on ‘freedom’ rallies through London, Newcastle, Leeds and Manchester in protest against mandatory Covid jabs – as the Royal College of GPs calls for deadline extension to prevent staff shortage](https://www.dailymail.co.uk/news/article-10430205/amp/NHS-staff-join-anti-%20vaxxers-London-Newcastle-Manchester-protests-against-Covid-jabs.html)
 
-俄罗斯对加密货币的封杀措施即将来临，英国对加密广告的要求越来越严格，而欧盟则担心该行业的比特采矿业。与此同时，在美国，唯一突出的争论是关于加密代币的“安全”由什么构成。瑞波币（Ripple）与美国证券交易委员会的诉讼正处于此辩论的最前沿。
+**编辑:LILY**
+**发布**:**歪桑**
+20220124
 
-话虽如此，据报道，拜登政府正在准备其政府范围内的数字资产战略。
-
-彭博社援引消息人士的话说，预计将于2022年2月发布概述该行业风险和机遇的初步版本。届时，有关加密货币的行政命令将使拜登总统及其政府成为加密行业的焦点。
-
-这一发展是在证券监管机构（SEC）、商品监管机构（CFTC）和美国财政部等机构的一些初步和不完整的指导下进行的。
-
-最近，美国证券交易委员会主席加里·根斯勒（Gary Gensler）指出，加密货币交易所将受到监管机构更严格的审查。重点是将该行业纳入“投资者保护范围”。值得一提的是，在这方面我们刚刚看到监管机构击落了另外两支有实物支持的比特币上市交易基金(ETF)。
-
-**全方位的指导？**
-
-现在，该报告指出，即将发布的有关加密货币指南的后期草案将概述加密货币领域的“经济、监管和国家安全挑战”。
-
-据报道，该指令将让金融稳定监督委员会和美国商务部等其他机构参与进来。此外，该报告还提到美国央行数字货币（CBDC）也可能即将出台。
-
-就在最近，美联储在其初步文件中表示，
-
-**“引入央行数字货币（CBDC）将代表美国货币的一项重大意义创新”**。
-
-虽然中央银行已经为未来的央行数字货币（CBDC）打开了大门，但美联储在 2022年5月20日之前仍会就该文件征求公众意见。
-
-文章来源：[https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/](https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/)
-
-翻译/评论：洛杉矶盘古农场 – maru
-
-编辑：洛杉矶盘古农场 – 柯镇恶
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

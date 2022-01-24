@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/24/2022 10:10 PM (UTC)`
+
+1/24/2022 Miles Guo: Xi Jinping has no confidence in what the Winter Olympics will turn out to be. At the opening ceremony of the Winter Olympics, it is forbidden to mention that Deng Xiaoping “drew a circle” in southern China, and it is required that Xi should be called “the core leader of the Party and the State”, granting him dictatorship. It is also ordered to describe the Winter Olympics as “reform and opening up leading to a new era”.<br/><br/>1/24/2022 文贵直播：习神对冬奥会能办成啥样很不自信；冬奥会开幕式不允许提邓小平在南方画了个圈，要称习为党和国家核心领导人以定一尊，还要把冬奥会说成是改革开放走向新纪元<br/>
+![img](https://media.gettr.com/group32/getter/2022/01/24/22/bdff3a88-7538-10da-dafa-93256e787e68/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gfashion 1/24/2022 6:07 PM (UTC)`
@@ -155,13 +162,6 @@ New Drop coming Monday at Noon on www.gfashion.com
 
 1月22号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切已经开始【相关美股区块链概念股也纷纷走低。Coinbase ( COIN.O ) 一度跌 11.42%，Riot Blockchain ( RIOT.O ) 一度跌 8.4%，嘉楠科技 ( CAN.O ) 一度跌 7.84%，Bit Digital ( BTBT.O ) 一度跌 7.5%，【Marathon Digital ( MARA.O ) 一度跌 8.3%。<br/><br/>截至目前，比特币指数数报 36253.4 美元。<br/><br/>值得注意的是 2021 年 11 月，比特币创出了 60002 美元的新高，随后比特币一路下跌，2021 年 12 月 4 日最大跌幅高达 20%，截至目前，比特币指数较 60002 的高点，跌幅超 50%，投资者损失惨重。】
 ![img](https://media.gettr.com/group25/getter/2022/01/22/16/d933dd52-dde4-b718-b8b2-23d676aefe4c/out.jpg)
-
----
-
-`@miles 1/22/2022 4:18 PM (UTC)`
-
-1/21/2022 Miles Guo: The Declaration of the New Federal State of China indicates that what we value and pursue are consistent with that of the Western society. The CCP’s turning the Winter Olympics into the games for only a few people is an insult to the Olympics spirit. I wisely convinced the athletes not to attend the Winter Olympics by using the videos of the dogs being caught in Beijing.<br/><br/>1/21/2022 文贵直播: 《新中国联邦宣言》体现出我们的价值和追求跟西方社会是一致的；中共把奥运会变成极少数人的运动会是对奥林匹克精神的亵渎；文贵机智地用北京抓狗的视频说服了运动员不参加冬奥会<br/>
-![img](https://media.gettr.com/group28/getter/2022/01/22/16/29d447a8-d549-991e-c71d-3621ba37c410/out.jpg)
 
 ---
 
