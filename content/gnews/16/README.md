@@ -2,49 +2,28 @@
 ---
 
 
-## 共和党议员为抵制强制疫苗退出国会山俱乐部
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901585/)
+## 北京大外宣，雇用大量西方网红粉饰冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901678/)
 
-作者：银河系农场—骄子
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1967.png)（图片来源于本文链接）
+据卫报（The Guardian）报导，中共驻纽约总领事馆与Vippi Media签署了一份价值30万元的合约，由其发动西方网红大军，来帮助粉饰中共形象和2022年北京冬奥会。
 
+Vippi Media的老板是“新闻周刊”（Newsweek）撰稿人、前福斯新闻和汇丰银行高级主管贾斯瓦（Vipinder Jaswal）。该合同文件显示，于2021年11月开始，至2022年3月冬季残奥会结束。合同签署后，贾斯瓦已收到了中共21万美元的预付款。
 
+根据合同约定，贾斯瓦将帮助中共展开社交媒体攻势，向美国人宣传北京冬奥会和残奥会。贾斯瓦计划在年轻人经常光顾的TikTok、Instagram和 Twitch等社交媒体平台上，聘请大量西方网红做节目。在合同期间拟提供340万次对中共的正面宣传。贾斯瓦称，他的公司已经收到了多达五十多个网红的合作意向，其中包括前奥运会运动员和企业家。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+合同还制定了详细的社交媒体战略，西方网红将负责为其目标受众制作三到五条节目。根据粉丝数量和平台活动，网红们被分为三个层次：“宏观影响者”（大网红）、“中层影响者”（中网红）和“社交发布者”（小网红）。
 
+美国政治家对贾斯瓦提出了批评，谴责他跟中共达成交易，本月早些时候，佛罗里达州参议员里克·斯科特（Rick Scott）致信贾斯瓦担任撰稿人的《新闻周刊》，要求该报社，基于中共迫害人权的恶劣纪录，请他们重新考虑与贾斯瓦的工作关系。
 
+根据总部位于华盛顿、追踪美国政治资金的组织Open Secrets的统计，在过去十多年，中共在海外媒体信息传递方面大撒币，2020年在美国的支出接近6000万美元，2021年为2300万美元。
 
-据美国媒体1月21日报道，一些共和党议员正在退出国会山俱乐部以抵制强制疫苗计划。该俱乐部所在地哥伦比亚特区，目前正在施行强制疫苗要求，未接种中共病毒疫苗的商业机构将面临严重的罚款，自1000美元开始，每次翻倍。
+信息来源：[北京雇用大量西方网红 为冬奥会唱赞歌](https://www.aboluowang.com/2022/0124/1699745.html)
 
-据报道，弗吉尼亚共和党议员鲍勃.古德为此项活动的发起人，越来越多的共和党人加入抵制队伍。目前级别最高的是来自肯塔基州的兰德.保罗，他在社交媒体上表示，不愿做一个会随意透露会员医疗记录的俱乐部成员。
-
-据悉，国会山俱乐部成立与1951年，是共和党与其支持者进行活动和社交聚会的首选地点。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-5.jpg)
-参考信息：
-[Lawmakers cancel Republican club memberships over vaccine mandate enforcement](https://www.washingtonexaminer.com/news/lawmakers-cancel-republican-club-memberships-over-vaccine-mandate-enforcement?_amp)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

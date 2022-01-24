@@ -2,36 +2,36 @@
 ---
 
 
-## 拜登政府最早于2月发布加密货币的行政命令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901463/)
+## 有声|日本即将终结对华“官方开发援助”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1901488/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月14日消息，日本即将结束历时40余年的对华 “官方开发援助计划” 。该计划自1979年12月开始，结束日期为2022年3月。援助形式包括资金、技术和人才培养等各个方面。截止2015年，该计划的援助金额合计322亿美元，涉及多项中共国内大型基建目，包含北京国际机场、上海浦东机场、武汉天河机场、中日友好医院及北京地铁2号线等。
 
-整理/编辑：小红帽
+40年来，日本的友好援助和中共国的改革开放相重叠，支撑中共国走上经济大国之路。然而中共国内对此援助计划鲜有提及，大部分中国人并不知道有此援助计划，以及相应的援助资金及行动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+原文链接：[日本即将终结对华“官方开发援助”](https://gnews.org/zh-hans/1898279/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-根据《CoinDesk》1月24日报道，美国拜登政府最早将于2月发布关于加密货币的行政命令。该命令将要求联邦机构确定数字资产带来的风险和机会。
-
-《彭博社》周五援引未透露姓名的消息来源报道，白宫正在准备最早于下个月发布一项行政命令，该命令将概述政府对加密货币的全面战略，并要求联邦机构确定其风险和机会。
-
-该指令将使白宫在监督制定政策和监管数字资产方面发挥核心作用。联邦机构多年来一直在研究和提供围绕数字资产领域的监管指导。
-
-货币监理署（OCC）、美国证券交易委员会（SEC）和美国商品交易委员会（CFTC）已经发布指导信、非正式声明和公开规则制定工作，以指导加密货币行业的不同方面应如何遵守联邦法律。
-
-拜登政府高级官员已多次开会讨论该指令，该指令将在未来几周提交给总统。
-
-新闻来源：[Biden Administration to Release Executive Order on Crypto as Early as February: Report](https://www.coindesk.com/policy/2022/01/24/biden-administration-to-release-executive-order-on-crypto-as-early-as-february-report/)
-
-发布：*tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,41 +2,30 @@
 ---
 
 
-## 金融科技初创公司NextPay着眼于加密服务产品
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901435/)
+## 中日财经爆|中共国 “青客公寓”破产清算 美股跌去97%或退市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901474/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-352.jpg)[图片来源](https://us.weibo.com/1642634100/LbXdyvtih)
+中共国长租公寓头部企业–青客公寓，从美国上市高光时刻到跌落神坛，只用了不到3年。1月20日，上海市第三中级人民法院公告显示，已于1月4日裁定受理上海青客公共租赁住房租赁经营管理股份有限公司（青客公寓）破产清算一案，债权人应在3月20日前进行线上申报债权。
 
-整理/编辑：小红帽
+青客（NASDAQ：QK）2019年12月在美国纳斯达克上市，青客副总裁上市当日发文：“青客新起点，租赁大未来！”振奋人心的语句，给长租行业注入了一针强心剂。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+不过好景不长，3年不到，一切都已“换了模样”。从股价表现来看，青客公寓自上市以来一直下跌，从最高点20.44美元跌至1月21日的0.47美元，跌去约97%。由于股价已长期低于1美元，青客还面临着从纳斯达克退市的风险。事实上早在2020年，就有青客倒闭的市场传闻，但当时公司发文称，由于疫情原因公司遭遇了困难，正在通过多种途径，加快恢复生产经营。
 
+上海市第三中级人民法院裁定书显示，有债权人同时向法院申请青客公寓破产清算。文书生效后公司未履行付款义务，经债权人申请执行，因无可供执行的财产，法院终结执行程序。在黑猫投诉“投诉入口”平台，关于青客公寓的投诉超过1万条。
 
-根据《GMA》1月23日报道，在去年录得价值10亿比索的交易后，为了保持增长，金融技术初创公司NextPay正在寻求扩大其服务范围，其中包括加密货币服务。
+2019—2020年期间，青客公寓曾深陷“租金贷风波”。于青客公寓而言，租金贷是其规模扩张的助推器。
 
-NextPay首席体验官兼联合创始人奥尔德里奇·谭（Aldrich Tan）表示，NextPay对2022 年持乐观态度，因其正在探索几个推动增长的关键举措。
+根据此前的公开报道，通过鼓励租客使用租金贷，青客公寓得以提前从金融机构获取租户全年租金来补充现金流，投入运营。从2020年5月开始，青客公寓开始有意控制租金贷。根据财报信息，2020年末，青客公寓所提供的租赁单位中，租金贷提供的租金比例由上年同期的65.4%降至11.9%；合作的金融机构由原本的11家降至7家，未偿还本金余额为5450万元。
 
-“我们的目标是引入更灵活的支付方式，并探索贸易融资、企业卡和加密货币服务等高增长领域，”奥尔德里奇在电子邮件声明中表示。
+消息来源:
 
-该投资包括来自硅谷Y Combinator的种子前支持，该公司还支持本地公司Kalibrr、PayMongo、Avion School和Dashlabs.ai。投资者还包括新加坡风险投资家金门，以及苏氏家族的私人投资工具Gentree Fund。
+[长租公寓第一股青客旗下租房品牌破产清算 公司已无财产可供执行](https://finance.sina.com.cn/chanjing/gsnews/2022-01-24/doc-ikyamrmz7026448.shtml)
 
-NextPay表示计划在今年上半年开始筹集资金，但没有详细说明它希望利用哪些类型的融资。
-
-该公司于2020年推出，提供民主化的金融服务，例如数字发票、现金管理以及向当地银行和电子钱包的批量支付。
-
-另外，NextPay于去年推出了可重复使用的支付链接服务，使企业能够通过一个链接收集客户付款。该链接允许通过多种方法进行支付结算。
-
-新闻来源：[Fintech startup NextPay eyes crypto services offering](https://www.gmanetwork.com/news/money/companies/819216/fintech-startup-nextpay-eyes-crypto-services-offering/story/)
-
-发布：*tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

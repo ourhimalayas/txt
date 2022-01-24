@@ -2,30 +2,26 @@
 ---
 
 
-## 美日冲绳军演，39架共机扰台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1900923/)
+## 州长反驳福奇曾经所说的“接种率达到50%就不会有激增”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901089/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-29.jpg)资料图
-据台湾中央广播电台1月24日报道，本月17日至22日，美国、日本在冲绳海域进行联合军事演习。日方派出大型护卫舰日向号、美方派出卡尔文森号航空母舰、林肯号航空母舰，及两栖突击舰与驱逐舰等，双方共计有10艘舰艇参加演习。39架中共军机23日侵扰台湾西南防空识别区，台湾空军派遣空中巡逻兵力应对、广播驱离、防空飞弹追踪监控。
+翻译：George Yang
+校对：精靈藍
+剪辑|字幕：向上James
+编辑：Mttfly
 
-国防部自2020年9月17日起，在官网“即时军事动态”专区发布中共军机动态。2021年10月1日有38架次共机扰台；同年10月2日39架次、10月3日16架次，10月4日56架次。
+美州长罗恩·德桑蒂斯（Ron DeSantis）说拜登和福奇在疫苗接种方面上的做法是错误的。其指出，在拜登执政之前，全国单日新增最多的一天为25万6千例；现在，一天有80万和90万新增病例。所以很明显，新冠疫苗并没有阻止人们感染奥马哈（omachron）。疫苗推广者们曾说过疫苗将结束疫情。福奇说，如果50%的人接种了疫苗，就不会再出现激增。这是多么的荒谬！
 
-中共持续派遣军机对台湾进行威胁和恐吓，台湾是完全独立的民主国家，多年来一直被中共霸凌。中共在军事、经济、国际关系上处处打压台湾，把台湾当成自己的附属国。习近平更是公开宣传，不惜以武力为代价收回台湾。中共的野心对台湾、对周边国家，甚至对美国的全球战略防御系统都是威胁和挑战，其他国家也因为要共同对抗中共而更加团结。
+视频链接：[Governor rebuts Fauci’s once-held claim that there will be no surge if vaccination rates reach 50 percent](https://twitter.com/johndoe1284495/status/1482030573019607043?s=21)
 
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2122937](https://cn.rti.org.tw/news/view/id/2122937)
+*发布：tianzhihuan*
 
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

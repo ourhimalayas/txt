@@ -2,26 +2,19 @@
 ---
 
 
-## 拜登没能威慑俄罗斯和中共国，我们可能最终会陷入一场全球冲突
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901386/)
+## 太平联盟案我们一定会赢 美国一定会调查 否则美国承受不起这个代价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901456/)
 
-翻译：Frank
-校对：Lish
-剪辑|字幕：蛮吉
-编辑：Mttfly
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-前中央情报局站长丹·霍夫曼在接受福克斯新闻采访时表示，俄罗斯已经潜藏了10万军队，他们现在有一把上了膛的枪对准乌克兰。哈德逊研究所的高级研究员丽贝卡·海因里希斯认为，美国参议员们并没有为保卫乌克兰做出实质性帮助。章家敦认为，亚洲也面临同样的情况。俄罗斯和中共在军事上一旦有动作，朝鲜人、伊朗人、巴基斯坦人也会跟进，所以我们可能最终会陷入一场全球冲突。
+1月17日，郭文贵先生在GTV大直播指出：
 
-视频链接：[Senators meet in Ukraine to reaffirm US is united against ‘Putin’s belligerence’](https://www.foxnews.com/politics/senators-meet-ukraine-reaffirm-us-united-against-putins-belligerence)
+太平联盟之案，中共倾其一国之力，不惜一切代价，用尽一切下作手段企图伤害郭先生，但由于程序不正义，证据不属实，审判不合法，毋庸置疑地最终他们一定会失败。并且美国国会议员一定会参与调查此案，因为这个案件的实质，关系到司法正义和美国人的安全。中共渗透、绑架美国司法系统的恶行将暴露无遗。
 
-**发布：***tianzhihuan*
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
