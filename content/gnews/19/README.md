@@ -2,10 +2,10 @@
 ---
 
 
-## Tucker把中共病毒疫苗比做纳粹活人实验，引来一片哗然
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901586/)
+## 新罕布什尔州寻求立法将伊维菌素作为中共病毒的替代疗法
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901680/)
 
-作者：银河系农场—骄子
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,14 +13,21 @@
 
 
 
-1月22日，福克斯主持人Tucker在采访Malone时将中共病毒疫苗比做纳粹活人实验，Malone说中共病毒疫苗是生物武器，是邪恶和非法的，他很高兴看到最高法否决了疫苗强制计划。 Tucker将新冠疫苗类比与二战时期纳粹进行的生物病毒活人实验，此说法在Twitter平台引起一片哗然，大部分人并无任何事实依据，但却都来抨击此说法，有的甚至刻意挑起种族歧视与仇恨。鉴于twitter已经对反中共病毒疫苗的言论尽数删除，并实行共产主义式的严格言论审查制度，twitter平台已无任何真话。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-3.jpg)
+1月19日，美国众议院卫生、公众服务和老年事务委员会草拟一项法案，新罕布什尔州有望成为美国第一个批准将伊维菌素作为中共病毒保护性治疗的州。
+
+新罕布什尔州法案的主要发起人表示，她希望稍加修正的版本能够获得共和党多数派委员会的足够票数，来得到众议院批准。 目前，众议院已经对其他与中共病毒有关的法案表示了支持，包括在全州范围内禁止政府和私人实施与该病毒有关的强制措施。
+
+神经重症监护医生保罗·马里克博士引用世界卫生组织的数据指出，自伊维菌素作为一种抗寄生虫药物以来，已经向人类发放了37亿剂，伊维菌素是这个星球上最安全的药物之一。 目前，人用伊维菌素已经在79个国家被批准用于治疗中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-4.jpg)
 参考信息：
-[Critics Erupt When Tucker Carlson Compares Vaccines To Nazi Experiments On Jews](https://www.huffpost.com/entry/tucker-carlson-vaccine-nazi-experiments-fox-news_n_61eba042e4b03c2b084a5426)
+1. Newsweek: [New Hampshire Pharmacies Could Soon Dispense Ivermectin Without Doctor Approval](https://www.newsweek.com/new-hampshire-pharmacies-could-soon-dispense-ivermectin-without-doctor-approval-1670883)
+2. MSN –[New Hampshire Pharmacies Could Soon Dispense Ivermectin Without Doctor Approval](https://www.msn.com/en-us/health/medical/new-hampshire-pharmacies-could-soon-dispense-ivermectin-without-doctor-approval/ar-AASWHxW?ocid=uxbndlbing)
+3. [New Hampshire Seeks to Make Ivermectin an Alternative COVID Treatment Under Law](https://www.theepochtimes.com/new-hampshire-seeks-to-make-ivermectin-an-alternative-covid-treatment-under-law_4228066.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编/编辑：文特
+总编：文真
+编辑：文特
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

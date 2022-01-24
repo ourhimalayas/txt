@@ -2,31 +2,25 @@
 ---
 
 
-## 谈一谈有关郑州死亡人数瞒报的新闻
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901321/)
+## 拜登没能威慑俄罗斯和中共国，我们可能最终会陷入一场全球冲突
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901386/)
 
-作者：顺其自然
-编辑：小红帽
+翻译：Frank
+校对：Lish
+剪辑|字幕：蛮吉
+编辑：Mttfly
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/17-4.png)图片来源：自由亚洲电台
+前中央情报局站长丹·霍夫曼在接受福克斯新闻采访时表示，俄罗斯已经潜藏了10万军队，他们现在有一把上了膛的枪对准乌克兰。哈德逊研究所的高级研究员丽贝卡·海因里希斯认为，美国参议员们并没有为保卫乌克兰做出实质性帮助。章家敦认为，亚洲也面临同样的情况。俄罗斯和中共在军事上一旦有动作，朝鲜人、伊朗人、巴基斯坦人也会跟进，所以我们可能最终会陷入一场全球冲突。
 
+视频链接：[Senators meet in Ukraine to reaffirm US is united against ‘Putin’s belligerence’](https://www.foxnews.com/politics/senators-meet-ukraine-reaffirm-us-united-against-putins-belligerence)
 
-在1月21日，中共国务院公布《河南郑州“7•20”特大暴雨灾害调查报告》称，郑州市因灾死亡失踪380人，其中在不同阶段瞒报139人：郑州市本级瞒报75人、县级瞒报49人、乡镇（街道）瞒报15人。
+**发布：***tianzhihuan*
 
-报告认定郑州市及有关区县（市）党委、政府主要负责人对此负有领导责任，90名官员被处分，并定性事件“总体是天灾，具体有人祸”。中共官方还宣布撤销郑州市委书记、河南省委常委徐立毅的书记职务，并立案审查。副市长吴福民被免职，副市长李喜安、陈宏伟被记大过处分；市长侯红被降级。
-
-从郭先生2021年7月22日爆料中，我们得知，郑州市委书记徐立毅，还有什么河南省委书记，是习近平的亲信。720郑州大洪灾是泄洪在前，大雨在后。这是河南的政治斗争，地方要对抗中央。河南的地方官员基本上都是之前的人。那么之前的人肯定都是江、胡时代起来的，那也就是属于江曾势力。而这个河南省委，郑州市委这两个书记是习近平的嫡系。只要这两个书记一打电话，说什么事儿救援，调运物资，就是信号不好，然后,多少人？说中共瞒报他也不会相信的。他一直都是相信中共官方的宣传。而对于不相信中共官方宣传那些人，你告诉他瞒报了139人，他也认为这是不够的，肯定要比这更多。所以对于1月21日，中共国务院河南郑州“7•20”特大暴雨灾害调查报告》公布的，郑州市因灾死亡失踪380人，瞒报139人，这绝对不是给老百姓看的，是借这个机会来打击政治对手的，或用借口来把政治对手给弄掉，给干掉。那么，现在郑州市委书记，河南省委常委徐立毅的书记职务被撤销，而且还立案调查，就说明习近平的嫡系已经被江、曾势力，以及河南地方官员联手给干掉了。
-
-习近平与江、曾、王、孟势力的政治斗争是方方面面，各个层次各个行业的，涉及的人员众多。肯定是这次你的人被弄死了，下次我的人被干掉了，双方互有损失，但这个斗争不会停止，直到一方彻底失败消失为止。
-
-*发布：*tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

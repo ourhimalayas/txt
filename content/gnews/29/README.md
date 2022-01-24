@@ -2,37 +2,30 @@
 ---
 
 
-## 拜登政府最早于2月发布加密货币的行政命令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1901463/)
+## 中日财经爆|中共国 “青客公寓”破产清算 美股跌去97%或退市
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1901474/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-352.jpg)[图片来源](https://us.weibo.com/1642634100/LbXdyvtih)
+中共国长租公寓头部企业–青客公寓，从美国上市高光时刻到跌落神坛，只用了不到3年。1月20日，上海市第三中级人民法院公告显示，已于1月4日裁定受理上海青客公共租赁住房租赁经营管理股份有限公司（青客公寓）破产清算一案，债权人应在3月20日前进行线上申报债权。
 
-整理/编辑：小红帽
+青客（NASDAQ：QK）2019年12月在美国纳斯达克上市，青客副总裁上市当日发文：“青客新起点，租赁大未来！”振奋人心的语句，给长租行业注入了一针强心剂。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1647.png)图片来源：雅典娜设计组
+不过好景不长，3年不到，一切都已“换了模样”。从股价表现来看，青客公寓自上市以来一直下跌，从最高点20.44美元跌至1月21日的0.47美元，跌去约97%。由于股价已长期低于1美元，青客还面临着从纳斯达克退市的风险。事实上早在2020年，就有青客倒闭的市场传闻，但当时公司发文称，由于疫情原因公司遭遇了困难，正在通过多种途径，加快恢复生产经营。
 
+上海市第三中级人民法院裁定书显示，有债权人同时向法院申请青客公寓破产清算。文书生效后公司未履行付款义务，经债权人申请执行，因无可供执行的财产，法院终结执行程序。在黑猫投诉“投诉入口”平台，关于青客公寓的投诉超过1万条。
 
-根据《CoinDesk》1月24日报道，美国拜登政府最早将于2月发布关于加密货币的行政命令。该命令将要求联邦机构确定数字资产带来的风险和机会。
+2019—2020年期间，青客公寓曾深陷“租金贷风波”。于青客公寓而言，租金贷是其规模扩张的助推器。
 
-《彭博社》周五援引未透露姓名的消息来源报道，白宫正在准备最早于下个月发布一项行政命令，该命令将概述政府对加密货币的全面战略，并要求联邦机构确定其风险和机会。
+根据此前的公开报道，通过鼓励租客使用租金贷，青客公寓得以提前从金融机构获取租户全年租金来补充现金流，投入运营。从2020年5月开始，青客公寓开始有意控制租金贷。根据财报信息，2020年末，青客公寓所提供的租赁单位中，租金贷提供的租金比例由上年同期的65.4%降至11.9%；合作的金融机构由原本的11家降至7家，未偿还本金余额为5450万元。
 
-该指令将使白宫在监督制定政策和监管数字资产方面发挥核心作用。联邦机构多年来一直在研究和提供围绕数字资产领域的监管指导。
+消息来源:
 
-货币监理署（OCC）、美国证券交易委员会（SEC）和美国商品交易委员会（CFTC）已经发布指导信、非正式声明和公开规则制定工作，以指导加密货币行业的不同方面应如何遵守联邦法律。
+[长租公寓第一股青客旗下租房品牌破产清算 公司已无财产可供执行](https://finance.sina.com.cn/chanjing/gsnews/2022-01-24/doc-ikyamrmz7026448.shtml)
 
-拜登政府高级官员已多次开会讨论该指令，该指令将在未来几周提交给总统。
-
-新闻来源：[Biden Administration to Release Executive Order on Crypto as Early as February: Report](https://www.coindesk.com/policy/2022/01/24/biden-administration-to-release-executive-order-on-crypto-as-early-as-february-report/)
-
-发布：*tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
