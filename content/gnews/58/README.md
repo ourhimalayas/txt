@@ -2,31 +2,38 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1900803/)
+## 郭文贵先生解析数字货币钱包的含义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901436/)
 
-作者：香草山翻译部
+作者：纽约香草山 信息部 – 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月21日的大直播中，郭文贵先生分别解释了数字货币的热钱包和冷钱包含义。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/数字货币-.png)
 
+“热钱包”可以理解为在线的钱包，也叫“中心化钱包”，用于在线存取和交易。存在银行的法币，和当前市场上流通的数字货币，99%都使用在一定范围内流通的热钱包。其缺点是，里面的资金易被黑客盗走；宕机则无法使用；银行或数字货币发行商一旦发生倒闭，客户将损失惨重，乃至清零。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-1.png)
-校对：Stay文苑
+相对于热钱包，离线的钱包就是“冷钱包”，也叫“去中心化钱包”，或“硬钱包”，即将数字货币存放在物理硬盘里，类似于存放现金的保险箱，这是最安全的存钱方式。当热钱包的钱币数量降到设定值时，触发充钱机制，从冷钱包取币。天空互联网开通时，可避开中共网络封锁进行交易。
 
-编辑：Stay文苑
+“冷钱包”属于郭先生的首创，将整合量子电脑加密技术和生物特征识别科技，甚至可将硬钱包核心数据，放到月球或卫星上，让冷钱包里的钱不可找、不可抢、不可骗，万一丢失也可通过寻回机制找回，或得到G保险全额赔付，达到永不丢失。即使在被中共完全断网的情况下，亦可在冷钱包之间进行交易，打破受人监管的法币国家垄断，让中共找不着北，成为中共灭亡前后存钱最安全的地方。
 
-发稿：Stay文苑
+参考链接：
+[2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](https://gtv.org/video/id=61eaab2f533c672fca804729)
 
-视频参看：[1.23  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ee00ad28a108147c614d3c)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

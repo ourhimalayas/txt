@@ -2,28 +2,22 @@
 ---
 
 
-## 全球数十万人走向街头抗议强制疫苗政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1904944/)
+## 世卫组织呼吁各国取消疫情旅行禁令
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1904989/)
 
-撰稿：西枫westca
+加拿大温哥华扬帆农场    平民正道
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-54.png)图片来源：网络照片
-据多家媒体报道，在过去的这个周末，成千上万的加拿大人在全国各地数十个城市参加“为自由而抗争”的活动，抗议强制疫苗政策。
+据《美国之音》1月20日报道，[世界卫生组织]当天以“可能加剧全球经济和社会压力”为由，突然建议各国取消或放宽现有的疫情旅行限制措施。
 
-“为自由而抗争”是全球活动，几十万人在世界各地走上街头，公开反对强制接种疫苗、疫苗护照、为未成年儿童接种疫苗等。美国、加拿大、法国、意大利、英国、澳大利亚、新西兰、瑞士、阿根廷、乌拉圭、南非等超过200个城市参加了这个周末的活动，
+报道称，这项突如其来的建议是世卫组织[卫生应急委员会]在1月19日提出的，同时表示：由于目前在国际上实施的各项旅行限制并未减缓“奥米克戎”病毒疫情的蔓延，因此从长远来看，各国采取的防疫手段基本上是无效的。
 
-在多伦多，PPC领袖Maxime Bernier 发表讲话说“当暴政成为法律时，革命就成为我们的责任”， “我们正在赢得这场战斗，因为真相将永远获胜” 。在华盛顿，马龙博士及十几名医生参加了此次示威。 他在演讲时称“”疫苗不能保护我们的孩子免受Omicron感染。它们不能防止受感染的儿童感染他人。相比之下，制药公司和政府几乎完全受到保护，免受这些产品可能造成的任何损害。
+此外，建议中还强调，其他旅行健康安全措施，如配戴口罩、病毒检测、感染隔离和疫苗护照等，都应以合理的风险评估为基础，以避免给国际旅行者带来过多的经济负担。
 
-此外，“2022年自由车队”的成千上万的卡车司机从加拿大西部BC出发，与其他成员聚在首都渥太华，抗议政府对卡车司机的强制疫苗政策，一周来为卡车司机的捐款已逾三百万，参加人数可能超过50万人。
+世卫组织以上不断自相否定，出尔反尔的公共卫生建议，不仅不能正确指导各国实行有效的疫情限制措施，实际上还造成了全球防疫政策的严重混乱，并加剧了近期“奥米克戎”病毒的迅速传播。
 
-我们非常高兴看到北美、南美洲、欧洲的民众开始清醒、抵抗全球主义极权的宣传、为我们失去的自由而奋战。
+* * *
 
-**新闻来源：**
-
-[Tens of thousands of Canadians protest COVID-19 restrictions at freedom rallies across country | True North (tnc.news)](https://tnc.news/2022/01/23/tens-of-thousands-of-canadians-protest-covid-19-restrictions-at-freedom-rallies-across-country/)
-
-[Dr. Malone, Mrna Inventor, Gives Speech Against Vaccine Mandates In Washington D. C. Freedom Rally – The Washington County Auditor](https://thewashingtoncountyauditor.com/dr-malone-mrna-inventor-gives-speech-against-vaccine-mandates-in-washington-d-c-freedom-rally/)
+编辑： 平民正道    发布：平民正道
 
  
 
