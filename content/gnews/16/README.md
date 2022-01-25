@@ -2,25 +2,22 @@
 ---
 
 
-## 苏联解体离不开的秘密经济，秘密军事和当下中共国（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1907201/)
+## 美共和党议员抨击奥委会允许侵犯人权的公司参与冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907281/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 翻译/撰稿：zzballack
 
-然后重大的交易，我全都清楚。我讲了几个例子，跟日本几个交易，最后全快要成了，最后1分钟美国已经全了解了，啪去了已低于30%的价格了，拿下来。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-41.jpg)图片来源：网易
+据《华盛顿自由灯塔》（Washington Free Beacon）1月24日报道，提供技术协助中共政府监视和迫害维吾尔人和其他群体的科大讯飞（iFlytek）是北京2022冬奥会自动翻译软件的独家供应商。为此，参议院外交关系委员会（Foreign Relations Committee）主席、共和党员议员吉姆·里施 (James Risch)抨击国际奥委会说，尽管后者“声称致力于承认和维护人权”，但却允许一家协助中共侵犯人权的公司参与奥运会，这种行为“十分可耻”。
 
-经济封锁、技术封锁，而且核心技术，更重要的是秘密军事。当时美国最早大家看看所有的合集的核动力的潜水艇核动力的所有的航空母舰什么时候开始？包括护卫舰系统，然后导弹系统，北区东扩。
+里施说：“这恰恰表明，国际奥委会把利润和与北京的关系看得比什么都重要。”另一位众议员麦克·麦克考 (Michael McCaul)说：“科大讯飞参与奥运会这个例子完美地说明了中共的影响力是如何威胁到美国的价值观。”
 
-在二战之前和二战之后，他那个进度和质量完全是不同的，然后大量的人派进去，收买包括当时整个前苏联的所有的工程师。 二战之后的工程师，德国的工程师和物理工程师，几乎全部都弄到美国来。人才全部拿走，这叫秘密计划。对中共从来没有说过秘密，我告诉大家，过去20年美国有几大机构是美国国家的核心机构和商业机构都在收拾中共，从来就知道中共是敌人，一定要相信这个，你们一定要相信这个。那么这一次提到官方上正式加入到秘密，我告诉大家中国内部的人都懂啊。拜登法案之前中共了解消息以后，内部已经非常明确。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/苏联解体离不开的秘密经济，秘密军事和当下中共国.004.jpeg)
-发布： *tianzhihuan*
+科大讯飞是芯片制造商英特尔公司的合作伙伴，后者是北京冬奥会的赞助商。英特尔是科大讯飞的早期投资者，并为该公司的语音识别技术提供芯片。美国众议员道格·兰博恩 (Doug Lamborn)说：“美国必须继续制裁那些协助中共对维吾尔人进行种族灭绝的公司。”
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+人权观察 (Human Rights Watch)组织长期以来一直在抨击科大讯飞与中共的合作。“在一个监视和报复批评人士长期存在并且不受控的国家，当局可以轻易地滥用这些数据。”网络安全组织说，中共可能利用技术来监视那些参加北京奥运会的人。1月19日，北京奥组委对外联络部副部长杨舒甚至在一场视频会议上威胁说，如果运动员在冬奥会期间的任何行为或言论违反了“奥林匹克精神”，将受到“一定的惩处”。
+
+新闻来源：[Chinese Company That Surveils Uyghurs Has Major Role in Beijing Olympics](https://freebeacon.com/national-security/chinese-company-that-surveils-uyghurs-has-major-role-in-beijing-olympics/)
 
  
 

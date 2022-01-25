@@ -2,16 +2,21 @@
 ---
 
 
-## 文·贵天成 &#8211; “爆料革命”盘古开天地（三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907390/)
+## 一个一感冒就要挨饿的地方
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907461/)
 
-##### 整理：澳雅大直播工作组视频剪辑小队
+##### 翻译：Julia Gao|Warren Wang
+校对：枳实
+剪辑|字幕：蛮吉
+编辑：Mttfly
 
-文贵第一次提 ：** 一切都是刚刚开始 **！
+视频用陕西方言讲述了西安疫情爆发的前前后后。郭文贵先生爆料，冠状病毒是阻止香港人上街参加反送中运动的。疫苗是共产党的生化武器。陕西书记给陕西人打的疫苗浓度是最高的，打两针相当于河南人打十针。只有灭掉中国共产党，才能解救身处疫苗灾难中的同胞。
 
-*发布：玉米地守望者*
+视频链接：[郭先生盖特](https://app.gettr.com/post/pmi87dd11f)
 
-**更多资讯，请关注：
+*发布：Mttfly*
+**
+更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
