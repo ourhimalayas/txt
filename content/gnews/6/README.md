@@ -2,31 +2,32 @@
 ---
 
 
-## 七哥谈打PAG官司的意义（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1910128/)
+## 惨不忍睹！沪深两市超4300余股下跌创下历史记录
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1910157/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿人：冰沙奶茶
+![](https://assets.gnews.org/wp-content/uploads/2022/01/77D79081-CC65-460E-BCD3-D93CFE50E95B.jpeg)网络截图
+今日A股沪深两市低开低走。三大指数集体跳水，均跌逾2%！截至收盘，沪指跌2.58%报3433.06点，深成指跌2.83%报13683.89点，创业板指跌2.67%报2974.96点；两市合计成交9368亿元，北向资金净卖出35.74亿元。
 
-来源：郭先生2022-01-17直播11：14：53摘录
+两市下跌个股超4300股，上涨个股不到300只，其中跌幅：
 
-这是作为律师你去想想我们活在美国，我有一个梦，我们华人如果在美国，就像在 PAG官司面前，今天要妥协了，今天要放弃了，我们华人在美国就会被无数次、被共产党等坏人推到了铁轨当中，而且没有人替你说话。如果我们这次官司打不到真相出来 ，我们中国人在美国将永远成为司法的奴隶，司法的牺牲品，共产党会穷追猛打，把所有人在海外毁掉。严格讲PAG的官司，它已经不那么简单了，它牵扯着巨大的种族问题，巨大的法律的黑洞，和美国的司法制度的缺陷，所以接下来的才有更大的事情。
+-3%及以上3370只，
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+-5%及以上1532只，
 
-**关注我们**
+-7%及以上443只，
 
-Discord 账号
+据墙内腾讯自选股统计，这一数据创下历史记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/763C9873-CCF7-4034-A302-B6B17A7C1C91.jpeg)网络截图
+业内专业人士分析普遍认为是：受欧美股市下跌、乌克兰动荡、美联储加息等外围风险影响。从以往经验来看，临近传统新年主力的收割持币过节是一贯手法，但从如此惨烈，满盘皆绿的场景来看肯定没那么简单。一定有什么发生才会这么恐慌纷纷夺命出逃！
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+果不其然，美国当地时间2022年01月25日郭先生紧急直播中宣布：美国政府已经正式通知北京政府，即日起，授权撤离美利坚共和国驻北京大使馆。这是由拜登先生和布林肯先生做出了重大决定，这是美国和全球各爱好正义的人士做出的正确决定。
 
-Gettr 账号
+这个重大利好将揭开疫苗真相，停止疫苗灾难，使人们能够恢复以往正常的生活，也使饱受疫情折磨经济恢复正常。不用怀疑资本嗅觉的灵敏度，它已经表明了态度，共产党的末日已经到来。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+新闻来源：[https://finance.sina.com.cn/stock/marketresearch/2022-01-25/doc-ikyakumy2520118.shtml?cref=cj](https://finance.sina.com.cn/stock/marketresearch/2022-01-25/doc-ikyakumy2520118.shtml?cref=cj)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-2.jpg)
+发稿：MG6
 
  
 

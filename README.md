@@ -15,80 +15,80 @@
 
 ---
 
-### [【玫瑰看新闻】每日快讯2021年1月24日（新西兰时间）](/content/gnews/1/README.md)
+### [1/25/2022 文贵重大公告：在中国和全世界制造了一场又一场人道灾难的中共竟要在没有环境保护、没有人权、没有言论自由和人身自由的情况下举办冬奥会，这是对奥林匹克精神莫大的侮辱](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022/01/25 文贵紧急大直播&#8211;“甜蜜蜜”运动](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022年1月25日大直播速记精萃](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [【玫瑰看新闻】每日快讯2021年1月24日（新西兰时间）](/content/gnews/4/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [1/25/2022 文贵直播：，新中国联邦传播了有关中共所犯下的人权罪行和病毒、疫苗的真相](/content/gnews/2/README.md)
+### [1/25/2022 文贵直播：，新中国联邦传播了有关中共所犯下的人权罪行和病毒、疫苗的真相](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [惨不忍睹！沪深两市超4300余股下跌创下历史记录](/content/gnews/3/README.md)
+### [惨不忍睹！沪深两市超4300余股下跌创下历史记录](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [七哥谈利益勾兑（2022-01-17摘录）](/content/gnews/4/README.md)
+### [七哥谈利益勾兑（2022-01-17摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [1/25/2022 文贵直播：西方掌握了中共不守国际秩序、搞渗透与破坏的证据](/content/gnews/5/README.md)
+### [1/25/2022 文贵直播：西方掌握了中共不守国际秩序、搞渗透与破坏的证据](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈打PAG官司的意义（2022-01-17摘录）](/content/gnews/6/README.md)
+### [七哥谈打PAG官司的意义（2022-01-17摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [DC每日热点0125](/content/gnews/7/README.md)
+### [DC每日热点0125](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚旅游企业请求政府提供紧急帮助](/content/gnews/8/README.md)
+### [澳大利亚旅游企业请求政府提供紧急帮助](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [&#8220;最可怕的事情是嫉恶，侮辱、羞辱和时间的煎熬&#8221;(2022-01-17摘录）](/content/gnews/9/README.md)
+### [&#8220;最可怕的事情是嫉恶，侮辱、羞辱和时间的煎熬&#8221;(2022-01-17摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [1/25/2022 文贵直播：早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方](/content/gnews/10/README.md)
+### [1/25/2022 文贵直播：早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国政府授权撤离美驻北京大使馆](/content/gnews/11/README.md)
+### [美国政府授权撤离美驻北京大使馆](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [反疫苗暴政的英雄医生们正在为全球民众的自由战斗着](/content/gnews/12/README.md)
+### [反疫苗暴政的英雄医生们正在为全球民众的自由战斗着](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥谈美国的治国根基就是法律(2022-01-17摘录）](/content/gnews/13/README.md)
+### [七哥谈美国的治国根基就是法律(2022-01-17摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [支持者聚集在卡尔加里为数百名抗议疫苗暴政的卡车司机提供物资和支持](/content/gnews/14/README.md)
+### [支持者聚集在卡尔加里为数百名抗议疫苗暴政的卡车司机提供物资和支持](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [新中国联邦重大公告及美国务院最新表态](/content/gnews/15/README.md)
+### [新中国联邦重大公告及美国务院最新表态](/content/gnews/18/README.md)
  ` 华盛顿DC-Russian`
 
-### [“我强奸了全世界”（2022-01-17摘录）](/content/gnews/16/README.md)
+### [“我强奸了全世界”（2022-01-17摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [以色列“砖家”小组建议成人接种第四剂CCP病毒疫苗](/content/gnews/17/README.md)
+### [以色列“砖家”小组建议成人接种第四剂CCP病毒疫苗](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [七哥谈FBI利益冲突（2022-01-17摘录）](/content/gnews/18/README.md)
+### [七哥谈FBI利益冲突（2022-01-17摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [七哥谈藐视法庭（2022-01-17摘录）](/content/gnews/19/README.md)
+### [七哥谈藐视法庭（2022-01-17摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [好医生用伊维菌素救治千人 却不得不寒心离职](/content/gnews/20/README.md)
+### [好医生用伊维菌素救治千人 却不得不寒心离职](/content/gnews/23/README.md)
  ` 焦點20分`
 
-### [“恶意返乡”](/content/gnews/21/README.md)
+### [“恶意返乡”](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [七哥说“我们会上诉上诉上诉上诉”（2022-01-17摘录）](/content/gnews/22/README.md)
+### [七哥说“我们会上诉上诉上诉上诉”（2022-01-17摘录）](/content/gnews/25/README.md)
  ` MG FARM`
-
-### [七哥谈美国和西方的媒体不是一般的关注（2022-01-17摘录）](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [七哥说“你们能想象共产党在世界的黑手有多么黑暗。” （2022-01-17摘录）](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [MV版Hcoin To the Moon上线47天第30次位列匈牙利iTunes热门MV榜首](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`

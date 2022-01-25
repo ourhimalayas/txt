@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 11:04 PM (UTC)`
+
+1/25/2022 Miles Guo’s Big Announcement: I, along with countless fellow fighters behind the scenes who are risking their lives, have been doing our best to stop the CCP from hosting the Winter Olympics. We hope to prevent the tragidies similar to the Holocaust committed by the Nazis after the 1936 Olympics from happening in China, and we are honored to see the boycotts of the Winter Olympics and a series of actions against the CCP by the United States and other countries around the world that care about the democracy, rule of law, and freedom of the Chinese people!<br/><br/>1/25/2022 文贵重大公告：文贵和背后无数冒着生命危险的战友在全力阻止中共举办冬奥会，我们希望避免类似1936年奥运会后纳粹屠杀犹太人的惨剧在中国上演，我们很荣幸地收获了美国及世界上关心中国人民主、法治、自由的国家对冬奥会的抵制以及针对中共的一系列行动！<br/>
+![img](https://media.gettr.com/group45/getter/2022/01/25/23/015c6855-8cb1-f91e-e7e4-bd911e59bb85/out.jpg)
+
+---
+
 `@miles 1/25/2022 10:23 PM (UTC)`
 
 1/25/2022 Miles Guo’s Big Announcement: The CCP, which has created one humanitarian disaster after another in China and around the world, is hosting the Winter Olympics without environmental protection, human rights, freedom of expression, and personal freedom. The Winter Olympics is a huge insult to the Olympic spirit and will result in immeasurable harm and human rights violations against the Chinese people. The International Olympic Committee has betrayed the Olympic spirit and sold its soul and principles!<br/><br/>1/25/2022 文贵重大公告：在中国和全世界制造了一场又一场人道灾难的中共竟要在没有环境保护、没有人权、没有言论自由和人身自由的情况下举办冬奥会，这是对奥林匹克精神莫大的侮辱，对中国人民带来的伤害和人权的侵犯将无法估量；国际奥委会背叛了奥林匹克精神、出卖自己的灵魂和原则！<br/>
@@ -147,13 +154,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1月24号：尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这首最伟大的跨代的歌曲……迅速屏蔽．这就是共产党的恐惧，和我们有灭共能力的证据，一切都已经开始！
 ![img](https://media.gettr.com/group21/getter/2022/01/24/23/d30350f8-649a-5cb4-b9a2-8779a8526aba/out.jpg)
-
----
-
-`@miles 1/24/2022 10:10 PM (UTC)`
-
-1/24/2022 Miles Guo: Xi Jinping has no confidence in what the Winter Olympics will turn out to be. At the opening ceremony of the Winter Olympics, it is forbidden to mention that Deng Xiaoping “drew a circle” in southern China, and it is required that Xi should be called “the core leader of the Party and the State”, granting him dictatorship. It is also ordered to describe the Winter Olympics as “reform and opening up leading to a new era”.<br/><br/>1/24/2022 文贵直播：习神对冬奥会能办成啥样很不自信；冬奥会开幕式不允许提邓小平在南方画了个圈，要称习为党和国家核心领导人以定一尊，还要把冬奥会说成是改革开放走向新纪元<br/>
-![img](https://media.gettr.com/group32/getter/2022/01/24/22/bdff3a88-7538-10da-dafa-93256e787e68/out.jpg)
 
 ---
 
