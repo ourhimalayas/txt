@@ -2,23 +2,28 @@
 ---
 
 
-## 闻七哥通告美使馆即将撤离北京
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1908998/)
+## GTV新闻访谈简报|2022年1月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1909048/)
 
-撰稿：东京樱花团/夏虫不可语冰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-63.png)
-七哥忽传美脱钩，初闻涕泪满衣裳。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-却看战友懵何事，漫卷诗书喜欲狂。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-白日放歌须纵酒，夜行锦衣好还乡。
+视频参看：[2022.01.25早GTV新闻访谈](https://gtv.org/video/id=61effaef28a108147c62504f)
 
-谎言暴力共产党，噩梦缠身命不长。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

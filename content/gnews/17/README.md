@@ -2,34 +2,135 @@
 ---
 
 
-## 加拿大专家称不强制儿童接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1909102/)
+## 小年涂鸦:CCP是毁掉人伦的人类公敌
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1909238/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月23外媒报道，在加拿大5至11岁的儿童中，低于50%的人接种了第一针中共病毒疫苗。根据加拿大公共卫生局的数据，大约5%的5至11岁儿童已经完全接种疫苗。
+#### 来自中国民间
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16431349871.png)
+又到腊月二十三，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-6.jpeg)
+灶王述职要上天，
 
-2020年，曾有关于强制儿童疫苗接种的立法，但被否决了。目前，加拿大没有任何省或地区政府宣布在学校强制接种中共病毒疫苗的计划。但加拿大专家说，现在不是强制学生接种疫苗时候，事实上，政府强制疫苗的政策弊大于利。
+上天本来是好事，
 
-加拿大各地都有反强制疫苗接种的活动，近期，加拿大卡车司机正在举行一个名为“2022自由车队”的抗议活动，以抗议政府的疫苗护照政策。
+今年灶王却犯难。
 
-参考链接：[Now isn’t the time for vaccine mandates, even with low rate of COVID-19 shots for kids: experts](https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-isn-t-the-time-for-vaccine-mandates-even-with-low-rate-of-covid-19-shots-for-kids-experts-1.6324433)
+都说上天言好事，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+如今好事少可怜，
 
-总编：Zion文恩
-编辑：Ivy001
-校正/发稿：谐趣园
+若是如实来奏报，
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+玉帝震怒后果惨。
+
+若是隐瞒虚假造，
+
+我不也同人世官？
+
+心事重重步蹒跚，
+
+忽遇阎王把路拦，
+
+二人寒喧没几句，
+
+阎王忽然把脸翻：
+
+今天我去见玉帝，
+
+就是奏本把你参。
+
+参你人间不作为，
+
+告你渎职尘世间：
+
+宠恶少扬善，
+
+坏人成倍翻，
+
+无辜遭碰瓷，
+
+救人被诬陷。
+
+医者无医德，
+
+当官几不贪？
+
+千年文明史，
+
+被当四旧砍，
+
+仁义礼智信，
+
+统统变空谈。
+
+人性被埋没，
+
+信仰全玩完。
+
+唯我为独尊，
+
+一切向钱看。
+
+黄毒娼嫖赌，
+
+坑蒙拐偷骗。
+
+法无制约力，
+
+本性善沦陷。
+
+害我地狱门，
+
+恶鬼全挤烂。
+
+地狱十八层，
+
+层层全爆满。
+
+申请建高层，
+
+财神不拔款。
+
+灶王忙作揖，
+
+频频把头点。
+
+阎兄教训对，
+
+句句是良言。
+
+弟回人间后，
+
+力劝人为善。
+
+恶人必遭报，
+
+地狱门别关。
+
+请兄建高层，
+
+费用我全管。
+
+咱俩见玉帝，
+
+同把天公劝：
+
+共劝天公重抖擞，
+
+不拘一格降人才。
+
+金猴奋起千钧棒，
+
+玉宇澄清万里埃。
+
+莫笑老朽妄忧天，
+
+但愿世人都向善。
+
+善有善报结善果，
+
+灶王下界保平安。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

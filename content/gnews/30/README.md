@@ -2,41 +2,24 @@
 ---
 
 
-## 有声|印度疫苗致死患者家属起诉政府和比尔-盖茨
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1909005/)
+## 日本民众在觉醒 要求停止给未成年人接种疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1909054/)
 
-配音：香草山巡管部– 文凯琳
+撰稿：东京樱花团｜闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-1.png)
+图片来自信息网站
 
+1月25日据RBC琉球广播电视台报道，冲绳县将于3月开始给儿童接种中共病毒疫苗。本月25日，该县的一个由医生和孩子家长组成的民间团体向冲绳县政府提交了一份请求书，要求停止给未成年人接种中共病毒疫苗，因该疫苗的中长期副作用尚不明确。
 
+日本政府1月21日宣布将允许给5岁以上、12岁以下的儿童接种疫苗。该团体呼吁县政府在中共病毒疫苗的安全性和有效性还未得到证实之前，为儿童接种中共病毒疫苗的问题应该认真考虑，并说在没有解决家长的担忧的情况下进行疫苗接种是有问题的。当涉及到孩子的问题时，民众就不会那么容易被忽悠了，这关乎着日本的未来，今后一定会有更多的家长和医生站出来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+信息来源：
 
+[**未成年へのワクチン停止を 要望書を提出**](https://www.rbc.co.jp/news/news_all/%e6%9c%aa%e6%88%90%e5%b9%b4%e3%81%b8%e3%81%ae%e3%83%af%e3%82%af%e3%83%81%e3%83%b3%e5%81%9c%e6%ad%a2%e3%82%92%e3%80%80%e8%a6%81%e6%9c%9b%e6%9b%b8%e3%82%92%e6%8f%90%e5%87%ba/)
 
-
-当地时间1月20日，据相关媒体报道，印度一名23岁的男子卡德维于2021年9月29日接种了阿斯利康中共病毒疫苗后，因疫苗副作用在当天不幸身亡。随后，其母在当年年底代替她已故的儿子向孟买高等法院提交了一份刑事诉讼请愿书。
-
-据悉，这位母亲在该请愿书中指控比尔-盖茨、印度疫苗沙皇阿达尔-普纳瓦拉、印度政府和当地公共卫生官员共同谋杀了她的儿子，而此类法律案件可能是全球首例。
-
-原文链接：[印度疫苗致死患者家属起诉政府和比尔-盖茨](https://gnews.org/zh-hans/1903807/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  
