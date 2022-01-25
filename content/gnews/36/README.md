@@ -2,38 +2,31 @@
 ---
 
 
-## 韩国的中共病毒感染、疫苗接种与人口变动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1908545/)
+## 新中国联邦欢迎和支持美国政府作出授权撤离美国驻中国大使馆
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1908643/)
 
-作者：香草山教育部-Corn
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年，韩国中共病毒的感染人数达到了六十三万五千两百五十三人人，染疫死亡者也有5,625人。2020年，这两个数据分别是感染6万零7百4十人和染疫死亡900人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-34.jpg)
-另外，根据韩国疾病管理厅给出的数据，截至2021年，因疫苗接种死亡的案例是1,340例，在2022年这一数据将不再更新，因此没有最新的数据。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/56ba3b699e96a299bb1b344ef0c4f2bb.jpeg)
+图片来源：1.25号文贵直播截图
 
-与此同时，疫苗二次接种率已超过83%的韩国，2021年总人口数较2020年减少了19万零2百一十4人，这无疑是死亡人口的激增和出生人口大量减少造成的。
+2022.1.25 郭文贵先生重大宣布：
 
-而最新的3针疫苗接种情况显示，绝大多数民众还处在被蒙蔽中，推动疫苗政策的执政党很有可能大概率维持现有政策。即将到来的2022年3月新一届总统选举，给原本复杂的形势增添了更大的不确定性，整体局势不容乐观。
+就在刚刚，我们得知非常重要的，由美国政府拜登总统 和布林肯先生做出了重大的决定。
 
-参考链接：
-1) . [주민등록 인구 기타현황](https://jumin.mois.go.kr/etcStatDeath.do)
-2) .[**코로나19 예방접종 및 국내 발생 현황(1.5.)**](https://www.kdca.go.kr/board/board.es?mid=a20501010000&amp;bid=0015&amp;list_no=718196&amp;cg_code=&amp;act=view&amp;nPage=3%E9%9F%A9%E5%9B%BD%E7%96%BE%E7%97%85%E7%AE%A1%E7%90%86%E5%8E%85%E5%AE%98%E7%BD%91)
-3) . [新型冠状病毒肺炎（COVID-19）韩国疫情动态图](http://www.ckjorc.org/cn/charts/krcovid19.html)
-4) . [**코로나19 예방접종 및 국내 발생 현황(12.12.)**](https://www.kdca.go.kr/board/board.es?mid=a20501010000&amp;bid=0015&amp;list_no=717922&amp;cg_code=&amp;act=view&amp;nPage=10)
+这个决定是由美国的法治，和多个爱护民主、法治的人，以及无数个全球的各民族、各国家的爱好正义的人士对冬奥会的抵制以及对人权的维护，对法治的维护做出的正确决定！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+美国政府已经正式通知北京政府，从即日起叫做授权撤离美利坚共和国驻北京大使馆！
 
-总编: 飞虹
-编辑： Ivy001
-校正/发稿：Fei797
+这是一个重大的决定！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们非常地欢迎和支持美国总统拜登先生，和布林肯先生做出这个巨大的政治决定，它对抵制北京冬奥会，找到病毒真相，停止疫苗灾难，停止新疆大屠杀、种族大屠杀，停止在世界上发生的、继续发生的各种人道灾难 ，这是巨大的帮助。 这是新中国联邦和维护法治、维护人权(的)全球人民的胜利！
+
+我们感谢布林肯先生有这样的智慧，感谢美国总统拜登先生，做出这样伟大的决定！ 历史会证明，这会超过美国总统，任何一次对人类和人权的维护的意义！ 上天、上帝会保护你们！ 全球的人民会感谢你们！
+
+郭文贵Miles Guo代表全球的新中国联邦人民，在此对美国总统拜登先生和布林肯先生以及美国人民致以衷心的感谢！ 我们永远地和你们奋斗在一起，直到消灭一个绑架中国14亿人民，和威胁全人类安全的共产党为止，我们将永远地建立一个与美国，和世界的文明社会千年的和平关系。
+
+一切都是刚刚开始！ 谢谢！
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

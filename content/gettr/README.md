@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 5:45 PM (UTC)`
+
+A Thank You letter from the New Federal State of China to President Joe Biden and Secretary of State Anthony Blinken regarding closing US Embassy in Beijing <br/><br/>新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
+![img](https://media.gettr.com/group28/getter/2022/01/25/17/2500a3c8-9287-5099-0472-41edab12734d/b7733666aeff3715eb904aaac4bb7e90.jpg)
+
+---
+
 `@miles 1/25/2022 5:28 PM (UTC)`
 
 1月25号：大功告成……馍馍出锅……
@@ -148,13 +155,6 @@ New Release                                              Shop Now at www.gfashio
 `@miles 1/23/2022 4:12 PM (UTC)`
 
 1月23号：邪恶的共产党再也不会．回到还想干什么，就干什么的，那个时代了！共产党．正在以光的速度走向死亡。【塞浦路斯法官因技术问题保释中国二人组 】Another article from the biggest newspaper in Cyprus: <br/><br/>https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality
-
----
-
-`@miles 1/23/2022 3:04 PM (UTC)`
-
-1月23号：在欧洲议会上．震聋发聩的声音．和有良知人的正义的力量．最终会战胜邪恶的！这个视频我看了很多遍！谋杀就是谋杀．谋杀就是谋杀……那些没有受过高等教育和专业医疗教育的人，怎么会知道疫苗是没有经过验证和充分的科学证明的谋杀人的生化武器呢？这说的太好了，问的太好了．新中国联邦朋友无处不在……力量无处不在，我们将改变这个世界上无处不在的黑暗势力……
-![img](https://media.gettr.com/group33/getter/2022/01/23/15/8db6b157-76ff-79a8-2815-145841a818df/out.jpg)
 
 ---
 
