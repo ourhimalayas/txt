@@ -2,22 +2,22 @@
 ---
 
 
-## 从强制疫苗接种看极权主义之恶
-` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/1903777/)
+## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
 
-作者：Pangbo 磅礴
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-15.png)
-整整两年在CCP病毒的肆虐下，全球感染和死亡人数都在不断地攀升；在这一个个冰冷的数字背后，却是一条条鲜活生命地消逝，更是一个个家庭希望的破灭。不但如此，正如郭先生所言，疫苗的灾难很快就会接踵而来。时至今日已有多少人是因为疫苗的副作用而导致死亡的？！恐怕真实的数据永远都不会被公布出来。
+**疫情關注組 / 發佈時間｜24/1/2022**
 
-世界人民正在承受着前所未有的死亡威胁，这个事实无不使每个有良知的人心中感到伤痛；更让人感到愤怒的是各国政府不但不追寻病毒的源头，反倒是全面、强制推行疫苗的接种；却不公开疫苗的副作用所带来的可怕后果，各国政府在以他们手中的权力威逼利诱，向人们施打疫苗。这些决策者若不是出于无知，就是出于为自己获得更大利益而丧失人性，或者他们是同时迷失在了无知与贪婪中！否则他们就不会对如此强烈的反疫苗的呼声置若罔闻。这种违背人性的极权管理统治，必然会使得人民更为强烈地大面积反弹；有一天所有强制人民接种疫苗的政要，最终都会受到人民的审判。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-圣经罗马书13章1-7节，这段经文的传统解释为：作为基督徒应当顺服在政府的权柄上；但同时也提到他们是上帝的用人，是要向上帝交账的！罗马书13章第4节讲到政府的功能是为百姓伸冤、刑罚罪恶，并且维护社会的公平正义；政府是为了人民的福祉而存在的！这是神所受命的！这样的政府是基督徒应该顺服的。但是如果政府反其道而行之，甚至邪恶的极权者妄想成为上帝，必会遭到上帝的惩罚和审判！作为基督徒的爆料革命战友，更当为正义而发声。因为“上帝要求我们的就是行公义、好怜悯、存谦卑，这样的心与你的上帝同行 ！”
 
-感恩郭先生从2017年出来，发起不流血的爆料革命。救中国人脱离CCP的奴役。愿更多有良知且已醒过来的中国人站起来一起“Take down the CCP!”与七哥同心同行，共同灭共！
+据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
 
-校对：面包树/一念
+[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
 
-排版上传：一念
+以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
+来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
 
  
 
