@@ -2,25 +2,31 @@
 ---
 
 
-## 《历史今天》2022.01.25
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1908040/)
+## 有声|新中国联邦创始人郭文贵先生寄语G-EDU上线
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908108/)
 
-作者：映兰轩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-241.png)
-1. 1900年：德国发表第二期建艇法案，开始扩充海军舰队
-2. 1901年：美国众议院提出法案，禁止中国移民入境
-3. 1912年：袁世凯及各北洋军阀将领通电支持共和
-4. 1924年：第一届冬季奥林匹克运动会开幕典礼于法国上萨瓦省夏慕尼的白朗峰山脚举办
-5. 1960年：苏联正式结束劳改营系统
-6. 1981年：林彪、江青反革命集团案（四人帮）审结
-7. 2003年：三通：第一架飞抵中国大陆机场的台湾客机起飞
-8. 2005年：比尔与梅林达·盖茨基金会给予全球疫苗与免疫联盟7.5亿美元的捐赠
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月21日盖特消息，郭文贵先生对新中国联邦GEDU教育平台上线寄予厚望。
 
+GEDU教育平台由喜马拉雅纽约磐石农场开发，历经两个月运行，于1月21日正式上线。郭先生庆贺G-EDU教育平台成功上线，并感谢教育平台战友们的辛勤付出。
 
-* * *
+郭先生表示，新中国联邦的教育平台上线意义重大。在病毒疫情的艰难时刻，我们有了新的希望，新的未来。它的目标和方向，就是在没有共产党的新中国联邦来后，培养一批智慧，勇敢，善良，有信仰的，健康诚实的，让人尊敬的新中国新一代人！
 
-*发布：Theodosia*
+文字版原文：[新中国联邦创始人郭文贵先生寄语G-EDU上线](https://gnews.org/zh-hans/1898155/)
 
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
