@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 12:52 AM (UTC)`
+
+1/24/2022 Miles Guo: The Tian Mi Mi movement has gained the support from those in the CCP and people from all walks of life in Communist China, so Xi Jinping's “China Dream” will be turned into a nightmare. The Monument to the People's Heroes will be changed to the Monument to the Mothers and engraved with stories of the Chinese mothers such as Yang Gailan, and the Mausoleum of Mao Zedong will be converted to the memorial hall for 1 billion victims slaughtered by the CCP. Today’s live broadcast is definitely epoch-making!<br/><br/>1/24/2022 文贵直播：甜蜜蜜运动获得了党内及各界人士的支持，习近平的中国梦将成噩梦；人民英雄纪念碑要改为母亲碑并刻上杨改兰等中国母亲的故事，毛泽东纪念堂要改成十亿冤魂纪念堂；今天的直播绝对是划世纪的！<br/>
+![img](https://media.gettr.com/group42/getter/2022/01/25/00/39859935-5782-c864-6035-a6c67b1093b6/out.jpg)
+
+---
+
+`@miles 1/25/2022 12:45 AM (UTC)`
+
+1/24/2022 Miles Guo: The CCP will launch a propaganda campaign to turn the Winter Olympics, which will have no audience, into a huge success with 1.2 billion viewers, paving its way to invade Taiwan. I am going to initiate a “Tian Mi Mi” Movement at the doorstep of the CCP’s old kleptocrats to make a big move in Beijing!<br/><br/>1/24/2022 文贵直播：中共将开动宣传机器把没有观众的冬奥会说成是有12亿人看的巨大成功的奥运会，为打台湾做铺垫；文贵要在中共老杂毛家门口来个“甜蜜蜜”运动，在北京整点大动静！<br/>
+![img](https://media.gettr.com/group25/getter/2022/01/25/00/99a85cd2-a171-af07-6d34-52efc7512f64/out.jpg)
+
+---
+
 `@miles 1/24/2022 11:35 PM (UTC)`
 
 1月24号：尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这首最伟大的跨代的歌曲……迅速屏蔽．这就是共产党的恐惧，和我们有灭共能力的证据，一切都已经开始！
@@ -144,24 +158,6 @@ New Release                                              Shop Now at www.gfashio
 
 啥也不说了，战友们太棒了！<br/>
 ![img](https://media.gettr.com/group40/getter/2022/01/22/20/ad6ba460-373b-8d68-4a81-b1b512f7cefd/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 1/21/2022 6:16 PM (UTC)`
-
-New Release                                              Shop Now at www.gfashion.com
-![img](https://media.gettr.com/group46/getter/2022/01/21/18/e501efd7-6d18-a516-bc13-846218667fe0/3a5d049dbe2a34f5160528d245fc160f.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 1/22/2022 5:18 PM (UTC)`
-
-New Drop coming Monday at Noon on www.gfashion.com
-![img](https://media.gettr.com/group38/getter/2022/01/22/17/9394e5dc-aafc-8d68-cc58-3aedc3427f52/61c670e6a53b55d9942330faa32383b8.jpg)
 
 ---
 
