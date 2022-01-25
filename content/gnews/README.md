@@ -15,61 +15,61 @@
 
 ---
 
-### [1/24/2022 文贵直播：文贵要在中共老杂毛家门口来个“甜蜜蜜”运动，在北京整点大动静](/content/gnews/1/README.md)
+### [PCR居家测试将打破中共封锁新中国联邦一智能除千年愚](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [1/24/2022 文贵直播：文贵要在中共老杂毛家门口来个“甜蜜蜜”运动，在北京整点大动静](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [新中国联邦让你不打疫苗还发财病毒解药是沼泽地的噩梦](/content/gnews/2/README.md)
+### [新中国联邦让你不打疫苗还发财病毒解药是沼泽地的噩梦](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [善良真实勇敢的付出必有好回报](/content/gnews/3/README.md)
+### [善良真实勇敢的付出必有好回报](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【秘翻在线】乌克兰外交部谴责美国大使馆人员的撤离](/content/gnews/4/README.md)
+### [【秘翻在线】乌克兰外交部谴责美国大使馆人员的撤离](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [全世界沼泽地四五十个同谋用病毒和疫苗杀人赖掉保险费](/content/gnews/5/README.md)
+### [全世界沼泽地四五十个同谋用病毒和疫苗杀人赖掉保险费](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美媒曝中共病毒测试公司涉嫌造假及掩盖](/content/gnews/6/README.md)
+### [美媒曝中共病毒测试公司涉嫌造假及掩盖](/content/gnews/7/README.md)
  ` 华盛顿DC-Russian`
 
-### [不打疫苗还免费为世界提供解药的新中国联邦是新沼泽地](/content/gnews/7/README.md)
+### [不打疫苗还免费为世界提供解药的新中国联邦是新沼泽地](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [王岐山和曾庆红把习近平推上冬奥会和达沃斯论坛的谢幕](/content/gnews/8/README.md)
+### [王岐山和曾庆红把习近平推上冬奥会和达沃斯论坛的谢幕](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [习近平提疫苗经济就是要用被打疫苗者的生病和死亡发财](/content/gnews/9/README.md)
+### [习近平提疫苗经济就是要用被打疫苗者的生病和死亡发财](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [加拿大魁北克省一家医院的护士无意间说出了关于疫苗和疫情的真相](/content/gnews/10/README.md)
+### [加拿大魁北克省一家医院的护士无意间说出了关于疫苗和疫情的真相](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [在最黑暗的2022年病毒基本结束后人类步入疫苗灾难期](/content/gnews/11/README.md)
+### [在最黑暗的2022年病毒基本结束后人类步入疫苗灾难期](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](/content/gnews/12/README.md)
+### [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](/content/gnews/13/README.md)
  ` YALUN 亚伦`
 
-### [每日快报： 新罕布什尔州药店可能很快可以提供伊维菌素](/content/gnews/13/README.md)
+### [每日快报： 新罕布什尔州药店可能很快可以提供伊维菌素](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [习近平最怕美国加息挤破中国泡沫中国老百姓去杀共产党](/content/gnews/14/README.md)
+### [习近平最怕美国加息挤破中国泡沫中国老百姓去杀共产党](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥2017年说的踢出中概股和美国金融危机已如期而至](/content/gnews/15/README.md)
+### [七哥2017年说的踢出中概股和美国金融危机已如期而至](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [孙力军明白电视一认罪就不会死就会看着习、王互相弄死](/content/gnews/16/README.md)
+### [孙力军明白电视一认罪就不会死就会看着习、王互相弄死](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文贵先生直播重点大纲2022/01/24](/content/gnews/17/README.md)
+### [文贵先生直播重点大纲2022/01/24](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平以外溢效应暗示脱钩就输出革命和贫穷大家一起死](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [世界与共产党脱钩意味着中国人民彻底脱险、脱假、脱控](/content/gnews/19/README.md)
+### [习近平以外溢效应暗示脱钩就输出革命和贫穷大家一起死](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [1/24/2022 文贵直播：冬奥会开幕式不允许提邓小平在南方画了个圈，要称习为党和国家核心领导人以定一尊，还要把冬奥会说成是改革开放走向新纪元](/content/gnews/20/README.md)
