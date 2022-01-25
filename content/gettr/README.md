@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 2:10 PM (UTC)`
+
+1月25日，尊敬的战友们, 七哥马上开始有关“甜蜜蜜运动”重大紧急公告，请到GTV和盖特观看直播！<br/><br/>January 25th, 2022 Dear fellow fighters, Miles Guo will have important emergency announcement about the “ Tian Mi Mi Movement” very soon, please go to GTV and GETTR for live broadcast!
+![img](https://media.gettr.com/group29/getter/2022/01/25/14/51729ac6-e202-34c5-fabd-bd82967cf160/da9b2af69d08b24c5644c2236ef714cc.jpg)
+
+---
+
 `@miles 1/25/2022 12:58 PM (UTC)`
 
 Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者，他只能别无选择的看着这些病人死去。最终，邪恶的医院结束了他的医学生涯。<br/><br/>Dr. Paul Marik was forbidden by the hospital to treat patients with the CCP virus the way he had to be to treat patients ; he had no choice but to watch them die. Eventually the evilness of the hospital ended his medical career.<br/>
@@ -150,13 +157,6 @@ New Release                                              Shop Now at www.gfashio
 
 1/21/2022 Miles Guo: My personal experiences reflect the world’s antipathy towards the Chinese diasporas instigated by the CCP. So, we must work diligently to spread the truth provided by the Whistleblowers’ Movement, and this is our sacred mission! The "sheep culture" that renders the Chinese people indifferent, selfish, and cowardly is the biggest challenge to the New Federal State of China!<br/><br/>1/21/2022 文贵直播：文贵的亲身经历反映出中共让全世界对海外华人产生的反感，因此我们要更加勤奋地传播爆料革命真相，这是我们神圣的使命！让中国人麻木、自私、懦弱的“羊文化”是新中国联邦最大的难题！<br/><br/>
 ![img](https://media.gettr.com/group34/getter/2022/01/23/03/0a8eefa8-ffce-0bb2-6d9a-16f0161be4b9/out.jpg)
-
----
-
-`@miles 1/23/2022 2:24 AM (UTC)`
-
-1月22号：尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！
-![img](https://media.gettr.com/group40/getter/2022/01/23/02/ae1c1413-a09d-fd0e-79f6-f63dfc5dc1cf/out.jpg)
 
 ---
 

@@ -15,83 +15,83 @@
 
 ---
 
-### [随着乔•罗根等大人物加入盖特，盖特用户达到大约430万](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [串珠544:江曾朱家族出卖大片国土到今天还在收钱](/content/gnews/2/README.md)
- ` 郭爆料串珠`
-
-### [樱花灭共诗——雨夜读陈一之律诗有寄](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|美国务院下令撤离驻乌克兰大使馆人员家属](/content/gnews/4/README.md)
+### [有声|法官发全国禁制令，禁止执行拜登的联邦雇员疫苗强制](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [高科技下的死亡 上海地铁惊传老妇被列车卷走](/content/gnews/5/README.md)
+### [串珠545:特别想跟东北人说:读点书别杀狗轻油盐](/content/gnews/2/README.md)
+ ` 郭爆料串珠`
+
+### [欧盟议员质问马克龙：强制疫苗是对很多公民执行了死刑](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [杰森·米勒：盖特，唯一能与大科技公司相抗衡的企业](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [随着乔•罗根等大人物加入盖特，盖特用户达到大约430万](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [串珠544:江曾朱家族出卖大片国土到今天还在收钱](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
+
+### [樱花灭共诗——雨夜读陈一之律诗有寄](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [宋词新作：永遇乐·人类文明之路——新中国联邦人是新文明先驱](/content/gnews/6/README.md)
+### [有声|美国务院下令撤离驻乌克兰大使馆人员家属](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [高科技下的死亡 上海地铁惊传老妇被列车卷走](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [宋词新作：永遇乐·人类文明之路——新中国联邦人是新文明先驱](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/7/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平在北京会见国际奥委会主席巴赫](/content/gnews/8/README.md)
+### [习近平在北京会见国际奥委会主席巴赫](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [孩子们被 Covid邪教驯化、洗脑去迫害不信疫苗的人](/content/gnews/9/README.md)
+### [孩子们被 Covid邪教驯化、洗脑去迫害不信疫苗的人](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳大利亚总理的微信公众号遭封锁，被变更成亲共的宣传账号](/content/gnews/10/README.md)
+### [澳大利亚总理的微信公众号遭封锁，被变更成亲共的宣传账号](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [一个道义上的要求：我们必须领导抵制冬奥会的行动](/content/gnews/11/README.md)
+### [一个道义上的要求：我们必须领导抵制冬奥会的行动](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《历史今天》2022.01.25](/content/gnews/12/README.md)
+### [《历史今天》2022.01.25](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [香港教育体系雪崩 退学潮不断](/content/gnews/13/README.md)
+### [香港教育体系雪崩 退学潮不断](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [宣布遗传学为种族主义者的《科学美国人》失去了所有信誉](/content/gnews/14/README.md)
+### [宣布遗传学为种族主义者的《科学美国人》失去了所有信誉](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟在对俄罗斯采取强硬态度](/content/gnews/15/README.md)
+### [欧盟在对俄罗斯采取强硬态度](/content/gnews/19/README.md)
  ` Shuizhuyu`
 
-### [为什么必须摧毁中共的黑暗势力体系](/content/gnews/16/README.md)
+### [为什么必须摧毁中共的黑暗势力体系](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [“精准扶贫”㓥房户图减港府住房问题压力](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [10大最糟健康选择使大脑身体精神受到伤害](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [加拿大：中共强迫移民回国是个严重的问题](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [眼见为实](/content/gnews/20/README.md)
+### [眼见为实](/content/gnews/21/README.md)
  ` 骄子`
 
-### [Steve Kirsch先生抨击政府卫生部门不作为](/content/gnews/21/README.md)
+### [Steve Kirsch先生抨击政府卫生部门不作为](/content/gnews/22/README.md)
  ` DC政经`
 
-### [1/25/2022国际财经快讯：英国PMI：成本压力肆虐，英国企业遭遇一月寒流；比特币滑落至六个月低点](/content/gnews/22/README.md)
+### [1/25/2022国际财经快讯：英国PMI：成本压力肆虐，英国企业遭遇一月寒流；比特币滑落至六个月低点](/content/gnews/23/README.md)
  ` 秘密翻译组金融团队`
 
-### [朝鲜正在测试巡航导弹](/content/gnews/23/README.md)
+### [朝鲜正在测试巡航导弹](/content/gnews/24/README.md)
  ` Shuizhuyu`
 
-### [Do you hear the people sing，singing a song of Sweetie?](/content/gnews/24/README.md)
+### [Do you hear the people sing，singing a song of Sweetie?](/content/gnews/25/README.md)
  ` 骄子`
 
-### [郭文贵精品视频-彻底打残中共金融、科技两条腿](/content/gnews/25/README.md)
+### [郭文贵精品视频-彻底打残中共金融、科技两条腿](/content/gnews/26/README.md)
  ` cindy`
-
-### [对文贵先生的思路窥探（一）](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [台湾前线｜郭文贵再爆料：冬奥会前后一定打台湾！](/content/gnews/27/README.md)
  ` 關注組`
@@ -123,62 +123,62 @@
 ### [美国对乌克兰危机采取高度警戒](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [01/25每日播报|社媒消息：蓬佩奥 埃内斯·坎特](/content/gnews/37/README.md)
+### [大韩民国的“世越号”之旅](/content/gnews/37/README.md)
+ ` digital fighting`
+
+### [01/25每日播报|社媒消息：蓬佩奥 埃内斯·坎特](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [去年澳洲通胀率激增3.5%或导致提前加息](/content/gnews/38/README.md)
+### [去年澳洲通胀率激增3.5%或导致提前加息](/content/gnews/39/README.md)
  ` 走进澳洲`
 
-### [01/25每日播报｜美国可能会对俄罗斯打弹药战还是经济战？](/content/gnews/39/README.md)
+### [01/25每日播报｜美国可能会对俄罗斯打弹药战还是经济战？](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [01/25每日播报｜新闻简讯 : 北京冬奧在即赞助商集体沉默 蔡鄂生及徐鸣涉被开除党籍](/content/gnews/40/README.md)
+### [01/25每日播报｜新闻简讯 : 北京冬奧在即赞助商集体沉默 蔡鄂生及徐鸣涉被开除党籍](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [尽管完全接种率高达85%，但马耳他的新冠死亡率创下新高](/content/gnews/41/README.md)
+### [尽管完全接种率高达85%，但马耳他的新冠死亡率创下新高](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆｜东京都新建公寓售出总数和平均售价创历史新高](/content/gnews/42/README.md)
+### [中日财经爆｜东京都新建公寓售出总数和平均售价创历史新高](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美共和党议员抨击奥委会允许侵犯人权的公司参与冬奥会](/content/gnews/43/README.md)
+### [美共和党议员抨击奥委会允许侵犯人权的公司参与冬奥会](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国会两院呼吁和要求召开乌克兰情况简报会](/content/gnews/44/README.md)
+### [国会两院呼吁和要求召开乌克兰情况简报会](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [两党议员呼吁立法禁止国会议员拥有或交易股票](/content/gnews/45/README.md)
+### [两党议员呼吁立法禁止国会议员拥有或交易股票](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2022年1月25日:财经新闻整理](/content/gnews/46/README.md)
+### [新西兰财经G乐部2022年1月25日:财经新闻整理](/content/gnews/47/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [COVID-19 最新情报｜“政府欺骗了我们”疫苗接种者深受副作用所累 后悔言论塞爆推特](/content/gnews/47/README.md)
+### [COVID-19 最新情报｜“政府欺骗了我们”疫苗接种者深受副作用所累 后悔言论塞爆推特](/content/gnews/48/README.md)
  ` 關注組`
 
-### [中共雇佣欧美网红为冬奥形象](/content/gnews/48/README.md)
+### [中共雇佣欧美网红为冬奥形象](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [魁北克法院判决：母亲单方面没有权利阻止未成年子女接种疫苗](/content/gnews/49/README.md)
+### [无限发展空间的H冷热钱包](/content/gnews/50/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [魁北克法院判决：母亲单方面没有权利阻止未成年子女接种疫苗](/content/gnews/51/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美军8500名士兵做好紧急派遣乌克兰准备](/content/gnews/50/README.md)
+### [美军8500名士兵做好紧急派遣乌克兰准备](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本多措并举大力推动量子技术国家战略实施](/content/gnews/51/README.md)
+### [日本多措并举大力推动量子技术国家战略实施](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [宇宙无限大 地球一粒沙 彭帅在哪里？](/content/gnews/52/README.md)
+### [宇宙无限大 地球一粒沙 彭帅在哪里？](/content/gnews/54/README.md)
  ` 帕米尔高原水`
 
-### [加拿大卡车司机驾车游行抗议中共病毒疫苗强制令](/content/gnews/53/README.md)
+### [加拿大卡车司机驾车游行抗议中共病毒疫苗强制令](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](/content/gnews/54/README.md)
- ` YALUN 亚伦`
-
-### [2022年1月24日大直播速记精萃](/content/gnews/55/README.md)
- ` 雅典娜GNotes`
 
 ### [美军两个航母打击群进入南海争议区域 表达维护盟友立场](/content/gnews/56/README.md)
  ` 日本东京方舟农场`

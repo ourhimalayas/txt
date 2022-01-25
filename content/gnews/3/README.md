@@ -2,31 +2,12 @@
 ---
 
 
-## 樱花灭共诗——雨夜读陈一之律诗有寄
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1908143/)
+## 欧盟议员质问马克龙：强制疫苗是对很多公民执行了死刑
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1908172/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/樱花灭共诗——庚子鬼节夜归有作.png)
-此时临北阁，
+01/22/2022 一欧盟议员质问法国总统马克龙：成千上万人死于疫苗副作用，强制疫苗就是对很多公民执行了死刑。
 
-凭望是哀民。
-
-漫漫人间苦，
-
-欣欣万物春。
-
-有途称盛世，
-
-无处问艰辛。
-
-一夜同听雨，
-
-悲歌泪湿巾。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
