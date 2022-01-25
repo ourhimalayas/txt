@@ -2,34 +2,49 @@
 ---
 
 
-## 加拿大专家称不强制儿童接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1909102/)
+## 1月25日文贵先生紧急直播重大公告要点
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1909206/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月23外媒报道，在加拿大5至11岁的儿童中，低于50%的人接种了第一针中共病毒疫苗。根据加拿大公共卫生局的数据，大约5%的5至11岁儿童已经完全接种疫苗。
+整理：波士顿五月花 跟随战神
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-11.01.42-PM-1.png)图片来自GTV截屏
+1.文贵先生向全世界公布，美国政府决定永久撤离北京大使馆
+2.中国人、美国人的灾难都是共产党
+3.中国人即将失去一切时美国作出的决定
+4.发生在春节前、冬奥会前，意义重大
+5.超过历史上任何重大事件
+6.新中国联邦宣言是伟大的成就
+7.撤销大使馆是开战的节奏
+8.共产党灭亡倒记时
+9.起核心推动作用的是文贵先生、爆料革命和新中国联邦
+10.中共军队是最大的受益者，避免了劫难和当炮灰
+11.下一步病毒溯源不搞明白、再放毒，就开战
+12.台湾、新疆、西藏、香港是受益者，包括日本
+13.布林肯国务卿非常强大，有教养
+14.向拜登总统致以最崇高的感谢
+15.有欧盟、日本和新西兰的推动，以新中国联邦为主导的力量
+16.美国在中共国的领事馆全部都会撤离
+17.灭共靠美国是不可能的，没有美国支持也是不可能的
+18.灭共的第三道大门已经打开
+19.你的承诺不兑现就是欺骗
+20.灭共是为了更好的幸福生活
+21.欧洲一定会跟上来，欧洲的好消息会一个接一个
+22.日本带来的惊喜会超过美国
+23.能成大事者举重若轻
+24.能取不是赢家，能舍才是赢家
+25.希望大使馆人员安全、有尊严地撤离
+26.中共试图说服美国，让习下台保持中美这种关系
+27.美国没有选择、世界没有选择，中共放毒那一刻决定了它的死期
+28.一个不能控制时间和自己身体的人一定被别人控制
+29.对每个人尊重才能获得每个人尊重
+30.现在最重要的是传播、传播、传播，一分钟都不能耽搁
+31.此举会造成中共国大量的资金外逃
+32.某国将要公告的内容发给文贵先生
+33.消息一出，各国在开紧急会议，文贵先生改变了世界
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-6.jpeg)
+* * *
 
-2020年，曾有关于强制儿童疫苗接种的立法，但被否决了。目前，加拿大没有任何省或地区政府宣布在学校强制接种中共病毒疫苗的计划。但加拿大专家说，现在不是强制学生接种疫苗时候，事实上，政府强制疫苗的政策弊大于利。
+*编辑 /发布：吐纳*
 
-加拿大各地都有反强制疫苗接种的活动，近期，加拿大卡车司机正在举行一个名为“2022自由车队”的抗议活动，以抗议政府的疫苗护照政策。
-
-参考链接：[Now isn’t the time for vaccine mandates, even with low rate of COVID-19 shots for kids: experts](https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-isn-t-the-time-for-vaccine-mandates-even-with-low-rate-of-covid-19-shots-for-kids-experts-1.6324433)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Zion文恩
-编辑：Ivy001
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

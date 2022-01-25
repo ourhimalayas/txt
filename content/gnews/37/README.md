@@ -2,21 +2,28 @@
 ---
 
 
-## 北京交警开始罚款自行车主 中共财政已经严重枯竭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1909035/)
+## GTV新闻访谈简报|2022年1月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1909048/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-45.jpg)
-中共国各地方政府已经出现了严重的财政危机，各地方政府为了解决财政问题，给政府各部们下达了罚款任务，花样百出，无所不用其极，弄得各地老百姓怨声载道！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-北京市海淀区交警支队清河大队的交警为完成罚款任务，对一位大姐的自行车罚款20元，这位大姐出离了愤怒，对于这种政府部门恶劣行为大声说道：“自行车都不值二十元钱，还要罚款！”气愤的将自行车扔了，不要了爱咋咋地……
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-所有作恶者中南坑老杂毛们，各级政府公安交警城管协管清算的日子就要到了，做恶前先想想你们还是个人，请枪口抬高一寸！放下屠刀立地成佛……
+视频参看：[2022.01.25早GTV新闻访谈](https://gtv.org/video/id=61effaef28a108147c62504f)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

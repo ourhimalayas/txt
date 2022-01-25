@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 10:09 PM (UTC)`
+
+1/25/2022 Miles Guo’s big announcement: We announced to the world in February 2020 that the coronavirus is the CCP’s biochemical weapon to push the vaccination against COVID, which is the real disaster. The CCP’s hoarding PPE before the pandemic was a planned genocide targeting the COVID patients! The West has collected the evidence that the CCP does not abide by the international order and engages in infiltration and sabotage, and we revealed that the real owner of HNA is Wang Qishan<br/><br/>1/25/2022 文贵重大公告：我们早在2020年2月就向世界宣布，冠状病毒是中共的生化武器，病毒是为了推动疫苗，疫苗才是灾难！中共在疫情前囤积PPE是有计划地针对冠状病毒患者的大屠杀！西方掌握了中共不守国际秩序、搞渗透与破坏的证据，我们公布了海航的真正老板是王岐山<br/>
+![img](https://media.gettr.com/group26/getter/2022/01/25/22/ddf19c20-b506-d9b3-c6f7-64e2fa50c96a/out.jpg)
+
+---
+
+`@miles 1/25/2022 10:03 PM (UTC)`
+
+1/25/2022 Miles Guo important announcement: Mr. Miles Guo has been dedicated to taking down the CCP for the past five years. Mr. Guo was the first one to expose the genocides committed by the CCP, warning the world as early as five years ago that the darkness was coming. In 2019, Mr. Guo also informed the West in advance that Xi Jinping and Wang Qishan had the plan to achieve world domination and to use biochemical weapons to crack down on the Hong Kong movement.<br/><br/>1/25/2022 文贵重大公告：郭文贵先生在过去5年来一直致力于灭共，郭先生最早向世界爆出中共的种族大屠杀，早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方<br/>
+![img](https://media.gettr.com/group26/getter/2022/01/25/22/bbe963f5-5676-743a-b485-2ad3337dfca8/out.jpg)
+
+---
+
 `@miles 1/25/2022 6:34 PM (UTC)`
 
 1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！<br/><br/>January 25, 2022 The Chinese official media just confirmed the important emergency announcement by New Federal State of China <br/><br/>https://mp.weixin.qq.com/s/X1RqxZRJsVck1a7Baf626g
@@ -142,20 +156,6 @@ New Release                                              Shop Now at www.gfashio
 
 2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化
 ![img](https://media.gettr.com/group15/origin/2022/01/24/12/7c0bde1a-da0d-390a-1f0c-6c00f675c134/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/24/2022 10:30 AM (UTC)`
-
-1月24号：尊敬的战友们好．蔡锷生此人作恶多端，全因是王岐山为他撑腰！他公开喊话，只有对中国老百姓必须采取最严格的管理制度，才能保证党的统治！【新华社  2022-01-24 【原银监会副主席蔡鄂生被开除党籍】日前，经中共中央批准，中央纪委国家监委对原中国银行业监督管理委员会党委委员、副主席蔡鄂生严重违纪违法问题进行了立案审查调查。<br/><br/>经查，蔡鄂生丧失理想信念，背弃初心使命，政治上彻底蜕变，对党不忠诚不老实，搞两面派、做两面人，滥用金融监管权，严重扰乱金融市场秩序，严重污染金融领域政治生态，对抗组织审查；无视中央八项规定精神，奢靡腐化，违规收受礼品礼金，接受可能影响公正执行公务的宴请、旅游和打高尔夫球等活动安排，多次违规出入私人会所；组织观念淡漠，不按规定报告个人有关事项；寡廉鲜耻，大搞权色、钱色交易；不正确履行职责，违规干预和插手行政许可事项；目无法纪，“退而不休”，顶风作案，利用职务便利和影响力为他人在融资贷款、项目承揽、职务晋升等方面谋利，并非法收受巨额财物。<br/><br/>蔡鄂生严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿、利用影响力受贿、滥用职权犯罪，且在党的十八大后不收敛不收手不知止，性质严重，影响恶劣，应予严肃处理。依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予蔡鄂生开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。<br/><br/>💥评论💥 ：二十大在即，中共党内高层互相厮杀，不管你是什么职位，最终都会被这个绞肉机吞噬。蔡鄂生也是文贵先生爆料中的热门人物哦。😅😅😅】<br/><br/>
-![img](https://media.gettr.com/group3/getter/2022/01/24/10/16701683-abad-2f47-308d-60a3a42f878a/d23aaa6049a422d75802b9f9731da201.jpg)
-
----
-
-`@miles 1/24/2022 12:06 AM (UTC)`
-
-1月23号：👉👉👉尊敬的战友们好，明天上午8:30开始7哥大直播<br/><br/>【七哥您好! 似乎小飞象因为参加爆料革命，几个月能拿到政庇让这些伪类很受伤。腾彪原来是傅希秋搞政庇的，看样子一直都搞不定身份，现在开始反水互咬了。傅希秋吴建民参加1月6日国会事件，现在民主党正在深挖这件事期望定性为暴乱，这是他们在中期选举和2024大选能攻击对手最后的希望，肯定不会轻轻放过，傅希秋他们完球蛋了，腾彪一看形势不对，马上切割。这群孙子。🤣🙏🙏🙏🙏】
-![img](https://media.gettr.com/group48/getter/2022/01/24/00/98ebe37f-93e2-b82b-ae2f-faa90c9a4c40/e719afb5691c5b4b6ea571207c4efcac.jpg)
 
 ---
 

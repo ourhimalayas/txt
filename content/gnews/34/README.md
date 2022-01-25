@@ -2,38 +2,34 @@
 ---
 
 
-## 1/25银河快讯:东芝半导体基地因地震暂停生产；日本300家幼儿园因疫情而关闭
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1909088/)
+## 加拿大专家称不强制儿童接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1909102/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-156.png)[图片来源](https://www.163.com/)
-**1.****东芝半导体基地因地震暂停生产**
+作者：加拿大温哥华扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月23外媒报道，在加拿大5至11岁的儿童中，低于50%的人接种了第一针中共病毒疫苗。根据加拿大公共卫生局的数据，大约5%的5至11岁儿童已经完全接种疫苗。
 
-[据路透社1月24日报道，大分县和宫崎县发生了强度为5.0级的地震。 东芝公司的子公司东芝设备与存储公司宣布，由于地震造成部分设备的损坏，该公司在大分市经营半导体业务的生产和开发基地已经关闭。位于大分市的东芝材料公司大分业务部和位于福冈县武前市的武前东芝电子公司的业务正在继续。](https://news.yahoo.co.jp/articles/d6782e4624cdde6af8845aa6910016acce9076ec)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-6.jpeg)
 
-**2.****日本全国汽油平均价格：168.40日元**
+2020年，曾有关于强制儿童疫苗接种的立法，但被否决了。目前，加拿大没有任何省或地区政府宣布在学校强制接种中共病毒疫苗的计划。但加拿大专家说，现在不是强制学生接种疫苗时候，事实上，政府强制疫苗的政策弊大于利。
 
-[据时事通信社1月19日报道，经济产业省宣布，截至7日，所有47个县的普通汽油零售价格都有所上涨，全国平均价格为每升168.40日元，比截至4月11日的前一周价格上涨1.90日元。政府在年度补充预算中拨出800亿日元，以遏制汽油、柴油、石蜡和燃料油批发价格的上涨。行业组织日本石油协会表示，如果支付补贴，它将使用所有的补贴来控制批发价格。 全国平均汽油价格连续第二周上涨，是自去年11月底以来约一个半月的最高水平。 在12个县，包括长崎、长野和高知，价格已经达到170日元。用于取暖的石蜡的零售价格也连续第二周上涨，全国平均价格为每18升1,958日元。](https://news.yahoo.co.jp/articles/91ebb938701e58d2b08b4a725faf348f1502b154)
+加拿大各地都有反强制疫苗接种的活动，近期，加拿大卡车司机正在举行一个名为“2022自由车队”的抗议活动，以抗议政府的疫苗护照政策。
 
-**3.****丰田因疫情，扩大日本国内工厂减产范围，1月影响6.5万辆车**
+参考链接：[Now isn’t the time for vaccine mandates, even with low rate of COVID-19 shots for kids: experts](https://www.cbc.ca/radio/checkup/why-are-vaccination-rates-so-low-among-canadian-kids-1.6323179/now-isn-t-the-time-for-vaccine-mandates-even-with-low-rate-of-covid-19-shots-for-kids-experts-1.6324433)
 
-[据路透社1月24日报道，丰田汽车公司宣布，由于 中共病毒（新冠病毒COVID-19），该公司将在1月25日和26日将暂停日本成品车工厂的运营两天。 对1月份产量的影响将是约65,000台。另一方面，由于原定于2月份关闭的工厂和生产线将部分减少，2月份的生产量预计将高于计划。2月，暂停运营的数量将从8个工厂和11条生产线减少到6个工厂和7条生产线。](https://news.yahoo.co.jp/articles/5cb136edab3bdfb11f19f48ab7d24edc8785fd90)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-**4.****日本300家幼儿园因疫情而关闭**
+总编：Zion文恩
+编辑：Ivy001
+校正/发稿：谐趣园
 
-[据共同社 1月24日报道，厚生劳动省称，截至上周四，幼儿园暂停服务的数量（不包括私人经营或当地许可的设施）在一周内随着 中共病毒（新冠病毒covid-19）病例的激增而增加了四倍，远远超过了去年9月份185个的前高点。在全国47个县中，有27个县出现了关闭的情况，此时，日本政府将把准紧急状态的防病毒限制扩大到30多个县。](https://english.kyodonews.net/news/2022/01/0c4588fb7591-record-300-daycare-centers-in-japan-shut-due-to-pandemic.html)
-
-**5.****在军事紧张局势下，日本考虑疏散在乌克兰的日本公民**
-
-[据共同社 1月24日报道，日本政府消息人士周一表示，由于担心俄罗斯即将入侵，日本正在考虑疏散其在乌克兰的国民，此前美国对其使馆工作人员的家属发出了这样的命令。外交部警告说，不要出于任何目的去乌克兰旅行。据外务省称，大约有250名日本公民，包括使馆工作人员的家人，居住在乌克兰。内阁官房长官说，政府已经提醒在乌克兰的日本居民为不可预见的情况做好准备。](https://english.kyodonews.net/news/2022/01/25fd734a4e2e-japan-eyes-evacuating-nationals-in-ukraine-amid-military-tensions.html)
-
-**6.****可果美将从4月起提高番茄酱和其他产品的价格，涨幅约为3-9%**
-
-[据NHK 1月24日报道，由于运输和材料成本以及原材料价格的增加，可果美决定从今年4月起提高其番茄酱的价格。 这是七年来第一次因西红柿的进口价格上涨而提高番茄酱的价格。涨价将适用于125种产品，番茄酱的价格将提高3%至9%，这是自2015年4月以来七年来首次提高家用和商用番茄酱的价格。](https://www3.nhk.or.jp/news/html/20220124/k10013448281000.html)
-
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：帆間知津
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

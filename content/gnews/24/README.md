@@ -2,31 +2,36 @@
 ---
 
 
-## 2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1909487/)
+## MV版Hcoin To the Moon上线47天第30次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1909557/)
 
-#郭文贵先生：尊敬的战友们好，14亿新中国联邦同胞们好，全世界朋友们好，今天是2022年1月25号，郭文贵代表新中国联邦和14亿新中国的同胞们以及我们现在正在为世界正义铲除邪恶，铲除魔鬼的这些英雄勇士们，在这里有重大的公告：
-![#郭文贵先生：尊敬的战友们好，14亿新中国联邦同胞们好，全世界朋友们好，今天是2022年1月25号，郭文贵代表新中国联邦和14亿新中国的同胞们以及我们现在正在为世界正义铲除邪恶，铲除魔鬼的这些英雄勇士们，在这里有重大的公告：](https://assets.gnews.org/wp-content/uploads/2022/01/竖中文.png)
-#### #2022年1月25日文贵先生直播摘要
+1/25/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线47天第30次位列匈牙利iTunes热门音乐视频榜榜首，第47次位列前三名
 
-🖖、拜登总统和布林肯国务卿作出了重大正确决定：正式通知北京，正式撤离美国驻中共国的大使馆！
-🖖、这次大使馆撤离就不会回来了
-🖖、美国人一撤，中共彻底完了，当年美国撤离伊拉克大使馆后马上就是开战
-🖖、美国警告中共，病毒溯源不整明白,再放毒就开战！
-🖖、美国长期不派大使，撤离大使馆，中国的军队和台湾人民 是最大的受益者，避免了牺牲当炮灰
-🖖、中共过去存在的合法性，就是美国在中国的大使馆。美国撤离中国大使馆，相当于中共国没有了保安。世界任何国家，包括中国人民，都可以随便揍中共，而且谁揍表扬谁
-🖖、美国大使馆即使只撤一半，股市都会继续大跌
-🖖、北京二环内几十个领事馆都会撤
-🖖、美国这次行动，绝对是第三道大门打开了
-🖖、病毒溯源，疫苗真相，替罪羊就找到了，就是中共
-🖖、只要美国行动，欧洲日本马上就会有好消息，东南亚也会跟上
-🖖、明天1月26号，七哥爆料五周年
-🖖、现在最重要的就是、传播、传播
-![2022年1月25日文贵先生直播摘要](https://assets.gnews.org/wp-content/uploads/2022/01/0125-豎版-摘要.png)
-编辑整理：秘密翻译组
-图片设计发布：千年等一回
+* * *
+
+[【PDF 下载】Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
 
+[【PDF 下载】Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
