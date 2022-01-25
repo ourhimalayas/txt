@@ -2,31 +2,42 @@
 ---
 
 
-## 七哥谈背后操作（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1910200/)
+## 调查显示超85%日本民众否认日中关系良好
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910303/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约磐石农场—在远方
 
-来源：郭先生2022-01-17直播11:30:01摘录
 
-是什么让Mr.Ostrager这个大法官，完全是过去正确的判决，说你根本跟这个纽约没有任何关系 ，管辖地不在这里，人家也看了我们很多起诉别人。就像这个案子一样在你香港发生的事，我包括起诉 UBS，UBS多大的事啊，我当时还在纽约呢，UBS给踢掉了，现在在英国起诉呢，是不是，为什么就是最后突然间改了，就给你立了案子了，然后呢还是4月18号，说这么敏感的时间。都在问这个问题，这个问题的答案一定会出来的，这个问题的答案就是整个案子，后来奇怪问题的真相之一我深信。而且我任何一个经历，在背后操作这个案子想把这个事掩盖住是不可能的，因为他有通话有通信，包括Ed.Moss，他和共产党的勾兑，和他有可能再跟其他人的勾兑，这种关系他不难找，最终都是会向Elliot Broidy，斯蒂芬温，尼古拉姆戴维斯，Joe这个孙子这个烂仔，私生子都会认罪，海根巴森一定的，问题的关键。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+台湾时间1月23日，台媒报道，值此日本与中共国建交50周年之际，根据日本内阁官方外交的最新民意调查显示，有超过85%的日本民众，否认日中关系良好。
 
-Gettr 账号
+该调查是日本内阁于去年9月底至11月，在日本全国随机抽取，18岁以上的3000个国民，以邮寄的方式，询问日本国民对政府外交看法的调查，获得1701人回答。当被问及日中关系时，回答“不认为良好”者，竟然高达85.2%，比上次民调增加3个百分点。当被问及日美关系时，回答“认为良好”者，占91.3%。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+针对民调结果，日本外务省表示，一般认为，中共频频入侵日本领海，以及中共极其恶劣的人权问题等因素，影响到日本民众对中共国的观感。中共在台海地区和日本海地区的军事扩张，已经成为该地区的最大威胁。
+
+新闻来源：[https://cn.rti.org.tw/news/view/id/2122873](https://cn.rti.org.tw/news/view/id/2122873)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
+
+编辑：Ivy001
+
+校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

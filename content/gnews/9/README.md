@@ -2,36 +2,49 @@
 ---
 
 
-## 法国出台关于COVID-19新政策，禁止未接种疫苗的人 进入酒吧、餐馆和体育场馆
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1910338/)
+## 中共惧怕脱钩 刻意辟谣“中美联合公报无效”
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910425/)
 
-**编译：沉默老歌**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/591F2CF8-4095-4929-B7ED-318CCECC1FA0.jpeg)图片来源：网络
-法国通过了一项新法律，要求所有人在餐馆、酒吧、旅游景点和体育场馆出示疫苗通行证，除非他们最近从病毒中康复。
+作者：纽约香草山 侠肝义胆
 
-该要求是政府应对病毒战略的核心，这意味着未接种疫苗的人将不得进入这些公共场所。
 
-法国经历欧洲有史以来最高的冠状病毒感染日病例数，其医院继续挤满新冠病毒患者。
 
-在 Omicron 变种激增的情况下，政府几乎没有实施其他限制，而是专注于上周获得法国议会和宪法委员会批准的疫苗通行证。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-27.jpg)
 
-研究表明，与之前的 Delta 变体相比，Omicron 引起严重疾病的可能性更小，它比其他冠状病毒株更容易传播，并且已经在包括英国在内的许多国家占据主导地位。
 
-Omicron 还更容易感染那些接种过疫苗或以前曾感染过该病毒的人。
 
-**来源链接：**
+墙内媒体1月24日消息，中共党媒《澎湃新闻》发表文章《美参议院全票通过决议，中美三个联合公报无效？假的！》。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-46.jpg)图源网络
+该文辟谣，美参议院全票通过“中美三个联合公报全部无效”毫无根据，因为美参议院在一月没有讨论中美联合公报相关话题。
 
-[COVID: France bars unvaccinated from restaurants and sports venues](France%20bars%20unvaccinated%20from%20restaurants%20and%20sports%20venues)
+《澎湃新闻》之所以辟谣，是因为有人在微信朋友圈和推特上发布消息说，美参议院全票通过，废除中美联合公报。
 
-**编辑：LILY**
+《澎湃新闻》用所谓“明查”搜索了假消息的来源并列举了相关截图，证明相关讯息是假的，而且是经常发布反华消息的推特帐号故意传播的。
 
-**发布：歪桑**
+《澎湃新闻》这篇文章还强调，中美三个联合公报是两国政治共识和政治基础，言外之意美方不可能废除中美联合公报。
 
-20220125
+然而，中共用党媒辟谣社交平台上发布的假消息，让人觉得有种“此地无银三百两”的味道，既然是小道消息，又何必刻意辟谣。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+据有关人士分析，中美关系敏感时刻，中共刻意辟谣，反而彰显其惧怕美方废除联合公报，宣布中美脱钩。因此，中共很可能故意施放假消息做舆论铺垫，然后通过煞有其事的辟谣来混淆视听。
+
+新闻来源：[https://finance.sina.cn/2022-01-24/detail-ikyakumy2200287.d.html?from=wap](https://finance.sina.cn/2022-01-24/detail-ikyakumy2200287.d.html?from=wap)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

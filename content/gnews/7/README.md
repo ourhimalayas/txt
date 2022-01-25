@@ -2,31 +2,40 @@
 ---
 
 
-## 七哥谈重大的新证据（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1910365/)
+## 巴拉圭在ＷＨＯ执委会中力挺台湾
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910435/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约磐石农场—在远方
 
-来源：郭先生2022-01-17直播11:32:18摘录
 
-主要是以下几个方面，你有重大的新证据发现。重大新证据是什么标准，那由法官来确定啊，就是你有重大的新证据，比如说这个中间，突然有那个太平联盟的有人出来作证，比如说正义啊，正义说我举手，这我是全手经纪人，这以前全都是胡扯我被绑架了，而且这个事情Miles Guo早就把钱还了，根本不存在这个问题，而且我是被威胁的啊，包括这中间提供证据的人啊，什么什么一堆的事情。第二件事情就是签那个假字啊 ，谁签的，然后你说我签，没有用的，我能拿出证据来证明是假的，是吧。事实上的证据和当事人出现，这是会导致案情重审。另外一个就是现在有人提着比如程序不正义，这个里边程序完全是违法的 ，然后是上边，我们比如说上诉的法庭，最高法院、联邦法院、联邦最高法院啊 ，还有好几层呢，说：“哎这个程序是不可以，重审。” 啊，第三个事情，这个中间可能发生，共产党内部，比如孙力军抓了，孙力军在案情交代当中的卷轴：其实我操纵了美国法庭，缠诉超限战郭文贵。而这个东西，这个卷轴被咱拿到了，而且经过第三方和美国政府的认可，这是真的 ，那这个事就大了，那就刑事案的，是吧。那所有的牵制人不管你是谁，你都要被刑事调查。以上几个因素都会导致案子突变，而且我相信一定会发生，而且不会是一个原因发生，好几个原因都会发生，一定会的。谢谢！
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+台媒报道，当地时间２４日，巴拉圭在世卫组织执委会会议中为台湾发声。
 
-Gettr 账号
+据悉，世卫执委会由３４个国家代表组成，委员任期３年，每年改选三分之一席次，本年度执委会于１月２４日至２９日召开。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+巴拉圭卫生部长波尔巴在会议中表示，台湾抗击中共病毒疫情成效卓越，若能借鉴其成功经验，对世界各国都有极大助益。波尔巴还强调说，世卫组织所进行的问卷调查工作，应该涵盖所有相关成员的参与，其中应该包括台湾。
+
+新闻来源：[https://news.ltn.com.tw/news/politics/breakingnews/3812090](https://news.ltn.com.tw/news/politics/breakingnews/3812090)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,12 +2,22 @@
 ---
 
 
-## 赵立坚拒不承认中共国违反“导弹技术扩散”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1908476/)
+## 美国正式授权撤离驻中共国北京大使馆
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1908603/)
 
-01/21/2022 中共外交部发言人赵立坚拒不承认中共国违反“导弹技术扩散”，反而称美国制裁3家中共国军工企业是霸凌行径。
+撰稿：日本东京方舟农场  海星
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+1月25日，郭先生在GTV爆料，美国政府正式通知北京，即日起授权撤离美国驻中共国北京大使馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2080.png)
+视频链接：
+
+[https://gettr.com/post/pqhskw732b](https://gettr.com/post/pqhskw732b)
+
+素材采编：海星
+
+编辑：文顺
+
+发布：文顺
 
  
 

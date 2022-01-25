@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 11:28 PM (UTC)`
+
+A Thank You letter from the New Federal State of China to President Joe Biden and Secretary of State Anthony Blinken regarding closing US Embassy in Beijing <br/><br/>新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
+![img](https://media.gettr.com/group5/getter/2022/01/25/23/00be8420-076a-19b3-4c42-b22bdddb22ae/1e91b729a5af3efba70ed84f4df4601e.jpg)
+
+---
+
 `@miles 1/25/2022 11:04 PM (UTC)`
 
 1/25/2022 Miles Guo’s Big Announcement: I, along with countless fellow fighters behind the scenes who are risking their lives, have been doing our best to stop the CCP from hosting the Winter Olympics. We hope to prevent the tragidies similar to the Holocaust committed by the Nazis after the 1936 Olympics from happening in China, and we are honored to see the boycotts of the Winter Olympics and a series of actions against the CCP by the United States and other countries around the world that care about the democracy, rule of law, and freedom of the Chinese people!<br/><br/>1/25/2022 文贵重大公告：文贵和背后无数冒着生命危险的战友在全力阻止中共举办冬奥会，我们希望避免类似1936年奥运会后纳粹屠杀犹太人的惨剧在中国上演，我们很荣幸地收获了美国及世界上关心中国人民主、法治、自由的国家对冬奥会的抵制以及针对中共的一系列行动！<br/>
@@ -56,13 +63,6 @@
 
 1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！<br/><br/>January 25, 2022 The Chinese official media just confirmed the important emergency announcement by New Federal State of China <br/><br/>https://mp.weixin.qq.com/s/X1RqxZRJsVck1a7Baf626g
 ![img](https://media.gettr.com/group45/getter/2022/01/25/18/33c042a8-6528-263a-8e58-7ea736d85bda/3b987318eae340969b07c513d53dea9d.jpg)
-
----
-
-`@miles 1/25/2022 5:45 PM (UTC)`
-
-A Thank You letter from the New Federal State of China to President Joe Biden and Secretary of State Anthony Blinken regarding closing US Embassy in Beijing <br/><br/>新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
-![img](https://media.gettr.com/group28/getter/2022/01/25/17/2500a3c8-9287-5099-0472-41edab12734d/b7733666aeff3715eb904aaac4bb7e90.jpg)
 
 ---
 

@@ -2,34 +2,47 @@
 ---
 
 
-## 【圆成原创】中伊俄三国军演说明什么?
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1910390/)
+## 为应对病毒爆发 日本将大部分地区置于准紧急状态
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910452/)
 
-**作者：面包飞上天**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/BA7AB77E-2113-4797-B283-9295EAFE8267.png)图片来源：网络
-中国、伊朗和俄罗斯于2022年1月18-20日在阿曼湾海域举行了为期三天的海上联合军演。此次三国的联合演习，据报道设置了海上抢险灭火、登临检查和解救被海盗劫持的遇险船舶、对海轻重武器射击科目演练等。
+作者：纽约香草山教育部 Naughty(文行)
 
-但是醉翁之意不在酒，真的只是搞搞海上救援？防止海盗劫持？我们来分析一下更多的意思：
 
-1、 先通过更容易上手合作的项目演练下，这些科目容易组织，对三国要求也不算高，给未来三国演练更为复杂的科目埋下了足够的伏笔。
 
-2、三国的联合，重点辐射中东、北非甚至南亚次大陆地区，形成稳定的铁三角关系。在此三角内的国家也是极尽拉拢，累计撒币千亿巩固联盟战略关系。中共政府与南亚和中亚地区 174 个城市之间的 193 个接触点都有密切合作关系，避免在家门口翻船。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5D22B9E2-C78A-4D1B-967C-43C150ABF405.jpeg)图片来源：网络
-3、三国都跟美国有过节，这次黑暗三国联起手来，共抗美国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
-4、波斯湾的稳定对中共国非常重要，中共国商品通过这条航道运往欧洲，商船也通过这条航道运回石油。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/A35ABC57-1137-4E3E-AD73-52D0537C7908.jpeg)图片来源：网络
-**5、 总结一句话：家门口共建墙，暗黑国凑一起。拉盟友共抗美，找伊朗保能源。**
 
-**编辑：LILY**
 
-**发布：歪桑**
+据美联社24日报道，由于担心奥米炕病例激增会对医疗和教育系统产生严重影响，日本政府计划将该国大部分地区置于准紧急状态，并加强疫情管控措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-27.jpg)
+日本首相岸田文雄周一表示，除了已经实施类似限制的地区外，将在北部的北海道到日本西部的大阪和京都等另外 18 个县加强防病毒措施，该措施将持续到2月20日。岸田表示，在与包括健康专家在内的政府小组协商后，他将于周二正式宣布这些措施。
 
-20220125
+激增的感染病例已经开始使一些地区的医院、学校陷入瘫痪，另外还造成300多家托儿所停业。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+日本政府已命令中共病毒检测试剂盒制造商提高产量，在一些检测试剂盒已用完的地区，卫生部表示，无需检测即可根据症状诊断中共病毒患者。
+
+该最新措施还要求餐馆在晚上 9 点之前关门，对大型公共活动也有一定限制。
+
+东京周一记录了 8,503 例新病例，是一周前的两倍。在全国范围内，报告了近 45,000 例病毒病例，累计约 200 万例，约 18,500 人死亡。
+
+新闻来源：[https://www.yahoo.com/news/japan-widen-virus-measures-boost-132035218.html](https://www.yahoo.com/news/japan-widen-virus-measures-boost-132035218.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
