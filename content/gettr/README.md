@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 2:36 PM (UTC)`
+
+2022年1月25日 紧急直播：甜蜜蜜运动重大公告<br/>Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement
+![img](https://media.gettr.com/group26/origin/2022/01/25/14/d69e1be5-c5fd-3620-2f66-1347ffabd31a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/25/2022 2:10 PM (UTC)`
 
 1月25日，尊敬的战友们, 七哥马上开始有关“甜蜜蜜运动”重大紧急公告，请到GTV和盖特观看直播！<br/><br/>January 25th, 2022 Dear fellow fighters, Miles Guo will have important emergency announcement about the “ Tian Mi Mi Movement” very soon, please go to GTV and GETTR for live broadcast!
@@ -150,13 +157,6 @@ New Release                                              Shop Now at www.gfashio
 
 ⚠️ Nazi’s propaganda turned countless ordinary people into murderers of 6 million Jews. <br/>⚠️ Check out 1️⃣ part of the real conspiracy behind the fake news that puts millions of Chinese lives into jeopardy. <br/>#ViceIsViolence #ViceNewsIsVice #CancelVice #CancelHBO
 ![img](https://media.gettr.com/group4/getter/2022/01/23/04/03912a31-2eea-bc3f-d27b-382f3688bdc0/out.jpg)
-
----
-
-`@miles 1/23/2022 3:56 AM (UTC)`
-
-1/21/2022 Miles Guo: My personal experiences reflect the world’s antipathy towards the Chinese diasporas instigated by the CCP. So, we must work diligently to spread the truth provided by the Whistleblowers’ Movement, and this is our sacred mission! The "sheep culture" that renders the Chinese people indifferent, selfish, and cowardly is the biggest challenge to the New Federal State of China!<br/><br/>1/21/2022 文贵直播：文贵的亲身经历反映出中共让全世界对海外华人产生的反感，因此我们要更加勤奋地传播爆料革命真相，这是我们神圣的使命！让中国人麻木、自私、懦弱的“羊文化”是新中国联邦最大的难题！<br/><br/>
-![img](https://media.gettr.com/group34/getter/2022/01/23/03/0a8eefa8-ffce-0bb2-6d9a-16f0161be4b9/out.jpg)
 
 ---
 

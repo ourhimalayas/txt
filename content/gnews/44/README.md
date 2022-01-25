@@ -2,23 +2,20 @@
 ---
 
 
-## 美共和党议员抨击奥委会允许侵犯人权的公司参与冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907281/)
+## 中日财经爆｜东京都新建公寓售出总数和平均售价创历史新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1907309/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团｜百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2058.png)[*图片来源*](https://e-images.juwaistatic.com/2021/02/japan-tallest-skyscraper-tokyo-1200x675.jpg)
+据《读卖新闻》在线报道，房地产经济研究所1月25日宣布，2021年东京都地区（东京、神奈川、埼玉、千叶）的新公寓平均售价为每套6260万日元，比上一年增长了2.9%。超过了1990年经济泡沫时期的6123万日元的记录。每平方米的售价也达到了93.6万日元的历史新高。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-41.jpg)图片来源：网易
-据《华盛顿自由灯塔》（Washington Free Beacon）1月24日报道，提供技术协助中共政府监视和迫害维吾尔人和其他群体的科大讯飞（iFlytek）是北京2022冬奥会自动翻译软件的独家供应商。为此，参议院外交关系委员会（Foreign Relations Committee）主席、共和党员议员吉姆·里施 (James Risch)抨击国际奥委会说，尽管后者“声称致力于承认和维护人权”，但却允许一家协助中共侵犯人权的公司参与奥运会，这种行为“十分可耻”。
+年度出售的房屋数量增加了23.5%，达到33,636套，与前一年（2020年）因中共病毒（新冠病毒、Covid-19）而暂时停止了销售活动的情况相比有所反弹。两年来房屋销售数量首次超过了3万套。
 
-里施说：“这恰恰表明，国际奥委会把利润和与北京的关系看得比什么都重要。”另一位众议员麦克·麦克考 (Michael McCaul)说：“科大讯飞参与奥运会这个例子完美地说明了中共的影响力是如何威胁到美国的价值观。”
+信息来源：[**首都圏の新築マンション、平均価格ついにバブル超え…１戸あたり６２６０万円**](https://news.yahoo.co.jp/articles/db1469838ea29dd92bb3ab61e3a5eaabee8b922f#:~:text=%E3%83%88)
 
-科大讯飞是芯片制造商英特尔公司的合作伙伴，后者是北京冬奥会的赞助商。英特尔是科大讯飞的早期投资者，并为该公司的语音识别技术提供芯片。美国众议员道格·兰博恩 (Doug Lamborn)说：“美国必须继续制裁那些协助中共对维吾尔人进行种族灭绝的公司。”
-
-人权观察 (Human Rights Watch)组织长期以来一直在抨击科大讯飞与中共的合作。“在一个监视和报复批评人士长期存在并且不受控的国家，当局可以轻易地滥用这些数据。”网络安全组织说，中共可能利用技术来监视那些参加北京奥运会的人。1月19日，北京奥组委对外联络部副部长杨舒甚至在一场视频会议上威胁说，如果运动员在冬奥会期间的任何行为或言论违反了“奥林匹克精神”，将受到“一定的惩处”。
-
-新闻来源：[Chinese Company That Surveils Uyghurs Has Major Role in Beijing Olympics](https://freebeacon.com/national-security/chinese-company-that-surveils-uyghurs-has-major-role-in-beijing-olympics/)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

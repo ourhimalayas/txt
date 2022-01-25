@@ -2,33 +2,35 @@
 ---
 
 
-## 01/25每日播报｜美国顶级医生敦促公众停止接种中共病毒疫苗
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1907457/)
+## 有声|纽约亚裔男子因种族歧视遭推搡谩骂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1907469/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61efbcff28a108147c623806)**
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月20日，一名亚裔男子向警察指控，一名妇女因种族歧视对其进行谩骂和推搡。
 
-**[2022-01-25](https://gtv.org/broadcast/watch/61efbcff28a108147c623806)**
+据悉，涉案妇女是一名假释犯，曾被控“二级谋杀罪”。该事件发生在12月9日，受害者遭到该妇女谩骂，污蔑他把病毒带过来的，并且杀了人。
 
-《网关专家》1月24日报道，美国内科医生、心脏病专家、流行病学家和中共病毒灾难医疗应对的领导者彼得·麦卡洛博士（Peter McCullough），敦促公众停止接种中共病毒疫苗。他指出，在世界范围内，疫苗计划适得其反，那些疫苗接种率最高的国家，死亡率也最高。
+目前，该名假释犯已经被逮捕，并被指控犯有基于种族或宗教的严重骚扰罪。
 
-周日，麦卡洛在华盛顿特区举行的 “击败强制 “集会上告诉《网关专家》，那些已经接种过一到两剂中共病毒疫苗的人，如果再接种第三剂，将大大增加身体器官衰竭或致命的风险。他强烈反对会在身体的大脑、肺、心脏、骨髓和生殖器官中产生刺突蛋白的“基因疫苗”。
+正如郭先生所说，亚洲人会因中共释放的中共病毒处于危险之中，新中国联邦战友要在传播真相的同时保护好自己。
 
-德克萨斯州的一位医生表示，市面上的辉瑞、莫德那、强生和阿斯利康基因疫苗所含的刺突蛋白在体内持续的时间比人们想象的要长得多，而且都聚集在重要部位，包括大脑、肺、心脏、骨髓和生殖器官。
 
-这位医生还建议，在没有找到方法排出那些刺突蛋白前，不要再接种这种基因疫苗了。因为人体内的刺突蛋白会逐渐积累，无法自动排出体外。它几乎肯定会导致慢性疾病甚至是死亡。
 
-麦卡洛博士警告说，不仅中共病毒疫苗是危险和致命的，而且全美国的医院都在危险地遵从一个中共病毒治疗方案，这会令住院的感染病人必死无疑。现在，这些方案已经被评估是不可信的。
+文字版原文：[纽约亚裔男子因种族歧视遭推搡谩骂](https://gnews.org/zh-hans/1901580/)
 
-据报道，所谓治疗方案是指，医院通常会给中共病毒阳性患者使用损害肾脏和肝脏的 “瑞德西韦”，随着患者的健康状况下降，遵循此方案的医生会对他们负责治疗的患者实施气管插管，这一过程可能会导致患者死亡。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-（ 秘翻新闻主编  冰糖葫芦喵编译报道 ）
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-发布 :星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
