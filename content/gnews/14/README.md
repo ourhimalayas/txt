@@ -2,44 +2,30 @@
 ---
 
 
-## 达沃斯参会者是共产党帮凶是冠状病毒和疫苗杀人的元凶
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906682/)
+## 扬帆每日速递 2022年1月24日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1906826/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf26e87664c47acd8ade7](https://gtv.org/video/id=61ecf26e87664c47acd8ade7)
+** 加拿大温哥华扬帆农场 海报组 **
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、中共国反腐监督机构周一表示，三名中共国高级官员——包括原中共国银行业监督管理委员会党委委员、副主席蔡锷生——因涉嫌腐败被中共开除并接受刑事调查。
 
-**郭文贵先生**：大家要想到这三个问题的时候，你就知道了这不是达沃斯跟你没关系。达沃斯这帮孙子就是靠中国人70年的血汗和我们子孙的未来，和卖掉了我们健康的土地、砍掉了所有生存的林木，我们这才是能让他们活到今天。
+2、中共空军对台湾防空区进行了自2021年10月以来的最大一次入侵行动。台湾国防部说，在最近的一次事件中，台湾战斗机紧急升空并驱离了39架中共飞机。
 
-他们，能在达沃斯所有开会的人都是共产党的帮凶，是冠状病毒、今天疫苗（灾难中）希望能做到死更多人类的人，因为他们不用花成本，欠别人的钱不用还了，保险也不用给了。现在你发现全世界不光是中共国，买了人寿保险的，死了以后一概不赔。哇塞，它大爷的，存款利息不给，基金要倒闭。
+3、据文贵大直播：奥运会期间，新中国联邦将会在北京城二环以内推出关于病毒的世界级动静–甜蜜蜜运动，届时国内很多知识分子、教师、军人、音乐家、医生、律师会参加行动，绝不亚于文化大革命的力量，《甜蜜蜜》歌声将响彻全世界。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+4、据文贵大直播：未来人民英雄纪念碑不能拆，改成“中国母亲碑”，把像杨改兰这样无数的故事写在上面；毛贼东纪念堂改成“10亿冤魂纪念堂”。以纪念香港所有被杀的人们、新疆死于大屠杀的人们、西藏被自焚的人们和死于文化大革命和被杀的地主们，以及死于计划生育中的胎儿。
 
-编辑整理：Jacques；
+5、1月24，香港行政长官选举3月27日举行，中央至今未公布参选人名单。香港前立法会主席、民建联创办人曾钰成表示本次选举只会有一名候选人。评:不管是谁参选，最终都是中共的一条狗。
 
-字幕文件制作：小满；
+6、1月24港府专家頋问、港大微生物学系讲座教授袁国勇在电视节目中指，預料一到两星期的确诊个案会以「几何数」增加，建议港府扩大「疫苗气泡」至工作场所、学校及商场，市民上班、上学及逛街都要先打针，推高疫苗接种率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板124-1_page-0001-1-1.jpg)
+素材提供战友：Revelation熙攘、shuang、文敏
 
-视频制作及上传：Cindy；
+编辑：文敏
 
-G-News发布：小满；
+发布：风起云间（文敏）
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+海报图片设计：飞天面、 Shuang
 
  
 
