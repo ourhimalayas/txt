@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 6:31 AM (UTC)`
+
+1月25号：尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？<br/><br/>【甜蜜蜜<br/>你笑得甜蜜蜜<br/>好像花儿开在春风里<br/>开在春风里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里］
+![img](https://media.gettr.com/group41/getter/2022/01/25/06/07f5b9ed-10ca-2be4-a3f0-3057f99534bc/out.jpg)
+
+---
+
 `@miles 1/25/2022 1:16 AM (UTC)`
 
 1/24/2022 Miles Guo: What does a 20% drop in the US stock market mean? Why is there nothing happening after a 40% drop? In six weeks from today, an event that is at the heart of the Sino-US relationship will take place in Beijing, and an unimaginably new landscape will emerge in the world’s digital currency market.<br/><br/>1/24/2022 文贵直播：美股跌20%意味着什么？为什么跌了40%却毫无动静？从今天起的六周内，对中美关系有核心影响的事件将发生在北京，全球数字货币将出现令人无法想象的新局面！<br/>
@@ -149,13 +156,6 @@ New Release                                              Shop Now at www.gfashio
 
 1/21/2022 Miles Guo: It matters to us whether the Americans are taking down the CCP or not, but we don’t care if they’re Republicans or Democrats; the CCP’s lying skills reached all-time high which made the U.S. videotape its military operations to defend them against the CCP’s bald-faced lies; Nawaz Sharif is a witness proving the CCP has been bribing foreign countries in the world.<br/><br/>1/21/2022 文贵直播：在我们眼里只有灭共或不灭共的美国人，无党派之分！中共造假登峰造极，逼得美军破例录像保留证据，以防中共撒谎造假；谢里夫就是证明中共行贿世界各国的证人！
 ![img](https://media.gettr.com/group26/getter/2022/01/22/22/ce5837ba-3080-a8e3-6339-a0130a89afb6/out.jpg)
-
----
-
-`@miles 1/22/2022 8:50 PM (UTC)`
-
-1月22号：衷心地，感谢战友们的用心．制作直播后的视频剪辑！
-![img](https://media.gettr.com/group11/getter/2022/01/22/20/c02c3f5e-c77a-2363-4d7d-6539cacccc81/out.jpg)
 
 ---
 

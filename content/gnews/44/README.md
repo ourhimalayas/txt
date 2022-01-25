@@ -2,28 +2,26 @@
 ---
 
 
-## 宇宙无限大 地球一粒沙 彭帅在哪里？
-` 帕米尔高原水` [轉載自GNews](https://gnews.org/zh-hans/1905906/)
+## 西安封城解除 北京感染扩大
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906276/)
 
-作者：Aiolis
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-22.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.axios.com%2F8xxrx5n0kePgmNn3zlVeCtGOZYg%3D%2F0x216%3A5760x3456%2F1920x1080%2F2022%2F01%2F22%2F1642875547782.jpg&amp;imgrefurl=https%3A%2F%2Fwww.axios.com%2Fbeijing-china-winter-olympics-covid-19-pand)
+【日本雅虎新闻】中国陕西省省会西安市1月24日宣布，将解除已为期一个月的防止中共病毒（新型冠状病毒）传播而对公民的一切行动限制，使生产活动和生活正常化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/112203-1.jpg)
+实际上从上个月23日开始的对一个人口约1300万的大城市封城，在一个月后首次解除。
 
-图片来自网络
+自上月9日以来，西安市已有2000多人感染。根据中国打破感染链的“零感染”政策，市政府决定封锁这座城市。然而，一名在封锁期间被医院拒绝的孕妇死亡的悲惨事件更增大了公众的不满情绪。自本月21日以来新增感染人数为零，提前了封锁解除的预定时间。
 
-宇宙无限大，地球一粒沙是2018年张高丽迫使彭帅与其发生性关系而讲的话，七哥直播中曾透露为了控制彭帅，中共动用国家力量派出多路人马逼迫彭帅做符合保护名为 “国家领导人” 实则畜生不如的老杂毛们的安全及利益的所谓 “思想工作”，软硬兼施，冻结银行卡等各种措施，这些都在路上。
+另一方面，在中国，河南省郑州市仍在继续限制行动，感染在首都北京继续蔓延，而下月4日冬奥会即将开幕。自本月15日以来，北京已有50多人感染中共病毒（新冠病毒）。 23日，政府要求已购买感冒药和退烧药的市民在72小时内进行PCR检测。 全市高度警戒状态。
 
-在中共国有很多的张高丽，更有无数的彭帅如行尸走肉一般的活着，随时处于可能被消失的境地。
+信息来源：
 
-1月23日澳大利亚公开赛的观众中亲彭帅的粉丝穿着 “彭帅在哪里” 的衣服，遭到阻拦，同时澳大利亚网球协会告诉ESPN，[“根据我们的门票条件，我们不允许商业或政治服装、横幅或标志。” “ 彭帅的安全是我们最关心的问题。我们继续与WTA和全球网球界合作，寻求更清楚地了解她的处境，并将尽我们所能确保她的福祉。”](https://twitter.com/MattWalshMedia/status/1485052235251957760?s=20)
+[西安の都市封鎖、1カ月ぶり解除　北京は感染拡大続く　中国](https://news.yahoo.co.jp/articles/3a0988e0172056307f47bbecc570e55b00dab20f)
 
-可以看出澳大利亚网球协会是用政治的官话应对真正关心彭帅的粉丝或者说真正关心彭帅的人，非常简单的一个道理，要找到彭帅，只能找中共，这事爆料革命给出了答案。合作方是否是CCP的渗透一方，也未可知。而当观众从生命的角度，从人性的角度去寻找彭帅要知道她在哪里，这时澳大利亚网球协会以干涉政治为由发出各种阻挠，和CCP一个尿性，丧失人性和关怀，这是网球运动的耻辱，这些服务政治的官员，毫无对生命的尊重，更无对运动精神的捍卫，很难说他们不是BGY后的笑话！
-
-参考链接: 
-[https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared](https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared)
-
-发稿：*Hong*
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,49 @@
 ---
 
 
-## 慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906413/)
+## 美日加强训练 中共军机扰台 台海再引关注
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906475/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2041.png)图片来源：Red Voice Media Scott Quiner和妻子，Stew Peters
-斯科特原是明尼苏达州Coon Rapids市慈悲（Mercy）医院的一名新冠患者，慈悲医院根据医院指定的治疗方法将斯科特置于呼吸机上，并给予他镇静药物。家属恳求医院尝试其它方法，例如伊维菌素，羟氯喹，以及增加维生素和营养，试图挽救他的生命，而医院拒绝，也不允许病人出院，并要拔掉呼吸机。
-
-经过明州媒体名人Stew Peters （盖特账号@RealStew Peters）在社交媒体上的呼吁和很多人的关注，经过律师介入诉讼和法庭判决后，病人最终得以从慈悲医院转到德克萨斯州一家愿意提供治疗的医院。到了德州医院，医生们说斯科特是他们见过的最营养不良的病人。 这与家属所说的慈悲医生拒绝给他适当的维生素来帮助对抗病毒的说法是一致的。 他的其他器官工作正常，但他的肺有重大问题。
-
-Stew说，“斯科特遭遇了慈悲医院的撒旦杀手所造成的可怕伤害，他们虐待、毒害和折磨斯科特，因为他们惩罚他没有接种疫苗。 得克萨斯州的医生确信，慈悲医院对斯科特造成的致命伤害是他死亡的全部原因，如果他几周前到达德克萨斯州，斯科特就会完全康复。”
-
-这完全是一场可避免的悲剧，如果斯科特在慈悲医院能得到有效的治疗，而非因未打疫苗遭受虐待，如果斯科特能早点离开慈悲医院转到德州医院，他不会这样悲惨离世。
-
-* * *
-
-参考资料：
-
-- Avoidable Tragedy: Scott Quiner Dies Due To Maltreatment At Mercy Hospital
-JANUARY 22, 2022
-[https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/](https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/)
+作者：纽约磐石农场 – 在远方， 台湾宝岛农场 – dobi
 
 
-- Stew Peters’ Viewers Create Temporary Victory In Scott Quiner Case- Mercy Hospital Ordered To Not Kill Him
-JANUARY 13, 2022
-[https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/](https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-文章观点仅代表作者个人，与gnews平台无关
 
-作者：洛杉矶盘古农场 — 郭友（文苏）
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+1月23日晚，台湾空军发布共军军机动态，当日有39架共军战机，入侵台湾西南防空识别区。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+同日，日本海上自卫队宣布，已跟美国海军航空母舰等舰艇，在冲绳南方实施联合训练。训练自17日至22日举行，日方大型护卫舰日向号，美方卡尔文森号航母、林肯号航母、以及两栖突击舰与驱逐舰等，共10艘舰艇参加了演练。
+
+分析认为，美日军演，是针对中共此前对台湾的威胁开展武力威慑；而中共此次扰台机群武力并非最强，威胁程度也不是最大，应该是针对美日的联合军演表达自己不示弱的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-4.jpg)
+参考信息：
+1. [美日沖繩南方海域軍演 39架共機擾台西南ADIZ (影音)](https://cn.rti.org.tw/news/view/id/2122937)
+2. [海自与美海军在冲绳以南实施联合训练](https://china.kyodonews.net/news/2022/01/2395add60d32.html)
+3. [9架共機擾台 學者：表達對美日軍演不示弱態度](https://udn.com/news/story/10930/6055655?from=udn-catebreaknews_ch2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：DM
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

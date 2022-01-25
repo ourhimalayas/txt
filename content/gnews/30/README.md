@@ -2,51 +2,28 @@
 ---
 
 
-## 美日加强训练 中共军机扰台 台海再引关注
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906475/)
+## 法院被要求阻止对所有寻求宗教豁免任务的海军成员进行处罚
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1906551/)
 
-作者：纽约磐石农场 – 在远方， 台湾宝岛农场 – dobi
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-372.jpg)
+图片来源：网络截图
 
+据零对冲1月24日报道，美国海军海豹1-3队等诉劳埃德·奥斯汀等一案的申诉被修改为集体诉讼。 这意味着主审此案的法官可以将授权的范围扩大到近4000名正在寻求宗教豁免的海军现役或预备役成员。律师在周一的一份文件中说，该法院应扩大裁决范围，以涵盖任何寻求例外的海军人员。
 
+第一自由研究所的总顾问迈克·贝里（Mike Berry）在一份声明中说：“我们的客户正勇敢地领导反对疫苗强制令的斗争，但没有任何军人应该因为遵循他们的信仰而面临纪律或惩罚。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+军方继续对任何在宗教上反对疫苗强制令的人表现出敌意，这一事实表明拜登政府并不关心宗教自由。这场诉讼旨在保护尽可能多的服役人员免受进一步惩罚。他补充说，我们必须在对我们的国家安全造成更多伤害之前制止这种情况。
 
+海军批准的宗教豁免为零，而整个美国军队只批准了两项。原告称，这违反了联邦法律，包括《宗教自由恢复法》。
 
+美国法官里德·奥康纳（Reed O’Connor）是乔治·W布什提名的人选，他同意上个月的裁决，即海军提供了一个申请宗教豁免的程序只是在演戏。海军没有对任何疫苗给予过宗教豁免。他补充说：“它只是在每一次拒绝上盖了橡皮图章。”
 
-1月23日晚，台湾空军发布共军军机动态，当日有39架共军战机，入侵台湾西南防空识别区。
+截至1月19日，已有22名海军成员因拒绝接种疫苗而被开除。 根据在一个挑战军事任务的不同案件中提交的文件，自2015年初以来，该部门只批准了一项宗教便利请求，该任务是由国防部长奥斯汀在总统乔·拜登的支持下实施的。 修改后的申诉是在拜登政府的律师要求美国第五巡回上诉法院推翻奥康纳的初步禁令几天后提出的，该禁令阻止了对这35名海军人员的惩罚，因为该案件正在由法院裁决。
 
-同日，日本海上自卫队宣布，已跟美国海军航空母舰等舰艇，在冲绳南方实施联合训练。训练自17日至22日举行，日方大型护卫舰日向号，美方卡尔文森号航母、林肯号航母、以及两栖突击舰与驱逐舰等，共10艘舰艇参加了演练。
+政府尚未提交其关于为何应取消禁令的论据。根据备审案件目录，法院命令它在2月7日之前提供某些信息。
 
-分析认为，美日军演，是针对中共此前对台湾的威胁开展武力威慑；而中共此次扰台机群武力并非最强，威胁程度也不是最大，应该是针对美日的联合军演表达自己不示弱的态度。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-4.jpg)
-参考信息：
-1. [美日沖繩南方海域軍演 39架共機擾台西南ADIZ (影音)](https://cn.rti.org.tw/news/view/id/2122937)
-2. [海自与美海军在冲绳以南实施联合训练](https://china.kyodonews.net/news/2022/01/2395add60d32.html)
-3. [9架共機擾台 學者：表達對美日軍演不示弱態度](https://udn.com/news/story/10930/6055655?from=udn-catebreaknews_ch2)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[Court Asked To Block Punishment Of All Navy Members Seeking Religious Exemptions From Mandate](https://www.zerohedge.com/covid-19/court-asked-block-punishment-all-navy-members-seeking-religious-exemptions-mandate)
 
  
 

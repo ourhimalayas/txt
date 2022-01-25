@@ -2,24 +2,42 @@
 ---
 
 
-## 谷歌侵犯个人隐私被告上法庭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1906567/)
+## 七哥让单伟建和PAG折腾完再把单伟建和PAG连根拔起
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906589/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-85.jpg)
-图片来源： blog.51cto.com
+G-TV视频链接：[https://gtv.org/video/id=61ef405687664c47acd98555](https://gtv.org/video/id=61ef405687664c47acd98555)
 
-美联社1月24日报道，哥伦比亚地区和美国三个州因谷歌欺骗顾客，侵犯他们的隐私，使他们无法摆脱被定位被追踪的境地而被用户告上法庭。
+**郭文贵先生**：我再告诉大家，七哥还没出手呢。我一定会出手让PAG，它在美国司法领域是怎么操纵的这个案，单伟建，七哥就头两年都不想说他，我怕他不折腾把他吓回去了，我要让他把所有折腾完，要把他连根给他拔起来。
 
-在周一华盛顿特区哥伦比亚地区法院，总检察长卡尔·瑞辛称谷歌“系统性”地欺骗顾客使得用户的位置被用于定位。他说这个互联网搜索引擎误导用户，使他们相信他们会控制谷歌收集的信息。而实际上，用谷歌产品并不能防止谷歌收集，储存和通过定位来获利。谷歌能够监视用户的每日生活。
+单伟建的钱，他也不能放他家裤裆里，单伟建的钱去哪咱也都知道，这孙子要不灭，要不找西方搞清楚他的间谍身份，那对西方的危害大着了。所以说就兄弟姐妹们，PAG的事情很有意思，谢谢。
 
-德克萨斯州，印第安纳州和华盛顿州的总检察长也于周一在他们的州法院提起相似的诉讼。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-上周由参议院提起的两党议案将阻止互联网平台霸权，阻止谷歌，元宇宙（原名脸书），亚马逊以及苹果公司在竞争对手面前通过其优势为其谋利益。例如谷歌通常把自己的服务置于检索结果的头条。
+编辑整理：Jacques；
 
-##### 新闻来源： [DC, 3 states sue Google saying it invades users’ privacy](https://apnews.com/article/technology-business-lawsuits-district-of-columbia-de23ecc89b7f113de4e8fd49cda1305c)
+字幕文件制作：小满；
 
-#  
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

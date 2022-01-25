@@ -2,20 +2,18 @@
 ---
 
 
-## 气温下降或导致欧洲出现“燃气荒”
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1906805/)
+## 冒险之旅——芬兰国奥委共95名运动员将启程前往北京
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1906867/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2022/01/251.jpg)图片来源于网络
-据天空新闻（Sky News）报道，美国投资银行高盛的专家说，虽然欧洲目前看起来存储了足够的天然气过冬，但更冷的天气带来的需求增加可能会使天然气储量下降到2018年的历史最低点以下。
+撰稿：随心所在
+![](https://assets.gnews.org/wp-content/uploads/2022/01/252.jpg)图片来自网络
+周一，芬兰奥委会董事会确认了参加北京冬奥的人选。有 22 名运动员经选拔在最后一天加入了芬兰国奥队，即共有95名运动员参加北京冬奥会。其中47人将参加个人比赛，其余则为女子和男子曲棍球国家队。
 
-分析师说，”在这种情况下，很可能出现停电，即使俄罗斯增加对该地区的供应，欧洲西北部的天然气价格也可能达到正常水平的两倍”。
+芬兰奥委会周一证实，它将派出一支由四名女性和四名男性组成的成熟的外展团队参加奥运会。多达四名运动员被选中参加高山滑雪，他们是 Riikka Honkanen、Rosa Pohjolainen、Erika Pykäläinen 和 Samu Torsti 。除了被选中的滑降运动员 Julia Kykkänen 之外，Jenny Rautionaho 以及男子 Antti Aalto 和 Niko Kytösaho 也将被派往北京。
 
-然而，一些官员担心，俄罗斯为该地区提供35%的天然气，在乌俄冲突的情况下，可能以天然气这一能源作为要挟武器。
+前往北京的Jenni Saarinen是唯一的花样滑冰选手。其它参赛者还有单板滑雪中排名第四的 Carola Niemelä， 自由滑 的 Anni Kärävä， Jimi Salonen， Olli Pentala ，Severi Vierelä ，Jon Salminen ，Simo Peltola 和 big Air。最耀眼的奖牌获得者之一Ilkka Herola ，以及 Eero Hirvonen、Arttu Mäkiaho、Otto Niittykoski 和 Perttu Reponen。
 
-高盛分析师指出，目前的供应状况将使欧洲在发生乌俄冲突时难以实施制裁，目前欧洲天然气平衡的紧张状况将使欧盟不愿意阻止任何来自俄罗斯的现有天然气输送。他们补充说，如果对天然气实施制裁，可能意味着天然气价格达到比上个月中旬创下的记录 “更高的水平”。
-
-新闻来源：[Sky News](https://news.sky.com/story/warning-over-electricity-black-outs-for-europe-if-temperatures-fall-12524586)
+北京冬奥会最引人关注的是作为一个践踏人权证据充分的集权政府，承办冬奥会是否符合奥运精神，而应邀前往的各国运动员是否知晓？为了荣耀一尊，中国政府面对疫情此起彼伏；用百般不顾人性的限制，对百姓生活造成了多重伤害。可以说此行充满不确定的变数，任何运动员的加入都已经不可避免的被这个政权赋予了政治捧场的色彩。
 
 *发稿：mgjxs*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
