@@ -2,30 +2,155 @@
 ---
 
 
-## 饮食业主的悲鸣，国家缩短营业时间的政令应明确化
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1907644/)
+## 喜币最牛的是系统，最稳定、合法、永远不会被提现提垮
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1907711/)
 
-撰稿：东京樱花团｜haruka春香
-![](https://lh3.googleusercontent.com/QoTy5-oaV88v-7U5PWiLPilELbYfCR4qJ6c8QTYr7pyQv4Hv9qAXcOvP_QpP8inhbjPMbilyLG0eWdmL72nYEeMrGlC4Kj_TzJK0GpLG5l1SJ7NEmkoIJgpJUvSlo5TE8QMZuQe7)[*图片来源*](https://news.yahoo.co.jp/articles/84f4d3da8d0125f6d24bd68457ce51db999826c6/images/000)
-随着中共病毒（冠状病毒）感染的迅速扩散，福冈县1月24日根据自身冠状病毒警报，开始向饭店提出“短时经营”（缩短营业时间）的要求，很多店铺提前了关门时间，距离上次请求解除不过3个月，餐饮行业传出了“请放过我”的悲鸣。政府要求的防止蔓延等重点措施的佐贺、大分、鹿儿岛等3个县也即将开始缩短营业时间，并扩大到九州全县。另外，有人发牢骚说政府在应对新变种病毒上出现了混乱。
+[https://gtv.org/video/id=61edd98287664c47acd906f6](https://gtv.org/video/id=61edd98287664c47acd906f6)
 
-“现在是第几次要求缩短营业时间的？”在北九州市小仓北区经营日式餐厅“黑田节”的店主流上诚治（49岁）叹了口气，该店获得了防止感染对策的认证，提供酒水的营业时间只能到晚上9点。
+**郭文贵
+Miles Guo**
 
-上次解除“缩短营业时间”要求后，客人陆续开始回来了，年末年初店铺的预约表也已经排满，可是从1月24日开始，预约表上又出现了很多空白。
+喜币最值钱的地方在哪里
+Where are the most valuable things of HCoin?
 
-政府内部围绕会餐等限制人员和抑制人流问题出现了混乱。根据重视哪一方，今后所要求的对应方式也会有所不同。希望国家明确方针。
+你看昨天、前天、大前天
+You can see that yesterday, the day before yesterday, and so on
 
-在福冈市中央区的炸串店“串カツあらた”天神店，下午6点多就有闲古鸟在鸣叫（不来客人的谚语）。店长切通雄太（29岁）表示：“年末年初的预约本以为满了，没想到这次缩短经营时间要求又来了。”
+它是1年365天，7天24小时在线
+It’s online 24/7 and 365 days a year long
 
-缩短营业时间到2月20日为止，但店主们都担心“会再次延长”。大分县去年先后两次自主“短时经营”的要求，此次是第一个重点措施的县，计划于25日发表“短时经营”要求的详细内容。进入今年以来，大分市中央街的酒吧内顾客骤减，平日的营业额甚至为零。店主60多岁的一位男子透露：“经营完全入不敷出，只能靠政府的补助金帮助（度过困难）。”一位和家族经营鸡肉料理餐厅的40多岁女性说：“感觉终于又来了，我们会按照要求继续营业，我们将尽最大努力度过难关。”
+全世界汇丰银行、美国银行、UBS银行
+HSBC, Bank of America, UBS Bank, all banks in the world
 
-24日晚的福冈天神地区，很多下班后匆匆回家的人，在等公交汽车的一位男性上班族（49岁）表示：“儿子正在准备大学考试，因此想确保他预防不被感染。”
+任何一家银行你去提现挤兑，百分之百都破产
+if you go to any bank to withdraw and run on them, 100% of them will face bankruptcy
 
-信息来源：[**「もう勘弁して」「国は方針を明確に」時短要請、飲食店から悲痛な声**](https://news.yahoo.co.jp/articles/84f4d3da8d0125f6d24bd68457ce51db999826c6)
+没有一家不破产的
+and none of them can get away with it
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+只有喜联储
+Only the Himalaya Exchange
+
+你把你所有的HDO提走，它百分之百不会破产
+when you withdraw all of your HDO, 100% will not face bankruptcy
+
+什么事都没有
+nothing will happen
+
+美国的美联储竟然要接受
+The U.S. Federal Reserve actually wants to accept it
+
+说可以跟私人的稳定币就是喜美元HDO可以合作
+saying that they can cooperate with a private stable currency, which is the H-dollar HDO
+
+你知道这是多大的变化？兄弟姐妹们
+Brothers and sisters, do you know how big a change this is?
+
+是天地之间的（转变）
+It’s the transition between earth and heaven
+
+它（美联储）不敢说消除所有的数字货币了
+It (the Federal Reserve) does not dare to say that it will eliminate all digital currencies
+
+它自己都在研究美元要数字货币化
+The Fed itself is studying the digital monetization of the US dollar
+
+还要跟私人稳定币就是咱喜美元要联合
+and it will combine with the private stable currency, which is our HDO
+
+喜币牛就牛在不是你英国的交易所
+The awesomeness of our HCoin is that it’s not the UK exchange
+
+人家是第三方国家澳大利亚交易所
+It’s is a third-party country Australian Exchange
+
+还有其他国家交易所
+and there are other national exchanges
+
+不但如此
+Not only this
+
+你看看接下来大家我跟你说的
+You’ll see the next what I have told you
+
+喜币未来机构投资者公告的时候
+When announcing the institutional investors of HCoin in the future
+
+如果你们要不害怕、不震惊、不从椅子上掉下来
+if you are not scared, not shocked, and not falling off from your chair
+
+如果是东弟颖妹妹不流水流的像汪洋大海一样
+if Hao Haidong brother and Ye Zhaoying sister do not enjoy what they are doing
+
+咱这事就算七哥放狗屁
+this matter will be considered Brother 7 (Miles Guo) is bullshit
+
+这个巨大的变化，你看看这个稳定币还有这个系统
+This huge change, take a look at this stable currency and it system
+
+我今天可以告诉大家还有20%（黄金）在这块搁着
+I can tell you today that there is also 20% (gold) sitting with it
+
+人类上没有第二家
+and you cannot find another one among mankind
+
+而且是多个法律管辖区约束
+And (HDO) is bound by multiple legal jurisdictions
+
+而且我可以（说）最根本的这个稳定币你随时可以拿钱的
+and I can say the most fundamental of this stable currency is that you can take money at any time
+
+你可以清零的
+and you can clear it
+
+这是为什么现在几十个国家现在跟这个喜联储在谈这个执照的时候
+That’s why dozens of countries are now talking to the Himalaya Exchange about (their trading) license
+
+说你们到现在展现的是任何数字货币没有的系统
+saying that what you’ve shown so far is a system that no digital currency has
+
+记住啊这个系统设计是七哥的创意
+Remember, this system design is the creativity of Brother 7 (Miles Guo)
+
+是最牛的
+It’s the best
+
+第二，是这个系统的合法性（是）最牛的
+Secondly, the legitimacy of this system is the best
+
+第三，它法律的设置在全球性它的法律安全性是最牛的
+Thirdly, its global setting and its legitimate security are the best
+
+还有一个
+There is one more
+
+它的稳定的整个储备系统是最牛的
+its stable entire reserve system is the best
+
+还有个绝对限制每年发行只有10亿个
+and there is also an absolute limit of only one billion (HCoin) issued per year
+
+* * *
+
+Date: 01/16/2022
+原视频标题:
+喜币最牛的是系统，最稳定、合法、永远不会被提现提垮
+The best thing about G Coin is its system, which is the most stable, legitimate, and will never go bankrupt with withdrawals
+原视频日期：2022/01/14
+原视频链接: [**https://twitter.com/jeff\_john\_sta/status/1482685155751964674?s=24**](https://twitter.com/jeff_john_sta/status/1482685155751964674?s=24)
+任务编号：KC429（3545）
+视频时间段 : 0:00-02:10
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布 : 洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,32 @@
 ---
 
 
-## 卡车司机抗议疫苗强制，车队浩浩荡荡驶向渥太华
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907016/)
+## 两党议员呼吁立法禁止国会议员拥有或交易股票
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907099/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹 
 
-整理报道：小鱼儿
-编辑：文泓
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-39.jpg)图片来源：CNBC
+1月24日，《新闻极限》报道，25名民主党众议员和2名共和党众议员写信敦促众议院领导层“迅速提出立法”，禁止国会议员拥有或交易股票。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2U20TSMSSSOZ10X0EPX.png)图片来源：The Defender
+民主党众议员贾里德·戈登（Jared Golden）起草了该信，周一发给了众议院议长南希·佩洛西（Nancy Pelosi）和少数党领袖凯文·麦卡锡（Kevin McCarthy），信中写道：“鉴于最近的不当行为，不幸的是，这一常识性的两党立法是必要的，并且得到了各政治派别美国人的支持。你们两人最近都在公开评论中谈到了这个问题，但这个明显的问题在得到解决之前不会消失，国会在我们有能力解决这个问题时不应该拖延。”
 
+报道披露，12月份，佩洛西坚持认为，尽管国会议员经常掌握内幕信息，但应该允许他们交易个人股票。于是，几天后，她的丈夫就购买了价值数百万美元的Alphabet, Disney, Micron Technology, Reoff XX, Salesforce 和Roblox的股票。
 
-当地时间1月24日，据零对冲称，进出加拿大的卡车司机的跨境疫苗强制在卡车界引起了反响，同时加拿大广播公司(CBC)新闻报道，**周日全国各地的卡车司机前往加拿大首都渥太华，抗议联邦政府疫苗强制政策。**
+上周，加利福尼亚州的民主党参议员乔恩·奥索夫(Jon Ossoff)和共和党人乔什·霍利(Josh Hawley)也都提出了类似的法案，禁止立法者及其家人在任职期间买卖股票。
 
-这次卡车司机活动被称为“自由集会”，他们对1月15日的强制规定感到愤怒，即强迫未接种疫苗的司机在进入加拿大前接受为期两周的隔离和新冠病毒测试。在经常出差的16万名司机中，至少有26,000人将不能加入在加拿大和美国各地物流运输。
+奥索夫的法案，即《禁止国会股票交易法》（Ban Congressional Stock Trading Act），将要求立法者、他们的配偶和家属将他们的股票投资组合放入秘密信托（blind trusts），不允许立法者利用内部信息交易股票和赚钱。如果立法者违反法律，该立法规定还将从他们的工资中罚款。
 
-自由集会的组织者说，“对我们的加拿大同胞来说，(政府)政治上的过度行为该结束了。把我们到联邦政府的门口抗争，要求他们停止所有针对人民的强制，这样做是为了我们的子孙后代，也是为了重新获得我们的自由生活”。
+霍利的法案，即《禁止国会内幕交易法》（Banning Insider Trading in Congress Act），也将禁止立法者买卖股票，但不禁止受抚养的子女这样做。如果立法者违反法律，他们必须通过财政部将获利返还给美国人民。
 
-“同时，我们需要捐款，以帮助支付燃料和食物费用，好心人已经设立了资助(GoFundMe)机构，并直接把捐款转给燃料供应商。任何剩余的捐款将被捐赠给一个可靠的退伍军人组织，该组织将由捐款者选择。”截至周一，有超过40,500人捐款，筹集了超过300万加元。
+奥索夫最近说：“国会议员不应该在我们制定联邦政策的时候，在我们有机会接触到特权机密信息的时候玩股票，这是政府的基本诚信和道德问题。”
 
-车队的目标是在本周晚些时候抵达渥太华，并形成足够大的影响力，要求立法者结束强制疫苗。考虑到大量新鲜水果和蔬菜流经北美边境，如果边境两边的疫苗强制不被废除，对加拿大的消费者而言可能是一个噩梦。
+文章披露，这些法案是在《商业内幕》(Business Insider)的调查发现52名国会议员违反了《股票法》(STOCK Act)之后提出的。《股票法》规定，国会议员必须披露交易。根据《商业内幕》的报告，加州的民主党参议员黛安·费恩斯坦（Diane Feinstein）和亚利桑那州的马克·凯利（Mark Kelly），以及共和党参议员肯塔基州的兰德·保罗（Rand Paul）和堪萨斯州的罗杰·马绍尔（Roger Marshall）近年来都违反了该法律。
 
-参考新闻：[Truckers Head To Ottawa In ‘Freedom Rally’ Against Vaccine Mandate](https://www.zerohedge.com/political/truckers-head-ottawa-freedom-rally-against-vaccine-mandate)
+**新闻来源**
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[27 Lawmakers Call Upon House Leaders to Ban Members From Stock Trading](https://www.newsmax.com/politics/stocks-pelosi-mccarthy-golden/2022/01/24/id/1053772/)
 
  
 

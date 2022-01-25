@@ -2,26 +2,42 @@
 ---
 
 
-## 日本多措并举大力推动量子技术国家战略实施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906206/)
+## 谷歌在新的诉讼案中被指控“侵犯”用户隐私
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906252/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-370.jpg)[图片来源](https://www.groundstation.space/opportunities-in-horizon-europe-for-govsatcom-quantum-and-ai/)
-1月24日，日本政府宣布了一项政策，从战略上鼓励产业界、学术界和政府合作使用量子技术。 政府将考虑对需要长期投资研发的公司，以及引进量子技术的公司提供税收优惠，以刺激私人投资。
+**翻译：文扬**
+**编辑：Candy**
 
-到目前为止，日本在量子技术方面主要侧重于研究和开发，设备成本和传统观念阻碍了量子技术的广泛采用，中国有3074项与量子技术有关的专利，美国有1557项，而日本的专利数量则徘徊在750项。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/谷歌.png)图片来源：Willie B. Thomas/Getty
 
-中美等国将量子技术视为与国家安全直接相关的重要技术，都在由政府主导并扶持研究、开发和商业化。鉴于此，日本修改国家战略将量子技术定位到关系国家安全的高度，提出要拥有量子技术。
 
-计划扩大对量子技术的引进，鼓励企业参与，私人投资，为初创企业提供基础技术，将专注于开发更多量子技术在安全等领域的应用，以加强经济安全和工业竞争力。
+三个州和华盛顿特区的总检察长称：谷歌作为科技巨头，使用了“欺骗性和不公平”的做法。
 
-信息来源：
+德克萨斯州、印第安纳州、华盛顿州和哥伦比亚特区的总检察长已对谷歌提起诉讼，称其在获取用户的位置数据时采用了 “欺骗性和不公平 “的做法。
 
-[政府、量子技術のイノベーション戦略見直し 税制優遇などで民間投資促す](https://news.yahoo.co.jp/articles/82178646de6fa41f9a27eaf22aff5e4271263730)
+哥伦比亚特区总检察长卡尔·拉辛（Karl A. Racine）周一在一份声明中宣布，该诉讼旨在结束谷歌“非法使用‘黑暗模式’”，并“收回从位置数据中获得的利润”。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+拉辛称，自2014年以来，无论用户的隐私设置如何，谷歌都在调查用户的信息，造成一种数据没有被追踪的欺骗性假象。诉讼称，如果谷歌用户关闭了他们的位置数据，他们就会收到通知，试图诱使他们再次分享这些数据。
+
+诉讼指出：“通过反复‘催促’用户启用谷歌账户设置，谷歌增加了用户无意中或出于沮丧而启用该设置的机会。”
+
+它还指责这家科技公司对某些隐私设置和更新进行了“误导、模糊和不完整的描述”，导致许多人在不知情的情况下分享数据。
+
+总检察长写道，这些做法“损害了希望保护其敏感位置信息的消费者”免受谷歌及其广告公司的侵害。
+
+谷歌否认了这些指控，称该诉讼提出了 “关于我们设置的不准确的主张和过时的论断”。他们承诺将对这些指控进行 “大力 ”辩护。
+
+原文链接： [Google accused in new lawsuit of ‘invading’ user privacy — RT World News](https://www.rt.com/news/547229-google-lawsuit-location-data/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

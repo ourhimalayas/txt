@@ -2,22 +2,171 @@
 ---
 
 
-## 七哥回忆1120跟班农先生的经历（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1907764/)
+## 喜币和新中国联邦合璧，犹如黑暗中的明灯，令习近平和达沃斯感到恐惧！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1907844/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥回忆1120跟班农先生的经历（下）-scaled.jpg)
-当三年前的中共，在美国在世界，海航之前在买买买，班农先生无法想象 一个做贸易的企业家怎么就干掉他呢？怎么杀掉他呢？你有什么证据呢? 他最早看的那些视频啊、照片啊，就这个短暂的1120前面的小半年到一 年的这个认知，是班农先生对于消灭共产党，对中国的文化，对共产党的邪恶和西方的渗透，都从每一件事，包括也体会咱们爆料革命的这种坚持和执着。我们开会的时候，之前包括安全部门的警告，有人要杀害，要危害。共产党做的时候，你从来都不知道的，我最起码一个小时内接到两到三个电话，莫名其妙的发信息，你会死掉的，下一步会杀掉你，然后我知道你下一步会走哪条街呀，是吧。然后把班农你们都会干掉，放毒啊这些事情就是每时都在发生，不是每天是每时，从来没有1秒钟动摇过我们。最后大家知道，皮尔酒店开了那个成功的会。所以今年那个1120的日子，我们看到今天再坐在这里的时候，这个世界已经是大变。 最大的变化是什么，刚才班农先生讲，我想说的是，第一个当年我们讲的1120是王建事件，还有成立法治基金法治社会。还有战友们的爆料革命。
+[https://gtv.org/video/id=61eddb3987664c47acd90792](https://gtv.org/video/id=61eddb3987664c47acd90792)
 
-*发布：开智则立*
+**郭文贵
+Miles Guo**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+你们拥有世界上最牛叉的数字货币，喜币
+You have owned the most powerful digital currency in the world, Himalaya Coin
+
+是唯一在人类上未来全球可以流通的
+It is the only one that can be circulated globally in the future
+
+是全世界政府法律遵守的
+It also complies with the government laws around the world
+
+啥叫数字货币
+What is a digital currency?
+
+就是不受政府敲诈的
+It is a new kind of money that is free from extortion by the government
+
+自由流通的、保密的
+freely circulated, confidential
+
+谁也拿不走的新的钱
+and cannot be taken away by anyone
+
+比黄金、比你的纸币还重要
+more important than gold and your paper money
+
+那么这个权力 共产党给拿走了
+Then what is the right being taken away by the Communist Party?
+
+叫数字人民币
+It is called digitalization of RMB
+
+数字化叫绝对中心化
+The digitalization of RMB is absolutely centralized
+
+没有政府的币
+Digital currency is not supposed to be controlled by government
+
+它要绝对政府化
+But it (digitalization of RMB) has to be absolutely controlled by government
+
+那你不就找死吗
+It is ridiculous
+
+那么我们给了你喜币
+Then we give you Himalaya Coin
+
+全人类都要
+All mankind want to buy
+
+不光是中国人民要买
+Not only Chinese want to buy
+
+全人类都要买 一定会的
+All human beings will definitely want to buy it
+
+还要全球的流通
+Also it will be circulated globally
+
+你知道这次达沃斯论坛说什么吗
+Do you know what this Davos forum is talking about?
+
+我告诉大家
+Let me tell you
+
+我今天可以说达沃斯论坛私下讨论最多其中之一
+Today I can say that, one of the most discussed topics in private at Davos forum is
+
+包括新中国联邦是否会被很多国家突然给接受
+including whether the New Federal State of China will be suddenly acknowledged by many countries
+
+成为代表中国人民的政府
+to become a government representing the Chinese people
+
+和喜币是否会在全世界全面流通
+and Himalaya Coin will be fully circulated around the world
+
+他(们)说 如果喜币流通
+They said, if Himalaya Coin is circulated
+
+我们就控制不住了
+We will not be able to control it
+
+这将成为所谓的
+This will become so-called
+
+他们叫未来100年金融计划
+They call it the next 100 years financial plan
+
+就是把数字货币化的权力操控在达沃斯手里
+It is to put the power of digital monetization in the hands of Davos
+
+现在 习近平害怕
+Now Xi Jinping is afraid
+
+你以为光习近平害怕
+Do you think that only Xi Jinping is afraid?
+
+你以为光这些达沃斯党 全地球上这几百个富豪害怕
+Do you think that only these Davos Party members and the hundreds of rich people on the earth are afraid?
+
+恋童癖害怕
+and the paedophiles are afraid?
+
+我告诉大家
+Let me tell you
+
+喜币就像在黑暗中的一盏明灯
+Himalaya Coin is like a beacon in the dark
+
+一灯能除千年暗
+A Light Removes a Thousand Years of Darkness
+
+一个黑暗（中的灯）能把千年的黑暗给去掉
+A light in the dark can remove the darkness of a thousand years
+
+咱就是那个黑暗中的灯叫喜币
+We are the light in the dark called Himalaya Coin
+
+我们的这个设计
+This is our design
+
+一智能灭万年愚
+One Wisdom Light Destroys Ten Thousand Years of Stupidity
+
+喜马拉雅联邦 你记住
+Himalaya Federal State, you remember
+
+没有联邦喜币就没有那么牛叉
+No Federal State, Himalaya Coin wouldn’t be this great
+
+有喜币没联邦也没那么牛叉
+No Himalaya Coin, the New Federal State of China wouldn’t be this great
+
+New Federal of State 新中国联邦和喜币放在一起
+New Federal State of China and Himalaya Coin together
+
+就是灭掉了万年的愚蠢
+are the light to destroy the ten of thousand years of stupidity
+
+* * *
+
+Date: 01/14/2022
+原视频标题: 《喜币和新中国联邦合璧，犹如黑暗中的明灯，令习近平和达沃斯感到恐惧！
+The combination of Himalaya Coin and the New Federal State of China is like a beacon in the dark, which scares Xi Jinping and the Davos!》
+原视频日期：2022/01/22
+原视频链: **[https://gettr.com/post/ppvrj3e571](https://gettr.com/post/ppvrj3e571)**
+任务编号：KC430（03556）
+视频时间段 : 0:00-2:19
+中听校：洛杉矶盘古农场 – WH
+翻译：洛杉矶盘古农场 – WH
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –文新
+审片：洛杉矶盘古农场 –银龙
+发布 ：洛杉矶盘古农场 –恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
