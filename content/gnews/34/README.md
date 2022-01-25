@@ -2,31 +2,36 @@
 ---
 
 
-## 有声|新中国联邦创始人郭文贵先生寄语G-EDU上线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908108/)
+## 有声|美国谋杀率达到自1990年以来的最高水平
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908296/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月21日盖特消息，郭文贵先生对新中国联邦GEDU教育平台上线寄予厚望。
+配音：香草山佛教部 – 李傻
 
-GEDU教育平台由喜马拉雅纽约磐石农场开发，历经两个月运行，于1月21日正式上线。郭先生庆贺G-EDU教育平台成功上线，并感谢教育平台战友们的辛勤付出。
 
-郭先生表示，新中国联邦的教育平台上线意义重大。在病毒疫情的艰难时刻，我们有了新的希望，新的未来。它的目标和方向，就是在没有共产党的新中国联邦来后，培养一批智慧，勇敢，善良，有信仰的，健康诚实的，让人尊敬的新中国新一代人！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+自新冠病毒大流行以来，美国各地的谋杀率在不断飙升。2020年，凶杀案飙升至近30%，为30年来新高。2021年，大多数城市又在此基础上增长了4%。其中，每10万公民中有6.9人被谋杀，是1996年以来最高的谋杀率。涉及到谋杀率较高的城市有，洛杉矶、芝加哥、费城、休斯顿、凤凰城。
 
-文字版原文：[新中国联邦创始人郭文贵先生寄语G-EDU上线](https://gnews.org/zh-hans/1898155/)
+随着犯罪率的上升，2020年的枪支购买量也在上升，创下了对希望购买枪支的美国人进行背景调查的记录，为2100万次。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+文字版原文：[美国谋杀率达到自1990年以来的最高水平](https://gnews.org/zh-hans/1904008/)
 
-![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

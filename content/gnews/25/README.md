@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|天津爆发大规模抗议 超十万民众声讨中共当局
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908324/)
+## 2022.01.19文贵先生大直播
+` 【爆料贵语】新西兰伊甸农场` [轉載自GNews](https://gnews.org/zh-hans/1908427/)
 
-配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-19.50.46-1.jpeg)
+(如果认为)达沃斯和我没关系，就让你成为永远的达沃斯的奴隶
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-19.50.46.jpeg)
+达沃斯与会人具备着以下三个特征：
+
+1.影响国家的政治和军事的能力。
+
+2.控制的财富能左右数以亿计人的命运。
+
+3.与官方勾结，手里握着许多条人命
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-22.52.37.jpeg)
+人类只要存在达沃斯党，人类上就没有一天是安全的。
+
+参加达沃斯的没有一个人打了疫苗
+
+新中国联邦的诞生之后，达沃斯想在中国继续存在下去的可能性几乎没有
+
+没有教育，不可能有信仰也不可能有宗教。
+
+中国共产党和世界的经济脱钩，就是中国人民的脱险。中国共产党跟世界脱钩，中国人就脱假。共产党脱了钩，中国人就脱了控。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月23日，有盖特网友视频爆料，中共国天津市在近日发生了大规模的民众抗议，参与抗议的整体人数已超过了十万人次。
-
-从视频中可见，拍摄时间为深夜，有大量民众聚集在当地的一处广场上一边摄像一边发出高声抗议。而中共派出的大量警方人员已与当地民众激烈推搡在一起，有个别民众遭到警方逮捕。现场上可见一位民众在被警方殴打后已当场丧失意识。
-
-据了解，这些抗议的市民先后占领了当地的多个公共广场并向中共当局发起了强烈声讨，但随后就被当地政府派出的大量武警、特警镇压。截至目前，已有多名市民重伤、被捕。
-
-文字版原文：[天津爆发大规模抗议 超十万民众声讨中共当局](https://gnews.org/zh-hans/1904214/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
