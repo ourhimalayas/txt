@@ -2,202 +2,49 @@
 ---
 
 
-## BVI（英属维尔京群岛）的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI（英属维尔京群岛）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1905479/)
+## 文·贵天成（特别篇）—— 爆料革命历史上的1月26日（四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905740/)
 
-[https://gtv.org/video/id=61ed365387664c47acd8c403](https://gtv.org/video/id=61ed365387664c47acd8c403)
+整理：BENJ1
+编辑：淑芳
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-24-下午7.15.18.png)图片来源：雅典娜设计组
 
-Hold on，这不是最重要的
-Aguanta, esto no es lo más importante
 
-PAG更牛的
-Lo mas increíble de la Alianza del Pacífico
+**傅政华专案组虐待文贵先生家人和盘古员工**
 
-就像当时18楼（房产）的拥有者
-Así como el dueño del piso 18 en aquel momento
+2015年1月10号的时候，去了一百多个特警。跑到盘古酒店，正好我们家人在酒店里边，（他们）毎天都陪我父母吃饭，在酒店大家聚一聚，就把我六十多岁的大哥、六十多岁的二哥、还有五十多岁的四哥、还有一个我在海南的五哥，同时还有我重病的六哥，我太太、我女儿，当场拿着枪顶着全给抓走了。在酒店大堂，顶着枪，把我的员工很多人打得鼻孔出血，打得趴在地上。另一个员工是个保安，脱下件棉袄给我大哥，当场就把腿给打断了。然后，带走了我们三十多个高管，带走了我的八个家人。
 
-是个BVI公司
-Es de una compañía registrada en el BVI
+**为什么离开中国**
 
-这个BVI公司法官就认为是你郭文贵控制的
-El juez piensa que esta compañía es controlada por tí mismo Miles Guo
+马建副部长在过去的十八年里面，主要负责党内所谓的腐败调查，掌握太多人的证据了，掌握太多人的信息了，一定要灭他的口。同时他还想当安全部部长，老傅还想当安全部部长，挡老傅的事能行吗？他肯定抓（马）。那抓他之前肯定先抓老郭。就在这种情况下，我一看不行我就跑了，我就离开中国了。我真得感谢老傅！
 
-所以是你的
-Por eso te pertenece
+**共产党内绝大多数都是好人**
 
-就判了18楼（房产）归他们（PAG）了
-Y declaró la propiedad del piso 18 a ellos (PAG)
+我认为国内党员里面，我见过政府的官员大部分人都是好人，包括纪委、公安这里面大部分都是好人，只是那一部分是坏人。这一部分坏人，今天很可悲的事情，掌握着巨大的权力，颠倒黑白。这就是我今天要做的，我们要让所有的老百姓知道，谁是好人，谁是坏人，谁是颠倒乾坤的人，谁是咱们大清朝赵高似的人物，谁是一个个的赵高似的人物，像傅政华这号人不就是赵高吗？
 
-诶，这个船的公司也是个BVI公司
-Ay, y esta compañía del yate (Lady May) también es del BVI
+**员工被虐待**
 
-2月2号将有一个重大的开庭
-El 2 de febrero habrá una importante sesión judicial
+这些员工被抓起来以后绝大多数人都是被羞辱。比如说，我们被询问了270多个员工，其中女员工很多。有很多男员工回来都跟我说，遭受了非人的折磨。
 
-开庭什么呢？
-¿De qué se trata?
+（一个男员工）打他的时候，大概三个星期，把这孩子打得胳膊都断了好几次，最后都不能动，说你还能活着出去吗？
 
-上一次你看就这一次
-La vez pasada, mira esta vez
+另外我们一个女员工啊，被抓起来以后，拷在铁椅子上，然后再戴上脚镣。这孩子被关了三天在这里面在铁椅子上，当然她拉屎尿尿都在裤裆里面了，都尿在里面了，三天后离开的时候她屁股上都长了两个大包。回来后她的老公给我打电话，哭得泣不成声，说我的老婆回来基本上是傻了、疯了。
 
-（ABA）判定他（们）强烈违反职业道德的时候
-(La American Bar Association) emitió un veredicto que ellos violaron fuertemente la ética profesional
+更夸张的事情，办案的公安在一开始的时候，把手伸到女孩的裤裆里面去摸，你尿了没有你有没有尿？这是办案吗？这比日本鬼子进村还厉害！还有的，基本上，男孩子进去，都给匝上脚镣手铐把鞋给你脱了，关你几天，然后看你手机，一看你跟女孩有联络他就说，你有老婆的话，我就把这个消息告诉你老婆，你信不信？我把你妈找来你信不信？我把你爸抓起来你信不信？就这么威胁。
 
-还说到了什么
-Qué más mencionó
+往期回顾：
+[文•贵天成（特别篇）——爆料革命历史上的1月26日（一）](https://gnews.org/zh-hans/1900501/)
+[文•贵天成（特别篇）——爆料革命历史上的1月26日（二）](https://gnews.org/zh-hans/1900530/)
+[文•贵天成（特别篇）——爆料革命历史上的1月26日（三）](https://gnews.org/zh-hans/1900569/)
 
-说关于Lady May的这个藐视法庭（的罪名）
-Habló sobre un cargo de que Lady May desacató al tribunal
+*发布：tianzhihuan*
 
-还有一个：船属不属于Miles Guo的（问题）
-Otra cosa: (el problema) el yate le pertenece o no a Miles Guo
-
-2月2号再定
-El veredicto se dará el 2 de febrero
-
-我的预感2月2号会判我们大输
-Tengo un presentimiento de que la resolución del 2 de febrero vamos a perder
-
-他会判什么呢？
-¿Cuál será la sentencia?
-
-让你船又是你郭文贵的了
-Hará de que el yate sea tuyo Miles Guo
-
-（船）就不是你家族的、你女儿的了
-(El yate) no es de tu familia, tu hija
-
-然后再判什么？
-¿Y qué otra cosa?
-
-那个BVI公司，叫Buffalock（的）
-Esa compañía de BVI, se llama Buffalock
-
-也是你Miles Guo的
-Tambien es tuyo Miles Guo
-
-说到这个的时候，大家记住啊
-Hablando hasta aquí, todos recuerden
-
-我们的战场，另外一个战场在BVI
-Nuestro campo de batalla, el otro campo está en BVI
-
-在BVI这个小岛上
-En esta pequeña isla British Virgin Islands
-
-法官和律师(资源有限)
-Los abogados y jueces (son limitados)
-
-那当地两大律师事务所叫什么？
-¿Y cómo se llama las dos grandes firmas de abogado que hay allá?
-
-Appleby，有一个（叫）Appleby
-Appleby, uno se llama Appleby
-
-大家看一看啊
-Todos vean
-
-Appleby就是 A-P-P-L-E-B-Y
-Appleby es A-P-P-L-E-B-Y
-
-这家公司，这家律师事务所
-Esta compañía, esta firma de abogados
-
-你知道什么概念吗？
-¿Sabes sobre esta firma?
-
-这三、四年来
-Estos 3, 4 años
-
-他们在BVI的缠诉
-El enredo judicial de ellos en BVI
-
-这个Appleby的律师事务所竟然是
-Esta firma de Appleby resultó ser
-
-曾经代表过七哥的案子
-Representó uno de mis casos
-
-代表过我们家族的案子
-Representó en el pasado casos de mi familia
-代表过我儿子的案子
-Representó casos de mi hijo
-
-这家公司竟然跟PAX来合作
-Ahora resulta ser que esta compañía colabora con PAX
-
-来告我们
-Para demandarnos
-
-就在PAX的官司
-La demanda de PAX
-
-在那个BVI代表PAX来告我们
-En eso BVI vino a demandarnos a nombre de PAX
-
-跟这个Bondi，Cahill（律所）一模一样
-Igualito como la firma de Bondi y Cahill
-
-你知道二三年前
-Tu sabes que 2-3 años atrás
-
-你看过我直播的时候说过
-Si viste mis transmisiones en vivo yo había dicho
-
-我说，内部人告诉我说
-La gente interna del PCCh me dijo
-
-共产党说一定要在BVI，巴哈马这地方
-El PCCh estará en BVI, Bahamas
-
-彻底搞定法官和律师事务所
-Resolverán al juez y a la firma de abogados
-
-因为那里总共岛上不超过五个法官
-Porque en esa isla no sobrepasa de 5 jueces
-
-这是战友当时大家直播中大家都提到的
-Esto lo mencionó el compañero luchador en una de las transmisiones en vivo
-
-这个律师事务所Appleby就明显
-Esta firma de Appleby evidentemente
-
-跟这个Bondi、跟Edward Moss一模一样
-Es igualito a este Bondi y Edward Moss
-
-就这，到现在还是代表PAX官司
-Ahora de paso representa a la compañía PAX
-
-他当然现在还没有判决
-Él obviamente aún no tiene la sentencia
-
-还没有赢呢
-No ha ganado
-
-* * *
-
-日期：01/20/2022
-原视频标题： BVI（英属维尔京群岛）的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI（英属维尔京群岛）！
-Transmisión El sistema judicial de las Islas Vírgenes Británicas está a cargo el PCCh, la firma de abogados Appleby de la otra parte también tienen un conflicto de intereses, ¡y nuestro segundo campo de batalla está en las Islas Vírgenes Británicas!
-
-原视频日期：01/19/2022
-原视频网址：[https://gettr.com/post/pp6wryee68](https://gettr.com/post/pp6wryee68)
-任务编号：KC427（3534）
-视频时间段：0:00-02:12
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

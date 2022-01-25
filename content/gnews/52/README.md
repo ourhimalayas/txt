@@ -2,35 +2,33 @@
 ---
 
 
-## 俄罗斯将进一步加强虚拟币监管
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900647/)
+## 台湾前线｜Omicron感染持续扩大 首批默沙东口服药抵台
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1902545/)
 
-撰稿：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-当地时间1月20日，俄罗斯央行发布报告称，加密货币对该国的金融体系构成威胁，提议在全国范围内禁止。
+** 港台前線關注組｜發佈日期/ 22/1/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-中央银行指出，加密货币的使用为俄罗斯人避免金融监管提供了便利。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-65.jpg)
-目前在俄罗斯使用加密货币进行支付已经是非法的，但该法律并未得到广泛执行。2021 年 12 月，俄罗斯央行宣布不再允许该国的基金投资加密货币。一位央行官员表示，拟议规则仅在俄罗斯境内生效，拥有离岸银行账户或外国资产的俄罗斯人将不受其在国外的限制。
+台湾中央流行疫情指挥中心24日表示，首批默沙东口服抗病毒药Molnupiravi清晨到达台湾，未来将提供具有重症风险因子之轻中度COVID-19个案治疗使用。截至目前，台湾统计数据指出新冠确诊中84%为轻中度症状，死亡则占所有确诊数4.6%。
 
-目前俄罗斯每年加密货币交易额大约 50 亿美元， 俄罗斯杜马发言人维亚切斯拉夫·沃洛丁本周早些时候表示，杜马将在春季会议期间考虑制定加密货币监管框架。
+- [COVID-19 最新情報｜日本考慮公費負擔新冠口服藥 郭文貴曾爆新藥副作用極強](https://gnews.org/zh-hant/1770349/)
 
-参考链接：[俄罗斯将进一步加强虚拟币监管](https://thehill.com/policy/technology/590824-crypto-crashes-wiping-out-billions-in-value)
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+## 台湾Omicron感染持续 呼吸道症状就医应采检
 
-总编：文真
-编辑：文特
-校对/发稿：Hetangyuese
+自1月开始台湾发现首起本土Omicron病例，本土确诊数量不断增加，感染区域集中在台湾北部（台北、新北、桃园）。位于桃园的远雄自由贸易港区加值园区亚旭电脑群聚感染成为目前最大规模的群聚感染案，该公司聘请之外籍移工受感染后于宿舍（大通铺）传播，此群聚感染目前共累计有70名确诊。桃园市长郑文灿发布命令，**全（桃园）市医疗院所只要遇到上呼吸道症状民众就诊，一率采检**。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+24日，台湾疫情指挥中心公布新增15例本土个案，其中8例发生在高雄，Omicron已在台湾发生隐性传播链。防疫指挥官陈时中表示，24日的新增个案已经大幅减少，觉得庆幸但危机还没有过（年节将至）。又高雄港发生的感染，指挥中心公布个案间具有关联性，因此判定高雄疫情尚无扩大迹象。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+针对高雄港区疫情，高雄市长陈其迈表示，高雄发现的15例感染目前都与新光轮（高雄港区疫情起始点）群聚有关，研判感染已延伸，考量到港区工作环境繁杂，为阻断传播链，23日起高雄将扩大采检，民众若出现呼吸道症状就诊经医生评估后免费发放居家快筛试剂，民众再将采检结果回报诊所。
+
+## 台湾实施疫苗数位证明
+
+台湾政府依照欧盟规格于1月21日推行疫苗数位证明（疫苗护照），引起民众热议。目前，台湾疫苗数位证明仅用于进出歌舞厅、夜总会、具乐部、酒家、酒罢、理容院、夜店、三温暖等受管制之八大场所，然未来是否扩大疫苗数位证明适用场所值得关注。
+
+在台湾中央政府推动疫苗数位证明前，台北市、新北市原拟推行疫苗通行证，要求进入校园应出示疫苗接种记录，再逐步扩大到餐厅、运动中心等公共场所。双北市的疫苗通行证计划遭到卫福部长陈时中之反对，他表示：“不能过于强烈限制人身自由”。然而，在卫福部长反对双北提出的疫苗通行证后，中央政府随即实施疫苗数位证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Food-Dine-Socia-Media-Youtube-Banner.png)
+来源｜[yahoo即時新聞](https://tw.news.yahoo.com/首批抗疫口服藥抵台-將提供具重症風險因子之輕中度確診治療-063606872.html)、[自由時報](https://news.ltn.com.tw/news/life/breakingnews/3810177)、[TVBS](https://tw.news.yahoo.com/桃園-高雄人注意-1症狀就醫-強制採檢-即日起實施-000744559.html)
 
  
 

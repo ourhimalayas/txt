@@ -2,23 +2,22 @@
 ---
 
 
-## 亲共团体助私人机构鲸吞公营房屋建设
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903195/)
+## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
 
-作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/RMLxvD2OX-B2CjuiBN885jeVQI07r_JTBc9WOQXPVjk.jpg)
-团结香港基金促政府精简程序，将 2026-2031 年间的12万住宅单位提前到 2025 年或之前落成，称可缩短公屋申请平均轮候时间1.2 年。据悉，港府自 2013 年提出《长远房屋策略》以来，已拖欠12万个公私营房屋单位。报告提议由承建商一并负责公营房屋的设计和建造，重新研究港深边境地区的地积比，提高发展密度，同时放宽输入外地工人，并将“组装合成”建筑法等新技术应用普及化。
+**疫情關注組 / 發佈時間｜24/1/2022**
 
-港府一贯与财团勾结，尤其与地产商的关系密切，多届政府的施政均倾向于地产商，不仅从政策上供应廉价的土地资源，还在城市规划上预建基础设施助其发展，此外港府不断减慢公营房屋建设，托高私楼价格，导致基层市民轮候公屋的时间一年比一年长。中共力量掌控香港后，港府的施政计划几乎全部为中共大湾区的发展铺路，据悉，港府将香港三分之一的土地纳入大湾区发展规划中，涉及数个新施政和大量保育土地及原住民的土地。港府高官也不讳告知市民，解决住房问题耗时将超过十年。不过中共的贪婪不至于对香港土地的共产，连城建和规划也要分一杯羹。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-中共的驻港团体总是将港人住房问题作为要挟港府的工具，将所有的责任都归咎于“速度”上，要求港府交出公营房屋的设计和建造权，土地的使用将被中共为所欲为，还要求大量引入外劳，能任中共宰割的只有内地取之不尽用之不竭的廉价劳动力。至于已经实行了五年之久的“组装合成”建筑法，就是在内地工场预制好房屋的构件，再运送到香港工地组装，这项工程如果覆盖到全港的公私营楼宇，中共的内地工场将带来源源不绝的经济效益。可预见香港的未来，将在中共的规划下失去美好的自然生态和原始的地貌，中共国又多了一个不适合居住的城市。
 
-资料来源：[**团结香港基金促精简程序加快建屋缩短公屋轮候时间**](https://news.rthk.hk/rthk/ch/component/k2/1630293-20220124.htm)
+据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
 
+以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
+来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
 
  
 

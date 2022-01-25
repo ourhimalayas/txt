@@ -2,20 +2,20 @@
 ---
 
 
-## 日本将结束对中共国的开发援助项目
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900643/)
+## 俄罗斯将进一步加强虚拟币监管
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900647/)
 
-撰稿：银河系农场 — 骄子
+撰稿：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月14日，日本媒体报道日本即将结束对中共的官方开发援助计划。此计划全称为official Development Assistance，自1979年12月开始，2022年3月完全结束。
+当地时间1月20日，俄罗斯央行发布报告称，加密货币对该国的金融体系构成威胁，提议在全国范围内禁止。
 
-其援助形式包括资金、技术和人才培养等各个方面。截至2015年，援助金额合计322亿美元，涉及地重大项目包含：北京国际机场、上海浦东机场、武汉天河机场、中日友好医院、北京地铁2号线等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-62.jpg)
-过去40年，日本友好援助和中共国的改革开放相重叠，支撑中共国走上经济大国之路。然而，中共隐瞒事实，对此援助计划鲜有提及，导致大部分中国人并不知道有此援助。
+中央银行指出，加密货币的使用为俄罗斯人避免金融监管提供了便利。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-65.jpg)
+目前在俄罗斯使用加密货币进行支付已经是非法的，但该法律并未得到广泛执行。2021 年 12 月，俄罗斯央行宣布不再允许该国的基金投资加密货币。一位央行官员表示，拟议规则仅在俄罗斯境内生效，拥有离岸银行账户或外国资产的俄罗斯人将不受其在国外的限制。
 
-参考链接：
-1. [日本将结束对中共国的开发援助项目](https://cn.nikkei.com/columnviewpoint/column/47307-2022-01-14-04-55-10.html)
-2. [日本将结束对中共国的开发援助项目](https://www.epochtimes.com/b5/22/1/22/n13521719.htm)
+目前俄罗斯每年加密货币交易额大约 50 亿美元， 俄罗斯杜马发言人维亚切斯拉夫·沃洛丁本周早些时候表示，杜马将在春季会议期间考虑制定加密货币监管框架。
+
+参考链接：[俄罗斯将进一步加强虚拟币监管](https://thehill.com/policy/technology/590824-crypto-crashes-wiping-out-billions-in-value)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 

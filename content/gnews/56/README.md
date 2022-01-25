@@ -2,25 +2,23 @@
 ---
 
 
-## 美国对从事导弹技术扩散的三家中企实施制裁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900642/)
+## 2022达沃斯论坛主题：共产主义管理世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900646/)
 
 撰稿：银河系农场 — 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-近日美国政府宣布，自2022年1月21日起，对参与导弹技术扩散活动的三家中共企业进行制裁。制裁内容包括拒绝与以上三家企业进行一切商业活动，以及转让、合作、进口等。制裁时限为期2年。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-61.jpg)
-三家中企分别为，中国航空航天科技总公司、中国航空航天科技工业公司第四学院、保利科技公司。
+1月17～21日，达沃斯冬季论坛在瑞士举办，有媒体将此次会议的主题描述为：如何利用好中共病毒和疫苗接管世界并抢劫全球财富。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-64.jpg)
+据悉，会议称赞中共习近平政府的邪恶统治，并建议以气候变化、财富再分配和绿色立法的名义，寻求缓解化石燃料行业的压力，所有这些立法都将推动一个统一独裁的世界秩序的形成。
 
-中共战狼赵立坚叫嚣，这是美国霸权，要求立即停止制裁。
+郭先生此前在大直播中提到达沃斯论坛是世界的共产党，他们独裁，邪恶，不允许平民觉醒，是自由民主的最大敌人，并妄图继续统治世界。
 
-参考链接：
-1. [美国对从事导弹技术扩散的三家中企实施制裁](https://www.federalregister.gov/documents/2022/01/21/2022-01117/imposition-of-missile-proliferation-sanctions-on-three-entities-in-the-peoples-republic-of-china-prc)
-2. [美国对从事导弹技术扩散的三家中企实施制裁](http://news.enorth.com.cn/system/2022/01/21/052278535.shtml)
+参考链接：[2022达沃斯论坛主题：共产主义管理世界](https://www.diamondandsilkinc.com/tabletalknews/diamond-and-silk-billionaires-push-for-great-reset-global-economic-forum-2158m)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
 总编：飞虹
-编辑：DM
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

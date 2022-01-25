@@ -2,23 +2,25 @@
 ---
 
 
-## 新中国联邦力阻西方赴冬奥
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900639/)
+## 美国对从事导弹技术扩散的三家中企实施制裁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900642/)
 
-撰稿：纽约磐石农场 – 在远方
+撰稿：银河系农场 — 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在1月21日大直播中，郭文贵先生透露说，中共为引诱外国官员参加北京冬奥，泯灭人性地提供西藏天河的鱼类、大连海水保护区内的鲍鱼，活吃猴脑等变态食材。而许多本来准备参加冬奥的重要人物，在看了郭先生提供的视频以后，都取消了赴奥行程。他们将会在2月1日前宣布此决定。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-58.jpg)
-郭先生还表示，在未来三到十年内，在灭共以后，新中国联邦将要把所有参加北京冬奥会的人员名单，永远挂在墙上，挂在我们自己的媒体平台上展示出来。
+近日美国政府宣布，自2022年1月21日起，对参与导弹技术扩散活动的三家中共企业进行制裁。制裁内容包括拒绝与以上三家企业进行一切商业活动，以及转让、合作、进口等。制裁时限为期2年。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-61.jpg)
+三家中企分别为，中国航空航天科技总公司、中国航空航天科技工业公司第四学院、保利科技公司。
 
-郭先生强调说，凡是参加北京冬奥会的人，就是想吃中共提供的变态食材，就是跟中国人民作对，就是跟中国人民所反对的中共暴政为伍。郭先生可以列出100条理由，说明没有人有理由去参加北京冬奥会，因为中共的暴行，比当年的希特勒、斯大林还夸张。
+中共战狼赵立坚叫嚣，这是美国霸权，要求立即停止制裁。
 
-参考链接：[新中国联邦力阻西方赴冬奥](https://www.gettr.com/post/ppx0llbeab)
+参考链接：
+1. [美国对从事导弹技术扩散的三家中企实施制裁](https://www.federalregister.gov/documents/2022/01/21/2022-01117/imposition-of-missile-proliferation-sanctions-on-three-entities-in-the-peoples-republic-of-china-prc)
+2. [美国对从事导弹技术扩散的三家中企实施制裁](http://news.enorth.com.cn/system/2022/01/21/052278535.shtml)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
+总编：飞虹
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
