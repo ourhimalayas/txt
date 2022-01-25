@@ -2,24 +2,37 @@
 ---
 
 
-## 中日财经爆│乌克兰局势升级 日本国防股大涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906877/)
+## 有声|爱尔兰取消几乎所有封锁措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1906879/)
 
-撰稿：东京樱花团/麗子
+录音：香草山健身部 – 新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月21日，爱尔兰总理迈克尔·马丁在全国的电视讲话中说，爱尔兰将于次日取消几乎所有的中共病毒限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/乌克兰局势升级-日本国防股大涨.png)[图片来源](https://kotobank.jp/word/%E6%9D%B1%E4%BA%AC%E8%A8%BC%E5%88%B8%E5%8F%96%E5%BC%95%E6%89%80-103346)
+马丁表示，该国经受住了奥密克戎的考验。就在上周，爱尔兰的中共病毒确诊率还位居欧洲第二，但随后病例数迅速下降，住院和死亡人数保持平稳。因此，爱尔兰政府决定从1月22日开始，酒吧和餐馆不再需要晚上8点关门，也不再要求顾客提供疫苗接种证明。室内外公共场地的人数不再受限制。但2月底之前，人们仍然需要在公共交通工具和商店超市里戴口罩。
 
-25日上午，东京股票市场上与国防有关的股票大受追捧。石川制造厂（地雷制造商）上涨8%，丰和工业（枪械制造商）上涨2%，东京计器（军用导航系统）和日本AVIO（精密焊接等）也表现强劲。贾斯达克的细谷火药品公司上涨了11%。
+原文链接：[爱尔兰取消几乎所有封锁措施](https://gnews.org/zh-hans/1901923/)
 
-俄罗斯和乌克兰之间的紧张局势不断升级，北大西洋公约组织（NATO）24日表示，正在加强在东欧的海军舰艇和战斗机的部署，并向东南地区增派部队。
+音频处理/发稿：Daxia
 
-信息源:
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-[東京市場で防衛関連株が買われる、ウクライナ情勢緊迫で](https://news.yahoo.co.jp/articles/74a8d51ee60a428478e0e8771887b9a0faf38dfe)
+**更多资讯，更多关注**
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

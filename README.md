@@ -15,83 +15,83 @@
 
 ---
 
-### [圣诞大直播后的巨大反响](/content/gnews/1/README.md)
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（三）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [英国政府正考虑取消针对NHS工作人员的疫苗强制令](/content/gnews/2/README.md)
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（二）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（一）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [圣诞大直播后的巨大反响](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [英国政府正考虑取消针对NHS工作人员的疫苗强制令](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国会两院呼吁和要求召开乌克兰情况简报会](/content/gnews/3/README.md)
+### [国会两院呼吁和要求召开乌克兰情况简报会](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [青蒿素是神药](/content/gnews/4/README.md)
+### [青蒿素是神药](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [秦刚一战狼外交变战羊外交](/content/gnews/5/README.md)
+### [秦刚一战狼外交变战羊外交](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [两党议员呼吁立法禁止国会议员拥有或交易股票](/content/gnews/6/README.md)
+### [两党议员呼吁立法禁止国会议员拥有或交易股票](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墙内万人蒸馍和蒸馍秘方](/content/gnews/7/README.md)
+### [墙内万人蒸馍和蒸馍秘方](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥透露的三个未来秘密](/content/gnews/8/README.md)
+### [七哥透露的三个未来秘密](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [2022/01/25 英喜时事速递](/content/gnews/9/README.md)
+### [2022/01/25 英喜时事速递](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈战友间的承诺和维护中国人形象](/content/gnews/10/README.md)
+### [七哥谈战友间的承诺和维护中国人形象](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [卡车司机抗议疫苗强制，车队浩浩荡荡驶向渥太华](/content/gnews/11/README.md)
+### [卡车司机抗议疫苗强制，车队浩浩荡荡驶向渥太华](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1.24大直播后记：最好的教育](/content/gnews/12/README.md)
+### [1.24大直播后记：最好的教育](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [外国籍高中生的日语课程将被纳入学分制](/content/gnews/13/README.md)
+### [外国籍高中生的日语课程将被纳入学分制](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳洲因大流行而导致延误手术的病人数量激增](/content/gnews/14/README.md)
+### [澳洲因大流行而导致延误手术的病人数量激增](/content/gnews/17/README.md)
  ` 走进澳洲`
 
-### [喜联储将震惊世界](/content/gnews/15/README.md)
+### [喜联储将震惊世界](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [喜币获得国家级金融牌照，意义深远](/content/gnews/16/README.md)
+### [喜币获得国家级金融牌照，意义深远](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [DC大中华时事：中共称《纽约时报》被狠狠“打脸”](/content/gnews/17/README.md)
+### [DC大中华时事：中共称《纽约时报》被狠狠“打脸”](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新西兰财经G乐部2022年1月25日:财经新闻整理](/content/gnews/18/README.md)
+### [新西兰财经G乐部2022年1月25日:财经新闻整理](/content/gnews/21/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共二十大究竟鹿死谁手，习曾权力大绞杀正式登场](/content/gnews/19/README.md)
+### [中共二十大究竟鹿死谁手，习曾权力大绞杀正式登场](/content/gnews/22/README.md)
  ` mary202064`
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.240 HDO](/content/gnews/20/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.240 HDO](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [江家控制比特币01](/content/gnews/21/README.md)
+### [江家控制比特币01](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [防俄入侵乌克兰 日本讨论对俄经济制裁](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|纽约孩童因反抗强制疫苗活动遭逮捕](/content/gnews/23/README.md)
+### [有声|纽约孩童因反抗强制疫苗活动遭逮捕](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|爱尔兰取消几乎所有封锁措施](/content/gnews/24/README.md)
+### [有声|爱尔兰取消几乎所有封锁措施](/content/gnews/26/README.md)
  ` MOSREC`
-
-### [中共正在将青藏高原水资源武器化（下）](/content/gnews/25/README.md)
- ` 澳喜农场`
-
-### [中日财经爆│乌克兰局势升级 日本国防股大涨](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [雅典娜时报-第184期](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
