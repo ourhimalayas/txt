@@ -2,45 +2,13 @@
 ---
 
 
-## 全体党员希望习走上打台湾不归路新中国联邦使台湾新生
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905454/)
+## 日本327家托儿所因中共病毒疫情关闭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1905605/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ee625587664c47acd93b47](https://gtv.org/video/id=61ee625587664c47acd93b47)
-
-**郭文贵先生**：所以说兄弟姐妹你现在想到共产党在打台湾这种疯狂的时候，你知道谁最高兴吗？中国党员最高兴，快打去吧。现在你要（是）咨询党员，“谁让打台湾？”几乎100%说你快打去，谁都知道让习走上一个不归路。
-
-但是习会不会走呢？告诉大家，习的个性和习这个人的这种自傲和现在这个风水，风和水的到了中国和中国人重生和新中国联邦的力量的情况下，我认为他会走的。台湾会迎来一个最后一场灾难，但台湾会新生，而且我认为台湾不会付出那么大代价。
-
-有些话现在还真不能说，咱慢慢说。特别是欧洲、美国，我认为越来越让他们认识到不去帮台湾、不去救台湾那等于自杀，我们能做到这一点，台湾就会减少死亡。谢谢！
-
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1._25-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

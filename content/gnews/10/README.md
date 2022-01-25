@@ -2,50 +2,202 @@
 ---
 
 
-## 王岐山孟建柱江泽民设局让习近平成为孤家寡人众矢之的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905399/)
+## BVI（英属维尔京群岛）的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI（英属维尔京群岛）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1905479/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ee5d0a87664c47acd93a24](https://gtv.org/video/id=61ee5d0a87664c47acd93a24)
+[https://gtv.org/video/id=61ed365387664c47acd8c403](https://gtv.org/video/id=61ed365387664c47acd8c403)
 
-**郭文贵先生**：这个共产党此时此刻，就是现在你看王岐山和孟和江家这个局设计得很高妙，让习成为了共产党9500万党员所有人最恨的人，这个不是一般的（人）能做到的，只有江家、孟、王岐山、杨洁篪有这个级别。习走向这条路那就是不归路，党会把他灭了。
+**郭文贵
+Miles Guo**
 
-第二，让他的经济大撒币，叫他的经济彻底完蛋，成为现在连沼泽地都想放弃的人。然后给他设套儿让他钻进去，成为世界上经济的威胁，完了！
+Hold on，这不是最重要的
+Aguanta, esto no es lo más importante
 
-第三，你看看江家、王家、孟家还有杨洁篪，把外交部系统、政法系统、军队的核心全体控制，习现在就是一个所谓的外交部那几个替他说话的骗他的那些战狼，还有几个军队的所谓的给他卖命的几个人，他没有啥了。
+PAG更牛的
+Lo mas increíble de la Alianza del Pacífico
 
-这个时候大家记住，他要去打台湾的时候，热闹了，最后习家一定鼓励他在中国实施最严厉的经济政策。这个已经国有化已经都把马云这帮人整成这样了，什么卢志强，什么董文标，民生、融创、许家印、李嘉诚，是吧？都要成为商人的金钱的敌人，然后让你逼着你，最后他一定是更严厉的经济政策。
+就像当时18楼（房产）的拥有者
+Así como el dueño del piso 18 en aquel momento
 
-习现在在哪安全你告诉我？他去香港，香港人能把他吃了；去全世界，恨不得把他宰了；他在中南坑睡觉，中南坑旁边人他知道随时都有人可能一个导弹就进来了；吃饭，吃好几回才敢喝口水。这种局面最后的疯狂一定打台湾，一定实施最极端的经济政策。
+是个BVI公司
+Es de una compañía registrada en el BVI
 
-所以习是咱真正的战友，就你想说他不是战友都不行，反面的战友，是吧？还有一个，你王岐山、孟建柱绝对是我们战友，他不培养孙力军这人，你咋证明我的伟大、证明咱们爆料革命伟大？
+这个BVI公司法官就认为是你郭文贵控制的
+El juez piensa que esta compañía es controlada por tí mismo Miles Guo
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+所以是你的
+Por eso te pertenece
 
-编辑整理：Jacques；
+就判了18楼（房产）归他们（PAG）了
+Y declaró la propiedad del piso 18 a ellos (PAG)
 
-字幕文件制作：小满；
+诶，这个船的公司也是个BVI公司
+Ay, y esta compañía del yate (Lady May) también es del BVI
 
-视频制作及上传：Cindy；
+2月2号将有一个重大的开庭
+El 2 de febrero habrá una importante sesión judicial
 
-G-News发布：小满；
+开庭什么呢？
+¿De qué se trata?
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+上一次你看就这一次
+La vez pasada, mira esta vez
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+（ABA）判定他（们）强烈违反职业道德的时候
+(La American Bar Association) emitió un veredicto que ellos violaron fuertemente la ética profesional
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+还说到了什么
+Qué más mencionó
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+说关于Lady May的这个藐视法庭（的罪名）
+Habló sobre un cargo de que Lady May desacató al tribunal
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+还有一个：船属不属于Miles Guo的（问题）
+Otra cosa: (el problema) el yate le pertenece o no a Miles Guo
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+2月2号再定
+El veredicto se dará el 2 de febrero
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+我的预感2月2号会判我们大输
+Tengo un presentimiento de que la resolución del 2 de febrero vamos a perder
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+他会判什么呢？
+¿Cuál será la sentencia?
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+让你船又是你郭文贵的了
+Hará de que el yate sea tuyo Miles Guo
+
+（船）就不是你家族的、你女儿的了
+(El yate) no es de tu familia, tu hija
+
+然后再判什么？
+¿Y qué otra cosa?
+
+那个BVI公司，叫Buffalock（的）
+Esa compañía de BVI, se llama Buffalock
+
+也是你Miles Guo的
+Tambien es tuyo Miles Guo
+
+说到这个的时候，大家记住啊
+Hablando hasta aquí, todos recuerden
+
+我们的战场，另外一个战场在BVI
+Nuestro campo de batalla, el otro campo está en BVI
+
+在BVI这个小岛上
+En esta pequeña isla British Virgin Islands
+
+法官和律师(资源有限)
+Los abogados y jueces (son limitados)
+
+那当地两大律师事务所叫什么？
+¿Y cómo se llama las dos grandes firmas de abogado que hay allá?
+
+Appleby，有一个（叫）Appleby
+Appleby, uno se llama Appleby
+
+大家看一看啊
+Todos vean
+
+Appleby就是 A-P-P-L-E-B-Y
+Appleby es A-P-P-L-E-B-Y
+
+这家公司，这家律师事务所
+Esta compañía, esta firma de abogados
+
+你知道什么概念吗？
+¿Sabes sobre esta firma?
+
+这三、四年来
+Estos 3, 4 años
+
+他们在BVI的缠诉
+El enredo judicial de ellos en BVI
+
+这个Appleby的律师事务所竟然是
+Esta firma de Appleby resultó ser
+
+曾经代表过七哥的案子
+Representó uno de mis casos
+
+代表过我们家族的案子
+Representó en el pasado casos de mi familia
+代表过我儿子的案子
+Representó casos de mi hijo
+
+这家公司竟然跟PAX来合作
+Ahora resulta ser que esta compañía colabora con PAX
+
+来告我们
+Para demandarnos
+
+就在PAX的官司
+La demanda de PAX
+
+在那个BVI代表PAX来告我们
+En eso BVI vino a demandarnos a nombre de PAX
+
+跟这个Bondi，Cahill（律所）一模一样
+Igualito como la firma de Bondi y Cahill
+
+你知道二三年前
+Tu sabes que 2-3 años atrás
+
+你看过我直播的时候说过
+Si viste mis transmisiones en vivo yo había dicho
+
+我说，内部人告诉我说
+La gente interna del PCCh me dijo
+
+共产党说一定要在BVI，巴哈马这地方
+El PCCh estará en BVI, Bahamas
+
+彻底搞定法官和律师事务所
+Resolverán al juez y a la firma de abogados
+
+因为那里总共岛上不超过五个法官
+Porque en esa isla no sobrepasa de 5 jueces
+
+这是战友当时大家直播中大家都提到的
+Esto lo mencionó el compañero luchador en una de las transmisiones en vivo
+
+这个律师事务所Appleby就明显
+Esta firma de Appleby evidentemente
+
+跟这个Bondi、跟Edward Moss一模一样
+Es igualito a este Bondi y Edward Moss
+
+就这，到现在还是代表PAX官司
+Ahora de paso representa a la compañía PAX
+
+他当然现在还没有判决
+Él obviamente aún no tiene la sentencia
+
+还没有赢呢
+No ha ganado
+
+* * *
+
+日期：01/20/2022
+原视频标题： BVI（英属维尔京群岛）的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI（英属维尔京群岛）！
+Transmisión El sistema judicial de las Islas Vírgenes Británicas está a cargo el PCCh, la firma de abogados Appleby de la otra parte también tienen un conflicto de intereses, ¡y nuestro segundo campo de batalla está en las Islas Vírgenes Británicas!
+
+原视频日期：01/19/2022
+原视频网址：[https://gettr.com/post/pp6wryee68](https://gettr.com/post/pp6wryee68)
+任务编号：KC427（3534）
+视频时间段：0:00-02:12
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

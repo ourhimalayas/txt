@@ -2,15 +2,44 @@
 ---
 
 
-## 《青蒿素项目开启，战友可使用》
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1905362/)
+## 中共警察全看爆料革命并惦记爆料革命的男战友和女战友
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905432/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-237.png)
-第三个消息是，所有Gclub会员，法制基金大额捐款者，还有GTV投资者，喜币拥有者，从现在起，我们要所有的战友使用最好的青蒿素保健品和药品，保证供应青蒿素。如水是项目总负责，Eglise是技术总负责，法制基金的拉姆也加入，资金不够的都由七哥负责，不要战友出一分钱。前提是往国内送很难，可能需要战友自己解决。这个药是救命用的，只给有病的人使用。一定要记住青蒿素的副作用，保健品吃了一定管用，药该怎么吃要多问问医生。
+G-TV视频链接：[https://gtv.org/video/id=61ee622187664c47acd93b34](https://gtv.org/video/id=61ee622187664c47acd93b34)
 
-直播时间：2021.12.01
+**郭文贵先生**：所以说咱们的战友给我爆来了很多消息，包括在鹤岗的那个战友，说：“七哥，你上次直播说了以后，我们内部开始找谁是爆料人。”谁是爆料人？结果是那当然找不着了，七哥这战略能让他找得着吗？是吧？
 
-发布：皮特
+但是你知道发现了个什么事情？——鹤岗的所有领导都看七哥直播。为啥？每个人说时间、直播，讲人物，张嘴就来。就像咱们那个战友说，警察问他：“那个小飞象，小飞象什么情况？”就惦着小飞象回去直接抓起来，那直接就给轮奸、双修死了，那不是开玩笑的，是不是？这关心每个人，300年的飞飞，连300年的飞飞胸多大都掌握在内，是不是？
+
+这就共产党这些警察想惦记咱这些女战友、男战友，你像罗伊回去直接就被鸡奸了，肯定的，跟新疆人一样。那些上海的公安局长专门强奸男明星那个，直接：“罗伊过来过来脱光，检查身体”，是吧？肯定这结局。你像宁南回去，那就完了，上下直接都给你（检查），“宁南过来，好好检查身体，脱光。”是吧？你像Rosemary就别想了，你们像Alice回去就完了，但是你可以看到他们全看爆料革命和新中国联邦。
+
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

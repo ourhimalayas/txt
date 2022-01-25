@@ -2,41 +2,50 @@
 ---
 
 
-## 妇科专家：新冠疫苗导致流产和死胎大增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905415/)
+## 王岐山孟建柱江泽民出手之日习近平将众叛亲离瞬间完蛋
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905515/)
 
-#### 【雅典娜观察】和您一起探究世界
+G-TV视频链接：[https://gtv.org/video/id=61ee62fc87664c47acd93b6e](https://gtv.org/video/id=61ee62fc87664c47acd93b6e)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/美军-1.jpeg)图片来源：Kernodle Clinic
+**郭文贵先生**：严格讲南普陀计划它不可能就一个目标，它当时把习作为一个就是让你干五年就滚蛋嘛，是吧？这是绝对的，然后就是培养第二个傻子过来。但是它第一段没成功嘛，习这不走了，本来在那块（是）临时演员，不走了，现在当导演了。
 
+但是人家南普陀有多手计划，如果习不听话咋办？那就让你折腾，利用你的手，利用你的疯狂，把党内的所有我的….第一，你看前五年，习100%被王岐山、孟建柱，你想想孙力军都能干这样，就完全地把江家对手全清光了，而且习深信不疑该清光了，是吧？
 
-整理报道：守望黎明
+第二个五年，你修宪？你可以修宪，你不听了是吧？然后让你跟世界走向疯狂，然后你放出潘多拉盒子病毒，让他放出病毒就决定了习的死亡，没有任何的（怀疑）。这个时候共产党已经不是共产党了，就习共党，回答你的问题，现在习的所有做出的决定和灭亡，就是习共党的灭亡。
 
-来自佛罗里达的妇科医学专家詹姆斯·索普（James Thorp）博士透露，新冠疫苗正在造成大量的妊娠失败。索普指出，与其他疫苗相比，与新冠疫苗接种有关的死亡和妊娠失败的数量出现了大规模的飙升。他展示了六张图片，包括来自疫苗不良事件报告系统VAERS中的数据。
+然后这家族是什么？江家从来没觉得共产党跟我毛关系，共产党就是我用的那个擀面杖子，习也（觉得跟）共产党没（关系），他们都比咱恨共产党，但是他必须用共产党统治这些已经被洗了脑的中国14亿僵尸、这些奴隶。
 
-索普展示的一张图片显示了新冠疫苗有关的妊娠失败，其中包括流产、死胎和胎儿死亡。那张图片显示，在过去360个月里因疫苗造成的妊娠失败数字是，流感疫苗363例，百日咳疫苗136例，其他所有疫苗1965例。而新冠疫苗在开始注射短短的10个月里，则出现了2737例妊娠失败。他说，与所有其他疫苗接种相比，新冠疫苗接种引发的妊娠失败的数量令人震惊。相关研究表明：新冠疫苗导致了三个月孕期以内的婴儿损失了十分之九。
+最后就是江家找个名声….曾出手之日，王岐山和孟建柱和江家出手之日，你会发现，就像川普最后一刻被内阁给策反一样，你会发现突然间所有习最相信的人都是他的敌人，霎那间“啪”就完了。
 
-这位母体胎儿医学专家还指出，除了胎儿死亡和胎儿畸形外，在出生之前就接触到疫苗的婴儿将有永久性的终身损害，包括大脑认知障碍、永久性免疫障碍和各种自身免疫性疾病。
+所以说没有什么党，这都是家族的，那个时候是江共党，现在是习共党，现在的决定既不是党的决定，就是习共党的决定，那时候就江共党嘛，就这么简单，咱们老百姓就是奴隶。
 
-索普说：“这是可怕的、灾难性的。更糟糕的是，这种疫苗似乎还抑制了一些正常的免疫功能。所以它在新生儿出生后的第一年里出现了大量非常罕见的癌症。初步数据表明，从这种有毒的接种中存活下来的婴儿中可能会遭受永久性的伤害。而那些活下来的婴儿可能会有终身的精神残疾、中枢神经系统认知残缺、终身的免疫缺失，这将导致感染数量增加和罕见癌症的增加。它会带来终身的自身免疫性疾病。我认为新冠疫苗不是一种真正的疫苗。”
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-致力于夺回医疗自由权的索普说，美国人绝不应该相信美国的医疗和保健人员。他指出：“大家永远不要全信医生的，包括我本人的说法。永远不要相信美国任何的医生或护士，因为他们被下了禁言令，如果说出真相，他们就会失去自己的生计。所以他们不敢告诉你们真相。所以你不要相信他们，他们已经毁掉了医疗保健系统。不能相信这些骗子，也不应该相信。”
+编辑整理：Jacques；
 
-“更可怕的是，连让患者知情同意的希波克拉底誓言也被彻底废弃了。我们不能给患者知情同意的机会，我们都被下了禁言令。你无法相信你的医生，无法相信任何医疗工作者。”
+字幕文件制作：小满；
 
-索普补充说，他所想做的就是要摧毁夺走美国人个人自由和医疗自由的邪恶联盟。这位佛罗里达州的医生解释说，他所说的联盟就是腐败的制药公司和医疗系统，他们正在因为毒害和杀害病人而获得大量联邦政府的补贴。这个联盟还包括了欺诈的保险公司和医学期刊。
+视频制作及上传：Cindy；
 
-索普感叹道：“这一切可怕无比、肮脏不堪，一切都归结于金钱。”
+G-News发布：小满；
 
-原文链接：[Maternal Fetal Medicine Specialist proves Covid-19 Vaccines have caused huge increase in Miscarriages and Stillbirths](https://dailyexpose.uk/2022/01/23/dr-proves-covid-vaccines-caused-increase-in-miscarriage/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
