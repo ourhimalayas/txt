@@ -2,20 +2,21 @@
 ---
 
 
-## 中日财经爆｜东京都新建公寓售出总数和平均售价创历史新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1907309/)
+## 尽管完全接种率高达85%，但马耳他的新冠死亡率创下新高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907333/)
 
-撰稿：东京樱花团｜百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2058.png)[*图片来源*](https://e-images.juwaistatic.com/2021/02/japan-tallest-skyscraper-tokyo-1200x675.jpg)
-据《读卖新闻》在线报道，房地产经济研究所1月25日宣布，2021年东京都地区（东京、神奈川、埼玉、千叶）的新公寓平均售价为每套6260万日元，比上一年增长了2.9%。超过了1990年经济泡沫时期的6123万日元的记录。每平方米的售价也达到了93.6万日元的历史新高。
+#### 翻译/撰稿：zzballack
 
-年度出售的房屋数量增加了23.5%，达到33,636套，与前一年（2020年）因中共病毒（新冠病毒、Covid-19）而暂时停止了销售活动的情况相比有所反弹。两年来房屋销售数量首次超过了3万套。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-22.jpg)图片来源：路透社
+据《门户专家》（Gateway Pundit）1月24日报道，作为全球新冠疫苗接种率最高的国家之一，马耳他（Malta）超过85%的人口已完全接种了疫苗，94%的人至少接种了一剂疫苗。但马耳他的新冠疫情不仅没有改善，还愈发恶化，该国的新冠死亡率刚刚达到历史最高值。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-4.jpg)
+马耳他人的生活也并没有因为遵从疫苗接种而恢复正常。1月13日，马耳他实施了新的防疫规定。据《马耳他时报》(Times of Malta) 报道，马耳他人将不得不在餐馆、酒吧、电影院等各种场所出示疫苗护照，以证明接种了最新的加强针疫苗。另外有报道说，在防疫新规实施期间，许多餐馆决定关闭，其中约14%的餐馆预计将永久关闭。
 
-信息来源：[**首都圏の新築マンション、平均価格ついにバブル超え…１戸あたり６２６０万円**](https://news.yahoo.co.jp/articles/db1469838ea29dd92bb3ab61e3a5eaabee8b922f#:~:text=%E3%83%88)
+马耳他这个典型例子足以说明新冠疫苗不仅无法遏制疫情，还会加剧危机。不夸张地说，马耳他这个小国正面临着亡国的风险。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+新闻来源：[Fully Vaccinated Malta Reaches Record COVID-19 Death Rate](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-malta-reaches-record-covid-19-death-rate/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
