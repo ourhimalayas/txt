@@ -2,83 +2,30 @@
 ---
 
 
-## 【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1902175/)
+## 冬奥闭馆仅限自己人买票
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1902965/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5135BA19-56EA-44AD-9EF0-A604D9E34E0B.jpeg)
-2022年1月23日，据福克斯新闻刊文报道，在华盛顿特区举行了大型抗议疫苗授权活动，有30,000 至 35,000 人参加了本次抗议活动。
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/cb58e6834eb705d8b1ec1a03707dcd51.jpeg)假雪 / 图源：网路
+共产党的冬奥会大戏即将上演。七哥之前爆料，习近平政府已经把世界各国的运动员后勤都安排妥了，就等着这个运动员过来，然后不经意感染了中共病毒，再然后，住在温馨舒适的隔离间，全程有摄像头的关爱。在共产党的集中力量办大事，一党独裁为你好的条件下，这些运动员全部改行做演员去了，人人都拿奥斯卡，影帝影后任你挑。中共病毒算啥呀，你看在共产党的关爱下，康复了，出院了，奥运会真是一场值得来的运动会，你们谁不来就后悔，一生都后悔。
 
-“击败授权”抗议疫苗授权[游行走上](https://www.foxnews.com/category/us/us-protests)[华盛顿特区](https://www.foxnews.com/category/us/washington-dc)的街道和纪念碑，抗议者和演讲者呼吁在全国范围内结束[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus) [疫苗](https://www.foxnews.com/category/health/infectious-disease/vaccines)授权。
+这就是共产党打的算盘，噼里啪啦，看似每个细节都算得好好的。好比孙力军领衔主演的零容忍一样，灯光该怎么打，妆该怎么表现人物特色，那都是丝毫不能出点误差的地方。共产党为冬奥会作出的准备也下了大力气。比如造假雪。虽然世界上有很多国家都是这么玩的，因为气候的原因，干旱，降水少，冬天下的雪根本没有形成能够举办运动会的程度，很多国家都采用人工造雪。但是，北京冬奥会采用的雪全部都是假雪，一个冬天一粒雪都没下，就连十一届六中全会那个雪都是假雪，何况一个冬奥会呢。北京冬奥会的滑雪场地需要造雪用的水资源都从张家口调用，但是张家口干旱到啥程度呢，本地区超过一半以上的地方用水缺乏，当地人均水资源不到全国平均水平的五分之一。本身干旱就会损耗一部分水资源，在假雪形成的过程中仅仅降温也会让大量水资源浪费掉，并且就因为在造雪这件事上，还要用电，燃料燃烧产生的温室气体会给环境造成污染，假雪融化以后对环境也会造成污染。张家口愣是准备了超大蓄水池，还从其他地方调水过来，并且把这个滑雪场地打造成了风景旅游区，不仅把当地老百姓的农田全占了，还打算继续骗其他地方来旅游的人的钱。试问这样的空气污染和密集能源消耗，这个旅游区能便宜得了才怪，花大价钱来玩的人还要承受空气污染给人体带来的伤害。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/99415b79b6953c5466c56f87dffe179d.jpg)张家口 / 图源：网路
+造假雪是物理方面，用极大的成本极大的对环境的破坏宣扬共产党北京冬奥会的盛世场面。还有很多盛世场面是用高科技来达成的，比如，各个国家的运动员要安装一个应用程序，这个应用程序说白了就是监控软件，只要拿着手机，那就是个透明人。搭配这个应用程序使用的还有，奥组委的人毫不忌讳地宣布，外国来北京参加冬奥会的运动员请谨慎言论，不要违法。共产党言论审查实实在在地落实到了冬奥会的每一步操作中。北京为了实现冬奥会清零政策，用的方法就是物理清零，比如发现一例中共病毒阳性，就直接把人带走抓起来，哦不是，隔离起来，他们是这样说的，但是和抓走、非法监禁没有任何区别。管你是来自什么民主国家的运动员，你到了中共国，是有墙的，并且在你手机里安装的那个应用程序会把你的呼救信息尽数删除。别说什么人权了，人命都不值钱的。也许很多人根本不了解共产党的清零政策，觉得没什么，毕竟不是每个人都对共产党有那么深刻的认知。但是七哥爆料，共产党还到处抓狗，杀狗，打算给这些参加冬奥会的各国人士都吃狗肉。西方民主国家对宠物的态度就是等同于家庭成员一样的存在，尤其小狗作为人类最常见的宠物伴侣，这怎么能让人受得了呢？但凡一个善良的人都无法想象那些狗被杀掉，被掺杂在平日的饮食中。国外杀一个猪都要给它听音乐呢，共产党到处抓狗，抓起来就残忍杀掉，并且让你们这些运动员都去吃狗肉。如果有运动员不听劝，非要去参加冬奥会，那完了，一生的耻辱，洗都洗不掉。
 
-目前为止，包括华盛顿特区、纽约市、洛杉矶、芝加哥、明尼阿波利斯和波士顿在内的一些美国主要城市已经实施了全市范围的规定，要求居民在某些场所（例如餐馆和健身房）出示疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3D0EE3F5-861E-41F6-9EEA-A053634D3A59.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8.png.jpeg)中共杨贝贝吃狗肉 / 图：晴天
 
+最近国内的中共病毒根本就控制不住，世界上每个国家每天都在创造不断上升的感染人数，中共国内的数字纹丝不动，或者和正常情况比起来，一样看出来就是造假的数字公布。张文宏医生说国内的中共感染不能忽略，意思也是非常严重，这仿佛是给冬奥会开了一个口子，既然共产党要配合演戏，要演一出集中力量抗击新冠病毒的大戏，这几个运动员怎么能不感染呢？既然要感染，那么清零政策的实施又到底是为了什么？七哥说我们不能用正常思维来判断共产党的思维，共产党是魔，一切有利于它发挥自己魔鬼的地方，他都能做。中共病毒本来在中共国是失控的，清零政策本来就是政治需要，冬奥会的运动员染上病康复了，也是政治需要，中共病毒的作用是个配角，一切都是共产党给全世界演的这场戏，威胁全人类，尤其是美国，你不能丢下我，我死我要拉你一起死，最好全世界为我垫背。
 
-和平抗议活动于中午左右在华盛顿纪念碑开始进行，首先前往林肯纪念堂。在那里，一系列演讲者们分享了他们在过去一年的经历以及他们呼吁结束疫苗授权的理由.
+美国的体育报道团队都是一个跟一个，最大的NBC说自己不去了，马上ESPN也跟着一起说不去了。NBC是北京冬奥会媒体签约合作伙伴，虽然在通告里说害怕新冠病毒的清零政策，但实际原因也许可能是因为吃狗肉。好了，冬奥会目前果真达到了自己玩自己的目的，来的都是些贪婪无比的人，要了钱免了债务，还要谋求其他的大利益才行，并且都是那些平时和中共称兄道弟的中东国家。冬奥会这场大戏，搭好的台子不能拆，无论如何习近平都要作下去，他已没有退路，只能一路向前，走向灭亡。
 
+* * *
 
+作者：骄子
+发布：骄子
 
-> Big enthusiastic crowd braved the cold in DC to [#defeatthemandatesdc](https://twitter.com/hashtag/defeatthemandatesdc?src=hash&amp;ref_src=twsrc%5Etfw). ⁦[@P\_McCulloughMD](https://twitter.com/P_McCulloughMD?ref_src=twsrc%5Etfw)⁩ ⁦[@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw)⁩ ⁦[@TruthMav](https://twitter.com/TruthMav?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/TukJ99sp2d](https://t.co/TukJ99sp2d)
-> — Richard Amerling (@dramerling) [January 23, 2022](https://twitter.com/dramerling/status/1485354150502281216?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Fighting for medical freedom will always and forever be on the right side of history. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W8cEEuhZfd](https://t.co/W8cEEuhZfd)
-> — Debra Lea (@thedebralea) [January 23, 2022](https://twitter.com/thedebralea/status/1485374947971194886?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
-> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
-
-
-
-30,000 至 35,000 人参加了抗议活动，[要求](https://defeatthemandatesdc.com/about/)终止疫苗授权和疫苗护照，他们呼吁进行合理辩论和知情同意的权力。
-
-游行组织者威尔·维特（Will Witt）是非营利组织 PragerU 的作家和政治评论员，她说：“你会听到很多左派人士说这是一场大型的反疫苗集会——人们进来否认科学，”
-
-“但是，这次游行是关于抗议我们现在在全国各地看到的严厉措施，特别是在华盛顿特区、纽约市、洛杉矶、旧金山等地。”
-
-几个团体赞助了这次活动，包括前线 COVID-19 重症监护联盟、世界卫生委员会、疫苗安全研究基金会和儿童健康防御组织——由小罗伯特·肯尼迪领导。
-
-演讲者包括罗伯特·马龙博士，Peter McCullough 博士、Christina Parks 博士、Paul Alexander 博士和[Maddie De Garay 的母亲 Stephanie De Garay](https://www.foxnews.com/media/ohio-woman-daughter-covid-vaccine-reaction-wheelchair)。
-
-
-
-> 🔥 Dr. Robert Malone destroys the approved narrative in 2 minutes. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/l9R9bid56L](https://t.co/l9R9bid56L)
-> — Zach (nine meals from anarchy) (@Just\_\_\_Zach) [January 23, 2022](https://twitter.com/Just___Zach/status/1485345169432096769?ref_src=twsrc%5Etfw)
-
-
-
-正义网络点评：
-
-“在我一生所知道的所有疫苗中（脊髓灰质炎、天花、白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎和肺结核），我还想加上流感和肺炎。我从未见过一种疫苗能强迫我要戴口罩，并保持社交距离，即使您已完全接种疫苗。
-
-我从未听说过即使在接种疫苗后也会传播病毒的疫苗。我从未听说过接种疫苗的奖励、折扣、奖励措施。我从未见过对那些没有接种的人的歧视。如果你没有接种过疫苗，没有人试图让你觉得你是个坏人。我从未见过一种疫苗会威胁到家人、同事和朋友之间的关系。我从未见过用于威胁生计、工作或学校。我从未见过一种疫苗可以让 12 岁的孩子无视父母的同意。在我上面列出的所有疫苗之后，我从未见过像这样的疫苗，它会歧视、分裂和评判社会。随着社会结构的收紧……这是一种强大的“疫苗！”
-
-即使我们已经完全接种了所谓的疫苗，之后，仍需要注射加强剂量；并且，在完全接种后仍需要进行阴性检测；并且，在完全接种后仍需要戴口罩；并且，在接种完后仍需感染！仍需住院！仍需死亡！
-
-在经历着无休无止的折磨之后，很可能会出现一个想法：“是时候让我们承认：我们被完全欺骗了”！“是时候叫停疫苗强制令了！”
-
-[新闻来源](https://www.foxnews.com/politics/washington-dc-defeat-mandates-march-covid-vaccine)
-
-撰稿/雅典娜之矛
-
-审阅/正义网络
-
-上传/侠客行
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

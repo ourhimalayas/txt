@@ -2,32 +2,44 @@
 ---
 
 
-## 病患确诊新冠，医院奖金不断
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1906318/)
+## 躺平币不问你是否灭共，秉承使用即获得金钱的设计理念
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906360/)
 
-情况是这样的，如果你得了新冠，你最终进了医院，你就要遵守一个严格的协议。而且医院的死亡率很高。你的家人被蒙在鼓里，不知道发生了什么。
+G-TV视频链接：[https://gtv.org/video/id=61ef4ee987664c47acd98b3e](https://gtv.org/video/id=61ef4ee987664c47acd98b3e)
 
-那么这里发生了什么？
+**郭文贵先生**：未来的躺币，是你一生中永远没有人给你的机会，躺币的设计理念很简单——使用即金钱。我不问你支不支持灭共，我不问你，你甚至不用说灭共，你就告诉警察说，我就想去要躺币骗钱去了，你这么说都行。我就一个原则，使用即躺币，使用即金钱，使用就获得躺币，使用即获得金钱。
 
-第一，护理法案正在向医院提供奖金。每当您诊断出 COVID。
+我希望你们记住，在盖特上注册你们的账号，发你们的盖文，不用你们自己表达观点，你把你的乡村，你把你的城市，你把你生活中真实的东西记录下来，在G-TV、盖特上发你的短视频和照片，如果你方便，把爆料革命新中国联邦传播的这些信息、真相传播出去。
 
-然后是第二个，医疗保险和医疗补助服务中心正在放弃患者权利。这是一个致命的组合。所以这就是发生的事情。你(医院)得到一笔付款。因为您(医院)在急诊室提供免费的 COVID 测试。您(医院)将获得一笔额外付款，如果您诊断出 COVID。
+所以说兄弟姐妹们，怎么改变你国内？不要懒、不要害怕、不要愚蠢的活在自己一生中莫名其妙被人设好的面朝黄土背朝天，或者一天什么911、811干活的时间去。挑战，有勇气，不要像猪狗一样活着，行动，聪明地活着，使用盖特、G-TV，购买喜币。更重要的事情，使用即金钱，你不用成本，没有风险，你会改变一切。看看喜联储的每个人这样子就知道了，谢谢！
 
-第三，你(医院)得到另一笔奖金，如果您因 COVID 入院。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-第四，你(医院)得到另一笔奖金，如果你服用瑞德西韦。
+编辑整理：Jacques；
 
-第五，另一笔奖金。如果你戴上机械呼吸机。
+字幕文件制作：小满；
 
-第六，另一个百分之二十的奖金。如果你的死亡证明上的诊断是新冠病毒。即使您可能没有死于 COVID。
+视频制作及上传：Cindy；
 
-然后是第七，有奖金支付给验尸官。
+G-News发布：小满；
 
-你明白现在发生的事情的严重性吗？拜登政府实际上是付钱给医院杀了你。这就是正在发生的事情。这太可怕了。我们需要阻止它。我们正在谈论的是真实的人命，他们是无价的。估计每位患者约十万美元，这是医院得到的。思考一下这些。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-视频剪辑/翻译: 三分 | 校对：烟波浩淼 | 视频制作+字幕： 三分 | 编辑：FiLa文新心 | 发布：闪电训练
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

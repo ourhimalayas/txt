@@ -2,39 +2,31 @@
 ---
 
 
-## 美国国务院敦促美国公民避开俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905943/)
+## GTV新闻访谈简报|2022年1月24日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1906199/)
 
-#### **【雅典娜快讯】。紧贴时代脉搏**
+作者：香草山翻译部
 
-整理报道：文扬
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/E8R84KRFSL04RC964E.png)图片来源：ATN News
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
-当地时间1月24日，据RT电视台报道，美国国务院周日表示，由于目前的乌克兰危机、新冠疫情以及可能的“俄罗斯政府安全官员的骚扰”等原因，美国人应该避免去俄罗斯访问旅行。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-2.png)
+校对：Stay文苑
 
-该机构发布了“请勿旅行”的咨询信息，并指出（届时）美国政府“提供常规或紧急服务”的能力受到严重限制。
+编辑：Stay文苑
 
-国务院的指导意见指出：“由于俄罗斯在与乌克兰接壤的边境地区加强了军事存在并正在进行军事演习，正在当地或考虑前往紧邻乌克兰的俄罗斯联邦地区的美国公民应该知道，该边境地区的局势是不可预测的，紧张局势正在加剧”。该意见还指出存在恐怖主义、骚扰和“当地任意执法”的潜在风险。
+发稿：Stay文苑
 
-由于俄罗斯军事行动和新冠疫情威胁增加，华盛顿还将乌克兰列入“禁止旅行”名单。美国外交官的家属已被勒令离开乌克兰，而一些使馆工作人员被授权在“自愿”的基础上离开。
+视频参看：[1.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ef520828a108147c6209ec)
 
-这次美国的警告，是在俄罗斯和乌克兰之间的紧张局势仍处于历史高位时发出的。最近几个月，西方媒体和政治家指责莫斯科在与乌克兰的边界上集中了军队和军事装备，据悉是为了在不久的将来发动进攻。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
 
-克里姆林宫一再否认这些说法，称俄罗斯只是在其境内调动其武装力量，有关攻击的报道毫无根据。
-
-原文链接： [Washington urges US citizens to avoid Russia — RT Russia & Former Soviet Union](https://www.rt.com/russia/547062-washington-urges-avoid-traveling-moscow/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

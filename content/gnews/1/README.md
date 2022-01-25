@@ -2,69 +2,44 @@
 ---
 
 
-## 灭共者之郭氏情报站（十六）2022/01/24 文贵大直播
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1906447/)
+## 达沃斯在考虑下一个合作者以替代行将就木的中国共产党
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906511/)
 
-出品：纽约香草山设计部 – 喜马拉雅大喵儿，天马星空J
+G-TV视频链接：[https://gtv.org/video/id=61ef3f6287664c47acd984f9](https://gtv.org/video/id=61ef3f6287664c47acd984f9)
 
+**郭文贵先生**：达沃斯论坛已经看到这个问题了，再往下去，这个疫苗再想搞下去就搞不下去了。
 
+所以习近平说：唉，哥们哥们，咱都不乱搞了啊，咱们都已经过去了啊，我也不要自己玩啦，我也不搞灭白啦，甚至啊咱两国不是……咱大家一起玩嘛，烧人嘛，继续打疫苗嘛，不服来继续打嘛，打了就是死嘛。他都不敢惹了，说明共产党经济即将崩溃。邓家钱从卢森堡搞去买黄金，转移到别的地方，绝对是大事发生。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+达沃斯和共产党之间现在是什么？达沃斯正在选择谁是它下一个的合作者，是吧？下一个合作者，这很重要。但是你要记住，共产党一定是会完啦，但是达沃斯短期内不会完，因为全世界人民的这种长期享受和平，人类上从来没有70年的和平过，只有二战之后的美国主导了……把这个英国的大英帝国从手里接过来，这个时候你必须要明白战友们，人类上，上万年的人类就是从过去的神，就是所谓的宗教统治人类的三分之二的时间，后来到了所谓的皇帝，就是封建社会统治人类。这两个全被打破以后，来到了工业时代，就是西方的法治和金钱和民主来控制人类的文明，这就是一战和二战爆发的原因。
 
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
+编辑整理：Jacques；
 
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**灭共者-郭氏情报站 **
-**2022年1月24日 文贵大直播总结提炼**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3d9a1236640ef47e.png)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-1、体制内的人说，我对邪教的六个特点，总结的太好了：个人崇拜，控制思想，骗钱，秘密结社，编造邪说，反人类反社会。现在要再加上一条，第七条，大家一定要记住：篡改历史。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-2、未来喜币会影响到什么程度？无疆界的支付系统，特别是热钱包和硬钱包发生之后，全球无人能控制，你的HDO可以随时交易。冷钱包可以加入你的生物信息，无人能拿走。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-3、中国的房地产会违约，所有在美国的中资的国有号的都会被清零。共产党会利用这个危机，让世界金融崩溃。他们说因为提前撤出，保留了5000亿美元。我说你把1000亿砸进来，直接市值一万亿。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-4、七哥在北京城会整出动静，会以病毒为借口，世界级的。绝不超过六周，我有百分之99的把握。在冬奥会期间，会在习太阳的梦里，整点动静。新中国联邦的甜蜜蜜运动就在二环里发起。如果发生（1%的可能不会发生），是世界级的。绝不亚于一场文化大革命的力量。
-
-5、甜蜜蜜运动，我们是奇门遁甲最高的段落，无兵，无血，无人伤亡。最崇高的境界，远在万里，灭敌于无形中。共产党找不到，哭着喊，在哪里，在哪里，你们到底在哪里。
-
-
-
-**上一期：**
-
-**[灭共者之郭氏情报站（十五）2022/01/21 文贵大直播 – GNEWS](https://gnews.org/zh-hans/1896866/)**
-
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

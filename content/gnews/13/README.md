@@ -2,44 +2,18 @@
 ---
 
 
-## 躺平币不问你是否灭共，秉承使用即获得金钱的设计理念
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906360/)
+## 【粤语配音】2022年1月24日： 甜蜜蜜运动
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1906399/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ef4ee987664c47acd98b3e](https://gtv.org/video/id=61ef4ee987664c47acd98b3e)
+紐約香草山-香港部
 
-**郭文贵先生**：未来的躺币，是你一生中永远没有人给你的机会，躺币的设计理念很简单——使用即金钱。我不问你支不支持灭共，我不问你，你甚至不用说灭共，你就告诉警察说，我就想去要躺币骗钱去了，你这么说都行。我就一个原则，使用即躺币，使用即金钱，使用就获得躺币，使用即获得金钱。
+所有冬奥会以后他们判断，世界人民对这个国家的好感和政治上的反应是最麻木的，它（共产党）要行动，但是七哥也有行动，七哥的行动就在北京城，记住我说的话，就在二环以内，我今天告诉大家地方，我都不去四环，四环离盘古太近了，不好意思，我就在二环以内，给它（共产党）弄点动静出来。
 
-我希望你们记住，在盖特上注册你们的账号，发你们的盖文，不用你们自己表达观点，你把你的乡村，你把你的城市，你把你生活中真实的东西记录下来，在G-TV、盖特上发你的短视频和照片，如果你方便，把爆料革命新中国联邦传播的这些信息、真相传播出去。
+你们会突然间听到二环以内，到处充满了歌声“在哪里..在哪里见过你，的笑容这样熟悉，啊…在梦里”全北京城都会听到这种“甜蜜蜜”暗号..暗号..
 
-所以说兄弟姐妹们，怎么改变你国内？不要懒、不要害怕、不要愚蠢的活在自己一生中莫名其妙被人设好的面朝黄土背朝天，或者一天什么911、811干活的时间去。挑战，有勇气，不要像猪狗一样活着，行动，聪明地活着，使用盖特、G-TV，购买喜币。更重要的事情，使用即金钱，你不用成本，没有风险，你会改变一切。看看喜联储的每个人这样子就知道了，谢谢！
+这个动静你就看着七哥，会以病毒为借口的动静，而且是世界级的，绝不超过六周，我有99%的把握在冬奥会期间，整点大动静，习近平不老是做梦嘛，是吧，咱们就要在梦里梦见你，我们在梦里相见，而且伸手还摸得着，绝对是这个运动就叫“甜蜜蜜”的运动，然后你们看到了二环以内的动静..习近平就傻眼，他就明知道，呀..呀..怎么有动静了？，没办法.. 制止不了，然后就听到旁边都在唱”甜蜜蜜”，左看、右看、前看、后看、上看、下看…都在唱”甜蜜蜜”都在唱“梦里见过你”。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+中国的习近平，我的中国梦，怎么都变成了“甜蜜蜜”的梦了呢？到那时就热闹了，我今天就告诉你们这些老杂毛们，你张高丽会给彭帅讲故事，宇宙无限大，地球是一粒沙，今天我给你来个就在你家门口，来个“甜蜜蜜”，而且我告诉大家这个甜蜜蜜运动，就像所谓的茉莉花运动一样，你会看到很多知识分子，老师、律师、军人、音乐家、医生，很多人参加，我就让你看到郭文贵和爆料革命新中国联邦的甜蜜蜜运动，就在你二环内发起，我现在就告诉你了，如果发生我会告诉大家是世界级的，绝不亚于一场文化大革命这么大的力量，我不是给你们开玩笑，到那时候习近平他的中国梦，就成为他的中国噩梦了。
 
  
 

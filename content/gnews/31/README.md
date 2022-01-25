@@ -2,31 +2,26 @@
 ---
 
 
-## 共军扰台，美国双航母进入南中国海域演习
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906027/)
+## 日本多措并举大力推动量子技术国家战略实施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906206/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-37.jpg)共军扰台，美国双航母进入南中国海域演习 网络图片
-据美国之音1月24日报道，美国国防部24日宣布，美国由卡尔文森号和亚伯拉罕林肯号两艘航母率领的两个航母战斗群已经驶入南中国海，将根据国际法，在国际水域举行反潜作战、空战以及海上拦截等演习。声明没有点名中共国，也没有提到解放军空军23日出动39架次的军机侵扰台湾防空识别区。一位美国海军高级将领表示，此举旨在安抚盟友并展现“抗衡恶意影响力”的决心。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-370.jpg)[图片来源](https://www.groundstation.space/opportunities-in-horizon-europe-for-govsatcom-quantum-and-ai/)
+1月24日，日本政府宣布了一项政策，从战略上鼓励产业界、学术界和政府合作使用量子技术。 政府将考虑对需要长期投资研发的公司，以及引进量子技术的公司提供税收优惠，以刺激私人投资。
 
-南中国海近年来成为美中对抗的一个重要地点。南中国海是世界上最繁忙的商业水道，海底拥有丰富的油气资源。中共国声称拥有南中国海大部分水域的主权，并且在南沙海域填海造岛，在岛上铺设战机跑道并部署武器装备。美国海军在南中国海进行例行的“自由航行”作业，并进入中共国控制的岛礁12海里之内，挑战北京过分的主权声索。
+到目前为止，日本在量子技术方面主要侧重于研究和开发，设备成本和传统观念阻碍了量子技术的广泛采用，中国有3074项与量子技术有关的专利，美国有1557项，而日本的专利数量则徘徊在750项。
 
-中共在南中国海持续扩张，对台湾持续恐吓，邻近国家都处在中共的威胁中，甚至美国的全球战略防御计划也受到影响。美国拥有世界上数量最多、威力最强大的航母战斗群，但是双航母战斗群同时行动或在同一海域演习或部署并不常见，包括在台湾周边海域和南中国海。在美国的实力面前，中共的秀肌肉还能秀到几时呢？
+中美等国将量子技术视为与国家安全直接相关的重要技术，都在由政府主导并扶持研究、开发和商业化。鉴于此，日本修改国家战略将量子技术定位到关系国家安全的高度，提出要拥有量子技术。
 
-新闻参考链接：[https://www.voachinese.com/a/two-US-carriers-enter-South-China-Sea-to-counter-malign-influence-20220124/6409941.html](https://www.voachinese.com/a/two-US-carriers-enter-South-China-Sea-to-counter-malign-influence-20220124/6409941.html)
+计划扩大对量子技术的引进，鼓励企业参与，私人投资，为初创企业提供基础技术，将专注于开发更多量子技术在安全等领域的应用，以加强经济安全和工业竞争力。
 
-* * *
+信息来源：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[政府、量子技術のイノベーション戦略見直し 税制優遇などで民間投資促す](https://news.yahoo.co.jp/articles/82178646de6fa41f9a27eaf22aff5e4271263730)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

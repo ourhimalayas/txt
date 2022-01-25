@@ -2,23 +2,25 @@
 ---
 
 
-## 2022达沃斯论坛主题：共产主义管理世界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900646/)
+## 俄罗斯将进一步加强虚拟币监管
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900647/)
 
-撰稿：银河系农场 — 骄子
+撰稿：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月17～21日，达沃斯冬季论坛在瑞士举办，有媒体将此次会议的主题描述为：如何利用好中共病毒和疫苗接管世界并抢劫全球财富。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-64.jpg)
-据悉，会议称赞中共习近平政府的邪恶统治，并建议以气候变化、财富再分配和绿色立法的名义，寻求缓解化石燃料行业的压力，所有这些立法都将推动一个统一独裁的世界秩序的形成。
+当地时间1月20日，俄罗斯央行发布报告称，加密货币对该国的金融体系构成威胁，提议在全国范围内禁止。
 
-郭先生此前在大直播中提到达沃斯论坛是世界的共产党，他们独裁，邪恶，不允许平民觉醒，是自由民主的最大敌人，并妄图继续统治世界。
+中央银行指出，加密货币的使用为俄罗斯人避免金融监管提供了便利。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-65.jpg)
+目前在俄罗斯使用加密货币进行支付已经是非法的，但该法律并未得到广泛执行。2021 年 12 月，俄罗斯央行宣布不再允许该国的基金投资加密货币。一位央行官员表示，拟议规则仅在俄罗斯境内生效，拥有离岸银行账户或外国资产的俄罗斯人将不受其在国外的限制。
 
-参考链接：[2022达沃斯论坛主题：共产主义管理世界](https://www.diamondandsilkinc.com/tabletalknews/diamond-and-silk-billionaires-push-for-great-reset-global-economic-forum-2158m)
+目前俄罗斯每年加密货币交易额大约 50 亿美元， 俄罗斯杜马发言人维亚切斯拉夫·沃洛丁本周早些时候表示，杜马将在春季会议期间考虑制定加密货币监管框架。
+
+参考链接：[俄罗斯将进一步加强虚拟币监管](https://thehill.com/policy/technology/590824-crypto-crashes-wiping-out-billions-in-value)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：文真
+编辑：文特
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
