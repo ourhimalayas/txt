@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 5:06 PM (UTC)`
+
+1/25/2022 Miles Guo: The Major Achievement of “the Tian Mi Mi Movement” - The US government just made a significant historical decision to issue the “authorized evacuation” of the US embassy in Beijing. On behalf of the New Federal State of China, Mr. Miles Guo sincerely appreciates President Biden and Secretary Blinken. History will prove the significance of this decision for humanity and preservation of human rights.<br/><br/>1/25/2022 文贵直播：“甜蜜蜜运动”重大成果 - 美国政府刚刚做出的重大历史决定“授权撤离”美驻北京大使馆,  郭文贵先生代表新中国联邦代感谢拜登总统和国务卿布林肯先生，历史会证明该决定对人类和人权维护的重大意义！<br/>
+![img](https://media.gettr.com/group34/getter/2022/01/25/16/16ccec50-3dff-8c6f-31d6-b660547cab48/out.jpg)
+
+---
+
 `@miles 1/25/2022 2:36 PM (UTC)`
 
 2022年1月25日 紧急直播：甜蜜蜜运动重大公告<br/>Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement
@@ -148,15 +155,6 @@ New Release                                              Shop Now at www.gfashio
 
 1月23号：尊敬和战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group37/getter/2022/01/23/14/15c3a75d-8c83-8ad2-be3e-293fdc7f74ef/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@thepotomacview 1/23/2022 4:09 AM (UTC)`
-
-⚠️ Nazi’s propaganda turned countless ordinary people into murderers of 6 million Jews. <br/>⚠️ Check out 1️⃣ part of the real conspiracy behind the fake news that puts millions of Chinese lives into jeopardy. <br/>#ViceIsViolence #ViceNewsIsVice #CancelVice #CancelHBO
-![img](https://media.gettr.com/group4/getter/2022/01/23/04/03912a31-2eea-bc3f-d27b-382f3688bdc0/out.jpg)
 
 ---
 
