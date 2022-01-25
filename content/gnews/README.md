@@ -144,50 +144,50 @@
 ### [新中国联邦欢迎和支持美国政府作出授权撤离美国驻中国大使馆](/content/gnews/43/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国正式授权撤离驻中共国北京大使馆](/content/gnews/44/README.md)
+### [01/25/22 香港快讯 支联会拒交资料案 押4月争议控方是否须披露资料](/content/gnews/44/README.md)
+ ` 英喜-粵語組`
+
+### [美国正式授权撤离驻中共国北京大使馆](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
 
-### [赵立坚拒不承认中共国违反“导弹技术扩散”](/content/gnews/45/README.md)
+### [赵立坚拒不承认中共国违反“导弹技术扩散”](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵先生紧急宣布灭共相关重大决定](/content/gnews/46/README.md)
+### [郭文贵先生紧急宣布灭共相关重大决定](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生发起《甜蜜蜜》运动让中共胆颤心惊](/content/gnews/47/README.md)
+### [文贵先生发起《甜蜜蜜》运动让中共胆颤心惊](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒疫情将被年轻一代铭记为灾难性的道德犯罪](/content/gnews/48/README.md)
+### [中共病毒疫情将被年轻一代铭记为灾难性的道德犯罪](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从其防控反应上看，中共谎报了本土中共病毒病例数](/content/gnews/49/README.md)
+### [从其防控反应上看，中共谎报了本土中共病毒病例数](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [宋词新作：永遇乐·人类文明之路——新中国联邦人是新文明先驱](/content/gnews/50/README.md)
+### [宋词新作：永遇乐·人类文明之路——新中国联邦人是新文明先驱](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [眼见为实](/content/gnews/51/README.md)
+### [眼见为实](/content/gnews/52/README.md)
  ` 骄子`
 
-### [1/25/2022国际财经快讯：英国PMI：成本压力肆虐，英国企业遭遇一月寒流；比特币滑落至六个月低点](/content/gnews/52/README.md)
+### [1/25/2022国际财经快讯：英国PMI：成本压力肆虐，英国企业遭遇一月寒流；比特币滑落至六个月低点](/content/gnews/53/README.md)
  ` 秘密翻译组金融团队`
 
-### [Do you hear the people sing，singing a song of Sweetie?](/content/gnews/53/README.md)
+### [Do you hear the people sing，singing a song of Sweetie?](/content/gnews/54/README.md)
  ` 骄子`
 
-### [台湾前线｜郭文贵再爆料：冬奥会前后一定打台湾！](/content/gnews/54/README.md)
+### [台湾前线｜郭文贵再爆料：冬奥会前后一定打台湾！](/content/gnews/55/README.md)
  ` 關注組`
 
-### [01/25每日播报｜美国顶级医生敦促公众停止接种中共病毒疫苗](/content/gnews/55/README.md)
+### [01/25每日播报｜美国顶级医生敦促公众停止接种中共病毒疫苗](/content/gnews/56/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [01/25每日播报|社媒消息：蓬佩奥 埃内斯·坎特](/content/gnews/56/README.md)
+### [01/25每日播报|社媒消息：蓬佩奥 埃内斯·坎特](/content/gnews/57/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [01/25每日播报｜新闻简讯 : 北京冬奧在即赞助商集体沉默 蔡鄂生及徐鸣涉被开除党籍](/content/gnews/57/README.md)
+### [01/25每日播报｜新闻简讯 : 北京冬奧在即赞助商集体沉默 蔡鄂生及徐鸣涉被开除党籍](/content/gnews/58/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [美军8500名士兵做好紧急派遣乌克兰准备](/content/gnews/58/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/59/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
