@@ -2,52 +2,30 @@
 ---
 
 
-## 举办北京冬奥会、制造假雪 张家口将面对多重危害
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906631/)
+## 扬帆每日速递 2022年1月24日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1906826/)
 
-作者：银河系农场 – 骄子， 日本方舟农场 – Andy 5
+** 加拿大温哥华扬帆农场 海报组 **
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、中共国反腐监督机构周一表示，三名中共国高级官员——包括原中共国银行业监督管理委员会党委委员、副主席蔡锷生——因涉嫌腐败被中共开除并接受刑事调查。
 
+2、中共空军对台湾防空区进行了自2021年10月以来的最大一次入侵行动。台湾国防部说，在最近的一次事件中，台湾战斗机紧急升空并驱离了39架中共飞机。
 
+3、据文贵大直播：奥运会期间，新中国联邦将会在北京城二环以内推出关于病毒的世界级动静–甜蜜蜜运动，届时国内很多知识分子、教师、军人、音乐家、医生、律师会参加行动，绝不亚于文化大革命的力量，《甜蜜蜜》歌声将响彻全世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+4、据文贵大直播：未来人民英雄纪念碑不能拆，改成“中国母亲碑”，把像杨改兰这样无数的故事写在上面；毛贼东纪念堂改成“10亿冤魂纪念堂”。以纪念香港所有被杀的人们、新疆死于大屠杀的人们、西藏被自焚的人们和死于文化大革命和被杀的地主们，以及死于计划生育中的胎儿。
 
+5、1月24，香港行政长官选举3月27日举行，中央至今未公布参选人名单。香港前立法会主席、民建联创办人曾钰成表示本次选举只会有一名候选人。评:不管是谁参选，最终都是中共的一条狗。
 
+6、1月24港府专家頋问、港大微生物学系讲座教授袁国勇在电视节目中指，預料一到两星期的确诊个案会以「几何数」增加，建议港府扩大「疫苗气泡」至工作场所、学校及商场，市民上班、上学及逛街都要先打针，推高疫苗接种率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板124-1_page-0001-1-1.jpg)
+素材提供战友：Revelation熙攘、shuang、文敏
 
-据1月22日外国媒体消息，随着气候变化，降雪变少，人造雪已成为冬季奥运会的固定活动。但北京将是第一个完全依赖人造雪的冬奥会主办国。
+编辑：文敏
 
-尽管世界多国也曾使用假雪举办奥运会，但北京冬奥会滑雪场地造雪所需的水资源要尽数来自张家口，而干旱的张家口地区本身已经不适合造雪，因为这一过程会损耗大量的水。该地区水资源一直非常紧缺，超过一半的张家口地区用水压力极大，当地人均水资源不到全国平均水平的五分之一。人工造雪后，该地区水资源将更加短缺。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-5.jpg)
-而造雪对环境的影响还不止于过度消耗水资源，造雪过程还将耗费巨大的电力，造成严重的温室气体污染，且假雪融化也会对环境造成危害。
+发布：风起云间（文敏）
 
-另据悉，为举办冬奥会，开发旅游产业，当地很多农田被占据，农民不仅失去了赖以生存的土地，政府强加的“旅游梦”恐怕也将成为泡影。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2.4-4.jpg)
-参考信息：
-1. [China’s fake snow frenzy for Beijing Olympics strains water supplies](https://www.japantimes.co.jp/sports/2022/01/22/olympics/winter-olympics/beijing-olympics-snow-water/)
-2. [20220124日本報導CCP人工造雪 還不忘回顧這幫孫子為了08奧運開幕式提前打增雨彈來驅逐雨雲 七哥前幾天說啥來著？](https://gettr.com/post/pq9e3jebe5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：Jack Li文阳
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+海报图片设计：飞天面、 Shuang
 
  
 

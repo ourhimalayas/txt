@@ -2,32 +2,46 @@
 ---
 
 
-## 塞尔维亚人形容中资轮胎厂为“人间地狱”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906612/)
+## 中共雇佣欧美网红为冬奥形象
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906632/)
 
-![塞爾維亞茲雷尼亞寧的玲瓏輪胎工廠工地。越南工人說，他們在工地上面臨「糟糕和危險」的條件。](https://static01.nyt.com/images/2022/01/18/world/00serbia-china01/merlin_200195361_b7b6704f-0ff0-42b6-b631-f869862f8c80-master1050.jpg)塞爾維亞茲雷尼亞寧的玲瓏輪胎工廠工地。越南工人說，他們在工地上面臨「糟糕和危險」的條件。 MARKO RISOVIC FOR THE NEW YORK TIMES
-据纽约时报中文网1月24日报道，一些在塞尔维亚为一家中共国轮胎公司工作的人，形容那里的生活如同“人间地狱”，因为中共国投资的诱人承诺与当地严峻的现实生活相差甚远。
-
-2018年9月，塞尔维亚总统亚历山大·武契奇和中共国领导人习近平在北京会晤，初步达成玲珑轮胎项目。塞尔维亚政府免费为玲珑轮胎工厂提供约97公顷农田，并承诺提供8500万美元国家补贴。最终，耗资九亿美元建成的玲珑轮胎工厂被吹捧为中共国在欧洲最大的工业投资。轮胎工厂计划每年生产超过1.3亿条轮胎，政府表示，该工厂最终将创造1200个就业岗位。
-
-塞尔维亚是欧洲最贫穷的国家之一，中共国的投资帮助塞尔维亚去年实现了超过7%的经济增长，在欧洲名列前茅。但是中共国对塞尔维亚的环境污染和破坏也是非常严重的，中共国经济的飞速发展就是以对资源的过度掠夺和对环境毁灭式的破坏实现的，如今这一幕剧情正在塞尔维亚重演。塞尔维亚人进入中共国工厂，如同身处“战俘营”，生活在“现代奴隶制”下，。一些工人已经逃离，但是离开就意味着撕毁合同，家人会背负劳工中介和高利贷债务，因为工人们前往塞尔维亚的费用是由家人提供的。
-
-与中共国亲近的国家，富国变穷，穷国更穷。民主变独裁，独裁监狱化。中共国就是地球上最大的集中营，监禁着14亿奴隶。奴隶主从来不把奴隶当作人，奴隶的生存环境和生活条件也不是奴隶主考虑的。塞尔维亚如今正在步中共国后尘。
-
-新闻参考链接：[https://cn.nytimes.com/world/20220124/china-serbia-vietnamese-workers/zh-hant/dual/](https://cn.nytimes.com/world/20220124/china-serbia-vietnamese-workers/zh-hant/dual/)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：台湾宝岛农场 – dobi
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据台媒报道，中共将在２月４日开始的北京冬季奥运，由于新疆问题以及美、澳、日等国家纷纷宣布抵制，不派外交代表出席等问题，让中共暴露了其邪恶面目。而为改善冬奥形象，中共雇用了大批欧美网红，将在抖音、IG或Twitch等社交媒体上发布对中共有利的讯息，达到洗脑国内民众的目的。
+
+据悉，数十年以来，中共还不断的透过中共国资助的大外宣媒体，对外加强传播各种虚假信息欺骗全世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide15-2.jpg)
+参考信息：
+[靠抖音帶風向？中國大陸找來歐美網紅改善冬奧形象](https://tw.news.yahoo.com/%E9%9D%A0%E6%8A%96%E9%9F%B3%E5%B8%B6%E9%A2%A8%E5%90%91-%E4%B8%AD%E5%9C%8B%E5%A4%A7%E9%99%B8%E6%89%BE%E4%BE%86%E6%AD%90%E7%BE%8E%E7%B6%B2%E7%B4%85%E6%94%B9%E5%96%84%E5%86%AC%E5%A5%A7%E5%BD%A2%E8%B1%A1-030114269.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

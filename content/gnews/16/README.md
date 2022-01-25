@@ -2,26 +2,21 @@
 ---
 
 
-## 防俄入侵乌克兰 日本讨论对俄经济制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906912/)
+## 喜币获得国家级金融牌照，意义深远
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906976/)
 
-撰稿：东京樱花团/麗子
+就在三周前直播，接到了某国元首的电话，告诉我，决定给喜联储一个数字银行牌照，你们知道这个意义有多大吗？我告诉你们，一个数字银行的牌照未来一定是巨额的，这比我们喜联储还值钱。这个国家已经在走程序当中。昨天下午，他用手机给我发了个信息，说一周前都已经签完字了。这是世界上第一个主权国家批的牌照，他这个牌照在欧洲，而且是一个世界前三的金融国家。这对我们新中国联邦来讲，是拥有国家银行的国家储备系统和法币连接的最稳定的桥梁，没有中转行，它的意义之大对于我们太深远了，等于这个国家和共产党决裂了，这是大事啊！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/防俄入侵乌克兰-日本讨论对俄经济制裁.png)[图片来源](https://www.cnn.co.jp/world/35182469.html)
+直播时间：2021.12.01
+![](https://assets.gnews.org/wp-content/uploads/2022/01/《喜币获得国家级金融牌照，意义深远》-.jpg)
+发布：*皮特*
 
-25日上午，自由民主党在党部召开了外交事务小组委员会等联席会议，讨论因俄军大规模军队部署而日益严峻的乌克兰局势，国会成员纷纷呼吁在俄罗斯入侵乌克兰的情况下需采取严厉措施，包括经济制裁。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-会议上有声音表示，鉴于在台湾出现紧急情况时可能需要寻求欧洲国家的支持，如果日本不对入侵乌克兰做出回应，可能会被戏谑执行双重标准。
-
-会后，外交事务小组委员会主席佐藤正久透露，美国已经表示将与同盟国一致，实施强有力的经济制裁。日方必须为任何紧急情况做好准备。所以，事前讨论并制定经济制裁措施很有必要。
-
-信息源：
-
-[露、ウクライナ侵攻なら「経済制裁を」　自民外交部会で議論](https://news.yahoo.co.jp/articles/598799a2dc75c7502519382af2cac9c06425af26)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
