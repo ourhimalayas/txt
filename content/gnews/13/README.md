@@ -2,20 +2,44 @@
 ---
 
 
-## 中共将开动宣传机器把无观众的冬奥会说成是在网络上有12亿人看的巨大成功的奥运会
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1906350/)
+## 躺平币不问你是否灭共，秉承使用即获得金钱的设计理念
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906360/)
 
-撰稿：追着曙光跑
+G-TV视频链接：[https://gtv.org/video/id=61ef4ee987664c47acd98b3e](https://gtv.org/video/id=61ef4ee987664c47acd98b3e)
 
-1月24日，文贵先生在大直播上爆料，中共将开动宣传机器把没有观众的北京冬奥会，说成是在网络上有12亿人看的巨大成功的奥运会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-25-at-12.02.17.jpeg)
-郭先生说，中共为了显示成功举办2022年北京冬奥会，虽然没有现场观众观看，但他们会报道在网络上超过12亿人次观看了本次冬奥会，而且点赞数是60%~70%，甚至是80%。
+**郭文贵先生**：未来的躺币，是你一生中永远没有人给你的机会，躺币的设计理念很简单——使用即金钱。我不问你支不支持灭共，我不问你，你甚至不用说灭共，你就告诉警察说，我就想去要躺币骗钱去了，你这么说都行。我就一个原则，使用即躺币，使用即金钱，使用就获得躺币，使用即获得金钱。
 
-另外，中共也会解释在网络上取得巨大成功的原因。由于病毒扩散、接种疫苗才能进入会场作为前提条件以及西方反华势力搞破坏等原因，国外的很多赞助商家和转播公司都没有办法到达现场宣传和转播，反而在社交媒体上给北京冬奥会带来了巨大的关注量。
+我希望你们记住，在盖特上注册你们的账号，发你们的盖文，不用你们自己表达观点，你把你的乡村，你把你的城市，你把你生活中真实的东西记录下来，在G-TV、盖特上发你的短视频和照片，如果你方便，把爆料革命新中国联邦传播的这些信息、真相传播出去。
 
-最后，中共也会报道一系列国外支持北京冬奥会的采访。中共现在已经安排好派记者到巴基斯坦、古巴、阿富汗、法国、德国以及加拿大这些被中共收买的国家，到时这些记者就会采访华人或者（都是安排好的）路人甲乙丙丁，然后他们就会说：“我看了北京冬奥会了，办得太好了！你们（中共）为了防止病毒，安排的无观众赛事，做得太好了。”
+所以说兄弟姐妹们，怎么改变你国内？不要懒、不要害怕、不要愚蠢的活在自己一生中莫名其妙被人设好的面朝黄土背朝天，或者一天什么911、811干活的时间去。挑战，有勇气，不要像猪狗一样活着，行动，聪明地活着，使用盖特、G-TV，购买喜币。更重要的事情，使用即金钱，你不用成本，没有风险，你会改变一切。看看喜联储的每个人这样子就知道了，谢谢！
 
-信息来源：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

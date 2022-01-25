@@ -2,25 +2,39 @@
 ---
 
 
-## 日本批准使用风湿药治疗中共病毒 类羟氯喹药物终获国家认可
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906228/)
+## 澳洲证券监督机构对超级基金投资数字货币提出警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1906246/)
 
-撰稿：东京樱花团/白云朵朵
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/日本批准使用风湿药治疗中共病毒-类羟氯喹药物终获国家认可-1.png)[图片来源](https://www.indiatoday.in/cities/delhi/story/delhi-tocilizumab-injections-expert-committee-how-to-apply-corona-treatment-1802332-2021-05-14)
+整理/编辑：小红帽
 
-日本厚生劳动省21日批准了中外制药生产的治疗类风湿关节炎和其他疾病的药物托西珠单抗（品牌名为Actemra）用于治疗中共病毒（新冠状病毒）感染。该药适用于患有肺炎并需要氧气的病人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
-该药用于防止由过度活跃的免疫系统引起的炎症，防止呼吸功能恶化，通过静脉注射，与类固醇联合使用。中外制药公司于去年12月向厚生省提出申请。本月20日举行的该部特别委员会审议了该申请并同意批准。
 
-美国食品和药物管理局（FDA）也于去年6月批准了紧急使用托西珠单抗治疗新冠状动脉。
+根据《Coingeek》1月24日报道，澳大利亚证券监督机构警告当地人，不要在没有充分了解所涉及的风险的情况下，使用他们的退休储蓄投资数字货币。
 
-译者后语：类似羟氯喹的治疗药，终于获得国家层面的认可。民众的生活质量也会提高。
+澳大利亚证券和投资委员会（ASIC）在其警告中称，欺诈者正瞄准自我管理的超级基金（SMSFs）的受托人，让他们投资粗略的数字货币产品。
 
-*校对：东京樱花团/Haruka春香
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+SMSFs是在澳大利亚流行的私人超级基金，投资者可以选择投资和保险。它们是更受欢迎的零售和行业养老基金的替代品，允许投资者以高回报投资。SMSF基金的成员不超过6人，是澳大利亚人将数字货币加入其投资组合的唯一途径。
+
+“ASIC提醒超级基金成员，在同意将退休年金从受监管的基金转移到SMSF之前，最好的做法是寻求持牌财务顾问的建议，”该监督机构表示。
+
+据ASIC称，这些SMSF基金的受托人的目标是投资数字货币。虽然数字货币在澳大利亚没有被取缔，但监督机构警告说，数字货币是风险投资，投资者可能损失所有资金。
+
+该监督机构还透露，它在去年11月打击了一家采用这些策略的数字货币公司。该公司名为A One Multi Services，位于昆士兰州，据称它将用超过240万澳元（173万美元）购买数字资产。创始人承诺，如果投资者从他们的SMSF中贷款给他们，他们将获得20%的年回报。
+
+新闻链接：[Australia: Securities watchdog warns over super funds investing in digital currencies](https://coingeek.com/australia-securities-watchdog-warns-over-super-funds-investing-in-digital-currencies/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

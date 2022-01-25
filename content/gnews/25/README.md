@@ -2,38 +2,27 @@
 ---
 
 
-## 澳洲证券监督机构对超级基金投资数字货币提出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1906246/)
+## 文·贵天成 &#8211; “爆料革命”盘古开天地（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906251/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理：澳雅大直播工作组视频剪辑小队
 
-整理/编辑：小红帽
+**陈小平先生: **郭先生，在中国的媒体上，基本上报导你的时候啊，我估计没有一家媒体真正地跟你面对面地采访过。在过去你跟媒体交往的历史中，我知道你好像只是接受过《香港商报》这一家的一次采访，除此以外好像就没有接受过采访。那么，我想请你给大家说一下你自己。很多人说你是一个神秘商人、神秘的富豪等等。都不知道你究竟是干什么的，你能不的呈、能给大家第一次正式地说一下，您到底是干什么的？
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+**郭文贵先生:** (笑)小平先生，您过奖了。我不是什么神秘人物，也不是什么富翁，这个都是过去媒体因为不了解不知道报导的。
 
+那么同时呢，过去的这些年来呢，我确实是没有在媒体上做任何事情，也得罪了一些媒体，包括我的一些对手也利用很多媒体妖魔化我，所以我老开玩笑说在过去的几十年我的生活中一旦没有了诽谤，没有了造谣，没有妖魔化，我就过得不太舒服了。因为所有的过去的诽谤和妖魔化都是我的动力，我就要证明给别人看我不是那样子的。实际上这对我也是很大的帮助，我还应该感谢他们。
 
-根据《Coingeek》1月24日报道，澳大利亚证券监督机构警告当地人，不要在没有充分了解所涉及的风险的情况下，使用他们的退休储蓄投资数字货币。
+**所谓的神秘化，都是媒体编造出来的。**中国十几亿人，媒体不知道的人太多了，我只是一个普通的老百姓，不让人知道是很正常的。基本上还是在中国这个社会呢，像我这样的人太多了。**再一个我们也从小受父母的教育，低调做人还是比较好的，所以说不存在什么神秘。**
 
-澳大利亚证券和投资委员会（ASIC）在其警告中称，欺诈者正瞄准自我管理的超级基金（SMSFs）的受托人，让他们投资粗略的数字货币产品。
+*发布：玉米地守望者*
 
-SMSFs是在澳大利亚流行的私人超级基金，投资者可以选择投资和保险。它们是更受欢迎的零售和行业养老基金的替代品，允许投资者以高回报投资。SMSF基金的成员不超过6人，是澳大利亚人将数字货币加入其投资组合的唯一途径。
-
-“ASIC提醒超级基金成员，在同意将退休年金从受监管的基金转移到SMSF之前，最好的做法是寻求持牌财务顾问的建议，”该监督机构表示。
-
-据ASIC称，这些SMSF基金的受托人的目标是投资数字货币。虽然数字货币在澳大利亚没有被取缔，但监督机构警告说，数字货币是风险投资，投资者可能损失所有资金。
-
-该监督机构还透露，它在去年11月打击了一家采用这些策略的数字货币公司。该公司名为A One Multi Services，位于昆士兰州，据称它将用超过240万澳元（173万美元）购买数字资产。创始人承诺，如果投资者从他们的SMSF中贷款给他们，他们将获得20%的年回报。
-
-新闻链接：[Australia: Securities watchdog warns over super funds investing in digital currencies](https://coingeek.com/australia-securities-watchdog-warns-over-super-funds-investing-in-digital-currencies/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

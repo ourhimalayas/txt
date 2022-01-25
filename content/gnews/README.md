@@ -15,83 +15,83 @@
 
 ---
 
-### [七哥谈人生规划（一）](/content/gnews/1/README.md)
+### [灭共者之郭氏情报站（十六）2022/01/24 文贵大直播](/content/gnews/1/README.md)
+ ` MOS Designer香草山设计部`
+
+### [七哥谈人生规划（一）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈哲学（四）](/content/gnews/2/README.md)
+### [七哥谈哲学（四）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈哲学（三）](/content/gnews/3/README.md)
+### [七哥谈哲学（三）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [中共从世界共治给世界开药方龟缩至共同享受后疫情时代](/content/gnews/4/README.md)
+### [慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共从世界共治给世界开药方龟缩至共同享受后疫情时代](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【粤语配音】2022年1月24日： 甜蜜蜜运动](/content/gnews/5/README.md)
+### [【粤语配音】2022年1月24日： 甜蜜蜜运动](/content/gnews/7/README.md)
  ` MOS香港部`
 
-### [七哥谈哲学（二）](/content/gnews/6/README.md)
+### [七哥谈哲学（二）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [提取患者的潜在病灶 TIS和国立癌症研究中心东医院共同研究](/content/gnews/7/README.md)
+### [提取患者的潜在病灶 TIS和国立癌症研究中心东医院共同研究](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [脸书提供的免费在线服务竟通过移动运营商收费](/content/gnews/8/README.md)
+### [脸书提供的免费在线服务竟通过移动运营商收费](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵直播摘要和音频 2022.01.24](/content/gnews/9/README.md)
+### [郭文贵直播摘要和音频 2022.01.24](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [电阻为零的绝缘体 未知原理“铜氧化物超导体”诞生了！](/content/gnews/10/README.md)
+### [电阻为零的绝缘体 未知原理“铜氧化物超导体”诞生了！](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [躺平币不问你是否灭共，秉承使用即获得金钱的设计理念](/content/gnews/11/README.md)
+### [躺平币不问你是否灭共，秉承使用即获得金钱的设计理念](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [三百万战友没打疫苗而且很多人成为千万亿万和百亿富豪](/content/gnews/12/README.md)
+### [三百万战友没打疫苗而且很多人成为千万亿万和百亿富豪](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共将开动宣传机器把无观众的冬奥会说成是在网络上有12亿人看的巨大成功的奥运会](/content/gnews/13/README.md)
+### [中共将开动宣传机器把无观众的冬奥会说成是在网络上有12亿人看的巨大成功的奥运会](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [七哥谈哲学（一）](/content/gnews/14/README.md)
+### [七哥谈哲学（一）](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [12月25日最重要的意义](/content/gnews/15/README.md)
+### [12月25日最重要的意义](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [支援汤加的一名自卫队队员染疫，21人被怀疑有密切接触](/content/gnews/16/README.md)
+### [支援汤加的一名自卫队队员染疫，21人被怀疑有密切接触](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [病患确诊新冠，医院奖金不断](/content/gnews/17/README.md)
+### [病患确诊新冠，医院奖金不断](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [真想听爆料革命的人在一直断网状态下从未被防火墙阻隔](/content/gnews/18/README.md)
+### [真想听爆料革命的人在一直断网状态下从未被防火墙阻隔](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美军8500名士兵做好紧急派遣乌克兰准备](/content/gnews/19/README.md)
+### [美军8500名士兵做好紧急派遣乌克兰准备](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈欧洲各国和中共关系](/content/gnews/20/README.md)
+### [七哥谈欧洲各国和中共关系](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [西安封城解除 北京感染扩大](/content/gnews/21/README.md)
+### [西安封城解除 北京感染扩大](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界上没有比看到真相拯救爱人亲人被误解再让人伤心的](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [谷歌在新的诉讼案中被指控“侵犯”用户隐私](/content/gnews/23/README.md)
+### [谷歌在新的诉讼案中被指控“侵犯”用户隐私](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成 &#8211; “爆料革命”盘古开天地（一）](/content/gnews/24/README.md)
+### [文·贵天成 &#8211; “爆料革命”盘古开天地（一）](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲证券监督机构对超级基金投资数字货币提出警告](/content/gnews/25/README.md)
+### [澳洲证券监督机构对超级基金投资数字货币提出警告](/content/gnews/26/README.md)
  ` 走进澳洲`
-
-### [日本批准使用风湿药治疗中共病毒 类羟氯喹药物终获国家认可](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共全国人大副委员长李沛瑶之死内幕](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
