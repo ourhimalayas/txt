@@ -2,37 +2,42 @@
 ---
 
 
-## DC每日热点0125
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1910056/)
+## 美国FDA 开始拒绝批准辉瑞申请的药物
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910335/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/01/CC0B8B91-9ED6-4FA9-9ED4-6C48C7A04793-scaled.jpeg)
-道琼斯指数 33632.90 ▼2.13%
-纳斯达克指数 13456.20 ▼2.88%
-WTI纽约原油CFD 83.647 ▲0.40%
-布伦特原油CFD 87.133 ▲1.00%
-标普50指数 2,779.04 ▼52.99%
-美元兑人民币 1USD=6.328 RMB
-美元兑港币 1USD=7.784 HKD
-国际黄金 1847.13 美元/盎司
-全球CCP病毒感染人数 356,440,287例
+作者：新中国联邦静
 
-1、台副总统启程赴美转机前往洪都拉斯 称台洪一起走过威胁利诱的艰辛岁月
-2、美国政府日前传出以“国家安全”为由，正在审查阿里巴巴的云端服务业务是否衍生资安风险
-3、美海军F-35C战机降落航母时发生意外 中共官媒揶揄美军在南海耀武扬威
-4、“全球腐败感知指数”出台，中共国未垫底但贪腐超越国境
-5、俄罗斯若入侵乌克兰 拜登政府考虑实施技术制裁 类似打击中共国华为
-6、荷兰一大学人权中心接受中方资助 再次引发对中共兜售影响力的担忧
-7、法国24日开始实施新的疫苗通行证，16岁以上的法国人在进入酒吧，餐厅，电影院，长途火车等公共场所要出示疫苗接种证明
-8、拜登与欧洲盟友举行集体会议 美国防部：8500名美军进入待命状态
-9、美国土安全部就实施《防止强迫维吾尔人劳动法》开始征求公众意见
-10、美最高法院将听取挑战高校基于种族的录取政策的诉讼案
-11、空气污染威胁本届冬奥会 北京承诺确保赛事不受影响
-12、泰国总理巴育三十多年来首次访问沙特开启破冰之旅
-13、朝鲜25日发射两枚巡航导弹
-14、中共国房地产企业世茂集团抛售100亿欧元资产
-15、布基纳法索政变军人宣布罢免总统
-16、英首相：对接种疫苗的国际游客 取消病毒测试
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-27.jpg)
+
+
+
+辉瑞公司1月21日披露，FDA 拒绝了辉瑞公司的一种新药，以对抗儿童生长激素缺乏症。Somatrogon 由辉瑞与 Opko Health 联合开发，旨在与 Ascendis Pharma 上市的治疗药物 Skytrofa 竞争，后者已于 8 月获得 FDA 批准。Somatrogon 已获准在澳大利亚、加拿大和日本以 Ngenla 品牌使用。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-88.jpg)图源网络
+
+辉瑞公司于 2014 年以 2.95 亿美元从 Opko Health 收购了该药物，以换取该药物的全球权利。 FDA 拒绝辉瑞（Pfizer）药物之际，全球对辉瑞（Pfizer）的 COVID-19 疫苗的担忧正在引起人们的关注，许多人质疑该药物的功效，因为它既不能防止COVID-19 的感染，也不能阻断病毒的传播。辉瑞没有透露 FDA 拒绝 somatrogon 的原因。
+
+在 FDA 做出决定的消息传出后，Opko Health 的股价周五在美国市场的盘后交易中下跌了近 10%。
+
+新闻来源：[https://americasfrontlinedoctors.org/news/post/fda-rejects-pfizer-growth-hormone-deficiency-drug/](https://americasfrontlinedoctors.org/news/post/fda-rejects-pfizer-growth-hormone-deficiency-drug/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

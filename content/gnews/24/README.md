@@ -2,52 +2,31 @@
 ---
 
 
-## “恶意返乡”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1909793/)
+## 七哥谈打PAG官司的意义（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1910128/)
 
-中国新春佳节即将来到，无数在外地辛劳工作一年的人盼望在年底前返回家乡，与亲人团圆，一起过年。如同中国不少地方，河南多地执行低风险去返乡报备，
+文编：Hima
+听写：叮叮
+视频：七哥
 
-中高风险区劝返，部分地市更实施14+7+7隔离，郸城董县长更上一层楼，1月20日视频警告乡亲们不要“不听劝阻，恶意返乡”，威胁：“你只要返回，先隔离再拘留”。
+来源：郭先生2022-01-17直播11：14：53摘录
 
-这句恶狠狠的话在网络炸开了，许多人随即联想到了一系列的官方话语：比如“恶意上访”，“恶意讨薪”，
+这是作为律师你去想想我们活在美国，我有一个梦，我们华人如果在美国，就像在 PAG官司面前，今天要妥协了，今天要放弃了，我们华人在美国就会被无数次、被共产党等坏人推到了铁轨当中，而且没有人替你说话。如果我们这次官司打不到真相出来 ，我们中国人在美国将永远成为司法的奴隶，司法的牺牲品，共产党会穷追猛打，把所有人在海外毁掉。严格讲PAG的官司，它已经不那么简单了，它牵扯着巨大的种族问题，巨大的法律的黑洞，和美国的司法制度的缺陷，所以接下来的才有更大的事情。
 
-“恶意提问”以及指责海外留学生或华人回国探亲是“祖国建设你不在，万里传毒你最快”。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-我待家乡如初恋，家乡待我如罪犯!
+**关注我们**
 
-以前，乡愁是一张船票。现在，乡愁是一张核酸证明。我在这头，故乡，就在那头吧，别回这头。
+Discord 账号
 
-蓄谋回家，恶意返乡，结伙乘车，过年未遂。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-一点没错，西方国家恶毒攻击我们的制度，可我们一些水平很差的基层干部恰恰就这么干了，真不知道他是蠢还是坏，或者本来就是西方的卧底，反正我感觉是故意的。
+Gettr 账号
 
-恶意返乡，恶意上访，都是不作为贪官污吏恶意扣过老百姓冠冕堂皇的说辞。皇帝的新装里面的皇帝。把老百姓当看不见的傻子。
-
-昨日入城市， 归来泪满襟。 本是骨肉情， 翻脸不认人。
-
-一边担心病毒，一边担心拘留，没病也会吓死
-
-别用土匪般的行为对待民众还狡辩，别用疫情蒙蔽民众的双眼，别用你们的旱涝保收宣扬形势一片大好 很多都是用愚民 懒政 不作为而层层加码等等 还成为你们宣扬的丰功伟绩
-
-在推特上也有许多热议，有人不解地质疑：恶意返乡这四个字让人错愕不已，多少人在外劳碌奔波类似累活就等着春节放假回家，跟家人团聚共度春节，这有什么恶意。
-
-曹天写道：“此番话让天下所有的辛劳一年，想早点回家的人，都感到彻骨寒冷。这是新年我听到的最恶毒的话，比病毒毒百倍。”
-
-发布：奇门遁甲
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-17-3.jpg)
-
-**For more information, please follow us at:**
-
-**[New York MOS Himalaya ｜GTV](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)**
-
-**[New York MOS Himalaya ｜MOS TALK](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-
-**[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)**
-
-**[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-
-**[Free to Join New York MOS Himalaya | Discord](https://discord.gg/ChqXAHd)**
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
