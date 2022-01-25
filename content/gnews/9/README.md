@@ -2,36 +2,42 @@
 ---
 
 
-## 【秘翻在线】乌克兰外交部谴责美国大使馆人员的撤离
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1905283/)
+## 共产党只要对台湾开了第一枪台湾就解放了共产党就没了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905348/)
 
-**撰稿：Grace**
+G-TV视频链接：[https://gtv.org/video/id=61ee5cc787664c47acd93a0c](https://gtv.org/video/id=61ee5cc787664c47acd93a0c)
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-24-at-6.13.22-PM.jpeg)图片来源：Kyiv Post
-据Newsweek 1月24日报道，乌克兰外交部谴责美国将一些美国外交官及其家属从驻基辅(Kyiv)大使馆撤离，以应对乌克兰-俄罗斯边境成千上万的军队集结和即将发生的战争。
+**郭文贵先生**：台湾，实际上说实在话，台湾，只要开战，对台湾不是坏事，只要开了第一枪，共产党肯定就没了，共产党没了，台湾也就得解放了嘛。你总比活在这种天天被威胁，脑袋上挂着一堆一百万个导弹，天天要打过来。
 
-上周六，美国广播公司(ABC)新闻报道说，美国国务院正准备批准一些美国外交官和外交官的家属从驻基辅大使馆撤离。英国也采取了类似的行动。
+大家要想一想台湾和大陆比（是）什么概念呢？就是Tiger、Alice身上别着一堆刀，一手拿着一把枪，对着自己的孩子说：“我随时可以杀掉你！”这孩子的成长实在是太不健康了。孩子在这种战战兢兢中对着爹妈拿着的所谓的枪，跟那猫狗大战似的，别着一堆的刀，在这种情况下长大（会）健康？这个时候最好这个疯狂的爹妈就灭了，自己给自己开一枪。他最终要打孩子这一枪的时候，旁边人就“叭”给他灭了，当然孩子就得解放了，就（被）拯救了。
 
-在周一发表的一份声明中，乌克兰外交部称美国的决定 “不成熟，是过度谨慎的表现”。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-该部长补充说：“俄罗斯联邦目前正在积极努力破坏乌克兰国内局势的稳定。大量的错误信息、操纵和虚假信息正在乌克兰和国际媒体空间中传播，以便在乌克兰人和外国人中散播恐慌，恐吓企业，并破坏我国的经济和金融稳定。在这种情况下，重要的是清醒地评估风险并保持冷静。”
+编辑整理：Jacques；
 
-然而，该部长还是“特别感谢 ”美国的 “积极的外交立场” 和向乌克兰提供的军事援助。
+字幕文件制作：小满；
 
-据报道，上周六，约90吨美国 “致命援助”，包括为 “前线防卫者 ”提供的弹药抵达乌克兰。
+视频制作及上传：Cindy；
 
-另一方面， 报道称，估计有10万名俄罗斯军队已经在乌克兰东部边境集结，俄罗斯总统弗拉基米尔·普京与西方官员的会谈，未能劝阻人们对欧洲发生新冲突的担忧。
+G-News发布：小满；
 
-报道指出，如果发生冲突，这将不是这两个国家第一次发生战争。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-2014年，在乌克兰推翻该国亲俄总统的抗议活动后，俄罗斯夺取了对克里米亚(Crimea) 的控制。自那时起，乌克兰军方一直在该国东部的顿巴斯(Donbas)地区与俄罗斯支持的叛军进行血腥冲突。自战斗开始以来，估计有14000人被杀。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-《纽约时报》周日报道说，拜登正在考虑向东欧增派1,000-5,000名士兵，如果需要，可以将服务人员增加10倍。如果拜登继续采取这一行动，这将标志着其对乌克兰的政策与之前的克制政策发生了重大转变。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-同时，德国在周末与北约决裂，拒绝向基辅提供武器，尽管英国和美国重申他们承诺过在俄罗斯的威胁下会帮助乌克兰的军队。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**新闻来源： ****[Ukraine Condemns U.S. Decision to Begin Evacuating People From Country](https://www.newsweek.com/ukraine-condemns-u-s-decision-begin-evacuating-people-country-1672080)**
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

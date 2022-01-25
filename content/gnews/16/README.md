@@ -2,42 +2,67 @@
 ---
 
 
-## 在最黑暗的2022年病毒基本结束后人类步入疫苗灾难期
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905174/)
+## 美媒曝中共病毒测试公司涉嫌造假及掩盖
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1905281/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ee594887664c47acd938ff](https://gtv.org/video/id=61ee594887664c47acd938ff)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C-5.jpg)reddit.com
+《真相报道》（truth press）1月23日发表文章，题目是“心脏地带州（Heartland State）公司称中共病毒（Covid）测试公司涉嫌丑闻掩盖”。
 
-**郭文贵先生**：爆料革命又跟大家说：2022年是最黑暗，我现在我从来没有过，今天我有个重大的一个，但愿你们不要相信我的啊，我是胡说八道，我的根据，最近和科学家在讨论，和最近和我们国内的各种情报讨论：人类的疫苗灾难5月份开始，但是病毒基本接近尾声。这一波，可能会有个大的缓冲，共产……这脱了，这你要不再脱的话，那就病毒找上你了我告诉你。
+全文如下：
 
-这个第一次啊，我第一次从有病毒2019年12月我第一次说到病毒最正面的一面，根据应该是这一波已经是基本最尾声。如果不再放新毒的话，这个病毒会过，人类将走上疫苗的灾难。
+明尼苏达总检察长埃利森（Keith Ellison）正在起诉两家位于伊利诺斯州的公司，指控他们在中共（冠状）病毒的测试方面涉嫌“欺骗消费者”。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+根据埃里森办公室周三发布的一份新闻稿，这起诉讼声称这两家公司，即中共病毒控制中心（CCC，the Center for COVID Control）和医生临床实验室有限公司（DCL，Doctors Clinical Laboratory, Inc），“要么未能提供检测结果，要么提供了伪造或不准确的检测结果。”
 
-编辑整理：Jacques；
+根据《国家广播公司新闻网》（NBC News）1月14日的报道，中共病毒控制中心（CCC）是中共病毒测试领域最大的测试机构之一，在全国范围内运营着300多个站点。该报道指出，该公司正在接受联邦的调查，并在接受几个州总检察长的调查。
 
-字幕文件制作：小满；
+埃里森的新闻稿称，医生临床实验室（DCL，Doctors Clinical Laboratory）是CCC的“联合实验室”。
 
-视频制作及上传：Cindy；
+根据新闻稿，CCC在明尼苏达州采集样本，然后将样本交给DCL进行测试，能快速检测出中共病毒测试结果。
 
-G-News发布：小满；
+周三在亨内平郡（Hennepin County）地方法院提起的诉讼指控这些公司提供的测试结果“往往充满欺骗性的不准确和虚假信息，包括列出错误的测试类型以及从消费者那里收集样本进行测试的虚假日期和时间”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+更糟糕的是，根据诉讼，一些从未提交过样本的明尼苏达州人报告说，他们收到了这些公司的测试结果。新闻稿指出，“更令人不安的是，被告欺诈性地表示明尼苏达州消费者的中共病毒检测呈阴性，尽管消费者从未向被告提交样本进行测试。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+该诉讼称明尼苏达州卫生部于12月开始收到有关投诉。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+根据新闻稿，前CCC员工告诉总检察长办公室，“虽然该公司最初可以处理大量的本地测试，但随着该公司在全国各地开设检测点，包括在明尼苏达州，其处理中心却未能扩大。正如一位前员工所描述的，测试结果非常混乱，收到的样本被塞进了散落在办公室地板上的垃圾袋中。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+新闻稿称，一些前雇员回忆说，“发现袋子里的样品已经超过48小时，管理层指示他们伪造收件日期，并指示他们向消费者撒谎说他们的测试没有结果或阴性，而事实上样品没有被测试过。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+根据CNN周五（1月21日）的报道，CCC没有回复置评请求，但该公司此前曾发布声明，宣布将在1月14日至1月22日暂停运营，因为“正如广泛报道的那样，异常高的需求已经对我们部分地区的人力资源带来压力，影响了我们通常的客户服务标准和诊断目标。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+然而，在周四（1月20日）的新闻稿中，该公司宣布“暂停”将无限期延长，“直到人力资源允许CCC具备满负荷运行的能力”。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+新闻稿称：“正如之前宣布的那样，CCC正在利用这一运营间歇期，对新增员工进行样本收集和处理、客户服务和沟通最佳实践，以及遵守监管指南等方面的培训，CCC将在适当时提供重新开放计划的更新。”
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+保守的美国人非常清楚，埃里森办公室的任何行动都应该以怀疑的眼光来看待。作为民主党全国委员会的前成员，他的党性和对左翼的同情已经不是秘密。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+然而，像这样的诉讼不是一件小事，每个人都希望这些公司提供准确的结果。如果诉讼的要求是准确的，他们不诚实的行为无疑给许多人造成了真正的伤害。
+
+那些收到假阴性检测结果的人将被允许外出，并有可能将病毒传播给他人。有多少人可能因这起诈骗案而被感染？有多少人可能已经死了？
+
+另一方面，假阳性结果会迫使其他人取消工作、旅行等，同时他们会忍受不必要的隔离。
+
+当人们考虑到CCC在美国运营着数百个检测点时，这些指控变得更加令人不安。有多少美国人会受到这样的欺骗的影响？
+
+如果这些指控得到证实，那么这两家公司就是进行了大规模的掩盖以维持这一局面。
+
+在疫情尘埃落定之前，我们很可能会听到很多很多个人和企业从中逐利的故事。
+
+像这样的报道是许多美国人越来越难以“相信科学”的原因之一。谁又能责怪他们呢？
+
+（全文完）
+
+测试机构也是阴谋集团必须操控的环节，他们通过数据造假、掩盖真相而制造恐惧，为强制疫苗接种推波助澜。阴谋链正在被揭开，罪恶集团死期已近，中共你完了！
+
+有关链接：
+
+[https://truthpress.news/news/covid-testing-company-engaged-in-scandalous-cover-up-says-heartland-state/](https://truthpress.news/news/covid-testing-company-engaged-in-scandalous-cover-up-says-heartland-state/)
+
+**华盛顿DC 望七星**
+
+**编辑发布  水星**
 
  
 

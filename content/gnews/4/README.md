@@ -2,42 +2,30 @@
 ---
 
 
-## 共产党只要对台湾开了第一枪台湾就解放了共产党就没了
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905348/)
+## 矩阵的定义-平行宇宙论
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1905390/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ee5cc787664c47acd93a0c](https://gtv.org/video/id=61ee5cc787664c47acd93a0c)
+#### 加拿大温哥华扬帆农场 蓝枫法律
 
-**郭文贵先生**：台湾，实际上说实在话，台湾，只要开战，对台湾不是坏事，只要开了第一枪，共产党肯定就没了，共产党没了，台湾也就得解放了嘛。你总比活在这种天天被威胁，脑袋上挂着一堆一百万个导弹，天天要打过来。
+有一句话说的很好，叫做“遇事不决量子力学”。从量子力学理论物理学的角度来讲有一个叫The many-worlds interpretation(MWI)的，就是说我们现在每时每刻这个平行宇宙理论它都是存在的，每时每刻你做的一个决定不一致的话，它就会自动分裂成两个不同的平行宇宙。如果切到无限小的话，就是说有无穷无尽的平行宇宙都是存在的。
 
-大家要想一想台湾和大陆比（是）什么概念呢？就是Tiger、Alice身上别着一堆刀，一手拿着一把枪，对着自己的孩子说：“我随时可以杀掉你！”这孩子的成长实在是太不健康了。孩子在这种战战兢兢中对着爹妈拿着的所谓的枪，跟那猫狗大战似的，别着一堆的刀，在这种情况下长大（会）健康？这个时候最好这个疯狂的爹妈就灭了，自己给自己开一枪。他最终要打孩子这一枪的时候，旁边人就“叭”给他灭了，当然孩子就得解放了，就（被）拯救了。
+我们的每一个决定，会把我们从我们想要的这个平行宇宙带过去。因此说我们有共同的信念和信仰多么的重要，因为它会把我们一同带入到想要的那个平行宇宙里面去。这就是为什么郭先生每次直播的时候都会为全体战友们祈祷。这件事我觉得不是在搞一个形式，因为它真的是有用的。我们是可以通过意识来改变真实世界的一些参数设定的，就像尼奥把子弹给黑客掉一样。谢谢！
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+七哥好多年以前就已经开始每一次直播为我们战友祈祷。我非常认同七哥说的我们人类是有主人的。我也认同我们是有灵魂的，我们是有思想的，我们是有良知的，我们来到这个世界上是有我们的使命的，我们正在觉醒的过程中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1-8.png)
+七哥就是我们的导师，每期的大直播都是在言传身教。他把宝贵的人生经验以及他的看法跟我们每个人分享，帮我们开智，让我们能够对这个世界更深入的了解认识，使我们每一个人得到提升。
 
-编辑整理：Jacques；
+我们做《蓝枫法律》节目，也是希望通过这个平台跟战友们分享一些我们认为有益的，能够更好地把战友们凝聚在一起，为了共同的目标去战胜邪恶的黑暗势力。
 
-字幕文件制作：小满；
+其实七哥每次大直播都是在为我们不同程度的开智。因为我们每个人的经历、见识以及我们走过多少地方都不一样，所以我们每个人开智的程度也不一样。但是我们每个人每次都会一点点儿明白了更多的事实真相。
 
-视频制作及上传：Cindy；
+其实我们也在用我们自己的小宇宙，以同样的方法去讲给我们周边的人。让更多的人明白并唤醒他们，让他们知道这个现实社会不像他们想象的一切岁月静好，不是媒体告他们的那个样子，生活是非常残酷的。我们要学习七哥，用智慧慢慢去唤醒更多的人，让更多的人从矩阵里慢慢地逃出来。
 
-G-News发布：小满；
+直播视频：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+[蓝枫法律第三十九期—-漫谈《黑客帝国》中的矩阵](https://gtv.org/video/id=61e36432a6dfdd603154e027)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑/发文：蓝枫法律栏目
 
  
 

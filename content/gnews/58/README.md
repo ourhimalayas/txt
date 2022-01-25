@@ -2,29 +2,22 @@
 ---
 
 
-## 郭文贵先生解析数字货币钱包的含义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1901436/)
+## 新中国联邦要与世界签署千年和平协议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1900640/)
 
-作者：纽约香草山 信息部 – 6zero4
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月21日的大直播中，郭文贵先生分别解释了数字货币的热钱包和冷钱包含义。
+撰稿：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在1月21日的大直播中，郭文贵先生透露了新中国联邦，要与世界签署和平协议的重要原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-59.jpg)
+郭先生手持新中国联邦宣言表示，在中共的领导下，中共国腐败、侵蚀别国的政治和领导人，不但给他国带来灾难，也给自己带来了无穷无尽的麻烦。只有和世界和平相处，只有给别人带来和平，中国人才能得到真正和平发展的环境。新中国联邦，一定要与世界签署一个千年和平协议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/数字货币-.png)
+参考链接：[新中国联邦要与世界签署千年和平协议](https://www.gettr.com/post/ppw49ecb64)
 
-“热钱包”可以理解为在线的钱包，也叫“中心化钱包”，用于在线存取和交易。存在银行的法币，和当前市场上流通的数字货币，99%都使用在一定范围内流通的热钱包。其缺点是，里面的资金易被黑客盗走；宕机则无法使用；银行或数字货币发行商一旦发生倒闭，客户将损失惨重，乃至清零。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-相对于热钱包，离线的钱包就是“冷钱包”，也叫“去中心化钱包”，或“硬钱包”，即将数字货币存放在物理硬盘里，类似于存放现金的保险箱，这是最安全的存钱方式。当热钱包的钱币数量降到设定值时，触发充钱机制，从冷钱包取币。天空互联网开通时，可避开中共网络封锁进行交易。
-
-“冷钱包”属于郭先生的首创，将整合量子电脑加密技术和生物特征识别科技，甚至可将硬钱包核心数据，放到月球或卫星上，让冷钱包里的钱不可找、不可抢、不可骗，万一丢失也可通过寻回机制找回，或得到G保险全额赔付，达到永不丢失。即使在被中共完全断网的情况下，亦可在冷钱包之间进行交易，打破受人监管的法币国家垄断，让中共找不着北，成为中共灭亡前后存钱最安全的地方。
-
-参考链接：
-[2022年1月21日 文贵大直播：全球疫苗政策与政治；冬奥会政治国际影响；邓小平南巡 江 曾 王 孟 ；喜币投资与喜币未来；中共大撒币与蓝金黄；盗国贼盗取人民财富](https://gtv.org/video/id=61eaab2f533c672fca804729)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：谐趣园
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,8 +25,8 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
