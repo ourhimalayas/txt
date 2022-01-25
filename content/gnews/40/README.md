@@ -2,38 +2,77 @@
 ---
 
 
-## 韩国的中共病毒感染、疫苗接种与人口变动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1908545/)
+## 郭先生对“甜蜜蜜行动”的重大公告
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1908613/)
 
-作者：香草山教育部-Corn
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年，韩国中共病毒的感染人数达到了六十三万五千两百五十三人人，染疫死亡者也有5,625人。2020年，这两个数据分别是感染6万零7百4十人和染疫死亡900人。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-34.jpg)
-另外，根据韩国疾病管理厅给出的数据，截至2021年，因疫苗接种死亡的案例是1,340例，在2022年这一数据将不再更新，因此没有最新的数据。
+撰稿：澳喜要闻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/41-1.jpg)
+**中共非法获得冬奥举办权**，
 
-与此同时，疫苗二次接种率已超过83%的韩国，2021年总人口数较2020年减少了19万零2百一十4人，这无疑是死亡人口的激增和出生人口大量减少造成的。
+**现在用疫情名义以及非法手段“囚禁”百姓**，
 
-而最新的3针疫苗接种情况显示，绝大多数民众还处在被蒙蔽中，推动疫苗政策的执政党很有可能大概率维持现有政策。即将到来的2022年3月新一届总统选举，给原本复杂的形势增添了更大的不确定性，整体局势不容乐观。
+**不公布病毒来源，不配合各国溯源**，
 
-参考链接：
-1) . [주민등록 인구 기타현황](https://jumin.mois.go.kr/etcStatDeath.do)
-2) .[**코로나19 예방접종 및 국내 발생 현황(1.5.)**](https://www.kdca.go.kr/board/board.es?mid=a20501010000&amp;bid=0015&amp;list_no=718196&amp;cg_code=&amp;act=view&amp;nPage=3%E9%9F%A9%E5%9B%BD%E7%96%BE%E7%97%85%E7%AE%A1%E7%90%86%E5%8E%85%E5%AE%98%E7%BD%91)
-3) . [新型冠状病毒肺炎（COVID-19）韩国疫情动态图](http://www.ckjorc.org/cn/charts/krcovid19.html)
-4) . [**코로나19 예방접종 및 국내 발생 현황(12.12.)**](https://www.kdca.go.kr/board/board.es?mid=a20501010000&amp;bid=0015&amp;list_no=717922&amp;cg_code=&amp;act=view&amp;nPage=10)
+**威胁全世界，制造万国来朝的假象**，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+**牺牲环境，没有人权自由，言论自由**，
 
-总编: 飞虹
-编辑： Ivy001
-校正/发稿：Fei797
+**这与1935年希特勒以及1980苏联举办奥运会如出一辙**，
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**必将成为对人类的侮辱和历史丑陋事件**。
+
+**这对人权的侵犯无法估量**，
+
+**国际奥委会背弃奥林匹克精神，出卖灵魂**，
+
+**为了停止这一切，**
+
+**新中国联邦一直为此奋斗，**
+
+**阻止中共让灾难重演，重蹈覆辙**。
+
+
+
+**我们非常荣幸，今天看到了收获**。
+
+**在美国以及其他多国对冬奥会的官方抵制后**，
+
+**深深地影响世界上正义、民主、法治以及对中国人真心友好的国家政府**。
+
+
+
+**刚刚，我们得知美国拜登总统和布林肯国务卿做出重大决定**：
+
+**美国政府已正式通知北京**，
+
+**授权撤离美利坚驻北京大使馆**。
+
+**这对抵制冬奥会，病毒溯源，停止疫苗灾难，停止对种族屠杀有巨大帮助**。
+
+**这是新中国联邦维护法治和人权的巨大胜利**，
+
+**我们感谢美国政府的伟大决定**，
+
+**历史会证明其意义**。
+
+
+
+**新中国联邦对拜登政府致以衷心感谢**，
+
+**我们将与美国人民站在一起**，
+
+**直到消灭中共**，
+
+**我们一定会与世界建立千年和平关系**。
+
+
+
+**一切都是刚刚开始**！
+
+（以郭先生视频为准）
+
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
