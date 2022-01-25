@@ -2,22 +2,25 @@
 ---
 
 
-## 为法治做斗争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1907866/)
+## 朝鲜正在测试巡航导弹
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1907881/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/为法治做斗争-scaled.jpg)
-美国是最先进的民主，民主其实来自于英国、欧洲几千年了，内战经历太多了，你看到我们不是完美的，我们现在有选举的问题，机器的问题，人工智能的问题，我们每天也在斗争，所以民主是每天斗争的意思，我们每天也在与法治作斗争，这种斗争全都在你面前， 所以，文贵给你展示的所有这些，会让你变得更加自信和有能力。
+信息来源： 德国法兰克福报网页版
 
-*发布：开智则立*
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/buerger-mit-mund-nasen-schutz.jpg)
+
+
+图片来源： FAZ
+
+据韩国军方称，自称拥有核力量的朝鲜可能至少发射了两枚巡航导弹。总参谋部说，导弹是在周二早上（当地时间）被击落的。武器试验将与美国一起进行更详细的评估。这些导弹飞了多远，降落在哪里，最初是未知的。
+
+与弹道导弹不同，巡航导弹不受朝鲜制裁。联合国决议禁止该国测试弹道导弹。通常，这些是地对地导弹，根据它们的设计，它们也可以携带核弹头。与弹道导弹不同，巡航导弹有自己的永久推进系统。
+
+自今年年初以来，朝鲜已多次试射导弹，因此受到美国及其盟国韩国和日本的新批评。据该公司称，测试中还使用了高超音速导弹。使用这种武器，可以从弹道导弹发射所谓的高超音速滑翔导弹。高超音速武器因其高速而难以拦截。
+
+🔗[朝鲜正在测试巡航导弹](https://www.faz.net/aktuell/politik/ausland/nordkorea-testet-marschflugkoerper-17749744.html)
 
  
 

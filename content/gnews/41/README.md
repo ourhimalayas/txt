@@ -2,22 +2,20 @@
 ---
 
 
-## 美共和党议员抨击奥委会允许侵犯人权的公司参与冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907281/)
+## 尽管完全接种率高达85%，但马耳他的新冠死亡率创下新高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907333/)
 
 #### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-41.jpg)图片来源：网易
-据《华盛顿自由灯塔》（Washington Free Beacon）1月24日报道，提供技术协助中共政府监视和迫害维吾尔人和其他群体的科大讯飞（iFlytek）是北京2022冬奥会自动翻译软件的独家供应商。为此，参议院外交关系委员会（Foreign Relations Committee）主席、共和党员议员吉姆·里施 (James Risch)抨击国际奥委会说，尽管后者“声称致力于承认和维护人权”，但却允许一家协助中共侵犯人权的公司参与奥运会，这种行为“十分可耻”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-22.jpg)图片来源：路透社
+据《门户专家》（Gateway Pundit）1月24日报道，作为全球新冠疫苗接种率最高的国家之一，马耳他（Malta）超过85%的人口已完全接种了疫苗，94%的人至少接种了一剂疫苗。但马耳他的新冠疫情不仅没有改善，还愈发恶化，该国的新冠死亡率刚刚达到历史最高值。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-4.jpg)
+马耳他人的生活也并没有因为遵从疫苗接种而恢复正常。1月13日，马耳他实施了新的防疫规定。据《马耳他时报》(Times of Malta) 报道，马耳他人将不得不在餐馆、酒吧、电影院等各种场所出示疫苗护照，以证明接种了最新的加强针疫苗。另外有报道说，在防疫新规实施期间，许多餐馆决定关闭，其中约14%的餐馆预计将永久关闭。
 
-里施说：“这恰恰表明，国际奥委会把利润和与北京的关系看得比什么都重要。”另一位众议员麦克·麦克考 (Michael McCaul)说：“科大讯飞参与奥运会这个例子完美地说明了中共的影响力是如何威胁到美国的价值观。”
+马耳他这个典型例子足以说明新冠疫苗不仅无法遏制疫情，还会加剧危机。不夸张地说，马耳他这个小国正面临着亡国的风险。
 
-科大讯飞是芯片制造商英特尔公司的合作伙伴，后者是北京冬奥会的赞助商。英特尔是科大讯飞的早期投资者，并为该公司的语音识别技术提供芯片。美国众议员道格·兰博恩 (Doug Lamborn)说：“美国必须继续制裁那些协助中共对维吾尔人进行种族灭绝的公司。”
-
-人权观察 (Human Rights Watch)组织长期以来一直在抨击科大讯飞与中共的合作。“在一个监视和报复批评人士长期存在并且不受控的国家，当局可以轻易地滥用这些数据。”网络安全组织说，中共可能利用技术来监视那些参加北京奥运会的人。1月19日，北京奥组委对外联络部副部长杨舒甚至在一场视频会议上威胁说，如果运动员在冬奥会期间的任何行为或言论违反了“奥林匹克精神”，将受到“一定的惩处”。
-
-新闻来源：[Chinese Company That Surveils Uyghurs Has Major Role in Beijing Olympics](https://freebeacon.com/national-security/chinese-company-that-surveils-uyghurs-has-major-role-in-beijing-olympics/)
+新闻来源：[Fully Vaccinated Malta Reaches Record COVID-19 Death Rate](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-malta-reaches-record-covid-19-death-rate/)
 
  
 
