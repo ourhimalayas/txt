@@ -2,31 +2,65 @@
 ---
 
 
-## “我强奸了全世界”（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1909958/)
+## 新中国联邦重大公告及美国务院最新表态
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1909962/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/B-6.jpg)cnn.com
+文贵先生一行在大直播中宣布了重大公告，随后新中国联邦各媒体刊登出文贵先生致拜登总统、布林肯国务卿的信函，信函全文如下：【1】
 
-来源：郭先生2022-01-17直播11：05：30摘录
+致：乔·拜登
 
-就像当时的Elliot Broidy、尼古拉姆 戴维斯、斯蒂芬温，找到川普总统，川普总统拿着纸说：“这个这个家伙啊把他遣返啊，强奸everybody，This guy rape everybody.。” 这是Bannon说的，就是强奸所有的人，这全人类只要是人都让我强奸了啊，“Everybody，everybody，bad guy，bad guy，send it back ，send it back。” 这时候人家那个说，人家那个人说：“停停停停停，这个人Miles Guo你绝对不能动啊，这是这是错的，这不对啊。” “不，rape everybody，everybody，everybody。” Bannon说：“哎，等等…” 打电话拍那人说哎呀给我跑过来，“这是我们最重要资产绝对不能扔，这是什么什么，塞森斯不同意，是吧，班农同志不同意，然后呢，这个检察官也不同意，他的律师说你要动你要把他给遣返了，美国几百年的利国的国籍，法律被你破坏，你是犯罪，就差这一秒钟，是吧。我强奸所有人，川普总统太搞笑了，就说：”这是谁啊？“ 就是说：”这就是你的会员叫 Miles Guo啊。” “是吗？” 他才弄明白，知道我强奸了全世界，不知道我叫Miles Guo，你觉得这个决定是有多可怕，我们热爱的川普总统。
+美国总统
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+安东尼·布林肯
 
-**关注我们**
+国务卿
 
-Discord 账号
+主题：美国驻北京大使馆
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+新中国联邦注意到，您已授权开始关闭美国驻北京大使馆。自2020年6月4日成立以来，我们一直在倡导这一行动，我们对此表示赞赏。
 
-Gettr 账号
+如您所知，我们是中国人民的替代管理机构，反对跨国犯罪组织中国共产党。这些犯罪分子最近从武汉的武器实验室向全世界传播致命的COVID 19的活动在我们看来是对无辜的中国人民和全人类的种族灭绝行为。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+最近北京关于奥运会前Omicron传播的谎言和不实陈述使北京对所有人来说都是危险的，尤其是您在北京大使馆的工作人员。
+
+我们赞赏并支持您通过关闭大使馆的行动来强调这种政权的危险。我们支持进一步否认中共是中国和中国人民的合法政府。
+
+敬上
+
+郭文贵先生
+
+新中国联邦创始人
+
+（文贵先生的信函完）
+
+笔者一直关注着美国国务院的反应，暂未看到国务院的有关信息发布，但是一则布林肯与英国外交大臣通话的消息中，有一句提及了中共国的话。
+
+国务院新闻稿全文如下：【2】
+
+布林肯国务卿与英国外交大臣特拉斯（Truss）的通话
+
+发言人办公室
+
+2022年1月25日
+
+美国国务卿安东尼·J·布林肯今天与英国外交大臣伊丽莎白·特拉斯（Elizabeth Truss）进行了会谈，以评估最近为阻止俄罗斯在乌克兰境内及附近进行令人不安的军事集结而采取的行动。美国和英国正在相互协调，以及与北约和欧洲盟友和伙伴协调，以鼓励俄罗斯缓和紧张局势，并致力于坚持外交途径。国务卿和外交部长特拉斯还讨论了如何协调一致，坚决反对中共国的经济胁迫，以及如何成功结束与伊朗就共同恢复执行《联合全面行动计划》的谈判。
+
+（新闻稿完）
+
+无需开脑洞，布林肯国务卿肯定告诉了特拉斯外交大臣有关针对中共国的举动，并要“协调一致，坚决反对中共国的经济胁迫。”估计他们还讨论了如何加强与新中国联邦的关系，对这个能够充分代表中国人民的组织在拯救人类方面所作的贡献给予了满腔热忱的肯定。
+
+邪共，你死期已定！
+
+有关链接：
+
+【1】[https://gettr.com/post/pqhssxe37c](https://gettr.com/post/pqhssxe37c)
+
+【2】[https://www.state.gov/secretary-blinkens-call-with-uk-foreign-secretary-truss-3/](https://www.state.gov/secretary-blinkens-call-with-uk-foreign-secretary-truss-3/)
+
+**华盛顿DC 望七星**
+
+**编辑发布  水星**
 
  
 

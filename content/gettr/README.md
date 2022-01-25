@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 10:23 PM (UTC)`
+
+1/25/2022 Miles Guo’s Big Announcement: The CCP, which has created one humanitarian disaster after another in China and around the world, is hosting the Winter Olympics without environmental protection, human rights, freedom of expression, and personal freedom. The Winter Olympics is a huge insult to the Olympic spirit and will result in immeasurable harm and human rights violations against the Chinese people. The International Olympic Committee has betrayed the Olympic spirit and sold its soul and principles!<br/><br/>1/25/2022 文贵重大公告：在中国和全世界制造了一场又一场人道灾难的中共竟要在没有环境保护、没有人权、没有言论自由和人身自由的情况下举办冬奥会，这是对奥林匹克精神莫大的侮辱，对中国人民带来的伤害和人权的侵犯将无法估量；国际奥委会背叛了奥林匹克精神、出卖自己的灵魂和原则！<br/>
+![img](https://media.gettr.com/group19/getter/2022/01/25/22/b260509b-23c8-239e-1ec9-323169eb74c1/out.jpg)
+
+---
+
+`@miles 1/25/2022 10:14 PM (UTC)`
+
+1/25/2022 Miles Guo’s big announcement: Despite facing the infiltration of the world by the evil forces of the CCP, the New Federal State of China (NFSC), after its establishment on June 4, 2020, has established close ties with various governments, human rights organizations, and non-profit organizations. The NFSC has been spreading the truths about the human rights violations committed by the CCP, the CCP virus, and the COVID vaccines. The NFSC has gained international recognition and support, and many governments are discussing the recognition of the NFSC.<br/><br/>1/25/2022 文贵重大公告：尽管面临着中共邪恶势力对世界的渗透，新中国联邦在2020年6月4日成立后，与各国政府、人权机构和非营利性组织建立了密切的联系，传播了有关中共所犯下的人权罪行和病毒、疫苗的真相，获得了国际社会广泛的认可与支持，很多国家政府正讨论承认新中国联邦！<br/>
+![img](https://media.gettr.com/group21/getter/2022/01/25/22/bbef35c3-2f56-de9a-2e3d-0056b22c4cff/out.jpg)
+
+---
+
 `@miles 1/25/2022 10:09 PM (UTC)`
 
 1/25/2022 Miles Guo’s big announcement: We announced to the world in February 2020 that the coronavirus is the CCP’s biochemical weapon to push the vaccination against COVID, which is the real disaster. The CCP’s hoarding PPE before the pandemic was a planned genocide targeting the COVID patients! The West has collected the evidence that the CCP does not abide by the international order and engages in infiltration and sabotage, and we revealed that the real owner of HNA is Wang Qishan<br/><br/>1/25/2022 文贵重大公告：我们早在2020年2月就向世界宣布，冠状病毒是中共的生化武器，病毒是为了推动疫苗，疫苗才是灾难！中共在疫情前囤积PPE是有计划地针对冠状病毒患者的大屠杀！西方掌握了中共不守国际秩序、搞渗透与破坏的证据，我们公布了海航的真正老板是王岐山<br/>
@@ -140,22 +154,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1/24/2022 Miles Guo: Xi Jinping has no confidence in what the Winter Olympics will turn out to be. At the opening ceremony of the Winter Olympics, it is forbidden to mention that Deng Xiaoping “drew a circle” in southern China, and it is required that Xi should be called “the core leader of the Party and the State”, granting him dictatorship. It is also ordered to describe the Winter Olympics as “reform and opening up leading to a new era”.<br/><br/>1/24/2022 文贵直播：习神对冬奥会能办成啥样很不自信；冬奥会开幕式不允许提邓小平在南方画了个圈，要称习为党和国家核心领导人以定一尊，还要把冬奥会说成是改革开放走向新纪元<br/>
 ![img](https://media.gettr.com/group32/getter/2022/01/24/22/bdff3a88-7538-10da-dafa-93256e787e68/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 1/24/2022 6:07 PM (UTC)`
-
-New Release                                              Shop Now at www.gfashion.com
-![img](https://media.gettr.com/group9/getter/2022/01/24/18/b57304f8-6933-2483-e003-9d24a9eaba05/2489cbb273ed7cd22ce4b14ccbc159c1.jpg)
-
----
-
-`@miles 1/24/2022 1:04 PM (UTC)`
-
-2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化
-![img](https://media.gettr.com/group15/origin/2022/01/24/12/7c0bde1a-da0d-390a-1f0c-6c00f675c134/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
