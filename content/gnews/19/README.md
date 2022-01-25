@@ -2,38 +2,39 @@
 ---
 
 
-## 魁北克法院判决：母亲单方面没有权利阻止未成年子女接种疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1906462/)
+## 孟晚舟难逃被中共安排癌症噩运
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906540/)
 
-2022-01-24
+**【国内新闻短评】**
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C0@AFOB7Y@JSPPD.png)图片来源：蒙特利尔日报（2022 年 1 月 24 日）
-## 母亲单方面没有权利阻止她的未成年子女接种疫苗
+据网易2022年01月18日报道，孟晚舟与甲状腺癌症抗争十年，其父任正非也身患癌症，他们是名副其实的“抗癌家族”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2043.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2045.png)图片来源： 网易
+**短评：**
 
-LA PRESSE和蒙特利尔日报（2022 年 1 月 24 日）报道，魁北克省德拉蒙德维尔市（Drummondville），法院就父母对接种 COVID-1 疫苗的分歧作出了新的的裁决，母亲单方面没有权利阻止她的未成年子女接种疫苗。
+郭先生四年前爆料指出，无论谁跟着共产党，都要走进火葬场。看看国内外和中共密切来往的各国政要和民营企业家，无不验证这一信息的精准预见性。前有巴铁总理谢里夫被判十年监禁，马拉西亚前首相纳吉布入狱12年，泰国总理他信和英拉兄妹流亡国外，后有哈萨克斯坦纳扎尔巴耶夫被迫辞职，委内瑞拉总统马杜罗被起诉并悬赏抓捕。更不要提诺贝尔和平奖得主缅甸最高领导人昂山素季入狱，昂山素季一生为民主被软禁入狱数年，最后的刑期就因和中共合作成为永久的个人污点。
 
-这位母亲，相信针对 COVID-19 的疫苗可能包含一个电子“芯片”，并且是由“流产胎儿的细胞”制成的，这位阴谋论的母亲，还认为接种疫苗是“反人类罪”。
+华为长公主孟晚舟，曾是引发爱国爱党风潮的偶像人物，回国后机场致辞多次感谢党和习主席，却还是难逃被安排的噩运。强国作为癌症大国，人人都有患癌症可能，共党更是以此为名，对那些将被消失的人物按需安排各种癌症，并且提供各种证明文件。前国务院副总理黄菊因内斗肠癌过世，孟晚舟甲状腺癌一点也不意外。
 
-法院就父母对接种 COVID-1 疫苗的分歧作出了这样的裁决，这位母亲部分地失去了她对孩子的做为母亲的权力，这位母亲不能阻止她的未成年（14 岁和 9 岁）女儿接种疫苗，孩子的父亲可以单独做主让孩子接种疫苗，这让父亲感到很欣慰。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C5NHKR3K1X1XPRB90.png)图片来源：蒙特利尔日报，图片显示法官判决书的部分内容。图片中部分文字显示，法官指出：“她（这位母亲）声称（注射）疫苗是一种‘实验性注射’，（注射疫苗）可以使她的女儿（成年后）不能生育” 。
-魁北克省，德拉蒙德维尔市（Drummondville），法官，史蒂夫·J·莱姆尼茨（Steve J. Reimnitz）裁定并驳回这位母亲的要求。“夫人（这位母亲）可以坚持她想要的，但是法院更愿意遵循（魁北克省）公共卫生当局的建议”，法官说。
+郭先生一年前就爆料，孟晚舟回国生不如死。中共的反应能不能不这么紧跟预见，让老百姓也意外一回？答案是绝对不能。流氓独裁政权的本质注定他们就用这种阴损毒招对付曾经为党国效力的人。不论位高权重，还是偷盗高科技间谍，一旦失去利用价值，等待这些人的只有死路，只是死法不同。
 
-法官最后说：“尽快遵守（魁北克省）公共卫生部提议的疫苗（接种措施）来保护孩子，这符合孩子的最大利益”。
+华为创始人任正非，公认间谍国企带头人，盗窃各国通讯技术和信息，曾经风光无限，也被安排皮肤癌。任正非现在才明白为党国不仅搭进自己，还要祭出女儿。中共除了几大家族，人人都只是韭菜，只是收割时间早晚而已。
 
-本月中旬，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章还报道了魁北克省第一例剥夺未接种疫苗父母探访子女的权力的判决。报道称，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。详细内容刊载于题为《[魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](https://gnews.org/zh-hans/1864608/)》的文章中。 文章编译及评论人提醒读者注意并仔细品味一下法官的这句话，“…法院更愿意遵循（魁北克省）公共卫生当局的建议”
+* * *
 
-**参考资料**：
+文章观点仅代表作者个人，与gnews平台无关
 
-1. LA PRESSE（2022 年 1 月 24 日），Une mère complotiste ne peut empêcher ses filles d’être vaccinées，[https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php](https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php)
-2. 蒙特利尔日报，Le Journal De Montreal，（2022 年 1 月 24 日），Contre la vaccination de ses enfants: une mère déboutée par le tribunal，[https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal](https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal%20)
+链接：[https://www.163.com/dy/article/GU0RT1320528ICQ3.html](https://www.163.com/dy/article/GU0RT1320528ICQ3.html)
+
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-编辑：LILY
-
-发布：肥鯮
-
-校对：
 
  
 

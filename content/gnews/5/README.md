@@ -2,41 +2,44 @@
 ---
 
 
-## 澳州网球协会禁止支持彭帅的标语在澳网公开赛期间出现
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906573/)
+## 不要溢出效应就是让西方别把中共的钱戳成纸以奴役人民
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906644/)
 
-![China's Peng Shuai](https://i.guim.co.uk/img/media/fd0142968cfcdb4f98c7c9497250af3b5a394fa1/0_49_6000_3601/master/6000.jpg?width=465&amp;quality=45&amp;auto=format&amp;fit=max&amp;dpr=2&amp;s=675f48e1ce5443fcf7e6175b39ae2871)彭帅（资料图）
-来自《卫报》网站2022年01月23日的报道，尽管要求在墨尔本公园的球迷脱下T恤和一条印有“彭帅在哪里”的横幅，澳大利亚网球协会依然坚称彭帅的安全是其“首要关注的问题”。
-澳网选手继续对这位中共国网球运动员的健康表示关注，彭帅在11月初曾指控一名中共高级官员对其实施性侵。但赛事官员没收了他们认为含有政治言论的材料。
-本周末，布里斯班活动家德鲁·帕夫洛(Drew Pavlou)在Twitter上发布了一段视频，视频显示保安人员和维多利亚州警察正在接触球场观众。
-这段视频的主角是莫炽韬(Max Mok)，一位来自香港的泛民主派活动人士，他最近宣布，打算在今年的联邦选举中竞选墨尔本奇泽姆选区的边缘席位，他和一名观众与澳网的一名保安人员交谈，后者没收了一条横幅。
-这名保安人员还要求这两人脱下他们的T恤，在T恤的正面“通缉”一词下面是彭帅的照片。T恤背面印有“彭帅在哪里？”的字样。莫炽韬询问没收的原因，一名警察被叫来解释说，这些材料违反了澳网禁止政治言论的政策。该警官说：“我不是说你不能有这些观点，但澳大利亚网球协会制定了这里的规则。”澳大利亚网球协会在周日证实了这一情况。
-“根据我们的入场券条款，我们不允许有商业或政治性的服装、横幅或标志。”澳大利亚网球协会的一位发言人告诉澳大利亚卫报，“彭帅的安全是我们最关心的问题。我们继续与女子网球协会(WTA)和全球网球界合作，寻求更多关于她的情况，并将尽我们所能确保她的健康。”
-鉴于澳网的主要商业伙伴之一是中共国高端白酒品牌国窖1573，澳大利亚管理机构发现自己处于一种两边不讨好的状态。相比之下，WTA一直坚持其立场，即2022年不会在中共国举办任何赛事。其主席兼首席执行官史蒂夫·西蒙(Steve Simon)表示，WTA将“原则置于利润之上”，这意味着WTA准备放弃其年度收入的很大一部分，这些收入来自与这个全球超级大国的交易。
-帕夫洛在推特上说，他“试图通过电话与警察理论”，在视频中，可以看到警察用免提与某人交谈。此后，帕夫洛建立了一个筹款页面来筹集资金，以印制更多的T恤衫，在女子决赛期间免费发放。该页面在24小时内筹集了6800美元，并承诺“尽可能搞个大动作”。网页中说：“可悲的是，对支持人权和基本的正义，澳大利亚网球协会没有采取坚定的立场。”
-“事实上，澳大利亚网球协会在2022年澳大利亚网球公开赛上报警人权活动人士，只是因为他们穿着衬衫问了大坂直美(Naomi Osaka)、塞雷娜·威廉姆斯(Serena Williams)和全世界球迷都问过的问题：‘彭帅在哪里？’。”
-大坂直美上周在退出公开赛前重申了这一立场，称她对WTA处理这一问题的方式感到“自豪”。大坂直美说：“如果我处于她的位置，我也会希望人们关心我。我想象自己站在她的立场上，那样，这就有点可怕了。但你想发出自己的声音，你希望人们能提出疑问。”
-WTA球员委员会的成员维多利亚·阿扎伦卡(Victoria Azarenka)说，没有直接听到彭帅的消息。阿扎伦卡说:“在与彭帅的接触方面并没有取得太大的进展，尽管从我们这边来说，我们将继续尽一切努力以确保她是安全的，以确保她感到自在。”“希望我们能在某个时候听到她本人的消息。我想这就是目标，现在的主要目标。”
-阿什莉·巴蒂(Ash Barty)也被问及有关情况，她说“我们都在关注她的人身安全”。 “我们都希望她平安。”这位澳大利亚世界第一的球员说，“我们希望她没事。希望没多久，我们就能看到她回到球场。”
-**简评：**
-“宇宙无限大，地球是一粒沙”，听起来多么有哲理的一句话。却被中共前副总理张高丽用来把自己伪装成哲学家，用来欺骗比小他40岁的网球运动员彭帅与他谈恋爱。中共的官员到底能有多变态，我们普通人就是想破头也想不到的。澳网因与中共国高端白酒品牌国窖1573有合作关系，因此在彭帅性侵这件事情上进退维谷。这就是中共蓝金黄的效果，用钱封住你的嘴。然而，网球界的其他运动员能在这个时候公开表态，支持彭帅并担忧她的人身安全，这种行为难能可贵，人性的光辉也因此得到绽放，澳网公开赛的事件说明这个世界仍然有正义存在，不是所有人都能被共产党用金钱收买。
+G-TV视频链接：[https://gtv.org/video/id=61ecf1b087664c47acd8ad8f](https://gtv.org/video/id=61ecf1b087664c47acd8ad8f)
 
-新闻链接: [https://www.theguardian.com/sport/2022/jan/23/tennis-australia-says-peng-shuais-safety-its-primary-concern-despite-banning-t-shirtssupporting-chinese-player](https://www.theguardian.com/sport/2022/jan/23/tennis-australia-says-peng-shuais-safety-its-primary-concern-despite-banning-t-shirtssupporting-chinese-player)
+**郭文贵先生**：今天我再告诉大家，所谓的“溢出效应”是啥意思？就是村长家里边，把这一村人给绑架了，或者村长在茅屎坑里边在拉屎，你把一个石头扔到茅屎坑里边溅他一身，现在村长就干啥事？你只要敢不听我的，我就把这屎糊到你们全世界去。
 
-翻译/简评: kkoto(芬兰大灰狼)
+共产党达沃斯论坛印的钞票太多了，美国要加息，因为美国的美元人家是全世界通行，到现在中国人不知道美元是全世界通行、中国人民币全世界不通行。我告诉你们，你们想想，Rosemary你不知道，你去问中国人，97%的人不知道中国的人民币不是全世界通用的原因，就是人民币你只能在中国花，到外国叫外币，是限制你（使用），全人类只有北朝鲜，连非洲都不这样，就你的钱就是纸。
 
-PR:Harvey（叶知秋）
+那现在什么叫溢出效应呢？就是我印的钞票太多了，你现在一加息，人家美元是全球流通，它自己的泡沫就挤出来了，一挤出来，它的钱变纸了。你要叫我继续奴隶我的中国14亿人民，所谓的比爹娘还亲的共产党，就是你不能把我的钱变成纸，我要继续奴隶他们。
 
-* * *
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编辑整理：Jacques；
 
+字幕文件制作：小满；
 
-编辑：【英国伦敦喜庄园编辑部】
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

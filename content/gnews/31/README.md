@@ -2,24 +2,44 @@
 ---
 
 
-## 电阻为零的绝缘体 未知原理“铜氧化物超导体”诞生了！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906368/)
+## 慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906413/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-47.png)[图片来源](https://news.yahoo.co.jp/articles/37180524f2ae899a232dd1cf0a4951cbf0d80cad/images/000)
-新泻大学教授佐佐木进准等人开发了具有未知原理的铜氧化物超导体。物质是电阻为零的超导，而铜氧化物是绝缘体。一直以来，铜氧化物的平面结构被认为是超导的源泉。成为不符合定论的超导物质。制备了2种铂-钡铜氧化物的层叠结构。该物质由平面状氧化铜以钡、铜氧化物、安慰剂、铜氧化物、钡、铜氧化物的顺序堆积而成。在负255摄氏度成为超导。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2041.png)图片来源：Red Voice Media Scott Quiner和妻子，Stew Peters
+斯科特原是明尼苏达州Coon Rapids市慈悲（Mercy）医院的一名新冠患者，慈悲医院根据医院指定的治疗方法将斯科特置于呼吸机上，并给予他镇静药物。家属恳求医院尝试其它方法，例如伊维菌素，羟氯喹，以及增加维生素和营养，试图挽救他的生命，而医院拒绝，也不允许病人出院，并要拔掉呼吸机。
 
-为了调查各层的铜原子状态，开发了超高感度核磁共振（NMR）装置。在室温和超导条件下测量，夹在钡和安慰剂之间的铜原子的响应频率升高。从这个应答中可以判断铜原子是绝缘体。其他高温超导物质的响应频率几乎不变。
+经过明州媒体名人Stew Peters （盖特账号@RealStew Peters）在社交媒体上的呼吁和很多人的关注，经过律师介入诉讼和法庭判决后，病人最终得以从慈悲医院转到德克萨斯州一家愿意提供治疗的医院。到了德州医院，医生们说斯科特是他们见过的最营养不良的病人。 这与家属所说的慈悲医生拒绝给他适当的维生素来帮助对抗病毒的说法是一致的。 他的其他器官工作正常，但他的肺有重大问题。
 
-此前，铜氧化物的平面结构被认为是超导的源泉，但即使平面结构本身不通电，也能发现超导。高温超导原理有很多不明之处。用新物质和高灵敏度的测量技术来阐明原理。
+Stew说，“斯科特遭遇了慈悲医院的撒旦杀手所造成的可怕伤害，他们虐待、毒害和折磨斯科特，因为他们惩罚他没有接种疫苗。 得克萨斯州的医生确信，慈悲医院对斯科特造成的致命伤害是他死亡的全部原因，如果他几周前到达德克萨斯州，斯科特就会完全康复。”
 
-信息来源：
+这完全是一场可避免的悲剧，如果斯科特在慈悲医院能得到有效的治疗，而非因未打疫苗遭受虐待，如果斯科特能早点离开慈悲医院转到德州医院，他不会这样悲惨离世。
 
-[電気抵抗ゼロで絶縁体、未知の原理の「銅酸化物超電導体」が生まれた！](https://news.yahoo.co.jp/articles/37180524f2ae899a232dd1cf0a4951cbf0d80cad)
+* * *
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考资料：
+
+- Avoidable Tragedy: Scott Quiner Dies Due To Maltreatment At Mercy Hospital
+JANUARY 22, 2022
+[https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/](https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/)
+
+
+- Stew Peters’ Viewers Create Temporary Victory In Scott Quiner Case- Mercy Hospital Ordered To Not Kill Him
+JANUARY 13, 2022
+[https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/](https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/)
+
+
+文章观点仅代表作者个人，与gnews平台无关
+
+作者：洛杉矶盘古农场 — 郭友（文苏）
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

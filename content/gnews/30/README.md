@@ -2,48 +2,38 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2022.01.24
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1906369/)
+## 魁北克法院判决：母亲单方面没有权利阻止未成年子女接种疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1906462/)
 
-摘要撰稿人：文俊
+2022-01-24
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/01/f0b7fd46f79a8cfbc4347420bf557a43.jpg)
-### 视频链接：
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C0@AFOB7Y@JSPPD.png)图片来源：蒙特利尔日报（2022 年 1 月 24 日）
+## 母亲单方面没有权利阻止她的未成年子女接种疫苗
 
-[https://gtv.org/video/id=61eea3ca28a108147c61a4dc](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
+LA PRESSE和蒙特利尔日报（2022 年 1 月 24 日）报道，魁北克省德拉蒙德维尔市（Drummondville），法院就父母对接种 COVID-1 疫苗的分歧作出了新的的裁决，母亲单方面没有权利阻止她的未成年子女接种疫苗。
 
-### 音频链接：
+这位母亲，相信针对 COVID-19 的疫苗可能包含一个电子“芯片”，并且是由“流产胎儿的细胞”制成的，这位阴谋论的母亲，还认为接种疫苗是“反人类罪”。
 
-### 摘要：
+法院就父母对接种 COVID-1 疫苗的分歧作出了这样的裁决，这位母亲部分地失去了她对孩子的做为母亲的权力，这位母亲不能阻止她的未成年（14 岁和 9 岁）女儿接种疫苗，孩子的父亲可以单独做主让孩子接种疫苗，这让父亲感到很欣慰。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C5NHKR3K1X1XPRB90.png)图片来源：蒙特利尔日报，图片显示法官判决书的部分内容。图片中部分文字显示，法官指出：“她（这位母亲）声称（注射）疫苗是一种‘实验性注射’，（注射疫苗）可以使她的女儿（成年后）不能生育” 。
+魁北克省，德拉蒙德维尔市（Drummondville），法官，史蒂夫·J·莱姆尼茨（Steve J. Reimnitz）裁定并驳回这位母亲的要求。“夫人（这位母亲）可以坚持她想要的，但是法院更愿意遵循（魁北克省）公共卫生当局的建议”，法官说。
 
-- 冬奥会：普京原本24小时，加钱时间延长。原本盘古吃饭，改人民大会堂
-- 参加冬奥会的公寓360度摄像头，到冬奥会运动员和在监狱差不多
-- 欧洲某老政治家说疫苗就是狗屎
-- 日本年轻政治家，打两针，感觉身上有虫爬，从此不敢健身，孩子听爆料革命没打疫苗
-- 任何强迫别人打疫苗的政治家都是谋杀
-- 盘古，未来还会再最好的时间变回龙头
-- 冬奥会女运动被男性做肛门测试，旁边一帮人看着
-- 广西政府的某个机构打疫苗，80%都打地上了
-- 中共某市长开会，明言打疫苗断后
-- 中共邪教特征增加第七条：篡改历史
-- 今天起六周内中美关系核心的事情件可能将在北京发生
-- 短期3-5年，喜币，比特币，以太坊会横扫数字货币80%的价格， 这三个币都会10万 一个
-- 喜联储未来将给存款，7%的回报利息，之后还会开展贷款、保险等业务。 喜币最重要的两大钱包：热钱包和冷钱包
-- 冬奥会期间在北京二环内七哥整些大动作—-甜蜜蜜运动
-- 战友们一定记住喜币是你们传种接代的未来
-- 七哥即将要出访欧洲三国
-- 6周 将是灭共这场史无前例的运动走向新的开始，灭共的第三道大门 即将彻底打开
-- 甜蜜蜜运动 美国合作者的妻子听到歌声都感动哭了
-- 冬奥会失败或成功习都会打台湾，只有很少的可能性不打
-- 甜蜜蜜运动！没有流血
+法官最后说：“尽快遵守（魁北克省）公共卫生部提议的疫苗（接种措施）来保护孩子，这符合孩子的最大利益”。
+
+本月中旬，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章还报道了魁北克省第一例剥夺未接种疫苗父母探访子女的权力的判决。报道称，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。详细内容刊载于题为《[魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](https://gnews.org/zh-hans/1864608/)》的文章中。 文章编译及评论人提醒读者注意并仔细品味一下法官的这句话，“…法院更愿意遵循（魁北克省）公共卫生当局的建议”
+
+**参考资料**：
+
+1. LA PRESSE（2022 年 1 月 24 日），Une mère complotiste ne peut empêcher ses filles d’être vaccinées，[https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php](https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php)
+2. 蒙特利尔日报，Le Journal De Montreal，（2022 年 1 月 24 日），Contre la vaccination de ses enfants: une mère déboutée par le tribunal，[https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal](https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal%20)
 
 
+编辑：LILY
 
+发布：肥鯮
 
-
-
-编辑发布：闪电训练
+校对：
 
  
 

@@ -2,24 +2,49 @@
 ---
 
 
-## 提取患者的潜在病灶 TIS和国立癌症研究中心东医院共同研究
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906393/)
+## 纽约孩童因反抗强制疫苗活动遭逮捕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906470/)
 
-撰稿：东京樱花团/白云朵朵
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-58.png)[图片来源](https://news.yahoo.co.jp/articles/ed9679694c801ebe12ca8674cb800426c7a4825c/images/000)
-TIS已经与国家癌症中心东院开始了一个联合研究项目，利用信息技术提取病人潜在症状的数据。将患者自身无法表达的潜在症状的诉求提取为新的PRO(Patient Reported Outcome)，通过监测该数据来筛查患者的痛苦。通过这个来验证患者和医生之间的沟通改善的效果。第1阶段，验证提取PRO的有效对话场景。PRO不是临床试验中的医生的评价，而是患者自身的评价和症状的诉求等报告。
+作者：银河系农场—骄子
 
-第1阶段的实施期间是2021年11月—2022年月3月。制作基于调查票等的对话场景，从沟通机器人的对话数据中提取PRO。为了提高数据的精度，重新评估对话场景，进行修正。检查诊疗时，医生利用调查票等收集症状的有无和程度等PRO相关信息的同时，验证能否通过与沟通机器人的对话数据收集患者自己无法表达的潜在症状的诉求。TIS的人工智能（AI）聊天机器人“DialogPlay”将被试用。TIS通过这一举措，旨在开发使患者获得安心、安全、进一步有效的诊疗和抑制医疗过失，利用PRO在临床和研究开发中创造新的解决方案等相关的服务。
 
-第2阶段以后，为了创造这些服务，计划扩大验证范围。特别是使用PRO时，利用TIS提供的“医疗保健参考架构”，实现个人健康、医疗信息管理所需的安全和统一标准的系统构建。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[患者の潜在的な訴えを抽出–TISと国立がん研究センター東病院が共同研究](https://news.yahoo.co.jp/articles/ed9679694c801ebe12ca8674cb800426c7a4825c)
 
-*校对：东京樱花团/haruka春香
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+1月19日，纽约自由集会社团在美国自然历史博物馆举行合法反对强制中共病毒疫苗活动时，遭到纽约警察的阻拦，有5名成人和1名9岁孩童被逮捕。
+
+据悉，纽约警察以进入博物馆无法出示疫苗接种证明为由实施了逮捕。现场有网友拍到9岁孩童在哭泣，可听到有人在斥责警察对孩童造成了伤害。
+
+大约两个小时后，该名孩童被释放，人群中有人欢呼这是一个小战士。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-10.jpg)
+参考信息：
+[That’s some fine police work! Moment sobbing girl, 9, is detained and five adults are ARRESTED at New York’s Natural History Museum after refusing to show COVID vaccine cards: Onlookers heckled heavy-handed NYPD cops](https://www.dailymail.co.uk/news/article-10427451/Girl-9-five-adults-arrested-NYC-museum-refusing-COVID-vaccine-cards.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

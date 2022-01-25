@@ -2,39 +2,24 @@
 ---
 
 
-## 澳洲证券监督机构对超级基金投资数字货币提出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1906246/)
+## 美军8500名士兵做好紧急派遣乌克兰准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906292/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-25_11-07-35.png)[图片来源](https://hk.news.yahoo.com/%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A8%93-8500%E5%90%8D%E7%BE%8E%E8%BB%8D%E5%A3%AB%E5%85%B5%E6%88%92%E5%82%99%E9%9A%A8%E6%99%82%E9%83%A8%E7%BD%B2-212940910.html)
+【日本雅虎新闻】美国国防部发言人柯比24日表示。北大西洋公约组织 (NATO) 决定对乌克兰紧张局势采取快速反应部队。拜登总统已指示约8500名美军做好紧急派遣准备。包括美国本土的战斗、后勤支援、侦察和运输单位。
 
-整理/编辑：小红帽
+拜登先生将于24日与欧洲国家领导人举行视频电话会议，讨论如何应对乌克兰局势。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+在新闻发布会上，柯比先生对部署在乌克兰和邻国白俄罗斯边境的俄罗斯军队表示担忧，他说，“我们正在继续加强我们的军队，规模正在扩大。”
 
+信息来源：
 
-根据《Coingeek》1月24日报道，澳大利亚证券监督机构警告当地人，不要在没有充分了解所涉及的风险的情况下，使用他们的退休储蓄投资数字货币。
+[米軍8500人派兵準備を命令　バイデン氏、ウクライナ対処で](https://news.yahoo.co.jp/articles/349577d91a5bb247324184b9bb37033c6af4ab8d)
 
-澳大利亚证券和投资委员会（ASIC）在其警告中称，欺诈者正瞄准自我管理的超级基金（SMSFs）的受托人，让他们投资粗略的数字货币产品。
-
-SMSFs是在澳大利亚流行的私人超级基金，投资者可以选择投资和保险。它们是更受欢迎的零售和行业养老基金的替代品，允许投资者以高回报投资。SMSF基金的成员不超过6人，是澳大利亚人将数字货币加入其投资组合的唯一途径。
-
-“ASIC提醒超级基金成员，在同意将退休年金从受监管的基金转移到SMSF之前，最好的做法是寻求持牌财务顾问的建议，”该监督机构表示。
-
-据ASIC称，这些SMSF基金的受托人的目标是投资数字货币。虽然数字货币在澳大利亚没有被取缔，但监督机构警告说，数字货币是风险投资，投资者可能损失所有资金。
-
-该监督机构还透露，它在去年11月打击了一家采用这些策略的数字货币公司。该公司名为A One Multi Services，位于昆士兰州，据称它将用超过240万澳元（173万美元）购买数字资产。创始人承诺，如果投资者从他们的SMSF中贷款给他们，他们将获得20%的年回报。
-
-新闻链接：[Australia: Securities watchdog warns over super funds investing in digital currencies](https://coingeek.com/australia-securities-watchdog-warns-over-super-funds-investing-in-digital-currencies/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

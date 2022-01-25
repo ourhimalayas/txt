@@ -2,19 +2,30 @@
 ---
 
 
-## 七哥谈哲学（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906414/)
+## 扬帆每日速递 2022年1月24日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1906494/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+加拿大温哥华扬帆农场 海报组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、尽管一直深陷关于隐私和虚假信息的争议中，脸书母公司Meta周一宣布，它正在推出世界上最强大的超级计算机，以提高其处理数据的能力。
 
-*发布：*Frank2021
+2、加拿大卡车司机抗议活动Freedom Convoy 2022的众筹活动10天之内已经筹集超过300万美元，而且没有放缓的迹象。卡车车队周日从全国多个地点出发，预计将在一周内汇聚渥太华。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+3、据文贵大直播：盛大的奥运会开幕式背后，是最邪恶的力量支撑，共产党在全世界面前拙劣的表演，对新中国联邦最有利。
+
+4、据文贵大直播：共产党是最大的邪教组织，在邪教组织6个特征之上加上第七条：篡改历史。
+
+5、中国新年是中国人一年中最盛大的节日，清零政策下 许多中共国家庭被迫三年分开过年。
+
+6、习近平1月24日主持召开政治局会议，要求中央书记处带头维护党中央权威和集中统一领导，完成好党中央交办的各项任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板124-2_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
+
+编辑：文敏
+
+发布：风起云间（文敏）
+
+海报图片设计：飞天面、 Shuang
 
  
 
