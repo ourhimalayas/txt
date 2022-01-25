@@ -2,42 +2,24 @@
 ---
 
 
-## 谷歌在新的诉讼案中被指控“侵犯”用户隐私
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906252/)
+## 美军8500名士兵做好紧急派遣乌克兰准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906292/)
 
-**翻译：文扬**
-**编辑：Candy**
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-25_11-07-35.png)[图片来源](https://hk.news.yahoo.com/%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A8%93-8500%E5%90%8D%E7%BE%8E%E8%BB%8D%E5%A3%AB%E5%85%B5%E6%88%92%E5%82%99%E9%9A%A8%E6%99%82%E9%83%A8%E7%BD%B2-212940910.html)
+【日本雅虎新闻】美国国防部发言人柯比24日表示。北大西洋公约组织 (NATO) 决定对乌克兰紧张局势采取快速反应部队。拜登总统已指示约8500名美军做好紧急派遣准备。包括美国本土的战斗、后勤支援、侦察和运输单位。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/谷歌.png)图片来源：Willie B. Thomas/Getty
+拜登先生将于24日与欧洲国家领导人举行视频电话会议，讨论如何应对乌克兰局势。
 
+在新闻发布会上，柯比先生对部署在乌克兰和邻国白俄罗斯边境的俄罗斯军队表示担忧，他说，“我们正在继续加强我们的军队，规模正在扩大。”
 
-三个州和华盛顿特区的总检察长称：谷歌作为科技巨头，使用了“欺骗性和不公平”的做法。
+信息来源：
 
-德克萨斯州、印第安纳州、华盛顿州和哥伦比亚特区的总检察长已对谷歌提起诉讼，称其在获取用户的位置数据时采用了 “欺骗性和不公平 “的做法。
+[米軍8500人派兵準備を命令　バイデン氏、ウクライナ対処で](https://news.yahoo.co.jp/articles/349577d91a5bb247324184b9bb37033c6af4ab8d)
 
-哥伦比亚特区总检察长卡尔·拉辛（Karl A. Racine）周一在一份声明中宣布，该诉讼旨在结束谷歌“非法使用‘黑暗模式’”，并“收回从位置数据中获得的利润”。
-
-拉辛称，自2014年以来，无论用户的隐私设置如何，谷歌都在调查用户的信息，造成一种数据没有被追踪的欺骗性假象。诉讼称，如果谷歌用户关闭了他们的位置数据，他们就会收到通知，试图诱使他们再次分享这些数据。
-
-诉讼指出：“通过反复‘催促’用户启用谷歌账户设置，谷歌增加了用户无意中或出于沮丧而启用该设置的机会。”
-
-它还指责这家科技公司对某些隐私设置和更新进行了“误导、模糊和不完整的描述”，导致许多人在不知情的情况下分享数据。
-
-总检察长写道，这些做法“损害了希望保护其敏感位置信息的消费者”免受谷歌及其广告公司的侵害。
-
-谷歌否认了这些指控，称该诉讼提出了 “关于我们设置的不准确的主张和过时的论断”。他们承诺将对这些指控进行 “大力 ”辩护。
-
-原文链接： [Google accused in new lawsuit of ‘invading’ user privacy — RT World News](https://www.rt.com/news/547229-google-lawsuit-location-data/)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

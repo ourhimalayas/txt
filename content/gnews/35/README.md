@@ -2,52 +2,36 @@
 ---
 
 
-## 举办北京冬奥会、制造假雪 张家口将面对多重危害
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906631/)
+## COVID-19 最新情报｜“政府欺骗了我们”疫苗接种者深受副作用所累 后悔言论塞爆推特
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1906686/)
 
-作者：银河系农场 – 骄子， 日本方舟农场 – Andy 5
+**撰文｜疫情关注组 / 发布时间｜25/01/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗接種者深受副作用所累-後悔言論塞爆推特.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
+在你准备阅读本篇文章之前，不妨试着先到推特上搜索关键字“Regret getting/taking vaccine”（后悔接种疫苗），验证一下，世界各地有多少人正遭受疫苗副作用的折磨，并对自己轻易相信政府而去接受 COVID-19 疫苗而悔不当初。
 
+自去年7月起，推特上面开始陆陆续续出现许多后悔接种疫苗的言论，有人对自己接种过 COVID-19 疫苗感到遗憾，表示绝对不会接受第二剂，亦有人控诉指“我每天都在后悔接种疫苗，因为副作用一直没有消失。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+另外，还有人认为这一切都是政府造成的，“我后悔接种了疫苗，我的政府对我撒了谎，我被告知如果我接种了疫苗，就不会染上及传播病毒，这是一个天大的谎言，我永远也不会接种疫苗。”该条留言获得许多网友的认同。
 
+***本文截取部分供读者审览：***
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-28.jpeg)
 
-据1月22日外国媒体消息，随着气候变化，降雪变少，人造雪已成为冬季奥运会的固定活动。但北京将是第一个完全依赖人造雪的冬奥会主办国。
+@TinaxDez 写道：“我以为我快要 100% 恢复了，但显然没有。我后悔打疫苗吗？是的，如果你不认为是这样的话，那你滚远点。” 
+@tahoesharie 写道：“我后悔接种疫苗，尤其是看到越来越多的人自从接种后就变得越来越虚弱。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-7.jpeg)
+@RivvaRat 写道：“我每天都在后悔接种疫苗。原本是担心自己会因为没有接种疫苗，而在生病时被拒绝救治，但自从接种疫苗后，我就一直病着。接种后一个月，我不可以再吃鸡蛋，我的淋巴结严重肿痛，以至于我几乎晚晚失眠。” 
+@zukiiswa\_gwija 写道：“我后悔接种疫苗，我经历过副作用你想听听吗？腹痛、胸痛、头痛、呼吸急促、异常皮肤刺激症、高烧、腹泻，我仿佛正在地狱里。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-4.jpeg)
+@Cecilia97N 写道：“真相就是，我昨晚差点死了。我决定今天回到家乡，告诉家里的长辈们，我很抱歉，我让我自己的生活变成这样，然后我很后悔接种疫苗。” 
+@VisctStrauss 写道：“J&J疫苗让我躺在床上两天，我觉得自己好像得了疟疾一样，我后悔接种疫苗。” 
+@pabloes75859097 写道：“对很多人来说，流感比新冠病毒的致死率更高，尤其是年轻人，怎么没让我们像现在这样接种什么该死的疫苗。这些坚持和恫吓民众接种新冠疫苗的人绝对有问题。我后悔接种疫苗。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-4.jpeg)
+@Longisland\_wx 写道：“我知道改善的机率很低，如果未来几年出现更复杂的情况……美国人将自行崩溃，这绝对是场战争。我后悔接种了疫苗，但我只能这样做，因为纽约很荒谬，否则我将无法过上我的生活，我只能祈祷我的基因没有被搞砸。”
 
-尽管世界多国也曾使用假雪举办奥运会，但北京冬奥会滑雪场地造雪所需的水资源要尽数来自张家口，而干旱的张家口地区本身已经不适合造雪，因为这一过程会损耗大量的水。该地区水资源一直非常紧缺，超过一半的张家口地区用水压力极大，当地人均水资源不到全国平均水平的五分之一。人工造雪后，该地区水资源将更加短缺。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-5.jpg)
-而造雪对环境的影响还不止于过度消耗水资源，造雪过程还将耗费巨大的电力，造成严重的温室气体污染，且假雪融化也会对环境造成危害。
-
-另据悉，为举办冬奥会，开发旅游产业，当地很多农田被占据，农民不仅失去了赖以生存的土地，政府强加的“旅游梦”恐怕也将成为泡影。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2.4-4.jpg)
-参考信息：
-1. [China’s fake snow frenzy for Beijing Olympics strains water supplies](https://www.japantimes.co.jp/sports/2022/01/22/olympics/winter-olympics/beijing-olympics-snow-water/)
-2. [20220124日本報導CCP人工造雪 還不忘回顧這幫孫子為了08奧運開幕式提前打增雨彈來驅逐雨雲 七哥前幾天說啥來著？](https://gettr.com/post/pq9e3jebe5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：Jack Li文阳
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+来源｜[dailyveracity](https://www.dailyveracity.com/2022/01/23/shock-thousands-on-twitter-regret-getting-the-vaccine-side-effects-worse-than-covid/)
 
  
 
