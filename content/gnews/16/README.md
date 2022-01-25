@@ -2,22 +2,26 @@
 ---
 
 
-## 雅典娜时报-第184期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906869/)
+## 防俄入侵乌克兰 日本讨论对俄经济制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906912/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+撰稿：东京樱花团/麗子
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![2017年1月26日，郭文贵先生接受明镜新闻网陈小平先生的专访，从此掀开爆料革命的伟大篇章。](https://media.discordapp.net/attachments/825592691433668612/935411796800585748/155_7.png?width=798&amp;height=1188)![圖片](https://media.discordapp.net/attachments/825592691433668612/935411797173866516/155_4-2.png?width=798&amp;height=1188)
-*发布：陶子*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/防俄入侵乌克兰-日本讨论对俄经济制裁.png)[图片来源](https://www.cnn.co.jp/world/35182469.html)
 
+25日上午，自由民主党在党部召开了外交事务小组委员会等联席会议，讨论因俄军大规模军队部署而日益严峻的乌克兰局势，国会成员纷纷呼吁在俄罗斯入侵乌克兰的情况下需采取严厉措施，包括经济制裁。
+
+会议上有声音表示，鉴于在台湾出现紧急情况时可能需要寻求欧洲国家的支持，如果日本不对入侵乌克兰做出回应，可能会被戏谑执行双重标准。
+
+会后，外交事务小组委员会主席佐藤正久透露，美国已经表示将与同盟国一致，实施强有力的经济制裁。日方必须为任何紧急情况做好准备。所以，事前讨论并制定经济制裁措施很有必要。
+
+信息源：
+
+[露、ウクライナ侵攻なら「経済制裁を」　自民外交部会で議論](https://news.yahoo.co.jp/articles/598799a2dc75c7502519382af2cac9c06425af26)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

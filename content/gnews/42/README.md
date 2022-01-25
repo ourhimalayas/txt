@@ -2,43 +2,38 @@
 ---
 
 
-## 慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906413/)
+## 魁北克法院判决：母亲单方面没有权利阻止未成年子女接种疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1906462/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2041.png)图片来源：Red Voice Media Scott Quiner和妻子，Stew Peters
-斯科特原是明尼苏达州Coon Rapids市慈悲（Mercy）医院的一名新冠患者，慈悲医院根据医院指定的治疗方法将斯科特置于呼吸机上，并给予他镇静药物。家属恳求医院尝试其它方法，例如伊维菌素，羟氯喹，以及增加维生素和营养，试图挽救他的生命，而医院拒绝，也不允许病人出院，并要拔掉呼吸机。
+2022-01-24
 
-经过明州媒体名人Stew Peters （盖特账号@RealStew Peters）在社交媒体上的呼吁和很多人的关注，经过律师介入诉讼和法庭判决后，病人最终得以从慈悲医院转到德克萨斯州一家愿意提供治疗的医院。到了德州医院，医生们说斯科特是他们见过的最营养不良的病人。 这与家属所说的慈悲医生拒绝给他适当的维生素来帮助对抗病毒的说法是一致的。 他的其他器官工作正常，但他的肺有重大问题。
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C0@AFOB7Y@JSPPD.png)图片来源：蒙特利尔日报（2022 年 1 月 24 日）
+## 母亲单方面没有权利阻止她的未成年子女接种疫苗
 
-Stew说，“斯科特遭遇了慈悲医院的撒旦杀手所造成的可怕伤害，他们虐待、毒害和折磨斯科特，因为他们惩罚他没有接种疫苗。 得克萨斯州的医生确信，慈悲医院对斯科特造成的致命伤害是他死亡的全部原因，如果他几周前到达德克萨斯州，斯科特就会完全康复。”
+LA PRESSE和蒙特利尔日报（2022 年 1 月 24 日）报道，魁北克省德拉蒙德维尔市（Drummondville），法院就父母对接种 COVID-1 疫苗的分歧作出了新的的裁决，母亲单方面没有权利阻止她的未成年子女接种疫苗。
 
-这完全是一场可避免的悲剧，如果斯科特在慈悲医院能得到有效的治疗，而非因未打疫苗遭受虐待，如果斯科特能早点离开慈悲医院转到德州医院，他不会这样悲惨离世。
+这位母亲，相信针对 COVID-19 的疫苗可能包含一个电子“芯片”，并且是由“流产胎儿的细胞”制成的，这位阴谋论的母亲，还认为接种疫苗是“反人类罪”。
 
-* * *
+法院就父母对接种 COVID-1 疫苗的分歧作出了这样的裁决，这位母亲部分地失去了她对孩子的做为母亲的权力，这位母亲不能阻止她的未成年（14 岁和 9 岁）女儿接种疫苗，孩子的父亲可以单独做主让孩子接种疫苗，这让父亲感到很欣慰。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C5NHKR3K1X1XPRB90.png)图片来源：蒙特利尔日报，图片显示法官判决书的部分内容。图片中部分文字显示，法官指出：“她（这位母亲）声称（注射）疫苗是一种‘实验性注射’，（注射疫苗）可以使她的女儿（成年后）不能生育” 。
+魁北克省，德拉蒙德维尔市（Drummondville），法官，史蒂夫·J·莱姆尼茨（Steve J. Reimnitz）裁定并驳回这位母亲的要求。“夫人（这位母亲）可以坚持她想要的，但是法院更愿意遵循（魁北克省）公共卫生当局的建议”，法官说。
 
-参考资料：
+法官最后说：“尽快遵守（魁北克省）公共卫生部提议的疫苗（接种措施）来保护孩子，这符合孩子的最大利益”。
 
-- Avoidable Tragedy: Scott Quiner Dies Due To Maltreatment At Mercy Hospital
-JANUARY 22, 2022
-[https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/](https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/)
+本月中旬，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章还报道了魁北克省第一例剥夺未接种疫苗父母探访子女的权力的判决。报道称，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。详细内容刊载于题为《[魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](https://gnews.org/zh-hans/1864608/)》的文章中。 文章编译及评论人提醒读者注意并仔细品味一下法官的这句话，“…法院更愿意遵循（魁北克省）公共卫生当局的建议”
 
+**参考资料**：
 
-- Stew Peters’ Viewers Create Temporary Victory In Scott Quiner Case- Mercy Hospital Ordered To Not Kill Him
-JANUARY 13, 2022
-[https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/](https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/)
-
-
-文章观点仅代表作者个人，与gnews平台无关
-
-作者：洛杉矶盘古农场 — 郭友（文苏）
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+1. LA PRESSE（2022 年 1 月 24 日），Une mère complotiste ne peut empêcher ses filles d’être vaccinées，[https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php](https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php)
+2. 蒙特利尔日报，Le Journal De Montreal，（2022 年 1 月 24 日），Contre la vaccination de ses enfants: une mère déboutée par le tribunal，[https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal](https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal%20)
 
 
+编辑：LILY
+
+发布：肥鯮
+
+校对：
 
  
 
