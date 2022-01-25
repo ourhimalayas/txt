@@ -2,22 +2,22 @@
 ---
 
 
-## “专制主义的大流行”拜登强推疫苗强制执行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907371/)
+## 一个一感冒就要挨饿的地方
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907461/)
 
-翻译：Annabelle
-校对：精灵蓝
-剪辑|字幕：小强
+##### 翻译：Julia Gao|Warren Wang
+校对：枳实
+剪辑|字幕：蛮吉
 编辑：Mttfly
 
-在接受福克斯新闻采访时，第一自由研究所特别顾问杰里米·戴斯认为，在疫苗强制令上，拜登总统完全超出了宪法授予他的权限范围。冠状病毒大流行现在彻底变成了“独裁大流行”。疫苗强制令侵犯了州政府的权力，也践踏了第一修正案。宗教组织也不得不违背他们的信仰，强迫员工接种疫苗。如果总统可以像皇帝般继续强制接种，那宪法还有什么意义？他呼吁，所有人都有权利选择是否接种疫苗，而不是因此被炒鱿鱼、罚款。
+视频用陕西方言讲述了西安疫情爆发的前前后后。郭文贵先生爆料，冠状病毒是阻止香港人上街参加反送中运动的。疫苗是共产党的生化武器。陕西书记给陕西人打的疫苗浓度是最高的，打两针相当于河南人打十针。只有灭掉中国共产党，才能解救身处疫苗灾难中的同胞。
 
-视频链接：[‘](https://video.foxnews.com/v/6290423929001)[A pandemic of the autocrat’: Biden pushes for vaccine mandates](https://video.foxnews.com/v/6290423929001)
+视频链接：[郭先生盖特](https://app.gettr.com/post/pmi87dd11f)
 
-*发布：*tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

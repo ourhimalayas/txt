@@ -2,171 +2,64 @@
 ---
 
 
-## 喜币和新中国联邦合璧，犹如黑暗中的明灯，令习近平和达沃斯感到恐惧！
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1907844/)
+## 10大最糟健康选择使大脑身体精神受到伤害
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1907963/)
 
-[https://gtv.org/video/id=61eddb3987664c47acd90792](https://gtv.org/video/id=61eddb3987664c47acd90792)
+翻译： Jenny Ball
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Coronavirus-Elderly-Senior-Sick-Mask-Fever.jpg)图片来源：newstarget.com
 
-你们拥有世界上最牛叉的数字货币，喜币
-You have owned the most powerful digital currency in the world, Himalaya Coin
+大多数美国人认为，杂货店的基本食物选择不会对健康有害，但事实并非如此。大公司在他们的产品中加入了太多的加工和化学污染成分，以至于食物几乎没有营养价值，如果有的话，只剩下充满杀虫剂和化学防腐剂的“食品”。在大流行期间，没有比这时更糟糕的时间来吃这些科学垃圾食品了。
 
-是唯一在人类上未来全球可以流通的
-It is the only one that can be circulated globally in the future
+更糟的是，大多数美国人认为，大多数处方药旨在治愈身体的疼痛、疾病、病毒、细菌、病原体和寄生虫，但事实并非如此。几乎所有自然健康倡导者都知道，这些“药物”旨在平息根深蒂固的健康问题的症状，如果不加以解决，这些问题只会变得更糟。
 
-是全世界政府法律遵守的
-It also complies with the government laws around the world
+**有毒食物和化学药物会抑制精神，导致走上绝望的黑暗道路和更多的错误选择**
 
-啥叫数字货币
-What is a digital currency?
+为什么这么多人认为化肥食品和对抗疗法药物是好的或体面的选择？因为他们生活在充满假新闻和坏建议的迷雾中。从疫苗、处方药和香烟，到酒精和转基因食品，**至少有**** 2 ****亿美国人的身体和大脑充满了毒素，这些毒素会破坏系统，并且永远无法治愈**。
 
-就是不受政府敲诈的
-It is a new kind of money that is free from extortion by the government
+以下是您在这些威胁健康的大流行时期可能做出（或现在正在做出）的 10 大最糟糕的健康选择：
 
-自由流通的、保密的
-freely circulated, confidential
+#1，保质期食物、加工和转基因食品
 
-谁也拿不走的新的钱
-and cannot be taken away by anyone
+#2，整天戴着 Covid 口罩（除非您不幸被要求这样做）
 
-比黄金、比你的纸币还重要
-more important than gold and your paper money
+#3，接受基因治疗新冠病毒“凝块注射”导致致残和死亡的人数超过了他们挽救的人数
 
-那么这个权力 共产党给拿走了
-Then what is the right being taken away by the Communist Party?
+#4，“封闭”状态，以“安全”远离所有细菌为借口，从而剥夺自己接触新鲜空气和大自然
 
-叫数字人民币
-It is called digitalization of RMB
+#5，在医院接受针对 Covid 的“治疗”方案，包括注射更多的疫苗、致肾衰竭的瑞德西韦和窒息致死的呼吸机
 
-数字化叫绝对中心化
-The digitalization of RMB is absolutely centralized
+#6，不服用维生素 D3（在寒冷天气尤其重要）、维生素C、锌、维生素B12 等补充剂
 
-没有政府的币
-Digital currency is not supposed to be controlled by government
+#7，不考虑将超级食品作为日常消费方案的一部分
 
-它要绝对政府化
-But it (digitalization of RMB) has to be absolutely controlled by government
+#8，不经常锻炼
 
-那你不就找死吗
-It is ridiculous
+#9，继续使用尼古丁——抑制精神，同时损害免疫力
 
-那么我们给了你喜币
-Then we give you Himalaya Coin
+#10，摄取撒谎的大众媒体和高度腐败的CDC告诉你的任何东西
 
-全人类都要
-All mankind want to buy
+**美国国家医学图书馆和**** NIH ****发表的研究：几乎****100% ****的**** Covid ****患者缺乏维生素****D**
 
-不光是中国人民要买
-Not only Chinese want to buy
+大多数美国人缺乏维生素D3 有几个原因。大众媒体和大多数医生不会告诉人们/患者在没有太阳的冬/春季月份增加补充剂。即使建议服用维生素D3 的医生，也会严重低估你每天应该服用多少。这是一个主要问题，尤其是对于肤色较深的人。
 
-全人类都要买 一定会的
-All human beings will definitely want to buy it
+在这次大流行期间，提高和维持自然免疫水平非常重要，但除了自然健康倡导者之外，谁真正在这样做呢？**维生素**** D3 ****与维生素**** C ****和锌一起，本可以从**** Covid-19 ****中挽救无数生命**，但该协议并未将其纳入医院，这就是为什么许多健康倡导者称大流行为骗局。
 
-还要全球的流通
-Also it will be circulated globally
+在最近的一项研究中，几乎所有住院的 Covid-19 患者都缺乏维生素D（高达 97%）。
 
-你知道这次达沃斯论坛说什么吗
-Do you know what this Davos forum is talking about?
+此外，在接受检测的 237 名患者中，近 3/4 的患者有合并症，包括心脏病 (36%)、肺病 (34%) 和糖尿病 (35%)。除一名患者外，每位患者在接受大剂量静脉注射维生素 C、维生素 D3、锌和羟氯喹/阿奇霉素治疗后都从 Covid 中康复。
 
-我告诉大家
-Let me tell you
+尽管主流新闻和主流媒体对自然疗法撒了谎，但唯一的副作用是大约1／5的患者出现恶心、腹泻和呕吐，但观察的心脏副作用为零。
 
-我今天可以说达沃斯论坛私下讨论最多其中之一
-Today I can say that, one of the most discussed topics in private at Davos forum is
-
-包括新中国联邦是否会被很多国家突然给接受
-including whether the New Federal State of China will be suddenly acknowledged by many countries
-
-成为代表中国人民的政府
-to become a government representing the Chinese people
-
-和喜币是否会在全世界全面流通
-and Himalaya Coin will be fully circulated around the world
-
-他(们)说 如果喜币流通
-They said, if Himalaya Coin is circulated
-
-我们就控制不住了
-We will not be able to control it
-
-这将成为所谓的
-This will become so-called
-
-他们叫未来100年金融计划
-They call it the next 100 years financial plan
-
-就是把数字货币化的权力操控在达沃斯手里
-It is to put the power of digital monetization in the hands of Davos
-
-现在 习近平害怕
-Now Xi Jinping is afraid
-
-你以为光习近平害怕
-Do you think that only Xi Jinping is afraid?
-
-你以为光这些达沃斯党 全地球上这几百个富豪害怕
-Do you think that only these Davos Party members and the hundreds of rich people on the earth are afraid?
-
-恋童癖害怕
-and the paedophiles are afraid?
-
-我告诉大家
-Let me tell you
-
-喜币就像在黑暗中的一盏明灯
-Himalaya Coin is like a beacon in the dark
-
-一灯能除千年暗
-A Light Removes a Thousand Years of Darkness
-
-一个黑暗（中的灯）能把千年的黑暗给去掉
-A light in the dark can remove the darkness of a thousand years
-
-咱就是那个黑暗中的灯叫喜币
-We are the light in the dark called Himalaya Coin
-
-我们的这个设计
-This is our design
-
-一智能灭万年愚
-One Wisdom Light Destroys Ten Thousand Years of Stupidity
-
-喜马拉雅联邦 你记住
-Himalaya Federal State, you remember
-
-没有联邦喜币就没有那么牛叉
-No Federal State, Himalaya Coin wouldn’t be this great
-
-有喜币没联邦也没那么牛叉
-No Himalaya Coin, the New Federal State of China wouldn’t be this great
-
-New Federal of State 新中国联邦和喜币放在一起
-New Federal State of China and Himalaya Coin together
-
-就是灭掉了万年的愚蠢
-are the light to destroy the ten of thousand years of stupidity
+参考资料：[newstarget][Top 10 BAD health choices you could be making during this pandemic that put your brain, body, and spirit in harm’s way](https://www.newstarget.com/2022-01-23-top-10-bad-health-choices-during-this-pandemic.html)
 
 * * *
 
-Date: 01/14/2022
-原视频标题: 《喜币和新中国联邦合璧，犹如黑暗中的明灯，令习近平和达沃斯感到恐惧！
-The combination of Himalaya Coin and the New Federal State of China is like a beacon in the dark, which scares Xi Jinping and the Davos!》
-原视频日期：2022/01/22
-原视频链: **[https://gettr.com/post/ppvrj3e571](https://gettr.com/post/ppvrj3e571)**
-任务编号：KC430（03556）
-视频时间段 : 0:00-2:19
-中听校：洛杉矶盘古农场 – WH
-翻译：洛杉矶盘古农场 – WH
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –文新
-审片：洛杉矶盘古农场 –银龙
-发布 ：洛杉矶盘古农场 –恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
 
  
 

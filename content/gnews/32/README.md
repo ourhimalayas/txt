@@ -2,20 +2,43 @@
 ---
 
 
-## 尽管完全接种率高达85%，但马耳他的新冠死亡率创下新高
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907333/)
+## 去年澳洲通胀率激增3.5%或导致提前加息
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1907360/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-2-22.jpg)图片来源：路透社
-据《门户专家》（Gateway Pundit）1月24日报道，作为全球新冠疫苗接种率最高的国家之一，马耳他（Malta）超过85%的人口已完全接种了疫苗，94%的人至少接种了一剂疫苗。但马耳他的新冠疫情不仅没有改善，还愈发恶化，该国的新冠死亡率刚刚达到历史最高值。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-4.jpg)
-马耳他人的生活也并没有因为遵从疫苗接种而恢复正常。1月13日，马耳他实施了新的防疫规定。据《马耳他时报》(Times of Malta) 报道，马耳他人将不得不在餐馆、酒吧、电影院等各种场所出示疫苗护照，以证明接种了最新的加强针疫苗。另外有报道说，在防疫新规实施期间，许多餐馆决定关闭，其中约14%的餐馆预计将永久关闭。
+整理：Sara9
+编辑：小红帽
 
-马耳他这个典型例子足以说明新冠疫苗不仅无法遏制疫情，还会加剧危机。不夸张地说，马耳他这个小国正面临着亡国的风险。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
-新闻来源：[Fully Vaccinated Malta Reaches Record COVID-19 Death Rate](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-malta-reaches-record-covid-19-death-rate/)
+
+根据《澳大利亚人》1月25日报道， 2021年澳大利亚的通胀率激增到3.5% ，提前加息可能性大增。
+
+澳大利亚统计局(ABS)的最新数据显示，在截止到9月份的三个月里，通胀率上升了0.8%，其中12月的季度增幅大大超过了预期的1.3%。
+
+本季度最大的通胀驱动因素是新住宅的购买，增长了4.2%，而且汽油价格在该季度上升了6.6%。
+
+在汽油和住房建设成本进一步大幅增加的支持下，截至2021年12月的一年中，通货膨胀率从3%急剧加速到3.5%。
+
+剔除了燃料和食品等波动较大的商品后，基本通胀率从2.1%上升到2.6%。
+
+这三个月的平均消费者物价指数（CPI）增长了1%，远高于经济学家的预测。
+
+核心消费价格增长指标现在完全处于澳大利亚储备银行（RBA）2-3%的目标范围内，消费价格压力的攀升提高了储行提前加息的可能性，澳储行将在下周二举行今年的第一次会议。
+
+澳大利亚储备银行行长Philip Lowe一直认为，明年年底前不会加息。
+
+新闻链接：[2021](https://cn.theaustralian.com.au/2022/01/25/62838/)[年澳通胀率激增](https://cn.theaustralian.com.au/2022/01/25/62838/)[3.5%](https://cn.theaustralian.com.au/2022/01/25/62838/)[提前加息可能性大增](https://cn.theaustralian.com.au/2022/01/25/62838/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

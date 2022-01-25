@@ -2,30 +2,105 @@
 ---
 
 
-## 冬奥闭馆仅限自己人买票
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1902965/)
+## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
 
-文：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/cb58e6834eb705d8b1ec1a03707dcd51.jpeg)假雪 / 图源：网路
-共产党的冬奥会大戏即将上演。七哥之前爆料，习近平政府已经把世界各国的运动员后勤都安排妥了，就等着这个运动员过来，然后不经意感染了中共病毒，再然后，住在温馨舒适的隔离间，全程有摄像头的关爱。在共产党的集中力量办大事，一党独裁为你好的条件下，这些运动员全部改行做演员去了，人人都拿奥斯卡，影帝影后任你挑。中共病毒算啥呀，你看在共产党的关爱下，康复了，出院了，奥运会真是一场值得来的运动会，你们谁不来就后悔，一生都后悔。
+[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
 
-这就是共产党打的算盘，噼里啪啦，看似每个细节都算得好好的。好比孙力军领衔主演的零容忍一样，灯光该怎么打，妆该怎么表现人物特色，那都是丝毫不能出点误差的地方。共产党为冬奥会作出的准备也下了大力气。比如造假雪。虽然世界上有很多国家都是这么玩的，因为气候的原因，干旱，降水少，冬天下的雪根本没有形成能够举办运动会的程度，很多国家都采用人工造雪。但是，北京冬奥会采用的雪全部都是假雪，一个冬天一粒雪都没下，就连十一届六中全会那个雪都是假雪，何况一个冬奥会呢。北京冬奥会的滑雪场地需要造雪用的水资源都从张家口调用，但是张家口干旱到啥程度呢，本地区超过一半以上的地方用水缺乏，当地人均水资源不到全国平均水平的五分之一。本身干旱就会损耗一部分水资源，在假雪形成的过程中仅仅降温也会让大量水资源浪费掉，并且就因为在造雪这件事上，还要用电，燃料燃烧产生的温室气体会给环境造成污染，假雪融化以后对环境也会造成污染。张家口愣是准备了超大蓄水池，还从其他地方调水过来，并且把这个滑雪场地打造成了风景旅游区，不仅把当地老百姓的农田全占了，还打算继续骗其他地方来旅游的人的钱。试问这样的空气污染和密集能源消耗，这个旅游区能便宜得了才怪，花大价钱来玩的人还要承受空气污染给人体带来的伤害。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/99415b79b6953c5466c56f87dffe179d.jpg)张家口 / 图源：网路
-造假雪是物理方面，用极大的成本极大的对环境的破坏宣扬共产党北京冬奥会的盛世场面。还有很多盛世场面是用高科技来达成的，比如，各个国家的运动员要安装一个应用程序，这个应用程序说白了就是监控软件，只要拿着手机，那就是个透明人。搭配这个应用程序使用的还有，奥组委的人毫不忌讳地宣布，外国来北京参加冬奥会的运动员请谨慎言论，不要违法。共产党言论审查实实在在地落实到了冬奥会的每一步操作中。北京为了实现冬奥会清零政策，用的方法就是物理清零，比如发现一例中共病毒阳性，就直接把人带走抓起来，哦不是，隔离起来，他们是这样说的，但是和抓走、非法监禁没有任何区别。管你是来自什么民主国家的运动员，你到了中共国，是有墙的，并且在你手机里安装的那个应用程序会把你的呼救信息尽数删除。别说什么人权了，人命都不值钱的。也许很多人根本不了解共产党的清零政策，觉得没什么，毕竟不是每个人都对共产党有那么深刻的认知。但是七哥爆料，共产党还到处抓狗，杀狗，打算给这些参加冬奥会的各国人士都吃狗肉。西方民主国家对宠物的态度就是等同于家庭成员一样的存在，尤其小狗作为人类最常见的宠物伴侣，这怎么能让人受得了呢？但凡一个善良的人都无法想象那些狗被杀掉，被掺杂在平日的饮食中。国外杀一个猪都要给它听音乐呢，共产党到处抓狗，抓起来就残忍杀掉，并且让你们这些运动员都去吃狗肉。如果有运动员不听劝，非要去参加冬奥会，那完了，一生的耻辱，洗都洗不掉。
+**Steve Bannon
+史蒂夫·班农**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8.png.jpeg)中共杨贝贝吃狗肉 / 图：晴天
+I want the people
+我希望人们
 
-最近国内的中共病毒根本就控制不住，世界上每个国家每天都在创造不断上升的感染人数，中共国内的数字纹丝不动，或者和正常情况比起来，一样看出来就是造假的数字公布。张文宏医生说国内的中共感染不能忽略，意思也是非常严重，这仿佛是给冬奥会开了一个口子，既然共产党要配合演戏，要演一出集中力量抗击新冠病毒的大戏，这几个运动员怎么能不感染呢？既然要感染，那么清零政策的实施又到底是为了什么？七哥说我们不能用正常思维来判断共产党的思维，共产党是魔，一切有利于它发挥自己魔鬼的地方，他都能做。中共病毒本来在中共国是失控的，清零政策本来就是政治需要，冬奥会的运动员染上病康复了，也是政治需要，中共病毒的作用是个配角，一切都是共产党给全世界演的这场戏，威胁全人类，尤其是美国，你不能丢下我，我死我要拉你一起死，最好全世界为我垫背。
+also the here’s the more fundamental thing for people in the audience right now
+也对现在观众中的人们来说这是更基本的事情
 
-美国的体育报道团队都是一个跟一个，最大的NBC说自己不去了，马上ESPN也跟着一起说不去了。NBC是北京冬奥会媒体签约合作伙伴，虽然在通告里说害怕新冠病毒的清零政策，但实际原因也许可能是因为吃狗肉。好了，冬奥会目前果真达到了自己玩自己的目的，来的都是些贪婪无比的人，要了钱免了债务，还要谋求其他的大利益才行，并且都是那些平时和中共称兄道弟的中东国家。冬奥会这场大戏，搭好的台子不能拆，无论如何习近平都要作下去，他已没有退路，只能一路向前，走向灭亡。
+other than capital markets
+除了资本市场，
+because capital markets are reactive to this
+因为资本市场对此有反应
+
+You’ve had these cheerleaders like Jim Cramer and others,
+你有像吉姆·克莱默和其他人这样的啦啦队员，
+
+Jamie Dimon up there,
+杰米·戴蒙在那里
+
+cheerleading for Biden’s economic plan
+为拜登的经济计划做拉拉队，
+
+which we said is a disaster
+我们说这是一场灾难
+
+And Kramer was on TV said the greatest economy in his life in his life.
+克莱默在电视上说是他一生中最伟大的经济
+
+Just a couple of weeks ago
+就在几周前
+
+This is right now getting oil at $85 a barrel. Right?
+现在的油价是每桶85美元，对吧？
+
+Yeah, they’re about to announce
+是的，他们即将宣布
+
+they’re going to redo the forecast for the first quarter slowing GDP
+他们将重做第一季度GDP放缓的预测
+
+There’s you could see that yesterday
+昨天你可以看到
+
+The reason Goldman Sachs is so important of missing the earnings
+高盛失去收益如此重要的原因
+
+Why is that important?
+为什么这很重要？
+
+Why do we focus on that?
+我们为什么要专注于此？
+
+Because in this complex financial capital market driven world
+因为在这个复杂的金融资本市场驱动的世界里
+
+who would have a better understanding of it than Goldman Sachs
+谁能比高盛更了解它
+
+when they miss earnings that badly that is bad
+当他们严重失去收入时，这很糟糕
+
+everybody in the world capital markets say
+世界资本市场上的每个人都说
+
+and hi the Goldman guys missed it this badly?
+嗨，高盛的人的损失这么的糟糕？
+
+It’s worse than we thought
+比我们想象的还要糟糕
+
+Okay, that’s why the stocks off so much.
+好吧，这就是为什么股票下跌这么多
 
 * * *
 
-作者：骄子
-发布：骄子
+Date:01/19/2022
+原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
+当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+原视频日期：2022/01/18
+原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
+任务编号：KE361(3538)
+视频时间段 : 0:00-0:59
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

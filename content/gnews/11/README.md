@@ -2,155 +2,32 @@
 ---
 
 
-## 喜币最牛的是系统，最稳定、合法、永远不会被提现提垮
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1907711/)
+## Do you hear the people sing，singing a song of Sweetie?
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1907877/)
 
-[https://gtv.org/video/id=61edd98287664c47acd906f6](https://gtv.org/video/id=61edd98287664c47acd906f6)
+文：银河系农场｜骄子
 
-**郭文贵
-Miles Guo**
+从来没有在中共国见过群众大游行，公民有游行示威自由是写在共产党的宪法里的。只不过这些都是公民的权利，中共国的老百姓都是居民，没有任何权利。经常在大街上看到的是受了冤屈的老百姓，大部分都是扯着横幅稀稀拉拉的几个人站在某公司某政府大楼门口要告状，要上访，有的甚至坚持了一辈子，一辈子有多长，不过就是几十年，完全耗在一场没有结果的上访中，值当不值当？古代的县衙门口都有一个大鼓，老百姓有冤屈的事情可以到县衙门口去喊冤鼓，现在受了冤屈要想讨还公道，不可能的。共产党这里没有公道，但是老百姓总是对中南坑有滤镜，好像住在那儿的人都不大便似的。那些发誓要告到中央的，很多时候连天安门都到不了。平常我们以为天安门上那么多闲逛的人，其实都是共产党的便衣警察，包括那些摆摊卖小吃的。都这个年代了，这些只会出现在影视剧中的现象，其实就发生在身边。张艺谋的电影秋菊打官司，秋菊是个幸运的人，大部分中国老百姓都不是那么幸运，很多上街拉横幅的人基本上晚上就有警察上门来找。受了冤屈扯个横幅抗议一下，晚上警察就来警告了，信佛念经的都会被警察上门拜访，中共国的警察就是到处乱窜的流氓似的。
 
-喜币最值钱的地方在哪里
-Where are the most valuable things of HCoin?
+香港的反送中运动，网上看到的很多小视频里，上街抗议的人又干净又礼貌，给救护车迅速让路，只是想要寻求自由民主，在履行自己的义务，在捍卫自己的权利。但是只要孩子们一上街，共产党的黑警就出来抓人，虽然共产党很鸡贼换上了香港警察的衣服，开着香港警察的车，但是几乎所有的人都感觉出来不对劲的，毕竟原香港警察不可能大规模逮住人往死里打。习近平把一个说他风流韵事的香港书商都要抓起来，何况是上街要求自由民主的孩子们呢？这种事情换做是共产党内的温和派会不会做呢，当然会的，邓小平就是改革派啊，8964还不是照样杀了那么多学生。国外的很多人都知道8964的事情，但是很奇怪的是，国内知道的人很少，就算知道也是闭口不谈的为多。这件事好像就过去了，大家也因为经济好转了以后，很少提及此事了。或者，根本就是共产党用表象的繁荣掩盖了政治的危机，一切经济繁荣的背后全部都是伤痕累累，这些伤痕不可能全部消退，不过是都被掩盖在盲目中。自从习近平上台后，这种共产主义式的独裁已经顾不上掩盖什么了，黑警察直接上街把合理表达诉求的香港孩子抓起来，莫名其妙被自杀死去。共产党的改革派，如江泽民曾庆红等人，行事有退，毕竟在海外拥有的财富是万万不能大意的，一个不小心就能让整个市场都震荡，有这样的布局，依靠的是平衡，当然有退。但是习近平和他们都不同，习近平在海外没有什么大资产，他在七哥的爆料下又知道了那么多他想都不敢想的财富，原来这帮中南坑的老杂毛们，一个比一个富，一个比一个财大气粗。别人的私生子都比他多，他就偏偏只有一个女儿。更别提南普陀计划对他的侮辱了。连一个随意谈论他私生活的书商都要抓，何况是就把他当成傻子呢。
 
-你看昨天、前天、大前天
-You can see that yesterday, the day before yesterday, and so on
+![](https://assets.gnews.org/wp-content/uploads/2022/01/N10A00_P_01_02.jpg)共产党黑警 / 图源：网路
 
-它是1年365天，7天24小时在线
-It’s online 24/7 and 365 days a year long
+共产党内那些所谓的有脑子的，习近平玩不过的那些人，什么江泽民、王岐山、曾庆红、韩正等人，他们几乎都是上海帮，上海帮的特点就是，知流勇退，一退再退，这还怎么灭共啊。如果香港反送中运动没有那些共产党黑警，就是按照退的做法，慢慢温水煮青蛙，也不打也不抓，温和运动，但是会在后面挑机会默默把那些人都做掉，在私下里做，就跟天安门的便衣似的，看着都是闲逛的老百姓，根本不知道那些都是便衣。很多事情就不会火上浇油那么热烈，毕竟曾庆红这些人的智慧，七哥都在称赞，比习近平强太多了。其实总在想，曾庆红这么高深的智慧，但是无奈，历史真的没有选择他，南普陀计划的时候在嵩山做法事，掉下来的白鹤，还有南普陀的土，都是天给的预示。曾庆红难道不懂吗？那为何他不懂得退呢？有的时候吧，在看到这些纷繁的人事时，莫名会有一种惊叹，七哥又怎么不知道他们的道行呢，但每每总是在嬉笑怒骂中，就让这些人趴在地上了。共产党内部那么多好人，和这些人打交道的又岂止那么一两个人？你们看到的天意，在一意孤行的人看来，更是一种预示，这事儿非要做，逆天也要做，天算什么，共产党就是要与天斗其乐无穷。
 
-全世界汇丰银行、美国银行、UBS银行
-HSBC, Bank of America, UBS Bank, all banks in the world
-
-任何一家银行你去提现挤兑，百分之百都破产
-if you go to any bank to withdraw and run on them, 100% of them will face bankruptcy
-
-没有一家不破产的
-and none of them can get away with it
-
-只有喜联储
-Only the Himalaya Exchange
-
-你把你所有的HDO提走，它百分之百不会破产
-when you withdraw all of your HDO, 100% will not face bankruptcy
-
-什么事都没有
-nothing will happen
-
-美国的美联储竟然要接受
-The U.S. Federal Reserve actually wants to accept it
-
-说可以跟私人的稳定币就是喜美元HDO可以合作
-saying that they can cooperate with a private stable currency, which is the H-dollar HDO
-
-你知道这是多大的变化？兄弟姐妹们
-Brothers and sisters, do you know how big a change this is?
-
-是天地之间的（转变）
-It’s the transition between earth and heaven
-
-它（美联储）不敢说消除所有的数字货币了
-It (the Federal Reserve) does not dare to say that it will eliminate all digital currencies
-
-它自己都在研究美元要数字货币化
-The Fed itself is studying the digital monetization of the US dollar
-
-还要跟私人稳定币就是咱喜美元要联合
-and it will combine with the private stable currency, which is our HDO
-
-喜币牛就牛在不是你英国的交易所
-The awesomeness of our HCoin is that it’s not the UK exchange
-
-人家是第三方国家澳大利亚交易所
-It’s is a third-party country Australian Exchange
-
-还有其他国家交易所
-and there are other national exchanges
-
-不但如此
-Not only this
-
-你看看接下来大家我跟你说的
-You’ll see the next what I have told you
-
-喜币未来机构投资者公告的时候
-When announcing the institutional investors of HCoin in the future
-
-如果你们要不害怕、不震惊、不从椅子上掉下来
-if you are not scared, not shocked, and not falling off from your chair
-
-如果是东弟颖妹妹不流水流的像汪洋大海一样
-if Hao Haidong brother and Ye Zhaoying sister do not enjoy what they are doing
-
-咱这事就算七哥放狗屁
-this matter will be considered Brother 7 (Miles Guo) is bullshit
-
-这个巨大的变化，你看看这个稳定币还有这个系统
-This huge change, take a look at this stable currency and it system
-
-我今天可以告诉大家还有20%（黄金）在这块搁着
-I can tell you today that there is also 20% (gold) sitting with it
-
-人类上没有第二家
-and you cannot find another one among mankind
-
-而且是多个法律管辖区约束
-And (HDO) is bound by multiple legal jurisdictions
-
-而且我可以（说）最根本的这个稳定币你随时可以拿钱的
-and I can say the most fundamental of this stable currency is that you can take money at any time
-
-你可以清零的
-and you can clear it
-
-这是为什么现在几十个国家现在跟这个喜联储在谈这个执照的时候
-That’s why dozens of countries are now talking to the Himalaya Exchange about (their trading) license
-
-说你们到现在展现的是任何数字货币没有的系统
-saying that what you’ve shown so far is a system that no digital currency has
-
-记住啊这个系统设计是七哥的创意
-Remember, this system design is the creativity of Brother 7 (Miles Guo)
-
-是最牛的
-It’s the best
-
-第二，是这个系统的合法性（是）最牛的
-Secondly, the legitimacy of this system is the best
-
-第三，它法律的设置在全球性它的法律安全性是最牛的
-Thirdly, its global setting and its legitimate security are the best
-
-还有一个
-There is one more
-
-它的稳定的整个储备系统是最牛的
-its stable entire reserve system is the best
-
-还有个绝对限制每年发行只有10亿个
-and there is also an absolute limit of only one billion (HCoin) issued per year
+共产党一路踩着老百姓的鲜血，中国境内的河流都可以被这些鲜血染成红色。七哥爆料说要在冬奥会上响起甜蜜蜜，这是一场不会流血，没有牺牲的战争。从香港反送中运动开始，爆料革命开始走上历史舞台，吸引更多反对独裁支持平民的老百姓。我们一向追求的就是不流血，反对暴力。这个世界一直都在发展，人们不可能把有限的历史全部都忘记，就算共产党篡改了中国的历史，但其他国家有过的记载还是被保留下来了。人类是一个整体，那些记忆是不可能被抹去的，同样的，基于那些记忆的痛苦也激励着人们反对暴力，和平抗议，因为人命才是最珍贵的。流过的血不会白流，会变成后代的记忆，继续传承下去，痛苦也不会白白痛苦，改变总会发生。人从来就不是猴变的。
 
 * * *
 
-Date: 01/16/2022
-原视频标题:
-喜币最牛的是系统，最稳定、合法、永远不会被提现提垮
-The best thing about G Coin is its system, which is the most stable, legitimate, and will never go bankrupt with withdrawals
-原视频日期：2022/01/14
-原视频链接: [**https://twitter.com/jeff\_john\_sta/status/1482685155751964674?s=24**](https://twitter.com/jeff_john_sta/status/1482685155751964674?s=24)
-任务编号：KC429（3545）
-视频时间段 : 0:00-02:10
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布 : 洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
