@@ -2,38 +2,20 @@
 ---
 
 
-## 澳洲证券监督机构对超级基金投资数字货币提出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1906246/)
+## 中共将开动宣传机器把无观众的冬奥会说成是在网络上有12亿人看的巨大成功的奥运会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1906350/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：追着曙光跑
 
-整理/编辑：小红帽
+1月24日，文贵先生在大直播上爆料，中共将开动宣传机器把没有观众的北京冬奥会，说成是在网络上有12亿人看的巨大成功的奥运会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-25-at-12.02.17.jpeg)
+郭先生说，中共为了显示成功举办2022年北京冬奥会，虽然没有现场观众观看，但他们会报道在网络上超过12亿人次观看了本次冬奥会，而且点赞数是60%~70%，甚至是80%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+另外，中共也会解释在网络上取得巨大成功的原因。由于病毒扩散、接种疫苗才能进入会场作为前提条件以及西方反华势力搞破坏等原因，国外的很多赞助商家和转播公司都没有办法到达现场宣传和转播，反而在社交媒体上给北京冬奥会带来了巨大的关注量。
 
+最后，中共也会报道一系列国外支持北京冬奥会的采访。中共现在已经安排好派记者到巴基斯坦、古巴、阿富汗、法国、德国以及加拿大这些被中共收买的国家，到时这些记者就会采访华人或者（都是安排好的）路人甲乙丙丁，然后他们就会说：“我看了北京冬奥会了，办得太好了！你们（中共）为了防止病毒，安排的无观众赛事，做得太好了。”
 
-根据《Coingeek》1月24日报道，澳大利亚证券监督机构警告当地人，不要在没有充分了解所涉及的风险的情况下，使用他们的退休储蓄投资数字货币。
-
-澳大利亚证券和投资委员会（ASIC）在其警告中称，欺诈者正瞄准自我管理的超级基金（SMSFs）的受托人，让他们投资粗略的数字货币产品。
-
-SMSFs是在澳大利亚流行的私人超级基金，投资者可以选择投资和保险。它们是更受欢迎的零售和行业养老基金的替代品，允许投资者以高回报投资。SMSF基金的成员不超过6人，是澳大利亚人将数字货币加入其投资组合的唯一途径。
-
-“ASIC提醒超级基金成员，在同意将退休年金从受监管的基金转移到SMSF之前，最好的做法是寻求持牌财务顾问的建议，”该监督机构表示。
-
-据ASIC称，这些SMSF基金的受托人的目标是投资数字货币。虽然数字货币在澳大利亚没有被取缔，但监督机构警告说，数字货币是风险投资，投资者可能损失所有资金。
-
-该监督机构还透露，它在去年11月打击了一家采用这些策略的数字货币公司。该公司名为A One Multi Services，位于昆士兰州，据称它将用超过240万澳元（173万美元）购买数字资产。创始人承诺，如果投资者从他们的SMSF中贷款给他们，他们将获得20%的年回报。
-
-新闻链接：[Australia: Securities watchdog warns over super funds investing in digital currencies](https://coingeek.com/australia-securities-watchdog-warns-over-super-funds-investing-in-digital-currencies/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
 
  
 

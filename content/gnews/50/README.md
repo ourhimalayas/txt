@@ -2,20 +2,23 @@
 ---
 
 
-## 内资充外资 港府称国安法无损外资驻港
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1903215/)
+## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
 
-作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-327.jpeg)
-投资推广署署长傅仲森指，目前未有明显证据反映《港区国安法》致外资撤离，反而不少企业对投资香港抱兴趣，当中最多投资项目来自内地，美国及英国紧随其后。他称，香港的定位为背靠内地，不少外资以香港作为踏脚石进入内地，或内地企业亦以香港集资，甚至从美国退市后考虑来港上市，因此预期内地公司在香港的数量，将继续保持高水平的增幅。
+**疫情關注組 / 發佈時間｜24/1/2022**
 
-中共在香港施行国安法，国际社会都目睹港府如何利用国安法残酷打压香港民主，将香港陷入白色恐怖中，大量国际热钱和外企及驻港机构纷纷撤出香港，加上港府高度配合中共对疫情的管制，闭关锁港限制人流和物流，导致香港经济发展停滞，各行各业为求续命不断向港府申请防疫基金，进一步拖累香港的财政储备。港府还要为萧条的经济涂脂抹粉，赞美国安法吸引了更多的“外资”入港，却又无耐透露这些资金大部分是来自内地。中共早已当众单方面撕毁了《中英联合声明》，三权也被中共独揽，香港在国际社会已经是彻底的一国一制，如今港府将内地投资定义为“外资”简直是掩耳盗铃。至于那些在美国退市的中资企业，选择落户香港实在是避难的无耐之举，港府将这些悉数纳入外资充数，可见国安法不仅镇压了香港的民主，还成功吓退了国际资金，不愧是杀人又重创自己的恶法。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-资料来源：[**外资驻港数目创新高逾9,000个  投资推广署：未见国安法引致撤资**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/727904/%E5%A4%96%E8%B3%87%E9%A7%90%E6%B8%AF%E6%95%B8%E7%9B%AE%E5%89%B5%E6%96%B0%E9%AB%98%E9%80%BE9-000%E5%80%8B-%E6%8A%95%E8%B3%87%E6%8E%A8%E5%BB%A3%E7%BD%B2-%E6%9C%AA%E8%A6%8B%E5%9C%8B%E5%AE%89%E6%B3%95%E5%BC%95%E8%87%B4%E6%92%A4%E8%B3%87)
 
-*校对：东京樱花团/文小白*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
+
+[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
+
+以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
+来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

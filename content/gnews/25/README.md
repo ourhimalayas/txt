@@ -2,36 +2,38 @@
 ---
 
 
-## 【秘翻在线】美国会对俄罗斯打弹药战还是经济战？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1906145/)
+## 澳洲证券监督机构对超级基金投资数字货币提出警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1906246/)
 
-**撰稿：Grace**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-24-at-9.17.44-PM.jpeg)图片来源：rt
-据《国家公共广播电台》(NPR)1月24日报道，由于考虑到大批俄罗斯军队已经集结并可能会入侵乌克兰，美国的五角大楼正在将大约8500名美军置于高度警戒状态。
+整理/编辑：小红帽
 
-五角大楼发言人约翰·柯比（John Kirby）周一表示，尚未作出部署部队的决定。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
-柯比说， 国防部长劳埃德·奥斯汀（Lloyd Austin） “已将美国的一系列部队置于高度准备部署状态，这增加了我们在北约启动[北约反应部队] [NATO Response Force]或出现其他情况时提供部队的准备。”
 
-柯比说，奥斯汀进一步提高了他们的状态，将部署的天数从10天缩短到5天。
+根据《Coingeek》1月24日报道，澳大利亚证券监督机构警告当地人，不要在没有充分了解所涉及的风险的情况下，使用他们的退休储蓄投资数字货币。
 
-但是，据报道，拜登却是表示，他无意向乌克兰派遣美国军队，但表明他准备在俄罗斯入侵的情况下对其实施严格的经济制裁。拜登在周一与欧洲领导人通话后表示，该团队在应对俄罗斯问题上达成了  “完全一致 ”的意见。
+澳大利亚证券和投资委员会（ASIC）在其警告中称，欺诈者正瞄准自我管理的超级基金（SMSFs）的受托人，让他们投资粗略的数字货币产品。
 
-白宫表示，这些领导人讨论了如果俄罗斯入侵，“准备对其施加大规模的后果和严重的经济代价”。他们还呼吁开展更多的外交活动。
+SMSFs是在澳大利亚流行的私人超级基金，投资者可以选择投资和保险。它们是更受欢迎的零售和行业养老基金的替代品，允许投资者以高回报投资。SMSF基金的成员不超过6人，是澳大利亚人将数字货币加入其投资组合的唯一途径。
 
-据报道，俄罗斯在与乌克兰交界的不同地点集结了大约10万名军队。莫斯科否认它打算入侵，但美国官员担心进攻可能即将发生。
+“ASIC提醒超级基金成员，在同意将退休年金从受监管的基金转移到SMSF之前，最好的做法是寻求持牌财务顾问的建议，”该监督机构表示。
 
-报道指出，美国已经向乌克兰提供了军事援助，最近一批20万磅的 “致命援助” 包括弹药，已于周五抵达。
+据ASIC称，这些SMSF基金的受托人的目标是投资数字货币。虽然数字货币在澳大利亚没有被取缔，但监督机构警告说，数字货币是风险投资，投资者可能损失所有资金。
 
-而且，其他北约成员正承诺向东欧派遣舰艇或喷气式飞机。北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg ）周一表示，丹麦、法国、荷兰和西班牙正在向立陶宛、罗马尼亚或保加利亚或向黑海或波罗的海派遣或考虑派遣军事支援。
+该监督机构还透露，它在去年11月打击了一家采用这些策略的数字货币公司。该公司名为A One Multi Services，位于昆士兰州，据称它将用超过240万澳元（173万美元）购买数字资产。创始人承诺，如果投资者从他们的SMSF中贷款给他们，他们将获得20%的年回报。
 
-斯托尔滕贝格呼吁采取更多的外交手段来缓和紧张局势。美国国务卿安东尼·布林肯（Antony Blinken）一直在与俄罗斯外交部长谢尔盖·拉夫罗夫（Sergey Lavrov）举行会议，但两人没有取得任何突破，他们同意继续会谈。
+新闻链接：[Australia: Securities watchdog warns over super funds investing in digital currencies](https://coingeek.com/australia-securities-watchdog-warns-over-super-funds-investing-in-digital-currencies/)
 
-据报道，在上周末，美国已经命令其驻基辅（Kyiv）大使馆人员的家属离开乌克兰，并出于安全考虑授权一些工作人员自愿离开。英国周一表示，它正在从其大使馆撤出一些工作人员，而澳大利亚则通知其在乌克兰的公民离开。
+发布：tianzhihuan
 
-**新闻来源： **[The U.S. is placing 8,500 troops on alert for possible deployment to Eastern Europe](https://www.npr.org/2022/01/24/1075389920/us-troops-eastern-europe-russia-ukraine)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
