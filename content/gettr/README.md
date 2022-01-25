@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 7:22 AM (UTC)`
+
+1/24/2022 Miles Guo: I talked to those who wanted to invest in the Himalaya Coin and advised them to stay away from Binance, with people praising the genius design of Himalaya Coin – the Himalaya Pay guarantees secure transactions at any time without being controlled, the Himalaya Coin has stablecoins and the best KYC, and a series of Himalaya financial services will be launched in the future<br/><br/>1/24/2022 文贵直播：文贵向要投喜币的人谈喜币并劝其远离币安，众人大赞喜币的天才设计 - 喜支付保证随时交易、安全不受控，喜币有稳定币和最牛KYC，未来会推出一系列喜金融服务<br/>
+![img](https://media.gettr.com/group14/getter/2022/01/25/07/07c65fc7-e56d-cad4-a0cc-b814867c9add/out.jpg)
+
+---
+
+`@miles 1/25/2022 7:15 AM (UTC)`
+
+1/24/2022 Miles Guo: The Whistleblowers’ Movement is the first to reveal the “Double-headed Eagle” campaign orchestrated by the CCP and Russia. Xi Jinping is going to invade Taiwan soon, and Putin will take Kiev directly. The Tian Mi Mi movement will render the situations in Taiwan and Ukraine unpredictable in six weeks. The Americans will have to get involved, and the evil forces will be eliminated.<br/><br/>1/24/2022 文贵直播：爆料革命最早说出中俄“双头鹰运动”，现在习要打台湾了，普京将直取基辅；甜蜜蜜运动将让台湾和乌克兰在六周内的局势不可预测，美国会被迫介入，邪恶势力将被消灭<br/>
+![img](https://media.gettr.com/group29/getter/2022/01/25/07/66e8cca8-e6f3-a46a-f849-eb8a9943fe91/out.jpg)
+
+---
+
 `@miles 1/25/2022 6:31 AM (UTC)`
 
 1月25号：尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？<br/><br/>【甜蜜蜜<br/>你笑得甜蜜蜜<br/>好像花儿开在春风里<br/>开在春风里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里］
@@ -143,19 +157,6 @@ New Release                                              Shop Now at www.gfashio
 
 1/21/2022 Miles Guo: The CCP will certainly be taken down before 2025, and all the CCP factions will be finished. In the face of diplomatic decoupling and technological decoupling from Europe and the US, Xi Jinping is very likely to make a U-turn by restarting reform and opening up and declaring a general amnesty. Visas are going to be voided after the diplomatic decoupling. Although fellow fighters may be able to travel back to China, they won’t be able to get out. You will own nothing if the CCP is not destroyed!<br/><br/>1/21/2022 文贵直播：2025前共产党一定灭，中共所有派系都将完蛋；面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦；脱交后签证作废，战友能回国但出不来；不灭共，你啥都没有！<br/>
 ![img](https://media.gettr.com/group3/getter/2022/01/23/02/9f37451b-f8da-c4d7-faf3-56dc317434dd/out.jpg)
-
----
-
-`@miles 1/23/2022 12:39 AM (UTC)`
-
-1月22号，Hcoin To the Moon MV上线第45天位列澳门🇲🇴iTunesMV榜首🥇，累计共31次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利，老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1895664/<br/><br/>Jan 22nd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 45 Day of Launch, hit No .1 for 31 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes Rock Song Chart🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 1/22/2022 10:27 PM (UTC)`
-
-1/21/2022 Miles Guo: It matters to us whether the Americans are taking down the CCP or not, but we don’t care if they’re Republicans or Democrats; the CCP’s lying skills reached all-time high which made the U.S. videotape its military operations to defend them against the CCP’s bald-faced lies; Nawaz Sharif is a witness proving the CCP has been bribing foreign countries in the world.<br/><br/>1/21/2022 文贵直播：在我们眼里只有灭共或不灭共的美国人，无党派之分！中共造假登峰造极，逼得美军破例录像保留证据，以防中共撒谎造假；谢里夫就是证明中共行贿世界各国的证人！
-![img](https://media.gettr.com/group26/getter/2022/01/22/22/ce5837ba-3080-a8e3-6339-a0130a89afb6/out.jpg)
 
 ---
 

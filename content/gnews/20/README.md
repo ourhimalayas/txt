@@ -2,44 +2,36 @@
 ---
 
 
-## 达沃斯参会者是共产党帮凶是冠状病毒和疫苗杀人的元凶
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906682/)
+## COVID-19 最新情报｜“政府欺骗了我们”疫苗接种者深受副作用所累 后悔言论塞爆推特
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1906686/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf26e87664c47acd8ade7](https://gtv.org/video/id=61ecf26e87664c47acd8ade7)
+**撰文｜疫情关注组 / 发布时间｜25/01/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗接種者深受副作用所累-後悔言論塞爆推特.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-**郭文贵先生**：大家要想到这三个问题的时候，你就知道了这不是达沃斯跟你没关系。达沃斯这帮孙子就是靠中国人70年的血汗和我们子孙的未来，和卖掉了我们健康的土地、砍掉了所有生存的林木，我们这才是能让他们活到今天。
+在你准备阅读本篇文章之前，不妨试着先到推特上搜索关键字“Regret getting/taking vaccine”（后悔接种疫苗），验证一下，世界各地有多少人正遭受疫苗副作用的折磨，并对自己轻易相信政府而去接受 COVID-19 疫苗而悔不当初。
 
-他们，能在达沃斯所有开会的人都是共产党的帮凶，是冠状病毒、今天疫苗（灾难中）希望能做到死更多人类的人，因为他们不用花成本，欠别人的钱不用还了，保险也不用给了。现在你发现全世界不光是中共国，买了人寿保险的，死了以后一概不赔。哇塞，它大爷的，存款利息不给，基金要倒闭。
+自去年7月起，推特上面开始陆陆续续出现许多后悔接种疫苗的言论，有人对自己接种过 COVID-19 疫苗感到遗憾，表示绝对不会接受第二剂，亦有人控诉指“我每天都在后悔接种疫苗，因为副作用一直没有消失。”
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+另外，还有人认为这一切都是政府造成的，“我后悔接种了疫苗，我的政府对我撒了谎，我被告知如果我接种了疫苗，就不会染上及传播病毒，这是一个天大的谎言，我永远也不会接种疫苗。”该条留言获得许多网友的认同。
 
-编辑整理：Jacques；
+***本文截取部分供读者审览：***
 
-字幕文件制作：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-28.jpeg)
 
-视频制作及上传：Cindy；
+@TinaxDez 写道：“我以为我快要 100% 恢复了，但显然没有。我后悔打疫苗吗？是的，如果你不认为是这样的话，那你滚远点。” 
+@tahoesharie 写道：“我后悔接种疫苗，尤其是看到越来越多的人自从接种后就变得越来越虚弱。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-7.jpeg)
+@RivvaRat 写道：“我每天都在后悔接种疫苗。原本是担心自己会因为没有接种疫苗，而在生病时被拒绝救治，但自从接种疫苗后，我就一直病着。接种后一个月，我不可以再吃鸡蛋，我的淋巴结严重肿痛，以至于我几乎晚晚失眠。” 
+@zukiiswa\_gwija 写道：“我后悔接种疫苗，我经历过副作用你想听听吗？腹痛、胸痛、头痛、呼吸急促、异常皮肤刺激症、高烧、腹泻，我仿佛正在地狱里。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-4.jpeg)
+@Cecilia97N 写道：“真相就是，我昨晚差点死了。我决定今天回到家乡，告诉家里的长辈们，我很抱歉，我让我自己的生活变成这样，然后我很后悔接种疫苗。” 
+@VisctStrauss 写道：“J&J疫苗让我躺在床上两天，我觉得自己好像得了疟疾一样，我后悔接种疫苗。” 
+@pabloes75859097 写道：“对很多人来说，流感比新冠病毒的致死率更高，尤其是年轻人，怎么没让我们像现在这样接种什么该死的疫苗。这些坚持和恫吓民众接种新冠疫苗的人绝对有问题。我后悔接种疫苗。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-4.jpeg)
+@Longisland\_wx 写道：“我知道改善的机率很低，如果未来几年出现更复杂的情况……美国人将自行崩溃，这绝对是场战争。我后悔接种了疫苗，但我只能这样做，因为纽约很荒谬，否则我将无法过上我的生活，我只能祈祷我的基因没有被搞砸。”
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+来源｜[dailyveracity](https://www.dailyveracity.com/2022/01/23/shock-thousands-on-twitter-regret-getting-the-vaccine-side-effects-worse-than-covid/)
 
  
 

@@ -2,22 +2,24 @@
 ---
 
 
-## 雅典娜时报-第184期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906869/)
+## 中日财经爆│乌克兰局势升级 日本国防股大涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906877/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+撰稿：东京樱花团/麗子
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![2017年1月26日，郭文贵先生接受明镜新闻网陈小平先生的专访，从此掀开爆料革命的伟大篇章。](https://media.discordapp.net/attachments/825592691433668612/935411796800585748/155_7.png?width=798&amp;height=1188)![圖片](https://media.discordapp.net/attachments/825592691433668612/935411797173866516/155_4-2.png?width=798&amp;height=1188)
-*发布：陶子*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/乌克兰局势升级-日本国防股大涨.png)[图片来源](https://kotobank.jp/word/%E6%9D%B1%E4%BA%AC%E8%A8%BC%E5%88%B8%E5%8F%96%E5%BC%95%E6%89%80-103346)
 
+25日上午，东京股票市场上与国防有关的股票大受追捧。石川制造厂（地雷制造商）上涨8%，丰和工业（枪械制造商）上涨2%，东京计器（军用导航系统）和日本AVIO（精密焊接等）也表现强劲。贾斯达克的细谷火药品公司上涨了11%。
+
+俄罗斯和乌克兰之间的紧张局势不断升级，北大西洋公约组织（NATO）24日表示，正在加强在东欧的海军舰艇和战斗机的部署，并向东南地区增派部队。
+
+信息源:
+
+[東京市場で防衛関連株が買われる、ウクライナ情勢緊迫で](https://news.yahoo.co.jp/articles/74a8d51ee60a428478e0e8771887b9a0faf38dfe)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

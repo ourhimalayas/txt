@@ -2,51 +2,30 @@
 ---
 
 
-## 美日加强训练 中共军机扰台 台海再引关注
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906475/)
+## 扬帆每日速递 2022年1月24日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1906494/)
 
-作者：纽约磐石农场 – 在远方， 台湾宝岛农场 – dobi
+加拿大温哥华扬帆农场 海报组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、尽管一直深陷关于隐私和虚假信息的争议中，脸书母公司Meta周一宣布，它正在推出世界上最强大的超级计算机，以提高其处理数据的能力。
 
+2、加拿大卡车司机抗议活动Freedom Convoy 2022的众筹活动10天之内已经筹集超过300万美元，而且没有放缓的迹象。卡车车队周日从全国多个地点出发，预计将在一周内汇聚渥太华。
 
+3、据文贵大直播：盛大的奥运会开幕式背后，是最邪恶的力量支撑，共产党在全世界面前拙劣的表演，对新中国联邦最有利。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+4、据文贵大直播：共产党是最大的邪教组织，在邪教组织6个特征之上加上第七条：篡改历史。
 
+5、中国新年是中国人一年中最盛大的节日，清零政策下 许多中共国家庭被迫三年分开过年。
 
+6、习近平1月24日主持召开政治局会议，要求中央书记处带头维护党中央权威和集中统一领导，完成好党中央交办的各项任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板124-2_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
-1月23日晚，台湾空军发布共军军机动态，当日有39架共军战机，入侵台湾西南防空识别区。
+编辑：文敏
 
-同日，日本海上自卫队宣布，已跟美国海军航空母舰等舰艇，在冲绳南方实施联合训练。训练自17日至22日举行，日方大型护卫舰日向号，美方卡尔文森号航母、林肯号航母、以及两栖突击舰与驱逐舰等，共10艘舰艇参加了演练。
+发布：风起云间（文敏）
 
-分析认为，美日军演，是针对中共此前对台湾的威胁开展武力威慑；而中共此次扰台机群武力并非最强，威胁程度也不是最大，应该是针对美日的联合军演表达自己不示弱的态度。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-4.jpg)
-参考信息：
-1. [美日沖繩南方海域軍演 39架共機擾台西南ADIZ (影音)](https://cn.rti.org.tw/news/view/id/2122937)
-2. [海自与美海军在冲绳以南实施联合训练](https://china.kyodonews.net/news/2022/01/2395add60d32.html)
-3. [9架共機擾台 學者：表達對美日軍演不示弱態度](https://udn.com/news/story/10930/6055655?from=udn-catebreaknews_ch2)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+海报图片设计：飞天面、 Shuang
 
  
 

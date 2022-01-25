@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥谈人生规划（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906687/)
+## 七哥谈人生规划（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906711/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
