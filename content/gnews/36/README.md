@@ -2,45 +2,38 @@
 ---
 
 
-## 英国修订《高等教育法案》以打击外国势力对英国大学的渗透
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1908531/)
+## 韩国的中共病毒感染、疫苗接种与人口变动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1908545/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/NHS-staff-vaccine-protest1.jpg)图片来源：《每日邮报》
-《每日邮报》网站1月23日报道，英国大学可能要被迫申报所有海外捐款，以打击外国势力购买影响力。
+作者：香草山教育部-Corn
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年，韩国中共病毒的感染人数达到了六十三万五千两百五十三人人，染疫死亡者也有5,625人。2020年，这两个数据分别是感染6万零7百4十人和染疫死亡900人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-34.jpg)
+另外，根据韩国疾病管理厅给出的数据，截至2021年，因疫苗接种死亡的案例是1,340例，在2022年这一数据将不再更新，因此没有最新的数据。
 
-一项针对《高等教育(言论自由)法案》的修正案将迫使大学披露任何捐赠金额超过5万英镑的外国捐款者的姓名。学生事务办公室监督机构将在年度登记册上公布这些名字。其目的是恢复公众的信任，并揭露潜在的利益冲突。
+与此同时，疫苗二次接种率已超过83%的韩国，2021年总人口数较2020年减少了19万零2百一十4人，这无疑是死亡人口的激增和出生人口大量减少造成的。
 
-部长们去年发起了一项调查，调查接受中共国资助的大学学者是否向中共政权传递敏感信息。这包括可用于帮助镇压少数民族的英国技术。许多大学依赖于来自中共国学生的钱。一些大学此前曾以合同交易和商业敏感性为由拒绝透露外国捐款者的名字。
+而最新的3针疫苗接种情况显示，绝大多数民众还处在被蒙蔽中，推动疫苗政策的执政党很有可能大概率维持现有政策。即将到来的2022年3月新一届总统选举，给原本复杂的形势增添了更大的不确定性，整体局势不容乐观。
 
-目前正在议会审议的该法案的修正案由保守党议员杰西·诺曼(Jesse Norman)提出。该动议得到了国会议员罗伯特·巴克兰 (Robert Buckland) 爵士、达米安·格林(Damian Green)和下议院教育特别委员会主席罗伯特·哈尔丰(Robert Halfon)的附议。
+参考链接：
+1) . [주민등록 인구 기타현황](https://jumin.mois.go.kr/etcStatDeath.do)
+2) .[**코로나19 예방접종 및 국내 발생 현황(1.5.)**](https://www.kdca.go.kr/board/board.es?mid=a20501010000&amp;bid=0015&amp;list_no=718196&amp;cg_code=&amp;act=view&amp;nPage=3%E9%9F%A9%E5%9B%BD%E7%96%BE%E7%97%85%E7%AE%A1%E7%90%86%E5%8E%85%E5%AE%98%E7%BD%91)
+3) . [新型冠状病毒肺炎（COVID-19）韩国疫情动态图](http://www.ckjorc.org/cn/charts/krcovid19.html)
+4) . [**코로나19 예방접종 및 국내 발생 현황(12.12.)**](https://www.kdca.go.kr/board/board.es?mid=a20501010000&amp;bid=0015&amp;list_no=717922&amp;cg_code=&amp;act=view&amp;nPage=10)
 
-诺曼先生说：“在我看来，这并不是一个针对任何特定的个人、国家或可识别的潜在不当影响来源的条款。它旨在改善英国高等教育的运作并提高其声誉，毕竟，这是英国国际声誉的瑰宝之一。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-哈方先生补充说：“在过去的几年里，大学陷入了来自中共国公司和中东的有争议的捐款事件中。我很高兴支持这项修正案，它将确保实施适当的审查和透明度，我希望政府会同情地考虑这项修正案。”
+总编: 飞虹
+编辑： Ivy001
+校正/发稿：Fei797
 
-代表副校长的英国大学发言人说：“英国大学是全球性的机构，将继续欢迎来自世界各地的学生。作为自治机构，它们已经负责制定政策和做法，以管理和减轻任何相关风险。”
-
-“这些将参考现有的建议、信息和其他指导来制定，英国大学已经与政府合作了一系列倡议，包括‘在国际化过程中的风险管理’指南，以确保大学的决策者能够获得他们做出知情选择所需的信息。”
-
-罗素集团(Russell Group)的一位发言人说：“没有人会否认一个透明的、拥有公众信任的融资系统的重要性。各大学努力遵守已经存在的广泛的透明度要求，包括最近颁布的《国家安全与投资法案》。”
-
-“此拟议的修正案似乎要求收集和报告各种数据，从由家庭成员支持的个别海外学生的个人财务状况，到与主要研究伙伴关系相关的历史合同数据，以及介于两者之间的一切。这将给大学带来沉重的报告负担，有可能对学生事务办公室从该行业获得的巨额回报带来巨大的风险，并可能阻止国际企业的外来投资，而不会对我们保护言论自由的工作方式产生有意义的影响。我们随时准备与政府和国会议员合作，回应他们的担忧，但我们不认为此拟议的修正案是正确的做法。”
-
-**简评：**作为学术研究机构，很难想象收到数百万捐款后带来改变的只是表明上的命名变化，隐瞒这些利益冲突极有可能引发严重的学术腐败问题甚至是国家安全问题，给像中共政权这种把蓝金黄玩得炉火纯青的国外势力以可乘之机。既得利益者们竭力阻止披露巨额款项的来源背后必有不可告人的秘密，代表英国政府和议会利益的罗素集团反对修正案的借口十分可笑，这恐怕是在假借替监督部门担心维护自己的利益。因为学生事务办公室的其中一项职能就是要确保大学拥有“言论自由”。而此次修正案就是针对《高等教育(言论自由)法案》的修正案。我们期盼此次修正案可以顺利通过，以便进一步在英国教育机构中清除中共政权的影响力，为消灭中共加一份力。
-
-新闻链接：[https://www.dailymail.co.uk/news/article-10433667/University-chiefs-face-ordered-foreign-donors-new-crackdown-influence-buying.html](https://www.dailymail.co.uk/news/article-10433667/University-chiefs-face-ordered-foreign-donors-new-crackdown-influence-buying.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

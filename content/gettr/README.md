@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 5:28 PM (UTC)`
+
+1月25号：大功告成……馍馍出锅……
+![img](https://media.gettr.com/group38/getter/2022/01/25/17/b43b7186-746c-b7e2-37d1-1e284f688559/out.jpg)
+
+---
+
 `@miles 1/25/2022 5:06 PM (UTC)`
 
 1/25/2022 Miles Guo: The Major Achievement of “the Tian Mi Mi Movement” - The US government just made a significant historical decision to issue the “authorized evacuation” of the US embassy in Beijing. On behalf of the New Federal State of China, Mr. Miles Guo sincerely appreciates President Biden and Secretary Blinken. History will prove the significance of this decision for humanity and preservation of human rights.<br/><br/>1/25/2022 文贵直播：“甜蜜蜜运动”重大成果 - 美国政府刚刚做出的重大历史决定“授权撤离”美驻北京大使馆,  郭文贵先生代表新中国联邦代感谢拜登总统和国务卿布林肯先生，历史会证明该决定对人类和人权维护的重大意义！<br/>
@@ -148,13 +155,6 @@ New Release                                              Shop Now at www.gfashio
 
 1月23号：在欧洲议会上．震聋发聩的声音．和有良知人的正义的力量．最终会战胜邪恶的！这个视频我看了很多遍！谋杀就是谋杀．谋杀就是谋杀……那些没有受过高等教育和专业医疗教育的人，怎么会知道疫苗是没有经过验证和充分的科学证明的谋杀人的生化武器呢？这说的太好了，问的太好了．新中国联邦朋友无处不在……力量无处不在，我们将改变这个世界上无处不在的黑暗势力……
 ![img](https://media.gettr.com/group33/getter/2022/01/23/15/8db6b157-76ff-79a8-2815-145841a818df/out.jpg)
-
----
-
-`@miles 1/23/2022 2:48 PM (UTC)`
-
-1月23号：尊敬和战友们好，你们健身了吗？传播CC P病毒．疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group37/getter/2022/01/23/14/15c3a75d-8c83-8ad2-be3e-293fdc7f74ef/out.jpg)
 
 ---
 

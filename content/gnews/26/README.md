@@ -2,117 +2,111 @@
 ---
 
 
-## 为什么美国壮年人中非COVID死亡人数激增？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1908683/)
+## 【Michael.Tonny专栏】NSW数据证明 接种疫苗后感染机率上升10倍以上
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1908853/)
 
-翻译：Jenny Ball
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2084.png)2021 年 9 月 2 日，一名医生在加利福尼亚州塔扎纳的一家医疗中心检查一名 34 岁的患者。（Apu Gomes/AFP via Getty Images）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-在过去两年左右的时间里，美国人的死亡率明显更高，但 COVID-19 疾病只是一部分。总体而言，基于年龄的数据中，似乎存在三种不同的模式：
+试验性的COVID-19病毒疫苗不能预防感染，只会导致身体免疫力持续下降，感染中共病毒的风险成倍增加。
 
-在 0 至 17 岁的人群中，死亡率自 2019 年以来基本保持不变。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-WEEKLY-SURVEILLANCE-IN-NSW-Epidemiological-week-52-ending-1-January-2022.jpg)
 
-在 65 岁或以上的人群中，死亡率在 2020 年上升，在 2021 年上半年下降，与 COVID-19 疫苗的扩散相吻合，然后在 2021 年第三季度上升，与 Delta 变体的出现相吻合 ，Delta似乎对疫苗更有抗拒力。
+在新南威尔士洲政府1月20日发布的新南威尔士州每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)）第30页，有与苏格兰公共卫生部门1月19日发布的苏格兰公共卫生COVID-19 和冬季统计报告（[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)）类似的关于COVID-19疫苗接种状态分四种情形的定义：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)
+未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2086.png)图片来源**：**theepochtimes.com
+接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
 
-在 18 至 49 岁的人群中，死亡率在 2020 年上半年急剧上升，然后在 2021 年第三季度再次上升之前处于平稳状态。
+完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2088.png)图片来源**：**theepochtimes.com
+疫苗接种状态不明确（Under investigation）
 
-50 至 64 岁的年龄组似乎是后两种模式的混合体。
+根据这样的定义，显然存在大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群。
 
-**COVID-19 ****影响**
+然而即使这样故意把打了一针的人计算成没有打疫苗的感染，在今年1月2日~1月8日的新增感染COVID病例中，打了1针疫苗和完全接种疫苗的人群依然占所有感染者的99.51%，仅0.49%的新增COVID-19病例出现在未接种疫苗人群中！接种COVID-19疫苗的感染率持续上升，目前高达未接种疫苗人群的10.8倍！
 
-**当突出显示涉及 ****COVID-19 ****的死亡时，年龄组之间的差异变得更加明显**。
+这份报告并未明确指明1月2日~1月8日一周时间内，新南威尔士州所有新增确诊、住院、ICU和死亡病例数字，只提供了2021年11月26日~2022年1月8日的数据，但另一份1月13日发布的报告[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022 Published 13 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)详细记录了11月26日~2022年1月1日的数据，因此很容易得到2022年1月2日~1月8日一周时间内，新南威尔士州所有新增确诊、住院、ICU和死亡病例数字。
 
-在 18 岁以下，与 COVID 相关的死亡在可视化时几乎没有记录。
+下表为1月13日报告第8页，表6，2021年11月26日~2022年1月1日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2090.png)图片来源**：**theepochtimes.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-6-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-1-January-2022.jpg)
 
-对于 75 岁及以上的人来说，这种新型疾病足以解释死亡率的增加。对于 65 至 74 岁的人来说，早在大流行之前，死亡人数就在上升。 不包括 COVID 死亡人数的增加略高于之前的趋势。
+2021年11月26日~2022年1月1日，新南威尔士州COVID-19新增感染者中，完全接种疫苗的108,056例，部分接种疫苗的1,110例，未接种疫苗的2,765例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2092.png)图片来源**：**theepochtimes.com
+在新增COVID病例中，接种疫苗的共109,166人，未接种过疫苗的2,765例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为111,931例。接种过疫苗的占97.53%，未接种疫苗的占2.47%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2094.png)图片来源**：**theepochtimes.com
+这和中共国的数据相当。根据[中共国务院新闻办公室网站](http://www.scio.gov.cn/index.htm)新闻，[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)消息，在本月12日中共国天津市疾病预防控制中心主任、市卫生健康委副主任韩金艳，市委教育工委专职副书记孙志良，津南区副区长陈妍卉，市疾病预防控制中心副主任张颖主持的天津市疫情防控的有关情况会上公布：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2096.png)图片来源**：**theepochtimes.com
+“天津107例感染者中，103例完成全程接种（包括完成加强接种32例），3例仅接种1剂次灭活疫苗，1例未接种”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tian-jin-166.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tian-jin-covid-19-vaccination-status.jpg)
 
-然而，在 18 至 65 岁的人群中，出现了相反的现象——在排除 COVID 死亡后，死亡率仍然显着上升。非 COVID 增加在较年轻的年龄组中似乎更明显，而在年长的年龄组中则较少。
+天津新增COVID-19确诊病例中，接种过中共病毒疫苗的人占99.07%，未接种疫苗的人仅占0.93%！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2098.png)图片来源**：**theepochtimes.com
+2021年11月26日~2022年1月1日的中位日期为2021年12月13/14日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NSW-vaccine-targets-and-forecasts.png)
+2021年12月13日，1针94.78%，完全接种93.15%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2100.png)图片来源**：**theepochtimes.com
+2021年12月14日，1针94.8%，完全接种93.2%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2102.png)图片来源**：**theepochtimes.com
+完全接种疫苗的平均值为93.175%，部分接种疫苗的平均值为94.79%，未接种疫苗的占1-94.79%=5.21%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2104.png)图片来源**：**theepochtimes.com
+根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（108,056÷93.175%）÷（2,765÷5.21%）=2.19倍。
 
-有几个因素可以解释至少部分超额死亡原因。
+接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（109,166÷94.79%）÷（2,765÷5.21%）=2.17倍。
 
-**毒品、酒精、谋杀**
+下表为1月20日报告第7页，表5，2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
 
-2020 年，药物过量使用猛增，18-64 岁年龄段的死亡人数比前一年增加了 20,000 多人。美国CDC2021 年上半年的初步数据表明，这一趋势甚至有所加剧。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-5-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-8-January-2022.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2106.png)图片来源**：**theepochtimes.com
+2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊感染者中，完全接种疫苗的267,381例，部分接种疫苗的2,578例，未接种疫苗的3,552例。
 
-与酒精有关的死亡——不仅是酒精中毒，还包括因酒精性肝硬化和其他酒精引起的原因导致的死亡——近年来一直在上升，但 2020 年的增长尤为显着。2020 年 18-64 岁年龄组的死亡人数比前一年增加了近 8,000 人。 2021 年的数据尚未公布。
+在新增COVID病例中，接种疫苗的共269,959人，未接种过疫苗的3,552例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为273,511例。接种过疫苗的占98.7%%，未接种疫苗的占1.3%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2108.png)图片来源**：**theepochtimes.com
+2021年11月26日~2022年1月8日的中位日期为2021年12月17日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
 
-从 2019 年到 2020 年，18-64 岁年龄段的凶杀案死亡人数增加了近 30%，造成近 4,000 人额外死亡。基于 CDC 2021 年上半年的初步数据，去年形成类似的杀人事件。
+2021年12月17日，1针94.85%，完全接种93.34%，未接种疫苗的占1-94.85%=5.15%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2110.png)图片来源**：**theepochtimes.com
+根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（267,381÷93.34%）÷（3,552÷5.15%）=4.15倍。
 
-排除 COVID-19 死亡，并假设药物过量、酒精和凶杀死亡在 2021 年继续以与前一年相似的强度，去年 18-64 岁年龄组仍有约 50,000 人额外死亡。
+接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（269,959÷94.85%）÷（3,552÷5.15%）=4.13倍。
 
-**分类错误比比皆是**
+根据1月13日和1月20日的报告，可得1月2日到1月8日一周内，新增感染、住院，ICU和死亡人数。
 
-CDC和一些专家认为，过多的死亡可能被错误地归类为 COVID-19 死亡，以及由于医院人满为患而导致缺乏护理而导致的死亡。他们指出，大约1/3的美国人死于家中。 他们的死亡证明可能由不会对患者进行 COVID-19 检测的主治医师出具。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/subtract-the-two-tables.png)
 
-CDC 于 2020 年 6 月 15 日发布了指导意见，所有疑似死于 COVID-19 的人都应该在死后接受检测，但目前尚不清楚医生在多大程度上遵循了该指南。
+2022年1月2日~2022年1月8日，新南威尔士州COVID-19新增确诊感染者中，完全接种疫苗的159,325例，部分接种疫苗的1,468例，未接种疫苗的787例。
 
-这种解释可能由于几个原因而受到限制。
+在新增COVID病例中，接种疫苗的共160,793人，未接种过疫苗的787例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为161,580例。接种过疫苗的占99.51%，未接种疫苗的占0.49%。
 
-随着大流行的爆发，在家中的死亡人数确实有所增加，从 2019 年的不到 32% 上升到 2020 年 6 月的 36% 以上。但随后这一比例又下降到 2020 年 12 月的不到 31%。如果人们被迫在家中死亡，因为他们无法获得医疗服务，它似乎并没有广泛到足以解释过度的死亡率差距。
+这期间的中位日期为2022年1月5日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
 
-错误分类 COVID 死亡的论点，通常假设垂死的人患有多种疾病，而主治医师没有注意到 COVID-19 至少也是一个促成因素。目前尚不清楚这要多久才能适用于通常更健康的年轻人，他们 COVID-19 死亡人数较少，且可能少的更突出。
+2022年1月5日，1针95.02%，完全接种93.62%，未接种疫苗的占1-95.02%=4.98%。
 
-疫苗
+根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（159,325÷93.62%）÷（787÷4.98%）=10.8倍。
 
-越来越多的医生和研究人员指出，COVID-19 疫苗可能是去年至少部分死亡人数的罪魁祸首。他们通常指出， 疫苗可能造成伤害的几种生理机制以及已知的副作用，以及来自疫苗不良事件报告系统 (VAERS) 的数据，可能是或不是由它引起的。
+接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（160,793÷95.02%）÷（787÷4.98%）=10.71倍。
 
-VAERS 报告随着 COVID-19 疫苗的推出而爆炸式增长。到 1 月 7 日，已有超过 100 万份报告，其中包括 21,000 多人死亡。以前，每年大约有 40,000 份报告和数百人死亡。根据先前的研究，它们主要由卫生保健人员提交。
+通过新南威尔士州的报告，随着接种疫苗时间的推移，接种疫苗的感染机率在成倍上升，在所有感染者中，已经达到99.51%以上为接种过疫苗的人。
 
-反对 VAERS 数据的常见论点是，它未经验证且不可靠。**然而，一些研究人员指出，该系统并非旨在提供明确的答案，而是提供早期警告**。他们认为，这些报告引发了许多尚未得到充分调查的危险信号。
+最后提醒，这些数据是在新南威尔士洲政府将很多接种疫苗不超过21天的感染者算成未接种疫苗人群的结果。
 
-**有特定规定、条件或限制警告和附带条件的****CDC ****数据**
+参考数据：
 
-CDC 网站上提供的最新详细死因数据是 2020 年的。对于 2021 年，CDC 每两周发布一些初步数据，但警告说，作为死亡证明，来自全国各地的数据流有 8 周或更长时间的滞后。对于此分析，仅使用了截至 10 月的数据。对于 COVID-19、肺炎和流感以外的特定死亡原因，可用的 2021 年数据CDC 并未按年龄细分，从而限制了其在此分析中的用处。
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
 
-此外，CDC 涵盖 2021 年的 COVID-19 死亡率数据，将所有死亡证明上都标有 COVID-19 的死亡，无论它是否被列为根本原因或促成因素。**在大流行初期，****CDC****指示医生将所有检测呈阳性的死者，甚至那些有类似 ****COVID ****症状但未经检测的死者，都标记为由 ****COVID-19 ****引起的死亡**。2020 年晚些时候，指导方针逐渐改变，未经检验的病例将被分开，并且 COVID-19 必须至少是死亡证明上列出的一个促成因素。
+[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
 
-在 2020 年下半年，即在这一点上可获得死亡证明数据的最后一个时期，近 90% 的涉及 COVID-19 的死亡，都将Covid-19疾病列为根本死因，而不是促成因素。
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022 Published 13 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
 
-一些专家还指出，政府政策可能是造成一些超额死亡的罪魁祸首。一些研究和轶事报告表明，学校停课和企业停业导致财务危机和心理抑郁，在某些情况下，**可能导致死亡**。不过，根据现有数据，自杀死亡人数在 2019 年至 2021 年 6 月期间相对稳定。
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
 
-**COVID****后的死亡**
+[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
 
-COVID-19 可能对健康产生更隐蔽的影响。12 月发表的一项研究发现，因 COVID-19 住院的人，在之后的 12 个月内死于 COVID-19 以外的其他疾病的风险，是去看医生但检测呈阴性的人的 2 到 3 倍。
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-该研究的主要作者、社区卫生和家庭医学部研究副主席，佛罗里达大学的 Arch Mainous 说：“在严重的 COVID 发作期间，炎症的巨大爆发似乎导致了许多其他问题。”“看起来这种生物性侵害对你的身体产生了整体影响，”他告诉《大纪元时报》。
-
-最后，研究整个人口的平均死亡风险特别高。在包括在内的 13,600 多人中，有 2,600 多人在一年内死亡——接近 20%。相比之下，85 岁或以上的美国人的年死亡率约为 10%。
-
-**素材链接：**[theepochtimes.com][EXCLUSIVE: Why Are Non-COVID Deaths Spiking Among Prime-Age Americans?](Why%20Are%20Non-COVID%20Deaths%20Spiking%20Among%20Prime-Age%20Americans?)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

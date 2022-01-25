@@ -2,24 +2,37 @@
 ---
 
 
-## 日本民众在觉醒 要求停止给未成年人接种疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1909054/)
+## 有声|美国重量级众议员预测中共将在冬奥会后入侵台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1909087/)
 
-撰稿：东京樱花团｜闻雨
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-1.png)
-图片来自信息网站
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国媒体01月22日报道，美国众议院外交事务委员会领导人迈克尔·麦考尔在1月21日，与记者通话时预测，中共可能会在2月北京举行的冬奥会之后，军事侵略台湾。
 
-1月25日据RBC琉球广播电视台报道，冲绳县将于3月开始给儿童接种中共病毒疫苗。本月25日，该县的一个由医生和孩子家长组成的民间团体向冲绳县政府提交了一份请求书，要求停止给未成年人接种中共病毒疫苗，因该疫苗的中长期副作用尚不明确。
+麦考尔指出，在过去几十年来，中共一直声称台湾不是一个主权国家，是中共国的一部分。而现在中共吞并台湾的野心马上会付诸行动。
 
-日本政府1月21日宣布将允许给5岁以上、12岁以下的儿童接种疫苗。该团体呼吁县政府在中共病毒疫苗的安全性和有效性还未得到证实之前，为儿童接种中共病毒疫苗的问题应该认真考虑，并说在没有解决家长的担忧的情况下进行疫苗接种是有问题的。当涉及到孩子的问题时，民众就不会那么容易被忽悠了，这关乎着日本的未来，今后一定会有更多的家长和医生站出来。
+麦考尔同时预测，俄罗斯很可能在下个月入侵乌克兰。美国政府对此高度关注，警告俄罗斯入侵乌克兰将付出严重的经济代价。
 
-信息来源：
+原文链接：[美国重量级众议员预测中共将在冬奥会后入侵台湾](https://gnews.org/zh-hans/1903769/)
 
-[**未成年へのワクチン停止を 要望書を提出**](https://www.rbc.co.jp/news/news_all/%e6%9c%aa%e6%88%90%e5%b9%b4%e3%81%b8%e3%81%ae%e3%83%af%e3%82%af%e3%83%81%e3%83%b3%e5%81%9c%e6%ad%a2%e3%82%92%e3%80%80%e8%a6%81%e6%9c%9b%e6%9b%b8%e3%82%92%e6%8f%90%e5%87%ba/)
+音频处理/发稿：Daxia
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  
