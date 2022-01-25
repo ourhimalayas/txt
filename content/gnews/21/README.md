@@ -2,25 +2,24 @@
 ---
 
 
-## 秦刚一战狼外交变战羊外交
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1907100/)
+## 国会两院呼吁和要求召开乌克兰情况简报会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907111/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 撰稿：彩虹
 
-头两天，国内发生了一个事情。有人在内部的国安会上，那是直接跟习直接通话的人啊。在国安会上讨论为什么秦刚到美国以后，一 个基本的国礼都没了呢？大家想过没有两件事儿，中国驻美国大使，又是代办又是撤回，然后派来了秦刚，战狼外交变成战羊外交。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-40.jpg)图片来源：雅虎
+面对俄罗斯在乌克兰边境的军事集结导致的紧张关系加剧，1月24日，《新闻极限》报道参议员多数党领袖查克·舒默（Chuck Schumer）要求拜登政府向参议员们通报情况。
 
-然后美国第一次听说有人给中国政府提出了条件，说秦刚这个大使啊，说的话是非常有问题的，如果他这样下去的话，中美之间关系 的改善是可能性没有了。
+而据《国会山报》报道，一位熟悉此事的消息人士证实，舒默要求在参议员们下周结束一周的休息返回华盛顿时向政府举行全院通报会。
 
-每天人家在问听说你们搞的战狼外交派你来了，你这个要变成战羊外交，你怎么看？秦刚原话:我们不是战狼外交，我们是与狼为伍, 与狼共舞。哇塞！你是狼啊，我与狼共舞，我奉陪到底。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/秦刚——战狼外交变战羊外交-.jpg)
-发布： *tianzhihuan*
+周一早些时候，众议院议长南希·佩洛西(Nancy Pelosi)为所有众议员发出了单独的简报请求。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源**
+
+[Amid Tensions With Russia, Schumer Requests Senate Briefing on Ukraine](https://www.newsmax.com/politics/russia-ukraine-congress-biden-administration/2022/01/24/id/1053816/)
+
+[Pelosi requests all-member briefing on Ukraine](https://thehill.com/homenews/house/591068-pelosi-requests-all-member-briefing-on-ukraine)
 
  
 

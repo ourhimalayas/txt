@@ -2,24 +2,25 @@
 ---
 
 
-## 国会两院呼吁和要求召开乌克兰情况简报会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907111/)
+## 圣诞大直播后的巨大反响
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1907120/)
 
-#### 撰稿：彩虹
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-40.jpg)图片来源：雅虎
-面对俄罗斯在乌克兰边境的军事集结导致的紧张关系加剧，1月24日，《新闻极限》报道参议员多数党领袖查克·舒默（Chuck Schumer）要求拜登政府向参议员们通报情况。
+继前天的9个小时大直播后，国内引起巨大的反响。
 
-而据《国会山报》报道，一位熟悉此事的消息人士证实，舒默要求在参议员们下周结束一周的休息返回华盛顿时向政府举行全院通报会。
+那么这几天国内也发生了很多很多的事情，特别是国内的这个冬奥会。之前包括刘亚洲被抓，包括最重要的现在中美之间的关系进入到一个非常非常的敏感时期。我 今天6点上床睡觉，6点50分起的床，到刷牙冲凉，信息都不断，都是在问这个问题。美国的华盛顿的政治老人都起得比较早，几分钟以前还在问有关信息，包括西安的事件，包括国内的粮食、经济，还有一些政治的较量。
 
-周一早些时候，众议院议长南希·佩洛西(Nancy Pelosi)为所有众议员发出了单独的简报请求。
+战友们大家都是从网络上、Google上收到的信息，要去Google找答案，Google永远不会给你真相，永远不会给你答案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/圣诞大直播后的巨大反响-.jpg)
+发布： *tianzhihuan*
 
-**新闻来源**
-
-[Amid Tensions With Russia, Schumer Requests Senate Briefing on Ukraine](https://www.newsmax.com/politics/russia-ukraine-congress-biden-administration/2022/01/24/id/1053816/)
-
-[Pelosi requests all-member briefing on Ukraine](https://thehill.com/homenews/house/591068-pelosi-requests-all-member-briefing-on-ukraine)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
