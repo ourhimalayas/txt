@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 12:58 PM (UTC)`
+
+Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者，他只能别无选择的看着这些病人死去。最终，邪恶的医院结束了他的医学生涯。<br/><br/>Dr. Paul Marik was forbidden by the hospital to treat patients with the CCP virus the way he had to be to treat patients ; he had no choice but to watch them die. Eventually the evilness of the hospital ended his medical career.<br/>
+![img](https://media.gettr.com/group33/getter/2022/01/25/12/f280b918-d4ac-437c-c4d7-56af0ff8a01c/out.jpg)
+
+---
+
 `@miles 1/25/2022 7:25 AM (UTC)`
 
 1/24/2022 Miles Guo: History is repeating itself, and God is on the side of the New Federal State of China! Thank Xi Jinping for hosting a grandiose Winter Olympics - spending a ton of money to let Putin stay 20 hours longer, changing the banquet venue from the Pangu Plaza to the Great Hall of the People, putting the athletes into the "cells", and deploying State Security agents everywhere in the dining halls.<br/><br/>1/24/2022 文贵直播：历史在重演，上天站在新中国联邦这边！感谢习太阳大办冬奥会 - 花大价钱让普京多呆20小时，宴会场所从盘古改到人民大会堂，让运动员进入“牢房”，餐厅到处是国安。<br/>
@@ -150,13 +157,6 @@ New Release                                              Shop Now at www.gfashio
 
 1月22号：尊敬的战友们好……收到了很多战友发来的各种信息……喜欢今天直播时带的帽子！七哥为了补偿战友们要等2天甚至3天后的直播．七哥决定现在脱录一段，让战友们开心开心！
 ![img](https://media.gettr.com/group40/getter/2022/01/23/02/ae1c1413-a09d-fd0e-79f6-f63dfc5dc1cf/out.jpg)
-
----
-
-`@miles 1/23/2022 2:23 AM (UTC)`
-
-1/21/2022 Miles Guo: Xi’s closest childhood friend told Xi that a) it’s his far-left policies that led to China’s loss of market value and credibility; b) The confrontation between Xi and the West has rendered both the Chinese people and China the common enemies of two thirds of the world’s population; and c) if Xi doesn’t reform the political system, he won’t be able to make any changes.<br/><br/>1/21/2022 文贵直播：习最亲的发小告诉习，是他的极左政策让中国失去了市场的价值和信用，习跟西方的对抗让中国人和中国成为全球三分之二的人的公敌，若不搞政治改革，习的任何改变都不可能成功<br/>
-![img](https://media.gettr.com/group17/getter/2022/01/23/02/00b1e930-39fa-239a-5205-da37cca7fcb2/out.jpg)
 
 ---
 
