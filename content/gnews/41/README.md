@@ -2,22 +2,30 @@
 ---
 
 
-## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
+## 美军两个航母打击群进入南海争议区域 表达维护盟友立场
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903905/)
 
-**疫情關注組 / 發佈時間｜24/1/2022**
+#### 撰稿：日本东京方舟农场 Kevin wang
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13E05279-95EB-4026-8636-80E0B105AF00.jpeg)（图片来自中央社）
 
+1月24日，美国国防部表示，美军2个航空母舰打击群于23日驶入南海争议海域进行训练，美军指挥官表示，此举意在表示对区域盟友的支持，并展现美方「对抗恶意影响」的决心。
 
-据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
+中央社报道， 美国五角大厦24日发布声明称，海军卡尔文森号（USS Carl Vinson CVN-70）、林肯号（USS Abraham Lincoln CVN-72）航空母舰打击群23日在南海展开行动。美国国防部表示，这两个航舰打击群将进行反潜作战、空中作战、海上拦截等演训行动，以加强战备能力。
 
-[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
+该声明还引述林肯号打击群指挥官安德森少将（Rear Admiral J.T. Anderson）说法称：「此类行动能提高我们的可恃战力，让我们的盟友和伙伴安心，展现美国海军捍卫区域稳定及对抗恶意影响的决心。」
 
-以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
-来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
+此外，日美于本月17日至22日间举行联合训练，日方派出大型护卫舰日向号（满载排水量1万9000吨），美方则派出卡尔文森号、林肯号及两栖突击舰与驱逐舰等，总计日美共10艘舰艇参与。
+
+*参考链接： [五角大廈：2艘航艦在南海訓練 以對抗惡意影響](https://www.cna.com.tw/news/aopl/202201240318.aspx)*
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑： 青城道姑*
+
+*发布：miumiu*
 
  
 

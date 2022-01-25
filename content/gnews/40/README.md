@@ -2,34 +2,52 @@
 ---
 
 
-## 美众议院提出《武装台湾法案》
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903782/)
+## 天津爆发大规模抗议 超十万民众声讨中共当局
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1904214/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+**作者**：纽约香草山教育部-Noemi
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/50303486-AC8E-4401-A2FC-6C67072DD644.jpeg)（图片来自Wikimedia Commons photo）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-24.jpg)
 
-近日，美国众议员迈克尔-加拉格尔Michael Gallagher提出了《武装台湾法案》：由国防部长建立台湾安全援助倡议，并批准从2023-2027年每年为该倡议提供30亿美元。
 
-据《台湾新闻》报导，加拉格尔表示，中国领导人习近平已将与台湾的统一作为 “其（中共国）遗产的关键部分”，并警告说，中国共产党正变得越来越有侵略性，因为它认为拜登政府在国外软弱无力。
 
-“国会需要挺身而出，在为时已晚之前恢复威慑力。我很自豪地与霍利参议员一起提出《武装台湾法》，为台湾提供必要的资源和武器，以挫败入侵企图，”加拉格尔说。
 
-该法案规定了如何使用分配给台湾的年度防务资金，特别侧重于提供设备、培训和其他必要的支持，以加强台湾的非对称性防御能力，阻止中共国的入侵。
 
-该法案还要求台湾配合美国对其非对称性防御的投资，增加国防开支，获得非对称防御能力，并实施国防改革，以获得台湾安全援助计划的资金。
+1月23日，有盖特网友视频爆料，中共国天津市在近日发生了大规模的民众抗议，参与抗议的整体人数已超过了十万人次。
 
-此外，该法案还规定，“美国未来向台湾出售、租赁或以其他方式提供常规武器的条件是，台湾在实现可信的非对称防御方面取得明显进展。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_2556.jpg)
 
-*参考链接： [Arm Taiwan Act introduced in US House](https://www.taiwannews.com.tw/en/news/4419220)*
+从视频中可见，拍摄时间为深夜，有大量民众聚集在当地的一处广场上一边摄像一边发出高声抗议。而中共派出的大量警方人员已与当地民众激烈推搡在一起，有个别民众遭到警方逮捕。现场上可见一位民众在被警方殴打后已当场丧失意识。
 
-* * *
+据了解，这些抗议的市民先后占领了当地的多个公共广场并向中共当局发起了强烈声讨，但随后就被当地政府派出的大量武警、特警镇压。截至目前，已有多名市民重伤、被捕。
 
-*素材采编：幽蘭自得*
+新闻来源：
 
-*编辑：青城道姑*
+[https://www.gettr.com/post/pq1oa94d2e](https://www.gettr.com/post/pq1oa94d2e)
 
-*发布：miumiu*
+***总编：飞虹***
+
+***校对/发稿：遍地开花***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+
+
+
+
 
  
 

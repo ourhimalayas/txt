@@ -2,38 +2,27 @@
 ---
 
 
-## 有声|世卫组织建议取消国际旅行疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1905750/)
+## 宇宙无限大 地球一粒沙 彭帅在哪里？
+` 帕米尔高原水` [轉載自GNews](https://gnews.org/zh-hans/1905906/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-1月19日，世界卫生组织发布了1月13日召开的中共病毒大流行紧急委员会临时会议的声明。
+作者：Aiolis
 
-声明中提出了世卫组织给缔约国的11项临时建议，其中第六条为“赞成解除或放宽国际旅行禁令”，第七条为“赞成国际旅行不需要中共病毒疫苗接种证明”。即世卫组织至少在建议取消国际旅行中的疫苗护照了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/112203-1.jpg)
 
-分析人士认为，尽管还不明确世卫组织此举意图何在，但这个建议至少对受到它影响的很多国家来说，在取消疫苗强制方面，还是有积极作用的。
+图片来自网络
 
-原文链接：[世卫组织建议取消国际旅行疫苗护照](https://gnews.org/zh-hans/1901922/)
+宇宙无限大，地球一粒沙是2018年张高丽迫使彭帅与其发生性关系而讲的话，七哥直播中曾透露为了控制彭帅，中共动用国家力量派出多路人马逼迫彭帅做符合保护名为 “国家领导人” 实则畜生不如的老杂毛们的安全及利益的所谓 “思想工作”，软硬兼施，冻结银行卡等各种措施，这些都在路上。
 
-音频处理/发稿：Daxia
+在中共国有很多的张高丽，更有无数的彭帅如行尸走肉一般的活着，随时处于可能被消失的境地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+1月23日澳大利亚公开赛的观众中亲彭帅的粉丝穿着 “彭帅在哪里” 的衣服，遭到阻拦，同时澳大利亚网球协会告诉ESPN，[“根据我们的门票条件，我们不允许商业或政治服装、横幅或标志。” “ 彭帅的安全是我们最关心的问题。我们继续与WTA和全球网球界合作，寻求更清楚地了解她的处境，并将尽我们所能确保她的福祉。”](https://twitter.com/MattWalshMedia/status/1485052235251957760?s=20)
 
-**更多资讯，更多关注**
+可以看出澳大利亚网球协会是用政治的官话应对真正关心彭帅的粉丝或者说真正关心彭帅的人，非常简单的一个道理，要找到彭帅，只能找中共，这事爆料革命给出了答案。合作方是否是CCP的渗透一方，也未可知。而当观众从生命的角度，从人性的角度去寻找彭帅要知道她在哪里，这时澳大利亚网球协会以干涉政治为由发出各种阻挠，和CCP一个尿性，丧失人性和关怀，这是网球运动的耻辱，这些服务政治的官员，毫无对生命的尊重，更无对运动精神的捍卫，很难说他们不是BGY后的笑话！
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接: 
+[https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared](https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+发稿：*Hong*
 
  
 

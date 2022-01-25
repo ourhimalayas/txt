@@ -2,18 +2,20 @@
 ---
 
 
-## 不要浪费时间
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1905968/)
+## 七哥金句（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906212/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-*发布：*Frank2021
+不可以这样攻击战友，不能学共产党那样杀人诛心，我们必须讲良心，讲证据，讲事实，不能凭空猜测。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2-1-2.jpg)
+发布： *tianzhihuan*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

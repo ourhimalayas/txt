@@ -2,40 +2,26 @@
 ---
 
 
-## 美国国务院敦促美国公民避开俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905943/)
+## 日本多措并举大力推动量子技术国家战略实施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906206/)
 
-#### **【雅典娜快讯】。紧贴时代脉搏**
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-370.jpg)[图片来源](https://www.groundstation.space/opportunities-in-horizon-europe-for-govsatcom-quantum-and-ai/)
+1月24日，日本政府宣布了一项政策，从战略上鼓励产业界、学术界和政府合作使用量子技术。 政府将考虑对需要长期投资研发的公司，以及引进量子技术的公司提供税收优惠，以刺激私人投资。
 
-整理报道：文扬
-编辑：文泓
+到目前为止，日本在量子技术方面主要侧重于研究和开发，设备成本和传统观念阻碍了量子技术的广泛采用，中国有3074项与量子技术有关的专利，美国有1557项，而日本的专利数量则徘徊在750项。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/E8R84KRFSL04RC964E.png)图片来源：ATN News
+中美等国将量子技术视为与国家安全直接相关的重要技术，都在由政府主导并扶持研究、开发和商业化。鉴于此，日本修改国家战略将量子技术定位到关系国家安全的高度，提出要拥有量子技术。
 
+计划扩大对量子技术的引进，鼓励企业参与，私人投资，为初创企业提供基础技术，将专注于开发更多量子技术在安全等领域的应用，以加强经济安全和工业竞争力。
 
-当地时间1月24日，据RT电视台报道，美国国务院周日表示，由于目前的乌克兰危机、新冠疫情以及可能的“俄罗斯政府安全官员的骚扰”等原因，美国人应该避免去俄罗斯访问旅行。
+信息来源：
 
-该机构发布了“请勿旅行”的咨询信息，并指出（届时）美国政府“提供常规或紧急服务”的能力受到严重限制。
+[政府、量子技術のイノベーション戦略見直し 税制優遇などで民間投資促す](https://news.yahoo.co.jp/articles/82178646de6fa41f9a27eaf22aff5e4271263730)
 
-国务院的指导意见指出：“由于俄罗斯在与乌克兰接壤的边境地区加强了军事存在并正在进行军事演习，正在当地或考虑前往紧邻乌克兰的俄罗斯联邦地区的美国公民应该知道，该边境地区的局势是不可预测的，紧张局势正在加剧”。该意见还指出存在恐怖主义、骚扰和“当地任意执法”的潜在风险。
-
-由于俄罗斯军事行动和新冠疫情威胁增加，华盛顿还将乌克兰列入“禁止旅行”名单。美国外交官的家属已被勒令离开乌克兰，而一些使馆工作人员被授权在“自愿”的基础上离开。
-
-这次美国的警告，是在俄罗斯和乌克兰之间的紧张局势仍处于历史高位时发出的。最近几个月，西方媒体和政治家指责莫斯科在与乌克兰的边界上集中了军队和军事装备，据悉是为了在不久的将来发动进攻。
-
-克里姆林宫一再否认这些说法，称俄罗斯只是在其境内调动其武装力量，有关攻击的报道毫无根据。
-
-原文链接： [Washington urges US citizens to avoid Russia — RT Russia & Former Soviet Union](https://www.rt.com/russia/547062-washington-urges-avoid-traveling-moscow/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
