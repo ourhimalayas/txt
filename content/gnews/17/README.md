@@ -2,30 +2,23 @@
 ---
 
 
-## 2021年新生儿少174万 公安部打脸统计局
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1905927/)
+## 七哥金句（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906165/)
 
-素材：波士顿五月花 黄金时代
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1_1UP21R3_0.jpg)图片来自网络
+咱们老百姓已经被洗脑了，是不是这个商鞅五策让你变成傻子，让你无知，让你走极端，让你忙得无所事事，最后忙死！
 
-1月24日，公安部户政管理研究中心发布《2021年全国姓名报告》。报告透露：截至2021年12月31日，2021年出生并已经到公安机关进行户籍登记的新生儿共887.3万。
+然后把自己一生的钱可能买个骨灰盒，可能买个墓地，最后拉倒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句.001.jpeg)
+发布： *tianzhihuan*
 
-前几日，国家统计局发布数据，2021年出生人口1062万人，比2020年少生138万，人口出生率为7.52‰，创下新低，完成五连降。最关键的是人口净增长只有48万，也就是说出生人口数量和死亡人口数量已经非常接近，人口负增长将提前到来。
-
-有人说，全国户籍新生儿数量之所以比统计局的数据要少174.7万，是因为很多人都是孩子满月以后再上户口 ，由于登记户口存在延迟，所以出生人口数量要少一些。
-
-这一说法立马得到其它人的纠正。因为，按历年的情况，都存在延迟上户口的情况。这个数据更能代表一年的出生人口，前后一年出生多登记、少登记的基本差不会太多。
-
-参考链接：
-
-1、[新生儿少174万 公安部打脸统计局 公布户籍新生儿数](https://www.timednews.com/article/2022/01/24/13909.html)
-
-2、[2021年户籍新生儿887.3万，男孩比女孩又多了48万，娶老婆更难了](https://www.sohu.com/a/518813737_100120495)
-
-* * *
-
-*编辑 /发布：吐纳*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

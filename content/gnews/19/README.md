@@ -2,55 +2,36 @@
 ---
 
 
-## 前国务次卿基思·克拉奇:中共国 的入侵意在恐吓台湾，和检验美国和自由世界的决心
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1905781/)
+## 【秘翻在线】美国会对俄罗斯打弹药战还是经济战？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1906145/)
 
-前国务次卿基思·克拉奇： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的入侵意在恐吓台湾，和检验美国和自由世界的决心。正如卫报文中所说，我在访台期间就已直接看到了这一点。但是习是个恶霸，美国台湾和我们的盟国将会继续坚持我们的立场。 【转卫报，10月以来，中共国派出最大规模战机进入台湾防区】
+**撰稿：Grace**
 
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-24-at-9.17.44-PM.jpeg)图片来源：rt
+据《国家公共广播电台》(NPR)1月24日报道，由于考虑到大批俄罗斯军队已经集结并可能会入侵乌克兰，美国的五角大楼正在将大约8500名美军置于高度警戒状态。
 
+五角大楼发言人约翰·柯比（John Kirby）周一表示，尚未作出部署部队的决定。
 
-> China’s incursions are meant to intimidate Taiwan and test the resolve of the US and the free world. As the [@guardian](https://twitter.com/guardian?ref_src=twsrc%5Etfw) article notes, I saw this firsthand during my visit. But Xi is a bully and US, Taiwan, and our allies will continue to stand our ground. [https://t.co/8Ik10EuKjV](https://t.co/8Ik10EuKjV)
-> — Keith J. Krach (@KeithJKrach) [January 24, 2022](https://twitter.com/KeithJKrach/status/1485596189588443142?ref_src=twsrc%5Etfw)
+柯比说， 国防部长劳埃德·奥斯汀（Lloyd Austin） “已将美国的一系列部队置于高度准备部署状态，这增加了我们在北约启动[北约反应部队] [NATO Response Force]或出现其他情况时提供部队的准备。”
 
+柯比说，奥斯汀进一步提高了他们的状态，将部署的天数从10天缩短到5天。
 
+但是，据报道，拜登却是表示，他无意向乌克兰派遣美国军队，但表明他准备在俄罗斯入侵的情况下对其实施严格的经济制裁。拜登在周一与欧洲领导人通话后表示，该团队在应对俄罗斯问题上达成了  “完全一致 ”的意见。
 
-比尔.格茨： 随着俄罗斯与乌克兰对峙紧张局势加剧，中国加强战机侵袭台湾附近 【附比尔.格茨华盛顿时报最新报道：中国加强战机侵袭台湾附近】
+白宫表示，这些领导人讨论了如果俄罗斯入侵，“准备对其施加大规模的后果和严重的经济代价”。他们还呼吁开展更多的外交活动。
 
+据报道，俄罗斯在与乌克兰交界的不同地点集结了大约10万名军队。莫斯科否认它打算入侵，但美国官员担心进攻可能即将发生。
 
+报道指出，美国已经向乌克兰提供了军事援助，最近一批20万磅的 “致命援助” 包括弹药，已于周五抵达。
 
-> China steps up warplane incursions near Taiwan as tensions mount over Russia-Ukraine standoff [https://t.co/FY7nh1SaqL](https://t.co/FY7nh1SaqL)
-> — Bill Gertz (@BillGertz) [January 24, 2022](https://twitter.com/BillGertz/status/1485755675116326913?ref_src=twsrc%5Etfw)
+而且，其他北约成员正承诺向东欧派遣舰艇或喷气式飞机。北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg ）周一表示，丹麦、法国、荷兰和西班牙正在向立陶宛、罗马尼亚或保加利亚或向黑海或波罗的海派遣或考虑派遣军事支援。
 
+斯托尔滕贝格呼吁采取更多的外交手段来缓和紧张局势。美国国务卿安东尼·布林肯（Antony Blinken）一直在与俄罗斯外交部长谢尔盖·拉夫罗夫（Sergey Lavrov）举行会议，但两人没有取得任何突破，他们同意继续会谈。
 
+据报道，在上周末，美国已经命令其驻基辅（Kyiv）大使馆人员的家属离开乌克兰，并出于安全考虑授权一些工作人员自愿离开。英国周一表示，它正在从其大使馆撤出一些工作人员，而澳大利亚则通知其在乌克兰的公民离开。
 
-参议员瑞克·斯科特： 多年来，我一直要求因种族灭绝和对民主的攻击追责 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click)。今天，我们展示了美国是一个无悔的人权倡导者，不怕大声揭露这些虐待行为，并为那些共产主义中国试图压迫的人发声以及今天与我们一起谴责共产主义中国对维吾尔穆斯林的种族灭绝以及在香港和西藏的罪行的所有人。我们将永远不会停止为自由和民主而战
-
-
-
-> For years, I’ve been demanding accountability for Communist China’s genocide & attacks on democracy. Today, we showed that the U.S. is an unapologetic advocate for human rights, unafraid to call out these abuses & give a voice to those who Communist China seeks to oppress. (1/2) [pic.twitter.com/IZtDjJ8fvN](https://t.co/IZtDjJ8fvN)
-> — Rick Scott (@SenRickScott) [January 24, 2022](https://twitter.com/SenRickScott/status/1485738281656537093?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 参议员里克·斯科特与人权活动人士主持举行新闻发布会，强调 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 在 2022 年北京冬奥会之前犯下的可怕的侵犯人权和种族灭绝罪行。 【附斯科特参议员官网新闻】
-
-
-
-> Sen. Rick Scott hosts a press conference with human rights activists to highlight the horrific human rights abuses & genocide committed by the Chinese Communist Party ahead of the 2022 Winter Olympic Games in Beijing. [https://t.co/6Fu2YktpZi](https://t.co/6Fu2YktpZi)
-> — Rick Scott (@SenRickScott) [January 24, 2022](https://twitter.com/SenRickScott/status/1485708487913054213?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法隆： 当世界关注俄罗斯对乌克兰的潜在入侵时，习近平正在积极威胁我们在台湾的朋友。 如果你认为中国不会利用乌克兰边境的局势，那你就错了。 （转CBS新闻：中国在一天之内派出39架战机进入台湾防空识别区）
-
-
-
-> As the world's focus is on a potential Russian incursion of Ukraine, Xi Jinping is actively threatening our friends in Taiwan. 
-> 
-> If you think China isn't going to take advantage of the situation on the Ukrainian border, you're wrong.[https://t.co/pKLwrhpP6P](https://t.co/pKLwrhpP6P)
-> — Rep. Pat Fallon (@RepPatFallon) [January 24, 2022](https://twitter.com/RepPatFallon/status/1485647782342008834?ref_src=twsrc%5Etfw)
-
-
+**新闻来源： **[The U.S. is placing 8,500 troops on alert for possible deployment to Eastern Europe](https://www.npr.org/2022/01/24/1075389920/us-troops-eastern-europe-russia-ukraine)
 
  
 

@@ -2,39 +2,50 @@
 ---
 
 
-## 美国国务院敦促美国公民避开俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905943/)
+## 作为金融界梵蒂冈的卢森堡正在考虑与新中国联邦的合作
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906167/)
 
-#### **【雅典娜快讯】。紧贴时代脉搏**
+G-TV视频链接：[https://gtv.org/video/id=61ef3c2787664c47acd98386](https://gtv.org/video/id=61ef3c2787664c47acd98386)
 
-整理报道：文扬
-编辑：文泓
+**郭文贵先生**：我可以告诉大家，今天跟你们顺便再说个好消息。我告诉你们所有的欧洲发生的事情、美国发生的事情，而且到今天，你们都看到了，包括日本。在上周我们爆料革命和国际社会合作有了一个最大的结果。第一次国际上最隐秘的也是沼泽地部分的金融，包括瑞士，特别是卢森堡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/E8R84KRFSL04RC964E.png)图片来源：ATN News
+卢森堡是共产党在西方洗钱、经济犯罪的最根本，大本营。卢森堡的大公，你看他这回一定会去参加冬奥会的，不让去都不行，他已经阳性了，看到了他都已经阳性两次了。哭着闹着要跟中国：“我要去！”他身边的人跟我很好，他说：“我们这个家伙疯了！我是不去。他主动给中共发信息‘我要’。”
 
+就是卢森堡就这个大公，还有卢森堡已经被共产党给“蓝金黄”给控制得就真的连中国一个县城都不如。但是这次卢森堡在疫苗发生之后，就最近这些事情之后，认真严肃地说：“我们真要考虑和新中国联邦一次严肃性地合作，我们要不和共产党继续合作，跟你新中国联邦合作。” 希望有一系列条件跟我谈，我说你要跟我谈是有代价的。（注：众嘉宾鼓掌）
 
-当地时间1月24日，据RT电视台报道，美国国务院周日表示，由于目前的乌克兰危机、新冠疫情以及可能的“俄罗斯政府安全官员的骚扰”等原因，美国人应该避免去俄罗斯访问旅行。
+卢森堡，你们要懂得金融的，卢森堡几乎是梵蒂冈，就是宗教的教皇，不是金融界的梵蒂冈，它已经超过瑞士了。我说：“你要跟我谈的前提是先把喜币、喜联储给批个银行或者金融牌照，还有一个公开承认新中国联邦，否则我连谈都不跟你谈。”
 
-该机构发布了“请勿旅行”的咨询信息，并指出（届时）美国政府“提供常规或紧急服务”的能力受到严重限制。
+在一年前咱要说跟人家卢森堡谈，人家说你滚一边儿去吧，滚得远远的吧。相当于现在我，现在相当于路大脑袋说：“罗伊咱俩成哥们儿吧。”罗伊说你给我滚一边去吧，跟路大脑袋说。现在变了，你们知道这是为什么？它相信共产党制造了冠状病毒，它相信我们说的这是共产党生化武器，它相信疫苗是真正的杀人手段。
 
-国务院的指导意见指出：“由于俄罗斯在与乌克兰接壤的边境地区加强了军事存在并正在进行军事演习，正在当地或考虑前往紧邻乌克兰的俄罗斯联邦地区的美国公民应该知道，该边境地区的局势是不可预测的，紧张局势正在加剧”。该意见还指出存在恐怖主义、骚扰和“当地任意执法”的潜在风险。
+他说那我们跟杀人的魔鬼怎么合作呀？那么爆料人是谁呀？就是新中国联邦MILES GUO呀。所以大公国我们打榜也好多战友，而且这些外国的人。
 
-由于俄罗斯军事行动和新冠疫情威胁增加，华盛顿还将乌克兰列入“禁止旅行”名单。美国外交官的家属已被勒令离开乌克兰，而一些使馆工作人员被授权在“自愿”的基础上离开。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-这次美国的警告，是在俄罗斯和乌克兰之间的紧张局势仍处于历史高位时发出的。最近几个月，西方媒体和政治家指责莫斯科在与乌克兰的边界上集中了军队和军事装备，据悉是为了在不久的将来发动进攻。
+编辑整理：Jacques；
 
-克里姆林宫一再否认这些说法，称俄罗斯只是在其境内调动其武装力量，有关攻击的报道毫无根据。
+字幕文件制作：小满；
 
-原文链接： [Washington urges US citizens to avoid Russia — RT Russia & Former Soviet Union](https://www.rt.com/russia/547062-washington-urges-avoid-traveling-moscow/)
+视频制作及上传：Cindy；
 
-发布：tianzhihuan
+G-News发布：小满；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
