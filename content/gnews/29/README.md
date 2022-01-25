@@ -2,48 +2,30 @@
 ---
 
 
-## 中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906471/)
+## 扬帆每日速递 2022年1月24日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1906494/)
 
-作者：纽约香草山教育部—Noemi
+加拿大温哥华扬帆农场 海报组
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、尽管一直深陷关于隐私和虚假信息的争议中，脸书母公司Meta周一宣布，它正在推出世界上最强大的超级计算机，以提高其处理数据的能力。
 
+2、加拿大卡车司机抗议活动Freedom Convoy 2022的众筹活动10天之内已经筹集超过300万美元，而且没有放缓的迹象。卡车车队周日从全国多个地点出发，预计将在一周内汇聚渥太华。
 
+3、据文贵大直播：盛大的奥运会开幕式背后，是最邪恶的力量支撑，共产党在全世界面前拙劣的表演，对新中国联邦最有利。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+4、据文贵大直播：共产党是最大的邪教组织，在邪教组织6个特征之上加上第七条：篡改历史。
 
+5、中国新年是中国人一年中最盛大的节日，清零政策下 许多中共国家庭被迫三年分开过年。
 
+6、习近平1月24日主持召开政治局会议，要求中央书记处带头维护党中央权威和集中统一领导，完成好党中央交办的各项任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板124-2_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
-当地时间1月22日，中共国知名电影发行人赵军突发脑淤血去世，年仅63岁。离世前，其曾在微博上写下一首名为《跪下》的短诗来批判中共的极端防疫政策，并怒斥中共官员的“官僚主义”、“丧失人性”。
+编辑：文敏
 
-2021年6月1日，赵军先生曾在微博中发布与中共病毒疫苗接种相关的帖文，疑已接种两针剂以上的中共毒疫苗。此外，他还曾多次转发官方称灭活疫苗安全、有效的相关帖文。
+发布：风起云间（文敏）
 
-据了解，除赵军先生之外，中共国内近期还有多名影视圈名人突然离世，死因皆与心脑系统疾病相关。数位名人的猝然离世都再次印证了郭文贵先生此前的爆料信息——中共疫苗灾难才刚刚开始。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-6.jpg)
-参考信息：
-[墙内电影圈又一噩耗，著名电影发行人赵军突发脑淤血去世，年仅63岁，疑已接种两针以上中共毒疫苗……](https://www.gettr.com/post/pq913td6b8)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+海报图片设计：飞天面、 Shuang
 
  
 

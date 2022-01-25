@@ -2,22 +2,25 @@
 ---
 
 
-## 郑也夫：放弃对台武力威慑“迫在眉睫”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906521/)
+## 谷歌侵犯个人隐私被告上法庭
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1906567/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-371.jpg)图片来源于网络
-北京大学的一位前教授郑也夫发表声明反对以武力统一台湾。他警告说，对台湾的军事威胁将阻止和平统一，甚至可能导致包括美国在内的核大国之间的战争。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-85.jpg)
+图片来源： blog.51cto.com
 
-声明还强调了建立反战舆论的重要性。中共国由于言论封杀，公共平台上反对武统的言论几乎灭绝，在此背景下郑也夫公开挑战对台政策，或许能唤醒民众的反战热情。
+美联社1月24日报道，哥伦比亚地区和美国三个州因谷歌欺骗顾客，侵犯他们的隐私，使他们无法摆脱被定位被追踪的境地而被用户告上法庭。
 
-信息源：
+在周一华盛顿特区哥伦比亚地区法院，总检察长卡尔·瑞辛称谷歌“系统性”地欺骗顾客使得用户的位置被用于定位。他说这个互联网搜索引擎误导用户，使他们相信他们会控制谷歌收集的信息。而实际上，用谷歌产品并不能防止谷歌收集，储存和通过定位来获利。谷歌能够监视用户的每日生活。
 
-[台湾武力統一に反対　中国知識人が異例の声明](https://www.tokyo-np.co.jp/article_photo/list?article_id=156147&amp;pid=573874&amp;rct=world)
+德克萨斯州，印第安纳州和华盛顿州的总检察长也于周一在他们的州法院提起相似的诉讼。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+上周由参议院提起的两党议案将阻止互联网平台霸权，阻止谷歌，元宇宙（原名脸书），亚马逊以及苹果公司在竞争对手面前通过其优势为其谋利益。例如谷歌通常把自己的服务置于检索结果的头条。
+
+##### 新闻来源： [DC, 3 states sue Google saying it invades users’ privacy](https://apnews.com/article/technology-business-lawsuits-district-of-columbia-de23ecc89b7f113de4e8fd49cda1305c)
+
+#  
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

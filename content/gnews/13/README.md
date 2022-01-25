@@ -2,42 +2,52 @@
 ---
 
 
-## 七哥让单伟建和PAG折腾完再把单伟建和PAG连根拔起
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906589/)
+## 举办北京冬奥会、制造假雪 张家口将面对多重危害
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906631/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ef405687664c47acd98555](https://gtv.org/video/id=61ef405687664c47acd98555)
+作者：银河系农场 – 骄子， 日本方舟农场 – Andy 5
 
-**郭文贵先生**：我再告诉大家，七哥还没出手呢。我一定会出手让PAG，它在美国司法领域是怎么操纵的这个案，单伟建，七哥就头两年都不想说他，我怕他不折腾把他吓回去了，我要让他把所有折腾完，要把他连根给他拔起来。
 
-单伟建的钱，他也不能放他家裤裆里，单伟建的钱去哪咱也都知道，这孙子要不灭，要不找西方搞清楚他的间谍身份，那对西方的危害大着了。所以说就兄弟姐妹们，PAG的事情很有意思，谢谢。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑整理：Jacques；
 
-字幕文件制作：小满；
 
-视频制作及上传：Cindy；
+据1月22日外国媒体消息，随着气候变化，降雪变少，人造雪已成为冬季奥运会的固定活动。但北京将是第一个完全依赖人造雪的冬奥会主办国。
 
-G-News发布：小满；
+尽管世界多国也曾使用假雪举办奥运会，但北京冬奥会滑雪场地造雪所需的水资源要尽数来自张家口，而干旱的张家口地区本身已经不适合造雪，因为这一过程会损耗大量的水。该地区水资源一直非常紧缺，超过一半的张家口地区用水压力极大，当地人均水资源不到全国平均水平的五分之一。人工造雪后，该地区水资源将更加短缺。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13-5.jpg)
+而造雪对环境的影响还不止于过度消耗水资源，造雪过程还将耗费巨大的电力，造成严重的温室气体污染，且假雪融化也会对环境造成危害。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+另据悉，为举办冬奥会，开发旅游产业，当地很多农田被占据，农民不仅失去了赖以生存的土地，政府强加的“旅游梦”恐怕也将成为泡影。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2.4-4.jpg)
+参考信息：
+1. [China’s fake snow frenzy for Beijing Olympics strains water supplies](https://www.japantimes.co.jp/sports/2022/01/22/olympics/winter-olympics/beijing-olympics-snow-water/)
+2. [20220124日本報導CCP人工造雪 還不忘回顧這幫孫子為了08奧運開幕式提前打增雨彈來驅逐雨雲 七哥前幾天說啥來著？](https://gettr.com/post/pq9e3jebe5)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+总编：Jack Li文阳
+编辑：飞虹
+校对/发稿：为真不破20
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**更多资讯，更多关注**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
