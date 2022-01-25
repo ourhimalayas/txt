@@ -2,34 +2,38 @@
 ---
 
 
-## 《文贵大直播》揭露中共当局虚假疫苗接种的证据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1908222/)
+## 有声|天津爆发大规模抗议 超十万民众声讨中共当局
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908324/)
 
-作者：纽约香草山农场 – 晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月24日的《文贵大直播》中，郭文贵先生揭露，据一位爆料革命战友暗访拍摄的视频显示，广西的某个政府机构，在为其党政员工接种“中共病毒”疫苗时，绝大多数的疫苗都被注射到了地上。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-376.jpg)
-另据某墙内的战友所提供视频显示，东部某市市长在内部工作会议中，向其下级党政领导直言“你们不要愚蠢到真去打疫苗，否则会断子绝孙。”此外，该市指定了机关和各级党委的特定疫苗医院，强调“要认真的打，但一个都不能打真的！”
+配音：香草山佛教部 – 李傻
 
-这两个视频将作为日后的呈堂证供，以向国际法庭和全球各法治国家的法院，起诉中共当局涉嫌制售劣质疫苗，并通过虚假接种以获取暴利等反人类的行径。鉴于此，暂不方便公开。
 
-文贵先生表示：中共当局的历史，就是一部造假、欺瞒的历史；而这一丑恶行径更是在其妄图操控“疫苗经济”和所谓“后疫苗时代”时发挥到极致。绝大多数大陆同胞，特别是党内人士，都知道“中共病毒”疫苗不能打。中共各级党政机关这种“虚假接种”，在中国大陆并不罕见，这在一定程度上让中国同胞免受毒疫苗的侵害；但悲哀的是，广大非党员百姓，几乎无人能享此特权。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月23日，有盖特网友视频爆料，中共国天津市在近日发生了大规模的民众抗议，参与抗议的整体人数已超过了十万人次。
 
-参考链接：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gettr.com/post/pqa8gpf229)
+从视频中可见，拍摄时间为深夜，有大量民众聚集在当地的一处广场上一边摄像一边发出高声抗议。而中共派出的大量警方人员已与当地民众激烈推搡在一起，有个别民众遭到警方逮捕。现场上可见一位民众在被警方殴打后已当场丧失意识。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+据了解，这些抗议的市民先后占领了当地的多个公共广场并向中共当局发起了强烈声讨，但随后就被当地政府派出的大量武警、特警镇压。截至目前，已有多名市民重伤、被捕。
 
-总编: Zion文恩
-编辑： Ivy001
-校正/发稿：Fei797
+文字版原文：[天津爆发大规模抗议 超十万民众声讨中共当局](https://gnews.org/zh-hans/1904214/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

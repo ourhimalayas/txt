@@ -2,12 +2,22 @@
 ---
 
 
-## 一名台湾社交媒体网红讲述了她打疫苗后经历的噩梦
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1908474/)
+## 美国正式授权撤离驻中共国北京大使馆
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1908603/)
 
-01/21/2022 一名台湾社交媒体网红讲述了她打疫苗后经历的噩梦。她的头爆炸性疼痛，而且手指发麻。她在医院做了各种检查，但是医生仍然查不出原因并且不愿承认这是疫苗导致的。她在医院里注意到很多人受到疫苗严重副作用的伤害，有的人下肢已经瘫痪。
+撰稿：日本东京方舟农场  海星
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+1月25日，郭先生在GTV爆料，美国政府正式通知北京，即日起授权撤离美国驻中共国北京大使馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2080.png)
+视频链接：
+
+[https://gettr.com/post/pqhskw732b](https://gettr.com/post/pqhskw732b)
+
+素材采编：海星
+
+编辑：文顺
+
+发布：文顺
 
  
 

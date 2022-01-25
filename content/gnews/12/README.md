@@ -2,225 +2,32 @@
 ---
 
 
-## 每日快报:普京称俄罗斯与中国一起反对奥运会前的抵制活动
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1908347/)
-
-*作者：*冰川
-
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
-
-# ***今日摘要***
-
-1. 普京称俄罗斯与中国一起反对奥运会前的抵制活动
-2. 法官否决了纽约的室内口罩规定
-3. 英国将取消对已接种疫苗的旅行者进行COVID-19测试的要求
-4. 研究显示，早期COVID病例损害了一半以上人的嗅觉
-
-
-# 重要事件
-
-- ** 01.25. The Hill：**[普京称俄罗斯与中国一起反对奥运会前的抵制活动 Putin says Russia joins China in opposition to boycotts ahead of Olympics](https://thehill.com/policy/international/591174-putin-says-russia-joins-china-in-opposition-to-boycotts-ahead-of)
-
-
-俄罗斯总统弗拉基米尔-普京周二表示，俄罗斯–和中国一样–反对美国和其他几个国家对2022年北京冬奥会发动的外交抵制，并表示俄罗斯支持 “平等和公平 “的奥林匹克价值观。”我认为这些比赛的主要目标是吸引尽可能多的公民参加体育活动和加强各国人民之间的友谊。据美联社报道，即将举行的奥运会的组织者–我们的中国朋友也赞同这些做法，”普京在奥运会前对俄罗斯的奥运运动员讲话时说。”我们共同反对体育的政治化和示威性抵制。我们支持传统的奥林匹克价值观，首先是平等和公平”。
-
-俄罗斯总统预计将与中国国家主席习近平会面，并出席下周开始的奥运会。然而，这些举动与包括美国在内的几个国家相差甚远，这些国家因该国的人权问题宣布对奥运会进行外交抵制。外交抵制允许这些国家的运动员参加比赛。然而，这些国家的代表将不会出席。这一宣布也是在俄罗斯和乌克兰之间的紧张局势不断加剧之际作出的，因为俄罗斯在乌克兰附近集结了数万名军队。美国和其他国家担心俄罗斯正在为入侵这个前苏联国家做准备。
-
-五角大楼新闻秘书周一表示，大约8500名美国军事人员已被置于 “高度准备部署状态”，以备 “北约应启动[北约反应部队]或其他情况的发生”。
-
-- ** 01.25. The Hill：**[法官否决了纽约的室内口罩规定 Judge strikes down New York’s indoor mask mandate](https://thehill.com/homenews/state-watch/591171-judge-strikes-down-new-yorks-indoor-mask-mandate)
-
-
-纽约的一位法官周一推翻了帝国州的室内口罩强制规定，认为这样的政策必须得到州立法机构的批准才能生效。拿骚县最高法院法官Thomas Rademaker确定，州长Kathy Hochul（纽约州民主党）无权在12月强制执行室内口罩规定，当时她宣布将室内场所的遮脸要求延长大约一个月。然而，据《纽约时报》报道，三周后，州卫生部又将该要求延长了两周，将其实施到2月1日。
-
-据《华尔街日报》报道，Rademaker在其裁决中说，这样的政策必须是 “量身定做的，有必然联系的，并附在州立法机构通过的法律上”。据《华盛顿邮报》报道，他指出，虽然霍楚尔和州卫生专员玛丽-巴塞特的意图 “似乎很好地旨在做他们认为正确的事情，以保护纽约的公民”，但他们必须向州立法机构提交他们的案例。
-
-民主党人以较大的优势控制着纽约立法机关的两院。这一决定是民主党领导人的最新挫折，他们希望强制执行减轻COVID-19传播的任务，特别是在国家努力应对主要由高度传播的omicron变体驱动的病例激增时。Hochul周一发誓要与Rademake的决定作斗争，她写道，她不同意这一裁决。
-
-- ** 01.24. Washington Examiner：**[英国将取消对已接种疫苗的旅行者进行COVID-19测试的要求 UK to lift COVID-19 testing requirement for vaccinated travelers](https://www.washingtonexaminer.com/news/uk-to-lift-covid-19-testing-requirement-for-vaccinated-travelers)
-
-
-为了向世界表明他们 “对商业开放，对旅行者开放”，英国首相鲍里斯-约翰逊周一宣布，英国政府将取消对飞往英国的接种疫苗的旅行者的测试要求。
-
-目前，接种过双重疫苗的旅行者必须在抵达英国的两天内进行COVID-19快速测试。据英国交通部长格兰特-沙普斯（Grant Shapps）称，在英国取消这一要求的变化预计将于2月11日生效，届时许多英国学校的春季期中考试也将举行。沙普斯告诉美联社：”对已接种疫苗的旅行者进行边境测试已经失去了作用。今天，我们要让英国获得自由”。英国还通过取消隔离要求来软化其对未接种疫苗的旅行者的规定。未接种疫苗的旅行者仍然需要在前往英国之前和之后接受测试。该国还将在本周晚些时候放宽口罩的要求，以及其他与大流行病有关的限制。约翰逊说，该国将依靠广泛的测试和疫苗接种来监测病毒。
-
-新规定是在12月因omicron变体导致的COVID-19病例激增之后发出的，然而，与该大流行病的其他高度相比，英国与COVID-19有关的住院和死亡人数仍然很低。英国是欧洲COVID-19死亡人数第二高的国家，有15.4万人死亡。俄罗斯的死亡人数在欧洲是最高的。
-
-- ** 01.24. Daily Caller：**[研究显示，早期COVID病例损害了一半以上人的嗅觉 Early COVID Cases Harmed Sense Of Smell For More Than Half Of People, According To Study](https://dailycaller.com/2022/01/24/covid-19-omicron-delta-smell-taste/)
-
-
-瑞典的一项研究发现，65%从COVID-19中康复的人在18个月后仍然经历着某种形式的嗅觉损伤。
-
-在卡罗林斯卡学院的百人研究中，超过三分之一的参与者表现出嗅觉下降，近一半的人经历了副嗅觉，即一个人的嗅觉被扭曲。研究发现，大约65%的COVID-19康复患者在18个月后会出现嗅觉改变的情况。研究人员表示，近70%的感染者在感染期间的某个阶段会出现部分或全部嗅觉丧失，而那些在康复18个月后仍然出现嗅觉丧失的人很可能会有永久性的损害。
-
-据英国卫生安全局称，与Delta变体相比，Omicron冠状病毒变体丧失嗅觉的情况只有一半。这项研究还没有经过同行评议。
-
-# 每日文贵说
-![](http://himalayawashingtondc.org/wp-content/uploads/2022/01/1-3-1024x576.jpg)
-# 每日推特文摘
-
-
-
-
-
-
-
-
-
-日本在报道，中共国冬奥会之前，北京混乱的局面，
-这不是偶然，日本己不在沉默，
-此报道有7万7千人观看。
-
-
-
-
-
-> 日本在报道，中共国冬奥会之前，北京混乱的局面，✊🇯🇵
-> 
-> 这不是偶然，日本己不在沉默，👍
-> 
-> 此报道有7万7千人观看。🖖🖖🖖 [https://t.co/lJPs0Dh6BE](https://t.co/lJPs0Dh6BE)
-> — 魔女peace🌟🌟🌟银河系。新号，https://discord.gg/Fwb3rRrddu (@peace86774949) [January 25, 2022](https://twitter.com/peace86774949/status/1485852751321985032?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-甜蜜蜜运动开启，将震撼全世界…… 共产党你完球蛋了……
-
-
-
-
-
-> 甜蜜蜜运动开启，将震撼全世界……
-> 共产党你完球蛋了……
-> 
-> The Sweet Honey Movement starts, it will shock the world… CCP, you are finished…[#甜蜜蜜运动](https://twitter.com/hashtag/%E7%94%9C%E8%9C%9C%E8%9C%9C%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw)[#甜蜜蜜](https://twitter.com/hashtag/%E7%94%9C%E8%9C%9C%E8%9C%9C?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/fbaz2qWWHP](https://t.co/fbaz2qWWHP)
-> — 文俊（日本银河系） (@wenjun7011) [January 25, 2022](https://twitter.com/wenjun7011/status/1485952963688505344?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-恒大集团这群low人实际就是想拖过冬奥会 然后宣布破产清算 这帮垃圾 这点小心思 不知道too hight的欧美投资人想明白没？ 一分钱都不会还你的 不会的 包括其他房地产公司的海外债 都不会还你们的 不信你们等着瞧吧；
-
-
-
-
-
-> 恒大集团这群low人实际就是想拖过冬奥会
-> 然后宣布破产清算
-> 这帮垃圾
-> 这点小心思
-> 不知道too hight的欧美投资人想明白没？
-> 一分钱都不会还你的
-> 不会的
-> 包括其他房地产公司的海外债
-> 都不会还你们的
-> 不信你们等着瞧吧； [https://t.co/QrvO7V2CKg](https://t.co/QrvO7V2CKg)
-> — 新中国联邦公民（北评2025） (@tGj6kq0sAMr4NWx) [January 25, 2022](https://twitter.com/tGj6kq0sAMr4NWx/status/1485932550908366849?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-【冬奥健儿在天安门广场宣誓出征？？？】 今天清晨，北京冬奥会中国体育代表团的100多名运动员和教练员代表，来到天安门广场观看升国旗仪式，并宣誓出征。 你确定这些人都是真心的？怎么脸上没有一点表情，也看不出一丝激动啊 没关系，等 [#甜蜜蜜运动](https://twitter.com/hashtag/%E7%94%9C%E8%9C%9C%E8%9C%9C%E8%BF%90%E5%8A%A8?src=hashtag_click) 了，大家都会乐开花了吧！！
-
-
-
-
-
-> 【冬奥健儿在天安门广场宣誓出征？？？】
-> 
-> 今天清晨，北京冬奥会中国体育代表团的100多名运动员和教练员代表，来到天安门广场观看升国旗仪式，并宣誓出征。
-> 
-> 你确定这些人都是真心的？怎么脸上没有一点表情，也看不出一丝激动啊
-> 没关系，等 [#甜蜜蜜运动](https://twitter.com/hashtag/%E7%94%9C%E8%9C%9C%E8%9C%9C%E8%BF%90%E5%8A%A8?src=hash&amp;ref_src=twsrc%5Etfw) 了，大家都会乐开花了吧！！ [pic.twitter.com/gnCdLFPD00](https://t.co/gnCdLFPD00)
-> — 澳喜要闻（新号） (@ahnewspace) [January 25, 2022](https://twitter.com/ahnewspace/status/1485851954647810048?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-武汉逝者家属呼吁彻查新冠源头
-新冠疫情在武汉爆发两周年之际，在疫情中失去父亲的武汉居民，要求中共对疫情起源进行令人信服的公平独立调查。 他同时发表致中共领导人习近平的公开信，呼吁政府对逝者家属提供赔偿，并对防疫不力的官员加以惩处。
-
-
-
-
-
-> 武汉逝者家属呼吁彻查新冠源头❗️
-> 
-> 新冠疫情在武汉爆发两周年之际，在疫情中失去父亲的武汉居民，要求中共对疫情起源进行令人信服的公平独立调查。
-> 
-> 他同时发表致中共领导人习近平的公开信，呼吁政府对逝者家属提供赔偿，并对防疫不力的官员加以惩处。 [pic.twitter.com/VnJUOP5X8x](https://t.co/VnJUOP5X8x)
-> — 澳喜要闻（新号） (@ahnewspace) [January 25, 2022](https://twitter.com/ahnewspace/status/1485827616414507010?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-1月23日，罗伯特·肯尼迪，突然率领数以万计的美国民众冲入华盛顿的各大标志性建筑……占领林肯纪念堂，并发表了“反疫苗”和”讨拜宣言”。 肯尼迪的支持者举着“我们不是小白鼠”，还有的打扮成死神，胸前写着“我只信辉瑞”。意为“相信辉瑞就是接受死亡”。 美国人在逐步觉醒，我们爆料革命也功不可没。
-
-
-
-
-
-> 1月23日，罗伯特·肯尼迪，突然率领数以万计的美国民众冲入华盛顿的各大标志性建筑……占领林肯纪念堂，并发表了“反疫苗”和”讨拜宣言”。
-> 
-> 肯尼迪的支持者举着“我们不是小白鼠”，还有的打扮成死神，胸前写着“我只信辉瑞”。意为“相信辉瑞就是接受死亡”。
-> 
-> 美国人在逐步觉醒，我们爆料革命也功不可没。 [pic.twitter.com/DroODHSYWm](https://t.co/DroODHSYWm)
-> — 特战一兵（澳喜特战旅 Henry） (@jspch666) [January 25, 2022](https://twitter.com/jspch666/status/1485781986983968768?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-这真是太可怕了，中共国，这片土地，生灵涂炭，人神共愤。
-
-
-
-
-
-> 这真是太可怕了，中共国，这片土地，生灵涂炭，人神共愤。🤬🤬😵‍💫 [https://t.co/EMau1fKuqu](https://t.co/EMau1fKuqu)
-> — 魔女peace🌟🌟🌟银河系。新号，https://discord.gg/Fwb3rRrddu (@peace86774949) [January 25, 2022](https://twitter.com/peace86774949/status/1485936236149698562?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-*编辑：冰川
-审核发布：文顾*
-
+## 中共邪教的第七个特征——篡改历史
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1908495/)
+
+作者：纽约香草山农场福音部 – 恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月24日，郭先生在大直播中再次提到中共符合邪教的六大特征，即教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、反人类反社会，还要加上第七个特征：篡改历史。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-44.jpg)
+郭先生说，篡改历史是其它邪教从来没有做过的，是中共特有的邪恶特质。中国五千年的历史被中共篡改了。中国人原先是有信仰的，信神、重视家庭，也尊师重教。但是，中共竟然把这一切都给灭了，以“爹亲娘亲不如党亲”的谬论洗脑，让中国人要“党”不要“德”。如今，中国人在邪恶中共的统治下最缺“德”。体现在这一次的疫苗灾难上，中共很多官员打假疫苗以及假打疫苗，他们会活下来，但无知的人却被灭了。中共篡改历史，是对中国人民与世界人民的极大伤害。
+
+郭先生确信，爆料革命撕下中共邪教的假面具，把他们的罪恶彻底暴露，让全世界看清其邪恶本质。灭掉中共，重建中国人几千年来的“信德”传承。
+
+参考链接：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gettr.com/post/pqa8gpf229)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+总编: 文真
+编辑： 宁文静
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
