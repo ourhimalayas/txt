@@ -2,172 +2,32 @@
 ---
 
 
-## 喜币和新中国联邦合璧，犹如黑暗中的明灯，令习近平和达沃斯感到恐惧！
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1907844/)
+## Do you hear the people sing，singing a song of Sweetie?
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1907877/)
 
-[https://gtv.org/video/id=61eddb3987664c47acd90792](https://gtv.org/video/id=61eddb3987664c47acd90792)
+文：银河系农场｜骄子
 
-**郭文贵
-Miles Guo**
+从来没有在中共国见过群众大游行，公民有游行示威自由是写在共产党的宪法里的。只不过这些都是公民的权利，中共国的老百姓都是居民，没有任何权利。经常在大街上看到的是受了冤屈的老百姓，大部分都是扯着横幅稀稀拉拉的几个人站在某公司某政府大楼门口要告状，要上访，有的甚至坚持了一辈子，一辈子有多长，不过就是几十年，完全耗在一场没有结果的上访中，值当不值当？古代的县衙门口都有一个大鼓，老百姓有冤屈的事情可以到县衙门口去喊冤鼓，现在受了冤屈要想讨还公道，不可能的。共产党这里没有公道，但是老百姓总是对中南坑有滤镜，好像住在那儿的人都不大便似的。那些发誓要告到中央的，很多时候连天安门都到不了。平常我们以为天安门上那么多闲逛的人，其实都是共产党的便衣警察，包括那些摆摊卖小吃的。都这个年代了，这些只会出现在影视剧中的现象，其实就发生在身边。张艺谋的电影秋菊打官司，秋菊是个幸运的人，大部分中国老百姓都不是那么幸运，很多上街拉横幅的人基本上晚上就有警察上门来找。受了冤屈扯个横幅抗议一下，晚上警察就来警告了，信佛念经的都会被警察上门拜访，中共国的警察就是到处乱窜的流氓似的。
 
-你们拥有世界上最牛叉的数字货币，喜币
-You have owned the most powerful digital currency in the world, Himalaya Coin
+香港的反送中运动，网上看到的很多小视频里，上街抗议的人又干净又礼貌，给救护车迅速让路，只是想要寻求自由民主，在履行自己的义务，在捍卫自己的权利。但是只要孩子们一上街，共产党的黑警就出来抓人，虽然共产党很鸡贼换上了香港警察的衣服，开着香港警察的车，但是几乎所有的人都感觉出来不对劲的，毕竟原香港警察不可能大规模逮住人往死里打。习近平把一个说他风流韵事的香港书商都要抓起来，何况是上街要求自由民主的孩子们呢？这种事情换做是共产党内的温和派会不会做呢，当然会的，邓小平就是改革派啊，8964还不是照样杀了那么多学生。国外的很多人都知道8964的事情，但是很奇怪的是，国内知道的人很少，就算知道也是闭口不谈的为多。这件事好像就过去了，大家也因为经济好转了以后，很少提及此事了。或者，根本就是共产党用表象的繁荣掩盖了政治的危机，一切经济繁荣的背后全部都是伤痕累累，这些伤痕不可能全部消退，不过是都被掩盖在盲目中。自从习近平上台后，这种共产主义式的独裁已经顾不上掩盖什么了，黑警察直接上街把合理表达诉求的香港孩子抓起来，莫名其妙被自杀死去。共产党的改革派，如江泽民曾庆红等人，行事有退，毕竟在海外拥有的财富是万万不能大意的，一个不小心就能让整个市场都震荡，有这样的布局，依靠的是平衡，当然有退。但是习近平和他们都不同，习近平在海外没有什么大资产，他在七哥的爆料下又知道了那么多他想都不敢想的财富，原来这帮中南坑的老杂毛们，一个比一个富，一个比一个财大气粗。别人的私生子都比他多，他就偏偏只有一个女儿。更别提南普陀计划对他的侮辱了。连一个随意谈论他私生活的书商都要抓，何况是就把他当成傻子呢。
 
-是唯一在人类上未来全球可以流通的
-It is the only one that can be circulated globally in the future
+![](https://assets.gnews.org/wp-content/uploads/2022/01/N10A00_P_01_02.jpg)共产党黑警 / 图源：网路
 
-是全世界政府法律遵守的
-It also complies with the government laws around the world
+共产党内那些所谓的有脑子的，习近平玩不过的那些人，什么江泽民、王岐山、曾庆红、韩正等人，他们几乎都是上海帮，上海帮的特点就是，知流勇退，一退再退，这还怎么灭共啊。如果香港反送中运动没有那些共产党黑警，就是按照退的做法，慢慢温水煮青蛙，也不打也不抓，温和运动，但是会在后面挑机会默默把那些人都做掉，在私下里做，就跟天安门的便衣似的，看着都是闲逛的老百姓，根本不知道那些都是便衣。很多事情就不会火上浇油那么热烈，毕竟曾庆红这些人的智慧，七哥都在称赞，比习近平强太多了。其实总在想，曾庆红这么高深的智慧，但是无奈，历史真的没有选择他，南普陀计划的时候在嵩山做法事，掉下来的白鹤，还有南普陀的土，都是天给的预示。曾庆红难道不懂吗？那为何他不懂得退呢？有的时候吧，在看到这些纷繁的人事时，莫名会有一种惊叹，七哥又怎么不知道他们的道行呢，但每每总是在嬉笑怒骂中，就让这些人趴在地上了。共产党内部那么多好人，和这些人打交道的又岂止那么一两个人？你们看到的天意，在一意孤行的人看来，更是一种预示，这事儿非要做，逆天也要做，天算什么，共产党就是要与天斗其乐无穷。
 
-啥叫数字货币
-What is a digital currency?
-
-就是不受政府敲诈的
-It is a new kind of money that is free from extortion by the government
-
-自由流通的、保密的
-freely circulated, confidential
-
-谁也拿不走的新的钱
-and cannot be taken away by anyone
-
-比黄金、比你的纸币还重要
-more important than gold and your paper money
-
-那么这个权力 共产党给拿走了
-Then what is the right being taken away by the Communist Party?
-
-叫数字人民币
-It is called digitalization of RMB
-
-数字化叫绝对中心化
-The digitalization of RMB is absolutely centralized
-
-没有政府的币
-Digital currency is not supposed to be controlled by government
-
-它要绝对政府化
-But it (digitalization of RMB) has to be absolutely controlled by government
-
-那你不就找死吗
-It is ridiculous
-
-那么我们给了你喜币
-Then we give you Himalaya Coin
-
-全人类都要
-All mankind want to buy
-
-不光是中国人民要买
-Not only Chinese want to buy
-
-全人类都要买 一定会的
-All human beings will definitely want to buy it
-
-还要全球的流通
-Also it will be circulated globally
-
-你知道这次达沃斯论坛说什么吗
-Do you know what this Davos forum is talking about?
-
-我告诉大家
-Let me tell you
-
-我今天可以说达沃斯论坛私下讨论最多其中之一
-Today I can say that, one of the most discussed topics in private at Davos forum is
-
-包括新中国联邦是否会被很多国家突然给接受
-including whether the New Federal State of China will be suddenly acknowledged by many countries
-
-成为代表中国人民的政府
-to become a government representing the Chinese people
-
-和喜币是否会在全世界全面流通
-and Himalaya Coin will be fully circulated around the world
-
-他(们)说 如果喜币流通
-They said, if Himalaya Coin is circulated
-
-我们就控制不住了
-We will not be able to control it
-
-这将成为所谓的
-This will become so-called
-
-他们叫未来100年金融计划
-They call it the next 100 years financial plan
-
-就是把数字货币化的权力操控在达沃斯手里
-It is to put the power of digital monetization in the hands of Davos
-
-现在 习近平害怕
-Now Xi Jinping is afraid
-
-你以为光习近平害怕
-Do you think that only Xi Jinping is afraid?
-
-你以为光这些达沃斯党 全地球上这几百个富豪害怕
-Do you think that only these Davos Party members and the hundreds of rich people on the earth are afraid?
-
-恋童癖害怕
-and the paedophiles are afraid?
-
-我告诉大家
-Let me tell you
-
-喜币就像在黑暗中的一盏明灯
-Himalaya Coin is like a beacon in the dark
-
-一灯能除千年暗
-A Light Removes a Thousand Years of Darkness
-
-一个黑暗（中的灯）能把千年的黑暗给去掉
-A light in the dark can remove the darkness of a thousand years
-
-咱就是那个黑暗中的灯叫喜币
-We are the light in the dark called Himalaya Coin
-
-我们的这个设计
-This is our design
-
-一智能灭万年愚
-One Wisdom Light Destroys Ten Thousand Years of Stupidity
-
-喜马拉雅联邦 你记住
-Himalaya Federal State, you remember
-
-没有联邦喜币就没有那么牛叉
-No Federal State, Himalaya Coin wouldn’t be this great
-
-有喜币没联邦也没那么牛叉
-No Himalaya Coin, the New Federal State of China wouldn’t be this great
-
-New Federal of State 新中国联邦和喜币放在一起
-New Federal State of China and Himalaya Coin together
-
-就是灭掉了万年的愚蠢
-are the light to destroy the ten of thousand years of stupidity
+共产党一路踩着老百姓的鲜血，中国境内的河流都可以被这些鲜血染成红色。七哥爆料说要在冬奥会上响起甜蜜蜜，这是一场不会流血，没有牺牲的战争。从香港反送中运动开始，爆料革命开始走上历史舞台，吸引更多反对独裁支持平民的老百姓。我们一向追求的就是不流血，反对暴力。这个世界一直都在发展，人们不可能把有限的历史全部都忘记，就算共产党篡改了中国的历史，但其他国家有过的记载还是被保留下来了。人类是一个整体，那些记忆是不可能被抹去的，同样的，基于那些记忆的痛苦也激励着人们反对暴力，和平抗议，因为人命才是最珍贵的。流过的血不会白流，会变成后代的记忆，继续传承下去，痛苦也不会白白痛苦，改变总会发生。人从来就不是猴变的。
 
 * * *
 
-Date: 01/14/2022
-原视频标题: 《喜币和新中国联邦合璧，犹如黑暗中的明灯，令习近平和达沃斯感到恐惧！
-The combination of Himalaya Coin and the New Federal State of China is like a beacon in the dark, which scares Xi Jinping and the Davos!》
-原视频日期：2022/01/22
-原视频链: **[https://gettr.com/post/ppvrj3e571](https://gettr.com/post/ppvrj3e571)**
-任务编号：KC430（03556）
-视频时间段 : 0:00-2:19
-中听校：洛杉矶盘古农场 – WH
-翻译：洛杉矶盘古农场 – WH
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –文新
-审片：洛杉矶盘古农场 –银龙
-发布 ：洛杉矶盘古农场 –恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

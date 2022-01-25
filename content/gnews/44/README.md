@@ -2,36 +2,32 @@
 ---
 
 
-## COVID-19 最新情报｜“政府欺骗了我们”疫苗接种者深受副作用所累 后悔言论塞爆推特
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1906686/)
+## 两党议员呼吁立法禁止国会议员拥有或交易股票
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1907099/)
 
-**撰文｜疫情关注组 / 发布时间｜25/01/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗接種者深受副作用所累-後悔言論塞爆推特.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
+#### 撰稿：彩虹 
 
-在你准备阅读本篇文章之前，不妨试着先到推特上搜索关键字“Regret getting/taking vaccine”（后悔接种疫苗），验证一下，世界各地有多少人正遭受疫苗副作用的折磨，并对自己轻易相信政府而去接受 COVID-19 疫苗而悔不当初。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-39.jpg)图片来源：CNBC
+1月24日，《新闻极限》报道，25名民主党众议员和2名共和党众议员写信敦促众议院领导层“迅速提出立法”，禁止国会议员拥有或交易股票。
 
-自去年7月起，推特上面开始陆陆续续出现许多后悔接种疫苗的言论，有人对自己接种过 COVID-19 疫苗感到遗憾，表示绝对不会接受第二剂，亦有人控诉指“我每天都在后悔接种疫苗，因为副作用一直没有消失。”
+民主党众议员贾里德·戈登（Jared Golden）起草了该信，周一发给了众议院议长南希·佩洛西（Nancy Pelosi）和少数党领袖凯文·麦卡锡（Kevin McCarthy），信中写道：“鉴于最近的不当行为，不幸的是，这一常识性的两党立法是必要的，并且得到了各政治派别美国人的支持。你们两人最近都在公开评论中谈到了这个问题，但这个明显的问题在得到解决之前不会消失，国会在我们有能力解决这个问题时不应该拖延。”
 
-另外，还有人认为这一切都是政府造成的，“我后悔接种了疫苗，我的政府对我撒了谎，我被告知如果我接种了疫苗，就不会染上及传播病毒，这是一个天大的谎言，我永远也不会接种疫苗。”该条留言获得许多网友的认同。
+报道披露，12月份，佩洛西坚持认为，尽管国会议员经常掌握内幕信息，但应该允许他们交易个人股票。于是，几天后，她的丈夫就购买了价值数百万美元的Alphabet, Disney, Micron Technology, Reoff XX, Salesforce 和Roblox的股票。
 
-***本文截取部分供读者审览：***
+上周，加利福尼亚州的民主党参议员乔恩·奥索夫(Jon Ossoff)和共和党人乔什·霍利(Josh Hawley)也都提出了类似的法案，禁止立法者及其家人在任职期间买卖股票。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-28.jpeg)
+奥索夫的法案，即《禁止国会股票交易法》（Ban Congressional Stock Trading Act），将要求立法者、他们的配偶和家属将他们的股票投资组合放入秘密信托（blind trusts），不允许立法者利用内部信息交易股票和赚钱。如果立法者违反法律，该立法规定还将从他们的工资中罚款。
 
-@TinaxDez 写道：“我以为我快要 100% 恢复了，但显然没有。我后悔打疫苗吗？是的，如果你不认为是这样的话，那你滚远点。” 
-@tahoesharie 写道：“我后悔接种疫苗，尤其是看到越来越多的人自从接种后就变得越来越虚弱。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-7.jpeg)
-@RivvaRat 写道：“我每天都在后悔接种疫苗。原本是担心自己会因为没有接种疫苗，而在生病时被拒绝救治，但自从接种疫苗后，我就一直病着。接种后一个月，我不可以再吃鸡蛋，我的淋巴结严重肿痛，以至于我几乎晚晚失眠。” 
-@zukiiswa\_gwija 写道：“我后悔接种疫苗，我经历过副作用你想听听吗？腹痛、胸痛、头痛、呼吸急促、异常皮肤刺激症、高烧、腹泻，我仿佛正在地狱里。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-4.jpeg)
-@Cecilia97N 写道：“真相就是，我昨晚差点死了。我决定今天回到家乡，告诉家里的长辈们，我很抱歉，我让我自己的生活变成这样，然后我很后悔接种疫苗。” 
-@VisctStrauss 写道：“J&J疫苗让我躺在床上两天，我觉得自己好像得了疟疾一样，我后悔接种疫苗。” 
-@pabloes75859097 写道：“对很多人来说，流感比新冠病毒的致死率更高，尤其是年轻人，怎么没让我们像现在这样接种什么该死的疫苗。这些坚持和恫吓民众接种新冠疫苗的人绝对有问题。我后悔接种疫苗。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-4.jpeg)
-@Longisland\_wx 写道：“我知道改善的机率很低，如果未来几年出现更复杂的情况……美国人将自行崩溃，这绝对是场战争。我后悔接种了疫苗，但我只能这样做，因为纽约很荒谬，否则我将无法过上我的生活，我只能祈祷我的基因没有被搞砸。”
+霍利的法案，即《禁止国会内幕交易法》（Banning Insider Trading in Congress Act），也将禁止立法者买卖股票，但不禁止受抚养的子女这样做。如果立法者违反法律，他们必须通过财政部将获利返还给美国人民。
 
-来源｜[dailyveracity](https://www.dailyveracity.com/2022/01/23/shock-thousands-on-twitter-regret-getting-the-vaccine-side-effects-worse-than-covid/)
+奥索夫最近说：“国会议员不应该在我们制定联邦政策的时候，在我们有机会接触到特权机密信息的时候玩股票，这是政府的基本诚信和道德问题。”
+
+文章披露，这些法案是在《商业内幕》(Business Insider)的调查发现52名国会议员违反了《股票法》(STOCK Act)之后提出的。《股票法》规定，国会议员必须披露交易。根据《商业内幕》的报告，加州的民主党参议员黛安·费恩斯坦（Diane Feinstein）和亚利桑那州的马克·凯利（Mark Kelly），以及共和党参议员肯塔基州的兰德·保罗（Rand Paul）和堪萨斯州的罗杰·马绍尔（Roger Marshall）近年来都违反了该法律。
+
+**新闻来源**
+
+[27 Lawmakers Call Upon House Leaders to Ban Members From Stock Trading](https://www.newsmax.com/politics/stocks-pelosi-mccarthy-golden/2022/01/24/id/1053772/)
 
  
 
