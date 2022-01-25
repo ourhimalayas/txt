@@ -2,56 +2,32 @@
 ---
 
 
-## 回顾河南水灾幸存者被采访视频，周围维稳言论引群嘲
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906504/)
+## 塞尔维亚人形容中资轮胎厂为“人间地狱”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906612/)
 
-作者：日本方舟农场 – Andy5
+![塞爾維亞茲雷尼亞寧的玲瓏輪胎工廠工地。越南工人說，他們在工地上面臨「糟糕和危險」的條件。](https://static01.nyt.com/images/2022/01/18/world/00serbia-china01/merlin_200195361_b7b6704f-0ff0-42b6-b631-f869862f8c80-master1050.jpg)塞爾維亞茲雷尼亞寧的玲瓏輪胎工廠工地。越南工人說，他們在工地上面臨「糟糕和危險」的條件。 MARKO RISOVIC FOR THE NEW YORK TIMES
+据纽约时报中文网1月24日报道，一些在塞尔维亚为一家中共国轮胎公司工作的人，形容那里的生活如同“人间地狱”，因为中共国投资的诱人承诺与当地严峻的现实生活相差甚远。
 
+2018年9月，塞尔维亚总统亚历山大·武契奇和中共国领导人习近平在北京会晤，初步达成玲珑轮胎项目。塞尔维亚政府免费为玲珑轮胎工厂提供约97公顷农田，并承诺提供8500万美元国家补贴。最终，耗资九亿美元建成的玲珑轮胎工厂被吹捧为中共国在欧洲最大的工业投资。轮胎工厂计划每年生产超过1.3亿条轮胎，政府表示，该工厂最终将创造1200个就业岗位。
 
+塞尔维亚是欧洲最贫穷的国家之一，中共国的投资帮助塞尔维亚去年实现了超过7%的经济增长，在欧洲名列前茅。但是中共国对塞尔维亚的环境污染和破坏也是非常严重的，中共国经济的飞速发展就是以对资源的过度掠夺和对环境毁灭式的破坏实现的，如今这一幕剧情正在塞尔维亚重演。塞尔维亚人进入中共国工厂，如同身处“战俘营”，生活在“现代奴隶制”下，。一些工人已经逃离，但是离开就意味着撕毁合同，家人会背负劳工中介和高利贷债务，因为工人们前往塞尔维亚的费用是由家人提供的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+与中共国亲近的国家，富国变穷，穷国更穷。民主变独裁，独裁监狱化。中共国就是地球上最大的集中营，监禁着14亿奴隶。奴隶主从来不把奴隶当作人，奴隶的生存环境和生活条件也不是奴隶主考虑的。塞尔维亚如今正在步中共国后尘。
 
+新闻参考链接：[https://cn.nytimes.com/world/20220124/china-serbia-vietnamese-workers/zh-hant/dual/](https://cn.nytimes.com/world/20220124/china-serbia-vietnamese-workers/zh-hant/dual/)
 
+编辑：胖丁
 
-当地时间1月21日，中共以承认郑州水灾的死亡数字存在瞒报，并处理了郑州市委负责人，同时不忘歌颂习的正确指挥，草草了事为郑州水灾人祸画上句号。这种草菅人命，以惩罚地方而歌颂中央的处理形式，引发不满。
+* * *
 
-22日，有网友在社交平台上发出了当时（7月底）幸存者本想向记者叙述的事实，却被中共维稳人员干扰，不得不中断的采访视频引发墙内网友群嘲。
-
-特别是针对该位维稳人员的“全面介绍，不要抹黑”，有网友评论道“为什么要强调不要抹黑，而不是提醒实事求是说明情况？”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide14-2.jpg)
-还有因为该维稳人员数次追问记者是否是外媒，而引起网友质问“究竟是事实可怕还是外媒可怕？”更有网友将郑州水灾的瞒报，关联到中共在2003年非典和2019年年末中共病毒爆发后的瞒报。
-
-分析人士指出，正如中共喉舌胡锡进曾在去年7月称郑州水灾不存在瞒报，而被事实打脸一样，中共在病毒、拉闸限电、粮食供给等一系列事件中的表现，都只会加速墙内百姓认清中共本质的速度。
-
-参考信息：
-1. [潘嘉比的微博视频](https://weibo.com/tv/show/1034:4728206188806277?from=old_pc_videoshow) (视频+弹幕+视频下的留言评论)
-2. [河南郑州“7·20”特大暴雨灾害调查报告公布](http://www.gov.cn/xinwen/2022-01/21/content_5669723.htm) (CCP处理郑州官员而歌颂习的通告)
-3. [胡叼盤在鄭州人禍水災後說什麼來著？](https://www.gettr.com/post/pq8pj30e35)
-4. [抹黑郑州抗灾的国外记者被民众活捉，该赶走所有境外造谣媒体了](https://www.sohu.com/a/479794937_120044037)
-5. [维基百科 -蒋彦永](https://zh.wikipedia.org/wiki/%E8%92%8B%E5%BD%A6%E6%B0%B8)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
