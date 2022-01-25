@@ -2,41 +2,38 @@
 ---
 
 
-## 美国对乌克兰危机采取高度警戒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907381/)
+## 短视频：疫苗杀戮还在继续，人类繁衍遭受威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907456/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+翻译：不要代表我Kari
+校对：精靈藍
+剪辑字幕：蛮吉
+编辑：文泓
 
-整理：Sara9
-编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜快讯图-1.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗-2-3.png)图片来源：视频截屏
 
 
-根据《德国之声中文网》1月25日报道，为了应对俄罗斯可能向乌克兰入侵做准备，美国国防部于24日宣布让8500名军队处于可能部署到东欧的“高度警戒”状态，而欧盟则强调俄罗斯将面临严重后果，并宣布一项援助乌克兰的新计划。
+好吧，现在是2022年1月5日，我试着总结一下这些疫苗（灾难）的情况是多糟糕。因为不是每个人都能明白，这已经太迟了——对于全世界的15亿人来说，他们将慢慢死去。
 
-在北约和美国为俄罗斯入侵乌克兰的可能做准备之际，美国国防部在当地时间周一 (1月24日) 宣布，美国国防部长奥斯汀 (Lloyd Austin) 已让8500名美国军队处于可能部署到东欧的“高度警戒”状态。
+在接下来的几年里，还有大约15亿人（实际上稍微更多些）将遭受疫苗带来的严重伤害。而且他们可能无法真正融入社会，换言之，他们很可能无法工作，将需要被照顾。
 
-这8500名士兵中的大多数将参加可能很快启动的北约反应部队。
+要知道，会出现很多病患，很多残疾：他们的心脏受损、神经损伤以及自身免疫（系统）损伤。然后，另外大概1/3左右的人，在这之后幸存下来。你知道，也就是说15亿人接种了疫苗，但不会（完全）被疫苗杀死或伤害。
 
-剩下的人员将是美国对不断加深的危机做出具体反应的一部分，也就是美国很可能向东欧的美国盟友提供保证。他们担心俄罗斯对乌克兰的计划可能延伸到波罗的海和北约所谓的东欧其他国家。
+而这1/3的人将不得不照顾另外1/3的人，你知道，那些因疫苗受伤的群体，并处理前面所说的因疫苗而死的那1/3的人群的问题。
 
-美国的这些举动标志着拜登政府在乌俄议题上的一个重大转折。直到最近，拜登政府还在乌克兰问题上采取克制的立场，因为担心任何动作会挑衅俄罗斯。
+然后谈谈未接种疫苗的人，未接种疫苗的人将是这个世界最后的依托。未接种疫苗的人将不得不重建社会，他们将不得不学习如何管理核电站并确保它们不会发生熔毁。
 
-但随着俄罗斯总统普京 (Vladimir Putin) 加大了对乌克兰的威胁行动，而美国和俄罗斯官员之间的会谈也未能阻止他，拜登政府正在改变其相关战略。
+未接种疫苗的人将不得不肩负繁衍生息（的重任），为这个星球创造可持续发展的人类。
 
-美国政府坚称，美国无意在这个问题上与俄罗斯开战。由于乌克兰没有加入北约，该联盟不受条约约束，不需要协防乌克兰。
+视频链接：[It’s already TOO LATE for nearly 1.5 billion human beings who may DIE from covid vaccines (bitchute.com)](https://www.bitchute.com/video/bCQ396TtUyaG/)
 
-新闻链接：[乌克兰危机](https://www.dw.com/zh/乌克兰危机美军高度警戒-欧盟联合抗俄/a-60543066)[:](https://www.dw.com/zh/乌克兰危机美军高度警戒-欧盟联合抗俄/a-60543066)[美军高度警戒 欧盟联合抗俄](https://www.dw.com/zh/乌克兰危机美军高度警戒-欧盟联合抗俄/a-60543066)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

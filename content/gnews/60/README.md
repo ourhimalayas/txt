@@ -2,174 +2,147 @@
 ---
 
 
-## 中共国希望将美国文化女性化以进行控制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879630/)
+## 国防部正在把福奇暴露出来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
+
+[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
 
 **Steve Bannon
 史蒂夫·班农**
 
-Ken Blackwell, I want to go back this about this central issue of masculinity
-肯·布莱克威尔, 我想回到这个关于男子阳刚之气的核心问题
+Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
+马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
 
-and trying to de masculinity this whole attack on males overall
-当试图去男性化对男性整体进行攻击
+this Veritas amazing Veritas leak
+这个“真理”项目，惊人的“真理”泄漏
 
-but particularly on black men
-但尤其是对男性黑人
+that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
+他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
 
-Walk us through what that attack is
-引导我们了解攻击的是什么
+Is this the beginning of more information?
+这将会是更多信息的开始吗？
 
-and how does that translate to the practical politics
-以及这如何转化为实际的政治
+Do you think that certain individuals real scientists inside the apparatus
+你认为系统内部的某些真正的科学家
 
-we need to basically destroy root and branch the Democratic Party in November this year
-我们需要在今年11月基本击败民主党
+that’s we’ve had enough we got to stop this madness, Dr. Malone.
+我们已经受够了，我们必须停止这种疯狂，马龙博士
 
-Ken Blackwell (Commentator, Former Ohio State Treasurer)
-肯·布莱克威尔（评论员，前俄亥俄州财政部长）
+Dr. Robert Malone
+罗伯特·马龙博士
 
-Steve, It really did start at an accelerated pace with the Great Society Program
-史蒂夫，它确实从大社会主义计划开始加速
+I think it’s the DOD saying they’ve had enough of this.
+我认为是国防部说他们已经受够了
 
-when in fact they created an incentive system to break up the family
-事实上，他们创造了一个激励系统来打破家庭
+And I’m not sure if this came from a JAG’s office
+我不确定文件是否来自美国陆军总检察长的办公室
 
-and to drive unemployed a low wage of black males out of the family
-以及将低工资的黑人男性赶出家庭
+because they’re stamped like they are
+因为它们看起来像
 
-they created a penalty box for intact families
-他们为完整的家庭创造了惩罚箱
+based on the file names or if it came from DARPA
+基于文件名或是来自国防高级研究计划局
 
-1960s there were many intact black families as my family
-1960年代有许多完整的黑人家庭就像我的家庭
+But having looked at these again and again in recently communicating with the DOD JAG
+但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
 
-The Great Society Program accelerated the attack on the black on the black males
-大社会计划主义加速了对黑人男性的攻击
+it’s trying to smoke out whose office this might have come out of.
+文件，在试图找出这可能来自谁的办公室
 
-We were experiencing that
-我们正在经历这种情况
+I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
+我认为现在是国防部终于出来说够了
 
-I’ll just go to TikTok, the feminization of America
-我用抖音举例，美国的女性化
+And throwing Tony under the bus, and it could well be the DARPA’s doing it
+把托尼推出来，这很可能是国防高级研究计划局做的
 
-and America America’s family unit which is not a family unit
-而美国的家庭单位，它不是一个家庭单位
+so that the fingers don’t get pointed at them
+这样手指就不会指向他们
 
-‘cause Marxism so big government socialist, they all destroyed the family
-因为马克思主义这么大的政府社会主义者，他们摧毁了家庭
-
-because they want to create a dependency on the government
-因为他们想建立人们对政府的依赖
-
-They want you on the tip of big government so they can control you
-他们想让你站在大政府的施舍上，这样他们就可以控制你
-
-They’ll move you from being a free citizen to being a subject
-他们会让你从一个自由公民变成一个臣民
-
-Now what black males have experience it’s that they in fact around in reality
-现在黑人男性在现实中的经历可以追溯到
-
-and they see that the left is one pushing a feminization of our community and our America
-他们看到左派正在推动我们社区和美国的女性化
-
-And they are in fact, continuing to zero in on males
-事实上，他们正在继续对男性进行调查
-
-the Chinese Communist Party along with big government marches in general
-中国共产党和大政府普遍推行
-
-which it’s Putin in Russia
-就是在俄罗斯的普京
-
-they understand that they can feminineness the American culture
-他们明白他们可以使美国文化女性化
-
-they in fact, they gain an advantage on the battlefield
-事实上，他们在战场上获得了优势
-
-What we have to do is to understand that black males are ready to speak up
-我们要做的是了解黑人男性已经准备好发声
-
-Our get to do is to go to Chicago and they are tired of this mess
-我们要做的就是去芝加哥，他们厌倦了这个烂摊子
-
-And in fact, we need to say, look, we have an agenda for freedom
-事实上，我们需要说，看，我们有一个自由议程
-
-We have an agenda for self sufficiency
-我们有一个自给自足的议程
-
-We have an agenda that respects your human agency and your human dignity
-我们有一个尊重你的人的能动性和你的人格尊严的议程
-
-and we can begin to move not in next two years, not in four years
-我们可以开始行动，不是两年后，不是四年后
-
-but this year in this election, we can change things in the margin
-而是在今年这次选举，我们可以在很大程度上改变一些事情
-
-you get black males voting for MAGA candidates
-让黑人男性投票给使美国再次伟大的候选人
-
-who in fact, respect human dignity, respect the family, respect work, and respect freedom
-事实上，是尊重人的尊严，尊重家庭，尊重工作，尊重自由的候选人
-
-you in fact, we’ll win elections for the next 50 or 100 year
-事实上，我们将赢得未来 50 或 100 年的选举
+But there’s in my mind, these Veritas documents look, look absolutely authentic
+但在我看来，这些真理文件看起来，看起来绝对真实的
 
 Steve Bannon
 史蒂夫·班农
 
-Ken, how do people get you on social media? How do you get your website?
-肯，人们如何在社交媒体上找到你？ 如何得到你的网站？
+So you’re saying this is what I’m sure we’re clear here
+所以你说这就是我确定我们在这里很清楚
 
-Ken Blackwell
-肯·布莱克威尔
+You’re saying that, as we know, we take over this year
+你是说，我们知道，今年我们接管了
 
-Kenblackwell.com, @kenblackwell on Gettr, and twitter
-Kenblackwell.com, @kenblackwell在盖特和推特
+that the investigations deep into the situation of Wuhan lab, the bioweapons program
+对武汉实验室情况的深入调查，生化武器计划
 
-I’m deemphasizing on Twitter
-我正在淡化推特
+and American scientific and taxpayer money that went into doing any of that
+以及用于做任何这些的美国科学和纳税人的钱
 
-And we’re growing like gangbusters on Gettr
-而且我们在盖特上的发展势头迅猛
+is going to be beyond a hot potato be one of the defining issues going forward
+将超越烫手的山芋成为未来的决定性问题之一
 
-Steve Bannon
-史蒂夫·班农
+what actually happened?
+实际发生了什么
 
-Ken, honor to have you on here. Sir, thank you
-肯，很荣幸有请你在这里， 先生，谢谢你
+You’re saying right now look at the Pentagon Papers
+你说现在看看五角大楼文件
 
-Ken Blackwell
-肯·布莱克威尔
+there are people either officially or unofficially, making a move on Tony Fauci
+有人正式或非正式地在对托尼·福奇采取行动
 
-Good be with you
-高兴和你一起
+in your mind and you know, DARPA and you know the DOD pretty well
+你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
 
-Steve Bannon
-史蒂夫·班农
+you’ve been consulted there for many, many years. Correct?
+你已经在那里做了很多很多年的咨询工作, 对吗？
 
-Thanks, brother
-谢谢， 兄弟
+Dr. Robert Malone
+罗伯特·马龙博士
+
+Correct. And I’m also in close communication with the senator and his investigations office
+正确，我也在与参议员和他的调查办公室保持密切联系
+
+I don’t want to speak for the senator but this this is one of those situations
+我不想为参议员说话，但这是其中一种情况
+
+If you spent decades dealing with DOD and the hill like I have
+如果你像我一样花了几十年的时间与国防部和国会山打交道
+
+this is how the game gets played
+这就是游戏的玩法
+
+This is how the Kabuki works in DC
+这就是歌舞伎在华盛顿中的运作方式
+
+is they’ll turn on each other when it looks like somebody is going to have to take the fall
+当看起来有人将不得不背锅时，他们是会互相攻击的
+
+And it looks to me like that has now happened in DOD has had enough
+在我看来，现在的情况是国防部已经受够了
+
+It’s important to know that Tony bushwhack DOD after the anthrax attacks
+重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
+
+and grabbed a big chunk of their budget
+而且敛走了他们预算的很大一部分
+
+so there could be some payback opportunity here
+所以这里可能是国防部反击的机会
 
 * * *
 
-Date:01/18/2022
-原视频标题: China Wants To Feminize The Culture Of America For Control
-中共国希望将美国文化女性化以进行控制
-原视频日期：2022/01/18
-原视频链接: [**https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html**](https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html)
-任务编号：KE356(3526)
-视频时间段 : 0:00-3:29
+Date:01/15/2022
+原视频标题: The DOD Is Throwing Fauci Under The Bus
+国防部正在把福奇暴露出来
+原视频日期：2022/01/15
+原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
+任务编号：KE351（3493）
+视频时间段 : 0:00-2:22
+
 英听校：洛杉矶盘古农场 – Layka
 翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+发布：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
