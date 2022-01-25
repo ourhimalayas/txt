@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 6:34 PM (UTC)`
+
+1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！<br/><br/>January 25, 2022 The Chinese official media just confirmed the important emergency announcement by New Federal State of China <br/><br/>https://mp.weixin.qq.com/s/X1RqxZRJsVck1a7Baf626g
+![img](https://media.gettr.com/group45/getter/2022/01/25/18/33c042a8-6528-263a-8e58-7ea736d85bda/3b987318eae340969b07c513d53dea9d.jpg)
+
+---
+
 `@miles 1/25/2022 5:45 PM (UTC)`
 
 A Thank You letter from the New Federal State of China to President Joe Biden and Secretary of State Anthony Blinken regarding closing US Embassy in Beijing <br/><br/>新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
@@ -149,12 +156,6 @@ New Release                                              Shop Now at www.gfashio
 
 1月23号：👉👉👉尊敬的战友们好，明天上午8:30开始7哥大直播<br/><br/>【七哥您好! 似乎小飞象因为参加爆料革命，几个月能拿到政庇让这些伪类很受伤。腾彪原来是傅希秋搞政庇的，看样子一直都搞不定身份，现在开始反水互咬了。傅希秋吴建民参加1月6日国会事件，现在民主党正在深挖这件事期望定性为暴乱，这是他们在中期选举和2024大选能攻击对手最后的希望，肯定不会轻轻放过，傅希秋他们完球蛋了，腾彪一看形势不对，马上切割。这群孙子。🤣🙏🙏🙏🙏】
 ![img](https://media.gettr.com/group48/getter/2022/01/24/00/98ebe37f-93e2-b82b-ae2f-faa90c9a4c40/e719afb5691c5b4b6ea571207c4efcac.jpg)
-
----
-
-`@miles 1/23/2022 4:12 PM (UTC)`
-
-1月23号：邪恶的共产党再也不会．回到还想干什么，就干什么的，那个时代了！共产党．正在以光的速度走向死亡。【塞浦路斯法官因技术问题保释中国二人组 】Another article from the biggest newspaper in Cyprus: <br/><br/>https://knews.kathimerini.com.cy/en/news/cypriot-judge-bails-chinese-duo-on-technicality
 
 ---
 

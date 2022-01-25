@@ -2,42 +2,110 @@
 ---
 
 
-## 2022年1月25日郭先生临时重大直播 文字同步精要
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1908688/)
+## 【Michael.Tonny专栏】NSW数据证明 接种疫苗后感染机率上升10倍以上
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1908853/)
 
-战友们好，郭先生周二临时重大直播：
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-1、在过去5年中，爆料革命致力于推翻共产党，给中国人民主法制。共产党长久以来在新疆、西藏和香港大屠杀。2019年5月和12月郭先生警告西方，习近平、王岐山为了征服世界，会使用生化武器。2020年共产党提前购买了PPE和口罩，释放病毒，阻止世界对病毒的防治，是对世界人民的大屠杀。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/announcement.jpeg)
-2、共产党对西方的渗透和伤害，完全不顾世界法制和规则。2020年6月4日，建立新中国联邦，获得了多个国家和组织的支持。新中国联邦揭露共产党的邪恶，疫苗真相，得到了广泛的认可和支持。此时此刻中国人民在黑暗之中，通过核糖核酸等检查，囚禁人民。共产党通过非法手段获得了冬奥会的举办权，在中国人民持续的灾难中，仍然举办冬奥会。郭先生和爆料革命战友们联合抵制冬奥会，誓死为此奋斗，不想在中国发生类似1935年之后的纳粹德国的灾难，以及防止冬奥会后对台湾的侵略。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-3、今天郭先生紧急直播： 美国现任总统拜登和布林肯先生做出决定，美国政府已经正式通知北京政府，从即日起授权撤离美国驻中国大使馆。这是停止世界上继续发生各种人道灾难的巨大进步，一切都是刚刚开始。郭先生衷心感谢布林肯先生，拜登总统，美国人民领导下的美国政府做出的授权撤离驻中国大使馆的决定。
+试验性的COVID-19病毒疫苗不能预防感染，只会导致身体免疫力持续下降，感染中共病毒的风险成倍增加。
 
-4、 美国驻中国大使馆目前已经没有大使。甜蜜蜜运动会发生在二环以内所有使馆区，让中国人开开心心过年。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-WEEKLY-SURVEILLANCE-IN-NSW-Epidemiological-week-52-ending-1-January-2022.jpg)
 
-5、这次美国撤离中共国大使馆的官方声明因冠状病毒。美国大使馆是中共的定海神针，冬奥会前授权撤离，虽然不是断交，但这次撤离永远不会回去了。此时此刻，世界已经炸锅了。当年美国撤离伊拉克大使馆后马上就是开战。七哥梦语：美国要求对中共病毒溯源，不配合就开战！
+在新南威尔士洲政府1月20日发布的新南威尔士州每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)）第30页，有与苏格兰公共卫生部门1月19日发布的苏格兰公共卫生COVID-19 和冬季统计报告（[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)）类似的关于COVID-19疫苗接种状态分四种情形的定义：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)
+未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-6、世界忙着和中共断交，七哥气定神闲揉面蒸馍馍，共产党进了蒸笼，死期已到。
+接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
 
-7、中共过去存在的合法性，就是美国在中国的大使馆。美国撤离中国大使馆，相当于中共国没有了保安。世界任何国家，包括中国人民，都可以随便揍中共，而且谁揍表扬谁!
+完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
 
-8、美国长期不派大使，撤离大使馆，中国的军队和台湾人民是最大的受益者，避免了牺牲当炮灰。中国所有有权有脑子的都知道，大势已定，共产党完了！
+疫苗接种状态不明确（Under investigation）
 
-9、感谢国内冒着生命危险的重要战友。这是天大的事，是美国基于多方面的情报，做出的决定。美国大使馆即使只撤一半，股市都会继续大跌。
+根据这样的定义，显然存在大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群。
 
-10、全世界都在争抢第一个发布这个消息，这件事也是全世界多个政治力量共同推动的结果，但新中国联邦无疑是最重要的推动者。很快，中共国的大使馆、领事馆都会撤出。欧洲正在紧急开会，只要美国开打，欧洲全部跟上，日本巨大一系列的行动也会开始，东南亚也会跟上。
+然而即使这样故意把打了一针的人计算成没有打疫苗的感染，在今年1月2日~1月8日的新增感染COVID病例中，打了1针疫苗和完全接种疫苗的人群依然占所有感染者的99.51%，仅0.49%的新增COVID-19病例出现在未接种疫苗人群中！接种COVID-19疫苗的感染率持续上升，目前高达未接种疫苗人群的10.8倍！
 
-11、仅仅靠美国灭共是不可能的；没有美国不支持，新中国联邦灭共也是不可能的。美国撤大使馆的这个决定，标志着灭共的第三道大门正式打开。共产党玩球蛋了！
+这份报告并未明确指明1月2日~1月8日一周时间内，新南威尔士州所有新增确诊、住院、ICU和死亡病例数字，只提供了2021年11月26日~2022年1月8日的数据，但另一份1月13日发布的报告[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022 Published 13 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)详细记录了11月26日~2022年1月1日的数据，因此很容易得到2022年1月2日~1月8日一周时间内，新南威尔士州所有新增确诊、住院、ICU和死亡病例数字。
 
-12、灭共的路很长，今天是阶段性的成果。今天七哥蒸馍，是兑现对来访客人的承诺！承诺很重要，灭共不能妨碍我们正常生活，灭共就是为了更好的享受生活！
+下表为1月13日报告第8页，表6，2021年11月26日~2022年1月1日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
 
-13、郭先生搂的很辛苦。大概一个月前，美国人已经把重要的东西运走了。现在都没想好怎么发公告，就是为了让人员体面的离开！共产党改盘古龙头，把郭先生的父亲赶上大街，让世界灭共的抉择提前了半年。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-6-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-1-January-2022.jpg)
 
-14、战友们现在立刻传播这个重大消息。这对冬奥会前的共产党绝对是个噩梦，美国警告共产党别再放病毒。共产党不敢再放毒，否则一定会开战。甜蜜蜜会响彻2环内大使馆，共产党完了，全世界经济横扫，一切都重新分配，世界会进入前所未有的危机，也会是前所未有的大反弹！
+2021年11月26日~2022年1月1日，新南威尔士州COVID-19新增感染者中，完全接种疫苗的108,056例，部分接种疫苗的1,110例，未接种疫苗的2,765例。
 
-以上大直播文字精要，由新西兰农场焦点组提供。最终内容请以郭先生大直播视频为准。
+在新增COVID病例中，接种疫苗的共109,166人，未接种过疫苗的2,765例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为111,931例。接种过疫苗的占97.53%，未接种疫苗的占2.47%。
 
-文案提供：梦田
+这和中共国的数据相当。根据[中共国务院新闻办公室网站](http://www.scio.gov.cn/index.htm)新闻，[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)消息，在本月12日中共国天津市疾病预防控制中心主任、市卫生健康委副主任韩金艳，市委教育工委专职副书记孙志良，津南区副区长陈妍卉，市疾病预防控制中心副主任张颖主持的天津市疫情防控的有关情况会上公布：
+
+“天津107例感染者中，103例完成全程接种（包括完成加强接种32例），3例仅接种1剂次灭活疫苗，1例未接种”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tian-jin-166.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tian-jin-covid-19-vaccination-status.jpg)
+
+天津新增COVID-19确诊病例中，接种过中共病毒疫苗的人占99.07%，未接种疫苗的人仅占0.93%！
+
+2021年11月26日~2022年1月1日的中位日期为2021年12月13/14日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NSW-vaccine-targets-and-forecasts.png)
+2021年12月13日，1针94.78%，完全接种93.15%。
+
+2021年12月14日，1针94.8%，完全接种93.2%。
+
+完全接种疫苗的平均值为93.175%，部分接种疫苗的平均值为94.79%，未接种疫苗的占1-94.79%=5.21%。
+
+根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（108,056÷93.175%）÷（2,765÷5.21%）=2.19倍。
+
+接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（109,166÷94.79%）÷（2,765÷5.21%）=2.17倍。
+
+下表为1月20日报告第7页，表5，2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-5-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-8-January-2022.jpg)
+
+2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊感染者中，完全接种疫苗的267,381例，部分接种疫苗的2,578例，未接种疫苗的3,552例。
+
+在新增COVID病例中，接种疫苗的共269,959人，未接种过疫苗的3,552例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为273,511例。接种过疫苗的占98.7%%，未接种疫苗的占1.3%。
+
+2021年11月26日~2022年1月8日的中位日期为2021年12月17日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
+
+2021年12月17日，1针94.85%，完全接种93.34%，未接种疫苗的占1-94.85%=5.15%。
+
+根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（267,381÷93.34%）÷（3,552÷5.15%）=4.15倍。
+
+接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（269,959÷94.85%）÷（3,552÷5.15%）=4.13倍。
+
+根据1月13日和1月20日的报告，可得1月2日到1月8日一周内，新增感染、住院，ICU和死亡人数。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/subtract-the-two-tables.png)
+
+2022年1月2日~2022年1月8日，新南威尔士州COVID-19新增确诊感染者中，完全接种疫苗的159,325例，部分接种疫苗的1,468例，未接种疫苗的787例。
+
+在新增COVID病例中，接种疫苗的共160,793人，未接种过疫苗的787例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为161,580例。接种过疫苗的占99.51%，未接种疫苗的占0.49%。
+
+这期间的中位日期为2022年1月5日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
+
+2022年1月5日，1针95.02%，完全接种93.62%，未接种疫苗的占1-95.02%=4.98%。
+
+根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（159,325÷93.62%）÷（787÷4.98%）=10.8倍。
+
+接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（160,793÷95.02%）÷（787÷4.98%）=10.71倍。
+
+通过新南威尔士州的报告，随着接种疫苗时间的推移，接种疫苗的感染机率在成倍上升，在所有感染者中，已经达到99.51%以上为接种过疫苗的人。
+
+最后提醒，这些数据是在新南威尔士洲政府将很多接种疫苗不超过21天的感染者算成未接种疫苗人群的结果。
+
+参考数据：
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
+
+[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022 Published 13 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
+
+[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
+
+[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
