@@ -2,34 +2,22 @@
 ---
 
 
-## 美众议院提出《武装台湾法案》
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1903782/)
+## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+**疫情關注組 / 發佈時間｜24/1/2022**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/50303486-AC8E-4401-A2FC-6C67072DD644.jpeg)（图片来自Wikimedia Commons photo）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-近日，美国众议员迈克尔-加拉格尔Michael Gallagher提出了《武装台湾法案》：由国防部长建立台湾安全援助倡议，并批准从2023-2027年每年为该倡议提供30亿美元。
 
-据《台湾新闻》报导，加拉格尔表示，中国领导人习近平已将与台湾的统一作为 “其（中共国）遗产的关键部分”，并警告说，中国共产党正变得越来越有侵略性，因为它认为拜登政府在国外软弱无力。
+据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
 
-“国会需要挺身而出，在为时已晚之前恢复威慑力。我很自豪地与霍利参议员一起提出《武装台湾法》，为台湾提供必要的资源和武器，以挫败入侵企图，”加拉格尔说。
+[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
 
-该法案规定了如何使用分配给台湾的年度防务资金，特别侧重于提供设备、培训和其他必要的支持，以加强台湾的非对称性防御能力，阻止中共国的入侵。
-
-该法案还要求台湾配合美国对其非对称性防御的投资，增加国防开支，获得非对称防御能力，并实施国防改革，以获得台湾安全援助计划的资金。
-
-此外，该法案还规定，“美国未来向台湾出售、租赁或以其他方式提供常规武器的条件是，台湾在实现可信的非对称防御方面取得明显进展。”
-
-*参考链接： [Arm Taiwan Act introduced in US House](https://www.taiwannews.com.tw/en/news/4419220)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青城道姑*
-
-*发布：miumiu*
+以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
+来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
 
  
 

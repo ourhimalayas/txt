@@ -2,41 +2,50 @@
 ---
 
 
-## 乌克兰危机日趋升级，澳外交部敦促本国公民离开
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905374/)
+## 王岐山孟建柱江泽民设局让习近平成为孤家寡人众矢之的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905399/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+G-TV视频链接：[https://gtv.org/video/id=61ee5d0a87664c47acd93a24](https://gtv.org/video/id=61ee5d0a87664c47acd93a24)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1005-1.jpg)图片来源：**Newswep.com**
+**郭文贵先生**：这个共产党此时此刻，就是现在你看王岐山和孟和江家这个局设计得很高妙，让习成为了共产党9500万党员所有人最恨的人，这个不是一般的（人）能做到的，只有江家、孟、王岐山、杨洁篪有这个级别。习走向这条路那就是不归路，党会把他灭了。
 
+第二，让他的经济大撒币，叫他的经济彻底完蛋，成为现在连沼泽地都想放弃的人。然后给他设套儿让他钻进去，成为世界上经济的威胁，完了！
 
-整理报道：文泓
+第三，你看看江家、王家、孟家还有杨洁篪，把外交部系统、政法系统、军队的核心全体控制，习现在就是一个所谓的外交部那几个替他说话的骗他的那些战狼，还有几个军队的所谓的给他卖命的几个人，他没有啥了。
 
-1月25日，据澳洲新闻网报道，稍早时澳大利亚外交部已建议本国公民不要前往乌克兰，并指示驻基辅大使馆工作人员的家属离开该国。因为全世界都在为潜在的俄罗斯入侵做准备。
+这个时候大家记住，他要去打台湾的时候，热闹了，最后习家一定鼓励他在中国实施最严厉的经济政策。这个已经国有化已经都把马云这帮人整成这样了，什么卢志强，什么董文标，民生、融创、许家印、李嘉诚，是吧？都要成为商人的金钱的敌人，然后让你逼着你，最后他一定是更严厉的经济政策。
 
-就在周一的深夜，联邦政府更新了建议，提示所有澳大利亚人现在离开乌克兰，在乌克兰与俄罗斯“发生武装冲突的风险”时段不要前往该国。现在整体建议已经提高到旅行禁令。
+习现在在哪安全你告诉我？他去香港，香港人能把他吃了；去全世界，恨不得把他宰了；他在中南坑睡觉，中南坑旁边人他知道随时都有人可能一个导弹就进来了；吃饭，吃好几回才敢喝口水。这种局面最后的疯狂一定打台湾，一定实施最极端的经济政策。
 
-澳洲专业旅游网站（Smart Traveler）上写道，“如果你在乌克兰，如果安全的话，你现在应该通过商业方式离开，航班可用性可能会在短时间内发生变化甚至暂停”。
+所以习是咱真正的战友，就你想说他不是战友都不行，反面的战友，是吧？还有一个，你王岐山、孟建柱绝对是我们战友，他不培养孙力军这人，你咋证明我的伟大、证明咱们爆料革命伟大？
 
-联邦政府敦促受影响的人直接联系航空公司或运输提供商，并计划将澳洲外交官的家庭成员撤离乌克兰首都基辅，同时，为在该国的澳大利亚公民提供服务的门户网站也已上线。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-北约周一表示，它正在派遣喷气式战机和舰船加强其东欧侧翼，因为如果俄罗斯入侵乌克兰，美国和欧盟希望协调以致并对俄罗斯作出强硬反应。
+编辑整理：Jacques；
 
-尽管克里姆林宫坚称它没有计划实施新的入侵，但俄罗斯在其邻国边境部署了大约100,000名士兵和重型装甲部队，导致地区紧张局势升温。
+字幕文件制作：小满；
 
-现在美国、英国和澳大利亚等国命令外交官家属离开基辅，而法国则告诉其公民避免不必要的前往乌克兰的旅行。
+视频制作及上传：Cindy；
 
-因为人们怀疑（俄罗斯发动）攻击并没有那么迫在眉睫，乌克兰和欧盟外交政策负责人都表示，任何外交人员的撤离似乎都为时过早。
+G-News发布：小满；
 
-新闻链接：[Australians urged to leave Ukraine as fears mount over Ukraine crisis, world prepares | news.com.au — Australia’s leading news site](https://www.news.com.au/travel/travel-updates/health-safety/australians-urged-to-leave-ukraine-as-as-fears-mount-over-ukraine-crisis-world-prepares/news-story/ee26a14b0e22fdad0d06ef7bd4af5dbc)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

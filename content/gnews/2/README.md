@@ -2,41 +2,118 @@
 ---
 
 
-## 妇科专家：新冠疫苗导致流产和死胎大增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905415/)
+## 姚明在批评中邀请埃内斯·坎特自由访问中国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1905443/)
 
-#### 【雅典娜观察】和您一起探究世界
+[https://gtv.org/video/id=61ed090c87664c47acd8b69d](https://gtv.org/video/id=61ed090c87664c47acd8b69d)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/美军-1.jpeg)图片来源：Kernodle Clinic
+John Berman (CNN host)
+约翰·伯曼（CNN 主持人）
 
+Enes, thanks so much for being with us
+埃内斯，非常感谢你和我们在一起
 
-整理报道：守望黎明
+Yao Ming has invited to show you around China
+姚明邀请你到中国参观
 
-来自佛罗里达的妇科医学专家詹姆斯·索普（James Thorp）博士透露，新冠疫苗正在造成大量的妊娠失败。索普指出，与其他疫苗相比，与新冠疫苗接种有关的死亡和妊娠失败的数量出现了大规模的飙升。他展示了六张图片，包括来自疫苗不良事件报告系统VAERS中的数据。
+What’s your response?
+你的回应是什么？
 
-索普展示的一张图片显示了新冠疫苗有关的妊娠失败，其中包括流产、死胎和胎儿死亡。那张图片显示，在过去360个月里因疫苗造成的妊娠失败数字是，流感疫苗363例，百日咳疫苗136例，其他所有疫苗1965例。而新冠疫苗在开始注射短短的10个月里，则出现了2737例妊娠失败。他说，与所有其他疫苗接种相比，新冠疫苗接种引发的妊娠失败的数量令人震惊。相关研究表明：新冠疫苗导致了三个月孕期以内的婴儿损失了十分之九。
+Enes Kanter (American Professional Basketball Player)
+埃内斯·坎特 （美国职业篮球运动员）
 
-这位母体胎儿医学专家还指出，除了胎儿死亡和胎儿畸形外，在出生之前就接触到疫苗的婴儿将有永久性的终身损害，包括大脑认知障碍、永久性免疫障碍和各种自身免疫性疾病。
+Thank you for having me, John
+谢谢你邀请我，约翰
 
-索普说：“这是可怕的、灾难性的。更糟糕的是，这种疫苗似乎还抑制了一些正常的免疫功能。所以它在新生儿出生后的第一年里出现了大量非常罕见的癌症。初步数据表明，从这种有毒的接种中存活下来的婴儿中可能会遭受永久性的伤害。而那些活下来的婴儿可能会有终身的精神残疾、中枢神经系统认知残缺、终身的免疫缺失，这将导致感染数量增加和罕见癌症的增加。它会带来终身的自身免疫性疾病。我认为新冠疫苗不是一种真正的疫苗。”
+Well, first of all, I want to say thank you to Mr. Yao Ming
+嗯，首先，我要对姚明先生说声谢谢
 
-致力于夺回医疗自由权的索普说，美国人绝不应该相信美国的医疗和保健人员。他指出：“大家永远不要全信医生的，包括我本人的说法。永远不要相信美国任何的医生或护士，因为他们被下了禁言令，如果说出真相，他们就会失去自己的生计。所以他们不敢告诉你们真相。所以你不要相信他们，他们已经毁掉了医疗保健系统。不能相信这些骗子，也不应该相信。”
+you know, thank you for your kind offer
+你知道，谢谢他的好意
 
-“更可怕的是，连让患者知情同意的希波克拉底誓言也被彻底废弃了。我们不能给患者知情同意的机会，我们都被下了禁言令。你无法相信你的医生，无法相信任何医疗工作者。”
+And yes, I do accept that actually
+是的，我确实接受了
 
-索普补充说，他所想做的就是要摧毁夺走美国人个人自由和医疗自由的邪恶联盟。这位佛罗里达州的医生解释说，他所说的联盟就是腐败的制药公司和医疗系统，他们正在因为毒害和杀害病人而获得大量联邦政府的补贴。这个联盟还包括了欺诈的保险公司和医学期刊。
+You know, because I actually do want to go to China
+你知道，因为我确实想去中国
 
-索普感叹道：“这一切可怕无比、肮脏不堪，一切都归结于金钱。”
+and see everything with my own eyes
+并且亲眼目睹一切
 
-原文链接：[Maternal Fetal Medicine Specialist proves Covid-19 Vaccines have caused huge increase in Miscarriages and Stillbirths](https://dailyexpose.uk/2022/01/23/dr-proves-covid-vaccines-caused-increase-in-miscarriage/)
+But on this trip, I want to ask Mr. Yao Ming
+但这次旅行，我想问问姚明先生
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+will I be able to visit or will go to slave labor camps
+我可以参观或将去奴隶劳改营吗
+
+you know, while we’re in China
+你知道，当我们在中国的时候
+
+are we can we go to see Tibet and see what the CCP regime do these beautiful people
+我们能不能去西藏看看中共政权对这些美丽的人民做了什么？
+
+While we’re in China, can we go to Hong Kong together
+我们在中国的时候可以一起去香港吗？
+
+and see you know, what people are going through there?
+而且看看那里的人们都经历了什么？
+
+Can we go to Taiwan? And also, you know while I’m in China
+我们可以去台湾吗？ 还有，当我在中国的时候
+
+I want to get to actually be able to talk to Peng Shuai, and see if she’s okay
+我想真的能和彭帅说话，看看她还好吗
+
+If she’s free to speak at freely at travel every
+如果她在每次旅行时都可以自由发言
+
+And, you know, I don’t need much talk China
+而且，你知道，我不需要太多谈论中国
+
+I don’t want to see no propaganda
+我不想看宣传
+
+I want to actually get to see the real China and show the whole world
+我想真正看到真实的中国并向全世界展示
+
+that what’s going on and so and so
+那里发生了什么事等等
+
+yes, I actually do accept this offer
+是的，我确实接受了这个提议
+
+John Berman
+约翰·伯曼
+
+Conditionally accept his offer. It sounds like Yes
+有条件地接受他的提议，听起来是的
+
+Enes Kanter
+埃内斯·坎特
+
+exactly
+是的
+
+* * *
+
+Date:01/20/2022
+原视频标题: Yao Ming invites Enes Kanter freedom to tour China amid criticism
+姚明在批评中邀请埃内斯·坎特自由访问中国
+原视频日期：2022/01/20
+原视频链接: [https://twitter.com/enesfreedom/status](https://twitter.com/enesfreedom/status)/1483877061865443333?s=24
+任务编号：KE360(3543)
+视频时间段 : 0:00-1:19
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
