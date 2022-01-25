@@ -2,31 +2,12 @@
 ---
 
 
-## 樱花灭共诗——雨夜读陈一之律诗有寄
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1908143/)
+## 从其防控反应上看，中共谎报了本土中共病毒病例数
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1908239/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/樱花灭共诗——庚子鬼节夜归有作.png)
-此时临北阁，
+01/22/2022 从其防控反应上看，中共谎报了本土中共病毒病例数。出乎意料的是，它对世界上前所未有的《鱿鱼游戏》中共病毒超级传播事件——冬奥会上的热衷从未消退。
 
-凭望是哀民。
-
-漫漫人间苦，
-
-欣欣万物春。
-
-有途称盛世，
-
-无处问艰辛。
-
-一夜同听雨，
-
-悲歌泪湿巾。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

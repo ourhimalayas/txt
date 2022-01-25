@@ -2,35 +2,31 @@
 ---
 
 
-## 有声|美国谋杀率达到自1990年以来的最高水平
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908296/)
+## 2022.01.19文贵先生大直播
+` 【爆料贵语】新西兰伊甸农场` [轉載自GNews](https://gnews.org/zh-hans/1908427/)
 
-配音：香草山佛教部 – 李傻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-19.50.46-1.jpeg)
+(如果认为)达沃斯和我没关系，就让你成为永远的达沃斯的奴隶
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-19.50.46.jpeg)
+达沃斯与会人具备着以下三个特征：
+
+1.影响国家的政治和军事的能力。
+
+2.控制的财富能左右数以亿计人的命运。
+
+3.与官方勾结，手里握着许多条人命
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-22.52.37.jpeg)
+人类只要存在达沃斯党，人类上就没有一天是安全的。
+
+参加达沃斯的没有一个人打了疫苗
+
+新中国联邦的诞生之后，达沃斯想在中国继续存在下去的可能性几乎没有
+
+没有教育，不可能有信仰也不可能有宗教。
+
+中国共产党和世界的经济脱钩，就是中国人民的脱险。中国共产党跟世界脱钩，中国人就脱假。共产党脱了钩，中国人就脱了控。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-自新冠病毒大流行以来，美国各地的谋杀率在不断飙升。2020年，凶杀案飙升至近30%，为30年来新高。2021年，大多数城市又在此基础上增长了4%。其中，每10万公民中有6.9人被谋杀，是1996年以来最高的谋杀率。涉及到谋杀率较高的城市有，洛杉矶、芝加哥、费城、休斯顿、凤凰城。
-
-随着犯罪率的上升，2020年的枪支购买量也在上升，创下了对希望购买枪支的美国人进行背景调查的记录，为2100万次。
-
-文字版原文：[美国谋杀率达到自1990年以来的最高水平](https://gnews.org/zh-hans/1904008/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

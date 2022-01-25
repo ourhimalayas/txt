@@ -2,31 +2,40 @@
 ---
 
 
-## 有声|出手反制 美暂停中共国44期航班
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908107/)
+## 有声|法官发全国禁制令，禁止执行拜登的联邦雇员疫苗强制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908220/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-台媒报道，当地时间1月21日，美国运输部宣布，暂停中国国际航空、厦门航空、东方航空和南方航空，自1月30日至3月29日的44个赴美航班。此举是针对中共当局，以中共病毒疫情再起为由，取消美方44架次航班的反制措施。
+配音：香草山农场 – 纳米
 
-美国运输部表示，只要中共愿意改善禁飞令，美方也完全准备好撤销上述命令；如果中共再继续取消更多航班，美方也会采取更多行动。
 
-据悉，自奥密克戎疫情爆发后，飞抵中共国的旅客检测阳性激增，在中共极端清零政策下，当局陆续取消国际航班，以防堵病毒入境。美方谴责中共此举，有违中美航空运输协议规定，警告将采取行动反制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月21日，美国一名联邦法官，发布了全国范围的禁制令，禁止执行针对联邦雇员的中共新冠病毒疫苗强制令。
 
-文字版原文：[出手反制 美暂停中共国44期航班](https://gnews.org/zh-hans/1898291/)
+去年9月，拜登政府宣布350万联邦雇员必须接种疫苗，11月生效。本案原告Feds for Medical Freedom ，是一家由数千名联邦机构雇员组成的非营利组织，其数十名成员就疫苗强制令，于12月起诉拜登政府官员。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+德克萨斯州的联邦法官布朗，撰写禁制令时，引用了联邦最高法院日前的裁决，该裁决推翻了拜登政府要求私营雇主让员工接种疫苗的强制令。布朗注意到，政府没有提供以前的总统援引宪法第二条权力、对文职联邦雇员实施医疗程序的例子，他认为拜登越权，甚至反问，“这是事实上的警察权力吗？”
 
-![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+美国司法部表示，将就布朗的命令提出上诉。
 
+文字版原文：[禁止执行拜登的联邦雇员疫苗强制](https://gnews.org/zh-hans/1904001/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

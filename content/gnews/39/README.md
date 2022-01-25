@@ -2,41 +2,25 @@
 ---
 
 
-## 美国对乌克兰危机采取高度警戒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907381/)
+## 朝鲜正在测试巡航导弹
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1907881/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+信息来源： 德国法兰克福报网页版
 
-整理：Sara9
-编辑：小红帽
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜快讯图-1.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/buerger-mit-mund-nasen-schutz.jpg)
 
 
-根据《德国之声中文网》1月25日报道，为了应对俄罗斯可能向乌克兰入侵做准备，美国国防部于24日宣布让8500名军队处于可能部署到东欧的“高度警戒”状态，而欧盟则强调俄罗斯将面临严重后果，并宣布一项援助乌克兰的新计划。
+图片来源： FAZ
 
-在北约和美国为俄罗斯入侵乌克兰的可能做准备之际，美国国防部在当地时间周一 (1月24日) 宣布，美国国防部长奥斯汀 (Lloyd Austin) 已让8500名美国军队处于可能部署到东欧的“高度警戒”状态。
+据韩国军方称，自称拥有核力量的朝鲜可能至少发射了两枚巡航导弹。总参谋部说，导弹是在周二早上（当地时间）被击落的。武器试验将与美国一起进行更详细的评估。这些导弹飞了多远，降落在哪里，最初是未知的。
 
-这8500名士兵中的大多数将参加可能很快启动的北约反应部队。
+与弹道导弹不同，巡航导弹不受朝鲜制裁。联合国决议禁止该国测试弹道导弹。通常，这些是地对地导弹，根据它们的设计，它们也可以携带核弹头。与弹道导弹不同，巡航导弹有自己的永久推进系统。
 
-剩下的人员将是美国对不断加深的危机做出具体反应的一部分，也就是美国很可能向东欧的美国盟友提供保证。他们担心俄罗斯对乌克兰的计划可能延伸到波罗的海和北约所谓的东欧其他国家。
+自今年年初以来，朝鲜已多次试射导弹，因此受到美国及其盟国韩国和日本的新批评。据该公司称，测试中还使用了高超音速导弹。使用这种武器，可以从弹道导弹发射所谓的高超音速滑翔导弹。高超音速武器因其高速而难以拦截。
 
-美国的这些举动标志着拜登政府在乌俄议题上的一个重大转折。直到最近，拜登政府还在乌克兰问题上采取克制的立场，因为担心任何动作会挑衅俄罗斯。
-
-但随着俄罗斯总统普京 (Vladimir Putin) 加大了对乌克兰的威胁行动，而美国和俄罗斯官员之间的会谈也未能阻止他，拜登政府正在改变其相关战略。
-
-美国政府坚称，美国无意在这个问题上与俄罗斯开战。由于乌克兰没有加入北约，该联盟不受条约约束，不需要协防乌克兰。
-
-新闻链接：[乌克兰危机](https://www.dw.com/zh/乌克兰危机美军高度警戒-欧盟联合抗俄/a-60543066)[:](https://www.dw.com/zh/乌克兰危机美军高度警戒-欧盟联合抗俄/a-60543066)[美军高度警戒 欧盟联合抗俄](https://www.dw.com/zh/乌克兰危机美军高度警戒-欧盟联合抗俄/a-60543066)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+🔗[朝鲜正在测试巡航导弹](https://www.faz.net/aktuell/politik/ausland/nordkorea-testet-marschflugkoerper-17749744.html)
 
  
 

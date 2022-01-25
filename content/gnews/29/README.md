@@ -2,61 +2,31 @@
 ---
 
 
-## 澳大利亚总理的微信公众号遭封锁，被变更成亲共的宣传账号
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1908050/)
+## 有声|新中国联邦创始人郭文贵先生寄语G-EDU上线
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908108/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1440x810_6789415524852.jpg)图片来源：www.dailymail.co.uk
-斯科特·莫里森(Scott Morrison)被中共国最大的社交媒体网站微信“公然”审查后，他的个人资料被屏蔽，并被更改成宣传中共的公众号。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月21日盖特消息，郭文贵先生对新中国联邦GEDU教育平台上线寄予厚望。
 
-澳大利亚总理最近看到他的微信账户变成了一个亲中共当局的，现被称为“澳华新生活” 的喉舌账号，情报部门负责人认为这是“外国干涉”。
+GEDU教育平台由喜马拉雅纽约磐石农场开发，历经两个月运行，于1月21日正式上线。郭先生庆贺G-EDU教育平台成功上线，并感谢教育平台战友们的辛勤付出。
 
-莫里森先生在这个‘超强应用程序’的7.6万名关注者收到了通知消息，指示他们应该立即选择退出，否则他们将被自动注册到这个奇怪的新账户上。
+郭先生表示，新中国联邦的教育平台上线意义重大。在病毒疫情的艰难时刻，我们有了新的希望，新的未来。它的目标和方向，就是在没有共产党的新中国联邦来后，培养一批智慧，勇敢，善良，有信仰的，健康诚实的，让人尊敬的新中国新一代人！
 
-据《每日电讯报》报道，莫里森先生的页面在本月早些时候被更名，但他的团队访问权在去年7月已经被封锁。
+文字版原文：[新中国联邦创始人郭文贵先生寄语G-EDU上线](https://gnews.org/zh-hans/1898155/)
 
-由于中共国境外的用户在操作时的限制，总理团队雇用了一个当地的运营单位，在该平台上向澳大利亚华人发布信息。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-在他们发现无法登录后，该团队就重新获得访问权向微信进行了几次接触，但都没有得到答复。
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-最近的一次沟通是莫里森先生的团队于1月10日发出的电子邮件，也被听而不闻。
-
-此后，该账户中澳大利亚领导人的照片被删除，而变更成为一个“为澳洲华侨提供生活资讯”账号。
-
-由科技公司腾讯拥有的微信，受到中共的定期监控和审查。
-
-议会情报与安全联合委员会主席詹姆斯·帕特森(James Paterson)参议员呼吁所有澳大利亚政客抵制该平台以示回击。他说：“（中共）针对我们的总理，试图通过禁止他使用海外华人社区最广泛使用的交流渠道来关闭他与澳大利亚华人的交流。我们不能允许一个外国专制政府干涉我们的民主并在澳大利亚设定公开辩论的条件。”
-
-他说，封锁总理公众号的举动是直接针对澳大利亚华人，并‘在境外实施审查制度，干涉我们的民主’。
-
-澳大利亚反对党领导人安东尼·阿尔巴尼斯(Anthony Albanese)也使用该平台与澳大利亚华人交流，他最近发布了一个帖子指责莫里森先生在快速抗原测试等问题上散布‘谎言’—他的公众号没有受到这种干扰。
-
-澳大利亚战略政策研究所执行董事彼得·詹宁斯(Peter Jennings)说，在国家将要进行大选的今年，这显然是一种‘政治干预’，工党的政客没有被攻击。他说：“这是非常明目张胆的，这显然是对那7.6万名用户的宣传。很显然，目的是被视为挑衅。”
-
-**简评：**
-
-中共肆无忌惮的挑衅澳大利亚，还在打战狼外交。但这种狂妄只会让其加速灭亡。
-
-澳大利亚正值大选之年，两党在竞选期间需要的都是竞选的‘抓手’，中共封锁澳洲总理的微信公众号，表面看来，失去了7.6万澳洲华侨关注渠道，但‘塞翁失马，焉知非福’。中共这样的独裁流氓举动正在引起世界的广泛关注。
-
-中共的公然挑衅，会使澳大利亚两党因外国干涉其民主更为团结，终将会一致反共。议会情报与安全联合委员会主席詹姆斯·帕特森(James Paterson)参议员呼吁“所有澳大利亚政客应该抵制微信”。因为中共对微信审查的风险一直都会存在。
-
-在国际上，也会让更多民主国家看清，中共不论在国际上，还是在中共国内都是一派独裁嘴脸；不论对海外侨民，还是老百姓都采用愚民政策。
-
-中共是人类的威胁，世界上任何一方的正义力量都不会放过它。
-
-新闻链接：[https://www.dailymail.co.uk/news/article-10432377/Australian-prime-minister-Scott-Morrisons-China-WeChat-page-HACKED.html](https://www.dailymail.co.uk/news/article-10432377/Australian-prime-minister-Scott-Morrisons-China-WeChat-page-HACKED.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
