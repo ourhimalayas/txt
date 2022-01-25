@@ -2,25 +2,22 @@
 ---
 
 
-## 研究人员发现某些批次的新冠疫苗比其它批次更为致命
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1903107/)
+## COVID-19 最新情报｜以色列疫苗覆盖率逾7成 确诊仍持续创新高 政府欲推第四针
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1903365/)
 
-翻译：zzballack
-上传：追着曙光跑
+**疫情關注組 / 發佈時間｜24/1/2022**
 
-据《Info Wars》1月23日报道，研究人员在采集并分析了有关新冠疫苗的疫苗不良反应报告（VAERS）数据后发现，这似乎是一场针对红州（共和党州）的致命政治战争。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-24-at-21.14.19.jpeg)图片来源：原新闻
-在查看与特定批次的新冠疫苗有关的不良反应时，分析人员发现剧毒疫苗批次被派往保守派地区。这份独家的里斯报告（Reese Report）分析了全球主义者如何在红州部署致命的疫苗批次，以惩罚他们的政治反对派并为其大重置计划（The Great Reset）铺平道路。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-前辉瑞公司副总裁兼首席科学官迈克·耶登博士（Michael Yeadon）在对VAERs的数据进行逆向工程后发现，某些批次的新冠疫苗远比其他疫苗更致命。更具体地说，大约有0.5%的疫苗被发现具有“剧毒性”，它会导致人们在接种后数天或数周内导致住院、残疾甚至死亡。然而，大多数批次的疫苗似乎都是无害的安慰剂。
 
-但这些数据揭示了更令人不寒而栗的事情：辉瑞公司、莫德纳公司和强生（Janssen）公司协调部署无害和有毒批次的疫苗，在实验环境下监测疫苗对公众的影响。
+据外媒报导，以色列是世界上疫苗接种率最高的国家之一，[统据数据](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)指出以色列第一剂新冠疫苗接种率达到74%，第二剂接种率67%，第三剂（加强针）接种率55%。截至1月21日，以色列的每日新增案例平均为63494例，创下记录新高。疫情以来，以色列累计221万2596例确诊，8393例新冠病毒死亡。（数据来源：[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)）
 
-这种部署模式使政府有能力将致命批次的疫苗投放到特定人群中–比如红州。事实上，VAERs的数据显示，红州的人均疫苗死亡人数比蓝州（民主党州）高得多。据研究人员克雷格·帕德库珀（Craig Paardekooper）称，造成这种差异的原因是，红州收到的致命批次数量是蓝州的两倍。
+[以色列媒体1月7日报导](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/)，于上周四一日通报了16830例确诊，隔日上午八点又新增了4032例病例，以色列媒体指出由于PCR检测规定的改变，可能会有未通报的病例数（以色列实际感染情形可能严重于公开资讯）。依据以色列新的检测规定，60岁以上或高危族群将享有优先PCR检测的权利，并鼓励未满60岁或已完全接种疫苗者在家或检测站利用快筛检测。然相关人士警示，快筛试剂的准确率远不如PCR测试，尤其是检测Omicron病毒。以色列当地新闻台称，他们收到了卫生部内部数据，数据显示快筛Omicron准确率仅5成，且未接种疫苗的假阴性率更高（这些数据无法核实）。
 
-这是全球主义者进行的一个典型的社会工程试验，以测试mRNA疫苗在民众中的“最大容忍剂量（maximum tolerated dose）”，同时杀死乔·拜登的政治反对派。
-
-信息来源：[Breaking: Red States Targeted With Tainted COVID Vaccines, Warns Former Science Adviser](Red%20States%20Targeted%20With%20Tainted%20COVID%20Vaccines,%20Warns%20Former%20Science%20Adviser)
+以色列政府仍计划以第四剂加强针解决Omicron疫情，该国总理纳夫塔利·贝内特上个月曾表示，以色列一项研究初步发现，接种第四剂疫苗将在一周后增强五倍抗体。因此，以色列政府开始向60岁以上和曾接种第三剂加强针的医护人员提供第四剂疫苗的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Simple-Electronic-Music-Studio-1.png)
+来源｜[TimesOfIsrael.com](https://www.timesofisrael.com/israel-world-1-in-daily-covid-cases-per-capita-exposed-schoolkids-wont-quarantine/) 1、[路透社](https://graphics-reuters-com.translate.goog/world-coronavirus-tracker-and-maps/countries-and-territories/israel/?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、 [TimesOfIsrael.com](https://www.timesofisrael.com/daily-covid-19-cases-near-17000-as-new-testing-rules-take-effect/) 2、[TheGuardian](https://www.theguardian.com/world/2022/jan/04/israel-embarks-on-fourth-covid-vaccination-campaign)
 
  
 

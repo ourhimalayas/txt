@@ -2,16 +2,14 @@
 ---
 
 
-## 七哥金句（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906165/)
+## 七哥金句（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906212/)
 
 整理：雅典娜速记组
 编辑：tianzhihuan
 
-咱们老百姓已经被洗脑了，是不是这个商鞅五策让你变成傻子，让你无知，让你走极端，让你忙得无所事事，最后忙死！
-
-然后把自己一生的钱可能买个骨灰盒，可能买个墓地，最后拉倒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句.001.jpeg)
+不可以这样攻击战友，不能学共产党那样杀人诛心，我们必须讲良心，讲证据，讲事实，不能凭空猜测。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2-1-2.jpg)
 发布： *tianzhihuan*
 
 更多资讯，请关注：

@@ -2,38 +2,48 @@
 ---
 
 
-## 澳洲证券监督机构对超级基金投资数字货币提出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1906246/)
+## 真想听爆料革命的人在一直断网状态下从未被防火墙阻隔
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906297/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+G-TV视频链接：[https://gtv.org/video/id=61ef3d1787664c47acd983f2](https://gtv.org/video/id=61ef3d1787664c47acd983f2)
 
-整理/编辑：小红帽
+**郭文贵先生**：喜马拉雅在如此黑暗的社会当中，有七座美丽的山峰，始终是雪白雪白的在那里。昆仑山脉，有地狱之门，有喀什玛峰，还有帕米尔高原，北到哈萨克斯坦，南到阿富汗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+纳扎尔巴耶夫作为共产党最亲密的战友，还有当时的拉赫莫夫，是不是？大家看到的把土地，江泽民2012年，拉赫莫夫家族认江泽民干爹的，他们都说中国人是世界上最伟大的民族，享受着上天给予最丰富的民族，但为什么贫富悬殊那么大？这些人我都见过，我们中国人必须要明白一个道理，为什么中国有北京有上海、有南方有北方、有东方有西方，差距那么大！
 
+不仅仅是共产党和自然条件，还有一个文化教育。你看东北三省的人，就是一辈子热炕头睡个媳妇、种点地、咋咋呼呼唱唱二人转，一辈子就像奴隶一样活着，就是一个肉球，跟那个牛马没啥分别，绝大多数人活在人畜不分的生活里，而且不能自知。
 
-根据《Coingeek》1月24日报道，澳大利亚证券监督机构警告当地人，不要在没有充分了解所涉及的风险的情况下，使用他们的退休储蓄投资数字货币。
+所以，我们爆料革命当中看到开智的人最多是哪里呀？江浙人、广东人、北京人、上海人，京上广。福报和智慧，是和你的修行，和你的教育程度是紧密相连的。我告诉大家现在国内翻墙很容易，冬奥会期间它断不断网？它一直就在断网状态，你还说什么冬奥会啊，而且只要想真地听爆料革命，只要想上网的太容易了，比阿富汗容易得多。
 
-澳大利亚证券和投资委员会（ASIC）在其警告中称，欺诈者正瞄准自我管理的超级基金（SMSFs）的受托人，让他们投资粗略的数字货币产品。
+而且冬奥会一定是管理网络的，奥运会管得更严，但是今天再给你说个好消息，天空WIFI可以改变共产党的一切防火墙，一切！而且美国、欧洲的5G，5G的上线会彻底改变互联网的生态。你不要看西方飞机不让上，新的频率、天空WIFI会把共产党就像一个包裹了很深的，不是说你Mary，包裹了很深的邪恶的魔鬼，一下子剥光了亮在世人面前。走着看，谢谢。
 
-SMSFs是在澳大利亚流行的私人超级基金，投资者可以选择投资和保险。它们是更受欢迎的零售和行业养老基金的替代品，允许投资者以高回报投资。SMSF基金的成员不超过6人，是澳大利亚人将数字货币加入其投资组合的唯一途径。
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
-“ASIC提醒超级基金成员，在同意将退休年金从受监管的基金转移到SMSF之前，最好的做法是寻求持牌财务顾问的建议，”该监督机构表示。
+编辑整理：Jacques；
 
-据ASIC称，这些SMSF基金的受托人的目标是投资数字货币。虽然数字货币在澳大利亚没有被取缔，但监督机构警告说，数字货币是风险投资，投资者可能损失所有资金。
+字幕文件制作：小满；
 
-该监督机构还透露，它在去年11月打击了一家采用这些策略的数字货币公司。该公司名为A One Multi Services，位于昆士兰州，据称它将用超过240万澳元（173万美元）购买数字资产。创始人承诺，如果投资者从他们的SMSF中贷款给他们，他们将获得20%的年回报。
+视频制作及上传：Cindy；
 
-新闻链接：[Australia: Securities watchdog warns over super funds investing in digital currencies](https://coingeek.com/australia-securities-watchdog-warns-over-super-funds-investing-in-digital-currencies/)
+G-News发布：小满；
 
-发布：tianzhihuan
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

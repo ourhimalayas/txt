@@ -2,54 +2,41 @@
 ---
 
 
-## 白宫正在为加密货币领域制定宏伟计划
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1904591/)
+## 乌克兰危机日趋升级，澳外交部敦促本国公民离开
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905374/)
 
-**【简评】***美联储正朝着数字货币迈出关键一步，发行央行数字货币将极大改变美国的金融体系。*
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-据《AMB加密货币》作者：Shraddha Sharma 2022年1月23日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2014-e1643049375774.png)图片来源：Pixabay
-从去年69,000美元的历史新高(ATH)开始，比特币如今在当前的市场下跌中损失了50%的价值。我们可以看到市场动荡不定，该行业的接受度无疑已处于顶峰。
-
-**货币政策和监管环境**
-
-许多专家认为市场疲软是美联储从市场撤出流动性的结果。但是，人们对法规扼杀行业的担忧也很高。
-
-俄罗斯对加密货币的封杀措施即将来临，英国对加密广告的要求越来越严格，而欧盟则担心该行业的比特采矿业。与此同时，在美国，唯一突出的争论是关于加密代币的“安全”由什么构成。瑞波币（Ripple）与美国证券交易委员会的诉讼正处于此辩论的最前沿。
-
-话虽如此，据报道，拜登政府正在准备其政府范围内的数字资产战略。
-
-彭博社援引消息人士的话说，预计将于2022年2月发布概述该行业风险和机遇的初步版本。届时，有关加密货币的行政命令将使拜登总统及其政府成为加密行业的焦点。
-
-这一发展是在证券监管机构（SEC）、商品监管机构（CFTC）和美国财政部等机构的一些初步和不完整的指导下进行的。
-
-最近，美国证券交易委员会主席加里·根斯勒（Gary Gensler）指出，加密货币交易所将受到监管机构更严格的审查。重点是将该行业纳入“投资者保护范围”。值得一提的是，在这方面我们刚刚看到监管机构击落了另外两支有实物支持的比特币上市交易基金(ETF)。
-
-**全方位的指导？**
-
-现在，该报告指出，即将发布的有关加密货币指南的后期草案将概述加密货币领域的“经济、监管和国家安全挑战”。
-
-据报道，该指令将让金融稳定监督委员会和美国商务部等其他机构参与进来。此外，该报告还提到美国央行数字货币（CBDC）也可能即将出台。
-
-就在最近，美联储在其初步文件中表示，
-
-**“引入央行数字货币（CBDC）将代表美国货币的一项重大意义创新”**。
-
-虽然中央银行已经为未来的央行数字货币（CBDC）打开了大门，但美联储在 2022年5月20日之前仍会就该文件征求公众意见。
-
-文章来源：[https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/](https://ambcrypto.com/with-crypto-winter-back-the-white-house-is-making-big-plans-for-the-sector/)
-
-翻译/评论：洛杉矶盘古农场 – maru
-
-编辑：洛杉矶盘古农场 – 柯镇恶
-
-发布：洛杉矶盘古农场 – 子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1005-1.jpg)图片来源：**Newswep.com**
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+整理报道：文泓
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+1月25日，据澳洲新闻网报道，稍早时澳大利亚外交部已建议本国公民不要前往乌克兰，并指示驻基辅大使馆工作人员的家属离开该国。因为全世界都在为潜在的俄罗斯入侵做准备。
+
+就在周一的深夜，联邦政府更新了建议，提示所有澳大利亚人现在离开乌克兰，在乌克兰与俄罗斯“发生武装冲突的风险”时段不要前往该国。现在整体建议已经提高到旅行禁令。
+
+澳洲专业旅游网站（Smart Traveler）上写道，“如果你在乌克兰，如果安全的话，你现在应该通过商业方式离开，航班可用性可能会在短时间内发生变化甚至暂停”。
+
+联邦政府敦促受影响的人直接联系航空公司或运输提供商，并计划将澳洲外交官的家庭成员撤离乌克兰首都基辅，同时，为在该国的澳大利亚公民提供服务的门户网站也已上线。
+
+北约周一表示，它正在派遣喷气式战机和舰船加强其东欧侧翼，因为如果俄罗斯入侵乌克兰，美国和欧盟希望协调以致并对俄罗斯作出强硬反应。
+
+尽管克里姆林宫坚称它没有计划实施新的入侵，但俄罗斯在其邻国边境部署了大约100,000名士兵和重型装甲部队，导致地区紧张局势升温。
+
+现在美国、英国和澳大利亚等国命令外交官家属离开基辅，而法国则告诉其公民避免不必要的前往乌克兰的旅行。
+
+因为人们怀疑（俄罗斯发动）攻击并没有那么迫在眉睫，乌克兰和欧盟外交政策负责人都表示，任何外交人员的撤离似乎都为时过早。
+
+新闻链接：[Australians urged to leave Ukraine as fears mount over Ukraine crisis, world prepares | news.com.au — Australia’s leading news site](https://www.news.com.au/travel/travel-updates/health-safety/australians-urged-to-leave-ukraine-as-as-fears-mount-over-ukraine-crisis-world-prepares/news-story/ee26a14b0e22fdad0d06ef7bd4af5dbc)
+
+**发布：文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

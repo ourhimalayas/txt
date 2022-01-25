@@ -2,36 +2,28 @@
 ---
 
 
-## 有声|世卫组织建议取消国际旅行疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1905750/)
+## 共军扰台，美国双航母进入南中国海域演习
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906027/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-1月19日，世界卫生组织发布了1月13日召开的中共病毒大流行紧急委员会临时会议的声明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-37.jpg)共军扰台，美国双航母进入南中国海域演习 网络图片
+据美国之音1月24日报道，美国国防部24日宣布，美国由卡尔文森号和亚伯拉罕林肯号两艘航母率领的两个航母战斗群已经驶入南中国海，将根据国际法，在国际水域举行反潜作战、空战以及海上拦截等演习。声明没有点名中共国，也没有提到解放军空军23日出动39架次的军机侵扰台湾防空识别区。一位美国海军高级将领表示，此举旨在安抚盟友并展现“抗衡恶意影响力”的决心。
 
-声明中提出了世卫组织给缔约国的11项临时建议，其中第六条为“赞成解除或放宽国际旅行禁令”，第七条为“赞成国际旅行不需要中共病毒疫苗接种证明”。即世卫组织至少在建议取消国际旅行中的疫苗护照了。
+南中国海近年来成为美中对抗的一个重要地点。南中国海是世界上最繁忙的商业水道，海底拥有丰富的油气资源。中共国声称拥有南中国海大部分水域的主权，并且在南沙海域填海造岛，在岛上铺设战机跑道并部署武器装备。美国海军在南中国海进行例行的“自由航行”作业，并进入中共国控制的岛礁12海里之内，挑战北京过分的主权声索。
 
-分析人士认为，尽管还不明确世卫组织此举意图何在，但这个建议至少对受到它影响的很多国家来说，在取消疫苗强制方面，还是有积极作用的。
+中共在南中国海持续扩张，对台湾持续恐吓，邻近国家都处在中共的威胁中，甚至美国的全球战略防御计划也受到影响。美国拥有世界上数量最多、威力最强大的航母战斗群，但是双航母战斗群同时行动或在同一海域演习或部署并不常见，包括在台湾周边海域和南中国海。在美国的实力面前，中共的秀肌肉还能秀到几时呢？
 
-原文链接：[世卫组织建议取消国际旅行疫苗护照](https://gnews.org/zh-hans/1901922/)
+新闻参考链接：[https://www.voachinese.com/a/two-US-carriers-enter-South-China-Sea-to-counter-malign-influence-20220124/6409941.html](https://www.voachinese.com/a/two-US-carriers-enter-South-China-Sea-to-counter-malign-influence-20220124/6409941.html)
 
-音频处理/发稿：Daxia
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

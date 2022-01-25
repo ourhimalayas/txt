@@ -2,26 +2,39 @@
 ---
 
 
-## 日本多措并举大力推动量子技术国家战略实施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906206/)
+## 澳洲证券监督机构对超级基金投资数字货币提出警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1906246/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-370.jpg)[图片来源](https://www.groundstation.space/opportunities-in-horizon-europe-for-govsatcom-quantum-and-ai/)
-1月24日，日本政府宣布了一项政策，从战略上鼓励产业界、学术界和政府合作使用量子技术。 政府将考虑对需要长期投资研发的公司，以及引进量子技术的公司提供税收优惠，以刺激私人投资。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-到目前为止，日本在量子技术方面主要侧重于研究和开发，设备成本和传统观念阻碍了量子技术的广泛采用，中国有3074项与量子技术有关的专利，美国有1557项，而日本的专利数量则徘徊在750项。
+整理/编辑：小红帽
 
-中美等国将量子技术视为与国家安全直接相关的重要技术，都在由政府主导并扶持研究、开发和商业化。鉴于此，日本修改国家战略将量子技术定位到关系国家安全的高度，提出要拥有量子技术。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
-计划扩大对量子技术的引进，鼓励企业参与，私人投资，为初创企业提供基础技术，将专注于开发更多量子技术在安全等领域的应用，以加强经济安全和工业竞争力。
 
-信息来源：
+根据《Coingeek》1月24日报道，澳大利亚证券监督机构警告当地人，不要在没有充分了解所涉及的风险的情况下，使用他们的退休储蓄投资数字货币。
 
-[政府、量子技術のイノベーション戦略見直し 税制優遇などで民間投資促す](https://news.yahoo.co.jp/articles/82178646de6fa41f9a27eaf22aff5e4271263730)
+澳大利亚证券和投资委员会（ASIC）在其警告中称，欺诈者正瞄准自我管理的超级基金（SMSFs）的受托人，让他们投资粗略的数字货币产品。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+SMSFs是在澳大利亚流行的私人超级基金，投资者可以选择投资和保险。它们是更受欢迎的零售和行业养老基金的替代品，允许投资者以高回报投资。SMSF基金的成员不超过6人，是澳大利亚人将数字货币加入其投资组合的唯一途径。
+
+“ASIC提醒超级基金成员，在同意将退休年金从受监管的基金转移到SMSF之前，最好的做法是寻求持牌财务顾问的建议，”该监督机构表示。
+
+据ASIC称，这些SMSF基金的受托人的目标是投资数字货币。虽然数字货币在澳大利亚没有被取缔，但监督机构警告说，数字货币是风险投资，投资者可能损失所有资金。
+
+该监督机构还透露，它在去年11月打击了一家采用这些策略的数字货币公司。该公司名为A One Multi Services，位于昆士兰州，据称它将用超过240万澳元（173万美元）购买数字资产。创始人承诺，如果投资者从他们的SMSF中贷款给他们，他们将获得20%的年回报。
+
+新闻链接：[Australia: Securities watchdog warns over super funds investing in digital currencies](https://coingeek.com/australia-securities-watchdog-warns-over-super-funds-investing-in-digital-currencies/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
