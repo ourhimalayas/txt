@@ -45,95 +45,95 @@
 ### [01/25每日播报｜美国可能会对俄罗斯打弹药战还是经济战？](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [尽管完全接种率高达85%，但马耳他的新冠死亡率创下新高](/content/gnews/11/README.md)
+### [01/25每日播报｜新闻简讯 : 北京冬奧在即赞助商集体沉默 蔡鄂生及徐鸣涉被开除党籍](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [尽管完全接种率高达85%，但马耳他的新冠死亡率创下新高](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成 &#8211; “爆料革命”盘古开天地（二）](/content/gnews/12/README.md)
+### [文·贵天成 &#8211; “爆料革命”盘古开天地（二）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆｜东京都新建公寓售出总数和平均售价创历史新高](/content/gnews/13/README.md)
+### [中日财经爆｜东京都新建公寓售出总数和平均售价创历史新高](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [请君入瓮：中共称境外运动员及奥运人员已有12人入境后感染](/content/gnews/14/README.md)
+### [请君入瓮：中共称境外运动员及奥运人员已有12人入境后感染](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥告诉你](/content/gnews/15/README.md)
+### [七哥告诉你](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美共和党议员抨击奥委会允许侵犯人权的公司参与冬奥会](/content/gnews/16/README.md)
+### [美共和党议员抨击奥委会允许侵犯人权的公司参与冬奥会](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [接种疫苗后运动员体力和表现皆衰退](/content/gnews/17/README.md)
+### [接种疫苗后运动员体力和表现皆衰退](/content/gnews/18/README.md)
  ` 香草山醫療部`
 
-### [医疗自由已被医院、保险公司、政府和大型制药公司绑架](/content/gnews/18/README.md)
+### [医疗自由已被医院、保险公司、政府和大型制药公司绑架](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [我们代表17,000名医生、科学家及全人类来告诉人们真相](/content/gnews/19/README.md)
+### [我们代表17,000名医生、科学家及全人类来告诉人们真相](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加州新法案将允许12岁及以上儿童自主决定接种中共病毒疫苗](/content/gnews/20/README.md)
+### [加州新法案将允许12岁及以上儿童自主决定接种中共病毒疫苗](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西安的人道灾难](/content/gnews/21/README.md)
+### [西安的人道灾难](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [苏联解体离不开的秘密经济，秘密军事和当下中共国（五）](/content/gnews/22/README.md)
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（五）](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [苏联解体离不开的秘密经济，秘密军事和当下中共国（四）](/content/gnews/23/README.md)
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（四）](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [灭共第二十三夜 疫苗真相显露 共匪雇凶杀人](/content/gnews/24/README.md)
+### [灭共第二十三夜 疫苗真相显露 共匪雇凶杀人](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [苏联解体离不开的秘密经济，秘密军事和当下中共国（三）](/content/gnews/25/README.md)
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（三）](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [文贵直播大事记——人物篇（三）：中南坑中第一高深人曾庆红](/content/gnews/26/README.md)
+### [文贵直播大事记——人物篇（三）：中南坑中第一高深人曾庆红](/content/gnews/27/README.md)
  ` GNotes真.贵.记.录`
 
-### [苏联解体离不开的秘密经济，秘密军事和当下中共国（二）](/content/gnews/27/README.md)
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（二）](/content/gnews/28/README.md)
  ` 雅典娜GNotes`
 
-### [苏联解体离不开的秘密经济，秘密军事和当下中共国（一）](/content/gnews/28/README.md)
+### [苏联解体离不开的秘密经济，秘密军事和当下中共国（一）](/content/gnews/29/README.md)
  ` 雅典娜GNotes`
 
-### [圣诞大直播后的巨大反响](/content/gnews/29/README.md)
+### [圣诞大直播后的巨大反响](/content/gnews/30/README.md)
  ` 雅典娜GNotes`
 
-### [英国政府正考虑取消针对NHS工作人员的疫苗强制令](/content/gnews/30/README.md)
+### [英国政府正考虑取消针对NHS工作人员的疫苗强制令](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国会两院呼吁和要求召开乌克兰情况简报会](/content/gnews/31/README.md)
+### [国会两院呼吁和要求召开乌克兰情况简报会](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [两党议员呼吁立法禁止国会议员拥有或交易股票](/content/gnews/32/README.md)
+### [两党议员呼吁立法禁止国会议员拥有或交易股票](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/01/25 英喜时事速递](/content/gnews/33/README.md)
+### [2022/01/25 英喜时事速递](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [卡车司机抗议疫苗强制，车队浩浩荡荡驶向渥太华](/content/gnews/34/README.md)
+### [卡车司机抗议疫苗强制，车队浩浩荡荡驶向渥太华](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲因大流行而导致延误手术的病人数量激增](/content/gnews/35/README.md)
+### [澳洲因大流行而导致延误手术的病人数量激增](/content/gnews/36/README.md)
  ` 走进澳洲`
 
-### [DC大中华时事：中共称《纽约时报》被狠狠“打脸”](/content/gnews/36/README.md)
+### [DC大中华时事：中共称《纽约时报》被狠狠“打脸”](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新西兰财经G乐部2022年1月25日:财经新闻整理](/content/gnews/37/README.md)
+### [新西兰财经G乐部2022年1月25日:财经新闻整理](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共二十大究竟鹿死谁手，习曾权力大绞杀正式登场](/content/gnews/38/README.md)
+### [中共二十大究竟鹿死谁手，习曾权力大绞杀正式登场](/content/gnews/39/README.md)
  ` mary202064`
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.240 HDO](/content/gnews/39/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.240 HDO](/content/gnews/40/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [六周内直插中共心脏北京城唱响世界级的“甜蜜蜜”运动](/content/gnews/40/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [COVID-19 最新情报｜“政府欺骗了我们”疫苗接种者深受副作用所累 后悔言论塞爆推特](/content/gnews/41/README.md)
  ` 關注組`

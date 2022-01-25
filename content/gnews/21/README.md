@@ -2,23 +2,12 @@
 ---
 
 
-## 西安的人道灾难
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1907217/)
+## 加州新法案将允许12岁及以上儿童自主决定接种中共病毒疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1907232/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+01/23/2022 Good Day LA新闻：加州一项名为SB866的法案等待立法机构通过，该法案将开放12岁及以上儿童能够自主决定的权利范围，而无需监护人的允许。该法案将取消对任何经美国食品和药物管理局(FDA)及疾病预防控制中心(CDC)批准的疫苗的监护人许可要求，包括中共病毒疫苗。将魔鬼之手远离我们的孩子！！！
 
-到昨天下午，西安发现在家里跳楼自杀，由于老年人得心脏病，得不到救治。还有 人啊，想从楼里爬到另外楼里边去取食品，还有人翻墙去取食品，事故700起，死 亡2000多起。仅仅到昨天下午，已经3000多人就是报给中共的，这个已经是就昨天的，一天3000多起。共产党的病毒，到今天才4000多起。你去想想，这个到了什么程度？中国过去26个月卖的花圈、卖的骨灰盒，卖的墓地是中国过去21年的总和。
-
-大家别听我的，你们自己去查去，你们上谷歌去可以查谷歌，他不给你真相，给你 基本的数据，他总不能把中国人弄出去到阿富汗死去。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西安的人道灾难.001.jpeg)
-发布： *tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
