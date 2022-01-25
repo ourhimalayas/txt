@@ -2,26 +2,22 @@
 ---
 
 
-## 一个一感冒就要挨饿的地方
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1907461/)
+## 乌克兰，8500名美军处于戒备状态
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1907621/)
 
-##### 翻译：Julia Gao|Warren Wang
-校对：枳实
-剪辑|字幕：蛮吉
-编辑：Mttfly
+翻译、整理：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01251.jpg)图片来自gazzettadelsud.it
+五角大楼已将 8500 名士兵置于高度戒备状态，以便他们可以在数小时内部署到欧洲。紧接着，拜登总统召集包括意大利总理德拉吉在内的盟友讨论共同努力以阻止俄罗斯进一步的侵略。
 
-视频用陕西方言讲述了西安疫情爆发的前前后后。郭文贵先生爆料，冠状病毒是阻止香港人上街参加反送中运动的。疫苗是共产党的生化武器。陕西书记给陕西人打的疫苗浓度是最高的，打两针相当于河南人打十针。只有灭掉中国共产党，才能解救身处疫苗灾难中的同胞。
+持续升级的明确信号可能有两个目标：首先，劝阻普京放弃即将入侵的想法，因为后果将是灾难性的; 第二，认真加强对盟国的保护，以便在俄罗斯如果最终袭击基辅后做好自卫的准备。
 
-视频链接：[郭先生盖特](https://app.gettr.com/post/pmi87dd11f)
+同时，北约宣布与丹麦的行动，将向立陶宛派遣一艘护卫舰和四架F-16战斗机，而西班牙和荷兰将在保加利亚和法国在罗马尼亚部署更多部队。同时，杜鲁门号航空母舰已抵达地中海，参加预定于 2022 年举行的海王星打击演习。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美国国务院已下令从基辅撤离非必要的外交人员，并敦促美国平民离开该国，英国紧随其后，而德国和澳大利亚也准备了类似的措施。同时美国驻联合国总部大使托马斯·格林菲尔德表示说外交仍然是第一选择。
+
+原文链接：[https://www.repubblica.it/esteri/2022/01/24/news/ucraina\_in\_allerta\_8\_500\_soldati\_usa\_biden\_chiama\_gli\_alleati\_in\_europa-335124813/?ref=RHTP-BH-I322793271-P3-S2-T1](https://www.repubblica.it/esteri/2022/01/24/news/ucraina_in_allerta_8_500_soldati_usa_biden_chiama_gli_alleati_in_europa-335124813/?ref=RHTP-BH-I322793271-P3-S2-T1)
+
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
