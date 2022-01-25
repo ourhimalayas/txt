@@ -2,37 +2,33 @@
 ---
 
 
-## 乌克兰危机日趋升级，澳外交部敦促本国公民离开
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905374/)
+## 谷歌在新的诉讼中被指控 &#8220;侵犯 &#8220;用户隐私
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905378/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2037.png)图片来源：citrixnews.cz
+编译：Lish
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1005-1.jpg)图片来源：**Newswep.com**
+一月24号周一，德克萨斯州、印第安纳州、华盛顿州和哥伦比亚特区的总检察长已对谷歌提起诉讼，称其在获取用户的位置数据时采用了“欺骗性和不公平”的做法。
 
+哥伦比亚特区总检察长卡尔·拉辛（Karl A. Racine）周一在一份声明中宣布，该诉讼寻求结束谷歌“非法使用*“*黑暗模式”，并 收回从位置数据中获得的利润”。
 
-整理报道：文泓
+拉辛称，自2014年以来，无论用户的隐私设置如何，谷歌都在调查用户的信息，并造成一种数据没有被追踪的欺骗性假象。诉讼称，如果谷歌用户关闭了他们的位置数据，他们就会收到试图欺骗他们再次分享这些数据的通知。
 
-1月25日，据澳洲新闻网报道，稍早时澳大利亚外交部已建议本国公民不要前往乌克兰，并指示驻基辅大使馆工作人员的家属离开该国。因为全世界都在为潜在的俄罗斯入侵做准备。
+该诉讼指出“通过反复“催促”用户启用谷歌账户设置，谷歌增加了用户无意中或因厌烦而启用该设置的机会”。
 
-就在周一的深夜，联邦政府更新了建议，提示所有澳大利亚人现在离开乌克兰，在乌克兰与俄罗斯“发生武装冲突的风险”时段不要前往该国。现在整体建议已经提高到旅行禁令。
+该诉讼还指责这家科技公司对某些隐私设置和更新进行了“误导、模糊和不完整的描述”，导致许多人在不知情的情况下分享数据。
 
-澳洲专业旅游网站（Smart Traveler）上写道，“如果你在乌克兰，如果安全的话，你现在应该通过商业方式离开，航班可用性可能会在短时间内发生变化甚至暂停”。
+总检察长们写道，这些做法 “损害了希望保护其敏感位置信息的消费者”，使他们无法从谷歌及其广告公司那里获得信息。
 
-联邦政府敦促受影响的人直接联系航空公司或运输提供商，并计划将澳洲外交官的家庭成员撤离乌克兰首都基辅，同时，为在该国的澳大利亚公民提供服务的门户网站也已上线。
+谷歌否认了这些指控，称该诉讼提出了“关于我们设置的不准确的主张和过时的论断”。他们承诺将对这些指控进行 “大力”辩护。
 
-北约周一表示，它正在派遣喷气式战机和舰船加强其东欧侧翼，因为如果俄罗斯入侵乌克兰，美国和欧盟希望协调以致并对俄罗斯作出强硬反应。
+原文链接：[Google accused in new lawsuit of ‘invading’ user privacy — RT World News](https://www.rt.com/news/547229-google-lawsuit-location-data/)
 
-尽管克里姆林宫坚称它没有计划实施新的入侵，但俄罗斯在其邻国边境部署了大约100,000名士兵和重型装甲部队，导致地区紧张局势升温。
+发布：Lish
 
-现在美国、英国和澳大利亚等国命令外交官家属离开基辅，而法国则告诉其公民避免不必要的前往乌克兰的旅行。
-
-因为人们怀疑（俄罗斯发动）攻击并没有那么迫在眉睫，乌克兰和欧盟外交政策负责人都表示，任何外交人员的撤离似乎都为时过早。
-
-新闻链接：[Australians urged to leave Ukraine as fears mount over Ukraine crisis, world prepares | news.com.au — Australia’s leading news site](https://www.news.com.au/travel/travel-updates/health-safety/australians-urged-to-leave-ukraine-as-as-fears-mount-over-ukraine-crisis-world-prepares/news-story/ee26a14b0e22fdad0d06ef7bd4af5dbc)
-
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

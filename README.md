@@ -15,106 +15,106 @@
 
 ---
 
-### [七哥谈佛和魔【盖特版本】](/content/gnews/1/README.md)
+### [不要浪费时间](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥与爆二代谈希望与力量](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [文·贵天成（特别篇）——爆料革命历史上的1月26日（五）](/content/gnews/3/README.md)
+### [美国国务院敦促美国公民避开俄罗斯](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥与爆二代分享如何与人相处](/content/gnews/4/README.md)
+### [七哥聊力量与自立](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [前国务次卿基思·克拉奇:中共国 的入侵意在恐吓台湾，和检验美国和自由世界的决心](/content/gnews/5/README.md)
+### [在阿联酋在迪拜在中东的海外工人切实感受到排华的危险](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥和爆二代聊选择与挑战](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [在海外高校的共产党二代](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥谈佛和魔【推特加速版】](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [文·贵天成（特别篇）——爆料革命历史上的1月26日（六）](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥谈佛和魔【盖特版本】](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦组建的G系列在落实纠正即将到来的印尼排华](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥与爆二代谈希望与力量](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [文·贵天成（特别篇）——爆料革命历史上的1月26日（五）](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥与爆二代分享如何与人相处](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [前国务次卿基思·克拉奇:中共国 的入侵意在恐吓台湾，和检验美国和自由世界的决心](/content/gnews/14/README.md)
  ` 美国政要直译推`
 
-### [1/24/2022 文贵直播：美股跌20%意味着什么？为什么跌了40%却毫无动静？](/content/gnews/6/README.md)
+### [1/24/2022 文贵直播：美股跌20%意味着什么？为什么跌了40%却毫无动静？](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [七嫂的气度和教育孩子](/content/gnews/7/README.md)
+### [七嫂的气度和教育孩子](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [中共过去几十年造下的孽很有可能造成一次全球印尼排华](/content/gnews/8/README.md)
+### [中共过去几十年造下的孽很有可能造成一次全球印尼排华](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|世卫组织建议取消国际旅行疫苗护照](/content/gnews/9/README.md)
+### [有声|世卫组织建议取消国际旅行疫苗护照](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [文·贵天成（特别篇）—— 爆料革命历史上的1月26日（四）](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥分享爱七嫂的原因](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [1/24/2022 文贵直播：甜蜜蜜运动获得了党内及各界人士的支持，习近平的中国梦将成噩梦](/content/gnews/12/README.md)
+### [1/24/2022 文贵直播：甜蜜蜜运动获得了党内及各界人士的支持，习近平的中国梦将成噩梦](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|喜马拉雅币一周分析与总结（1月17日-1月23日）](/content/gnews/13/README.md)
+### [有声|喜马拉雅币一周分析与总结（1月17日-1月23日）](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [疫苗灾难最终结局是没打疫苗的人用精子和卵子拯救世界](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|新罕布什尔州寻求立法将伊维菌素作为中共病毒的替代疗法](/content/gnews/15/README.md)
+### [有声|新罕布什尔州寻求立法将伊维菌素作为中共病毒的替代疗法](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [疫苗灾难凸显人类缺失基本的教育系统和基本信仰的可怕](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|荷兰光刻机大厂抓出中共内鬼取销中共订单](/content/gnews/17/README.md)
+### [有声|荷兰光刻机大厂抓出中共内鬼取销中共订单](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [放任家人和孩子打中共病毒疫苗的人如何面对亲人的病亡](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [加拿大卡车司机驾车游行抗议中共病毒疫苗强制令](/content/gnews/19/README.md)
+### [加拿大卡车司机驾车游行抗议中共病毒疫苗强制令](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本327家托儿所因中共病毒疫情关闭](/content/gnews/20/README.md)
+### [日本327家托儿所因中共病毒疫情关闭](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国就《防止强迫维吾尔人劳动法》征求公众意见](/content/gnews/21/README.md)
+### [美国就《防止强迫维吾尔人劳动法》征求公众意见](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [对疫苗灾难的预言来自情报和七哥对情报的判断和分辨力](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [韩国中共病毒确诊病例首次超8000，创历史新高](/content/gnews/23/README.md)
+### [韩国中共病毒确诊病例首次超8000，创历史新高](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [王岐山孟建柱江泽民出手之日习近平将众叛亲离瞬间完蛋](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [BVI（英属维尔京群岛）的司法体系被共产党搞定，对方的Appleby律所竟也有利益冲突，我们的第二战场就在BVI（英属维尔京群岛）](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [谷歌在新的诉讼中被指控 &#8220;侵犯 &#8220;用户隐私](/content/gnews/26/README.md)
+### [谷歌在新的诉讼中被指控 &#8220;侵犯 &#8220;用户隐私](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰危机日趋升级，澳外交部敦促本国公民离开](/content/gnews/27/README.md)
+### [乌克兰危机日趋升级，澳外交部敦促本国公民离开](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美媒曝中共病毒测试公司涉嫌造假及掩盖](/content/gnews/28/README.md)
+### [美媒曝中共病毒测试公司涉嫌造假及掩盖](/content/gnews/29/README.md)
  ` 华盛顿DC-Russian`
 
-### [加拿大魁北克省一家医院的护士无意间说出了关于疫苗和疫情的真相](/content/gnews/29/README.md)
+### [加拿大魁北克省一家医院的护士无意间说出了关于疫苗和疫情的真相](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](/content/gnews/30/README.md)
+### [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](/content/gnews/31/README.md)
  ` YALUN 亚伦`
 
-### [每日快报： 新罕布什尔州药店可能很快可以提供伊维菌素](/content/gnews/31/README.md)
+### [每日快报： 新罕布什尔州药店可能很快可以提供伊维菌素](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年1月24日大直播速记精萃](/content/gnews/32/README.md)
+### [2022年1月24日大直播速记精萃](/content/gnews/33/README.md)
  ` 雅典娜GNotes`
 
-### [中共国对冬奥运动员寄语：闭嘴滑雪](/content/gnews/33/README.md)
- ` Shuizhuyu`
-
-### [北约将向东欧派遣更多船只和战斗机](/content/gnews/34/README.md)
+### [中共国对冬奥运动员寄语：闭嘴滑雪](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
 ### [【国际时评】法国防疫策略新动向及其影响](/content/gnews/35/README.md)
