@@ -2,40 +2,40 @@
 ---
 
 
-## 乌克兰危机日趋升级，澳外交部敦促本国公民离开
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905374/)
+## 妇科专家：新冠疫苗导致流产和死胎大增
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905415/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+#### 【雅典娜观察】和您一起探究世界
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1005-1.jpg)图片来源：**Newswep.com**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/美军-1.jpeg)图片来源：Kernodle Clinic
 
 
-整理报道：文泓
+整理报道：守望黎明
 
-1月25日，据澳洲新闻网报道，稍早时澳大利亚外交部已建议本国公民不要前往乌克兰，并指示驻基辅大使馆工作人员的家属离开该国。因为全世界都在为潜在的俄罗斯入侵做准备。
+来自佛罗里达的妇科医学专家詹姆斯·索普（James Thorp）博士透露，新冠疫苗正在造成大量的妊娠失败。索普指出，与其他疫苗相比，与新冠疫苗接种有关的死亡和妊娠失败的数量出现了大规模的飙升。他展示了六张图片，包括来自疫苗不良事件报告系统VAERS中的数据。
 
-就在周一的深夜，联邦政府更新了建议，提示所有澳大利亚人现在离开乌克兰，在乌克兰与俄罗斯“发生武装冲突的风险”时段不要前往该国。现在整体建议已经提高到旅行禁令。
+索普展示的一张图片显示了新冠疫苗有关的妊娠失败，其中包括流产、死胎和胎儿死亡。那张图片显示，在过去360个月里因疫苗造成的妊娠失败数字是，流感疫苗363例，百日咳疫苗136例，其他所有疫苗1965例。而新冠疫苗在开始注射短短的10个月里，则出现了2737例妊娠失败。他说，与所有其他疫苗接种相比，新冠疫苗接种引发的妊娠失败的数量令人震惊。相关研究表明：新冠疫苗导致了三个月孕期以内的婴儿损失了十分之九。
 
-澳洲专业旅游网站（Smart Traveler）上写道，“如果你在乌克兰，如果安全的话，你现在应该通过商业方式离开，航班可用性可能会在短时间内发生变化甚至暂停”。
+这位母体胎儿医学专家还指出，除了胎儿死亡和胎儿畸形外，在出生之前就接触到疫苗的婴儿将有永久性的终身损害，包括大脑认知障碍、永久性免疫障碍和各种自身免疫性疾病。
 
-联邦政府敦促受影响的人直接联系航空公司或运输提供商，并计划将澳洲外交官的家庭成员撤离乌克兰首都基辅，同时，为在该国的澳大利亚公民提供服务的门户网站也已上线。
+索普说：“这是可怕的、灾难性的。更糟糕的是，这种疫苗似乎还抑制了一些正常的免疫功能。所以它在新生儿出生后的第一年里出现了大量非常罕见的癌症。初步数据表明，从这种有毒的接种中存活下来的婴儿中可能会遭受永久性的伤害。而那些活下来的婴儿可能会有终身的精神残疾、中枢神经系统认知残缺、终身的免疫缺失，这将导致感染数量增加和罕见癌症的增加。它会带来终身的自身免疫性疾病。我认为新冠疫苗不是一种真正的疫苗。”
 
-北约周一表示，它正在派遣喷气式战机和舰船加强其东欧侧翼，因为如果俄罗斯入侵乌克兰，美国和欧盟希望协调以致并对俄罗斯作出强硬反应。
+致力于夺回医疗自由权的索普说，美国人绝不应该相信美国的医疗和保健人员。他指出：“大家永远不要全信医生的，包括我本人的说法。永远不要相信美国任何的医生或护士，因为他们被下了禁言令，如果说出真相，他们就会失去自己的生计。所以他们不敢告诉你们真相。所以你不要相信他们，他们已经毁掉了医疗保健系统。不能相信这些骗子，也不应该相信。”
 
-尽管克里姆林宫坚称它没有计划实施新的入侵，但俄罗斯在其邻国边境部署了大约100,000名士兵和重型装甲部队，导致地区紧张局势升温。
+“更可怕的是，连让患者知情同意的希波克拉底誓言也被彻底废弃了。我们不能给患者知情同意的机会，我们都被下了禁言令。你无法相信你的医生，无法相信任何医疗工作者。”
 
-现在美国、英国和澳大利亚等国命令外交官家属离开基辅，而法国则告诉其公民避免不必要的前往乌克兰的旅行。
+索普补充说，他所想做的就是要摧毁夺走美国人个人自由和医疗自由的邪恶联盟。这位佛罗里达州的医生解释说，他所说的联盟就是腐败的制药公司和医疗系统，他们正在因为毒害和杀害病人而获得大量联邦政府的补贴。这个联盟还包括了欺诈的保险公司和医学期刊。
 
-因为人们怀疑（俄罗斯发动）攻击并没有那么迫在眉睫，乌克兰和欧盟外交政策负责人都表示，任何外交人员的撤离似乎都为时过早。
+索普感叹道：“这一切可怕无比、肮脏不堪，一切都归结于金钱。”
 
-新闻链接：[Australians urged to leave Ukraine as fears mount over Ukraine crisis, world prepares | news.com.au — Australia’s leading news site](https://www.news.com.au/travel/travel-updates/health-safety/australians-urged-to-leave-ukraine-as-as-fears-mount-over-ukraine-crisis-world-prepares/news-story/ee26a14b0e22fdad0d06ef7bd4af5dbc)
+原文链接：[Maternal Fetal Medicine Specialist proves Covid-19 Vaccines have caused huge increase in Miscarriages and Stillbirths](https://dailyexpose.uk/2022/01/23/dr-proves-covid-vaccines-caused-increase-in-miscarriage/)
 
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

@@ -2,42 +2,37 @@
 ---
 
 
-## 共产党只要对台湾开了第一枪台湾就解放了共产党就没了
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1905348/)
+## 谷歌在新的诉讼中被指控 &#8220;侵犯 &#8220;用户隐私
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905378/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ee5cc787664c47acd93a0c](https://gtv.org/video/id=61ee5cc787664c47acd93a0c)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2037.png)图片来源：citrixnews.cz
+编译：Lish
 
-**郭文贵先生**：台湾，实际上说实在话，台湾，只要开战，对台湾不是坏事，只要开了第一枪，共产党肯定就没了，共产党没了，台湾也就得解放了嘛。你总比活在这种天天被威胁，脑袋上挂着一堆一百万个导弹，天天要打过来。
+一月24号周一，德克萨斯州、印第安纳州、华盛顿州和哥伦比亚特区的总检察长已对谷歌提起诉讼，称其在获取用户的位置数据时采用了“欺骗性和不公平”的做法。
 
-大家要想一想台湾和大陆比（是）什么概念呢？就是Tiger、Alice身上别着一堆刀，一手拿着一把枪，对着自己的孩子说：“我随时可以杀掉你！”这孩子的成长实在是太不健康了。孩子在这种战战兢兢中对着爹妈拿着的所谓的枪，跟那猫狗大战似的，别着一堆的刀，在这种情况下长大（会）健康？这个时候最好这个疯狂的爹妈就灭了，自己给自己开一枪。他最终要打孩子这一枪的时候，旁边人就“叭”给他灭了，当然孩子就得解放了，就（被）拯救了。
+哥伦比亚特区总检察长卡尔·拉辛（Karl A. Racine）周一在一份声明中宣布，该诉讼寻求结束谷歌“非法使用*“*黑暗模式”，并 收回从位置数据中获得的利润”。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+拉辛称，自2014年以来，无论用户的隐私设置如何，谷歌都在调查用户的信息，并造成一种数据没有被追踪的欺骗性假象。诉讼称，如果谷歌用户关闭了他们的位置数据，他们就会收到试图欺骗他们再次分享这些数据的通知。
 
-编辑整理：Jacques；
+该诉讼指出“通过反复“催促”用户启用谷歌账户设置，谷歌增加了用户无意中或因厌烦而启用该设置的机会”。
 
-字幕文件制作：小满；
+该诉讼还指责这家科技公司对某些隐私设置和更新进行了“误导、模糊和不完整的描述”，导致许多人在不知情的情况下分享数据。
 
-视频制作及上传：Cindy；
+总检察长们写道，这些做法 “损害了希望保护其敏感位置信息的消费者”，使他们无法从谷歌及其广告公司那里获得信息。
 
-G-News发布：小满；
+谷歌否认了这些指控，称该诉讼提出了“关于我们设置的不准确的主张和过时的论断”。他们承诺将对这些指控进行 “大力”辩护。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+原文链接：[Google accused in new lawsuit of ‘invading’ user privacy — RT World News](https://www.rt.com/news/547229-google-lawsuit-location-data/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发布：Lish
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

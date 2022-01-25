@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 1:16 AM (UTC)`
+
+1/24/2022 Miles Guo: What does a 20% drop in the US stock market mean? Why is there nothing happening after a 40% drop? In six weeks from today, an event that is at the heart of the Sino-US relationship will take place in Beijing, and an unimaginably new landscape will emerge in the world’s digital currency market.<br/><br/>1/24/2022 文贵直播：美股跌20%意味着什么？为什么跌了40%却毫无动静？从今天起的六周内，对中美关系有核心影响的事件将发生在北京，全球数字货币将出现令人无法想象的新局面！<br/>
+![img](https://media.gettr.com/group18/getter/2022/01/25/01/19fe6e52-8440-6a71-1e29-a0800908be52/out.jpg)
+
+---
+
 `@miles 1/25/2022 12:52 AM (UTC)`
 
 1/24/2022 Miles Guo: The Tian Mi Mi movement has gained the support from those in the CCP and people from all walks of life in Communist China, so Xi Jinping's “China Dream” will be turned into a nightmare. The Monument to the People's Heroes will be changed to the Monument to the Mothers and engraved with stories of the Chinese mothers such as Yang Gailan, and the Mausoleum of Mao Zedong will be converted to the memorial hall for 1 billion victims slaughtered by the CCP. Today’s live broadcast is definitely epoch-making!<br/><br/>1/24/2022 文贵直播：甜蜜蜜运动获得了党内及各界人士的支持，习近平的中国梦将成噩梦；人民英雄纪念碑要改为母亲碑并刻上杨改兰等中国母亲的故事，毛泽东纪念堂要改成十亿冤魂纪念堂；今天的直播绝对是划世纪的！<br/>
@@ -149,15 +156,6 @@ New Release                                              Shop Now at www.gfashio
 
 1月22号：衷心地，感谢战友们的用心．制作直播后的视频剪辑！
 ![img](https://media.gettr.com/group11/getter/2022/01/22/20/c02c3f5e-c77a-2363-4d7d-6539cacccc81/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@max_fei 1/22/2022 8:02 PM (UTC)`
-
-啥也不说了，战友们太棒了！<br/>
-![img](https://media.gettr.com/group40/getter/2022/01/22/20/ad6ba460-373b-8d68-4a81-b1b512f7cefd/out.jpg)
 
 ---
 

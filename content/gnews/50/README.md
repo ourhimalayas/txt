@@ -2,32 +2,83 @@
 ---
 
 
-## 我们天上见
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1902825/)
+## 【TopNews】华盛顿特区“击败授权”3万至3.5万人游行呼吁叫停COVID-19 疫苗强制令
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1902175/)
 
-文：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/834e775ff94629b823ae7c82362f93e691e4d410.jpg)图源：网路
-以前听人讲神佛故事，说是某位来自天上的大人物，因为发大愿要拯救苍生于危难之中，自愿来到人间。当时他从天上来的时候吧，很多童子仙女还有各种小精灵和神仙都自愿下凡，跟随他来实现这个大愿。因为这个大愿就比地藏王菩萨的那个地狱不空誓不成佛的大愿都大，是无限的大愿，大多数跟随一起下凡来的都不是啥普通人。这两年网路上总在流传，啊我为什么要下凡来到人间云云，曾经在某段时间内，夸某些人天生丽质，就会说这个人好像仙女，仙子，甚至仙女、小仙女这个词，现在都是中文互联网的热门词汇。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5135BA19-56EA-44AD-9EF0-A604D9E34E0B.jpeg)
+2022年1月23日，据福克斯新闻刊文报道，在华盛顿特区举行了大型抗议疫苗授权活动，有30,000 至 35,000 人参加了本次抗议活动。
 
-暂且不说别的，一些用词总带着强烈的时代印记，打个比方说，建国时期给孩子取名字都是建国、中华、建华，现在孩子的名字都是子轩，紫昂，梓涵，重名的太多太多了，一个时代有一个时代的特色。不仅在中国，在其他国家也是如此，比如在美国，你一听trump、Nancy这些名字，这人指定年轻不了，起码得是40年前之前生人，Lysa、Elizabeth，这也年轻不了，而James，Jess，看起来都比之前这些要年轻。马斯克的孩子直接取了一个乱码的名字，一看就是新新人类，出生就可以去外太空的那种，确实，这个孩子一定有机会去很多次外太空。
+“击败授权”抗议疫苗授权[游行走上](https://www.foxnews.com/category/us/us-protests)[华盛顿特区](https://www.foxnews.com/category/us/washington-dc)的街道和纪念碑，抗议者和演讲者呼吁在全国范围内结束[COVID-19](https://www.foxnews.com/category/health/infectious-disease/coronavirus) [疫苗](https://www.foxnews.com/category/health/infectious-disease/vaccines)授权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/202005061258-main.cropped_1588744767.jpg)
+目前为止，包括华盛顿特区、纽约市、洛杉矶、芝加哥、明尼阿波利斯和波士顿在内的一些美国主要城市已经实施了全市范围的规定，要求居民在某些场所（例如餐馆和健身房）出示疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3D0EE3F5-861E-41F6-9EEA-A053634D3A59.jpeg)
 
-人们总是在不同的时代创造出很多新的词汇来，比如中文互联网特别流行的旧词新解，一部分是因为社会的变化，这个词语原来的意思就变了，人们发现在目前的框架下有了另外的意思，大家也喜闻乐见这种新颖的创造方法，于是使用的人越来越多了起来。还有一部分词汇，完全扭曲了原来的意思，比如共产党内部的词语，干爹，现在这个词真得非常难听，本来民间习俗里，很多刚出生的小孩子不好养，天天哭，老辈人一般都会建议孩子认一个干爹，一个干妈，这样孩子就不会哭了，吃得好睡得好，慢慢就好养大了。但是共产党的干爹文化，明明就是岁数大的共产党官员找年轻的孩子睡觉，对外都以干爹来称谓，这个词后来愈演愈烈，甚至都成为包养情妇的代名词了，不想奋斗了是吧，找个干爹吧，这意思就是包养。好好的一个词语，就变得如此肮脏不堪了，没多少人愿意用这个词了。再比如，什么大大，爸爸，管谁都能这么叫，自己的亲生父亲都没叫过的，很多小粉红脑子进水了，管习近平叫习大大，许家印许大大，马云马爸爸，引来一大片年轻人的跟风，发展到什么程度呢，公司的客户都是爸爸，老板也是爸爸，甚至男女爱情关系，男方也要求女方管自己叫爸，这非常畸形，再往下走，就演变成和共产党一模一样的乱性淫秽关系了。之所以整个社会的病态，其实无不是源于社会环境的影响，尤其是共产党的这种畸形病态和洗脑，以及严重的阶级分化，不允许普通草根家里的孩子往上越级，你只能叫爸，党比你的爹妈都亲，你要时刻准备好为党卖命。在这种普遍的高压之下，苦中作乐的老百姓从哪儿来打发这些地狱般的时间，就只有通过歪曲词义，创造一些莫名其妙的网络流行词。在人间的难熬时光里，总是文字能给人慰藉。毕竟文字是人类独有的，且是那个最基本的沟通方式。拥抱和精神交流虽然也可以达到这种要求，但是那不是挺不方便的嘛。再说，也不是一定就需要沟通得多么深，有些交流只是无法避免的交流，没有任何意义，就比如大家一起说那个网络流行语，你也要一起附和，才不会显得那么格格不入。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/MAIN201406250737000175855517899.jpg)
+和平抗议活动于中午左右在华盛顿纪念碑开始进行，首先前往林肯纪念堂。在那里，一系列演讲者们分享了他们在过去一年的经历以及他们呼吁结束疫苗授权的理由.
 
-互联网上时时处处充满了戾气，也是因为人们发现文字有时候是一把利剑，看着是那么几个字，但直直插入人心，连缓冲的余地都没有。在所有的大型事件，比如被性侵的孩子，被杀害的情敌，被虐待的小动物，会在全网引发人性的探讨。有的营销号甚至不惜一切博眼球，什么话都敢讲。常常一个陌生人都能给当事人带来网暴的巨大伤害，所以言语的力量是不能忽视的。不管背后是什么样的人，满足变态需求成为一切借口。随着共产党对互联网的控制，很多小粉红都是来自监狱，多发几条讯息，多回几条评论，人家能够得到减刑的机会，普通网友你跟着瞎凑什么热闹？往往有那些不明所以的自干零们，在这种变态的伤人种找到了存在感，找回了自信，就开始把网路暴力延伸到线下也有可能，很多虐猫虐狗的，都要把视频发到网路上寻求存在感，点赞的人越多，会越高潮。
 
-所以互联网上充满了暴力和不适内容的时候，也同时存在着那些天天管自己叫仙女、仙子、神仙的人，虽然看起来格格不入，但起码从语言范围里找到一种平衡，即：有大规模伤害的地方，一定会有神仙般神奇力量。之前有很多网友拍到没见过的天气，比如大风大雨什么的，都会说这是那位神仙在渡劫，这是哪位仙家在做法，这些话虽然看上去像个神经病，但也不是没道理。七哥那天说我们都是天上来的，看来开头那个传说可能是真的，因为这些人的下凡，人间也当然会有对照的反应，比如互联网出现的这些词汇就很明显，早不出现，晚不出现，就从爆料革命这几年开始才出现的，蛮神奇的。
 
-* * *
+> Big enthusiastic crowd braved the cold in DC to [#defeatthemandatesdc](https://twitter.com/hashtag/defeatthemandatesdc?src=hash&amp;ref_src=twsrc%5Etfw). ⁦[@P\_McCulloughMD](https://twitter.com/P_McCulloughMD?ref_src=twsrc%5Etfw)⁩ ⁦[@richardursomd](https://twitter.com/richardursomd?ref_src=twsrc%5Etfw)⁩ ⁦[@TruthMav](https://twitter.com/TruthMav?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/TukJ99sp2d](https://t.co/TukJ99sp2d)
+> — Richard Amerling (@dramerling) [January 23, 2022](https://twitter.com/dramerling/status/1485354150502281216?ref_src=twsrc%5Etfw)
 
-作者：骄子
-发布：骄子
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+
+
+
+> Fighting for medical freedom will always and forever be on the right side of history. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/W8cEEuhZfd](https://t.co/W8cEEuhZfd)
+> — Debra Lea (@thedebralea) [January 23, 2022](https://twitter.com/thedebralea/status/1485374947971194886?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
+> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#defeatthemandatesDC](https://twitter.com/hashtag/defeatthemandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) : Thousands are currently gathered at the Lincoln Memorial in Washington DC in protest against mandates.[#MandatoryVaccination](https://twitter.com/hashtag/MandatoryVaccination?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YeQOCsfZDq](https://t.co/YeQOCsfZDq)
+> — LUKE2FREEDOM (@L2FTV) [January 23, 2022](https://twitter.com/L2FTV/status/1485334650251878401?ref_src=twsrc%5Etfw)
+
+
+
+30,000 至 35,000 人参加了抗议活动，[要求](https://defeatthemandatesdc.com/about/)终止疫苗授权和疫苗护照，他们呼吁进行合理辩论和知情同意的权力。
+
+游行组织者威尔·维特（Will Witt）是非营利组织 PragerU 的作家和政治评论员，她说：“你会听到很多左派人士说这是一场大型的反疫苗集会——人们进来否认科学，”
+
+“但是，这次游行是关于抗议我们现在在全国各地看到的严厉措施，特别是在华盛顿特区、纽约市、洛杉矶、旧金山等地。”
+
+几个团体赞助了这次活动，包括前线 COVID-19 重症监护联盟、世界卫生委员会、疫苗安全研究基金会和儿童健康防御组织——由小罗伯特·肯尼迪领导。
+
+演讲者包括罗伯特·马龙博士，Peter McCullough 博士、Christina Parks 博士、Paul Alexander 博士和[Maddie De Garay 的母亲 Stephanie De Garay](https://www.foxnews.com/media/ohio-woman-daughter-covid-vaccine-reaction-wheelchair)。
+
+
+
+> 🔥 Dr. Robert Malone destroys the approved narrative in 2 minutes. [#DefeatTheMandatesDC](https://twitter.com/hashtag/DefeatTheMandatesDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/l9R9bid56L](https://t.co/l9R9bid56L)
+> — Zach (nine meals from anarchy) (@Just\_\_\_Zach) [January 23, 2022](https://twitter.com/Just___Zach/status/1485345169432096769?ref_src=twsrc%5Etfw)
+
+
+
+正义网络点评：
+
+“在我一生所知道的所有疫苗中（脊髓灰质炎、天花、白喉、破伤风、麻疹、风疹、水痘、肝炎、脑膜炎和肺结核），我还想加上流感和肺炎。我从未见过一种疫苗能强迫我要戴口罩，并保持社交距离，即使您已完全接种疫苗。
+
+我从未听说过即使在接种疫苗后也会传播病毒的疫苗。我从未听说过接种疫苗的奖励、折扣、奖励措施。我从未见过对那些没有接种的人的歧视。如果你没有接种过疫苗，没有人试图让你觉得你是个坏人。我从未见过一种疫苗会威胁到家人、同事和朋友之间的关系。我从未见过用于威胁生计、工作或学校。我从未见过一种疫苗可以让 12 岁的孩子无视父母的同意。在我上面列出的所有疫苗之后，我从未见过像这样的疫苗，它会歧视、分裂和评判社会。随着社会结构的收紧……这是一种强大的“疫苗！”
+
+即使我们已经完全接种了所谓的疫苗，之后，仍需要注射加强剂量；并且，在完全接种后仍需要进行阴性检测；并且，在完全接种后仍需要戴口罩；并且，在接种完后仍需感染！仍需住院！仍需死亡！
+
+在经历着无休无止的折磨之后，很可能会出现一个想法：“是时候让我们承认：我们被完全欺骗了”！“是时候叫停疫苗强制令了！”
+
+[新闻来源](https://www.foxnews.com/politics/washington-dc-defeat-mandates-march-covid-vaccine)
+
+撰稿/雅典娜之矛
+
+审阅/正义网络
+
+上传/侠客行
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
