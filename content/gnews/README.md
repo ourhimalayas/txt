@@ -15,113 +15,113 @@
 
 ---
 
-### [七哥谈亲爱的兄弟姐妹（2022-01-17摘录）](/content/gnews/1/README.md)
+### [七哥说“你们能想象共产党在世界的黑手有多么黑暗。” （2022-01-17摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [七哥说“我特别的幸福，我真的庆幸，我用我家人的命和鲜血和自由和财富，换来让我的觉醒” （2022-01-17摘录）](/content/gnews/2/README.md)
+### [七哥谈PAG的案子（2022-01-17摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [独家：1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
+### [七哥谈律师造假（2022-01-17摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
 
-### [工作笔记2](/content/gnews/4/README.md)
- ` 纽约香草山MOS03`
+### [MV版Hcoin To the Moon上线47天第30次位列匈牙利iTunes热门MV榜首](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/5/README.md)
+### [七哥说“我还真是相信命”（2022-01-17摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [2022年1月24日郭文贵先生直播全文字版](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [七哥谈亲爱的兄弟姐妹（2022-01-17摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [七哥说“我特别的幸福，我真的庆幸，我用我家人的命和鲜血和自由和财富，换来让我的觉醒” （2022-01-17摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥说“当你们有一天明白的时候，你就真知道灭共才是多么的幸福、多么的伟大。”（2022-01-17摘录）](/content/gnews/6/README.md)
+### [独家：1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [工作笔记2](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/12/README.md)
+ ` 秘密翻译组-原创组`
+
+### [七哥说“当你们有一天明白的时候，你就真知道灭共才是多么的幸福、多么的伟大。”（2022-01-17摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈“从来没见过照片”（2022-01-17摘录）](/content/gnews/7/README.md)
+### [七哥谈“从来没见过照片”（2022-01-17摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [喜币开创世界经济新局面](/content/gnews/8/README.md)
+### [喜币开创世界经济新局面](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [美国即将撤离驻北京大使馆](/content/gnews/9/README.md)
+### [美国即将撤离驻北京大使馆](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [紧急公告:美国撤回驻北京大使馆，认定中共为非法政权](/content/gnews/10/README.md)
+### [紧急公告:美国撤回驻北京大使馆，认定中共为非法政权](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [1月25日郭文贵先生重大公告要点（图片）](/content/gnews/11/README.md)
+### [1月25日郭文贵先生重大公告要点（图片）](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [因被下调评级推特股价创一年新低](/content/gnews/12/README.md)
+### [因被下调评级推特股价创一年新低](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共高调纪念南巡讲话的真正动机](/content/gnews/13/README.md)
+### [有声|中共高调纪念南巡讲话的真正动机](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](/content/gnews/14/README.md)
+### [有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/15/README.md)
+### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/16/README.md)
+### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美日加强训练 中共军机扰台 台海再引关注](/content/gnews/17/README.md)
+### [有声|美日加强训练 中共军机扰台 台海再引关注](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [郭文贵 紧急直播摘要和音频：甜蜜蜜运动重大公告 2022.01.25](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [有声|北京冬奥会泡泡集中营是最无趣赛事](/content/gnews/19/README.md)
+### [有声|北京冬奥会泡泡集中营是最无趣赛事](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [小年涂鸦:CCP是毁掉人伦的人类公敌](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [华盛顿反疫苗集会，著名医生表示永不妥协](/content/gnews/21/README.md)
+### [华盛顿反疫苗集会，著名医生表示永不妥协](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [1月25日文贵先生紧急直播重大公告要点](/content/gnews/22/README.md)
+### [1月25日文贵先生紧急直播重大公告要点](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [1/24/2022 文贵直播：“甜蜜蜜运动”重大成果 &#8211; 美国政府刚刚做出的重大历史决定“授权撤离”美驻北京大使馆](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|中共雇佣欧美网红为冬奥形象](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|回顾河南水灾幸存者被采访视频，周围维稳言论引群嘲](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [数字货币硬钱包划时代](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大专家称不强制儿童接种疫苗](/content/gnews/27/README.md)
+### [加拿大专家称不强制儿童接种疫苗](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [1/25银河快讯:东芝半导体基地因地震暂停生产；日本300家幼儿园因疫情而关闭](/content/gnews/28/README.md)
+### [1/25银河快讯:东芝半导体基地因地震暂停生产；日本300家幼儿园因疫情而关闭](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [【信仰之声】你想得永生吗？](/content/gnews/29/README.md)
+### [【信仰之声】你想得永生吗？](/content/gnews/30/README.md)
  ` 纽约香草山MOS03`
 
-### [日本民众在觉醒 要求停止给未成年人接种疫苗](/content/gnews/30/README.md)
+### [日本民众在觉醒 要求停止给未成年人接种疫苗](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2022年1月25日早](/content/gnews/31/README.md)
+### [GTV新闻访谈简报|2022年1月25日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [北京交警开始罚款自行车主 中共财政已经严重枯竭](/content/gnews/32/README.md)
+### [北京交警开始罚款自行车主 中共财政已经严重枯竭](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年1月25日郭文贵先生重大公告直播要点](/content/gnews/33/README.md)
+### [2022年1月25日郭文贵先生重大公告直播要点](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [郭文贵先生重大公告：美国政府正式通知北京即日起，授权撤离美国驻北京大使馆！](/content/gnews/34/README.md)
+### [郭文贵先生重大公告：美国政府正式通知北京即日起，授权撤离美国驻北京大使馆！](/content/gnews/35/README.md)
  ` topnews`
 
-### [闻七哥通告美使馆即将撤离北京](/content/gnews/35/README.md)
+### [闻七哥通告美使馆即将撤离北京](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年1月25日新中国联邦“甜蜜蜜运动”重大公告](/content/gnews/36/README.md)
- ` 秘密翻译组-原创组`
 
 ### [有声|中共大外宣伊索贝尔爱吃狗肉](/content/gnews/37/README.md)
  ` MOSREC`

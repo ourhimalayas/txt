@@ -2,28 +2,25 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1909048/)
+## 日本民众在觉醒 要求停止给未成年人接种疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1909054/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+撰稿：东京樱花团｜闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-1.png)
+图片来自信息网站
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-2.png)
-文章仅代表作者本人观点，与Gnews无关
+1月25日据RBC琉球广播电视台报道，冲绳县将于3月开始给儿童接种中共病毒疫苗。本月25日，该县的一个由医生和孩子家长组成的民间团体向冲绳县政府提交了一份请求书，要求停止给未成年人接种中共病毒疫苗，因该疫苗的中长期副作用尚不明确。
 
-视频参看：[2022.01.25早GTV新闻访谈](https://gtv.org/video/id=61effaef28a108147c62504f)
+日本政府1月21日宣布将允许给5岁以上、12岁以下的儿童接种疫苗。该团体呼吁县政府在中共病毒疫苗的安全性和有效性还未得到证实之前，为儿童接种中共病毒疫苗的问题应该认真考虑，并说在没有解决家长的担忧的情况下进行疫苗接种是有问题的。当涉及到孩子的问题时，民众就不会那么容易被忽悠了，这关乎着日本的未来，今后一定会有更多的家长和医生站出来。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+[**未成年へのワクチン停止を 要望書を提出**](https://www.rbc.co.jp/news/news_all/%e6%9c%aa%e6%88%90%e5%b9%b4%e3%81%b8%e3%81%ae%e3%83%af%e3%82%af%e3%83%81%e3%83%b3%e5%81%9c%e6%ad%a2%e3%82%92%e3%80%80%e8%a6%81%e6%9c%9b%e6%9b%b8%e3%82%92%e6%8f%90%e5%87%ba/)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

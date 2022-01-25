@@ -2,32 +2,36 @@
 ---
 
 
-## 工作笔记2
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1909457/)
+## MV版Hcoin To the Moon上线47天第30次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1909557/)
 
-作者：香草山健身部-新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-董哥是蜜儿姐的同学，性格温和，为人善良，常光顾单位。因为是常客了，彼此之间聊天说话就没有任何顾忌，所以什么话题都可以聊，我喜欢聊政治，谈共产党对人民的各种打压和迫害，他倒也认同，所以他来单位，基本都会跟我喝茶聊聊天，很多时候我们都谈当局，聊新闻，特别是关于马云，他说得出那是政治斗争的结果。
-他也常说，民主肯定有民主的好，不用靠关系走后门办事，只要会认真做事，诚信做人，就可以顺利创业，凭自身实力赚钱，公平公正。
-他称独裁为独党主，叫独裁他觉得有些诋毁共产党。他能说出很多共产党的恶，可是心里还是觉得共产党好，古人说的心口不一，大概就是这样吧，这是个很矛盾的心理，可是像他那样的人却是大多数，究其原因就是党和国家分不清楚。任凭他们知道共产党不是国家，国家不等同于共产党，可是依然不敢反对共产党，觉得那是不爱国。说起来，觉得像绕口令，可事实就是这样的怪异，我跟很多人聊天，聊共产党，都是这样莫名其妙的心理，嘴里说着共产党的恶，你说反共言词，他立马维护，这又是中的意识形态的毒，党和国家混淆不清！
-他说的最多的话是，为了办点事，求奶奶告爷爷的、受尽气，为了赚钱跑有关单位，处处做孙子，赞叹民主国家就没有那么累。
-有次聊天，聊起民间传的百年共产党之说，他说照这样说，共产党寿终在2025年前。我曾试探性问，既然共产党会被消失，那肯定是先出现歼灭共产党的组织，共产党打压言论自由都如此霸狠，那些反对它，要推翻它的人，是有多勇敢，我说你不好奇，会是什么样的人出现来改革，他说他拒绝知道，说好好日子可以过，平民百姓管啥政治。
-这就又是共产党种下的又一种意识形态之恶，既让你觉得政治跟日常生活无关，又让人民养成一种自私心态，百姓管百姓的生活，赚钱才是正事，让人心自私如一盘散沙，一个没有团结的民族那来的凝聚力，这才让无耻的共产党各个击破，奴役了七十年。
-董哥刚来的时候，精神状态很好，心态也好，六七月份中共狂推打疫苗，我再三叮嘱，强调他别打疫苗，他也担心过他鼻子做过化疗会勾起疫苗的副作用，所以开始确也没打。奈何久受意识形态的毒，受身边人影响，说到底他终究还是相信了共产党，偷偷打了俩针，我知道后力劝他吃青蒿素，也强调买美国产，他压根不理人。
-过段时间他来的时候，脸色也不是很好了，而且老是嗜睡，还突然会出现一惊一抖，又立马恢复，我知道这就是苗毒，我就更着急，劝说他就算没有副作用，保健品本就是强身健体，更何况是屠呦呦研制的，他听烦了就不来了，我数次发信息给他，一个信息也不回。
-眼看年关了，离五月份的疫苗关口越来越近，却依然不见他出现，我常看着他的聊天框，只能望屏兴叹。
+1/25/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线47天第30次位列匈牙利iTunes热门音乐视频榜榜首，第47次位列前三名
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1-1.jpeg)
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[【PDF 下载】Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[【PDF 下载】Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
