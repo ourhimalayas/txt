@@ -2,65 +2,31 @@
 ---
 
 
-## 新中国联邦重大公告及美国务院最新表态
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1909962/)
+## 七哥谈打PAG官司的意义（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1910128/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B-6.jpg)cnn.com
-文贵先生一行在大直播中宣布了重大公告，随后新中国联邦各媒体刊登出文贵先生致拜登总统、布林肯国务卿的信函，信函全文如下：【1】
+文编：Hima
+听写：叮叮
+视频：七哥
 
-致：乔·拜登
+来源：郭先生2022-01-17直播11：14：53摘录
 
-美国总统
+这是作为律师你去想想我们活在美国，我有一个梦，我们华人如果在美国，就像在 PAG官司面前，今天要妥协了，今天要放弃了，我们华人在美国就会被无数次、被共产党等坏人推到了铁轨当中，而且没有人替你说话。如果我们这次官司打不到真相出来 ，我们中国人在美国将永远成为司法的奴隶，司法的牺牲品，共产党会穷追猛打，把所有人在海外毁掉。严格讲PAG的官司，它已经不那么简单了，它牵扯着巨大的种族问题，巨大的法律的黑洞，和美国的司法制度的缺陷，所以接下来的才有更大的事情。
 
-安东尼·布林肯
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-国务卿
+**关注我们**
 
-主题：美国驻北京大使馆
+Discord 账号
 
-新中国联邦注意到，您已授权开始关闭美国驻北京大使馆。自2020年6月4日成立以来，我们一直在倡导这一行动，我们对此表示赞赏。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-如您所知，我们是中国人民的替代管理机构，反对跨国犯罪组织中国共产党。这些犯罪分子最近从武汉的武器实验室向全世界传播致命的COVID 19的活动在我们看来是对无辜的中国人民和全人类的种族灭绝行为。
+Gettr 账号
 
-最近北京关于奥运会前Omicron传播的谎言和不实陈述使北京对所有人来说都是危险的，尤其是您在北京大使馆的工作人员。
-
-我们赞赏并支持您通过关闭大使馆的行动来强调这种政权的危险。我们支持进一步否认中共是中国和中国人民的合法政府。
-
-敬上
-
-郭文贵先生
-
-新中国联邦创始人
-
-（文贵先生的信函完）
-
-笔者一直关注着美国国务院的反应，暂未看到国务院的有关信息发布，但是一则布林肯与英国外交大臣通话的消息中，有一句提及了中共国的话。
-
-国务院新闻稿全文如下：【2】
-
-布林肯国务卿与英国外交大臣特拉斯（Truss）的通话
-
-发言人办公室
-
-2022年1月25日
-
-美国国务卿安东尼·J·布林肯今天与英国外交大臣伊丽莎白·特拉斯（Elizabeth Truss）进行了会谈，以评估最近为阻止俄罗斯在乌克兰境内及附近进行令人不安的军事集结而采取的行动。美国和英国正在相互协调，以及与北约和欧洲盟友和伙伴协调，以鼓励俄罗斯缓和紧张局势，并致力于坚持外交途径。国务卿和外交部长特拉斯还讨论了如何协调一致，坚决反对中共国的经济胁迫，以及如何成功结束与伊朗就共同恢复执行《联合全面行动计划》的谈判。
-
-（新闻稿完）
-
-无需开脑洞，布林肯国务卿肯定告诉了特拉斯外交大臣有关针对中共国的举动，并要“协调一致，坚决反对中共国的经济胁迫。”估计他们还讨论了如何加强与新中国联邦的关系，对这个能够充分代表中国人民的组织在拯救人类方面所作的贡献给予了满腔热忱的肯定。
-
-邪共，你死期已定！
-
-有关链接：
-
-【1】[https://gettr.com/post/pqhssxe37c](https://gettr.com/post/pqhssxe37c)
-
-【2】[https://www.state.gov/secretary-blinkens-call-with-uk-foreign-secretary-truss-3/](https://www.state.gov/secretary-blinkens-call-with-uk-foreign-secretary-truss-3/)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

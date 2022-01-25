@@ -2,31 +2,32 @@
 ---
 
 
-## 七哥谈律师造假（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1909589/)
+## 以色列“砖家”小组建议成人接种第四剂CCP病毒疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1909915/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/012502.jpg)网络图片
+周二，一个专家小组建议以色列政府开始向 18 岁以上的所有人提供第四剂CCP病毒疫苗注射，理由是研究表明它有助于预防 COVID-19 感染和严重疾病。
 
-来源：郭先生2022-01-17直播10：27：05摘录
+以色列已经在为 60 岁以上所有老人以及高风险人群提供第二剂CCP病毒加强针，试图遏制由高度传染性的 Omicron 变体引发的感染浪潮。该国于去年夏天开始就向普通人群提供第三剂，然而依然没能阻止新变异病毒的感染和爆发。
 
-我们非常想了解，2022年是个黑暗的一年，我们有三大官司 ，一个 UBS 在英国的官司，你会看到，这是共产党用穷其一切力量要阻止的，因为他拿走了我们几百亿，上千亿的财富。另外一个 PAG 案子就是羞辱你，让你七哥不能有一分钱，让你家族人没有一分钱，缠住你让你没精力、没时间。几万页文件，我是不能看英文的，几万页我得看一千年我都看不完，我不是看一百年兄弟姐妹们，我看一千年的，因为我不懂英文，所有的文件都是英文，你告诉我他怎么收拾你。第二个，我们从这个 UBS 案子完了，我们会看到，将我们要诉讼很多人，我们一定会告这个Ed. Moss，一定会让他律师执照给他取消了，一定要让，这个Bondi还是CAHILL律师事务所，这种流氓的律师事务所，还有那个,取消证批之后所带来的伤害等等…这些人我们要起诉他们，让通过美国的法律，让他们知道这些人背后到底干了什么，他们一定是造假，继续造假。骑侠会明白，只要证明了律师造假在美国的结局是什么。一切都是刚刚开始，一切已经开始。
+以色列的感染率目前在全球范围内算是最高之一，感染率大约为每10万名居民中有3,290人感染。这一数字在美国为1573人，在英国为965人，匈牙利则仅有761人。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+以色列卫生部的数据显示，目前全国范围内仍约有 580,000 名活跃CCP病毒感染患者，即便已有近一半的人口接受了CCP病毒疫苗加强针，还有超过 600,000 人已经接受了第四针。
 
-**关注我们**
+自 2020 年底卫生当局批准疫苗以来，以色列在疫苗注射方面一直是走在世界最前沿，也正因为如此我们才能通过该国的疫情状况判断CCP病毒疫苗的效果。
 
-Discord 账号
+如果说注射加强针能够遏制新变异Omicron的传播，那么早早开始进行加强针注射的以色列应该不会在Omicron到来时出现大面积的爆发感染——然而事实却正好相反，以色列的表现并不比那些未接种加强针的国家更好，反而有更加严重的迹象。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+这充分说明一些国家的政客将Omicron大流行的原因归咎于未能及时大面积施打第三针CCP病毒疫苗的理论纯属胡说八道。第三针CCP病毒疫苗与前两针相同，并不能提供任何有效防护，副作用反倒是越来越强。由此可以推断，引入第四针后也不会有任何改变，而更多的CCP病毒疫苗受害者将会出现。
 
-Gettr 账号
+新闻参考链接：
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[以色列：从疫苗接种世界冠军到新的感染世界冠军](https://gnews.org/zh-hans/1902324/)
+
+[Israeli expert panel advises 4th vaccine dose for adults](https://apnews.com/article/coronavirus-pandemic-health-middle-east-israel-49abe016208fbddba59a75f36dc59a3c)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+
 
  
 
