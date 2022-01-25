@@ -2,18 +2,43 @@
 ---
 
 
-## 【粤语配音】2022年1月24日： 甜蜜蜜运动
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1906399/)
+## 慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906413/)
 
-紐約香草山-香港部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2041.png)图片来源：Red Voice Media Scott Quiner和妻子，Stew Peters
+斯科特原是明尼苏达州Coon Rapids市慈悲（Mercy）医院的一名新冠患者，慈悲医院根据医院指定的治疗方法将斯科特置于呼吸机上，并给予他镇静药物。家属恳求医院尝试其它方法，例如伊维菌素，羟氯喹，以及增加维生素和营养，试图挽救他的生命，而医院拒绝，也不允许病人出院，并要拔掉呼吸机。
 
-所有冬奥会以后他们判断，世界人民对这个国家的好感和政治上的反应是最麻木的，它（共产党）要行动，但是七哥也有行动，七哥的行动就在北京城，记住我说的话，就在二环以内，我今天告诉大家地方，我都不去四环，四环离盘古太近了，不好意思，我就在二环以内，给它（共产党）弄点动静出来。
+经过明州媒体名人Stew Peters （盖特账号@RealStew Peters）在社交媒体上的呼吁和很多人的关注，经过律师介入诉讼和法庭判决后，病人最终得以从慈悲医院转到德克萨斯州一家愿意提供治疗的医院。到了德州医院，医生们说斯科特是他们见过的最营养不良的病人。 这与家属所说的慈悲医生拒绝给他适当的维生素来帮助对抗病毒的说法是一致的。 他的其他器官工作正常，但他的肺有重大问题。
 
-你们会突然间听到二环以内，到处充满了歌声“在哪里..在哪里见过你，的笑容这样熟悉，啊…在梦里”全北京城都会听到这种“甜蜜蜜”暗号..暗号..
+Stew说，“斯科特遭遇了慈悲医院的撒旦杀手所造成的可怕伤害，他们虐待、毒害和折磨斯科特，因为他们惩罚他没有接种疫苗。 得克萨斯州的医生确信，慈悲医院对斯科特造成的致命伤害是他死亡的全部原因，如果他几周前到达德克萨斯州，斯科特就会完全康复。”
 
-这个动静你就看着七哥，会以病毒为借口的动静，而且是世界级的，绝不超过六周，我有99%的把握在冬奥会期间，整点大动静，习近平不老是做梦嘛，是吧，咱们就要在梦里梦见你，我们在梦里相见，而且伸手还摸得着，绝对是这个运动就叫“甜蜜蜜”的运动，然后你们看到了二环以内的动静..习近平就傻眼，他就明知道，呀..呀..怎么有动静了？，没办法.. 制止不了，然后就听到旁边都在唱”甜蜜蜜”，左看、右看、前看、后看、上看、下看…都在唱”甜蜜蜜”都在唱“梦里见过你”。
+这完全是一场可避免的悲剧，如果斯科特在慈悲医院能得到有效的治疗，而非因未打疫苗遭受虐待，如果斯科特能早点离开慈悲医院转到德州医院，他不会这样悲惨离世。
 
-中国的习近平，我的中国梦，怎么都变成了“甜蜜蜜”的梦了呢？到那时就热闹了，我今天就告诉你们这些老杂毛们，你张高丽会给彭帅讲故事，宇宙无限大，地球是一粒沙，今天我给你来个就在你家门口，来个“甜蜜蜜”，而且我告诉大家这个甜蜜蜜运动，就像所谓的茉莉花运动一样，你会看到很多知识分子，老师、律师、军人、音乐家、医生，很多人参加，我就让你看到郭文贵和爆料革命新中国联邦的甜蜜蜜运动，就在你二环内发起，我现在就告诉你了，如果发生我会告诉大家是世界级的，绝不亚于一场文化大革命这么大的力量，我不是给你们开玩笑，到那时候习近平他的中国梦，就成为他的中国噩梦了。
+* * *
+
+参考资料：
+
+- Avoidable Tragedy: Scott Quiner Dies Due To Maltreatment At Mercy Hospital
+JANUARY 22, 2022
+[https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/](https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/)
+
+
+- Stew Peters’ Viewers Create Temporary Victory In Scott Quiner Case- Mercy Hospital Ordered To Not Kill Him
+JANUARY 13, 2022
+[https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/](https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/)
+
+
+文章观点仅代表作者个人，与gnews平台无关
+
+作者：洛杉矶盘古农场 — 郭友（文苏）
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 

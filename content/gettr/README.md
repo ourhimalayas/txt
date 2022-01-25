@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/25/2022 7:25 AM (UTC)`
+
+1/24/2022 Miles Guo: History is repeating itself, and God is on the side of the New Federal State of China! Thank Xi Jinping for hosting a grandiose Winter Olympics - spending a ton of money to let Putin stay 20 hours longer, changing the banquet venue from the Pangu Plaza to the Great Hall of the People, putting the athletes into the "cells", and deploying State Security agents everywhere in the dining halls.<br/><br/>1/24/2022 文贵直播：历史在重演，上天站在新中国联邦这边！感谢习太阳大办冬奥会 - 花大价钱让普京多呆20小时，宴会场所从盘古改到人民大会堂，让运动员进入“牢房”，餐厅到处是国安。<br/>
+![img](https://media.gettr.com/group19/getter/2022/01/25/07/c6eaa58d-07a0-b71a-8209-5bf4f001fb91/out.jpg)
+
+---
+
 `@miles 1/25/2022 7:22 AM (UTC)`
 
 1/24/2022 Miles Guo: I talked to those who wanted to invest in the Himalaya Coin and advised them to stay away from Binance, with people praising the genius design of Himalaya Coin – the Himalaya Pay guarantees secure transactions at any time without being controlled, the Himalaya Coin has stablecoins and the best KYC, and a series of Himalaya financial services will be launched in the future<br/><br/>1/24/2022 文贵直播：文贵向要投喜币的人谈喜币并劝其远离币安，众人大赞喜币的天才设计 - 喜支付保证随时交易、安全不受控，喜币有稳定币和最牛KYC，未来会推出一系列喜金融服务<br/>
@@ -150,13 +157,6 @@ New Release                                              Shop Now at www.gfashio
 
 1/21/2022 Miles Guo: Xi’s closest childhood friend told Xi that a) it’s his far-left policies that led to China’s loss of market value and credibility; b) The confrontation between Xi and the West has rendered both the Chinese people and China the common enemies of two thirds of the world’s population; and c) if Xi doesn’t reform the political system, he won’t be able to make any changes.<br/><br/>1/21/2022 文贵直播：习最亲的发小告诉习，是他的极左政策让中国失去了市场的价值和信用，习跟西方的对抗让中国人和中国成为全球三分之二的人的公敌，若不搞政治改革，习的任何改变都不可能成功<br/>
 ![img](https://media.gettr.com/group17/getter/2022/01/23/02/00b1e930-39fa-239a-5205-da37cca7fcb2/out.jpg)
-
----
-
-`@miles 1/23/2022 2:15 AM (UTC)`
-
-1/21/2022 Miles Guo: The CCP will certainly be taken down before 2025, and all the CCP factions will be finished. In the face of diplomatic decoupling and technological decoupling from Europe and the US, Xi Jinping is very likely to make a U-turn by restarting reform and opening up and declaring a general amnesty. Visas are going to be voided after the diplomatic decoupling. Although fellow fighters may be able to travel back to China, they won’t be able to get out. You will own nothing if the CCP is not destroyed!<br/><br/>1/21/2022 文贵直播：2025前共产党一定灭，中共所有派系都将完蛋；面临欧美“脱交”、“脱科”，习近平很可能急转弯，重走改开搞大赦；脱交后签证作废，战友能回国但出不来；不灭共，你啥都没有！<br/>
-![img](https://media.gettr.com/group3/getter/2022/01/23/02/9f37451b-f8da-c4d7-faf3-56dc317434dd/out.jpg)
 
 ---
 

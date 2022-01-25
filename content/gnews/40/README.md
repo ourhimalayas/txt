@@ -2,41 +2,48 @@
 ---
 
 
-## 慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906413/)
+## 蓬佩奥国务卿呼吁建立威慑力以减少外部威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906474/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2041.png)图片来源：Red Voice Media Scott Quiner和妻子，Stew Peters
-斯科特原是明尼苏达州Coon Rapids市慈悲（Mercy）医院的一名新冠患者，慈悲医院根据医院指定的治疗方法将斯科特置于呼吸机上，并给予他镇静药物。家属恳求医院尝试其它方法，例如伊维菌素，羟氯喹，以及增加维生素和营养，试图挽救他的生命，而医院拒绝，也不允许病人出院，并要拔掉呼吸机。
-
-经过明州媒体名人Stew Peters （盖特账号@RealStew Peters）在社交媒体上的呼吁和很多人的关注，经过律师介入诉讼和法庭判决后，病人最终得以从慈悲医院转到德克萨斯州一家愿意提供治疗的医院。到了德州医院，医生们说斯科特是他们见过的最营养不良的病人。 这与家属所说的慈悲医生拒绝给他适当的维生素来帮助对抗病毒的说法是一致的。 他的其他器官工作正常，但他的肺有重大问题。
-
-Stew说，“斯科特遭遇了慈悲医院的撒旦杀手所造成的可怕伤害，他们虐待、毒害和折磨斯科特，因为他们惩罚他没有接种疫苗。 得克萨斯州的医生确信，慈悲医院对斯科特造成的致命伤害是他死亡的全部原因，如果他几周前到达德克萨斯州，斯科特就会完全康复。”
-
-这完全是一场可避免的悲剧，如果斯科特在慈悲医院能得到有效的治疗，而非因未打疫苗遭受虐待，如果斯科特能早点离开慈悲医院转到德州医院，他不会这样悲惨离世。
-
-* * *
-
-参考资料：
-
-- Avoidable Tragedy: Scott Quiner Dies Due To Maltreatment At Mercy Hospital
-JANUARY 22, 2022
-[https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/](https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/)
+作者：日本方舟农场 – Andy5
 
 
-- Stew Peters’ Viewers Create Temporary Victory In Scott Quiner Case- Mercy Hospital Ordered To Not Kill Him
-JANUARY 13, 2022
-[https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/](https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-文章观点仅代表作者个人，与gnews平台无关
 
-作者：洛杉矶盘古农场 — 郭友（文苏）
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+1月23日，前国务卿蓬佩奥接受媒体采访，再次呼吁美国需要建立威慑力。在节目中，主持人担忧近期俄、中、伊朗举行的军演，中共侵扰台湾防空识别区，以及俄罗斯在乌克兰边界的屯兵，将造成各国对美国外交政策的不信任。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+对此，蓬佩奥表示，美国提振在国际上的威慑力是解决目前事态的唯一途径。他指出，各国都在密切关注美国政府的行为举止，而现任政府需要像川普政府一样作出“回应”，来树立美国的威慑力。同时他强调，“回应”的方式不一定是出兵引发战争，可以像川普政府斩首苏莱曼尼，以及提供武器援助等措施，来维护其他国家包括当下乌克兰的主权等措施。而最关键在于，本届政府是否有能力和决心，使用手中的各种工具。
+
+最后，蓬佩奥还在回覆中特别区分了中共领导人习近平和中国人民、台湾人民，称这两方都正在关注美国如何扮演领导角色。并且只有美国建立了威慑力，才能保证美国和世界的繁荣稳定，从根本上减少外部挑战的出现。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-6.jpg)
+参考信息：
+1.[20220123蓬佩奧國務卿接受FOX採訪](https://www.gettr.com/post/pq997m78fa)
+2. [俄太平洋舰队：中国 俄罗斯和伊朗将举行海上联合军演](https://mil.news.sina.com.cn/china/2022-01-18/doc-ikyamrmz5988581.shtml)
+3. [俄媒：乌中将声称俄罗斯可能在2月20日“入侵”乌克兰，莫斯科多次否认类似指控](https://world.huanqiu.com/article/46W6lf93sdd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -2,21 +2,30 @@
 ---
 
 
-## 雅典娜时报-第184期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906869/)
+## 江家控制比特币01
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1906929/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+江志成持有比特币最起码5000亿美金，甚至更多，将近三分之一的比特币在江家帮里控制着。
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![2017年1月26日，郭文贵先生接受明镜新闻网陈小平先生的专访，从此掀开爆料革命的伟大篇章。](https://media.discordapp.net/attachments/825592691433668612/935411796800585748/155_7.png?width=798&amp;height=1188)![圖片](https://media.discordapp.net/attachments/825592691433668612/935411797173866516/155_4-2.png?width=798&amp;height=1188)
-*发布：陶子*
+火币是他李琳是吧，完全是孟建柱的，还搞党支部书记呢，玩这套呢。然后赵长鹏100%的他背后就是孟建柱和王岐山的。
+
+你想这几块玩的多少钱啊？
+
+现代化的数字货币，他们还控制着黑帮，它控制着杀人，帮他控制就是海外部队。
+
+你没有见过整个去过缅甸泰国那些湄公河案的所谓的地方军，这些部队，那绝对是正规军，那是由火箭有短程导弹的，不是开玩笑的。杀手级的毒品。
+
+他控制着贩卖人口的链条。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/江家控制比特币_01.jpg)
+直播时间：2021.12.01
+
+发布*：皮特*
+
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,21 +2,26 @@
 ---
 
 
-## 冒险之旅——芬兰国奥委共95名运动员将启程前往北京
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1906867/)
+## 防俄入侵乌克兰 日本讨论对俄经济制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906912/)
 
-撰稿：随心所在
-![](https://assets.gnews.org/wp-content/uploads/2022/01/252.jpg)图片来自网络
-周一，芬兰奥委会董事会确认了参加北京冬奥的人选。有 22 名运动员经选拔在最后一天加入了芬兰国奥队，即共有95名运动员参加北京冬奥会。其中47人将参加个人比赛，其余则为女子和男子曲棍球国家队。
+撰稿：东京樱花团/麗子
 
-芬兰奥委会周一证实，它将派出一支由四名女性和四名男性组成的成熟的外展团队参加奥运会。多达四名运动员被选中参加高山滑雪，他们是 Riikka Honkanen、Rosa Pohjolainen、Erika Pykäläinen 和 Samu Torsti 。除了被选中的滑降运动员 Julia Kykkänen 之外，Jenny Rautionaho 以及男子 Antti Aalto 和 Niko Kytösaho 也将被派往北京。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/防俄入侵乌克兰-日本讨论对俄经济制裁.png)[图片来源](https://www.cnn.co.jp/world/35182469.html)
 
-前往北京的Jenni Saarinen是唯一的花样滑冰选手。其它参赛者还有单板滑雪中排名第四的 Carola Niemelä， 自由滑 的 Anni Kärävä， Jimi Salonen， Olli Pentala ，Severi Vierelä ，Jon Salminen ，Simo Peltola 和 big Air。最耀眼的奖牌获得者之一Ilkka Herola ，以及 Eero Hirvonen、Arttu Mäkiaho、Otto Niittykoski 和 Perttu Reponen。
+25日上午，自由民主党在党部召开了外交事务小组委员会等联席会议，讨论因俄军大规模军队部署而日益严峻的乌克兰局势，国会成员纷纷呼吁在俄罗斯入侵乌克兰的情况下需采取严厉措施，包括经济制裁。
 
-北京冬奥会最引人关注的是作为一个践踏人权证据充分的集权政府，承办冬奥会是否符合奥运精神，而应邀前往的各国运动员是否知晓？为了荣耀一尊，中国政府面对疫情此起彼伏；用百般不顾人性的限制，对百姓生活造成了多重伤害。可以说此行充满不确定的变数，任何运动员的加入都已经不可避免的被这个政权赋予了政治捧场的色彩。
+会议上有声音表示，鉴于在台湾出现紧急情况时可能需要寻求欧洲国家的支持，如果日本不对入侵乌克兰做出回应，可能会被戏谑执行双重标准。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+会后，外交事务小组委员会主席佐藤正久透露，美国已经表示将与同盟国一致，实施强有力的经济制裁。日方必须为任何紧急情况做好准备。所以，事前讨论并制定经济制裁措施很有必要。
+
+信息源：
+
+[露、ウクライナ侵攻なら「経済制裁を」　自民外交部会で議論](https://news.yahoo.co.jp/articles/598799a2dc75c7502519382af2cac9c06425af26)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,51 @@
 ---
 
 
-## 魁北克法院判决：母亲单方面没有权利阻止未成年子女接种疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1906462/)
+## 美日加强训练 中共军机扰台 台海再引关注
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906475/)
 
-2022-01-24
-
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C0@AFOB7Y@JSPPD.png)图片来源：蒙特利尔日报（2022 年 1 月 24 日）
-## 母亲单方面没有权利阻止她的未成年子女接种疫苗
-
-LA PRESSE和蒙特利尔日报（2022 年 1 月 24 日）报道，魁北克省德拉蒙德维尔市（Drummondville），法院就父母对接种 COVID-1 疫苗的分歧作出了新的的裁决，母亲单方面没有权利阻止她的未成年子女接种疫苗。
-
-这位母亲，相信针对 COVID-19 的疫苗可能包含一个电子“芯片”，并且是由“流产胎儿的细胞”制成的，这位阴谋论的母亲，还认为接种疫苗是“反人类罪”。
-
-法院就父母对接种 COVID-1 疫苗的分歧作出了这样的裁决，这位母亲部分地失去了她对孩子的做为母亲的权力，这位母亲不能阻止她的未成年（14 岁和 9 岁）女儿接种疫苗，孩子的父亲可以单独做主让孩子接种疫苗，这让父亲感到很欣慰。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C5NHKR3K1X1XPRB90.png)图片来源：蒙特利尔日报，图片显示法官判决书的部分内容。图片中部分文字显示，法官指出：“她（这位母亲）声称（注射）疫苗是一种‘实验性注射’，（注射疫苗）可以使她的女儿（成年后）不能生育” 。
-魁北克省，德拉蒙德维尔市（Drummondville），法官，史蒂夫·J·莱姆尼茨（Steve J. Reimnitz）裁定并驳回这位母亲的要求。“夫人（这位母亲）可以坚持她想要的，但是法院更愿意遵循（魁北克省）公共卫生当局的建议”，法官说。
-
-法官最后说：“尽快遵守（魁北克省）公共卫生部提议的疫苗（接种措施）来保护孩子，这符合孩子的最大利益”。
-
-本月中旬，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章还报道了魁北克省第一例剥夺未接种疫苗父母探访子女的权力的判决。报道称，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。详细内容刊载于题为《[魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](https://gnews.org/zh-hans/1864608/)》的文章中。 文章编译及评论人提醒读者注意并仔细品味一下法官的这句话，“…法院更愿意遵循（魁北克省）公共卫生当局的建议”
-
-**参考资料**：
-
-1. LA PRESSE（2022 年 1 月 24 日），Une mère complotiste ne peut empêcher ses filles d’être vaccinées，[https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php](https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php)
-2. 蒙特利尔日报，Le Journal De Montreal，（2022 年 1 月 24 日），Contre la vaccination de ses enfants: une mère déboutée par le tribunal，[https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal](https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal%20)
+作者：纽约磐石农场 – 在远方， 台湾宝岛农场 – dobi
 
 
-编辑：LILY
 
-发布：肥鯮
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-校对：
+
+
+1月23日晚，台湾空军发布共军军机动态，当日有39架共军战机，入侵台湾西南防空识别区。
+
+同日，日本海上自卫队宣布，已跟美国海军航空母舰等舰艇，在冲绳南方实施联合训练。训练自17日至22日举行，日方大型护卫舰日向号，美方卡尔文森号航母、林肯号航母、以及两栖突击舰与驱逐舰等，共10艘舰艇参加了演练。
+
+分析认为，美日军演，是针对中共此前对台湾的威胁开展武力威慑；而中共此次扰台机群武力并非最强，威胁程度也不是最大，应该是针对美日的联合军演表达自己不示弱的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide12-4.jpg)
+参考信息：
+1. [美日沖繩南方海域軍演 39架共機擾台西南ADIZ (影音)](https://cn.rti.org.tw/news/view/id/2122937)
+2. [海自与美海军在冲绳以南实施联合训练](https://china.kyodonews.net/news/2022/01/2395add60d32.html)
+3. [9架共機擾台 學者：表達對美日軍演不示弱態度](https://udn.com/news/story/10930/6055655?from=udn-catebreaknews_ch2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：DM
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
