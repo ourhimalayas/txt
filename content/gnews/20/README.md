@@ -2,48 +2,41 @@
 ---
 
 
-## 有了数字货币和媒体平台才能干掉达沃斯党走向浩瀚太空
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906533/)
+## 谷歌在新的诉讼案中被指控“侵犯”用户隐私
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906252/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ef3fac87664c47acd9851d](https://gtv.org/video/id=61ef3fac87664c47acd9851d)
+**翻译：文扬**
+**编辑：Candy**
 
-**郭文贵先生**：那么现在人类到了什么时代？人，地球要走出地球，往宇宙，叫科技的时代。人类有了互联网，叫互联网的时代和数字的时代。这个时候人类所挑战的达沃斯也面临的一个问题，没有一个成熟的金融系统，你不可能把一个成长在、诞生在一个资本主义的邪恶的力量干掉它，你必须有一个新的金融系统它就没有生存之地了，达沃斯是靠钱诞生的，靠钱威胁你们，所以数字货币是最重要，没这个你啥都玩儿不成。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/谷歌.png)图片来源：Willie B. Thomas/Getty
 
-你有了数字货币，达沃斯靠啥统治你们啊，得让你们弄啊，是吧？是一个媒体，它让你不知道真相：不知道我过去干了啥，今天干了啥，明天想干啥，我才能忽悠你。所以共产党、北朝鲜、原来的斯大林、古巴都是信息封锁互联网。现在互联网时代来了，现在美国和西方和疫苗灾难病毒就是因为Facebook、谷歌这些人控制着所有的媒体。
 
-接下来必须诞生新的真相，也就是媒体平台，你才能干掉达沃斯党，这两件事咱都在干，就你们在干。这两样事人决定谁上太空，这两样事会告诉你一定在我们有生之年你会得到以下三个答案：有没有星外人？你一定很快能得到，你人都到外星去了，你想想你咋会知道没有外星人，一定很快会知道；
+三个州和华盛顿特区的总检察长称：谷歌作为科技巨头，使用了“欺骗性和不公平”的做法。
 
-第二个，人到底是哪儿来的，是不是猴子变的？人死了到底灵魂那35克去哪儿了？人绝对是给你答案，人是来自于哪里，去向哪里，绝对告诉你，人是不生不灭的，你会看到一个另一个星空另一个维度的自己，还有你的亲人还有你的朋友，所以别作孽；
+德克萨斯州、印第安纳州、华盛顿州和哥伦比亚特区的总检察长已对谷歌提起诉讼，称其在获取用户的位置数据时采用了 “欺骗性和不公平 “的做法。
 
-第三个答案，毫无质疑，一点都不用怀疑，未来的人类真正的不是人类之间互相斗争，互相奴役，人类是走向浩瀚的天空，和外星人去争夺，地球的厮杀到此为止，新中国联邦带来正道主义，带来真相。
+哥伦比亚特区总检察长卡尔·拉辛（Karl A. Racine）周一在一份声明中宣布，该诉讼旨在结束谷歌“非法使用‘黑暗模式’”，并“收回从位置数据中获得的利润”。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+拉辛称，自2014年以来，无论用户的隐私设置如何，谷歌都在调查用户的信息，造成一种数据没有被追踪的欺骗性假象。诉讼称，如果谷歌用户关闭了他们的位置数据，他们就会收到通知，试图诱使他们再次分享这些数据。
 
-编辑整理：Jacques；
+诉讼指出：“通过反复‘催促’用户启用谷歌账户设置，谷歌增加了用户无意中或出于沮丧而启用该设置的机会。”
 
-字幕文件制作：小满；
+它还指责这家科技公司对某些隐私设置和更新进行了“误导、模糊和不完整的描述”，导致许多人在不知情的情况下分享数据。
 
-视频制作及上传：Cindy；
+总检察长写道，这些做法“损害了希望保护其敏感位置信息的消费者”免受谷歌及其广告公司的侵害。
 
-G-News发布：小满；
+谷歌否认了这些指控，称该诉讼提出了 “关于我们设置的不准确的主张和过时的论断”。他们承诺将对这些指控进行 “大力 ”辩护。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+原文链接： [Google accused in new lawsuit of ‘invading’ user privacy — RT World News](https://www.rt.com/news/547229-google-lawsuit-location-data/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+***发布：Candy***
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

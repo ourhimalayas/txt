@@ -2,72 +2,38 @@
 ---
 
 
-## 如何回应中共用太平联盟案和盘古龙头变鸟头制造的恶心
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906563/)
+## 脸书提供的免费在线服务竟通过移动运营商收费
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906392/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ef4f3a87664c47acd98b56](https://gtv.org/video/id=61ef4f3a87664c47acd98b56)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**郭文贵先生**：这就刚才我说国内刚才宁南兄弟说的国内很多人说这个上网、翻墙，这个你想做一定会做得好，当你翻墙上网的时候，你为的是自己的孩子、自己的未来，翻墙那百分之百能解决的。但是有些人说，以共产党的封网为名，给自己的懦弱和自私和无知找借口，那你是永远翻不了墙，是吧？那你就享受你的无知和懦弱去了，你就不要翻墙了。
+整理/编辑：小红帽
 
-包括这太平联盟的官司，它不是你七哥的官司，发自内心的时候就是太平联盟的最坏的结果他能怎么着？对七哥来讲，连个肛毛的本事都不算，算啥？但是它是意味着我们纵容他，我们在这个案子如果让他们把假的变成真的，利用这种方式统治美国和欧洲，像澳大利亚、加拿大西方文明的法治社会，这对每个人都是危险。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-25-上午7.47.18.png)图片来源：雅典娜设计组
 
-更重要的事情，我们赢这个官司，让他们知道西方所有的法治社会的基础，每个人的安全的基石，共产党利用律师和律师走向政界、法律界，统治西方的法治社会，那对爆料革命的信用之大。
 
-所以我要把……这就七哥一直以来追捧：遇难呈祥。我要把这场挑战变成我们的机会和力量，这就是为什么人的探索太空啊？因为你是把整个的黑暗变成了你的力量，这才是我们新中国联邦人必须要有的。
+根据《CNET》1月24日报道，脸书（Facebook）的免费互联网服务五年多前在发展中国家和社会经济地位低下的地区推出，为人们提供免费使用一些在线服务。但据《华尔街日报》报道，许多人在免费模式下使用应用程序时，被其移动运营商收取少量的数据使用费。在截至2021年7月的一年中，每月总计收取达数百万美元。
 
-所以说太平联盟的官司你们能做什么？你们不要说6周，你看看那个Isobel Yeung是吧？Isobel Yeung 这个蛇女是吧？有6周吗？看不见动静了。你们要坚持发，坚持做。不管你做俯卧撑，还是普拉提？还是说什么三马、三步，你天天弄个，单……金鸡独立，每天做，你腿都比谁的腿都有力。
+据《华尔街日报》周一援引公司内部文件报道，Meta公司去年就注意到了这个问题，在10月的一份备忘录中称其违反了透明度原则。
 
-像PAG官司，Isobel Yeung的事，你们要每天发、每天做、每天讲，每天关注。所以说你看看，昨天我们跟律师开会，所以本来法官人家Mr.Ostrager是定在2月8号审，开庭关于LADY MAY船的事情，欸，太平联盟律师：不不不，我们没时间，我们要2月2号。
+该问题在内部文件中被描述为“当用户处于免费模式时，他们相信所使用的数据是由其运营商网络覆盖的，尽管这些用户实际上是自己为数据付费”。
 
-大家知道这真相吗？你们没有人认真看这，庭上每句话都有记录的。2月1号是中国春节，2月2号太平联盟选，谁选的？2月2号是这里的正好是，Tiger，只要是你看Isobel Yeung一出来攻击,太平联盟就要开庭。
+此前，脸书在2016年因其在印度的免费互联网服务而受到批评，当时互联网权利团体表示，免费基础网络计划（Free Basics）违反了网络中立性原则，只提供了“部分互联网访问权限”。
 
-都是太平洋联盟跟着中共的警察，中共的警察队伍当中专门有指挥律师事务所怎么干的，中国共产党就是要虐待你郭文贵的心，我让你从过年的农历的第一天我就让你难受。
+“如果你认为访问互联网是一项权利，就像获得医疗保健和清洁饮用水一样，”报道称，“那么脸书应该支持每个人都能以可承受的价格访问整个互联网，而不是只访问那些脸书或其合作伙伴认为可以接受的服务。”
 
-就像把盘古的龙头变成了龟头一样，我让你恶心你，我让你难受，把盘古挖一个大坑，放一个大印，堵住郭文贵一样，它就是这样。你过去这四、五年的官司：PAG，每次PAG开庭审核、审判，都和郭文贵是双面间谍、郭文贵强奸案、郭文贵强奸案开庭、吴征出面、Michael Waller开庭，你发现永远跟这事连着的。就是共产党最想恶心七哥的事他全来了，所以说，那你们干啥？共产党想干的，那你要打回去啊。他恶心咱，你都不会反恶心吗？
+当时，这项服务已经在36个国家提供，但一个月后， 脸书的免费基础网络计划在印度被切断。
 
-说到这儿，我要给大家再接着说一个，就是我们兄弟姐妹们要记住，像PAG这个官司，我们很多战友，像昨天我们的摩根先生，John Mogen几次给我发信息，他说我作为一个美国人，我这样的长大，我在银行的人，他说我们银行，当时我就是个Lobby，Lobby就是每天公关的人，这是完全虚假的案子，是不可接受的。
+新闻链接：[Facebook free-internet users charged through their cellular carriers](https://www.cnet.com/tech/services-and-software/facebook-free-internet-users-reportedly-charged-through-their-cellular-carriers/)
 
-很多战友发信息，竟然有战友说：七哥，根据我的了解，纽约这个案子是可以管的。战友们千万记住这就是咱战友的无知啊，有时候，对七哥没事，七哥都可以理解，还感谢你。
+发布：tianzhihuan
 
-但是你傻劲千万别用在你生活中，上亿美元的官司，我们的律师，七、八十个律师参与的案子，难道还……难道七哥还不知道，纽约有没有管辖权吗？它当然没有管辖权了，你个战友你有啥资格给人家说这话？
-
-所以咱们战友千万别有大脑症，你知道吗？我要感谢你给我的建议，但是你不要把你这种态度用在你生活中。我们有上亿美元的律师费都花了，难道律师不能给出一个答案来说，这个纽约没管辖权？它没有管辖，它就强制管辖。
-
-关键它也没有权利剥夺我们使用陪审团的权利。最重要的是也不应该剥夺我们去提供证明他们这是假的材料的这个权利，更证明的事情，不能说对方的律师受其尊重，我们的律师被威胁，违反职业道德，结果对方违反了职业道德。
-
-更重要的是PAG和共产党和吴征之间的关系，还有那个前FBI的Richard，完全利益冲突，完全违法。而且多维.共产党的间谍平台，还有单伟建出PAG，共产党的这种间谍身份和他儿子的间谍身份，这些都不能被忽视。
-
-所以整个事件因起我们要灭共，过程是共产党在不跟我们，要灭新中国联邦。不是灭七哥，他怎么能把我灭了，我现在一分钱没有，我一分钱没有，他能怎么着我？我真的是没有一分钱，你得证明我的钱哪来的，是吧？
-
-所以说兄弟姐妹们，这个PAG的官司就是大家要行动，你们要在全世界在任何平台，一定要动手，让西方知道这是共产党操纵的案情，多么的不正常，我们就赢了。不管官司主要结果如何，这个目的就达到了。
-
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,43 +2,36 @@
 ---
 
 
-## 慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906413/)
+## 瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1905173/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2041.png)图片来源：Red Voice Media Scott Quiner和妻子，Stew Peters
-斯科特原是明尼苏达州Coon Rapids市慈悲（Mercy）医院的一名新冠患者，慈悲医院根据医院指定的治疗方法将斯科特置于呼吸机上，并给予他镇静药物。家属恳求医院尝试其它方法，例如伊维菌素，羟氯喹，以及增加维生素和营养，试图挽救他的生命，而医院拒绝，也不允许病人出院，并要拔掉呼吸机。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-经过明州媒体名人Stew Peters （盖特账号@RealStew Peters）在社交媒体上的呼吁和很多人的关注，经过律师介入诉讼和法庭判决后，病人最终得以从慈悲医院转到德克萨斯州一家愿意提供治疗的医院。到了德州医院，医生们说斯科特是他们见过的最营养不良的病人。 这与家属所说的慈悲医生拒绝给他适当的维生素来帮助对抗病毒的说法是一致的。 他的其他器官工作正常，但他的肺有重大问题。
-
-Stew说，“斯科特遭遇了慈悲医院的撒旦杀手所造成的可怕伤害，他们虐待、毒害和折磨斯科特，因为他们惩罚他没有接种疫苗。 得克萨斯州的医生确信，慈悲医院对斯科特造成的致命伤害是他死亡的全部原因，如果他几周前到达德克萨斯州，斯科特就会完全康复。”
-
-这完全是一场可避免的悲剧，如果斯科特在慈悲医院能得到有效的治疗，而非因未打疫苗遭受虐待，如果斯科特能早点离开慈悲医院转到德州医院，他不会这样悲惨离世。
-
-* * *
-
-参考资料：
-
-- Avoidable Tragedy: Scott Quiner Dies Due To Maltreatment At Mercy Hospital
-JANUARY 22, 2022
-[https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/](https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/)
+1月24日，郭文贵先生于GTV、Gettr直播中透露了近日和准备大额投资Hcoin（喜币）的人士（用瑞士的资金间接投资Coinbase、 ETH的前五大股东）的会议内容，并表示，一个Hcoin（喜币）达到价值10万美元不算是目标。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/abf83ee7ec7a8bc6af3932e51cdf1b42.jpg)图片来源Gettr香草山
 
 
-- Stew Peters’ Viewers Create Temporary Victory In Scott Quiner Case- Mercy Hospital Ordered To Not Kill Him
-JANUARY 13, 2022
-[https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/](https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/)
+据悉，有与会人士后悔地透露，为了测试喜交所系统的真实性，自己曾偷偷地以24美元一个Hcoin（喜币）的价格卖掉70万个币，并且成功把所有现金提走。而且表示，Hcoin（喜币）也是他们家族唯一直接持有的数字货币，现在都以拥有Hcoin（喜币）为荣。与之对比的是，币安的赵长鹏通过行贿他的下属，以此希望他能投资币安。但通过郭先生的提醒后马上表示，整个国家绝对不再接触币安，而且会全力配合加拿大、日本、台湾对币安案件的调查，还会在有必要的情况下把赵长鹏遣送到这些国家。
+
+郭先生建议不要再说Cryptocurrency，而是Digital Currency（数字货币）。同时希望对方早日成立世界第一家数字货币基金，可以领导人类货币走向新世界，其意义不亚于拥有一个新的美元系统。
+
+最关键的，从2019年年底开始在不到26个月的时间里，全球通过量化宽松（QE）印发了260万亿美元，将近是世界GDP的两倍。然而，目前数字货币总市值也就只有3万多亿美元。在这些新增的法币当中，倘若只有10%流入到数字货币市场，数字货币市场的市值将不可想象。而3-5年的短期内最值钱的数字货币将只有三种，即Hcoin（喜币）、Bitcoin（比特币）和ETH（以太坊），三者会占据数字货币80%的市值。到那个时候，可能三者都会超过10万美元一个。所以，一个Hcoin（喜币）**价值**** 10万美元并不算是目标**。
+
+况且，能自由流通的，从第一天就有最完善合法KYC开户系统的，每年用发行币值的20%购买黄金储备的，既有稳定币又有浮动币的，有中心化机构负责的，唯有Hcoin（喜币）。反观币安，币安的KYC问题是无法弥补的隐患，而且还跟随中共出卖投资人的个人信息。比特币也一定会在不久的将来归零，因为比特币已然成为暗网犯罪和黑暗势力洗钱的工具。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5ccaf1f2758ac13047ada648b7feddf1-1.jpg)图片来源Gettr
 
 
-文章观点仅代表作者个人，与gnews平台无关
+此外，Hcoin（喜币）还有自己的小生态系统，集合了喜保险、喜存款、喜贷款、喜金融和Hpay（喜支付）。目前已有六大世界品牌接受Hcoin（喜币）交易，等到Hpay（喜支付）的正式上线和更多喜交所KYC的开户后宣布。
 
-作者：洛杉矶盘古农场 — 郭友（文苏）
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+有无疆界的支付系统，有热钱包、冷钱包多线交易方式，任何人通过手机可以实现数字货币的自由流通。Hcoin（喜币）不但可以买面包，还能买飞机、豪车。近日，就有战友通过Hcoin（喜币）的线下交易，成功购买了2架小型飞机（庞巴迪挑战者系列），或者超级豪车。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+通过两个小时私下视频对Hcoin（喜币）的设计和Bitcoin（比特币）、ETH（以太坊）、和Hcoin（喜币）之间差别地全面阐述，这些人士立即决定大额进场喜交所。郭先生表示欢迎，但重申持有6.7亿个币的战友们的利益永远是第一位的，绝不允许影响战友的利益。
 
+**注：**
 
+Hcoin（喜币）的价格浮动完全是市场行为，只是基金在动用自己持有的8000万个币压制价格（目的是等待更多人KYC成功和更多资金入池），而现在基金压价存量只剩2700多万个币，若不是刻意压价，Hcoin（喜币）价格早就过千。
+
+目前有50亿美元现金准备进场，正在等待喜交所KYC开户结果。
 
  
 

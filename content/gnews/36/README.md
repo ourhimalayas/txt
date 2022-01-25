@@ -2,24 +2,31 @@
 ---
 
 
-## 电阻为零的绝缘体 未知原理“铜氧化物超导体”诞生了！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906368/)
+## 华盛顿特区：数千名抗议者反对疫苗强制
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1904389/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-47.png)[图片来源](https://news.yahoo.co.jp/articles/37180524f2ae899a232dd1cf0a4951cbf0d80cad/images/000)
-新泻大学教授佐佐木进准等人开发了具有未知原理的铜氧化物超导体。物质是电阻为零的超导，而铜氧化物是绝缘体。一直以来，铜氧化物的平面结构被认为是超导的源泉。成为不符合定论的超导物质。制备了2种铂-钡铜氧化物的层叠结构。该物质由平面状氧化铜以钡、铜氧化物、安慰剂、铜氧化物、钡、铜氧化物的顺序堆积而成。在负255摄氏度成为超导。
+2022-01-22
 
-为了调查各层的铜原子状态，开发了超高感度核磁共振（NMR）装置。在室温和超导条件下测量，夹在钡和安慰剂之间的铜原子的响应频率升高。从这个应答中可以判断铜原子是绝缘体。其他高温超导物质的响应频率几乎不变。
+**翻译报道：沉默老歌**
 
-此前，铜氧化物的平面结构被认为是超导的源泉，但即使平面结构本身不通电，也能发现超导。高温超导原理有很多不明之处。用新物质和高灵敏度的测量技术来阐明原理。
 
-信息来源：
+华盛顿特区抗议疫苗强制现场，WUSA9报道
+据Kyros于2022年1月24日在WUSA9的报道，周日（1月23日），反疫苗强制的活动家们抵达华盛顿特区参加“击败强制”集会。
 
-[電気抵抗ゼロで絶縁体、未知の原理の「銅酸化物超電導体」が生まれた！](https://news.yahoo.co.jp/articles/37180524f2ae899a232dd1cf0a4951cbf0d80cad)
+有数千名抗议者参加在购物中心举行的集会，也是华盛顿特区规定当地企业必须出示疫苗接种证明的一周后。居民们担心，全市范围内的要求将引发外地抗议者和当地人之间的冲突。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+来源链接：
+[WUSA9: Thousands rally in DC Sunday against vaccine mandates](https://www.wusa9.com/amp/article/news/local/thousands-of-protestors-arriving-in-dc-ahead-of-anti-vaccine-rally/65-37fdd7fd-b628-4236-82aa-7a54ffc25204)
+
+编辑：LILY
+
+发布：MQ
+
+校对：MQ
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

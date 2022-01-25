@@ -2,44 +2,32 @@
 ---
 
 
-## 不要溢出效应就是让西方别把中共的钱戳成纸以奴役人民
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906644/)
+## 塞尔维亚人形容中资轮胎厂为“人间地狱”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906612/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ecf1b087664c47acd8ad8f](https://gtv.org/video/id=61ecf1b087664c47acd8ad8f)
+![塞爾維亞茲雷尼亞寧的玲瓏輪胎工廠工地。越南工人說，他們在工地上面臨「糟糕和危險」的條件。](https://static01.nyt.com/images/2022/01/18/world/00serbia-china01/merlin_200195361_b7b6704f-0ff0-42b6-b631-f869862f8c80-master1050.jpg)塞爾維亞茲雷尼亞寧的玲瓏輪胎工廠工地。越南工人說，他們在工地上面臨「糟糕和危險」的條件。 MARKO RISOVIC FOR THE NEW YORK TIMES
+据纽约时报中文网1月24日报道，一些在塞尔维亚为一家中共国轮胎公司工作的人，形容那里的生活如同“人间地狱”，因为中共国投资的诱人承诺与当地严峻的现实生活相差甚远。
 
-**郭文贵先生**：今天我再告诉大家，所谓的“溢出效应”是啥意思？就是村长家里边，把这一村人给绑架了，或者村长在茅屎坑里边在拉屎，你把一个石头扔到茅屎坑里边溅他一身，现在村长就干啥事？你只要敢不听我的，我就把这屎糊到你们全世界去。
+2018年9月，塞尔维亚总统亚历山大·武契奇和中共国领导人习近平在北京会晤，初步达成玲珑轮胎项目。塞尔维亚政府免费为玲珑轮胎工厂提供约97公顷农田，并承诺提供8500万美元国家补贴。最终，耗资九亿美元建成的玲珑轮胎工厂被吹捧为中共国在欧洲最大的工业投资。轮胎工厂计划每年生产超过1.3亿条轮胎，政府表示，该工厂最终将创造1200个就业岗位。
 
-共产党达沃斯论坛印的钞票太多了，美国要加息，因为美国的美元人家是全世界通行，到现在中国人不知道美元是全世界通行、中国人民币全世界不通行。我告诉你们，你们想想，Rosemary你不知道，你去问中国人，97%的人不知道中国的人民币不是全世界通用的原因，就是人民币你只能在中国花，到外国叫外币，是限制你（使用），全人类只有北朝鲜，连非洲都不这样，就你的钱就是纸。
+塞尔维亚是欧洲最贫穷的国家之一，中共国的投资帮助塞尔维亚去年实现了超过7%的经济增长，在欧洲名列前茅。但是中共国对塞尔维亚的环境污染和破坏也是非常严重的，中共国经济的飞速发展就是以对资源的过度掠夺和对环境毁灭式的破坏实现的，如今这一幕剧情正在塞尔维亚重演。塞尔维亚人进入中共国工厂，如同身处“战俘营”，生活在“现代奴隶制”下，。一些工人已经逃离，但是离开就意味着撕毁合同，家人会背负劳工中介和高利贷债务，因为工人们前往塞尔维亚的费用是由家人提供的。
 
-那现在什么叫溢出效应呢？就是我印的钞票太多了，你现在一加息，人家美元是全球流通，它自己的泡沫就挤出来了，一挤出来，它的钱变纸了。你要叫我继续奴隶我的中国14亿人民，所谓的比爹娘还亲的共产党，就是你不能把我的钱变成纸，我要继续奴隶他们。
+与中共国亲近的国家，富国变穷，穷国更穷。民主变独裁，独裁监狱化。中共国就是地球上最大的集中营，监禁着14亿奴隶。奴隶主从来不把奴隶当作人，奴隶的生存环境和生活条件也不是奴隶主考虑的。塞尔维亚如今正在步中共国后尘。
 
-字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+新闻参考链接：[https://cn.nytimes.com/world/20220124/china-serbia-vietnamese-workers/zh-hant/dual/](https://cn.nytimes.com/world/20220124/china-serbia-vietnamese-workers/zh-hant/dual/)
 
-编辑整理：Jacques；
+编辑：胖丁
 
-字幕文件制作：小满；
+* * *
 
-视频制作及上传：Cindy；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+编辑：【英国伦敦喜庄园编辑部】
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

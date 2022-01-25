@@ -2,10 +2,10 @@
 ---
 
 
-## 纽约孩童因反抗强制疫苗活动遭逮捕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906470/)
+## 有声|喜马拉雅币一周分析与总结（1月17日-1月23日）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1905725/)
 
-作者：银河系农场—骄子
+配音：香草山健身部 – 玫瑰园
 
 
 
@@ -13,35 +13,29 @@
 
 
 
-1月19日，纽约自由集会社团在美国自然历史博物馆举行合法反对强制中共病毒疫苗活动时，遭到纽约警察的阻拦，有5名成人和1名9岁孩童被逮捕。
+过去一周喜马拉雅币价格在42美元附近浮动，平均日交易量约5万喜币。喜币上市以来总交易量约2590万枚 ，占今年总发行量仅约2.59%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
 
-据悉，纽约警察以进入博物馆无法出示疫苗接种证明为由实施了逮捕。现场有网友拍到9岁孩童在哭泣，可听到有人在斥责警察对孩童造成了伤害。
+据本周郭文贵先生在直播中透露，喜支付上线后喜币可在全球流通，不受任何政府管辖与法币兑换的限制。未来喜联储最重要的一大服务就是冷钱包的服务。热钱包存在于互联网，有被黑客的风险。冷钱包存在于硬件中，互相之间也可以交易。喜联储的冷钱包将成为中国共产党灭亡前后中国大量财富最安全储存的地方。冷钱包未来可以和量子电脑，生物科技结合，钱包密码识别人体生物特征，不受法币被人监管的限制，彻底打破法币对金融系统的国家垄断。冷钱包中的币不会丢失，硬件钱包即使丢失其中的币也可以寻回。喜联储正在与某公司合作发行外太空数字货币的计划，将冷钱包核心数据放在月球或太空中的卫星上。未来最安全的冷钱包就是人类财富的最大保险箱。
 
-大约两个小时后，该名孩童被释放，人群中有人欢呼这是一个小战士。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-10.jpg)
-参考信息：
-[That’s some fine police work! Moment sobbing girl, 9, is detained and five adults are ARRESTED at New York’s Natural History Museum after refusing to show COVID vaccine cards: Onlookers heckled heavy-handed NYPD cops](https://www.dailymail.co.uk/news/article-10427451/Girl-9-five-adults-arrested-NYC-museum-refusing-COVID-vaccine-cards.html)
+原文链接：[喜马拉雅币一周分析与总结（1月17日-1月23日）](https://gnews.org/zh-hans/1901593/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+音频处理/发稿：Daxia
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 
