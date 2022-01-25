@@ -2,43 +2,48 @@
 ---
 
 
-## 慈悲医院因患者未打疫苗不予有效及时治疗而导致其去世
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1906413/)
+## 有了数字货币和媒体平台才能干掉达沃斯党走向浩瀚太空
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1906533/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2041.png)图片来源：Red Voice Media Scott Quiner和妻子，Stew Peters
-斯科特原是明尼苏达州Coon Rapids市慈悲（Mercy）医院的一名新冠患者，慈悲医院根据医院指定的治疗方法将斯科特置于呼吸机上，并给予他镇静药物。家属恳求医院尝试其它方法，例如伊维菌素，羟氯喹，以及增加维生素和营养，试图挽救他的生命，而医院拒绝，也不允许病人出院，并要拔掉呼吸机。
+G-TV视频链接：[https://gtv.org/video/id=61ef3fac87664c47acd9851d](https://gtv.org/video/id=61ef3fac87664c47acd9851d)
 
-经过明州媒体名人Stew Peters （盖特账号@RealStew Peters）在社交媒体上的呼吁和很多人的关注，经过律师介入诉讼和法庭判决后，病人最终得以从慈悲医院转到德克萨斯州一家愿意提供治疗的医院。到了德州医院，医生们说斯科特是他们见过的最营养不良的病人。 这与家属所说的慈悲医生拒绝给他适当的维生素来帮助对抗病毒的说法是一致的。 他的其他器官工作正常，但他的肺有重大问题。
+**郭文贵先生**：那么现在人类到了什么时代？人，地球要走出地球，往宇宙，叫科技的时代。人类有了互联网，叫互联网的时代和数字的时代。这个时候人类所挑战的达沃斯也面临的一个问题，没有一个成熟的金融系统，你不可能把一个成长在、诞生在一个资本主义的邪恶的力量干掉它，你必须有一个新的金融系统它就没有生存之地了，达沃斯是靠钱诞生的，靠钱威胁你们，所以数字货币是最重要，没这个你啥都玩儿不成。
 
-Stew说，“斯科特遭遇了慈悲医院的撒旦杀手所造成的可怕伤害，他们虐待、毒害和折磨斯科特，因为他们惩罚他没有接种疫苗。 得克萨斯州的医生确信，慈悲医院对斯科特造成的致命伤害是他死亡的全部原因，如果他几周前到达德克萨斯州，斯科特就会完全康复。”
+你有了数字货币，达沃斯靠啥统治你们啊，得让你们弄啊，是吧？是一个媒体，它让你不知道真相：不知道我过去干了啥，今天干了啥，明天想干啥，我才能忽悠你。所以共产党、北朝鲜、原来的斯大林、古巴都是信息封锁互联网。现在互联网时代来了，现在美国和西方和疫苗灾难病毒就是因为Facebook、谷歌这些人控制着所有的媒体。
 
-这完全是一场可避免的悲剧，如果斯科特在慈悲医院能得到有效的治疗，而非因未打疫苗遭受虐待，如果斯科特能早点离开慈悲医院转到德州医院，他不会这样悲惨离世。
+接下来必须诞生新的真相，也就是媒体平台，你才能干掉达沃斯党，这两件事咱都在干，就你们在干。这两样事人决定谁上太空，这两样事会告诉你一定在我们有生之年你会得到以下三个答案：有没有星外人？你一定很快能得到，你人都到外星去了，你想想你咋会知道没有外星人，一定很快会知道；
 
-* * *
+第二个，人到底是哪儿来的，是不是猴子变的？人死了到底灵魂那35克去哪儿了？人绝对是给你答案，人是来自于哪里，去向哪里，绝对告诉你，人是不生不灭的，你会看到一个另一个星空另一个维度的自己，还有你的亲人还有你的朋友，所以别作孽；
 
-参考资料：
+第三个答案，毫无质疑，一点都不用怀疑，未来的人类真正的不是人类之间互相斗争，互相奴役，人类是走向浩瀚的天空，和外星人去争夺，地球的厮杀到此为止，新中国联邦带来正道主义，带来真相。
 
-- Avoidable Tragedy: Scott Quiner Dies Due To Maltreatment At Mercy Hospital
-JANUARY 22, 2022
-[https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/](https://www.redvoicemedia.com/2022/01/avoidable-tragedy-scott-quiner-dies-due-to-maltreatment-at-mercy-hospital/)
+字幕来源：[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
+编辑整理：Jacques；
 
-- Stew Peters’ Viewers Create Temporary Victory In Scott Quiner Case- Mercy Hospital Ordered To Not Kill Him
-JANUARY 13, 2022
-[https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/](https://www.redvoicemedia.com/2022/01/stew-peters-viewers-create-temporary-victory-in-scott-quiner-case-mercy-hospital-ordered-to-not-kill-him/)
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
 
-文章观点仅代表作者个人，与gnews平台无关
+G-News发布：小满；
 
-作者：洛杉矶盘古农场 — 郭友（文苏）
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

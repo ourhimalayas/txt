@@ -2,40 +2,26 @@
 ---
 
 
-## 美国国务院敦促美国公民避开俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1905943/)
+## 西安封城解除 北京感染扩大
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906276/)
 
-#### **【雅典娜快讯】。紧贴时代脉搏**
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-22.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.axios.com%2F8xxrx5n0kePgmNn3zlVeCtGOZYg%3D%2F0x216%3A5760x3456%2F1920x1080%2F2022%2F01%2F22%2F1642875547782.jpg&amp;imgrefurl=https%3A%2F%2Fwww.axios.com%2Fbeijing-china-winter-olympics-covid-19-pand)
+【日本雅虎新闻】中国陕西省省会西安市1月24日宣布，将解除已为期一个月的防止中共病毒（新型冠状病毒）传播而对公民的一切行动限制，使生产活动和生活正常化。
 
-整理报道：文扬
-编辑：文泓
+实际上从上个月23日开始的对一个人口约1300万的大城市封城，在一个月后首次解除。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/E8R84KRFSL04RC964E.png)图片来源：ATN News
+自上月9日以来，西安市已有2000多人感染。根据中国打破感染链的“零感染”政策，市政府决定封锁这座城市。然而，一名在封锁期间被医院拒绝的孕妇死亡的悲惨事件更增大了公众的不满情绪。自本月21日以来新增感染人数为零，提前了封锁解除的预定时间。
 
+另一方面，在中国，河南省郑州市仍在继续限制行动，感染在首都北京继续蔓延，而下月4日冬奥会即将开幕。自本月15日以来，北京已有50多人感染中共病毒（新冠病毒）。 23日，政府要求已购买感冒药和退烧药的市民在72小时内进行PCR检测。 全市高度警戒状态。
 
-当地时间1月24日，据RT电视台报道，美国国务院周日表示，由于目前的乌克兰危机、新冠疫情以及可能的“俄罗斯政府安全官员的骚扰”等原因，美国人应该避免去俄罗斯访问旅行。
+信息来源：
 
-该机构发布了“请勿旅行”的咨询信息，并指出（届时）美国政府“提供常规或紧急服务”的能力受到严重限制。
+[西安の都市封鎖、1カ月ぶり解除　北京は感染拡大続く　中国](https://news.yahoo.co.jp/articles/3a0988e0172056307f47bbecc570e55b00dab20f)
 
-国务院的指导意见指出：“由于俄罗斯在与乌克兰接壤的边境地区加强了军事存在并正在进行军事演习，正在当地或考虑前往紧邻乌克兰的俄罗斯联邦地区的美国公民应该知道，该边境地区的局势是不可预测的，紧张局势正在加剧”。该意见还指出存在恐怖主义、骚扰和“当地任意执法”的潜在风险。
-
-由于俄罗斯军事行动和新冠疫情威胁增加，华盛顿还将乌克兰列入“禁止旅行”名单。美国外交官的家属已被勒令离开乌克兰，而一些使馆工作人员被授权在“自愿”的基础上离开。
-
-这次美国的警告，是在俄罗斯和乌克兰之间的紧张局势仍处于历史高位时发出的。最近几个月，西方媒体和政治家指责莫斯科在与乌克兰的边界上集中了军队和军事装备，据悉是为了在不久的将来发动进攻。
-
-克里姆林宫一再否认这些说法，称俄罗斯只是在其境内调动其武装力量，有关攻击的报道毫无根据。
-
-原文链接： [Washington urges US citizens to avoid Russia — RT Russia & Former Soviet Union](https://www.rt.com/russia/547062-washington-urges-avoid-traveling-moscow/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

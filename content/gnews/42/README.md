@@ -2,44 +2,27 @@
 ---
 
 
-## 有声|新罕布什尔州寻求立法将伊维菌素作为中共病毒的替代疗法
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1905708/)
+## 宇宙无限大 地球一粒沙 彭帅在哪里？
+` 帕米尔高原水` [轉載自GNews](https://gnews.org/zh-hans/1905906/)
 
-配音：香草山健身部 – 玫瑰园
+作者：Aiolis
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/112203-1.jpg)
 
+图片来自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+宇宙无限大，地球一粒沙是2018年张高丽迫使彭帅与其发生性关系而讲的话，七哥直播中曾透露为了控制彭帅，中共动用国家力量派出多路人马逼迫彭帅做符合保护名为 “国家领导人” 实则畜生不如的老杂毛们的安全及利益的所谓 “思想工作”，软硬兼施，冻结银行卡等各种措施，这些都在路上。
 
+在中共国有很多的张高丽，更有无数的彭帅如行尸走肉一般的活着，随时处于可能被消失的境地。
 
+1月23日澳大利亚公开赛的观众中亲彭帅的粉丝穿着 “彭帅在哪里” 的衣服，遭到阻拦，同时澳大利亚网球协会告诉ESPN，[“根据我们的门票条件，我们不允许商业或政治服装、横幅或标志。” “ 彭帅的安全是我们最关心的问题。我们继续与WTA和全球网球界合作，寻求更清楚地了解她的处境，并将尽我们所能确保她的福祉。”](https://twitter.com/MattWalshMedia/status/1485052235251957760?s=20)
 
-1月19日，美国众议院卫生、公众服务和老年事务委员会草拟一项法案，新罕布什尔州有望成为美国第一个批准将伊维菌素作为中共病毒保护性治疗的州。
+可以看出澳大利亚网球协会是用政治的官话应对真正关心彭帅的粉丝或者说真正关心彭帅的人，非常简单的一个道理，要找到彭帅，只能找中共，这事爆料革命给出了答案。合作方是否是CCP的渗透一方，也未可知。而当观众从生命的角度，从人性的角度去寻找彭帅要知道她在哪里，这时澳大利亚网球协会以干涉政治为由发出各种阻挠，和CCP一个尿性，丧失人性和关怀，这是网球运动的耻辱，这些服务政治的官员，毫无对生命的尊重，更无对运动精神的捍卫，很难说他们不是BGY后的笑话！
 
-新罕布什尔州法案的主要发起人表示，她希望稍加修正的版本能够获得共和党多数派委员会的足够票数，来得到众议院批准。 目前，众议院已经对其他与中共病毒有关的法案表示了支持，包括在全州范围内禁止政府和私人实施与该病毒有关的强制措施。
+参考链接: 
+[https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared](https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared)
 
-神经重症监护医生保罗·马里克博士引用世界卫生组织的数据指出，自伊维菌素作为一种抗寄生虫药物以来，已经向人类发放了37亿剂，伊维菌素是这个星球上最安全的药物之一。 目前，人用伊维菌素已经在79个国家被批准用于治疗中共病毒。
-
-原文链接：[新罕布什尔州寻求立法将伊维菌素作为中共病毒的替代疗法](https://gnews.org/zh-hans/1901680/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+发稿：*Hong*
 
  
 

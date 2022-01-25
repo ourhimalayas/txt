@@ -2,31 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月24日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1906199/)
+## 中共将开动宣传机器把无观众的冬奥会说成是在网络上有12亿人看的巨大成功的奥运会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1906350/)
 
-作者：香草山翻译部
+撰稿：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+1月24日，文贵先生在大直播上爆料，中共将开动宣传机器把没有观众的北京冬奥会，说成是在网络上有12亿人看的巨大成功的奥运会。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-25-at-12.02.17.jpeg)
+郭先生说，中共为了显示成功举办2022年北京冬奥会，虽然没有现场观众观看，但他们会报道在网络上超过12亿人次观看了本次冬奥会，而且点赞数是60%~70%，甚至是80%。
 
+另外，中共也会解释在网络上取得巨大成功的原因。由于病毒扩散、接种疫苗才能进入会场作为前提条件以及西方反华势力搞破坏等原因，国外的很多赞助商家和转播公司都没有办法到达现场宣传和转播，反而在社交媒体上给北京冬奥会带来了巨大的关注量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-2.png)
-校对：Stay文苑
+最后，中共也会报道一系列国外支持北京冬奥会的采访。中共现在已经安排好派记者到巴基斯坦、古巴、阿富汗、法国、德国以及加拿大这些被中共收买的国家，到时这些记者就会采访华人或者（都是安排好的）路人甲乙丙丁，然后他们就会说：“我看了北京冬奥会了，办得太好了！你们（中共）为了防止病毒，安排的无观众赛事，做得太好了。”
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ef520828a108147c6209ec)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息来源：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
 
  
 

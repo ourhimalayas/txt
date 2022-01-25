@@ -2,38 +2,41 @@
 ---
 
 
-## 魁北克法院判决：母亲单方面没有权利阻止未成年子女接种疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1906462/)
+## 澳州网球协会禁止支持彭帅的标语在澳网公开赛期间出现
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906573/)
 
-2022-01-24
+![China's Peng Shuai](https://i.guim.co.uk/img/media/fd0142968cfcdb4f98c7c9497250af3b5a394fa1/0_49_6000_3601/master/6000.jpg?width=465&amp;quality=45&amp;auto=format&amp;fit=max&amp;dpr=2&amp;s=675f48e1ce5443fcf7e6175b39ae2871)彭帅（资料图）
+来自《卫报》网站2022年01月23日的报道，尽管要求在墨尔本公园的球迷脱下T恤和一条印有“彭帅在哪里”的横幅，澳大利亚网球协会依然坚称彭帅的安全是其“首要关注的问题”。
+澳网选手继续对这位中共国网球运动员的健康表示关注，彭帅在11月初曾指控一名中共高级官员对其实施性侵。但赛事官员没收了他们认为含有政治言论的材料。
+本周末，布里斯班活动家德鲁·帕夫洛(Drew Pavlou)在Twitter上发布了一段视频，视频显示保安人员和维多利亚州警察正在接触球场观众。
+这段视频的主角是莫炽韬(Max Mok)，一位来自香港的泛民主派活动人士，他最近宣布，打算在今年的联邦选举中竞选墨尔本奇泽姆选区的边缘席位，他和一名观众与澳网的一名保安人员交谈，后者没收了一条横幅。
+这名保安人员还要求这两人脱下他们的T恤，在T恤的正面“通缉”一词下面是彭帅的照片。T恤背面印有“彭帅在哪里？”的字样。莫炽韬询问没收的原因，一名警察被叫来解释说，这些材料违反了澳网禁止政治言论的政策。该警官说：“我不是说你不能有这些观点，但澳大利亚网球协会制定了这里的规则。”澳大利亚网球协会在周日证实了这一情况。
+“根据我们的入场券条款，我们不允许有商业或政治性的服装、横幅或标志。”澳大利亚网球协会的一位发言人告诉澳大利亚卫报，“彭帅的安全是我们最关心的问题。我们继续与女子网球协会(WTA)和全球网球界合作，寻求更多关于她的情况，并将尽我们所能确保她的健康。”
+鉴于澳网的主要商业伙伴之一是中共国高端白酒品牌国窖1573，澳大利亚管理机构发现自己处于一种两边不讨好的状态。相比之下，WTA一直坚持其立场，即2022年不会在中共国举办任何赛事。其主席兼首席执行官史蒂夫·西蒙(Steve Simon)表示，WTA将“原则置于利润之上”，这意味着WTA准备放弃其年度收入的很大一部分，这些收入来自与这个全球超级大国的交易。
+帕夫洛在推特上说，他“试图通过电话与警察理论”，在视频中，可以看到警察用免提与某人交谈。此后，帕夫洛建立了一个筹款页面来筹集资金，以印制更多的T恤衫，在女子决赛期间免费发放。该页面在24小时内筹集了6800美元，并承诺“尽可能搞个大动作”。网页中说：“可悲的是，对支持人权和基本的正义，澳大利亚网球协会没有采取坚定的立场。”
+“事实上，澳大利亚网球协会在2022年澳大利亚网球公开赛上报警人权活动人士，只是因为他们穿着衬衫问了大坂直美(Naomi Osaka)、塞雷娜·威廉姆斯(Serena Williams)和全世界球迷都问过的问题：‘彭帅在哪里？’。”
+大坂直美上周在退出公开赛前重申了这一立场，称她对WTA处理这一问题的方式感到“自豪”。大坂直美说：“如果我处于她的位置，我也会希望人们关心我。我想象自己站在她的立场上，那样，这就有点可怕了。但你想发出自己的声音，你希望人们能提出疑问。”
+WTA球员委员会的成员维多利亚·阿扎伦卡(Victoria Azarenka)说，没有直接听到彭帅的消息。阿扎伦卡说:“在与彭帅的接触方面并没有取得太大的进展，尽管从我们这边来说，我们将继续尽一切努力以确保她是安全的，以确保她感到自在。”“希望我们能在某个时候听到她本人的消息。我想这就是目标，现在的主要目标。”
+阿什莉·巴蒂(Ash Barty)也被问及有关情况，她说“我们都在关注她的人身安全”。 “我们都希望她平安。”这位澳大利亚世界第一的球员说，“我们希望她没事。希望没多久，我们就能看到她回到球场。”
+**简评：**
+“宇宙无限大，地球是一粒沙”，听起来多么有哲理的一句话。却被中共前副总理张高丽用来把自己伪装成哲学家，用来欺骗比小他40岁的网球运动员彭帅与他谈恋爱。中共的官员到底能有多变态，我们普通人就是想破头也想不到的。澳网因与中共国高端白酒品牌国窖1573有合作关系，因此在彭帅性侵这件事情上进退维谷。这就是中共蓝金黄的效果，用钱封住你的嘴。然而，网球界的其他运动员能在这个时候公开表态，支持彭帅并担忧她的人身安全，这种行为难能可贵，人性的光辉也因此得到绽放，澳网公开赛的事件说明这个世界仍然有正义存在，不是所有人都能被共产党用金钱收买。
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C0@AFOB7Y@JSPPD.png)图片来源：蒙特利尔日报（2022 年 1 月 24 日）
-## 母亲单方面没有权利阻止她的未成年子女接种疫苗
+新闻链接: [https://www.theguardian.com/sport/2022/jan/23/tennis-australia-says-peng-shuais-safety-its-primary-concern-despite-banning-t-shirtssupporting-chinese-player](https://www.theguardian.com/sport/2022/jan/23/tennis-australia-says-peng-shuais-safety-its-primary-concern-despite-banning-t-shirtssupporting-chinese-player)
 
-LA PRESSE和蒙特利尔日报（2022 年 1 月 24 日）报道，魁北克省德拉蒙德维尔市（Drummondville），法院就父母对接种 COVID-1 疫苗的分歧作出了新的的裁决，母亲单方面没有权利阻止她的未成年子女接种疫苗。
+翻译/简评: kkoto(芬兰大灰狼)
 
-这位母亲，相信针对 COVID-19 的疫苗可能包含一个电子“芯片”，并且是由“流产胎儿的细胞”制成的，这位阴谋论的母亲，还认为接种疫苗是“反人类罪”。
+PR:Harvey（叶知秋）
 
-法院就父母对接种 COVID-1 疫苗的分歧作出了这样的裁决，这位母亲部分地失去了她对孩子的做为母亲的权力，这位母亲不能阻止她的未成年（14 岁和 9 岁）女儿接种疫苗，孩子的父亲可以单独做主让孩子接种疫苗，这让父亲感到很欣慰。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/C5NHKR3K1X1XPRB90.png)图片来源：蒙特利尔日报，图片显示法官判决书的部分内容。图片中部分文字显示，法官指出：“她（这位母亲）声称（注射）疫苗是一种‘实验性注射’，（注射疫苗）可以使她的女儿（成年后）不能生育” 。
-魁北克省，德拉蒙德维尔市（Drummondville），法官，史蒂夫·J·莱姆尼茨（Steve J. Reimnitz）裁定并驳回这位母亲的要求。“夫人（这位母亲）可以坚持她想要的，但是法院更愿意遵循（魁北克省）公共卫生当局的建议”，法官说。
+* * *
 
-法官最后说：“尽快遵守（魁北克省）公共卫生部提议的疫苗（接种措施）来保护孩子，这符合孩子的最大利益”。
-
-本月中旬，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章还报道了魁北克省第一例剥夺未接种疫苗父母探访子女的权力的判决。报道称，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。详细内容刊载于题为《[魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](https://gnews.org/zh-hans/1864608/)》的文章中。 文章编译及评论人提醒读者注意并仔细品味一下法官的这句话，“…法院更愿意遵循（魁北克省）公共卫生当局的建议”
-
-**参考资料**：
-
-1. LA PRESSE（2022 年 1 月 24 日），Une mère complotiste ne peut empêcher ses filles d’être vaccinées，[https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php](https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php)
-2. 蒙特利尔日报，Le Journal De Montreal，（2022 年 1 月 24 日），Contre la vaccination de ses enfants: une mère déboutée par le tribunal，[https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal](https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal%20)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：LILY
+编辑：【英国伦敦喜庄园编辑部】
 
-发布：肥鯮
-
-校对：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

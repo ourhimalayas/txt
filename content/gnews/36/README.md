@@ -2,27 +2,41 @@
 ---
 
 
-## 宇宙无限大 地球一粒沙 彭帅在哪里？
-` 帕米尔高原水` [轉載自GNews](https://gnews.org/zh-hans/1905906/)
+## 谷歌在新的诉讼案中被指控“侵犯”用户隐私
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906252/)
 
-作者：Aiolis
+**翻译：文扬**
+**编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/112203-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/谷歌.png)图片来源：Willie B. Thomas/Getty
 
-图片来自网络
 
-宇宙无限大，地球一粒沙是2018年张高丽迫使彭帅与其发生性关系而讲的话，七哥直播中曾透露为了控制彭帅，中共动用国家力量派出多路人马逼迫彭帅做符合保护名为 “国家领导人” 实则畜生不如的老杂毛们的安全及利益的所谓 “思想工作”，软硬兼施，冻结银行卡等各种措施，这些都在路上。
+三个州和华盛顿特区的总检察长称：谷歌作为科技巨头，使用了“欺骗性和不公平”的做法。
 
-在中共国有很多的张高丽，更有无数的彭帅如行尸走肉一般的活着，随时处于可能被消失的境地。
+德克萨斯州、印第安纳州、华盛顿州和哥伦比亚特区的总检察长已对谷歌提起诉讼，称其在获取用户的位置数据时采用了 “欺骗性和不公平 “的做法。
 
-1月23日澳大利亚公开赛的观众中亲彭帅的粉丝穿着 “彭帅在哪里” 的衣服，遭到阻拦，同时澳大利亚网球协会告诉ESPN，[“根据我们的门票条件，我们不允许商业或政治服装、横幅或标志。” “ 彭帅的安全是我们最关心的问题。我们继续与WTA和全球网球界合作，寻求更清楚地了解她的处境，并将尽我们所能确保她的福祉。”](https://twitter.com/MattWalshMedia/status/1485052235251957760?s=20)
+哥伦比亚特区总检察长卡尔·拉辛（Karl A. Racine）周一在一份声明中宣布，该诉讼旨在结束谷歌“非法使用‘黑暗模式’”，并“收回从位置数据中获得的利润”。
 
-可以看出澳大利亚网球协会是用政治的官话应对真正关心彭帅的粉丝或者说真正关心彭帅的人，非常简单的一个道理，要找到彭帅，只能找中共，这事爆料革命给出了答案。合作方是否是CCP的渗透一方，也未可知。而当观众从生命的角度，从人性的角度去寻找彭帅要知道她在哪里，这时澳大利亚网球协会以干涉政治为由发出各种阻挠，和CCP一个尿性，丧失人性和关怀，这是网球运动的耻辱，这些服务政治的官员，毫无对生命的尊重，更无对运动精神的捍卫，很难说他们不是BGY后的笑话！
+拉辛称，自2014年以来，无论用户的隐私设置如何，谷歌都在调查用户的信息，造成一种数据没有被追踪的欺骗性假象。诉讼称，如果谷歌用户关闭了他们的位置数据，他们就会收到通知，试图诱使他们再次分享这些数据。
 
-参考链接: 
-[https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared](https://justthenews.com/world/asia/australian-open-tells-fans-change-shirts-supporting-peng-shuai-tennis-star-disappeared)
+诉讼指出：“通过反复‘催促’用户启用谷歌账户设置，谷歌增加了用户无意中或出于沮丧而启用该设置的机会。”
 
-发稿：*Hong*
+它还指责这家科技公司对某些隐私设置和更新进行了“误导、模糊和不完整的描述”，导致许多人在不知情的情况下分享数据。
+
+总检察长写道，这些做法“损害了希望保护其敏感位置信息的消费者”免受谷歌及其广告公司的侵害。
+
+谷歌否认了这些指控，称该诉讼提出了 “关于我们设置的不准确的主张和过时的论断”。他们承诺将对这些指控进行 “大力 ”辩护。
+
+原文链接： [Google accused in new lawsuit of ‘invading’ user privacy — RT World News](https://www.rt.com/news/547229-google-lawsuit-location-data/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

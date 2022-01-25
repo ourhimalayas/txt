@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|世卫组织建议取消国际旅行疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1905750/)
+## 日本多措并举大力推动量子技术国家战略实施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906206/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-1月19日，世界卫生组织发布了1月13日召开的中共病毒大流行紧急委员会临时会议的声明。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-370.jpg)[图片来源](https://www.groundstation.space/opportunities-in-horizon-europe-for-govsatcom-quantum-and-ai/)
+1月24日，日本政府宣布了一项政策，从战略上鼓励产业界、学术界和政府合作使用量子技术。 政府将考虑对需要长期投资研发的公司，以及引进量子技术的公司提供税收优惠，以刺激私人投资。
 
-声明中提出了世卫组织给缔约国的11项临时建议，其中第六条为“赞成解除或放宽国际旅行禁令”，第七条为“赞成国际旅行不需要中共病毒疫苗接种证明”。即世卫组织至少在建议取消国际旅行中的疫苗护照了。
+到目前为止，日本在量子技术方面主要侧重于研究和开发，设备成本和传统观念阻碍了量子技术的广泛采用，中国有3074项与量子技术有关的专利，美国有1557项，而日本的专利数量则徘徊在750项。
 
-分析人士认为，尽管还不明确世卫组织此举意图何在，但这个建议至少对受到它影响的很多国家来说，在取消疫苗强制方面，还是有积极作用的。
+中美等国将量子技术视为与国家安全直接相关的重要技术，都在由政府主导并扶持研究、开发和商业化。鉴于此，日本修改国家战略将量子技术定位到关系国家安全的高度，提出要拥有量子技术。
 
-原文链接：[世卫组织建议取消国际旅行疫苗护照](https://gnews.org/zh-hans/1901922/)
+计划扩大对量子技术的引进，鼓励企业参与，私人投资，为初创企业提供基础技术，将专注于开发更多量子技术在安全等领域的应用，以加强经济安全和工业竞争力。
 
-音频处理/发稿：Daxia
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+[政府、量子技術のイノベーション戦略見直し 税制優遇などで民間投資促す](https://news.yahoo.co.jp/articles/82178646de6fa41f9a27eaf22aff5e4271263730)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

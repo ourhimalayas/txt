@@ -2,38 +2,48 @@
 ---
 
 
-## 脸书提供的免费在线服务竟通过移动运营商收费
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1906392/)
+## 中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906471/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-整理/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-25-上午7.47.18.png)图片来源：雅典娜设计组
+作者：纽约香草山教育部—Noemi
 
 
-根据《CNET》1月24日报道，脸书（Facebook）的免费互联网服务五年多前在发展中国家和社会经济地位低下的地区推出，为人们提供免费使用一些在线服务。但据《华尔街日报》报道，许多人在免费模式下使用应用程序时，被其移动运营商收取少量的数据使用费。在截至2021年7月的一年中，每月总计收取达数百万美元。
 
-据《华尔街日报》周一援引公司内部文件报道，Meta公司去年就注意到了这个问题，在10月的一份备忘录中称其违反了透明度原则。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-该问题在内部文件中被描述为“当用户处于免费模式时，他们相信所使用的数据是由其运营商网络覆盖的，尽管这些用户实际上是自己为数据付费”。
 
-此前，脸书在2016年因其在印度的免费互联网服务而受到批评，当时互联网权利团体表示，免费基础网络计划（Free Basics）违反了网络中立性原则，只提供了“部分互联网访问权限”。
 
-“如果你认为访问互联网是一项权利，就像获得医疗保健和清洁饮用水一样，”报道称，“那么脸书应该支持每个人都能以可承受的价格访问整个互联网，而不是只访问那些脸书或其合作伙伴认为可以接受的服务。”
+当地时间1月22日，中共国知名电影发行人赵军突发脑淤血去世，年仅63岁。离世前，其曾在微博上写下一首名为《跪下》的短诗来批判中共的极端防疫政策，并怒斥中共官员的“官僚主义”、“丧失人性”。
 
-当时，这项服务已经在36个国家提供，但一个月后， 脸书的免费基础网络计划在印度被切断。
+2021年6月1日，赵军先生曾在微博中发布与中共病毒疫苗接种相关的帖文，疑已接种两针剂以上的中共毒疫苗。此外，他还曾多次转发官方称灭活疫苗安全、有效的相关帖文。
 
-新闻链接：[Facebook free-internet users charged through their cellular carriers](https://www.cnet.com/tech/services-and-software/facebook-free-internet-users-reportedly-charged-through-their-cellular-carriers/)
+据了解，除赵军先生之外，中共国内近期还有多名影视圈名人突然离世，死因皆与心脑系统疾病相关。数位名人的猝然离世都再次印证了郭文贵先生此前的爆料信息——中共疫苗灾难才刚刚开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-6.jpg)
+参考信息：
+[墙内电影圈又一噩耗，著名电影发行人赵军突发脑淤血去世，年仅63岁，疑已接种两针以上中共毒疫苗……](https://www.gettr.com/post/pq913td6b8)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

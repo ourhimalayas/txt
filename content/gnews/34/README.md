@@ -2,31 +2,24 @@
 ---
 
 
-## 共军扰台，美国双航母进入南中国海域演习
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1906027/)
+## 美军8500名士兵做好紧急派遣乌克兰准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1906292/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-37.jpg)共军扰台，美国双航母进入南中国海域演习 网络图片
-据美国之音1月24日报道，美国国防部24日宣布，美国由卡尔文森号和亚伯拉罕林肯号两艘航母率领的两个航母战斗群已经驶入南中国海，将根据国际法，在国际水域举行反潜作战、空战以及海上拦截等演习。声明没有点名中共国，也没有提到解放军空军23日出动39架次的军机侵扰台湾防空识别区。一位美国海军高级将领表示，此举旨在安抚盟友并展现“抗衡恶意影响力”的决心。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-25_11-07-35.png)[图片来源](https://hk.news.yahoo.com/%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A8%93-8500%E5%90%8D%E7%BE%8E%E8%BB%8D%E5%A3%AB%E5%85%B5%E6%88%92%E5%82%99%E9%9A%A8%E6%99%82%E9%83%A8%E7%BD%B2-212940910.html)
+【日本雅虎新闻】美国国防部发言人柯比24日表示。北大西洋公约组织 (NATO) 决定对乌克兰紧张局势采取快速反应部队。拜登总统已指示约8500名美军做好紧急派遣准备。包括美国本土的战斗、后勤支援、侦察和运输单位。
 
-南中国海近年来成为美中对抗的一个重要地点。南中国海是世界上最繁忙的商业水道，海底拥有丰富的油气资源。中共国声称拥有南中国海大部分水域的主权，并且在南沙海域填海造岛，在岛上铺设战机跑道并部署武器装备。美国海军在南中国海进行例行的“自由航行”作业，并进入中共国控制的岛礁12海里之内，挑战北京过分的主权声索。
+拜登先生将于24日与欧洲国家领导人举行视频电话会议，讨论如何应对乌克兰局势。
 
-中共在南中国海持续扩张，对台湾持续恐吓，邻近国家都处在中共的威胁中，甚至美国的全球战略防御计划也受到影响。美国拥有世界上数量最多、威力最强大的航母战斗群，但是双航母战斗群同时行动或在同一海域演习或部署并不常见，包括在台湾周边海域和南中国海。在美国的实力面前，中共的秀肌肉还能秀到几时呢？
+在新闻发布会上，柯比先生对部署在乌克兰和邻国白俄罗斯边境的俄罗斯军队表示担忧，他说，“我们正在继续加强我们的军队，规模正在扩大。”
 
-新闻参考链接：[https://www.voachinese.com/a/two-US-carriers-enter-South-China-Sea-to-counter-malign-influence-20220124/6409941.html](https://www.voachinese.com/a/two-US-carriers-enter-South-China-Sea-to-counter-malign-influence-20220124/6409941.html)
+信息来源：
 
-* * *
+[米軍8500人派兵準備を命令　バイデン氏、ウクライナ対処で](https://news.yahoo.co.jp/articles/349577d91a5bb247324184b9bb37033c6af4ab8d)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
