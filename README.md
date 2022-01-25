@@ -15,89 +15,89 @@
 
 ---
 
-### [独家：1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [工作笔记2](/content/gnews/2/README.md)
- ` 纽约香草山MOS03`
-
-### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/3/README.md)
- ` 秘密翻译组-原创组`
-
-### [七哥谈“从来没见过照片”（2022-01-17摘录）](/content/gnews/4/README.md)
+### [七哥谈亲爱的兄弟姐妹（2022-01-17摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [喜币开创世界经济新局面](/content/gnews/5/README.md)
- ` 纽约香草山MOS02`
+### [七哥说“我特别的幸福，我真的庆幸，我用我家人的命和鲜血和自由和财富，换来让我的觉醒” （2022-01-17摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
 
-### [美国即将撤离驻北京大使馆](/content/gnews/6/README.md)
- ` 波士顿五月花农场`
+### [独家：1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [紧急公告:美国撤回驻北京大使馆，认定中共为非法政权](/content/gnews/7/README.md)
+### [工作笔记2](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [1月25日郭文贵先生重大公告要点（图片）](/content/gnews/8/README.md)
+### [七哥说“当你们有一天明白的时候，你就真知道灭共才是多么的幸福、多么的伟大。”（2022-01-17摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [七哥谈“从来没见过照片”（2022-01-17摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [喜币开创世界经济新局面](/content/gnews/8/README.md)
+ ` 纽约香草山MOS02`
+
+### [美国即将撤离驻北京大使馆](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [因被下调评级推特股价创一年新低](/content/gnews/9/README.md)
+### [紧急公告:美国撤回驻北京大使馆，认定中共为非法政权](/content/gnews/10/README.md)
+ ` 秘密翻译组-原创组`
+
+### [1月25日郭文贵先生重大公告要点（图片）](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
+
+### [因被下调评级推特股价创一年新低](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共高调纪念南巡讲话的真正动机](/content/gnews/10/README.md)
+### [有声|中共高调纪念南巡讲话的真正动机](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](/content/gnews/11/README.md)
+### [有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/12/README.md)
+### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/13/README.md)
+### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美日加强训练 中共军机扰台 台海再引关注](/content/gnews/14/README.md)
+### [有声|美日加强训练 中共军机扰台 台海再引关注](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [郭文贵 紧急直播摘要和音频：甜蜜蜜运动重大公告 2022.01.25](/content/gnews/15/README.md)
+### [郭文贵 紧急直播摘要和音频：甜蜜蜜运动重大公告 2022.01.25](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|北京冬奥会泡泡集中营是最无趣赛事](/content/gnews/16/README.md)
+### [有声|北京冬奥会泡泡集中营是最无趣赛事](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [小年涂鸦:CCP是毁掉人伦的人类公敌](/content/gnews/17/README.md)
+### [小年涂鸦:CCP是毁掉人伦的人类公敌](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [华盛顿反疫苗集会，著名医生表示永不妥协](/content/gnews/18/README.md)
+### [华盛顿反疫苗集会，著名医生表示永不妥协](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [1月25日文贵先生紧急直播重大公告要点](/content/gnews/19/README.md)
+### [1月25日文贵先生紧急直播重大公告要点](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [1/24/2022 文贵直播：“甜蜜蜜运动”重大成果 &#8211; 美国政府刚刚做出的重大历史决定“授权撤离”美驻北京大使馆](/content/gnews/20/README.md)
+### [1/24/2022 文贵直播：“甜蜜蜜运动”重大成果 &#8211; 美国政府刚刚做出的重大历史决定“授权撤离”美驻北京大使馆](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|中共雇佣欧美网红为冬奥形象](/content/gnews/21/README.md)
+### [有声|中共雇佣欧美网红为冬奥形象](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|回顾河南水灾幸存者被采访视频，周围维稳言论引群嘲](/content/gnews/22/README.md)
+### [有声|回顾河南水灾幸存者被采访视频，周围维稳言论引群嘲](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [数字货币硬钱包划时代](/content/gnews/23/README.md)
+### [数字货币硬钱包划时代](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大专家称不强制儿童接种疫苗](/content/gnews/24/README.md)
+### [加拿大专家称不强制儿童接种疫苗](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [1/25银河快讯:东芝半导体基地因地震暂停生产；日本300家幼儿园因疫情而关闭](/content/gnews/25/README.md)
+### [1/25银河快讯:东芝半导体基地因地震暂停生产；日本300家幼儿园因疫情而关闭](/content/gnews/28/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [有声|美国重量级众议员预测中共将在冬奥会后入侵台湾](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [1/24/2022 文贵直播：历史在重演，上天站在新中国联邦这边](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
-
-### [姚明再为中共站台，枉作炎黄子孙](/content/gnews/28/README.md)
- ` 波士顿五月花农场`
 
 ### [【信仰之声】你想得永生吗？](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
