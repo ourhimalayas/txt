@@ -2,31 +2,38 @@
 ---
 
 
-## 1.24大直播后记：新中国联邦人的救狗行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1908676/)
+## 有声|疫情和疫苗政策正严重破坏纽约医疗保健系统
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908974/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/20220125-2.jpg)
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据1月22日外媒消息，纽约市一家高级医院的官员表示，由奥密克戎变体引起的医护人员短缺，正在对包括太平间在内的医疗保健系统造成严重破坏。
+
+该区中部疗养院和医院组成的One Brooklyn Health首席执行官布朗，周五告诉记者，人员短缺问题继续困扰着整个医疗保健系统。一些医院甚至很难将尸体运送到太平间和殡仪馆。
+
+布朗说，目前，许多员工都感染了中共病毒，或者与生病的家人一起被隔离；加上纽约州的疫苗强制接种政策，使没有接种的医护人员无法参加工作，导致人们在急诊室的候诊时间变得更长，被安排住院需等待更久。
+
+原文链接：[疫情和疫苗政策正严重破坏纽约医疗保健系统](https://gnews.org/zh-hans/1903737/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-
-图片来源：雅典娜农场设计组
-
-
-整理：雅典娜速记组 
-编辑：Rianna
-
-最近战友们都在转发杨贝贝（伊莎贝尔.杨）在广西玉林狗肉节大快朵颐吃狗肉的视频，那个伊萨贝尔.杨咔嚓一下的手上去掰骨头， 就这种动作，然后吃狗肉还照那个狗。你知道这个动作有多大，知道有多少人咒骂她吗？看那个狗，我们不敢看这个视频，没有一个看完的，真的受不了。那些狗，任何一个狗看了都会哭，我们受不了，而那个狗的耳朵，那个狗要被吃掉。兄弟姐妹们，如果新中国联邦灭了共产党的第一件事，我们第一个要拯救的就是狗！真看不下去了！ 郭文贵说他能看得了杀人，但看不了狗被杀的感觉，太恐怖了。你到北朝鲜，金正恩当年就是这个帘子拉起来，一排在外边儿，6个女当兵的，把6个狗这个脖子、后腿吊下来，拿水呛死狗，这对郭先生来讲是个噩梦，比在清丰看守所，看到人被枪毙都恐怖。说实话他们这些行径在中国天天上演，伊萨贝尔.杨竟然亲自吃狗肉，那一幕太惨了。今天共产党干的事，在中国就是天天在杀狗吃狗肉，而且据说冬天吃狗肉很香，共产党还要跟某些人特别安排有狗肉的席，如果这些视频出来以后会是什么感觉。
-
-共产党那些刽子手就像伊萨贝尔·杨吃狗肉一样看着狗，这么可爱的狗杀掉，剥皮炖出来吃了。所以郭文贵说，新中国联邦一定要有信仰，他觉得我们当时那个新中国联邦宣言里边，保护动物这条真是太棒了。任何未来吃狗肉的人，绝对不能让你加入新中国联邦，对动物不尊敬，因为我们看到人对动物有多狠的时候，对人就会有多狠，这个残忍是逐渐培养起来的。
-
-资料来源：郭先生GTV和盖特直播视频。
-
-发布： 星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

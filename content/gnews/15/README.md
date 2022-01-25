@@ -2,20 +2,35 @@
 ---
 
 
-## 郭文貴氏、共産党を滅しに関わる重大な決断を緊急発表
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1908644/)
+## 有声|欧洲议会通过香港自由决议，首提检讨香港WTO资格
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908923/)
 
-投稿： 東京桜花団/待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-62.png)
-2022年1月25日北京時間午後12時、新中国連邦の生みの親である郭文貴氏は、GTVとGETTRの緊急生放送を通じて、重大発表をした。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月20日，欧洲议会以585票赞成、46票反对、41票弃权，通过关于侵犯香港基本自由的决议。基于香港自由被严重侵犯和剥夺的大量案例，决议提出了欧盟和成员国应采取的26条行动措施，覆盖政治、经济、外交、教育等领域。
 
-爆発革命の5年にわたるたゆまぬ努力の末、多くの国が2022年北京冬季オリンピックをボイコットする歴史的な瞬間に、バイデン米国大統領とブリンケン氏は北京の米国大使館を撤退させることを正式に北京政府に通告した。
+决议强烈谴责香港人权及言论自由恶化， 重申声援香港人民争取自由和民主的斗争。要求欧盟理事会制裁8名香港和中共官员，并针对涉侵犯香港人权的企业，另制定了一份清单。
 
-新生中国連盟を代表して、郭文貴がアメリカ大統領、バイデン氏、ブリンケン氏、それからアメリカの人々に心から感謝の意を表した。新中国連邦と米国は、永遠に、千年もの間、平和な関係を保つことを決意する意と表明した。
+原文链接：[欧洲议会通过香港自由决议，首提检讨香港WTO资格](https://gnews.org/zh-hans/1901924/)
 
-校正：東京桜花団/春华秋实
-アップロード：東京桜花団/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  

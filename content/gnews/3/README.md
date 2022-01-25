@@ -2,32 +2,45 @@
 ---
 
 
-## 有声|白宫正在为加密货币市场制定重大计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1908910/)
+## 有声|举办北京冬奥会、制造假雪 张家口将面对多重危害
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1909055/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据外媒1月23日报道，俄罗斯、英国、欧盟、美国，最近均在为加密货币市场提供更严厉的监管，此举已引起众多加密货币价格震荡。尽管如此，美国白宫正在为加密货币市场制定一项重大计划。
+配音：香草山巡管部– 文凯琳
 
-消息人士称，美国概述加密货币行业风险和机遇的文件，预计于2022年2月发布。彼时，关于加密货币的行政命令，将使拜登政府在行业内成为焦点。
 
-据悉，该计划是在美国证券监管机构，商品监管机构，和美国财政部等机构的指导下进行的。下一阶段，金融稳定监督委员会，和美国商务部等其他机构，也将可能参与进来。
-美国SEC主席说，加密交易所将受到更多监管，同时，亦将其置于 “投资者保护职权范围” 之下。美联储数字货币可能已做好发行准备。
 
-文字版原文：[白宫正在为加密货币市场制定重大计划](https://gnews.org/zh-hans/1903768/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+据1月22日外国媒体消息，随着气候变化，降雪变少，人造雪已成为冬季奥运会的固定活动。但北京将是第一个完全依赖人造雪的冬奥会主办国。
+
+尽管世界多国也曾使用假雪举办奥运会，但北京冬奥会滑雪场地造雪所需的水资源要尽数来自张家口，而干旱的张家口地区本身已经不适合造雪，因为这一过程会损耗大量的水。该地区水资源一直非常紧缺，超过一半的张家口地区用水压力极大，当地人均水资源不到全国平均水平的五分之一。人工造雪后，该地区水资源将更加短缺。
+
+原文链接：[举办北京冬奥会、制造假雪 张家口将面对多重危害](https://gnews.org/zh-hans/1906631/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
