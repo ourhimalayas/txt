@@ -2,45 +2,39 @@
 ---
 
 
-## 中共内斗加剧，三前高干被同日除党籍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1909302/)
+## 有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1909306/)
 
-作者：纽约香草山 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月24日，中共中纪委及监察委网站公告，前中国银监会副主席蔡鄂生、前国家粮食局副局长徐鸣被开除党籍。 另外，前最高人民法院审判委员会委员孟祥被开除党籍及公职。 三人共同皆有的一项罪状是密谋权钱交易。
+配音：香草山健身部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-蔡鄂生是中共信托业的创始人之一，与王歧山、周小川关系密切，也是少数敢公开骂习近平的高干。据郭文贵先生早先的爆料信息，蔡鄂生也是中共金融帮在欧美等国通过虚假字画和艺术品贸易进行洗钱的策划和执行者。
+当地时间1月22日，中共国知名电影发行人赵军突发脑淤血去世，年仅63岁。离世前，其曾在微博上写下一首名为《跪下》的短诗来批判中共的极端防疫政策，并怒斥中共官员的“官僚主义”、“丧失人性”。
 
-徐鸣是前重庆市委书记薄熙来的旧部属，追随薄熙来多年。 是薄熙来治理重庆4年期间，唯一升任重庆市委常委的人。
+2021年6月1日，赵军先生曾在微博中发布与中共病毒疫苗接种相关的帖文，疑已接种两针剂以上的中共毒疫苗。此外，他还曾多次转发官方称灭活疫苗安全、有效的相关帖文。
 
-孟祥是中共最高法院院长周强一手提拔的亲信，两人关系密切。
+据了解，除赵军先生之外，中共国内近期还有多名影视圈名人突然离世，死因皆与心脑系统疾病相关。数位名人的猝然离世都再次印证了郭文贵先生此前的爆料信息——中共疫苗灾难才刚刚开始。
 
-上述三人是在2021年7月就被立案列入调察。 在中共二十大前的敏感时刻，习近平加强整肃清除其他中共内部派系势力。 中共高干人人皆腐败，权钱交易的罪名永远只是被拿来当作政治整肃异己的抓手。 中共内部派系斗争在二十大前将进入疯狂的保命、保权、保财阶段。
+原文链接：[中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](https://gnews.org/zh-hans/1906471/)
 
-当日，郭文贵先生在盖特文字中进一步揭示：“蔡锷生此人作恶多端，全因是王岐山为他撑腰！他曾公开喊话，只有对中国老百姓必须采取最严格的管理制度，才能保证党的统治！” 评论人士对此表示：善恶到头终有报，人间正道是沧桑。
+音频处理/发稿：Daxia
 
-参考链接：
-1）[中共一日打三虎 被指「退而不休」與熱衷迷信](https://www.cna.com.tw/news/acn/202201240212.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2）[郭先生0801XIII罵過習的蔡鄂生、周亮和任志強現在都被抓了](https://gnews.org/zh-hant/1440198/)
-3）[周強親信、最高法執行局局長孟祥被雙開(圖)](https://www.secretchina.com/news/b5/2022/01/24/995953.html)
-4）[薄熙來舊部 前中國糧食局副局長徐鳴退休後受查](https://www.cna.com.tw/news/acn/202107140059.aspx)
-5）[https://gettr.com/post/pq93wjae92](https://gettr.com/post/pq93wjae92)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：文特
-编辑：Zion文恩
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
  

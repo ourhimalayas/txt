@@ -2,31 +2,36 @@
 ---
 
 
-## 七哥谈亲爱的兄弟姐妹（2022-01-17摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1909533/)
+## MV版Hcoin To the Moon上线47天第30次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1909557/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+1/25/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线47天第30次位列匈牙利iTunes热门音乐视频榜榜首，第47次位列前三名
 
-来源：郭先生2022-01-17直播10:15:27摘录
+* * *
 
-哎呀，这个说这话的时候，真的是，当我每次说，亲爱的兄弟姐妹的时候，亲爱的兄弟姐妹这个词真的是特别的神圣。这我一看到谁家有姐姐、妹妹，我特别羡慕有姨、有姑姑，你说我一个没有姨、没有姑姑，没有兄弟，没有姐妹，这个我从小就到这个时候，我身边只有我的嫂子和我母亲是女的，还有我哥，我大哥的孩子侄女啊。所以说你看我们家八个孩子，说我对兄弟姐妹这个词，它有多么的深入。另外一个我没弟弟本来有弟弟，这个弟弟没了，有兄无弟了，我一生最大的悲哀。最大的悲剧就是我一生中从小到大，我都是在被怀疑被否定，穷困潦倒，极为贫乏的物质。我说我老给你洗澡说他很难理解，我说我从小生在了一个中国的东北，黑龙江有工业，辽宁有工业，中间一个二百五就是农不农工不工的最穷的东北三省就是吉林，又没文化，啥也没有，还去了一个叫吉林省磐石县，红旗岭镇大领子大队赵家沟村，你说就差把我放地球里边去了，就塞到这么一角落去，从山河出生到那里去，连个人走的路都没有，除了晚上的狼叫，白天的狐狸，连个地都没有。你说我出生了，我爹妈又养了八个孩子，没柴火，现在这冬天就是像在这么冷的时候，那我只能出去跑去，我在屋里会冻死我在外面冻死我，回到山东老家山东省鲁西是最穷的，山东省莘县古城镇舍利四乡，西曹营是中国最穷的山东省的鲁西县镇乡村，都是土墙，穷的我回家的时候，我得了痢疾病我连好几次拉裤子里边，我得在路上跑到沟里边把裤衩脱下来，光着屁股在河里洗洗再穿上，上学校去。就这么这种我的悲剧、悲惨，出生的，但我所有一生的幸运，所有的幸运就是从悲惨中长出来的，我特别我觉得 ，莲花说这个词我不敢当，但我看莲花说写莲花时我就特别喜欢，就是我的弟弟，我从开始张嘴改变了我家，但是我家为此付出太大，八弟的死亡，母亲的气死，哥哥几被抓，一家人被抓，而且我一次次给家里惹事，就是个不是省事的灯，就是我的所有的一切也来自于此，最后是我们家人的生命鲜血，和失去自由啊，纠正着我，没有让我离开我应该有的方向和目标，我认为我生来就是灭共的，没有任何事情让我这么快乐过，这么认真过。而且我从小的成长就是围绕两件事啊，就是与强者战斗。你看，我绝对是当地附近啊，就是所有的能打架的几乎全拜访完了，都是十五六岁十六岁，几乎全被我扫平。而且我打架之前，就现在你看到这个样子，就带着脚滑子啊，找地方的时候滑的我滑，脚滑的滑的倒滑什么滑，真是你要看我滑冰的，你就不敢相信啊，就是我能一天能滑的能几十里地，那时候没吃没喝的多冷啊，找到人打架就是脚滑子从脚上脱下来，绝对是不会超过三下对方肯定倒下，那被我打的人无数啊，没人在我面前厉害过。包括当地的什么维护树林为名，敲诈农民的，还有跟农民搞破鞋的被我抓走那揍的人多了去了。我一从生下来懂事就是匡扶正义，除罢安良，当地的所有的小人书，几个村的小人书，都是我看完了，看完我都送回去，我守信用，没有人借完人小人书给人家还的。我借完小人书都给人家还回去，因为我家买不起我都借人家的。我带着这些穷兄弟姐妹们啊，山上安营扎寨，是吧，抓鸡逮鹅啊，顿吃顿喝。所以我是当地的所有的传奇和希望，烧过山，烧过玉米地啊，也玉米地里边后来又重生是吧，成就了我的男人啊。从来当时就是我那个时候的成长， 和今天，我今天只是个放大版而已，从来没有觉得，这个旁边有任何人让我恐惧过，从来没害羞过，从来没有害怕过，从来没有觉得有对手过。更重要的事情我是在怀疑中长大，所有周围的人，当时丢东西没人找我的，知道郭七不会偷东西，但是着火了谁被打了，谁说蹲在茅屎坑里边被大粪给呼了一下子，谁家牛被给赶地里边，这事一定是郭七干的。这就只要出现这种事，就不管多远的人都是郭七干的。回到山东老家一样方圆几百里，只要听着摩托车响，只要说这个村里谁被打了，那这是郭文贵来了，就郭文贵来了，是不是。到今天啊，终于在地球上整出了动静，是吧，这个敢挑战邪恶势力，就是我们爆料革命。
+[【PDF 下载】Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+* * *
 
-**关注我们**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_118.jpg)
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[【PDF 下载】Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Tuesday-25-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

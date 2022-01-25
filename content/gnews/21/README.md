@@ -2,41 +2,37 @@
 ---
 
 
-## 有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1909306/)
+## 有声|中共高调纪念南巡讲话的真正动机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1909350/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在1月22日大直播中，郭文贵先生揭露，中共上海帮江曾王孟高调纪念邓小平南巡讲话的动机，在于寄希望踩急刹车以续命，突显了中共激烈的内斗和穷途末路的困境。
 
-当地时间1月22日，中共国知名电影发行人赵军突发脑淤血去世，年仅63岁。离世前，其曾在微博上写下一首名为《跪下》的短诗来批判中共的极端防疫政策，并怒斥中共官员的“官僚主义”、“丧失人性”。
 
-2021年6月1日，赵军先生曾在微博中发布与中共病毒疫苗接种相关的帖文，疑已接种两针剂以上的中共毒疫苗。此外，他还曾多次转发官方称灭活疫苗安全、有效的相关帖文。
+郭先生说，当时邓小平南巡，是在武昌、珠海和深圳。到珠海时，北京的军队已经部署完毕，不改革开放就抓人。邓小平南巡讲话，本质上是中共政治核心的一场重新布局、重新分配。陈云、宋平、姚依林、乔石，以及后来的江泽民、曾庆红、王岐山，借此时机进入了中共的权利核心集团。
 
-据了解，除赵军先生之外，中共国内近期还有多名影视圈名人突然离世，死因皆与心脑系统疾病相关。数位名人的猝然离世都再次印证了郭文贵先生此前的爆料信息——中共疫苗灾难才刚刚开始。
+南巡讲话后，中共从以毛泽东为核心的第一代领导集团，过渡到以邓小平为核心的第二代，而且，承认第三代的领导核心是江泽民。但是，习仲勋，作为最早提倡改革开放的人，却被排除在权利核心以外，从此没落。习近平因此一直记恨邓、江。
 
-原文链接：[中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](https://gnews.org/zh-hans/1906471/)
+习近平过去十年一直强调，南巡讲话和深圳改革开放是他父亲习仲勋的功劳。到现在，他反而完全违背其父，走向极左。
 
-音频处理/发稿：Daxia
+最后，郭先生强调，我们要认清，从十一大、十三大，再到二十大，中共走过极右路线，极左路线，以及称霸全球的野心之路，共产党已经没路走了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+文字版原文：[中共高调纪念南巡讲话的真正动机](https://gnews.org/zh-hans/1901396/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

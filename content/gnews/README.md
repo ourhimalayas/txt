@@ -15,79 +15,79 @@
 
 ---
 
-### [七哥说“你们能想象共产党在世界的黑手有多么黑暗。” （2022-01-17摘录）](/content/gnews/1/README.md)
+### [“恶意返乡”](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [七哥说“我们会上诉上诉上诉上诉”（2022-01-17摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [七哥谈PAG的案子（2022-01-17摘录）](/content/gnews/2/README.md)
+### [七哥谈美国和西方的媒体不是一般的关注（2022-01-17摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [七哥谈律师造假（2022-01-17摘录）](/content/gnews/3/README.md)
+### [七哥说“你们能想象共产党在世界的黑手有多么黑暗。” （2022-01-17摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [MV版Hcoin To the Moon上线47天第30次位列匈牙利iTunes热门MV榜首](/content/gnews/4/README.md)
+### [七哥谈PAG的案子（2022-01-17摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [七哥谈律师造假（2022-01-17摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [MV版Hcoin To the Moon上线47天第30次位列匈牙利iTunes热门MV榜首](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥说“我还真是相信命”（2022-01-17摘录）](/content/gnews/5/README.md)
+### [七哥说“我还真是相信命”（2022-01-17摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [2022年1月24日郭文贵先生直播全文字版](/content/gnews/6/README.md)
+### [2022年1月24日郭文贵先生直播全文字版](/content/gnews/9/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [七哥谈亲爱的兄弟姐妹（2022-01-17摘录）](/content/gnews/7/README.md)
+### [七哥谈亲爱的兄弟姐妹（2022-01-17摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [七哥说“我特别的幸福，我真的庆幸，我用我家人的命和鲜血和自由和财富，换来让我的觉醒” （2022-01-17摘录）](/content/gnews/8/README.md)
+### [七哥说“我特别的幸福，我真的庆幸，我用我家人的命和鲜血和自由和财富，换来让我的觉醒” （2022-01-17摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/9/README.md)
+### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [独家：1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！](/content/gnews/10/README.md)
+### [独家：1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [工作笔记2](/content/gnews/11/README.md)
+### [工作笔记2](/content/gnews/14/README.md)
  ` 纽约香草山MOS03`
 
-### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/12/README.md)
+### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥说“当你们有一天明白的时候，你就真知道灭共才是多么的幸福、多么的伟大。”（2022-01-17摘录）](/content/gnews/13/README.md)
+### [七哥说“当你们有一天明白的时候，你就真知道灭共才是多么的幸福、多么的伟大。”（2022-01-17摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [七哥谈“从来没见过照片”（2022-01-17摘录）](/content/gnews/14/README.md)
+### [七哥谈“从来没见过照片”（2022-01-17摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [喜币开创世界经济新局面](/content/gnews/15/README.md)
+### [喜币开创世界经济新局面](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [美国即将撤离驻北京大使馆](/content/gnews/16/README.md)
- ` 波士顿五月花农场`
-
-### [紧急公告:美国撤回驻北京大使馆，认定中共为非法政权](/content/gnews/17/README.md)
+### [紧急公告:美国撤回驻北京大使馆，认定中共为非法政权](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [1月25日郭文贵先生重大公告要点（图片）](/content/gnews/18/README.md)
- ` 波士顿五月花农场`
-
-### [因被下调评级推特股价创一年新低](/content/gnews/19/README.md)
+### [因被下调评级推特股价创一年新低](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共高调纪念南巡讲话的真正动机](/content/gnews/20/README.md)
+### [有声|中共高调纪念南巡讲话的真正动机](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](/content/gnews/21/README.md)
+### [有声|中共国又一知名电影人突发脑淤血去世 生前曾怒批中共式极端防疫](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/22/README.md)
+### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/23/README.md)
+### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美日加强训练 中共军机扰台 台海再引关注](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|北京冬奥会泡泡集中营是最无趣赛事](/content/gnews/25/README.md)
+### [有声|美日加强训练 中共军机扰台 台海再引关注](/content/gnews/25/README.md)
  ` MOSREC`
 
 ### [华盛顿反疫苗集会，著名医生表示永不妥协](/content/gnews/26/README.md)
