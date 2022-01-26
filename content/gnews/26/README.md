@@ -2,46 +2,37 @@
 ---
 
 
-## 为应对病毒爆发 日本将大部分地区置于准紧急状态
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910452/)
+## 有声|蓬佩奥国务卿呼吁建立威慑力以减少外部威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1910569/)
 
-作者：纽约香草山教育部 Naughty(文行)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+配音：香草山佛教部 – 李傻
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月23日，前国务卿蓬佩奥接受媒体采访，再次呼吁美国需要建立威慑力。在节目中，主持人担忧近期俄、中、伊朗举行的军演，中共侵扰台湾防空识别区，以及俄罗斯在乌克兰边界的屯兵，将造成各国对美国外交政策的不信任。
 
-据美联社24日报道，由于担心奥米炕病例激增会对医疗和教育系统产生严重影响，日本政府计划将该国大部分地区置于准紧急状态，并加强疫情管控措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-27.jpg)
-日本首相岸田文雄周一表示，除了已经实施类似限制的地区外，将在北部的北海道到日本西部的大阪和京都等另外 18 个县加强防病毒措施，该措施将持续到2月20日。岸田表示，在与包括健康专家在内的政府小组协商后，他将于周二正式宣布这些措施。
+对此，蓬佩奥表示，美国提振在国际上的威慑力是解决目前事态的唯一途径。他指出，各国都在密切关注美国政府的行为举止，而现任政府需要像川普政府一样作出“回应”，来树立美国的威慑力。同时他强调，“回应”的方式不一定是出兵引发战争，可以像川普政府斩首苏莱曼尼，以及提供武器援助等措施，来维护其他国家包括当下乌克兰的主权等措施。而最关键在于，本届政府是否有能力和决心，使用手中的各种工具。
 
-激增的感染病例已经开始使一些地区的医院、学校陷入瘫痪，另外还造成300多家托儿所停业。
+最后，蓬佩奥还在回覆中特别区分了中共领导人习近平和中国人民、台湾人民，称这两方都正在关注美国如何扮演领导角色。并且只有美国建立了威慑力，才能保证美国和世界的繁荣稳定，从根本上减少外部挑战的出现。
 
-日本政府已命令中共病毒检测试剂盒制造商提高产量，在一些检测试剂盒已用完的地区，卫生部表示，无需检测即可根据症状诊断中共病毒患者。
+文字版原文：[蓬佩奥国务卿呼吁建立威慑力以减少外部威胁](https://gnews.org/zh-hans/1906474/)
 
-该最新措施还要求餐馆在晚上 9 点之前关门，对大型公共活动也有一定限制。
-
-东京周一记录了 8,503 例新病例，是一周前的两倍。在全国范围内，报告了近 45,000 例病毒病例，累计约 200 万例，约 18,500 人死亡。
-
-新闻来源：[https://www.yahoo.com/news/japan-widen-virus-measures-boost-132035218.html](https://www.yahoo.com/news/japan-widen-virus-measures-boost-132035218.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
-
-编辑/校对/发稿：滚滚长江都是水
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
