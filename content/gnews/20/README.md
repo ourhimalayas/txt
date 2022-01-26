@@ -2,32 +2,47 @@
 ---
 
 
-## 【圆成原创】中共广开言路是政治作秀
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1910431/)
+## 为应对病毒爆发 日本将大部分地区置于准紧急状态
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910452/)
 
-**作者：面包飞上天**
+作者：纽约香草山教育部 Naughty(文行)
 
-最近，第一财经发布《2022“我向总理说句话”网友建言征集活动》，表面上看这是政府谦虚的向民众纳谏，多好的事情。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/E0AFFB2F-D9BB-41CF-8D3D-A6CE629BFF76.jpeg)图片来源：网络
-经济学者马光远微博账号被禁言
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3BA66FF0-9F4F-42D5-83A5-6ECA8B699AE8.jpeg)
-任泽平的微信公众号“泽平宏观”已经无法搜索到
 
-且不说这两位的经济观点，我也无意为他们做宣传。他们的微博被禁言的原因是：“此前频繁发布房价、生育角度建议”、“违反社区公约”。
 
-不是广开言路，欢迎大家提意见吗？怎么大V提建议就要被禁言呢？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
-**这是虚伪的纳谏，是一场彻头彻尾的政治作秀。**
 
-**编辑：LIL;Y**
 
-**发布：歪桑**
+据美联社24日报道，由于担心奥米炕病例激增会对医疗和教育系统产生严重影响，日本政府计划将该国大部分地区置于准紧急状态，并加强疫情管控措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-27.jpg)
+日本首相岸田文雄周一表示，除了已经实施类似限制的地区外，将在北部的北海道到日本西部的大阪和京都等另外 18 个县加强防病毒措施，该措施将持续到2月20日。岸田表示，在与包括健康专家在内的政府小组协商后，他将于周二正式宣布这些措施。
 
-20220125
+激增的感染病例已经开始使一些地区的医院、学校陷入瘫痪，另外还造成300多家托儿所停业。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+日本政府已命令中共病毒检测试剂盒制造商提高产量，在一些检测试剂盒已用完的地区，卫生部表示，无需检测即可根据症状诊断中共病毒患者。
+
+该最新措施还要求餐馆在晚上 9 点之前关门，对大型公共活动也有一定限制。
+
+东京周一记录了 8,503 例新病例，是一周前的两倍。在全国范围内，报告了近 45,000 例病毒病例，累计约 200 万例，约 18,500 人死亡。
+
+新闻来源：[https://www.yahoo.com/news/japan-widen-virus-measures-boost-132035218.html](https://www.yahoo.com/news/japan-widen-virus-measures-boost-132035218.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

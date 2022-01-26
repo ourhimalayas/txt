@@ -2,46 +2,31 @@
 ---
 
 
-## 蔡崇信以1亿8800万购买曼哈顿顶层公寓
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910372/)
+## 七哥谈共产党干的荒唐事（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1910400/)
 
-作者：MOS 柳是多水土透
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-17直播09:52:53摘录
 
+这个女的啊，这个律师啊，就是英国特务啊，李贞驹啊，李贞驹啊，你们不知道她是啥背景啊。你们说她的时候，我跟英国的军情处人 ，有一次见面的时候，他说你举例说明，在我们这里边渗透到啥程度，这都是2015年的事啊，2015年的事了都是，还没到2017年呢。我说例如有个叫李贞驹的啊，在北京俱乐部，就是我们的所谓叫中国城俱乐部，和你们的英国驻北京大使睡觉，全程被录像，包括那个浴缸的旁边下面的录像。结果他说‘：“啊，是吧，叫什么名字啊？” 我说: “李贞驹。” 他说：“她是什么背景？” 我说：“李贞驹家有一妹妹，是国家安全部第五处，第五处安全部五局。” 五局是很重要的啊，五局的里边一副局长，到今天他才抓住这个人，我就跟你讲一讲，就这个李贞驹这么牛。他问我，我们到2017年的时候，他们还问我，“我们这里有多少个像你说的李贞驹?” 我说: “英国大概有七八十个吧。” 我告诉你，BVI这个案子是意味着什么，2月2号不是审 BVI，2月2号是审船属于谁，我藐视法庭的事情，和船是谁。他就会牵扯到船的归属是个 BVI公司，他要把这个公司再给你判成说又是Miles Guo的，他就影响了 BVI的决策，BVI整个 BVI这个岛就四五个法官，而且大多数都来自于律师，而这个律师事务所最大的之一就叫APPLEBY，APPLEBY已经完全超过了Ed.Moss所做的，严重的违反职业道德，而且孙立军办案的人，告诉我们说：“七哥你可千万注意啊，BVI这个地方已经彻底被渗透，而且孙立军被审当中说郭文贵在PAG的官司当中会失去，BVI会全输，这我们要求就是全输。” 你看，你就不用想了，这就是这个结局，然后他把2月2号判完了，这个船是你的，公司是你的， 告诉郭文贵你得付钱，是吧 ，1.25亿的罚款，加上船，你不给我，我就可以把你Miles Guo，我判你刑，现在都是民事，我藐视法庭都是民事，没有刑事罪，他就可以判你刑事藐视法庭，就可以把你关起来，明白了吗？所以现在那个在巴哈马的李贞驹有多少？APPLEBY给了你答案，到现在都没受过法官惩罚，而且严格的盯着美国。美国现在马上20号就开庭，可怕吧，兄弟姐妹们。你们我都挡不住的敌人和蓝金黄，你们谁能挡得住？下一步找你大卫，我说你大卫犯强奸罪，强奸你老婆，在英国告你，在英国一定会立上的，为什么？有李贞驹等着你呢，把你老婆给绑架了，让你老婆说强奸她了，是不是？你俩孩子都不是你俩生的是不是，大卫强奸、我绑架我。 这事一点都没觉得笑话，塞普鲁斯岛抓的战友当中，其中一个战友，你知道抓出来的说的什么吗？说：因你在中国犯有强奸幼女罪，所以中共起诉你，我要把你抓起来。结果最后荒唐到什么，咱战友给说咱说：“我要要求看强奸幼女罪的证据。” “你回到中国去看去。” 最后这个人说，“你知道我是多大把肾切除的吗？我14岁把肾切除的，我27岁才有了一个孩子，你说我怎么强奸幼女？你检查我的病纪录。” 这共产党干这荒唐事，就不是一般的荒唐了，你觉得七哥挡不住，你觉得 BVI 谁能挡住？你觉得你们谁能挡住？李贞驹的事情那是九牛一毛都不算呐，兄弟啊，谢谢！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-2.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-近日，一位买家从亿万富翁对冲基金经理Daniel Och 手中，以近2倍价格，买下曼哈顿220 Central Park South 顶层公寓。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-49.png)图片来源：Yahoo!finance
-彭博社根据产权文件，披露了买家身份 – Blue Pool Capital。根据纽约州政府文件，Blue Pool从JP Morgan Chase获得了7150万美元的贷款后，用1.88亿美元（约12亿人民币），购置这栋2年前仅为0.93亿美元的物业。这家注册地在香港的资本公司，实际上是阿里巴巴联合创始人及NBA布鲁克林篮网老板蔡崇信的财富管理公司。 6个月前，蔡崇信同样花费$157,000,000，买下了该栋楼内60和61楼2套1层1户大平层，以及位于18楼的单间公寓。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-中央公园南220号公寓（220 Central Park South），由设计过费城美国革命博物馆以耶鲁大学学院建筑的大师Robert A. M. Stern Architects设计楼体，室内装潢由曾领导过自由女神像修复的设计师Thierry W. Despont 负责，被称为曼哈顿“亿万富豪的碉堡。
+Gettr 账号
 
-2020-2021年疫情期间，纽约市最贵的房产交易，前22名都来自于这栋物业。
-
-郭先生曾在近日直播中披露，蔡崇信购买的多个中央公园附近高价房产为替马云洗钱代持的交易。
-
-新闻来源：[https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html](https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html)
-
-[https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse](https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
