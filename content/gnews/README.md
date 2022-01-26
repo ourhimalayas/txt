@@ -15,106 +15,106 @@
 
 ---
 
-### [近20国要同美国授权撤离大使馆，为下一步重大行动提供法律支撑](/content/gnews/1/README.md)
- ` YALUN 亚伦`
-
-### [【#G时新闻】美卡车司机加入加拿大卡车司机大罢工](/content/gnews/2/README.md)
- ` G-时新闻`
-
-### [新中国联邦第一次重大公告](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [丹麦将在2月1日前取消所有疫情限制措施](/content/gnews/5/README.md)
- ` 华盛顿DC-Russian`
-
-### [七哥谈“大洗牌”（2022-01-21摘录）](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [美国国家安全官员审查阿里巴巴云服务](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [1/26/2022 文贵盖特：美国为何在这个时候授权撤离驻华大使馆？](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|中共称冬奥会外方人员中发现72例确诊病例](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [美日峰会共识高 安全与经济均抗衡中共](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大总理特鲁多对疫苗政策导致的供应链断裂毫无悔意，仍要继续推进强制疫苗](/content/gnews/11/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [1/26/2022 文贵盖特：今天是爆料革命5周年纪念日，为什么文贵当年在家人被抓的情况下仍坚持爆料？](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|美医生华盛顿反疫苗集会火力全开](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [阿尔伯塔省政府删除的数据显示，56% 的“未接种疫苗”的新冠病毒死亡实际上是新接种疫苗的死亡](/content/gnews/14/README.md)
- ` 纽约香草山MOS02`
-
-### [有声|欧洲议员就强制疫苗怒斥马克龙](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [JAMA证实接种两剂疫苗的年轻男性患心肌炎风险最高](/content/gnews/16/README.md)
- ` 华盛顿DC-Russian`
-
-### [参议员科顿：美国应该像支持乌克兰一样支持台湾](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [扬帆每日速递 ——2022年1月26日版（1）](/content/gnews/18/README.md)
- ` 温哥华扬帆农场`
-
-### [中共宣传机构对美国体育节目主持人进行谩骂和攻击](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [新冠疫苗：医学证实青少年男性患心肌炎和心包炎风险最高](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/21/README.md)
- ` MayflowerBiz`
-
-### [【圆成原创】在中共治理下，良知经济学者只能郁郁而终](/content/gnews/22/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [全球疫情更新（红蓝药丸视角下的疫苗强制）](/content/gnews/23/README.md)
+### [十五万还是六千？英国新冠死亡数字被兑水](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生盖特精要2022/01/26&#8211;02](/content/gnews/24/README.md)
+### [美国‘授权撤离’ 中方表达不满](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [近20国要同美国授权撤离大使馆，为下一步重大行动提供法律支撑](/content/gnews/3/README.md)
+ ` YALUN 亚伦`
+
+### [【#G时新闻】美卡车司机加入加拿大卡车司机大罢工](/content/gnews/4/README.md)
+ ` G-时新闻`
+
+### [新中国联邦第一次重大公告](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [丹麦将在2月1日前取消所有疫情限制措施](/content/gnews/7/README.md)
+ ` 华盛顿DC-Russian`
+
+### [七哥谈“大洗牌”（2022-01-21摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [美国国家安全官员审查阿里巴巴云服务](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [1/26/2022 文贵盖特：美国为何在这个时候授权撤离驻华大使馆？](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|中共称冬奥会外方人员中发现72例确诊病例](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [美日峰会共识高 安全与经济均抗衡中共](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共称经济有能力实现超预期增长](/content/gnews/25/README.md)
+### [加拿大总理特鲁多对疫苗政策导致的供应链断裂毫无悔意，仍要继续推进强制疫苗](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [1/26/2022 文贵盖特：今天是爆料革命5周年纪念日，为什么文贵当年在家人被抓的情况下仍坚持爆料？](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|美医生华盛顿反疫苗集会火力全开](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [阿尔伯塔省政府删除的数据显示，56% 的“未接种疫苗”的新冠病毒死亡实际上是新接种疫苗的死亡](/content/gnews/16/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|欧洲议员就强制疫苗怒斥马克龙](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [JAMA证实接种两剂疫苗的年轻男性患心肌炎风险最高](/content/gnews/18/README.md)
+ ` 华盛顿DC-Russian`
+
+### [参议员科顿：美国应该像支持乌克兰一样支持台湾](/content/gnews/19/README.md)
+ ` 纽约香草山MOS02`
+
+### [扬帆每日速递 ——2022年1月26日版（1）](/content/gnews/20/README.md)
+ ` 温哥华扬帆农场`
+
+### [中共宣传机构对美国体育节目主持人进行谩骂和攻击](/content/gnews/21/README.md)
+ ` 纽约香草山MOS02`
+
+### [新冠疫苗：医学证实青少年男性患心肌炎和心包炎风险最高](/content/gnews/22/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/23/README.md)
+ ` MayflowerBiz`
+
+### [【圆成原创】在中共治理下，良知经济学者只能郁郁而终](/content/gnews/24/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [全球疫情更新（红蓝药丸视角下的疫苗强制）](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文贵先生盖特精要2022/01/26&#8211;02](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC大中华时事：中共称经济有能力实现超预期增长](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [来自朱莉·伊丽莎白的歌《沉默》: 新冠疫苗受害者的故事](/content/gnews/26/README.md)
+### [来自朱莉·伊丽莎白的歌《沉默》: 新冠疫苗受害者的故事](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [世界集结为自由，周末180城市民众游行抗议](/content/gnews/27/README.md)
+### [世界集结为自由，周末180城市民众游行抗议](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大各地卡车司机加入车队，抗议疫苗强制接种](/content/gnews/28/README.md)
+### [加拿大各地卡车司机加入车队，抗议疫苗强制接种](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [Fauci的立场和理论的荒谬性和自相矛盾](/content/gnews/29/README.md)
+### [Fauci的立场和理论的荒谬性和自相矛盾](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [小土豆威胁GoFundMe撤销给卡车司机的捐款](/content/gnews/30/README.md)
+### [小土豆威胁GoFundMe撤销给卡车司机的捐款](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵先生盖特精要2022/01/26](/content/gnews/31/README.md)
+### [文贵先生盖特精要2022/01/26](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈全球的经济危机（2022-01-21摘录）](/content/gnews/32/README.md)
- ` MG FARM`
-
-### [七哥谈喜联储尊重法律规则（2022-01-21摘录）](/content/gnews/33/README.md)
- ` MG FARM`
-
-### [七哥说“痛苦只来自两个方面：没有信仰、没有能力。”（2022-01-21摘录）](/content/gnews/34/README.md)
+### [七哥谈全球的经济危机（2022-01-21摘录）](/content/gnews/34/README.md)
  ` MG FARM`
 
 ### [反对党领袖：澳中关系前路多艰](/content/gnews/35/README.md)
