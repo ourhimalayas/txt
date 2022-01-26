@@ -2,32 +2,31 @@
 ---
 
 
-## 扬帆每日速递 2022年1月25日特别版
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1911149/)
+## GTV新闻访谈简报|2022年1月25日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1911206/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-郭文贵先生“甜蜜蜜运动”重大紧急公告要点：
+作者：香草山翻译部
 
-1、美国政府已经正式通知北京政府：从即日起，授权撤离美利坚合众国驻北京大使馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-2、过去的五年我们致力于Take Down The CCP，给中国带来一个一人一票的选举民主法治的政权制度。2019年5月份和12月份就警告西方，由于共产党习近平独裁政府欲领导全世界，征服全世界，正在试图在香港和世界使用化学和生化武器。2020年1月份，我们最早在直播中提出香港运动的本质是对世界和文明法治进行挑战的开始，并且很有可能使用生化和化学武器。2020年2月份我们向世界宣布，2019年所谓的covid 19冠状病毒是共产党的生化武器，最重要的是用生化就器推动疫苗政策，疫苗才是真正的灾难。
 
-3、2019年冠状病毒出来之时，共产党已经在全世界提前购买大量PPE，口罩，医疗设备，阻止冠状病毒在世界流行时各国政府可以使本国公民免于COVID的伤害，甚至是死亡，这是第二次有计划的对冠状病毒患者的大屠杀。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-3.png)
+校对：Stay文苑
 
-4、《新中国联邦宣言》对人权、对法治、对宗教和信仰自由，对大自然以及世界上和平相处关系都有了清楚的阐述，但最终将由没有共产党的新中国人一人一票选出的政府来作出决定。
+编辑：Stay文苑
 
-5、共产党没有向世界公布冠状病毒的真正来源，也不配合全世界找到冠状病毒的来源。
+发稿：Stay文苑
 
-6、即将在中共国举办的奥运会必将成为人类纯洁的奥林匹克精神上最大的侮辱和丑陋的事件。奥林匹克委员会背弃奥林匹克精神，出卖灵魂和原则。 新中国联邦将永远建立一个与美国和世界的文明社会千年的和平关系！一切都是刚剛开始！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板125-特_page-0001.jpg)
-素材提供战友：Winner为自由而战、闻喜
+视频参看：[1.25  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f0a3dd28a108147c62cdf9)
 
-编辑：文敏
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
 
-发布：风起云间（文敏）
-
-海报图片设计：飞天面、 Shuang
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
