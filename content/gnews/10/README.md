@@ -2,23 +2,34 @@
 ---
 
 
-## 1月26日郭先生盖特：天在灭共，全球在灭共
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1914243/)
+## 以色列谘询委员会建议为所有成年人接种第 4 剂疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914360/)
 
-撰稿：追着曙光跑
+作者：台湾宝岛农场—新中国联邦静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒25日报导，以色列疫情防控谘询委员会周二建议，所有成年人可在疾病康复或接种完加强剂后的 5 个月，接种中共病毒疫苗第四针。目前，该建议已获得当局卫生总干事的批准。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.56.02.png)
+疫情谘询委员会周日在卫生部发言表示，第四剂疫苗为 60 岁及以上人士提供了针对严重疾病的三倍保护以及针对感染的双重防护。
 
-1月26日，郭先生在盖特视频指出，美国这次授权撤离跟中共病毒没有半点关系，撤离事宜已经进行将近两个月了，撤出后就不会再回去，除非没有共产党了。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-00.29.40.jpeg)
-在六四事件、南海军机相撞事件、去年香港反送中事件、以及在去年2021年疫情最严重的时候都没有撤馆，现在授权撤馆，其背后就是给下一步行动提交合法行动的支撑。
+事实上，以色列在疫苗接种率方面的表现一直稳居世界第一，截至上周末，全国第三剂加强针的接种率高达 55%，可惜的是，与此同时，以色列还是全世界单日确诊率最高的地方，据上周数据显示，以色列单日新增病例突破72000例。
 
-到目前为止，拜登总统和国务卿布林肯都没有对此发表讲话，即使讲话也会用外交辞令轻描淡写带过，此次撤离大行动已经结束。接下来会有一个个对中共打击更大的行动都会接踵而来。
+不仅如此，接种过三剂中共病毒疫苗的外长拉皮德、财政部长利伯曼等该国政要都相继被爆出染上病毒，其中接种过四剂疫苗的国防部长甘茨最近在推特上发文证实，自己染上中共病毒。
 
-郭先生继续爆出两件跟美国此次撤离有关的事件。一是在昨天直播前有大概20个国家也要准备撤离，撤离后也不打算再回到中共国了。二是在昨天直播之后，在中共国的首都大使馆区，有40多个国家闹着不允许中共对他们进行检测和隔离，要是中共敢这样做，这些国家就撤离。
+参考链接：[Israël/Covid: le comité consultatif recommande une 4e dose de vaccin à tous les adultes](https://www.i24news.tv/fr/actu/israel/1643096435-israel-le-comite-consultatif-recommande-une-4e-dose-de-vaccin-a-tous-les-adultes)
 
-最后，郭先生指出，天在灭共，全球在灭共！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-信息来源：[MILES GUO on GETTR: 1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友…](https://gettr.com/post/pqo5pu3741)
+总编：天滅中共
+编辑：天滅中共
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

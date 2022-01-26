@@ -2,34 +2,24 @@
 ---
 
 
-## 被问爆疫责任，林郑说，不要一爆发就要人头落地
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1913608/)
+## 韩国中共病毒确诊病例首次超8000，创历史新高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914038/)
 
-作者：台湾宝岛农场—dobi
-
-
+作者: 首尔天池农场—追着曙光跑
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+据韩国《KBS新闻》1月25日的报道，截至当天0时，韩国较前一天0时新增感染中共病毒（新冠病毒）确诊病例8571例，创历史新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-29.jpg)
+其中，京畿道确诊病例最多，为2900例；首尔确诊病例1700例，仁川确诊病例670例；全国累计确诊74.9979万例。当天新增23例死亡，累计6588例，平均致死率为0.88%。现有重症患者392例，较前一天减少26例。另外，全国约有3.2万人在家接受治疗。
 
+上周奥密克戎（Omicron）变种已成为流行毒株，在新增确诊病例中，奥密克戎感染病例占比为50.3%。考虑到奥密克戎的传染率是德尔塔毒株的两倍多，专家预测本周内韩国新增确诊病例将超过10,000例。
 
+**新闻来源**: [https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555](https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+总编: Irene木木
 
-
-
-据世界日报1月23日报道：对于香港政府在这次疫情期间多次采取围封的行动，多位立法会议员质疑政府决策缓慢、执行混乱，具体体现在：房署是公屋处理的牵头负责部门，但是在围封公屋时不见任何房署的人在现场负责，工作人员感到无所适从。选委界议员林智远更是直指当疫症涉及跨部门、广泛小区感染是，应该要有人依规定负责“拍板”。民建联陈恒镔也拟在26日的立法会上针对相关问题提出质询。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220118-07.jpg)
-但当被问到这次香港爆疫的责任问题时，特首林郑月娥说，抗疫不是按掣可以有措施马上落实，她无法控制全部引致疫情爆发的因素，不要有一次出现不想见到的（爆发）就要人头落地，边个要负责。
-
-立法会议员陈凯欣表示：其实自2003年SARS后，政府已明确界定抗疫指挥角色，其中明确规范：若疫政涉及跨部门或广泛小区感染，是由特首指挥，所以她林郑无论如何都要负这个责任。
-
-参考来源：
-
-[被問爆疫責任 林鄭：不要一爆發就要人頭落地](https://udn.com/news/story/122650/6054328?from=udn-catelistnews_ch2》)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-11.png)
-
-编辑/校对/发稿：兰兰
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
 
@@ -42,10 +32,6 @@
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
 
 
 

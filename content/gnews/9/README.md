@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|流行病学博士讲述疫苗如何致使器官衰竭
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914253/)
+## 州长注册为代课老师 以应对学校教师短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914361/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美国媒体1月23日报道，新墨西哥州州长米歇尔·卢扬·格里沙姆称，自己已注册成为代课教师，以解决学校和儿童保育中心由中共病毒造成的人员短缺问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午11.33.36.png)
+报道称，这位州长并没有教育经验，但预计下周将被安排在一所小学担任替补教师。
 
+媒体指出，格里沙姆州长是上周公布的“支持教师和家庭”倡议的100人之一。她表示这一决定是中共病毒病例激增导致人员极度短缺的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地媒体1月23日报道，近日，流行病学博士皮特.麦卡洛在接受乔.罗根的采访时提到，中共病毒疫苗足以造成器官损伤和死亡。截止到目前，疫苗不良事件报道系统已经报告了超过1万八千人死亡，其中3万人在接种疫苗后永久残疾。死亡事件报告中，50%发生在注射后48小时内，80%发生在一周内。
+1月21日，新墨西哥州卫生部门报告了 6,198例新的中共病毒病例，确认数处于高位。
 
-麦卡洛博士说，注射疫苗后，刺突蛋白在体内产生，数量与持续时间均不受控制。刺突蛋白会损害细胞，受损细胞进入心脏、大脑，破坏凝血的血管，引发心肌炎、心脏病、血凝块等人体器官损伤综合症，进而导致死亡。且中共病毒疫苗对人体的这些影响都是长期存在的。
+参考链接：[New Mexico governor becomes substitute teacher amid school staffing shortage](https://thehill.com/homenews/state-watch/590994-new-mexico-governor-becomes-substitute-teachers-amid-school-staffing)
 
-文字版原文：[流行病学博士讲述疫苗如何致使器官衰竭](https://gnews.org/zh-hans/1906752/)
-
-音频处理：Tom Li
-发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

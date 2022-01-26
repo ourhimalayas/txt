@@ -2,22 +2,35 @@
 ---
 
 
-## 魁省借防疫限制令侵害未接种疫苗人士
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914180/)
+## 印尼政府收购私人银行，正式进军数字银行领域
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914353/)
 
-采编：文莱    编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-7.jpg)
-据加拿大【CTV新闻】1月24日报道，魁省政府当天正式开始执行其新的疫情限制令，该省居民必须出示“新冠病毒”疫苗接种证明才能进入营业面积超过1500平方米的大型商店(包括 Costco、IKEA、Canadian Tire和沃尔玛等）。
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒 24 日消息，印尼政府银行 Bank Negara Indonesia——BNI 宣布收购由 Mayora 集团和世界银行国际金融公司IFC 共同持有的银行，Bank Mayora，目前交易正等待股东大会达成协议，预计到今年 5 月份正式达成。
 
-报道称，该项限制令暂未包括小型杂货店和药品零售商店等商业场所。对此，当局表示实行强制疫苗护照规定的目的是为了减少“奥米克戎”变体病毒的传播。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-7.jpeg)
 
-据悉，省长莱戈还在此前提出了将完全接种疫苗的定义由现在的两剂增改为三剂。此外，当局正在拟定法案对非医疗原因拒绝接种疫苗的人进行严惩和强征税费，该违宪法案最早可能在下个月就被公之于众。苛政猛于疯狗，如今已成为魁北克省最真实的写照。
+BNI 在一份官方声明中表示，Mayora 银行将转型成为一间数字银行，重点服务于国内的中小企业。另外，BNI 还收购了几间相关领域的知名科技公司加入该数字银行的计划。
 
-校对编辑：硫酸羟氯喹64
+早前，智库香港 有分析人士認為，“金融业未来的趋势就是数字化，而数字货币、数字银行将会是未来金融基建的核心。”
 
-发稿： 苦尽甜来 (文來）
+参考链接：[🇮🇩 gov’t bank set to enter digibank space via acquisition](https://www.techinasia.com/bni-acquisition-bank-mayora)
 
-[原文链接](https://montreal.ctvnews.ca/shoppers-entering-quebec-s-big-box-stores-now-must-have-covid-19-vaccine-passports-1.5751872)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：天滅中共
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

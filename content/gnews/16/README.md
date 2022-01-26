@@ -2,38 +2,29 @@
 ---
 
 
-## 中共病毒疫情下 儿童受教权及健康蒙受了无法弥补的损失
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914172/)
+## 甜蜜蜜灭共战役出其不意拉开帷幕
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914296/)
 
-作者：纽约香草山 医疗部- 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月24日，联合国儿童基金会表示，在中共病毒疫情下，全球超过6.16亿的儿童，仍无法恢复正常的学习课程。此种在儿童成长期间学习时间上的损失，几乎很难弥补。
+采编：Quitman               编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image.png)
+据[枫叶快讯]记者1月25日报道，[新中国联邦]创始人[郭文贵]先生在日前的直播节目中称，或将于春节和冬奥会期间，在北京二环以内中心地带唱响“甜蜜蜜”以歌灭共运动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-8.jpeg)
+但令所有人始料不及的是：“甜蜜蜜”言犹在耳之际，文贵先生却在当天上午的紧急直播中正式公告天下：美国政府将从即日起逐步撤离和关闭其驻中共国北京大使馆，并以此揭开了这场灭共于千里之外重大战役的序幕。
 
-在中低收入国家，因为学校关闭，很多儿童失去了学习的机会。据调查，有多达70%的10岁以上儿童无法阅读或理解简单的文字。疫情发生前，这个比例是53%。
+文贵先生智勇双全的品质因在近五年的爆料革命运动中表现得淋漓尽致，而令中南坑内肝胆俱裂。这次“甜蜜蜜”灭共行动一言既出，中共当局瞬间魂飞魄散，立马全网封杀了该歌曲在国内的下载和播放，而[新中国联邦]对中共政权的震慑力则再次因此展现于全世界面前。
 
-而在全世界，有数以百万计的儿童，除了被剥夺学习基本技能的机会以外，学习中断也影响了他们的心理健康。
+在中共被吓得颤若筛糠之际，文贵先生却“明修栈道，暗度陈仓”，并出敌之不意，先于美国政府发出了以上让总加速师习近平惶惶不可终世的末日通牒。至此，甜蜜蜜运动不仅向世人鲜明展示了[新中国联邦]的崇高国际地位和强大的正义实力，同时还将在中国大地敲响中共政权即将崩亡的丧钟。
 
-另外，学校停课，儿童无法上学，使全球超过3.7亿的儿童无法经由上学来获得学校提供的餐点，这会让某些孩子失去唯一可获得食物与每日营养的可靠来源。
+校对编辑：硫酸羟氯喹64
 
-除此之外，有些国家正在对儿童进行有伤害性的中共疫苗注射。教育学习延后，还有机会在日后追补回来。如果因为中共疫苗的注射失去健康，或许就永远无法挽回。这是戕害儿童一生健康的无智举动。
+发稿： 苦尽甜来 (文來）
 
-参考链接：[疫情導致學校關閉 聯合國：兒童損失幾乎無法彌補](https://www.cna.com.tw/news/aopl/202201250042.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+新闻链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+[https://gettr.com/post/pqd94s2312](https://gettr.com/post/pqd94s2312)
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+[https://gettr.com/streaming/pqha4z557d](https://gettr.com/streaming/pqha4z557d)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

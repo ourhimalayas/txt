@@ -2,41 +2,26 @@
 ---
 
 
-## 乌克兰局势紧张，美国计划增派8500名美军高度戒备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914270/)
+## 日本醫療人員恐第三針疫苗引發副作用 多數人員拒絕接種
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1914373/)
 
-作者：纽约香草山 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒 24 日报道，随着乌克兰局势的持续紧张，美国总统拜登与欧盟多个国家的领袖举行视像会议，对俄罗斯入侵乌克兰将招致的严重后果表示担忧。
+**日本東京方舟農場 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-3.jpeg)
+據中央社1月26日報道稱，日本政府規劃爲醫療人員和老人優先接種第三針疫苗，但民衆意願不高，接種率偏低。部分醫療人員因擔心疫苗產生副作用，而推遲接種。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-24.png)（圖片來自中央社）
+報道稱，日本政府日前規劃爲醫療工作人員與高齡者優先接種第3劑疫苗，從去年12月到今年1月底預計爲約1470萬人施打，包括醫療工作人員576萬人、65歲以上高齡長者約650萬人，以及64歲以下約244萬人。但依據中央政府的「疫苗接種紀錄系統」（VRS）紀錄，截至1月23日，僅約236萬人完成接種第3劑，約爲規劃接種人數的16.1%。
+報道指出，醫療工作人員中有人因擔憂副作用而拒絕接種第3劑。其中奈良縣內的醫院相關人士說，因爲擔心副作用，又要確保醫療能量，因此沒有加緊接種，奈良縣目前第3劑接種進度爲10.7%。
+另有老人照護表示，入住的老人多有罹患認知症等無法確認本身意志者，需要花時間向家人說明與取得同意，很難提早爲這些老人接種疫苗。
+此外，COVID-19疫苗所引發的副作用引發關注， 據社交媒體GETTR上ID爲‘連新社’的媒體發佈的一則視頻表示，疫苗中的氫氧化石墨烯和其他未知成分提升導致血栓、心臟病和中風等疾病的風險，從而對身體造成不可挽回的傷害。
 
-美国国防部发言人柯比宣布，升级美军戒备状态，“美国已采取措施，提升驻守本土及外国部队的戒备等级，以应对一系列的紧急状况，包括支援北约的应急部队，预计将高度戒备的部队成员数目增加到 8500人。”
+參考鏈接：
+1：[https://www.cna.com.tw/news/aopl/202201260060.aspx](https://www.cna.com.tw/news/aopl/202201260060.aspx)
+2：[https://gettr.com/post/pqfo21a38b](https://gettr.com/post/pqfo21a38b)
 
-柯比强调，参与增援戒备的部队会涉及战斗部队、情报、侦察，以及医疗和物流支援人员。目前暂时没有具体细节，但随时准备在短时间内进行调动，以配合北约部署。
+素材採編：Kevin wang
+編輯： 青城道姑
+發佈：文曦
 
-与此同时，北约宣布下令更多部队进入戒备状态，并加强在东部地区的海空部署。北约秘书长斯托尔滕贝格表示，不排除增派战斗部队进入东部。
-
-俄罗斯国防部早前发布影片，显示东区的士兵及物资正积极运往白俄罗斯，以准备下月举行的联合军演。俄军同一时间宣布，已派遣 20 艘战舰及支援船只进入波罗的海，举行军事演习。在最新一期的文贵大直播中，郭先生认为乌克兰的局势背后并不简单，涉及的是中共党魁习近平与俄罗斯总统普京密谋达成的“双头鹰行动”，习近平要拿下台湾，普京将直取基辅，局势将变化莫测，大家拭目以待，但邪恶一定会被消灭。
-
-参考链接：
-1）[烏克蘭情勢緊張 北約調機艦強化東翼 美軍8500人待命赴歐](https://www.cna.com.tw/news/aopl/202201250050.aspx)
-2）[https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html](https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html)
-3）[https://gettr.com/post/pqfmlg539f](https://gettr.com/post/pqfmlg539f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：天滅中共
-编辑：天滅中共
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

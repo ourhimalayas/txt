@@ -2,23 +2,32 @@
 ---
 
 
-## 美联储公开讨论应用数字货币的利与弊
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914217/)
+## 加拿大卡车司机抗议运动筹款已近400万加元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914358/)
 
-采编： 风云小哥          编译撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image-7.jpg)
-据美国【CNBC新闻】1月20日报道，[美联储]日前发布了其近期对央行数字美元货币的研究报告。其中不仅探讨了如何在世界各地金融交易已经高度数字化的趋势下加速电子支付系统的应用，还审视了各项备受争议的相关问题，包括金融稳定风险，隐私保护以及防范欺诈等方面的利弊。
+作者：加拿大温哥华扬帆农场Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒1月23日的报道，名为“2022年自由车队”的加拿大卡车司机1·29国会山抗议运动，仅仅一周多的时间，筹款已经远超300万加元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.26.png)
+该众筹是由阿尔伯塔省的塔玛拉·利奇发起的，旨在反对特鲁多政府已经于1月15日开始实施的，关于卡车司机出入美加边境时的疫苗接种、测试和隔离等相关规定。募集的资金将用于抗议者的燃料、食物和住宿费用。 截至周日晚上9:30，约有39,000人进行了捐赠。有几十笔数千美元的捐款，包括两笔1万美元的大额捐款。
 
-报道称，尽管[美联储]在本次研究报告中未做出任何决定，但可以肯定的是，引入数字美元货币不仅将从根本上改变美国金融体系的结构，以及重塑私营企业和中央银行的角色和责任，而且加密数字货币系统现已成为主宰未来金融领域的必然趋势。
+来自卡尔加里的支持者詹姆斯·鲍德说，除了抗议对大卡车司机的限制，还抗议口罩、疫苗护照，以及无休止地关闭企业。他认为医疗行业已经高度政治化。加拿大卡车联盟CTA周日发表声明，鼓励卡车司机在渥太华国会山合法抗议。截至发稿时间，该笔专项捐款已接近400万加元。
 
-结合此前GTV文贵大直播的爆料信息，[美联储]最终将会毫无选择地和[新中国联邦]的数字金融机构[喜联储]紧密合作，在目前和未来共同推动世界上唯一合法，稳定，安全以及最具实力的去中心化稳定数字货币：喜币的全球化使用。
+参考链接：[Anti-vaccine-mandate truck convoy passing through Alberta on way to Ottawa](https://www.cbc.ca/news/canada/edmonton/anti-vaccine-mandate-truck-convoy-alberta-covid-1.6324819)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-发稿： 苦尽甜来 (文來）
+总编：Ivy001
+编辑：纽约香草山文艺部 – 宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[原文链接](https://www.cnbc.com/2022/01/20/fed-releases-long-awaited-study-on-a-digital-dollar-but-doesnt-take-a-position-yet-on-creating-one.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
