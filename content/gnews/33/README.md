@@ -2,34 +2,34 @@
 ---
 
 
-## 美国银行称美国中央银行数字货币将维护美元地位
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912152/)
+## 北大退休教授郑也夫发文反对中共武统台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912162/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE1.jpg)图片来源：www.coindesk.com
-美国银行在一份报告中说，美国中央银行数字货币（CBDC）将不同于目前向公众提供的数字货币，因为它将是美国联邦储备局而不是商业银行的债务，因此将没有信用或流动性风险。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-由阿尔凯什·沙阿（Alkesh Shah）领导的分析师们周一在报告中写道，维护美元作为世界储备货币的地位，改善跨境支付和增加金融包容性，都被视为美国数字货币的好处。美联储上周发表了一份关于美国CBDC的好处和风险的讨论文件。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19.png)
+据鸣人堂报道：1月22日，北京大学退休教授郑也夫为台海情势发表《匹夫說台海》短文，反对中共武统以及武力威慑台湾。郑也夫强调由于中共严控言论使得武统之论甚嚣尘上，他的公开反对可以击碎“武统派”代表人民的错觉。
 
-该报告称：“潜在的风险——虽然可以通过CBDC设计上的选择来削弱——包括通过转移存款来改变金融部门的市场结构，如果商业银行的存款被转换为CBDC，会增加金融系统的流动性风险，以及降低货币政策的执行效力。” 美国银行表示，在发行CBDC之前，关键的考虑因素是它需要有隐私保护、中介服务、可转让和身份验证。
+据自由亚洲电台指出，郑也夫拒绝接受后续采访，以避免当局对他错误理解。他强调文章已经明确了观点。
 
-该银行指出，在没有CBDC的情况下，稳定币的使用可能会增加，并补充说，截至1月21日，市场价值最大的两个稳定币——泰达币和美元币，其市场价值合计约为1210亿美元。报告说，它们作为一种支付手段的使用正在增加，特别是用于跨境汇款，因为它们比使用法定货币更快、更便宜。
+郑也夫曾在2020年7月发表了一篇《为谁保江山》的文章之后，消声了差不多一年半。
 
-在本月早些时候发表的一份报告中，美国银行对英格兰银行关于英国CBDC将只是作为一种数字现金形式的说法提出质疑。它说，CBDC有可能取代活期存款账户，成为消费者持有其大部分资金的方式。
+当时中共深陷疫情灾难，经济急速下行，和美国也出现了外交困局，加上违反《中英联合声明》，强推香港《国安法》。时任美国国务卿蓬佩奥甚至发表《共产中国与自由世界的未来》演讲呼吁自由社会要与中国人民联合起来打败中共暴政。
 
-**简评：**疫情加速了数字货币时代的到来，在各国开始正式探讨数字货币的时候，新中国联邦的喜币早已横空出世，改写世界数字货币的游戏规则。数字货币提供了传统法币所没有的安全，高效，稳定的属性，随着中共国房地产的崩塌，加上人民币超发一定会形成雪崩效应，没有人会再相信人民币的价值，因此数字货币的崛起一定会加速中共的灭亡。
+习近平当时疾呼要守住中共社会主义事业，郑也夫则刊文直指中共的“保江山”其实就是“保权贵”，现实就是中共权贵阶层的后代们纷纷移居美国。
 
-新闻链接: [Bank of America Says US CBDC Would Preserve Dollar’s Status as World’s Reserve Currency](https://www.coindesk.com/policy/2022/01/24/bank-of-america-says-us-cbdc-would-preserve-dollars-status-as-worlds-reserve-currency/?outputType=amp#aoh=16430782050315&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=From%20%251%24s)
+参考链接：[https://opinion.udn.com/opinion/story/120611/6059246?form=udn\_ch2\_common3\_cate](https://opinion.udn.com/opinion/story/120611/6059246?form=udn_ch2_common3_cate)
 
-* * *
+*发布：tianzhihuan*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
