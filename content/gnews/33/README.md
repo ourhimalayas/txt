@@ -2,37 +2,28 @@
 ---
 
 
-## 拜登：若俄乌冲突升级 考虑直接制裁普京
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912533/)
+## 国际货币基金组织要求萨尔瓦多不要将比特币作为法定货币
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1912752/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-6.jpg)图片来源：Trend Fool
+据《国会山报》1月25日报道，周二，国际货币基金组织（IMF）执行董事会警告萨尔瓦多（El Salvador），不要将比特币（Bitcoin）作为法定货币，该董事会声明呼吁“对新的生态系统进行严格监管监督”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/S2LGM95BO2YJTST6Y3.png)图片来源：雅典娜设计组
+该声明是在董事会的年度会议之后发布的。声明中说：“他们【董事会成员】强调，使用比特币对金融稳定、金融诚信和消费者保护，以及相关的财政或有负债（Contingent liabilities）有很大的风险。他们敦促当局以取消比特币的法定货币地位，从而缩小比特币法律的范围。一些董事还对发行以比特币为支撑的债券所产生的相关风险表示担忧。”
 
+报道说，萨尔瓦多共和国在2021年9月份成为了第一个采用加密货币作为法定货币的国家，从而要求企业接受比特币作为法定支付的方式。
 
-据德国之声中文网报道：美国总统拜登1月25日警告，若俄罗斯入侵乌克兰，将考虑直接制裁俄罗斯总统普京。若战事爆发，将是二战以来最大规模的入侵，且将造成巨大后果。
+此举促使国际货币基金组织董事会多次建议萨尔瓦多推翻这一决定，并提出了对经济和法律问题的担忧。
 
-与此同时，德国总理肖尔茨后来（Olaf Scholz）和法国总统埃马克龙（Emmanuel Macron）25日在柏林会晤。两位领导人认为外交手段是解决乌克兰与俄罗斯紧张局势的途径，但也警告说，若俄罗斯入侵乌克兰会有严重后果。
+另据《路透社》报道，该国正准备发行10亿美元的债券，其中一半将用于购买比特币，发放给拉乌内（La Union）东部的一个地区，计划创建世界上第一个“比特币城市”。据通讯社报道，政府预测这种风险将吸引投资者，他们将获得6.5%的美元收益率，远远低于目前市场上类似萨尔瓦多政府债务的大约17%的价格。
 
-德国是俄罗斯天然气的主要进口国。在乌克兰克里米亚半岛被吞并后不久，在欧盟实施的制裁中，法俄贸易关系骤降约三分之一，但此后一直在稳步恢复。
+然而，在目前的政策下，国际货币基金组织警告说，（萨尔瓦多）的债务可能在2026年上升到约国内生产总值的86%，称这是一个“不稳定的方法路径”。
 
-德国和法国都对针对俄罗斯的额外制裁表示担忧。肖尔茨此前曾表示，欧洲国家必须考虑对俄罗斯制裁的成本，以及这可能对其自身经济产生的影响。
+**新闻来源**
 
-马克龙此前曾表示，制裁对遏制俄罗斯的行动作用不大。法国呼吁以欧洲的方式解决危机，而不是依靠美国解决问题。
-
-参考链接：[https://m.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8D%B1%E6%9C%BA%E6%8B%9C%E7%99%BB%E7%A7%B0%E6%88%96%E5%88%B6%E8%A3%81%E6%99%AE%E4%BA%AC-%E5%BE%B7%E6%B3%95%E7%9B%BC%E5%A4%96%E4%BA%A4%E8%A7%A3%E5%86%B3/a-60554143](https://m.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8D%B1%E6%9C%BA%E6%8B%9C%E7%99%BB%E7%A7%B0%E6%88%96%E5%88%B6%E8%A3%81%E6%99%AE%E4%BA%AC-%E5%BE%B7%E6%B3%95%E7%9B%BC%E5%A4%96%E4%BA%A4%E8%A7%A3%E5%86%B3/a-60554143)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[IMF urges El Salvador to remove bitcoin’s status as legal tender](https://thehill.com/policy/international/americas/591320-imf-urges-el-salvador-to-remove-bitcoins-status-as-legal-tender)
 
  
 

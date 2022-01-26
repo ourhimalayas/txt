@@ -2,50 +2,33 @@
 ---
 
 
-## 如果被切断SWIFT联系，俄罗斯将在欧洲断供天然气
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912847/)
+## 一万七千名医生站出来反对疫苗、反抗暴政
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912913/)
 
-#### 【雅典娜观察】和您一起探究世界
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE9.jpg)
+**简评：**虽然有强大的反对势力，虽然被审查、被解雇、被从维基百科和社交媒体上删除，但仍然有一万七千名医生站出来反对强制疫苗，远比美国国立卫生研究院(NIH)、疾病预防控制中心(CDC)和美国食品和药物管理局(FDA)的人要多。没有人再相信新闻媒体、CDC、FDA和福奇。站出来，为了自己，为了后代站起来，抵制这个暴政！
 
-整理报道：文扬
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/56JWR9AMWEYWBY2W@5.png)图片来源：Botanwang.com
+- GETTR视频链接：[https://gettr.com/post/pqdpjx48e2](https://gettr.com/post/pqdpjx48e2)
+- GTV视频链接：[https://gtv.org/video/id=61f0027087664c47acd9cc29](https://gtv.org/video/id=61f0027087664c47acd9cc29)
 
 
-1月26日，据RT电视台报道，俄罗斯参议院副议长尼古拉·朱拉夫列夫周二警告，暂停俄罗斯SWIFT支付交易系统资格，可能会对西方产生巨大的反作用。
+**视频字幕：**
 
-“SWIFT是一个支付系统，这是一项服务，”朱拉夫列夫说，暂停俄罗斯SWIFT支付系统，将意味着莫斯科无法处理外币支付。这可能会使俄罗斯的贸易伙伴——主要是西欧，无法接收他们从俄罗斯进口的商品。这位官员警告说，这意味着俄罗斯的石油、天然气和金属以及其他“重要进口产品”将无法进入西欧市场。
+**Dr. Richard Urao****：**我们不只是一名医生，我们是一万七千名医生。这比美国国立卫生研究院(NIH)、比疾病预防控制中心(CDC)、美国食品和药物管理局(FDA)的人都要多。这些都是经过署名和验证的。众所周知，有强大的势力反对我们。新闻媒体。还有人信任新闻媒体吗？不!!!你们还信任CDC和FDA吗？不!!!你们信任福奇吗？不!!!好。
 
-这位副议长还表示，华盛顿和伦敦的决定可能不足以推动暂停俄罗斯SWIFT系统的服务。他特别指出，与俄罗斯有大量贸易往来的国家不会轻易承受来自美国和英国的压力。
+我们被解雇、被审查、被从维基百科上删除。但是我们坚强地站着，因为我们和你们在一起！因此，今天，我们再一次代表一万七千名医生、科学家以及人类，我们有三个几乎无可争议的建议，并有高质量的数据支持。今天我有一个请求。今天你们将听到真相。我请求你们鼓起勇气，加入我们，帮助我们的后代抵制这个暴政！
 
-根据欧盟委员会的2020年报告，俄罗斯一直是欧盟的五大贸易伙伴之一。它提供了该集团5%以上的进口，价值超过950亿欧元（1070亿美元）。
+字幕：Vekap / 听写：雨中漫步 / 翻译：Blue / PR：Roberts / 简评/文字整理/编辑：胖丁
 
-朱拉夫列夫说，（SWIFT支付系统）这是一家欧洲公司，是一个由许多国家组成的协会，一个国家要被切断与它的联系，需要“所有成员国的一致决定”。
+* * *
 
-上周日，英国媒体报道称，伦敦考虑支持暂停俄罗斯SWIFT的资格，以防俄罗斯与乌克兰发生军事冲突。1月中旬，德国报纸Handelsblatt报道称，西方领导人已经排除了这样的举动，华盛顿本身也放弃了这个想法。然而，美国否认这种说法，称“存在任何选项”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-SWIFT是一家由股东拥有的有限责任公司，股东选举出由25
 
-“独立董事”组成的董事会，管理公司并监督管理层。目前的董事会成员大多来自西方国家，但俄罗斯和中国各有一名成员。
-
-根据该公司的网站，“SWIFT的国际治理和监督加强了其合作结构的中立性和全球性”。早在2012年，美国参议院银行委员会批准对与黑名单上的银行打交道的公司进行制裁，美国影响了SWIFT关于切断伊朗银行服务的决定。
-
-早在2014年，SWIFT曾拒绝考虑将俄罗斯从其服务中断开，以回应它当时收到的类似要求。
-
-朱拉夫列夫指出，尽管SWIFT是一种“方便快捷”的金融交易系统，但它绝非独一无二，俄罗斯和中国已经建立了自己的金融交易系统。
-
-原文链接： [Russia warns of consequences across Europe if it’s cut off from SWIFT — RT Russia & Former Soviet Union](https://www.rt.com/russia/547336-swift-europe-import-consequences-sanctions/)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

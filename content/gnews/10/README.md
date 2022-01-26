@@ -2,36 +2,38 @@
 ---
 
 
-## 给儿童接种新冠疫苗就是犯罪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912934/)
+## 法国日增新冠病例首超50万例
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1913001/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE11.jpg)
-**简评：**为儿童接种新冠疫苗可能诱发自身的免疫反应。从科学的角度讲，这是不合理的，尤其当一种疫苗在不能阻断病毒传播的情况下，大面积接种会适得其反，为更具有传染性的病毒变种创造适合生存的环境。在任何情况下，都不应该给儿童接种新冠疫苗。这是犯罪。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- GETTR视频链接：[https://gettr.com/post/pozmcwec2a](https://gettr.com/post/pozmcwec2a)
-- GTV视频链接：[https://gtv.org/video/id=61eac9ea87664c47acd7d4d2](https://gtv.org/video/id=61eac9ea87664c47acd7d4d2)
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19-5.png)
+根据中央社报道：法国在过去24小时新增501635例新冠感染病例，日增感染者首次破50万例大关，创单日新高。
 
+在欧洲主要国家中，法国目前是单日确诊率最高的国家，过去一周平均每天新增超过36万例。
 
-**视频字幕：**
+官方数据显示，法国各地有超过3万人因感染新冠住院，创2020年11月以来新高。
 
-接种疫苗有诱发儿童自身免疫反应的风险。这就是为什么我说，当与病毒抗争时，永远不要使用不能阻断传播的疫苗。如果疫苗不能防止传播，就不能控制这种大流行病。病毒会逃逸，你不可能赢，不可能的。因此，换句话说，这种大规模的疫苗接种，会适得其反。你为更具传染性变种的复制创造了温床。
+另外，法国通报过去24小时新增新冠死亡病例364例，迄今累计病亡患者总数达129489例。
 
-从科学角度讲，为儿童接种新冠疫苗没有任何合理性。这是不可能合理的。对儿童没有任何附加价值，只有重大担忧和重大风险。所以我们肯定知道，风险收益比在朝着一个完全错误的方向发展。基于此，你怎么能想到做这样的事情呢？
+以上统计，是法国24日实施新防疫措施后的最新数字。
 
-我没有别的话要说，这就是犯罪。作为一个科学家，我们不会轻易使用这些词。你听到我说的(与你的认知)恰好相反，接种这个疫苗不可能为群体免疫做出贡献。我的建议很明确。在任何情况下，你都不应该允许自己的孩子接种新冠疫苗。
+目前法国民众要进入酒吧和餐厅、搭乘火车和飞机时，必须接种新冠疫苗。到2月15日如果他们仍未接种，“疫苗通行证”将失效。
 
-字幕：Vekap / 听写：云岭 / 翻译：致良知 / PR：Dasy / 简评/文字整理/编辑：胖丁
+截至目前，法国有超过77%人口已完整接种两剂新冠疫苗。
 
-* * *
+参考链接：https://udn.com/news/story/121707/6061256?from=udn-catebreaknews\_ch2
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*发布：tianzhihuan*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

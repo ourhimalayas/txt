@@ -2,22 +2,23 @@
 ---
 
 
-## Covid ：60% 的住院患者在两个月后仍有症状
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1912978/)
+## 时隔2年 山体染成红色的奈良若草山
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1913027/)
 
-翻译：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01261.jpg)图片来自today.it
-从临床上看，出院两个月后，60%以上的患者仍有症状，而到了六个月，这一比例降至40%左右。最常报告的症状是：呼吸困难、虚弱和咳嗽，其次是胸痛、心动过速、平衡障碍、恶心或低烧。
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-31.png)[*图片来源*](https://news.yahoo.co.jp/articles/d0d20d55902166d8c2ecaec82e7d5bb0215b7ab0/images/000)
+1月22日晚，古都奈良举行了宣告春天来临的若草山烧荒活动，梦幻般的火花时隔2年再次将山体染红。往年约有18万名游客前来参观，但是为了防止中共病毒（新型冠状病毒）感染的扩散，在[奈良公园](https://zh.wikipedia.org/wiki/%E5%A5%88%E8%89%AF%E5%85%AC%E5%9C%92)参观的游客仅限于事先登记的9000多名。此次首次在网上发布无人机在上空拍摄的影像。
 
-肺功能测试发现肺功能在两到六个月内有显着改善，86% 的患者在出院六个月后肺功能正常。Covid-19 肺炎是间质性肺炎，会影响肺部结构，其完全恢复可能需要六个月以上的时间。
+在烧荒之前，燃放了约200发烟花。下午6时15分左右，300多名消防队员以海螺和喇叭声为信号，用[春日大社](https://www.kasugataisha.or.jp/)的御神火点燃火把，火势顺势蔓延到了33公顷的山体。
 
-放射学上，大多数（64%）患者在入院两个月后胸部 X 光片出现变化，在六个月后显示更严重图像胸部 CT 扫描的是那些在住院期间更严重的患者，六个月时只有 26% 的胸部感染被完全“清除”。
+2021年的烧荒虽然缩小了规模，但是因为下雨火势没有扩散，也没有改日重新燃烧。
 
-据研究人员称，对于很多患者来说，SARS Cov 2 疾病不是简单的肺炎，相反，它造成了很深的伤口，不仅是身体上。
+信息来源：[**2年ぶりに山肌赤く染め上げ　奈良・若草山の山焼き**](https://news.yahoo.co.jp/articles/d0d20d55902166d8c2ecaec82e7d5bb0215b7ab0)
 
-原文链接：[https://www.today.it/salute/covid-conseguenze-pazienti-guariti.html](https://www.today.it/salute/covid-conseguenze-pazienti-guariti.html)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
