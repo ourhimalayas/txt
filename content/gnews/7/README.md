@@ -2,28 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月26日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1914433/)
+## 彼得-麦卡洛博士：如果我们允许医疗自由被打破，所有的自由都会被打破，这是一个决定性时刻
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1914619/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+#### 加拿大温哥华扬帆农场 视频组
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-25.png)
-文章仅代表作者本人观点，与Gnews无关
+素材；文倩
+翻译：Kent
+字幕：文雅
 
-视频参看：[2022.01.26早GTV新闻访谈](https://gtv.org/video/id=61f14c3728a108147c633018)
+我们有一个医疗自由的环，你作为一个独立的个体对你的身体有绝对的自主权，你有权决定如何对待你的身体，其实从多个角度来说，这是你唯一拥有的，这个权利是你实实在在拥有的唯一东西，这是你的财产，这个医疗自由的环与社会自由的环密不可分。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+社会自由包括你的家庭、就业和你的信仰，涉及你所在的任何国家任何地区的全体公民，而这与经济自由之环同样密不可分，医疗自由与社会、经济自由唇寒齿亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-19.jpg)
+如果我们允许医疗自由之环哪怕是被触及，更不用说被打破，所有的环都会断裂，全都会。所有的权利都是写在法律上的，而维护医疗自由的决心就在你们手中，每一个人自己的手中，没有比这更清楚的了，这是一个前所未有的决定性时刻，因此请和我一起，加入这些英雄医生和护士以及其他人，让我们重建美国，谢谢你！
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑/发文：Kent
 
  
 

@@ -2,31 +2,42 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月25日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914362/)
+## CNN报道 “授权离境”，证实爆料革命的情报和成果
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1914448/)
 
-配音：香草山佛教部 – 李傻
+#### 搜集/撰稿：彩虹
 
+#### 责编：白夜       
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2188.png)图片来源：NDTV
+1月26日，CNN报道说，据两位消息人士透露，美国驻中共国外交使团已正式请求国务院批准美国外交官“授权离境”，允许他们及其家人在中共国日益严格的中共病毒（Covid-19）遏制措施中离开中共国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-3-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月25日晚](https://gnews.org/zh-hans/1911206/)
+据这两位不愿透露姓名的消息人士称，这一请求尚未得到国务院的批准。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+文章说，“授权离境”是指让美国使领馆的雇员和家属可以选择离开中共国一段时间，直到他们觉得安全时再返回，但不是“命令离境”情况下的强制撤离。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+一位熟悉该讨论情况的美国外交消息人士告诉CNN，提出这一要求是因为几位外交官及其家人对中共国近几个月来不断收紧的反中共病毒疫情措施表示担心，其中包括可能将未成年儿童与父母分开的快速封锁和隔离。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+目前，美国驻中共国的外交使团与中共国外交部达成了协议，允许父母在隔离情况下与未成年儿童在一起。然而，人们越来越担心中共国的国家卫生机构有可能推翻这一协议。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+报道指，去年9月，一段4岁儿童感染中共病毒（Covid-19）的视频在网上流传，该儿童与父母分离，被单独安置在莆田市的隔离区内，这凸显了中共国严格的疫情措施所造成的人权牺牲。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+虽然没有发生过外交官与他们的孩子分开的事件，但这位外交人士说，在中共国的美国官员担心，在高传染性的中共病毒变体奥米炕（Omicron）的传播中，这种情况可能会改变，这可能会使中共国的卫生保健系统和医院感到紧张。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+这位外交人士说：“人们并不害怕生病，让人们惊慌失措的是，奥米炕的传染性更强。如果它以我们在其他国家看到的方式激增，可能会导致这里采取更严格、更不可预测的措施。我们并不质疑中国在遏制COVID-19（中共病毒）方面的安全性，但我们确实希望防止人们在COVID-19肆虐时被卷入（隔离）系统。”
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+目前，美国国务院发言人说，美国驻华使团的工作状态没有改变。但该发言人表示：“所有的决定变化将完全以我们的同事及其家庭成员的健康、安全和保障为前提。”
+
+该外交人士告诉CNN，如果获得批准，根据驻北京大使馆进行的内部调查，美国驻华使团预计，1000名人员中约有10%至15%将离开中共国，
+
+这一估计并不包括家庭成员，工作人员和家属将被允许乘坐商业航班离开。
+
+与此同时，中共国国家媒体对 “授权离境 “要求的消息感到愤怒，指责美国大使馆“意图不轨”，并将其与所谓的“美国政府的一系列挑衅行为”联系起来。
+
+报道说，周二时，新任美国驻华大使尼古拉斯·伯恩斯（Nicholas Burns）宣誓就职。但外交人士告诉CNN，预计他将在未来几个月内上任，但由于最近的中共病毒疫情，他的上任可能会被推迟。
+
+**新闻来源**
+
+[US Embassy in China asks State Department to let diplomats leave over Covid restrictions](https://edition.cnn.com/2022/01/26/china/china-us-embassy-authorize-departure-intl-hnk/index.html)
 
  
 

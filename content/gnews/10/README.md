@@ -2,39 +2,55 @@
 ---
 
 
-## 如俄侵乌美国将制裁普京本人
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914389/)
+## 美国考虑让外交官离开中国以应对严格的新冠病毒规则
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1914524/)
 
-作者: 纽约香草山医疗部 云豹
+翻译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2191.png)图片来源：reuters.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
-当地时间1月25日，美国总统拜登表示，如果俄罗斯入侵乌克兰，将考虑直接制裁俄罗斯总统普京。
+路透华盛顿1月25日 – 消息人士称，美国国务院正在考虑是否批准希望离开中国的美国外交官及其家人离境，因美国政府无法阻止中共当局对他们实施侵入性的大流行控制措施，
 
-俄罗斯近日陆续向乌克兰边境增派军队，并与白俄罗斯进行联合军演，已经引起北约及美国高度关注。 除了多次与俄罗斯进行外交协商试图说服俄国，北约及美国也在准备必要时军事支持乌克兰对抗俄国的入侵。
+两名熟悉该问题的消息人士称，美国大使馆周一已向华盛顿发出正式签署的请求，因为中共国在现在距离北京冬奥会开幕不到两周时间，加强了 COVID-19 遏制措施。
 
-美国总统拜登宣布不排除直接制裁俄罗斯总统普京，这是非常少见的外交手段。 此时提出，更显示出俄乌局势严峻，以及美国极力阻止战事发生的决心。
+由于问题的敏感性而要求匿名的消息人士向路透社表示，一些大使馆工作人员对美国政府一直不愿意或无法免除对美国官员的严格隔离措施而感到不安。
 
-**新闻来源**: [https://www.cna.com.tw/news/aopl/202201260008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202201260008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-总编: Irene木木
+这些规则包括，可能强制进入**COVID **发烧诊所和与将儿童隔离。
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+美国国务院周二在一份声明中告诉路透社，其驻华大使馆和领事馆的运营状况没有改变。
 
-**更多资讯，更多关注**
+“这种性质的运营状态的任何变化，都将完全取决于对我们同事及其家人的健康、安全和保障，”一位部门发言人说。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+外交部发言人在北京表示，中共国的抗疫措施是科学的，符合外交条约。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发言人赵立坚在每日新闻发布会上说，离开中国会增加被感染的机会。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+一位人士表示，美国大使馆进行的一项内部调查显示，多达 25% 的员工和家属会选择尽快离开中国。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+这位知情人士说，外交官的居家隔离应该是基本要求，进入中国发热门诊和医院应该是自愿的，并补充说，美国政府应该对这些要求采取报复措施，但还没有。
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+另一位知情人士表示，大使馆领导层未能就整个大流行期间美国外交官的待遇问题，从中共国得到适当的保证。
 
+在大流行的最初几个月，美国政府从中共国撤离了大约 1,300 名美国外交官和家属，两国政府在官员在检测和隔离程序上陷入僵局数月。
 
+中共要求外国外交官遵守检疫和抵达时检测等流行病控制规则，尽管一些外国使节不必进入政府指定的隔离酒店。
 
+随着 2 月 4 日北京冬奥会开幕的临近，中共迅速采取措施阻止 COVID 的进一步传播，尽管该病毒的爆发在整个城市持续存在。
+
+周二，北京的一个地区将开始对其大约 200 万居民进行新一轮测试。
+
+中共的《环球时报》小报称，美国国务院对该政策的考虑是一种“肮脏的伎俩”，旨在破坏中共国举办奥运会。
+
+美国领导了几个盟国和伙伴国家对奥运会进行了外交抵制，因为中共政府正在其西部新疆地区对维吾尔人和其他穆斯林群体进行种族灭绝。
+
+素材链接：[reuters.com] [U.S. weighs letting diplomats leave China over tough COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,31 @@
 ---
 
 
-## 甜蜜蜜灭共战役出其不意拉开帷幕
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914296/)
+## 有声|GTV新闻访谈简报|2022年1月25日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914362/)
 
-采编：Quitman               编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image.png)
-据[枫叶快讯]记者1月25日报道，[新中国联邦]创始人[郭文贵]先生在日前的直播节目中称，或将于春节和冬奥会期间，在北京二环以内中心地带唱响“甜蜜蜜”以歌灭共运动。
+配音：香草山佛教部 – 李傻
 
-但令所有人始料不及的是：“甜蜜蜜”言犹在耳之际，文贵先生却在当天上午的紧急直播中正式公告天下：美国政府将从即日起逐步撤离和关闭其驻中共国北京大使馆，并以此揭开了这场灭共于千里之外重大战役的序幕。
 
-文贵先生智勇双全的品质因在近五年的爆料革命运动中表现得淋漓尽致，而令中南坑内肝胆俱裂。这次“甜蜜蜜”灭共行动一言既出，中共当局瞬间魂飞魄散，立马全网封杀了该歌曲在国内的下载和播放，而[新中国联邦]对中共政权的震慑力则再次因此展现于全世界面前。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-3-768x994-1.png)
+文字版原文：[GTV新闻访谈简报|2022年1月25日晚](https://gnews.org/zh-hans/1911206/)
 
-在中共被吓得颤若筛糠之际，文贵先生却“明修栈道，暗度陈仓”，并出敌之不意，先于美国政府发出了以上让总加速师习近平惶惶不可终世的末日通牒。至此，甜蜜蜜运动不仅向世人鲜明展示了[新中国联邦]的崇高国际地位和强大的正义实力，同时还将在中国大地敲响中共政权即将崩亡的丧钟。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-校对编辑：硫酸羟氯喹64
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发稿： 苦尽甜来 (文來）
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-新闻链接：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[https://gettr.com/post/pqd94s2312](https://gettr.com/post/pqd94s2312)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[https://gettr.com/streaming/pqha4z557d](https://gettr.com/streaming/pqha4z557d)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

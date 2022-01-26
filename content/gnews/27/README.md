@@ -2,47 +2,34 @@
 ---
 
 
-## 台湾遭遇自10月以来最大规模中共国空军骚扰
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914203/)
+## 印尼政府收购私人银行，正式进军数字银行领域
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914353/)
 
-作者：纽约香草山教育部—Naughty(文行)
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒 24 日消息，印尼政府银行 Bank Negara Indonesia——BNI 宣布收购由 Mayora 集团和世界银行国际金融公司IFC 共同持有的银行，Bank Mayora，目前交易正等待股东大会达成协议，预计到今年 5 月份正式达成。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide11-7.jpeg)
 
+BNI 在一份官方声明中表示，Mayora 银行将转型成为一间数字银行，重点服务于国内的中小企业。另外，BNI 还收购了几间相关领域的知名科技公司加入该数字银行的计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
+早前，智库香港 有分析人士認為，“金融业未来的趋势就是数字化，而数字货币、数字银行将会是未来金融基建的核心。”
 
+参考链接：[🇮🇩 gov’t bank set to enter digibank space via acquisition](https://www.techinasia.com/bni-acquisition-bank-mayora)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-
-
-周日（2022年1月23日），台湾报道称，台湾空军驱逐了39架飞向台湾岛的中共国空军飞机，其中包括 34 架战机、4 架电子战飞机和 1 架轰炸机。这是自去年10月以来中共国空军对台湾防区的最大规模入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-40.jpg)
-据路透社报道，台湾国防部表示，台湾战机迅速采取行动对中共军机进行驱离。 中共国一直声称台湾是自己的领土，并长期在该岛附近空域执行威胁任务。 台湾表示，从去年10月1日开始，共有 148 架中共国空军飞机飞过台湾防空区。
-
-参考来源：
-
-[Taiwan reports largest Chinese air force incursion since October](https://thehill.com/policy/international/591000-taiwan-reports-largest-chinese-air-force-incursion-since-october)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-
-编辑/校对/发稿：兰兰
+总编：天滅中共
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

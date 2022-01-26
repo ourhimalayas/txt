@@ -2,36 +2,32 @@
 ---
 
 
-## 有声|流行病学博士讲述疫苗如何致使器官衰竭
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914253/)
+## 加拿大卡车司机抗议运动筹款已近400万加元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914358/)
 
-配音：香草山佛教部 – 李傻
+作者：加拿大温哥华扬帆农场Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒1月23日的报道，名为“2022年自由车队”的加拿大卡车司机1·29国会山抗议运动，仅仅一周多的时间，筹款已经远超300万加元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.26.png)
+该众筹是由阿尔伯塔省的塔玛拉·利奇发起的，旨在反对特鲁多政府已经于1月15日开始实施的，关于卡车司机出入美加边境时的疫苗接种、测试和隔离等相关规定。募集的资金将用于抗议者的燃料、食物和住宿费用。 截至周日晚上9:30，约有39,000人进行了捐赠。有几十笔数千美元的捐款，包括两笔1万美元的大额捐款。
 
+来自卡尔加里的支持者詹姆斯·鲍德说，除了抗议对大卡车司机的限制，还抗议口罩、疫苗护照，以及无休止地关闭企业。他认为医疗行业已经高度政治化。加拿大卡车联盟CTA周日发表声明，鼓励卡车司机在渥太华国会山合法抗议。截至发稿时间，该笔专项捐款已接近400万加元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地媒体1月23日报道，近日，流行病学博士皮特.麦卡洛在接受乔.罗根的采访时提到，中共病毒疫苗足以造成器官损伤和死亡。截止到目前，疫苗不良事件报道系统已经报告了超过1万八千人死亡，其中3万人在接种疫苗后永久残疾。死亡事件报告中，50%发生在注射后48小时内，80%发生在一周内。
+参考链接：[Anti-vaccine-mandate truck convoy passing through Alberta on way to Ottawa](https://www.cbc.ca/news/canada/edmonton/anti-vaccine-mandate-truck-convoy-alberta-covid-1.6324819)
 
-麦卡洛博士说，注射疫苗后，刺突蛋白在体内产生，数量与持续时间均不受控制。刺突蛋白会损害细胞，受损细胞进入心脏、大脑，破坏凝血的血管，引发心肌炎、心脏病、血凝块等人体器官损伤综合症，进而导致死亡。且中共病毒疫苗对人体的这些影响都是长期存在的。
-
-文字版原文：[流行病学博士讲述疫苗如何致使器官衰竭](https://gnews.org/zh-hans/1906752/)
-
-音频处理：Tom Li
-发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：Ivy001
+编辑：纽约香草山文艺部 – 宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

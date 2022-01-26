@@ -2,35 +2,32 @@
 ---
 
 
-## 中国出生率创六十年新低 中共促生政策失效
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1914219/)
+## “清零政策”逼逃港金融精英
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914355/)
 
-**撰稿：日本东京方舟农场 子辰**
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+迄今为止，香港740万人口累计13,000例新冠感染病例，远低于世界绝大多数国家和地区。但由于落实北京新冠“清零”政策，香港实施了全球最严格的入境规定，只允许本地居民返回，并对来自多数国家的入境人士进行长达三周的强制性自费隔离。即便如此，周日仍然有140例新增感染病例，显然，严格的检疫措施对“清零”并无帮助。目前，没有迹象表明政府会放宽限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.14.png)
+猎头公司和行业高管告诉路透，更多的外籍人士因此正在考虑离开香港。全球银行、资产管理公司和企业律师事务所的从业者，也可能在一季度领到年终奖后离职。香港美国商会最近进行了会员调查，超过40%的受访者表示，他们更有可能离开香港，大多数人认为国际旅行限制是首要决定因素。
 
-据大纪元1月25日报道，中共当局承认，尽管推出了促进生育的政策，但是没有任何效果。中国人口出生率连续两年跌破1%，创六十年新低。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-252.png)（图片来自网络）
-中共国家统计局1月17日称，截止2021年末，全国人口出生率为7.52‰；人口死亡率为7.18‰；人口自然增长率为0.34‰，全国人口出生率已跌至60年来的最低水平。
+根据香港政府统计处的数据，去年来自所有国家的“一般就业政策”签证申请总数下降了三分之一，降至10,073人。金融服务行业的签证申请下降了23%，金融服务人才库会越来越小。
 
-自2021年开始，中共全力推广三孩政策，包括现金奖励和延长产假，以促进生育。但是，中共卫健委承认，这些措施并没有产生明显效果，中国出生率仍在继续下降，三孩政策短期内很难有效。
+参考链接：[Hong Kong’s financial sector faces talent crunch as expats head for the exit](https://www.reuters.com/markets/europe/hong-kongs-financial-sector-faces-talent-crunch-expats-head-exit-2022-01-23/)
 
-另据最新的官方数据显示，中国的结婚登记在2021年前九个月又继续下滑，其中，男多女少性别比例失衡也是导致结婚率不断下降的原因之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-有经济学家分析认为，依照现在看到的趋势，年轻人根本就不愿意结婚，也不愿意生孩子，因为住房、生育、教育、医疗等加起来的高昂成本对于年轻人来说极其沉重。
+总编：Zion文恩
+编辑：百香果
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-从更深层次来看，是过去几十年计划生育政策酿成的恶果，是年轻一代生活在这个无奈的时代对未来失去了基本的信心。对大多数人来说，生存养育成本的提升，即使政府放开生育限制，其生育意愿也很低。
-
-人口出生率持续下降，直降导致人口老龄化比例增加。按照国际划分标准，一个国家或地区65岁及以上人口占比达到14%，即为深度老龄化社会。
-
-最后，经济学家和人口学家分析并警告说，这可能会影响到中国的经济活力甚至政治稳定性。
-
-参考链接：
-1. [https://www.epochtimes.com/b5/22/1/24/n13525292.htm](https://www.epochtimes.com/b5/22/1/24/n13525292.htm)
-2.[https://www.epochtimes.com/b5/22/1/17/n13511372.htm](https://www.epochtimes.com/b5/22/1/17/n13511372.htm)
-
-素材采编：子辰
-编辑：青城道姑
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

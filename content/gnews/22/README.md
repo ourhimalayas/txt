@@ -2,33 +2,26 @@
 ---
 
 
-## 乌克兰局势紧张，美国计划增派8500名美军高度戒备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914270/)
+## 以色列谘询委员会建议为所有成年人接种第 4 剂疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914360/)
 
-作者：纽约香草山 医疗部 – 云豹
+作者：台湾宝岛农场—新中国联邦静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒 24 日报道，随着乌克兰局势的持续紧张，美国总统拜登与欧盟多个国家的领袖举行视像会议，对俄罗斯入侵乌克兰将招致的严重后果表示担忧。
+外媒25日报导，以色列疫情防控谘询委员会周二建议，所有成年人可在疾病康复或接种完加强剂后的 5 个月，接种中共病毒疫苗第四针。目前，该建议已获得当局卫生总干事的批准。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.56.02.png)
+疫情谘询委员会周日在卫生部发言表示，第四剂疫苗为 60 岁及以上人士提供了针对严重疾病的三倍保护以及针对感染的双重防护。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-3.jpeg)
+事实上，以色列在疫苗接种率方面的表现一直稳居世界第一，截至上周末，全国第三剂加强针的接种率高达 55%，可惜的是，与此同时，以色列还是全世界单日确诊率最高的地方，据上周数据显示，以色列单日新增病例突破72000例。
 
-美国国防部发言人柯比宣布，升级美军戒备状态，“美国已采取措施，提升驻守本土及外国部队的戒备等级，以应对一系列的紧急状况，包括支援北约的应急部队，预计将高度戒备的部队成员数目增加到 8500人。”
+不仅如此，接种过三剂中共病毒疫苗的外长拉皮德、财政部长利伯曼等该国政要都相继被爆出染上病毒，其中接种过四剂疫苗的国防部长甘茨最近在推特上发文证实，自己染上中共病毒。
 
-柯比强调，参与增援戒备的部队会涉及战斗部队、情报、侦察，以及医疗和物流支援人员。目前暂时没有具体细节，但随时准备在短时间内进行调动，以配合北约部署。
+参考链接：[Israël/Covid: le comité consultatif recommande une 4e dose de vaccin à tous les adultes](https://www.i24news.tv/fr/actu/israel/1643096435-israel-le-comite-consultatif-recommande-une-4e-dose-de-vaccin-a-tous-les-adultes)
 
-与此同时，北约宣布下令更多部队进入戒备状态，并加强在东部地区的海空部署。北约秘书长斯托尔滕贝格表示，不排除增派战斗部队进入东部。
-
-俄罗斯国防部早前发布影片，显示东区的士兵及物资正积极运往白俄罗斯，以准备下月举行的联合军演。俄军同一时间宣布，已派遣 20 艘战舰及支援船只进入波罗的海，举行军事演习。在最新一期的文贵大直播中，郭先生认为乌克兰的局势背后并不简单，涉及的是中共党魁习近平与俄罗斯总统普京密谋达成的“双头鹰行动”，习近平要拿下台湾，普京将直取基辅，局势将变化莫测，大家拭目以待，但邪恶一定会被消灭。
-
-参考链接：
-1）[烏克蘭情勢緊張 北約調機艦強化東翼 美軍8500人待命赴歐](https://www.cna.com.tw/news/aopl/202201250050.aspx)
-2）[https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html](https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html)
-3）[https://gettr.com/post/pqfmlg539f](https://gettr.com/post/pqfmlg539f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
 总编：天滅中共
 编辑：天滅中共
-校正/发稿：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

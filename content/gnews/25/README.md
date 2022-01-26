@@ -2,23 +2,32 @@
 ---
 
 
-## 1月26日郭先生盖特：天在灭共，全球在灭共
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1914243/)
+## 英国从乌克兰撤出部分大使馆人员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914356/)
 
-撰稿：追着曙光跑
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月24日，英国媒体报道，由于担忧俄罗斯将入侵乌克兰，英国官员表示在基辅工作的大使馆人员约有一半将返回英国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.20.png)
+俄罗斯已经在俄乌边境驻扎了数万名士兵。北约首脑警告说，欧洲存在发生新冲突的风险。北约成员国，包括丹麦、西班牙、保加利亚和荷兰，正在向东欧派遣更多的战斗机和军舰，以加强该地区的防御。
 
-1月26日，郭先生在盖特视频指出，美国这次授权撤离跟中共病毒没有半点关系，撤离事宜已经进行将近两个月了，撤出后就不会再回去，除非没有共产党了。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-00.29.40.jpeg)
-在六四事件、南海军机相撞事件、去年香港反送中事件、以及在去年2021年疫情最严重的时候都没有撤馆，现在授权撤馆，其背后就是给下一步行动提交合法行动的支撑。
+郭文贵最早爆料中俄“双头鹰计划”，即俄罗斯进攻乌克兰，配合中共对台湾的行动。乌克兰地区目前的紧张局势，完全印证了郭先生的爆料。1月24日，郭先生在直播中透露，普京会在边境虚晃一枪，直取基辅，让整个乌克兰跪下。
 
-到目前为止，拜登总统和国务卿布林肯都没有对此发表讲话，即使讲话也会用外交辞令轻描淡写带过，此次撤离大行动已经结束。接下来会有一个个对中共打击更大的行动都会接踵而来。
+参考链接：[Ukraine crisis: UK begins withdrawing embassy staff from Kiev as Russia war fears mount](https://www.independent.co.uk/news/world/europe/ukraine-crisis-uk-embassy-kiev-russia-b1999237.html)
 
-郭先生继续爆出两件跟美国此次撤离有关的事件。一是在昨天直播前有大概20个国家也要准备撤离，撤离后也不打算再回到中共国了。二是在昨天直播之后，在中共国的首都大使馆区，有40多个国家闹着不允许中共对他们进行检测和隔离，要是中共敢这样做，这些国家就撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-最后，郭先生指出，天在灭共，全球在灭共！
+总编：Ivy001
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-信息来源：[MILES GUO on GETTR: 1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友…](https://gettr.com/post/pqo5pu3741)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
