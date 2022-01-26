@@ -2,22 +2,48 @@
 ---
 
 
-## 魁省借防疫限制令侵害未接种疫苗人士
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914180/)
+## 台湾遭遇自10月以来最大规模中共国空军骚扰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914203/)
 
-采编：文莱    编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-7.jpg)
-据加拿大【CTV新闻】1月24日报道，魁省政府当天正式开始执行其新的疫情限制令，该省居民必须出示“新冠病毒”疫苗接种证明才能进入营业面积超过1500平方米的大型商店(包括 Costco、IKEA、Canadian Tire和沃尔玛等）。
+作者：纽约香草山教育部—Naughty(文行)
 
-报道称，该项限制令暂未包括小型杂货店和药品零售商店等商业场所。对此，当局表示实行强制疫苗护照规定的目的是为了减少“奥米克戎”变体病毒的传播。
 
-据悉，省长莱戈还在此前提出了将完全接种疫苗的定义由现在的两剂增改为三剂。此外，当局正在拟定法案对非医疗原因拒绝接种疫苗的人进行严惩和强征税费，该违宪法案最早可能在下个月就被公之于众。苛政猛于疯狗，如今已成为魁北克省最真实的写照。
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
-发稿： 苦尽甜来 (文來）
 
-[原文链接](https://montreal.ctvnews.ca/shoppers-entering-quebec-s-big-box-stores-now-must-have-covid-19-vaccine-passports-1.5751872)
+
+
+
+周日（2022年1月23日），台湾报道称，台湾空军驱逐了39架飞向台湾岛的中共国空军飞机，其中包括 34 架战机、4 架电子战飞机和 1 架轰炸机。这是自去年10月以来中共国空军对台湾防区的最大规模入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-40.jpg)
+据路透社报道，台湾国防部表示，台湾战机迅速采取行动对中共军机进行驱离。 中共国一直声称台湾是自己的领土，并长期在该岛附近空域执行威胁任务。 台湾表示，从去年10月1日开始，共有 148 架中共国空军飞机飞过台湾防空区。
+
+参考来源：
+
+[Taiwan reports largest Chinese air force incursion since October](https://thehill.com/policy/international/591000-taiwan-reports-largest-chinese-air-force-incursion-since-october)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+
+
 
  
 

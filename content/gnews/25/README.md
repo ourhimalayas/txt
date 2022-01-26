@@ -2,48 +2,22 @@
 ---
 
 
-## 台湾遭遇自10月以来最大规模中共国空军骚扰
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914203/)
+## 1月26日郭先生盖特：天在灭共，全球在灭共
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1914243/)
 
-作者：纽约香草山教育部—Naughty(文行)
+撰稿：追着曙光跑
 
+1月26日，郭先生在盖特视频指出，美国这次授权撤离跟中共病毒没有半点关系，撤离事宜已经进行将近两个月了，撤出后就不会再回去，除非没有共产党了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-00.29.40.jpeg)
+在六四事件、南海军机相撞事件、去年香港反送中事件、以及在去年2021年疫情最严重的时候都没有撤馆，现在授权撤馆，其背后就是给下一步行动提交合法行动的支撑。
 
+到目前为止，拜登总统和国务卿布林肯都没有对此发表讲话，即使讲话也会用外交辞令轻描淡写带过，此次撤离大行动已经结束。接下来会有一个个对中共打击更大的行动都会接踵而来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
+郭先生继续爆出两件跟美国此次撤离有关的事件。一是在昨天直播前有大概20个国家也要准备撤离，撤离后也不打算再回到中共国了。二是在昨天直播之后，在中共国的首都大使馆区，有40多个国家闹着不允许中共对他们进行检测和隔离，要是中共敢这样做，这些国家就撤离。
 
+最后，郭先生指出，天在灭共，全球在灭共！
 
-
-
-
-周日（2022年1月23日），台湾报道称，台湾空军驱逐了39架飞向台湾岛的中共国空军飞机，其中包括 34 架战机、4 架电子战飞机和 1 架轰炸机。这是自去年10月以来中共国空军对台湾防区的最大规模入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-40.jpg)
-据路透社报道，台湾国防部表示，台湾战机迅速采取行动对中共军机进行驱离。 中共国一直声称台湾是自己的领土，并长期在该岛附近空域执行威胁任务。 台湾表示，从去年10月1日开始，共有 148 架中共国空军飞机飞过台湾防空区。
-
-参考来源：
-
-[Taiwan reports largest Chinese air force incursion since October](https://thehill.com/policy/international/591000-taiwan-reports-largest-chinese-air-force-incursion-since-october)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
-
-
+信息来源：[MILES GUO on GETTR: 1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友…](https://gettr.com/post/pqo5pu3741)
 
  
 

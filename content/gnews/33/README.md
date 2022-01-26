@@ -2,33 +2,38 @@
 ---
 
 
-## 加拿大商业团体敦促联邦政府撤销对跨境卡车司机的疫苗强制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1913992/)
+## 韩国中共病毒确诊病例首次超8000，创历史新高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914038/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-4-1.jpg)图片来源：CTV
-根据《Global News》1月24 日报道，加拿大商业领袖们正在敦促渥太华放弃对跨境卡车司机的疫苗强制，以缓解与美国之间拥堵的供应链。
+作者: 首尔天池农场—追着曙光跑
 
-总理贾斯汀-特鲁多（Justin Trudeau）周一仍然力挺这项疫苗强制，认为这是保持供应链开放的必要步骤，他认为COVID-19是加拿大经济的最大风险。
 
-但是，加拿大商会和加拿大制造业联盟都在发出声明，努力敦促联邦政府对这项疫苗强制政策作出让步。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+据韩国《KBS新闻》1月25日的报道，截至当天0时，韩国较前一天0时新增感染中共病毒（新冠病毒）确诊病例8571例，创历史新高。
 
-商会主席Perrin Beatty说：”到目前为止，政府一直认为卡车司机提供的服务至关重要，即使在最严重的大流行病浪潮中也应保持供应链的正常运转。“
+其中，京畿道确诊病例最多，为2900例；首尔确诊病例1700例，仁川确诊病例670例；全国累计确诊74.9979万例。当天新增23例死亡，累计6588例，平均致死率为0.88%。现有重症患者392例，较前一天减少26例。另外，全国约有3.2万人在家接受治疗。
 
-Beatty补充说，政府还没有拿出统计数据，表明卡车司机是加拿大COVID-19感染的主要来源。
+上周奥密克戎（Omicron）变种已成为流行毒株，在新增确诊病例中，奥密克戎感染病例占比为50.3%。考虑到奥密克戎的传染率是德尔塔毒株的两倍多，专家预测本周内韩国新增确诊病例将超过10,000例。
 
-卫生部长Jean-Yves Duclos和首席公共卫生官Theresa Tam博士上周在下议院卫生委员会被问及时，都未能提供任何有关COVID-19和卡车司机的数据。
+**新闻来源**: [https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555](https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+总编: Irene木木
 
-Beatty表示：”如果政府有这样的数据，并且一直担心他们构成特别的威胁，那么早就应该有一个专门针对他们的教育计划，他们可以与各省和行业合作，在加拿大各地的边境口岸和卡车站附近设立流动疫苗接种诊所。我们所要求的是，在供应链面临严重压力的时候，推迟实施疫苗强制，用这段时间鼓励疫苗接种。”
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-越来越多的数据表明COVID疫苗有害，当疫苗灾难大规模显现时，那些已经接种疫苗的卡车司机由于疫苗副作用才会给供应链带来打击。
+**更多资讯，更多关注**
 
-而总理特鲁多将如何面对来自四面八方的卡车司机的抗议，他将如何收场？
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：
-[https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/](https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-编辑，发稿 Spirit
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

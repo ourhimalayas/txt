@@ -2,35 +2,22 @@
 ---
 
 
-## 有声|华盛顿反疫苗集会，著名医生表示永不妥协
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914119/)
+## 魁省借防疫限制令侵害未接种疫苗人士
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914180/)
 
-配音：香草山农场 – 纳米
+采编：文莱    编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-7.jpg)
+据加拿大【CTV新闻】1月24日报道，魁省政府当天正式开始执行其新的疫情限制令，该省居民必须出示“新冠病毒”疫苗接种证明才能进入营业面积超过1500平方米的大型商店(包括 Costco、IKEA、Canadian Tire和沃尔玛等）。
 
+报道称，该项限制令暂未包括小型杂货店和药品零售商店等商业场所。对此，当局表示实行强制疫苗护照规定的目的是为了减少“奥米克戎”变体病毒的传播。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月23日，在美国首都华盛顿举行的反对强制疫苗抗议中，理查德·乌索医生发表了振奋人心的演讲，他强烈抨击了主流媒体与政府医疗部门的邪恶做法，并号召人们站出来，为了自己和后代，勇敢的抵制媒体和医疗暴政。
+据悉，省长莱戈还在此前提出了将完全接种疫苗的定义由现在的两剂增改为三剂。此外，当局正在拟定法案对非医疗原因拒绝接种疫苗的人进行严惩和强征税费，该违宪法案最早可能在下个月就被公之于众。苛政猛于疯狗，如今已成为魁北克省最真实的写照。
 
-乌索博士称，反对疫苗强制政策的医生多达17000名，其人数超过美国国立卫生研究院、美国疾控中心、食品药品监督管理局的所谓“权威专家”。他表示，新闻媒体作为一种强大的力量正在掩盖疫苗灾难真相。乌索博士说，虽然由于说真话和反对疫苗强制令，有良知的医生们被解雇和审查，被从维基百科上抹去，但是他们绝不会妥协，因为他们跟觉醒的人们站在一起。
+校对编辑：硫酸羟氯喹64
 
-文字版原文：[华盛顿反疫苗集会，著名医生表示永不妥协](https://gnews.org/zh-hans/1909207/)
+发稿： 苦尽甜来 (文來）
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[原文链接](https://montreal.ctvnews.ca/shoppers-entering-quebec-s-big-box-stores-now-must-have-covid-19-vaccine-passports-1.5751872)
 
  
 
