@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大各地集会抗议疫情限制政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911137/)
+## 战羊秦刚回答新疆问题
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911170/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-38-edited.jpg)图片来源：TNH
+人家说:“新疆问题，你作为一个大使来了，你要有个新的态度，西方很关注。“
 
+（秦刚回答）：“中国的新疆问题就是美国对待华人和黑人的问题，就是你美国过去怎么对待华人的怎么对待黑人的。但是扮演的角色不同的是, 在中国汉人被是当成是美国的黑人，汉人是被新疆人屠杀的种族大屠杀的，而不是汉人屠杀了新疆人。”这是我第一回听说呀！
 
-据加拿大媒体【真北方】1月23日报道：日前，数十个城市的成千上万加拿大人与世界各地的城市协同一致，用自由集会来表达他们对特鲁多政府的疫情封锁措施和疫苗护照的强烈反对。
+他说:〃你们知道吗？在过去几千年的历史长河之中，我们可以给你举出上千个例子，新疆人种族大屠杀了汉人，所有中国汉人过去的这些问题绝大多问题都来自新疆。中国的北方，我们就像你美国的黑人一样，曾经比奴隶还惨。但是现在我们对待新疆人事多好呢？就像现在你看到的我们中国人和很多种族和平相处，我们对待他们像亲兄弟姐妹。” 哇塞，这真的是太夸张了，这个战羊外交已经不是羊了，这已经是魔了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/战羊秦刚回答新疆问题.png)
+发布： *tianzhihuan*
 
-报道称，在此次抗议活动中，多伦多，温哥华，蒙特利尔和渥太华等主要城市都涌现出大量的示威人群，他们举着“我们不会屈服”，“我们要自由和选择”以及“拒绝疫苗护照”等反抗标语，和平游行在市中心的街道上。
-
-此外，本次全国性集会还同时开启了加拿大货运卡车司机车队反抗疫苗护照的抗议行动。他们也于当天在各地自发集结并驱车前往首都渥太华，以此反击当局对他们实施的强制性 疫苗护照和对加拿大自由权利的恣意侵犯和破坏。
-
-* * *
-
-采编：文莱，编译撰稿：苦尽甜来 (文來），校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[Tens of thousands of Canadians protest COVID-19 restrictions at freedom rallies across country | True North (tnc.news)](https://tnc.news/2022/01/23/tens-of-thousands-of-canadians-protest-covid-19-restrictions-at-freedom-rallies-across-country/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

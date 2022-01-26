@@ -2,25 +2,35 @@
 ---
 
 
-## 战羊秦刚回答新疆问题
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911170/)
+## 美国授权驻北京大使馆撤离 各国媒体报道持续发酵
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911227/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 作者：文斗
 
-人家说:“新疆问题，你作为一个大使来了，你要有个新的态度，西方很关注。“
+#### 责编：白夜
 
-（秦刚回答）：“中国的新疆问题就是美国对待华人和黑人的问题，就是你美国过去怎么对待华人的怎么对待黑人的。但是扮演的角色不同的是, 在中国汉人被是当成是美国的黑人，汉人是被新疆人屠杀的种族大屠杀的，而不是汉人屠杀了新疆人。”这是我第一回听说呀！
+美国国务院正式批准在中国的美国外交官和家属离开北京，这一消息在郭文贵先生公告后引发中文世界震撼，世界各国媒体报道也在持续发酵中。
 
-他说:〃你们知道吗？在过去几千年的历史长河之中，我们可以给你举出上千个例子，新疆人种族大屠杀了汉人，所有中国汉人过去的这些问题绝大多问题都来自新疆。中国的北方，我们就像你美国的黑人一样，曾经比奴隶还惨。但是现在我们对待新疆人事多好呢？就像现在你看到的我们中国人和很多种族和平相处，我们对待他们像亲兄弟姐妹。” 哇塞，这真的是太夸张了，这个战羊外交已经不是羊了，这已经是魔了。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/战羊秦刚回答新疆问题.png)
-发布： *tianzhihuan*
+截至北京时间26日10点，报道该新闻的媒体已经超过20家。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+英文媒体有，路透社，新加坡亚洲新闻台（channelnewsasia）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2129.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2130.png)
+墙外中文媒体有，路透社中文、德国之声（DW）、时刻新闻（timednews）、禁闻网、看中国，以及中共大外宣万维网等。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2131.png)
+中共国墙内首先由中共党媒环球时报在26日凌晨1：31分发表《冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”》。环球时报对美国“授权撤离”做了严厉批评。环球时报以一贯的文革批斗口气“来者不善”、“恶劣举措”指责美国“制造恐慌情绪，抹黑中国防疫成效，干扰北京冬奥会成功举行。”
+
+甚至借所谓专家之口用“中共办喜事，美国故意来吊丧”这样的粗俗类比责骂美国。
+
+随后有十几家墙内媒体转载球跟进，包括地方官媒杭州网，以及搜狐、新浪、百度、QQ、网易、千龙网等。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2132.png)
+新闻来源：
+1、新加坡亚洲新闻台https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611
+2、路透社
+https://www.reuters.com/article/usa-china-diplomats-idUSL1N2U528B
+3、环球网
+https://world.huanqiu.com/article/46YF9AQJeYc
+4、杭州网
+https://news.hangzhou.com.cn/gnxw/content/2022-01/26/content\_8155156.htm
 
  
 
