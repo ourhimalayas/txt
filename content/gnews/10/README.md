@@ -2,34 +2,38 @@
 ---
 
 
-## 美欧政治经济与中共双脱钩 直捣俄罗斯背后金主
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1913723/)
+## 近四周英国18 周岁以上新冠病毒患者89%接种了两剂或三剂新冠疫苗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913880/)
 
-作者：波士顿五月花 Frankie 背靠背
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-22-at-11.41.07-AM.png)图片来源：互联网
-《华尔街日报》1月22日消息，德国为阻止北约盟友爱沙尼亚向乌克兰提供军事支持，拒绝发出向乌克兰出口武器的来自德国的许可。目前乌克兰正在为俄罗斯“可能的入侵”做准备。乌克兰国防部长Oleksiy Reznikov表示，德国在向乌克兰交付武器方面非常犹豫。 [【1】](https://cn.wsj.com/articles/%E5%BE%B7%E5%9B%BD%E9%98%BB%E6%AD%A2%E5%8C%97%E7%BA%A6%E7%9B%9F%E5%8F%8B%E5%90%91%E4%B9%8C%E5%85%8B%E5%85%B0%E5%87%BA%E5%8F%A3%E5%BE%B7%E5%9B%BD%E9%80%A0%E6%AD%A6%E5%99%A8-11642812355)
+编者：寻文客
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367.jpeg)
+1 月22 日，英国《每日邮报》(Daily Expose) 发布的一篇报导称，根据英国卫生安全局提供的最新数据，在2021 年12 月20 日至2022 年1 月16 日期间，英国所有新冠病毒新增病例中，接种了两剂或三剂新冠疫苗的人占了绝大多数。 [1]英国卫生安全局每周都会发布一份新冠病毒疫苗监测报告[2] ，其中包含按新冠疫苗接种状态划分的新冠病毒病例、住院和死亡数据。最新报告[3]于1 月20 日发布。
 
-**美欧与中俄政治军事全方位角力，从哈萨克斯坦骚乱，俄乌边界局势紧张，到南海和中东军事动作频频。**1月22日，乌克兰总统签署命令，决定制裁多家俄罗斯公司及俄官员，强力回应俄罗斯。21日，俄国总统普京警告，俄国准备采取“军事-技术措施”，来回应西方就乌克兰冲突的“不友善”行为。
+报告显示，在2021 年12 月20 日至2022 年1 月16 日期间，英国约有290 万新冠病毒确诊病例，其中约有220 万病例是新冠疫苗完全接种者（即接种了新冠疫苗两剂及以上）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2186.png)
+然而，在其中18 岁以上的240 万新冠病毒确诊病例中，有超过210万病例是新冠疫苗完全接种者。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2185.png)
+2021 年12 月20 日至2022 年1 月16 日这四周的新冠病毒确诊病例中，新冠疫苗完全接种者占比达到73%；而把目光聚焦到18 岁以上的病例，新冠疫苗完全接种者占比更是达到惊人的89%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2187.png)
+英国首相Boris Johnson 于当地时间1 月19 日表示，自1 月27 日起取消大部分新冠病毒限制政策[4] ，包括：当地的大型活动将放弃使用中共病毒疫苗护照政策，同时，英国民众在出入公共场所时也不需要继续提供中共病毒疫苗接种证明。此外，民众将不再被强制要求佩戴口罩。英国的新冠疫苗政策已基本宣告结束。
 
-20日美国总统拜登表示，俄罗斯入侵乌克兰将付出沉重代价。不仅如此，当天美军第七舰队「本福德」 号（USS Benfold）导弹驱逐舰昨日进入南海西沙群岛附近，在中共国声称的领海范围进行操练，还罕见发表图片打脸中共南部战区发言人田军里的“警告驱离”谎言。同日中俄伊通过军演强硬回应，伊朗武装部队的公共关系官员塔吉欧丁(Mostafa Tajoldin)宣布, 中俄伊将进行代号为“2022海上安全带(2022 Marine Security Belt)”联合军演。
+参考来源
 
-众所周知，中共是俄罗斯背后大金主。郭文贵先生大直播指出，中共和俄罗斯在政治上有共同利益，双方似已达成默契，即俄罗斯取乌克兰，中共取台湾。
+[1] [https://dailyexpose.uk/2022/01/22/89-percent-covid-cases-among-triple-vaccinated/](https://dailyexpose.uk/2022/01/22/89-percent-covid-cases-among-triple-vaccinated/)
 
-**中共是乌克兰第一大贸易伙伴。**根据中共国海关统计，2021年前11个月，中乌货物贸易额达173.6亿美元，同比增长31.7%，再创历史新高，中共国继续稳居乌第一大贸易伙伴国地位。
+[2] [https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)
 
-**乌克兰是中共武器进口第三大供应商。**中共最大武器供应商是俄罗斯，第二是法国。中共从乌克兰进口最重要武器就是瓦格良号和航空发动机。据SIPRI武器交易数据显示，乌克兰供应许多中共军方急需的航空发动机。其中包括16套曾装备于052B导弹驱逐舰上的DT-59燃气涡轮发动机和50台6TD-2型柴油发动机，另外AI-222涡轮发动机还有待陆续交付。此外，还有3艘全球最大气垫登陆船Zubr、3架伊尔78M运输机已交付中共[【2】](https://baijiahao.baidu.com/s?id=1598094927152286978&amp;wfr=spider&amp;for=pc)
+[3] [https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachmentdatasurveillance − report − week − 3 − 2022.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachmentdatasurveillance%20−%20report%20−%20week%20−%203%20−%202022.pdf)
 
-从上述武器可以看出中共对台湾发动侵略战争的准备，比如航空发动机、全球最大气垫船和运输机对中共军队登录台湾作战都将起着关键作用。
-
-郭文贵大直播指出俄罗斯只是从中共身上赚钱，中俄所谓同盟关系完全是建立在金钱利益之上，中俄从历史、文化、地缘安全各方面都充满矛盾，永远不可能达成同盟，至多是和平共处。因此，当美欧对中共政治和经济双方面脱钩时，中共一直以来实行的，通过牺牲十四亿中国人健康利益换取西方外汇，与以达沃斯党为首的 西方少数邪恶沼泽地势力共享的这条环路即将被打破，当俄罗斯不能从中共获取利益时，俄罗斯就是卖共灭共的重要力量。
+[4] [https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd](https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd)
 
 * * *
 
-*编辑 & 发布：Vicky*
-
-参考链接：[【1】德国阻止北约盟友向乌克兰出口德国造武器](https://cn.wsj.com/articles/%E5%BE%B7%E5%9B%BD%E9%98%BB%E6%AD%A2%E5%8C%97%E7%BA%A6%E7%9B%9F%E5%8F%8B%E5%90%91%E4%B9%8C%E5%85%8B%E5%85%B0%E5%87%BA%E5%8F%A3%E5%BE%B7%E5%9B%BD%E9%80%A0%E6%AD%A6%E5%99%A8-11642812355)
-
-[【2】](https://baijiahao.baidu.com/s?id=1598094927152286978&amp;wfr=spider&amp;for=pc)**[揭中国三大武器供应商：俄罗斯第一，乌克兰第三，另一个没想到](https://baijiahao.baidu.com/s?id=1598094927152286978&amp;wfr=spider&amp;for=pc)**
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

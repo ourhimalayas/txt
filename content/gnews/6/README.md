@@ -2,28 +2,29 @@
 ---
 
 
-## 特种作战司令部的高级将领对COVID-19的检测结果呈阳性
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1913789/)
+## 1.25大直播后记：共产党的定海神针消失
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1913916/)
 
-素材：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-4.01.23-PM-2.png)图片来源：互联网
-美国特种作战司令部负责人周日对COVID-19病毒检测呈阳性，使他成为本月感染该病毒的最新高级国防官员。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12121.png)
 
-指挥部发言人科特-凯洛格（Curt Kellogg）上校在一份电子邮件声明中说，理查德-D-克拉克（Richard D. Clarke）将军有 “非常轻微的症状”，他将远程工作，将自己与其他人隔离。
 
-凯洛格说，克拉克将军已全面接种疫苗，并已接受了强化注射。本月他没有出现在其他高级文职国防官员或参谋长联席会议成员的身边。
 
-理查德-D-克拉克测的消息是在参谋长联席会议主席马克-米利将军以及海军陆战队司令大卫-伯杰将军都对COVID-19检测呈阳性后的一周发布的。
+图片来源：雅典娜设计组（姐夫说说）
 
-米利和伯杰的发言人当时都说，这些官员仍然能够远程履行他们的职责。
 
-本月早些时候，国防部长劳埃德-奥斯汀对COVID-19检测呈阳性，在家工作了大约一周后才回到办公室。
+整理：雅典娜速记组
+编辑：Sadhu
 
-* * *
+他们外国政要说我们还有3周，我说那就赶快开始吧，我都睡不着觉了，他就开始了。美国政府叫授权撤离，总统批完国会也知道。 授权撤离的理由是什么呢？说因冠状病毒，哈哈，这就是政治。而且我告诉大家一个秘密，这次的撤离决不再回去。 不是断交啊，你们可记住啊，世界上最大的大使馆是哪呀？ 当年的伊拉克，伊拉克完了，才是北京。 北京对美国大使馆定义为什么进入亮马河桥？还有北京，你看看北京有一个叫东南角叫CBD，叫金融区，伦敦有个金融城，东侧东南角。 巴黎也有一个金融街，东南角，东京也有一个，金融街东南角，你查查全世界有钱的都在城市东南角，这叫中国人左青龙，右白虎。 所以你们家厨房一定放在东南角和南侧别放西侧啊，真有风水的。大使馆在哪儿是经过看定的，从大清朝在那儿，后来南京重庆，最后定外秀水街5号，3号还是5号然后又到了今年的安外50号。 共产党内部说那个大使馆就是中国共产党的定海神针。 现在定海神针没了。 大使馆区就刚刚过去几个小时，最起码20个国家的大使告诉我说，兄弟，现在你给了我一个惊喜，没有人相信。我刚才就说了，他们都不信。
 
-*编辑&发布：Vicky*
+发布：星谕
 
-原文链接：[Special Operations Command’s top general tests positive for COVID-19](https://thehill.com/policy/defense/591052-special-operations-commands-top-general-tests-positive-for-covid-19?utm_source=thehill&amp;utm_medium=widgets&amp;utm_campaign=es_recommended_content)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

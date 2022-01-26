@@ -2,33 +2,34 @@
 ---
 
 
-## 超发人民币为了解决新生儿人口荒可行吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1913523/)
+## 美国将撤离驻北京大使馆 灭共第三道大门开启
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1913716/)
 
-撰稿人：信心满满
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-11.png)网络截图
-中共国济学者任泽平日前撰文，建议“政府每年多印人民币2兆元，用10年让社会多生5000万个孩子”，引发许多批评和讨论.
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月25日，郭文贵先生代表新中国联邦，在直播中正式宣布，美国政府已经正式通知北京政府，即日起，授权撤离美国驻北京大使馆，立即生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-431.jpg)
+自2017年以来，郭先生发起的爆料革命致力于推翻中国共产党，揭露了中共在新疆、西藏的种族大屠杀，以及在香港发生的大屠杀。郭先生最早向全世界发出警告，共产党正有计划有组织地对西方的民主法治社会进行猛烈攻击，并释放生化武器，黑暗即将到来。
 
-2020年中国出生率为每千人8.52人，低于2019年的10. 41人。跟据 《中国统计年鉴2021》 的数据。这个数字是自1978年以来首次降至10以下。
+郭先生非常支持和欢迎，拜登总统和布林肯先生做出的此项重大政治决定，并代表全球的新中国联邦人，对拜登总统，布林肯先生，致以衷心的感谢。
 
-第七次全国人口普查显示，2020年中共国登记新生儿1200万，育龄妇女生育率1.3低于预期
+这项决定对揭露中共病毒真相，停止疫苗灾难，停止新疆大屠杀，停止在世界上继续发生的各种人道灾难，有着巨大的帮助。这是新中国联邦和全球正义人士维护法治、人权的巨大胜利。历史会证明，这项决定会超过任何一届美国总统对正义的维护。灭共的第三道大门，由此正式开启。
 
-中国出生人口数呈现出长期下降波动的趋势，反映80年代时期邪恶计划生育政策的结果。后来生育政策“开小口”，出现过一个出生人口的小高峰。2014年开始，中共国相继实施“单独两孩”和“全面两孩”政策，2016出生人口达到1786万人，成为2000年以来出生人口规模最高的年份。2017年中国出生人口1723万人，虽比2016年小幅减少，但仍明显高于2011-2015年年均出生1644万人的水平，是2000年以来历史第二高值。
+参考链接：[2022年1月25日 紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](https://gtv.org/video/id=61f00abe28a108147c625eb0)
 
-然而，根据上海社会科学院2019年的一份报告，生活在上海高档静安区的一个家庭平均每个孩子从出生到初中的花费接近84万元，通常到15岁结束，其中仅教育就花费了51万元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-上海静安区和闵行区的年收入在5万元以下的低收入家庭，将70%以上的收入花在了孩子身上。
+总编: 天滅中共
+编辑：文特
+校正/发稿：Fei797
 
-这些是中共国存在的普遍现象，高昂的成本和作为独生子女长大的压力，以及抚养父母的期望，使许多年轻人不愿拥有自己的孩子。在这种现实压力下，年轻人只有选择躺平不生娃。
-
-邪恶共产党看到没有可奴役的新生的力量， 就退出如此荒唐的提议。 如果提议又成为可以执行的政策，不符合经济规律的提前超发货币，最终是老百姓买单，通货膨胀，货币加速贬值是不可避免的。共产党邪恶，独裁体制不被彻底改变，老百姓永远被奴役和被中共红色家族控制。
-
-但是，令人欣喜的事文贵先生引领爆料革命灭共步伐从没停止，文贵先生在直播中提到的甜蜜蜜运动是人类从古到今积极快乐灭共行动。这个行动是音乐灭共开始，它没有使用任何军事设施导致人员大量伤亡来灭共。这个行动正在开启，希望有更多清醒的百姓能站起来为推翻中共而一起努力。
-
-资料来源
-
-[https://economictimes.indiatimes.com/news/international/world-news/chinas-birth-rate-falls-to-four-decade-low-report/articleshow/87896125.cms?utm\_source=contentofinterest&utm\_medium=text&utm\_campaign=cppst](https://economictimes.indiatimes.com/news/international/world-news/chinas-birth-rate-falls-to-four-decade-low-report/articleshow/87896125.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
