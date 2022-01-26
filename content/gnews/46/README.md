@@ -2,10 +2,32 @@
 ---
 
 
-## 新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1909301/)
+## GTV新闻访谈简报|2022年1月25日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1911206/)
 
-![img](https://media.gettr.com/group28/getter/2022/01/25/17/2500a3c8-9287-5099-0472-41edab12734d/b7733666aeff3715eb904aaac4bb7e90.jpg)![img](https://media.gettr.com/group18/getter/2022/01/25/17/1414e681-5d2c-4f55-612f-e22aa48475e0/6433b9fbd9904af40cff23c953c59c41.jpg)
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-3.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.25  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f0a3dd28a108147c62cdf9)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

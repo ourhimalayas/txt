@@ -2,35 +2,31 @@
 ---
 
 
-## 印度爆发反疫苗强制接种抗议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906754/)
+## 美国政府正式宣布撤离其驻北京大使馆
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1908792/)
 
-撰稿：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月23日，在印度梅加拉亚邦中共病毒病例激增的情况下，反接种疫苗的抗议者在首府西隆组织了一次集会，反对该邦政府的疫苗强制接种行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-74.jpg)
-这次集会由非政府组织觉醒印度运动（AIM）组织，AIM主席说，政府强制接种疫苗，侵犯了人们选择疫苗注射的基本权利。
+加拿大温哥华扬帆农场 硫酸羟氯喹64
 
-根据印度国家卫生局的报告，该邦1月22日创下了406例的单日中共病毒确诊病例历史最高纪录。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-12-edited.png)图片来源：盖特
 
-观察人士称，反对强制疫苗接种的运动正以不可逆转的态势，从欧美国家迅速向世界各地蔓延，世界范围的强制疫苗接种一定会很快停止。
 
-参考链接：[印度爆发反疫苗强制接种抗议](https://www.canindia.com/amid-rising-covid-cases-anti-vaccine-protesters-rally-in-meghalaya/)
+据[枫叶快讯]记者1月25日报道，[新中国联邦创]始人[郭文贵]先生在美东时间当天上午10点，进行了GTV和盖特的紧急直播，并公告天下：美国政府即日起将按计划逐步撤离和关闭其在中共国驻北京的大使馆。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+对此，文贵先生在直播中表示，继中共政权2年前故意在全世界释放“新冠病毒”涂炭生灵以来，不仅毫无收敛其邪恶行径，反而变本加厉地继续实施种族灭绝和各项反人类罪行。并同时在全球推出病毒疫苗计划，再次为祸人间。现在又企图通过举办冬奥会，来重踏纳粹党魁希特勒在1935年举办的柏林奥运会之历史覆辙。
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
+[新中国联邦]为维护正义的需要，为拯救人类的必须，已成为5年来唯一勇敢抗争中共暴政，并向世人揭露病毒来源及疫苗真相，提前预告即将到来的疫苗灾难和经济危机等的正义力量。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+有鉴于此，美国政府在全力与[新中国联邦]合作并完全掌握了中共政权以上各项反人类罪行的证据之后，由总统拜登和国务卿布林肯共同正式宣布，将史无前例地逐步撤离和关闭美国驻中共国北京大使馆，以表示对[新中国联邦]正义的支持和即将反击中共以超限战对美国的侵略和杀戮。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+至此，[新中国联邦]和文贵先生引领的[爆料革命]，通过一次次的呐喊和经年累月的不懈战斗，不仅再度唤醒和凝聚了全世界有良知的正义之师，更体现了在与中共政权鏖战的艰苦过程中获得的又一次令人鼓舞，具有里程碑式的关键胜利。
+
+* * *
+
+采编：Quitman 编辑撰稿，发稿：硫酸羟氯喹64
+
+新闻来源：
+
+[https://gettr.com/streaming/pqha4z557d](https://gettr.com/streaming/pqha4z557d)
 
  
 

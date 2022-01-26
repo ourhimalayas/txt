@@ -2,33 +2,32 @@
 ---
 
 
-## 1.24大直播后记：郭文贵先生在中学的威风史
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911749/)
+## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
 
-整理：雅典娜速记组
-编辑：小红帽
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
+图片来源：gnews.org
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/b601590bfa66f888-1.png)图片来源：雅典娜设计组
+旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
 
+随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
 
-这老师现在也出来了，到了东欧去了。过一段时间也会出来的，也会出来爆料。爆料就爆郭文贵。
+接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
 
-我（小时候）上的当地的学校–北兴隆小学，然后到我们镇上的镇中学。那镇中学就不是一般人去的了啊。然后，就上了矿中学。矿中学属于中央机构。我到了矿中学（后），从这个3楼跳下来的事，就是我们的老师亲自经历的。他当着3000多个学生每天上这个体育课。我穿喇叭裤。 学校不准穿喇叭裤留长发，我就留长发，穿喇叭裤。郭文贵，违犯校规穿喇叭裤。咔嚓，拿剪子给我缴了。我说，老师你再给我讲那个，我就跳下去。他还要讲，我直接从3楼（跳下去）。3楼不是那个3楼露台，（是）2楼的顶部，（也）就是3楼那个露台。 那（个地方）也很高啊，一定会摔死的。我就不相信。我没摔死啊。
+新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
 
-他会亲自讲给你们（听），当时郭文贵怎么跳下去的。从那以后，全校学生、老师没有人敢欺负我了。这小子不要命吧？什么学校的流氓老师，体育老师，最坏的老师，那白老师，最狠的老师，从来谁都敢打，都不敢打我。这七哥的未来故事还早着呢。
+##### 新闻来源：
 
-你看，这一个照片已经（在）京城惊动了万层浪是吧？ 一个照片惊动了万层浪。脚滑子啊。三脚驴（音译），赵家沟已经成为国内现在大家的（热议的）名词了。就最近几天听说东北滑脚滑子。这个单腿驴（是）啥意思，知道吧？这样的一个板儿放钢丝在下面，上面坐一块板。这一块板，这个上面弄一个板坐上去。你坐上去以后，拿俩棍撑着滑。你看这动作，七哥滑着三脚驴，还卖糖葫芦。 现在（在）东北已经流行（脚滑子）了。
+##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
 
-这故事多着呢。Eglise问的非常好。你们一定会见到我多个老师，包括看守所的老师。你们会震惊的。
+##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
 
-*发布：tianzhihuan*
+##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
+
+##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
 
  
 

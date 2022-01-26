@@ -2,31 +2,30 @@
 ---
 
 
-## 流行病学博士讲述疫苗如何致使器官衰竭
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906752/)
+## 新中国联邦欢迎和支持美国政府作出授权撤离美国驻中国大使馆
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1908643/)
 
-撰稿：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-当地媒体1月23日报道，近日，流行病学博士皮特.麦卡洛在接受乔.罗根的采访时提到，中共病毒疫苗足以造成器官损伤和死亡。截止到目前，疫苗不良事件报道系统已经报告了超过1万八千人死亡，其中3万人在接种疫苗后永久残疾。死亡事件报告中，50%发生在注射后48小时内，80%发生在一周内。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-72.jpg)
-麦卡洛博士说，注射疫苗后，刺突蛋白在体内产生，数量与持续时间均不受控制。刺突蛋白会损害细胞，受损细胞进入心脏、大脑，破坏凝血的血管，引发心肌炎、心脏病、血凝块等人体器官损伤综合症，进而导致死亡。且中共病毒疫苗对人体的这些影响都是长期存在的。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/56ba3b699e96a299bb1b344ef0c4f2bb.jpeg)
+图片来源：1.25号文贵直播截图
 
-参考链接：[流行病学博士讲述疫苗如何致使器官衰竭](https://beforeitsnews.com/health/2022/01/the-big-logic-dr-peter-mccullough-talks-about-how-covid-19-vaccines-can-cause-organ-failure-plus-video-3044174.html)
+2022.1.25 郭文贵先生重大宣布：
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+就在刚刚，我们得知非常重要的，由美国政府拜登总统 和布林肯先生做出了重大的决定。
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+这个决定是由美国的法治，和多个爱护民主、法治的人，以及无数个全球的各民族、各国家的爱好正义的人士对冬奥会的抵制以及对人权的维护，对法治的维护做出的正确决定！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+美国政府已经正式通知北京政府，从即日起叫做授权撤离美利坚共和国驻北京大使馆！
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+这是一个重大的决定！
+
+我们非常地欢迎和支持美国总统拜登先生，和布林肯先生做出这个巨大的政治决定，它对抵制北京冬奥会，找到病毒真相，停止疫苗灾难，停止新疆大屠杀、种族大屠杀，停止在世界上发生的、继续发生的各种人道灾难 ，这是巨大的帮助。 这是新中国联邦和维护法治、维护人权(的)全球人民的胜利！
+
+我们感谢布林肯先生有这样的智慧，感谢美国总统拜登先生，做出这样伟大的决定！ 历史会证明，这会超过美国总统，任何一次对人类和人权的维护的意义！ 上天、上帝会保护你们！ 全球的人民会感谢你们！
+
+郭文贵Miles Guo代表全球的新中国联邦人民，在此对美国总统拜登先生和布林肯先生以及美国人民致以衷心的感谢！ 我们永远地和你们奋斗在一起，直到消灭一个绑架中国14亿人民，和威胁全人类安全的共产党为止，我们将永远地建立一个与美国，和世界的文明社会千年的和平关系。
+
+一切都是刚刚开始！ 谢谢！
 
  
 
