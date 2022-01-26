@@ -2,33 +2,35 @@
 ---
 
 
-## 法官暂停拜登对联邦员工的疫苗命令
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1913277/)
+## MV版Hcoin To the Moon上线48天第31次位列匈牙利iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1913284/)
 
-**翻译：日本东京方舟农场 A Little Tiger**
+1/26/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线48天第31次位列匈牙利iTunes摇滚音乐视频榜榜首，第48次位列前三名
 
-一名联邦法官在周五命令暂停拜登要求所有联邦雇员必须接种疫苗不然会失去工作的命令，他表示拜登已经越权。杰弗里文森特布朗（Jeffrey Vincent Brown），一名特朗普任命的德克萨斯州的法官，发布了这条全国禁令。
+* * *
 
-在他的决定之前，最高法院在上周做出决定暂停了另一项拜登对大企业的疫苗要求。在拜登政府颁发的四项大型疫苗指令中，三项现已被阻止。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-20.png)（图片来源：washingtontimes.com）
-布朗法官表示，涉及联邦工作人员的案件与人们是否该接种疫苗无关，他说，“法院认为他们应该接种疫苗。” 这也不是关于整个联邦政府是否可以要求员工接种疫苗。而是作为首席执行官的拜登是否能发出一道让数百万人接受医疗程序的命令。法官裁定：“根据最高法院最近发表的当下法律状态，这太过分了。”
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-白宫新闻秘书珍萨奇（Jen Psaki）在决定做出不久后表示，下一步的行动应由司法部决定，但她表示疫苗令的想法已经奏效。“首先，让我告诉你，98%的联邦员工都已经接种了疫苗，这是个很了不起的数字，“她说。她还表示，当局“对我们的法律权限很有信心。”
+* * *
 
-在向布朗法官辩护时，拜登政府指出总统有权利制定管理联邦员工行为和就业条件的规则和条例。司法部的律师表示接种疫苗属于员工的在职行为。而挑战疫苗令的联邦医疗自由组织辩论说，接种疫苗不是行为，而是一种状态。即使它被判定为行为，接种疫苗也不算“职场”行为。布朗法官同意了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
 
-布朗法官说，最高法院上周对大型企业疫苗令的裁决发现，病毒并不是一个在工作场所独有的问题，所以不能将疫苗令强行说成是工作行为的命令。布朗法官正在赶在1月21日之前，这是参与此案的原告可能面临处分的最早时间。法官说，他的命令适用于所有联邦员工，不只限于联邦医疗自由组织，因为尝试制定一个狭窄的禁令是不切实际的。
 
-拜登团队去年实施的四项疫苗令包含了联邦员工、联邦承包商、100名员工以上的企业和由联邦资金通过医疗保险或医疗补助资助的医疗人员。其中，只有医疗人员的疫苗令还在实行，覆盖约1000万人。
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-最高法院上周裁定国会确实赋予了拜登团队在医疗领域的行政权力。但法官们阻止了大型企业的疫苗令。联邦承包商的疫苗令也被下级法院阻止。
-
-原文链接：
-[https://www.washingtontimes.com/news/2022/jan/21/texas-federal-judge-halts-bidens-covid-19-vaccine-/](https://www.washingtontimes.com/news/2022/jan/21/texas-federal-judge-halts-bidens-covid-19-vaccine-/)
-
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：文曦
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

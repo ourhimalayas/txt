@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗政策的推动，才是真正的灾难
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913582/)
+## 新中国联邦和各国人权或公益机构建立秘密、安全、可信赖的关系
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913613/)
 
 台灣寶島農場
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 2:03 PM (UTC)`
+
+1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友的付出……和文贵一起奋斗消灭这个邪恶的中国共产党……一切都已经开始。
+![img](https://media.gettr.com/group5/getter/2022/01/26/14/aebf84b8-d2d8-2c21-64a4-e401422ebcec/out.jpg)
+
+---
+
 `@miles 1/26/2022 1:26 PM (UTC)`
 
 1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告<br/><br/>January 26, 2022 CNN news: US embassy in China authorised to departure which verifies Miles Guo’s important announcement yesterday.<br/><br/>https://www.cnn.com/2022/01/26/china/china-us-embassy-authorize-departure-intl-hnk/index.html
@@ -145,13 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者，他只能别无选择的看着这些病人死去。最终，邪恶的医院结束了他的医学生涯。<br/><br/>Dr. Paul Marik was forbidden by the hospital to treat patients with the CCP virus the way he had to be to treat patients ; he had no choice but to watch them die. Eventually the evilness of the hospital ended his medical career.<br/>
 ![img](https://media.gettr.com/group33/getter/2022/01/25/12/f280b918-d4ac-437c-c4d7-56af0ff8a01c/out.jpg)
-
----
-
-`@miles 1/25/2022 7:25 AM (UTC)`
-
-1/24/2022 Miles Guo: History is repeating itself, and God is on the side of the New Federal State of China! Thank Xi Jinping for hosting a grandiose Winter Olympics - spending a ton of money to let Putin stay 20 hours longer, changing the banquet venue from the Pangu Plaza to the Great Hall of the People, putting the athletes into the "cells", and deploying State Security agents everywhere in the dining halls.<br/><br/>1/24/2022 文贵直播：历史在重演，上天站在新中国联邦这边！感谢习太阳大办冬奥会 - 花大价钱让普京多呆20小时，宴会场所从盘古改到人民大会堂，让运动员进入“牢房”，餐厅到处是国安。<br/>
-![img](https://media.gettr.com/group19/getter/2022/01/25/07/c6eaa58d-07a0-b71a-8209-5bf4f001fb91/out.jpg)
 
 ---
 

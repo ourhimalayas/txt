@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党正有计划、有组织对西方民主社会进行猛烈攻击，甚至释放生化病毒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913550/)
+## 疫苗政策的推动，才是真正的灾难
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913582/)
 
 台灣寶島農場
 
