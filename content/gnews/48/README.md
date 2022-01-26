@@ -2,29 +2,20 @@
 ---
 
 
-## 国际货币基金组织要求萨尔瓦多不要将比特币作为法定货币
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1912752/)
+## 中日财经爆┃联想也要造芯了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1912940/)
 
-#### 撰稿：彩虹
+撰稿：东京樱花团｜喜马拉雅的微尘
+![](https://lh6.googleusercontent.com/INddn5XsoxauCE_SOgTxSEgjyF8AzMyqk1gxdYVbOk-sO1ChUrxtrzJua862A-v4p0ybtE3ygIFAZAB3_WepcHnvV2-8Rj8iD3aruwQB4HvMCEYomuhZMehcBSNCtv99seBSp3Sq)[*图片来源*](https://www.sohu.com/a/352192651_118680)
+据南方财经1月26日报道，企查查App显示，1月26日，鼎道智芯（上海）半导体有限公司成立，法定代表人为贾朝晖，注册资本为3亿元人民币。公司经营范围包含：集成电路设计；集成电路销售；软件开发；软件销售；硬件开发等。企查查股权穿透显示，该公司由联想（上海）有限公司100%控股。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-6.jpg)图片来源：Trend Fool
-据《国会山报》1月25日报道，周二，国际货币基金组织（IMF）执行董事会警告萨尔瓦多（El Salvador），不要将比特币（Bitcoin）作为法定货币，该董事会声明呼吁“对新的生态系统进行严格监管监督”。
+另外据官方消息，本季度联想集团营收948亿人民币；税前利润21.7亿人民币，同比增长达到45%。净利润实现14.2亿人民币，年同比增长达到20%。
 
-该声明是在董事会的年度会议之后发布的。声明中说：“他们【董事会成员】强调，使用比特币对金融稳定、金融诚信和消费者保护，以及相关的财政或有负债（Contingent liabilities）有很大的风险。他们敦促当局以取消比特币的法定货币地位，从而缩小比特币法律的范围。一些董事还对发行以比特币为支撑的债券所产生的相关风险表示担忧。”
+信息来源：[**联想于上海成立半导体公司，注册资本3亿元**](https://finance.sina.com.cn/tech/2022-01-26/doc-ikyamrmz7551821.shtml)
 
-报道说，萨尔瓦多共和国在2021年9月份成为了第一个采用加密货币作为法定货币的国家，从而要求企业接受比特币作为法定支付的方式。
-
-此举促使国际货币基金组织董事会多次建议萨尔瓦多推翻这一决定，并提出了对经济和法律问题的担忧。
-
-另据《路透社》报道，该国正准备发行10亿美元的债券，其中一半将用于购买比特币，发放给拉乌内（La Union）东部的一个地区，计划创建世界上第一个“比特币城市”。据通讯社报道，政府预测这种风险将吸引投资者，他们将获得6.5%的美元收益率，远远低于目前市场上类似萨尔瓦多政府债务的大约17%的价格。
-
-然而，在目前的政策下，国际货币基金组织警告说，（萨尔瓦多）的债务可能在2026年上升到约国内生产总值的86%，称这是一个“不稳定的方法路径”。
-
-**新闻来源**
-
-[IMF urges El Salvador to remove bitcoin’s status as legal tender](https://thehill.com/policy/international/americas/591320-imf-urges-el-salvador-to-remove-bitcoins-status-as-legal-tender)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

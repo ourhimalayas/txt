@@ -2,27 +2,39 @@
 ---
 
 
-## 我们能从天上找到UFO吗？
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1913849/)
+## 抗议疫苗暴政，欧盟首都布鲁塞尔爆发最大规模示威抗议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1913917/)
 
-素材整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-4.43.39-PM-1.png)图片来源：互联网
-2021年6月25日，美国国家情报局局长办公室（ODNI）的一份报告中对不明飞行物（UAP，以前称为UFO）进行了陈述。在ODNI报告的六个月后，拜登总统在国会两党的支持下签署了法律，成立了一个新的UAP办公室。该办公室将在2022年6月之前运作，将开始协调报告和应对UAP的工作，并大大改善政府机构之间关于UAP发现的数据共享。
+作者：台湾宝岛农场 – dobi、纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒 24 日报道，五万多来自法国、德国等多个欧洲国家的民众，上周日聚集在欧盟首都比利时，针对最近越来越苛刻的疫苗强制措施，举行了大规模的示威活动。比利时当局派出多组防暴警察，出动水炮车及催泪瓦斯驱散和平抗议的民众，引起警民冲突，现场一度相当混乱。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-93.jpg)
+针对该事件，比利时首相在社交平台发文指，“每个人都有发表意见的权力，但永远不接受示威者不加选择的暴力行为。”
 
-该办公室旨在解开UAP的本质。除了在未来几个月将在哈佛学院天文台的屋顶上建造第一个望远镜系统外，该项目还计划利用Planet Labs的数据从高空搜寻UAP。
+这是布鲁塞尔近两个月内发生的第五次反疫苗暴政的示威抗议，也是迄今为止规模最大的一次。
 
-一旦确定了地外物体，挑战就转移到了弄清其目的上。了解来访者的意图对于指导我们如何与他们接触是最重要的。与地外来客的相遇很容易被误解，就像希腊神话中的特洛伊木马故事一样，特别是如果客人的人工智能系统比我们的自然智能要先进得多。
+随着奥密克戎毒株的传播，欧洲多国政府近期屡次收紧防疫措施，为了鼓动民众尽快接种中共病毒疫苗加强剂，部分国家的政府陆续推出更严厉的强制措施和疫苗通行证政策，引发民众的极度不满。
 
-外星硬件可能会利用超出我们目前科学理解的物理现实。如果该物体是由一种科学文化制造的，其科学知识基础远比我们对量子力学和重力的百年理解要先进。
+除比利时以外，巴黎、雅典、斯德哥尔摩、伦敦等在内的欧洲其他国家当日也同时爆发了类似的抗议活动。
 
-我们确信我们对宇宙的理解是不完整的，我们把宇宙中最丰富的两种成分标记为 “暗物质 “和 “暗能量”，是因为我们对它们的性质缺乏更好的了解。 我们只知道暗物质会像我们在地球上发现的普通物质一样诱发有吸引力的引力，而暗能量会诱发排斥性引力–引发宇宙的加速膨胀。如果一个地外科技文明能够利用这些未知但最丰富的宇宙成分来推动其工程车辆，我们的望远镜就不会探测到通常围绕着人类制造飞行器的标准排气管。
+参考链接：
+1) . [比利時民眾反防疫管制 5萬人抗爭與警方槓上](https://udn.com/news/story/121707/6055568?from=udn-catebreaknews_ch2)
+2) . [Riot police blast protestors with water cannon and tear gas as thousands march through Brussels demanding end to tough COVID rules as Omicron ‘tsunami’ hits Belgium with more than 60,000 cases a day](https://www.dailymail.co.uk/news/article-10432529/Thousands-march-Brussels-demanding-end-tough-Covid-rules.html)
+3) .[Clashes erupt in Brussels as tens of thousands protest Covid rules](https://www.france24.com/en/europe/20220123-clashes-erupt-in-brussels-as-tens-of-thousands-protest-covid-rules)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-*编辑&发布：Vicky*
+总编: 飞虹
+编辑： 天滅中共
+校正/发稿：Fei797
 
-原文链接：[Can we find UFOs from above?](https://thehill.com/opinion/technology/591138-can-we-find-ufos-from-above)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

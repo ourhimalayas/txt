@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 3:20 PM (UTC)`
+
+1月26:第二次发Gettr、对上个视频的补充
+![img](https://media.gettr.com/group18/getter/2022/01/26/15/9b152eb0-8590-5471-f6b1-11d8c7dc2cd5/out.jpg)
+
+---
+
 `@miles 1/26/2022 2:03 PM (UTC)`
 
 1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友的付出……和文贵一起奋斗消灭这个邪恶的中国共产党……一切都已经开始。
@@ -145,13 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1月25日，尊敬的战友们, 七哥马上开始有关“甜蜜蜜运动”重大紧急公告，请到GTV和盖特观看直播！<br/><br/>January 25th, 2022 Dear fellow fighters, Miles Guo will have important emergency announcement about the “ Tian Mi Mi Movement” very soon, please go to GTV and GETTR for live broadcast!
 ![img](https://media.gettr.com/group29/getter/2022/01/25/14/51729ac6-e202-34c5-fabd-bd82967cf160/da9b2af69d08b24c5644c2236ef714cc.jpg)
-
----
-
-`@miles 1/25/2022 12:58 PM (UTC)`
-
-Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者，他只能别无选择的看着这些病人死去。最终，邪恶的医院结束了他的医学生涯。<br/><br/>Dr. Paul Marik was forbidden by the hospital to treat patients with the CCP virus the way he had to be to treat patients ; he had no choice but to watch them die. Eventually the evilness of the hospital ended his medical career.<br/>
-![img](https://media.gettr.com/group33/getter/2022/01/25/12/f280b918-d4ac-437c-c4d7-56af0ff8a01c/out.jpg)
 
 ---
 

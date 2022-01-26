@@ -2,42 +2,33 @@
 ---
 
 
-## 中国银监会原副主席蔡鄂生被开除党籍　通报措辞罕见
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1913913/)
+## 加拿大商业团体敦促联邦政府撤销对跨境卡车司机的疫苗强制
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1913992/)
 
-作者: 纽约香草山教育部 Naughty(文行)
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-4-1.jpg)图片来源：CTV
+根据《Global News》1月24 日报道，加拿大商业领袖们正在敦促渥太华放弃对跨境卡车司机的疫苗强制，以缓解与美国之间拥堵的供应链。
 
+总理贾斯汀-特鲁多（Justin Trudeau）周一仍然力挺这项疫苗强制，认为这是保持供应链开放的必要步骤，他认为COVID-19是加拿大经济的最大风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-29.jpg)
+但是，加拿大商会和加拿大制造业联盟都在发出声明，努力敦促联邦政府对这项疫苗强制政策作出让步。
 
+商会主席Perrin Beatty说：”到目前为止，政府一直认为卡车司机提供的服务至关重要，即使在最严重的大流行病浪潮中也应保持供应链的正常运转。“
 
-中共纪委国家监委网站1月24日发布消息称，日前对蔡鄂生严重违纪违法问题进行了立案审查调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/de75-324e7e4fbd34bbe4755634ed0503f94f.png)图片来自网络
-消息称，经查，发现蔡鄂生政治上彻底蜕变，对党不忠诚不老实，搞两面派、做两面人，滥用金融监管权，严重扰乱金融市场秩序，严重污染金融领域政治生态，对抗组织审查。
+Beatty补充说，政府还没有拿出统计数据，表明卡车司机是加拿大COVID-19感染的主要来源。
 
-通报还称，蔡鄂生奢靡腐化，组织观念淡漠，且寡廉鲜耻，大搞权色、钱色交易；目无法纪，“退而不休”，顶风作案，利用职务便利和影响力为他人在融资贷款、项目承揽、职务晋升等方面谋利，并非法收受巨额财物。
+卫生部长Jean-Yves Duclos和首席公共卫生官Theresa Tam博士上周在下议院卫生委员会被问及时，都未能提供任何有关COVID-19和卡车司机的数据。
 
-通报说，蔡鄂生的行为构成严重职务违法并涉嫌受贿、利用影响力受贿、滥用职权犯罪，性质严重，影响恶劣，依规给予蔡鄂生开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+Beatty表示：”如果政府有这样的数据，并且一直担心他们构成特别的威胁，那么早就应该有一个专门针对他们的教育计划，他们可以与各省和行业合作，在加拿大各地的边境口岸和卡车站附近设立流动疫苗接种诊所。我们所要求的是，在供应链面临严重压力的时候，推迟实施疫苗强制，用这段时间鼓励疫苗接种。”
 
-公开资料显示，1951年出生的蔡鄂生长期在银行系统任职，在央行系统工作20余年，2021年7月在卸任银监会副主席8年后被中纪委调查。
+越来越多的数据表明COVID疫苗有害，当疫苗灾难大规模显现时，那些已经接种疫苗的卡车司机由于疫苗副作用才会给供应链带来打击。
 
-**新闻来源**: [https://news.sina.cn/gn/2022-01-24/detail-ikyamrmz7069927.d.html?from=wap](https://news.sina.cn/gn/2022-01-24/detail-ikyamrmz7069927.d.html?from=wap)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-6.png)
-总编: 飞虹
+而总理特鲁多将如何面对来自四面八方的卡车司机的抗议，他将如何收场？
 
-校对/发稿: 卡夫卡的甲壳虫
+原文链接：
+[https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/](https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+编辑，发稿 Spirit
 
  
 
