@@ -2,33 +2,24 @@
 ---
 
 
-## 澳网撤销对询问中共国明星彭帅的T恤的禁令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911885/)
+## 国际透明组织：中共国腐败超出国境 习近平利用反贪打击对手
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911941/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-47.jpg)
-图片来源：网络截图
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211116%2F480%2Fkbs-f9e8153aea0fd19ac2f0ab25835c5e57-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5279594-30&amp;tbnid=wVe6zUKhv9CH6M&amp;vet=12ahUKEwih4urH1M71AhWCJDQIHdZ0ClwQMygLegUIARC7AQ..i&amp;docid=6WfEmyijQa1F8M&amp;w=480&amp;h=320&amp;itg=1&amp;q=%E5%9B%BD%E9%99%85%E9%80%8F%E6%98%8E%E7%BB%84%E7%BB%87&amp;ved=2ahUKEwih4urH1M71AhWCJDQIHdZ0ClwQMygLegUIARC7AQ)
+在全球致力于反贪污腐败的“国际透明组织”（Transparency International）的办公室主任卡尔曼（Gary Kalman）表示，中共国在全球间参与的角色加重，腐败行为更已超出国境，例如以外援或腐败方式进入欧洲。研究专家库库奇卡（Roberto Martinez B.Kukutschka）就指出，独裁政府的反贪腐只会针对妨碍当政者的人，习近平的反贪腐只是打击的手段，未在媒体和公民社会中起任何作用。
 
-据合众国际社1月25日报道，澳大利亚网球公开赛改变了原来禁止穿着询问中共国网球运动员彭帅下落的T恤的决定，近三个月来，彭帅一直是争议和全球关注的对象。
+国际透明组织也指出，这两年因为中共病毒（新冠病毒COVID-19）疫情因素，各国政府对于外界的问责和资讯透明度也影响到部分国家如西欧、欧盟的清廉形象，在亚太、美洲、东欧和中亚的部分地区，对问责措施和基本公民自由的限制越来越多，这使腐败的情况更加肆无忌惮，更让先前表现最好的国家也显示出衰退的迹象。
 
-11月初，彭帅在社交媒体上发帖指责中共国前副总理张高丽性侵，之后三周没有人看到或听到她的消息，人们开始关注她的安危并呼吁对彭帅指控张高丽的罪行和她的待遇进行调查。
+消息来源:
 
-彭后来出现在几个场合，收回了她对张的指控。她还说她很安全，但由于她的下落不明，以及北京有问题的人权记录，人们的担忧一直存在。
+[CPI 2021: HIGHLIGHTS AND INSIGHTS](https://www.transparency.org/en/news/cpi-2021-highlights-insights)
 
-上周，澳大利亚网球公开赛因命令一名球迷脱下印有“彭帅在哪里 ”的衬衫而受到批评。运营这项大满贯赛事的澳大利亚网球协会表示，这件衬衫违反了禁止政治信息的政策。
+[2021全球清廉指數排名公布 台灣25、美國27、中國66](https://tw.news.yahoo.com/2021%E5%85%A8%E7%90%83%E6%B8%85%E5%BB%89%E6%8C%87%E6%95%B8%E6%8E%92%E5%90%8D%E5%85%AC%E5%B8%83-%E5%8F%B0%E7%81%A325-%E7%BE%8E%E5%9C%8B27-%E4%B8%AD%E5%9C%8B66-024656148.html)
 
-周二，在收到大量国际强烈发应后，该赛事撤销了这一政策。
-
-据《悉尼先驱晨报》报道，澳大利亚网球协会首席执行官克雷格·泰利说：“如果有人想穿一件T恤，发表关于彭帅的声明，这很好。”
-
-“但不好的是，如果那个人带来了一个大横幅，用大杆子撑着，这会被用作（有危险的）东西，这真的会影响到球迷的舒适和安全。我们会坚持这些条款和条件。”
-
-女子网球协会在这个问题上采取了坚定的立场，上个月宣布，在情况得到解决之前，它不会在中共国举行任何比赛。国际网球联合会拒绝效仿，称其不希望“惩罚 ”中共国的网球爱好者。
-
-36岁的彭帅今年没有参加澳大利亚公开赛，自2020年以来就没有出现在该赛事中。她是前世界第一的女双选手，并在2013年和2014年赢得了另外两个大满贯，即温布尔登和法网。
-
-新闻来源：[Australian Open reverses ban on T-shirts asking about Chinese star Peng Shuai](https://www.upi.com/Top_News/World-News/2022/01/25/australia-peng-shuai-china-shirt-ban/6981643114421/)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

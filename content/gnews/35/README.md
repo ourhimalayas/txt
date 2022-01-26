@@ -2,25 +2,26 @@
 ---
 
 
-## 加独立记者团呼吁议会拒绝新华社申请
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911558/)
+## 中美正在争夺坠入南海的F35C隐形战斗机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911701/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+#### 撰稿：彩虹 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-43-edited.jpg)图片来源：TNH
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16431709561.png)图片来源：Tribunal Inquiry
+1月25日，《新闻极限》引述《每日邮报》周二的报道，指美国正在与中共国争夺周一坠入南中国海的F35C隐形战斗机。
 
+美国海军方面称，在卡尔文森号航母（USS Carl Vinson）上发生“着陆事故”后，他们丢失了这架价值1亿美元的战斗机，同时也导致了7名军事人员受伤。
 
-据加拿大媒体[真北方]近日报道，该国独立记者团的数十名成员和新闻工作者最近联合发表声明，呼吁[加拿大议会新闻部]拒绝中共的[新华社]申请加入该国政府及议会新闻发布会的请求。
+海军告诉《美国海军研究所》说：“分配给航母航空队（CVW）2的一架F-35C闪电II，在美国航母CVN 70号舰艇上着陆时发生了意外，撞击了飞行甲板，随后在例行飞行操作中落入水中。对飞行甲板的撞击是表面性的，所有飞行操作的设备都可以使用。”
 
-报道称，由于中共喉舌[新华社]一直都在为中共暴政的各项反人类罪和种族灭绝行径掩盖真相甚至歪曲造谣，因次当局给[新华社]的中共党员颁发在加拿大神圣议会大厅里出入的通行证，是对该国所有人的侮辱和背叛。
+据《每日邮报》报道，F-35的海军版本，即F-35C，能以1.6倍音速飞行，作战半径为1200海里。
 
-此外，多名记者还透露，[新华社]高层人员曾秘密要求他们全程监视在加拿大的反共人士和团体及其行动。而此举也被认为是危及和破坏了加拿大的国家安全。
+此外，卡尔文森号的指挥官汤米·洛克（Tommy Locke）上尉在8月说：“卡尔文森号是第一艘可容纳第四代和第五代攻击战斗机的航母，提供了前所未有的杀伤力和生存能力，确保海军团队现在和未来都能在有争议的战斗空间中作战并获胜。”
 
-* * *
+**新闻来源**
 
-采编： 文莱 ，编译撰稿：自由法兰西 ， 编辑撰稿，发稿：硫酸羟氯喹64
-
-原文链接： [https://tnc.news/2022/01/19/independent-press-gallery-demands-federal-counterpart-reject-chinese-state-outlet/](https://tnc.news/2022/01/19/independent-press-gallery-demands-federal-counterpart-reject-chinese-state-outlet/)
+[US Races Against China to Recover Submerged $100m Stealth Fighter](https://www.newsmax.com/newsfront/military-technology-china-taiwan/2022/01/25/id/1054001/)
 
  
 

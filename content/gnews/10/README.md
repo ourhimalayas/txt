@@ -2,32 +2,14 @@
 ---
 
 
-## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
+## 【粤语配音】2022年1月25日： 新中国联邦重大公告 (5)
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1911906/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
-图片来源：gnews.org
+紐約香草山-香港部
 
-旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
+而且是在一个完全没有环境保护，完全没有自然下雪的自然条件情况下，要举办一个没有人性、没有人权，没有言论自由、没有人身自由的，所谓全球的健康纯洁的冬奥会.这和1935年希特勒举办的夏季奥运会和当年苏联举行的1980年奥运会如出一辙，它必将成为人类上，纯洁的奥林匹克精神上最大的侮辱和丑陋的事件，并且会因此对中国人民带来的伤害和人权的侵犯无法估量，奥林匹克委员会，背弃了自己奥林匹克的精神，出卖了自己的灵魂和原则，作为刚刚在美国成立了一年之多的，要推倒中国邪恶的非法政权共产党的，代表中国人的新中国联邦，追求一人一票选举的，政治制度的发起人，我本人和我的很多背后，冒着生命危险的战友们一直在为此奋斗，阻止共产党再一次的和希特勒当年苏联发生的当年的奥运会是由当年的犹太人，被伤害的犹太人联合起来，反对体抵制当年的1935年运动会，但是这个运动会之后，看到希特勒对几百万人，对犹太人的大屠杀，从1935到1945。
 
-随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
-
-接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
-
-新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
-
-##### 新闻来源：
-
-##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
-
-##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
-
-##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
-
-##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
-
-##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
+我们不希望再发生在中国，所以我们誓死为此奋斗，我们和国内很多战友们，就不想在中国发生1935年以后的，所谓的奥运盛世之后，有政治环境和有理由，对中国其他种族和新疆、西藏以及香港，包括最终的目的是要侵略台湾，必将对台湾造成血流成河，因此我们全力以赴的阻止冬奥会在中国的举办。
 
  
 

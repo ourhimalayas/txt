@@ -2,35 +2,32 @@
 ---
 
 
-## 香港外籍专业人士离职潮：受严格防疫的“驱逐”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911729/)
+## 1.24大直播后记：世界大佬投资喜马拉雅币
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911793/)
 
-整理：纱娜宝贝
-编辑：Little Lamp
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-25-下午8.01.42.png)
-据路透香港1月24日的报导，成百上千的外籍金融专业人士已经或是在计划离港，只因防疫措施太过严苛。
+整理：雅典娜速记组
+编辑：文泓
 
-根据香港政府统计处的数据，2020年中期至2021年中期，香港人口下降了1.2%，有超过75,000人离开香港。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CTWNEGOT14Q@P9@RCVYDZ2.png)图片来源：墨尔本雅典娜农场设计组
 
-在香港740万人口中，只有大约13,000例新冠感染病例，远低于世界绝大多数地方。但它正在遵循北京的新冠“清零”政策，而非与病毒共存。
 
-两年来，香港实施了严格的检疫措施，并在去年实施了一些全球最严格的入境规定，只允许本地居民返回，并对来自多数国家的入境人士进行长达三周的强制性酒店隔离，无论其疫苗接种情况如何，而且费用由旅客自理。
+世界经济中加密数字货币大发展，现在特别是拥有喜币者，你们将看到无法想象的新的局面的出现。头两天，我跟要投资喜币的几个人谈的时候，他们一直在跟我说，这数字货币要怎么样怎么样买，他们已经过研究。他们投什么？他们也投了Coinbase（在美上市加密货币交易平台），他们也投了这个ETF（交易所基金），他们几乎是（资金规模）前五大的。但是，他们说，他们用瑞士的间接资金投资，从来没（直接）投资加密数字货币，他们叫Crypto currency（虚拟货币）。我说，你不要这么说了，这很土。从现在我再不会说Crypto，叫Digital currency（数字货币）。
 
-然而目前看来，这对“清零”并没有什么帮助。
+我告诉他，现在是时候你站出来投数字货币了，而且你要成立数字货币基金，你要成为人类第一家，要引领人类数字货币（新发展）。我说，这不亚于你拥有一个新的美元系统。当时，他买这个Hcoin的时候，他这么牛的人，在买完一星期以后，他上去就自己偷偷的测试能不能卖出去。结果，他一挂出去（就成交）了，现在后悔中。它卖出去24块钱。卖多少呢？卖了大概是70万个币。然后，所有的钱他也提走了，（这下）他傻眼了。
 
-香港美国商会最近进行了会员调查，超过40%的受访者表示，他们更有可能离开香港，大多数人认为国际旅行限制是首要决定因素。
+后来，赵长鹏的币安找了他下属，准备行贿蓝金黄让他们投资（币安）。我给他发信息，听说你们要投资币安呢？他回复，什么意思？我说，让我告诉你，币安是谁谁谁……他听后马上紧急召开会议，发出警示，谁敢跟币安接触一次，就给我滚蛋。所以说，整个他的国家都没人敢接受（币安）。不但没接触，要把所有（涉及）加拿大、日本、台湾要调查币安的案件，他们国家都全力配合。如果需要的话，（相关人员）可以遣送回这些国家去。
 
-许多业内人士还预计，最终该行业的许多岗位将被中国内地人才占据，从而导致人才出现大转移。”
+就在某个晚上，本来准备说30分钟，结果我们讲了2个小时。我讲完以后，他们最后作出决定，他们想要成为喜币的投资者。我说，我欢迎你们加入喜币的投资，我没有决策权，但我可以给你们推荐，有6亿7000万个币是我们的战友。听到这个数字，他们当时就受不了了。他说，他们家族唯一拥有的（加密数字货币）就是喜币，现在他们孩子、兄弟姐妹现在最炫耀的都是喜币。我说，那既然如此，我要跟你强调，我的6亿7000万个币战友们的利益是排第一位的，你要进来的前提是永远要记住，你不能跟我这些战友们，我的兄弟姐妹们争名争利。
 
-新闻来源：[焦点：外籍专业人士受不了严格防疫现离职潮 香港金融业面临大失血金融监管权等](https://cn.reuters.com/article/hk-covid19-restrictions-fin-talents-0124-idCNKBS2JY06L)
+资料来源：郭先生GTV、盖特直播
 
 *发布：tianzhihuan*
 
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

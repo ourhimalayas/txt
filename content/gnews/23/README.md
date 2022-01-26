@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|喜币开创世界经济新局面
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911736/)
+## “彭帅在哪里？”字样T恤衫在澳网公开赛上被组织方禁止引发争议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1911809/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月25日，郭文贵先生在最新一期的大直播节目指出，目前美股市场已普遍出现20%～40%的暴跌，这意味着以美元为核心的全球金融体系正在崩塌之中。而喜币和喜联储的横空出世将会为世界经济呈现崭新局面。
+整理：纱娜宝贝
+编辑：Little Lamp
 
-郭先生在节目中具体阐释道，自2019年至2021年底，全球累计印发了260万亿美元，货币超发程度相当于世界GDP的近两倍。直至当前，美股市场虽因巨额货币的超发而未直接出现崩盘现象，但世界经济危机的爆发已刻不容缓。全球数字货币市场虽仅拥有3万多亿美元，却将是世界经济的唯一未来，也将是260万亿美元的唯一归宿。
-
-原文链接：[喜币开创世界经济新局面](https://gnews.org/zh-hans/1909420/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
 
+澳大利亚网球公开赛的组织方强迫穿印有“彭帅在哪里？”T恤衫的球迷脱掉T恤，为这次大满贯赛事蒙上了阴影。澳大利亚网球协会辩解说，披露中共前政治局常委张高丽性侵的中国网球明星彭帅的安危仍是“主要关注”，但是票务条例不允许商业或政治性服装、条幅或标识等。
+
+星期六（1月22日）晚间在社交媒体上流传的视频显示，赛场的安全人员没收印有“彭帅在哪里？”的T恤衫和横幅。
+
+澳大利亚网球明星、曾获世界第一的阿什·巴蒂（Ash Barty）说，彭帅的事件让国际网球界更紧密站在一起，希望不久的未来能在外面看到她。
+
+有批评人士表示，澳网公开赛不应该为了顾虑来自中资企业赞助的利益，而打压关注彭帅人身安全的声音，应该停止骚扰关注人权和呼吁关注彭帅下落的人士，并且立即公开要求中国政府释放彭帅。
+
+包括联合国、国际奥委会委员、美英等国政府、国际女子网球协会（WTA）、世界职业网球协会（ATP）和球王乔科维奇（Novak Djokovic）、前网球天后大坂直美等网坛名将纷纷发声，质问“彭帅在哪里？”，要求中共当局说明，并调查她提出的指控。
+
+新闻来源：[澳网公开赛禁止球迷穿印有“彭帅在哪里？”字样T恤衫引发争议](https://www.voachinese.com/a/political-peng-messages-banned-at-australian-open-20220123/6408864.html)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

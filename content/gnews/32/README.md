@@ -2,25 +2,36 @@
 ---
 
 
-## NBA球员坎特继续被中共打压
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911588/)
+## 有声|喜币开创世界经济新局面
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911736/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+1月25日，郭文贵先生在最新一期的大直播节目指出，目前美股市场已普遍出现20%～40%的暴跌，这意味着以美元为核心的全球金融体系正在崩塌之中。而喜币和喜联储的横空出世将会为世界经济呈现崭新局面。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-44-edited.jpg)图片来源：布赖特巴特
+郭先生在节目中具体阐释道，自2019年至2021年底，全球累计印发了260万亿美元，货币超发程度相当于世界GDP的近两倍。直至当前，美股市场虽因巨额货币的超发而未直接出现崩盘现象，但世界经济危机的爆发已刻不容缓。全球数字货币市场虽仅拥有3万多亿美元，却将是世界经济的唯一未来，也将是260万亿美元的唯一归宿。
+
+原文链接：[喜币开创世界经济新局面](https://gnews.org/zh-hans/1909420/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-据美国[布赖特巴特新闻]1月21日报道，中共大外宣《环球时报》日前公开污蔑NBA凯尔特人队球员伊内斯-坎特，并将其勇敢揭露真相和争取人权的行动妄称为与美国中央情报局合作的证据。
-
-据悉，中共在利用其大外宣打击坎特之前，就曾利用前NBA球员姚明来抨击坎特公开反对该政权种族灭绝的言论。而现在，中共再次利用其国家机器对该球员进行打压。
-
-报道称，NBA近年来不断出现声讨中共罪行的言论，包括2019年火箭队总经理莫雷曾表示要与香港民主法治站在一起； 坎特近期则公开谴责党魁习近平独裁、中共强摘器官并穿着斩首习近平形象的鞋子以示抗议。
-
-* * *
-
-采编：风云小哥           翻译：文莱               校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[China Floats Conspiracy Theory that Enes Kanter Freedom Is a CIA Agent (breitbart.com)](https://www.breitbart.com/asia/2022/01/21/china-floats-conspiracy-theory-that-enes-kanter-freedom-is-a-cia-agent/)
 
  
 

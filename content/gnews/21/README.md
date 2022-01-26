@@ -2,40 +2,32 @@
 ---
 
 
-## 有声|美国政府授权撤离美国驻北京大使馆
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911753/)
+## 北京冬奥会新冠测试“高门槛”引争议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911833/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月25日大直播，郭文贵先生代表新中国联邦，代表所有的中国人感谢美国政府，拜登总统和国务卿布林肯先生。
+整理：纱娜宝贝
+编辑：Little Lamp
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19.png)
+据德国之声中文网报导，北京冬奥运会的新冠测试规则引起争议后，国际奥委会为其进行了辩护。国际奥委会独立专家组的首席卫生专家布莱恩·麦克洛斯基（Brian McCloskey）在一份声明中指出，东道主的目的是“不要让奥密克戎进入到封闭的防疫泡泡之中”。
 
-在大直播中，郭文贵先生透露，拜登总统和布林肯国务卿刚刚作出重大决定，并且，美国政府已经正式通知北京政府，即日起，授权撤离美利坚合众国驻北京大使馆。
+争论的中心是PCR检测中决定结果成阴性还是阳性的CT值。CT值越低，意味着感染新冠的风险越高。根据加拿大广播公司 CBC Sports 报道，加拿大大多地方的标准为 CT 值 35。在德国，CT值30及以上的人被认为不具有传染性，在中国，该门槛为40。
 
-这意味着什么？文贵先生分析：
+麦克洛斯基承认，在出发前测试为阴性的运动员，到了中国之后测试结果可能是阳性。他强调，北京的新冠测试系统“有效可靠“。因为奥密克戎更具传染性，所以必须迅速锁定阳性病例。
 
-首先，美国的北京大使馆，对于中共政府来说，就相当于中共国的定海神针。不仅中共国需要靠这支定海神针稳定政权，美国驻北京大使馆周围的几十个国家的大使，也是依靠着美国大使馆，并跟随着美国政府的风向，决定与中共国的外交关系。
+本届冬奥会采取严格防疫措施，所有运动员在出发前往中国前两周内，必须监控自己的体温和其它健康指标，并且先后进行两次PCR核酸检测，结果都必须是阴性。并且要遵守严格的防疫规定。每天都要接受测试。
 
-原文链接：[美国政府授权撤离美国驻北京大使馆](https://gnews.org/zh-hans/1910507/)
+接受《星期日世界报》采访时，曾三度获得奥运会冠军的哈克尔说：“我的建议是推迟冬奥会，因为这样做对谁都没有好处。参与者受到煎熬，只有观众不用忍受这一切，因为他们根本就来不了。
 
-音频处理/发稿：Daxia
+文章来源：[中国新冠测试高门槛引争议](https://www.dw.com/zh/中国新冠测试高门槛引争议/a-60529846)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+发布：tianzhihuan
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
