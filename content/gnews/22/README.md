@@ -2,24 +2,35 @@
 ---
 
 
-## 来自莫斯科和北京的假新闻威胁着欧盟民主
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1913169/)
+## MV版Hcoin To the Moon上线48天第31次位列匈牙利iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1913284/)
 
-翻译：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01262.jpg)图片来自ansa.it
-俄罗斯和中共国正试图用假新闻和金钱来扭曲欧洲民主，然而公众舆论尚未完全意识到这个非常严重的威胁。
+1/26/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线48天第31次位列匈牙利iTunes摇滚音乐视频榜榜首，第48次位列前三名
 
-欧洲议会外国干涉和虚假信息特别委员会 (Inge) 经过 18 个月的辩论后于昨天以绝大多数票通过的文本将于 3 月送达斯特拉斯堡的法庭就此提出制裁。
+* * *
 
-俄罗斯和中共国针对欧盟的这场“混合战争”显然被低估了。威胁的第一个因素是从网络攻击、宣传和假新闻，通过与俄罗斯、中共国甚至土耳其政府有关的报纸的网站和社交媒体以各种语言传播 ，从而影响公民选举和公民投票来分裂欧盟。
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-威胁的第二个因素是对政治制度的制约。为欧洲政党提供外国资金，比如说德国前总理格哈德·施罗德和芬兰前总理帕沃·利波宁都受雇于俄罗斯天然气工业股份公司，但其他领导人也受雇于中共国。
+* * *
 
-社会也受到宗教、孔子学院等中心以及智库和大学的资助和操纵。除了制裁之外，报告还提出了要训练那些在敏感岗位上工作的人保护自己。支持欧洲媒体、创建欧洲干扰威胁和信息完整性中心、替代中公国融资、设立投资事实核查员等等。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
 
-原文链接：[https://www.repubblica.it/esteri/2022/01/25/news/ue\_europa\_parlamento\_sanzioni\_russia\_cina\_fake\_news\_finanziamento\_partiti\_turchia-335250586/?ref=RHTP-VS-I287621970-P16-S2-T1](https://www.repubblica.it/esteri/2022/01/25/news/ue_europa_parlamento_sanzioni_russia_cina_fake_news_finanziamento_partiti_turchia-335250586/?ref=RHTP-VS-I287621970-P16-S2-T1)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

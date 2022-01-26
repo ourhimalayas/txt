@@ -2,23 +2,24 @@
 ---
 
 
-## 时隔2年 山体染成红色的奈良若草山
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1913027/)
+## 来自莫斯科和北京的假新闻威胁着欧盟民主
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1913169/)
 
-撰稿：东京樱花团｜haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-31.png)[*图片来源*](https://news.yahoo.co.jp/articles/d0d20d55902166d8c2ecaec82e7d5bb0215b7ab0/images/000)
-1月22日晚，古都奈良举行了宣告春天来临的若草山烧荒活动，梦幻般的火花时隔2年再次将山体染红。往年约有18万名游客前来参观，但是为了防止中共病毒（新型冠状病毒）感染的扩散，在[奈良公园](https://zh.wikipedia.org/wiki/%E5%A5%88%E8%89%AF%E5%85%AC%E5%9C%92)参观的游客仅限于事先登记的9000多名。此次首次在网上发布无人机在上空拍摄的影像。
+翻译：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01262.jpg)图片来自ansa.it
+俄罗斯和中共国正试图用假新闻和金钱来扭曲欧洲民主，然而公众舆论尚未完全意识到这个非常严重的威胁。
 
-在烧荒之前，燃放了约200发烟花。下午6时15分左右，300多名消防队员以海螺和喇叭声为信号，用[春日大社](https://www.kasugataisha.or.jp/)的御神火点燃火把，火势顺势蔓延到了33公顷的山体。
+欧洲议会外国干涉和虚假信息特别委员会 (Inge) 经过 18 个月的辩论后于昨天以绝大多数票通过的文本将于 3 月送达斯特拉斯堡的法庭就此提出制裁。
 
-2021年的烧荒虽然缩小了规模，但是因为下雨火势没有扩散，也没有改日重新燃烧。
+俄罗斯和中共国针对欧盟的这场“混合战争”显然被低估了。威胁的第一个因素是从网络攻击、宣传和假新闻，通过与俄罗斯、中共国甚至土耳其政府有关的报纸的网站和社交媒体以各种语言传播 ，从而影响公民选举和公民投票来分裂欧盟。
 
-信息来源：[**2年ぶりに山肌赤く染め上げ　奈良・若草山の山焼き**](https://news.yahoo.co.jp/articles/d0d20d55902166d8c2ecaec82e7d5bb0215b7ab0)
+威胁的第二个因素是对政治制度的制约。为欧洲政党提供外国资金，比如说德国前总理格哈德·施罗德和芬兰前总理帕沃·利波宁都受雇于俄罗斯天然气工业股份公司，但其他领导人也受雇于中共国。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+社会也受到宗教、孔子学院等中心以及智库和大学的资助和操纵。除了制裁之外，报告还提出了要训练那些在敏感岗位上工作的人保护自己。支持欧洲媒体、创建欧洲干扰威胁和信息完整性中心、替代中公国融资、设立投资事实核查员等等。
 
+原文链接：[https://www.repubblica.it/esteri/2022/01/25/news/ue\_europa\_parlamento\_sanzioni\_russia\_cina\_fake\_news\_finanziamento\_partiti\_turchia-335250586/?ref=RHTP-VS-I287621970-P16-S2-T1](https://www.repubblica.it/esteri/2022/01/25/news/ue_europa_parlamento_sanzioni_russia_cina_fake_news_finanziamento_partiti_turchia-335250586/?ref=RHTP-VS-I287621970-P16-S2-T1)
+
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
