@@ -2,34 +2,26 @@
 ---
 
 
-## 以色列谘询委员会建议为所有成年人接种第 4 剂疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914360/)
+## 日本醫療人員恐第三針疫苗引發副作用 多數人員拒絕接種
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1914373/)
 
-作者：台湾宝岛农场—新中国联邦静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒25日报导，以色列疫情防控谘询委员会周二建议，所有成年人可在疾病康复或接种完加强剂后的 5 个月，接种中共病毒疫苗第四针。目前，该建议已获得当局卫生总干事的批准。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.56.02.png)
-疫情谘询委员会周日在卫生部发言表示，第四剂疫苗为 60 岁及以上人士提供了针对严重疾病的三倍保护以及针对感染的双重防护。
+**日本東京方舟農場 Kevin wang**
 
-事实上，以色列在疫苗接种率方面的表现一直稳居世界第一，截至上周末，全国第三剂加强针的接种率高达 55%，可惜的是，与此同时，以色列还是全世界单日确诊率最高的地方，据上周数据显示，以色列单日新增病例突破72000例。
+據中央社1月26日報道稱，日本政府規劃爲醫療人員和老人優先接種第三針疫苗，但民衆意願不高，接種率偏低。部分醫療人員因擔心疫苗產生副作用，而推遲接種。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-24.png)（圖片來自中央社）
+報道稱，日本政府日前規劃爲醫療工作人員與高齡者優先接種第3劑疫苗，從去年12月到今年1月底預計爲約1470萬人施打，包括醫療工作人員576萬人、65歲以上高齡長者約650萬人，以及64歲以下約244萬人。但依據中央政府的「疫苗接種紀錄系統」（VRS）紀錄，截至1月23日，僅約236萬人完成接種第3劑，約爲規劃接種人數的16.1%。
+報道指出，醫療工作人員中有人因擔憂副作用而拒絕接種第3劑。其中奈良縣內的醫院相關人士說，因爲擔心副作用，又要確保醫療能量，因此沒有加緊接種，奈良縣目前第3劑接種進度爲10.7%。
+另有老人照護表示，入住的老人多有罹患認知症等無法確認本身意志者，需要花時間向家人說明與取得同意，很難提早爲這些老人接種疫苗。
+此外，COVID-19疫苗所引發的副作用引發關注， 據社交媒體GETTR上ID爲‘連新社’的媒體發佈的一則視頻表示，疫苗中的氫氧化石墨烯和其他未知成分提升導致血栓、心臟病和中風等疾病的風險，從而對身體造成不可挽回的傷害。
 
-不仅如此，接种过三剂中共病毒疫苗的外长拉皮德、财政部长利伯曼等该国政要都相继被爆出染上病毒，其中接种过四剂疫苗的国防部长甘茨最近在推特上发文证实，自己染上中共病毒。
+參考鏈接：
+1：[https://www.cna.com.tw/news/aopl/202201260060.aspx](https://www.cna.com.tw/news/aopl/202201260060.aspx)
+2：[https://gettr.com/post/pqfo21a38b](https://gettr.com/post/pqfo21a38b)
 
-参考链接：[Israël/Covid: le comité consultatif recommande une 4e dose de vaccin à tous les adultes](https://www.i24news.tv/fr/actu/israel/1643096435-israel-le-comite-consultatif-recommande-une-4e-dose-de-vaccin-a-tous-les-adultes)
+素材採編：Kevin wang
+編輯： 青城道姑
+發佈：文曦
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：天滅中共
-编辑：天滅中共
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

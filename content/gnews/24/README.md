@@ -2,42 +2,58 @@
 ---
 
 
-## CNN报道 “授权离境”，证实爆料革命的情报和成果
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1914448/)
+## 【Michael.Tonny专栏】基于伊维菌素的COVID-19联合疗法和用药方法
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1914546/)
 
-#### 搜集/撰稿：彩虹
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-#### 责编：白夜       
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2188.png)图片来源：NDTV
-1月26日，CNN报道说，据两位消息人士透露，美国驻中共国外交使团已正式请求国务院批准美国外交官“授权离境”，允许他们及其家人在中共国日益严格的中共病毒（Covid-19）遏制措施中离开中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-据这两位不愿透露姓名的消息人士称，这一请求尚未得到国务院的批准。
+本文摘自澳大利亚新南威尔士洲五码头消化疾病中心（Centre for Digestive Diseases, Five Dock）和新南威尔士州纽卡斯尔大学健康与医学学院（Faculty of Health and Medicine, University of Newcastle）Thomas J. Borody等人于2021年10月19日发表在[trialsitenews](https://trialsitenews.com/)的临床研究论文[COMBINATION THERAPY FOR COVID-19 BASED  ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)。主要介绍伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）在降低COVID-19患者住院和死亡风险方面的临床研究结论。
 
-文章说，“授权离境”是指让美国使领馆的雇员和家属可以选择离开中共国一段时间，直到他们觉得安全时再返回，但不是“命令离境”情况下的强制撤离。
+2021年6月1日~2021年9月30日期间，通过对600名经PCR测试确诊COVID-19阳性两天内的门诊患者，使用为期10天的伊维菌素三联疗法（Ivermectin Triple Therapy，ITT）。
 
-一位熟悉该讨论情况的美国外交消息人士告诉CNN，提出这一要求是因为几位外交官及其家人对中共国近几个月来不断收紧的反中共病毒疫情措施表示担心，其中包括可能将未成年儿童与父母分开的快速封锁和隔离。
+具体用药方法是：伊维菌素24mg/天（ivermectin，24 mg per day)、每天晚餐前30分钟100mg强力霉素（doxycycline，100 mg bd)和锌50mg/天（zinc，50mg per day)。
 
-目前，美国驻中共国的外交使团与中共国外交部达成了协议，允许父母在隔离情况下与未成年儿童在一起。然而，人们越来越担心中共国的国家卫生机构有可能推翻这一协议。
+有7%的患者还使用了维生素（vitamins）和营养补充剂（nutritional supplements）。
 
-报道指，去年9月，一段4岁儿童感染中共病毒（Covid-19）的视频在网上流传，该儿童与父母分离，被单独安置在莆田市的隔离区内，这凸显了中共国严格的疫情措施所造成的人权牺牲。
+只有7% 的人在治疗中有轻微不良反应，主要是恶心（nausea）、腹泻（diarrhoea）和胃灼热（heartburn）等轻微的肠道症状（gut symptoms）。但没有人因此停止该治疗方案。
 
-虽然没有发生过外交官与他们的孩子分开的事件，但这位外交人士说，在中共国的美国官员担心，在高传染性的中共病毒变体奥米炕（Omicron）的传播中，这种情况可能会改变，这可能会使中共国的卫生保健系统和医院感到紧张。
+最终仅5人（0.83%）需要住院治疗，无一人死亡。
 
-这位外交人士说：“人们并不害怕生病，让人们惊慌失措的是，奥米炕的传染性更强。如果它以我们在其他国家看到的方式激增，可能会导致这里采取更严格、更不可预测的措施。我们并不质疑中国在遏制COVID-19（中共病毒）方面的安全性，但我们确实希望防止人们在COVID-19肆虐时被卷入（隔离）系统。”
+而在对照组的600名患者中，有70（11.7%）人需要住院治疗，6人死亡（1%）。
 
-目前，美国国务院发言人说，美国驻华使团的工作状态没有改变。但该发言人表示：“所有的决定变化将完全以我们的同事及其家庭成员的健康、安全和保障为前提。”
+证明使用伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）可降低死亡风险92.3%，降低住院率92.9%。
 
-该外交人士告诉CNN，如果获得批准，根据驻北京大使馆进行的内部调查，美国驻华使团预计，1000名人员中约有10%至15%将离开中共国，
+研究人员将COVID-19早期确诊患者根据发烧（Fever）、头痛（Headache）、咳嗽（Cough）、味觉丧失(Loss of Taste)、嗅觉丧失（Loss of Smell）、腹泻（Diarrhoea）、呕吐（Vomiting）、疲劳（Fatigue）和肌肉疼痛（Muscle Pains）等10种常见COVID-19症状的严重程度，按视觉模拟量（Visual analogue scale）监测值划分成0~10范围的不同得分。0表示没有相关症状，10是最严重的症状表现。总症状严重程度分数是评这10症状得分的总和，总分为 100分。血氧饱和度读数得分为100%。
 
-这一估计并不包括家庭成员，工作人员和家属将被允许乘坐商业航班离开。
+其中，测试组中126名平均年龄为42岁（17~94岁）的酒店或家庭隔离患者可用于详细评估症状和氧合状态（oxygenation status）。
 
-与此同时，中共国国家媒体对 “授权离境 “要求的消息感到愤怒，指责美国大使馆“意图不轨”，并将其与所谓的“美国政府的一系列挑衅行为”联系起来。
+对这126名患者的Covid-19感染症状视觉模拟量表监测显示，经过10天的伊维菌素三联疗法治疗后，患者从治疗开始时的中位总症状严重程度评分37分（范围：0~100）下降到治疗结束时的3分（范围：0~62）。
 
-报道说，周二时，新任美国驻华大使尼古拉斯·伯恩斯（Nicholas Burns）宣誓就职。但外交人士告诉CNN，预计他将在未来几个月内上任，但由于最近的中共病毒疫情，他的上任可能会被推迟。
+研究表明，尽管嗅觉/味觉丧失、咳嗽和疲劳，会持续比较长时间，然而，在10天治疗期结束后，所有症状的严重程度评分均显著降低。而未使用伊维菌素三联疗法的 Covid-19患者的症状减轻通常需要2~4 周。
 
-**新闻来源**
+证明使用伊维菌素三联疗法对COVID-19患者具有显著的疗效。
 
-[US Embassy in China asks State Department to let diplomats leave over Covid restrictions](https://edition.cnn.com/2022/01/26/china/china-us-embassy-authorize-departure-intl-hnk/index.html)
+最终结果如下表：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TrialSite-media-release-19.10.jpg)
+
+表中N 表示有此症状的患者人数
+
+SD表示标准偏差
+
+\*进行了非参数配对t检验
+
+参考数据：
+
+[COMBINATION THERAPY FOR COVID-19 BASED ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)
+
+[trialsitenews](https://trialsitenews.com/)
+
+[Combination Therapy For COVID-19 Based on Ivermectin in an Australian Population](https://trialsitenews.com/combination-therapy-for-covid-19-based-on-ivermectin-in-an-australian-population/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
