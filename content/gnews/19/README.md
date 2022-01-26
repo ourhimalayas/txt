@@ -2,23 +2,78 @@
 ---
 
 
-## 中共给海外华人拉仇恨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912121/)
+## 美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912161/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+[https://gtv.org/video/id=61f00dc987664c47acd9d465](https://gtv.org/video/id=61f00dc987664c47acd9d465)
 
-战狼外交、战羊外交造成的灭天良，带给中国人在制造仇恨, 伊萨贝拉・杨把中国人定义成对西方民主最大的威胁。兄弟姐妹们，这是100%共产党搞的。我们这些天跟律师讨论，每个律师说，如果没有故障的操作是不可能采访你两三个小时, 只用了3分钟。采访了一年，最后的定义就那几句话。
+Dr. Richard Urso (America’s Frontline Doctors)
+理查德·乌索医生（美国一线医生）
 
-今天新增加节目，一会儿看完七哥的第3次抛出采访，你们有啥感想？你觉得七哥的智商如何？战斗力如何啊？伊萨贝拉-杨这件事儿，习近平的控制，被狗咬的控制，把海外华人处在最危急之中，共产党的奥运会这种巨额财富，所谓的政治国际大宣传，加在一起对我们是什么样的结果？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中共给海外华人拉仇恨.png)
-发布： *tianzhihuan*
+We are not one doctor. We are 17,000 Doctors
+我们不是一位医生, 我们是17,000名医生
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+that’s more than the NIH, more than the CDC
+这比美国国立卫生研究院还多、比疾病预防与控制中心还多
+
+and more than the FDA
+比食品和药物管理局还多
+
+It’s all signed and verified
+这一切都已签名和验证过的
+
+They are powerful forces against us as you know
+如你所知，他们是反对我们的强大力量
+
+The news media, does anybody trust the trusted news media?
+新闻媒体，有人信任新闻媒体吗？
+
+Do you trust the CDC and the FDA?
+你们相信疾病预防与控制中心和食品和药物管理局吗？
+
+Do you trust Fauci?
+你们相信福奇吗？
+
+Already, we’ve been fired, censored, erase from Wikipedia
+我们已经被解雇、被审查、从维基百科中删除
+
+But we’re staying strong because we are with you
+但我们保持坚强，因为我们和你们在一起
+
+So today, again, we represent 17,000 doctors and scientists and humanity
+所以今天，我们再次代表17,000名医生、科学家和人类
+
+We have three virtually indisputable recommendations back by high quality data
+我们有三项由高质量数据提供支持的几乎无可争辩的建议
+
+I have one ask for you today
+我今天有一个请求
+
+today, you’re going to hear the truth
+今天，你将听到真相
+
+And I ask you to have courage and join us to help our future generations resist this tyranny
+我请求你有勇气和我们一起帮助我们的后代抵制这种暴政
+
+* * *
+
+Date:01/24/2022
+原视频标题: Dr. Richard Urso of America’s frontline Doctors ask supporters to help our future generations resist this tyranny
+美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政
+原视频日期：2022/01/24
+原视频链接: [**https://twitter.com/usa\_solutions\_/status/1485371519417073670?s=24**](https://twitter.com/usa_solutions_/status/1485371519417073670?s=24)
+任务编号：KE365（3582）
+视频时间段 : 0:00-1:39
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶 盘古农场 – 天涯行
+审片：洛杉矶盘古农场 -银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

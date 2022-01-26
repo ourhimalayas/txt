@@ -2,47 +2,96 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“曾庆红”（七）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912180/)
+## 加州华裔参议员提出法案强制学校打疫苗
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1912218/)
 
-整理：tianzhihuan
-编辑：小红帽
+1月24日，加州华裔参议员Richard Pan提出法案强制加州学校学童打疫苗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-25-下午3.52.08.png)图片来源：雅典娜设计组（614）
+“Keeping schools open”
+“保持学校开放”
+That’s one of the top priorities for the state lawmakers.
+这是州立法者的优先事项之一
+As the COVID-19 continues to surge across
+随着新冠Omicron变种
+the country from the Omicron variant,
+继续在全国范围内激增
+this morning a new bill was proposed that will acquire
+今天早上提出了一项新法案，要求
+all California school children to be vaccinated.
+所有加州学童接种疫苗
+CBS’s Tina Patel is live at Lina High School
+CBS的Tina Patel正在 Lina 高中现场
+with more on that big announcement.
+她有更多关于这一重大消息的信息
+Hi Tina！
+你好Tina
+Good morning ！
+早上好
+The lawmaker introducing this bill is a doctor
+提出这项法案的立法者
+with school age children of his own.
+是一位自己有学龄孩子的医生
+And he says the data shows that adding the
+他说，数据显示，增加新冠疫苗接种
+COVID-19 vaccination to the vaccine-already-required
+是使已经有疫苗要求的加州学校
+California schools is the best way
+保持开放和确保
+to keep schools open and keep kids safe.
+孩子安全的最佳方式
+“As a pediatrician, parent, and a legislator,
+“作为一名儿科医生、家长和立法者
+I’m committed to giving the public confidence and
+我致力于让公众相信
+certainty that we’re working to prevent or
+我们正在努力防止或
+slow down the next coronavirus surge.”
+减缓下一次冠状病毒的爆发。”
+The governor already passed an executive order
+州长已经通过了一项行政命令
+mandating COVID-19 vaccines for public
+强制公立和私立学校的学生
+and private school students.
+接种中共病毒疫苗
+But it’s limited because the Food and Drug Administration
+但它是有限的，因为食品和药物管理局
+has not fully approved the shots for children
+尚未完全批准 16 岁以下
+under the age of 16, and parents can
+儿童的注射，且父母可以引用
+cite personal beliefs to opt out.
+个人信仰来选择不接种
+This new bill would get rid of the loophole and
+这项新法案将填补这个漏洞
+would protect school districts from legal challenges.
+并保护学区免受法律挑战
+School officials from LA and San Diego were
+来自洛杉矶和圣地亚哥的学校官员
+at today’s press conference to support the bill
+与一些学生一起参加了今天的新闻发布会
+along with some students.
+以支持该法案
+And that’s what the school district told us that
+这就是学区告诉我们的
+they decided to change the mask rules based on
+他们决定根据公共卫生官员的指导
+guidance from public health officials.
+更改口罩规定
+Now as for the new vaccination bill we talked about,
+至于我们谈到的新的疫苗接种法案，
+if it is passed by the state legislature,
+如果州议会通过
+it’ll go into effect next January.
+将于明年1月生效
 
+视频来源：
+[https://losangeles.cbslocal.com/video/6190203-proposed-bill-would-add-covid-vaccine-to-required-student-immunizations/](https://losangeles.cbslocal.com/video/6190203-proposed-bill-would-add-covid-vaccine-to-required-student-immunizations/)
 
-**郭文贵先生****2019****年****11****月****15****日盖特视频**
+* * *
 
-今天的香港就是当年的文化大革命,是中央政治局、中央常委、江家、曾家、朱家、孟家、王岐山家和这些大大小小的常委之间利益的较量。然后，要实行集权制,达到自己绝对控制的权利。（百分之）五十一,（或者）百分之九十九,甚至百分之百控股，还把自己头像印到人民币上去。为达到这个目的，在香港的问题上行凶作恶，打着所谓国家统一，国家独立的名义。香港都回归了,它跟独立有什么关系?它跟统一有什么关系?
-
-就像当年毛泽东说刘少奇,老子就动一个小指头就把你弄死了。那就是斗争嘛,玩人家老婆,老玩,老打电话来。最后人家刘少奇说,你这老让王光美来你这儿,大家都成笑话了。你能不能掩盖一下?最后人家不去了,不去我就弄死你,就这么简单。当什么接班人啊?你老婆都不给我玩,当什么接班人啊，是不是?然后动一个小指头就弄死你。结果死的什么（人）?死的老百姓、死的是那些上街的学生、死的是那些爱国的民主的、拥护毛泽东的，拥护共产党的（人）。
-
-**郭文贵先生****2020****年****3****月****25****日直播**
-
-我一辈子见过仨惜命的,第一个惜命的叫曾庆红,从来不吃药,坚守成(习)。曾庆红从来不吃药的。曾庆红应该是这些领导当中活的可能寿命最长的。从来不吃药,坚持锻炼,吃饭永远是谨小慎微。肥肉很少吃,偶尔一周吃上两片。（他）吃的东西都是最天然的。（他）最惜命，所以曾庆红（的）命一定长。
-
-**郭文贵先生****2020****年****7****月****28****日直播**
-
-亲爱的兄弟姐妹们，国内现在正在有一场剧烈的政治斗争，很有可能，在未来很快的时间（内），你们会看到中国的政治大佬和习之间的PK。南普陀协议，南普陀会议真的要开始了。
-
-两大战役，（第）一个是大家都知道（的），曾庆红。接下来，可能很快就会抓捕曾庆红的儿子曾伟、曾伟的老婆、曾庆淮；包括曾海生，曾庆红的妹妹曾海生;包括曾海生的老公，叫什么？张大业？还是叫什么？张大业。然后（抓捕）所有和曾伟做生意的（人）。肖建华已经进去了。第二个任务，戴永革，和戴永革所有的家人，包括他儿子，戴斌吧？（还）是叫什么？另外一个更重要的，可能是解放军有N个人被抓。不排除，栗战书也被抓。栗战书是绝对曾（家）的（人）。栗战书是（脚踏）双船，一个是曾庆红，一个是习近平。我估计，悬了、悬了，悬了。四天前，听说曾庆红要有行动了，但是没行动成。我估计败露了。现在习根本无心观察别的，就是一个，内斗、内战。这个是核心。核心，就是内部的斗争，这是肯定的。
-
-**往期回顾：
-**[**文•贵天成——文贵先生谈“曾庆红”（一）**](https://gnews.org/zh-hans/1889878/)**
-**[**文•贵天成——文贵先生谈“曾庆红”（二）**](https://gnews.org/zh-hans/1889899/)**
-**[**文•贵天成——文贵先生谈“曾庆红”（三）**](https://gnews.org/zh-hans/1896935/)**
-**[文•贵天成——文贵先生谈“曾庆红”（四）](https://gnews.org/zh-hans/1897035/)
-[文•贵天成——文贵先生谈“曾庆红”（五）](https://gnews.org/zh-hans/1903196/)
-[文•贵天成——文贵先生谈“曾庆红”（六）](https://gnews.org/zh-hans/1903752/)
-
-**发布：***tianzhihuan*
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*翻译：jiasen
+字幕：Rock小哥
+编辑/发布：Rock小哥*
 
  
 

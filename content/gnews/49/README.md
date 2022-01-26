@@ -2,35 +2,37 @@
 ---
 
 
-## 美国授权驻北京大使馆撤离 各国媒体报道持续发酵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911227/)
+## 布林肯称美国应重返“国际组织”以对抗中国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911317/)
 
-#### 作者：文斗
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 责编：白夜
+整理：Eileen（围剿维尼熊）
+编辑：5m
 
-美国国务院正式批准在中国的美国外交官和家属离开北京，这一消息在郭文贵先生公告后引发中文世界震撼，世界各国媒体报道也在持续发酵中。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1643165972185.jpg)图片来源：雅典娜设计组
 
-截至北京时间26日10点，报道该新闻的媒体已经超过20家。
 
-英文媒体有，路透社，新加坡亚洲新闻台（channelnewsasia）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2129.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2130.png)
-墙外中文媒体有，路透社中文、德国之声（DW）、时刻新闻（timednews）、禁闻网、看中国，以及中共大外宣万维网等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2131.png)
-中共国墙内首先由中共党媒环球时报在26日凌晨1：31分发表《冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”》。环球时报对美国“授权撤离”做了严厉批评。环球时报以一贯的文革批斗口气“来者不善”、“恶劣举措”指责美国“制造恐慌情绪，抹黑中国防疫成效，干扰北京冬奥会成功举行。”
+据观察者网报道：在1月24日的论坛讲话中，美国国务卿布林肯再谈中美关系。他回顾拜登政府过去一年的对华政策，称有竞争也有合作，但“其中对抗性成分越来越多”。谈及原因，布林肯称：“很大程度是因为中国已全然不同，变得更加自信、更加咄咄逼人。”
 
-甚至借所谓专家之口用“中共办喜事，美国故意来吊丧”这样的粗俗类比责骂美国。
+布林肯称美国应重返国际组织，以防中国在国际组织发挥领导作用，并强调现在和未来都要掌握主动权。
 
-随后有十几家墙内媒体转载球跟进，包括地方官媒杭州网，以及搜狐、新浪、百度、QQ、网易、千龙网等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2132.png)
-新闻来源：
-1、新加坡亚洲新闻台https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611
-2、路透社
-https://www.reuters.com/article/usa-china-diplomats-idUSL1N2U528B
-3、环球网
-https://world.huanqiu.com/article/46YF9AQJeYc
-4、杭州网
-https://news.hangzhou.com.cn/gnxw/content/2022-01/26/content\_8155156.htm
+当谈及美国将如何应对现在的中国时，布林肯提到：对内，加强投资；对外，巩固联盟关系。
+
+布林肯表示，美国应重振联盟关系，与盟国一起同中国打交道。他举例说，当与中国在经济问题上产生分歧时，美国若独自应对，只占世界GDP的20%至25%；若选择与欧洲或亚洲的盟国一起应对，就占到世界GDP的40%至50%，这股力量“令中国难以忽视”。
+
+与此同时，美国还应加紧对自身的投资，包括教育、基础设施、创新领域。
+
+参考链接：https://i.ifeng.com/c/8D65Jqt69GM
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

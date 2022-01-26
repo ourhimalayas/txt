@@ -2,35 +2,21 @@
 ---
 
 
-## 比尔-马赫说他永远不会打COVID-19疫苗加强针
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912110/)
+## 中共无耻掏空老百姓给别国送女人送钱
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912145/)
 
-据《www.theblaze.com》作者：ALEX NITZBERG，2022年1月21日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3580.png)图片来源：www.theblaze.com
-喜剧演员和电视节目主持人比尔-马赫在接受Deadline采访时质疑COVID-19加强针的作用，并表示他不会接种。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-“一些已经完全接种过疫苗并注射过加强针的人仍然对这种疾病呈阳性反应。”马赫告诉该媒体，“COVID-19疫苗并不能防止你传播它或避免感染这种疾病。我们知道这一点。这已经是一个事实。它们或许只是防止你死亡，姑且我们不能忽视这一点。但是，如果它们不能防止你传播它，也不能防止你感染它，为什么我们还在用我们一直以来的方式防治这种疾病？还有，打加强针有什么用？我永远不会去打加强针。”
+中国人一年往外捐款多少钱赞助多少钱？大家知道，中共这几年往外，习时代习太阳上来往外实际捐款多少钱吗？谁能回答？不要查啊，摔跤的价格你甭查啊。官方统计。 6万亿人民币，这是中国说的。还有2万亿在兑现的路上，事实多少钱？我告诉你啊。 12万亿美元。1.5万亿美金12万亿人民币啊。1.5万亿美金1.5万亿美金什么概念？战友们，整个广东一年的老百姓都不吃，不喝不尿给他。中国15万亿的GDP一年也就剩下1万亿，就一年中国啥也不干都给他们。我们得到了什么？得到了从非洲来 的几个大黑棍子啊，把中国的女性给戳住医院了！然后中国女性嫁给了黑人。到了非洲以后，被大家看到了视频被打成那个样子。非洲人到了山东学校里边儿，一人睡2・3 个女学生。我说这个是不是事实？我没有种族歧视吧？我非洲很多朋友。坦桑尼亚的好几个校长是我的朋友，他说:“Miles，如果你要是愿意做这个生意，我们愿意跟你做啊。”他说现在我们坦桑尼亚今年最大的成就，就是往中国派出学生。我问你们派了多少男的多少女的？大家去上网查一查，坦桑尼亚一个这么小的国家派出了400个男学生, 一个女学生。啊，就这个国家能把自己的儿女，能把自己的同胞送给外国人睡觉。中国历史上还真没有多少个，过去有什么大汉朝，唐朝宋朝是吧？有质押质子是吧？大秦朝把自己的公主王子送过去，咱俩不战争。但是我没见以一国之力，这么干的在历史上，我不懂啊！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中共无耻掏空老百姓给别国送女人送钱二.png)
+发布： *tianzhihuan*
 
-马赫接着说：“它不仅没有用，而且是一种非常新的疫苗。我并不想接种新的疫苗。同时，我们也不应该不公平地对待那些想让自己的免疫系统来应对疫情的人。现在，以色列正在进行第四次加强针。我在《纽约时报》——一个非常支持疫苗的出版物——头版读到关于以色列许多科学家反对加强针的报道，他们认为这可能会有一个反向的效果，叫做免疫系统疲劳。”
-
-他补充说：“我不希望免疫系统疲劳，你呢？因为，现在你会同时丧失疫苗或免疫系统的保护？我也有这样的担忧。”
-
-他告诉Deadline，他已经“受够了COVID”，但他从未认为病毒对健康人构成了重大威胁。
-
-“我从来没有害怕过病毒。我总是害怕对它的过度反应，随着事态发展，更证明我的担忧。我相信很多人有不同的感受，但这就是我的。”他指出：“我认为，对于健康状况良好的人来说，病毒从来就不是一种骇人的威胁。”
-
-主持《与比尔-马赫的实时对话》的马赫此前曾表示，他不想打加强针，尽管他甚至从未想过要接种疫苗，但他“为团队做了一件事”。
-
-原文连接：[**https://www.theblaze.com/news/bill-maher-says-he-s-not-getting-a-covid-19-booster-what-the-f-is-the-use-of-a-booster-shot#toggle-gdpr**](https://www.theblaze.com/news/bill-maher-says-he-s-not-getting-a-covid-19-booster-what-the-f-is-the-use-of-a-booster-shot#toggle-gdpr)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

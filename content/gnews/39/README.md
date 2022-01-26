@@ -2,32 +2,28 @@
 ---
 
 
-## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
+## 拜登政府正式撤销对企业的疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911869/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
-图片来源：gnews.org
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-90.jpg)
+图片来源：网络截图
 
-旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
+福克斯卡罗莱纳州网站1月26日报道，根据美联社消息，拜登政府已经正式撤销了一项要求大公司的工人接种疫苗或面临定期测试中共病毒要求的规定。
 
-随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
+职业安全与健康管理局（OSHA）星期二证实了这一撤销。但该机构表示，它仍然强烈鼓励工人接种疫苗。
 
-接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
+11月初，OSHA宣布对拥有至少100名员工的公司实行“要么接种要么测试”的规定。这项规则将影响到8000多万美国工人，原定于1月4日生效。
 
-新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
+但许多州和商业团体在法庭上对该强制令提出质疑。1月13日，最高法院停止了该计划。在一项6-3的裁决中，法院的保守派多数认为，OSHA超越了它的权力。
 
-##### 新闻来源：
+“OSHA以前从未实施过这样的任务。国会也没有，”法庭的多数人写道。“事实上，尽管国会已经颁布了解决中共病毒大流行病的重要立法，但它拒绝颁布任何类似于OSHA在此颁布的措施。”
 
-##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
+大法官们保留了对接受联邦医疗保险或医疗补助资金的医疗机构的疫苗强制令，该规定影响到1040万工人。
 
-##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
+OSHA表示，该规则可能以某种形式回归。虽然它不再是一个可执行的标准，但它仍然是一个拟议的规定，OSHA说。同时，该机构表示它将优先考虑医疗保健的强制令。
 
-##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
-
-##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
-
-##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
+新闻来源：[Biden administration officially withdraws vaccine rule for businesses](https://www.foxcarolina.com/news/biden-administration-officially-withdraws-vaccine-rule-for-businesses/article_89a1b6ce-7e24-11ec-970e-4ba675a58d90.html)
 
  
 

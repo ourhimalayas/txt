@@ -2,78 +2,47 @@
 ---
 
 
-## 美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912161/)
+## 文•贵天成——文贵先生谈“曾庆红”（七）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912180/)
 
-[https://gtv.org/video/id=61f00dc987664c47acd9d465](https://gtv.org/video/id=61f00dc987664c47acd9d465)
+整理：tianzhihuan
+编辑：小红帽
 
-Dr. Richard Urso (America’s Frontline Doctors)
-理查德·乌索医生（美国一线医生）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-25-下午3.52.08.png)图片来源：雅典娜设计组（614）
 
-We are not one doctor. We are 17,000 Doctors
-我们不是一位医生, 我们是17,000名医生
 
-that’s more than the NIH, more than the CDC
-这比美国国立卫生研究院还多、比疾病预防与控制中心还多
+**郭文贵先生****2019****年****11****月****15****日盖特视频**
 
-and more than the FDA
-比食品和药物管理局还多
+今天的香港就是当年的文化大革命,是中央政治局、中央常委、江家、曾家、朱家、孟家、王岐山家和这些大大小小的常委之间利益的较量。然后，要实行集权制,达到自己绝对控制的权利。（百分之）五十一,（或者）百分之九十九,甚至百分之百控股，还把自己头像印到人民币上去。为达到这个目的，在香港的问题上行凶作恶，打着所谓国家统一，国家独立的名义。香港都回归了,它跟独立有什么关系?它跟统一有什么关系?
 
-It’s all signed and verified
-这一切都已签名和验证过的
+就像当年毛泽东说刘少奇,老子就动一个小指头就把你弄死了。那就是斗争嘛,玩人家老婆,老玩,老打电话来。最后人家刘少奇说,你这老让王光美来你这儿,大家都成笑话了。你能不能掩盖一下?最后人家不去了,不去我就弄死你,就这么简单。当什么接班人啊?你老婆都不给我玩,当什么接班人啊，是不是?然后动一个小指头就弄死你。结果死的什么（人）?死的老百姓、死的是那些上街的学生、死的是那些爱国的民主的、拥护毛泽东的，拥护共产党的（人）。
 
-They are powerful forces against us as you know
-如你所知，他们是反对我们的强大力量
+**郭文贵先生****2020****年****3****月****25****日直播**
 
-The news media, does anybody trust the trusted news media?
-新闻媒体，有人信任新闻媒体吗？
+我一辈子见过仨惜命的,第一个惜命的叫曾庆红,从来不吃药,坚守成(习)。曾庆红从来不吃药的。曾庆红应该是这些领导当中活的可能寿命最长的。从来不吃药,坚持锻炼,吃饭永远是谨小慎微。肥肉很少吃,偶尔一周吃上两片。（他）吃的东西都是最天然的。（他）最惜命，所以曾庆红（的）命一定长。
 
-Do you trust the CDC and the FDA?
-你们相信疾病预防与控制中心和食品和药物管理局吗？
+**郭文贵先生****2020****年****7****月****28****日直播**
 
-Do you trust Fauci?
-你们相信福奇吗？
+亲爱的兄弟姐妹们，国内现在正在有一场剧烈的政治斗争，很有可能，在未来很快的时间（内），你们会看到中国的政治大佬和习之间的PK。南普陀协议，南普陀会议真的要开始了。
 
-Already, we’ve been fired, censored, erase from Wikipedia
-我们已经被解雇、被审查、从维基百科中删除
+两大战役，（第）一个是大家都知道（的），曾庆红。接下来，可能很快就会抓捕曾庆红的儿子曾伟、曾伟的老婆、曾庆淮；包括曾海生，曾庆红的妹妹曾海生;包括曾海生的老公，叫什么？张大业？还是叫什么？张大业。然后（抓捕）所有和曾伟做生意的（人）。肖建华已经进去了。第二个任务，戴永革，和戴永革所有的家人，包括他儿子，戴斌吧？（还）是叫什么？另外一个更重要的，可能是解放军有N个人被抓。不排除，栗战书也被抓。栗战书是绝对曾（家）的（人）。栗战书是（脚踏）双船，一个是曾庆红，一个是习近平。我估计，悬了、悬了，悬了。四天前，听说曾庆红要有行动了，但是没行动成。我估计败露了。现在习根本无心观察别的，就是一个，内斗、内战。这个是核心。核心，就是内部的斗争，这是肯定的。
 
-But we’re staying strong because we are with you
-但我们保持坚强，因为我们和你们在一起
+**往期回顾：
+**[**文•贵天成——文贵先生谈“曾庆红”（一）**](https://gnews.org/zh-hans/1889878/)**
+**[**文•贵天成——文贵先生谈“曾庆红”（二）**](https://gnews.org/zh-hans/1889899/)**
+**[**文•贵天成——文贵先生谈“曾庆红”（三）**](https://gnews.org/zh-hans/1896935/)**
+**[文•贵天成——文贵先生谈“曾庆红”（四）](https://gnews.org/zh-hans/1897035/)
+[文•贵天成——文贵先生谈“曾庆红”（五）](https://gnews.org/zh-hans/1903196/)
+[文•贵天成——文贵先生谈“曾庆红”（六）](https://gnews.org/zh-hans/1903752/)
 
-So today, again, we represent 17,000 doctors and scientists and humanity
-所以今天，我们再次代表17,000名医生、科学家和人类
+**发布：***tianzhihuan*
 
-We have three virtually indisputable recommendations back by high quality data
-我们有三项由高质量数据提供支持的几乎无可争辩的建议
-
-I have one ask for you today
-我今天有一个请求
-
-today, you’re going to hear the truth
-今天，你将听到真相
-
-And I ask you to have courage and join us to help our future generations resist this tyranny
-我请求你有勇气和我们一起帮助我们的后代抵制这种暴政
-
-* * *
-
-Date:01/24/2022
-原视频标题: Dr. Richard Urso of America’s frontline Doctors ask supporters to help our future generations resist this tyranny
-美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政
-原视频日期：2022/01/24
-原视频链接: [**https://twitter.com/usa\_solutions\_/status/1485371519417073670?s=24**](https://twitter.com/usa_solutions_/status/1485371519417073670?s=24)
-任务编号：KE365（3582）
-视频时间段 : 0:00-1:39
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶 盘古农场 – 天涯行
-审片：洛杉矶盘古农场 -银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
