@@ -2,23 +2,25 @@
 ---
 
 
-## 杨洁箧王毅讲话的影响陈全国胡春华胡海峰（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911013/)
+## 加拿大各地集会抗议疫情限制政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911137/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+加拿大温哥华扬帆农场 枫叶快讯
 
-3瓶茅台喝完我就觉得那个精神头就不一样，它是真是（不一样），哎呀这样和那如何看谁呀?那时候就河南的另外的组织部长陪着我们任人，最后告诉我，兄弟啊，这是茅台酒厂的原酿，这一瓶都兑10吨出来，你喝这一瓶就10吨茅台没了，但真好喝呀，喝下去就浑身发热呀，真跟吃伟哥似的。你知道吗？陈全国玩到这程度。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-38-edited.jpg)图片来源：TNH
 
-贾庆林说过话说，陈全国这人可以绝对给当党和国家领导人。现在他接着啥？胡春华全国农村工作组副组长，而你只是看表面，胡春华要升了。胡春华是要当总理的，或者是当人大主任甚至是接中办主任，一定是这个啊，现在习让他去当政法委书记啊，要接郭声琨啊，现在就是政法委书记，总理，人大主任中办主任这几个职务你想干啥啊？海峰同志进中南海，如果是春华不接，海峰同志中办副主任都可能了啊，甚至让海峰去新疆锻炼锻炼去，习这个人，这个脑子会玩啊，习说了算，你看看我对锦涛同志够意思吧？你把衣钵传给了我千秋万代了，我把你儿子要不中办副主任，那就未来中办主任，你看，像我抓令计划，但我也能让胡海峰当中办主任, 共青团派全都服了吧，服了吧？我让你到新疆，你爹长在西藏，我让你到，我让你长在新疆，然后给全国同志谈了。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/杨洁篪王毅讲话的影响陈全国胡春华胡海峰（三）-.jpg)
-发布： *tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据加拿大媒体【真北方】1月23日报道：日前，数十个城市的成千上万加拿大人与世界各地的城市协同一致，用自由集会来表达他们对特鲁多政府的疫情封锁措施和疫苗护照的强烈反对。
+
+报道称，在此次抗议活动中，多伦多，温哥华，蒙特利尔和渥太华等主要城市都涌现出大量的示威人群，他们举着“我们不会屈服”，“我们要自由和选择”以及“拒绝疫苗护照”等反抗标语，和平游行在市中心的街道上。
+
+此外，本次全国性集会还同时开启了加拿大货运卡车司机车队反抗疫苗护照的抗议行动。他们也于当天在各地自发集结并驱车前往首都渥太华，以此反击当局对他们实施的强制性 疫苗护照和对加拿大自由权利的恣意侵犯和破坏。
+
+* * *
+
+采编：文莱，编译撰稿：苦尽甜来 (文來），校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[Tens of thousands of Canadians protest COVID-19 restrictions at freedom rallies across country | True North (tnc.news)](https://tnc.news/2022/01/23/tens-of-thousands-of-canadians-protest-covid-19-restrictions-at-freedom-rallies-across-country/)
 
  
 

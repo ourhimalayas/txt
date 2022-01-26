@@ -2,26 +2,21 @@
 ---
 
 
-## 【秘翻在线】拜登政府宣布撤销强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1910970/)
+## 一切生命皆灵魂需要信仰
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911105/)
 
-**撰稿：Grace**
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-8.33.49-PM.jpeg)图片来源：reddit
-据Just the News 1月25日报道，美国职业安全与健康管理局（OSHA）周二撤销了2021年11月的命令，该命令规定拥有100名或以上员工的私人企业的美国工人必须接受中共病毒COVID-19疫苗接种。
+这个民族把猴子一天一百只吃了！有性繁殖是最聪明的动物，各种动物都有灵性，为啥大直播说灵魂？灵魂是存在的，先灵后魂，灵魂在西班牙文法文都是一个意思, 就是来自上天上帝给你的。中国汉字是云和鬼的结合， 那我们也是动物都有灵啊！你见到摄像机对动物世界拍摄有多夸张，万物皆有灵，中国人吃猴子，你见过人吃蛇吗？因为大量养殖，中国人吃老鼠！中国没有信仰的男男女女们的表情都是狰狞，中国这片土地如地狱一般, 我一想起我的牙都能咬出血！一个个苟且偷生！中国人的这种被诅咒远比这难受。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一切生命皆灵魂需要信仰.png)
+发布： *tianzhihuan*
 
-据报道，第一个向最高法院提出请求阻止该规则的人-就业创造者网络（Job Creators Network）总裁兼首席执行官阿尔弗雷多·奥尔蒂斯（Alfredo Ortiz）说：“就业创造者网络和美国小企业已经击败了拜登政府的非法强制疫苗规定，该强制规定可能会给就业创造者带来新的成本负担，并加剧历史上的劳动力短缺。”
-
-在该强制疫苗规定被撤回之前，美国高等法院在1月13日阻止了该疫苗规定在私人企业的执行，但允许政府对医疗工作者的强制规定继续存在。
-
-在1月21日， 美国联邦法院裁定，反对拜登对联邦雇员进行疫苗接种的人有可能在审判中获胜，并禁止联邦政府执行这一要求。
-
-司法部曾经表示，它将对该裁决提出上诉。
-
-报道称，劳工部在一份联邦公报中宣布了政府周二撤销强制疫苗规定的决定，其中部分内容如下：“ 2022年1月13日，美国最高法院暂停了疫苗接种和测试ETS… 在评估了法院的决定后，OSHA正在撤销作为可执行的紧急临时标准的疫苗接种和测试ETS……。尽管撤销了疫苗接种和测试ETS，OSHA仍然强烈鼓励工人接种疫苗，以防止COVID-19在工作场所带来的持续危险。”
-
-**新闻来源：** [Biden administration withdraws OSHA employee vaccine requirement following Supreme Court decision](https://justthenews.com/government/courts-law/biden-administration-withdraws-employee-vaccine-requirement-following-supreme)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

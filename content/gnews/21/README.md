@@ -2,38 +2,26 @@
 ---
 
 
-## 新中国联邦重大公告甜蜜蜜运动改变世界
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1910847/)
+## 【秘翻在线】拜登政府宣布撤销强制疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1910970/)
 
-作者：纽约香草山健身部 – 文鹰
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-美东时间1月25日，中国农历腊月小年日。GTV和盖特平台，郭文贵先生代表新中国联邦，向世界发布重大紧急公告。
-![](https://cdn.discordapp.com/attachments/823827667333808149/935636565277958174/IMG_8264.png)
-鉴于独裁中共政权，对中国人民犯下的滔天罪行，对文明世界发动的生化战争。爆料革命一直致力于消灭中国共产党。历经5年时间的爆料和情报，让各国政府逐渐认识到中共的邪恶。病毒的溯源，疫苗的真相，经济大危机。让文明的，民主的，法治的国家觉醒。
+**撰稿：Grace**
 
-郭先生正式宣布，美国总统拜登和布林肯国务卿，做出一个重大政治决定：即日起授权撤离美利坚共和国驻北京大使馆。郭先生随后以新中国联邦创始人的身份，向美国总统国务卿致感谢函。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-8.33.49-PM.jpeg)图片来源：reddit
+据Just the News 1月25日报道，美国职业安全与健康管理局（OSHA）周二撤销了2021年11月的命令，该命令规定拥有100名或以上员工的私人企业的美国工人必须接受中共病毒COVID-19疫苗接种。
 
-新中国联邦至创立以来，得到多数国家政府的支持和认可。美国政府的决定，标志着更多的国家政府，会在政治层面和新中国联邦紧密合作。
+据报道，第一个向最高法院提出请求阻止该规则的人-就业创造者网络（Job Creators Network）总裁兼首席执行官阿尔弗雷多·奥尔蒂斯（Alfredo Ortiz）说：“就业创造者网络和美国小企业已经击败了拜登政府的非法强制疫苗规定，该强制规定可能会给就业创造者带来新的成本负担，并加剧历史上的劳动力短缺。”
 
-郭先生公告播出后，20多个国家政府代表来电咨询。“甜蜜蜜运动”意义深远，新中国联邦不仅在拯救人类，也即将在改变世界。
+在该强制疫苗规定被撤回之前，美国高等法院在1月13日阻止了该疫苗规定在私人企业的执行，但允许政府对医疗工作者的强制规定继续存在。
 
-新闻链接：[https://gettr.com/post/pqhrh89f1e](https://gettr.com/post/pqhrh89f1e)
+在1月21日， 美国联邦法院裁定，反对拜登对联邦雇员进行疫苗接种的人有可能在审判中获胜，并禁止联邦政府执行这一要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+司法部曾经表示，它将对该裁决提出上诉。
 
-**校对/发稿：童谣**
+报道称，劳工部在一份联邦公报中宣布了政府周二撤销强制疫苗规定的决定，其中部分内容如下：“ 2022年1月13日，美国最高法院暂停了疫苗接种和测试ETS… 在评估了法院的决定后，OSHA正在撤销作为可执行的紧急临时标准的疫苗接种和测试ETS……。尽管撤销了疫苗接种和测试ETS，OSHA仍然强烈鼓励工人接种疫苗，以防止COVID-19在工作场所带来的持续危险。”
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-
+**新闻来源：** [Biden administration withdraws OSHA employee vaccine requirement following Supreme Court decision](https://justthenews.com/government/courts-law/biden-administration-withdraws-employee-vaccine-requirement-following-supreme)
 
  
 
