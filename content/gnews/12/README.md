@@ -2,47 +2,34 @@
 ---
 
 
-## 蔡崇信以1亿8800万购买曼哈顿顶层公寓
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910372/)
+## 【圆成原创】中伊俄三国军演说明什么?
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1910390/)
 
-作者：MOS 柳是多水土透
+**作者：面包飞上天**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/BA7AB77E-2113-4797-B283-9295EAFE8267.png)图片来源：网络
+中国、伊朗和俄罗斯于2022年1月18-20日在阿曼湾海域举行了为期三天的海上联合军演。此次三国的联合演习，据报道设置了海上抢险灭火、登临检查和解救被海盗劫持的遇险船舶、对海轻重武器射击科目演练等。
 
+但是醉翁之意不在酒，真的只是搞搞海上救援？防止海盗劫持？我们来分析一下更多的意思：
 
+1、 先通过更容易上手合作的项目演练下，这些科目容易组织，对三国要求也不算高，给未来三国演练更为复杂的科目埋下了足够的伏笔。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-2.png)
+2、三国的联合，重点辐射中东、北非甚至南亚次大陆地区，形成稳定的铁三角关系。在此三角内的国家也是极尽拉拢，累计撒币千亿巩固联盟战略关系。中共政府与南亚和中亚地区 174 个城市之间的 193 个接触点都有密切合作关系，避免在家门口翻船。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5D22B9E2-C78A-4D1B-967C-43C150ABF405.jpeg)图片来源：网络
+3、三国都跟美国有过节，这次黑暗三国联起手来，共抗美国。
 
+4、波斯湾的稳定对中共国非常重要，中共国商品通过这条航道运往欧洲，商船也通过这条航道运回石油。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/A35ABC57-1137-4E3E-AD73-52D0537C7908.jpeg)图片来源：网络
+**5、 总结一句话：家门口共建墙，暗黑国凑一起。拉盟友共抗美，找伊朗保能源。**
 
+**编辑：LILY**
 
-近日，一位买家从亿万富翁对冲基金经理Daniel Och 手中，以近2倍价格，买下曼哈顿220 Central Park South 顶层公寓。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-49.png)图片来源：Yahoo!finance
-彭博社根据产权文件，披露了买家身份 – Blue Pool Capital。根据纽约州政府文件，Blue Pool从JP Morgan Chase获得了7150万美元的贷款后，用1.88亿美元（约12亿人民币），购置这栋2年前仅为0.93亿美元的物业。这家注册地在香港的资本公司，实际上是阿里巴巴联合创始人及NBA布鲁克林篮网老板蔡崇信的财富管理公司。 6个月前，蔡崇信同样花费$157,000,000，买下了该栋楼内60和61楼2套1层1户大平层，以及位于18楼的单间公寓。
+**发布：歪桑**
 
-中央公园南220号公寓（220 Central Park South），由设计过费城美国革命博物馆以耶鲁大学学院建筑的大师Robert A. M. Stern Architects设计楼体，室内装潢由曾领导过自由女神像修复的设计师Thierry W. Despont 负责，被称为曼哈顿“亿万富豪的碉堡。
+20220125
 
-2020-2021年疫情期间，纽约市最贵的房产交易，前22名都来自于这栋物业。
-
-郭先生曾在近日直播中披露，蔡崇信购买的多个中央公园附近高价房产为替马云洗钱代持的交易。
-
-新闻来源：[https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html](https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html)
-
-[https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse](https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,32 @@
 ---
 
 
-## 法国出台关于COVID-19新政策，禁止未接种疫苗的人 进入酒吧、餐馆和体育场馆
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1910338/)
+## 七哥谈重大的新证据（2022-01-17摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1910365/)
 
-**编译：沉默老歌**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/591F2CF8-4095-4929-B7ED-318CCECC1FA0.jpeg)图片来源：网络
-法国通过了一项新法律，要求所有人在餐馆、酒吧、旅游景点和体育场馆出示疫苗通行证，除非他们最近从病毒中康复。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-该要求是政府应对病毒战略的核心，这意味着未接种疫苗的人将不得进入这些公共场所。
+来源：郭先生2022-01-17直播11:32:18摘录
 
-法国经历欧洲有史以来最高的冠状病毒感染日病例数，其医院继续挤满新冠病毒患者。
+主要是以下几个方面，你有重大的新证据发现。重大新证据是什么标准，那由法官来确定啊，就是你有重大的新证据，比如说这个中间，突然有那个太平联盟的有人出来作证，比如说正义啊，正义说我举手，这我是全手经纪人，这以前全都是胡扯我被绑架了，而且这个事情Miles Guo早就把钱还了，根本不存在这个问题，而且我是被威胁的啊，包括这中间提供证据的人啊，什么什么一堆的事情。第二件事情就是签那个假字啊 ，谁签的，然后你说我签，没有用的，我能拿出证据来证明是假的，是吧。事实上的证据和当事人出现，这是会导致案情重审。另外一个就是现在有人提着比如程序不正义，这个里边程序完全是违法的 ，然后是上边，我们比如说上诉的法庭，最高法院、联邦法院、联邦最高法院啊 ，还有好几层呢，说：“哎这个程序是不可以，重审。” 啊，第三个事情，这个中间可能发生，共产党内部，比如孙力军抓了，孙力军在案情交代当中的卷轴：其实我操纵了美国法庭，缠诉超限战郭文贵。而这个东西，这个卷轴被咱拿到了，而且经过第三方和美国政府的认可，这是真的 ，那这个事就大了，那就刑事案的，是吧。那所有的牵制人不管你是谁，你都要被刑事调查。以上几个因素都会导致案子突变，而且我相信一定会发生，而且不会是一个原因发生，好几个原因都会发生，一定会的。谢谢！
 
-在 Omicron 变种激增的情况下，政府几乎没有实施其他限制，而是专注于上周获得法国议会和宪法委员会批准的疫苗通行证。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-研究表明，与之前的 Delta 变体相比，Omicron 引起严重疾病的可能性更小，它比其他冠状病毒株更容易传播，并且已经在包括英国在内的许多国家占据主导地位。
+**关注我们**
 
-Omicron 还更容易感染那些接种过疫苗或以前曾感染过该病毒的人。
+Discord 账号
 
-**来源链接：**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[COVID: France bars unvaccinated from restaurants and sports venues](France%20bars%20unvaccinated%20from%20restaurants%20and%20sports%20venues)
+Gettr 账号
 
-**编辑：LILY**
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-**发布：歪桑**
-
-20220125
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
