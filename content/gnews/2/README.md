@@ -2,34 +2,51 @@
 ---
 
 
-## 美国银行称美国中央银行数字货币将维护美元地位
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912152/)
+## 朱利安-阿桑奇在美国引渡案中获得上诉许可
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912186/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE1.jpg)图片来源：www.coindesk.com
-美国银行在一份报告中说，美国中央银行数字货币（CBDC）将不同于目前向公众提供的数字货币，因为它将是美国联邦储备局而不是商业银行的债务，因此将没有信用或流动性风险。
+据《nypost.com》转《Associated Press》，2022年1月24日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3588.png)在伦敦高等法院作出有利裁决后，维基解密创始人朱利安-阿桑奇，赢得了反对引渡美国的首轮胜利。图片来源：REUTERS/Peter Nicholls
+伦敦——维基解密创始人朱利安-阿桑奇周一赢得了推翻英国裁决的首轮胜利，英国裁决为他被引渡到美国接受间谍罪审判打开了大门。
 
-由阿尔凯什·沙阿（Alkesh Shah）领导的分析师们周一在报告中写道，维护美元作为世界储备货币的地位，改善跨境支付和增加金融包容性，都被视为美国数字货币的好处。美联储上周发表了一份关于美国CBDC的好处和风险的讨论文件。
+伦敦高等法院允许阿桑奇就该案向英国最高法院提出上诉。但最高法院必须同意接受此案，才能向前推进。
 
-该报告称：“潜在的风险——虽然可以通过CBDC设计上的选择来削弱——包括通过转移存款来改变金融部门的市场结构，如果商业银行的存款被转换为CBDC，会增加金融系统的流动性风险，以及降低货币政策的执行效力。” 美国银行表示，在发行CBDC之前，关键的考虑因素是它需要有隐私保护、中介服务、可转让和身份验证。
+最高法院在其网站上说，在提交申请后，最高法院通常需要大约8个审理周来决定是否接受上诉。
 
-该银行指出，在没有CBDC的情况下，稳定币的使用可能会增加，并补充说，截至1月21日，市场价值最大的两个稳定币——泰达币和美元币，其市场价值合计约为1210亿美元。报告说，它们作为一种支付手段的使用正在增加，特别是用于跨境汇款，因为它们比使用法定货币更快、更便宜。
+这一决定是阿桑奇为避免在美国接受系列指控而进行法律缠诉的最新一步。维基解密十多年前公布美国机密文件引发系列指控。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2141.png)朱利安-阿桑奇的未婚妻斯特拉-莫里斯（中）在高等法院裁定后，在皇家法院外向媒体发表讲话。图片来源：Leon Neal/Getty Images
+一年多以前，伦敦的一名地方法院法官拒绝了美国的引渡请求，理由是阿桑奇如果被关押在美国苛刻的监狱条件下，可能会自杀。美国当局后来保证，维基解密创始人不会遭受身体和精神健康损害的严厉待遇。
 
-在本月早些时候发表的一份报告中，美国银行对英格兰银行关于英国CBDC将只是作为一种数字现金形式的说法提出质疑。它说，CBDC有可能取代活期存款账户，成为消费者持有其大部分资金的方式。
+高等法院上个月推翻了下级法院的裁决，称美国的承诺足以保证阿桑奇会得到人道的待遇。
 
-**简评：**疫情加速了数字货币时代的到来，在各国开始正式探讨数字货币的时候，新中国联邦的喜币早已横空出世，改写世界数字货币的游戏规则。数字货币提供了传统法币所没有的安全，高效，稳定的属性，随着中共国房地产的崩塌，加上人民币超发一定会形成雪崩效应，没有人会再相信人民币的价值，因此数字货币的崛起一定会加速中共的灭亡。
+这些保证是高级法院周一裁决的重点。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2142.png)2022年1月24日，维基解密创始人朱利安-阿桑奇的支持者在皇家法院外抗议。图片来源：REUTERS/Henry Nicholls
+阿桑奇的律师正在寻求上诉。
 
-新闻链接: [Bank of America Says US CBDC Would Preserve Dollar’s Status as World’s Reserve Currency](https://www.coindesk.com/policy/2022/01/24/bank-of-america-says-us-cbdc-would-preserve-dollars-status-as-worlds-reserve-currency/?outputType=amp#aoh=16430782050315&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=From%20%251%24s)
+高等法院允许阿桑奇上诉，以便最高法院能够决定“在什么情况下，上诉法院可以接受请求国的保证……在引渡程序中”。
 
-* * *
+阿桑奇的律师认为，美国政府关于阿桑奇不会受到极端条件的保证是没有意义的，因为它是有条件的，可以由美国当局酌情改变。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2143.png)维基解密创始人朱利安-阿桑奇被从高等法院带走，该法院作出了有利于他的裁决。图片来源：AP Photo/Matt Dunham
+美国已经要求英国当局引渡阿桑奇，以便他能够接受与维基解密泄露军事和外交文件有关的17项间谍罪和一项滥用计算机罪的审判。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+50岁的阿桑奇自2019年以来一直被关押在高度安全的贝尔马什监狱，当时他因在另一场法律斗争中违反保释而被捕。在此之前，他在厄瓜多尔驻伦敦大使馆内躲藏了7年。2012年，阿桑奇在大使馆寻求保护，以避免被引渡到瑞典，面对强奸和性侵犯的指控。
 
+瑞典在2019年11月放弃了性犯罪调查，因为时间已经过去了很久。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2144.png)自2019年以来，朱利安-阿桑奇因在另一场法律斗争中违反保释而被关进监狱，在此之前，他躲在厄瓜多尔大使馆以避免被引渡到瑞典。图片来源：AP Photo/Alastair Grant
+美国检察官说，阿桑奇非法帮助美国陆军情报分析员切尔西-曼宁窃取机密外交电报和军事文件。维基解密后来公布了这些文件。
 
-编辑：【英国伦敦喜庄园编辑部】
+阿桑奇的律师辩称，当事人不应该被指控，因为他是以记者的身份行事，受到保障新闻自由的美国宪法第一修正案的保护。律师补充说，他发表的文件暴露了美国军队在伊拉克和阿富汗的错误行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+原文连接：[**https://nypost.com/2022/01/24/julian-assange-wins-first-stage-in-effort-to-appeal-us-extradition/**](https://nypost.com/2022/01/24/julian-assange-wins-first-stage-in-effort-to-appeal-us-extradition/)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
