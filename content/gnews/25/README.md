@@ -2,23 +2,27 @@
 ---
 
 
-## 赵启柱的事情（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911201/)
+## 民调显示多数加拿大人已陷入经济困境
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911349/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+加拿大温哥华扬帆农场 枫叶快讯
 
-他最爱的也是唯一的闺女下月举行婚礼，比任何时候都希望有一个好的状态，所以出事前几天， 继12月20日去看医生配药后，据说服用药物后没啥用，反而反应很强烈，头疼欲裂，出现幻觉。哇塞！没吃青蒿素，这是错误的啊。我也很怀疑，被人使坏，会否药物有问题，所以先发给你看看。最后，拜托你一定一定避免伤害他和他那无辜善良的家人，也请千万不要暴露有关我的任何信息啊。“没有暴露啊。‘七哥，您昨天的大直播中谈到了厦门招行赵启柱行长坠楼，其未在建行 工作过，是个极为清廉，正派的工作狂，人品极好，真诚，很值得尊敬。其与老王吴小辉张宏伟及诸多地产老板应该没有什么来往，和您说的赵永志不是同一个人。他可能被利用，但其和家人 绝无贪腐可能，但现在大家都把这混在一起，会很伤害其家人及朋友。愿好人好梦逝者安息。如七哥能再次确认将无胜感激。“我确认啊，我们说错了人，万分抱歉，万分抱歉啊！好吧，万分抱歉啊，就是说我们今天很严重，因为这是我们的老椅子，包括战友。我们新中国联邦就像犹太人一样，只要你惹了我。365天，300年，我追到你全球不拉倒。我们对战友说的事情都是天大的事情，说错我们就要保护。所以说今天，我也要把这个说出来，再一次对赵启柱家人带来的不便表示道歉啊！如何有任何伤害，请和我联系。这位老椅子战友说的是对的。我们不一定认为你说的百分之百真实，但我们100%的相信，因为你是老椅子，我们的战友，谢谢啊。希望赵启柱先生安 息。坏人田惠宇，还有付刚峰，缪建民，咱别搞错了啊，他一定也会跳楼，这几个人也会跳楼也 会自杀。但是赵启柱同志是好人啊，愿早日安息进入天堂吧，谢谢。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-41-edited.jpg)图片来源：TNH
 
-拜登签署的这个军事法案。刚才我看了文耀的PPT,感谢战友们做了很多PPT。这个法案啊，这是我们战友，这个就是美国制度啊！包括我们过去经历的大事儿，咱们老百姓已经被洗脑了，是不是就是整个的商鞅五策，就让你变傻子，让你无知，让你走极端，让你忙得无所事事,最后忙死。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/赵启柱的事情二.png)
-发布： *tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据加拿大[CTV新闻]近日报道，最新民意调查显示，近60%的加拿大人难以为自己及家人提供足够的生活用品和食物，该数字比2019年的比率增加了36%。
+
+报道称，疫情所导致的通货膨胀是造成该现象的主要原因，加拿大正面临着30年以来最高的通胀水平。自2年前疫情开始之后，该国各种商品价格都出现了史无前例的上升。其中，食用油价格的涨幅就高达42%，白糖价格也上涨了至少22%。
+
+此外，该调查还计算了包括债务、住房，食品成本和财务状况等在内的综合“经济压力指数”，并将受访者分为从小康到陷入困境四个等级。而在纽芬兰省，因受石油产量下降的影响，约45%的受访者被归类为”陷入困境“。
+
+同时，调查还发现，约40%的加拿大人认为他们的财务状况在过去一年有所恶化，而成为13年来最高，其中，艾伯塔省、萨省和纽芬兰省名列前茅。
+
+* * *
+
+采编：   UCool优酷，编译撰稿：自由法兰西 ， 校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://www.ctvnews.ca/canada/nearly-60-per-cent-of-canadians-find-it-difficult-to-feed-their-families-poll-finds-1.5748898?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&taid=61eaa755e941150001c6f358&utm\_campaign=trueAnthem%3A+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.ctvnews.ca/canada/nearly-60-per-cent-of-canadians-find-it-difficult-to-feed-their-families-poll-finds-1.5748898?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61eaa755e941150001c6f358&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
  
 

@@ -2,25 +2,36 @@
 ---
 
 
-## 加独立记者团呼吁议会拒绝新华社申请
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911558/)
+## 有声|中共邪教的第七个特征——篡改历史
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911691/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月24日，郭先生在大直播中再次提到中共符合邪教的六大特征，即教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、反人类反社会，还要加上第七个特征：篡改历史。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-43-edited.jpg)图片来源：TNH
+郭先生说，篡改历史是其它邪教从来没有做过的，是中共特有的邪恶特质。中国五千年的历史被中共篡改了。中国人原先是有信仰的，信神、重视家庭，也尊师重教。但是，中共竟然把这一切都给灭了，以“爹亲娘亲不如党亲”的谬论洗脑，让中国人要“党”不要“德”。如今，中国人在邪恶中共的统治下最缺“德”。体现在这一次的疫苗灾难上，中共很多官员打假疫苗以及假打疫苗，他们会活下来，但无知的人却被灭了。中共篡改历史，是对中国人民与世界人民的极大伤害。
+
+原文链接：[中共邪教的第七个特征——篡改历史](https://gnews.org/zh-hans/1908495/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-据加拿大媒体[真北方]近日报道，该国独立记者团的数十名成员和新闻工作者最近联合发表声明，呼吁[加拿大议会新闻部]拒绝中共的[新华社]申请加入该国政府及议会新闻发布会的请求。
-
-报道称，由于中共喉舌[新华社]一直都在为中共暴政的各项反人类罪和种族灭绝行径掩盖真相甚至歪曲造谣，因次当局给[新华社]的中共党员颁发在加拿大神圣议会大厅里出入的通行证，是对该国所有人的侮辱和背叛。
-
-此外，多名记者还透露，[新华社]高层人员曾秘密要求他们全程监视在加拿大的反共人士和团体及其行动。而此举也被认为是危及和破坏了加拿大的国家安全。
-
-* * *
-
-采编： 文莱 ，编译撰稿：自由法兰西 ， 编辑撰稿，发稿：硫酸羟氯喹64
-
-原文链接： [https://tnc.news/2022/01/19/independent-press-gallery-demands-federal-counterpart-reject-chinese-state-outlet/](https://tnc.news/2022/01/19/independent-press-gallery-demands-federal-counterpart-reject-chinese-state-outlet/)
 
  
 

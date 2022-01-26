@@ -2,25 +2,37 @@
 ---
 
 
-## NBA球员坎特继续被中共打压
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911588/)
+## 美国国务院因疫情原因批准驻华使领馆“授权撤离”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911732/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-44-edited.jpg)图片来源：布赖特巴特
+整理：Eileen（围剿维尼熊）
+编辑：5m
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1643171330109.jpg)图片来源：雅典娜设计组
 
 
-据美国[布赖特巴特新闻]1月21日报道，中共大外宣《环球时报》日前公开污蔑NBA凯尔特人队球员伊内斯-坎特，并将其勇敢揭露真相和争取人权的行动妄称为与美国中央情报局合作的证据。
+据环球时报报道：25日从消息人士处获悉，美国国务院拟以“中国疫情状况”为由，批准其驻华使领馆“授权撤离”。分析人士表示，这是上月白宫宣布“不派官方代表团”出席冬奥会后，华盛顿抵制北京冬奥会的又一行动。在未来一个月中，不排除美国将采取更多行动反对中国和北京冬奥会。
 
-据悉，中共在利用其大外宣打击坎特之前，就曾利用前NBA球员姚明来抨击坎特公开反对该政权种族灭绝的言论。而现在，中共再次利用其国家机器对该球员进行打压。
+据了解，“授权撤离”系美国驻外机构针对特定的紧急事件，决定将驻外人员撤离驻在国的行为，需获得美国国务院高级官员批准后方可实施。
 
-报道称，NBA近年来不断出现声讨中共罪行的言论，包括2019年火箭队总经理莫雷曾表示要与香港民主法治站在一起； 坎特近期则公开谴责党魁习近平独裁、中共强摘器官并穿着斩首习近平形象的鞋子以示抗议。
+2020年1月新冠肺炎疫情暴发之初，美国曾单方面宣布临时关闭驻武汉总领馆并撤离领馆人员。
 
-* * *
+美国国务卿布林肯24日用这样一句话形容中美关系：“如果你不在餐桌上，就可能会在菜单上。”
 
-采编：风云小哥           翻译：文莱               校对编辑，发稿：硫酸羟氯喹64
+中国外交学院教授李海东表示：最近美国正在南海上开展军演。对于美国接下来可能采取的举动，中方应有充分的心理预期，并采取相应且坚决的反制措施。
 
-原文链接：[China Floats Conspiracy Theory that Enes Kanter Freedom Is a CIA Agent (breitbart.com)](https://www.breitbart.com/asia/2022/01/21/china-floats-conspiracy-theory-that-enes-kanter-freedom-is-a-cia-agent/)
+参考链接：https://i.ifeng.com/c/8D6ToRoYLh9
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
