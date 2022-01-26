@@ -2,78 +2,64 @@
 ---
 
 
-## 美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912161/)
+## 新冠疫苗造成伤害，泰国政府已赔偿10亿泰铢
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912181/)
 
-[https://gtv.org/video/id=61f00dc987664c47acd9d465](https://gtv.org/video/id=61f00dc987664c47acd9d465)
+#### **【雅典娜快讯】和您一起探究世界**
 
-Dr. Richard Urso (America’s Frontline Doctors)
-理查德·乌索医生（美国一线医生）
+整理报道：不要代表我Kari
+编辑：文泓
 
-We are not one doctor. We are 17,000 Doctors
-我们不是一位医生, 我们是17,000名医生
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/NB9MUEEIDV12PBES10H5R.png)图片来源：ThailandBusiness
 
-that’s more than the NIH, more than the CDC
-这比美国国立卫生研究院还多、比疾病预防与控制中心还多
 
-and more than the FDA
-比食品和药物管理局还多
+当地时间1月25日，据《曼谷邮报》报道，在一篇政府的报告中提出了最为重要的一点，作为联合国和世卫组织的成员国，泰国政府明确地承认，直接造成了泰国人死亡和不良副作用的根本原因是接种了新冠疫苗。
 
-It’s all signed and verified
-这一切都已签名和验证过的
+- **在向当局提出索赔的****11,707****人中，有****8,470****人（占所有索赔人的****72.3%****）得到了赔偿；**
+- **有****1,962****人，即****23%****的受偿者“在接受了新冠疫苗注射后永久瘫痪或死亡”。**
 
-They are powerful forces against us as you know
-如你所知，他们是反对我们的强大力量
 
-The news media, does anybody trust the trusted news media?
-新闻媒体，有人信任新闻媒体吗？
+这件事情影响是深远的，**泰国政府的这一决定正式通告所有泰国民众和世界各地的民众，正式拒绝接受这种有毒的新冠疫苗。**
 
-Do you trust the CDC and the FDA?
-你们相信疾病预防与控制中心和食品和药物管理局吗？
+**这一决定开启并确定了法律先河——针对大型制药公司和腐败政府的集体诉讼以及刑事指控即将到来。**
 
-Do you trust Fauci?
-你们相信福奇吗？
+各国政府将无法否认，已被科学家和医生们达成的共识认为致命的疫苗将（对世界造成）毁灭性的影响，他们也不能强加给我们疫苗护照。
 
-Already, we’ve been fired, censored, erase from Wikipedia
-我们已经被解雇、被审查、从维基百科中删除
+此外，如果你有任何疑问，请查阅辉瑞公司根据“信息自由法”发布的“机密报告”，该报告明确证实了mRNA疫苗的犯罪性质，它已在世界范围内造成的死亡和伤害。
 
-But we’re staying strong because we are with you
-但我们保持坚强，因为我们和你们在一起
+辉瑞的‘机密’报告中包含有关‘新冠疫苗’对死亡率和发病率造成影响的详细证据。这些来自‘当事人’的第一手可靠数据现在可以用来制定和反击针对大型制药公司、政府、世界卫生组织和媒体的法律程序。
 
-So today, again, we represent 17,000 doctors and scientists and humanity
-所以今天，我们再次代表17,000名医生、科学家和人类
+泰国国家卫生安全办公室(NHSO)表示，在过去八个月中，已经向遭受新冠疫苗副作用的泰国人支付了近10亿泰铢的赔偿金。
 
-We have three virtually indisputable recommendations back by high quality data
-我们有三项由高质量数据提供支持的几乎无可争辩的建议
+该机构承认，在2021年4月5日至12月26日期间，已批准了约9.27亿泰铢（2800万美元）的赔偿金。
 
-I have one ask for you today
-我今天有一个请求
+NHSO发言人兼副秘书长阿塔蓬说，在向当局提出索赔的11,707人中，有8,470人（占所有索赔人的72.3%）已得到了赔偿。
 
-today, you’re going to hear the truth
-今天，你将听到真相
+这些索赔分为三个类别，第一类是疫苗接种者提出的索赔，他们在接受新冠疫苗注射后出现了轻度至中度的副作用。
 
-And I ask you to have courage and join us to help our future generations resist this tyranny
-我请求你有勇气和我们一起帮助我们的后代抵制这种暴政
+阿塔蓬博士说，这一类别共有6,298人，并指出他们有资格从政府获得不超过100,000泰铢的补偿。（**10,0000****泰铢**等于3037.7美元）
 
-* * *
+第二类别，包括那些在接种疫苗后经历暂时性瘫痪和/或身体机能丧失的人提出的索赔，并指出这一类有210人将获得高达240,000泰铢的赔偿。
 
-Date:01/24/2022
-原视频标题: Dr. Richard Urso of America’s frontline Doctors ask supporters to help our future generations resist this tyranny
-美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政
-原视频日期：2022/01/24
-原视频链接: [**https://twitter.com/usa\_solutions\_/status/1485371519417073670?s=24**](https://twitter.com/usa_solutions_/status/1485371519417073670?s=24)
-任务编号：KE365（3582）
-视频时间段 : 0:00-1:39
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶 盘古农场 – 天涯行
-审片：洛杉矶盘古农场 -银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+第三类别，是接受了新冠疫苗后导致永久瘫痪或死亡的人进行的索赔。这一类中的1,962人有资格要求获得高达400,000泰铢的赔偿。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+在提交的11,707件索赔中，有1,752件因索赔人不符合规定的标准而被驳回索赔要求——其中615人已提出上诉。
+
+索赔人有权为自己和/或亲属寻求赔偿，而不需要证明他们的健康状况确实是由接种新冠疫苗所导致的，这一点毫无疑问。
+
+阿塔蓬博士说，国家卫生局已经在全国各地成立了13个委员会来处理赔偿要求，并补充说赔偿金将在申请被批准后的五天内支付。
+
+同时，NHSO秘书长查德说，去年10月和11月，该机构又向全国1942家医疗机构和医院支付了313亿泰铢，以帮助抗击新冠疫情。
+
+原文链接：[Thailand Government Will Pay Compensation for Vaccine “Side Effects” and Deaths: One Billion Baht – Global ResearchGlobal Research – Centre for Research on Globalization](https://www.globalresearch.ca/side-effects-cost-government-b1bn/5768018?utm_campaign=magnet&amp;utm_source=article_page&amp;utm_medium=related_articles)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

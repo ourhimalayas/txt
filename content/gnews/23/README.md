@@ -2,21 +2,19 @@
 ---
 
 
-## 中共内斗揭秘
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912132/)
+## 张文宏建议上海做好疫情暴增5倍或者10倍的准备
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1912164/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+撰稿：追着曙光跑
 
-刘亚洲抓他的原因是他也不是什么好人，当年邓不是兑现习爹给人大委员，所有官二代都称王岐山是鬼子六，山子就是姚明珊外号，习的外号就叫猪头，可不是你们叫他猪头，从小到大就叫他猪头。这些真正的老大曾庆红，王岐山是女婿帮老大！他发现找习不行当然找八哥去了，立下不动家里财产，“皇子皇孙”，还出一个正部级，那习发现你们走那么近肯定动我，在你对我好对我有威胁这事上, 很多人对习说，让他上来了比他们还危险，所以习发现， 拉倒吧刘源你滚一边去吧！所以看共产党斗争我们看到的本质就是习王斗，没有任何其他。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中共内斗揭秘.png)
-发布： *tianzhihuan*
+据中共国网易新闻1月25日的报道，华山医院感染科主任张文宏医生，在提交今年上海两会的书面建议中指出，全球抗疫已出现疲惫和松懈，中共国将面临更大的风险，应未雨绸缪。他建议上海，应针对“疫情规模超出现在5倍或者10倍”做好预案。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-26-at-16.47.06.jpeg)图片来源：网络
+中共病毒的新变种奥米炕正以前所未有的速度席卷全球，目前的数据样本显示，大多数奥米炕传入时都无症状，很多感染者在早期很难被发现。而且传染力极强，不仅能够突破现有疫苗的防护力，甚至能让以前的患者重复感染。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+虽然奥米炕的传播力强，但目前的重症率和死亡率并不高。对于奥米炕的特点文贵先生早在2021年12月1日大直播就已经告诉世界：欧洲科学家指出，奥米炕病毒传染致死率并不高，致残率不高，这个毒的活性很高，容易传染。
+
+信息来源：[张文宏警告：做好疫情暴增10倍的准备，“群体免疫”适合中国吗？](https://c.m.163.com/news/a/GUIPIDM305399MBQ.html?spss=newsapp)
+[2021年12月1日文贵大直播](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
  
 

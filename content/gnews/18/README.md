@@ -2,34 +2,51 @@
 ---
 
 
-## 北大退休教授郑也夫发文反对中共武统台湾
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912162/)
+## 朱利安-阿桑奇在美国引渡案中获得上诉许可
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912186/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+据《nypost.com》转《Associated Press》，2022年1月24日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3588.png)在伦敦高等法院作出有利裁决后，维基解密创始人朱利安-阿桑奇，赢得了反对引渡美国的首轮胜利。图片来源：REUTERS/Peter Nicholls
+伦敦——维基解密创始人朱利安-阿桑奇周一赢得了推翻英国裁决的首轮胜利，英国裁决为他被引渡到美国接受间谍罪审判打开了大门。
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19.png)
-据鸣人堂报道：1月22日，北京大学退休教授郑也夫为台海情势发表《匹夫說台海》短文，反对中共武统以及武力威慑台湾。郑也夫强调由于中共严控言论使得武统之论甚嚣尘上，他的公开反对可以击碎“武统派”代表人民的错觉。
+伦敦高等法院允许阿桑奇就该案向英国最高法院提出上诉。但最高法院必须同意接受此案，才能向前推进。
 
-据自由亚洲电台指出，郑也夫拒绝接受后续采访，以避免当局对他错误理解。他强调文章已经明确了观点。
+最高法院在其网站上说，在提交申请后，最高法院通常需要大约8个审理周来决定是否接受上诉。
 
-郑也夫曾在2020年7月发表了一篇《为谁保江山》的文章之后，消声了差不多一年半。
+这一决定是阿桑奇为避免在美国接受系列指控而进行法律缠诉的最新一步。维基解密十多年前公布美国机密文件引发系列指控。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2141.png)朱利安-阿桑奇的未婚妻斯特拉-莫里斯（中）在高等法院裁定后，在皇家法院外向媒体发表讲话。图片来源：Leon Neal/Getty Images
+一年多以前，伦敦的一名地方法院法官拒绝了美国的引渡请求，理由是阿桑奇如果被关押在美国苛刻的监狱条件下，可能会自杀。美国当局后来保证，维基解密创始人不会遭受身体和精神健康损害的严厉待遇。
 
-当时中共深陷疫情灾难，经济急速下行，和美国也出现了外交困局，加上违反《中英联合声明》，强推香港《国安法》。时任美国国务卿蓬佩奥甚至发表《共产中国与自由世界的未来》演讲呼吁自由社会要与中国人民联合起来打败中共暴政。
+高等法院上个月推翻了下级法院的裁决，称美国的承诺足以保证阿桑奇会得到人道的待遇。
 
-习近平当时疾呼要守住中共社会主义事业，郑也夫则刊文直指中共的“保江山”其实就是“保权贵”，现实就是中共权贵阶层的后代们纷纷移居美国。
+这些保证是高级法院周一裁决的重点。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2142.png)2022年1月24日，维基解密创始人朱利安-阿桑奇的支持者在皇家法院外抗议。图片来源：REUTERS/Henry Nicholls
+阿桑奇的律师正在寻求上诉。
 
-参考链接：[https://opinion.udn.com/opinion/story/120611/6059246?form=udn\_ch2\_common3\_cate](https://opinion.udn.com/opinion/story/120611/6059246?form=udn_ch2_common3_cate)
+高等法院允许阿桑奇上诉，以便最高法院能够决定“在什么情况下，上诉法院可以接受请求国的保证……在引渡程序中”。
 
-*发布：tianzhihuan*
+阿桑奇的律师认为，美国政府关于阿桑奇不会受到极端条件的保证是没有意义的，因为它是有条件的，可以由美国当局酌情改变。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2143.png)维基解密创始人朱利安-阿桑奇被从高等法院带走，该法院作出了有利于他的裁决。图片来源：AP Photo/Matt Dunham
+美国已经要求英国当局引渡阿桑奇，以便他能够接受与维基解密泄露军事和外交文件有关的17项间谍罪和一项滥用计算机罪的审判。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+50岁的阿桑奇自2019年以来一直被关押在高度安全的贝尔马什监狱，当时他因在另一场法律斗争中违反保释而被捕。在此之前，他在厄瓜多尔驻伦敦大使馆内躲藏了7年。2012年，阿桑奇在大使馆寻求保护，以避免被引渡到瑞典，面对强奸和性侵犯的指控。
+
+瑞典在2019年11月放弃了性犯罪调查，因为时间已经过去了很久。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2144.png)自2019年以来，朱利安-阿桑奇因在另一场法律斗争中违反保释而被关进监狱，在此之前，他躲在厄瓜多尔大使馆以避免被引渡到瑞典。图片来源：AP Photo/Alastair Grant
+美国检察官说，阿桑奇非法帮助美国陆军情报分析员切尔西-曼宁窃取机密外交电报和军事文件。维基解密后来公布了这些文件。
+
+阿桑奇的律师辩称，当事人不应该被指控，因为他是以记者的身份行事，受到保障新闻自由的美国宪法第一修正案的保护。律师补充说，他发表的文件暴露了美国军队在伊拉克和阿富汗的错误行为。
+
+原文连接：[**https://nypost.com/2022/01/24/julian-assange-wins-first-stage-in-effort-to-appeal-us-extradition/**](https://nypost.com/2022/01/24/julian-assange-wins-first-stage-in-effort-to-appeal-us-extradition/)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
