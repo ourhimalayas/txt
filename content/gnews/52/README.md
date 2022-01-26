@@ -2,25 +2,33 @@
 ---
 
 
-## 中共脖子上的绞索正在不断的勒紧 消灭中共是正义的必须
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911517/)
+## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1111.png)
-2022年1月24日，郭文贵先生爆料在我们东部某省，靠近安徽的地方某城市，为了给提供情报的战友安全，不能具体说城市名字。这个城市的市长在内部讲话时说，你们这帮王八蛋啊，不要愚蠢到去真打疫苗。你们打完疫苗，断你们的后。并指着旁边的一个医院的男院长说：“记住啊，你这个院就是机关指定打的医院，你懂得怎么做吧？”然后院长说我知道了。“要认真地打，但是一个也不能打真的。”
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
+图片来源：gnews.org
 
-中共实际上第一天就知道这个疫苗不是要帮人的，不是治病的，是杀人的。邪恶的中共会有很多官员会活下来，可怜被中共商鞅五术统驭下的中共老百姓，很多的人都会被邪恶的中共所消灭！
+旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
 
-相信共产党，走向火葬场！中共的邪恶已经无法用语言来形容了，这些无底线的人间败类因为财政、粮食压力对自己统驭下的老百姓下如此毒手，不仅要让老百姓死，还要在老百姓死前通过疫苗产生的副作用让其生病住院，来赚取钱财！在老百姓死后，还想着法子在老百姓死后赚钱，简直是抽筋扒骨，敲骨吸髓！还有更可怕的事情，中共还将毒手伸向了可爱孩子，软硬兼施地逼迫孩子们打毒疫苗！战友们，我们必须要加紧努力，赶快将这个邪恶政党在地球上消灭！
+随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
 
-信息来源：
+接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
 
-[2022年1月24日 文贵大直播](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
+新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
 
-*配图：东京樱花团设计组*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+##### 新闻来源：
+
+##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
+
+##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
+
+##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
+
+##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
+
+##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

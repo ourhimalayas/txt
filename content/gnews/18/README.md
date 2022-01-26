@@ -2,36 +2,132 @@
 ---
 
 
-## 班农专访1: 哈萨克斯坦发生的代理战争影响欧亚大陆
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912809/)
+## Bari Weiss: 我受够了 COVID
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912852/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE3.jpg)
-**简评：**新中国联邦的郭文贵先生称最近发生在哈萨克斯坦的抗议和灾难，是美国、中国、欧洲和俄罗斯之间的代理战争，对地缘政治有很大的影响。中共一直试图控制欧亚大陆，这就是中共一带一路政策的目的，而哈萨克斯坦是欧亚的中心，地理位置非常重要。中共现在找到了同伴，巴基斯坦、伊朗、土耳其和俄罗斯。而俄罗斯和中共之间总有一些摩擦，这是一个可以利用的突破点。哈萨克斯坦未来的道路会很漫长、很艰难，因为那里是控制亚洲大陆的新战场。
+[https://gtv.org/video/id=61ee9cba87664c47acd94f08](https://gtv.org/video/id=61ee9cba87664c47acd94f08)
 
-- GETTR视频链接：[https://gettr.com/post/pq3tsx51c3](https://gettr.com/post/pq3tsx51c3)
-- GTV视频链接：[https://gtv.org/video/id=61ed4db287664c47acd8cc96](https://gtv.org/video/id=61ed4db287664c47acd8cc96)
+巴里·维斯: I’m done with COVID (Podcast Host “Honestly”)
+Bari Weiss：我受够了 COVID（“Honestly” Podcast节目主持人）
 
+I’m done
+我受够了
 
-**视频字幕：**
+(With this question?)
+这个问题吗？
 
-**主持人****Little Prince****：**谢谢你Winston，还有GTV英国团队的邀请。很荣幸受邀今天的节目。关于最近在哈萨克斯坦发生的抗议和灾难，郭文贵先生称之为美国、中国、欧洲和俄罗斯之间的代理战争。鉴于哈萨克斯坦连接欧洲和亚洲的独特位置, 班农先生，您如何看待这次抗议及其地缘政治的影响？
+No, I’m done with Covid
+不， 我受够了COVID
 
-**班农先生：**其影响可能会很大。我的意思是，这是中共（策划）的一部分。这造成了巨大的恐惧。这是中共与其他国家勾结，试图控制欧亚大陆，而哈萨克斯坦是欧亚的中心。坦率地说，我们在印度、在印度的盟友、在南中国海和台湾周围有那么多问题。鉴于阿富汗的失败，我不知道无能的拜登政府是否有意愿或甚至有信心参与到这里来。中共试图控制欧亚大陆的决心展露无遗，这就是一带一路政策的目的。
+I’m done, it’s like…, I went so hard on COVID.
+我受够了，就像……，我在 COVID 上非常努力
 
-而现在他们找到了愿意与之为伍的伙伴，有巴基斯坦、伊朗、土耳其还有俄罗斯。俄罗斯和中共之间总是会有一些摩擦，这就是我们应该突破的地方。（突破点）往往是俄罗斯，但我们没有。而这是一个非常严重的情况。而且，我曾经去过哈萨克斯坦。那里的人很好，但他们前面有一条漫长而艰难的道路，因为那里被视为是控制亚洲大陆的新战场。
+(Yeah, I remember)
+是的， 我记得
 
-字幕：雨中漫步 / 听写：云岭 / 翻译：Blue / PR：Roberts / 简评/文字整理/编辑：胖丁
+I spray the Pringle cans that I bought at grocery store.
+我在杂货店买的Pringle罐子上喷了（消毒剂）
+
+Stripped my clothes off because I thought the Covid would be on my clothes.
+（回到家）脱掉我的衣服，因为我认为新冠病毒会在我的衣服上。
+
+Like I did it all
+我都这样做过
+
+I watched tiger king I got to the end of Spotify
+我看了TigerKing， 知道看到了Spotify的尽头
+
+Like we all did it, right?
+我们都这样做过，对吗？
+
+(No, no, we didn’t all do it)
+不，不，我们并没有都这样做
+
+well, here is the thing, a lot…
+好吧，事情就是这样，许多
+
+(No, we did not do it)
+没有，我们并没有都这样做
+
+a lot of us did do it
+我们中许多人都这样做了
+
+and then we were told, you get the vaccine, you get the vaccine and you get back to normal.
+然后我们被告知，你需要疫苗，你接种了疫苗，你就会恢复正常。
+
+And we haven’t got back to normal
+而且我们还没有恢复正常
+
+And it’s ridiculous at this point.
+在这一点上这很荒谬
+
+I know that so many of my liberal and progressive friends are with me on this
+我知道我的许多自由派和进步派朋友都支持我
+
+And they do not want to say it aloud because they are scared to be called anti vax
+他们不想大声说出来，因为他们害怕被称为反疫苗者
+
+Or to be called science denial, or to be…you know…smeared as Trumper
+或者被称为否认科学，或者被……你知道……被抹黑为川普支持者
+
+I’m sorry, if you believe science, you will look at the data that we did not have two years ago.
+对不起，如果你相信科学，你会看到我们两年前没有的数据
+
+And you will find out that cloth mask do not do anything
+你会发现布口罩什么也做不了
+
+You will realize that you can show your vaccine passport at a restaurant
+你会意识到人们可以在餐厅出示疫苗护照
+
+And still asymptomatic and carrying omicron
+但他们仍然可以是无症状并携带 omicron
+
+And you will realize most importantly, this is going to be remembered by the younger generation as a catastrophic moral crime.
+你会意识到最重要的是，这将被年轻一代铭记为灾难性的道德犯罪
+
+The city of Flint, Michigan, which is 80%, I think, minority students， has just announced indefinite virtual schooling.
+密歇根州弗林特市（我认为 80% 的少数民族学生）刚刚宣布无限期进行虚拟学校教育
+
+In the past two years, we’ve seen among young girls, a 50% increase in self-harm.
+在过去的两年里，我们看到年轻女孩中自残的人数增加了 50%
+
+People are killing themselves
+人们正在自杀
+
+They are anxious, they are depressed, they are lonely.
+他们焦虑，抑郁，孤独
+
+That is why we need to end it, more than any inconvenience that it’s been to the rest of us.
+这就是为什么我们需要结束它，而不是它给我们其他人带来的任何不便。
+
+I think that’s a pandemic
+我认为那才是流行病
+
+It’s like, at this point, it’s a pandemic of bureaucracy, it’s a pandemic of bureaucracy
+就像，在这一点上，这是一场官僚主义的流行病，这是一场官僚主义的流行病
+
+It’s no real any more.
+它不再是真实的了
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:01/23/2022
+原视频标题: Bari Weiss: I’m done with COVID
+Bari Weiss: 我受够了 COVID
+原视频日期：2022/01/23
+原视频链接: [**https://gettr.com/post/pq467vb33a**](https://gettr.com/post/pq467vb33a)
+任务编号：KE364（3557）
+视频时间段 : 0:00-1:55
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 –
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
