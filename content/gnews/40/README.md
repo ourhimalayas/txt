@@ -2,35 +2,26 @@
 ---
 
 
-## 香港外籍专业人士离职潮：受严格防疫的“驱逐”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911729/)
+## 中美正在争夺坠入南海的F35C隐形战斗机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911701/)
 
-整理：纱娜宝贝
-编辑：Little Lamp
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-25-下午8.01.42.png)
-据路透香港1月24日的报导，成百上千的外籍金融专业人士已经或是在计划离港，只因防疫措施太过严苛。
+#### 撰稿：彩虹 
 
-根据香港政府统计处的数据，2020年中期至2021年中期，香港人口下降了1.2%，有超过75,000人离开香港。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16431709561.png)图片来源：Tribunal Inquiry
+1月25日，《新闻极限》引述《每日邮报》周二的报道，指美国正在与中共国争夺周一坠入南中国海的F35C隐形战斗机。
 
-在香港740万人口中，只有大约13,000例新冠感染病例，远低于世界绝大多数地方。但它正在遵循北京的新冠“清零”政策，而非与病毒共存。
+美国海军方面称，在卡尔文森号航母（USS Carl Vinson）上发生“着陆事故”后，他们丢失了这架价值1亿美元的战斗机，同时也导致了7名军事人员受伤。
 
-两年来，香港实施了严格的检疫措施，并在去年实施了一些全球最严格的入境规定，只允许本地居民返回，并对来自多数国家的入境人士进行长达三周的强制性酒店隔离，无论其疫苗接种情况如何，而且费用由旅客自理。
+海军告诉《美国海军研究所》说：“分配给航母航空队（CVW）2的一架F-35C闪电II，在美国航母CVN 70号舰艇上着陆时发生了意外，撞击了飞行甲板，随后在例行飞行操作中落入水中。对飞行甲板的撞击是表面性的，所有飞行操作的设备都可以使用。”
 
-然而目前看来，这对“清零”并没有什么帮助。
+据《每日邮报》报道，F-35的海军版本，即F-35C，能以1.6倍音速飞行，作战半径为1200海里。
 
-香港美国商会最近进行了会员调查，超过40%的受访者表示，他们更有可能离开香港，大多数人认为国际旅行限制是首要决定因素。
+此外，卡尔文森号的指挥官汤米·洛克（Tommy Locke）上尉在8月说：“卡尔文森号是第一艘可容纳第四代和第五代攻击战斗机的航母，提供了前所未有的杀伤力和生存能力，确保海军团队现在和未来都能在有争议的战斗空间中作战并获胜。”
 
-许多业内人士还预计，最终该行业的许多岗位将被中国内地人才占据，从而导致人才出现大转移。”
+**新闻来源**
 
-新闻来源：[焦点：外籍专业人士受不了严格防疫现离职潮 香港金融业面临大失血金融监管权等](https://cn.reuters.com/article/hk-covid19-restrictions-fin-talents-0124-idCNKBS2JY06L)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[US Races Against China to Recover Submerged $100m Stealth Fighter](https://www.newsmax.com/newsfront/military-technology-china-taiwan/2022/01/25/id/1054001/)
 
  
 

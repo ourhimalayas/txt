@@ -2,34 +2,32 @@
 ---
 
 
-## “彭帅在哪里？”字样T恤衫在澳网公开赛上被组织方禁止引发争议
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1911809/)
+## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
 
-整理：纱娜宝贝
-编辑：Little Lamp
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
+图片来源：gnews.org
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
+旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
 
+随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
 
-澳大利亚网球公开赛的组织方强迫穿印有“彭帅在哪里？”T恤衫的球迷脱掉T恤，为这次大满贯赛事蒙上了阴影。澳大利亚网球协会辩解说，披露中共前政治局常委张高丽性侵的中国网球明星彭帅的安危仍是“主要关注”，但是票务条例不允许商业或政治性服装、条幅或标识等。
+接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
 
-星期六（1月22日）晚间在社交媒体上流传的视频显示，赛场的安全人员没收印有“彭帅在哪里？”的T恤衫和横幅。
+新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
 
-澳大利亚网球明星、曾获世界第一的阿什·巴蒂（Ash Barty）说，彭帅的事件让国际网球界更紧密站在一起，希望不久的未来能在外面看到她。
+##### 新闻来源：
 
-有批评人士表示，澳网公开赛不应该为了顾虑来自中资企业赞助的利益，而打压关注彭帅人身安全的声音，应该停止骚扰关注人权和呼吁关注彭帅下落的人士，并且立即公开要求中国政府释放彭帅。
+##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
 
-包括联合国、国际奥委会委员、美英等国政府、国际女子网球协会（WTA）、世界职业网球协会（ATP）和球王乔科维奇（Novak Djokovic）、前网球天后大坂直美等网坛名将纷纷发声，质问“彭帅在哪里？”，要求中共当局说明，并调查她提出的指控。
+##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
 
-新闻来源：[澳网公开赛禁止球迷穿印有“彭帅在哪里？”字样T恤衫引发争议](https://www.voachinese.com/a/political-peng-messages-banned-at-australian-open-20220123/6408864.html)
+##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
 
-*发布：tianzhihuan*
+##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
 
  
 
