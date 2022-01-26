@@ -2,42 +2,24 @@
 ---
 
 
-## 短视频：科顿议员建议民主国家重新安排冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1913089/)
+## 来自莫斯科和北京的假新闻威胁着欧盟民主
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1913169/)
 
-翻译：文载
-校对：枳实
-剪辑字幕：蛮吉
-编辑：文泓
+翻译：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01262.jpg)图片来自ansa.it
+俄罗斯和中共国正试图用假新闻和金钱来扭曲欧洲民主，然而公众舆论尚未完全意识到这个非常严重的威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/812-3.png)图片来源：视频截屏
+欧洲议会外国干涉和虚假信息特别委员会 (Inge) 经过 18 个月的辩论后于昨天以绝大多数票通过的文本将于 3 月送达斯特拉斯堡的法庭就此提出制裁。
 
+俄罗斯和中共国针对欧盟的这场“混合战争”显然被低估了。威胁的第一个因素是从网络攻击、宣传和假新闻，通过与俄罗斯、中共国甚至土耳其政府有关的报纸的网站和社交媒体以各种语言传播 ，从而影响公民选举和公民投票来分裂欧盟。
 
-科顿参议员，我们只剩下大约一分钟了，我想问你另一个话题。
+威胁的第二个因素是对政治制度的制约。为欧洲政党提供外国资金，比如说德国前总理格哈德·施罗德和芬兰前总理帕沃·利波宁都受雇于俄罗斯天然气工业股份公司，但其他领导人也受雇于中共国。
 
-那就是，中国已经停止向本国人出售奥运会门票。它也不向海外人士出售门票，因为奥密克戎毒株现在开始在北京真的有点猖獗了。
+社会也受到宗教、孔子学院等中心以及智库和大学的资助和操纵。除了制裁之外，报告还提出了要训练那些在敏感岗位上工作的人保护自己。支持欧洲媒体、创建欧洲干扰威胁和信息完整性中心、替代中公国融资、设立投资事实核查员等等。
 
-你担心吗？你过去曾表示过担忧，现在奥密克戎开始相当迅速地蔓延？关于美国运动员在接下来的两个半星期里将忍受什么？以及美国奥委会应该怎么应对？
+原文链接：[https://www.repubblica.it/esteri/2022/01/25/news/ue\_europa\_parlamento\_sanzioni\_russia\_cina\_fake\_news\_finanziamento\_partiti\_turchia-335250586/?ref=RHTP-VS-I287621970-P16-S2-T1](https://www.repubblica.it/esteri/2022/01/25/news/ue_europa_parlamento_sanzioni_russia_cina_fake_news_finanziamento_partiti_turchia-335250586/?ref=RHTP-VS-I287621970-P16-S2-T1)
 
-约翰，我非常关注,我在几个月前呼吁全面抵制这些奥运会，因为拜登政府没有一个计划来保证我们的运动员免受中国的监视或骚扰。现在，中国甚至不向自己的公民出售门票，是时候重新安排这些比赛的时间了。
-
-记得吗，两年前的东京夏季运动会我们也是这样做的(重新安排这些比赛的时间)。夏季运动会比冬季运动会规模大得多，在后勤方面也复杂得多。
-
-重新安排即将到来的冬季比赛的时间，并将其移至世界某处的文明民主国家，是非常容易的。这就是现在应该做的。
-
-好的，伟大的阿肯色州的汤姆·科顿参议员，很高兴今天能与你在一起。
-
-谢谢你加入我们！
-
-视频链接：[Tom Cotton rips Warrior’s co-owner for ‘shocking moral indifference’ to Uyghur human rights abuses | Fox News Video](https://video.foxnews.com/v/6292434909001#sp=show-clips)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

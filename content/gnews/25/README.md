@@ -2,22 +2,18 @@
 ---
 
 
-## Covid ：60% 的住院患者在两个月后仍有症状
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1912978/)
+## 2022年1月24日郭先生盖特 — 视频1「2分13秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1912990/)
 
-翻译：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01261.jpg)图片来自today.it
-从临床上看，出院两个月后，60%以上的患者仍有症状，而到了六个月，这一比例降至40%左右。最常报告的症状是：呼吸困难、虚弱和咳嗽，其次是胸痛、心动过速、平衡障碍、恶心或低烧。
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-肺功能测试发现肺功能在两到六个月内有显着改善，86% 的患者在出院六个月后肺功能正常。Covid-19 肺炎是间质性肺炎，会影响肺部结构，其完全恢复可能需要六个月以上的时间。
+Video link: [https://gettr.com/post/pqdi9688f5](https://gettr.com/post/pqdi9688f5)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/69BD69E4-26A2-45E7-A69D-7D2B5FC539DD.jpeg)
+兄弟姐妹们，你健身了吗？我这会开得我都蒙了 — 一个接一个！但是兄弟姐妹们，千万别忘了健身呐。
 
-放射学上，大多数（64%）患者在入院两个月后胸部 X 光片出现变化，在六个月后显示更严重图像胸部 CT 扫描的是那些在住院期间更严重的患者，六个月时只有 26% 的胸部感染被完全“清除”。
+《甜蜜蜜》「在墙内」都被关了。“🎵甜蜜蜜…在哪里见过你…” 哇，唱错词儿了，是吧？7哥还有更严肃的歌，“甜蜜蜜运动”会让你们看到一切皆有可能！来点整个数据时代区块链的颜色革命，我看你「共产党」能把所有的歌都能关得完吗？
 
-据研究人员称，对于很多患者来说，SARS Cov 2 疾病不是简单的肺炎，相反，它造成了很深的伤口，不仅是身体上。
-
-原文链接：[https://www.today.it/salute/covid-conseguenze-pazienti-guariti.html](https://www.today.it/salute/covid-conseguenze-pazienti-guariti.html)
-
-责任编辑/发布：意大利达芬奇农场   萧亦
+明天不直播，兄弟姐妹们。么～
 
  
 
