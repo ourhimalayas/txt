@@ -2,18 +2,16 @@
 ---
 
 
-## 欧洲议员就强制疫苗怒斥马克龙
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906748/)
+## 流行病学博士讲述疫苗如何致使器官衰竭
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906752/)
 
-撰稿：纽约磐石农场 – 在远方
+撰稿：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月23日，郭文贵先生盖特转发了一则视频，在欧洲议会上，有议员质问法国总统马克龙说，在中共病毒肆虐期间，法国政府对公民的权利和自由制定了许多限制，而马克隆对法国的一切，却跟他在主持欧盟期间所作的完全相反。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-68.jpg)
-该议员表示，马克龙曾说过为欧洲没有死刑而感到骄傲，但是现在数以万计的欧洲人，正在因为中共病毒疫苗的副作用而死亡。强制接种中共病毒疫苗，对许多公民来说就是死刑和被执行死刑，每个公民必须有选择的权利。该议员强调说，谋杀就是谋杀，而尤其是对那些不知道真相和没受过教育的人，并不知道疫苗是没有经过验证和充分科学证明的谋杀人的生化武器。
+当地媒体1月23日报道，近日，流行病学博士皮特.麦卡洛在接受乔.罗根的采访时提到，中共病毒疫苗足以造成器官损伤和死亡。截止到目前，疫苗不良事件报道系统已经报告了超过1万八千人死亡，其中3万人在接种疫苗后永久残疾。死亡事件报告中，50%发生在注射后48小时内，80%发生在一周内。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-72.jpg)
+麦卡洛博士说，注射疫苗后，刺突蛋白在体内产生，数量与持续时间均不受控制。刺突蛋白会损害细胞，受损细胞进入心脏、大脑，破坏凝血的血管，引发心肌炎、心脏病、血凝块等人体器官损伤综合症，进而导致死亡。且中共病毒疫苗对人体的这些影响都是长期存在的。
 
-对此视频，郭先生表示，这位议员的质问掷地有声，说明新中国联邦的朋友无处不在，新中国联邦的力量无处不在，我们将会彻底改变遍布世界的黑暗势力。
-
-参考链接：[欧洲议员就强制疫苗怒斥马克龙](https://www.gettr.com/post/pq3jloec8c)
+参考链接：[流行病学博士讲述疫苗如何致使器官衰竭](https://beforeitsnews.com/health/2022/01/the-big-logic-dr-peter-mccullough-talks-about-how-covid-19-vaccines-can-cause-organ-failure-plus-video-3044174.html)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 

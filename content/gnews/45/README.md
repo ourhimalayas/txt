@@ -2,110 +2,32 @@
 ---
 
 
-## 【Michael.Tonny专栏】NSW数据证明 接种疫苗后感染机率上升10倍以上
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1908853/)
+## 因被下调评级推特股价创一年新低
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1909367/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+翻译：**Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-7-6.jpg)推特，路透社图片
 
-试验性的COVID-19病毒疫苗不能预防感染，只会导致身体免疫力持续下降，感染中共病毒的风险成倍增加。
+推特一直是其他几份报告的主题。杰派投资公司在12月2日星期四的研究报告中将推特的价格目标从70.00美元降至54.00美元，并将该股的评级定为“中性”。美国银行在10月25日星期一的研究报告中将推特的目标价格从90.00美元降至82.00美元，并将该公司的评级定为“购买”。富国银行在10月28日星期四的研究报告中，将推特股票的目标价格从82.00美元下调至70.00美元，并将该股票的评级定为“同等权重”。 韦德布什证券在11月30日星期二的研究报告中将推特的目标价格从69.00美元降至52.00美元，并将该公司的评级定为“中性”。最后，高盛集团在11月17日星期三的研究报告中，将推特的目标价格定为60.00美元。两位分析师对该股的评级为卖出，19位分析师对该股的评级为持有，14位分析师对该股的评级为买入。根据MarketBeat.com的数据，该股目前的一致评级为“持有”，平均目标价为67.32美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/COVID-19-WEEKLY-SURVEILLANCE-IN-NSW-Epidemiological-week-52-ending-1-January-2022.jpg)
+在其他推特的新闻中，首席会计官罗伯特·凯登在11月1日星期一的交易中出售了10198股推特股票。这些股票以54.26美元的平均价格出售，总价值为553,343.48美元。这次出售是在向证券交易委员会提交的法律文件中披露的。另外，董事V (Gp) L.L.C. Slta在12月6日（星期一）的交易中购买了140万股推特股票，平均价格为每股43.94美元，交易总额为6151.6万美元。在过去90天里，内部人士已经出售了69,217股公司股票，价值3,478,253美元。公司内部人员拥有该公司2.56%的股票。
 
-在新南威尔士洲政府1月20日发布的新南威尔士州每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)）第30页，有与苏格兰公共卫生部门1月19日发布的苏格兰公共卫生COVID-19 和冬季统计报告（[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)）类似的关于COVID-19疫苗接种状态分四种情形的定义：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)
-未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
+一些对冲基金和其他机构投资者最近对其在推特的头寸进行了调整。荷宝机构资产管理公司在第三季度将其持有的推特股票增加了36.5%，在上一季度增持了47,657股后，现在拥有178,339股推特股票，价值1077.1万美元。BI资产管理公司Fondsmaeglerselskab A S在第三季度将其在推特的股份增加了15.0%，现在拥有29,825股推特股票，价值为180.1万美元，在此期间增购了3,891股。迪恩退休策略公司在第三季度将其在推特的股份提高了59.0%，在此期间增持了16,520股后，现在拥有推特的44,512股股票，价值268.8万美元。马拉松合伙人股权管理有限责任公司在第二季度购买了推特的新股票，价值约688.1万美元。最后，参数组合联合有限责任公司在第二季度将其在推特的持股量增加了2.9%，现在拥有1,907,042股推特的股票，价值131,224,000美元，此前在上一季度又获得了53,817股。77.85%的股票由机构投资者和对冲基金拥有。
 
-接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
+该公司的五十天移动平均价格为43.51美元，200天移动平均价格为56.29美元。该公司的市值为267.8亿美元，市盈率为-145.08，β值为0.70。该公司的债务股本比为0.59，速动比率为4.09，流动比率为4.09。
 
-完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
+推特最后一次公布财报是在10月26日（星期二）。这家社交网络公司本季度的每股收益为0.54美元，比汤森路透社一致预期的0.02美元少了0.56美元。推特本季度的收入为12.8亿美元，分析师估计为12.8亿美元。推特的净利润率为3.77%，股本回报率为3.21%。推特的收入同比增长了37.1%。去年同一季度，该企业的每股收益为0.07美元。作为一个群体，分析师预计，推特公司本财年的每股收益将为-0.53美元。
 
-疫苗接种状态不明确（Under investigation）
+参考资料：[marketbeat][Twitter (NYSE:TWTR) Hits New 1-Year Low on Analyst Downgrade](https://www.marketbeat.com/instant-alerts/nyse-twtr-52-week-low-2022-01-2-3/)
 
-根据这样的定义，显然存在大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群。
+* * *
 
-然而即使这样故意把打了一针的人计算成没有打疫苗的感染，在今年1月2日~1月8日的新增感染COVID病例中，打了1针疫苗和完全接种疫苗的人群依然占所有感染者的99.51%，仅0.49%的新增COVID-19病例出现在未接种疫苗人群中！接种COVID-19疫苗的感染率持续上升，目前高达未接种疫苗人群的10.8倍！
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
 
-这份报告并未明确指明1月2日~1月8日一周时间内，新南威尔士州所有新增确诊、住院、ICU和死亡病例数字，只提供了2021年11月26日~2022年1月8日的数据，但另一份1月13日发布的报告[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022 Published 13 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)详细记录了11月26日~2022年1月1日的数据，因此很容易得到2022年1月2日~1月8日一周时间内，新南威尔士州所有新增确诊、住院、ICU和死亡病例数字。
-
-下表为1月13日报告第8页，表6，2021年11月26日~2022年1月1日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-6-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-1-January-2022.jpg)
-
-2021年11月26日~2022年1月1日，新南威尔士州COVID-19新增感染者中，完全接种疫苗的108,056例，部分接种疫苗的1,110例，未接种疫苗的2,765例。
-
-在新增COVID病例中，接种疫苗的共109,166人，未接种过疫苗的2,765例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为111,931例。接种过疫苗的占97.53%，未接种疫苗的占2.47%。
-
-这和中共国的数据相当。根据[中共国务院新闻办公室网站](http://www.scio.gov.cn/index.htm)新闻，[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)消息，在本月12日中共国天津市疾病预防控制中心主任、市卫生健康委副主任韩金艳，市委教育工委专职副书记孙志良，津南区副区长陈妍卉，市疾病预防控制中心副主任张颖主持的天津市疫情防控的有关情况会上公布：
-
-“天津107例感染者中，103例完成全程接种（包括完成加强接种32例），3例仅接种1剂次灭活疫苗，1例未接种”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tian-jin-166.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tian-jin-covid-19-vaccination-status.jpg)
-
-天津新增COVID-19确诊病例中，接种过中共病毒疫苗的人占99.07%，未接种疫苗的人仅占0.93%！
-
-2021年11月26日~2022年1月1日的中位日期为2021年12月13/14日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/NSW-vaccine-targets-and-forecasts.png)
-2021年12月13日，1针94.78%，完全接种93.15%。
-
-2021年12月14日，1针94.8%，完全接种93.2%。
-
-完全接种疫苗的平均值为93.175%，部分接种疫苗的平均值为94.79%，未接种疫苗的占1-94.79%=5.21%。
-
-根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（108,056÷93.175%）÷（2,765÷5.21%）=2.19倍。
-
-接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（109,166÷94.79%）÷（2,765÷5.21%）=2.17倍。
-
-下表为1月20日报告第7页，表5，2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-5-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-8-January-2022.jpg)
-
-2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊感染者中，完全接种疫苗的267,381例，部分接种疫苗的2,578例，未接种疫苗的3,552例。
-
-在新增COVID病例中，接种疫苗的共269,959人，未接种过疫苗的3,552例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为273,511例。接种过疫苗的占98.7%%，未接种疫苗的占1.3%。
-
-2021年11月26日~2022年1月8日的中位日期为2021年12月17日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
-
-2021年12月17日，1针94.85%，完全接种93.34%，未接种疫苗的占1-94.85%=5.15%。
-
-根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（267,381÷93.34%）÷（3,552÷5.15%）=4.15倍。
-
-接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（269,959÷94.85%）÷（3,552÷5.15%）=4.13倍。
-
-根据1月13日和1月20日的报告，可得1月2日到1月8日一周内，新增感染、住院，ICU和死亡人数。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/subtract-the-two-tables.png)
-
-2022年1月2日~2022年1月8日，新南威尔士州COVID-19新增确诊感染者中，完全接种疫苗的159,325例，部分接种疫苗的1,468例，未接种疫苗的787例。
-
-在新增COVID病例中，接种疫苗的共160,793人，未接种过疫苗的787例，如果只计算明确知道疫苗接种状态的人的数据，总确诊人数为161,580例。接种过疫苗的占99.51%，未接种疫苗的占0.49%。
-
-这期间的中位日期为2022年1月5日，根据澳大利亚政府、各洲和地区政府确诊的疫苗接种状态数据[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)，新南威尔士洲接种疫苗情况为（NSW – vaccine targets and forecasts）：
-
-2022年1月5日，1针95.02%，完全接种93.62%，未接种疫苗的占1-95.02%=4.98%。
-
-根据这些数据可以推算，完全接种COVID19病毒疫苗人，感染中共病毒的机率是未接种人的（159,325÷93.62%）÷（787÷4.98%）=10.8倍。
-
-接种COVID19病毒疫苗的人，感染中共病毒的机率是未接种人的（160,793÷95.02%）÷（787÷4.98%）=10.71倍。
-
-通过新南威尔士州的报告，随着接种疫苗时间的推移，接种疫苗的感染机率在成倍上升，在所有感染者中，已经达到99.51%以上为接种过疫苗的人。
-
-最后提醒，这些数据是在新南威尔士洲政府将很多接种疫苗不超过21天的感染者算成未接种疫苗人群的结果。
-
-参考数据：
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
-
-[Public Health Scotland COVID-19 & Winter Statistical Report：As at 17 January 2022](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 52 ENDING 1 JANUARY 2022 Published 13 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220113.pdf)
-
-[天津举行第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
-
-[Vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
 
  
 

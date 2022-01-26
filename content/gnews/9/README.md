@@ -2,24 +2,41 @@
 ---
 
 
-## 世卫组织下一任秘书选举 谭德塞是唯一候选人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911590/)
+## 有声|美国政府授权撤离美国驻北京大使馆
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911753/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/99.png)[图片来源](https://news.yahoo.co.jp/articles/921ee13fd1047af0b2c702552b4aaeba69b8888f/images/000)
-日本雅虎新闻，世界卫生组织（WHO）秘书长谭德塞被提名为将于5月25日举行的下一届秘书长选举的唯一候选人，也是第二个任期。几乎肯定会继续。
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2022年1月25日大直播，郭文贵先生代表新中国联邦，代表所有的中国人感谢美国政府，拜登总统和国务卿布林肯先生。
 
-世卫组织执行委员会在同一天进行了匿名投票。批准提名谭德塞先生为下一届秘书长选举的唯一候选人。
+在大直播中，郭文贵先生透露，拜登总统和布林肯国务卿刚刚作出重大决定，并且，美国政府已经正式通知北京政府，即日起，授权撤离美利坚合众国驻北京大使馆。
 
-对此，谭德塞先生表示，“再次感谢大家的支持，我深表感谢”。
+这意味着什么？文贵先生分析：
 
-信息来源：
+首先，美国的北京大使馆，对于中共政府来说，就相当于中共国的定海神针。不仅中共国需要靠这支定海神针稳定政权，美国驻北京大使馆周围的几十个国家的大使，也是依靠着美国大使馆，并跟随着美国政府的风向，决定与中共国的外交关系。
 
-[WHO次期事務局長選 テドロス氏が唯一の候補に](https://news.yahoo.co.jp/articles/921ee13fd1047af0b2c702552b4aaeba69b8888f)
+原文链接：[美国政府授权撤离美国驻北京大使馆](https://gnews.org/zh-hans/1910507/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,46 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月25日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1911206/)
+## 甜蜜蜜行动首发 静待二环连珠炮 郭文贵声震世界 新蒸一屉灭共馍
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1911386/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+作者：香草山 九妹
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-3.png)
-校对：Stay文苑
 
-编辑：Stay文苑
 
-发稿：Stay文苑
 
-视频参看：[1.25  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f0a3dd28a108147c62cdf9)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-18.jpg)
+
+
+2022年1月25日上午，郭文贵先生在临时大直播中向全世界郑重公布，美国即日起授权撤离美利坚合众国驻北京大使馆，北京政府已经接到官方正式通知。
+
+此次重大决定由美国总统拜登和国务卿布林肯先生共同做出，再次印证美国自由、民主、法治的立国之本。这次民主思想的彻底胜利是众多爱护民主法治的人士以及全球各民族各国家无数正义之士坚决抵制北京冬奥会，发挥共同影响力的结果；达成了新中国联邦人和全世界热爱和平的人民的共同心愿；体现了伟大的美利坚合众国对人权和法治自始至终的坚定维护。
+
+国际核弹级决定由郭文贵先生率先向全世界公布，暗示着新中国联邦得到民主国家认可和正义力量的支持，同时标志着新中国联邦第一次正式走向国际舞台，具有划时代历史意义。世界至此只有两个选项，民主与专制，不分国界，只论正邪！
+
+应该注意，正式公布中以“北京政府”替换一贯使用的“中国政府”，显然美国政府否定了中共作为中国政府代表的合法性，已经视新中国联邦为新的中国政府合法代表。这是新中国联邦和爆料革命以及勇敢无畏的战友们取得的第一次实质性胜利！
+
+美国是国际社会的风向标，无疑随后的北京二环使馆区撤离秀将遍地开花，会有更多国家紧随其后加入最后的正邪之战。郭文贵先生一锅馒头间强虏飞灰湮灭，至此，中共将兵败如山倒，新中国联邦必将在以美国为首的盟友加持下迅速得到国际社会认可，走向国际舞台！
+
+2022年1月25日这个甜蜜蜜的日子将被新中国联邦人永远铭记！甜蜜蜜的新中国联邦在这一刻蜚声国际！这是新中国联邦立足世界的一刻！这是正义与邪恶绝杀的制胜一刻！这是注定是人类历史上最绚丽的一刻！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

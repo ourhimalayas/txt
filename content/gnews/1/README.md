@@ -2,36 +2,32 @@
 ---
 
 
-## 有声|喜币开创世界经济新局面
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911736/)
+## 北京冬奥会新冠测试“高门槛”引争议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911833/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月25日，郭文贵先生在最新一期的大直播节目指出，目前美股市场已普遍出现20%～40%的暴跌，这意味着以美元为核心的全球金融体系正在崩塌之中。而喜币和喜联储的横空出世将会为世界经济呈现崭新局面。
+整理：纱娜宝贝
+编辑：Little Lamp
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19.png)
+据德国之声中文网报导，北京冬奥运会的新冠测试规则引起争议后，国际奥委会为其进行了辩护。国际奥委会独立专家组的首席卫生专家布莱恩·麦克洛斯基（Brian McCloskey）在一份声明中指出，东道主的目的是“不要让奥密克戎进入到封闭的防疫泡泡之中”。
 
-郭先生在节目中具体阐释道，自2019年至2021年底，全球累计印发了260万亿美元，货币超发程度相当于世界GDP的近两倍。直至当前，美股市场虽因巨额货币的超发而未直接出现崩盘现象，但世界经济危机的爆发已刻不容缓。全球数字货币市场虽仅拥有3万多亿美元，却将是世界经济的唯一未来，也将是260万亿美元的唯一归宿。
+争论的中心是PCR检测中决定结果成阴性还是阳性的CT值。CT值越低，意味着感染新冠的风险越高。根据加拿大广播公司 CBC Sports 报道，加拿大大多地方的标准为 CT 值 35。在德国，CT值30及以上的人被认为不具有传染性，在中国，该门槛为40。
 
-原文链接：[喜币开创世界经济新局面](https://gnews.org/zh-hans/1909420/)
+麦克洛斯基承认，在出发前测试为阴性的运动员，到了中国之后测试结果可能是阳性。他强调，北京的新冠测试系统“有效可靠“。因为奥密克戎更具传染性，所以必须迅速锁定阳性病例。
 
-音频处理/发稿：Daxia
+本届冬奥会采取严格防疫措施，所有运动员在出发前往中国前两周内，必须监控自己的体温和其它健康指标，并且先后进行两次PCR核酸检测，结果都必须是阴性。并且要遵守严格的防疫规定。每天都要接受测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+接受《星期日世界报》采访时，曾三度获得奥运会冠军的哈克尔说：“我的建议是推迟冬奥会，因为这样做对谁都没有好处。参与者受到煎熬，只有观众不用忍受这一切，因为他们根本就来不了。
 
-**更多资讯，更多关注**
+文章来源：[中国新冠测试高门槛引争议](https://www.dw.com/zh/中国新冠测试高门槛引争议/a-60529846)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发布：tianzhihuan
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

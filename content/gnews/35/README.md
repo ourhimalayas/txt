@@ -2,27 +2,27 @@
 ---
 
 
-## 由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1910920/)
+## 民调显示多数加拿大人已陷入经济困境
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911349/)
 
-撰稿：zzballack
-上传：追着曙光跑
+加拿大温哥华扬帆农场 枫叶快讯
 
-据《路透社》（Reuters）1月25日报道，据消息人士透露，由于美国政府无力阻止中共当局采取侵入性的大流行病控制措施，美国国务院正准备授权希望离开的美国在华外交官及其家属离开中共国。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-26-at-11.11.38.jpeg)图片来源：原新闻
-两位熟悉这一问题的消息人士说，本周一（1月24日），美国大使馆已将这一请求送交华盛顿正式签署。因为在距北京冬奥会开幕不到两周之际，中共政府准备实施更严格的防疫限制令。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-41-edited.jpg)图片来源：TNH
 
-由于问题的敏感性，消息源在匿名的情况下告诉路透社说，一些使馆工作人员对美国政府不愿意或不能保护美国官员免受严格的隔离措施感到不安。这些规定包括可能被强迫进入新冠发烧诊所以及与儿童隔离。
 
-一位人士说，美国大使馆进行的一项内部调查显示，多达25%的工作人员和家属会选择尽快离开中共国。另一位人士说，在整个大流行病期间，大使馆领导层未能从中共那里获得有关美国外交官待遇的适当保证。
+据加拿大[CTV新闻]近日报道，最新民意调查显示，近60%的加拿大人难以为自己及家人提供足够的生活用品和食物，该数字比2019年的比率增加了36%。
 
-在新冠大流行病的最初几个月，美国政府从中共国撤离了大约1300名美国外交官和家属，两国政府在官员的测试和隔离程序等问题上僵持了数月。中共要求外国外交官像普通公众一样遵守防疫措施，包括在一个政府设施内集中隔离数周，在那里个人没有行动自由。
+报道称，疫情所导致的通货膨胀是造成该现象的主要原因，加拿大正面临着30年以来最高的通胀水平。自2年前疫情开始之后，该国各种商品价格都出现了史无前例的上升。其中，食用油价格的涨幅就高达42%，白糖价格也上涨了至少22%。
 
-中共官媒《环球时报》称美国国务院考虑执行该政策的目的是扰乱中共举办奥运会。之前，美国和数个盟国与伙伴国对北京冬奥会进行了外交抵制，因为他们认为中共在新疆地区对维吾尔人和其他穆斯林群体进行种族灭绝。
+此外，该调查还计算了包括债务、住房，食品成本和财务状况等在内的综合“经济压力指数”，并将受访者分为从小康到陷入困境四个等级。而在纽芬兰省，因受石油产量下降的影响，约45%的受访者被归类为”陷入困境“。
 
-根据郭文贵先生在1月25日的“甜蜜蜜”大直播中所说，其实美国早在1个多月前就把大使馆重要的东西运走了，只是为了让人员体面的离开，择机选择发布撤离公告。这件事是全世界多个政治力量共同推动的结果，但新中国联邦无疑是最重要的推动者。只要美国撤离，欧洲、日本乃至全世界都会跟着撤。中共政权过去存在的合法性就在于美国的驻华大使馆，一旦美国撤离，中共也就名存实亡。接下来就是美国要求对中共病毒进行朔源调查，不配合就开战。这件事无疑是灭共进程中的里程碑事件，但灭共之路还很长。灭共是为了更好地享受生活，但不能妨碍我们的正常生活。
+同时，调查还发现，约40%的加拿大人认为他们的财务状况在过去一年有所恶化，而成为13年来最高，其中，艾伯塔省、萨省和纽芬兰省名列前茅。
 
-信息来源：[U.S. prepares to allow diplomats to leave China over strict COVID rules](https://www.reuters.com/article/usa-china-diplomats/u-s-prepares-to-allow-diplomats-to-leave-china-over-strict-covid-rules-idUSL1N2U528B)
+* * *
+
+采编：   UCool优酷，编译撰稿：自由法兰西 ， 校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://www.ctvnews.ca/canada/nearly-60-per-cent-of-canadians-find-it-difficult-to-feed-their-families-poll-finds-1.5748898?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&taid=61eaa755e941150001c6f358&utm\_campaign=trueAnthem%3A+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.ctvnews.ca/canada/nearly-60-per-cent-of-canadians-find-it-difficult-to-feed-their-families-poll-finds-1.5748898?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61eaa755e941150001c6f358&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
  
 

@@ -2,28 +2,25 @@
 ---
 
 
-## 民调显示多数加拿大人已陷入经济困境
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911349/)
+## 中共脖子上的绞索正在不断的勒紧 消灭中共是正义的必须
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911517/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1111.png)
+2022年1月24日，郭文贵先生爆料在我们东部某省，靠近安徽的地方某城市，为了给提供情报的战友安全，不能具体说城市名字。这个城市的市长在内部讲话时说，你们这帮王八蛋啊，不要愚蠢到去真打疫苗。你们打完疫苗，断你们的后。并指着旁边的一个医院的男院长说：“记住啊，你这个院就是机关指定打的医院，你懂得怎么做吧？”然后院长说我知道了。“要认真地打，但是一个也不能打真的。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-41-edited.jpg)图片来源：TNH
+中共实际上第一天就知道这个疫苗不是要帮人的，不是治病的，是杀人的。邪恶的中共会有很多官员会活下来，可怜被中共商鞅五术统驭下的中共老百姓，很多的人都会被邪恶的中共所消灭！
 
+相信共产党，走向火葬场！中共的邪恶已经无法用语言来形容了，这些无底线的人间败类因为财政、粮食压力对自己统驭下的老百姓下如此毒手，不仅要让老百姓死，还要在老百姓死前通过疫苗产生的副作用让其生病住院，来赚取钱财！在老百姓死后，还想着法子在老百姓死后赚钱，简直是抽筋扒骨，敲骨吸髓！还有更可怕的事情，中共还将毒手伸向了可爱孩子，软硬兼施地逼迫孩子们打毒疫苗！战友们，我们必须要加紧努力，赶快将这个邪恶政党在地球上消灭！
 
-据加拿大[CTV新闻]近日报道，最新民意调查显示，近60%的加拿大人难以为自己及家人提供足够的生活用品和食物，该数字比2019年的比率增加了36%。
+信息来源：
 
-报道称，疫情所导致的通货膨胀是造成该现象的主要原因，加拿大正面临着30年以来最高的通胀水平。自2年前疫情开始之后，该国各种商品价格都出现了史无前例的上升。其中，食用油价格的涨幅就高达42%，白糖价格也上涨了至少22%。
+[2022年1月24日 文贵大直播](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
 
-此外，该调查还计算了包括债务、住房，食品成本和财务状况等在内的综合“经济压力指数”，并将受访者分为从小康到陷入困境四个等级。而在纽芬兰省，因受石油产量下降的影响，约45%的受访者被归类为”陷入困境“。
-
-同时，调查还发现，约40%的加拿大人认为他们的财务状况在过去一年有所恶化，而成为13年来最高，其中，艾伯塔省、萨省和纽芬兰省名列前茅。
-
-* * *
-
-采编：   UCool优酷，编译撰稿：自由法兰西 ， 校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[https://www.ctvnews.ca/canada/nearly-60-per-cent-of-canadians-find-it-difficult-to-feed-their-families-poll-finds-1.5748898?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&taid=61eaa755e941150001c6f358&utm\_campaign=trueAnthem%3A+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.ctvnews.ca/canada/nearly-60-per-cent-of-canadians-find-it-difficult-to-feed-their-families-poll-finds-1.5748898?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61eaa755e941150001c6f358&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
+*配图：东京樱花团设计组*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
