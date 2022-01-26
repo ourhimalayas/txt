@@ -2,44 +2,26 @@
 ---
 
 
-## 凌云志
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1911124/)
+## 加拿大各地集会抗议疫情限制政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911137/)
 
-作者：香草山健身部 – 新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-花样少年雄心志
-歼魔不惧峰岭险
-岁岁年年谋虎皮
-不紧不慢步步追
-一环扣一环
+加拿大温哥华扬帆农场 枫叶快讯
 
-以身犯险谋奇略
-藐视死亡裹铁甲
-智取敌胆掏妖心
-战车稳健人心齐
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-38-edited.jpg)图片来源：TNH
 
-蓝旗对决噬血旗
-战鼓雷鸣电闪助
-妖魔颤抖画皮破
-多少英豪热血流
 
-铁血硬汉几度泪
-誓创伟业世和平
-胜负早分清雾霾
-携手并进，终归正道！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-**校对/发稿：童谣**
+据加拿大媒体【真北方】1月23日报道：日前，数十个城市的成千上万加拿大人与世界各地的城市协同一致，用自由集会来表达他们对特鲁多政府的疫情封锁措施和疫苗护照的强烈反对。
 
-**更多资讯，更多关注**
+报道称，在此次抗议活动中，多伦多，温哥华，蒙特利尔和渥太华等主要城市都涌现出大量的示威人群，他们举着“我们不会屈服”，“我们要自由和选择”以及“拒绝疫苗护照”等反抗标语，和平游行在市中心的街道上。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+此外，本次全国性集会还同时开启了加拿大货运卡车司机车队反抗疫苗护照的抗议行动。他们也于当天在各地自发集结并驱车前往首都渥太华，以此反击当局对他们实施的强制性 疫苗护照和对加拿大自由权利的恣意侵犯和破坏。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+采编：文莱，编译撰稿：苦尽甜来 (文來），校对编辑，发稿：硫酸羟氯喹64
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+原文链接：[Tens of thousands of Canadians protest COVID-19 restrictions at freedom rallies across country | True North (tnc.news)](https://tnc.news/2022/01/23/tens-of-thousands-of-canadians-protest-covid-19-restrictions-at-freedom-rallies-across-country/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

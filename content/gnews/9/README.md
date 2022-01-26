@@ -2,25 +2,25 @@
 ---
 
 
-## 战羊秦刚回答新疆问题
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911170/)
+## 加拿大卡车司机自由车队抗议疫苗暴政
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911186/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+加拿大温哥华扬帆农场 枫叶快讯
 
-人家说:“新疆问题，你作为一个大使来了，你要有个新的态度，西方很关注。“
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-39-edited.jpg)图片来源：KLN
 
-（秦刚回答）：“中国的新疆问题就是美国对待华人和黑人的问题，就是你美国过去怎么对待华人的怎么对待黑人的。但是扮演的角色不同的是, 在中国汉人被是当成是美国的黑人，汉人是被新疆人屠杀的种族大屠杀的，而不是汉人屠杀了新疆人。”这是我第一回听说呀！
 
-他说:〃你们知道吗？在过去几千年的历史长河之中，我们可以给你举出上千个例子，新疆人种族大屠杀了汉人，所有中国汉人过去的这些问题绝大多问题都来自新疆。中国的北方，我们就像你美国的黑人一样，曾经比奴隶还惨。但是现在我们对待新疆人事多好呢？就像现在你看到的我们中国人和很多种族和平相处，我们对待他们像亲兄弟姐妹。” 哇塞，这真的是太夸张了，这个战羊外交已经不是羊了，这已经是魔了。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/战羊秦刚回答新疆问题.png)
-发布： *tianzhihuan*
+据加拿大媒体【防卫】1月23日报道，上万名反对“新冠病毒”疫苗护照的加拿大卡车司机于当天参加了名为“自由车队”的跨国示威活动,并将从该国最西部的BC省驱车数千英里前往首府渥太华，以反抗当局违宪的疫苗接种政策。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，在特鲁多政府此前一意孤行地对加拿大和美国所有跨境的货运卡车司机要求疫苗护照之后，不甘受辱的卡车司机们随即自发行动并“封锁了所有向南前往美国的车道和来自美国的北行交通”作为对当局此举的有力回应。
+
+同时，由于特鲁多计划在美加边境拒绝所有未接种疫苗的卡车司机进入加拿大，因此将破坏两国贸易伙伴之间建立的包括从食品到汽车零部件等物流供应链。据悉，目前仅有约50%的美国卡车司机接种了疫苗，而正是因为特鲁多政府的强制疫苗护照，成千上万的货车司机将失去跨境货物运输的资格。
+
+* * *
+
+采编：青青 ，  编译撰稿：苦尽甜来 (文來），校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://childrenshealthdefense.org/defender/convoy-for-freedom-canadian-truckers-vaccine-mandates/](https://childrenshealthdefense.org/defender/convoy-for-freedom-canadian-truckers-vaccine-mandates/)
 
  
 

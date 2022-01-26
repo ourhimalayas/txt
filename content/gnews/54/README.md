@@ -2,33 +2,32 @@
 ---
 
 
-## 01/25每日播报｜美国顶级医生敦促公众停止接种中共病毒疫苗
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1907457/)
+## 流行病学博士讲述疫苗如何致使器官衰竭
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1906752/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61efbcff28a108147c623806)**
+撰稿：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+当地媒体1月23日报道，近日，流行病学博士皮特.麦卡洛在接受乔.罗根的采访时提到，中共病毒疫苗足以造成器官损伤和死亡。截止到目前，疫苗不良事件报道系统已经报告了超过1万八千人死亡，其中3万人在接种疫苗后永久残疾。死亡事件报告中，50%发生在注射后48小时内，80%发生在一周内。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-72.jpg)
+麦卡洛博士说，注射疫苗后，刺突蛋白在体内产生，数量与持续时间均不受控制。刺突蛋白会损害细胞，受损细胞进入心脏、大脑，破坏凝血的血管，引发心肌炎、心脏病、血凝块等人体器官损伤综合症，进而导致死亡。且中共病毒疫苗对人体的这些影响都是长期存在的。
 
-**[2022-01-25](https://gtv.org/broadcast/watch/61efbcff28a108147c623806)**
+参考链接：[流行病学博士讲述疫苗如何致使器官衰竭](https://beforeitsnews.com/health/2022/01/the-big-logic-dr-peter-mccullough-talks-about-how-covid-19-vaccines-can-cause-organ-failure-plus-video-3044174.html)
 
-《网关专家》1月24日报道，美国内科医生、心脏病专家、流行病学家和中共病毒灾难医疗应对的领导者彼得·麦卡洛博士（Peter McCullough），敦促公众停止接种中共病毒疫苗。他指出，在世界范围内，疫苗计划适得其反，那些疫苗接种率最高的国家，死亡率也最高。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-周日，麦卡洛在华盛顿特区举行的 “击败强制 “集会上告诉《网关专家》，那些已经接种过一到两剂中共病毒疫苗的人，如果再接种第三剂，将大大增加身体器官衰竭或致命的风险。他强烈反对会在身体的大脑、肺、心脏、骨髓和生殖器官中产生刺突蛋白的“基因疫苗”。
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-德克萨斯州的一位医生表示，市面上的辉瑞、莫德那、强生和阿斯利康基因疫苗所含的刺突蛋白在体内持续的时间比人们想象的要长得多，而且都聚集在重要部位，包括大脑、肺、心脏、骨髓和生殖器官。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-这位医生还建议，在没有找到方法排出那些刺突蛋白前，不要再接种这种基因疫苗了。因为人体内的刺突蛋白会逐渐积累，无法自动排出体外。它几乎肯定会导致慢性疾病甚至是死亡。
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-麦卡洛博士警告说，不仅中共病毒疫苗是危险和致命的，而且全美国的医院都在危险地遵从一个中共病毒治疗方案，这会令住院的感染病人必死无疑。现在，这些方案已经被评估是不可信的。
-
-据报道，所谓治疗方案是指，医院通常会给中共病毒阳性患者使用损害肾脏和肝脏的 “瑞德西韦”，随着患者的健康状况下降，遵循此方案的医生会对他们负责治疗的患者实施气管插管，这一过程可能会导致患者死亡。
-
-（ 秘翻新闻主编  冰糖葫芦喵编译报道 ）
-
-发布 :星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

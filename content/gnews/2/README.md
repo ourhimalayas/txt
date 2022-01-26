@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大经济举步维艰复苏无望
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911291/)
+## 中共编造谎言，打自己的脸（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911293/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-40-edited.jpg)图片来源：TNH
+就是那种过去是什么贩卖来的，媳妇儿小圆脸，那时候最流行的是直接从四川绑架，卖到山东、河南、安徽、绑架过来的。
 
+精神有问题，就是一个十几岁的学生被绑架过来，为了办结婚证，就把她年龄给改大了。15岁、16岁，改成了是42、43岁。
 
-据加拿大媒体[真北方]1月19日报道，[世界经济合作与发展组织]近日称，通过考量加拿大目前的主要经济指标后发现，该国在疫情危机中的经济运行举步维艰，近期内复苏无望。
+这个男的是60岁，这个男的根本就没性能力，在外面打工就没回来。这个女的，这不知道谁给搞上去。这个孩子现在已经生下来了，就是残疾。这个共产党、这个国家，你都邪恶，我再给你说，你能想象吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中共编造谎言，打自己的脸.002.jpeg)
+发布： *tianzhihuan*
 
-报道指出，该组织参考的指标包括：主要商品的生产订单量、建筑许可证申请量、新车登记量、利率改变度和经济信心值等。由于失控的超高通胀率和不断增长的失业率，加拿大因此被列为全球主要经济体中第六悲惨的国家。
-
-据悉，加拿大目前的通胀率已上升到5%，甚至更高，并为30多年来之最。同时，由于消费价格指数并未考虑到房价的飙升以及高达30%的住房通胀率，因此该国实际的经济危机程度要比官方公布的情况严重许多。
-
-* * *
-
-采编： 文莱 ，编译撰稿：自由法兰西 ， 编辑撰稿，发稿：硫酸羟氯喹64
-
-原文链接：[https://tnc.news/2022/01/19/canadas-pandemic-economic-recovery-losing-momentum/](https://tnc.news/2022/01/19/canadas-pandemic-economic-recovery-losing-momentum/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
