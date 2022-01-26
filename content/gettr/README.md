@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 2:15 AM (UTC)`
+
+Thousands gathered in front of the Lincoln Memorial in Washington DC for the 'Defeat The Mandates' Rally against COVID-19 vaccines. Many vaccine victims, doctors, scientists and other speakers have voiced their strong opposition to "mandatory vaccine policy".<br/><br/>数千人聚集在华盛顿特区的林肯纪念堂前，参加针对 COVID-19 疫苗的“击败强制授权”集会。许多疫苗受害者、医生、科学家等演讲者发出了强烈反对“强制疫苗政策”的声音！
+![img](https://media.gettr.com/group36/origin/2022/01/26/02/144dbe65-cb8e-e554-b0b2-a56cb7741830/out.jpg)
+
+---
+
 `@miles 1/26/2022 1:15 AM (UTC)`
 
 1/25/2022 Mr. Miles Guo signed the third historical document of the New Federal State of China, applauding President Biden and Secretary of State Blinken’s authorization of the commencement of closing the US Embassy in Beijing. We hope that the US will take further actions to pull the recognition of the CCP as the legitimate government of China and the Chinese people.<br/><br/>1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏；我们希望美国采取进一步行动否认中共是代表中国和中国人民的合法政府<br/>
@@ -147,13 +154,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1月25号：尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？<br/><br/>【甜蜜蜜<br/>你笑得甜蜜蜜<br/>好像花儿开在春风里<br/>开在春风里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里］
 ![img](https://media.gettr.com/group41/getter/2022/01/25/06/07f5b9ed-10ca-2be4-a3f0-3057f99534bc/out.jpg)
-
----
-
-`@miles 1/25/2022 1:16 AM (UTC)`
-
-1/24/2022 Miles Guo: What does a 20% drop in the US stock market mean? Why is there nothing happening after a 40% drop? In six weeks from today, an event that is at the heart of the Sino-US relationship will take place in Beijing, and an unimaginably new landscape will emerge in the world’s digital currency market.<br/><br/>1/24/2022 文贵直播：美股跌20%意味着什么？为什么跌了40%却毫无动静？从今天起的六周内，对中美关系有核心影响的事件将发生在北京，全球数字货币将出现令人无法想象的新局面！<br/>
-![img](https://media.gettr.com/group18/getter/2022/01/25/01/19fe6e52-8440-6a71-1e29-a0800908be52/out.jpg)
 
 ---
 
