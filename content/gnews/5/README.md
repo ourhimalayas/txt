@@ -2,10 +2,10 @@
 ---
 
 
-## Fauci的立场和理论的荒谬性和自相矛盾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1914913/)
+## 来自朱莉·伊丽莎白的歌《沉默》: 新冠疫苗受害者的故事
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1914916/)
 
-01/22/2022 两年来，人们不断见证世界政府和福奇立场的荒唐性和自相矛盾, 简直荒唐。
+01/22/2022 一首揭露新冠疫苗伤害的歌曲，鼓励大家不要沉默。作词演唱：朱莉·伊丽莎白。这很令人失望：政府沉默、医药大公司沉默、社交媒体被噤声。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

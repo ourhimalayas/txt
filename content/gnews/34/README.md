@@ -2,25 +2,25 @@
 ---
 
 
-## 以色列谘询委员会建议为所有成年人接种第 4 剂疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914360/)
+## 州长注册为代课老师 以应对学校教师短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914361/)
 
-作者：台湾宝岛农场—新中国联邦静
+作者：纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒25日报导，以色列疫情防控谘询委员会周二建议，所有成年人可在疾病康复或接种完加强剂后的 5 个月，接种中共病毒疫苗第四针。目前，该建议已获得当局卫生总干事的批准。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.56.02.png)
-疫情谘询委员会周日在卫生部发言表示，第四剂疫苗为 60 岁及以上人士提供了针对严重疾病的三倍保护以及针对感染的双重防护。
+据美国媒体1月23日报道，新墨西哥州州长米歇尔·卢扬·格里沙姆称，自己已注册成为代课教师，以解决学校和儿童保育中心由中共病毒造成的人员短缺问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午11.33.36.png)
+报道称，这位州长并没有教育经验，但预计下周将被安排在一所小学担任替补教师。
 
-事实上，以色列在疫苗接种率方面的表现一直稳居世界第一，截至上周末，全国第三剂加强针的接种率高达 55%，可惜的是，与此同时，以色列还是全世界单日确诊率最高的地方，据上周数据显示，以色列单日新增病例突破72000例。
+媒体指出，格里沙姆州长是上周公布的“支持教师和家庭”倡议的100人之一。她表示这一决定是中共病毒病例激增导致人员极度短缺的结果。
 
-不仅如此，接种过三剂中共病毒疫苗的外长拉皮德、财政部长利伯曼等该国政要都相继被爆出染上病毒，其中接种过四剂疫苗的国防部长甘茨最近在推特上发文证实，自己染上中共病毒。
+1月21日，新墨西哥州卫生部门报告了 6,198例新的中共病毒病例，确认数处于高位。
 
-参考链接：[Israël/Covid: le comité consultatif recommande une 4e dose de vaccin à tous les adultes](https://www.i24news.tv/fr/actu/israel/1643096435-israel-le-comite-consultatif-recommande-une-4e-dose-de-vaccin-a-tous-les-adultes)
+参考链接：[New Mexico governor becomes substitute teacher amid school staffing shortage](https://thehill.com/homenews/state-watch/590994-new-mexico-governor-becomes-substitute-teachers-amid-school-staffing)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：天滅中共
-编辑：天滅中共
+总编：飞虹
+编辑：飞虹
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
