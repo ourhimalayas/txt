@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 10:21 PM (UTC)`
+
+1/26/2022 Miles Guo’s GETTR: Today is the 5th anniversary of the Whistleblowers’ Movement. Why did I keep blowing the whistle even if my family members were arrested by the CCP back then? When faced with a dictatorship run by a devil, we have no choice but to eliminate it. So, this is now the most wonderful time of my life.<br/><br/>1/26/2022 文贵盖特：今天是爆料革命5周年纪念日，为什么文贵当年在家人被抓的情况下仍坚持爆料？面对魔鬼的独裁统治，我们别无选择，必须将其消灭，所以现在是文贵活得最精彩的时候<br/>
+![img](https://media.gettr.com/group16/getter/2022/01/26/22/e384bc4b-c691-9956-1f6d-8c1cd0585fa3/out.jpg)
+
+---
+
 `@miles 1/26/2022 4:57 PM (UTC)`
 
 The following questions are worth pondering after watching this interview with Dr. Vladimir Zelenko:<br/>1️⃣Is COVID-19 a naturally occurring virus or something else?<br/>2️⃣Why would someone like Dr. Zelenko, who is successful in treating COVID-19 patients, become controversial?<br/>3️⃣Why is a proven treatment method against COVID-19 viruses suppressed? <br/>4️⃣Why must they get everyone to take COVID-19 vaccines to the extent that they would not allow people to get healed with an easy way with Therapeutics. <br/>5️⃣What is the whole purpose of this pandemic? Why is this happening?<br/><br/>看完 Vladimir Zelenko 博士的采访后，以下问题值得深思：<br/>1️⃣新冠病毒是自然产生的病毒还是有其他来源？<br/>2️⃣为什么像 Zelenko 博士这样成功治疗新冠患者的人会引起争议？<br/>3️⃣为什么一个被验证的行之有效的治疗新冠病毒的方法被压制？<br/>4️⃣为什么他们必须让每个人都接种新冠疫苗，以至于他们不允许人们通过简单的治疗方法治愈病人。<br/>5️⃣全球大流行的真正目的是什么？为什么会发生？
@@ -145,13 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1/25/2022 Miles Guo: The Major Achievement of “the Tian Mi Mi Movement” - The US government just made a significant historical decision to issue the “authorized evacuation” of the US embassy in Beijing. On behalf of the New Federal State of China, Mr. Miles Guo sincerely appreciates President Biden and Secretary Blinken. History will prove the significance of this decision for humanity and preservation of human rights.<br/><br/>1/25/2022 文贵直播：“甜蜜蜜运动”重大成果 - 美国政府刚刚做出的重大历史决定“授权撤离”美驻北京大使馆,  郭文贵先生代表新中国联邦代感谢拜登总统和国务卿布林肯先生，历史会证明该决定对人类和人权维护的重大意义！<br/>
 ![img](https://media.gettr.com/group34/getter/2022/01/25/16/16ccec50-3dff-8c6f-31d6-b660547cab48/out.jpg)
-
----
-
-`@miles 1/25/2022 2:36 PM (UTC)`
-
-2022年1月25日 紧急直播：甜蜜蜜运动重大公告<br/>Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement
-![img](https://media.gettr.com/group26/origin/2022/01/25/14/d69e1be5-c5fd-3620-2f66-1347ffabd31a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

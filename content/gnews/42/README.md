@@ -2,33 +2,32 @@
 ---
 
 
-## 2022/01/25 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1913715/)
+## 英国从乌克兰撤出部分大使馆人员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914356/)
 
-1. 1月22日，上海地铁15号线，一名女乘客下车时被地铁屏蔽门夹住，脱困期间列车再次启动导致乘客身亡。
-2. 1月23号，陕西西安奥园小区的住户们愤怒聚集，高喊要求政府对其小区“解封”，并批评政府“懒政”！
-3. 1月23日，湖南怀化。男子从深圳返回怀化，质疑集中隔离期间的强制消费行为。集中隔离伙食费用每天80元，强制消费，不让订外卖。
-4. 1月23日，重庆垫江。中共所谓低风险区域返乡人员被要求强制隔离，被工作人员恐吓，“不听话就将其带走”。
-5. 1月23日，陕西西安。从上海返回西安，健康码被标识星号，会被要求做严格登记。
-6. 1月22日，河南许昌禹州市出现了荒唐的一幕。由于中共政府宣传进口水果会附带病毒，地方政府出现了给大蒜苗做核酸检测的场景。
-7. 1月23日，由于中共国的经济发展严重不平衡，一年一度的春运是中共国独有的现象，视频位一高速公路收费站被堵得水泄不通。
-8. 1月23日，福建莆田。打工者没钱回家，临近春节依旧在路边寻活。好心人路过，资助路费让其回家。
-9. 1月25日，上海。静安府小区以防控疫情的缘由，肆意加大物业权力。拒绝快递进小区，业主千件快递滞留马路中淋雨。
-10. 1月23日，湖南岳阳。17岁男子开车掉进水塘，车上7人均未成年，3名中学生不幸遇难。
-11. 1月22日，中共卫健委表示中共国已有超2亿60岁以上老年人完成新冠疫苗全程接种。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月24日，英国媒体报道，由于担忧俄罗斯将入侵乌克兰，英国官员表示在基辅工作的大使馆人员约有一半将返回英国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.20.png)
+俄罗斯已经在俄乌边境驻扎了数万名士兵。北约首脑警告说，欧洲存在发生新冲突的风险。北约成员国，包括丹麦、西班牙、保加利亚和荷兰，正在向东欧派遣更多的战斗机和军舰，以加强该地区的防御。
 
+郭文贵最早爆料中俄“双头鹰计划”，即俄罗斯进攻乌克兰，配合中共对台湾的行动。乌克兰地区目前的紧张局势，完全印证了郭先生的爆料。1月24日，郭先生在直播中透露，普京会在边境虚晃一枪，直取基辅，让整个乌克兰跪下。
 
-* * *
+参考链接：[Ukraine crisis: UK begins withdrawing embassy staff from Kiev as Russia war fears mount](https://www.independent.co.uk/news/world/europe/ukraine-crisis-uk-embassy-kiev-russia-b1999237.html)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
+总编：Ivy001
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

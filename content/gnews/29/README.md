@@ -2,50 +2,33 @@
 ---
 
 
-## 灭共漫画- 停止疫苗灾难
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1914775/)
+## 七哥谈喜联储尊重法律规则（2022-01-21摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1914831/)
 
-设计者：纽约香草山设计部 — Wolverine
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-01-21直播10：36：12摘录
 
+我今天跟大家想谈一下子特别重要的，就是说喜币你看到今天的时候，它绝对是每天在创造着奇迹，现在价格是多少？42，42块3，我没直播从来不看喜币价格啊。那么比如说我们最近咱们这个喜币整个的变化当中，我们发现对战友，我特别感谢很多战友很了不起。就是这次跟咱们联盟统一的行动，但是也发生了很多问题。比如说有的人在让他锁币之前，他把币设定在一个交易价格区间，比如说40~42，他设定有时间，就是去年12月份，他币是账号拉黑了，他是违法的，他有各种法律问题，但是他币到时间它还自动卖，卖了以后这钱可以拿走。另外一个由于这个币拉黑了，由于它违反规定，有些人说那他钱他要拿走，HDO都要拿走。也就是说被拉黑的人反而幸运了，都可以把钱合法拿走。你看这个喜联储有多么正道啊，就这钱你都要拿走，就善良到这种程度。不像共产党似的把你祖宗八辈的地都给你收了，啥都给你收了是吧？连内裤都给你拿走，把你赶到马路上去，不管你是爹还是啥的，都给你赶到马路上去。那么喜联储就让他把钱拿走，结果我们在喜联储工作的唯一战友陈晨暴怒！跟他们发脾气了，说这个昨天找我说：你看看，那我们老实的战友锁币的人，你就把钱反而在这等着三年，这些违反规定的假人却能拿走几百万、甚至8000万要拿走。他就大喊大叫，第一次在那喊，把大家全吓傻了，跟我说。我第一时间也找了他们喜联储，我也怒了，我昨天我找他们，我找老班长、找长岛哥、找雁平，我说你们要让他们拿走任何钱，特别是这些完全违反规定、虚假的身份，虚报或骗取某币的人、福利币的人拿走8000万或一个亿，那你们是犯罪。但这件事发生之后，意识到什么？喜联储真的是…这个整个联邦做了正确决定，联盟委员会。所以大家要珍惜联盟委员会，没有联盟委员会怎么办？七哥没这个权利、也没有这个资格，他必须联盟委员会来做。联盟委员会马上申请法律程序，对那些违反规定、骗取某币、提供虚假信息的人采取法律行动。采取完法律行动，这些币都得给你封、都得给你没收，这是肯定的，这样就保护了我们绝大多数的好人战友、老老实实的跟联盟一起行动灭共锁币，你不能让极少数人把钱拿走。比如说有人一个人就骗走了几百万美金，哇塞！另外的人就一个人干走了两千多万美金，你这是太可怕了是吧？还有你现在你在喜联储尊重法律规则，但是我们战友进去是集体进去的，我们有集体利益，你必须尊重我们呐。但是这个事情看的出来，让我们大家，就是喜联储守法、战友们守规、坏人投机，如何解决这些问题呢？需要联盟委员会。所以说联盟委员会我看到公告了啊，任何人到昨天不锁闭、不签字的你的币就被起诉了，起诉了不是你的币有没有了，就是绝对没有了，那就活该了。大家要记住，我觉得我支持联盟委员会的决定，我支持这些保护99.999战友的这种决定，不能让好人吃亏啊。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-停止疫苗灾难_Stop-the-Vaccine-Disaster.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-停止疫苗灾难_Stop-the-Vaccine-Disaster.jpg)
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
 
-
-
-
- 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
