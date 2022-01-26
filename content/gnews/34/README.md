@@ -2,34 +2,26 @@
 ---
 
 
-## 州长注册为代课老师 以应对学校教师短缺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914361/)
+## 日本醫療人員恐第三針疫苗引發副作用 多數人員拒絕接種
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1914373/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据美国媒体1月23日报道，新墨西哥州州长米歇尔·卢扬·格里沙姆称，自己已注册成为代课教师，以解决学校和儿童保育中心由中共病毒造成的人员短缺问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午11.33.36.png)
-报道称，这位州长并没有教育经验，但预计下周将被安排在一所小学担任替补教师。
+**日本東京方舟農場 Kevin wang**
 
-媒体指出，格里沙姆州长是上周公布的“支持教师和家庭”倡议的100人之一。她表示这一决定是中共病毒病例激增导致人员极度短缺的结果。
+據中央社1月26日報道稱，日本政府規劃爲醫療人員和老人優先接種第三針疫苗，但民衆意願不高，接種率偏低。部分醫療人員因擔心疫苗產生副作用，而推遲接種。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-24.png)（圖片來自中央社）
+報道稱，日本政府日前規劃爲醫療工作人員與高齡者優先接種第3劑疫苗，從去年12月到今年1月底預計爲約1470萬人施打，包括醫療工作人員576萬人、65歲以上高齡長者約650萬人，以及64歲以下約244萬人。但依據中央政府的「疫苗接種紀錄系統」（VRS）紀錄，截至1月23日，僅約236萬人完成接種第3劑，約爲規劃接種人數的16.1%。
+報道指出，醫療工作人員中有人因擔憂副作用而拒絕接種第3劑。其中奈良縣內的醫院相關人士說，因爲擔心副作用，又要確保醫療能量，因此沒有加緊接種，奈良縣目前第3劑接種進度爲10.7%。
+另有老人照護表示，入住的老人多有罹患認知症等無法確認本身意志者，需要花時間向家人說明與取得同意，很難提早爲這些老人接種疫苗。
+此外，COVID-19疫苗所引發的副作用引發關注， 據社交媒體GETTR上ID爲‘連新社’的媒體發佈的一則視頻表示，疫苗中的氫氧化石墨烯和其他未知成分提升導致血栓、心臟病和中風等疾病的風險，從而對身體造成不可挽回的傷害。
 
-1月21日，新墨西哥州卫生部门报告了 6,198例新的中共病毒病例，确认数处于高位。
+參考鏈接：
+1：[https://www.cna.com.tw/news/aopl/202201260060.aspx](https://www.cna.com.tw/news/aopl/202201260060.aspx)
+2：[https://gettr.com/post/pqfo21a38b](https://gettr.com/post/pqfo21a38b)
 
-参考链接：[New Mexico governor becomes substitute teacher amid school staffing shortage](https://thehill.com/homenews/state-watch/590994-new-mexico-governor-becomes-substitute-teachers-amid-school-staffing)
+素材採編：Kevin wang
+編輯： 青城道姑
+發佈：文曦
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
