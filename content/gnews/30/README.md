@@ -2,30 +2,35 @@
 ---
 
 
-## 中美经济低迷影响全球经济增长
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911976/)
+## 北大退休教授郑也夫发文反对中共武统台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912162/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2136.png)[图片来源](https://www.aa.com.tr/en/economy/imf-revises-down-global-growth-projection-to-59-for-2021/2390043)
-国际货币基金组织（IMF）预测，今年世界经济整体将增长4.4%，比去年少1.5个百分点。 这是因为美国长期的通货膨胀和中国严格的“清零”政策，将拖累全球经济增长速度。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-国际货币基金组织25日发布了最新的经济展望，预测今年全球经济增长将为4.4%，比去年下降1.5个百分点，去年由于疫苗的普及，经济曾出现了强劲反弹。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19.png)
+据鸣人堂报道：1月22日，北京大学退休教授郑也夫为台海情势发表《匹夫說台海》短文，反对中共武统以及武力威慑台湾。郑也夫强调由于中共严控言论使得武统之论甚嚣尘上，他的公开反对可以击碎“武统派”代表人民的错觉。
 
-美国预计增长4.0%，低于去年的5.6%，原因是供应链中断导致的长期通货膨胀，以及拜登政府的一项标志性政策《重建美好未来法案》通过的不确定性。
+据自由亚洲电台指出，郑也夫拒绝接受后续采访，以避免当局对他错误理解。他强调文章已经明确了观点。
 
-中国将从去年的8.1%降至4.8%，政府的“清零政策”限制了个人消费增长，房地产行业的萎缩也带来来消费减缓。
+郑也夫曾在2020年7月发表了一篇《为谁保江山》的文章之后，消声了差不多一年半。
 
-欧元区预计也将从去年的5.2%下降到3.9%，英国从7.1%下降到4.7%。
+当时中共深陷疫情灾难，经济急速下行，和美国也出现了外交困局，加上违反《中英联合声明》，强推香港《国安法》。时任美国国务卿蓬佩奥甚至发表《共产中国与自由世界的未来》演讲呼吁自由社会要与中国人民联合起来打败中共暴政。
 
-另一方面，日本由于长时间限制经济活动使去年的增长止步于1.6%，预计今年将提高到3.3%。
+习近平当时疾呼要守住中共社会主义事业，郑也夫则刊文直指中共的“保江山”其实就是“保权贵”，现实就是中共权贵阶层的后代们纷纷移居美国。
 
-IMF表示，未来美国货币政策收紧可能对新兴经济体的发展带来一定风险，预计明年全球经济增长将比今年进一步放缓至3.8%。
+参考链接：[https://opinion.udn.com/opinion/story/120611/6059246?form=udn\_ch2\_common3\_cate](https://opinion.udn.com/opinion/story/120611/6059246?form=udn_ch2_common3_cate)
 
-信息源：[https://www3.nhk.or.jp/news/html/20220126/k10013449981000.html](https://www3.nhk.or.jp/news/html/20220126/k10013449981000.html)
+*发布：tianzhihuan*
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
