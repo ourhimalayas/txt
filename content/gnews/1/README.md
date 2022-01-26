@@ -2,36 +2,41 @@
 ---
 
 
-## 未接种者感染病毒后，重症及死亡率远远小于完全接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914099/)
+## 日本允许年轻染疫者不就诊居家疗养
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914196/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒 23 日报道，一份由苏格兰政府发布的最新数据显示，针对中共病毒疫苗的研究发现，未接种者感染病毒后，住院及死亡率远远小于完全接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-48.jpg)
-根据数据，接种两针疫苗后的感染率为每10万人中有865.79人，相比未接种组的412.77人，感染风险提高了2.1倍。另外，接种组的死亡率也比未接种组高出50%。
+作者: 纽约磐石农场—在远方
 
-这一结论与此前英国的研究一致，证明连续接种中共病毒疫苗后，非但没有任何免疫抗疫的作用，还会对人体的抗疫能力，以及染疫后的重症及死亡率有负面影响。
 
-此外，苏格兰卫生部也被发现有篡改数据的行为，据报道，卫生部门将接种疫苗后21天内，测试阳性的病例全部归入“未接种”组，人为提高了未接种组的感染率。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+日媒报道，鉴于当前中共病毒奥密克戎变异株迅速蔓延的形势，日本厚生劳动相后藤茂之在当地时间1月24日宣布，将允许年轻人中症状较轻，以及重症化风险较低的感染者，不去医疗机构就诊而开始居家疗养。
 
-参考链接：
-1) .[FALLING APART: Latest Health Data From Scotland Mirrors the UK – Unvaccinated Have Lower Covid-19 Case, Hospitalization, AND DEATH RATES Than the ‘Fully Vaxxed’](https://www.thegatewaypundit.com/2022/01/falling-apart-latest-health-data-scotland-mirrors-uk-unvaccinated-lower-covid-19-case-hospitalization-death-rates-fully-vaxxed/)
-2) . [Public Health Scotland COVID-19 & Winter Statistical Repor](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+该政策需要上述病人自行开展病毒检测，再将结果告知行政部门开设配有医生的健康跟进中心。还允许各地仅限出现发热等症状，但重症化风险较低的人，呼吁其在自行使用试剂盒检测之后再就诊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+据悉，此前日本政府要求确诊感染中共病毒后，原则上需要在医疗机构就诊，但现在日本政府根据奥密克戎的特性转变了方针，此举旨在于减轻医疗机构和保健所的负担。
 
-总编: 飞虹
-编辑：天滅中共
-校正/发稿：Fei797
+**新闻来源**: [https://china.kyodonews.net/news/2022/01/175236cb492f–.html](https://china.kyodonews.net/news/2022/01/175236cb492f--.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-11.png)
+总编: Irene木木
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

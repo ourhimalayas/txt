@@ -2,42 +2,29 @@
 ---
 
 
-## 中国银监会原副主席蔡鄂生被开除党籍　通报措辞罕见
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1913913/)
+## 1.25大直播后记：共产党的定海神针消失
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1913916/)
 
-作者: 纽约香草山教育部 Naughty(文行)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12121.png)
 
 
-中共纪委国家监委网站1月24日发布消息称，日前对蔡鄂生严重违纪违法问题进行了立案审查调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/de75-324e7e4fbd34bbe4755634ed0503f94f.png)图片来自网络
-消息称，经查，发现蔡鄂生政治上彻底蜕变，对党不忠诚不老实，搞两面派、做两面人，滥用金融监管权，严重扰乱金融市场秩序，严重污染金融领域政治生态，对抗组织审查。
 
-通报还称，蔡鄂生奢靡腐化，组织观念淡漠，且寡廉鲜耻，大搞权色、钱色交易；目无法纪，“退而不休”，顶风作案，利用职务便利和影响力为他人在融资贷款、项目承揽、职务晋升等方面谋利，并非法收受巨额财物。
+图片来源：雅典娜设计组（姐夫说说）
 
-通报说，蔡鄂生的行为构成严重职务违法并涉嫌受贿、利用影响力受贿、滥用职权犯罪，性质严重，影响恶劣，依规给予蔡鄂生开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-公开资料显示，1951年出生的蔡鄂生长期在银行系统任职，在央行系统工作20余年，2021年7月在卸任银监会副主席8年后被中纪委调查。
+整理：雅典娜速记组
+编辑：Sadhu
 
-**新闻来源**: [https://news.sina.cn/gn/2022-01-24/detail-ikyamrmz7069927.d.html?from=wap](https://news.sina.cn/gn/2022-01-24/detail-ikyamrmz7069927.d.html?from=wap)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-6.png)
-总编: 飞虹
+他们外国政要说我们还有3周，我说那就赶快开始吧，我都睡不着觉了，他就开始了。美国政府叫授权撤离，总统批完国会也知道。 授权撤离的理由是什么呢？说因冠状病毒，哈哈，这就是政治。而且我告诉大家一个秘密，这次的撤离决不再回去。 不是断交啊，你们可记住啊，世界上最大的大使馆是哪呀？ 当年的伊拉克，伊拉克完了，才是北京。 北京对美国大使馆定义为什么进入亮马河桥？还有北京，你看看北京有一个叫东南角叫CBD，叫金融区，伦敦有个金融城，东侧东南角。 巴黎也有一个金融街，东南角，东京也有一个，金融街东南角，你查查全世界有钱的都在城市东南角，这叫中国人左青龙，右白虎。 所以你们家厨房一定放在东南角和南侧别放西侧啊，真有风水的。大使馆在哪儿是经过看定的，从大清朝在那儿，后来南京重庆，最后定外秀水街5号，3号还是5号然后又到了今年的安外50号。 共产党内部说那个大使馆就是中国共产党的定海神针。 现在定海神针没了。 大使馆区就刚刚过去几个小时，最起码20个国家的大使告诉我说，兄弟，现在你给了我一个惊喜，没有人相信。我刚才就说了，他们都不信。
 
-校对/发稿: 卡夫卡的甲壳虫
+发布：星谕
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

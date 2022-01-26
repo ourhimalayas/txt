@@ -2,34 +2,38 @@
 ---
 
 
-## 奥运会在即，中共在北京对200万人进行COVID-19检测
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1913956/)
+## 韩国中共病毒确诊病例首次超8000，创历史新高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914038/)
 
-素材整理：Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-6.00.10-PM.png)图片来源：互联网
-据美联社报道，自1月15日以来，中共卫生官员对200万北京市居民进行了COVID-19的检测，现今距离冬奥会开幕式还有不到两周的时间，大约有40个确诊病例的小高峰。
+作者: 首尔天池农场—追着曙光跑
 
-据美联社报道，中共当局还宣布，在过去两周内购买过发烧、咳嗽或某些其他药品的居民必须在72小时内接受冠状病毒检测。
 
-“目前的防疫形势依然严峻复杂，全市各部门必须积极迅速地采取行动，”市政府发言人徐和建在一份声明中说。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+据韩国《KBS新闻》1月25日的报道，截至当天0时，韩国较前一天0时新增感染中共病毒（新冠病毒）确诊病例8571例，创历史新高。
 
-“总体形势是可控的，”徐补充说。
+其中，京畿道确诊病例最多，为2900例；首尔确诊病例1700例，仁川确诊病例670例；全国累计确诊74.9979万例。当天新增23例死亡，累计6588例，平均致死率为0.88%。现有重症患者392例，较前一天减少26例。另外，全国约有3.2万人在家接受治疗。
 
-中共政府已经实施了新的冠状病毒预防措施，因为人们对2月的冬季运动会的担忧越来越大。
+上周奥密克戎（Omicron）变种已成为流行毒株，在新增确诊病例中，奥密克戎感染病例占比为50.3%。考虑到奥密克戎的传染率是德尔塔毒株的两倍多，专家预测本周内韩国新增确诊病例将超过10,000例。
 
-新冠病毒蔓延到第三个年头，中共继续积极推行 “零容忍 “COVID-19政策。
+**新闻来源**: [https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555](https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+总编: Irene木木
 
-体育媒体ESPN和NBC体育上周宣布，由于担心COVID-19，他们不会派记者参加奥运会。
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-奥运会组织者周一表示，超过3000人，包括300多名运动员和团队官员，加上媒体和其他参与者，已经抵达北京参加为期两周的活动。
+**更多资讯，更多关注**
 
-据美联社报道，截至目前，包括一名运动员和团队官员在内的78名与奥运会有关的人员的病毒检测呈阳性。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*编辑&发布：Vicky*
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-原文链接：[China tests 2M people in Beijing for COVID-19 as Olympics loom](https://thehill.com/policy/international/asia-pacific/591149-china-tests-2m-people-in-beijing-for-covid-19-as-olympics)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

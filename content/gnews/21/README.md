@@ -2,38 +2,51 @@
 ---
 
 
-## 近四周英国18 周岁以上新冠病毒患者89%接种了两剂或三剂新冠疫苗
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913880/)
+## 文·贵天成——文贵先生谈“北京冬奥会”（五）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1913831/)
 
-编者：寻文客
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367.jpeg)
-1 月22 日，英国《每日邮报》(Daily Expose) 发布的一篇报导称，根据英国卫生安全局提供的最新数据，在2021 年12 月20 日至2022 年1 月16 日期间，英国所有新冠病毒新增病例中，接种了两剂或三剂新冠疫苗的人占了绝大多数。 [1]英国卫生安全局每周都会发布一份新冠病毒疫苗监测报告[2] ，其中包含按新冠疫苗接种状态划分的新冠病毒病例、住院和死亡数据。最新报告[3]于1 月20 日发布。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2112121.png)
 
-报告显示，在2021 年12 月20 日至2022 年1 月16 日期间，英国约有290 万新冠病毒确诊病例，其中约有220 万病例是新冠疫苗完全接种者（即接种了新冠疫苗两剂及以上）。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2186.png)
-然而，在其中18 岁以上的240 万新冠病毒确诊病例中，有超过210万病例是新冠疫苗完全接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2185.png)
-2021 年12 月20 日至2022 年1 月16 日这四周的新冠病毒确诊病例中，新冠疫苗完全接种者占比达到73%；而把目光聚焦到18 岁以上的病例，新冠疫苗完全接种者占比更是达到惊人的89%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2187.png)
-英国首相Boris Johnson 于当地时间1 月19 日表示，自1 月27 日起取消大部分新冠病毒限制政策[4] ，包括：当地的大型活动将放弃使用中共病毒疫苗护照政策，同时，英国民众在出入公共场所时也不需要继续提供中共病毒疫苗接种证明。此外，民众将不再被强制要求佩戴口罩。英国的新冠疫苗政策已基本宣告结束。
 
-参考来源
 
-[1] [https://dailyexpose.uk/2022/01/22/89-percent-covid-cases-among-triple-vaccinated/](https://dailyexpose.uk/2022/01/22/89-percent-covid-cases-among-triple-vaccinated/)
+**图片来源：墨尔本雅典娜农场设计组（614）**
 
-[2] [https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)
 
-[3] [https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachmentdatasurveillance − report − week − 3 − 2022.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachmentdatasurveillance%20−%20report%20−%20week%20−%203%20−%202022.pdf)
+整理：BENJ1
+编辑：小红帽
 
-[4] [https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd](https://apnews.com/article/coronavirus-pandemic-boris-johnson-business-health-london-59417842d49e95ef556eb9b0352144dd)
+**郭文贵先生2021年12月3日直播**
 
-* * *
+我们在等待着两件事，一个是政治时机到达，对台湾这块。我觉得冬奥会，共产党不管如何他都会开的。现在他们已经知道很多国家会不去，他们已经告诉国际冬奥会成员–内部人已经告诉我们了，共产党说，不管谁，一个人不来我们也会开。（这）就是中国人的冬奥会了。
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+冬奥会以后，我相信很大机会对台湾会动武，会动的，一定会动的，而且那个时候我觉得躺平币是最关键的，这是一个。第二个就是美国的监管，我估计在4、5、6月，2022年都会出来。很多所谓的币都会消失。像币安百分之百消失，比特币一定会被消失。这种币，你有前科，你有犯罪，你完全不配合的，你肯定消失，剩下就是大浪淘沙，会剩下很少的币。
+
+**郭文贵先生2021年12月8日直播**
+
+2019年七哥当时说，消灭冬奥会这件事情。冬奥会这件事情只有东弟和颖妹妹最有资格说，（这）对共产党意味着什么。
+
+一位体制内的（人）说，我又在同时听到了北京冬奥会被取消。他说，文贵，这是天意呀。他说，党内，体制内，我们所有人的电话都打爆了。
+
+那么冬奥会这件事情，习近平最希望是他妈能看到，这是他的一生所谓的盛世。拿回香港，收回台湾，成功举办冬奥会，然后修宪，是吧?这是他最最在乎的事情，但冬奥会被灭了。
+
+冬奥会被灭，我可以告诉大家，新中国联邦是独一无二的最大的功劳，是我们最早提出灭冬奥会的。包括班农先生、包括欧洲，我们取得所有公关、政治游说的，所有人说:“不可能Miles”，他说，“你知道把冬奥会给干掉，中国共产党会是什么呢?共产党基本宣判了死刑。那只是哪一天了。取消冬奥会比取消世贸–严格讲，还严重”。原因是什么?他说：“取消冬奥会以后再有任何国际盛事来中国，都会成为被审视（的那个）”。
+
+就咱俩过去关系是正常的，咱俩上你家吃个饭，吃个午餐都正常，东弟、颖妹妹。突然间，今天东弟说，今天搞成最大的，我郝海东我35大寿，这个七哥一定来。结果七哥宣布，正式宣布，我不参加这个大寿。那我下次再来不来你家吃午饭，吃晚饭?大家都会看着七哥来不来，因为这是证明了七哥和你的关系，更重要的是冬奥会的目的不是——冬奥会谁搞的?不是企业家搞的，它是以国家（名义）搞的。
+
+往期回顾：
+[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
+[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
+[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
+[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
+
+发布：星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
