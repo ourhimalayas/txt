@@ -2,13 +2,22 @@
 ---
 
 
-## VAERS数据显示2021年有2万多例疫苗死亡，只占实际的10%
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1912377/)
+## 中日财经爆┃中共经济学者马光远微博被禁言
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1912441/)
 
-01/23/2022 InfoWars: 去年年底在 VAERS（疫苗不良反应报告系统） 网站上的不良反应死亡人数为2万1千人。FDA、CDC、辉瑞、莫得纳、大药厂、民主党、拜登，他们不想让你看到这个，所以他们不报告，反而审查报告的人。他们保守地估计，只收到10%的不良反应报告。所以说真的，如果那是真的，你看到的是 20万人死于疫苗，而你甚至都不知道。
+撰稿：东京樱花团｜喜马拉雅的微尘
+![](https://lh4.googleusercontent.com/oSUhKbEHaxRcnlT2rMBUbwQigEL3Q6ML0ff7vexohkw2E9nfevT0QfGXJhr521lAGkAlyXwQAAlqUsyAhpyKsdxlCU84hPcPboTPszED3tH0ZMH29pdzbzG4GUiVpLZn9konoH34)[*图片来源*](https://www.bigorangemedia.com/13251)
+1月25日，有媒体爆出经济学者微博账号被禁言。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+其微博个人账号主页显示，“因违反社区公约，该用户暂时处于禁言状态”。此外，马光远的今日头条动态也停更十余天。
 
+当前，中共经济大船已经四处漏水，正在沉没。为了让船上的老百姓继续麻醉，中共将更加疯狂地实施言论控制。
+![](https://lh6.googleusercontent.com/xEBlHmqW43mcgTbq6Jdaq4X2DOyq2e5bn0rmKFQexKvZVRDN9fEU2L5Oi3aLVX8mS3TSYOVk6Ht_m-xfI8mLBItCJOZkjoikHJyMiBEOLpmbFh1c__Wvsh7i3eOVYxAweGd4SjGv)
+信息来源：[**经济学者马光远微博被禁言**](https://www.sohu.com/a/518910426_170520)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

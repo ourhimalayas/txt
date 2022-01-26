@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人不舍得为自己花钱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912597/)
+## 共产党一箭五雕的报仇
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912734/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
