@@ -2,36 +2,31 @@
 ---
 
 
-## 有声|中共称冬奥会外方人员中发现72例确诊病例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915245/)
+## 七哥谈“大洗牌”（2022-01-21摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1915295/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月23日，北京冬奥会组委会在线上媒体简报会上表示，从1月4日至1月22日进入中共国的2586名奥运会相关人员中，确诊了72例阳性病例。有39例是在机场的检测中发现的，33例是在闭合环内发现的。在此期间抵达的171名运动员和团队官员中没有病例。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据悉，所有奥运会参赛者都需要在出发前往中共国的96小时内，获得两份阴性PCR检测结果，而且大多数人都是乘坐特别安排的包机抵达的。进入闭合环内，所有人员每天都会接受核酸检测，从4号到22号，共进行了33.6万次PCR检测。
+来源：郭先生2022-01-21直播10：45：50摘录
 
-原文链接：[中共称冬奥会外方人员中发现72例确诊病例](https://gnews.org/zh-hans/1906751/)
+我简单说一下刚才房地产里边。当我们大家来面对这个房地产的时候，我们现在有两个问题很多人都疏忽掉了。我们讲过但没有认真讲。就是共产党这个房地产对世界的经济打击之后，他怎么收场？他现在不让人家，让你活不了，活不好也死不了。然后吸金大法把全世界的钱吸他那儿去。然后由于借债的多了，欠债的害怕借债的死。这就是共产党，咱们从小到大听说的，说你因为，是吧？欠你那么多钱，你别死，需要你活着，共产党这一招玩得挺绝的。但最终他一定会把西方，一定记住，你一定会看到你一生当中前所未有的、全球的经济危机。美国资产会跌到你无法想象，我认为是50到6、70都可能。但是你也会看到人生从来没有的、经济大反弹之后的就创造的财富。真的一夜之间，这次的经济反弹比人类上任何时候都要快，可能。而且反弹回来，飞起来的时候，就是把所有泡沫挤完以后，共产党给排除体外，共产党灭亡以后，人类的金融危机和疫苗危机之后的人类文明和资产大爆发、财富大爆发。我今天一点不开玩笑，就这个，就这里边，咱现在这五个人和看直播的战友们当中，一定会出来千亿、百亿、万亿财富的人。那么为什么会这么说呢？大家要看到，房地产崩塌的时候，是全球金融机构、金融结构所有权、社会大流通，重新洗牌的时候，政治大洗牌、经济大洗牌、金融大洗牌、资源大洗牌，前所未有。这个洗牌的过程，但凡有点脑子，像你们这样的人，都有可能成为人类上文明的创始人。
 
-音频处理/发稿：Daxia
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+**关注我们**
 
-**更多资讯，更多关注**
+Discord 账号
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Gettr 账号
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,36 +2,53 @@
 ---
 
 
-## 【圆成原创】在中共治理下，良知经济学者只能郁郁而终
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1914998/)
+## 中共宣传机构对美国体育节目主持人进行谩骂和攻击
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915126/)
 
-**作者：面包飞上天**
+作者：纽约香草山农场 – 四季
 
-今天不经意间看到著名经济学者张维迎的文章，很有感慨。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9C702C40-76EE-455C-AFDE-5060B3C50E8A.png)图片来源：[禁书网](https://www.bannedbook.org/forum20/topic18383.html) 
-这是若干年前的一个文章，总结中共过去几年究竟是什么推动了中国经济的高增长，他的结论是改革开放后资源配置效率的提高，提出了中国未来经济若要持续增长，要把寻租活动转向创造价值的活动。并提出了5点建议：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-1. 保护企业家剩余价值索取权。
 
-2. 减少政府干预经济活动。
 
-3. 政治体制改革。
 
-4. 建立相对独立的司法制度，使政府在法律范围内行事。
 
-5. 减少政府控制的资源数量。
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/01/25/chinese-propaganda-outlet-blasts-bob-costas-for-desecrating-olympic-spirit-by-criticizing-china/)1月25日报道，传奇体育主持人鲍勃·科斯塔斯（Bob Costas）在接受CNN记者布莱恩·斯特尔特（Brian Stelter）的采访时批评了中共国在新闻自由方面的糟糕记录，并批评国际奥委会允许在北京举行冬季奥运会。
 
-像张维迎之类的经济学者的理想永远不会实现，除非改朝换代。因为这篇文章发表之后的现在，从习近平上台后，所进行的经济措施都是倒行逆施。说一点真话的经济学者要么关闭微博，要么打压，经济圈只剩下一批政策解读派，坚定的政策支持派。大学里学的经济学、金融学，教导的都是政府指导经济进行资源配置，突出政府主导地位，这是整个国家的悲哀。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Tom-Pennington_Getty-Images-24-640x480-1.jpg)Tom Pennington/Getty Images
 
-**编辑：LILY**
+科斯塔斯表示，国际奥委会选择让一个公开监视运动员和记者的国家来举办奥运会，理应受到所有的鄙视和厌恶。
 
-**发布：歪桑**
+对此，中共《环球时报》履行了其作为共产党政权喉舌和捍卫者的义务，对科斯塔斯进行了谩骂和攻击。
 
-20220126
+无独有偶，在郭文贵先生昨天发布有关美国撤离驻中共大使馆的公告之后，中共今天声称美方撤离使领馆人员将极大增加感染病毒风险，也是对美国的公然挑衅和威胁。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+在新闻自由方面，中共国的侵权行为是众所周知的。据联合国观察组织称，中共国除了是全球第一大人权侵犯者之外，还从事科斯塔斯在其评论中所指控的所有侵犯新闻自由的行为和间谍活动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

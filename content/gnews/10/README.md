@@ -2,38 +2,30 @@
 ---
 
 
-## 有声|美医生华盛顿反疫苗集会火力全开
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915199/)
+## 美日峰会共识高 安全与经济均抗衡中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1915213/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-盖特消息，在1月23日华盛顿举行的，由数万人参加的反对强制疫苗抗议中，皮埃尔·科里医生强烈抨击药企将利润置于人命之上。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/JudicialWatch_Social_ChineseSwab_1200x627_v1-768x4013-1.jpg)图片来源：美国之音
+据美国之音1月26日报道，日本首相岸田文雄21日通过视频与美国拜登总统进行首次正式的美日首脑会谈。双方在区域安全与经济上达成共识，明确承诺反制中共。
 
-科里医生说，人们正在打一场由药企发动，针对人类健康和持续了数十年的战争，各大药企一直将利润至于人命之上。而人类损失惨重，因此这场战争已经发展成为反人类罪行。
+双方反对中共国在中国海区域试图片面改变现状并进行经济威胁，并在印太地区日益增强军事威胁。日方认为由中共国主导印太地区并不符合日本的国家利益。日本作为一个国家，受益于美日同盟和自由国际秩序。岸田和拜登就新设的美日“经济版2＋2”会谈计划达成共识，推进印太地区基础设施建设，以应对中共国的一带一路。但日中经济依存度非常高，目前不可能脱钩。
 
-科里表示，在中共病毒肆虐期间，许多国家卫生机构发布的每一项政策，都被各大药企所控制。安全、有效、广泛的，而可以治疗中共病毒的药物的信息，已经长达两年的时间都被压制住了。而这是各大药企针对已有药物再利用的战争。
+岸田与拜登在会谈中确认台湾海峡的和平稳定，强化与台湾的沟通。虽然习近平在短期内没有攻打台湾的急迫性，但目前美中的军力差异正朝着对中共国有利的方向发展。双方也就维吾尔族与香港人权问题交换了意见。
 
-原文链接：[美医生华盛顿反疫苗集会火力全开](https://gnews.org/zh-hans/1906749/)
+美日峰会的话题绕不开中共和中共带来的一系列威胁。中共已经成了世界各国的头号威胁，尤其是中共国的近邻日本、台湾等国。中共对美国也是同样的威胁，没有一个国家、一个人是安全的，只要中共存在一天。
 
-音频处理/发稿：Daxia
+新闻参考链接：[https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html](https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

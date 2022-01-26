@@ -2,23 +2,25 @@
 ---
 
 
-## 加拿大卡车司机抗议运动筹款已近400万加元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914358/)
+## 以色列谘询委员会建议为所有成年人接种第 4 剂疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914360/)
 
-作者：加拿大温哥华扬帆农场Spirit
+作者：台湾宝岛农场—新中国联邦静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒1月23日的报道，名为“2022年自由车队”的加拿大卡车司机1·29国会山抗议运动，仅仅一周多的时间，筹款已经远超300万加元。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.26.png)
-该众筹是由阿尔伯塔省的塔玛拉·利奇发起的，旨在反对特鲁多政府已经于1月15日开始实施的，关于卡车司机出入美加边境时的疫苗接种、测试和隔离等相关规定。募集的资金将用于抗议者的燃料、食物和住宿费用。 截至周日晚上9:30，约有39,000人进行了捐赠。有几十笔数千美元的捐款，包括两笔1万美元的大额捐款。
+外媒25日报导，以色列疫情防控谘询委员会周二建议，所有成年人可在疾病康复或接种完加强剂后的 5 个月，接种中共病毒疫苗第四针。目前，该建议已获得当局卫生总干事的批准。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.56.02.png)
+疫情谘询委员会周日在卫生部发言表示，第四剂疫苗为 60 岁及以上人士提供了针对严重疾病的三倍保护以及针对感染的双重防护。
 
-来自卡尔加里的支持者詹姆斯·鲍德说，除了抗议对大卡车司机的限制，还抗议口罩、疫苗护照，以及无休止地关闭企业。他认为医疗行业已经高度政治化。加拿大卡车联盟CTA周日发表声明，鼓励卡车司机在渥太华国会山合法抗议。截至发稿时间，该笔专项捐款已接近400万加元。
+事实上，以色列在疫苗接种率方面的表现一直稳居世界第一，截至上周末，全国第三剂加强针的接种率高达 55%，可惜的是，与此同时，以色列还是全世界单日确诊率最高的地方，据上周数据显示，以色列单日新增病例突破72000例。
 
-参考链接：[Anti-vaccine-mandate truck convoy passing through Alberta on way to Ottawa](https://www.cbc.ca/news/canada/edmonton/anti-vaccine-mandate-truck-convoy-alberta-covid-1.6324819)
+不仅如此，接种过三剂中共病毒疫苗的外长拉皮德、财政部长利伯曼等该国政要都相继被爆出染上病毒，其中接种过四剂疫苗的国防部长甘茨最近在推特上发文证实，自己染上中共病毒。
+
+参考链接：[Israël/Covid: le comité consultatif recommande une 4e dose de vaccin à tous les adultes](https://www.i24news.tv/fr/actu/israel/1643096435-israel-le-comite-consultatif-recommande-une-4e-dose-de-vaccin-a-tous-les-adultes)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：Ivy001
-编辑：纽约香草山文艺部 – 宁文静
+总编：天滅中共
+编辑：天滅中共
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

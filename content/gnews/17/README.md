@@ -2,40 +2,47 @@
 ---
 
 
-## 新冠疫苗：医学证实青少年男性患心肌炎和心包炎风险最高
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1915065/)
+## 参议员科顿：美国应该像支持乌克兰一样支持台湾
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915151/)
 
-**编译: 真北007**
+作者：纽约香草山农场 – 四季
 
-来自GATEWAY PUNDIT一月二十五日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-美国医学协会杂志 (JAMA) 周二发布的一项新研究显示，在接种 mRNA COVID-19 疫苗后，青春期和年轻男性患心肌炎和心包炎的几率最高。
 
-该研究基于美国 VAERS 的2020 年 12 月至 2021 年 8 月期间192,405,448 名 12 岁以上的心肌炎病例的数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2A1D2AFC-F26D-4CF6-AFD6-F7392545BF4A-1.jpg)
-接种疫苗后的主要结果是发生心肌炎，次要结果是心包炎。
 
-根据这项研究，在接受至少 1 剂基于 mRNA 的 COVID-19 疫苗后，VAERS 收到了 1,991 份心肌炎报告（其中 391 份还包括心包炎），并收到了 684 份没有心肌炎的心包炎报告。在心肌炎患者中，中位年龄为 21 岁（IQR，16-31 岁），出现症状的中位时间为 2 天（IQR，1-3 天）。
 
-男性占心肌炎病例的 82%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/09C33003-9EE8-4A09-8BA7-86308CACF80A-1.jpg)
-该研究结论，接种基于 mRNA 的 COVID-19 疫苗后，发生心肌炎的风险在多个年龄和性别阶层中增加，并且在青春期男性和年轻男性的第二次疫苗接种后最高。
 
-**点评：此研究解释了为什么许多年青男性足球、橄榄球、篮球、和网球等运动员的倒地、受伤或猝死。真相需揭开，选择在个人，威胁强迫打疫苗是犯罪!**
+据[布莱特巴特新闻网](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)1月25日报道，在福克斯新闻频道周二播出的 “故事”节目中，参议员汤姆·科顿（Tom Cotton）认为，美国应该向台湾提供更多援助和支持。
 
-**原文链接：**
+科顿表示，中共和普京都想推美国其全球超级大国的地位。美国应该从过往的绥靖、和解和软弱中吸取教训。因为对美国来说，中共国相比俄罗斯对美国构成了更大的威胁。
 
-[https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/](https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/)
+科顿认为，美国应该向台湾提供和乌克兰一样多，或比其更多的武器、外交、财政和政治支持，以避免台湾发生今天在乌克兰边境看到的危机。台湾对美国来说比乌克兰要重要得多。
 
-**编辑：LILY**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
 
-**发布：歪桑**
+编辑/校对/发稿：小鹿
 
-20220126
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
