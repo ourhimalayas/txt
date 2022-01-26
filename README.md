@@ -15,89 +15,89 @@
 
 ---
 
-### [【圆成原创】在中共治理下，良知经济学者只能郁郁而终](/content/gnews/1/README.md)
+### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/1/README.md)
+ ` MayflowerBiz`
+
+### [【圆成原创】在中共治理下，良知经济学者只能郁郁而终](/content/gnews/2/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [全球疫情更新（红蓝药丸视角下的疫苗强制）](/content/gnews/2/README.md)
+### [全球疫情更新（红蓝药丸视角下的疫苗强制）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生盖特精要2022/01/26&#8211;02](/content/gnews/3/README.md)
+### [文贵先生盖特精要2022/01/26&#8211;02](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共称经济有能力实现超预期增长](/content/gnews/4/README.md)
+### [DC大中华时事：中共称经济有能力实现超预期增长](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [来自朱莉·伊丽莎白的歌《沉默》: 新冠疫苗受害者的故事](/content/gnews/5/README.md)
+### [来自朱莉·伊丽莎白的歌《沉默》: 新冠疫苗受害者的故事](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [世界集结为自由，周末180城市民众游行抗议](/content/gnews/6/README.md)
+### [世界集结为自由，周末180城市民众游行抗议](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大各地卡车司机加入车队，抗议疫苗强制接种](/content/gnews/7/README.md)
+### [加拿大各地卡车司机加入车队，抗议疫苗强制接种](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [Fauci的立场和理论的荒谬性和自相矛盾](/content/gnews/8/README.md)
+### [Fauci的立场和理论的荒谬性和自相矛盾](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [小土豆威胁GoFundMe撤销给卡车司机的捐款](/content/gnews/9/README.md)
+### [小土豆威胁GoFundMe撤销给卡车司机的捐款](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵先生盖特精要2022/01/26](/content/gnews/10/README.md)
+### [文贵先生盖特精要2022/01/26](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈喜联储尊重法律规则（2022-01-21摘录）](/content/gnews/11/README.md)
+### [七哥谈喜联储尊重法律规则（2022-01-21摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [爆料革命五周年](/content/gnews/12/README.md)
+### [爆料革命五周年](/content/gnews/13/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥说“痛苦只来自两个方面：没有信仰、没有能力。”（2022-01-21摘录）](/content/gnews/13/README.md)
+### [七哥说“痛苦只来自两个方面：没有信仰、没有能力。”（2022-01-21摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [七哥谈mRNA（2022-01-21摘录）](/content/gnews/14/README.md)
+### [七哥谈mRNA（2022-01-21摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [灭共漫画- 停止疫苗灾难](/content/gnews/15/README.md)
+### [灭共漫画- 停止疫苗灾难](/content/gnews/16/README.md)
  ` MOS Designer香草山设计部`
 
-### [台领导人视频会晤美国会议员 谈经贸、中共威胁](/content/gnews/16/README.md)
+### [台领导人视频会晤美国会议员 谈经贸、中共威胁](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥说“一人一票的选举是我们追求”（2022-01-21摘录）](/content/gnews/17/README.md)
+### [七哥说“一人一票的选举是我们追求”（2022-01-21摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [共产党玩“认真“找病毒的把戏](/content/gnews/18/README.md)
+### [共产党玩“认真“找病毒的把戏](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭先生直播厅——灭共集结号](/content/gnews/19/README.md)
+### [郭先生直播厅——灭共集结号](/content/gnews/20/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥谈海外的所谓民主民运（2022-01-21摘录）](/content/gnews/20/README.md)
+### [七哥谈海外的所谓民主民运（2022-01-21摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [反对党领袖：澳中关系前路多艰](/content/gnews/21/README.md)
+### [反对党领袖：澳中关系前路多艰](/content/gnews/22/README.md)
  ` 走进澳洲`
 
-### [罗伯特-马龙博士：欧洲人民仍希望美国能领导我们走出困境，美国人会是好样的！](/content/gnews/22/README.md)
+### [罗伯特-马龙博士：欧洲人民仍希望美国能领导我们走出困境，美国人会是好样的！](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [北德广电台：国际奥委会玩肮脏的游戏，对中国的强迫劳动视而不见。](/content/gnews/23/README.md)
+### [北德广电台：国际奥委会玩肮脏的游戏，对中国的强迫劳动视而不见。](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美中第一阶段协议已到期 中共没有兑现各项承诺](/content/gnews/24/README.md)
+### [美中第一阶段协议已到期 中共没有兑现各项承诺](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共专家：管理好房价下跌引致的风险，特别防止出现“负资产”](/content/gnews/25/README.md)
+### [中共专家：管理好房价下跌引致的风险，特别防止出现“负资产”](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [家庭反洗脑序列-第45篇 过年二、三事](/content/gnews/26/README.md)
+### [家庭反洗脑序列-第45篇 过年二、三事](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [白宫进入加密货币监管激烈讨论](/content/gnews/27/README.md)
+### [白宫进入加密货币监管激烈讨论](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [文·贵天成——文贵先生谈“北京冬奥会”（七）](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [德国新研究证实：疫苗接种率越高超额死亡率就越高](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
