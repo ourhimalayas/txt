@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 1:15 AM (UTC)`
+
+1/25/2022 Mr. Miles Guo signed the third historical document of the New Federal State of China, applauding President Biden and Secretary of State Blinken’s authorization of the commencement of closing the US Embassy in Beijing. We hope that the US will take further actions to pull the recognition of the CCP as the legitimate government of China and the Chinese people.<br/><br/>1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏；我们希望美国采取进一步行动否认中共是代表中国和中国人民的合法政府<br/>
+![img](https://media.gettr.com/group19/getter/2022/01/26/01/9b34f34d-f85a-42d5-5dc6-6ba7cb23d76b/out.jpg)
+
+---
+
 `@miles 1/26/2022 12:49 AM (UTC)`
 
 1月25号：尊敬的战友们好……不要忘了我们的使命，全力以赴，传播共产党病毒疫苗大屠杀的真相……一切都已经开始！
@@ -147,13 +154,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1/24/2022 Miles Guo: What does a 20% drop in the US stock market mean? Why is there nothing happening after a 40% drop? In six weeks from today, an event that is at the heart of the Sino-US relationship will take place in Beijing, and an unimaginably new landscape will emerge in the world’s digital currency market.<br/><br/>1/24/2022 文贵直播：美股跌20%意味着什么？为什么跌了40%却毫无动静？从今天起的六周内，对中美关系有核心影响的事件将发生在北京，全球数字货币将出现令人无法想象的新局面！<br/>
 ![img](https://media.gettr.com/group18/getter/2022/01/25/01/19fe6e52-8440-6a71-1e29-a0800908be52/out.jpg)
-
----
-
-`@miles 1/25/2022 12:52 AM (UTC)`
-
-1/24/2022 Miles Guo: The Tian Mi Mi movement has gained the support from those in the CCP and people from all walks of life in Communist China, so Xi Jinping's “China Dream” will be turned into a nightmare. The Monument to the People's Heroes will be changed to the Monument to the Mothers and engraved with stories of the Chinese mothers such as Yang Gailan, and the Mausoleum of Mao Zedong will be converted to the memorial hall for 1 billion victims slaughtered by the CCP. Today’s live broadcast is definitely epoch-making!<br/><br/>1/24/2022 文贵直播：甜蜜蜜运动获得了党内及各界人士的支持，习近平的中国梦将成噩梦；人民英雄纪念碑要改为母亲碑并刻上杨改兰等中国母亲的故事，毛泽东纪念堂要改成十亿冤魂纪念堂；今天的直播绝对是划世纪的！<br/>
-![img](https://media.gettr.com/group42/getter/2022/01/25/00/39859935-5782-c864-6035-a6c67b1093b6/out.jpg)
 
 ---
 
