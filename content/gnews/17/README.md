@@ -2,20 +2,19 @@
 ---
 
 
-## 中日财经爆┃联想也要造芯了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1912940/)
+## 2022年1月24日郭先生盖特 — 视频1「2分13秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1912990/)
 
-撰稿：东京樱花团｜喜马拉雅的微尘
-![](https://lh6.googleusercontent.com/INddn5XsoxauCE_SOgTxSEgjyF8AzMyqk1gxdYVbOk-sO1ChUrxtrzJua862A-v4p0ybtE3ygIFAZAB3_WepcHnvV2-8Rj8iD3aruwQB4HvMCEYomuhZMehcBSNCtv99seBSp3Sq)[*图片来源*](https://www.sohu.com/a/352192651_118680)
-据南方财经1月26日报道，企查查App显示，1月26日，鼎道智芯（上海）半导体有限公司成立，法定代表人为贾朝晖，注册资本为3亿元人民币。公司经营范围包含：集成电路设计；集成电路销售；软件开发；软件销售；硬件开发等。企查查股权穿透显示，该公司由联想（上海）有限公司100%控股。
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-另外据官方消息，本季度联想集团营收948亿人民币；税前利润21.7亿人民币，同比增长达到45%。净利润实现14.2亿人民币，年同比增长达到20%。
+Video link: [https://gettr.com/post/pqdi9688f5](https://gettr.com/post/pqdi9688f5)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/69BD69E4-26A2-45E7-A69D-7D2B5FC539DD.jpeg)
+兄弟姐妹们，你健身了吗？我这会开得我都蒙了 — 一个接一个！但是兄弟姐妹们，千万别忘了健身呐。
 
-信息来源：[**联想于上海成立半导体公司，注册资本3亿元**](https://finance.sina.com.cn/tech/2022-01-26/doc-ikyamrmz7551821.shtml)
+《甜蜜蜜》「在墙内」都被关了。“🎵甜蜜蜜…在哪里见过你…” 哇，唱错词儿了，是吧？7哥还有更严肃的歌，“甜蜜蜜运动”会让你们看到一切皆有可能！来点整个数据时代区块链的颜色革命，我看你「共产党」能把所有的歌都能关得完吗？
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+明天不直播，兄弟姐妹们。么～
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
