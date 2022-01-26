@@ -2,44 +2,26 @@
 ---
 
 
-## 凌云志
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1911124/)
+## 加拿大卡车司机自由车队抗议疫苗暴政
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911186/)
 
-作者：香草山健身部 – 新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-花样少年雄心志
-歼魔不惧峰岭险
-岁岁年年谋虎皮
-不紧不慢步步追
-一环扣一环
+加拿大温哥华扬帆农场 枫叶快讯
 
-以身犯险谋奇略
-藐视死亡裹铁甲
-智取敌胆掏妖心
-战车稳健人心齐
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-39-edited.jpg)图片来源：KLN
 
-蓝旗对决噬血旗
-战鼓雷鸣电闪助
-妖魔颤抖画皮破
-多少英豪热血流
 
-铁血硬汉几度泪
-誓创伟业世和平
-胜负早分清雾霾
-携手并进，终归正道！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-**校对/发稿：童谣**
+据加拿大媒体【防卫】1月23日报道，上万名反对“新冠病毒”疫苗护照的加拿大卡车司机于当天参加了名为“自由车队”的跨国示威活动,并将从该国最西部的BC省驱车数千英里前往首府渥太华，以反抗当局违宪的疫苗接种政策。
 
-**更多资讯，更多关注**
+报道称，在特鲁多政府此前一意孤行地对加拿大和美国所有跨境的货运卡车司机要求疫苗护照之后，不甘受辱的卡车司机们随即自发行动并“封锁了所有向南前往美国的车道和来自美国的北行交通”作为对当局此举的有力回应。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+同时，由于特鲁多计划在美加边境拒绝所有未接种疫苗的卡车司机进入加拿大，因此将破坏两国贸易伙伴之间建立的包括从食品到汽车零部件等物流供应链。据悉，目前仅有约50%的美国卡车司机接种了疫苗，而正是因为特鲁多政府的强制疫苗护照，成千上万的货车司机将失去跨境货物运输的资格。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+采编：青青 ，  编译撰稿：苦尽甜来 (文來），校对编辑，发稿：硫酸羟氯喹64
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+原文链接：[https://childrenshealthdefense.org/defender/convoy-for-freedom-canadian-truckers-vaccine-mandates/](https://childrenshealthdefense.org/defender/convoy-for-freedom-canadian-truckers-vaccine-mandates/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,42 @@
 ---
 
 
-## 赵启柱的事情（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911242/)
+## 警告大陆别趁机动台湾！ 美海上重兵已驶入南海
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1911369/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：台湾宝岛农场dobi
 
-我现在说一下，这个招行。头两天谈到这个招行的时候，这个跳楼的赵启柱先生。他的家人呢，还有他的朋友，因为我们有一个战友，是老椅子。应该和赵启柱是朋友，非常了解。 我们上一回呢，说的是这个赵启柱跳楼前的头一天的照片。这个真正的招行行长，大家知道是田惠宇，这个田惠宇100%是王岐山的人。是王岐山绝对马仔！你看田惠宇能控制招商，招商是共产党的几个大行啊，这是工农建商。同时呢，就一个国开行，还有田惠宇。 这是王岐山的秘书。大家记住，刚才那个赵启柱先生跳楼自杀。上次说法有不对的，我们搞错了，给他的家人和给他本人带来的不便在此绝对抱歉，非常非常的抱歉！这个田惠宇还有他的这个董事长主席缪建民，还有付刚峰这些，都是王岐山绝对的建行系统的马仔啊。那么这几个人是非常腐败的，我们把这个缪建民，还有一个就是付刚峰的事情给搞错 了。搞到赵启柱那儿去了。赵启柱先生呢，我不能确定这位战友说的他清廉正直，我真不知道，但是这个人我们是肯定搞错了啊。七哥读战友留言:有关招行事件，“七哥我作为老椅子，我们都很严肃啊，我会对您说的事实承担责任。赵启柱行长绝对是个纯洁善 良的好人，绝对的良师益友。’还良师益友啊，看来关系不浅。他心里总是考虑别人，哇塞！很共产党！对自己要求极其严格，很共产党，甚至就像雷锋啊。甚至总忘记自己保护自己，哇塞！比雷锋还雷锋。“很多年来他一直存在睡眠不好的情况，对工作和事业投入 自己的全部身心，但绝对清廉和自律几乎无人能及。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/赵启柱的事情一.png)
-发布： *tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
+
+
+
+据台媒报导，目前台海情势并没有因为国际上乌克兰局势升温而舒缓。美军目前仍把重兵摆在西太平洋，和日本的护卫舰，在菲律宾海进行联合军演，似乎要警告中国大陆，不要试图趁乌克兰局势紧张之际，对台湾动手。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-423.jpg)图源网络
+而大陆则连续两天，共派52架共机扰台，响应美日的军演行动。 大陆军事评论员杜文龙说：「美国在中国周边，从来没有这么大的两栖作战编队。」
+
+德州州立大学副教授翁履中则提到：「中国大陆在台海区域或者是印太区域的军事准备，不是针对台湾而来，而是针对美方而来。」
+
+且报导指出：不排除美国目前是在替下一阶段，更大规模的多国联合演习造势。
+
+新闻来源：[https://tw.news.yahoo.com/%E8%AD%A6%E5%91%8A%E5%A4%A7%E9%99%B8%E5%88%A5%E8%B6%81%E6%A9%9F%E5%8B%95%E5%8F%B0%E7%81%A3-%E7%BE%8E%E6%B5%B7%E4%B8%8A%E9%87%8D%E5%85%B5%E5%B7%B2%E9%A7%9B%E5%85%A5%E5%8D%97%E6%B5%B7-141557236.html](https://tw.news.yahoo.com/%E8%AD%A6%E5%91%8A%E5%A4%A7%E9%99%B8%E5%88%A5%E8%B6%81%E6%A9%9F%E5%8B%95%E5%8F%B0%E7%81%A3-%E7%BE%8E%E6%B5%B7%E4%B8%8A%E9%87%8D%E5%85%B5%E5%B7%B2%E9%A7%9B%E5%85%A5%E5%8D%97%E6%B5%B7-141557236.html%E3%80%8B)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
