@@ -2,33 +2,26 @@
 ---
 
 
-## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
+## 鸿门宴还是请君入瓮？ 北京冬奥传军队已接管奥运场地
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911871/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
-图片来源：gnews.org
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-66.png)
+看中国2022年1月25日讯，距北京冬奥会开幕只有10天，但北京5个区爆发疫情，且呈现多点散发态势。中共当局如临大敌，网传军队、警察已接管奥运场地。
 
-旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
+某自媒体网站有视频显示，1月20日军队已接管北京冬奥会雪上项目的主要举办地张家口市崇礼区，开始巡逻、执勤、处置突发事件。大批军车行驶在道路上，视频中能听到北京冬季奥运的主题歌曲。北京朝阳区是冬奥主承载区，该区居民王先生对外媒说，“满大街都是带红袖章的，只要是个路口、执勤的地方都有，查得很紧。”
 
-随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
+市民郭先生则透露，当局管制越发严厉，“武警都在地铁里站岗了”。由于中共当局不适当的防疫措施，引发不少民怨，但当局随后派出武警镇压群众。在此之前，已有网友发布视频称，“昨晚天津超10万市民在多处广埸声讨当局……。后被武警、特警镇压！重伤多人，被捕多人……太残忍啦。”有网友表示，他看到国内朋友圈的转发。“这些是在天津打工的外地人。当地政府封城，不管不顾这些外地人的生计。他们大多数已经8—9天未进食了。所以起来组织抗议要求政府给予食物帮助…”可是，随后发生的却是“大量武警入场，把演讲者逮捕，全场高呼‘放人’。”网友表示，“传言演讲者将以寻衅滋事或颠覆国家政权罪判刑……”
 
-接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
+“ 项庄舞剑，意在沛公”，“明修栈道暗度陈仓”，对于狡诈的中共，一切都不能不防。对于一个武装到牙齿的冬奥会，没有一个清醒的认知恐怕会凶多吉少。毫无疑问，这次疫情大灾难始于中共武汉实验室放毒，这是一种危害全人类的重罪，共匪不是不知，面对即将升起的声讨声浪自然会畏罪，各种极端举措，白般抵赖，花招尽出防不胜防。奉劝参加东奥会的各国选手和官员好自为之。
 
-新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
+消息来源：
 
-##### 新闻来源：
+[北京冬奥如临大敌 传军队已接管奥运场地(图)](https://m.secretchina.com/news/gb/2022/01/25/996097.html)
 
-##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
-
-##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
-
-##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
-
-##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
-
-##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

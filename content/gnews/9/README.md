@@ -2,34 +2,64 @@
 ---
 
 
-## 美国银行称美国中央银行数字货币将维护美元地位
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912152/)
+## 新冠疫苗造成伤害，泰国政府已赔偿10亿泰铢
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912181/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE1.jpg)图片来源：www.coindesk.com
-美国银行在一份报告中说，美国中央银行数字货币（CBDC）将不同于目前向公众提供的数字货币，因为它将是美国联邦储备局而不是商业银行的债务，因此将没有信用或流动性风险。
+#### **【雅典娜快讯】和您一起探究世界**
 
-由阿尔凯什·沙阿（Alkesh Shah）领导的分析师们周一在报告中写道，维护美元作为世界储备货币的地位，改善跨境支付和增加金融包容性，都被视为美国数字货币的好处。美联储上周发表了一份关于美国CBDC的好处和风险的讨论文件。
+整理报道：不要代表我Kari
+编辑：文泓
 
-该报告称：“潜在的风险——虽然可以通过CBDC设计上的选择来削弱——包括通过转移存款来改变金融部门的市场结构，如果商业银行的存款被转换为CBDC，会增加金融系统的流动性风险，以及降低货币政策的执行效力。” 美国银行表示，在发行CBDC之前，关键的考虑因素是它需要有隐私保护、中介服务、可转让和身份验证。
-
-该银行指出，在没有CBDC的情况下，稳定币的使用可能会增加，并补充说，截至1月21日，市场价值最大的两个稳定币——泰达币和美元币，其市场价值合计约为1210亿美元。报告说，它们作为一种支付手段的使用正在增加，特别是用于跨境汇款，因为它们比使用法定货币更快、更便宜。
-
-在本月早些时候发表的一份报告中，美国银行对英格兰银行关于英国CBDC将只是作为一种数字现金形式的说法提出质疑。它说，CBDC有可能取代活期存款账户，成为消费者持有其大部分资金的方式。
-
-**简评：**疫情加速了数字货币时代的到来，在各国开始正式探讨数字货币的时候，新中国联邦的喜币早已横空出世，改写世界数字货币的游戏规则。数字货币提供了传统法币所没有的安全，高效，稳定的属性，随着中共国房地产的崩塌，加上人民币超发一定会形成雪崩效应，没有人会再相信人民币的价值，因此数字货币的崛起一定会加速中共的灭亡。
-
-新闻链接: [Bank of America Says US CBDC Would Preserve Dollar’s Status as World’s Reserve Currency](https://www.coindesk.com/policy/2022/01/24/bank-of-america-says-us-cbdc-would-preserve-dollars-status-as-worlds-reserve-currency/?outputType=amp#aoh=16430782050315&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=From%20%251%24s)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/NB9MUEEIDV12PBES10H5R.png)图片来源：ThailandBusiness
 
 
-编辑：【英国伦敦喜庄园编辑部】
+当地时间1月25日，据《曼谷邮报》报道，在一篇政府的报告中提出了最为重要的一点，作为联合国和世卫组织的成员国，泰国政府明确地承认，直接造成了泰国人死亡和不良副作用的根本原因是接种了新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- **在向当局提出索赔的****11,707****人中，有****8,470****人（占所有索赔人的****72.3%****）得到了赔偿；**
+- **有****1,962****人，即****23%****的受偿者“在接受了新冠疫苗注射后永久瘫痪或死亡”。**
+
+
+这件事情影响是深远的，**泰国政府的这一决定正式通告所有泰国民众和世界各地的民众，正式拒绝接受这种有毒的新冠疫苗。**
+
+**这一决定开启并确定了法律先河——针对大型制药公司和腐败政府的集体诉讼以及刑事指控即将到来。**
+
+各国政府将无法否认，已被科学家和医生们达成的共识认为致命的疫苗将（对世界造成）毁灭性的影响，他们也不能强加给我们疫苗护照。
+
+此外，如果你有任何疑问，请查阅辉瑞公司根据“信息自由法”发布的“机密报告”，该报告明确证实了mRNA疫苗的犯罪性质，它已在世界范围内造成的死亡和伤害。
+
+辉瑞的‘机密’报告中包含有关‘新冠疫苗’对死亡率和发病率造成影响的详细证据。这些来自‘当事人’的第一手可靠数据现在可以用来制定和反击针对大型制药公司、政府、世界卫生组织和媒体的法律程序。
+
+泰国国家卫生安全办公室(NHSO)表示，在过去八个月中，已经向遭受新冠疫苗副作用的泰国人支付了近10亿泰铢的赔偿金。
+
+该机构承认，在2021年4月5日至12月26日期间，已批准了约9.27亿泰铢（2800万美元）的赔偿金。
+
+NHSO发言人兼副秘书长阿塔蓬说，在向当局提出索赔的11,707人中，有8,470人（占所有索赔人的72.3%）已得到了赔偿。
+
+这些索赔分为三个类别，第一类是疫苗接种者提出的索赔，他们在接受新冠疫苗注射后出现了轻度至中度的副作用。
+
+阿塔蓬博士说，这一类别共有6,298人，并指出他们有资格从政府获得不超过100,000泰铢的补偿。（**10,0000****泰铢**等于3037.7美元）
+
+第二类别，包括那些在接种疫苗后经历暂时性瘫痪和/或身体机能丧失的人提出的索赔，并指出这一类有210人将获得高达240,000泰铢的赔偿。
+
+第三类别，是接受了新冠疫苗后导致永久瘫痪或死亡的人进行的索赔。这一类中的1,962人有资格要求获得高达400,000泰铢的赔偿。
+
+在提交的11,707件索赔中，有1,752件因索赔人不符合规定的标准而被驳回索赔要求——其中615人已提出上诉。
+
+索赔人有权为自己和/或亲属寻求赔偿，而不需要证明他们的健康状况确实是由接种新冠疫苗所导致的，这一点毫无疑问。
+
+阿塔蓬博士说，国家卫生局已经在全国各地成立了13个委员会来处理赔偿要求，并补充说赔偿金将在申请被批准后的五天内支付。
+
+同时，NHSO秘书长查德说，去年10月和11月，该机构又向全国1942家医疗机构和医院支付了313亿泰铢，以帮助抗击新冠疫情。
+
+原文链接：[Thailand Government Will Pay Compensation for Vaccine “Side Effects” and Deaths: One Billion Baht – Global ResearchGlobal Research – Centre for Research on Globalization](https://www.globalresearch.ca/side-effects-cost-government-b1bn/5768018?utm_campaign=magnet&amp;utm_source=article_page&amp;utm_medium=related_articles)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

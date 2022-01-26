@@ -2,22 +2,33 @@
 ---
 
 
-## 中共给海外华人拉仇恨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912121/)
+## 北大退休教授郑也夫发文反对中共武统台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912162/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-战狼外交、战羊外交造成的灭天良，带给中国人在制造仇恨, 伊萨贝拉・杨把中国人定义成对西方民主最大的威胁。兄弟姐妹们，这是100%共产党搞的。我们这些天跟律师讨论，每个律师说，如果没有故障的操作是不可能采访你两三个小时, 只用了3分钟。采访了一年，最后的定义就那几句话。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19.png)
+据鸣人堂报道：1月22日，北京大学退休教授郑也夫为台海情势发表《匹夫說台海》短文，反对中共武统以及武力威慑台湾。郑也夫强调由于中共严控言论使得武统之论甚嚣尘上，他的公开反对可以击碎“武统派”代表人民的错觉。
 
-今天新增加节目，一会儿看完七哥的第3次抛出采访，你们有啥感想？你觉得七哥的智商如何？战斗力如何啊？伊萨贝拉-杨这件事儿，习近平的控制，被狗咬的控制，把海外华人处在最危急之中，共产党的奥运会这种巨额财富，所谓的政治国际大宣传，加在一起对我们是什么样的结果？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中共给海外华人拉仇恨.png)
-发布： *tianzhihuan*
+据自由亚洲电台指出，郑也夫拒绝接受后续采访，以避免当局对他错误理解。他强调文章已经明确了观点。
 
-更多资讯，请关注：
+郑也夫曾在2020年7月发表了一篇《为谁保江山》的文章之后，消声了差不多一年半。
+
+当时中共深陷疫情灾难，经济急速下行，和美国也出现了外交困局，加上违反《中英联合声明》，强推香港《国安法》。时任美国国务卿蓬佩奥甚至发表《共产中国与自由世界的未来》演讲呼吁自由社会要与中国人民联合起来打败中共暴政。
+
+习近平当时疾呼要守住中共社会主义事业，郑也夫则刊文直指中共的“保江山”其实就是“保权贵”，现实就是中共权贵阶层的后代们纷纷移居美国。
+
+参考链接：[https://opinion.udn.com/opinion/story/120611/6059246?form=udn\_ch2\_common3\_cate](https://opinion.udn.com/opinion/story/120611/6059246?form=udn_ch2_common3_cate)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

@@ -2,35 +2,34 @@
 ---
 
 
-## 比尔-马赫说他永远不会打COVID-19疫苗加强针
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912110/)
+## 美国银行称美国中央银行数字货币将维护美元地位
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912152/)
 
-据《www.theblaze.com》作者：ALEX NITZBERG，2022年1月21日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3580.png)图片来源：www.theblaze.com
-喜剧演员和电视节目主持人比尔-马赫在接受Deadline采访时质疑COVID-19加强针的作用，并表示他不会接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE1.jpg)图片来源：www.coindesk.com
+美国银行在一份报告中说，美国中央银行数字货币（CBDC）将不同于目前向公众提供的数字货币，因为它将是美国联邦储备局而不是商业银行的债务，因此将没有信用或流动性风险。
 
-“一些已经完全接种过疫苗并注射过加强针的人仍然对这种疾病呈阳性反应。”马赫告诉该媒体，“COVID-19疫苗并不能防止你传播它或避免感染这种疾病。我们知道这一点。这已经是一个事实。它们或许只是防止你死亡，姑且我们不能忽视这一点。但是，如果它们不能防止你传播它，也不能防止你感染它，为什么我们还在用我们一直以来的方式防治这种疾病？还有，打加强针有什么用？我永远不会去打加强针。”
+由阿尔凯什·沙阿（Alkesh Shah）领导的分析师们周一在报告中写道，维护美元作为世界储备货币的地位，改善跨境支付和增加金融包容性，都被视为美国数字货币的好处。美联储上周发表了一份关于美国CBDC的好处和风险的讨论文件。
 
-马赫接着说：“它不仅没有用，而且是一种非常新的疫苗。我并不想接种新的疫苗。同时，我们也不应该不公平地对待那些想让自己的免疫系统来应对疫情的人。现在，以色列正在进行第四次加强针。我在《纽约时报》——一个非常支持疫苗的出版物——头版读到关于以色列许多科学家反对加强针的报道，他们认为这可能会有一个反向的效果，叫做免疫系统疲劳。”
+该报告称：“潜在的风险——虽然可以通过CBDC设计上的选择来削弱——包括通过转移存款来改变金融部门的市场结构，如果商业银行的存款被转换为CBDC，会增加金融系统的流动性风险，以及降低货币政策的执行效力。” 美国银行表示，在发行CBDC之前，关键的考虑因素是它需要有隐私保护、中介服务、可转让和身份验证。
 
-他补充说：“我不希望免疫系统疲劳，你呢？因为，现在你会同时丧失疫苗或免疫系统的保护？我也有这样的担忧。”
+该银行指出，在没有CBDC的情况下，稳定币的使用可能会增加，并补充说，截至1月21日，市场价值最大的两个稳定币——泰达币和美元币，其市场价值合计约为1210亿美元。报告说，它们作为一种支付手段的使用正在增加，特别是用于跨境汇款，因为它们比使用法定货币更快、更便宜。
 
-他告诉Deadline，他已经“受够了COVID”，但他从未认为病毒对健康人构成了重大威胁。
+在本月早些时候发表的一份报告中，美国银行对英格兰银行关于英国CBDC将只是作为一种数字现金形式的说法提出质疑。它说，CBDC有可能取代活期存款账户，成为消费者持有其大部分资金的方式。
 
-“我从来没有害怕过病毒。我总是害怕对它的过度反应，随着事态发展，更证明我的担忧。我相信很多人有不同的感受，但这就是我的。”他指出：“我认为，对于健康状况良好的人来说，病毒从来就不是一种骇人的威胁。”
+**简评：**疫情加速了数字货币时代的到来，在各国开始正式探讨数字货币的时候，新中国联邦的喜币早已横空出世，改写世界数字货币的游戏规则。数字货币提供了传统法币所没有的安全，高效，稳定的属性，随着中共国房地产的崩塌，加上人民币超发一定会形成雪崩效应，没有人会再相信人民币的价值，因此数字货币的崛起一定会加速中共的灭亡。
 
-主持《与比尔-马赫的实时对话》的马赫此前曾表示，他不想打加强针，尽管他甚至从未想过要接种疫苗，但他“为团队做了一件事”。
+新闻链接: [Bank of America Says US CBDC Would Preserve Dollar’s Status as World’s Reserve Currency](https://www.coindesk.com/policy/2022/01/24/bank-of-america-says-us-cbdc-would-preserve-dollars-status-as-worlds-reserve-currency/?outputType=amp#aoh=16430782050315&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=From%20%251%24s)
 
-原文连接：[**https://www.theblaze.com/news/bill-maher-says-he-s-not-getting-a-covid-19-booster-what-the-f-is-the-use-of-a-booster-shot#toggle-gdpr**](https://www.theblaze.com/news/bill-maher-says-he-s-not-getting-a-covid-19-booster-what-the-f-is-the-use-of-a-booster-shot#toggle-gdpr)
+* * *
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

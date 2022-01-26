@@ -15,176 +15,176 @@
 
 ---
 
-### [短期年内喜币 比特币 以太坊会破10万大关 但是只有喜币会永恒不灭](/content/gnews/1/README.md)
+### [拜登总统签字授权撤离驻中大使馆 甜蜜蜜运动将响动北京城](/content/gnews/1/README.md)
  ` 焦點20分`
 
-### [朱利安-阿桑奇在美国引渡案中获得上诉许可](/content/gnews/2/README.md)
+### [习近平忽悠国际奥委会主席巴赫称有信心保证安全](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [习近平将走上一条不归路](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新冠疫苗造成伤害，泰国政府已赔偿10亿泰铢](/content/gnews/3/README.md)
+### [爆料革命将发起 “甜蜜蜜运动”](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [2022年1月25日郭文贵先生紧急直播全文字版](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [中日财经爆| 比特币价格四个交易日暴跌近四分之一](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [短期年内喜币 比特币 以太坊会破10万大关 但是只有喜币会永恒不灭](/content/gnews/7/README.md)
+ ` 焦點20分`
+
+### [朱利安-阿桑奇在美国引渡案中获得上诉许可](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新冠疫苗造成伤害，泰国政府已赔偿10亿泰铢](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“曾庆红”（七）](/content/gnews/4/README.md)
+### [文•贵天成——文贵先生谈“曾庆红”（七）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本一新冠病毒感染者痊愈后出现嗅觉障碍](/content/gnews/5/README.md)
+### [日本一新冠病毒感染者痊愈后出现嗅觉障碍](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [每日快报： 文贵先生郑重宣告美国即将撤离驻中共大使馆](/content/gnews/6/README.md)
+### [每日快报： 文贵先生郑重宣告美国即将撤离驻中共大使馆](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [北大退休教授郑也夫发文反对中共武统台湾](/content/gnews/7/README.md)
+### [北大退休教授郑也夫发文反对中共武统台湾](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政](/content/gnews/8/README.md)
+### [美国前线医生理查德·乌索医生请求支持者帮助我们的后代抵制这种暴政](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国银行称美国中央银行数字货币将维护美元地位](/content/gnews/9/README.md)
+### [美国银行称美国中央银行数字货币将维护美元地位](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共无耻掏空老百姓给别国送女人送钱](/content/gnews/10/README.md)
+### [中共无耻掏空老百姓给别国送女人送钱](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [俄乌局势持续紧张，美国撤离使馆人员](/content/gnews/11/README.md)
+### [俄乌局势持续紧张，美国撤离使馆人员](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共内斗揭秘](/content/gnews/12/README.md)
+### [中共内斗揭秘](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [中共给海外华人拉仇恨](/content/gnews/13/README.md)
+### [中共给海外华人拉仇恨](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [中共打压说真话的人](/content/gnews/14/README.md)
+### [中共打压说真话的人](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [比尔-马赫说他永远不会打COVID-19疫苗加强针](/content/gnews/15/README.md)
+### [比尔-马赫说他永远不会打COVID-19疫苗加强针](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共编造谎言，打自己的脸（三）](/content/gnews/16/README.md)
+### [中共编造谎言，打自己的脸（三）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [对数字货币监管，两利两弊（二）](/content/gnews/17/README.md)
+### [对数字货币监管，两利两弊（二）](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记——喜币的价格和价值](/content/gnews/18/README.md)
+### [大直播后记——喜币的价格和价值](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆|东京的平均收入 末位足立区属全国中上](/content/gnews/19/README.md)
+### [中日财经爆|东京的平均收入 末位足立区属全国中上](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [基辅市长谴责德国在俄乌问题上立场不坚定](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [冬奥会的大戏开场，中共灭亡的进程加速！](/content/gnews/21/README.md)
+### [冬奥会的大戏开场，中共灭亡的进程加速！](/content/gnews/26/README.md)
  ` 焦點20分`
 
-### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (7)](/content/gnews/22/README.md)
- ` MOS香港部`
-
-### [第六波病毒未停，第七波已经到来](/content/gnews/23/README.md)
+### [第六波病毒未停，第七波已经到来](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中美经济低迷影响全球经济增长](/content/gnews/24/README.md)
+### [中美经济低迷影响全球经济增长](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (6)](/content/gnews/25/README.md)
- ` MOS香港部`
-
-### [中日财经爆|在台湾金门唯一中资企业被中共国银行抽贷致破产](/content/gnews/26/README.md)
+### [中日财经爆|在台湾金门唯一中资企业被中共国银行抽贷致破产](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际透明组织：中共国腐败超出国境 习近平利用反贪打击对手](/content/gnews/27/README.md)
+### [国际透明组织：中共国腐败超出国境 习近平利用反贪打击对手](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共作秀给运动员加压，给自己壮胆儿！](/content/gnews/28/README.md)
+### [中共作秀给运动员加压，给自己壮胆儿！](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [勾结中共践踏人权的“科大讯飞”成为北京冬奥会的主角](/content/gnews/29/README.md)
+### [勾结中共践踏人权的“科大讯飞”成为北京冬奥会的主角](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆|中共国股市创18个月最大单日跌幅](/content/gnews/30/README.md)
+### [中日财经爆|中共国股市创18个月最大单日跌幅](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [重磅！重磅！美国授权撤离驻北京大使馆，这是新中国联邦史诗级的胜利！](/content/gnews/31/README.md)
+### [重磅！重磅！美国授权撤离驻北京大使馆，这是新中国联邦史诗级的胜利！](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳网撤销对询问中共国明星彭帅的T恤的禁令](/content/gnews/32/README.md)
+### [澳网撤销对询问中共国明星彭帅的T恤的禁令](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [鸿门宴还是请君入瓮？ 北京冬奥传军队已接管奥运场地](/content/gnews/33/README.md)
+### [鸿门宴还是请君入瓮？ 北京冬奥传军队已接管奥运场地](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登政府正式撤销对企业的疫苗规定](/content/gnews/34/README.md)
+### [拜登政府正式撤销对企业的疫苗规定](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [没有言论的自由，正义就会沦为孤岛 “被精神病”教师李田田背井离乡](/content/gnews/35/README.md)
+### [没有言论的自由，正义就会沦为孤岛 “被精神病”教师李田田背井离乡](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员](/content/gnews/36/README.md)
+### [郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国出台法案，强化应对中共国竞争力](/content/gnews/37/README.md)
+### [美国出台法案，强化应对中共国竞争力](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京冬奥会新冠测试“高门槛”引争议](/content/gnews/38/README.md)
+### [北京冬奥会新冠测试“高门槛”引争议](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“彭帅在哪里？”字样T恤衫在澳网公开赛上被组织方禁止引发争议](/content/gnews/39/README.md)
+### [“彭帅在哪里？”字样T恤衫在澳网公开赛上被组织方禁止引发争议](/content/gnews/42/README.md)
  ` 走进澳洲`
 
-### [【秘翻在线】法官否决了纽约州长的口罩规定](/content/gnews/40/README.md)
+### [【秘翻在线】法官否决了纽约州长的口罩规定](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生谈教育](/content/gnews/41/README.md)
+### [郭文贵先生谈教育](/content/gnews/44/README.md)
  ` 焦點20分`
 
-### [美国国务院因疫情原因批准驻华使领馆“授权撤离”](/content/gnews/42/README.md)
+### [美国国务院因疫情原因批准驻华使领馆“授权撤离”](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
 
-### [7·24系列——美国国务卿布林肯](/content/gnews/43/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共脖子上的绞索正在不断的勒紧 消灭中共是正义的必须](/content/gnews/44/README.md)
+### [中共脖子上的绞索正在不断的勒紧 消灭中共是正义的必须](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜马拉雅真义11解：天机初现，新中国联邦的甜蜜蜜运动让CCP做着噩梦走向灭亡](/content/gnews/45/README.md)
+### [喜马拉雅真义11解：天机初现，新中国联邦的甜蜜蜜运动让CCP做着噩梦走向灭亡](/content/gnews/47/README.md)
  ` 秘密翻译组-原创组`
 
-### [布林肯称美国应重返“国际组织”以对抗中国](/content/gnews/46/README.md)
+### [布林肯称美国应重返“国际组织”以对抗中国](/content/gnews/48/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国授权驻北京大使馆撤离 各国媒体报道持续发酵](/content/gnews/47/README.md)
+### [美国授权驻北京大使馆撤离 各国媒体报道持续发酵](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2022年1月25日晚](/content/gnews/48/README.md)
+### [GTV新闻访谈简报|2022年1月25日晚](/content/gnews/50/README.md)
  ` 纽约香草山MOS01`
 
-### [由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国](/content/gnews/49/README.md)
+### [由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国](/content/gnews/51/README.md)
  ` 首尔天池农场`
 
-### [《环球时报》英文网急眼了，发文声讨美国撤驻中国大使馆人员](/content/gnews/50/README.md)
+### [《环球时报》英文网急眼了，发文声讨美国撤驻中国大使馆人员](/content/gnews/52/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [美国劳工部也将取消中共病毒疫苗强制规定](/content/gnews/51/README.md)
+### [美国劳工部也将取消中共病毒疫苗强制规定](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [历史时刻 | 美国政府授权撤离驻北京大使馆，正式开启第三道灭共大门](/content/gnews/52/README.md)
+### [历史时刻 | 美国政府授权撤离驻北京大使馆，正式开启第三道灭共大门](/content/gnews/54/README.md)
  ` YALUN 亚伦`
 
-### [聚焦：美国撒回驻华使领馆促世界巨变](/content/gnews/53/README.md)
- ` 丁过`
-
-### [郭文贵先生重大公告：美国政府正式通知北京即日起，授权撤离美国驻北京大使馆！](/content/gnews/54/README.md)
+### [郭文贵先生重大公告：美国政府正式通知北京即日起，授权撤离美国驻北京大使馆！](/content/gnews/55/README.md)
  ` topnews`
 
-### [【Michael.Tonny专栏】NSW数据证明 接种疫苗后感染机率上升10倍以上](/content/gnews/55/README.md)
+### [【Michael.Tonny专栏】NSW数据证明 接种疫苗后感染机率上升10倍以上](/content/gnews/56/README.md)
  ` 温哥华扬帆农场`
 
-### [美国政府正式宣布撤离其驻北京大使馆](/content/gnews/56/README.md)
+### [美国政府正式宣布撤离其驻北京大使馆](/content/gnews/57/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [台湾前线｜惊天大爆料！美国政府通知北京 即日起授权大使撤离北京](/content/gnews/57/README.md)
- ` 關注組`
 
 ### [新中国联邦欢迎和支持美国政府作出授权撤离美国驻中国大使馆](/content/gnews/58/README.md)
  ` 秘密翻译组-原创组`

@@ -2,22 +2,25 @@
 ---
 
 
-## 【秘翻在线】法官否决了纽约州长的口罩规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911789/)
+## 美国出台法案，强化应对中共国竞争力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911849/)
 
-**撰稿：Grace**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-247.png)图片来源自本文网站
+1月26日《共同通信》在线消息，美国众议院25日公布了一项加强国内产业竞争力的法案，以便在安全相关产业领域与中共国进行抗争。该法案除了投资520亿美元加强半导体生产系统外，还将加强重要产品的供应链并提供研究支持。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-11.36.18-PM.jpeg)图片来源：libertarianguide
-据Just the News 1月25日报道，一名州法官周一推翻了纽约的口罩规定，裁定州长凯西·霍赫尔（Kathy Hochul）的政府无权在未经立法机构批准的情况下颁布这样的任务规定。
+拜登总统对该法案的宣布表示欢迎，称这是未来美国与中共国和其它国家的竞争迈出了重要一步。
 
-拿骚县(Nassau County)最高法院法官托马斯·拉德梅克(Thomas Rademaker)表示，该规定相当于 “由一个行政部门的国家机构非法颁布和制定的法律，因此是无效和不可执行的。”
+民主党众议院议长佩洛西在声明中表示，期待着与参议院讨论该法案，并尽快将其提交给总统期望尽快通过。
 
-报道称，虽然这项裁决推翻了纽约州关于在学校和公共场所戴口罩的规定，但仍没有推翻地方的规定。
+信息源：
 
-据《纽约时报》报道，纽约市政厅官员说，法院的裁决对城市学校没有直接影响，因为纽约市教育部门在州政府授权之前就有了自己的口罩政策。
+[米、中国対抗へ競争力強化　下院法案、半導体に6兆円](https://news.yahoo.co.jp/articles/68296bec49762373399ca3e80438a33e3de9a14d#:~:text=%E7%B1%B3)
 
-**新闻来源：** [Judge strikes down New York’s mask mandate as illegal](https://justthenews.com/government/courts-law/judge-strikes-down-new-yorks-mask-mandate-illegal)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
 
  
 

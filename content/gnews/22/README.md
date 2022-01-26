@@ -2,14 +2,23 @@
 ---
 
 
-## 【粤语配音】2022年1月25日： 新中国联邦重大公告 (7)
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1912023/)
+## 中共编造谎言，打自己的脸（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912100/)
 
-紐約香草山-香港部
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-全球人民的胜利，我们感谢布林肯先生用这样的智慧，感谢美国总统拜登先生，做出这样伟大的决定。
+他说不让你生一胎的时候，天下就你生了一胎，好到了你可以当上帝，他让你必须生二胎，三胎60岁的生孩子和当年的文化大革命亩产万斤粮，一个猪生100个崽儿一模一样， 就共产党打自己的脸。
 
-历史会证明 ，这会超过美国总统，任何一次对人类、对人权维护的意义，上天、上帝会保护你们，全球的人民会感谢你们，郭文贵 Miles Guo会代表全球的新中国联邦人，在此对美国总统拜登先生和布林肯先生，以及美国人民致以衷心的感谢，我们永远的和你们奋斗在一起，直到消灭这个绑架中国14亿人民和威胁全人类安全的共产党为止，我们将永远建立与美国和文明社会，千年的和平关系，一切都是刚刚开始，谢谢！
+我们中国老百姓，在中国人的都信呢？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中共编造谎言，打自己的脸.003.jpeg)
+发布： *tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
