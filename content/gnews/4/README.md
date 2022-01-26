@@ -2,50 +2,24 @@
 ---
 
 
-## 如果被切断SWIFT联系，俄罗斯将在欧洲断供天然气
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912847/)
+## 中日财经爆┃印尼限制镍出口 中共工业将遭重创
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1912928/)
 
-#### 【雅典娜观察】和您一起探究世界
+撰稿：东京樱花团｜喜马拉雅的微尘
+![](https://lh3.googleusercontent.com/k3K8-LzU7fja03jxUfQGE05OgFR37rpa8qiljPFXwart1K9w_HhgH1r8YoXI4zqVz-hy64hACS5Vy0NH78I65I1CnxfLzs-T1Jkc-itHvOO6vpEe8pvyx0guDz8Ulro-32py5MQv)[*图片来源*](https://autobala.com/volkswagen-expands-braunschweigs-battery-manufacturing-capacity/13092/)
+自去年9月表示将限制镍出口以来，印尼政府近日表示，正在研究对镍生铁和镍铁出口征收累进税，最早可能在今年实施。若该政策实施，或将对中共国的不锈钢和电池等产业造成重大打击。
 
-整理报道：文扬
-编辑：文泓
+目前，印尼是中国不锈钢企业最大的原材料供应地，据统计，中共国约 84%的镍铁（这是一种用于制造不锈钢的半精炼产品）进口来自印度尼西亚，其余部分来自日本、哥伦比亚、缅甸和新喀里多尼亚。这或将带来中共国不锈钢产品的价格上涨。由于镍也是电池制造的重要原材料，或将给中共国电池产业也带来重大影响。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/56JWR9AMWEYWBY2W@5.png)图片来源：Botanwang.com
+当前，中共正在大力推进新能源和新能源汽车产业，对于电池的布局和投入巨大，更高的镍价也给电池生产商带来了额外的痛苦。
 
+受此消息影响，由于对全球最大镍供应商出货量下降的担忧，导致伦敦金属交易所基准指数飙升至十多年来的最高水平。
 
-1月26日，据RT电视台报道，俄罗斯参议院副议长尼古拉·朱拉夫列夫周二警告，暂停俄罗斯SWIFT支付交易系统资格，可能会对西方产生巨大的反作用。
+信息来源：[**印尼将镍留在国内的举动对中国造成的伤害最大**](https://www.163.com/dy/article/GUH5HBMC05368F0O.html)
 
-“SWIFT是一个支付系统，这是一项服务，”朱拉夫列夫说，暂停俄罗斯SWIFT支付系统，将意味着莫斯科无法处理外币支付。这可能会使俄罗斯的贸易伙伴——主要是西欧，无法接收他们从俄罗斯进口的商品。这位官员警告说，这意味着俄罗斯的石油、天然气和金属以及其他“重要进口产品”将无法进入西欧市场。
-
-这位副议长还表示，华盛顿和伦敦的决定可能不足以推动暂停俄罗斯SWIFT系统的服务。他特别指出，与俄罗斯有大量贸易往来的国家不会轻易承受来自美国和英国的压力。
-
-根据欧盟委员会的2020年报告，俄罗斯一直是欧盟的五大贸易伙伴之一。它提供了该集团5%以上的进口，价值超过950亿欧元（1070亿美元）。
-
-朱拉夫列夫说，（SWIFT支付系统）这是一家欧洲公司，是一个由许多国家组成的协会，一个国家要被切断与它的联系，需要“所有成员国的一致决定”。
-
-上周日，英国媒体报道称，伦敦考虑支持暂停俄罗斯SWIFT的资格，以防俄罗斯与乌克兰发生军事冲突。1月中旬，德国报纸Handelsblatt报道称，西方领导人已经排除了这样的举动，华盛顿本身也放弃了这个想法。然而，美国否认这种说法，称“存在任何选项”。
-
-SWIFT是一家由股东拥有的有限责任公司，股东选举出由25
-
-“独立董事”组成的董事会，管理公司并监督管理层。目前的董事会成员大多来自西方国家，但俄罗斯和中国各有一名成员。
-
-根据该公司的网站，“SWIFT的国际治理和监督加强了其合作结构的中立性和全球性”。早在2012年，美国参议院银行委员会批准对与黑名单上的银行打交道的公司进行制裁，美国影响了SWIFT关于切断伊朗银行服务的决定。
-
-早在2014年，SWIFT曾拒绝考虑将俄罗斯从其服务中断开，以回应它当时收到的类似要求。
-
-朱拉夫列夫指出，尽管SWIFT是一种“方便快捷”的金融交易系统，但它绝非独一无二，俄罗斯和中国已经建立了自己的金融交易系统。
-
-原文链接： [Russia warns of consequences across Europe if it’s cut off from SWIFT — RT Russia & Former Soviet Union](https://www.rt.com/russia/547336-swift-europe-import-consequences-sanctions/)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

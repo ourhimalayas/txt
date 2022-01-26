@@ -2,340 +2,217 @@
 ---
 
 
-## 美国正在走向与俄罗斯的战争，而媒体正在鼓励它
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912654/)
+## 2022/01/26 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912787/)
 
-[https://gtv.org/video/id=61ee7f0a87664c47acd945ea](https://gtv.org/video/id=61ee7f0a87664c47acd945ea)
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/3F79B0C0-D4F9-4832-A42E-DB5EDF12E0B0.jpg?asset_id=D89B1B05-3695-4799-9414-77BDB5DD14B9&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/3F79B0C0-D4F9-4832-A42E-DB5EDF12E0B0.jpg?asset_id=D89B1B05-3695-4799-9414-77BDB5DD14B9&amp;size=1024)
+*（图片来源：英喜农场）*
 
-Tucker Carlson (Fox News host)
-塔克·卡尔森 (福克斯新闻主持人)
+### 环球网：独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/910C7000-0E48-477B-9301-E421E7BE9EEC.jpg?asset_id=04D71414-6445-4C98-A308-30682BAC13D3&amp;size=799)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/910C7000-0E48-477B-9301-E421E7BE9EEC.jpg?asset_id=04D71414-6445-4C98-A308-30682BAC13D3&amp;size=799)
+*（图片来源：文学城）*
 
-So while the rest of us have been distracted by omicron
-因此，当我们其他人被奥米克戎分心时
+**评论1：**2022年1月25日，新中国联邦郭文贵先生紧急直播，告诉世人，美国总统拜登与国务卿布林肯授权，美国驻华大使馆撤出中国，这预示着灭共的第三道大门打开了，中共老杂毛们该气急败坏了，共产党，你完了，一首甜蜜蜜给中共送终
 
-word that’s going to be the punchline of incredibly bitter jokes by the years from now
-从现在开始的几年里，这个词将成为令人难以置信的苦涩笑话的妙语
+**评论2：**教练突袭直播爆料后和面蒸馒头，环球网马上相应，但管你怎么说人家就是走了，不跟你玩了，自作孽不可活，一切都是刚刚开始，纳粹党你完了!
 
-omicron! as that has been taking up all of our disk space
-奥米克戎！ 因为这占用了我们所有的磁盘空间
+### 中国政府网:专业化整合将成央企改革重点
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/80CA2C3F-87FC-4E16-80E4-8C966821D377.jpg?asset_id=FA51BB11-1966-4C51-A66F-040E91AF4EAF&amp;size=400)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/80CA2C3F-87FC-4E16-80E4-8C966821D377.jpg?asset_id=FA51BB11-1966-4C51-A66F-040E91AF4EAF&amp;size=400)
+*（图片来源：搜狐新闻封面）*
 
-the country has inexorably been moving closer to
-这个国家已经不可避免地越来越接近
+**评论：**中共的整合，实则是吞并。民营企业哪里还有生存空间？做大了也只能姓党！
 
-what could be an incredibly destructive war with Russia
-与俄罗斯的一场极具破坏性的战争的可能
+### 央视新闻:中央网信办：开展“清朗·2022年春节网络环境整治”专项行动
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/37149DD1-8026-4DC7-8475-67BA6F977E25.jpg?asset_id=6D6BC889-079E-4DB5-B6E7-4735EC19E76E&amp;size=620)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/37149DD1-8026-4DC7-8475-67BA6F977E25.jpg?asset_id=6D6BC889-079E-4DB5-B6E7-4735EC19E76E&amp;size=620)
+*中国网信办（图片来源：路透社）*
 
-Our media is encouraging that war on MSNBC
-我们的媒体在MSNBC正在鼓励战争
+**评论：**中共的整治网络环境，是在偷换概念，整治就是打压封锁网络真相信息。其最惧怕的就是人民的觉醒。
 
-The lunatics are demanding Joe Biden is doing more to defend the territorial integrity of Ukraine
-疯子要求乔·拜登在捍卫乌克兰领土完整方面做得更多
+### 环球网：社评：解放军军机正绕着“台独”脖子拉细绳
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/59722FC5-1857-4A00-858F-641236DD5447.png?asset_id=FEF60307-0898-4E10-A470-3CD9FE7984E7&amp;size=950)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/59722FC5-1857-4A00-858F-641236DD5447.png?asset_id=FEF60307-0898-4E10-A470-3CD9FE7984E7&amp;size=950)
+*歼-16战斗机资料图（图片来源：台防务部门发布）*
 
-Joe Scarborough (MSNBC Morning Joe host)
-乔·斯卡伯勒（MSNBC Morning Joe 主持人）
+**评论：**“中共解放军军机23日、24日连续两天抵近台湾岛开展巡航，23日出动军机39架次，这一数字创下今年新高。民进党当局表现得十分紧张、难受，这就对了。现在，解放军军机绕台、抵近警巡已经成为常态，在 “台独”头顶上悬了一把达摩克利斯之剑，同时将大陆的警告和威慑具象化、实体化。”中共自己天天鼓吹台独，分化两岸同胞，中共不只是中国人民的噩梦，更是全世界的噩梦
 
-We’ve got to be aggressive in our defense of our allies
-我们必须积极地保卫我们的盟友
+### 新华网：立陶宛将派出迄今为止规模最大的代表团参加北京冬奥会
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/D9F0212D-8521-4CE1-AE94-F0F2C584A4A8.jpg?asset_id=68B1D585-642B-4EBD-A6C1-AD3D1373F2B8&amp;size=750)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/D9F0212D-8521-4CE1-AE94-F0F2C584A4A8.jpg?asset_id=68B1D585-642B-4EBD-A6C1-AD3D1373F2B8&amp;size=750)
+*（图片来源：网络）*
 
-and Ukraine, despite what you hear from Putin propagandas
-和乌克兰，尽管这是你从普京的宣传中听到的
+**评论：**立陶宛最早外交抵制北京冬奥会，现在参加冬奥会，体育≠政治，文明国家与中共独裁不同，体育不受政府管制，中共再怎么宣传，北京冬奥会都是习大神最后的国际表演了
 
-propagandists across the world and yes, even here in America
-世界各地的宣传员，是的，甚至在美国
+### 环球网：俄罗斯驻华大使：俄拟派五百人庞大代表团参加北京冬奥会
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/923E572B-24EA-4D55-B5B1-0706CD445631.jpg?asset_id=B6F2DEDC-B07C-4F37-AF1D-FBCD84B6AE54&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/923E572B-24EA-4D55-B5B1-0706CD445631.jpg?asset_id=B6F2DEDC-B07C-4F37-AF1D-FBCD84B6AE54&amp;size=1024)
+*（图片来源：环球时报）*
 
-despite what you hear, we have to defend our democratic allies
-不管你听到什么，我们必须捍卫我们的民主盟友
+**评论：**习大神背后跪求普京的结果吧，不知道中共又出卖了多少中国人民的血汗钱给俄罗斯，给习大神换一张脸面而已，中共早已没有资格代表中国和中国人，中共给全世界放了病毒，人人可依法杀之
 
-And it’s time for the Biden White House to start speaking more clearly
-是时候让拜登白宫开始更清楚地说话了
+### 环球网：商务部：中国出口疫苗超20亿剂，为全球对外提供疫苗最多国家
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/F4DD9B6B-0535-4C74-8B32-3DF13D030F96.png?asset_id=2EC29C69-24C8-4DA6-9BA4-01D02FC463B1&amp;size=624)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/F4DD9B6B-0535-4C74-8B32-3DF13D030F96.png?asset_id=2EC29C69-24C8-4DA6-9BA4-01D02FC463B1&amp;size=624)
+*（图片来源：国是直通车微博报道截图）*
 
-and more aggressively and telling us
-而且更积极地告诉我们
+**评论：**这是中共病毒和毒疫苗的罪证
 
-how they’re going to stop this invasion from happening
-他们将如何阻止这种入侵的发生
+### 人民网：全球第四！人民币超日元，意味着什么？
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/7C20DA49-CAD5-4C70-A1F0-35AE80328935.jpg?asset_id=6940DF6C-A25E-4105-A2FA-BF0638D61C5A&amp;size=550)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/7C20DA49-CAD5-4C70-A1F0-35AE80328935.jpg?asset_id=6940DF6C-A25E-4105-A2FA-BF0638D61C5A&amp;size=550)
+*（图片来源：中新网）*
 
-Tucker Carlson
-塔克·卡尔森
+**评论：**意味着境内人民币和境外人民币将永远是平行线，老百姓永远不会自由兑换外汇
 
-People that stupid should not have TV shows
-愚蠢的人不应该有电视节目
+### 早报：台外交部：赖清德将在洪都拉斯与各国代表自然互动
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/2F5AD25F-3B52-4005-906B-5B696D305070.jpg?asset_id=34AD130E-E4B1-4AE4-A9E1-39B813650811&amp;size=300)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/2F5AD25F-3B52-4005-906B-5B696D305070.jpg?asset_id=34AD130E-E4B1-4AE4-A9E1-39B813650811&amp;size=300)
+*台湾副总统赖清德（图片来源：网络）*
 
-and they certainly shouldn’t be weighing in on adult topics like war and peace
-他们当然不应该在战争与和平等成年人的话题上发表意见
+**评论：**台湾副总统会见美国副总统，挺合适，不久又能看到搬石头国的玻璃心了
 
-but they are. So you have to ask yourself, why is this happening?
-但他们是, 所以你必须问自己，为什么会这样？
+### 环球网：新冠口服药来了！“两片儿见效”是不是梦？
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/27A74295-CF92-4395-AC9F-2792F3B79A95.jpg?asset_id=7346F5F3-4A5F-4524-8AB7-25633EED6734&amp;size=480)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/27A74295-CF92-4395-AC9F-2792F3B79A95.jpg?asset_id=7346F5F3-4A5F-4524-8AB7-25633EED6734&amp;size=480)
+*（图片来源：澎湃新闻微博）*
 
-Why the Russians so upset? Why are we moving towards some kind of conflict?
-俄罗斯人为什么这么生气？ 为什么我们要走向某种冲突？
+**评论：**VV116，千金藤素，这是要开始放解药了吗？
 
-There’s one reason, over a number of different administrations
-有一个原因，在许多不同的政府
+### 环球网：俄罗斯驻华大使：俄拟派五百人庞大代表团参加北京冬奥会
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/75590C3C-F3AB-4115-AD3B-A9910F384093.jpg?asset_id=F3C012C8-CE59-4E89-ABFA-5C47223AE534&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/75590C3C-F3AB-4115-AD3B-A9910F384093.jpg?asset_id=F3C012C8-CE59-4E89-ABFA-5C47223AE534&amp;size=1024)
+*俄罗斯驻华大使杰尼索夫25日举行年度记者会（图片来源：环球时报）*
 
-the United States government has pushed Ukraine to join NATO the North Atlantic Treaty Organization
-美国政府推动乌克兰加入北大西洋公约组织
+**评论：**中共利用盗国盗民的手段，开着国家机器，向世界输出经济超限战而已，论反人类、种族灭绝，中共世界第一，远超世界所有国家。没有中共的中国，才是为世界贡献最大的中国。
 
-Imagine if Mexico fell under the direct military control of China
-想象一下，如果墨西哥落入中共国的直接军事控制之下
+### 新浪新闻：永远无法消灭新冠病毒？世卫又曝坏消息，全球目光火速转向中国
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/E43D82B3-02C3-4E55-85AA-A1C7B6C9C7A4.jpg?asset_id=9C2E1A36-ACCA-4C11-98C6-0D947D5EC365&amp;size=750)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/E43D82B3-02C3-4E55-85AA-A1C7B6C9C7A4.jpg?asset_id=9C2E1A36-ACCA-4C11-98C6-0D947D5EC365&amp;size=750)
+*世卫组织传出坏消息，很难消灭新冠病毒（图片来源：人民微看点）*
 
-We won’t see that as a threat, of course, there’d be no reason for that
-我们不会将其视为威胁，当然，没有理由这样做
+**评论：**中共病毒和毒疫苗杀人计划已经在世人面前执行了两年了，死了上百上千万人了，多少家庭因此破碎，毒疫苗后遗症今年也会爆发，中共还在变相强推毒疫苗，有解药却不给吃，共产主义的邪恶独裁一定要被消灭，不然地球人谁都不安全
 
-Well, that’s how Russia views NATO control of Ukraine
-好吧，这就是俄罗斯如何看待北约对乌克兰的控制
+### 网易新闻：公安部：全国户籍新生儿887.3万，比统计局公布的数据少174.7万
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/8BD02FD8-9D21-416E-861D-ABC5A85EC582.jpg?asset_id=BC25F123-C8D4-44F3-9FA8-20D358C2B959&amp;size=650)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/8BD02FD8-9D21-416E-861D-ABC5A85EC582.jpg?asset_id=BC25F123-C8D4-44F3-9FA8-20D358C2B959&amp;size=650)
+*（图片来源：网络）*
 
-and why wouldn’t they?
-他们为什么不呢？
+**评论：**中共统计局的数据从来就没有真实过，中共现在面临韭菜出生太少了，是因为中共残忍发指的计划生育把一代人毁了，又枉死了四亿婴灵，这笔账中共一定要偿还
 
-We don’t get anything out of pushing Ukraine into NATO
-将乌克兰推入北约对我们没有任何好处
+### 澎湃：冬奥·倒计时10天｜相隔14年，奥运花坛见证“双奥”荣光
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/7A258DA3-B182-41D2-AD5F-C8290B6AF4D5.jpg?asset_id=13E9E0B6-2F1A-47A7-B84F-B344C8AD9A5C&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/7A258DA3-B182-41D2-AD5F-C8290B6AF4D5.jpg?asset_id=13E9E0B6-2F1A-47A7-B84F-B344C8AD9A5C&amp;size=1024)
+*2022年1月20日，北京迎来2022年的第一场雪。天安门城楼前，“精彩冬奥”主题花坛已经布置完成，雪中的中国结与雪花相映成景，为冰雪之约营造浓郁氛围。（图片来源：张锁庆）*
 
-So why are we doing this?
-那么我们为什么要这样做呢？
+**评论：**CCP全球撒币勾兑换来的冬奥会不利国也未见利民，为的只是习太阳的面子，为的是向世界展示中共“治国有方”的伟光范儿。北京冬奥的“成功”举办将是中国人民乃至世界人民的耻辱。
 
-Clint Ehrlich is a Russia policy researcher
-克林特·埃利希是俄罗斯政策研究员
+### 澎湃：我国自主研发的口服新冠抗病毒药预计下半年进入临床
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/D04F2639-D904-4C8B-BC9F-F8CCCB03F4F6.jpg?asset_id=C0C3356B-13DF-4CC2-8241-F77BCCA13F10&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/D04F2639-D904-4C8B-BC9F-F8CCCB03F4F6.jpg?asset_id=C0C3356B-13DF-4CC2-8241-F77BCCA13F10&amp;size=1024)
+*（图片来源：视觉中国）*
 
-He understands this issue quite well
-他非常了解这个问题
+**评论：**当新冠病毒的起源都不能得到追溯和确认，疫苗是怎么来的？当疫苗的成分和副作用不能广而告之还让接受疫苗的民众自己负责，研制新形疫苗的意义何在？任何强制接种疫苗的行为都是在杀人，任何督促和绑架别人去接种疫苗的人都是从犯。
 
-And we’re happy to have him join us this evening
-我们很高兴他今晚加入我们
+### 澎湃：今年对台工作会议在京召开：牢牢把握两岸关系主导权主动权
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/7108BF0C-40E9-450B-B0C9-96D597E587F7.png?asset_id=4AFDA1E1-909E-4092-99EE-DAB1A034E9CC&amp;size=900)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/7108BF0C-40E9-450B-B0C9-96D597E587F7.png?asset_id=4AFDA1E1-909E-4092-99EE-DAB1A034E9CC&amp;size=900)
+*1月25日，2022年对台工作会议在北京举行。中共中央政治局常委、全国政协主席汪洋出席会议并讲话。（图片来源：新华社记者 刘彬 摄）*
 
-Clint, thanks so much for coming on
-克林特，非常感谢你的到来
+**评论：**请问中共是要主动放弃，主动和解还是要主动进攻？
 
-So is it too simplistic to say the core dispute here is over Ukraine joining NATO?
-那么说这里的核心争议是乌克兰加入北约是否过于简单化了？
+### 新浪：中国恒大：公司及顾问团队已与境外债权人展开积极对话
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/DD71C2B9-C5E1-4177-834B-87320B39227B.jpg?asset_id=0DBB357D-A7EA-4897-8BAE-D52771A06D39&amp;size=680)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/DD71C2B9-C5E1-4177-834B-87320B39227B.jpg?asset_id=0DBB357D-A7EA-4897-8BAE-D52771A06D39&amp;size=680)
+*（图片来源：AP – Ng Han Guan）*
 
-Clint Ehrlich (Russia Policy Researcher)
-克林特·埃利希(俄罗斯政策研究员)
+**评论：**与境外债权人展开积极对话，没钱的对话就是在耍赖，整那么多词干什么
 
-I would say that that’s Russia’s perspective
-我会说这是俄罗斯的观点
+### 澎湃：公安部肃清孙力军政治团伙流毒影响专项工作领导小组成立
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/3120B2AA-AA37-4E75-972B-BB1602D33D53.png?asset_id=24A583A0-B7BE-4905-8F68-C7FCDE35A50A&amp;size=750)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/3120B2AA-AA37-4E75-972B-BB1602D33D53.png?asset_id=24A583A0-B7BE-4905-8F68-C7FCDE35A50A&amp;size=750)
+*（图片来源：《零容忍》第一集截图）*
 
-But here we have people who are arguing that even if the Russians don’t invade Ukraine
-但是在这里我们有人在争论即使俄罗斯人不入侵乌克兰
+**评论：**肃清孙力军政治团伙，吾皇要反扑吗
 
-that we need to invade and kick the Russians out of Crimea
-我们也需要把俄罗斯人赶出克里米亚
+### 网易新闻：经济学者马光远微博被禁言
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/76D23F47-68A2-435C-9C61-51768BF5B250.png?asset_id=A7225053-6D74-4D0A-AD36-E5A4C076E5F2&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/76D23F47-68A2-435C-9C61-51768BF5B250.png?asset_id=A7225053-6D74-4D0A-AD36-E5A4C076E5F2&amp;size=1024)
+*（图片来源：马光远微博截图）*
 
-That was an op ed from a senior Obama administration official this week
-这是本周奥巴马政府高级官员的一篇评论
+**评论：**中共国又一位百万粉丝的经济领域大V被微博禁言，中共国没有言论自由，想封谁就封谁，中共国没有法，行政命令大于法律，所以让中共这些老杂毛太无法无天了
 
-And so I would say that it’s even simpler than that
-所以我会说它比这更简单
+### 杭州日报：最新发声！张文宏：做好疫情暴增10倍如何应对的准备
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/FDC9D6F2-0095-4697-AD53-5E8277EE89ED.jpg?asset_id=A4D639B3-18B6-4D04-A3F9-73BF47F10BB3&amp;size=677)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/FDC9D6F2-0095-4697-AD53-5E8277EE89ED.jpg?asset_id=A4D639B3-18B6-4D04-A3F9-73BF47F10BB3&amp;size=677)
+*张文宏（图片来源：网络）*
 
-We’re dealing with our warmongers
-我们正在与我们的战争贩子打交道
+**评论：**中共病毒在国内失控了，到处封城，封城能封住病毒吗，清零政策没有任何实际意义，就是折腾百姓，损害经济，习大神冬奥会正头疼，还要面临“甜蜜蜜”运动，爆料革命太刺激老杂毛了
 
-unserious people whose policy prescriptions could have deadly serious consequences
-不严肃的人的政策处方可能会产生致命的严重后果
+### 澎湃：去年11省GDP增速超全国水平，30省敲定今年目标
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/A15FF4AF-5844-43C3-877C-F9F71BE0E18D.png?asset_id=0EA4215D-8A91-491D-82FB-351F145D7638&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/A15FF4AF-5844-43C3-877C-F9F71BE0E18D.png?asset_id=0EA4215D-8A91-491D-82FB-351F145D7638&amp;size=1024)
+各省2021年GDP 注：据西藏自治区政府工作报告，2021年西藏GDP突破2000亿元大关，据新疆维吾尔自治区政府工作报告，2021年新疆GDP1.6万亿元，据云南政府工作报告，云南2021年完成GDP2.71万亿元。 （图片来源：彭艳秋制图）
 
-Tucker Carlson
-塔克·卡尔森
+**评论：**报喜不报忧的中共党媒自然不会写2021年全国21个省自治区直辖市的GDP增速低于全国水平，更不会写去年整个中国的三驾马车集体疲软经济下滑严重，当然也不会写三大产业危机重重，金融地产面临奔溃进而随时能将全国乃至世界经济拖入金融危机的黑洞。
 
-Well they’re deeply unserious people
-虽然他们是非常不认真的人
+### 网易：中国足球离奇事件：徐明，非正常死亡
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/6D9B0105-80CF-4A57-848A-72278126AC9F.jpg?asset_id=E9DC2170-6CBA-4865-8AE3-F0AB8F849E0B&amp;size=650)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/6D9B0105-80CF-4A57-848A-72278126AC9F.jpg?asset_id=E9DC2170-6CBA-4865-8AE3-F0AB8F849E0B&amp;size=650)
+*2015年12月4日，徐明在狱中身故（图片来源：网络）*
 
-They’re also people with a long and publicly available track record of failure of conflicts
-他们也是长期公开的冲突失败记录的人
+**评论：**2015年的事儿挖出来，郝董的意思说里面故事很多，内斗很激烈
 
-that have diminished the United States materially over the last 20 years
-在过去的 20 年里大大削弱了美国
+### BBC：北京冬奥：宣布外交抵制和政要参加的国家分别都有谁
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/331E1316-28FA-4927-82AA-CC32AF982176.jpg?asset_id=2666933C-F566-487C-BC69-3F531AF6A366&amp;size=640)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/331E1316-28FA-4927-82AA-CC32AF982176.jpg?asset_id=2666933C-F566-487C-BC69-3F531AF6A366&amp;size=640)
+*北京冬奥会将于2月4日至2月20日举行。（图片来源：GETTY IMAGES）*
 
-so why did they get a say in this? They’re failures
-那么他们为什么在这方面有发言权呢？ 他们是失败者
+**评论：**宣布抵制中共冬奥会的是全球爱好自由和平的人民！人家抵制的是反人类、种族灭绝的恐怖组织→中国共产党！
 
-Clint Ehrlich
-克林特·埃利希
+### 华尔街日报:美国航母演习之后，中国紧急出动战机飞往台湾附近
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/F4C60E8F-C078-4C26-B3A9-22628BD9CD9F.jpg?asset_id=2473F522-F755-4804-9BC9-888F97E5D7AF&amp;size=860)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/F4C60E8F-C078-4C26-B3A9-22628BD9CD9F.jpg?asset_id=2473F522-F755-4804-9BC9-888F97E5D7AF&amp;size=860)
+*随着地区军事紧张局势加剧，中国派遣歼-16战斗机靠近台湾空域（图片来源：AP）*
 
-They like to portray themselves as cold warriors
-他们喜欢把自己描绘成冷酷的战士
+**评论：**中共是在美日军演结束之后，才去靠近台湾附近空域。这样看来，中共就是纸老虎。
 
-but the architect of America strategy during the Cold War
-但冷战时期美国战略的建筑师
+### 美国之音:荷兰一大学人权中心接受中方资助 再次引发对中共兜售影响力的担忧
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/E98A1D35-5C13-4556-9284-EBFEFFDE57E0.jpg?asset_id=AB6F2DD6-195A-40CF-80E8-0526A806077A&amp;size=408)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/E98A1D35-5C13-4556-9284-EBFEFFDE57E0.jpg?asset_id=AB6F2DD6-195A-40CF-80E8-0526A806077A&amp;size=408)
+*资料照片：阿姆斯特丹街头 2020年12月15日（图片来源：路透社）*
 
-George Kennan warned that NATO expansion could lead us towards war with Russia
-乔治·凯南警告说，北约扩张可能导致我们与俄罗斯开战
+**评论：**中共在全球收买渗透的“蓝金黄”计划已经失去作用，荷兰这所大学的反制措施就是最好的体现。
 
-and he’s been vindicated
-他被证明是正确的
+### 日本经济新闻：丰田日本国内11家工厂将延长停产
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/C0DC8A61-7F7C-4E07-B251-4FC687D02FDA.png?asset_id=CB7E75BB-11CF-454F-8536-B75C2C8940BD&amp;size=600)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/C0DC8A61-7F7C-4E07-B251-4FC687D02FDA.png?asset_id=CB7E75BB-11CF-454F-8536-B75C2C8940BD&amp;size=600)
+*停产中的丰田元町工厂／爱知县丰田市（图片来源：日经中文网）*
 
-We’re now on the precipice of that kind of conflict
-我们现在正处于这种冲突的边缘
+**评论：**受中共病毒影响，丰田的日本国内11家工厂的19条生产线的停产将延长到1月26日。供货商零部件厂商因疫情蔓延，部分零部件的供应停滞。
 
-And so it’s a great question
-所以这是一个很好的问题
+### 纽约时报：“这里就像人间地狱”：中资轮胎厂在塞尔维亚引发愤怒
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/E9A236F9-B7B3-46F3-B24D-F413516630D0.jpg?asset_id=33D18331-C4F5-47EA-85EA-9DA773AC5D92&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/E9A236F9-B7B3-46F3-B24D-F413516630D0.jpg?asset_id=33D18331-C4F5-47EA-85EA-9DA773AC5D92&amp;size=1024)
+*塞尔维亚兹雷尼亚宁的玲珑轮胎工厂工地。越南工人说，他们在工地上面临“糟糕和危险”的条件。 （图片来源：MARKO RISOVIC FOR THE NEW YORK TIMES）*
 
-Why is it that we should listen to these people?
-为什么我们要听这些人的？
+**评论：**中共国的企业不仅与中共勾兑，也同时蓝金黄当地政府，输出邪恶，无视当地法律引起矛盾。
 
-Tucker Carlson
-塔克·卡尔森
+### 纽约时报：复制北京防疫策略，清零政策重创香港经济
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/6BA5F3F3-2226-4CFB-84FF-DAAC8CD5A7C1.jpg?asset_id=49E116EE-B1F3-4C49-A683-2C9FFC0C6965&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/6BA5F3F3-2226-4CFB-84FF-DAAC8CD5A7C1.jpg?asset_id=49E116EE-B1F3-4C49-A683-2C9FFC0C6965&amp;size=1024)
+*关门歇业的香港餐馆，几轮酒吧关闭使这个城市充满活力的夜生活变得暗淡无光。 （图片来源：BILLY H.C. KWOK FOR THE NEW YORK TIMES）*
 
-Well, I couldn’t agree more
-好吧，我完全同意
+**评论：**中共统治下的香港政府已经完全是中共的一条狗，越走越远。
 
-I mean, if Max Buddhist is still making your foreign policy
-我的意思是，如果最高领导人还在制定你的外交政策
+### 法广：中国房地产企业世茂集团抛售100亿欧元资产
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/6AA75035-CB77-4D6C-BE47-1B8A11769FC5.jpg?asset_id=56199000-D656-4C97-B2BE-D4122E4BF40B&amp;size=1000)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/6AA75035-CB77-4D6C-BE47-1B8A11769FC5.jpg?asset_id=56199000-D656-4C97-B2BE-D4122E4BF40B&amp;size=1000)
+*2020年中国政府收紧对房地产企业的控制，一些房地产企业出现债务违约，如恒大和世茂等房地产集团面临困境 （图片来源：视觉中国）*
 
-it’s kind of your fault, I would say
-这是你的错，我会说
+**评论：**又有一家中共国房地产要爆雷。
 
-but and this is your question, is there something I’m missing?
-但这是你的问题，我有什么遗漏吗？
+### 法广：北德广播电台：国际奥委会扶持中国损害人权
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/0702BE1C-3CB9-408E-8913-7BBA25EAABFA.jpg?asset_id=948D10EC-573F-4461-ABF3-6F02B55D0B1E&amp;size=680)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/0702BE1C-3CB9-408E-8913-7BBA25EAABFA.jpg?asset_id=948D10EC-573F-4461-ABF3-6F02B55D0B1E&amp;size=680)
+*2022年1月22日，北京，一名妇女戴着北京2022年冬奥会的帽子，在主媒体中心内行走。 （图片来源：AP – David J. Phillip）*
 
-Is there some compelling American interest that would be served by having Ukraine in NATO?
-让乌克兰加入北约是否会带来一些令人信服的美国利益？
+**评论：**北德广播电台批评国际奥委会玩肮脏的游戏，对中共国的种族灭绝与强迫劳动视而不见。
 
-Clint Ehrlich
-克林特·埃利希
+### HNK中文：日本全国25日当日新增确诊超6万例 创新高
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/A2D8CDA0-E653-4418-A48F-412CDDAFDDF6.jpg?asset_id=B94AAC3D-7C3D-421B-B522-292B04C89F58&amp;size=640)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/A2D8CDA0-E653-4418-A48F-412CDDAFDDF6.jpg?asset_id=B94AAC3D-7C3D-421B-B522-292B04C89F58&amp;size=640)
+*（图片来源：NHK）*
 
-No, the deeper irony is
-不，更具有讽刺意味的是
+**评论：**新增新冠确诊病例首次超过了6万例，刷新了全国单日新增确诊病例的最高纪录。病毒真相大白天下之日，纳粹党将死的如何难看
 
-that NATO doesn’t even want Ukraine that it’s a corrupt country
-北约甚至不要乌克兰加入，它是一个腐败的国家
+### 美国之音：美国或禁阿里巴巴？分析人士:“阿里云”难逃中共资安控制
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/CC34AA1A-FC92-437C-ACFA-B963DE53E5C0.jpg?asset_id=1AF10836-F76D-42A5-9E18-6AF1A9636390&amp;size=408)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/CC34AA1A-FC92-437C-ACFA-B963DE53E5C0.jpg?asset_id=1AF10836-F76D-42A5-9E18-6AF1A9636390&amp;size=408)
+*资料照：中国浙江省杭州市阿里巴巴总部的标识。（图片来源：路透社）*
 
-It’s more of a liability than it would be a military asset
-它更像是一种责任，而不是一种军事资产
+**评论：**看来马云的事儿还没完
 
-and the people who are pushing this simply argued that needs to happen
-推动这个的人只是认为需要发生
+***编辑：【英国伦敦喜庄园编辑部】***
 
-because Russia shouldn’t have a veto over who’s in NATO
-因为俄罗斯不应该对谁在北约拥有否决权
+*收集：redsparrow*，*Cindy，安公子偷窥文明，文风-NFSC | 校对：Cindy | PAGE：彼岸花*
 
-In other words, even when it’s in our mutual interest to not have a stake in NATO
-换句话说，即使是在不与北约有利害关系的情况下，也符合我们的共同利益
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-we have to insist that there’ll be added just spite the Russians
-我们必须坚持认为会有更多的人加入，只是为了报复俄罗斯人
 
-Tucker Carlson
-塔克·卡尔森
-
-Look, I want to take people seriously all people
-看，我想认真对待所有人
-
-even people I disagree with maybe
-即使是我不同意的人
-
-especially people who disagree but it seems nuts
-也许尤其是那些不同意但看起来很疯狂的人
-
-Is that your assessment?
-这是你的评价吗？
-
-Clint Ehrlich
-克林特·埃利希
-
-Tucker, It’s not just nuts. It’s it’s dangerous
-塔克，这不仅仅是疯了，这很危险
-
-I mean, we’re sleepwalking towards conflict with a country
-我的意思是，我们正在梦游走向与一个国家的冲突
-
-that have more than 4000 nuclear weapons
-它拥有4000多枚核武器
-
-that the Russians are talking about potentially deploying Strategic Forces to Cuba
-俄罗斯人正在谈论可能向古巴部署战略部队
-
-and Venezuela and a repeat of the Cuban Missile Crisis
-和委内瑞拉以及古巴导弹危机的重演
-
-and so it’s just shocking that people are not more upset about this
-所以令人震惊的是人们并没有对此感到更加不安
-
-because the lives of Americans are being threatened over a situation where we have no vital strategic national interest
-因为在我们没有重要的国家战略利益的情况下，美国人的生命正受到威胁
-
-Tucker Carlson
-塔克·卡尔森
-
-So since 1945
-所以自1945年以来
-
-we really only fought wars against poor disorganized third world countries
-我们真的只与贫穷、无组织的第三世界国家作战
-
-North Korea, Vietnam, Iraq, Afghanistan, Syria
-朝鲜、越南、伊拉克、阿富汗、叙利亚
-
-Do you think that that’s convinced a lot of our policymakers
-你是否认为这让我们的许多政策制定者相信
-
-that it’s like, easy to fight worse?
-就像是很容易与更糟的打仗？
-
-Clint Ehrlich
-克林特·埃利希
-
-I think that it’s convinced them of that
-我认为这让他们相信了这一点
-
-And also we haven’t had war inside our country
-而且我们国内还没有发生过战争
-
-the Russians have they understand the reality of war
-俄罗斯人有过，他们了解战争的现实
-
-and what it’s like to lose millions of people in a conflict
-以及在冲突中失去数百万人是什么感觉
-
-and somehow our policymakers
-而且不知何故，我们的政策制定者
-
-just imagine that war can never reach us
-只是想象一下战争永远无法伤害我们
-
-And the reality is that you and I are in danger from this conflict, Tucker
-现实是你和我在这场冲突中处于危险之中，塔克
-
-the people that we love are in danger
-我们所爱的人处于危险之中
-
-And it’s just incredibly disturbing that this is happening
-令人难以置信的是，这种情况正在发生
-
-Tucker Carlson
-塔克·卡尔森
-
-It really is, Clint are like I really appreciate your perspective tonight and your clarity
-真的是，克林特就像我真的很感谢你今晚的观点和你的澄清
-
-Thank you very much
-非常感谢你
-
-Clint Ehrlich
-克林特·埃利希
-
-Thank you, Tucker
-谢谢你，塔克
-
-* * *
-
-Date:01/22/2022
-原视频标题: America is moving towards war with Russia, and the media is encouraging it.
-美国正在走向与俄罗斯的战争，而媒体正在鼓励它
-原视频日期：2022/01/19
-原视频链接: [**https://twitter.com/tuckercarlson/status/1483625516351565827?s=24**](https://twitter.com/tuckercarlson/status/1483625516351565827?s=24)
-任务编号：KE363（3537）
-视频时间段 : 0:00-4:41
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场- 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+（世界协调时）部分信息收集于网络世界的各方，请自行甄别
+[![](https://express.adobe.com/page/u2aI3Jqb2fepI/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/u2aI3Jqb2fepI/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
