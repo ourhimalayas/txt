@@ -2,36 +2,23 @@
 ---
 
 
-## 未接种者感染病毒后，重症及死亡率远远小于完全接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914099/)
+## 1月26日郭先生盖特：天在灭共，全球在灭共
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1914243/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒 23 日报道，一份由苏格兰政府发布的最新数据显示，针对中共病毒疫苗的研究发现，未接种者感染病毒后，住院及死亡率远远小于完全接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-48.jpg)
-根据数据，接种两针疫苗后的感染率为每10万人中有865.79人，相比未接种组的412.77人，感染风险提高了2.1倍。另外，接种组的死亡率也比未接种组高出50%。
+撰稿：追着曙光跑
 
-这一结论与此前英国的研究一致，证明连续接种中共病毒疫苗后，非但没有任何免疫抗疫的作用，还会对人体的抗疫能力，以及染疫后的重症及死亡率有负面影响。
+1月26日，郭先生在盖特视频指出，美国这次授权撤离跟中共病毒没有半点关系，撤离事宜已经进行将近两个月了，撤出后就不会再回去，除非没有共产党了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-00.29.40.jpeg)
+在六四事件、南海军机相撞事件、去年香港反送中事件、以及在去年2021年疫情最严重的时候都没有撤馆，现在授权撤馆，其背后就是给下一步行动提交合法行动的支撑。
 
-此外，苏格兰卫生部也被发现有篡改数据的行为，据报道，卫生部门将接种疫苗后21天内，测试阳性的病例全部归入“未接种”组，人为提高了未接种组的感染率。
+到目前为止，拜登总统和国务卿布林肯都没有对此发表讲话，即使讲话也会用外交辞令轻描淡写带过，此次撤离大行动已经结束。接下来会有一个个对中共打击更大的行动都会接踵而来。
 
-参考链接：
-1) .[FALLING APART: Latest Health Data From Scotland Mirrors the UK – Unvaccinated Have Lower Covid-19 Case, Hospitalization, AND DEATH RATES Than the ‘Fully Vaxxed’](https://www.thegatewaypundit.com/2022/01/falling-apart-latest-health-data-scotland-mirrors-uk-unvaccinated-lower-covid-19-case-hospitalization-death-rates-fully-vaxxed/)
-2) . [Public Health Scotland COVID-19 & Winter Statistical Repor](https://publichealthscotland.scot/media/11223/22-01-19-covid19-winter_publication_report.pdf)
+郭先生继续爆出两件跟美国此次撤离有关的事件。一是在昨天直播前有大概20个国家也要准备撤离，撤离后也不打算再回到中共国了。二是在昨天直播之后，在中共国的首都大使馆区，有40多个国家闹着不允许中共对他们进行检测和隔离，要是中共敢这样做，这些国家就撤离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+最后，郭先生指出，天在灭共，全球在灭共！
 
-总编: 飞虹
-编辑：天滅中共
-校正/发稿：Fei797
+信息来源：[MILES GUO on GETTR: 1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友…](https://gettr.com/post/pqo5pu3741)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

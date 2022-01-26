@@ -2,25 +2,25 @@
 ---
 
 
-## 上海女子被地铁屏蔽门夹住身亡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914145/)
+## 美派「杜鲁门号」参加北约军演 8500士兵待命驰援
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914267/)
 
-作者: 纽约香草山教育部 Naughty(文行)
+作者: 台湾宝岛农场dobi
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
-1月22日下午4点30左右，上海地铁15号线祁安路站发生安全事故。一名老年女乘客在下车时，被屏蔽门夹住无法脱困，现场工作人员操作失误，在列车启动后才去按下紧急制动开关，导致该乘客严重受伤，不治身亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/65ae-6fbd5d3aa66b4b7686e87e8f159ed1b0-1.png)截图源自网络
-上海地铁15号线为全自动线路，列车采用无人驾驶技术，于2021年1月23日开通试运营。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+据台媒报导，目前国际正聚焦在乌俄是否会爆发大战。就连英国首相约翰逊都坦承，乌克兰情势并不乐观，甚至警告俄罗斯，任何冲突都可能演变成新车臣。而近日美国总统拜登则与欧洲领袖进行密谈，表示有信心西方能连手抗俄。
 
-该事故直至25日才被中共官媒曝光，立即登上热搜，引发广泛关注。
+西方盟国也开始动作，北约准备调派部队到东欧，美国则有8500士兵待命驰援。另外代号「海王星打击」的北约联合军演在地中海登场，美军也派出「杜鲁门号」航母战斗群参加。该报导指出，此次联合军演行动被解读为剑指俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220125153303-da5bb7f9.jpeg)图片源自网络
+美国五角大厦表示，随时奉北约之令驰援，因为俄罗斯12万大兵在乌克兰边界迟迟不退。
 
-墙内网民纷纷发表评论，有人抨击中共上海政府鼓吹的无人驾驶技术无视安全保障；有人指责上海地铁管理失职导致事故频发；甚至有人爆料称地铁15号线站台站务员是外包的无证上岗人员。
+欧盟执委会主席则加码宣布，将资金支援乌克兰12亿欧元。不过目前在日内瓦的欧盟外长会上，各国对于将如何制裁俄罗斯，目前仍是意见分歧。
 
-据报，上海地铁2007年曾出现过类似事故，2007年7月15日下午3时34分，上海地铁一号线站台上，一名男乘客上车时未能挤进车厢，被夹在屏蔽门和已开动列车之间，坠落隧道当场死亡。
+有专家更直指，因俄罗斯是欧洲能源主要来源国，因此更凸显出乌俄危机国际局势的现实面，因此在决定是否出手制裁前，各国不得不权衡利益得失。
 
-**参考链接**: [https://baijiahao.baidu.com/s?id=1722893321486000057&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1722893321486000057&amp;wfr=spider&amp;for=pc) [https://www.epochtimes.com/gb/22/1/25/n13527373.htm](https://www.epochtimes.com/gb/22/1/25/n13527373.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+**新闻来源**: [https://tw.news.yahoo.com/%E7%BE%8E%E6%B4%BE-%E6%9D%9C%E9%AD%AF%E9%96%80%E8%99%9F-%E5%8F%83%E5%8A%A0%E5%8C%97%E7%B4%84%E8%BB%8D%E6%BC%94-8500%E5%A3%AB%E5%85%B5%E5%BE%85%E5%91%BD%E9%A6%B3%E6%8F%B4-142231048.html](https://tw.news.yahoo.com/%E7%BE%8E%E6%B4%BE-%E6%9D%9C%E9%AD%AF%E9%96%80%E8%99%9F-%E5%8F%83%E5%8A%A0%E5%8C%97%E7%B4%84%E8%BB%8D%E6%BC%94-8500%E5%A3%AB%E5%85%B5%E5%BE%85%E5%91%BD%E9%A6%B3%E6%8F%B4-142231048.html%E3%80%8B)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
 总编: Irene木木
 
 编辑/校对/发稿: 卡夫卡的甲壳虫

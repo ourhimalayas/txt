@@ -2,39 +2,48 @@
 ---
 
 
-## 有声|韩国的中共病毒感染、疫苗接种与人口变动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914060/)
+## 台湾遭遇自10月以来最大规模中共国空军骚扰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914203/)
 
-配音：香草山农场 – 纳米
+作者：纽约香草山教育部—Naughty(文行)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-2021年，韩国中共病毒的感染人数达到了六十三万五千两百五十三人人，染疫死亡者也有5,625人。2020年，这两个数据分别是感染6万零7百4十人和染疫死亡900人。
 
-另外，根据韩国疾病管理厅给出的数据，截至2021年，因疫苗接种死亡的案例是1,340例，在2022年这一数据将不再更新，因此没有最新的数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
-与此同时，疫苗二次接种率已超过83%的韩国，2021年总人口数较2020年减少了19万零2百一十4人，这无疑是死亡人口的激增和出生人口大量减少造成的。
 
-而最新的3针疫苗接种情况显示，绝大多数民众还处在被蒙蔽中，推动疫苗政策的执政党很有可能大概率维持现有政策。即将到来的2022年3月新一届总统选举，给原本复杂的形势增添了更大的不确定性，整体局势不容乐观。
 
-文字版原文：[韩国的中共病毒感染、疫苗接种与人口变动](https://gnews.org/zh-hans/1908545/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+周日（2022年1月23日），台湾报道称，台湾空军驱逐了39架飞向台湾岛的中共国空军飞机，其中包括 34 架战机、4 架电子战飞机和 1 架轰炸机。这是自去年10月以来中共国空军对台湾防区的最大规模入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-40.jpg)
+据路透社报道，台湾国防部表示，台湾战机迅速采取行动对中共军机进行驱离。 中共国一直声称台湾是自己的领土，并长期在该岛附近空域执行威胁任务。 台湾表示，从去年10月1日开始，共有 148 架中共国空军飞机飞过台湾防空区。
+
+参考来源：
+
+[Taiwan reports largest Chinese air force incursion since October](https://thehill.com/policy/international/591000-taiwan-reports-largest-chinese-air-force-incursion-since-october)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+编辑/校对/发稿：兰兰
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+
+
 
  
 

@@ -2,34 +2,38 @@
 ---
 
 
-## 加拿大商业团体敦促联邦政府撤销对跨境卡车司机的疫苗强制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1913992/)
+## 中共病毒疫情下 儿童受教权及健康蒙受了无法弥补的损失
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914172/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-4-1.jpg)图片来源：CTV
-根据《Global News》1月24 日报道，加拿大商业领袖们正在敦促渥太华放弃对跨境卡车司机的疫苗强制，以缓解与美国之间拥堵的供应链。
+作者：纽约香草山 医疗部- 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月24日，联合国儿童基金会表示，在中共病毒疫情下，全球超过6.16亿的儿童，仍无法恢复正常的学习课程。此种在儿童成长期间学习时间上的损失，几乎很难弥补。
 
-总理贾斯汀-特鲁多（Justin Trudeau）周一仍然力挺这项疫苗强制，认为这是保持供应链开放的必要步骤，他认为COVID-19是加拿大经济的最大风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-8.jpeg)
 
-但是，加拿大商会和加拿大制造业联盟都在发出声明，努力敦促联邦政府对这项疫苗强制政策作出让步。
+在中低收入国家，因为学校关闭，很多儿童失去了学习的机会。据调查，有多达70%的10岁以上儿童无法阅读或理解简单的文字。疫情发生前，这个比例是53%。
 
-商会主席Perrin Beatty说：”到目前为止，政府一直认为卡车司机提供的服务至关重要，即使在最严重的大流行病浪潮中也应保持供应链的正常运转。“
+而在全世界，有数以百万计的儿童，除了被剥夺学习基本技能的机会以外，学习中断也影响了他们的心理健康。
 
-Beatty补充说，政府还没有拿出统计数据，表明卡车司机是加拿大COVID-19感染的主要来源。
+另外，学校停课，儿童无法上学，使全球超过3.7亿的儿童无法经由上学来获得学校提供的餐点，这会让某些孩子失去唯一可获得食物与每日营养的可靠来源。
 
-卫生部长Jean-Yves Duclos和首席公共卫生官Theresa Tam博士上周在下议院卫生委员会被问及时，都未能提供任何有关COVID-19和卡车司机的数据。
+除此之外，有些国家正在对儿童进行有伤害性的中共疫苗注射。教育学习延后，还有机会在日后追补回来。如果因为中共疫苗的注射失去健康，或许就永远无法挽回。这是戕害儿童一生健康的无智举动。
 
-Beatty表示：”如果政府有这样的数据，并且一直担心他们构成特别的威胁，那么早就应该有一个专门针对他们的教育计划，他们可以与各省和行业合作，在加拿大各地的边境口岸和卡车站附近设立流动疫苗接种诊所。我们所要求的是，在供应链面临严重压力的时候，推迟实施疫苗强制，用这段时间鼓励疫苗接种。”
+参考链接：[疫情導致學校關閉 聯合國：兒童損失幾乎無法彌補](https://www.cna.com.tw/news/aopl/202201250042.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-越来越多的数据表明COVID疫苗有害，当疫苗灾难大规模显现时，那些已经接种疫苗的卡车司机由于疫苗副作用才会给供应链带来打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-而总理特鲁多将如何面对来自四面八方的卡车司机的抗议，他将如何收场？
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
 
-原文链接：
-[https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/](https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/)
-
-编辑，发稿 Spirit
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

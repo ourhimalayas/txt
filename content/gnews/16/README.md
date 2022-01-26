@@ -2,39 +2,71 @@
 ---
 
 
-## 抗议疫苗暴政，欧盟首都布鲁塞尔爆发最大规模示威抗议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1913917/)
+## 【玫瑰看新闻】每日快讯2021年1月23日（新西兰时间）
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1914093/)
 
-作者：台湾宝岛农场 – dobi、纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒 24 日报道，五万多来自法国、德国等多个欧洲国家的民众，上周日聚集在欧盟首都比利时，针对最近越来越苛刻的疫苗强制措施，举行了大规模的示威活动。比利时当局派出多组防暴警察，出动水炮车及催泪瓦斯驱散和平抗议的民众，引起警民冲突，现场一度相当混乱。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-93.jpg)
-针对该事件，比利时首相在社交平台发文指，“每个人都有发表意见的权力，但永远不接受示威者不加选择的暴力行为。”
+**1.**美日领导人同意加强安全和经济合作共同应对中共威胁
+![](https://assets.gnews.org/wp-content/uploads/2022/01/玫瑰看新闻1.png)
+路透社**1**月**21**日报道** **，** **美国总统拜登和日本首相岸田文雄周五举行线上会晤，同意在紧迫的经济和安全问题上加强合作，这些问题包括中共国、朝鲜导弹以及俄罗斯对乌克兰的威胁。**
 
-这是布鲁塞尔近两个月内发生的第五次反疫苗暴政的示威抗议，也是迄今为止规模最大的一次。
+**此前，在本月举行的**”**二加二**”**讨论中，这两个长期盟友的防卫和外交最高官员表达了对中共实力日益增长的强烈担忧，并誓言如果有必要，将对破坏印度**–**太平洋地区稳定的活动做出回应。**
+**白宫表示，拜登欢迎岸田文雄增加国防开支的决定。声明称，双方强调了加强网络安全的重要性，并决心**”**回击**”**中共试图改变东海和南海现状的企图。**
 
-随着奥密克戎毒株的传播，欧洲多国政府近期屡次收紧防疫措施，为了鼓动民众尽快接种中共病毒疫苗加强剂，部分国家的政府陆续推出更严厉的强制措施和疫苗通行证政策，引发民众的极度不满。
+**两位领导人就中共进行了**”**非常深入的讨论**”**，对中共国在贸易和其他领域对邻国的威胁和**”**掠夺性**”**措施表达了共同担忧。岸田文雄特别担心中共的核武库扩充。
 
-除比利时以外，巴黎、雅典、斯德哥尔摩、伦敦等在内的欧洲其他国家当日也同时爆发了类似的抗议活动。
+**2.**香港录得逾百宗初步阳性个案并出现**Omicron“**几何式爆发**”**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/玫瑰看新闻12.jpg)
+1月22日 ，香港周六公布本港新增26宗确诊个案，其中25宗为本地个案，当日并录得逾100宗初步确诊。一个有3万多名居民的公共屋邨出现Omicron大爆发，特首林郑月娥周六表示，该屋邨的确诊数目已出现”几何式爆发”。
 
-参考链接：
-1) . [比利時民眾反防疫管制 5萬人抗爭與警方槓上](https://udn.com/news/story/121707/6055568?from=udn-catebreaknews_ch2)
-2) . [Riot police blast protestors with water cannon and tear gas as thousands march through Brussels demanding end to tough COVID rules as Omicron ‘tsunami’ hits Belgium with more than 60,000 cases a day](https://www.dailymail.co.uk/news/article-10432529/Thousands-march-Brussels-demanding-end-tough-Covid-rules.html)
-3) .[Clashes erupt in Brussels as tens of thousands protest Covid rules](https://www.france24.com/en/europe/20220123-clashes-erupt-in-brussels-as-tens-of-thousands-protest-covid-rules)
+林郑月娥傍晚召开记者会表示，出现疫情大爆发的新界葵涌邨共有16幢住宅大厦，于1月20日录得染疫个案，当日确诊及初步确诊共九宗，至1月21日累计个案已增至20宗，而今天累计个案更已增至105宗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+继周五政府宣布将其中一幢大厦围封、住户须在家禁足五天及每天接受强制检测后，周六宣布另一幢大厦亦需作出同样安排。林郑月娥表示，葵涌邨的首个感染源头已确定为Omicron BA.2变异病毒株，其传播力非常之强。
 
-总编: 飞虹
-编辑： 天滅中共
-校正/发稿：Fei797
+**3.**美国以**“**参与导弹技术扩散活动**”**为由制裁中共三家主体
+![](https://assets.gnews.org/wp-content/uploads/2022/01/玫瑰看新闻11.jpg)
+中共国航天科技集团是中国航天工业最顶尖的国有独资企业，图为在天津举办的世界智能大会上中共国航天空业集团的展场。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+路透北京**1**月**22**日** – **中国商务部周六称，美国务院以所谓**”**参与导弹技术扩散活动**”**为由，对三家中共企业和下属研究机构实施制裁。
+
+**
+**美国联邦军事网站周五稍早发布公告** here**称，美国政府宣布对中共航天科技集团一院、中共航天科工集团四院，以及保利科技公司三家主体实施制裁，理由是这些主体**“**从事导弹技术扩散活动**”**。**
+
+**中共航天科技集团、中共航天科工集团旗下**A**股上市公司包括航天信息**(600271.SS)**、中共卫通**(601698.SS)**、中共卫星**(600118.SS)**、航天机电**(600151.SS)**、航天电子**(600879.SS)**等。
+
+在新中国联邦郭文贵先生对中共蓝金黄渗透和偷窃西方科技界的持续揭露下，中共以偷治国的好日子结束了。
+
+**4.**中共清零政策已成负担影响中共国及全球复苏
+![](https://assets.gnews.org/wp-content/uploads/2022/01/玫瑰看新闻123.jpg)
+法广新闻**1**月**22**日报道，国际货币基金组织总裁格奥尔基耶娃（**Kristalina Georgieva**）表示，中共在控制新冠疫情时采取的**“**清零**“**政策最初虽成功，但现在它呈现的风险已大过好处。专家称：中共力求严格清零恐更难走出疫情。**
+
+**格奥尔基耶娃以视频方式出席达沃斯世界经济论坛时，接受美国消费者新闻与商业频道（**CNBC**）访问。她表示，**(**中共）的**“**清零**“**政策越来越像是一个负担，影响中共国自身及全球经济复苏。**
+
+**中共今年秋天将召开重要的**20**大，届时习近平预料将获指派连任党领导人、展开第**3**任期，因此中共国短期内不太可能大幅松绑防疫政策。
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

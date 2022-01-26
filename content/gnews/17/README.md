@@ -2,29 +2,39 @@
 ---
 
 
-## 1.25大直播后记：共产党的定海神针消失
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1913916/)
+## 有声|韩国的中共病毒感染、疫苗接种与人口变动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914060/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12121.png)
-
-
-
-图片来源：雅典娜设计组（姐夫说说）
+配音：香草山农场 – 纳米
 
 
-整理：雅典娜速记组
-编辑：Sadhu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+2021年，韩国中共病毒的感染人数达到了六十三万五千两百五十三人人，染疫死亡者也有5,625人。2020年，这两个数据分别是感染6万零7百4十人和染疫死亡900人。
 
-他们外国政要说我们还有3周，我说那就赶快开始吧，我都睡不着觉了，他就开始了。美国政府叫授权撤离，总统批完国会也知道。 授权撤离的理由是什么呢？说因冠状病毒，哈哈，这就是政治。而且我告诉大家一个秘密，这次的撤离决不再回去。 不是断交啊，你们可记住啊，世界上最大的大使馆是哪呀？ 当年的伊拉克，伊拉克完了，才是北京。 北京对美国大使馆定义为什么进入亮马河桥？还有北京，你看看北京有一个叫东南角叫CBD，叫金融区，伦敦有个金融城，东侧东南角。 巴黎也有一个金融街，东南角，东京也有一个，金融街东南角，你查查全世界有钱的都在城市东南角，这叫中国人左青龙，右白虎。 所以你们家厨房一定放在东南角和南侧别放西侧啊，真有风水的。大使馆在哪儿是经过看定的，从大清朝在那儿，后来南京重庆，最后定外秀水街5号，3号还是5号然后又到了今年的安外50号。 共产党内部说那个大使馆就是中国共产党的定海神针。 现在定海神针没了。 大使馆区就刚刚过去几个小时，最起码20个国家的大使告诉我说，兄弟，现在你给了我一个惊喜，没有人相信。我刚才就说了，他们都不信。
+另外，根据韩国疾病管理厅给出的数据，截至2021年，因疫苗接种死亡的案例是1,340例，在2022年这一数据将不再更新，因此没有最新的数据。
 
-发布：星谕
+与此同时，疫苗二次接种率已超过83%的韩国，2021年总人口数较2020年减少了19万零2百一十4人，这无疑是死亡人口的激增和出生人口大量减少造成的。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+而最新的3针疫苗接种情况显示，绝大多数民众还处在被蒙蔽中，推动疫苗政策的执政党很有可能大概率维持现有政策。即将到来的2022年3月新一届总统选举，给原本复杂的形势增添了更大的不确定性，整体局势不容乐观。
+
+文字版原文：[韩国的中共病毒感染、疫苗接种与人口变动](https://gnews.org/zh-hans/1908545/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
