@@ -2,41 +2,34 @@
 ---
 
 
-## 俄乌局势持续紧张，美国撤离使馆人员
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912144/)
+## 北大退休教授郑也夫发文反对中共武统台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912162/)
 
-据《美联社》记者MATTHEW LEE，2022年1月24日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3587.png)2022年1月22日星期六，乌克兰领土防御部队成员及武装部队志愿军，在乌克兰基辅一个城市公园训练。最近几周，由于担心俄罗斯入侵，数十名平民加入了乌克兰的军队预备队。图片来源：美联社/Efrem Lukatsky
-华盛顿（美联社）——由于对俄罗斯入侵乌克兰高度担忧，美国国务院周日下令美国驻乌克兰大使馆所有美国人员的家属离开该国。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-该部门告诉美国驻基辅大使馆工作人员的家属，他们必须离开该国。它还表示，非必要的大使馆工作人员可以由政府支付费用离开乌克兰。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19.png)
+据鸣人堂报道：1月22日，北京大学退休教授郑也夫为台海情势发表《匹夫說台海》短文，反对中共武统以及武力威慑台湾。郑也夫强调由于中共严控言论使得武统之论甚嚣尘上，他的公开反对可以击碎“武统派”代表人民的错觉。
 
-此举正值俄罗斯在乌克兰边境军事集结，局势紧张升级之际。周五国务卿安东尼·布林肯和俄罗斯外交部长谢尔盖·拉夫罗夫在日内瓦举行的会谈并未缓解这种紧张局势。
+据自由亚洲电台指出，郑也夫拒绝接受后续采访，以避免当局对他错误理解。他强调文章已经明确了观点。
 
-国务院官员强调，基辅大使馆将继续开放，并公告不撤离。官员们表示，此举已经考虑了一段时间，并不反映美国对乌克兰的支持有所放松。
+郑也夫曾在2020年7月发表了一篇《为谁保江山》的文章之后，消声了差不多一年半。
 
-美国国务院在一份声明中指出，最近有报道称俄罗斯正计划对乌克兰采取重大军事行动。然而，俄罗斯外交部指责北约国家通过虚假信息升级乌克兰周边的紧张局势。
+当时中共深陷疫情灾难，经济急速下行，和美国也出现了外交困局，加上违反《中英联合声明》，强推香港《国安法》。时任美国国务卿蓬佩奥甚至发表《共产中国与自由世界的未来》演讲呼吁自由社会要与中国人民联合起来打败中共暴政。
 
-美国国务院补充说：“安全状况，特别是在乌克兰边境沿线、俄罗斯占领的克里米亚和俄罗斯控制的乌克兰东部，是不可预测的，并且可能在没有引起注意的情况下突然恶化。演变成暴力的示威活动在整个乌克兰时有发生，包括在基辅。”
+习近平当时疾呼要守住中共社会主义事业，郑也夫则刊文直指中共的“保江山”其实就是“保权贵”，现实就是中共权贵阶层的后代们纷纷移居美国。
 
-由于 COVID-19 以及俄罗斯的紧张局势，国务院的旅行警告建议不要前往乌克兰，但周日更改为更强烈的警告。
+参考链接：[https://opinion.udn.com/opinion/story/120611/6059246?form=udn\_ch2\_common3\_cate](https://opinion.udn.com/opinion/story/120611/6059246?form=udn_ch2_common3_cate)
 
-“由于俄罗斯军事行动和 COVID-19 的威胁增加，请勿前往乌克兰。由于犯罪和内乱，在乌克兰要更加谨慎。一些地区的风险增加了。” 国务院建议道。
+*发布：tianzhihuan*
 
-俄罗斯的旅行建议也发生了变化：“由于俄乌边境的持续紧张局势、对美国公民的潜在骚扰预期、大使馆在俄罗斯协助美国公民的有限能力、COVID-19疫情和相关入境限制、恐怖主义、俄罗斯政府安全官员的骚扰以及地方政府的随意执法，请勿前往俄罗斯。”
-
-美国国务院不愿透露目前在乌克兰有多少美国人。美国公民在抵达或计划长期留在国外时无需在大使馆登记。
-
-文章来源：**[https://apnews.com/article/russia-ukraine-business-antony-blinken-europe-evacuations-45d1a477929caefe1f0626a5ca42afd0](https://apnews.com/article/russia-ukraine-business-antony-blinken-europe-evacuations-45d1a477929caefe1f0626a5ca42afd0)**
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Grace
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
