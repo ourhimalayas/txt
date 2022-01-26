@@ -2,45 +2,44 @@
 ---
 
 
-## 丹麦将在2月1日前取消所有疫情限制措施
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1915323/)
+## 埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1915347/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/D-1.jpg)lifesitenews.com
-《门道专家》1月26日转载路透社的报道，“在英国、爱尔兰和荷兰作出类似的宣布后，丹麦将在2月1日之前取消所有中共（新冠）病毒疫情的限制”。【1】
+据《布雷巴特新闻》作者：[WARNER TODD HUSTON](https://www.breitbart.com/author/warner-todd-huston/)，2022年1月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2200-e1643236037559.png)图片源自Getty Images
+**埃内斯-坎特抨击了金州勇士队的共同所有者，认为他对中共国正在进行的针对维吾尔人的种族灭绝行为漠不关心，他说：“没有人关心维吾尔人的遭遇。”**
 
-全文如下：
+周六，勇士队联合老板查马特-帕里哈皮提亚在接受All-In播客采访时，对数百万中共国维吾尔人被奴役的事实漠不关心，即使依然没有人关心他们的遭遇。对他来说，这不是一个值得费心的问题。
 
-*丹麦计划下周取消所有剩余的国内对中共病毒疫情的限制措施，英国、爱尔兰和荷兰在过去一周内公布了类似的声明，尽管欧洲的奥密克戎感染数量很高。*
+埃内斯-坎特则抨击出生于斯里兰卡的帕里哈皮提亚也是种族问题的产生的“共犯”。
 
-*在长达一个月的封锁后，这个北欧国家两周前已经放松了限制，允许电影院和音乐场所重新开放，但仍有一些规定，包括限制餐厅的开放时间和强制戴口罩。*
+**“当NBA说我们代表正义的时候，别忘了还有那些为了金钱和生意而出卖自己灵魂的人，比如勇士队的老板查马斯，”他说。“没有人关心维吾尔人的遭遇，”他在1月17日的推特上写道。**
 
-*卫生部长马格努斯·赫尼克（Magnus Heunicke）在给议会的一封信中说，政府打算遵循专家小组周二（1月25日）发布的建议，在2月1日之前取消所有限制。*
+“当种族灭绝发生时，正是这样的人让它发生。”这位NBA球员补充道：“耻辱！”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2201.png)图片源自：推特
+当帕里哈皮提亚说没有人关心中共国的种族灭绝时，甚至连播客主持人都感到震惊。
 
-*政府的决定有待议会批准，这将是北欧国家放松限制的最深远举措。*
+“没有人关心发生在维吾尔人身上的事情，好吗？你提出来是因为你真的关心，我认为你关心是件好事。我们其他人并不关心。我只是告诉你一个非常艰难、丑陋的事实。在我关心的所有事情中，是的，它排的很靠后。在我关心的所有事情中，它低于我的关注范畴。”帕里哈皮提亚说法，让播客主持人大卫-萨克斯感到震惊。
 
-爱尔兰共和国上周六（1月22日）取消了几乎所有对中共病毒疫情的限制。
+帕里哈皮提亚补充说：“这不是关心。……我关心的是，如果中共国入侵台湾，我们的经济会在一瞬间发生变化。我关心气候变化。我关心美国衰败的医疗保健基础设施。但如果你问我，我是否关心另一个国家的一部分人？除非我们能照顾好自己，否则我不会把他们置于我们之上。”
 
-英国首相鲍里斯·约翰逊还宣布，英国将取消对中共病毒疫情的限制。
+帕里哈皮蒂亚不屑地补充道：“我想很多人都相信这一点，如果这是个难以启齿的事实，我很抱歉。但每次我说我‘关心维吾尔人’时，如果我不是真的关心，我只是在撒谎，所以我宁愿不对你们撒谎，而选择告诉你们真相。这对我来说不是一个优先事项。”
 
-与此同时，在美国，乔·拜登和民主党人正在推动更多中共病毒疫情的暴政。
+原文连接：[https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/](https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/)
 
-（全文完）
+翻译：洛杉矶盘古农场 – TrueSky
 
-不只是美国，加拿大也是如此，加拿大某些省更加猖狂，听说还要对未接种疫苗者课税，甚至要上门接种。另一方面，普通民众在觉醒。
+校对：洛杉矶盘古农场 – Mike Li
 
-加拿大的卡车司机在奋起反击抗击暴政，已经从行动开始时1万卡车司机到如今5万卡车司机加入，正从4个方向向首都渥太华挺进，1月29日将齐聚国会山，要求政府取消病毒及疫苗的强制令。他们经过无论多么偏僻的地区都有当地人在路边欢迎支持，沿路已经有数十万人在加入他们的车队，人们还通过一个为此次行动募捐的平台“2022自由车队”（Freedom Convoy 2022）大力捐款，自开始以来十多天，募捐额截止投稿时已超过556万加元，捐款人数超过7.1万人【2】。
+编辑：洛杉矶盘古农场 – WenXiong
 
-这场加拿大历史上从未有过的平民运动令小土豆坐立不安，他企图控制所谓主流媒体污名化这些自发行动的人，还要求军警阻止，但军警拒绝执行，称加拿大人有集会的自由表达自己意见的自由。从这里明显看出，小土豆的病毒及疫苗强制政策不得人心，施暴者必须下台！
+发布：洛杉矶盘古农场 – 子萍
 
-原文链接：
 
-【1】[https://www.thegatewaypundit.com/2022/01/denmark-lift-remaining-covid-restrictions-february/](https://www.thegatewaypundit.com/2022/01/denmark-lift-remaining-covid-restrictions-february/)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-【2】[https://www.gofundme.com/f/taking-back-our-freedom-convoy-2022?viewupdates=1&rcid=r01-164314657143-bdf57585908b47f9&utm\_medium=email&utm\_source=customer&utm\_campaign=p\_email%2B1137-update-supporters-v5b](https://www.gofundme.com/f/taking-back-our-freedom-convoy-2022?viewupdates=1&amp;rcid=r01-164314657143-bdf57585908b47f9&amp;utm_medium=email&amp;utm_source=customer&amp;utm_campaign=p_email%2B1137-update-supporters-v5b)
-
-**华盛顿DC 望七星**
-
-**编辑发布  水星**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
