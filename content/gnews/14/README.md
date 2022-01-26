@@ -2,36 +2,14 @@
 ---
 
 
-## 甜蜜灭共
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1911981/)
+## 【粤语配音】2022年1月25日： 新中国联邦重大公告 (7)
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1912023/)
 
-作者 ：香草山健身部-新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-![](https://cdn.discordapp.com/attachments/929349120437682187/935684256435404860/image0.jpg)
+紐約香草山-香港部
 
-春节将至先迎喜
-甜蜜主旋律
-推波助澜七芒星
-灭共自有雷霆势
-乘风破浪著新史
-亿万勇士心
-热血沸腾泪盈眶
-无惧来路多泥泞
-雄鹰展翅冲云霄
-豪气万千澎湃力
-勇屹喜马拉雅峰
+全球人民的胜利，我们感谢布林肯先生用这样的智慧，感谢美国总统拜登先生，做出这样伟大的决定。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1-1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+历史会证明 ，这会超过美国总统，任何一次对人类、对人权维护的意义，上天、上帝会保护你们，全球的人民会感谢你们，郭文贵 Miles Guo会代表全球的新中国联邦人，在此对美国总统拜登先生和布林肯先生，以及美国人民致以衷心的感谢，我们永远的和你们奋斗在一起，直到消灭这个绑架中国14亿人民和威胁全人类安全的共产党为止，我们将永远建立与美国和文明社会，千年的和平关系，一切都是刚刚开始，谢谢！
 
  
 
