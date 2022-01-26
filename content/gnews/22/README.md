@@ -2,47 +2,133 @@
 ---
 
 
-## 借严格的病毒措施 美国带头将外交官撤离中国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1912831/)
+## Bari Weiss: 我受够了 COVID
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912852/)
 
-**翻译：Lulumi**
+[https://gtv.org/video/id=61ee9cba87664c47acd94f08](https://gtv.org/video/id=61ee9cba87664c47acd94f08)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2163.png)图片来源**：**reuters.com
+巴里·维斯: I’m done with COVID (Podcast Host “Honestly”)
+Bari Weiss：我受够了 COVID（“Honestly” Podcast节目主持人）
 
-华盛顿，1月25日（路透社） – 消息人士告诉路透社，由于美国政府无力阻止中共当局对他们采取侵入性的中共病毒COVID-19控制措施，美国国务院正准备授权希望在华美国外交官及其家属离开。
+I’m done
+我受够了
 
-两位熟悉这一问题的消息人士说，美国大使馆周一已将这一请求送交华盛顿正式签署，因为在不到两周的时间里，中国将在北京冬奥会开幕前加强COVID-19管控措施。
+(With this question?)
+这个问题吗？
 
-由于问题的敏感性，这些消息来源在匿名的情况下对路透社说，一些使馆工作人员对美国政府不愿意或不能保护美国官员免受严格的隔离措施感到不安。这些规定包括可能被迫进入中共病毒COVID发烧诊所以及与儿童分开。
+No, I’m done with Covid
+不， 我受够了COVID
 
-美国国务院没有回应反复提出的评论请求，也不清楚它是否批准了大使馆的请求。
+I’m done, it’s like…, I went so hard on COVID.
+我受够了，就像……，我在 COVID 上非常努力
 
-一位人士说，美国大使馆进行的一项内部调查显示，多达25%的工作人员和家属会选择尽快离开中国。
+(Yeah, I remember)
+是的， 我记得
 
-该人士说，对外交官进行家庭隔离应该是一个基本要求，而进入中国发烧诊所和医院应该是自愿的，他补充说，美国政府应该对这种要求采取报复性措施，但（美国）没有这样做。
+I spray the Pringle cans that I bought at grocery store.
+我在杂货店买的Pringle罐子上喷了（消毒剂）
 
-第二位人士说，在整个中共病毒大流行期间，大使馆领导层未能从中国获得有关美国外交官待遇的适当保证。
+Stripped my clothes off because I thought the Covid would be on my clothes.
+（回到家）脱掉我的衣服，因为我认为新冠病毒会在我的衣服上。
 
-在疫情发生的最初几个月，美国政府从中国撤离了大约1300名美国外交官和家属，两国政府在官员的测试和检疫程序上僵持了几个月。
+Like I did it all
+我都这样做过
 
-一般来说，中国要求外国外交官像普通公众一样遵守中共病毒管控规则，包括在一个集中的政府设施中进行数周的隔离，个人没有行动自由。
+I watched tiger king I got to the end of Spotify
+我看了TigerKing， 知道看到了Spotify的尽头
 
-随着2月4日北京冬奥会开幕的临近，中国已迅速加强措施，阻止中共病毒COVID的进一步传播，尽管该病毒在整个城市持续爆发。
+Like we all did it, right?
+我们都这样做过，对吗？
 
-周二，北京的一个区大约200万居民开始新一轮的测试。
+(No, no, we didn’t all do it)
+不，不，我们并没有都这样做
 
-中共民族主义喉舌的《环球时报》称美国国务院考虑该政策是一个“肮脏的把戏”，目的是扰乱中国举办奥运会。
+well, here is the thing, a lot…
+好吧，事情就是这样，许多
 
-美国已经带领几个盟国和伙伴国对奥运会进行了外交抵制，因为它认为中国政府正在对新疆西部地区的维吾尔族和其他穆斯林群体进行种族灭绝。
+(No, we did not do it)
+没有，我们并没有都这样做
 
-**素材链接：**[reuters.com] [U.S. prepares to allow diplomats to leave China over strict COVID rules](https://www.reuters.com/article/usa-china-diplomats-idUSL1N2U528B)
+a lot of us did do it
+我们中许多人都这样做了
+
+and then we were told, you get the vaccine, you get the vaccine and you get back to normal.
+然后我们被告知，你需要疫苗，你接种了疫苗，你就会恢复正常。
+
+And we haven’t got back to normal
+而且我们还没有恢复正常
+
+And it’s ridiculous at this point.
+在这一点上这很荒谬
+
+I know that so many of my liberal and progressive friends are with me on this
+我知道我的许多自由派和进步派朋友都支持我
+
+And they do not want to say it aloud because they are scared to be called anti vax
+他们不想大声说出来，因为他们害怕被称为反疫苗者
+
+Or to be called science denial, or to be…you know…smeared as Trumper
+或者被称为否认科学，或者被……你知道……被抹黑为川普支持者
+
+I’m sorry, if you believe science, you will look at the data that we did not have two years ago.
+对不起，如果你相信科学，你会看到我们两年前没有的数据
+
+And you will find out that cloth mask do not do anything
+你会发现布口罩什么也做不了
+
+You will realize that you can show your vaccine passport at a restaurant
+你会意识到人们可以在餐厅出示疫苗护照
+
+And still asymptomatic and carrying omicron
+但他们仍然可以是无症状并携带 omicron
+
+And you will realize most importantly, this is going to be remembered by the younger generation as a catastrophic moral crime.
+你会意识到最重要的是，这将被年轻一代铭记为灾难性的道德犯罪
+
+The city of Flint, Michigan, which is 80%, I think, minority students， has just announced indefinite virtual schooling.
+密歇根州弗林特市（我认为 80% 的少数民族学生）刚刚宣布无限期进行虚拟学校教育
+
+In the past two years, we’ve seen among young girls, a 50% increase in self-harm.
+在过去的两年里，我们看到年轻女孩中自残的人数增加了 50%
+
+People are killing themselves
+人们正在自杀
+
+They are anxious, they are depressed, they are lonely.
+他们焦虑，抑郁，孤独
+
+That is why we need to end it, more than any inconvenience that it’s been to the rest of us.
+这就是为什么我们需要结束它，而不是它给我们其他人带来的任何不便。
+
+I think that’s a pandemic
+我认为那才是流行病
+
+It’s like, at this point, it’s a pandemic of bureaucracy, it’s a pandemic of bureaucracy
+就像，在这一点上，这是一场官僚主义的流行病，这是一场官僚主义的流行病
+
+It’s no real any more.
+它不再是真实的了
 
 * * *
 
-*审核：文乐
-校对：文羽
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+Date:01/23/2022
+原视频标题: Bari Weiss: I’m done with COVID
+Bari Weiss: 我受够了 COVID
+原视频日期：2022/01/23
+原视频链接: [**https://gettr.com/post/pq467vb33a**](https://gettr.com/post/pq467vb33a)
+任务编号：KE364（3557）
+视频时间段 : 0:00-1:55
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 –
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

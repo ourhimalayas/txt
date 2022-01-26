@@ -2,28 +2,54 @@
 ---
 
 
-## 国际货币基金组织要求萨尔瓦多不要将比特币作为法定货币
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1912752/)
+## 短视频：我们不应该去北京参加冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912803/)
 
-#### 撰稿：彩虹
+翻译：不要代表我Kari
+校对：Lish
+剪辑字幕：小强
+编辑：文泓
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-6.jpg)图片来源：Trend Fool
-据《国会山报》1月25日报道，周二，国际货币基金组织（IMF）执行董事会警告萨尔瓦多（El Salvador），不要将比特币（Bitcoin）作为法定货币，该董事会声明呼吁“对新的生态系统进行严格监管监督”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗-2-6.png)
 
-该声明是在董事会的年度会议之后发布的。声明中说：“他们【董事会成员】强调，使用比特币对金融稳定、金融诚信和消费者保护，以及相关的财政或有负债（Contingent liabilities）有很大的风险。他们敦促当局以取消比特币的法定货币地位，从而缩小比特币法律的范围。一些董事还对发行以比特币为支撑的债券所产生的相关风险表示担忧。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗-2-5.png)
+与此同时，北京奥运会将在大约两周后开始。组织者昨天宣布，由于新冠病例的增加，他们将限制门票销售。
 
-报道说，萨尔瓦多共和国在2021年9月份成为了第一个采用加密货币作为法定货币的国家，从而要求企业接受比特币作为法定支付的方式。
+以下是为保护参与奥运会的人员健康和安全而发表的声明，原本向公众提供门票的计划已被改变为向特定观众提供。
 
-此举促使国际货币基金组织董事会多次建议萨尔瓦多推翻这一决定，并提出了对经济和法律问题的担忧。
+克莱-特拉维斯，Outkickthecoverage.com的创始人，你好吗？我不知道世界会如何看待这件事。但是，伙计，这将会很有趣。
 
-另据《路透社》报道，该国正准备发行10亿美元的债券，其中一半将用于购买比特币，发放给拉乌内（La Union）东部的一个地区，计划创建世界上第一个“比特币城市”。据通讯社报道，政府预测这种风险将吸引投资者，他们将获得6.5%的美元收益率，远远低于目前市场上类似萨尔瓦多政府债务的大约17%的价格。
+在北京的冬奥会期间，作为一名运动员，你可以做什么，不可以做什么规定如下：
 
-然而，在目前的政策下，国际货币基金组织警告说，（萨尔瓦多）的债务可能在2026年上升到约国内生产总值的86%，称这是一个“不稳定的方法路径”。
+- 出示接种疫苗的证明；
+- 不参加比赛时每天需要检测、戴口罩；
+- 不在电梯或其他封闭空间说话；
+- 不许为队友加油或唱歌。
 
-**新闻来源**
 
-[IMF urges El Salvador to remove bitcoin’s status as legal tender](https://thehill.com/policy/international/americas/591320-imf-urges-el-salvador-to-remove-bitcoins-status-as-legal-tender)
+他们只鼓励鼓掌。你对此事有何预判？
+
+首先，他们向世界各地释放冠状病毒之后又对世界撒谎隐瞒，所以我们不应该去北京（参加冬奥会）。
+
+而随之而来的两年病毒灾难，我们再去北京参加冬奥会的做法基本上等于屈膝下跪，老实说，首先那并不是一个理想的冬奥场地，我认为（参加）是错误的。
+
+而我从一年前就说，比尔，嘿，“让我们在美国举办冬奥会，让我们为西方民主国家举办冬奥会；让我们都不屈服中共，让我们举办我们自己的冬奥会。”
+
+我们与加拿大和其他西方民主国家一起，赢得了几乎所有的冬奥会奖牌。所以我们（自己举办）并不是在削弱其合法性。
+
+请记住，（职业棒球联盟）全明星赛因投票权法案而退出亚特兰大，对我来说这很疯狂，因为亚特兰大的投票权法案实际上比我们国家的许多其他州的投票权更有意义。
+
+所以我们取消了亚特兰大的全明星赛，但我们要去北京参加冬奥会，这让人很难堪。
+
+视频链接：[Clay Travis: We should not be in Beijing for the Winter Olympics | On Air Videos | Fox News](https://video.foxnews.com/v/6292409733001#sp=show-clips)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

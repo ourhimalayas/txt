@@ -2,133 +2,51 @@
 ---
 
 
-## Bari Weiss: 我受够了 COVID
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912852/)
+## 班农专访8: 世界头号网球选手拒绝疫苗被澳禁赛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912887/)
 
-[https://gtv.org/video/id=61ee9cba87664c47acd94f08](https://gtv.org/video/id=61ee9cba87664c47acd94f08)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE7.jpg)
+**简评：**世界头号网球运动员德约科维奇因为拒绝接种中共疫苗被澳洲拒绝入境，虽然法院判定他的疫苗豁免有效，而且法网和温网公开赛都打算禁止他参赛。这是民主政体、司法独立的堕落，因为政府可以随意地推翻法律判决。
 
-巴里·维斯: I’m done with COVID (Podcast Host “Honestly”)
-Bari Weiss：我受够了 COVID（“Honestly” Podcast节目主持人）
+中共严重渗透西方的司法系统，包括美国、奥地利、德国、法国、英国，最令人震惊的是澳洲，因为莫里森的政府是“保守政府”，反共走在最前面，但是推行强制疫苗非常激烈。澳洲的一些议员被强制隔离，尽管他们的检测呈阴性。
 
-I’m done
-我受够了
+北京冬奥会即将开幕，疫情还在扩散，中共甚至强迫运动员对疫情保持沉默。中共政权一定会被推翻，未来中国的孩子会回顾这段历史，追寻中国人民获得自由的过程。为了给后世一个交代，新中国联邦、爆料革命、GTV、GNews、战斗室每天都要努力传播真相，以实际行动书写真实的历史 。
 
-(With this question?)
-这个问题吗？
+- GETTR视频链接：[https://gettr.com/post/pq29ssfd55](https://gettr.com/post/pq29ssfd55)
+- GTV视频链接：[https://gtv.org/video/id=61ed4e3687664c47acd8ccd7](https://gtv.org/video/id=61ed4e3687664c47acd8ccd7)
 
-No, I’m done with Covid
-不， 我受够了COVID
 
-I’m done, it’s like…, I went so hard on COVID.
-我受够了，就像……，我在 COVID 上非常努力
+**视频字幕：**
 
-(Yeah, I remember)
-是的， 我记得
+**主持人****Winston****：**世界头号网球运动员，德约科维奇的事件在最近两周有了结果，留下很多让人不安的问题。我们是否正在目睹一个民主政体的倒塌，因为政府可以随意推翻法律判决。这是否展示了司法独立是民主社会的基石之一？
 
-I spray the Pringle cans that I bought at grocery store.
-我在杂货店买的Pringle罐子上喷了（消毒剂）
+**班农先生：**这需要回到我们的第一个问题，关于美国法律系统的现状，尤其是美国律师事务所与（中共）国有企业的关联，直接或者间接给中共做事，但是，在中共的侵蚀下，这些律所与中共企业的关系就不再是间接了。要知道这些律所是司法体系的脊梁，因为大多数大律师都在这些知名律所工作。
 
-Stripped my clothes off because I thought the Covid would be on my clothes.
-（回到家）脱掉我的衣服，因为我认为新冠病毒会在我的衣服上。
+所以我认为澳洲是个悲剧，但影响不限于此。法网和温网都打算禁止德约科维奇参赛，尽管他是世界网坛头号选手，以公众安全为借口，这些国家不在乎其中的得失。最令人不安的是它发生在澳洲。
 
-Like I did it all
-我都这样做过
+我们关注的头号问题一直是中共囯，和中共对西方深层次的渗透。这就是中共在西方基督世界渗透的表现，包括奥地利、德国、法国，但最令人震惊的当属澳大利亚。过去四周，一些澳洲参议员被强迫隔离，尽管他们的测试呈阴性。要知道，莫里森的政府是“保守政府”，澳洲目前在反共上走在最前面，但他们在疫苗问题上做的太糟糕。
 
-I watched tiger king I got to the end of Spotify
-我看了TigerKing， 知道看到了Spotify的尽头
+我们的处境十分危急，最严重的问题之一就是法律体系。这再次展现了他们如何被中共的金钱收买渗透。这也是为什们GTV英国的节目和观众为什么如此重要，因为我认为中共在英国的渗透更严重。
 
-Like we all did it, right?
-我们都这样做过，对吗？
+这不得不说伊安汉密尔顿的书《隐密之手》，它把英国精英与中共的勾兑解释得很清楚。作者来自澳洲， 他的第一部书叫做《无声的侵略》，是关于澳洲的，《隐密之手》写的是英国。我听说他正在写一本关于美国的书，但美国的状况令人绝望。原因之一就是大律所还有游说组织与支持中共的跨国公司合作，或者直接替中共国营企业做事。
 
-(No, no, we didn’t all do it)
-不，不，我们并没有都这样做
+今天节目的结尾我想说的是，未来如何把今天这段历史教给孩子们。以后中国的孩子们学习今天这段历史，中国人民如何在21世纪获得自由的时候，他们会问这一切始于何处。中共倒台之后，一切都会水落石出。未来的孩子们会追问真相。中共对中国人犯下的一切罪行都会在审判庭上大白天下。未来的孩子们会问一个非常简单的问题，这一切是怎么发生的？这是如何发生的？自由世界，尤其是西方，美国、英国、欧洲，为什么华尔街，所有这些企业和机构，明知道中共对中国人犯下的罪孽，还要与中共合作？
 
-well, here is the thing, a lot…
-好吧，事情就是这样，许多
+今天在冬奥会即将开幕的时候，中共甚至强迫自己的运动员对中国的疫情保持沉默。这一切是如何发生的？谁应该对此负责？今天我们明白这是如何发生的，也知道谁应该负责。这就是GTV的力量，也是我为什么喜欢参加每周英喜农场的节目。这也是为什么中共的倒台就像日夜交替一样不可避免，它一定会被中国人民推翻。
 
-(No, we did not do it)
-没有，我们并没有都这样做
+中共倒台之后，我们的后代会问，这一切是如何发生的？为什么过了这么久中共才被推翻，谁应该对（中共的罪行）负责？所以我认为战斗室、GTV、Gnews、爆料革命、新中国联邦每天都要努力传播真相，我们每天的行动都是在记录历史。
 
-a lot of us did do it
-我们中许多人都这样做了
-
-and then we were told, you get the vaccine, you get the vaccine and you get back to normal.
-然后我们被告知，你需要疫苗，你接种了疫苗，你就会恢复正常。
-
-And we haven’t got back to normal
-而且我们还没有恢复正常
-
-And it’s ridiculous at this point.
-在这一点上这很荒谬
-
-I know that so many of my liberal and progressive friends are with me on this
-我知道我的许多自由派和进步派朋友都支持我
-
-And they do not want to say it aloud because they are scared to be called anti vax
-他们不想大声说出来，因为他们害怕被称为反疫苗者
-
-Or to be called science denial, or to be…you know…smeared as Trumper
-或者被称为否认科学，或者被……你知道……被抹黑为川普支持者
-
-I’m sorry, if you believe science, you will look at the data that we did not have two years ago.
-对不起，如果你相信科学，你会看到我们两年前没有的数据
-
-And you will find out that cloth mask do not do anything
-你会发现布口罩什么也做不了
-
-You will realize that you can show your vaccine passport at a restaurant
-你会意识到人们可以在餐厅出示疫苗护照
-
-And still asymptomatic and carrying omicron
-但他们仍然可以是无症状并携带 omicron
-
-And you will realize most importantly, this is going to be remembered by the younger generation as a catastrophic moral crime.
-你会意识到最重要的是，这将被年轻一代铭记为灾难性的道德犯罪
-
-The city of Flint, Michigan, which is 80%, I think, minority students， has just announced indefinite virtual schooling.
-密歇根州弗林特市（我认为 80% 的少数民族学生）刚刚宣布无限期进行虚拟学校教育
-
-In the past two years, we’ve seen among young girls, a 50% increase in self-harm.
-在过去的两年里，我们看到年轻女孩中自残的人数增加了 50%
-
-People are killing themselves
-人们正在自杀
-
-They are anxious, they are depressed, they are lonely.
-他们焦虑，抑郁，孤独
-
-That is why we need to end it, more than any inconvenience that it’s been to the rest of us.
-这就是为什么我们需要结束它，而不是它给我们其他人带来的任何不便。
-
-I think that’s a pandemic
-我认为那才是流行病
-
-It’s like, at this point, it’s a pandemic of bureaucracy, it’s a pandemic of bureaucracy
-就像，在这一点上，这是一场官僚主义的流行病，这是一场官僚主义的流行病
-
-It’s no real any more.
-它不再是真实的了
+字幕：free20200604 / 听写：云岭 / 翻译：Wade / PR：Roberts / 简评/文字整理/编辑：胖丁
 
 * * *
 
-Date:01/23/2022
-原视频标题: Bari Weiss: I’m done with COVID
-Bari Weiss: 我受够了 COVID
-原视频日期：2022/01/23
-原视频链接: [**https://gettr.com/post/pq467vb33a**](https://gettr.com/post/pq467vb33a)
-任务编号：KE364（3557）
-视频时间段 : 0:00-1:55
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 –
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场- 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

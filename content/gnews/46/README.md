@@ -2,26 +2,20 @@
 ---
 
 
-## 中日财经爆|中共国股市创18个月最大单日跌幅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911902/)
+## 国际透明组织：中共国腐败超出国境 习近平利用反贪打击对手
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911941/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-37.jpg)[图片来源](https://td263736.pixnet.net/blog/post/461669579-%E8%82%A1%E7%A5%A8%E5%B8%82%E5%A0%B4%E5%B4%A9%E7%9B%A4%E6%99%82%EF%BC%8C%E6%88%91%E8%A9%B2%E5%85%88%E8%B3%A3%E8%82%A1%E7%AD%89%E5%A4%A7%E8%B7%8C%E5%86%8D%E8%B2%B7%E5%9B%9E%E5%97%8E)
-中共国上海股市沪综指周二（1月25日）收盘跌2.6%至五个月低位，创下逾18个月单日最大跌幅；沪深300指数挫2.3%。深圳创业板指数则收低2.7%，失守3,000点大关，为去年五月来首次。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211116%2F480%2Fkbs-f9e8153aea0fd19ac2f0ab25835c5e57-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5279594-30&amp;tbnid=wVe6zUKhv9CH6M&amp;vet=12ahUKEwih4urH1M71AhWCJDQIHdZ0ClwQMygLegUIARC7AQ..i&amp;docid=6WfEmyijQa1F8M&amp;w=480&amp;h=320&amp;itg=1&amp;q=%E5%9B%BD%E9%99%85%E9%80%8F%E6%98%8E%E7%BB%84%E7%BB%87&amp;ved=2ahUKEwih4urH1M71AhWCJDQIHdZ0ClwQMygLegUIARC7AQ)
+在全球致力于反贪污腐败的“国际透明组织”（Transparency International）的办公室主任卡尔曼（Gary Kalman）表示，中共国在全球间参与的角色加重，腐败行为更已超出国境，例如以外援或腐败方式进入欧洲。研究专家库库奇卡（Roberto Martinez B.Kukutschka）就指出，独裁政府的反贪腐只会针对妨碍当政者的人，习近平的反贪腐只是打击的手段，未在媒体和公民社会中起任何作用。
 
-在乌克兰局势紧张升温之际，欧洲主要股指周一急挫近4%，市场担心俄罗斯对乌克兰发动攻击，以及美国联邦储备委员会(美联储/FED)本周可能采取更鹰派的立场。美国的标普500指数周一则从盘中低点收复了4.3个百分点，终场收高，创2020年3月26日以来盘中最大波动幅度。
-
-美联储变得更加鹰派引发担忧，正在搅动全球资产市场，而本周的货币政策会议可能会让外界了解该央行打算多么积极地采取行动。投资者预计，美联储将在周三发出计划在3月加息的信号，自中共病毒（新冠病毒Covid-19）疫情爆发后降息至近零水平以来首次收紧货币政策。
-
-华夏基金在报告中认为，在全球资本流动加快的趋势背景之下，A股与美股存在着一定的共振走弱的风险。受此影响，近期市场情绪转弱，风险偏好显著收缩，高估值赛道个股跌幅明显，稳增长相关领域反而相对抗跌。
-
-上海一私募人士认为市场目前应该就是处于下跌趋势中。“上证指数连续三年上涨的情况在历史上都不是多见的，所有股票都很高了，整个市场肯定会慢慢冷一下，现在是从过热到过冷的过程当中。”
-
-华北一券商人士认为，新股大量发行，资金不断被稀释，此外市场也在担忧全球流动性收紧的溢出影响，以及外围市场尤其是欧美股市大动荡的冲击。
+国际透明组织也指出，这两年因为中共病毒（新冠病毒COVID-19）疫情因素，各国政府对于外界的问责和资讯透明度也影响到部分国家如西欧、欧盟的清廉形象，在亚太、美洲、东欧和中亚的部分地区，对问责措施和基本公民自由的限制越来越多，这使腐败的情况更加肆无忌惮，更让先前表现最好的国家也显示出衰退的迹象。
 
 消息来源:
 
-[综述：中国股市创一年半最大单日跌幅 受地缘紧张升温外围市场动荡冲击](https://cn.reuters.com/article/wrapup-0125-tues-china-stock-idCNKBS2K001V?il=0)
+[CPI 2021: HIGHLIGHTS AND INSIGHTS](https://www.transparency.org/en/news/cpi-2021-highlights-insights)
+
+[2021全球清廉指數排名公布 台灣25、美國27、中國66](https://tw.news.yahoo.com/2021%E5%85%A8%E7%90%83%E6%B8%85%E5%BB%89%E6%8C%87%E6%95%B8%E6%8E%92%E5%90%8D%E5%85%AC%E5%B8%83-%E5%8F%B0%E7%81%A325-%E7%BE%8E%E5%9C%8B27-%E4%B8%AD%E5%9C%8B66-024656148.html)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
