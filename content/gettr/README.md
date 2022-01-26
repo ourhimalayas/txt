@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 11:32 PM (UTC)`
+
+1月26日， 2017-2022 庆祝爆料革命五周年🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>January 26，2017-2022 Celebration the 5th Anniversary of the Whistleblower Movement 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group36/getter/2022/01/26/23/67f89b2b-c027-b22e-e163-28b16bd58b96/out.jpg)
+
+---
+
 `@miles 1/26/2022 10:25 PM (UTC)`
 
 1/26/2022 Miles Guo’s GETTR: Why did the US authorize the withdrawal of its embassy in Communist China at this time? This decision has nothing to do with the CCP virus, while setting the stage for the legitimacy of the next move of the US. The US Embassy will only return to China after the CCP is finished. Putin's team judges that a war between the CCP and the US is inevitable<br/><br/>1/26/2022 文贵盖特：美国为何在这个时候授权撤离驻华大使馆？这个决定和病毒无关而是为美下一步行动提供了合法支撑，只有中共完蛋了美国大使馆才会回去；普京团队判断中美必有一战<br/><br/>
@@ -145,13 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！<br/><br/>January 25, 2022 The Chinese official media just confirmed the important emergency announcement by New Federal State of China <br/><br/>https://mp.weixin.qq.com/s/X1RqxZRJsVck1a7Baf626g
 ![img](https://media.gettr.com/group45/getter/2022/01/25/18/33c042a8-6528-263a-8e58-7ea736d85bda/3b987318eae340969b07c513d53dea9d.jpg)
-
----
-
-`@miles 1/25/2022 5:28 PM (UTC)`
-
-1月25号：大功告成……馍馍出锅……
-![img](https://media.gettr.com/group38/getter/2022/01/25/17/b43b7186-746c-b7e2-37d1-1e284f688559/out.jpg)
 
 ---
 
