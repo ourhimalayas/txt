@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 10:25 PM (UTC)`
+
+1/26/2022 Miles Guo’s GETTR: Why did the US authorize the withdrawal of its embassy in Communist China at this time? This decision has nothing to do with the CCP virus, while setting the stage for the legitimacy of the next move of the US. The US Embassy will only return to China after the CCP is finished. Putin's team judges that a war between the CCP and the US is inevitable<br/><br/>1/26/2022 文贵盖特：美国为何在这个时候授权撤离驻华大使馆？这个决定和病毒无关而是为美下一步行动提供了合法支撑，只有中共完蛋了美国大使馆才会回去；普京团队判断中美必有一战<br/><br/>
+![img](https://media.gettr.com/group27/getter/2022/01/26/22/e968bf96-c498-2901-0f4a-77564032a0d8/out.jpg)
+
+---
+
 `@miles 1/26/2022 10:21 PM (UTC)`
 
 1/26/2022 Miles Guo’s GETTR: Today is the 5th anniversary of the Whistleblowers’ Movement. Why did I keep blowing the whistle even if my family members were arrested by the CCP back then? When faced with a dictatorship run by a devil, we have no choice but to eliminate it. So, this is now the most wonderful time of my life.<br/><br/>1/26/2022 文贵盖特：今天是爆料革命5周年纪念日，为什么文贵当年在家人被抓的情况下仍坚持爆料？面对魔鬼的独裁统治，我们别无选择，必须将其消灭，所以现在是文贵活得最精彩的时候<br/>
@@ -145,13 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1月25号：大功告成……馍馍出锅……
 ![img](https://media.gettr.com/group38/getter/2022/01/25/17/b43b7186-746c-b7e2-37d1-1e284f688559/out.jpg)
-
----
-
-`@miles 1/25/2022 5:06 PM (UTC)`
-
-1/25/2022 Miles Guo: The Major Achievement of “the Tian Mi Mi Movement” - The US government just made a significant historical decision to issue the “authorized evacuation” of the US embassy in Beijing. On behalf of the New Federal State of China, Mr. Miles Guo sincerely appreciates President Biden and Secretary Blinken. History will prove the significance of this decision for humanity and preservation of human rights.<br/><br/>1/25/2022 文贵直播：“甜蜜蜜运动”重大成果 - 美国政府刚刚做出的重大历史决定“授权撤离”美驻北京大使馆,  郭文贵先生代表新中国联邦代感谢拜登总统和国务卿布林肯先生，历史会证明该决定对人类和人权维护的重大意义！<br/>
-![img](https://media.gettr.com/group34/getter/2022/01/25/16/16ccec50-3dff-8c6f-31d6-b660547cab48/out.jpg)
 
 ---
 
