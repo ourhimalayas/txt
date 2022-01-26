@@ -2,25 +2,36 @@
 ---
 
 
-## NBA球员坎特继续被中共打压
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911588/)
+## 有声|中共邪教的第七个特征——篡改历史
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911691/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月24日，郭先生在大直播中再次提到中共符合邪教的六大特征，即教主崇拜、精神控制、编造邪说、聚敛钱财、秘密结社、反人类反社会，还要加上第七个特征：篡改历史。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-44-edited.jpg)图片来源：布赖特巴特
+郭先生说，篡改历史是其它邪教从来没有做过的，是中共特有的邪恶特质。中国五千年的历史被中共篡改了。中国人原先是有信仰的，信神、重视家庭，也尊师重教。但是，中共竟然把这一切都给灭了，以“爹亲娘亲不如党亲”的谬论洗脑，让中国人要“党”不要“德”。如今，中国人在邪恶中共的统治下最缺“德”。体现在这一次的疫苗灾难上，中共很多官员打假疫苗以及假打疫苗，他们会活下来，但无知的人却被灭了。中共篡改历史，是对中国人民与世界人民的极大伤害。
+
+原文链接：[中共邪教的第七个特征——篡改历史](https://gnews.org/zh-hans/1908495/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-据美国[布赖特巴特新闻]1月21日报道，中共大外宣《环球时报》日前公开污蔑NBA凯尔特人队球员伊内斯-坎特，并将其勇敢揭露真相和争取人权的行动妄称为与美国中央情报局合作的证据。
-
-据悉，中共在利用其大外宣打击坎特之前，就曾利用前NBA球员姚明来抨击坎特公开反对该政权种族灭绝的言论。而现在，中共再次利用其国家机器对该球员进行打压。
-
-报道称，NBA近年来不断出现声讨中共罪行的言论，包括2019年火箭队总经理莫雷曾表示要与香港民主法治站在一起； 坎特近期则公开谴责党魁习近平独裁、中共强摘器官并穿着斩首习近平形象的鞋子以示抗议。
-
-* * *
-
-采编：风云小哥           翻译：文莱               校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[China Floats Conspiracy Theory that Enes Kanter Freedom Is a CIA Agent (breitbart.com)](https://www.breitbart.com/asia/2022/01/21/china-floats-conspiracy-theory-that-enes-kanter-freedom-is-a-cia-agent/)
 
  
 

@@ -2,15 +2,24 @@
 ---
 
 
-## 【粤语配音】2022年1月25日： 新中国联邦重大公告 (5)
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1911906/)
+## 国际透明组织：中共国腐败超出国境 习近平利用反贪打击对手
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911941/)
 
-紐約香草山-香港部
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/0.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211116%2F480%2Fkbs-f9e8153aea0fd19ac2f0ab25835c5e57-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5279594-30&amp;tbnid=wVe6zUKhv9CH6M&amp;vet=12ahUKEwih4urH1M71AhWCJDQIHdZ0ClwQMygLegUIARC7AQ..i&amp;docid=6WfEmyijQa1F8M&amp;w=480&amp;h=320&amp;itg=1&amp;q=%E5%9B%BD%E9%99%85%E9%80%8F%E6%98%8E%E7%BB%84%E7%BB%87&amp;ved=2ahUKEwih4urH1M71AhWCJDQIHdZ0ClwQMygLegUIARC7AQ)
+在全球致力于反贪污腐败的“国际透明组织”（Transparency International）的办公室主任卡尔曼（Gary Kalman）表示，中共国在全球间参与的角色加重，腐败行为更已超出国境，例如以外援或腐败方式进入欧洲。研究专家库库奇卡（Roberto Martinez B.Kukutschka）就指出，独裁政府的反贪腐只会针对妨碍当政者的人，习近平的反贪腐只是打击的手段，未在媒体和公民社会中起任何作用。
 
-而且是在一个完全没有环境保护，完全没有自然下雪的自然条件情况下，要举办一个没有人性、没有人权，没有言论自由、没有人身自由的，所谓全球的健康纯洁的冬奥会.这和1935年希特勒举办的夏季奥运会和当年苏联举行的1980年奥运会如出一辙，它必将成为人类上，纯洁的奥林匹克精神上最大的侮辱和丑陋的事件，并且会因此对中国人民带来的伤害和人权的侵犯无法估量，奥林匹克委员会，背弃了自己奥林匹克的精神，出卖了自己的灵魂和原则，作为刚刚在美国成立了一年之多的，要推倒中国邪恶的非法政权共产党的，代表中国人的新中国联邦，追求一人一票选举的，政治制度的发起人，我本人和我的很多背后，冒着生命危险的战友们一直在为此奋斗，阻止共产党再一次的和希特勒当年苏联发生的当年的奥运会是由当年的犹太人，被伤害的犹太人联合起来，反对体抵制当年的1935年运动会，但是这个运动会之后，看到希特勒对几百万人，对犹太人的大屠杀，从1935到1945。
+国际透明组织也指出，这两年因为中共病毒（新冠病毒COVID-19）疫情因素，各国政府对于外界的问责和资讯透明度也影响到部分国家如西欧、欧盟的清廉形象，在亚太、美洲、东欧和中亚的部分地区，对问责措施和基本公民自由的限制越来越多，这使腐败的情况更加肆无忌惮，更让先前表现最好的国家也显示出衰退的迹象。
 
-我们不希望再发生在中国，所以我们誓死为此奋斗，我们和国内很多战友们，就不想在中国发生1935年以后的，所谓的奥运盛世之后，有政治环境和有理由，对中国其他种族和新疆、西藏以及香港，包括最终的目的是要侵略台湾，必将对台湾造成血流成河，因此我们全力以赴的阻止冬奥会在中国的举办。
+消息来源:
 
+[CPI 2021: HIGHLIGHTS AND INSIGHTS](https://www.transparency.org/en/news/cpi-2021-highlights-insights)
+
+[2021全球清廉指數排名公布 台灣25、美國27、中國66](https://tw.news.yahoo.com/2021%E5%85%A8%E7%90%83%E6%B8%85%E5%BB%89%E6%8C%87%E6%95%B8%E6%8E%92%E5%90%8D%E5%85%AC%E5%B8%83-%E5%8F%B0%E7%81%A325-%E7%BE%8E%E5%9C%8B27-%E4%B8%AD%E5%9C%8B66-024656148.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

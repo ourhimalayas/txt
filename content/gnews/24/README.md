@@ -2,42 +2,32 @@
 ---
 
 
-## 甜蜜蜜行动首发 静待二环连珠炮 郭文贵声震世界 新蒸一屉灭共馍
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1911796/)
+## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
 
-作者：香草山教育部-九妹
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
+图片来源：gnews.org
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-5.jpeg)
+旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
 
+随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
 
+接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
 
-2022年1月25日上午，郭文贵先生在临时大直播中向全世界郑重公布，美国即日起授权撤离美利坚合众国驻北京大使馆，北京政府已经接到官方正式通知。
+新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_3785.jpg)
+##### 新闻来源：
 
-此次重大决定由美国总统拜登和国务卿布林肯先生共同做出，再次印证美国自由、民主、法治的立国之本。这次民主思想的彻底胜利是众多爱护民主法治的人士以及全球各民族各国家无数正义之士坚决抵制北京冬奥会，发挥共同影响力的结果；达成了新中国联邦人和全世界热爱和平的人民的共同心愿；体现了伟大的美利坚合众国对人权和法治自始至终的坚定维护。
+##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
 
-国际核弹级决定由郭文贵先生率先向全世界公布，暗示着新中国联邦得到民主国家认可和正义力量的支持，同时标志着新中国联邦第一次正式走向国际舞台，具有划时代历史意义。世界至此只有两个选项，民主与专制，不分国界，只论正邪！
+##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
 
-应该注意，正式公布中以“北京政府”替换一贯使用的“中国政府”，显然美国政府否定了中共作为中国政府代表的合法性，已经视新中国联邦为新的中国政府合法代表。这是新中国联邦和爆料革命以及勇敢无畏的战友们取得的第一次实质性胜利！
+##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
 
-美国是国际社会的风向标，无疑随后的北京二环使馆区撤离秀将遍地开花，会有更多国家紧随其后，加入最后的正邪之战。郭文贵先生一锅馒头间强虏飞灰湮灭，至此，中共将兵败如山倒，新中国联邦必将在以美国为首的盟友加持下迅速得到国际社会认可，走向国际舞台！
+##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
 
-2022年1月25日这个甜蜜蜜的日子将被新中国联邦人永远铭记！甜蜜蜜的新中国联邦在这一刻蜚声国际！这是新中国联邦立足世界的一刻！这是正义与邪恶绝杀的制胜一刻！这是注定是人类历史上最绚丽的一刻！
-
-校对/发稿：飞虹
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
 
  
 

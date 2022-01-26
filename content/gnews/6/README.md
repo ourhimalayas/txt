@@ -2,24 +2,32 @@
 ---
 
 
-## 我们希望知道真相，希望知道详情！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911932/)
+## 上海帮的势力
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911967/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1111-1.png)（图片源自本文链接）
-１月２５日时事通信社消息：世界卫生组织（WHO）总干事谭德赛被提名为5月份下届总干事选举的唯一候选人，几乎保证了他的第二个任期。
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/上海帮的势力_01.jpg)
+直播时间：2021.12.01
 
-同日，世卫组织执行委员会进行了无记名投票。委员会批准提名谭德赛为下任总干事的唯一候选人。
+习近平在上海帮背后眼里就是傻子。
 
-对此，谭德赛说 “对重新获得的支持深表感谢”。
+头两天听说有人见到江泽民,江泽民说咱来看病，少说话，少见人，回去等着吧，好戏还没开始呢。
 
-笔者很希望能知道，具体都有谁，有权力提名？具体都有谁，有权利决定？
+习抓洗米华你就知道习手下没人。也没人想跟他干事，
 
-信息来源：[WHO次期事務局長選 テドロス氏が唯一の候補に（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/921ee13fd1047af0b2c702552b4aaeba69b8888f)
+孟建柱折腾两年了也没和他说实话，
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+王岐山更不会和他说实话。
+
+发布：*皮特*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

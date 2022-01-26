@@ -2,24 +2,27 @@
 ---
 
 
-## 世卫组织下一任秘书选举 谭德塞是唯一候选人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911590/)
+## 中美正在争夺坠入南海的F35C隐形战斗机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911701/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/99.png)[图片来源](https://news.yahoo.co.jp/articles/921ee13fd1047af0b2c702552b4aaeba69b8888f/images/000)
-日本雅虎新闻，世界卫生组织（WHO）秘书长谭德塞被提名为将于5月25日举行的下一届秘书长选举的唯一候选人，也是第二个任期。几乎肯定会继续。
+#### 撰稿：彩虹 
 
-世卫组织执行委员会在同一天进行了匿名投票。批准提名谭德塞先生为下一届秘书长选举的唯一候选人。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16431709561.png)图片来源：Tribunal Inquiry
+1月25日，《新闻极限》引述《每日邮报》周二的报道，指美国正在与中共国争夺周一坠入南中国海的F35C隐形战斗机。
 
-对此，谭德塞先生表示，“再次感谢大家的支持，我深表感谢”。
+美国海军方面称，在卡尔文森号航母（USS Carl Vinson）上发生“着陆事故”后，他们丢失了这架价值1亿美元的战斗机，同时也导致了7名军事人员受伤。
 
-信息来源：
+海军告诉《美国海军研究所》说：“分配给航母航空队（CVW）2的一架F-35C闪电II，在美国航母CVN 70号舰艇上着陆时发生了意外，撞击了飞行甲板，随后在例行飞行操作中落入水中。对飞行甲板的撞击是表面性的，所有飞行操作的设备都可以使用。”
 
-[WHO次期事務局長選 テドロス氏が唯一の候補に](https://news.yahoo.co.jp/articles/921ee13fd1047af0b2c702552b4aaeba69b8888f)
+据《每日邮报》报道，F-35的海军版本，即F-35C，能以1.6倍音速飞行，作战半径为1200海里。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+此外，卡尔文森号的指挥官汤米·洛克（Tommy Locke）上尉在8月说：“卡尔文森号是第一艘可容纳第四代和第五代攻击战斗机的航母，提供了前所未有的杀伤力和生存能力，确保海军团队现在和未来都能在有争议的战斗空间中作战并获胜。”
+
+**新闻来源**
+
+[US Races Against China to Recover Submerged $100m Stealth Fighter](https://www.newsmax.com/newsfront/military-technology-china-taiwan/2022/01/25/id/1054001/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

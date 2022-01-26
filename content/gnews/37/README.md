@@ -2,32 +2,36 @@
 ---
 
 
-## 原中国银监会副主席蔡鄂生因严重违法违纪、滥用金融监管权被开除党籍
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911637/)
+## 有声|喜币开创世界经济新局面
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911736/)
 
-整理：纱娜宝贝
-编辑：Little Lamp
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-25-下午8.01.42.png)
-据路透社1月24日报导，中国中央纪委国家监委最新宣布，给予原中国银行业监督管理委员会副主席蔡鄂生开除党籍处分，收缴其违纪违法所得，并将其涉嫌犯罪问题移送检察机关依法审查起诉。
-官方简历显示，1951年出生的蔡鄂生是老央行人，在中国央行系统工作20余年，官至中国央行行长助理兼上海分行行长；2001-2005年，他转任国有重点金融机构监事会主席，并于2005年12月出任中国银行业监督管理委员会副主席。
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+1月25日，郭文贵先生在最新一期的大直播节目指出，目前美股市场已普遍出现20%～40%的暴跌，这意味着以美元为核心的全球金融体系正在崩塌之中。而喜币和喜联储的横空出世将会为世界经济呈现崭新局面。
 
-中纪委去年7月宣布对曾被业内人士称作信托业“头号功臣”的蔡鄂生展开纪律审查和监察调查。
+郭先生在节目中具体阐释道，自2019年至2021年底，全球累计印发了260万亿美元，货币超发程度相当于世界GDP的近两倍。直至当前，美股市场虽因巨额货币的超发而未直接出现崩盘现象，但世界经济危机的爆发已刻不容缓。全球数字货币市场虽仅拥有3万多亿美元，却将是世界经济的唯一未来，也将是260万亿美元的唯一归宿。
 
-日前对蔡鄂生严重违纪违法问题进行了立案审查调查，经查，发现其滥用金融监管权，严重扰乱金融市场秩序，严重污染金融领域政治生态。
+原文链接：[喜币开创世界经济新局面](https://gnews.org/zh-hans/1909420/)
 
-而且利用职务便利和影响力为他人在融资贷款、项目承揽、职务晋升等方面谋利，并非法收受巨额财物。
+音频处理/发稿：Daxia
 
-在中共体制内部，类似蔡鄂生这样利用公权谋私利的官员比比皆是，这样的体制也必将从它腐朽的内部败亡，雪崩的时刻没有一片雪花是无辜的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-新闻来源：[原中国银监会副主席蔡鄂生被开除党籍 因严重违法违纪、滥用金融监管权等](https://cn.reuters.com/article/china-cbirc-cai-ccdi-probe-0124-idCNKBS2JY07F?il=0)
+**更多资讯，更多关注**
 
-发布*：tianzhihuan*
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

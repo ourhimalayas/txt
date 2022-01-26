@@ -2,32 +2,42 @@
 ---
 
 
-## 郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1911850/)
+## 新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
+` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/1911884/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-426.jpg)
-图片来源：gnews.org
+作者：五月花农场 DM
 
-旅居美国纽约的爆料革命和新中国联邦发起人郭文贵先生于美东时间2022年1月25日上午9:57分在GTV和GETTR上首先向外界透露，经美国国务卿安东尼·布林肯提议，美国总统乔·拜登批准，美国从今日起向美国驻中共国使领馆外交人员正式发出“授权撤离”的通知，理由是新冠病毒疫情。郭先生代表新中国联邦和爆料革命对此向美国总统拜登和国务卿布林肯表示衷心的感谢，这代表着中共政府已经在国际失去了合法性，中共行将走进历史的垃圾堆。
+2022年1月25日，郭文贵先生代表新中国联邦签署了致美国政府的感谢信，对关闭美国驻北京大使馆的决定，向拜登总统和布林肯国务卿表示感谢。信函全文如下：
 
-随后中共国环球时报中文版和英文版分别于北京时间2022年1月26日凌晨1:31分和1:40分，相当于美东时间1月25日12:31分和12:40分发表题为“独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”。证实了郭先生的消息，该文的末尾写道：“2022年，可能会成为艰难的，高风险的一年”。
+致：乔·拜登
 
-接下来，亚洲新闻频道和路透社分别于中国时间1月26日上午7:21分和美东时间1月25日下午8点36分发表文章，题目类似，即因为新冠疫情规定严苛，美国政府向驻中共囯外交人员发出了授权撤离的通告。
+美国总统
 
-新冠病毒已经肆虐了两年，如今在冬奥会前撤离外交人员，在中共政府中形成的震荡可想而知。
+安东尼·布林肯
 
-##### 新闻来源：
+国务卿
 
-##### 1.     [US prepares to allow diplomats to leave China over strict COVID-19 rules](https://www.channelnewsasia.com/asia/us-allow-diplomats-leave-china-covid19-strict-rules-2459611)
+主题：美国驻北京大使馆
 
-##### 2.    [U.S. considers allowing diplomats to leave China over strict COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/) 
+新中国联邦注意到，您已授权开始关闭美国驻北京大使馆。自2020年6月4日成立以来，我们一直在倡导这一行动，我们对此表示赞赏。
 
-##### 3.    [Exclusive: Dirty trick again! US plots to authorize departure of staff from embassies in China over epidemic ahead of Beijing Olympics – Global Times](https://www.globaltimes.cn/page/202201/1246933.shtml)
+如您所知，我们是中国人民的替代管理机构，反对跨国犯罪组织中国共产党。这些犯罪分子最近从武汉的武器实验室向全世界传播致命的COVID 19的活动在我们看来是对无辜的中国人民和全人类的种族灭绝行为。
 
-##### 4.    [1/25/2022 文贵重大公告完整版 |  Miles Guo’s Big Announcement Full Version – G|TV (gtv.org)](https://gtv.org/video/id=61f08b6d87664c47acda02ac)
+最近北京关于奥运会前Omicron传播的谎言和不实陈述使北京对所有人来说都是危险的，尤其是您在北京大使馆的工作人员。
 
-##### **5.    **[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
+我们赞赏并支持您通过关闭大使馆的行动来强调这种政权的危险。我们支持进一步否认中共是中国和中国人民的合法政府。
+
+敬上
+
+郭文贵先生
+
+新中国联邦创始人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/letter-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/信-2.jpg)
+郭文贵先生在过去5年来一直致力于灭共，郭先生最早向世界爆出中共的种族大屠杀，早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方。
+
+
+
+编辑/校对/发稿：DM
 
  
 
