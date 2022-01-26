@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 4:57 PM (UTC)`
+
+The following questions are worth pondering after watching this interview with Dr. Vladimir Zelenko:<br/>1️⃣Is COVID-19 a naturally occurring virus or something else?<br/>2️⃣Why would someone like Dr. Zelenko, who is successful in treating COVID-19 patients, become controversial?<br/>3️⃣Why is a proven treatment method against COVID-19 viruses suppressed? <br/>4️⃣Why must they get everyone to take COVID-19 vaccines to the extent that they would not allow people to get healed with an easy way with Therapeutics. <br/>5️⃣What is the whole purpose of this pandemic? Why is this happening?<br/><br/>看完 Vladimir Zelenko 博士的采访后，以下问题值得深思：<br/>1️⃣新冠病毒是自然产生的病毒还是有其他来源？<br/>2️⃣为什么像 Zelenko 博士这样成功治疗新冠患者的人会引起争议？<br/>3️⃣为什么一个被验证的行之有效的治疗新冠病毒的方法被压制？<br/>4️⃣为什么他们必须让每个人都接种新冠疫苗，以至于他们不允许人们通过简单的治疗方法治愈病人。<br/>5️⃣全球大流行的真正目的是什么？为什么会发生？
+![img](https://media.gettr.com/group36/origin/2022/01/26/16/8af583bb-e566-d15a-354a-5f5eea3ba08c/out.jpg)
+
+---
+
 `@miles 1/26/2022 3:20 PM (UTC)`
 
 1月26:第二次发Gettr、对上个视频的补充
@@ -145,13 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 2022年1月25日 紧急直播：甜蜜蜜运动重大公告<br/>Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement
 ![img](https://media.gettr.com/group26/origin/2022/01/25/14/d69e1be5-c5fd-3620-2f66-1347ffabd31a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/25/2022 2:10 PM (UTC)`
-
-1月25日，尊敬的战友们, 七哥马上开始有关“甜蜜蜜运动”重大紧急公告，请到GTV和盖特观看直播！<br/><br/>January 25th, 2022 Dear fellow fighters, Miles Guo will have important emergency announcement about the “ Tian Mi Mi Movement” very soon, please go to GTV and GETTR for live broadcast!
-![img](https://media.gettr.com/group29/getter/2022/01/25/14/51729ac6-e202-34c5-fabd-bd82967cf160/da9b2af69d08b24c5644c2236ef714cc.jpg)
 
 ---
 
