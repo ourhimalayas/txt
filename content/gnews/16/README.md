@@ -2,27 +2,20 @@
 ---
 
 
-## NBA对种族灭绝视而不见
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1913002/)
+## 议员倡货柜码头搬迁至内地 图转移吸金力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1913012/)
 
-##### 翻译：文载 
-校对：枳实
-剪辑|字幕：蛮吉
-编辑：Mttfly
+作者：东京樱花团丨阿恩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/lLacq4Sx1tGt1mSSGNAyI57_SkhK7i8hhGmJMYRpiTE.jpg)[*图片来源*](https://www.hk01.com/%E6%94%BF%E6%83%85/728892/%E5%BB%BA%E5%88%B6%E4%BF%83%E9%81%B7%E8%B2%A8%E6%AB%83%E7%A2%BC%E9%A0%AD%E5%BB%BA%E5%B1%8B-%E9%99%B3%E5%B8%86-%E7%84%A1%E6%B3%95%E4%B8%AD%E7%9F%AD%E6%9C%9F%E6%88%90%E4%BA%8B-%E6%9D%B1%E5%A4%A7%E5%B6%BC%E5%8C%97%E9%83%BD%E6%9C%83%E6%9B%B4%E4%BD%B3)
+不少立法会议员倡议将葵青货柜码头搬迁，甚至退到大湾区内地城市。运输及房屋局局长陈帆表示，港口的贸易及物流业是本港四大经济支柱之一，占本地生产总值约五分之一，即使大湾区其他港口快速发展，香港一直保持十大港口之一，葵青货柜码头的吞吐量占去年香港吞吐量超过八成，是亚洲区内主要转运港。他称搬迁葵青货柜码头耗时长，无助短、中期土地供应，发展北部都会区及中部水域人工岛的效率更快。
 
-据福克斯新闻报道，NBA金州勇士队的股东查马特·帕里哈皮提亚（Chamath Palihapitiya）公然声称：“没有人关心维吾尔人身上发生的事情。”美国参议员汤姆·科顿（Tom Cotton）评论，对查马特来说，所有这些都是为了利润，在中国也都是为了利益。他不会说任何会危及他进入中国市场或获得中国资金的事情。他把利润置于原则之上。NBA金州勇士队在这里明显地保持了沉默。金州勇士只是发表了一份声明，说他们不同意他的观点，甚至没有说明观点是什么。他们甚至害怕提及这个话题，更不用说表态了。
+香港的维多利亚港湾是贯穿香港闹市的优质深水港，货轮可以驶入市区码头卸货，与陆路无缝接驳，货物流转时间非常短，虽然这两年货运码头深受中共病毒疫情的影响，吞吐量大减，但依旧是香港的经济支柱之一。立法会的议员是中共的传声筒，他们要求港府释放码头的土地，搬迁码头到大湾区的内地城市，其险恶用心昭然若揭。中共空手套白狼的能力屡试不爽，特设大湾区逼香港的金融、地产、航运、科技等创汇产业迁入，试图转移香港的吸金能力。这种强盗式的专政只能夺取香港的财富，而与人力资源息息相关的核心技术却无法窃取，中共管制下的香港已经失去了国际交流的吸引力，加上本地各界人才纷纷逃离香港，令香港的创新能力和价值创造能力大减，港府为此修改引入海外人才的法律，还向各大院校大量注资培养本地人才。不过，只要中共的白色恐怖一日笼罩在香港的上空，香港的院校就难以有学术自由和创新能力，更加难以吸引海外人才加入，失去国际性的香港就如死水一潭，中共即使耗尽了香港的资源，也不能如愿以偿。
 
-视频链接：[Tom Cotton rips Warrior’s co-owner for ‘shocking moral indifference’ to Uyghur human rights abuses](https://video.foxnews.com/v/6292434909001#sp=show-clips)
+资料来源：[**建制促迁货柜码头建屋陈帆：无法中短期成事东大屿北都会更佳**](https://www.hk01.com/%E6%94%BF%E6%83%85/728892/%E5%BB%BA%E5%88%B6%E4%BF%83%E9%81%B7%E8%B2%A8%E6%AB%83%E7%A2%BC%E9%A0%AD%E5%BB%BA%E5%B1%8B-%E9%99%B3%E5%B8%86-%E7%84%A1%E6%B3%95%E4%B8%AD%E7%9F%AD%E6%9C%9F%E6%88%90%E4%BA%8B-%E6%9D%B1%E5%A4%A7%E5%B6%BC%E5%8C%97%E9%83%BD%E6%9C%83%E6%9B%B4%E4%BD%B3)
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/文小白*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
