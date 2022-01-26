@@ -2,36 +2,37 @@
 ---
 
 
-## 【圆成原创】在中共治理下，良知经济学者只能郁郁而终
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1914998/)
+## 有声|欧洲议员就强制疫苗怒斥马克龙
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915188/)
 
-**作者：面包飞上天**
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月23日，郭文贵先生盖特转发了一则视频，在欧洲议会上，有议员质问法国总统马克龙说，在中共病毒肆虐期间，法国政府对公民的权利和自由制定了许多限制，而马克隆对法国的一切，却跟他在主持欧盟期间所作的完全相反。
 
-今天不经意间看到著名经济学者张维迎的文章，很有感慨。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9C702C40-76EE-455C-AFDE-5060B3C50E8A.png)图片来源：[禁书网](https://www.bannedbook.org/forum20/topic18383.html) 
-这是若干年前的一个文章，总结中共过去几年究竟是什么推动了中国经济的高增长，他的结论是改革开放后资源配置效率的提高，提出了中国未来经济若要持续增长，要把寻租活动转向创造价值的活动。并提出了5点建议：
+该议员表示，马克龙曾说过为欧洲没有死刑而感到骄傲，但是现在数以万计的欧洲人，正在因为中共病毒疫苗的副作用而死亡。强制接种中共病毒疫苗，对许多公民来说就是死刑和被执行死刑，每个公民必须有选择的权利。该议员强调说，谋杀就是谋杀，而尤其是对那些不知道真相和没受过教育的人，并不知道疫苗是没有经过验证和充分科学证明的谋杀人的生化武器。
 
-1. 保护企业家剩余价值索取权。
+原文链接：[欧洲议员就强制疫苗怒斥马克龙](https://gnews.org/zh-hans/1906748/)
 
-2. 减少政府干预经济活动。
+音频处理/发稿：Daxia
 
-3. 政治体制改革。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-4. 建立相对独立的司法制度，使政府在法律范围内行事。
+**更多资讯，更多关注**
 
-5. 减少政府控制的资源数量。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-像张维迎之类的经济学者的理想永远不会实现，除非改朝换代。因为这篇文章发表之后的现在，从习近平上台后，所进行的经济措施都是倒行逆施。说一点真话的经济学者要么关闭微博，要么打压，经济圈只剩下一批政策解读派，坚定的政策支持派。大学里学的经济学、金融学，教导的都是政府指导经济进行资源配置，突出政府主导地位，这是整个国家的悲哀。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**编辑：LILY**
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**发布：歪桑**
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-20220126
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

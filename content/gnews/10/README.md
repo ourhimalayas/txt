@@ -2,35 +2,44 @@
 ---
 
 
-## 文贵先生盖特精要2022/01/26&#8211;02
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1914972/)
+## 参议员科顿：美国应该像支持乌克兰一样支持台湾
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915151/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2196.png)[盖特直播链接](https://gettr.com/post/pqowzm92cc)
+作者：纽约香草山农场 – 四季
 
-战友们不要这么敏感，什么**CNN**啊，鲍彤鲍老转发啊。鲍老可是有大智慧的人，爆料革命从最开始就得到了鲍老的支持。新中国联邦的恩人之一非鲍老莫属，他也因此而受到无数的威胁陷害。鲍老可是中国不可多得的铁骨铮铮的汉子！我见过鲍老几次，跟他周围的人打过交道。这人一看就是知识分子，很帅气，腰板儿倍儿直，从不弯腰。中国男儿多几个鲍老就好了！鲍老的转发是有智慧的，请战友们也要有智慧。
-
-咱战友就别预测，总在乎别人的看法，咱就干不成事儿了。这事儿已经发生了，无法改变了，至于多米诺骨牌后面的那些块儿是怎么倒的、什么时候倒，就跟咱没关系了。战友们要接受别人的批评、怀疑、辱骂，这洽洽说明别人在乎咱。咱们不能跟共产党似的，永远百分之分正确，啥都不让人家张嘴，就它一家言，想编啥编啥。战友们，心胸要放开！忌犯大头症！
-
-美国撤馆这件事让七哥兴奋的点是：这件事情发生的过程之中，共产党的应对方法。如果是共产党内部应对得很及时，处理得既专业又国际化，说明共产党死期还未到。中共的处理方式显示了他们完球蛋了，只会在内部抓人、整人，永远的伪光正。中共对待经济、外交、国家安全、信息控制几乎是混乱的，那就预示着这个国家政权完蛋了。这才是我的兴奋之处！
-
-这件事情两个月以前我就知道，它一定会发生的。中间当然有各种交易，中共被美国玩儿得滴溜溜转。某国已经等待议会对该国撤离中共国的讨论和表决，要求对中共国的病毒溯源，要求去新疆实地了解种族大屠杀。该国人士声称，中共的所作所为及美国的行动，给我们国家的政治体制决策者提供了很好的工具和理由。
-
-多米诺骨牌已经开始倒了！
-
-*听写：**trustguo***
-
-*校对**: **小雨*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[布莱特巴特新闻网](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)1月25日报道，在福克斯新闻频道周二播出的 “故事”节目中，参议员汤姆·科顿（Tom Cotton）认为，美国应该向台湾提供更多援助和支持。
+
+科顿表示，中共和普京都想推美国其全球超级大国的地位。美国应该从过往的绥靖、和解和软弱中吸取教训。因为对美国来说，中共国相比俄罗斯对美国构成了更大的威胁。
+
+科顿认为，美国应该向台湾提供和乌克兰一样多，或比其更多的武器、外交、财政和政治支持，以避免台湾发生今天在乌克兰边境看到的危机。台湾对美国来说比乌克兰要重要得多。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 
