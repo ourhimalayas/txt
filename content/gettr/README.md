@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 1:26 PM (UTC)`
+
+1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告<br/><br/>January 26, 2022 CNN news: US embassy in China authorised to departure which verifies Miles Guo’s important announcement yesterday.<br/><br/>https://www.cnn.com/2022/01/26/china/china-us-embassy-authorize-departure-intl-hnk/index.html
+
+---
+
 `@miles 1/26/2022 1:09 PM (UTC)`
 
 January 26, 2022 CCP “Wolf warrior” Zhang Lijian threatens U.S. evacuation of embassy personnel will greatly increase risk of infection virus<br/><br/>1月26日 中共战狼赵立坚威胁美方撤离领使馆人员将极大增加感染病毒风险<br/>
@@ -146,13 +152,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1/24/2022 Miles Guo: History is repeating itself, and God is on the side of the New Federal State of China! Thank Xi Jinping for hosting a grandiose Winter Olympics - spending a ton of money to let Putin stay 20 hours longer, changing the banquet venue from the Pangu Plaza to the Great Hall of the People, putting the athletes into the "cells", and deploying State Security agents everywhere in the dining halls.<br/><br/>1/24/2022 文贵直播：历史在重演，上天站在新中国联邦这边！感谢习太阳大办冬奥会 - 花大价钱让普京多呆20小时，宴会场所从盘古改到人民大会堂，让运动员进入“牢房”，餐厅到处是国安。<br/>
 ![img](https://media.gettr.com/group19/getter/2022/01/25/07/c6eaa58d-07a0-b71a-8209-5bf4f001fb91/out.jpg)
-
----
-
-`@miles 1/25/2022 7:22 AM (UTC)`
-
-1/24/2022 Miles Guo: I talked to those who wanted to invest in the Himalaya Coin and advised them to stay away from Binance, with people praising the genius design of Himalaya Coin – the Himalaya Pay guarantees secure transactions at any time without being controlled, the Himalaya Coin has stablecoins and the best KYC, and a series of Himalaya financial services will be launched in the future<br/><br/>1/24/2022 文贵直播：文贵向要投喜币的人谈喜币并劝其远离币安，众人大赞喜币的天才设计 - 喜支付保证随时交易、安全不受控，喜币有稳定币和最牛KYC，未来会推出一系列喜金融服务<br/>
-![img](https://media.gettr.com/group14/getter/2022/01/25/07/07c65fc7-e56d-cad4-a0cc-b814867c9add/out.jpg)
 
 ---
 
