@@ -2,29 +2,34 @@
 ---
 
 
-## 甜蜜蜜灭共战役出其不意拉开帷幕
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914296/)
+## 州长注册为代课老师 以应对学校教师短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914361/)
 
-采编：Quitman               编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image.png)
-据[枫叶快讯]记者1月25日报道，[新中国联邦]创始人[郭文贵]先生在日前的直播节目中称，或将于春节和冬奥会期间，在北京二环以内中心地带唱响“甜蜜蜜”以歌灭共运动。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据美国媒体1月23日报道，新墨西哥州州长米歇尔·卢扬·格里沙姆称，自己已注册成为代课教师，以解决学校和儿童保育中心由中共病毒造成的人员短缺问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午11.33.36.png)
+报道称，这位州长并没有教育经验，但预计下周将被安排在一所小学担任替补教师。
 
-但令所有人始料不及的是：“甜蜜蜜”言犹在耳之际，文贵先生却在当天上午的紧急直播中正式公告天下：美国政府将从即日起逐步撤离和关闭其驻中共国北京大使馆，并以此揭开了这场灭共于千里之外重大战役的序幕。
+媒体指出，格里沙姆州长是上周公布的“支持教师和家庭”倡议的100人之一。她表示这一决定是中共病毒病例激增导致人员极度短缺的结果。
 
-文贵先生智勇双全的品质因在近五年的爆料革命运动中表现得淋漓尽致，而令中南坑内肝胆俱裂。这次“甜蜜蜜”灭共行动一言既出，中共当局瞬间魂飞魄散，立马全网封杀了该歌曲在国内的下载和播放，而[新中国联邦]对中共政权的震慑力则再次因此展现于全世界面前。
+1月21日，新墨西哥州卫生部门报告了 6,198例新的中共病毒病例，确认数处于高位。
 
-在中共被吓得颤若筛糠之际，文贵先生却“明修栈道，暗度陈仓”，并出敌之不意，先于美国政府发出了以上让总加速师习近平惶惶不可终世的末日通牒。至此，甜蜜蜜运动不仅向世人鲜明展示了[新中国联邦]的崇高国际地位和强大的正义实力，同时还将在中国大地敲响中共政权即将崩亡的丧钟。
+参考链接：[New Mexico governor becomes substitute teacher amid school staffing shortage](https://thehill.com/homenews/state-watch/590994-new-mexico-governor-becomes-substitute-teachers-amid-school-staffing)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-发稿： 苦尽甜来 (文來）
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-新闻链接：
-
-[https://gettr.com/post/pqd94s2312](https://gettr.com/post/pqd94s2312)
-
-[https://gettr.com/streaming/pqha4z557d](https://gettr.com/streaming/pqha4z557d)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,26 @@
 ---
 
 
-## “清零政策”逼逃港金融精英
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914355/)
+## 日本醫療人員恐第三針疫苗引發副作用 多數人員拒絕接種
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1914373/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-迄今为止，香港740万人口累计13,000例新冠感染病例，远低于世界绝大多数国家和地区。但由于落实北京新冠“清零”政策，香港实施了全球最严格的入境规定，只允许本地居民返回，并对来自多数国家的入境人士进行长达三周的强制性自费隔离。即便如此，周日仍然有140例新增感染病例，显然，严格的检疫措施对“清零”并无帮助。目前，没有迹象表明政府会放宽限制。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.14.png)
-猎头公司和行业高管告诉路透，更多的外籍人士因此正在考虑离开香港。全球银行、资产管理公司和企业律师事务所的从业者，也可能在一季度领到年终奖后离职。香港美国商会最近进行了会员调查，超过40%的受访者表示，他们更有可能离开香港，大多数人认为国际旅行限制是首要决定因素。
+**日本東京方舟農場 Kevin wang**
 
-根据香港政府统计处的数据，去年来自所有国家的“一般就业政策”签证申请总数下降了三分之一，降至10,073人。金融服务行业的签证申请下降了23%，金融服务人才库会越来越小。
+據中央社1月26日報道稱，日本政府規劃爲醫療人員和老人優先接種第三針疫苗，但民衆意願不高，接種率偏低。部分醫療人員因擔心疫苗產生副作用，而推遲接種。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-24.png)（圖片來自中央社）
+報道稱，日本政府日前規劃爲醫療工作人員與高齡者優先接種第3劑疫苗，從去年12月到今年1月底預計爲約1470萬人施打，包括醫療工作人員576萬人、65歲以上高齡長者約650萬人，以及64歲以下約244萬人。但依據中央政府的「疫苗接種紀錄系統」（VRS）紀錄，截至1月23日，僅約236萬人完成接種第3劑，約爲規劃接種人數的16.1%。
+報道指出，醫療工作人員中有人因擔憂副作用而拒絕接種第3劑。其中奈良縣內的醫院相關人士說，因爲擔心副作用，又要確保醫療能量，因此沒有加緊接種，奈良縣目前第3劑接種進度爲10.7%。
+另有老人照護表示，入住的老人多有罹患認知症等無法確認本身意志者，需要花時間向家人說明與取得同意，很難提早爲這些老人接種疫苗。
+此外，COVID-19疫苗所引發的副作用引發關注， 據社交媒體GETTR上ID爲‘連新社’的媒體發佈的一則視頻表示，疫苗中的氫氧化石墨烯和其他未知成分提升導致血栓、心臟病和中風等疾病的風險，從而對身體造成不可挽回的傷害。
 
-参考链接：[Hong Kong’s financial sector faces talent crunch as expats head for the exit](https://www.reuters.com/markets/europe/hong-kongs-financial-sector-faces-talent-crunch-expats-head-exit-2022-01-23/)
+參考鏈接：
+1：[https://www.cna.com.tw/news/aopl/202201260060.aspx](https://www.cna.com.tw/news/aopl/202201260060.aspx)
+2：[https://gettr.com/post/pqfo21a38b](https://gettr.com/post/pqfo21a38b)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+素材採編：Kevin wang
+編輯： 青城道姑
+發佈：文曦
 
-总编：Zion文恩
-编辑：百香果
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

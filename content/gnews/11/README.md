@@ -2,58 +2,36 @@
 ---
 
 
-## 【Michael.Tonny专栏】基于伊维菌素的COVID-19联合疗法和用药方法
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1914546/)
+## 罗伯特-马龙博士：欧洲人民仍希望美国能领导我们走出困境，美国人会是好样的！
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1914675/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+#### 加拿大温哥华扬帆农场 视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+素材：文倩
+翻译：Spirit
+字幕：文雅
 
-本文摘自澳大利亚新南威尔士洲五码头消化疾病中心（Centre for Digestive Diseases, Five Dock）和新南威尔士州纽卡斯尔大学健康与医学学院（Faculty of Health and Medicine, University of Newcastle）Thomas J. Borody等人于2021年10月19日发表在[trialsitenews](https://trialsitenews.com/)的临床研究论文[COMBINATION THERAPY FOR COVID-19 BASED  ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)。主要介绍伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）在降低COVID-19患者住院和死亡风险方面的临床研究结论。
+参加游行的有小罗伯特-肯尼迪、美国前线护士团体和联邦医疗自由组织，该组织由6000名反对强制疫苗的联邦工作人员组成，罗伯特-马龙博士也将出席，他是mRNA技术的发明者。他今晚加入了我们的节目，马龙博士非常感谢您的到来，我只想毫不掩饰地说，真的很高兴这终于发生了，您为什么要加入呢？
+ 
+你好塔克，非常感谢给我机会来这里，我加入是因为我是一个科学家，我致力于此，我也致力于医学伦理，不幸的是我们已经将疫苗政治化了，我们不需要这样做，我们真正应该关注的是科学，现在科学已经清楚地表明这些疫苗根本没有意义：它们不能有效地阻断病毒的传播、不能阻止你被感染、不能阻止传染给其他人，因此没有理由强制疫苗，我并不是反对疫苗，我是一名疫苗专家，我是一名30年的科学家和医生，我研发和产生这些mRNA疫苗的核心技术，但现在很明显科学已经证明了，把这些疫苗强加给人们没有意义。
+ 
+我们在这方面有共识，在看了日本皇军和纳粹在医疗实验中的所作所为后，我认为美国医生同意强制医疗是不道德且不人道的，永远不能强加疫苗给任何人，从什么时候开始人们忘记了这一点？ 
+ 
+显然大约一年前…我想其实可能就在昨天，尽管拜登在当选前曾明确表示他不会强制接种疫苗，谢谢你提起纽伦堡审判，这是一个关键的生物医学伦理问题，坦率地说这是非法的，我很高兴法院明确了这一点，不幸的是这么多联邦工作人员和我们军队的很多成员被强迫接种这些疫苗，他们在违背意愿的情况下被用作疫苗试验品。
+ 
+很多了解内情的医生和科学家拒绝站出来拒绝这个不道德的事情，他们反而成为辉瑞公司的公关代理，这是否让你感到震惊？这是多么令人痛心的事情？
+ 
+令人震惊的是，这对我们整个医疗系统以及HHS的信誉造成了深远的损害，我认为必须进行清算。
+ 
+是的这让我非常难过，我们的医疗系统曾是我们最为自豪的东西，非常感谢…
+ 
+如果可以的话我想用结束一下，我刚刚从欧洲回来，欧洲人仍然希望美国能够带领人们，美国人是好样的，我们会渡过难关的，人们仍然在寻找闪亮的山城，他们仍然在寻找卡米洛(繁荣的希望之地），我们可以再次成为那个卡米洛，那个希望之城，我们可以从中恢复过来，我们是善良的人门，我们会从中恢复过来。
+ 
+祝福你和你的鼓舞，罗伯特-马龙博士，即将出版的新书《政府告诉我的谎言》的作者，很高兴今晚能见到你。
 
-2021年6月1日~2021年9月30日期间，通过对600名经PCR测试确诊COVID-19阳性两天内的门诊患者，使用为期10天的伊维菌素三联疗法（Ivermectin Triple Therapy，ITT）。
+谢谢你。
 
-具体用药方法是：伊维菌素24mg/天（ivermectin，24 mg per day)、每天晚餐前30分钟100mg强力霉素（doxycycline，100 mg bd)和锌50mg/天（zinc，50mg per day)。
-
-有7%的患者还使用了维生素（vitamins）和营养补充剂（nutritional supplements）。
-
-只有7% 的人在治疗中有轻微不良反应，主要是恶心（nausea）、腹泻（diarrhoea）和胃灼热（heartburn）等轻微的肠道症状（gut symptoms）。但没有人因此停止该治疗方案。
-
-最终仅5人（0.83%）需要住院治疗，无一人死亡。
-
-而在对照组的600名患者中，有70（11.7%）人需要住院治疗，6人死亡（1%）。
-
-证明使用伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）可降低死亡风险92.3%，降低住院率92.9%。
-
-研究人员将COVID-19早期确诊患者根据发烧（Fever）、头痛（Headache）、咳嗽（Cough）、味觉丧失(Loss of Taste)、嗅觉丧失（Loss of Smell）、腹泻（Diarrhoea）、呕吐（Vomiting）、疲劳（Fatigue）和肌肉疼痛（Muscle Pains）等10种常见COVID-19症状的严重程度，按视觉模拟量（Visual analogue scale）监测值划分成0~10范围的不同得分。0表示没有相关症状，10是最严重的症状表现。总症状严重程度分数是评这10症状得分的总和，总分为 100分。血氧饱和度读数得分为100%。
-
-其中，测试组中126名平均年龄为42岁（17~94岁）的酒店或家庭隔离患者可用于详细评估症状和氧合状态（oxygenation status）。
-
-对这126名患者的Covid-19感染症状视觉模拟量表监测显示，经过10天的伊维菌素三联疗法治疗后，患者从治疗开始时的中位总症状严重程度评分37分（范围：0~100）下降到治疗结束时的3分（范围：0~62）。
-
-研究表明，尽管嗅觉/味觉丧失、咳嗽和疲劳，会持续比较长时间，然而，在10天治疗期结束后，所有症状的严重程度评分均显著降低。而未使用伊维菌素三联疗法的 Covid-19患者的症状减轻通常需要2~4 周。
-
-证明使用伊维菌素三联疗法对COVID-19患者具有显著的疗效。
-
-最终结果如下表：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TrialSite-media-release-19.10.jpg)
-
-表中N 表示有此症状的患者人数
-
-SD表示标准偏差
-
-\*进行了非参数配对t检验
-
-参考数据：
-
-[COMBINATION THERAPY FOR COVID-19 BASED ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)
-
-[trialsitenews](https://trialsitenews.com/)
-
-[Combination Therapy For COVID-19 Based on Ivermectin in an Australian Population](https://trialsitenews.com/combination-therapy-for-covid-19-based-on-ivermectin-in-an-australian-population/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+编辑/发文：Kent
 
  
 

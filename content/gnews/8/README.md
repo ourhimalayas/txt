@@ -2,47 +2,48 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“北京冬奥会”（七）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1914628/)
+## 郭先生直播厅——灭共集结号
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1914717/)
 
-整理：BENJ1
-编辑：Kelly
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2112121.png)图片来源：墨尔本雅典娜农场设计组（614）
+设计者：纽约香草山设计部 — 纽约小哥，六道，蜂鸟
 
 
-郭文贵先生**2021**年**12**月**8**日直播
 
-最近房地产、冬奥会一看不行了，许家印绝对撑不住了，说：“放雷！我给你美国承诺的房地产公司可以定向定时倒闭、破产，现在你冬奥会不来了是吧？我就让他们不还钱了，放狗咬人。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-融创、恒大，还有合生创展、绿地、富力、万达，包括SOHO潘石屹，所有这些（房地产公司）全部开始定向爆破，要炸给美国看，死给美国看，就像美国人到家门口之前，对着自己的孩子照脑袋上开枪，“你看我有没有种！”朝男孩儿、女孩儿开枪，这就是共产党，永远这样。
 
-明年5月份以前一定是经济大萧条，经济大灾难，不会超过5月份，很大的概率是5月份左右。然后就是疫苗灾难、大死亡，人类进入世界最黑暗的时刻，全球灭共，那时候冬奥会已经是过去式了。共产党的经济、共产党的整个社会内乱，不可能撑下去。如果中国人不能把中南坑的这帮老杂毛给活吃了，活剥了，中国人就不配活在地球上。
 
-郭文贵先生**2021**年**12**月**10**日直播
 
-在今天（大直播）开始前，我先说一个让大家很振奋的消息，我相信可能是很少人知道。大概在20分钟之前，欧洲大概有四个国家明确地对中共说：“我们要抵制奥运会，不但抵制奥运会，最重要的是还作出一个决定，我们正在考虑与你中共经济脱钩，我们要在WTO对你发起一系列的抗议。”
 
-欧洲的咱们的政治游说公司说：“郭先生，在你直播前我告诉你个好消息，他们已经发过去了。”
 
-共产党要崩溃不说，它还要联苏抗美，联苏打台，你去乌克兰，我去台湾，然后让日本跪下，对印度竟然私下威胁说：“这个冬奥会上你敢抵制我，你敢高调发声，现在我会让你在喜马拉雅山周围，感受到无法想象的冬天的到来，甚至更多病毒的传染。”直接说给印度，对着印度的视频说的。印度人就傻眼了：“你这啥意思？”中共说：“我们只要不帮你防毒，你那里的病毒会越来越多。”这几乎直接告诉你，老子就是放毒的，把印度给吓得腿软。
 
-资料来源：郭先生GTV和盖特直播视频
 
-往期回顾：
-[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
-[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
-[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
-[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
-[文·贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1913831/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-image1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-image0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-125-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-125-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-image1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-image0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-Slide7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-Slide6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-125-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/10-125-.jpg)
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

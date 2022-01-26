@@ -2,32 +2,37 @@
 ---
 
 
-## 英国从乌克兰撤出部分大使馆人员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914356/)
+## 澳洲总理微信号遭篡改 疑中共干涉澳洲政治
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914415/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月24日，英国媒体报道，由于担忧俄罗斯将入侵乌克兰，英国官员表示在基辅工作的大使馆人员约有一半将返回英国。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-26-上午10.45.20.png)
-俄罗斯已经在俄乌边境驻扎了数万名士兵。北约首脑警告说，欧洲存在发生新冲突的风险。北约成员国，包括丹麦、西班牙、保加利亚和荷兰，正在向东欧派遣更多的战斗机和军舰，以加强该地区的防御。
+作者: 新中国联邦静
 
-郭文贵最早爆料中俄“双头鹰计划”，即俄罗斯进攻乌克兰，配合中共对台湾的行动。乌克兰地区目前的紧张局势，完全印证了郭先生的爆料。1月24日，郭先生在直播中透露，普京会在边境虚晃一枪，直取基辅，让整个乌克兰跪下。
 
-参考链接：[Ukraine crisis: UK begins withdrawing embassy staff from Kiev as Russia war fears mount](https://www.independent.co.uk/news/world/europe/ukraine-crisis-uk-embassy-kiev-russia-b1999237.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+1月23日外媒报导，澳洲总理莫里森拥有7.6万名粉丝的微信公众号，在不知情的情况下被篡改为了“澳华新生活”，原账号描述也被改成“为澳洲华侨提供生活信息”。总理办公室已经不再拥有对该账户的访问权。澳大利亚国家安全专家警告说，接管莫里森的账户是中共对微信内容审查的严重升级。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+澳洲议会情报和安全委员会主席、自由党参议员帕特森1月24日在推特上发文谴责，认为这是中共禁止总理使用微信，试图阻止他与澳洲华人交流，却允许反对党领袖对他进行攻击，这是中共在干预澳洲民主，试图在选举之年对党派产生影响。并呼吁所有澳洲两院议员抵制微信。
 
-总编：Ivy001
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+**参考链接**: https://www.abc.net.au/chinese/2022-01-24/pm-scott-morrison-wechat-account-hijacked/100778098
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+总编: 飞虹
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
