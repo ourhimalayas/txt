@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 1:09 PM (UTC)`
+
+January 26, 2022 CCP “Wolf warrior” Zhang Lijian threatens U.S. evacuation of embassy personnel will greatly increase risk of infection virus<br/><br/>1月26日 中共战狼赵立坚威胁美方撤离领使馆人员将极大增加感染病毒风险<br/>
+![img](https://media.gettr.com/group34/getter/2022/01/26/13/6edb6930-a061-1993-6015-e4a187545371/out.jpg)
+
+---
+
 `@miles 1/26/2022 2:37 AM (UTC)`
 
 1月25号，Hcoin To the Moon MV上线第47天位列澳门🇲🇴iTunesMV榜首🥇，累计共34次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共30次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利,  柬埔寨和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1909557/<br/><br/>Jan 25th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 47 Day of Launch, hit No .1 for 34 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 30 times in total🎉🎉🎉<br/><br/>Hit No.1🥇on Cambodia 🇰🇭 iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, Cambodia and Laos 🙏🙏🙏🙏🙏🙏🙏
@@ -146,13 +153,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1/24/2022 Miles Guo: I talked to those who wanted to invest in the Himalaya Coin and advised them to stay away from Binance, with people praising the genius design of Himalaya Coin – the Himalaya Pay guarantees secure transactions at any time without being controlled, the Himalaya Coin has stablecoins and the best KYC, and a series of Himalaya financial services will be launched in the future<br/><br/>1/24/2022 文贵直播：文贵向要投喜币的人谈喜币并劝其远离币安，众人大赞喜币的天才设计 - 喜支付保证随时交易、安全不受控，喜币有稳定币和最牛KYC，未来会推出一系列喜金融服务<br/>
 ![img](https://media.gettr.com/group14/getter/2022/01/25/07/07c65fc7-e56d-cad4-a0cc-b814867c9add/out.jpg)
-
----
-
-`@miles 1/25/2022 7:15 AM (UTC)`
-
-1/24/2022 Miles Guo: The Whistleblowers’ Movement is the first to reveal the “Double-headed Eagle” campaign orchestrated by the CCP and Russia. Xi Jinping is going to invade Taiwan soon, and Putin will take Kiev directly. The Tian Mi Mi movement will render the situations in Taiwan and Ukraine unpredictable in six weeks. The Americans will have to get involved, and the evil forces will be eliminated.<br/><br/>1/24/2022 文贵直播：爆料革命最早说出中俄“双头鹰运动”，现在习要打台湾了，普京将直取基辅；甜蜜蜜运动将让台湾和乌克兰在六周内的局势不可预测，美国会被迫介入，邪恶势力将被消灭<br/>
-![img](https://media.gettr.com/group29/getter/2022/01/25/07/66e8cca8-e6f3-a46a-f849-eb8a9943fe91/out.jpg)
 
 ---
 

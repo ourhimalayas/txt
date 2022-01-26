@@ -2,27 +2,20 @@
 ---
 
 
-## NBA对种族灭绝视而不见
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1913002/)
+## 社会捐款急跌七成 警察基金风光不再
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1913011/)
 
-##### 翻译：文载 
-校对：枳实
-剪辑|字幕：蛮吉
-编辑：Mttfly
+作者：东京樱花团丨阿恩
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6156af45e4b0ec4dc8a9e3b91.jpg)[*图片来源*](https://www.wenweipo.com/a/202201/26/AP61f0eef7e4b03103e0c664f4.html)
+保安局向立法会递交警察子女教育信托基金及警察教育及福利信托基金2020/2021年度报告。截至2021年3月底，警察教育及福利信托基金资产净值逾1.09亿，年度收入1,446万元，其中捐款有415万元，金融资产净收益662万元；该基金年度获捐款仅280万元，较上一个年度1,132万的捐款大跌七成半。
 
-据福克斯新闻报道，NBA金州勇士队的股东查马特·帕里哈皮提亚（Chamath Palihapitiya）公然声称：“没有人关心维吾尔人身上发生的事情。”美国参议员汤姆·科顿（Tom Cotton）评论，对查马特来说，所有这些都是为了利润，在中国也都是为了利益。他不会说任何会危及他进入中国市场或获得中国资金的事情。他把利润置于原则之上。NBA金州勇士队在这里明显地保持了沉默。金州勇士只是发表了一份声明，说他们不同意他的观点，甚至没有说明观点是什么。他们甚至害怕提及这个话题，更不用说表态了。
+中共驱使港警疯狂镇压香港民主运动时期，港府为稳固警队军心，大幅调高警队薪酬和福利，并挟持各财团捐助支援港警的后勤基金，2019/20年度警队的基金收到1.8亿元“捐款”，一举扭亏为盈，从2018年的虧損1,989萬元，变成盈餘7,395萬元，当时媒体广传这一“喜讯”。翻查数据显示，2020年警队基金收到的捐款已大减至1,132万元，而纪律部队的高官仍在媒体上欣慰地表示，大部分市民认可警队的执法。今日的最新年度报告狠刮了警队一巴，捐款比上年大跌七成，仅获得280万元。各大财团在中共病毒的搅扰下自顾不暇，还要不停向港府伸手拿救济，哪有闲钱捐给警察基金，长此以往，警察子女所享受的优质教育恐不再，警察安心暴力执法的后盾被削弱了，忠心也势必大幅减少。害人终害己，中共用饮鸩止渴的愚蠢手段毁了香港这个吸金宝地，可想而知，囊中羞涩的中共跟随着为其效命的人只会越来越少。
 
-视频链接：[Tom Cotton rips Warrior’s co-owner for ‘shocking moral indifference’ to Uyghur human rights abuses](https://video.foxnews.com/v/6292434909001#sp=show-clips)
+资料来源：[**警察教育及福利信託基金獲280萬捐款　按年跌75%**](https://www.wenweipo.com/a/202201/26/AP61f0eef7e4b03103e0c664f4.html)
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/文小白*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

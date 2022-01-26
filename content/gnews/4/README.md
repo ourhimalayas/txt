@@ -2,10 +2,35 @@
 ---
 
 
-## 中共已经准备今年下半年内地死亡1-1.5亿百姓
-` HA-Multilingual澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1913217/)
+## MV版Hcoin To the Moon上线48天第31次位列匈牙利iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1913284/)
 
-郭先生：中共做好一亿至一亿五千万人死亡的准备，保持35%的就业红线，意思就是不少于7000万人还能打工就能养活大概2亿多人还能活着。中共备粮够用一年半的时间，让老百姓处于温水煮青蛙的饿不死状态，时间期限24个月。反复实施疲民苦民弱民的统治术，通过数字人民币共享老百姓财富。
+1/26/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线48天第31次位列匈牙利iTunes摇滚音乐视频榜榜首，第48次位列前三名
+
+* * *
+
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
+
+
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

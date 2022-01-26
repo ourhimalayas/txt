@@ -2,15 +2,13 @@
 ---
 
 
-## 西媒头条 — 第160期 – 西媒要闻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1913303/)
+## 澳国防部长彼得·达顿呼吁澳大利亚网坛为彭帅发声
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1913415/)
 
-**制作：**喜妹
+01/24/2022 澳洲国防部长彼得·达顿批评澳大利亚网球协会对抗议中国网球运动员彭帅失踪的活动人士进行审查，并呼吁各方为彭帅共同发声。
 
-**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西媒要闻.jpg)
-*发稿**：**Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

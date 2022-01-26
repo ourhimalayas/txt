@@ -2,20 +2,23 @@
 ---
 
 
-## 中日财经爆┃联想也要造芯了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1912940/)
+## Covid ：60% 的住院患者在两个月后仍有症状
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1912978/)
 
-撰稿：东京樱花团｜喜马拉雅的微尘
-![](https://lh6.googleusercontent.com/INddn5XsoxauCE_SOgTxSEgjyF8AzMyqk1gxdYVbOk-sO1ChUrxtrzJua862A-v4p0ybtE3ygIFAZAB3_WepcHnvV2-8Rj8iD3aruwQB4HvMCEYomuhZMehcBSNCtv99seBSp3Sq)[*图片来源*](https://www.sohu.com/a/352192651_118680)
-据南方财经1月26日报道，企查查App显示，1月26日，鼎道智芯（上海）半导体有限公司成立，法定代表人为贾朝晖，注册资本为3亿元人民币。公司经营范围包含：集成电路设计；集成电路销售；软件开发；软件销售；硬件开发等。企查查股权穿透显示，该公司由联想（上海）有限公司100%控股。
+翻译：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01261.jpg)图片来自today.it
+从临床上看，出院两个月后，60%以上的患者仍有症状，而到了六个月，这一比例降至40%左右。最常报告的症状是：呼吸困难、虚弱和咳嗽，其次是胸痛、心动过速、平衡障碍、恶心或低烧。
 
-另外据官方消息，本季度联想集团营收948亿人民币；税前利润21.7亿人民币，同比增长达到45%。净利润实现14.2亿人民币，年同比增长达到20%。
+肺功能测试发现肺功能在两到六个月内有显着改善，86% 的患者在出院六个月后肺功能正常。Covid-19 肺炎是间质性肺炎，会影响肺部结构，其完全恢复可能需要六个月以上的时间。
 
-信息来源：[**联想于上海成立半导体公司，注册资本3亿元**](https://finance.sina.com.cn/tech/2022-01-26/doc-ikyamrmz7551821.shtml)
+放射学上，大多数（64%）患者在入院两个月后胸部 X 光片出现变化，在六个月后显示更严重图像胸部 CT 扫描的是那些在住院期间更严重的患者，六个月时只有 26% 的胸部感染被完全“清除”。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据研究人员称，对于很多患者来说，SARS Cov 2 疾病不是简单的肺炎，相反，它造成了很深的伤口，不仅是身体上。
+
+原文链接：[https://www.today.it/salute/covid-conseguenze-pazienti-guariti.html](https://www.today.it/salute/covid-conseguenze-pazienti-guariti.html)
+
+责任编辑/发布：意大利达芬奇农场   萧亦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
