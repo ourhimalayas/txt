@@ -2,10 +2,10 @@
 ---
 
 
-## 小土豆威胁GoFundMe撤销给卡车司机的捐款
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1914912/)
+## Fauci的立场和理论的荒谬性和自相矛盾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1914913/)
 
-01/22/2022 加拿大政府和小土豆威胁GoFundMe撤销给卡车司机的捐款，污蔑这次行动为恐怖主义！
+01/22/2022 两年来，人们不断见证世界政府和福奇立场的荒唐性和自相矛盾, 简直荒唐。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

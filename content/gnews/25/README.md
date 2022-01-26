@@ -2,55 +2,59 @@
 ---
 
 
-## 美国考虑让外交官离开中国以应对严格的新冠病毒规则
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1914524/)
+## 【Michael.Tonny专栏】基于伊维菌素的COVID-19联合疗法和用药方法
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1914546/)
 
-翻译：Jenny Ball
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2191.png)图片来源：reuters.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-路透华盛顿1月25日 – 消息人士称，美国国务院正在考虑是否批准希望离开中国的美国外交官及其家人离境，因美国政府无法阻止中共当局对他们实施侵入性的大流行控制措施，
+本文摘自澳大利亚新南威尔士洲五码头消化疾病中心（Centre for Digestive Diseases, Five Dock）和新南威尔士州纽卡斯尔大学健康与医学学院（Faculty of Health and Medicine, University of Newcastle）Thomas J. Borody等人于2021年10月19日发表在[trialsitenews](https://trialsitenews.com/)的临床研究论文[COMBINATION THERAPY FOR COVID-19 BASED  ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)。主要介绍伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）在降低COVID-19患者住院和死亡风险方面的临床研究结论。
 
-两名熟悉该问题的消息人士称，美国大使馆周一已向华盛顿发出正式签署的请求，因为中共国在现在距离北京冬奥会开幕不到两周时间，加强了 COVID-19 遏制措施。
+2021年6月1日~2021年9月30日期间，通过对600名经PCR测试确诊COVID-19阳性两天内的门诊患者，使用为期10天的伊维菌素三联疗法（Ivermectin Triple Therapy，ITT）。
 
-由于问题的敏感性而要求匿名的消息人士向路透社表示，一些大使馆工作人员对美国政府一直不愿意或无法免除对美国官员的严格隔离措施而感到不安。
+具体用药方法是：伊维菌素24mg/天（ivermectin，24 mg per day)、每天晚餐前30分钟100mg强力霉素（doxycycline，100 mg bd)和锌50mg/天（zinc，50mg per day)。
 
-这些规则包括，可能强制进入**COVID **发烧诊所和与将儿童隔离。
+有7%的患者还使用了维生素（vitamins）和营养补充剂（nutritional supplements）。
 
-美国国务院周二在一份声明中告诉路透社，其驻华大使馆和领事馆的运营状况没有改变。
+只有7% 的人在治疗中有轻微不良反应，主要是恶心（nausea）、腹泻（diarrhoea）和胃灼热（heartburn）等轻微的肠道症状（gut symptoms）。但没有人因此停止该治疗方案。
 
-“这种性质的运营状态的任何变化，都将完全取决于对我们同事及其家人的健康、安全和保障，”一位部门发言人说。
+最终仅5人（0.83%）需要住院治疗，无一人死亡。
 
-外交部发言人在北京表示，中共国的抗疫措施是科学的，符合外交条约。
+而在对照组的600名患者中，有70（11.7%）人需要住院治疗，6人死亡（1%）。
 
-发言人赵立坚在每日新闻发布会上说，离开中国会增加被感染的机会。
+证明使用伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）可降低死亡风险92.3%，降低住院率92.9%。
 
-一位人士表示，美国大使馆进行的一项内部调查显示，多达 25% 的员工和家属会选择尽快离开中国。
+研究人员将COVID-19早期确诊患者根据发烧（Fever）、头痛（Headache）、咳嗽（Cough）、味觉丧失(Loss of Taste)、嗅觉丧失（Loss of Smell）、腹泻（Diarrhoea）、呕吐（Vomiting）、疲劳（Fatigue）和肌肉疼痛（Muscle Pains）等10种常见COVID-19症状的严重程度，按视觉模拟量（Visual analogue scale）监测值划分成0~10范围的不同得分。0表示没有相关症状，10是最严重的症状表现。总症状严重程度分数是评这10症状得分的总和，总分为 100分。血氧饱和度读数得分为100%。
 
-这位知情人士说，外交官的居家隔离应该是基本要求，进入中国发热门诊和医院应该是自愿的，并补充说，美国政府应该对这些要求采取报复措施，但还没有。
+其中，测试组中126名平均年龄为42岁（17~94岁）的酒店或家庭隔离患者可用于详细评估症状和氧合状态（oxygenation status）。
 
-另一位知情人士表示，大使馆领导层未能就整个大流行期间美国外交官的待遇问题，从中共国得到适当的保证。
+对这126名患者的Covid-19感染症状视觉模拟量表监测显示，经过10天的伊维菌素三联疗法治疗后，患者从治疗开始时的中位总症状严重程度评分37分（范围：0~100）下降到治疗结束时的3分（范围：0~62）。
 
-在大流行的最初几个月，美国政府从中共国撤离了大约 1,300 名美国外交官和家属，两国政府在官员在检测和隔离程序上陷入僵局数月。
+研究表明，尽管嗅觉/味觉丧失、咳嗽和疲劳，会持续比较长时间，然而，在10天治疗期结束后，所有症状的严重程度评分均显著降低。而未使用伊维菌素三联疗法的 Covid-19患者的症状减轻通常需要2~4 周。
 
-中共要求外国外交官遵守检疫和抵达时检测等流行病控制规则，尽管一些外国使节不必进入政府指定的隔离酒店。
+证明使用伊维菌素三联疗法对COVID-19患者具有显著的疗效。
 
-随着 2 月 4 日北京冬奥会开幕的临近，中共迅速采取措施阻止 COVID 的进一步传播，尽管该病毒的爆发在整个城市持续存在。
+最终结果如下表：
 
-周二，北京的一个地区将开始对其大约 200 万居民进行新一轮测试。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TrialSite-media-release-19.10.jpg)
 
-中共的《环球时报》小报称，美国国务院对该政策的考虑是一种“肮脏的伎俩”，旨在破坏中共国举办奥运会。
+表中N 表示有此症状的患者人数
 
-美国领导了几个盟国和伙伴国家对奥运会进行了外交抵制，因为中共政府正在其西部新疆地区对维吾尔人和其他穆斯林群体进行种族灭绝。
+SD表示标准偏差
 
-素材链接：[reuters.com] [U.S. weighs letting diplomats leave China over tough COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/)
+\*进行了非参数配对t检验
 
-* * *
+参考数据：
 
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+[COMBINATION THERAPY FOR COVID-19 BASED ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)
+
+[trialsitenews](https://trialsitenews.com/)
+
+[Combination Therapy For COVID-19 Based on Ivermectin in an Australian Population](https://trialsitenews.com/combination-therapy-for-covid-19-based-on-ivermectin-in-an-australian-population/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

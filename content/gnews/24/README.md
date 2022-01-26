@@ -2,59 +2,57 @@
 ---
 
 
-## 【Michael.Tonny专栏】基于伊维菌素的COVID-19联合疗法和用药方法
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1914546/)
+## 德国新研究证实：疫苗接种率越高超额死亡率就越高
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1914569/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-26-181823.jpg)图片来源：stevekirsch.substack.com
 
-本文摘自澳大利亚新南威尔士洲五码头消化疾病中心（Centre for Digestive Diseases, Five Dock）和新南威尔士州纽卡斯尔大学健康与医学学院（Faculty of Health and Medicine, University of Newcastle）Thomas J. Borody等人于2021年10月19日发表在[trialsitenews](https://trialsitenews.com/)的临床研究论文[COMBINATION THERAPY FOR COVID-19 BASED  ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)。主要介绍伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）在降低COVID-19患者住院和死亡风险方面的临床研究结论。
+哈佛大学的研究表明，就病例而言，疫苗接种会使事情变得更糟。这项来自德国的新研究表明，疫苗接种的越多，死亡的人就越多， 这对我（史蒂夫·基尔希[Steve Kirsch](https://substack.com/profile/40661664-steve-kirsch)）来说并不意外。
 
-2021年6月1日~2021年9月30日期间，通过对600名经PCR测试确诊COVID-19阳性两天内的门诊患者，使用为期10天的伊维菌素三联疗法（Ivermectin Triple Therapy，ITT）。
+我刚从德国的一位朋友 (马克斯·朗根Max Langen) 那里得到一项新研究。
 
-具体用药方法是：伊维菌素24mg/天（ivermectin，24 mg per day)、每天晚餐前30分钟100mg强力霉素（doxycycline，100 mg bd)和锌50mg/天（zinc，50mg per day)。
+这项新的德国研究表明：疫苗接种率越高，超额死亡率就越高。
 
-有7%的患者还使用了维生素（vitamins）和营养补充剂（nutritional supplements）。
+我对此毫不惊讶。请参阅我们接种的疫苗越多，病例数就越高的文章。
 
-只有7% 的人在治疗中有轻微不良反应，主要是恶心（nausea）、腹泻（diarrhoea）和胃灼热（heartburn）等轻微的肠道症状（gut symptoms）。但没有人因此停止该治疗方案。
+这些是人类历史上最致命的疫苗，致命度高达 800 倍。所以多个来源获得确认这个结论总是很好的。
 
-最终仅5人（0.83%）需要住院治疗，无一人死亡。
+作者写道：“相关性为 + .31，非常高，尤其是在一个意想不到的方向上。其实应该是负数，原则上说：疫苗接种率越高，超额死亡率越低。然而，情况恰恰相反，这迫切需要澄清。在所有 16 个高接种率的国家/地区，都可以观察到超额死亡率……”
 
-而在对照组的600名患者中，有70（11.7%）人需要住院治疗，6人死亡（1%）。
+用简单的话说：疫苗接种会使事情变得更糟，而不是更好。
 
-证明使用伊维菌素、强力霉素和锌的维菌素三联疗法（ITT）可降低死亡风险92.3%，降低住院率92.9%。
+我想与您分享这项研究，因为您可能会对它感兴趣，也许您想将其添加到您的疫苗数据中。
 
-研究人员将COVID-19早期确诊患者根据发烧（Fever）、头痛（Headache）、咳嗽（Cough）、味觉丧失(Loss of Taste)、嗅觉丧失（Loss of Smell）、腹泻（Diarrhoea）、呕吐（Vomiting）、疲劳（Fatigue）和肌肉疼痛（Muscle Pains）等10种常见COVID-19症状的严重程度，按视觉模拟量（Visual analogue scale）监测值划分成0~10范围的不同得分。0表示没有相关症状，10是最严重的症状表现。总症状严重程度分数是评这10症状得分的总和，总分为 100分。血氧饱和度读数得分为100%。
+使用谷歌翻译（后面是简短的摘录）：
 
-其中，测试组中126名平均年龄为42岁（17~94岁）的酒店或家庭隔离患者可用于详细评估症状和氧合状态（oxygenation status）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2193.png)图片来源：stevekirsch.substack.com
 
-对这126名患者的Covid-19感染症状视觉模拟量表监测显示，经过10天的伊维菌素三联疗法治疗后，患者从治疗开始时的中位总症状严重程度评分37分（范围：0~100）下降到治疗结束时的3分（范围：0~62）。
+物理学家尤特·伯格纳（ Ute Bergner ）博士曾在图林根州议会中属于 FDP 议会小组，同时转投了 11 月 17 日举行的“图林根公民”党。她在图林根州议会前发表演讲，提出了她委托的分析。
 
-研究表明，尽管嗅觉/味觉丧失、咳嗽和疲劳，会持续比较长时间，然而，在10天治疗期结束后，所有症状的严重程度评分均显著降低。而未使用伊维菌素三联疗法的 Covid-19患者的症状减轻通常需要2~4 周。
+她委托两名统计学家调查：16 个联邦州的疫苗接种率和超额死亡率之间是否存在联系。
 
-证明使用伊维菌素三联疗法对COVID-19患者具有显著的疗效。
+罗尔夫·斯泰尔（Rolf Steyer）教授和格雷戈尔·卡普勒（Gregor Kappler ）博士，分析了从第 36 周到第 40 周的这段时间的数据。
 
-最终结果如下表：
+结果令人震惊。分析摘要指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TrialSite-media-release-19.10.jpg)
+在所有 16 个州都可以发现超额死亡率。他们审查期间报告的 Covid 死亡人数，始终只占超额死亡率的一小部分，最重要的是无法解释关键问题：
 
-表中N 表示有此症状的患者人数
+疫苗接种率越高，超额死亡率越高。
 
-SD表示标准偏差
+最直接的解释是：完全接种疫苗会增加死亡的可能性。
 
-\*进行了非参数配对t检验
+**评论：疫苗接种率越高，超额死亡率越高。对这个研究结论，不仅史蒂夫·基尔希博士毫不意外，爆料革命的战友也不意外，因为从2020年中共释放病毒之初，爆料革命就警示世界，中共的目的在于2020年4月之后的疫苗外交。看到在邪恶媒体的宣传推动下，中共和世界暗黑实力将致死率高达800倍的mRNA刺突蛋白毒药强加给全世界，真是非常痛心。**
 
-参考数据：
+素材链接：[stevekirsch.substack.com][New study from Germany confirms higher vax coverage –&gt; higher excess mortality](https://stevekirsch.substack.com/p/new-study-from-germany-confirms-higher)
 
-[COMBINATION THERAPY FOR COVID-19 BASED ON IVERMECTIN IN AN AUSTRALIAN POPULATION](https://covidmedicalnetwork.com/media/TrialSite-media-release-19.10.2021.pdf)
+* * *
 
-[trialsitenews](https://trialsitenews.com/)
-
-[Combination Therapy For COVID-19 Based on Ivermectin in an Australian Population](https://trialsitenews.com/combination-therapy-for-covid-19-based-on-ivermectin-in-an-australian-population/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
