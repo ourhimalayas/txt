@@ -2,10 +2,10 @@
 ---
 
 
-## 日本防止中共病毒疫情扩散重点措施扩大到34个都道府县
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1910603/)
+## 美国劳工部也将取消中共病毒疫苗强制规定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1910709/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._26-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220126-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

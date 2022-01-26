@@ -2,32 +2,34 @@
 ---
 
 
-## 蔡崇信以1亿8800万购买曼哈顿顶层公寓
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910372/)
+## 中共惧怕脱钩 刻意辟谣“中美联合公报无效”
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910425/)
 
-作者：MOS 柳是多水土透
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新-2.png)
+作者：纽约香草山 侠肝义胆
 
 
 
-近日，一位买家从亿万富翁对冲基金经理Daniel Och 手中，以近2倍价格，买下曼哈顿220 Central Park South 顶层公寓。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-49.png)图片来源：Yahoo!finance
-彭博社根据产权文件，披露了买家身份 – Blue Pool Capital。根据纽约州政府文件，Blue Pool从JP Morgan Chase获得了7150万美元的贷款后，用1.88亿美元（约12亿人民币），购置这栋2年前仅为0.93亿美元的物业。这家注册地在香港的资本公司，实际上是阿里巴巴联合创始人及NBA布鲁克林篮网老板蔡崇信的财富管理公司。 6个月前，蔡崇信同样花费$157,000,000，买下了该栋楼内60和61楼2套1层1户大平层，以及位于18楼的单间公寓。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-27.jpg)
 
-中央公园南220号公寓（220 Central Park South），由设计过费城美国革命博物馆以耶鲁大学学院建筑的大师Robert A. M. Stern Architects设计楼体，室内装潢由曾领导过自由女神像修复的设计师Thierry W. Despont 负责，被称为曼哈顿“亿万富豪的碉堡。
 
-2020-2021年疫情期间，纽约市最贵的房产交易，前22名都来自于这栋物业。
 
-郭先生曾在近日直播中披露，蔡崇信购买的多个中央公园附近高价房产为替马云洗钱代持的交易。
+墙内媒体1月24日消息，中共党媒《澎湃新闻》发表文章《美参议院全票通过决议，中美三个联合公报无效？假的！》。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-46.jpg)图源网络
+该文辟谣，美参议院全票通过“中美三个联合公报全部无效”毫无根据，因为美参议院在一月没有讨论中美联合公报相关话题。
 
-新闻来源：[https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html](https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html)
+《澎湃新闻》之所以辟谣，是因为有人在微信朋友圈和推特上发布消息说，美参议院全票通过，废除中美联合公报。
 
-[https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse](https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse)
+《澎湃新闻》用所谓“明查”搜索了假消息的来源并列举了相关截图，证明相关讯息是假的，而且是经常发布反华消息的推特帐号故意传播的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+《澎湃新闻》这篇文章还强调，中美三个联合公报是两国政治共识和政治基础，言外之意美方不可能废除中美联合公报。
+
+然而，中共用党媒辟谣社交平台上发布的假消息，让人觉得有种“此地无银三百两”的味道，既然是小道消息，又何必刻意辟谣。
+
+据有关人士分析，中美关系敏感时刻，中共刻意辟谣，反而彰显其惧怕美方废除联合公报，宣布中美脱钩。因此，中共很可能故意施放假消息做舆论铺垫，然后通过煞有其事的辟谣来混淆视听。
+
+新闻来源：[https://finance.sina.cn/2022-01-24/detail-ikyakumy2200287.d.html?from=wap](https://finance.sina.cn/2022-01-24/detail-ikyakumy2200287.d.html?from=wap)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-304.jpeg)
 
 编辑/校对/发稿：滚滚长江都是水
 

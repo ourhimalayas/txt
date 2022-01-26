@@ -2,17 +2,32 @@
 ---
 
 
-## 新中国联邦创始人郭文贵先生 就美国授权驻北京大使馆撤离致函感谢
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1910388/)
+## 【圆成原创】中共广开言路是政治作秀
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1910431/)
 
-新中国联邦创始人郭文贵先生，就美国授权驻北京大使馆撤离致函感谢拜登总统及国务卿布林肯先生。
+**作者：面包飞上天**
 
-[【PDF下载】2022年1月25日郭文贵先生致函感谢美国拜登总统及国务卿布林肯先生](https://assets.gnews.org/wp-content/uploads/2022/01/0125-Miles-Guo-official-letter-to-USA.pdf)[Download](https://assets.gnews.org/wp-content/uploads/2022/01/0125-Miles-Guo-official-letter-to-USA.pdf)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220125-官方函-中文-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/20220125-官方函-英文-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg) 欢迎关注纽约磐石农场 官方盖特![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)欢迎关注纽约磐石农场GTV频道![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)纽约磐石农场Discord
-发布：FoxRina
+最近，第一财经发布《2022“我向总理说句话”网友建言征集活动》，表面上看这是政府谦虚的向民众纳谏，多好的事情。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/E0AFFB2F-D9BB-41CF-8D3D-A6CE629BFF76.jpeg)图片来源：网络
+经济学者马光远微博账号被禁言
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3BA66FF0-9F4F-42D5-83A5-6ECA8B699AE8.jpeg)
+任泽平的微信公众号“泽平宏观”已经无法搜索到
 
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+且不说这两位的经济观点，我也无意为他们做宣传。他们的微博被禁言的原因是：“此前频繁发布房价、生育角度建议”、“违反社区公约”。
 
+不是广开言路，欢迎大家提意见吗？怎么大V提建议就要被禁言呢？
+
+**这是虚伪的纳谏，是一场彻头彻尾的政治作秀。**
+
+**编辑：LIL;Y**
+
+**发布：歪桑**
+
+20220125
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

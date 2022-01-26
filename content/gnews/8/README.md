@@ -2,36 +2,36 @@
 ---
 
 
-## 美国政府授权撤离美国驻北京大使馆
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1910507/)
+## 有声|安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1910563/)
 
-撰稿：纽约香草山—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年1月22日大直播，郭文贵先生代表新中国联邦，代表所有的中国人感谢美国政府，拜登总统和国务卿布林肯先生。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+据《InfoWars》1月20日报道，生态健康联盟的副主席助理安德鲁·赫夫博士1月12日公开表示，在中共国的武汉病毒研究所进行功能增强研究的生态健康联盟主席彼得·达扎克曾告诉他说，他在为美国中情局工作。另外，赫夫博士认为生态健康联盟是“中情局的前台组织”。
 
-在大直播中，郭文贵先生透露，拜登总统和布林肯国务卿刚刚作出重大决定，并且，美国政府已经正式通知北京政府，即日起，授权撤离美利坚共和国驻北京大使馆。
+由达扎克领导的生态健康联盟，获得了多个美国政府机构的资助。早在新冠疫情最初爆发前，该组织就与北卡罗来纳大学的拉尔夫·巴里克博士和武汉病毒研究所的石正丽博士合作，在中共国对蝙蝠携带的冠状病毒进行功能增强研究。
 
-这意味着什么？文贵先生分析：
+原文链接：[安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](https://gnews.org/zh-hans/1904188/)
 
-首先，美国的北京大使馆，对于中共政府来说，就相当于中共国的定海神针。不仅中共国需要靠这支定海神针稳定政权，美国驻北京大使馆周围的几十个国家的大使，也是依靠着美国大使馆，并跟随着美国政府的风向，决定与中共国的外交关系。
+音频处理/发稿：Daxia
 
-第二，美国政府从一个国家撤离大使馆，表明这个国家被美国政府降低外交等级，已经不再是美国认可的国家政府了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-第三，美国政府当年在决定打伊拉克之前，也是先撤离了美国驻伊拉克大使馆。在西方国家，外交撤离，就是战争大概率可能发生的信号。
-
-文贵先生在大直播中，郑重宣布：我们非常欢迎和支持，两位先生做出的这个重大的政治决定。这对疫苗真相，停止疫苗灾难，停止新疆大屠杀，停止在世界上继续发生的各种人道灾难，这是巨大的帮助，这是新中国联邦维护法治，人权，全球正义人士的巨大胜利。历史会证明，这会超过任何一届美国总统对正义的维护。郭文贵代表全球的新中国联邦人民，对美国的拜登总统，布林肯先生，致以衷心的感谢。我们将和你们一起，将推翻中共为己任，和美国建立千年的和平关系。一切都是刚刚开始。
-
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
