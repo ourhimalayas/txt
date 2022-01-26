@@ -2,31 +2,49 @@
 ---
 
 
-## 1.25大直播后记：北京二环所有大使馆即将撤离
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912832/)
+## 如果被切断SWIFT联系，俄罗斯将在欧洲断供天然气
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1912847/)
 
-整理：雅典娜速记组
-编辑：小红帽
+#### 【雅典娜观察】和您一起探究世界
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C@AK_92D7_RQ2BON257.png)图片来源：雅典娜设计组（Mr.Robot)
+整理报道：文扬
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/56JWR9AMWEYWBY2W@5.png)图片来源：Botanwang.com
 
 
-我们被共产党洗脑得非黑即白,非友则敌。那种两元原则在我们人生中是最大危险的一个因素。
+1月26日，据RT电视台报道，俄罗斯参议院副议长尼古拉·朱拉夫列夫周二警告，暂停俄罗斯SWIFT支付交易系统资格，可能会对西方产生巨大的反作用。
 
-美国历史上，到今天为止，没有比拜登总统和布林肯先生做出这个决定，对中国人再好的了。在中国人即将失去一切的时候,做出这样的决定。政治上没有善良，政治上没有公平，没有正义，政治上只有本国的利益。什么叫政治？在国际上，维护本国人民和利益。第二，在国内在政治上维护自己的权利。这是它基本的原则。
+“SWIFT是一个支付系统，这是一项服务，”朱拉夫列夫说，暂停俄罗斯SWIFT支付系统，将意味着莫斯科无法处理外币支付。这可能会使俄罗斯的贸易伙伴——主要是西欧，无法接收他们从俄罗斯进口的商品。这位官员警告说，这意味着俄罗斯的石油、天然气和金属以及其他“重要进口产品”将无法进入西欧市场。
 
-特别在冬奥会之前，我们发起甜蜜蜜运动。它不仅会在美国发生。二环以内所有的大使馆区（都会发生）。记住我今天说的话。这是个多米诺骨牌（效应）。 而且这个决定，就在今天发生，和即将举行不到十几天的冬奥会前发生，它的意义之重大。
+这位副议长还表示，华盛顿和伦敦的决定可能不足以推动暂停俄罗斯SWIFT系统的服务。他特别指出，与俄罗斯有大量贸易往来的国家不会轻易承受来自美国和英国的压力。
 
-在中国的春节之前，我们发起这个，让所有的中国人开开心心过年，让中国人像过去文化大革命时期，听到邓丽君的歌，叫地下歌曲靡靡之音。（中国人）连这自由都没有。我们中国人应该享受自由，像台湾一样，像世界上多数国家一样，有法制民主歌唱的自由。这个不用任何，历史上任何这样的（东西去）衡量。（这）大了去了。
+根据欧盟委员会的2020年报告，俄罗斯一直是欧盟的五大贸易伙伴之一。它提供了该集团5%以上的进口，价值超过950亿欧元（1070亿美元）。
 
-***发布：**tianzhihuan*
+朱拉夫列夫说，（SWIFT支付系统）这是一家欧洲公司，是一个由许多国家组成的协会，一个国家要被切断与它的联系，需要“所有成员国的一致决定”。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+上周日，英国媒体报道称，伦敦考虑支持暂停俄罗斯SWIFT的资格，以防俄罗斯与乌克兰发生军事冲突。1月中旬，德国报纸Handelsblatt报道称，西方领导人已经排除了这样的举动，华盛顿本身也放弃了这个想法。然而，美国否认这种说法，称“存在任何选项”。
+
+SWIFT是一家由股东拥有的有限责任公司，股东选举出由25
+
+“独立董事”组成的董事会，管理公司并监督管理层。目前的董事会成员大多来自西方国家，但俄罗斯和中国各有一名成员。
+
+根据该公司的网站，“SWIFT的国际治理和监督加强了其合作结构的中立性和全球性”。早在2012年，美国参议院银行委员会批准对与黑名单上的银行打交道的公司进行制裁，美国影响了SWIFT关于切断伊朗银行服务的决定。
+
+早在2014年，SWIFT曾拒绝考虑将俄罗斯从其服务中断开，以回应它当时收到的类似要求。
+
+朱拉夫列夫指出，尽管SWIFT是一种“方便快捷”的金融交易系统，但它绝非独一无二，俄罗斯和中国已经建立了自己的金融交易系统。
+
+原文链接： [Russia warns of consequences across Europe if it’s cut off from SWIFT — RT Russia & Former Soviet Union](https://www.rt.com/russia/547336-swift-europe-import-consequences-sanctions/)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

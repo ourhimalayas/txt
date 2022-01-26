@@ -2,48 +2,132 @@
 ---
 
 
-## 班农专访3：中共间谍通过捐款等手段渗透英国议会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912833/)
+## Bari Weiss: 我受够了 COVID
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1912852/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE4.jpg)
-**简评：**英国军情五处认定中共国女间谍李贞驹通过向工党捐款数十万英镑和她的儿子成为工党议员马里加德纳的日记管理员而成功渗透英国议会。新中国联邦的郭文贵先生爆料称，这只是中共间谍活动的冰山一角，还有很多中共间谍仍然潜伏在英国。中共与英国上流社会一直联系紧密，英国前首相与中共有2千万美元的雇佣关系，这是公开的秘密。中共在英国也拥有大量资产。英国相比美国，经济体量小得多，所以收买英国的精英和机构不需要花很多钱，很容易就能够做到。新中国联邦的爆料革命运动在英国曝光容易，但是开展行动很难。英国的绅士和温顺也默许了大规模的疫苗接种，但是情况正在改变。英国人民意识到中共的危险，正在觉醒。
+[https://gtv.org/video/id=61ee9cba87664c47acd94f08](https://gtv.org/video/id=61ee9cba87664c47acd94f08)
 
-- GETTR视频链接：[https://gettr.com/post/ppxs2rd20a](https://gettr.com/post/ppxs2rd20a)
-- GTV视频链接：[https://gtv.org/video/id=61ed4ce387664c47acd8cc25](https://gtv.org/video/id=61ed4ce387664c47acd8cc25)
+巴里·维斯: I’m done with COVID (Podcast Host “Honestly”)
+Bari Weiss：我受够了 COVID（“Honestly” Podcast节目主持人）
 
+I’m done
+我受够了
 
-**视频字幕：**
+(With this question?)
+这个问题吗？
 
-**主持人****Winston****：**就在几天前，据报导，英国安全服务机构军情五处认定，英国华人律师李贞驹是中共间谍，她通过向工党提供价值数十万英镑的捐款和她的儿子成为工党议员巴里·加德纳的日记管理员，成功地渗透到英国议会。据郭文贵先生说，这只是中共在英国间谍活动的冰山一角，可能还有很多特工在英国。您认为英国政府是否意识到应该把中共更多地当作对手而不是经济伙伴？班农先生，您请。
+No, I’m done with Covid
+不， 我受够了COVID
 
-**班农先生：**我认为英国人民正在觉醒。让我们回到这名特工被曝光的事情上。这就像在美国，有一群中级和初级特务被暴露出来，被FBI记录在案。但对我来说，那是一个误导性的计划。他们只关注了中级或初级人士，而撇开了真正有影响的势力，他们把大笔款项给政府要员和前政府官员。
+I’m done, it’s like…, I went so hard on COVID.
+我受够了，就像……，我在 COVID 上非常努力
 
-英国是一个最典型的例子，英国前首相与中共有2000万美元的雇佣关系，对吗？是《隐秘之手》这本书。我想这是Clive Hamilton写的，他是澳大利亚的调查记者，写中共通过捐款搞定政治系统而入侵澳大利亚，这是一本了不起的书。我记得是在2020年或2021年，他在英国出了一本书，谈到了中共对英国精英阶层的收买。在那里，这是一个公开的秘密。 是的。 这非常重要。 她（李贞驹）是一个被爆光的真正的间谍。
+(Yeah, I remember)
+是的， 我记得
 
-但文贵是对的，这还不是冰山的一角。 冰山是巨大的，冰山是在英国政府的最高层。卸任的政府最高层人士与这一切都有合作关系。这就是为什么我称之为柏林种族灭绝运动会—-北京种族灭绝运动会获得这么多公司资助的原因，(就像)1936年的柏林奥运会。 因此，金钱和影响力的渗透是巨大的。想一想吧。在曼哈顿中城之外，在伦敦西区有大量的，不仅仅是海湾酋长国的钱，还有俄罗斯黑帮的钱。 另外，中共在伦敦西区也购买了大量资产。 这是普遍现象。我们开始曝光这些间谍是好事，就像前几天曝光的这个，这文贵说这是冰山一角。这是一个糟糕的情况。 这座冰山很宽、很陡峭。
+I spray the Pringle cans that I bought at grocery store.
+我在杂货店买的Pringle罐子上喷了（消毒剂）
 
-**主持人****Winston****：**是的。而我们将把他们全部曝光，这是我们爆料革命运动的目标之一。
+Stripped my clothes off because I thought the Covid would be on my clothes.
+（回到家）脱掉我的衣服，因为我认为新冠病毒会在我的衣服上。
 
-**班农先生：**英国GTV你们做这么多努力，为什么你们做这些努力呢？鉴于中国和英属香港的历史关系，共产党在英国的影响和渗透与美国一样糟糕，很糟糕。渗透的影响将更难从英国摆脱出来，因为一些共同的机构。记住，我认为渣打银行、上海银行实际上是在香港的英国实体。这些英国机构完全妥协于中共。 另外，英国的经济体量远没有美国的那么大，相对比较小。
+Like I did it all
+我都这样做过
 
-中共渗透影响将是巨大的，不需要花很多钱就可以收买英国的精英们，因为他们没有赚很多钱。他们没有赚很多钱，所以收买他们比较容易。英国GTV和爆料革命运动以及海外华人在英国爆光真相比较容易，但爆光后采取行动比较困难。
+I watched tiger king I got to the end of Spotify
+我看了TigerKing， 知道看到了Spotify的尽头
 
-请记住，英国的民众，很多都是令人震惊的温顺，默许了封锁和大规模接种疫苗等等。这种情况现在开始改变，但还是令人关切。美国的独立战斗精神，特别是对中共的独立战斗精神正在抬头。我希望这种情况会发生在英国，显然他们还没有这里这样的行动。
+Like we all did it, right?
+我们都这样做过，对吗？
 
-我们在这里看到的是，美国人民正逐渐意识到中共的危險。我不太确定在英国看到的情况和在美国看到的是否是同一个水平，但是一定会慢慢开始。我的观点是，只有民众才会推动觉醒、推动和呼吁针对中共行动。精英们不会这样做，尤其是在英国，他们更容易被收买。
+(No, no, we didn’t all do it)
+不，不，我们并没有都这样做
 
-字幕：雨中漫步 / 听写：云岭 / 翻译：英国之声 / PR：Blue / 简评/文字整理/编辑：胖丁
+well, here is the thing, a lot…
+好吧，事情就是这样，许多
+
+(No, we did not do it)
+没有，我们并没有都这样做
+
+a lot of us did do it
+我们中许多人都这样做了
+
+and then we were told, you get the vaccine, you get the vaccine and you get back to normal.
+然后我们被告知，你需要疫苗，你接种了疫苗，你就会恢复正常。
+
+And we haven’t got back to normal
+而且我们还没有恢复正常
+
+And it’s ridiculous at this point.
+在这一点上这很荒谬
+
+I know that so many of my liberal and progressive friends are with me on this
+我知道我的许多自由派和进步派朋友都支持我
+
+And they do not want to say it aloud because they are scared to be called anti vax
+他们不想大声说出来，因为他们害怕被称为反疫苗者
+
+Or to be called science denial, or to be…you know…smeared as Trumper
+或者被称为否认科学，或者被……你知道……被抹黑为川普支持者
+
+I’m sorry, if you believe science, you will look at the data that we did not have two years ago.
+对不起，如果你相信科学，你会看到我们两年前没有的数据
+
+And you will find out that cloth mask do not do anything
+你会发现布口罩什么也做不了
+
+You will realize that you can show your vaccine passport at a restaurant
+你会意识到人们可以在餐厅出示疫苗护照
+
+And still asymptomatic and carrying omicron
+但他们仍然可以是无症状并携带 omicron
+
+And you will realize most importantly, this is going to be remembered by the younger generation as a catastrophic moral crime.
+你会意识到最重要的是，这将被年轻一代铭记为灾难性的道德犯罪
+
+The city of Flint, Michigan, which is 80%, I think, minority students， has just announced indefinite virtual schooling.
+密歇根州弗林特市（我认为 80% 的少数民族学生）刚刚宣布无限期进行虚拟学校教育
+
+In the past two years, we’ve seen among young girls, a 50% increase in self-harm.
+在过去的两年里，我们看到年轻女孩中自残的人数增加了 50%
+
+People are killing themselves
+人们正在自杀
+
+They are anxious, they are depressed, they are lonely.
+他们焦虑，抑郁，孤独
+
+That is why we need to end it, more than any inconvenience that it’s been to the rest of us.
+这就是为什么我们需要结束它，而不是它给我们其他人带来的任何不便。
+
+I think that’s a pandemic
+我认为那才是流行病
+
+It’s like, at this point, it’s a pandemic of bureaucracy, it’s a pandemic of bureaucracy
+就像，在这一点上，这是一场官僚主义的流行病，这是一场官僚主义的流行病
+
+It’s no real any more.
+它不再是真实的了
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:01/23/2022
+原视频标题: Bari Weiss: I’m done with COVID
+Bari Weiss: 我受够了 COVID
+原视频日期：2022/01/23
+原视频链接: [**https://gettr.com/post/pq467vb33a**](https://gettr.com/post/pq467vb33a)
+任务编号：KE364（3557）
+视频时间段 : 0:00-1:55
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 –
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

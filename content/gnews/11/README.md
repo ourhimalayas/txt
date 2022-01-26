@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平非常迷信
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912780/)
+## 習近平和彭丽媛的属相
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912788/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

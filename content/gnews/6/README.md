@@ -2,36 +2,31 @@
 ---
 
 
-## 班农专访1: 哈萨克斯坦发生的代理战争影响欧亚大陆
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1912809/)
+## 1.25大直播后记：北京二环所有大使馆即将撤离
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912832/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Q2SMRLHL5ZGZBLKVGKGRS3RFSE3.jpg)
-**简评：**新中国联邦的郭文贵先生称最近发生在哈萨克斯坦的抗议和灾难，是美国、中国、欧洲和俄罗斯之间的代理战争，对地缘政治有很大的影响。中共一直试图控制欧亚大陆，这就是中共一带一路政策的目的，而哈萨克斯坦是欧亚的中心，地理位置非常重要。中共现在找到了同伴，巴基斯坦、伊朗、土耳其和俄罗斯。而俄罗斯和中共之间总有一些摩擦，这是一个可以利用的突破点。哈萨克斯坦未来的道路会很漫长、很艰难，因为那里是控制亚洲大陆的新战场。
+整理：雅典娜速记组
+编辑：小红帽
 
-- GETTR视频链接：[https://gettr.com/post/pq3tsx51c3](https://gettr.com/post/pq3tsx51c3)
-- GTV视频链接：[https://gtv.org/video/id=61ed4db287664c47acd8cc96](https://gtv.org/video/id=61ed4db287664c47acd8cc96)
-
-
-**视频字幕：**
-
-**主持人****Little Prince****：**谢谢你Winston，还有GTV英国团队的邀请。很荣幸受邀今天的节目。关于最近在哈萨克斯坦发生的抗议和灾难，郭文贵先生称之为美国、中国、欧洲和俄罗斯之间的代理战争。鉴于哈萨克斯坦连接欧洲和亚洲的独特位置, 班农先生，您如何看待这次抗议及其地缘政治的影响？
-
-**班农先生：**其影响可能会很大。我的意思是，这是中共（策划）的一部分。这造成了巨大的恐惧。这是中共与其他国家勾结，试图控制欧亚大陆，而哈萨克斯坦是欧亚的中心。坦率地说，我们在印度、在印度的盟友、在南中国海和台湾周围有那么多问题。鉴于阿富汗的失败，我不知道无能的拜登政府是否有意愿或甚至有信心参与到这里来。中共试图控制欧亚大陆的决心展露无遗，这就是一带一路政策的目的。
-
-而现在他们找到了愿意与之为伍的伙伴，有巴基斯坦、伊朗、土耳其还有俄罗斯。俄罗斯和中共之间总是会有一些摩擦，这就是我们应该突破的地方。（突破点）往往是俄罗斯，但我们没有。而这是一个非常严重的情况。而且，我曾经去过哈萨克斯坦。那里的人很好，但他们前面有一条漫长而艰难的道路，因为那里被视为是控制亚洲大陆的新战场。
-
-字幕：雨中漫步 / 听写：云岭 / 翻译：Blue / PR：Roberts / 简评/文字整理/编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/C@AK_92D7_RQ2BON257.png)图片来源：雅典娜设计组（Mr.Robot)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+我们被共产党洗脑得非黑即白,非友则敌。那种两元原则在我们人生中是最大危险的一个因素。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+美国历史上，到今天为止，没有比拜登总统和布林肯先生做出这个决定，对中国人再好的了。在中国人即将失去一切的时候,做出这样的决定。政治上没有善良，政治上没有公平，没有正义，政治上只有本国的利益。什么叫政治？在国际上，维护本国人民和利益。第二，在国内在政治上维护自己的权利。这是它基本的原则。
+
+特别在冬奥会之前，我们发起甜蜜蜜运动。它不仅会在美国发生。二环以内所有的大使馆区（都会发生）。记住我今天说的话。这是个多米诺骨牌（效应）。 而且这个决定，就在今天发生，和即将举行不到十几天的冬奥会前发生，它的意义之重大。
+
+在中国的春节之前，我们发起这个，让所有的中国人开开心心过年，让中国人像过去文化大革命时期，听到邓丽君的歌，叫地下歌曲靡靡之音。（中国人）连这自由都没有。我们中国人应该享受自由，像台湾一样，像世界上多数国家一样，有法制民主歌唱的自由。这个不用任何，历史上任何这样的（东西去）衡量。（这）大了去了。
+
+***发布：**tianzhihuan*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
