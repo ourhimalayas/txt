@@ -2,10 +2,10 @@
 ---
 
 
-## 灭共漫画- 停止疫苗灾难
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1914775/)
+## 爆料革命五周年
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1914811/)
 
-设计者：纽约香草山设计部 — Wolverine
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，FLj，蜂鸟
 
 
 
@@ -18,7 +18,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-停止疫苗灾难_Stop-the-Vaccine-Disaster.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-停止疫苗灾难_Stop-the-Vaccine-Disaster.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-d98ff4cf-15e6-4b06-a471-9d2b11b7ec7b.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-zn.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-4b5b3557a03e3170.jpg)
 
 
 **编辑/发稿：小鹿**
