@@ -2,31 +2,36 @@
 ---
 
 
-## 上海帮的势力
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911967/)
+## 甜蜜灭共
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1911981/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/上海帮的势力_01.jpg)
-直播时间：2021.12.01
+作者 ：香草山健身部-新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+![](https://cdn.discordapp.com/attachments/929349120437682187/935684256435404860/image0.jpg)
 
-习近平在上海帮背后眼里就是傻子。
+春节将至先迎喜
+甜蜜主旋律
+推波助澜七芒星
+灭共自有雷霆势
+乘风破浪著新史
+亿万勇士心
+热血沸腾泪盈眶
+无惧来路多泥泞
+雄鹰展翅冲云霄
+豪气万千澎湃力
+勇屹喜马拉雅峰
 
-头两天听说有人见到江泽民,江泽民说咱来看病，少说话，少见人，回去等着吧，好戏还没开始呢。
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/01/M1-1.jpeg)
+**更多资讯，更多关注**
 
-习抓洗米华你就知道习手下没人。也没人想跟他干事，
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-孟建柱折腾两年了也没和他说实话，
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-王岐山更不会和他说实话。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-发布：*皮特*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

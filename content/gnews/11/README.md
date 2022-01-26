@@ -2,23 +2,21 @@
 ---
 
 
-## 我们希望知道真相，希望知道详情！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911932/)
+## 澳大利亚总理微信账户消失 遭遇中共政府抢劫？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911945/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1111-1.png)（图片源自本文链接）
-１月２５日时事通信社消息：世界卫生组织（WHO）总干事谭德赛被提名为5月份下届总干事选举的唯一候选人，几乎保证了他的第二个任期。
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2135.png)[图片来源](https://news.yahoo.co.jp/articles/29f4f4ef45f8b17b71452dea993552602ee6b72b/images/000)
+据悉，中共国聊天软件“微信（We Chat）”中，澳大利亚总理斯科特•莫里森（Scott Morrison）的官方账户消失。澳大利亚自由党议员1月24日指责说，这是中共国政府的“干涉”。
 
-同日，世卫组织执行委员会进行了无记名投票。委员会批准提名谭德赛为下任总干事的唯一候选人。
+莫里森于2019年2月开设的账户，目前已被改为“中华新生活（Australian Chinesenewlife）”。在中共国，WhatsApp、Facebook、Twitter等西方国家的主流应用程序和社交媒体被禁止，微信的市场占有率为压倒性优势。
 
-对此，谭德赛说 “对重新获得的支持深表感谢”。
+自由党参议员詹姆斯·帕特森24日在2GB广播中主张:“中国政府关闭总理莫里森账户，实际上是对我国民主主义的外国干涉。”根据“中华新生活”账户信息，账户名是在去年10月28日注册的。但是账户投稿可以追溯到2019年2月1日，还可以确认莫里森的第一次投稿文“很高兴在微信开设正式账户”。该账户最后一次投稿是在去年7月9日。据英国《每日电讯报（Daily Telegraph）》报道，莫里森从当天开始一直处于无法登录的状态。
 
-笔者很希望能知道，具体都有谁，有权力提名？具体都有谁，有权利决定？
+信息来源： [豪首相の微信アカウント消滅、乗っ取り被害か 豪議員は中国政府の関与主張](https://news.yahoo.co.jp/articles/29f4f4ef45f8b17b71452dea993552602ee6b72b)
 
-信息来源：[WHO次期事務局長選 テドロス氏が唯一の候補に（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/921ee13fd1047af0b2c702552b4aaeba69b8888f)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

@@ -15,128 +15,128 @@
 
 ---
 
-### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (7)](/content/gnews/1/README.md)
+### [对数字货币监管，两利两弊（一）](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [1.24大直播后记：清丰看守所18岁被处死的英雄](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (7)](/content/gnews/3/README.md)
  ` MOS香港部`
 
-### [习近平在冬奥会前会见国际奥委会主席巴赫](/content/gnews/2/README.md)
+### [习近平在冬奥会前会见国际奥委会主席巴赫](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [第六波病毒未停，第七波已经到来](/content/gnews/3/README.md)
+### [第六波病毒未停，第七波已经到来](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [甜蜜灭共](/content/gnews/4/README.md)
+### [甜蜜灭共](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [中美经济低迷影响全球经济增长](/content/gnews/5/README.md)
+### [中美经济低迷影响全球经济增长](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海帮的势力](/content/gnews/6/README.md)
+### [上海帮的势力](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (6)](/content/gnews/7/README.md)
+### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (6)](/content/gnews/9/README.md)
  ` MOS香港部`
 
-### [中日财经爆|在台湾金门唯一中资企业被中共国银行抽贷致破产](/content/gnews/8/README.md)
+### [中日财经爆|在台湾金门唯一中资企业被中共国银行抽贷致破产](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚总理微信账户消失 遭遇中共政府抢劫？](/content/gnews/9/README.md)
+### [澳大利亚总理微信账户消失 遭遇中共政府抢劫？](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际透明组织：中共国腐败超出国境 习近平利用反贪打击对手](/content/gnews/10/README.md)
+### [国际透明组织：中共国腐败超出国境 习近平利用反贪打击对手](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们希望知道真相，希望知道详情！](/content/gnews/11/README.md)
+### [我们希望知道真相，希望知道详情！](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国从来没有真正的“反腐败”](/content/gnews/12/README.md)
+### [中共国从来没有真正的“反腐败”](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共作秀给运动员加压，给自己壮胆儿！](/content/gnews/13/README.md)
+### [中共作秀给运动员加压，给自己壮胆儿！](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [勾结中共践踏人权的“科大讯飞”成为北京冬奥会的主角](/content/gnews/14/README.md)
+### [勾结中共践踏人权的“科大讯飞”成为北京冬奥会的主角](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (5)](/content/gnews/15/README.md)
+### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (5)](/content/gnews/17/README.md)
  ` MOS香港部`
 
-### [中日财经爆|中共国股市创18个月最大单日跌幅](/content/gnews/16/README.md)
+### [中日财经爆|中共国股市创18个月最大单日跌幅](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [重磅！重磅！美国授权撤离驻北京大使馆，这是新中国联邦史诗级的胜利！](/content/gnews/17/README.md)
+### [重磅！重磅！美国授权撤离驻北京大使馆，这是新中国联邦史诗级的胜利！](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳网撤销对询问中共国明星彭帅的T恤的禁令](/content/gnews/18/README.md)
+### [澳网撤销对询问中共国明星彭帅的T恤的禁令](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/19/README.md)
+### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/21/README.md)
  ` MayflowerBiz`
 
-### [鸿门宴还是请君入瓮？ 北京冬奥传军队已接管奥运场地](/content/gnews/20/README.md)
+### [鸿门宴还是请君入瓮？ 北京冬奥传军队已接管奥运场地](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登政府正式撤销对企业的疫苗规定](/content/gnews/21/README.md)
+### [拜登政府正式撤销对企业的疫苗规定](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1.24大直播后记：数字货币与世界的经济](/content/gnews/22/README.md)
+### [1.24大直播后记：数字货币与世界的经济](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [没有言论的自由，正义就会沦为孤岛 “被精神病”教师李田田背井离乡](/content/gnews/23/README.md)
+### [没有言论的自由，正义就会沦为孤岛 “被精神病”教师李田田背井离乡](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员](/content/gnews/24/README.md)
+### [郭文贵先生首先向外界宣告 欢迎美国授权撤离在中共国的外交人员](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国出台法案，强化应对中共国竞争力](/content/gnews/25/README.md)
+### [美国出台法案，强化应对中共国竞争力](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京冬奥会新冠测试“高门槛”引争议](/content/gnews/26/README.md)
+### [北京冬奥会新冠测试“高门槛”引争议](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (4)](/content/gnews/27/README.md)
+### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (4)](/content/gnews/29/README.md)
  ` MOS香港部`
 
-### [“彭帅在哪里？”字样T恤衫在澳网公开赛上被组织方禁止引发争议](/content/gnews/28/README.md)
+### [“彭帅在哪里？”字样T恤衫在澳网公开赛上被组织方禁止引发争议](/content/gnews/30/README.md)
  ` 走进澳洲`
 
-### [甜蜜蜜行动首发 静待二环连珠炮 郭文贵声震世界 新蒸一屉灭共馍](/content/gnews/29/README.md)
+### [甜蜜蜜行动首发 静待二环连珠炮 郭文贵声震世界 新蒸一屉灭共馍](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [1.24大直播后记：世界大佬投资喜马拉雅币](/content/gnews/30/README.md)
+### [1.24大直播后记：世界大佬投资喜马拉雅币](/content/gnews/32/README.md)
  ` 雅典娜GNotes`
 
-### [【秘翻在线】法官否决了纽约州长的口罩规定](/content/gnews/31/README.md)
+### [【秘翻在线】法官否决了纽约州长的口罩规定](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1.24大直播后记：中共将如何利用冬奥会大做文章？](/content/gnews/32/README.md)
+### [1.24大直播后记：中共将如何利用冬奥会大做文章？](/content/gnews/34/README.md)
  ` 雅典娜GNotes`
 
-### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (3)](/content/gnews/33/README.md)
+### [【粤语配音】2022年1月25日： 新中国联邦重大公告 (3)](/content/gnews/35/README.md)
  ` MOS香港部`
 
-### [1.24大直播后记：七哥谈乌克兰和台湾](/content/gnews/34/README.md)
+### [1.24大直播后记：七哥谈乌克兰和台湾](/content/gnews/36/README.md)
  ` 雅典娜GNotes`
 
-### [有声|美国政府授权撤离美国驻北京大使馆](/content/gnews/35/README.md)
+### [有声|美国政府授权撤离美国驻北京大使馆](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [1.24大直播后记：郭文贵先生在中学的威风史](/content/gnews/36/README.md)
+### [1.24大直播后记：郭文贵先生在中学的威风史](/content/gnews/38/README.md)
  ` 雅典娜GNotes`
 
-### [有声|喜币开创世界经济新局面](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [美国国务院因疫情原因批准驻华使领馆“授权撤离”](/content/gnews/38/README.md)
+### [美国国务院因疫情原因批准驻华使领馆“授权撤离”](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港外籍专业人士离职潮：受严格防疫的“驱逐”](/content/gnews/39/README.md)
+### [香港外籍专业人士离职潮：受严格防疫的“驱逐”](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中美正在争夺坠入南海的F35C隐形战斗机](/content/gnews/40/README.md)
+### [中美正在争夺坠入南海的F35C隐形战斗机](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [有声|中共邪教的第七个特征——篡改历史](/content/gnews/41/README.md)
- ` MOSREC`
 
 ### [原中国银监会副主席蔡鄂生因严重违法违纪、滥用金融监管权被开除党籍](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`

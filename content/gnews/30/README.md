@@ -2,32 +2,34 @@
 ---
 
 
-## 1.24大直播后记：世界大佬投资喜马拉雅币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911793/)
+## “彭帅在哪里？”字样T恤衫在澳网公开赛上被组织方禁止引发争议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1911809/)
 
-整理：雅典娜速记组
-编辑：文泓
+整理：纱娜宝贝
+编辑：Little Lamp
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/CTWNEGOT14Q@P9@RCVYDZ2.png)图片来源：墨尔本雅典娜农场设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe-1.png)图片来源：雅典娜设计组
 
 
-世界经济中加密数字货币大发展，现在特别是拥有喜币者，你们将看到无法想象的新的局面的出现。头两天，我跟要投资喜币的几个人谈的时候，他们一直在跟我说，这数字货币要怎么样怎么样买，他们已经过研究。他们投什么？他们也投了Coinbase（在美上市加密货币交易平台），他们也投了这个ETF（交易所基金），他们几乎是（资金规模）前五大的。但是，他们说，他们用瑞士的间接资金投资，从来没（直接）投资加密数字货币，他们叫Crypto currency（虚拟货币）。我说，你不要这么说了，这很土。从现在我再不会说Crypto，叫Digital currency（数字货币）。
+澳大利亚网球公开赛的组织方强迫穿印有“彭帅在哪里？”T恤衫的球迷脱掉T恤，为这次大满贯赛事蒙上了阴影。澳大利亚网球协会辩解说，披露中共前政治局常委张高丽性侵的中国网球明星彭帅的安危仍是“主要关注”，但是票务条例不允许商业或政治性服装、条幅或标识等。
 
-我告诉他，现在是时候你站出来投数字货币了，而且你要成立数字货币基金，你要成为人类第一家，要引领人类数字货币（新发展）。我说，这不亚于你拥有一个新的美元系统。当时，他买这个Hcoin的时候，他这么牛的人，在买完一星期以后，他上去就自己偷偷的测试能不能卖出去。结果，他一挂出去（就成交）了，现在后悔中。它卖出去24块钱。卖多少呢？卖了大概是70万个币。然后，所有的钱他也提走了，（这下）他傻眼了。
+星期六（1月22日）晚间在社交媒体上流传的视频显示，赛场的安全人员没收印有“彭帅在哪里？”的T恤衫和横幅。
 
-后来，赵长鹏的币安找了他下属，准备行贿蓝金黄让他们投资（币安）。我给他发信息，听说你们要投资币安呢？他回复，什么意思？我说，让我告诉你，币安是谁谁谁……他听后马上紧急召开会议，发出警示，谁敢跟币安接触一次，就给我滚蛋。所以说，整个他的国家都没人敢接受（币安）。不但没接触，要把所有（涉及）加拿大、日本、台湾要调查币安的案件，他们国家都全力配合。如果需要的话，（相关人员）可以遣送回这些国家去。
+澳大利亚网球明星、曾获世界第一的阿什·巴蒂（Ash Barty）说，彭帅的事件让国际网球界更紧密站在一起，希望不久的未来能在外面看到她。
 
-就在某个晚上，本来准备说30分钟，结果我们讲了2个小时。我讲完以后，他们最后作出决定，他们想要成为喜币的投资者。我说，我欢迎你们加入喜币的投资，我没有决策权，但我可以给你们推荐，有6亿7000万个币是我们的战友。听到这个数字，他们当时就受不了了。他说，他们家族唯一拥有的（加密数字货币）就是喜币，现在他们孩子、兄弟姐妹现在最炫耀的都是喜币。我说，那既然如此，我要跟你强调，我的6亿7000万个币战友们的利益是排第一位的，你要进来的前提是永远要记住，你不能跟我这些战友们，我的兄弟姐妹们争名争利。
+有批评人士表示，澳网公开赛不应该为了顾虑来自中资企业赞助的利益，而打压关注彭帅人身安全的声音，应该停止骚扰关注人权和呼吁关注彭帅下落的人士，并且立即公开要求中国政府释放彭帅。
 
-资料来源：郭先生GTV、盖特直播
+包括联合国、国际奥委会委员、美英等国政府、国际女子网球协会（WTA）、世界职业网球协会（ATP）和球王乔科维奇（Novak Djokovic）、前网球天后大坂直美等网坛名将纷纷发声，质问“彭帅在哪里？”，要求中共当局说明，并调查她提出的指控。
+
+新闻来源：[澳网公开赛禁止球迷穿印有“彭帅在哪里？”字样T恤衫引发争议](https://www.voachinese.com/a/political-peng-messages-banned-at-australian-open-20220123/6408864.html)
 
 *发布：tianzhihuan*
 
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
