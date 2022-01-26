@@ -15,86 +15,86 @@
 
 ---
 
-### [灭共者——七哥小课堂](/content/gnews/1/README.md)
- ` MOS Designer香草山设计部`
+### [西安的血热不是任何新的病毒，原因就是疫苗所致](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
 
-### [美国撤馆开启正式脱钩，党媒怒斥“肮脏的把戏”](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国劳工部也将取消中共病毒疫苗强制规定](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [对文贵先生的思路窥探（二）](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [今日盖特大V推荐：Tony Shaffer（托尼.谢佛）](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [魁北克法院剥夺母亲权利，媒体造势称其阴谋论者](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [日本防止中共病毒疫情扩散重点措施扩大到34个都道府县](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵先生直播精要2022/01/24](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|接种疫苗后运动员体力和表现皆衰退](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [中共在全球制造债务陷阱](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|蓬佩奥国务卿呼吁建立威慑力以减少外部威胁](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [有声|安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [有声|纽约孩童因反抗强制疫苗活动遭逮捕](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [七哥说 “这是一场阴谋在新的开始”（2022-01-17摘录）](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [呼吁Spotify罢免罗根的“270名医生”有些甚至都不是医学人士](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国政府授权撤离美国驻北京大使馆](/content/gnews/16/README.md)
+### [新中国联邦重大公告甜蜜蜜运动改变世界](/content/gnews/2/README.md)
  ` 纽约香草山MOS02`
 
-### [扬帆每日速递 2022年1月25日版（1）](/content/gnews/17/README.md)
- ` 温哥华扬帆农场`
+### [澳洲新数据：打疫苗者Omicron中招率高10倍](/content/gnews/3/README.md)
+ ` 走进澳洲`
 
-### [麦卡洛医生紧急呼吁公众放弃疫苗接种](/content/gnews/18/README.md)
- ` 华盛顿DC-Russian`
+### [美国即将全面从中共国撤离所有领事馆](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
 
-### [纽约法官取消了州口罩授权](/content/gnews/19/README.md)
+### [我们现在必须获取COVID-19疫苗和治疗方法的原始数据](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [灭共者——七哥小课堂](/content/gnews/6/README.md)
+ ` MOS Designer香草山设计部`
+
+### [美国撤馆开启正式脱钩，党媒怒斥“肮脏的把戏”](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国劳工部也将取消中共病毒疫苗强制规定](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [对文贵先生的思路窥探（二）](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [今日盖特大V推荐：Tony Shaffer（托尼.谢佛）](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [魁北克法院剥夺母亲权利，媒体造势称其阴谋论者](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [加拿大卡车司机 “自由车队” 的筹款活动超过 330 万](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [日本防止中共病毒疫情扩散重点措施扩大到34个都道府县](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为应对病毒爆发 日本将大部分地区置于准紧急状态](/content/gnews/21/README.md)
- ` GTV News Talk`
+### [文贵先生直播精要2022/01/24](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [歷史時刻 | 美國政府授權撤離駐北京大使館，正式開啟第三道滅共大門](/content/gnews/22/README.md)
- ` YALUN 亚伦`
+### [有声|接种疫苗后运动员体力和表现皆衰退](/content/gnews/14/README.md)
+ ` MOSREC`
 
-### [巴拉圭在ＷＨＯ执委会中力挺台湾](/content/gnews/23/README.md)
- ` GTV News Talk`
+### [中共在全球制造债务陷阱](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【圆成原创】中共广开言路是政治作秀](/content/gnews/24/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [有声|蓬佩奥国务卿呼吁建立威慑力以减少外部威胁](/content/gnews/16/README.md)
+ ` MOSREC`
 
-### [中共惧怕脱钩 刻意辟谣“中美联合公报无效”](/content/gnews/25/README.md)
- ` GTV News Talk`
+### [有声|安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/17/README.md)
+ ` MOSREC`
 
-### [七哥谈共产党干的荒唐事（2022-01-17摘录）](/content/gnews/26/README.md)
+### [有声|纽约孩童因反抗强制疫苗活动遭逮捕](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [七哥说 “这是一场阴谋在新的开始”（2022-01-17摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [【圆成原创】中伊俄三国军演说明什么?](/content/gnews/27/README.md)
+### [呼吁Spotify罢免罗根的“270名医生”有些甚至都不是医学人士](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国政府授权撤离美国驻北京大使馆](/content/gnews/21/README.md)
+ ` 纽约香草山MOS02`
+
+### [扬帆每日速递 2022年1月25日版（1）](/content/gnews/22/README.md)
+ ` 温哥华扬帆农场`
+
+### [麦卡洛医生紧急呼吁公众放弃疫苗接种](/content/gnews/23/README.md)
+ ` 华盛顿DC-Russian`
+
+### [纽约法官取消了州口罩授权](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
+
+### [加拿大卡车司机 “自由车队” 的筹款活动超过 330 万](/content/gnews/25/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [为应对病毒爆发 日本将大部分地区置于准紧急状态](/content/gnews/26/README.md)
+ ` GTV News Talk`
+
+### [七哥谈共产党干的荒唐事（2022-01-17摘录）](/content/gnews/27/README.md)
+ ` MG FARM`
 
 ### [新中国联邦创始人郭文贵先生 就美国授权驻北京大使馆撤离致函感谢](/content/gnews/28/README.md)
  ` 喜马拉雅纽约磐石农场`
@@ -171,17 +171,17 @@
 ### [郭文贵先生紧急宣布灭共相关重大决定](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生发起《甜蜜蜜》运动让中共胆颤心惊](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒疫情将被年轻一代铭记为灾难性的道德犯罪](/content/gnews/54/README.md)
+### [中共病毒疫情将被年轻一代铭记为灾难性的道德犯罪](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从其防控反应上看，中共谎报了本土中共病毒病例数](/content/gnews/55/README.md)
+### [从其防控反应上看，中共谎报了本土中共病毒病例数](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/25/2022国际财经快讯：英国PMI：成本压力肆虐，英国企业遭遇一月寒流；比特币滑落至六个月低点](/content/gnews/56/README.md)
+### [1/25/2022国际财经快讯：英国PMI：成本压力肆虐，英国企业遭遇一月寒流；比特币滑落至六个月低点](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
+
+### [01/25每日播报｜美国顶级医生敦促公众停止接种中共病毒疫苗](/content/gnews/56/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
 ### [01/25每日播报|社媒消息：蓬佩奥 埃内斯·坎特](/content/gnews/57/README.md)
  ` 秘密翻译组-即时新闻播报组`

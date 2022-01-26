@@ -2,30 +2,36 @@
 ---
 
 
-## 扬帆每日速递 2022年1月25日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1910496/)
+## 有声|安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1910563/)
 
-** 加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-1、美国政府已经正式通知北京政府：从即日起，授权撤离美利坚共和国驻北京大使馆，这是重大的决定。将在世界掀起“蝴蝶效应”。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+据《InfoWars》1月20日报道，生态健康联盟的副主席助理安德鲁·赫夫博士1月12日公开表示，在中共国的武汉病毒研究所进行功能增强研究的生态健康联盟主席彼得·达扎克曾告诉他说，他在为美国中情局工作。另外，赫夫博士认为生态健康联盟是“中情局的前台组织”。
 
-2、1月25日，新中国联邦创始人郭文贵先生代表新中国联邦致信美国拜登总统和布林肯国务卿，赞赏美国开始关闭驻北京大使馆。
+由达扎克领导的生态健康联盟，获得了多个美国政府机构的资助。早在新冠疫情最初爆发前，该组织就与北卡罗来纳大学的拉尔夫·巴里克博士和武汉病毒研究所的石正丽博士合作，在中共国对蝙蝠携带的冠状病毒进行功能增强研究。
 
-3、据文贵大直播：文贵先生即将出访欧洲三国。
+原文链接：[安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](https://gnews.org/zh-hans/1904188/)
 
-4、据文贵大直播：六周内在北京二环以内可能发生“甜蜜蜜”运动，这是中美关系上的核心事件，爆料革命将走向新阶段。
+音频处理/发稿：Daxia
 
-5、世界卫生组织总干事谭德塞在一个程序化投票之后成为5月领导人选举的唯一候选人，几乎可以保证连任。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-6、路透社北京消息，商务部官员在25号国新办记者会上表示，在去年6.05万亿美元规模、30%高速增长的基数之上，今年外贸形势十分严峻，稳增长的困难和压力“前所未有”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板125-1_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
+**更多资讯，更多关注**
 
-编辑：文敏
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发布：风起云间（文敏）
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-海报图片设计：飞天面、 Shuang
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
