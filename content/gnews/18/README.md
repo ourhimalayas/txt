@@ -2,22 +2,20 @@
 ---
 
 
-## 如俄侵乌美国将制裁普京本人
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914389/)
+## 澳洲总理微信号遭篡改 疑中共干涉澳洲政治
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914415/)
 
-作者: 纽约香草山医疗部 云豹
+作者: 新中国联邦静
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
-当地时间1月25日，美国总统拜登表示，如果俄罗斯入侵乌克兰，将考虑直接制裁俄罗斯总统普京。
+1月23日外媒报导，澳洲总理莫里森拥有7.6万名粉丝的微信公众号，在不知情的情况下被篡改为了“澳华新生活”，原账号描述也被改成“为澳洲华侨提供生活信息”。总理办公室已经不再拥有对该账户的访问权。澳大利亚国家安全专家警告说，接管莫里森的账户是中共对微信内容审查的严重升级。
 
-俄罗斯近日陆续向乌克兰边境增派军队，并与白俄罗斯进行联合军演，已经引起北约及美国高度关注。 除了多次与俄罗斯进行外交协商试图说服俄国，北约及美国也在准备必要时军事支持乌克兰对抗俄国的入侵。
+澳洲议会情报和安全委员会主席、自由党参议员帕特森1月24日在推特上发文谴责，认为这是中共禁止总理使用微信，试图阻止他与澳洲华人交流，却允许反对党领袖对他进行攻击，这是中共在干预澳洲民主，试图在选举之年对党派产生影响。并呼吁所有澳洲两院议员抵制微信。
 
-美国总统拜登宣布不排除直接制裁俄罗斯总统普京，这是非常少见的外交手段。 此时提出，更显示出俄乌局势严峻，以及美国极力阻止战事发生的决心。
-
-**新闻来源**: [https://www.cna.com.tw/news/aopl/202201260008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202201260008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+**参考链接**: https://www.abc.net.au/chinese/2022-01-24/pm-scott-morrison-wechat-account-hijacked/100778098
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-总编: Irene木木
+总编: 飞虹
 
 编辑/校对/发稿: 卡夫卡的甲壳虫
 

@@ -2,31 +2,38 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月25日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1914362/)
+## 如俄侵乌美国将制裁普京本人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914389/)
 
-配音：香草山佛教部 – 李傻
+作者: 纽约香草山医疗部 云豹
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-3-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月25日晚](https://gnews.org/zh-hans/1911206/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+当地时间1月25日，美国总统拜登表示，如果俄罗斯入侵乌克兰，将考虑直接制裁俄罗斯总统普京。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+俄罗斯近日陆续向乌克兰边境增派军队，并与白俄罗斯进行联合军演，已经引起北约及美国高度关注。 除了多次与俄罗斯进行外交协商试图说服俄国，北约及美国也在准备必要时军事支持乌克兰对抗俄国的入侵。
+
+美国总统拜登宣布不排除直接制裁俄罗斯总统普京，这是非常少见的外交手段。 此时提出，更显示出俄乌局势严峻，以及美国极力阻止战事发生的决心。
+
+**新闻来源**: [https://www.cna.com.tw/news/aopl/202201260008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202201260008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+总编: Irene木木
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
  
 
