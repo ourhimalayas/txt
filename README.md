@@ -15,98 +15,98 @@
 
 ---
 
-### [澳国防部长彼得·达顿呼吁澳大利亚网坛为彭帅发声](/content/gnews/1/README.md)
+### [中共的宣传表演：天津一小区为疫情解封举行“庆典”](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [冲绳团体要求政府停止儿童接种疫苗](/content/gnews/2/README.md)
+### [澳国防部长彼得·达顿呼吁澳大利亚网坛为彭帅发声](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [冲绳团体要求政府停止儿童接种疫苗](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西媒头条 — 第160期 – 西媒要闻](/content/gnews/3/README.md)
+### [这一次将是中共永远地“别了，司徒雷登”](/content/gnews/4/README.md)
+ ` 秘密翻译组-原创组`
+
+### [西媒头条 — 第160期 – 西媒要闻](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [MV版Hcoin To the Moon上线48天第31次位列匈牙利iTunes摇滚MV榜首](/content/gnews/4/README.md)
+### [MV版Hcoin To the Moon上线48天第31次位列匈牙利iTunes摇滚MV榜首](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西媒头条 — 第160期 – 西媒看天朝](/content/gnews/5/README.md)
+### [西媒头条 — 第160期 – 西媒看天朝](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [01/26每日播报｜美国国务卿布林肯称美中两国关系正变得越来越敌对](/content/gnews/6/README.md)
+### [01/26每日播报｜美国国务卿布林肯称美中两国关系正变得越来越敌对](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共已经准备今年下半年内地死亡1-1.5亿百姓](/content/gnews/7/README.md)
+### [中共已经准备今年下半年内地死亡1-1.5亿百姓](/content/gnews/9/README.md)
  ` HA-Multilingual澳喜农场多语组`
 
-### [中共教育领域渗透被揭穿 荷兰大学停收中共资金](/content/gnews/8/README.md)
+### [中共教育领域渗透被揭穿 荷兰大学停收中共资金](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/26银河快讯:日本将向石油公司提供首批补贴；东京新公寓平均价格达历史最高](/content/gnews/9/README.md)
+### [1/26银河快讯:日本将向石油公司提供首批补贴；东京新公寓平均价格达历史最高](/content/gnews/11/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [来自莫斯科和北京的假新闻威胁着欧盟民主](/content/gnews/10/README.md)
+### [来自莫斯科和北京的假新闻威胁着欧盟民主](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（四）](/content/gnews/11/README.md)
+### [文·贵天成——文贵先生谈“北京冬奥会”（四）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [短视频：科顿议员建议民主国家重新安排冬奥会](/content/gnews/12/README.md)
+### [短视频：科顿议员建议民主国家重新安排冬奥会](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《历史上的今天》2022.01.26](/content/gnews/13/README.md)
+### [《历史上的今天》2022.01.26](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [专家促港府严格禁足令 只供应基本粮食](/content/gnews/14/README.md)
+### [专家促港府严格禁足令 只供应基本粮食](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [甜蜜蜜运动之“授权撤离”](/content/gnews/15/README.md)
+### [甜蜜蜜运动之“授权撤离”](/content/gnews/17/README.md)
  ` 银河勇气之星`
 
-### [新西兰财经G乐部2022年1月26日:财经新闻整理](/content/gnews/16/README.md)
+### [新西兰财经G乐部2022年1月26日:财经新闻整理](/content/gnews/18/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [天机何处觅](/content/gnews/17/README.md)
+### [天机何处觅](/content/gnews/19/README.md)
  ` 银河勇气之星`
 
-### [郝董喜欢的“豚骨拉面”新感觉，从九州掀起的大豆革命浪潮](/content/gnews/18/README.md)
+### [郝董喜欢的“豚骨拉面”新感觉，从九州掀起的大豆革命浪潮](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [时隔2年 山体染成红色的奈良若草山](/content/gnews/19/README.md)
+### [时隔2年 山体染成红色的奈良若草山](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年1月25日郭先生盖特 — 视频1「1分08秒」](/content/gnews/20/README.md)
+### [2022年1月25日郭先生盖特 — 视频1「1分08秒」](/content/gnews/22/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [议员倡货柜码头搬迁至内地 图转移吸金力](/content/gnews/21/README.md)
+### [议员倡货柜码头搬迁至内地 图转移吸金力](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [社会捐款急跌七成 警察基金风光不再](/content/gnews/22/README.md)
+### [社会捐款急跌七成 警察基金风光不再](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [佳能决定关闭中国工厂并向员工支付“超高补偿金” 引热议](/content/gnews/23/README.md)
+### [佳能决定关闭中国工厂并向员工支付“超高补偿金” 引热议](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共的科技软肋](/content/gnews/24/README.md)
+### [中共的科技软肋](/content/gnews/26/README.md)
  ` 银河勇气之星`
 
-### [NBA对种族灭绝视而不见](/content/gnews/25/README.md)
+### [NBA对种族灭绝视而不见](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法国日增新冠病例首超50万例](/content/gnews/26/README.md)
+### [法国日增新冠病例首超50万例](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [小年夜的“甜蜜蜜”](/content/gnews/27/README.md)
+### [小年夜的“甜蜜蜜”](/content/gnews/29/README.md)
  ` 银河勇气之星`
 
-### [2022年1月24日郭先生盖特 — 视频1「2分13秒」](/content/gnews/28/README.md)
+### [2022年1月24日郭先生盖特 — 视频1「2分13秒」](/content/gnews/30/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [刘学州之死](/content/gnews/29/README.md)
- ` 银河勇气之星`
-
-### [Covid ：60% 的住院患者在两个月后仍有症状](/content/gnews/30/README.md)
+### [Covid ：60% 的住院患者在两个月后仍有症状](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [01/26每日播报｜以美国为首的西方国家加强军事准备以应对俄罗斯入侵乌克兰](/content/gnews/31/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [中日财经爆┃联想也要造芯了](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

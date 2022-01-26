@@ -2,16 +2,14 @@
 ---
 
 
-## 西媒头条 — 第160期 – 西媒看天朝
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1913261/)
+## 西媒头条 — 第160期 – 西媒要闻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1913303/)
 
 **制作：**喜妹
 
-**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西媒读天朝.jpg)
-
-***发稿：****Nuevo唐人*
+**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西媒要闻.jpg)
+*发稿**：**Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
  
 

@@ -2,33 +2,36 @@
 ---
 
 
-## 01/26每日播报｜美国国务卿布林肯称美中两国关系正变得越来越敌对
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1913255/)
+## MV版Hcoin To the Moon上线48天第31次位列匈牙利iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1913284/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61f10ca428a108147c6303f6)**
-
-2022-01-26
-
-南华早报1月25日报道，美国国务卿布林肯于本周一批评中共国政府比过去几十年“更加咄咄逼人”，美中关系正变得越来越敌对化。布林肯说，“我们也越来越多地看到这方面的对抗性……这在很大程度上是因为在过去几年中，在世界舞台上的中共国在很多方面都与我们在过去几十年中看到的有所不同。
-
-国务卿布林肯发表上述言论之际，华盛顿和北京就中共国高级外交官员杨洁篪和美国国家安全顾问杰克·沙利文之间可能举行的面对面会谈的时间和议程难以达成一致，双方正在努力防止当下两国间的紧张局势演变成更大的冲突。
-
-《南华早报》此前报道称，在拜登政府宣布外交抵制即将举行的北京冬奥会和残奥会后，由美国提出的在本月初举行会议的提议遭到中共的拒绝。
-
-在美国政府于12 月宣布抵制冬奥会后之后，美国的盟友们也发表了一连串类似的声明，这表明拜登政府正在努力团结其他国家在人权和经济实践等问题上对抗中共国。
-
-布林肯说，“当美国独自承担这件事时，我们占世界 GDP的 20% 或 25%，当我们与欧洲或亚洲的合作伙伴和盟友合作时，我们一共占据占世界 GDP 的 40%到50%。中共国难以忽视这一点。”
-
-拜登总统维持其前任制定的许多鹰派对华政策，包括对价值数十亿美元的中共国进口商品征收关税、对涉嫌侵犯人权的中共国官员实施制裁，以及官方认定中共在新疆维吾尔自治区构成种族灭绝罪。
-
-（秘翻新闻主编 清风先生编译报道）
-
-发布:文橙
+1/26/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线48天第31次位列匈牙利iTunes摇滚音乐视频榜榜首，第48次位列前三名
 
 * * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
+
+
+[【PDF 下载】Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Wednesday-26-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
