@@ -2,37 +2,25 @@
 ---
 
 
-## 布林肯称美国应重返“国际组织”以对抗中国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1911317/)
+## 美国出台法案，强化应对中共国竞争力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1911849/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-247.png)图片来源自本文网站
+1月26日《共同通信》在线消息，美国众议院25日公布了一项加强国内产业竞争力的法案，以便在安全相关产业领域与中共国进行抗争。该法案除了投资520亿美元加强半导体生产系统外，还将加强重要产品的供应链并提供研究支持。
 
-整理：Eileen（围剿维尼熊）
-编辑：5m
+拜登总统对该法案的宣布表示欢迎，称这是未来美国与中共国和其它国家的竞争迈出了重要一步。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a1643165972185.jpg)图片来源：雅典娜设计组
+民主党众议院议长佩洛西在声明中表示，期待着与参议院讨论该法案，并尽快将其提交给总统期望尽快通过。
 
+信息源：
 
-据观察者网报道：在1月24日的论坛讲话中，美国国务卿布林肯再谈中美关系。他回顾拜登政府过去一年的对华政策，称有竞争也有合作，但“其中对抗性成分越来越多”。谈及原因，布林肯称：“很大程度是因为中国已全然不同，变得更加自信、更加咄咄逼人。”
+[米、中国対抗へ競争力強化　下院法案、半導体に6兆円](https://news.yahoo.co.jp/articles/68296bec49762373399ca3e80438a33e3de9a14d#:~:text=%E7%B1%B3)
 
-布林肯称美国应重返国际组织，以防中国在国际组织发挥领导作用，并强调现在和未来都要掌握主动权。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-当谈及美国将如何应对现在的中国时，布林肯提到：对内，加强投资；对外，巩固联盟关系。
-
-布林肯表示，美国应重振联盟关系，与盟国一起同中国打交道。他举例说，当与中国在经济问题上产生分歧时，美国若独自应对，只占世界GDP的20%至25%；若选择与欧洲或亚洲的盟国一起应对，就占到世界GDP的40%至50%，这股力量“令中国难以忽视”。
-
-与此同时，美国还应加紧对自身的投资，包括教育、基础设施、创新领域。
-
-参考链接：https://i.ifeng.com/c/8D65Jqt69GM
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,12 +2,19 @@
 ---
 
 
-## 反对强制疫苗接种的和平抗议受到精心策划的破坏攻击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1912438/)
+## 看国内房地产经济时，要问自己的三个问题
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1912751/)
 
-01/23/2022 伊娃·弗拉丁格布鲁克: 在布鲁塞尔反对强制疫苗接种的和平抗议活动被警察的高压水枪和催瓦斯打断。 据说安提法和黑命贵组织通过对抗议者和警察使用暴力来升级那里的局势。 很明显，一场精心策划的袭击破坏了和平抗议
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：*Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
