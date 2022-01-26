@@ -2,36 +2,47 @@
 ---
 
 
-## 【圆成原创】在中共治理下，良知经济学者只能郁郁而终
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1914998/)
+## 参议员科顿：美国应该像支持乌克兰一样支持台湾
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915151/)
 
-**作者：面包飞上天**
+作者：纽约香草山农场 – 四季
 
-今天不经意间看到著名经济学者张维迎的文章，很有感慨。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9C702C40-76EE-455C-AFDE-5060B3C50E8A.png)图片来源：[禁书网](https://www.bannedbook.org/forum20/topic18383.html) 
-这是若干年前的一个文章，总结中共过去几年究竟是什么推动了中国经济的高增长，他的结论是改革开放后资源配置效率的提高，提出了中国未来经济若要持续增长，要把寻租活动转向创造价值的活动。并提出了5点建议：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-1. 保护企业家剩余价值索取权。
 
-2. 减少政府干预经济活动。
 
-3. 政治体制改革。
 
-4. 建立相对独立的司法制度，使政府在法律范围内行事。
 
-5. 减少政府控制的资源数量。
+据[布莱特巴特新闻网](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)1月25日报道，在福克斯新闻频道周二播出的 “故事”节目中，参议员汤姆·科顿（Tom Cotton）认为，美国应该向台湾提供更多援助和支持。
 
-像张维迎之类的经济学者的理想永远不会实现，除非改朝换代。因为这篇文章发表之后的现在，从习近平上台后，所进行的经济措施都是倒行逆施。说一点真话的经济学者要么关闭微博，要么打压，经济圈只剩下一批政策解读派，坚定的政策支持派。大学里学的经济学、金融学，教导的都是政府指导经济进行资源配置，突出政府主导地位，这是整个国家的悲哀。
+科顿表示，中共和普京都想推美国其全球超级大国的地位。美国应该从过往的绥靖、和解和软弱中吸取教训。因为对美国来说，中共国相比俄罗斯对美国构成了更大的威胁。
 
-**编辑：LILY**
+科顿认为，美国应该向台湾提供和乌克兰一样多，或比其更多的武器、外交、财政和政治支持，以避免台湾发生今天在乌克兰边境看到的危机。台湾对美国来说比乌克兰要重要得多。
 
-**发布：歪桑**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
 
-20220126
+编辑/校对/发稿：小鹿
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
