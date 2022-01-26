@@ -2,43 +2,22 @@
 ---
 
 
-## 短视频：科顿议员建议民主国家重新安排冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1913089/)
+## 冲绳团体要求政府停止儿童接种疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1913362/)
 
-翻译：文载
-校对：枳实
-剪辑字幕：蛮吉
-编辑：文泓
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2184.png)图片来源于本文链接
+日本冲绳省内计划3月开始儿童接种疫苗，但省内的内科医生牵头组成的团体25日向省政府提出了停止对未成年人接种的要求，因为疫苗的副作用尚不清楚。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/812-3.png)图片来源：视频截屏
+日本政府本月21日宣布，将允许5岁以上儿童接种疫苗，预计12岁以下儿童接种疫苗将从3月份开始在省内依次启动。在这种情况下，25日，一个由省内医生和家长组成的组织向省政府提出了要求，以“副作用尚不清楚”为由慎重考虑儿童接种疫苗，并在举行了新闻发布会。
 
+“在新冠疫苗的安全性和有效性确定之前，我们将要求暂停未成年人的疫苗接种。”该组织表示，“在父母的不安和疑虑没有得到解决之前，就给孩子接种疫苗，这本身就是一个问题。”
 
-科顿参议员，我们只剩下大约一分钟了，我想问你另一个话题。
+信息来源：[「未成年へのワクチン停止を」　沖縄の内科医らでつくる団体　県に要望書を提出](https://news.yahoo.co.jp/articles/93c0c34a2db4a2ef44fffb647c8a09ffc02ab472)
 
-那就是，中国已经停止向本国人出售奥运会门票。它也不向海外人士出售门票，因为奥密克戎毒株现在开始在北京真的有点猖獗了。
-
-你担心吗？你过去曾表示过担忧，现在奥密克戎开始相当迅速地蔓延？关于美国运动员在接下来的两个半星期里将忍受什么？以及美国奥委会应该怎么应对？
-
-约翰，我非常关注,我在几个月前呼吁全面抵制这些奥运会，因为拜登政府没有一个计划来保证我们的运动员免受中国的监视或骚扰。现在，中国甚至不向自己的公民出售门票，是时候重新安排这些比赛的时间了。
-
-记得吗，两年前的东京夏季运动会我们也是这样做的(重新安排这些比赛的时间)。夏季运动会比冬季运动会规模大得多，在后勤方面也复杂得多。
-
-重新安排即将到来的冬季比赛的时间，并将其移至世界某处的文明民主国家，是非常容易的。这就是现在应该做的。
-
-好的，伟大的阿肯色州的汤姆·科顿参议员，很高兴今天能与你在一起。
-
-谢谢你加入我们！
-
-视频链接：[Tom Cotton rips Warrior’s co-owner for ‘shocking moral indifference’ to Uyghur human rights abuses | Fox News Video](https://video.foxnews.com/v/6292434909001#sp=show-clips)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

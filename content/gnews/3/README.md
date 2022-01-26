@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦致力传达正确、真实、实时的信息，得到许多国家和公益组织的尊重
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913655/)
+## 新中国联邦追求一人一票的选举政治制度
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1913819/)
 
 台灣寶島農場
 

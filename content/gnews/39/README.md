@@ -2,20 +2,24 @@
 ---
 
 
-## 中日财经爆┃联想也要造芯了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1912940/)
+## 时隔2年 山体染成红色的奈良若草山
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1913027/)
 
-撰稿：东京樱花团｜喜马拉雅的微尘
-![](https://lh6.googleusercontent.com/INddn5XsoxauCE_SOgTxSEgjyF8AzMyqk1gxdYVbOk-sO1ChUrxtrzJua862A-v4p0ybtE3ygIFAZAB3_WepcHnvV2-8Rj8iD3aruwQB4HvMCEYomuhZMehcBSNCtv99seBSp3Sq)[*图片来源*](https://www.sohu.com/a/352192651_118680)
-据南方财经1月26日报道，企查查App显示，1月26日，鼎道智芯（上海）半导体有限公司成立，法定代表人为贾朝晖，注册资本为3亿元人民币。公司经营范围包含：集成电路设计；集成电路销售；软件开发；软件销售；硬件开发等。企查查股权穿透显示，该公司由联想（上海）有限公司100%控股。
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-31.png)[*图片来源*](https://news.yahoo.co.jp/articles/d0d20d55902166d8c2ecaec82e7d5bb0215b7ab0/images/000)
+1月22日晚，古都奈良举行了宣告春天来临的若草山烧荒活动，梦幻般的火花时隔2年再次将山体染红。往年约有18万名游客前来参观，但是为了防止中共病毒（新型冠状病毒）感染的扩散，在[奈良公园](https://zh.wikipedia.org/wiki/%E5%A5%88%E8%89%AF%E5%85%AC%E5%9C%92)参观的游客仅限于事先登记的9000多名。此次首次在网上发布无人机在上空拍摄的影像。
 
-另外据官方消息，本季度联想集团营收948亿人民币；税前利润21.7亿人民币，同比增长达到45%。净利润实现14.2亿人民币，年同比增长达到20%。
+在烧荒之前，燃放了约200发烟花。下午6时15分左右，300多名消防队员以海螺和喇叭声为信号，用[春日大社](https://www.kasugataisha.or.jp/)的御神火点燃火把，火势顺势蔓延到了33公顷的山体。
 
-信息来源：[**联想于上海成立半导体公司，注册资本3亿元**](https://finance.sina.com.cn/tech/2022-01-26/doc-ikyamrmz7551821.shtml)
+2021年的烧荒虽然缩小了规模，但是因为下雨火势没有扩散，也没有改日重新燃烧。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
+信息来源：[**2年ぶりに山肌赤く染め上げ　奈良・若草山の山焼き**](https://news.yahoo.co.jp/articles/d0d20d55902166d8c2ecaec82e7d5bb0215b7ab0)
+
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
