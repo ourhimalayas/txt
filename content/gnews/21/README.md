@@ -2,30 +2,34 @@
 ---
 
 
-## 调查显示超85%日本民众否认日中关系良好
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910303/)
+## 蔡崇信以1亿8800万购买曼哈顿顶层公寓
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1910372/)
 
-作者：纽约磐石农场—在远方
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+作者：MOS 柳是多水土透
 
 
 
-台湾时间1月23日，台媒报道，值此日本与中共国建交50周年之际，根据日本内阁官方外交的最新民意调查显示，有超过85%的日本民众，否认日中关系良好。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新-2.png)
 
-该调查是日本内阁于去年9月底至11月，在日本全国随机抽取，18岁以上的3000个国民，以邮寄的方式，询问日本国民对政府外交看法的调查，获得1701人回答。当被问及日中关系时，回答“不认为良好”者，竟然高达85.2%，比上次民调增加3个百分点。当被问及日美关系时，回答“认为良好”者，占91.3%。
 
-针对民调结果，日本外务省表示，一般认为，中共频频入侵日本领海，以及中共极其恶劣的人权问题等因素，影响到日本民众对中共国的观感。中共在台海地区和日本海地区的军事扩张，已经成为该地区的最大威胁。
 
-新闻来源：[https://cn.rti.org.tw/news/view/id/2122873](https://cn.rti.org.tw/news/view/id/2122873)
+近日，一位买家从亿万富翁对冲基金经理Daniel Och 手中，以近2倍价格，买下曼哈顿220 Central Park South 顶层公寓。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-49.png)图片来源：Yahoo!finance
+彭博社根据产权文件，披露了买家身份 – Blue Pool Capital。根据纽约州政府文件，Blue Pool从JP Morgan Chase获得了7150万美元的贷款后，用1.88亿美元（约12亿人民币），购置这栋2年前仅为0.93亿美元的物业。这家注册地在香港的资本公司，实际上是阿里巴巴联合创始人及NBA布鲁克林篮网老板蔡崇信的财富管理公司。 6个月前，蔡崇信同样花费$157,000,000，买下了该栋楼内60和61楼2套1层1户大平层，以及位于18楼的单间公寓。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-10.png)
+中央公园南220号公寓（220 Central Park South），由设计过费城美国革命博物馆以耶鲁大学学院建筑的大师Robert A. M. Stern Architects设计楼体，室内装潢由曾领导过自由女神像修复的设计师Thierry W. Despont 负责，被称为曼哈顿“亿万富豪的碉堡。
 
-编辑：Ivy001
+2020-2021年疫情期间，纽约市最贵的房产交易，前22名都来自于这栋物业。
 
-校对/发稿：滚滚长江都是水
+郭先生曾在近日直播中披露，蔡崇信购买的多个中央公园附近高价房产为替马云洗钱代持的交易。
+
+新闻来源：[https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html](https://finance.yahoo.com/news/joe-tsai-family-office-pays-153700902.html)
+
+[https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse](https://www.bloomberg.com/news/articles/2022-01-19/joe-tsai-s-family-office-pays-188-million-for-och-ny-penthouse)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
 
 **更多资讯，更多关注**
 

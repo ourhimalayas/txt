@@ -15,110 +15,110 @@
 
 ---
 
-### [美国政府授权撤离美国驻北京大使馆](/content/gnews/1/README.md)
- ` 纽约香草山MOS02`
+### [日本防止中共病毒疫情扩散重点措施扩大到34个都道府县](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [扬帆每日速递 2022年1月25日版（1）](/content/gnews/2/README.md)
- ` 温哥华扬帆农场`
-
-### [麦卡洛医生紧急呼吁公众放弃疫苗接种](/content/gnews/3/README.md)
- ` 华盛顿DC-Russian`
-
-### [纽约法官取消了州口罩授权](/content/gnews/4/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [加拿大卡车司机 “自由车队” 的筹款活动超过 330 万](/content/gnews/5/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [为应对病毒爆发 日本将大部分地区置于准紧急状态](/content/gnews/6/README.md)
- ` GTV News Talk`
-
-### [歷史時刻 | 美國政府授權撤離駐北京大使館，正式開啟第三道滅共大門](/content/gnews/7/README.md)
- ` YALUN 亚伦`
-
-### [巴拉圭在ＷＨＯ执委会中力挺台湾](/content/gnews/8/README.md)
- ` GTV News Talk`
-
-### [【圆成原创】中共广开言路是政治作秀](/content/gnews/9/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共惧怕脱钩 刻意辟谣“中美联合公报无效”](/content/gnews/10/README.md)
- ` GTV News Talk`
-
-### [七哥谈共产党干的荒唐事（2022-01-17摘录）](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [【圆成原创】中伊俄三国军演说明什么?](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [新中国联邦创始人郭文贵先生 就美国授权驻北京大使馆撤离致函感谢](/content/gnews/13/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [蔡崇信以1亿8800万购买曼哈顿顶层公寓](/content/gnews/14/README.md)
- ` GTV News Talk`
-
-### [七哥谈重大的新证据（2022-01-17摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [有声|找到生命真相:（四）从《金陵碑塔》到《圣经》预言看“壬水”灭共年](/content/gnews/16/README.md)
+### [有声|接种疫苗后运动员体力和表现皆衰退](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [法国出台关于COVID-19新政策，禁止未接种疫苗的人 进入酒吧、餐馆和体育场馆](/content/gnews/17/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [中共在全球制造债务陷阱](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国FDA 开始拒绝批准辉瑞申请的药物](/content/gnews/18/README.md)
- ` GTV News Talk`
+### [有声|安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [1/25/2022 文贵重大公告：我们很荣幸地收获了美国及世界上关心中国人民主、法治、自由的国家对冬奥会的抵制以及针对中共的一系列行动](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
+### [有声|纽约孩童因反抗强制疫苗活动遭逮捕](/content/gnews/5/README.md)
+ ` MOSREC`
 
-### [历史时刻 | 美国政府授权撤离驻北京大使馆，正式开启第三道灭共大门](/content/gnews/20/README.md)
- ` YALUN 亚伦`
-
-### [调查显示超85%日本民众否认日中关系良好](/content/gnews/21/README.md)
- ` GTV News Talk`
-
-### [聚焦：美国撒回驻华使领馆促世界巨变](/content/gnews/22/README.md)
- ` 丁过`
-
-### [1/25/2022 文贵重大公告：在中国和全世界制造了一场又一场人道灾难的中共竟要在没有环境保护、没有人权、没有言论自由和人身自由的情况下举办冬奥会，这是对奥林匹克精神莫大的侮辱](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022/01/25 文贵紧急大直播&#8211;“甜蜜蜜”运动](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022年1月25日大直播速记精萃](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [【玫瑰看新闻】每日快讯2021年1月24日（新西兰时间）](/content/gnews/26/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [七哥谈背后操作（2022-01-17摘录）](/content/gnews/27/README.md)
+### [七哥说 “这是一场阴谋在新的开始”（2022-01-17摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [1/25/2022 文贵直播：，新中国联邦传播了有关中共所犯下的人权罪行和病毒、疫苗的真相](/content/gnews/28/README.md)
- ` 秘密翻译组-北美组`
-
-### [惨不忍睹！沪深两市超4300余股下跌创下历史记录](/content/gnews/29/README.md)
- ` 澳喜农场`
-
-### [七哥谈利益勾兑（2022-01-17摘录）](/content/gnews/30/README.md)
- ` MG FARM`
-
-### [1/25/2022 文贵直播：西方掌握了中共不守国际秩序、搞渗透与破坏的证据](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
-
-### [英国NHS工作人员大游行 强制性疫苗注射可能将被搁置](/content/gnews/32/README.md)
+### [呼吁Spotify罢免罗根的“270名医生”有些甚至都不是医学人士](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1/25/2022 文贵直播：早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方](/content/gnews/33/README.md)
+### [美国政府授权撤离美国驻北京大使馆](/content/gnews/8/README.md)
+ ` 纽约香草山MOS02`
+
+### [扬帆每日速递 2022年1月25日版（1）](/content/gnews/9/README.md)
+ ` 温哥华扬帆农场`
+
+### [麦卡洛医生紧急呼吁公众放弃疫苗接种](/content/gnews/10/README.md)
+ ` 华盛顿DC-Russian`
+
+### [纽约法官取消了州口罩授权](/content/gnews/11/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [加拿大卡车司机 “自由车队” 的筹款活动超过 330 万](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [为应对病毒爆发 日本将大部分地区置于准紧急状态](/content/gnews/13/README.md)
+ ` GTV News Talk`
+
+### [歷史時刻 | 美國政府授權撤離駐北京大使館，正式開啟第三道滅共大門](/content/gnews/14/README.md)
+ ` YALUN 亚伦`
+
+### [巴拉圭在ＷＨＯ执委会中力挺台湾](/content/gnews/15/README.md)
+ ` GTV News Talk`
+
+### [【圆成原创】中共广开言路是政治作秀](/content/gnews/16/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共惧怕脱钩 刻意辟谣“中美联合公报无效”](/content/gnews/17/README.md)
+ ` GTV News Talk`
+
+### [七哥谈共产党干的荒唐事（2022-01-17摘录）](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [【圆成原创】中伊俄三国军演说明什么?](/content/gnews/19/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [新中国联邦创始人郭文贵先生 就美国授权驻北京大使馆撤离致函感谢](/content/gnews/20/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [蔡崇信以1亿8800万购买曼哈顿顶层公寓](/content/gnews/21/README.md)
+ ` GTV News Talk`
+
+### [七哥谈重大的新证据（2022-01-17摘录）](/content/gnews/22/README.md)
+ ` MG FARM`
+
+### [有声|找到生命真相:（四）从《金陵碑塔》到《圣经》预言看“壬水”灭共年](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [法国出台关于COVID-19新政策，禁止未接种疫苗的人 进入酒吧、餐馆和体育场馆](/content/gnews/24/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国FDA 开始拒绝批准辉瑞申请的药物](/content/gnews/25/README.md)
+ ` GTV News Talk`
+
+### [1/25/2022 文贵重大公告：我们很荣幸地收获了美国及世界上关心中国人民主、法治、自由的国家对冬奥会的抵制以及针对中共的一系列行动](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/34/README.md)
+### [历史时刻 | 美国政府授权撤离驻北京大使馆，正式开启第三道灭共大门](/content/gnews/27/README.md)
+ ` YALUN 亚伦`
+
+### [聚焦：美国撒回驻华使领馆促世界巨变](/content/gnews/28/README.md)
+ ` 丁过`
+
+### [1/25/2022 文贵重大公告：在中国和全世界制造了一场又一场人道灾难的中共竟要在没有环境保护、没有人权、没有言论自由和人身自由的情况下举办冬奥会，这是对奥林匹克精神莫大的侮辱](/content/gnews/29/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥谈背后操作（2022-01-17摘录）](/content/gnews/30/README.md)
+ ` MG FARM`
+
+### [英国NHS工作人员大游行 强制性疫苗注射可能将被搁置](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥说&#8221;真的假不了、假的真不了&#8221;(2022-01-17摘录）](/content/gnews/32/README.md)
+ ` MG FARM`
+
+### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/35/README.md)
+### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
+
+### [七哥说“通过以身来证明法律和共产党的邪恶，让西方重新回到法治独立”（2022-01-17摘录）](/content/gnews/35/README.md)
+ ` MG FARM`
 
 ### [因被下调评级推特股价创一年新低](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`

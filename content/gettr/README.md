@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 12:17 AM (UTC)`
+
+1/25/2022 Miles Guo’s Big Announcement: Mr. Miles Guo and his fellow fighters of the Whistleblowers’ Movement have spent the last 5 years exposing the corruption and genocide of the CCP and have warned the West in advance of the incoming darkness created by the CCP, and we are the first to tell the world the truths about the CCP virus and the COVID vaccines. The US government has just made the decision to "authorize the evacuation" of the U.S. Embassy in Beijing. On behalf of the New Federal State of China, Mr. Miles Guo sincerely thanks President Biden and Secretary of State Blinken for this historic decision!
+![img](https://media.gettr.com/group26/origin/2022/01/26/00/98f3164c-c123-2738-8929-ed5ef95fb2cd/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 1/25/2022 11:28 PM (UTC)`
 
 A Thank You letter from the New Federal State of China to President Joe Biden and Secretary of State Anthony Blinken regarding closing US Embassy in Beijing <br/><br/>新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
@@ -147,13 +154,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1/24/2022 Miles Guo: The CCP will launch a propaganda campaign to turn the Winter Olympics, which will have no audience, into a huge success with 1.2 billion viewers, paving its way to invade Taiwan. I am going to initiate a “Tian Mi Mi” Movement at the doorstep of the CCP’s old kleptocrats to make a big move in Beijing!<br/><br/>1/24/2022 文贵直播：中共将开动宣传机器把没有观众的冬奥会说成是有12亿人看的巨大成功的奥运会，为打台湾做铺垫；文贵要在中共老杂毛家门口来个“甜蜜蜜”运动，在北京整点大动静！<br/>
 ![img](https://media.gettr.com/group25/getter/2022/01/25/00/99a85cd2-a171-af07-6d34-52efc7512f64/out.jpg)
-
----
-
-`@miles 1/24/2022 11:35 PM (UTC)`
-
-1月24号：尊敬的战友们好……你们健身了吗？在今天大直播后，在整个中共国甜蜜蜜这首歌，已经完全找不到了，爆料革命和新中国联邦到底有多大的力量？从共产党将盘古龙头变成龟头……又将甜蜜蜜这首最伟大的跨代的歌曲……迅速屏蔽．这就是共产党的恐惧，和我们有灭共能力的证据，一切都已经开始！
-![img](https://media.gettr.com/group21/getter/2022/01/24/23/d30350f8-649a-5cb4-b9a2-8779a8526aba/out.jpg)
 
 ---
 
