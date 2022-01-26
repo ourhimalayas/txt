@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 2:37 AM (UTC)`
+
+1月25号，Hcoin To the Moon MV上线第47天位列澳门🇲🇴iTunesMV榜首🥇，累计共34次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共30次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利,  柬埔寨和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1909557/<br/><br/>Jan 25th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 47 Day of Launch, hit No .1 for 34 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 30 times in total🎉🎉🎉<br/><br/>Hit No.1🥇on Cambodia 🇰🇭 iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, Cambodia and Laos 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 1/26/2022 2:15 AM (UTC)`
 
 Thousands gathered in front of the Lincoln Memorial in Washington DC for the 'Defeat The Mandates' Rally against COVID-19 vaccines. Many vaccine victims, doctors, scientists and other speakers have voiced their strong opposition to "mandatory vaccine policy".<br/><br/>数千人聚集在华盛顿特区的林肯纪念堂前，参加针对 COVID-19 疫苗的“击败强制授权”集会。许多疫苗受害者、医生、科学家等演讲者发出了强烈反对“强制疫苗政策”的声音！
@@ -147,13 +153,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1/24/2022 Miles Guo: The Whistleblowers’ Movement is the first to reveal the “Double-headed Eagle” campaign orchestrated by the CCP and Russia. Xi Jinping is going to invade Taiwan soon, and Putin will take Kiev directly. The Tian Mi Mi movement will render the situations in Taiwan and Ukraine unpredictable in six weeks. The Americans will have to get involved, and the evil forces will be eliminated.<br/><br/>1/24/2022 文贵直播：爆料革命最早说出中俄“双头鹰运动”，现在习要打台湾了，普京将直取基辅；甜蜜蜜运动将让台湾和乌克兰在六周内的局势不可预测，美国会被迫介入，邪恶势力将被消灭<br/>
 ![img](https://media.gettr.com/group29/getter/2022/01/25/07/66e8cca8-e6f3-a46a-f849-eb8a9943fe91/out.jpg)
-
----
-
-`@miles 1/25/2022 6:31 AM (UTC)`
-
-1月25号：尊敬的战友们好……七哥一边蒸馍馍．一边练这首歌呢？<br/><br/>【甜蜜蜜<br/>你笑得甜蜜蜜<br/>好像花儿开在春风里<br/>开在春风里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里<br/>梦里梦里见过你<br/>甜蜜笑得多甜蜜<br/>是你是你<br/>梦见的就是你<br/>在哪里<br/>在哪里见过你<br/>你的笑容这样熟悉<br/>我一时想不起<br/>啊在梦里］
-![img](https://media.gettr.com/group41/getter/2022/01/25/06/07f5b9ed-10ca-2be4-a3f0-3057f99534bc/out.jpg)
 
 ---
 

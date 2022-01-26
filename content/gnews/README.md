@@ -15,128 +15,128 @@
 
 ---
 
-### [杨洁箧王毅讲话的影响陈全国胡春华胡海峰（四）](/content/gnews/1/README.md)
+### [一切生命皆灵魂需要信仰](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭开始美国驻北京大使馆表示赞赏](/content/gnews/2/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.480 HDO](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [杨洁箧王毅讲话的影响陈全国胡春华胡海峰（一）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦与共产党在光刻机上的较量](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [杨洁箧王毅讲话的影响陈全国胡春华胡海峰（四）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭开始美国驻北京大使馆表示赞赏](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国政府拜登总统和布林肯先生作出的重大决定](/content/gnews/3/README.md)
+### [美国政府拜登总统和布林肯先生作出的重大决定](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [杨洁箧王毅讲话的影响陈全国胡春华胡海峰（三）](/content/gnews/4/README.md)
+### [杨洁箧王毅讲话的影响陈全国胡春华胡海峰（三）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [重大公告：美国宣布撤离驻北京大使馆](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【秘翻在线】拜登政府宣布撤销强制疫苗规定](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文·贵天成（特别篇）——爆料革命历史上的1月26日（九）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文·贵天成（特别篇）——爆料革命历史上的1月26日（八）](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [英国正在撤回乌克兰大使馆的部分工作人员](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [2022年1月25日文贵先生直播摘要及公告全文—银河系农场](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [郭文贵先生重磅宣布:美在北京撤馆！](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文·贵天成（特别篇）——爆料革命历史上的1月26日（七）](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [杨洁箧王毅讲话的影响陈全国胡春华胡海峰（二）](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [西安的血热不是任何新的病毒，原因就是疫苗所致](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [新中国联邦重大公告甜蜜蜜运动改变世界](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [澳洲新数据：打疫苗者Omicron中招率高10倍](/content/gnews/16/README.md)
- ` 走进澳洲`
-
-### [美国即将全面从中共国撤离所有领事馆](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [我们现在必须获取COVID-19疫苗和治疗方法的原始数据](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [灭共者——七哥小课堂](/content/gnews/19/README.md)
- ` MOS Designer香草山设计部`
-
-### [美国撤馆开启正式脱钩，党媒怒斥“肮脏的把戏”](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国劳工部也将取消中共病毒疫苗强制规定](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [对文贵先生的思路窥探（二）](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [魁北克法院剥夺母亲权利，媒体造势称其阴谋论者](/content/gnews/23/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [日本防止中共病毒疫情扩散重点措施扩大到34个都道府县](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|接种疫苗后运动员体力和表现皆衰退](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [有声|蓬佩奥国务卿呼吁建立威慑力以减少外部威胁](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [有声|安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [有声|纽约孩童因反抗强制疫苗活动遭逮捕](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [呼吁Spotify罢免罗根的“270名医生”有些甚至都不是医学人士](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国政府授权撤离美国驻北京大使馆](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
-
-### [扬帆每日速递 2022年1月25日版（1）](/content/gnews/31/README.md)
+### [扬帆每日速递 2022年1月25日版（2）](/content/gnews/9/README.md)
  ` 温哥华扬帆农场`
 
-### [新中国联邦创始人郭文贵先生 就美国授权驻北京大使馆撤离致函感谢](/content/gnews/32/README.md)
- ` 喜马拉雅纽约磐石农场`
+### [重大公告：美国宣布撤离驻北京大使馆](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|找到生命真相:（四）从《金陵碑塔》到《圣经》预言看“壬水”灭共年](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [历史时刻 | 美国政府授权撤离驻北京大使馆，正式开启第三道灭共大门](/content/gnews/34/README.md)
- ` YALUN 亚伦`
-
-### [聚焦：美国撒回驻华使领馆促世界巨变](/content/gnews/35/README.md)
- ` 丁过`
-
-### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/36/README.md)
- ` 秘密翻译组-原创组`
-
-### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
-
-### [因被下调评级推特股价创一年新低](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/40/README.md)
+### [【秘翻在线】拜登政府宣布撤销强制疫苗规定](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [华盛顿反疫苗集会，著名医生表示永不妥协](/content/gnews/41/README.md)
+### [文·贵天成（特别篇）——爆料革命历史上的1月26日（九）](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文·贵天成（特别篇）——爆料革命历史上的1月26日（八）](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [英国正在撤回乌克兰大使馆的部分工作人员](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [2022年1月25日文贵先生直播摘要及公告全文—银河系农场](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国](/content/gnews/16/README.md)
+ ` 首尔天池农场`
+
+### [郭文贵先生重磅宣布:美在北京撤馆！](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成（特别篇）——爆料革命历史上的1月26日（七）](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [杨洁箧王毅讲话的影响陈全国胡春华胡海峰（二）](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [西安的血热不是任何新的病毒，原因就是疫苗所致](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦重大公告甜蜜蜜运动改变世界](/content/gnews/21/README.md)
+ ` 纽约香草山MOS02`
+
+### [美国即将全面从中共国撤离所有领事馆](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
+
+### [我们现在必须获取COVID-19疫苗和治疗方法的原始数据](/content/gnews/23/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国撤馆开启正式脱钩，党媒怒斥“肮脏的把戏”](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国劳工部也将取消中共病毒疫苗强制规定](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [魁北克法院剥夺母亲权利，媒体造势称其阴谋论者](/content/gnews/26/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [日本防止中共病毒疫情扩散重点措施扩大到34个都道府县](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|接种疫苗后运动员体力和表现皆衰退](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [有声|蓬佩奥国务卿呼吁建立威慑力以减少外部威胁](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [有声|安德鲁·赫夫称：彼得·达扎克效命于中央情报局，生态健康联盟是“中情局前台组织”](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [有声|纽约孩童因反抗强制疫苗活动遭逮捕](/content/gnews/31/README.md)
+ ` MOSREC`
+
+### [呼吁Spotify罢免罗根的“270名医生”有些甚至都不是医学人士](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国政府授权撤离美国驻北京大使馆](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|找到生命真相:（四）从《金陵碑塔》到《圣经》预言看“壬水”灭共年](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [历史时刻 | 美国政府授权撤离驻北京大使馆，正式开启第三道灭共大门](/content/gnews/35/README.md)
+ ` YALUN 亚伦`
+
+### [聚焦：美国撒回驻华使领馆促世界巨变](/content/gnews/36/README.md)
+ ` 丁过`
+
+### [2022年1月25日，郭文贵先生关于美国授权北京领事馆撤出人员的紧急直播公告](/content/gnews/37/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美国撤离驻中国大使馆 中共末日到来！](/content/gnews/38/README.md)
+ ` 秘密翻译组-原创组`
+
+### [因被下调评级推特股价创一年新低](/content/gnews/39/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共内斗加剧，三前高干被同日除党籍](/content/gnews/40/README.md)
  ` GTV新闻访谈`
+
+### [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](/content/gnews/41/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [郭文贵先生重大公告：美国政府正式通知北京即日起，授权撤离美国驻北京大使馆！](/content/gnews/42/README.md)
  ` topnews`

@@ -2,38 +2,52 @@
 ---
 
 
-## 有声|蓬佩奥国务卿呼吁建立威慑力以减少外部威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1910569/)
+## 魁北克法院剥夺母亲权利，媒体造势称其阴谋论者
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1910640/)
 
-配音：香草山佛教部 – 李傻
+2022-01-25
+
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/RFY3IMA83R_EOYF.png)图片来源：TVA新闻TVA Nouvelles（2022 年 1 月 24 日）
+## 开篇就定义这位母亲是，“一个阴谋论的母亲，她认为接种疫苗是‘反人类罪’”
+
+TVA新闻TVA Nouvelles，LA PRESSE，和蒙特利尔日报三家主流新闻媒体，于2022 年 1 月 24 日，同时大张旗鼓地报道，魁北克省德拉蒙德维尔市（Drummondville），法院就父母对接种 COVID-19 疫苗的分歧作出了裁决。母亲单方面没有权利阻止她的未成年子女接种疫苗。其中LA PRESSE和蒙特利尔日报（2022 年 1 月 24 日）报道的详细内容刊载于题为《[魁北克法院：母亲单方面无权阻止未成年子女接种疫苗](https://gnews.org/zh-hans/1906462/)》的文章中，本篇文章是一个后续报道。 TVA新闻TVA Nouvelles（2022 年 1 月 24 日）的报道开篇就定义这位母亲是，“一个阴谋论的母亲，她认为接种疫苗是‘反人类罪’”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/BAU6RR6VFNQS7O606SQ.png)图片来源：蒙特利尔日报（2022 年 1 月 24 日），图片显示法官判决书的部分内容。图片中部分文字显示，法官指出：“她（这位母亲）声称（注射）疫苗是一种‘实验性注射’，（注射疫苗）可能导致她的女儿（成年后）不能生育”。
+## 法院更愿意遵循（魁北克省）公共卫生当局的建议
+
+紧接着，这篇报道搬出了魁北克省德拉蒙德维尔市（Drummondville）法官史蒂夫·J·莱姆尼茨（Steve J. Reimnitz）的一句话：“夫人（这位母亲）可以坚持她想要的，但是法院更愿意遵循（魁北克省）公共卫生当局的建议”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/MCXD3@77T1B7T0LC.png)图片来源：新闻TVA Nouvelles（2022 年 1 月 24 日），图片显示法官判决书的部分内容。图片中部分文字显示，法官指出：“夫人（这位母亲）可以坚持她想要的，但是，法院更愿意遵循（魁北克省）公共卫生当局的建议”。
+然后，该篇报道还这样描述这位母亲，她（这位母亲）甚至在（她的女儿）包里塞了一张纸条，要求她“做出正确的选择”并“拒绝任何毒药注射”。
+
+接着，该篇报道不得不用“痛惜”这个词替法官推脱，称法官在驳回了这位母亲的诉状后，还痛惜地补充说道，她的诉状只是重复“各种网站上找到的阴谋论、反疫苗论的说法”。意思是说，法官不会驳回这位母亲的诉状，如果这位母亲提供真凭实据。
+
+该篇报道最后还强调，自（疫情）大流行以来，（魁北克省）法院已系统地裁定支持接种疫苗。
+
+值得一提的是，在TVA新闻的电视视频上，记者两次重复了这段话，“法院更愿意遵循（魁北克省）公共卫生当局的建议”。第一次是重复电视屏幕上的字幕，第二次重复是把这段话作为电视节目结束语。
+
+另外本月中旬，义务报（Le Devoir，斯蒂芬妮·马林Stéphanie Marin, 2022 年 1 月 12 日）发表题为《未接种疫苗的父亲暂时失去看望孩子的权利》的文章还报道了魁北克省第一例剥夺未接种疫苗父母探访子女的权力的判决。报道称，在涉及一名 12 岁儿童的家庭法案件中，因为一位父亲没有接种COVID-19疫苗，法官暂时中止了这位父亲的探视权。详细内容刊载于题为《[魁北克省第一例法院判决——剥夺未接种疫苗父母探访子女的权力](https://gnews.org/zh-hans/1864608/)》的文章中。
+
+## 如果是一个三权分立与制衡的国家
+
+如果是一个三权分立与制衡的国家，政府的“行政措施”和“建议”是法官判案所应遵循的依据吗？法官有何证据判断这位母亲是阴谋论者，难道“各种网站上找到的阴谋论、反疫苗论的说法”就没有一丁点可信的地方吗？要想找到这两个问题的答案，文章编译及评论人推荐读者一篇题为《[为什么参加蒙特利尔反对卫生措施的示威活动？](https://gnews.org/zh-hans/1904486/)》的文章。
+
+参考链接：
+
+1 [TVA新闻TVA Nouvelles，2022 年 1 月 24 日，Contre la vaccination de ses enfants: une mère déboutée par le tribuna](https://www.tvanouvelles.ca/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal-1)
+
+2 [LA PRESSE，2022 年 1 月 24 日，Une mère complotiste ne peut empêcher ses filles d’être vaccinées](https://www.lapresse.ca/covid-19/2022-01-24/jugement/une-mere-complotiste-ne-peut-empecher-ses-filles-d-etre-vaccinees.php)
+
+3  [蒙特利尔日报，Le Journal De Montreal，2022 年 1 月 24 日，Contre la vaccination de ses enfants: une mère déboutée par le tribunal](https://www.journaldemontreal.com/2022/01/24/contre-la-vaccination-de-ses-enfants-une-mere-deboutee-par-le-tribunal)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月23日，前国务卿蓬佩奥接受媒体采访，再次呼吁美国需要建立威慑力。在节目中，主持人担忧近期俄、中、伊朗举行的军演，中共侵扰台湾防空识别区，以及俄罗斯在乌克兰边界的屯兵，将造成各国对美国外交政策的不信任。
 
-对此，蓬佩奥表示，美国提振在国际上的威慑力是解决目前事态的唯一途径。他指出，各国都在密切关注美国政府的行为举止，而现任政府需要像川普政府一样作出“回应”，来树立美国的威慑力。同时他强调，“回应”的方式不一定是出兵引发战争，可以像川普政府斩首苏莱曼尼，以及提供武器援助等措施，来维护其他国家包括当下乌克兰的主权等措施。而最关键在于，本届政府是否有能力和决心，使用手中的各种工具。
+编辑：LILY
+发布：肥鯮
+校对：
 
-最后，蓬佩奥还在回覆中特别区分了中共领导人习近平和中国人民、台湾人民，称这两方都正在关注美国如何扮演领导角色。并且只有美国建立了威慑力，才能保证美国和世界的繁荣稳定，从根本上减少外部挑战的出现。
-
-文字版原文：[蓬佩奥国务卿呼吁建立威慑力以减少外部威胁](https://gnews.org/zh-hans/1906474/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
