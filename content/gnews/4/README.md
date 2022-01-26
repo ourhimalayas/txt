@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大卡车司机自由车队抗议疫苗暴政
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1911186/)
+## 中共编造谎言，打自己的脸（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1911279/)
 
-加拿大温哥华扬帆农场 枫叶快讯
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-39-edited.jpg)图片来源：KLN
+头两天日本人看到中共网上说中国60岁的夫妻生了一胎。日本的哥们，给我打电话，他说Miles这100%是假的。
 
+他说，世界上遗传学做得最好的是日本、丹麦、瑞士，然后是美国、中国。 他说，这里边一定有一方是假的，这个男的年龄不对，这个女的年龄不对。 或者这个孩子不是他的，就没这事儿啊。
 
-据加拿大媒体【防卫】1月23日报道，上万名反对“新冠病毒”疫苗护照的加拿大卡车司机于当天参加了名为“自由车队”的跨国示威活动,并将从该国最西部的BC省驱车数千英里前往首府渥太华，以反抗当局违宪的疫苗接种政策。
+我马上了解说，李克强的前秘书说他去他娘家，全造假，他说那个女的， 这个生孩子指标给钱，生一个孩子拿3000块钱，然后一个月领多少钱，还精神有问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中共编造谎言，打自己的脸.001.jpeg)
+发布： *tianzhihuan*
 
-报道称，在特鲁多政府此前一意孤行地对加拿大和美国所有跨境的货运卡车司机要求疫苗护照之后，不甘受辱的卡车司机们随即自发行动并“封锁了所有向南前往美国的车道和来自美国的北行交通”作为对当局此举的有力回应。
-
-同时，由于特鲁多计划在美加边境拒绝所有未接种疫苗的卡车司机进入加拿大，因此将破坏两国贸易伙伴之间建立的包括从食品到汽车零部件等物流供应链。据悉，目前仅有约50%的美国卡车司机接种了疫苗，而正是因为特鲁多政府的强制疫苗护照，成千上万的货车司机将失去跨境货物运输的资格。
-
-* * *
-
-采编：青青 ，  编译撰稿：苦尽甜来 (文來），校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[https://childrenshealthdefense.org/defender/convoy-for-freedom-canadian-truckers-vaccine-mandates/](https://childrenshealthdefense.org/defender/convoy-for-freedom-canadian-truckers-vaccine-mandates/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
