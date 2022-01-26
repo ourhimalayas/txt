@@ -2,8 +2,8 @@
 ---
 
 
-## 中共宣传机构对美国体育节目主持人进行谩骂和攻击
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915126/)
+## 参议员科顿：美国应该像支持乌克兰一样支持台湾
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915151/)
 
 作者：纽约香草山农场 – 四季
 
@@ -13,17 +13,11 @@
 
 
 
-据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/01/25/chinese-propaganda-outlet-blasts-bob-costas-for-desecrating-olympic-spirit-by-criticizing-china/)1月25日报道，传奇体育主持人鲍勃·科斯塔斯（Bob Costas）在接受CNN记者布莱恩·斯特尔特（Brian Stelter）的采访时批评了中共国在新闻自由方面的糟糕记录，并批评国际奥委会允许在北京举行冬季奥运会。
+据[布莱特巴特新闻网](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)1月25日报道，在福克斯新闻频道周二播出的 “故事”节目中，参议员汤姆·科顿（Tom Cotton）认为，美国应该向台湾提供更多援助和支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Tom-Pennington_Getty-Images-24-640x480-1.jpg)Tom Pennington/Getty Images
+科顿表示，中共和普京都想推美国其全球超级大国的地位。美国应该从过往的绥靖、和解和软弱中吸取教训。因为对美国来说，中共国相比俄罗斯对美国构成了更大的威胁。
 
-科斯塔斯表示，国际奥委会选择让一个公开监视运动员和记者的国家来举办奥运会，理应受到所有的鄙视和厌恶。
-
-对此，中共《环球时报》履行了其作为共产党政权喉舌和捍卫者的义务，对科斯塔斯进行了谩骂和攻击。
-
-无独有偶，在郭文贵先生昨天发布有关美国撤离驻中共大使馆的公告之后，中共今天声称美方撤离使领馆人员将极大增加感染病毒风险，也是对美国的公然挑衅和威胁。
-
-在新闻自由方面，中共国的侵权行为是众所周知的。据联合国观察组织称，中共国除了是全球第一大人权侵犯者之外，还从事科斯塔斯在其评论中所指控的所有侵犯新闻自由的行为和间谍活动。
+科顿认为，美国应该向台湾提供和乌克兰一样多，或比其更多的武器、外交、财政和政治支持，以避免台湾发生今天在乌克兰边境看到的危机。台湾对美国来说比乌克兰要重要得多。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
 
