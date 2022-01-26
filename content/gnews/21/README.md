@@ -2,33 +2,38 @@
 ---
 
 
-## 1.25大直播后记: 郭文贵先生被赞誉为饮食大王
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1913946/)
+## 韩国中共病毒确诊病例首次超8000，创历史新高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914038/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/213232.jpg)
-
-
-
-图片来源：郭文贵直播
+作者: 首尔天池农场—追着曙光跑
 
 
-整理：雅典娜速记组 
-编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+据韩国《KBS新闻》1月25日的报道，截至当天0时，韩国较前一天0时新增感染中共病毒（新冠病毒）确诊病例8571例，创历史新高。
 
-美国人吃饭他不懂的，就是吃点儿烤牛肉就不得了了，法国人他是厉害他是懂，他们都是这个有身份。再来这个国家的文化吃文化，今天中午烤羊排，烤羊排黑羊排，哇塞，黑羊排。现在大家做饭就没有时间，大家都不拿时间做，都是什么快速微波炉啥的，没有时间都不是好东西，在灭共这件事情上，这个真是太多人做的贡献了，太多人了，在摄像机前的很多战友们，我真的没法形容这种感激。
+其中，京畿道确诊病例最多，为2900例；首尔确诊病例1700例，仁川确诊病例670例；全国累计确诊74.9979万例。当天新增23例死亡，累计6588例，平均致死率为0.88%。现有重症患者392例，较前一天减少26例。另外，全国约有3.2万人在家接受治疗。
 
-我不会改变我的生活，以后我会隐居山林，咱们天天在一起聊天，天天玩流水游戏，该干啥干啥。但是不管多大的事情都不能伤害你的道德，不能危害信誉，你不能把人家给忘了，不能这样做人，咱们很多这种。那些怕时间浪费的，坐着我跟你们聊聊天直播没影响啊，有本事的人就是你既能同时干好几件事儿，你还能做到你想要的。我还有一件事儿同时在干呢，你们都看不见而已，你看他那边，刚刚我们外面好多人，保镖和我们另外干别的事。
+上周奥密克戎（Omicron）变种已成为流行毒株，在新增确诊病例中，奥密克戎感染病例占比为50.3%。考虑到奥密克戎的传染率是德尔塔毒株的两倍多，专家预测本周内韩国新增确诊病例将超过10,000例。
 
-我们是为了更好的生活，别相信其他人说得，不能同时做事情。咱一会儿，你看准点吃馒头，准点儿烧锅，准点儿烤羊排，黑山羊的羊排，有个朋友是来自法国的，他不吃肉又多meat肌肉是吧？Invisible！我给他做的日本的关东菜还有青菜多少好吃，美国人什么都吃了。而且王雁平爱吃羊，她和我一样，是来自山东的，她爱吃羊肉。你要看着咱正在吃羊排的时候，说真的，王雁平能吃6，7块羊排你相信吗？我昨天我告诉我们的厨师，我说你做些羊排，但我不喜欢冻羊肉，那就没味儿了，羊排就得新鲜了吃。 所以说七哥是美食家，中东人吃羊天下第一，但是他们跟我在一起，吃的时候每次说，你是世界的饮食大王，你是Number One。
+**新闻来源**: [https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555](https://news.kbs.co.kr/mobile/news/view.do?ncd=5380555)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-7.png)
+总编: Irene木木
 
-发布：星谕
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

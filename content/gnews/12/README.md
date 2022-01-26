@@ -2,42 +2,22 @@
 ---
 
 
-## 上海女子被地铁屏蔽门夹住身亡
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914145/)
+## 美联储公开讨论应用数字货币的利与弊
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914217/)
 
-作者: 纽约香草山教育部 Naughty(文行)
+采编： 风云小哥          编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/01/05-image-7.jpg)
+据美国【CNBC新闻】1月20日报道，[美联储]日前发布了其近期对央行数字美元货币的研究报告。其中不仅探讨了如何在世界各地金融交易已经高度数字化的趋势下加速电子支付系统的应用，还审视了各项备受争议的相关问题，包括金融稳定风险，隐私保护以及防范欺诈等方面的利弊。
 
+报道称，尽管[美联储]在本次研究报告中未做出任何决定，但可以肯定的是，引入数字美元货币不仅将从根本上改变美国金融体系的结构，以及重塑私营企业和中央银行的角色和责任，而且加密数字货币系统现已成为主宰未来金融领域的必然趋势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-28.jpg)
-1月22日下午4点30左右，上海地铁15号线祁安路站发生安全事故。一名老年女乘客在下车时，被屏蔽门夹住无法脱困，现场工作人员操作失误，在列车启动后才去按下紧急制动开关，导致该乘客严重受伤，不治身亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/65ae-6fbd5d3aa66b4b7686e87e8f159ed1b0-1.png)截图源自网络
-上海地铁15号线为全自动线路，列车采用无人驾驶技术，于2021年1月23日开通试运营。
+结合此前GTV文贵大直播的爆料信息，[美联储]最终将会毫无选择地和[新中国联邦]的数字金融机构[喜联储]紧密合作，在目前和未来共同推动世界上唯一合法，稳定，安全以及最具实力的去中心化稳定数字货币：喜币的全球化使用。
 
-该事故直至25日才被中共官媒曝光，立即登上热搜，引发广泛关注。
+校对编辑：硫酸羟氯喹64
 
-墙内网民纷纷发表评论，有人抨击中共上海政府鼓吹的无人驾驶技术无视安全保障；有人指责上海地铁管理失职导致事故频发；甚至有人爆料称地铁15号线站台站务员是外包的无证上岗人员。
+发稿： 苦尽甜来 (文來）
 
-据报，上海地铁2007年曾出现过类似事故，2007年7月15日下午3时34分，上海地铁一号线站台上，一名男乘客上车时未能挤进车厢，被夹在屏蔽门和已开动列车之间，坠落隧道当场死亡。
-
-**参考链接**: [https://baijiahao.baidu.com/s?id=1722893321486000057&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1722893321486000057&amp;wfr=spider&amp;for=pc) [https://www.epochtimes.com/gb/22/1/25/n13527373.htm](https://www.epochtimes.com/gb/22/1/25/n13527373.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-306.jpeg)
-总编: Irene木木
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
+[原文链接](https://www.cnbc.com/2022/01/20/fed-releases-long-awaited-study-on-a-digital-dollar-but-doesnt-take-a-position-yet-on-creating-one.html)
 
  
 

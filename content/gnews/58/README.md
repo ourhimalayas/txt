@@ -2,18 +2,12 @@
 ---
 
 
-## 有声| 川普称 中共将在冬奥会后挑动台海局势
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911614/)
+## 有声|GTV新闻访谈简报|2022年1月22日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1911615/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月20日，美国前总统唐纳德-川普在接受媒体采访时指出，美国政府当前的软弱造成了俄罗斯眼下对乌克兰的威胁，而对于美国来说的下一个威胁将在中共北京冬奥会之后。彼时，中共将必然挑动台海局势。
-
-值得注意的是，近期，多位美国知名人士发表了类似的观点，包括前国务卿蓬佩奥、退休四星将军基恩，以及福克斯新闻的汉尼提和玛丽亚主播等。而这些表态几乎都是基于郭文贵先生在2021年的直播中向世界发出的密集警告，即中共将在冬奥会后对台湾动手。
-
-对此，在本月19日的大直播节目中，郭先生再次提醒世界称，中共内部矛盾越是严峻，其越会对台湾动手，以此将内部问题外移。加之习近平的自傲和来自身边的外交部战狼的蒙骗，中共在冬奥会后一定会向台湾下手。而这对台湾而言却是否极泰来，因为美国会因此意识到，不帮助、救援台湾等于自杀。
-
-文字版原文：[川普称 中共将在冬奥会后挑动台海局势](https://gnews.org/zh-hans/1894998/)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-21.png)
+文字版原文：[GTV新闻访谈简报|2022年1月22日早](https://gnews.org/zh-hans/1895022/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

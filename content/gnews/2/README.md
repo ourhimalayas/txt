@@ -2,41 +2,39 @@
 ---
 
 
-## 乌克兰局势紧张，美国计划增派8500名美军高度戒备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914270/)
+## 如俄侵乌美国将制裁普京本人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914389/)
 
-作者：纽约香草山 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒 24 日报道，随着乌克兰局势的持续紧张，美国总统拜登与欧盟多个国家的领袖举行视像会议，对俄罗斯入侵乌克兰将招致的严重后果表示担忧。
+作者: 纽约香草山医疗部 云豹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-3.jpeg)
 
-美国国防部发言人柯比宣布，升级美军戒备状态，“美国已采取措施，提升驻守本土及外国部队的戒备等级，以应对一系列的紧急状况，包括支援北约的应急部队，预计将高度戒备的部队成员数目增加到 8500人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+当地时间1月25日，美国总统拜登表示，如果俄罗斯入侵乌克兰，将考虑直接制裁俄罗斯总统普京。
 
-柯比强调，参与增援戒备的部队会涉及战斗部队、情报、侦察，以及医疗和物流支援人员。目前暂时没有具体细节，但随时准备在短时间内进行调动，以配合北约部署。
+俄罗斯近日陆续向乌克兰边境增派军队，并与白俄罗斯进行联合军演，已经引起北约及美国高度关注。 除了多次与俄罗斯进行外交协商试图说服俄国，北约及美国也在准备必要时军事支持乌克兰对抗俄国的入侵。
 
-与此同时，北约宣布下令更多部队进入戒备状态，并加强在东部地区的海空部署。北约秘书长斯托尔滕贝格表示，不排除增派战斗部队进入东部。
+美国总统拜登宣布不排除直接制裁俄罗斯总统普京，这是非常少见的外交手段。 此时提出，更显示出俄乌局势严峻，以及美国极力阻止战事发生的决心。
 
-俄罗斯国防部早前发布影片，显示东区的士兵及物资正积极运往白俄罗斯，以准备下月举行的联合军演。俄军同一时间宣布，已派遣 20 艘战舰及支援船只进入波罗的海，举行军事演习。在最新一期的文贵大直播中，郭先生认为乌克兰的局势背后并不简单，涉及的是中共党魁习近平与俄罗斯总统普京密谋达成的“双头鹰行动”，习近平要拿下台湾，普京将直取基辅，局势将变化莫测，大家拭目以待，但邪恶一定会被消灭。
+**新闻来源**: [https://www.cna.com.tw/news/aopl/202201260008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202201260008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+总编: Irene木木
 
-参考链接：
-1）[烏克蘭情勢緊張 北約調機艦強化東翼 美軍8500人待命赴歐](https://www.cna.com.tw/news/aopl/202201250050.aspx)
-2）[https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html](https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html)
-3）[https://gettr.com/post/pqfmlg539f](https://gettr.com/post/pqfmlg539f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：天滅中共
-编辑：天滅中共
-校正/发稿：谐趣园
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
