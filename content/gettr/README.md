@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/26/2022 12:49 AM (UTC)`
+
+1月25号：尊敬的战友们好……不要忘了我们的使命，全力以赴，传播共产党病毒疫苗大屠杀的真相……一切都已经开始！
+![img](https://media.gettr.com/group24/getter/2022/01/26/00/ffe46a34-75f8-8c22-0da0-43c4cc9cbf5f/e0c78f634498ae8cea1c2080bf13c009.jpg)
+
+---
+
 `@miles 1/26/2022 12:17 AM (UTC)`
 
 1/25/2022 Miles Guo’s Big Announcement: Mr. Miles Guo and his fellow fighters of the Whistleblowers’ Movement have spent the last 5 years exposing the corruption and genocide of the CCP and have warned the West in advance of the incoming darkness created by the CCP, and we are the first to tell the world the truths about the CCP virus and the COVID vaccines. The US government has just made the decision to "authorize the evacuation" of the U.S. Embassy in Beijing. On behalf of the New Federal State of China, Mr. Miles Guo sincerely thanks President Biden and Secretary of State Blinken for this historic decision!
@@ -147,13 +154,6 @@ Paul Marik 医生被医院禁止用他应该用的方法治疗中共病毒患者
 
 1/24/2022 Miles Guo: The Tian Mi Mi movement has gained the support from those in the CCP and people from all walks of life in Communist China, so Xi Jinping's “China Dream” will be turned into a nightmare. The Monument to the People's Heroes will be changed to the Monument to the Mothers and engraved with stories of the Chinese mothers such as Yang Gailan, and the Mausoleum of Mao Zedong will be converted to the memorial hall for 1 billion victims slaughtered by the CCP. Today’s live broadcast is definitely epoch-making!<br/><br/>1/24/2022 文贵直播：甜蜜蜜运动获得了党内及各界人士的支持，习近平的中国梦将成噩梦；人民英雄纪念碑要改为母亲碑并刻上杨改兰等中国母亲的故事，毛泽东纪念堂要改成十亿冤魂纪念堂；今天的直播绝对是划世纪的！<br/>
 ![img](https://media.gettr.com/group42/getter/2022/01/25/00/39859935-5782-c864-6035-a6c67b1093b6/out.jpg)
-
----
-
-`@miles 1/25/2022 12:45 AM (UTC)`
-
-1/24/2022 Miles Guo: The CCP will launch a propaganda campaign to turn the Winter Olympics, which will have no audience, into a huge success with 1.2 billion viewers, paving its way to invade Taiwan. I am going to initiate a “Tian Mi Mi” Movement at the doorstep of the CCP’s old kleptocrats to make a big move in Beijing!<br/><br/>1/24/2022 文贵直播：中共将开动宣传机器把没有观众的冬奥会说成是有12亿人看的巨大成功的奥运会，为打台湾做铺垫；文贵要在中共老杂毛家门口来个“甜蜜蜜”运动，在北京整点大动静！<br/>
-![img](https://media.gettr.com/group25/getter/2022/01/25/00/99a85cd2-a171-af07-6d34-52efc7512f64/out.jpg)
 
 ---
 
