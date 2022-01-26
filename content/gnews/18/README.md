@@ -2,41 +2,29 @@
 ---
 
 
-## 乌克兰局势紧张，美国计划增派8500名美军高度戒备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1914270/)
+## 甜蜜蜜灭共战役出其不意拉开帷幕
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1914296/)
 
-作者：纽约香草山 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒 24 日报道，随着乌克兰局势的持续紧张，美国总统拜登与欧盟多个国家的领袖举行视像会议，对俄罗斯入侵乌克兰将招致的严重后果表示担忧。
+采编：Quitman               编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/01/06-image.png)
+据[枫叶快讯]记者1月25日报道，[新中国联邦]创始人[郭文贵]先生在日前的直播节目中称，或将于春节和冬奥会期间，在北京二环以内中心地带唱响“甜蜜蜜”以歌灭共运动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-3.jpeg)
+但令所有人始料不及的是：“甜蜜蜜”言犹在耳之际，文贵先生却在当天上午的紧急直播中正式公告天下：美国政府将从即日起逐步撤离和关闭其驻中共国北京大使馆，并以此揭开了这场灭共于千里之外重大战役的序幕。
 
-美国国防部发言人柯比宣布，升级美军戒备状态，“美国已采取措施，提升驻守本土及外国部队的戒备等级，以应对一系列的紧急状况，包括支援北约的应急部队，预计将高度戒备的部队成员数目增加到 8500人。”
+文贵先生智勇双全的品质因在近五年的爆料革命运动中表现得淋漓尽致，而令中南坑内肝胆俱裂。这次“甜蜜蜜”灭共行动一言既出，中共当局瞬间魂飞魄散，立马全网封杀了该歌曲在国内的下载和播放，而[新中国联邦]对中共政权的震慑力则再次因此展现于全世界面前。
 
-柯比强调，参与增援戒备的部队会涉及战斗部队、情报、侦察，以及医疗和物流支援人员。目前暂时没有具体细节，但随时准备在短时间内进行调动，以配合北约部署。
+在中共被吓得颤若筛糠之际，文贵先生却“明修栈道，暗度陈仓”，并出敌之不意，先于美国政府发出了以上让总加速师习近平惶惶不可终世的末日通牒。至此，甜蜜蜜运动不仅向世人鲜明展示了[新中国联邦]的崇高国际地位和强大的正义实力，同时还将在中国大地敲响中共政权即将崩亡的丧钟。
 
-与此同时，北约宣布下令更多部队进入戒备状态，并加强在东部地区的海空部署。北约秘书长斯托尔滕贝格表示，不排除增派战斗部队进入东部。
+校对编辑：硫酸羟氯喹64
 
-俄罗斯国防部早前发布影片，显示东区的士兵及物资正积极运往白俄罗斯，以准备下月举行的联合军演。俄军同一时间宣布，已派遣 20 艘战舰及支援船只进入波罗的海，举行军事演习。在最新一期的文贵大直播中，郭先生认为乌克兰的局势背后并不简单，涉及的是中共党魁习近平与俄罗斯总统普京密谋达成的“双头鹰行动”，习近平要拿下台湾，普京将直取基辅，局势将变化莫测，大家拭目以待，但邪恶一定会被消灭。
+发稿： 苦尽甜来 (文來）
 
-参考链接：
-1）[烏克蘭情勢緊張 北約調機艦強化東翼 美軍8500人待命赴歐](https://www.cna.com.tw/news/aopl/202201250050.aspx)
-2）[https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html](https://www.nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html)
-3）[https://gettr.com/post/pqfmlg539f](https://gettr.com/post/pqfmlg539f)
+新闻链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+[https://gettr.com/post/pqd94s2312](https://gettr.com/post/pqd94s2312)
 
-总编：天滅中共
-编辑：天滅中共
-校正/发稿：谐趣园
+[https://gettr.com/streaming/pqha4z557d](https://gettr.com/streaming/pqha4z557d)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

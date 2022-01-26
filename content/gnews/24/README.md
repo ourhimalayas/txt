@@ -2,48 +2,34 @@
 ---
 
 
-## 台湾遭遇自10月以来最大规模中共国空军骚扰
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914203/)
+## 中国出生率创六十年新低 中共促生政策失效
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1914219/)
 
-作者：纽约香草山教育部—Naughty(文行)
+**撰稿：日本东京方舟农场 子辰**
 
+据大纪元1月25日报道，中共当局承认，尽管推出了促进生育的政策，但是没有任何效果。中国人口出生率连续两年跌破1%，创六十年新低。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-252.png)（图片来自网络）
+中共国家统计局1月17日称，截止2021年末，全国人口出生率为7.52‰；人口死亡率为7.18‰；人口自然增长率为0.34‰，全国人口出生率已跌至60年来的最低水平。
 
+自2021年开始，中共全力推广三孩政策，包括现金奖励和延长产假，以促进生育。但是，中共卫健委承认，这些措施并没有产生明显效果，中国出生率仍在继续下降，三孩政策短期内很难有效。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
+另据最新的官方数据显示，中国的结婚登记在2021年前九个月又继续下滑，其中，男多女少性别比例失衡也是导致结婚率不断下降的原因之一。
 
+有经济学家分析认为，依照现在看到的趋势，年轻人根本就不愿意结婚，也不愿意生孩子，因为住房、生育、教育、医疗等加起来的高昂成本对于年轻人来说极其沉重。
 
+从更深层次来看，是过去几十年计划生育政策酿成的恶果，是年轻一代生活在这个无奈的时代对未来失去了基本的信心。对大多数人来说，生存养育成本的提升，即使政府放开生育限制，其生育意愿也很低。
 
+人口出生率持续下降，直降导致人口老龄化比例增加。按照国际划分标准，一个国家或地区65岁及以上人口占比达到14%，即为深度老龄化社会。
 
+最后，经济学家和人口学家分析并警告说，这可能会影响到中国的经济活力甚至政治稳定性。
 
-周日（2022年1月23日），台湾报道称，台湾空军驱逐了39架飞向台湾岛的中共国空军飞机，其中包括 34 架战机、4 架电子战飞机和 1 架轰炸机。这是自去年10月以来中共国空军对台湾防区的最大规模入侵。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-40.jpg)
-据路透社报道，台湾国防部表示，台湾战机迅速采取行动对中共军机进行驱离。 中共国一直声称台湾是自己的领土，并长期在该岛附近空域执行威胁任务。 台湾表示，从去年10月1日开始，共有 148 架中共国空军飞机飞过台湾防空区。
+参考链接：
+1. [https://www.epochtimes.com/b5/22/1/24/n13525292.htm](https://www.epochtimes.com/b5/22/1/24/n13525292.htm)
+2.[https://www.epochtimes.com/b5/22/1/17/n13511372.htm](https://www.epochtimes.com/b5/22/1/17/n13511372.htm)
 
-参考来源：
-
-[Taiwan reports largest Chinese air force incursion since October](https://thehill.com/policy/international/591000-taiwan-reports-largest-chinese-air-force-incursion-since-october)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
-
-
+素材采编：子辰
+编辑：青城道姑
+发布：爱放飞
 
  
 

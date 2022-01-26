@@ -2,24 +2,30 @@
 ---
 
 
-## 日本允许年轻染疫者不就诊居家疗养
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914196/)
+## 台湾遭遇自10月以来最大规模中共国空军骚扰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914203/)
 
-作者: 纽约磐石农场—在远方
+作者：纽约香草山教育部—Naughty(文行)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
-日媒报道，鉴于当前中共病毒奥密克戎变异株迅速蔓延的形势，日本厚生劳动相后藤茂之在当地时间1月24日宣布，将允许年轻人中症状较轻，以及重症化风险较低的感染者，不去医疗机构就诊而开始居家疗养。
 
-该政策需要上述病人自行开展病毒检测，再将结果告知行政部门开设配有医生的健康跟进中心。还允许各地仅限出现发热等症状，但重症化风险较低的人，呼吁其在自行使用试剂盒检测之后再就诊。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
-据悉，此前日本政府要求确诊感染中共病毒后，原则上需要在医疗机构就诊，但现在日本政府根据奥密克戎的特性转变了方针，此举旨在于减轻医疗机构和保健所的负担。
 
-**新闻来源**: [https://china.kyodonews.net/news/2022/01/175236cb492f–.html](https://china.kyodonews.net/news/2022/01/175236cb492f--.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-11.png)
-总编: Irene木木
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+
+
+周日（2022年1月23日），台湾报道称，台湾空军驱逐了39架飞向台湾岛的中共国空军飞机，其中包括 34 架战机、4 架电子战飞机和 1 架轰炸机。这是自去年10月以来中共国空军对台湾防区的最大规模入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-40.jpg)
+据路透社报道，台湾国防部表示，台湾战机迅速采取行动对中共军机进行驱离。 中共国一直声称台湾是自己的领土，并长期在该岛附近空域执行威胁任务。 台湾表示，从去年10月1日开始，共有 148 架中共国空军飞机飞过台湾防空区。
+
+参考来源：
+
+[Taiwan reports largest Chinese air force incursion since October](https://thehill.com/policy/international/591000-taiwan-reports-largest-chinese-air-force-incursion-since-october)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+编辑/校对/发稿：兰兰
 
 **更多资讯，更多关注**
 
@@ -31,9 +37,11 @@
 
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
 
 
 

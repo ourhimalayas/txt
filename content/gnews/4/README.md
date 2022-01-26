@@ -2,34 +2,87 @@
 ---
 
 
-## 澳洲总理微信号遭篡改 疑中共干涉澳洲政治
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1914415/)
+## 大卫作战室直播精要- 2022/01/26
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1914436/)
 
-作者: 新中国联邦静
+主持：舒平风 | 嘉宾：跟着北美教练、猫声
+![](https://assets.gnews.org/wp-content/uploads/2022/01/012509-1.jpg)[GTV直播链接](https://gtv.org/video/id=61f13a5228a108147c6321ca)
+**板块1–灭共者联盟**
+
+1. 2022年1月25日郭文贵先生重大公告，美国授权撤离北京大使馆。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
-1月23日外媒报导，澳洲总理莫里森拥有7.6万名粉丝的微信公众号，在不知情的情况下被篡改为了“澳华新生活”，原账号描述也被改成“为澳洲华侨提供生活信息”。总理办公室已经不再拥有对该账户的访问权。澳大利亚国家安全专家警告说，接管莫里森的账户是中共对微信内容审查的严重升级。
+灭共第三道大门正式打开。党内战友和国际战友默默贡献力量的结果。
 
-澳洲议会情报和安全委员会主席、自由党参议员帕特森1月24日在推特上发文谴责，认为这是中共禁止总理使用微信，试图阻止他与澳洲华人交流，却允许反对党领袖对他进行攻击，这是中共在干预澳洲民主，试图在选举之年对党派产生影响。并呼吁所有澳洲两院议员抵制微信。
+1. 环球网紧跟文贵先生重大公告，独家报道–《美国以疫情为由批准驻华使馆“授权撤离”》变相宣传。
+2. 文贵先生爆料五周年纪念日。文贵先生从开始“保命、保财、报仇”到现在引领战友全面灭共，中间经历各种压力、背叛、威胁。
 
-**参考链接**: https://www.abc.net.au/chinese/2022-01-24/pm-scott-morrison-wechat-account-hijacked/100778098
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-总编: 飞虹
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+**板块2–国际政治**
 
-**更多资讯，更多关注**
+1. 美国准备让外交官因严格的新冠规则离开中共国。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+德语系新闻关于美国撤离中共国大使馆没有任何媒体报道，凸显中共深度花重金渗透欧洲媒体。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+战友们继续多语种宣传。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+1. 北京冬奥会：宣布外交抵制和政要参加的国家分别都有谁。
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+公开外交抵制名单：立陶宛、美国、英国、加拿大、丹麦、新西兰、瑞典等。
+
+参加冬奥会的政要国家名单：波兰（欧洲唯一）、阿根廷、俄罗斯、哈萨克斯坦、巴基斯坦、蒙古等。
+
+**板块3–中共病毒**
+
+1. 北京感染者增加但简化了对参赛者的检测。
+
+
+实则欺骗手段。放宽检测让更多媒体和参赛者积极来中共国参加冬奥会，让冬奥会看上去更有“人气”。
+
+**板块4–军事**
+
+1. 乌克兰驻日大使表示：战争概率很小，但可能有局部冲突。
+
+
+美国关注乌克兰和台湾，中共小算盘——在俄罗斯占领乌克兰时顺势趁乱攻占台湾。
+
+德国海军副统帅表示俄罗斯不是威胁，中共才是真正的威胁。随后“被迫”辞职。
+
+海参崴曾经类似香港、澳门签下租期，然后再也没提及回归之事。中共是中国最大的卖国贼。
+
+中共绑架和洗脑中国人，混淆党和国家的概念。
+
+**板块5–财经**
+
+1. 陷入债务危机的恒大星期三将召开投资者会议。
+
+
+中共国房地产现阶段“危如累卵”，恒大危机将波及全世界，中共“蓝、金、黄”继续买通华尔街的套路逐渐失效，恒大崩溃将“打痛”西方经济让西方更加坚定灭共决心。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://express.adobe.com/page/sQ8TvmpxhctDw/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/sQ8TvmpxhctDw/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle*
+
+*校对: 乐禧禧*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
