@@ -2,27 +2,52 @@
 ---
 
 
-## 欧盟向世贸组织起诉中共国
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1919056/)
+## 德国每日COVID病例超20万，已造成行业人员短缺
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1919110/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+作者：纽约香草山农场 – 四季
 
-1月27日，欧洲联盟向世界贸易组织对中共国提诉，强调中共国对立陶宛采取的岐视性贸易已影响整个欧盟供应链。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-449.jpg)（图片来自facebook.com/EuropeanCommission）
-据《中央社》报道，欧盟说明，近月以来中共国海关拒绝清关立陶宛货物，拒绝立陶宛的进口申请，也向其他欧盟成员国企业施压，要求向中共国出口时从其供应链中移除立陶宛产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-对此，欧盟向世贸组织对中共国提起诉讼。欧盟主管贸易事务执行委员杜姆布罗夫斯基斯（Valdis Dombrovskis）27日表示，提讼并非轻率的一步，是在多次尝试双边解决问题失败后，欧盟认为除了请求WTO争端解决之外别无他法。
 
-同日，欧盟驻世贸大使马查多（João Aguiar Machado）也致函中共国驻世贸大使李成钢，信中表示，中共对立陶宛实施进口禁令、出口禁令和服务限制。 这些措施涉及来自或运往立陶宛相关的商品或服务，已经影响整个欧盟的供应链。
 
-**去年，立陶宛因在本国设立台湾代办处得罪中共国，随后遭到中共国在外交和经济上强力施压报复。**
 
-参考链接：
- [https://www.cna.com.tw/news/aopl/202201270378.aspx](https://www.cna.com.tw/news/aopl/202201270378.aspx)
 
-素材采编：幽蘭自得
-编辑：青城道姑
-发布：爱放飞
+据[OAN网站](https://www.oann.com/germany-reports-new-daily-record-for-covid-19-infections/)援引路透社1月27日报道，周四，德国新的中共病毒感染人数首次超过单日20万，比一周前的同一天多出69600例。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-27T132954Z_1_LYNXMPEI0Q0MP_RTROPTP_0_HEALTH-CORONAVIRUS-GERMANY_1.jpg)2022年1月27日，在德国慕尼黑一个疫苗接种中心前，人们排队等待接种中共病毒（COVID-19）疫苗。（REUTERS/Andreas Gebert）
+
+罗伯特·科赫传染病研究所的报告显示，每10万人的七天发病率从前一天的941人上升至1017人，另有188人死亡，使自2020年初大流行开始以来的死亡人数达到117314人。
+
+DIVI急诊和重症监护医生协会的董事会成员乌韦·扬森斯（Uwe Janssens）警告说，如果每日感染人数超过30万，那么德国的关键基础设施就可能出现问题。卫生部长卡尔·劳特巴赫（Karl Lauterbach）预测，到2月中旬，每日病例可能超过40万。
+
+德国疫情的升级已造成一些行业人员的短缺。汉莎航空集团的货运部门说，由于员工中感染率的上升，其在法兰克福枢纽的人员已趋短缺，这意味着它目前无法处理来自美国、加拿大和欧洲的散装货物的分拣。目前，法兰克福有多达15%的货物受到延误的影响。
+
+德国医院联盟在本周早些时候也警告说，四分之三的医院报告说病假的员工人数高于平时。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
