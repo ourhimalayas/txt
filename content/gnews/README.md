@@ -15,83 +15,83 @@
 
 ---
 
-### [2022.1.27大直播 郭文贵先生谈爆料革命五年最感慨的事：灭共易，改变人心难](/content/gnews/1/README.md)
+### [德桑蒂斯抨击“医疗威权主义”](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [挪威政府拒绝为儿童推荐中共病毒疫苗](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [2022.1.27大直播 郭文贵先生谈爆料革命五年最感慨的事：灭共易，改变人心难](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [01/27/22 香港快讯 恒指泻482点 北水暂停成交1334亿](/content/gnews/2/README.md)
+### [病毒的来源是中共的生化武器](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [01/27/22 香港快讯 恒指泻482点 北水暂停成交1334亿](/content/gnews/5/README.md)
  ` 英喜-粵語組`
 
-### [加拿大一父亲痛诉辉瑞疫苗害死其17岁儿子](/content/gnews/3/README.md)
+### [加拿大一父亲痛诉辉瑞疫苗害死其17岁儿子](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美光科技解散中共国的内存设计团队](/content/gnews/4/README.md)
+### [美光科技解散中共国的内存设计团队](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [懦弱自私的族群](/content/gnews/5/README.md)
+### [懦弱自私的族群](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [台湾加入外交抵制中共冬奥会的行列](/content/gnews/6/README.md)
+### [台湾加入外交抵制中共冬奥会的行列](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [台湾副总统过境美国获两党议员一致欢迎](/content/gnews/7/README.md)
+### [台湾副总统过境美国获两党议员一致欢迎](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [习近平尴尬了！美新任驻中大使伯恩斯 未到任先申请「授权撤离」](/content/gnews/8/README.md)
+### [习近平尴尬了！美新任驻中大使伯恩斯 未到任先申请「授权撤离」](/content/gnews/11/README.md)
  ` 波士顿五月花农场金融部`
 
-### [媒体的重要性 团体的重要性](/content/gnews/9/README.md)
+### [媒体的重要性 团体的重要性](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [早期治疗有效！生存率 99.99%](/content/gnews/10/README.md)
+### [早期治疗有效！生存率 99.99%](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [01/27每日播报｜多名立法者呼吁各国建立涉疆人权暴行的公司黑名单](/content/gnews/11/README.md)
+### [01/27每日播报｜多名立法者呼吁各国建立涉疆人权暴行的公司黑名单](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/12/README.md)
+### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/15/README.md)
  ` 秘密翻译组金融团队`
 
-### [DC大中华时事：蔡英文回复教宗方济各，两岸须平等对话](/content/gnews/13/README.md)
+### [DC大中华时事：蔡英文回复教宗方济各，两岸须平等对话](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [是什么让她最终放弃了自我保护的权利？ 西安29岁女生因冻饿而死](/content/gnews/14/README.md)
+### [是什么让她最终放弃了自我保护的权利？ 西安29岁女生因冻饿而死](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [卡扎菲的独裁是神经病统治](/content/gnews/15/README.md)
+### [卡扎菲的独裁是神经病统治](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [提防中共 日本维新会提案严惩违反保密规定的行为](/content/gnews/16/README.md)
+### [提防中共 日本维新会提案严惩违反保密规定的行为](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数字银行和博彩执照加在一起是盐和水](/content/gnews/17/README.md)
+### [数字银行和博彩执照加在一起是盐和水](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [疫情经济大跃进](/content/gnews/18/README.md)
+### [疫情经济大跃进](/content/gnews/21/README.md)
  ` 银河勇气之星`
 
-### [中日财经爆┃日产联盟启动3万亿日元开发电动汽车，未来将推出35款车型](/content/gnews/19/README.md)
+### [中日财经爆┃日产联盟启动3万亿日元开发电动汽车，未来将推出35款车型](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [橡树资本没收 香港“凡尔赛宫 ”地块，破坏恒大重组计划](/content/gnews/20/README.md)
+### [橡树资本没收 香港“凡尔赛宫 ”地块，破坏恒大重组计划](/content/gnews/23/README.md)
  ` 波士顿五月花农场金融部`
 
-### [劲歌金曲变禁播歌手，越禁歌越金](/content/gnews/21/README.md)
- ` G-NEWS TAIWAN`
-
-### [文•贵天成——文贵先生谈“曾庆红”（十一）](/content/gnews/22/README.md)
+### [文•贵天成——文贵先生谈“曾庆红”（十一）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本的最大的赌王想加入咱博彩牌照](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰计划招募13万名平民组成民兵对抗俄罗斯](/content/gnews/24/README.md)
+### [乌克兰计划招募13万名平民组成民兵对抗俄罗斯](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [多伦多男子的儿子因接种辉瑞疫苗而死亡](/content/gnews/25/README.md)
+### [多伦多男子的儿子因接种辉瑞疫苗而死亡](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [从2月1号起，丹麦完全取消所有疫情限制措施](/content/gnews/26/README.md)
- ` 秘密翻译组-原创组`
 
 ### [韩国称朝鲜发射“不明导弹”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`

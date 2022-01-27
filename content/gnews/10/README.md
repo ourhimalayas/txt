@@ -2,61 +2,32 @@
 ---
 
 
-## 早期治疗有效！生存率 99.99%
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918550/)
+## 台湾副总统过境美国获两党议员一致欢迎
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918582/)
 
-翻译： Jenny Ball
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月25日，据相关媒体报道，台湾副总统赖清德在搭机过境美国洛杉矶时，与来自加州、亚利桑那州、犹他州等邻近区域的17位联邦国会两党议员进行了视频会谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-27-上午5.58.14.png)
+会谈中，美方向台湾传达了美国两党对台海安全、台湾国防安全、美台双边经贸关系，以及供应链议题的关注。他们强调，美国支持台湾参与国际组织，并期待美台双方在科技等领域的合作。此外，部分议员更是直接在会上提出了将推进友台立法进程。而对于中共对台湾愈演愈烈的施压，美方也传递出积极支援的态度。议员们还笑言，支持台湾已经是美国两党间极少数能达成一致意见的共识。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-42.jpg)图片来源：Joe Raedle/Getty Images
+台湾方面，赖清德也向美方转达总统蔡英文对美台关系的重视。赖清德强调，美台之间享有共同的价值与利益，尤其在印太地区的安全稳定和经济发展上，双方将有许多合作的空间。
 
-一位在大流行期间一直为 COVID-19 患者提供免费远程医疗服务的医生说，对 COVID-19 的早期治疗是有效的，他说存活率为 99.99%。
+参考链接：[美國會議員會見賴清德 自嘲兩黨難得有共識](https://www.cna.com.tw/news/aipl/202201260158.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-在线医疗咨询服务 “我的免费医生”（myfreedoctor.com） 的创始人本·马勃（ Ben Marble ）医生，在 1 月 24 日由参议员罗恩·约翰逊 (Ron Johnson)主持的圆桌讨论会上说：“我们有一个志愿者免费医生团队，他们贡献自己的时间来帮助治疗这些来找我们的病人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-他补充说：“我们尽可能早地向他们提供早期治疗方案，我们的生存率达到了 99.99%。所以，我相信我的免费医生”组织的免费的志愿医生已经确定了这一点——早期治疗有效！”
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-马勃还回答了约翰逊的问题，即如果他们或他们的亲人感染了 COVID-19，人们可以做什么。
-
-马勃解释道，人们可以访问网站 myfreedoctor.com，创建一个帐户，并填写患者接收表。然后，其中一名医生将在不到 24 小时内伸出援手。由于对其服务的需求巨大，医生们说他们“每天只能接受一定数量的病人”。
-
-马勃说他和他的志愿医生小组，开出了彼得·麦卡洛医生 (Dr. Peter McCullough) 的治疗方案，包括羟氯喹、伊维菌素、单克隆抗体、泼尼松和其他低成本仿制药，还开具了维生素 D 和 C 以及锌的处方。
-
-心脏病专家和流行病学家麦卡洛医生与几位医生一起制定了早期治疗方案，为** COVID-19 **患者提供门诊护理，他们的论文于** 2020 **年** 8 **月发表在《美国医学杂志》上。
-
-前线 COVID-19 重症监护 (FLCCC) 联盟主席兼肺病学家皮埃尔·科里（Pierre Kory）博士说，公众不知道全国各地都有医生将为** COVID-19 **提供远程医疗和早期治疗。
-
-“在我们的网站上，我们有一个按钮，上面写着寻找供应商，我们试图收集尽可能多的远程医疗服务提供商来治疗该国所有州，”科里说。
-
-他补充说：“我们正试图让人们知道这一信息，因为这种疾病是可以治疗的这一信息被压制了。”
-
-科里还说，联邦层面存在腐败，在压制使用重新利用的廉价药物及其可用性的早期治疗方面存在腐败，并且CDC已“成了制药业的俘虏”。
-
-“腐败是因为他们不希望你使用标签外的、重新利用的仿制药，因为它们不会为系统提供利润，” 科里补充说，“你知道这个国家现在发生了什么，**CDC**已经被制药业占领了。”
-
-“他们在 2021 年 8 月发出了一份备忘录，他们在 2020 年春天也发出了一份类似的备忘录，告诉全国的医生和药剂师不要使用仿制药。”
-
-CDC一直不鼓励早期治疗，并且现在继续不鼓励早期治疗，其指导从大流行开始到 2022 年 1 月，只关注人们自我隔离 14 天、保持水分、服用镇痛药，并且只有在可能的情况下才寻求医院护理。他们还警告人们不要服用任何未经批准用于 COVID-19 的药物。
-
-CDC在其潜在治疗网页上写道：“人们在服用未经批准用于治疗或预防 COVID-19 的产品，甚至是批准或规定用于其他用途的产品后，受到了严重伤害，甚至死亡。”
-
-在过去的两年里，美国FDA仅授权了有限的 COVID-19 早期门诊治疗，包括针对高危患者的单克隆抗体以及默克和辉瑞的抗病毒药丸。然而，FDA 于 1 月 24 日宣布，其将限制礼来公司（Eli Lilly）和再生元公司（Regeneron）的单克隆抗体的使用，仅限于“可能感染或暴露于对这些治疗敏感的变异体”的患者。”
-
-约翰逊举行了圆桌讨论，就应对大流行病提出了不同的看法，包括“早期和住院治疗的知识现状、疫苗的有效性和安全性、什么是对的、什么是错的、现在应该做什么，以及需要长期解决的问题。”
-
-讨论小组由著名的健康专家和科学家组成，其中包括麦卡洛博士、罗伯特·马龙博士和 保罗·马里克（Paul Marik ）博士。
-
-根据新闻稿，约翰逊还邀请了十多名参与制定、促进和领导大流行应对措施的知名人士，其中包括CDC主任罗谢尔·瓦伦斯基博士和白宫冠状病毒应对协调员杰弗里·齐恩茨（Jeffrey Zients），所有这些人都拒绝参加论坛。
-
-参考资料：[theepochtimes][Doctor’s Organization Has Treated Over 150,000 COVID-19 Patients With 99.99 Percent Survival](https://www.theepochtimes.com/doctors-organization-has-treated-over-150000-covid-19-patients-with-99-99-percent-survival_4236896.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-01-27)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
