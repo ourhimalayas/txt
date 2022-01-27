@@ -2,36 +2,98 @@
 ---
 
 
-## MV版Hcoin To the Moon上线49天第32次位列匈牙利iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1918971/)
+## 1月26日老班长战友联盟答疑，G系列相关信息文字版
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1919034/)
 
-1/27/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线49天第32次位列匈牙利iTunes摇滚音乐视频榜榜首，第49次位列前三名
+非官方整理，一切信息以联盟答疑音频为准
 
-* * *
+G-听写： qiutian（邱甜）（2段）； ohbigant；鲁西西
 
-[【PDF 下载】Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+（时段：开始～33:00 qiutian（邱甜））
 
-* * *
+1、问：GTV发股有进展了吗？
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
+答：联盟有个专门的小组在继续审核，第一批在复核了不着急，第二批完成了保密协议的签订，股东协议也在发放之中，但是还没有完全完成。第三批大概在一两周后启动。
+
+2、问：之前在原来的俄罗斯农场有人民币借款，现在需要做什么吗？
+
+答：新西兰农场有和俄罗斯对接的义工，可主动联系义工也可联系我。
+
+3、问：有GTV上市的消息吗？
+
+答：目前还没有确定的日期。
+
+4、问：原VOG的投资已经填了相关表格，需要个人参加什么申述吗？还是等联盟通知就行了？
+
+答：你可以等联盟通知这是没问题的，目前款还是在SEC控制下，每个战友都有权利去申述和投诉，直接找SEC为什么还不退回我们的钱？按照和解协议去年底就应该把钱退回了。
+
+5、问：GTV投资的审查第二批以后的在今年6月的期限前预计有可能完成吗？
+
+答：一定会完成的。
+
+6、问：在原俄罗斯农场用人民币汇的款怎么对帐？到现在没人和我对帐过。
+
+答：请原俄罗斯农场的所有战友，还没有到新西兰农场工作组登记的，去新西兰农场找文晓，文疯而动，我本人联系，尽快完成登记对账。
+
+7、问：2020年底加入农场的战友，算老战友吗，4月份前可以投GTV重建吗？
+
+答：老战友的定义是指过去有过投资的，11月1号前有过任何G系列投资的。
+
+8、问：有HPAY的最新消息吗？
+
+答：一月31号上线。
+
+9、问：喜贷款什么时候出来？
+
+答：希望5个月左右出来。
+
+（时段：33:00～49:30 ohbigant）
+
+10、SEC冻结款4月30日前没有退款，怎么参与G-TV投资？
+
+答：保留投资G-TV投资的权利，股票会暂时让机构代持，会给足够的时间让大家拿到退款去完成投资G-TV。
+
+11、美加日的G-TV重建进度怎么样？
+
+答：只有美国比较特别，需要等待。加拿大和日本与其他国家进度一样。
+
+12、买G|CLUBS的支票没有入账？
+
+答：要么废掉要么召回支票（和农场沟通好情况），或是考虑HDO支付。
+
+13、福利币10%退回个人账户怎么样了？
+
+答：个人KYC没有代持关系的，10%福利币在个人账户。联盟代持的需要成功核对后发回账户，没有喜币账户只能联盟代持。目前联盟不支持帮大家处理喜币的交易行为，需要有资质的机构按照大家的意愿来操作。
+
+（时段：49:30～结束 鲁西西）
+
+🍀POS机的培训要等拿到当地的支付牌照，进入结算系统时候。具体哪些国家可以，会有公告出来。
+
+14、个人自留的HCN能否低于10%，需要怎么操作？
+
+答：前提是你自己过了KYC，这个只有上限，不设下限。具体操作等联盟公告。
+
+15、与战友合资买G|CLUBS卡，涉及的福利币被战友代持，那10%自留的HCN怎么才能到我账户？
+
+答：如果已过KYC，经过联盟核对农场协调后按个人意愿会分到各自账上。股票部分也按比例各自持有。
+
+合作投资的，如果没有事先约定都是按出资比例分配利益。如双方产生法律纠纷，联盟会锁住福利，直到争议解决。联盟有仲裁小组，也会帮大家协商解决。
+
+G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
+
+语音链接：
+
+[https://mega.nz/file/wDZy1ZrJ#l-btYC2m\_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc](https://mega.nz/file/wDZy1ZrJ#l-btYC2m_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc)
+
+https://mega.nz/file/wDZy1ZrJ#l-btYC2m\_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc
 
 
-[【PDF 下载】Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+https://mega.nz/file/wDZy1ZrJ#l-btYC2m\_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc
+
+审核：夏目&山竹
+
+发布：夏目&山竹
 
  
 

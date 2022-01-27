@@ -2,32 +2,37 @@
 ---
 
 
-## 2022/01/26 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1918768/)
+## 有声|印尼政府收购私人银行，正式进军数字银行领域
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1918798/)
 
-1. 1月25日，辽宁沈阳被通报出现新冠病毒确诊病例。中共政府以疫情被扩散的借口，持续加大了对各地省
-2. 份的军控状态。（视频只取0:22～1:09，可1.2倍加速播放）
-3. 1月25日，河北保定。被中共政府通报出现一例新冠病毒确诊病例。（视频可1.2倍加速播放）
-4. 1月25日，黑龙江东宁市被中共政府实行封城，高速公路路口被管控，只能进不能出。（只取视频前40秒，可1.2倍加速播放）
-5. 1月26日，北京。进京需要24小时的核酸检测阴性证明，警察会在各路口设卡上车查验。
-6. 1月25日，深圳火车站春运返乡高峰，民众出行需经过层层关卡的严格审查。
-7. 1月26日，面对美国拜登政府已经正式通知北京政府，从即日起授权撤离美利坚合众国驻北京大使馆的行
-8. 为。中共政府紧急放出大外宣媒体洗脑民众，意图持续挑起利用中共大陆的民族主义情绪以自保。
-9. 在22日出现乘客被地铁屏蔽门夹住导致死亡事件后。1月25日，上海地铁再次被拍到有乘客被卡在车厢门和屏蔽门之间。
-10. 1月24日，山东省肿瘤医院儿童肿瘤科。马上过年了，依然有很多全国各地的小患者来山东省肿瘤医院治疗。中共国癌症泛滥的原因是什么？
-11. 湖北武汉。年轻人在自诉其花光三代积蓄购买的商品房已经烂尾一年。房企未履行职责，业主无处维护自己的权利。
+配音：香草山佛教部 – 李傻
 
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+外媒 24 日消息，印尼政府银行 Bank Negara Indonesia——BNI 宣布收购由 Mayora 集团和世界银行国际金融公司IFC 共同持有的银行，Bank Mayora，目前交易正等待股东大会达成协议，预计到今年 5 月份正式达成。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+BNI 在一份官方声明中表示，Mayora 银行将转型成为一间数字银行，重点服务于国内的中小企业。另外，BNI 还收购了几间相关领域的知名科技公司加入该数字银行的计划。
 
+早前，智库香港 有分析人士認為，“金融业未来的趋势就是数字化，而数字货币、数字银行将会是未来金融基建的核心。”
 
-编辑：【英国伦敦喜庄园编辑部】
+文字版原文：[印尼政府收购私人银行，正式进军数字银行领域](https://gnews.org/zh-hans/1914353/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
