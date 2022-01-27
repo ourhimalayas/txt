@@ -2,14 +2,11 @@
 ---
 
 
-## 2022年1月27日《樱花快报》：美国感染中共病毒住院人数下降 死亡人数上升
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1915749/)
+## 新中国联邦不企图在灭共的正义运动中获得任何利益
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1915808/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220127-scaled.jpg)
+台灣寶島農場
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

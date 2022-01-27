@@ -2,28 +2,54 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月26日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1914433/)
+## 白宫进入加密货币监管激烈讨论
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1914633/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+编译：Jenny Ball
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-25.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-41.jpg)图片来源：finance.sina.com.cn
 
-视频参看：[2022.01.26早GTV新闻访谈](https://gtv.org/video/id=61f14c3728a108147c633018)
+拜登政府正准备最早在 2 月发布政府范围内的加密货币监管战略，美联储对抗通胀的不确定性，使市场正处于与不稳定有关的深度溃败的阵痛中。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据一位政府官员称，即将发布的国家安全委员会（**NSC**）备忘录，将责成联邦机构评估加密货币带来的风险和机遇，并深入研究中央银行数字货币的细节。此举还将审查数字资产对金融稳定的影响，并与其他国家规范加密货币的监管。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-19.jpg)
+彭博新闻社首次报道这一行动之际，政府各机构正在审查新的加密规则。去年秋天，拜登政府发布了建议，建议只允许银行发行稳定币。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+数字货币受到市场避险情绪的冲击。比特币周一处于最低水平，较接近 69,000 美元的历史高位下跌 50%，原因是加密货币在投资者对美联储加息的焦虑，以及华盛顿政策制定者考虑对该行业进行监管而遭受重创。
+
+参议员辛西娅·卢米斯 (Cynthia Lummis) 是国会山上比特币最直言不讳的倡导者之一，预计将提出一项关于监管加密货币的法案，旨在将数字资产完全整合到金融系统中。 她的立法将对哪些资产属于哪个资产类别提供指导，并提供对加密货币征税和保护消费者的新规则。
+
+与此同时，参议员帕特·图米 (Pat Toomey ) 提出了一套指导方针，用来思考如何监管稳定币和加密货币。
+
+根据国会去年通过的基础设施法案，美国财政部也可能很快透露更多关于谁将被视为加密货币经纪人的想法， 这将包括如何向美国国税局报告任何资本收益或损失。
+
+当前的抛售是对监管力度和投资者保护的一次重大考验。证券交易委员会（SEC）主席加里·根斯勒（Gary Gensler）一再警告说，需要对加密货币提供更大的投资者保护，通常将其称为“狂野西部”（1）。
+
+(注释1：狂野西部，也称为旧西部或美国边境。 狂野西部因密西西比河以西地区的无法无天而得名。)
+
+以市值衡量的第二大加密货币以太坊，较上一个记录下跌了约 53%，而Solana下跌了约 64%。
+
+Cowen的分析师杰瑞特·赛伯格（ Jaret Seiberg ）周一表示，政府的干预“具有象征意义，因为白宫将承认加密货币在经济上变得越来越重要。”
+
+赛伯格补充说，它强化了加密货币将继续存在的想法，“如果白宫不相信加密货币将继续增长并在整个经济中传播，白宫就不会发布这样的命令，”他补充说。
+
+该行政命令可能为白宫提供权衡数字美元的机会，这是美联储上周刚刚公布的一个框架。
+
+根据赛伯格的说法，该命令可以为政府的其他部门（如商务部和财政部）提供保障，以权衡对数字美元的需求和用途，它还可以解决越来越多的加密用于非法目的和逃税问题。
+
+分析师补充说：“我们预计，这将包括对监管数字钱包和交易平台的额外重视，以确保执行了解你的客户规则。”
+
+**评论：数字货币的时代即将到来，只有符合法律，保障客户安全的数字货币，才能称为政府和民众的选择，喜币是唯一按这个方针设计的双币稳定币，并有严格的KYC把关防止非法资金投入，24/7的客服保障投资者的利益。**
+
+参考资料：[finance.yahoo][White House to enter crypto regulation fray, with eye on financial stability](https://finance.yahoo.com/news/white-house-to-enter-the-fray-on-crypto-regulation-with-an-eye-on-illicit-flows-080056833.html?guccounter=2)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
 
  
 

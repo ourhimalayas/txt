@@ -2,36 +2,41 @@
 ---
 
 
-## 反对党领袖：澳中关系前路多艰
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1914687/)
+## 美国国家安全官员审查阿里巴巴云服务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1915293/)
 
-编辑：Little Lamp
+据《国会山》记者：Monique Beals，2022年1月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2199-e1643234820429.png)图片源自：美联社/Ng Han Guan
+拜登政府正在评估阿里巴巴的云服务是否对美国国家安全构成威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/f7f3817f4c8144fe.png)图片来源：雅典娜设计组
+据路透社报道，三位消息人士说，这次审查将调查该公司是如何存储美国客户的数据，并试图确定中共国政府是否有机会接触这些数据。
+
+**据路透社援引其中一位消息人士和一位前特朗普政府官员的话说，前总统特朗普的商务部此前对阿里巴巴的云服务提出了担忧，拜登政府在就职后对该公司进行了正式审查。**
+
+此次调查在美国政府加强对中共国科技公司与美国公司交易审查之际展开。美国监管机构可以选择要求该公司降低某些风险，或者完全禁止美国人使用该服务。
+
+尽管阿里巴巴拒绝发表评论，但该公司最近的年度报告提到了与美国公司合作的担忧，称美国客户“可能被禁止继续与我们开展业务，包括履行与我们相关……云服务协议下的义务”，路透社指出。
+
+阿里巴巴在美国的云计算业务年收入约为5000万美元，只是该公司全球数百亿年收入的一小部分。
+
+**路透社还报道说，2020年8月，特朗普政府警告，不要使用像阿里巴巴这样的中国云计算供应商，以防止美国公民最敏感的个人信息和我们企业最宝贵的知识产权……被储存和处理在我们的外国对手可以访问的云计算系统上。**
+
+在中共国和美国之间的紧张局势不断升级之前，阿里巴巴在硅谷开设了中国以外的第一个云计算中心。然而，一位知情人士告诉路透社，在特朗普担任总统期间，由于中美关系的紧张加剧，该公司缩减了在美国的扩张努力。
+
+国会已向阿里巴巴和商务部征求信息反馈。
+
+文章来源: [https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA](https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA)
+
+翻译：洛杉矶盘古农场 – Nelson
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – WenXiong
+编辑：洛杉矶盘古农场 – 子萍
 
 
-据sbs中文报导，联邦反对党领袖阿尔巴尼斯（Anthony Albanese）在发言时表示，澳大利亚与中国的关系在未来将会很困难。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-阿尔巴尼斯在全国新闻俱乐部发表讲话，讲述如若工党在联邦选举中获胜，他之后的政府计划。
-
-他表示，现任政府与中国的紧张关系，需要调整方法。
-
-他说：“我希望的事情之一是，你可以有一个澳大利亚的政策，对维吾尔人、香港、台湾、中国南海和人权问题上是一致的。 但仍然可以用拥有霍华德政府时期所拥有的经济关系，这对区域而言很重要。”
-
-阿尔巴尼斯暗示，澳大利亚对中国的政策不会在竞选期间分裂两党。
-
-他说：“不管谁在政府里，这都将是一段艰难的关系。这将很困难，因为中国的姿态已经改变。改变的是中国，而不是澳大利亚。”
-
-文章来源：[联邦反对党领袖称，即使工党赢得选举，澳中关系仍会面临困难。](https://www.sbs.com.au/chinese/mandarin/zh-hans/federal-opposition-leader-anthony-albanese-says-australia-s-relationship-with-china-will-be-difficult-moving-forward)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

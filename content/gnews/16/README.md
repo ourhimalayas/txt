@@ -2,23 +2,37 @@
 ---
 
 
-## 中国人的自卑自狂
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1915821/)
+## 有声|韩国中共病毒确诊病例首次超8000，创历史新高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915919/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山农场 – 纳米
 
-中国这些小粉红不是一般的愚蠢，以为欧洲人怕你呢！欧洲人对你那任何一个到嘴边没骂你的话和欧洲人对你那所谓的表面喜欢只有一个字，钱！欧洲人骨子里对中国人，包括对中共，永远是零看得起你，你在人家眼里真的是狗屁不是。宁可被俄罗斯人真的脱几把裤子，他都看得起俄罗斯人，他怕俄罗斯人，他也看不起中国人。中国人完全不知道。你看到那些孩子们，在巴黎大街上挎着包，一包一包地买。到哪儿去，人家店里面那种欢迎， I Love China,我喜欢你，你好吗，谢谢再见。讲点中文，中国人吧就觉得厉害。你是来自西安吗？我也去过西安。哎呀，中国人的鼻子就翘起来了！根本不知道出门以后人家就是“Fuck! Get Out”。都是这样。中国那样得孩子不知道有多少，我见太多了。巴黎的几个潮店，我去以后都是中国人啊。后来发现中国人不待见中国人要找香港人，台湾人，那海外华人，还讲着似听非懂的中国话。你来自哪里呢？我是北京来的。哎，你老乡啊，你哪来的啊？来自HongKong,还得捏着嗓子说话。我说:“你就别装了，一听你就四川人。”为啥呀？完全吃透了中国人看不起自己人，完全看透了中国人那种自卑自狂自傲。这个上下左右都竖起来，你这太厉害了，你喝咖啡，我给你特别咖啡，然后有香槟你喝嘛。你太厉害了，你是我见过最有品味的中国人。一出门就这种傻叉，这全是偷的钱骗的钱腐败的钱！ 文耀在欧洲你是深有感触的。在瑞士，你到瑞士任何一个高级餐厅，中国人一站在那儿的时候，外国人一打眼，一看是中国人，不是香港日本来的。我跟你说看你那眼神儿就是一句话，呸！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中国人的自卑自狂.png)
-2021年12月29日大直播
 
-发布： *tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据韩国《KBS新闻》1月25日的报道，截至当天0时，韩国较前一天0时新增感染中共病毒（新冠病毒）确诊病例8571例，创历史新高。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+其中，京畿道确诊病例最多，为2900例；首尔确诊病例1700例，仁川确诊病例670例；全国累计确诊74.9979万例。当天新增23例死亡，累计6588例，平均致死率为0.88%。现有重症患者392例，较前一天减少26例。另外，全国约有3.2万人在家接受治疗。
+
+上周奥密克戎（Omicron）变种已成为流行毒株，在新增确诊病例中，奥密克戎感染病例占比为50.3%。考虑到奥密克戎的传染率是德尔塔毒株的两倍多，专家预测本周内韩国新增确诊病例将超过10,000例。
+
+文字版原文：[韩国中共病毒确诊病例首次超8000，创历史新高](https://gnews.org/zh-hans/1914038/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
