@@ -2,48 +2,28 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1919356/)
+## 文贵直播1.27: 我要用歌声，智慧地“温柔地”灭掉共产党
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1919368/)
 
-编译：wenwu
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-32.jpeg)
+图片：大直播截图（感谢香水百合）
 
-您若想了解全文报导内容，请点击标题链接
+郭文贵先生在今天的大直播中展现了他无比的幽默和智慧。他说，今年春节31号，即纽约时间，早上8点钟开始的春节大直播，他将开唱从没有唱过的歌，既是《甜蜜蜜运动》的继续版，而且对共产党的杀伤力极强。安排在冬奥会开幕式之前，他要用歌声把中共冬奥会的开幕式灭掉。全球期待摇滚歌王Miles Guo, 以他超人的智慧和无比的创意，将邪恶而愚蠢的共产党创办的人类历史上最耻辱的冬奥会开幕式灭掉。
 
-**1. [拜登政府在最高法院败诉后撤回对企业的中共病毒疫苗授权](https://www.cnbc.com/2022/01/25/covid-vaccine-mandate-osha-withdraws-rule-for-businesses-after-losing-supreme-court-case.html)**
+但是，各国和共产党的勾兑仍然在继续中。普京去北京，从过去约定的22个小时，延长到48小时，他的待遇是和习近平在一个包厢，就他们两个人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/106986631-1638989814343-gettyimages-1236325596-775732771.jpeg)图片来源：*Drew Angerer | Getty Images*
+文贵先生推动的《甜蜜蜜运动》让全世界都想瞩瞩目。各国都举了棒揍，或挤着要钱要机会。埃及总统肯定来，沙特王子本·萨勒曼肯定来，阿布扎比王子，来！人家为了国家利益，能骗你钱为啥不骗你去啊？巴基斯坦要去，南韩派议长去，非洲说：“我要派个总统，或者副总统去”。马克龙说：“你再增加50台空客飞机，我去”，德国总统得去卖汽车，但是对不起都提出要跟普京一个待遇，和习近平同包厢。原来这就是甜蜜蜜运动啊，和习近平就差同床了。
 
-据《CNBC》2022年1月25日电，职业安全与健康管理局将从周三（26日）星期三起根据最高法院的裁决来撤销拜登政府对百人以上企业的疫苗授权规定；拜登已经呼吁企业自愿执行这些要求；因医疗保健专业人员在感染了Omicron变体后被迫请病假，许多美国医院正面临着卫生人员短缺的问题。
+中共为了办冬奥会，居然给中东几国承诺，给卡塔尔承诺未来5到10年，石油天然气订购的量翻一倍半，不买的话，愿意接受20%的罚款。而和普京的交易还在商谈中。
 
-**2. [德国部长：针对未接种疫苗者的压制性防疫措施是基于“软件”错误](https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)**
+对比之下整个东北三省一年烧油烧汽加在一起才需要300亿美元，中国东北人就不用到处找柴火烧，能过个暖和的冬天。这300亿美元都不够中共给那些穷国小国大撒币的援助和承诺。中国人真的是天下最可怜的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-32.png)图片来源：Wahagen Khabayan
+郭先生愤怒到极点，他说：从来人类历史上，就算最血腥的独裁者如希特勒，斯大林，都没有像共产党，虐待老百姓出卖国家所有人的利益，就为了让十几个人高兴。中国人可怜到什么程度，我用什么话形容都不为过！
 
-据《国家脉动》2022月1月24日电，德国卫生部长卡尔·劳特巴赫（Karl Lauterbach）在全国第二大城市汉堡（Hamburg）发生了诋毁如今的大流行是未接种疫苗者所导致的数月后，决定出来承认这是计算机“[故障](https://twitter.com/Tim_Roehn/status/1475580686211829761?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1475580686211829761%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)”得出的错误结论（Hamburg’s Social Services的数据可以被故意修改）；近10万名德国公民在最近几天参加了反疫苗强制令的抗议活动。
+来源：
 
-**3. [FDA被指控试图强迫美国人接种不起作用的中共病毒疫苗](https://www.dailymail.co.uk/news/article-10440181/FDA-faces-criticism-restricting-COVID-antibody-treatments.html)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1-10.png)图片来源：dailymail.co.uk
-
-据《每日邮报》2022年1月25日电，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）抨击了FDA限制Regeneron和Eli Lilly公司的COVID-19单克隆抗体治疗的使用，乃是“没有一丝临床数据支持”的；FDA还扩大了对吉利德科学公司（Gilead Sciences）的抗病毒COVID-19药物remdesivir的使用许可（以前只用于住院者）。
-
-**4. [科罗拉多州高中疫苗诊所在未经家长同意的情况下为学生进行中共病毒疫苗接种](https://www.thegatewaypundit.com/2022/01/undercover-students-expose-colorado-high-school-vaccine-clinic-administering-vaccinations-without-parental-consent-even-school-superintendent-assured-not-happen/)**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_20220124-215204_Twitter-913x479-1.jpg)图片来源：thegatewaypundit.com
-据《门户网》2022年1月24日电，科罗拉多州丹佛市公立高中（Littleton Public Schools）上周五（21日）举办了（未经法定监护人/家长签字同意的）校内流动诊所（18岁以下）打疫苗活动，这违背了该校校长（Brian Ewert）曾对家长们的承诺；该学校的教育委员会成员必须在周四（27日）为此次[视频](https://twitter.com/libsoftiktok/status/1485787966664368128?s=20)做出答复。
-
-**5. [英国医学杂志要求获取制药公司的中共病毒疫苗数据](https://thenationalpulse.com/2022/01/26/british-medical-journal-demands-access-to-covid-vaccine-data-slams-morally-indefensible-pharma-firms/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/vaccine-6174832_1280.jpeg)图片来源：Kay Smythe
-
-据《国家脉动》2022年1月26日电，英国医学杂志（BMJ）正在要求制药公司公布COVID19疫苗的原始数据；FDA说它愿意每月公布500页的数据（需要9年多时间），但德克萨斯州的一名法官命令公布FDA用于许可辉瑞公司疫苗的5.5万页数据，而大药厂选择尽可能拖延公布数据的时间；COVID19疫苗的作用未知，而一半的民主党选民支持将未接种疫苗的人关进“集中营”。
-
-* * *
-
-*审核：阿伯塔*
-*校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+[2022.1.27直播](https://gtv.org/video/id=61f297e628a108147c63ad37)
 
  
 

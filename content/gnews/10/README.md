@@ -2,48 +2,20 @@
 ---
 
 
-## 爆料革命五周年海报（二）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1919603/)
+## 美联储公开讨论应用数字货币的利与弊
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1919682/)
 
-设计者：纽约香草山设计部 — 战友时光，忧伤的兔子
+加拿大温哥华扬帆农场    平民正道
 
+据美国【CNBC新闻】1月20日报道，[美联储]日前发布了其近期对央行数字美元货币的研究报告。其中不仅探讨了如何在世界各地金融交易已经高度数字化的趋势下加速电子支付系统的应用，还审视了各项备受争议的相关问题，包括金融稳定风险，隐私保护以及防范欺诈等方面的利弊。
 
+报道称，尽管[美联储]在本次研究报告中未做出任何决定，但可以肯定的是，引入数字美元货币不仅将从根本上改变美国金融体系的结构，以及重塑私营企业和中央银行的角色和责任，而且加密数字货币系统现已成为主宰未来金融领域的必然趋势。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+结合此前GTV文贵大直播的爆料信息，[美联储]最终将会毫无选择地和[新中国联邦]的数字金融机构[喜联储]紧密合作，在目前和未来共同推动世界上唯一合法，稳定，安全以及最具实力的去中心化稳定数字货币：喜币的全球化使用。
 
+* * *
 
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-2022.1.26_wbm5-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-2022.1.26_wbm5-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-6cc8160d-6d9d-4003-b91a-e4af9b8c6ac2.jpg)
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+编辑： 平民正道    发布：平民正道
 
  
 
