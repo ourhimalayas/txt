@@ -2,10 +2,14 @@
 ---
 
 
-## 新中国联邦不企图在灭共的正义运动中获得任何利益
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1915808/)
+## 甜蜜蜜运动（图片1、2）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1915857/)
 
-台灣寶島農場
+设计：波士顿五月花 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/01/甜蜜蜜2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/甜蜜蜜1.png)
+* * *
+
+*编辑 /发布：吐纳*
 
  
 
