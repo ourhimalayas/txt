@@ -2,28 +2,23 @@
 ---
 
 
-## 美国将研究中共国军队的征兵情况以评估战备状态
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1915819/)
+## 中国人的自卑自狂
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1915821/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/White-House-makes-its-science-priorities-known-climate-change-isnt-listed.jpg)资料图
-据俄罗斯卫星通讯社1月27日报道，美国国会网站已邀请投标人为美中经济与安全审查委员会 (USCC) 编制一份关于中国人民解放军 (PLA) 兵员统计数据及其兵员招募和留用问题的报告。通过研究中共国征兵，确定中共国领导人所认为的解放军人员素质最严重的缺陷是什么，以及这会如何影响到他们执行任务时对自身能力的信心。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-中共国连年扩军备战，跃跃欲试要发动对台湾的战争，并且时不时与周边国家发生摩擦与冲突。从中共国释放冠状病毒开始，已经注定了中共的灭亡。在灭亡前，中共一定会垂死挣扎，会征召更多的年轻人入伍，充当战争炮灰。美国研究中共国备战情况，一旦战争爆发，会在一定范围内降低战争伤害。
+中国这些小粉红不是一般的愚蠢，以为欧洲人怕你呢！欧洲人对你那任何一个到嘴边没骂你的话和欧洲人对你那所谓的表面喜欢只有一个字，钱！欧洲人骨子里对中国人，包括对中共，永远是零看得起你，你在人家眼里真的是狗屁不是。宁可被俄罗斯人真的脱几把裤子，他都看得起俄罗斯人，他怕俄罗斯人，他也看不起中国人。中国人完全不知道。你看到那些孩子们，在巴黎大街上挎着包，一包一包地买。到哪儿去，人家店里面那种欢迎， I Love China,我喜欢你，你好吗，谢谢再见。讲点中文，中国人吧就觉得厉害。你是来自西安吗？我也去过西安。哎呀，中国人的鼻子就翘起来了！根本不知道出门以后人家就是“Fuck! Get Out”。都是这样。中国那样得孩子不知道有多少，我见太多了。巴黎的几个潮店，我去以后都是中国人啊。后来发现中国人不待见中国人要找香港人，台湾人，那海外华人，还讲着似听非懂的中国话。你来自哪里呢？我是北京来的。哎，你老乡啊，你哪来的啊？来自HongKong,还得捏着嗓子说话。我说:“你就别装了，一听你就四川人。”为啥呀？完全吃透了中国人看不起自己人，完全看透了中国人那种自卑自狂自傲。这个上下左右都竖起来，你这太厉害了，你喝咖啡，我给你特别咖啡，然后有香槟你喝嘛。你太厉害了，你是我见过最有品味的中国人。一出门就这种傻叉，这全是偷的钱骗的钱腐败的钱！ 文耀在欧洲你是深有感触的。在瑞士，你到瑞士任何一个高级餐厅，中国人一站在那儿的时候，外国人一打眼，一看是中国人，不是香港日本来的。我跟你说看你那眼神儿就是一句话，呸！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中国人的自卑自狂.png)
+2021年12月29日大直播
 
-新闻参考链接：[https://sputniknews.cn/20220127/1038548536.html](https://sputniknews.cn/20220127/1038548536.html)
+发布： *tianzhihuan*
 
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦持续记录并揭露中共利用病毒对世界的危害
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1915752/)
+## 新中国联邦致力揭露COVID-19 冠状病毒是中共的生物武器
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1915775/)
 
 台灣寶島農場
 
