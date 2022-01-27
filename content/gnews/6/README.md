@@ -2,24 +2,43 @@
 ---
 
 
-## 二次疫苗接种对抗Omicron毒株效果只有52%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1917835/)
+## 英医学杂志抨击大药企“道德上站不住脚”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1917968/)
 
-撰稿：东京樱花团｜立正道
-![](https://lh4.googleusercontent.com/QgF1MXi_8NF3J0DDqz4laCJ7Cldx31b1caMxP6Y22BzPYyc4YkSzAZ13SpwnVjTbopqQ_EwbfoYZlxkJlXjdXf2I3tmZuOIV3dzF-G-_bY489fOCmV3BhVvLIvQr0CBWN1u039Wh)[*图片来源*](https://cdn2.ettoday.net/images/5663/5663707.jpg)
-长崎大学等研究团队26日宣布，对于两次接种中共病毒（新冠病毒）疫苗的人来说，今年1月发病的预防效果暂定值为51.7%，较去年 7-9 月的德尔塔毒株流行期间的 88.7% 大幅下跌，认为与新Omicron毒株的替换和接种后的时间长短有关。
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip12，英医学杂志抨击大药企道德上站不住脚.png)图片来源：thenationalpulse.com
+英国医学杂志 (BMJ) 要求制药公司发布原始 COVID-19 疫苗数据。BMJ 编辑彼得·多西（Peter Doshi）、菲奥娜·戈德莉（Fiona Godlee）和卡姆兰·阿巴西（Kamran Abbasi）发表了一篇社论，指出“数据应完全并立即可供公众审查”，并补充说，由于疫苗接种未经食品部批准，因此，无法访问主要疫苗制造商和药物管理局的大部分数据。
 
-长崎大学森本浩之輔教授说：“虽然在Omicron毒株流行期间也可以期待疫苗一定的效果，但比 Delta 毒株流行期间接种后效果要低。虽然已接种疫苗，但是希望继续采取防止感染措施。”
+FDA 只为辉瑞的疫苗提供数据，因为莫德纳和强生的疫苗都没有得到 FDA 的批准，尽管人们普遍认为它们得到了批准。相反，它们仅具有“紧急授权使用”状态，而不是 FDA 批准。
 
-该调查于今年 1 月 1 日至 21 日进行，当时Omicron株的感染迅速蔓延，针对东京都和爱知县等地区的 5 家医疗机构进行，我们分析了 417 名 16 至 64 岁的疑似感染者，并根据他们的疫苗接种史进行了检测，其中有 116 例阳性，大多数被认为感染了Omicron变异毒株。
+最初，FDA 表示愿意每月发布 500 页数据。德克萨斯州的一名法官拒绝了这一提议，命令辉瑞发布 FDA 用于许可辉瑞疫苗的 55,000 页数据。
 
-分析结果显示，与未接种者相比，接种两次辉瑞或者莫德纳疫苗的人预防奥密克戎株效果只有51.7%，研究小组在Delta毒株期间用相同的方法进行了分析，预防效果从88. 7%减少了近37个点。
+目前，辉瑞公司“已表示将在 2025 年 5 月之前开始接受追踪数据的请求”，也就是初步研究，完成大约两年后。莫德纳可能会在今年某个时候发布数据，但不会在试验完成之前发布。莫德纳的研究试验审查和完成的估计完成数据为 2022 年 10 月 27 日。
 
-信息来源：[**オミクロン株  ２回接種効果８８→５２％に  長崎大解析**](https://news.yahoo.co.jp/articles/34b2d01d8b4bbdc3ca3e8dc50cde1fb197579893)
+BMJ 称拒绝发布数据是“不可接受的延迟”和“在道德上站不住脚”。社论继续说：“我们仅是出版物，但无法根据合理要求访问基础数据。**这让试验参与者、研究人员、临床医生、期刊编辑、政策制定者和公众感到担忧。**”
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+“……大型制药公司是最不受信任的行业。在生产 COVID-19 疫苗的众多公司中，至少有 3 家有过通过刑事和民事和解，造成了数十亿美元的损失。一个承认犯有欺诈罪……现在，COVID 大流行造就了许多新的制药业亿万富翁。”
+
+BMJ 社论大量关注这些行动如何导致公众、学术和科学界对大型制药公司和 COVID-19 疫苗缺乏信任。“我们需要所有研究的数据完全透明，为了公共利益，我们需要它，**我们现在就需要它**。”
+
+该社论将目前无法获取数据的情况与十年前的达菲药物库存进行了比较。作者描述了在上次流感爆发期间，与 COVID-19 疫苗接种的初步研究类似，达菲没有被证明可以降低并发症、住院和死亡的风险。
+
+由制造商赞助的达菲功效的试验未发表。那些发表的论文，是在没有作者访问原始数据的情况下完成的， 因为要求访问的学者被拒绝。辉瑞、莫德纳、阿斯利康和强生公司，他们持有的 COVID-19 疫苗和临床试验的临床试验和原始数据，现在也发生了同样的事情。
+
+尽管无法获得数据，拜登政权仍继续敦促工人接种这种实验药物。对美国人口强制使用实验药物的合法性存在党派分歧，导致近 50% 的民主党选民支持将未接种疫苗的人送进“隔离营”。
+
+**新闻来源**：[thenationalpulse.com][British Medical Journal Demands Access to COVID Vaccine Data, Slams ‘Morally Indefensible’ Pharma Firms.](https://thenationalpulse.com/2022/01/26/british-medical-journal-demands-access-to-covid-vaccine-data-slams-morally-indefensible-pharma-firms/)
+
+BMJ社论原文链接：[You can read the full BMJ editorial here.](https://www.bmj.com/content/376/bmj.o102)
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

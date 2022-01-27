@@ -2,38 +2,34 @@
 ---
 
 
-## 甜蜜蜜运动开始 美国撤离北京大使馆 透露资本撤离灭共进入倒计时
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1916428/)
+## 随着Diem倒闭，脸书逐渐退出加密货币市场
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
 
-作者：Aiolis
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/378C7186-898B-43BD-A0EA-B2ADFBFE6E30-2.jpeg)
+整理/编辑：小红帽
 
-中共的经济已经成为每一个投资者的灾难，文革2.0的开启，增加了中共在国际上的美元债频频出现违约的现象，国内各种经济暴雷不断，维权人士夜不能寐，不仅投诉无门，还被强力镇压。乱象不断，各种经济崩塌，无数财富在一夜之间灰飞烟灭，经济问题造成的次生灾害，不可想象。之前七哥直播中有提到邓家的钱动了，买了不少黄金，当然也可能来喜币，几十年从来没动过的钱，这一动是冒着被美国察觉到的风险，不到万不得已，绝不会走到这一步，也说明对中共的灭亡速度有了非常清醒的认识，对即将到来的世界金融危机，提前进行资金的安全转移。以下是目前大部分有需要转移资产的人的选择：
-
-**海外房产：**
-
-在国内的房地产投资者在新加坡购买了非常多的房地产，导致该岛房价暴涨。去年，新加坡永久居民购买的公寓增加了55.3%，外国购买增加了45%。在这些房产投资中，中国占据了非常大的份额。其它比如澳大利亚、加拿大和新西兰都是投资热门区域。
-
-**加密货币：**
-
-为了逃避国内对于资金的管控，有相当一部分通过加密货币的方式把资金转移到日本，或者说转化为日元以及日本房地产，因为从过去的经历认知，日元长期都是重要的避险资产。
-
-**喜币G系列：**
-
-最牛的当属参加爆料革命的战友，购买喜币在短短两月实现400倍的回报，灭共不仅能够赚钱，还能实现正道主义，去提升自己。战友们的未来生活是高质量的富足，外星科技、星球畅想，永生的追求，唯有七哥的眼界和长期的人脉，其它搁谁都做不到，千年未有，感恩七哥。GTV、Gnews、Gettr、Gfashion、Gclub等，未来想不牛都难。
-
-看到新中国联邦越来越强大，中共的李克强又出来了，工作报告上又来稳经济了，他自己心理都清楚中共经济一塌糊涂，比想的更糟糕，然而能做中共高层的，哪个不具备影帝级的“表演才华”，过去的温家宝、朱镕基、周恩来，无不出其右。这不北京时间1月25日又出来讲话稳经济了，确保就业、金融、外贸、外资、国内投资和预期六个稳，白痴都知道中共就要完了，现在出来无非就是惯性欺骗，冲到火葬场的路上刹不住车了，惯性表演，只是因为经济的真相越来越明显，李克强的表演只会显的越来越拙劣。
-
-昨日文贵先生发布的美国撤离中共大使馆的公告，让知道爆料革命的，看到这一则消息的真正反共人士为之振奋，伪民运以及中共豢养的走狗，要么内斗要么继续舔屎，各种骗的基因最终和CCP一起完蛋。昨日多少战友为其感动的落泪，脑子里徘徊的词，要脱钩了，中共的合法性要没了。等这一天，灭共的这个阶段，等了太久，终于到这一天了。回味昨日文贵先生的重大公告，细数了中共恐怖组织开启的人类大屠杀，从新疆、西藏的种族大屠杀，到香港，到现在的对西方文明世界发起的猛烈攻击，释放生化病毒，疫苗灾难，直接导致世界死亡人数暴增的惨痛结果。这五年，新中国联邦在世界和各国政府以及民间的公益机构、人权机构建立的秘密、安全、可信赖的关系。在传播真相的过程中，很多国家开始讨论承认新中国联邦和新中国联邦宣言，新中国联邦宣言对人权、法治，和大自然的关系都有清楚的阐述。这一份公告，是记录中共的恶行榜，更是新中国联邦和世界正义人士仗剑灭共的辉煌篇章，也是对美国拜登总统和布林肯先生做出这个伟大决定的感谢，是世界华人走向正道主义的希望的曙光，一切都是刚刚开始！
-
-1，[原文链接：](https://tfiglobalnews.com/2022/01/25/chinese-investors-are-incessantly-dumping-money-in-every-country-that-hates-china/)
-2，[http://www.china.org.cn/business/2022-01/26/content\_78011352.htm](http://www.china.org.cn/business/2022-01/26/content_78011352.htm)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
 
 
+根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
 
-审核校对：Barry Jack
-上传排版：V在途中
+一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
+
+这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
+
+这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
+
+新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

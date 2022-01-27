@@ -2,34 +2,40 @@
 ---
 
 
-## 否定数字货币的一定是愚蠢到极点的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917732/)
+## 完全接种疫苗的马耳他达到创纪录的COVID-19死亡率
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1917860/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/否定数字货币的一定是愚蠢到极点的人.jpg)
-比特币是第一代的数字货币。现在已经是到了第三代的数字货币加快量区块链了。
+**翻译： Jenny Ball**
 
-现在这个世界，想否定数字货币的人都是一定是愚蠢到极点的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip09-4.png)图片来源：thegatewaypundit.com
 
-它基于两个问题可以说明。就是你任何国家权力没办法把区块链这个技术给抹杀掉。你弄不了它。这就像你在国家权力，就如放病毒，今天要让你中毒， 这个国家说我不中毒是不可能的。它比毒还厉害一万倍亿倍。
+如果您对马耳他 COVID-19 情况的印象建立在该国的新闻头条上，您会认为情况正在好转：人们很高兴，病例在下降，疫苗正在发挥作用，生活回到了新的反乌托邦常态。
 
-他只是合法和不合法化的问题。区块链只是它能发展到多快多慢，多大的问题。你不可能把这技术干掉。
+**可悲的是，事实并非如此， 事情其实很糟糕**。
 
-所以你看到最近所有那些老同志啊，就是老投资家呀。90多岁的，几乎平均年龄在78岁以上的，就对区块链那个否定呀，就像当年否定互联网一样。当年互联网，是我记得最清楚。我在纽约的时候，最多骂这个互联网的，就是谁呀？沃伦巴菲特。他说：“互联网我看不出它有任何理由，值那么多钱， 我永远不会投的。”
+有多糟糕？ 如果您对数字感兴趣，世界模范Covid主义公民（Covidian）刚刚达到最高的 COVID-19 死亡率，尽管它是地球上接种疫苗最多的国家之一，超过 85% 的人口完全接种了疫苗，94% 的人至少服用一剂。
 
-发布：于white
+这些是惊人的疫苗接种统计数据。大多数西方国家的领导人只能梦想得到这样的数字，但人们正在以创纪录的数字死亡。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+![](https://assets.gnews.org/wp-content/uploads/2022/01/maertempsnip10，完全接种疫苗后，马耳他COVID-19-死亡率曲线图.png)图片来源：thegatewaypundit.com
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**还记得让每个人都接种疫苗会使生活恢复正常的谎言吗？** 马耳他遵守了规定，生活并没有恢复正常。该国于 1 月 13 日实施了新的“COVID-19 规则”。正如《马耳他时报》报道的那样，公民必须在餐馆、酒吧、电影院等各种场所出示他们的证件（疫苗护照）。 通行证需要表明您已经接受了最新的加强剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip11，完全接种疫苗后，马耳他的COVID死亡率创纪录.png)图片来源：thegatewaypundit.com
+据报道，在新的“COVID-19 规则”生效期间，许多餐厅决定关闭，其中约 14% 的餐厅预计将永久关闭。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+去年，马耳他是疫苗合规的光荣典范，它遵守了所有规则，**并相信了所有谎言**，现在该国正在经历最严重的 COVID-19 死亡率，封锁已经恢复，但生活还没有恢复正常。 这一切都不足为奇。Covid主义邪教是一种死亡邪教，它憎恨人类，它讨厌生活，它在死亡和破坏中走下神坛，马耳他就是一个光辉的例子。
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**新闻来源**：[thegatewaypundit.com][Fully Vaccinated Malta Reaches Record COVID-19 Death Rate](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-malta-reaches-record-covid-19-death-rate/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+
+
 
  
 

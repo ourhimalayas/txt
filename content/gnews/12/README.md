@@ -2,19 +2,22 @@
 ---
 
 
-## 在英国，65% 的 Omicron 患者再次感染
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1917791/)
+## 2月俄罗斯产新冠疫苗喵准东京诊所
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1917914/)
 
-翻译：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01272.jpg)图片来自ansa.it
-伦敦帝国理工学院一项名为 React 的大型研究得出的结论：在英格兰，三分之二（65%）最近感染了 Omicron 冠状病毒变种的人在之前已经感染过 Covid。。研究结果涉及今年前两周使用的大约 100,000 条试纸检测。
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2249.png)图片来源于本文链接
+俄罗斯驻日大使馆与东京千代田区的日比谷国际诊所1月27日表示，俄罗斯开发的中共病毒（新冠病毒Covid-19）疫苗接种，将以20岁以上的志愿者为对象有偿实施。日比谷诊所解释说：“这次自由诊疗，并不是以药物认证为目的的试验。”经过日本国内必要的程序，将于2月中旬开始。
 
-伦敦大学的科学家认为还需要做更多的工作来确定有多少人真正被再次感染。但风险最高的人群类别已经出现：他们是卫生工作者和有孩子的家庭。与此同时，目前尚不清楚有多少检测呈阳性的志愿者是已经完全接种了疫苗的。
+疫苗是2次接种的“Sputnik V”和1次接种的“Sputnik Light”，分别准备750份和500份。费用是包括检查费在内的每人9800日元。即使有严重的副反应，也不能接受日本政府的救济措施，但是诊所医生会提供帮助。
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/2022/01/26/oms-variante-omicron-rappresenta-l891-dei-casi-mondiali\_2213f527-1f3e-40a5-896c-4ffaa46843ff.html](https://www.ansa.it/sito/notizie/mondo/2022/01/26/oms-variante-omicron-rappresenta-l891-dei-casi-mondiali_2213f527-1f3e-40a5-896c-4ffaa46843ff.html)
+译者疑问，这2种几百份疫苗，日本人自己出钱喵自己，副作用对应还不能找本国医治（日本国民全民保险加入）？最终图个啥？本国不够，还给外国当小白鼠吗！
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+信息来源： [２月にもロシア製ワクチン　自由診療１万円で都内クリニック―新型コロナ](https://www.jiji.com/sp/article?k=2022012701021&amp;g=int)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

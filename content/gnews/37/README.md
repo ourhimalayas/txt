@@ -2,23 +2,22 @@
 ---
 
 
-## 俄罗斯威胁西方说如不给SWIFT就不给汽油
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916871/)
+## 台湾加入外交抵制北京冬奥会的行列
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916910/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-49.jpg)
-图片来源：网络截图
+整理编辑：东京樱花团｜peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2228.png)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/6i0hynw5wDo.MWyhrFNYuA--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTU0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/Ah_lcg65KvwFgxzjkGhR7A--~B/aD01OTY7dz0xMDYwO2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/news_tvbs_com_tw_938/294d6f448d3ea1d32c0d41413e115890)
+北京冬季奥运即将举行，台湾教育部体育署今1月26日证实，考量过往前例，台湾政府将不派官方代表出席，由中华奥会率团，协助选手相关事宜与权益。北京冬奥会2月4日开幕，但已经有多国表态外交抵制，不派政府代表出席。
 
-零对冲网1月26日报道，在乌克兰边境状况出现缓和之际，俄罗斯高官说如果西方人通过威胁不让克里米亚用SWIFT支付系统，欧洲就得不到俄罗斯的石油，天然气和金属等。
-周二，英国首相布里斯·约翰逊说他正在与美国SWIFT全球支付系统讨论阻止俄罗斯用该系统，称之为是一个“强有力的武器”。
-尼古拉·茹拉夫廖夫，俄罗斯联邦委员会第二发言人告诉俄罗斯国家台TASS说如果这样的话，欧洲将要为此付出代价。
-SWIFT是一个支付系统，一种服务系统，因此，如果俄罗斯不能得到SWIFT服务，那么不仅我们得不到外币，买家也得不到（货物），欧洲人就得不到我们的货物。
-与此同时，美国正在与世界上主要的能源生产国和公司进行磋商，以作为后盾备力量供应欧洲。
+教育部体育署26日发出说明证实，表示考量台湾参赛人数有限，以及过去官员多不出席的前例，政府将不派官方代表出席，由中华奥会率团到中国大陆，并办理选手体育竞赛相关事务，以及生活照顾服务等事宜，至于开闭幕活动，政府正针对代表团航班，以及选手参赛时间，和防疫考量做整体审慎评估，会再适时对外说明。
 
-##### 新闻来源：  [No SWIFT, No Gas: Russia Responds To Western Threats As US Tries To Orchestrate Workaround](https://www.zerohedge.com/political/no-swift-no-gas-russia-responds-western-threats-us-tries-orchestrate-workaround)
+只剩下一个多星期就要开幕，北京冬奥已经进入最后准备阶段，但包括美国英国，以及澳洲和加拿大都已经宣布，不会有政府代表出席，但运动员仍将正常参赛，而本届台湾共有四名选手参赛。
 
-#  
+消息来源：[**北京冬奥台表态  体育署：不派官方代表出席**](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E5%8F%B0%E8%A1%A8%E6%85%8B-%E9%AB%94%E8%82%B2%E7%BD%B2-%E4%B8%8D%E6%B4%BE%E5%AE%98%E6%96%B9%E4%BB%A3%E8%A1%A8%E5%87%BA%E5%B8%AD-154541097.html)
 
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
