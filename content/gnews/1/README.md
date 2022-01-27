@@ -2,8 +2,8 @@
 ---
 
 
-## 我们不是慈善机构要自救
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916677/)
+## 音乐的本质和未来（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916729/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

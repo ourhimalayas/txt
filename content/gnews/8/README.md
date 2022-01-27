@@ -2,8 +2,8 @@
 ---
 
 
-## 迷信是对死亡的恐惧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916597/)
+## 国内很多人打假疫苗，很多人死
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916667/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

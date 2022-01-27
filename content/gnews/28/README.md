@@ -2,20 +2,37 @@
 ---
 
 
-## 新疆塔里木盆地发现亿吨级油气田
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916266/)
+## 有声|美国国家卫生院针对中共病毒后遗症设立专案组
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1916270/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2215.png)[图片来源](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/458906/%E6%96%B0%E7%96%86%E5%A1%94%E9%87%8C%E6%9C%A8%E7%9B%86%E5%9C%B0%E6%96%B0%E7%99%BC%E7%8F%BE%E7%9F%B3%E6%B2%B9%E8%B3%87%E6%BA%90%E9%80%BE2%E5%84%84%E5%99%B8)
-CGTN日本1月26日报道，中国石化25日称，下属西北油田分公司在塔里木盆地安装的主采井“顺北801X井”近期日采原油136.7吨。发现天然气开采量109.3万立方米的地层，认为顺北8号断裂带开采潜力大，塔里木盆地新发现亿吨级油气田。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒 24 日报道，鉴于美国已有三分之一的人口感染过中共病毒，预期在痊愈后的一段时间内，都将会持续面对各种严重的后遗症，需要长期的健康护理。因此，日前，美国国家卫生院宣布“恢复”专案组，同时拨款 11.5 亿美元作为经费，找出感染者严重后遗症的背后原因。该专案组将由数千名患者，以及来自数十间科研机构、高等院校的上百位科学家，共同参与组成。
 
-西北油田位于塔克拉玛干沙漠腹地。 “顺北801X井”所在的顺北8号断裂带全长116公里。 2021年，该断裂带勘探项目取得重大进展，2022年初再次实现资源重要发现。 2016年8月以来，中国石化在顺北1号和5号断裂带发现两个亿吨级油气田。截至今年1月，顺北地区原油总产量达到333万吨，天然气产量达到14.97亿立方米。截至目前，西北油田勘查揭示的天然气地质储量为945.83亿立方米，总产量已达1.4亿吨。
+据报道描述，中共病毒感染者痊愈后，往往会面临长期的健康问题，比如史丹佛医院的一名病人，在接种完中共病毒疫苗的半年内染上病毒，经治疗痊愈后，至今都仍然遭受着味觉失灵，听力不佳、视力模糊、呼吸急促，慢性头痛以及经常性腹痛等困扰。
 
-信息来源：[新疆タリム盆地で億トン級の石油・天然ガス田が発見](https://news.yahoo.co.jp/articles/266fc51761cf9282a7e3c00959cb04580933412d)
+原文链接：[美国国家卫生院针对中共病毒后遗症设立专案组](https://gnews.org/zh-hans/1914359/)
 
-*编辑：东京樱花图/喜马拉雅的微尘
-发布：东京樱花图/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
