@@ -2,38 +2,37 @@
 ---
 
 
-## 完全接种疫苗的马耳他达到创纪录的COVID-19死亡率
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1917860/)
+## 美国儿童一周内的新冠病例超110万
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1917931/)
 
-**翻译： Jenny Ball**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2250.png)Source: reddit.com
+编译：Lish
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip09-4.png)图片来源：thegatewaypundit.com
+在截至1月20日的一周内，美国有超过110万名儿童被诊断出患有新冠病毒。
 
-如果您对马耳他 COVID-19 情况的印象建立在该国的新闻头条上，您会认为情况正在好转：人们很高兴，病例在下降，疫苗正在发挥作用，生活回到了新的反乌托邦常态。
+根据美国儿科学会的《儿童与新冠》指出：在该时间段内国家数据报告了有近151,000个儿童的新冠确诊病例。这个数字比截至1月13日的一周内报告的98.1万个新增病例增长了17%。这也是比前两周的病例数翻了一番。
 
-**可悲的是，事实并非如此， 事情其实很糟糕**。
+该组织说，自该大流行病开始以来，已有超过1060万名儿童对该疾病检测呈阳性。其中200多万个病例是在过去两周内增加的，尽管该学院指出，由于依赖每个州单独报告其病例的方式，数据是有限的。
 
-有多糟糕？ 如果您对数字感兴趣，世界模范Covid主义公民（Covidian）刚刚达到最高的 COVID-19 死亡率，尽管它是地球上接种疫苗最多的国家之一，超过 85% 的人口完全接种了疫苗，94% 的人至少服用一剂。
+这份报告是在奥密克戎变体继续在全国各地蔓延的情况下发布的，几乎占了所有新的新冠病例数。
 
-这些是惊人的疫苗接种统计数据。大多数西方国家的领导人只能梦想得到这样的数字，但人们正在以创纪录的数字死亡。
+美国儿科学会2022年主席莫伊拉·斯齐拉吉（Dr. Moira Szilagyi）博士在一份声明中说：“随着我们接近大流行病的两周年，儿童和青少年的新冠病例是有史以来最高的。这些数字是惊人的”。“这包括最年轻年龄段的儿童，他们仍然在等待接种疫苗，”她补充说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/maertempsnip10，完全接种疫苗后，马耳他COVID-19-死亡率曲线图.png)图片来源：thegatewaypundit.com
+美国疾病控制和预防中心（CDC）建议每个5岁及以上的人接种新冠疫苗。辉瑞生物技术公司的疫苗被授权在5至11岁的儿童和12岁及以上的青少年中紧急使用。疾病预防控制中心还建议，2至4岁的儿童和其他未接种疫苗的5岁或以上儿童在公共场所与非同龄人相处时应继续戴口罩。
 
-**还记得让每个人都接种疫苗会使生活恢复正常的谎言吗？** 马耳他遵守了规定，生活并没有恢复正常。该国于 1 月 13 日实施了新的“COVID-19 规则”。正如《马耳他时报》报道的那样，公民必须在餐馆、酒吧、电影院等各种场所出示他们的证件（疫苗护照）。 通行证需要表明您已经接受了最新的加强剂。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip11，完全接种疫苗后，马耳他的COVID死亡率创纪录.png)图片来源：thegatewaypundit.com
-据报道，在新的“COVID-19 规则”生效期间，许多餐厅决定关闭，其中约 14% 的餐厅预计将永久关闭。
+该机构的数据显示，超过80%的美国5岁及以上人口已经接受了至少一剂疫苗，67.5%的人已经完全接种。
 
-去年，马耳他是疫苗合规的光荣典范，它遵守了所有规则，**并相信了所有谎言**，现在该国正在经历最严重的 COVID-19 死亡率，封锁已经恢复，但生活还没有恢复正常。 这一切都不足为奇。Covid主义邪教是一种死亡邪教，它憎恨人类，它讨厌生活，它在死亡和破坏中走下神坛，马耳他就是一个光辉的例子。
+参考链接：[More than 1.1M children diagnosed with COVID-19 in a week, report says | Fox News](https://www.foxnews.com/health/more-than-1-1-m-children-diagnosed-covid-19-week-group)
 
-**新闻来源**：[thegatewaypundit.com][Fully Vaccinated Malta Reaches Record COVID-19 Death Rate](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-malta-reaches-record-covid-19-death-rate/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+发布：Lish
 
-* * *
-
-***审核：文乐
-校对：小东
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 
 

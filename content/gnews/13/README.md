@@ -2,110 +2,92 @@
 ---
 
 
-## 无论习共党，还是江共党，老百姓的都是奴隶
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918153/)
+## 保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918214/)
 
-[https://gtv.org/video/id=61f1624087664c47acda62ae](https://gtv.org/video/id=61f1624087664c47acda62ae)
+[https://gtv.org/video/id=61f162e387664c47acda6309](https://gtv.org/video/id=61f162e387664c47acda6309)
 
-**郭文贵
-Miles Guo**
+**Dr. Paul Marik
+保罗·马里克医生**
 
-严格讲，南普陀计划它不可能就一个目标
-Strictly speaking, the Nanputuo plan cannot have only one single goal
+My hands were tied as a clinician for the first time in my entire career
+作为临床医生，在我的整个职业生涯中，我的双手第一次被束缚
 
-它当时把习作为一个就让你干5年就滚蛋吧，是吧，这是绝对的
-it would allow Xi as the one for 5 years and then let hime get out, right? it’s absolute
+I could not be a doctor. I could not treat patients the way I had to be to treat patients
+我不能做为一名医生，我不能像对待病人一样给病人治病
 
-然后呢培养第二个傻子过来，但是呢， 他第一段没成功
-Then it would train a second fool to come over, but it didn’t succeed in the first part
+I had seven COVID patients, including a 31 year old woman
+我有七名COVID患者，其中包括一名31岁的女性
 
-习不走了，本来是在这儿当临时演员，不走了
-Xi is not leaving, he was originally here as an background actor, but now he is not leaving
+I was not allowed to treat these people. I had to stand by idly
+我不被允许治疗这些人，我不得不袖手旁观
 
-现在要当导演了，但是人家南普陀有多手计划，
-Now he wants to be a director, but Nanputuo has many plans
+I had to stand by idly watching these people die
+我不得不袖手旁观地看着这些人死去
 
-如果习不听话咋办
-What if Xi is not obedient?
+I then tried to sue the system and you know what they did?
+然后我试图起诉系统，你知道他们做了什么吗？
 
-那就让你折腾，利用你的手，利用你的疯狂，把党内的所有我的(政敌)
-Then let him mess around, use Xi’s hands, use Xi’s madness, and kill all my political enemies in the party
+They did something called peer sham review
+他们做了一些叫做同行虚假审查的事情
 
-第一那前五年，习百分之百被王岐山、孟建柱(控制)
-In the first five years, Xi was 100% controlled by Wang Qishan and Meng Jianzhu
+It is a disgusting and evil concept
+这是一个令人作呕和邪恶的概念
 
-你想想孙力军都能干这样，就把一个完全的江家的对手全清光
-you think about that Sun Lijun can do this, he completely cleared the opponents of the Jiang family
+They then accused me of seven most outrageous crimes that I had committed
+然后他们指控我犯下七项最令人发指的罪行
 
-而且习深信不疑该清光，是吧
-And Xi Jinping truly believes that it should be cleared up, right?
+and then I was such a severe threat to the safety of patients
+指控我对患者的安全造成了如此严重的威胁
 
-第二个五年让你修宪，你可以修宪
-In the second five years, Xi asked for amendment to the constitution, you can amend the constitution
+They immediately suspended my hospital privileges
+他们立即暂停了我的住院医生的权限
 
-你不听了，是吧，然后让你跟世界走向疯狂
-if you don’t obey, right? and then let you go crazy with the world
+because I possessed a pose such an outright threat to these patients
+因为我对这些病人构成了如此直接的威胁
 
-然后让你发出潘多拉盒子的病毒，让他放出病毒就决定了习的死亡
-Then let Xi send out the virus of Pandora’s box, and letting him release the virus will determine Xi’s death
+ignoring the fact that under my care, the mortality was 50% those of my colleagues
+无视在我的照顾下，患者死亡率是我同事的50%的事实
 
-没有任何的，这个时候的共产党已经不是共产党了，是习党，是习共党
-There is nothing, the Communist Party at this time is no longer the Communist Party, it is the Xi Party, it is the Xi Communist Party
+I then went on through the sham peer review
+然后对我继续进行虚假的同行审查
 
-但是回答你的问题，现在习所有的作出的决定和灭亡，就是习共党的灭亡
-But to answer your question, all the decisions made by Xi now, and it’s the demise of the Xi-Communist Party
+I went to a kangaroo court where they continued this
+我去了一个模拟法庭，他们继续这样做
 
-然后这家族是什么？江家从来没觉得共产党跟我毛关系
-And what is this family? The Jiang family never felt that the Communist Party had anything to do with Jiang’s family
+and the end result was I lost my hospital privilege
+最终的结果是我失去了住院医生的权限
 
-共产党就是我用的那个擀面杖子，习也一样，他们都比咱恨共产党
-The Communist Party is the rolling pin Jiang use, and so does Xi, they all hate the Communist Party more than we do
+and was reported to national Practitioner Data Bank
+并报告给国家从业医生数据库
 
-但是他必须用共产党统治这些已经被洗了脑的中国14亿僵尸啊，这些奴隶呀
-But he has to use the Communist Party to rule these brainwashed 1.4 billion Chinese zombies and slaves
+So here I was standing up for patients rights
+所以我在这里为病人的权利挺身而出
 
-最后就是江家找个名声，曾出手之日
-in the end, the Jiang family find the reason, and Zeng make his move
+and this hospital, this evil hospital ended my medical career
+而这家医院，这家邪恶的医院结束了我的医疗生涯
 
-王岐山和孟建柱和江家出手之日
-When Wang Qishan, Meng Jianzhu and the Jiang family made their move one day
+So that’s what they do
+这就是他们所做的
 
-你会发现就像川普最后一个被内阁给策反一样
-you will find that it was just like Trump was the last to be overthrew by the cabinet
-
-你会发现突然间所有习最相信的人，都是他的敌人
-You will find that suddenly all the people who Xi trusts most are all his enemies
-
-杀手锏，啪，就完了，所以说，没什么党，这都是家族的
-It is killing hand, it’s over quickly, so, there is no party, it’s all family’s
-
-那个时候是江共党，现在是习共党
-At that time it was the Jiang Communist Party, now it is the Xi Communist Party
-
-现在的决定，既不是党的决定, 就是习共党的决定
-and the current decision is neither the party’s decision or It was the decision of the Communist Party of Xi
-
-那时候是江共党的决定，就这么简单
-at that time, it was the decision of the Communist Party of Jiang, it’s simple like this
-
-咱们老百姓就是奴隶
-We Laobaixing are slaves
+It’s an outright outrage. It’s evil to the core
+这是彻头彻尾的暴行，这是邪恶的核心
 
 * * *
 
-Date: 01/24/2022
-原视频标题: 无论习共党，还是江共党，老百姓的都是奴隶
-Regardless of the Communist Party of Xi or the Communist Party of Jiang, the Laobaixing people are slaves
-原视频日期：2022/01/21
-原视频链接 [**https://gettr.com/post/pq2wyxc7cf**](https://gettr.com/post/pq2wyxc7cf)
-任务编号：KC432(3575)
-视频时间段 : 0:00-2:19
-中听校：洛杉矶盘古农场 – Layka
+Date:01/25/2022
+原视频标题: Dr. Paul Marik talks about how he got fired after he tried to treat his COVID patients
+保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+原视频日期：2022/01/25
+原视频链接: **[https://twitter.com/senronjohnson/status/1485700814643638275?s=24](https://twitter.com/senronjohnson/status/1485700814643638275?s=24)**
+任务编号：KE367（3590）
+视频时间段 : 0:00-1:43
+英听校：洛杉矶盘古农场 – Layka
 翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 –银龙
-发布：洛杉矶盘古农场 –恩典
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

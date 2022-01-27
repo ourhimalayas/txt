@@ -2,30 +2,35 @@
 ---
 
 
-## 美国最怕∶共产党停止使用美元（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918219/)
+## 南卡州考虑将要求出示疫苗状态的行为列为非法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918268/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/美国最怕：共产党停止使用美元（下）.jpg)
-你知道那个郭树清被习近平夸奖，指着他说∶这个事儿你干的不错，应该给你记功。 
-大家千万别小看了，就在你们看直播的过程当中，这个世界就变化过来了，对共产党最大的叫经济核弹，就是停止你使用美元，对待伊朗这些国家、巴基斯坦。 
-现在变成了美国人怕共产党停止美元，为什么? 当共产党说，我不接受任何美元支付的时候，不是人民币跌，是人民币会暴涨，美元会暴跌，美股会暴跌呀 ！
+**翻译：Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip18南卡州考虑将要求出示疫苗状态的行为列为非法.png)通过杰里米弗兰克尔 
+图片来源：**newsmax.com**
+南卡罗来纳州正在提出一项新的法律，规定某些机构要求人们提供COVID-19疫苗接种情况是非法的。
 
-这是为什么共产党牛啊！5000亿给沙特搞了一个投资2万亿美元，然后未来20年全接受数字人民币和人民币结算。 就像美国当年创建的阿美集团呢，帮沙特挖出了油啊。
+该法案的共同发起人、共和党州议员威廉·查姆利说：“政府没有资格强迫你或告诉你接种疫苗，或者在你不接种时威胁你的生计。”
 
-发布：于white
+根据这项被称为H.4848的法案，任何公共、私人或非营利实体如果询问某人的疫苗接种情况，可能会被处以14000美元以上的罚款，或被处以不超过一年的监禁，或两者并罚。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+“南卡罗来纳州并不想参与这场斗争。这是联邦政府带给我们的，”查姆利告诉当地媒体。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+该法案正在州议会的一个委员会中进行辩论。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+该法案的另一个共同提案人、共和党州议员韦恩·朗告诉第二频道新闻：“这是为了保护人们不被强迫或胁迫为就业、入学或政府服务而接种疫苗。”
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+“我每周都会接到人们的电话，乞求立法机构采取某种行动来保护人们的权利，保护他们的隐私，并防止他们被强迫或胁迫接种一种他们不想接种的疫苗。即使是那些已经接种了疫苗的人——我和他们中的许多人谈过——这也是一个真正的隐私问题。”
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源**：[**newsmax.com**][South Carolina Considers Outlawing Requests for Vaccine Status](https://www.newsmax.com/us/covid-vaccine/2022/01/25/id/1054016/)
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+
 
  
 

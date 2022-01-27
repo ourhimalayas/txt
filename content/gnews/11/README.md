@@ -2,67 +2,46 @@
 ---
 
 
-## 冠状病毒的刺突蛋白，类似于阮病毒，有可能造成神经系统退行性疾病
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1918177/)
+## 马龙博士：COVID 疫苗对儿童造成永久性伤害
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918221/)
 
-作者：波士顿五月花   北美教练陪练
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220127-3.jpg)
-中共到处施放病毒背后隐藏著另外一個惊天的大阴谋——那就是：和全球化的邪恶势力一起，诱骗全世界註射疫苗、用疫苗殺人、綁架勒索全世界。所以，疫苗是伪裝出現的另外一件生物武器。只有通過广泛的註射才能傳播到全世界，影响到全球大多數人。中共出版的《非典非自然起源和人制人新种病毒基因武器》一书中，明确说可将基因治疗作为生物武器。美国的mRNA疫苗、病毒载体疫苗的本质都是来自基因治疗的技术产品。
+**翻译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip17马龙博士：COVID-疫苗对儿童造成永久性伤害.png)图片来源：newstarget.com
+现代 mRNA 疫苗技术的发明者罗伯特·马龙博士，最近在战胜疫苗授权的华盛顿特区的集会上，他在一场强有力的演讲中，向美国和世界各地的父母发出了严厉警告，给他们的孩子接种武汉冠状病毒疫苗的危险。
 
-无论是美国的所谓的mRNA疫苗，病毒载体疫苗，还是中国产的灭活疫苗，都会使人体内产生刺突蛋白（S蛋白）。刺突蛋白的毒性已经广为人知，包括引起血栓、心肌炎猝死、肿瘤、流产、自身免疫性疾病等等。最新的研究更加让人震惊：刺突蛋白可能具有朊病毒的特性。
+马龙说，那些正在考虑为孩子接种 COVID 疫苗的人，可能会给孩子造成永久性伤害，并敦促他们在做出决定之前了解所面对的风险。
 
-**朊病毒发现**
+他指出，作为父母，保护孩子是自己的责任。 “如果他们受到这些基因疫苗的伤害， 你将在你的余生和他们的余生中背负重担， 你就是必须照顾他们的人，”他说。
 
-1982年由美国加州大学旧金山分校的Stanley B. Prusiner教授最早发现，1997年因此获得诺贝尔医学奖。英文名字是Prion，来自于proteinaceous infectious particle，全称为“蛋白质感染颗粒”。朊病毒一词虽然带“病毒”两个字，但它并不是传统的病毒，而是一种异常蛋白质,仅通过同化宿主的蛋白质进行传播。這種新的致病源与已知的致病源(如細菌、病毒等)不同，它们本身沒有基因組。如果将病毒比作恐怖分子，那么普通的病毒就是通过多生孩子，复制出更多的子孙，从而入侵正常人类社会。而朊病毒则把普通人同化成恐怖分子，从而对人类社会造成严重危害。
+此外，他指出，平均而言，每 2,000 名到 3,000 名接种疫苗的儿童中，就有 1 名儿童将在短期内因疫苗造成的损害住院治疗。 只有时间才能告诉孩子们可能会遭受什么样的长期伤害。 （相关：[马龙博士向布莱顿 Stew Peters 讲述 COVID-19 疫苗的危及生命的影响链接 – Brighteon.TV](https://naturalnews.com/2022-01-11-robert-malone-discusses-life-threatening-effects-vaccines.html)）
 
-作为一种新型的蛋白质感染因子，朊病毒是蛋白质构象病。研究表明，朊蛋白有兩种形式，一种为致病形式(PrPsc)，另一种为组织內正常存在的细胞形式(PrPc)，这两种蛋白在一级结构的氨基酸序列相同，仅构象有不同。由于朊蛋白分子(PrPc) 本身不能致病，而必须发生空间结构上的变化转化为朊病毒 (PrPsc) 才会损害神经组织。这一变化是朊病毒胁迫所致的，即一个致病分子先与一个正常分子结合，在致病分子的作用下，正常分子转变为致病分子，然后这两个致病分子分别与两个正常分子结合，再使后者转变为致病分子。周而复始，通过多米诺效应倍增致病。由此可见，致病的基本条件有二，一是具有朊病毒，二是具有朊蛋白。如今普遍接受的朊蛋白疾病发生机制为PrPc转化为PrPsc形式，致使越来越多的致病蛋白形成並堆積成越來越大的纤维状聚集物，当致病蛋白聚集到一定程度，造成神经细胞死亡而使受累脑区域内呈现海绵样空洞。
+他还继续说，**疫苗不能保护儿童免受Omicron变体的侵害，也不能防止受感染的儿童感染他人。相比之下，大型制药公司和政府几乎完全不承担任何责任，如果这些产品造成任何损害。**
 
-**朊病毒疾病**
+马龙说，基因疫苗会伤害儿童。“它们可能会损害他们的大脑、心脏、免疫系统，以及未来生育孩子的能力。其中许多损坏无法修复，”他继续说道。
 
-朊病毒疾病主要侵害脑组织。共同的病理剖特点是脑组织海绵样变，故此，也被称为传染性海绵状脑病（transmissible spongiform encephalopathy,TSE）。动物当中已知的朊病毒疾病包括羊瘙痒病、雪貂传染性脑病、鹿慢性消耗症、猫海绵体脑病、疯牛病。人已知朊病毒疾病包括：克雅病（Cheutzfeldt-Jakob disease）、Gerstmann-Straussller Scheinker 综合征、致死性家族性失眠症、库鲁病（Kuru）。库鲁病就是大名鼎鼎的新几内亚食人族发生的疾病，当地风俗习惯是吃掉人，包括脑组织，这就是传播的病原。
+**马龙谈到 mRNA 疫苗的危险**
 
-最新的研究进展表明，朊病毒很可能也是人类所有神经系统退行性疾病，如阿尔茨海默病（老年痴呆）、帕金森氏病的罪魁祸首(2)。
+全世界超过 16,000 名医生和医学科学家已经签署了一项声明，称健康的儿童不应接种 COVID 疫苗。2021 年 12 月，马龙在演讲中谈到了这个问题，他说他坚持自己的声明，致力于疫苗研发。“我接种了 COVID 疫苗，而且，我通常支持疫苗接种。我的整个职业生涯都致力于开发安全有效的方法来预防和治疗传染病，”他说。（相关： [在您的孩子注射之前，请观看马龙博士关于儿童COVID疫苗接种的声明](https://naturalnews.com/2021-12-16-watch-robert-malone-statement-child-covid-vaccinations.html))
 
-Stanley B. Prusiner教授宝刀未老，2019年再报诺贝尔奖级别的新发现。用一种新的朊病毒检测技术，他的研究团队检测了百余份人类大脑标本，证实：阿尔茨海默病的独特特征，既脑内β淀粉样蛋白和tau蛋白聚集，是因为这两种蛋白已经转变为两种朊病毒。因此，阿尔茨海默病实际是一种双重朊病毒感染性疾病，只是这两种朊病毒侵略性不算强、繁殖慢，所以疾病进展很慢（3）。
+然而，他提出了关于注射儿童的警告，他说这是一个不可逆转的决定。他指出的问题包括：
 
-脑内出现的Lewy body是帕金森氏病的独特特征，Lewy body主要成分是错误折叠的α-突触核蛋白（misfolded alpha-synuclein），其本质也是一种朊病毒感染。动物实验表明：将这种朊病毒注射到内脏，可以沿着迷走神经侵入脑组织引起小鼠帕金森氏病（4）。
+病毒基因将被注入儿童细胞。马龙指出，该基因将迫使儿童的身体制造有毒的刺突蛋白，这些刺突蛋白会对他们的关键器官造成永久性损伤，包括他们的大脑和神经系统、心脏和血管，使他们容易出现血栓、生殖系统并触发基本的他们的免疫系统发生变化。
 
-**刺突蛋白有类似朊病毒的特征**
+更令人担忧的是，**这些损害一旦发生，就变得无法弥补**。**大脑的病变无法修复，心脏组织的疤痕也无法修复。疫苗还可能造成生殖损害，可能影响家庭的几代人**。
 
-有科学家在仔细分析了冠状病毒后，认为其刺突蛋白有类似朊病毒的特征（5）。Classen 认为mRNA 疫苗产生的刺突蛋白很可能通过改变TDP-43 and FUS蛋白引起神经系统退行性疾病（6）。如果有人认为这些科学家的文章不是发表在著名杂志，不足以引起重视的话，那么两位印度科学家Idrees 和Kumar发表在《生物化学与生物物理研究通讯》（Biochem Biophys Res Commun）应该足以令人震惊。他们发现刺突蛋白很容易与β淀粉样蛋白、tau蛋白，α-突触核蛋白、TDP-43结合，形成有毒聚集体。这种形成有毒聚集体的能力，可以像种子一样引发脑内许多错误折叠的蛋白质，并最终引发神经系统退行性疾病（7）。有研究表明，在注射刺突蛋白后，95％的人源化小鼠在2.5周內死于海绵状脑病。在注射刺突蛋白后，恆河猴在大脑中出现了Lewy body，并出现阿尔茨海默病等神经系统退行性疾病的症状和致命的淀粉样变性疾病 。[https://www.flemingmethod.com/](https://www.flemingmethod.com/)
+新的 mRNA 技术尚未经过充分测试，马龙说，研究人员和科学家需要至少五年的测试和研究，才能完全了解风险，因为新药的危害往往在多年后才会显现。父母应该重新考虑，他们是否希望自己的孩子成为当今人类最激进的医学实验的一部分。
 
-Seneff博士是麻省理工学院一位资深学者，她认为mRNA疫苗设计者有意改变了氨基酸序列，恶意取代了两个相邻的氨基酸，其目的是迫使刺突蛋白质保持开放状态，使其更难与细胞膜融合。这是朝着蛋白质错误折叠迈出的危险一步，可能会导致朊病毒病。Seneff博士还认为刺突蛋白与α-突触核蛋白之间有许多相似之处，这更增加了接种疫苗后发生帕金森氏病的可能性。[https://www.godreports.com/2022/01/mit-researcher-warns-of-long-term-consequences-of-mrna-vaccines/](https://www.godreports.com/2022/01/mit-researcher-warns-of-long-term-consequences-of-mrna-vaccines/)
+儿童对他们的父母或祖父母并不构成危险。感染 COVID 后儿童的免疫力，对于挽救家庭免受疾病侵害至关重要，因此，与其让儿童接种疫苗以预防风险很小的病毒，父母必须考虑孩子忍受疫苗已知健康风险对他们余生的影响，疫苗并没有任何好处。
 
-**朊病毒的传播途径及灭活**
-
-消化道传播。病死动物若包含朊病毒，带病原体肉骨粉污染了饲料后，牛长期食用就可能感染疯牛症。人若食入含朊病毒的动物肉也可致病。朊毒体只是一个蛋白质，生物体内免疫机制无法区分它和一般蛋白质的差异，又会累积在生物体内，累积多了就会发病。朊病毒可沿着迷走神经出入大脑。
-
-医源性传播。如使用了带有朊病毒的脑垂体生长激素、促性腺激素和硬脑膜移植、角膜移植、输血等。
-
-朊病毒对多种因素的灭活作用表现出惊人的抗性。对物理因素，如紫外线照射、电离辐射、超声波以及160～170℃高温，均有相当的耐受能力；耐高压，消毒用的高压灭菌设备也不能灭活。对化学试剂与生化试剂，如甲醛、羟胺、核酸酶类等都有很强抵抗力，并且能抵抗蛋白酶的消化。
-
-目前没有任何治疗手段可以阻止已感染朊病毒的扩散。对于感染了这种病毒的病人来说，理论上应该适当的进行隔离治疗，避免和人有过于亲密的接触。
-
-如果真如这些科学家所言的那样，刺突蛋白是朊病毒，那么未来，所有疫苗接种者都有罹患神经系统退行性疾病的可能，诱骗人类注射这种刺突蛋白真可谓是邪恶至极的恐怖袭击。
-
-**参考文献：**
-
-1. 徐德忠《非典非自然起源和人制人新种病毒基因武器》。北京：军事医学出版社， 2015. 2. ISBN 978-7-5163-0587-4  91页，51页
-2. Weickenmeier et al. A physics-based model explains the prion-like features of neurodegeneration in Alzheimer’s disease, Parkinson’s disease, and amyotrophic lateral sclerosis. Journal of the Mechanics and Physics of Solids. 2019 124, 264-281
-3. Atsushi Aoyagi et al. Aβ and tau prion-like activities decline with longevity in the Alzheimer’s disease human brain. Sci Transl Med 2019 May 1;11(490)
-4. Kim S et al. Transneuronal Propagation of Pathologic α-Synuclein from the Gut to the Brain Models Parkinson’s Disease. Neuron 2019 Aug 21;103(4):627-641
-5. Tetz et al. SARS-CoV-2 Prion-Like Domains in Spike Proteins Enable Higher Affinity to ACE2. https://www.preprints.org/manuscript/202003.0422/v1
-6. Classen JB. COVID-19 RNA Based Vaccines and the Risk of Prion Disease. Microbiology & Infectious Diseases. [https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf](https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf)
-7. Idrees D, Kumar V. SARS-CoV-2 spike protein interactions with amyloidogenic proteins: Potential clues to neurodegeneration. Biochem Biophys Res Commun 2021 May 21;554:94-98
-
+**新闻来源**：[newstarget.com][Dr. Robert Malone: COVID vaccines are permanently damaging children](https://www.newstarget.com/2022-01-25-covid-vaccines-are-permanently-damaging-children.html)
 
 * * *
 
-*编辑：文合*
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-*封面：霹雳鼠年*
-
-*发布：吐纳*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
 
  
 
