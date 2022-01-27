@@ -2,28 +2,31 @@
 ---
 
 
-## 中共一高级火箭专家在军情六处协助下投奔西方
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1915649/)
+## GTV新闻访谈简报|2022年1月26日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1915990/)
 
-#### 翻译/撰稿：文旺 | 校对：沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-26-195315.png)图片来源：news.yahoo.com
-英国《每日快讯》（Express）1月26日报道称，据25日晚上获得的情报， 军情六处（MI6）协助一名中共国的资深科学家叛逃到了西方， 并指出该科学家的逃离使英美两国能够加速其防御中共高超音速导弹的计划。而中共国也可能需要花两年时间来调整其导弹系统，以等科学家提供给英美的情报失效。
+作者：香草山翻译部
 
-报道称，这位年龄30多岁的叛逃者是国有的中共航空工业集团公司的火箭专家，帮助开发了一种中程高超音速助推滑翔飞行器。该导弹运载系统能使东风-17（DF-17）导弹的射程达到 2000 英里， 并可以在从太空降落前环绕地球飞行，使用寻热技术打击地球上的任何目标。
-
-报道披露，去年 9 月底，该专家通过中间人与在香港的英国情报机构取得联系，称他因未能得到提升而产生怨恨。他告述情报人员说他拥有关于高超音速滑翔飞行器的详细信息，如果中共发现他与英国情报机构有联系就会处死他，他要求为自己以及妻子和孩子提供庇护。
-
-军情六处制定了一个计划，让这位科学家和他的家人使用专门开发的路线到达某前英国殖民地。到达那里后，他被带到一个安全的地方，先向军情六处的工作小组做了汇报，后来又向一个包括有两位美国中央情报局（CIA）官员在内的英美情报特别小组，进行了长达一整天的谈话。然后科学家被安排飞往一个更安全的地点——德国的美国空军基地——然后从那儿经英国飞往美国。
-
-报道称，一位情报人士昨晚说，这位火箭科学家非常合作，他是一个在中共国的高超音速武器发展中发挥了关键作用，但对自己受到的待遇感到委屈的人。消息人士补充说，科学家的情报使西方掌握了有关这种高超音速滑翔导弹作战能力的某些细节，“它可能为我们争取了两年时间。我们估计中国需要两年时间才能对其计划做出足够大的改变，以使这种情报失效。在这个领域，两年是很长的时间。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-4.png)
+校对：Stay文苑
 
-新闻来源：[Global tensions grow as Chinese rocket scientist defects to the West](https://www.express.co.uk/news/world/1554695/China-rocket-scientist-defects-West-MI6-global-tensions)
+编辑：Stay文苑
 
-免责声明： 本文内容仅代表作者个人观点，平台不承担任何法律风险
+发稿：Stay文苑
 
+视频参看：[1.26  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f1f52528a108147c636736)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

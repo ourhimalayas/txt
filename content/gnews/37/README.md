@@ -2,33 +2,39 @@
 ---
 
 
-## 美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1915734/)
+## 拜登对普京提出新威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916176/)
 
-翻译：zzballack
-上传：追着曙光跑
+**翻译：文扬**
+**编辑：Candy**
 
-据《网关专家》（Gateway Pundit）1月26日报道，1月24日，参议员罗恩·约翰逊 (Ron Johnson)在华盛顿特区主持了一个长达五小时的小组讨论会议，会议名为《新冠病毒：第二种观点》（Covid-19: A Second Opinion）。与会人员包括几位世界知名的医生和医学专家，他们讨论的内容包括“全球大流行病的应对措施、早期和住院治疗的知识现状、疫苗的效力和安全性以及需要长期解决的问题等等。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-10.39.51.jpeg)图片来源：原新闻
-这些受人尊敬的医学专家对他们在过去一年中遇到的几个问题发出了警告，并揭露了更多令人震惊的信息，讲述了实验性疫苗造成的可怕后果，以及腐败的卫生机构自始至终是如何邪恶地试图掩盖其踪迹。不幸的是，新冠疫苗的灾难性后果可能比想象的还要严重，特别是对年轻人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/普京.png)图片来源：Chip Somodevilla / Getty
 
-在这次会议上，来自俄亥俄州的托马斯·伦茨（Thomas Renz）律师展示了国防部医疗流行病学数据库（DMED）中的医疗账单数据。这些数据揭示了自一年前新冠疫苗推出以来，军人的健康情况所发生的变化，这些真相令人不安。
 
-伦茨律师说，自新冠疫苗匆忙推出以来，美军中确诊的几种严重疾病患者人数出现了天文数字的增长。其中最令人担忧的是癌症，2021年前10个月的癌症患者比2016至2020年这五年的平均值增加了300%，流产率也增加了300%。神经系统疾病患者增加了10倍之多，这将直接影响到美军的军事准备活动，特别是美国空军。伦茨律师说：“神经系统问题会影响我们的飞行员，病例增加了1000%以上。从过去每年的82000人增加到现在的863000 人，大批飞行员受到影响。士兵接种实验性疫苗后受伤或者死亡。”约翰逊参议员对10倍的增长率感到震惊。伦茨还作证说，自从军方吹哨人从DMED系统中调出数据后，一些数据，特别是与心肌炎有关的数据被篡改，表明联邦政府正试图掩盖真相。军方的三位军医吹哨人在宣誓后提供了他们的证词，伦茨律师将在联邦法院使用这些证词。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-10.39.52.jpeg)图片来源：原新闻
-在军队服役多年的吹哨人说：“这些医生在日常的治疗工作中看到病例增加后，被激励去探索DMED的数据。整个部队（所有部门）的一些医生受到了恐吓。我们需要其他军医站出来，分享经验，以充分确定这些指控的严重性，并进行最充分的调查。”
+**美国总统表示，如果乌克兰遭到入侵，俄罗斯总统可能会成为直接目标。**
 
-《The Blaze》的高级编辑丹尼尔·霍罗威茨 (Daniel Horowitz) 与吹哨人证实了这些信息。霍罗威茨说，这些军医查询了2016年到2020年的相关病例数据，并建立了一个五年平均值。这五年间，年均确诊的癌症和流产病例分别为38700和1499，但在2021年前10个月，这些数字分别增长到114645和4182。
+美国总统乔·拜登透露，如果莫斯科决定入侵乌克兰，他不排除对俄罗斯总统弗拉基米尔·普京实施直接的个人制裁。
 
-另外，伦茨律师在接受《The Blaze》采访时提供了他没在会议上提到的数据：军队中的心肌埂塞病例增加了269%，贝尔氏麻痹症病例增加了291%，军人孩子中的先天性畸形病例增加了156%，女性不孕人数增加471%，肺栓塞病例增加了467%。这些数据只是“冰山一角”，伦茨未来还将公布更多数据。
+周二拜登对记者说，他“可以看到”对俄罗斯领导人有针对性的个人措施是可能的。 他发表上述言论之际，西方领导人开始准备对莫斯科实施广泛的制裁，目的是阻止俄罗斯攻击乌克兰。 到目前为止，建议的想法包括禁止进口某些商品，并对俄罗斯银行实施严格限制。
 
-这些数据直接来自美国军方的国防部医疗流行病学数据库（DMED）系统，该系统相当于美国的疫苗不良反应事件报告系统（VAERS）。但DMED系统只有军医可以访问，并记录军队中的每一个病例，用于保险结算（insurance billing），这与VAERS不同，使得它非常准确。
+本月早些时候，针对普京个人为目标的想法，是由罗伯特·梅南德斯(Robert Menendez)领导的一群来自拜登民主党的美国参议员最初提出的。 政界人士推动的法案还针对其他俄罗斯高级官员，如总理米哈伊尔·米舒斯京(Mikhail Mishustin)，以及旨在削弱经济的措施。 然而，这是拜登本人第一次承认普京是一个可能的目标。
 
-霍洛维茨指出，联邦政府机构美国食品药品监管局（FDA）、疾控中心（CDC）、国防部（DoD）很容易获得这些军事医疗信息，这些机构制造了我们正在经历的公共卫生噩梦。他们很清楚确诊的与实验性疫苗有关的危及生命疾病病例急剧上升，但他们决定向公众掩盖这些信息，同时继续强迫人们接种更多的疫苗。
+同时，美国总统还指出，8500名美国军队已经进入高度戒备状态，并指出 “近期 ”可能会有一些美国军队在东欧的军事行动，以保护该国的北约盟友，以防乌克兰危机的溢出效应。
 
-信息来源：[Whistleblowers Reveal DoD Medical Data Showing Military Cancer Diagnoses HAVE TRIPLED Since The Rollout Of The Experimental Vaccines – Along With a 10x Increase in Neurological Disorders and a Near 5x increase in Female INFERTILITY – (VIDEO)](https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/)
+西方新闻出版物和领导人指责俄罗斯在边境上部署了10万名军队，一些人声称克里姆林宫正在计划在不久的将来发动袭击。 莫斯科一再否认所有可能入侵的说法。
 
-[Attorney Thomas Renz Shares SHOCKING Vaccine-Injury Numbers From US Military Whistleblowers](https://thecovidworld.com/attorney-thomas-renz-shares-shocking-vaccine-injury-numbers-from-us-military-whistleblowers/)
+尽管俄罗斯保证不构成威胁，但美国、欧盟和英国都加强了军事准备，一些国家向乌克兰派遣了硬件和人力。
+
+原文链接： [Biden makes new Putin threat — RT Russia & Former Soviet Union](https://www.rt.com/russia/547397-biden-threatens-putin-sanctions/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

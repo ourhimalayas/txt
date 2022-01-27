@@ -2,14 +2,14 @@
 ---
 
 
-## 疯狂的疫苗：当你看到最坏消息的时候，就是最好的消息
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916647/)
+## 七哥想要的音乐（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916758/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
 *发布：*Frank2021
 
-**更多资讯，请关注：
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
