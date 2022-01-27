@@ -2,32 +2,37 @@
 ---
 
 
-## 英首相约翰逊继续工作并表示不会辞职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918267/)
+## 威斯康星州议会投票推进关于2020年大选的决议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918294/)
 
-翻译:里奇
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip19威斯康星州议会投票推进关于2020年大选的决议.png)图片来源：thegatewaypundit.com
+威斯康星州议会在一项特权决议中以语音表决方式全票通过，以推进由众议院[拉姆森议员](https://legis.wisconsin.gov/assembly/59/Ramthun/)提出的决议：收回威斯康星州在欺诈性目的下被认证的（美国总统和副总统）10张选票；该立法现在将转到威斯康星州规则委员会（Wisconsin Rules Committee）和威斯康星州参议院（Wisconsin Senate）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/200514881.jpg)图片来源：美联社
+它是如何发生的？拉姆森议员在周二（25日）的威斯康星州议会公开会议上勇敢地提出了一个程序问题。他的做法是要求通过一项特权决议。根据议会规则（全票通过），他的立法被提交给规则委员会。
 
-伦敦，1 月 26 日（路透社）——英国首相鲍里斯·约翰逊（Boris Johnson）周三表示，他无意因在唐宁街办公室和住所举行的一系列破坏封锁政策的聚会而辞职，并承诺继续工作。
+州规则委员会掌握在共和党人沃斯议长（Speaker Vos）的手中。因此，沃斯议长和其他代表有十天的时间来回答他是否要把它推到会场进行表决。目前还不清楚威斯康星州参议院将如何处理它。
 
-在议会回答问题时，由于不断变换其封锁期间聚会的情节及误导议会，约翰逊首相受到反对党工党领袖基尔·斯塔默(Keir Starmer)的指控，被指首相已认同的这一罪行应触发辞职。
+拉姆森议员使用了规则手册，使用了宪法，而且无所畏惧。他走到大家面前，停止了会议，说：我是一名立法者，我想让你们听听这个，因为这是选民要求我做的。
 
-当被问及他是否会下台时，约翰逊回答说：“不会。”
+州议会对该决议进行了投票，以通过规则委员会，获得一个意见来推进工作。他们本可以将其搁置。他们甚至不需要听到它。但是，因为它被发现有特权，他们没有选择。现在，该立法转到了规则委员会。
 
-“我不否认，出于各种原因，很多人可能希望我让开，但他（斯塔默）想让我让开的原因是因为他知道这个政府值得信赖”他在保守党议员的欢呼声中说道。
+因此，现在立法进入下一阶段，我们将看到由罗宾·沃斯领导的规则委员会会发生什么。这不是一笔交易，但这是威斯康星州历史上第一次有州议员提出要收回威斯康星州的10张大选选举人票。
 
-“我们做出了艰难的决定，我们做出了正确的决定，尤其是我仍继续这份工作。”
+拉姆森的办公室正在为大选选票竞争，需要得到支持和感谢，因为他们为威斯康星州和美国的人民做了正确的事情。无论决议如何发展，拉姆森议员一直遵守他对威斯康星州人民的承诺。
 
-**参考资料：**[reuters][Getting on with the job, UK PM Johnson says he will not resign](https://www.reuters.com/world/uk/uk-pm-johnson-says-he-will-not-resign-over-alleged-parties-2022-01-26/)
+**新闻来源**：[thegatewaypundit.com] [\*\*HUGE BREAKING NEWS\*\* — Wisconsin Assembly
+ Votes to Advance Rep.Ramthun’s Resolution to Reclaim Wisconsin’s Electors For President and Vice President That Were Certified Under Fraudulent Purposes — VIDEO](https://www.thegatewaypundit.com/2022/01/huge-breaking-news-wisconsin-assembly-votes-withdraw-10-electors-joe-biden-2020-election-video/)
 
 * * *
 
-*审核：文乐
-校对：小东
-发稿：信心的选择*
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+
+
 
  
 

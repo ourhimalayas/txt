@@ -2,78 +2,31 @@
 ---
 
 
-## 九成
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1918376/)
+## 日本的最大的赌王想加入咱博彩牌照
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918406/)
 
-撰稿：东京樱花团/在路上
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/日本的最大的赌王想加入咱博彩牌照.jpg)
+我现在要你这个博彩这个牌照。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-161.png)
+现在马上，我就要你20%的股权。 我未来的10年运营，你的成本我全部给cover掉，我所有赚的钱，你拿走80%。而且我愿意出你现在的10倍到20倍价格来加入。
 
-近些年
+为什么这么做呢? 他说∶”因为这个博彩的执照不是博彩，我知道它意味着什么。 这个日本人给我数了数，他说∶你有数字货币、你有稳定币、你再有数字银行、你再有支付。 他说∶还有更重要的，你们接下来还将要发生的，我都能想象到∶全球的整个数字世界的联系。
 
-一个叫九成的人横空出世
+发布：于white
 
-迅速火遍网络
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-更是成了官媒的坐上宾
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-时常被官媒提起
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-我不知道他是谁
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-向来只闻其名
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-不见其人
-
-但从官媒的口中
-
-我也能隐隐猜到一点
-
-这应该是个活跃于高层的富二代
-
-每天看着快要发霉的钞票而犯愁
-
-要不怎么会每次涨价的时候
-
-都兴奋得手舞足蹈
-
-我想我是没有那个实力
-
-我所认识的人也没有
-
-那他到底是谁呢
-
-我苦思冥想
-
-在我看来
-
-这样的富二代
-
-一定是大腹便便
-
-肥头阔耳
-
-貌似智商也不高
-
-属于人傻钱多的类型
-
-于是
-
-我不禁恶意地揣测
-
-他该不会是八戒的傻儿子吧
-
-没错
-
-一定是的
-
-哈哈
-
-我终于揭开了他的神秘面纱
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

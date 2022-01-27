@@ -2,32 +2,36 @@
 ---
 
 
-## 爆炸新闻：YouTube永久禁止Dan Bongino
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918324/)
+## 从2月1号起，丹麦完全取消所有疫情限制措施
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1918350/)
 
-编译：wenwu
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-97.jpg)
+图片：首相发布会截图
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-14-3.jpg)图片来源：Hannah Nightingale
+丹麦首相梅特-弗雷德里克森（Mette Frederiksen）在星期三的新闻发布会上宣布从2月1号起，完全取消所有疫情限制措施，丹麦社会内部完全开发。
 
-YouTube于周三（26日）永久禁止保守派评论员丹·邦吉诺(Dan Bongino)进入该平台，据说是因为违反了该平台的COVID-19错误信息政策。
+周三前，丹麦卫生部长宣布：新冠不再是社会重大疾病。
 
-邦吉诺在该平台自己频道发布的最后一个视频名为“Why I’m Leaving YouTube”(为什么我要离开YouTube)。然后他被完全禁止在该平台上使用。
+在中共病毒开始爆发时，丹麦是欧洲最先实行旅行禁令的国家，和其他国家相比，丹麦也从来没有实行强制疫苗政策。
 
-一位代表YouTube的发言人告诉美国国会，“当一个频道被强迫注销时，发布内容或使用另一个频道来规避禁止使用令，是违反我们服务条款的。”
+现在，走在世界的前面，重新开发丹麦社会的举措当然是值得赞赏的。丹麦选择了和实行强制疫苗政策的邻国德国，以及其他欧洲大国如奥地利、法国、意大利完全不同的应对政策。
 
-邦吉诺一直在他的主要YouTube频道上发布内容，而他的次要频道（主要发布他的广播节目的短片）则因违反YouTube的COVID-19错误信息政策而被暂停；邦吉诺的两个频道都已从网站上删除，他今后将不能再创建新的频道。YouTube发言人还证实，任何“与他的名字相关”的新频道也将被拒绝。
+但是，首相仍然将疫苗比作是“超级武器”，声称疫苗提供了强大的保护，使丹麦人免受病毒的感染。
 
-“看着@YouTube的共产主义者在我们告诉他们去f%^\*自己之后拼命地挽回面子，很搞笑，”[邦吉诺报告](https://twitter.com/BonginoReport/status/1486431983249117190?s=20)（Bongino Reprot）在Twitter上写道：“他们声称我们‘试图逃避管治’。真的吗？通过发布最后一个标题是’Why I’m Leaving YouTube’的视频？”
+她说，重新开发社会是基于两个因素，570万中超过350万的丹麦人打了第三针，在世界上遥遥领先；其次，奥米坑虽然传染性强，但症状较轻。
 
-新闻来源：[thepostmillennial.com] [BREAKING: YouTube permanently bans Dan Bongino](https://thepostmillennial.com/breaking-youtube-permanently-bans-dan-bongino) |发布时间：2022年01月26日
+然而，她完全不提疫苗的副作用，政府和卫生部门也没有向科学界和公众提供完整的感染率和住院死亡人数据。
 
-* * *
+非常可喜，丹麦媒体开始反省，为之前盲目给政府新冠言论背书而向公众道歉，并且开始质疑当局与民众的沟通绝配不上“超级”一词。
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
+满怀希望，丹麦能够走在世界的前面，真诚勇敢面对疫苗的真相，为即将到来的疫苗后遗症做好准备。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+来源链接：
+
+[TV2.dk](https://nyheder.tv2.dk/samfund/2022-01-27-det-kan-man-ikke-tillade-sig-at-sige-sagde-overlaege-onsdag-svarede-mette)
+
+
 
  
 

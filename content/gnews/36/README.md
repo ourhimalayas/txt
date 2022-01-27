@@ -2,41 +2,38 @@
 ---
 
 
-## 奥地利解除对未接种疫苗居民的封锁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918028/)
+## 投资者惊叹于喜币的天才设计
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918041/)
 
-**翻译： Jenny Ball**
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在1月24日的大直播中再次解读了喜币在未来的发展趋势和影响力。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-27-上午5.58.04.png)
+郭先生提及，每当新中国联邦与各国政府就喜币问题进行磋商时，与会者都会惊叹于喜币的天才设计。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip13奥地利解除对未接种疫苗居民的封锁.png)赶上成为头条新闻的发展中的故事。
-ABCNews.com
+对此，郭先生解释道，当喜币在未来打开无疆界支付系统，特别是在冷钱包和热钱包被囊括在系统中之后，全球任何一个人可以随时通过该系统交易喜币，且没有任何人或机构可以控制一个人的喜币，更无法阻挡喜币的流通——这是喜币在全世界独一无二的特性。此外，当喜币开始流通以后，无论是便宜的面包和汽油，还是昂贵的飞机，这些都能用喜币购买。
 
-奥地利总理周三宣布，奥地利将于下周一结束对未接种疫苗的居民的封锁——即在该国 COVID-19 疫苗授权生效的前一天。
+至于喜币的另一个价值，则是在其流通与喜支付全部完成之后。彼时，喜马拉雅交易系统将会陆续推出喜保险、喜金融、喜贷款、喜抵押等一系列金融服务。
 
-奥地利总理卡尔·内哈默（Karl Nehammer）表示，该措施于 11 月推出，不再需要，因为医院重症监护病房不存在过度紧张的威胁。
+同时，郭先生也再次强调，未来的数字货币一定是去中心化的，因此，一种数字货币有没有稳定币，以及相关责任人和KYC都是该数字货币的核心内容。
 
-据奥地利通讯社 APA 报道，内哈默说，数周以来，对未接种疫苗的人进行封锁一直是“许多人抱怨的一项措施，但出于卫生政策的原因，这是不可避免的”。
+郭先生最后还明确道，新中国联邦战友目前拥有了6亿7千万个喜币，他们的利益必须被排在首位——这也是任何个人或机构投资喜币的前提，即不能跟爆料革命的战友争名、争利。
 
-2 月 1 日，欧洲首例针对成人的 COVID-19 疫苗授权——将在这个阿尔卑斯山小国生效。官员们表示，这项授权是必要的，因为疫苗接种率仍然太低。他们说，这将确保奥地利的医院不会因 COVID-19 患者而不堪重负。迄今为止，该国75.4%的居民已全面接种疫苗。
+参考链接：[https://www.gettr.com/post/pqfg145693](https://www.gettr.com/post/pqfg145693)
 
-“尽管有所放松，但仍需谨慎：我呼吁所有 150 万未接种疫苗的人接种疫苗，不要等待强制接种疫苗生效，”总理在推特上写道。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-一旦授权生效，当局将写信给每个家庭，告知他们新规则。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-从3月中旬开始，警方将在例行检查中开始检查人们的疫苗接种情况；无法出示疫苗接种证明的人，将被要求以书面形式出示，否则将被处以最高 600 欧元（676 美元）的罚款。
-
-内哈默本月早些时候表示，如果当局判断该国的疫苗接种进展仍然不足，他们将向仍未接种疫苗的人发送提醒。如果即使这样也不起作用，人们将被安排接种疫苗预约，如果他们不遵守，将被罚款。官员们希望他们不需要使用最后一种措施。如果人们对自己的处罚提出异议，并启动完整的诉讼程序，罚款可能高达 3,600 欧元。
-
-**新闻来源**：[abcnews.go.com][Austria to lift lockdown for unvaccinated residents](https://abcnews.go.com/Health/wireStory/austria-lift-lockdown-unvaccinated-residents-82480785)
-
-* * *
-
-***审核：文乐
-校对：小东
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
-**
-**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

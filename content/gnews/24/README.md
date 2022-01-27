@@ -2,42 +2,40 @@
 ---
 
 
-## 美立法者抨击国际奥委会让反人类公司赞助奥运会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918295/)
+## 丹麦与瑞典颁布截然相反的新冠疫情措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1918304/)
 
-编译：wenwu
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2254.png)图片来源：skynews
+翻译：不要代表我Kari
+编辑：Lish
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237873397-736x490-1.jpg)JADE GAO/法新社通过盖蒂图片拍摄
+据丹麦哥本哈根美联社报道——丹麦政府周三表示，将在下周取消大部分的大流行疫情限制措施，尽管邻国瑞典宣布将自己的措施再延长两周。
 
-一家因帮助政府监视维吾尔人而被美国制裁的中国公司是即将举行的北京冬奥会的主要赞助商。
+丹麦首相梅特·弗雷德里克森（Mette Frederiksen）表示，从 2 月 1 日起，丹麦人将可以自由出入餐厅、咖啡馆、博物馆和夜总会，同时不再强制要求戴口罩。弗雷德里克森（Mette Frederiksen）说：“我们告别了限制措施，欢迎恢复我们正常的生活”。 “从 2 月 1 日起，丹麦将开放。” 但弗雷德里克森（Frederiksen）警告说，未来几周丹麦的感染人数可能会增加，并补充说可能有必要进行第四次疫苗接种。
 
-iFlytek是即将举行的冬季奥运会自动翻译软件的独家供应商。中共国政府利用其技术监视中国维吾尔人和其他受迫害群体。美国商务部在2019年将iFlytek与其他中共国人工智能公司一起制裁，因为它们在“实施中国的镇压、大规模任意拘留和高科技监控运动中扮演了侵犯人权和虐待的角色。”
+丹麦目前要求在公共交通、商店、餐厅内等候区域的顾客以及进入医院、保健所和养老院的人都要戴口罩。从2月1日起，政府将只建议在医院、保健所和老人院使用口罩。
 
-参议院外交关系委员会的最高共和党人吉姆·里奇（Jim Risch，爱达荷州）称，iFlytek参与奥运会的行为是”确实可耻”。
+即将于下周取消的限制措施早在去年7月就已经推出并实施，但在“成功的”大规模接种疫苗—大约10周后当局取消了解封令。因为之后感染率继续飙升，限制令又被重新引入。
 
-“以‘承认和维护人权’立身的国际奥林匹克委员会允许一家中共国国家支持的公司赞助北京奥运会组委会，该公司协助中共国政府对维吾尔人进行残暴的人权侵犯；这恰恰表明，国际奥委会把利润和与北京的关系看得比什么都重要。”里奇告诉华盛顿自由灯塔。
+就在周四早些时候，瑞典将多项新冠疫情限制令延长了两周。
 
-北京奥运会引起了国际社会对中共国侵犯人权行为的关注。美国宣布对奥运会进行外交抵制，以回应中共国对中国维吾尔族穆斯林人口的种族屠杀。中共国本周威胁说，奥运会运动员的言论如果违反了“奥林匹克精神”，将受到“一定的惩罚”。
+瑞典卫生和社会事务部长莉娜·哈伦格伦（Lena Hallengren）表示，该国此前因其采取“佛系”不封城的疫情政策而在欧洲国家中较为突出，但“感染和传播率创下新高”。
 
-人权组织长期以来一直抨击iFlytek与中国共产党的合作。人权观察称：“在一个长期不受限制地监视和报复批评者的国家，当局可以轻易地滥用这些（监控）数据。”
+瑞典公共卫生局局长卡琳·泰格马克·威塞尔（Karin Tegmark Wisell）说：“预计感染人数将在几周内下降。”“ 瑞典在过去一周有 270,000 新增病例，我们的评估是，在此期间，每周至少有 50 万人患病。”
 
-与里奇一起谴责中共的还有众议院外交委员会的最高共和党人迈克尔·麦考尔议员（Michael McCaul，德州）。麦考尔告诉自由灯塔，iFlytek“正式参与奥运会是一个完美的例子，说明中共的影响力是如何威胁到美国的价值观。”
+瑞典已下令咖啡馆、酒吧和餐馆在晚上 11 点关闭，并敦促人们尽可能在家工作。
 
-中共国记者在2020年东京奥运会期间使用了iFlytek技术。该公司吹嘘说，其双屏翻译器使中共国记者“解决了记者、运动员和工作人员之间的跨语言交流问题”。
+参考链接：[Denmark ending most Covid restrictions, while neighbor Sweden extends theirs | Fox News](https://www.foxnews.com/world/denmark-ending-covid-restrictions-sweden-extending)
 
-共和党道格·兰博恩议员（Doug Lamborn，科罗拉多州）的选区包括科罗拉多斯普林斯的奥运会和残奥会训练中心。他告诉《自由灯塔》，“美国必须继续制裁那些协助对维吾尔人进行种族灭绝和犯罪的公司。”
+发布：Lish
 
-iFlytek与计算机芯片制造商英特尔合作，后者是奥运会的赞助商。英特尔是iFlytek的早期投资者，并为该公司的语音识别技术提供芯片。英特尔就《防止维吾尔族强迫劳动法》游说国会，该法禁止依赖中共国奴隶劳动的进口。 网络安全组织说，中共国可能利用技术来监视那些参加北京奥运会的人。据公民实验室称，奥运选手和其他人必须在比赛前用来报告健康和旅行数据的应用程序包含许多加密漏洞。该应用程序还包含审查某些政治声明的计算机代码。
-
-新闻来源：[freebeacon.com] [Lawmakers slam IOC’s ‘shameful’ decision to let U.S.-sanctioned company sponsor games](https://freebeacon.com/national-security/chinese-company-that-surveils-uyghurs-has-major-role-in-beijing-olympics/) | 发布时间：2022年01月24日
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

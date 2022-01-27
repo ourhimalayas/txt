@@ -2,96 +2,32 @@
 ---
 
 
-## 保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918214/)
+## 白宫、乌克兰在应对俄罗斯入侵的机率上大相径庭
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1918235/)
 
-[https://gtv.org/video/id=61f162e387664c47acda6309](https://gtv.org/video/id=61f162e387664c47acda6309)
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-29.jpg)
+图片来源：
 
-**Dr. Paul Marik
-保罗·马里克医生**
+据《零对冲》报道，当所有人都聚焦乌克兰和俄罗斯的紧张局势时，华盛顿和基辅的官员似乎意见并不一致，乌克兰官员敦促保持冷静，并表示俄罗斯的入侵并没有迫在眉睫；而在华盛顿则仍然继续笼罩在恐慌之中。
 
-My hands were tied as a clinician for the first time in my entire career
-作为临床医生，在我的整个职业生涯中，我的双手第一次被束缚
+在面对有关乌克兰局势的评估时，白宫新闻秘书简.帕萨基（Jen.Paski)坚称俄罗斯随时可能入侵，当被问及美国是否仍然认为威胁“迫在眉睫”时，普萨基回答说：“正确”。
 
-I could not be a doctor. I could not treat patients the way I had to be to treat patients
-我不能做为一名医生，我不能像对待病人一样给病人治病
+当天晚些时候，拜登总统似乎承认他实际上并不确定俄罗斯总统弗拉基米尔.普京是否真的会入侵。  “这就是普京。我认为即使是他的人民也无法确定他到底会做什么，”他说。
 
-I had seven COVID patients, including a 31 year old woman
-我有七名COVID患者，其中包括一名31岁的女性
+据美联社报道，乌克兰国防部长奥列克西·列兹尼科夫（Oleksii Reznikov）在基辅告诉议会，“到目前为止，没有理由相信”俄罗斯将立即入侵。“别担心，睡个安稳觉，”列兹尼科夫说。“没必要慌慌张张的收拾好你的行李。”
 
-I was not allowed to treat these people. I had to stand by idly
-我不被允许治疗这些人，我不得不袖手旁观
+乌克兰总统泽连斯基（Volodymyr Zelensky）周二也呼吁保持冷静。 他说：“我们足够强大，可以控制一切并击破任何破坏稳定的企图。” 在谈到华盛顿下令在乌克兰的美国外交官家属离开该国的决定时，泽伦斯基表示，此举“并不一定预示着不可避免的局势升级，而是复杂外交游戏的一部分。”
 
-I had to stand by idly watching these people die
-我不得不袖手旁观地看着这些人死去
+美国国务院周日下令撤离大使馆，并发布了针对乌克兰的旅行指导，理由是“俄罗斯军事行动的威胁越来越大”。 但乌克兰外交部拒绝了美国的有关评估。
 
-I then tried to sue the system and you know what they did?
-然后我试图起诉系统，你知道他们做了什么吗？
+“事实上，最近安全局势没有发生根本性变化；俄罗斯新一波侵略的威胁自2014年以来一直都存在，俄罗斯军队在边境的集结从去年4月就开始了。”该部表示 .
 
-They did something called peer sham review
-他们做了一些叫做同行虚假审查的事情
+从俄罗斯这方面来说，它一直否认从 11 月开始来自美国的关于它计划入侵乌克兰的指控。普京正在就北约东扩和北约军队在俄罗斯边境附近的存在寻求美国的保证。 预计美国将在本周某个时候就安全提案向俄罗斯提供书面答复。
 
-It is a disgusting and evil concept
-这是一个令人作呕和邪恶的概念
+详者简评：处于连接欧亚大陆的俄罗斯，自古以来都在国际事务上有着举足轻重的地位，看似日益紧张的俄乌局势，实际上是普京在寻求俄罗斯在未来国际政治、经济新秩序中的利益最大化。无论从是否有入侵乌克兰的紧迫性和必要性，还是从俄罗斯本身的实力来看，普京都不存在冒险一搏的必要；现今世界上，除了习总加速师外，没有任何国家敢于挑战美国，更何况华沙条约国不再。普京是一个天才的政治大玩家，在中美之争趋于摊牌的今天，很懂的如何利用好这个局势为自己谋利，相信不久后的俄乌危机将会渐渐冷确。
 
-They then accused me of seven most outrageous crimes that I had committed
-然后他们指控我犯下七项最令人发指的罪行
-
-and then I was such a severe threat to the safety of patients
-指控我对患者的安全造成了如此严重的威胁
-
-They immediately suspended my hospital privileges
-他们立即暂停了我的住院医生的权限
-
-because I possessed a pose such an outright threat to these patients
-因为我对这些病人构成了如此直接的威胁
-
-ignoring the fact that under my care, the mortality was 50% those of my colleagues
-无视在我的照顾下，患者死亡率是我同事的50%的事实
-
-I then went on through the sham peer review
-然后对我继续进行虚假的同行审查
-
-I went to a kangaroo court where they continued this
-我去了一个模拟法庭，他们继续这样做
-
-and the end result was I lost my hospital privilege
-最终的结果是我失去了住院医生的权限
-
-and was reported to national Practitioner Data Bank
-并报告给国家从业医生数据库
-
-So here I was standing up for patients rights
-所以我在这里为病人的权利挺身而出
-
-and this hospital, this evil hospital ended my medical career
-而这家医院，这家邪恶的医院结束了我的医疗生涯
-
-So that’s what they do
-这就是他们所做的
-
-It’s an outright outrage. It’s evil to the core
-这是彻头彻尾的暴行，这是邪恶的核心
-
-* * *
-
-Date:01/25/2022
-原视频标题: Dr. Paul Marik talks about how he got fired after he tried to treat his COVID patients
-保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
-原视频日期：2022/01/25
-原视频链接: **[https://twitter.com/senronjohnson/status/1485700814643638275?s=24](https://twitter.com/senronjohnson/status/1485700814643638275?s=24)**
-任务编号：KE367（3590）
-视频时间段 : 0:00-1:43
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文链接：[https://www.zerohedge.com/geopolitical/white-house-ukraine-odds-over-threat-russian-invasion-awkward-back-forth](https://www.zerohedge.com/geopolitical/white-house-ukraine-odds-over-threat-russian-invasion-awkward-back-forth)
 
  
 
