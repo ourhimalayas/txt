@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/27/2022 11:40 PM (UTC)`
+
+1/27/2022 Miles Guo: I am going to launch three Tian Mi Mi Movements by using the Himalaya Coin. The Himalaya Coin is of extraordinary significance, and the Himalaya Pay is like pulling the tube that draws the blood from the Chinese people and inserting it into the old CCP kleptocrats. What are the three landmark events of the Himalaya Coin from its fetal period to birth?<br/><br/>1/27/2022 文贵直播：文贵计划用“喜币”启动三场“甜蜜蜜”运动；喜币意义非凡，H-Pay就是把中共是把中共插在中国人民身上的抽血管倒插进中南坑老杂毛身上；喜币从胎儿到出生的三个标志性事件是什么？<br/>
+![img](https://media.gettr.com/group46/getter/2022/01/27/23/e221077b-9a4e-f557-26d5-21710b8b1fc3/out.jpg)
+
+---
+
 `@miles 1/27/2022 11:38 PM (UTC)`
 
 1月27号：衷心地，感谢，喜安娜喜欢第一次做得精美的视频，是的是的，是的，是的，太好了。<br/><br/>［郭叔好，您在大直播中对文化、信仰、真相的分享，让我和爱迪受到了这些信息的启发，感受到了来自真相的灵感。我和爱迪创作了两首原创歌曲。这里面包含了我们对这些讯息的一些理解和感受。非常感谢您对我们的开智，最近一系列世界的行动也让我们再一次的认识到了真相是多么的重要。］
@@ -144,13 +151,6 @@ Thousands gathered in front of the Lincoln Memorial in Washington DC for the 'De
 
 1/25/2022 Mr. Miles Guo signed the third historical document of the New Federal State of China, applauding President Biden and Secretary of State Blinken’s authorization of the commencement of closing the US Embassy in Beijing. We hope that the US will take further actions to pull the recognition of the CCP as the legitimate government of China and the Chinese people.<br/><br/>1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏；我们希望美国采取进一步行动否认中共是代表中国和中国人民的合法政府<br/>
 ![img](https://media.gettr.com/group19/getter/2022/01/26/01/9b34f34d-f85a-42d5-5dc6-6ba7cb23d76b/out.jpg)
-
----
-
-`@miles 1/26/2022 12:49 AM (UTC)`
-
-1月25号：尊敬的战友们好……不要忘了我们的使命，全力以赴，传播共产党病毒疫苗大屠杀的真相……一切都已经开始！
-![img](https://media.gettr.com/group24/getter/2022/01/26/00/ffe46a34-75f8-8c22-0da0-43c4cc9cbf5f/e0c78f634498ae8cea1c2080bf13c009.jpg)
 
 ---
 

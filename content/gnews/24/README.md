@@ -2,30 +2,38 @@
 ---
 
 
-## 扬帆每日速递——2022年1月27日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1919985/)
+## Eglise医生讲述青蒿素有助眠安神抗抑郁作用
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920059/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、特鲁多此前曾称那些反对中共病毒疫苗的人是性别歧视者和种族主义者。今天他更称，参加“自由护航2022”的卡车司机为“少数人”，并表示他们不代表加拿大人的观点。
+G-TV视频链接：[https://gtv.org/video/id=61f2ab7987664c47acdad195](https://gtv.org/video/id=61f2ab7987664c47acdad195)
 
-2、欧盟在世界贸易组织对中共国提起诉讼，控诉中共国因立陶宛在台湾问题上的立场对其实施经济霸凌。去年7月，欧盟最小的国家之一立陶宛宣布允许台湾在维尔纽斯开设外交办公室，中共国则报复性地对立陶宛实施停止进口和其他经济限制。
+**Dr.Eglise****：**这个青蒿素为什么能够助眠？的确有助眠作用，因为人体在睡眠当中它有分泌一种脑的内啡肽，叫做褪黑素，所以就能使人进入深的动眼睡眠，就是有那个梦境的睡眠，就是高质量的深睡眠。这个青蒿素我估计它有这方面作用，因为同一些其他文件，我发现青蒿素因为它有抗抑郁症作用，有一些国家医生喜欢用青蒿素给严重抑郁症的患者用。
 
-3、据文贵大直播：1月26日是文贵先生引领爆料革命5年整，文贵先生卧薪尝胆30年，灭共进入倒计时。
+它有这个安神、助睡眠，让患者不那么精神高度紧张，所以对抑郁症有效果，对严重失眠有效果，所以最近就看出它对大对大脑内啡肽可能还不仅仅是褪黑素，可能还有其他的，像血清素这些，都有可能分泌一些激素，会让人觉得比较愉悦，心情比较平稳，所以都是一些好的大脑的那种化学物质分泌，所以它是一个很好的让你处于愉悦状态的一个天然保健品。
 
-4、据文贵大直播：未来所有的严肃媒体和大社交媒体都会被审判.奥运会之后，欧美等国家民众对严肃媒体的仇恨超过CCP,这是我们爆料革命最大的机会。
+视频听写：青桐；
 
-5、Yahoo焦点1月27日报道:香港特首林郑月娥下午见记者表示疫苗气泡将改名为【疫苗通行证】不打针者很多地方将不能去。评:厚颜无耻到极点，一直鼓吹的「疫苗气泡」只是晃子。
+编辑整理：海贼王M.D.LUFFY；
 
-6、中共国外交部网站消息，王毅1月27日在与布林肯的电话中说，当务之急，美方应当停止干扰北京冬奥会，停止在台湾问题上玩火打牌，停止打造各种反华遏华“小圈子”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板127-1_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
+字幕文件制作：小满；
 
-编辑：文敏
+视频制作及上传：Cindy；
 
-发布：风起云间（文敏）
+G.News发布：小满；
 
-海报图片设计：飞天面、 Shuang
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 
