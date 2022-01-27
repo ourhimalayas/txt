@@ -2,20 +2,20 @@
 ---
 
 
-## 滇池寻梦
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1919131/)
+## 游子吟
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1919164/)
 
 推荐人：香草山健身部 – 新世界的一员
 ![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-山衔落日近黄昏
-驳船晚归披霞绮
-人世浮名空流转
-多少王炸沉江底
+故园催人老，
+何处择枝栖。
+更替有竟时，
+漂泊无归期。
 
-尘缘梦尽觅隐居
-滇池无量悦鸟栖
-浪花朵朵濯我足
-波涛滚滚陶知己
+穿越春秋鹤，
+淡泊青云志。
+读史观日落，
+秉烛承天意。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
 

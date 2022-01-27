@@ -2,36 +2,51 @@
 ---
 
 
-## MV版Hcoin To the Moon上线49天第32次位列匈牙利iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1918971/)
+## 拜登做了全球灭共“先锋”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1919033/)
 
-1/27/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线49天第32次位列匈牙利iTunes摇滚音乐视频榜榜首，第49次位列前三名
-
-* * *
-
-[【PDF 下载】Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
+作者：纽约香草山福音部 – 遍地开花
 
 
-[【PDF 下载】Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Thursday-27-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+
+
+
+1月25日，文贵先生突然紧急直播，发布“甜蜜蜜”行动重要公告：即日起，拜登政府授权美国驻北京大使馆撤离。
+
+拜登不鸣则已一鸣惊人啊，一出手就是如此重拳，中共简直就剩半条命了，够给力！文贵先生说这绝对是灭共的第三道大门打开了。但是，这跟爆料革命的“甜蜜蜜”运动又有什么关系呢？为什么七哥这次的公告称是“甜蜜蜜”行动的重要公告呢？毫无疑问，促使拜登政府做出这一决定的主要推动力量是新中国联邦。七哥说过，“甜蜜蜜”行动如果没有美国的配合是不会成功的。没想到美国送来了这么一个大礼，这算不算拜登给“甜蜜蜜”行动开路了呢？
+
+根据文贵先生的直播和盖特消息，这次美国撤离驻北京大使馆的意义有：
+
+- 美国不再为中共站台，摘掉了中共是“正常人”的标签，表明中共就是“流氓”犯罪组织，人人得而诛之；
+- 中共不能代表中国人民（新中国联邦是唯一选择）；
+- 引起多米诺骨牌效应，世界各国逐渐跟随，与中共脱钩；
+- 为接下来更大的灭共行动铺平道路；
+- 开启病毒溯源进程，掀起全球灭共浪潮；
+- 孤立中共，亲共势力也不敢与中共太过亲密，以免被牵连；
+- 中共内部人心惶惶，为求自保内斗加剧，加速死亡；
+- 新中国联邦被世界承认指日可待。
+
+
+文贵先生说，拜登总统或许会成为灭共的第一英雄，没想到这么快就要验证了。拜登这一决定当之无愧是灭共先锋，为世界灭共铺平了道路，正式掀起了全球灭共浪潮。感谢拜登总统，感谢国务卿布林肯，你们的决定是对中国人民最大的礼物。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
+
+
+
+编辑/校对/发稿：武裝的羔羊
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
