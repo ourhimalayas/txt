@@ -2,51 +2,26 @@
 ---
 
 
-## 德国每日COVID病例超20万，已造成行业人员短缺
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1919110/)
+## 中日财经爆┃美大使馆撤离，A股境外资金疯狂出逃
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1919199/)
 
-作者：纽约香草山农场 – 四季
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-58.png)
+图片来源于本文链接
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+1月27日，受美国授权撤离大使馆的影响，A股北向资金全天净卖出146.24亿元，为18个月以来的最高点，其中，沪股通净卖出77.24亿元，深股通净卖出69亿元。前十大成交股中，A股核心企业宁德时代、贵州茅台、中国平安分别遭净卖出11.82亿元、11.39亿元、7.20亿元。
 
+A股北向资金是沪港通和深港通买入资金之和，就是通过香港交易所买入中共国股票的资金，俗称热钱或聪明的资金，实质是境外资金，被认为是A股的风向标。本次北向资金的疯狂出逃，特别是针对A股核心企业的资金出逃，显示境外资金对中共和中共国股市的悲观态度。境外资金用钞票投票告诉中共，与你的勾兑到此为止，你的股市完求蛋了，你的经济完求蛋了，你完求蛋了。
 
+信息来源：
 
+[北向资金净卖出146亿元，宁德时代、贵州茅台遭净卖出逾11亿元](https://www.yicai.com/news/101303691.html)
 
+[北向持股历史](https://data.eastmoney.com/hsgtcg/gzcglist.html?t2=101&amp;t3=1)
 
-据[OAN网站](https://www.oann.com/germany-reports-new-daily-record-for-covid-19-infections/)援引路透社1月27日报道，周四，德国新的中共病毒感染人数首次超过单日20万，比一周前的同一天多出69600例。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-27T132954Z_1_LYNXMPEI0Q0MP_RTROPTP_0_HEALTH-CORONAVIRUS-GERMANY_1.jpg)2022年1月27日，在德国慕尼黑一个疫苗接种中心前，人们排队等待接种中共病毒（COVID-19）疫苗。（REUTERS/Andreas Gebert）
-
-罗伯特·科赫传染病研究所的报告显示，每10万人的七天发病率从前一天的941人上升至1017人，另有188人死亡，使自2020年初大流行开始以来的死亡人数达到117314人。
-
-DIVI急诊和重症监护医生协会的董事会成员乌韦·扬森斯（Uwe Janssens）警告说，如果每日感染人数超过30万，那么德国的关键基础设施就可能出现问题。卫生部长卡尔·劳特巴赫（Karl Lauterbach）预测，到2月中旬，每日病例可能超过40万。
-
-德国疫情的升级已造成一些行业人员的短缺。汉莎航空集团的货运部门说，由于员工中感染率的上升，其在法兰克福枢纽的人员已趋短缺，这意味着它目前无法处理来自美国、加拿大和欧洲的散装货物的分拣。目前，法兰克福有多达15%的货物受到延误的影响。
-
-德国医院联盟在本周早些时候也警告说，四分之三的医院报告说病假的员工人数高于平时。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

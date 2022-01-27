@@ -2,38 +2,34 @@
 ---
 
 
-## 有声|印尼政府收购私人银行，正式进军数字银行领域
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1918798/)
+## 爆料革命战友谈美国撤回中共大使馆的意义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918920/)
 
-配音：香草山佛教部 – 李傻
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月25日郭文贵先生向全世界公布美国政府决定撤离美利坚合众国驻中共国北京大使馆后，爆料革命的战友们也在直播连线中谈论了这一举动的重大意义。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-16.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-外媒 24 日消息，印尼政府银行 Bank Negara Indonesia——BNI 宣布收购由 Mayora 集团和世界银行国际金融公司IFC 共同持有的银行，Bank Mayora，目前交易正等待股东大会达成协议，预计到今年 5 月份正式达成。
+战友们表示，这或将意味着，继二战之后，美国再次选择站在正义的一边，并且将和中国人民站在一起。同时，撤离大使馆也是对中共政权的巨大否定，特别是赶在冬奥会前的时间点，这预示着美国此举将成为引发全球灭共浪潮的第一步。
 
-BNI 在一份官方声明中表示，Mayora 银行将转型成为一间数字银行，重点服务于国内的中小企业。另外，BNI 还收购了几间相关领域的知名科技公司加入该数字银行的计划。
+郭先生对此总结道，美国驻北京大使馆一直被中共内部认定为定海神针。如今，这个定海神针的撤离意味着美国已经在全世界范围内认定中共政府不合法。自此，对抗中共的一方将必然成为正义的一方，这一结论影响深远且巨大。
 
-早前，智库香港 有分析人士認為，“金融业未来的趋势就是数字化，而数字货币、数字银行将会是未来金融基建的核心。”
+参考链接：[2022年1月25日 紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](https://gtv.org/video/id=61f00abe28a108147c625eb0)
 
-文字版原文：[印尼政府收购私人银行，正式进军数字银行领域](https://gnews.org/zh-hans/1914353/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

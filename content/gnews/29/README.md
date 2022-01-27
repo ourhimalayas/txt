@@ -2,40 +2,51 @@
 ---
 
 
-## 中共回应郭先生紧急直播实属色厉内荏
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918929/)
+## 浅谈《新中国联邦》的一人一票投票制度(一)
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1919106/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月25日，在郭文贵先生关于美国撤回驻北京大使馆的紧急直播后的两个小时，中共喉舌媒体迅速做出了回应，并将该回应称之为所谓的“深夜独家新闻”。
+作者：香草山教育部 – 春草
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+**目录**
+1、一人一票的定义
+2、一人一票投票法概要
+3、法律知识的宣传普及
+4、法律的执行和监督
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-12.jpeg)
+**绪**
 
-与中共以往作风别无二致的是，该媒体不仅在报道中对“消息来源”含糊其辞，其甚至在仅陈述部分事实外，还不忘用大段陈词滥调向美国叫嚣。更甚至，该媒体还在报道中扬言，美国这种做法将升级其与中共和俄罗斯的紧张关系，并将使其面临更大的风险。而后，中共外交部发言人赵立坚还在第二天的记者会上威胁称，美国“将极大地增加感染中共病毒的风险”。
+选票，大家都熟悉，无论是民主国家还是集权、独裁国家都有选票。但只有在民主制度下才有真正的选票。很遗憾迄今为止还沒有一个民主国家真正做到民主选举，基本上都是靠富豪的资金扶持、由一部分公民甚至一少部分的公民参与投票选出各级政要，大选实际上成了少数富豪争权夺利、奴役平民、疯狂掠夺剩余价值的游戏。
 
-目前，多家西方媒体已经通过渠道证实了郭先生在直播中的声明，即美国政府将以防疫为由授权撤离驻中共国的使领馆。
+鉴于此，以郭文贵(七哥)先生为首的爆料革命创建的新中国联邦，首先提出了一人一票的投票制度，这是一种全新的不同于现有的民主国家的投票制度。
 
-此外，郭文贵先生还在25日的直播中透露，中共如果继续阻挠美方的病毒溯源工作，或是再度向美国及世界释放更多的中共病毒，美国不仅会在经济贸易上与中共脱钩，还将毫无选择地跟中共开战。
+**1、一人一票的定义**
 
-参考链接：
-1）[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
-2）[美国考虑授权撤离驻华使领馆 免受中国严格防疫影响–消息（更新版）](https://www.reuters.com/article/usa-diplomats-china-health-measures-sour-idCNKBS2K002Z)
-3）[外交部回应美方大阴招！](https://news.sina.com.cn/c/2022-01-26/doc-ikyamrmz7564637.shtml)
-4）[1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告](https://www.gettr.com/post/pqo4oz98c6)
+a、是全民参与投票的选举，一人一票即每人都投票和每人只能投一票，这里说的每人是指有资格的合法公民。竞选人必须获得投票人数的2/3以上的数额才能胜选，虽然不是全部同意，但已经符合大多数人的权益，当然少数人的合法权益一定会得到法律保护的。除了选举还有罢免，都要通过投票决定，参与人数和罢免人数比例同上。除国家级管理政要外，下级各政府、部门的管理要员也必须用投票法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+b、一人一票不仅是针对各级政要的选举和罢免，对国家的所有法律、条例、制度…，凡是与国计民生相关的内容、大政方针都适用。先由专业人员拟出草案，最后必须通过全民投票的程序决定。参与投票的人数和通过的比例数同上。
 
-总编：飞虹
-编辑：文特
-校正/发稿：谐趣园
+C、全国所有的行业、企业，包括科研、院校…，凡是存在雇主与雇工关系的单位，所作的与双方权益相关的决策、规章、守则…，必须由全部的雇主与雇工共同参与投票通过，雇主自行决定者均属违法。
+
+综上所述，一人一票的投票制度，就是一切权力回归劳动者，各级政府、部门的官员、职员都是全国公民投票选出的管理员(劳动者)。他们和普通劳动者有平等(相同)的权力，无论什么职务，都没有特权。
+
+这才是真正的民主社会。
+
+**待续**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,28 @@
 ---
 
 
-## 握好手中的灭共币、信仰币
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1919213/)
+## GTV新闻访谈简报|2022年1月27日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1919301/)
 
-最近的大直播，郭先生谈到了喜币，某大佬为试探喜联储以24块的价格出售了40万个币而后离场，亲身验证了喜联储包括提现等均合规操作，现在这位大佬投资者非常后悔。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/download-14.jpg)
-由于KYC进度较爲缓慢，大量天量资金尚未入场。欧洲投资者相信郭先生提供的信息，及早撤出在中共国的投资，避免了被中共欺骗和资产贬值，同时又购买了喜币。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-G系列不属于过去，是属于未来。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-27.png)
+文章仅代表作者本人观点，与Gnews无关
 
-H-Pay将在月底上綫，价值与利好超乎想象。然而喜币的价格远远没有在现阶段反映喜币真正的价值。H-Pay上线也只是众多实力和利好的之一。
+视频参看：[2022.01.27早GTV新闻访谈](https://gtv.org/video/id=61f29dd628a108147c63bec4)
 
-喜币是可流通的，在喜生态系列流通，无论是支付Gclub年费，购买Gfashion，再到喜联储及外延。之后会是全球流通的数字货币，是未来的一种货币。郭先生藏富于战友，0.1美元的福利币，真心投入灭共事业的战友们，一定要紧紧守好，让手中的灭共币、信仰币，伴随邪恶中共的彻底倒下，长成新世界秩序里的新货币，正道回归！
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-文案编辑：雪菜
-校对整理：MG青云
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-21.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

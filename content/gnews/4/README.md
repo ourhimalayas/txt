@@ -2,28 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月27日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1919301/)
+## 加拿大卫生部改口称疫苗接种必须自愿选择
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1919475/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-27.png)
-文章仅代表作者本人观点，与Gnews无关
+据加拿大媒体[真北方]1月24日报道，[加拿大公共卫生署]高官霍华德日前一改初衷地表示，了解“新冠病毒”疫苗的好处要比强制接种的方法更有效。并改称疫苗接种必须是人们的“自愿选择”。
 
-视频参看：[2022.01.27早GTV新闻访谈](https://gtv.org/video/id=61f29dd628a108147c63bec4)
+报道称，尽管霍华德和其他政府卫生官员建议当局坚持疫苗接种的非强制政策，但一些例如像魁北克这样的强权省份，却在接种疫苗方面变得越来越武断和霸道。根据魁北克省长勒戈的决定，未接种疫苗的魁北克居民将因此被其政府强迫征收高额的惩罚性健康税。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+虽然魁北克的疫苗强制政策受到了加拿大那些尚未失去理智人士的抨击，但魁省当局仍然以独断专行的暴政方式，在各大型商场包括沃尔玛， Costco和Canadian Tire等零售商业场所内实施令人唾弃的疫苗护照规定。并愚蠢相信，此举可以从根本上阻止早已失控的疫情和正在发生的疫苗灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-21.jpg)
+* * *
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 

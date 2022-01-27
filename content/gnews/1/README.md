@@ -2,23 +2,13 @@
 ---
 
 
-## 布鲁塞尔和列日：不再为未接种疫苗的患者进行器官移植
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1919390/)
+## NHS的工作人员在唐宁街外抗议疫苗强制接种政策
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1919518/)
 
-作者：dop
+01/22/2022 NHS(英国国家医疗服务系统)的工作人员在唐宁街外将他们的制服脱下来扔向警察，以抗议疫苗强制接种政策
 
-翻译：英喜德语组 Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-2-1.tiff)插图：Benoit Doppagne/ Belga
-列日和布鲁塞尔的大学医院目前不再对未接种疫苗的病人进行器官移植。
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-器官移植后，必须服用免疫抑制药物，这将会增加得新冠重症的风险。
-
-如果发生感染，免疫抑制剂的剂量必须降低，尤其是对未接种疫苗的患者。 这反而增加了对新器官的排斥。
-
-发布： Luckycky
-
-原文链接：[https://brf.be/national/1569408/](https://brf.be/national/1569408/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

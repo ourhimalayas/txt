@@ -2,34 +2,19 @@
 ---
 
 
-## 爆料革命战友谈美国撤回中共大使馆的意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918920/)
+## 文贵大直播 1/27 不断不交 中共已被套上绞索
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1919074/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月25日郭文贵先生向全世界公布美国政府决定撤离美利坚合众国驻中共国北京大使馆后，爆料革命的战友们也在直播连线中谈论了这一举动的重大意义。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-5.jpg)图片来源 GTV
+1月27日文贵大直播，因为恰好刚过爆料革命诞生5周年，郭文贵先生作为发起人在纽约现场坦诚心中无限感慨。尽管人心人性宁愿认假不愿信真，但中共在此次冬奥会前夕遭遇美国使馆授权撤离开始，已被牢牢套上灭亡的绞索，而且是从未有人提到过的方式：不断不交。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-16.jpeg)
+郭先生通过对美国历经中共文革、八九六四、南海撞机事件都从未有过授权撤离的深刻分析；通过对如同多米诺骨牌倒塌一般约50个国家纷纷开始和中共讲数；通过对100多家国际金融和NGO组织即将实施对中共的制裁；通过对《甜蜜蜜》一首歌曲竟然一夜之间被中共全网封杀的事一一解读，并且首次爆出美国将会不断不交，把灭共的绞索渐次收紧，直至中共消失。
 
-战友们表示，这或将意味着，继二战之后，美国再次选择站在正义的一边，并且将和中国人民站在一起。同时，撤离大使馆也是对中共政权的巨大否定，特别是赶在冬奥会前的时间点，这预示着美国此举将成为引发全球灭共浪潮的第一步。
+邪恶的共产主义使得人们不愿信真、信善，但此次甜蜜蜜运动直至灭共目标达成，将再次用事实来唤醒人们回归信仰。
 
-郭先生对此总结道，美国驻北京大使馆一直被中共内部认定为定海神针。如今，这个定海神针的撤离意味着美国已经在全世界范围内认定中共政府不合法。自此，对抗中共的一方将必然成为正义的一方，这一结论影响深远且巨大。
+【来源链接】https://gtv.org/broadcast/watch/61f297e628a108147c63ad38
 
-参考链接：[2022年1月25日 紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](https://gtv.org/video/id=61f00abe28a108147c625eb0)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
