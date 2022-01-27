@@ -2,30 +2,36 @@
 ---
 
 
-## 美日峰会共识高 安全与经济均抗衡中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1915213/)
+## 有声|中共称冬奥会外方人员中发现72例确诊病例
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915245/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/JudicialWatch_Social_ChineseSwab_1200x627_v1-768x4013-1.jpg)图片来源：美国之音
-据美国之音1月26日报道，日本首相岸田文雄21日通过视频与美国拜登总统进行首次正式的美日首脑会谈。双方在区域安全与经济上达成共识，明确承诺反制中共。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月23日，北京冬奥会组委会在线上媒体简报会上表示，从1月4日至1月22日进入中共国的2586名奥运会相关人员中，确诊了72例阳性病例。有39例是在机场的检测中发现的，33例是在闭合环内发现的。在此期间抵达的171名运动员和团队官员中没有病例。
 
-双方反对中共国在中国海区域试图片面改变现状并进行经济威胁，并在印太地区日益增强军事威胁。日方认为由中共国主导印太地区并不符合日本的国家利益。日本作为一个国家，受益于美日同盟和自由国际秩序。岸田和拜登就新设的美日“经济版2＋2”会谈计划达成共识，推进印太地区基础设施建设，以应对中共国的一带一路。但日中经济依存度非常高，目前不可能脱钩。
+据悉，所有奥运会参赛者都需要在出发前往中共国的96小时内，获得两份阴性PCR检测结果，而且大多数人都是乘坐特别安排的包机抵达的。进入闭合环内，所有人员每天都会接受核酸检测，从4号到22号，共进行了33.6万次PCR检测。
 
-岸田与拜登在会谈中确认台湾海峡的和平稳定，强化与台湾的沟通。虽然习近平在短期内没有攻打台湾的急迫性，但目前美中的军力差异正朝着对中共国有利的方向发展。双方也就维吾尔族与香港人权问题交换了意见。
+原文链接：[中共称冬奥会外方人员中发现72例确诊病例](https://gnews.org/zh-hans/1906751/)
 
-美日峰会的话题绕不开中共和中共带来的一系列威胁。中共已经成了世界各国的头号威胁，尤其是中共国的近邻日本、台湾等国。中共对美国也是同样的威胁，没有一个国家、一个人是安全的，只要中共存在一天。
+音频处理/发稿：Daxia
 
-新闻参考链接：[https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html](https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-* * *
+**更多资讯，更多关注**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,78 +2,36 @@
 ---
 
 
-## 阿尔伯塔省政府删除的数据显示，56% 的“未接种疫苗”的新冠病毒死亡实际上是新接种疫苗的死亡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915190/)
+## 有声|美医生华盛顿反疫苗集会火力全开
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915199/)
 
-翻译：香草山商业部 – 文锤
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+盖特消息，在1月23日华盛顿举行的，由数万人参加的反对强制疫苗抗议中，皮埃尔·科里医生强烈抨击药企将利润置于人命之上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+科里医生说，人们正在打一场由药企发动，针对人类健康和持续了数十年的战争，各大药企一直将利润至于人命之上。而人类损失惨重，因此这场战争已经发展成为反人类罪行。
 
+科里表示，在中共病毒肆虐期间，许多国家卫生机构发布的每一项政策，都被各大药企所控制。安全、有效、广泛的，而可以治疗中共病毒的药物的信息，已经长达两年的时间都被压制住了。而这是各大药企针对已有药物再利用的战争。
 
+原文链接：[美医生华盛顿反疫苗集会火力全开](https://gnews.org/zh-hans/1906749/)
 
+音频处理/发稿：Daxia
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Death-Holocaust-Vaccine-Syringe.jpg)[图片来源](https://www.naturalnews.com/2022-01-25-alberta-deletes-data-56percent-covid-deaths-vaccinated.html)
-
-加拿大阿尔伯塔省的公共卫生当局本周删除的数据，显示他们一直在操纵和谎报中共冠状病毒（Covid-19）统计数据。
-
-官员们显然没有意识到他们甚至已经这样做了，直到公众注意到，根据数据，大多数死于中共冠状病毒的人都为此“接种了疫苗”。
-
-事实证明，一直以来，政府一直无视注射后 14 天内发生的所有不良事件，包括感染、住院和死亡——无论剂量多少。
-
-阿尔伯塔省政府基本承认，从疫情开始就一直在使用这种欺诈标准。结果，在注射后头两周内发生的所有不良反应和死亡都被归为“未接种疫苗”的死亡。
-
-“换句话说，任何被感染的人住院甚至死亡，在第一次接种疫苗、第二次甚至第三次接种疫苗后的两周内出现不良反应，都将被记录为未接种疫苗的病例，” Gateway Pundit (TGP) 报道。
-
-“现在，多亏了现在发现已删除的数据，我们可以准确地知道有多少病例是被欺诈性操纵的——事实证明，超过一半的接种疫苗死亡被添加到未接种疫苗的人群中。”
-
-在美国 Covid数字也是欺诈性的
-
-根据数据，我们现在知道，在所有“记录的”与新冠病毒相关的死亡中，超过 56% 发生在刚刚接种疫苗的人身上。几乎 90% 发生在 45 天内，这一点尤其值得注意，因为据说这是接种疫苗后最“有效”的时间范围。
-
-就住院人数而言，数字是相似的。阿尔伯塔省数据中记录的所有严重“新冠病毒”病例中，近一半发生在过去两周内注射过的人身上。高达 80% 的住院治疗发生在注射后的45 天内。
-
-感染，意味着“阳性”检测结果不一定伴有实际症状，在接种后的前两周内，感染率为 40%。
-
-“我想住院人数超过病例数和死亡人数超过住院人数可能会受到优先考虑病人的影响，但我认为这并不重要，”梅塔特隆在他的 Substack 中指出。
-
-“无论如何，需要保护的是病人，而不是健康人！如果它没有改善病人的结果，那到底有什么意义呢？？”
-
-请记住，这些相同的腐败标准在美国和其他地方是常态。几乎每个经历过covid骗局的国家都在注射后接受了两周的等待期，以考虑接种疫苗的人是否接种了疫苗。
-
-“长期以来，人们一直认为美国和世界其他国家一直在捏造数据，就像加拿大政府一直在做的那样，”TGP 报道。“如果是这样的话，那就是在纽伦堡 2.0 审判中，这将是又一次邪恶的侵犯人权行为被添加到案卷中。”
-
-在评论部分，一位读者指出，PCR 测试不是测试任何疾病存在的合适工具。测试的发明者在他死前承认了这一点。
-
-这位人士写道：“PCR 测试不适合这种类型的测试，他们将几乎任何类型的死亡都视为 COVID 死亡，甚至没有证据证明这种病毒存在。” “这就是他们必须这样做的原因。”
-
-作者：[Ethan Huff](https://www.naturalnews.com/author/ethanh)
-
-**原文阅读：[Alberta government deletes data showing that 56% of “unvaccinated” covid deaths are actually NEWLY VACCINATED deaths – NaturalNews.com](https://www.naturalnews.com/2022-01-25-alberta-deletes-data-56percent-covid-deaths-vaccinated.html)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-校对/发稿：小鹿
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

@@ -2,38 +2,10 @@
 ---
 
 
-## 有声|美医生华盛顿反疫苗集会火力全开
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915199/)
+## 1/26/2022 文贵盖特：今天是爆料革命5周年纪念日，为什么文贵当年在家人被抓的情况下仍坚持爆料？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1915204/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-盖特消息，在1月23日华盛顿举行的，由数万人参加的反对强制疫苗抗议中，皮埃尔·科里医生强烈抨击药企将利润置于人命之上。
-
-科里医生说，人们正在打一场由药企发动，针对人类健康和持续了数十年的战争，各大药企一直将利润至于人命之上。而人类损失惨重，因此这场战争已经发展成为反人类罪行。
-
-科里表示，在中共病毒肆虐期间，许多国家卫生机构发布的每一项政策，都被各大药企所控制。安全、有效、广泛的，而可以治疗中共病毒的药物的信息，已经长达两年的时间都被压制住了。而这是各大药企针对已有药物再利用的战争。
-
-原文链接：[美医生华盛顿反疫苗集会火力全开](https://gnews.org/zh-hans/1906749/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+秘密翻译组-北美组
 
  
 
