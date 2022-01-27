@@ -2,44 +2,36 @@
 ---
 
 
-## 埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1915347/)
+## 有声|中共首席专家承认：不管接没接种疫苗，都可感染奥密克戎
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915548/)
 
-据《布雷巴特新闻》作者：[WARNER TODD HUSTON](https://www.breitbart.com/author/warner-todd-huston/)，2022年1月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2200-e1643236037559.png)图片源自Getty Images
-**埃内斯-坎特抨击了金州勇士队的共同所有者，认为他对中共国正在进行的针对维吾尔人的种族灭绝行为漠不关心，他说：“没有人关心维吾尔人的遭遇。”**
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月21日，中共疾病预防控制中心流行病学首席专家吴尊友，在接受媒体采访时表示，奥密克戎毒株的传染性强，不管接没接种疫苗，都会感染奥密克戎。
 
-周六，勇士队联合老板查马特-帕里哈皮提亚在接受All-In播客采访时，对数百万中共国维吾尔人被奴役的事实漠不关心，即使依然没有人关心他们的遭遇。对他来说，这不是一个值得费心的问题。
+他以天津疫情为例称，2022年1月12日天津公布的107例中共病毒病例，仅1例未接种过疫苗，其余均接种过，甚至有32例完成了加强针接种，接种疫苗对于预防感染效果非常有限。吴尊友同时承认，中共病毒疫情中，根据所谓历史经验与科学的“群体免疫”已失效，目前没有“一招制敌”的好方法。对于中共国是疫苗接种率全球最高国家之一，他称这并不意味着可以打开国门。
 
-埃内斯-坎特则抨击出生于斯里兰卡的帕里哈皮提亚也是种族问题的产生的“共犯”。
+原文链接：[中共首席专家承认：不管接没接种疫苗，都可感染奥密克戎](https://gnews.org/zh-hans/1906750/)
 
-**“当NBA说我们代表正义的时候，别忘了还有那些为了金钱和生意而出卖自己灵魂的人，比如勇士队的老板查马斯，”他说。“没有人关心维吾尔人的遭遇，”他在1月17日的推特上写道。**
+音频处理/发稿：Daxia
 
-“当种族灭绝发生时，正是这样的人让它发生。”这位NBA球员补充道：“耻辱！”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2201.png)图片源自：推特
-当帕里哈皮提亚说没有人关心中共国的种族灭绝时，甚至连播客主持人都感到震惊。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-“没有人关心发生在维吾尔人身上的事情，好吗？你提出来是因为你真的关心，我认为你关心是件好事。我们其他人并不关心。我只是告诉你一个非常艰难、丑陋的事实。在我关心的所有事情中，是的，它排的很靠后。在我关心的所有事情中，它低于我的关注范畴。”帕里哈皮提亚说法，让播客主持人大卫-萨克斯感到震惊。
+**更多资讯，更多关注**
 
-帕里哈皮提亚补充说：“这不是关心。……我关心的是，如果中共国入侵台湾，我们的经济会在一瞬间发生变化。我关心气候变化。我关心美国衰败的医疗保健基础设施。但如果你问我，我是否关心另一个国家的一部分人？除非我们能照顾好自己，否则我不会把他们置于我们之上。”
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-帕里哈皮蒂亚不屑地补充道：“我想很多人都相信这一点，如果这是个难以启齿的事实，我很抱歉。但每次我说我‘关心维吾尔人’时，如果我不是真的关心，我只是在撒谎，所以我宁愿不对你们撒谎，而选择告诉你们真相。这对我来说不是一个优先事项。”
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-原文连接：[https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/](https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-翻译：洛杉矶盘古农场 – TrueSky
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-校对：洛杉矶盘古农场 – Mike Li
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

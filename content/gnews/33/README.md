@@ -2,30 +2,34 @@
 ---
 
 
-## 美日峰会共识高 安全与经济均抗衡中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1915213/)
+## 美国‘授权撤离’ 中方表达不满
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1915408/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/JudicialWatch_Social_ChineseSwab_1200x627_v1-768x4013-1.jpg)图片来源：美国之音
-据美国之音1月26日报道，日本首相岸田文雄21日通过视频与美国拜登总统进行首次正式的美日首脑会谈。双方在区域安全与经济上达成共识，明确承诺反制中共。
+整理/编辑：守望黎明
 
-双方反对中共国在中国海区域试图片面改变现状并进行经济威胁，并在印太地区日益增强军事威胁。日方认为由中共国主导印太地区并不符合日本的国家利益。日本作为一个国家，受益于美日同盟和自由国际秩序。岸田和拜登就新设的美日“经济版2＋2”会谈计划达成共识，推进印太地区基础设施建设，以应对中共国的一带一路。但日中经济依存度非常高，目前不可能脱钩。
-
-岸田与拜登在会谈中确认台湾海峡的和平稳定，强化与台湾的沟通。虽然习近平在短期内没有攻打台湾的急迫性，但目前美中的军力差异正朝着对中共国有利的方向发展。双方也就维吾尔族与香港人权问题交换了意见。
-
-美日峰会的话题绕不开中共和中共带来的一系列威胁。中共已经成了世界各国的头号威胁，尤其是中共国的近邻日本、台湾等国。中共对美国也是同样的威胁，没有一个国家、一个人是安全的，只要中共存在一天。
-
-新闻参考链接：[https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html](https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/RMDJ2B38LVL5SW471RQN.png)图片来源：CNBC
 
 
-编辑：【英国伦敦喜庄园编辑部】
+路透社北京1月26日 – 针对美国“授权撤离”外交领事人员一事，中国外交部发言人赵立坚1月26日回应，从最安全的地方撤出只会增加感染风险。中方已就此向美方表示严重关切和不满。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他在外交部例行新闻发布会上称，中国疫情防控严谨科学，防疫策略行之有效，也很好保护了在华外国人士，充分照顾了外交领事人员的舒适度和正当权益。
+
+赵立坚称：“希望美方遵守和配合中方防疫规定，认真对待中方立场和关切，慎重考虑所谓外交领事人员‘授权撤离’问题。美方的决策逻辑令人费解，难以自圆其说。”
+
+消息人士对路透表示，美国国务院在考虑是否批准在中国的美国外交官和他们的家人离开，因为美国政府无法阻止中国当局对他们实施造成严重干扰的疫情控制措施。
+
+两名了解情况的消息人士表示，随着中国在距离北京冬奥会开幕不到两周的时间里加紧制定新冠疫情防控方案，美国大使馆1月24日向华盛顿发出了正式撤离的请求。
+
+原文链接：[美国“授权撤离”外交人员 中国外交部：从最安全的地方撤出只会增加感染风险](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2K00O8?irpc=932)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
