@@ -2,114 +2,72 @@
 ---
 
 
-## 无论习共党，还是江共党，老百姓的都是奴隶
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918153/)
+## 【Michael.Tonny专栏】CCP究竟是要让老粉红捐款还是捐躯？
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1918222/)
 
-[https://gtv.org/video/id=61f1624087664c47acda62ae](https://gtv.org/video/id=61f1624087664c47acda62ae)
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-严格讲，南普陀计划它不可能就一个目标
-Strictly speaking, the Nanputuo plan cannot have only one single goal
+相信共惨党，跑进火葬场！这是亘古不变的道理！
 
-它当时把习作为一个就让你干5年就滚蛋吧，是吧，这是绝对的
-it would allow Xi as the one for 5 years and then let hime get out, right? it’s absolute
+在1月25日郭文贵先生宣布美国政府授权撤离驻华大使馆后，中共国的小粉红、老粉红们似乎战狼精神不在，除了口交部出来犬吠两声外，连央屎都不敢正面报道这一影响人类历史进程的重大事件，实在是令人不解。
 
-然后呢培养第二个傻子过来，但是呢， 他第一段没成功
-Then it would train a second fool to come over, but it didn’t succeed in the first part
+知道为什么吗？小粉红、老粉红正忙着揣摩习太阳的神经，CCP这轮投毒究竟是想让小粉红、老粉红捐款呢，还是捐躯?
 
-习不走了，本来是在这儿当临时演员，不走了
-Xi is not leaving, he was originally here as an background actor, but now he is not leaving
+就在1月21日，[中共国疾病预防控制中心流行病学首席专家吴尊友在接受新京智库高端访谈](https://m.bjnews.com.cn/detail/164275775614553.html)时说，“现在我们认识到奥密克戎毒株的传染性强，强在‘通吃’。什么叫通吃？就是不管接没接种疫苗，奥密克戎毒株都可以感染”。
 
-现在要当导演了，但是人家南普陀有多手计划，
-Now he wants to be a director, but Nanputuo has many plans
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-27_18-33-08.png)
 
-如果习不听话咋办
-What if Xi is not obedient?
+刚刚打完加强针的小粉红、老粉红哭晕在厕所里！就在不久前，主子告诉它们，“人人需要接种新冠疫苗，人人需要打加强针，人人需要定期打加强针”。
 
-那就让你折腾，利用你的手，利用你的疯狂，把党内的所有我的(政敌)
-Then let him mess around, use Xi’s hands, use Xi’s madness, and kill all my political enemies in the party
+去年11月28日，吴尊友在“[《财经》年会2022：预测与战略](https://rl.cj.sina.com.cn/imeeting/hyt/detail/15018)”告诉小粉红、老粉红们，人人需要接种新冠疫苗，人人需要打加强针，人人需要定期打加强针。
 
-第一那前五年，习百分之百被王岐山、孟建柱(控制)
-In the first five years, Xi was 100% controlled by Wang Qishan and Meng Jianzhu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-27_18-12-46.png)
 
-你想想孙力军都能干这样，就把一个完全的江家的对手全清光
-you think about that Sun Lijun can do this, he completely cleared the opponents of the Jiang family
+去年12月8日，人民政协报、央屎女优告诉老粉红：“[欲防奥密克戎，惟有疫苗接种](https://jiankang.cctv.com/2021/12/08/ARTI1I5x1jzW5A0GQr7Px1Qw211208.shtml)”。CCP派出郑忠伟、王华庆等御用砖家，劝说老粉红一定要打疫苗。直到现在，老粉红们恐怕还没意识到，人民政协报、央屎女优这轮骚操作，可谓直取老粉红性命！
 
-而且习深信不疑该清光，是吧
-And Xi Jinping truly believes that it should be cleared up, right?
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-27_18-26-19.png)
 
-第二个五年让你修宪，你可以修宪
-In the second five years, Xi asked for amendment to the constitution, you can amend the constitution
+老粉红对CCP来说，除了领养老金，早就已经没有什么剩余价值了。
 
-你不听了，是吧，然后让你跟世界走向疯狂
-if you don’t obey, right? and then let you go crazy with the world
+2022年1月13日，央屎新闻借世卫组织之口，告诉小粉红、老粉红们“[奥密克戎对未接种疫苗者‘尤其危险](https://news.cctv.com/2022/01/13/ARTIpVsds2Fg3a8zcm90cs7C220113.shtml)’”。
 
-然后让你发出潘多拉盒子的病毒，让他放出病毒就决定了习的死亡
-Then let Xi send out the virus of Pandora’s box, and letting him release the virus will determine Xi’s death
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-27_19-07-53.png)
 
-没有任何的，这个时候的共产党已经不是共产党了，是习党，是习共党
-There is nothing, the Communist Party at this time is no longer the Communist Party, it is the Xi Party, it is the Xi Communist Party
+CCP在去年11月30日还专门安排了一场劝说60岁以上的老粉红早点进火葬场，不要成为国家负担的新闻发布会。2021年11月30日，在[中共国国务院联防联控机制新闻发布会](http://www.gov.cn/xinwen/gwylflkjz174/index.htm)上，中共国国家卫生健康委疾控局负责人和中共国医学科学院、中共国疾控中心、疫苗研发专班专家重点引导65岁以上的老粉红早日进入火葬场。
 
-但是回答你的问题，现在习所有的作出的决定和灭亡，就是习共党的灭亡
-But to answer your question, all the decisions made by Xi now, and it’s the demise of the Xi-Communist Party
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-27_18-48-57.png)
 
-然后这家族是什么？江家从来没觉得共产党跟我毛关系
-And what is this family? The Jiang family never felt that the Communist Party had anything to do with Jiang’s family
+CCP这轮操作可谓阵容庞大，老粉红奔走相告，高高兴兴去加强针！
 
-共产党就是我用的那个擀面杖子，习也一样，他们都比咱恨共产党
-The Communist Party is the rolling pin Jiang use, and so does Xi, they all hate the Communist Party more than we do
+随着1月12日[中共国天津第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)宣布，在当天天津新增的107例感染者中，103例完成全程接种（包括完成加强接种32例），3例仅接种1剂次灭活疫苗，1例未接种，刚接种完加强针的老粉红、小粉红，被围在猪圈里，正在吃着399元/袋的蔬菜庆贺，幸亏打了加强针！
 
-但是他必须用共产党统治这些已经被洗了脑的中国14亿僵尸啊，这些奴隶呀
-But he has to use the Communist Party to rule these brainwashed 1.4 billion Chinese zombies and slaves
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-27_18-55-15.png)
 
-最后就是江家找个名声，曾出手之日
-in the end, the Jiang family find the reason, and Zeng make his move
+相信共惨党，走进火葬场！坚定的老粉红、小粉红们，主子又为你们发福利了，早日加强针！
 
-王岐山和孟建柱和江家出手之日
-When Wang Qishan, Meng Jianzhu and the Jiang family made their move one day
+参考资料：
 
-你会发现就像川普最后一个被内阁给策反一样
-you will find that it was just like Trump was the last to be overthrew by the cabinet
+[央视：不管接没接种疫苗，奥密克戎都可以感染](http://www.xilu.com/20220127/1000010001197672.html)
 
-你会发现突然间所有习最相信的人，都是他的敌人
-You will find that suddenly all the people who Xi trusts most are all his enemies
+[央视：世卫组织，奥密克戎对未接种疫苗者“尤其危险”](https://news.cctv.com/2022/01/13/ARTIpVsds2Fg3a8zcm90cs7C220113.shtml)
 
-杀手锏，啪，就完了，所以说，没什么党，这都是家族的
-It is killing hand, it’s over quickly, so, there is no party, it’s all family’s
+[央视：欲防奥密克戎，惟有疫苗接种](https://jiankang.cctv.com/2021/12/08/ARTI1I5x1jzW5A0GQr7Px1Qw211208.shtml)
 
-那个时候是江共党，现在是习共党
-At that time it was the Jiang Communist Party, now it is the Xi Communist Party
+[《财经》年会2022：预测与战略](https://rl.cj.sina.com.cn/imeeting/hyt/detail/15018)
 
-现在的决定，既不是党的决定, 就是习共党的决定
-and the current decision is neither the party’s decision or It was the decision of the Communist Party of Xi
+[中共国天津第166场新型冠状病毒肺炎疫情防控工作系列新闻发布会](http://www.scio.gov.cn/xwfbh/gssxwfbh/xwfbh/tianjin/Document/1718965/1718965.htm)
 
-那时候是江共党的决定，就这么简单
-at that time, it was the decision of the Communist Party of Jiang, it’s simple like this
+[国务院联防联控机制新闻发布会](http://www.gov.cn/xinwen/gwylflkjz174/index.htm)
 
-咱们老百姓就是奴隶
-We Laobaixing are slaves
+[吴尊友：新冠病毒不可能变成流感一样 | 新京智库高端访谈](https://m.bjnews.com.cn/detail/164275775614553.html)
 
-* * *
+[吴尊友：奥密克戎强在“通吃”，接没接种疫苗都可以感染](https://finance.sina.com.cn/china/gncj/2022-01-24/doc-ikyakumy2267240.shtml?cre=tianyi&amp;mod=pcpager_inter&amp;loc=19&amp;r=0&amp;rfunc=44&amp;tj=cxvertical_pc_pager_spt&amp;tr=174)
 
-Date: 01/24/2022
-原视频标题: 无论习共党，还是江共党，老百姓的都是奴隶
-Regardless of the Communist Party of Xi or the Communist Party of Jiang, the Laobaixing people are slaves
-原视频日期：2022/01/21
-原视频链接 [**https://gettr.com/post/pq2wyxc7cf**](https://gettr.com/post/pq2wyxc7cf)
-任务编号：KC432(3575)
-视频时间段 : 0:00-2:19
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 –银龙
-发布：洛杉矶盘古农场 –恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[吴尊友谈南非变异毒株：还需进一步观察，现在不必过分担心](https://finance.sina.com.cn/hy/hyjz/2021-11-28/doc-ikyakumx0727167.shtml)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

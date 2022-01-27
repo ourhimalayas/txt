@@ -2,33 +2,43 @@
 ---
 
 
-## 未来澳洲和新西兰的企业将以数字技术优先
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916906/)
+## 爆料革命最早揭露中俄&#8221;双头鹰运动&#8221;
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1916946/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：纽约磐石农场—在远方
 
-整理/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19-11.png)
-根据《CRN》1月27日报道，研究公司IDC对2022年的预测，未来五年，澳大利亚和新西兰的公司将过渡到“数字优先”的战略，这主要是由大流行病推动的。
+1月24日大直播中，郭文贵先生表示，新中国联邦是全世界最早爆出，中共与俄罗斯的”双头鹰”运动。 在双头鹰运动的计划中，俄罗斯将假装攻打乌克兰，来配合习近平攻打台湾。 在历史上，中俄两国就有过这种配合，举2008年8月8日中共召开夏季奥运会时为例，当天普京便下令武装部队进攻格鲁吉亚。
 
-IDC的报告调查了87%的澳大利亚和新西兰公司，并对IT行业将如何应对新冠病毒（covid-19）以及“不断变化的社会规范”做出了10项预测，如“更强的隐私保护和披露授权”、“可持续发展的需要” 和其他“系统性的行业变化”。
+对于双头鹰运动，郭文贵先生表示，目前普京并不是跟西方和欧洲谈条件，而是与习近平相互配合。 虽然目前普京并没有表现出真正想攻打乌克兰意图，但是，如果有机会，普京极有可能会假戏真做。 对于俄乌局势，普京可能会在边境开展佯攻之后，直接进攻基辅，目的是为了彻底击垮乌克兰。 而在俄罗斯对乌克兰，中共针对台湾的武力侵略行为，美国方面有相关人士认为会进行代理人战争。 但郭文贵先生表示，他认为在六周内将在乌克兰和台湾发生的事情，是不可控和不可设计的。 而恰好就是通过”甜蜜蜜”运动，新中国联邦将达到想要的效果。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-11.jpg)
+新中国联邦通过「甜蜜蜜」运动会，将促成灭共进入最后阶段。 而中共对台是否发动军事侵略，郭先生认为无论如何，习近平都会下令攻打台湾，只有很小的概率不会攻打台湾。 而美军是否对战争做出回应取决于中共进攻台湾的方式、战争的惨烈程度，以及共军进入台湾以后的打算，而最终美国将没有其他选择。
 
-报告称，到2024年，以数字优先的企业将把75%的技术和服务支出转移到以服务和结果为中心的模式，以改善客户体验和运营模式。
+参考信息：
+[1/24/2022 文贵直播：爆料革命最早说出中俄“双头鹰运动”，现在习要打台湾了，普京将直取基辅；甜蜜蜜运动将让台湾和乌克兰在六周内的局势不可预测，美国会被迫介入，邪恶势力将被消灭](https://www.gettr.com/post/pqfmlg539f)
 
-到2022年，40%的澳大利亚和新西兰上市公司的云计算选择过程将被重新设置，以关注业务成果而不是IT要求。这标志着向 “重视从设备到边缘以及从数据到生态系统的供应商组合的访问 “的转变。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-治理准备工作也将成为成功的关键。到2023年，75%的澳新企业将使用人工智能辅助、与云相关的治理服务来管理、优化和保护分散的资源/数据，但由于IT技能不匹配，70%的企业将无法实现全部价值。
+总编：Irene木木
+编辑：Ivy001
+校对/发稿：为真不破20
 
-新闻链接：[Digital first approach will define 2022: IDC](https://www.crn.com.au/news/digital-first-approach-will-define-2022-idc-575186)
+**更多资讯，更多关注**
 
-*发布：tianzhihuan*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

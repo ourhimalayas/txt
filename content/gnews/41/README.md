@@ -2,48 +2,26 @@
 ---
 
 
-## 新中国联邦致美国政府感谢信 支持否认中共合法性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1916931/)
+## 美光科技解散上海研发中心DRAM设计部门
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1917570/)
 
-作者：纽约香草山农场 – 文真
+**撰稿：日本东京方舟农场  海星**
 
+1月25日，半导体巨头美光科技员工证实，该公司正在解散上海研发中心的DRAM设计部门。
 
+据《集微网》报导，多位美光科技公司员工向该报记者证实，美光正在解散上海研发中心的DRAM设计部门，涉及人数超过100人。该公司计划于今年年内完成解散工作，并将选择部分核心员工及其家属技术移民至美国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-28.png)（图片来源：网络）
+报导指出，一位前美光员工透露，美光的DRAM设计团队此前有一大波人员流失至中共国内的本土IC设计公司和存储大厂。因此，有行业内高管表示，美光此举很有可能是为了防止其先进的DRAM（动态随机存取存储器）技术外泄。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+此前，美光科技因台湾联电与中共福建晋华合谋窃取其芯片关键技术而向美国法院起诉了这两家公司。随后，美国司法部发现该案不仅仅只是窃取知识产权案，还牵涉到美国国家安全，因而也对这两家公司提起了诉讼。
 
+参考链接：
+1.[https://laoyaoba.com/n/805514](https://laoyaoba.com/n/805514)
+2.[https://www.eet-china.com/mp/a107410.html](https://www.eet-china.com/mp/a107410.html)
 
-
-1月25日，新中国聯邦、爆料革命发起人郭文贵先生代表新中国联邦，正式签署致美国政府感谢信，对拜登总统和布林肯国务卿做出关闭美国驻北京大使馆的决定表示感谢。 在新中国联邦官方文件中，强调中国共产党是跨国犯罪组织。 中共犯罪分子从武汉实验室释放致命中共病毒，是对无辜的中国人民和全人类的种族灭绝行为。 新中国联邦自2020年6月4日，正式成立以来，立於中国人民的替代管理机构地位。 并且，持续倡导和推动美国关闭驻北京大使馆。
-
-最后，文件中赞赏和支持美国通过关闭大使馆的行动，来强调中共政权的危险。 新中国联邦支持进一步否认中共是中国和中国人民的合法政府。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-8.jpg)
-参考信息：
-1. [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](https://gettr.com/post/pqk1be829a)
-2.[1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏；我们希望美国采取进一步行动否认中共是代表中国和中国人民的合法政府](https://gettr.com/post/pql5vo509f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：zhong
-编辑：Ivy001
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+素材采编：海星
+编辑：青城道姑
+发布：文曦
 
  
 

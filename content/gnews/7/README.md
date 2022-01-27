@@ -2,40 +2,96 @@
 ---
 
 
-## 美国撤离驻华使领馆相关新闻连连看
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1918134/)
+## 保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918214/)
 
-作者：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220127-1.jpg)
-美国东部时间1月25日上午10时左右，郭文贵先生通过GTV和Gettr进行紧急直播，发布了一条举世震惊的重磅消息：美国政府已经正式通知中共北京伪政府，从即日起“授权撤离”美国驻北京大使馆。郭先生还透露，撤离理由是北京的冠状病毒防疫政策，并且其他美国驻华领事馆也将一同撤离，但是由于要保证美方人员安全、有尊严地撤离，所以美国政府暂时不会公布这一消息。
+[https://gtv.org/video/id=61f162e387664c47acda6309](https://gtv.org/video/id=61f162e387664c47acda6309)
 
-此消息一出可谓震惊全世界，并引出了一系列相关新闻。
+**Dr. Paul Marik
+保罗·马里克医生**
 
-反应最快的是一贯以善于“叼盘”著称的中共喉舌环球时报。在郭先生直播后不到一个小时，该报网络版环球网即以“冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆‘授权撤离’”为题，在墙内变相报道了这一信息。此后，路透社和CNN也先后发布美国将撤离驻华使领馆的相关新闻。
+My hands were tied as a clinician for the first time in my entire career
+作为临床医生，在我的整个职业生涯中，我的双手第一次被束缚
 
-而在北京时间26日下午，在中共伪外交部的例行记者会上，赵立坚回应了俄塔斯社记者关于这一新闻的提问。他的回答是:“中国目前无疑是世界上最安全的国家。从最安全的地方撤出，只会极大增加美方人员感染的风险。美方的决策逻辑令人费解，难以自圆其说。中方已就此向美方表示严重关切和不满。希望美方遵守和配合中方防疫规定，认真对待中方立场和关切，慎重考虑所谓外交领事人员‘授权撤离’问题。”
+I could not be a doctor. I could not treat patients the way I had to be to treat patients
+我不能做为一名医生，我不能像对待病人一样给病人治病
 
-而几乎在同一时间（美东时间26日凌晨2点49分），美国常务副国务卿谢尔曼在其Twitter账号发布了新任驻华大使伯恩斯在白宫（大使在白宫！）宣誓就职的消息。紧接着，在赵“战狗”记者会之后，美国驻华大使馆微信公众号发布声明称，“美国驻华使团的运行状况并未发生改变”。
+I had seven COVID patients, including a 31 year old woman
+我有七名COVID患者，其中包括一名31岁的女性
 
-这一系列新闻改写成大家都看得懂的话来说就是：
+I was not allowed to treat these people. I had to stand by idly
+我不被允许治疗这些人，我不得不袖手旁观
 
-先是郭先生大声向全世界说：美国人要撤离中共国啦！他们不方便说我来说！
+I had to stand by idly watching these people die
+我不得不袖手旁观地看着这些人死去
 
-然后共匪说：美国人撤离的理由不充分！
+I then tried to sue the system and you know what they did?
+然后我试图起诉系统，你知道他们做了什么吗？
 
-最后美国人说：我们还在，而且刚任命了新大使。
+They did something called peer sham review
+他们做了一些叫做同行虚假审查的事情
 
-从共匪和美国官方的这些外交辞令中可以看出两点：其一，赵“战狗”没有否认美国要撤离驻华使领馆；其二，美国驻华大使根本没去履职，使领馆也只是现在还没走。
+It is a disgusting and evil concept
+这是一个令人作呕和邪恶的概念
 
-毫无疑问，双方从两个侧面分别为郭先生的信息提供了背书：美国确已告知中共要撤离使领馆，但是他们现在真的不方便说！
+They then accused me of seven most outrageous crimes that I had committed
+然后他们指控我犯下七项最令人发指的罪行
+
+and then I was such a severe threat to the safety of patients
+指控我对患者的安全造成了如此严重的威胁
+
+They immediately suspended my hospital privileges
+他们立即暂停了我的住院医生的权限
+
+because I possessed a pose such an outright threat to these patients
+因为我对这些病人构成了如此直接的威胁
+
+ignoring the fact that under my care, the mortality was 50% those of my colleagues
+无视在我的照顾下，患者死亡率是我同事的50%的事实
+
+I then went on through the sham peer review
+然后对我继续进行虚假的同行审查
+
+I went to a kangaroo court where they continued this
+我去了一个模拟法庭，他们继续这样做
+
+and the end result was I lost my hospital privilege
+最终的结果是我失去了住院医生的权限
+
+and was reported to national Practitioner Data Bank
+并报告给国家从业医生数据库
+
+So here I was standing up for patients rights
+所以我在这里为病人的权利挺身而出
+
+and this hospital, this evil hospital ended my medical career
+而这家医院，这家邪恶的医院结束了我的医疗生涯
+
+So that’s what they do
+这就是他们所做的
+
+It’s an outright outrage. It’s evil to the core
+这是彻头彻尾的暴行，这是邪恶的核心
 
 * * *
 
-*编辑：文合*
+Date:01/25/2022
+原视频标题: Dr. Paul Marik talks about how he got fired after he tried to treat his COVID patients
+保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+原视频日期：2022/01/25
+原视频链接: **[https://twitter.com/senronjohnson/status/1485700814643638275?s=24](https://twitter.com/senronjohnson/status/1485700814643638275?s=24)**
+任务编号：KE367（3590）
+视频时间段 : 0:00-1:43
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*封面：霹雳鼠年*
-
-*发布：吐纳*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
