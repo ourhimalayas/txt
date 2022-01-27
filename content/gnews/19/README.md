@@ -2,28 +2,34 @@
 ---
 
 
-## 所有投资的一个核心目的是什么？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918898/)
+## 爆料革命战友谈美国撤回中共大使馆的意义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918920/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句5.jpg)
-所有投资的一个核心目的是什么？
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月25日郭文贵先生向全世界公布美国政府决定撤离美利坚合众国驻中共国北京大使馆后，爆料革命的战友们也在直播连线中谈论了这一举动的重大意义。
 
-投资者要赚钱，是合约信誉。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-16.jpeg)
 
-但记住，集体决定集体投资不能极少数人获利，这是投资的法则。
+战友们表示，这或将意味着，继二战之后，美国再次选择站在正义的一边，并且将和中国人民站在一起。同时，撤离大使馆也是对中共政权的巨大否定，特别是赶在冬奥会前的时间点，这预示着美国此举将成为引发全球灭共浪潮的第一步。
 
-2021年11月28日大直播
+郭先生对此总结道，美国驻北京大使馆一直被中共内部认定为定海神针。如今，这个定海神针的撤离意味着美国已经在全世界范围内认定中共政府不合法。自此，对抗中共的一方将必然成为正义的一方，这一结论影响深远且巨大。
 
-发布： 星谕
+参考链接：[2022年1月25日 紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](https://gtv.org/video/id=61f00abe28a108147c625eb0)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

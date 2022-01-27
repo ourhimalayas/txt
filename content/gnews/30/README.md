@@ -2,41 +2,34 @@
 ---
 
 
-## 有声|乌克兰局势紧张，美国计划增派8500名美军高度戒备
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1918767/)
+## 扎克伯格的加密货币遭美联储抵制，Meta公司计划出售加密资产
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1918774/)
 
-配音：香草山佛教部 – 李傻
+撰稿：望海潮
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Mark-Zuckerberg_17-1.jpg)图片：马克·扎克伯格 (Mark Zuckerberg)， 彭博社/ 盖蒂图片社
+一份报告称，马克·扎克伯格 (Mark Zuckerberg) 备受争议的虚拟货币计划因遭到美联储抵制陷入困境，无奈之下Meta 正在寻求完全出售其加密资产。
+
+Diem 的前身是大名鼎鼎的Libra 虚拟货币，在 Facebook 和 Instagram 的母公司Meta的支持下计划发行一种与美元挂钩的所谓稳定币。
+
+稳定币的支持者表示，他们可以通过提供虚拟货币的无缝交易速度而没有比特币或以太坊的价格波动来改变全球金融。
+
+但从 Meta 及其合作伙伴在 2019 年公布稳定币计划的那一刻起，就遭到了监管机构的抵制，表示对让这家饱受丑闻困扰的公司控制全球金融体系的一部分让人担忧。
+
+据彭博社三的报道，尽管监管机构反对，但 Diem 和 Silvergate Capital（一家计划发行稳定币的金融科技银行）一直在推进他们的计划，直到他们在 2021 年遇到美联储的阻力。报告称，经过几轮谈判后，美联储官员在 2021 年夏天告诉 Silvergate，央行不能保证允许 Diem 项目继续进行，随后彭博社报道，Silvergate 无法发行稳定币。
+
+据彭博社，Meta 正在探索出售其在 Diem 大约三分之一的股份。 除了 Meta，Diem 的其它合作伙伴还包括风险投资公司 Andressen Horowitz 和 Union Square Ventures，以及 Uber、Shopify 和新加坡国家基金淡马锡。
+
+11 月，美国财政部在美联储、证券交易委员会和商品期货交易委员会的支持下发布了一份报告，呼吁国会打击稳定币的发行人。报告称：“为了用户、金融系统和更多经济系统有足够安全的保护，必须采取措施” 。
+
+这些机构表示，由于稳定​​币可能会带来风险，包括“破坏稳定的运行、支付系统的中断和经济权力的集中”，任何发行稳定币的实体应该像银行一样接受监管。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-外媒 24 日报道，随着乌克兰局势的持续紧张，美国总统拜登与欧盟多个国家的领袖举行视像会议，对俄罗斯入侵乌克兰将招致的严重后果表示担忧。
 
-美国国防部发言人柯比宣布，升级美军戒备状态，“美国已采取措施，提升驻守本土及外国部队的戒备等级，以应对一系列的紧急状况，包括支援北约的应急部队，预计将高度戒备的部队成员数目增加到 8500人。”
+新闻链接：[Meta to scrap cryptocurrency initiative amid clash with Fed: report](https://nypost.com/2022/01/26/meta-to-scrap-crypto-initiative-amid-clash-with-fed-report/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-柯比强调，参与增援戒备的部队会涉及战斗部队、情报、侦察，以及医疗和物流支援人员。目前暂时没有具体细节，但随时准备在短时间内进行调动，以配合北约部署。
 
-与此同时，北约宣布下令更多部队进入戒备状态，并加强在东部地区的海空部署。北约秘书长斯托尔滕贝格表示，不排除增派战斗部队进入东部。
 
-俄罗斯国防部早前发布影片，显示东区的士兵及物资正积极运往白俄罗斯，以准备下月举行的联合军演。俄军同一时间宣布，已派遣 20 艘战舰及支援船只进入波罗的海，举行军事演习。在最新一期的文贵大直播中，郭先生认为乌克兰的局势背后并不简单，涉及的是中共党魁习近平与俄罗斯总统普京密谋达成的“双头鹰行动”，习近平要拿下台湾，普京将直取基辅，局势将变化莫测，大家拭目以待，但邪恶一定会被消灭。
-
-文字版原文：[乌克兰局势紧张，美国计划增派8500名美军高度戒备](https://gnews.org/zh-hans/1914270/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

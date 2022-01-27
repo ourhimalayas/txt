@@ -2,36 +2,30 @@
 ---
 
 
-## 郭先生解释什么是最好的教育
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918945/)
+## 东莞医院挂横幅“手术室里全是钱”引发热议
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1918961/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月24日的大直播中，郭文贵先生谈到了教育问题。
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-13.jpeg)
+据大纪元1月27日报道，东莞市的一家民营三甲医院（康华医院）年会上悬挂着“手术室里全是钱”的横幅，引发网友关注及谴责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-448.jpg)（图片来自《大纪元》）
+网上曝出的图片中显示，东莞康华医院手术室正在举行2022年终总结大会，聚餐会场上挂着横幅，上写着：“虎虎生威迎新年，手术室里全是钱！”此事在网络传开之后，引发网友热议和谴责。随即康华医院做出道歉，称只是一个小护士为了营造气氛自行做出的举动。
 
-郭先生表示，所谓最好的教育就是把人的兴趣激发出来，让每一个人都可以发挥自己的主观能动性。另一方面，在离开学校后 ，一个人会很快将他学到的东西搁置脑后甚至遗忘，但随后他又会在实践中找到自己，这才是最好的教育。
+有网民表示，人家医院是实事求是罢了！在医院期间，没钱是寸步难行的，已经是家喻户晓的“秘密”。
 
-郭先生还回顾了他自己经历，从老家古城，到八九六四，再到清风看守所，正是这些独特的经历让他从一个穷人家的孩子蜕变成了一个懂历史、有信仰且追求民主自由的领军人物。因此，郭先生表示，人生的经历是一个人最好的老师。
+还有网民说，别解释了，越描越黑。如果是一个根本不存在的现象，能打出这样的横幅？现在的医院只知道赚钱，把救死扶伤的地方搞成了只知利益的地方。
 
-此外，在谈到对孩子的教育时，郭先生建议战友们，要尽可能少地要求孩子，也要让孩子开心并多样的学习。同时，不要强求孩子学习他们不愿意学的部分，而是应该多鼓励孩子参与到他们喜欢的学习中。
+还有网民表示，这次的横幅换个角度来想，其实也是说出了它们的内心罢了，而且小护士肯定也没有那么大的权力，如果领导不拍板，那这条横幅也不会出现在上面了。
 
-参考链接：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
+康华医院事后虽然做出道歉，但是推卸责任给一个小护士。广大网友纷纷谴责现在的医院已经不是救死扶伤的场所，而是利益最大化的一个敛财机构。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+参考链接：
+[https://www.epochtimes.com/b5/22/1/27/n13532360.htm](https://www.epochtimes.com/b5/22/1/27/n13532360.htm)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+素材采编：子辰
+编辑：青城道姑
+发布：爱放飞
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
