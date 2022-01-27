@@ -2,10 +2,10 @@
 ---
 
 
-## 原中国银监会副主席蔡鄂生因严重违纪违法问题被立案审查
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1919699/)
+## 2000只宠物仓鼠因港共当局的零感染策略而被宰杀
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1919735/)
 
-01/24/2022 原中国银监会副主席蔡鄂生因严重违纪违法问题被立案审查
+01/21/2022 尽管没有证据证明中共病毒会从动物传染给人，港共当局坚决执行零感染策略，2000只宠物仓鼠和栗鼠即将被当局宰杀
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

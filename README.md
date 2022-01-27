@@ -15,92 +15,92 @@
 
 ---
 
-### [1/27/2022 文贵直播：美国的不断不交“授权撤离”是抽共产党的筋、国际社会查封中共高官海外资产是放中共的血](/content/gnews/1/README.md)
+### [GoFundMe冻结为支持卡车司机抗议的筹款](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
+
+### [1/27/2022 文贵直播：美国的不断不交“授权撤离”是抽共产党的筋、国际社会查封中共高官海外资产是放中共的血](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [澳网公开赛举办方因抗议者身穿彭帅T恤而报警](/content/gnews/2/README.md)
+### [澳网公开赛举办方因抗议者身穿彭帅T恤而报警](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [一个墙内次密接触者讲述自己孤立无援的遭遇](/content/gnews/3/README.md)
+### [一个墙内次密接触者讲述自己孤立无援的遭遇](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共不能代表卓越，尊重，友谊的奥林匹克核心价值观](/content/gnews/4/README.md)
+### [中共不能代表卓越，尊重，友谊的奥林匹克核心价值观](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [因俄罗斯紧张局势抵消美联储收紧政策，油价从七年高位回落](/content/gnews/5/README.md)
+### [因俄罗斯紧张局势抵消美联储收紧政策，油价从七年高位回落](/content/gnews/6/README.md)
  ` Shuizhuyu`
 
-### [2000只宠物仓鼠因港共当局的零感染策略而被宰杀](/content/gnews/6/README.md)
+### [2000只宠物仓鼠因港共当局的零感染策略而被宰杀](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [原中国银监会副主席蔡鄂生因严重违纪违法问题被立案审查](/content/gnews/7/README.md)
+### [原中国银监会副主席蔡鄂生因严重违纪违法问题被立案审查](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄罗斯禁止军事观察员访问边境地区](/content/gnews/8/README.md)
+### [俄罗斯禁止军事观察员访问边境地区](/content/gnews/9/README.md)
  ` Shuizhuyu`
 
-### [甜蜜蜜灭共战役出其不意拉开帷幕](/content/gnews/9/README.md)
+### [甜蜜蜜灭共战役出其不意拉开帷幕](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [美联储公开讨论应用数字货币的利与弊](/content/gnews/10/README.md)
+### [美联储公开讨论应用数字货币的利与弊](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [魁省当局借防疫限制令迫害未接种疫苗者](/content/gnews/11/README.md)
+### [魁省当局借防疫限制令迫害未接种疫苗者](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大卡车司机反抗疫苗暴政获民众支持](/content/gnews/12/README.md)
+### [加拿大卡车司机反抗疫苗暴政获民众支持](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [北京冬奥会前广告商低调](/content/gnews/13/README.md)
+### [北京冬奥会前广告商低调](/content/gnews/14/README.md)
  ` Shuizhuyu`
 
-### [灭共者之郭氏情报站（十七）2022/01/27 文贵大直播](/content/gnews/14/README.md)
+### [灭共者之郭氏情报站（十七）2022/01/27 文贵大直播](/content/gnews/15/README.md)
  ` MOS Designer香草山设计部`
 
-### [爆料革命五周年海报（二）](/content/gnews/15/README.md)
+### [爆料革命五周年海报（二）](/content/gnews/16/README.md)
  ` MOS Designer香草山设计部`
 
-### [蓝枫法律财富管理专栏：对战友进行喜交易所KYC时遇到的问题的解答](/content/gnews/16/README.md)
+### [蓝枫法律财富管理专栏：对战友进行喜交易所KYC时遇到的问题的解答](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [DC每日热点0127](/content/gnews/17/README.md)
+### [DC每日热点0127](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共封锁澳州总理的微信账号，参议员呼吁抵制微信](/content/gnews/18/README.md)
+### [中共封锁澳州总理的微信账号，参议员呼吁抵制微信](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [比特币腰斩，因为市场恐慌美联储会加息](/content/gnews/19/README.md)
+### [比特币腰斩，因为市场恐慌美联储会加息](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国防部医疗数据：2021年常被提及的疫苗副作用激增](/content/gnews/20/README.md)
+### [国防部医疗数据：2021年常被提及的疫苗副作用激增](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年1月27日大直播速记精萃](/content/gnews/21/README.md)
+### [2022年1月27日大直播速记精萃](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [NHS的工作人员在唐宁街外抗议疫苗强制接种政策](/content/gnews/22/README.md)
+### [NHS的工作人员在唐宁街外抗议疫苗强制接种政策](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [意大利药理学家普切蒂分析 “疫苗接种无成效，坚持疫苗接种危险”](/content/gnews/23/README.md)
+### [意大利药理学家普切蒂分析 “疫苗接种无成效，坚持疫苗接种危险”](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄罗斯对谈判敞开大门](/content/gnews/24/README.md)
+### [俄罗斯对谈判敞开大门](/content/gnews/25/README.md)
  ` Shuizhuyu`
 
-### [奥运村在没有庆祝的情况下开放](/content/gnews/25/README.md)
+### [奥运村在没有庆祝的情况下开放](/content/gnews/26/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [假释期间黑人女子被控在地铁上对亚裔男子谩骂推搡](/content/gnews/26/README.md)
+### [假释期间黑人女子被控在地铁上对亚裔男子谩骂推搡](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [著名电影人赵军突发脑淤血去世 生前曾怒斥中共防疫“丧失人性”](/content/gnews/27/README.md)
+### [著名电影人赵军突发脑淤血去世 生前曾怒斥中共防疫“丧失人性”](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [英国医生告诉病人：疫苗将被停用](/content/gnews/28/README.md)
+### [英国医生告诉病人：疫苗将被停用](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [布鲁塞尔和列日：不再为未接种疫苗的患者进行器官移植](/content/gnews/29/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [文贵直播1.27: 我要用歌声，智慧地“温柔地”灭掉共产党](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
