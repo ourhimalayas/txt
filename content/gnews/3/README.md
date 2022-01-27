@@ -2,43 +2,45 @@
 ---
 
 
-## Eglise医生回答服用青蒿素羟氯喹预防病毒期间能否怀孕
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920286/)
+## 在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1920291/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2ad6687664c47acdad1ed](https://gtv.org/video/id=61f2ad6687664c47acdad1ed)
+**作者：顺其自然**
+**编辑：朝花夕拾**
 
-**南希：**我想请问一下Eglise医生，就是像现在我们在吃这些青蒿素包括羟氯喹在预防病毒期间，适合怀孕要小孩吗？
-
-**Dr.Eglise****：**如果说您跟您先生都没有被病毒感染，而且又都没有接种疫苗，我觉得未尝不可。但是有一点，有一些地方特别像美国有一些蓝州，像澳大利亚有些地方，像欧洲某些国家他们就走极端。像加拿大我已经听说了，你如果没有接种疫苗你甚至没法进急诊室。
-
-所以你要去做妇科检查，几个星期特别是你接近生产期的，就是去问你的产科医生的频率越来越高，那你必须要符合他们条件，否则你无法去做检查。所以我觉得将来是不是有可能最近几年要发展一下在家妊娠的，就是接产妇的产业，因为以前都是在家自然分娩的，就是接产妇帮助。
-
-如果说是胎位正常的话自然分娩是最好的，自己在家要有人帮助，但是人急了其实自己也能解决，我觉得人真的急了的话。
-
-视频听写：青桐；
-
-编辑整理：海贼王M.D.LUFFY；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-1. G.News发布：小满；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/马云.png)图片来源：网络图片
 
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
+在2022，1，26，人民日报发文，中央纪委国家监委网站公布了浙江省委原常委、杭州市委原书记周江勇被双开的消息。按照中央纪委国家监委的通报，周江勇的问题涉及政治、经济、四风、干部选任等多方面。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+例如：对中央决策部署阳奉阴违，与资本勾连，支持资本无序扩张，搞迷信活动，违规配备警卫人员，公务用车，私营企业主请托违规选拔任用干部，伙同亲属非法收受巨额财物，搞家族式腐败等。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+在这里大家最感兴趣的一句话是，与资本勾连，支持资本无序扩张。懂的人都懂，这个资本指的是外星人杰克马，马云马爸爸。估计马云看了这个通报后，肯定会尿裤子。心里想，下一个就是我马云了。之前出出进进那么多次，这次可能永远呆在里边出不来了。现在周江勇的这个通报就是已经为收拾杰克马做准备了。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+杭州市委原书记周江勇，有个胞弟，叫周健勇，现任上海理工大学管理学院副教授、在2018年他的研究有基于大数据的新媒体模式研究，地铁流动支付AFC改造方案分析研究等。周健勇除了高校教师的身份，还是一个商人。天眼查信息显示，除了是永润工贸的股东，周健勇还在2014年出资1,800万元成立上海际润能源科技有限公司。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+同时还是一家名为优城联合（宁波）资讯科技发展有限公司（下称“优城联合”）的企业担任董事长，该公司成立于2016年6月30日，注册资本1,166余万元。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+2019年3月22日，优城联合发生股权变更，上海云鑫创业投资有限公司入股该公司，持股比例为14.28%。云鑫创投是蚂蚁集团100%控股的子公司，蚂蚁集团董事长井贤栋担任该公司法定代表人。股权变更完成后，蚂蚁集团副总裁，战略投资部负责人纪纲担任优城联合董事。也就是马云的阿里系投资入股了周江勇弟弟周建勇担任董事长的优城联合。
 
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
+2019年11月，优城联合进军杭州，与杭州市地铁集团有限责任公司与云鑫创投共同成立杭铁优城科技有限公司，三家公司的持股比例分别为55%、31.5%、13.5%。在这前一年，周江勇升任浙江省委常委、杭州市委书记。
+
+周江勇主政杭州五个月后即召开动员大会，宣布启动“打造全国数码经济第一城”的计划。
+
+2020年11月至2021年6月，优城联合中标了五个项目，其中四个项目的采购单位为数字东阳技术营运有限公司，项目包括软件外判、警务调度中心、防汛感知、环境监测等。数字东阳为优城联合持股30%的关联公司。
+
+2020年8月至2021年初，优城联合还拿下了在舟山、宁波、杭州等地布局人脸识别，轨道交通信息化项目。
+
+所以杭州打造数字化城市就是马云和周江勇的弟弟周建勇联合控股的公司优城联合来提供项目运营的。所以现在周江勇被双开，马云也就一只脚迈进了监狱，都不说马云在别的方面的罪行了。
+
+*发布：盘古相聚*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

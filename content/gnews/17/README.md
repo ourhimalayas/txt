@@ -2,46 +2,30 @@
 ---
 
 
-## Eglise建议女性服用青蒿素注意要补充亚铁血红素
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920134/)
+## 扬帆每日速递——2022年1月27日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1920147/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2ac0c87664c47acdad1b3](https://gtv.org/video/id=61f2ac0c87664c47acdad1b3)
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、因严重的国家安全风险，美国联邦通信委员会已投票决定吊销中国联通美国公司的运营许可。这是联邦通信委员会分别在2019年和2020年吊销中国移动和中国电信许可证之后又一行动。至此，中共国3大运营商在美国的运营执照全部被吊销。
 
-**魔女：**我本人有一个疑问，我们知道青蒿素作为一个营养素，我们日常是在用，从一开始我们是用硫酸羟氯喹去预防的，我们现在很多战友每周吃一次，加锌。然后现在还有伊维菌素，那么现在我本人因为羟氯喹停了一段时间，是因为吃的时间长了之后我发现我的眼睛视力有点下降，然后变得很容易累，这样我就停了。
+2、1月26日，英国《每日快报》（Daily Express）报道，一名大陆飞弹科学家在英国“军情六处”（MI6）和中情局的协助下，已经辗转逃离中国，而此人的出逃，对中共损失严重。
 
-停了之后正好是青蒿素出现，我就开始用青蒿素，那么现在我觉得我本人是不是要改呢？就是用我们的伊维菌素去预防，然后青蒿素去配合，再普遍的吃自己缺少的维生素，我是一个很健康的人，没有什么慢性疾病，是不是我们比较普通的没有任何特殊疾病的人，像我说的这样去预防呢？
+3、据文贵大直播：目前至少50多个国家驻北京大使馆准备撤离，中国外交部因其在国际上卑鄙龌龊的行为为国际社会所鄙视。
 
-**Dr.Eglise****：**魔女姐，我觉得你整个一套预防方案非常符合您，
+4、据文贵大直播：1月26 日下午，超过100多个国际金融机构和公司和30几个大的国际NGO组织，研究如何配合和查封本属于中国人民的中共高官海外资产，这一步绝不亚于“不断不交授权撤离”。
 
-其实对大多数人都适用，因为伊维菌素是一个主打的抗病毒抑制剂，它是个病毒抑制剂，既抗病毒粘附细胞又能够防止病毒的复制，它是一个主打的抗病毒药。你如果能够得到伊维菌素，最好把它作为你预防方案当中的一个药。
+5、河北省文旅厅1月27日发布紧急通知，河北省已出现中风险地区，即日起暂停旅行社及在线旅游企业经营我省跨省团队旅游及“机票+酒店”业务。
 
-一个星期也就服用一、两次，是吧，负担也没很大，你如果实在得不到这个药，你再想其他替代的，比方NAC，我们前面讲的还有槲皮素，现在我们又有青蒿素保健品，你不把它当作病毒预防剂吧，你至少把它当作你的免疫调节剂。通俗来讲对于女性服用青蒿素保健品也好，衍生物也好，最好服用亚铁血红素，也就是一种吸收性的铁。
+6、1月27日Now新闻报道，港大对二名接种者的案例研究得出结论:复必泰疫苗可对Omicron快速产生免疫反应。只是二名接种者的案例就能代表医学研究成功？评:为何不研究沒接种就有天生抗体？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板127-2_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
 
-因为青蒿素实在是铁消耗剂，它进了人体内它就找铁，所以你一定要给你自己相对要补充一些，要不然很容易出现缺铁性贫血。男性就相对没有那么严格了，你可以服用一段时间，比如一个星期，你休三个星期，一个月你服用一个星期，或者你隔三天服一次都行。但是女性，特别育龄期女性，你还有月经的女性最好就是常服亚铁血红素。
+编辑：文敏
 
-视频听写：青桐；
+发布：风起云间（文敏）
 
-编辑整理：海贼王M.D.LUFFY；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G.News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
+海报图片设计：飞天面、Shuang
 
  
 

@@ -2,44 +2,39 @@
 ---
 
 
-## Eglise医生解答青蒿素与伟哥壮阳功效及区别
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920236/)
+## 美国撤离驻华使馆，高情商与低情商
+` zuzu` [轉載自GNews](https://gnews.org/zh-hans/1920257/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2acf487664c47acdad1d6](https://gtv.org/video/id=61f2acf487664c47acdad1d6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/高情商低情商.jpg)圖片源自網絡
+**作者：英国伦敦喜庄园 文名**
 
-**Dr.Eglise****：**你看当年这个伟哥为什么能壮阳？其实本身就是抗高血压药，在实验室研制的时候它这个抗抗高血压的效果还可以，但是在临床实验当中，临床三期都没过。
+政治家都是高情商中的高情商，说话都是无懈可击，滴水不漏。尤其是外交辞令，冠冕堂皇，每个字都有其深意，听起来丈二和尚摸不着头脑，懂的人才明白真正是啥意思。美国绝对不会直接官宣我们要跟中共断交啦！准备干仗啦！如果真的这样说这世界早就已经毁灭了几千万遍了。跟着七哥学智慧，要读懂外交辞令，第三道大门已经开启！
 
-到了二期就发现什么？服用者的血压，因为它是个血管扩张期，血压下降了，但是它同时扩张了下腹部，胯部的这个血液，特别是男性。那就等于说是那里器官也开始充血，这就是把它给充起来了嘛，结果降压效果不怎么样，壮阳效果好，这就是为什么后来它成为最主打的药物。
+政治人物讲话都是绵里藏针，批评也是打哑谜，猜半天才想出来对方说啥，抓不住把柄。格局小啦，路走窄啦，浓浓的老领导画风。这可能就是人家说的高情商低情商吧？
 
-但是它有个什么毛病呢？因为它弥漫性扩张血管，但很多像全身的毛细血管都可以扩张，甚至颅内的毛细血管扩张，这就可以引起其他很严重的副反应。比方有人服用了以后脑溢血、脑中风，甚至有人都有心肌梗塞，就是很罕见的病例，所以这个药物还是有很多副反应。
+例如：总统的愤怒翻译员President’s Anger Translator …
 
-如果说是青蒿素能有这么一个作用，我就觉得青蒿素其实跟伟哥是有一点点相似之处，就是什么呢？它其实也是扩张血管，因为它为什么能降压？对吧？更高血压它有效，它肯定是舒缓的扩张的毛细血管让血压下降，但是它这个药效没有伟哥那么弥漫性的，没有目的的，而且是很短时间的释放药效，它是个很长很缓和的作用。
 
-所以，你不至于觉得自己一下子好像心跳加快，一下子脑子上面冲血这种感觉，所以它就是很和缓，但是又有这个药效，那我觉得是太美妙了。
 
-视频听写：青桐；
+美国授权撤离驻华大使馆也是如此操作，官宣说为了免受中共因冬奥会而执行的严格防疫措施而撤出。这都是外交辞令，圆滑，让人抓不住把柄，中共想发作也没有理由搞大。另外民间不会因此产生恐慌。想想看如果美国直接宣布要干仗民间会发生啥？经济股市受冲击，银行挤兑，物资囤积，难民潮，次生灾害。。。不仅中美，全世界都会被波及。没有哪个政治家会如此幼稚地操作。所以老百姓继续被蒙在鼓里，以前的时代是导弹飞过头顶百姓才知道打仗了。现在第三次世界大战是信息战超限战，是仗打完了老百姓才问：打仗了？？？
+只有消息灵通、脑袋聪明又幸运的人，比如我们爆料革命的战友们，在郭先生无数次精准的提前爆料之下才知道世界的真实全貌。君子不立危墙之下，能跑就跑，该撤离就撤离，该回乡下就回乡下，该屯粮就屯粮。
 
-编辑整理：海贼王M.D.LUFFY；
+一切已经开始，2022让我们迎接一个没有共产党的新中国吧！
 
-字幕文件制作：小满；
+【文章仅代表作者观点】
 
-视频制作及上传：Cindy；
-
-G.News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
+[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
+[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
+[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
+[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
+[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
+[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
+[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
+[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
+[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
+[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
+[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
+[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
 
  
 
