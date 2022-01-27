@@ -2,14 +2,19 @@
 ---
 
 
-## 爆料革命五周年&#8211;灭共第三道大门已开（图）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1916942/)
+## 关于彭丽媛的笑话·下
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917154/)
 
-设计：波士顿五月花 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/01/第三道大门.jpg)
-* * *
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-*发布：吐纳*
+*发布：*Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

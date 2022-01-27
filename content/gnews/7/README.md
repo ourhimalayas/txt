@@ -2,22 +2,34 @@
 ---
 
 
-## 共产党和习近平没有尿性
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916917/)
+## 已接种疫苗的奥运金牌得主克索兰尼，感染新冠病毒去世
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1917124/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党和习近平没有尿性_01-1.jpg)
-直播时间：2021.12.01
+##### 整理报道：小鱼儿
+编辑：5m
 
-孟建柱要统治东南亚的一切，通过亚洲来影响整个东欧，西欧，并统治世界。孟建柱的政治智慧与曾庆红齐名，他和曾的身体是老杂毛里面最好的，从不吃药。健身，没有任何毛病，然后经常搞双修，吸阴壮阳，他住在八局，几百号人伺候他一个人，孟建柱财富之多令人乍舌。孟建柱对新疆对整个东欧，西欧，亚洲，和东南亚黑帮以及赌博的控制，这个洗米华是个非常重要的杀手，他是个小人物，但是他背后故事极多。你们回头再看我们2017和2018年的直播，但今天才抓洗米华，可见共产党习近平没啥尿性。你们看到另外一个本质了嘛，如果是共产党真像你想那么神，2018年就会把孟建柱就会把这个洗米华给抓了。到了今天才想明白，原来还有这么号人物。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-发布：*皮特*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2232.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+据独立（Independent）新闻报道，一名（已接种疫苗的）匈牙利奥运金牌体操运动员，因新冠病毒（Covid-19）去世，享年51岁。匈牙利奥委会证实：“我们怀着深切的悲痛通知你们，斯齐尔维斯特·克索拉尼（Szilveszter Csollany）已经去世。”
+
+布达佩斯报纸（Blikk）报道说，克索兰尼在12月病倒了，在医院使用了呼吸机，于1月24日去世。
+
+据出版物称，虽然克索兰尼在社交媒体上表达了反对接种疫苗的观点，但这位六届世界锦标赛奖牌获得者为了能够继续担任体操教练，（被迫）接种了疫苗。
+
+斯齐尔维斯兹特·克索拉尼在2000年悉尼奥运会上赢得了吊环金牌，突破了上届奥运会在亚特兰大取得的银牌成绩。克索兰尼曾两次2000年和2002年被评为匈牙利年度最佳运动员。
+
+**参考链接：**[Anti-vax Olympic gold medalist Szilveszter Csollany dies of Covid, aged 51](https://www.independent.co.uk/sport/olympics/antivax-covid-szilveszter-csollany-hungary-b2000002.html)
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

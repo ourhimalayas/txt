@@ -2,22 +2,19 @@
 ---
 
 
-## 俄罗斯威胁西方说如不给SWIFT就不给汽油
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916871/)
+## 新中国联邦的宣言（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916991/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-49.jpg)
-图片来源：网络截图
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-零对冲网1月26日报道，在乌克兰边境状况出现缓和之际，俄罗斯高官说如果西方人通过威胁不让克里米亚用SWIFT支付系统，欧洲就得不到俄罗斯的石油，天然气和金属等。
-周二，英国首相布里斯·约翰逊说他正在与美国SWIFT全球支付系统讨论阻止俄罗斯用该系统，称之为是一个“强有力的武器”。
-尼古拉·茹拉夫廖夫，俄罗斯联邦委员会第二发言人告诉俄罗斯国家台TASS说如果这样的话，欧洲将要为此付出代价。
-SWIFT是一个支付系统，一种服务系统，因此，如果俄罗斯不能得到SWIFT服务，那么不仅我们得不到外币，买家也得不到（货物），欧洲人就得不到我们的货物。
-与此同时，美国正在与世界上主要的能源生产国和公司进行磋商，以作为后盾备力量供应欧洲。
+*发布：*Frank2021
 
-##### 新闻来源：  [No SWIFT, No Gas: Russia Responds To Western Threats As US Tries To Orchestrate Workaround](https://www.zerohedge.com/political/no-swift-no-gas-russia-responds-western-threats-us-tries-orchestrate-workaround)
-
-#  
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

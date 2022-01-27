@@ -2,22 +2,49 @@
 ---
 
 
-## 中日财经爆┃“未老先退”之后 张一鸣卸任字节跳动法定代表人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916852/)
+## 欧洲议会委员会吁深化与台湾合作 对抗中共假信息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1916947/)
 
-撰稿：东京樱花团｜喜马拉雅的微尘
-![](https://lh5.googleusercontent.com/pp2-SW0P0e2QjOlIZgGwDqhYW7GXEU-5tqFftDvNsJ9gVwWi51z9ziqJfRnqEQZncgj6waSPArJ-YxzvvSB7atSPI0lBpdHLKkLNjiZnHaYw_Ud3aZCzyy-eVCZ6A_s8L3OPV38i)[*图片来源*](http://www.ftchinese.com/story/001094409?full=y&amp;archive)
-继去年卸任字节跳动董事长、CEO之后，近日，张一鸣又被爆卸任多家字节跳动关联公司法定代表人。
+作者：纽约香草山医疗部 – 云豹
 
-1月27日，天眼查App显示，近日，张一鸣退出北京字跳网络技术有限公司、北京字节跳动网络技术有限公司、北京石贝科技有限公司法定代表人，以及北京石贝科技有限公司经理、执行董事职务。
 
-天眼查显示，北京字节跳动网络技术有限公司法定代表人由张利东接任。据媒体报道，2021年5月，字节跳动创始人张一鸣发布内部全员信，宣布卸任CEO一职。此后，其陆续退出多家字节跳动关联公司职务。
 
-信息来源：[**张一鸣卸任北京字节跳动网络技术有限公司法定代表人**](https://www.sohu.com/a/519345557_260616)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+
+
+1月25日，欧洲议会“外国干预欧盟民主程序特别委员会”通过调查报告，指证中共等外国专制政权对欧洲造成严重威胁。
+报告认为，欧洲民众及政府官员绝大多数都没有意识到俄罗斯和中共对欧洲威胁的严重性。 欧盟国家由于防御警觉不足，使关键基础设施易受到恶意破坏及网络攻击，一些很知名的前政治人物受聘为这些恶意国家在公共媒体做宣传，欧盟国家之间出现意见分歧，都加剧了外国势力干预欧盟民主的危机。
+报告建议，应支持多元化媒体和事实查核人员、禁止外国资助欧洲政党、紧急改善网络安全、澄清某些欧洲政党与俄罗斯之间不恰当的关系，以及处理中共企图影响欧洲地缘政治的恶意投资。
+此外，报告还特别提到了台湾，认为台湾所有政府部门都与独立的非政府组织以及社群媒体合作，共同抵御来自中共的假信息攻击，肯定了台湾采取的策略，并建议与台湾进行合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-7.jpg)
+参考信息：
+[歐洲議會委員會肯定台灣抗中國假訊息 籲深化合作](https://www.cna.com.tw/news/aopl/202201250453.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：Irene木木
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

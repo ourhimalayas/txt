@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦的宣言
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916929/)
+## 关于彭丽媛的笑话·上
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917137/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

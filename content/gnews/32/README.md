@@ -2,33 +2,34 @@
 ---
 
 
-## 抗衡极权中共：美众议院推出《2022年美国竞争法》
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1916568/)
+## 随着Diem倒闭，脸书逐渐退出加密货币市场
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
 
-**撰稿：日本东京方舟农场 北极**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-美国众议院星期二(1月25日)晚间推出了《2022年美国竞争法》，该法案旨在加强美国的竞争力，与极权中共展开全面抗衡。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-25.png)
-法案全称为《2022年美国创造制造业机会和技术卓越与经济实力法》(America Creating Opportunities for Manufacturing, Pre-Eminence in Technology and Economic Strength Act of 2022)，按照英文字母缩写，简称为《2022年美国竞争法》(America COMPETES Act of 2022) 。该法案是基于去年6月美国国会参议院两党联袂推出的《美国创新与竞争法》(US Innovation and Competition Act)版本后，众议院在星期二推出了自己的修改版本。
+整理/编辑：小红帽
 
-根据该法案，美国将创立美国芯片基金、改善美国供应链、加强本土制造业、防止关键物品的短缺和确保更多此类产品在美国制造。该法案将推动美国的科学研究和技术创新，并通过经济发展、外交、人权和同盟关系确保美国在全球的竞争力和领导地位。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
 
-众议院议长佩洛西称赞该法案为一项“大胆的、以结果为导向”的立法，说该法案“将加强美国的国家和经济安全和家庭的财务安全，并提高我们在世界上的领导地位。”
 
-美国总统乔·拜登(Joe Biden)也法案文本公开后发表声明说，“众议院今天在推动立法方面迈出了重要的一步，该立法将使我们的供应链更强大，并重振我们经济的创新引擎，使我们在未来几十年在竞争中战胜中共和世界其他地区。”
+根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
 
-涵盖范围广泛的《2022年美国竞争法案》有多项有关台湾的条款，包括强化美国与台湾的伙伴关系，并包含了去年由两党众议员推出的《台湾和平与稳定法案》和《台湾国际团结法案》的内容。
+一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
 
-该法案还授权向美国之音的上级单位美国全球媒体总署(USAGM)提供5亿美元，以支持美国本地媒体、建立独立媒体、打击中（共）国境内外的虚假媒体信息和彻底颠覆应用于审查制度的技术。 法案还规定成立“刘晓波汉语研究基金”，资助替代中国在美国大学设立的孔子学院的研究机构。
+这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
 
-在川普总统任期，曾发起过声势浩大的MAGA（Make America Great Again，让美国再次伟大）运动。该运动的宗旨也是重振美国经济，制裁极权中共。
+这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
 
-参考链接：
-[https://www.voachinese.com/a/US-house-competes-act-china-20220125/6412880.html](https://www.voachinese.com/a/US-house-competes-act-china-20220125/6412880.html)
+新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
 
-撰稿：北极
-编辑： 青城道姑
-发布：文曦
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

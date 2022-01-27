@@ -2,35 +2,33 @@
 ---
 
 
-## 关于川普的Truth社交平台（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916812/)
+## 未来澳洲和新西兰的企业将以数字技术优先
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916906/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/关于川普的Truth社交平台-（二）-.jpg)
-过去几周花了几百万的广告费，关注量反而没上升。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-而且我们的关注量都是基于原来的，就稳定上升。
+整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19-11.png)
+根据《CRN》1月27日报道，研究公司IDC对2022年的预测，未来五年，澳大利亚和新西兰的公司将过渡到“数字优先”的战略，这主要是由大流行病推动的。
 
-那为什么呢？
+IDC的报告调查了87%的澳大利亚和新西兰公司，并对IT行业将如何应对新冠病毒（covid-19）以及“不断变化的社会规范”做出了10项预测，如“更强的隐私保护和披露授权”、“可持续发展的需要” 和其他“系统性的行业变化”。
 
-大家要看到一个问题，现在社交媒体上，咱们没有一个像盖特那样不出卖个人数据，不靠广告为生，而且是几乎是最纯的图质量用户。
+报告称，到2024年，以数字优先的企业将把75%的技术和服务支出转移到以服务和结果为中心的模式，以改善客户体验和运营模式。
 
-所以他这个SPAC根本不懂得长期的运营，这个团队复杂，太难运作了，要不然全世界不是N个推特，N个Facebook出来了嘛？
+到2022年，40%的澳大利亚和新西兰上市公司的云计算选择过程将被重新设置，以关注业务成果而不是IT要求。这标志着向 “重视从设备到边缘以及从数据到生态系统的供应商组合的访问 “的转变。
 
-技术上、能力上、团队上、事业上他都会做不成，但是一定会瞎得瑟。
+治理准备工作也将成为成功的关键。到2023年，75%的澳新企业将使用人工智能辅助、与云相关的治理服务来管理、优化和保护分散的资源/数据，但由于IT技能不匹配，70%的企业将无法实现全部价值。
 
-什么好消息？他就是并购好几家，我都知道，但我不方便说，上当的人还会继续上呢。它最终一塌糊涂，一地鸡毛。
+新闻链接：[Digital first approach will define 2022: IDC](https://www.crn.com.au/news/digital-first-approach-will-define-2022-idc-575186)
 
-2021年11月26日大直播
-
-发布： 星谕
+*发布：tianzhihuan*
 
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

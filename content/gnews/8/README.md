@@ -2,22 +2,30 @@
 ---
 
 
-## 中日财经爆┃马自达汽车10年来首次在美国投入生产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916911/)
+## 关于洗米华的故事（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917113/)
 
-撰稿：东京樱花团｜百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-1-14.png)
-图片来自本文网站
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/关于洗米华的故事上_01.jpg)
+直播时间：2021.12.01
 
-根据日本【共同通信社】1月27日的报道，马自达汽车公司26日宣布，位于美国南部阿拉巴马州的新工厂已开始投入生产。据美国专用汽车媒体报道，这是马自达公司自2012年结束与福特汽车公司合资生产后，约10年来首次在美国生产。
+我告诉你所有那些监听那什么呢，都是具体让你知道，就像玩扑克牌一样，只是先给你表演表演完点花胡哨，目的不在这。
 
-位于阿拉巴马州的新工厂是与丰田汽车公司共同出资的合资企业，于2021年9月开始运营，年产各15万辆，共计30万辆。目标车型均为运动型多用途车（SUV），马自达的“CX-50”和丰田的“Corolla Cross”。
+孟建柱、洗米华，都说是曾家的人，江家的人，孟的人。
 
-信息来源：[**マツダ、米で10年ぶり生産開始**](https://nordot.app/859225287406387200#:~:text=Follow%20us%20on-,%E3%83%9E%E3%83%84%E)
+你们记住了嘛？孟建柱在北京当政法委书记期间，在公安部期间，亲自协调在电视机面前公告的信息。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+你知道，孟建柱这个级别和副书记和公安部长，只要让你公开的信息，那就是政治决定，公开的信息就是组织同意的政治决定。
+
+发布：*皮特*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

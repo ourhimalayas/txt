@@ -15,133 +15,133 @@
 
 ---
 
-### [澳大利亚确定参加冬奥会代表队人选](/content/gnews/1/README.md)
- ` 澳喜农场`
-
-### [新中国联邦的宣言（二）](/content/gnews/2/README.md)
+### [七哥2022年的两个希望](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [【病毒疫苗】很多医生被洗脑——美国医学界代表在华盛顿集会中的讲话剪辑](/content/gnews/3/README.md)
+### [七哥聊摇滚流行乐由来](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [宫廷圈养的丑陋和无知](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [关于彭丽媛的笑话·下](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [关于彭丽媛的笑话·上](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [躺平币到底是什么](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [已接种疫苗的奥运金牌得主克索兰尼，感染新冠病毒去世](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [关于洗米华的故事（上）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥的音乐打榜成果沉甸甸](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦人有多幸福](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [音乐体育本是歌颂上天却被共产党用来洗脑](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [应战友要求展示新款Gfashion绿鳄皮衣（二）](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [关于喜币问题回复](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [应战友要求展示新款Gfashion绿鳄皮衣（一）](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [你挨了4针，仍需戴口罩，谁愚蠢？](/content/gnews/15/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [新中国联邦的宣言（三）](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [【病毒疫苗】很多医生被洗脑——美国医学界代表在华盛顿集会中的讲话剪辑](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [爆料革命五周年&#8211;灭共第三道大门已开（图）](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
+### [欧洲议会委员会吁深化与台湾合作 对抗中共假信息](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
 
-### [新中国联邦的宣言](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
+### [爆料革命最早揭露中俄&#8221;双头鹰运动&#8221;](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
 
-### [共产党邪教组织七特征（图片）](/content/gnews/6/README.md)
- ` 波士顿五月花农场`
+### [新中国联邦发起甜蜜蜜运动 灭共后三件重大的北京工事](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
 
-### [共产党和习近平没有尿性](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
+### [新中国联邦致美国政府感谢信 支持否认中共合法性](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
 
-### [中日财经爆┃马自达汽车10年来首次在美国投入生产](/content/gnews/8/README.md)
+### [中日财经爆┃马自达汽车10年来首次在美国投入生产](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾加入外交抵制北京冬奥会的行列](/content/gnews/9/README.md)
+### [台湾加入外交抵制北京冬奥会的行列](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [未来澳洲和新西兰的企业将以数字技术优先](/content/gnews/10/README.md)
+### [未来澳洲和新西兰的企业将以数字技术优先](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年中共国GDP数据显示 中共国母猪又上树了](/content/gnews/11/README.md)
+### [2021年中共国GDP数据显示 中共国母猪又上树了](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德国运动员表示参加2022北京冬奥会承受巨大心理压力](/content/gnews/12/README.md)
+### [德国运动员表示参加2022北京冬奥会承受巨大心理压力](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗强制令将在第一波卫生工作者中启动](/content/gnews/13/README.md)
+### [疫苗强制令将在第一波卫生工作者中启动](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国国防医学流行病学数据库 所有常见疫苗伤害数据都出现飙升](/content/gnews/14/README.md)
+### [美国国防医学流行病学数据库 所有常见疫苗伤害数据都出现飙升](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [[文炬拾字]久违了，甜蜜蜜！](/content/gnews/15/README.md)
- ` 温哥华扬帆农场`
-
-### [俄罗斯威胁西方说如不给SWIFT就不给汽油](/content/gnews/16/README.md)
+### [俄罗斯威胁西方说如不给SWIFT就不给汽油](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆┃坚定撤离中共国 超一半日企将扩大越南投资规模](/content/gnews/17/README.md)
+### [中日财经爆┃“未老先退”之后 张一鸣卸任字节跳动法定代表人](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃“未老先退”之后 张一鸣卸任字节跳动法定代表人](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭七条之不反习](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [上海女子：房沒買成倒賠480萬](/content/gnews/20/README.md)
+### [上海女子：房沒買成倒賠480萬](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [随着Diem倒闭，脸书逐渐退出加密货币市场](/content/gnews/21/README.md)
+### [随着Diem倒闭，脸书逐渐退出加密货币市场](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线 :美国持续推动伊维菌素治疗COVID-19病毒的使用](/content/gnews/22/README.md)
+### [秘翻在线 :美国持续推动伊维菌素治疗COVID-19病毒的使用](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党多么的愚蠢与无知 在其统治下的中国一切都是假的](/content/gnews/23/README.md)
- ` DC政经`
-
-### [关于川普的Truth社交平台（二）](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
-
-### [什么是数字货币，它是如何运作的？](/content/gnews/25/README.md)
+### [什么是数字货币，它是如何运作的？](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前NBA球员姚明邀请中共批评者埃内斯·坎特访问中共国](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [美国通知北京，即日起授权撤离驻北京大使馆](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
 
-### [文·贵天成 – “爆料革命”盘古开天地（十）](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1月26日郭先生爆料五周年感言](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [台湾展开外交互动：赖副总统率团过境美国访问洪都拉斯](/content/gnews/29/README.md)
+### [台湾展开外交互动：赖副总统率团过境美国访问洪都拉斯](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [2022年1月26日： 祝贺爆料革命5周年](/content/gnews/30/README.md)
+### [2022年1月26日： 祝贺爆料革命5周年](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [宋词新作：贺新郎·甜蜜蜜送葬——美国使馆永久撤离等同宣判中共不合法](/content/gnews/31/README.md)
+### [宋词新作：贺新郎·甜蜜蜜送葬——美国使馆永久撤离等同宣判中共不合法](/content/gnews/38/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [抗衡极权中共：美众议院推出《2022年美国竞争法》](/content/gnews/32/README.md)
- ` 日本东京方舟农场`
-
-### [OSHA遵守美国法院裁定，撤销针对私营企业的疫苗强制令](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [甜蜜蜜运动开始 美国撤离北京大使馆 透露资本撤离灭共进入倒计时](/content/gnews/34/README.md)
+### [甜蜜蜜运动开始 美国撤离北京大使馆 透露资本撤离灭共进入倒计时](/content/gnews/39/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.660 HDO](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [英国三分之二Omicron感染者再次感染](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰局势紧张加剧 日本贸易公司员工撤离出境](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [速报：日本病毒感染人数超6万，为上周两倍](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|美国将撤离驻北京大使馆 灭共第三道大门开启](/content/gnews/39/README.md)
+### [有声|美国将撤离驻北京大使馆 灭共第三道大门开启](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [有声|美派「杜鲁门号」参加北约军演 8500士兵待命驰援](/content/gnews/40/README.md)
+### [有声|美派「杜鲁门号」参加北约军演 8500士兵待命驰援](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [有声|美国国家卫生院针对中共病毒后遗症设立专案组](/content/gnews/41/README.md)
+### [有声|美国国家卫生院针对中共病毒后遗症设立专案组](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [有声|日本允许年轻染疫者不就诊居家疗养](/content/gnews/42/README.md)
- ` MOSREC`
-
-### [有声|上海女子被地铁屏蔽门夹住身亡](/content/gnews/43/README.md)
+### [有声|日本允许年轻染疫者不就诊居家疗养](/content/gnews/43/README.md)
  ` MOSREC`
 
 ### [美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增](/content/gnews/44/README.md)
