@@ -2,40 +2,52 @@
 ---
 
 
-## 中共回应郭先生紧急直播实属色厉内荏
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918929/)
+## 拜登做了全球灭共“先锋”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1919033/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月25日，在郭文贵先生关于美国撤回驻北京大使馆的紧急直播后的两个小时，中共喉舌媒体迅速做出了回应，并将该回应称之为所谓的“深夜独家新闻”。
+作者：纽约香草山福音部 – 遍地开花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-12.jpeg)
 
-与中共以往作风别无二致的是，该媒体不仅在报道中对“消息来源”含糊其辞，其甚至在仅陈述部分事实外，还不忘用大段陈词滥调向美国叫嚣。更甚至，该媒体还在报道中扬言，美国这种做法将升级其与中共和俄罗斯的紧张关系，并将使其面临更大的风险。而后，中共外交部发言人赵立坚还在第二天的记者会上威胁称，美国“将极大地增加感染中共病毒的风险”。
 
-目前，多家西方媒体已经通过渠道证实了郭先生在直播中的声明，即美国政府将以防疫为由授权撤离驻中共国的使领馆。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-此外，郭文贵先生还在25日的直播中透露，中共如果继续阻挠美方的病毒溯源工作，或是再度向美国及世界释放更多的中共病毒，美国不仅会在经济贸易上与中共脱钩，还将毫无选择地跟中共开战。
 
-参考链接：
-1）[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
-2）[美国考虑授权撤离驻华使领馆 免受中国严格防疫影响–消息（更新版）](https://www.reuters.com/article/usa-diplomats-china-health-measures-sour-idCNKBS2K002Z)
-3）[外交部回应美方大阴招！](https://news.sina.com.cn/c/2022-01-26/doc-ikyamrmz7564637.shtml)
-4）[1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告](https://www.gettr.com/post/pqo4oz98c6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+1月25日，文贵先生突然紧急直播，发布“甜蜜蜜”行动重要公告：即日起，拜登政府授权美国驻北京大使馆撤离。
 
-总编：飞虹
-编辑：文特
-校正/发稿：谐趣园
+拜登不鸣则已一鸣惊人啊，一出手就是如此重拳，中共简直就剩半条命了，够给力！文贵先生说这绝对是灭共的第三道大门打开了。但是，这跟爆料革命的“甜蜜蜜”运动又有什么关系呢？为什么七哥这次的公告称是“甜蜜蜜”行动的重要公告呢？毫无疑问，促使拜登政府做出这一决定的主要推动力量是新中国联邦。七哥说过，“甜蜜蜜”行动如果没有美国的配合是不会成功的。没想到美国送来了这么一个大礼，这算不算拜登给“甜蜜蜜”行动开路了呢？
+
+根据文贵先生的直播和盖特消息，这次美国撤离驻北京大使馆的意义有：
+
+- 美国不再为中共站台，摘掉了中共是“正常人”的标签，表明中共就是“流氓”犯罪组织，人人得而诛之；
+- 中共不能代表中国人民（新中国联邦是唯一选择）；
+- 引起多米诺骨牌效应，世界各国逐渐跟随，与中共脱钩；
+- 为接下来更大的灭共行动铺平道路；
+- 开启病毒溯源进程，掀起全球灭共浪潮；
+- 孤立中共，亲共势力也不敢与中共太过亲密，以免被牵连；
+- 中共内部人心惶惶，为求自保内斗加剧，加速死亡；
+- 新中国联邦被世界承认指日可待。
+
+
+文贵先生说，拜登总统或许会成为灭共的第一英雄，没想到这么快就要验证了。拜登这一决定当之无愧是灭共先锋，为世界灭共铺平了道路，正式掀起了全球灭共浪潮。感谢拜登总统，感谢国务卿布林肯，你们的决定是对中国人民最大的礼物。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/jan2022.jpg)
+
+
+
+编辑/校对/发稿：武裝的羔羊
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

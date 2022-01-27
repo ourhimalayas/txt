@@ -2,31 +2,30 @@
 ---
 
 
-## 爱尔兰22日起取消几乎所有的中共病毒疫情限制
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1918903/)
+## 东莞医院挂横幅“手术室里全是钱”引发热议
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1918961/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月21日，爱尔兰总理迈克尔·马丁在全国讲话中表示，从22日起，取消几乎所有的中共病毒疫情限制措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/V255GV4J4RK6DOVHRPFTQHTI6Q.jpeg)
-22日起，爱尔兰的酒吧和餐馆，不再需要在晚上 8 点关门，不再要求提供“疫苗护照”；此外，保持社交距离的要求、室内外活动的人数限制也将被取消。在 2 月底之前，人们仍将被要求在公共交通工具和商店中佩戴口罩。
+**撰稿：日本东京方舟农场 子辰**
 
-之前爱尔兰实施了欧洲最严厉的封锁制度，对旅行和招待业实施了一些持续时间最长的限制措施，也是欧洲新冠疫苗加强针接种率最高的国家之一。但上周，爱尔兰新冠发病率在欧洲排名第二。
+据大纪元1月27日报道，东莞市的一家民营三甲医院（康华医院）年会上悬挂着“手术室里全是钱”的横幅，引发网友关注及谴责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-448.jpg)（图片来自《大纪元》）
+网上曝出的图片中显示，东莞康华医院手术室正在举行2022年终总结大会，聚餐会场上挂着横幅，上写着：“虎虎生威迎新年，手术室里全是钱！”此事在网络传开之后，引发网友热议和谴责。随即康华医院做出道歉，称只是一个小护士为了营造气氛自行做出的举动。
 
-参考链接：[Ireland drops most COVID restrictions in wake of ‘Omicron storm’](https://www.reuters.com/business/healthcare-pharmaceuticals/ireland-set-rapidly-drop-almost-all-covid-19-restrictions-2022-01-21/)
+有网民表示，人家医院是实事求是罢了！在医院期间，没钱是寸步难行的，已经是家喻户晓的“秘密”。
 
-![This image has an empty alt attribute; its file name is 1-Jan.jpeg](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+还有网民说，别解释了，越描越黑。如果是一个根本不存在的现象，能打出这样的横幅？现在的医院只知道赚钱，把救死扶伤的地方搞成了只知利益的地方。
 
-总编：飞虹
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+还有网民表示，这次的横幅换个角度来想，其实也是说出了它们的内心罢了，而且小护士肯定也没有那么大的权力，如果领导不拍板，那这条横幅也不会出现在上面了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+康华医院事后虽然做出道歉，但是推卸责任给一个小护士。广大网友纷纷谴责现在的医院已经不是救死扶伤的场所，而是利益最大化的一个敛财机构。
+
+参考链接：
+[https://www.epochtimes.com/b5/22/1/27/n13532360.htm](https://www.epochtimes.com/b5/22/1/27/n13532360.htm)
+
+素材采编：子辰
+编辑：青城道姑
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

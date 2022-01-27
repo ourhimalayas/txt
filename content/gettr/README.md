@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/27/2022 5:19 PM (UTC)`
+
+1月27日： ［七哥您好! 这篇文章跟您说的宇宙观一致，根据量子等式，宇宙无始无终］。🙏🙏🙏🙏 https://www.sciphysics.com/2021/08/no-big-bang-quantum-equation-predicts.html?m=1&s=08
+![img](https://media.gettr.com/group6/getter/2022/01/27/17/8fd4e49f-1941-a6e0-0f63-94cdf3d19d1f/6a8c41f4e1293ea2fec4afe1e50d8644.jpg)
+
+---
+
 `@miles 1/27/2022 1:02 PM (UTC)`
 
 2022年1月27日 文贵大直播：卧薪尝胆三十载  爆料革命整五年  正道至善得人心  除恶建邦开纪元
@@ -144,13 +151,6 @@ Thousands gathered in front of the Lincoln Memorial in Washington DC for the 'De
 
 A Thank You letter from the New Federal State of China to President Joe Biden and Secretary of State Anthony Blinken regarding closing US Embassy in Beijing <br/><br/>新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
 ![img](https://media.gettr.com/group5/getter/2022/01/25/23/00be8420-076a-19b3-4c42-b22bdddb22ae/1e91b729a5af3efba70ed84f4df4601e.jpg)
-
----
-
-`@miles 1/25/2022 11:04 PM (UTC)`
-
-1/25/2022 Miles Guo’s Big Announcement: I, along with countless fellow fighters behind the scenes who are risking their lives, have been doing our best to stop the CCP from hosting the Winter Olympics. We hope to prevent the tragidies similar to the Holocaust committed by the Nazis after the 1936 Olympics from happening in China, and we are honored to see the boycotts of the Winter Olympics and a series of actions against the CCP by the United States and other countries around the world that care about the democracy, rule of law, and freedom of the Chinese people!<br/><br/>1/25/2022 文贵重大公告：文贵和背后无数冒着生命危险的战友在全力阻止中共举办冬奥会，我们希望避免类似1936年奥运会后纳粹屠杀犹太人的惨剧在中国上演，我们很荣幸地收获了美国及世界上关心中国人民主、法治、自由的国家对冬奥会的抵制以及针对中共的一系列行动！<br/>
-![img](https://media.gettr.com/group45/getter/2022/01/25/23/015c6855-8cb1-f91e-e7e4-bd911e59bb85/out.jpg)
 
 ---
 

@@ -2,35 +2,25 @@
 ---
 
 
-## 拜登政府即日起授权美驻北京大使馆撤离
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918899/)
+## 樱花数据分析│奥密克戎爆发 疫苗接种率越高死亡更多
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1918956/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月25日，郭文贵先生在紧急直播中郑重宣布，拜登政府已经明确通知中共政府，即日起将撤离美国驻北京大使馆。
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2264.png)
+制图：东京樱花团/chuansang
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-22.jpeg)
+奥密克戎毒株具有较低的死亡率，这在全世界范围内被观察到。在其最初发现国南非以及周边四国，本轮疫情死亡人数峰值平均仅为以往的0.27倍。但在诸多欧美国家，本轮疫情死亡人数峰值平均达到了以往的0.49倍，为南非等国的1.8倍。
 
-郭先生指出，在过去五年里，爆料革命一直致力于推翻中国共产党，并揭露中共在新疆、西藏和香港地区实施的侵犯人权和种族大屠杀行为。此外，爆料革命也反复向世界发出警告称，中共正在通过严密的计划渗透并攻击西方文明世界。其后，爆料革命的战友们更是冒着生命危险向世界提供情报，指认中共制造并在全球范围内散播中共病毒，以此种生化武器推动灾难性的疫苗政策。
+此处统计的欧美国家两针接种率平均达到75.4%，而南非周边诸国仅为27.5%。这个数据显示，疫苗高接种率不但没有带来所宣传的减少死亡的预期效果，反而增加了80%。
 
-郭先生还回顾道，2020年6月4日新中国联邦诞生后，我们与各国政府以及民间公益、人权机构建立了秘密、安全和可信赖的关系，这也让新中国联邦将继续得到更多国家的尊重和承认。但郭先生也强调，新的人道灾难正发生在中国人民身上，在这样丑陋的背景下让中共举办冬奥会是对奥林匹克精神的背叛与伤害。
+结合我们之前的统计，高疫苗接种率同时带来了更多的感染人数。
 
-而在新中国联邦与爆料革命的不懈努力下，郭先生表示，拜登总统与布林肯先生作出了重大的决定，将从即日起授权撤离美国驻北京大使馆。对此，郭先生认为，除了对美国政府的衷心感谢外，历史会证明这个决定超越任何一次对人类生存和人权维护行动的意义。而新中国联邦将永远和世界正义之士奋斗在一起，直到消灭罪恶的中国共产党。
+大规模接种疫苗，是一场完完全全彻头彻尾的失败。
 
-参考链接：[2022年1月25日 紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](https://gtv.org/video/id=61f00abe28a108147c625eb0)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

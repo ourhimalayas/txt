@@ -2,36 +2,32 @@
 ---
 
 
-## 郭先生解释什么是最好的教育
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918945/)
+## 中日财经爆┃市场信心尽失，基金以自购为饵诱骗投资者
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1919046/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月24日的大直播中，郭文贵先生谈到了教育问题。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-102.jpg)
+[图片来源](https://www.secretchina.com/news/gb/2018/10/22/874321.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-13.jpeg)
+1月27日，上证指数跌破3400点，创业板指逼近2900点整数关口，超4300家个股下跌。A股近期遭遇重挫，在此背景下，超过多家基金公司公告认购或申购旗下基金。年内，已有多达23家基金公司购买旗下基金，涉及金额近6亿元，若是加上已经公告尚未实施的自购，金额有望突破9亿元，包括汇添富基金出资2亿元、易方达出资1亿元。
 
-郭先生表示，所谓最好的教育就是把人的兴趣激发出来，让每一个人都可以发挥自己的主观能动性。另一方面，在离开学校后 ，一个人会很快将他学到的东西搁置脑后甚至遗忘，但随后他又会在实践中找到自己，这才是最好的教育。
+近段时间以来，中共国股市大批量新股破发，市场个股均大幅下跌，而市场竟然出现了指数不跌个股大幅下跌的背离现象，市场操控痕迹十分明显，韭菜们对股市产生了高度怀疑情绪，参与积极性很小，投资意愿很低。致使大量基金出现募资严重不足的状况，中共国的羊群只要有带头的就会跟进，此时，基金公司开始制造舆论看好后市，并公告出资认购或申购旗下基金产品，以实现把羊群骗进狼窝的卑劣企图。
 
-郭先生还回顾了他自己经历，从老家古城，到八九六四，再到清风看守所，正是这些独特的经历让他从一个穷人家的孩子蜕变成了一个懂历史、有信仰且追求民主自由的领军人物。因此，郭先生表示，人生的经历是一个人最好的老师。
+随着美元加息的确认、美国授权撤离大使馆和即将出现的各国使馆撤离，中共国资本疯狂外逃已不可逆转，A股虽受完全操控，但终究会是一地鸡毛，被基金诱骗进场的投资者必将遭受巨大的损失。
 
-此外，在谈到对孩子的教育时，郭先生建议战友们，要尽可能少地要求孩子，也要让孩子开心并多样的学习。同时，不要强求孩子学习他们不愿意学的部分，而是应该多鼓励孩子参与到他们喜欢的学习中。
+中共国股市连赌场都不如。
 
-参考链接：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+[公募基金集体自购，A股脊梁能否挺起？丨一份观察](https://www.yicai.com/news/101303571.html)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+[又有多家基金公司出手！自购大单频出](http://fund.eastmoney.com/a/202201262261727454.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,42 @@
 ---
 
 
-## 医疗数据和事实再次凸显疫苗的安全性问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918699/)
+## 有声|乌克兰局势紧张，美国计划增派8500名美军高度戒备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1918767/)
 
-作者：银河系农场 – 骄子 、 纽约香草山 – defiance
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月24日，据相关媒体消息显示，在美国参议院听证会上，一直起诉联邦政府中共病毒疫苗强制接种政策的俄亥俄州代表律师披露了国防医学流行病数据库的医疗账单数据。其中，相关数据明确指出，在中共病毒大流行期间，美国军队中医疗数据的改变全部与中共病毒疫苗的不良后遗症非常吻合。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-15.jpg)
-律师提出，自疫苗强制令推行以来，军队内女性的流产率比近五年的平均水平增加了300%，而女性不孕症的概率则增加471%，其子女先天性畸形的比例也增加了156%。此外，中共病毒疫苗带来的神经系统问题增加1000%，而心肌梗死的患者数量增加了269%，士兵患癌的几率也增加了三倍。同时，贝尔麻痹症和肺栓塞的患病概率分别增加了两倍和四倍有余。律师也指出，这些数据可能只是中共病毒疫苗副作用的冰山一角。
+配音：香草山佛教部 – 李傻
 
-与此同时，澳大利亚一名市长在接种过两针中共病毒疫苗后也产生了严重的不良反应。该市长在社交媒体上透露，因为疫苗带了的种种症状，她只得长期卧床，甚至多次进出医院。
 
-而多数研究也表明，除了严重的副作用外，中共病毒疫苗并不能有效的预防并阻止中共病毒的传播，政府强推的疫苗接种之后导致更加严重的次生灾难。 对此，一位美国的职业自行车赛车手也在视频中分享了他接种中共病毒疫苗之后的经历。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+外媒 24 日报道，随着乌克兰局势的持续紧张，美国总统拜登与欧盟多个国家的领袖举行视像会议，对俄罗斯入侵乌克兰将招致的严重后果表示担忧。
 
-参考链接：
-1) . [**Horowitz: Whistleblowers share DOD medical data that blows vaccine safety debate wide open**](http://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
-2) . [“I Have Had Every Symptom You Could Dream Of” – Bedridden Aussie Mayor Opens Up About Immune Reaction After Receiving COVID Vaccine](https://www.thegatewaypundit.com/2022/01/every-symptom-dream-bedridden-aussie-mayor-opens-immune-reaction-receiving-covid-vaccine/)
-3) . [据《西澳大利亚人报》报道，澳大利亚一位市长在第二次接种 #新冠毒疫苗 后出现严重反应，卧床不起，在医院里进进出出了一段时间](https://gettr.com/post/pqo0vfe698)
+美国国防部发言人柯比宣布，升级美军戒备状态，“美国已采取措施，提升驻守本土及外国部队的戒备等级，以应对一系列的紧急状况，包括支援北约的应急部队，预计将高度戒备的部队成员数目增加到 8500人。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+柯比强调，参与增援戒备的部队会涉及战斗部队、情报、侦察，以及医疗和物流支援人员。目前暂时没有具体细节，但随时准备在短时间内进行调动，以配合北约部署。
 
-总编: Irene木木
-编辑： Lakeman文仁
-校正/发稿：Fei797
+与此同时，北约宣布下令更多部队进入戒备状态，并加强在东部地区的海空部署。北约秘书长斯托尔滕贝格表示，不排除增派战斗部队进入东部。
 
+俄罗斯国防部早前发布影片，显示东区的士兵及物资正积极运往白俄罗斯，以准备下月举行的联合军演。俄军同一时间宣布，已派遣 20 艘战舰及支援船只进入波罗的海，举行军事演习。在最新一期的文贵大直播中，郭先生认为乌克兰的局势背后并不简单，涉及的是中共党魁习近平与俄罗斯总统普京密谋达成的“双头鹰行动”，习近平要拿下台湾，普京将直取基辅，局势将变化莫测，大家拭目以待，但邪恶一定会被消灭。
+
+文字版原文：[乌克兰局势紧张，美国计划增派8500名美军高度戒备](https://gnews.org/zh-hans/1914270/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
