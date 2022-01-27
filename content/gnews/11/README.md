@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平彭丽媛出访挪威服装由七哥设计
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916482/)
+## 七哥对企业的判断
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916574/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,20 +2,43 @@
 ---
 
 
-## 新疆塔里木盆地发现亿吨级油气田
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916266/)
+## 有声|美派「杜鲁门号」参加北约军演 8500士兵待命驰援
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1916287/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2215.png)[图片来源](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/458906/%E6%96%B0%E7%96%86%E5%A1%94%E9%87%8C%E6%9C%A8%E7%9B%86%E5%9C%B0%E6%96%B0%E7%99%BC%E7%8F%BE%E7%9F%B3%E6%B2%B9%E8%B3%87%E6%BA%90%E9%80%BE2%E5%84%84%E5%99%B8)
-CGTN日本1月26日报道，中国石化25日称，下属西北油田分公司在塔里木盆地安装的主采井“顺北801X井”近期日采原油136.7吨。发现天然气开采量109.3万立方米的地层，认为顺北8号断裂带开采潜力大，塔里木盆地新发现亿吨级油气田。
+配音：香草山健身部 – 玫瑰园
 
-西北油田位于塔克拉玛干沙漠腹地。 “顺北801X井”所在的顺北8号断裂带全长116公里。 2021年，该断裂带勘探项目取得重大进展，2022年初再次实现资源重要发现。 2016年8月以来，中国石化在顺北1号和5号断裂带发现两个亿吨级油气田。截至今年1月，顺北地区原油总产量达到333万吨，天然气产量达到14.97亿立方米。截至目前，西北油田勘查揭示的天然气地质储量为945.83亿立方米，总产量已达1.4亿吨。
 
-信息来源：[新疆タリム盆地で億トン級の石油・天然ガス田が発見](https://news.yahoo.co.jp/articles/266fc51761cf9282a7e3c00959cb04580933412d)
 
-*编辑：东京樱花图/喜马拉雅的微尘
-发布：东京樱花图/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+
+
+
+据台媒报导，目前国际正聚焦在乌俄是否会爆发大战。就连英国首相约翰逊都坦承，乌克兰情势并不乐观，甚至警告俄罗斯，任何冲突都可能演变成新车臣。而近日美国总统拜登则与欧洲领袖进行密谈，表示有信心西方能连手抗俄。
+
+西方盟国也开始动作，北约准备调派部队到东欧，美国则有8500士兵待命驰援。另外代号「海王星打击」的北约联合军演在地中海登场，美军也派出「杜鲁门号」航母战斗群参加。该报导指出，此次联合军演行动被解读为剑指俄罗斯。
+
+原文链接：[美派「杜鲁门号」参加北约军演 8500士兵待命驰援](https://gnews.org/zh-hans/1914267/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 施巫术之人最后将被巫术给灭掉
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916532/)
+## 新病毒出现的几个极端现象，以及现在国内的严重情况
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916625/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 习身边彭蕾的地位，一人之下万人之上
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916554/)
+## 强制打疫苗一定会被停
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916654/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
