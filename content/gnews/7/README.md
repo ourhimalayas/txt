@@ -2,18 +2,13 @@
 ---
 
 
-## 庆祝爆料革命五周年 2017-2022
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1915552/)
+## 日本新增中共病毒确诊首次超过6万人创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1915567/)
 
-**January 26，2017-2022 Celebration the 5th Anniversary of the Whistleblower Movement**
-
-
-
-
-
-审核校对：Barry Jack
-上传排版：V在途中
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1._27-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

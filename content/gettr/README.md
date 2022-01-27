@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/27/2022 1:18 AM (UTC)`
+
+1/26/2022 Miles Guo’s GETTR: Forty embassies in Beijing are going against the virus testing and quarantine implemented by the CCP, and the embassies of more than 20 countries have said they would depart and won’t come back. The major operation by the US targeting the CCP has been completed, and other countries will follow. The New Federal State of China unites the world to take down the CCP, but we won't take credit for it.<br/><br/>1/26/2022 文贵盖特：40国使馆拒绝中共搞病毒检测和隔离，20多个使馆说要撤且有去无回；美国针对中共的大行动已完成，各国行动将紧随其后；新中国联邦团结全球灭共，但咱不揽功<br/>
+![img](https://media.gettr.com/group24/getter/2022/01/27/01/c4fa0f18-c5c6-6dc6-f957-f196fe3e0caf/out.jpg)
+
+---
+
 `@miles 1/26/2022 11:32 PM (UTC)`
 
 1月26日， 2017-2022 庆祝爆料革命五周年🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>January 26，2017-2022 Celebration the 5th Anniversary of the Whistleblower Movement 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
@@ -145,13 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1/25/2022 Miles Guo important announcement: Mr. Miles Guo has been dedicated to taking down the CCP for the past five years. Mr. Guo was the first one to expose the genocides committed by the CCP, warning the world as early as five years ago that the darkness was coming. In 2019, Mr. Guo also informed the West in advance that Xi Jinping and Wang Qishan had the plan to achieve world domination and to use biochemical weapons to crack down on the Hong Kong movement.<br/><br/>1/25/2022 文贵重大公告：郭文贵先生在过去5年来一直致力于灭共，郭先生最早向世界爆出中共的种族大屠杀，早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方<br/>
 ![img](https://media.gettr.com/group26/getter/2022/01/25/22/bbe963f5-5676-743a-b485-2ad3337dfca8/out.jpg)
-
----
-
-`@miles 1/25/2022 6:34 PM (UTC)`
-
-1月25日，中共官媒刚刚证实了新中国联邦发出的重大紧急公告！<br/><br/>January 25, 2022 The Chinese official media just confirmed the important emergency announcement by New Federal State of China <br/><br/>https://mp.weixin.qq.com/s/X1RqxZRJsVck1a7Baf626g
-![img](https://media.gettr.com/group45/getter/2022/01/25/18/33c042a8-6528-263a-8e58-7ea736d85bda/3b987318eae340969b07c513d53dea9d.jpg)
 
 ---
 
