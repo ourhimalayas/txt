@@ -2,22 +2,55 @@
 ---
 
 
-## 中日财经爆┃坚定撤离中共国 超一半日企将扩大越南投资规模
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916853/)
+## 美国国防医学流行病学数据库 所有常见疫苗伤害数据都出现飙升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916891/)
 
-撰稿：东京樱花团｜喜马拉雅的微尘
-![](https://lh6.googleusercontent.com/MMTP0I5h1hF1xYvM20QF2KVRLQF-b-oQzuStF7ra4Brd2bVw0gfEwXCQzrP7cqOUgZHYjxDfzNLcVjEaa6yOo3iKRpxufoMsyDvWT0LOajlXuEXSnzR9xu9N9zFuiOXztRs1-S7n)[*图片来源*](https://tuoitrenews.vn/news/business/20211125/over-40-deals-worth-3bn-signed-at-vietnamjapan-investment-promotion-event/64369.html)
-据越南媒体报道，尽管中共病毒（新冠肺炎）疫情对各行各业造成了较大的负面影响，但凭借较大的市场规模和发展潜力，大部分在越南的日本企业都希望进一步扩大对越投资。
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-95.jpg)
+周一，参议员罗恩·约翰逊（共和党-威斯康辛州）主持一场近五个小时，名为 “Covid-19: 第二种观点”的讨论会。
 
-据日本贸易振兴机构（Jetro）近日发布的2021年境外日企投资现状考察报告，疫情之下，在越南的日本企业当中，盈利企业占54.3%，亏损企业占28.6%。盈利企业中超过一半为制造业企业（57.5%）。2021年各领域盈利有所差别，其中越南北方地区企业利润相对高于高于南方地区。
+会上，俄亥俄州律师托马斯·伦茨 (Thomas Renz)介绍了美国国防医学流行病学数据库（DMED）的医疗计费数据，描绘了2021年美国军人的健康状况，令人震惊、不安。
 
-尽管疫情期间各行各业遭遇不少困难，但日本贸易振兴机构驻河内代表处首席代表中岛武雄（Takeo Nakajima）认为，这只是短期的挑战。有超过55%的日企仍希望在未来1至2年扩大在越的生产经营活动。这一比例在东盟中排名第一。42.5%的日企计划扩大现有投资规模，仅有1.9%的企业想缩减投资规模，不到0.3%的企业打算将业务转到其他国家。
+DMED是武装部队健康监测部门（AFHSB）“基于网络的工具，用于远程查询国防医疗监测系统（DMSS）中包含的除去识别信息的现役人员和医疗事件数据。” 它包含了军队中在任何特定时期内，提交给医疗保险账单的任何医疗诊断的每个国际疾病分类（ICD）代码。因为是用于保险结算，准确率极高。三位军医向伦茨提交的查询数据显示，在2021年，几乎所有常见的疫苗伤害ICD代码都出现了令人震惊的突然飙升。
 
-信息来源：[**Jetro：超过一半日企希望扩大在越南的投资规模**](https://www.163.com/dy/article/GULEJVMD0521X215.html?f=post2020_dy_recommends)
+在伦茨计划在联邦法院使用的一份声明中，塞缪尔·西格洛夫（Samuel Sigoloff）、彼得·钱伯斯（Peter Chambers）和特雷莎·龙（Theresa Long）三位军医透露，2021年军队中登记流产的DMED代码比五年的平均数增加了300%。流产代码五年的平均数是每年1499个。而在2021年的前10个月，是4182个。伦茨在接受TheBlaze采访时解释，这些医生查询了从2016年到2020年数百个代码的数值，以建立一个基准的五年平均值。这些代码通常用于医学文献已确定为疫苗潜在不利影响的疾病和伤害。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+这些数字在之前的所有年份都非常接近，包括2020年，疫情大流行的第一年，在疫苗发行之前。但是到了2021年，数字急剧上升，而2021年的数据甚至不包括11月和12月。
+
+除了流产诊断的激增（自然流产的ICD代码O03），癌症诊断几乎增加了300%（从五年平均每年38700例增加到2021年前11个月的114645例）。神经系统问题的诊断代码也增加了1000%，从基线平均8.2万个增加到86.3万个！
+
+约翰逊参议员被这揭露数据震惊了，他要求伦茨澄清：“十倍，”他说。”那是十倍的比率？”
+
+伦茨确认说：
+
+“每年82000人，一年内达到86万3000人。我们的士兵正在接受试验，受伤害，有时还可能被杀。”
+
+不幸的是，疫苗的灾难性影响可能比想象的还要严重，尤其是对年轻人来说。
+
+伦茨在听证会上没有提到但在采访中给出其他一些数字如下：
+
+心肌梗塞–增加269%
+
+贝尔氏麻痹–增加291%
+
+先天性畸形（军人子女）–增加156%。
+
+女性不孕症–增加471%
+
+肺栓塞 – 增加467%
+
+所有这些数字都属于门诊就诊，因为军队中的大量诊断都在此发生。但伦茨说，住院病人也有增加。其中一位军医的宣誓声明中写道：
+
+“我的专业意见是，上述流产、癌症和疾病事件的大幅增加是由于COVID-19‘疫苗接种’。”
+
+新闻来源：[https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
+
+
+
+> [Whistleblowers Reveal DoD Medical Data Showing Military Cancer Diagnoses HAVE TRIPLED Since The Rollout Of The Experimental Vaccines – Along With a 10x Increase in Neurological Disorders and a Near 5x increase in Female INFERTILITY – (VIDEO)](https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

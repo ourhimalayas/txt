@@ -2,35 +2,22 @@
 ---
 
 
-## 随着Diem倒闭，脸书逐渐退出加密货币市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
+## 中日财经爆┃坚定撤离中共国 超一半日企将扩大越南投资规模
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916853/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团｜喜马拉雅的微尘
+![](https://lh6.googleusercontent.com/MMTP0I5h1hF1xYvM20QF2KVRLQF-b-oQzuStF7ra4Brd2bVw0gfEwXCQzrP7cqOUgZHYjxDfzNLcVjEaa6yOo3iKRpxufoMsyDvWT0LOajlXuEXSnzR9xu9N9zFuiOXztRs1-S7n)[*图片来源*](https://tuoitrenews.vn/news/business/20211125/over-40-deals-worth-3bn-signed-at-vietnamjapan-investment-promotion-event/64369.html)
+据越南媒体报道，尽管中共病毒（新冠肺炎）疫情对各行各业造成了较大的负面影响，但凭借较大的市场规模和发展潜力，大部分在越南的日本企业都希望进一步扩大对越投资。
 
-整理/编辑：小红帽
+据日本贸易振兴机构（Jetro）近日发布的2021年境外日企投资现状考察报告，疫情之下，在越南的日本企业当中，盈利企业占54.3%，亏损企业占28.6%。盈利企业中超过一半为制造业企业（57.5%）。2021年各领域盈利有所差别，其中越南北方地区企业利润相对高于高于南方地区。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
+尽管疫情期间各行各业遭遇不少困难，但日本贸易振兴机构驻河内代表处首席代表中岛武雄（Takeo Nakajima）认为，这只是短期的挑战。有超过55%的日企仍希望在未来1至2年扩大在越的生产经营活动。这一比例在东盟中排名第一。42.5%的日企计划扩大现有投资规模，仅有1.9%的企业想缩减投资规模，不到0.3%的企业打算将业务转到其他国家。
 
+信息来源：[**Jetro：超过一半日企希望扩大在越南的投资规模**](https://www.163.com/dy/article/GULEJVMD0521X215.html?f=post2020_dy_recommends)
 
-根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
-
-一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
-
-这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
-
-这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
-
-新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
