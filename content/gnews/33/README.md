@@ -2,32 +2,41 @@
 ---
 
 
-## 爆炸新闻：YouTube永久禁止Dan Bongino
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918324/)
+## 乌克兰计划招募13万名平民组成民兵对抗俄罗斯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1918384/)
 
-编译：wenwu
+#### **【雅典娜快讯】和您一起探究世界**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-14-3.jpg)图片来源：Hannah Nightingale
+整理/编辑：文泓
 
-YouTube于周三（26日）永久禁止保守派评论员丹·邦吉诺(Dan Bongino)进入该平台，据说是因为违反了该平台的COVID-19错误信息政策。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/@TA7REXSA7TK6GRZV.png)图片来源：FP
 
-邦吉诺在该平台自己频道发布的最后一个视频名为“Why I’m Leaving YouTube”(为什么我要离开YouTube)。然后他被完全禁止在该平台上使用。
 
-一位代表YouTube的发言人告诉美国国会，“当一个频道被强迫注销时，发布内容或使用另一个频道来规避禁止使用令，是违反我们服务条款的。”
+当地时间1月26日，据RT电视台报道，乌克兰政府官员正在确定乌克兰军队将如何与民兵武装合作，以及如何安全地储存武器。
 
-邦吉诺一直在他的主要YouTube频道上发布内容，而他的次要频道（主要发布他的广播节目的短片）则因违反YouTube的COVID-19错误信息政策而被暂停；邦吉诺的两个频道都已从网站上删除，他今后将不能再创建新的频道。YouTube发言人还证实，任何“与他的名字相关”的新频道也将被拒绝。
+据《外交政策》报道，乌克兰国防部正计划组建13万名新兵的民兵部队，官员们希望这将阻止甚至威慑俄罗斯总统弗拉基米尔·普京的入侵企图。
 
-“看着@YouTube的共产主义者在我们告诉他们去f%^\*自己之后拼命地挽回面子，很搞笑，”[邦吉诺报告](https://twitter.com/BonginoReport/status/1486431983249117190?s=20)（Bongino Reprot）在Twitter上写道：“他们声称我们‘试图逃避管治’。真的吗？通过发布最后一个标题是’Why I’m Leaving YouTube’的视频？”
+据《外交政策》指出，民众抵抗“将涵盖乌克兰社会的所有领域”，《外交政策》已得到了国防部计划，该计划也已与西方国家军队分享。
 
-新闻来源：[thepostmillennial.com] [BREAKING: YouTube permanently bans Dan Bongino](https://thepostmillennial.com/breaking-youtube-permanently-bans-dan-bongino) |发布时间：2022年01月26日
+乌克兰国防部长奥列克西·列兹尼科夫在一份长达9页的备忘录中强调，将侧重于平民抵抗，使侵略者遭受不可接受的损失，并无法实现其目标，而“侵略者的目标是结束独立的乌克兰”。
 
-* * *
+国防部正在努力在全国范围内建立旅级单位，目的是保护乌克兰军队建制不受俄罗斯军队的影响。据报道，该机构有足够的物资供150个新的旅级单位和较大城市的营级单位使用，额外的部队训练将在全国各地进行。外交政策》称，指挥机构将在一个月内到位。
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
+官员们仍在确定乌克兰军队将如何与民兵部队合作，以及如何安全地储存武器。《外交政策》报道说，大约1000名乌克兰特种部队成员正在组建和训练抵抗力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+“这项任务非常简单——不允许灾难进入我们的房子，”列兹尼科夫写道。《外交政策》指出，“当数以百计的（武装）平民做好准备，知道在自己家附近的（军事）行动，并且能够在几小时内转移到他们的位置，这将创造一种新的防御态势”。
+
+美国及其盟国已经威胁要对俄罗斯进行制裁，如果它入侵乌克兰。五角大楼已将8500名士兵置于高度警戒状态，一旦发生入侵，这些军人将部署到东欧。
+
+原文链接：[Ukraine plans to recruit 130,000 civilians for militia against Russia: report | Just The News](https://justthenews.com/accountability/russia-and-ukraine-scandals/ukraine-plans-recruit-130000-civilians-militia-against)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

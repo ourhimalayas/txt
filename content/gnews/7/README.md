@@ -2,29 +2,32 @@
 ---
 
 
-## 独裁者的特征
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918695/)
+## 2022/01/26 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1918768/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2_01.jpg)
-独裁者的特征，
-这也是一个国家要灭亡前的象征
+1. 1月25日，辽宁沈阳被通报出现新冠病毒确诊病例。中共政府以疫情被扩散的借口，持续加大了对各地省
+2. 份的军控状态。（视频只取0:22～1:09，可1.2倍加速播放）
+3. 1月25日，河北保定。被中共政府通报出现一例新冠病毒确诊病例。（视频可1.2倍加速播放）
+4. 1月25日，黑龙江东宁市被中共政府实行封城，高速公路路口被管控，只能进不能出。（只取视频前40秒，可1.2倍加速播放）
+5. 1月26日，北京。进京需要24小时的核酸检测阴性证明，警察会在各路口设卡上车查验。
+6. 1月25日，深圳火车站春运返乡高峰，民众出行需经过层层关卡的严格审查。
+7. 1月26日，面对美国拜登政府已经正式通知北京政府，从即日起授权撤离美利坚合众国驻北京大使馆的行
+8. 为。中共政府紧急放出大外宣媒体洗脑民众，意图持续挑起利用中共大陆的民族主义情绪以自保。
+9. 在22日出现乘客被地铁屏蔽门夹住导致死亡事件后。1月25日，上海地铁再次被拍到有乘客被卡在车厢门和屏蔽门之间。
+10. 1月24日，山东省肿瘤医院儿童肿瘤科。马上过年了，依然有很多全国各地的小患者来山东省肿瘤医院治疗。中共国癌症泛滥的原因是什么？
+11. 湖北武汉。年轻人在自诉其花光三代积蓄购买的商品房已经烂尾一年。房企未履行职责，业主无处维护自己的权利。
 
-1. 制造仇恨
-2. 制造种族矛盾
-3. 制造区域矛盾
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-2021年11月28日大直播
+编辑：【英国伦敦喜庄园编辑部】
 
-发布： 星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
