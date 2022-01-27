@@ -2,36 +2,30 @@
 ---
 
 
-## 习近平尴尬了！美新任驻中大使伯恩斯 未到任先申请「授权撤离」
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1918565/)
+## 台湾加入外交抵制中共冬奥会的行列
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918583/)
 
-素材整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-27-at-9.34.45-PM.png)图片来源：互联网
-美中关系持续紧张。
-在空窗期长达一年多之后，新任美国驻中国大使伯恩斯终于在26日举行宣誓就职仪式。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月26日，据台湾媒体报道，随着西方国家接连宣布对中共北京冬奥会的外交抵制，加之中共实施的愈发严峻的对台统战政策，台湾行政院、教育部及陆委会等相关部门在协商后决定，台湾代表团将不会出席中共北京冬奥会的开、闭幕式，同时，依照以往惯例将不会有政府官员随团参会。
+![This image has an empty alt attribute; its file name is 截屏2022-01-27-上午5.58.21.png](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%88%AA%E5%B1%8F2022-01-27-%E4%B8%8A%E5%8D%885.58.21.png)
+相关政府人员在当天接受采访时表示，按照中共的一贯做法，其将借由冬奥会的开幕式进场典礼凸显所谓的“一中”概念。因此，中共必将以“中国台北”的称呼矮化台湾，而台湾则坚决拒绝这一矮化行为。为此，虽然政府不会限制已经取得资格的台湾选手参赛，但官员不随行及代表团不出席开幕式的决定代表了台湾对此次冬奥会的外交抵制态度。
 
-伯恩斯现年65岁，外交资历相当丰富。其中，他曾见证1997年香港主权移交，因此对中国违背对港承诺相当有感触。
+参考链接：[北京冬奧我代表團不出席開閉幕式 黨政人士：將由教育部宣布](https://news.ltn.com.tw/news/politics/breakingnews/3814076)
 
-他在国会听证会上就呼吁不能相信中国会履行对台湾议题所做的承诺，还强调，要协助台湾提升不对称防卫能力。伯恩斯是罕见的，还没通过提名，就先强调要抗中挺台的驻中大使。
+![This image has an empty alt attribute; its file name is 1-Jan.jpeg](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-不过，伯恩斯在宣誓就职后，以中国越发严格的疫情管控措施为由，向美国国务院提出“授权撤离”请求。希望美国国务院允许大使馆工作人员及家属离开中国。由于伯恩斯尚未正式踏入中国领土，就先申请撤离，引发关注，也创下外交先例，美中陷入新的紧张关系。
+总编：Ivy001
+编辑：Lakeman文仁
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-对此，中国方面显得相当尴尬。中国外交部发言人赵立坚表示，美方的决策逻辑令人费解，并强调中方已经表达严重关切和不满，更再度自夸中国防疫，认为中国是世界上最安全的国家，坚称从安最安全的地方撤出只会极大增加美方人员感染的风险。
-
-根据外媒报道，由于北京冬奥会即将登场，中国当局加强了疫情管控措施，部分美国驻中使馆人员认为，美国政府不愿或无法保护美国官员免于受到中国严格的隔离政策，因此传出有一批外交官及其家属已经向美国政府申请撤离中国。
-
-对此，环球时报前总编辑胡锡进怒呛，美方就是冲着破坏冬奥会来的。
-
-虽然中国一再强调科学防疫，但疫情仍在扩散。且已延烧进北京，即使中国国家主席习近平一再公开表示，保证与会人士的安全。
-
-但北京26日仍出现8例本土病例，冬奥相关人员也有78例确诊。
-
-* * *
-
-*编辑&发布：Vicky*
-
-原文链接：[習近平尷尬了！美新任駐中大使伯恩斯 未到任先申請「授權撤離」](https://news.ltn.com.tw/news/world/breakingnews/3814743)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

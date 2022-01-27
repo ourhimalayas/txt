@@ -2,42 +2,80 @@
 ---
 
 
-## 美立法者抨击国际奥委会让反人类公司赞助奥运会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918295/)
+## 全球疫情更新（恐怖的球员赛场死亡历年数据比较图）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1918297/)
 
-编译：wenwu
+**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-27-上午9.44.59.png)
+雅典娜疫情更新（2022年 1月27日）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237873397-736x490-1.jpg)JADE GAO/法新社通过盖蒂图片拍摄
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-一家因帮助政府监视维吾尔人而被美国制裁的中国公司是即将举行的北京冬奥会的主要赞助商。
+**一，全球疫情基本数据**
 
-iFlytek是即将举行的冬季奥运会自动翻译软件的独家供应商。中共国政府利用其技术监视中国维吾尔人和其他受迫害群体。美国商务部在2019年将iFlytek与其他中共国人工智能公司一起制裁，因为它们在“实施中国的镇压、大规模任意拘留和高科技监控运动中扮演了侵犯人权和虐待的角色。”
+感染总数：361,705,227（日新增3,259,244，14天增幅+18%）
 
-参议院外交关系委员会的最高共和党人吉姆·里奇（Jim Risch，爱达荷州）称，iFlytek参与奥运会的行为是”确实可耻”。
+死亡总数：5,624,080（日新增8,431人，14天增幅 +24%）
 
-“以‘承认和维护人权’立身的国际奥林匹克委员会允许一家中共国国家支持的公司赞助北京奥运会组委会，该公司协助中共国政府对维吾尔人进行残暴的人权侵犯；这恰恰表明，国际奥委会把利润和与北京的关系看得比什么都重要。”里奇告诉华盛顿自由灯塔。
+**二，全球“疫苗”毒针统计数据**
 
-北京奥运会引起了国际社会对中共国侵犯人权行为的关注。美国宣布对奥运会进行外交抵制，以回应中共国对中国维吾尔族穆斯林人口的种族屠杀。中共国本周威胁说，奥运会运动员的言论如果违反了“奥林匹克精神”，将受到“一定的惩罚”。
+“疫苗”毒针注射总数：99.8亿
 
-人权组织长期以来一直抨击iFlytek与中国共产党的合作。人权观察称：“在一个长期不受限制地监视和报复批评者的国家，当局可以轻易地滥用这些（监控）数据。”
+完全“接种”：41.2亿人
 
-与里奇一起谴责中共的还有众议院外交委员会的最高共和党人迈克尔·麦考尔议员（Michael McCaul，德州）。麦考尔告诉自由灯塔，iFlytek“正式参与奥运会是一个完美的例子，说明中共的影响力是如何威胁到美国的价值观。”
+完全“接种”百分比：52.8 %
 
-中共国记者在2020年东京奥运会期间使用了iFlytek技术。该公司吹嘘说，其双屏翻译器使中共国记者“解决了记者、运动员和工作人员之间的跨语言交流问题”。
+**三，澳洲疫情和“疫苗”数据**
 
-共和党道格·兰博恩议员（Doug Lamborn，科罗拉多州）的选区包括科罗拉多斯普林斯的奥运会和残奥会训练中心。他告诉《自由灯塔》，“美国必须继续制裁那些协助对维吾尔人进行种族灭绝和犯罪的公司。”
+感染总数：2,391,074（今日新增46,872人）
 
-iFlytek与计算机芯片制造商英特尔合作，后者是奥运会的赞助商。英特尔是iFlytek的早期投资者，并为该公司的语音识别技术提供芯片。英特尔就《防止维吾尔族强迫劳动法》游说国会，该法禁止依赖中共国奴隶劳动的进口。 网络安全组织说，中共国可能利用技术来监视那些参加北京奥运会的人。据公民实验室称，奥运选手和其他人必须在比赛前用来报告健康和旅行数据的应用程序包含许多加密漏洞。该应用程序还包含审查某些政治声明的计算机代码。
+死亡总数：3,403人（今日新增 73人）
 
-新闻来源：[freebeacon.com] [Lawmakers slam IOC’s ‘shameful’ decision to let U.S.-sanctioned company sponsor games](https://freebeacon.com/national-security/chinese-company-that-surveils-uyghurs-has-major-role-in-beijing-olympics/) | 发布时间：2022年01月24日
+每万人感染人数：927.1917人
 
-* * *
+“疫苗”毒针注射总数：48,784,315    （日新增82,709 针）
 
-*审核：文乐
-校对：小东
-发稿：信心的选择*
+完全“接种”：19,197,858人
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+第二针“接种”百分比：78.4%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.1%
+
+**四，疫情新闻**
+
+[柏林警方取缔涉及种族屠杀的抗议标志](https://www.theguardian.com/world/2022/jan/26/germany-to-crack-down-on-covid-protesters-in-yellow-star-badges) 柏林警方获授权取缔抗议者在抗议疫苗强制令或其他疫情强制措施的示威活动中佩戴的黄色星形标志。这种标志模仿了纳粹要求犹太人佩戴的黄色“犹太人之星”歧视性标志，在上面印有“未接种疫苗”字样。示威者们佩戴它们寓意是，媒体和政府对待反对疫苗强制的民众的系统性污名化，可以说与纳粹时代犹太人的历史遭遇相当类似。然而德国警方竟然已经把这归类为“二次反犹太主义”，以此为由进行取缔。其实强制疫苗，尤其是对孕妇和儿童的强制疫苗毒针注射，无论其规模和手法都与纳粹种族大屠杀完全可以类比，使用这个纳粹时代的标志进行抗议，是完全合情合理的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NKZQIYLGL@A81UYG80G.png)在德国柏林国会大厦前的抗议强制疫苗活动中，警察拘留了一名妇女，该妇女手持标有“停止种族灭绝”的横幅。（图片来源：Christian Mang/路透社）
+[澳大利亚或将改变完全接种的定义为3针](https://www.theguardian.com/australia-news/2022/jan/27/daniel-andrews-hopeful-australia-will-redefine-fully-vaccinated-as-three-doses-of-covid-jab)
+
+澳大利亚维多利亚州州长丹尼尔·安德鲁斯希望国家内阁会议将完全接种疫苗的定义改为三剂 中共病毒疫苗，为强制疫苗的得寸进尺铺平道路。维多利亚的卫生和老年护理、残疾、紧急服务、矫正、隔离住宿和食品分发的工作人员已经被告知，他们必须接种第三剂才能继续在现场工作。新南威尔士州卫生部长布拉德·哈扎德（Brad Hazzard）表示，新南威尔士州超过 36% 的符合条件的人已经接种了第三剂新冠疫苗，但他强调这个数字还不够高。他说，如果接种率没有提高，可能有必要在包括卫生和教育在内的某些部门强制实施加强针，而新州州长多米尼克·佩罗泰特指出，下个月解除限制措施也取决于更高的加强针接种率。
+
+**五，几张图表** 我们之前看过疫苗副作用历年数据对比。与之相似但是更加触目惊心的是足球运动员赛场猝死的数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Y8U0PY5Y984D8Q6E1J.png)
+上面的图表显示了FIFA职业足球男性运动员赛场或训练场心血管疾病死亡的历年数据，可以看到球员强制注射中共病毒“疫苗”的2021年发生了大幅度攀升。而且死亡在进一步攀升，在2021年12月的数据如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/UKW3Q_ID3CL3X0BYC1AI.png)
+2021年12月的死亡人数（7人）与过去过去12年的年平均死亡人数（7.8人）几乎不相上下。按照2021年的规律，职业足球运动员的赛场死亡人数每季度翻一番。因此，如果不停止毒针注射，到 2022 年底，死亡运动员人数可能会上升到每季度 320 人（40、80、160、320）。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,25 +2,32 @@
 ---
 
 
-## 中日财经爆┃日产联盟启动3万亿日元开发电动汽车，未来将推出35款车型
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1918433/)
+## 数字银行和博彩执照加在一起是盐和水
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918439/)
 
-撰稿：东京樱花团|百花李香
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/数字银行和博彩执照加在一起是盐和水.jpg)
+咱这个系统就是让你来者都是赢家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中日财经爆┃日产联盟启动3万亿日元开发电动汽车，未来将推出35款车型.png)图片来自本文网站
+你们没有意识到，你们真的不知道。就像咱那个数字银行和博彩执照，它们加在一起是盐和水的感觉。
 
-共同通信消息，日产汽车和三菱汽车以及法国雷诺公司27日宣布，它们将在未来五年内投资总额230亿欧元（约3万亿日元）用于开发电动汽车（EV）。到2030年，将推出35种新的电动汽车车型。三家公司将采用通用底盘，联合采购车载电池等措施降低成本，提高价格竞争力。此外，三家公司还将共享日产汽车到2028年投入实际使用的下一代“全固态电池”。
+那个执照给一般人用，给青藤用，也就是说收点份子呗。给娜娜酱，也就是换个爱马仕包。你给如水，如水可能给弄成个事儿出来。给闻风而动，他估计变成战争武器。它到不同人手里，它有不同的一个用处。
 
-日产汽车和三菱汽车曾经是第一个销售电动汽车的公司。现在，其它公司正在加紧攻势。三家联合将加强的合作，力争东山再起。
+但是到我们新中国联邦这儿来，我们的新中国联盟就把它变成了一种超级经济啊，那叫超级经济区块链。 干的是啥? 你还ETF，我用你?你ETF用我还差不多吧。
 
-信息源：
+发布：于white
 
-[日産連合、EV開発に3兆円　30年までに35車種投入](https://news.yahoo.co.jp/articles/4ab3ddcb1eda61656728c7aaf527af2244059acb#:~:text=%E6%97%A5%)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
