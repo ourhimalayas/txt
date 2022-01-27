@@ -2,41 +2,35 @@
 ---
 
 
-## 丹麦与瑞典颁布截然相反的新冠疫情措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1918304/)
+## 韩国称朝鲜发射“不明导弹”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918330/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2254.png)图片来源：skynews
-翻译：不要代表我Kari
-编辑：Lish
+翻译：wenwu
 
-据丹麦哥本哈根美联社报道——丹麦政府周三表示，将在下周取消大部分的大流行疫情限制措施，尽管邻国瑞典宣布将自己的措施再延长两周。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2256.png)图片来源：insiderpaper.com
 
-丹麦首相梅特·弗雷德里克森（Mette Frederiksen）表示，从 2 月 1 日起，丹麦人将可以自由出入餐厅、咖啡馆、博物馆和夜总会，同时不再强制要求戴口罩。弗雷德里克森（Mette Frederiksen）说：“我们告别了限制措施，欢迎恢复我们正常的生活”。 “从 2 月 1 日起，丹麦将开放。” 但弗雷德里克森（Frederiksen）警告说，未来几周丹麦的感染人数可能会增加，并补充说可能有必要进行第四次疫苗接种。
+韩国军方说，朝鲜周四（27日）早些时候发射了一枚“不明导弹”，这是这个拥有核武器的国家今年的第六次武器试验。
 
-丹麦目前要求在公共交通、商店、餐厅内等候区域的顾客以及进入医院、保健所和养老院的人都要戴口罩。从2月1日起，政府将只建议在医院、保健所和老人院使用口罩。
+“朝鲜向东海（日本海）发射了一枚不明导弹，”首尔的参谋长联席会议说。
 
-即将于下周取消的限制措施早在去年7月就已经推出并实施，但在“成功的”大规模接种疫苗—大约10周后当局取消了解封令。因为之后感染率继续飙升，限制令又被重新引入。
+朝鲜上次在一个月内试验这么多武器是在2019年，是在领导人金正恩和当时的美国总统唐纳德·川普之间的高调谈判失败之后。
 
-就在周四早些时候，瑞典将多项新冠疫情限制令延长了两周。
+自那时起，与美国的谈判陷入僵局，朝鲜在经济上正因其到处咬人引发的国际制裁和自我施加的中共病毒封锁而陷入困境。
 
-瑞典卫生和社会事务部长莉娜·哈伦格伦（Lena Hallengren）表示，该国此前因其采取“佛系”不封城的疫情政策而在欧洲国家中较为突出，但“感染和传播率创下新高”。
+平壤周二（25日）发射了两枚疑似巡航导弹，本月至少又进行了四次武器试验——包括1月5、11日的所谓高超音速导弹。
 
-瑞典公共卫生局局长卡琳·泰格马克·威塞尔（Karin Tegmark Wisell）说：“预计感染人数将在几周内下降。”“ 瑞典在过去一周有 270,000 新增病例，我们的评估是，在此期间，每周至少有 50 万人患病。”
+上周，朝鲜暗示它可能恢复核试验和远程武器试验，这些试验自2017年以来一直被搁置。
 
-瑞典已下令咖啡馆、酒吧和餐馆在晚上 11 点关闭，并敦促人们尽可能在家工作。
+朝鲜的剑拔弩张发生在该地区的一个微妙时刻，领导人金正恩的唯一主要盟友中共国将在2月举办冬奥会，而韩国正在为3月的总统选举做准备。
 
-参考链接：[Denmark ending most Covid restrictions, while neighbor Sweden extends theirs | Fox News](https://www.foxnews.com/world/denmark-ending-covid-restrictions-sweden-extending)
+新闻来源：[insiderpaper.com] [North Korea fires unidentified ‘projectile’, South says](https://insiderpaper.com/north-korea-fires-unidentified-projectile-eastward-souths-military/) |发布时间：2022年01月26日
 
-发布：Lish
+* * *
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

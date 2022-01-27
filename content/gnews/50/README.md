@@ -2,34 +2,43 @@
 ---
 
 
-## 随着Diem倒闭，脸书逐渐退出加密货币市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
+## 宋词新作：贺新郎·甜蜜蜜送葬——美国使馆永久撤离等同宣判中共不合法
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1916576/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：蝴蝶泉
 
-整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1274.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
+前言：2022年1月24日文贵大直播，七哥宣布了冬奥会期间送给中共一个世界级大礼——甜蜜蜜运动。紧接着1月25日，七哥直播郑重公告，美国政府已经通知北京政府，即日起，授权撤出美利坚合众国驻北京大使馆。之后，七哥在与“联盟铁血组”的同框直播中，一边揉着馒头面，一边解读美使馆撤离的深意，即永久撤离，等同宣判中共的不合法性。如此，甜蜜蜜运动便以这种方式拉开了序幕，惊喜万分，作词如下：
 
 
-根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
 
-一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
+**冬奥会将赴。
+百万炮、齐轰天庭，借雪如注。
+千万狗上桌暖肚。
+蜘蛛网再加固。
+千亿金、拉客入窟。
+帝说后唱万民贺、万国朝、盛况前无古。
+美人却，撤走路。**
 
-这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
+**苍天垂听冤魂诉。
+香港城、新疆西藏，万千屠戮。
+先人造生化病毒。
+后夺命疫苗入。
+地球人、半数中蛊。
+为自由人权民主，使馆撤、共魔命根无。
+甜蜜蜜，送入墓。**
 
-这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
+词释意：
 
-新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
+北京冬奥会正在奔赴开场。中共疯狂发射百万颗人工造雪弹，齐齐轰炸天空，借来大雪纷纷，为冬奥会做好铺垫，也营造出“瑞雪造丰年”的假象。冬奥场地张家口一带疯狂捕杀了数十上百万的狗，提供给参加冬奥会各色人等的餐桌，狗肉温热暖肚。各种如蜘蛛网般监控设施也进行了加强加固，方便中共操控限制参加人员。还到处撒币上亿资金，满世界拉人来魔窟参加冬奥会。据说习皇帝将演说“中国梦”习皇后亲自登台献唱，排演了一场万民恭贺，万国来朝的天大盛会。可是，盛会在即，美国人，却宣布撤离大使馆，顺带着，当天其他二十个国家使馆也撤离，另外四十多个使馆也闹着要撤离。情何以堪？正应了东北一句俗话：这边火正烧得旺，美国佬一泡尿给快浇灭了，只剩点虚火在苟延馋喘。
 
-*发布：tianzhihuan*
+这一切是因为苍天垂听了无数冤魂的倾诉。香港、新疆、西藏……中共实施的种族大屠杀，让成百上千万人丧生。不仅如此，至2019年初起，中共开始全世界释放生化武器——人造冠状病毒，上亿人感染，百万人丧生。其后推出生化武器疫苗，致使全球75亿人约一半人接种疫苗毒。为了人权自由民主，美国永久撤出大使馆，从而战略性宣判了中共的不合法性，断了共魔的命根子。以此拉开了新中国联邦参与策划的甜蜜蜜运动序幕，接着一系举措将中共送入坟墓。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 

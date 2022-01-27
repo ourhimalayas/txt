@@ -2,35 +2,97 @@
 ---
 
 
-## 保险业正面临历史上最高的死亡率，不只是美国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1918080/)
+## 保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918214/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-27-at-12-09-56-Scott-Davison-CEO-of-OneAmerica-Indiana-我们现在看到（保险业中）历史上最高的死亡率，不仅仅是美国-on-GTV.png)
-**简评：**
+[https://gtv.org/video/id=61f162e387664c47acda6309](https://gtv.org/video/id=61f162e387664c47acda6309)
 
-数据显示，保险业正面临历史上最高的死亡率，不只在美国。或者200年一遇的大灾难，死亡率也只是大流行前的10%，而现在的死亡率是之前的40%，这是前所未有的。死于新冠的人数远远低于大流行爆发以来的死亡总数，但是死亡数目非常惊人。
+**Dr. Paul Marik
+保罗·马里克医生**
 
-- GETTR视频链接：[https://gettr.com/post/pn2wcafb3a](https://gettr.com/post/pn2wcafb3a)
-- GTV视频链接：[https://gtv.org/video/id=61d9a59487664c47acd1ef48](https://gtv.org/video/id=61d9a59487664c47acd1ef48)
+My hands were tied as a clinician for the first time in my entire career
+作为临床医生，在我的整个职业生涯中，我的双手第一次被束缚
 
+I could not be a doctor. I could not treat patients the way I had to be to treat patients
+我不能做为一名医生，我不能像对待病人一样给病人治病
 
-**视频字幕：**
+I had seven COVID patients, including a 31 year old woman
+我有七名COVID患者，其中包括一名31岁的女性
 
-我们现在看到（保险业中）历史上最高的死亡率，不仅仅是美国。每一家（保险公司）的数据都是一致的，年龄从18到64岁的工作年龄人群，就像屏幕上显示的各行各业。我们看到在第三季度，一直到第四季度，死亡率比大流行之前高出40%。
+I was not allowed to treat these people. I had to stand by idly
+我不被允许治疗这些人，我不得不袖手旁观
 
-给你们一个概念，让你们知道情况有多糟糕。 用三西格玛准则计算或200年一遇的灾难，也只能较大流行前增加10%的死亡率，所以40%是从来没有听说过的。
+I had to stand by idly watching these people die
+我不得不袖手旁观地看着这些人死去
 
-数据表明，死于新冠的人数远低于大流行爆发以来的死亡总数。他们的死亡证明上可能没有说明是（死于大流行），但是死亡人数的增加是非常非常巨大的。
+I then tried to sue the system and you know what they did?
+然后我试图起诉系统，你知道他们做了什么吗？
+
+They did something called peer sham review
+他们做了一些叫做同行虚假审查的事情
+
+It is a disgusting and evil concept
+这是一个令人作呕和邪恶的概念
+
+They then accused me of seven most outrageous crimes that I had committed
+然后他们指控我犯下七项最令人发指的罪行
+
+and then I was such a severe threat to the safety of patients
+指控我对患者的安全造成了如此严重的威胁
+
+They immediately suspended my hospital privileges
+他们立即暂停了我的住院医生的权限
+
+because I possessed a pose such an outright threat to these patients
+因为我对这些病人构成了如此直接的威胁
+
+ignoring the fact that under my care, the mortality was 50% those of my colleagues
+无视在我的照顾下，患者死亡率是我同事的50%的事实
+
+I then went on through the sham peer review
+然后对我继续进行虚假的同行审查
+
+I went to a kangaroo court where they continued this
+我去了一个模拟法庭，他们继续这样做
+
+and the end result was I lost my hospital privilege
+最终的结果是我失去了住院医生的权限
+
+and was reported to national Practitioner Data Bank
+并报告给国家从业医生数据库
+
+So here I was standing up for patients rights
+所以我在这里为病人的权利挺身而出
+
+and this hospital, this evil hospital ended my medical career
+而这家医院，这家邪恶的医院结束了我的医疗生涯
+
+So that’s what they do
+这就是他们所做的
+
+It’s an outright outrage. It’s evil to the core
+这是彻头彻尾的暴行，这是邪恶的核心
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:01/25/2022
+原视频标题: Dr. Paul Marik talks about how he got fired after he tried to treat his COVID patients
+保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+原视频日期：2022/01/25
+原视频链接: **[https://twitter.com/senronjohnson/status/1485700814643638275?s=24](https://twitter.com/senronjohnson/status/1485700814643638275?s=24)**
+任务编号：KE367（3590）
+视频时间段 : 0:00-1:43
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

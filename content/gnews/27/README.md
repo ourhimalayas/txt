@@ -2,96 +2,32 @@
 ---
 
 
-## 保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918214/)
+## 英首相约翰逊继续工作并表示不会辞职
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918267/)
 
-[https://gtv.org/video/id=61f162e387664c47acda6309](https://gtv.org/video/id=61f162e387664c47acda6309)
+翻译:里奇
 
-**Dr. Paul Marik
-保罗·马里克医生**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/200514881.jpg)图片来源：美联社
 
-My hands were tied as a clinician for the first time in my entire career
-作为临床医生，在我的整个职业生涯中，我的双手第一次被束缚
+伦敦，1 月 26 日（路透社）——英国首相鲍里斯·约翰逊（Boris Johnson）周三表示，他无意因在唐宁街办公室和住所举行的一系列破坏封锁政策的聚会而辞职，并承诺继续工作。
 
-I could not be a doctor. I could not treat patients the way I had to be to treat patients
-我不能做为一名医生，我不能像对待病人一样给病人治病
+在议会回答问题时，由于不断变换其封锁期间聚会的情节及误导议会，约翰逊首相受到反对党工党领袖基尔·斯塔默(Keir Starmer)的指控，被指首相已认同的这一罪行应触发辞职。
 
-I had seven COVID patients, including a 31 year old woman
-我有七名COVID患者，其中包括一名31岁的女性
+当被问及他是否会下台时，约翰逊回答说：“不会。”
 
-I was not allowed to treat these people. I had to stand by idly
-我不被允许治疗这些人，我不得不袖手旁观
+“我不否认，出于各种原因，很多人可能希望我让开，但他（斯塔默）想让我让开的原因是因为他知道这个政府值得信赖”他在保守党议员的欢呼声中说道。
 
-I had to stand by idly watching these people die
-我不得不袖手旁观地看着这些人死去
+“我们做出了艰难的决定，我们做出了正确的决定，尤其是我仍继续这份工作。”
 
-I then tried to sue the system and you know what they did?
-然后我试图起诉系统，你知道他们做了什么吗？
-
-They did something called peer sham review
-他们做了一些叫做同行虚假审查的事情
-
-It is a disgusting and evil concept
-这是一个令人作呕和邪恶的概念
-
-They then accused me of seven most outrageous crimes that I had committed
-然后他们指控我犯下七项最令人发指的罪行
-
-and then I was such a severe threat to the safety of patients
-指控我对患者的安全造成了如此严重的威胁
-
-They immediately suspended my hospital privileges
-他们立即暂停了我的住院医生的权限
-
-because I possessed a pose such an outright threat to these patients
-因为我对这些病人构成了如此直接的威胁
-
-ignoring the fact that under my care, the mortality was 50% those of my colleagues
-无视在我的照顾下，患者死亡率是我同事的50%的事实
-
-I then went on through the sham peer review
-然后对我继续进行虚假的同行审查
-
-I went to a kangaroo court where they continued this
-我去了一个模拟法庭，他们继续这样做
-
-and the end result was I lost my hospital privilege
-最终的结果是我失去了住院医生的权限
-
-and was reported to national Practitioner Data Bank
-并报告给国家从业医生数据库
-
-So here I was standing up for patients rights
-所以我在这里为病人的权利挺身而出
-
-and this hospital, this evil hospital ended my medical career
-而这家医院，这家邪恶的医院结束了我的医疗生涯
-
-So that’s what they do
-这就是他们所做的
-
-It’s an outright outrage. It’s evil to the core
-这是彻头彻尾的暴行，这是邪恶的核心
+**参考资料：**[reuters][Getting on with the job, UK PM Johnson says he will not resign](https://www.reuters.com/world/uk/uk-pm-johnson-says-he-will-not-resign-over-alleged-parties-2022-01-26/)
 
 * * *
 
-Date:01/25/2022
-原视频标题: Dr. Paul Marik talks about how he got fired after he tried to treat his COVID patients
-保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
-原视频日期：2022/01/25
-原视频链接: **[https://twitter.com/senronjohnson/status/1485700814643638275?s=24](https://twitter.com/senronjohnson/status/1485700814643638275?s=24)**
-任务编号：KE367（3590）
-视频时间段 : 0:00-1:43
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐
+校对：小东
+发稿：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
 
  
 

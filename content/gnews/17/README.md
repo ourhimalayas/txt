@@ -2,24 +2,38 @@
 ---
 
 
-## 爆炸新闻：YouTube永久禁止Dan Bongino
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918324/)
+## 多伦多男子的儿子因接种辉瑞疫苗而死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918368/)
 
 编译：wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-14-3.jpg)图片来源：Hannah Nightingale
+![](https://assets.gnews.org/wp-content/uploads/2022/01/下载-12.jpg)图片来源：dailyexpose.uk
 
-YouTube于周三（26日）永久禁止保守派评论员丹·邦吉诺(Dan Bongino)进入该平台，据说是因为违反了该平台的COVID-19错误信息政策。
+来自加拿大多伦多的丹·哈特曼（Dan Hartman）上周在多伦多市议会作证说，辉瑞公司的中共病毒（Covid-19）疫苗杀死了他的儿子。虽然这位父亲确定是什么原因导致了他儿子的死亡，但该案件仍被报道为“不确定”。
 
-邦吉诺在该平台自己频道发布的最后一个视频名为“Why I’m Leaving YouTube”(为什么我要离开YouTube)。然后他被完全禁止在该平台上使用。
+会议向公众开放，并有多位发言者分享了他们对当地政府处理中共病毒大流行的想法。
 
-一位代表YouTube的发言人告诉美国国会，“当一个频道被强迫注销时，发布内容或使用另一个频道来规避禁止使用令，是违反我们服务条款的。”
+哈特曼是发言人之一，他公开谈到了他的儿子肖恩（Sean）因接种辉瑞公司的疫苗导致其死亡。
 
-邦吉诺一直在他的主要YouTube频道上发布内容，而他的次要频道（主要发布他的广播节目的短片）则因违反YouTube的COVID-19错误信息政策而被暂停；邦吉诺的两个频道都已从网站上删除，他今后将不能再创建新的频道。YouTube发言人还证实，任何“与他的名字相关”的新频道也将被拒绝。
+在他的证词中，这位父亲说：“我儿子从8岁起就开始打曲棍球……他因为中共病毒大流行休息了一年，他坐在卧室里感到非常无聊。他决定今年再去打球，为此他必须接种疫苗才能打。”
 
-“看着@YouTube的共产主义者在我们告诉他们去f%^\*自己之后拼命地挽回面子，很搞笑，”[邦吉诺报告](https://twitter.com/BonginoReport/status/1486431983249117190?s=20)（Bongino Reprot）在Twitter上写道：“他们声称我们‘试图逃避管治’。真的吗？通过发布最后一个标题是’Why I’m Leaving YouTube’的视频？”
+作为对这一流行病的回应，安大略省的许多曲棍球俱乐部对任何希望参加比赛的人规定了Covid-19疫苗的任务。所有12岁以上的运动员都被要求提供疫苗接种证明才能参加比赛。
 
-新闻来源：[thepostmillennial.com] [BREAKING: YouTube permanently bans Dan Bongino](https://thepostmillennial.com/breaking-youtube-permanently-bans-dan-bongino) |发布时间：2022年01月26日
+2021年8月25日，肖恩接受了他的第一剂辉瑞公司的疫苗。几乎在一瞬间，这名少年就开始出现了中共病毒疫苗引起的副作用。他的父亲说：“他的脖子和脸上都出现了皮疹，眼睛周围出现了棕色的眼圈。”
+
+四天后，肖恩被送往医院，他被送回了家，并得到了布洛芬（ibuprofen，退烧止痛药）的处方；9月27日早上，他母亲发现他死在床边的地板上。
+
+丹和他的妻子下令进行尸检，试图把肖恩不幸去世的原因拼凑起来。然而，尸检并没有提供任何答案，只是提出了更多的问题。
+
+值得一提的是，验尸官拒绝对肖恩可能的死因作出裁决，只是将他的死亡列为只有2%几率出现的结论——“无法确定”。肖恩在死亡时有一个“轻微扩大的心脏”。肖恩没有被诊断出患有任何心脏疾病，而中共病毒疫苗的副作用一直与心脏问题有关，包括心肌炎和心包炎。
+
+丹·哈特曼从另一个渠道寻求第二种意见，因此将尸检结果发送给“加拿大的第二位知名病理学家，他因担心失去工作而不愿透露姓名。”这位医生的结论很明确：中共病毒疫苗是导致肖恩死亡的原因。
+
+“我从心底里知道，我相信第二位病理学家，中共病毒疫苗杀死了我的儿子，”他在作证时说。“这并不像大家认为的那样罕见（一直正在发生）。推特上每天都有，人们因此而死亡。我根本不是一个反疫苗主义者，我真的不是。但我认为这其中有问题。”
+
+丹后来质疑中共病毒疫苗的安全性如何，他认为疫苗已经杀死了这么多人。他说：“从来没有人谈论过打针会让人死亡（而且正在发生），而它只是被否认和沉默了。”
+
+新闻来源：[dailyexpose.uk] [Toronto Man Says Pfizer Covid-19 Vaccine is Respon-sible for the Death of his Healthy 17-Year-Old Son](https://dailyexpose.uk/2022/01/26/toronto-man-says-pfizer-covid-19-vaccine-is-responsible-for-the-death-of-his-healthy-17-year-old-son/)| 发布时间：2022年01月26日
 
 * * *
 
@@ -28,6 +42,8 @@ YouTube于周三（26日）永久禁止保守派评论员丹·邦吉诺(Dan Bong
 发稿：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+
+
 
  
 

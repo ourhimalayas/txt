@@ -15,113 +15,113 @@
 
 ---
 
-### [疫情经济大跃进](/content/gnews/1/README.md)
- ` 银河勇气之星`
-
-### [中日财经爆┃日产联盟启动3万亿日元开发电动汽车，未来将推出35款车型](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [橡树资本没收 香港“凡尔赛宫 ”地块，破坏恒大重组计划](/content/gnews/3/README.md)
- ` 波士顿五月花农场金融部`
-
-### [劲歌金曲变禁播歌手，越禁歌越金](/content/gnews/4/README.md)
- ` G-NEWS TAIWAN`
-
-### [文•贵天成——文贵先生谈“曾庆红”（十一）](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本的最大的赌王想加入咱博彩牌照](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰计划招募13万名平民组成民兵对抗俄罗斯](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥金句](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [九成](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [多伦多男子的儿子因接种辉瑞疫苗而死亡](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥金句](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [从2月1号起，丹麦完全取消所有疫情限制措施](/content/gnews/13/README.md)
- ` 秘密翻译组-原创组`
-
-### [自民党大阪市议团对IR事业居民投票案 没有表示赞成或反对](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共投资伊朗四千亿，伊朗今宣布最新对华政策，又一个白眼狼](/content/gnews/15/README.md)
- ` 波士顿五月花农场金融部`
-
-### [韩国称朝鲜发射“不明导弹”](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [爆炸新闻：YouTube永久禁止Dan Bongino](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [面对疫苗灾难，新中国联邦正在拯救世界](/content/gnews/18/README.md)
- ` 新西兰伊甸农场听写编辑组`
-
-### [丹麦与瑞典颁布截然相反的新冠疫情措施](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [全球疫情更新（恐怖的球员赛场死亡历年数据比较图）](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美立法者抨击国际奥委会让反人类公司赞助奥运会](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [威斯康星州议会投票推进关于2020年大选的决议](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [如果卡车停运，会发生什么？](/content/gnews/23/README.md)
- ` 澳喜特战旅Gnews`
-
-### [英首相约翰逊继续工作并表示不会辞职](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [经济崩溃时的迹象和如何自保](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [白宫、乌克兰在应对俄罗斯入侵的机率上大相径庭](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [秘翻在线：台湾代表团将以何名义及入场顺序参加北京冬奥会？](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [01/27每日播报｜美国最高法院大法官斯蒂芬·布雷耶将退休](/content/gnews/29/README.md)
+### [01/27每日播报｜多名立法者呼吁各国建立涉疆人权暴行的公司黑名单](/content/gnews/1/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [保险业正面临历史上最高的死亡率，不只是美国](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/2/README.md)
+ ` 秘密翻译组金融团队`
 
-### [一步一上摇](/content/gnews/31/README.md)
- ` 骄子`
+### [DC大中华时事：蔡英文回复教宗方济各，两岸须平等对话](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [应该竭尽所能避免给年轻人和孩子接种新冠疫苗](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [是什么让她最终放弃了自我保护的权利？ 西安29岁女生因冻饿而死](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [死于新冠病毒的人都是疫苗接种者](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [卡扎菲的独裁是神经病统治](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [7·24系列——历史上的美国撤馆事件](/content/gnews/34/README.md)
+### [提防中共 日本维新会提案严惩违反保密规定的行为](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [数字银行和博彩执照加在一起是盐和水](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [疫情经济大跃进](/content/gnews/8/README.md)
+ ` 银河勇气之星`
+
+### [中日财经爆┃日产联盟启动3万亿日元开发电动汽车，未来将推出35款车型](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [橡树资本没收 香港“凡尔赛宫 ”地块，破坏恒大重组计划](/content/gnews/10/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [劲歌金曲变禁播歌手，越禁歌越金](/content/gnews/11/README.md)
+ ` G-NEWS TAIWAN`
+
+### [文•贵天成——文贵先生谈“曾庆红”（十一）](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [奥地利解除对未接种疫苗居民的封锁](/content/gnews/35/README.md)
+### [日本的最大的赌王想加入咱博彩牌照](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰计划招募13万名平民组成民兵对抗俄罗斯](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥金句](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [九成](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [多伦多男子的儿子因接种辉瑞疫苗而死亡](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [任何疫苗都是毒药，新冠疫苗是基因医疗实验产品](/content/gnews/36/README.md)
+### [从2月1号起，丹麦完全取消所有疫情限制措施](/content/gnews/18/README.md)
+ ` 秘密翻译组-原创组`
+
+### [韩国称朝鲜发射“不明导弹”](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [爆炸新闻：YouTube永久禁止Dan Bongino](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [面对疫苗灾难，新中国联邦正在拯救世界](/content/gnews/21/README.md)
+ ` 新西兰伊甸农场听写编辑组`
+
+### [丹麦与瑞典颁布截然相反的新冠疫情措施](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球疫情更新（恐怖的球员赛场死亡历年数据比较图）](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美立法者抨击国际奥委会让反人类公司赞助奥运会](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [威斯康星州议会投票推进关于2020年大选的决议](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [如果卡车停运，会发生什么？](/content/gnews/26/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [英首相约翰逊继续工作并表示不会辞职](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [经济崩溃时的迹象和如何自保](/content/gnews/28/README.md)
+ ` 雅典娜GNotes`
+
+### [白宫、乌克兰在应对俄罗斯入侵的机率上大相径庭](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的](/content/gnews/30/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [01/27每日播报｜美国最高法院大法官斯蒂芬·布雷耶将退休](/content/gnews/31/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [保险业正面临历史上最高的死亡率，不只是美国](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [一步一上摇](/content/gnews/33/README.md)
+ ` 骄子`
+
+### [应该竭尽所能避免给年轻人和孩子接种新冠疫苗](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [7·24系列——历史上的美国撤馆事件](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [奥地利解除对未接种疫苗居民的封锁](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [中国人不等于共产党](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -162,20 +162,20 @@
 ### [疫苗强制令将在第一波卫生工作者中启动](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [随着Diem倒闭，脸书逐渐退出加密货币市场](/content/gnews/50/README.md)
- ` 墨尔本雅典娜农场`
-
-### [宋词新作：贺新郎·甜蜜蜜送葬——美国使馆永久撤离等同宣判中共不合法](/content/gnews/51/README.md)
+### [宋词新作：贺新郎·甜蜜蜜送葬——美国使馆永久撤离等同宣判中共不合法](/content/gnews/50/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [甜蜜蜜运动开始 美国撤离北京大使馆 透露资本撤离灭共进入倒计时](/content/gnews/52/README.md)
+### [甜蜜蜜运动开始 美国撤离北京大使馆 透露资本撤离灭共进入倒计时](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增](/content/gnews/53/README.md)
+### [美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增](/content/gnews/52/README.md)
  ` 首尔天池农场`
 
-### [美国‘授权撤离’ 中方表达不满](/content/gnews/54/README.md)
+### [美国‘授权撤离’ 中方表达不满](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
+
+### [近20国要同美国授权撤离大使馆，为下一步重大行动提供法律支撑](/content/gnews/54/README.md)
+ ` YALUN 亚伦`
 
 ### [新中国联邦第一次重大公告](/content/gnews/55/README.md)
  ` 喜马拉雅农场新西兰站`
