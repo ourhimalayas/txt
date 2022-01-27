@@ -2,48 +2,20 @@
 ---
 
 
-## 爆料革命五周年海报（二）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1919603/)
+## 加拿大卡车司机反抗疫苗暴政获民众支持
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1919660/)
 
-设计者：纽约香草山设计部 — 战友时光，忧伤的兔子
+加拿大温哥华扬帆农场    平民正道
 
+据加拿大《CTV》近日报道，为反抗特鲁多当局针对跨越美加边境的货运卡车司机强制执行疫苗护照的政策，加拿大卡车司机日前自发组织了名为“2022自由车队”的抗议运动，并在发起不到一周的时间内，便已筹集到公众支持款超过300万加元。
 
+报道称，该捐款众筹旨在反对加拿大自由党政府关于疫情限制措施及疫苗护照规定等各项违宪政策。这笔公众捐款将被用于补偿参加车队游行抗议者的燃料、食物和住宿费用等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+据悉，由于特鲁多政府之前出尔反尔，将本已取消的疫苗护照规定再次强加在所有加拿大和美国货运卡车司机身上，因而触犯众怒，并导致了本次全国性的示威抗议活动。此举不仅将严重影响美加贸易中的物流供应链，同时还体现了加拿大反对当局疫情政策的巨大民意。
 
+* * *
 
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-2022.1.26_wbm5-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-2022.1.26_wbm5-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-6cc8160d-6d9d-4003-b91a-e4af9b8c6ac2.jpg)
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+编辑： 平民正道    发布：平民正道
 
  
 

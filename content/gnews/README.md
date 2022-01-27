@@ -15,104 +15,104 @@
 
 ---
 
-### [魁省当局借防疫限制令迫害未接种疫苗者](/content/gnews/1/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大卡车司机反抗疫苗暴政获民众支持](/content/gnews/2/README.md)
- ` 扬帆枫叶快讯`
-
-### [北京冬奥会前广告商低调](/content/gnews/3/README.md)
+### [俄罗斯禁止军事观察员访问边境地区](/content/gnews/1/README.md)
  ` Shuizhuyu`
 
-### [灭共者之郭氏情报站（十七）2022/01/27 文贵大直播](/content/gnews/4/README.md)
+### [甜蜜蜜灭共战役出其不意拉开帷幕](/content/gnews/2/README.md)
+ ` 扬帆枫叶快讯`
+
+### [美联储公开讨论应用数字货币的利与弊](/content/gnews/3/README.md)
+ ` 扬帆枫叶快讯`
+
+### [魁省当局借防疫限制令迫害未接种疫苗者](/content/gnews/4/README.md)
+ ` 扬帆枫叶快讯`
+
+### [加拿大卡车司机反抗疫苗暴政获民众支持](/content/gnews/5/README.md)
+ ` 扬帆枫叶快讯`
+
+### [北京冬奥会前广告商低调](/content/gnews/6/README.md)
+ ` Shuizhuyu`
+
+### [灭共者之郭氏情报站（十七）2022/01/27 文贵大直播](/content/gnews/7/README.md)
  ` MOS Designer香草山设计部`
 
-### [爆料革命五周年海报（二）](/content/gnews/5/README.md)
+### [爆料革命五周年海报（二）](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [蓝枫法律财富管理专栏：对战友进行喜交易所KYC时遇到的问题的解答](/content/gnews/6/README.md)
+### [蓝枫法律财富管理专栏：对战友进行喜交易所KYC时遇到的问题的解答](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [DC每日热点0127](/content/gnews/7/README.md)
+### [DC每日热点0127](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共封锁澳州总理的微信账号，参议员呼吁抵制微信](/content/gnews/8/README.md)
+### [中共封锁澳州总理的微信账号，参议员呼吁抵制微信](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [比特币腰斩，因为市场恐慌美联储会加息](/content/gnews/9/README.md)
+### [比特币腰斩，因为市场恐慌美联储会加息](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [CDC承认自然免疫力的优越性，但依然强推疫苗](/content/gnews/10/README.md)
+### [CDC承认自然免疫力的优越性，但依然强推疫苗](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [国防部医疗数据：2021年常被提及的疫苗副作用激增](/content/gnews/11/README.md)
+### [国防部医疗数据：2021年常被提及的疫苗副作用激增](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [对NBA而言，他们只在乎金钱和生意](/content/gnews/12/README.md)
+### [对NBA而言，他们只在乎金钱和生意](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年1月27日大直播速记精萃](/content/gnews/13/README.md)
+### [2022年1月27日大直播速记精萃](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [NHS的工作人员在唐宁街外抗议疫苗强制接种政策](/content/gnews/14/README.md)
+### [NHS的工作人员在唐宁街外抗议疫苗强制接种政策](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [意大利药理学家普切蒂分析 “疫苗接种无成效，坚持疫苗接种危险”](/content/gnews/15/README.md)
+### [意大利药理学家普切蒂分析 “疫苗接种无成效，坚持疫苗接种危险”](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄罗斯对谈判敞开大门](/content/gnews/16/README.md)
+### [俄罗斯对谈判敞开大门](/content/gnews/19/README.md)
  ` Shuizhuyu`
 
-### [奥运村在没有庆祝的情况下开放](/content/gnews/17/README.md)
+### [奥运村在没有庆祝的情况下开放](/content/gnews/20/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [假释期间黑人女子被控在地铁上对亚裔男子谩骂推搡](/content/gnews/18/README.md)
+### [假释期间黑人女子被控在地铁上对亚裔男子谩骂推搡](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [著名电影人赵军突发脑淤血去世 生前曾怒斥中共防疫“丧失人性”](/content/gnews/19/README.md)
+### [著名电影人赵军突发脑淤血去世 生前曾怒斥中共防疫“丧失人性”](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [英国医生告诉病人：疫苗将被停用](/content/gnews/20/README.md)
+### [英国医生告诉病人：疫苗将被停用](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大卫生部改口称疫苗接种必须自愿选择](/content/gnews/21/README.md)
+### [加拿大卫生部改口称疫苗接种必须自愿选择](/content/gnews/24/README.md)
  ` 扬帆枫叶快讯`
 
-### [麦考洛医生：恢复医疗自由的决定权在你们手中](/content/gnews/22/README.md)
+### [麦考洛医生：恢复医疗自由的决定权在你们手中](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [特鲁多政府对儿童疫苗强制接种犹疑未决](/content/gnews/23/README.md)
+### [特鲁多政府对儿童疫苗强制接种犹疑未决](/content/gnews/26/README.md)
  ` 扬帆枫叶快讯`
 
-### [布鲁塞尔和列日：不再为未接种疫苗的患者进行器官移植](/content/gnews/24/README.md)
+### [布鲁塞尔和列日：不再为未接种疫苗的患者进行器官移植](/content/gnews/27/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [文贵直播1.27: 我要用歌声，智慧地“温柔地”灭掉共产党](/content/gnews/25/README.md)
+### [文贵直播1.27: 我要用歌声，智慧地“温柔地”灭掉共产党](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/26/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2022年1月27日早](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2022年1月27日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [加拿大为自由而战的卡车车队继续高歌猛进，人们万众一心！](/content/gnews/28/README.md)
+### [加拿大为自由而战的卡车车队继续高歌猛进，人们万众一心！](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [英国支持暂停俄罗斯使用SWIFT国际支付系统的资格](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [爆料革命五周年回顾：灭共第三道大门打开](/content/gnews/30/README.md)
+### [爆料革命五周年回顾：灭共第三道大门打开](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [Tom Cotton：我们应该像支持乌克兰一样支持台湾，因为 “中共国是一个比俄罗斯还大的威胁”](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料 1.27：国际金融组织欲查封中共高官海外资产](/content/gnews/32/README.md)
+### [文贵爆料 1.27：国际金融组织欲查封中共高官海外资产](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
-
-### [五月花简报](/content/gnews/33/README.md)
- ` mayflowertranslate`
 
 ### [文贵大直播要点（2022年1月27日）](/content/gnews/34/README.md)
  ` 波士顿五月花农场`

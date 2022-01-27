@@ -2,35 +2,45 @@
 ---
 
 
-## 英国支持暂停俄罗斯使用SWIFT国际支付系统的资格
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1919284/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1919356/)
 
-编译: Mandel
+编译：wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/61ed4fef85f54019c5147336.jpg)图片来源: :copyright: Getty Images
+您若想了解全文报导内容，请点击标题链接
 
-据报道，英国当局正在考虑“以俄罗斯和乌克兰之间可能爆发的假想的军事冲突为由，支持暂停俄罗斯在SWIFT国际支付系统中的地位”。
+**1. [拜登政府在最高法院败诉后撤回对企业的中共病毒疫苗授权](https://www.cnbc.com/2022/01/25/covid-vaccine-mandate-osha-withdraws-rule-for-businesses-after-losing-supreme-court-case.html)**
 
-英国首相鲍里斯·约翰逊“担心一些世界领导人可能不了解乌克兰边境不断恶化的情况，也不完全理解欺负人的俄罗斯所带来的风险”，《电讯报》援引该领导人的相关消息报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/106986631-1638989814343-gettyimages-1236325596-775732771.jpeg)图片来源：*Drew Angerer | Getty Images*
 
-在过去的几个月里，众多西方媒体与多名美国官员一起，一直在传播俄罗斯即将入侵乌克兰的猜测。华盛顿及其盟友威胁克里姆林宫说，如果这种情况发生，他们将采取新一轮“破坏性”制裁，并以俄罗斯军队在该国广大的西部领土内的移动作为该计划的证据。莫斯科一直否定这些指控，称俄罗斯有权在其境内随意进行军事演习。
+据《CNBC》2022年1月25日电，职业安全与健康管理局将从周三（26日）星期三起根据最高法院的裁决来撤销拜登政府对百人以上企业的疫苗授权规定；拜登已经呼吁企业自愿执行这些要求；因医疗保健专业人员在感染了Omicron变体后被迫请病假，许多美国医院正面临着卫生人员短缺的问题。
 
-据英国首相称，对俄罗斯的潜在制裁“不能排除”北溪2号管道，该广受争议的管道旨在增加对受危机影响的欧洲国家的天然气供应，目前正陷于旷日持久的欧盟认证程序。
+**2. [德国部长：针对未接种疫苗者的压制性防疫措施是基于“软件”错误](https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)**
 
-据报道，约翰逊将与七国集团领导人举行电话会议，以最终确定一个“制裁联盟”，对俄罗斯采取有针对性的措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-32.png)图片来源：Wahagen Khabayan
 
-本周早些时候，彭博社报道说，英国外交部的官员被告知要准备好在很短的时间内进入“危机模式”，因为他们对“俄罗斯对乌克兰的侵略可能升级为冲突的担忧”有所增加。据报道，这意味着官员和外交官们将把工作重点放在英国对任何进一步增加的紧张局势的反应上，包括威慑和制裁。
+据《国家脉动》2022月1月24日电，德国卫生部长卡尔·劳特巴赫（Karl Lauterbach）在全国第二大城市汉堡（Hamburg）发生了诋毁如今的大流行是未接种疫苗者所导致的数月后，决定出来承认这是计算机“[故障](https://twitter.com/Tim_Roehn/status/1475580686211829761?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1475580686211829761%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)”得出的错误结论（Hamburg’s Social Services的数据可以被故意修改）；近10万名德国公民在最近几天参加了反疫苗强制令的抗议活动。
 
-上周六，伦敦外交部发布怪异的说法，称莫斯科正在谋划“在考虑是否入侵和占领乌克兰时，在基辅安装一个亲俄罗斯的领导人”。俄罗斯外交部驳斥了这一说法，敦促英国停止散布“无稽之谈”和“虚假信息”。
+**3. [FDA被指控试图强迫美国人接种不起作用的中共病毒疫苗](https://www.dailymail.co.uk/news/article-10440181/FDA-faces-criticism-restricting-COVID-antibody-treatments.html)**
 
-据本周早些时候《德国商报》(Das Handelsblatt)报道，切断俄罗斯的SWIFT银行网络的想法被认为是惩罚俄罗斯进行军事攻击的选项之一，但被欧盟和美国的政治家拒绝。据报道，该措施在短期内可能会导致金融市场的不稳定，而在中期内则会导致替代性支付基础设施的出现。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1-10.png)图片来源：dailymail.co.uk
 
-**参考资料：**[RT][Britain to back suspension of Russia from SWIFT – reports](https://www.rt.com/business/546874-uk-support-russia-swift-suspension/)
+据《每日邮报》2022年1月25日电，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）抨击了FDA限制Regeneron和Eli Lilly公司的COVID-19单克隆抗体治疗的使用，乃是“没有一丝临床数据支持”的；FDA还扩大了对吉利德科学公司（Gilead Sciences）的抗病毒COVID-19药物remdesivir的使用许可（以前只用于住院者）。
+
+**4. [科罗拉多州高中疫苗诊所在未经家长同意的情况下为学生进行中共病毒疫苗接种](https://www.thegatewaypundit.com/2022/01/undercover-students-expose-colorado-high-school-vaccine-clinic-administering-vaccinations-without-parental-consent-even-school-superintendent-assured-not-happen/)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_20220124-215204_Twitter-913x479-1.jpg)图片来源：thegatewaypundit.com
+据《门户网》2022年1月24日电，科罗拉多州丹佛市公立高中（Littleton Public Schools）上周五（21日）举办了（未经法定监护人/家长签字同意的）校内流动诊所（18岁以下）打疫苗活动，这违背了该校校长（Brian Ewert）曾对家长们的承诺；该学校的教育委员会成员必须在周四（27日）为此次[视频](https://twitter.com/libsoftiktok/status/1485787966664368128?s=20)做出答复。
+
+**5. [英国医学杂志要求获取制药公司的中共病毒疫苗数据](https://thenationalpulse.com/2022/01/26/british-medical-journal-demands-access-to-covid-vaccine-data-slams-morally-indefensible-pharma-firms/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/vaccine-6174832_1280.jpeg)图片来源：Kay Smythe
+
+据《国家脉动》2022年1月26日电，英国医学杂志（BMJ）正在要求制药公司公布COVID19疫苗的原始数据；FDA说它愿意每月公布500页的数据（需要9年多时间），但德克萨斯州的一名法官命令公布FDA用于许可辉瑞公司疫苗的5.5万页数据，而大药厂选择尽可能拖延公布数据的时间；COVID19疫苗的作用未知，而一半的民主党选民支持将未接种疫苗的人关进“集中营”。
 
 * * *
 
-*审核：文乐
-校对：小东
+*审核：阿伯塔*
+*校对：小东
 发稿：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
