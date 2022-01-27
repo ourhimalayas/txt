@@ -2,8 +2,8 @@
 ---
 
 
-## 大龄战友的奋斗（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917597/)
+## 火，生命的源泉
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917631/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

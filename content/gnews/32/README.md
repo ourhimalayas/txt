@@ -2,54 +2,28 @@
 ---
 
 
-## 美国国防医学流行病学数据库 所有常见疫苗伤害数据都出现飙升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916891/)
+## 2021年中共国GDP数据显示 中共国母猪又上树了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916905/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-95.jpg)
-周一，参议员罗恩·约翰逊（共和党-威斯康辛州）主持一场近五个小时，名为 “Covid-19: 第二种观点”的讨论会。
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-28.jpg)
+图片来源： 搜狐
 
-会上，俄亥俄州律师托马斯·伦茨 (Thomas Renz)介绍了美国国防医学流行病学数据库（DMED）的医疗计费数据，描绘了2021年美国军人的健康状况，令人震惊、不安。
+##### 根据2022年1月26日  网易报道，中共国至少28个省级行政区公布了2021年GDP数据。 
 
-DMED是武装部队健康监测部门（AFHSB）“基于网络的工具，用于远程查询国防医疗监测系统（DMSS）中包含的除去识别信息的现役人员和医疗事件数据。” 它包含了军队中在任何特定时期内，提交给医疗保险账单的任何医疗诊断的每个国际疾病分类（ICD）代码。因为是用于保险结算，准确率极高。三位军医向伦茨提交的查询数据显示，在2021年，几乎所有常见的疫苗伤害ICD代码都出现了令人震惊的突然飙升。
+##### 其中诞生了两个“四万亿”城市：北京市GDP达4.02万亿元；上海市GDP达到4.32万亿元，广东省GDP突破12万亿元，江苏紧跟全国第一广东其后；“后进生”安徽2021年GDP突破4万亿元。
 
-在伦茨计划在联邦法院使用的一份声明中，塞缪尔·西格洛夫（Samuel Sigoloff）、彼得·钱伯斯（Peter Chambers）和特雷莎·龙（Theresa Long）三位军医透露，2021年军队中登记流产的DMED代码比五年的平均数增加了300%。流产代码五年的平均数是每年1499个。而在2021年的前10个月，是4182个。伦茨在接受TheBlaze采访时解释，这些医生查询了从2016年到2020年数百个代码的数值，以建立一个基准的五年平均值。这些代码通常用于医学文献已确定为疫苗潜在不利影响的疾病和伤害。
+新闻称北京市GDP突破4万亿元得益于高端制造业**、医药等新兴产业和数字经济的拉动，尤其是医药制造业在疫苗生产带动下比上年增长****2.5****倍，**支撑了北京的经济增长。2021年1月到11月，**科兴中维、国药北生研两家新冠疫苗生产企业**累计贡献产值超2300亿元，而上海市则得益于其积极布局战略产业如集成电路、生物医药、新能源汽车制造等产业。
 
-这些数字在之前的所有年份都非常接近，包括2020年，疫情大流行的第一年，在疫苗发行之前。但是到了2021年，数字急剧上升，而2021年的数据甚至不包括11月和12月。
+从官方的数据来看，除了一直稳定发展的广东省和江苏省，这次“黑马”是安徽省——–这次仅以0.03万亿的微弱劣势，暂时排在上海之后，除此之外，**山东、天津提速，湖北****GDP****重回前七**** ，****山西实现反超，江西直追陕西。**全国各地从疫情后重振中站起来，逐步回归常态。
 
-除了流产诊断的激增（自然流产的ICD代码O03），癌症诊断几乎增加了300%（从五年平均每年38700例增加到2021年前11个月的114645例）。神经系统问题的诊断代码也增加了1000%，从基线平均8.2万个增加到86.3万个！
+分析称，随着中部崛起战略深入实施，在长江中游城市群“抱团”发展及高质量共建“一带一路”的带动，中部省份的增长将撬动各省GDP排名的重构。
 
-约翰逊参议员被这揭露数据震惊了，他要求伦茨澄清：“十倍，”他说。”那是十倍的比率？”
+靠着杀人的中共新冠疫苗拉动的GDP，靠着吃中国老百姓血肉拉动的GDP，因为毫无人性的封城，疫情清零政策，老百姓被饿死在家！中共官媒还在假大空骗老百姓！这又是文革式的洗脑宣传— 母猪会上树2.0！
 
-伦茨确认说：
+**新闻来源：**
 
-“每年82000人，一年内达到86万3000人。我们的士兵正在接受试验，受伤害，有时还可能被杀。”
-
-不幸的是，疫苗的灾难性影响可能比想象的还要严重，尤其是对年轻人来说。
-
-伦茨在听证会上没有提到但在采访中给出其他一些数字如下：
-
-心肌梗塞–增加269%
-
-贝尔氏麻痹–增加291%
-
-先天性畸形（军人子女）–增加156%。
-
-女性不孕症–增加471%
-
-肺栓塞 – 增加467%
-
-所有这些数字都属于门诊就诊，因为军队中的大量诊断都在此发生。但伦茨说，住院病人也有增加。其中一位军医的宣誓声明中写道：
-
-“我的专业意见是，上述流产、癌症和疾病事件的大幅增加是由于COVID-19‘疫苗接种’。”
-
-新闻来源：[https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
-
-
-
-> [Whistleblowers Reveal DoD Medical Data Showing Military Cancer Diagnoses HAVE TRIPLED Since The Rollout Of The Experimental Vaccines – Along With a 10x Increase in Neurological Disorders and a Near 5x increase in Female INFERTILITY – (VIDEO)](https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/)
-
-
+[https://www.163.com/dy/article/GUIVTKA00514BE2Q.html](https://www.163.com/dy/article/GUIVTKA00514BE2Q.html)
 
  
 
