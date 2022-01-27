@@ -2,50 +2,34 @@
 ---
 
 
-## 中共宣传机构对美国体育节目主持人进行谩骂和攻击
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915126/)
+## 有声|欧洲议员就强制疫苗怒斥马克龙
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915188/)
 
-作者：纽约香草山农场 – 四季
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月23日，郭文贵先生盖特转发了一则视频，在欧洲议会上，有议员质问法国总统马克龙说，在中共病毒肆虐期间，法国政府对公民的权利和自由制定了许多限制，而马克隆对法国的一切，却跟他在主持欧盟期间所作的完全相反。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+该议员表示，马克龙曾说过为欧洲没有死刑而感到骄傲，但是现在数以万计的欧洲人，正在因为中共病毒疫苗的副作用而死亡。强制接种中共病毒疫苗，对许多公民来说就是死刑和被执行死刑，每个公民必须有选择的权利。该议员强调说，谋杀就是谋杀，而尤其是对那些不知道真相和没受过教育的人，并不知道疫苗是没有经过验证和充分科学证明的谋杀人的生化武器。
 
+原文链接：[欧洲议员就强制疫苗怒斥马克龙](https://gnews.org/zh-hans/1906748/)
 
+音频处理/发稿：Daxia
 
-
-
-据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/01/25/chinese-propaganda-outlet-blasts-bob-costas-for-desecrating-olympic-spirit-by-criticizing-china/)1月25日报道，传奇体育主持人鲍勃·科斯塔斯（Bob Costas）在接受CNN记者布莱恩·斯特尔特（Brian Stelter）的采访时批评了中共国在新闻自由方面的糟糕记录，并批评国际奥委会允许在北京举行冬季奥运会。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Tom-Pennington_Getty-Images-24-640x480-1.jpg)Tom Pennington/Getty Images
-
-科斯塔斯表示，国际奥委会选择让一个公开监视运动员和记者的国家来举办奥运会，理应受到所有的鄙视和厌恶。
-
-对此，中共《环球时报》履行了其作为共产党政权喉舌和捍卫者的义务，对科斯塔斯进行了谩骂和攻击。
-
-无独有偶，在郭文贵先生昨天发布有关美国撤离驻中共大使馆的公告之后，中共今天声称美方撤离使领馆人员将极大增加感染病毒风险，也是对美国的公然挑衅和威胁。
-
-在新闻自由方面，中共国的侵权行为是众所周知的。据联合国观察组织称，中共国除了是全球第一大人权侵犯者之外，还从事科斯塔斯在其评论中所指控的所有侵犯新闻自由的行为和间谍活动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

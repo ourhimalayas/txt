@@ -2,36 +2,24 @@
 ---
 
 
-## 有声|中共首席专家承认：不管接没接种疫苗，都可感染奥密克戎
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915548/)
+## 【秘翻在线】美国海军向南海派遣两艘航母
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1915585/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月21日，中共疾病预防控制中心流行病学首席专家吴尊友，在接受媒体采访时表示，奥密克戎毒株的传染性强，不管接没接种疫苗，都会感染奥密克戎。
+**撰稿：Grace**
 
-他以天津疫情为例称，2022年1月12日天津公布的107例中共病毒病例，仅1例未接种过疫苗，其余均接种过，甚至有32例完成了加强针接种，接种疫苗对于预防感染效果非常有限。吴尊友同时承认，中共病毒疫情中，根据所谓历史经验与科学的“群体免疫”已失效，目前没有“一招制敌”的好方法。对于中共国是疫苗接种率全球最高国家之一，他称这并不意味着可以打开国门。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-26-at-7.03.40-PM.jpeg)图片来源：pesoreserve
+据美国《华盛顿时报》(The Washington Times) 1月26日报道，在中共国最近在台湾附近的空中入侵导致紧张局势加剧的情况下，两个海军航母战斗群正在有争议的中共国南海开展行动。
 
-原文链接：[中共首席专家承认：不管接没接种疫苗，都可感染奥密克戎](https://gnews.org/zh-hans/1906750/)
+美国海军周二宣布，由卡尔·文森号（the USS Carl Vinson）和亚伯拉罕·林肯号（USS Abraham Lincoln）领导的航母编队正在这个承载着世界大部分海上贸易的战略水道上共同演练通信、反潜战和空战演习以及海上拦截行动。
 
-音频处理/发稿：Daxia
+海军在一份声明中说，这些行动旨在 “加强海上综合行动和战斗准备”，并补充说，这些训练是在国际水域进行的，根据国际法是合法的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+据报道，在航母部署之前，中共国在周日和周一派遣了52架战机，包括H-6轰炸机和攻击机，靠近台湾南部。台湾国防部网站首次报道了战机入侵事件，该岛的新闻报道称该网站在周二遭到明显的网络攻击而关闭。
 
-**更多资讯，更多关注**
+报道称，航母演习涉及超过14000名水手和海军陆战队员。文森海军集团（Vinson naval group）司令丹·马丁少将（Rear Adm. Dan Martin）表示，这两艘航母显示了 “在需要时提供压倒性的海上力量以支持自由和开放的印度-太平洋地区 ”的能力。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+**新闻来源：** [Navy sends two carriers to disputed South China Sea](https://www.washingtontimes.com/news/2022/jan/25/navy-sends-two-carriers-disputed-south-china-sea/)
 
  
 

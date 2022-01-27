@@ -2,44 +2,34 @@
 ---
 
 
-## 埃内斯-坎特抨击NBA老板对维吾尔人权问题的漠视
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1915347/)
+## 美国‘授权撤离’ 中方表达不满
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1915408/)
 
-据《布雷巴特新闻》作者：[WARNER TODD HUSTON](https://www.breitbart.com/author/warner-todd-huston/)，2022年1月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2200-e1643236037559.png)图片源自Getty Images
-**埃内斯-坎特抨击了金州勇士队的共同所有者，认为他对中共国正在进行的针对维吾尔人的种族灭绝行为漠不关心，他说：“没有人关心维吾尔人的遭遇。”**
+整理/编辑：守望黎明
 
-周六，勇士队联合老板查马特-帕里哈皮提亚在接受All-In播客采访时，对数百万中共国维吾尔人被奴役的事实漠不关心，即使依然没有人关心他们的遭遇。对他来说，这不是一个值得费心的问题。
-
-埃内斯-坎特则抨击出生于斯里兰卡的帕里哈皮提亚也是种族问题的产生的“共犯”。
-
-**“当NBA说我们代表正义的时候，别忘了还有那些为了金钱和生意而出卖自己灵魂的人，比如勇士队的老板查马斯，”他说。“没有人关心维吾尔人的遭遇，”他在1月17日的推特上写道。**
-
-“当种族灭绝发生时，正是这样的人让它发生。”这位NBA球员补充道：“耻辱！”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2201.png)图片源自：推特
-当帕里哈皮提亚说没有人关心中共国的种族灭绝时，甚至连播客主持人都感到震惊。
-
-“没有人关心发生在维吾尔人身上的事情，好吗？你提出来是因为你真的关心，我认为你关心是件好事。我们其他人并不关心。我只是告诉你一个非常艰难、丑陋的事实。在我关心的所有事情中，是的，它排的很靠后。在我关心的所有事情中，它低于我的关注范畴。”帕里哈皮提亚说法，让播客主持人大卫-萨克斯感到震惊。
-
-帕里哈皮提亚补充说：“这不是关心。……我关心的是，如果中共国入侵台湾，我们的经济会在一瞬间发生变化。我关心气候变化。我关心美国衰败的医疗保健基础设施。但如果你问我，我是否关心另一个国家的一部分人？除非我们能照顾好自己，否则我不会把他们置于我们之上。”
-
-帕里哈皮蒂亚不屑地补充道：“我想很多人都相信这一点，如果这是个难以启齿的事实，我很抱歉。但每次我说我‘关心维吾尔人’时，如果我不是真的关心，我只是在撒谎，所以我宁愿不对你们撒谎，而选择告诉你们真相。这对我来说不是一个优先事项。”
-
-原文连接：[https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/](https://www.breitbart.com/sports/2022/01/18/shame-enes-kanter-freedom-blasts-nba-owner-saying-nobody-cares-about-uyghurs/)
-
-翻译：洛杉矶盘古农场 – TrueSky
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/RMDJ2B38LVL5SW471RQN.png)图片来源：CNBC
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+路透社北京1月26日 – 针对美国“授权撤离”外交领事人员一事，中国外交部发言人赵立坚1月26日回应，从最安全的地方撤出只会增加感染风险。中方已就此向美方表示严重关切和不满。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+他在外交部例行新闻发布会上称，中国疫情防控严谨科学，防疫策略行之有效，也很好保护了在华外国人士，充分照顾了外交领事人员的舒适度和正当权益。
+
+赵立坚称：“希望美方遵守和配合中方防疫规定，认真对待中方立场和关切，慎重考虑所谓外交领事人员‘授权撤离’问题。美方的决策逻辑令人费解，难以自圆其说。”
+
+消息人士对路透表示，美国国务院在考虑是否批准在中国的美国外交官和他们的家人离开，因为美国政府无法阻止中国当局对他们实施造成严重干扰的疫情控制措施。
+
+两名了解情况的消息人士表示，随着中国在距离北京冬奥会开幕不到两周的时间里加紧制定新冠疫情防控方案，美国大使馆1月24日向华盛顿发出了正式撤离的请求。
+
+原文链接：[美国“授权撤离”外交人员 中国外交部：从最安全的地方撤出只会增加感染风险](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2K00O8?irpc=932)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
