@@ -2,40 +2,37 @@
 ---
 
 
-## 新冠疫苗：医学证实青少年男性患心肌炎和心包炎风险最高
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1915065/)
+## 有声|欧洲议员就强制疫苗怒斥马克龙
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915188/)
 
-**编译: 真北007**
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月23日，郭文贵先生盖特转发了一则视频，在欧洲议会上，有议员质问法国总统马克龙说，在中共病毒肆虐期间，法国政府对公民的权利和自由制定了许多限制，而马克隆对法国的一切，却跟他在主持欧盟期间所作的完全相反。
 
-来自GATEWAY PUNDIT一月二十五日的新闻报道：
+该议员表示，马克龙曾说过为欧洲没有死刑而感到骄傲，但是现在数以万计的欧洲人，正在因为中共病毒疫苗的副作用而死亡。强制接种中共病毒疫苗，对许多公民来说就是死刑和被执行死刑，每个公民必须有选择的权利。该议员强调说，谋杀就是谋杀，而尤其是对那些不知道真相和没受过教育的人，并不知道疫苗是没有经过验证和充分科学证明的谋杀人的生化武器。
 
-美国医学协会杂志 (JAMA) 周二发布的一项新研究显示，在接种 mRNA COVID-19 疫苗后，青春期和年轻男性患心肌炎和心包炎的几率最高。
+原文链接：[欧洲议员就强制疫苗怒斥马克龙](https://gnews.org/zh-hans/1906748/)
 
-该研究基于美国 VAERS 的2020 年 12 月至 2021 年 8 月期间192,405,448 名 12 岁以上的心肌炎病例的数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2A1D2AFC-F26D-4CF6-AFD6-F7392545BF4A-1.jpg)
-接种疫苗后的主要结果是发生心肌炎，次要结果是心包炎。
+音频处理/发稿：Daxia
 
-根据这项研究，在接受至少 1 剂基于 mRNA 的 COVID-19 疫苗后，VAERS 收到了 1,991 份心肌炎报告（其中 391 份还包括心包炎），并收到了 684 份没有心肌炎的心包炎报告。在心肌炎患者中，中位年龄为 21 岁（IQR，16-31 岁），出现症状的中位时间为 2 天（IQR，1-3 天）。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-男性占心肌炎病例的 82%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/09C33003-9EE8-4A09-8BA7-86308CACF80A-1.jpg)
-该研究结论，接种基于 mRNA 的 COVID-19 疫苗后，发生心肌炎的风险在多个年龄和性别阶层中增加，并且在青春期男性和年轻男性的第二次疫苗接种后最高。
+**更多资讯，更多关注**
 
-**点评：此研究解释了为什么许多年青男性足球、橄榄球、篮球、和网球等运动员的倒地、受伤或猝死。真相需揭开，选择在个人，威胁强迫打疫苗是犯罪!**
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**原文链接：**
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/](https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**编辑：LILY**
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**发布：歪桑**
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-20220126
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
