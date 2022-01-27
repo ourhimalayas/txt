@@ -2,52 +2,38 @@
 ---
 
 
-## 美国通知北京，即日起授权撤离驻北京大使馆
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1916776/)
+## 什么是数字货币，它是如何运作的？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916811/)
 
-作者：纽约香草山—Ivy001
+整理/编辑：小红帽
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/I6B7NEWD7@WXS9C.png)图片来源：centralbanking.com
 
 
+随着美联储发布对创建国家数字货币的分析，了解数字货币是什么以及是如何运作的变得非常重要。
 
-1月25日新中国联邦发起人郭文贵先生于GTV紧急大直播，他代表新中国联邦及所有中国人，感谢以拜登总统和布林肯国务卿为首的美国政府。 直播中郭文贵先生透露，拜登总统和布林肯国务卿刚刚作出重大决定，并且，美国政府已经正式通知北京政府，授权即日起撤离美利坚共和国驻北京大使馆。
+加密货币革命正在推动美国政府考虑自己的数字货币。美联储发布了一项为期120天的公开评论研究，分析美国是否应该拥有自己的数字货币。超过84个国家正在探索或处于部署国家数字货币的高级阶段，包括中国、澳大利亚、墨西哥、美国、英国等。
 
-美国政府这一决定的意义对中共国的外交关系有重大的影响，美国驻北京大使馆对中共稳定政权有关键性的意义。 数十个国家驻北京大使馆，除地理上临近美国驻北京大使馆外，于外交关系上更依靠着美国大使馆。 美国政府决定授权撤离驻北京大使馆，将影响其他国家与中共的外交关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide6-15.jpg)
-回顾历史，美国政府决定对伊拉克发起军事行动之前，同样采取撤离美国驻伊拉克大使馆的措施。 本次美国正式授权撤离驻北京大使馆的决定，可能士国际局势动荡的信号。 喜马拉雅铁血组评论道，美国政府撤离驻北京大使馆，意味着中共国共产党政权的覆灭，倒计时已经开始。
+尽管加密市场及其风险有起有落，但数字价值、加密货币、稳定币和 NFTs仍然存在。特斯拉、谷歌和Paypal等公司现在都在使用加密货币运营，这只是一长串名单中的一部分。然而，研究表明，尽管越来越受欢迎，但大多数用户并不完全理解什么是数字价值，以及它们是如何工作的。
 
-对于美国授权撤离驻北京大使馆，中共外交部发言人赵立坚回应称：中国目前无疑是世界上最安全的国家。从最安全的地方撤出，只会极大增加美方人员感染的风险。美方的决策逻辑令人费解，难以自圆其说。
+美国的提议是创建一种中央银行数字货币（CBDC）。数字货币是仅以数字电子形式存在的货币。例如，虽然美元既可以作为人们可以持有的实物货币，也可以作为可以显示在账户余额中的电子货币，而数字货币永远不会以实物形式存在。 中央银行数字货币有很多优点，但也有一些缺点，这些都在争论之中。
 
-参考信息：
-1. [郭文贵先生和爆料革命的战友们在过去五年揭露了中共腐败和种族大屠杀、提前向西方警告了中共制造的黑暗即将到来、并最早说出中共病毒及其疫苗的真相！美国政府刚刚做出决定“授权撤离”美驻北京大使馆, 郭文贵先生代表新中国联邦对这一历史性决定向拜登总统和国务卿布林肯先生致以诚挚谢意！](https://gtv.org/video/id=61f092fe28a108147c62bba4)
-2. [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](https://gettr.com/post/pqk1be829a)
+美国的数字货币将由美联储发行、监管和监督。这意味着，美元的价值将支持数字货币。与稳定币一样，中央银行数字货币并不打算随着市场波动而波动。大多数加密货币并非在任何地方都被接受为付款方式，因此用户必须在使用它们之前进行兑换。但由于国家银行对中央银行数字货币进行监管，它们被视为是法定货币，这意味着美国的任何人都必须接受它们。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+数字货币最大的好处之一是每周7天、每天24小时都可以访问。常规银行交易可能需要数小时甚至数天，但数字货币交易、存款、取款和转账都是即时的。数字货币的交易费用要么是免费的，要么非常低，即使在全球范围内转移资金也是如此。数字货币也更具包容性。下载数字钱包比开设银行账户容易得多。电子钱包通常是免费的，没有维护费。数字货币还将改善大宗交易、退税和许多其他政府基金项目的管理。
 
-总编：zhong
-编辑：Kathy文艺
-校对/发稿：为真不破20
+数字货币的运作方式似乎超越了传统系统，那么数字货币的阻碍是什么呢？为什么数字货币还没有被接受？加密货币的流行正在导致大量新的加密货币、钱包和金融服务机构的诞生。这样丰富的数量很难跟上。加密货币还使用处理区块链的计算机操作。所需的能源数量巨大、昂贵，并且可能对环境产生影响。维持一个稳定的数字货币的价值也很复杂。数字货币也容易受到网络攻击和诈骗。这场数字加密革命中最重要的障碍是旧系统。数十万工人、以及成千上万家银行和金融机构仍在非数字经济中工作。
 
-**更多资讯，更多关注**
+新闻链接：[What Is Digital Currency, And How Does It Work?](https://screenrant.com/digital-currency-what-how-works/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*发布：tianzhihuan*
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

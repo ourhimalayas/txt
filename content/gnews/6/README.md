@@ -2,8 +2,8 @@
 ---
 
 
-## 亚洲的农场在2022年一定会整出大动静来
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917222/)
+## 2022是巨大的机会 Hpay1月份即将上线
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917470/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

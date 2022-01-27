@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥聊摇滚流行乐由来
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917185/)
+## 盘古龙头变鸟头、裕达、伊萨贝尔等宣传都是天意
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917356/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

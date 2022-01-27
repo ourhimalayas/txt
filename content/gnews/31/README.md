@@ -2,22 +2,23 @@
 ---
 
 
-## 中日财经爆┃“未老先退”之后 张一鸣卸任字节跳动法定代表人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916852/)
+## 俄罗斯威胁西方说如不给SWIFT就不给汽油
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916871/)
 
-撰稿：东京樱花团｜喜马拉雅的微尘
-![](https://lh5.googleusercontent.com/pp2-SW0P0e2QjOlIZgGwDqhYW7GXEU-5tqFftDvNsJ9gVwWi51z9ziqJfRnqEQZncgj6waSPArJ-YxzvvSB7atSPI0lBpdHLKkLNjiZnHaYw_Ud3aZCzyy-eVCZ6A_s8L3OPV38i)[*图片来源*](http://www.ftchinese.com/story/001094409?full=y&amp;archive)
-继去年卸任字节跳动董事长、CEO之后，近日，张一鸣又被爆卸任多家字节跳动关联公司法定代表人。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-49.jpg)
+图片来源：网络截图
 
-1月27日，天眼查App显示，近日，张一鸣退出北京字跳网络技术有限公司、北京字节跳动网络技术有限公司、北京石贝科技有限公司法定代表人，以及北京石贝科技有限公司经理、执行董事职务。
+零对冲网1月26日报道，在乌克兰边境状况出现缓和之际，俄罗斯高官说如果西方人通过威胁不让克里米亚用SWIFT支付系统，欧洲就得不到俄罗斯的石油，天然气和金属等。
+周二，英国首相布里斯·约翰逊说他正在与美国SWIFT全球支付系统讨论阻止俄罗斯用该系统，称之为是一个“强有力的武器”。
+尼古拉·茹拉夫廖夫，俄罗斯联邦委员会第二发言人告诉俄罗斯国家台TASS说如果这样的话，欧洲将要为此付出代价。
+SWIFT是一个支付系统，一种服务系统，因此，如果俄罗斯不能得到SWIFT服务，那么不仅我们得不到外币，买家也得不到（货物），欧洲人就得不到我们的货物。
+与此同时，美国正在与世界上主要的能源生产国和公司进行磋商，以作为后盾备力量供应欧洲。
 
-天眼查显示，北京字节跳动网络技术有限公司法定代表人由张利东接任。据媒体报道，2021年5月，字节跳动创始人张一鸣发布内部全员信，宣布卸任CEO一职。此后，其陆续退出多家字节跳动关联公司职务。
+##### 新闻来源：  [No SWIFT, No Gas: Russia Responds To Western Threats As US Tries To Orchestrate Workaround](https://www.zerohedge.com/political/no-swift-no-gas-russia-responds-western-threats-us-tries-orchestrate-workaround)
 
-信息来源：[**张一鸣卸任北京字节跳动网络技术有限公司法定代表人**](https://www.sohu.com/a/519345557_260616)
+#  
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

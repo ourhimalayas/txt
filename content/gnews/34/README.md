@@ -2,20 +2,34 @@
 ---
 
 
-## 秘翻在线 :美国持续推动伊维菌素治疗COVID-19病毒的使用
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916822/)
+## 随着Diem倒闭，脸书逐渐退出加密货币市场
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
 
-#### 撰稿：William
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2224.png)图片来源：taiwannews.com
-根据零对冲(Zero Hedge) 的报导, 佛罗里达州的一位医生说，当批准的治疗都失败时，因 CCP病毒住院的亲人的家人正在采取绝望的措施。杰克逊维尔市(Jacksonville)的独立内科医生爱德华多·巴尔博纳 (Eduardo Balbona) 说，在还为时不晚时，有些人通过将医院禁止的药物偷偷送给患者而取得了巨大的疗效。他说使用伊维菌素和其他未经官方批准用于治疗CCP病毒 的药物和补充剂成功地帮助数十名重病患者康复。
+整理/编辑：小红帽
 
-为了尝试任何可能有效的治疗方法，全美国各地的家庭已经提起诉讼，要求法官进行干预。在某些情况下，法官会下令医院允许使用其他治疗方法，例如伊维菌素，其中一些重病患者因此康复。但在其他案件中，法官站在医院一边，拒绝了家属的请求。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
 
-在新罕布什尔州(New Hampshire)，立法者现在正在考虑立法，使该州成为该州第一个将伊维菌素作为非处方药提供的州，并将其作为 CCP病毒 的受保护治疗药物。其他三个州的类似法案都失败了。美国食品和药物管理局 (FDA) 至今尚未批准使用伊维菌素作为 CCP病毒的治疗药物，尽管该药物早已用于治疗人类多种疾病。FDA 网页上甚至警告不要将伊维菌素用于 CCP病毒，包含正在将伊维菌素作为一种治疗方法的临床试验。
 
-[新闻来源](https://www.zerohedge.com/markets/florida-doctor-families-sneak-ivermectin-loved-ones-hospitals-covid-19-see-improvement)
+根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
+
+一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
+
+这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
+
+这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
+
+新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

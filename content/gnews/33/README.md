@@ -2,34 +2,33 @@
 ---
 
 
-## 随着Diem倒闭，脸书逐渐退出加密货币市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
+## 上海女子：房沒買成倒賠480萬
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1916840/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**撰稿：日本東京方舟農場 子辰**
 
-整理/编辑：小红帽
+據《大紀元》1月26日報道，上海一女子因爲銀行審批房貸造成延誤被起訴，法院判其賠償賣家近485萬元人民幣。網友稱其爲史上“最慘購房者”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
+據悉，伍女士去年5月計劃花1550萬元購買一套商業用房。在首付745萬元之後，由於銀行貸款審批造成延誤，無法按照合同規定時間付尾款，被賣方告上法庭。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-27.png)（圖片來自《大紀元》）
+法院判決伍女士支付違約金、房屋整修費等總計487.32萬元（違約金300萬、裝修款180萬、案件受理費7.32萬），並要求伍女士在判決生效後10天之內搬離房屋，並賠償賣家484.6萬元。
 
+對於這份判決結果，伍女士感到不可理喻，表示將申請再審。伍女士說，對方因爲這件事獲利近800萬，其中包括因房子升值的300萬，而我們損失了大概1000多萬。
 
-根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
+伍女士還稱，在超過約定時間後，房東和代理人還在微信羣裏催促貸款審批的情況，但是貸款一批下來，他們就突然消失了，緊接着沒幾天就收到了對方的上訴書，非常奇怪。
 
-一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
+該事件被曝光後，引發網民熱議。“上海最慘購房人稱自己損失超千萬”26日被推上熱搜排行榜。
 
-这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
+有網友說，銀行貸款的原因，是不可控的，並不是買家故意違約。也有網友質疑，賣方是想賣房子還是想拿違約金？
 
-这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
+大多數網友都站在了伍女士這一方，認爲銀行貸款審批延誤屬於不可抗拒因素，只讓伍女士一個人擔責，實在過分。
 
-新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
+參考鏈接：
+[https://www.epochtimes.com/b5/22/1/26/n13529889.htm](https://www.epochtimes.com/b5/22/1/26/n13529889.htm)
 
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材採編：子辰
+編輯：青城道姑、文順
+發佈：文曦
 
  
 
