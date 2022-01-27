@@ -2,22 +2,49 @@
 ---
 
 
-## 台湾加入外交抵制北京冬奥会的行列
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916910/)
+## 新中国联邦致美国政府感谢信 支持否认中共合法性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1916931/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2228.png)[*图片来源*](https://s.yimg.com/ny/api/res/1.2/6i0hynw5wDo.MWyhrFNYuA--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTU0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/Ah_lcg65KvwFgxzjkGhR7A--~B/aD01OTY7dz0xMDYwO2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/news_tvbs_com_tw_938/294d6f448d3ea1d32c0d41413e115890)
-北京冬季奥运即将举行，台湾教育部体育署今1月26日证实，考量过往前例，台湾政府将不派官方代表出席，由中华奥会率团，协助选手相关事宜与权益。北京冬奥会2月4日开幕，但已经有多国表态外交抵制，不派政府代表出席。
+作者：纽约香草山农场 – 文真
 
-教育部体育署26日发出说明证实，表示考量台湾参赛人数有限，以及过去官员多不出席的前例，政府将不派官方代表出席，由中华奥会率团到中国大陆，并办理选手体育竞赛相关事务，以及生活照顾服务等事宜，至于开闭幕活动，政府正针对代表团航班，以及选手参赛时间，和防疫考量做整体审慎评估，会再适时对外说明。
 
-只剩下一个多星期就要开幕，北京冬奥已经进入最后准备阶段，但包括美国英国，以及澳洲和加拿大都已经宣布，不会有政府代表出席，但运动员仍将正常参赛，而本届台湾共有四名选手参赛。
 
-消息来源：[**北京冬奥台表态  体育署：不派官方代表出席**](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E5%8F%B0%E8%A1%A8%E6%85%8B-%E9%AB%94%E8%82%B2%E7%BD%B2-%E4%B8%8D%E6%B4%BE%E5%AE%98%E6%96%B9%E4%BB%A3%E8%A1%A8%E5%87%BA%E5%B8%AD-154541097.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+1月25日，新中国聯邦、爆料革命发起人郭文贵先生代表新中国联邦，正式签署致美国政府感谢信，对拜登总统和布林肯国务卿做出关闭美国驻北京大使馆的决定表示感谢。 在新中国联邦官方文件中，强调中国共产党是跨国犯罪组织。 中共犯罪分子从武汉实验室释放致命中共病毒，是对无辜的中国人民和全人类的种族灭绝行为。 新中国联邦自2020年6月4日，正式成立以来，立於中国人民的替代管理机构地位。 并且，持续倡导和推动美国关闭驻北京大使馆。
+
+最后，文件中赞赏和支持美国通过关闭大使馆的行动，来强调中共政权的危险。 新中国联邦支持进一步否认中共是中国和中国人民的合法政府。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-8.jpg)
+参考信息：
+1. [新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信](https://gettr.com/post/pqk1be829a)
+2.[1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏；我们希望美国采取进一步行动否认中共是代表中国和中国人民的合法政府](https://gettr.com/post/pql5vo509f)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：zhong
+编辑：Ivy001
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
