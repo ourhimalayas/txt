@@ -2,26 +2,48 @@
 ---
 
 
-## 文贵爆料 1.27：国际金融组织欲查封中共高官海外资产
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1919206/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1919356/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-5.jpg)
-美授权撤离北京使馆一事，如一夜春风，引得千树万树梨花开。郭文贵先生在1月27日的大直播中说，现在相继有50多个国家要撤离在京使馆，而且100多个国际金融组织，要开始研究如何配合美国制裁中共高官，并查封其海外资产。
+编译：wenwu
 
-没想到甜蜜蜜运动来的如此之快，现在将近五十个国家要撤离在京使馆。世界上一共才有多少个国家，当年苏联举办的奥运会，才有49个国家参与。共产党现在恨不得叫人家爹，真正的中国共产党，只要看到外国人，只要皮肤长得不一样，就认为比咱重要。
+您若想了解全文报导内容，请点击标题链接
 
-一位巴基斯坦管外交的哥们说，“甜蜜蜜”这首歌太美了，我们马上也要撤，穆斯林的习惯是不能脱裤子的，更不能插肛门，但中共外交部马上说，你们军港投资的资金到位了，你们好好想想，总统一定要来，我们可以加码。中共外交部私下用钱交易和许诺，那真是无耻、卑鄙至极。我可以告诉你们，没有任何一个中国人有理由相信，中国外交部在世界上有尊严，它从来没有过。
+**1. [拜登政府在最高法院败诉后撤回对企业的中共病毒疫苗授权](https://www.cnbc.com/2022/01/25/covid-vaccine-mandate-osha-withdraws-rule-for-businesses-after-losing-supreme-court-case.html)**
 
-1979年中美恢复外交，建了大使馆，中共才合法地把台湾踢出去。美国这次授权撤离绝对不是绝交，也不是断交，是不断不交，弄死它。这个决定跟两党没关系，是美国人民的决定，千万记住这不是政治因素，而是由美国国家安全考虑决定的。我再说一遍，美国二十年来从未停止过要干掉这几个独裁国家，跟任何总统和党派没关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/106986631-1638989814343-gettyimages-1236325596-775732771.jpeg)图片来源：*Drew Angerer | Getty Images*
 
-今天再告诉大家一个好消息，昨天下午，最起码一百多个国际金融机构和三十几个大的国际公益机构，要开始研究如何配合美国制裁中共高官，并查封其海外资产，这一步绝不亚于“不断、不交”的授权撤离，一旦宣布，断交是抽你的筋，而查封资产就是放你的血。
+据《CNBC》2022年1月25日电，职业安全与健康管理局将从周三（26日）星期三起根据最高法院的裁决来撤销拜登政府对百人以上企业的疫苗授权规定；拜登已经呼吁企业自愿执行这些要求；因医疗保健专业人员在感染了Omicron变体后被迫请病假，许多美国医院正面临着卫生人员短缺的问题。
 
-甜蜜蜜你笑得甜蜜蜜，好像花儿开在春风里……啊，在梦里，在梦里！郭先生兴奋地哼起了这首歌。
+**2. [德国部长：针对未接种疫苗者的压制性防疫措施是基于“软件”错误](https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)**
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-32.png)图片来源：Wahagen Khabayan
 
-[2022年1月27日 文贵大直播](https://gettr.com/streaming/pqv1x99d12)
+据《国家脉动》2022月1月24日电，德国卫生部长卡尔·劳特巴赫（Karl Lauterbach）在全国第二大城市汉堡（Hamburg）发生了诋毁如今的大流行是未接种疫苗者所导致的数月后，决定出来承认这是计算机“[故障](https://twitter.com/Tim_Roehn/status/1475580686211829761?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1475580686211829761%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)”得出的错误结论（Hamburg’s Social Services的数据可以被故意修改）；近10万名德国公民在最近几天参加了反疫苗强制令的抗议活动。
+
+**3. [FDA被指控试图强迫美国人接种不起作用的中共病毒疫苗](https://www.dailymail.co.uk/news/article-10440181/FDA-faces-criticism-restricting-COVID-antibody-treatments.html)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1-10.png)图片来源：dailymail.co.uk
+
+据《每日邮报》2022年1月25日电，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）抨击了FDA限制Regeneron和Eli Lilly公司的COVID-19单克隆抗体治疗的使用，乃是“没有一丝临床数据支持”的；FDA还扩大了对吉利德科学公司（Gilead Sciences）的抗病毒COVID-19药物remdesivir的使用许可（以前只用于住院者）。
+
+**4. [科罗拉多州高中疫苗诊所在未经家长同意的情况下为学生进行中共病毒疫苗接种](https://www.thegatewaypundit.com/2022/01/undercover-students-expose-colorado-high-school-vaccine-clinic-administering-vaccinations-without-parental-consent-even-school-superintendent-assured-not-happen/)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot_20220124-215204_Twitter-913x479-1.jpg)图片来源：thegatewaypundit.com
+据《门户网》2022年1月24日电，科罗拉多州丹佛市公立高中（Littleton Public Schools）上周五（21日）举办了（未经法定监护人/家长签字同意的）校内流动诊所（18岁以下）打疫苗活动，这违背了该校校长（Brian Ewert）曾对家长们的承诺；该学校的教育委员会成员必须在周四（27日）为此次[视频](https://twitter.com/libsoftiktok/status/1485787966664368128?s=20)做出答复。
+
+**5. [英国医学杂志要求获取制药公司的中共病毒疫苗数据](https://thenationalpulse.com/2022/01/26/british-medical-journal-demands-access-to-covid-vaccine-data-slams-morally-indefensible-pharma-firms/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/vaccine-6174832_1280.jpeg)图片来源：Kay Smythe
+
+据《国家脉动》2022年1月26日电，英国医学杂志（BMJ）正在要求制药公司公布COVID19疫苗的原始数据；FDA说它愿意每月公布500页的数据（需要9年多时间），但德克萨斯州的一名法官命令公布FDA用于许可辉瑞公司疫苗的5.5万页数据，而大药厂选择尽可能拖延公布数据的时间；COVID19疫苗的作用未知，而一半的民主党选民支持将未接种疫苗的人关进“集中营”。
+
+* * *
+
+*审核：阿伯塔*
+*校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
 
  
 
