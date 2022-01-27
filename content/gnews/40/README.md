@@ -2,40 +2,19 @@
 ---
 
 
-## 中共回应郭先生紧急直播实属色厉内荏
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918929/)
+## 文贵大直播 1/27 不断不交 中共已被套上绞索
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1919074/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月25日，在郭文贵先生关于美国撤回驻北京大使馆的紧急直播后的两个小时，中共喉舌媒体迅速做出了回应，并将该回应称之为所谓的“深夜独家新闻”。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-5.jpg)图片来源 GTV
+1月27日文贵大直播，因为恰好刚过爆料革命诞生5周年，郭文贵先生作为发起人在纽约现场坦诚心中无限感慨。尽管人心人性宁愿认假不愿信真，但中共在此次冬奥会前夕遭遇美国使馆授权撤离开始，已被牢牢套上灭亡的绞索，而且是从未有人提到过的方式：不断不交。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-12.jpeg)
+郭先生通过对美国历经中共文革、八九六四、南海撞机事件都从未有过授权撤离的深刻分析；通过对如同多米诺骨牌倒塌一般约50个国家纷纷开始和中共讲数；通过对100多家国际金融和NGO组织即将实施对中共的制裁；通过对《甜蜜蜜》一首歌曲竟然一夜之间被中共全网封杀的事一一解读，并且首次爆出美国将会不断不交，把灭共的绞索渐次收紧，直至中共消失。
 
-与中共以往作风别无二致的是，该媒体不仅在报道中对“消息来源”含糊其辞，其甚至在仅陈述部分事实外，还不忘用大段陈词滥调向美国叫嚣。更甚至，该媒体还在报道中扬言，美国这种做法将升级其与中共和俄罗斯的紧张关系，并将使其面临更大的风险。而后，中共外交部发言人赵立坚还在第二天的记者会上威胁称，美国“将极大地增加感染中共病毒的风险”。
+邪恶的共产主义使得人们不愿信真、信善，但此次甜蜜蜜运动直至灭共目标达成，将再次用事实来唤醒人们回归信仰。
 
-目前，多家西方媒体已经通过渠道证实了郭先生在直播中的声明，即美国政府将以防疫为由授权撤离驻中共国的使领馆。
+【来源链接】https://gtv.org/broadcast/watch/61f297e628a108147c63ad38
 
-此外，郭文贵先生还在25日的直播中透露，中共如果继续阻挠美方的病毒溯源工作，或是再度向美国及世界释放更多的中共病毒，美国不仅会在经济贸易上与中共脱钩，还将毫无选择地跟中共开战。
-
-参考链接：
-1）[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
-2）[美国考虑授权撤离驻华使领馆 免受中国严格防疫影响–消息（更新版）](https://www.reuters.com/article/usa-diplomats-china-health-measures-sour-idCNKBS2K002Z)
-3）[外交部回应美方大阴招！](https://news.sina.com.cn/c/2022-01-26/doc-ikyamrmz7564637.shtml)
-4）[1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告](https://www.gettr.com/post/pqo4oz98c6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：飞虹
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

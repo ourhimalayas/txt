@@ -2,33 +2,36 @@
 ---
 
 
-## 2022/01/26 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1918768/)
+## 郭先生解释什么是最好的教育
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918945/)
 
-1. 1月25日，辽宁沈阳被通报出现新冠病毒确诊病例。中共政府以疫情被扩散的借口，持续加大了对各地省
-2. 份的军控状态。（视频只取0:22～1:09，可1.2倍加速播放）
-3. 1月25日，河北保定。被中共政府通报出现一例新冠病毒确诊病例。（视频可1.2倍加速播放）
-4. 1月25日，黑龙江东宁市被中共政府实行封城，高速公路路口被管控，只能进不能出。（只取视频前40秒，可1.2倍加速播放）
-5. 1月26日，北京。进京需要24小时的核酸检测阴性证明，警察会在各路口设卡上车查验。
-6. 1月25日，深圳火车站春运返乡高峰，民众出行需经过层层关卡的严格审查。
-7. 1月26日，面对美国拜登政府已经正式通知北京政府，从即日起授权撤离美利坚合众国驻北京大使馆的行
-8. 为。中共政府紧急放出大外宣媒体洗脑民众，意图持续挑起利用中共大陆的民族主义情绪以自保。
-9. 在22日出现乘客被地铁屏蔽门夹住导致死亡事件后。1月25日，上海地铁再次被拍到有乘客被卡在车厢门和屏蔽门之间。
-10. 1月24日，山东省肿瘤医院儿童肿瘤科。马上过年了，依然有很多全国各地的小患者来山东省肿瘤医院治疗。中共国癌症泛滥的原因是什么？
-11. 湖北武汉。年轻人在自诉其花光三代积蓄购买的商品房已经烂尾一年。房企未履行职责，业主无处维护自己的权利。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月24日的大直播中，郭文贵先生谈到了教育问题。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-13.jpeg)
 
-* * *
+郭先生表示，所谓最好的教育就是把人的兴趣激发出来，让每一个人都可以发挥自己的主观能动性。另一方面，在离开学校后 ，一个人会很快将他学到的东西搁置脑后甚至遗忘，但随后他又会在实践中找到自己，这才是最好的教育。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+郭先生还回顾了他自己经历，从老家古城，到八九六四，再到清风看守所，正是这些独特的经历让他从一个穷人家的孩子蜕变成了一个懂历史、有信仰且追求民主自由的领军人物。因此，郭先生表示，人生的经历是一个人最好的老师。
 
+此外，在谈到对孩子的教育时，郭先生建议战友们，要尽可能少地要求孩子，也要让孩子开心并多样的学习。同时，不要强求孩子学习他们不愿意学的部分，而是应该多鼓励孩子参与到他们喜欢的学习中。
 
-编辑：【英国伦敦喜庄园编辑部】
+参考链接：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

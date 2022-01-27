@@ -2,45 +2,42 @@
 ---
 
 
-## 前纽芬兰和拉布拉多省省长布赖恩·佩克福德（Brian Peckford）发起对联邦航空旅行限制的诉讼
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1919835/)
+## Eglise医生给高血压患者服用羟氯喹、青蒿素保健品的建议
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1919935/)
 
-**编译: 真北007**
+G-TV视频链接：[https://gtv.org/video/id=61f2aaaa87664c47acdad160](https://gtv.org/video/id=61f2aaaa87664c47acdad160)
 
+**南希：**战友问说今天刚查的血压是193，他问说可以羟氯喹加锌预防吗？谢谢。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6F68ECBF-D78F-4151-A611-55AEA6C99306.jpeg)图片来源：网络
-来自VOCM一月二十七日的新闻报道：
+**Dr.Eglise****：**高血压？血压相当高，硫酸羟氯喹有一个副作用，它不是很普遍，但是有，就是它对心肌细胞的电生理有影响，会延长心脏QT间期，让它拉长，就是你的心脏心电图会不规律，然后服用者会有心脏胸前区不舒服，隐隐痛，然后就是心悸这些症状。但是高血压的人呢，如果他的心率正常的话可以用。
 
-前纽芬兰和拉布拉多省省长布赖恩·佩克福德正在对联邦政府的 COVID-19 航空旅行限制提起诉讼。
+但是我建议，我们现在有青蒿素保健品，因为现在我们普遍的发现青蒿素保健品对降血糖、降血压都非常有效，我不能保证每一人，但是我们很多的服用者他们都有这个普遍体验，原先的高血压血压下降了，特别是原先依赖胰岛素的高血糖，他们可以脱离胰岛素。
 
-在提交给联邦法院的文件中显示，佩克福德是代表“宪法自由司法中心”的主起诉人，该组织正在挑战渥太华禁止未接种疫苗的人旅行的禁令的有效性。
+因为青蒿素保健品的品牌实在是太多了，而且同一个品牌不同的浓度、不同的剂型也太多，所以别人用了这个有效，你用了不一定有效，也许你用的是不同的青蒿素保健品，也许相同的保健品不同的剂量，所以这个很难相比，但是我们普遍的印象就是青蒿素保健品对高血糖、高血压有效。
 
-该诉讼称，约有 600 万加拿大人，即总人口的 15%，被禁止旅行，以及帮助生病的亲人、探望家人和朋友、工作、国际旅行度假，以及过普通的生活。
+视频听写：青桐；
 
-佩克福德是 1982 年加拿大《宪法》和《权利与自由宪章》唯一幸存的签署者，他认为这是“简单的歧视”，法院必须介入。
+编辑整理：海贼王M.D.LUFFY；
 
-他声称，很明显接种疫苗并不能阻止人们感染新冠病毒，也不能阻止他们传播病毒，并补充说渥太华没有表明该政策使飞行更安全。
+字幕文件制作：小满；
 
-佩克福德说，特鲁多总理只是在全社会“播种分裂”， 称未接种疫苗的人为“种族主义者”、“女性歧视”、“反科学”和“极端主义者”。
+视频制作及上传：Cindy；
 
-他说法院将被要求尽快审理此案，并补充说加拿大是发达国家中唯一一个禁止未接种疫苗的人乘飞机旅行的国家。
+G.News发布：小满；
 
-**点评：什么是正义、正义感、和有正义感的人?**
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
 
-**原文链接：**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[Former Premier Brian Peckford Leading Lawsuit Against Feds Over Air Travel Restrictions](https://vocm.com/2022/01/27/former-premier-brian-peckford-leading-lawsuit-against-feds-over-air-travel-restrictions/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**编辑：LILY**
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**发布：歪桑**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-20220127
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
-
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 
