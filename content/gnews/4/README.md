@@ -2,34 +2,99 @@
 ---
 
 
-## 爆料革命战友谈美国撤回中共大使馆的意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918920/)
+## 1月26日老班长战友联盟答疑，G系列相关信息文字版
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1919034/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月25日郭文贵先生向全世界公布美国政府决定撤离美利坚合众国驻中共国北京大使馆后，爆料革命的战友们也在直播连线中谈论了这一举动的重大意义。
+非官方整理，一切信息以联盟答疑音频为准
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-16.jpeg)
+G-听写： qiutian（邱甜）（2段）； ohbigant；鲁西西
 
-战友们表示，这或将意味着，继二战之后，美国再次选择站在正义的一边，并且将和中国人民站在一起。同时，撤离大使馆也是对中共政权的巨大否定，特别是赶在冬奥会前的时间点，这预示着美国此举将成为引发全球灭共浪潮的第一步。
+（时段：开始～33:00 qiutian（邱甜））
 
-郭先生对此总结道，美国驻北京大使馆一直被中共内部认定为定海神针。如今，这个定海神针的撤离意味着美国已经在全世界范围内认定中共政府不合法。自此，对抗中共的一方将必然成为正义的一方，这一结论影响深远且巨大。
+1、问：GTV发股有进展了吗？
 
-参考链接：[2022年1月25日 紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](https://gtv.org/video/id=61f00abe28a108147c625eb0)
+答：联盟有个专门的小组在继续审核，第一批在复核了不着急，第二批完成了保密协议的签订，股东协议也在发放之中，但是还没有完全完成。第三批大概在一两周后启动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+2、问：之前在原来的俄罗斯农场有人民币借款，现在需要做什么吗？
 
-总编：Irene木木
-编辑：文特
-校正/发稿：谐趣园
+答：新西兰农场有和俄罗斯对接的义工，可主动联系义工也可联系我。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3、问：有GTV上市的消息吗？
+
+答：目前还没有确定的日期。
+
+4、问：原VOG的投资已经填了相关表格，需要个人参加什么申述吗？还是等联盟通知就行了？
+
+答：你可以等联盟通知这是没问题的，目前款还是在SEC控制下，每个战友都有权利去申述和投诉，直接找SEC为什么还不退回我们的钱？按照和解协议去年底就应该把钱退回了。
+
+5、问：GTV投资的审查第二批以后的在今年6月的期限前预计有可能完成吗？
+
+答：一定会完成的。
+
+6、问：在原俄罗斯农场用人民币汇的款怎么对帐？到现在没人和我对帐过。
+
+答：请原俄罗斯农场的所有战友，还没有到新西兰农场工作组登记的，去新西兰农场找文晓，文疯而动，我本人联系，尽快完成登记对账。
+
+7、问：2020年底加入农场的战友，算老战友吗，4月份前可以投GTV重建吗？
+
+答：老战友的定义是指过去有过投资的，11月1号前有过任何G系列投资的。
+
+8、问：有HPAY的最新消息吗？
+
+答：一月31号上线。
+
+9、问：喜贷款什么时候出来？
+
+答：希望5个月左右出来。
+
+（时段：33:00～49:30 ohbigant）
+
+10、SEC冻结款4月30日前没有退款，怎么参与G-TV投资？
+
+答：保留投资G-TV投资的权利，股票会暂时让机构代持，会给足够的时间让大家拿到退款去完成投资G-TV。
+
+11、美加日的G-TV重建进度怎么样？
+
+答：只有美国比较特别，需要等待。加拿大和日本与其他国家进度一样。
+
+12、买G|CLUBS的支票没有入账？
+
+答：要么废掉要么召回支票（和农场沟通好情况），或是考虑HDO支付。
+
+13、福利币10%退回个人账户怎么样了？
+
+答：个人KYC没有代持关系的，10%福利币在个人账户。联盟代持的需要成功核对后发回账户，没有喜币账户只能联盟代持。目前联盟不支持帮大家处理喜币的交易行为，需要有资质的机构按照大家的意愿来操作。
+
+（时段：49:30～结束 鲁西西）
+
+🍀POS机的培训要等拿到当地的支付牌照，进入结算系统时候。具体哪些国家可以，会有公告出来。
+
+14、个人自留的HCN能否低于10%，需要怎么操作？
+
+答：前提是你自己过了KYC，这个只有上限，不设下限。具体操作等联盟公告。
+
+15、与战友合资买G|CLUBS卡，涉及的福利币被战友代持，那10%自留的HCN怎么才能到我账户？
+
+答：如果已过KYC，经过联盟核对农场协调后按个人意愿会分到各自账上。股票部分也按比例各自持有。
+
+合作投资的，如果没有事先约定都是按出资比例分配利益。如双方产生法律纠纷，联盟会锁住福利，直到争议解决。联盟有仲裁小组，也会帮大家协商解决。
+
+G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
+
+语音链接：
+
+[https://mega.nz/file/wDZy1ZrJ#l-btYC2m\_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc](https://mega.nz/file/wDZy1ZrJ#l-btYC2m_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc)
+
+https://mega.nz/file/wDZy1ZrJ#l-btYC2m\_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc
+
+
+
+https://mega.nz/file/wDZy1ZrJ#l-btYC2m\_qjxICunmjFZF2qXqjTJeM0I3hoLdNivcNc
+
+审核：夏目&山竹
+
+发布：夏目&山竹
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,19 @@
 ---
 
 
-## 郭先生解释什么是最好的教育
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918945/)
+## 文贵大直播 1/27 不断不交 中共已被套上绞索
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1919074/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月24日的大直播中，郭文贵先生谈到了教育问题。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-5.jpg)图片来源 GTV
+1月27日文贵大直播，因为恰好刚过爆料革命诞生5周年，郭文贵先生作为发起人在纽约现场坦诚心中无限感慨。尽管人心人性宁愿认假不愿信真，但中共在此次冬奥会前夕遭遇美国使馆授权撤离开始，已被牢牢套上灭亡的绞索，而且是从未有人提到过的方式：不断不交。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide4-13.jpeg)
+郭先生通过对美国历经中共文革、八九六四、南海撞机事件都从未有过授权撤离的深刻分析；通过对如同多米诺骨牌倒塌一般约50个国家纷纷开始和中共讲数；通过对100多家国际金融和NGO组织即将实施对中共的制裁；通过对《甜蜜蜜》一首歌曲竟然一夜之间被中共全网封杀的事一一解读，并且首次爆出美国将会不断不交，把灭共的绞索渐次收紧，直至中共消失。
 
-郭先生表示，所谓最好的教育就是把人的兴趣激发出来，让每一个人都可以发挥自己的主观能动性。另一方面，在离开学校后 ，一个人会很快将他学到的东西搁置脑后甚至遗忘，但随后他又会在实践中找到自己，这才是最好的教育。
+邪恶的共产主义使得人们不愿信真、信善，但此次甜蜜蜜运动直至灭共目标达成，将再次用事实来唤醒人们回归信仰。
 
-郭先生还回顾了他自己经历，从老家古城，到八九六四，再到清风看守所，正是这些独特的经历让他从一个穷人家的孩子蜕变成了一个懂历史、有信仰且追求民主自由的领军人物。因此，郭先生表示，人生的经历是一个人最好的老师。
+【来源链接】https://gtv.org/broadcast/watch/61f297e628a108147c63ad38
 
-此外，在谈到对孩子的教育时，郭先生建议战友们，要尽可能少地要求孩子，也要让孩子开心并多样的学习。同时，不要强求孩子学习他们不愿意学的部分，而是应该多鼓励孩子参与到他们喜欢的学习中。
-
-参考链接：[2022年1月24日 文贵大直播：最近几天全球疫苗政策变化和疫苗灾难信息；这两天北京发生了什么-冬奥会最新进展；最新世界经济金融故股市的重大变化](https://gtv.org/video/id=61eea3ca28a108147c61a4dc)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

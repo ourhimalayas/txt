@@ -2,27 +2,25 @@
 ---
 
 
-## 所有投资的一个核心目的是什么？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918898/)
+## 樱花数据分析│奥密克戎爆发 疫苗接种率越高死亡更多
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1918956/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句5.jpg)
-所有投资的一个核心目的是什么？
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2264.png)
+制图：东京樱花团/chuansang
 
-投资者要赚钱，是合约信誉。
+奥密克戎毒株具有较低的死亡率，这在全世界范围内被观察到。在其最初发现国南非以及周边四国，本轮疫情死亡人数峰值平均仅为以往的0.27倍。但在诸多欧美国家，本轮疫情死亡人数峰值平均达到了以往的0.49倍，为南非等国的1.8倍。
 
-但记住，集体决定集体投资不能极少数人获利，这是投资的法则。
+此处统计的欧美国家两针接种率平均达到75.4%，而南非周边诸国仅为27.5%。这个数据显示，疫苗高接种率不但没有带来所宣传的减少死亡的预期效果，反而增加了80%。
 
-2021年11月28日大直播
+结合我们之前的统计，高疫苗接种率同时带来了更多的感染人数。
 
-发布： 星谕
+大规模接种疫苗，是一场完完全全彻头彻尾的失败。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
