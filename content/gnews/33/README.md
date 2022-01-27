@@ -2,46 +2,30 @@
 ---
 
 
-## 参议员科顿：美国应该像支持乌克兰一样支持台湾
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915151/)
+## 美日峰会共识高 安全与经济均抗衡中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1915213/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2022/01/JudicialWatch_Social_ChineseSwab_1200x627_v1-768x4013-1.jpg)图片来源：美国之音
+据美国之音1月26日报道，日本首相岸田文雄21日通过视频与美国拜登总统进行首次正式的美日首脑会谈。双方在区域安全与经济上达成共识，明确承诺反制中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+双方反对中共国在中国海区域试图片面改变现状并进行经济威胁，并在印太地区日益增强军事威胁。日方认为由中共国主导印太地区并不符合日本的国家利益。日本作为一个国家，受益于美日同盟和自由国际秩序。岸田和拜登就新设的美日“经济版2＋2”会谈计划达成共识，推进印太地区基础设施建设，以应对中共国的一带一路。但日中经济依存度非常高，目前不可能脱钩。
 
+岸田与拜登在会谈中确认台湾海峡的和平稳定，强化与台湾的沟通。虽然习近平在短期内没有攻打台湾的急迫性，但目前美中的军力差异正朝着对中共国有利的方向发展。双方也就维吾尔族与香港人权问题交换了意见。
 
+美日峰会的话题绕不开中共和中共带来的一系列威胁。中共已经成了世界各国的头号威胁，尤其是中共国的近邻日本、台湾等国。中共对美国也是同样的威胁，没有一个国家、一个人是安全的，只要中共存在一天。
 
+新闻参考链接：[https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html](https://www.voachinese.com/a/US-Japan-leaders-to-talk-economics-security-20220126/6413122.html)
 
+* * *
 
-据[布莱特巴特新闻网](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)1月25日报道，在福克斯新闻频道周二播出的 “故事”节目中，参议员汤姆·科顿（Tom Cotton）认为，美国应该向台湾提供更多援助和支持。
-
-科顿表示，中共和普京都想推美国其全球超级大国的地位。美国应该从过往的绥靖、和解和软弱中吸取教训。因为对美国来说，中共国相比俄罗斯对美国构成了更大的威胁。
-
-科顿认为，美国应该向台湾提供和乌克兰一样多，或比其更多的武器、外交、财政和政治支持，以避免台湾发生今天在乌克兰边境看到的危机。台湾对美国来说比乌克兰要重要得多。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**更多资讯，更多关注**
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

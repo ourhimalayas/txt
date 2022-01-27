@@ -2,38 +2,41 @@
 ---
 
 
-## 有声|美医生华盛顿反疫苗集会火力全开
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915199/)
+## 美国国家安全官员审查阿里巴巴云服务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1915293/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-盖特消息，在1月23日华盛顿举行的，由数万人参加的反对强制疫苗抗议中，皮埃尔·科里医生强烈抨击药企将利润置于人命之上。
+据《国会山》记者：Monique Beals，2022年1月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2199-e1643234820429.png)图片源自：美联社/Ng Han Guan
+拜登政府正在评估阿里巴巴的云服务是否对美国国家安全构成威胁。
 
-科里医生说，人们正在打一场由药企发动，针对人类健康和持续了数十年的战争，各大药企一直将利润至于人命之上。而人类损失惨重，因此这场战争已经发展成为反人类罪行。
+据路透社报道，三位消息人士说，这次审查将调查该公司是如何存储美国客户的数据，并试图确定中共国政府是否有机会接触这些数据。
 
-科里表示，在中共病毒肆虐期间，许多国家卫生机构发布的每一项政策，都被各大药企所控制。安全、有效、广泛的，而可以治疗中共病毒的药物的信息，已经长达两年的时间都被压制住了。而这是各大药企针对已有药物再利用的战争。
+**据路透社援引其中一位消息人士和一位前特朗普政府官员的话说，前总统特朗普的商务部此前对阿里巴巴的云服务提出了担忧，拜登政府在就职后对该公司进行了正式审查。**
 
-原文链接：[美医生华盛顿反疫苗集会火力全开](https://gnews.org/zh-hans/1906749/)
+此次调查在美国政府加强对中共国科技公司与美国公司交易审查之际展开。美国监管机构可以选择要求该公司降低某些风险，或者完全禁止美国人使用该服务。
 
-音频处理/发稿：Daxia
+尽管阿里巴巴拒绝发表评论，但该公司最近的年度报告提到了与美国公司合作的担忧，称美国客户“可能被禁止继续与我们开展业务，包括履行与我们相关……云服务协议下的义务”，路透社指出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+阿里巴巴在美国的云计算业务年收入约为5000万美元，只是该公司全球数百亿年收入的一小部分。
 
-**更多资讯，更多关注**
+**路透社还报道说，2020年8月，特朗普政府警告，不要使用像阿里巴巴这样的中国云计算供应商，以防止美国公民最敏感的个人信息和我们企业最宝贵的知识产权……被储存和处理在我们的外国对手可以访问的云计算系统上。**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在中共国和美国之间的紧张局势不断升级之前，阿里巴巴在硅谷开设了中国以外的第一个云计算中心。然而，一位知情人士告诉路透社，在特朗普担任总统期间，由于中美关系的紧张加剧，该公司缩减了在美国的扩张努力。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+国会已向阿里巴巴和商务部征求信息反馈。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+文章来源: [https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA](https://www.reuters.com/article/us-china-xinjiang-idUSKCN2AT1BA)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+翻译：洛杉矶盘古农场 – Nelson
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – WenXiong
+编辑：洛杉矶盘古农场 – 子萍
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

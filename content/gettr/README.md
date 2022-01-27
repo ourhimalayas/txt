@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/27/2022 1:51 AM (UTC)`
+
+1月26号，Hcoin To the Moon MV上线第48天位列澳门🇲🇴iTunesMV榜首🥇，累计共35次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共31次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1913284/<br/><br/>Jan 26, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 48 Day of Launch, hit No .1 for 35 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 31 times in total🎉🎉🎉<br/><br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 1/27/2022 1:34 AM (UTC)`
 
 1月26日：尊敬的战友们好，明天继续大直播，下面这个照片是我在清风看守所出来后．与处男英雄的母亲见面后．的当天拍摄的照片．几十年来从来没看见过，这是昨天．由我们英雄👍👍👍👍👍👍🌹🌹😝的哥哥发给我的！非常震惊，非常感动。［1月17日：<br/><br/>主持：小王子&佳佳同学<br/>出镜嘉宾： RossiChen<br/>                    摔跤的雅阁<br/>                    台湾大牛&台湾巴黎<br/><br/> 推流：墨镜<br/><br/>被邀出席：灭共者．MILES．郭文贵<br/><br/>1月30日<br/>主讲：摇滚巨星郭先生<br/>主持：Eric<br/>出镜嘉宾：德华<br/>                   正义小Sarah<br/>                   千叶草<br/><br/> 推流：墨镜］
@@ -145,13 +151,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1/25/2022 Miles Guo’s Big Announcement: The CCP, which has created one humanitarian disaster after another in China and around the world, is hosting the Winter Olympics without environmental protection, human rights, freedom of expression, and personal freedom. The Winter Olympics is a huge insult to the Olympic spirit and will result in immeasurable harm and human rights violations against the Chinese people. The International Olympic Committee has betrayed the Olympic spirit and sold its soul and principles!<br/><br/>1/25/2022 文贵重大公告：在中国和全世界制造了一场又一场人道灾难的中共竟要在没有环境保护、没有人权、没有言论自由和人身自由的情况下举办冬奥会，这是对奥林匹克精神莫大的侮辱，对中国人民带来的伤害和人权的侵犯将无法估量；国际奥委会背叛了奥林匹克精神、出卖自己的灵魂和原则！<br/>
 ![img](https://media.gettr.com/group19/getter/2022/01/25/22/b260509b-23c8-239e-1ec9-323169eb74c1/out.jpg)
-
----
-
-`@miles 1/25/2022 10:14 PM (UTC)`
-
-1/25/2022 Miles Guo’s big announcement: Despite facing the infiltration of the world by the evil forces of the CCP, the New Federal State of China (NFSC), after its establishment on June 4, 2020, has established close ties with various governments, human rights organizations, and non-profit organizations. The NFSC has been spreading the truths about the human rights violations committed by the CCP, the CCP virus, and the COVID vaccines. The NFSC has gained international recognition and support, and many governments are discussing the recognition of the NFSC.<br/><br/>1/25/2022 文贵重大公告：尽管面临着中共邪恶势力对世界的渗透，新中国联邦在2020年6月4日成立后，与各国政府、人权机构和非营利性组织建立了密切的联系，传播了有关中共所犯下的人权罪行和病毒、疫苗的真相，获得了国际社会广泛的认可与支持，很多国家政府正讨论承认新中国联邦！<br/>
-![img](https://media.gettr.com/group21/getter/2022/01/25/22/bbef35c3-2f56-de9a-2e3d-0056b22c4cff/out.jpg)
 
 ---
 
