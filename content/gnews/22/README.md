@@ -2,34 +2,25 @@
 ---
 
 
-## 美光科技解散中共国的内存设计团队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918594/)
+## 2022.1.27大直播 郭文贵先生谈爆料革命五年最感慨的事：灭共易，改变人心难
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1918667/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月26日，据中共媒体消息显示，美国半导体公司美光科技正在解散其位于中共国上海的内存研发中心。此外，公司将从中挑选40多位核心研发人员提供技术移民美国的资格。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-20.jpg)
-据悉，此次解散仅涉及内存设计部门的大约150名员工，并预计将在农历年内完成相关的解散事宜。
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-9.55.52-PM.jpeg)
+郭文贵先生在2022年1月27日大直播中，谈到了他从美国授权大使馆撤离事件看出的中国人普遍存在的一个大的问题。
 
-业内人士对此分析称，此次突然解散的原因可能与此前美光精心培养的内存设计人员被高薪挖角至中共国的微电路设计公司和存储器工厂有关。一直以来，美光非常重视知识产权的保护。因此，此次解散团队的决定可能是公司提前部署的计划，用以防止关键技术被中共方非法窃取。
+美国授权中国大使馆撤离发生后，不到一天的时间，一条副国务卿的推特就让许多战友开始怀疑，怀疑是不是骗局，是不是阴谋论。
 
-另据一份市场调研报告显示，三星、海力士和美光目前在全球存储芯片领域占据了九成的市场，加之中共国在该领域的研发和生产力远远落后于世界，此次美光的撤离将严重打击中共依靠技术偷盗的相关产业的发展。
+郭先生说，从人们对这件事的反应，他感受到了中国人的不自信，猜测怀疑，用怀疑否定一切真实和美好，扭曲了事实真相，以至于这么大的喜事，竟然没人敢相信，没人敢高兴。
 
-参考链接：[美光解散上海内存设计团队，推动40多名核心员工移民美国](https://m.sohu.com/a/519087763_115060?scm=1019.e000a.v1.0&amp;spm=smwp.srpage.SERP-list.1.1643214190335pWfRPdT)
+郭先生指出这是共产党的文化造成的假、丑、骗、恶的毒，它扭曲了人心，让人骨子里的崇洋媚外，羡慕妒忌恨，容不得别人好。不相信真，不相信善。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+郭先生告诫战友们，不要因为别人的过去就决定别人的未来，不要因为看到黑暗就否定一切，不要因为你没见识过就不相信。我们应该做一个正常人，应该去帮助、包容和爱同类。
 
-总编: Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+郭先生提到，在爆料革命五周之际，让他最感慨的是：灭共容易，让中国人心变好难上加难。他重申灭共以后绝不会回到中国，更不会参与政治，接管中国。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：https://gtv.org/broadcast/watch/61f297e628a108147c63ad38
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,29 @@
 ---
 
 
-## 2022.1.27大直播 郭文贵先生谈爆料革命五年最感慨的事：灭共易，改变人心难
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1918667/)
+## 独裁者的特征
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918695/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-9.55.52-PM.jpeg)
-郭文贵先生在2022年1月27日大直播中，谈到了他从美国授权大使馆撤离事件看出的中国人普遍存在的一个大的问题。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2_01.jpg)
+独裁者的特征，
+这也是一个国家要灭亡前的象征
 
-美国授权中国大使馆撤离发生后，不到一天的时间，一条副国务卿的推特就让许多战友开始怀疑，怀疑是不是骗局，是不是阴谋论。
+1. 制造仇恨
+2. 制造种族矛盾
+3. 制造区域矛盾
 
-郭先生说，从人们对这件事的反应，他感受到了中国人的不自信，猜测怀疑，用怀疑否定一切真实和美好，扭曲了事实真相，以至于这么大的喜事，竟然没人敢相信，没人敢高兴。
 
-郭先生指出这是共产党的文化造成的假、丑、骗、恶的毒，它扭曲了人心，让人骨子里的崇洋媚外，羡慕妒忌恨，容不得别人好。不相信真，不相信善。
+2021年11月28日大直播
 
-郭先生告诫战友们，不要因为别人的过去就决定别人的未来，不要因为看到黑暗就否定一切，不要因为你没见识过就不相信。我们应该做一个正常人，应该去帮助、包容和爱同类。
+发布： 星谕
 
-郭先生提到，在爆料革命五周之际，让他最感慨的是：灭共容易，让中国人心变好难上加难。他重申灭共以后绝不会回到中国，更不会参与政治，接管中国。
-
-参考链接：https://gtv.org/broadcast/watch/61f297e628a108147c63ad38
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,37 +2,31 @@
 ---
 
 
-## 新中国联邦冬奥会送“大礼”，甜蜜蜜运动将席卷全国
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1918800/)
+## 爱尔兰22日起取消几乎所有的中共病毒疫情限制
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1918903/)
 
-作者：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220127-4.jpg)
-2022年1月24日，文贵大直播中充满了笑声和欢乐的歌声。一首“甜蜜蜜”歌曲唱出了希望、唱出了力量、唱出了光明，也唱出了共产党的末日。
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月21日，爱尔兰总理迈克尔·马丁在全国讲话中表示，从22日起，取消几乎所有的中共病毒疫情限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/V255GV4J4RK6DOVHRPFTQHTI6Q.jpeg)
+22日起，爱尔兰的酒吧和餐馆，不再需要在晚上 8 点关门，不再要求提供“疫苗护照”；此外，保持社交距离的要求、室内外活动的人数限制也将被取消。在 2 月底之前，人们仍将被要求在公共交通工具和商店中佩戴口罩。
 
-文贵先生告诉全世界：未来6周在北京二环内弄出点动静来，你会突然听到，二环里到处充满了“甜蜜蜜”的歌声。
+之前爱尔兰实施了欧洲最严厉的封锁制度，对旅行和招待业实施了一些持续时间最长的限制措施，也是欧洲新冠疫苗加强针接种率最高的国家之一。但上周，爱尔兰新冠发病率在欧洲排名第二。
 
-这是中国的“茉莉花运动”，知识份子、教师、律师、军人、音乐家、医生都来参加。众所周知，中共的老巢中南坑就在北京的二环内。这简直就是拿豆包不当干粮，拿武大郎不当神仙。豆包勉强可以当干粮，但武大郎绝对不是神仙。这就是我们的文贵先生，高超的智慧和惊天的气魄令人叹为观止。
+参考链接：[Ireland drops most COVID restrictions in wake of ‘Omicron storm’](https://www.reuters.com/business/healthcare-pharmaceuticals/ireland-set-rapidly-drop-almost-all-covid-19-restrictions-2022-01-21/)
 
-古代剑客的最高境界是以气驭剑、剑气伤人，顶级剑客可以取敌首级于数米之外。甜蜜蜜运动于美国发起，其凌厉的剑气穿过云霄，直达远在万里之外的中南坑，老杂毛们的后脖子是否感到了阵阵的寒意。
+![This image has an empty alt attribute; its file name is 1-Jan.jpeg](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-“甜蜜蜜，你笑得甜蜜蜜，好象花儿开在春风里，在哪里，在哪里见过你……”，老杂毛们还笑的出来吗？恐怕他们哭都来不及。习近平和一众老杂毛听到后会气得发疯，有劲无处使、有气无处撒。只闻歌声不见人，全城一片“甜蜜蜜”。
+总编：飞虹
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-北京冬奥会2月4日开幕，3月13日闭幕。文贵先生说的6周内正是中共举办冬奥会的时间。在冬奥会如此“盛会”之时，爆料革命岂能袖手旁观，甜蜜蜜运动是送给中共的一份“大礼”。甜蜜蜜运动不但在北京响起，而且会响彻全国，在中共国形成燎原之势，这把烈火将带走中共。
-
-文贵先生告诉我们，甜蜜蜜运动得到了美国同仁的参与和支持，参加甜蜜蜜运动的战友和同胞不会有任何危险，危险的只是共产党。中国人像干柴烈火需要点燃，甜蜜蜜运动就是点燃干柴的那把烈火。
-
-据文贵先生爆料，习近平很有可能在冬奥会后攻打台湾。美国是否出手取决于中共的攻打方式和对台湾的伤害程度，或者说美国在台湾核心利益受到中共的威胁程度，而这些都存在着若干的变数。甜蜜蜜运动就是把变数变成定数，如果中共对台湾动武，美国一定会摧毁中共的所有军事基地，当然包括中共，这就是定数。为什么美国朋友一起参与甜蜜蜜运动，这其中的内在联系恐怕只有文贵先生清楚。
-
-无论如何，甜蜜蜜运动会成为新中国联邦的重大事件，会成为灭共历程中的关键事件，会将习近平的中国梦变成噩梦，甜蜜蜜运动开启了灭共的第三道大门。
-
-* * *
-
-*编辑：文合*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

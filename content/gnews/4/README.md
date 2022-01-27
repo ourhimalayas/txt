@@ -2,13 +2,17 @@
 ---
 
 
-## 信仰，因果，感恩
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918794/)
+## 所有投资的一个核心目的是什么？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918898/)
 
 整理：雅典娜速记组
 编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句4.jpg)
-我们的人类，信仰是什么，信仰是有性繁殖，宗教是无性繁殖，人性是变化的，重复的，有因果关系的，真正的感恩是自然的，不在乎因果的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句5.jpg)
+所有投资的一个核心目的是什么？
+
+投资者要赚钱，是合约信誉。
+
+但记住，集体决定集体投资不能极少数人获利，这是投资的法则。
 
 2021年11月28日大直播
 

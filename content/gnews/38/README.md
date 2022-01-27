@@ -2,38 +2,39 @@
 ---
 
 
-## 投资者惊叹于喜币的天才设计
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918041/)
+## 01/27每日播报｜美国最高法院大法官斯蒂芬·布雷耶将退休
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1918175/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在1月24日的大直播中再次解读了喜币在未来的发展趋势和影响力。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-27-上午5.58.04.png)
-郭先生提及，每当新中国联邦与各国政府就喜币问题进行磋商时，与会者都会惊叹于喜币的天才设计。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61f25df128a108147c638eef)**
 
-对此，郭先生解释道，当喜币在未来打开无疆界支付系统，特别是在冷钱包和热钱包被囊括在系统中之后，全球任何一个人可以随时通过该系统交易喜币，且没有任何人或机构可以控制一个人的喜币，更无法阻挡喜币的流通——这是喜币在全世界独一无二的特性。此外，当喜币开始流通以后，无论是便宜的面包和汽油，还是昂贵的飞机，这些都能用喜币购买。
+**[2022-01-27](https://gtv.org/broadcast/watch/61f25df128a108147c638eef)**
 
-至于喜币的另一个价值，则是在其流通与喜支付全部完成之后。彼时，喜马拉雅交易系统将会陆续推出喜保险、喜金融、喜贷款、喜抵押等一系列金融服务。
+据美国全国广播公司(NBC)新闻网周三报道，最高法院大法官斯蒂芬·布雷耶(Stephen Breyer) 将在本届任期结束时退休。
 
-同时，郭先生也再次强调，未来的数字货币一定是去中心化的，因此，一种数字货币有没有稳定币，以及相关责任人和KYC都是该数字货币的核心内容。
+布雷耶现年83岁，是法院最年长的成员，由前总统克林顿提名，于1994年就任。
 
-郭先生最后还明确道，新中国联邦战友目前拥有了6亿7千万个喜币，他们的利益必须被排在首位——这也是任何个人或机构投资喜币的前提，即不能跟爆料革命的战友争名、争利。
+据报道，拜登预计将迅速采取行动，以便他的继任者能够在下一届任期于10月3日开始时准备好任职。
 
-参考链接：[https://www.gettr.com/post/pqfg145693](https://www.gettr.com/post/pqfg145693)
+报道指出，共和党人希望重新获得参议院的多数席位，如果他们在1月份控制了参议院，而这个席位仍然空缺，那么拜登的提名就会陷入困境。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+报道分析说，民主党人可以在参议院轻松地以多数选票来确认布雷耶的继任者，参议院目前两党各占50%。副总统卡马拉·哈里斯(Kamala Harris)在出现平局的情况下拥有决定性的一票。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+周三晚些时候，拜登拒绝对布雷耶的离职报道发表评论。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+报道称，拜登将挑选谁作为他的提名人还不得而知。一位白宫官员表示，拜登在他上任的第一年里为联邦司法机构提名了62名女性，包括24名黑人女性。
+
+该报道认为，布雷耶的离开，使拜登有机会履行他的竞选承诺，就是提名一名黑人女性担任法官。
+
+参议院多数党领袖查克·舒默（Chuck Schumer）表示， 拜登最终提名的布雷耶继任者，”将在参议院司法委员会中迅速得到听证，并将被美国参议院全体会议慎重考虑和确认”。
+
+（ 秘翻新闻主编Grace编译报道 ）
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
