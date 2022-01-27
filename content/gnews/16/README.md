@@ -2,15 +2,29 @@
 ---
 
 
-## 1月26日爆料革命5周年，文贵先生盖特直播要点
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1918713/)
+## 所有的坏人独裁都一句话
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918759/)
 
-整理：波士顿五月花 跟随战神
-设计：波士顿五月花 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/01/126.png)
-* * *
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句3_01.jpg)
+所有的坏人独裁都一句话。
 
-*发布：吐纳*
+人民，“我就是人民”。人民，“就是我”。
+
+然后“我代表你们”，“你们听我的”，
+
+你的身体听我支配，你的精神上不能跟我有任何反对意见。
+
+2021年11月28日大直播
+
+发布： 星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

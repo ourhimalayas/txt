@@ -2,37 +2,53 @@
 ---
 
 
-## 医疗数据和事实再次凸显疫苗的安全性问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918699/)
+## 文•贵天成——文贵先生谈“北京冬奥会”（九）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1918752/)
 
-作者：银河系农场 – 骄子 、 纽约香草山 – defiance
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月24日，据相关媒体消息显示，在美国参议院听证会上，一直起诉联邦政府中共病毒疫苗强制接种政策的俄亥俄州代表律师披露了国防医学流行病数据库的医疗账单数据。其中，相关数据明确指出，在中共病毒大流行期间，美国军队中医疗数据的改变全部与中共病毒疫苗的不良后遗症非常吻合。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-15.jpg)
-律师提出，自疫苗强制令推行以来，军队内女性的流产率比近五年的平均水平增加了300%，而女性不孕症的概率则增加471%，其子女先天性畸形的比例也增加了156%。此外，中共病毒疫苗带来的神经系统问题增加1000%，而心肌梗死的患者数量增加了269%，士兵患癌的几率也增加了三倍。同时，贝尔麻痹症和肺栓塞的患病概率分别增加了两倍和四倍有余。律师也指出，这些数据可能只是中共病毒疫苗副作用的冰山一角。
+整理：BENJ1
+编辑：Sadhu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-27-下午2.59.46.png)
+**郭文贵先生2021****年12****月10****日直播**
 
-与此同时，澳大利亚一名市长在接种过两针中共病毒疫苗后也产生了严重的不良反应。该市长在社交媒体上透露，因为疫苗带了的种种症状，她只得长期卧床，甚至多次进出医院。
+最后一条大家记住，只要冬奥会开成功，基本上可以证明，中国共产党在全世界宣布，病毒不是来自我这，病毒不是我的生化武器，这是它最后的一个核心目的。兄弟姐妹们，这是它的最狼子野心啊。
 
-而多数研究也表明，除了严重的副作用外，中共病毒疫苗并不能有效的预防并阻止中共病毒的传播，政府强推的疫苗接种之后导致更加严重的次生灾难。 对此，一位美国的职业自行车赛车手也在视频中分享了他接种中共病毒疫苗之后的经历。
+共产党的房地产经济，所有的张家口这块，大家看完以后，开完冬奥会，打台湾，把所有的经济灾难再次扔给西方，然后扔给西方的同时自己“啪”人民币数字化。这叫做货币去美化，人民币数字化是一场绝对的战略成功。
 
-参考链接：
-1) . [**Horowitz: Whistleblowers share DOD medical data that blows vaccine safety debate wide open**](http://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
-2) . [“I Have Had Every Symptom You Could Dream Of” – Bedridden Aussie Mayor Opens Up About Immune Reaction After Receiving COVID Vaccine](https://www.thegatewaypundit.com/2022/01/every-symptom-dream-bedridden-aussie-mayor-opens-immune-reaction-receiving-covid-vaccine/)
-3) . [据《西澳大利亚人报》报道，澳大利亚一位市长在第二次接种 #新冠毒疫苗 后出现严重反应，卧床不起，在医院里进进出出了一段时间](https://gettr.com/post/pqo0vfe698)
+今天可以毫不夸张地，一点儿不夸张地说，历史会告诉你们，我们在干掉冬奥会和共产党想成功办奥运会上，历史会告诉你，我们是最早也合法地用了蓝金黄，勾兑好，一定会有把握让这些人不参加冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+七哥现在不方便说，未来哪天黑客黑掉文件以后，你们会看到，你们会万分地惊讶。记住我说过，法治基金，我们在法治基金捐款，到现在我们家族是第一大，我们光给战友药品，买药、口罩，包括政治支持，包括政治游说超过3亿美元。
 
-总编: Irene木木
-编辑： Lakeman文仁
-校正/发稿：Fei797
+记住我今天(说的)，我负法律责任的，但是（这钱）我们没有捐到法治基金，（却）跟法治基金追求的目标是一样的。这些钱有很大一部分用在了三件事儿上，让世界认可病毒是中共的生化武器，第二就是停止冬奥会，第三把它踢出WTO和SWIFT。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+天时，地利，人和。从冬奥会、从病毒、从疫苗、从数字化人民币、从习太阳、习宗教、习大神、还有他们共产党戏称的叫习爸爸，习大大，彭妈妈，以及所有的房地产的倒闭，香港的整个的沦陷，新疆的大屠杀，对台湾的威胁和俄罗斯的这种所谓的勾结，无一条不是驶向一个方向:人类必须消灭共产党。
+
+**郭文贵先生2021****年12****月12****日直播**
+
+冬奥会这件事情对共产党的打击，这是一个，大家记住内部现在非常清楚了，内部下的文件很清楚。第一不能提西方抵制奥运会，改成叫西方国家官方不出席奥运会。你看就这个词儿，这共产党玩儿文字，你们不知道，七哥跟共产党打这些年交道，我太了解他们了。
+
+就是七哥这些年也跟他们整人整材料，七哥也跟他们成天整人整材料。你想我把刘志华3000个人给整进监狱，得整多少材料？写多少报告？一个一个案子，什么中英复合复交、中阿建交，是不是？中沙石油协议，是不是？中俄之间什么战略协议，七哥都参与了。
+
+就这个字儿搞来又搞，就玩儿来又玩儿，这是共产党这套东西很厉害，这你看玩的啊，“西方官方，某些国家官方不出席冬奥会”，不能说西方抵制奥运会，不能“抵制”这俩字，你可见它敏感到啥程度？
+
+**往期回顾：****
+**[文•贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1889878/)
+
+***发布：**tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

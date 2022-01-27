@@ -15,112 +15,112 @@
 
 ---
 
-### [爆料革命战友谈美国撤回中共大使馆的意义](/content/gnews/1/README.md)
+### [郭先生解释什么是最好的教育](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [爱尔兰22日起取消几乎所有的中共病毒疫情限制](/content/gnews/2/README.md)
+### [北京屁眼里抓病毒 冬奥会临近北京憋大招](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共回应郭先生紧急直播实属色厉内荏](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [爆料革命战友谈美国撤回中共大使馆的意义](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [爱尔兰22日起取消几乎所有的中共病毒疫情限制](/content/gnews/5/README.md)
  ` GTV News Talk`
 
-### [拜登政府即日起授权美驻北京大使馆撤离](/content/gnews/3/README.md)
+### [拜登政府即日起授权美驻北京大使馆撤离](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [所有投资的一个核心目的是什么？](/content/gnews/4/README.md)
+### [所有投资的一个核心目的是什么？](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [小肯尼迪发起“打倒强制令”集会，痛斥大制药公司在犯罪](/content/gnews/5/README.md)
+### [小肯尼迪发起“打倒强制令”集会，痛斥大制药公司在犯罪](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦冬奥会送“大礼”，甜蜜蜜运动将席卷全国](/content/gnews/6/README.md)
+### [新中国联邦冬奥会送“大礼”，甜蜜蜜运动将席卷全国](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [有声|印尼政府收购私人银行，正式进军数字银行领域](/content/gnews/7/README.md)
+### [有声|印尼政府收购私人银行，正式进军数字银行领域](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [信仰，因果，感恩](/content/gnews/8/README.md)
+### [信仰，因果，感恩](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [扎克伯格的加密货币遭美联储抵制，Meta公司计划出售加密资产](/content/gnews/9/README.md)
+### [扎克伯格的加密货币遭美联储抵制，Meta公司计划出售加密资产](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国及世界疫情简报（01-27-2022）](/content/gnews/10/README.md)
+### [美国及世界疫情简报（01-27-2022）](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [2022/01/26 墙内世界](/content/gnews/11/README.md)
+### [2022/01/26 墙内世界](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|乌克兰局势紧张，美国计划增派8500名美军高度戒备](/content/gnews/12/README.md)
+### [有声|乌克兰局势紧张，美国计划增派8500名美军高度戒备](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [所有的坏人独裁都一句话](/content/gnews/13/README.md)
+### [所有的坏人独裁都一句话](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（九）](/content/gnews/14/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（九）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【玫瑰看新闻】每日快讯2021年1月22日（新西兰时间）](/content/gnews/15/README.md)
+### [【玫瑰看新闻】每日快讯2021年1月22日（新西兰时间）](/content/gnews/18/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [1月26日爆料革命5周年，文贵先生盖特直播要点](/content/gnews/16/README.md)
+### [1月26日爆料革命5周年，文贵先生盖特直播要点](/content/gnews/19/README.md)
  ` 波士顿五月花农场`
 
-### [医疗数据和事实再次凸显疫苗的安全性问题](/content/gnews/17/README.md)
+### [医疗数据和事实再次凸显疫苗的安全性问题](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [独裁者的特征](/content/gnews/18/README.md)
+### [独裁者的特征](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [德桑蒂斯抨击“医疗威权主义”](/content/gnews/19/README.md)
+### [德桑蒂斯抨击“医疗威权主义”](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [挪威政府拒绝为儿童推荐中共病毒疫苗](/content/gnews/20/README.md)
+### [挪威政府拒绝为儿童推荐中共病毒疫苗](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [有声|台湾遭遇自10月以来最大规模中共国空军骚扰](/content/gnews/21/README.md)
+### [有声|台湾遭遇自10月以来最大规模中共国空军骚扰](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [2022.1.27大直播 郭文贵先生谈爆料革命五年最感慨的事：灭共易，改变人心难](/content/gnews/22/README.md)
+### [2022.1.27大直播 郭文贵先生谈爆料革命五年最感慨的事：灭共易，改变人心难](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [病毒的来源是中共的生化武器](/content/gnews/23/README.md)
+### [病毒的来源是中共的生化武器](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [01/27/22 香港快讯 恒指泻482点 北水暂停成交1334亿](/content/gnews/24/README.md)
+### [01/27/22 香港快讯 恒指泻482点 北水暂停成交1334亿](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [加拿大一父亲痛诉辉瑞疫苗害死其17岁儿子](/content/gnews/25/README.md)
+### [加拿大一父亲痛诉辉瑞疫苗害死其17岁儿子](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美光科技解散中共国的内存设计团队](/content/gnews/26/README.md)
+### [美光科技解散中共国的内存设计团队](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [懦弱自私的族群](/content/gnews/27/README.md)
+### [懦弱自私的族群](/content/gnews/30/README.md)
  ` 雅典娜GNotes`
 
-### [台湾加入外交抵制中共冬奥会的行列](/content/gnews/28/README.md)
+### [台湾加入外交抵制中共冬奥会的行列](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [台湾副总统过境美国获两党议员一致欢迎](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [习近平尴尬了！美新任驻中大使伯恩斯 未到任先申请「授权撤离」](/content/gnews/30/README.md)
- ` 波士顿五月花农场金融部`
-
-### [01/27每日播报｜多名立法者呼吁各国建立涉疆人权暴行的公司黑名单](/content/gnews/31/README.md)
+### [01/27每日播报｜多名立法者呼吁各国建立涉疆人权暴行的公司黑名单](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/32/README.md)
+### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [DC大中华时事：蔡英文回复教宗方济各，两岸须平等对话](/content/gnews/33/README.md)
+### [DC大中华时事：蔡英文回复教宗方济各，两岸须平等对话](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰计划招募13万名平民组成民兵对抗俄罗斯](/content/gnews/34/README.md)
+### [乌克兰计划招募13万名平民组成民兵对抗俄罗斯](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [多伦多男子的儿子因接种辉瑞疫苗而死亡](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [韩国称朝鲜发射“不明导弹”](/content/gnews/36/README.md)
+### [多伦多男子的儿子因接种辉瑞疫苗而死亡](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [如果卡车停运，会发生什么？](/content/gnews/37/README.md)
