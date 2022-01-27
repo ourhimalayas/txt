@@ -15,122 +15,122 @@
 
 ---
 
-### [Tom Cotton：我们应该像支持乌克兰一样支持台湾，因为 “中共国是一个比俄罗斯还大的威胁”](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [GTV新闻访谈简报|2022年1月27日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
 
-### [鉴于严格的新冠病毒管控措施，美国准备让外交官离华](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [加拿大为自由而战的卡车车队继续高歌猛进，人们万众一心！](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [孙立军罪名之愚民、欺民](/content/gnews/3/README.md)
- ` 焦點20分`
-
-### [握好手中的灭共币、信仰币](/content/gnews/4/README.md)
- ` 焦點20分`
-
-### [文贵爆料 1.27：国际金融组织欲查封中共高官海外资产](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [五月花简报](/content/gnews/6/README.md)
- ` mayflowertranslate`
-
-### [基努·里维斯因参加西藏演唱会面临中共的强烈反对](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中日财经爆┃美大使馆撤离，A股境外资金疯狂出逃](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵大直播要点（2022年1月27日）](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [肯尼·罗杰斯、中共国和科技企业](/content/gnews/10/README.md)
+### [英国支持暂停俄罗斯使用SWIFT国际支付系统的资格](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [焦点：西方即将正式启动中共病毒溯源程序！](/content/gnews/11/README.md)
- ` 丁过`
-
-### [游子吟](/content/gnews/12/README.md)
- ` 纽约香草山MOS03`
-
-### [滇池寻梦](/content/gnews/13/README.md)
- ` 纽约香草山MOS03`
-
-### [追求理想](/content/gnews/14/README.md)
- ` 纽约香草山MOS03`
-
-### [德国每日COVID病例超20万，已造成行业人员短缺](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [浅谈《新中国联邦》的一人一票投票制度(一)](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
-
-### [文贵大直播 1/27 不断不交 中共已被套上绞索](/content/gnews/17/README.md)
- ` 秘密翻译组-原创组`
-
-### [欧盟向世贸组织起诉中共国](/content/gnews/18/README.md)
- ` 日本东京方舟农场`
-
-### [中日财经爆┃市场信心尽失，基金以自购为饵诱骗投资者](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1月26日老班长战友联盟答疑，G系列相关信息文字版](/content/gnews/20/README.md)
- ` 全球G系列咨服群`
-
-### [拜登做了全球灭共“先锋”](/content/gnews/21/README.md)
- ` 纽约香草山MOS03`
-
-### [MV版Hcoin To the Moon上线49天第32次位列匈牙利iTunes摇滚MV榜首](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [东莞医院挂横幅“手术室里全是钱”引发热议](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [樱花数据分析│奥密克戎爆发 疫苗接种率越高死亡更多](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭先生解释什么是最好的教育](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [中共回应郭先生紧急直播实属色厉内荏](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [爆料革命战友谈美国撤回中共大使馆的意义](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [拜登政府即日起授权美驻北京大使馆撤离](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [有声|澳洲总理微信号遭篡改 疑中共干涉澳洲政治](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [2022年1月27日郭先生大直播 文字同步精要](/content/gnews/30/README.md)
- ` 焦點20分`
-
-### [2022年1月27日郭先生大直播文字同步精要](/content/gnews/31/README.md)
- ` 焦點20分`
-
-### [有声|印尼政府收购私人银行，正式进军数字银行领域](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [2022/01/26 墙内世界](/content/gnews/33/README.md)
+### [Tom Cotton：我们应该像支持乌克兰一样支持台湾，因为 “中共国是一个比俄罗斯还大的威胁”](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|乌克兰局势紧张，美国计划增派8500名美军高度戒备](/content/gnews/34/README.md)
- ` MOSREC`
+### [鉴于严格的新冠病毒管控措施，美国准备让外交官离华](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [医疗数据和事实再次凸显疫苗的安全性问题](/content/gnews/35/README.md)
+### [孙立军罪名之愚民、欺民](/content/gnews/6/README.md)
+ ` 焦點20分`
+
+### [握好手中的灭共币、信仰币](/content/gnews/7/README.md)
+ ` 焦點20分`
+
+### [文贵爆料 1.27：国际金融组织欲查封中共高官海外资产](/content/gnews/8/README.md)
+ ` 秘密翻译组-原创组`
+
+### [五月花简报](/content/gnews/9/README.md)
+ ` mayflowertranslate`
+
+### [基努·里维斯因参加西藏演唱会面临中共的强烈反对](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中日财经爆┃美大使馆撤离，A股境外资金疯狂出逃](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵大直播要点（2022年1月27日）](/content/gnews/12/README.md)
+ ` 波士顿五月花农场`
+
+### [肯尼·罗杰斯、中共国和科技企业](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [焦点：西方即将正式启动中共病毒溯源程序！](/content/gnews/14/README.md)
+ ` 丁过`
+
+### [游子吟](/content/gnews/15/README.md)
+ ` 纽约香草山MOS03`
+
+### [滇池寻梦](/content/gnews/16/README.md)
+ ` 纽约香草山MOS03`
+
+### [追求理想](/content/gnews/17/README.md)
+ ` 纽约香草山MOS03`
+
+### [德国每日COVID病例超20万，已造成行业人员短缺](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [浅谈《新中国联邦》的一人一票投票制度(一)](/content/gnews/19/README.md)
+ ` 纽约香草山MOS03`
+
+### [文贵大直播 1/27 不断不交 中共已被套上绞索](/content/gnews/20/README.md)
+ ` 秘密翻译组-原创组`
+
+### [欧盟向世贸组织起诉中共国](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [中日财经爆┃市场信心尽失，基金以自购为饵诱骗投资者](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1月26日老班长战友联盟答疑，G系列相关信息文字版](/content/gnews/23/README.md)
+ ` 全球G系列咨服群`
+
+### [拜登做了全球灭共“先锋”](/content/gnews/24/README.md)
+ ` 纽约香草山MOS03`
+
+### [MV版Hcoin To the Moon上线49天第32次位列匈牙利iTunes摇滚MV榜首](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [樱花数据分析│奥密克戎爆发 疫苗接种率越高死亡更多](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭先生解释什么是最好的教育](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [有声|台湾遭遇自10月以来最大规模中共国空军骚扰](/content/gnews/36/README.md)
+### [中共回应郭先生紧急直播实属色厉内荏](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [爆料革命战友谈美国撤回中共大使馆的意义](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [拜登政府即日起授权美驻北京大使馆撤离](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [有声|澳洲总理微信号遭篡改 疑中共干涉澳洲政治](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [01/27每日播报｜多名立法者呼吁各国建立涉疆人权暴行的公司黑名单](/content/gnews/37/README.md)
+### [2022年1月27日郭先生大直播 文字同步精要](/content/gnews/32/README.md)
+ ` 焦點20分`
+
+### [2022年1月27日郭先生大直播文字同步精要](/content/gnews/33/README.md)
+ ` 焦點20分`
+
+### [有声|印尼政府收购私人银行，正式进军数字银行领域](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [2022/01/26 墙内世界](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|乌克兰局势紧张，美国计划增派8500名美军高度戒备](/content/gnews/36/README.md)
+ ` MOSREC`
+
+### [有声|台湾遭遇自10月以来最大规模中共国空军骚扰](/content/gnews/37/README.md)
+ ` MOSREC`
+
+### [01/27每日播报｜多名立法者呼吁各国建立涉疆人权暴行的公司黑名单](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/38/README.md)
+### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
-
-### [01/27每日播报｜美国最高法院大法官斯蒂芬·布雷耶将退休](/content/gnews/39/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [奥地利解除对未接种疫苗居民的封锁](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
