@@ -2,45 +2,46 @@
 ---
 
 
-## GoFundMe冻结为支持卡车司机抗议的筹款
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1919813/)
+## Eglise医生讲述感染者送进ICU呼吸机会加重症状的原因
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1919902/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_3642.png)图片来源：GofundMe
-根据《国家邮报》(National Post) 1月27日报道，GoFundMe公司发言人表示，暂停了活动“是为了让组织者有时间计划资金的分配”。当时这项为大规模运输卡车抗议车队进行的筹款活动已经达到500多万美元。
+G-TV视频链接：[https://gtv.org/video/id=61f2aa7787664c47acdad159](https://gtv.org/video/id=61f2aa7787664c47acdad159)
 
-该筹款活动由塔玛拉-利奇（Tamara Lich）MAverick 党的一名成员于1月14日启动，事实证明非常成功，到截稿为止，仅十几天筹款630多万，80,000多名捐赠者，最大一笔金额为25,022美元。
+**Dr.Eglise****：**现在Omicron它的确是传播速度超乎人的想象，因为曾经有个统计，有过比较，就是Omicron传播力比前一代的德尔塔要高500到600倍。然后尽管它引起的出血症状与德尔塔相比是要轻一些，因为它的这个呼吸道症状没有前面的那几个变异株那么明显、那么恶劣，它主要是全身酸痛，然后很多人还会有喉咙痛、咽痛、鼻涕什么。
 
-该活动的组织者在GoFundMe页面上说：”我们目前的政府正在实施的规则和强制，正在摧毁我们企业、行业和生计的基础。我们把战斗带到联邦政府的门口，要求他们停止所有针对其人民的强制”。
+但是它这个呼吸道、呼吸困难这个相对比较轻，这就好了很多，因为前面那几个变异最后致命的，就是呼吸困难，因为送icu上呼吸机，基本上这些上呼吸机的人，就是大多数人都是有去无回。因为跟这个病毒的感染几率有关系，往往就是那个时候肺泡已经被大量的黏液，就是病毒的分泌物给遮挡了。
 
-周二，加拿大新闻社报道说，自由车队2022年的活动已被在线众筹平台暂停。但该筹款网站似乎仍在正常运行，并接受新的捐款。
+因为肺泡是换气，是氧气和二氧化碳交换的地方，氧气进不到血液毛细血管，而毛细血管里面的二氧化碳出不来，所以你血氧就会降低，而你这个时候把大量的高浓度的氧硬给泵进了你的肺泡，因为高浓度氧它会产生一种氧自由基。
 
-加拿大新闻社报道，GoFundMe的一位发言人说，他们停止了这项活动，直到组织者能够提供一个关于资金如何分配的计划。
+大家知道氧自由基它其实是一种破坏性物质，它破坏了上皮毛细血管的管壁细胞，所以上呼吸机很少有人改善他的症状，往往就是渐渐加重症状，最后这些人就完全失去了换取能力，就是再高浓度的纯氧进去，血氧还是上不来，最后就是因为这种大脑中枢缺氧然后去世。
 
-该活动的GoFundMe描述最初声称资金将支付给卡车司机，以支付参加车队的卡车司机的燃料费用，但在周日，该描述被改为GoFundMe达成安排，将资金直接发送给一个燃料供应商，而不是组织者，多余的资金将捐赠给一个退伍军人的组织。
+所以我们一直在说，你能不进医院能不进icu，你能自己在家用药其实就是救了你自己。如果说你把你的生命，特别现在这些欧美的医院系统，我觉得它这个呼吸机从某种意义上说是变成医院的一种合法的杀人武器，因为的确它的成活率太低了。
 
-车队预计将于周六抵达渥太华，集会反对强制接种疫苗的规定。
+你如果按照这个医疗器械的使用的效率，有个数据比较的话，那几乎就是一个像电影一样的，就是上刑法，你上去大多数人估计难再下来，就是呼吸机的效果是一样的，所以最好在家里医疗。
 
-这将是该国多年来最大的一次集会。加拿大各地的城市现在经常看到长达数公里的卡车车队被挥舞旗帜的支持者迎接的场面。推特上的一段视频显示，车队花了30分钟才经过阿尔塔省的奥科托克斯。其他社交媒体上的帖子估计车队的行程为70公里。
+视频听写：青桐；
 
-James Bauder是一个名为加拿大团结基金会的组织的创始人，他是 “自由车队 “的主要组织者，他表示当车队到达渥太华时，可能有一百万人参与。他说：”我们已经完成了任务。整个国家正在崛起，站起来！我们作为加拿大人已经为自己做出了决定，要团结一致地站在一起。在我们到达渥太华时，至少有50万到100万的人肯定会来到这里，从海岸到海岸。”
+编辑整理：海贼王M.D.LUFFY；
 
-越来越多保守派政治家支持该车队。
+字幕文件制作：小满；
 
-前保守党领袖安德鲁-谢尔在推特上表示支持，感谢卡车司机，并指责总理特鲁多将加拿大人的自由置于危险之中。谢尔在推特上说：”特鲁多正在攻击个人自由，并威胁到每个人获得日常物品的能力，因为他在疫苗强制上的过度扩张。
+视频制作及上传：Cindy；
 
-议员马丁-希尔兹在国会山的百年圣火前发布了一段视频，说他很期待车队周六抵达渥太华后的表现。”COVID-19有很多挑战，边境口岸是其中之一。跨越边境将物资运往北方和南方，对我们的产业来说至关重要。”
+G.News发布：小满；
 
-议员凯文-沃夫（Kevin Waugh）为车队送行。并在推特上表示：“我支持我们的卡车司机”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
 
-议员Brad Redekopp在推特上说：”我很自豪地支加拿大各地的卡车司机，反对政府的过度行为。我们需要我们所有的卡车司机工作，以保证货架上的食品”！
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-原文链接：
-[https://nationalpost.com/news/canada/gofundme-causes-confusion-over-freezing-multi-million-dollar-fundraiser-for-truck-protesters](https://nationalpost.com/news/canada/gofundme-causes-confusion-over-freezing-multi-million-dollar-fundraiser-for-truck-protesters)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-编辑，发稿 Spirit
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 

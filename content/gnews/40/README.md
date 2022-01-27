@@ -2,41 +2,40 @@
 ---
 
 
-## 奥地利解除对未接种疫苗居民的封锁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918028/)
+## 中共回应郭先生紧急直播实属色厉内荏
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918929/)
 
-**翻译： Jenny Ball**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月25日，在郭文贵先生关于美国撤回驻北京大使馆的紧急直播后的两个小时，中共喉舌媒体迅速做出了回应，并将该回应称之为所谓的“深夜独家新闻”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip13奥地利解除对未接种疫苗居民的封锁.png)赶上成为头条新闻的发展中的故事。
-ABCNews.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide3-12.jpeg)
 
-奥地利总理周三宣布，奥地利将于下周一结束对未接种疫苗的居民的封锁——即在该国 COVID-19 疫苗授权生效的前一天。
+与中共以往作风别无二致的是，该媒体不仅在报道中对“消息来源”含糊其辞，其甚至在仅陈述部分事实外，还不忘用大段陈词滥调向美国叫嚣。更甚至，该媒体还在报道中扬言，美国这种做法将升级其与中共和俄罗斯的紧张关系，并将使其面临更大的风险。而后，中共外交部发言人赵立坚还在第二天的记者会上威胁称，美国“将极大地增加感染中共病毒的风险”。
 
-奥地利总理卡尔·内哈默（Karl Nehammer）表示，该措施于 11 月推出，不再需要，因为医院重症监护病房不存在过度紧张的威胁。
+目前，多家西方媒体已经通过渠道证实了郭先生在直播中的声明，即美国政府将以防疫为由授权撤离驻中共国的使领馆。
 
-据奥地利通讯社 APA 报道，内哈默说，数周以来，对未接种疫苗的人进行封锁一直是“许多人抱怨的一项措施，但出于卫生政策的原因，这是不可避免的”。
+此外，郭文贵先生还在25日的直播中透露，中共如果继续阻挠美方的病毒溯源工作，或是再度向美国及世界释放更多的中共病毒，美国不仅会在经济贸易上与中共脱钩，还将毫无选择地跟中共开战。
 
-2 月 1 日，欧洲首例针对成人的 COVID-19 疫苗授权——将在这个阿尔卑斯山小国生效。官员们表示，这项授权是必要的，因为疫苗接种率仍然太低。他们说，这将确保奥地利的医院不会因 COVID-19 患者而不堪重负。迄今为止，该国75.4%的居民已全面接种疫苗。
+参考链接：
+1）[独家：冬奥前夕憋阴招！美国谋划以疫情为由批准驻华使领馆“授权撤离”](https://world.huanqiu.com/article/46YF9AQJeYc)
+2）[美国考虑授权撤离驻华使领馆 免受中国严格防疫影响–消息（更新版）](https://www.reuters.com/article/usa-diplomats-china-health-measures-sour-idCNKBS2K002Z)
+3）[外交部回应美方大阴招！](https://news.sina.com.cn/c/2022-01-26/doc-ikyamrmz7564637.shtml)
+4）[1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告](https://www.gettr.com/post/pqo4oz98c6)
 
-“尽管有所放松，但仍需谨慎：我呼吁所有 150 万未接种疫苗的人接种疫苗，不要等待强制接种疫苗生效，”总理在推特上写道。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-一旦授权生效，当局将写信给每个家庭，告知他们新规则。
+总编：飞虹
+编辑：文特
+校正/发稿：谐趣园
 
-从3月中旬开始，警方将在例行检查中开始检查人们的疫苗接种情况；无法出示疫苗接种证明的人，将被要求以书面形式出示，否则将被处以最高 600 欧元（676 美元）的罚款。
-
-内哈默本月早些时候表示，如果当局判断该国的疫苗接种进展仍然不足，他们将向仍未接种疫苗的人发送提醒。如果即使这样也不起作用，人们将被安排接种疫苗预约，如果他们不遵守，将被罚款。官员们希望他们不需要使用最后一种措施。如果人们对自己的处罚提出异议，并启动完整的诉讼程序，罚款可能高达 3,600 欧元。
-
-**新闻来源**：[abcnews.go.com][Austria to lift lockdown for unvaccinated residents](https://abcnews.go.com/Health/wireStory/austria-lift-lockdown-unvaccinated-residents-82480785)
-
-* * *
-
-***审核：文乐
-校对：小东
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
-**
-**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
