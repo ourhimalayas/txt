@@ -2,20 +2,23 @@
 ---
 
 
-## 我们是团队作战，只有团结才能灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917776/)
+## 阿拉斯加及德州起诉国民警卫队疫苗强制令
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1917830/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/273.png)图片来自网络
+阿拉斯加州州长迈克·邓利维（Mike Dunleavy）与德克萨斯州州长格雷格·阿博特（Greg Abbott）正在共同寻求阻止美国国防部强制要求国家指挥下的国民警卫队成员接种CCP病毒疫苗。而在上个月，一名联邦法官在对俄克拉荷马州警卫队员的疫苗授权提出质疑的诉讼中作出了不利于俄克拉荷马州的裁决。
 
-*发布：*Frank2021
+五角大楼现在要求包括国民警卫队和预备役在内的所有服役人员都必须接种 CCP病毒疫苗。两位州长的律师在周二最新的诉讼中表示，当国民警卫队成员为该州服务时，联邦政府实际并没有指挥的权限，因此CCP病毒疫苗强制令是一种违宪和越界的举动。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+诉讼称，超过 220 名德克萨斯空军国民警卫队成员和约 40% 的德克萨斯陆军国民警卫队成员因为“宗教或其他原因”拒绝接种CCP病毒疫苗。大约 8% 的阿拉斯加空军和陆军国民警卫队成员尚未接种任何 CCP病毒疫苗。在这些成员中，超过 90% 的成员要求“医疗或宗教豁免”，但却没有能够获得。
 
+据了解，该诉讼的被告人包括总统乔·拜登、国防部和一些军方官员。
+
+新闻参考链接：[AP News](https://apnews.com/article/coronavirus-pandemic-health-alaska-greg-abbott-us-department-of-defense-661927345f97c565f5072344f1a4d200)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

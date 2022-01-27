@@ -2,34 +2,36 @@
 ---
 
 
-## 美国‘授权撤离’ 中方表达不满
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1915408/)
+## 有声|美国国家卫生院针对中共病毒后遗症设立专案组
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1916270/)
 
-整理/编辑：守望黎明
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒 24 日报道，鉴于美国已有三分之一的人口感染过中共病毒，预期在痊愈后的一段时间内，都将会持续面对各种严重的后遗症，需要长期的健康护理。因此，日前，美国国家卫生院宣布“恢复”专案组，同时拨款 11.5 亿美元作为经费，找出感染者严重后遗症的背后原因。该专案组将由数千名患者，以及来自数十间科研机构、高等院校的上百位科学家，共同参与组成。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/RMDJ2B38LVL5SW471RQN.png)图片来源：CNBC
+据报道描述，中共病毒感染者痊愈后，往往会面临长期的健康问题，比如史丹佛医院的一名病人，在接种完中共病毒疫苗的半年内染上病毒，经治疗痊愈后，至今都仍然遭受着味觉失灵，听力不佳、视力模糊、呼吸急促，慢性头痛以及经常性腹痛等困扰。
+
+原文链接：[美国国家卫生院针对中共病毒后遗症设立专案组](https://gnews.org/zh-hans/1914359/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-路透社北京1月26日 – 针对美国“授权撤离”外交领事人员一事，中国外交部发言人赵立坚1月26日回应，从最安全的地方撤出只会增加感染风险。中方已就此向美方表示严重关切和不满。
-
-他在外交部例行新闻发布会上称，中国疫情防控严谨科学，防疫策略行之有效，也很好保护了在华外国人士，充分照顾了外交领事人员的舒适度和正当权益。
-
-赵立坚称：“希望美方遵守和配合中方防疫规定，认真对待中方立场和关切，慎重考虑所谓外交领事人员‘授权撤离’问题。美方的决策逻辑令人费解，难以自圆其说。”
-
-消息人士对路透表示，美国国务院在考虑是否批准在中国的美国外交官和他们的家人离开，因为美国政府无法阻止中国当局对他们实施造成严重干扰的疫情控制措施。
-
-两名了解情况的消息人士表示，随着中国在距离北京冬奥会开幕不到两周的时间里加紧制定新冠疫情防控方案，美国大使馆1月24日向华盛顿发出了正式撤离的请求。
-
-原文链接：[美国“授权撤离”外交人员 中国外交部：从最安全的地方撤出只会增加感染风险](https://cn.reuters.com/article/CNTopGenNews/idCNKBS2K00O8?irpc=932)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

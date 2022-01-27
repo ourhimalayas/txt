@@ -2,23 +2,21 @@
 ---
 
 
-## 细胞老化是造成中共病毒后遗症的原因之一吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1917819/)
+## 中日财经爆┃澳大利亚伍德赛德石油公司宣布退出缅甸
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1917864/)
 
-撰稿：东京樱花团｜盖特第一批注册
-![](https://lh4.googleusercontent.com/c0L2yj5ZpNGOoo10VnlSE1sM4wVXtYvYBdGME-rIYTG2orQtpOHhNiFNG-lSsykoLWNwIQ7RXPTfIy0u_u7gBXef-4k9Bt1L_LgvbiOU6aq5Z7vbjEtd9-bGrbWeCfrjNqvnvTRC)[*图片来源*](https://image.news.livedoor.com/newsimage/stf/1/6/16b9f_1509_ddd84c28_d1c83073.jpg)
-感染中共病毒（新冠病毒）后往往会引起后遗症，如疲劳、头痛和脱发等，即使在病毒消失后也是如此。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2245.png)图片来自本文网站
+路透社消息，澳大利亚石油和天然气巨头伍德赛德石油公司（Woodside Petroleum )27日宣布，因人权状况恶化，将撤出在缅甸的业务。
 
-大阪大学微生物疾病研究所原英二教授研究团队在动物实验中发现，感染会促进细胞“老化”，而老化的细胞会引起周围细胞产生炎症，这种炎症可能是造成后遗症的一个因素。
+公司今后将开始正式退出与缅甸石油天然气企业（MOGE）、中国石油天然气集团公司（CNPC）和道达尔（TOTAL）共同持有的勘探资产。预计与撤退相关的非现金费用将影响2021年的税后净利润约1.38亿美元。
 
-该团队一直致力于研究“细胞老化”课题。 细胞老化表现为受损的细胞虽然停止分裂仍然继续存活并向它周围的细胞传播炎症因子。癌症、动脉硬化等疾病都是由细胞老化引起的。
+公司CEO解释称：鉴于缅甸的局势，不能再考虑参与A-6天然气资源的开发或未来在该国的任何其它活动。表明公司曾希望供应缅甸民众的能源需求，但现在已经没有可行的方案让公司继续开展活动。
 
-研究发现：被中共病毒感染的人体细胞会在几天内死亡，病毒随即消失。然而在死亡之前，这些细胞会释放出一种促进细胞衰老的物质，使得周围的细胞衰老并继续传播炎症因子。
+信息源：[豪ウッドサイド・ペトロリアムがミャンマー撤退、人権問題理由](https://news.yahoo.co.jp/articles/5ad53d96ee3d09099863b1e1728ffe3956c02eb5#:~:text=%E8%B1%A)
 
-信息源：[**新型コロナ、後遺症の一因は細胞老化？　炎症起こす物質まき散らす**](https://news.livedoor.com/article/image_detail/21576149/?img_id=32046920)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 

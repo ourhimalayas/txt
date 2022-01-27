@@ -2,8 +2,8 @@
 ---
 
 
-## 我们在修行中找到自己
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917748/)
+## 新中国联邦蓝五行为水是共产党红的克星
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917806/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

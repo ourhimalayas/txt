@@ -2,34 +2,54 @@
 ---
 
 
-## 随着Diem倒闭，脸书逐渐退出加密货币市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
+## 美国国防医学流行病学数据库 所有常见疫苗伤害数据都出现飙升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916891/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-95.jpg)
+周一，参议员罗恩·约翰逊（共和党-威斯康辛州）主持一场近五个小时，名为 “Covid-19: 第二种观点”的讨论会。
 
-整理/编辑：小红帽
+会上，俄亥俄州律师托马斯·伦茨 (Thomas Renz)介绍了美国国防医学流行病学数据库（DMED）的医疗计费数据，描绘了2021年美国军人的健康状况，令人震惊、不安。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
+DMED是武装部队健康监测部门（AFHSB）“基于网络的工具，用于远程查询国防医疗监测系统（DMSS）中包含的除去识别信息的现役人员和医疗事件数据。” 它包含了军队中在任何特定时期内，提交给医疗保险账单的任何医疗诊断的每个国际疾病分类（ICD）代码。因为是用于保险结算，准确率极高。三位军医向伦茨提交的查询数据显示，在2021年，几乎所有常见的疫苗伤害ICD代码都出现了令人震惊的突然飙升。
+
+在伦茨计划在联邦法院使用的一份声明中，塞缪尔·西格洛夫（Samuel Sigoloff）、彼得·钱伯斯（Peter Chambers）和特雷莎·龙（Theresa Long）三位军医透露，2021年军队中登记流产的DMED代码比五年的平均数增加了300%。流产代码五年的平均数是每年1499个。而在2021年的前10个月，是4182个。伦茨在接受TheBlaze采访时解释，这些医生查询了从2016年到2020年数百个代码的数值，以建立一个基准的五年平均值。这些代码通常用于医学文献已确定为疫苗潜在不利影响的疾病和伤害。
+
+这些数字在之前的所有年份都非常接近，包括2020年，疫情大流行的第一年，在疫苗发行之前。但是到了2021年，数字急剧上升，而2021年的数据甚至不包括11月和12月。
+
+除了流产诊断的激增（自然流产的ICD代码O03），癌症诊断几乎增加了300%（从五年平均每年38700例增加到2021年前11个月的114645例）。神经系统问题的诊断代码也增加了1000%，从基线平均8.2万个增加到86.3万个！
+
+约翰逊参议员被这揭露数据震惊了，他要求伦茨澄清：“十倍，”他说。”那是十倍的比率？”
+
+伦茨确认说：
+
+“每年82000人，一年内达到86万3000人。我们的士兵正在接受试验，受伤害，有时还可能被杀。”
+
+不幸的是，疫苗的灾难性影响可能比想象的还要严重，尤其是对年轻人来说。
+
+伦茨在听证会上没有提到但在采访中给出其他一些数字如下：
+
+心肌梗塞–增加269%
+
+贝尔氏麻痹–增加291%
+
+先天性畸形（军人子女）–增加156%。
+
+女性不孕症–增加471%
+
+肺栓塞 – 增加467%
+
+所有这些数字都属于门诊就诊，因为军队中的大量诊断都在此发生。但伦茨说，住院病人也有增加。其中一位军医的宣誓声明中写道：
+
+“我的专业意见是，上述流产、癌症和疾病事件的大幅增加是由于COVID-19‘疫苗接种’。”
+
+新闻来源：[https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
 
 
-根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
 
-一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
+> [Whistleblowers Reveal DoD Medical Data Showing Military Cancer Diagnoses HAVE TRIPLED Since The Rollout Of The Experimental Vaccines – Along With a 10x Increase in Neurological Disorders and a Near 5x increase in Female INFERTILITY – (VIDEO)](https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/)
 
-这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
 
-这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
-
-新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

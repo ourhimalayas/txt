@@ -2,45 +2,161 @@
 ---
 
 
-## 介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1857256/)
+## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
 
-2022-01-13
+Marjorie Taylor Greene (the U.S. representative of Georgia)
+玛乔丽·泰勒·格林 (美国佐治亚州众议员）
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1021-edited.png)图片来源：《国家先驱报》， 2022 年 1 月 12 日本文朗读版视频，作者16626
-**新中国联邦（国）得到美国的间接承认**
+I’m just happy to see that that the media and you know
+我很高兴看到媒体和你知道
 
-国家先驱报（2022 年 1 月 12日）针对塞浦路斯当局应国际刑警组织的红色通缉令的要求逮捕并准备引渡两名涉嫌欺诈罪的中国人的事件发表题为《介于北京与华盛顿之间的塞浦路斯––中国要求引渡两名受美国支持的（中国异议）活动人士》的评论文章指出：“（塞浦路斯）处理中国要求引渡两名受美国支持的（中国异议）活动人士的事件……变得复杂化。这两名被拘留者是新中国联邦（国）的成员和政治活动家。”
+my colleagues here on Capitol Hill are starting to catch up what
+我在国会山的议员同事们开始跟上了
 
-该篇评论文章还指出，这两名做为新中国联邦（国）成员的政治活动家所从事的政治活动是由郭文贵和史蒂夫·班农（Steve Bannon）发起的，其既定目标是推翻中国共产党（CCP），进而推翻中国政府。
+what the American people have known all along
+美国人民一直都知道的
 
-新中国联邦（国）或称为中国的“流亡政府”于2020年6月4日在纽约市成立，并得到美国的间接承认。
+none of us trusted Fauci
+我们都不信任福奇
 
-另外该篇评论文章还提到法治基金（[Rule of Law Foundation](https://rolfoundation.org/en/)）。法治基金于 1 月 5 日上周三发出信函给塞浦路斯司法和公共秩序部，同时也发送给内政部。法治基金是一个同样位于美国（纽约）的激进组织，旨在为中华人民共和国的人权提供保护服务。作为其活动的一部分，它对中国执政党（CCP）的成员采取了合法的法律行动。
+And that’s why I introduced the Fire Fauci Act early early last year
+这就是为什么我在去年初介绍了《解雇福奇法案》
 
-法治基金（ROL）发出的信函中指出，被捕的女子自 2020 年 4 月以来一直是法治基金的成员和支持者。
+because this is the man that is at the root of all of our problems
+因为这个人是我们所有问题的根源
 
-**塞浦路斯当局正面临两难境地**
+But I’d like to walk back even a little further
+但我还想往回走得更远一点
 
-塞浦路斯当局正面临两难境地。一方面是塞浦路斯与友好的中国达成了协议。另一方面是塞浦路斯必须面对这些在美国的保护下运作有组织的团体（新中国联邦和法治基金）。这些有组织的团体（新中国联邦和法治基金）呼吁停止政治迫害，并关注人权问题。
+Steve, I’m going to go ahead and say this
+史蒂夫，我要继续将这个说下去
 
-塞浦路斯共和国过去在处理俄罗斯联邦提出的引渡该国公民的请求中也曾处于相同的两难困境。这是由于担心这些外国国民（俄罗斯联邦提出引渡的公民）在被引渡后将面临的后果。
+and it’s been upsetting to me ever since it happened
+自从病毒发生以来，我一直很不安
 
-**其它美国机构的官方声明与法治基金信函**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1023.png)图片来源：《KNEWS报》， 2022 年 1 月 12 日
-KNEWS报（2022 年 1 月 12日）针对塞浦路斯当局逮捕并准备引渡两名涉嫌欺诈罪的中国人的事件也发表题为《塞浦路斯的引渡案变得政治化，美国的支持给来自中国的母子两人的引渡问题增加了新的变数》的评论文章指出，中共国对两名涉嫌欺诈罪的中国人的逮捕令是出于政治动机。中共国有虚假指控海外华人的可查证的记录，这些虚假指控旨在镇压反对中国共产党的行动。
+But when we shut our country down
+但是当我们关闭我们的国家时
 
-该篇评论文章还指出**，**该组织在法治基金发出的信函中还附带有其它美国机构的官方声明，这些美国机构的官方声明称他们也支持法治基金发出的信函的观点。
+when we shut it down to so called slow the spread
+当我们关闭国家以所谓的减缓传播时
 
-**参考资料及图片来源**：
+I knew we broke America. We broke our country
+我知道我们破坏了美国，我们破坏了我们的国家
 
-1. 国家先驱报，Εθνικός Κήρυξ，2022 年 1 月 12，ΚΟΙΝΩΝΙΑ，Η Κύπρος μεταξύ Πεκίνου – Ουάσιγκτον – Αίτημα έκδοσης από Κίνα για δύο ακτιβιστές που στηρίζουν οι ΗΠΑ， [https://www.ekirikas.com/i-kypros-metaxy-pekinou-ouasigkton/](https://www.ekirikas.com/i-kypros-metaxy-pekinou-ouasigkton/)
-2. KNEWS，Newsroom，2022 年 1 月 12，Extradition case in Cyprus gets political，Mother and son from China face extradition as American support is thrown into the equation，[https://knews.kathimerini.com.cy/en/news/extradition-case-in-cyprus-gets-political](https://knews.kathimerini.com.cy/en/news/extradition-case-in-cyprus-gets-political)
+When that happened, we stopped the supply chain
+发生这种情况时，我们停止了供应链
 
+We, you know, factories whose machines stay up running 24 hours a day had to shut down
+我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
 
-编辑发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+people went home and that is really what broke our country
+人们回家了，而且这真的是我们国家崩溃的原因
+
+and now it’s going to take a very long time to get back on track
+现在需要很长时间才能回到正轨
+
+And the biggest problem is, is we have people here in Washington
+最大的问题是，我们在华盛顿这里的人
+
+that are serving global interests or are interested in helping the great reset happen
+为全球利益服务或有兴趣帮助大重置的发生
+
+and are not serving the American people
+并且不为美国人民服务
+
+Inflation is very scary and it’s getting out of control.
+通货膨胀非常可怕，而且正在失控
+
+When the Fed is going to have to step in and raise interest rates
+当美联储将不得不介入并提高利率时
+
+We have long term problem that will not end by next year
+我们有长期的问题，明年不会结束
+
+they’re not going to end it two years
+他们不会在两年内结束它
+
+Here’s here’s the real issue when the cost of producing goods has increased so much
+当生产商品的成本增加如此之多时，这才是真正的问题
+
+and then the ability to provide the goods to the consumer are completely disrupted
+然后将商品提供给消费者的能力被完全破坏
+
+We have stagflation, but we also have real problems
+我们有滞胀，但我们也有真正的问题
+
+The biggest problem driving the cost of producing goods is several factors
+推动商品生产成本的最大问题是几个因素
+
+One of them is this mass COVID testing
+其中之一就是这种大规模的COVID测试
+
+mass COVID testing is continuing the panic in this in the society
+大规模的COVID测试正在继续在社会中引起恐慌
+
+and but it’s also giving people a reason to get out of work.
+但病毒也造成了人们失业
+
+You know what if you have a positive COVID test, whether you’re sick or not
+你知道如果你的COVID测试呈阳性，无论您你是否生病
+
+you have to stay home, and that means
+你必须待在家里，而且这意味着
+
+that it’s more expensive for the company to continue producing the goods or services that they provide
+公司继续生产他们提供的商品或服务的成本会更高
+
+because they less have less people there at work
+因为他们工作的人少了
+
+And then you have less people to unload the train, unload the cargo, put it back on the shelf
+然后你就没有多少人来卸火车，卸货物，把它放回货架上
+
+I mean, we have so many serious problems
+我的意思是，我们有很多严重的问题
+
+and we can point it all at one man that is Dr. Fauci
+我们可以把这一切都指向一个人，那就是福奇博士
+
+Dr. Fauci is responsible for all of this, he created the gain of function
+福奇博士对此负一切责任，他创造了功能增强研究
+
+He gave it to China, they created the bio weapon
+并把它给了中共，中共创造了生物武器
+
+which is COVID-19 and it broke the world
+这就是COVID-19，它破坏了世界
+
+but our government and anyone that goes along with this
+但如果我们的政府和任何工作人员
+
+and doesn’t fire Fauci, investigate him, prosecute him
+不去解雇福奇，调查他，起诉他
+
+and hold him accountable is failing the American people
+追究他的责任，那就是辜负美国人民
+
+* * *
+
+Date:01/15/2022
+原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
+玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+原视频日期：2022/01/15
+原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
+任务编号：KE350（3492）
+视频时间段 : 0:00-2:44
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作： 洛杉矶盘古农场 – 天涯行
+审片： 洛杉矶盘古农场 – 银龙
+发布： 洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
