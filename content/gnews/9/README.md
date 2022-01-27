@@ -2,38 +2,30 @@
 ---
 
 
-## Eglise医生讲述青蒿素有助眠安神抗抑郁作用
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920059/)
+## 扬帆每日速递——2022年1月27日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1920147/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2ab7987664c47acdad195](https://gtv.org/video/id=61f2ab7987664c47acdad195)
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、因严重的国家安全风险，美国联邦通信委员会已投票决定吊销中国联通美国公司的运营许可。这是联邦通信委员会分别在2019年和2020年吊销中国移动和中国电信许可证之后又一行动。至此，中共国3大运营商在美国的运营执照全部被吊销。
 
-**Dr.Eglise****：**这个青蒿素为什么能够助眠？的确有助眠作用，因为人体在睡眠当中它有分泌一种脑的内啡肽，叫做褪黑素，所以就能使人进入深的动眼睡眠，就是有那个梦境的睡眠，就是高质量的深睡眠。这个青蒿素我估计它有这方面作用，因为同一些其他文件，我发现青蒿素因为它有抗抑郁症作用，有一些国家医生喜欢用青蒿素给严重抑郁症的患者用。
+2、1月26日，英国《每日快报》（Daily Express）报道，一名大陆飞弹科学家在英国“军情六处”（MI6）和中情局的协助下，已经辗转逃离中国，而此人的出逃，对中共损失严重。
 
-它有这个安神、助睡眠，让患者不那么精神高度紧张，所以对抑郁症有效果，对严重失眠有效果，所以最近就看出它对大对大脑内啡肽可能还不仅仅是褪黑素，可能还有其他的，像血清素这些，都有可能分泌一些激素，会让人觉得比较愉悦，心情比较平稳，所以都是一些好的大脑的那种化学物质分泌，所以它是一个很好的让你处于愉悦状态的一个天然保健品。
+3、据文贵大直播：目前至少50多个国家驻北京大使馆准备撤离，中国外交部因其在国际上卑鄙龌龊的行为为国际社会所鄙视。
 
-视频听写：青桐；
+4、据文贵大直播：1月26 日下午，超过100多个国际金融机构和公司和30几个大的国际NGO组织，研究如何配合和查封本属于中国人民的中共高官海外资产，这一步绝不亚于“不断不交授权撤离”。
 
-编辑整理：海贼王M.D.LUFFY；
+5、河北省文旅厅1月27日发布紧急通知，河北省已出现中风险地区，即日起暂停旅行社及在线旅游企业经营我省跨省团队旅游及“机票+酒店”业务。
 
-字幕文件制作：小满；
+6、1月27日Now新闻报道，港大对二名接种者的案例研究得出结论:复必泰疫苗可对Omicron快速产生免疫反应。只是二名接种者的案例就能代表医学研究成功？评:为何不研究沒接种就有天生抗体？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板127-2_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
 
-视频制作及上传：Cindy；
+编辑：文敏
 
-G.News发布：小满；
+发布：风起云间（文敏）
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
+海报图片设计：飞天面、Shuang
 
  
 
