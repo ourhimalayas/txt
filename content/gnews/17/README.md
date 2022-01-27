@@ -2,36 +2,46 @@
 ---
 
 
-## 有声|台湾加入外交抵制中共冬奥会的行列
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920098/)
+## Eglise建议女性服用青蒿素注意要补充亚铁血红素
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920134/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月26日，据台湾媒体报道，随着西方国家接连宣布对中共北京冬奥会的外交抵制，加之中共实施的愈发严峻的对台统战政策，台湾行政院、教育部及陆委会等相关部门在协商后决定，台湾代表团将不会出席中共北京冬奥会的开、闭幕式，同时，依照以往惯例将不会有政府官员随团参会。
+G-TV视频链接：[https://gtv.org/video/id=61f2ac0c87664c47acdad1b3](https://gtv.org/video/id=61f2ac0c87664c47acdad1b3)
 
-相关政府人员在当天接受采访时表示，按照中共的一贯做法，其将借由冬奥会的开幕式进场典礼凸显所谓的“一中”概念。因此，中共必将以“中国台北”的称呼矮化台湾，而台湾则坚决拒绝这一矮化行为。为此，虽然政府不会限制已经取得资格的台湾选手参赛，但官员不随行及代表团不出席开幕式的决定代表了台湾对此次冬奥会的外交抵制态度。
+**魔女：**我本人有一个疑问，我们知道青蒿素作为一个营养素，我们日常是在用，从一开始我们是用硫酸羟氯喹去预防的，我们现在很多战友每周吃一次，加锌。然后现在还有伊维菌素，那么现在我本人因为羟氯喹停了一段时间，是因为吃的时间长了之后我发现我的眼睛视力有点下降，然后变得很容易累，这样我就停了。
 
-原文链接：[台湾加入外交抵制中共冬奥会的行列](https://gnews.org/zh-hans/1918583/)
+停了之后正好是青蒿素出现，我就开始用青蒿素，那么现在我觉得我本人是不是要改呢？就是用我们的伊维菌素去预防，然后青蒿素去配合，再普遍的吃自己缺少的维生素，我是一个很健康的人，没有什么慢性疾病，是不是我们比较普通的没有任何特殊疾病的人，像我说的这样去预防呢？
 
-音频处理/发稿：Daxia
+**Dr.Eglise****：**魔女姐，我觉得你整个一套预防方案非常符合您，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+其实对大多数人都适用，因为伊维菌素是一个主打的抗病毒抑制剂，它是个病毒抑制剂，既抗病毒粘附细胞又能够防止病毒的复制，它是一个主打的抗病毒药。你如果能够得到伊维菌素，最好把它作为你预防方案当中的一个药。
 
-**更多资讯，更多关注**
+一个星期也就服用一、两次，是吧，负担也没很大，你如果实在得不到这个药，你再想其他替代的，比方NAC，我们前面讲的还有槲皮素，现在我们又有青蒿素保健品，你不把它当作病毒预防剂吧，你至少把它当作你的免疫调节剂。通俗来讲对于女性服用青蒿素保健品也好，衍生物也好，最好服用亚铁血红素，也就是一种吸收性的铁。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+因为青蒿素实在是铁消耗剂，它进了人体内它就找铁，所以你一定要给你自己相对要补充一些，要不然很容易出现缺铁性贫血。男性就相对没有那么严格了，你可以服用一段时间，比如一个星期，你休三个星期，一个月你服用一个星期，或者你隔三天服一次都行。但是女性，特别育龄期女性，你还有月经的女性最好就是常服亚铁血红素。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+视频听写：青桐；
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+编辑整理：海贼王M.D.LUFFY；
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+字幕文件制作：小满；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+G.News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 

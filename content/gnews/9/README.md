@@ -2,30 +2,42 @@
 ---
 
 
-## 扬帆每日速递——2022年1月27日版（2）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1920147/)
+## Eglise医生回答贫血是否能服用青蒿素保健品及每日铁摄取量
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920203/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、因严重的国家安全风险，美国联邦通信委员会已投票决定吊销中国联通美国公司的运营许可。这是联邦通信委员会分别在2019年和2020年吊销中国移动和中国电信许可证之后又一行动。至此，中共国3大运营商在美国的运营执照全部被吊销。
+G-TV视频链接：[https://gtv.org/video/id=61f2ac7887664c47acdad1be](https://gtv.org/video/id=61f2ac7887664c47acdad1be)
 
-2、1月26日，英国《每日快报》（Daily Express）报道，一名大陆飞弹科学家在英国“军情六处”（MI6）和中情局的协助下，已经辗转逃离中国，而此人的出逃，对中共损失严重。
+**南希：**说贫血可以吃这个青蒿素保健品吗？刚还有另一位战友问铁一天的摄取量的问题。
 
-3、据文贵大直播：目前至少50多个国家驻北京大使馆准备撤离，中国外交部因其在国际上卑鄙龌龊的行为为国际社会所鄙视。
+**Dr.Eglise****：**铁一天的摄取量，成人通常就是说没有严重的缺铁性贫血，10毫克左右一天就够了，你可以10毫克，15毫克都行。但是对于严重贫血的人，那你可以集中一段时间，比如说你吃个两、三个星期，尽量高一点，15毫克、20毫克，然后你再慢慢减量。铁也不能够一直大剂量吃，也会吃出问题来的，因为它会影响一些其他酶的活性。
 
-4、据文贵大直播：1月26 日下午，超过100多个国际金融机构和公司和30几个大的国际NGO组织，研究如何配合和查封本属于中国人民的中共高官海外资产，这一步绝不亚于“不断不交授权撤离”。
+所以身体就是要一个平衡，你任何东西多了少了都会有问题，所以不要走极端，你就是要保持，你的身体的反应能够告诉你是多还是少。就像我们吃青蒿素保健品，我们开始嗜睡自然就会减量，不用其他人告诉我。而且用青蒿素治疗你贫血的话，那你就一定要补铁了，同时你还要去医院查一下你贫血的性质。
 
-5、河北省文旅厅1月27日发布紧急通知，河北省已出现中风险地区，即日起暂停旅行社及在线旅游企业经营我省跨省团队旅游及“机票+酒店”业务。
+因为有很多种不同的贫血，你要看是什么原因引起的。缺铁性贫血也是最普遍的，最容易治疗的，其他就是真的要看你原先的病源是什么。
 
-6、1月27日Now新闻报道，港大对二名接种者的案例研究得出结论:复必泰疫苗可对Omicron快速产生免疫反应。只是二名接种者的案例就能代表医学研究成功？评:为何不研究沒接种就有天生抗体？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板127-2_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
+视频听写：青桐；
 
-编辑：文敏
+编辑整理：海贼王M.D.LUFFY；
 
-发布：风起云间（文敏）
+字幕文件制作：小满；
 
-海报图片设计：飞天面、Shuang
+视频制作及上传：Cindy；
+
+G.News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 
