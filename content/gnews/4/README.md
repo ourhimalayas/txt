@@ -2,43 +2,115 @@
 ---
 
 
-## 应该竭尽所能避免给年轻人和孩子接种新冠疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1918056/)
+## 无论习共党，还是江共党，老百姓的都是奴隶
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918153/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-27-at-12-06-16-MIT-Scientist-纳米颗粒-让你的细胞在短时间内迅速产生大量的-刺突蛋白-刺突蛋白是病毒里毒性最强的-on-GTV.png)
-**简评：**
+[https://gtv.org/video/id=61f1624087664c47acda62ae](https://gtv.org/video/id=61f1624087664c47acda62ae)
 
-年轻人死于新冠病毒的风险非常非常低，给年轻人接种新冠疫苗非常荒唐。从长期来看，接种加强针对身体伤害很大，年轻人接种没有任何好处。
+**郭文贵
+Miles Guo**
 
-疫苗进入身体后，人体免疫细胞变得紧张，开始进行防御，细胞本身也会吸收疫苗开始产生刺突蛋白。刺突蛋白是病毒里毒性最强的。然后这些免疫细胞进入淋巴系统，后进入脾脏，并在脾脏中制造了大量的刺突蛋白。脾脏中的生殖中心正是帕金森病和许多神经退行性疾病的中心位置。这就是对疫苗的完全设置。应该竭尽所能地避免给孩子接种新冠疫苗。
+严格讲，南普陀计划它不可能就一个目标
+Strictly speaking, the Nanputuo plan cannot have only one single goal
 
-- GETTR视频链接：[https://gettr.com/post/pozhtze4b8](https://gettr.com/post/pozhtze4b8)
-- GTV视频链接：[https://gtv.org/video/id=61eac91c87664c47acd7d4b8](https://gtv.org/video/id=61eac91c87664c47acd7d4b8)
+它当时把习作为一个就让你干5年就滚蛋吧，是吧，这是绝对的
+it would allow Xi as the one for 5 years and then let hime get out, right? it’s absolute
 
+然后呢培养第二个傻子过来，但是呢， 他第一段没成功
+Then it would train a second fool to come over, but it didn’t succeed in the first part
 
-**视频字幕：**
+习不走了，本来是在这儿当临时演员，不走了
+Xi is not leaving, he was originally here as an background actor, but now he is not leaving
 
-**MIT Scientist****：**给年轻人接种新冠疫苗的做法很荒唐，因为他们死于新冠的风险非常、非常低。接种这种疫苗对年轻人没有任何好处。而当你看到这些疫苗的潜在危害时，接种新冠疫苗没有任何道理。我认为从长期来看，接种加强针对身体的破坏性将会非常大。我做了很多研究，而且当我真的开始了解整个（新冠疫苗）过程到底是如何作用的，我感到非常不安。
+现在要当导演了，但是人家南普陀有多手计划，
+Now he wants to be a director, but Nanputuo has many plans
 
-**主持人：**现在，你在研究中特别强调的神经退行性疾病方面的问题，如果你可以的话，用通俗的语言解释一下。
+如果习不听话咋办
+What if Xi is not obedient?
 
-**MIT Scientist****：**好的，我尽力。当然，科学一向都是复杂的，但研究的课题却很吸引人。疫苗被注射到手臂上，肌肉细胞就会变得很紧张。注射疫苗就好像带来了一大批部队，人体免疫细胞开始进行防御，这些细胞自身也会吸收疫苗。他们吸入纳米颗粒后开始产生刺突蛋白，这些颗粒基本上让你的细胞在短时间内迅速产生大量的刺突蛋白，刺突蛋白是病毒里毒性最强的。然后这些免疫细胞冲进淋巴系统，它们中的许多最终进入了脾脏，而这正是你希望它们进入的地方，从而产生抗体。这就是接种疫苗的目标。
+那就让你折腾，利用你的手，利用你的疯狂，把党内的所有我的(政敌)
+Then let him mess around, use Xi’s hands, use Xi’s madness, and kill all my political enemies in the party
 
-所以他们设计了它，而且他们非常高兴地看到，疫苗最终在脾脏中制造了大量的刺突蛋白，然后唤起免疫B细胞产生抗体的免疫反应。但问题是，脾脏中的那些生殖中心，正是帕金森病和其他许多神经退行性疾病的中心位置。但是对于帕金森病来说，它已经被很好地阐述了，你先染上类似朊病毒的蛋白质，它甚至是来自肠道的感染。免疫细胞把它们带到脾脏，带到那些生殖中心，然后它们开始喷出外泌体。这些是由细胞释放的小脂质颗粒，将有毒的蛋白质卸下，并沿着丘脑神经运送到大脑。这在帕金森病方面是众所周知的。这就是我所使用的模型。在我看来，这是对疫苗的完美设置。
+第一那前五年，习百分之百被王岐山、孟建柱(控制)
+In the first five years, Xi was 100% controlled by Wang Qishan and Meng Jianzhu
 
-**主持人：**医生，这是一个非常简短的采访。我们将再请您回来。但对与来自各方压力的家长们在决定是否给孩子注射新冠疫苗的问题上，您会给他们什么建议？
+你想想孙力军都能干这样，就把一个完全的江家的对手全清光
+you think about that Sun Lijun can do this, he completely cleared the opponents of the Jiang family
 
-**MIT Scientist：**他们应该尽力去避免给孩子接种这种新冠疫苗，竭尽所能。
+而且习深信不疑该清光，是吧
+And Xi Jinping truly believes that it should be cleared up, right?
+
+第二个五年让你修宪，你可以修宪
+In the second five years, Xi asked for amendment to the constitution, you can amend the constitution
+
+你不听了，是吧，然后让你跟世界走向疯狂
+if you don’t obey, right? and then let you go crazy with the world
+
+然后让你发出潘多拉盒子的病毒，让他放出病毒就决定了习的死亡
+Then let Xi send out the virus of Pandora’s box, and letting him release the virus will determine Xi’s death
+
+没有任何的，这个时候的共产党已经不是共产党了，是习党，是习共党
+There is nothing, the Communist Party at this time is no longer the Communist Party, it is the Xi Party, it is the Xi Communist Party
+
+但是回答你的问题，现在习所有的作出的决定和灭亡，就是习共党的灭亡
+But to answer your question, all the decisions made by Xi now, and it’s the demise of the Xi-Communist Party
+
+然后这家族是什么？江家从来没觉得共产党跟我毛关系
+And what is this family? The Jiang family never felt that the Communist Party had anything to do with Jiang’s family
+
+共产党就是我用的那个擀面杖子，习也一样，他们都比咱恨共产党
+The Communist Party is the rolling pin Jiang use, and so does Xi, they all hate the Communist Party more than we do
+
+但是他必须用共产党统治这些已经被洗了脑的中国14亿僵尸啊，这些奴隶呀
+But he has to use the Communist Party to rule these brainwashed 1.4 billion Chinese zombies and slaves
+
+最后就是江家找个名声，曾出手之日
+in the end, the Jiang family find the reason, and Zeng make his move
+
+王岐山和孟建柱和江家出手之日
+When Wang Qishan, Meng Jianzhu and the Jiang family made their move one day
+
+你会发现就像川普最后一个被内阁给策反一样
+you will find that it was just like Trump was the last to be overthrew by the cabinet
+
+你会发现突然间所有习最相信的人，都是他的敌人
+You will find that suddenly all the people who Xi trusts most are all his enemies
+
+杀手锏，啪，就完了，所以说，没什么党，这都是家族的
+It is killing hand, it’s over quickly, so, there is no party, it’s all family’s
+
+那个时候是江共党，现在是习共党
+At that time it was the Jiang Communist Party, now it is the Xi Communist Party
+
+现在的决定，既不是党的决定, 就是习共党的决定
+and the current decision is neither the party’s decision or It was the decision of the Communist Party of Xi
+
+那时候是江共党的决定，就这么简单
+at that time, it was the decision of the Communist Party of Jiang, it’s simple like this
+
+咱们老百姓就是奴隶
+We Laobaixing are slaves
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date: 01/24/2022
+原视频标题: 无论习共党，还是江共党，老百姓的都是奴隶
+Regardless of the Communist Party of Xi or the Communist Party of Jiang, the Laobaixing people are slaves
+原视频日期：2022/01/21
+原视频链接 [**https://gettr.com/post/pq2wyxc7cf**](https://gettr.com/post/pq2wyxc7cf)
+任务编号：KC432(3575)
+视频时间段 : 0:00-2:19
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 –银龙
+发布：洛杉矶盘古农场 –恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

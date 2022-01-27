@@ -2,34 +2,28 @@
 ---
 
 
-## 随着Diem倒闭，脸书逐渐退出加密货币市场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916829/)
+## 2021年中共国GDP数据显示 中共国母猪又上树了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916905/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-28.jpg)
+图片来源： 搜狐
 
-整理/编辑：小红帽
+##### 根据2022年1月26日  网易报道，中共国至少28个省级行政区公布了2021年GDP数据。 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/P1KJTAXSGR_1_2MT.png)图片来源：CNBC
+##### 其中诞生了两个“四万亿”城市：北京市GDP达4.02万亿元；上海市GDP达到4.32万亿元，广东省GDP突破12万亿元，江苏紧跟全国第一广东其后；“后进生”安徽2021年GDP突破4万亿元。
 
+新闻称北京市GDP突破4万亿元得益于高端制造业**、医药等新兴产业和数字经济的拉动，尤其是医药制造业在疫苗生产带动下比上年增长****2.5****倍，**支撑了北京的经济增长。2021年1月到11月，**科兴中维、国药北生研两家新冠疫苗生产企业**累计贡献产值超2300亿元，而上海市则得益于其积极布局战略产业如集成电路、生物医药、新能源汽车制造等产业。
 
-根据《市场观察》1月26日报道，脸书（Facebook）将加密货币带给大众的雄心勃勃努力已经失败。
+从官方的数据来看，除了一直稳定发展的广东省和江苏省，这次“黑马”是安徽省——–这次仅以0.03万亿的微弱劣势，暂时排在上海之后，除此之外，**山东、天津提速，湖北****GDP****重回前七**** ，****山西实现反超，江西直追陕西。**全国各地从疫情后重振中站起来，逐步回归常态。
 
-一位知情人士表示，脸书在2019年成立的，旨在建立一个未来式支付网络的财团–Diem协会（Diem Association ）正在逐步关闭，并以约2亿美元的价格将其技术出售给一家为比特币和区块链公司服务的加州小银行。
+分析称，随着中部崛起战略深入实施，在长江中游城市群“抱团”发展及高质量共建“一带一路”的带动，中部省份的增长将撬动各省GDP排名的重构。
 
-这家加州银行为Silvergate Capital Corp，早些时候与Diem达成协议，发行一些稳定币。这些稳定币由硬美元支持，目标是要比比特币和其他数字货币的波动性更小。该稳定币就是这个项目的核心。
+靠着杀人的中共新冠疫苗拉动的GDP，靠着吃中国老百姓血肉拉动的GDP，因为毫无人性的封城，疫情清零政策，老百姓被饿死在家！中共官媒还在假大空骗老百姓！这又是文革式的洗脑宣传— 母猪会上树2.0！
 
-这次Diem 的出售代表着脸书从一个几乎从一开始就受到挑战的风险中榨取一些剩余价值的努力。脸书（现为Meta Platforms公司）在2019年推出了名为Libra的项目，旨在成为社交网络数十亿用户像发送短信一样轻松消费的一种方式。
+**新闻来源：**
 
-新闻链接：[Facebook’s foray into crypto is quietly ending](https://www.marketwatch.com/story/facebooks-foray-into-crypto-is-quietly-ending-11643249936)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://www.163.com/dy/article/GUIVTKA00514BE2Q.html](https://www.163.com/dy/article/GUIVTKA00514BE2Q.html)
 
  
 
