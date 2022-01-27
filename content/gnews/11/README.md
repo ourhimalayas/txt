@@ -2,28 +2,42 @@
 ---
 
 
-## 多国议员要求设立黑名单 禁止投资涉及侵犯人权行业
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1916169/)
+## 有声|日本允许年轻染疫者不就诊居家疗养
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1916252/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-39.jpg)多国议员要求设立黑名单 禁止投资涉及侵犯人权行业 网络图片
-据美国之音1月27日报道，一个由200多名来自多个欧盟国家、英国、印度、澳洲和加拿大的议员组成、针对中共国人权问题的“对华政策跨国议会联盟”提出新措施，要求他们的政府设立类似美国商务部的黑名单制度，禁止投资被指控参与中共国政府在新疆侵犯人权行为的公司。
-
-1月初，英国汇丰银行为一名客户购买新疆天业集团价值300万美元的股份。新疆天业集团是新疆生产建设兵团旗下的国有企业，而新疆生产建设兵团是隶属中方的准军事组织，在2020年7月因针对少数民族的人权问题被美国制裁。美国公民被禁止与新疆生产建设兵团有任何交易。同时，美国亦禁止任何与新疆生产建设兵团有关、经过美国的交易。对华政策跨国议会联盟表示，不能无视大型银行在新疆侵犯人权行为中扮演的角色，要求制订黑名单，惩罚这些银行。
-
-国际特赦组织曾经指，有多达100万人被监禁在新疆境内的“再教育营”，被逼接受爱国爱党教育。这些被拘禁的维吾尔人被迫放弃了自己的信仰、文化、习俗、语言，接受汉语教育。他们遭受各种伤害，被殴打、被虐待、从事艰苦的劳动，很多人失去了生命。新疆人权问题是国际关注的焦点。美国前国务卿蓬佩奥先生去年已经宣布中共犯有种族灭绝和反人类罪。任何与中共的种族灭绝行为有关联的个人和企业都应该受到制裁和惩罚，进入各个国家的黑名单。
-
-新闻参考链接：[https://www.voachinese.com/a/international-legislators-call-for-crackdown-on-hsbc-financing-of-uyghur-abuses-20220126/6413909.html](https://www.voachinese.com/a/international-legislators-call-for-crackdown-on-hsbc-financing-of-uyghur-abuses-20220126/6413909.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+配音：香草山健身部 – 玫瑰园
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-30.jpg)
+
+
+
+日媒报道，鉴于当前中共病毒奥密克戎变异株迅速蔓延的形势，日本厚生劳动相后藤茂之在当地时间1月24日宣布，将允许年轻人中症状较轻，以及重症化风险较低的感染者，不去医疗机构就诊而开始居家疗养。
+
+该政策需要上述病人自行开展病毒检测，再将结果告知行政部门开设配有医生的健康跟进中心。还允许各地仅限出现发热等症状，但重症化风险较低的人，呼吁其在自行使用试剂盒检测之后再就诊。
+
+据悉，此前日本政府要求确诊感染中共病毒后，原则上需要在医疗机构就诊，但现在日本政府根据奥密克戎的特性转变了方针，此举旨在于减轻医疗机构和保健所的负担。
+
+原文链接：[日本允许年轻染疫者不就诊居家疗养](https://gnews.org/zh-hans/1914196/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

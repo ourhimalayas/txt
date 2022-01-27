@@ -2,25 +2,30 @@
 ---
 
 
-## 当年戈培尔说希特勒就是他要找的那个人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916039/)
+## 多国议员要求设立黑名单 禁止投资涉及侵犯人权行业
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1916169/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/当年戈培尔说希特勒就是他要找的那个人-.jpg)
-直播时间：2021.12.01
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-39.jpg)多国议员要求设立黑名单 禁止投资涉及侵犯人权行业 网络图片
+据美国之音1月27日报道，一个由200多名来自多个欧盟国家、英国、印度、澳洲和加拿大的议员组成、针对中共国人权问题的“对华政策跨国议会联盟”提出新措施，要求他们的政府设立类似美国商务部的黑名单制度，禁止投资被指控参与中共国政府在新疆侵犯人权行为的公司。
 
-当年戈培尔对希特勒说：“你就是我要找的那个人，就是上帝。”
+1月初，英国汇丰银行为一名客户购买新疆天业集团价值300万美元的股份。新疆天业集团是新疆生产建设兵团旗下的国有企业，而新疆生产建设兵团是隶属中方的准军事组织，在2020年7月因针对少数民族的人权问题被美国制裁。美国公民被禁止与新疆生产建设兵团有任何交易。同时，美国亦禁止任何与新疆生产建设兵团有关、经过美国的交易。对华政策跨国议会联盟表示，不能无视大型银行在新疆侵犯人权行为中扮演的角色，要求制订黑名单，惩罚这些银行。
 
-希特勒跟戈培尔密谈的时候，戈培尔告诉希特勒，什么能征服人心：第一是音乐，第二是视频，第三是演讲，第四是电影。哇塞，这个希特勒就把电影、音乐发挥到极致。你看看希特勒的那个音乐，那个军歌了没有，走道的时候“砰！砰！砰”。希特勒在社会党演讲的时候，一上来，“咵！咵！咵！咵！咵！咵！砰！”静下来了，然后希特勒上来了，上来以后停了11秒，不说话，左右观看，然后就是喊“德意志伟大！”，所有人全傻了。这就是戈培尔设计的。
+国际特赦组织曾经指，有多达100万人被监禁在新疆境内的“再教育营”，被逼接受爱国爱党教育。这些被拘禁的维吾尔人被迫放弃了自己的信仰、文化、习俗、语言，接受汉语教育。他们遭受各种伤害，被殴打、被虐待、从事艰苦的劳动，很多人失去了生命。新疆人权问题是国际关注的焦点。美国前国务卿蓬佩奥先生去年已经宣布中共犯有种族灭绝和反人类罪。任何与中共的种族灭绝行为有关联的个人和企业都应该受到制裁和惩罚，进入各个国家的黑名单。
 
-发布：*皮特*
+新闻参考链接：[https://www.voachinese.com/a/international-legislators-call-for-crackdown-on-hsbc-financing-of-uyghur-abuses-20220126/6413909.html](https://www.voachinese.com/a/international-legislators-call-for-crackdown-on-hsbc-financing-of-uyghur-abuses-20220126/6413909.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
