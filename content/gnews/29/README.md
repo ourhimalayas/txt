@@ -2,32 +2,32 @@
 ---
 
 
-## 爆炸新闻：YouTube永久禁止Dan Bongino
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918324/)
+## 橡树资本没收 香港“凡尔赛宫 ”地块，破坏恒大重组计划
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1918419/)
 
-编译：wenwu
+素材整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-27-at-8.55.33-PM.png)图片来源：互联网
+**橡树资本拿下了恒大在香港的一大片土地，破坏了恒大200亿美元的海外债务重组计划，这家濒临破产的房地产开发商的主席许家印曾打算在这里建造一座类似凡尔赛宫的豪宅。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-14-3.jpg)图片来源：Hannah Nightingale
+**据两位熟悉此事的人士称，在恒大违约后，总部位于洛杉矶的橡树公司本周采取行动，夺取了该资产的控制权–内部人士称之为 “城堡项目。橡树资本管理着1580亿美元的资产，承担对恒大违约贷款项目的担保。**
 
-YouTube于周三（26日）永久禁止保守派评论员丹·邦吉诺(Dan Bongino)进入该平台，据说是因为违反了该平台的COVID-19错误信息政策。
+**据其中一位人士称，这个220万平方英尺的项目是恒大巨额境外债务重组计划中的一个重要抵押品，但在橡树公司任命接管人后，该计划现在陷入混乱。**
 
-邦吉诺在该平台自己频道发布的最后一个视频名为“Why I’m Leaving YouTube”(为什么我要离开YouTube)。然后他被完全禁止在该平台上使用。
+**其中一位人士说，”城堡项目 “将成为促进该公司境外债务重组的重要资产部分。**
 
-一位代表YouTube的发言人告诉美国国会，“当一个频道被强迫注销时，发布内容或使用另一个频道来规避禁止使用令，是违反我们服务条款的。”
+**据第二位相关人士称，接管人的任命必须得到香港法院的批准之后，该资产 “将从恒大的总体重组中移除”。**
 
-邦吉诺一直在他的主要YouTube频道上发布内容，而他的次要频道（主要发布他的广播节目的短片）则因违反YouTube的COVID-19错误信息政策而被暂停；邦吉诺的两个频道都已从网站上删除，他今后将不能再创建新的频道。YouTube发言人还证实，任何“与他的名字相关”的新频道也将被拒绝。
+**橡树公司的这一举动是所有国际资本参与者在应对恒大危机中最重要的行动之一，恒大去年成为中国房地产行业庞大债务的象征，并面临着一个漫长的重组过程。恒大的债务重组将是中国历史上最大的债务重组，自去年财务状况开始崩溃以来，恒大发生了一系列违约事件，因此，恒大急于安抚债权人。**
 
-“看着@YouTube的共产主义者在我们告诉他们去f%^\*自己之后拼命地挽回面子，很搞笑，”[邦吉诺报告](https://twitter.com/BonginoReport/status/1486431983249117190?s=20)（Bongino Reprot）在Twitter上写道：“他们声称我们‘试图逃避管治’。真的吗？通过发布最后一个标题是’Why I’m Leaving YouTube’的视频？”
+**恒大在国际债券市场的总负债超过3000亿美元，其中约200亿美元由投资者借入，投资者关注其离岸资产，包括在香港的上市子公司。橡树资本上周就可能对该公司采取的执法行动提出警告，恒大以一份声明回应，要求他们不要采取法律行动。**
 
-新闻来源：[thepostmillennial.com] [BREAKING: YouTube permanently bans Dan Bongino](https://thepostmillennial.com/breaking-youtube-permanently-bans-dan-bongino) |发布时间：2022年01月26日
+**恒大在9月首次开始拖欠其境外债券的利息，并在12月被评级机构惠誉列为违约。那时，它的流动性问题已经蔓延到了中国的房地产行业，它的几个同行也没有支付国际债券。**
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
+*编辑&发布：Vicky*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+原文链接：[Oaktree scuppers Evergrande restructuring plan by seizing ‘Versailles mansion’ plot](https://www.ft.com/content/5d82c807-ca1f-4101-b515-e0f53f9503ed)
 
  
 

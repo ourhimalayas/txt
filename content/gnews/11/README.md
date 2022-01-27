@@ -2,30 +2,25 @@
 ---
 
 
-## 台湾加入外交抵制中共冬奥会的行列
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918583/)
+## 2022.1.27大直播 郭文贵先生谈爆料革命五年最感慨的事：灭共易，改变人心难
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1918667/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月26日，据台湾媒体报道，随着西方国家接连宣布对中共北京冬奥会的外交抵制，加之中共实施的愈发严峻的对台统战政策，台湾行政院、教育部及陆委会等相关部门在协商后决定，台湾代表团将不会出席中共北京冬奥会的开、闭幕式，同时，依照以往惯例将不会有政府官员随团参会。
-![This image has an empty alt attribute; its file name is 截屏2022-01-27-上午5.58.21.png](https://assets.gnews.org/wp-content/uploads/2022/01/%E6%88%AA%E5%B1%8F2022-01-27-%E4%B8%8A%E5%8D%885.58.21.png)
-相关政府人员在当天接受采访时表示，按照中共的一贯做法，其将借由冬奥会的开幕式进场典礼凸显所谓的“一中”概念。因此，中共必将以“中国台北”的称呼矮化台湾，而台湾则坚决拒绝这一矮化行为。为此，虽然政府不会限制已经取得资格的台湾选手参赛，但官员不随行及代表团不出席开幕式的决定代表了台湾对此次冬奥会的外交抵制态度。
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-27-at-9.55.52-PM.jpeg)
+郭文贵先生在2022年1月27日大直播中，谈到了他从美国授权大使馆撤离事件看出的中国人普遍存在的一个大的问题。
 
-参考链接：[北京冬奧我代表團不出席開閉幕式 黨政人士：將由教育部宣布](https://news.ltn.com.tw/news/politics/breakingnews/3814076)
+美国授权中国大使馆撤离发生后，不到一天的时间，一条副国务卿的推特就让许多战友开始怀疑，怀疑是不是骗局，是不是阴谋论。
 
-![This image has an empty alt attribute; its file name is 1-Jan.jpeg](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+郭先生说，从人们对这件事的反应，他感受到了中国人的不自信，猜测怀疑，用怀疑否定一切真实和美好，扭曲了事实真相，以至于这么大的喜事，竟然没人敢相信，没人敢高兴。
 
-总编：Ivy001
-编辑：Lakeman文仁
-校正/发稿：呼吸的雾霾（文小呼吸）
+郭先生指出这是共产党的文化造成的假、丑、骗、恶的毒，它扭曲了人心，让人骨子里的崇洋媚外，羡慕妒忌恨，容不得别人好。不相信真，不相信善。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生告诫战友们，不要因为别人的过去就决定别人的未来，不要因为看到黑暗就否定一切，不要因为你没见识过就不相信。我们应该做一个正常人，应该去帮助、包容和爱同类。
+
+郭先生提到，在爆料革命五周之际，让他最感慨的是：灭共容易，让中国人心变好难上加难。他重申灭共以后绝不会回到中国，更不会参与政治，接管中国。
+
+参考链接：https://gtv.org/broadcast/watch/61f297e628a108147c63ad38
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

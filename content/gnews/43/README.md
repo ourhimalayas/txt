@@ -2,103 +2,79 @@
 ---
 
 
-## 01/27每日播报｜新闻简讯 : 中共国家开发银行副行长被双开 朝鲜第6次朝东岸发射导弹
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1917788/)
+## 01/27每日播报|社媒消息：班农先生 罗伯特马龙博士
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1917743/)
 
-**By:[秘翻新闻](https://gtv.org/video/id=61f25df128a108147c638eee)**
+BY:[秘翻新闻](https://gtv.org/broadcast/watch/61f25df128a108147c638eef)
 
 **2022-01-27**
 
-1. **脸书加密货币因与美联储冲突而胎死腹中**
+**1. 班农先生1月27日在盖特发文：** 北京冬奥会对外国公民来说是一个非常危险的地方，我们必须停止它。
+
+[https://gettr.com/post/pqrbk93c1c](https://gettr.com/post/pqrbk93c1c)
+
+**2. Andy再开1月26日在盖特发文：** 日本TBS电视台1月26日的报道揭穿了习近平和国际奥委会主席巴赫为冬奥会造势的幕后真相：习近平和巴赫戴口罩摆拍完，摘下口罩进行面对面交流；巴赫不仅是「国宾」还居然在北京的公园里有铜像；然而去公园的北京市民不知道现在的奥委会主席是巴赫；因为要搞冬奥委会，中共推出了动态清零的政策，并且朝令夕改让之前的健康码几乎无任何实际作用，限制了人们出行。正直春节前夕，很多墙内百姓因为中共的清零政策无法回家而怨声载道。
+
+[https://gettr.com/post/pqo72a3798](https://gettr.com/post/pqo72a3798)
+
+**3. 《国家脉动》1月27日在盖特发文：** 《英国医学杂志》要求获取新冠疫苗数据，并抨击道德缺失的制药公司。 【盖文转报道，《英国医学杂志》正在要求制药公司公布新冠疫苗的原始数据，该杂志编辑发表了一篇社论，指出“数据应该完全并立即提供给公众审查”。他们补充说，由于疫苗未获得食品药品监管局FDA的批准，主要疫苗厂商的许多数据无法获得。医生，研究人员和公众无法知道临床试验中匿名参与者的数据，而且这些数据可能还需要好多年才公布。这在道德上是站不住脚的，因为这涉及到绝大多数公众的健康问题。大药厂是最不值得信任的行业。在制造新冠疫苗的众多公司中，至少有三家公司在过去的刑事和民事和解中损失了数十亿美元。还有一家承认犯有欺诈罪。另外，新冠大流行病让制药业出现了数位亿万富翁。”】
+
+[https://gettr.com/post/pqolbfc05c](https://gettr.com/post/pqolbfc05c)
+
+**4. 罗伯特马龙博士1月26日转发ABC新闻报道：** 奥地利总理卡尔·内哈默 (Karl Nehammer)1月26日宣布，奥地利将在该国疫苗强制令生效的前一天，即1月31日结束对未接种疫苗居民的封锁。数周以来，许多人一直对这项针对未接种者的封锁措施有诸多抱怨。截至目前，奥地利已有75.4%的居民完全接种了新冠疫苗。内哈默呼吁150万未接者接种疫苗，不要等到强制接种令生效。
+
+[https://gettr.com/post/pqp4er5477](https://gettr.com/post/pqp4er5477)
+
+**5. 泽伦科医生1月26日在盖特发文：** 证据已很清楚的表明：中共病毒是一种人造武器；必须立即用锌和锌离子载体治疗中共病毒； 中共病毒疫苗是毒药，会破坏先天免疫系统，对健康没有好处；无视强制令；拒绝恐惧、做好隔离和戴口罩；让你的内心充满爱、希望和上帝。
+
+[https://gettr.com/post/pql7ze0791](https://gettr.com/post/pql7ze0791)
+
+**6. 《网关专家》1月26日在盖特发文：** 美国顶级医学杂志—《美国医学协会杂志》1月25日公布的一项最新研究证实，接种新冠疫苗后会增加患上心肌炎和心包炎的风险，其中青春期男性和年轻男性患上心肌炎和心包炎的风险最高。
+
+[https://gettr.com/post/pqlove0c45](https://gettr.com/post/pqlove0c45)
+
+**7. 《大纪元时报》1月26日发推说： **全美国的消费者正面临空荡荡的超市货架。企业和消费者们担心，全球供应链危机和针对奥米炕变种的最新公共卫生限制令可能会加剧这种情况。 【推文转报道，分析师称，工作干预和恶劣的气候条件等其他因素，可能会导致2022年有更多的后勤挑战，例如加剧供应链危机并让通胀居高不下。】
 
 
-[据《纽约时报》1月26日消息，由于脸书的加密货币计划与美联储发生冲突，导致该计划无法执行最终胎死腹中。据悉，脸书的Meta公司将完全出售其加密货币资产，此外Meta还将出售Diem公司大约三分之一的股份。Diem是由Meta公司推出的一种基于区块链的支付系统。](https://nypost.com/2022/01/26/meta-to-scrap-crypto-initiative-amid-clash-with-fed-report/)
 
-秘翻新闻明澈编辑报道
+> Empty supermarket shelves are greeting shoppers nationwide.
+> 
+> Businesses and consumers are concerned that the global [#SupplyChainCrisis](https://twitter.com/hashtag/SupplyChainCrisis?src=hash&amp;ref_src=twsrc%5Etfw) and renewed public health restrictions in response to the [#OmicronVariant](https://twitter.com/hashtag/OmicronVariant?src=hash&amp;ref_src=twsrc%5Etfw) could exacerbate the situation. [https://t.co/ecH22kB74w](https://t.co/ecH22kB74w)
+> — The Epoch Times (@EpochTimes) [January 26, 2022](https://twitter.com/EpochTimes/status/1486346940573003782?ref_src=twsrc%5Etfw)
 
-**2. 今年以来 朝鲜第6次朝东岸发射导弹**
 
-[综合媒体1月27日消息，韩国联合参谋本部今天表示，今晨7点05分左右，该部门侦测到朝鲜向其东岸的日本海发射了导弹，目前仍在调查是哪种类型的武器。](https://tw.news.yahoo.com/%E4%BB%8A%E5%B9%B4%E7%AC%AC-6-%E6%AC%A1-%E5%8C%97%E9%9F%93%E6%9C%9D%E6%9D%B1%E5%B2%B8%E7%99%BC%E5%B0%84%E9%A3%9B%E8%A1%8C%E7%89%A9-001916732.html%20https://tw.news.yahoo.com/%E5%BF%AB%E8%A8%8A-%E5%8C%97%E9%9F%93%E5%86%8D%E5%B0%84%E5%BD%88-%E7%96%91%E4%BB%8A%E5%B9%B4%E7%AC%AC6%E5%BA%A6%E6%9C%9D%E6%97%A5%E6%9C%AC%E6%B5%B7%E6%AD%A6%E5%8A%9B%E6%8C%91%E9%87%81-234625331.html)
 
-[本月朝鲜分别发射超音速导弹、移动式短程导弹、以及巡航导弹后，这试射已是今年以来朝鲜的第6次武力挑衅。](https://tw.news.yahoo.com/%E4%BB%8A%E5%B9%B4%E7%AC%AC-6-%E6%AC%A1-%E5%8C%97%E9%9F%93%E6%9C%9D%E6%9D%B1%E5%B2%B8%E7%99%BC%E5%B0%84%E9%A3%9B%E8%A1%8C%E7%89%A9-001916732.html%20https://tw.news.yahoo.com/%E5%BF%AB%E8%A8%8A-%E5%8C%97%E9%9F%93%E5%86%8D%E5%B0%84%E5%BD%88-%E7%96%91%E4%BB%8A%E5%B9%B4%E7%AC%AC6%E5%BA%A6%E6%9C%9D%E6%97%A5%E6%9C%AC%E6%B5%B7%E6%AD%A6%E5%8A%9B%E6%8C%91%E9%87%81-234625331.html)
+**8. Disclose.tv 1月27日在盖特发文：** 丹麦首相梅特·弗雷德里克森宣布：丹麦不再将新冠病毒列为“社会危急疾病”，并将从2月1日起取消所有限制令。
 
-秘翻新闻明澈编辑报道
+[https://gettr.com/post/pqp7uq1d01](https://gettr.com/post/pqp7uq1d01)
 
-**3. 关税战再起！ WTO裁定中共对美可加征报复性关税 **
+**9. Disclose.tv 1月26日在盖特发文：** 卡车司机们正开着一辆辆大篷车穿越加拿大，以抗议疫苗强制令，沿途路上的人们为他们加油打气。
 
-[综合媒体1月27日消息，世界贸易组织26日裁定，中共国有权对美国约6.45亿美元的进口商品征收报复性关税，最早可于2月开始。](https://ec.ltn.com.tw/article/breakingnews/3814529%20https://www.rfa.org/mandarin/Xinwen/5-01262022135926.html)
+[https://gettr.com/post/pqk6zb9c90](https://gettr.com/post/pqk6zb9c90)
 
-[美国贸易代表署发言人霍奇表示，世贸组织的仲裁结果令人深感失望，这更凸显了世贸组织机构改革的必要性。也反映出世贸组织上诉机构的错误解释，对保护自身工人和企业免受中共扭曲性贸易补贴的世卫组织成员国造成了损害。](https://ec.ltn.com.tw/article/breakingnews/3814529%20https://www.rfa.org/mandarin/Xinwen/5-01262022135926.html)
+**10. 澳喜要闻1月26日在盖特发文：** 前美国国家安全顾问罗伯特·奥布莱恩警告说：中共正观察俄罗斯和乌克兰事态的发展，以考虑侵台时机。 英国媒体也分析中共海军常态性出现在日本琉球群岛东南方及台湾东部附近海域，恐迫使台湾必须修改作战计划防止东岸成为可能战场。
 
-[世界贸易组织规则已被中共用来保护中共国的非市场经济行为，中共不但受益于世贸组织较为宽松的待遇，还补贴自身产品，倾销世界，这破坏了公平的、以市场为导向的竞争。](https://ec.ltn.com.tw/article/breakingnews/3814529%20https://www.rfa.org/mandarin/Xinwen/5-01262022135926.html)
+[https://gettr.com/post/pqldrtef70](https://gettr.com/post/pqldrtef70)
 
-秘翻新闻Vera编辑报道
+**11. 罗伊1月27日在盖特发文： **班农先生谈到了郭文贵先生在1月25日发布的美国撤离驻华大使馆人员的公告以及新中国联邦的致谢公函的重要意义。新中国联邦成了中国人民的替代管理实体机构。班农先生鼓励我们在美国和中共断交的第一步之后，做更多的事情！班农先生说，每个人都应该阅读郭文贵先生的这封重要信件。
 
-**4. 德国制药和科技公司遭到中共国黑客攻击**
+[https://gettr.com/post/pqq8sa1583](https://gettr.com/post/pqq8sa1583)
 
-[据《路透社》1月26日报道，周三，德国联邦宪法保卫局表示，中共国黑客组织APT 27已开始攻击德国的制药和科技领域的企业。据悉，APT 27是一个中共国黑客组织的别名，该组织也被称为“熊猫使者”，据信该组织长期以来对外国大使馆和关键部门进行攻击。报道指出，2021年，美国及其盟友曾指责中共国在全球范围内进行的网络间谍活动。](https://www.reuters.com/world/chinese-hackers-target-german-pharma-tech-firms-2022-01-26/1)
+**12. 郭文贵先生1月27日在盖特发文：** 看完泽伦科医生的采访后，需认真思考以下问题： 1、新冠病毒是自然产生的病毒还是有其他来源？ 2、为什么像泽伦科医生这样成功治疗新冠患者的人会引起争议？ 3、为什么一个被验证的、行之有效的新冠治疗方法会被压制？ 4、为什么他们必须让每个人都接种新冠疫苗，以至于他们不允许人们通过简单的治疗方法治愈病人？ 5、全球大流行的真正目的是什么？为什么会发生？
 
-[德国联邦保卫局在一份致公司的通知中表示，除了窃取商业秘密和知识产权，黑客还试图渗透客户和服务提供商的网络，以便同时对多家公司进行渗透。](https://www.reuters.com/world/chinese-hackers-target-german-pharma-tech-firms-2022-01-26/1)
+[https://gettr.com/post/pqp79t8d1f](https://gettr.com/post/pqp79t8d1f)
 
-秘翻新闻翻冰糖葫芦喵编译报道
+**13. 郭文贵先生在1月26日的盖特视频中说：** 今天是爆料革命5周年纪念日，为什么文贵当年在家人被抓的情况下仍坚持爆料？面对魔鬼的独裁统治，我们别无选择，必须将其消灭，所以现在是文贵活得最精彩的时候。美国为何在这个时候授权撤离驻华大使馆？这个决定和病毒无关而是为美下一步行动提供了合法支撑，只有中共完蛋了美国大使馆才会回去；普京团队判断中美必有一战。40国使馆拒绝中共搞病毒检测和隔离，20多个使馆说要撤且有去无回；美国针对中共的大行动已完成，各国行动将紧随其后；新中国联邦团结全球灭共，但咱不揽功。
 
-**5. 美国旧金山针对亚裔人仇恨犯罪，去年暴增5倍**
+[https://gettr.com/post/pqqqr73199](https://gettr.com/post/pqqqr73199)
 
-[综合媒体1月26日消息，美国旧金山警方25日公布初步统计数字显示，旧金山去年发生针对亚裔人和太平洋岛国裔人的仇恨罪案，比对上一年暴增567%。](https://std.stheadline.com/realtime/article/1802592/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D%20https://www.singtaousa.com/2022-01-26/%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D/3893759%20https://nypost.com/2022/01/26/meta-to-scrap-crypto-initiative-amid-clash-with-fed-report/)
+[https://gettr.com/post/pqqnis424a](https://gettr.com/post/pqqnis424a)
 
-[旧金山市长布里德表示，她怀疑此类仇恨罪案的实际数字比警方所公布的更高，因为有些受害人不愿意报警。同时她保证将采取措施加强对这些族群的保护。](https://std.stheadline.com/realtime/article/1802592/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D%20https://www.singtaousa.com/2022-01-26/%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D/3893759%20https://nypost.com/2022/01/26/meta-to-scrap-crypto-initiative-amid-clash-with-fed-report/)
+[https://gettr.com/post/pqru39e711](https://gettr.com/post/pqru39e711)
 
-[旧金山警察总长斯科特表示，警方已经加强「报料热线」服务，提供更多语言支持，并会在下月农历新年期间，为当地华人及亚洲裔人分享更多保护人身安全的「贴士」。](https://std.stheadline.com/realtime/article/1802592/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D%20https://www.singtaousa.com/2022-01-26/%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D/3893759%20https://nypost.com/2022/01/26/meta-to-scrap-crypto-initiative-amid-clash-with-fed-report/)
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
 
-[报道指出，自从中共病毒在美国爆发以来，美国全国各地针对亚裔人的仇恨袭击案件均出现上升。旧金山大学的制止仇恨亚裔人和太平洋岛国裔人联盟表示，自2020年3月至2021年9月，共有超过1万宗此类事故。](https://std.stheadline.com/realtime/article/1802592/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D%20https://www.singtaousa.com/2022-01-26/%E4%B8%89%E8%97%A9%E5%B8%82%E9%87%9D%E5%B0%8D%E4%BA%9E%E8%A3%94%E4%BA%BA%E4%BB%87%E6%81%A8%E7%BD%AA%E6%A1%88-%E5%8E%BB%E5%B9%B4%E6%9A%B4%E5%A2%9E%E9%80%BE5%E5%80%8D/3893759%20https://nypost.com/2022/01/26/meta-to-scrap-crypto-initiative-amid-clash-with-fed-report/)
-
-秘翻新闻StevenZ（行侠）编辑报道
-
-**6. 阻止外汇流失？中共国将启动为期三年的反洗钱行动 **
-
-[据《彭博社》1月26日 报导，中共将从 2022年到 2024年期间在全国范围内打击洗钱活动。周三，中国人民银行在一份声明中表示， 有关部门将建立全国反洗钱风险防范体系，加强对洗钱活动的分析和调查。据悉，中共11个政府机构将开展反洗钱活动，涉及中共国人民银行、公安部、海关、证券、外汇、银行保险等监管部门。](https://www.bloomberg.com/news/articles/2022-01-26/china-to-start-three-year-crackdown-on-money-laundering)
-
-[报道指出，中共“共同富裕”政策已使许多较为富裕的中国人感到恐慌，进而开始想办法保护自己的财富。据澳洲和港大学者联合发表的研究报告估计，仅在2011年9月至2018年2月期间，中国人通过加密货币渠道向海外转移资金，就成功套现约46亿美元。](https://www.bloomberg.com/news/articles/2022-01-26/china-to-start-three-year-crackdown-on-money-laundering)
-
-[因此去年中共打击比特币挖矿行业，并不断加大对洗钱行为的查处力度，或许是在试图控制因外汇流失而危及政权的风险。](https://www.bloomberg.com/news/articles/2022-01-26/china-to-start-three-year-crackdown-on-money-laundering)
-
-秘翻新闻文洋编辑报导
-
-**7. 香港调查：逾八成基层受访者表示生活水平每况愈下**
-
-[综合媒体1月26日消息，一项香港1月的基层愿景调查发现，由于经济压力增大，逾八成受访住户表示过去两年生活变得更差或非常差。](https://news.rthk.hk/rthk/ch/component/k2/1630684-20220126.htm%20https://www.mingjingnews.com/article/393757-26)
-
-[该调查对象是全港18区基层市民，共收到1418份有效问卷。其中逾4成受访住户的家庭每月平均收入比2020年少，当中逾两成减少幅度介乎2000至3000元，另外有86位住户收入下跌超过1万元。近五成受访住户对于家庭开支感到压力非常大。超过六成受访住户认为，日常家庭开支、食物和住房是他们感到压力最大的三个范畴。](https://news.rthk.hk/rthk/ch/component/k2/1630684-20220126.htm%20https://www.mingjingnews.com/article/393757-26)
-
-秘翻新闻StevenZ（行侠）编辑报道
-
-**8. 中共国家开发银行副行长被双开**
-
-[综合媒体1月26日消息，中共国国家开发银行原党委委员、副行长何兴祥涉嫌严重违纪违法，滥用金融审批权造成重大金融风险，构成严重职务违法并涉嫌受贿、违规出具金融票证、违法发放贷款、隐瞒境外存款等犯罪，中共批准开除何兴祥的党籍与公职，并将涉嫌犯罪问题移送检察机关。](https://news.rthk.hk/rthk/ch/component/k2/1630664-20220126.htm%20https://www.sohu.com/a/519156225_115362)
-
-秘翻新闻StevenZ（行侠）编辑报道
-
-**9. 多家中共病毒检测企业净利润增长 最高达1997%**
-
-[据中共国媒体1月25日消息，近日A股多家中共病毒检测企业先后公布2021年年度业绩预告。其中涉及海外中共病毒检测的相关产品销售量大涨。](https://cdn.discordapp.com/attachments/895315867368312852/935868346962960394/3bc9c9cffd764022a670d329d3779dd8.jpeg%20https://cdn.discordapp.com/attachments/895315867368312852/935868347222994964/20220126190700.jpg)
-
-[预计归母净利润最高的是东方生物，达47.2-51.2亿元；预计同比涨幅最高的是热景生物，达 1684.65%-1996.97%。九安医疗预计有 9 亿 -12 亿的归母净利润，同比增幅达 271.4%-395.19%。](https://cdn.discordapp.com/attachments/895315867368312852/935868346962960394/3bc9c9cffd764022a670d329d3779dd8.jpeg%20https://cdn.discordapp.com/attachments/895315867368312852/935868347222994964/20220126190700.jpg)
-
-[其他参与供应国内核酸检测试剂盒的企业，主要有武汉中帜生物、杭州优思达、明德生物、硕世生物、迪安诊断、华大生物、达安基因、金域医学、之江生物、迈克生物、圣湘生物等其他多数上市企业尚未公布 2021 年度业绩预告。](https://cdn.discordapp.com/attachments/895315867368312852/935868346962960394/3bc9c9cffd764022a670d329d3779dd8.jpeg%20https://cdn.discordapp.com/attachments/895315867368312852/935868347222994964/20220126190700.jpg)
-
-秘翻新闻菜园子编辑报道
-
-**10. 恒大焦作一地产项目烂尾  256户业主付款无房住**
-
-[综合媒体1月26日消息，1月26日中共官媒人民网「领导留言板」接获民众投诉，直指恒大养生谷项目已成烂尾楼。](https://www.epochtimes.com/b5/22/1/26/n13530318.htm%20https://www.ntdtv.com.tw/b5/20220126/video/317571.html?%E6%81%86%E5%A4%A7%E9%A4%8A%E7%94%9F%E8%B0%B7%E6%88%90%E7%88%9B%E5%B0%BE%E6%A8%93%20%E5%8D%83%E7%95%9D%E9%96%92%E7%BD%AE%E5%9C%9F%E5%9C%B0%E8%A2%AB%E6%94%B6%E5%9B%9E)
-
-[中共焦作市政府办公室回应，投诉情况属实，该市恒大养生谷项目从2019年8月份开盘至2019年12月份停盘期间，共收取256户房款，其中网上签约者有81户，网上签约且备案有19户；其余175户的购房户均未网上签约和备案。](https://www.epochtimes.com/b5/22/1/26/n13530318.htm%20https://www.ntdtv.com.tw/b5/20220126/video/317571.html?%E6%81%86%E5%A4%A7%E9%A4%8A%E7%94%9F%E8%B0%B7%E6%88%90%E7%88%9B%E5%B0%BE%E6%A8%93%20%E5%8D%83%E7%95%9D%E9%96%92%E7%BD%AE%E5%9C%9F%E5%9C%B0%E8%A2%AB%E6%94%B6%E5%9B%9E)
-
-[有民众表示，此前自己在恒大云台山养生谷买了一套房，已经付款，但目前无法签订购房合同，也无法网签，公司已经人去楼空，与其有相同遭遇的业主还有256户。](https://www.epochtimes.com/b5/22/1/26/n13530318.htm%20https://www.ntdtv.com.tw/b5/20220126/video/317571.html?%E6%81%86%E5%A4%A7%E9%A4%8A%E7%94%9F%E8%B0%B7%E6%88%90%E7%88%9B%E5%B0%BE%E6%A8%93%20%E5%8D%83%E7%95%9D%E9%96%92%E7%BD%AE%E5%9C%9F%E5%9C%B0%E8%A2%AB%E6%94%B6%E5%9B%9E)
-
-秘翻新闻明澈编辑报道
-
-发布 : 恩典
+发布：陸柒陸捌
 
 * * *
 

@@ -2,36 +2,53 @@
 ---
 
 
-## 挪威政府拒绝为儿童推荐中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918674/)
+## 文•贵天成——文贵先生谈“北京冬奥会”（九）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1918752/)
 
-作者：新中國聯邦靜
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月25日，据相关媒体报道，挪威政府发布声明表示，出于对中共病毒疫苗副作用的担忧，以及儿童因中共病毒导致死亡和住院的风险非常罕见这一事实，当地政府不建议为儿童接种中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-16.jpg)
-报道提及，德国一项研究显示，当地健康的5至11岁儿童无一人死于中共病毒——这一现象也同样出现在瑞典的中共病毒第一波疫情中。
+整理：BENJ1
+编辑：Sadhu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-27-下午2.59.46.png)
+**郭文贵先生2021****年12****月10****日直播**
 
-为此，挪威政府官员表示，大量来自世界各地的科学研究均表明，儿童患有严重疾病的可能性极低，且鉴于人们对中共病毒疫苗副作用的有限认知，疫苗对于儿童的益处可能相当小。
+最后一条大家记住，只要冬奥会开成功，基本上可以证明，中国共产党在全世界宣布，病毒不是来自我这，病毒不是我的生化武器，这是它最后的一个核心目的。兄弟姐妹们，这是它的最狼子野心啊。
 
-挪威当局还解释说，基于对各项数据的评估，如果儿童自然感染中共病毒而不是接种中共病毒疫苗，他们可能在未来更容易免疫于中共病毒变种毒株。
+共产党的房地产经济，所有的张家口这块，大家看完以后，开完冬奥会，打台湾，把所有的经济灾难再次扔给西方，然后扔给西方的同时自己“啪”人民币数字化。这叫做货币去美化，人民币数字化是一场绝对的战略成功。
 
-最后，当局也反复提醒，政府在中共病毒疫苗接种工作上需要非常谨慎，须完全遵守自愿原则。
+今天可以毫不夸张地，一点儿不夸张地说，历史会告诉你们，我们在干掉冬奥会和共产党想成功办奥运会上，历史会告诉你，我们是最早也合法地用了蓝金黄，勾兑好，一定会有把握让这些人不参加冬奥会。
 
-参考链接：[Norwegian government refuses to recommend Covid vaccines for children](https://www.riotimesonline.com/brazil-news/modern-day-censorship/norwegian-government-refuses-to-recommend-covid-vaccines-for-children/)
+七哥现在不方便说，未来哪天黑客黑掉文件以后，你们会看到，你们会万分地惊讶。记住我说过，法治基金，我们在法治基金捐款，到现在我们家族是第一大，我们光给战友药品，买药、口罩，包括政治支持，包括政治游说超过3亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+记住我今天(说的)，我负法律责任的，但是（这钱）我们没有捐到法治基金，（却）跟法治基金追求的目标是一样的。这些钱有很大一部分用在了三件事儿上，让世界认可病毒是中共的生化武器，第二就是停止冬奥会，第三把它踢出WTO和SWIFT。
 
-总编: Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+天时，地利，人和。从冬奥会、从病毒、从疫苗、从数字化人民币、从习太阳、习宗教、习大神、还有他们共产党戏称的叫习爸爸，习大大，彭妈妈，以及所有的房地产的倒闭，香港的整个的沦陷，新疆的大屠杀，对台湾的威胁和俄罗斯的这种所谓的勾结，无一条不是驶向一个方向:人类必须消灭共产党。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**郭文贵先生2021****年12****月12****日直播**
+
+冬奥会这件事情对共产党的打击，这是一个，大家记住内部现在非常清楚了，内部下的文件很清楚。第一不能提西方抵制奥运会，改成叫西方国家官方不出席奥运会。你看就这个词儿，这共产党玩儿文字，你们不知道，七哥跟共产党打这些年交道，我太了解他们了。
+
+就是七哥这些年也跟他们整人整材料，七哥也跟他们成天整人整材料。你想我把刘志华3000个人给整进监狱，得整多少材料？写多少报告？一个一个案子，什么中英复合复交、中阿建交，是不是？中沙石油协议，是不是？中俄之间什么战略协议，七哥都参与了。
+
+就这个字儿搞来又搞，就玩儿来又玩儿，这是共产党这套东西很厉害，这你看玩的啊，“西方官方，某些国家官方不出席冬奥会”，不能说西方抵制奥运会，不能“抵制”这俩字，你可见它敏感到啥程度？
+
+**往期回顾：****
+**[文•贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1889878/)
+
+***发布：**tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
