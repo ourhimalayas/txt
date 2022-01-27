@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/27/2022 11:38 PM (UTC)`
+
+1月27号：衷心地，感谢，喜安娜喜欢第一次做得精美的视频，是的是的，是的，是的，太好了。<br/><br/>［郭叔好，您在大直播中对文化、信仰、真相的分享，让我和爱迪受到了这些信息的启发，感受到了来自真相的灵感。我和爱迪创作了两首原创歌曲。这里面包含了我们对这些讯息的一些理解和感受。非常感谢您对我们的开智，最近一系列世界的行动也让我们再一次的认识到了真相是多么的重要。］
+![img](https://media.gettr.com/group23/getter/2022/01/27/23/1ba1874e-17d0-6335-e0aa-9be757016091/out.jpg)
+
+---
+
+`@miles 1/27/2022 11:33 PM (UTC)`
+
+1/27/2022 Miles Guo: Over one hundred of international financial institutions have made the decision to do everything they can to punish the CCP before it attacks Taiwan, and this is huge! The so-called “authorized departure” of the U.S. embassy in Beijing, which technically means “No Severance, No Contact”, is tantamount to taking out the sinews of the CCP, and seizure of the CCP cadres’ offshore assets is like draining the CCP’s blood.<br/><br/>1/27/2022 文贵直播: 一百多家世界金融家机构组织决心要在中共打台湾前用尽力量惩罚中共，这可是天大的事儿！美国的不断不交“授权撤离”是抽共产党的筋、国际社会查封中共高官海外资产是放中共的血<br/>
+![img](https://media.gettr.com/group38/getter/2022/01/27/23/a47b66c1-67e7-2d89-6c3e-5f8e9b07bb33/out.jpg)
+
+---
+
 `@miles 1/27/2022 5:19 PM (UTC)`
 
 1月27日： ［七哥您好! 这篇文章跟您说的宇宙观一致，根据量子等式，宇宙无始无终］。🙏🙏🙏🙏 https://www.sciphysics.com/2021/08/no-big-bang-quantum-equation-predicts.html?m=1&s=08
@@ -137,20 +151,6 @@ Thousands gathered in front of the Lincoln Memorial in Washington DC for the 'De
 
 1月25号：尊敬的战友们好……不要忘了我们的使命，全力以赴，传播共产党病毒疫苗大屠杀的真相……一切都已经开始！
 ![img](https://media.gettr.com/group24/getter/2022/01/26/00/ffe46a34-75f8-8c22-0da0-43c4cc9cbf5f/e0c78f634498ae8cea1c2080bf13c009.jpg)
-
----
-
-`@miles 1/26/2022 12:17 AM (UTC)`
-
-1/25/2022 Miles Guo’s Big Announcement: Mr. Miles Guo and his fellow fighters of the Whistleblowers’ Movement have spent the last 5 years exposing the corruption and genocide of the CCP and have warned the West in advance of the incoming darkness created by the CCP, and we are the first to tell the world the truths about the CCP virus and the COVID vaccines. The US government has just made the decision to "authorize the evacuation" of the U.S. Embassy in Beijing. On behalf of the New Federal State of China, Mr. Miles Guo sincerely thanks President Biden and Secretary of State Blinken for this historic decision!
-![img](https://media.gettr.com/group26/origin/2022/01/26/00/98f3164c-c123-2738-8929-ed5ef95fb2cd/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 1/25/2022 11:28 PM (UTC)`
-
-A Thank You letter from the New Federal State of China to President Joe Biden and Secretary of State Anthony Blinken regarding closing US Embassy in Beijing <br/><br/>新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
-![img](https://media.gettr.com/group5/getter/2022/01/25/23/00be8420-076a-19b3-4c42-b22bdddb22ae/1e91b729a5af3efba70ed84f4df4601e.jpg)
 
 ---
 
