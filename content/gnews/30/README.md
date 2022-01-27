@@ -2,42 +2,52 @@
 ---
 
 
-## 新中国联邦致拜登总统和布林肯国务卿关于关闭美国驻北京大使馆的感谢信
-` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/1915027/)
+## 中共宣传机构对美国体育节目主持人进行谩骂和攻击
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1915126/)
 
-作者：五月花农场 DM
+作者：纽约香草山农场 – 四季
 
-2022年1月25日，郭文贵先生代表新中国联邦签署了致美国政府的感谢信，对关闭美国驻北京大使馆的决定，向拜登总统和布林肯国务卿表示感谢。信函全文如下：
-
-致：乔·拜登
-
-美国总统
-
-安东尼·布林肯
-
-国务卿
-
-主题：美国驻北京大使馆
-
-新中国联邦注意到，您已授权开始关闭美国驻北京大使馆。自2020年6月4日成立以来，我们一直在倡导这一行动，我们对此表示赞赏。
-
-如您所知，我们是中国人民的替代管理机构，反对跨国犯罪组织中国共产党。这些犯罪分子最近从武汉的武器实验室向全世界传播致命的COVID 19的活动在我们看来是对无辜的中国人民和全人类的种族灭绝行为。
-
-最近北京关于奥运会前Omicron传播的谎言和不实陈述使北京对所有人来说都是危险的，尤其是您在北京大使馆的工作人员。
-
-我们赞赏并支持您通过关闭大使馆的行动来强调这种政权的危险。我们支持进一步否认中共是中国和中国人民的合法政府。
-
-敬上
-
-郭文贵先生
-
-新中国联邦创始人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/letter1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/letter-english.jpg)
-郭文贵先生在过去5年来一直致力于灭共，郭先生最早向世界爆出中共的种族大屠杀，早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 
-编辑/校对/发稿：DM
+
+
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/01/25/chinese-propaganda-outlet-blasts-bob-costas-for-desecrating-olympic-spirit-by-criticizing-china/)1月25日报道，传奇体育主持人鲍勃·科斯塔斯（Bob Costas）在接受CNN记者布莱恩·斯特尔特（Brian Stelter）的采访时批评了中共国在新闻自由方面的糟糕记录，并批评国际奥委会允许在北京举行冬季奥运会。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Tom-Pennington_Getty-Images-24-640x480-1.jpg)Tom Pennington/Getty Images
+
+科斯塔斯表示，国际奥委会选择让一个公开监视运动员和记者的国家来举办奥运会，理应受到所有的鄙视和厌恶。
+
+对此，中共《环球时报》履行了其作为共产党政权喉舌和捍卫者的义务，对科斯塔斯进行了谩骂和攻击。
+
+无独有偶，在郭文贵先生昨天发布有关美国撤离驻中共大使馆的公告之后，中共今天声称美方撤离使领馆人员将极大增加感染病毒风险，也是对美国的公然挑衅和威胁。
+
+在新闻自由方面，中共国的侵权行为是众所周知的。据联合国观察组织称，中共国除了是全球第一大人权侵犯者之外，还从事科斯塔斯在其评论中所指控的所有侵犯新闻自由的行为和间谍活动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

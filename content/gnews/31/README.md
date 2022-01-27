@@ -2,26 +2,30 @@
 ---
 
 
-## 【圆成原创】在中共治理下，良知经济学者只能郁郁而终
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1914998/)
+## 新冠疫苗：医学证实青少年男性患心肌炎和心包炎风险最高
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1915065/)
 
-**作者：面包飞上天**
+**编译: 真北007**
 
-今天不经意间看到著名经济学者张维迎的文章，很有感慨。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9C702C40-76EE-455C-AFDE-5060B3C50E8A.png)图片来源：[禁书网](https://www.bannedbook.org/forum20/topic18383.html) 
-这是若干年前的一个文章，总结中共过去几年究竟是什么推动了中国经济的高增长，他的结论是改革开放后资源配置效率的提高，提出了中国未来经济若要持续增长，要把寻租活动转向创造价值的活动。并提出了5点建议：
+来自GATEWAY PUNDIT一月二十五日的新闻报道：
 
-1. 保护企业家剩余价值索取权。
+美国医学协会杂志 (JAMA) 周二发布的一项新研究显示，在接种 mRNA COVID-19 疫苗后，青春期和年轻男性患心肌炎和心包炎的几率最高。
 
-2. 减少政府干预经济活动。
+该研究基于美国 VAERS 的2020 年 12 月至 2021 年 8 月期间192,405,448 名 12 岁以上的心肌炎病例的数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2A1D2AFC-F26D-4CF6-AFD6-F7392545BF4A-1.jpg)
+接种疫苗后的主要结果是发生心肌炎，次要结果是心包炎。
 
-3. 政治体制改革。
+根据这项研究，在接受至少 1 剂基于 mRNA 的 COVID-19 疫苗后，VAERS 收到了 1,991 份心肌炎报告（其中 391 份还包括心包炎），并收到了 684 份没有心肌炎的心包炎报告。在心肌炎患者中，中位年龄为 21 岁（IQR，16-31 岁），出现症状的中位时间为 2 天（IQR，1-3 天）。
 
-4. 建立相对独立的司法制度，使政府在法律范围内行事。
+男性占心肌炎病例的 82%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/09C33003-9EE8-4A09-8BA7-86308CACF80A-1.jpg)
+该研究结论，接种基于 mRNA 的 COVID-19 疫苗后，发生心肌炎的风险在多个年龄和性别阶层中增加，并且在青春期男性和年轻男性的第二次疫苗接种后最高。
 
-5. 减少政府控制的资源数量。
+**点评：此研究解释了为什么许多年青男性足球、橄榄球、篮球、和网球等运动员的倒地、受伤或猝死。真相需揭开，选择在个人，威胁强迫打疫苗是犯罪!**
 
-像张维迎之类的经济学者的理想永远不会实现，除非改朝换代。因为这篇文章发表之后的现在，从习近平上台后，所进行的经济措施都是倒行逆施。说一点真话的经济学者要么关闭微博，要么打压，经济圈只剩下一批政策解读派，坚定的政策支持派。大学里学的经济学、金融学，教导的都是政府指导经济进行资源配置，突出政府主导地位，这是整个国家的悲哀。
+**原文链接：**
+
+[https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/](https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/)
 
 **编辑：LILY**
 
