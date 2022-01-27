@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/27/2022 1:34 AM (UTC)`
+
+1月26日：尊敬的战友们好，明天继续大直播，下面这个照片是我在清风看守所出来后．与处男英雄的母亲见面后．的当天拍摄的照片．几十年来从来没看见过，这是昨天．由我们英雄👍👍👍👍👍👍🌹🌹😝的哥哥发给我的！非常震惊，非常感动。［1月17日：<br/><br/>主持：小王子&佳佳同学<br/>出镜嘉宾： RossiChen<br/>                    摔跤的雅阁<br/>                    台湾大牛&台湾巴黎<br/><br/> 推流：墨镜<br/><br/>被邀出席：灭共者．MILES．郭文贵<br/><br/>1月30日<br/>主讲：摇滚巨星郭先生<br/>主持：Eric<br/>出镜嘉宾：德华<br/>                   正义小Sarah<br/>                   千叶草<br/><br/> 推流：墨镜］
+![img](https://media.gettr.com/group35/getter/2022/01/27/01/91ada826-9ac5-b4c5-baf7-2c13c9729732/5aff901ac3cca42d2a9a22cf186471a8.jpg)
+
+---
+
+`@miles 1/27/2022 1:30 AM (UTC)`
+
+1/26/2022 Miles Guo’s GETTR: Judging by the way how the CCP deals with the U.S. authorized departure of its embassy in Communist China, the CCP is finished! Some country uses the withdrawal of its embassy as a leverage to demand an investigation into the origin of the CCP virus and the Xinjiang genocide. The first domino has fallen, and more countries will start withdrawing their embassies in Beijing.<br/><br/>1/26/2022 文贵盖特：从处理美国授权撤离驻华大使馆的方式来看，中共已经完了！某国以撤大使馆为由要求调查病毒起源和新疆种族屠杀；第1张多米诺骨牌已倒下，将有更多国家开始撤馆<br/><br/>
+![img](https://media.gettr.com/group44/getter/2022/01/27/01/a9af700c-1b97-cc58-e5b2-d1e6b3b0fe6e/out.jpg)
+
+---
+
 `@miles 1/27/2022 1:18 AM (UTC)`
 
 1/26/2022 Miles Guo’s GETTR: Forty embassies in Beijing are going against the virus testing and quarantine implemented by the CCP, and the embassies of more than 20 countries have said they would depart and won’t come back. The major operation by the US targeting the CCP has been completed, and other countries will follow. The New Federal State of China unites the world to take down the CCP, but we won't take credit for it.<br/><br/>1/26/2022 文贵盖特：40国使馆拒绝中共搞病毒检测和隔离，20多个使馆说要撤且有去无回；美国针对中共的大行动已完成，各国行动将紧随其后；新中国联邦团结全球灭共，但咱不揽功<br/>
@@ -138,20 +152,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1/25/2022 Miles Guo’s big announcement: Despite facing the infiltration of the world by the evil forces of the CCP, the New Federal State of China (NFSC), after its establishment on June 4, 2020, has established close ties with various governments, human rights organizations, and non-profit organizations. The NFSC has been spreading the truths about the human rights violations committed by the CCP, the CCP virus, and the COVID vaccines. The NFSC has gained international recognition and support, and many governments are discussing the recognition of the NFSC.<br/><br/>1/25/2022 文贵重大公告：尽管面临着中共邪恶势力对世界的渗透，新中国联邦在2020年6月4日成立后，与各国政府、人权机构和非营利性组织建立了密切的联系，传播了有关中共所犯下的人权罪行和病毒、疫苗的真相，获得了国际社会广泛的认可与支持，很多国家政府正讨论承认新中国联邦！<br/>
 ![img](https://media.gettr.com/group21/getter/2022/01/25/22/bbef35c3-2f56-de9a-2e3d-0056b22c4cff/out.jpg)
-
----
-
-`@miles 1/25/2022 10:09 PM (UTC)`
-
-1/25/2022 Miles Guo’s big announcement: We announced to the world in February 2020 that the coronavirus is the CCP’s biochemical weapon to push the vaccination against COVID, which is the real disaster. The CCP’s hoarding PPE before the pandemic was a planned genocide targeting the COVID patients! The West has collected the evidence that the CCP does not abide by the international order and engages in infiltration and sabotage, and we revealed that the real owner of HNA is Wang Qishan<br/><br/>1/25/2022 文贵重大公告：我们早在2020年2月就向世界宣布，冠状病毒是中共的生化武器，病毒是为了推动疫苗，疫苗才是灾难！中共在疫情前囤积PPE是有计划地针对冠状病毒患者的大屠杀！西方掌握了中共不守国际秩序、搞渗透与破坏的证据，我们公布了海航的真正老板是王岐山<br/>
-![img](https://media.gettr.com/group26/getter/2022/01/25/22/ddf19c20-b506-d9b3-c6f7-64e2fa50c96a/out.jpg)
-
----
-
-`@miles 1/25/2022 10:03 PM (UTC)`
-
-1/25/2022 Miles Guo important announcement: Mr. Miles Guo has been dedicated to taking down the CCP for the past five years. Mr. Guo was the first one to expose the genocides committed by the CCP, warning the world as early as five years ago that the darkness was coming. In 2019, Mr. Guo also informed the West in advance that Xi Jinping and Wang Qishan had the plan to achieve world domination and to use biochemical weapons to crack down on the Hong Kong movement.<br/><br/>1/25/2022 文贵重大公告：郭文贵先生在过去5年来一直致力于灭共，郭先生最早向世界爆出中共的种族大屠杀，早在5年前警告过世界黑暗即将到来，并在2019年把习王欲称霸世界并针对香港运动使用生化武器的计划提前告诉了西方<br/>
-![img](https://media.gettr.com/group26/getter/2022/01/25/22/bbe963f5-5676-743a-b485-2ad3337dfca8/out.jpg)
 
 ---
 
