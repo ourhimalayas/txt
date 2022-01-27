@@ -2,28 +2,41 @@
 ---
 
 
-## 美国将研究中共国军队的征兵情况以评估战备状态
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1915819/)
+## 有声|中国银监会原副主席蔡鄂生被开除党籍　通报措辞罕见
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915877/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/White-House-makes-its-science-priorities-known-climate-change-isnt-listed.jpg)资料图
-据俄罗斯卫星通讯社1月27日报道，美国国会网站已邀请投标人为美中经济与安全审查委员会 (USCC) 编制一份关于中国人民解放军 (PLA) 兵员统计数据及其兵员招募和留用问题的报告。通过研究中共国征兵，确定中共国领导人所认为的解放军人员素质最严重的缺陷是什么，以及这会如何影响到他们执行任务时对自身能力的信心。
-
-中共国连年扩军备战，跃跃欲试要发动对台湾的战争，并且时不时与周边国家发生摩擦与冲突。从中共国释放冠状病毒开始，已经注定了中共的灭亡。在灭亡前，中共一定会垂死挣扎，会征召更多的年轻人入伍，充当战争炮灰。美国研究中共国备战情况，一旦战争爆发，会在一定范围内降低战争伤害。
-
-新闻参考链接：[https://sputniknews.cn/20220127/1038548536.html](https://sputniknews.cn/20220127/1038548536.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+配音：香草山农场 – 纳米
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+中共纪委国家监委网站1月24日发布消息称，日前对蔡鄂生严重违纪违法问题进行了立案审查调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+消息称，经查，发现蔡鄂生政治上彻底蜕变，对党不忠诚不老实，搞两面派、做两面人，滥用金融监管权，严重扰乱金融市场秩序，严重污染金融领域政治生态，对抗组织审查。
+
+通报还称，蔡鄂生奢靡腐化，组织观念淡漠，且寡廉鲜耻，大搞权色、钱色交易；目无法纪，“退而不休”，顶风作案，利用职务便利和影响力为他人在融资贷款、项目承揽、职务晋升等方面谋利，并非法收受巨额财物。
+
+通报说，蔡鄂生的行为构成严重职务违法并涉嫌受贿、利用影响力受贿、滥用职权犯罪，性质严重，影响恶劣，依规给予蔡鄂生开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+
+公开资料显示，1951年出生的蔡鄂生长期在银行系统任职，在央行系统工作20余年，2021年7月在卸任银监会副主席8年后被中纪委调查。
+
+文字版原文：[中国银监会原副主席蔡鄂生被开除党籍　通报措辞罕见](https://gnews.org/zh-hans/1913913/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
