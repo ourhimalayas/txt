@@ -2,18 +2,52 @@
 ---
 
 
-## 文贵大直播 1/27 不断不交 中共已被套上绞索
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1919074/)
+## 德国每日COVID病例超20万，已造成行业人员短缺
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1919110/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-5.jpg)图片来源 GTV
-1月27日文贵大直播，因为恰好刚过爆料革命诞生5周年，郭文贵先生作为发起人在纽约现场坦诚心中无限感慨。尽管人心人性宁愿认假不愿信真，但中共在此次冬奥会前夕遭遇美国使馆授权撤离开始，已被牢牢套上灭亡的绞索，而且是从未有人提到过的方式：不断不交。
+作者：纽约香草山农场 – 四季
 
-郭先生通过对美国历经中共文革、八九六四、南海撞机事件都从未有过授权撤离的深刻分析；通过对如同多米诺骨牌倒塌一般约50个国家纷纷开始和中共讲数；通过对100多家国际金融和NGO组织即将实施对中共的制裁；通过对《甜蜜蜜》一首歌曲竟然一夜之间被中共全网封杀的事一一解读，并且首次爆出美国将会不断不交，把灭共的绞索渐次收紧，直至中共消失。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-邪恶的共产主义使得人们不愿信真、信善，但此次甜蜜蜜运动直至灭共目标达成，将再次用事实来唤醒人们回归信仰。
 
-【来源链接】https://gtv.org/broadcast/watch/61f297e628a108147c63ad38
+
+
+
+据[OAN网站](https://www.oann.com/germany-reports-new-daily-record-for-covid-19-infections/)援引路透社1月27日报道，周四，德国新的中共病毒感染人数首次超过单日20万，比一周前的同一天多出69600例。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-27T132954Z_1_LYNXMPEI0Q0MP_RTROPTP_0_HEALTH-CORONAVIRUS-GERMANY_1.jpg)2022年1月27日，在德国慕尼黑一个疫苗接种中心前，人们排队等待接种中共病毒（COVID-19）疫苗。（REUTERS/Andreas Gebert）
+
+罗伯特·科赫传染病研究所的报告显示，每10万人的七天发病率从前一天的941人上升至1017人，另有188人死亡，使自2020年初大流行开始以来的死亡人数达到117314人。
+
+DIVI急诊和重症监护医生协会的董事会成员乌韦·扬森斯（Uwe Janssens）警告说，如果每日感染人数超过30万，那么德国的关键基础设施就可能出现问题。卫生部长卡尔·劳特巴赫（Karl Lauterbach）预测，到2月中旬，每日病例可能超过40万。
+
+德国疫情的升级已造成一些行业人员的短缺。汉莎航空集团的货运部门说，由于员工中感染率的上升，其在法兰克福枢纽的人员已趋短缺，这意味着它目前无法处理来自美国、加拿大和欧洲的散装货物的分拣。目前，法兰克福有多达15%的货物受到延误的影响。
+
+德国医院联盟在本周早些时候也警告说，四分之三的医院报告说病假的员工人数高于平时。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

@@ -2,34 +2,36 @@
 ---
 
 
-## 爆料革命战友谈美国撤回中共大使馆的意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1918920/)
+## 北京屁眼里抓病毒 冬奥会临近北京憋大招
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1918935/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月25日郭文贵先生向全世界公布美国政府决定撤离美利坚合众国驻中共国北京大使馆后，爆料革命的战友们也在直播连线中谈论了这一举动的重大意义。
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-259.png)
+看中国2022年1月27日讯，北京冬奥还有9天登场，但当地的疫情却不见好转，近日有消息传出，官方在无计之下，又恢复了因侵犯人权而暂停的“肛门检测”，引发外界高度关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-16.jpeg)
+北京冬奥前恢复肛拭子
 
-战友们表示，这或将意味着，继二战之后，美国再次选择站在正义的一边，并且将和中国人民站在一起。同时，撤离大使馆也是对中共政权的巨大否定，特别是赶在冬奥会前的时间点，这预示着美国此举将成为引发全球灭共浪潮的第一步。
+据英国《太阳报》报导，由于北京近日在一社区内发现一名26岁女子感染Omicron病毒株，因此该市检疫部门对该栋公寓楼的27名居民进行了“肛拭子”核酸检测。
 
-郭先生对此总结道，美国驻北京大使馆一直被中共内部认定为定海神针。如今，这个定海神针的撤离意味着美国已经在全世界范围内认定中共政府不合法。自此，对抗中共的一方将必然成为正义的一方，这一结论影响深远且巨大。
+报导指出，共产党政权声称，中共国采用的肛拭子核酸检测是将棉签插入受检者的肛门长达5厘米，旋转数次，然后采集样本。但由于受检者不仅要脱下裤子，且在检查过程中感到不舒服和羞辱，因此在海内外掀起有关侵犯人权的争议。
 
-参考链接：[2022年1月25日 紧急直播：甜蜜蜜运动重大公告Breaking Live：Important Announcement-Tianmimi(Sweet as Honey)Movement](https://gtv.org/video/id=61f00abe28a108147c625eb0)
+事实上，2021年1月底，北京当局就曾宣布对部分人员除了进行鼻咽拭子、口咽拭子外，还要增加肛门拭子采样。随后，包括上海、青岛等多个大城市的检疫部门也跟进相关政策，强行对入境外国人进行“肛测”，引发多国严厉批评。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+对于中共国采取肛门拭子检测的行为，中共国卫生当局声称，中共病毒（新冠病毒Covid-19）在消化道中的存活时间比在呼吸道中的更长，肛门检测比现有的检测方法准确得多。但数项研究则显示，中共病毒新变种Omicron初期，相比鼻咽采检，唾液采检的正确率比较高，能提早数天筛检到病毒潜伏。尽管北京防疫管控不断升级，但冬奥的组织官员透露，预估北京越来越多病例会浮现。
 
-总编：Irene木木
-编辑：文特
-校正/发稿：谐趣园
+中共式防疫要的是宣传效果而不是防疫效果，那些所谓的领导专家听起来似是而非的解释只不过是渲染党国伟大的手段罢了。大阵式的全员核算检测，夸张的检测“技术”只不过是为了彰显举国体制办大事的能力抑或别有用心的安排罢了。一切都是戏，一切都是算计。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+消息来源：
+
+[冬奥倒计时 北京惊传恢复“肛测”抓病毒(图)](https://m.secretchina.com/news/gb/2022/01/27/996206.html)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
