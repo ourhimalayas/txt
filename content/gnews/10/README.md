@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥对战友的总结，我们在新中国联邦找到自己
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917611/)
+## 七哥谈“木”
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917764/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
