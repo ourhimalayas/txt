@@ -2,39 +2,29 @@
 ---
 
 
-## 美立法者抨击国际奥委会让反人类公司赞助奥运会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918295/)
+## 爆炸新闻：YouTube永久禁止Dan Bongino
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918324/)
 
 编译：wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1237873397-736x490-1.jpg)JADE GAO/法新社通过盖蒂图片拍摄
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-14-3.jpg)图片来源：Hannah Nightingale
 
-一家因帮助政府监视维吾尔人而被美国制裁的中国公司是即将举行的北京冬奥会的主要赞助商。
+YouTube于周三（26日）永久禁止保守派评论员丹·邦吉诺(Dan Bongino)进入该平台，据说是因为违反了该平台的COVID-19错误信息政策。
 
-iFlytek是即将举行的冬季奥运会自动翻译软件的独家供应商。中共国政府利用其技术监视中国维吾尔人和其他受迫害群体。美国商务部在2019年将iFlytek与其他中共国人工智能公司一起制裁，因为它们在“实施中国的镇压、大规模任意拘留和高科技监控运动中扮演了侵犯人权和虐待的角色。”
+邦吉诺在该平台自己频道发布的最后一个视频名为“Why I’m Leaving YouTube”(为什么我要离开YouTube)。然后他被完全禁止在该平台上使用。
 
-参议院外交关系委员会的最高共和党人吉姆·里奇（Jim Risch，爱达荷州）称，iFlytek参与奥运会的行为是”确实可耻”。
+一位代表YouTube的发言人告诉美国国会，“当一个频道被强迫注销时，发布内容或使用另一个频道来规避禁止使用令，是违反我们服务条款的。”
 
-“以‘承认和维护人权’立身的国际奥林匹克委员会允许一家中共国国家支持的公司赞助北京奥运会组委会，该公司协助中共国政府对维吾尔人进行残暴的人权侵犯；这恰恰表明，国际奥委会把利润和与北京的关系看得比什么都重要。”里奇告诉华盛顿自由灯塔。
+邦吉诺一直在他的主要YouTube频道上发布内容，而他的次要频道（主要发布他的广播节目的短片）则因违反YouTube的COVID-19错误信息政策而被暂停；邦吉诺的两个频道都已从网站上删除，他今后将不能再创建新的频道。YouTube发言人还证实，任何“与他的名字相关”的新频道也将被拒绝。
 
-北京奥运会引起了国际社会对中共国侵犯人权行为的关注。美国宣布对奥运会进行外交抵制，以回应中共国对中国维吾尔族穆斯林人口的种族屠杀。中共国本周威胁说，奥运会运动员的言论如果违反了“奥林匹克精神”，将受到“一定的惩罚”。
+“看着@YouTube的共产主义者在我们告诉他们去f%^\*自己之后拼命地挽回面子，很搞笑，”[邦吉诺报告](https://twitter.com/BonginoReport/status/1486431983249117190?s=20)（Bongino Reprot）在Twitter上写道：“他们声称我们‘试图逃避管治’。真的吗？通过发布最后一个标题是’Why I’m Leaving YouTube’的视频？”
 
-人权组织长期以来一直抨击iFlytek与中国共产党的合作。人权观察称：“在一个长期不受限制地监视和报复批评者的国家，当局可以轻易地滥用这些（监控）数据。”
-
-与里奇一起谴责中共的还有众议院外交委员会的最高共和党人迈克尔·麦考尔议员（Michael McCaul，德州）。麦考尔告诉自由灯塔，iFlytek“正式参与奥运会是一个完美的例子，说明中共的影响力是如何威胁到美国的价值观。”
-
-中共国记者在2020年东京奥运会期间使用了iFlytek技术。该公司吹嘘说，其双屏翻译器使中共国记者“解决了记者、运动员和工作人员之间的跨语言交流问题”。
-
-共和党道格·兰博恩议员（Doug Lamborn，科罗拉多州）的选区包括科罗拉多斯普林斯的奥运会和残奥会训练中心。他告诉《自由灯塔》，“美国必须继续制裁那些协助对维吾尔人进行种族灭绝和犯罪的公司。”
-
-iFlytek与计算机芯片制造商英特尔合作，后者是奥运会的赞助商。英特尔是iFlytek的早期投资者，并为该公司的语音识别技术提供芯片。英特尔就《防止维吾尔族强迫劳动法》游说国会，该法禁止依赖中共国奴隶劳动的进口。 网络安全组织说，中共国可能利用技术来监视那些参加北京奥运会的人。据公民实验室称，奥运选手和其他人必须在比赛前用来报告健康和旅行数据的应用程序包含许多加密漏洞。该应用程序还包含审查某些政治声明的计算机代码。
-
-新闻来源：[freebeacon.com] [Lawmakers slam IOC’s ‘shameful’ decision to let U.S.-sanctioned company sponsor games](https://freebeacon.com/national-security/chinese-company-that-surveils-uyghurs-has-major-role-in-beijing-olympics/) | 发布时间：2022年01月24日
+新闻来源：[thepostmillennial.com] [BREAKING: YouTube permanently bans Dan Bongino](https://thepostmillennial.com/breaking-youtube-permanently-bans-dan-bongino) |发布时间：2022年01月26日
 
 * * *
 
 *审核：文乐
-校对：小东
+校对：阿伯塔
 发稿：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)

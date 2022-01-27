@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/27/2022 1:02 PM (UTC)`
+
+2022年1月27日 文贵大直播：卧薪尝胆三十载  爆料革命整五年  正道至善得人心  除恶建邦开纪元
+![img](https://media.gettr.com/group45/origin/2022/01/27/12/5f1b2c4c-3d57-3e93-90f0-04b51d286fe3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/27/2022 1:51 AM (UTC)`
 
 1月26号，Hcoin To the Moon MV上线第48天位列澳门🇲🇴iTunesMV榜首🥇，累计共35次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共31次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1913284/<br/><br/>Jan 26, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 48 Day of Launch, hit No .1 for 35 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 31 times in total🎉🎉🎉<br/><br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
@@ -144,13 +151,6 @@ A Thank You letter from the New Federal State of China to President Joe Biden an
 
 1/25/2022 Miles Guo’s Big Announcement: I, along with countless fellow fighters behind the scenes who are risking their lives, have been doing our best to stop the CCP from hosting the Winter Olympics. We hope to prevent the tragidies similar to the Holocaust committed by the Nazis after the 1936 Olympics from happening in China, and we are honored to see the boycotts of the Winter Olympics and a series of actions against the CCP by the United States and other countries around the world that care about the democracy, rule of law, and freedom of the Chinese people!<br/><br/>1/25/2022 文贵重大公告：文贵和背后无数冒着生命危险的战友在全力阻止中共举办冬奥会，我们希望避免类似1936年奥运会后纳粹屠杀犹太人的惨剧在中国上演，我们很荣幸地收获了美国及世界上关心中国人民主、法治、自由的国家对冬奥会的抵制以及针对中共的一系列行动！<br/>
 ![img](https://media.gettr.com/group45/getter/2022/01/25/23/015c6855-8cb1-f91e-e7e4-bd911e59bb85/out.jpg)
-
----
-
-`@miles 1/25/2022 10:23 PM (UTC)`
-
-1/25/2022 Miles Guo’s Big Announcement: The CCP, which has created one humanitarian disaster after another in China and around the world, is hosting the Winter Olympics without environmental protection, human rights, freedom of expression, and personal freedom. The Winter Olympics is a huge insult to the Olympic spirit and will result in immeasurable harm and human rights violations against the Chinese people. The International Olympic Committee has betrayed the Olympic spirit and sold its soul and principles!<br/><br/>1/25/2022 文贵重大公告：在中国和全世界制造了一场又一场人道灾难的中共竟要在没有环境保护、没有人权、没有言论自由和人身自由的情况下举办冬奥会，这是对奥林匹克精神莫大的侮辱，对中国人民带来的伤害和人权的侵犯将无法估量；国际奥委会背叛了奥林匹克精神、出卖自己的灵魂和原则！<br/>
-![img](https://media.gettr.com/group19/getter/2022/01/25/22/b260509b-23c8-239e-1ec9-323169eb74c1/out.jpg)
 
 ---
 
