@@ -2,8 +2,8 @@
 ---
 
 
-## 关于彭丽媛的笑话·下
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917154/)
+## 共产主义创伤的第一核心问题
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917247/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

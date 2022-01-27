@@ -2,8 +2,8 @@
 ---
 
 
-## 宫廷圈养的丑陋和无知
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917173/)
+## 新中国联邦宣言分分钟解决共产主义创伤
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1917256/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

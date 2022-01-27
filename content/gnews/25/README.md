@@ -2,28 +2,33 @@
 ---
 
 
-## 2021年中共国GDP数据显示 中共国母猪又上树了
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1916905/)
+## 未来澳洲和新西兰的企业将以数字技术优先
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1916906/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-28.jpg)
-图片来源： 搜狐
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-##### 根据2022年1月26日  网易报道，中共国至少28个省级行政区公布了2021年GDP数据。 
+整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-26-下午2.41.19-11.png)
+根据《CRN》1月27日报道，研究公司IDC对2022年的预测，未来五年，澳大利亚和新西兰的公司将过渡到“数字优先”的战略，这主要是由大流行病推动的。
 
-##### 其中诞生了两个“四万亿”城市：北京市GDP达4.02万亿元；上海市GDP达到4.32万亿元，广东省GDP突破12万亿元，江苏紧跟全国第一广东其后；“后进生”安徽2021年GDP突破4万亿元。
+IDC的报告调查了87%的澳大利亚和新西兰公司，并对IT行业将如何应对新冠病毒（covid-19）以及“不断变化的社会规范”做出了10项预测，如“更强的隐私保护和披露授权”、“可持续发展的需要” 和其他“系统性的行业变化”。
 
-新闻称北京市GDP突破4万亿元得益于高端制造业**、医药等新兴产业和数字经济的拉动，尤其是医药制造业在疫苗生产带动下比上年增长****2.5****倍，**支撑了北京的经济增长。2021年1月到11月，**科兴中维、国药北生研两家新冠疫苗生产企业**累计贡献产值超2300亿元，而上海市则得益于其积极布局战略产业如集成电路、生物医药、新能源汽车制造等产业。
+报告称，到2024年，以数字优先的企业将把75%的技术和服务支出转移到以服务和结果为中心的模式，以改善客户体验和运营模式。
 
-从官方的数据来看，除了一直稳定发展的广东省和江苏省，这次“黑马”是安徽省——–这次仅以0.03万亿的微弱劣势，暂时排在上海之后，除此之外，**山东、天津提速，湖北****GDP****重回前七**** ，****山西实现反超，江西直追陕西。**全国各地从疫情后重振中站起来，逐步回归常态。
+到2022年，40%的澳大利亚和新西兰上市公司的云计算选择过程将被重新设置，以关注业务成果而不是IT要求。这标志着向 “重视从设备到边缘以及从数据到生态系统的供应商组合的访问 “的转变。
 
-分析称，随着中部崛起战略深入实施，在长江中游城市群“抱团”发展及高质量共建“一带一路”的带动，中部省份的增长将撬动各省GDP排名的重构。
+治理准备工作也将成为成功的关键。到2023年，75%的澳新企业将使用人工智能辅助、与云相关的治理服务来管理、优化和保护分散的资源/数据，但由于IT技能不匹配，70%的企业将无法实现全部价值。
 
-靠着杀人的中共新冠疫苗拉动的GDP，靠着吃中国老百姓血肉拉动的GDP，因为毫无人性的封城，疫情清零政策，老百姓被饿死在家！中共官媒还在假大空骗老百姓！这又是文革式的洗脑宣传— 母猪会上树2.0！
+新闻链接：[Digital first approach will define 2022: IDC](https://www.crn.com.au/news/digital-first-approach-will-define-2022-idc-575186)
 
-**新闻来源：**
+*发布：tianzhihuan*
 
-[https://www.163.com/dy/article/GUIVTKA00514BE2Q.html](https://www.163.com/dy/article/GUIVTKA00514BE2Q.html)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
