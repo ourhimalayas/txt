@@ -2,96 +2,37 @@
 ---
 
 
-## 保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918214/)
+## 威斯康星州议会投票推进关于2020年大选的决议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918294/)
 
-[https://gtv.org/video/id=61f162e387664c47acda6309](https://gtv.org/video/id=61f162e387664c47acda6309)
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip19威斯康星州议会投票推进关于2020年大选的决议.png)图片来源：thegatewaypundit.com
+威斯康星州议会在一项特权决议中以语音表决方式全票通过，以推进由众议院[拉姆森议员](https://legis.wisconsin.gov/assembly/59/Ramthun/)提出的决议：收回威斯康星州在欺诈性目的下被认证的（美国总统和副总统）10张选票；该立法现在将转到威斯康星州规则委员会（Wisconsin Rules Committee）和威斯康星州参议院（Wisconsin Senate）。
 
-**Dr. Paul Marik
-保罗·马里克医生**
+它是如何发生的？拉姆森议员在周二（25日）的威斯康星州议会公开会议上勇敢地提出了一个程序问题。他的做法是要求通过一项特权决议。根据议会规则（全票通过），他的立法被提交给规则委员会。
 
-My hands were tied as a clinician for the first time in my entire career
-作为临床医生，在我的整个职业生涯中，我的双手第一次被束缚
+州规则委员会掌握在共和党人沃斯议长（Speaker Vos）的手中。因此，沃斯议长和其他代表有十天的时间来回答他是否要把它推到会场进行表决。目前还不清楚威斯康星州参议院将如何处理它。
 
-I could not be a doctor. I could not treat patients the way I had to be to treat patients
-我不能做为一名医生，我不能像对待病人一样给病人治病
+拉姆森议员使用了规则手册，使用了宪法，而且无所畏惧。他走到大家面前，停止了会议，说：我是一名立法者，我想让你们听听这个，因为这是选民要求我做的。
 
-I had seven COVID patients, including a 31 year old woman
-我有七名COVID患者，其中包括一名31岁的女性
+州议会对该决议进行了投票，以通过规则委员会，获得一个意见来推进工作。他们本可以将其搁置。他们甚至不需要听到它。但是，因为它被发现有特权，他们没有选择。现在，该立法转到了规则委员会。
 
-I was not allowed to treat these people. I had to stand by idly
-我不被允许治疗这些人，我不得不袖手旁观
+因此，现在立法进入下一阶段，我们将看到由罗宾·沃斯领导的规则委员会会发生什么。这不是一笔交易，但这是威斯康星州历史上第一次有州议员提出要收回威斯康星州的10张大选选举人票。
 
-I had to stand by idly watching these people die
-我不得不袖手旁观地看着这些人死去
+拉姆森的办公室正在为大选选票竞争，需要得到支持和感谢，因为他们为威斯康星州和美国的人民做了正确的事情。无论决议如何发展，拉姆森议员一直遵守他对威斯康星州人民的承诺。
 
-I then tried to sue the system and you know what they did?
-然后我试图起诉系统，你知道他们做了什么吗？
-
-They did something called peer sham review
-他们做了一些叫做同行虚假审查的事情
-
-It is a disgusting and evil concept
-这是一个令人作呕和邪恶的概念
-
-They then accused me of seven most outrageous crimes that I had committed
-然后他们指控我犯下七项最令人发指的罪行
-
-and then I was such a severe threat to the safety of patients
-指控我对患者的安全造成了如此严重的威胁
-
-They immediately suspended my hospital privileges
-他们立即暂停了我的住院医生的权限
-
-because I possessed a pose such an outright threat to these patients
-因为我对这些病人构成了如此直接的威胁
-
-ignoring the fact that under my care, the mortality was 50% those of my colleagues
-无视在我的照顾下，患者死亡率是我同事的50%的事实
-
-I then went on through the sham peer review
-然后对我继续进行虚假的同行审查
-
-I went to a kangaroo court where they continued this
-我去了一个模拟法庭，他们继续这样做
-
-and the end result was I lost my hospital privilege
-最终的结果是我失去了住院医生的权限
-
-and was reported to national Practitioner Data Bank
-并报告给国家从业医生数据库
-
-So here I was standing up for patients rights
-所以我在这里为病人的权利挺身而出
-
-and this hospital, this evil hospital ended my medical career
-而这家医院，这家邪恶的医院结束了我的医疗生涯
-
-So that’s what they do
-这就是他们所做的
-
-It’s an outright outrage. It’s evil to the core
-这是彻头彻尾的暴行，这是邪恶的核心
+**新闻来源**：[thegatewaypundit.com] [\*\*HUGE BREAKING NEWS\*\* — Wisconsin Assembly
+ Votes to Advance Rep.Ramthun’s Resolution to Reclaim Wisconsin’s Electors For President and Vice President That Were Certified Under Fraudulent Purposes — VIDEO](https://www.thegatewaypundit.com/2022/01/huge-breaking-news-wisconsin-assembly-votes-withdraw-10-electors-joe-biden-2020-election-video/)
 
 * * *
 
-Date:01/25/2022
-原视频标题: Dr. Paul Marik talks about how he got fired after he tried to treat his COVID patients
-保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
-原视频日期：2022/01/25
-原视频链接: **[https://twitter.com/senronjohnson/status/1485700814643638275?s=24](https://twitter.com/senronjohnson/status/1485700814643638275?s=24)**
-任务编号：KE367（3590）
-视频时间段 : 0:00-1:43
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+
+
 
  
 

@@ -2,32 +2,45 @@
 ---
 
 
-## 爆炸新闻：YouTube永久禁止Dan Bongino
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918324/)
+## 文•贵天成——文贵先生谈“曾庆红”（十一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1918413/)
 
-编译：wenwu
+整理：tianzhihuan
+编辑：Sadhu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Untitled-design-14-3.jpg)图片来源：Hannah Nightingale
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2022-01-27-下午10.19.29.png)
 
-YouTube于周三（26日）永久禁止保守派评论员丹·邦吉诺(Dan Bongino)进入该平台，据说是因为违反了该平台的COVID-19错误信息政策。
 
-邦吉诺在该平台自己频道发布的最后一个视频名为“Why I’m Leaving YouTube”(为什么我要离开YouTube)。然后他被完全禁止在该平台上使用。
+**郭文贵2021****年4****月23****日直播**
 
-一位代表YouTube的发言人告诉美国国会，“当一个频道被强迫注销时，发布内容或使用另一个频道来规避禁止使用令，是违反我们服务条款的。”
+这位咱们这位朋友明确地很清楚地说，就王岐山的恐惧、王岐山的紧张和敏感度,都是说跟他在，因为王岐山那时候就一定要去海南的，那是他最喜欢的地方，春节什么一定要去海南的，就曾庆红每年冬天一定在福建过、在厦门过，王岐山一定去海南，邓小平当年一定去珠海，珠海的就是那个避暑山庄就是给他就一直为邓家留着的，这都是有规矩的啊，贾庆林也是去福建。
 
-邦吉诺一直在他的主要YouTube频道上发布内容，而他的次要频道（主要发布他的广播节目的短片）则因违反YouTube的COVID-19错误信息政策而被暂停；邦吉诺的两个频道都已从网站上删除，他今后将不能再创建新的频道。YouTube发言人还证实，任何“与他的名字相关”的新频道也将被拒绝。
+王岐山今年本来冬天就是要去福建，最后一分钟王岐山就没敢去，因为曾庆红在那儿，怕碰见曾庆红、怕上边有人想法临时改了。今年也没去海南，也怕海南有想法，这次所谓的BGY博鳌论坛王岐山去了，借机去了，王岐山见了不少人，在严密的监护下以各种理由还是见了不少人。
 
-“看着@YouTube的共产主义者在我们告诉他们去f%^\*自己之后拼命地挽回面子，很搞笑，”[邦吉诺报告](https://twitter.com/BonginoReport/status/1486431983249117190?s=20)（Bongino Reprot）在Twitter上写道：“他们声称我们‘试图逃避管治’。真的吗？通过发布最后一个标题是’Why I’m Leaving YouTube’的视频？”
+**郭文贵2021****年4****月24****日盖特**
 
-新闻来源：[thepostmillennial.com] [BREAKING: YouTube permanently bans Dan Bongino](https://thepostmillennial.com/breaking-youtube-permanently-bans-dan-bongino) |发布时间：2022年01月26日
+其中这次包括曾庆红，曾庆红就是真正的中共，今天要说中国最绝对的力量，绝对不是习大神是曾家。只有曾家横跨军界，妹妹曾海生，妹夫张大业，是吧？母亲当年邓六金， 弟弟包括曾庆阳整个三部的。所以说在整个家里边，都是军方的人，而且是在总参作战级别的。他有意地栽培了很多军方人，中组部的，提了地方人士。在国家副主席位置上，那是要上去的那个位置。木兰说，跟她老公也这么交流，跟她老公也这样。 所以说昨天国内的战友，几次给我传递的信息，本来我想今天要放几个照片呢！（但）我为了不泄露战友。他发了几个照片，我感到非常震撼。因为照片里有几个人，是大家都不知道的，但是我知道，是所谓的曾庆红的身边的秘书，像李业主、张欣、陈欣这些人，都是了不得的。 所以说看得出来，就国内现在最重的动到根的时候，实际上江派的代表是曾派。然后是王岐山，然后才是孟建柱，然后才是那个………。但是这次的行动说明真的是，习大神成为孤家寡人之后，他意识到曾（庆红）是真正的中国大佬。政治智慧也是曾，而且曾的力量是横跨海内外。
 
-* * *
+**往期回顾：
+**[文•贵天成——文贵先生谈“曾庆红”（一）](https://gnews.org/zh-hans/1889878/)
+[文•贵天成——文贵先生谈“曾庆红”（二）](https://gnews.org/zh-hans/1889899/)
+[文•贵天成——文贵先生谈“曾庆红”（三）](https://gnews.org/zh-hans/1896935/)
+[文•贵天成——文贵先生谈“曾庆红”（四）](https://gnews.org/zh-hans/1897035/)
+[文•贵天成——文贵先生谈“曾庆红”（五）](https://gnews.org/zh-hans/1903196/)
+[文•贵天成——文贵先生谈“曾庆红”（六）](https://gnews.org/zh-hans/1903752/)
+[文•贵天成——文贵先生谈“曾庆红”（七）](https://gnews.org/zh-hans/1912180/)
+[文•贵天成——文贵先生谈“曾庆红”（八）](https://gnews.org/zh-hans/1912322/)
+[文•贵天成——文贵先生谈“曾庆红”（九）](https://gnews.org/zh-hans/1912409/)
+[文•贵天成——文贵先生谈“曾庆红”（十）](https://gnews.org/zh-hans/1918323/)
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
+**发布：**tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

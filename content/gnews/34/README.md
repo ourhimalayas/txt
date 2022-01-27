@@ -2,34 +2,97 @@
 ---
 
 
-## 一步一上摇
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1918076/)
+## 保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1918214/)
 
-文：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a-108-890x499-1.png)图源：网路
-人类的金融每每发展到了一定程度就必须来一次大爆炸，来一场金融危机，以此求的更新更快地发展。自由市场的规则就是如此，不可能将一个夕阳产业还堆积在高处，有过巅峰，但总要落下，落下的时候狼狈不堪，毕竟那些曾经的合作者，曾经的好哥们儿，在各种消息灵通的关照下，大笔资金总是见风使舵就全撤走了。房地产就是最好的例子，美国经历过房地产泡沫，日本经历过房地产泡沫，但那泡沫破灭以后带来了新科技的爆发增长。美国国内的产值，占比最多的是文化产业，再也不是房地产。美国人对房地产开发商都是看不起的，川普这样的房地产商人就算做了总统，依然有人看不上他。
+[https://gtv.org/video/id=61f162e387664c47acda6309](https://gtv.org/video/id=61f162e387664c47acda6309)
 
-中共国的房地产企业目前已经处在低点，将要崩塌的边际了，不过是因为共产党拥有的国家武器，所谓的市场经济根本就没有市场，都是国家调控，或者叫做大外宣，我让你破产你才破产，如果破产以后需要再一次欺骗，那么马上这些不良资产就可以全部变成优质资产，电脑上那么顺手一下子而已。科技进步给造假带来的便利可不是一点半点的，尤其共产党这种独裁式的集中力量办大事的邪恶政党。记得以前给毛贼东报粮食产量，都是一级一级往上瞎报，大家还得私下彼此打听你报了多少，我得怎么报，到了最后是啥样，上了报纸，还得手动算一算。虽然根本不用那么在意，比得不是谁产量高，比得是谁会吹牛，谁能造假造到让人发指的地步。现在有了电脑了，简直太方便了，电脑上随便填就是了，最后是多少，电脑一点就算出来了，因为有了科技的进步，产值的增多，多少钱多少亿，那些都是数字。每个数字后面的产值都是空的，印钱印到手发麻，一切全都乱了套，根本不用在意超发的人民币有多少，总之就是摇摇直上，欲与天公试比高，天有多高不知道，反正人民币要这么一直超发下去，绝对要上天，还要上太阳上去。但是有什么用，印钱是为了摆成一摞比高高吗？钱失去了该有的作用，都用在那些不切实际的表面虚假上，能有多少钱给作践的？
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2701378041e9a81d9529.jpg)
-科技进步的一大方便还表现在区块链上。比特币号称自己只有两千万多枚，但是到底要多少个，根本没人来监管这个事儿，比特币也坚决不让别人来监管。法币为什么可以注水超发，因为各个发币机构允许他们那么干，允许的前提是你得和我勾兑，明面上的词语就叫做监管。美联储也好，中共国的央行也好，超发货币满天飞，你敢数一下有多少吗？美元挂钩石油以后，给世界造成的印象就是石油的涨跌关系着美元，但石油这个东西不是贵金属，按道理说不适合作为社会总产值的一个锚定，金融可以操控石油的价格，时时波动，必将影响到美元价格。只是因为美联储是美联储，背后有着掌控全球的力量，他让美元和其他的东西做锚定也没人反对啊，毕竟这个地球上目前就这些大佬说了算。比特币出现后，号称自己有固定的个数，按照常理来想，一旦这个数字货币成为某些价值的可交换币种，相当于是给全世界其他的商品也固定了一个以比特币为价值基础的价格参考。每当马斯克放出烟雾弹来，比如说啊我打算让比特币用来买特斯拉的车了，比特币不动声色就涨上去了，尽管从来也没有人用一个比特币买到一个特斯拉的车子，但是这种放风总会给数字货币市场带进来不少钱，钱一进来就水涨船高了。
+**Dr. Paul Marik
+保罗·马里克医生**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-27-19.18.10.png)图源：网路
+My hands were tied as a clinician for the first time in my entire career
+作为临床医生，在我的整个职业生涯中，我的双手第一次被束缚
 
-喜联储每年发行10亿个喜币，一个也不会多，一个也不会少。目前情况下，喜币的法律合作方面是走在所有数字货币的前列的。虽然很多我们见到的所谓“少年天才”，就是指电脑技术非常高的年轻人，都去从事关于数字货币的投资或者初创工作，技术上可以说是所向披靡的。七哥直播里总是说，理工男理工女的思维方面，充满着拧巴。这个说明的问题反映在目前的数字货币市场就是，很多技术方面的成功并不是仅仅需要技术，技术是一个指引，技术并不是全部，需要的是大佬的支持，这是一方面，还有一方面是政治法律的合作，毕竟发行货币并不是一个简单的金融游戏，如果一个数字货币只是用来当作一个金融产品来炒作，那它遵循的就是金融市场的规则，根本不需要联动这么多社会各界的力量来撬动这个支点。这个支点是人类必将走向数字货币的时代，不仅仅是人类，是人类之中的各种角色，律师，艺术家，花匠，作家，政客，电脑高手，数据专家，等等，当然还包括母婴产品售卖商，衣食住行的方方面面。一个数字货币要联动全球，就不是沼泽地的大佬一个人说了算了，每个人都有自己独特的体验，且是不可磨灭的体验。
+I could not be a doctor. I could not treat patients the way I had to be to treat patients
+我不能做为一名医生，我不能像对待病人一样给病人治病
 
-再者，数量的确定性从法律上加以保障，这本身就是把法律和规则拉进来一起制定规则。一旦在市场上形成流通，那么法律就可以有正常的关于商品价值的参考，名正言顺合理合法。赵长鹏的交易所就是把数字货币当成金融产品在打理，啥违法不违法的，帮助共产党洗黑钱那不是正常操作嘛，必然的，一定会出卖客户数据的。货币真正的价值不是金融，不是用来喊价的筹码，但是它既可以是筹码，更重要的是流通。当共产党邓小平家存在瑞士的大钱都动了的时候，真不知道这世界还有哪里是安全的。就算拿去炒黄金也不过就是金融游戏，毕竟黄金是不方便用来流通的。喜币未来尚在一步一摇之中，但是，谁都知道那场金融大崩塌终究会来的，躲不掉的。
+I had seven COVID patients, including a 31 year old woman
+我有七名COVID患者，其中包括一名31岁的女性
+
+I was not allowed to treat these people. I had to stand by idly
+我不被允许治疗这些人，我不得不袖手旁观
+
+I had to stand by idly watching these people die
+我不得不袖手旁观地看着这些人死去
+
+I then tried to sue the system and you know what they did?
+然后我试图起诉系统，你知道他们做了什么吗？
+
+They did something called peer sham review
+他们做了一些叫做同行虚假审查的事情
+
+It is a disgusting and evil concept
+这是一个令人作呕和邪恶的概念
+
+They then accused me of seven most outrageous crimes that I had committed
+然后他们指控我犯下七项最令人发指的罪行
+
+and then I was such a severe threat to the safety of patients
+指控我对患者的安全造成了如此严重的威胁
+
+They immediately suspended my hospital privileges
+他们立即暂停了我的住院医生的权限
+
+because I possessed a pose such an outright threat to these patients
+因为我对这些病人构成了如此直接的威胁
+
+ignoring the fact that under my care, the mortality was 50% those of my colleagues
+无视在我的照顾下，患者死亡率是我同事的50%的事实
+
+I then went on through the sham peer review
+然后对我继续进行虚假的同行审查
+
+I went to a kangaroo court where they continued this
+我去了一个模拟法庭，他们继续这样做
+
+and the end result was I lost my hospital privilege
+最终的结果是我失去了住院医生的权限
+
+and was reported to national Practitioner Data Bank
+并报告给国家从业医生数据库
+
+So here I was standing up for patients rights
+所以我在这里为病人的权利挺身而出
+
+and this hospital, this evil hospital ended my medical career
+而这家医院，这家邪恶的医院结束了我的医疗生涯
+
+So that’s what they do
+这就是他们所做的
+
+It’s an outright outrage. It’s evil to the core
+这是彻头彻尾的暴行，这是邪恶的核心
 
 * * *
 
-作者：骄子
-发布：骄子
+Date:01/25/2022
+原视频标题: Dr. Paul Marik talks about how he got fired after he tried to treat his COVID patients
+保罗·马里克医生谈到了他在尝试治疗COVID患者后是如何被解雇的
+原视频日期：2022/01/25
+原视频链接: **[https://twitter.com/senronjohnson/status/1485700814643638275?s=24](https://twitter.com/senronjohnson/status/1485700814643638275?s=24)**
+任务编号：KE367（3590）
+视频时间段 : 0:00-1:43
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
- 
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

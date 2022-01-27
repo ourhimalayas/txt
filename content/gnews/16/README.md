@@ -2,31 +2,30 @@
 ---
 
 
-## 日本的最大的赌王想加入咱博彩牌照
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1918406/)
+## 提防中共 日本维新会提案严惩违反保密规定的行为
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1918455/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/日本的最大的赌王想加入咱博彩牌照.jpg)
-我现在要你这个博彩这个牌照。
+撰稿：东京樱花团/麗子
 
-现在马上，我就要你20%的股权。 我未来的10年运营，你的成本我全部给cover掉，我所有赚的钱，你拿走80%。而且我愿意出你现在的10倍到20倍价格来加入。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/提防中共-日本维新会提案严惩违反保密规定的行为.png)[图片来源](https://www.jtuc-rengo.or.jp/news/news_detail.php?id=1802)
 
-为什么这么做呢? 他说∶”因为这个博彩的执照不是博彩，我知道它意味着什么。 这个日本人给我数了数，他说∶你有数字货币、你有稳定币、你再有数字银行、你再有支付。 他说∶还有更重要的，你们接下来还将要发生的，我都能想象到∶全球的整个数字世界的联系。
+27日，日本维新会向经济产业大臣小林鹰之递交了一份提案，其中包括对违反保密规定的行为实施惩罚，包括对公民个人。
 
-发布：于white
+提案在提到中共国时称，中共国一直在军事与经济战略上扩大其在国际社会的影响，这种霸权主义趋势对日本的安全构成严重威胁。据此应考虑对个人的“违反保密规定的行为进行严厉处罚，包括刑事处罚”，特别是在半导体和高容量电池等需要官民合作的领域。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+日本维新党秘书长告诉记者，处罚是讨论如何在实践中提高法律效力的一个重点，希望政府能够在经济安全保障法筹备之际予以讨论。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+摘要:27日，日本维新会递交提案，要求对包括公民个人的违反保密规定的行为实施处罚。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+关键词：日本 维新会 刑事处罚 保密规定 公民个人
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+信息源:
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[維新「民間人も守秘義務違反には罰則を」中国念頭に経済安全保障の法整備で提言](https://news.yahoo.co.jp/articles/0afbfc740b563edd82437ff74500384dbc797031)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
