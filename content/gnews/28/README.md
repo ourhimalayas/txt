@@ -2,52 +2,42 @@
 ---
 
 
-## 德国每日COVID病例超20万，已造成行业人员短缺
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1919110/)
+## 基努·里维斯因参加西藏演唱会面临中共的强烈反对
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1919201/)
 
-作者：纽约香草山农场 – 四季
+**评论：***威权主义盛行的国家，民主程度越低，政府对音乐的审查就越严苛。在中共国，不为暴政涂脂抹粉，敢于在音乐中表达文化流失、或者生活得并不幸福等问题时，这类歌曲就被称为禁歌，歌手被污蔑为反动歌手，歌唱被叫做非法歌唱！*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+《 MovieWEB》记者ANTHONY LUND  2022年1月24日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2265-e1643302667395.png)图片源自MovieWEB
+**在宣布基努·里维斯参加西藏之家美国慈善音乐会后，中国民族主义者呼吁抵制黑客帝国的第四部系列电影——复活。**
 
+里维斯是以某种方式参加音乐会的艺术家之一。然而，目前尚不清楚黑客帝国和约翰·威克电影系列明星将如何参与，其中还包括 Iggy Pop、Jason Isbell 和 Patti Smith 等人。最近好莱坞电影在中国上映出现了许多问题，包括许多漫威电影仍在中国等待上映。
 
+什么是西藏之家美国公益音乐会？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2266-e1643302724144.png)图片源自MovieWEB
+自1989年以来，每年都会举办一次“西藏之家美国公益音乐会”，以确保西藏文化的存续。音乐会在藏历新年前后举行，传统上以蒙朗祈祷节为标志，这是一个为期两周的节日，曾经在拉萨举行，在过去的六年中被中国共产党禁止。由于持续的新冠病毒大流行，今年的音乐会将是一场虚拟活动，所有收益都将像往常一样捐给美国西藏之家。
 
+美国西藏之家与应达赖喇嘛要求于1987年成立的组织联盟有关。自1950年中华人民共和国吞并西藏以来，中国政府将西藏人民和文化逼入绝境，其中包括电影只有在其内容中不包含任何藏语内容的情况下才允许进入中国电影院，这已经造成了一些问题。
 
+**据编剧 C. 罗伯特·嘉吉（C. Robert Cargill）称，漫威的《奇异博士》是一部遭到强烈反对并声称粉饰角色的电影，因为它避免专门提及西藏文化和人民。最近漫威最大的问题来自《永恒族》的导演Chloe Zhao，她不但没有因为在好莱坞的成功而成为民族英雄，反而因为表达了她对在中国长大的个人看法以及在中国的各种人物角色和人际关系而引起争议。电影不一定符合该国领导层的看法，这导致该电影和其他漫威电影未能进入影院。**
 
-据[OAN网站](https://www.oann.com/germany-reports-new-daily-record-for-covid-19-infections/)援引路透社1月27日报道，周四，德国新的中共病毒感染人数首次超过单日20万，比一周前的同一天多出69600例。
+黑客帝国的第四部系列电影——复活上个月在中国上映，但在开幕周末只赚了750万美元。虽然这部电影在大多数地区表现不佳，但预计在中国上映时的表现会比这好得多，而且随着抵制的呼声越来越高，现在这部电影的情况似乎不会好转。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-27T132954Z_1_LYNXMPEI0Q0MP_RTROPTP_0_HEALTH-CORONAVIRUS-GERMANY_1.jpg)2022年1月27日，在德国慕尼黑一个疫苗接种中心前，人们排队等待接种中共病毒（COVID-19）疫苗。（REUTERS/Andreas Gebert）
+文章来源：[https://movieweb.com/keanu-reeves-chinese-backlash-tibet-concert/](https://movieweb.com/keanu-reeves-chinese-backlash-tibet-concert/)
 
-罗伯特·科赫传染病研究所的报告显示，每10万人的七天发病率从前一天的941人上升至1017人，另有188人死亡，使自2020年初大流行开始以来的死亡人数达到117314人。
+翻译：洛杉矶盘古农场 – Raul
 
-DIVI急诊和重症监护医生协会的董事会成员乌韦·扬森斯（Uwe Janssens）警告说，如果每日感染人数超过30万，那么德国的关键基础设施就可能出现问题。卫生部长卡尔·劳特巴赫（Karl Lauterbach）预测，到2月中旬，每日病例可能超过40万。
+校对：洛杉矶盘古农场 – Mike Li
 
-德国疫情的升级已造成一些行业人员的短缺。汉莎航空集团的货运部门说，由于员工中感染率的上升，其在法兰克福枢纽的人员已趋短缺，这意味着它目前无法处理来自美国、加拿大和欧洲的散装货物的分拣。目前，法兰克福有多达15%的货物受到延误的影响。
+评论：洛杉矶盘古农场 – Wendy
 
-德国医院联盟在本周早些时候也警告说，四分之三的医院报告说病假的员工人数高于平时。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+编辑：洛杉矶盘古农场 – Wendy
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
