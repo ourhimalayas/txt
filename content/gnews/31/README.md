@@ -2,30 +2,31 @@
 ---
 
 
-## 文·贵天成 – “爆料革命”盘古开天地（八）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1915989/)
+## GTV新闻访谈简报|2022年1月26日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1915990/)
 
-#### 整理：澳雅大直播工作组视频剪辑小队
+作者：香草山翻译部
 
-其中的一个人呢,位不太高但是权力很重,过去这四年,在中国是兴风作浪,很多大案都是他办的,是中国中纪委和公安的项目组的组长。江湖上有句话,纪委加公安,权力大过天。**我说过坏纪委人员和坏公安就能翻了天!其中就是这么一个人。就是今天的公安的常务副部长——傅政华**。我们背后的其中一个黑手就是傅政华。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-傅政华在过去四年是权力之大，那真的是已经超过了天了。当初我们和李友合并了之后呢，真正李友背后的老板提出来，马上要让郭文贵同意定向增发两百亿。那就是我一共换来了18亿股,我付了120亿现金。当天下午李友打电话,就要定向增发两百亿。
 
-**我说：***这是你的主意吗,你这不是抢钱吗*?
-**他说:** 那不关我的主意。你知道我背后的那几个老板,那谁谁谁,那家人说了,那必须得定向增发。
-**我说**：*你定向增发洗掉了我一半的钱!*
-**他说：**那你要不答应,那你郭文贵就等着家破人亡吧?
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-4.png)
+校对：Stay文苑
 
-这话就来了。那我说,你要让我家破人亡,那我说李友,我只有和你干一仗了。这个时候呢，我就去找人了。结果我刚才就说,其中就找了一个傅政华先生。傅政华的家人就找上门来啦，他的弟弟是他的亲属代表。他的弟弟叫傅老三,在北京江湖上那可以说是顶一个政治局委员，就这么一个权力。**他想抓谁那肯定抓谁,傅政华就说你反党,说你涉及什么案子就把你抓了。**而且,他毎天都打着口号说深受习近平书记、王岐山书记、孟建柱书记的信任,除了他们仨之外都听他的了。所以就都找傅老三办事。他要想害谁那是一句话,他想帮谁捞谁也是一句话。而且所有的跟中纪委的项目组办案的成员,都是北京经侦的人,都是老傅的手下。不用老傅说话，**老傅只要是稍微给一点态度就很明确了,让你死就得死。**
+编辑：Stay文苑
 
-*发布：玉米地守望者*
+发稿：Stay文苑
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频参看：[1.26  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f1f52528a108147c636736)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
