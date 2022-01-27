@@ -2,31 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月26日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1915990/)
+## 艾格里斯医生唤醒体制内同事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1916140/)
 
-作者：香草山翻译部
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/艾格里斯医生唤醒体制内同事_01.jpg)
+直播时间：2021.12.01
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+你想一想，艾格里斯医生处理被活摘器官的尸体，她听着七哥的《沧海一声笑》《酒灭中共》是什么感觉?
 
+你去想想艾格里斯，你这一出来感动多少人?
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-4.png)
-校对：Stay文苑
+他（艾格里斯医生同事）说：“（文贵先生）你知道吗，我把艾格里斯医生的几段话跟我旁边的医生护士一说，我们姐妹抱头痛哭啊。很多人，唤醒了很多人，所以说，音乐加情感加事实，这个力量绝对是精神导弹。
 
-编辑：Stay文苑
+发布：*皮特*
 
-发稿：Stay文苑
-
-视频参看：[1.26  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f1f52528a108147c636736)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
