@@ -2,10 +2,10 @@
 ---
 
 
-## NHS的工作人员在唐宁街外抗议疫苗强制接种政策
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1919518/)
+## 对NBA而言，他们只在乎金钱和生意
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1919533/)
 
-01/22/2022 NHS(英国国家医疗服务系统)的工作人员在唐宁街外将他们的制服脱下来扔向警察，以抗议疫苗强制接种政策
+01/23/2022 埃内斯·坎特接受福克斯采访称我们要同情维吾尔族人的遭遇，将这个独裁体制绳之以法。对NBA而言，他们只在乎金钱和生意。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
