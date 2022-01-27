@@ -2,37 +2,26 @@
 ---
 
 
-## 有声|美国国家卫生院针对中共病毒后遗症设立专案组
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1916270/)
+## 英国三分之二Omicron感染者再次感染
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1916344/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒 24 日报道，鉴于美国已有三分之一的人口感染过中共病毒，预期在痊愈后的一段时间内，都将会持续面对各种严重的后遗症，需要长期的健康护理。因此，日前，美国国家卫生院宣布“恢复”专案组，同时拨款 11.5 亿美元作为经费，找出感染者严重后遗症的背后原因。该专案组将由数千名患者，以及来自数十间科研机构、高等院校的上百位科学家，共同参与组成。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2222.png)[图片来源](https://www.aa.com.tr/en/europe/uk-detects-2-cases-of-covid-19-omicron-variant/2432365)
+据英国公布的一项大规模调查结果表示，最近在新冠病毒呈阳性反映的人群里，有过感染历的人占三分之二以上。
 
-据报道描述，中共病毒感染者痊愈后，往往会面临长期的健康问题，比如史丹佛医院的一名病人，在接种完中共病毒疫苗的半年内染上病毒，经治疗痊愈后，至今都仍然遭受着味觉失灵，听力不佳、视力模糊、呼吸急促，慢性头痛以及经常性腹痛等困扰。
+调查发现，现在流行的Omicron毒株有回避以前感染免疫力的能力。
 
-原文链接：[美国国家卫生院针对中共病毒后遗症设立专案组](https://gnews.org/zh-hans/1914359/)
+调查在1月5日-20日之间实行，在参加调查的10万英格兰人中有4000人呈阳性。
 
-音频处理/发稿：Daxia
+此外，在回答了是否有感染历的3600人中，65%是曾经感染过的，7.5%是曾经怀疑被感染过的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+这次调查结果显示的再感染率，比英国保健安全保障厅发表的全英再感染率的11%要高了很多。
 
-**更多资讯，更多关注**
+信息来源：[オミクロン患者、3分の2が再感染 英イングランド](https://news.yahoo.co.jp/articles/86e1d426149c6970758e34b6ba2ab46a2875cdd4)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

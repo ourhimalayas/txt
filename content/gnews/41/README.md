@@ -2,41 +2,36 @@
 ---
 
 
-## 有声|上海女子被地铁屏蔽门夹住身亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1915958/)
+## 有声|美国国家卫生院针对中共病毒后遗症设立专案组
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1916270/)
 
-配音：香草山农场 – 纳米
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒 24 日报道，鉴于美国已有三分之一的人口感染过中共病毒，预期在痊愈后的一段时间内，都将会持续面对各种严重的后遗症，需要长期的健康护理。因此，日前，美国国家卫生院宣布“恢复”专案组，同时拨款 11.5 亿美元作为经费，找出感染者严重后遗症的背后原因。该专案组将由数千名患者，以及来自数十间科研机构、高等院校的上百位科学家，共同参与组成。
 
+据报道描述，中共病毒感染者痊愈后，往往会面临长期的健康问题，比如史丹佛医院的一名病人，在接种完中共病毒疫苗的半年内染上病毒，经治疗痊愈后，至今都仍然遭受着味觉失灵，听力不佳、视力模糊、呼吸急促，慢性头痛以及经常性腹痛等困扰。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月22日下午4点30左右，上海地铁15号线祁安路站发生安全事故。一名老年女乘客在下车时，被屏蔽门夹住无法脱困，现场工作人员操作失误，在列车启动后才去按下紧急制动开关，导致该乘客严重受伤，不治身亡。
+原文链接：[美国国家卫生院针对中共病毒后遗症设立专案组](https://gnews.org/zh-hans/1914359/)
 
-上海地铁15号线为全自动线路，列车采用无人驾驶技术，于2021年1月23日开通试运营。
+音频处理/发稿：Daxia
 
-该事故直至25日才被中共官媒曝光，立即登上热搜，引发广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-墙内网民纷纷发表评论，有人抨击中共上海政府鼓吹的无人驾驶技术无视安全保障；有人指责上海地铁管理失职导致事故频发；甚至有人爆料称地铁15号线站台站务员是外包的无证上岗人员。
-
-据报，上海地铁2007年曾出现过类似事故，2007年7月15日下午3时34分，上海地铁一号线站台上，一名男乘客上车时未能挤进车厢，被夹在屏蔽门和已开动列车之间，坠落隧道当场死亡。
-
-文字版原文：[上海女子被地铁屏蔽门夹住身亡](https://gnews.org/zh-hans/1914145/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
