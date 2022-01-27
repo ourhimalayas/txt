@@ -2,10 +2,14 @@
 ---
 
 
-## 1/26/2022 文贵盖特：40国使馆拒绝中共搞病毒检测和隔离，20多个使馆说要撤且有去无回
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1915835/)
+## 甜蜜蜜运动（图片3、4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1915906/)
 
-秘密翻译组-北美组
+设计：波士顿五月花 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/01/甜蜜蜜3.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/甜蜜蜜4.png)
+* * *
+
+*编辑 /发布：吐纳*
 
  
 
