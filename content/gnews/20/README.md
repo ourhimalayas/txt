@@ -2,44 +2,32 @@
 ---
 
 
-## 有声|河北官员公布赶回河南人，不走往死里打
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920464/)
+## 未来的喜联储，绝对天下无敌（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920514/)
 
-配音：香草山巡管部– 文凯琳
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（上）.jpg)
+我们喜联储会推出纯金的金币。
 
+这个金币最大额可能是100万美元，从100 美金到100万美元。
 
+这个金币有绝对的加密技术。 这个加密到什么程度?是10000%的给你承担责任，没有任何人可以破解。怎么交给你呢?通过你的生物识别加技术识别。 你就可以换现金。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+我们有专门的第三方HBank，HBank专门提供兑现，你要什么货币都给你兑付。 你想提黄金，让你提到世界上最安全最保障最认可的黄金，这就是，这就是咱们这个未来的喜联储，绝对天下无敌的。
 
+发布：于white
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-河北官员声称：赶回河南人，不走往死里打。中共政府就是流氓政府，天天逼着人们做核酸，天天捅嗓子，捅鼻子，无休止地做下去。有的做了所谓的核酸也不让出门，更可恶的是把人往外省巿赶，还威胁不走的话就往死里打。
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-中共为清零而清零的政策就是中共的独栽集权的泯灭人性的残酷统治。中共各种洗脑下的韭菜们，曾经以为自己是接班人，可歌可泣，如今发现自已是根韭菜，可被割可被弃。再看河北官员今天发布的恐怖令，还什么接班人？连人都不是！现在更加清晰的是中共韭菜孤苦伶仃，只是可扔可埋的肥料而已。河北官员做出如此疯狂的举动，是因为2021年河北官员因疫情防控不力被问责，据所谓的官方报道，石家庄在2021年1月6日新增中共病毒本土确诊病例五十例，新增无症状感染者六十七例，然后全市开展全民核酸检测。
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-再看一年后的现在，马上就要开中共的政治冬奥会了，河北在地理位置上距离北京最近，这导致河北省的官员压力山大。河北的官员深知，中共自己防疫的所谓方法是：北京冬奥会非要开就开吧！至于开完后疫情将如何，反正有临工顶着，并目现在已经找到国际临时工了。
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-原文链接：[河北官员公布赶回河南人，不走往死里打](https://gnews.org/zh-hans/1908295/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
