@@ -2,32 +2,38 @@
 ---
 
 
-## 多数欧盟研究员称欧中关系将继续恶化
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1924023/)
+## 1/27银河快讯:日银关注物价上涨伴随工资增加；日本将把IPO定价过低作为违反反垄断法
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1924158/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月26日，据相关媒体消息显示，德国智库日前公布了对欧盟850名中共问题研究员调查访问的结果。其中，有七成的研究员预期，欧洲与中共的关系将在今年内将继续恶化，另有一成研究员则认为，双方关系甚至会严重恶化。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-31.jpg)
-调查指出，受访者大多不看好欧洲与中共在经贸关系方面的发展。受访者表示，先是“欧中投资协定”在2021年被欧洲议会否决，再加上中共近期因台湾问题对立陶宛实施的经济胁迫，这些都将造成欧洲与中共关系的恶化。另外，受访者也提到，此次北京冬奥会将对中共政府产生负面效应。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-168.png)[图片来源](https://finance.sina.com.cn/)
+**1.****日银关注物价的上涨是否会会伴随工资的增加**
 
-这些研究员们还谈到，当前欧洲在中共问题上应该关切的重点在于，提高欧盟的经济安全、强化气候保护的合作、批评中共的信息操控及虚假信息，以及提出中共人权问题的相关议题。
+[据NHK 1月26日报道，日本银行（BOJ）发布了在1月份举行的货币政策会议的 “主要意见”。会上将2022年的物价前景从去年10月的0.9%提高至1.1%。 一些政策委员会成员指出，银行需要仔细研究价格的上涨是否会伴随着工资的增加。由于企业将商品成本转嫁给消费者，价格压力可能会加剧，今年4月后的物价可能会瞬间上升到接近2%的水平。](https://www3.nhk.or.jp/news/html/20220126/k10013450281000.html?utm_int=news-business_contents_list-items_008)
 
-参考链接：[柏林智庫：歐洲對中關係將惡化 北京冬奧帶來負面影響](https://www.cna.com.tw/news/aopl/202201270023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+**2.****日本64.2%的公司原材料采购成本上升**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+[据帝国数据银行1月26日报道，64.2%的公司采购单价与去年同月相比有所上升，是2008金融海啸以来的最高水准。按行业划分，92.7%的钢铁、有色金属和矿产品批发（包括钢铁和石油批发）采购成本增加。 此外，”化学品制造”（83.3%）、”餐饮业”（83.1%）、”机械制造”（82.0%）、”电力机械制造”（81.4%）和 “建筑材料、家具、陶瓷和陶器制造”（80.3%）等行业中超过80%的公司采购成本上升。54.2%采购单价上涨的企业未能将价格上涨转嫁给销售。](https://news.yahoo.co.jp/articles/ba1f09ba3010d07a9fca89957702ef2bb35c4bbb)
 
-总编: 文特
-编辑：Irene木木
-校正/发稿：Fei797
+**3.****TikTok****向Twitter用户付费，匿名介绍指定视频**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[据读卖新闻1月26日报道，中共国公司字节跳动设在东京的日本子公司，一直在向Twitter用户付费，让其像普通用户发布一样介绍该公司的指定视频。 该公司还冒充公司委托的中介机构，目的可能是为了在出现问题时避免承担责任。其目的是让对视频感兴趣的人转而使用该应用程序，有人指出其有 “隐性营销”的嫌疑，即在视频中隐藏了事实上的广告。](https://news.yahoo.co.jp/articles/7b4d93e647e30b630bd5911be7373fba81dbfaa1)
+
+**4.****日本电动车产品订单强劲**
+
+[据NHK 1月26日报道，世界领先的电子元件制造商日本电产株式会社（Nidec）报告说，由于在全球去碳化趋势的背景下用于电动汽车（EV）的产品订单强劲，从去年4月到上个月的九个月的集团财务业绩，销售额增长了18.8%，达到14,072亿日元，营业利润增长了16.6%，达到1,346亿日元，都是这一时期的最高纪录。另一方面，考虑到半导体短缺和原材料价格飙升的影响，今年的预测保持不变。](https://www3.nhk.or.jp/news/html/20220126/k10013451991000.html)
+
+**5.****日本将把定价过低的IPO作为违反反垄断法的标志**
+
+[据共同社 1月26日报道，日本公平贸易委员会将警告经纪公司，在证券交易所首次公开的募股定价，如果因想帮助新上市的公司通过市场获得足够的资金而过低，可能违反反垄断法。在日本，上市首日的股价往往大大超过IPO价格，套利行为比在欧洲和美国看到的要大。证券公司在确定IPO价格时往往比较保守，因为若在首次亮相时股价跌破IPO价格，新上市的公司可能会失去市场的信任，遇到融资困难。](https://english.kyodonews.net/news/2022/01/d7dbfe790d37-japan-to-flag-underpriced-ipos-as-antitrust-law-violation.html)
+
+**6.****日本门诊在奥密克戎的迅速蔓延中捉襟见肘**
+
+[据共同社 1月26日报道，日本周二报告了创纪录的62,610名新感染者，首次超过60,000人。厚生省表示，在医疗资源紧张的地区，出现中共病毒（新冠病毒covid-19）严重症状风险较低的年轻人可以在家里休养，而不是去医院。此举旨在缓解医疗机构的压力，并避免有严重疾病风险的老年人得不到治疗。去年年底左右，医院每天接待的门诊病人不到10人。而到了上周，这个数字已经翻了五倍多。](https://english.kyodonews.net/news/2022/01/3d5a2dbfa75f-outpatient-clinics-overstretched-amid-rapid-spread-of-omicron.html)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Tagomi
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

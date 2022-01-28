@@ -2,76 +2,64 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共准备投放致死率极高的新病毒NeoCov？
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1924200/)
+## 文·贵天成——文贵先生谈“北京冬奥会”（十八）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1924304/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**整理：BENJ1
+编辑：Kelly**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-298-1.png)图片来源：雅典娜设计组
 
-中共不灭，投毒不止！
 
-就在昨天，CCP借用[俄罗斯卫星通讯社的名义威胁全世界](https://sputniknews.cn/20220128/neocov-1038567811.html)：武汉科学家警告新型冠状病毒株NeoCov具有高传染性和致死率，三分之一的患者可能死亡！
-![](https://assets.gnews.org/wp-content/uploads/2022/01/opoyi_GpNoa7_Rm.jpg)
-今年1月25日，武汉大学生命科学学院病毒学国家重点实验室、疫苗研究所和现代病毒学研究中心、细胞稳态湖北省重点实验室、西藏生态与保护研究中心生态学系Huan Yan,Qing Xiong,Chengbao Ma,Chen Liu,Junyu Si、Peng Liu、Mengxue Gu、Chunli Wang、Lulu Shi、Fei Tong、Meiling Huang、Chufeng Zhao、Jing Li、Chao Shen、Yu Chen、Huabin Zhao and Ke Lan，中国科学院大学，中国科学院生物物理研究所大分子国家重点实验室、感染与免疫重点实验室Xiangxi Wang、Lei Cao等人发表论文《[Close relatives of MERS-CoV in bats use ACE2 as their functional receptors](https://www.biorxiv.org/content/10.1101/2022.01.24.477490v1.article-info)》，称首先在南非的蝙蝠种群中发现的新型冠状病毒株NeoCov可以传播给其他指定的动物，尽管目前还不能人传人，但只需要一个突变就可以将其变成一种人畜共患病原体，能够渗入人体细胞。新型冠状病毒株NeoCov具有高传染性和致死率，三分之一的患者可能死亡。
+郭文贵先生**2021**年**12**月**29**日直播
 
-在蝙蝠中发现的新型冠状病毒株NeoCoV与冠状病毒MERS-CoV最接近，NeoCoV毒株及其近亲PDF-2180-CoV，可以有效地利用某些种类的蝙蝠血管紧张素转换酶2（ACE2）受体，原本不太可能通过人类的ACE2受体进入细胞。但当受体结合基序 (RBM) 发生T510F突变后，NeoCoV可有效感染人类的ACE2表达细胞。
+冬奥会，举一国之力让“习太阳”玩一个游戏，真是皇帝高兴三分钟，天下死亡黑暗三百年！这跟当年路易十三、路易十四、路易十六时期和法国大革命前夕有啥不一样呢？！和斯大林当时有啥不一样呢？！和萨达姆、卡扎菲、乌干达的阿明、杀华人的苏哈托有啥不一样呢？！
 
-因此，冠状病毒NeoCoV毒株可能会发生变异，然后从动物传染给人类。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022.01.24.477490v1.jpg)
-该菌株比其他变种更危险，因为它与ACE2受体的结合能力与以前的菌株不同。因此，人类产生的抗体和蛋白质分子无法抵抗由NeoCoV引起的感染引起的呼吸道疾病和并发症。
+你（中共）给普京1000多亿，你给法国、德国订了100多架空客飞机，你就搞个狗屁的一个月的奥运会，冬奥会它产啥？就像文化大革命一样，你搞那么多工程，最后留下了啥？悲哀啊！
 
-俄罗斯卫星通讯社在《[加马列亚中心认为很难评估NeoCov病毒的危险性但这一发现很有趣](https://sputniknews.cn/20220128/neocov-1038567811.html)》一文中称，俄罗斯国家病毒学和生物技术研究中心的俄罗斯研究人员了解武汉科学家对NeoCoV冠状病毒进行的研究。
+郭文贵先生**2022**年**1**月**1**日直播
 
-1月25日郭文贵先生宣布美国政府授权撤离驻华大使馆后，1月26日中共国外交部发言人例行记者会上，赵立坚称“中国目前无疑是世界上最安全的国家。从最安全的地方撤出，只会极大增加美方人员感染的风险”。
+奥林匹克，奥林匹克神和这个缪斯之神。Music就叫缪斯，缪斯就是Music女神，还有奥林匹克神是一家人。所以音乐、体育、时尚、建筑都是一家，都是歌颂人的本能、完美、敬崇上天的。但是你发现奥林匹克今年北京的冬奥会，在干嘛呢？已经被“习太阳”、共产党搞成了什么了？成了跟全世界的“绑票”行为。
 
-仅仅过了一天，中国生物技术网、俄罗斯卫星通讯社及印度媒体就大量转发武汉病毒学家发现比Omicron传染性和致死率高得多的NeoCoV冠状病毒，而且还宣称只需一个突变就可以人传人，无疑是对美国撤出驻华大使馆的威胁，甚至进一步报复。
+郭文贵先生**2022**年**1**月**5**日直播
 
-中共向全世界发动生化武器战争，CCP之前担心国际社会对病毒溯源，进行了各种形式的甩锅。
+谈到冬奥会我也很简单的告诉大家一个答案，大家知道希特勒还有前苏联都（举办了）奥运会，三年、九年；七年、十一年就全灭了。
 
-去年8月，中共通过央视新闻《[溯源美国：携病毒祸害全球 美军在武汉军运会期间究竟做了什么](http://m.news.cctv.com/2021/08/01/ARTIiQtxUqDco611PH0PP9PP210801.shtml)？》，宣称“可能是美国人在2019年10月将一种生物武器带到武汉，但这种武器发生变异，不止感染了中国人，对所有人都造成了威胁。”。
+备注：（1936年2月在德国加尔米施-帕滕基兴举行了第四届冬奥会，1936年8月在德国柏林举办了第十一届夏季奥运会。1980年7月在苏联莫斯科举办了第二十二届夏季奥运会。）
 
-去年12月，人民网发布[《美国对全球疫情扩散负有不可推卸的责任》研究报告（全文）](http://world.people.com.cn/n1/2021/1224/c1002-32316647.html)，称美国对全球疫情扩散负有不可推卸的责任。
+中共的冬奥会，一定要想到当年2008的北京奥运会。2000年，中共获得了WTO的入场券，还有一个就是（2001年申请成功）的（2008）夏季奥运会。然后中国共产党在世界上，一下子躲过了八九六四必灭的命运，经济萎靡也是在那种情况下它（振作）起来的。
 
-1月28日，西陆军事网发文《[美国专家人工合成新冠病毒，铁证如山！](http://www.xilu.com/20220128/1000010001197721_2.html)》，称美国北卡罗来纳大学拉尔夫·巴瑞克（Ralph Baric）教授2005年合成了类似于SARS的冠状病毒，2006年1月向美国专利局申请“病毒发明专利”，2009年11月申请获得批准，美帝发动整体生物战争的根本目的，是为了通过冠苗联盟创造出全新一代转基因人种——新冠宝宝，再通过这些“特别听话”且“生殖力低下”的“新物种”去收割全世界。美国这次参加冬奥会，可能是想要美国陆军的一名步兵和一名生物医学装备专家作为美国雪车队队员，在参加北京冬奥会雪车队的比赛沿途中以非常隐秘的方式释放一种延时释放或者激活的病毒。
+现在（中共）又搞了个冬奥会，牠现在也是到了一个病毒疫苗灾难、经济大崩溃、要打台湾等这种情况，这绝对不是那么简单的，历史可以告诉我们一个很好的答案。但是人类里有几个去学历史的呢？人类都知道上天之间有轮回，又有几个真正相信上天的？很少很少。那么现在我们看到这个的时候，这绝对不是一个简单的历史的重复，没那么简单！
 
-中共发动的这场生化武器战争已经导致全世界3.67亿人感染，564万人死亡，感染7343万美国人，杀死88万人。
+大家要看到希特勒、斯大林、列宁、萨达姆、卡扎菲、乌干达的阿明，包括苏哈托、包括日本天皇，他们都有一个共同的特点，从开始自己是一个完全的偶然，经过一定程度的一些人的吹捧，把偶然变成了神迹，把神迹变成了个人崇拜。从过去的给所有人一个未来，变成了自己要控制一切未来。然后要干掉一切过去相信的上帝，他变成了上帝。造神！把许给全世界人所有最美好的故事，变成了他自己唯一的美好故事。最后他被消灭，因为他是肉体之身，他也是黄粱一梦，没有什么了不得的。只是他死之前，他给全世界带来了噩梦，噩梦醒来，但很多人陪葬。
 
-面对即将开始的全世界对冠状病毒溯源和正义力量的围剿，以CCP一贯的反人类罪和种族灭绝罪作派，习太阳扛200斤麦子10里山路都不知道换肩的二愣子作风，无论做出何等疯狂的举动，都完全可能！
-![](https://assets.gnews.org/wp-content/uploads/2021/12/shi-li-shan-lu-bu-huan-jian.jpg)
-1955年，毛泽东就曾跟当时的苏联领导人赫鲁晓夫说，第三次世界大战应该早打，大打，打核战争，在中国打，死掉四亿人，还剩两亿人，用不了多少年，中国就又可以恢复到六亿人口了。
+资料来源：郭先生GTV和盖特直播视频
 
-在《[迟浩田 – 战争正在向我们走来，它是中华世纪的产婆](https://www.docdroid.net/I322XQm/highlight-pdf)》一文中，时任中共第十五届中央政治局委员、中共中央军委副主席迟浩田就说，只有用非常手段把美国“清场”，才能把中国人民带领过去，这是唯一的一条道路。用什么非常手段才能把美国“清场”呢？只有非破坏性的大规模杀人武器才能把美国完好地保留下来，这些年来我们抢时间掌握了这类杀手锏，我们已经有能力达到突然把美国“清场”的目的。
+往期回顾：
+[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
+[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
+[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
+[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
+[文·贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1913831/)
+[文·贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1916177/)
+[文·贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1914628/)
+[文·贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1918018/)
+[文·贵天成——文贵先生谈“北京冬奥会”（九）](https://gnews.org/zh-hans/1918752/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十）](https://gnews.org/zh-hans/1917988/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十一）](https://gnews.org/zh-hans/1918147/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十二）](https://gnews.org/zh-hans/1921128/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十三）](https://gnews.org/zh-hans/1922599/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十四）](https://gnews.org/zh-hans/1921604/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十五）](https://gnews.org/zh-hans/1921478/)
 
-参考资料：
+**发布：星谕**
 
-[Close relatives of MERS-CoV in bats use ACE2 as their functional receptors](https://www.biorxiv.org/content/10.1101/2022.01.24.477490v1.full.pdf)
-
-[Wuhan scientists warn of a new coronavirus strain NeoCov with high infectivity and death rate, 1 in 3 patients can die: Report](https://www.opindia.com/2022/01/wuhan-scientists-warn-coronavirus-strain-neocov-1-in-3-patients-can-die-report/)
-
-[Scientists warn of new COVID strain NeoCoV with potentiality of killing 1 in 3 patients: Report](https://freepresskashmir.news/2022/01/28/scientists-warn-of-new-covid-strain-neocov-with-potentiality-of-killing-1-in-3-patients-report/)
-
-[中国科学家警告冠状病毒新冠状病毒潜在的“高死亡率、高传播率”](https://sputniknews.com/20220128/delighted-to-see-novak-back-serbian-star-to-end-tennis-exile-next-month-at-dubai-tournament-1092573817.html)
-
-[中国生物技术网：中国科学家发现一种新的冠状病毒，具有潜在的生物安全威胁](https://c.m.163.com/news/a/GUPLIG3F0512TON6.html?from=subscribe)
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-[人民网：《美国对全球疫情扩散负有不可推卸的责任》研究报告（全文）](http://world.people.com.cn/n1/2021/1224/c1002-32316647.html)
-
-[美国专家人工合成新冠病毒，铁证如山！](http://www.xilu.com/20220128/1000010001197721.html)
-
-[铁证如山，中科院发布研究报告，美国出现新冠病毒比中国更早](https://www.163.com/v/video/VYJQSSURV.html)
-
-[加马列亚中心认为很难评估NeoCov病毒的危险性但这一发现很有趣](https://sputniknews.cn/20220128/neocov-1038567811.html)
-
-[2022年1月26日外交部发言人赵立坚主持例行记者会](https://www.mfa.gov.cn/web/wjdt_674879/fyrbt_674889/202201/t20220126_10634275.shtml)
-
-[毛泽东准备死掉三亿中国人跟美国打核战争](https://www.epochtimes.com/gb/17/5/12/n9133031.htm)
-
-[迟浩田 – 战争正在向我们走来，它是中华世纪的产婆](https://www.docdroid.net/I322XQm/highlight-pdf#page=6)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

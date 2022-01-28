@@ -2,20 +2,36 @@
 ---
 
 
-## 针下亡魂｜台湾 56 岁警局主秘接种疫苗一周后死亡
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1922436/)
+## 台湾不派官员出席冬奥会，未确定是否抵制开闭幕式
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922432/)
 
-**撰文/ 疫情关注组｜发布日期/ 28/01/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-104.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-台湾花莲县警察局主任秘书，今年 56 岁的方世君在接种完第三剂 COVID-19 疫苗后一周因突发败血症死亡。
+整理/编辑：小红帽
 
-方世君于本月 18 日接种 BNT 疫苗后感到身体不适，26 日上午因突然昏厥被紧急送院救治，经诊断怀疑是发烧引发败血症，当即转入加护病房插管急救。可惜，回天乏术，今日（28日）上午11时宣告不治。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)图片来源：雅典娜设计组
 
-据同事描述，方世君一向有晨运习惯，身体健康，未听闻有任何健康问题，对他的突然离世感到不解和遗憾。目前，花莲县卫生当局已介入调查，以厘清死因是否因疫苗引起。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/台灣-56-歲警局主秘接種疫苗一週後死亡.jpg)
-来源｜[联合新闻网](https://udn.com/news/story/122190/6067400)
+
+根据《自由亚洲电台》1月27日报道，中（共）国国台办1月26日以“中（共）国台北”称呼台湾的冬奥代表团。台湾有舆论担心中（共）国借机矮化台湾，因此呼吁选手也不要参加北京冬奥开闭幕式。
+
+不过，台湾陆委会于1月27日在例行记者会回应表示，将依照前例，不派官员出席，但是关于抵制开、闭幕式，将在整体审慎评估后由体育署对外说明。
+
+葡萄牙日前也表示，将不派政治代表出席北京冬奥开闭幕式。
+
+外界揣测，在台湾决定不派官员出席冬奥会后，是否会进一步抵制北京冬奥开闭幕式？
+
+台湾陆委会发言人邱垂正在例行记者会回应表示，经政府衡盱整体情势、国家利益以及选手权益，本届北京冬奥台方运动员将正常出赛。但考量参赛人数有限，及过往台湾官员多不出席的前例，将不派官方代表出席，由中华奥会率团赴中（共）国。
+
+新闻链接：[台湾不派官员出席北京冬奥 是否抵制开闭幕式未松](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm2-01272022075343.html)
+
+*发布：   tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
