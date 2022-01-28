@@ -2,31 +2,38 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月27日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1921059/)
+## 文·贵天成 – “爆料革命”盘古开天地（十七）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921386/)
 
-作者：香草山翻译部
+整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+**相关链接：**
+[文·贵天成 – “爆料革命”盘古开天地（一）](https://gnews.org/zh-hans/1906251/)
+[文·贵天成 – “爆料革命”盘古开天地（二）](https://gnews.org/zh-hans/1907326/)
+[文·贵天成 – “爆料革命”盘古开天地（三）](https://gnews.org/zh-hans/1907390/)
+[文·贵天成 – “爆料革命”盘古开天地（四）](https://gnews.org/zh-hans/1907417/)
+[文·贵天成 – “爆料革命”盘古开天地（五）](https://gnews.org/zh-hans/1912188/)
+[文·贵天成 – “爆料革命”盘古开天地（六）](https://gnews.org/zh-hans/1912246/)
+[文·贵天成 – “爆料革命”盘古开天地（七）](https://gnews.org/zh-hans/1912312/)
+[文·贵天成 – “爆料革命”盘古开天地（八）](https://gnews.org/zh-hans/1915989/)
+[文·贵天成 – “爆料革命”盘古开天地（九）](https://gnews.org/zh-hans/1916104/)
+[文·贵天成 – “爆料革命”盘古开天地（十）](https://gnews.org/zh-hans/1916784/)
+[文·贵天成 – “爆料革命”盘古开天地（十一）](https://gnews.org/zh-hans/1917252/)
+[文·贵天成 – “爆料革命”盘古开天地（十二）](https://gnews.org/zh-hans/1917402/)
+[文·贵天成 – “爆料革命”盘古开天地（十三）](https://gnews.org/zh-hans/1917509/)
+[文·贵天成 – “爆料革命”盘古开天地（十四）](https://gnews.org/zh-hans/1917571/)
+[文·贵天成 – “爆料革命”盘古开天地（十五）](https://gnews.org/zh-hans/1921275/)
+[文·贵天成 – “爆料革命”盘古开天地（十六）](https://gnews.org/zh-hans/1921340/)
+[文·贵天成 – “爆料革命”盘古开天地（十七）](https://gnews.org/zh-hans/1921386/)
 
+*发布：玉米地守望者*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-5.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.27  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f3470f28a108147c64237c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

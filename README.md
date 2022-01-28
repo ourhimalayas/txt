@@ -15,131 +15,131 @@
 
 ---
 
-### [为寻求安全选择离开东京的日本民众激增](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国新任驻澳大使在讲话中抛出修复澳中关系的橄榄枝](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乔•罗根和埃隆•马斯克声援加拿大卡车司机车队](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文•贵天成——文贵先生谈“北京冬奥会”（十四）](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [不断不交 | 多国拟授权撤离赢取身价，机构欲查封资产釜底抽薪](/content/gnews/5/README.md)
- ` YALUN 亚伦`
-
-### [共产党制造冰毒甩锅给全世界](/content/gnews/6/README.md)
+### [新中国联邦第一件事就是拯救狗](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥对澳门的理解不要小看了澳门](/content/gnews/7/README.md)
+### [秘翻在线：日本版制裁侵犯人权行为的《马格尼茨基法》筹备开始](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [冬奥是共产党在全世界面前拙劣的表演](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [无论哪国人共产党都给肛门测试](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [灭共易，灭毒难](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [盘古龙头一定会恢复](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [任何强制别人打疫苗的政治家都是谋杀犯](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [去北京的运动员不能出门避开盘古](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大宪法撰写人就疫苗强制令起诉联邦政府](/content/gnews/13/README.md)
- ` 香草山醫療部`
-
-### [德国的疫苗情况](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [没有我们没有授权撤离](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [HPAY会让喜联储价值更大](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [疫苗是人类巨大的灾难，对新中国联邦是上天的恩赐](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [文·贵天成——文贵先生谈“北京冬奥会”（十五）](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [自信和大头症的区别](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [1/27/2022 文贵直播：美国大使馆的授权撤离既非绝交，又非断交，这是“不断不交”来弄死中共](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
-
-### [币圈新闻动态：喜币（HCN）价格目前在44.484 HDO](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [辉瑞董事会成员建议停止强制疫苗接种](/content/gnews/22/README.md)
- ` 香草山醫療部`
-
-### [春节前夕，第一个省宣布松绑楼市？](/content/gnews/23/README.md)
- ` 澳喜农场`
-
-### [俄乌在巴黎达成停战协议 两周后柏林将再度会谈](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [雅典娜时报-第187期](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [GTV新闻访谈简报|2022年1月27日晚](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
-
-### [拜登政府撤销有关疫苗接种及临时检测强制要求](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [七哥开心的事冬奥会能开成功](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/30/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/31/README.md)
- ` 秘密翻译组-原创组`
-
-### [习近平政府发起反洗钱运动，预示党内政治内斗加剧](/content/gnews/32/README.md)
+### [美国政府将中国联通列入违规名单，吊销其在美经营权](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
+### [美众议院为抗衡中国推出《2022年美国竞争法》](/content/gnews/5/README.md)
+ ` 走进澳洲`
 
-### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/34/README.md)
- ` MOS香港部`
+### [澳大利亚新州和维州呼吁重新定义“完全接种”](/content/gnews/6/README.md)
+ ` 走进澳洲`
 
-### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中日财经爆| 中国联通继中国移动和中国电信之后也将被踢出美国](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/36/README.md)
+### [英国取消在室内公共设施配戴口罩的义务](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为寻求安全选择离开东京的日本民众激增](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [腾讯鼓励恶性加班：把慢性杀人当荣誉](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中国新任驻澳大使在讲话中抛出修复澳中关系的橄榄枝](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报](/content/gnews/37/README.md)
+### [布林肯批评中共为中美关系带来更大侵略性](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [币安被爆洗钱风险高](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [德国制药、科技企业遭中共黑客锁定](/content/gnews/14/README.md)
+ ` GTV新闻访谈`
+
+### [乔•罗根和埃隆•马斯克声援加拿大卡车司机车队](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文•贵天成——文贵先生谈“北京冬奥会”（十四）](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [不断不交 | 多国拟授权撤离赢取身价，机构欲查封资产釜底抽薪](/content/gnews/17/README.md)
+ ` YALUN 亚伦`
+
+### [共产党制造冰毒甩锅给全世界](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥对澳门的理解不要小看了澳门](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [无论哪国人共产党都给肛门测试](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [灭共易，灭毒难](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [盘古龙头一定会恢复](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
+
+### [任何强制别人打疫苗的政治家都是谋杀犯](/content/gnews/23/README.md)
+ ` 雅典娜GNotes`
+
+### [去北京的运动员不能出门避开盘古](/content/gnews/24/README.md)
+ ` 雅典娜GNotes`
+
+### [HPAY会让喜联储价值更大](/content/gnews/25/README.md)
+ ` 雅典娜GNotes`
+
+### [文·贵天成——文贵先生谈“北京冬奥会”（十五）](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文·贵天成 – “爆料革命”盘古开天地（十七）](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1/27/2022 文贵直播：美国大使馆的授权撤离既非绝交，又非断交，这是“不断不交”来弄死中共](/content/gnews/28/README.md)
+ ` 秘密翻译组-北美组`
+
+### [币圈新闻动态：喜币（HCN）价格目前在44.484 HDO](/content/gnews/29/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [春节前夕，第一个省宣布松绑楼市？](/content/gnews/30/README.md)
+ ` 澳喜农场`
+
+### [俄乌在巴黎达成停战协议 两周后柏林将再度会谈](/content/gnews/31/README.md)
+ ` 日本东京方舟农场`
+
+### [GTV新闻访谈简报|2022年1月27日晚](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [七哥开心的事冬奥会能开成功](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/34/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/35/README.md)
+ ` 秘密翻译组-原创组`
+
+### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/36/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/37/README.md)
+ ` MOS香港部`
+
+### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/39/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [五月花简报](/content/gnews/40/README.md)
  ` mayflowertranslate`
 
-### [美国撤离驻华使馆，高情商与低情商](/content/gnews/38/README.md)
+### [美国撤离驻华使馆，高情商与低情商](/content/gnews/41/README.md)
  ` zuzu`
 
-### [五月花简报](/content/gnews/39/README.md)
+### [五月花简报](/content/gnews/42/README.md)
  ` mayflowertranslate`
-
-### [中共防疫政策朝令夕改，人民因此受苦](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [美国纽约州最高法院法官裁决，驳回纽约州强制口罩令](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](/content/gnews/42/README.md)
- ` GTV新闻访谈`
 
 ### [2022年1月27日大直播速记精萃](/content/gnews/43/README.md)
  ` 雅典娜GNotes`

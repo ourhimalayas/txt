@@ -2,31 +2,39 @@
 ---
 
 
-## 美国纽约州最高法院法官裁决，驳回纽约州强制口罩令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1919677/)
+## 美国撤离驻华使馆，高情商与低情商
+` zuzu` [轉載自GNews](https://gnews.org/zh-hans/1920257/)
 
-撰稿：台湾宝岛农场—新中国联邦静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月24日，一位纽约州最高法院法官驳回了纽约州强制口罩令，裁定纽约州长和卫生部，无权在未经州议会批准的情况下颁布此类授权。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-78.jpg)
-在周一发布的一份意见中，拿索县最高法院法官托马斯-拉德梅克认为，由于纽约在宣布强制口罩令时，已不再处于紧急状态，州长和相关权责人士无权颁布强制口罩令，并补充说到强制口罩令现在无法执行 。 拿索县行政长官布鲁斯. 布莱克曼，在推特上对纽约州最高法院法官的司法裁决回应，他写道「这对学生和家长来说是一个重大胜利」。 纽约州长的强制口罩令是违法的，未经州立法机关批准，州长和州教育部无权执行此任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/高情商低情商.jpg)圖片源自網絡
+**作者：英国伦敦喜庄园 文名**
 
-参考链接：[美国纽约州最高法院法官裁决，驳回纽约州强制口罩令](https://edition.cnn.com/2022/01/24/us/new-york-state-mask-mandate-ruling/index.html?utm_content=2022-01-25T09%3A51%3A53&amp;utm_term=link&amp;utm_medium=social&amp;utm_source=twCNN)
+政治家都是高情商中的高情商，说话都是无懈可击，滴水不漏。尤其是外交辞令，冠冕堂皇，每个字都有其深意，听起来丈二和尚摸不着头脑，懂的人才明白真正是啥意思。美国绝对不会直接官宣我们要跟中共断交啦！准备干仗啦！如果真的这样说这世界早就已经毁灭了几千万遍了。跟着七哥学智慧，要读懂外交辞令，第三道大门已经开启！
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+政治人物讲话都是绵里藏针，批评也是打哑谜，猜半天才想出来对方说啥，抓不住把柄。格局小啦，路走窄啦，浓浓的老领导画风。这可能就是人家说的高情商低情商吧？
 
-总编：天灭中共、zhong
-编辑：Kathy文艺
-校对/发稿：Hetangyuese
+例如：总统的愤怒翻译员President’s Anger Translator …
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+美国授权撤离驻华大使馆也是如此操作，官宣说为了免受中共因冬奥会而执行的严格防疫措施而撤出。这都是外交辞令，圆滑，让人抓不住把柄，中共想发作也没有理由搞大。另外民间不会因此产生恐慌。想想看如果美国直接宣布要干仗民间会发生啥？经济股市受冲击，银行挤兑，物资囤积，难民潮，次生灾害。。。不仅中美，全世界都会被波及。没有哪个政治家会如此幼稚地操作。所以老百姓继续被蒙在鼓里，以前的时代是导弹飞过头顶百姓才知道打仗了。现在第三次世界大战是信息战超限战，是仗打完了老百姓才问：打仗了？？？
+只有消息灵通、脑袋聪明又幸运的人，比如我们爆料革命的战友们，在郭先生无数次精准的提前爆料之下才知道世界的真实全貌。君子不立危墙之下，能跑就跑，该撤离就撤离，该回乡下就回乡下，该屯粮就屯粮。
+
+一切已经开始，2022让我们迎接一个没有共产党的新中国吧！
+
+【文章仅代表作者观点】
+
+[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
+[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
+[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
+[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
+[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
+[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
+[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
+[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
+[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
+[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
+[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
+[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
 
  
 
