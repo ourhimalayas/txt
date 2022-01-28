@@ -2,21 +2,28 @@
 ---
 
 
-## 有声|新中国联邦致美国政府感谢信 支持否认中共合法性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924676/)
+## 丹麦即将宣布取消所有中共病毒疫情限制措施
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1924735/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月25日，新中国聯邦、爆料革命发起人郭文贵先生代表新中国联邦，正式签署致美国政府感谢信，对拜登总统和布林肯国务卿做出关闭美国驻北京大使馆的决定表示感谢。 在新中国联邦官方文件中，强调中国共产党是跨国犯罪组织。 中共犯罪分子从武汉实验室释放致命中共病毒，是对无辜的中国人民和全人类的种族灭绝行为。 新中国联邦自2020年6月4日，正式成立以来，立於中国人民的替代管理机构地位。 并且，持续倡导和推动美国关闭驻北京大使馆。
+作者：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据丹麦“日德兰邮报”1月25日发布的消息称，该报引用多方消息来源，预计丹麦总理佛瑞德克里森将于26宣布，在本月底之前取消所有中共病毒限制措施。
 
-最后，文件中赞赏和支持美国通过关闭大使馆的行动，来强调中共政权的危险。 新中国联邦支持进一步否认中共是中国和中国人民的合法政府。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1jpg.jpg)
 
-文字版原文：[新中国联邦致美国政府感谢信 支持否认中共合法性](https://gnews.org/zh-hans/1916931/)
+据悉，丹麦在长达一个多月的封锁后，于2周前放宽限制，允许电影院和音乐表演场所重新开放，但部分限制仍在，包括限制餐厅的营业时间，和强制佩戴口罩。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+日德兰邮报表示，该项转变是基于专家小组的建议，不再将中共病毒归类为对社会构成严重威胁的疾病，这项认定是当局事实目前限制措施的依据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+参考链接：
+
+- [丹麥媒體：總理將宣布取消所有COVID-19限制措施](https://cn.rti.org.tw/news/view/id/2123120)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -24,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,14 @@
 ---
 
 
-## 经典回顾：11/19/2020郭先生解密Michael Waller，French Wallop案的判决马上出炉，这会将美国司法部案件重新引起世界的再次关注
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1924538/)
+## 五月花简报
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1924565/)
 
-秘密翻译组-北美组
+作者：波士顿五月花—冲天一怒
+![](https://assets.gnews.org/wp-content/uploads/2022/01/80B4D2F7-0629-4DB2-B65B-7AE8587E3A65.jpeg)
+*发布：思澈*
+
+
 
  
 

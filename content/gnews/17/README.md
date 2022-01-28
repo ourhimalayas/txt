@@ -2,23 +2,31 @@
 ---
 
 
-## 对待彭帅中共的高官有多不要脸
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1924755/)
+## 有声|英国从乌克兰撤出部分大使馆人员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924763/)
 
-张高丽收到了假画和假唐三彩，很多都给了彭帅。冬奥会一过，彭帅就得消失。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月24日，英国媒体报道，由于担忧俄罗斯将入侵乌克兰，英国官员表示在基辅工作的大使馆人员约有一半将返回英国。
 
-**【郭先生直播摘要】**** 2022.1.27 ****对待彭帅，中共的高官有多不要****脸**** **
+俄罗斯已经在俄乌边境驻扎了数万名士兵。北约首脑警告说，欧洲存在发生新冲突的风险。北约成员国，包括丹麦、西班牙、保加利亚和荷兰，正在向东欧派遣更多的战斗机和军舰，以加强该地区的防御。
 
-**郭先生：**
+郭文贵最早爆料中俄“双头鹰计划”，即俄罗斯进攻乌克兰，配合中共对台湾的行动。乌克兰地区目前的紧张局势，完全印证了郭先生的爆料。1月24日，郭先生在直播中透露，普京会在边境虚晃一枪，直取基辅，让整个乌克兰跪下。
 
-张高丽搞彭帅， 彭帅最贵的礼物是张高丽买了一个奥迪2.6。张高丽真够不要脸，高丽收到了假画和假唐三彩，很多都给了彭帅。彭帅最后一检查，所有的唐三彩全是假的，没有一张画是真的。这个王八蛋，一个国家副总理，宇宙无限大，地球是一粒沙，我想让你干啥就干啥。
+文字版原文：[英国从乌克兰撤出部分大使馆人员](https://gnews.org/zh-hans/1914356/)
 
-昨天朋友和我说这个事情，我怀疑是真的还是假的，那个朋友说他到彭帅家全都拿走的，彭帅现在是被监管状态，失去了自由。冬奥会一过，彭帅就得消失，肯定消失，这是党的命令。她已经给党和国家带来了重大不确定因素。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-这哥们昨天告诉我的，他说你知道有多夸张七哥，我们几个人收了半天拉走两三车东西，没有一张画是真的，给彭帅的画，没有一个唐三彩古董是真的。他说你知道给彭帅的金链子，平时还真不要，她不要金的，但给了一些画和艺术品都是假的，你说他有多不要脸。
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-视频剪辑，字幕：GC  | 听写：雨山溪桥客 | 翻譯：精糧 | 编辑&发布：断播
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

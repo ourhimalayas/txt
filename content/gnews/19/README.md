@@ -2,24 +2,24 @@
 ---
 
 
-## 有声|滇池寻梦
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924747/)
+## 有声|甜蜜灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924761/)
 
 配音：香草山巡管部 – 格格
 ![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-山衔落日近黄昏
-驳船晚归披霞绮
-人世浮名空流转
-多少王炸沉江底
+春节将至先迎喜
+甜蜜主旋律
+推波助澜七芒星
+灭共自有雷霆势
+乘风破浪著新史
+亿万勇士心
+热血沸腾泪盈眶
+无惧来路多泥泞
+雄鹰展翅冲云霄
+豪气万千澎湃力
+勇屹喜马拉雅峰
 
-尘缘梦尽觅隐居
-滇池无量悦鸟栖
-浪花朵朵濯我足
-波涛滚滚陶知己
-
-
-
-文字版原文：[滇池寻梦](https://gnews.org/zh-hans/1919131/)
+文字版原文：[甜蜜灭共](https://gnews.org/zh-hans/1911981/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
