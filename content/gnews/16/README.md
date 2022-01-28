@@ -2,43 +2,31 @@
 ---
 
 
-## 拜登政府拟将加密货币规则作为国家安全问题来处理
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921905/)
+## 如何保护配额价格的喜币（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922237/)
 
-**整理/编辑：MSGZ**
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/如何保护配额价格的喜币（一）-.jpg)
+这些事情我们都会做到的啊， 一定会做到的。
+我们不想用过激的手段。
+就像当时孟建柱在他下台前跟我联系一下，孟建柱也跟我和好一样
+他讲我不希望有过激的手段。
+我不希望说让你尸横街头啊，我也不想对你实施什么啊，我最后的箱子底下的
+几个武器，我说你不用跟我这说话。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/拜登-1.png)
+今天我讲了很多独裁的事情。
+伊拉克的萨达姆当年，他在死之前最重要的事情干了什么。他的亲另外一个新的这个就是左派的人啊，跟着他的人就是说左右手，左手就管钱的人跑到了英国, 暗杀，两次暗杀成功啊。最后英国给他断裂，他没有想到，那就决定他的死亡。
+当年的蒋经国在美国被干是吧？这直接决定，这个台湾的一切命运。 那个江南案件。 你来干这个江南在这个纽约来暗杀他。
 
-图片来源：WFLA
+2021年11月28日大直播
 
+发布： 星谕
 
-白宫希望给目前监管机构对比特币和加密货币采用的 “杂乱无章的方法 “带来秩序。
-
-据多方报道，白宫希望制定一套有凝聚力的政策来监管比特币和加密货币，因为目前立法和执法都分散在各个部门和机构。
-
-据彭博社首先报道，拜登政府将在未来几周发布一项行政命令，责成联邦机构评估比特币和加密货币带来的风险和机遇。
-
-《巴伦周刊》周四报道，该命令将在国家安全工作的框架下进行，因为政府试图分析加密货币并采用一个有凝聚力的监管框架，该框架将涵盖比特币、加密货币、稳定币和NFTs。
-
-一位熟悉白宫计划的人士告诉《巴伦周刊》：”这旨在全面审视数字资产，并制定一套政策，使政府在这一领域的工作具有一致性。”因为数字资产不会停留在一个国家，所以有必要与其他国家进行同步合作。”
-
-据报道，监管工作将涉及国务院、财政部、国家经济委员会和经济顾问委员会，以及白宫国家安全委员会，因为根据《巴伦周刊》的报道，政府衡量加密货币 “对国家安全有经济影响”。
-
-白宫的计划是，给政府现在用来监管加密货币的杂乱无章的方法带来秩序。目前，加密货币市场的不同方面由不同的机构处理，包括证券交易委员会和商品期货交易委员会，但在涉及市场上许多不同资产的分类时，几乎没有协调和共识。
-
-政府的高级官员已经就该计划举行了多次会议，预计该指令将在未来几周提交给总统乔·拜登。
-
-新闻来源：
-
-[https://bitcoinmagazine.com/markets/biden-administration-to-regulate-bitcoin-as-a-matter-of-national-security-report](https://bitcoinmagazine.com/markets/biden-administration-to-regulate-bitcoin-as-a-matter-of-national-security-report)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：**
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

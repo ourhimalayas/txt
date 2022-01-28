@@ -2,27 +2,34 @@
 ---
 
 
-## 德国制药、科技企业遭中共黑客锁定
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921623/)
+## 币安被爆洗钱风险高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921624/)
 
-作者：台湾宝岛农场 – 鬥陣來拼
+作者：MOS – 柳是多水土透，纽约磐石农场 – 在远方
 ![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-德国联邦宪法保卫局于1月26日发出警告，与中共国有关的黑客团体“APT 27”，又称“猫熊使者”，已锁定德国的制药及科技产业，以渗透并从中窃取信息。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-23.png)
-据悉，“APT 27”位于中共国境内，曾被美国计算机公司戴尔旗下资安公司“安全工程”追踪，并被认为是最活跃的威胁团体之一。除窃取锁定目标的商业机密和智能财产，“APT 27”还试图潜入客户或服务器提供者的网络，以此入侵数家公司。
+1月21日，据相关媒体报道，经多国政府调查发现，币安公司存在严重的洗钱风险。
 
-美国总统拜登在去年提到过，中共国不但为黑客提供保护，还大开方便之门，协助其进行网络攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-25.png)
+
+币安于2017年在上海成立，截止2020年11月，其现货月交易额超过九千亿美金。由于中共政府对数字货币的限制，币安先后辗转于香港和日本，最后因金融牌照缘由将总部转移至马耳他。
+
+据悉，币安的创始人赵长鹏虽反复声称币安有完善的反洗钱程序，但其与各国政府的通信中，他却隐藏了该公司的所有权架构和内部财务信息。这促使多家监管机构反复警告消费者，使用币安存在严重风险。
+
+此外，由于币安多次拒绝说明其交易所的法律管辖区归属，而该公司的KYC流程因费用问题被严重简化，也让各国无法对其交易进行有效监督。据荷兰央行的调查显示，币安违反该国《洗钱及恐怖分子资助法》进行交易，德国联邦警察也做了类似的相关调查报告。同时，美国国税局也正在就洗钱问题对币安展开调查。
+
+郭文贵先生曾在直播中指出，币安公司的本质就是暗网、深网中犯罪洗钱的工具，超过99%的用户没有通过KYC认证，加之币安与中共勾结、出卖个人信息的犯罪事实，世界各国一定会严惩币安。
 
 参考链接：
 
-- [德國政府示警 製藥、科技企業已遭中國駭客鎖定](https://news.ltn.com.tw/news/world/breakingnews/3814537)
-- [德企遭中國駭客盯上 北韓網路兩星期二度癱瘓](https://udn.com/news/story/6809/6064506)
+- [Crypto giant Binance kept weak money-laundering checks even as it promised tougher compliance, documents show](https://www.reuters.com/investigates/special-report/finance-crypto-currency-binance/)
+- [EXCLUSIVE Islamist attacker’s suspected accomplices used crypto exchange Binance, German police say](https://www.reuters.com/world/europe/exclusive-islamist-attackers-suspected-accomplices-used-crypto-exchange-binance-2022-01-21/)
+- [1/24/2022 Miles Guo:](https://www.gettr.com/post/pqfg145693)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总辑：飞虹
-编编：飞虹
+总辑：Irene木木
+编编：Irene木木
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
