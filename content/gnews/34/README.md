@@ -2,21 +2,24 @@
 ---
 
 
-## 针下亡魂｜台湾 56 岁警局主秘接种疫苗一周后死亡
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1922436/)
+## 中日财经爆|美国考虑延长来自中共国太阳能进口关税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922536/)
 
-**撰文/ 疫情关注组｜发布日期/ 28/01/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-104.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+整理编辑：东京樱花团｜peterwong
+![](https://lh6.googleusercontent.com/3h0vYQjBgO5ypDz14oHS7bKes6G9eZcppMRCrZ-w3QJyqBRzlGhyZ8_4hM-RYRor_e_YhHTd2J2FefgECtUkD-zl2whaMsP_1p7uwE8XoRdTzqyDYhab26_Fdd5uAK48OVq2EB49)[*图片来源*](https://s.wsj.net/public/resources/images/S1-LJ185_aolart_M_20210730173920.jpg)
+路透社1月27日报道，美国政府正在考虑延长前总统川普时代的主要来自中共国的太阳能进口关税，但会做一些调整，使国内安装商更容易获得供应。
 
-台湾花莲县警察局主任秘书，今年 56 岁的方世君在接种完第三剂 COVID-19 疫苗后一周因突发败血症死亡。
+前总统川普在2018年对太阳能进口产品实施了为期四年的关税措施，一开始税率为30%，在最后一年下降到15%，希望藉此在美国太阳能制造业创造就业机会。
 
-方世君于本月 18 日接种 BNT 疫苗后感到身体不适，26 日上午因突然昏厥被紧急送院救治，经诊断怀疑是发烧引发败血症，当即转入加护病房插管急救。可惜，回天乏术，今日（28日）上午11时宣告不治。
+这些措施原定2022年2月6日到期，但一些美国太阳能制造商去年寻求延期，认为他们的产品仍然无法与海外制造的商品竞争。这些商品主要来自中共国，在美国市场占据主导地位。
 
-据同事描述，方世君一向有晨运习惯，身体健康，未听闻有任何健康问题，对他的突然离世感到不解和遗憾。目前，花莲县卫生当局已介入调查，以厘清死因是否因疫苗引起。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/台灣-56-歲警局主秘接種疫苗一週後死亡.jpg)
-来源｜[联合新闻网](https://udn.com/news/story/122190/6067400)
+白宫目前正在考虑延长对太阳能板和太阳能电池的关税。但消息人士称，其计划将起征点提高一倍，从每年2.5吉瓦增加到5吉瓦。美国每年进口的太阳能电池数量通常远低于5吉瓦。该消息人士说：“政府明确表示，无论对201条款关税计划作何决定，都将对从中共国进口的太阳能和其他产品维持强有力的贸易救济措施。”
 
+消息来源：[**独家：白宫考虑延长太阳能进口关税 但会做出调整**](https://cn.reuters.com/article/us-white-house-pv-tariffs-0128-idCNKBS2K206X?il=0)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,26 @@
 ---
 
 
-## 港闻速递｜曾庆红侄女旗下公司 昨深夜宣布清盘
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1921897/)
+## 中日财经爆|加拿大竟然称紫金矿业收购Neo Lithium 无国安风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922284/)
 
-**撰文/ 港台前线关注组｜发布日期/ 28/01/2022 **
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/曾慶紅姪女旗下公司-昨深夜宣布清盤.jpg)
-成立于 1972 年，至今有 50 年历史的香港老牌旅行社“星晨旅游”昨日（27日）深夜在官网发出通告，经公司董事会决议，将根据香港公司（清盘及杂项条文）条例，启动自动清盘程序，并宣布下月 16 日下午 3:30 于湾仔温莎公爵社会服务大楼，召开首次债权人会议。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2304.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=3KSwIQj5wzamSM&amp;imgdii=6MmlZQG-UUMcUM)
+加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四（1月27日）表示，加拿大并未阻止中共国紫金矿业收购加拿大上市的锂矿公司Neo Lithium，因认为不存在国家安全风险。
 
-2015年末，星晨旅游被前中共政治局常委、国家副主席曾庆红的侄女曾宝宝成立的地产公司，花样年控股集团，以 2.2 亿港元收购其全部股权。
+反对党“保守党”表示，执政的自由党政府本应阻止紫金矿业去年以9.187亿加元收购Neo Lithium[NLC.V](https://cn.reuters.com/companies/NLC.V)。
 
-自去年 10 月花样年自爆无力偿付 2.06 亿美元的到期债务之后，财务状况急转直下，去年年销售额大跌 70%。
+保守党表示，在美国与加拿大合作促进关键矿物的区域供应链，以对抗中共国主导地位的时候，允许这宗收购的决定并不合理。
 
-来源｜[RTHK](https://news.rthk.hk/rthk/ch/component/k2/1630980-20220127.htm?spTabChangeable=0)
+商鹏飞对下议院工业委员会表示：“有足够的信息来确定…这项交易不会对国家安全造成损害。Neo Lithium的矿产储备是由碳酸锂组成，而电动汽车电池生产商偏好使用氢氧化锂。”
 
+去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+
+消息来源：[加拿大称没有必要阻止紫金矿业收购Neo Lithium 因不具国安风险](https://cn.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB?il=0)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
