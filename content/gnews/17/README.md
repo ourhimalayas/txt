@@ -2,24 +2,33 @@
 ---
 
 
-## 中共病毒疫情下的治安恶化，入店行窃急剧增加还向警卫礼貌鞠躬
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922940/)
+## 2017-2022 庆祝爆料革命五周年
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923013/)
 
-撰稿：东京樱花团丨向海
-![](https://lh5.googleusercontent.com/fDrvdH6XvGHJoMlN1X_mlEZPjlon8jwp5Msf0EGGV01j1bDoEUcf6565idYgBBZwzjnBsBW14ECrubIPoH2mbOKanvC6vvPVnDGNev82o3AMMHfcYRivB-d3quzoOA1xF84gXebh)[*图片来源*](https://i.epochtimes.com/assets/uploads/2021/11/id13390395-IMG_6894_RevM_LearZhou_2021_11_21_SFLVLooted.jpg)
-据雅虎报道，在美国纽约，中共病毒（Covid-19）疫情的蔓延加剧了治安状况恶化，药店和零售店的入店行窃事件层出不穷。被窃损失金额日趋扩大，一些商店已经关门。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+2022年1月26日是爆料革命五周年纪念日。自2017年1月26日，郭文贵先生第一次在媒体上爆料中共内幕，吹响灭共号角以来，爆料革命已整整五年。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2335.png)
+这五年时间，郭先生爆料的香港返送中运动、中共释放生化武器-冠状病毒等逐一被验证。如今，习近平已经是名副其实的独裁者，中共也成为被世界唾弃的政府。
 
-在超市里，一个男人向保安很礼貌地鞠躬，拿着还没有付款的商品，然后大大方方地离开商店。
+同时，爆料革命在这五年内成绩斐然，灭共基金-法治基金成立，新中国联邦诞生，喜联储、喜币横空出世，备受世人瞩目。在爆料革命的推动下，1月25日，美国政府授权撤离驻中共国大使馆的消息，标志着爆料革命、新中国联邦为全人类停止病毒疫苗灾难、种族大屠杀取得了决定性的胜利。
 
-据当地媒体报道，在纽约市，去年零售商店的入店行窃事件达到约 44,000 起，与中共病毒疫情之前相比增加了 15%。
+让我们一起来回顾爆料革命这五年来的重要历史时刻。（请播放视频，视频时长 9‘54“）
 
-各大药店连锁“Rite Aid”宣布因降低成本而关闭部分门店，但员工表示，入店行窃激增可能是关闭的原因之一。
+视频链接：[https://gettr.com/post/pqqybv9873](https://gettr.com/post/pqqybv9873)
 
-信息来源：[**支払いせず堂々と警備員に一礼…コロナで治安悪化し万引きが急増  米**](https://news.yahoo.co.jp/articles/dba8c9a6346d1b5c897a36c1f5df686165d9b1bc)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+编辑: 雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

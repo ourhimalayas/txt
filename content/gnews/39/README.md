@@ -2,25 +2,23 @@
 ---
 
 
-## 中日财经爆|加拿大竟然称紫金矿业收购Neo Lithium 无国安风险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922284/)
+## 中日财经爆|美国考虑延长来自中共国太阳能进口关税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922536/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2304.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=3KSwIQj5wzamSM&amp;imgdii=6MmlZQG-UUMcUM)
-加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四（1月27日）表示，加拿大并未阻止中共国紫金矿业收购加拿大上市的锂矿公司Neo Lithium，因认为不存在国家安全风险。
+整理编辑：东京樱花团｜peterwong
+![](https://lh6.googleusercontent.com/3h0vYQjBgO5ypDz14oHS7bKes6G9eZcppMRCrZ-w3QJyqBRzlGhyZ8_4hM-RYRor_e_YhHTd2J2FefgECtUkD-zl2whaMsP_1p7uwE8XoRdTzqyDYhab26_Fdd5uAK48OVq2EB49)[*图片来源*](https://s.wsj.net/public/resources/images/S1-LJ185_aolart_M_20210730173920.jpg)
+路透社1月27日报道，美国政府正在考虑延长前总统川普时代的主要来自中共国的太阳能进口关税，但会做一些调整，使国内安装商更容易获得供应。
 
-反对党“保守党”表示，执政的自由党政府本应阻止紫金矿业去年以9.187亿加元收购Neo Lithium[NLC.V](https://cn.reuters.com/companies/NLC.V)。
+前总统川普在2018年对太阳能进口产品实施了为期四年的关税措施，一开始税率为30%，在最后一年下降到15%，希望藉此在美国太阳能制造业创造就业机会。
 
-保守党表示，在美国与加拿大合作促进关键矿物的区域供应链，以对抗中共国主导地位的时候，允许这宗收购的决定并不合理。
+这些措施原定2022年2月6日到期，但一些美国太阳能制造商去年寻求延期，认为他们的产品仍然无法与海外制造的商品竞争。这些商品主要来自中共国，在美国市场占据主导地位。
 
-商鹏飞对下议院工业委员会表示：“有足够的信息来确定…这项交易不会对国家安全造成损害。Neo Lithium的矿产储备是由碳酸锂组成，而电动汽车电池生产商偏好使用氢氧化锂。”
+白宫目前正在考虑延长对太阳能板和太阳能电池的关税。但消息人士称，其计划将起征点提高一倍，从每年2.5吉瓦增加到5吉瓦。美国每年进口的太阳能电池数量通常远低于5吉瓦。该消息人士说：“政府明确表示，无论对201条款关税计划作何决定，都将对从中共国进口的太阳能和其他产品维持强有力的贸易救济措施。”
 
-去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+消息来源：[**独家：白宫考虑延长太阳能进口关税 但会做出调整**](https://cn.reuters.com/article/us-white-house-pv-tariffs-0128-idCNKBS2K206X?il=0)
 
-消息来源：[加拿大称没有必要阻止紫金矿业收购Neo Lithium 因不具国安风险](https://cn.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 

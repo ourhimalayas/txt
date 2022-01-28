@@ -2,36 +2,24 @@
 ---
 
 
-## 台湾不派官员出席冬奥会，未确定是否抵制开闭幕式
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922432/)
+## Facebook加密货币项目宣告失败，正在转让
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1922540/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+#### 撰稿：彩虹       
 
-整理/编辑：小红帽
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2309.png)图片来源：Engadget
+1月27日，《国会山报》引述《华尔街日报》文章说，在证明项目不成功后，Facebook（脸书）正在出售其被称为Diem Association 的加密货币项目的技术。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)图片来源：雅典娜设计组
+报道说，该技术将出售给加州一家与比特币和区块链公司合作的小型银行银门资本公司（Silvergate Capital Corp），价格约2亿美元。之前，该银行和Diem之间达成了一项发行一些稳定币的协议，这些稳定币被认为是波动性小并有硬通货支持。并且，该交易是为了满足监管机构的要求而对项目进行改造努力的一部分。
 
+该加密货币项目最初名为天秤币（Libra），但却一开始就遇到了挑战。2020年底，该项目将名称从天秤币（Libra）改为了Diem Association，以反映设计者为了“满足监管期望”而做的调整。
 
-根据《自由亚洲电台》1月27日报道，中（共）国国台办1月26日以“中（共）国台北”称呼台湾的冬奥代表团。台湾有舆论担心中（共）国借机矮化台湾，因此呼吁选手也不要参加北京冬奥开闭幕式。
+文章特别指出：包括美联储主席杰罗姆·鲍威尔（Jerome Powell）在内的官员仍对该平台提供安全和隐私的能力表示担忧。《华尔街日报》也指出，还有人担心该平台被洗钱者和恐怖主义金融家利用。
 
-不过，台湾陆委会于1月27日在例行记者会回应表示，将依照前例，不派官员出席，但是关于抵制开、闭幕式，将在整体审慎评估后由体育署对外说明。
+**新闻来源**
 
-葡萄牙日前也表示，将不派政治代表出席北京冬奥开闭幕式。
-
-外界揣测，在台湾决定不派官员出席冬奥会后，是否会进一步抵制北京冬奥开闭幕式？
-
-台湾陆委会发言人邱垂正在例行记者会回应表示，经政府衡盱整体情势、国家利益以及选手权益，本届北京冬奥台方运动员将正常出赛。但考量参赛人数有限，及过往台湾官员多不出席的前例，将不派官方代表出席，由中华奥会率团赴中（共）国。
-
-新闻链接：[台湾不派官员出席北京冬奥 是否抵制开闭幕式未松](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm2-01272022075343.html)
-
-*发布：   tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Facebook winding down cryptocurrency effort: report](https://thehill.com/policy/technology/591710-facebook-winding-down-cryptocurrency-effort-report)
 
  
 
