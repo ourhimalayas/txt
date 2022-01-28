@@ -2,98 +2,45 @@
 ---
 
 
-## 全球疫情更新（荒唐离谱的统计错误）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1925292/)
+## 今日盖特大V推荐—Miles Guo（郭文贵）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1925559/)
 
-**整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2391.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 1月28日）
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+【**盖特大V推荐/Gettr VIP Recommendation 】-** 002
 
-**一，全球疫情基本数据**
+**链接：**[https://gettr.com/user/miles](https://gettr.com/user/miles)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/awgr1-9gfga.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/dfp.jpg)**图片来源：Gnews网站**
+**大V Miles Guo自述：**
 
-感染总数：365,502,154（日新增3,274,264，14天增幅+16%）
+Everything is just beginning
+一切都是刚刚开始
 
-死亡总数：5,634,736（日新增8,623人，14天增幅 +25%）
+**大V Miles Guo介绍：**
 
-**二，全球“疫苗”毒针统计数据**
+郭文贵先生是爆料革命的发起人和领导者，新中国联邦的创立者，是G系列的创始人，是正道主义的倡导者，是中国共产党的掘墓人，是反击人类黑暗力量和团结正义力量觉醒的领军人物。
 
-“疫苗”毒针注射总数：100亿
+郭文贵先生早年经历丰富。在1989年八九六四事件中，因同情学生运动而入狱，与许多奇人逸士一起羁押于清丰看守所。在清丰看守所的经历巨大地改变了郭文贵先生对世界的认识，致力于消灭中国共产党。
 
-完全“接种”：41.2亿人
+郭先生出狱后环游世界，结交全世界精英，纵横商场，完成郑州裕达国贸大厦、北京盘古七星酒店、金泉广场等一系列地标性的综合体，并成为2008年北京奥运会背后的重要力量，以成功商业人士的身份影响中共高层，和当时中共开明派合作，考虑以体制内和平方式完成中国社会的民主化进程。
 
-完全“接种”百分比：52.9 %
+2008年奥运会之际是郭文贵先生在中国事业的巅峰阶段。而后开始被卷入各种政治斗争，最终于2015年离开中国大陆，前往美国纽约曼哈顿中城定居，开始筹划通过以美灭共推进以共灭共。早期郭文贵先生诚心与早在美国进行中国民主化运动的各界人士合作推动中国民主化改革，但因各界民主人士各怀心思，无法团结一致，
 
-**三，澳洲疫情和“疫苗”数据**** **
+2017年初开始，郭先生史无前例地以网络视频直播的方式在公共直播平台上爆料，发起了爆料革命，一边对中共体制内喊话，一边唤醒社会各界加入正义的事业，以和平的方式推动中国共产党邪恶政权的更迭。
 
-感染总数：2,468,605（今日新增40,176人）
+郭文贵先生在爆料中逐步揭露中共共产党利用国家机器奴役中国人民、向全球输出腐败、疯狂扩张，妄图控制全世界。他揭示了潘多拉盒子、南普陀计划、3F计划、13579计划、双龙计划、蓝金黄，病毒和疫苗等邪恶秘密计划和中共各种罪恶。
 
-死亡总数：3,500人（今日新增 98人）
+2017年4月19日美国之音断播事件，以及哈德逊研究所事件，完全印证了中共在美国政府内部的深层渗透。
 
-每万人感染人数：952.8712人
+2020年6月4日，郭文贵先生和班农先生宣布成立新中国联邦，发表新中国联邦宣言，同时不遗余力的宣传中国共产党不等同于中国人民的概念，并在全世界范围广泛传播，希望防止恶性排华、歧视亚裔事件发生。
 
-“疫苗”毒针注射总数：49,089,980    （日新增305,665 针）
+郭文贵先生通过直播爆料，吸引了各界人士支持，形成了庞大群体。爆料革命启动了全球消灭中国共产党的运动，深刻改变了人类社会发展的进程。他策划和建立了新中国联邦以及一系列商业生态G系列，团结了遍布全球的已经觉醒的正义华人和国际友人，为没有了共产党之后的中国奠定了基础，为遍布全球华人未来安全、文明、积极的生活指明了方向。
 
-完全“接种”：19,212,724人
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-第二针“接种”百分比：78.5%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.2%
-
-**四，“疫苗”新闻**
-
-[瑞典决定不向 5-12 岁儿童推荐 COVID 疫苗](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
-
-瑞典卫生署周四表示，瑞典已决定不向 5-11 岁的儿童推荐中共病毒疫苗，并认为其益处并未超过风险。卫生署官员布里塔·比约克霍尔姆在新闻发布会上说：“根据我们今天所掌握的知识，儿童患严重疾病的风险很低，我们认为给他们接种疫苗没有任何明显的好处。”
-
-[巴黎医院系统负责人公开表示不接种中共病毒疫苗者无资格接受公共医疗保险的治疗](https://www.msn.com/en-gb/news/world/covid-live-russian-daily-cases-approach-100000-in-new-record-philippines-to-reopen-to-vaccinated-tourists/ar-AATe9ow)
-
-“当免费和有效的药物可用时，人们是否应该能够在没有后果的情况下放弃它……而我们却在努力照顾其他病人？” 巴黎 AP-HP 医院系统负责人 Martin Hirsch 周三在法国电视台上表示。这番言论在法国引发了激烈的争论。Hirsch 说他提出这个问题是因为医疗成本正在爆炸式增长，并且一些人的不负责任行为不应危及其他人对该系统的可用性。
-
-**五，德国：荒唐离谱的统计错误成为疫苗护照政策的合法性基础**
-
-今天全球的中共病毒疫苗毒针注射已经超过一百亿剂。拒绝接受毒针的少数人被施以种种限制，包括失去工作。到今天，疫苗的无效和危害已经可以从很多公开数据中明显看出来了。现在一些媒体已经开始挖出当初用来证明“未接种疫苗者带来了疫情”的统计数据实际上是用了极其离谱，很难相信是无意的方法扭曲和篡改而成，被发现后却被归咎于“软件错误”。这是[《国家脉动》上周的一篇报道](https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)。
-
-德国第二大城市汉堡去年11月宣布对未接种疫苗且未感染过病毒者实施限制，不被允许进入商店、餐馆和俱乐部。11 月的第二周，汉堡市长召开新闻发布会，错误地声称 90% 的新感染病例都在未接种疫苗的人群中。此外，他声称未接种疫苗者的 7 天平均感染率为每 100,000 人中有 605 人，而接种疫苗者仅为 100,000 人中的 22 人。
-
-现在，《南德意志报》和《世界报》的一项调查发现，汉堡社会服务部门的数字严重扭曲，在大多数情况下，他们甚至不知道谁接种了疫苗，谁没有接种。然而，这并没有阻止他们将所有身份不明的人归类为未接种疫苗。事实上，到 11 月底，高达 70% 的阳性病例处于未知状态。市长在 12 月底声称，错误分类的原因是部署了“不同的 IT 系统”，每个系统使用不同的分类器。
-
-汉堡市并不是唯一受虚假 COVID 数字影响的地区。11 月中旬，在拜仁，48.468例未知疫苗接种状态的病例被添加到未接种疫苗类别中——将未接种疫苗者的感染率推高至 1469 例，而接种疫苗者的感染率则为 110 例。
-
-德国针对未接种疫苗的 COVID 措施于 2021 年 11 月推出，并将这两个主要的虚假数据作为政策合法性的基础。
-
-据信，最近几天有近 10 万德国公民参加了反疫苗强制抗议活动。
-
-。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

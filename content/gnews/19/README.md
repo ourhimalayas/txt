@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月26日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925575/)
+## 美领事馆撤离是灭共的阶段性胜利
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1925744/)
 
-配音：香草山教育部 – 蒙古鸿雁
+撰稿人： 小强
+
+美国领事馆撤离北京，标志两国政治关系创了新低。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/40299CE8-81B8-41C5-8AE5-D458630FD3FA.jpeg)图片来自网络
+
+```
+中共近几年恶劣行径的累积，让习在2022年面临空前压力，包括病毒溯源，内部政治斗争，冬奥遭抵制和20大维稳几个主要方面。习个人非常希望通过外交及其他派系的海外力量能够与美国政府勾兑，缓和中美关系，间接树立在党内的威信，减轻内部政治压力。
+
+2020年中共的海外力量还团结一致反川砸郭，经过郭先生及引领的新中国联邦的不懈努力，如今世界大觉醒已经无法阻挡，中共海外力量不得不改变风向，与中共切割，甚至加入反共阵营。
+
+美领事馆的撤离说明，党内的外交和其他派系海外力量完全在与习唱反调。尽管习派控制的国家机器对撤馆一事轻描淡写，但是无法掩盖在制裁和战争的预期下，资本外逃对经济数据和社会民生的影响。
+
+中共失去了美国的支持，也就失去了世界的认可，只有将中共彻底粉碎，在废墟中重建，才有可能与世界重新握手。中共最后的内部火拼会决定谁有资格与新中国联邦合作，重建中国。
+```
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-4-1187x1536-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月26日晚](https://gnews.org/zh-hans/1915990/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*发布：Theodosia*
 
  
 
