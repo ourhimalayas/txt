@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 12:14 AM (UTC)`
+
+1月27号：谢谢来福福战友，发来保存的……SNOW 视频🙏🙏🙏🙏🙏🙏美好的回忆！
+![img](https://media.gettr.com/group3/getter/2022/01/28/00/fc8d84ab-5785-dd48-fcf1-6ef282f3ea96/out.jpg)
+
+---
+
 `@miles 1/27/2022 11:40 PM (UTC)`
 
 1/27/2022 Miles Guo: I am going to launch three Tian Mi Mi Movements by using the Himalaya Coin. The Himalaya Coin is of extraordinary significance, and the Himalaya Pay is like pulling the tube that draws the blood from the Chinese people and inserting it into the old CCP kleptocrats. What are the three landmark events of the Himalaya Coin from its fetal period to birth?<br/><br/>1/27/2022 文贵直播：文贵计划用“喜币”启动三场“甜蜜蜜”运动；喜币意义非凡，H-Pay就是把中共是把中共插在中国人民身上的抽血管倒插进中南坑老杂毛身上；喜币从胎儿到出生的三个标志性事件是什么？<br/>
@@ -144,13 +151,6 @@ January 26, 2022 CCP “Wolf warrior” Zhang Lijian threatens U.S. evacuation o
 
 Thousands gathered in front of the Lincoln Memorial in Washington DC for the 'Defeat The Mandates' Rally against COVID-19 vaccines. Many vaccine victims, doctors, scientists and other speakers have voiced their strong opposition to "mandatory vaccine policy".<br/><br/>数千人聚集在华盛顿特区的林肯纪念堂前，参加针对 COVID-19 疫苗的“击败强制授权”集会。许多疫苗受害者、医生、科学家等演讲者发出了强烈反对“强制疫苗政策”的声音！
 ![img](https://media.gettr.com/group36/origin/2022/01/26/02/144dbe65-cb8e-e554-b0b2-a56cb7741830/out.jpg)
-
----
-
-`@miles 1/26/2022 1:15 AM (UTC)`
-
-1/25/2022 Mr. Miles Guo signed the third historical document of the New Federal State of China, applauding President Biden and Secretary of State Blinken’s authorization of the commencement of closing the US Embassy in Beijing. We hope that the US will take further actions to pull the recognition of the CCP as the legitimate government of China and the Chinese people.<br/><br/>1/25/2022 郭文贵先生签署新中国联邦第三份历史性文件，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏；我们希望美国采取进一步行动否认中共是代表中国和中国人民的合法政府<br/>
-![img](https://media.gettr.com/group19/getter/2022/01/26/01/9b34f34d-f85a-42d5-5dc6-6ba7cb23d76b/out.jpg)
 
 ---
 

@@ -2,44 +2,39 @@
 ---
 
 
-## Eglise医生提醒同时服用多种药品时谨防药品之间的化学反应
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920217/)
+## 美国撤离驻华使馆，高情商与低情商
+` zuzu` [轉載自GNews](https://gnews.org/zh-hans/1920257/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2acc187664c47acdad1cf](https://gtv.org/video/id=61f2acc187664c47acdad1cf)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/高情商低情商.jpg)圖片源自網絡
+**作者：英国伦敦喜庄园 文名**
 
-**Dr.Eglise****：**我觉得你要是有心，特别现在大家都在用保健品啊，预防用药，其实你自己真的是可以调节出一条你自己的这个最佳用药途径，甚至是时间。我记得我以前发过一个盖特，我就想告诉大家你什么时候用维生素c或者NAC或者槲皮素，因为有一些药物跟另一些保健品有的时候会有拮抗作用。
+政治家都是高情商中的高情商，说话都是无懈可击，滴水不漏。尤其是外交辞令，冠冕堂皇，每个字都有其深意，听起来丈二和尚摸不着头脑，懂的人才明白真正是啥意思。美国绝对不会直接官宣我们要跟中共断交啦！准备干仗啦！如果真的这样说这世界早就已经毁灭了几千万遍了。跟着七哥学智慧，要读懂外交辞令，第三道大门已经开启！
 
-你放在一起吞下肚子里，它在胃里面发生化学反应以后，有的时候会相互拮抗、相互抵消各自的功效，所以有些药你真的是要注意一下。比方说我每天服用维生素c，很多人服用槲皮素，包括现在的NAC，这三者它们都含有还原剂，就是按照它的化学分子结构它有还原剂，而我们现在大家几乎每个人都在吃青蒿素，尽管是保健品。
+政治人物讲话都是绵里藏针，批评也是打哑谜，猜半天才想出来对方说啥，抓不住把柄。格局小啦，路走窄啦，浓浓的老领导画风。这可能就是人家说的高情商低情商吧？
 
-但是青蒿素有氧化基，特别青蒿素这个衍生物它有一个过氧桥，就是特殊的一个多出来的氧分子，这个氧化基跟还原剂碰在一起以后，在特定条件下它会发生氧化还原反应，然后这个结果又是什么呢？抵消各自的药效，所以就是青蒿素要跟维生素C、NAC、槲皮素分开用。
+例如：总统的愤怒翻译员President’s Anger Translator …
 
-还有一点就搞脑子了，因为你现在吃了青蒿素保健品，你要服铁对不对？你已经服用了格外的亚铁血红素，什么时候服用铁呢？因为铁跟锌，我们病毒预防药里面有锌，锌跟铁它们又是相互拮抗的，所以锌跟铁不能在一起，所以你必须自己排列组合一下看看，谁跟谁是朋友，谁跟谁是仇敌，你把它们搞清楚了。
 
-否则你吞到肚子里它们相互取消自己的这个功效，是不是白吃了啊，就是说你这个效果也达不到了是不是？
 
-视频听写：青桐；
+美国授权撤离驻华大使馆也是如此操作，官宣说为了免受中共因冬奥会而执行的严格防疫措施而撤出。这都是外交辞令，圆滑，让人抓不住把柄，中共想发作也没有理由搞大。另外民间不会因此产生恐慌。想想看如果美国直接宣布要干仗民间会发生啥？经济股市受冲击，银行挤兑，物资囤积，难民潮，次生灾害。。。不仅中美，全世界都会被波及。没有哪个政治家会如此幼稚地操作。所以老百姓继续被蒙在鼓里，以前的时代是导弹飞过头顶百姓才知道打仗了。现在第三次世界大战是信息战超限战，是仗打完了老百姓才问：打仗了？？？
+只有消息灵通、脑袋聪明又幸运的人，比如我们爆料革命的战友们，在郭先生无数次精准的提前爆料之下才知道世界的真实全貌。君子不立危墙之下，能跑就跑，该撤离就撤离，该回乡下就回乡下，该屯粮就屯粮。
 
-编辑整理：海贼王M.D.LUFFY；
+一切已经开始，2022让我们迎接一个没有共产党的新中国吧！
 
-字幕文件制作：小满；
+【文章仅代表作者观点】
 
-视频制作及上传：Cindy；
-
-G.News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
+[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
+[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
+[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
+[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
+[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
+[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
+[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
+[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
+[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
+[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
+[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
+[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
 
  
 

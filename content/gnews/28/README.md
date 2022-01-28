@@ -2,30 +2,35 @@
 ---
 
 
-## 扬帆每日速递——2022年1月27日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1919985/)
+## 有声|郭先生直播厅——灭共集结号
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920056/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、特鲁多此前曾称那些反对中共病毒疫苗的人是性别歧视者和种族主义者。今天他更称，参加“自由护航2022”的卡车司机为“少数人”，并表示他们不代表加拿大人的观点。
+配音：香草山教育部 – 蒙古鸿雁
 
-2、欧盟在世界贸易组织对中共国提起诉讼，控诉中共国因立陶宛在台湾问题上的立场对其实施经济霸凌。去年7月，欧盟最小的国家之一立陶宛宣布允许台湾在维尔纽斯开设外交办公室，中共国则报复性地对立陶宛实施停止进口和其他经济限制。
 
-3、据文贵大直播：1月26日是文贵先生引领爆料革命5年整，文贵先生卧薪尝胆30年，灭共进入倒计时。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-image1-1-1280x720-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-125-1536x864-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-image1-1280x720-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-Slide7-1280x720-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/9-125-1536x864-1.jpg)
 
-4、据文贵大直播：未来所有的严肃媒体和大社交媒体都会被审判.奥运会之后，欧美等国家民众对严肃媒体的仇恨超过CCP,这是我们爆料革命最大的机会。
 
-5、Yahoo焦点1月27日报道:香港特首林郑月娥下午见记者表示疫苗气泡将改名为【疫苗通行证】不打针者很多地方将不能去。评:厚颜无耻到极点，一直鼓吹的「疫苗气泡」只是晃子。
+文字版原文：[郭先生直播厅——灭共集结号](https://gnews.org/zh-hans/1914717/)
 
-6、中共国外交部网站消息，王毅1月27日在与布林肯的电话中说，当务之急，美方应当停止干扰北京冬奥会，停止在台湾问题上玩火打牌，停止打造各种反华遏华“小圈子”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板127-1_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-编辑：文敏
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发布：风起云间（文敏）
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-海报图片设计：飞天面、 Shuang
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
  
 

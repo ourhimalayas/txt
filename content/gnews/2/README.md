@@ -2,31 +2,25 @@
 ---
 
 
-## 加拿大卡车司机铸成世界最长的自由车队
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920463/)
+## 安省家庭护理行业人员严重短缺
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920498/)
 
-加拿大温哥华扬帆农场 薇文
+加拿大温哥华扬帆农场 自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-47-edited.jpg)图片来源：TSUN
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-48-edited.jpg)图片来源：TNH
 
 
-据[多伦多太阳报]1月25日报道，由加拿大货运卡车司机自发组成前往首都渥太华的“自由车队”，目前已长达70多公里，是十倍于2020年埃及卡车车队7.5公里的吉尼斯世界纪录。
+据加拿大[CTV新闻]1月24日报道，[安省家庭护理协会]近日表示，疫情和疫苗强制接种所导致的工作人员严重短缺已使该行业陷入困境。
 
-报道称，这5万多辆自加拿大和美国各地的货运卡车，在严寒的冬季中迅猛集结，其参与者之众，支持者之广，示威规模之壮已远超当初行动组织者的预计。
+据悉，在疫情之前，95%的家庭护工服务申请都能被完成，但现在该数字已经降至56%。此外，由于疫苗接种政策以及“奥密克戎”疫情的爆发，目前已有约4,000名护工离开了工作岗位，而直接给安省医院带来了额外的压力。
 
-据悉，面对本次始料不及的抗议运动，主流媒体不仅掩盖消息，甚至还制造假新闻谎称约500万加元的捐款被冻结。尽管目前筹集的资金远超预期，但示威者表示：不管有无捐款，他们都会继续前进。因为公众已将“抗议车队”视为自由象征的灯塔，并希望以此结束当局各项以防控疫情为由的违宪强制措施。
-
-然而，“永远不要浪费危机”是加拿大自由党政府的座右铭，独裁者们正在将目前由疫情引发的严重供应链危机，转变为特鲁多个人及其党派从中渔利的最佳契机。
+报道称，尽管安省政府已承诺在近期为家庭护理行业追加5亿加元的预算以扩大服务范围，但当局正在强施的各项防疫政策，特别是疫苗护照规定，都将阻碍该行业的进一步恢复。
 
 * * *
 
-采编/编译撰稿：薇文                校对编辑，发稿：硫酸羟氯喹64
+采编：文莱,  编译撰稿：自由法兰西 ,校对编辑,发稿：硫酸羟氯喹64
 
-新闻来源：
-
-1、[WARMINGTON: ‘Freedom’ truckers may form world’s longest convoy](https://torontosun.com/news/local-news/warmington-freedom-truckers-may-form-worlds-longest-convoy?utm_medium=Social&amp;utm_source=Twitter#Echobox=1643158330)
-
-2、[LILLEY: Trudeau uses trucker protests as political weapon](https://torontosun.com/opinion/columnists/lilley-trudeau-uses-trucker-protests-as-political-weapon)
+原文链接： [https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893](https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893)
 
  
 
