@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 5:17 AM (UTC)`
+
+1/27/2022 Miles Guo: Hope fellow fighters will not become big-headed. We must adhere to the belief that “only the truth prevails”. The CCP is doomed after the US granted the authorized departure to its embassy in Beijing. So, I hope my fellow Chinese will not become the CCP’s cannon fodder. Please leave Communist China ASAP if you can!<br/><br/>1/27/2022 文贵直播：希望战友们不要得大头症，我们要坚持唯真不破；美国驻北京大使馆被授权撤离之后，共产党已经结束了！请国内同胞们不要做中共的炮灰，能出来的赶紧出来！<br/>
+![img](https://media.gettr.com/group25/getter/2022/01/28/05/c2c22816-c46f-1c8a-ebf5-24f4b19148fc/out.jpg)
+
+---
+
 `@miles 1/28/2022 4:40 AM (UTC)`
 
 1/27/2022 Miles Guo: The authorized departure of the US embassy in Beijing will neither sever nor maintain the US diplomatic ties with the CCP. Instead, the US is going to destroy the CCP via “No Severance, No Contact”. The US may go back and forth in terms of the authorized departure of the US embassy, but the more that happens, the more times we are going to win. I have helped push Egypt to extort the CCP.<br/><br/>1/27/2022 文贵直播：美国大使馆的授权撤离既非绝交，又非断交，这是“不断不交”来弄死中共；美国可能会在撤离使馆上来回反复，但反复越多，我们就赢得越多；文贵帮助推动埃及敲诈了中共<br/>
@@ -145,13 +152,6 @@
 
 The following questions are worth pondering after watching this interview with Dr. Vladimir Zelenko:<br/>1️⃣Is COVID-19 a naturally occurring virus or something else?<br/>2️⃣Why would someone like Dr. Zelenko, who is successful in treating COVID-19 patients, become controversial?<br/>3️⃣Why is a proven treatment method against COVID-19 viruses suppressed? <br/>4️⃣Why must they get everyone to take COVID-19 vaccines to the extent that they would not allow people to get healed with an easy way with Therapeutics. <br/>5️⃣What is the whole purpose of this pandemic? Why is this happening?<br/><br/>看完 Vladimir Zelenko 博士的采访后，以下问题值得深思：<br/>1️⃣新冠病毒是自然产生的病毒还是有其他来源？<br/>2️⃣为什么像 Zelenko 博士这样成功治疗新冠患者的人会引起争议？<br/>3️⃣为什么一个被验证的行之有效的治疗新冠病毒的方法被压制？<br/>4️⃣为什么他们必须让每个人都接种新冠疫苗，以至于他们不允许人们通过简单的治疗方法治愈病人。<br/>5️⃣全球大流行的真正目的是什么？为什么会发生？
 ![img](https://media.gettr.com/group36/origin/2022/01/26/16/8af583bb-e566-d15a-354a-5f5eea3ba08c/out.jpg)
-
----
-
-`@miles 1/26/2022 3:20 PM (UTC)`
-
-1月26:第二次发Gettr、对上个视频的补充
-![img](https://media.gettr.com/group18/getter/2022/01/26/15/9b152eb0-8590-5471-f6b1-11d8c7dc2cd5/out.jpg)
 
 ---
 

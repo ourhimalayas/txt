@@ -2,8 +2,8 @@
 ---
 
 
-## 任何强制别人打疫苗的政治家都是谋杀犯
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921537/)
+## 无论哪国人共产党都给肛门测试
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921561/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

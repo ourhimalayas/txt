@@ -2,22 +2,44 @@
 ---
 
 
-## 俄乌在巴黎达成停战协议 两周后柏林将再度会谈
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1921230/)
+## 辉瑞董事会成员建议停止强制疫苗接种
+` 香草山醫療部` [轉載自GNews](https://gnews.org/zh-hans/1921287/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-44.jpg)
 
-1月26日，俄乌两国特使在巴黎会谈期间，达成了停火协议，這場會談事關化解分離主義者2014年以來在烏東戰亂情形，而非俄國入侵威脅，但在此俄乌两国紧张局势期间，此停火协议也传达出了局势缓解的积极信号。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-31.png)（图片来自中央社）
-中央社报道，法国外交人员表示，法国和德国居中斡旋的这场8小时会谈已传达出「好的信号」，俄乌两国特使签署了联合声明，这份联合声明承诺俄乌双方「无条件遵守停战」，同时双方约定将于2周后在柏林再度会谈。随后德国政府消息人士证实了此消息。
+**作者**：纽约香草山 医疗部 文玥
 
-报道称，俄、乌、法、德2014年成立「诺曼底模式」会谈，试图调停乌克兰东部的冲突。值得关注的是本次停火协议的签署是乌克兰和俄罗斯自2019年以来，首度同意与法国和德国针对俄乌冲突签署联合声明。
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202201270035.aspx](https://www.cna.com.tw/news/aopl/202201270035.aspx)
 
-素材采编：Kevin wang
-发布：文曦
+美国食品和药物管理局（FDA）前局长、辉瑞公司现任董事会成员斯科特-戈特利布博士（Dr. Scott Gottlieb)认为新冠病例的减少是给决策者发出的信号，现在是取消更多疫情相关限制政策的时候。
+
+他在1月24日接受 The Squawk Box 采访时说：”我认为，在东海岸病例数急剧下降的时候，我们需要根据时局调整措施。随着形式的改变，我们必须以实施措施时的相同速度，来放松一些相关制度。
+
+戈特利布说，美国的 “很多争执 “来源于对何时取消疫情措施没有 “明确的目标”。
+
+这位前美国食品和药物管理局专员还提到，康涅狄格州政府最近取消对州政府工作人员的疫苗强制的决定，应该被其他州决策者所采纳。戈特利布补充说：”要想让民众遵守规则和赞同，唯一方式是要证明我们有能力施行政策，也有能力取消这些政策”。
+
+(本文仅为作者个人观点，不代表G-NEWS立场)
+
+**参考连结：**[https://www.theepochtimes.com/pfizer-board-member-suggests-end-to-mask-vaccine-mandates\_4233260.html?utm\_source=ai&utm\_medium=search](https://www.theepochtimes.com/pfizer-board-member-suggests-end-to-mask-vaccine-mandates_4233260.html?utm_source=ai&amp;utm_medium=search)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/月曆.png)
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

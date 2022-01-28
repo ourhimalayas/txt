@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥说看守所里的背叛
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921430/)
+## 疫苗是人类巨大的灾难，对新中国联邦是上天的恩赐
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921480/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
