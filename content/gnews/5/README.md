@@ -2,39 +2,33 @@
 ---
 
 
-## 加拿大已发现 BA.2 病例 ——Omicron 子变体
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925941/)
+## 加拿大20岁男子深夜飙车快到起飞
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1926001/)
 
-作者：Saba Aziz
+作者：Ashley Harris
 翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-471.jpg)
-自从世卫组织报告发现了Omicron变体亚系BA.2（又被称为Omicron妹妹）以后，短时间内在全球47个国家/地区报告了超过10,000例病例。加拿大公共卫生局（PHAC）周二证实，到目前为止，加拿大已发现51例BA.2变体病例，感染者主要来自国际旅客。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-473.jpg)
+BC省的一名年轻男子开着车出去兜风，因为速度很快，导致发动机突然爆炸。
 
-据报道，随着COVID-19 Omicron浪潮在包括加拿大在内的世界大部分地区达到顶峰的迹象，科学家们正在密切关注在一些国家迅速传播的子变体。
+Abbotsford警察局在推特上说，司机是一名20岁的男子，他当时驾车的速度”超过200公里/小时”。
 
-Omicron的BA.2亚系于去年11月首次被发现，周五被英国卫生安全局 (UKHSA) 指定为正在调查的变体。
+他在凌晨2点40分被抓到超速，速度几乎和一架小型飞机一样快。因为车速实在过快，该车的引擎最后起火爆炸。
 
-UBC传染病专家Horacio Bach博士说：这种病毒现在在全球范围内繁殖得如此之多，以至于会出现一个新的变体，并且已经有了与Omicron变体相关的子变体。
+该推文说，他随后被指控”超速、驾驶不管全和N牌违规”。
 
-Omicron变体B.1.1.529有四个子系：BA.1、BA.1.1、BA.2 和 BA.3。
+在BC省，新手驾驶会有一张”N”牌贴纸，对于驾驶有部分限制。
 
-据世界卫生组织 (WHO)称，迄今为止，BA.1占全球Omicron病例的绝大部分。
+在警方分享的照片中，可以看到清晨时分一辆黑色的汽车，在Sumas路段的1号高速路上，因超速引致引擎起火。
 
-蒙特利尔大学的病毒学家Levon Abrahamyan说，所有病毒都会发生变异，并且具有与原始变体不同的基因组成但具有共同起源的亚变体。
+该推文继续说，这辆车已经被扣押。
 
-PHAC发言人Anne Genier说，BA.2与BA.1有许多相似之处，但确实存在差异，包括一些可能影响传播性、检测和可能的免疫逃逸的突变。
+温哥华警察局警员Holly Christie在推特上说，在这次事件中，”没有人死亡或严重受伤，这是不幸中的万幸。”
 
-早期分析表明，丹麦、挪威等国BA.2病例迅速飙升。
+根据ICBC（Insurance Corporation of British Columbia）的规定，超速的罚款金额从368元到483元不等。再加上驾照的3个罚分。”N”牌新手还有罚款的罚款109元。
 
-挪威公共卫生研究所在其每周报告中说：与最初的Omicron病毒BA.1相比，BA.2正在强劲增长，该病毒的特性尚不清楚，只是它比BA.1更具传染性。
+ICBC网站上的一份声明说：”每年有82人死于与超速有关的车祸，超速已经成为BC省车祸致人死亡的首要原因。”
 
-BA.2被一些科学家称为“隐形”Omicron，因为它更难在PCR检测中被检测到。
-
-随着越来越多的BA.2病例被发现，BA.2似乎并不比BA.1能引起更严重的疾病。但UKHSA 的COVID-19事件主管Meera Chand博士表示，目前数据有限，下结论为时过早。
-
-丹麦Statens Serum Instiut的初步分析显示，与BA.1相比，BA.2的住院率没有差异。
-
-来源：https://globalnews.ca/news/8538300/omicron-subvariant-ba-2-explained/
+来源：https://www.narcity.com/vancouver/a-20-year-old-was-caught-driving-almost-as-fast-as-a-plane-in-bc-then-the-engine-exploded
 
 （文章仅代表作者个人观点）
 

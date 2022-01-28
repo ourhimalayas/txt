@@ -2,49 +2,51 @@
 ---
 
 
-## 有声|拜登做了全球灭共“先锋”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925835/)
+## BC省原住民学校发现93个疑似坟墓
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925877/)
 
-配音：香草山巡管部– 文凯琳
+作者：Daniel Otis
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-272.png)
+BC省一处原住民部落近日宣布，在一处寄宿学校遗址又侦测到93个疑似被掩埋的尸骸，这很可能说明当时在这所寄宿学校的儿童被埋藏于此。
 
+Williams Lake原住民部落领袖Willie Sellars在25日的记者会上表示，近期通过使用透地雷达等物理勘察手段发现了这些尸骸，但还需要进一步挖掘和检测来确认它们是不是人体遗骸。
 
+这所被勘测到埋有遗骸的前寄宿学校St. Joseph’s Mission Residential School在1886年至1981年期间运作，随后被废除。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+“几十年来，一直有关于在这学校内，有学生被无视甚至虐待的报告，更糟糕的是，还有孩子在这里死去或失踪，” Sellars说道。“大部分孩子无法被找到。”
 
+目前在这所学校发现到的踪迹只是极为初步的，还需要继续调查以找出更多信息。因为在这片470公顷的土地上，现在仅搜寻了其中14公顷，包括学校的墓园区域。
 
+“这次发现把我们的调查小组带到了人类行为的最黑暗区域，” Sellars表示。“我们的团队不仅记录下有关儿童和婴儿在这里被谋杀、失踪的事件，还听到无数有关对儿童施行的系统性酷刑、饥饿、强奸及性侵害等故事。”
 
-1月25日，文贵先生突然紧急直播，发布“甜蜜蜜”行动重要公告：即日起，拜登政府授权美国驻北京大使馆撤离。
+他还指出，这次调查也发现此前被人无视的有关学校状况的投诉，还有关于儿童及牧师不想要的婴儿的尸体被弃置在湖泊、河流处，或者被当作垃圾一样扔进学校焚化炉内的证据。
 
-拜登不鸣则已一鸣惊人啊，一出手就是如此重拳，中共简直就剩半条命了，够给力！文贵先生说这绝对是灭共的第三道大门打开了。但是，这跟爆料革命的“甜蜜蜜”运动又有什么关系呢？为什么七哥这次的公告称是“甜蜜蜜”行动的重要公告呢？毫无疑问，促使拜登政府做出这一决定的主要推动力量是新中国联邦。七哥说过，“甜蜜蜜”行动如果没有美国的配合是不会成功的。没想到美国送来了这么一个大礼，这算不算拜登给“甜蜜蜜”行动开路了呢？
+“这些孩子要么没有墓碑、要么被埋在无名墓下、要么连可以用来尸检分析的小片骨头都没有，” Sellars说道。“对于那些家庭来说，这件事永远无法被抹去。”
 
-根据文贵先生的直播和盖特消息，这次美国撤离驻北京大使馆的意义有：
+调查小组还表示，这次发现的93个疑似尸骸在不同程度上被认为是人体尸骸，最终情况还需要进一步确认。
 
-- 美国不再为中共站台，摘掉了中共是“正常人”的标签，表明中共就是“流氓”犯罪组织，人人得而诛之；
-- 中共不能代表中国人民（新中国联邦是唯一选择）；
-- 引起多米诺骨牌效应，世界各国逐渐跟随，与中共脱钩；
+不过去年在使用同样的物理勘测手段后，调查组于Kamloops的原寄宿学校遗址确认发现了215个无名墓。
 
+来源：https://www.ctvnews.ca/canada/b-c-first-nation-discovers-93-potential-graves-at-former-residential-school-1.5754168
 
-原文链接：[拜登做了全球灭共“先锋”](https://gnews.org/zh-hans/1919033/)
+（文章仅代表作者个人观点）
 
-音频处理/发稿：Daxia
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
-**更多资讯，更多关注**
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**关注我们**
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Discord 账号
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Gettr 账号
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
