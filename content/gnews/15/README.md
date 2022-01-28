@@ -2,19 +2,29 @@
 ---
 
 
-## 比特币被干掉后数字货币重生 美元兼贬值与升值的可能
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923742/)
+## 爆料革命反对中共毒疫苗的重要性（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1923796/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-00-9-20-四-scaled.jpg)
+党让干啥就干啥，也绝对相信张高丽说的宇宙无限大，地球是一粒沙。
 
-1月21日，郭文贵先生在GTV大直播指出：
+现在彭帅去哪儿了? 谁也不知道找不着了。这就是这个这句话，成为一个大话题呀。凡是强迫别人打疫苗的就是谋杀。
 
-数字货币是未来发展的趋势，不可阻挡。比特币可能会超过10万，甚至50万、100万，但比特币和其他有原罪的数字货币都会被干掉。美元虽是当下最稳定的货币，但终将出现问题，可能是极度贬值；也有可能挤水后大幅升值，继续存在一段时间。美元的崩溃，会使所有的恐慌资金，流向数字货币，它将是最大的赢家。
+你知道奥林匹克这姐妹儿离开，她就告诉我说，我离开就是因为我看了盘古这个龙头被你们给绑住，真的像龟头一样。你们如此惧怕Miles郭，说明他说的是真的，我不能待在这个国家。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+你知道这个奥运会冬奥会都到北京，看着盘古龟头，谁能不看龟头呢？裕达那是两窗子开，全黑的，盘古全黑的。然后对面一龟头，然后搞开幕式。就会问，谁是Miles郭？反对打疫苗，说生化病毒的。
+
+发布：于White
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

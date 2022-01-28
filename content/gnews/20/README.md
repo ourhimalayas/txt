@@ -2,21 +2,19 @@
 ---
 
 
-## 秘翻在线 :美国副总统和台湾副总统在洪都拉斯简短交谈代表着什么？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1923697/)
+## 比特币被干掉后数字货币重生 美元兼贬值与升值的可能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923742/)
 
-**撰稿：William**
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-28-205923.jpg)图片来源：focustaiwan.tw
-根据日经亚洲(Nikkei Asia)的报道, 周四，美国副总统卡玛拉·哈里斯(Kamala Harris)和台湾的副总统赖清德(William Lai)在洪都拉斯新总统就职典礼上进行了简短的交谈，这是一次罕见的会面，具有高度的象征意义，可能会加剧中共与美国之间的紧张关系。
+1月21日，郭文贵先生在GTV大直播指出：
 
-美国副总统卡玛拉·哈里斯说，她在洪都拉斯与一起参加典礼的台湾赖清德就中美洲的共同利益以及美国政府遏制移民的根本策略进行了交谈。美国副总统对记者说：“我们进行的简短对话实际上是关于该地区这一地区的共同利益，显然台湾对我们的根本原因战略感兴趣，”她补充说，赖曾与她有过接触。
+数字货币是未来发展的趋势，不可阻挡。比特币可能会超过10万，甚至50万、100万，但比特币和其他有原罪的数字货币都会被干掉。美元虽是当下最稳定的货币，但终将出现问题，可能是极度贬值；也有可能挤水后大幅升值，继续存在一段时间。美元的崩溃，会使所有的恐慌资金，流向数字货币，它将是最大的赢家。
 
-台湾官方中央通讯社将其描述为“简单的问候”，称两人“交谈简短，互动自然”。照片上面有一张他们在舞台上并排站着说话的照片，两人都戴着口罩，而赖先生则戴着一个交织着台湾和洪都拉斯国旗的翻领别针。
-
-**新闻来源：**[https://asia.nikkei.com/Politics/International-relations/Taiwan-s-vice-president-meets-Kamala-Harris-in-Honduras](https://asia.nikkei.com/Politics/International-relations/Taiwan-s-vice-president-meets-Kamala-Harris-in-Honduras)
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

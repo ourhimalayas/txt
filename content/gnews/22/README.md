@@ -2,24 +2,28 @@
 ---
 
 
-## 《纽约时报》承认 未接种疫苗者感染率、住院率低于已接种者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1923677/)
+## 爆料革命反对中共毒疫苗的重要性（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1923706/)
 
-翻译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-51.jpg)
-《国家脉动》记者娜塔莉1月27日报道，《纽约时报》承认，未接种过 COVID-19 疫苗但曾感染该病毒的人“感染率和住院率低于仅受疫苗保护的人”。
+整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-00-9-20-二-scaled.jpg)
+我一会儿再顺便跟你们说一说，就是现在到了北京参加奥运会的人，绝对不允许出门儿，就是出不去，跟监狱是一样的，被允许出门的人啊，都是奥林匹克官员。还有其他国家的官员. 由外交车辆，外交控制下又避开北四环。避开北四环，你能避开北四环能避开盘古吗?很多人都是避开盘古。但是你的开幕式就是都在旁边鸟巢举行的。没办法啊。外国人。你知道盘古从龙头变成龟头的一件事情。姐妹们，你们别以为你们说了全世界都知道了，很少人知道。
 
-《纽约时报》1 月 19 日发布的 COVID-19 直播博客解释了以前感染过该病毒的未接种疫苗者如何“与仅受疫苗保护的人相比，感染率和住院率更低”。
+你知道到达北京的奥林匹克的官员，哥们儿啊，也是支持咱们抵制奥运的，内部的咱们的哥们儿到达北京，到现场第一个到现场看咱们的盘古龟头。这哥们真的是懵了。他说他们办公室的那几个女孩儿使劲拍照，说你不到现场看，你无法相信盘古龙头变龟头，这种荒唐的故事。
 
-从 2021 年 5 月 30 日那周起，接种过疫苗且未感染过 Covid 的人感染冠状病毒和住院的风险最低，其次是未接种疫苗但之前被诊断出感染过 Covid 的的人。
+他说，我更加相信Miles，所说的疫苗。这件事情，这绝对是真实的，所有他们说我们后悔来中国，我们来中国前打疫苗绝对是错误的。Miles郭是对的，否则共产党不会那么害怕的，而且他们更加坚信Miles郭，我说的。
 
-然而，到 了10 月 3 日那周开始，有过感染且接种过疫苗的人对 Delta 变种的表现最好。**有过感染但未接种疫苗的人感染率和住院率也比仅受疫苗保护的人低。**
+冠状病毒是共产党的生化武器。你知道其中一个女孩说，我现在就要回去，我不在中国了。
 
-研究人员说：“这些数据与国际研究中观察到的趋势一致。”
+发布：于white
 
-《纽约时报》试图通过将其归因于“疫苗衍生免疫力减弱”来解释感染 COVID-19 的接种疫苗和未接种疫苗之间的差异。
-
-新闻链接：[https://thenationalpulse.com/2022/01/27/nyt-admits-unvaccinated-had-lower-covid-infection-rate/](https://thenationalpulse.com/2022/01/27/nyt-admits-unvaccinated-had-lower-covid-infection-rate/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
