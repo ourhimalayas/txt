@@ -15,62 +15,62 @@
 
 ---
 
-### [有声|日议员提议派高官赴台湾 首相未否定](/content/gnews/1/README.md)
+### [多伦多及周边地区每年需要增加 30% 的新住房单位才能满足需求](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [美驻华使馆申请外交撤离验证文贵先生公告](/content/gnews/2/README.md)
+ ` 扬帆枫叶快讯`
+
+### [有声|輝瑞董事會成員建議停止強制疫苗接種](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [DC大中华时事：中共中央巡视组原副组长董宏一审被判死缓](/content/gnews/2/README.md)
+### [加拿大已发现 BA.2 病例 ——Omicron 子变体](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [有声|日议员提议派高官赴台湾 首相未否定](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [欧洲议会议员、前法官米斯拉夫·科拉库西奇：过去的一年里，政府没有组织过一次关于新冠和疫苗的综合会议](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [DC大中华时事：中共中央巡视组原副组长董宏一审被判死缓](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [分诊的病人在Red Deer医院急诊室等待治疗时死亡](/content/gnews/3/README.md)
+### [分诊的病人在Red Deer医院急诊室等待治疗时死亡](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [有声|面对中共制裁 立陶宛表示无更名计划](/content/gnews/4/README.md)
+### [有声|面对中共制裁 立陶宛表示无更名计划](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [BC省原住民学校发现93个疑似坟墓](/content/gnews/5/README.md)
+### [BC省原住民学校发现93个疑似坟墓](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [2022.01.27疫苗灾难案例](/content/gnews/6/README.md)
+### [2022.01.27疫苗灾难案例](/content/gnews/11/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [特鲁多执意强推极端的互联网审查法案](/content/gnews/7/README.md)
+### [特鲁多执意强推极端的互联网审查法案](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [安大略省报告了 92 例与 COVID-19 相关的新死亡病例](/content/gnews/8/README.md)
+### [安大略省报告了 92 例与 COVID-19 相关的新死亡病例](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [有声|拜登做了全球灭共“先锋”](/content/gnews/9/README.md)
+### [有声|拜登做了全球灭共“先锋”](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [加拿大央行维持低利率以图缓解经济危机](/content/gnews/10/README.md)
+### [加拿大央行维持低利率以图缓解经济危机](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [有声|爆料革命战友谈美国撤回中共大使馆的意义](/content/gnews/11/README.md)
+### [有声|爆料革命战友谈美国撤回中共大使馆的意义](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [2022/01/27 墙内世界](/content/gnews/12/README.md)
+### [2022/01/27 墙内世界](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大央行维持关键利率目标不变，但警告加息迫在眉睫](/content/gnews/13/README.md)
+### [加拿大央行维持关键利率目标不变，但警告加息迫在眉睫](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [奥图尔在渥太华会见卡车车队，否认“极端分子”](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害](/content/gnews/15/README.md)
+### [律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [特鲁多疑感染“新冠病毒”而被再次隔离](/content/gnews/16/README.md)
- ` 扬帆枫叶快讯`
-
-### [有声|医疗数据和事实再次凸显疫苗的安全性问题](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [2022.01.27疫苗灾难觉醒](/content/gnews/18/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [美领事馆撤离是灭共的阶段性胜利](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [文•贵天成——文贵先生谈“北京冬奥会”（十九）](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
