@@ -2,8 +2,8 @@
 ---
 
 
-## 为什么叫甜蜜蜜行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922831/)
+## 用甜蜜蜜开启中共的噩梦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922901/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

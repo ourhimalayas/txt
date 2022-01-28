@@ -2,24 +2,34 @@
 ---
 
 
-## 俄罗斯正往乌克兰前线派遣医疗队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1922799/)
+## 美国明尼苏达州起诉涉嫌大规模造假的新冠测试公司
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922880/)
 
-#### 撰稿：彩虹   
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-46.jpg)图片来源：澳大利亚人报
-1月27日，《新闻极限》引述《华尔街日报》的报道，周四，西方国防官员报告说，莫斯科正在往乌克兰前线派遣医疗队。
+整理/编辑：小红帽
 
-报道说，大约有10万名俄罗斯军人驻扎在乌克兰前线。之前，俄罗斯在格鲁吉亚和乌克兰边境附近集结了大量部队，但在大规模集结后又缩减了部队，这使得西方情报组织无法确定弗拉基米尔·普京（Vladimir Putin）总统的计划。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)图片来源：雅典娜设计组
 
-本周早些时候，副国务卿温迪·谢尔曼（Wendy Sherman）说：“我不知道他是否已经做出最终决定，但我们确实看到各种迹象表明他将在某个时候，也许是现在和2月中旬使用军事力量。”
 
-而《华尔街日报》引用一匿名的德国高级官员的话说：“美国认为普京将进行一场全面的战争，而欧洲人认为他是在虚张声势，美国人正在为发生的军事行动做准备，而我们则没有。”
+根据《自然新闻》1月27日报道，数千万美国人继续抵制那些说服或强迫他们接种新冠病毒（COVID-19）疫苗的规定，原因是，人们从一开始就在这场大流行病上被骗了，而这不过是为了追求纯粹的政治权力。
 
-**新闻来源**
+在明尼苏达州，对位于伊利诺伊州的新冠病毒测试公司提起的诉讼中，这些谎言又被重新揭穿，理由是它们涉嫌“欺骗消费者”。
 
-[Moscow Moves Medical Units to Ukrainian Front](https://www.newsmax.com/newsfront/russia-ukraine-medical-units-military/2022/01/27/id/1054375/)
+《西方日报》（The Western Journal notes）指出：援引埃里森办公室1月26日发布的新闻稿，该诉讼称，新冠病毒控制中心（the Center for COVID Control）和医生临床实验室公司（Doctors Clinical Laboratory  Inc.）“要么未能提供测试结果，要么提供了伪造或不准确的测试结果”。
+
+根据《NBC》1月14日报道，新冠病毒控制中心是新冠病毒测试领域最大的参与者之一，在全国拥有 300 多个站点。报道指出，该公司正在接受联邦调查，并正在几个州接受司法部长的调查。
+
+新闻链接：[Minnsota f](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[e](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[iling suit against COVID testing company allegedly engaged in massive cover-up](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,63 @@
 ---
 
 
-## 国防部暂停对文职雇员强制接种中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1922635/)
+## 普京知道乌克兰不会攻击俄罗斯
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1922667/)
 
-#### 撰稿：彩虹
+[https://gtv.org/video/id=61f29a8f87664c47acdacddf](https://gtv.org/video/id=61f29a8f87664c47acdacddf)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-45.jpg)图片来源：国会山报
-1月27日，《国会山报》报道，在德克萨斯州的一名联邦法官作出裁决，阻止拜登总统对联邦工作人员的强制接种中共病毒疫苗后，国防部正在暂停对文职雇员进行强制接种中共病毒（COVID-19）疫苗。
+Mike Pompeo: Putin knows that Ukraine is not going to attack Russia
+普京知道乌克兰不会攻击俄罗斯
 
-周四，五角大楼新闻秘书约翰·柯比（John Kirby）告诉记者，“国防部已发布指导意见，暂停所有与处理文职人员（中共病毒）疫苗接种豁免申请有关的活动，以及暂停对未能接种（中共病毒）疫苗的联邦文职人员采取任何纪律处分。该指南确保遵守美国德克萨斯州南部地区法院于1月21日星期五发布的全国范围内的初步禁止令。”
+Vladimir Putin has wanted to put Russia-friendly leaders in the capital Kyiv and control of the country for awfully long time
+弗拉基米尔·普京(Vladimir Putin)长期以来一直希望将对俄罗斯友好的领导人安置在首都基辅并控制该国
 
-2021年10月份，国防部长劳埃德·奥斯汀（Lloyd Austin）下令所有70万名文职部门员工在11月22日前接种中共病毒疫苗，以遵守拜登在一个月前宣布的关于联邦工作人员的行政命令。
+and now he’s tried to do so through.
+现在他正试图做到这一点
 
-五角大楼网站提供的最新数据显示，目前有341,836名文职人员完全接种了中共病毒疫苗，50,710人部分接种了中共病毒疫苗。
+Political gamesmanship, coercion all kinds of things, of the tools that statecrafts are not overt,
+政治手段，胁迫各种东西，以及不公开的治国手段
 
-上周五，杰弗里·布朗（Jeffrey Brown）法官发布禁令，禁止联邦政府对联邦工作人员执行这一强制接种任务。他说，此案是关于“总统是否可以在没有国会意见的情况下，用笔一挥，要求数百万联邦雇员接受一项医疗程序，作为他们就业的条件”。
+now he appears to be massing troops, not only inside western Russia, but inside Belarus as well.
+现在他似乎正在集结军队，不仅在俄罗斯西部，而且在白俄罗斯境内
 
-然而，五角大楼新闻秘书柯比强调，布朗的裁决并不适用于军人，也不影响五角大楼的任何其他健康保护措施。
+A short run down into Ukraine from there, preparing coercive force capacity to change what Ukraine people want from where they are today
+从那里进入乌克兰，准备强制力量改变乌克兰人民今天想要的独立、自由
 
-文章报道，总的来说，160万军人已经完全接种了中共病毒疫苗，339,369人已经部分接种。
+With President Zelensky running an important country, a country that matters the United States, and he wants to put someone friendly to Russia.
+泽连斯基总统管理着一个重要的国家，一个对美国至关重要的国家，普京想找一个对俄罗斯友好的人
 
-**新闻来源**
+So he put this in the newspapers and brought it up on the Russia outlets, this is a Russian propaganda.
+所以他把这个放在报纸上，放在俄罗斯的媒体上，这是俄罗斯的宣传
 
-[Pentagon pauses civilian vaccine mandate after federal court ruling](https://thehill.com/policy/defense/591703-pentagon-pauses-civilian-vaccine-mandate-amid-federal-court-ruling?rl=1)
+Vladimir Putin knows that Ukraine is not going to attack Russia.
+弗拉基米尔普京知道乌克兰不会攻击俄罗斯
+
+To suggest somehow that there’s a threat from NATO or from Ukraine is just propaganda, an excuse for Vladimir Putin to do what he ultimately wants,
+以某种方式暗示存在来自北约或乌克兰的威胁只是宣传，是弗拉基米尔普京做他最终想要做的事情的借口
+
+which is to extend his influence, his authority, his power, his control into the former Warsaw Pact countries.
+即将他的影响力、他的权威、他的权力、他的控制权扩展到前华约国家
+
+* * *
+
+Date:01/24/2022
+原视频标题: Putin knows that Ukraine is not going to attack Russia
+普京知道乌克兰不会攻击俄罗斯
+原视频日期：2022/01/23
+原视频链接: [**https://twitter.com/mikepompeo/status/1485361579377967106?s=24**](https://twitter.com/mikepompeo/status/1485361579377967106?s=24)
+任务编号：KE366（3583）
+视频时间段 : 0:00-1:02
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
