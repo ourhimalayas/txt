@@ -2,8 +2,8 @@
 ---
 
 
-## 我们会结束所有中国人的恐惧，七哥将会出访欧洲
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922761/)
+## 共产党的冬奥的假成就甜蜜蜜运动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922909/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

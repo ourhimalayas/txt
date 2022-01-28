@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥最担心共产党的灭亡会带走更多人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922798/)
+## 俄罗斯取乌克兰或是假戏真做
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922923/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

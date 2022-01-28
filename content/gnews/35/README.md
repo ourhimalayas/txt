@@ -2,20 +2,22 @@
 ---
 
 
-## 中日财经爆|黑田东彦呼吁和欧美合作制定CBDC数字货币全球标准
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922282/)
+## 中日财经爆|加拿大竟然称紫金矿业收购Neo Lithium 无国安风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922284/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2303.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=tkVRfXYy-0prQM)
-日本央行总裁黑田东彦周五（1月28日）表示，日本必须与欧洲和美国合作，就发行央行数字货币(CBDC)的技术要求建立一个全球标准。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2304.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=3KSwIQj5wzamSM&amp;imgdii=6MmlZQG-UUMcUM)
+加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四（1月27日）表示，加拿大并未阻止中共国紫金矿业收购加拿大上市的锂矿公司Neo Lithium，因认为不存在国家安全风险。
 
-黑田东彦对国会表示，虽然日本央行还没有决定是否发行自己的数字货币，但它正在进行试验，并计划审议数字货币的具体设计。日本是否会发行CBDC的最终决定，必须由日本央行、政府和民间密切磋商后作出。
+反对党“保守党”表示，执政的自由党政府本应阻止紫金矿业去年以9.187亿加元收购Neo Lithium[NLC.V](https://cn.reuters.com/companies/NLC.V)。
 
-黑田东彦说：“最重要的是这个想法要得到公众的充分理解。”
+保守党表示，在美国与加拿大合作促进关键矿物的区域供应链，以对抗中共国主导地位的时候，允许这宗收购的决定并不合理。
 
-财务大臣铃木俊一在同一场合表示，日本正密切关注中共国在发行数字人民币方面的快速发展。
+商鹏飞对下议院工业委员会表示：“有足够的信息来确定…这项交易不会对国家安全造成损害。Neo Lithium的矿产储备是由碳酸锂组成，而电动汽车电池生产商偏好使用氢氧化锂。”
 
-消息来源：[日本必须与欧美合作制定央行数字货币的全球规范–央行总裁黑田东彦](https://cn.reuters.com/article/boj-us-eu-digital-currency-0128-idCNKBS2K20B7?il=0)
+去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+
+消息来源：[加拿大称没有必要阻止紫金矿业收购Neo Lithium 因不具国安风险](https://cn.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB?il=0)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*

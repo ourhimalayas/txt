@@ -2,25 +2,24 @@
 ---
 
 
-## Facebook加密货币项目宣告失败，正在转让
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1922540/)
+## 樱花头条│日美政府首次商谈中共人权问题 或为联合制裁中共做准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922585/)
 
-#### 撰稿：彩虹       
+撰稿：东京樱花团/NewSGman
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2312.png)[图片来源](https://news.ifeng.com/c/8B0RkqjaqxT)
+1月26日，负责国际[人权事务](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83%E4%BA%8B%E5%8A%A1)的日本首相助理中谷元在网上会见了负责平民保护、[民主](https://gettr.com/hashtag/%23%E6%B0%91%E4%B8%BB)和[人权](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83)的美国副国务卿泽亚。双方同意促进各相关组织之间和层面的意见交流，以深化日美两国在[人权领域](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83%E9%A2%86%E5%9F%9F)的合作。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2309.png)图片来源：Engadget
-1月27日，《国会山报》引述《华尔街日报》文章说，在证明项目不成功后，Facebook（脸书）正在出售其被称为Diem Association 的加密货币项目的技术。
+中谷先生对美国保护自由民主等，普世价值的决心和举措表示敬意。 泽亚也是西藏问题的特别协调员，据信双方已经讨论过中国的人权问题。
 
-报道说，该技术将出售给加州一家与比特币和区块链公司合作的小型银行银门资本公司（Silvergate Capital Corp），价格约2亿美元。之前，该银行和Diem之间达成了一项发行一些稳定币的协议，这些稳定币被认为是波动性小并有硬通货支持。并且，该交易是为了满足监管机构的要求而对项目进行改造努力的一部分。
+中谷元同时长期关注中国新疆和香港等地人权状况。现年64岁的中谷元，曾在2001年出任小泉纯一郎内阁的防卫厅长官；2014年，他获时任首相安倍晋三委任为防卫大臣。2021年4月，作为众议员议员的中谷元发起成立“全党议会人权外交联盟”，致力于推动日本版的《全球马格尼茨基人权问责法案》。
 
-该加密货币项目最初名为天秤币（Libra），但却一开始就遇到了挑战。2020年底，该项目将名称从天秤币（Libra）改为了Diem Association，以反映设计者为了“满足监管期望”而做的调整。
+《马格尼茨基人权问责法》（英语：The Global Magnitsky Human Rights Accountability Act），对违反人权及国外显著腐败人士实施[制裁](https://zh.wikipedia.org/wiki/%E5%88%B6%E8%A3%81)，例如禁止入境、冻结并禁止官员在美国的财产交易。
 
-文章特别指出：包括美联储主席杰罗姆·鲍威尔（Jerome Powell）在内的官员仍对该平台提供安全和隐私的能力表示担忧。《华尔街日报》也指出，还有人担心该平台被洗钱者和恐怖主义金融家利用。
+信息来源：[米人権担当とオンライン会談　中谷補佐官](https://www.jiji.com/jc/article?k=2022012600492&amp;g=pol)
 
-**新闻来源**
-
-[Facebook winding down cryptocurrency effort: report](https://thehill.com/policy/technology/591710-facebook-winding-down-cryptocurrency-effort-report)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
