@@ -2,22 +2,21 @@
 ---
 
 
-## 什么是教育
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921085/)
+## 雅典娜时报-第187期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921105/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-
-```
-发布：tianzhihuan
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/936449180375851028/155-7.png?width=768&amp;height=1144)
+*发布：陶子*
 更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
-```
-
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

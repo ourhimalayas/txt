@@ -2,21 +2,27 @@
 ---
 
 
-## 美国纽约州最高法院法官裁决，驳回纽约州强制口罩令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1919677/)
+## 中共防疫政策朝令夕改，人民因此受苦
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1919678/)
 
-撰稿：台湾宝岛农场—新中国联邦静
+撰稿：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月24日，一位纽约州最高法院法官驳回了纽约州强制口罩令，裁定纽约州长和卫生部，无权在未经州议会批准的情况下颁布此类授权。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-78.jpg)
-在周一发布的一份意见中，拿索县最高法院法官托马斯-拉德梅克认为，由于纽约在宣布强制口罩令时，已不再处于紧急状态，州长和相关权责人士无权颁布强制口罩令，并补充说到强制口罩令现在无法执行 。 拿索县行政长官布鲁斯. 布莱克曼，在推特上对纽约州最高法院法官的司法裁决回应，他写道「这对学生和家长来说是一个重大胜利」。 纽约州长的强制口罩令是违法的，未经州立法机关批准，州长和州教育部无权执行此任务。
+北京时间1月24日，中共国家发改委等14部门颁布防疫新规，除一直以来的红码、黄码、绿码之外，又新增了绿码加星号的模式。 而凡是健康码出现带星号的居民，都会被强制隔离14天或者被勒令原路返回。 中共临时颁布的防疫新规违背了两周前对人民的承诺，中共曾承诺不会利用健康码限制人民出行，因此中共的防疫措施受到了百姓的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-79.jpg)
+而同一天在河南，被爆出一位经过18次核酸检测结果全为阴性的学生，返校时因为居住地被列为高风险区域， 遭到当地疫情防控指挥所拒绝该学生返家进行自我隔离，甚至也不允许自费前往隔离点隔离。 因此，这位学生和她的母亲被迫在雪地里苦等了一夜，受媒体采访时该母亲表示：”如果每一个教训都需要付出生命的代价，才能成为教训得话，这样是不是太惨痛了”。
 
-参考链接：[美国纽约州最高法院法官裁决，驳回纽约州强制口罩令](https://edition.cnn.com/2022/01/24/us/new-york-state-mask-mandate-ruling/index.html?utm_content=2022-01-25T09%3A51%3A53&amp;utm_term=link&amp;utm_medium=social&amp;utm_source=twCNN)
+据统计，中共近期防疫政策已经造成多起孕妇流产、被拒诊而丧命等伤亡，有评论人士指出中共视百姓的生命和尊严为草芥。
+
+参考链接：
+1. [部分地方绿码有星要隔离14天](https://china.huanqiu.com/article/46X2mctoVw2)
+2. [不搞“层层加码”“一刀切” 保春运安全有序](https://china.huanqiu.com/article/46JfF62Wvyt)
+3.[母女俩大雪中冻一夜？防控政策要多些“保温”预案](https://ie.bjd.com.cn/5b165687a010550e5ddc0e6a/contentApp/5b16573ae4b02a9fe2d558fb/AP61ee65ace4b0872a621373eb.html?isshare=1&amp;contentType=0&amp;isBjh=0)
+4. [中共防疫政策朝令夕改，人民因此受苦](https://video.sina.cn/news/2022-01-24/detail-ikyakumy2226652.d.html?wm=)
 
 ![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-总编：天灭中共、zhong
-编辑：Kathy文艺
+总编：Irene木木
+编辑：文特
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

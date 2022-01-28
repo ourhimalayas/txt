@@ -2,16 +2,22 @@
 ---
 
 
-## 文贵先生盖特直播要点-5周年（2022年1月26日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1921127/)
+## 经历是最好的老师，七哥的64经历
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921140/)
 
-#### 设计：波士顿五月花 科存
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵大直播要点.5周年.20220126.png)
 
-* * *
+```
+发布：tianzhihuan
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
+```
 
-*发布：霹雳鼠年*
 
  
 

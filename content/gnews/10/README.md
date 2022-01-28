@@ -2,14 +2,12 @@
 ---
 
 
-## 文贵大直播要点-图片（2022年1月27日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1921095/)
+## 文贵先生盖特直播要点-5周年（2022年1月26日）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1921127/)
 
-#### 设计：波士顿五月花 水涨船高
+#### 设计：波士顿五月花 科存
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵大直播要点01.20220127-scaled.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵大直播要点02.20220127-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵大直播要点.5周年.20220126.png)
 
 * * *
 

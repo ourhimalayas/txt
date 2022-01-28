@@ -2,12 +2,15 @@
 ---
 
 
-## 1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1920662/)
+## 2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1920663/)
 
-1/19/2022 文贵直播：首次公布今年5月份病毒将接近尾声，疫苗灾难将接踵而至；习太阳转而邀约共享疫苗经济；中共粉饰太平，中国老百姓被困家中；北京冬奥涂脂抹粉终将唱响中共丧歌。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
 
  
 

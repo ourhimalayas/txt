@@ -15,130 +15,130 @@
 
 ---
 
-### [瑞典拒绝为儿童接种“新冠病毒”疫苗](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [经历是最好的老师，七哥的64经历（二）](/content/gnews/2/README.md)
+### [最好的老师是上天](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [《蓝枫法律》第四十期 金融税务专题](/content/gnews/3/README.md)
+### [无数的大头症](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵大直播要点-图片合辑（2022年1月27日）](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
+
+### [瑞典拒绝为儿童接种“新冠病毒”疫苗](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [经历是最好的老师，七哥的64经历（二）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [《蓝枫法律》第四十期 金融税务专题](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [经历是最好的老师，七哥的64经历](/content/gnews/4/README.md)
+### [经历是最好的老师，七哥的64经历](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大卡車司機車隊被當局勢力惡意滋擾](/content/gnews/5/README.md)
+### [加拿大卡車司機車隊被當局勢力惡意滋擾](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（十二）](/content/gnews/6/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（十二）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生盖特直播要点-5周年（2022年1月26日）](/content/gnews/7/README.md)
+### [文贵先生盖特直播要点-5周年（2022年1月26日）](/content/gnews/10/README.md)
  ` 波士顿五月花农场`
 
-### [PCR测试棒不带毒](/content/gnews/8/README.md)
+### [PCR测试棒不带毒](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [雅典娜时报-第187期](/content/gnews/9/README.md)
+### [雅典娜时报-第187期](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵大直播要点-图片（2022年1月27日）](/content/gnews/10/README.md)
+### [文贵大直播要点-图片（2022年1月27日）](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [G系列 to the Moon](/content/gnews/11/README.md)
+### [G系列 to the Moon](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [什么是教育](/content/gnews/12/README.md)
+### [什么是教育](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [习太阳的奥运圆满成功](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [CCP的奥运会必定尴尬收场](/content/gnews/15/README.md)
+### [七哥感谢5年来战友的陪伴](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [中国老板只是CCP的小三](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [拜登政府撤销有关疫苗接种及临时检测强制要求](/content/gnews/17/README.md)
+### [科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拒绝参加北京冬奥会，莫与中共邪灵共舞](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [GTV新闻访谈简报|2022年1月27日晚](/content/gnews/18/README.md)
+ ` 纽约香草山MOS01`
 
-### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/19/README.md)
+### [拜登政府撤销有关疫苗接种及临时检测强制要求](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥开心的事冬奥会能开成功](/content/gnews/20/README.md)
+### [七哥开心的事冬奥会能开成功](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/21/README.md)
+### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/22/README.md)
+### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [习近平政府发起反洗钱运动，预示党内政治内斗加剧](/content/gnews/23/README.md)
+### [习近平政府发起反洗钱运动，预示党内政治内斗加剧](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/24/README.md)
+### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [饮鸩止渴，中共国地方融资平台大量回购出让土地](/content/gnews/25/README.md)
+### [饮鸩止渴，中共国地方融资平台大量回购出让土地](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/26/README.md)
+### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/27/README.md)
  ` MOS香港部`
 
-### [台湾副总统过境美国，视频会晤美议员并获国会两党赞扬](/content/gnews/27/README.md)
+### [台湾副总统过境美国，视频会晤美议员并获国会两党赞扬](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/28/README.md)
+### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/29/README.md)
+### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/19文贵直播：参加达沃斯论坛的没人打疫苗（粤语配音）](/content/gnews/30/README.md)
+### [1/19文贵直播：参加达沃斯论坛的没人打疫苗（粤语配音）](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共用数字人民币操纵经济控制人民](/content/gnews/31/README.md)
+### [中共用数字人民币操纵经济控制人民](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [西方盟国就乌克兰问题抛弃加拿大](/content/gnews/32/README.md)
+### [西方盟国就乌克兰问题抛弃加拿大](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/33/README.md)
+### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报](/content/gnews/34/README.md)
+### [五月花简报](/content/gnews/35/README.md)
  ` mayflowertranslate`
 
-### [美国撤离驻华使馆，高情商与低情商](/content/gnews/35/README.md)
+### [美国撤离驻华使馆，高情商与低情商](/content/gnews/36/README.md)
  ` zuzu`
 
-### [Eglise医生讲述青蒿素有助眠安神抗抑郁作用](/content/gnews/36/README.md)
+### [Eglise医生讲述青蒿素有助眠安神抗抑郁作用](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [五月花简报](/content/gnews/37/README.md)
+### [五月花简报](/content/gnews/38/README.md)
  ` mayflowertranslate`
 
-### [中共防疫政策朝令夕改，人民因此受苦](/content/gnews/38/README.md)
+### [中共防疫政策朝令夕改，人民因此受苦](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [美国纽约州最高法院法官裁决，驳回纽约州强制口罩令](/content/gnews/39/README.md)
+### [美国纽约州最高法院法官裁决，驳回纽约州强制口罩令](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](/content/gnews/40/README.md)
+### [男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [马里克博士斥美政府激励医院开出有毒治疗药物](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [彼得·麦卡洛博士致力於反強制疫苗 呼籲：应立即停止接种中共病毒疫苗！](/content/gnews/42/README.md)
+### [马里克博士斥美政府激励医院开出有毒治疗药物](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
 ### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/43/README.md)
