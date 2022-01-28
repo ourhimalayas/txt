@@ -2,31 +2,33 @@
 ---
 
 
-## 有声|布林肯批评中共为中美关系带来更大侵略性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924143/)
+## 中共在拜登的背后寻求与沙特的军事协定—武器销售飙升400%。
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1924181/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，美国国务卿布林肯在亚特兰大的虚拟讨论会上，批评中共政府比前几十年更具侵略性，使美中关系变得越来越敌对。
+素材整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-28-at-10.15.59-PM.png)图片来源：互联网
+随着美国在中东地区影响力的减弱，中共希望与沙特建立更紧密的军事关系。在今天（星期四）国防部长之间的通话中，中共和沙特表示将建立一个新兴的军事联盟。中共国防部长魏凤和承认沙特阿拉伯在台湾、香港和新疆等问题上对北京的 “大力支持”–这是与中共西方国家发生大规模摩擦的根源。
 
-无论从经济实践、人权保护、知识产权待遇，还是为经济落后国家提供海外贷款方面，中共时时处处体现出侵略与傲慢之态。中共的步步紧逼，严重危害美国利益，迫使美国不得不做出政策调整。
+美国长期以来一直将沙特作为盟友，并一直是其石油产品的主要进口国之一。然而，近年来，这种关系已经变得疏远。2018年，《华盛顿邮报》记者Jamal Khashoggi被暗杀，导致两国之间出现裂痕。随着美国加紧生产页岩油，它对沙特石油的依赖程度也在降低。
 
-美国不仅积极联合盟国，外交抵制北京冬奥会，更表示将授权撤离驻北京大使馆。郭文贵先生表示，这项行动也为美国下一步的行动提供了合法的依据。
+《南华早报》报道，魏将军呼吁两国 “加强协调，共同反对霸权主义和欺凌行为，共同维护发展中国家的利益”。
 
-文字版原文：[布林肯批评中共为中美关系带来更大侵略性](https://gnews.org/zh-hans/1921625/)
+作为回应，哈立德亲王敦促加强合作，”将军事关系提升到更高的水平”。
 
-音频处理：Fei797
-发稿：Fei797
+据报道，中国正寻求将其作为一个新的舞台，从美国手中夺取全球权力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+根据武器研究组织Sipri的数据，美国仍然是沙特阿拉伯最大的武器供应商，从2016年到2020年，美国对沙特阿拉伯的武器出口有24%。《南华早报》说，在同一时期，中国对沙特的武器销售增长了近400%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月，美国有线电视新闻网(CNN)公布了美国的情报和卫星图像，据称这些图像显示，沙特阿拉伯正在中国的协助下建造自己的弹道导弹。
+
+自上任以来，乔-拜登只在去年2月与沙特国王萨勒曼-本-阿卜杜勒-阿齐兹-沙特谈过一次。
+
+* * *
+
+*编辑&发布：Vicky*
+
+原文链接：[China seeks military pact with Saudi Arabia behind Biden’s back – arms sales soar by 400%](https://www.express.co.uk/news/world/1557001/china-news-military-alliance-Saudi-arabia-us-joe-biden-middle-east-relations)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

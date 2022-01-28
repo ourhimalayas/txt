@@ -2,34 +2,38 @@
 ---
 
 
-## 外媒质疑中共国疫情数据的真实性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1924064/)
+## DC每日热点0128
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1924122/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月26日，据西方媒体报道称，自中共病毒爆发以来，近一年内，中共政府从未报告过一起中共国内民众因感染病毒而死亡的案例，这引起了相关媒体对中共国疫情数据准确性的质疑。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-31.jpg)
-报道指出，尽管中共国大部分地区近期爆发了严重的疫情，但在此期间，当地却没有报告任何一起死亡病例，加之中共政府反复强调的所谓“清零”政策，这让世界在质疑中共国病毒数据准确性的同时，又对该国疫情有着强烈的担忧。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/BAC1822C-55AC-47B5-ADB3-DC1B4929F639-scaled.jpeg)
+道琼斯指数 34160.78 ▼0.02%
+纳斯达克指数 13352.78 ▲1.40%
+WTI纽约原油CFD 88.191 ▲1.83%
+布伦特原油CFD 89.575 ▲1.59%
+标普50指数 2,552.21 ▼55.67%
+美元兑人民币 1USD=6.359 RMB
+美元兑港币 1USD=7.793 HKD
+国际黄金 1785.4 美元/盎司
+全球CCP病毒感染人数367,580,434例
 
-据中共国家卫生健康委员会提供的数据显示，截止当天，中共国内仅有5700起病毒死亡案例，是世界上报告死亡率最低的国家之一。
+1、全球243个非政府组织敦促各国政府共同外交抵制北京冬奥会
+2、美众议员提案取消从中共国等进口的低价值商品免税待遇以堵住进口漏洞
+3、美国了解到俄罗斯与布基纳法索政变有关联的指称，美国防务官员拒绝表示这些指称是否可信
+4、美政府机构发表有关中共国等国家网络审查制度报告，两党参议员呼吁回击
+5、印度总理莫迪与中亚领导人举行首次视频峰会
+6、美国总统拜登27日承诺他会提名一位黑人女性来接替即将退休的大法官史蒂芬·布雷耶
+7、美国政府把中国联通列入违规名单，吊销其在美经营权
+8、因中共对立陶宛采取歧视性的贸易限制做法，欧盟已向世界贸易组织 (WTO) 提起针对中共国的诉讼
+9、英媒爆中共国超音速武器专家投诚 助西方防御
+10、朝鲜近期多次发射飞弹，威胁国际及区域和平，欧盟呼吁朝鲜停止任何破坏区域稳定的行动
+11、乌克兰对美国就莫斯科为解决乌克兰危机而提出的安全要求清单的回应感到满意
+12、台湾官方数据显示，在中共国对香港接管日益加强下，2021年移居台湾的香港人数量创下新纪录
+13、白宫考虑延长川普时期太阳能板进口关税
+14、美国促北京改变对外交官的隔离和检测要求
+15、韩国境内感染奥密克戎（Omicron）变种毒株的确诊者已过半，新增确诊者连续两日破万
+16、美国副总统哈里斯和台湾副总统赖清德在参加洪都拉斯总统卡斯特罗就职典礼期间短暂交谈
 
-对此，评论人士分析称，中共政府极力掩盖其病毒死亡真实数据的原因有二，其一在于为将来病毒溯源做好推卸责任的准备，其二则是向世界炫耀其所谓的“清零”政策行之有效。然而，中共荒唐的造假数据最终必将引起世界的质疑和关注。
-
-参考链接：[China Hasn’t Reported A Single Covid Death In A Year, As Questions Remain About Accuracy Of Its Data](https://www.forbes.com/sites/siladityaray/2022/01/26/china-officially-hasnt-reported-a-single-covid-death-in-a-year-as-questions-remain-about-accuracy-of-its-data/?sh=2fd485a33d62)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-总编: 雪梨
-编辑：百香果
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

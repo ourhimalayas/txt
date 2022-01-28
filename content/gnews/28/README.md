@@ -2,45 +2,34 @@
 ---
 
 
-## 1/28/2022国际财经快讯：苹果销售和利润最高预期因芯片短缺放缓；因旅游和在线支出增加Visa利润超过季度预期
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1923995/)
+## 外媒质疑中共国疫情数据的真实性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1924064/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-165.png)[图片来源](https://www.reuters.com/)
-**1.苹果销售和利润的最高预期因芯片短缺放缓**
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月26日，据西方媒体报道称，自中共病毒爆发以来，近一年内，中共政府从未报告过一起中共国内民众因感染病毒而死亡的案例，这引起了相关媒体对中共国疫情数据准确性的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-31.jpg)
+报道指出，尽管中共国大部分地区近期爆发了严重的疫情，但在此期间，当地却没有报告任何一起死亡病例，加之中共政府反复强调的所谓“清零”政策，这让世界在质疑中共国病毒数据准确性的同时，又对该国疫情有着强烈的担忧。
 
-[苹果公司(AAPL.O)正在克服代价高昂的全球计算机芯片短缺问题，在假日季度公布了创纪录的销售额，超过了利润预期，并预测其缺口正在缩小。分析师表示，这家iPhone制造商是全球市值最大的公司，它比任何顶级同行都更好地应对了供应链挑战，例如工厂关闭和大流行带来的运输延误。苹果股价在盘后交易中上涨约5%，收复了今年一半的跌幅。然而，作为许多零部件供应商最大客户的苹果公司利用其购买力来挤压这些供应商，以提供足够的产品来推动其iPhone、Mac以及可穿戴设备和配件领域的创纪录销量。苹果高管表示，芯片短缺主要影响其老款产品，尤其是iPad销售放缓。](https://www.reuters.com/technology/apple-sales-profit-top-estimates-iphone-dodges-supply-chain-hits-2022-01-27/)
+据中共国家卫生健康委员会提供的数据显示，截止当天，中共国内仅有5700起病毒死亡案例，是世界上报告死亡率最低的国家之一。
 
-**2.因旅游和在线支出增加Visa利润超过季度预期**
+对此，评论人士分析称，中共政府极力掩盖其病毒死亡真实数据的原因有二，其一在于为将来病毒溯源做好推卸责任的准备，其二则是向世界炫耀其所谓的“清零”政策行之有效。然而，中共荒唐的造假数据最终必将引起世界的质疑和关注。
 
-[Visa Inc(V.N)周四超出华尔街的季度预期，因为更多的国际旅行和电子商务推动了支出量的增加。尽管由于冠状病毒的Omicron变体，自12月下旬以来旅行支出一直停滞不前，但Visa高管表示，他们认为今年第二财季将恢复复苏，净收入将增长。Visa董事长兼首席执行官Alfred Kelly在与分析师的电话会议上表示：“上行将来自旅行的持续复苏以及富裕客户的支出组合恢复到大流行前的水平。”这家全球最大的支付处理商报告称，本季度交易量同比增长21%至476亿美元。9月至11月美国边境和欧洲境内大部分边境重新开放时，跨境客流量增加了40%。](https://www.reuters.com/business/visa-profit-beats-expectations-covid-restrictions-ease-2022-01-27/)
+参考链接：[China Hasn’t Reported A Single Covid Death In A Year, As Questions Remain About Accuracy Of Its Data](https://www.forbes.com/sites/siladityaray/2022/01/26/china-officially-hasnt-reported-a-single-covid-death-in-a-year-as-questions-remain-about-accuracy-of-its-data/?sh=2fd485a33d62)
 
-**3.黑石公布第四季度创纪录的收益**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-[黑石公司(BX.N)周四表示，可分配收益增长55%至历史新高，因为这家全球最大的另类资产管理公司利用市场上涨的机会以高价出售资产。在大量廉价资本和飙升的企业估值的推动下，私募股权交易推动全球并购活动在2021年创下历史新高。但今年并购活动的前景更加不确定，在通胀上升、提议加息以及美联储结束债券购买计划的情况下，公开市场回吐了近期的涨幅，美联储主席杰罗姆鲍威尔在一次演讲中重申了这一点。 周三Blackstone表示，即使在当前环境下，由于其投资组合的质量、资本的长期存续期和筹资规模，其前景仍然乐观。](https://www.reuters.com/business/finance/blackstone-reports-record-fourth-quarter-earnings-2022-01-27/)
+总编: 雪梨
+编辑：百香果
+校正/发稿：Fei797
 
-**4.马来西亚亚航集团有限公司更名**
-
-[马来西亚亚航集团有限公司周五表示，它已更名为Capital A Bhd，以反映其在核心廉价航空公司之外不断增长的业务组合。由于亚洲严格的旅行规则，航空业务在大流行期间受到重创，导致马来西亚证券交易所本月将该公司列为财务困境，尽管它一直在筹集资金以加强其资产负债表。该组织于1月3日提议更名。Capital A一直在大力投资支付业务BigPay、物流Teleport及其移动超级应用，以获取其他收入来源。“在过去的两年里，我们在飞行的低迷时期为一个可行和成功的未来奠定了坚实的基础，这不仅仅依赖于机票，”Capital A首席执行官托尼费尔南德斯在一份声明中说。](https://www.oann.com/airasia-changes-name-to-capital-a-as-it-grows-beyond-an-airline/)
-
-**5.丰田仍然是世界上最大的汽车销售商**
-
-[日本丰田汽车公司周五表示，其去年的汽车销量增长了10.1%，连续第二年成为全球最大的汽车制造商，并进一步领先于其最接近的竞争对手德国大众汽车公司。这家汽车制造商表示，2021年的销量为1050万辆，其中包括附属公司大发汽车和日野汽车的销量。汽车制造商被迫减产，因为在冠状病毒大流行期间半导体短缺扰乱了供应链，加剧了消费电子设备制造商之间对关键部件的竞争。然而，这家日本公司比大多数其他汽车制造商更好地度过了这场大流行，因为其本土市场、日本和亚洲部分地区受到的影响小于欧洲。](https://www.oann.com/toyota-remains-worlds-biggest-car-seller-widens-lead-on-vw/)
-
-**6.法国2021年经济增长7%，52年来最强劲**
-
-[周五的数据显示，由于欧元区第二大经济体从COVID-19危机中反弹的速度快于预期，法国去年实现了50多年来最强劲的增长，达到7%。尽管COVID-19正在复苏，但在距4月大选不到三个月的时间里，这一代人中最强劲的繁荣巩固了总统埃马纽埃尔·马克龙(Emmanuel Macron)的经济实力，人们普遍预计他将竞选第二个任期。INSEE统计机构在一份初步报告中表示，在经历了特别强劲的第三季度增长3.1%之后，经济在今年最后三个月增长了0.7%。路透社调查的经济学家平均预测第四季度增长0.5%。年底好于预期意味着经济在2021年整体增长7%，是自1969年以来最强劲的增长，此前2020年严格的冠状病毒封锁措施实施后经济收缩了8%。](https://www.oann.com/french-2021-economic-growth-strongest-in-52-years-at-7/)
-
-**7.Robinhood净亏损4.23亿美元，盘后股价下跌**
-
-[免佣金经纪公司Robinhood Markets Inc (HOOD.O)周四公布，最近一个季度净亏损4.23亿美元，其股价在盘后交易中下跌多达15%。Robinhood报告在截至12月的三个月内净亏损4.23亿美元或每股0.49美元。 一年前，也就是首次公开募股之前，该公司公布的净收入为700万美元或每股0.01美元。在业绩公布后的延长交易中，Robinhood的股价下跌了15%至9.98美元。 去年7月IPO时的股价为38美元，8月创下历史新高85美元。Robinhood在其作为上市公司的第三组业绩中公布，截至12月31日的第四季度总收入为3.63亿美元，而去年同期为3.18亿美元。](https://www.reuters.com/technology/robinhood-edges-past-revenue-estimates-crypto-boom-2022-01-27/)
-
-**8.财政刺激推动美国经济在2021年实现自1984年以来的最佳表现**
-
-[在政府投入数万亿美元用于COVID-19救济之后，美国经济在2021年实现了近40年来的最强劲增长，尽管受到大流行、供应链紧张和通货膨胀的不利影响，但仍有望继续前进。由于企业补充耗尽的库存以满足对商品的强劲需求，第四季度国内生产总值激增是最后的推动力。美国商务部周四报告的去年强劲增长支持美联储在3月份转向加息。美联储主席杰罗姆·鲍威尔周三在为期两天的政策会议后对记者表示，“经济不再需要持续高水平的货币政策支持”，“很快就会适当加息”。“虽然Omicron将导致第一季度的增长放缓，但一旦最新的大流行浪潮消退并且供应链故障得到缓解，预计活动将很好地反弹，”多伦多BMO Capital Markets的高级经济学家Sal Guatieri表示。](https://www.oann.com/u-s-economy-likely-regained-steam-in-q4-2021-growth-seen-best-in-37-years/)
-
-By【秘密翻译组-金融组】
-作者：小海星
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
