@@ -2,30 +2,22 @@
 ---
 
 
-## PCR测试棒不带毒
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921119/)
+## 俄乌在巴黎达成停战协议 两周后柏林将再度会谈
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1921230/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/PCR测试棒不带毒-.jpg)
-首先测试棒有毒，这个问题是胡扯的，所有的病毒它都有时效性，在暴露下很快就会消失。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-如果棉棒里边装进病毒，打开那一刻起首先感染的人，不是被测试的，首先是打开测试棒的那个人。
+1月26日，俄乌两国特使在巴黎会谈期间，达成了停火协议，這場會談事關化解分離主義者2014年以來在烏東戰亂情形，而非俄國入侵威脅，但在此俄乌两国紧张局势期间，此停火协议也传达出了局势缓解的积极信号。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-31.png)（图片来自中央社）
+中央社报道，法国外交人员表示，法国和德国居中斡旋的这场8小时会谈已传达出「好的信号」，俄乌两国特使签署了联合声明，这份联合声明承诺俄乌双方「无条件遵守停战」，同时双方约定将于2周后在柏林再度会谈。随后德国政府消息人士证实了此消息。
 
-如果这个测试棒里有病毒，这个技术能发生的话，基本上他就不用放毒了，它就有更高的技术让你定向放毒了。
+报道称，俄、乌、法、德2014年成立「诺曼底模式」会谈，试图调停乌克兰东部的冲突。值得关注的是本次停火协议的签署是乌克兰和俄罗斯自2019年以来，首度同意与法国和德国针对俄乌冲突签署联合声明。
 
-发布：于white
+参考链接：
+[https://www.cna.com.tw/news/aopl/202201270035.aspx](https://www.cna.com.tw/news/aopl/202201270035.aspx)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材采编：Kevin wang
+发布：文曦
 
  
 

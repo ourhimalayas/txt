@@ -2,22 +2,31 @@
 ---
 
 
-## 七哥开心的事冬奥会能开成功
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1920942/)
+## GTV新闻访谈简报|2022年1月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1921059/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
-```
-发布：tianzhihuan
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
-```
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-5.png)
+校对：Stay文苑
 
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.27  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f3470f28a108147c64237c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

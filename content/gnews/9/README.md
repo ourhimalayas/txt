@@ -2,22 +2,26 @@
 ---
 
 
-## 瑞典拒绝为儿童接种“新冠病毒”疫苗
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1921182/)
+## 特鲁多疑感染“新冠病毒”而被再次隔离
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1921289/)
 
-采编：UCool优酷     翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image-10.jpg)
-据加拿大《CTV新闻》1月27日报道，瑞典卫生局当天表示，因考虑到疫苗伤害等风险因素，瑞典政府将不建议为5-11岁的儿童接种“新冠病毒”疫苗。
+采编：UCool优酷       编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/03-image-7.jpg)
+据加拿大[CTV新闻]1月27日报道，总理特鲁多在日前接触了“新冠病毒”患者后，按照公共卫生局要求开始被迫进行自我隔离。
 
-报道称，瑞典卫生局官员在新闻发布会上指出，根据当前所掌握的信息，由于儿童感染该病毒和因此患严重疾病的风险很低，为他们接种实验性的疫苗没有任何明显的好处。
+报道称，特鲁多是在日前与其内阁的三位部长一起出席了国会山的新闻发布会之后，由于接触了病毒感染者而立即被隔离的。
 
-据悉，尽管瑞典日前有超过4万个新增感染病例，是该国自疫情爆发以来单日病例最高之一，但其医疗卫生系统尚未面临着像前几波疫情那样超常的压力，重症监护患者数也远低于去年同期值。因此，瑞典政府表示，将有望在2月9日前取消大部分目前正在实施的防疫限制措施。
+尽管总理在去年就已完全接种了该病毒疫苗，并于本月初被注射了强针剂，但仍无法摆脱和未接种者一样被病毒感染和因此被隔离的同等风险。
+
+据悉，本次隔离预计将在下周初众议院复会时结束。但届时，由来自美国和加拿大成千上万名抗议“疫苗护照”的卡车司机所组成的 “自由车队 ”，将洪流般如期抵达首都渥太华。
+
+有评论称，加拿大国民本次众志成城对特鲁多当局的各项疫情强制政策，特别是疫苗护照的拼死反抗，不仅规模空前，史无前例，更体现出民意对该国宪章赋予公众人权和自由的依法遵守和热血维护。特鲁多继续独裁的时日或因本次运动而所剩寥寥。
 
 校对编辑：硫酸羟氯喹64
 
 发稿： 苦尽甜来 (文來）
 
-[原文链接](https://www.ctvnews.ca/health/coronavirus/sweden-decides-against-recommending-covid-vaccines-for-kids-aged-5-12-1.5756719?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61f2bdfef006770001ad01ce&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[原文链接](https://www.ctvnews.ca/politics/pm-trudeau-in-isolation-after-covid-19-exposure-1.5756676)
 
  
 

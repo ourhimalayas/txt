@@ -2,24 +2,30 @@
 ---
 
 
-## 加拿大卡车司机车队被当局势力恶意滋扰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920975/)
+## 科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1921070/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image2.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=jDfSLoQb&amp;id=7F51F64B2B86BB6FA4FEDCD112614B30B4AB862E&amp;thid=OIF.rfHtooV7IvnL6AfXzNHY8Q&amp;mediaurl=https%3a%2f%2fi0.wp.com%2fimages.dailyhive.com%2f20220124070728%2fcanadian-trucks-500x258.jpg%3fssl%3d1&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.8c37d22e841bb597abc3c70bd1224b7b%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=258&amp;expw=500&amp;q=Anti-convoy+hashtag+dehumanizes+truckers+as+%e2%80%9cvermin%2c+plague+rats%2c+white+trash%e2%80%9d&amp;simid=301540075674&amp;FORM=IRPRST&amp;ck=ADF1EDA2857B22F9CBE807D7CCD1D8F1&amp;selectedIndex=6&amp;ajaxhist=0&amp;ajaxserp=0)
+据《福克斯新闻》作者：[IAN HANCHETT](https://www.breitbart.com/author/ian-hanchett/)，2022年1月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2285-e1643338131415.png)图片来源：Fox news 截图
+**在周二播出的福克斯新闻频道“故事”节目中，参议员汤姆-科顿认为，“美国应该向台湾提供与乌克兰同等的武器、外交、财政和政治支持，甚至更多，以避免发生危机。因为中共国对美国的威胁比俄罗斯更大，台湾对美国来说比乌克兰更加重要。”**
 
-据加拿大媒体[真北方]1月26日报道，加拿大反抗疫苗护照的卡车司机游行车队，在迅速赢得了全国民众的压倒性协助之外，也同时被当局支持的恶势力贴上“恐怖右翼份子”的污名化标签 ，企图以此非法化这场争取自由权利的民主运动。
+科顿说：“我认为，习近平和普京都想颠覆美国全球超级大国的地位。虽然他们不需要公开协调或谈论这些行动，但彼此可以观察到正在发生的事情。习近平看到普京在乌克兰边境集结了超过10万的军队，这很大程度上源自乔-拜登对乌克兰局势的绥靖、和解和软弱态度。我们现在应该从中吸取教训。对美国来说，中共是一个比俄罗斯更大的威胁。台湾对美国比起比乌克兰要重要得多。我们应该向台湾提供与乌克兰一样或更多的武器。我们应该向台湾提供与乌克兰同等或更多的外交、财政和政治支持。这样我们才能够避免在台湾发生和乌克兰边境一样的危机。”
 
-报道称，这些支持特鲁多当局恶政的势力在诬蔑卡车司机为“暴力的种族主义者”的同时，自己却极尽暴力威胁，使用诸如“瘟疫老鼠、白色垃圾”等恶毒词汇，并在主流媒体的鼓噪之下，合力把反抗强制疫苗护照的示威民众描绘成“白人种族主义者”甚至“极右翼恐怖分子”等。
+原文连接：[https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)
 
-对此，有评论指出：这些由主流媒体积极参与，并使用各种下作手段对“自由表达民意，勇敢追求人权行动”的蓄意诬蔑和暴力威胁，和去年1月6日发生在美国国会大厦所谓的暴力袭击事件如出一辙，无不处处体现出其背后由中共邪恶势力操纵的幢幢鬼影。
+翻译：洛杉矶盘古农场 – TrueSky
 
-校对编辑：硫酸羟氯喹64
+校对：洛杉矶盘古农场 – 轰炸机
 
-发稿： 苦尽甜来 (文來）
+编辑：洛杉矶盘古农场 – WenXiong
 
-[新闻来源](https://tnc.news/2022/01/26/anti-convoy-hashtag-dehumanizes-truckers-as-vermin-plague-rats-white-trash/)
+发布：洛杉矶盘古农场–子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

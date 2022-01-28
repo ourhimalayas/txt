@@ -2,24 +2,19 @@
 ---
 
 
-## 文贵大直播要点-图片合辑（2022年1月27日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1921190/)
+## 文·贵天成 – “爆料革命”盘古开天地（十六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921340/)
 
-#### 设计：波士顿五月花 水涨船高
+#### 整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/警示国内同胞-scaled.jpg)
+*发布：玉米地守望者*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/美国正在研究如何制裁、查封中共高官海外资产-scaled.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/灭共-科学是手段-信仰是终极力量-scaled.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Hpay上市前喜币必须核算清楚-scaled.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/相信胜利，相信好人，相信真话，说真话-scaled.jpg)
-
-* * *
-
-*发布：霹雳鼠年*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
