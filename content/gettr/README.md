@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 9:17 PM (UTC)`
+
+1月28号：感谢战友凯莉，收藏的SNOW 的视频，一切都是如此的美好。
+![img](https://media.gettr.com/group17/getter/2022/01/28/21/fbcfa9ea-1a00-0614-b660-78adac0c273e/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 1/28/2022 8:39 PM (UTC)`
@@ -148,12 +155,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 2022年1月27日 文贵大直播：卧薪尝胆三十载  爆料革命整五年  正道至善得人心  除恶建邦开纪元
 ![img](https://media.gettr.com/group45/origin/2022/01/27/12/5f1b2c4c-3d57-3e93-90f0-04b51d286fe3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/27/2022 1:51 AM (UTC)`
-
-1月26号，Hcoin To the Moon MV上线第48天位列澳门🇲🇴iTunesMV榜首🥇，累计共35次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共31次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1913284/<br/><br/>Jan 26, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 48 Day of Launch, hit No .1 for 35 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 31 times in total🎉🎉🎉<br/><br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
