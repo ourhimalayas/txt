@@ -15,116 +15,116 @@
 
 ---
 
-### [新中国联邦护照，KYC和Hpay](/content/gnews/1/README.md)
+### [文贵大直播要点-图片（2022年1月27日）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [G系列 to the Moon](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦的体制](/content/gnews/2/README.md)
+### [什么是教育](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [习太阳的奥运圆满成功](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [CCP的奥运会必定尴尬收场](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/3/README.md)
+### [中国老板只是CCP的小三](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [拜登政府撤销有关疫苗接种及临时检测强制要求](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [直播摘要20211205](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [拒绝参加北京冬奥会，莫与中共邪灵共舞](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [七哥开心的事冬奥会能开成功](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新中国联邦护照，KYC和Hpay](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦的体制](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/4/README.md)
+### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [习近平政府发起反洗钱运动，预示党内政治内斗加剧](/content/gnews/5/README.md)
+### [习近平政府发起反洗钱运动，预示党内政治内斗加剧](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/6/README.md)
+### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [饮鸩止渴，中共国地方融资平台大量回购出让土地](/content/gnews/7/README.md)
+### [饮鸩止渴，中共国地方融资平台大量回购出让土地](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/8/README.md)
+### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/20/README.md)
  ` MOS香港部`
 
-### [台湾副总统过境美国，视频会晤美议员并获国会两党赞扬](/content/gnews/9/README.md)
+### [台湾副总统过境美国，视频会晤美议员并获国会两党赞扬](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/27/2022 文贵直播：美国大使馆的授权撤离绝非拜登拍脑袋的决定，这和蓬佩奥、美军军机和军舰访台有何关联？](/content/gnews/10/README.md)
+### [1/27/2022 文贵直播：美国大使馆的授权撤离绝非拜登拍脑袋的决定，这和蓬佩奥、美军军机和军舰访台有何关联？](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [Omicron非疫情终点 世卫：下个变异株传染力恐更强](/content/gnews/11/README.md)
+### [Omicron非疫情终点 世卫：下个变异株传染力恐更强](/content/gnews/23/README.md)
  ` GTV新聞訪談`
 
-### [喜币既不当老大，也不当老二，甚至前五都不想当](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [立陶宛外长：没有改变台湾代表处名称计划](/content/gnews/13/README.md)
- ` GTV新聞訪談`
-
-### [中国人怎样不在两极思维间游荡](/content/gnews/14/README.md)
- ` 纽约香草山MOS03`
-
-### [芬兰也军演防乌克兰大战 日韩准备展开撤侨](/content/gnews/15/README.md)
- ` GTV新聞訪談`
-
-### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/16/README.md)
+### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/17/README.md)
+### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/19文贵直播：参加达沃斯论坛的没人打疫苗（粤语配音）](/content/gnews/18/README.md)
+### [1/19文贵直播：参加达沃斯论坛的没人打疫苗（粤语配音）](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/19文贵直播：中共和达沃斯党是万恶之源（粤语配音）](/content/gnews/19/README.md)
+### [1/19文贵直播：中共和达沃斯党是万恶之源（粤语配音）](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/19文贵直播：达沃斯天津论坛是干嘛来的（粤语配音）](/content/gnews/20/README.md)
+### [1/19文贵直播：达沃斯天津论坛是干嘛来的（粤语配音）](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/12文贵直播：海外华人媒体误国误民罪同共产党（粤语配音）](/content/gnews/21/README.md)
+### [1/12文贵直播：海外华人媒体误国误民罪同共产党（粤语配音）](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/12文贵直播：为什么雷·达利奥这时帮中共鼓吹共同富裕？（粤语配音）](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/12文贵直播：杨贝贝拿江志成和吴征的钱执行中共计划（粤语配音）](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/12文贵直播：大片领土被朱江家族出卖给塔吉克斯坦和阿富汗（粤语配音）](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [驻荷代表接受荷媒专访 强烈批评中国胁迫立陶宛](/content/gnews/25/README.md)
- ` GTV新聞訪談`
-
-### [中共用数字人民币操纵经济控制人民](/content/gnews/26/README.md)
+### [中共用数字人民币操纵经济控制人民](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画](/content/gnews/27/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [西方盟国就乌克兰问题抛弃加拿大](/content/gnews/28/README.md)
+### [西方盟国就乌克兰问题抛弃加拿大](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本新增中共病毒确诊超7万人 连续2天创新高](/content/gnews/29/README.md)
+### [日本新增中共病毒确诊超7万人 连续2天创新高](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美外交官在中共受辱被肛检测试新冠病毒](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [欧盟就中共对立陶宛歧视性贸易正式向WTO提起诉讼](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
-
-### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/32/README.md)
+### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报](/content/gnews/33/README.md)
+### [五月花简报](/content/gnews/34/README.md)
  ` mayflowertranslate`
 
-### [美国撤离驻华使馆，高情商与低情商](/content/gnews/34/README.md)
+### [美国撤离驻华使馆，高情商与低情商](/content/gnews/35/README.md)
  ` zuzu`
 
-### [Eglise医生讲述青蒿素有助眠安神抗抑郁作用](/content/gnews/35/README.md)
+### [Eglise医生讲述青蒿素有助眠安神抗抑郁作用](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [五月花简报](/content/gnews/36/README.md)
+### [五月花简报](/content/gnews/37/README.md)
  ` mayflowertranslate`
-
-### [前纽芬兰和拉布拉多省省长布赖恩·佩克福德（Brian Peckford）发起对联邦航空旅行限制的诉讼](/content/gnews/37/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [中共防疫政策朝令夕改，人民因此受苦](/content/gnews/38/README.md)
  ` GTV新闻访谈`

@@ -2,25 +2,25 @@
 ---
 
 
-## 美外交官在中共受辱被肛检测试新冠病毒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920548/)
+## 中共用数字人民币操纵经济控制人民
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920631/)
 
-加拿大温哥华扬帆农场 硫酸羟氯喹64
+加拿大温哥华扬帆农场 文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-49-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-51-edited.jpg)图片来源：DJY
 
 
-加拿大媒体[后千禧年]1月26日报道，根据美国[司法观察组织]最近获得的国务院记录显示，美驻中共国外交官曾被迫接受当局的 “新冠病毒”肛门拭子测试。
+据美国媒体1月26日报道，中共正利用数字人民币，不仅试图在世界范围内占据“操纵全球金融系统”的先机，同时也在国内全面控制其民众。
 
-报道称，这些文件是[司法观察组织]通过《信息自由法》获得并于日前公布的。其中显示，当时至少有一名接受如此羞辱性病毒检测的美国外交官员在其公寓被中共卫生部门人员检查了直肠。为此，其他美国外交官员对中共当局强迫他们进行的肛门拭子测试表示出极端的愤怒，并呼吁美国政府“对此采取反击行动”。
+报道称，中共国数字人民币是完全中心化的法币，与基于分布式账本系统的去中心化加密数字货币有本质的不同。由于数字人民币将完全由中国人民银行来发行和控制，因此，中共当局对其所有账户的活动都了如指掌。并以此实现该政权对国家经济和人民的完全控制。
 
-结合美国政府日前已正式通牒中共政权，从即日起将逐步撤离和关闭其驻北京大使馆和其他地区的领事馆之后，不难得知：中共曾对美国外交官做出的羞辱性肛门检测，或是本次美国政府决绝外交撤离的导火索之一。甜蜜蜜的“以肛灭共”行动或已拉开最后的帷幕。
+事实表明，数字货币在全球方兴未艾，各国及其金融机构都在研究相关的法规和标准。而[新中国联邦]的[喜联储]及[喜币]则无疑是全球数字金融领域的引领者。其先进的创新设计和安全的使用系统，必定会使[喜联储]拥有制定数字货币使用标准和规则的绝对话语权。
 
 * * *
 
-采编：文莱            编译撰稿，发稿：硫酸羟氯喹64
+采编：文莱，  翻译编辑：文所未闻 ， 校对编辑，发稿：硫酸羟氯喹64
 
-原文链接：[https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china](https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china)
+原文链接： [https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china\_4235273.html](https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china_4235273.html)
 
  
 
