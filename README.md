@@ -15,116 +15,116 @@
 
 ---
 
-### [CRA 将发出新一轮的信函，检查 CERB 受助人的资格](/content/gnews/1/README.md)
- ` MG FARM`
+### [全球疫情更新（荒唐离谱的统计错误）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [欧洲有更多人抗议疫苗强制令](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [辉瑞CEO承认疫苗效果不尽如人意](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [安省卫生官:该学着与新冠共存了](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [未接种新冠疫苗的人可能通过性交被接种新冠疫苗的人感染](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [对汽车盗窃团伙的调查提出300 多项指控，追回了价值 1110 万元的汽车](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [文贵先生盖特精要2022/01/28](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加政府未阻止中企9亿加元收购其锂矿企业](/content/gnews/10/README.md)
+### [扬帆每日速递 2022年1月28日版（1）](/content/gnews/2/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大华人出租房：疑华人租客开枪打死3人自](/content/gnews/11/README.md)
+### [身在墙内（二）](/content/gnews/3/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [CRA 将发出新一轮的信函，检查 CERB 受助人的资格](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [七哥说“我们尝试着让中国五年内让大家增加辨别真假的能力，识别善恶的能力，就是让你不要被无知害掉”（2022-01-25摘录）](/content/gnews/12/README.md)
+### [欧洲有更多人抗议疫苗强制令](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [辉瑞CEO承认疫苗效果不尽如人意](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [安省卫生官:该学着与新冠共存了](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [七哥唱甜蜜蜜（2022-01-25摘录）](/content/gnews/13/README.md)
+### [未接种新冠疫苗的人可能通过性交被接种新冠疫苗的人感染](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [对汽车盗窃团伙的调查提出300 多项指控，追回了价值 1110 万元的汽车](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [2022/01/27文贵先生直播精要](/content/gnews/14/README.md)
+### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文贵先生盖特精要2022/01/28](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国联通被FCC勒令60天内停止公司在美业务](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
+### [加政府未阻止中企9亿加元收购其锂矿企业](/content/gnews/13/README.md)
+ ` 温哥华扬帆农场`
 
-### [七哥谈美国大使（2022-01-25摘录）](/content/gnews/16/README.md)
+### [加拿大华人出租房：疑华人租客开枪打死3人自](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [七哥谈躺平币（2022-01-21摘录）](/content/gnews/17/README.md)
+### [七哥说“我们尝试着让中国五年内让大家增加辨别真假的能力，识别善恶的能力，就是让你不要被无知害掉”（2022-01-25摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [董宏一审被判死缓](/content/gnews/18/README.md)
+### [七哥唱甜蜜蜜（2022-01-25摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [2022/01/27文贵先生直播精要](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中国联通被FCC勒令60天内停止公司在美业务](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [2022年1月27日 文贵大直播 全文字版](/content/gnews/19/README.md)
+### [七哥谈美国大使（2022-01-25摘录）](/content/gnews/19/README.md)
+ ` MG FARM`
+
+### [七哥谈躺平币（2022-01-21摘录）](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [董宏一审被判死缓](/content/gnews/21/README.md)
+ ` 波士顿五月花农场`
+
+### [2022年1月27日 文贵大直播 全文字版](/content/gnews/22/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [澳大利亚批准16岁以上未成年人群接种辉瑞加强针](/content/gnews/20/README.md)
+### [澳大利亚批准16岁以上未成年人群接种辉瑞加强针](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国及世界疫情简报 （01-28-2022）](/content/gnews/21/README.md)
+### [美国及世界疫情简报 （01-28-2022）](/content/gnews/24/README.md)
  ` 波士顿五月花农场`
 
-### [前休斯顿卫理公会护士亲身讲述了她因新冠疫苗被解雇前的经历](/content/gnews/22/README.md)
+### [前休斯顿卫理公会护士亲身讲述了她因新冠疫苗被解雇前的经历](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [MV版Hcoin To the Moon上线50天第37次位列澳门iTunes热门MV榜首](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [CCP病毒侵占世界仅存“净土”之一的岛国基里巴斯](/content/gnews/24/README.md)
- ` 澳喜特战旅Gnews`
-
-### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/25/README.md)
+### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [Meta准备出售其数字货币项目](/content/gnews/26/README.md)
+### [Meta准备出售其数字货币项目](/content/gnews/27/README.md)
  ` GTV News Talk`
 
-### [中共导弹专家逃离中国 投奔自由](/content/gnews/27/README.md)
+### [中共导弹专家逃离中国 投奔自由](/content/gnews/28/README.md)
  ` GTV News Talk`
 
-### [丹麦即将宣布取消所有中共病毒疫情限制措施](/content/gnews/28/README.md)
+### [丹麦即将宣布取消所有中共病毒疫情限制措施](/content/gnews/29/README.md)
  ` GTV News Talk`
 
-### [白宫希望将加密货币规则作为国家安全问题来处理](/content/gnews/29/README.md)
+### [白宫希望将加密货币规则作为国家安全问题来处理](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [韩国庆北安东市一家酒吧发生了青少年集体感染，防疫进入了紧急状态](/content/gnews/30/README.md)
+### [韩国庆北安东市一家酒吧发生了青少年集体感染，防疫进入了紧急状态](/content/gnews/31/README.md)
  ` 首尔天池农场`
 
-### [Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19](/content/gnews/31/README.md)
+### [Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [五月花简报](/content/gnews/32/README.md)
+### [五月花简报](/content/gnews/33/README.md)
  ` mayflowertranslate`
 
-### [自由车队2022组织者在GoFundMe上的最新声明](/content/gnews/33/README.md)
+### [自由车队2022组织者在GoFundMe上的最新声明](/content/gnews/34/README.md)
  ` 温哥华扬帆农场`
 
-### [俄罗斯和乌克兰同意维持停火，并于下月举行新会谈](/content/gnews/34/README.md)
+### [俄罗斯和乌克兰同意维持停火，并于下月举行新会谈](/content/gnews/35/README.md)
  ` 首尔天池农场`
 
-### [美国民主党推动的扩大研究经费法案被认为有利于中共的间谍活动](/content/gnews/35/README.md)
+### [美国民主党推动的扩大研究经费法案被认为有利于中共的间谍活动](/content/gnews/36/README.md)
  ` 首尔天池农场`
 
-### [新西兰财经G乐部2022年1月28日:财经新闻整理](/content/gnews/36/README.md)
+### [新西兰财经G乐部2022年1月28日:财经新闻整理](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [01/28/22 香港快讯 11人被控2019年10月1日黄大仙暴动罪成](/content/gnews/37/README.md)
- ` 英喜-粵語組`
 
 ### [美国战略布局完毕 中共死期将至](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

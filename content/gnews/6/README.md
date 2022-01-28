@@ -2,10 +2,10 @@
 ---
 
 
-## 弗兰克·加夫尼呼吁人们抵制北京奥运会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1925116/)
+## 辉瑞CEO承认疫苗效果不尽如人意
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1925142/)
 
-01/24/2022 弗兰克·加夫尼认为，由于中共犯下的种族灭绝罪，允许中共举办奥运会是一种耻辱。他还呼吁人们抵制北京奥运会
+01/25/2022 辉瑞CEO在回答第四剂疫苗是否必要时承认他对疫苗的表现很失望，但他仍然坚称第四剂是必要的。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
