@@ -2,37 +2,21 @@
 ---
 
 
-## 魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1920630/)
+## 驻荷代表接受荷媒专访 强烈批评中国胁迫立陶宛
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/1920636/)
 
-2022-01-27
+2022.1.26
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1V5PSJRHN_3XUD66K4.png)图片来源：塞尔日·查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日
-加拿大魁北克省的LA PRESSE日报（塞尔日•查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日）发表一张题为《奥图尔和卡车司机》的漫画图片
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5USE3IK0BQRWMOJXQHSRE.png)图片来源：塞尔日·查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日
-漫画中的文字（O’TOOLE SE DISSOCIE DE LA DROITE CONSERVATRICE QUI APPUIE LE CONVOI DES CAMIONNEURS）表示：奥图尔O’Toole与支持卡车司机车队的保守派右翼脱离关系。漫画中显示，奥图尔O’Toole 在高速行驶的卡车下面高喊：“停车”！！！
+台湾宝岛农场 dobi
 
-周一，2022 年 1 月 24 日，一篇题为《[50,000 trucks heading toward Ottawa to demand an end to COVID mandates](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/)》的文章报道，特鲁多表示卡车司机是在”散布恐惧”。但是，加拿大保守党（CPC）议员皮埃尔·波伊利耶夫（Pierre Poilievre）却说：”新冠病毒已成为权力当局控制取代我们自由的永无止境的借口。让我们的卡车司机开道，恢复所有人的自由。然而，加拿大保守党CPC领导人，艾琳·奥图尔Erin O’Toole，一直对卡车司机自由车队保持沉默，拒绝表示他是否支持他们。
+据台媒报导，我国驻荷代表陈欣新接受荷媒专访时，强烈批评中国当前制裁立陶宛企业，胁迫欧盟企业撤出立陶宛等行动，用意不仅是惩罚立陶宛同意以台湾名义设立代表处，同时也在于警告其他国家，不要步入立陶宛后尘，否则就是与中国为敌。
 
-今天，2022年1月27日，一篇题为《[Groupes extrémistes : «vous risquez de nuire aux chances des camionneurs», dit O’Toole](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/) 》的文章报道，加拿大保守党领袖艾琳·奥图尔（Erin O’Toole）在周四上午发表于《多伦多太阳报》的一封信中警告极端组织，不要在接下来的几天内使用暴力进行抗议，并说使用这种方法抗议可能会严重损害卡车司机的职业。
-
-这就解释了为什么漫画中显示，奥图尔O’Toole 在卡车下面高喊：“停车”！！!从漫画中不难看出，这辆卡车已经不可能停下了。塞尔日•查普洛SERGE CHAPLEAU发表这张漫画图片会不会激发更多的卡车司机参与这个示威活动？最终会出现什么样的局面？让我们拭目以待。
-
-另外，Gnews, 2022 年 1 月 25 日发表一篇题为《[魁北克省媒体刊登冠以极具政治敏感性标题：“公民不服从”的漫画](https://gnews.org/zh-hans/1916348/) 》的文章报道，这位漫画家，塞尔日•查普洛SERGE CHAPLEAU，还发表了一张题为《公民不服从》的漫画图片。
-
-**参考资料**：
-
-1. [LA PRESSE，塞尔日•查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日，O’Toole et les camionneurs，](https://www.lapresse.ca/debats/caricatures/2022-01-27/o-toole-et-les-camionneurs.php)
+陈欣新强调在两岸关系方面，中国的胁迫并不会影响台湾捍卫主权、民主和自由的决心。且欧洲议会2021年不仅首度筹组官方代表团访台湾，更以压倒性票数通过友台决议案，支持台湾的国际参与和深化台欧盟关系。
 
 
-编辑：LILY
-发布：肥鯮
-校对：班粉小哥
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+[新闻连接]： 《https://tw.news.yahoo.com/%E9%A7%90%E8%8D%B7%E4%BB%A3%E8%A1%A8%E6%8E%A5%E5%8F%97%E8%8D%B7%E5%AA%92%E5%B0%88%E8%A8%AA-%E5%BC%B7%E7%83%88%E6%89%B9%E8%A9%95%E4%B8%AD%E5%9C%8B%E8%84%85%E8%BF%AB%E7%AB%8B%E9%99%B6%E5%AE%9B-105143595.html》
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

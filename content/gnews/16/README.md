@@ -2,12 +2,15 @@
 ---
 
 
-## 1/19文贵直播：参加达沃斯论坛的没人打疫苗（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1920661/)
+## 2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1920663/)
 
-1/19/2022 文贵直播：参加达沃斯论坛的没人打疫苗！喜币就是黑暗中的明灯，一灯能除千年暗，而新中国联邦和喜币连在一起就是“一智能灭万年愚”！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
 
  
 
