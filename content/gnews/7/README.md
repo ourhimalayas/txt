@@ -2,8 +2,8 @@
 ---
 
 
-## 灭共是为了更好的生活
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922013/)
+## 国与国之间就像人与人之间一样搞好平衡
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922094/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
