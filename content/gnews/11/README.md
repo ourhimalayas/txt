@@ -2,19 +2,22 @@
 ---
 
 
-## 有声|灭共者——七哥小课堂
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924760/)
+## 有声|中共宣传机构对美国体育节目主持人进行谩骂和攻击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924765/)
 
 配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-246.png)“三招”帮你建立自信心，第一：一定不要脸太在乎别人的想法，学会不要面子；第二：要学习、要强大；第三：，不要记住任何人对你的攻击，包括你的爹妈。
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1.png)Three rules to help you build self-confidence, first: don’t care too much about what others think; learn not to care about losing face; second: keep learning, be strong; third: don’t hold a grudge against those who have criticized or attacked you including your parents.
-– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022![我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。 
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播](https://assets.gnews.org/wp-content/uploads/2022/01/3-2-4.png)我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2-1.png)Our life is infinitely beautiful. Do remember: love, honesty and Take-Down-the-CCP is the foundation that holds us together, only these three can keep us going far, otherwise all will be lost.
-– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/01/25/chinese-propaganda-outlet-blasts-bob-costas-for-desecrating-olympic-spirit-by-criticizing-china/)1月25日报道，传奇体育主持人鲍勃·科斯塔斯（Bob Costas）在接受CNN记者布莱恩·斯特尔特（Brian Stelter）的采访时批评了中共国在新闻自由方面的糟糕记录，并批评国际奥委会允许在北京举行冬季奥运会。
 
+科斯塔斯表示，国际奥委会选择让一个公开监视运动员和记者的国家来举办奥运会，理应受到所有的鄙视和厌恶。
 
-文字版原文：[灭共者——七哥小课堂](https://gnews.org/zh-hans/1910728/)
+对此，中共《环球时报》履行了其作为共产党政权喉舌和捍卫者的义务，对科斯塔斯进行了谩骂和攻击。
+
+无独有偶，在郭文贵先生昨天发布有关美国撤离驻中共大使馆的公告之后，中共今天声称美方撤离使领馆人员将极大增加感染病毒风险，也是对美国的公然挑衅和威胁。
+
+在新闻自由方面，中共国的侵权行为是众所周知的。据联合国观察组织称，中共国除了是全球第一大人权侵犯者之外，还从事科斯塔斯在其评论中所指控的所有侵犯新闻自由的行为和间谍活动。
+
+文字版原文：[中共宣传机构对美国体育节目主持人进行谩骂和攻击](https://gnews.org/zh-hans/1915126/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

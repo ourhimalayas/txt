@@ -15,122 +15,122 @@
 
 ---
 
-### [有声|追求理想](/content/gnews/1/README.md)
+### [澳大利亚批准16岁以上未成年人群接种辉瑞加强针](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [美国及世界疫情简报 （01-28-2022）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
+
+### [前休斯顿卫理公会护士亲身讲述了她因新冠疫苗被解雇前的经历](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [MV版Hcoin To the Moon上线50天第37次位列澳门iTunes热门MV榜首](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [CCP病毒侵占世界仅存“净土”之一的岛国基里巴斯](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [有声|追求理想](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [西媒头条 — 第162期 – 西媒要闻](/content/gnews/2/README.md)
+### [西媒头条 — 第162期 – 西媒要闻](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西媒头条 — 第162期 – 西媒看天朝](/content/gnews/3/README.md)
+### [西媒头条 — 第162期 – 西媒看天朝](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/4/README.md)
+### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|参议员科顿：美国应该像支持乌克兰一样支持台湾](/content/gnews/5/README.md)
+### [有声|参议员科顿：美国应该像支持乌克兰一样支持台湾](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|中共宣传机构对美国体育节目主持人进行谩骂和攻击](/content/gnews/6/README.md)
+### [有声|中共宣传机构对美国体育节目主持人进行谩骂和攻击](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|加拿大卡车司机抗议运动筹款已近400万加元](/content/gnews/7/README.md)
+### [有声|加拿大卡车司机抗议运动筹款已近400万加元](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|英国从乌克兰撤出部分大使馆人员](/content/gnews/8/README.md)
+### [有声|英国从乌克兰撤出部分大使馆人员](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|印度爆发反疫苗强制接种抗议](/content/gnews/9/README.md)
+### [有声|印度爆发反疫苗强制接种抗议](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|甜蜜灭共](/content/gnews/10/README.md)
+### [有声|甜蜜灭共](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|灭共者——七哥小课堂](/content/gnews/11/README.md)
+### [有声|灭共者——七哥小课堂](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [对待彭帅中共的高官有多不要脸](/content/gnews/12/README.md)
+### [对待彭帅中共的高官有多不要脸](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|游子吟](/content/gnews/13/README.md)
+### [有声|游子吟](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|滇池寻梦](/content/gnews/14/README.md)
+### [有声|滇池寻梦](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [Meta准备出售其数字货币项目](/content/gnews/15/README.md)
+### [Meta准备出售其数字货币项目](/content/gnews/20/README.md)
  ` GTV News Talk`
 
-### [中共导弹专家逃离中国 投奔自由](/content/gnews/16/README.md)
+### [中共导弹专家逃离中国 投奔自由](/content/gnews/21/README.md)
  ` GTV News Talk`
 
-### [丹麦即将宣布取消所有中共病毒疫情限制措施](/content/gnews/17/README.md)
+### [丹麦即将宣布取消所有中共病毒疫情限制措施](/content/gnews/22/README.md)
  ` GTV News Talk`
 
-### [论中国共产党一党专政统治下人民的恐惧与贫穷](/content/gnews/18/README.md)
+### [论中国共产党一党专政统治下人民的恐惧与贫穷](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|投资者惊叹于喜币的天才设计](/content/gnews/19/README.md)
+### [有声|投资者惊叹于喜币的天才设计](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|欧洲议会委员会吁深化与台湾合作 对抗中共假信息](/content/gnews/20/README.md)
+### [有声|欧洲议会委员会吁深化与台湾合作 对抗中共假信息](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦致美国政府感谢信 支持否认中共合法性](/content/gnews/21/README.md)
+### [有声|新中国联邦致美国政府感谢信 支持否认中共合法性](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2022年1月26日早](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|如俄侵乌美国将制裁普京本人](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [白宫希望将加密货币规则作为国家安全问题来处理](/content/gnews/24/README.md)
+### [白宫希望将加密货币规则作为国家安全问题来处理](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [韩国庆北安东市一家酒吧发生了青少年集体感染，防疫进入了紧急状态](/content/gnews/25/README.md)
+### [韩国庆北安东市一家酒吧发生了青少年集体感染，防疫进入了紧急状态](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19](/content/gnews/26/README.md)
+### [Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [五月花简报](/content/gnews/27/README.md)
+### [五月花简报](/content/gnews/30/README.md)
  ` mayflowertranslate`
 
-### [经典回顾：11/19/2020郭先生解密Michael Waller，French Wallop案的判决马上出炉，这会将美国司法部案件重新引起世界的再次关注](/content/gnews/28/README.md)
+### [经典回顾：11/19/2020郭先生解密Michael Waller，French Wallop案的判决马上出炉，这会将美国司法部案件重新引起世界的再次关注](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [自由车队2022组织者在GoFundMe上的最新声明](/content/gnews/29/README.md)
+### [自由车队2022组织者在GoFundMe上的最新声明](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [俄罗斯和乌克兰同意维持停火，并于下月举行新会谈](/content/gnews/30/README.md)
+### [俄罗斯和乌克兰同意维持停火，并于下月举行新会谈](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（十七）](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国民主党推动的扩大研究经费法案被认为有利于中共的间谍活动](/content/gnews/32/README.md)
+### [美国民主党推动的扩大研究经费法案被认为有利于中共的间谍活动](/content/gnews/34/README.md)
  ` 首尔天池农场`
 
-### [新西兰财经G乐部2022年1月28日:财经新闻整理](/content/gnews/33/README.md)
+### [新西兰财经G乐部2022年1月28日:财经新闻整理](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [01/28/22 香港快讯 11人被控2019年10月1日黄大仙暴动罪成](/content/gnews/34/README.md)
+### [01/28/22 香港快讯 11人被控2019年10月1日黄大仙暴动罪成](/content/gnews/36/README.md)
  ` 英喜-粵語組`
 
-### [2022/01/28 英喜时事速递](/content/gnews/35/README.md)
+### [2022/01/28 英喜时事速递](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [纳粹大屠杀幸存者后代 呼吁联合国调查中共政府侵犯新疆人权](/content/gnews/36/README.md)
- ` 日本东京方舟农场`
-
-### [美国战略布局完毕 中共死期将至](/content/gnews/37/README.md)
+### [美国战略布局完毕 中共死期将至](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日美就人权问题达成一致 或将联合制裁中共](/content/gnews/38/README.md)
+### [日美就人权问题达成一致 或将联合制裁中共](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/28/2022国际财经快讯：苹果销售和利润最高预期因芯片短缺放缓；因旅游和在线支出增加Visa利润超过季度预期](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
 
 ### [中共国在奥运会期间将对互联网管控更严厉](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
