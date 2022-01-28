@@ -2,36 +2,21 @@
 ---
 
 
-## 面对中共制裁 立陶宛表示无更名计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923191/)
+## 受雾霾威胁的北京奥运会
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1923287/)
 
-撰稿：台湾宝岛农场-dobi
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
-针对因台湾在立陶宛设立代表处的中文名称，中共持续对立陶宛进行制裁一事，立陶宛外长蓝斯柏吉斯于26日表示，没有变更台湾代表处名称的计划。台湾驻立陶宛代表也表示，未曾接获变更驻立陶宛台湾代表处的中文或英文名称的要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2339.png)
-当天，台湾驻荷兰代表接受荷媒专访，强烈批评中共国制裁立陶宛企业，胁迫欧盟企业撤出立陶宛等行动，并强调在两岸关系方面，中共的胁迫不会动摇台湾捍卫主权、民主和自由的决心。
+翻译：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01281.jpg)图片来自repubblica.it
+在中共国举办的冬奥会是一项环境挑战。北京近几个月来的雾霾污染空气以及使用人造雪，对生态系统产生的影响与习近平提出的将中共国打造成应对气候变化第一前沿的计划形成了鲜明对比。
 
+同时，2 月 4 日至 20 日在北京和河北省之间举行的奥运会对运动员的健康所构成的威胁与绿色奥运会的承诺相差甚远。
 
+今年的奥运会实际上是第一次完全以人造雪为基础的奥运会。据估计，创造必要的雪需要超过 200 万立方米的水，这相当于多达 800 个奥林匹克游泳池。张家口曾经是一个非常贫穷的农业区，现在已经成为豪华度假村和商店的所在地。也许会有更多的财富会到来，但环境和社会代价不符合气候正义的标准。
 
-新闻连接：
+原文链接：[https://www.repubblica.it/green-and-blue/2022/01/27/news/olimpiadi\_invernali\_pechino\_2022\_inquinamento\_smog-335402270/](https://www.repubblica.it/green-and-blue/2022/01/27/news/olimpiadi_invernali_pechino_2022_inquinamento_smog-335402270/)
 
-[立陶宛外長：沒有改變台灣代表處名稱計畫](https://tw.news.yahoo.com/%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%A4%96%E9%95%B7-%E6%B2%92%E6%9C%89%E6%94%B9%E8%AE%8A%E5%8F%B0%E7%81%A3%E4%BB%A3%E8%A1%A8%E8%99%95%E5%90%8D%E7%A8%B1%E8%A8%88%E7%95%AB-114935969.html%E3%80%8B)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
-[駐荷代表接受荷媒專訪 強烈批評中國脅迫立陶宛](https://tw.news.yahoo.com/%E9%A7%90%E8%8D%B7%E4%BB%A3%E8%A1%A8%E6%8E%A5%E5%8F%97%E8%8D%B7%E5%AA%92%E5%B0%88%E8%A8%AA-%E5%BC%B7%E7%83%88%E6%89%B9%E8%A9%95%E4%B8%AD%E5%9C%8B%E8%84%85%E8%BF%AB%E7%AB%8B%E9%99%B6%E5%AE%9B-105143595.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
-
-编辑：飞虹/雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

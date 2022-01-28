@@ -2,27 +2,20 @@
 ---
 
 
-## 马歇尔参议员公布了福奇与中共的财务往来
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1923124/)
+## 中日财经爆|日元暴跌之后东证大幅反弹547点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923214/)
 
-##### 翻译：Elon mask
-校对：精靈藍
-剪辑|字幕：小强
-编辑：Mttfly
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2345.png)[图片来源](https://cn.investing.com/indices/japan-ni225)
+1月28日，东京股市日经平均股价（225种）大幅反弹。因前一天平均股价暴跌的反作用，价格下跌的股票出现了买进势头。在外汇市场，日元走低也给出口相关项目带来了推波助澜。
 
-为什么福奇博士只相信新冠疫苗？为什么他从来不考虑硫酸羟氯喹或者伊维菌素？福奇跟谁有资金往来呢？美国参议员马歇尔（Roger Marshal）近日获得了福奇的财务状况，并公布在其个人网站[marshall.senate.gov](https://www.marshall.senate.gov/newsroom/press-releases/breaking-sen-marshall-proves-fauci-lied-by-obtaining-previously-unpublished-financial-records/)上。其中显示，在2020年，福奇从中共赚取了170万美元。
+收盘为26717.34，比前一天上涨了547.04。东证指数（TOPIX）上涨34.45点，达到1876.89点，成交额约为13.2965亿股。
 
-视频链接：[马歇尔参议员现在已经获得并在他的网站上发布了福奇的财务状况，福奇在 2020 年就赚了 170 万美元，“在中共国还有大量投资”。](https://twitter.com/johndoe1284495/status/1483694291834658818?s=21)
+信息来源： [東証大幅反発、５４７円高　急落の反動、円安進行も追い風に](https://www.zakzak.co.jp/article/20220128-7TI6LOYMFBFENJXSJC4YBVJHMY/)
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

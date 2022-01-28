@@ -2,30 +2,34 @@
 ---
 
 
-## 国防部暂停对文职雇员强制接种中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1922635/)
+## 美国明尼苏达州起诉涉嫌大规模造假的新冠测试公司
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922880/)
 
-#### 撰稿：彩虹
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-45.jpg)图片来源：国会山报
-1月27日，《国会山报》报道，在德克萨斯州的一名联邦法官作出裁决，阻止拜登总统对联邦工作人员的强制接种中共病毒疫苗后，国防部正在暂停对文职雇员进行强制接种中共病毒（COVID-19）疫苗。
+整理/编辑：小红帽
 
-周四，五角大楼新闻秘书约翰·柯比（John Kirby）告诉记者，“国防部已发布指导意见，暂停所有与处理文职人员（中共病毒）疫苗接种豁免申请有关的活动，以及暂停对未能接种（中共病毒）疫苗的联邦文职人员采取任何纪律处分。该指南确保遵守美国德克萨斯州南部地区法院于1月21日星期五发布的全国范围内的初步禁止令。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)图片来源：雅典娜设计组
 
-2021年10月份，国防部长劳埃德·奥斯汀（Lloyd Austin）下令所有70万名文职部门员工在11月22日前接种中共病毒疫苗，以遵守拜登在一个月前宣布的关于联邦工作人员的行政命令。
 
-五角大楼网站提供的最新数据显示，目前有341,836名文职人员完全接种了中共病毒疫苗，50,710人部分接种了中共病毒疫苗。
+根据《自然新闻》1月27日报道，数千万美国人继续抵制那些说服或强迫他们接种新冠病毒（COVID-19）疫苗的规定，原因是，人们从一开始就在这场大流行病上被骗了，而这不过是为了追求纯粹的政治权力。
 
-上周五，杰弗里·布朗（Jeffrey Brown）法官发布禁令，禁止联邦政府对联邦工作人员执行这一强制接种任务。他说，此案是关于“总统是否可以在没有国会意见的情况下，用笔一挥，要求数百万联邦雇员接受一项医疗程序，作为他们就业的条件”。
+在明尼苏达州，对位于伊利诺伊州的新冠病毒测试公司提起的诉讼中，这些谎言又被重新揭穿，理由是它们涉嫌“欺骗消费者”。
 
-然而，五角大楼新闻秘书柯比强调，布朗的裁决并不适用于军人，也不影响五角大楼的任何其他健康保护措施。
+《西方日报》（The Western Journal notes）指出：援引埃里森办公室1月26日发布的新闻稿，该诉讼称，新冠病毒控制中心（the Center for COVID Control）和医生临床实验室公司（Doctors Clinical Laboratory  Inc.）“要么未能提供测试结果，要么提供了伪造或不准确的测试结果”。
 
-文章报道，总的来说，160万军人已经完全接种了中共病毒疫苗，339,369人已经部分接种。
+根据《NBC》1月14日报道，新冠病毒控制中心是新冠病毒测试领域最大的参与者之一，在全国拥有 300 多个站点。报道指出，该公司正在接受联邦调查，并正在几个州接受司法部长的调查。
 
-**新闻来源**
+新闻链接：[Minnsota f](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[e](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[iling suit against COVID testing company allegedly engaged in massive cover-up](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)
 
-[Pentagon pauses civilian vaccine mandate after federal court ruling](https://thehill.com/policy/defense/591703-pentagon-pauses-civilian-vaccine-mandate-amid-federal-court-ruling?rl=1)
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

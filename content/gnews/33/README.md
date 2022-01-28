@@ -2,17 +2,17 @@
 ---
 
 
-## PayPal因无解释没收资金而面临法律诉讼
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922934/)
+## 马歇尔参议员公布了福奇与中共的财务往来
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1923124/)
 
-##### 翻译：Annabelle
-校对：枳实
-剪辑|字幕：蛮吉
+##### 翻译：Elon mask
+校对：精靈藍
+剪辑|字幕：小强
 编辑：Mttfly
 
-据福克斯新闻报道，PayPal正面临着一个集体诉讼。许多用户反映PayPal没有给予任何解释，肆意非法冻结他们的资金。原告提供两件证据。其一，PayPal在冻结用户资金前，并没有给用户申辩的权利。其二，PayPal使用条款中显示，除非商家已被PayPal批准，账户拥有者不可以转入或者汇出与赌博有关的资金，包括并不限于赌资、赌债、赌博所得。但很多人的资金，并非因为与赌博相关也被冻结。陪审团接下来会对此事进行表决。
+为什么福奇博士只相信新冠疫苗？为什么他从来不考虑硫酸羟氯喹或者伊维菌素？福奇跟谁有资金往来呢？美国参议员马歇尔（Roger Marshal）近日获得了福奇的财务状况，并公布在其个人网站[marshall.senate.gov](https://www.marshall.senate.gov/newsroom/press-releases/breaking-sen-marshall-proves-fauci-lied-by-obtaining-previously-unpublished-financial-records/)上。其中显示，在2020年，福奇从中共赚取了170万美元。
 
-视频链接：[PayPal faces lawsuit claiming it seized money without explanation](https://video.foxnews.com/v/6291957136001#sp=show-clips)
+视频链接：[马歇尔参议员现在已经获得并在他的网站上发布了福奇的财务状况，福奇在 2020 年就赚了 170 万美元，“在中共国还有大量投资”。](https://twitter.com/johndoe1284495/status/1483694291834658818?s=21)
 
 *发布：Mttfly*
 **

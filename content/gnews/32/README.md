@@ -2,24 +2,30 @@
 ---
 
 
-## 中共病毒疫情下的治安恶化，入店行窃急剧增加还向警卫礼貌鞠躬
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922940/)
+## 台湾着手调度蓬佩奥先生访台事宜
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923167/)
 
-撰稿：东京樱花团丨向海
-![](https://lh5.googleusercontent.com/fDrvdH6XvGHJoMlN1X_mlEZPjlon8jwp5Msf0EGGV01j1bDoEUcf6565idYgBBZwzjnBsBW14ECrubIPoH2mbOKanvC6vvPVnDGNev82o3AMMHfcYRivB-d3quzoOA1xF84gXebh)[*图片来源*](https://i.epochtimes.com/assets/uploads/2021/11/id13390395-IMG_6894_RevM_LearZhou_2021_11_21_SFLVLooted.jpg)
-据雅虎报道，在美国纽约，中共病毒（Covid-19）疫情的蔓延加剧了治安状况恶化，药店和零售店的入店行窃事件层出不穷。被窃损失金额日趋扩大，一些商店已经关门。
+新闻采集/撰稿： 日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+据台湾媒体1月26日报道，台湾政府正在调整“哈利法克斯台北论坛“的时间，期待美国前任国务卿蓬佩奥先生出席本次论坛。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2337.png)
+据悉，本次论坛原定于3月10日在台北举行，鉴于国际疫情，具体开幕时间正在调整中。台湾外交部表示，台湾诚挚欢迎蓬佩奥先生来台访问。
 
-在超市里，一个男人向保安很礼貌地鞠躬，拿着还没有付款的商品，然后大大方方地离开商店。
+新闻链接：[最友台美國國務卿 傳蓬佩奧3月將訪問台灣](https://tw.news.yahoo.com/%E6%9C%80%E5%8F%8B%E5%8F%B0%E7%BE%8E%E5%9C%8B%E5%9C%8B%E5%8B%99%E5%8D%BF-%E5%82%B3%E8%93%AC%E4%BD%A9%E5%A5%A73%E6%9C%88%E5%B0%87%E8%A8%AA%E5%95%8F%E5%8F%B0%E7%81%A3-154502645.html)
 
-据当地媒体报道，在纽约市，去年零售商店的入店行窃事件达到约 44,000 起，与中共病毒疫情之前相比增加了 15%。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
 
-各大药店连锁“Rite Aid”宣布因降低成本而关闭部分门店，但员工表示，入店行窃激增可能是关闭的原因之一。
+总编/编辑：飞虹
 
-信息来源：[**支払いせず堂々と警備員に一礼…コロナで治安悪化し万引きが急増  米**](https://news.yahoo.co.jp/articles/dba8c9a6346d1b5c897a36c1f5df686165d9b1bc)
+校正/发稿：浪迹天涯
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
