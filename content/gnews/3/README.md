@@ -2,23 +2,44 @@
 ---
 
 
-## Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1924571/)
+## 【修罗短评】要过年了，手术室里全是钱
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1924637/)
 
-#### 撰稿：蚂蚁爱钓鱼       
+**作者:修罗闻道**
+[![](https://express.adobe.com/page/pHPjjJ5KOQqhW/images/237ac5d7-bd0d-481b-b8fc-5ea91e6b9395.png?asset_id=fffa5f31-f68e-48fe-b1b3-3b1b0bd0387e&amp;img_etag=%227b7c4a49d6d9bf35af9593ac2652025e%22&amp;size=2560)](https://express.adobe.com/page/pHPjjJ5KOQqhW/images/237ac5d7-bd0d-481b-b8fc-5ea91e6b9395.png?asset_id=fffa5f31-f68e-48fe-b1b3-3b1b0bd0387e&amp;img_etag=%227b7c4a49d6d9bf35af9593ac2652025e%22&amp;size=1024)
+不知是中共国这几年的语文教育退步太快，还是道德水准的断崖下跌太彻底。春节前夕，又有无耻言论刷爆网络。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16433861101.png)图片来源：NDTV
-《零和》报道，1 月 23 日，著名心脏病学家和流行病学家 Peter McCullough 博士在华盛顿特区举行的“击败授权”游行期间告诉 NTD 的“国会报告”计划，无需大规模接种疫苗即可中止CCP病毒。
+东莞有一家名叫康华的医院，“康华”无名，“辱华”出众。年会现场的大横幅公然挂出:“虎虎生威迎新年，手术室里全是钱!” 也许是文盲，也许是见怪不怪，为了押韵，把心里话都喊出来了。很明显，为了钱，手术室就是他们打劫的地盘。“带着恐惧进来，带着负债出去”一定是这家医院轻车熟路的操作，如果患者还有命出去的话。
+[![](https://express.adobe.com/page/pHPjjJ5KOQqhW/images/ed75e790-6787-4b47-be3a-a809db84cbe8.png?asset_id=44f22828-9819-4775-a8f6-cff9529fa07e&amp;img_etag=%22929fd3fa083c7d0c3904eccfbdf1ed1c%22&amp;size=2765)](https://express.adobe.com/page/pHPjjJ5KOQqhW/images/ed75e790-6787-4b47-be3a-a809db84cbe8.png?asset_id=44f22828-9819-4775-a8f6-cff9529fa07e&amp;img_etag=%22929fd3fa083c7d0c3904eccfbdf1ed1c%22&amp;size=1024)
+中共国的医院是全世界独一无二的谋财害命场所，和草菅人命的医疗制度形成了完美搭档：虚假的医保，虚高的药物，虚伪的医德，老百姓只要进了医院，就处于被层层盘剥的处境。
 
-McCullough 博士表示，早期治疗和自然免疫对 CCP病毒是安全有效的，但联邦卫生机构在推动疫苗时却忽略了这些。他还曾在一次采访中表示早期治疗可以预防 95% 的 CCP病毒感染死亡。
+趴伏在医疗体系上的少数食人族，现在吃相越来越难看。为了赚钱，没病的当小病看，小病当大病治。一家建设成本3个亿的医院，投入使用时，已经支出10个亿了。 多出来的七个亿去哪里了？一层层的领导，一层层的审批，一层层地送钱。 承建商、设备商、医药商，商商暴利。无论支出多少，最终都是由患者来买单。这还不仅仅是“手术室里全是钱”，连医院的停车场也“全是钱”。
 
-McCullough博士还举例说明了伊维菌素是如何被联邦卫生机构驳回的，伊维菌素是一种获得诺贝尔奖、获得 FDA 批准的药物，许多研究和医生都表明该药物可有效治疗 CCP病毒患者。
+在中共国，只要和民生相关的产品和产业，在当权者眼里都是钱，滴血的钱。
 
-McCullough博士对CCP病毒疫苗可以减少住院和死亡的说法表示怀疑，他表示随着我们都变得自然免疫，CCP病毒不再对我们的生命构成威胁。
+电线杆上全是钱;
 
-**[新闻来源](https://www.zerohedge.com/covid-19/covid-19-can-be-stopped-without-massive-vaccination-dr-peter-mccullough)**
+加油站里全是钱;
 
+煤气管道全是钱;
+
+高速路上全是钱;
+
+自来水里全是钱;
+
+殡仪馆里全是钱;
+
+百姓辛苦攒下的钱，都是暂时帮医院代管的，临终前，一边遭受着病痛的折磨，一边亲手将一生的积蓄交给医院。中共国的恶政，生于盘剥与抢夺；中共国的百姓，焉能一直任匪宰割?
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对:仙女儿-文善|审核: 文明明| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/pHPjjJ5KOQqhW/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/pHPjjJ5KOQqhW/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

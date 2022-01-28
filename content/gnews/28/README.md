@@ -2,38 +2,33 @@
 ---
 
 
-## 有声|马里克博士斥美政府激励医院开出有毒治疗药物
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924269/)
+## 有声|2017-2022 庆祝爆料革命五周年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924275/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2022年1月26日是爆料革命五周年纪念日。自2017年1月26日，郭文贵先生第一次在媒体上爆料中共内幕，吹响灭共号角以来，爆料革命已整整五年。
 
+这五年时间，郭先生爆料的香港返送中运动、中共释放生化武器-冠状病毒等逐一被验证。如今，习近平已经是名副其实的独裁者，中共也成为被世界唾弃的政府。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-对新冠疫苗药物治疗方案也是另一个重要的议题。
+同时，爆料革命在这五年内成绩斐然，灭共基金-法治基金成立，新中国联邦诞生，喜联储、喜币横空出世，备受世人瞩目。在爆料革命的推动下，1月25日，美国政府授权撤离驻中共国大使馆的消息，标志着爆料革命、新中国联邦为全人类停止病毒疫苗灾难、种族大屠杀取得了决定性的胜利。
 
-1月24日外媒报道，保罗·马里克博士在听证会上，揭露美联邦政府鼓励医院使用瑞德西韦，该药被证实增加死亡率。 而他被禁止使用廉价有效的药物治疗中共病毒确诊病患，无奈看着他们离世，最后他被剥夺行医资格。
+让我们一起来回顾爆料革命这五年来的重要历史时刻。（请播放视频，视频时长 9‘54“）
 
-马里克博士表示，瑞德西韦会增加3%的死亡率、20%的肾衰竭率，这是一种试验性的有毒药物。 一架呼吸器要3千美元，然而一颗伊维菌素只需两美分，却可以减少50%死亡率，但联邦政府禁止采用伊维菌素作为治疗药物。 相反，如果医院给ICU病人用瑞德西韦，政府就给它整个住院费用的20%作为奖励。 馬里克博士指出，医院正在成为杀人者的帮凶。 他所在的医院不允许他使用行之有效且低廉的药物，来治疗中共病毒病人，同时栽赃陷害，剥夺了他的行医资格。
+文字版原文：[2017-2022 庆祝爆料革命五周年](https://gnews.org/zh-hans/1923013/)
 
-文字版原文：[马里克博士斥美政府激励医院开出有毒治疗药物](https://gnews.org/zh-hans/1919675/)
+音频处理：Fei797
+发稿：Fei797
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

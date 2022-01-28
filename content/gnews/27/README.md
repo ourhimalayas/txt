@@ -2,27 +2,35 @@
 ---
 
 
-## 美国医生用伊维菌素等低价药99.99%治愈中共病毒感染者
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1924271/)
+## 有声|美国纽约州最高法院法官裁决，驳回纽约州强制口罩令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924303/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+配音：香草山佛教部 – 李傻
 
-据《大纪元》1月27日报道，一个在疫情期间为COVID-19（中共病毒）患者提供免费远程医疗服务的美国医生组织表示，使用伊维菌素、羟氯喹等低价药对COVID-19感染者进行的早期治疗是非常有效的，而且康复率为99.99%。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-457.jpg)图为2022年1月24日（COVID 19: A Second Opinion）的小组讨论会。（图片来自Getty Images）
-据报道，在1月24日由威斯康星州共和党参议员罗恩·约翰逊（Ron Johnson）主持的一个圆桌讨论会上，在线医疗咨询服务网站myfreedoctor.com的创始人本·马布尔（Ben Marble）博士透露，他们有一个由志愿者组成的无偿服务医生团队，这些医生贡献自己的时间，来帮助治疗那些COVID-19（中共病毒）感染者。
 
-马布尔指出，这个医生团队会尽早向感染者提供早期治疗方案——彼得·麦卡洛（Peter McCullough）博士的治疗方案，该方案使用的药物包括：羟氯喹（hydroxychloroquine）、伊维菌素（ivermectin）、单克隆抗体（monoclonal antibodies）、强的松（prednisone）、维生素D、维生素C、锌和其它一些低成本普通药物，病人的痊愈率为99.99%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月24日，一位纽约州最高法院法官驳回了纽约州强制口罩令，裁定纽约州长和卫生部，无权在未经州议会批准的情况下颁布此类授权。
 
-对此，马布尔表示myfreedoctor.com网站上的这些提供无偿服务的志愿医生，已经确定了对感染者进行早期治疗的科学性。
+在周一发布的一份意见中，拿索县最高法院法官托马斯-拉德梅克认为，由于纽约在宣布强制口罩令时，已不再处于紧急状态，州长和相关权责人士无权颁布强制口罩令，并补充说到强制口罩令现在无法执行 。 拿索县行政长官布鲁斯. 布莱克曼，在推特上对纽约州最高法院法官的司法裁决回应，他写道「这对学生和家长来说是一个重大胜利」。 纽约州长的强制口罩令是违法的，未经州立法机关批准，州长和州教育部无权执行此任务。
 
-据悉，著名心脏病专家彼得·麦卡洛（Peter McCullough）和几位内科医生共同制定的这份COVID-19（中共病毒）感染后早期治疗方案已于2020年8月发表在《美国医学杂志》（American Journal of Medicine）上。
+文字版原文：[美国纽约州最高法院法官裁决，驳回纽约州强制口罩令](https://gnews.org/zh-hans/1919677/)
 
-参考链接：
- [https://www.epochtimes.com/b5/22/1/27/n13532276.htm](https://www.epochtimes.com/b5/22/1/27/n13532276.htm)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-素材采编：幽蘭自得
-编辑：青城道姑
-发布：爱放飞
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
