@@ -2,8 +2,8 @@
 ---
 
 
-## 唯一合法流通的是喜币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922338/)
+## 世界的经济危机这一次受益者是喜币
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922412/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

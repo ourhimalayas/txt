@@ -2,52 +2,36 @@
 ---
 
 
-## 乔•罗根和埃隆•马斯克声援加拿大卡车司机车队
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921605/)
+## 德国制药、科技企业遭中共黑客锁定
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921623/)
 
-#### **【雅典娜观察】，紧贴时代脉搏**
+作者：台湾宝岛农场 – 鬥陣來拼
+![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+德国联邦宪法保卫局于1月26日发出警告，与中共国有关的黑客团体“APT 27”，又称“猫熊使者”，已锁定德国的制药及科技产业，以渗透并从中窃取信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-23.png)
+据悉，“APT 27”位于中共国境内，曾被美国计算机公司戴尔旗下资安公司“安全工程”追踪，并被认为是最活跃的威胁团体之一。除窃取锁定目标的商业机密和智能财产，“APT 27”还试图潜入客户或服务器提供者的网络，以此入侵数家公司。
 
-整理报道：文扬
-编辑：文泓
+美国总统拜登在去年提到过，中共国不但为黑客提供保护，还大开方便之门，协助其进行网络攻击。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/6P9S2VODOJO1S7CY7B_B.png)图片来源：Reuters
+参考链接：
+
+- [德國政府示警 製藥、科技企業已遭中國駭客鎖定](https://news.ltn.com.tw/news/world/breakingnews/3814537)
+- [德企遭中國駭客盯上 北韓網路兩星期二度癱瘓](https://udn.com/news/story/6809/6064506)
 
 
-当地时间1月28日，据RT电视台报道，被加拿大总理特鲁多嘲笑的卡车司机们的“自由车队”，在加拿大边境以南引起了各界的广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-在特鲁多谴责他们为“边缘少数群体”和“不可接受”之后，特斯拉和SpaceX创始人埃隆·马斯克和著名播客乔·罗根都谈到了加拿大卡车司机驾车穿越全国以抗议政府的疫苗强制令。
+总辑：飞虹
+编编：飞虹
+校正/发稿：海阔天空1
 
-周四下午，**马斯克在推特上写道：“这就是加拿大卡车司机的规则”**。
-
-从不列颠哥伦比亚省出发的“自由车队”，预计将在本周末的某个时候到达首都渥太华。起初各大媒体都没有理会，然而，当它接近安大略省时，该车队成了一个政治话题。
-
-在周三的电视讲话中，特鲁多谴责了这些卡车司机，并说他们“不能代表加拿大人”。周四上午，他宣布自己“暴露”于新冠病毒，并将隔离五天——从而错过车队抵达渥太华的时间。尽管他已经接种了疫苗并加强了免疫力，但也感染了病毒。
-
-保守党议员皮埃尔·波利耶夫则指责主流媒体给整个抗议活动抹黑。
-
-“我们不能贬低数以千计的辛勤工作、守法和和平的卡车司机的付出，坦率地说，在过去的两年里，他们用食物填充你们的杂货店货架，用你们依赖的产品充实你们的家，使你们所有人都活着，”波利耶夫说。
-
-“自由车队”的组织者之一、该组织的官方发言人本杰明·迪克特说，他们的活动是和平的、守法的。他告诉《多伦多太阳报》，**车队是为了抗议特鲁多政府强迫司机戴口罩，即使是在卡车内独自一人时也要戴口罩，并要求在穿越美加边境前接受疫苗注射。**
-
-迪克特还否认了关于众筹平台GoFundMe已经冻结了约500万加元的车队捐款的报道，称其为“假新闻”。
-
-乔·罗根是非常受欢迎的播客的主持人，他在周三的节目中也对这支车队给予了关注。他对来自蒙特利尔的一位嘉宾说，他展示了卡车司机（车队）的录像，并称其为加拿大人民正在对政府的疫苗强制进行“反抗”。
-
-“这是一个巨大的卡车车队”，罗根说：**“这显然是一些疯狂的人，五万辆卡车正前往渥太华，抗议特鲁多的疫苗强制。”**
-
-**迪克特****声称,车队的长度超过70公里（43英里）——几乎是目前保持吉尼斯世界纪录的2020年埃及卡车抗议活动规模的十倍。**
-
-原文链接： [Joe Rogan, Elon Musk react to Canadian trucker convoy — RT World News](https://www.rt.com/news/547576-musk-rogan-canada-trucker-convoy/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

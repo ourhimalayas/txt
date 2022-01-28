@@ -2,27 +2,28 @@
 ---
 
 
-## 英医学杂志要求大型药厂公布疫苗原始数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921622/)
+## 布林肯批评中共为中美关系带来更大侵略性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921625/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-1月24日，英国医学杂志BMJ的三位编辑联名发表社论，要求大型药厂公开中共病毒疫苗原始数据，抨击拖延数据的行为在道义上不可原谅 。
+近日，美国国务卿布林肯在亚特兰大的虚拟讨论会上，批评中共政府比前几十年更具侵略性，使美中关系变得越来越敌对。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/10-15.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-35.png)
 
-该社论表示，大型药厂只刊登一部分数据，却拒绝将原始数据公之于众，这种行为使试验参与者、研究人员、临床医生、期刊编辑、政策制定者和公众感到担忧，对这些大型药厂的疫苗缺乏信任，并强调制药公司应立即提供完整的原始数据，供给公众审查。
+无论从经济实践、人权保护、知识产权待遇，还是为经济落后国家提供海外贷款方面，中共时时处处体现出侵略与傲慢之态。中共的步步紧逼，严重危害美国利益，迫使美国不得不做出政策调整。
+
+美国不仅积极联合盟国，外交抵制北京冬奥会，更表示将授权撤离驻北京大使馆。郭文贵先生表示，这项行动也为美国下一步的行动提供了合法的依据。
 
 参考链接：
 
-- [British Medical Journal Demands Access to COVID Vaccine Data, Slams ‘Morally Indefensible’ Pharma Firms.](https://thenationalpulse.com/2022/01/26/british-medical-journal-demands-access-to-covid-vaccine-data-slams-morally-indefensible-pharma-firms/)
-- [Covid-19 vaccines and treatments: we must have raw data, now](https://www.bmj.com/content/376/bmj.o102)
+- [China-US relations: Blinken says Beijing is bringing more aggression to competitive and cooperative ties](https://finance.yahoo.com/news/china-us-relations-blinken-says-093000019.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总辑：文特
-编编：雪梨
+总辑：Irene木木
+编编：Kathy文艺/雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

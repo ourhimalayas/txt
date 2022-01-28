@@ -2,8 +2,8 @@
 ---
 
 
-## 将有几个特好消息
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922262/)
+## 10万美金不是喜币的目标
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922328/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

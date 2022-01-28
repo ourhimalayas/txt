@@ -2,36 +2,44 @@
 ---
 
 
-## 德国制药、科技企业遭中共黑客锁定
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921623/)
+## 埃隆·马斯克透露特斯拉的首要任务不是汽车
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921650/)
 
-作者：台湾宝岛农场 – 鬥陣來拼
-![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-德国联邦宪法保卫局于1月26日发出警告，与中共国有关的黑客团体“APT 27”，又称“猫熊使者”，已锁定德国的制药及科技产业，以渗透并从中窃取信息。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-23.png)
-据悉，“APT 27”位于中共国境内，曾被美国计算机公司戴尔旗下资安公司“安全工程”追踪，并被认为是最活跃的威胁团体之一。除窃取锁定目标的商业机密和智能财产，“APT 27”还试图潜入客户或服务器提供者的网络，以此入侵数家公司。
+**翻译：文扬**
+**编辑：Candy**
 
-美国总统拜登在去年提到过，中共国不但为黑客提供保护，还大开方便之门，协助其进行网络攻击。
-
-参考链接：
-
-- [德國政府示警 製藥、科技企業已遭中國駭客鎖定](https://news.ltn.com.tw/news/world/breakingnews/3814537)
-- [德企遭中國駭客盯上 北韓網路兩星期二度癱瘓](https://udn.com/news/story/6809/6064506)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Tesla.png)Yichuan Cao / NurPhoto via Getty Images
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**这家高科技公司正在寻求在2022年内开发出仿人机器人原型。**
 
-总辑：飞虹
-编编：飞虹
-校正/发稿：海阔天空1
+在周三的财报电话会议上，特斯拉的联合创始人兼首席执行官埃隆·马斯克 (Elon Musk) 宣布，该公司正在优先考虑在2022年开发其仿人机器人——暂时命名为“擎天柱”。他称该项目“非常重要”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这款5英尺8英寸、125磅重的机器于去年8月首次亮相，也被称为特斯拉机器人，它基于与特斯拉驾驶辅助软件中使用的相同的人工智能技术。它的预期用途包括代替人类执行危险的、重复的、体力性的任务。
+
+在埃隆·马斯克眼中，这个项目非常重要，以至于它“有可能随着时间的推移比汽车业务更重要”。 特斯拉首席执行官周三解释说，在最初的试验中，这台机器可能会在特斯拉自己的工厂中得到很好的使用，“在工厂周围移动零件或类似的东西”。
+
+预计最快将于今年推出原型。
+
+马斯克认为，这种机器人的引入可能对全球经济产生深远影响。据这位企业家说，机器最终可以消除劳动力的短缺。
+
+# 马斯克说：与此同时，特斯拉备受期待的电动皮卡（Cybertruck）不得不退居二线，其生产日期被进一步推迟到2023年。除此之外，特斯拉不打算推出任何 “今年的新车型”，因为这将没有任何意义，“我们仍然会受到零部件的限制。”
+
+这一宣布正值电动汽车市场竞争日趋激烈之时，福特汽车公司和Rivian汽车公司等已经推出了自己的电动皮卡车。
+
+然而，从其季度利润来看，到目前为止，特斯拉做得很好：在2021年的最后三个月，其净收入达到创纪录的28.8亿美元。
+
+原文链接： [Elon Musk reveals Tesla’s top priority, and it is not cars — RT World News](https://www.rt.com/news/547527-tesla-prioritizes-robot-over-cars/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

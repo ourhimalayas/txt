@@ -2,25 +2,36 @@
 ---
 
 
-## 不断不交 | 多国拟授权撤离赢取身价，机构欲查封资产釜底抽薪
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1921603/)
+## 英医学杂志要求大型药厂公布疫苗原始数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921622/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月24日，英国医学杂志BMJ的三位编辑联名发表社论，要求大型药厂公开中共病毒疫苗原始数据，抨击拖延数据的行为在道义上不可原谅 。
 
-1月27日，郭文贵先生于GTV、Gettr大直播中透露，继昨日近20国要同美国授权撤离大使馆之后，现在上升至近50国正在跟中共谈判讲数。并表示，美国不断不交的授权撤离是高招，而多数国际金融机构欲查封中共高官海外资产更是釜底抽薪之举。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Artwork_002_V1_1300X900A-scaled-847x560-c.jpg)图片来源HKU
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-15.png)
+
+该社论表示，大型药厂只刊登一部分数据，却拒绝将原始数据公之于众，这种行为使试验参与者、研究人员、临床医生、期刊编辑、政策制定者和公众感到担忧，对这些大型药厂的疫苗缺乏信任，并强调制药公司应立即提供完整的原始数据，供给公众审查。
+
+参考链接：
+
+- [British Medical Journal Demands Access to COVID Vaccine Data, Slams ‘Morally Indefensible’ Pharma Firms.](https://thenationalpulse.com/2022/01/26/british-medical-journal-demands-access-to-covid-vaccine-data-slams-morally-indefensible-pharma-firms/)
+- [Covid-19 vaccines and treatments: we must have raw data, now](https://www.bmj.com/content/376/bmj.o102)
 
 
-根据历史记载，仅有49个国家及地区参加了纳粹德国举办的1936年夏季奥运会，而目前已近50国准备授权撤离驻中共国大使馆，灭共之火的燃烧速度已超出想象。中共外交部在镜头前一如既往的嘴硬，但私下里继续挥霍老百姓的赋税加码交易、各种许诺，卑鄙的嘴脸暴露无遗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-昨天，巴铁（巴基斯坦）的外交人员以新冠病毒检查肛门违反穆斯林宗教传统为由也要求授权撤离大使馆，中共外交部立马允诺第3批码头（军港投资）的建设资金到位。并且，追加筹码请求巴铁总统一定要参加北京冬奥会。
+总辑：文特
+编编：雪梨
+校正/发稿：海阔天空1
 
-美国这次授权撤离大使馆行动属于不断不交，不断不交的化骨绵掌却直拍中共要害。以后各国可以在授权撤离或可能授权归来之间，从垂死挣扎的中共身上博取更多的利益。
-
-与其说中共外交部大撒币续命导致的是国家财政日益枯竭，国际机构开始研究对中共高层家族的海外资产查封，其杀伤力不亚于不断不交的授权撤离。昨天下午，100多家国际金融机构和大公司、30多家国际NGO公益机构，开始认真研究如何制裁中共高官，包括进一步查封他们藏匿在海外的巨额资产，保护好这些被中共盗国贼盗取的属于中国人民的血汗钱。一旦查封行动开始，对中共高层家族来说绝对是手术刀式的致命一击。
-
-另外有消息称，国际货币基金组织也会在中共打台湾之前，用尽一切手段制裁、惩罚中共。种种表明，全球灭共大势已不可阻挡。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
