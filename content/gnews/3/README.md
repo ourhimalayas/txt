@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥宣布甜蜜蜜行动2
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921742/)
+## 新中国联邦宣言对于中国人就是太阳
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921928/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

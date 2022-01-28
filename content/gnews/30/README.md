@@ -2,64 +2,36 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“北京冬奥会”（十五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921478/)
+## 德国制药、科技企业遭中共黑客锁定
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921623/)
 
-**整理：BENJ1
-编辑：Candy**
+作者：台湾宝岛农场 – 鬥陣來拼
+![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+德国联邦宪法保卫局于1月26日发出警告，与中共国有关的黑客团体“APT 27”，又称“猫熊使者”，已锁定德国的制药及科技产业，以渗透并从中窃取信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-23.png)
+据悉，“APT 27”位于中共国境内，曾被美国计算机公司戴尔旗下资安公司“安全工程”追踪，并被认为是最活跃的威胁团体之一。除窃取锁定目标的商业机密和智能财产，“APT 27”还试图潜入客户或服务器提供者的网络，以此入侵数家公司。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/wenguitiancheng.png)
+美国总统拜登在去年提到过，中共国不但为黑客提供保护，还大开方便之门，协助其进行网络攻击。
+
+参考链接：
+
+- [德國政府示警 製藥、科技企業已遭中國駭客鎖定](https://news.ltn.com.tw/news/world/breakingnews/3814537)
+- [德企遭中國駭客盯上 北韓網路兩星期二度癱瘓](https://udn.com/news/story/6809/6064506)
 
 
-**郭文贵****先生****2021****年****12****月****19****日直播**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-共产党内部不是这样，公检法的大调整，公安部部长的调整，政法委整个的没落，中纪委最近到处抓金融机构和政法委的人，都说明了为冬奥会在做预防性的准备。刚刚河北又抓了二十多个人，你看河北政法委会抓多少人，你会看到，血流成河。所以说冬奥会绝对是上天送给爆料革命的大礼。无论是从国际影响、知名度，在党内引起的所有的震撼和未来大家可以预期，任何我们今天谈的，发生一件都是以共灭共，以美灭共的一个重大进展。
+总辑：飞虹
+编编：飞虹
+校正/发稿：海阔天空1
 
-所以说，春节过后，2月1号之后，大家搬着板凳等着吧。
-
-文斌：这里有一个金融组的战友，不好意思Eric，金融组的战友是想问一个问题：港币大概还能坚持多久？
-
-郭文贵先生：我告诉大家，港币一定会灭亡的，但冬奥会以前一定不会灭亡的。港币的灭亡大概是什么时间，基本上跟习本人身体健康、擀面杖经济被穿透、世界经济崩溃这三件事一定会连在一起。台湾、世界经济崩塌、习本人出问题。回答完毕。
-
-**郭文贵****先生****2021****年****12****月****22****日直播**
-
-Vice报道，咱这个哥儿们说了句话。他说：这次共产党对你的设计很深，三个重点，冬奥会之前放你。我们是半年前啊，半年前采访了，五、六月份采访的是吧？几月份我忘了，采访了现在她不说。实际上采访了几个小时，只用了几分钟，而大量的是用我们现在最近的直播，一定在冬奥会前搞你。
-
-兄弟姐妹们，另外一个你知道是冬奥会之前。他从去年就安排好，今年的冬奥会之前播出这个片子（Vice报道），而且我们是第一个要反对北京冬奥会的。
-
-现在请大家要注意，就在冬奥会全球反击的时候，全球都在反击的时候，大家看到共产党在干啥？
-
-所有的中国，习近平要保持高度集中统一，所有的媒体全部控制，全世界都在任何反对共产党的人，就连川普总统都要支持，他反对“反北京奥运”。
-
-据我掌握的情况，共产党说：“我们不惜一切代价要在西方媒体上占领制高点，一定要想尽一切办法消灭一些反对冬奥和杂音！” 你看这两样儿几乎同一时间都出来了。
-
-资料来源：郭先生GTV和盖特直播视频
-
-往期回顾：
-[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
-[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
-[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
-[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
-[文·贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1913831/)
-[文·贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1916177/)
-[文·贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1914628/)
-[文·贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1918018/)
-[文·贵天成——文贵先生谈“北京冬奥会”（九）](https://gnews.org/zh-hans/1918752/)
-[文·贵天成——文贵先生谈“北京冬奥会”（十）](https://gnews.org/zh-hans/1917988/)
-[文·贵天成——文贵先生谈“北京冬奥会”（十一）](https://gnews.org/zh-hans/1918147/)
-[文•贵天成——文贵先生谈“北京冬奥会”（十二）](https://gnews.org/zh-hans/1921128/)
-文·贵天成——文贵先生谈“北京冬奥会”（十三）
-[文•贵天成——文贵先生谈“北京冬奥会”（十四）](https://gnews.org/zh-hans/1921604/)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
