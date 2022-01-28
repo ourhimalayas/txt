@@ -2,38 +2,20 @@
 ---
 
 
-## 为缓解中共财政危机，城投公司大量购买土地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923121/)
+## 中日财经爆|日元暴跌之后东证大幅反弹547点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923214/)
 
-撰稿：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
-在中国房地产业流动性危机席卷民营房企之际，中共国地方城投公司成为购买土地的主力军，试图努力化解“土地财政”模式下地方政府的困境。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2336.png)
-据悉，去年最后两个月，在集中供地的21个大城市中，九座城市至少一半的地块被当地城投公司购买。在经济放缓的情况下，此举虽有助于遏制当前土地销售下滑的趋势，缓解各地政府的财政压力，但这无疑也将推升城投公司的杠杆率，进一步增加本就沉重的债务负担。
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2345.png)[图片来源](https://cn.investing.com/indices/japan-ni225)
+1月28日，东京股市日经平均股价（225种）大幅反弹。因前一天平均股价暴跌的反作用，价格下跌的股票出现了买进势头。在外汇市场，日元走低也给出口相关项目带来了推波助澜。
 
-城投公司即城市建设投资公司，是全国各大城市政府投资融资平台，属于事业单位或者国有独资公司性质。此类城投公司本身不具备盈利能力，通过政府补贴、银行贷款等方式实现运转。此前已有多家大中型银行对地方城投公司收紧购地和开发地产项目的贷款，提高了风控要求，现在却被迫执行政府指令性投融资业务。据悉，今年中共城投公司在境内外市场将面临约3760亿美元的债券到期。爆雷，只是时间问题。
+收盘为26717.34，比前一天上涨了547.04。东证指数（TOPIX）上涨34.45点，达到1876.89点，成交额约为13.2965亿股。
 
-链接：
+信息来源： [東証大幅反発、５４７円高　急落の反動、円安進行も追い風に](https://www.zakzak.co.jp/article/20220128-7TI6LOYMFBFENJXSJC4YBVJHMY/)
 
-[China Banks Curb Property Loans to Local Government Firms](https://www.bloomberg.com/news/articles/2022-01-13/china-banks-restrict-property-loans-to-local-government-firms)
-
-[中国地方政府融资平台大量购买土地](https://www.zaobao.com/realtime/china/story20220126-1236789)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
-
-总编：飞虹
-
-编辑：纽约香草山文艺部 – 宁文静
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

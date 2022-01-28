@@ -2,34 +2,36 @@
 ---
 
 
-## 王毅威胁美国勿在冬奥会和台湾问题上玩火
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922916/)
+## 面对中共制裁 立陶宛表示无更名计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923191/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/tGOcusBP9c5ZZzuAoPIC3oQdx5u-NXJD_UDcY1TZ-ByIdDfpMnokkwJ0zePLGEAHOzEeDuRQMuWeuNxqfEARw5Zevij370dch_QaXVnPDUpMm7xMKGSdv8-H4w2tp9GJaOvCBbda)[*图片来源*](https://www.newsweek.com/china-gives-america-biden-three-urgent-demands-1673446)
-**美国政府授权撤离驻北京大使馆后，中共并未降低“战狼”的调门，继续威胁美国不要干预北京冬奥会、不要在台湾问题上玩火、停止颠覆中共政权。但美国撤离驻华大使馆后，它正在国际社会形成对中共国经济、金融、文化和政治等一系列制裁和“脱钩”，国际社会外交施压的多米诺骨牌效应已经形成，中国共产党政权开始从以往的辉煌走向死亡。**
-
-据中共国新华社28日消息，王毅27日就[美国撤离驻北京大使馆](https://www.washingtontimes.com/news/2022/jan/26/us-mulls-evacuating-beijing-embassy-over-covid-rul/)紧急斡旋，同美国国务卿布林肯通电话时强调，“当前中美双方最重要的工作就是把习近平主席同拜登总统去年11月视频会晤达成的‘相互尊重、和平共处、合作共赢三原则’的重要共识落到实处。”具体内容包括不寻求改变中国体制、不寻求通过强化同盟关系反对中国、不支持“台独”。
-
-- ***延展阅读：***[***中国在冬奥会开始前两周恢复对新冠病毒的肛门拭子检测***](https://www.dailymail.co.uk/news/article-10426431/China-brings-anal-swab-testing-Covid-two-weeks-Winter-Olympics-begin.html)
+撰稿：台湾宝岛农场-dobi
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+针对因台湾在立陶宛设立代表处的中文名称，中共持续对立陶宛进行制裁一事，立陶宛外长蓝斯柏吉斯于26日表示，没有变更台湾代表处名称的计划。台湾驻立陶宛代表也表示，未曾接获变更驻立陶宛台湾代表处的中文或英文名称的要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2339.png)
+当天，台湾驻荷兰代表接受荷媒专访，强烈批评中共国制裁立陶宛企业，胁迫欧盟企业撤出立陶宛等行动，并强调在两岸关系方面，中共的胁迫不会动摇台湾捍卫主权、民主和自由的决心。
 
 
-王毅认为，“美方对华政策的基调并没有发生实质性变化。”疫情后的世界会面临新形势新挑战。施压只会让中国人民更加团结，对抗阻止不了中国走向强大。当务之急，美方应当停止干扰北京冬奥会，[停止在台湾问题上玩火、停止打造各种反华遏华‘小圈子’](http://www.news.cn/mrdx/2022-01/28/c_1310444854.htm)。”
 
-王毅一番措辞透露中共对“[新中国联邦](https://twitter.com/henglixiaoge7/status/1486002278813388802?s=20&amp;t=0bH7vwXyDRN6lR-p2VBW0A)”的恐惧，并指出中美应在“后疫情时代”合作，而不是对抗。但王毅一系列对美国的强硬表态是否使自己立场倒置了呢？自美国授权撤离驻华大使馆后，从中共外交努力一如既往地战狼战术，语气丝毫没有缓和，这不是解决问题的办法，而只能促使美欧国家与其断交决心更加坚定。
+新闻连接：
 
-- ***延展阅读：***[***布鲁塞尔-欧盟就立陶宛争端向中国发起世贸组织行动***](https://www.dtnpf.com/agriculture/web/ag/news/world-policy/article/2022/01/27/eu-launches-wto-action-china-dispute)
+[立陶宛外長：沒有改變台灣代表處名稱計畫](https://tw.news.yahoo.com/%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%A4%96%E9%95%B7-%E6%B2%92%E6%9C%89%E6%94%B9%E8%AE%8A%E5%8F%B0%E7%81%A3%E4%BB%A3%E8%A1%A8%E8%99%95%E5%90%8D%E7%A8%B1%E8%A8%88%E7%95%AB-114935969.html%E3%80%8B)
 
+[駐荷代表接受荷媒專訪 強烈批評中國脅迫立陶宛](https://tw.news.yahoo.com/%E9%A7%90%E8%8D%B7%E4%BB%A3%E8%A1%A8%E6%8E%A5%E5%8F%97%E8%8D%B7%E5%AA%92%E5%B0%88%E8%A8%AA-%E5%BC%B7%E7%83%88%E6%89%B9%E8%A9%95%E4%B8%AD%E5%9C%8B%E8%84%85%E8%BF%AB%E7%AB%8B%E9%99%B6%E5%AE%9B-105143595.html)
 
-此外，王毅紧急与美国国务卿布林肯的通话斡旋的目的还在于[要求美国停止对北京冬奥会的“干预”](https://www.npr.org/2022/01/27/1076047424/china-is-demanding-us-end-its-interference-in-beijing-olympics)，这显然是害怕“美国撤离驻华大使馆”带来更多针对冬奥会的“外交抵制”的多米诺骨牌效应。美国国家公共电视台还透露，王毅是在北京时间周四与美国国务卿布林肯通电话时抱怨，“乔·拜登总统并没有改变（川普时期）对中国的强硬政治和经济政策。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
 
-但路透社27日消息说，“美国周四呼吁中国利用其对俄罗斯的影响力，”布林肯说，“我们呼吁北京利用其对莫斯科的影响力来推动外交。”但政策专家怀疑北京会在僵局中支持华盛顿对俄罗斯普京施压。事实上，这是中俄联合谋划的军事行动计划——[俄中分别拿下乌克兰和台湾](https://gnews.org/zh-hans/1777037/)。
+编辑：飞虹/雪梨
 
-2022年1月28日
+校正/发稿：浪迹天涯
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

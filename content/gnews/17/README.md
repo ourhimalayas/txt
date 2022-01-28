@@ -2,53 +2,40 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2022.01.27
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1923347/)
+## 德国忧北京恐利用中共病毒筛检阻挡顶尖选手参赛
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1923519/)
 
-摘要撰稿人：文俊
+作者：台湾宝岛农场dobi
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/01/85b274e9a06f6834205d1d34c933b939.jpg)
-### 视频链接：
-
-[https://gtv.org/video/id=61f297e628a108147c63ad37](https://gtv.org/video/id=61f297e628a108147c63ad37)
-
-### 音频链接：
-
-
-
-### 摘要：
-
-- 现任政治局委员之一，从小就立志当官，当官就是为了赚钱
-- 七哥的动机就是灭共，不想也没有能力参与美国政治
-- 共产党媒体超限战，凡是美国好的绝对不信，美国坏的绝对信
-- 50个国家跟中共讲数，要撤离
-- 、巴勒斯坦跟中共讲数撤离，巴铁变成巴仇
-- 美国授权撤离：美国对中共态度，不断不交，弄死中共！共产党会被玩死！
-- 昨天下午，最起码100多个机构和 30几个大公司、打着NGO名义的合法金融机构，开始研究如何配合和查封 美国针对中共高官 在美资产，不亚于不断不交 的授权撤离 ！一旦宣布等于对中共 抽筋断血！
-- 美国人恨这些所谓的严肃媒体，超过恨共产党
-- 普京冬奥会行程由22个小时长到48小时
-- 彭帅是监管状态，冬奥会过后，彭帅就得消失
-- 甜蜜蜜外交运动：让更多大使馆闭馆休馆
-- 春节前Hpay上线
-- 七哥打赌，今年喜币价格可以过100
-- 喜币两个缺陷：第一个量太少了，第二个缺陷，就是战友拿币太便宜了
-- G-TV控股公司是G系列的控股公司
-- 某国家5000亿现金占股喜联储5-10%股份，不接受
-- 你看看盘古龙头和毛泽东祖坟的关系，少林寺/五台山和山西法门寺的关系
-- 习近平每天住处，基于三个情报：1安全人员，安保的人一定会有车和通讯；2机要秘书；3只要习还在中国，所到之处必然有服务
-- 七哥人生最大收获：不要因为经历太多失败，就怀疑胜利；不要因为见到坏人，就不相信好人；不要因为听到太多谎言，就不相信真话，不说真话
-- 警示国内同胞：国内但凡有脑子的人，美国授权撤离大使馆，共产党基本上完了，能出来的赶快出来，不要在坑里陷死自己
-- 七哥会一直活着，不会离开
-- 星期天大直播
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
 
 
 
 
 
+![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/01/24/realtime/15532345.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)
 
-编辑发布：闪电训练
+据台媒1月24日报道，北京冬季奥运将于2月4日开幕，德国单板滑雪协会会长侯兹，在德国单板滑雪协会的播客中说：“我怀疑我们能否在中（共）国举行的比赛中看到公平竞争。”他担心有人可能会利用中共病毒筛检来阻挡顶尖选手参赛。
 
+德国滑雪协会高山滑雪队负责人沃尔夫冈·梅尔，也曾对中国在北京冬奥前，近乎“任意”地进行中共病毒检测表示了担忧。
+
+
+
+参考链接：
+
+[https://tw.news.yahoo.com/%E5%BE%B7%E5%9C%8B%E6%86%82%E5%8C%97%E4%BA%AC%E6%81%90%E5%88%A9%E7%94%A8covid%E7%AF%A9%E6%AA%A2-%E9%98%BB%E6%93%8B%E9%A0%82%E5%B0%96%E9%81%B8%E6%89%8B%E5%8F%83%E8%B3%BD-021702597.html](https://tw.news.yahoo.com/%E5%BE%B7%E5%9C%8B%E6%86%82%E5%8C%97%E4%BA%AC%E6%81%90%E5%88%A9%E7%94%A8covid%E7%AF%A9%E6%AA%A2-%E9%98%BB%E6%93%8B%E9%A0%82%E5%B0%96%E9%81%B8%E6%89%8B%E5%8F%83%E8%B3%BD-021702597.html)
+
+编辑：飞虹 校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
