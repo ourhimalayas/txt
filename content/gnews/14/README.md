@@ -2,22 +2,29 @@
 ---
 
 
-## 有声|如俄侵乌美国将制裁普京本人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924671/)
+## 有声|滇池寻梦
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924747/)
 
-配音：香草山教育部 – Rose
+配音：香草山巡管部 – 格格
 ![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间1月25日，美国总统拜登表示，如果俄罗斯入侵乌克兰，将考虑直接制裁俄罗斯总统普京。
+山衔落日近黄昏
+驳船晚归披霞绮
+人世浮名空流转
+多少王炸沉江底
 
-俄罗斯近日陆续向乌克兰边境增派军队，并与白俄罗斯进行联合军演，已经引起北约及美国高度关注。 除了多次与俄罗斯进行外交协商试图说服俄国，北约及美国也在准备必要时军事支持乌克兰对抗俄国的入侵。
+尘缘梦尽觅隐居
+滇池无量悦鸟栖
+浪花朵朵濯我足
+波涛滚滚陶知己
 
-美国总统拜登宣布不排除直接制裁俄罗斯总统普京，这是非常少见的外交手段。 此时提出，更显示出俄乌局势严峻，以及美国极力阻止战事发生的决心。
 
-文字版原文：[如俄侵乌美国将制裁普京本人](https://gnews.org/zh-hans/1914389/)
+
+文字版原文：[滇池寻梦](https://gnews.org/zh-hans/1919131/)
+
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

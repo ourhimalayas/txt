@@ -2,23 +2,30 @@
 ---
 
 
-## 对待彭帅中共的高官有多不要脸
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1924755/)
+## 有声|参议员科顿：美国应该像支持乌克兰一样支持台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924766/)
 
-张高丽收到了假画和假唐三彩，很多都给了彭帅。冬奥会一过，彭帅就得消失。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[布莱特巴特新闻网](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)1月25日报道，在福克斯新闻频道周二播出的 “故事”节目中，参议员汤姆·科顿（Tom Cotton）认为，美国应该向台湾提供更多援助和支持。
 
-**【郭先生直播摘要】**** 2022.1.27 ****对待彭帅，中共的高官有多不要****脸**** **
+科顿表示，中共和普京都想推翻美国作为全球超级大国的地位。美国应该从过往的绥靖、和解和软弱中吸取教训。因为对美国来说，中共国相比俄罗斯对美国构成了更大的威胁。
 
-**郭先生：**
+科顿认为，美国应该向台湾提供和乌克兰一样多，或比其更多的武器、外交、财政和政治支持，以避免台湾发生今天在乌克兰边境看到的危机。台湾对美国来说比乌克兰要重要得多。
 
-张高丽搞彭帅， 彭帅最贵的礼物是张高丽买了一个奥迪2.6。张高丽真够不要脸，高丽收到了假画和假唐三彩，很多都给了彭帅。彭帅最后一检查，所有的唐三彩全是假的，没有一张画是真的。这个王八蛋，一个国家副总理，宇宙无限大，地球是一粒沙，我想让你干啥就干啥。
+文字版原文：[参议员科顿：美国应该像支持乌克兰一样支持台湾](https://gnews.org/zh-hans/1915151/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-昨天朋友和我说这个事情，我怀疑是真的还是假的，那个朋友说他到彭帅家全都拿走的，彭帅现在是被监管状态，失去了自由。冬奥会一过，彭帅就得消失，肯定消失，这是党的命令。她已经给党和国家带来了重大不确定因素。
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-这哥们昨天告诉我的，他说你知道有多夸张七哥，我们几个人收了半天拉走两三车东西，没有一张画是真的，给彭帅的画，没有一个唐三彩古董是真的。他说你知道给彭帅的金链子，平时还真不要，她不要金的，但给了一些画和艺术品都是假的，你说他有多不要脸。
-
-视频剪辑，字幕：GC  | 听写：雨山溪桥客 | 翻譯：精糧 | 编辑&发布：断播
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

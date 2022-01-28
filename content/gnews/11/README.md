@@ -2,24 +2,24 @@
 ---
 
 
-## 有声|欧洲议会委员会吁深化与台湾合作 对抗中共假信息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924677/)
+## 有声|灭共者——七哥小课堂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924760/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月25日，欧洲议会“外国干预欧盟民主程序特别委员会”通过调查报告，指证中共等外国专制政权对欧洲造成严重威胁。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-246.png)“三招”帮你建立自信心，第一：一定不要脸太在乎别人的想法，学会不要面子；第二：要学习、要强大；第三：，不要记住任何人对你的攻击，包括你的爹妈。
+-内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1.png)Three rules to help you build self-confidence, first: don’t care too much about what others think; learn not to care about losing face; second: keep learning, be strong; third: don’t hold a grudge against those who have criticized or attacked you including your parents.
+– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022![我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。 
+-内容来自2022年1月5日郭文贵先生GTV/GETTR直播](https://assets.gnews.org/wp-content/uploads/2022/01/3-2-4.png)我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。
+-内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2-1.png)Our life is infinitely beautiful. Do remember: love, honesty and Take-Down-the-CCP is the foundation that holds us together, only these three can keep us going far, otherwise all will be lost.
+– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022
 
-报告认为，欧洲民众及政府官员绝大多数都没有意识到俄罗斯和中共对欧洲威胁的严重性。 欧盟国家由于防御警觉不足，使关键基础设施易受到恶意破坏及网络攻击，一些很知名的前政治人物受聘为这些恶意国家在公共媒体做宣传，欧盟国家之间出现意见分歧，都加剧了外国势力干预欧盟民主的危机。
 
-报告建议，应支持多元化媒体和事实查核人员、禁止外国资助欧洲政党、紧急改善网络安全、澄清某些欧洲政党与俄罗斯之间不恰当的关系，以及处理中共企图影响欧洲地缘政治的恶意投资。
+文字版原文：[灭共者——七哥小课堂](https://gnews.org/zh-hans/1910728/)
 
-此外，报告还特别提到了台湾，认为台湾所有政府部门都与独立的非政府组织以及社群媒体合作，共同抵御来自中共的假信息攻击，肯定了台湾采取的策略，并建议与台湾进行合作。
-
-文字版原文：[欧洲议会委员会吁深化与台湾合作 对抗中共假信息](https://gnews.org/zh-hans/1916947/)
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

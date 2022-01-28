@@ -2,30 +2,23 @@
 ---
 
 
-## 中共导弹专家逃离中国 投奔自由
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1924736/)
+## 有声|加拿大卡车司机抗议运动筹款已近400万加元
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924764/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据英国媒体近日报道，中共一名重要的导弹专家，在英国军情六处和美国中央情报局的协助下辗转逃到美国。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒1月23日的报道，名为“2022年自由车队”的加拿大卡车司机1·29国会山抗议运动，仅仅一周多的时间，筹款已经远超300万加元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获-3.png)
+该众筹是由阿尔伯塔省的塔玛拉·利奇发起的，旨在反对特鲁多政府已经于1月15日开始实施的，关于卡车司机出入美加边境时的疫苗接种、测试和隔离等相关规定。募集的资金将用于抗议者的燃料、食物和住宿费用。 截至周日晚上9:30，约有39,000人进行了捐赠。有几十笔数千美元的捐款，包括两笔1万美元的大额捐款。
 
-据悉该专家是中共高超音速导弹东风-17的关键技术研发者。该专家逃离中携带的绝密导弹技术，将有助于美、英加强高超音速导弹防御系统。而中共超音速导弹研发领域将遭到重创。
+来自卡尔加里的支持者詹姆斯·鲍德说，除了抗议对大卡车司机的限制，还抗议口罩、疫苗护照，以及无休止地关闭企业。他认为医疗行业已经高度政治化。加拿大卡车联盟CTA周日发表声明，鼓励卡车司机在渥太华国会山合法抗议。截至发稿时间，该笔专项捐款已接近400万加元。
 
-这名专家为什么叛逃？该媒体报道称，这名专家虽然取得了显著成就，但在中共体制内受到压制没有获得升迁，投奔西方是为了能够自由展现其才华。
+文字版原文：[加拿大卡车司机抗议运动筹款已近400万加元](https://gnews.org/zh-hans/1914358/)
 
-有关人士评论，随着中共政权土崩瓦解必将产生雪崩效应，中共体制内将有更多精英与中共绝裂，投奔自由世界。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-参考链接：
-
-- [英媒曝中共導彈專家逃美 或改變戰爭態勢？](https://www.ntdtv.com/gb/2022/01/26/a103331188.html/amp)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：飞虹
-校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
