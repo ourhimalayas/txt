@@ -2,71 +2,64 @@
 ---
 
 
-## 懦弱虚伪制造恐慌！特鲁多再次玩隔离？
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1924264/)
+## 文·贵天成——文贵先生谈“北京冬奥会”（十八）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1924304/)
 
-加拿大温哥华扬帆农场 路仁（家有snow）
+**整理：BENJ1
+编辑：Kelly**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-52-edited.jpg)图片来源：WGHGW
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-298-1.png)图片来源：雅典娜设计组
 
 
-据《CP24》新闻网1月27日报道，加拿大总理特鲁多（俗称小土豆）在得知自己接触了“中共病毒”感染者后，选择了在自家逃避隔离。
+郭文贵先生**2021**年**12**月**29**日直播
 
-小土豆在27日的一条推文中公告了这个消息说，他接受的快速抗原检测结果为阴性，但他遵守当地公共卫生规定并隔离了五天。他说在那段时间他将在家工作。“我感觉很好，将在家工作，”他在推文中写道。 “大家注意安全，请接种疫苗。”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/a-14.png)
-但小土豆办公室表示，事件发生后，总理接触范围内的任何工作人员和部长都没有被隔离。
+冬奥会，举一国之力让“习太阳”玩一个游戏，真是皇帝高兴三分钟，天下死亡黑暗三百年！这跟当年路易十三、路易十四、路易十六时期和法国大革命前夕有啥不一样呢？！和斯大林当时有啥不一样呢？！和萨达姆、卡扎菲、乌干达的阿明、杀华人的苏哈托有啥不一样呢？！
 
-极具讽刺的是，三周前，图鲁多前往渥太华的一家药房接受了第三剂加强针的注射。按照[公共卫生的规定](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/faq.html?CDC_AA_refVal=https%3A%2F%2Fwww.cdc.gov%2Fcoronavirus%2F2019-ncov%2Fvaccines%2Fkeythingstoknow.html)，接种14天以上就算有效接种。小土豆应该妥妥的有效三针接种了吧？
+你（中共）给普京1000多亿，你给法国、德国订了100多架空客飞机，你就搞个狗屁的一个月的奥运会，冬奥会它产啥？就像文化大革命一样，你搞那么多工程，最后留下了啥？悲哀啊！
 
-渥太华公共卫生指南说，任何没有COVID -19 症状且在快速抗原检测中呈阴性的人都不需要自我隔离，除非他们因为密切接触而这样做，比如有症状的家庭成员。那么小土豆有家庭成员有症状吗？迄今为止，还没有这方面消息透露出来。
+郭文贵先生**2022**年**1**月**1**日直播
 
-这不是小土豆第一次隔离了。早在病毒之初的2020年3月，在其妻因病毒检测阳性后，他就开始在家隔离办公，期间还不[忘视频秀自己一个人带三个孩子的经历](https://fashionmodelsecret.com/world-news/justin-trudeau-in-home-isolation-daddys-on-an-important-phone-call/)。
+奥林匹克，奥林匹克神和这个缪斯之神。Music就叫缪斯，缪斯就是Music女神，还有奥林匹克神是一家人。所以音乐、体育、时尚、建筑都是一家，都是歌颂人的本能、完美、敬崇上天的。但是你发现奥林匹克今年北京的冬奥会，在干嘛呢？已经被“习太阳”、共产党搞成了什么了？成了跟全世界的“绑票”行为。
 
-自从2020年12月份加拿大开始全面推广中共病毒疫苗以来，小土豆及其内阁和卫生主管可谓不遗余力的向全加拿大人推广疫苗。可病毒却像耍猴一般戏耍着小土豆和其内阁成员。就在去年12月份，小土豆几个最得力的左膀右臂-财政部长兼加拿大副总理方慧兰（ Chrystia Freeland ），因其团队两名成员检测呈阳性而选择了在家隔离远程办公。几天后，另一位重要内阁-外交部长梅兰妮·乔利（Mélanie Joly）宣布她的快速检测呈阳性并隔离。
+郭文贵先生**2022**年**1**月**5**日直播
 
-根据小土豆的强制政策，其内阁成员和联邦雇员必须是[完全接种疫苗才能工作](https://www.canada.ca/en/employment-social-development/news/2021/12/government-of-canada-will-require-employees-in-all-federally-regulated-workplaces-to-be-vaccinated-against-covid-19.html)。想必这两位部长和其随扈都应该是已接种两针的完全接种者。
+谈到冬奥会我也很简单的告诉大家一个答案，大家知道希特勒还有前苏联都（举办了）奥运会，三年、九年；七年、十一年就全灭了。
 
-完全接种疫苗的内阁部长，和接种完3剂并且检测呈阴性的小土豆，只是因为跟阳性检测者有接触就选择了在家隔离，那么那些成天战斗在一线医院的医生和护士们，他们可是时时刻刻都和中共病毒患者接触，难道他们都要选择回家隔离吗？
+备注：（1936年2月在德国加尔米施-帕滕基兴举行了第四届冬奥会，1936年8月在德国柏林举办了第十一届夏季奥运会。1980年7月在苏联莫斯科举办了第二十二届夏季奥运会。）
 
-小土豆不遗余力所推广的疫苗，就如此无效吗？早在2020年，小土豆就给全加拿大人[订购了超过4亿剂疫苗](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)。够给全加拿大每人打10针以上，包括孕妇和小孩。既然如此不堪一击，可小土豆还是要强行推广他用加拿大纳税人的钱购买的，已经被证明有着明显副作用的毒疫苗，这里面有什么猫腻吗？请参阅[“崽卖爷田不心疼？” 小土豆大撒币背后的猫腻？](https://gnews.org/zh-hans/1882073/)
+中共的冬奥会，一定要想到当年2008的北京奥运会。2000年，中共获得了WTO的入场券，还有一个就是（2001年申请成功）的（2008）夏季奥运会。然后中国共产党在世界上，一下子躲过了八九六四必灭的命运，经济萎靡也是在那种情况下它（振作）起来的。
 
-最近几天加拿大最大的新闻，就是卡车司机们不满小土豆的强制疫苗政策，发起了声势浩大的“自由车队”抗议活动。尽管主流媒体声称只有10%左右的卡车司机受到影响，而不会影响整个运输行业的运行。而根据有记者粗略统计，有超过50000名卡车和140万卡车司机将于1月29日从全国各地聚集到加拿大首都渥太华。另外还有数万名卡车司机组成的卡车车队从美国数个城市前往加拿大给予支援。截至27日，卡车司机们在GOFUNDME上募集的资金也超过了650万加元。
+现在（中共）又搞了个冬奥会，牠现在也是到了一个病毒疫苗灾难、经济大崩溃、要打台湾等这种情况，这绝对不是那么简单的，历史可以告诉我们一个很好的答案。但是人类里有几个去学历史的呢？人类都知道上天之间有轮回，又有几个真正相信上天的？很少很少。那么现在我们看到这个的时候，这绝对不是一个简单的历史的重复，没那么简单！
 
-[根据《真北方》网站统计](https://tnc.news/2022/01/25/recap-of-day-3-of-the-truckers-for-freedom-convoy-across-canada/)，超过十几位保守党的国会议员们对卡车司机的抗议表示支持。就连早前态度模棱两可的保守党党魁奥图尔，也在1月27日发视频表示了对抗议活动的支持，并表示要和卡车司机进行对话。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/b.png)
-推特上极具影响力的人气推主艾伦马斯克，乔希罗根，塔克卡尔森等都对加拿大卡车司机表达了支持。
+大家要看到希特勒、斯大林、列宁、萨达姆、卡扎菲、乌干达的阿明，包括苏哈托、包括日本天皇，他们都有一个共同的特点，从开始自己是一个完全的偶然，经过一定程度的一些人的吹捧，把偶然变成了神迹，把神迹变成了个人崇拜。从过去的给所有人一个未来，变成了自己要控制一切未来。然后要干掉一切过去相信的上帝，他变成了上帝。造神！把许给全世界人所有最美好的故事，变成了他自己唯一的美好故事。最后他被消灭，因为他是肉体之身，他也是黄粱一梦，没有什么了不得的。只是他死之前，他给全世界带来了噩梦，噩梦醒来，但很多人陪葬。
 
-然而，就在1月26日，小土豆在渥太华声称参与“自由车队”的卡车司机只[是“持有不可接受观点的一小撮人](https://globalnews.ca/video/8542159/trudeau-says-fringe-minority-in-trucker-convoy-with-unacceptable-views-dont-represent-canadians)”。这个语气和嘴脸，凡是经历中共国统治的人民再熟悉不过了。“一小撮人”是独裁统治者惯用词汇。 而就在一个月前，小土豆也把未接种疫苗者称为“种族主义和厌恶女性的极端分子”。其用心险恶，可见一斑。
+资料来源：郭先生GTV和盖特直播视频
 
-《Logistic Daily》在领英上发表的一篇文章称：“当和平而令人生畏的‘自由车队’卡车司机们逼近渥太华时，特鲁多却躲藏了起来” 跟我们分析的一样，在打了加强三针而且快速检测为阴性的情况下，小土豆的隔离确实没有理由。唯一的理由，就是他想通过躲起来，躲过卡车司机在渥太华期间的抗议。
+往期回顾：
+[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
+[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
+[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
+[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
+[文·贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1913831/)
+[文·贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1916177/)
+[文·贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1914628/)
+[文·贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1918018/)
+[文·贵天成——文贵先生谈“北京冬奥会”（九）](https://gnews.org/zh-hans/1918752/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十）](https://gnews.org/zh-hans/1917988/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十一）](https://gnews.org/zh-hans/1918147/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十二）](https://gnews.org/zh-hans/1921128/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十三）](https://gnews.org/zh-hans/1922599/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十四）](https://gnews.org/zh-hans/1921604/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十五）](https://gnews.org/zh-hans/1921478/)
 
-作为一个民选的国家领导人，小土豆在任期间，丑闻不断，靠的就是一张厚脸皮度过各种难关。在对待中共强权上，唯唯诺诺，软弱无能，至今加拿大还是五眼联盟中唯一一个罔顾国家和人民信息安全而使用华为设备的国家。对于本国人民，小土豆则是专权狠辣，他曾经表达过[对习近平独裁的羡慕](https://torontosun.com/opinion/columnists/goldstein-trudeau-said-he-admired-chinas-dictatorship-believe-him)，想必他也想通过铁腕手段对待民众，来体验作为独裁者的威风和荣耀。和世界精英主义沆瀣一气的小土豆，口口声声为了人民的福祉，但却破坏宪法，侵犯人权，实行近乎世界最严苛的封锁和强制政策。而这次的所谓接触隔离，一方面想通过制造恐慌，用以达到其不可告人的目的，另一方面，也暴露其个性中的懦弱虚伪。
+**发布：星谕**
 
-比起来加拿大人的福祉，真正让他心心念念的是以达沃斯党为核心的所谓的“世界精英”们处心积虑为人类构造的“大重启（The Great Reset）”或“再建美好（Build Back Better）”计划。难怪达沃斯创世人[施瓦布在2017年哈弗的一次座谈会上说](https://www.bitchute.com/video/RFe1qdfZrGE2/)：“我们感到非常自豪的是，我们与我们的世界经济论坛全球青年领袖一起渗透到了各国的全球内阁。”，毫无疑问，小土豆就是这个全球青年领袖之一。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/c.png)
-* * *
-
-撰稿：路仁（家有snow） 编辑发稿：硫酸羟氯喹64
-
-* * *
-
-参考链接：
-
-[https://www.cdc.gov/coronavirus/2019-ncov/vaccines/faq.html?CDC\_AA\_refVal=https%3A%2F%2Fwww.cdc.gov%2Fcoronavirus%2F2019-ncov%2Fvaccines%2Fkeythingstoknow.html](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/faq.html?CDC_AA_refVal=https%3A%2F%2Fwww.cdc.gov%2Fcoronavirus%2F2019-ncov%2Fvaccines%2Fkeythingstoknow.html)
-
-[https://fashionmodelsecret.com/world-news/justin-trudeau-in-home-isolation-daddys-on-an-important-phone-call/](https://fashionmodelsecret.com/world-news/justin-trudeau-in-home-isolation-daddys-on-an-important-phone-call/)
-
-[https://www.canada.ca/en/employment-social-development/news/2021/12/government-of-canada-will-require-employees-in-all-federally-regulated-workplaces-to-be-vaccinated-against-covid-19.html](https://www.canada.ca/en/employment-social-development/news/2021/12/government-of-canada-will-require-employees-in-all-federally-regulated-workplaces-to-be-vaccinated-against-covid-19.html)
-
-[https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)
-
-[https://globalnews.ca/video/8542159/trudeau-says-fringe-minority-in-trucker-convoy-with-unacceptable-views-dont-represent-canadians](https://globalnews.ca/video/8542159/trudeau-says-fringe-minority-in-trucker-convoy-with-unacceptable-views-dont-represent-canadians)
-
-[https://tnc.news/2022/01/25/recap-of-day-3-of-the-truckers-for-freedom-convoy-across-canada/](https://tnc.news/2022/01/25/recap-of-day-3-of-the-truckers-for-freedom-convoy-across-canada/)
-
-[https://www.bitchute.com/video/RFe1qdfZrGE2/](https://www.bitchute.com/video/RFe1qdfZrGE2/)
-
-[https://torontosun.com/opinion/columnists/goldstein-trudeau-said-he-admired-chinas-dictatorship-believe-him](https://torontosun.com/opinion/columnists/goldstein-trudeau-said-he-admired-chinas-dictatorship-believe-him)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

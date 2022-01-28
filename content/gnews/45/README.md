@@ -2,19 +2,36 @@
 ---
 
 
-## 港闻速递｜曾庆红侄女旗下公司 昨深夜宣布清盘
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1921897/)
+## 台湾不派官员出席冬奥会，未确定是否抵制开闭幕式
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922432/)
 
-**撰文/ 港台前线关注组｜发布日期/ 28/01/2022 **
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/曾慶紅姪女旗下公司-昨深夜宣布清盤.jpg)
-成立于 1972 年，至今有 50 年历史的香港老牌旅行社“星晨旅游”昨日（27日）深夜在官网发出通告，经公司董事会决议，将根据香港公司（清盘及杂项条文）条例，启动自动清盘程序，并宣布下月 16 日下午 3:30 于湾仔温莎公爵社会服务大楼，召开首次债权人会议。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-2015年末，星晨旅游被前中共政治局常委、国家副主席曾庆红的侄女曾宝宝成立的地产公司，花样年控股集团，以 2.2 亿港元收购其全部股权。
+整理/编辑：小红帽
 
-自去年 10 月花样年自爆无力偿付 2.06 亿美元的到期债务之后，财务状况急转直下，去年年销售额大跌 70%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)图片来源：雅典娜设计组
 
-来源｜[RTHK](https://news.rthk.hk/rthk/ch/component/k2/1630980-20220127.htm?spTabChangeable=0)
+
+根据《自由亚洲电台》1月27日报道，中（共）国国台办1月26日以“中（共）国台北”称呼台湾的冬奥代表团。台湾有舆论担心中（共）国借机矮化台湾，因此呼吁选手也不要参加北京冬奥开闭幕式。
+
+不过，台湾陆委会于1月27日在例行记者会回应表示，将依照前例，不派官员出席，但是关于抵制开、闭幕式，将在整体审慎评估后由体育署对外说明。
+
+葡萄牙日前也表示，将不派政治代表出席北京冬奥开闭幕式。
+
+外界揣测，在台湾决定不派官员出席冬奥会后，是否会进一步抵制北京冬奥开闭幕式？
+
+台湾陆委会发言人邱垂正在例行记者会回应表示，经政府衡盱整体情势、国家利益以及选手权益，本届北京冬奥台方运动员将正常出赛。但考量参赛人数有限，及过往台湾官员多不出席的前例，将不派官方代表出席，由中华奥会率团赴中（共）国。
+
+新闻链接：[台湾不派官员出席北京冬奥 是否抵制开闭幕式未松](https://www.rfa.org/mandarin/yataibaodao/gangtai/hcm2-01272022075343.html)
+
+*发布：   tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
