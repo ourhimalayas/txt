@@ -2,57 +2,24 @@
 ---
 
 
-## 饮鸩止渴，中共国地方融资平台大量回购出让土地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1920826/)
+## 加拿大卡车司机车队被当局势力恶意滋扰
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920975/)
 
-#### **【雅典娜快讯】和您一起探究世界**
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image2.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=jDfSLoQb&amp;id=7F51F64B2B86BB6FA4FEDCD112614B30B4AB862E&amp;thid=OIF.rfHtooV7IvnL6AfXzNHY8Q&amp;mediaurl=https%3a%2f%2fi0.wp.com%2fimages.dailyhive.com%2f20220124070728%2fcanadian-trucks-500x258.jpg%3fssl%3d1&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.8c37d22e841bb597abc3c70bd1224b7b%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=258&amp;expw=500&amp;q=Anti-convoy+hashtag+dehumanizes+truckers+as+%e2%80%9cvermin%2c+plague+rats%2c+white+trash%e2%80%9d&amp;simid=301540075674&amp;FORM=IRPRST&amp;ck=ADF1EDA2857B22F9CBE807D7CCD1D8F1&amp;selectedIndex=6&amp;ajaxhist=0&amp;ajaxserp=0)
 
-整理/编辑：文泓
+据加拿大媒体[真北方]1月26日报道，加拿大反抗疫苗护照的卡车司机游行车队，在迅速赢得了全国民众的压倒性协助之外，也同时被当局支持的恶势力贴上“恐怖右翼份子”的污名化标签 ，企图以此非法化这场争取自由权利的民主运动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/A0S4@S0TAXXHMW.png)图片来源：雅典娜设计组
+报道称，这些支持特鲁多当局恶政的势力在诬蔑卡车司机为“暴力的种族主义者”的同时，自己却极尽暴力威胁，使用诸如“瘟疫老鼠、白色垃圾”等恶毒词汇，并在主流媒体的鼓噪之下，合力把反抗强制疫苗护照的示威民众描绘成“白人种族主义者”甚至“极右翼恐怖分子”等。
 
+对此，有评论指出：这些由主流媒体积极参与，并使用各种下作手段对“自由表达民意，勇敢追求人权行动”的蓄意诬蔑和暴力威胁，和去年1月6日发生在美国国会大厦所谓的暴力袭击事件如出一辙，无不处处体现出其背后由中共邪恶势力操纵的幢幢鬼影。
 
-随着中共国房地产危机的升级，**人们发现中国政府正在出台一个诡异的策略，即地方政府将土地卖给自己。**
+校对编辑：硫酸羟氯喹64
 
-在2008年全球金融危机后，中国政府因使用有争议的融资工具而成为头条新闻，这些工具被称为地方政府融资工具（LGFV）。
+发稿： 苦尽甜来 (文來）
 
-简而言之，LGFV是地方政府使用的融资工具，通过投资公司出售政府债券，以资助房地产开发或其他地方基础设施项目。
-
-这听起来很复杂，但本质上意味着地方政府将土地卖给自己，以腾出现金。虽然LGFV不是一个新的现象，**但由于中国正在努力应对房地产崩盘，地方融资平台参与的土地回购在最近几个月里急剧上升。**
-
-与此同时，**房地产价格在下降，销售和开工数据都在暴跌，而像恒大这样的大型房地产开发商已经连续数月徘徊在崩溃的边缘**。
-
-**这些因素意味着地方政府已无法从他们已经习惯的房地产销售中获得收入——这原本是地方融资平台的用武之地。**
-
-事实上，随着越来越多的企业陷入债务危机，地方政府融资平台现已成为开发用地的最大买家，超过了开发商的销售价值。但这是一个有风险的策略，专家们对地方政府融资平台的数量和正在积累的债务水平越来越关注。
-
-虽然没有关于地方政府融资平台债务总额的官方数字，因为它不在政府的官方资产负债表中，正是**这种所谓的“隐性债务”被认为占中国GDP的很大比例。**
-
-例如，在2020年，国际货币基金组织认为中国的地方政府债务约为39万亿元（8.68万亿澳元），而高盛集团的数字为53万亿元（11.8万亿澳元）——这个数字超过了中国GDP的一半。
-
-“换句话说，尽管3000亿美元（4220亿澳元）的恒大暴雷很可怕，但习近平的政府有更大的问题，”福布斯的威廉·佩塞克去年就中国日益严重的地方政府融资问题写道。
-
-据彭博社报道，“多年来，LGFV一直是中国信贷市场迫在眉睫的风险”，然而，地方政府会支持任何陷入困境的LGFV的“隐性担保”，意味着，到目前为止，暂时避免了重大后果。
-
-然而，现在“风险正在积聚”，**LGFV以创纪录的数量购买土地，而同时房地产价格却在崩溃，意味着政府像以前那样获得土地开发收益的好时光一去不复返了。**
-
-随着开发商也按下了建设项目的暂停键，**人们越来越担心地方融资平台最终手拥一大片空置土地。**
-
-同时，LGFV自身也面临着风险，“因为中国政府希望打击不在政府资产负债表上的债务”，彭博社解释说，“至少有五家”国有银行对一些LGFV的贷款实行新的限制。
-
-**2021****年10月底，上海财经大学高等研究院透露，约5.82万亿元（约合13亿美元）的地方政府融资平台债务即将到期，这意味着地方政府可能要借钱了。**
-
-“目前，许多地方政府只能通过借新还旧来继续滚动债务，但这只是饮鸩止渴，这不是一个长期解决方案，”报告说。
-
-原文链接：[Local Government Financing Vehicles: China’s bizarre trend exposes ‘looming risk’ | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/economy/world-economy/bizarre-property-deals-expose-chinas-looming-risk-as-real-estate-crash-escalates/news-story/ad112d44efded9b60d2df535a165b24f)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[新闻来源](https://tnc.news/2022/01/26/anti-convoy-hashtag-dehumanizes-truckers-as-vermin-plague-rats-white-trash/)
 
  
 

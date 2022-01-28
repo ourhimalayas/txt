@@ -2,24 +2,32 @@
 ---
 
 
-## 加拿大卡车司机车队被当局势力恶意滋扰
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920975/)
+## G系列 to the Moon
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921088/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-image2.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=jDfSLoQb&amp;id=7F51F64B2B86BB6FA4FEDCD112614B30B4AB862E&amp;thid=OIF.rfHtooV7IvnL6AfXzNHY8Q&amp;mediaurl=https%3a%2f%2fi0.wp.com%2fimages.dailyhive.com%2f20220124070728%2fcanadian-trucks-500x258.jpg%3fssl%3d1&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.8c37d22e841bb597abc3c70bd1224b7b%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=258&amp;expw=500&amp;q=Anti-convoy+hashtag+dehumanizes+truckers+as+%e2%80%9cvermin%2c+plague+rats%2c+white+trash%e2%80%9d&amp;simid=301540075674&amp;FORM=IRPRST&amp;ck=ADF1EDA2857B22F9CBE807D7CCD1D8F1&amp;selectedIndex=6&amp;ajaxhist=0&amp;ajaxserp=0)
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/G系列to-the-moon.png)
+G系列投资里面GTV是王，了解了GTV才了解G系列，不懂GTV就不懂爆料革命。GTV拥有的不仅是利益和未来，还有决策权和参与权。
 
-据加拿大媒体[真北方]1月26日报道，加拿大反抗疫苗护照的卡车司机游行车队，在迅速赢得了全国民众的压倒性协助之外，也同时被当局支持的恶势力贴上“恐怖右翼份子”的污名化标签 ，企图以此非法化这场争取自由权利的民主运动。
+咱永远不挑战任何国家，咱们不当老大，对谁都友好。
 
-报道称，这些支持特鲁多当局恶政的势力在诬蔑卡车司机为“暴力的种族主义者”的同时，自己却极尽暴力威胁，使用诸如“瘟疫老鼠、白色垃圾”等恶毒词汇，并在主流媒体的鼓噪之下，合力把反抗强制疫苗护照的示威民众描绘成“白人种族主义者”甚至“极右翼恐怖分子”等。
+新中国联邦的视野不止在地球上，更在地球之外。以后想上月球都是轻轻松松的事情，打了疫苗的人肯定不被允许上。
 
-对此，有评论指出：这些由主流媒体积极参与，并使用各种下作手段对“自由表达民意，勇敢追求人权行动”的蓄意诬蔑和暴力威胁，和去年1月6日发生在美国国会大厦所谓的暴力袭击事件如出一辙，无不处处体现出其背后由中共邪恶势力操纵的幢幢鬼影。
+我们是无苗族没打疫苗。到了明年后年，大家都会觉得上月球比来美国还容易的事情，很容易很便宜。我们正在考虑未来G-Club会员福利，我们要送给G-Club会员G-Club号你们会看到以后最牛的会员就是G-Club会员，咱走着看。
 
-校对编辑：硫酸羟氯喹64
+发布：于white
 
-发稿： 苦尽甜来 (文來）
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-[新闻来源](https://tnc.news/2022/01/26/anti-convoy-hashtag-dehumanizes-truckers-as-vermin-plague-rats-white-trash/)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

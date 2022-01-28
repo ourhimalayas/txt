@@ -2,12 +2,15 @@
 ---
 
 
-## 1/19文贵直播：达沃斯天津论坛是干嘛来的（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1920659/)
+## 2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1920663/)
 
-1/19/2022 文贵直播：达沃斯天津论坛是干嘛来的？他们打着血清、玩弄着西藏、新疆、云南的美女和小孩子，他们过去这些年的恶行都是犯罪铁证！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
 
  
 

@@ -2,25 +2,25 @@
 ---
 
 
-## 西方盟国就乌克兰问题抛弃加拿大
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920579/)
+## 中共用数字人民币操纵经济控制人民
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920631/)
 
-加拿大温哥华扬帆农场 文莱
+加拿大温哥华扬帆农场 文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-50-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-51-edited.jpg)图片来源：DJY
 
 
-据加拿大媒体【真北方】1月25日报道，美国总统拜登日前在未邀请加拿大总理特鲁多的情况下，与西方各国领导人就俄罗斯在乌克兰边境的军事集结进行了视频会议。
+据美国媒体1月26日报道，中共正利用数字人民币，不仅试图在世界范围内占据“操纵全球金融系统”的先机，同时也在国内全面控制其民众。
 
-据悉，欧盟委员会主席、欧洲理事会主席和北约秘书长以及西方国家领导人都参加了此次会议。对此，有加拿大保守党议员认为这是特鲁多政府之前未能维护乌克兰利益所导致。面对俄罗斯日益增长的入侵风险，英美等西方国家的部分使馆工作人员及其家属已被建议撤离乌克兰。而特鲁多却对此狐疑未决，不置可否。
+报道称，中共国数字人民币是完全中心化的法币，与基于分布式账本系统的去中心化加密数字货币有本质的不同。由于数字人民币将完全由中国人民银行来发行和控制，因此，中共当局对其所有账户的活动都了如指掌。并以此实现该政权对国家经济和人民的完全控制。
 
-报道指出，特鲁多当局一贯对内独断专权的治国方针，对外绥靖妥协的外交政策，早已使加拿大背离了民主法治，相互尊重的发展轨道，而最终因此将被西方盟友所不耻和唾弃。
+事实表明，数字货币在全球方兴未艾，各国及其金融机构都在研究相关的法规和标准。而[新中国联邦]的[喜联储]及[喜币]则无疑是全球数字金融领域的引领者。其先进的创新设计和安全的使用系统，必定会使[喜联储]拥有制定数字货币使用标准和规则的绝对话语权。
 
 * * *
 
-采编/翻译：文莱       校对编辑，发稿：硫酸羟氯喹64
+采编：文莱，  翻译编辑：文所未闻 ， 校对编辑，发稿：硫酸羟氯喹64
 
-原文链接： [Trudeau excluded from U.S. teleconference over Ukraine conflict | True North (tnc.news)](https://tnc.news/2022/01/25/trudeau-excluded-from-u-s-teleconference-over-ukraine-conflict/)
+原文链接： [https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china\_4235273.html](https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china_4235273.html)
 
  
 

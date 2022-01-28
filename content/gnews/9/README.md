@@ -2,30 +2,21 @@
 ---
 
 
-## 直播摘要20211205
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920984/)
+## 雅典娜时报-第187期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921105/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/直播摘要-1.jpg)
-你真以为共产党认为很多人打了疫苗会出事吗?
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-很多人以为打疫苗不会出事?他反正他自己不会打，他自己孩子也不会打。
-
-他也不认为打了疫苗就一定死。在一个就是地方利益驱动，他就是打疫苗弄钱，所以说这个在钱面前，他就把他那个怀疑就忽视掉了，一个村长都不会给自己孩子打，结果打的都是老百姓。
-
-发布：于white
-
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/936449180375851028/155-7.png?width=768&amp;height=1144)
+*发布：陶子*
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,15 +2,10 @@
 ---
 
 
-## 2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1920663/)
+## 1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1920841/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高-scaled.jpg)
-
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+秘密翻译组-北美组
 
  
 

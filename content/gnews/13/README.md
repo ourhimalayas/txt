@@ -2,32 +2,30 @@
 ---
 
 
-## 新中国联邦护照，KYC和Hpay
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920911/)
+## 科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1921070/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/新中国联邦护照，KYC和Hpay-.jpg)
-护照计划实际上目前有很多选择，但是，护照计划在喜币上市及G系列的成功之后，从以前的求人，变成别人找我们，不仅要免签，还要更安全。我们绝不想因为拿护照，让新中国联邦降格。
+据《福克斯新闻》作者：[IAN HANCHETT](https://www.breitbart.com/author/ian-hanchett/)，2022年1月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2285-e1643338131415.png)图片来源：Fox news 截图
+**在周二播出的福克斯新闻频道“故事”节目中，参议员汤姆-科顿认为，“美国应该向台湾提供与乌克兰同等的武器、外交、财政和政治支持，甚至更多，以避免发生危机。因为中共国对美国的威胁比俄罗斯更大，台湾对美国来说比乌克兰更加重要。”**
 
-目前需要的战友可以通过法制基金联盟委员会，帮你比市场价格低拿到加勒比海的护照，也能一百多个国家免签，严格意义上来说，但这并不是我们的护照。我们要在向世界展示肌肉之后，拿到一级国家的护照，甚至是新中国联盟的护照。美加日战友抓紧KYC！
+科顿说：“我认为，习近平和普京都想颠覆美国全球超级大国的地位。虽然他们不需要公开协调或谈论这些行动，但彼此可以观察到正在发生的事情。习近平看到普京在乌克兰边境集结了超过10万的军队，这很大程度上源自乔-拜登对乌克兰局势的绥靖、和解和软弱态度。我们现在应该从中吸取教训。对美国来说，中共是一个比俄罗斯更大的威胁。台湾对美国比起比乌克兰要重要得多。我们应该向台湾提供与乌克兰一样或更多的武器。我们应该向台湾提供与乌克兰同等或更多的外交、财政和政治支持。这样我们才能够避免在台湾发生和乌克兰边境一样的危机。”
 
-美加日战友千万别错过喜币KYC机会，美加日现在不能KYC才是你的机会，多动动自己的智慧，想办法KYC。
+原文连接：[https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/](https://www.breitbart.com/clips/2022/01/25/cotton-we-should-provide-as-much-support-to-taiwan-as-we-are-to-ukraine-china-is-a-bigger-threat-than-russia/)
 
-有了账号的战友也别忘记多开几个账号，反正也不要钱。Hpay的第一期并不是商业性质的，是点到点的支付，商业支付仅限于GFashion和GClub。第二期，才是在政府牌照和监管下商业支付。到了第三期就像微信支付样，贷款借款都有了，总共有七个阶段。
+翻译：洛杉矶盘古农场 – TrueSky
 
-发布：于white
+校对：洛杉矶盘古农场 – 轰炸机
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+编辑：洛杉矶盘古农场 – WenXiong
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+发布：洛杉矶盘古农场–子萍
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
