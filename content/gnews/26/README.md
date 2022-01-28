@@ -2,31 +2,32 @@
 ---
 
 
-## 加拿大卡车司机铸成世界最长的自由车队
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920463/)
+## 未来的喜联储，绝对天下无敌（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920514/)
 
-加拿大温哥华扬帆农场 薇文
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（上）.jpg)
+我们喜联储会推出纯金的金币。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-47-edited.jpg)图片来源：TSUN
+这个金币最大额可能是100万美元，从100 美金到100万美元。
 
+这个金币有绝对的加密技术。 这个加密到什么程度?是10000%的给你承担责任，没有任何人可以破解。怎么交给你呢?通过你的生物识别加技术识别。 你就可以换现金。
 
-据[多伦多太阳报]1月25日报道，由加拿大货运卡车司机自发组成前往首都渥太华的“自由车队”，目前已长达70多公里，是十倍于2020年埃及卡车车队7.5公里的吉尼斯世界纪录。
+我们有专门的第三方HBank，HBank专门提供兑现，你要什么货币都给你兑付。 你想提黄金，让你提到世界上最安全最保障最认可的黄金，这就是，这就是咱们这个未来的喜联储，绝对天下无敌的。
 
-报道称，这5万多辆自加拿大和美国各地的货运卡车，在严寒的冬季中迅猛集结，其参与者之众，支持者之广，示威规模之壮已远超当初行动组织者的预计。
+发布：于white
 
-据悉，面对本次始料不及的抗议运动，主流媒体不仅掩盖消息，甚至还制造假新闻谎称约500万加元的捐款被冻结。尽管目前筹集的资金远超预期，但示威者表示：不管有无捐款，他们都会继续前进。因为公众已将“抗议车队”视为自由象征的灯塔，并希望以此结束当局各项以防控疫情为由的违宪强制措施。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-然而，“永远不要浪费危机”是加拿大自由党政府的座右铭，独裁者们正在将目前由疫情引发的严重供应链危机，转变为特鲁多个人及其党派从中渔利的最佳契机。
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-* * *
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-采编/编译撰稿：薇文                校对编辑，发稿：硫酸羟氯喹64
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-新闻来源：
-
-1、[WARMINGTON: ‘Freedom’ truckers may form world’s longest convoy](https://torontosun.com/news/local-news/warmington-freedom-truckers-may-form-worlds-longest-convoy?utm_medium=Social&amp;utm_source=Twitter#Echobox=1643158330)
-
-2、[LILLEY: Trudeau uses trucker protests as political weapon](https://torontosun.com/opinion/columnists/lilley-trudeau-uses-trucker-protests-as-political-weapon)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

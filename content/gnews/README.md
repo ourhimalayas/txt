@@ -15,104 +15,104 @@
 
 ---
 
-### [Omicron非疫情终点 世卫：下个变异株传染力恐更强](/content/gnews/1/README.md)
+### [1/27/2022 文贵直播：美国大使馆的授权撤离绝非拜登拍脑袋的决定，这和蓬佩奥、美军军机和军舰访台有何关联？](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [Omicron非疫情终点 世卫：下个变异株传染力恐更强](/content/gnews/2/README.md)
  ` GTV新聞訪談`
 
-### [喜币既不当老大，也不当老二，甚至前五都不想当](/content/gnews/2/README.md)
+### [喜币既不当老大，也不当老二，甚至前五都不想当](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [立陶宛外长：没有改变台湾代表处名称计划](/content/gnews/3/README.md)
+### [立陶宛外长：没有改变台湾代表处名称计划](/content/gnews/4/README.md)
  ` GTV新聞訪談`
 
-### [芬兰也军演防乌克兰大战 日韩准备展开撤侨](/content/gnews/4/README.md)
+### [中国人怎样不在两极思维间游荡](/content/gnews/5/README.md)
+ ` 纽约香草山MOS03`
+
+### [芬兰也军演防乌克兰大战 日韩准备展开撤侨](/content/gnews/6/README.md)
  ` GTV新聞訪談`
 
-### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/5/README.md)
+### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/12文贵直播：杨贝贝拿江志成和吴征的钱执行中共计划（粤语配音）](/content/gnews/6/README.md)
+### [1/19文贵直播：中共和达沃斯党是万恶之源（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/12文贵直播：大片领土被朱江家族出卖给塔吉克斯坦和阿富汗（粤语配音）](/content/gnews/7/README.md)
+### [1/19文贵直播：达沃斯天津论坛是干嘛来的（粤语配音）](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [驻荷代表接受荷媒专访 强烈批评中国胁迫立陶宛](/content/gnews/8/README.md)
+### [1/12文贵直播：海外华人媒体误国误民罪同共产党（粤语配音）](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/12文贵直播：为什么雷·达利奥这时帮中共鼓吹共同富裕？（粤语配音）](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/12文贵直播：杨贝贝拿江志成和吴征的钱执行中共计划（粤语配音）](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/12文贵直播：大片领土被朱江家族出卖给塔吉克斯坦和阿富汗（粤语配音）](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [驻荷代表接受荷媒专访 强烈批评中国胁迫立陶宛](/content/gnews/14/README.md)
  ` GTV新聞訪談`
 
-### [中共用数字人民币操纵经济控制人民](/content/gnews/9/README.md)
+### [中共用数字人民币操纵经济控制人民](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画](/content/gnews/10/README.md)
+### [魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美派「杜鲁门号」参加北约军演 8500士兵待命驰援](/content/gnews/11/README.md)
+### [美派「杜鲁门号」参加北约军演 8500士兵待命驰援](/content/gnews/17/README.md)
  ` GTV新聞訪談`
 
-### [西方盟国就乌克兰问题抛弃加拿大](/content/gnews/12/README.md)
+### [西方盟国就乌克兰问题抛弃加拿大](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [日本新增中共病毒确诊超7万人 连续2天创新高](/content/gnews/13/README.md)
+### [日本新增中共病毒确诊超7万人 连续2天创新高](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [警告大陆别趁机动台湾！ 美海上重兵已驶入南海](/content/gnews/14/README.md)
+### [警告大陆别趁机动台湾！ 美海上重兵已驶入南海](/content/gnews/20/README.md)
  ` GTV新聞訪談`
 
-### [我一定保证,你不给我的代价是你承受不起的](/content/gnews/15/README.md)
+### [我一定保证,你不给我的代价是你承受不起的](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [美外交官在中共受辱被肛检测试新冠病毒](/content/gnews/16/README.md)
+### [美外交官在中共受辱被肛检测试新冠病毒](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [欧盟就中共对立陶宛歧视性贸易正式向WTO提起诉讼](/content/gnews/17/README.md)
+### [欧盟就中共对立陶宛歧视性贸易正式向WTO提起诉讼](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [未来的喜联储，绝对天下无敌（下）](/content/gnews/18/README.md)
+### [未来的喜联储，绝对天下无敌（下）](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [加商界促当局撤销对卡车司机的疫苗护照](/content/gnews/19/README.md)
+### [加商界促当局撤销对卡车司机的疫苗护照](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [未来的喜联储，绝对天下无敌（上）](/content/gnews/20/README.md)
+### [未来的喜联储，绝对天下无敌（上）](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [喜马拉雅交易所为数字资产提供最严密的安全保护](/content/gnews/21/README.md)
+### [喜马拉雅交易所为数字资产提供最严密的安全保护](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [安省家庭护理行业人员严重短缺](/content/gnews/22/README.md)
+### [安省家庭护理行业人员严重短缺](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [天空WIFI在墙内还需要2到3年](/content/gnews/23/README.md)
+### [天空WIFI在墙内还需要2到3年](/content/gnews/29/README.md)
  ` 雅典娜GNotes`
 
-### [天空WiF与量子通信](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
-
-### [有声|河北官员公布赶回河南人，不走往死里打](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [加拿大卡车司机铸成世界最长的自由车队](/content/gnews/26/README.md)
+### [加拿大卡车司机铸成世界最长的自由车队](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2022年1月27日文贵先生直播摘要及音频—银河系农场](/content/gnews/27/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|“清零政策”逼逃港金融精英](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声|中共病毒疫情下 儿童受教权及健康蒙受了无法弥补的损失](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/30/README.md)
+### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报](/content/gnews/31/README.md)
+### [五月花简报](/content/gnews/32/README.md)
  ` mayflowertranslate`
 
-### [美国撤离驻华使馆，高情商与低情商](/content/gnews/32/README.md)
+### [美国撤离驻华使馆，高情商与低情商](/content/gnews/33/README.md)
  ` zuzu`
-
-### [有声|州长注册为代课老师 以应对学校教师短缺](/content/gnews/33/README.md)
- ` MOSREC`
 
 ### [Eglise医生讲述青蒿素有助眠安神抗抑郁作用](/content/gnews/34/README.md)
  ` 喜马拉雅日本银河系农场`

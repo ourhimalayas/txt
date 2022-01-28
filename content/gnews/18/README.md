@@ -2,32 +2,25 @@
 ---
 
 
-## 未来的喜联储，绝对天下无敌（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920524/)
+## 西方盟国就乌克兰问题抛弃加拿大
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920579/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（下）.jpg)
-这里面你怎么解决电的问题?
+加拿大温哥华扬帆农场 文莱
 
-这种技术的核心最重要就是IBM的2nm那个芯片，这个芯片的安全性是军事级别，IBM的2nm芯片没有任何人可以破解。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-50-edited.jpg)图片来源：TNH
 
-这个芯片未来是跟我们的格芯一起生产，大家更懂了是吧。 从芯片的生产到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人管得了。
 
-这就是太空币，数字货币最大的问题支付、兑现、安全和保密，我们这叫中心化的币和去中心化的交易系统和去中心化的技术，天下无敌，这就是技术的核心的核心。
+据加拿大媒体【真北方】1月25日报道，美国总统拜登日前在未邀请加拿大总理特鲁多的情况下，与西方各国领导人就俄罗斯在乌克兰边境的军事集结进行了视频会议。
 
-发布：于white
+据悉，欧盟委员会主席、欧洲理事会主席和北约秘书长以及西方国家领导人都参加了此次会议。对此，有加拿大保守党议员认为这是特鲁多政府之前未能维护乌克兰利益所导致。面对俄罗斯日益增长的入侵风险，英美等西方国家的部分使馆工作人员及其家属已被建议撤离乌克兰。而特鲁多却对此狐疑未决，不置可否。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+报道指出，特鲁多当局一贯对内独断专权的治国方针，对外绥靖妥协的外交政策，早已使加拿大背离了民主法治，相互尊重的发展轨道，而最终因此将被西方盟友所不耻和唾弃。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+* * *
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+采编/翻译：文莱       校对编辑，发稿：硫酸羟氯喹64
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接： [Trudeau excluded from U.S. teleconference over Ukraine conflict | True North (tnc.news)](https://tnc.news/2022/01/25/trudeau-excluded-from-u-s-teleconference-over-ukraine-conflict/)
 
  
 

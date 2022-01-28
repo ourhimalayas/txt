@@ -2,13 +2,13 @@
 ---
 
 
-## 日本新增中共病毒确诊超7万人 连续2天创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1920571/)
+## 1/12文贵直播：大片领土被朱江家族出卖给塔吉克斯坦和阿富汗（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1920654/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._28-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+1/12/2022 文贵直播：朱镕基、江泽民家族把中国大片领土给了塔吉克斯坦和阿富汗，以换取当地矿产的永久开发权从而攫取大量财富，这就叫卖国！所谓和田玉并非和田产，却产自俄罗斯。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

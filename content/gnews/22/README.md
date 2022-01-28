@@ -2,25 +2,25 @@
 ---
 
 
-## 安省家庭护理行业人员严重短缺
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920498/)
+## 美外交官在中共受辱被肛检测试新冠病毒
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920548/)
 
-加拿大温哥华扬帆农场 自由法兰西
+加拿大温哥华扬帆农场 硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-48-edited.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-49-edited.jpg)图片来源：TNH
 
 
-据加拿大[CTV新闻]1月24日报道，[安省家庭护理协会]近日表示，疫情和疫苗强制接种所导致的工作人员严重短缺已使该行业陷入困境。
+加拿大媒体[后千禧年]1月26日报道，根据美国[司法观察组织]最近获得的国务院记录显示，美驻中共国外交官曾被迫接受当局的 “新冠病毒”肛门拭子测试。
 
-据悉，在疫情之前，95%的家庭护工服务申请都能被完成，但现在该数字已经降至56%。此外，由于疫苗接种政策以及“奥密克戎”疫情的爆发，目前已有约4,000名护工离开了工作岗位，而直接给安省医院带来了额外的压力。
+报道称，这些文件是[司法观察组织]通过《信息自由法》获得并于日前公布的。其中显示，当时至少有一名接受如此羞辱性病毒检测的美国外交官员在其公寓被中共卫生部门人员检查了直肠。为此，其他美国外交官员对中共当局强迫他们进行的肛门拭子测试表示出极端的愤怒，并呼吁美国政府“对此采取反击行动”。
 
-报道称，尽管安省政府已承诺在近期为家庭护理行业追加5亿加元的预算以扩大服务范围，但当局正在强施的各项防疫政策，特别是疫苗护照规定，都将阻碍该行业的进一步恢复。
+结合美国政府日前已正式通牒中共政权，从即日起将逐步撤离和关闭其驻北京大使馆和其他地区的领事馆之后，不难得知：中共曾对美国外交官做出的羞辱性肛门检测，或是本次美国政府决绝外交撤离的导火索之一。甜蜜蜜的“以肛灭共”行动或已拉开最后的帷幕。
 
 * * *
 
-采编：文莱,  编译撰稿：自由法兰西 ,校对编辑,发稿：硫酸羟氯喹64
+采编：文莱            编译撰稿，发稿：硫酸羟氯喹64
 
-原文链接： [https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893](https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893)
+原文链接：[https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china](https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china)
 
  
 

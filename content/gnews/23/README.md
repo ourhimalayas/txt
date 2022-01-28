@@ -2,34 +2,24 @@
 ---
 
 
-## 天空WIFI在墙内还需要2到3年
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920494/)
+## 欧盟就中共对立陶宛歧视性贸易正式向WTO提起诉讼
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1920547/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/天空WIFI在墙内还需要2到3年.jpg)
-未来的天空WiFi欧洲版、Elon Musk版、美国政府版都会出来。
+**撰稿：日本东京方舟农场  海星**
 
-但是你想在中共国2到3年内，说没有任何政府控制，是不可能的。
+1月27日，欧盟正式向世界贸易组织（WTO）起诉中共，指控其对立陶宛采取的歧视性贸易，违反WTO贸易规则。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-451.jpg)（图片来源：路透社）
+据《中央社》报导，欧盟贸易事务执行委员会当天表示，中共对其成员国立陶宛设置贸易限制的行为公然违反了WTO贸易规则，已经影响整个欧盟的供应链。执委会委员杜姆布罗夫斯基斯（Valdis Dombrovskis）表示，在经过与双方多次协商失败后，欧盟不得不正式向WTO起诉中共。
 
-中国政府想干扰你这个东西，它干不掉你，但他想干扰你，绝对让你用不成。这是一定的。
+欧盟执委会解释道，中共海关最近一直拒绝对来自立陶宛的货物清关，并向其他欧盟成员国的企业施压，要求向中共国出口时必须从其供应链中移除立陶宛的产品，否则将禁止这些产品进入中共国。此举明显违反WTO 规则，损害立陶宛以及欧盟其他国家出口商的权益。
 
-因为它是站在以个物理地面上的。那么量子技术呢?这个量子通信也会接着会发展，我们已经投了好几家关于这些发展的公司,目前世界上有10家，最好的我们已经投了4家了，也就是说十家有成功，我们有40%会站上那个成功的赌牌，这个40%的成功率是吧?
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202201270378.aspx](https://www.cna.com.tw/news/aopl/202201270378.aspx)
+2.[https://ec.ltn.com.tw/article/breakingnews/3815559](https://ec.ltn.com.tw/article/breakingnews/3815559)
 
-量子计算，那么量子计算突破下部就是如何解决基站的问题、加密的问题。而且如何把它平民化的问题，就是如何让它更便宜，甚至不用钱，解决基站的问题，这需要2到3年。 所以墙内战友们，你们千万别梦想着说这明天后天,你就可以无界的使用，是不可能的.
-
-发布：于white
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材采编：海星
+编辑：文顺
+发布：爱放飞
 
  
 

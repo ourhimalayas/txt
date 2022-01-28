@@ -2,30 +2,25 @@
 ---
 
 
-## 我一定保证,你不给我的代价是你承受不起的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920550/)
+## 中共用数字人民币操纵经济控制人民
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920631/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/我一定保证你不给我的代价是你承受不起的-.jpg)
-你千万别觉得他们怎么着。就像某个国家要跟我们数字银行一样。 我说你可以不给我，我一定保证,你不给我的代价是你承受不起的，我就让你的敌人给我。
+加拿大温哥华扬帆农场 文所未闻
 
-你可以不给我，我绝对让你的国家对面的那个敌人国批给我。 你会什么感觉? 因为我们的成长强大是谁也挡不住的，只是跟谁一起强大。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-51-edited.jpg)图片来源：DJY
 
-我们战友现在才几个人呢? 加一起。在外面的也就是几千万人吧。你到全世界就我们战友是极少的∶无苗族，有币族，有币股东族，铸币权族、媒体股东、GClubs会员、GFashion 品牌股权拥有人。你说我们这战友走到哪儿去得得怎么走啊? 人家说横着走。我们是飞着走啊。
 
-发布：于white
+据美国媒体1月26日报道，中共正利用数字人民币，不仅试图在世界范围内占据“操纵全球金融系统”的先机，同时也在国内全面控制其民众。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+报道称，中共国数字人民币是完全中心化的法币，与基于分布式账本系统的去中心化加密数字货币有本质的不同。由于数字人民币将完全由中国人民银行来发行和控制，因此，中共当局对其所有账户的活动都了如指掌。并以此实现该政权对国家经济和人民的完全控制。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+事实表明，数字货币在全球方兴未艾，各国及其金融机构都在研究相关的法规和标准。而[新中国联邦]的[喜联储]及[喜币]则无疑是全球数字金融领域的引领者。其先进的创新设计和安全的使用系统，必定会使[喜联储]拥有制定数字货币使用标准和规则的绝对话语权。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+* * *
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+采编：文莱，  翻译编辑：文所未闻 ， 校对编辑，发稿：硫酸羟氯喹64
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接： [https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china\_4235273.html](https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china_4235273.html)
 
  
 

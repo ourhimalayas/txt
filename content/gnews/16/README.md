@@ -2,26 +2,37 @@
 ---
 
 
-## 美外交官在中共受辱被肛检测试新冠病毒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920548/)
+## 魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1920630/)
 
-加拿大温哥华扬帆农场 硫酸羟氯喹64
+2022-01-27
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-49-edited.jpg)图片来源：TNH
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1V5PSJRHN_3XUD66K4.png)图片来源：塞尔日·查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日
+加拿大魁北克省的LA PRESSE日报（塞尔日•查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日）发表一张题为《奥图尔和卡车司机》的漫画图片
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5USE3IK0BQRWMOJXQHSRE.png)图片来源：塞尔日·查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日
+漫画中的文字（O’TOOLE SE DISSOCIE DE LA DROITE CONSERVATRICE QUI APPUIE LE CONVOI DES CAMIONNEURS）表示：奥图尔O’Toole与支持卡车司机车队的保守派右翼脱离关系。漫画中显示，奥图尔O’Toole 在高速行驶的卡车下面高喊：“停车”！！！
+
+周一，2022 年 1 月 24 日，一篇题为《[50,000 trucks heading toward Ottawa to demand an end to COVID mandates](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/)》的文章报道，特鲁多表示卡车司机是在”散布恐惧”。但是，加拿大保守党（CPC）议员皮埃尔·波伊利耶夫（Pierre Poilievre）却说：”新冠病毒已成为权力当局控制取代我们自由的永无止境的借口。让我们的卡车司机开道，恢复所有人的自由。然而，加拿大保守党CPC领导人，艾琳·奥图尔Erin O’Toole，一直对卡车司机自由车队保持沉默，拒绝表示他是否支持他们。
+
+今天，2022年1月27日，一篇题为《[Groupes extrémistes : «vous risquez de nuire aux chances des camionneurs», dit O’Toole](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/) 》的文章报道，加拿大保守党领袖艾琳·奥图尔（Erin O’Toole）在周四上午发表于《多伦多太阳报》的一封信中警告极端组织，不要在接下来的几天内使用暴力进行抗议，并说使用这种方法抗议可能会严重损害卡车司机的职业。
+
+这就解释了为什么漫画中显示，奥图尔O’Toole 在卡车下面高喊：“停车”！！!从漫画中不难看出，这辆卡车已经不可能停下了。塞尔日•查普洛SERGE CHAPLEAU发表这张漫画图片会不会激发更多的卡车司机参与这个示威活动？最终会出现什么样的局面？让我们拭目以待。
+
+另外，Gnews, 2022 年 1 月 25 日发表一篇题为《[魁北克省媒体刊登冠以极具政治敏感性标题：“公民不服从”的漫画](https://gnews.org/zh-hans/1916348/) 》的文章报道，这位漫画家，塞尔日•查普洛SERGE CHAPLEAU，还发表了一张题为《公民不服从》的漫画图片。
+
+**参考资料**：
+
+1. [LA PRESSE，塞尔日•查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日，O’Toole et les camionneurs，](https://www.lapresse.ca/debats/caricatures/2022-01-27/o-toole-et-les-camionneurs.php)
 
 
-加拿大媒体[后千禧年]1月26日报道，根据美国[司法观察组织]最近获得的国务院记录显示，美驻中共国外交官曾被迫接受当局的 “新冠病毒”肛门拭子测试。
+编辑：LILY
+发布：肥鯮
+校对：班粉小哥
 
-报道称，这些文件是[司法观察组织]通过《信息自由法》获得并于日前公布的。其中显示，当时至少有一名接受如此羞辱性病毒检测的美国外交官员在其公寓被中共卫生部门人员检查了直肠。为此，其他美国外交官员对中共当局强迫他们进行的肛门拭子测试表示出极端的愤怒，并呼吁美国政府“对此采取反击行动”。
-
-结合美国政府日前已正式通牒中共政权，从即日起将逐步撤离和关闭其驻北京大使馆和其他地区的领事馆之后，不难得知：中共曾对美国外交官做出的羞辱性肛门检测，或是本次美国政府决绝外交撤离的导火索之一。甜蜜蜜的“以肛灭共”行动或已拉开最后的帷幕。
-
-* * *
-
-采编：文莱            编译撰稿，发稿：硫酸羟氯喹64
-
-原文链接：[https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china](https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
