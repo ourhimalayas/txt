@@ -2,16 +2,14 @@
 ---
 
 
-## 中日财经爆|日元暴跌之后东证大幅反弹547点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923214/)
+## 吉尔吉斯斯坦和塔吉克边境冲突导致两人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923237/)
 
 撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2345.png)[图片来源](https://cn.investing.com/indices/japan-ni225)
-1月28日，东京股市日经平均股价（225种）大幅反弹。因前一天平均股价暴跌的反作用，价格下跌的股票出现了买进势头。在外汇市场，日元走低也给出口相关项目带来了推波助澜。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2346.png)图片来源本文链接
+中亚吉尔吉斯斯坦1月27日指责在边境部署的邻国塔吉克斯坦部队攻击吉尔吉斯斯坦。塔吉克当局28日表示，在冲突中有2人死亡。
 
-收盘为26717.34，比前一天上涨了547.04。东证指数（TOPIX）上涨34.45点，达到1876.89点，成交额约为13.2965亿股。
-
-信息来源： [東証大幅反発、５４７円高　急落の反動、円安進行も追い風に](https://www.zakzak.co.jp/article/20220128-7TI6LOYMFBFENJXSJC4YBVJHMY/)
+信息来源： [国境で戦闘、２人死亡　キルギスとタジク](https://www.jiji.com/sp/article?k=2022012800763&amp;g=int)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*

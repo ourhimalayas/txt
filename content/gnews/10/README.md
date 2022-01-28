@@ -2,19 +2,18 @@
 ---
 
 
-## 未来是数据网
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1923591/)
+## 西媒头条 — 第163期 – 西媒看天朝
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1923614/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+**制作：蚂蚁兄弟**
 
-发布：陶子
+**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/xm220128.002.jpeg)
+发稿：信心满满
 
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+
+
 
  
 

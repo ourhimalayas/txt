@@ -2,22 +2,24 @@
 ---
 
 
-## 多数美国人不认为新冠病毒会离去
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1923665/)
+## 《纽约时报》承认 未接种疫苗者感染率、住院率低于已接种者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1923677/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-103.jpg)
-图片来源： www.bbc.com
+翻译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-51.jpg)
+《国家脉动》记者娜塔莉1月27日报道，《纽约时报》承认，未接种过 COVID-19 疫苗但曾感染该病毒的人“感染率和住院率低于仅受疫苗保护的人”。
 
-美联社1月27日报道，在疫情之初，佛罗里达州红莓市的38岁作为父亲的海鲜经营者瑞恩·沃森小心翼翼地戴着口罩，没有真正的社交活动，多数在网上购物，当去年他打了疫苗之后开始放松下来，他见了一些朋友并更多地去父母那里，虽然去商店他还是戴口罩，近来的疫情上升也没有使他改变多少，因为他打了疫苗，而且知道这个变种没有原来那么重。
+《纽约时报》1 月 19 日发布的 COVID-19 直播博客解释了以前感染过该病毒的未接种疫苗者如何“与仅受疫苗保护的人相比，感染率和住院率更低”。
 
-就像许多人那样，沃森已经开始相信新冠病毒可能再也不会完全离去。他说： “ 它将变成流行病，永远都会与我们共存，这很烦人但我们又能做什么呢？”
-许多美国人认为这将永远留在人间，至少要持续很长时间。与媒体相关的公共事件研究中心NORC中心民意调查显示只有15%的人认为疫情会完全消失，而83%说他们感觉疫情很大可能病情变得轻一些而已。
+从 2021 年 5 月 30 日那周起，接种过疫苗且未感染过 Covid 的人感染冠状病毒和住院的风险最低，其次是未接种疫苗但之前被诊断出感染过 Covid 的的人。
 
-##### 新闻来源： [Will virus be ‘over’? Most Americans think not: AP-NORC poll](https://apnews.com/article/when-will-coronavirus-pandemic-end-poll-3eae1f01412794b152934501f4b2c30f)
+然而，到 了10 月 3 日那周开始，有过感染且接种过疫苗的人对 Delta 变种的表现最好。**有过感染但未接种疫苗的人感染率和住院率也比仅受疫苗保护的人低。**
 
-#  
+研究人员说：“这些数据与国际研究中观察到的趋势一致。”
 
+《纽约时报》试图通过将其归因于“疫苗衍生免疫力减弱”来解释感染 COVID-19 的接种疫苗和未接种疫苗之间的差异。
+
+新闻链接：[https://thenationalpulse.com/2022/01/27/nyt-admits-unvaccinated-had-lower-covid-infection-rate/](https://thenationalpulse.com/2022/01/27/nyt-admits-unvaccinated-had-lower-covid-infection-rate/)
 
  
 
