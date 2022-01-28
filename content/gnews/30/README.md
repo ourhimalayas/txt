@@ -2,24 +2,26 @@
 ---
 
 
-## 俄罗斯正往乌克兰前线派遣医疗队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1922799/)
+## PayPal因无解释没收资金而面临法律诉讼
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922934/)
 
-#### 撰稿：彩虹   
+##### 翻译：Annabelle
+校对：枳实
+剪辑|字幕：蛮吉
+编辑：Mttfly
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-46.jpg)图片来源：澳大利亚人报
-1月27日，《新闻极限》引述《华尔街日报》的报道，周四，西方国防官员报告说，莫斯科正在往乌克兰前线派遣医疗队。
+据福克斯新闻报道，PayPal正面临着一个集体诉讼。许多用户反映PayPal没有给予任何解释，肆意非法冻结他们的资金。原告提供两件证据。其一，PayPal在冻结用户资金前，并没有给用户申辩的权利。其二，PayPal使用条款中显示，除非商家已被PayPal批准，账户拥有者不可以转入或者汇出与赌博有关的资金，包括并不限于赌资、赌债、赌博所得。但很多人的资金，并非因为与赌博相关也被冻结。陪审团接下来会对此事进行表决。
 
-报道说，大约有10万名俄罗斯军人驻扎在乌克兰前线。之前，俄罗斯在格鲁吉亚和乌克兰边境附近集结了大量部队，但在大规模集结后又缩减了部队，这使得西方情报组织无法确定弗拉基米尔·普京（Vladimir Putin）总统的计划。
+视频链接：[PayPal faces lawsuit claiming it seized money without explanation](https://video.foxnews.com/v/6291957136001#sp=show-clips)
 
-本周早些时候，副国务卿温迪·谢尔曼（Wendy Sherman）说：“我不知道他是否已经做出最终决定，但我们确实看到各种迹象表明他将在某个时候，也许是现在和2月中旬使用军事力量。”
-
-而《华尔街日报》引用一匿名的德国高级官员的话说：“美国认为普京将进行一场全面的战争，而欧洲人认为他是在虚张声势，美国人正在为发生的军事行动做准备，而我们则没有。”
-
-**新闻来源**
-
-[Moscow Moves Medical Units to Ukrainian Front](https://www.newsmax.com/newsfront/russia-ukraine-medical-units-military/2022/01/27/id/1054375/)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

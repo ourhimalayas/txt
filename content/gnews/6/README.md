@@ -2,30 +2,24 @@
 ---
 
 
-## 台湾着手调度蓬佩奥先生访台事宜
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923167/)
+## 港府廉价招募大专生采样
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923202/)
 
-新闻采集/撰稿： 日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
-据台湾媒体1月26日报道，台湾政府正在调整“哈利法克斯台北论坛“的时间，期待美国前任国务卿蓬佩奥先生出席本次论坛。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2337.png)
-据悉，本次论坛原定于3月10日在台北举行，鉴于国际疫情，具体开幕时间正在调整中。台湾外交部表示，台湾诚挚欢迎蓬佩奥先生来台访问。
+作者：东京樱花团丨阿恩
+![](https://lh3.googleusercontent.com/ZUe4ioTvWx7BjPDLL7KAk4jnpNR6_22QGDnJUJvePArDCVsW0BJLLLlBB7-d3pz1jX0sSyaGqpJFE_bHvborKn4mcVITAd4pJvkI8TfaVF-aEdQce2_DRKEk5j-M3Q4KRekj8XHD)
+目前香港中共病毒（新冠病毒）检测需求大增，食物及卫生确认港府招募大专院校医疗相关学科的学生协助采样工作，目前已有约700个学生响应招募，包括香港大学、香港中大大学、香港理工大学、东华学院、明爱专上学院和香港都会大学的学生。学生的时薪仅70元至120元。公务员事务局早前邀请退休纪律部队人员于正月年廿九至初三参与“围封及强检行动”，每小时可获390元报酬。
 
-新闻链接：[最友台美國國務卿 傳蓬佩奧3月將訪問台灣](https://tw.news.yahoo.com/%E6%9C%80%E5%8F%8B%E5%8F%B0%E7%BE%8E%E5%9C%8B%E5%9C%8B%E5%8B%99%E5%8D%BF-%E5%82%B3%E8%93%AC%E4%BD%A9%E5%A5%A73%E6%9C%88%E5%B0%87%E8%A8%AA%E5%95%8F%E5%8F%B0%E7%81%A3-154502645.html)
+中共独裁统治香港后，港府的工作越来越不靠谱，以往仅限本港专业机构的工作也向社会招标，比如中共病毒的检测，港府史无前例地引入数间内地检测公司，其中包括华大基因，华大屡次被爆出检测出错，港府面对舆论依旧姑息，仅处以暂停检测整顿。据新中国联邦的医疗团体透露，病毒采样工作是十分严谨的工作，需要专业人员操作，以免因采样导致人体伤害，而且中共病毒的采样完全可以通过口水样本完成。港府以疫情严峻为由，廉价招聘医疗关系学科的大学生做采样零工，完全忽视被采样者的人身伤害，而且对参与采样的学生也会造成被感染风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
+中共拿武汉人民试验新冠病毒，导致疫情失控，地方医疗系统崩溃，中共从全国各地调集了众多的义务人员前往支持，其中就有大量的医学相关专业的学生，这些孩子被当众剃掉头发哭泣着被送往武汉，虽然中共始终掩盖着真相，但仅从网络上漏出的信息就可知，有大量的医务人员殉职。
 
-总编/编辑：飞虹
+香港的疫情还不至于发展到当时武汉的程度，但港府此举已与中共草菅人命的作风如出一辙。如今的香港正潜移默化地运行着中共奴役内地同胞的暴政，港人切记要保持清醒，勿趋炎附势被中共奴化。
 
-校正/发稿：浪迹天涯
+资料来源：[**新冠疫情丨政府招募大专生协助采样 食卫局：700学生响应**](https://news.mingpao.com/ins/%e6%b8%af%e8%81%9e/article/20220128/s00001/1643349432250/%e6%96%b0%e5%86%a0%e7%96%ab%e6%83%85-%e6%94%bf%e5%ba%9c%e6%8b%9b%e5%8b%9f%e5%a4%a7%e5%b0%88%e7%94%9f%e5%8d%94%e5%8a%a9%e6%8e%a1%e6%a8%a3-%e9%a3%9f%e8%a1%9b%e5%b1%80-700%e5%ad%b8%e7%94%9f%e9%9f%bf%e6%87%89)
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,22 @@
 ---
 
 
-## PayPal因无解释没收资金而面临法律诉讼
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922934/)
+## 中共开冬奥会难以掩盖新疆维吾尔族的种族灭绝
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1922992/)
 
-##### 翻译：Annabelle
-校对：枳实
-剪辑|字幕：蛮吉
-编辑：Mttfly
+作者：Aiolis
 
-据福克斯新闻报道，PayPal正面临着一个集体诉讼。许多用户反映PayPal没有给予任何解释，肆意非法冻结他们的资金。原告提供两件证据。其一，PayPal在冻结用户资金前，并没有给用户申辩的权利。其二，PayPal使用条款中显示，除非商家已被PayPal批准，账户拥有者不可以转入或者汇出与赌博有关的资金，包括并不限于赌资、赌债、赌博所得。但很多人的资金，并非因为与赌博相关也被冻结。陪审团接下来会对此事进行表决。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/fullsizeoutput_b8b.jpeg)
 
-视频链接：[PayPal faces lawsuit claiming it seized money without explanation](https://video.foxnews.com/v/6291957136001#sp=show-clips)
+据Catch News新闻网1月28日报道，世界维吾尔代表大会执行委员会副主席伊尔沙特·哈桑·科克博尔对中共在新疆的情况做了一个介绍。比如中共反人类组织一直以来都把维吾尔人的穆斯林定义为“恐怖分子”，然而从表现来看，更切合恐怖组织身份的恰恰是中共，所作所为具备邪教属性。因为中共不喜欢，他们都是中共的猎物，是中共在集中营里任意关押和宰杀的迫害残杀对象。文中强调了希望各国在外交上抵制中共冬奥会的诉求，以回击中共在新疆进行的种族灭绝行为。 中共在新疆进行非常血腥的压制各种批评，威胁和虐待不断，失踪的人数比大屠杀的人还要多，家庭安全感荡然无存，中共想通过奥运会粉饰太平，却无法掩盖180万维吾尔族人被转移到集中营，另210万被摘取器官，多达400万维吾尔人被关押集中营和被强迫劳动，占领地区大约14000家强迫劳动的工厂。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+    以上这些，中共不会承认，有的虽然逃离海外，但是家人被关押集中营，随时面临中共的威胁和绑架，失去了正常的家庭联系，生计难以保证，那些观看冬奥会的人，实际是对中共过去在新疆进行种族灭绝和迫害的赞许，维吾尔族人失去了自由和家人的正常的交流。
+
+新闻链接：
+[http://China will use Beijing Olympics to whitewash Uyghur genocide | Catch News](http://China%20will%20use%20Beijing%20Olympics%20to%20whitewash%20Uyghur%20genocide%20|%20Catch%20News)
+
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 
