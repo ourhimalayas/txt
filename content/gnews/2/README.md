@@ -2,28 +2,34 @@
 ---
 
 
-## 中国联通被FCC勒令60天内停止公司在美业务
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1924992/)
+## 加政府未阻止中企9亿加元收购其锂矿企业
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1925042/)
 
-素材：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2b35-9527decd43b9efaf28124a447a00c6a3.png)图片来源：FCC
-FCC主席Jessica Rosenworcel表示，“越来越多的证据表明，中国运营商对我们的电信网络安全构成了威胁。”Rosenworcel还表示，FCC将对Pacific Networks Corp.及其全资子公司ComNet进行“类似的程序”。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/LRKHFOLQYVP3BH2LAAENGSM3CY.jpg.jpg)图片来源：The Globe and Mail
+根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
 
-作为中国三大电信运营商之一，中国联通已在美国合规运营了近20年。在2020年6月的一份文件中，中国联通称公司一直以来都遵守当地规则，没有被赶出美国理由。
+在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
 
-这不是美国对中国电信行业的公司第一次出手。去年10月，FCC决定撤销中国电信美洲公司在美国运营的授权。中国电信美国公司发言人对外表示，“FCC的决定令人失望。”
+加拿大和美国在2020年承诺紧密合作，以确保锂等关键矿产的可靠供应。但在周四的听证会上，Champagne先生不会回答他是否与美国或加拿大的任何盟友讨论过Neo Lithium的交易。
 
-当时，工业和信息化部发表声明称，“美方在未列出我企业具体违法事实的情况下，仅凭主观揣测和怀疑就吊销其214牌照，不符合美国市场化国家的形象，也损害了包括美国用户在内的全球消费者的正当权益。”
+反对党保守党表示，自由党政府本应阻止紫金矿业([601899.SS](https://www.reuters.com/companies/601899.SS))去年以9.187亿加元(7.213亿美元)收购Neo Lithium([NLC.V](https://www.reuters.com/companies/NLC.V)) 。
 
-工信部补充称，“近年来，美方不断以国家安全为由，罔顾事实，频繁制裁中国企业。这是滥用国家力量对中国企业的无理打压，是对国际经贸规则的严重破坏。”
+保守党表示，在华盛顿与加拿大合作促进关键矿物的区域供应链，以对抗中共主导地位的时候，允许这宗收购的决定并不合理。
 
-不仅如此，FCC还曾在2019年否决了中国移动在美开展业务的申请，当时使用的理由同样是“可能严重危及美国国家安全”。
+商鹏飞对下议院工业委员会表示：“有足够的信息来确定这项交易不会对国家安全造成损害。Neo Lithium的矿产储备是由碳酸锂组成，而电动汽车电池生产商偏好使用氢氧化锂”。
 
-原文链接：[中国联通被FCC勒令60天内停止公司在美业务](https://m.cnbeta.com/view/1231119.htm)
+去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
 
-* * *
+伦敦Benchmark Mineral Intelligence公司的首席数据官Caspar Rawles说，碳酸锂比氢氧化锂在电动汽车上使用更广泛，由于短缺交易价格很高。
 
-*编辑 /发布：吐纳*
+原文链接：
+
+[https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB](https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB)
+
+[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
+
+编辑，发稿Spirit
 
  
 

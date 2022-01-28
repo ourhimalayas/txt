@@ -2,19 +2,18 @@
 ---
 
 
-## 有声|灭共者——七哥小课堂
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924760/)
+## 有声|加拿大卡车司机抗议运动筹款已近400万加元
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924764/)
 
 配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-246.png)“三招”帮你建立自信心，第一：一定不要脸太在乎别人的想法，学会不要面子；第二：要学习、要强大；第三：，不要记住任何人对你的攻击，包括你的爹妈。
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1.png)Three rules to help you build self-confidence, first: don’t care too much about what others think; learn not to care about losing face; second: keep learning, be strong; third: don’t hold a grudge against those who have criticized or attacked you including your parents.
-– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022![我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。 
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播](https://assets.gnews.org/wp-content/uploads/2022/01/3-2-4.png)我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2-1.png)Our life is infinitely beautiful. Do remember: love, honesty and Take-Down-the-CCP is the foundation that holds us together, only these three can keep us going far, otherwise all will be lost.
-– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒1月23日的报道，名为“2022年自由车队”的加拿大卡车司机1·29国会山抗议运动，仅仅一周多的时间，筹款已经远超300万加元。
 
+该众筹是由阿尔伯塔省的塔玛拉·利奇发起的，旨在反对特鲁多政府已经于1月15日开始实施的，关于卡车司机出入美加边境时的疫苗接种、测试和隔离等相关规定。募集的资金将用于抗议者的燃料、食物和住宿费用。 截至周日晚上9:30，约有39,000人进行了捐赠。有几十笔数千美元的捐款，包括两笔1万美元的大额捐款。
 
-文字版原文：[灭共者——七哥小课堂](https://gnews.org/zh-hans/1910728/)
+来自卡尔加里的支持者詹姆斯·鲍德说，除了抗议对大卡车司机的限制，还抗议口罩、疫苗护照，以及无休止地关闭企业。他认为医疗行业已经高度政治化。加拿大卡车联盟CTA周日发表声明，鼓励卡车司机在渥太华国会山合法抗议。截至发稿时间，该笔专项捐款已接近400万加元。
+
+文字版原文：[加拿大卡车司机抗议运动筹款已近400万加元](https://gnews.org/zh-hans/1914358/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
