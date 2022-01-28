@@ -2,14 +2,10 @@
 ---
 
 
-## 五月花简报
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1920266/)
+## 1/27/2022 文贵直播：100余家世界金融组织决心要在中共打台湾前用尽力量惩罚中共，这可是天大的事儿
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1920439/)
 
-作者：波士顿五月花— 冲天一怒
-![](https://assets.gnews.org/wp-content/uploads/2022/01/33A1B73E-E1BF-4426-A86A-28B6380E823B.jpeg)
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

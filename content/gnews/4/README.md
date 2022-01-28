@@ -2,30 +2,25 @@
 ---
 
 
-## 天空WiF与量子通信
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920480/)
+## 美外交官在中共受辱被肛检测试新冠病毒
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920548/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/天空WiFi与量子通信.jpg)
-2021年年底，天空WiFi基本上成为世界上主流。
+加拿大温哥华扬帆农场 硫酸羟氯喹64
 
-量子技术的核心叫量子计算，量子计算接下来就是量子通信。量子计算和量子通信最核心的问题就是量子。量子通信里边它也是需要地面上的载体，光纤还有接收站，它是需要地面配合的，就是因为这个成本太高，因为量子技术是无法与现在的传统上的基站通讯，必须重新建设接收站，这个成本太高了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-49-edited.jpg)图片来源：TNH
 
-但是量子技术相当于什么概念呢?战友们就相当于咱们过去使用的那个模拟大哥大和今天的这个iPhone手机的差距那么大，比这还要大的多的多。
 
-发布：于white
+加拿大媒体[后千禧年]1月26日报道，根据美国[司法观察组织]最近获得的国务院记录显示，美驻中共国外交官曾被迫接受当局的 “新冠病毒”肛门拭子测试。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+报道称，这些文件是[司法观察组织]通过《信息自由法》获得并于日前公布的。其中显示，当时至少有一名接受如此羞辱性病毒检测的美国外交官员在其公寓被中共卫生部门人员检查了直肠。为此，其他美国外交官员对中共当局强迫他们进行的肛门拭子测试表示出极端的愤怒，并呼吁美国政府“对此采取反击行动”。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+结合美国政府日前已正式通牒中共政权，从即日起将逐步撤离和关闭其驻北京大使馆和其他地区的领事馆之后，不难得知：中共曾对美国外交官做出的羞辱性肛门检测，或是本次美国政府决绝外交撤离的导火索之一。甜蜜蜜的“以肛灭共”行动或已拉开最后的帷幕。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+* * *
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+采编：文莱            编译撰稿，发稿：硫酸羟氯喹64
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china](https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china)
 
  
 

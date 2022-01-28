@@ -2,36 +2,32 @@
 ---
 
 
-## 有声|“清零政策”逼逃港金融精英
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920449/)
+## 未来的喜联储，绝对天下无敌（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920514/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-迄今为止，香港740万人口累计13,000例新冠感染病例，远低于世界绝大多数国家和地区。但由于落实北京新冠“清零”政策，香港实施了全球最严格的入境规定，只允许本地居民返回，并对来自多数国家的入境人士进行长达三周的强制性自费隔离。即便如此，周日仍然有140例新增感染病例，显然，严格的检疫措施对“清零”并无帮助。目前，没有迹象表明政府会放宽限制。
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（上）.jpg)
+我们喜联储会推出纯金的金币。
 
-猎头公司和行业高管告诉路透，更多的外籍人士因此正在考虑离开香港。全球银行、资产管理公司和企业律师事务所的从业者，也可能在一季度领到年终奖后离职。香港美国商会最近进行了会员调查，超过40%的受访者表示，他们更有可能离开香港，大多数人认为国际旅行限制是首要决定因素。
+这个金币最大额可能是100万美元，从100 美金到100万美元。
 
-原文链接：[“清零政策”逼逃港金融精英](https://gnews.org/zh-hans/1914355/)
+这个金币有绝对的加密技术。 这个加密到什么程度?是10000%的给你承担责任，没有任何人可以破解。怎么交给你呢?通过你的生物识别加技术识别。 你就可以换现金。
 
-音频处理/发稿：Daxia
+我们有专门的第三方HBank，HBank专门提供兑现，你要什么货币都给你兑付。 你想提黄金，让你提到世界上最安全最保障最认可的黄金，这就是，这就是咱们这个未来的喜联储，绝对天下无敌的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+发布：于white
 
-**更多资讯，更多关注**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

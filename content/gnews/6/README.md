@@ -2,31 +2,32 @@
 ---
 
 
-## 加拿大卡车司机铸成世界最长的自由车队
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920463/)
+## 未来的喜联储，绝对天下无敌（下）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920524/)
 
-加拿大温哥华扬帆农场 薇文
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（下）.jpg)
+这里面你怎么解决电的问题?
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-47-edited.jpg)图片来源：TSUN
+这种技术的核心最重要就是IBM的2nm那个芯片，这个芯片的安全性是军事级别，IBM的2nm芯片没有任何人可以破解。
 
+这个芯片未来是跟我们的格芯一起生产，大家更懂了是吧。 从芯片的生产到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人管得了。
 
-据[多伦多太阳报]1月25日报道，由加拿大货运卡车司机自发组成前往首都渥太华的“自由车队”，目前已长达70多公里，是十倍于2020年埃及卡车车队7.5公里的吉尼斯世界纪录。
+这就是太空币，数字货币最大的问题支付、兑现、安全和保密，我们这叫中心化的币和去中心化的交易系统和去中心化的技术，天下无敌，这就是技术的核心的核心。
 
-报道称，这5万多辆自加拿大和美国各地的货运卡车，在严寒的冬季中迅猛集结，其参与者之众，支持者之广，示威规模之壮已远超当初行动组织者的预计。
+发布：于white
 
-据悉，面对本次始料不及的抗议运动，主流媒体不仅掩盖消息，甚至还制造假新闻谎称约500万加元的捐款被冻结。尽管目前筹集的资金远超预期，但示威者表示：不管有无捐款，他们都会继续前进。因为公众已将“抗议车队”视为自由象征的灯塔，并希望以此结束当局各项以防控疫情为由的违宪强制措施。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-然而，“永远不要浪费危机”是加拿大自由党政府的座右铭，独裁者们正在将目前由疫情引发的严重供应链危机，转变为特鲁多个人及其党派从中渔利的最佳契机。
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-* * *
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-采编/编译撰稿：薇文                校对编辑，发稿：硫酸羟氯喹64
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-新闻来源：
-
-1、[WARMINGTON: ‘Freedom’ truckers may form world’s longest convoy](https://torontosun.com/news/local-news/warmington-freedom-truckers-may-form-worlds-longest-convoy?utm_medium=Social&amp;utm_source=Twitter#Echobox=1643158330)
-
-2、[LILLEY: Trudeau uses trucker protests as political weapon](https://torontosun.com/opinion/columnists/lilley-trudeau-uses-trucker-protests-as-political-weapon)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,43 +2,38 @@
 ---
 
 
-## Eglise医生回答服用青蒿素羟氯喹预防病毒期间能否怀孕
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920286/)
+## 有声|中共病毒疫情下 儿童受教权及健康蒙受了无法弥补的损失
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920440/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2ad6687664c47acdad1ed](https://gtv.org/video/id=61f2ad6687664c47acdad1ed)
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月24日，联合国儿童基金会表示，在中共病毒疫情下，全球超过6.16亿的儿童，仍无法恢复正常的学习课程。此种在儿童成长期间学习时间上的损失，几乎很难弥补。
 
-**南希：**我想请问一下Eglise医生，就是像现在我们在吃这些青蒿素包括羟氯喹在预防病毒期间，适合怀孕要小孩吗？
+在中低收入国家，因为学校关闭，很多儿童失去了学习的机会。据调查，有多达70%的10岁以上儿童无法阅读或理解简单的文字。疫情发生前，这个比例是53%。
 
-**Dr.Eglise****：**如果说您跟您先生都没有被病毒感染，而且又都没有接种疫苗，我觉得未尝不可。但是有一点，有一些地方特别像美国有一些蓝州，像澳大利亚有些地方，像欧洲某些国家他们就走极端。像加拿大我已经听说了，你如果没有接种疫苗你甚至没法进急诊室。
+而在全世界，有数以百万计的儿童，除了被剥夺学习基本技能的机会以外，学习中断也影响了他们的心理健康。
 
-所以你要去做妇科检查，几个星期特别是你接近生产期的，就是去问你的产科医生的频率越来越高，那你必须要符合他们条件，否则你无法去做检查。所以我觉得将来是不是有可能最近几年要发展一下在家妊娠的，就是接产妇的产业，因为以前都是在家自然分娩的，就是接产妇帮助。
+原文链接：[中共病毒疫情下 儿童受教权及健康蒙受了无法弥补的损失](https://gnews.org/zh-hans/1914172/)
 
-如果说是胎位正常的话自然分娩是最好的，自己在家要有人帮助，但是人急了其实自己也能解决，我觉得人真的急了的话。
+音频处理/发稿：Daxia
 
-视频听写：青桐；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-编辑整理：海贼王M.D.LUFFY；
+**更多资讯，更多关注**
 
-字幕文件制作：小满；
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-视频制作及上传：Cindy；
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-1. G.News发布：小满；
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 

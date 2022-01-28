@@ -2,41 +2,41 @@
 ---
 
 
-## 欧盟就立陶宛争端对中共国发起世贸行动
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1920249/)
+## Eglise医生回答甲状腺癌症患者服用青蒿素保健品注意事项
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920334/)
 
-撰稿：文叙
-![](https://assets.gnews.org/wp-content/uploads/2022/01/id13453173-.jpg)布鲁塞尔欧盟委员会总部。图片：Aris Oikonomou摄/法新社/盖蒂图片社
-据美国新闻（美联社）报道，欧盟周四（1月27日）表示，它已经在世界贸易管理机构对中共国发起行动，指控其对立陶宛的歧视性做法，称北京与这个波罗的海国家的争执正在打击欧盟的其他出口，指责北京试图破坏这个27国集团的单一市场，并表示北京应该停止以高压贸易手段胁迫成员国，比如基于政治理由而阻止进口。“我们的关系需要相互尊重，” 欧盟贸易专员东布罗夫斯基斯（Dombrovskis ）在宣布欧盟在世贸组织的行动时说。
+G-TV视频链接：[https://gtv.org/video/id=61f2add187664c47acdad1ff](https://gtv.org/video/id=61f2add187664c47acdad1ff)
 
-中国反驳说欧盟应该 “分清是非”。北京认为，台湾是其领土的一部分，无权获得外交承认；布鲁塞尔应该牺牲台湾，让立陶宛坚持基于 “一个中国 “原则的外交关系。中共外交事务发言人赵立坚强硬认为，欧盟应该采取行动来反击其成员的做法。
+**南希：**刚有战友问甲状腺癌症的话，就是服用青蒿素保健品有什么需要注意的吗？
 
-“我们也建议欧盟明辨是非，对立陶宛劫持中欧关系的企图保持警惕，应劝说立陶宛像其他欧盟成员国一样，履行其与中国建立外交关系时作出的政治承诺，”赵立坚说。“我们敦促立陶宛立即纠正其错误，”他补充说。
+**Dr.Eglise****：**甲状腺癌症，因为甲状腺癌症相对于其他脏器的实体肿瘤，相对它的恶性程度要低，因为它发展的缓慢。甲状腺癌的预后如果是通过手术，往往预后是很好的，所以如果说患者要问我的话，你的首选不是青蒿素，首选是手术治疗。
 
-上月，立陶宛打破了外交惯例，同意在维尔纽斯（Vilnius）的台湾办事处使用“台湾”来替代之前的其他国家为避免得罪北京而广泛使用的“中国台北”字样。中共始终认为台湾是其领土的一部分，其无权获得外交承认。由此，北京驱逐了立陶宛的驻华大使，并撤回了自己的大使。立陶宛则关闭了它在中国首都北京的大使馆。
+如果你能够手术治疗的话，就是没有转移，没有黏连，手术治疗就是最佳的，你可以在术后用青蒿素治疗，可以帮助，比方说减低复发率，就是让你恢复的快，然后抑制可能残存的癌细胞的继续恶化，就等于说抑制复发，我觉得那是可行的。但是甲状腺如果能手术不要放弃。
 
-紧张局势已经加剧，立陶宛和欧盟一起指责北京在中国边境扣留货物，包括来自波罗的海国家和使用立陶宛部件的欧盟公司的货物。
+视频听写：青桐；
 
-欧盟贸易专员东布罗夫斯基斯说：“让我说清楚：这些措施是对欧盟单一市场完整性的威胁，所以它影响了整个欧盟贸易和欧盟供应链，而且它们对欧盟工业产生了负面影响。” 即使立陶宛只有280万人口，东布罗夫斯基斯认为，如果不对北京的行动作出反应，可能会影响整个拥有4.5亿人口的集团。
+编辑整理：海贼王M.D.LUFFY；
 
-“中共国正在对国际公司施加压力，要求它们在生产中放弃使用立陶宛的零部件。否则，他们可能面临进口限制，” 东布罗夫斯基斯说。因为，这种针对一个成员国的经济行动，使其成为对所有成员国的贸易攻击。
+字幕文件制作：小满；
 
-东布罗夫斯基斯指出：“欧盟决心采取统一行动，对违反世贸组织规则的措施迅速采取行动。” 强大的德国工业联合会（德国的主要工业游说团体）说，中共国针对立陶宛的措施 “也给使用立陶宛零部件的德国公司带来了重大的不确定性”。
+视频制作及上传：Cindy；
 
-立陶宛对这种支持表示感谢。
+G.News发布：小满；
 
-外交部长Gabrielius Landsbergis说：“这一步骤是向中共国发出的明确信息，即欧盟不会容忍出于政治动机的经济胁迫行为。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
 
-欧盟委员会代表27个欧盟成员国管理贸易，表示它已经拥有了中国限制的证据。这些限制包括拒绝立陶宛的货物通关，拒绝立陶宛的进口申请，以及对欧洲公司施压。不过，世贸组织的程序可能需要很多个月，甚至很多年，才能做出最终决定。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-周四的举动可能会进一步削弱中共国长期以来认为有利的关系，以制衡它与美国面临的经济和政治纷争。去年，欧盟与华盛顿、英国和加拿大一起对中共官员实施制裁，指责他们参与虐待少数民族。北京的报复措施是宣布将惩罚欧洲立法者等四人。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-这些反措施实际上冻结了中国和欧盟之间可能的大规模投资协议的批准，该协议是在2020年12月暂时达成的。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-新闻链接：[EU Launches WTO Action Against China Over Lithuania Dispute](https://www.usnews.com/news/business/articles/2022-01-27/eu-launches-wto-action-against-china-over-lithuania-row)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
