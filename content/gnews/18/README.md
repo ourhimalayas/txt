@@ -2,36 +2,35 @@
 ---
 
 
-## 瑞典叫停5-12岁孩童接种COVID疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1922846/)
+## 美国明尼苏达州起诉涉嫌大规模造假的新冠测试公司
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922880/)
 
-**编译：Lulumi**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-**瑞典卫生局周四表示，儿童患中共病毒重症的风险很低，认为疫苗风险超过好处，所以不建议为5-12岁的孩子接种中共病毒COVID疫苗。**
+整理/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2326.png)
-2021年3月2日，在瑞典斯德哥尔摩北部索伦图纳的教堂，一名卫生工作者在一个临时疫苗接种点为一名老人接种辉瑞公司的中共病毒COVID-19疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)图片来源：雅典娜设计组
 
-1月27日路透社在斯德哥尔摩报道：瑞典卫生局周四表示，决定不建议为5-12岁的孩子接种中共病毒COVID疫苗，认为其风险超过好处。
 
-卫生署官员布里塔·比约克霍尔姆在一次新闻发布会上说：“根据我们今天所掌握的知识，儿童患严重疾病的风险很低，我们认为为他们接种（中共病毒）疫苗没有任何明显的好处。”
+根据《自然新闻》1月27日报道，数千万美国人继续抵制那些说服或强迫他们接种新冠病毒（COVID-19）疫苗的规定，原因是，人们从一开始就在这场大流行病上被骗了，而这不过是为了追求纯粹的政治权力。
 
-她补充说，如果研究发生变化，或者如果新的变体改变了大流行，可以重新考虑这一决定。高危群体的孩子已经可以接种疫苗了。
+在明尼苏达州，对位于伊利诺伊州的新冠病毒测试公司提起的诉讼中，这些谎言又被重新揭穿，理由是它们涉嫌“欺骗消费者”。
 
-瑞典在1月26日登记超过4万个新增病例，尽管测试能力有限，这是中共病毒大流行期间最高的单日数字之一。虽然第四波的单日感染记录被打破，但医疗卫生部门并没有像前几波那样面临压力。
+《西方日报》（The Western Journal notes）指出：援引埃里森办公室1月26日发布的新闻稿，该诉讼称，新冠病毒控制中心（the Center for COVID Control）和医生临床实验室公司（Doctors Clinical Laboratory  Inc.）“要么未能提供测试结果，要么提供了伪造或不准确的测试结果”。
 
-周四有101名中共病毒患者需要重症监护，远远低于2021年春季期间的400多名患者。自疫情开始以来，瑞典总共有近1.6万人死于中共病毒。
+根据《NBC》1月14日报道，新冠病毒控制中心是新冠病毒测试领域最大的参与者之一，在全国拥有 300 多个站点。报道指出，该公司正在接受联邦调查，并正在几个州接受司法部长的调查。
 
-瑞典政府周三将限制措施延长了两周，其中包括餐馆的有限开放时间和室内场所的上座率上限，但表示希望在2月9日取消这些限制。
+新闻链接：[Minnsota f](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[e](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[iling suit against COVID testing company allegedly engaged in massive cover-up](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)
 
-素材来源：【reuters】[Sweden decides against recommending COVID vaccines for kids aged 5-12](//www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
+*发布：tianzhihuan*
 
-* * *
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-审核：文乐
-校对：小东
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
