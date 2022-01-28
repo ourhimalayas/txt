@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 8:40 AM (UTC)`
+
+1/25/2022 Miles Guo’s Big Announcement: President Biden and Secretary Blinken’s decision to authorize the departure of the US embassy in Communist China is by far the best decision for the Chinese people that the US has ever made. This decision is of paramount significance, and the resultant domino effect will pave the way for the “Tian Mi Mi Movement” to occur in all the embassy districts around the Second Ring Road in Beijing.<br/><br/>1/25/2022 文贵重大公告：拜登总统和布林肯国务卿授权撤离驻华大使馆是美国迄今对中国人所做出的最好的决定，其意义极为重大，它所导致的多米诺效应将让甜蜜蜜运动发生在北京二环的所有使馆区<br/>
+![img](https://media.gettr.com/group36/getter/2022/01/28/08/458e29a5-5eeb-fe7f-d19d-d5e0c6a8abd4/out.jpg)
+
+---
+
 `@miles 1/28/2022 8:37 AM (UTC)`
 
 1/25/2022 Miles Guo’s Big Announcement: The authorized departure of the US Embassy means that the US has rendered the CCP illegitimate on the world stage. So, the CCP is really doomed!<br/><br/>1/25/2022 文贵重大公告：美国大使馆被授权撤离意味着美国让中共在国际上失去了合法性，中共真的完了！<br/>
@@ -145,13 +152,6 @@
 
 1/26/2022 Miles Guo’s GETTR: Forty embassies in Beijing are going against the virus testing and quarantine implemented by the CCP, and the embassies of more than 20 countries have said they would depart and won’t come back. The major operation by the US targeting the CCP has been completed, and other countries will follow. The New Federal State of China unites the world to take down the CCP, but we won't take credit for it.<br/><br/>1/26/2022 文贵盖特：40国使馆拒绝中共搞病毒检测和隔离，20多个使馆说要撤且有去无回；美国针对中共的大行动已完成，各国行动将紧随其后；新中国联邦团结全球灭共，但咱不揽功<br/>
 ![img](https://media.gettr.com/group24/getter/2022/01/27/01/c4fa0f18-c5c6-6dc6-f957-f196fe3e0caf/out.jpg)
-
----
-
-`@miles 1/26/2022 11:32 PM (UTC)`
-
-1月26日， 2017-2022 庆祝爆料革命五周年🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>January 26，2017-2022 Celebration the 5th Anniversary of the Whistleblower Movement 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group36/getter/2022/01/26/23/67f89b2b-c027-b22e-e163-28b16bd58b96/out.jpg)
 
 ---
 

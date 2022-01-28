@@ -2,8 +2,8 @@
 ---
 
 
-## 中共房地产和网红都完了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922511/)
+## 举世无双的一场重大成功奥运会
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922568/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 我们的动机是灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922510/)
+## 纯洁的爆料革命：爆料革命放下一切跨过时间才会永恒
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922560/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,12 +2,13 @@
 ---
 
 
-## 纯洁的爆料革命：爆料革命放下一切跨过时间才会永恒
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922560/)
+## 大部分中国人信假不信真
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922606/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
 发布：陶子
+
 更多资讯，请关注：
 澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
 澳大利亚墨尔本农场Gettr：himalayaathena

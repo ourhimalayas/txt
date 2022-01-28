@@ -2,18 +2,12 @@
 ---
 
 
-## 共产党不骗中国人都对不起中国人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922443/)
+## 过去政策始终将制药行业的利益置于美国公民福祉之上
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1922470/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+01/24/2022 皮埃尔·科里博士列举了世界各地许多早期使用伊维菌素治疗有效的例子，包括巴西的一项大规模新研究。他指出伊维菌素被打压是因为一直以来的政策始终将制药行业的利益置于美国公民福祉之上。
 
-发布：陶子
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

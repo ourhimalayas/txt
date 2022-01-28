@@ -2,24 +2,294 @@
 ---
 
 
-## 中日财经爆|黑田东彦呼吁和欧美合作制定CBDC数字货币全球标准
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922282/)
+## 每日快报：军方告密者可能揭穿COVID疫苗的谎言
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1922283/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2303.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=tkVRfXYy-0prQM)
-日本央行总裁黑田东彦周五（1月28日）表示，日本必须与欧洲和美国合作，就发行央行数字货币(CBDC)的技术要求建立一个全球标准。
+*作者：*映兰轩
 
-黑田东彦对国会表示，虽然日本央行还没有决定是否发行自己的数字货币，但它正在进行试验，并计划审议数字货币的具体设计。日本是否会发行CBDC的最终决定，必须由日本央行、政府和民间密切磋商后作出。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-黑田东彦说：“最重要的是这个想法要得到公众的充分理解。”
+# ***今日摘要***
 
-财务大臣铃木俊一在同一场合表示，日本正密切关注中共国在发行数字人民币方面的快速发展。
+1. [IMF敦促萨尔瓦多放弃比特币的法定货币地位](https://cn.wsj.com/articles/imf%E6%95%A6%E4%BF%83%E8%90%A8%E5%B0%94%E7%93%A6%E5%A4%9A%E6%94%BE%E5%BC%83%E6%AF%94%E7%89%B9%E5%B8%81%E7%9A%84%E6%B3%95%E5%AE%9A%E8%B4%A7%E5%B8%81%E5%9C%B0%E4%BD%8D-11643159487)
+2. [军方告密者可能揭穿COVID疫苗的谎言](https://pjmedia.com/news-and-politics/stacey-lennox/2022/01/25/military-whistleblowers-may-blow-up-the-covid-vaccine-narrative-n1552966)
+3. [欧盟向世贸提告中国歧视并违反贸易法 以护卫立陶宛](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220127-%E6%AC%A7%E7%9B%9F%E5%90%91%E4%B8%96%E8%B4%B8%E6%8F%90%E5%91%8A%E4%B8%AD%E5%9B%BD%E6%AD%A7%E8%A7%86%E5%B9%B6%E8%BF%9D%E5%8F%8D%E8%B4%B8%E6%98%93%E6%B3%95-%E4%BB%A5%E6%8A%A4%E5%8D%AB%E7%AB%8B%E9%99%B6%E5%AE%9B)
+4. [英媒爆中国超音速武器专家投诚 助西方防御](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220127-%E8%8B%B1%E5%AA%92%E7%88%86%E4%B8%AD%E5%9B%BD%E8%B6%85%E9%9F%B3%E9%80%9F%E6%AD%A6%E5%99%A8%E4%B8%93%E5%AE%B6%E6%8A%95%E8%AF%9A-%E5%8A%A9%E8%A5%BF%E6%96%B9%E9%98%B2%E5%BE%A1)
+5. [独家报道：新的数据表明，5个美国人中有4个已经有了COVID的 “天然免疫”](https://beckernews.com/444-harvard-yale-stanford-data-natural-immunity-43898/)
 
-消息来源：[日本必须与欧美合作制定央行数字货币的全球规范–央行总裁黑田东彦](https://cn.reuters.com/article/boj-us-eu-digital-currency-0128-idCNKBS2K20B7?il=0)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+# 重要事件
+
+- [** 01.27. Wsj：**IMF敦促萨尔瓦多放弃比特币的法定货币地位](https://cn.wsj.com/articles/imf%E6%95%A6%E4%BF%83%E8%90%A8%E5%B0%94%E7%93%A6%E5%A4%9A%E6%94%BE%E5%BC%83%E6%AF%94%E7%89%B9%E5%B8%81%E7%9A%84%E6%B3%95%E5%AE%9A%E8%B4%A7%E5%B8%81%E5%9C%B0%E4%BD%8D-11643159487)
+
+
+国际货币基金组织(International Monetary Fund, 简称：IMF)敦促萨尔瓦多放弃将比特币作为法定货币，因为比特币对金融稳定构成很大风险。萨尔瓦多债台高筑，该国为获得13亿美元贷款与IMF展开了长时间谈判；有关比特币法币地位的交涉是谈判遭遇的最新波折。
+
+IMF周二表示，萨尔瓦多是政府资源有限的小型经济体，该国最近采用比特币作为国家法定货币，也给国内的财政稳健性、消费者保护和财政负债责任带来风险。IMF称，执行董事们“敦促萨尔瓦多有关部门通过取消比特币的法币地位来缩小比特币法的范畴”。
+
+萨尔瓦多去年9月成为全球首个将比特币作为法定货币的国家，要求所有企业接受这种数字货币作为支付方式。
+
+- [** 01.27.Pjmedia ：**军方告密者可能揭穿COVID疫苗的谎言Military Whistleblowers May Blow Up the COVID Vaccine Narrative](https://pjmedia.com/news-and-politics/stacey-lennox/2022/01/25/military-whistleblowers-may-blow-up-the-covid-vaccine-narrative-n1552966)
+
+
+1月26日，成千上万的人出现在华盛顿特区，抗议COVID-19疫苗的强制接种。这次抗议活动在企业媒体中几乎没有得到任何报道。为了试图让与疫苗强制规定作斗争的临床医生和研究人员得到更多的报道，参议员罗恩-约翰逊（R-Wis.）于周一举行了一个全天的小组讨论。这个小组是他自2020年以来主持的几个小组之一。在患上COVID后，约翰逊成为早期治疗和疫苗伤害的不懈倡导者。
+
+两位发言人分享了在COVID疫苗上市的11个月里，军队中的一些令人震惊的疾病统计数据。人权律师Leigh Dundas提出了对国防部（DOD）跟踪系统中心肌炎数据的关注。心肌炎是美国食品和药物管理局对mRNA疫苗的唯一副作用警告。邓达斯告诉约翰逊，2021年8月，当国防部对急性心肌炎的发病率进行报告时，有1239例。当现在运行同一时期的报告时，只有307例。她补充说，2022年1月的初始报告显示有176例。现在只显示17例。
+
+邓达斯说，军事数据是最全面的数据之一，因为它包含基线比率。前五年所有类别的疾病发生率平均为170万。疫苗计划启动10个月后，它跃升至近2200万。邓达斯补充说。”我们需要的不是说这是可疑的。恕我直言，我们需要向国防部提出严厉的问题。最后我要说的是，他们至少有一部分职责是保护保卫这个国家的勇敢的男人和女人的神圣性和福利。而现在，这些数字表明有些事情是大错特错的。”
+
+邓达斯正在与律师托马斯-伦茨合作，支持三名举报人，他们是军队中的医生，在伪证的惩罚下签署了宣誓书。伦茨确认他们是中校特雷莎-朗博士、塞缪尔-西格洛夫博士和上校彼得-钱伯斯博士。据伦茨说，这些医生提供的数据显示，几种诊断结果的增长令人震惊。流产的发生率比五年的平均水平高出近三倍。新的癌症诊断也发生在五年平均值的三倍。神经系统的诊断数量是10倍，总数超过80万个。像这样的数据提供了一个信号，需要进一步调查。与任何相关关系一样，研究人员必须证明因果关系。然而，从证词来看，似乎没有任何严肃的问题正在进行中。已经有关于接种疫苗后的生殖问题的轶事数据，而且这些机构刚刚发布的信息肯定了疫苗可以影响妇女的月经周期。国防部的数据如果得到证实，就会对怀孕和育龄期的安全性产生疑问。然而，CDC仍然建议为5岁以下的美国人和孕妇接种疫苗。
+
+更令人不安的是，伦茨指称CDC通过一个名为 “Salus项目 “的项目从国防部获得数据。在2021年9月28日的周报中，伦茨表示，71%的COVID新病例和60%的住院病例都已完全接种疫苗。与此同时，安东尼-福奇博士多次出现在电视上，断言夏末的浪潮是一场未接种疫苗者的大流行。
+
+与任何人都可以提交报告的疫苗不良事件报告系统（VAERS）不同，这些提供的信息将更像包含诊断代码的保险索赔数据。最近一项关于Kaiser Northwest公司索赔数据的预印本研究显示，18-24岁男性心肌炎的频率为1/1860，12-17岁男孩的频率为1/2,650。这一发现比之前引用的美国食品和药物管理局的数字5000分之1高了两倍多。如果国防部的数据显示疫苗接种后的患病率高于CDC或FDA从其使用的不太严格的系统中报告的比率，这并不令人惊讶。
+
+邓达斯要求约翰逊接受举报人的证词并将其记录在案。约翰逊承诺接受他们的采访记录，并表示他已通知国防部在调查前保存所有记录。截至2021年12月，估计有4万名现役军人仍未接种疫苗，并受到退伍的威胁。每个部门都在根据授权执行自己的政策。癌症和心脏病等严重疾病的增加将进一步损害军队的准备状态。与此同时，全世界的热点地区，如乌克兰边境，正在升温。
+
+- ** **[**01.27. Rfi：**欧盟向世贸提告中国歧视并违反贸易法 以护卫立陶宛](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220127-%E6%AC%A7%E7%9B%9F%E5%90%91%E4%B8%96%E8%B4%B8%E6%8F%90%E5%91%8A%E4%B8%AD%E5%9B%BD%E6%AD%A7%E8%A7%86%E5%B9%B6%E8%BF%9D%E5%8F%8D%E8%B4%B8%E6%98%93%E6%B3%95-%E4%BB%A5%E6%8A%A4%E5%8D%AB%E7%AB%8B%E9%99%B6%E5%AE%9B)
+
+
+欧洲联盟周四(27日)宣布，其“正在向世界贸易组织 (WTO) 发起针对中国的诉讼，因为它对立陶宛的歧视性贸易做法也影响了欧盟市场的其他出口。这是法国回声报、论坛报及英国路透社等国际媒体周四一致报道指出的。
+
+欧盟在世贸组织反击中国对贸易的干扰，以捍卫立陶宛。欧盟委员会正在就北京对立陶宛的歧视性贸易做法采取行动，这种歧视做法正在扰乱欧盟及立陶宛内部的市场。 或许碍于可能引发的明里暗里的报复威慑，那些与中国有进出业务往来的欧盟贸易公司，最初不愿报告说明他们遇到的困难及中国方面的刁难，但欧盟委员会最近收集了足够的证词和证据，启动了提告正式程序。 欧委会指出，它首先会试图通过双边方式解决争端。
+
+**导致立陶宛及欧盟内部市场混乱**
+
+具体来说，自从去年立陶宛退出“17+1”论坛以来，立陶宛就在其本国领土上为台湾设立“台湾”名称的代表权开了绿灯。这个波罗的海国家的贸易公司已受到中国当局事实上的抵制。 “17+1”论坛是由中国2012年主动发动联合中欧及东欧国家就一起创立的组织，接着中国不断借此组织大力影响并挑战欧盟。 报道并举例指出，中国拒绝清关立陶宛货物清关， 如果立陶宛货物想出口到中国，中国会拒绝立陶宛货轮入港进货的请求。中国甚至向该组织的其他成员国的欧洲公司施压，要求他们将立陶宛制造的零部件从供应链中移除。 这无异于扰乱欧洲内部市场。 对于布鲁塞尔来说，根据 世贸组织WTO 订定的规则，这些行为明显涉及了贸易上的歧视做法及违法行为”。
+
+**欧盟外交努力未果**
+
+欧盟委员会执行副主席，也是欧盟贸易事务专员的拉脱维亚籍经济学家瓦尔迪斯·东布罗夫斯基斯（Valdis Dombrovskis）对此解释说：“欧盟不会轻率地在 WTO 启动司法提告步骤”。 他还说：“然而，在多次尝试双边解决该问题失败后，我们认为别无选择，只能寻求与中国在 WTO进行争端解决的磋商。 [……]我们正在继续我们的外交努力，以化解这项争议局势。 两周前在布列斯特，立陶宛外交部长兰茨贝吉斯已在欧盟 27 国外交首脑的非正式会议上向他的同僚解释说，除了立陶宛政府的特殊情况外，中国的行动更广泛地威胁到全球贸易秩序。
+
+**欧盟祭出反胁迫工具 **
+
+欧盟委员会确实在 12 月提出了一项名为“反胁迫”的新工具，该工具必须明确地回应这种情况，亦即第三国利用经济制裁来影响欧洲的政策或威胁国家资金的情况。 但是这项工具仍然需要得到欧盟27国和欧洲议会议员的投票认证。 路透社也报道说欧委会在27日的这一公报中指出，中国对立陶宛所采取的贸易手段，似乎具歧视性，而且违反世贸组织的规定，这对立陶宛以及欧盟其他国家的出口商造成不利。
+
+在北京，中国外交部回应辩称，中国遵守世贸组织规则，这项争端是因为政治歧见，而非商业争端。 拉脱维亚籍经济学家，也是欧盟委员会副主席兼贸易事务专员的东布罗夫斯基斯坚定指出：“欧盟决心建立统一战线，并迅速采取行动打击违反世贸组织规则的措施，因这些措施威胁到我们欧盟市场的完整性。”
+
+- [** 01.27.Rfi ：**英媒爆中国超音速武器专家投诚 助西方防御](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220127-%E8%8B%B1%E5%AA%92%E7%88%86%E4%B8%AD%E5%9B%BD%E8%B6%85%E9%9F%B3%E9%80%9F%E6%AD%A6%E5%99%A8%E4%B8%93%E5%AE%B6%E6%8A%95%E8%AF%9A-%E5%8A%A9%E8%A5%BF%E6%96%B9%E9%98%B2%E5%BE%A1)
+
+
+英国《每日快报》报导，一名中国火箭科学家去年9月携带中国的超音速导弹研发资讯向西方投诚，促使英美两国相关防御计划加速进展，也使中国得花2年调整系统才能让情资失效。
+
+《每日快报》（Daily Express）引述情报界消息人士报导，这名30多岁的科学家原本替国有中国航空工业集团工作，协助开发能运载中国东风-17导弹的中程超音速助推滑翔载具（boost-glide vehicle），射程可达2000英里（约3200公里）。
+
+消息人士表示，这名科学家与中国较新的超音速导弹投射系统有关联，这套系统能让导弹先在太空环绕地球飞行，再利用红外线导引（heat-seeking，又称追热）技术锁定地面上任何目标进行攻击。报导说，这名科学家并非出于政治意识形态向西方投诚，而是不满未获得升迁。他先于2021年9月底与英国在香港的情报人员接触，表明自己持有关于中国超音速滑翔载具（HGV）的详细资料，并寻求自己和妻儿获得庇护。
+
+俗称军情六处（MI6）的英国秘密情报局（Secret Intelligence Service，SIS）接获消息后，派员前往香港与投诚者会合，以确认情资真实性。美国中央情报局（CIA）也收到通知。这名科学家除了透露所知资讯，也成功将技术资料偷偷携出。他和家人最后被安排先飞往美军在德国的一个空军基地，之后再经由英国辗转抵达美国。
+
+由于超音速武器飞行速度超过5马赫，加上比起传统弹道导弹，这类武器的助推滑翔载具依循的弹道更难预测，因此要将它拦截十分困难。根据美国国防部2020年发布的一份报告，美国超音速武器在2019年仍落后俄罗斯和中国。英国海军参谋长拉达金（Tony Radakin）则在本月初证实，英国也已加入超音速武器竞赛。
+
+- [** 01.27. Beckernews：**独家报道：新的数据表明，5个美国人中有4个已经有了COVID的 “天然免疫”](https://beckernews.com/444-harvard-yale-stanford-data-natural-immunity-43898/) [Exclusive: New Data Suggest 4 Out of 5 Americans Already Have Covid ‘Natural Immunity’](New%20Data%20Suggest%204%20Out%20of%205%20Americans%20Already%20Have%20Covid%20‘Natural%20Immunity’)
+
+
+在美国，媒体几乎不提Covid以前的感染或自然免疫力的存在。但是CDC与耶鲁大学、哈佛大学和斯坦福大学合作发起的一个数据库显示，绝大多数美国人都有先前感染的自然免疫力。
+
+Covidestim数据库是由CDC和州和地区流行病学家委员会的合作协议支持的。贝克尔新闻网根据各州的先前感染数据进行了分析，可以看到下面这个原始图形。美国绝大多数州的前期感染率在70%到94%之间。只有夏威夷的前期感染数据低于50%。美国所有州的先前感染率平均为78%，令人难以置信。
+
+疾病预防控制中心上周发布了一项研究，名为 “按COVID-19疫苗接种状态和先前COVID-19诊断的COVID-19病例和住院情况–加利福尼亚和纽约，2021年5月至11月”。法新社报道了这些发现。”在美国最后一次由Delta变体驱动的冠状病毒激增期间，未接种疫苗但在Covid中存活的人比那些接种疫苗且之前未被感染的人得到了更好的保护，”法新社就这项新研究指出。
+
+法新社补充说：”这一发现是关于自然免疫和疫苗获得的SARS-CoV-2免疫的相对优势的最新讨论，但这次是在美国疾病控制和预防中心（CDC）的认可下进行的。“英国卫生安全局（UKHSA）发布了一份报告，对CDC关于自然免疫力的发现作出了回应。报告显示，那些以前感染过Covid的人比那些接种过疫苗的人更不可能出现Covid感染的阳性结果。
+
+那些以前感染过Covid的人，即使在Alpha前的时期，也被测试出具有自然免疫力，大致相当于那些通过三次注射获得的疫苗免疫力。英国卫生局的报告还显示，几乎整个英国的人口都有某种形式的Covid-19抗体。
+
+非常明显的是，大众媒体努力淡化先前Covid感染的自然免疫力，是一种蓄意的策略，不惜一切代价吹捧全民接种计划。从历史上知识分子的不诚实程度来看，人们可以得出这样的结论：这一议程与美国人的健康关系不大，而是与政治有关。
+
+# 每日文贵说
+![img](https://media.gettr.com/group5/getter/2022/01/26/23/30ec6968-ad4b-5b32-95fb-a77776eaf5b8/17e22ebb6f5f0098df11495624d7a744.jpg)
+# 更多要闻链接
+
+1. [交通部宣布了一项国家道路安全战略，以帮助遏制自大流行病开始以来交通死亡人数的增加The Transportation Department announced a National Roadway Safety Strategy to help curb an increase in traffic deaths since the pandemic started](https://www.newsweek.com/pete-buttigieg-outlines-us-plan-tackle-traffic-fatalities-sharp-increase-expected-1673720?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1643327957)
+2. [美政府机构发表有关中国等国家网络审查制度报告，两党参议员呼吁回击](https://www.voachinese.com/a/ITC-china-censorship-russia-20220127/6415743.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+3. [路透社：腾讯拟将游戏直播平台斗鱼私有化](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220127-%E8%B7%AF%E9%80%8F%E7%A4%BE-%E8%85%BE%E8%AE%AF%E6%8B%9F%E5%B0%86%E6%B8%B8%E6%88%8F%E7%9B%B4%E6%92%AD%E5%B9%B3%E5%8F%B0%E6%96%97%E9%B1%BC%E7%A7%81%E6%9C%89%E5%8C%96)
+4. [FDA要求法院将首批5.5万页的制作推迟到5月，辉瑞公司动议介入诉讼FDA Asks the Court to Delay First 55,000 Page Production Until May and Pfizer Moves to Intervene in the Lawsuit](https://aaronsiri.substack.com/p/fda-asks-the-court-to-delay-first)
+5. [美众议员提案取消从中国等进口的低价值商品免税待遇以堵住进口漏洞](https://www.voachinese.com/a/Blumenauer-bill-china-import-laws-20220127/6416234.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+6. [中国触角伸向非洲各个角落，甚至为所欲为](https://www.voachinese.com/a/china-africa-belt-and-road-20220127/6415783.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+
+# 每日推特文摘
+
+
+
+
+
+
+[#好消息](https://twitter.com/hashtag/%E5%A5%BD%E6%B6%88%E6%81%AF?src=hashtag_click)！！！昨天下午，最起码100多个国际金融机构，30几个大的NGO的合法公共机构，开始研究制裁中共高官资产，查封所有海外资产。
+
+
+
+
+
+> [#好消息](https://twitter.com/hashtag/%E5%A5%BD%E6%B6%88%E6%81%AF?src=hash&amp;ref_src=twsrc%5Etfw)！！！昨天下午，最起码100多个国际金融机构，30几个大的NGO的合法公共机构，开始研究制裁中共高官资产，查封所有海外资产。 [pic.twitter.com/ufdtTzaDnB](https://t.co/ufdtTzaDnB)
+> — 文俊（日本银河系） (@wenjun7011) [January 27, 2022](https://twitter.com/wenjun7011/status/1486708934815612932?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+白宫将把数字货币纳入国家安全事务进行管理，包括比特币。这意味着政府开始接受并承认数字货币，同时，管理去中心化，责任去中心化的数字货币将难以生存，剩下的是啥，大家整明白了吗？ White House Wants Crypto Rules as a Matter of National Security
+
+
+
+
+
+> 白宫将把数字货币纳入国家安全事务进行管理，包括比特币。这意味着政府开始接受并承认数字货币，同时，管理去中心化，责任去中心化的数字货币将难以生存，剩下的是啥，大家整明白了吗？
+> White House Wants Crypto Rules as a Matter of National Security [https://t.co/DNztAhW4Kc](https://t.co/DNztAhW4Kc)
+> — 🔥火来2号🔥✊🌽🚀 (@jsdfposjpqyuee1) [January 28, 2022](https://twitter.com/jsdfposjpqyuee1/status/1486859600414445573?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+日本觉醒的人越来越多了
+
+
+
+
+
+> 🚫💉日本觉醒的人越来越多了…… [pic.twitter.com/HY4OhMoUvg](https://t.co/HY4OhMoUvg)
+> — （Angel) 安吉（加拿大圆成农场特战队） (@Ant2021F) [January 27, 2022](https://twitter.com/Ant2021F/status/1486647723512184837?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+绝对是史诗级的！ 美国的卡车司机正在穿越边境来支持加拿大
+![加拿大旗帜](https://abs-0.twimg.com/emoji/v2/svg/1f1e8-1f1e6.svg "加拿大旗帜")
+卡车司机捍卫自由的行动！ [#ConvoyForFreedom2022](https://twitter.com/hashtag/ConvoyForFreedom2022?src=hashtag_click)
+
+
+
+
+
+> 绝对是史诗级的！
+> 美国的卡车司机正在穿越边境来支持加拿大🇨🇦卡车司机捍卫自由的行动！ [#ConvoyForFreedom2022](https://twitter.com/hashtag/ConvoyForFreedom2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KWBS8BeWYG](https://t.co/KWBS8BeWYG)
+> — For HK (@tommyinvan) [January 26, 2022](https://twitter.com/tommyinvan/status/1486473134035275777?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美国顶尖医院工作者爆料： 去年8月到现在，一个医院死去12名医护工作者，一位顶级医生突然去世，引起恐慌，疫苗灾难开启！
+
+
+
+
+
+> 美国顶尖医院工作者爆料：
+> 去年8月到现在，一个医院死去12名医护工作者，一位顶级医生突然去世，引起恐慌，疫苗灾难开启！ [pic.twitter.com/Ys8HTg0dTi](https://t.co/Ys8HTg0dTi)
+> — For HK (@tommyinvan) [January 27, 2022](https://twitter.com/tommyinvan/status/1486720372326092802?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共反恐演练的假想敌，竟然是讨薪的农民工
+
+
+
+
+
+> 中共反恐演练的假想敌，竟然是讨薪的农民工 [pic.twitter.com/Cros0IzilI](https://t.co/Cros0IzilI)
+> — 新闻/真话 (@TuCaoFakeNews) [January 27, 2022](https://twitter.com/TuCaoFakeNews/status/1486638396831256581?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美军军医举报: 军队疫苗注射后流产和癌症增加了 300%，神经系统问题增加了 1000%(参议院听证会, 美军, 心肌炎)
+
+
+
+
+
+> 美軍軍醫舉報: 
+> 軍隊疫苗注射後流產和癌症增加了 300%，神經系統問題增加了 1000%(參議院聽證會, 美軍, 心肌炎) [pic.twitter.com/9V7dn9CkZ3](https://t.co/9V7dn9CkZ3)
+> — 凱倫 Karen (@loveandpeace511) [January 27, 2022](https://twitter.com/loveandpeace511/status/1486818667740413952?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+喜大普奔！加拿大BC省即将停止疫苗护照。七哥太牛了，怎么都让他说中了！
+
+
+
+
+
+> 喜大普奔！加拿大BC省即将停止疫苗护照。七哥太牛了，怎么都让他说中了！ [pic.twitter.com/EhUbS7Cnpz](https://t.co/EhUbS7Cnpz)
+> — For HK (@tommyinvan) [January 27, 2022](https://twitter.com/tommyinvan/status/1486542673460666370?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+抽中共的筋： 甜蜜蜜行动—-美国授权撤大使馆 五十多国家参与
+
+放中共的血： 国际货币组织等用尽各种手段惩罚中共 冻结中共高官在外资金
+
+外交甜蜜蜜 金钱甜蜜蜜
+
+
+
+
+
+> 💪抽中共的筋：
+> 甜蜜蜜行动—-美国授权撤大使馆 五十多国家参与
+> 💪放中共的血：
+> 国际货币组织等用尽各种手段惩罚中共 冻结中共高官在外资金
+> 💪外交甜蜜蜜
+>  金钱甜蜜蜜
+>  ………….
+> ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️ [pic.twitter.com/yjc6NdmOs6](https://t.co/yjc6NdmOs6)
+> — 安平 Emma(新生号） (@PingRyan2016) [January 27, 2022](https://twitter.com/PingRyan2016/status/1486711872208261126?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+可笑？愚昧？疯狂？ 令人震惊的清零超限战！ 在中共“疫情清零”政策影响下，当局在对民众进行大规模核酸检测的同时，已将检测范围扩大到蔬菜、瓜果、活鸡、自行车和轮胎等，官方的极端防疫措施令舆论震惊。
+
+
+
+
+
+> 可笑？愚昧？疯狂？
+> 令人震惊的清零超限战！
+> 
+> 在中共“疫情清零”政策影响下，当局在对民众进行大规模核酸检测的同时，已将检测范围扩大到蔬菜、瓜果、活鸡、自行车和轮胎等，官方的极端防疫措施令舆论震惊。 [pic.twitter.com/CDeOEJFm4R](https://t.co/CDeOEJFm4R)
+> — 澳喜要闻（新号） (@ahnewspace) [January 27, 2022](https://twitter.com/ahnewspace/status/1486559093661655042?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：映兰轩
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
