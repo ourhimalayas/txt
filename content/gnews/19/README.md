@@ -2,26 +2,33 @@
 ---
 
 
-## 七哥对澳门的理解不要小看了澳门
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921564/)
+## 中国新任驻澳大使在讲话中抛出修复澳中关系的橄榄枝
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921626/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥对澳门的理解-不要小看了澳门_01.jpg)
-直播时间：2021.12.01
+**整理：Sara9**
+**编辑：Little Lamp**
 
-你们看到表面洗钱、赌博、情报收集、蓝金黄是吧？如果你们今天还这么理解你们就错了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2288.png)图片来源：雅典娜设计组
 
-要钱干什么？要录像干什么？蓝金黄干什么？澳门赌场只有郭文贵有资格说，从第一天澳门谁带谁来的，我不方便说，这是我的个人私人关系，他现在也在看直播。
 
-第一届特首怎么诞生的七哥太清楚了。你们不知道盘古背后的主人和盘古当时最牛的人是谁。澳门真正的两个王，你们都是不知道的。明面是何鸿燊和霍英东，霍英东是真正的老王，霍英东之后才是何鸿燊，他是个打工的马仔。不要小看了澳门
+据SBS报导，中国新任驻澳大使肖千表示愿意修复北京和堪培拉之间的紧张关系，他说两国关系正处于“紧要关口”。
+肖千于1月26日抵澳履新，并在悉尼国际机场发表书面讲话，讲话中抛出修复双边关系的橄榄枝。
+他言语中带有和解的语气，呼吁“共同推动中澳关系重回正确发展轨道”，但在紧张局势加剧的情况下，中澳关系陷入外交僵局。
 
-发布：*皮特*
+成竞业在任期间对堪培拉处理两国关系的方式提出尖锐批评，中澳关系急转直下。中国大使馆于其任期间还发布了一份特殊的清单，列出了中国对澳大利亚的14项不满，并称这些不满正在 “毒害双边关系”。其中包括澳大利亚的外国投资规则、禁止华为进入澳大利亚的5G网络以及推动对新冠起源展开独立调查。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+肖千书面讲话中谈到了与澳大利亚政府“加强接触与沟通，增进了解与互信”的必要性。还呼吁“消除误解与疑虑，促进双方各领域互利交流与合作”。
+
+国防部长彼得·达顿对肖千的到来表示欢迎，但表示这并没有改变对两国关系的担忧。“我在很多场合都说过，我们希望与中国建立良好、牢固的友好关系，但目前中国不仅与我们发生冲突，他们切断了市场，网络攻击和其他活动正在进行。而且与许多其他国家不和，这是一种好战的做法，是不可接受的。”
+
+文章来源：[中国新任驻澳大使有意修复澳中关系](https://www.sbs.com.au/chinese/mandarin/zh-hans/new-chinese-ambassador-to-australia-signals-willingness-to-repair-tense-relations)
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

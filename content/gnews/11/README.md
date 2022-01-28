@@ -2,33 +2,34 @@
 ---
 
 
-## 中国新任驻澳大使在讲话中抛出修复澳中关系的橄榄枝
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921626/)
+## 美众议院为抗衡中国推出《2022年美国竞争法》
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1921700/)
 
 **整理：Sara9**
 **编辑：Little Lamp**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2288.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/印度-2.jpg)
+
+图片来源：雅典娜设计组
 
 
-据SBS报导，中国新任驻澳大使肖千表示愿意修复北京和堪培拉之间的紧张关系，他说两国关系正处于“紧要关口”。
-肖千于1月26日抵澳履新，并在悉尼国际机场发表书面讲话，讲话中抛出修复双边关系的橄榄枝。
-他言语中带有和解的语气，呼吁“共同推动中澳关系重回正确发展轨道”，但在紧张局势加剧的情况下，中澳关系陷入外交僵局。
+美国众议院星期二(1月25日)晚间推出了一项旨在加强美国的竞争力，与中国进行抗衡的法案的文本。众议院议长南希·佩洛西(Nancy Pelosi)把这个简称为《2022年美国竞争法》的法案称作是一项“大胆的”立法。拜登总统随后发表声明，称该法案将使美国在今后几十年的时间里在与中国和其他国家的竞争中立于不败之地。
 
-成竞业在任期间对堪培拉处理两国关系的方式提出尖锐批评，中澳关系急转直下。中国大使馆于其任期间还发布了一份特殊的清单，列出了中国对澳大利亚的14项不满，并称这些不满正在 “毒害双边关系”。其中包括澳大利亚的外国投资规则、禁止华为进入澳大利亚的5G网络以及推动对新冠起源展开独立调查。
+在美国参议院去年6月通过了耗资2千5百亿美元全面抗衡中国的跨党派《美国创新与竞争法》(US Innovation and Competition Act)后，众议院星期二推出了自己的版本。法案全称为《2022年美国创造制造业机会和技术卓越与经济实力法》，简称为《2022年美国竞争法》，法案文本长达近3千页，综合了多项以前的议案。
 
-肖千书面讲话中谈到了与澳大利亚政府“加强接触与沟通，增进了解与互信”的必要性。还呼吁“消除误解与疑虑，促进双方各领域互利交流与合作”。
+包括简称为《鹰法》(EAGLE Act)的《确保美国全球领导力与接触法》(Ensuring American Global Leadership and Engagement Act)以及众议院外委会资深共和党成员迈克尔·麦考尔(Michael McCaul)推出的《美国芯片法》(CHIPS for America Act)。
 
-国防部长彼得·达顿对肖千的到来表示欢迎，但表示这并没有改变对两国关系的担忧。“我在很多场合都说过，我们希望与中国建立良好、牢固的友好关系，但目前中国不仅与我们发生冲突，他们切断了市场，网络攻击和其他活动正在进行。而且与许多其他国家不和，这是一种好战的做法，是不可接受的。”
+根据该法案，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资于半导体的生产等；授权450亿美元改善美国的供应链，加强制造业，防止关键物品的短缺并确保更多此类产品在美国制造；推动美国的科学研究和技术创新以及通过经济发展、外交、人权和同盟关系确保美国在全球的竞争力和领导地位。
 
-文章来源：[中国新任驻澳大使有意修复澳中关系](https://www.sbs.com.au/chinese/mandarin/zh-hans/new-chinese-ambassador-to-australia-signals-willingness-to-repair-tense-relations)
+文章来源：[抗衡中国：美众议院推出《2022年美国竞争法》](https://www.voachinese.com/a/US-house-competes-act-china-20220125/6412880.html)
 
 *发布：盘古相聚*
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

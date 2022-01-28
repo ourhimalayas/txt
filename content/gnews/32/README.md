@@ -2,31 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月27日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1921059/)
+## 1/27/2022 文贵直播：美国大使馆的授权撤离既非绝交，又非断交，这是“不断不交”来弄死中共
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1921376/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-5.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.27  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f3470f28a108147c64237c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

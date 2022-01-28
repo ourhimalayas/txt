@@ -2,35 +2,32 @@
 ---
 
 
-## 美众议院为抗衡中国推出《2022年美国竞争法》
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1921700/)
+## 纳粹大屠杀幸存者呼吁联合国调查北京侵犯新疆人权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1921728/)
 
-**整理：Sara9**
-**编辑：Little Lamp**
+![纳粹大屠杀幸存者后代艾利沙·维塞尔1月27日在联合国大屠杀纪念活动上致辞谴责北京对维吾尔人的暴行](https://gdb.voanews.com/30B7D3B1-4FE6-4A56-89D6-7D5ED8077659_w1023_r1_s.png)纳粹大屠杀幸存者后代艾利沙·维塞尔1月27日在联合国大屠杀纪念活动上致辞谴责北京对维吾尔人的暴行
+据美国之音1月28日报道，27日是国际大屠杀纪念日，联合国举行纪念会议，缅怀大屠杀受难者。纳粹大屠杀幸存者、诺贝尔和平奖得主埃利·维塞尔（Elie Wiesel）的儿子艾利沙·维塞尔 (Elisha Wiesel) 发言谴责北京对维吾尔人的暴行。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/印度-2.jpg)
+维塞尔指出，中共国作为人权理事会成员，却对维吾尔人实施大规模拘禁、强迫劳动和强制绝育。是因为国际社会对中共国践踏人权行为的容忍才导致了全球更多的人权侵犯事件，才使得其他压迫者缅甸、伊斯兰国和塔利班得以更容易压迫罗兴亚人、雅兹迪人和妇女。
 
-图片来源：雅典娜设计组
+维塞尔呼吁，现在是我们采取行动的时候了。国际社会应利用北京冬奥会的机会，聚焦遭种族灭绝的维吾尔人，尤其是那些为维护维吾尔文化、宗教而遭中共政府强迫失踪和判重刑的维吾尔人士，其中包括维吾尔作家库尔班·马木提(Qurban Mamut)、出版社高级编辑亚力坤·若兹(Yalqun Rozi)和大学讲师伊力哈木·土赫提（Ilham Tohti）等人。我们不能假装看不见他们的证词，我们必须为维吾尔人提供避难所。
+
+然而，联合国秘书长古特雷斯和美国驻联合国大使格林菲尔德都出席这一活动并发表讲话，但都没有提及中共国。联合国还在对北京侵犯人权问题视而不见，还在继续掩盖和包庇中共反人类的恶劣行径。随着新中国联邦和世界正义力量的崛起，相信在不久的将来这些人都将受到历史的审判。
+
+新闻参考链接： [https://www.voachinese.com/a/holocuast-survivors-son-call-un-investigate-ccp-rights-abuses-in-xinjiang-20220127/6415649.html](https://www.voachinese.com/a/holocuast-survivors-son-call-un-investigate-ccp-rights-abuses-in-xinjiang-20220127/6415649.html)
+
+编辑：MQ
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-美国众议院星期二(1月25日)晚间推出了一项旨在加强美国的竞争力，与中国进行抗衡的法案的文本。众议院议长南希·佩洛西(Nancy Pelosi)把这个简称为《2022年美国竞争法》的法案称作是一项“大胆的”立法。拜登总统随后发表声明，称该法案将使美国在今后几十年的时间里在与中国和其他国家的竞争中立于不败之地。
+编辑：【英国伦敦喜庄园编辑部】
 
-在美国参议院去年6月通过了耗资2千5百亿美元全面抗衡中国的跨党派《美国创新与竞争法》(US Innovation and Competition Act)后，众议院星期二推出了自己的版本。法案全称为《2022年美国创造制造业机会和技术卓越与经济实力法》，简称为《2022年美国竞争法》，法案文本长达近3千页，综合了多项以前的议案。
-
-包括简称为《鹰法》(EAGLE Act)的《确保美国全球领导力与接触法》(Ensuring American Global Leadership and Engagement Act)以及众议院外委会资深共和党成员迈克尔·麦考尔(Michael McCaul)推出的《美国芯片法》(CHIPS for America Act)。
-
-根据该法案，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资于半导体的生产等；授权450亿美元改善美国的供应链，加强制造业，防止关键物品的短缺并确保更多此类产品在美国制造；推动美国的科学研究和技术创新以及通过经济发展、外交、人权和同盟关系确保美国在全球的竞争力和领导地位。
-
-文章来源：[抗衡中国：美众议院推出《2022年美国竞争法》](https://www.voachinese.com/a/US-house-competes-act-china-20220125/6412880.html)
-
-*发布：盘古相聚*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

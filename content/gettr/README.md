@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 6:08 AM (UTC)`
+
+1/27/2022 Miles Guo: All the mainstream media and major social media platforms will be brought to justice in the future. These mainstream media will all be condemned by the common people after the Winter Olympics. The Tian Mi Mi Movement is making so much progress! Nearly 50 countries are bargaining with the CCP. Pakistan, which used to be the CCP’s closest ally, has almost become the CCP’s enemy.<br/><br/>1/27/2022 文贵直播：未来所有严肃媒体和大社交媒体平台都将接受正义的审判，冬奥会后这些严肃媒体都将被老百姓声讨；甜蜜蜜运动进展太快了，近50国正在跟中共讲数，巴铁已成“巴仇”<br/>
+![img](https://media.gettr.com/group37/getter/2022/01/28/06/71ad2e15-97e8-5a36-4b4b-5e3bfa8e310b/out.jpg)
+
+---
+
+`@miles 1/28/2022 6:06 AM (UTC)`
+
+1/25/2022 Miles Guo: The authorized departure of the US Embassy in Beijing marks the opening of the “third gate” to take down the CCP, initiating the investigation of the origin of the CCP virus and the revelation of the truth about the COVID vaccine. The CCP is totally doomed!<br/><br/>1/25/2022 文贵直播：美国授权撤离驻北京大使馆标志着灭共第三道大门已打开，并开启了冠状病毒溯源及疫苗真相揭露，中共彻底完蛋了！<br/>
+![img](https://media.gettr.com/group11/getter/2022/01/28/06/d5d7d347-143c-0bc0-46c9-158ddbd9d84f/out.jpg)
+
+---
+
 `@miles 1/28/2022 5:17 AM (UTC)`
 
 1/27/2022 Miles Guo: Hope fellow fighters will not become big-headed. We must adhere to the belief that “only the truth prevails”. The CCP is doomed after the US granted the authorized departure to its embassy in Beijing. So, I hope my fellow Chinese will not become the CCP’s cannon fodder. Please leave Communist China ASAP if you can!<br/><br/>1/27/2022 文贵直播：希望战友们不要得大头症，我们要坚持唯真不破；美国驻北京大使馆被授权撤离之后，共产党已经结束了！请国内同胞们不要做中共的炮灰，能出来的赶紧出来！<br/>
@@ -138,20 +152,6 @@
 
 1/26/2022 Miles Guo’s GETTR: Why did the US authorize the withdrawal of its embassy in Communist China at this time? This decision has nothing to do with the CCP virus, while setting the stage for the legitimacy of the next move of the US. The US Embassy will only return to China after the CCP is finished. Putin's team judges that a war between the CCP and the US is inevitable<br/><br/>1/26/2022 文贵盖特：美国为何在这个时候授权撤离驻华大使馆？这个决定和病毒无关而是为美下一步行动提供了合法支撑，只有中共完蛋了美国大使馆才会回去；普京团队判断中美必有一战<br/><br/>
 ![img](https://media.gettr.com/group27/getter/2022/01/26/22/e968bf96-c498-2901-0f4a-77564032a0d8/out.jpg)
-
----
-
-`@miles 1/26/2022 10:21 PM (UTC)`
-
-1/26/2022 Miles Guo’s GETTR: Today is the 5th anniversary of the Whistleblowers’ Movement. Why did I keep blowing the whistle even if my family members were arrested by the CCP back then? When faced with a dictatorship run by a devil, we have no choice but to eliminate it. So, this is now the most wonderful time of my life.<br/><br/>1/26/2022 文贵盖特：今天是爆料革命5周年纪念日，为什么文贵当年在家人被抓的情况下仍坚持爆料？面对魔鬼的独裁统治，我们别无选择，必须将其消灭，所以现在是文贵活得最精彩的时候<br/>
-![img](https://media.gettr.com/group16/getter/2022/01/26/22/e384bc4b-c691-9956-1f6d-8c1cd0585fa3/out.jpg)
-
----
-
-`@miles 1/26/2022 4:57 PM (UTC)`
-
-The following questions are worth pondering after watching this interview with Dr. Vladimir Zelenko:<br/>1️⃣Is COVID-19 a naturally occurring virus or something else?<br/>2️⃣Why would someone like Dr. Zelenko, who is successful in treating COVID-19 patients, become controversial?<br/>3️⃣Why is a proven treatment method against COVID-19 viruses suppressed? <br/>4️⃣Why must they get everyone to take COVID-19 vaccines to the extent that they would not allow people to get healed with an easy way with Therapeutics. <br/>5️⃣What is the whole purpose of this pandemic? Why is this happening?<br/><br/>看完 Vladimir Zelenko 博士的采访后，以下问题值得深思：<br/>1️⃣新冠病毒是自然产生的病毒还是有其他来源？<br/>2️⃣为什么像 Zelenko 博士这样成功治疗新冠患者的人会引起争议？<br/>3️⃣为什么一个被验证的行之有效的治疗新冠病毒的方法被压制？<br/>4️⃣为什么他们必须让每个人都接种新冠疫苗，以至于他们不允许人们通过简单的治疗方法治愈病人。<br/>5️⃣全球大流行的真正目的是什么？为什么会发生？
-![img](https://media.gettr.com/group36/origin/2022/01/26/16/8af583bb-e566-d15a-354a-5f5eea3ba08c/out.jpg)
 
 ---
 
