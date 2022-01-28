@@ -2,29 +2,34 @@
 ---
 
 
-## 要把龙头未完的工程完成
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1923916/)
+## 外媒质疑中共国疫情数据的真实性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1924064/)
 
-整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-10-9-20-01-scaled.jpg)
-在最上面有电梯通道，露台，上面是直升机坪，后面是龙发。前面是龙珠。所有再到今天都在七哥预料之中。
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月26日，据西方媒体报道称，自中共病毒爆发以来，近一年内，中共政府从未报告过一起中共国内民众因感染病毒而死亡的案例，这引起了相关媒体对中共国疫情数据准确性的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-31.jpg)
+报道指出，尽管中共国大部分地区近期爆发了严重的疫情，但在此期间，当地却没有报告任何一起死亡病例，加之中共政府反复强调的所谓“清零”政策，这让世界在质疑中共国病毒数据准确性的同时，又对该国疫情有着强烈的担忧。
 
-而且如果它这次不变成，或者不是在冬奥会前变成，不是在 20大以前变成，不是在病毒疫苗灾难这中间变成龟头。
+据中共国家卫生健康委员会提供的数据显示，截止当天，中共国内仅有5700起病毒死亡案例，是世界上报告死亡率最低的国家之一。
 
-这个大家，别开玩笑。这个奥运有利弊。一个官员跟我说的，“Miles真的就像这个穆斯林的小孩必须要的就是洗礼，要割包皮以后包住的感觉。”他说，“真的就是这个样子。就在最好时间，最好的方式，最好的机会里边，把龙头变成龟头。”我知道它未来在最好的时间，最好的方式下，变成龙头，而且会是七哥和大家一起，新中国联邦人就像我们的Happy老师讲的那个自由女神一样。
+对此，评论人士分析称，中共政府极力掩盖其病毒死亡真实数据的原因有二，其一在于为将来病毒溯源做好推卸责任的准备，其二则是向世界炫耀其所谓的“清零”政策行之有效。然而，中共荒唐的造假数据最终必将引起世界的质疑和关注。
 
-用12万犹太人1人1块钱捐出来的整个自由女神，也就是叫做公募。未来我们龙头让新中国联邦人每人只拿1分钱，要把龙头未完的工程完成，一定会的!
+参考链接：[China Hasn’t Reported A Single Covid Death In A Year, As Questions Remain About Accuracy Of Its Data](https://www.forbes.com/sites/siladityaray/2022/01/26/china-officially-hasnt-reported-a-single-covid-death-in-a-year-as-questions-remain-about-accuracy-of-its-data/?sh=2fd485a33d62)
 
-发布：于White
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编: 雪梨
+编辑：百香果
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

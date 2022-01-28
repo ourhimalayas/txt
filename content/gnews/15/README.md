@@ -2,28 +2,20 @@
 ---
 
 
-## 爆料革命反对中共毒疫苗的重要性（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1923796/)
+## 加拿大央行维持低利率以图缓解经济危机
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1923991/)
 
-整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-00-9-20-四-scaled.jpg)
-党让干啥就干啥，也绝对相信张高丽说的宇宙无限大，地球是一粒沙。
+采编/编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-8.jpg)
+据加拿大[CTV新闻]1月26日报道，该国央行行长麦克莱姆当天公布其基准利率将继续保持在0.25%的低谷水平。并表示：当前采取的低利率政策将是短暂的，预期不久就会通过提高利率来降低高企的通胀率。
 
-现在彭帅去哪儿了? 谁也不知道找不着了。这就是这个这句话，成为一个大话题呀。凡是强迫别人打疫苗的就是谋杀。
+报道称，在加拿大央行的该决定被公布后，加元和国债收益率均应声下跌。金融界因此预测未来12个月内基准利率将会有大幅提升。但也同时指出，如果等到3月份以后再开始加息，则为时已晚，并且对该国经济持续衰退和通胀率加速攀升的影响将是微乎其微。
 
-你知道奥林匹克这姐妹儿离开，她就告诉我说，我离开就是因为我看了盘古这个龙头被你们给绑住，真的像龟头一样。你们如此惧怕Miles郭，说明他说的是真的，我不能待在这个国家。
+校对编辑：硫酸羟氯喹64
 
-你知道这个奥运会冬奥会都到北京，看着盘古龟头，谁能不看龟头呢？裕达那是两窗子开，全黑的，盘古全黑的。然后对面一龟头，然后搞开幕式。就会问，谁是Miles郭？反对打疫苗，说生化病毒的。
+发稿： 苦尽甜来 (文來）
 
-发布：于White
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接](https://www.ctvnews.ca/business/bank-of-canada-holds-key-interest-rate-but-warns-of-looming-hikes-1.5754875)
 
  
 

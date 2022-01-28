@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 2:21 PM (UTC)`
+
+<br/>1月28号：尊敬的战友们好？你们健身了吗？传播C C P病毒，疫苗解药的真相了吗？共产党在美国授权撤离的外交后……还在尝试磕头，下跪．求美国！帮他们欺骗十几亿中国人……悲剧呀……中国人可怜至极！
+![img](https://media.gettr.com/group42/getter/2022/01/28/14/f1af29f1-7041-ff9e-e437-617037b95569/out.jpg)
+
+---
+
 `@miles 1/28/2022 10:36 AM (UTC)`
 
 Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Beijing that will be authorized by the U.S. government is a huge and monumental step for the New Federal State of China #NFSC. It's something obviously the NFSC as an alternative governing entity apparatus mechanism for the Chinese people. <br/><br/>The Thank You letter from the NFSC to President Joe Biden and Secretary of State Anthony Blinken very specifically calls out the Chinese Communist Party as being illegitimate, not representing the Chinese people and being a transnational criminal organization.<br/><br/>班农先生：经美国政府授权立即撤出美国驻北京大使馆所有外交人员是新中国联邦迈出的巨大且具有里程碑意义的一步。显然，新中国联邦是管理中国人民的另一个选择。新中国联邦致拜登总统和布林肯国务卿的感谢信特别指出中国共产党是非法的政权，不代表中国人民，是一个跨国犯罪组织。
@@ -145,13 +152,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1月26日：尊敬的战友们好，明天继续大直播，下面这个照片是我在清风看守所出来后．与处男英雄的母亲见面后．的当天拍摄的照片．几十年来从来没看见过，这是昨天．由我们英雄👍👍👍👍👍👍🌹🌹😝的哥哥发给我的！非常震惊，非常感动。［1月17日：<br/><br/>主持：小王子&佳佳同学<br/>出镜嘉宾： RossiChen<br/>                    摔跤的雅阁<br/>                    台湾大牛&台湾巴黎<br/><br/> 推流：墨镜<br/><br/>被邀出席：灭共者．MILES．郭文贵<br/><br/>1月30日<br/>主讲：摇滚巨星郭先生<br/>主持：Eric<br/>出镜嘉宾：德华<br/>                   正义小Sarah<br/>                   千叶草<br/><br/> 推流：墨镜］
 ![img](https://media.gettr.com/group35/getter/2022/01/27/01/91ada826-9ac5-b4c5-baf7-2c13c9729732/5aff901ac3cca42d2a9a22cf186471a8.jpg)
-
----
-
-`@miles 1/27/2022 1:30 AM (UTC)`
-
-1/26/2022 Miles Guo’s GETTR: Judging by the way how the CCP deals with the U.S. authorized departure of its embassy in Communist China, the CCP is finished! Some country uses the withdrawal of its embassy as a leverage to demand an investigation into the origin of the CCP virus and the Xinjiang genocide. The first domino has fallen, and more countries will start withdrawing their embassies in Beijing.<br/><br/>1/26/2022 文贵盖特：从处理美国授权撤离驻华大使馆的方式来看，中共已经完了！某国以撤大使馆为由要求调查病毒起源和新疆种族屠杀；第1张多米诺骨牌已倒下，将有更多国家开始撤馆<br/><br/>
-![img](https://media.gettr.com/group44/getter/2022/01/27/01/a9af700c-1b97-cc58-e5b2-d1e6b3b0fe6e/out.jpg)
 
 ---
 
