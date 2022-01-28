@@ -2,8 +2,8 @@
 ---
 
 
-## 不让病毒溯源直接战争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921953/)
+## 希望美使馆工作人员能够有尊严的离开
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922077/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

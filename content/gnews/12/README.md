@@ -2,8 +2,8 @@
 ---
 
 
-## 美国宣布撤离中国大使馆1
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921855/)
+## 美国撤大使馆就是共产党不合法
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921967/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

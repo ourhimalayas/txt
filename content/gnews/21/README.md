@@ -2,37 +2,22 @@
 ---
 
 
-## 原杭州市委周江勇、千金药业李葵、北京银行李莅被调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1921798/)
+## 瑞典不推荐全员儿童接种疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1921832/)
 
-![杭州市委原书记周江勇被双开:与资本勾连 搞迷信活动](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2022%2F0126%2F4e609f52j00r6artd0018c000u000k0c.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)资料图
-据网易新闻1月26日报道，经中共中央批准，中央纪委国家监委对浙江省委原常委、杭州市委原书记周江勇严重违纪违法问题进行了立案审查调查。周江勇因与资本勾连，搞迷信活动，对抗组织审查；非法收受巨额财物，搞家族式腐败被开除党籍和公职处分，终止其党的十九大代表、浙江省第十四次党代会代表资格，移送检察机关依法审查起诉，所涉财物一并移送。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2301.png)[图片来源](https://news.yahoo.co.jp/articles/f29d24d6d39b234355f8ffefbfdb9eb343410073/images/000)
+法新社27日报道，瑞典公共卫生局公布了有关5至11岁儿童接种中共病毒（新冠病毒Covid-19）疫苗的政策，建议仅在高危儿童中接种中共病毒疫苗，而不是针对所有儿童。
 
-千金药业26日发布公告，原株洲国投集团党委书记、董事长李葵因涉嫌严重违纪违法，目前正接受株洲市纪委监委纪律审查和监察调查。中央纪委国家监委网站26日通报，中共国进出口银行北京分行党委书记、行长李莅涉嫌严重违纪违法，目前正在接受中央纪委国家监委驻中国进出口银行纪检监察组纪律审查和云南省监委监察调查。
+公共卫生局Britta Bjorklund说：“疫苗是安全有效的，但考虑到因个人体质不同，不推荐对5–11岁儿童全员接种。”
 
-奥运会前夕，又是对官员的整治，中共在灭亡前不停地找人祭血旗。中共官员的倒台都是同样的说辞，违纪违法、收受贿赂。中共哪个官员不违纪、不违法？在中共能当官的先决条件就是要违纪违法，还得是大手笔地违纪违法，违纪越多、违法越多，官位越高。哪天党一翻脸，过往的违纪违法都成了小辫子，被党直接拎出来送进监狱，最后为党做一份贡献，成就党反腐的美名。在中共这个绞肉机的体制里，没有一个人是安全的，哪怕你是国家主席习近平，总有一天被政治对手绞死。
+当局表示，如果情况发生变化，可能会进行政策修改。 瑞典在对待中共病毒上，有自己的独到见解，没有封城（封城），也没有关闭学校。
 
-新闻参考链接1：[https://www.163.com/news/article/GUKPP12P0001899O.html](https://www.163.com/news/article/GUKPP12P0001899O.html)
+信息来源：[5～11歳へのワクチン、全員には推奨せず スウェーデン](https://news.yahoo.co.jp/articles/f29d24d6d39b234355f8ffefbfdb9eb343410073)
 
-新闻参考链接 2: [https://c.m.163.com/news/a/GULVFKDA0514R9KC.html?spss=newsapp](https://c.m.163.com/news/a/GULVFKDA0514R9KC.html?spss=newsapp)
-
-新闻参考链接3: [https://c.m.163.com/news/a/GULM95690519C6T9.html?spss=newsapp](https://c.m.163.com/news/a/GULM95690519C6T9.html?spss=newsapp)
-
-编辑：胖丁
-
-PR：MQ
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

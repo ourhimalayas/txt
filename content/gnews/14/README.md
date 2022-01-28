@@ -2,10 +2,8 @@
 ---
 
 
-## 七哥宣布甜蜜蜜行动8
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921841/)
-
-编辑/整理：澳雅大直播工作组视频剪辑小队
+## 定海神针美国大使馆撤离的原因是冠状病毒
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921940/)
 
 *发布：*Frank2021
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 中国没有美国大使，我们的影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921899/)
+## 灭共是为了更好的生活
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922013/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
