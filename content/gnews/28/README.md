@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|2017-2022 庆祝爆料革命五周年
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924275/)
+## 纳粹大屠杀幸存者后代 呼吁联合国调查中共政府侵犯新疆人权
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1924333/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2022年1月26日是爆料革命五周年纪念日。自2017年1月26日，郭文贵先生第一次在媒体上爆料中共内幕，吹响灭共号角以来，爆料革命已整整五年。
+**撰稿：日本东京方舟农场  老孙**
 
-这五年时间，郭先生爆料的香港返送中运动、中共释放生化武器-冠状病毒等逐一被验证。如今，习近平已经是名副其实的独裁者，中共也成为被世界唾弃的政府。
+据美国之音报道，国际大屠杀纪念会议，1月27日在德国举行，缅怀大屠杀受难者。纳粹大屠杀幸存者、诺贝尔和平奖得主埃利·维塞尔（Elie Wiesel）的儿子艾利沙·维塞尔 (Elisha Wiesel) 在纪念会议上发言，以纪念他死于纳粹集中营的祖父和幸存的父亲，并就幸存者后代与反犹太主义斗争的责任，以及谴责中共政府对维吾尔人的暴行进行了发言。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-36.png)（图片取自美国之音）
+他认为，国际社会对中共政府践踏人权行为的容忍导致了全球更多的人权侵犯事件。 由于世界对维吾尔家庭被强迫分离和文化根除视而不见，使得其他压迫者缅甸、伊斯兰国和塔利班可以更容易压迫罗兴亚人、雅兹迪人和妇女。
 
-同时，爆料革命在这五年内成绩斐然，灭共基金-法治基金成立，新中国联邦诞生，喜联储、喜币横空出世，备受世人瞩目。在爆料革命的推动下，1月25日，美国政府授权撤离驻中共国大使馆的消息，标志着爆料革命、新中国联邦为全人类停止病毒疫苗灾难、种族大屠杀取得了决定性的胜利。
+他呼吁国际社会利用北京冬奥会的机会，聚焦遭中共政府种族灭绝的维吾尔人，尤其是那些为维护维吾尔文化、宗教而遭中共政府强迫失踪和判重刑的维吾尔人士。
 
-让我们一起来回顾爆料革命这五年来的重要历史时刻。（请播放视频，视频时长 9‘54“）
+2005年，联合国大会通过决议，将每年1月27日定为“缅怀大屠杀遇难者的国际纪念日”，这一天是盟军解放奥斯维辛集中营的日子。决议指出，设此纪念日的目的是“防止今后出现种族灭绝行为，并毫无保留地谴责一切基于种族或宗教信仰，针对个人或团体的不容忍、煽动、骚扰或暴力行为，不论这些行为发生在何处”。
 
-文字版原文：[2017-2022 庆祝爆料革命五周年](https://gnews.org/zh-hans/1923013/)
+参考链接：
+[https://www.voachinese.com/a/Holocaust-Remembrance-Day-beijing-winter-olympics-genocide-uyhgur-20220126/6413834.html](https://www.voachinese.com/a/Holocaust-Remembrance-Day-beijing-winter-olympics-genocide-uyhgur-20220126/6413834.html)
 
-音频处理：Fei797
-发稿：Fei797
+**素材采编：**老孙
+**编辑： **青城道姑
+**发布：**文曦
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
