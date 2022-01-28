@@ -15,104 +15,104 @@
 
 ---
 
-### [最好的老师是上天](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [无数的大头症](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [文贵大直播要点-图片合辑（2022年1月27日）](/content/gnews/3/README.md)
- ` 波士顿五月花农场`
-
-### [瑞典拒绝为儿童接种“新冠病毒”疫苗](/content/gnews/4/README.md)
+### [特鲁多疑感染“新冠病毒”而被再次隔离](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [经历是最好的老师，七哥的64经历（二）](/content/gnews/5/README.md)
+### [辉瑞董事会成员建议停止强制疫苗接种](/content/gnews/2/README.md)
+ ` 香草山醫療部`
+
+### [文·贵天成 – “爆料革命”盘古开天地（十五）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [春节前夕，第一个省宣布松绑楼市？](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [最好的老师是上天](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [《蓝枫法律》第四十期 金融税务专题](/content/gnews/6/README.md)
+### [无数的大头症](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [俄乌在巴黎达成停战协议 两周后柏林将再度会谈](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [文贵大直播要点-图片合辑（2022年1月27日）](/content/gnews/8/README.md)
+ ` 波士顿五月花农场`
+
+### [瑞典拒绝为儿童接种“新冠病毒”疫苗](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [经历是最好的老师，七哥的64经历（二）](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [《蓝枫法律》第四十期 金融税务专题](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [经历是最好的老师，七哥的64经历](/content/gnews/7/README.md)
+### [经历是最好的老师，七哥的64经历](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大卡車司機車隊被當局勢力惡意滋擾](/content/gnews/8/README.md)
+### [加拿大卡車司機車隊被當局勢力惡意滋擾](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（十二）](/content/gnews/9/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（十二）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生盖特直播要点-5周年（2022年1月26日）](/content/gnews/10/README.md)
+### [文贵先生盖特直播要点-5周年（2022年1月26日）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [PCR测试棒不带毒](/content/gnews/11/README.md)
+### [PCR测试棒不带毒](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [雅典娜时报-第187期](/content/gnews/12/README.md)
+### [雅典娜时报-第187期](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵大直播要点-图片（2022年1月27日）](/content/gnews/13/README.md)
- ` 波士顿五月花农场`
-
-### [G系列 to the Moon](/content/gnews/14/README.md)
+### [七哥感谢5年来战友的陪伴](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [什么是教育](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥感谢5年来战友的陪伴](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大](/content/gnews/17/README.md)
+### [科顿：我们应该像支持乌克兰一样支持台湾，中共国比俄罗斯的威胁更大](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2022年1月27日晚](/content/gnews/18/README.md)
+### [GTV新闻访谈简报|2022年1月27日晚](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [拜登政府撤销有关疫苗接种及临时检测强制要求](/content/gnews/19/README.md)
+### [拜登政府撤销有关疫苗接种及临时检测强制要求](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/20/README.md)
+### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥开心的事冬奥会能开成功](/content/gnews/21/README.md)
+### [七哥开心的事冬奥会能开成功](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/22/README.md)
+### [1/27/2022 文贵直播：彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/23/README.md)
+### [郭文贵先生带来西方从中共国撤使领馆最新消息：美和西方20多国已宣布撤离驻中大使馆，并要求病毒溯源及调查种族灭绝，共产党灭亡钟声已敲响（图文）](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [习近平政府发起反洗钱运动，预示党内政治内斗加剧](/content/gnews/24/README.md)
+### [习近平政府发起反洗钱运动，预示党内政治内斗加剧](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/25/README.md)
+### [1/27/2022 文贵直播：甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
 
-### [饮鸩止渴，中共国地方融资平台大量回购出让土地](/content/gnews/26/README.md)
+### [饮鸩止渴，中共国地方融资平台大量回购出让土地](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/27/README.md)
+### [【粤语配音】2022年1月27日： 美国“不断不交”干掉中共](/content/gnews/29/README.md)
  ` MOS香港部`
 
-### [台湾副总统过境美国，视频会晤美议员并获国会两党赞扬](/content/gnews/28/README.md)
+### [台湾副总统过境美国，视频会晤美议员并获国会两党赞扬](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/29/README.md)
+### [2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/30/README.md)
+### [1/19文贵直播：今年5月份病毒接近尾声，疫苗灾难接踵而至（粤语配音）](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [1/19文贵直播：参加达沃斯论坛的没人打疫苗（粤语配音）](/content/gnews/31/README.md)
+### [1/19文贵直播：参加达沃斯论坛的没人打疫苗（粤语配音）](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共用数字人民币操纵经济控制人民](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [西方盟国就乌克兰问题抛弃加拿大](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [在看到中纪委公布杭州市委书记周江勇的罪行后，估计马云会被吓得尿裤子了](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
@@ -138,75 +138,72 @@
 ### [男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [马里克博士斥美政府激励医院开出有毒治疗药物](/content/gnews/42/README.md)
- ` GTV新闻访谈`
-
-### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/43/README.md)
+### [1/27/2022 国际财经快讯：Facebook旗下加密货币公司Diem将清盘并出售资产; 研究显示DeFi成为日益流行的洗钱工具](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [奥地利解除对未接种疫苗居民的封锁](/content/gnews/44/README.md)
+### [奥地利解除对未接种疫苗居民的封锁](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [不容放肆也已放肆多时了](/content/gnews/45/README.md)
+### [不容放肆也已放肆多时了](/content/gnews/44/README.md)
  ` 骄子`
 
-### [完全接种疫苗的马耳他达到创纪录的COVID-19死亡率](/content/gnews/46/README.md)
+### [完全接种疫苗的马耳他达到创纪录的COVID-19死亡率](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《柳叶刀》在溯源COVID-19中扮演了什么角色？](/content/gnews/47/README.md)
+### [《柳叶刀》在溯源COVID-19中扮演了什么角色？](/content/gnews/46/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美光科技解散上海研发中心DRAM设计部门](/content/gnews/48/README.md)
+### [美光科技解散上海研发中心DRAM设计部门](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [台湾加入外交抵制北京冬奥会的行列](/content/gnews/49/README.md)
+### [台湾加入外交抵制北京冬奥会的行列](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [宋词新作：贺新郎·甜蜜蜜送葬——美国使馆永久撤离等同宣判中共不合法](/content/gnews/50/README.md)
+### [宋词新作：贺新郎·甜蜜蜜送葬——美国使馆永久撤离等同宣判中共不合法](/content/gnews/49/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [甜蜜蜜运动开始 美国撤离北京大使馆 透露资本撤离灭共进入倒计时](/content/gnews/51/README.md)
+### [甜蜜蜜运动开始 美国撤离北京大使馆 透露资本撤离灭共进入倒计时](/content/gnews/50/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增](/content/gnews/52/README.md)
+### [美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增](/content/gnews/51/README.md)
  ` 首尔天池农场`
 
-### [美国‘授权撤离’ 中方表达不满](/content/gnews/53/README.md)
+### [美国‘授权撤离’ 中方表达不满](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [近20国要同美国授权撤离大使馆，为下一步重大行动提供法律支撑](/content/gnews/54/README.md)
+### [近20国要同美国授权撤离大使馆，为下一步重大行动提供法律支撑](/content/gnews/53/README.md)
  ` YALUN 亚伦`
 
-### [新中国联邦第一次重大公告](/content/gnews/55/README.md)
+### [新中国联邦第一次重大公告](/content/gnews/54/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [世界集结为自由，周末180城市民众游行抗议](/content/gnews/56/README.md)
+### [世界集结为自由，周末180城市民众游行抗议](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [反对党领袖：澳中关系前路多艰](/content/gnews/57/README.md)
+### [反对党领袖：澳中关系前路多艰](/content/gnews/56/README.md)
  ` 走进澳洲`
 
-### [美中第一阶段协议已到期 中共没有兑现各项承诺](/content/gnews/58/README.md)
+### [美中第一阶段协议已到期 中共没有兑现各项承诺](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
 
-### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/59/README.md)
+### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/58/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国希望将美国文化女性化以进行控制](/content/gnews/60/README.md)
+### [中共国希望将美国文化女性化以进行控制](/content/gnews/59/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活](/content/gnews/61/README.md)
+### [我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活](/content/gnews/60/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国防部正在把福奇暴露出来](/content/gnews/62/README.md)
+### [国防部正在把福奇暴露出来](/content/gnews/61/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/63/README.md)
+### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/62/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/64/README.md)
+### [介于北京与新中国联邦之间的塞浦路斯左右为难，暂停了中共国当局的引渡要求](/content/gnews/63/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/65/README.md)
+### [塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中](/content/gnews/64/README.md)
  ` 秘密翻译组-北美组`
 
