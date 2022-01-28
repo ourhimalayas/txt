@@ -2,20 +2,38 @@
 ---
 
 
-## 中日财经爆|日元暴跌之后东证大幅反弹547点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923214/)
+## 美国海军向南中国海派遣两艘航母
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923262/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2345.png)[图片来源](https://cn.investing.com/indices/japan-ni225)
-1月28日，东京股市日经平均股价（225种）大幅反弹。因前一天平均股价暴跌的反作用，价格下跌的股票出现了买进势头。在外汇市场，日元走低也给出口相关项目带来了推波助澜。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-10.png)
+鉴于中共近期屡次入侵台湾空域，美国海军于1月25日向南中国海派遣了两艘航母，分别是卡尔·文森号和亚伯拉罕·林肯号，共同进行通信、反潜战和空战演习以及海上拦截行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2342.png)
+军事方面，美国五角大楼正在加强亚太地区的军力部署；外交方面，美国政府授权撤离美国驻北京大使馆，正在实行外交人员撤离。这意味着，美国政府和军方都认同，对中共国的战争风险在增加。
 
-收盘为26717.34，比前一天上涨了547.04。东证指数（TOPIX）上涨34.45点，达到1876.89点，成交额约为13.2965亿股。
 
-信息来源： [東証大幅反発、５４７円高　急落の反動、円安進行も追い風に](https://www.zakzak.co.jp/article/20220128-7TI6LOYMFBFENJXSJC4YBVJHMY/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+总编：Ivy001
+
+编辑: 纽约香草山文艺部 – 宁文静
+
+新闻来源:
+
+[Navy sends two carriers to disputed South China Sea](https://www.washingtontimes.com/news/2022/jan/25/navy-sends-two-carriers-disputed-south-china-sea/)
+
+[美军F-35C战机坠入南海，英媒炒作美国和中国展开“打捞竞赛”](https://mil.huanqiu.com/article/46YatXCL3PJ)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-40-1-10.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
