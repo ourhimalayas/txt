@@ -2,38 +2,28 @@
 ---
 
 
-## 为缓解中共财政危机，城投公司大量购买土地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1923121/)
+## 美病毒学家通过常规PCR确认“隐形Omicron毒株”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923190/)
 
-撰稿：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
-在中国房地产业流动性危机席卷民营房企之际，中共国地方城投公司成为购买土地的主力军，试图努力化解“土地财政”模式下地方政府的困境。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2336.png)
-据悉，去年最后两个月，在集中供地的21个大城市中，九座城市至少一半的地块被当地城投公司购买。在经济放缓的情况下，此举虽有助于遏制当前土地销售下滑的趋势，缓解各地政府的财政压力，但这无疑也将推升城投公司的杠杆率，进一步增加本就沉重的债务负担。
+撰稿：东京樱花团丨向海
+![](https://lh4.googleusercontent.com/Tcf33Ls5VqUU4SD5r25yFgUajBpZ4m1pOMpiTcDj0zsprZ9m0Za8AfbenmdoRj800U5EftXtnZStZu3bcCSl12v01R4hzCP-gtPfBrbB9X1IDTWyxS1mnL8h49znGtjVTgwOEdYh)[*图片来源*](https://news.yahoo.co.jp/articles/f705438543f112fb7e90d128d8e964a4b833f318/images/000)
+据日本【雅虎新闻】报道，中共病毒Omicron毒株的一种变体，被称为“隐形Omicron (SO) 毒株”，在欧洲和其他地方正在增加。原本隐身的意思是“秘密”、“武器在雷达上很难被发现”，但美国广播公司KOLD 27日称其为“隐身”，是根据专家的说法，它比传统的 Omicron 更难被发现。
 
-城投公司即城市建设投资公司，是全国各大城市政府投资融资平台，属于事业单位或者国有独资公司性质。此类城投公司本身不具备盈利能力，通过政府补贴、银行贷款等方式实现运转。此前已有多家大中型银行对地方城投公司收紧购地和开发地产项目的贷款，提高了风控要求，现在却被迫执行政府指令性投融资业务。据悉，今年中共城投公司在境内外市场将面临约3760亿美元的债券到期。爆雷，只是时间问题。
+亚利桑那大学病毒学家 Eprem Lim 助理教授说：“我们之所以称之为隐身，是因为用某些旧的测试很难检测到。大多数大学都使用可以检测到的新测试方式，所以它不是完全隐形的。
 
-链接：
+即使是隐形毒株（SO），也可以通过正常的PCR检测来判断是冠状病毒阳性还是阴性。但是，由于在常规Omicron毒株中发现的“刺突蛋白缺乏症”在SO毒株中并不存在，因此通过PCR检测可能无法确定是常规Omicron毒株还是SO毒株，大多数实验室是用检测基因的方法检测到的。
 
-[China Banks Curb Property Loans to Local Government Firms](https://www.bloomberg.com/news/articles/2022-01-13/china-banks-restrict-property-loans-to-local-government-firms)
+关于SO毒株的传染性，京都大学传染病流行病学西浦博教授公布了研究结果，它比传统的 Omicron毒株强18%。在海外，专家之间对于SO毒株传染性上也存在分歧，例如一些人认为它比传统Omicron毒株强“一倍”左右，而一些人认为“非常强”，有这两种意见。关于重症化风险正在等待研究结果，但英国《每日邮报》等报道了专家的意见是，“它似乎与传统的Omicron毒株差不多”。
 
-[中国地方政府融资平台大量购买土地](https://www.zaobao.com/realtime/china/story20220126-1236789)
+SO菌株在南非首次发现后，现已在日本、英国、美国、澳大利亚等40多个国家都有检测出。据报道，在丹麦和菲律宾，超过一半的新感染病例是由SO毒株引起的。据该报27日报道，英国由SO毒株引起的感染人数在一周内增加了四倍（从新感染的0.2%增加到0.8%）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DF35BE3A-9D79-47E4-8A21-48314159620B.jpeg)
+此外，根据同一篇论文，在丹麦，已经报告了几例感染正常 Omicron毒株后又感染 SO毒株的病例。
 
-总编：飞虹
+信息来源：[**「ステルス・オミクロン株はそれほどステルス（発見が困難）ではない」と米ウイルス学者 通常のPCRで判別可能**](https://news.yahoo.co.jp/articles/f705438543f112fb7e90d128d8e964a4b833f318)
 
-编辑：纽约香草山文艺部 – 宁文静
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,24 @@
 ---
 
 
-## 马歇尔参议员公布了福奇与中共的财务往来
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1923124/)
+## 港府廉价招募大专生采样
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1923202/)
 
-##### 翻译：Elon mask
-校对：精靈藍
-剪辑|字幕：小强
-编辑：Mttfly
+作者：东京樱花团丨阿恩
+![](https://lh3.googleusercontent.com/ZUe4ioTvWx7BjPDLL7KAk4jnpNR6_22QGDnJUJvePArDCVsW0BJLLLlBB7-d3pz1jX0sSyaGqpJFE_bHvborKn4mcVITAd4pJvkI8TfaVF-aEdQce2_DRKEk5j-M3Q4KRekj8XHD)
+目前香港中共病毒（新冠病毒）检测需求大增，食物及卫生确认港府招募大专院校医疗相关学科的学生协助采样工作，目前已有约700个学生响应招募，包括香港大学、香港中大大学、香港理工大学、东华学院、明爱专上学院和香港都会大学的学生。学生的时薪仅70元至120元。公务员事务局早前邀请退休纪律部队人员于正月年廿九至初三参与“围封及强检行动”，每小时可获390元报酬。
 
-为什么福奇博士只相信新冠疫苗？为什么他从来不考虑硫酸羟氯喹或者伊维菌素？福奇跟谁有资金往来呢？美国参议员马歇尔（Roger Marshal）近日获得了福奇的财务状况，并公布在其个人网站[marshall.senate.gov](https://www.marshall.senate.gov/newsroom/press-releases/breaking-sen-marshall-proves-fauci-lied-by-obtaining-previously-unpublished-financial-records/)上。其中显示，在2020年，福奇从中共赚取了170万美元。
+中共独裁统治香港后，港府的工作越来越不靠谱，以往仅限本港专业机构的工作也向社会招标，比如中共病毒的检测，港府史无前例地引入数间内地检测公司，其中包括华大基因，华大屡次被爆出检测出错，港府面对舆论依旧姑息，仅处以暂停检测整顿。据新中国联邦的医疗团体透露，病毒采样工作是十分严谨的工作，需要专业人员操作，以免因采样导致人体伤害，而且中共病毒的采样完全可以通过口水样本完成。港府以疫情严峻为由，廉价招聘医疗关系学科的大学生做采样零工，完全忽视被采样者的人身伤害，而且对参与采样的学生也会造成被感染风险。
 
-视频链接：[马歇尔参议员现在已经获得并在他的网站上发布了福奇的财务状况，福奇在 2020 年就赚了 170 万美元，“在中共国还有大量投资”。](https://twitter.com/johndoe1284495/status/1483694291834658818?s=21)
+中共拿武汉人民试验新冠病毒，导致疫情失控，地方医疗系统崩溃，中共从全国各地调集了众多的义务人员前往支持，其中就有大量的医学相关专业的学生，这些孩子被当众剃掉头发哭泣着被送往武汉，虽然中共始终掩盖着真相，但仅从网络上漏出的信息就可知，有大量的医务人员殉职。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+香港的疫情还不至于发展到当时武汉的程度，但港府此举已与中共草菅人命的作风如出一辙。如今的香港正潜移默化地运行着中共奴役内地同胞的暴政，港人切记要保持清醒，勿趋炎附势被中共奴化。
 
+资料来源：[**新冠疫情丨政府招募大专生协助采样 食卫局：700学生响应**](https://news.mingpao.com/ins/%e6%b8%af%e8%81%9e/article/20220128/s00001/1643349432250/%e6%96%b0%e5%86%a0%e7%96%ab%e6%83%85-%e6%94%bf%e5%ba%9c%e6%8b%9b%e5%8b%9f%e5%a4%a7%e5%b0%88%e7%94%9f%e5%8d%94%e5%8a%a9%e6%8e%a1%e6%a8%a3-%e9%a3%9f%e8%a1%9b%e5%b1%80-700%e5%ad%b8%e7%94%9f%e9%9f%bf%e6%87%89)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,26 @@
 ---
 
 
-## 中共开冬奥会难以掩盖新疆维吾尔族的种族灭绝
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1922992/)
+## 马歇尔参议员公布了福奇与中共的财务往来
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1923124/)
 
-作者：Aiolis
+##### 翻译：Elon mask
+校对：精靈藍
+剪辑|字幕：小强
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/fullsizeoutput_b8b.jpeg)
+为什么福奇博士只相信新冠疫苗？为什么他从来不考虑硫酸羟氯喹或者伊维菌素？福奇跟谁有资金往来呢？美国参议员马歇尔（Roger Marshal）近日获得了福奇的财务状况，并公布在其个人网站[marshall.senate.gov](https://www.marshall.senate.gov/newsroom/press-releases/breaking-sen-marshall-proves-fauci-lied-by-obtaining-previously-unpublished-financial-records/)上。其中显示，在2020年，福奇从中共赚取了170万美元。
 
-据Catch News新闻网1月28日报道，世界维吾尔代表大会执行委员会副主席伊尔沙特·哈桑·科克博尔对中共在新疆的情况做了一个介绍。比如中共反人类组织一直以来都把维吾尔人的穆斯林定义为“恐怖分子”，然而从表现来看，更切合恐怖组织身份的恰恰是中共，所作所为具备邪教属性。因为中共不喜欢，他们都是中共的猎物，是中共在集中营里任意关押和宰杀的迫害残杀对象。文中强调了希望各国在外交上抵制中共冬奥会的诉求，以回击中共在新疆进行的种族灭绝行为。 中共在新疆进行非常血腥的压制各种批评，威胁和虐待不断，失踪的人数比大屠杀的人还要多，家庭安全感荡然无存，中共想通过奥运会粉饰太平，却无法掩盖180万维吾尔族人被转移到集中营，另210万被摘取器官，多达400万维吾尔人被关押集中营和被强迫劳动，占领地区大约14000家强迫劳动的工厂。
+视频链接：[马歇尔参议员现在已经获得并在他的网站上发布了福奇的财务状况，福奇在 2020 年就赚了 170 万美元，“在中共国还有大量投资”。](https://twitter.com/johndoe1284495/status/1483694291834658818?s=21)
 
-    以上这些，中共不会承认，有的虽然逃离海外，但是家人被关押集中营，随时面临中共的威胁和绑架，失去了正常的家庭联系，生计难以保证，那些观看冬奥会的人，实际是对中共过去在新疆进行种族灭绝和迫害的赞许，维吾尔族人失去了自由和家人的正常的交流。
-
-新闻链接：
-[http://China will use Beijing Olympics to whitewash Uyghur genocide | Catch News](http://China%20will%20use%20Beijing%20Olympics%20to%20whitewash%20Uyghur%20genocide%20|%20Catch%20News)
-
-审核校对：Barry Jack
-上传排版：V在途中
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

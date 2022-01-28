@@ -2,35 +2,24 @@
 ---
 
 
-## 美国明尼苏达州起诉涉嫌大规模造假的新冠测试公司
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1922880/)
+## 中共病毒疫情下的治安恶化，入店行窃急剧增加还向警卫礼貌鞠躬
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922940/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：东京樱花团丨向海
+![](https://lh5.googleusercontent.com/fDrvdH6XvGHJoMlN1X_mlEZPjlon8jwp5Msf0EGGV01j1bDoEUcf6565idYgBBZwzjnBsBW14ECrubIPoH2mbOKanvC6vvPVnDGNev82o3AMMHfcYRivB-d3quzoOA1xF84gXebh)[*图片来源*](https://i.epochtimes.com/assets/uploads/2021/11/id13390395-IMG_6894_RevM_LearZhou_2021_11_21_SFLVLooted.jpg)
+据雅虎报道，在美国纽约，中共病毒（Covid-19）疫情的蔓延加剧了治安状况恶化，药店和零售店的入店行窃事件层出不穷。被窃损失金额日趋扩大，一些商店已经关门。
 
-整理/编辑：小红帽
+在超市里，一个男人向保安很礼貌地鞠躬，拿着还没有付款的商品，然后大大方方地离开商店。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)图片来源：雅典娜设计组
+据当地媒体报道，在纽约市，去年零售商店的入店行窃事件达到约 44,000 起，与中共病毒疫情之前相比增加了 15%。
 
+各大药店连锁“Rite Aid”宣布因降低成本而关闭部分门店，但员工表示，入店行窃激增可能是关闭的原因之一。
 
-根据《自然新闻》1月27日报道，数千万美国人继续抵制那些说服或强迫他们接种新冠病毒（COVID-19）疫苗的规定，原因是，人们从一开始就在这场大流行病上被骗了，而这不过是为了追求纯粹的政治权力。
+信息来源：[**支払いせず堂々と警備員に一礼…コロナで治安悪化し万引きが急増  米**](https://news.yahoo.co.jp/articles/dba8c9a6346d1b5c897a36c1f5df686165d9b1bc)
 
-在明尼苏达州，对位于伊利诺伊州的新冠病毒测试公司提起的诉讼中，这些谎言又被重新揭穿，理由是它们涉嫌“欺骗消费者”。
-
-《西方日报》（The Western Journal notes）指出：援引埃里森办公室1月26日发布的新闻稿，该诉讼称，新冠病毒控制中心（the Center for COVID Control）和医生临床实验室公司（Doctors Clinical Laboratory  Inc.）“要么未能提供测试结果，要么提供了伪造或不准确的测试结果”。
-
-根据《NBC》1月14日报道，新冠病毒控制中心是新冠病毒测试领域最大的参与者之一，在全国拥有 300 多个站点。报道指出，该公司正在接受联邦调查，并正在几个州接受司法部长的调查。
-
-新闻链接：[Minnsota f](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[e](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)[iling suit against COVID testing company allegedly engaged in massive cover-up](https://www.naturalnews.com/2022-01-27-minnesota-filing-suit-against-covid-testing-company.html)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
