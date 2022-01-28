@@ -2,50 +2,63 @@
 ---
 
 
-## 北京冬奥会是一个麻烦多多的雷区
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1922648/)
+## 普京知道乌克兰不会攻击俄罗斯
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1922667/)
 
-编译：Jenny Ball
+[https://gtv.org/video/id=61f29a8f87664c47acdacddf](https://gtv.org/video/id=61f29a8f87664c47acdacddf)
 
-但仅仅 14 年后，当奥林匹克荣耀重返世界上道德最缺失的帝国时，我们多少次被要求表现出批准所需的故意盲目性（甚至是矛盾心理）？维吾尔族的种族灭绝、对香港的迫害、对无数公民的政治监禁和对西方技术的肆意盗窃，这些都构成了让人们无法简单地享受奥运主办国文化和景观的历史记录。
+Mike Pompeo: Putin knows that Ukraine is not going to attack Russia
+普京知道乌克兰不会攻击俄罗斯
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2316-edited.png)newsweek
+Vladimir Putin has wanted to put Russia-friendly leaders in the capital Kyiv and control of the country for awfully long time
+弗拉基米尔·普京(Vladimir Putin)长期以来一直希望将对俄罗斯友好的领导人安置在首都基辅并控制该国
 
-历史上，奥运会的临近，总是为世界带来了从疲惫的新闻周期中解脱出来的温暖期待。它通常是灵魂的滋补品，是全球紧张局势的假期，是每日新的全球危机嗡嗡声的喘息之机。
+and now he’s tried to do so through.
+现在他正试图做到这一点
 
-2022 年奥林匹克运动会本应是这样一个时刻，当今世界不仅有地缘政治麻烦点，而且大流行已经进入第三个年头。如果有时间坐下来让奥运会的形象和成就冲刷我们，那就是现在。
+Political gamesmanship, coercion all kinds of things, of the tools that statecrafts are not overt,
+政治手段，胁迫各种东西，以及不公开的治国手段
 
-可悲的是，这完全不可能的。
+now he appears to be massing troops, not only inside western Russia, but inside Belarus as well.
+现在他似乎正在集结军队，不仅在俄罗斯西部，而且在白俄罗斯境内
 
-世界上有许多城市值得在奥运关注的光辉中首次亮相，世界上也充满了不是专制共产主义政权首都的城市。然而，国际奥委会却将目光投向了北京……再次。对于渴望给予中共首都无与伦比的积极关注的国际奥委会来说**，2008 年夏季奥运会的巨额礼物显然还不够。**
+A short run down into Ukraine from there, preparing coercive force capacity to change what Ukraine people want from where they are today
+从那里进入乌克兰，准备强制力量改变乌克兰人民今天想要的独立、自由
 
-我们必须明确，不是每座奥运城市都能成为西式的自由绿洲。对于一个旨在庆祝体育运动的非政治性活动，却可以为 1980 年的莫斯科、2014 年仍然独裁的俄罗斯的索契，甚至 2008 年的北京而争论。
+With President Zelensky running an important country, a country that matters the United States, and he wants to put someone friendly to Russia.
+泽连斯基总统管理着一个重要的国家，一个对美国至关重要的国家，普京想找一个对俄罗斯友好的人
 
-但仅仅 14 年后，当奥林匹克荣耀重返世界上道德最缺失的帝国时，我们多少次被要求表现出批准所需的故意盲目性（甚至是矛盾心理）？维吾尔族的种族灭绝、对香港的迫害、对无数公民的政治监禁和对西方技术的肆意盗窃，这些都构成了让人们无法简单地享受奥运主办国文化和景观的历史记录。
+So he put this in the newspapers and brought it up on the Russia outlets, this is a Russian propaganda.
+所以他把这个放在报纸上，放在俄罗斯的媒体上，这是俄罗斯的宣传
 
-但是木已成舟，我们都有观看或不观看的自由。然而，运动员们很快就会发现，他们自己身处一个充斥着新的冠状病毒爆发，和中共政府甚至可能不会透露的其他危险的国家。可以毫不夸张地说，一个应对 COVID 的起源负责的政权，其压迫性、秘密政权，不可能考虑关于运动员和参加者安全。
+Vladimir Putin knows that Ukraine is not going to attack Russia.
+弗拉基米尔普京知道乌克兰不会攻击俄罗斯
 
-参加者的概念在北京是一个破灭的主张，因为对病毒的担忧，导致中国境外的购票者被驱逐出境。访问将仅限于“选定的”中国观众。仅仅六个月前，在东京推迟的夏季奥运会上，人群被赶走，但运动员们当时不必担心有一种有害的 Omicron 变体，这种变体表现出对口罩和疫苗等的嗜好。他们也不必担心访问一个不可信任的国家，会直接对可能的危险采取行动。
+To suggest somehow that there’s a threat from NATO or from Ukraine is just propaganda, an excuse for Vladimir Putin to do what he ultimately wants,
+以某种方式暗示存在来自北约或乌克兰的威胁只是宣传，是弗拉基米尔普京做他最终想要做的事情的借口
 
-每个运动员都应该知道另一种危险——中国共产党窥视他们的一言一行的风险。一些国家已经向其代表团推荐了刻录手机，理由是战略性放置的 WiFi 可能会导致监视甚至恶意软件感染。
-
-关于运动员可能抵制北京的辩论，让人想起吉米·卡特政府退出1980年莫斯科奥运会。由此产生的共识是，它除了摧毁我们运动员的梦想之外，什么也没有实现。基于那次经验，我让自己想象了即将到来的北京奥运会的最佳情况，在这种情况下，自由的美国人获得了令人羡慕的奖牌总数，为世界提供了一个机会来衡量我们代表团享有的自由，与之形成鲜明对比他们的是，中国同行和他们的14亿同胞遭受苦难和压迫。
-
-也许我们会看到一些兴高采烈的美国滑雪者或滑雪板运动员，将自己包裹在我们的旗帜中，为有机会代表我们伟大的国家而自豪。或许这些竞争者可以向中国人民表达希望，希望他们有朝一日能从目前的困境中解脱出来。
-
-但我大概是在做梦吧。我个人的奥运记忆充满了在伟大地方的伟大时刻，有些是熟悉的，有些是新近欣赏的。在每场比赛中，我和我的美国同胞都有机会看到壮观的比赛，背景是来自世界各个角落的观众，前来享受欣赏一个国家的热情好客。
-
-我将一如既往地在北京为我们的运动员加油。但是，COVID 将抑制申请程序，这是多么可悲的转折。没有人能预见到一种病毒会吞噬如此多的奥运欢乐。但是，无论是新冠病毒还是无新冠病毒，国际奥委会在考虑奥运会地点时，**肯定会牢记人权**。随着中共对其适当受损的声誉采取积极的态度，让我们希望奥委员会能够避免回到这个帝国，只要它仍然是压迫着世界近 20% 人口压迫者。
-
-素材来源：【newsweek】[Beijing Olympics Present a Minefield of Problems | Opinion](https://www.newsweek.com/beijing-olympics-present-minefield-problems-opinion-1672166?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1643287502936&amp;subscriberId=6180566715c6fcdd524c7c95)
+which is to extend his influence, his authority, his power, his control into the former Warsaw Pact countries.
+即将他的影响力、他的权威、他的权力、他的控制权扩展到前华约国家
 
 * * *
 
-审核：文乐
-校对：小东
-发布：花羽
+Date:01/24/2022
+原视频标题: Putin knows that Ukraine is not going to attack Russia
+普京知道乌克兰不会攻击俄罗斯
+原视频日期：2022/01/23
+原视频链接: [**https://twitter.com/mikepompeo/status/1485361579377967106?s=24**](https://twitter.com/mikepompeo/status/1485361579377967106?s=24)
+任务编号：KE366（3583）
+视频时间段 : 0:00-1:02
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

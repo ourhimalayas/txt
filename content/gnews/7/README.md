@@ -2,8 +2,8 @@
 ---
 
 
-## 开心的甜蜜蜜运动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922696/)
+## 茉莉花运动是直插共产党心脏
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922754/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

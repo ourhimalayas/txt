@@ -15,95 +15,95 @@
 
 ---
 
-### [我们会结束所有中国人的恐惧，七哥将会出访欧洲](/content/gnews/1/README.md)
+### [为什么叫甜蜜蜜行动](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [茉莉花运动是直插共产党心脏](/content/gnews/2/README.md)
+### [习近平为什么要打台湾](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [习的独裁之路](/content/gnews/3/README.md)
+### [七哥最担心共产党的灭亡会带走更多人](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [茉莉花运动将是老杂毛的噩梦](/content/gnews/4/README.md)
+### [六周后更多人会相信行动](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [我们要有联合行动，集体的力量](/content/gnews/5/README.md)
+### [习的中国梦来自他崇拜希特勒](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [甜蜜蜜运动会像茉莉花运动](/content/gnews/6/README.md)
+### [我们会结束所有中国人的恐惧，七哥将会出访欧洲](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [开心的甜蜜蜜运动](/content/gnews/7/README.md)
+### [茉莉花运动是直插共产党心脏](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [爆料革命永远要做到：唯真不破](/content/gnews/8/README.md)
+### [习的独裁之路](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [什么是契约，什么是真理](/content/gnews/9/README.md)
+### [苏格兰Covid住院和死亡案例中八成是接种疫苗者](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [茉莉花运动将是老杂毛的噩梦](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥会在北京城行动](/content/gnews/10/README.md)
+### [我们要有联合行动，集体的力量](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [普京知道乌克兰不会攻击俄罗斯](/content/gnews/11/README.md)
+### [甜蜜蜜运动会像茉莉花运动](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [爆料革命永远要做到：唯真不破](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [普京知道乌克兰不会攻击俄罗斯](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [爆料革命有多少人相信](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [1.27大直播后记: 谁灭共谁是朋友](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [北京冬奥会是一个麻烦多多的雷区](/content/gnews/14/README.md)
+### [北京冬奥会是一个麻烦多多的雷区](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国防部暂停对文职雇员强制接种中共病毒疫苗](/content/gnews/15/README.md)
+### [国防部暂停对文职雇员强制接种中共病毒疫苗](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚的卡车司机也在行动——卡车司机革命](/content/gnews/16/README.md)
+### [澳大利亚的卡车司机也在行动——卡车司机革命](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [樱花头条│日美政府首次商谈中共人权问题 或为联合制裁中共做准备](/content/gnews/17/README.md)
+### [樱花头条│日美政府首次商谈中共人权问题 或为联合制裁中共做准备](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [比08年金融危机更严重的股市崩盘已经在路上](/content/gnews/18/README.md)
+### [比08年金融危机更严重的股市崩盘已经在路上](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花头条│日本将对标“马格尼斯基法案”制裁中共 电台公开报道中共人权问题预热](/content/gnews/19/README.md)
+### [樱花头条│日本将对标“马格尼斯基法案”制裁中共 电台公开报道中共人权问题预热](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一项研究发现抗体水平较低的新冠患者容易患上新冠长期后遗症](/content/gnews/20/README.md)
+### [一项研究发现抗体水平较低的新冠患者容易患上新冠长期后遗症](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Facebook加密货币项目宣告失败，正在转让](/content/gnews/21/README.md)
+### [Facebook加密货币项目宣告失败，正在转让](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆|美国考虑延长来自中共国太阳能进口关税](/content/gnews/22/README.md)
+### [中日财经爆|美国考虑延长来自中共国太阳能进口关税](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞德西韦有毒但是联邦政府鼓励医院使用该药](/content/gnews/23/README.md)
+### [瑞德西韦有毒但是联邦政府鼓励医院使用该药](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [接种三剂中共病毒疫苗的制药公司高管因强制接种令辞职](/content/gnews/24/README.md)
+### [接种三剂中共病毒疫苗的制药公司高管因强制接种令辞职](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [过去政策始终将制药行业的利益置于美国公民福祉之上](/content/gnews/25/README.md)
+### [过去政策始终将制药行业的利益置于美国公民福祉之上](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗的8个矛盾](/content/gnews/26/README.md)
+### [疫苗的8个矛盾](/content/gnews/27/README.md)
  ` STHK`
 
-### [一些欧洲国家计划放宽限制政策 另一些则寻求收紧](/content/gnews/27/README.md)
+### [一些欧洲国家计划放宽限制政策 另一些则寻求收紧](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [针下亡魂｜台湾 56 岁警局主秘接种疫苗一周后死亡](/content/gnews/28/README.md)
+### [针下亡魂｜台湾 56 岁警局主秘接种疫苗一周后死亡](/content/gnews/29/README.md)
  ` 關注組`
 
-### [台湾不派官员出席冬奥会，未确定是否抵制开闭幕式](/content/gnews/29/README.md)
+### [台湾不派官员出席冬奥会，未确定是否抵制开闭幕式](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
-
-### [如何保护配额价格的喜币（四）](/content/gnews/30/README.md)
- ` 雅典娜GNotes`
 
 ### [所有的强制政策只是把发病率和死亡率转移到弱势群体](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

@@ -2,8 +2,8 @@
 ---
 
 
-## 我们会结束所有中国人的恐惧，七哥将会出访欧洲
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922761/)
+## 为什么叫甜蜜蜜行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922831/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 茉莉花运动将是老杂毛的噩梦
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922723/)
+## 六周后更多人会相信行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922788/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

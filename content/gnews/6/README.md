@@ -2,8 +2,8 @@
 ---
 
 
-## 甜蜜蜜运动会像茉莉花运动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922711/)
+## 我们会结束所有中国人的恐惧，七哥将会出访欧洲
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922761/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
