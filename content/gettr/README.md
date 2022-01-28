@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 1/28/2022 8:39 PM (UTC)`
+
+EP7: The Master of Mind Control. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第七集：脑控专家。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles  #mindcontrol #nfsc新中国联邦 #takedowntheccp #indoctrination #conqueranddivide #covid19censorship  #hbovice #hbovice訪談真相 #june4th1989 #june4th2020
+![img](https://media.gettr.com/group41/origin/2022/01/28/20/064ea884-efef-8155-e788-b24c90da1fb8/out.jpg)
+
+---
+
 `@miles 1/28/2022 2:21 PM (UTC)`
 
 <br/>1月28号：尊敬的战友们好？你们健身了吗？传播C C P病毒，疫苗解药的真相了吗？共产党在美国授权撤离的外交后……还在尝试磕头，下跪．求美国！帮他们欺骗十几亿中国人……悲剧呀……中国人可怜至极！
@@ -145,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 `@miles 1/27/2022 1:51 AM (UTC)`
 
 1月26号，Hcoin To the Moon MV上线第48天位列澳门🇲🇴iTunesMV榜首🥇，累计共35次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共31次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1913284/<br/><br/>Jan 26, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 48 Day of Launch, hit No .1 for 35 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 31 times in total🎉🎉🎉<br/><br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 1/27/2022 1:34 AM (UTC)`
-
-1月26日：尊敬的战友们好，明天继续大直播，下面这个照片是我在清风看守所出来后．与处男英雄的母亲见面后．的当天拍摄的照片．几十年来从来没看见过，这是昨天．由我们英雄👍👍👍👍👍👍🌹🌹😝的哥哥发给我的！非常震惊，非常感动。［1月17日：<br/><br/>主持：小王子&佳佳同学<br/>出镜嘉宾： RossiChen<br/>                    摔跤的雅阁<br/>                    台湾大牛&台湾巴黎<br/><br/> 推流：墨镜<br/><br/>被邀出席：灭共者．MILES．郭文贵<br/><br/>1月30日<br/>主讲：摇滚巨星郭先生<br/>主持：Eric<br/>出镜嘉宾：德华<br/>                   正义小Sarah<br/>                   千叶草<br/><br/> 推流：墨镜］
-![img](https://media.gettr.com/group35/getter/2022/01/27/01/91ada826-9ac5-b4c5-baf7-2c13c9729732/5aff901ac3cca42d2a9a22cf186471a8.jpg)
 
 ---
 

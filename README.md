@@ -15,80 +15,80 @@
 
 ---
 
-### [全球疫情更新（荒唐离谱的统计错误）](/content/gnews/1/README.md)
+### [瑞典拒绝为儿童接种“新冠病毒”疫苗](/content/gnews/1/README.md)
+ ` 扬帆枫叶快讯`
+
+### [美国红十字会首次宣布“国家血液危机”](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
+
+### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/3/README.md)
+ ` 扬帆枫叶快讯`
+
+### [全球疫情更新（荒唐离谱的统计错误）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [扬帆每日速递 2022年1月28日版（1）](/content/gnews/2/README.md)
+### [扬帆每日速递 2022年1月28日版（1）](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [身在墙内（二）](/content/gnews/3/README.md)
+### [对香港大律师公会的操控和声明彰显中共的邪恶无耻](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [身在墙内（二）](/content/gnews/7/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [CRA 将发出新一轮的信函，检查 CERB 受助人的资格](/content/gnews/4/README.md)
+### [CRA 将发出新一轮的信函，检查 CERB 受助人的资格](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [欧洲有更多人抗议疫苗强制令](/content/gnews/5/README.md)
+### [欧洲有更多人抗议疫苗强制令](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞CEO承认疫苗效果不尽如人意](/content/gnews/6/README.md)
+### [辉瑞CEO承认疫苗效果不尽如人意](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [安省卫生官:该学着与新冠共存了](/content/gnews/7/README.md)
+### [安省卫生官:该学着与新冠共存了](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [未接种新冠疫苗的人可能通过性交被接种新冠疫苗的人感染](/content/gnews/8/README.md)
+### [未接种新冠疫苗的人可能通过性交被接种新冠疫苗的人感染](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/9/README.md)
+### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [对汽车盗窃团伙的调查提出300 多项指控，追回了价值 1110 万元的汽车](/content/gnews/10/README.md)
+### [对汽车盗窃团伙的调查提出300 多项指控，追回了价值 1110 万元的汽车](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/11/README.md)
+### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵先生盖特精要2022/01/28](/content/gnews/12/README.md)
+### [文贵先生盖特精要2022/01/28](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加政府未阻止中企9亿加元收购其锂矿企业](/content/gnews/13/README.md)
+### [加政府未阻止中企9亿加元收购其锂矿企业](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大华人出租房：疑华人租客开枪打死3人自](/content/gnews/14/README.md)
+### [加拿大华人出租房：疑华人租客开枪打死3人自](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [七哥说“我们尝试着让中国五年内让大家增加辨别真假的能力，识别善恶的能力，就是让你不要被无知害掉”（2022-01-25摘录）](/content/gnews/15/README.md)
+### [七哥说“我们尝试着让中国五年内让大家增加辨别真假的能力，识别善恶的能力，就是让你不要被无知害掉”（2022-01-25摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [七哥唱甜蜜蜜（2022-01-25摘录）](/content/gnews/16/README.md)
+### [七哥唱甜蜜蜜（2022-01-25摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [2022/01/27文贵先生直播精要](/content/gnews/17/README.md)
+### [2022/01/27文贵先生直播精要](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国联通被FCC勒令60天内停止公司在美业务](/content/gnews/18/README.md)
+### [中国联通被FCC勒令60天内停止公司在美业务](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [七哥谈美国大使（2022-01-25摘录）](/content/gnews/19/README.md)
+### [七哥谈美国大使（2022-01-25摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [七哥谈躺平币（2022-01-21摘录）](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [董宏一审被判死缓](/content/gnews/21/README.md)
- ` 波士顿五月花农场`
-
-### [2022年1月27日 文贵大直播 全文字版](/content/gnews/22/README.md)
+### [2022年1月27日 文贵大直播 全文字版](/content/gnews/24/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [澳大利亚批准16岁以上未成年人群接种辉瑞加强针](/content/gnews/23/README.md)
+### [澳大利亚批准16岁以上未成年人群接种辉瑞加强针](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
-
-### [美国及世界疫情简报 （01-28-2022）](/content/gnews/24/README.md)
- ` 波士顿五月花农场`
-
-### [前休斯顿卫理公会护士亲身讲述了她因新冠疫苗被解雇前的经历](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
