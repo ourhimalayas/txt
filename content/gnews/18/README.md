@@ -2,10 +2,10 @@
 ---
 
 
-## 中共冬奥开幕前的中共病毒确诊数据完全是假的
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1925078/)
+## 未接种新冠疫苗的人可能通过性交被接种新冠疫苗的人感染
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1925127/)
 
-01/25/2022 战斗室：中共冬奥开幕前的中共病毒确诊数据完全是假的。无症状确诊者是不计入统计数据的。
+01/26/2022 刘易斯医生：未接种中共病毒疫苗的人可能通过性交被接种中共病毒疫苗的人感染。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

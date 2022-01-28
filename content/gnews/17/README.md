@@ -2,47 +2,57 @@
 ---
 
 
-## 对汽车盗窃团伙的调查提出300 多项指控，追回了价值 1110 万元的汽车
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925114/)
+## 安省卫生官:该学着与新冠共存了
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925132/)
 
-作者：Katherine Declerq
+作者：Sean Davidson
 翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-462.jpg)
-大多伦多地区车辆盗窃活动猖獗，警方近日在大多伦多地区破获一个汽车盗窃团伙，20多人面临超过300项指控，嫌犯中还有两人不满18岁，警方一次性追回217辆被盗汽车，涉案金额达1100万元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-268.png)
+安省首席公共卫生官27日在宣布解封第一步计划细节的记者会上表示，“现在是时候学会与新冠病毒共存了”。他还预期，在即将到来的春天，安省的状况会变好许多。
 
-据皮尔区警方称，这项名为“Project High 5”的调查在六个月内横跨多个司法管辖区，调查开始于警方注意到皮尔区和大多伦多地区的居民机动车辆被盗有所增加。
+“在过去的两年时间里，我们已经尽量控制我们的生活，并一直处于很大程度的担忧之中。现在我们需要做的就是改变一些想法，” Dr. Kieran Moore在记者会上说道。
 
-警方称，犯罪嫌疑人强行打开司机一侧的车门，获得车辆车载诊断端口的访问权限，然后使用设备复制新的密钥卡。
+他还表示，“目前的确诊病例追踪管理等已不再有帮助，因为Omicron在社区内已经广泛传播。”
 
-警方在周四发布的新闻稿中说：这些盗窃活动被受害者和附近的住宅监控录像抓拍到。
+”你需要根据自己的症状来为自己负责，知道什么时候该向医疗系统寻求治疗，并进行快速检测。”
 
-调查人员说，住在居民区的车主在睡觉时成为盗窃目标。警方补充说，这些车辆随后被装入集装箱，出口到美国以及多个西非和中东国家。调查人员还发现窃贼以欺诈方式在安大略省虚假注册并出售给那些毫无戒心的汽车经销商、在线经销商平台和无辜的买家。
+Moore在会上还表示，由于很大一部分人接种了新冠疫苗，尤其是打了第三针疫苗之后，加上新口服药的到来，安省需要调整战略，来更加“平衡地应对”疫情。
 
-1月19日，警察在皮尔区、荷顿区和约克区的九个居民区执行搜查令。搜查结果警方追回了217辆汽车，价值约1110万元。同时还缴获了手枪、超过100,000元的现金、数量不详的毒品、汽车伪造文件和工具以及虚假政府文件。
+“我认为我们需要开始理解并学着与新冠病毒共存了，” Moore说道。
 
-24人被拘留，其中2人未满18岁。大多数嫌疑人是大多伦多地区的居民，还有5人来自蒙特利尔，另外2人来自Uxbridge和Whitby。
+他还表示，一月份对于安省的医疗系统来说是艰难的一个月，但二月的时候，这种状况应该会到达顶峰。
 
-嫌疑人总共面临321项指控。
+“这种好的趋势会在三月继续，到四月份，我们将朝低社区传播率发展。“
 
-警方表示，目前调查还在进行中，预计会有更多人被捕。
+“当我们达到地方流行病的低传播率时，我们将重新审视所有公共卫生措施，” Moore说道。“没有人想在不必要的情况下继续实行这些政策。”
 
-来源：https://toronto.ctvnews.ca/more-than-300-charges-laid-in-investigation-into-auto-theft-ring-11-1m-worth-of-cars-recovered-1.5758346
+不过他也指出，有可能又会出现一种更具传染性或对疫苗更有抗药性的新变异毒株，到时候这些预期可能会有所变化。
+
+“对于所有安省居民来说，我非常希望并且期待三月和四月的风险会低很多，” Moore说道。“我现在看到这些风险正在下降，越来越低，一天又一天、一个月又一个月，持续下降。不过与此同时，在这种病毒面前，我们仍要保持谦虚。”
+
+安省将从下周一（31日）起进入第一阶段的解封计划，允许餐馆堂食、健身房、电影院等室内场所在要求疫苗证书且限制50%容量的情况下重开。
+
+整个解封计划分为三步，每个阶段将持续至少21天，直到3月。
+
+来源: https://toronto.ctvnews.ca/ontario-s-top-doctor-says-it-s-time-to-learn-to-live-with-covid-19-1.5757373
 
 （文章仅代表作者个人观点）
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
 欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
 **关注我们**
 
 Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
 Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
