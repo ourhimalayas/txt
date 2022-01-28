@@ -2,22 +2,31 @@
 ---
 
 
-## 董宏一审被判死缓
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1924958/)
+## 七哥谈躺平币（2022-01-21摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1924981/)
 
-素材：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1128311433_16433729828021n.jpg)图片来自墙内媒体
-2022年1月28日，山东省青岛市中级人民法院公开宣判中央巡视组原副组长董宏受贿一案，对被告人董宏以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产。董宏当庭表示服从法院判决，不上诉。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1999年至2020年，被告人董宏利用担任广东国际信托投资公司破产清算组成员、中共海南省委副秘书长、北京市人民政府副秘书长、中央文献研究室副主任、中央巡视组副组长等职务上的便利,以及职权、地位形成的便利条件，通过其他国家工作人员职务上的行为，为有关单位和个人在项目开发、工程承揽、职务提拔等方面谋取利益，直接或者通过他人非法收受财物共计折合人民币4.63亿余元。
+来源：郭先生2022-01-21直播11：48：26摘录
 
-青岛市中级人民法院认为，被告人董宏的行为构成受贿罪，且受贿数额特别巨大，犯罪情节特别严重，社会影响特别恶劣，给国家和人民利益造成特别重大损失，论罪应当判处死刑。鉴于董宏自动投案，如实供述全部罪行，具有自首情节，且其能够认罪悔罪、积极退赃，赃款赃物全部追缴到案，具有多个法定、酌定从宽处罚情节，对其判处死刑，可不立即执行。法庭遂作出上述判决。
+未来躺平币，躺平币使用即金钱，使用就是金钱，你就会从零，没有变成有，有变成多，从多变成永恒，然后不但变成永恒，从多还要变成让你多到横向的纵向的还丰富，这就是大家要做的选择。所以说问题很简单，你不能说既不付出时间也不付出，也不承担责任，也没有风险，然后你就什么都有，那是不可能的。
 
-原文链接：[中央巡视组原副组长董宏一审被判死缓](http://www.news.cn/legal/2022-01/28/c_1128311433.htm)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-* * *
+**关注我们**
 
-*编辑 /发布：吐纳*
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

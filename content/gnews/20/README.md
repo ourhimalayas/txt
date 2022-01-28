@@ -2,19 +2,24 @@
 ---
 
 
-## 有声|灭共者——七哥小课堂
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924760/)
+## 有声|甜蜜灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924761/)
 
 配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1-246.png)“三招”帮你建立自信心，第一：一定不要脸太在乎别人的想法，学会不要面子；第二：要学习、要强大；第三：，不要记住任何人对你的攻击，包括你的爹妈。
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-1.png)Three rules to help you build self-confidence, first: don’t care too much about what others think; learn not to care about losing face; second: keep learning, be strong; third: don’t hold a grudge against those who have criticized or attacked you including your parents.
-– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022![我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。 
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播](https://assets.gnews.org/wp-content/uploads/2022/01/3-2-4.png)我们的生命无限精彩，一定要记住：爱、诚实和灭共是我们在一起的根本基础，只有这三样能让我们走的更远，否则一切都会失去。
--内容来自2022年1月5日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/01/4-2-1.png)Our life is infinitely beautiful. Do remember: love, honesty and Take-Down-the-CCP is the foundation that holds us together, only these three can keep us going far, otherwise all will be lost.
-– Mr. Miles Guo, GTV/GETTR livecast on Jan. 5, 2022
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+春节将至先迎喜
+甜蜜主旋律
+推波助澜七芒星
+灭共自有雷霆势
+乘风破浪著新史
+亿万勇士心
+热血沸腾泪盈眶
+无惧来路多泥泞
+雄鹰展翅冲云霄
+豪气万千澎湃力
+勇屹喜马拉雅峰
 
-
-文字版原文：[灭共者——七哥小课堂](https://gnews.org/zh-hans/1910728/)
+文字版原文：[甜蜜灭共](https://gnews.org/zh-hans/1911981/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
