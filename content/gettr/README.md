@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 4:40 AM (UTC)`
+
+1/27/2022 Miles Guo: The authorized departure of the US embassy in Beijing will neither sever nor maintain the US diplomatic ties with the CCP. Instead, the US is going to destroy the CCP via “No Severance, No Contact”. The US may go back and forth in terms of the authorized departure of the US embassy, but the more that happens, the more times we are going to win. I have helped push Egypt to extort the CCP.<br/><br/>1/27/2022 文贵直播：美国大使馆的授权撤离既非绝交，又非断交，这是“不断不交”来弄死中共；美国可能会在撤离使馆上来回反复，但反复越多，我们就赢得越多；文贵帮助推动埃及敲诈了中共<br/>
+![img](https://media.gettr.com/group6/getter/2022/01/28/04/1e362266-7e06-45a7-d107-2a828eb7a4b6/out.jpg)
+
+---
+
 `@miles 1/28/2022 1:28 AM (UTC)`
 
 1月27号，Hcoin To the Moon MV上线第49天位列澳门🇲🇴iTunesMV榜首🥇，累计共36次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共32次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1918971/<br/><br/>Jan 27，2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 49 Day of Launch, hit No .1 for 36 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 32 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
@@ -145,13 +152,6 @@ The following questions are worth pondering after watching this interview with D
 
 1月26:第二次发Gettr、对上个视频的补充
 ![img](https://media.gettr.com/group18/getter/2022/01/26/15/9b152eb0-8590-5471-f6b1-11d8c7dc2cd5/out.jpg)
-
----
-
-`@miles 1/26/2022 2:03 PM (UTC)`
-
-1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友的付出……和文贵一起奋斗消灭这个邪恶的中国共产党……一切都已经开始。
-![img](https://media.gettr.com/group5/getter/2022/01/26/14/aebf84b8-d2d8-2c21-64a4-e401422ebcec/out.jpg)
 
 ---
 
