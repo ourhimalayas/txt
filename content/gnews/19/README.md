@@ -2,13 +2,13 @@
 ---
 
 
-## 日本新增中共病毒确诊超7万人 连续2天创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1920571/)
+## 1/12文贵直播：海外华人媒体误国误民罪同共产党（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1920658/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1._28-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+1/12/2022 文贵直播：海外华人媒体误国误民，跟共产党犯下同等罪行；20大前血雨腥风还未开始，栗战书不是重点；习近平和盘古之间有什么样的微妙联系？这其中暗含着何种天机？
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

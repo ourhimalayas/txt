@@ -2,31 +2,45 @@
 ---
 
 
-## 美国纽约州最高法院法官裁决，驳回纽约州强制口罩令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1919677/)
+## 前纽芬兰和拉布拉多省省长布赖恩·佩克福德（Brian Peckford）发起对联邦航空旅行限制的诉讼
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1919835/)
 
-撰稿：台湾宝岛农场—新中国联邦静
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月24日，一位纽约州最高法院法官驳回了纽约州强制口罩令，裁定纽约州长和卫生部，无权在未经州议会批准的情况下颁布此类授权。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-78.jpg)
-在周一发布的一份意见中，拿索县最高法院法官托马斯-拉德梅克认为，由于纽约在宣布强制口罩令时，已不再处于紧急状态，州长和相关权责人士无权颁布强制口罩令，并补充说到强制口罩令现在无法执行 。 拿索县行政长官布鲁斯. 布莱克曼，在推特上对纽约州最高法院法官的司法裁决回应，他写道「这对学生和家长来说是一个重大胜利」。 纽约州长的强制口罩令是违法的，未经州立法机关批准，州长和州教育部无权执行此任务。
+**编译: 真北007**
 
-参考链接：[美国纽约州最高法院法官裁决，驳回纽约州强制口罩令](https://edition.cnn.com/2022/01/24/us/new-york-state-mask-mandate-ruling/index.html?utm_content=2022-01-25T09%3A51%3A53&amp;utm_term=link&amp;utm_medium=social&amp;utm_source=twCNN)
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6F68ECBF-D78F-4151-A611-55AEA6C99306.jpeg)图片来源：网络
+来自VOCM一月二十七日的新闻报道：
 
-总编：天灭中共、zhong
-编辑：Kathy文艺
-校对/发稿：Hetangyuese
+前纽芬兰和拉布拉多省省长布赖恩·佩克福德正在对联邦政府的 COVID-19 航空旅行限制提起诉讼。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+在提交给联邦法院的文件中显示，佩克福德是代表“宪法自由司法中心”的主起诉人，该组织正在挑战渥太华禁止未接种疫苗的人旅行的禁令的有效性。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+该诉讼称，约有 600 万加拿大人，即总人口的 15%，被禁止旅行，以及帮助生病的亲人、探望家人和朋友、工作、国际旅行度假，以及过普通的生活。
+
+佩克福德是 1982 年加拿大《宪法》和《权利与自由宪章》唯一幸存的签署者，他认为这是“简单的歧视”，法院必须介入。
+
+他声称，很明显接种疫苗并不能阻止人们感染新冠病毒，也不能阻止他们传播病毒，并补充说渥太华没有表明该政策使飞行更安全。
+
+佩克福德说，特鲁多总理只是在全社会“播种分裂”， 称未接种疫苗的人为“种族主义者”、“女性歧视”、“反科学”和“极端主义者”。
+
+他说法院将被要求尽快审理此案，并补充说加拿大是发达国家中唯一一个禁止未接种疫苗的人乘飞机旅行的国家。
+
+**点评：什么是正义、正义感、和有正义感的人?**
+
+**原文链接：**
+
+[Former Premier Brian Peckford Leading Lawsuit Against Feds Over Air Travel Restrictions](https://vocm.com/2022/01/27/former-premier-brian-peckford-leading-lawsuit-against-feds-over-air-travel-restrictions/)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220127
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
 
  
 

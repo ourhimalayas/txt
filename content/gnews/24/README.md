@@ -2,32 +2,25 @@
 ---
 
 
-## 未来的喜联储，绝对天下无敌（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920524/)
+## 中共用数字人民币操纵经济控制人民
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920631/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（下）.jpg)
-这里面你怎么解决电的问题?
+加拿大温哥华扬帆农场 文所未闻
 
-这种技术的核心最重要就是IBM的2nm那个芯片，这个芯片的安全性是军事级别，IBM的2nm芯片没有任何人可以破解。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-51-edited.jpg)图片来源：DJY
 
-这个芯片未来是跟我们的格芯一起生产，大家更懂了是吧。 从芯片的生产到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人管得了。
 
-这就是太空币，数字货币最大的问题支付、兑现、安全和保密，我们这叫中心化的币和去中心化的交易系统和去中心化的技术，天下无敌，这就是技术的核心的核心。
+据美国媒体1月26日报道，中共正利用数字人民币，不仅试图在世界范围内占据“操纵全球金融系统”的先机，同时也在国内全面控制其民众。
 
-发布：于white
+报道称，中共国数字人民币是完全中心化的法币，与基于分布式账本系统的去中心化加密数字货币有本质的不同。由于数字人民币将完全由中国人民银行来发行和控制，因此，中共当局对其所有账户的活动都了如指掌。并以此实现该政权对国家经济和人民的完全控制。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+事实表明，数字货币在全球方兴未艾，各国及其金融机构都在研究相关的法规和标准。而[新中国联邦]的[喜联储]及[喜币]则无疑是全球数字金融领域的引领者。其先进的创新设计和安全的使用系统，必定会使[喜联储]拥有制定数字货币使用标准和规则的绝对话语权。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+* * *
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+采编：文莱，  翻译编辑：文所未闻 ， 校对编辑，发稿：硫酸羟氯喹64
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接： [https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china\_4235273.html](https://www.theepochtimes.com/digital-yuan-means-even-more-control-over-people-of-china_4235273.html)
 
  
 
