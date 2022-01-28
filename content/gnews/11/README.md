@@ -2,8 +2,8 @@
 ---
 
 
-## 美国人应该感谢我们唤醒他们
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922035/)
+## 没有共产党世界一切重新分配
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922131/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

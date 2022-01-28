@@ -2,44 +2,19 @@
 ---
 
 
-## 拜登政府拟将加密货币规则作为国家安全问题来处理
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921905/)
+## 港闻速递｜曾庆红侄女旗下公司 昨深夜宣布清盘
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1921897/)
 
-**整理/编辑：MSGZ**
+**撰文/ 港台前线关注组｜发布日期/ 28/01/2022 **
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/曾慶紅姪女旗下公司-昨深夜宣布清盤.jpg)
+成立于 1972 年，至今有 50 年历史的香港老牌旅行社“星晨旅游”昨日（27日）深夜在官网发出通告，经公司董事会决议，将根据香港公司（清盘及杂项条文）条例，启动自动清盘程序，并宣布下月 16 日下午 3:30 于湾仔温莎公爵社会服务大楼，召开首次债权人会议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/拜登-1.png)
+2015年末，星晨旅游被前中共政治局常委、国家副主席曾庆红的侄女曾宝宝成立的地产公司，花样年控股集团，以 2.2 亿港元收购其全部股权。
 
-图片来源：WFLA
+自去年 10 月花样年自爆无力偿付 2.06 亿美元的到期债务之后，财务状况急转直下，去年年销售额大跌 70%。
 
-
-白宫希望给目前监管机构对比特币和加密货币采用的 “杂乱无章的方法 “带来秩序。
-
-据多方报道，白宫希望制定一套有凝聚力的政策来监管比特币和加密货币，因为目前立法和执法都分散在各个部门和机构。
-
-据彭博社首先报道，拜登政府将在未来几周发布一项行政命令，责成联邦机构评估比特币和加密货币带来的风险和机遇。
-
-《巴伦周刊》周四报道，该命令将在国家安全工作的框架下进行，因为政府试图分析加密货币并采用一个有凝聚力的监管框架，该框架将涵盖比特币、加密货币、稳定币和NFTs。
-
-一位熟悉白宫计划的人士告诉《巴伦周刊》：”这旨在全面审视数字资产，并制定一套政策，使政府在这一领域的工作具有一致性。”因为数字资产不会停留在一个国家，所以有必要与其他国家进行同步合作。”
-
-据报道，监管工作将涉及国务院、财政部、国家经济委员会和经济顾问委员会，以及白宫国家安全委员会，因为根据《巴伦周刊》的报道，政府衡量加密货币 “对国家安全有经济影响”。
-
-白宫的计划是，给政府现在用来监管加密货币的杂乱无章的方法带来秩序。目前，加密货币市场的不同方面由不同的机构处理，包括证券交易委员会和商品期货交易委员会，但在涉及市场上许多不同资产的分类时，几乎没有协调和共识。
-
-政府的高级官员已经就该计划举行了多次会议，预计该指令将在未来几周提交给总统乔·拜登。
-
-新闻来源：
-
-[https://bitcoinmagazine.com/markets/biden-administration-to-regulate-bitcoin-as-a-matter-of-national-security-report](https://bitcoinmagazine.com/markets/biden-administration-to-regulate-bitcoin-as-a-matter-of-national-security-report)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜[RTHK](https://news.rthk.hk/rthk/ch/component/k2/1630980-20220127.htm?spTabChangeable=0)
 
  
 

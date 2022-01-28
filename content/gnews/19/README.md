@@ -2,38 +2,35 @@
 ---
 
 
-## 中共网军大肆进犯？台湾遭网攻年增38%
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1921856/)
+## 美众议院为抗衡中国推出《2022年美国竞争法》
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921845/)
 
-![黑客攻击电脑网络系统示意图（路透社）](https://gdb.voanews.com/01D62BBE-94FE-4723-9173-4B1010BAB5FC_w1023_r1_s.jpg)黑客攻击电脑网络系统示意图（路透社）
-据美国之音1月27日报道，根据以色列软件技术公司Check Point的最新报告，全球的网络攻击量于2021年底创下历史新高，各机构平均每周遭受925次网攻，比2020年增长50%，而且每61家机构中就有一家受到勒索软件的侵害。其中亚太地区受到网攻的次数仅次于非洲。
+**整理：Sara9**
+**编辑：Little Lamp**
 
-报告称，台湾平均每周遭到2,644次网攻，高于亚太区平均值，且年增38%。台湾网络专家指出，中共对台的网攻正持续进化，除了黑客入侵企图瘫痪政府系统外，还利用假消息操弄政治风向。中共所发动的信息战深入台湾各阶层，挑起民众对立情绪，严重危害国安。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2297.png)
 
-由于台湾具有地缘政治的重要性，近年台湾境内所发生的网攻事件追本溯源大多源自中共国。这些网攻有特定的目的，而且攻击模式不断进化，主力也已不再是窃取政府的机密资料，而是转为潜伏与观察，甚至会偷偷在重大的关键资讯基础设施上埋藏一些恶意的程序，等到关键时刻，或者是中共想要威吓、警告台湾的政府时拿出来使用。
-
-对台进行网攻，信息战是其中重要的一环。台湾近期知名网络论坛“卡提诺”出现来自中共国的近20个假账号，这些人头账号将不实的图文讯息大量迅速地投放到各个社群，意图操弄疫情危机和政治舆论。这是不同于实枪实弹的新型态战争模式，主要是透过认知来误导民众所吸收到的信息，造成对政府的不信赖。
-
-就网络攻击而言，中共的做法通常最具杀伤力的不是假讯息，而是真假参半的讯息。只要台湾出现争议性的话题，中共的五毛网军或共青团所支持的小粉红（立场偏向中国民族主义的年轻网友），就会立刻发动攻击。
-
-台湾人普遍不接受一国两制，中共网攻只是扰乱人心，影响台湾的舆论，制造对立，并无根本上的影响。中共最擅长这种小打小闹、偷鸡摸狗的勾当，搞搞破坏、带带风向，呼叫粉红影响舆论，时不时骂骂某人，在网络上搞声势，不咬人膈应人。
-
-新闻参考链接：[https://www.voachinese.com/a/China-s-cyber-attacks-toward-Taiwan-rose-38-year-on-year-20220127/6413251.html](https://www.voachinese.com/a/China-s-cyber-attacks-toward-Taiwan-rose-38-year-on-year-20220127/6413251.html)
-
-编辑：胖丁
-
-PR：MQ
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+图片来源：雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+美国众议院星期二(1月25日)晚间推出了一项旨在加强美国的竞争力，与中国进行抗衡的法案的文本。众议院议长南希·佩洛西(Nancy Pelosi)把这个简称为《2022年美国竞争法》的法案称作是一项“大胆的”立法。拜登总统随后发表声明，称该法案将使美国在今后几十年的时间里在与中国和其他国家的竞争中立于不败之地。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在美国参议院去年6月通过了耗资2千5百亿美元全面抗衡中国的跨党派《美国创新与竞争法》(US Innovation and Competition Act)后，众议院星期二推出了自己的版本。法案全称为《2022年美国创造制造业机会和技术卓越与经济实力法》，简称为《2022年美国竞争法》，法案文本长达近3千页，综合了多项以前的议案。
+
+包括简称为《鹰法》(EAGLE Act)的《确保美国全球领导力与接触法》(Ensuring American Global Leadership and Engagement Act)以及众议院外委会资深共和党成员迈克尔·麦考尔(Michael McCaul)推出的《美国芯片法》(CHIPS for America Act)。
+
+根据该法案，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资于半导体的生产等；授权450亿美元改善美国的供应链，加强制造业，防止关键物品的短缺并确保更多此类产品在美国制造；推动美国的科学研究和技术创新以及通过经济发展、外交、人权和同盟关系确保美国在全球的竞争力和领导地位。
+
+文章来源：[抗衡中国：美众议院推出《2022年美国竞争法》](https://www.voachinese.com/a/US-house-competes-act-china-20220125/6412880.html)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

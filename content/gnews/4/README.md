@@ -2,8 +2,8 @@
 ---
 
 
-## 将有大量资金和人员外逃
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922122/)
+## 土生万物与盘古奠基取五湖四海之土
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922233/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦能代表中国人能推翻共产党这是天意
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922109/)
+## 相信轮回报应爱自己爱战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922220/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
