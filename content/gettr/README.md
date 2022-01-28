@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 12:33 AM (UTC)`
+
+1/27/2022 Miles Guo: All the disasters suffered by the Chinese people are due to the fact that many of them only believe in the fake but not the real. That’s why we must have democracy, rule of law, and faith after the CCP is destroyed. The authorized departure granted to the US embassy in Beijing is by no means a hastily made decision by Biden. How does it relate to Pompeo’s trip to Taiwan and the visit of the US military aircraft and warships to Taiwan?<br/><br/>1/27/2022 文贵直播：中国人所有的灾难都缘于只信假的而不信真的，因此灭共后要有民主、法治和信仰；美国大使馆的授权撤离绝非拜登拍脑袋的决定，这和蓬佩奥、美军军机和军舰访台有何关联？<br/>
+![img](https://media.gettr.com/group49/getter/2022/01/28/00/3ffa1c5f-1667-ae65-27a9-54477d7e0f82/out.jpg)
+
+---
+
 `@miles 1/28/2022 12:14 AM (UTC)`
 
 1月27号：谢谢来福福战友，发来保存的……SNOW 视频🙏🙏🙏🙏🙏🙏美好的回忆！
@@ -144,13 +151,6 @@ January 26, 2022 CCP “Wolf warrior” Zhang Lijian threatens U.S. evacuation o
 `@miles 1/26/2022 2:37 AM (UTC)`
 
 1月25号，Hcoin To the Moon MV上线第47天位列澳门🇲🇴iTunesMV榜首🥇，累计共34次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共30次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利,  柬埔寨和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1909557/<br/><br/>Jan 25th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 47 Day of Launch, hit No .1 for 34 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 30 times in total🎉🎉🎉<br/><br/>Hit No.1🥇on Cambodia 🇰🇭 iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, Cambodia and Laos 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 1/26/2022 2:15 AM (UTC)`
-
-Thousands gathered in front of the Lincoln Memorial in Washington DC for the 'Defeat The Mandates' Rally against COVID-19 vaccines. Many vaccine victims, doctors, scientists and other speakers have voiced their strong opposition to "mandatory vaccine policy".<br/><br/>数千人聚集在华盛顿特区的林肯纪念堂前，参加针对 COVID-19 疫苗的“击败强制授权”集会。许多疫苗受害者、医生、科学家等演讲者发出了强烈反对“强制疫苗政策”的声音！
-![img](https://media.gettr.com/group36/origin/2022/01/26/02/144dbe65-cb8e-e554-b0b2-a56cb7741830/out.jpg)
 
 ---
 
