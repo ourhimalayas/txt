@@ -2,11 +2,27 @@
 ---
 
 
-## 1/25/2022 文贵重大公告：拜登总统和布林肯国务卿授权撤离驻华大使馆是美国迄今对中国人所做出的最好的决定，其意义极为重大，它所导致的多米诺效应将让甜蜜蜜运动发生在北京二环的所有使馆区
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1924473/)
+## 有声|GTV新闻访谈简报|2022年1月25日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924588/)
 
-秘密翻译组-北美组
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google-2.png)
 
+
+文字版原文：[GTV新闻访谈简报|2022年1月25日早](https://gnews.org/zh-hans/1909048/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

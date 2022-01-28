@@ -2,21 +2,24 @@
 ---
 
 
-## 针下亡魂｜台湾 56 岁警局主秘接种疫苗一周后死亡
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1922436/)
+## 樱花头条│日美政府首次商谈中共人权问题 或为联合制裁中共做准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1922585/)
 
-**撰文/ 疫情关注组｜发布日期/ 28/01/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-104.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+撰稿：东京樱花团/NewSGman
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2312.png)[图片来源](https://news.ifeng.com/c/8B0RkqjaqxT)
+1月26日，负责国际[人权事务](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83%E4%BA%8B%E5%8A%A1)的日本首相助理中谷元在网上会见了负责平民保护、[民主](https://gettr.com/hashtag/%23%E6%B0%91%E4%B8%BB)和[人权](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83)的美国副国务卿泽亚。双方同意促进各相关组织之间和层面的意见交流，以深化日美两国在[人权领域](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83%E9%A2%86%E5%9F%9F)的合作。
 
-台湾花莲县警察局主任秘书，今年 56 岁的方世君在接种完第三剂 COVID-19 疫苗后一周因突发败血症死亡。
+中谷先生对美国保护自由民主等，普世价值的决心和举措表示敬意。 泽亚也是西藏问题的特别协调员，据信双方已经讨论过中国的人权问题。
 
-方世君于本月 18 日接种 BNT 疫苗后感到身体不适，26 日上午因突然昏厥被紧急送院救治，经诊断怀疑是发烧引发败血症，当即转入加护病房插管急救。可惜，回天乏术，今日（28日）上午11时宣告不治。
+中谷元同时长期关注中国新疆和香港等地人权状况。现年64岁的中谷元，曾在2001年出任小泉纯一郎内阁的防卫厅长官；2014年，他获时任首相安倍晋三委任为防卫大臣。2021年4月，作为众议员议员的中谷元发起成立“全党议会人权外交联盟”，致力于推动日本版的《全球马格尼茨基人权问责法案》。
 
-据同事描述，方世君一向有晨运习惯，身体健康，未听闻有任何健康问题，对他的突然离世感到不解和遗憾。目前，花莲县卫生当局已介入调查，以厘清死因是否因疫苗引起。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/台灣-56-歲警局主秘接種疫苗一週後死亡.jpg)
-来源｜[联合新闻网](https://udn.com/news/story/122190/6067400)
+《马格尼茨基人权问责法》（英语：The Global Magnitsky Human Rights Accountability Act），对违反人权及国外显著腐败人士实施[制裁](https://zh.wikipedia.org/wiki/%E5%88%B6%E8%A3%81)，例如禁止入境、冻结并禁止官员在美国的财产交易。
 
+信息来源：[米人権担当とオンライン会談　中谷補佐官](https://www.jiji.com/jc/article?k=2022012600492&amp;g=pol)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

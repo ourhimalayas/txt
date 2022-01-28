@@ -2,23 +2,29 @@
 ---
 
 
-## Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1924571/)
+## 有声|喜币开创世界经济新局面 喜币拥有者将成最大赢家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924670/)
 
-#### 撰稿：蚂蚁爱钓鱼       
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在最新一期的大直播中指出，目前美股市场已普遍出现 20%～40% 的暴跌，这意味着以美元为核心的全球金融体系正走向崩溃。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16433861101.png)图片来源：NDTV
-《零和》报道，1 月 23 日，著名心脏病学家和流行病学家 Peter McCullough 博士在华盛顿特区举行的“击败授权”游行期间告诉 NTD 的“国会报告”计划，无需大规模接种疫苗即可中止CCP病毒。
+未来的3～5年内，比特币、喜币、以太坊，将占据数字货币市场总值的80%。届时，所有数字货币的价格都将超过10万美元。其中，唯一存活下来的，只有能够流通的喜币，这取决于喜币自始至终的合法性以及严格的KYC制度。喜币和喜联储最终会为世界经济带来崭新局面。
 
-McCullough 博士表示，早期治疗和自然免疫对 CCP病毒是安全有效的，但联邦卫生机构在推动疫苗时却忽略了这些。他还曾在一次采访中表示早期治疗可以预防 95% 的 CCP病毒感染死亡。
+文字版原文：[喜币开创世界经济新局面 喜币拥有者将成最大赢家](https://gnews.org/zh-hans/1914397/)
 
-McCullough博士还举例说明了伊维菌素是如何被联邦卫生机构驳回的，伊维菌素是一种获得诺贝尔奖、获得 FDA 批准的药物，许多研究和医生都表明该药物可有效治疗 CCP病毒患者。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-McCullough博士对CCP病毒疫苗可以减少住院和死亡的说法表示怀疑，他表示随着我们都变得自然免疫，CCP病毒不再对我们的生命构成威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
-**[新闻来源](https://www.zerohedge.com/covid-19/covid-19-can-be-stopped-without-massive-vaccination-dr-peter-mccullough)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
