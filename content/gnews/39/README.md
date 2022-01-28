@@ -2,43 +2,28 @@
 ---
 
 
-## 币安被爆洗钱风险高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921624/)
+## 中日财经爆| 中国联通继中国移动和中国电信之后也将被踢出美国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1921659/)
 
-作者：MOS – 柳是多水土透，纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-1月21日，据相关媒体报道，经多国政府调查发现，币安公司存在严重的洗钱风险。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2295.png)[图片来源](https://www.cncf.io/case-studies-cn/china-unicom/)
+美国联邦通信委员会（ Federal Communications Commission）27日发布命令，吊销中国联通美洲营运有限公司（China Unicom (Americas) Operations Limited）在美国提供州际和国际通信服务的授权，要求该公司在命令发布的60天内停止在美的任何国内和国际服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-25.png)
+委员表示，今天的行动保护了美国通信基础设施免遭潜在的安全威胁。中国联通美洲营运有限公司隶属中共国有企业，受中共政府的利用、影响与控制，非常可能在没有足够的受独立司法监督的法律程序的情况下被迫执行中共政府的要求。
 
-币安于2017年在上海成立，截止2020年11月，其现货月交易额超过九千亿美金。由于中共政府对数字货币的限制，币安先后辗转于香港和日本，最后因金融牌照缘由将总部转移至马耳他。
+委员会说，委员会20年前授权中国联通美洲公司在美国提供通信服务以来，有关中共国的国家安全环境发生了变化。有鉴于此，委员会发现中国联通美洲公司被中共政府拥有与控制让中国联通美洲公司、母公司和中共政府有机会进入、存储、破坏或误导美国通信，让他们能够从事间谍和针对美国的其它有害活动，因此极大增加了国家安全和执法风险。
 
-据悉，币安的创始人赵长鹏虽反复声称币安有完善的反洗钱程序，但其与各国政府的通信中，他却隐藏了该公司的所有权架构和内部财务信息。这促使多家监管机构反复警告消费者，使用币安存在严重风险。
+委员会并指出，中国联通美洲公司的行为以及向委员会和国会的陈述缺乏坦诚、可信度和可靠性，侵蚀了委员会和其它美国政府机构要求通信运营商的基本信任水平。
 
-此外，由于币安多次拒绝说明其交易所的法律管辖区归属，而该公司的KYC流程因费用问题被严重简化，也让各国无法对其交易进行有效监督。据荷兰央行的调查显示，币安违反该国《洗钱及恐怖分子资助法》进行交易，德国联邦警察也做了类似的相关调查报告。同时，美国国税局也正在就洗钱问题对币安展开调查。
+美国联邦通信委员会为此将发布消费者指导，将委员会的决定通知中国联通美洲公司的移动服务客户，让他们了解其它选项。
 
-郭文贵先生曾在直播中指出，币安公司的本质就是暗网、深网中犯罪洗钱的工具，超过99%的用户没有通过KYC认证，加之币安与中共勾结、出卖个人信息的犯罪事实，世界各国一定会严惩币安。
+美国联邦通信委员会在2019年吊销中国移动的在美运营授权，2021年吊销中国电信的在美运营授权，加上2022年吊销中国联通在美运营授权，至此中共国三大电信运营商将全部被踢出美国市场。
 
-参考链接：
+消息来源：[美国政府把中国联通列入违规名单，吊销其在美经营权](https://www.voachinese.com/a/fcc-bans-unicom-20220127/6415564.html)
 
-- [Crypto giant Binance kept weak money-laundering checks even as it promised tougher compliance, documents show](https://www.reuters.com/investigates/special-report/finance-crypto-currency-binance/)
-- [EXCLUSIVE Islamist attacker’s suspected accomplices used crypto exchange Binance, German police say](https://www.reuters.com/world/europe/exclusive-islamist-attackers-suspected-accomplices-used-crypto-exchange-binance-2022-01-21/)
-- [1/24/2022 Miles Guo:](https://www.gettr.com/post/pqfg145693)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总辑：Irene木木
-编编：Irene木木
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
