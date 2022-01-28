@@ -15,116 +15,116 @@
 
 ---
 
-### [有声|挪威政府拒绝为儿童推荐中共病毒疫苗](/content/gnews/1/README.md)
+### [有声|爆料革命最早揭露中俄”双头鹰运动”](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [有声|美光科技解散中共国的内存设计团队](/content/gnews/2/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（十九）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [马斯克为加拿大卡车司机欢呼](/content/gnews/3/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|墙国内的穷苦百姓](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [香港外汇基金2021年投资收益创近三年新低](/content/gnews/3/README.md)
+### [有声|赵立坚恳请美国重新考虑“授权撤离”](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|拜登政府即日起授权美驻北京大使馆撤离](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|挪威政府拒绝为儿童推荐中共病毒疫苗](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|美光科技解散中共国的内存设计团队](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [有声|为缓解中共财政危机，城投公司大量购买土地](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [有声|GTV新闻访谈简报|2022年1月26日晚](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [香港外汇基金2021年投资收益创近三年新低](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [【粤语配音】2022年1月28日： 中共国向美国低头求饶](/content/gnews/4/README.md)
- ` MOS香港部`
+### [有声|新中国联邦发起甜蜜蜜运动 灭共后三件重大的北京工事](/content/gnews/12/README.md)
+ ` MOSREC`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（十六）](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新冠疫苗中到底有什么？](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [瑞典拒绝为儿童接种“新冠病毒”疫苗](/content/gnews/7/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国红十字会首次宣布“国家血液危机”](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
-
-### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/9/README.md)
- ` 扬帆枫叶快讯`
-
-### [全球疫情更新（荒唐离谱的统计错误）](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [扬帆每日速递 2022年1月28日版（1）](/content/gnews/11/README.md)
- ` 温哥华扬帆农场`
-
-### [对香港大律师公会的操控和声明彰显中共的邪恶无耻](/content/gnews/12/README.md)
+### [今日盖特大V推荐—Miles Guo（郭文贵）](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [身在墙内（二）](/content/gnews/13/README.md)
+### [【粤语配音】2022年1月28日： 中共国向美国低头求饶](/content/gnews/14/README.md)
+ ` MOS香港部`
+
+### [文·贵天成——文贵先生谈“北京冬奥会”（十六）](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新冠疫苗中到底有什么？](/content/gnews/16/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [瑞典拒绝为儿童接种“新冠病毒”疫苗](/content/gnews/17/README.md)
+ ` 扬帆枫叶快讯`
+
+### [美国红十字会首次宣布“国家血液危机”](/content/gnews/18/README.md)
+ ` 波士顿五月花农场`
+
+### [加拿大卡车司机车队被当局势力恶意滋扰](/content/gnews/19/README.md)
+ ` 扬帆枫叶快讯`
+
+### [全球疫情更新（荒唐离谱的统计错误）](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [扬帆每日速递 2022年1月28日版（1）](/content/gnews/21/README.md)
+ ` 温哥华扬帆农场`
+
+### [对香港大律师公会的操控和声明彰显中共的邪恶无耻](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [身在墙内（二）](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [CRA 将发出新一轮的信函，检查 CERB 受助人的资格](/content/gnews/14/README.md)
+### [CRA 将发出新一轮的信函，检查 CERB 受助人的资格](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [欧洲有更多人抗议疫苗强制令](/content/gnews/15/README.md)
+### [欧洲有更多人抗议疫苗强制令](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞CEO承认疫苗效果不尽如人意](/content/gnews/16/README.md)
+### [辉瑞CEO承认疫苗效果不尽如人意](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [安省卫生官:该学着与新冠共存了](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [未接种新冠疫苗的人可能通过性交被接种新冠疫苗的人感染](/content/gnews/18/README.md)
+### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/19/README.md)
+### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [对汽车盗窃团伙的调查提出300 多项指控，追回了价值 1110 万元的汽车](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [文贵先生盖特精要2022/01/28](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加政府未阻止中企9亿加元收购其锂矿企业](/content/gnews/23/README.md)
+### [加政府未阻止中企9亿加元收购其锂矿企业](/content/gnews/29/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大华人出租房：疑华人租客开枪打死3人自](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [七哥说“我们尝试着让中国五年内让大家增加辨别真假的能力，识别善恶的能力，就是让你不要被无知害掉”（2022-01-25摘录）](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [七哥唱甜蜜蜜（2022-01-25摘录）](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [2022/01/27文贵先生直播精要](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022年1月27日 文贵大直播 全文字版](/content/gnews/28/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [Meta准备出售其数字货币项目](/content/gnews/30/README.md)
+### [Meta准备出售其数字货币项目](/content/gnews/31/README.md)
  ` GTV News Talk`
 
-### [中共导弹专家逃离中国 投奔自由](/content/gnews/31/README.md)
+### [中共导弹专家逃离中国 投奔自由](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [丹麦即将宣布取消所有中共病毒疫情限制措施](/content/gnews/32/README.md)
+### [丹麦即将宣布取消所有中共病毒疫情限制措施](/content/gnews/33/README.md)
  ` GTV News Talk`
 
-### [白宫希望将加密货币规则作为国家安全问题来处理](/content/gnews/33/README.md)
+### [白宫希望将加密货币规则作为国家安全问题来处理](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [韩国庆北安东市一家酒吧发生了青少年集体感染，防疫进入了紧急状态](/content/gnews/34/README.md)
+### [韩国庆北安东市一家酒吧发生了青少年集体感染，防疫进入了紧急状态](/content/gnews/35/README.md)
  ` 首尔天池农场`
 
-### [Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19](/content/gnews/35/README.md)
+### [Peter McCullough 博士表示无需大规模接种疫苗即可停止 COVID-19](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [五月花简报](/content/gnews/36/README.md)
+### [五月花简报](/content/gnews/37/README.md)
  ` mayflowertranslate`
-
-### [自由车队2022组织者在GoFundMe上的最新声明](/content/gnews/37/README.md)
- ` 温哥华扬帆农场`
 
 ### [俄罗斯和乌克兰同意维持停火，并于下月举行新会谈](/content/gnews/38/README.md)
  ` 首尔天池农场`

@@ -2,51 +2,63 @@
 ---
 
 
-## 加拿大华人出租房：疑华人租客开枪打死3人自
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925037/)
+## CRA 将发出新一轮的信函，检查 CERB 受助人的资格
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925158/)
 
-作者：Katya Slepian / Cole Schisler
+作者：Jordan Press
 翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-461.jpg)
-大温哥华地区华人聚居城市列治文一个安静的社区发生一起可怕的枪击案。一栋华人拥有的出租房内4名租客遇难，警方综合凶杀案调查组证实，4名死者为两男两女，4人都被定义为“受害者”。警方强调这是一宗单一事件，不涉及帮派，也不涉及其他人，警方也不认为还有其他嫌犯，案件对社区安全没有隐患。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-464.jpg)
+加拿大税务局（CRA）正在发出新一轮的信函，确认CERB领取资格，同时向那些不符合领取CERB资格的人发出还款通知。
 
-IHIT希望反映人David Lee说，周四列治文皇家骑警对在Garden City Road和Leslie Road附近发生的枪击事件进行现场检查。警方确认4名死者均为成年人，彼此认识。
+据报道这是CRA第二次寄信给加拿大紧急福利金（CERB）领取者，这是CRA核实数百万领取每周500加元福利金的加拿大人资格的过程的一部分。
 
-David Lee在周四新闻发布会说，这是一个悲剧性的事件，但警方能够确认社区没有危险。我们已经能够确认这是一起孤立事件，目前没有嫌疑人在逃。
+到2020年底，CRA向CERB领取者发出了超过441,000封信函，要求他们核实是否符合领取资格。
 
-David Lee补充说，这不是亲密伴侣间的暴力案件，也不是与帮派有关的枪击案。他说，所有涉及和需要对凶杀案负责的人都在现场。目前，所有4个死者都被视为受害者。其中一名受害者持有有效的枪支拥有和获取许可证，并且可以使用枪支。
+从本周四开始，CRA将再次寄出数千封信，这一次的目标是那些从2020年4月中旬开始月收入1,000元的领取人。
 
-David Lee说，由于尚未通知所有亲属，因此还没有公布死者身份。他告诉记者，预计今天晚些时候或明天早些时候会提供有关此事的最新消息。
+CRA表示，凡是收到信件的人的税务信息表明，他们在领取福利金期间收入过多。
 
-当被问及是否是凶手杀了三人后自杀时，David Lee不愿透露相关信息，仅表示相关人士都在现场，他也没有透露4人之间的关系。
+信中说，CRA将为任何必须无息退还部分资金的人制定灵活的还款计划，但同时警告称，对于那些不回复政府信件的人来说，情况并非如此。
 
-据邻居称，涉事屋主是一对华人夫妇，是屋主的女儿在听到枪声后报的警。有媒体报道说4死者都是亚裔，有可能是华裔家庭，但这一点并没有得到警方的证实，警方仅表示是亚裔。
+联邦政府在大流行开始时迅速推出了CERB，只要求申请人证明他们自己符合资格。
 
-住在这里4年的邻居Cornelius Kiptom表示，得知这个消息，感到非常震惊。他就住在隔壁，从来没有听说过类似的案件，这个社区环境十分安静，邻里之间关系都很好。据说屋主是一对夫妇带着两个大概10岁左右的孩子，从外表推测是华裔家庭。
+在2020年3月和2020年4月失去300万个工作岗位的封锁期间，政府选择了先付款救急的原则，很少做前期验证检查来加快付款速度。
 
-据报道这栋住了4户人的房子屋龄超过50年，室内面积约2000平方英尺，但地块很大，占地面积超10000平方英尺，而且房子对面就是商业区。
+最终，CERB向890万受助人发放了816.4亿元。
 
-根据卑诗估价局最新的估价显示，这栋房子估值超过210万元。屋主是在2018年7月以不到100万元的价格买入的，附近的一些房子已被开发商用围栏围起，等待开发。
+政府长期以来一直表示，官员将在事后审查领取资格，以追回错误的付款。
 
-警方呼吁知情者拨打IHIT热线 1-877-551-IHIT (4448) 或通过电子邮件联系警方。也可以通过电话1-800-222-TIPS (8477)匿名联系灭罪热线。
+在去年3月审计长Karen Hogan对防止欺诈和不当付款进行了严格审查后，政府表示将用四年时间追踪每一笔不当付款。
 
-来源：https://www.saanichnews.com/news/all-4-victims-in-deadly-richmond-shooting-related-no-suspects-at-large-ihit/
+CRA负责收集和验证的助理专员Marc Lemieux 说：本周将发出的一小部分信只是一个开始，我们将发出几千封信，最终可能会发送数十万封信，要求人们验证他们的领取资格。
+
+2020年底发送的信件要求一些收件人证明他们符合领取CERB的一项标准：他们在前12 个月内至少赚了5,000元。然而，这些信件引起了担心无法还款的低收入者的担忧，并将 CRA的信息解读为在当年年底之前设定了还款期限。
+
+CRA似乎从那次经验中吸取了教训，Lemieux表示，这一次发信表明CRA不是无目的地发信，而是已经掌握了一些信息，并希望获得更多细节来验证某人的CERB领取资格。
+
+Lemieux说，人们可能犯了错误，他们的情况也可能在领取福利期间发生了变化。
+
+目前没有人被要求偿还CERB，收信人将有45天的时间联系CRA，之后CRA可能会核定该人是否欠钱。Lemieux表示，CRA对任何欠款的还款计划会采取灵活的措施。但是收信人必须在45天内联系CRA，否则可能没有商量的余地了。
+
+来源：https://toronto.citynews.ca/2022/01/27/cra-letters-cerb-recipients/
 
 （文章仅代表作者个人观点）
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
 欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
 **关注我们**
 
 Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
 Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

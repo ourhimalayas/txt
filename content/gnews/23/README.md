@@ -2,34 +2,44 @@
 ---
 
 
-## 加政府未阻止中企9亿加元收购其锂矿企业
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1925042/)
+## 身在墙内（二）
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1925182/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/LRKHFOLQYVP3BH2LAAENGSM3CY.jpg.jpg)图片来源：The Globe and Mail
-根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
+作者：意大利罗马达芬奇农场 – 薪和
 
-在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
 
-加拿大和美国在2020年承诺紧密合作，以确保锂等关键矿产的可靠供应。但在周四的听证会上，Champagne先生不会回答他是否与美国或加拿大的任何盟友讨论过Neo Lithium的交易。
 
-反对党保守党表示，自由党政府本应阻止紫金矿业([601899.SS](https://www.reuters.com/companies/601899.SS))去年以9.187亿加元(7.213亿美元)收购Neo Lithium([NLC.V](https://www.reuters.com/companies/NLC.V)) 。
+> 讨薪打工人
+> 
+> 这块土地、这些人，
+> 终其一生，大多所行，
+> 不过是苟且二字。
+> 所谓风光，不过苟且有术;
+> 行路坎坷，不过苟且无门。
+> 
+> 听了半天才听明白:
+> 去年过年没钱花，
+> 今年过年也没钱花，
+> 年年过年都没钱花，
+> 年年过年都害怕，
+> 不信你们仔细听…… [pic.twitter.com/GIa4VGIpcg](https://t.co/GIa4VGIpcg)
+> — 大别山 (@xxf58111) [January 28, 2022](https://twitter.com/xxf58111/status/1486852952216064000?ref_src=twsrc%5Etfw)
 
-保守党表示，在华盛顿与加拿大合作促进关键矿物的区域供应链，以对抗中共主导地位的时候，允许这宗收购的决定并不合理。
 
-商鹏飞对下议院工业委员会表示：“有足够的信息来确定这项交易不会对国家安全造成损害。Neo Lithium的矿产储备是由碳酸锂组成，而电动汽车电池生产商偏好使用氢氧化锂”。
 
-去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+跟视频中的人一样，我们身边有太多这样省吃俭用，拼命赚钱的人。十几、二十年前我们老家很多人到广东打工。有部分年轻人搞装修，干装修的来钱快，几年后有些只有三、四十岁年纪的就病死了，多是肺病，大概是因为长期油漆工。可能是后来大家有明白过来的，害怕了，就少有听到做油漆工的。
 
-伦敦Benchmark Mineral Intelligence公司的首席数据官Caspar Rawles说，碳酸锂比氢氧化锂在电动汽车上使用更广泛，由于短缺交易价格很高。
+前几年看到干工地、做装修的人混的还可以，就是这两三年活儿不好干。全国各地来回的跑，经常听到干完活后，工头跑了，拿不到工钱。
 
-原文链接：
+上次跟我的一个做贴墙纸的堂哥交谈，听他说自己混得不好，有一肚子苦水倒。每月要还车贷、房贷，高价供女儿上市里的高校；老爸身体也不好，花了不少医药费；两夫妻带几个亲戚玩儿命的干活。他四十不到的年纪，已是满头白发，走楼梯都是手抓扶手慢慢下楼。平时脚疼、腰痛还得继续干活。为了赶工加班、加点，更舍不得给自己花钱，省吃俭用。
 
-[https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB](https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB)
+他给我的感触是他这一代人彻底的完了，已经彻底成了无脑的奴隶。白天是身体上的痛苦，晚上是思想上的痛苦。跟那头拉磨的驴一样，追着吊在眼前的萝卜一直走，却一直吃不到萝卜。房贷、车贷、教育、医疗是共产党给他做好的磨，萝卜是政府设好的每个月他要还的贷款。
 
-[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
+这十几年来中共一直大搞房地产、建公路、高铁、商场、公园，制造出中共国百姓要 “脱贫” “奔小康” 这些外包装，最后不过是中南坑耗尽了中国老百姓的青春和血汗钱。
 
-编辑，发稿Spirit
+* * *
+
+校对/发布：阿娜
 
  
 

@@ -2,22 +2,38 @@
 ---
 
 
-## 瑞典拒绝为儿童接种“新冠病毒”疫苗
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1925426/)
+## 有声|挪威政府拒绝为儿童推荐中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925672/)
 
-加拿大温哥华扬帆农场    平民正道
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月25日，据相关媒体报道，挪威政府发布声明表示，出于对中共病毒疫苗副作用的担忧，以及儿童因中共病毒导致死亡和住院的风险非常罕见这一事实，当地政府不建议为儿童接种中共病毒疫苗。
 
-据加拿大《CTV新闻》1月27日报道，瑞典卫生局当天表示，因考虑到疫苗伤害等风险因素，瑞典政府将不建议为5-11岁的儿童接种“新冠病毒”疫苗。
+报道提及，德国一项研究显示，当地健康的5至11岁儿童无一人死于中共病毒——这一现象也同样出现在瑞典的中共病毒第一波疫情中。
 
-报道称，瑞典卫生局官员在新闻发布会上指出，根据当前所掌握的信息，由于儿童感染该病毒和因此患严重疾病的风险很低，为他们接种实验性的疫苗没有任何明显的好处。
+为此，挪威政府官员表示，大量来自世界各地的科学研究均表明，儿童患有严重疾病的可能性极低，且鉴于人们对中共病毒疫苗副作用的有限认知，疫苗对于儿童的益处可能相当小。
 
-据悉，尽管瑞典日前有超过4万个新增感染病例，是该国自疫情爆发以来单日病例最高之一，但其医疗卫生系统尚未面临着像前几波疫情那样超常的压力，重症监护患者数也远低于去年同期值。因此，瑞典政府表示，将有望在2月9日前取消大部分目前正在实施的防疫限制措施。
+原文链接：[挪威政府拒绝为儿童推荐中共病毒疫苗](https://gnews.org/zh-hans/1918674/)
 
-* * *
+音频处理/发稿：Daxia
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-编辑： 平民正道    发布：平民正道
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
