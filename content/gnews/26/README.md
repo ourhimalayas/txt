@@ -2,10 +2,10 @@
 ---
 
 
-## 辉瑞CEO承认疫苗效果不尽如人意
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1925142/)
+## 欧洲有更多人抗议疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1925152/)
 
-01/25/2022 辉瑞CEO在回答第四剂疫苗是否必要时承认他对疫苗的表现很失望，但他仍然坚称第四剂是必要的。
+01/23/2022 本·哈恩威尔：欧洲反对强制疫苗的和平游行正在发生；参与游行少数人的规模正在成比例的增长，这印证了这两个月史蒂夫·班农和我一直在讨论的局势。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,20 +2,31 @@
 ---
 
 
-## 加拿大卡车司机车队被当局势力恶意滋扰
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1925397/)
+## 有声|GTV新闻访谈简报|2022年1月26日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925575/)
 
-加拿大温哥华扬帆农场    平民正道
+配音：香草山教育部 – 蒙古鸿雁
 
-据加拿大媒体[真北方]1月26日报道，加拿大反抗疫苗护照的卡车司机游行车队，在迅速赢得了全国民众的压倒性协助之外，也同时被当局支持的恶势力贴上“恐怖右翼份子”的污名化标签 ，企图以此非法化这场争取自由权利的民主运动。
 
-报道称，这些支持特鲁多当局恶政的势力在诬蔑卡车司机为“暴力的种族主义者”的同时，自己却极尽暴力威胁，使用诸如“瘟疫老鼠、白色垃圾”等恶毒词汇，并在主流媒体的鼓噪之下，合力把反抗强制疫苗护照的示威民众描绘成“白人种族主义者”甚至“极右翼恐怖分子”等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-4-1187x1536-1.png)
+文字版原文：[GTV新闻访谈简报|2022年1月26日晚](https://gnews.org/zh-hans/1915990/)
 
-对此，有评论指出：这些由主流媒体积极参与，并使用各种下作手段对“自由表达民意，勇敢追求人权行动”的蓄意诬蔑和暴力威胁，和去年1月6日发生在美国国会大厦所谓的暴力袭击事件如出一辙，无不处处体现出其背后由中共邪恶势力操纵的幢幢鬼影。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑： 平民正道    发布：平民正道
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

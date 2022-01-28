@@ -2,63 +2,98 @@
 ---
 
 
-## CRA 将发出新一轮的信函，检查 CERB 受助人的资格
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925158/)
+## 全球疫情更新（荒唐离谱的统计错误）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1925292/)
 
-作者：Jordan Press
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-464.jpg)
-加拿大税务局（CRA）正在发出新一轮的信函，确认CERB领取资格，同时向那些不符合领取CERB资格的人发出还款通知。
+**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2391.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 1月28日）
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-据报道这是CRA第二次寄信给加拿大紧急福利金（CERB）领取者，这是CRA核实数百万领取每周500加元福利金的加拿大人资格的过程的一部分。
+**一，全球疫情基本数据**
 
-到2020年底，CRA向CERB领取者发出了超过441,000封信函，要求他们核实是否符合领取资格。
+感染总数：365,502,154（日新增3,274,264，14天增幅+16%）
 
-从本周四开始，CRA将再次寄出数千封信，这一次的目标是那些从2020年4月中旬开始月收入1,000元的领取人。
+死亡总数：5,634,736（日新增8,623人，14天增幅 +25%）
 
-CRA表示，凡是收到信件的人的税务信息表明，他们在领取福利金期间收入过多。
+**二，全球“疫苗”毒针统计数据**
 
-信中说，CRA将为任何必须无息退还部分资金的人制定灵活的还款计划，但同时警告称，对于那些不回复政府信件的人来说，情况并非如此。
+“疫苗”毒针注射总数：100亿
 
-联邦政府在大流行开始时迅速推出了CERB，只要求申请人证明他们自己符合资格。
+完全“接种”：41.2亿人
 
-在2020年3月和2020年4月失去300万个工作岗位的封锁期间，政府选择了先付款救急的原则，很少做前期验证检查来加快付款速度。
+完全“接种”百分比：52.9 %
 
-最终，CERB向890万受助人发放了816.4亿元。
+**三，澳洲疫情和“疫苗”数据**** **
 
-政府长期以来一直表示，官员将在事后审查领取资格，以追回错误的付款。
+感染总数：2,468,605（今日新增40,176人）
 
-在去年3月审计长Karen Hogan对防止欺诈和不当付款进行了严格审查后，政府表示将用四年时间追踪每一笔不当付款。
+死亡总数：3,500人（今日新增 98人）
 
-CRA负责收集和验证的助理专员Marc Lemieux 说：本周将发出的一小部分信只是一个开始，我们将发出几千封信，最终可能会发送数十万封信，要求人们验证他们的领取资格。
+每万人感染人数：952.8712人
 
-2020年底发送的信件要求一些收件人证明他们符合领取CERB的一项标准：他们在前12 个月内至少赚了5,000元。然而，这些信件引起了担心无法还款的低收入者的担忧，并将 CRA的信息解读为在当年年底之前设定了还款期限。
+“疫苗”毒针注射总数：49,089,980    （日新增305,665 针）
 
-CRA似乎从那次经验中吸取了教训，Lemieux表示，这一次发信表明CRA不是无目的地发信，而是已经掌握了一些信息，并希望获得更多细节来验证某人的CERB领取资格。
+完全“接种”：19,212,724人
 
-Lemieux说，人们可能犯了错误，他们的情况也可能在领取福利期间发生了变化。
+第二针“接种”百分比：78.5%
 
-目前没有人被要求偿还CERB，收信人将有45天的时间联系CRA，之后CRA可能会核定该人是否欠钱。Lemieux表示，CRA对任何欠款的还款计划会采取灵活的措施。但是收信人必须在45天内联系CRA，否则可能没有商量的余地了。
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
 
-来源：https://toronto.citynews.ca/2022/01/27/cra-letters-cerb-recipients/
+16岁以上人口接种至少两剂疫苗的比例：93.2%
 
-（文章仅代表作者个人观点）
+**四，“疫苗”新闻**
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+[瑞典决定不向 5-12 岁儿童推荐 COVID 疫苗](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+瑞典卫生署周四表示，瑞典已决定不向 5-11 岁的儿童推荐中共病毒疫苗，并认为其益处并未超过风险。卫生署官员布里塔·比约克霍尔姆在新闻发布会上说：“根据我们今天所掌握的知识，儿童患严重疾病的风险很低，我们认为给他们接种疫苗没有任何明显的好处。”
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+[巴黎医院系统负责人公开表示不接种中共病毒疫苗者无资格接受公共医疗保险的治疗](https://www.msn.com/en-gb/news/world/covid-live-russian-daily-cases-approach-100000-in-new-record-philippines-to-reopen-to-vaccinated-tourists/ar-AATe9ow)
 
-**关注我们**
+“当免费和有效的药物可用时，人们是否应该能够在没有后果的情况下放弃它……而我们却在努力照顾其他病人？” 巴黎 AP-HP 医院系统负责人 Martin Hirsch 周三在法国电视台上表示。这番言论在法国引发了激烈的争论。Hirsch 说他提出这个问题是因为医疗成本正在爆炸式增长，并且一些人的不负责任行为不应危及其他人对该系统的可用性。
 
-Discord 账号
+**五，德国：荒唐离谱的统计错误成为疫苗护照政策的合法性基础**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+今天全球的中共病毒疫苗毒针注射已经超过一百亿剂。拒绝接受毒针的少数人被施以种种限制，包括失去工作。到今天，疫苗的无效和危害已经可以从很多公开数据中明显看出来了。现在一些媒体已经开始挖出当初用来证明“未接种疫苗者带来了疫情”的统计数据实际上是用了极其离谱，很难相信是无意的方法扭曲和篡改而成，被发现后却被归咎于“软件错误”。这是[《国家脉动》上周的一篇报道](https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)。
 
-Gettr 账号
+德国第二大城市汉堡去年11月宣布对未接种疫苗且未感染过病毒者实施限制，不被允许进入商店、餐馆和俱乐部。11 月的第二周，汉堡市长召开新闻发布会，错误地声称 90% 的新感染病例都在未接种疫苗的人群中。此外，他声称未接种疫苗者的 7 天平均感染率为每 100,000 人中有 605 人，而接种疫苗者仅为 100,000 人中的 22 人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+现在，《南德意志报》和《世界报》的一项调查发现，汉堡社会服务部门的数字严重扭曲，在大多数情况下，他们甚至不知道谁接种了疫苗，谁没有接种。然而，这并没有阻止他们将所有身份不明的人归类为未接种疫苗。事实上，到 11 月底，高达 70% 的阳性病例处于未知状态。市长在 12 月底声称，错误分类的原因是部署了“不同的 IT 系统”，每个系统使用不同的分类器。
+
+汉堡市并不是唯一受虚假 COVID 数字影响的地区。11 月中旬，在拜仁，48.468例未知疫苗接种状态的病例被添加到未接种疫苗类别中——将未接种疫苗者的感染率推高至 1469 例，而接种疫苗者的感染率则为 110 例。
+
+德国针对未接种疫苗的 COVID 措施于 2021 年 11 月推出，并将这两个主要的虚假数据作为政策合法性的基础。
+
+据信，最近几天有近 10 万德国公民参加了反疫苗强制抗议活动。
+
+。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
