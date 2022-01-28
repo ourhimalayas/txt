@@ -2,25 +2,15 @@
 ---
 
 
-## 西方盟国就乌克兰问题抛弃加拿大
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920579/)
+## 2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1920663/)
 
-加拿大温哥华扬帆农场 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022年1月28日《樱花快报》：俄罗斯新增中共病毒确诊病例连续7天创新高-scaled.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-50-edited.jpg)图片来源：TNH
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
 
-
-据加拿大媒体【真北方】1月25日报道，美国总统拜登日前在未邀请加拿大总理特鲁多的情况下，与西方各国领导人就俄罗斯在乌克兰边境的军事集结进行了视频会议。
-
-据悉，欧盟委员会主席、欧洲理事会主席和北约秘书长以及西方国家领导人都参加了此次会议。对此，有加拿大保守党议员认为这是特鲁多政府之前未能维护乌克兰利益所导致。面对俄罗斯日益增长的入侵风险，英美等西方国家的部分使馆工作人员及其家属已被建议撤离乌克兰。而特鲁多却对此狐疑未决，不置可否。
-
-报道指出，特鲁多当局一贯对内独断专权的治国方针，对外绥靖妥协的外交政策，早已使加拿大背离了民主法治，相互尊重的发展轨道，而最终因此将被西方盟友所不耻和唾弃。
-
-* * *
-
-采编/翻译：文莱       校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： [Trudeau excluded from U.S. teleconference over Ukraine conflict | True North (tnc.news)](https://tnc.news/2022/01/25/trudeau-excluded-from-u-s-teleconference-over-ukraine-conflict/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
 
  
 
