@@ -2,10 +2,14 @@
 ---
 
 
-## 1/25/2022 文贵重大公告：拜登总统和布林肯国务卿授权撤离驻华大使馆是美国迄今对中国人所做出的最好的决定，其意义极为重大，它所导致的多米诺效应将让甜蜜蜜运动发生在北京二环的所有使馆区
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1924473/)
+## 五月花简报
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1924565/)
 
-秘密翻译组-北美组
+作者：波士顿五月花—冲天一怒
+![](https://assets.gnews.org/wp-content/uploads/2022/01/80B4D2F7-0629-4DB2-B65B-7AE8587E3A65.jpeg)
+*发布：思澈*
+
+
 
  
 
