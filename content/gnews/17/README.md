@@ -2,48 +2,32 @@
 ---
 
 
-## 有声|追求理想
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924886/)
+## 七哥谈躺平币（2022-01-21摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1924981/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-朝朝暮暮勤磨智
-铁棒也能磨成针
-锈铁剥落冷光闪
-愿尽烛责成萤火
-不做行尸走肉人
+文编：Hima
+听写：叮叮
+视频：七哥
 
-迷途知返脱牢笼
-除愚开智七芒星
-救赎灵魂护周全
-尘埃开花异香袭
+来源：郭先生2022-01-21直播11：48：26摘录
 
-平凡人走精彩路
-化茧成蝶得新生
-燎原星火抚冷寂
-何惧风雨历艰险
+未来躺平币，躺平币使用即金钱，使用就是金钱，你就会从零，没有变成有，有变成多，从多变成永恒，然后不但变成永恒，从多还要变成让你多到横向的纵向的还丰富，这就是大家要做的选择。所以说问题很简单，你不能说既不付出时间也不付出，也不承担责任，也没有风险，然后你就什么都有，那是不可能的。
 
-众志成城胜磐石
-集结号声响云霄
-战神亮剑天地开
-除尽妖孽黑暗消
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-黎明破晓，要光复这神州！
+**关注我们**
 
-文字版原文：[追求理想](https://gnews.org/zh-hans/1919121/)
+Discord 账号
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+Gettr 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

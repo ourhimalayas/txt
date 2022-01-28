@@ -2,22 +2,34 @@
 ---
 
 
-## 董宏一审被判死缓
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1924958/)
+## 加政府未阻止中企9亿加元收购其锂矿企业
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1925042/)
 
-素材：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1128311433_16433729828021n.jpg)图片来自墙内媒体
-2022年1月28日，山东省青岛市中级人民法院公开宣判中央巡视组原副组长董宏受贿一案，对被告人董宏以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产。董宏当庭表示服从法院判决，不上诉。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/LRKHFOLQYVP3BH2LAAENGSM3CY.jpg.jpg)图片来源：The Globe and Mail
+根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
 
-1999年至2020年，被告人董宏利用担任广东国际信托投资公司破产清算组成员、中共海南省委副秘书长、北京市人民政府副秘书长、中央文献研究室副主任、中央巡视组副组长等职务上的便利,以及职权、地位形成的便利条件，通过其他国家工作人员职务上的行为，为有关单位和个人在项目开发、工程承揽、职务提拔等方面谋取利益，直接或者通过他人非法收受财物共计折合人民币4.63亿余元。
+在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
 
-青岛市中级人民法院认为，被告人董宏的行为构成受贿罪，且受贿数额特别巨大，犯罪情节特别严重，社会影响特别恶劣，给国家和人民利益造成特别重大损失，论罪应当判处死刑。鉴于董宏自动投案，如实供述全部罪行，具有自首情节，且其能够认罪悔罪、积极退赃，赃款赃物全部追缴到案，具有多个法定、酌定从宽处罚情节，对其判处死刑，可不立即执行。法庭遂作出上述判决。
+加拿大和美国在2020年承诺紧密合作，以确保锂等关键矿产的可靠供应。但在周四的听证会上，Champagne先生不会回答他是否与美国或加拿大的任何盟友讨论过Neo Lithium的交易。
 
-原文链接：[中央巡视组原副组长董宏一审被判死缓](http://www.news.cn/legal/2022-01/28/c_1128311433.htm)
+反对党保守党表示，自由党政府本应阻止紫金矿业([601899.SS](https://www.reuters.com/companies/601899.SS))去年以9.187亿加元(7.213亿美元)收购Neo Lithium([NLC.V](https://www.reuters.com/companies/NLC.V)) 。
 
-* * *
+保守党表示，在华盛顿与加拿大合作促进关键矿物的区域供应链，以对抗中共主导地位的时候，允许这宗收购的决定并不合理。
 
-*编辑 /发布：吐纳*
+商鹏飞对下议院工业委员会表示：“有足够的信息来确定这项交易不会对国家安全造成损害。Neo Lithium的矿产储备是由碳酸锂组成，而电动汽车电池生产商偏好使用氢氧化锂”。
+
+去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+
+伦敦Benchmark Mineral Intelligence公司的首席数据官Caspar Rawles说，碳酸锂比氢氧化锂在电动汽车上使用更广泛，由于短缺交易价格很高。
+
+原文链接：
+
+[https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB](https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB)
+
+[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
+
+编辑，发稿Spirit
 
  
 

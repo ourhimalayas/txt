@@ -2,31 +2,37 @@
 ---
 
 
-## 七哥谈躺平币（2022-01-21摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1924981/)
+## 文贵先生盖特精要2022/01/28
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1925049/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2375.png)[盖特直播链接](https://gettr.com/post/pr277kd558)
 
-来源：郭先生2022-01-21直播11：48：26摘录
+今天的纽约暴风雪，现在的北京城可热闹了。据说，中共正在请求美国留下，别把人都撤走，留下点，象征性地把阳性感染者带走，做个样子；共同发个公告由于使馆人员感染病毒而短暂的授权离开，为了好糊弄过去。此时此刻，美国多架军事医疗专机正在北京首都机场T3航站楼守候待命着，一个美国驻北京大使馆有多少工作人员，感染的工作人员又有几个呢，为什么要派那么多专机呢？中共都不敢面对！
 
-未来躺平币，躺平币使用即金钱，使用就是金钱，你就会从零，没有变成有，有变成多，从多变成永恒，然后不但变成永恒，从多还要变成让你多到横向的纵向的还丰富，这就是大家要做的选择。所以说问题很简单，你不能说既不付出时间也不付出，也不承担责任，也没有风险，然后你就什么都有，那是不可能的。
+看看这个体制文化是多么的丑陋，既可悲、可怜又可恨，都这个时候还搞“披着羊皮的狼”和“披着狼皮的羊”，对着内部百姓就是“披着羊皮的狼”，对外就是“披着狼皮的羊”，根本无法面对现实，这帮“孙子”真的是太low了，太垃圾了……
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+中共你想停？！不可能，看七哥再给你们出几个杀手锏，杨洁篪、王沪宁、王毅你们几个注意了，咱们走着瞧……
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+*听写：阿甘*
 
-Gettr 账号
+*校对：小雨*
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
 
  
 

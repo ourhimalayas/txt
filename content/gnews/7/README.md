@@ -2,28 +2,47 @@
 ---
 
 
-## 中国联通被FCC勒令60天内停止公司在美业务
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1924992/)
+## 对汽车盗窃团伙的调查提出300 多项指控，追回了价值 1110 万元的汽车
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925114/)
 
-素材：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2b35-9527decd43b9efaf28124a447a00c6a3.png)图片来源：FCC
-FCC主席Jessica Rosenworcel表示，“越来越多的证据表明，中国运营商对我们的电信网络安全构成了威胁。”Rosenworcel还表示，FCC将对Pacific Networks Corp.及其全资子公司ComNet进行“类似的程序”。
+作者：Katherine Declerq
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-462.jpg)
+大多伦多地区车辆盗窃活动猖獗，警方近日在大多伦多地区破获一个汽车盗窃团伙，20多人面临超过300项指控，嫌犯中还有两人不满18岁，警方一次性追回217辆被盗汽车，涉案金额达1100万元。
 
-作为中国三大电信运营商之一，中国联通已在美国合规运营了近20年。在2020年6月的一份文件中，中国联通称公司一直以来都遵守当地规则，没有被赶出美国理由。
+据皮尔区警方称，这项名为“Project High 5”的调查在六个月内横跨多个司法管辖区，调查开始于警方注意到皮尔区和大多伦多地区的居民机动车辆被盗有所增加。
 
-这不是美国对中国电信行业的公司第一次出手。去年10月，FCC决定撤销中国电信美洲公司在美国运营的授权。中国电信美国公司发言人对外表示，“FCC的决定令人失望。”
+警方称，犯罪嫌疑人强行打开司机一侧的车门，获得车辆车载诊断端口的访问权限，然后使用设备复制新的密钥卡。
 
-当时，工业和信息化部发表声明称，“美方在未列出我企业具体违法事实的情况下，仅凭主观揣测和怀疑就吊销其214牌照，不符合美国市场化国家的形象，也损害了包括美国用户在内的全球消费者的正当权益。”
+警方在周四发布的新闻稿中说：这些盗窃活动被受害者和附近的住宅监控录像抓拍到。
 
-工信部补充称，“近年来，美方不断以国家安全为由，罔顾事实，频繁制裁中国企业。这是滥用国家力量对中国企业的无理打压，是对国际经贸规则的严重破坏。”
+调查人员说，住在居民区的车主在睡觉时成为盗窃目标。警方补充说，这些车辆随后被装入集装箱，出口到美国以及多个西非和中东国家。调查人员还发现窃贼以欺诈方式在安大略省虚假注册并出售给那些毫无戒心的汽车经销商、在线经销商平台和无辜的买家。
 
-不仅如此，FCC还曾在2019年否决了中国移动在美开展业务的申请，当时使用的理由同样是“可能严重危及美国国家安全”。
+1月19日，警察在皮尔区、荷顿区和约克区的九个居民区执行搜查令。搜查结果警方追回了217辆汽车，价值约1110万元。同时还缴获了手枪、超过100,000元的现金、数量不详的毒品、汽车伪造文件和工具以及虚假政府文件。
 
-原文链接：[中国联通被FCC勒令60天内停止公司在美业务](https://m.cnbeta.com/view/1231119.htm)
+24人被拘留，其中2人未满18岁。大多数嫌疑人是大多伦多地区的居民，还有5人来自蒙特利尔，另外2人来自Uxbridge和Whitby。
 
-* * *
+嫌疑人总共面临321项指控。
 
-*编辑 /发布：吐纳*
+警方表示，目前调查还在进行中，预计会有更多人被捕。
+
+来源：https://toronto.ctvnews.ca/more-than-300-charges-laid-in-investigation-into-auto-theft-ring-11-1m-worth-of-cars-recovered-1.5758346
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

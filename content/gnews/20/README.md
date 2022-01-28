@@ -2,35 +2,23 @@
 ---
 
 
-## 有声|中共宣传机构对美国体育节目主持人进行谩骂和攻击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924765/)
+## 澳大利亚批准16岁以上未成年人群接种辉瑞加强针
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1924947/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/01/25/chinese-propaganda-outlet-blasts-bob-costas-for-desecrating-olympic-spirit-by-criticizing-china/)1月25日报道，传奇体育主持人鲍勃·科斯塔斯（Bob Costas）在接受CNN记者布莱恩·斯特尔特（Brian Stelter）的采访时批评了中共国在新闻自由方面的糟糕记录，并批评国际奥委会允许在北京举行冬季奥运会。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/01/012702.jpg)网络图片
+当地时间1月28日上午，澳大利亚治疗用品管理局今天早上决定批准向16-17岁的未成年群体推广CCP病毒疫苗第三剂，即人们常说的加强针。在此之前，已经有英国、美国和以色列批准了对该年龄组人群施打加强针。
 
-科斯塔斯表示，国际奥委会选择让一个公开监视运动员和记者的国家来举办奥运会，理应受到所有的鄙视和厌恶。
+16-17岁人群不论之前注射的哪种类型的CCP病毒疫苗，都可以在进行加强针接种时使用辉瑞开发的CCP病毒疫苗——这一规定与成年人完全相同。
 
-对此，中共《环球时报》履行了其作为共产党政权喉舌和捍卫者的义务，对科斯塔斯进行了谩骂和攻击。
+同时澳大利亚治疗用品管理局也表示，目前还在进一步检测评估更多数据，以研究青少年接种CCP病毒疫苗加强针的议题。笔者认为这一表态或许暗示接下来该机构还将批准更小年龄段的未成年人进行加强针注射。
 
-无独有偶，在郭文贵先生昨天发布有关美国撤离驻中共大使馆的公告之后，中共今天声称美方撤离使领馆人员将极大增加感染病毒风险，也是对美国的公然挑衅和威胁。
+不过目前澳大利亚免疫咨询小组还没有确定16-17岁年龄组在接种第二剂CCP病毒疫苗后需要等待多长时间才能进行加强针注射。但已经有澳大利亚国立大学的“砖家”对此举表示支持，认为给未成年人施打加强针的举措“非常合理”。
 
-在新闻自由方面，中共国的侵权行为是众所周知的。据联合国观察组织称，中共国除了是全球第一大人权侵犯者之外，还从事科斯塔斯在其评论中所指控的所有侵犯新闻自由的行为和间谍活动。
+免疫咨询小组甚至还在考虑是否将CCP病毒的加强针注射纳入疫苗接种的标准方案中。如果答案是肯定的，那么这将意味着以后在澳大利亚“完全接种CCP病毒疫苗”的定义将被从“接种过两剂CCP病毒疫苗”改写为“接种过三剂CCP病毒疫苗”。目前澳大利亚维多利亚州州长安德鲁斯已经表示为这一决策背书。
 
-文字版原文：[中共宣传机构对美国体育节目主持人进行谩骂和攻击](https://gnews.org/zh-hans/1915126/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is %E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新闻参考链接：[Pfizer booster for teens ‘makes sense’, expert says](https://www.9news.com.au/national/coronavirus-vaccine-updates-tga-approves-pfizer-booster-for-16-17-year-olds/2027f1fc-d435-4189-944f-b4070fdc14d5)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1924787/)
+## 董宏一审被判死缓
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1924958/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+素材：波士顿五月花 黄金时代
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1128311433_16433729828021n.jpg)图片来自墙内媒体
+2022年1月28日，山东省青岛市中级人民法院公开宣判中央巡视组原副组长董宏受贿一案，对被告人董宏以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产。董宏当庭表示服从法院判决，不上诉。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-28.png)
-文章仅代表作者本人观点，与Gnews无关
+1999年至2020年，被告人董宏利用担任广东国际信托投资公司破产清算组成员、中共海南省委副秘书长、北京市人民政府副秘书长、中央文献研究室副主任、中央巡视组副组长等职务上的便利,以及职权、地位形成的便利条件，通过其他国家工作人员职务上的行为，为有关单位和个人在项目开发、工程承揽、职务提拔等方面谋取利益，直接或者通过他人非法收受财物共计折合人民币4.63亿余元。
 
-视频参看：[2022.01.28早GTV新闻访谈](https://gtv.org/video/id=61f3ef5681ce0a3ac2a07c90)
+青岛市中级人民法院认为，被告人董宏的行为构成受贿罪，且受贿数额特别巨大，犯罪情节特别严重，社会影响特别恶劣，给国家和人民利益造成特别重大损失，论罪应当判处死刑。鉴于董宏自动投案，如实供述全部罪行，具有自首情节，且其能够认罪悔罪、积极退赃，赃款赃物全部追缴到案，具有多个法定、酌定从宽处罚情节，对其判处死刑，可不立即执行。法庭遂作出上述判决。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+原文链接：[中央巡视组原副组长董宏一审被判死缓](http://www.news.cn/legal/2022-01/28/c_1128311433.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
+* * *
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑 /发布：吐纳*
 
  
 
