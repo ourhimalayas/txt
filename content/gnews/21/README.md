@@ -2,18 +2,22 @@
 ---
 
 
-## 七哥感谢5年来战友的陪伴
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921081/)
+## 瑞典拒绝为儿童接种“新冠病毒”疫苗
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1921182/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+采编：UCool优酷     翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/01/02-image-10.jpg)
+据加拿大《CTV新闻》1月27日报道，瑞典卫生局当天表示，因考虑到疫苗伤害等风险因素，瑞典政府将不建议为5-11岁的儿童接种“新冠病毒”疫苗。
 
-*发布：陶子*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，瑞典卫生局官员在新闻发布会上指出，根据当前所掌握的信息，由于儿童感染该病毒和因此患严重疾病的风险很低，为他们接种实验性的疫苗没有任何明显的好处。
+
+据悉，尽管瑞典日前有超过4万个新增感染病例，是该国自疫情爆发以来单日病例最高之一，但其医疗卫生系统尚未面临着像前几波疫情那样超常的压力，重症监护患者数也远低于去年同期值。因此，瑞典政府表示，将有望在2月9日前取消大部分目前正在实施的防疫限制措施。
+
+校对编辑：硫酸羟氯喹64
+
+发稿： 苦尽甜来 (文來）
+
+[原文链接](https://www.ctvnews.ca/health/coronavirus/sweden-decides-against-recommending-covid-vaccines-for-kids-aged-5-12-1.5756719?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61f2bdfef006770001ad01ce&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
  
 

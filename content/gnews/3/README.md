@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥说看守所里的背叛
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921430/)
+## 去北京的运动员不能出门避开盘古
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1921512/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
