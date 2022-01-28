@@ -2,37 +2,38 @@
 ---
 
 
-## 布林肯批评中共为中美关系带来更大侵略性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921625/)
+## 美发表中共国网络审查制度报告，两党议员呼吁回击
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1922031/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-近日，美国国务卿布林肯在亚特兰大的虚拟讨论会上，批评中共政府比前几十年更具侵略性，使美中关系变得越来越敌对。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CC788138-C0D9-408F-9EF2-B42F61769B9E_w1023_r1_s.jpg)资料照片：香港网民到谷歌香港分部送鲜花感谢谷歌不接受北京对互联网搜索内容的监管。（路透社2010年1月14日）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-35.png)
+编辑摘要：
 
-无论从经济实践、人权保护、知识产权待遇，还是为经济落后国家提供海外贷款方面，中共时时处处体现出侵略与傲慢之态。中共的步步紧逼，严重危害美国利益，迫使美国不得不做出政策调整。
+据美国之音1月28日报道，美国国际贸易委员会（USITC）27日发表了中共国和俄罗斯等六个国家的互联网审查行为和数字威权主义损害互联网用户以及美国企业的报告，阐述了中共国政府如何阻止国内外的自由表达，参议院负责监管贸易的金融委员会的两党领袖呼吁拜登政府利用贸易工具做出回击。
 
-美国不仅积极联合盟国，外交抵制北京冬奥会，更表示将授权撤离驻北京大使馆。郭文贵先生表示，这项行动也为美国下一步的行动提供了合法的依据。
+在中共国，内容审查制度不仅出于政治动机，也是为了保护支持政府政策的国内公司。截至2021年8月，全球前1000家互联网和社交媒体网站中约有170家在中共国被屏蔽。中共国的审查政策也影响到从事其他服务业和制造业的美国企业，例如体育和娱乐、酒店和住宿以及航空公司。中共国压制言论自由的法律，同样也妨碍了美国媒体和科技公司在中共国的公平竞争。
 
-参考链接：
+如果美国想要在未来的经济中竞争，并确保世界各地的人拥有一个自由开放的互联网，那么美国政府需要认真回击、主动抵制中共国威权主义的审查制度，并防止它在其他市场发生，无论这些市场在哪里。这份报告还调查了俄罗斯、土耳其、越南、印度和印尼。中共国是所有行业审查程度最高的国家之一，俄罗斯则被视为拥有世界上最严格的数字政策之一的国家。
 
-- [China-US relations: Blinken says Beijing is bringing more aggression to competitive and cooperative ties](https://finance.yahoo.com/news/china-us-relations-blinken-says-093000019.html)
+中共建有世界上最高、防守最严的网络防火墙，拘禁着十几亿网民。全世界通用的社交媒体、通讯网站和平台，在中共国很多都不能用。花样舔共的脸书小扎也没能在中共国大面积推广脸书。中共国的人权灾难已经达到极致，通过病毒和疫苗事件，中共也在向全世界输出网络监控的理念，并且被很多民主国家所接纳，通过限制网络言论压制民众了解病毒真相和疫苗灾难的声音。美国的言论自由在被剥夺中，美国需要回击中共的网络扩张，夺回美国的网络自由。
+
+新闻参考链接：[美政府机构发表有关中国等国家网络审查制度报告，两党参议员呼吁回击](https://www.voachinese.com/a/ITC-china-censorship-russia-20220127/6415743.html)
+
+*编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-总辑：Irene木木
-编编：Kathy文艺/雪梨
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

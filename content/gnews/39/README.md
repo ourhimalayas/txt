@@ -2,52 +2,43 @@
 ---
 
 
-## 乔•罗根和埃隆•马斯克声援加拿大卡车司机车队
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1921605/)
+## 币安被爆洗钱风险高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1921624/)
 
-#### **【雅典娜观察】，紧贴时代脉搏**
+作者：MOS – 柳是多水土透，纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月21日，据相关媒体报道，经多国政府调查发现，币安公司存在严重的洗钱风险。
 
-整理报道：文扬
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-25.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/6P9S2VODOJO1S7CY7B_B.png)图片来源：Reuters
+币安于2017年在上海成立，截止2020年11月，其现货月交易额超过九千亿美金。由于中共政府对数字货币的限制，币安先后辗转于香港和日本，最后因金融牌照缘由将总部转移至马耳他。
+
+据悉，币安的创始人赵长鹏虽反复声称币安有完善的反洗钱程序，但其与各国政府的通信中，他却隐藏了该公司的所有权架构和内部财务信息。这促使多家监管机构反复警告消费者，使用币安存在严重风险。
+
+此外，由于币安多次拒绝说明其交易所的法律管辖区归属，而该公司的KYC流程因费用问题被严重简化，也让各国无法对其交易进行有效监督。据荷兰央行的调查显示，币安违反该国《洗钱及恐怖分子资助法》进行交易，德国联邦警察也做了类似的相关调查报告。同时，美国国税局也正在就洗钱问题对币安展开调查。
+
+郭文贵先生曾在直播中指出，币安公司的本质就是暗网、深网中犯罪洗钱的工具，超过99%的用户没有通过KYC认证，加之币安与中共勾结、出卖个人信息的犯罪事实，世界各国一定会严惩币安。
+
+参考链接：
+
+- [Crypto giant Binance kept weak money-laundering checks even as it promised tougher compliance, documents show](https://www.reuters.com/investigates/special-report/finance-crypto-currency-binance/)
+- [EXCLUSIVE Islamist attacker’s suspected accomplices used crypto exchange Binance, German police say](https://www.reuters.com/world/europe/exclusive-islamist-attackers-suspected-accomplices-used-crypto-exchange-binance-2022-01-21/)
+- [1/24/2022 Miles Guo:](https://www.gettr.com/post/pqfg145693)
 
 
-当地时间1月28日，据RT电视台报道，被加拿大总理特鲁多嘲笑的卡车司机们的“自由车队”，在加拿大边境以南引起了各界的广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-在特鲁多谴责他们为“边缘少数群体”和“不可接受”之后，特斯拉和SpaceX创始人埃隆·马斯克和著名播客乔·罗根都谈到了加拿大卡车司机驾车穿越全国以抗议政府的疫苗强制令。
+总辑：Irene木木
+编编：Irene木木
+校正/发稿：海阔天空1
 
-周四下午，**马斯克在推特上写道：“这就是加拿大卡车司机的规则”**。
-
-从不列颠哥伦比亚省出发的“自由车队”，预计将在本周末的某个时候到达首都渥太华。起初各大媒体都没有理会，然而，当它接近安大略省时，该车队成了一个政治话题。
-
-在周三的电视讲话中，特鲁多谴责了这些卡车司机，并说他们“不能代表加拿大人”。周四上午，他宣布自己“暴露”于新冠病毒，并将隔离五天——从而错过车队抵达渥太华的时间。尽管他已经接种了疫苗并加强了免疫力，但也感染了病毒。
-
-保守党议员皮埃尔·波利耶夫则指责主流媒体给整个抗议活动抹黑。
-
-“我们不能贬低数以千计的辛勤工作、守法和和平的卡车司机的付出，坦率地说，在过去的两年里，他们用食物填充你们的杂货店货架，用你们依赖的产品充实你们的家，使你们所有人都活着，”波利耶夫说。
-
-“自由车队”的组织者之一、该组织的官方发言人本杰明·迪克特说，他们的活动是和平的、守法的。他告诉《多伦多太阳报》，**车队是为了抗议特鲁多政府强迫司机戴口罩，即使是在卡车内独自一人时也要戴口罩，并要求在穿越美加边境前接受疫苗注射。**
-
-迪克特还否认了关于众筹平台GoFundMe已经冻结了约500万加元的车队捐款的报道，称其为“假新闻”。
-
-乔·罗根是非常受欢迎的播客的主持人，他在周三的节目中也对这支车队给予了关注。他对来自蒙特利尔的一位嘉宾说，他展示了卡车司机（车队）的录像，并称其为加拿大人民正在对政府的疫苗强制进行“反抗”。
-
-“这是一个巨大的卡车车队”，罗根说：**“这显然是一些疯狂的人，五万辆卡车正前往渥太华，抗议特鲁多的疫苗强制。”**
-
-**迪克特****声称,车队的长度超过70公里（43英里）——几乎是目前保持吉尼斯世界纪录的2020年埃及卡车抗议活动规模的十倍。**
-
-原文链接： [Joe Rogan, Elon Musk react to Canadian trucker convoy — RT World News](https://www.rt.com/news/547576-musk-rogan-canada-trucker-convoy/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

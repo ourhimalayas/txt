@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 8:37 AM (UTC)`
+
+1/25/2022 Miles Guo’s Big Announcement: The authorized departure of the US Embassy means that the US has rendered the CCP illegitimate on the world stage. So, the CCP is really doomed!<br/><br/>1/25/2022 文贵重大公告：美国大使馆被授权撤离意味着美国让中共在国际上失去了合法性，中共真的完了！<br/>
+![img](https://media.gettr.com/group38/getter/2022/01/28/08/1ffeeb16-2ce3-a0d2-69b6-038eab4c0c2c/out.jpg)
+
+---
+
 `@miles 1/28/2022 6:08 AM (UTC)`
 
 1/27/2022 Miles Guo: All the mainstream media and major social media platforms will be brought to justice in the future. These mainstream media will all be condemned by the common people after the Winter Olympics. The Tian Mi Mi Movement is making so much progress! Nearly 50 countries are bargaining with the CCP. Pakistan, which used to be the CCP’s closest ally, has almost become the CCP’s enemy.<br/><br/>1/27/2022 文贵直播：未来所有严肃媒体和大社交媒体平台都将接受正义的审判，冬奥会后这些严肃媒体都将被老百姓声讨；甜蜜蜜运动进展太快了，近50国正在跟中共讲数，巴铁已成“巴仇”<br/>
@@ -145,13 +152,6 @@
 
 1月26日， 2017-2022 庆祝爆料革命五周年🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>January 26，2017-2022 Celebration the 5th Anniversary of the Whistleblower Movement 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
 ![img](https://media.gettr.com/group36/getter/2022/01/26/23/67f89b2b-c027-b22e-e163-28b16bd58b96/out.jpg)
-
----
-
-`@miles 1/26/2022 10:25 PM (UTC)`
-
-1/26/2022 Miles Guo’s GETTR: Why did the US authorize the withdrawal of its embassy in Communist China at this time? This decision has nothing to do with the CCP virus, while setting the stage for the legitimacy of the next move of the US. The US Embassy will only return to China after the CCP is finished. Putin's team judges that a war between the CCP and the US is inevitable<br/><br/>1/26/2022 文贵盖特：美国为何在这个时候授权撤离驻华大使馆？这个决定和病毒无关而是为美下一步行动提供了合法支撑，只有中共完蛋了美国大使馆才会回去；普京团队判断中美必有一战<br/><br/>
-![img](https://media.gettr.com/group27/getter/2022/01/26/22/e968bf96-c498-2901-0f4a-77564032a0d8/out.jpg)
 
 ---
 

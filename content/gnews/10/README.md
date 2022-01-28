@@ -2,12 +2,19 @@
 ---
 
 
-## 我们正处于一场关乎健康、再利用药物及信息的战争中
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1922347/)
+## 专案组对喜币感兴趣
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1922525/)
 
-01/23/2022 Dr. Pierre Kory: 我们知道有便宜、安全、高效并且现成的药物可以治疗新冠疾病，但大药厂将这关键信息打压了，结果数百万人死亡。我们必须同医疗暴政作斗争，我们一定会赢！
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：*tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
