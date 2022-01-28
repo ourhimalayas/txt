@@ -2,42 +2,39 @@
 ---
 
 
-## Eglise医生回答贫血是否能服用青蒿素保健品及每日铁摄取量
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920203/)
+## 美国撤离驻华使馆，高情商与低情商
+` zuzu` [轉載自GNews](https://gnews.org/zh-hans/1920257/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2ac7887664c47acdad1be](https://gtv.org/video/id=61f2ac7887664c47acdad1be)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/高情商低情商.jpg)圖片源自網絡
+**作者：英国伦敦喜庄园 文名**
 
-**南希：**说贫血可以吃这个青蒿素保健品吗？刚还有另一位战友问铁一天的摄取量的问题。
+政治家都是高情商中的高情商，说话都是无懈可击，滴水不漏。尤其是外交辞令，冠冕堂皇，每个字都有其深意，听起来丈二和尚摸不着头脑，懂的人才明白真正是啥意思。美国绝对不会直接官宣我们要跟中共断交啦！准备干仗啦！如果真的这样说这世界早就已经毁灭了几千万遍了。跟着七哥学智慧，要读懂外交辞令，第三道大门已经开启！
 
-**Dr.Eglise****：**铁一天的摄取量，成人通常就是说没有严重的缺铁性贫血，10毫克左右一天就够了，你可以10毫克，15毫克都行。但是对于严重贫血的人，那你可以集中一段时间，比如说你吃个两、三个星期，尽量高一点，15毫克、20毫克，然后你再慢慢减量。铁也不能够一直大剂量吃，也会吃出问题来的，因为它会影响一些其他酶的活性。
+政治人物讲话都是绵里藏针，批评也是打哑谜，猜半天才想出来对方说啥，抓不住把柄。格局小啦，路走窄啦，浓浓的老领导画风。这可能就是人家说的高情商低情商吧？
 
-所以身体就是要一个平衡，你任何东西多了少了都会有问题，所以不要走极端，你就是要保持，你的身体的反应能够告诉你是多还是少。就像我们吃青蒿素保健品，我们开始嗜睡自然就会减量，不用其他人告诉我。而且用青蒿素治疗你贫血的话，那你就一定要补铁了，同时你还要去医院查一下你贫血的性质。
+例如：总统的愤怒翻译员President’s Anger Translator …
 
-因为有很多种不同的贫血，你要看是什么原因引起的。缺铁性贫血也是最普遍的，最容易治疗的，其他就是真的要看你原先的病源是什么。
 
-视频听写：青桐；
 
-编辑整理：海贼王M.D.LUFFY；
+美国授权撤离驻华大使馆也是如此操作，官宣说为了免受中共因冬奥会而执行的严格防疫措施而撤出。这都是外交辞令，圆滑，让人抓不住把柄，中共想发作也没有理由搞大。另外民间不会因此产生恐慌。想想看如果美国直接宣布要干仗民间会发生啥？经济股市受冲击，银行挤兑，物资囤积，难民潮，次生灾害。。。不仅中美，全世界都会被波及。没有哪个政治家会如此幼稚地操作。所以老百姓继续被蒙在鼓里，以前的时代是导弹飞过头顶百姓才知道打仗了。现在第三次世界大战是信息战超限战，是仗打完了老百姓才问：打仗了？？？
+只有消息灵通、脑袋聪明又幸运的人，比如我们爆料革命的战友们，在郭先生无数次精准的提前爆料之下才知道世界的真实全貌。君子不立危墙之下，能跑就跑，该撤离就撤离，该回乡下就回乡下，该屯粮就屯粮。
 
-字幕文件制作：小满；
+一切已经开始，2022让我们迎接一个没有共产党的新中国吧！
 
-视频制作及上传：Cindy；
+【文章仅代表作者观点】
 
-G.News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
+[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
+[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
+[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
+[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
+[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
+[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
+[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
+[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
+[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
+[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
+[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
+[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
 
  
 

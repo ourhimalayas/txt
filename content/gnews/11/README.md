@@ -2,39 +2,46 @@
 ---
 
 
-## 美国撤离驻华使馆，高情商与低情商
-` zuzu` [轉載自GNews](https://gnews.org/zh-hans/1920257/)
+## Eglise医生回答青蒿素治疗癌症剂量探究选择
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920312/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/高情商低情商.jpg)圖片源自網絡
-**作者：英国伦敦喜庄园 文名**
+G-TV视频链接：[https://gtv.org/video/id=61f2ad9887664c47acdad1f5](https://gtv.org/video/id=61f2ad9887664c47acdad1f5)
 
-政治家都是高情商中的高情商，说话都是无懈可击，滴水不漏。尤其是外交辞令，冠冕堂皇，每个字都有其深意，听起来丈二和尚摸不着头脑，懂的人才明白真正是啥意思。美国绝对不会直接官宣我们要跟中共断交啦！准备干仗啦！如果真的这样说这世界早就已经毁灭了几千万遍了。跟着七哥学智慧，要读懂外交辞令，第三道大门已经开启！
+**Dr.Eglise****：**其实中共国他们研发这个青蒿衍生物作为癌症治疗，他们是真的研究了很久，他们有个很广泛的一个范围，但是他是照着所有的各种各样的癌症。你知道青蒿素它对于不同的癌症的种类和癌症的这个分期、分型，它的敏感度是不一样的，很难用一个剂量来照顾所有的癌症。
 
-政治人物讲话都是绵里藏针，批评也是打哑谜，猜半天才想出来对方说啥，抓不住把柄。格局小啦，路走窄啦，浓浓的老领导画风。这可能就是人家说的高情商低情商吧？
+所以它这个剂量跨度非常的广，从很微量低甚至低于抗虐原虫的剂量，到高的不可思议的上100倍的，就是高于100倍的那样剂量可以治疗。当然是你这个受试者、志愿者能够承受更大的范围，所以癌症治疗真的是、除非我觉得中共的癌症患者走投无路，就是想以身试药，要不然没有选择，只有等着死神，愿意抗争一把。
 
-例如：总统的愤怒翻译员President’s Anger Translator …
+你自己真的是可以试用，先从抗疟原虫的，至少保证剂量开始，一点点加，我觉得只要你能找到这么一个能够帮助你，甚至你自己可以参与这个治疗计划，然后你找到人给你试药，比方说静脉或者肌肉用药，这还是可以办得到的。
 
+你可以一点点看到变化，因为病人本人是最好的检测这个药物效果的，你自己的个人体验，你这个肿块大小，你只要等两三个月再做一次复查就可以比较，那是最好的临床比较，对吧。如果有CT的话，或者有B超，你可以比较前一次后一次的效果，看你的用药效果，如果用药好的话你可以继续进行，甚至适当加量。
 
+其实临床试验就是这么来的，我们医生要观察，也就是这样得来的数据的变化，就是这么一点点摸索，只不过我们同时可以观察许多病人，或者是相类似，比如放在一个组里面，这样的话临床数据来得快，而且有普遍性。
 
-美国授权撤离驻华大使馆也是如此操作，官宣说为了免受中共因冬奥会而执行的严格防疫措施而撤出。这都是外交辞令，圆滑，让人抓不住把柄，中共想发作也没有理由搞大。另外民间不会因此产生恐慌。想想看如果美国直接宣布要干仗民间会发生啥？经济股市受冲击，银行挤兑，物资囤积，难民潮，次生灾害。。。不仅中美，全世界都会被波及。没有哪个政治家会如此幼稚地操作。所以老百姓继续被蒙在鼓里，以前的时代是导弹飞过头顶百姓才知道打仗了。现在第三次世界大战是信息战超限战，是仗打完了老百姓才问：打仗了？？？
-只有消息灵通、脑袋聪明又幸运的人，比如我们爆料革命的战友们，在郭先生无数次精准的提前爆料之下才知道世界的真实全貌。君子不立危墙之下，能跑就跑，该撤离就撤离，该回乡下就回乡下，该屯粮就屯粮。
+但是对于这个病人个体，你还是要观察你自己的纵向发展，因为这跟时间有关系的，这个肿瘤治疗真的是一个很复杂很复杂问题，我真的希望能够给大家一个满意的答案，大家拿回去就可以用，但是我知道那是不可能的，也没有一个临床医生能告诉你，你用这个剂量保证能好，不会有这样的医生。
 
-一切已经开始，2022让我们迎接一个没有共产党的新中国吧！
+视频听写：青桐；
 
-【文章仅代表作者观点】
+编辑整理：海贼王M.D.LUFFY；
 
-[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
-[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
-[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
-[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
-[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
-[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
-[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
-[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
-[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
-[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
-[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
-[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G.News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 

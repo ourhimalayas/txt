@@ -2,20 +2,42 @@
 ---
 
 
-## 美外交官在中共受辱被肛检测试新冠病毒
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1920156/)
+## Eglise医生回答贫血是否能服用青蒿素保健品及每日铁摄取量
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920203/)
 
-加拿大温哥华扬帆农场    平民正道
+G-TV视频链接：[https://gtv.org/video/id=61f2ac7887664c47acdad1be](https://gtv.org/video/id=61f2ac7887664c47acdad1be)
 
-加拿大媒体[后千禧年]1月26日报道，根据美国[司法观察组织]最近获得的国务院记录显示，美驻中共国外交官曾被迫接受当局的 “新冠病毒”肛门拭子测试。
+**南希：**说贫血可以吃这个青蒿素保健品吗？刚还有另一位战友问铁一天的摄取量的问题。
 
-报道称，这些文件是[司法观察组织]通过《信息自由法》获得并于日前公布的。其中显示，当时至少有一名接受如此羞辱性病毒检测的美国外交官员在其公寓被中共卫生部门人员检查了直肠。为此，其他美国外交官员对中共当局强迫他们进行的肛门拭子测试表示出极端的愤怒，并呼吁美国政府“对此采取反击行动”。
+**Dr.Eglise****：**铁一天的摄取量，成人通常就是说没有严重的缺铁性贫血，10毫克左右一天就够了，你可以10毫克，15毫克都行。但是对于严重贫血的人，那你可以集中一段时间，比如说你吃个两、三个星期，尽量高一点，15毫克、20毫克，然后你再慢慢减量。铁也不能够一直大剂量吃，也会吃出问题来的，因为它会影响一些其他酶的活性。
 
-结合美国政府日前已正式通牒中共政权，从即日起将逐步撤离和关闭其驻北京大使馆和其他地区的领事馆之后，不难得知：中共曾对美国外交官做出的羞辱性肛门检测，或是本次美国政府决绝外交撤离的导火索之一。甜蜜蜜的“以肛灭共”行动或已拉开最后的帷幕。
+所以身体就是要一个平衡，你任何东西多了少了都会有问题，所以不要走极端，你就是要保持，你的身体的反应能够告诉你是多还是少。就像我们吃青蒿素保健品，我们开始嗜睡自然就会减量，不用其他人告诉我。而且用青蒿素治疗你贫血的话，那你就一定要补铁了，同时你还要去医院查一下你贫血的性质。
 
-* * *
+因为有很多种不同的贫血，你要看是什么原因引起的。缺铁性贫血也是最普遍的，最容易治疗的，其他就是真的要看你原先的病源是什么。
 
-编辑： 平民正道    发布：平民正道
+视频听写：青桐；
+
+编辑整理：海贼王M.D.LUFFY；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G.News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 

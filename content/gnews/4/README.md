@@ -2,38 +2,37 @@
 ---
 
 
-## 魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1920342/)
+## 有声|“清零政策”逼逃港金融精英
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920449/)
 
-**编译：16626**
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+迄今为止，香港740万人口累计13,000例新冠感染病例，远低于世界绝大多数国家和地区。但由于落实北京新冠“清零”政策，香港实施了全球最严格的入境规定，只允许本地居民返回，并对来自多数国家的入境人士进行长达三周的强制性自费隔离。即便如此，周日仍然有140例新增感染病例，显然，严格的检疫措施对“清零”并无帮助。目前，没有迹象表明政府会放宽限制。
 
-加拿大魁北克省的LA PRESSE日报（塞尔日•查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日）发表一张题为《奥图尔和卡车司机》的漫画图片。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B125FFCB-3862-4317-983C-97EC32BBA6C2.png)**图片来源：塞尔日·查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日**
-**图片来源：塞尔日·查普洛****SERGE CHAPLEAU, ****LA PRESSE****，2022 年 1 月 27 日**
+猎头公司和行业高管告诉路透，更多的外籍人士因此正在考虑离开香港。全球银行、资产管理公司和企业律师事务所的从业者，也可能在一季度领到年终奖后离职。香港美国商会最近进行了会员调查，超过40%的受访者表示，他们更有可能离开香港，大多数人认为国际旅行限制是首要决定因素。
 
-漫画中的文字（O’TOOLE SE DISSOCIE DE LA DROITE CONSERVATRICE QUI APPUIE LE CONVOI DES CAMIONNEURS）表示：奥图尔O’Toole与支持卡车司机车队的保守派右翼脱离关系。漫画中显示，奥图尔O’Toole 在高速行驶的卡车下面高喊：“停车”！！！
+原文链接：[“清零政策”逼逃港金融精英](https://gnews.org/zh-hans/1914355/)
 
-周一，2022 年 1 月 24 日，一篇题为《[50,000 trucks heading toward Ottawa to demand an end to COVID mandates，https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/)》的文章报道，特鲁多表示卡车司机是在”散布恐惧”。但是，加拿大保守党（CPC）议员皮埃尔·波伊利耶夫（Pierre Poilievre）却说：”新冠病毒已成为权力当局控制取代我们自由的永无止境的借口。让我们的卡车司机开道，恢复所有人的自由。然而，加拿大保守党CPC领导人，艾琳·奥图尔Erin O’Toole，一直对卡车司机自由车队保持沉默，拒绝表示他是否支持他们。
+音频处理/发稿：Daxia
 
-今天，2022年1月27日，一篇题为《[Groupes extrémistes : «vous risquez de nuire aux chances des camionneurs», dit O’Toole，](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/)[https://www.tvanouvelles.ca/2022/01/27/groupes-extremistes–vous-risquez-de-nuire-aux-chances-des-camionneurs–dit-otoole](https://www.tvanouvelles.ca/2022/01/27/groupes-extremistes--vous-risquez-de-nuire-aux-chances-des-camionneurs--dit-otoole) 》的文章报道，加拿大保守党领袖艾琳·奥图尔（Erin O’Toole）在周四上午发表于《多伦多太阳报》的一封信中警告极端组织，不要在接下来的几天内使用暴力进行抗议，并说使用这种方法抗议可能会严重损害卡车司机的职业。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-这就解释了为什么漫画中显示，奥图尔O’Toole 在卡车下面高喊：“停车”！！!从漫画中不难看出，这辆卡车已经不可能停下了。塞尔日•查普洛SERGE CHAPLEAU发表这张漫画图片会不会激发更多的卡车司机参与这个示威活动？最终会出现什么样的局面？让我们拭目以待。
+**更多资讯，更多关注**
 
-另外，Gnews, 2022 年 1 月 25 日发表一篇题为《魁北克省媒体刊登冠以极具政治敏感性标题：“公民不服从”的漫画，[https://gnews.org/zh-hans/1916348/](https://gnews.org/zh-hans/1916348/) 》的文章报道，这位漫画家，塞尔日•查普洛SERGE CHAPLEAU，还发表了一张题为《公民不服从》的漫画图片。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**参考资料**：
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[O’Toole et les camionneurs](https://www.lapresse.ca/debats/caricatures/2022-01-27/o-toole-et-les-camionneurs.php)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**编辑：LILY**
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**发布：歪桑**
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-20220127
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
