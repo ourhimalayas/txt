@@ -2,151 +2,55 @@
 ---
 
 
-## 律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1925796/)
+## 加拿大央行维持关键利率目标不变，但警告加息迫在眉睫
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925818/)
 
-[https://gtv.org/video/id=61f29c6d87664c47acdace6a](https://gtv.org/video/id=61f29c6d87664c47acdace6a)
+作者：Jordan Press
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-469.jpg)
+加拿大央行今天上午10点宣布利率政策，基准利率维持0.25%不变，同时警告称0.25%的利率不会持续太久。央行下一次将在3月2日公布利率政策。
 
-Attorney Thomas Renz
-托马斯·伦茨律师
+据报道，自2020年3月以来，在COVID-19大流行的第一波浪潮中，加拿大经济陷入低迷，300万个工作岗位流失，央行基准利率一直处于最低水平。
 
-All three of these have given me this data
-这三个都给了我这个数据
+央行周三表示，从那时起，尤其是在过去几个月中经济反弹强于预期。央行在一份声明中表示，目前经济正在满负荷运转，劳动力市场已恢复到大流行前的水平。
 
-I have declarations from all three the state is under penalty
-我有来自所有三个受到处罚的声明
+经济恢复使央行决定将不再承诺将基准利率维持在0.25%，并补充说利率将会上升以使通胀回到央行预期的2%的目标。
 
-This is under penalty of perjury
-这是受伪证罪的处罚
+加拿大央行行长Tiff Macklem在声明中说，央行需要提高利率以控制通胀，加拿大人应该预期到利率会上升。Tiff Macklem指出，Omicron变体在国内外迅速传播是导致央行周三推迟加息的主因。
 
-We intend to submit this to the courts
-我们打算将此提交给法院
+CIBC首席经济学家Avery Shenfeld表示，如果加拿大获得有关Omicron变体的更好消息，他预计加拿大央行将在3月加息。
 
-We have substantial data showing that we saw
-我们有大量数据表明我们看到了
+加拿大商会首席经济学家Stephen Tapp表示，虽然央行并未在声明中阐明加息的时间或步伐，但在整体通胀率处于30年高位之际，推迟首次加息的决定将在金融市场引起争议。
 
-for example miscarriages increased by 300% over the five year average almost
-例如流产率比五年平均水平增加了近 300%
+加拿大央行在其最新的经济展望中警告称，今年第一季度通胀率可能会攀升至5%以上，然后会在年底前放缓。
 
-We saw almost 300% increase in cancer over the five year average
-我们看到五年平均癌症发病率增加了近 300%
+到2022年底，价格增长速度预计将放缓，但全年通胀率预计将达到4.2%，高于央行去年10月份预测的3.4%。
 
-Cancer is not being talked about except for by Dr. Ryan Cole
-除了瑞恩·科尔医生外，没有人谈论癌症
+加拿大央行的调查显示，加拿大人现在预测通胀率将在更长时间内保持较高水平。
 
-Thank you, doctor
-谢谢你，医生
+央行估计2021年加拿大经济增长4.6%，比10月份的先前预测下降了半个百分点，现在预计2022年实际国内生产总值增长率为4%，低于此前预测的4.3%。央行表示，今年降低预期的部分原因是由于Omicron的影响、政府暗示支出放缓以及供应链问题将对经济活动产生更大、更广泛的负面影响。
 
-We saw this one’s amazing, neurological
-我们看到了这个惊人的，神经病学的
+央行表示，未来可能会出现更多变体，会影响国内外的限制措施，这也给加拿大经济前景蒙上阴影。
 
-so neurological issues which would affect our pilots
-所以会影响我们飞行员的神经问题
+来源：https://www.cp24.com/news/bank-of-canada-keeps-key-interest-rate-target-on-hold-1.5754888
 
-over 1,000% increase, 1,000 times
-增加超过1,000%，1,000 倍
+（文章仅代表作者个人观点）
 
-Senator Ron Johnson
-参议员罗恩·约翰逊
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-that’s 10 times rate and obviously that rose at
-那是10倍的增加，显然上升了
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
-Attorney Thomas Renz
-托马斯·伦茨律师
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-82,000 per year to 863,000 in one year
-数字从每年82,000例上升到一年内863,000例
+**关注我们**
 
-Our soldiers are being experimented on injured and sometimes possibly killed
-我们的士兵正在接受试验性伤害，有时甚至可能被杀害
+Discord 账号
 
-Dr. Corey, thank you so much for your stance on the corruption
-科里博士，非常感谢你对腐败的立场
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-That’s precisely what it is，they know this
-这正是它的本质, 他们知道这一点
+Gettr 账号
 
-and Senator when these doctors are attacked
-而且参议员，当这些医生受到攻击时
-
-not necessarily the people in this room, I’m not given names they call me
-不一定是在这屋里的人，我不会给出名字，他们会打电话给我
-
-I’m the one dealing with the medical boards
-我是与医疗委员会打交道的人
-
-I’m the one watching the witch hunts
-我是那个关注那么试图找茬的人
-
-I’m the one fighting them off and I’m the one telling them where to go
-我是那个与他们战斗的人，我是那个告诉他们去哪里的人
-
-I’m gonna keep doing that, Senator
-我会继续做下去，参议员
-
-we also have let me give you this last thing and then I’ll shut up and get out of your way
-我们也有，让我给你讲最后一件事，然后我就闭嘴让开
-
-9.28, 2021 project Salus weekly report project
-2021年9月28日的《萨卢斯项目》的每周报告中
-
-Salus is a defense defense department initiative where they report and content
-萨卢斯是一个国防部门的倡议，他们报告和内容
-
-they take all this data that doesn’t exist supposedly
-他们获取了所有这些本应不存在的数据
-
-and they give it to the CDC
-他们把它交给疾控中心
-
-They’re watching these vaccines
-他们在那一天和那一天前后
-
-on that day and around that date
-观察这些疫苗
-
-I have numerous instances where Fauci in that entire crew were saying it’s a crisis unvax
-我有很多例子，福奇的整个小组成员都说这是一场危机
-
-It’s 99% unvaxxed in the hospital, in Project Salus in the weekly report
-在《萨卢斯项目》的每周报告中显示，99%住院的都是未接种疫苗的
-
-the DoD document says specifically 71% of new cases are in the fully vaxxed
-在国防部的文件中特别的说71%的新增感染都是完全接种过疫苗的
-
-and 60% of hospitalizations are in the fully Vax
-60%的住院治疗的是完全接种的
-
-This is corruption at the highest level
-这是最高级别的腐败
-
-We need investigations
-我们需要调查
-
-The secretary of defense needs investigated, the CDC needs to be investigated
-国防部长需要调查，疾控中心需要调查
-
-**原视频链接:** [https://twitter.com/\_yvonneburton/status/1485706103770034179?s=24](https://twitter.com/_yvonneburton/status/1485706103770034179?s=24)
-
-Date:01/25/2022
-**原视频标题:** Attorney Thomas Renz speaks up that the covid vaccine has done a lot of damage for the people
-律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害
-原视频日期：2022/01/25
-原视频链接: https://twitter.com/\_yvonneburton/status/1485706103770034179?s=24
-任务编号：3591
-视频时间段 : 0:00-2:20
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,36 +2,57 @@
 ---
 
 
-## 有声|日议员提议派高官赴台湾 首相未否定
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925917/)
+## 加拿大已发现 BA.2 病例 ——Omicron 子变体
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925941/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
-1月26日，日本首相岸田文雄在众议院进行答询时，被自民党中谷真一议员问及日台关系深化相关问题时，岸田文雄表示，与台湾相关的议题，日本虽有基本立场，但仍须努力深化日台关系，加强交流。
+作者：Saba Aziz
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-471.jpg)
+自从世卫组织报告发现了Omicron变体亚系BA.2（又被称为Omicron妹妹）以后，短时间内在全球47个国家/地区报告了超过10,000例病例。加拿大公共卫生局（PHAC）周二证实，到目前为止，加拿大已发现51例BA.2变体病例，感染者主要来自国际旅客。
 
-中谷真一还提出，日本应与蔡英文政府拉近距离，派遣外交高官赴台，推动各项政策交流。日本自1972年与中共国外交正常化后，尚未与台湾建交。而对于中谷真一的这项提议，岸田文雄也未予以否定。
+据报道，随着COVID-19 Omicron浪潮在包括加拿大在内的世界大部分地区达到顶峰的迹象，科学家们正在密切关注在一些国家迅速传播的子变体。
 
-原文链接：[日议员提议派高官赴台湾 首相未否定](https://gnews.org/zh-hans/1923181/)
+Omicron的BA.2亚系于去年11月首次被发现，周五被英国卫生安全局 (UKHSA) 指定为正在调查的变体。
 
-音频处理/发稿：Daxia
+UBC传染病专家Horacio Bach博士说：这种病毒现在在全球范围内繁殖得如此之多，以至于会出现一个新的变体，并且已经有了与Omicron变体相关的子变体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+Omicron变体B.1.1.529有四个子系：BA.1、BA.1.1、BA.2 和 BA.3。
 
-**更多资讯，更多关注**
+据世界卫生组织 (WHO)称，迄今为止，BA.1占全球Omicron病例的绝大部分。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+蒙特利尔大学的病毒学家Levon Abrahamyan说，所有病毒都会发生变异，并且具有与原始变体不同的基因组成但具有共同起源的亚变体。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+PHAC发言人Anne Genier说，BA.2与BA.1有许多相似之处，但确实存在差异，包括一些可能影响传播性、检测和可能的免疫逃逸的突变。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+早期分析表明，丹麦、挪威等国BA.2病例迅速飙升。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+挪威公共卫生研究所在其每周报告中说：与最初的Omicron病毒BA.1相比，BA.2正在强劲增长，该病毒的特性尚不清楚，只是它比BA.1更具传染性。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+BA.2被一些科学家称为“隐形”Omicron，因为它更难在PCR检测中被检测到。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+随着越来越多的BA.2病例被发现，BA.2似乎并不比BA.1能引起更严重的疾病。但UKHSA 的COVID-19事件主管Meera Chand博士表示，目前数据有限，下结论为时过早。
 
+丹麦Statens Serum Instiut的初步分析显示，与BA.1相比，BA.2的住院率没有差异。
 
+来源：https://globalnews.ca/news/8538300/omicron-subvariant-ba-2-explained/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,36 +2,47 @@
 ---
 
 
-## 有声|面对中共制裁 立陶宛表示无更名计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925905/)
+## 分诊的病人在Red Deer医院急诊室等待治疗时死亡
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925910/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
-针对因台湾在立陶宛设立代表处的中文名称，中共持续对立陶宛进行制裁一事，立陶宛外长蓝斯柏吉斯于26日表示，没有变更台湾代表处名称的计划。台湾驻立陶宛代表也表示，未曾接获变更驻立陶宛台湾代表处的中文或英文名称的要求。
+作者：Sean Amato
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-470.jpg)
+在Omicron病毒肆虐下，阿尔伯塔省医疗系统已接近崩溃，阿省Red Deer医院一名患者看急诊等了14小时仍未得到医护服务，最终死在医院，阿省已经就此事展开调查。
 
-当天，台湾驻荷兰代表接受荷媒专访，强烈批评中共国制裁立陶宛企业，胁迫欧盟企业撤出立陶宛等行动，并强调在两岸关系方面，中共的胁迫不会动摇台湾捍卫主权、民主和自由的决心。
+据报道，阿尔伯塔省卫生厅发言人周二证实，周日有一人在Red Deer Regional Hospital Centre等待床位时死亡。
 
-原文链接：[面对中共制裁 立陶宛表示无更名计划](https://gnews.org/zh-hans/1923191/)
+发言人Kerry Williamson告诉CTV新闻：患者当时已被分流，随后由急诊科工作人员重新评估，并正在急诊室等待进一步治疗。Kerry Williamson没有提供患者的性别或年龄，也没有说明患者在医院内的确切死亡地点。只说“我们的心与这名患者的家人、朋友和亲人同在。”
 
-音频处理/发稿：Daxia
+Kerry Williamson表示，我们承认，由于需求激增和重病患者的增加，周末RDRHC的等待时间很长。我们不知道这起事件是否因急诊室等待时间过长的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+他补充说，急诊室“人员配备齐全”，目前正在进行调查。
 
-**更多资讯，更多关注**
+在周二下午的COVID-19简报会上，阿省卫生厅长Jason Copping被问及死亡事件，但他说他不了解更多的细节。他说我非常认真地对待这件事，已经向AHS索要一份报告，他们正在调查此事。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+厅长承认阿尔伯塔省中部的医疗保健存在“基础设施不足”的问题，但表示他无法提供任何新的信息来说明如何解决这一问题。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+与此同时，阿省还发生救护车短缺问题。一名男孩跌伤断了脚骨，其母致电911，但45分钟内仍没等到救护车，男孩脸色已变紫，其母再次致电911要接线生改派消防车将其儿子送院，据悉这已不是第一次出现救护车不足而要消防车送病人去医院的事情。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+来源:https://edmonton.ctvnews.ca/triaged-patient-dies-while-awaiting-treatment-inside-red-deer-emergency-room-1.5754160
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章仅代表作者个人观点）
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

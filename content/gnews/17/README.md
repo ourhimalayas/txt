@@ -2,30 +2,38 @@
 ---
 
 
-## 2022/01/27 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1925819/)
+## 有声|爆料革命战友谈美国撤回中共大使馆的意义
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925820/)
 
-1. 1月24日，四川成都。在出现给大蒜苗做核酸的荒唐景象后，成都又出现为共享单车随机做核酸检测的画面。
-2. 1月26日，中共推行的防疫政策给了政府无限的权力，市民持有核酸证明，被强制要求重新检测一遍！中共不会给百姓任何反抗质疑的权利。
-3. 1月26日，重庆。下高速的要排长队做核酸检测、不做核酸不准走！
-4. 江西偏远农村小伙住10年公司宿舍，省吃俭用10年才能在大城市买一套房。中共国的高房价让中国普通年轻人生活的方向只能是买房。
-5. 1月26日，广东东莞。一医院年会聚餐挂横幅“手术室里全是钱”引发网络热议。
-6. 山东菏泽，网友拍下心酸一幕。老奶奶交不起治病的医药费，坐在一旁独自哭泣！
-7. 1月24日，河南洛阳。男子为了省300块的路费，雨雪天气步行30公里回家。
-8. 中共利用高科技手段监控百姓的手段十分成熟，视频为高速公路上行驶的私家车被政府实时监控。
-9. 老年人没有智能手机，无法扫健康码在银行取不了钱！
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月25日郭文贵先生向全世界公布美国政府决定撤离美利坚合众国驻中共国北京大使馆后，爆料革命的战友们也在直播连线中谈论了这一举动的重大意义。
+
+战友们表示，这或将意味着，继二战之后，美国再次选择站在正义的一边，并且将和中国人民站在一起。同时，撤离大使馆也是对中共政权的巨大否定，特别是赶在冬奥会前的时间点，这预示着美国此举将成为引发全球灭共浪潮的第一步。
+
+郭先生对此总结道，美国驻北京大使馆一直被中共内部认定为定海神针。如今，这个定海神针的撤离意味着美国已经在全世界范围内认定中共政府不合法。自此，对抗中共的一方将必然成为正义的一方，这一结论影响深远且巨大。
+
+原文链接：[爆料革命战友谈美国撤回中共大使馆的意义](https://gnews.org/zh-hans/1918920/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
