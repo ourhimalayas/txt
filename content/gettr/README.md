@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 1:28 AM (UTC)`
+
+1月27号，Hcoin To the Moon MV上线第49天位列澳门🇲🇴iTunesMV榜首🥇，累计共36次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共32次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1918971/<br/><br/>Jan 27，2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 49 Day of Launch, hit No .1 for 36 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 32 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 1/28/2022 1:05 AM (UTC)`
 
 1/27/2022 Miles Guo: The shameless Zhang Gaoli gave Peng Shuai many of the fake artworks and antiques that he received. Peng Shuai has lost her freedom and is under surveillance. The CCP has issued an order to eliminate her after the Winter Olympics.<br/><br/>1/27/2022 文贵直播：不要脸的张高丽把他收到的很多假艺术品和假古董都给了彭帅；彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失！<br/>
@@ -146,12 +152,6 @@ The following questions are worth pondering after watching this interview with D
 
 1月26号：尊敬的战友们好！在爆料革命五周年之际，文贵衷心的感谢，🙏🙏🙏🙏🙏🙏🙏🙏🙏亿万个战友的付出……和文贵一起奋斗消灭这个邪恶的中国共产党……一切都已经开始。
 ![img](https://media.gettr.com/group5/getter/2022/01/26/14/aebf84b8-d2d8-2c21-64a4-e401422ebcec/out.jpg)
-
----
-
-`@miles 1/26/2022 1:26 PM (UTC)`
-
-1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告<br/><br/>January 26, 2022 CNN news: US embassy in China authorised to departure which verifies Miles Guo’s important announcement yesterday.<br/><br/>https://www.cnn.com/2022/01/26/china/china-us-embassy-authorize-departure-intl-hnk/index.html
 
 ---
 
