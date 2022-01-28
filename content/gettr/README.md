@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 10:36 AM (UTC)`
+
+Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Beijing that will be authorized by the U.S. government is a huge and monumental step for the New Federal State of China #NFSC. It's something obviously the NFSC as an alternative governing entity apparatus mechanism for the Chinese people. <br/><br/>The Thank You letter from the NFSC to President Joe Biden and Secretary of State Anthony Blinken very specifically calls out the Chinese Communist Party as being illegitimate, not representing the Chinese people and being a transnational criminal organization.<br/><br/>班农先生：经美国政府授权立即撤出美国驻北京大使馆所有外交人员是新中国联邦迈出的巨大且具有里程碑意义的一步。显然，新中国联邦是管理中国人民的另一个选择。新中国联邦致拜登总统和布林肯国务卿的感谢信特别指出中国共产党是非法的政权，不代表中国人民，是一个跨国犯罪组织。
+![img](https://media.gettr.com/group9/origin/2022/01/28/10/3af609f4-d827-c3b4-75bc-b5a92ed7ef6a/out.jpg)
+
+---
+
 `@miles 1/28/2022 8:40 AM (UTC)`
 
 1/25/2022 Miles Guo’s Big Announcement: President Biden and Secretary Blinken’s decision to authorize the departure of the US embassy in Communist China is by far the best decision for the Chinese people that the US has ever made. This decision is of paramount significance, and the resultant domino effect will pave the way for the “Tian Mi Mi Movement” to occur in all the embassy districts around the Second Ring Road in Beijing.<br/><br/>1/25/2022 文贵重大公告：拜登总统和布林肯国务卿授权撤离驻华大使馆是美国迄今对中国人所做出的最好的决定，其意义极为重大，它所导致的多米诺效应将让甜蜜蜜运动发生在北京二环的所有使馆区<br/>
@@ -145,13 +152,6 @@
 
 1/26/2022 Miles Guo’s GETTR: Judging by the way how the CCP deals with the U.S. authorized departure of its embassy in Communist China, the CCP is finished! Some country uses the withdrawal of its embassy as a leverage to demand an investigation into the origin of the CCP virus and the Xinjiang genocide. The first domino has fallen, and more countries will start withdrawing their embassies in Beijing.<br/><br/>1/26/2022 文贵盖特：从处理美国授权撤离驻华大使馆的方式来看，中共已经完了！某国以撤大使馆为由要求调查病毒起源和新疆种族屠杀；第1张多米诺骨牌已倒下，将有更多国家开始撤馆<br/><br/>
 ![img](https://media.gettr.com/group44/getter/2022/01/27/01/a9af700c-1b97-cc58-e5b2-d1e6b3b0fe6e/out.jpg)
-
----
-
-`@miles 1/27/2022 1:18 AM (UTC)`
-
-1/26/2022 Miles Guo’s GETTR: Forty embassies in Beijing are going against the virus testing and quarantine implemented by the CCP, and the embassies of more than 20 countries have said they would depart and won’t come back. The major operation by the US targeting the CCP has been completed, and other countries will follow. The New Federal State of China unites the world to take down the CCP, but we won't take credit for it.<br/><br/>1/26/2022 文贵盖特：40国使馆拒绝中共搞病毒检测和隔离，20多个使馆说要撤且有去无回；美国针对中共的大行动已完成，各国行动将紧随其后；新中国联邦团结全球灭共，但咱不揽功<br/>
-![img](https://media.gettr.com/group24/getter/2022/01/27/01/c4fa0f18-c5c6-6dc6-f957-f196fe3e0caf/out.jpg)
 
 ---
 
