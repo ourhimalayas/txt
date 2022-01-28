@@ -2,23 +2,25 @@
 ---
 
 
-## 多数欧盟研究员称欧中关系将继续恶化
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1924023/)
+## 外媒质疑中共国疫情数据的真实性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1924064/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山 – 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月26日，据相关媒体消息显示，德国智库日前公布了对欧盟850名中共问题研究员调查访问的结果。其中，有七成的研究员预期，欧洲与中共的关系将在今年内将继续恶化，另有一成研究员则认为，双方关系甚至会严重恶化。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-31.jpg)
-调查指出，受访者大多不看好欧洲与中共在经贸关系方面的发展。受访者表示，先是“欧中投资协定”在2021年被欧洲议会否决，再加上中共近期因台湾问题对立陶宛实施的经济胁迫，这些都将造成欧洲与中共关系的恶化。另外，受访者也提到，此次北京冬奥会将对中共政府产生负面效应。
+1月26日，据西方媒体报道称，自中共病毒爆发以来，近一年内，中共政府从未报告过一起中共国内民众因感染病毒而死亡的案例，这引起了相关媒体对中共国疫情数据准确性的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-31.jpg)
+报道指出，尽管中共国大部分地区近期爆发了严重的疫情，但在此期间，当地却没有报告任何一起死亡病例，加之中共政府反复强调的所谓“清零”政策，这让世界在质疑中共国病毒数据准确性的同时，又对该国疫情有着强烈的担忧。
 
-这些研究员们还谈到，当前欧洲在中共问题上应该关切的重点在于，提高欧盟的经济安全、强化气候保护的合作、批评中共的信息操控及虚假信息，以及提出中共人权问题的相关议题。
+据中共国家卫生健康委员会提供的数据显示，截止当天，中共国内仅有5700起病毒死亡案例，是世界上报告死亡率最低的国家之一。
 
-参考链接：[柏林智庫：歐洲對中關係將惡化 北京冬奧帶來負面影響](https://www.cna.com.tw/news/aopl/202201270023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+对此，评论人士分析称，中共政府极力掩盖其病毒死亡真实数据的原因有二，其一在于为将来病毒溯源做好推卸责任的准备，其二则是向世界炫耀其所谓的“清零”政策行之有效。然而，中共荒唐的造假数据最终必将引起世界的质疑和关注。
+
+参考链接：[China Hasn’t Reported A Single Covid Death In A Year, As Questions Remain About Accuracy Of Its Data](https://www.forbes.com/sites/siladityaray/2022/01/26/china-officially-hasnt-reported-a-single-covid-death-in-a-year-as-questions-remain-about-accuracy-of-its-data/?sh=2fd485a33d62)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-总编: 文特
-编辑：Irene木木
+总编: 雪梨
+编辑：百香果
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

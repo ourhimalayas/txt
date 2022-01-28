@@ -2,19 +2,20 @@
 ---
 
 
-## 台湾金控的无知
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1923905/)
+## 加拿大央行维持低利率以图缓解经济危机
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1923991/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+采编/编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/04-image-8.jpg)
+据加拿大[CTV新闻]1月26日报道，该国央行行长麦克莱姆当天公布其基准利率将继续保持在0.25%的低谷水平。并表示：当前采取的低利率政策将是短暂的，预期不久就会通过提高利率来降低高企的通胀率。
 
-发布：陶子
+报道称，在加拿大央行的该决定被公布后，加元和国债收益率均应声下跌。金融界因此预测未来12个月内基准利率将会有大幅提升。但也同时指出，如果等到3月份以后再开始加息，则为时已晚，并且对该国经济持续衰退和通胀率加速攀升的影响将是微乎其微。
 
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+校对编辑：硫酸羟氯喹64
+
+发稿： 苦尽甜来 (文來）
+
+[原文链接](https://www.ctvnews.ca/business/bank-of-canada-holds-key-interest-rate-but-warns-of-looming-hikes-1.5754875)
 
  
 

@@ -2,27 +2,37 @@
 ---
 
 
-## 韩国大选第3候选人安氏 不将外交利用在国内政治上
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1924041/)
+## 有声|爱尔兰22日起取消几乎所有的中共病毒疫情限制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1924090/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-43.jpg)
-图片来源于本文链接
+配音：香草山农场 – 纳米
 
-3月韩国大选的保守中立第3势力“国民之党”候选人，安哲秀代表1月28日在首尔会见外国媒体，就韩日关系强调说:“绝对不会为了国内政治利用外交。”
 
-对于韩日间悬而未决的征用工问题，对日本企业造成实际损失的“现金化”程序，他表示:“虽然很难推翻判决，但是可以保留执行，再（与日本方面）智慧地一起解决问题。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月21日，爱尔兰总理迈克尔·马丁在全国讲话中表示，从22日起，取消几乎所有的中共病毒疫情限制措施。
 
-具有医生、IT风险企业家、大学教授经历的安氏，自我介绍了，在美中居住经验和在东京设立企业事务所的过往，“有着其他候选人比较不了丰富的全球经验。”
+22日起，爱尔兰的酒吧和餐馆，不再需要在晚上 8 点关门，不再要求提供“疫苗护照”；此外，保持社交距离的要求、室内外活动的人数限制也将被取消。在 2 月底之前，人们仍将被要求在公共交通工具和商店中佩戴口罩。
 
-信息来源：
+之前爱尔兰实施了欧洲最严厉的封锁制度，对旅行和招待业实施了一些持续时间最长的限制措施，也是欧洲新冠疫苗加强针接种率最高的国家之一。但上周，爱尔兰新冠发病率在欧洲排名第二。
 
-[外交を国内政治に利用せず　第３候補安氏が会見―韓国大統領選](https://www.jiji.com/sp/article?k=2022012800876&amp;g=int)
+文字版原文：[爱尔兰22日起取消几乎所有的中共病毒疫情限制](https://gnews.org/zh-hans/1918903/)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

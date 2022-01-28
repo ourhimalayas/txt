@@ -2,40 +2,40 @@
 ---
 
 
-## 奥地利解除对未接种疫苗居民的封锁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1918028/)
+## 完全接种疫苗的马耳他达到创纪录的COVID-19死亡率
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1917860/)
 
 **翻译： Jenny Ball**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip13奥地利解除对未接种疫苗居民的封锁.png)赶上成为头条新闻的发展中的故事。
-ABCNews.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip09-4.png)图片来源：thegatewaypundit.com
 
-奥地利总理周三宣布，奥地利将于下周一结束对未接种疫苗的居民的封锁——即在该国 COVID-19 疫苗授权生效的前一天。
+如果您对马耳他 COVID-19 情况的印象建立在该国的新闻头条上，您会认为情况正在好转：人们很高兴，病例在下降，疫苗正在发挥作用，生活回到了新的反乌托邦常态。
 
-奥地利总理卡尔·内哈默（Karl Nehammer）表示，该措施于 11 月推出，不再需要，因为医院重症监护病房不存在过度紧张的威胁。
+**可悲的是，事实并非如此， 事情其实很糟糕**。
 
-据奥地利通讯社 APA 报道，内哈默说，数周以来，对未接种疫苗的人进行封锁一直是“许多人抱怨的一项措施，但出于卫生政策的原因，这是不可避免的”。
+有多糟糕？ 如果您对数字感兴趣，世界模范Covid主义公民（Covidian）刚刚达到最高的 COVID-19 死亡率，尽管它是地球上接种疫苗最多的国家之一，超过 85% 的人口完全接种了疫苗，94% 的人至少服用一剂。
 
-2 月 1 日，欧洲首例针对成人的 COVID-19 疫苗授权——将在这个阿尔卑斯山小国生效。官员们表示，这项授权是必要的，因为疫苗接种率仍然太低。他们说，这将确保奥地利的医院不会因 COVID-19 患者而不堪重负。迄今为止，该国75.4%的居民已全面接种疫苗。
+这些是惊人的疫苗接种统计数据。大多数西方国家的领导人只能梦想得到这样的数字，但人们正在以创纪录的数字死亡。
 
-“尽管有所放松，但仍需谨慎：我呼吁所有 150 万未接种疫苗的人接种疫苗，不要等待强制接种疫苗生效，”总理在推特上写道。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/maertempsnip10，完全接种疫苗后，马耳他COVID-19-死亡率曲线图.png)图片来源：thegatewaypundit.com
 
-一旦授权生效，当局将写信给每个家庭，告知他们新规则。
+**还记得让每个人都接种疫苗会使生活恢复正常的谎言吗？** 马耳他遵守了规定，生活并没有恢复正常。该国于 1 月 13 日实施了新的“COVID-19 规则”。正如《马耳他时报》报道的那样，公民必须在餐馆、酒吧、电影院等各种场所出示他们的证件（疫苗护照）。 通行证需要表明您已经接受了最新的加强剂。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip11，完全接种疫苗后，马耳他的COVID死亡率创纪录.png)图片来源：thegatewaypundit.com
+据报道，在新的“COVID-19 规则”生效期间，许多餐厅决定关闭，其中约 14% 的餐厅预计将永久关闭。
 
-从3月中旬开始，警方将在例行检查中开始检查人们的疫苗接种情况；无法出示疫苗接种证明的人，将被要求以书面形式出示，否则将被处以最高 600 欧元（676 美元）的罚款。
+去年，马耳他是疫苗合规的光荣典范，它遵守了所有规则，**并相信了所有谎言**，现在该国正在经历最严重的 COVID-19 死亡率，封锁已经恢复，但生活还没有恢复正常。 这一切都不足为奇。Covid主义邪教是一种死亡邪教，它憎恨人类，它讨厌生活，它在死亡和破坏中走下神坛，马耳他就是一个光辉的例子。
 
-内哈默本月早些时候表示，如果当局判断该国的疫苗接种进展仍然不足，他们将向仍未接种疫苗的人发送提醒。如果即使这样也不起作用，人们将被安排接种疫苗预约，如果他们不遵守，将被罚款。官员们希望他们不需要使用最后一种措施。如果人们对自己的处罚提出异议，并启动完整的诉讼程序，罚款可能高达 3,600 欧元。
-
-**新闻来源**：[abcnews.go.com][Austria to lift lockdown for unvaccinated residents](https://abcnews.go.com/Health/wireStory/austria-lift-lockdown-unvaccinated-residents-82480785)
+**新闻来源**：[thegatewaypundit.com][Fully Vaccinated Malta Reaches Record COVID-19 Death Rate](https://www.thegatewaypundit.com/2022/01/fully-vaccinated-malta-reaches-record-covid-19-death-rate/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
 * * *
 
 ***审核：文乐
 校对：小东
 发布：信心满满***
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-4.jpeg)
-**
-**
+
+
 
  
 
