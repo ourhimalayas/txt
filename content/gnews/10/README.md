@@ -2,25 +2,32 @@
 ---
 
 
-## 安省家庭护理行业人员严重短缺
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920498/)
+## 未来的喜联储，绝对天下无敌（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920514/)
 
-加拿大温哥华扬帆农场 自由法兰西
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（上）.jpg)
+我们喜联储会推出纯金的金币。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-48-edited.jpg)图片来源：TNH
+这个金币最大额可能是100万美元，从100 美金到100万美元。
 
+这个金币有绝对的加密技术。 这个加密到什么程度?是10000%的给你承担责任，没有任何人可以破解。怎么交给你呢?通过你的生物识别加技术识别。 你就可以换现金。
 
-据加拿大[CTV新闻]1月24日报道，[安省家庭护理协会]近日表示，疫情和疫苗强制接种所导致的工作人员严重短缺已使该行业陷入困境。
+我们有专门的第三方HBank，HBank专门提供兑现，你要什么货币都给你兑付。 你想提黄金，让你提到世界上最安全最保障最认可的黄金，这就是，这就是咱们这个未来的喜联储，绝对天下无敌的。
 
-据悉，在疫情之前，95%的家庭护工服务申请都能被完成，但现在该数字已经降至56%。此外，由于疫苗接种政策以及“奥密克戎”疫情的爆发，目前已有约4,000名护工离开了工作岗位，而直接给安省医院带来了额外的压力。
+发布：于white
 
-报道称，尽管安省政府已承诺在近期为家庭护理行业追加5亿加元的预算以扩大服务范围，但当局正在强施的各项防疫政策，特别是疫苗护照规定，都将阻碍该行业的进一步恢复。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-* * *
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-采编：文莱,  编译撰稿：自由法兰西 ,校对编辑,发稿：硫酸羟氯喹64
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-原文链接： [https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893](https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,25 @@
 ---
 
 
-## 天空WiF与量子通信
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920480/)
+## 安省家庭护理行业人员严重短缺
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920498/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/天空WiFi与量子通信.jpg)
-2021年年底，天空WiFi基本上成为世界上主流。
+加拿大温哥华扬帆农场 自由法兰西
 
-量子技术的核心叫量子计算，量子计算接下来就是量子通信。量子计算和量子通信最核心的问题就是量子。量子通信里边它也是需要地面上的载体，光纤还有接收站，它是需要地面配合的，就是因为这个成本太高，因为量子技术是无法与现在的传统上的基站通讯，必须重新建设接收站，这个成本太高了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-48-edited.jpg)图片来源：TNH
 
-但是量子技术相当于什么概念呢?战友们就相当于咱们过去使用的那个模拟大哥大和今天的这个iPhone手机的差距那么大，比这还要大的多的多。
 
-发布：于white
+据加拿大[CTV新闻]1月24日报道，[安省家庭护理协会]近日表示，疫情和疫苗强制接种所导致的工作人员严重短缺已使该行业陷入困境。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+据悉，在疫情之前，95%的家庭护工服务申请都能被完成，但现在该数字已经降至56%。此外，由于疫苗接种政策以及“奥密克戎”疫情的爆发，目前已有约4,000名护工离开了工作岗位，而直接给安省医院带来了额外的压力。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+报道称，尽管安省政府已承诺在近期为家庭护理行业追加5亿加元的预算以扩大服务范围，但当局正在强施的各项防疫政策，特别是疫苗护照规定，都将阻碍该行业的进一步恢复。
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+* * *
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+采编：文莱,  编译撰稿：自由法兰西 ,校对编辑,发稿：硫酸羟氯喹64
 
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接： [https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893](https://toronto.ctvnews.ca/staffing-shortages-hitting-beleaguered-ontario-home-care-sector-organization-says-1.5751893)
 
  
 

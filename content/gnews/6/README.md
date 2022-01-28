@@ -2,32 +2,25 @@
 ---
 
 
-## 未来的喜联储，绝对天下无敌（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920524/)
+## 美外交官在中共受辱被肛检测试新冠病毒
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920548/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/01/未来的喜联储绝对天下无敌（下）.jpg)
-这里面你怎么解决电的问题?
+加拿大温哥华扬帆农场 硫酸羟氯喹64
 
-这种技术的核心最重要就是IBM的2nm那个芯片，这个芯片的安全性是军事级别，IBM的2nm芯片没有任何人可以破解。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-49-edited.jpg)图片来源：TNH
 
-这个芯片未来是跟我们的格芯一起生产，大家更懂了是吧。 从芯片的生产到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人管得了。
 
-这就是太空币，数字货币最大的问题支付、兑现、安全和保密，我们这叫中心化的币和去中心化的交易系统和去中心化的技术，天下无敌，这就是技术的核心的核心。
+加拿大媒体[后千禧年]1月26日报道，根据美国[司法观察组织]最近获得的国务院记录显示，美驻中共国外交官曾被迫接受当局的 “新冠病毒”肛门拭子测试。
 
-发布：于white
+报道称，这些文件是[司法观察组织]通过《信息自由法》获得并于日前公布的。其中显示，当时至少有一名接受如此羞辱性病毒检测的美国外交官员在其公寓被中共卫生部门人员检查了直肠。为此，其他美国外交官员对中共当局强迫他们进行的肛门拭子测试表示出极端的愤怒，并呼吁美国政府“对此采取反击行动”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+结合美国政府日前已正式通牒中共政权，从即日起将逐步撤离和关闭其驻北京大使馆和其他地区的领事馆之后，不难得知：中共曾对美国外交官做出的羞辱性肛门检测，或是本次美国政府决绝外交撤离的导火索之一。甜蜜蜜的“以肛灭共”行动或已拉开最后的帷幕。
 
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+* * *
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+采编：文莱            编译撰稿，发稿：硫酸羟氯喹64
 
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china](https://thepostmillennial.com/us-diplomatic-officials-forced-to-undergo-anal-covid-tests-in-china)
 
  
 

@@ -2,38 +2,27 @@
 ---
 
 
-## 魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1920342/)
+## 最好的教育是让人有兴趣学习
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1920424/)
 
-**编译：16626**
+什么叫教育？就是把人的兴趣激发出来，然后最重要的事情是让人找到自己，把一个人的兴趣能引起来是最关键的。
 
-加拿大魁北克省的LA PRESSE日报（塞尔日•查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日）发表一张题为《奥图尔和卡车司机》的漫画图片。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/B125FFCB-3862-4317-983C-97EC32BBA6C2.png)**图片来源：塞尔日·查普洛SERGE CHAPLEAU, LA PRESSE，2022 年 1 月 27 日**
-**图片来源：塞尔日·查普洛****SERGE CHAPLEAU, ****LA PRESSE****，2022 年 1 月 27 日**
+**【郭先生直播摘要】**** 2022.1.24 ****最好的教育是让人有兴趣学****习**
 
-漫画中的文字（O’TOOLE SE DISSOCIE DE LA DROITE CONSERVATRICE QUI APPUIE LE CONVOI DES CAMIONNEURS）表示：奥图尔O’Toole与支持卡车司机车队的保守派右翼脱离关系。漫画中显示，奥图尔O’Toole 在高速行驶的卡车下面高喊：“停车”！！！
+**郭先生****:**
 
-周一，2022 年 1 月 24 日，一篇题为《[50,000 trucks heading toward Ottawa to demand an end to COVID mandates，https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/)》的文章报道，特鲁多表示卡车司机是在”散布恐惧”。但是，加拿大保守党（CPC）议员皮埃尔·波伊利耶夫（Pierre Poilievre）却说：”新冠病毒已成为权力当局控制取代我们自由的永无止境的借口。让我们的卡车司机开道，恢复所有人的自由。然而，加拿大保守党CPC领导人，艾琳·奥图尔Erin O’Toole，一直对卡车司机自由车队保持沉默，拒绝表示他是否支持他们。
+什么叫教育？就是把人的兴趣激发出来，然后最重要的事情是让人找到自己，张开嘴、迈开腿、睁开眼。最好的教育，就是离开学校后把所有学校的东西全忘掉，然后自己找到了自己，这就是最好的教育，把一个人的兴趣能引起来是最关键的。
 
-今天，2022年1月27日，一篇题为《[Groupes extrémistes : «vous risquez de nuire aux chances des camionneurs», dit O’Toole，](https://www.lifesitenews.com/news/50000-trucks-heading-toward-ottawa-to-demand-an-end-to-covid-mandates/)[https://www.tvanouvelles.ca/2022/01/27/groupes-extremistes–vous-risquez-de-nuire-aux-chances-des-camionneurs–dit-otoole](https://www.tvanouvelles.ca/2022/01/27/groupes-extremistes--vous-risquez-de-nuire-aux-chances-des-camionneurs--dit-otoole) 》的文章报道，加拿大保守党领袖艾琳·奥图尔（Erin O’Toole）在周四上午发表于《多伦多太阳报》的一封信中警告极端组织，不要在接下来的几天内使用暴力进行抗议，并说使用这种方法抗议可能会严重损害卡车司机的职业。
+我在清丰看守所我最关键的事情，突然发现我的兴趣是搞革命，有更大的理想。我闹清楚了，这60个人的生命，包括我八弟，就是你能感受到，原来你模模糊糊的，那些什么江湖、水浒三国，你就是当个土匪。
 
-这就解释了为什么漫画中显示，奥图尔O’Toole 在卡车下面高喊：“停车”！！!从漫画中不难看出，这辆卡车已经不可能停下了。塞尔日•查普洛SERGE CHAPLEAU发表这张漫画图片会不会激发更多的卡车司机参与这个示威活动？最终会出现什么样的局面？让我们拭目以待。
+有个澳喜农场战友在GNEWS写的一篇文章，他说的一句话非常对，七哥当时从赵家沟走出来，没有到清丰看守所，最多是一个什么黑社会老大，他说成为东北乔四。那当然不在我眼里边。不灭共我肯定也是个世界级的黑手党老大，肯定是这个级别的，也不会是中国级的，也不是哈尔滨级的，这是肯定了的，我非常自信。养猪也是世界级的，一定是这样子的。
 
-另外，Gnews, 2022 年 1 月 25 日发表一篇题为《魁北克省媒体刊登冠以极具政治敏感性标题：“公民不服从”的漫画，[https://gnews.org/zh-hans/1916348/](https://gnews.org/zh-hans/1916348/) 》的文章报道，这位漫画家，塞尔日•查普洛SERGE CHAPLEAU，还发表了一张题为《公民不服从》的漫画图片。
+但是到了清丰看守所，它就是天意，直接去灭共去了，灭黑社会去了，从可能成为世界的黑社会老大，变成了灭黑社会老大。这里边儿最重要的就是信仰，还有正义，天地的认知，这就叫教育。它让你找到自己，它让你有兴趣，它这个兴趣大到什么程度，超越自己的生命。
 
-**参考资料**：
+什么是最好的教育？就是让人有兴趣学习，还能找到自己，这就是天意。最好的老师我觉得就是上天，它会领导我们去哪里。所以对孩子不要要求太高，他不愿意学的一概不让他学，开心的一概让他学。不管是生理课还是物理课，只要你愿意学多学，不愿意学都不学。谢谢！
 
-[O’Toole et les camionneurs](https://www.lapresse.ca/debats/caricatures/2022-01-27/o-toole-et-les-camionneurs.php)
+视频剪辑：文知 |听写：雨山溪桥客 | 翻译：Arthur |校对：Polaris | 视频制作+字幕：绒绒兔 | 编辑&发布：断播
 
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220127
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

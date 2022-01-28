@@ -2,31 +2,30 @@
 ---
 
 
-## 加拿大卡车司机铸成世界最长的自由车队
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920463/)
+## 天空WiF与量子通信
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1920480/)
 
-加拿大温哥华扬帆农场 薇文
+#### 整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/01/天空WiFi与量子通信.jpg)
+2021年年底，天空WiFi基本上成为世界上主流。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-47-edited.jpg)图片来源：TSUN
+量子技术的核心叫量子计算，量子计算接下来就是量子通信。量子计算和量子通信最核心的问题就是量子。量子通信里边它也是需要地面上的载体，光纤还有接收站，它是需要地面配合的，就是因为这个成本太高，因为量子技术是无法与现在的传统上的基站通讯，必须重新建设接收站，这个成本太高了。
 
+但是量子技术相当于什么概念呢?战友们就相当于咱们过去使用的那个模拟大哥大和今天的这个iPhone手机的差距那么大，比这还要大的多的多。
 
-据[多伦多太阳报]1月25日报道，由加拿大货运卡车司机自发组成前往首都渥太华的“自由车队”，目前已长达70多公里，是十倍于2020年埃及卡车车队7.5公里的吉尼斯世界纪录。
+发布：于white
 
-报道称，这5万多辆自加拿大和美国各地的货运卡车，在严寒的冬季中迅猛集结，其参与者之众，支持者之广，示威规模之壮已远超当初行动组织者的预计。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 
-据悉，面对本次始料不及的抗议运动，主流媒体不仅掩盖消息，甚至还制造假新闻谎称约500万加元的捐款被冻结。尽管目前筹集的资金远超预期，但示威者表示：不管有无捐款，他们都会继续前进。因为公众已将“抗议车队”视为自由象征的灯塔，并希望以此结束当局各项以防控疫情为由的违宪强制措施。
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-然而，“永远不要浪费危机”是加拿大自由党政府的座右铭，独裁者们正在将目前由疫情引发的严重供应链危机，转变为特鲁多个人及其党派从中渔利的最佳契机。
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
-* * *
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-采编/编译撰稿：薇文                校对编辑，发稿：硫酸羟氯喹64
-
-新闻来源：
-
-1、[WARMINGTON: ‘Freedom’ truckers may form world’s longest convoy](https://torontosun.com/news/local-news/warmington-freedom-truckers-may-form-worlds-longest-convoy?utm_medium=Social&amp;utm_source=Twitter#Echobox=1643158330)
-
-2、[LILLEY: Trudeau uses trucker protests as political weapon](https://torontosun.com/opinion/columnists/lilley-trudeau-uses-trucker-protests-as-political-weapon)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

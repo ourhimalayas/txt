@@ -2,40 +2,40 @@
 ---
 
 
-## Eglise医生回答甲状腺癌症患者服用青蒿素保健品注意事项
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1920334/)
+## 有声|抗议疫苗暴政，欧盟首都布鲁塞尔爆发最大规模示威抗议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920418/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f2add187664c47acdad1ff](https://gtv.org/video/id=61f2add187664c47acdad1ff)
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒 24 日报道，五万多来自法国、德国等多个欧洲国家的民众，上周日聚集在欧盟首都比利时，针对最近越来越苛刻的疫苗强制措施，举行了大规模的示威活动。比利时当局派出多组防暴警察，出动水炮车及催泪瓦斯驱散和平抗议的民众，引起警民冲突，现场一度相当混乱。
 
-**南希：**刚有战友问甲状腺癌症的话，就是服用青蒿素保健品有什么需要注意的吗？
+针对该事件，比利时首相在社交平台发文指，“每个人都有发表意见的权力，但永远不接受示威者不加选择的暴力行为。”
 
-**Dr.Eglise****：**甲状腺癌症，因为甲状腺癌症相对于其他脏器的实体肿瘤，相对它的恶性程度要低，因为它发展的缓慢。甲状腺癌的预后如果是通过手术，往往预后是很好的，所以如果说患者要问我的话，你的首选不是青蒿素，首选是手术治疗。
+这是布鲁塞尔近两个月内发生的第五次反疫苗暴政的示威抗议，也是迄今为止规模最大的一次。
 
-如果你能够手术治疗的话，就是没有转移，没有黏连，手术治疗就是最佳的，你可以在术后用青蒿素治疗，可以帮助，比方说减低复发率，就是让你恢复的快，然后抑制可能残存的癌细胞的继续恶化，就等于说抑制复发，我觉得那是可行的。但是甲状腺如果能手术不要放弃。
+随着奥密克戎毒株的传播，欧洲多国政府近期屡次收紧防疫措施，为了鼓动民众尽快接种中共病毒疫苗加强剂，部分国家的政府陆续推出更严厉的强制措施和疫苗通行证政策，引发民众的极度不满。
 
-视频听写：青桐；
+原文链接：[抗议疫苗暴政，欧盟首都布鲁塞尔爆发最大规模示威抗议](https://gnews.org/zh-hans/1913917/)
 
-编辑整理：海贼王M.D.LUFFY；
+音频处理/发稿：Daxia
 
-字幕文件制作：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-视频制作及上传：Cindy；
+**更多资讯，更多关注**
 
-G.News发布：小满；
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)**。**
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G.TV：[日本银河系农场](https://gnews.org/zh-hans/1842212/#home)。
 
  
 

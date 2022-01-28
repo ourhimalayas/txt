@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/28/2022 1:05 AM (UTC)`
+
+1/27/2022 Miles Guo: The shameless Zhang Gaoli gave Peng Shuai many of the fake artworks and antiques that he received. Peng Shuai has lost her freedom and is under surveillance. The CCP has issued an order to eliminate her after the Winter Olympics.<br/><br/>1/27/2022 文贵直播：不要脸的张高丽把他收到的很多假艺术品和假古董都给了彭帅；彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失！<br/>
+![img](https://media.gettr.com/group38/getter/2022/01/28/01/3b66dc5b-3ae7-00fa-b928-0ef42321b72a/out.jpg)
+
+---
+
+`@miles 1/28/2022 1:01 AM (UTC)`
+
+1/27/2022 Miles Guo: I will sing an unprecedented song during the grand live stream of the lunar new year to ruin the CCP’s opening ceremony for the Winter Olympics. Xi Jinping and Putin will meet up in a private room at the Great Hall of People during the Winter Olympics. The Tian Mi Mi Movement will make various countries around the world bargain with the CCP, which will sell out all the Chinese people by paying these countries tens or hundreds of billions of dollars. So, the Chinese people are the most miserable in the world!<br/><br/>1/27/2022 文贵直播：文贵将在春节大直播上唱首前所未有的歌，灭掉中共冬奥会开幕式；冬奥会期间习近平和普京两人将在人民大会堂的包厢会面；甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的！<br/>
+![img](https://media.gettr.com/group17/getter/2022/01/28/01/7968b950-6d7e-3f3b-ffda-b81a322cde0a/out.jpg)
+
+---
+
 `@miles 1/28/2022 12:33 AM (UTC)`
 
 1/27/2022 Miles Guo: All the disasters suffered by the Chinese people are due to the fact that many of them only believe in the fake but not the real. That’s why we must have democracy, rule of law, and faith after the CCP is destroyed. The authorized departure granted to the US embassy in Beijing is by no means a hastily made decision by Biden. How does it relate to Pompeo’s trip to Taiwan and the visit of the US military aircraft and warships to Taiwan?<br/><br/>1/27/2022 文贵直播：中国人所有的灾难都缘于只信假的而不信真的，因此灭共后要有民主、法治和信仰；美国大使馆的授权撤离绝非拜登拍脑袋的决定，这和蓬佩奥、美军军机和军舰访台有何关联？<br/>
@@ -138,19 +152,6 @@ The following questions are worth pondering after watching this interview with D
 `@miles 1/26/2022 1:26 PM (UTC)`
 
 1月26日， CNN新闻报道美国驻中国使馆“授权撤离”，验证昨日郭文贵先生的重大公告<br/><br/>January 26, 2022 CNN news: US embassy in China authorised to departure which verifies Miles Guo’s important announcement yesterday.<br/><br/>https://www.cnn.com/2022/01/26/china/china-us-embassy-authorize-departure-intl-hnk/index.html
-
----
-
-`@miles 1/26/2022 1:09 PM (UTC)`
-
-January 26, 2022 CCP “Wolf warrior” Zhang Lijian threatens U.S. evacuation of embassy personnel will greatly increase risk of infection virus<br/><br/>1月26日 中共战狼赵立坚威胁美方撤离领使馆人员将极大增加感染病毒风险<br/>
-![img](https://media.gettr.com/group34/getter/2022/01/26/13/6edb6930-a061-1993-6015-e4a187545371/out.jpg)
-
----
-
-`@miles 1/26/2022 2:37 AM (UTC)`
-
-1月25号，Hcoin To the Moon MV上线第47天位列澳门🇲🇴iTunesMV榜首🥇，累计共34次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共30次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利,  柬埔寨和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1909557/<br/><br/>Jan 25th, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 47 Day of Launch, hit No .1 for 34 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 30 times in total🎉🎉🎉<br/><br/>Hit No.1🥇on Cambodia 🇰🇭 iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, Cambodia and Laos 🙏🙏🙏🙏🙏🙏🙏
 
 ---
 

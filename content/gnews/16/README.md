@@ -2,36 +2,31 @@
 ---
 
 
-## 有声|“清零政策”逼逃港金融精英
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1920449/)
+## 加拿大卡车司机铸成世界最长的自由车队
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1920463/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-迄今为止，香港740万人口累计13,000例新冠感染病例，远低于世界绝大多数国家和地区。但由于落实北京新冠“清零”政策，香港实施了全球最严格的入境规定，只允许本地居民返回，并对来自多数国家的入境人士进行长达三周的强制性自费隔离。即便如此，周日仍然有140例新增感染病例，显然，严格的检疫措施对“清零”并无帮助。目前，没有迹象表明政府会放宽限制。
+加拿大温哥华扬帆农场 薇文
 
-猎头公司和行业高管告诉路透，更多的外籍人士因此正在考虑离开香港。全球银行、资产管理公司和企业律师事务所的从业者，也可能在一季度领到年终奖后离职。香港美国商会最近进行了会员调查，超过40%的受访者表示，他们更有可能离开香港，大多数人认为国际旅行限制是首要决定因素。
-
-原文链接：[“清零政策”逼逃港金融精英](https://gnews.org/zh-hans/1914355/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/a-47-edited.jpg)图片来源：TSUN
 
 
+据[多伦多太阳报]1月25日报道，由加拿大货运卡车司机自发组成前往首都渥太华的“自由车队”，目前已长达70多公里，是十倍于2020年埃及卡车车队7.5公里的吉尼斯世界纪录。
+
+报道称，这5万多辆自加拿大和美国各地的货运卡车，在严寒的冬季中迅猛集结，其参与者之众，支持者之广，示威规模之壮已远超当初行动组织者的预计。
+
+据悉，面对本次始料不及的抗议运动，主流媒体不仅掩盖消息，甚至还制造假新闻谎称约500万加元的捐款被冻结。尽管目前筹集的资金远超预期，但示威者表示：不管有无捐款，他们都会继续前进。因为公众已将“抗议车队”视为自由象征的灯塔，并希望以此结束当局各项以防控疫情为由的违宪强制措施。
+
+然而，“永远不要浪费危机”是加拿大自由党政府的座右铭，独裁者们正在将目前由疫情引发的严重供应链危机，转变为特鲁多个人及其党派从中渔利的最佳契机。
+
+* * *
+
+采编/编译撰稿：薇文                校对编辑，发稿：硫酸羟氯喹64
+
+新闻来源：
+
+1、[WARMINGTON: ‘Freedom’ truckers may form world’s longest convoy](https://torontosun.com/news/local-news/warmington-freedom-truckers-may-form-worlds-longest-convoy?utm_medium=Social&amp;utm_source=Twitter#Echobox=1643158330)
+
+2、[LILLEY: Trudeau uses trucker protests as political weapon](https://torontosun.com/opinion/columnists/lilley-trudeau-uses-trucker-protests-as-political-weapon)
 
  
 
