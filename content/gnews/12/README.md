@@ -2,34 +2,28 @@
 ---
 
 
-## 外媒质疑中共国疫情数据的真实性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1924064/)
+## 红门“酒肉”臭，家有冻死骨 西安垃圾站惊现大量蔬菜和馍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1924171/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月26日，据西方媒体报道称，自中共病毒爆发以来，近一年内，中共政府从未报告过一起中共国内民众因感染病毒而死亡的案例，这引起了相关媒体对中共国疫情数据准确性的质疑。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-31.jpg)
-报道指出，尽管中共国大部分地区近期爆发了严重的疫情，但在此期间，当地却没有报告任何一起死亡病例，加之中共政府反复强调的所谓“清零”政策，这让世界在质疑中共国病毒数据准确性的同时，又对该国疫情有着强烈的担忧。
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-57.png)
+前期疫情期间，西安官方不顾市民生活，严酷封城，导致市民不断上网求助“买不到菜”，“冰箱空了”，“没有吃的”，“饿”声不断。还有“乘火打劫”的卖高价菜，甚至一箱菜卖到了400元。疫情中西安官方不作为，一边为保自己的乌纱帽，盲目执行中共“动态清零”总方针，把市民封困家中。一边又利用手中的权力，没有及时地把救命的食物发放到民众手中，最后被当垃圾扔掉。
 
-据中共国家卫生健康委员会提供的数据显示，截止当天，中共国内仅有5700起病毒死亡案例，是世界上报告死亡率最低的国家之一。
+网传，西安市疫情封城期间，陕西省安康市善良市民王军，为赶制救助食品，1月初其店铺停业3天，为西安市捐赠了10000个爱心白馍，然而这些捐赠的“救人”白馍，1月22日被爆扔进了垃圾桶。而西安官方回答声称：当地一家店铺的饼存放发霉而扔进垃圾桶！
 
-对此，评论人士分析称，中共政府极力掩盖其病毒死亡真实数据的原因有二，其一在于为将来病毒溯源做好推卸责任的准备，其二则是向世界炫耀其所谓的“清零”政策行之有效。然而，中共荒唐的造假数据最终必将引起世界的质疑和关注。
+网友上传视频中显示，很多垃圾箱装满了垃圾“肉夹馍”，垃圾箱周围几乎都是。“这就是全国各地给西安疫情捐赠的物质，安康市一家店不营业，专门给西安打的肉夹馍，结果就是这样。这些畜牲。”还有网友视频显示，疑似一个垃圾场，地上堆满了很多新鲜蔬菜，一位女士边叹气边气愤地说，“看看啊，一听说吃不上菜，整箱整箱的就这样全扔了，看看、看看……，哎呀！全都是，满满的。看，满满的整筐子的菜，全扔！看，扒开看看，这西葫芦好好的全扔了……这都不是人干的事嘛！就把这全部扔垃圾堆了。”另一个视频中显示，地上堆着大量放久了的一捆捆的蔬菜，有网友说，“菜放烂了也不给你吃。”
 
-参考链接：[China Hasn’t Reported A Single Covid Death In A Year, As Questions Remain About Accuracy Of Its Data](https://www.forbes.com/sites/siladityaray/2022/01/26/china-officially-hasnt-reported-a-single-covid-death-in-a-year-as-questions-remain-about-accuracy-of-its-data/?sh=2fd485a33d62)
+节约的时候，饭店里多点个菜都要抓典型，浪费的时候成堆的馒头垃圾堆里扔。这就是中共，一切都是演戏，戏还没演完故事就结束了，因为他们从来不在乎故事情节，一切都可以造。用心写故事毕竟要用心，劳心又费力，演戏就不一样了，一个好剧本，三两个镜头，大尺度的跨越，用力的宣传，万事大吉，工作已完成，领导有交代，回家睡觉去。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+消息来源：
 
-总编: 雪梨
-编辑：百香果
-校正/发稿：Fei797
+[西安垃圾站惊现大量蔬菜和馍 网民：“这些畜牲”(图)](https://m.secretchina.com/news/gb/2022/01/26/996182.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
