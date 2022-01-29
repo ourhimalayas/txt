@@ -2,39 +2,38 @@
 ---
 
 
-## 他帮助撰写了宪章。 现在他说政府正在违反它。
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1926120/)
+## 美国联邦通信委员会撤销中国联通营运授权
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1926182/)
 
-作者：Andrew Lawton
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-476.jpg)
-2022年1月26日，前纽芬兰省省长、加拿大《权利和自由宪章》唯一仍在世签署人Brian Peckford与其他5名申请人一起对联邦政府旅行疫苗令提起违宪诉讼。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据报道，Peckford生于1942年，他也是1982年参与起草和通过《权利和自由宪章》的第一批省长中最后一位幸存者。他的团队正在挑战加拿大联邦政府限制未接种COVID-19疫苗的加拿大人自由旅行的合宪性。
+整理/编辑：文泓
 
-Peckford 本周参加True North’s 新闻网主办的The Andrew Lawton Show时说，凭借他的经验和他帮助制定《宪章》的经历，他认为旅行疫苗令违反了加拿大人自由流动的权利，违背了加拿大生命权、自由权和不受歧视的自由权利。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WAIX@9CG7SAVADQO5TH.png)图片来源：Reuters
 
-Peckford说：这是我反对疫苗令的关键 。我认为它疫苗令可能在相当大的程度上破坏我们的民主。
 
-来源：https://tnc.news/2022/01/28/he-helped-write-the-charter-now-he-says-the-government-is-violating-it/
+当地时间1月28日，据《德国之声》报道，美国联邦通信委员会（FCC）周四（1月27日）以国家安全为由，投票撤销对中国联通（美洲）营运有限公司在美国运营的授权。最后投票结果为4票对零票。
 
-（文章仅代表作者个人观点）
+这是美国监管机构禁止中国电信运营商进入美国的最新举措，要求中国联通（美洲）营运有限公司在该命令发布后60天内停止在美国的国内、州际和国际电信服务。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+美国联邦通信委员会主席罗森沃塞尔指出，自批准中国联通（美洲）营运有限公司在美国营运以来，美国国家安全形势已经发生变化，**而且有越来越多的证据表明，中共的国有电信运营商对美国的电信网络安全构成了威胁。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+联邦通信委员会说，**中国联通提供的答复是不完整、有误导性且不正确的。，**罗森沃塞尔补充道，**去年****FCC****发布了有史以来的第一份对国家安全构成不可接受风险的通信设备和服务清单。**这个月，她写信给美国商务部、联邦调查局、国家情报总监办公室和其他机构，来借此更新该清单。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+自去年3月起，美国联邦通信委员会全力撤销对中国联通、太平洋网络公司和其全资子公司ComNet的运营授权。
 
-**关注我们**
+在去年10月，美国联邦通信委员会撤销了对中国联通（美洲）营运有限公司的美国授权，称该公司受中国政府的影响和控制。中方未能赢得对该决定的上诉。此前，美国联邦通信委员会2019年以国家安全风险为由，拒绝了中国移动有限公司提供美国电信服务的投标。
 
-Discord 账号
+新闻链接：[忧危害国安 美FCC撤销中国联通营运授权](https://udn.com/news/story/6809/6067194?from=udn-catebreaknews_ch2)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**发布：**tianzhihuan
 
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

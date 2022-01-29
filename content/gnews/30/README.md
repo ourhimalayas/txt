@@ -2,48 +2,34 @@
 ---
 
 
-## 香港外汇基金2021年投资收益创近三年新低
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1925564/)
+## 有声|面对中共制裁 立陶宛表示无更名计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925905/)
 
-作者：纽约香草山农场 – 四季
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+针对因台湾在立陶宛设立代表处的中文名称，中共持续对立陶宛进行制裁一事，立陶宛外长蓝斯柏吉斯于26日表示，没有变更台湾代表处名称的计划。台湾驻立陶宛代表也表示，未曾接获变更驻立陶宛台湾代表处的中文或英文名称的要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+当天，台湾驻荷兰代表接受荷媒专访，强烈批评中共国制裁立陶宛企业，胁迫欧盟企业撤出立陶宛等行动，并强调在两岸关系方面，中共的胁迫不会动摇台湾捍卫主权、民主和自由的决心。
 
+原文链接：[面对中共制裁 立陶宛表示无更名计划](https://gnews.org/zh-hans/1923191/)
 
+音频处理/发稿：Daxia
 
-
-
-据[OAN网站](https://www.oann.com/hong-kong-exchange-funds-2021-investment-income-at-hk170-5-billion-hkma/)援引路透社1月27日报道，香港金融管理局周四表示，用于支持港元的香港外汇基金在2021年的投资收益为1,705亿港元（219亿美元），同比下降27.7%，为三年来最低。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-27T090311Z_1_LYNXMPEI0Q0CB_RTROPTP_0_HKMA-MONETARYEXCHANGE_1.jpg)在这张2017年5月31日的插图照片中，可以看到一张港币纸币。（REUTERS/Thomas White/插图）
-
-香港金管局首席执行官余承东认为，随着全球经济复苏放缓、企业盈利增长势头放缓，以及对新病毒变种和地缘政治紧张局势的担忧挥之不去，投资环境将仍然不确定。
-
-香港金管局是外汇基金的主要管理者，该基金由香港财政司司长监管，投资于股票、债券、外汇和其他证券和资
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

@@ -2,30 +2,36 @@
 ---
 
 
-## 2022/01/27 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1925819/)
+## 有声|日议员提议派高官赴台湾 首相未否定
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925917/)
 
-1. 1月24日，四川成都。在出现给大蒜苗做核酸的荒唐景象后，成都又出现为共享单车随机做核酸检测的画面。
-2. 1月26日，中共推行的防疫政策给了政府无限的权力，市民持有核酸证明，被强制要求重新检测一遍！中共不会给百姓任何反抗质疑的权利。
-3. 1月26日，重庆。下高速的要排长队做核酸检测、不做核酸不准走！
-4. 江西偏远农村小伙住10年公司宿舍，省吃俭用10年才能在大城市买一套房。中共国的高房价让中国普通年轻人生活的方向只能是买房。
-5. 1月26日，广东东莞。一医院年会聚餐挂横幅“手术室里全是钱”引发网络热议。
-6. 山东菏泽，网友拍下心酸一幕。老奶奶交不起治病的医药费，坐在一旁独自哭泣！
-7. 1月24日，河南洛阳。男子为了省300块的路费，雨雪天气步行30公里回家。
-8. 中共利用高科技手段监控百姓的手段十分成熟，视频为高速公路上行驶的私家车被政府实时监控。
-9. 老年人没有智能手机，无法扫健康码在银行取不了钱！
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+1月26日，日本首相岸田文雄在众议院进行答询时，被自民党中谷真一议员问及日台关系深化相关问题时，岸田文雄表示，与台湾相关的议题，日本虽有基本立场，但仍须努力深化日台关系，加强交流。
+
+中谷真一还提出，日本应与蔡英文政府拉近距离，派遣外交高官赴台，推动各项政策交流。日本自1972年与中共国外交正常化后，尚未与台湾建交。而对于中谷真一的这项提议，岸田文雄也未予以否定。
+
+原文链接：[日议员提议派高官赴台湾 首相未否定](https://gnews.org/zh-hans/1923181/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

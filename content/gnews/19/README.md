@@ -2,34 +2,41 @@
 ---
 
 
-## 《历史的今天》2022.01.29
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1926026/)
+## 美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926092/)
 
-作者： JAY (杰伊)
+作者：新中国联邦静
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/real-final-vote.png)图片来源：[https://tibet.net/the-tibetan-policy-and-support-act-hr-4331-passed-in-the-us-house-with-supermajority-vote/](https://tibet.net/the-tibetan-policy-and-support-act-hr-4331-passed-in-the-us-house-with-supermajority-vote/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
 
-一、1979年1月29日，中共邓小平访美。
 
-二、2002年1月29日：在美国911事件数月后，美国总统乔治布什发表国情咨文演讲，把伊朗、伊拉克和朝鲜称为“邪恶轴心”，指责这三国支持恐怖主义。
 
-三、2008年1月29日，美国总统乔治布什最后一次国情咨文演讲时表示，在伊拉克的部队 增兵正在取得成功，基地组织正在逃跑并将被打败。
 
-四、2018年1月29日，中共国企中交建在巴基斯坦瓜达尔港区所承建所谓自由区起步区市政工程的“一带一路”项目开始营运。
 
-五、2019年的1月29日，郭文贵先生向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2396.png)（图片来自《华盛顿邮报》）(Brendan Smialowski/Pool/Reuters)）
 
-六、2020年1月29日，川普政府成立由卫生与公众服务部部长亚历克斯-阿扎尔领导的白宫冠状病毒工作组。
+周二(25日)，在乌克兰里斯波尔国际机场，该国人员卸下了来自美国的大约 300 枚标枪导弹、肩扛式多用途攻击武器和掩体炸弹。 其他北约成员国也提供军事装备，协助保卫乌克兰。
 
-七、2020年1月29日，美国国会众议院压倒性票数通过《西藏政策及支持法案》，以捍卫藏人宗教自由，保障西藏自治地位。法案规定，中共官员不得干涉未来包括达赖喇嘛在内的藏传佛教领袖转世，否则美方将予以制裁。
+同日美国政府高级官员警告说 : 如果俄罗斯入侵乌克兰，并对欧洲各国发切断天然气燃料供应的话，拜登政府准备实施制裁，其后果严重。
 
-八、2021年1月29日，中共幕后操纵，海航集团以不能清偿到期债务为由，向法院申请破产重组。
+拜登总统还警告要对俄罗斯总统普京实施个人制裁。英国首相鲍里斯•约翰逊周二(25日)表示，英国和美国已讨论阻止俄罗斯进入 SWIFT 国际支付系统。他说，这样的举动将“成为一种非常有力的武器”，并指出美国的合作对于实施这样的行动是必要的。
 
-九、2021年1月29日，中共国企华融资产管理公司前负责人赖小民，指控受贿而被处决。
+参考链接：
 
-* * *
+[https://www.washingtonpost.com/world/2022/01/26/ukraine-russia-sanctions-biden-putin/?utm\_campaign=wp\_main&utm\_medium=social&utm\_source=twitter](https://www.washingtonpost.com/world/2022/01/26/ukraine-russia-sanctions-biden-putin/?utm_campaign=wp_main&amp;utm_medium=social&amp;utm_source=twitter)
 
-*发布：Theodosia*
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
 
  
 

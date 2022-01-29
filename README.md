@@ -15,122 +15,122 @@
 
 ---
 
-### [为战友供应青蒿素](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [在西澳，未接种疫苗的父母被禁止看望的患病孩子](/content/gnews/1/README.md)
+ ` 走进澳洲`
 
-### [两件震惊世界的事（二）](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [两件震惊世界的事（一）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [美国联邦通信委员会撤销中国联通营运授权](/content/gnews/4/README.md)
+### [全球243个非政府组织呼吁外交抵制北京冬奥会](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥金句](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [郭文贵先生1.27大直播精要](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [五月花简报（01/21/2022）](/content/gnews/7/README.md)
+### [五月花简报（01/28/2022）](/content/gnews/3/README.md)
  ` mayflowertranslate`
 
-### [七哥金句](/content/gnews/8/README.md)
+### [人类历史偶尔会被某个精神患者改变](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [2022年1月29日《樱花简报》：日本新增中共病毒确诊近8万人 连续3天创新高](/content/gnews/9/README.md)
+### [2022年1月29日《樱花快报》：俄罗斯新增中共病毒确诊病例连续8天创新高](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [他帮助撰写了宪章。 现在他说政府正在违反它。](/content/gnews/10/README.md)
- ` MG FARM`
+### [魁北克省媒体刊登第二张支持自由车队卡车司机抗议活动的漫画](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [美国Omicron单日死亡超过Delta 总死亡](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [新冠疫苗中到底有什么 （二）？](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [卡车司机想要什么？为什么渥太华不能给他们？](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [共产党虐待出卖这些国家的所有人的利益](/content/gnews/15/README.md)
+### [为战友供应青蒿素](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [特鲁多猛烈抨击卡车司机对COVID疫苗授权的“恐慌散布”](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [标普500指数和纳指上演历史最强日内反弹](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [G系列的魅力（2）](/content/gnews/18/README.md)
+### [两件震惊世界的事（二）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [《历史的今天》2022.01.29](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [两件震惊世界的事（一）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [加拿大20岁男子深夜飙车快到起飞](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [美驻华使馆申请外交撤离验证文贵先生公告](/content/gnews/21/README.md)
- ` 扬帆枫叶快讯`
-
-### [有声|輝瑞董事會成員建議停止強制疫苗接種](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|日议员提议派高官赴台湾 首相未否定](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [欧洲议会议员、前法官米斯拉夫·科拉库西奇：过去的一年里，政府没有组织过一次关于新冠和疫苗的综合会议](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [DC大中华时事：中共中央巡视组原副组长董宏一审被判死缓](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [有声|面对中共制裁 立陶宛表示无更名计划](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [2022/01/27 墙内世界](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [马斯克为加拿大卡车司机欢呼](/content/gnews/29/README.md)
- ` 温哥华扬帆农场`
-
-### [香港外汇基金2021年投资收益创近三年新低](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
-
-### [全球疫情更新（荒唐离谱的统计错误）](/content/gnews/31/README.md)
+### [美国联邦通信委员会撤销中国联通营运授权](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [扬帆每日速递 2022年1月28日版（1）](/content/gnews/32/README.md)
+### [七哥金句](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [郭文贵先生1.27大直播精要](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [五月花简报（01/21/2022）](/content/gnews/13/README.md)
+ ` mayflowertranslate`
+
+### [七哥金句](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年1月29日《樱花简报》：日本新增中共病毒确诊近8万人 连续3天创新高](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [他帮助撰写了宪章。 现在他说政府正在违反它。](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [美国Omicron单日死亡超过Delta 总死亡](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [新冠疫苗中到底有什么 （二）？](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响](/content/gnews/19/README.md)
+ ` GTV News Talk`
+
+### [卡车司机想要什么？为什么渥太华不能给他们？](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [共产党虐待出卖这些国家的所有人的利益](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
+
+### [特鲁多猛烈抨击卡车司机对COVID疫苗授权的“恐慌散布”](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [《历史的今天》2022.01.29](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美驻华使馆申请外交撤离验证文贵先生公告](/content/gnews/25/README.md)
+ ` 扬帆枫叶快讯`
+
+### [有声|輝瑞董事會成員建議停止強制疫苗接種](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [有声|日议员提议派高官赴台湾 首相未否定](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [欧洲议会议员、前法官米斯拉夫·科拉库西奇：过去的一年里，政府没有组织过一次关于新冠和疫苗的综合会议](/content/gnews/28/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [DC大中华时事：中共中央巡视组原副组长董宏一审被判死缓](/content/gnews/29/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [有声|面对中共制裁 立陶宛表示无更名计划](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [2022/01/27 墙内世界](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [马斯克为加拿大卡车司机欢呼](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [欧洲有更多人抗议疫苗强制令](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [香港外汇基金2021年投资收益创近三年新低](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
 
-### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [全球疫情更新（荒唐离谱的统计错误）](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加政府未阻止中企9亿加元收购其锂矿企业](/content/gnews/36/README.md)
+### [扬帆每日速递 2022年1月28日版（1）](/content/gnews/35/README.md)
  ` 温哥华扬帆农场`
 
-### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/37/README.md)
+### [欧洲有更多人抗议疫苗强制令](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共冬奥开幕前的中共病毒确诊数据完全是假的](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [GTV新闻访谈简报|2022年1月28日早](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
-
-### [Meta准备出售其数字货币项目](/content/gnews/38/README.md)
- ` GTV News Talk`
-
-### [中共导弹专家逃离中国 投奔自由](/content/gnews/39/README.md)
- ` GTV News Talk`
 
 ### [白宫希望将加密货币规则作为国家安全问题来处理](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
