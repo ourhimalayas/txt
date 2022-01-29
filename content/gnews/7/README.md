@@ -2,22 +2,50 @@
 ---
 
 
-## 中国人在二战中的牺牲帮助美国减少了流血
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927340/)
+## 外交部：赖清德过境，循例与美国行政部门有所互动
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927455/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/中国人在二战_01.jpg)
-班农：其实没有任何人谈到这个问题，可能有少数人谈过。请记住，在第二世界大战中，中国人有三四千万人失去了生命。我们作为一个国家来讲，在那个时候永远打不过日本，要想结束那场战争，可能要花10年、甚至15年。在亚洲战场，战争的残酷程度比欧洲战场更甚。那真的是我们历史上最惨烈的一场战争。但中国人在那场战争中的牺牲，缩短了那场战争七八年的时间。他们所有的牺牲和鲜血，帮助我们美国减少了流血。当中共窃取中国的时候，我们的国家在政治上撕裂：“谁丢掉了中国。”
+作者：台湾宝岛农场—dobi
 
-*发布：开智则立*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-45.jpg)
+
+
+
+
+
+据台媒1月27日报导，副总统赖清德代表参加友邦洪都拉斯新总统卡斯特罗（Xiomara Castro）的就职典礼，且于26日过境美国洛杉矶时，与美国跨党派参、众议员进行视频会议。至于后续是否会进一步会晤美国国务院官员，驻美代表萧美琴持保留，未直接响应的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-75.png)
+台湾外交部欧江安认为，相信在台湾与美国在坚实友好的互信基础之上，台湾代表团应也会循例与美国行政部门有所互动。 此外，报导中也提及英国首相琼森（Boris Johnson）26日在国会下议院应询时，强调中共国大陆军机扰台行为无助台海关系稳定，同时也强调两岸应发展和平且具建设性对话的必要性。
+
+参考来源：
+
+[外交部：賴清德過境 循例與美國行政部門有所互動](https://udn.com/news/story/6656/6064618?from=udn-referralnews_ch2artbottom》)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+
+
+
+
 
  
 

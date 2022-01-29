@@ -2,66 +2,23 @@
 ---
 
 
-## 中共暗地里要求返乡民众必须做核酸检测
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927303/)
+## 共产党绝对不是无神论和无产阶级
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927442/)
 
-作者：日本方舟农场—Andy5
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党绝对不是无神论和无产阶级.001-2.jpeg)
+刚才我们 RENEE已经说到商鞅五册问题，整个大秦朝都处在宵禁状态，这是统治的基础。同时宵禁还限制你的财富，和生活方式的流通，做为家庭成员作为社会的DNA家庭的渗透。现在共产党用得就是商鞅五册当中最极端的手段。习近平跟共产党绝对淸楚,如果任由中国老百姓，就这些猪狗，随着时间，由于有互联网，有网络，有各种不可控的现代通讯技术，那是很危险的！这个猪会发现，它可以跳出猪圈去到会吃更多的菜的菜园子里，本来就属于我的，不需要你喂，我可以爬到山顶上去吹吹风，我也可以在临死前，猪可以跟狗交配一下猪甚至可以跟猴子谈个恋爱，甚至可以到水里游游泳，闻闻鱼的味道，猪后来发现我不是猪，我是一个披着猪皮的人，我不当猪了。这个病毒疫苗有多个作用，很多人就无法想象，我在之前不愿跟大家讲，我一讲，大家说七哥讲得太玄，我尽量避免玄，就像我讲的昆仑山脉喜马拉雅山脉这么多的事情。我让你知道共产党比谁都信神，比谁都迷信，盘古龙头就证明了共产党绝对不是无神论，是天底下最大的有神论。瑞士的钱，还有海航王岐山等所有人告诉你，共产党不是无产阶级，是最有最有产的阶级。
 
+2022年1月12日大直播
 
+发布： 星谕
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-44.jpg)
-
-
-
-
-
-墙内百姓拍摄中共疫情检测人员不承认百姓自带的48小时内核酸阴性报告视频，打脸中共在1月6日所谓“坚决防止层层加码和一刀切，减少对群众生产生活影响”的政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-60.png)
-视频拍摄者在检查点询问，自己自带的48小时内核酸阴性检测报告到底行不行，一位工作人员非常强势地告诉他不行，因为这个检测是全部人员的抽检；另一位工作人员则要求视频拍摄者出示身份证，用于做核酸检测。而面对为什么自带的48小时内核酸检测报告不行的质疑，并要求提供相关文件时，第一位工作人员态度蛮横，没有任何解释，且不耐烦地对视频拍摄者多次指指点点。最后拍摄者无奈质问：是不是我这样的算是“恶意返乡”呢？
-
-这种现象在中共国并非个例。在黑龙江哈尔滨也发生了更加恶劣的事件。仅因为返乡人员来自有过感染者的北京海淀区，检测点仅给出了要么强制隔离14天，要么原路返回的两个选项，甚至没有给出现场核酸检测的选项。这让返乡人员无奈只好带上孩子原路返回北京，错失与父母团聚。
-
-分析人士称，中共为了冬奥会所采取的清零政策，并没有中共在政策中描绘的那样人性化，没有从西安孕妇流产等事件吸取一丝一毫的教训，相反已经造成了春节前极其反常的人流量减少，甚至引起了墙内各地老百姓的不满。
-
-参考来源：
-
-1.[https://www.gettr.com/post/pqrzit7f5d](https://www.gettr.com/post/pqrzit7f5d)
-
-2.[https://www.gettr.com/post/pqo72a3798](https://www.gettr.com/post/pqo72a3798)
-
-3.[热评丨不搞“层层加码”“一刀切” 保春运安全有序](https://china.huanqiu.com/article/46JfF62Wvyt)
-
-4.[关于全力做好2022年春运工作的意见](https://www.ndrc.gov.cn/xxgk/zcfb/tz/202201/t20220106_1311501.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-16.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-43.jpg)
-
-
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
