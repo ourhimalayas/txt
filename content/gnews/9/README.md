@@ -2,29 +2,36 @@
 ---
 
 
-## 有声| 神为什么造人？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929521/)
+## 有声|一周中共病毒及疫苗信息汇总
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929603/)
 
-配音：香草山福音部 – Daxia
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-神从创造宇宙到创造人类，然后把祂的眼光聚焦在人类身上，创1:26“我们要照着我们的形象，按着我们的样式造人，使他们管理海里的鱼、空中的鸟、地上的牲畜和全地，并地上所爬的一切 “昆虫”。”我们往往会记得神创造人是要“生养众多，遍满地面。”却忽略了另外两个重要的造人目的：1.按照神的形象 2.管理全地 。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月18日至25日，除中共国外，全球新增确诊中共病毒2389万余例，同比上周增长百分之13.1，增长率较上周上升了0.4个百分点；本周新增确诊死亡病例59138例，同比上周增长了百分之16.4，增长率较上周增加6.74个百分点。 
 
+ 截止1月25日，除中共国外，全球累计接种71.1亿剂“中共病毒”疫苗，同比18日增长了百分之2.51；疫苗接种的增长率较一周前相比，下降了0.21个百分点。
 
+原文链接：[一周中共病毒及疫苗信息汇总](https://gnews.org/zh-hans/1921699/)
 
-**文字版原文：[【信仰之声】神为什么造人？](https://gnews.org/zh-hans/1923324/)**
+音频处理/发稿：Daxia
 
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

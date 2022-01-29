@@ -2,30 +2,36 @@
 ---
 
 
-## 因接触了中共病毒阳性患者，新西兰总理和总督开始自我隔离
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1929396/)
+## 有声|男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929469/)
 
-撰稿：彩虹
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月24日，外媒报道，一名男子因未接种中共病毒疫苗，导致无法接受心脏移植手术，目前徘徊在生死边缘。
 
-责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2438.png)图片来源：彭博社
-1月29日，《国会山报》报道，周六，新西兰总理杰辛达·阿德恩（Jacinda Ardern）宣布，在她接触到一个中共病毒（COVID-19）检测呈阳性的人之后，现在正在进行自我隔离。
+ 该男子的父亲大卫·弗格森在接受媒体采访时说到，31岁的儿子DJ本来排在接受移植手术的前列，但由于他拒绝接种中共病毒疫苗，医院根据相关政策将 他从移植名单上删除。 该医院认为，疫苗是麻省总医院布里格姆系统对移植候选人进行选择的必要条件之一。 纽约大学格罗斯曼医学院的阿瑟·卡普兰博士对此解释说，实施移植手术后，病人的免疫系统都是关闭的，接种疫苗的人在手术后会有更好的生存机会。
 
-据《美联社》的报道，阿德恩和新西兰总督辛迪·基罗（Cindy Kiro）在1月22日从凯里市（Kerikeri）飞往奥克兰的航班上接触到了这种病毒。
+原文链接：[男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](https://gnews.org/zh-hans/1919676/)
 
-该新闻机构指出，基罗也已经开始自我隔离。
+音频处理/发稿：Daxia
 
-阿德恩的办公室在给美联社的一份声明中说：“总理没有症状，感觉很好。根据卫生部的建议，她明天将立即接受测试，并将隔离到星期二。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-报道说，新西兰卫生官员周六将至少十几个航班列为潜在的暴露对象，并指出航班上的个人可能已经感染了中共病毒。
+**更多资讯，更多关注**
 
-当局称，基因组测序将于周日完成，以确定受感染的人是否有该病毒的奥米炕（Omicron）变体。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-根据《以数据看世界》网站披露的数据，近77%的新西兰人已经完全接种了中共病毒（COVID-19）疫苗。新西兰官员告诉《美联社》，12岁及以上的人中，大约93%的已经接种了中共病毒疫苗。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**新闻来源**
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[New Zealand Prime Minister isolates after COVID-19 exposure](https://thehill.com/policy/healthcare/public-global-health/591922-new-zealand-prime-minister-isolates-after-covid-19)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

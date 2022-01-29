@@ -2,34 +2,40 @@
 ---
 
 
-## 疫苗副作用导致一美国F-35战机在南中国海坠毁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929542/)
+## 有声|加拿大疫苗抗议活动升温 直逼特鲁多
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929638/)
 
-作者：纽约香草山 金融部 AT
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月25日，据相关媒体消息显示，一架正在南海地区执行演习任务的美国海军 F-35C 战斗机，因其飞行员心肌炎急性发作，在试图降落在卡尔文森号航空母舰的甲板上时坠毁。目前，该事故已造成7名船员受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.16.png)
-报道提及，美军的两个航母打击群共一万四千多名水兵和海军陆战队队员正在南海进行军事演习。其中，这位F-35C的飞行员在起飞前72小时刚刚接种了中共病毒疫苗加强针。然而，返航时，该名飞行员所驾驶的飞机突然撞上了航空母舰的甲板，飞行员则在战机坠海前弹射逃生。
+配音：香草山佛教部 – 李傻
 
-据了解，这名飞行员在回忆事故经过时提到，他在返航过程中突然感到胸部剧烈疼痛，而该飞行员也在被送医救治后确诊患有急性心肌炎。值得注意的是，这一病症是中共病毒疫苗的常见且可能致命的副作用。
 
-对此，分析人士指出，当前，大量的报道提到了接种过中共病毒疫苗的飞行员在飞行途中生病或直接坠机死亡的事件，而这类灾难性事件不仅会危及飞行员，更会危及数百万将安全托付给航空公司的乘客。虽然联邦政府极力掩盖这些接种过疫苗的飞行员的安全性问题，但其所带来的后续影响或将难以避免。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据当地媒体报道，由于加拿大联邦政府持续推行针对卡车司机的中共病毒疫苗强制接种政策，自1月23日起，一大批卡车司机开始向加拿大首都渥太华进发，而他们的目的地则是于本月29日在那里举办的抗议强制疫苗令的集会。届时，预计将有来自全国各地的五千至一万辆卡车参与其中。
 
-参考链接：[Navy Pilot Crashes Plane, Ejects, After Vax Reaction](https://bestnewshere.com/navy-pilot-crashes-plane-ejects-after-vax-reaction/)
+与此同时，加拿大的商业领袖们也正在敦促渥太华放弃对跨境卡车司机实行的疫苗强制令，用以缓解当地与美国之间拥堵的供应链。加拿大商会主席表示，政府需要明白来自卡车司机所提供的服务至关重要，即使在最严重的大流行病浪潮中也需要他们来保持供应链的正常运转。
 
+截止1月26日，名为“自由车队”的卡车队伍已经得到了超过一百万加拿大人的支持，他们正在逐渐逼近渥太华。消息显示，参与抗议的加拿大民众将矛头直指总理特鲁多，即要么特鲁多辞职，要么政府取消所有关于中共病毒及疫苗的强制措施。对此，有报道提及，在寻求加拿大皇家骑警和军方介入无果的情况下，特鲁多以“接触了中共病毒”为由，进行了所谓的“居家隔离”。
+
+另外，截至目前，此次抗议活动已经在相关网站上募集了超过630万加元的资金，有八万多加拿大民众踊跃捐款。
+
+文字版原文：[加拿大疫苗抗议活动升温 直逼特鲁多](https://gnews.org/zh-hans/1926543/)
+
+音频处理：Tom Li
+发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：童谣
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

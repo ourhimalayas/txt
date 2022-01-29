@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929617/)
+## 有声|天在灭共 全球在灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929674/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月26日的盖特直播中，郭文贵先生再次解读了美国授权撤离驻北京大使馆的重要意义。
 
+郭先生指出，美国此次授权撤离的相关事宜已经进行了将近两个月，其缘由与中共病毒毫无关系。同时，这一撤离的决定将一直持续到中共的覆灭。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-周二(25日)，在乌克兰里斯波尔国际机场，该国人员卸下了来自美国的大约 300 枚标枪导弹、肩扛式多用途攻击武器和掩体炸弹。 其他北约成员国也提供军事装备，协助保卫乌克兰。
+郭先生也解释道，从早先的六四事件、南海军机相撞事件，到去年的香港反送中事件，甚至在中共病毒疫情最为严重之时，美国都没有考虑过撤离大使馆。因此，美国这次授权撤馆的背后就是给其下一步行动提交合法行事的支撑。但是，直至撤离结束，总统拜登和国务卿布林肯都不会对此发表任何言论，最多仅会以外交辞令轻描淡写地一带而过。
 
-同日美国政府高级官员警告说 : 如果俄罗斯入侵乌克兰，并对欧洲各国发切断天然气燃料供应的话，拜登政府准备实施制裁，其后果严重。
+原文链接：[天在灭共 全球在灭共](https://gnews.org/zh-hans/1921593/)
 
-拜登总统还警告要对俄罗斯总统普京实施个人制裁。英国首相鲍里斯•约翰逊周二(25日)表示，英国和美国已讨论阻止俄罗斯进入 SWIFT 国际支付系统。他说，这样的举动将“成为一种非常有力的武器”，并指出美国的合作对于实施这样的行动是必要的。
+音频处理/发稿：Daxia
 
-文字版原文：[美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响](https://gnews.org/zh-hans/1926092/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

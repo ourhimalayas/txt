@@ -2,43 +2,37 @@
 ---
 
 
-## 中共将中国人变成了信假不信真
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1929531/)
+## 有声|美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929617/)
 
-作者：纽约香草山农场福音部-恩永存
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+配音：香草山佛教部 – 李傻
 
 
-2022年1月27日，郭文贵先生在大直播中痛斥中共使中国人信假不信真，导致家庭、婚姻、信仰、身体和全民的灾难！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+周二(25日)，在乌克兰里斯波尔国际机场，该国人员卸下了来自美国的大约 300 枚标枪导弹、肩扛式多用途攻击武器和掩体炸弹。 其他北约成员国也提供军事装备，协助保卫乌克兰。
 
-在中共的独裁统治下，如今的中国人没有信仰、法治和道德，对真假善恶失去判断，共产党说什么都信，是非不分。
+同日美国政府高级官员警告说 : 如果俄罗斯入侵乌克兰，并对欧洲各国发切断天然气燃料供应的话，拜登政府准备实施制裁，其后果严重。
 
-郭先生说中国人绝大多数信假不信真，爆料革命五年了，国人没几个相信，跟随爆料的战友许多都是半信半疑过来的。中国99.99%人，第一，不信新中国联邦；第二，不敢信，隔着墙怕被抓；第三，既不敢，也不信，也不能，没辨别能力。这样的族群，是没有信仰、民主和法治所导致的。
+拜登总统还警告要对俄罗斯总统普京实施个人制裁。英国首相鲍里斯•约翰逊周二(25日)表示，英国和美国已讨论阻止俄罗斯进入 SWIFT 国际支付系统。他说，这样的举动将“成为一种非常有力的武器”，并指出美国的合作对于实施这样的行动是必要的。
 
-郭先生指出中国外交部深信自己的发言是真理。正如没落前的伊拉克外交部所言：“明天美国家庭必看见伊拉克的军队”，南斯拉夫告诉美军：“这里是你的地狱”，卡扎菲：“这水淹死所有美国人”。丧心病狂这四个字形容这些极端分子都不为过。
+文字版原文：[美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响](https://gnews.org/zh-hans/1926092/)
 
-郭先生进一步指出中国人不能客观看待事物，还居功自傲，妒嫉别人好，自己没有，也不愿别人有，我没有民主法治，你也不能有的病态心里，这是邪恶的共产主义本质。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-422.jpeg)
-
-从美国大使馆撤离这件大事上，看出多少人灵魂深处的无知！文化大革命，89六.四，中美南海争端，病毒两年了，美国都没撤离，为何要在冬奥会开幕前，要在48小时内撤离。中国网民47%的人认为美国是在耍流氓，45%的人认为不需要搭理美国，90%的人认为这事不重要。中国已经病到什么程度了，这就是没有信仰、没有法治、没有道德的灾难结果！中共将使人类变成邪恶的魔鬼。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-423.jpeg)
-
-参考链接[https://gettr.com/post/pqv1x99d1.2](https://gettr.com/post/pqv1x99d1.2)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-编辑/校对/发稿：文敬
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
 
  
 
