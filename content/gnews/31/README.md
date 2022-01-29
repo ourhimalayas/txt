@@ -2,60 +2,31 @@
 ---
 
 
-## 随着“奥米炕”威胁消退，英格兰正解除中共病毒限制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1926372/)
+## GTV新闻访谈简报|2022年1月28日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1926441/)
 
-![The Associated Press](https://www.usnews.com/dims4/USNEWS/5385524/2147483647/thumbnail/640x420/quality/85/?url=http%3A%2F%2Fmedia.beam.usnews.com%2F7f%2F9f9ea0b18afa1cdc14b0478f245a24%2Fmedia%3Aae93b3cb5b45483d9c98ab10ea3b105aAPTOPIX_Virus_Outbreak_Britain_74961.jpg)*2022 年 1 月 27 日，星期四，一名戴着口罩以遏制冠状病毒传播的男子在通往伦敦威斯敏斯特地铁站的地下通道中走过一个非政府组织的健康宣传海报。*
-来自《美国新闻与世界报道》网站2022年01月27日的报道，在英国政府表示推出疫苗加强针成功地减少了中共病毒重症和住院人数后，英格兰在周四取消了大部分中共病毒限制，包括强制戴口罩规定。
+作者：香草山翻译部
 
-从周四开始，英格兰任何地方根据法律都不再要求戴口罩，进入夜总会和其他大型场所的疫苗通行证的法律要求也被取消了。
-
-政府上周放弃了对人们在家工作的建议，以及对在教室里戴口罩的要求。从下周起，对养老院到访人数的限制也将被取消。
-
-英格兰并不是欧洲本周唯一放弃中共病毒限制的地方。周三，荷兰在一个月后首次将餐馆、酒吧、博物馆和剧院重新开放，作为进一步的放宽限制的一部分。这一措施正值该国感染人数激增之际，不过进入重症监护室的人数一直在下降。
-
-在丹麦，首相梅特·弗雷德里克森(Mette Frederiksen)周三表示，从2月1日起，丹麦人可以自由进入餐馆、博物馆和夜总会，而且乘坐公共交通和在商店中戴口罩的强制性要求也将被取消。
-
-相比之下，德国领导人本周决定保持该国现有的限制措施，包括限制私人聚会的规模，因为奥米炕(omicron)病毒变种继续推动感染人数的急剧上升。
-
-英格兰所谓的“B计划”措施是在12月初推出的，目的是阻止omicron的快速传播，防止其压垮公共卫生机构，并为民众接种疫苗加强针争取时间。
-
-官员们周四说，英格兰12岁以上的人中，近84%已经接种了第二剂疫苗，而在符合条件的人中，81%已经接种了加强针疫苗。
-
-入院人数和在重症监护室的人数已经稳定或下降，每天的病例已经从新年前后超过20万的峰值下降到10万以下。
-
-首相鲍里斯·约翰逊(Boris Johnson)上周表示，奥米炕感染病例的激增“现在已经在全国范围内达到了顶峰”。
-
-卫生部长萨吉德·贾维德(Sajid Javid)说，疫苗的推广、病毒的检测和抗病毒治疗的开发结合起来，形成了“欧洲最强大的一些防御屏障”，使得欧洲“小心翼翼地恢复”到正常状态。
-
-但他补充说，“当我们学会与新冠病毒相处时，我们需要清楚地认识到这种病毒不会消失”。虽然感染率继续下降，但卫生官员说，奥米炕在全国各地仍然普遍存在，特别是在儿童和老年人中。在英格兰，病毒疫苗不提供给12岁以下的儿童。
-
-苏格兰、威尔士和北爱尔兰制定了自己的公共卫生规则，也同样放松了对病毒的限制。
-
-尽管法律要求被撤销，但一些商店——包括大型连锁超市森宝利(Sainsbury’s)和乐购(Tesco)——以及公共交通运营商表示，他们将继续要求人们戴上口罩。伦敦市长萨迪克·汗(Sadiq Khan)说，在首都的公共汽车和地铁列车上仍然需要戴口罩，但目前还不清楚这将如何执行。
-
-法律仍要求那些感染者自我隔离整整五天，但约翰逊说这项措施也将很快结束，取而代之的是建议和指导感染者谨慎行事。
-
-英国卫生官员表示，他们正在计划一个更长期的、大流行后的策略，将中共病毒更多地作为流感对待。
-
-简评：自中共病毒在全球爆发两年以来，英国政府一直采取限制政策来阻止疫苗的传播。在全民84%的民众打了两针疫苗的情况下，英国每天也有大量的民众被感染。事实本身就验证了中共病毒疫苗的无效性。至于疫苗能减少重症更是无稽之谈，且不说中共病毒疫苗的危害性已经被诸多医学界专家以及一线医护人员曝光，单从自然发展规律来看，病毒在传播过程中为了更长久地在宿主体内生存，变种病毒的毒性也会逐渐降低，甚至消失。何况可以确认的是，中共病毒是中共政权实验室制造的产物，当中共病毒疫苗最终被证明是黑暗势力毁灭人类的武器的时候，那些强推疫苗接种的政府和组织，必将受到人类的审判。
-
-新闻链接:[https://www.usnews.com/news/world/articles/2022-01-26/england-lifts-covid-restrictions-as-omicron-threat-recedes](https://www.usnews.com/news/world/articles/2022-01-26/england-lifts-covid-restrictions-as-omicron-threat-recedes)
-
-翻译/简评: kkoto(芬兰大灰狼)
-
-PR:Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-6.png)
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.28  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f4984281ce0a3ac2a0e050)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

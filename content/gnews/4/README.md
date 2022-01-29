@@ -2,8 +2,8 @@
 ---
 
 
-## 自己判断能力加上天力相助
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926754/)
+## 我们这次文明的力量，超越人类历史上的任何一次
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926847/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

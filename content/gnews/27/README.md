@@ -2,31 +2,38 @@
 ---
 
 
-## 【秘翻在线】拜登将派兵前往东欧
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1926473/)
+## 加拿大疫苗抗议活动升温 直逼特鲁多
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926543/)
 
-**撰稿：Grace**
+作者：首尔天池农场-zzballack、加拿大温哥华扬帆农场-Spirit、银河系农场-骄子、纽约香草山 defiance、纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据当地媒体报道，由于加拿大联邦政府持续推行针对卡车司机的中共病毒疫苗强制接种政策，自1月23日起，一大批卡车司机开始向加拿大首都渥太华进发，而他们的目的地则是于本月29日在那里举办的抗议强制疫苗令的集会。届时，预计将有来自全国各地的五千至一万辆卡车参与其中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.45.png)
+与此同时，加拿大的商业领袖们也正在敦促渥太华放弃对跨境卡车司机实行的疫苗强制令，用以缓解当地与美国之间拥堵的供应链。加拿大商会主席表示，政府需要明白来自卡车司机所提供的服务至关重要，即使在最严重的大流行病浪潮中也需要他们来保持供应链的正常运转。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-28-at-9.51.37-PM.jpeg)图片来源：journal-neo
-据《福克斯新闻》1月28日报道，拜登周五告诉记者，他将在 “近期内” 把美国军队调往东欧和北约国家。
+截止1月26日，名为“自由车队”的卡车队伍已经得到了超过一百万加拿大人的支持，他们正在逐渐逼近渥太华。消息显示，参与抗议的加拿大民众将矛头直指总理特鲁多，即要么特鲁多辞职，要么政府取消所有关于中共病毒及疫苗的强制措施。对此，有报道提及，在寻求加拿大皇家骑警和军方介入无果的情况下，特鲁多以“接触了中共病毒”为由，进行了所谓的“居家隔离”。
 
-报道称，拜登在匹兹堡（Pittsburgh）发表演讲后走下空军一号，发表了上述评论。但是，他没有说将有多少部队前往，他还表示，他没有关于俄罗斯和乌克兰之间紧张局势的最新情况。
+另外，截至目前，此次抗议活动已经在相关网站上募集了超过630万加元的资金，有八万多加拿大民众踊跃捐款。
 
-五角大楼的高级官员周五表示，俄罗斯军队在乌克兰边境的集结是冷战以来规模最大的一次。参谋长联席会议（Joint Chiefs of Staff Chairman）主席马克·米利（Mark Milley）警告说，东欧的冲突将是 “可怕的”。国防部长劳埃德·奥斯汀（Lloyd Austin）强调，这 “并非不可避免”，他坚持认为，在克里姆林宫（Kremlin）继续威胁要对乌克兰进行大规模入侵的情况下，“仍有时间和空间进行外交活动”。
+参考链接：
+1）[Business groups urge feds to reverse vaccine mandate for cross-border truckers](https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/)
+2）[Canadian Truck Drivers Protesting COVID-19 Vaccine Mandate Begin March From Vancouver To Ottawa](https://thecovidworld.com/canadian-truck-drivers-protesting-covid-19-vaccine-mandate-begin-march-from-vancouver-to-ottawa/)
+3）[Revolution! One Million People Marching To Ottawa To Demand PM Trudeau’s Resignation](https://www.infowars.com/posts/revolution-one-million-people-marching-to-ottawa-to-demand-pm-trudeaus-resignation/)
+4）[https://twitter.com/justintrudeau/status/1486704226449379329?s=21](https://twitter.com/justintrudeau/status/1486704226449379329?s=21)
 
-据报道，尽管本周早些时候，拜登暗示美国军队可能被调往欧洲， 但他说，“不会有任何美国军队进入乌克兰”，如果俄罗斯开始对乌克兰采取大规模军事行动，这些部队可能会被派往北约前线国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-五角大楼发言人约翰·柯比（John Kirby）在周四的新闻发布会上表示，部队包括驻扎在布拉格堡（Fort Bragg）的第82空降师的成员（82nd Airborne Division）和第18空降团（18th Airborne Corps）的成员经常保持高度戒备。
+总编：Irene木木
+编辑：飞虹/Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-美国几周来一直在为俄罗斯可能发动对乌克兰的入侵做准备，警告说如果莫斯科实施入侵，后果将不堪设想。
-
-美国国务院周四明确警告说，如果俄罗斯入侵乌克兰，[北溪2号管道（Nord Stream 2](https://gnews.org/zh-hans/1926081/)）将被闲置在海洋底部。
-
-据报道，目前超过10万名俄罗斯军队在与乌克兰的边界，柯比说五角大楼在过去24小时内继续看到俄罗斯的 “可靠的战斗力量 ”的集结。
-
-**新闻来源：** [Biden sending troops to Eastern Europe soon as Ukraine turmoil intensifies](https://www.foxnews.com/politics/president-biden-sending-troops-to-eastern-europe-as-ukraine-turmoil-intensifies)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

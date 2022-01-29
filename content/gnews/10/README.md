@@ -2,30 +2,19 @@
 ---
 
 
-## 文贵大直播摘要图片-“甜蜜蜜”运动（2022年1月29日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1926643/)
+## 长安街汽车鸣笛甜蜜蜜运动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926777/)
 
-#### 设计：波士顿五月花 科存
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵计划用喜币启动三场甜蜜蜜运动.png)
+发布：陶子
 
-用喜币启动三场“甜蜜蜜”运动
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵春节直播唱新歌灭掉中共冬奥会开幕式.png)
-
-春节唱新歌灭掉中共冬奥会开幕式
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/严肃媒体和社交媒体都将接受正义的审判.png)
-
-严肃媒体和社交媒体都将接受正义的审判
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/彭帅失去自由被监管.png)
-
-彭帅失去自由被监管
-
-* * *
-
-*发布：霹雳鼠年*
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
 
  
 

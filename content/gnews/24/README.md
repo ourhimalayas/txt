@@ -2,30 +2,39 @@
 ---
 
 
-## 加拿大疫苗抗议活动升温 直逼特鲁多
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926543/)
+## 有声|加拿大憲法撰寫人就疫苗強制令起訴聯邦政府
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1926629/)
 
-作者：首尔天池农场-zzballack、加拿大温哥华扬帆农场-Spirit、银河系农场-骄子、纽约香草山 defiance、纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据当地媒体报道，由于加拿大联邦政府持续推行针对卡车司机的中共病毒疫苗强制接种政策，自1月23日起，一大批卡车司机开始向加拿大首都渥太华进发，而他们的目的地则是于本月29日在那里举办的抗议强制疫苗令的集会。届时，预计将有来自全国各地的五千至一万辆卡车参与其中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.45.png)
-与此同时，加拿大的商业领袖们也正在敦促渥太华放弃对跨境卡车司机实行的疫苗强制令，用以缓解当地与美国之间拥堵的供应链。加拿大商会主席表示，政府需要明白来自卡车司机所提供的服务至关重要，即使在最严重的大流行病浪潮中也需要他们来保持供应链的正常运转。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+布萊恩-佩克福德在1979年至1989年期間擔任加拿大紐芬蘭省省長。在任職期間，他參與制定和通過加拿大《權利和自由憲章》，該憲章構成了1982年憲法的第一部分。
 
-截止1月26日，名为“自由车队”的卡车队伍已经得到了超过一百万加拿大人的支持，他们正在逐渐逼近渥太华。消息显示，参与抗议的加拿大民众将矛头直指总理特鲁多，即要么特鲁多辞职，要么政府取消所有关于中共病毒及疫苗的强制措施。对此，有报道提及，在寻求加拿大皇家骑警和军方介入无果的情况下，特鲁多以“接触了中共病毒”为由，进行了所谓的“居家隔离”。
+當地時間1月26日，加拿大媒體報導，佩克福德將聯邦政府告上法庭，理由是其對航空旅客的疫苗強制政策違反了《憲章》第6條。該條保障加拿大人在國內自由流動性，以及 “進入、留在和離開加拿大的權利”。訴訟還說這項政策侵犯了《憲章》規定的生命、自由和人身安全的權利，以及隱私權和不受歧視的權利。
 
-另外，截至目前，此次抗议活动已经在相关网站上募集了超过630万加元的资金，有八万多加拿大民众踊跃捐款。
+代表佩克福德和其他上訴人的是卡爾加里的憲法自由正義中心（JCCF）。鑒於訴訟的時間敏感性，JCCF正在申請加速聽證會。
 
-参考链接：
-1）[Business groups urge feds to reverse vaccine mandate for cross-border truckers](https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/)
-2）[Canadian Truck Drivers Protesting COVID-19 Vaccine Mandate Begin March From Vancouver To Ottawa](https://thecovidworld.com/canadian-truck-drivers-protesting-covid-19-vaccine-mandate-begin-march-from-vancouver-to-ottawa/)
-3）[Revolution! One Million People Marching To Ottawa To Demand PM Trudeau’s Resignation](https://www.infowars.com/posts/revolution-one-million-people-marching-to-ottawa-to-demand-pm-trudeaus-resignation/)
-4）[https://twitter.com/justintrudeau/status/1486704226449379329?s=21](https://twitter.com/justintrudeau/status/1486704226449379329?s=21)
+去年10月，加拿大總理賈斯汀-特魯多強行規定加拿大人在境內乘坐任何商業飛機或火車時，無論其目的地，都必須提供疫苗接種證明。即使是去沒有要求疫苗護照的國家，未接種疫苗的加拿大人實際上被剝奪了離境的權利。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+佩克福德是本案的首席申請人，該案正提交給聯邦法院。
 
-总编：Irene木木
-编辑：飞虹/Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+“聯邦旅行禁令將我和其他加拿大人隔離開來。 它是歧視性的，侵犯了我的憲法權利，這就是我為什麼要抵抗旅行禁令的原因，”佩克福德說。”現在越來越多的證據顯示接種疫苗並不能阻止人們被傳染，也不能阻止他們傳播COVID。政府沒有證明該禁令會使飛行更安全，這就是歧視。”
+
+JCCF說，加拿大有600萬未接種疫苗的人，約全國人口的15% ，現被禁止在加拿大境內或境外航空旅行。
+
+該團體說：”參與訴訟的這些加拿大人，有些人不能去照顧生病的親人，有些不能去工作，有些不能去拜訪家人和朋友，不能去度假，不能過正常人的生活。“
+
+JCCF的一份注釋指出，佩克福德先生是1982年憲法最後一位倖存的起草者和簽署者。
+
+“我認為這是非常有歷史意義的，”佩克福德在接受TrueNorth的《安德魯-勞頓秀》採訪時說，“我不知道在加拿大歷史上還有哪位省長就他曾參與制定和撰寫的東西，而將聯邦政府告上法庭。”
+
+“政府在限制個人權利和自由領域中越走越遠….。如果我們這次不勝利，不能確保憲法和憲章得到尊重，這將建立一個先例，下次就會更加削弱憲章的權力。這是對我們個人權利和自由的侵犯”。
+
+文字版原文：[加拿大憲法撰寫人就疫苗強制令起訴聯邦政府](https://gnews.org/zh-hant/1921425/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +42,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
