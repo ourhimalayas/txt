@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/29/2022 3:11 PM (UTC)`
+
+1月29号：尊敬的战友们好！你们健身了吗？传播CCP病毒！香港危机真相了吗？共产党的冬奥会将成为共产党制造的最大体育灾难！将在世界丢尽中国人的脸！丑陋的国际形象不可思议！这个流氓政党简直就是世界上最丑陋的一帮下三烂流氓集团！
+![img](https://media.gettr.com/group13/getter/2022/01/29/15/4c10a858-0cfa-c4c1-c9cc-e2c19e53ca89/out.jpg)
+
+---
+
 `@miles 1/29/2022 5:32 AM (UTC)`
 
 1/27/2022 Miles Guo: What are the stories behind the photo of me sitting in the dragon chair taken a long time ago? Why did I appear to be angry in the photo? Why is there a circle drawn in the photo? The older brother of the young hero, a cellmate executed by the CCP under false accusation, hasn’t realized until recently that his younger brother was a great man.<br/><br/>1/27/2022 文贵直播：文贵当年拍的那张坐龙椅的照片背后是怎样的故事？为什么照片中的文贵面露怒火？照片中画的圈是怎么回事？处男英雄哥哥直到今天才明白他的弟弟有多伟大<br/>
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1月27号：谢谢来福福战友，发来保存的……SNOW 视频🙏🙏🙏🙏🙏🙏美好的回忆！
 ![img](https://media.gettr.com/group3/getter/2022/01/28/00/fc8d84ab-5785-dd48-fcf1-6ef282f3ea96/out.jpg)
-
----
-
-`@miles 1/27/2022 11:40 PM (UTC)`
-
-1/27/2022 Miles Guo: I am going to launch three Tian Mi Mi Movements by using the Himalaya Coin. The Himalaya Coin is of extraordinary significance, and the Himalaya Pay is like pulling the tube that draws the blood from the Chinese people and inserting it into the old CCP kleptocrats. What are the three landmark events of the Himalaya Coin from its fetal period to birth?<br/><br/>1/27/2022 文贵直播：文贵计划用“喜币”启动三场“甜蜜蜜”运动；喜币意义非凡，H-Pay就是把中共是把中共插在中国人民身上的抽血管倒插进中南坑老杂毛身上；喜币从胎儿到出生的三个标志性事件是什么？<br/>
-![img](https://media.gettr.com/group46/getter/2022/01/27/23/e221077b-9a4e-f557-26d5-21710b8b1fc3/out.jpg)
 
 ---
 

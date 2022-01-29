@@ -2,46 +2,29 @@
 ---
 
 
-## 赵立坚希望美国能慎重考虑撤大使馆问题
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928934/)
+## 银河系内发现“前所未见的”天体
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1928993/)
 
-作者: 纽约香草山—Ivy001
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-65.png)
+[图片来源](https://news.yahoo.co.jp/articles/5d38032751324c843130d46ba7c8728c8c28c89f/images/000)
 
+澳大利亚的研究者们最近在银河系（Milky Way）内发现了旋转的奇妙的天体。据说这是天文学家从未见过的天体。
 
+正在撰写毕业论文的男大学生利用澳大利亚西部(Western Australia)州启动的低频射电望远镜(MWA)发现了该天体。约1小时3次爆炸性地释放电波能量。天体物理学家纳塔莎·哈雷沃克（Natasha Hurley-Walker）表示，电波能量“以18.18分钟为间隔，像时钟一样有规律地”飞行。他在学生发现后主导了实施的研究。哈雷沃克解释说，在宇宙中虽然还有脉冲发生器等可以观测周期性电磁辐射的天体，但迄今为止一次也没有观测到18.18分钟的周期。对过去几年的数据进行了详细调查，结果发现天体距离约为4000光年，而且非常明亮，而且具有极强的磁场。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+该天体在理论上可能存在，但有可能是至今没有发现的被称为“超长周期磁铁”的天体。磁铁是一种自转极快、磁场非常强的中子星。也有可能是坍塌的恒星残骸白矮星。但是哈雷沃克表示:“这也是非常罕见的事情。被称为‘白矮星脉冲星’的只有1个例子，其规模也不如此次那样大。”“对于从宇宙空间飞来的如此强大、具有一贯性的电波信号，是否是由某种地球外生命体发送的”这样的提问，他承认说:“也担心是不是外星人。”
 
+但是研究组成功观测到了广泛频率的信号。哈雷沃克说:“这意味着信号肯定是自然作用的结果，而不是什么人发出的信号。”研究组此次发表的有关天体的论文刊登在了英国科学杂志《自然（Nature）》的最新版上。
 
+信息来源：
 
-当地时间1月26日，中共外交部记者会上有记者问，“对于美国政府授权撤离美国驻北京大使馆，中共政府有何看法？” 中共外交部发言人赵立坚避重就轻的回答，指在控制疫情方面，中共国是世界上最安全的国家，从中共国撤出，只会极大增加美方人员感染的风险。最后，赵立坚还语带希望的挽留美方，“中方已就此向美方表示严重关切和不满。希望美方认真对待中方立场和关切，慎重考虑所谓外交领事人员“授权撤离”问题。” 网友评论：按照国际惯例，中共应该考虑撤离中共驻华盛顿的大使馆，而不是恳请美方“慎重考虑”。
+[「かつて見たこともないような」天体、天の川銀河内で発見](https://news.yahoo.co.jp/articles/5d38032751324c843130d46ba7c8728c8c28c89f)
 
-同日，文贵先生发盖特指出，美国这次授权撤离与中共病毒疫情没有一点关系。相关撤离事宜已经进行将近两个月了，美国大使馆的相关重要文件及设备已全都撤出。而且，除非在中国已没有共产党了，否则美国大使馆将不打算返回中国。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-6-1.jpg)图片来源网络
-
-**相关链接:**
-
-[https://gettr.com/post/pqo95v8197](https://gettr.com/post/pqo95v8197)
-
-[https://gettr.com/post/pqo5pu3741](https://gettr.com/post/pqo5pu3741)
-
-![This image has an empty alt attribute; its file name is Jan-17.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
-
-编辑/校对/发稿: Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-46.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
  
 
