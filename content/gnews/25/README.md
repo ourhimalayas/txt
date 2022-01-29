@@ -2,53 +2,41 @@
 ---
 
 
-## 【Michael.Tonny专栏】防腐师在大量接种过COVID-19疫苗的尸体中发现血栓
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1929660/)
+## 从历史角度看撤离令和疫苗政策
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1929718/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+作者：香草山教育部 – 文雨清风
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+学史可以明智。从1972年的冷战时期，美国为了对抗来自苏联的威胁，跟中共建立正常外交关系，到1989年天安门运动，东欧社会主义阵营瓦解，苏联风雨飘摇，中共重新和美国及西方推动全球化的政治、资本精英勾兑，再到2022年1月美国授权撤离驻华大使馆人员，半个世纪的事件向我们展现了两个重要的历史脉络：一、当下美国对中共的重大战略调整，二、疯狂的疫苗政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+**美国对中共的重大战略调整**
 
-COVID-19病毒，是中共向全世界投放的生化武器，没有疫苗！试验性的COVID-19疫苗只会带来严重的疫苗灾难！
+我们知道**中共政权是在国际共产主义联盟的帮助下窃取中国人民的**，共党也知道他们的政权没有合法性，所以从1949年起始他们便在国内拼命实行高压统治，通过搞暴力土地革命、文化革命等一系列政治运动和暴力来巩固自己的政权稳定。到1978年施行改革开放后，政权的合法性逐步改为GDP的增长率。到2012年习上台，大搞隐藏在反腐运动下的政治斗争，镇压香港市民、恐吓台湾，走向家天下，图谋统治世界的疯狂，来掩饰政权的合法性。**中共对自身的不自信和他们黑暗不能见光的历史必然走向一条不归之路。**
 
-防腐师Richard Hirschman在参加1月27日Jane Ruby博士主持的视频节目[Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots](https://stateofthenation.co/?p=104914)中透露，在他处理的大量尸体中看到死者动脉（arteries）和静脉（veins）中充满了非自然的血凝块（unnatural blood clot）组合，以及完全充满血管系统（vascular system）的奇怪的纤维材料（fibrous materials）。他确认这些死者很多接种了COVID-19病毒疫苗！
+**而这历史的背后都绕不开美国对中共的姑息、勾兑及对其非法政权的背书和站台。**就如郭文贵先生在2022年1月26号的大直播里所说，美国在89年6月4号天安门事件、中美南海冲突等重大事件中，都没有下令撤消驻华使馆，而是**在距离2022年北京冬奥会的前夕，宣布撤离驻华大使馆人员的重大决定，这背后有文贵先生和我们新中国联邦人所做的巨大努力，也是美国人在病毒、疫苗等灾难下对中共本质的反省后所做出的对中共重大战略调整。**与魔鬼做交易必然殃及反噬自身，不彻底消灭中共非法政权，世界永远没有和平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Embalmers-Find-Veins-Arteries-Filled-with-Never-Before-Seen-Rubbery-Clots-.png)
+**疯狂的疫苗政策**
 
-Richard Hirschman，在防腐行业（embalming industry）有20 多年的工作经验，是董事会认证的殡仪馆主任（funeral director）和防腐师（embalmer）。
+我们知道89.64天安门事件后，中共亦然于2001年申奥成功，同时加入WTO。这故事的历史真相又是什么呢？89年随着柏林墙倒塌，东欧巨变，苏联的社会主义阵营风雨飘摇，中共与美国在1972年达成的联合抗苏的根基便不复存在，中共便不敢茫然镇压学生运动，这也是学生运动在国内风起云涌的原因。中共急需跟美国及西方精英重新找到新的定位和模式，达成交易，他才敢肆无忌惮的血腥镇压。80年代末美国及西方的社会也急剧变化，也是这个时候西方的社会精英正在酝酿推出全球化战略，口号是社会分工，提高效率，每个人的明天更美好如此等等，就像中共要干什么事一样，口号永远是一切为人民服务一样。**我们要明白推动全球化的不是所有人，也不是美国人民，而是美国为代表的西方社会精英们在背后推动此事，而我们普通人只不过主动或者被动的卷入其中。**知道了背后的推动者是西方极少数的社会精英，从人性的角度出发，我们知道漂亮的口号绝不是他们行为背后的动机和目的，仅仅只是口号而已。
 
-Jane Ruby博士，是一名医学专业人士和药物（pharmaceutical drug）开发专家，在 FDA和EMA的药物批准监管流程（regulatory processes）方面拥有超过20年的工作经验。曾推出一些世界上最著名的治疗抑郁症（Depression）、阿尔茨海默病（Alzheimer’s disease）、戒毒（Addiction）和心肺疾病（Cardio-pulmonary diseases）方面的药物。她曾出现在美国的众多电视和广播节目中。
+**他们推动的全球化是财富、权利、资源的集中化。**这才是他们背后的动机和目的。所以他们需要一个像中共那样的独裁政权，这三十年的世界发展其实是中共和西方社会精英的同流合污，沆瀣一气，中国人被奴役，美国人民被欺骗的历史。但他们绝不会说出这些，他们推动全球化必然和天然的敌人就是80年代美国社会中占据多数的中产阶级。中共拿出10亿的廉价劳动力和未来巨大的消费力市场作为交换，换得美国及西方的产业链转移到中国，中国人成了被中共和西方社会精英收割的双重韭菜和奴隶。同时西方社会精英的贪婪再祭出类似于2008年的次贷危机，美国的中产家庭也快速破产。再随着生物、网络科技的快速发展，人工智能时代的来临，疫苗政策、全球大重启、新秩序计划接踵而来。
 
-Richard Hirschman说，从2020年11月开始，他看到大量尸体中有长而有弹性的纤维状血块，Hirschman先生把这些长而有弹性的纤维状血块叫作“蠕虫”。后来，他发现在他处理的尸体中高达50%都含有这种“蠕虫”。现在，这个比例甚至接近80%。仅仅在这个月，他亲自做防腐处理的35具尸体中，就有20~24具尸体含有这种长而有弹性的纤维状血块。
+而我们再思考一下，这三十年的发展带来的还有什么呢？这三十年期间，除了人人都参与其中的全球化浪潮，还有当下已经大多数人参与的全民疫苗政策。我们按着前一个思路脉络，不难发现在保护你，为你好的宣传口号下的疫苗政策，是大独裁者们和所谓社会精英为杀人越货，建立全球新秩序的工具。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnatural-blood-clot1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
 
-在前年11月开始注意到有很多尸体中出现这些奇怪的纤维状血块之后，他对这些所谓的“蠕虫”进行了防腐处理。
+**校对/发稿：童谣**
 
-在显微镜下，这些蠕虫状结构的血凝块与接种过疫苗的死者的血液非常相似，但他以前从未见过这种大小的东西。他能够确认一些血管中含有这类血栓的死者确实接种了Covid-19疫苗，但他无法确认所有这些人都接种了疫苗，或者具体是什么原因导致这些很长的血栓出现在死者的血液循环系统中。
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnatural-blood-clot.png)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-COVID-19病毒不同于任何其它来源于自然的病毒，而是[中共国科学院武汉病毒研究所](http://www.whiov.cas.cn/)通过基因编辑制造的生化武器病毒！COVID-19病毒疫苗，只会导致严重的灾难！
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-随着更多人注射这种实验性的中共病毒疫苗，像这样血液循环系统中充满血凝块的死者只会越来越多，因心脏病发作和中风（heart attacks and strokes）而导致的死亡人数大量增加。
-
-Richard Hirschman曾与其他同行进行过交流，这些同行也在他们处理的尸体中发现了这种情况，而之前他们都从未见过这样的事情。
-
-毫无疑问，这就是疫苗灾难！停止毒疫苗！
-
-参考资料：
-
-[Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots (Video)](https://stateofthenation.co/?p=104914)
-
-[Embalmers Find Veins & Arteries Filled with “Never Before Seen” Rubbery Clots](https://notaakhirzaman.com/9336/)
-
-[中共国科学院武汉病毒研究所](http://www.whiov.cas.cn/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,22 @@
 ---
 
 
-## 外媒称中共通过贿赂使西方忽视其暴行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929541/)
+## 瑞典不建议为12岁以下儿童接种中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929543/)
 
 作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月24日，据美国媒体报道，一直以来，中共政府通过经济利益诱使一些西方的媒体和企业家忽视其在中共国内实施的各种暴行。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.01.png)
-报道提到，此前，美国金州勇士队的高层查马斯扬言称，人们不关心中共对新疆维吾尔人犯下的种族灭绝罪。另一方面，国际奥林匹克委员会以及奥运会的赞助商们也不在乎他们为中共这次举办的种族灭绝奥运会买单和提供支持——这些企业家们只关注他们从中共政府那里获得的经济利益。而这也让中共政府产生了一种可以轻易通过经济手段收买世界的错觉。
+当地时间1月27日，据相关媒体报道，瑞典卫生局于当天发布声明表示，政府不建议当地5至11岁的儿童接种中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.27.png)
+瑞典卫生局的官员在新闻发布会上指出，当前所有的研究结果都明确显示，儿童患严重疾病的风险很低，但中共病毒疫苗所带来的危险性远远却超过它的防护性。
 
-对此，评论人员则指出，与中共所预期的相反，越来越多的人正在关注中共所犯下的暴行以及这些暴行的可怕性。同时，不仅仅是新疆维吾尔人的遭遇，更多的正义团体和个人正在向全世界呼吁，关注中共政府对西藏人、香港人和其他许多中国政见异议者的镇压，而这或许是中共冬奥会给世界带来的唯一贡献。
+据悉，本月26日，瑞典当日新增了超过四万例中共病毒感染病例，达到了该国自大流行以来的单日确诊峰值，这也让瑞典政府延长了该国所有关于中共病毒疫情的限制措施。但另一方面，瑞典当局正在计划于2月9日逐步取消这些限制。
 
-参考链接：[Rogin: Many in Corporate World, Some in Media ‘Don’t Care’ about China’s Abuses, ‘Our Elites Are Often up for Bribery’](https://www.breitbart.com/clips/2022/01/24/rogin-many-in-corporate-world-some-in-media-dont-care-about-chinas-abuses-our-elites-are-often-up-for-bribery/)
+参考链接：[Sweden decides against recommending COVID vaccines for kids aged 5-11](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：Irene木木
+总编：文特
 编辑：Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 
