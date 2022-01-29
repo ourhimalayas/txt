@@ -15,86 +15,86 @@
 
 ---
 
-### [被洗脑的中共国运动员：报答领袖豁出去！](/content/gnews/1/README.md)
+### [中共国防部就台湾问题向美日发出威胁](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [keep balance](/content/gnews/2/README.md)
+### [“自由车队”：加拿大正在走向黑暗、充满压迫和控制的独裁制度](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [停止疫苗护照的22种方法（2/3）](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [被洗脑的中共国运动员：报答领袖豁出去！](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [keep balance](/content/gnews/5/README.md)
  ` 骄子`
 
-### [英国疫苗强制令将在最高法庭接受质疑](/content/gnews/3/README.md)
+### [英国疫苗强制令将在最高法庭接受质疑](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳助理国防部长：形势很危险，必须维护基于规则的国际秩序](/content/gnews/4/README.md)
+### [美国最高法院大法官斯蒂芬.布雷耶宣布将退休](/content/gnews/7/README.md)
+ ` GTV News Talk`
+
+### [澳助理国防部长：形势很危险，必须维护基于规则的国际秩序](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [缘起灭共之念](/content/gnews/5/README.md)
+### [缘起灭共之念](/content/gnews/9/README.md)
  ` 银河勇气之星`
 
-### [在疫苗接种率最高的国家，中共病毒感染率正在飙升](/content/gnews/6/README.md)
+### [在疫苗接种率最高的国家，中共病毒感染率正在飙升](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾激进人士和立法者在议会大楼外抗议北京冬奥会](/content/gnews/7/README.md)
+### [台湾激进人士和立法者在议会大楼外抗议北京冬奥会](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大最大革命之一： 卡车司机点燃全民抗议热情](/content/gnews/8/README.md)
+### [加拿大最大革命之一： 卡车司机点燃全民抗议热情](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [强制疫苗正在使美国军队失去数百名经验丰富的飞行员](/content/gnews/9/README.md)
+### [强制疫苗正在使美国军队失去数百名经验丰富的飞行员](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联合国安理会将公开举行会议讨论乌克兰局势](/content/gnews/10/README.md)
+### [联合国安理会将公开举行会议讨论乌克兰局势](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国政府是美俄冲突中唯一确定从中获益的赢家](/content/gnews/11/README.md)
+### [中共国政府是美俄冲突中唯一确定从中获益的赢家](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022/01/29 英喜时事速递](/content/gnews/12/README.md)
+### [2022/01/29 英喜时事速递](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [罗伯特·马龙博士：为我们的孩子而战，绝不妥协](/content/gnews/13/README.md)
+### [罗伯特·马龙博士：为我们的孩子而战，绝不妥协](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国驻美国大使警告：台湾将有“军事冲突”](/content/gnews/14/README.md)
+### [中共国驻美国大使警告：台湾将有“军事冲突”](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Kheriaty博士谴责以公共安全为名侵害个人自由](/content/gnews/15/README.md)
+### [Kheriaty博士谴责以公共安全为名侵害个人自由](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日媒打脸习和巴赫为北京冬奥造势的行径](/content/gnews/16/README.md)
+### [日媒打脸习和巴赫为北京冬奥造势的行径](/content/gnews/20/README.md)
  ` GTV News Talk`
 
-### [德国卫生部长称：全国实行的暴虐的COVID-19限制，是出自 “软件错误”](/content/gnews/17/README.md)
+### [德国卫生部长称：全国实行的暴虐的COVID-19限制，是出自 “软件错误”](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [图表显示中共国人口增长呈断崖式下跌](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [停止疫苗护照的22种方法（1/3）](/content/gnews/19/README.md)
+### [停止疫苗护照的22种方法（3/3）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [一个北京人在墙内勇敢发声赞扬民主制度好](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共派出有史以来第二多数量的战机入侵台湾防空区](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [电影制片人捕捉到的“击败授权”集会的真正精神](/content/gnews/22/README.md)
+### [停止疫苗护照的22种方法（1/3）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟报告提醒中共严重威胁 呼吁加强与台合作](/content/gnews/23/README.md)
- ` GTV News Talk`
-
-### [第二个版本的奥米炕病毒正在蔓延 科学家们发出警报](/content/gnews/24/README.md)
+### [电影制片人捕捉到的“击败授权”集会的真正精神](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美高级官员将访问立陶宛 对抗中共经济胁迫](/content/gnews/25/README.md)
+### [第二个版本的奥米炕病毒正在蔓延 科学家们发出警报](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美高级官员将访问立陶宛 对抗中共经济胁迫](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [墙国一隅——从“文明城市”看中共的假与骗](/content/gnews/26/README.md)
+### [墙国一隅——从“文明城市”看中共的假与骗](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
-
-### [根据新出台的南卡罗来纳州法案特定机构无权要求个人提供中共病毒疫苗接种状态。](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [美国政府研究承认COVID疫苗会延长月经周期](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
