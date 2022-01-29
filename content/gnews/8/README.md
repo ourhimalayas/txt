@@ -2,30 +2,38 @@
 ---
 
 
-## 两件震惊世界的事（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926200/)
+## 魁北克省媒体刊登第二张支持自由车队卡车司机抗议活动的漫画
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1926233/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/两件震惊世界的事（二）-.jpg)
-直播时间：2021.12.01
+2022-01-28
 
-这两样都将是震惊世界的东西。中国人从来没玩过，这两件事发生以后什么人能碰这两样东西呢？
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Y5P9HYU7TVRQ@F6763CM.png)图片来源：雅尼克•勒梅 Yannick Lemay, 蒙特利尔日报（2022 年 1 月 28 日）
+加拿大魁北克省的蒙特利尔日报（雅尼克•勒梅 Yannick Lemay, 蒙特利尔日报，2022 年 1 月 28 日）发表如下一张漫画图片。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CS9W@CFJCT845BWG31R_M.png)图片来源：雅尼克•勒梅 Yannick Lemay, 蒙特利尔日报（2022 年 1 月 28 日）
+在漫画家雅尼克•勒梅 Yannick Lemay的漫画中，加拿大总理，贾斯汀·特鲁多（Justin Trudeau），手中紧紧握着新冠疫苗注射器试图阻挡行驶着的而且轮子悬空的大卡车。卡车司机显得富有美国人的气质，并探出车窗愤怒地大声叫喊着“……”。卡车标有显赫的“自由”的字眼。
 
-喜币拥有者，法制基金捐款者，还有我们G系列的投资者，只有你们拥有啊。我告诉大家，记住今天说的话，这些都是中国人绝不可能碰得到。而且以后你们这样全身置身于其中的啊。
+据报道，特鲁多曾经公开表示，（参加自由车队卡车司机抗议活动的）卡车司机是在”散布恐惧”。
 
-所以说这次美国和西方的监管，在你们看到的时候已经是很晚了。全世界这些大玩家都知道了，全世界要接受接受数字货币，所以这几家全来了。如果我们是个去中心化人会来吗？不会来的。你没有严格的KYC会来吗？不会来的。没有七哥这些关系人会来吗？不会来的。
+另外，Gnews, 2022 年 1 月 27 日发表一篇题为《[魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画](https://gnews.org/zh-hans/1920342/)  》的文章报道，魁北克省媒体刊登了第一张自由车队卡车司机抗议活动的漫画。漫画家，塞尔日•查普洛SERGE CHAPLEAU，的漫画中显示，加拿大保守党领袖艾琳·奥图尔（Erin O’Toole）在行驶着的卡车下面高喊：“停车！！！”。
 
-希望有越来越多的人明白，不管是观众还是听众，能够加入到我们的这个系列、队伍，能够让我们新中国联邦能够战胜所有的黑暗势力。
+据报道，加拿大保守党领袖艾琳·奥图尔（Erin O’Toole）曾经公开表示，（自由车队卡车司机的抗议活动）不要在接下来的几天内使用暴力进行抗议，并说使用这种方法抗议可能会严重损害卡车司机的职业。
 
-发布：*皮特*
+然而，正如漫画家，塞尔日•查普洛SERGE CHAPLEAU，的漫画所预料的，这辆卡车已经不可能停下来了。时隔一天这辆车开进了渥太华，撞上了手中紧紧握着新冠疫苗注射器的加拿大总理，贾斯汀·特鲁多（Justin Trudeau）。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+还有，Gnews, 2022 年 1 月 26 日发表一篇题为《[魁北克省媒体刊登冠以极具政治敏感性标题：“公民不服从”的漫画](https://gnews.org/zh-hans/1916348/)》的文章报道，同一位漫画家，塞尔日•查普洛SERGE CHAPLEAU，还发表了一张题为《公民不服从》的漫画图片。
 
+**参考资料**：
+
+1. [蒙特利尔日报，Le Journal De Montreal，雅尼克·勒梅 Yannick Lemay,  2022 年 1 月 28 日，La caricature d’Ygreck，](https://www.journaldemontreal.com/2022/01/28/la-caricature-dygreck)
+
+
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

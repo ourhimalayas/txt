@@ -2,14 +2,17 @@
 ---
 
 
-## 2022年1月29日《樱花简报》：日本新增中共病毒确诊近8万人 连续3天创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1926136/)
+## 五月花简报（01/21/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1926167/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220129-scaled.jpg)
+全球要闻
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+作者：波士顿五月花—冲天一怒
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D0925FEE-4F81-4EEC-BC36-CE757E7E3A12.jpeg)
+*发布：思澈*
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
