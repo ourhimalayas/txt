@@ -2,46 +2,44 @@
 ---
 
 
-## 有声|輝瑞董事會成員建議停止強制疫苗接種
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925942/)
+## 【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1926081/)
 
-配音：香草山健身部 – 玫瑰园
+**撰稿：Grace**
 
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-28-at-6.32.00-PM.jpeg)图片来源：cengnews
+据《福克斯新闻》1月27日报道，美国国务院周四明确警告说，如果俄罗斯入侵乌克兰，北溪2号管道（Nord Stream 2）将被闲置在海洋底部。
 
+报道称，这条有争议的管道已经成为美国和北约试图维护基辅(Kyiv)主权的最大谈判筹码。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-42.jpg)
+记者询问外交机构，在对抗俄罗斯的入侵时，将从运作中的管道中获利的德国是否与之站在同一战线。
 
+负责政治事务的副部长维多利亚·努兰(Victoria Nuland)说: “我们继续与我们的德国盟友进行强有力的、明确的沟通, 如果俄罗斯入侵乌克兰，无论如何，北溪2号都不会向前推进。”
 
+据报道，美国国务卿安东尼·布林肯(Antony Blinken)本周早些时候也发表过这样的评论。
 
-美國食品和藥物管理局（FDA）前局長、輝瑞公司現任董事會成員斯科特-戈特利布博士（Dr. Scott Gottlieb)認為新冠病例的減少是給決策者發出的信號，現在是取消更多疫情相關限制政策的時候。
+本月早些时候，有报道称，制裁该管道以规避俄罗斯在东欧的侵略，在德国是一个不受欢迎的解决方案，这引起了柏林的一些担忧。
 
-他在1月24日接受 The Squawk Box 採訪時說：”我認為，在東海岸病例數急劇下降的時候，我們需要根據時局調整措施。隨著形式的改變，我們必須以實施措施時的相同速度，來放鬆一些相關制度。
+但德国总理奥拉夫·肖尔茨(Olaf Scholz)反驳了这些报道，并表示他将确保新成立的政府遵守拜登和德国前总理安格拉·默克尔(Angela Merkel)在7月达成的协议。
 
-戈特利布說，美國的 “很多爭執 “來源於對何時取消疫情措施沒有 “明確的目標”。
+据自由欧洲电台（Radio Free Europe）报道, 德国外交部长安娜莱娜·贝尔博克（Annalena Baerbock）周四告诉议会, 德国“正在制定强有力的一揽子制裁措施”, 并指出北溪2号管道只是其中一个感兴趣的经济领域。
 
-這位前美國食品和藥物管理局專員還提到，康涅狄格州政府最近取消對州政府工作人員的疫苗強制的決定，應該被其他州決策者所採納。戈特利布補充說：”要想讓民眾遵守規則和贊同，唯一方式是要證明我們有能力施行政策，也有能力取消這些政策”。
+据报道，白宫和北约一直在努力传递信息，并声称联盟拥有一个统一战线。
 
-原文链接：[輝瑞董事會成員建議停止強制疫苗接種](https://gnews.org/zh-hant/1921158/)
+努兰德周四告诉记者：“我们是统一的，如果莫斯科拒绝我们的对话提议，代价必须是迅速和严厉的。”
 
-音频处理/发稿：Daxia
+据报道，美国、北约和俄罗斯之间的关系一直很紧张，克里姆林宫还没有解散其在乌克兰边境集结的10万名部队。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+俄罗斯总统弗拉基米尔·普京（Vladimir Putin）要求西方保证不允许北约扩大到基辅，并且不在乌克兰放置打击武器。
 
-**更多资讯，更多关注**
+美国和北约已经断然拒绝了加入这个30国联盟的禁令，但拜登建议可以就打击武器的布置进行谈判。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+美国本周向普京递交了一份书面文件，以回应他的要求，尽管提议的谈判细节仍然模糊不清。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+美国国务院周四告诉记者，克里姆林宫（Kremlin）表示，普京需要 “一点时间 ”来研究这份答复。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+**新闻来源：** [State Dept vows Nord Stream 2 will be a ‘hunk of metal at bottom of the ocean’ if Russia invades Ukraine](https://www.foxnews.com/politics/state-dept-vows-nord-stream-2-hunk-metal-bottom-ocean-russia-invades-ukraine)
 
  
 

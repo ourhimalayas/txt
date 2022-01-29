@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|日议员提议派高官赴台湾 首相未否定
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925917/)
+## 《历史的今天》2022.01.29
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1926026/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
-1月26日，日本首相岸田文雄在众议院进行答询时，被自民党中谷真一议员问及日台关系深化相关问题时，岸田文雄表示，与台湾相关的议题，日本虽有基本立场，但仍须努力深化日台关系，加强交流。
+作者： JAY (杰伊)
 
-中谷真一还提出，日本应与蔡英文政府拉近距离，派遣外交高官赴台，推动各项政策交流。日本自1972年与中共国外交正常化后，尚未与台湾建交。而对于中谷真一的这项提议，岸田文雄也未予以否定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/real-final-vote.png)图片来源：[https://tibet.net/the-tibetan-policy-and-support-act-hr-4331-passed-in-the-us-house-with-supermajority-vote/](https://tibet.net/the-tibetan-policy-and-support-act-hr-4331-passed-in-the-us-house-with-supermajority-vote/)
 
-原文链接：[日议员提议派高官赴台湾 首相未否定](https://gnews.org/zh-hans/1923181/)
+一、1979年1月29日，中共邓小平访美。
 
-音频处理/发稿：Daxia
+二、2002年1月29日：在美国911事件数月后，美国总统乔治布什发表国情咨文演讲，把伊朗、伊拉克和朝鲜称为“邪恶轴心”，指责这三国支持恐怖主义。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+三、2008年1月29日，美国总统乔治布什最后一次国情咨文演讲时表示，在伊拉克的部队 增兵正在取得成功，基地组织正在逃跑并将被打败。
 
-**更多资讯，更多关注**
+四、2018年1月29日，中共国企中交建在巴基斯坦瓜达尔港区所承建所谓自由区起步区市政工程的“一带一路”项目开始营运。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+五、2019年的1月29日，郭文贵先生向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+六、2020年1月29日，川普政府成立由卫生与公众服务部部长亚历克斯-阿扎尔领导的白宫冠状病毒工作组。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+七、2020年1月29日，美国国会众议院压倒性票数通过《西藏政策及支持法案》，以捍卫藏人宗教自由，保障西藏自治地位。法案规定，中共官员不得干涉未来包括达赖喇嘛在内的藏传佛教领袖转世，否则美方将予以制裁。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+八、2021年1月29日，中共幕后操纵，海航集团以不能清偿到期债务为由，向法院申请破产重组。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+九、2021年1月29日，中共国企华融资产管理公司前负责人赖小民，指控受贿而被处决。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+* * *
 
-
+*发布：Theodosia*
 
  
 
