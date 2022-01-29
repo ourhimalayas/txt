@@ -2,33 +2,12 @@
 ---
 
 
-## 电影制片人捕捉到的“击败授权”集会的真正精神
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1928631/)
+## 中共国政府是美俄冲突中唯一确定从中获益的赢家
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928742/)
 
-翻译：Jenny Ball
+01/25/2022 塔克·卡尔森：任何有理性的人都无法为俄罗斯对乌克兰发动战争辩解。一点也不复杂的是，是谁从我们与俄罗斯的冲突中受益？是中共国。中共国政府是这里唯一确定的赢家。他们惊喜地看着美国的整个政治领导阶层朝着错误的方向全速奔跑、远离亚洲。乌克兰、俄罗斯和中共一定想知道，这些人怎么会如此愚蠢地自我毁灭
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1.jpg)图片来源：The Defender Staff
-
-调查记者和纪录片制片人丹·科恩（Dan Cohen）参加了周日在华盛顿特区举行的“击败授权”抗议活动，超过 30,000 人聚集在那里抗议疫苗授权、抗议政府过度扩张和审查。
-
-科恩是为了了解真实的故事——而不是制药公司资助的主流媒体向公众兜售的故事。
-
-他采访了消防员、医疗保健工作者、律师、医生、民权活动家、职业运动员和疫苗受伤儿童的父母，以找出他们参加抗议的原因。
-
-尽管主流媒体将抗议者描述为“极端分子”和“反疫苗者”， 但科恩发现人们有许多不同的宗教信仰、政治观点以及对疫苗风险和益处的看法。
-
-但他们都围绕着一个单一的信息团结起来：自由。
-
-**纪录片链接**：[www.youtube.com](https://www.youtube.com/watch?v=iDLBYjDPkSg&amp;t=7s)
-**素材来源**：[childrenshealthdefense.org][Filmmaker Captures True Spirit of ‘Defeat the Mandates’ Rally](https://childrenshealthdefense.org/defender/dan-cohen-video-defeat-the-mandates/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

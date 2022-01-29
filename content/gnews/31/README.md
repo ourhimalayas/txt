@@ -2,32 +2,49 @@
 ---
 
 
-## 美国拒绝中共哀求 派军事医疗专机协助撤离大使馆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1928135/)
+## 帮助中共研发病毒的生态健康联盟又获政府巨额经费
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928377/)
 
-撰稿：东京樱花团丨喜马拉雅的微尘
-![](https://lh3.googleusercontent.com/PxG54td-2dD-rcC8qg49LZGyS0HPBzB-sr4A0Nl6OPe8Uha0jJt7Um5iuxwXEg42lcIZwO65hsIiRmBZidlfVfmA7N02dn9F5eVEgIYsR_-JPj50ZgkaJlOi5xgncFksUrIpSoYr)
-自郭文贵先生近日爆出美国将撤离北京大使馆消息以来，美国撤馆情况已为全球所瞩目。
+作者: MOS- 柳是多水土透
 
-1月28日，郭文贵先生在盖特视频中透露了最新的美国撤离北京大使馆情况。
 
-郭文贵先生透露，中共刚刚跟美国商量，也就是昨天（1月27日）中共恳求美国不要撤走（大使馆）那么多人，并建议美国“象征性的把所谓阳性的人撤走，剩下的留在这儿，然后共同来个公告”，对外宣称“由于使馆有人感染阳性，短暂的授权撤离”。
 
-郭文贵先生进一步透露，美国派了几架军事医疗专机到了北京，目前就在北京首都机场T3机楼。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
-美国为什么派遣多架军事医疗专机到北京？
 
-“美国北京大使馆几个人呢，去那么多军事医疗专机干啥去啊？ ”郭文贵先生以启发式的反问进行了回答。
 
-1月25日，郭文贵先生在“甜蜜蜜运动重大公告”中公布了关于美国授权撤离北京大使馆消息，该消息震惊世界，同时也充分展示了爆料革命、新中国联邦在推动“美国撤馆”这一重要的灭共历史进程中的巨大作用。
+美国媒体1月22日消息，美国非营利机构生态健康联盟，刚刚从联邦政府得到了470万美元的科研经费。这是美国国际开发署向该机构提供的最大金额，也是该组织从联邦机构获得的第三大金额的拨款。 根据近期各种渠道披露的证据，生态健康联盟与中共武毒所有着非同寻常的关系。之前公开的预算文件则显示，美国国立卫生院曾经前任主席柯林斯和白宫顾问福奇批准，拨款至该机构，用于和武汉病毒所合作进行冠状病毒功能增强实验，以强化其传播能力和致命性。 如今这个涉嫌与导致全球疫情大流行有重大关系的机构非但没有受到质疑，反而获得政府空前资助，有分析人士认为，病毒溯源的时机恐怕还要拖延。
 
-对于美国坚定撤离大使馆的行动，中共内部当前不敢面对、不愿面对，仍旧寄望于联合美国出个公告以欺骗广大的中国老百姓，以维护它们对中国的统治。不管中共是否愿意正视现实，作为中共政权合法性“定海神针”的美国大使馆的撤离，已经开启了中共灭亡的倒计时。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-1.jpg)图片来源网络
 
-信息来源：[**郭文贵先生2022年1月28日盖特视频（4分05秒）全文字版**](https://gnews.org/zh-hans/1927201/)
 
-*校对：东京樱花团 / 东洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+**相关链接:**
+
+[Wuhan Collaborators ‘EcoHealth’ Just Received One Their Largest EVER Grants, From Joe Biden’s Government.](https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
+
+编辑: 飞虹
+
+校对/发稿: Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-46.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
