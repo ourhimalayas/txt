@@ -2,50 +2,33 @@
 ---
 
 
-## 香港外汇基金2021年投资收益创近三年新低
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1925564/)
+## 马斯克为加拿大卡车司机欢呼
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1925717/)
 
-作者：纽约香草山农场 – 四季
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Elon-Musk-Canadian-Truckers-Rule.jpg)图片来源：Transportation Nation
+根据《金融邮报》(Financial Post) 1月28日报道，马斯克与小特朗普一起为向特鲁多驶去的疫苗抗议活动欢呼，发推明确赞成，表示车队正在引起世界各地的关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+马斯克表示支持由加拿大卡车司机和其他活动家组成的 “自由车队”，他们正在前往渥太华抗议该国的疫苗强制规定和其他COVID-19控制措施。
 
+特斯拉公司首席执行官周四在一条推特上说：”加拿大卡车司机统治着世界”，这显然是对一个正在引起全世界关注的车队的赞赏。小特朗普也赞扬了自由车队，美国的福克斯新闻给予了报道。
 
+马斯克不喜欢疫苗强制和其他COVID的限制是有据可查的。他告诉《时代周刊》，虽然他接种了疫苗，但国家对接种疫苗的强制规定是对 “自由的侵蚀”。
 
+特鲁多的政府于1月15日对穿越加拿大和美国边境的卡车司机实施了疫苗强制规定，美国对峙在一周后也实施了同样规定。
 
+这些强制规定引发了对供应链进一步中断的担忧，但加拿大卡车联盟却不同于卡车司机立场，表示”强烈反对 “这次抗议活动。
 
-据[OAN网站](https://www.oann.com/hong-kong-exchange-funds-2021-investment-income-at-hk170-5-billion-hkma/)援引路透社1月27日报道，香港金融管理局周四表示，用于支持港元的香港外汇基金在2021年的投资收益为1,705亿港元（219亿美元），同比下降27.7%，为三年来最低。
+特鲁多称接触到COVID后现在正在隔离，他在星期三的新闻发布会上贬低了这个车队。他说：”正在前往渥太华的少数边缘人表达的观点不可接受，他们并不代表加拿大人“。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-27T090311Z_1_LYNXMPEI0Q0CB_RTROPTP_0_HKMA-MONETARYEXCHANGE_1.jpg)在这张2017年5月31日的插图照片中，可以看到一张港币纸币。（REUTERS/Thomas White/插图）
+石油生产大省阿尔伯塔省的保守派省长杰森-肯尼批评加拿大和美国政府对卡车司机的疫苗强制，导致超市货架空空，消费者的成本增加。他周四前往华盛顿参加美国州长会议，并与政治领导人会面，倡导取消疫苗强制。
 
-香港金管局首席执行官余承东认为，随着全球经济复苏放缓、企业盈利增长势头放缓，以及对新病毒变种和地缘政治紧张局势的担忧挥之不去，投资环境将仍然不确定。
-
-香港金管局是外汇基金的主要管理者，该基金由香港财政司司长监管，投资于股票、债券、外汇和其他证券和资
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+原文链接：
+[https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy](https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy)
 
 
 
-
-
-
+编辑，发稿 Spirit
 
  
 

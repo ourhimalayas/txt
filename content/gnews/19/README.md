@@ -2,49 +2,47 @@
 ---
 
 
-## 有声|拜登做了全球灭共“先锋”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925835/)
+## 分诊的病人在Red Deer医院急诊室等待治疗时死亡
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1925910/)
 
-配音：香草山巡管部– 文凯琳
+作者：Sean Amato
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-470.jpg)
+在Omicron病毒肆虐下，阿尔伯塔省医疗系统已接近崩溃，阿省Red Deer医院一名患者看急诊等了14小时仍未得到医护服务，最终死在医院，阿省已经就此事展开调查。
 
+据报道，阿尔伯塔省卫生厅发言人周二证实，周日有一人在Red Deer Regional Hospital Centre等待床位时死亡。
 
+发言人Kerry Williamson告诉CTV新闻：患者当时已被分流，随后由急诊科工作人员重新评估，并正在急诊室等待进一步治疗。Kerry Williamson没有提供患者的性别或年龄，也没有说明患者在医院内的确切死亡地点。只说“我们的心与这名患者的家人、朋友和亲人同在。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+Kerry Williamson表示，我们承认，由于需求激增和重病患者的增加，周末RDRHC的等待时间很长。我们不知道这起事件是否因急诊室等待时间过长的结果。
 
+他补充说，急诊室“人员配备齐全”，目前正在进行调查。
 
+在周二下午的COVID-19简报会上，阿省卫生厅长Jason Copping被问及死亡事件，但他说他不了解更多的细节。他说我非常认真地对待这件事，已经向AHS索要一份报告，他们正在调查此事。
 
-1月25日，文贵先生突然紧急直播，发布“甜蜜蜜”行动重要公告：即日起，拜登政府授权美国驻北京大使馆撤离。
+厅长承认阿尔伯塔省中部的医疗保健存在“基础设施不足”的问题，但表示他无法提供任何新的信息来说明如何解决这一问题。
 
-拜登不鸣则已一鸣惊人啊，一出手就是如此重拳，中共简直就剩半条命了，够给力！文贵先生说这绝对是灭共的第三道大门打开了。但是，这跟爆料革命的“甜蜜蜜”运动又有什么关系呢？为什么七哥这次的公告称是“甜蜜蜜”行动的重要公告呢？毫无疑问，促使拜登政府做出这一决定的主要推动力量是新中国联邦。七哥说过，“甜蜜蜜”行动如果没有美国的配合是不会成功的。没想到美国送来了这么一个大礼，这算不算拜登给“甜蜜蜜”行动开路了呢？
+与此同时，阿省还发生救护车短缺问题。一名男孩跌伤断了脚骨，其母致电911，但45分钟内仍没等到救护车，男孩脸色已变紫，其母再次致电911要接线生改派消防车将其儿子送院，据悉这已不是第一次出现救护车不足而要消防车送病人去医院的事情。
 
-根据文贵先生的直播和盖特消息，这次美国撤离驻北京大使馆的意义有：
+来源:https://edmonton.ctvnews.ca/triaged-patient-dies-while-awaiting-treatment-inside-red-deer-emergency-room-1.5754160
 
-- 美国不再为中共站台，摘掉了中共是“正常人”的标签，表明中共就是“流氓”犯罪组织，人人得而诛之；
-- 中共不能代表中国人民（新中国联邦是唯一选择）；
-- 引起多米诺骨牌效应，世界各国逐渐跟随，与中共脱钩；
+（文章仅代表作者个人观点）
 
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-原文链接：[拜登做了全球灭共“先锋”](https://gnews.org/zh-hans/1919033/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
-音频处理/发稿：Daxia
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+**关注我们**
 
-**更多资讯，更多关注**
+Discord 账号
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Gettr 账号
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
