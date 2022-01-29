@@ -2,30 +2,36 @@
 ---
 
 
-## 2022/01/27 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1925819/)
+## 有声|面对中共制裁 立陶宛表示无更名计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925905/)
 
-1. 1月24日，四川成都。在出现给大蒜苗做核酸的荒唐景象后，成都又出现为共享单车随机做核酸检测的画面。
-2. 1月26日，中共推行的防疫政策给了政府无限的权力，市民持有核酸证明，被强制要求重新检测一遍！中共不会给百姓任何反抗质疑的权利。
-3. 1月26日，重庆。下高速的要排长队做核酸检测、不做核酸不准走！
-4. 江西偏远农村小伙住10年公司宿舍，省吃俭用10年才能在大城市买一套房。中共国的高房价让中国普通年轻人生活的方向只能是买房。
-5. 1月26日，广东东莞。一医院年会聚餐挂横幅“手术室里全是钱”引发网络热议。
-6. 山东菏泽，网友拍下心酸一幕。老奶奶交不起治病的医药费，坐在一旁独自哭泣！
-7. 1月24日，河南洛阳。男子为了省300块的路费，雨雪天气步行30公里回家。
-8. 中共利用高科技手段监控百姓的手段十分成熟，视频为高速公路上行驶的私家车被政府实时监控。
-9. 老年人没有智能手机，无法扫健康码在银行取不了钱！
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2150.png)
+针对因台湾在立陶宛设立代表处的中文名称，中共持续对立陶宛进行制裁一事，立陶宛外长蓝斯柏吉斯于26日表示，没有变更台湾代表处名称的计划。台湾驻立陶宛代表也表示，未曾接获变更驻立陶宛台湾代表处的中文或英文名称的要求。
+
+当天，台湾驻荷兰代表接受荷媒专访，强烈批评中共国制裁立陶宛企业，胁迫欧盟企业撤出立陶宛等行动，并强调在两岸关系方面，中共的胁迫不会动摇台湾捍卫主权、民主和自由的决心。
+
+原文链接：[面对中共制裁 立陶宛表示无更名计划](https://gnews.org/zh-hans/1923191/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

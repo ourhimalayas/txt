@@ -2,151 +2,30 @@
 ---
 
 
-## 律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1925796/)
+## 2022/01/27 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1925819/)
 
-[https://gtv.org/video/id=61f29c6d87664c47acdace6a](https://gtv.org/video/id=61f29c6d87664c47acdace6a)
+1. 1月24日，四川成都。在出现给大蒜苗做核酸的荒唐景象后，成都又出现为共享单车随机做核酸检测的画面。
+2. 1月26日，中共推行的防疫政策给了政府无限的权力，市民持有核酸证明，被强制要求重新检测一遍！中共不会给百姓任何反抗质疑的权利。
+3. 1月26日，重庆。下高速的要排长队做核酸检测、不做核酸不准走！
+4. 江西偏远农村小伙住10年公司宿舍，省吃俭用10年才能在大城市买一套房。中共国的高房价让中国普通年轻人生活的方向只能是买房。
+5. 1月26日，广东东莞。一医院年会聚餐挂横幅“手术室里全是钱”引发网络热议。
+6. 山东菏泽，网友拍下心酸一幕。老奶奶交不起治病的医药费，坐在一旁独自哭泣！
+7. 1月24日，河南洛阳。男子为了省300块的路费，雨雪天气步行30公里回家。
+8. 中共利用高科技手段监控百姓的手段十分成熟，视频为高速公路上行驶的私家车被政府实时监控。
+9. 老年人没有智能手机，无法扫健康码在银行取不了钱！
 
-Attorney Thomas Renz
-托马斯·伦茨律师
 
-All three of these have given me this data
-这三个都给了我这个数据
+* * *
 
-I have declarations from all three the state is under penalty
-我有来自所有三个受到处罚的声明
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-This is under penalty of perjury
-这是受伪证罪的处罚
 
-We intend to submit this to the courts
-我们打算将此提交给法院
+编辑：【英国伦敦喜庄园编辑部】
 
-We have substantial data showing that we saw
-我们有大量数据表明我们看到了
-
-for example miscarriages increased by 300% over the five year average almost
-例如流产率比五年平均水平增加了近 300%
-
-We saw almost 300% increase in cancer over the five year average
-我们看到五年平均癌症发病率增加了近 300%
-
-Cancer is not being talked about except for by Dr. Ryan Cole
-除了瑞恩·科尔医生外，没有人谈论癌症
-
-Thank you, doctor
-谢谢你，医生
-
-We saw this one’s amazing, neurological
-我们看到了这个惊人的，神经病学的
-
-so neurological issues which would affect our pilots
-所以会影响我们飞行员的神经问题
-
-over 1,000% increase, 1,000 times
-增加超过1,000%，1,000 倍
-
-Senator Ron Johnson
-参议员罗恩·约翰逊
-
-that’s 10 times rate and obviously that rose at
-那是10倍的增加，显然上升了
-
-Attorney Thomas Renz
-托马斯·伦茨律师
-
-82,000 per year to 863,000 in one year
-数字从每年82,000例上升到一年内863,000例
-
-Our soldiers are being experimented on injured and sometimes possibly killed
-我们的士兵正在接受试验性伤害，有时甚至可能被杀害
-
-Dr. Corey, thank you so much for your stance on the corruption
-科里博士，非常感谢你对腐败的立场
-
-That’s precisely what it is，they know this
-这正是它的本质, 他们知道这一点
-
-and Senator when these doctors are attacked
-而且参议员，当这些医生受到攻击时
-
-not necessarily the people in this room, I’m not given names they call me
-不一定是在这屋里的人，我不会给出名字，他们会打电话给我
-
-I’m the one dealing with the medical boards
-我是与医疗委员会打交道的人
-
-I’m the one watching the witch hunts
-我是那个关注那么试图找茬的人
-
-I’m the one fighting them off and I’m the one telling them where to go
-我是那个与他们战斗的人，我是那个告诉他们去哪里的人
-
-I’m gonna keep doing that, Senator
-我会继续做下去，参议员
-
-we also have let me give you this last thing and then I’ll shut up and get out of your way
-我们也有，让我给你讲最后一件事，然后我就闭嘴让开
-
-9.28, 2021 project Salus weekly report project
-2021年9月28日的《萨卢斯项目》的每周报告中
-
-Salus is a defense defense department initiative where they report and content
-萨卢斯是一个国防部门的倡议，他们报告和内容
-
-they take all this data that doesn’t exist supposedly
-他们获取了所有这些本应不存在的数据
-
-and they give it to the CDC
-他们把它交给疾控中心
-
-They’re watching these vaccines
-他们在那一天和那一天前后
-
-on that day and around that date
-观察这些疫苗
-
-I have numerous instances where Fauci in that entire crew were saying it’s a crisis unvax
-我有很多例子，福奇的整个小组成员都说这是一场危机
-
-It’s 99% unvaxxed in the hospital, in Project Salus in the weekly report
-在《萨卢斯项目》的每周报告中显示，99%住院的都是未接种疫苗的
-
-the DoD document says specifically 71% of new cases are in the fully vaxxed
-在国防部的文件中特别的说71%的新增感染都是完全接种过疫苗的
-
-and 60% of hospitalizations are in the fully Vax
-60%的住院治疗的是完全接种的
-
-This is corruption at the highest level
-这是最高级别的腐败
-
-We need investigations
-我们需要调查
-
-The secretary of defense needs investigated, the CDC needs to be investigated
-国防部长需要调查，疾控中心需要调查
-
-**原视频链接:** [https://twitter.com/\_yvonneburton/status/1485706103770034179?s=24](https://twitter.com/_yvonneburton/status/1485706103770034179?s=24)
-
-Date:01/25/2022
-**原视频标题:** Attorney Thomas Renz speaks up that the covid vaccine has done a lot of damage for the people
-律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害
-原视频日期：2022/01/25
-原视频链接: https://twitter.com/\_yvonneburton/status/1485706103770034179?s=24
-任务编号：3591
-视频时间段 : 0:00-2:20
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,44 +2,39 @@
 ---
 
 
-## 【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1926081/)
+## 他帮助撰写了宪章。 现在他说政府正在违反它。
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1926120/)
 
-**撰稿：Grace**
+作者：Andrew Lawton
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-476.jpg)
+2022年1月26日，前纽芬兰省省长、加拿大《权利和自由宪章》唯一仍在世签署人Brian Peckford与其他5名申请人一起对联邦政府旅行疫苗令提起违宪诉讼。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-28-at-6.32.00-PM.jpeg)图片来源：cengnews
-据《福克斯新闻》1月27日报道，美国国务院周四明确警告说，如果俄罗斯入侵乌克兰，北溪2号管道（Nord Stream 2）将被闲置在海洋底部。
+据报道，Peckford生于1942年，他也是1982年参与起草和通过《权利和自由宪章》的第一批省长中最后一位幸存者。他的团队正在挑战加拿大联邦政府限制未接种COVID-19疫苗的加拿大人自由旅行的合宪性。
 
-报道称，这条有争议的管道已经成为美国和北约试图维护基辅(Kyiv)主权的最大谈判筹码。
+Peckford 本周参加True North’s 新闻网主办的The Andrew Lawton Show时说，凭借他的经验和他帮助制定《宪章》的经历，他认为旅行疫苗令违反了加拿大人自由流动的权利，违背了加拿大生命权、自由权和不受歧视的自由权利。
 
-记者询问外交机构，在对抗俄罗斯的入侵时，将从运作中的管道中获利的德国是否与之站在同一战线。
+Peckford说：这是我反对疫苗令的关键 。我认为它疫苗令可能在相当大的程度上破坏我们的民主。
 
-负责政治事务的副部长维多利亚·努兰(Victoria Nuland)说: “我们继续与我们的德国盟友进行强有力的、明确的沟通, 如果俄罗斯入侵乌克兰，无论如何，北溪2号都不会向前推进。”
+来源：https://tnc.news/2022/01/28/he-helped-write-the-charter-now-he-says-the-government-is-violating-it/
 
-据报道，美国国务卿安东尼·布林肯(Antony Blinken)本周早些时候也发表过这样的评论。
+（文章仅代表作者个人观点）
 
-本月早些时候，有报道称，制裁该管道以规避俄罗斯在东欧的侵略，在德国是一个不受欢迎的解决方案，这引起了柏林的一些担忧。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-但德国总理奥拉夫·肖尔茨(Olaf Scholz)反驳了这些报道，并表示他将确保新成立的政府遵守拜登和德国前总理安格拉·默克尔(Angela Merkel)在7月达成的协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
-据自由欧洲电台（Radio Free Europe）报道, 德国外交部长安娜莱娜·贝尔博克（Annalena Baerbock）周四告诉议会, 德国“正在制定强有力的一揽子制裁措施”, 并指出北溪2号管道只是其中一个感兴趣的经济领域。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-据报道，白宫和北约一直在努力传递信息，并声称联盟拥有一个统一战线。
+**关注我们**
 
-努兰德周四告诉记者：“我们是统一的，如果莫斯科拒绝我们的对话提议，代价必须是迅速和严厉的。”
+Discord 账号
 
-据报道，美国、北约和俄罗斯之间的关系一直很紧张，克里姆林宫还没有解散其在乌克兰边境集结的10万名部队。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-俄罗斯总统弗拉基米尔·普京（Vladimir Putin）要求西方保证不允许北约扩大到基辅，并且不在乌克兰放置打击武器。
+Gettr 账号
 
-美国和北约已经断然拒绝了加入这个30国联盟的禁令，但拜登建议可以就打击武器的布置进行谈判。
-
-美国本周向普京递交了一份书面文件，以回应他的要求，尽管提议的谈判细节仍然模糊不清。
-
-美国国务院周四告诉记者，克里姆林宫（Kremlin）表示，普京需要 “一点时间 ”来研究这份答复。
-
-**新闻来源：** [State Dept vows Nord Stream 2 will be a ‘hunk of metal at bottom of the ocean’ if Russia invades Ukraine](https://www.foxnews.com/politics/state-dept-vows-nord-stream-2-hunk-metal-bottom-ocean-russia-invades-ukraine)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

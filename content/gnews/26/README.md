@@ -2,33 +2,151 @@
 ---
 
 
-## 马斯克为加拿大卡车司机欢呼
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1925717/)
+## 律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1925796/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Elon-Musk-Canadian-Truckers-Rule.jpg)图片来源：Transportation Nation
-根据《金融邮报》(Financial Post) 1月28日报道，马斯克与小特朗普一起为向特鲁多驶去的疫苗抗议活动欢呼，发推明确赞成，表示车队正在引起世界各地的关注。
+[https://gtv.org/video/id=61f29c6d87664c47acdace6a](https://gtv.org/video/id=61f29c6d87664c47acdace6a)
 
-马斯克表示支持由加拿大卡车司机和其他活动家组成的 “自由车队”，他们正在前往渥太华抗议该国的疫苗强制规定和其他COVID-19控制措施。
+Attorney Thomas Renz
+托马斯·伦茨律师
 
-特斯拉公司首席执行官周四在一条推特上说：”加拿大卡车司机统治着世界”，这显然是对一个正在引起全世界关注的车队的赞赏。小特朗普也赞扬了自由车队，美国的福克斯新闻给予了报道。
+All three of these have given me this data
+这三个都给了我这个数据
 
-马斯克不喜欢疫苗强制和其他COVID的限制是有据可查的。他告诉《时代周刊》，虽然他接种了疫苗，但国家对接种疫苗的强制规定是对 “自由的侵蚀”。
+I have declarations from all three the state is under penalty
+我有来自所有三个受到处罚的声明
 
-特鲁多的政府于1月15日对穿越加拿大和美国边境的卡车司机实施了疫苗强制规定，美国对峙在一周后也实施了同样规定。
+This is under penalty of perjury
+这是受伪证罪的处罚
 
-这些强制规定引发了对供应链进一步中断的担忧，但加拿大卡车联盟却不同于卡车司机立场，表示”强烈反对 “这次抗议活动。
+We intend to submit this to the courts
+我们打算将此提交给法院
 
-特鲁多称接触到COVID后现在正在隔离，他在星期三的新闻发布会上贬低了这个车队。他说：”正在前往渥太华的少数边缘人表达的观点不可接受，他们并不代表加拿大人“。
+We have substantial data showing that we saw
+我们有大量数据表明我们看到了
 
-石油生产大省阿尔伯塔省的保守派省长杰森-肯尼批评加拿大和美国政府对卡车司机的疫苗强制，导致超市货架空空，消费者的成本增加。他周四前往华盛顿参加美国州长会议，并与政治领导人会面，倡导取消疫苗强制。
+for example miscarriages increased by 300% over the five year average almost
+例如流产率比五年平均水平增加了近 300%
 
-原文链接：
-[https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy](https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy)
+We saw almost 300% increase in cancer over the five year average
+我们看到五年平均癌症发病率增加了近 300%
 
+Cancer is not being talked about except for by Dr. Ryan Cole
+除了瑞恩·科尔医生外，没有人谈论癌症
 
+Thank you, doctor
+谢谢你，医生
 
-编辑，发稿 Spirit
+We saw this one’s amazing, neurological
+我们看到了这个惊人的，神经病学的
+
+so neurological issues which would affect our pilots
+所以会影响我们飞行员的神经问题
+
+over 1,000% increase, 1,000 times
+增加超过1,000%，1,000 倍
+
+Senator Ron Johnson
+参议员罗恩·约翰逊
+
+that’s 10 times rate and obviously that rose at
+那是10倍的增加，显然上升了
+
+Attorney Thomas Renz
+托马斯·伦茨律师
+
+82,000 per year to 863,000 in one year
+数字从每年82,000例上升到一年内863,000例
+
+Our soldiers are being experimented on injured and sometimes possibly killed
+我们的士兵正在接受试验性伤害，有时甚至可能被杀害
+
+Dr. Corey, thank you so much for your stance on the corruption
+科里博士，非常感谢你对腐败的立场
+
+That’s precisely what it is，they know this
+这正是它的本质, 他们知道这一点
+
+and Senator when these doctors are attacked
+而且参议员，当这些医生受到攻击时
+
+not necessarily the people in this room, I’m not given names they call me
+不一定是在这屋里的人，我不会给出名字，他们会打电话给我
+
+I’m the one dealing with the medical boards
+我是与医疗委员会打交道的人
+
+I’m the one watching the witch hunts
+我是那个关注那么试图找茬的人
+
+I’m the one fighting them off and I’m the one telling them where to go
+我是那个与他们战斗的人，我是那个告诉他们去哪里的人
+
+I’m gonna keep doing that, Senator
+我会继续做下去，参议员
+
+we also have let me give you this last thing and then I’ll shut up and get out of your way
+我们也有，让我给你讲最后一件事，然后我就闭嘴让开
+
+9.28, 2021 project Salus weekly report project
+2021年9月28日的《萨卢斯项目》的每周报告中
+
+Salus is a defense defense department initiative where they report and content
+萨卢斯是一个国防部门的倡议，他们报告和内容
+
+they take all this data that doesn’t exist supposedly
+他们获取了所有这些本应不存在的数据
+
+and they give it to the CDC
+他们把它交给疾控中心
+
+They’re watching these vaccines
+他们在那一天和那一天前后
+
+on that day and around that date
+观察这些疫苗
+
+I have numerous instances where Fauci in that entire crew were saying it’s a crisis unvax
+我有很多例子，福奇的整个小组成员都说这是一场危机
+
+It’s 99% unvaxxed in the hospital, in Project Salus in the weekly report
+在《萨卢斯项目》的每周报告中显示，99%住院的都是未接种疫苗的
+
+the DoD document says specifically 71% of new cases are in the fully vaxxed
+在国防部的文件中特别的说71%的新增感染都是完全接种过疫苗的
+
+and 60% of hospitalizations are in the fully Vax
+60%的住院治疗的是完全接种的
+
+This is corruption at the highest level
+这是最高级别的腐败
+
+We need investigations
+我们需要调查
+
+The secretary of defense needs investigated, the CDC needs to be investigated
+国防部长需要调查，疾控中心需要调查
+
+**原视频链接:** [https://twitter.com/\_yvonneburton/status/1485706103770034179?s=24](https://twitter.com/_yvonneburton/status/1485706103770034179?s=24)
+
+Date:01/25/2022
+**原视频标题:** Attorney Thomas Renz speaks up that the covid vaccine has done a lot of damage for the people
+律师托马斯·伦茨直言新冠疫苗对人民造成了很大伤害
+原视频日期：2022/01/25
+原视频链接: https://twitter.com/\_yvonneburton/status/1485706103770034179?s=24
+任务编号：3591
+视频时间段 : 0:00-2:20
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
