@@ -2,41 +2,36 @@
 ---
 
 
-## 欧盟立陶宛美国联合状告中共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1929132/)
+## 意大利正在为大量疫苗伤害索赔做准备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929253/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月21日，据相关媒体消息显示，意大利政府计划拨出1.5 亿欧元用于赔偿那些因接种中共病毒疫苗而遭受副作用的民众。
 
-整理：Sara9
-编辑：Little Lamp
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-6.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-2.png)图片来源：雅典娜设计组
+资料显示，意大利的法律规定，政府需要保证对那些因强制接种疫苗而受到伤害的民众进行赔偿，其范围甚至覆盖至因接种了政府推荐的疫苗而受到伤害的意大利人。据了解，这些疫苗受害者可以通过国家赔偿基金或民事及刑事司法程序得到其应有补偿。
 
+意大利政府公布的数据表明，该国12岁以上的公民中，超过90%的人已经接种了中共病毒疫苗，而罗马更是强制要求该市50岁以上的居民必须接种疫苗。值得注意的是，意大利政府已经报告了超过十万起的中共病毒疫苗不良反应案例，而其中的15%则属于严重不良反应范畴。
 
-据大纪元报导，欧盟周四（1月27日）表示，已在世界贸易组织（WTO）就中共对欧盟成员国立陶宛实施贸易限制提起诉讼。美国贸易代表办公室（USTR）当天表示，美国将要求加入这些WTO磋商，以声援立陶宛和欧盟。
+对此，郭文贵先生曾在直播中透露，根据出走欧洲的科学家所提供的情报判断，中共病毒疫苗灾难将会在2022年5月开始集中爆发。届时，由于各种疫苗副作用所导致的伤害、死亡和随之而来的海量保险索赔会导致全球保险业、银行业的破产。最终，各国和国际金融的崩溃将是必然结果。
 
-欧盟指控中共对立陶宛实施歧视性贸易做法，并称这威胁到欧盟单一市场的完整性。
+参考链接：[Italy to set aside 150 mln euros for COVID vaccination compensation – draft](https://www.reuters.com/world/europe/italy-set-aside-150-mln-euros-covid-vaccination-compensation-draft-2022-01-21/)
 
-欧盟执委会副主席瓦尔迪斯‧东布罗夫基斯（Valdis Dombrovskis）周四表示，他的办公室已要求在WTO就欧盟认为的歧视性贸易做法与中国进行磋商，这是WTO诉讼程式的第一阶段。欧盟代表其27个成员国处理对外贸易。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-立陶宛2021年同意台湾以“台湾”名义在该国设立代表处
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-中共政府不仅将中立两国外交关系降级，而且对立陶宛实施全面的经济制裁和报复。
-
-欧盟方面表示，北京对立陶宛的贸易限制措施包括中共海关对立陶宛商品不予清关、拒绝立陶宛的进口申请以及对欧盟公司施加压力，要求其向中国出口的商品不得含有立陶宛的零部件。
-
-美国贸易代表戴琪表示立陶宛可获美国支持，两国将共同应对中共“经济胁迫”。共同捍卫的核心价值和原则公开，表示支持立陶宛
-
-文章来源：[欧盟在世贸组织状告中共 美要求加入](https://www.epochtimes.com/gb/22/1/27/n13534577.htm%20)
-
-发布：星谕
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

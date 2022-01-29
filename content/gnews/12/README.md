@@ -2,38 +2,37 @@
 ---
 
 
-## 加拿大反对强制疫苗令的抗议活动继续升温
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929387/)
+## 有声|男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929469/)
 
-作者：银河系农场—骄子，加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月27日，据多家媒体消息显示，由加拿大卡车司机发起的反对当地中共病毒疫苗强制接种政策的抗议活动正在持续升温。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月24日，外媒报道，一名男子因未接种中共病毒疫苗，导致无法接受心脏移植手术，目前徘徊在生死边缘。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-10.jpeg)
+ 该男子的父亲大卫·弗格森在接受媒体采访时说到，31岁的儿子DJ本来排在接受移植手术的前列，但由于他拒绝接种中共病毒疫苗，医院根据相关政策将 他从移植名单上删除。 该医院认为，疫苗是麻省总医院布里格姆系统对移植候选人进行选择的必要条件之一。 纽约大学格罗斯曼医学院的阿瑟·卡普兰博士对此解释说，实施移植手术后，病人的免疫系统都是关闭的，接种疫苗的人在手术后会有更好的生存机会。
 
-当天，一位“自由车队”中的卡车司机在接受采访时表示，加拿大已经从特鲁多承诺的阳光国家变成了一个黑暗的专制的地方。同时，政府目前所推行的疫苗护照包含了大量的个人信息，这将使当局更容易追踪并监控每一个公民的隐私数据。为此，这回的抗议活动不仅是为了让加拿大民众摆脱政府的强制疫苗令和疫苗护照政策，更是为了避免加拿大沦为一个充满着官僚主义、暴政与腐败的第三世界国家。
+原文链接：[男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](https://gnews.org/zh-hans/1919676/)
 
-与此同时，马斯克与小川普也在相关的新闻节目中对这些抗争的加拿大民众表示了极力的称赞。至于各国推行的中共病毒疫苗强制接种令，马斯克则认为，这是对公民自由的严重侵蚀。
+音频处理/发稿：Daxia
 
-虽然加拿大总理特鲁多在26日的新闻发布会上对“自由车队”大肆贬低，甚至扬言他们只是少数边缘人士，不代表加拿大人，但据抗议现场拍摄的视频表明，越来越多的加拿大民众参与到了此次抗议活动中，他们自发地为卡车司机提供食物和物资支持。
-
-参考链接：
-1)[Tucker Carlson Interviews Freedom Convoy Spokesman, Trucker Benjamin Dichter](https://theconservativetreehouse.com/blog/2022/01/27/tucker-carlson-interviews-freedom-convoy-spokesman-trucker-benjamin-dichter/)
-2)[‘Canadian truckers rule’ — Elon Musk joins Donald Trump Jr. cheering on vaccine protest barreling toward Trudeau](https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：文特，Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

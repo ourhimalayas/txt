@@ -2,36 +2,34 @@
 ---
 
 
-## 意大利正在为大量疫苗伤害索赔做准备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929253/)
+## 中日财经爆┃紫光集团存储业务出现重大变故
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929395/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月21日，据相关媒体消息显示，意大利政府计划拨出1.5 亿欧元用于赔偿那些因接种中共病毒疫苗而遭受副作用的民众。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-37.png)
+[图片来源](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60250610/%E4%B8%AD%E5%9B%BD%E6%9C%80%E5%A4%A7%E5%8D%8A%E5%AF%BC%E4%BD%93%E7%B4%AB%E5%85%89%E9%9B%86%E5%9B%A2%E8%A2%AB%E7%94%B3%E8%AF%B7%E7%A0%B4%E4%BA%A7%E6%9B%BE%E6%89%AC%E8%A8%80%E6%94%B6%E8%B4%AD%E5%8F%B0%E7%A7%AF%E7%94%B5%E5%90%88%E5%B9%B6%E8%81%94%E5%8F%91%E7%A7%91)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-6.jpeg)
+据日经1月26日报道，紫光集团将放弃在重庆和成都的存储厂建厂计划，同时前日本尔必达社长、紫光集团高级副总裁兼日本分公司CEO坂本幸雄也已离职。
 
-资料显示，意大利的法律规定，政府需要保证对那些因强制接种疫苗而受到伤害的民众进行赔偿，其范围甚至覆盖至因接种了政府推荐的疫苗而受到伤害的意大利人。据了解，这些疫苗受害者可以通过国家赔偿基金或民事及刑事司法程序得到其应有补偿。
+报道称，紫光集团终止的两个项目之一是位于重庆的DRAM业务。此前，紫光集团曾希望坂本幸雄执掌DRAM业务，通过其经验和人脉在日本组建一个100多人的团队，然后在重庆量产先进的DRAM产品。
 
-意大利政府公布的数据表明，该国12岁以上的公民中，超过90%的人已经接种了中共病毒疫苗，而罗马更是强制要求该市50岁以上的居民必须接种疫苗。值得注意的是，意大利政府已经报告了超过十万起的中共病毒疫苗不良反应案例，而其中的15%则属于严重不良反应范畴。
+但知情人士称，招聘工作未能按预期顺利进行，加上紫光集团遭遇财务危机，以及美国阻挠之下获取先进的半导体设备面临重重难关，坂本在去年下半年就已离开紫光集团。这一消息已被坂本的发言人证实。
 
-对此，郭文贵先生曾在直播中透露，根据出走欧洲的科学家所提供的情报判断，中共病毒疫苗灾难将会在2022年5月开始集中爆发。届时，由于各种疫苗副作用所导致的伤害、死亡和随之而来的海量保险索赔会导致全球保险业、银行业的破产。最终，各国和国际金融的崩溃将是必然结果。
+此外，报道援引一份政府文件和知情人士的话称，紫光集团终止的第二个存储芯片项目位于四川成都。该公司原本计划投资240亿美元在成都建设一座3D NAND闪存芯片工厂。消息人士称，紫光集团曾希望成都项目能复制武汉长江存储的成功。
 
-参考链接：[Italy to set aside 150 mln euros for COVID vaccination compensation – draft](https://www.reuters.com/world/europe/italy-set-aside-150-mln-euros-covid-vaccination-compensation-draft-2022-01-21/)
+不过，2020年底，由于紫光集团出现债务违约，重庆和成都的存储芯片项目已经严重推迟。2021年7月，由于未能解决债务危机，紫光集团被债权人申请破产重组。2021年底，智路资产和建广资产组成的联合体成为紫光集团的战略投资者，负责解决紫光集团高达千亿的巨额负债。这一战略重组计划日前已被法院批准。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+报道称，智路建广联合体所持紫光集团股份的具体情况尚不清楚。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[日经：紫光集团撤销重庆、成都存储厂计划，阪本幸雄已离职\_人士](https://www.sohu.com/a/519417706_166680)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

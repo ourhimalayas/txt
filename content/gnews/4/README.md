@@ -2,34 +2,32 @@
 ---
 
 
-## 拍马拍到新高度 冬奥会前天安门惊现“报答领袖豁出去！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929431/)
+## 瑞典不建议为12岁以下儿童接种中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929543/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-39.png)
-距离北京冬奥会还有一周时间，近日网络社交媒体却传出一段夸张视频，视频中约100多名中国运动员站在天安门前高喊口号，“报答领袖豁出去”、“跟着总书记，一起向未来！”令外界看得傻眼。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月27日，据相关媒体报道，瑞典卫生局于当天发布声明表示，政府不建议当地5至11岁的儿童接种中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.27.png)
+瑞典卫生局的官员在新闻发布会上指出，当前所有的研究结果都明确显示，儿童患严重疾病的风险很低，但中共病毒疫苗所带来的危险性远远却超过它的防护性。
 
-日本JBpress网站1月27日报导，1月25日清晨7时26分左右，北京冬奥会中国体育代表团100多名运动员和教练员代表聚集在天安门广场，伴随着五星旗的升旗，高喊口号“为了祖国冲冲冲，不负人民拼拼拼，报答领袖豁出去，永争第一不认怂，跟着总书记，一起向未来！”据悉，北京当时气温低于零下7摄氏度。
+据悉，本月26日，瑞典当日新增了超过四万例中共病毒感染病例，达到了该国自大流行以来的单日确诊峰值，这也让瑞典政府延长了该国所有关于中共病毒疫情的限制措施。但另一方面，瑞典当局正在计划于2月9日逐步取消这些限制。
 
-中国选手们在完成这项所谓的“天安门宣誓”后，集体搭乘大巴返回北京“闭环管理”（泡泡式管理）的奥运村。
+参考链接：[Sweden decides against recommending COVID vaccines for kids aged 5-11](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
 
-报导指出，中国参选选手“天安门宣誓”举动不禁让外界质疑，为什么一场奥运赛，要与国家领袖有关联？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-为此，日本记者还专门找到北京民众询问此事，北京市民直言“天安门宣誓”行为就是白痴行为。
+总编：文特
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-目前中共官方已经移除了相关视频，但海外仍在热传，并引发民间讨论。
-
-拍马屁拍到肉麻，撒谎撒到地老天荒。中共这种邪恶体制下拍马屁也得看谁会舔，也得看谁更会卖命，马屁精们不嫌事大，拍马也得拍出个彩头，于是乎语不惊人死不休，各种奇葩应运而生。靠揣摩圣意而生的官场弄潮儿们，他们最擅长的就是根据圣意，编纂出各种奇奇怪怪的口号，以博皇上一笑。其实他们都知道是假，圣上更是知道假，他们要的就是这种效果，在假言假语的互相传唱中洗脑。一切都是假的，无关乎人生观，更无关乎价值观，生存而已。
-
-信息来源：
-
-[高级黑？冬奥前天安门惊现“报答领袖豁出去！”](https://m.secretchina.com/news/gb/2022/01/28/996347.html)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,77 +2,38 @@
 ---
 
 
-## 【玫瑰看新闻】每日快讯2021年1月20日（新西兰时间）
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1929238/)
+## 加拿大反对强制疫苗令的抗议活动继续升温
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929387/)
 
-**1.**巴拉圭总统阿布铎染疫症状温和隔离中
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image003-7.jpg)
-巴拉圭卫生部周二，**1**月**18**日，在推特宣布，总统阿布铎**COVID-19**检测呈阳性反应，症状温和，目前正在隔离中。**
+作者：银河系农场—骄子，加拿大温哥华扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月27日，据多家媒体消息显示，由加拿大卡车司机发起的反对当地中共病毒疫苗强制接种政策的抗议活动正在持续升温。
 
-**中央社报导，南美洲地区因为传播迅速的**Omicron**变异株，**COVID-19**病例急遽增加。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-10.jpeg)
 
-**巴拉圭是台湾在南美洲唯一友邦，双方维持坚实关系已超过**60**年。台湾在多项基建计划资助巴拉圭并提供农业援助，在**COVID-19**疫情爆发时也捐赠医疗设备给巴拉圭。
+当天，一位“自由车队”中的卡车司机在接受采访时表示，加拿大已经从特鲁多承诺的阳光国家变成了一个黑暗的专制的地方。同时，政府目前所推行的疫苗护照包含了大量的个人信息，这将使当局更容易追踪并监控每一个公民的隐私数据。为此，这回的抗议活动不仅是为了让加拿大民众摆脱政府的强制疫苗令和疫苗护照政策，更是为了避免加拿大沦为一个充满着官僚主义、暴政与腐败的第三世界国家。
 
-2.回应最高法院裁决星巴克取消疫苗令
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image005-6.jpg)
-**2022**年**1**月**4**日，伊利诺伊州芝加哥市一家星巴克咖啡店。
+与此同时，马斯克与小川普也在相关的新闻节目中对这些抗争的加拿大民众表示了极力的称赞。至于各国推行的中共病毒疫苗强制接种令，马斯克则认为，这是对公民自由的严重侵蚀。
 
-星巴克不再要求其美国员工接种**COVID-19**疫苗，推翻了本月早些时候星巴克自己宣布的政策。**
+虽然加拿大总理特鲁多在26日的新闻发布会上对“自由车队”大肆贬低，甚至扬言他们只是少数边缘人士，不代表加拿大人，但据抗议现场拍摄的视频表明，越来越多的加拿大民众参与到了此次抗议活动中，他们自发地为卡车司机提供食物和物资支持。
 
-**在周二（**1**月**18**日）发给员工的一份备忘录中，这家咖啡零售巨头表示，它正在回应美国最高法院上周的裁决。美国最高法院上周四（**1**月**13**日）以**6**票对**3**票否决了拜登政府要求超过**100**名员工的公司接种疫苗或定期进行**COVID**检测的命令。**
+参考链接：
+1)[Tucker Carlson Interviews Freedom Convoy Spokesman, Trucker Benjamin Dichter](https://theconservativetreehouse.com/blog/2022/01/27/tucker-carlson-interviews-freedom-convoy-spokesman-trucker-benjamin-dichter/)
+2)[‘Canadian truckers rule’ — Elon Musk joins Donald Trump Jr. cheering on vaccine protest barreling toward Trudeau](https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy)
 
-**星巴克的疫苗规定逆转是响应最高法院裁决的最引人注目的美国公司之一。包括大型超商塔吉特（**Target**）在内的许多大公司一直对此保持沉默。**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-****1**月**3**日，星巴克表示将要求所有员工在**2**月**9**日之前接种疫苗，否则将面临每周一次的**COVID**测试要求。
+总编：文特，Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-星巴克在美国拥有**228,000**名员工。
-
-**3.**加国要跨境卡车司机接种供应短缺恐致通胀
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image007-5.jpg)
-加拿大边境自**1**月**15**日起实施卡车穿越美加边境必须出示疫苗接种证明的新规，导致许多司机不能入境、运输能力大减，业界认为这会间接催高蔬菜水果的价格。**
-
-**总部位于加拿大蒙特利尔的蔬菜水果经销商**Canadawide Fruits**公司总裁兼**CEO**乔治**·**皮茨库利斯**17**日表示，由于过境卡车减少，上周从美国加州和亚利桑那州运往加拿大的生鲜成本上涨了**25%**。**
-
-**按照加拿大实施的过境新规，边境人员将拒绝未接种疫苗的美国卡车司机入境；而无法出示疫苗接种证明的加拿大卡车司机，在从美国重新进入加拿大时，将被要求隔离。**
-
-**行业高管警示，这会使本来就面临压力的供应链更加缓慢。据美国卡车运输协会估计，只有**50%**～**60%**的美国卡车司机接种了疫苗。**
-
-**加拿大农产品营销协会主席罗恩**·**勒梅尔（**Ron Lemaire**）表示，已经有人担心大公司将被迫支付费用，以确保司机接种疫苗，从而推高运费。
-
-**4.**拜登称**:**解除中共国商品关税为时过早
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image009-3.jpg)
-美国总统拜登周三** **，**1**月**19**日表示，就解除美国对中共国商品的关税做出承诺还为时过早，但他的首席贸易谈判代表戴琪正在努力解决这个问题。**
-
-**拜登在记者会上表示，他也希望可以说中共有达到目标，或是已经履行承诺，但中共还没有做到。**
-
-**美中第一阶段贸易协议中，中共承诺在**2020**年和**2021**年期间额外购买**2000**亿美元的美国商品和服务。但根据彼得森国际经济研究所（**PIIE**）的一份报告，从**2020**年**1**月到**2021**年**10**月，中共对美国商品的总购买量仅达到承诺总量的**60%**，其中表现最好的是农业，**PIIE**数据显示，截至今年**10**月，实际购买量达到第一阶段目标的**83%**。
-
-**2021**年**12**月**31**日，中美第一阶段经贸协议中有关中共跨大自美国采购**2**千亿美元商品的承诺到期，其中包括购买价值**1621**亿美元的实物商品，但中共尚未能达到目标。
-
-
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
