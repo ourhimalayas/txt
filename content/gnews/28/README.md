@@ -2,25 +2,41 @@
 ---
 
 
-## 风水就是磁场
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927848/)
+## FCC宣布吊销中共国联通在美国的运营执照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927870/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/风水是什么就是磁场.png)
-大家一定要记住这个就是龙，我想给大家说一下，从地球上来看，风水是什么？就是磁场。昆仑山的磁场到啥程度，有人带了一袋面粉，带上铜钱银元，不同的地方放三小堆面，会从中间切开，每天凌晨**12**点交接。科学叫磁场，我们人就因为**100**亿年前地球撞击逐渐地形成了，从这里形成了月亮，然后是河流山川。人只不过是宇宙中的一个**DNA**，龙脉是什么？你的鼻子眼睛，昆仑山一旦没有磁场了就没了。玉女峰南侧因为温度变化万物产生，竟然有六亿人靠着水生存。咱们遇到了共产党这妖孽王八，各种龙脉水神。最重要的是什么，共产党让这个国家的空气水污染，风水全毁了，不灭它天理不容。
+作者：日本方舟农场 – Andy5，纽约香草山金融部 – AT
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+当地时间1月27日，美国联邦通信委员会FCC，再次因国家安全问题，以4比0的投票结果，一致通过撤销中共国联通在美国的服务授权。并要求其美洲营运有限公司，在该命令发布的60天内停止在美国的任何国内和国际业务。
 
-问题是属虎的为什么不让碰？为什么不让去昆仑山？因为共产党的命已经定了，以毛泽东为属性的，他个人的生辰八字，他就是火，红不是汉朝的红。湖南人，你去看韶山周围，毛泽东最大的属相是什么，之前好几个人因为属虎都给拿下了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.png)
 
-*发布：开智则立*
+FCC表示，自20年前FCC授权以来，有关中共国的国家安全环境发生了变化，并发现联通美洲子公司和其在大陆的母公司，中共政府都有机会进入、存储、破坏或误导美国通信。并指出，联通的行为缺乏坦诚、可信度和可靠性，不符合FCC要求的基本信任水平。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+继2019年5月FCC投票否决中共国移动在美服务授权，2021年10月吊销中共国电信服务授权后，到现在中共国联通被吊销执照。至此，中共三大电信运营商彻底在美国出局。
 
+参考链接：
+
+- [美国以国家安全为由 吊销中国联通在美经营权](https://www.zaobao.com/realtime/world/story20220128-1237504)
+- [接二连三无理打压！中国联通被勒令60天内停止公司在美业务](http://finance.eastmoney.com/a/202201282264596976.html)
+- [商务部回应中国电信被美吊销运营牌照：恶意打压，应立即纠正](https://www.163.com/dy/article/GNDP9ANI05129QAF.html)
+- [美国突然宣布吊销这家中国巨头的运营牌照，并限期60天内停业](https://www.sohu.com/a/497870818_120762996)
+- [美国正式拒绝中国移动赴美开展业务](https://cn.nikkei.com/china/ccompany/35509-2019-05-10-09-23-25.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：DM
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

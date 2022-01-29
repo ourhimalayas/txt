@@ -2,41 +2,26 @@
 ---
 
 
-## FCC宣布吊销中共国联通在美国的运营执照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927870/)
+## HBO，VICE，Q组织，是五年前设下的致命的局(二)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927963/)
 
-作者：日本方舟农场 – Andy5，纽约香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月27日，美国联邦通信委员会FCC，再次因国家安全问题，以4比0的投票结果，一致通过撤销中共国联通在美国的服务授权。并要求其美洲营运有限公司，在该命令发布的60天内停止在美国的任何国内和国际业务。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/HBO，VICE，Q组织，是五年前设下的致命的局（二）-.jpg)
+那么我们这个Q组织这个事情一样的。他想把我们打造成邪教集团，把我们黑进去，Q组织试过了，这是共产党的核心啊。你从这个伊萨贝拉杨拿了钱，这就是外国人，我拿你钱了，我要交活。就像你到荷兰去那个一条街，只要你付了钱了，30美金，对不起只有3分钟。100美金你可以在半小时以内随便。你不能说你拿着钱了，人家是按时间算钱的，三十美金你摸一下，我当时到那以后我发现，哎这共产党在我从小看到的共产党玩的我们中国的同胞女儿从来不付钱啊，这里还付钱，后来发现付钱还有时间限制，就共产党它连个流氓都不如，它连个妓女都不如！我从那时侯我就感受到了，那西方人拿钱是要你给你兑现的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.png)
+哈萨克族有句话，“永远不要让你的朋友知道你曾经骗过他。”我跟他们打好多朋友打交道，我说为什么？他说当他知道的时候，再也不相信你了。我门中国人恰恰相反，一定是忘掉你朋友曾经骗过你，(你)骗他，把他再骗回来你才是高人，说骗比骗高是中国的文化。哈萨克人就说你不要让朋友知道骗过你，让他不要骗我，他永远不再相信你。
 
-FCC表示，自20年前FCC授权以来，有关中共国的国家安全环境发生了变化，并发现联通美洲子公司和其在大陆的母公司，中共政府都有机会进入、存储、破坏或误导美国通信。并指出，联通的行为缺乏坦诚、可信度和可靠性，不符合FCC要求的基本信任水平。
+2022年1月12日大直播
 
-继2019年5月FCC投票否决中共国移动在美服务授权，2021年10月吊销中共国电信服务授权后，到现在中共国联通被吊销执照。至此，中共三大电信运营商彻底在美国出局。
+发布： 星谕
 
-参考链接：
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-- [美国以国家安全为由 吊销中国联通在美经营权](https://www.zaobao.com/realtime/world/story20220128-1237504)
-- [接二连三无理打压！中国联通被勒令60天内停止公司在美业务](http://finance.eastmoney.com/a/202201282264596976.html)
-- [商务部回应中国电信被美吊销运营牌照：恶意打压，应立即纠正](https://www.163.com/dy/article/GNDP9ANI05129QAF.html)
-- [美国突然宣布吊销这家中国巨头的运营牌照，并限期60天内停业](https://www.sohu.com/a/497870818_120762996)
-- [美国正式拒绝中国移动赴美开展业务](https://cn.nikkei.com/china/ccompany/35509-2019-05-10-09-23-25.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：DM
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

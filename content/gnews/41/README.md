@@ -2,35 +2,26 @@
 ---
 
 
-## WTO批准中共向美国征收奥巴马时期的补偿性关税
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926910/)
+## 中日财经爆|中共病毒疫情已给德国经济造成3500亿欧元损失
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1927221/)
 
-作者：银河系农场—骄子
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-105.jpg)（图片来源于本文链接）
+德国经济研究所所做的一项研究发现，中共病毒（新冠病毒）疫情爆发以来的两年，消费者的消费量和企业的投资数量都在减少，德国经济遭受的损失已经达到3500亿欧元。
 
-近日，世界贸易组织WTO通过了一项决议，允许中共向美国征收6.45亿美元的补偿性关税，此举立即遭到了华盛顿的抨击。
+这其中很大一部分是因为消费大幅减少造成的。除此之外，企业投资减少也是原因之一。德国经济研究所还预测，今年前三个月德国经济可能再蒙受500亿欧元的损失。专家们预测，“经济恢复将持续数年之久”。该研究所发表的报告指出，疫情最初阶段执行的封锁令为企业生产造成很多问题，同时也影响到德国境内和境外的货物供应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ZQOVA56VCFOPLFI5EMBQHU256A.jpg)
+此外，消费限制和客户变得更为慎重也造成进一步损失。海外业务大幅减少。2020年第二季度德国GDP同上一年同期相比减少了11%。在疫情发展过程中，德国感染人数也曾一度减少，人们对经济持久复苏开始抱有希望，但最终却在新的感染浪潮中破灭。
 
-据悉，奥巴马时期与中共签署了22项产品协议，而此项补偿性关税的焦点集中在，美国是否可以将中共政府拥有多数股权的中国公司视为由中共国家控制。
+经济研究所专家格罗姆林（Michael Grömling）说：“新的奥密克戎（omicron）变种让我们有理由重新怀揣希望。如果今年疫情变为地方性流行病，那么经济就可以重新走上坡路了。”他强调，未来几年需要出现强劲的增长才能抵消这两年形成的经济损失。
 
- 美国认为，中国在补贴制成品并将其倾销到世界市场的同时，受益于世贸组织的更宽松待遇规则。世贸组织的规则曾用于“屏蔽中国的非市场经济实践，破坏公平和以市场导向为主的竞争”，目前这项规则亟待改善。
+信息来源：
 
- 美国发言人认为世贸组织做出的此错误解释，损害了保护美国工人和企业免受中国扭曲的贸易补贴的能力
+[新冠疫情已经给德国经济造成3500亿欧元损失](https://www.dw.com/zh/%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E5%B7%B2%E7%BB%8F%E7%BB%99%E5%BE%B7%E5%9B%BD%E7%BB%8F%E6%B5%8E%E9%80%A0%E6%88%903500%E4%BA%BF%E6%AC%A7%E5%85%83%E6%8D%9F%E5%A4%B1/a-60530041)
 
-参考链接：[https://www.reuters.com/business/wto-gives-china-right-impose-tariffs-645-mln-us-goods-2022-01-26/](https://www.reuters.com/business/wto-gives-china-right-impose-tariffs-645-mln-us-goods-2022-01-26/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-编辑：雪梨
-校正/发稿：Daxia
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

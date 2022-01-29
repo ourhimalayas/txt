@@ -2,27 +2,35 @@
 ---
 
 
-## HBO，VICE，Q组织，是五年前设下的致命的局(三)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928013/)
+## 北京冬奥前闭环内外疫情燃烧，特大安全套或是最佳体验
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1928139/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/HBO，VICE，Q组织，是五年前设下的致命的局（三）-.jpg)
-那么我美外国人HBO，VICE拿到钱了，我要跟你兑现。四年前的计划，今天兑现中，谁付的钱啊？知道吗？江志成付的钱，Bruno吴付的钱。钱拿了我就给你兑现。5年前伊萨贝尔杨从上海回来，所以今天这个钱，这个还没对交完呢，就是你们的目的：干掉郭文贵和新中国联邦，然后让所有的海外华人成为邪教。然后Q组织是把你带向沟的其中一个开始。
-1月6号，伊萨贝尔杨能如约而至，我告诉你，伊萨贝尔杨要找一个摄影师，摄像师你知道什么概念吗？在公司提前一周要申请，她给我约会都是提前一个月，你说她在那么准就到了1月6号就到达了那天去访问呢？而且专找中国人？！你觉得这事没计划吗？你们但凡有一点脑子，兄弟姐妹们，在美国VICE这种出访里边要律师批、总编批、副总编批，然后摄像机才能到，我所有接受采访的摄影师、摄像师都是从不同的城市来的，像她那次采访我是摄影师摄像师在英国来的，她都在纽约，还有在洛杉矶来的。
+作者：东京樱花团丨捆绑CCP一千年
+![](https://lh6.googleusercontent.com/Kivym1MqHOpfDmWaiNfg8UaouvvONXBrqACMAsDpV6Oc9FeAifswj9nNeEqHwICT2Tncn4XjDEk8JivPeZ0j1vEY3cPzfoU_GhBpjBjmB--xghr508_OnrXgP_x7Yk0iRSgvhzMr)[*图片来源*](https://edition.cnn.com/2022/01/25/sport/beijing-olympics-condoms-hugs-covid-spt-intl/index.html)
+**北京冬奥在即，“闭环”内外疫情燃烧，带给运动员最佳体验的或许是特大号安全套，这可在隔离时解燃煤之急。不过，习近平已经决定在冬奥会开幕式举办盛大宴席。对于国际社会如何追责北京反人类罪？联合国人权委员会配合北京冬奥会，将不会在近期发布涉疆“人权报告”。**
 
-你刚才看到这些细节时候就知道，她是四五年前的一场阴谋，Q组织的阴谋，邪教的阴谋，而且招招是致命的。
+据[路透社](https://gulfnews.com/sport/olympics/beijing-olympics-china-reports-36-new-covid-19-cases-among-olympics-related-personnel-1.85289422)北京时间29日消息称：“北京 2022 年冬奥组委会今天表示，1 月 28 日，在奥运会相关人员中发现 了36 例新的 COVID-19 感染者。”其中19 名运动员或球队官员在周五抵达机场后检测呈阳性。在新机场抵达者中发现了 29 人，在运动员与公众隔离的“闭环”气泡中也已经发现了 7 例感染者。
 
-2022年1月12日大直播
+另据《[看中国](http://cn.secretchina.com/news/gb/2022/01/27/996269.html)》27日消息透露，将于2月4日开幕的冬奥尚未开始，涉奥人员已检测出129人阳性。同时，北京“环外”疫情也在燃烧。1月23日正式启动的 “泡泡”型“闭环”管理难阻奥密克戎（Omicron）病毒肆虐。
 
-发布： 星谕
+- ***延展阅读：***[***中共国在冬奥会前一周悄悄封锁120万人的雄安新区***](https://www.ndtv.com/world-news/beijing-winter-olympics-china-quietly-locks-down-area-near-beijing-a-week-before-winter-olympics-2734478)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
+毋庸置疑，北京在奥密克戎（Omicron）肆虐下，一场危机四伏的冬奥会即将拉开序幕。但北京强调，“[按照传统，北京冬奥组委会将免费向运动员发放安全套，但不鼓励拥抱](https://7news.com.au/sport/winter-olympics/free-condoms-at-beijing-winter-olympics-but-hugs-discouraged-c-5474922)。”该消息称，尽管奥委会有严格的与社会隔离的 COVID-19 协议，但主办方仍提供免费安全套。
+
+路透社记者在位于闭环内的贵州宾馆入住时，在每个房间内发现了五个单独包装的安全套，**避孕套是“特大号”**。它们分别装在带有不同颜色中国灯笼形象的信封中。
+
+- ***延展阅读：***[***习近平将出席北京冬奥会开幕式***](http://news.cnr.cn/native/gd/20220128/t20220128_525728626.shtml)
+- ***延展阅读：***[***习近平为北京冬奥来访领导人设宴招待***](https://www.news18.com/news/sports/china-president-xi-jinping-to-host-banquet-for-visiting-leaders-at-beijing-winter-olympics-4708502.html)
+
+
+不知特大号安全套是否可以罩住在新疆犯下的“反人类罪”？但“路透社28日援引《南华早报》未具名消息人士的话报道，“[中国已同意让联合国人权事务高级专员在北京冬奥会后的 2022 年上半年访问新疆](https://www.arabnews.com/%E8%8A%82%E7%82%B9/2013701/%E4%B8%96%E7%95%8C)。”与此同时，[法新社](https://www.news18.com/news/world/un-says-no-rights-report-on-chinas-xinjiang-before-beijing-winter-olympics-4709741.html)表示，“联合国称不会在北京冬奥会前发布关于中国新疆的人权报告”。
+
+2021年1月29日
+
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,10 @@
 ---
 
 
-## 太平联盟诉讼提供假文件
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928102/)
+## 世界卫生组织已发出警告疫苗加强针可能削弱免疫力
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928228/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-
-发布：陶子
-
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+台灣寶島農場
 
  
 

@@ -2,12 +2,10 @@
 ---
 
 
-## 美宣布授权撤离中国大使馆，新中国联邦是重要的推手
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1927933/)
+## 新中国联邦秘密团队正在建置区块链技术平台
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928041/)
 
 台灣寶島農場
-
-清朝时期，美国就有驻中国大使馆，美国大使馆见证了中国的堕落。
 
  
 

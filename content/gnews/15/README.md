@@ -2,8 +2,8 @@
 ---
 
 
-## 法律是人类安全公平的基础
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927943/)
+## 这一切都不是偶然
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928051/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

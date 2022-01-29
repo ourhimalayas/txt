@@ -2,24 +2,66 @@
 ---
 
 
-## 英国一ICU医生就新冠疫苗强制令向政府发起司法审查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927213/)
+## 中共暗地里要求返乡民众必须做核酸检测
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927303/)
 
-#### 翻译/撰稿：黃金精神
+作者：日本方舟农场—Andy5
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-47.jpg)图片来源：bbc
-1月27日据每日邮报（Daily Mail）报道，未接种疫苗的ICU医生就国民保健署（以下简称NHS）工作人员强制疫苗问题向卫生与社会服务大臣萨吉德·贾维德（Sajid Javid）提出挑战，并对政府发起司法审查，以结束疫苗强制令。
 
-在国王学院医院（King’s College Hospital）担任麻醉师的史蒂夫·詹姆斯医生（Steve James）宣布他正与其他七名医疗专业人员一起带头进行司法审查以结束NHS的新冠疫苗强制令。
 
-英格兰政府要求所有与病人直接接触的NHS工作人员在4月1日前接种两剂新冠疫苗，否则有可能失去工作。英格兰所有一线NHS工作人员都必须在2月3日之前接种一剂新冠疫苗，以便在4月1日之前接种第二剂，但政府被警告说，这一期限可能会使卫生服务 “瘫痪”。
 
-由杰克逊·奥斯本（Jackson Osborne）律师事务所代表的詹姆斯医生与其他7名医疗专业人员一起向高等法院提交了一份文件，要求进行司法审查。这份32页的文件声称，如果不接种新冠疫苗，超过10万名未接种疫苗的工人将面临失业，并认为做出这一强制令的决定“本身是不合法的、不合理的、不相称的”。
 
-詹姆斯医生在GB新闻（GB News）节目中对奈杰尔·法拉奇（Nigel Farage）说，他准备为疫苗强制令（作抗争）放弃自己的事业，因为他想 “坚持 “自己的价值观，而不是被 “告知该做什么”。他说他没有受到来自管理层（强制疫苗）的压力，他自己的管理层对此（要求）很松，他们理解这种情况。他补充说：“但我也知道如果有压力，该如何应对。”詹姆斯医生之前坚称他不是一个反疫苗主义者，他声称没有 “足够的科学论据”来强制要求NHS的一线医务人员接种新冠疫苗。此外，他说，通过司法审查，他们计划争辩说“政府为实施强制令而制定的法律是不合理的，是不理性的，在基于科学的情况下是不适合当前情况的”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-44.jpg)
 
-新闻来源：[Unjabbed ICU doctor who confronted Sajid Javid over compulsory jabs for NHS staff launches legal action against government’s vaccine mandate and insists he is prepared to lose his career to ‘stick with my values’](https://www.dailymail.co.uk/news/article-10449325/Unjabbed-doctor-confronted-Sajid-Javid-jabs-NHS-staff-launches-action-against-mandate.html)
+
+
+
+
+墙内百姓拍摄中共疫情检测人员不承认百姓自带的48小时内核酸阴性报告视频，打脸中共在1月6日所谓“坚决防止层层加码和一刀切，减少对群众生产生活影响”的政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-60.png)
+视频拍摄者在检查点询问，自己自带的48小时内核酸阴性检测报告到底行不行，一位工作人员非常强势地告诉他不行，因为这个检测是全部人员的抽检；另一位工作人员则要求视频拍摄者出示身份证，用于做核酸检测。而面对为什么自带的48小时内核酸检测报告不行的质疑，并要求提供相关文件时，第一位工作人员态度蛮横，没有任何解释，且不耐烦地对视频拍摄者多次指指点点。最后拍摄者无奈质问：是不是我这样的算是“恶意返乡”呢？
+
+这种现象在中共国并非个例。在黑龙江哈尔滨也发生了更加恶劣的事件。仅因为返乡人员来自有过感染者的北京海淀区，检测点仅给出了要么强制隔离14天，要么原路返回的两个选项，甚至没有给出现场核酸检测的选项。这让返乡人员无奈只好带上孩子原路返回北京，错失与父母团聚。
+
+分析人士称，中共为了冬奥会所采取的清零政策，并没有中共在政策中描绘的那样人性化，没有从西安孕妇流产等事件吸取一丝一毫的教训，相反已经造成了春节前极其反常的人流量减少，甚至引起了墙内各地老百姓的不满。
+
+参考来源：
+
+1.[https://www.gettr.com/post/pqrzit7f5d](https://www.gettr.com/post/pqrzit7f5d)
+
+2.[https://www.gettr.com/post/pqo72a3798](https://www.gettr.com/post/pqo72a3798)
+
+3.[热评丨不搞“层层加码”“一刀切” 保春运安全有序](https://china.huanqiu.com/article/46JfF62Wvyt)
+
+4.[关于全力做好2022年春运工作的意见](https://www.ndrc.gov.cn/xxgk/zcfb/tz/202201/t20220106_1311501.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-16.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-43.jpg)
+
+
+
+
+
+
 
  
 

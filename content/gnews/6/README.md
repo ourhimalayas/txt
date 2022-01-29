@@ -2,8 +2,8 @@
 ---
 
 
-## 这一切都不是偶然
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928051/)
+## 共产党对文贵先生的法律超限战
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928174/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
