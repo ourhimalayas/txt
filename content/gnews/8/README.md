@@ -2,22 +2,24 @@
 ---
 
 
-## 系紧安全带！美银：FED今年将升息7次、每次1码
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1927745/)
+## 弗吉尼亚州新任总检察长：州立大学不能要求学生接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927869/)
 
-素材推荐：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-29-at-4.37.16-PM.png)图片来源：互联网
-美银分析师周五表示，美联储（Fed）在 1 月货币政策会议后召开记者会，暗示將在3月升息，且不排除每次开会都升息的可能性。为对抗通膨，预计Fed今年将从3月起升息7次，每次升25个基点。
+#### 撰稿：彩虹
 
-路透报道，美银经济学家在1份报告中表示，美联储几乎已经承认，它严重落后于现实情况，经济学家进一步指出，美联储激进的政策收紧，应该会对经济产生滞后影响，对2023年的增长构成压力。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-3-13.jpg)图片来源：BG Daily News
+1月28日，《国会山报》报道，周五，弗吉尼亚州总检察长杰森·米亚雷斯（Jason Miyares）发表法律意见，告诉联邦公立学院和大学，他们不能要求学生接种中共病毒（COVID-19）疫苗。
 
-预估2022年的美国国内生产总值（GDP）增长预估将从4.0%下调至3.6%。
+米亚雷斯在给州长格伦·杨金（Glenn Youngkin）的信中写道：“我的结论是，如果没有州议会（General Assembly）的具体授权，弗吉尼亚州的公立高等教育机构不得要求接种COVID-19（中共病毒）疫苗，作为学生入学或亲自出席的基本条件。”
 
-* * *
+米亚雷斯认为，由于弗吉尼亚州的立法机构没有通过立法强制要求学生接种中共病毒疫苗，因此该州的高等教育机构无权强制要求他们接种。
 
-*编辑&发布：Vicky*
+文章说，该意见的提出，正值杨金政府已经迅速采取行动，在佛吉尼亚州取消了之前由前民主党州长拉尔夫·诺森（Ralph Northam）及其民主党盟友制定的中共病毒疫情限制措施。本月早些时候，杨金上任后发布了11项行政命令，其中一项命令规定，在学校佩戴口罩不是必须的，而另一项命令则取消了对国家雇员强制接种中共病毒疫苗的要求。
 
-原文链接：[繫緊安全帶！美銀：Fed今年將升息7次、每次1碼](https://ec.ltn.com.tw/article/breakingnews/3817103)
+**新闻来源**
+
+[Virginia’s new AG tells state colleges they can’t require COVID-19 vaccine for students](https://thehill.com/homenews/state-watch/591842-virginias-new-ag-tells-state-colleges-they-cant-require-covid-19-vaccine)
 
  
 

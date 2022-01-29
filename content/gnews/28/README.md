@@ -2,26 +2,42 @@
 ---
 
 
-## 中日财经爆|中共病毒疫情已给德国经济造成3500亿欧元损失
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1927221/)
+## 澳洲卫生部长表示，可能将新冠疫苗与流感疫苗合并
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1927557/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-105.jpg)（图片来源于本文链接）
-德国经济研究所所做的一项研究发现，中共病毒（新冠病毒）疫情爆发以来的两年，消费者的消费量和企业的投资数量都在减少，德国经济遭受的损失已经达到3500亿欧元。
+#### 【雅典娜快讯】，紧贴时代脉博
 
-这其中很大一部分是因为消费大幅减少造成的。除此之外，企业投资减少也是原因之一。德国经济研究所还预测，今年前三个月德国经济可能再蒙受500亿欧元的损失。专家们预测，“经济恢复将持续数年之久”。该研究所发表的报告指出，疫情最初阶段执行的封锁令为企业生产造成很多问题，同时也影响到德国境内和境外的货物供应。
+整理报道：小鱼儿
+编辑：jasse01
 
-此外，消费限制和客户变得更为慎重也造成进一步损失。海外业务大幅减少。2020年第二季度德国GDP同上一年同期相比减少了11%。在疫情发展过程中，德国感染人数也曾一度减少，人们对经济持久复苏开始抱有希望，但最终却在新的感染浪潮中破灭。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2294.png)图片来源：雅典娜设计组
 
-经济研究所专家格罗姆林（Michael Grömling）说：“新的奥密克戎（omicron）变种让我们有理由重新怀揣希望。如果今年疫情变为地方性流行病，那么经济就可以重新走上坡路了。”他强调，未来几年需要出现强劲的增长才能抵消这两年形成的经济损失。
 
-信息来源：
+**澳洲卫生部长表示，可能将新冠疫苗与流感疫苗合并**
 
-[新冠疫情已经给德国经济造成3500亿欧元损失](https://www.dw.com/zh/%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E5%B7%B2%E7%BB%8F%E7%BB%99%E5%BE%B7%E5%9B%BD%E7%BB%8F%E6%B5%8E%E9%80%A0%E6%88%903500%E4%BA%BF%E6%AC%A7%E5%85%83%E6%8D%9F%E5%A4%B1/a-60530041)
+当地时间1月28日，据天空（Skynews）新闻报道，卫生部长格雷格·亨特（Greg Hunt）表示，新冠病毒疫苗和流感疫苗可以合并为每年一次的疫苗，并在年底前为一些澳大利亚人注射第四剂疫苗，这是一种“可能性”。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+亨特说，到2024年，流感疫苗可以与新冠疫苗结合起来，这正在成为一个“真正的场景”。
+
+政府在（去年）12月宣布了一项将莫德纳（Moderna）引入澳大利亚的协议，将在维多利亚州建造一个生产工厂，每年供应多达1亿剂的药物。
+
+当亨特敦促澳大利亚人接种第三剂疫苗时，主持人彼得·斯特凡诺维奇认为，许多居民已经注射了两剂疫苗，（但）在最近感染了新冠病毒，他们“不应被打扰”去预约（接种）。主持人补充说，许多居民只是“不愿意接种”，因为他们的工作单位要求接种。
+
+斯特凡诺维奇随后问，一个人在不到一年的时间里，接种三剂新冠疫苗是否“健康”。亨特先生强调“绝对没有风险”，因为澳大利亚免疫技术咨询小组 (ATAGI)的任务是评估疫苗的安全性，并在向公众推广之前给予最终批准。
+
+亨特最后补充说，有可能在2022年底为年龄较大或免疫力低下的居民注射第四剂（疫苗）。
+
+参考新闻：[Annual boosters and combining COVID-19 jabs with the flu shot on the cards for federal government](https://www.skynews.com.au/australia-news/coronavirus/annual-boosters-and-combining-covid19-jabs-with-the-flu-shot-on-the-cards-for-federal-government/news-story/e2bca83263487d0d11824e1ec5fc6934)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

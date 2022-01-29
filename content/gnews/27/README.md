@@ -2,22 +2,24 @@
 ---
 
 
-## 叙利亚摄像师谴责赵立坚滥用其照片歪曲事实
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927248/)
+## 秘翻在线：瑞典决定撤销对5-11岁儿童注射中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927658/)
 
-#### 翻译/撰稿：zzballack
+**翻译：Hakunamatata**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-49.jpg)图片来源：推特
-据《布雷特巴特新闻网》（Breitbart News）1月28日报道，叙利亚摄像师阿里·哈吉·苏莱曼（Ali Haj Suleiman）1月27日在推特发文，谴责中共外交部发言人赵立坚将他为一篇反映叙利亚内战的文章而拍摄的照片谎称是展示阿富汗悲惨现状的照片，以作为美军入侵阿富汗并虐待阿富汗儿童的“证据”。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-160752.jpg)
+据路透斯1月27日报道，瑞典卫生机构本周四表示，瑞典决定不建议为5-11岁儿童接种中共病毒疫苗，理由是风险大于益处。
 
-苏莱曼在推特上写道，赵立坚所发布的这些照片实际上是他在叙利亚西北部城市伊德利卜（Idlib）拍摄的，以让世人看到叙利亚政府和俄罗斯军队给当地孩子带去了什么灾难。
+卫生机构官员布雷塔·比约克霍尔姆(Britta Bjorkholm) 在新闻发布会上表示：根据我们今天掌握的信息，由于儿童患严重疾病的风险较低，我们没有看到给他们接种这个疫苗后有任何明显的好处。她补充说，如果研究发生变化或者如果一种新的变异出现，那么这个决定也许才会被重新考虑。
 
-赵立坚歪曲事实、抹黑造谣早已屡见不鲜。此前，他曾声称中共病毒是由美国马里兰州的一个生物武器实验室制造的，而且在2020年11月发推恶意诽谤澳大利亚军队杀害婴儿。但推特拒绝审查赵立坚的推文，尽管它明显违反了该平台的服务条款。
+1月26日，瑞典新增病例超过4万例，是中共病毒大流行期间单日新增病例最多的国家之一，尽管检测数量有限。在第四波疫情中，每天的感染记录都被打破，但医疗保健部门的压力与前几波疫情时不同。就在这周四，只有101名感染中共病毒（Covid-19）患者需要重症监护，远低于2021年春季的400多名患者。自疫情开始以来，瑞典共有近1.6万人死于中共病毒。
 
-以赵立坚为代表的中共官员在国内甚至国际舞台上混淆是非、胡编乱造已是家常便饭。特别是在中共病毒的起源一事上，世人逐渐看清了中共的假、黑、骗等邪恶本质。中共的种种恶行让无辜的中国人甚至亚洲人和亚裔受到了牵连，因此向世人揭露中共的暴行以及中共不等于中国人十分重要。
+另外，瑞典政府周三将限制措施延长了两周，其中包括限制餐馆的开放时间和室内场所的参观人数上限，但政府表示希望情况好转，能在2月9日取消这些限制措施。
 
-新闻来源：[Photographer Accuses China of Using His Photos from Syria to Smear U.S. Role in Afghanistan](https://www.breitbart.com/national-security/2022/01/28/photographer-accuses-china-using-his-photos-syria-smear-u-s-role-afghanistan/)
+欧洲在慢慢觉醒，但各国普遍高接种率的趋势已经铸就了疫苗灾难的来临。
+
+**原文链接：** [Sweden decides against recommending COVID vaccines for kids aged 5-12 | Reuters](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
 
  
 

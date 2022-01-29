@@ -2,32 +2,39 @@
 ---
 
 
-## 美国海军遣散无苗水兵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927739/)
+## 美国支持欧盟在世贸组织状诉中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927859/)
 
-撰稿：台湾宝岛农场 – 新中国联邦静，motdfry(文旦)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-美国海军周三宣布，已将45名拒绝接种中共病毒疫苗的军人遣散，其中包括23名现役水兵。据官方通知显示，截至周四，仍有5,035名现役水手和2,860名预备役军人未接种疫苗。在未接种疫苗的现役水手中，10人获得永久医疗豁免，259人获得临时医疗豁免，其中59人获得行政豁免。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2411.png)
-截至上周晚些时候，海军陆战队已经解雇了334名海军陆战队员，而截至本周，空军已经解雇了111名拒绝接种的飞行员。根据最新数据，美国海军陆战队、空军、海军共解雇了超过500名未接种中共病毒疫苗的现役军人。美国军方各分支机构都报告了超过90%的中共病毒疫苗施打率，虽然有宗教豁免方法，但只有少数人成功。
+作者：台湾宝岛农场 – motdfry(文旦)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月27日，欧盟表示，已在世界贸易组织就中共对欧盟成员国立陶宛实施贸易限制提起诉讼。同时，美国贸易代表办公室当天表示，美国将加入WTO磋商，以声援立陶宛和欧盟。
 
-总编/编辑: 童谣
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-17-scaled.jpg)
 
-新闻连接: [U.S. Navy Begins Discharging Sailors Who Refuse Coronavirus Vaccine](https://www.breitbart.com/politics/2022/01/27/u-s-navy-begins-discharging-sailors-who-refuse-coronavirus-vaccine/?utm_source=facebook&amp;utm_medium=social)
+据悉，欧盟指控中共对立陶宛实施歧视性贸易做法，并称这威胁到欧盟单一市场的完整性。
 
-新闻连接:[https://www.britbart.com/politics/2022/01/27/over-500-active-duty-service-members-discharged-due-to-coronavirus-vaccine-mandate/](https://www.britbart.com/politics/2022/01/27/over-500-active-duty-service-members-discharged-due-to-coronavirus-vaccine-mandate/)
+欧盟方面表示，中共对立陶宛的贸易限制措施包括中共海关对立陶宛商品不予清关、拒绝立陶宛的进口申请以及对欧盟公司施加压力，要求其向中共出口的商品不得含有立陶宛的零部件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-4.png)
+据了解，美国贸易代表戴琪今年初曾与立陶宛外长通话，表示在这场外交争端中，立陶宛可获美国支持，两国将共同应对中共经济胁迫。
 
-校正/发稿：浪迹天涯
+参考链接：
+
+- [歐盟在世貿組織狀告中共 美要求加入](https://www.epochtimes.com/b5/22/1/27/n13534577.htm)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+编辑：文特
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
