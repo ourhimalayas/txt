@@ -2,8 +2,8 @@
 ---
 
 
-## 这一切都不是偶然
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928051/)
+## 美国司法部被国外机构行贿和腐败
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928058/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

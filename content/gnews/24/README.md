@@ -2,8 +2,8 @@
 ---
 
 
-## 最早投GTV的人， 是新中国联邦的老椅子
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928007/)
+## 新中国联邦秘密团队正在建置区块链技术平台
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928041/)
 
 台灣寶島農場
 

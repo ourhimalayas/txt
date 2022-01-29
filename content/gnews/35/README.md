@@ -2,35 +2,39 @@
 ---
 
 
-## 研究发现中共病毒疫苗导致妇女月经周期延长
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927858/)
+## 美国支持欧盟在世贸组织状诉中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927859/)
 
-#### 撰稿：彩虹       
+作者：台湾宝岛农场 – motdfry(文旦)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月27日，欧盟表示，已在世界贸易组织就中共对欧盟成员国立陶宛实施贸易限制提起诉讼。同时，美国贸易代表办公室当天表示，美国将加入WTO磋商，以声援立陶宛和欧盟。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/vaccine-nurse-giving-patient-shot-1440x748-2.jpg)图片来源：CHOA
-1月28日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）报道，美国国家卫生研究院（NIH）的一项研究发现，中共病毒（COVID-19）疫苗延长了妇女的月经周期。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-17-scaled.jpg)
 
-这项研究发表在一月份的《妇产科学》杂志上，比较了接种和未接种中共病毒疫苗的妇女的月经周期长度。
+据悉，欧盟指控中共对立陶宛实施歧视性贸易做法，并称这威胁到欧盟单一市场的完整性。
 
-研究报告的摘要中写道：“对于接种疫苗的人来说，数据来自接种前的三个连续周期，以及接种疫苗后的三个连续周期。对于未接种疫苗的人，收集了连续六个周期的数据。”
+欧盟方面表示，中共对立陶宛的贸易限制措施包括中共海关对立陶宛商品不予清关、拒绝立陶宛的进口申请以及对欧盟公司施加压力，要求其向中共出口的商品不得含有立陶宛的零部件。
 
-在被分析的3,959人中，2,403人接种了疫苗，其中大多数人接受了辉瑞（Pfizer）公司或莫德纳（Moderna）公司的疫苗，1,556人未接种疫苗。
+据了解，美国贸易代表戴琪今年初曾与立陶宛外长通话，表示在这场外交争端中，立陶宛可获美国支持，两国将共同应对中共经济胁迫。
 
-平均而言，第一剂疫苗导致周期长度增加0.71天，第二剂疫苗导致周期增加0.91天。
+参考链接：
 
-美国国立卫生研究院（NIH）尤尼斯·肯尼迪·施莱佛（Eunice Kennedy Shriver）国家儿童健康和人类发展研究所（NICHD）所长戴安娜·**W**·比安奇（Diana W. Bianchi）博士强调说：“以前很少有人对COVID-19（中共病毒）疫苗或其他疾病的疫苗如何可能影响月经周期进行研究。”
+- [歐盟在世貿組織狀告中共 美要求加入](https://www.epochtimes.com/b5/22/1/27/n13534577.htm)
 
-作者指出，疫苗的副作用是在制药巨头（特别是辉瑞和摩德纳）的游说工作之后发生的，在支出和雇用人员方面达到了历史最高水平。虽然强制接种被地区法院驳回，但这些大规模的游说活动很可能为全国范围内的疫苗强制接种负责。
 
-更为值得注意的是，汤森路透基金会（Thomson Reuters Foundation）的主席和前首席执行官（CEO）詹姆斯-C-史密斯（James C. Smith）正是制药巨头辉瑞公司的顶级投资者和董事会成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-截止本篇文章发稿，路透社还没有报道美国国立卫生研究院的此项研究。但是，该媒体却已经刊登了题为“疫苗与月经变化无关；COVID（中共病毒）疫苗和流感疫苗可以一起使用”以及“月经变化和COVID（中共病毒）疫苗之间没有发现联系”的报道。
+总编：童谣
+编辑：文特
+校正/发稿：海阔天空1
 
-**新闻来源**
-
-[U.S. Government Study Admits COVID Vaccine Lengthens Menstrual Cycles](https://thenationalpulse.com/2022/01/28/u-s-government-study-admits-covid-vaccine-lengthens-menstrual-cycles/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
