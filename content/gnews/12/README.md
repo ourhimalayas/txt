@@ -2,22 +2,50 @@
 ---
 
 
-## 最关键的是我们从来不孤独
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927368/)
+## 外交部：赖清德过境，循例与美国行政部门有所互动
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927455/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/最关键的是我们从来不孤独-scaled.jpg)
-七哥：我刚刚的信息上有一个班农先生也认识的人，是以前班农先生在马阿拉戈会议上见面的人，跟我说：全家21 口人都在看现在的直播，让我转告班农先生，班农先生可以减肥，不能减太多。所以说，兄弟姐妹一定要记住，安红、卡利熙、木兰、大卫兄弟是代表人物，一定要相信背后的全中国人，90%—95%以上的人绝对发自内心的想干掉共产党。你们今天一定要明白，这是七哥最想让大家知道的，包括班农先生，他绝对相信美国人最终全部都会选择干掉共产党。我们100%的相信90%以上的中国的人民，他们要灭共。班农先生相信所有的美国人其实只有一个选择，也就是解决所有美国人的问题，解决价值问题、长期的问题要有一个和平的方法，这就是为什么班农先生和我在船上120天，我们就是为了要灭共。班农先生是为了干掉对美国的最大威胁而活着，越来越多的人热爱班农先生。
+作者：台湾宝岛农场—dobi
 
-*发布：开智则立*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-45.jpg)
+
+
+
+
+
+据台媒1月27日报导，副总统赖清德代表参加友邦洪都拉斯新总统卡斯特罗（Xiomara Castro）的就职典礼，且于26日过境美国洛杉矶时，与美国跨党派参、众议员进行视频会议。至于后续是否会进一步会晤美国国务院官员，驻美代表萧美琴持保留，未直接响应的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-75.png)
+台湾外交部欧江安认为，相信在台湾与美国在坚实友好的互信基础之上，台湾代表团应也会循例与美国行政部门有所互动。 此外，报导中也提及英国首相琼森（Boris Johnson）26日在国会下议院应询时，强调中共国大陆军机扰台行为无助台海关系稳定，同时也强调两岸应发展和平且具建设性对话的必要性。
+
+参考来源：
+
+[外交部：賴清德過境 循例與美國行政部門有所互動](https://udn.com/news/story/6656/6064618?from=udn-referralnews_ch2artbottom》)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+
+
+
+
 
  
 

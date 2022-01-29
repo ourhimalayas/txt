@@ -2,50 +2,27 @@
 ---
 
 
-## 外交部：赖清德过境，循例与美国行政部门有所互动
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927455/)
+## 《共产党想将流毒输出到美国》(一)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927521/)
 
-作者：台湾宝岛农场—dobi
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/《共产党想将流毒输出到美国》1.jpg)
+桥水基金这个家伙 Ray dalio就是刚才我们所说的伊莎贝拉杨啊，收钱了你就得干活啊。西方人这个事还守约的。他管理的上万亿美元的资产。我太了解这孙子了啊，他跟他儿子就是中国的白手套吸血鬼啊。这个 Ray Dalio跟王岐山的是生死兄弟。
+第一个高艳艳和王岐山朱云来成了所谓的中国中投。30亿美元，立马投向叫做 black stone，百仕通集团，也是把七哥要遣返的
+第2个50亿美元就是把中国国家政府的钱给了所谓海外基金管理的就是他，就是 Ray dalio桥水基金。累计1万亿美元，中国的前15000家企业里边几乎60%都是他投资。而且这跟新疆很有关系。
 
+跟新疆优越股有关系，和新疆矿有关系，内蒙古有关系的和西藏有关系，几乎100%Ray Daio在这里面。而且很有可能他都是唯一。所有中国科技股。
 
+2022年1月12日大直播
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-45.jpg)
+发布： 星谕
 
-
-
-
-
-据台媒1月27日报导，副总统赖清德代表参加友邦洪都拉斯新总统卡斯特罗（Xiomara Castro）的就职典礼，且于26日过境美国洛杉矶时，与美国跨党派参、众议员进行视频会议。至于后续是否会进一步会晤美国国务院官员，驻美代表萧美琴持保留，未直接响应的态度。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-75.png)
-台湾外交部欧江安认为，相信在台湾与美国在坚实友好的互信基础之上，台湾代表团应也会循例与美国行政部门有所互动。 此外，报导中也提及英国首相琼森（Boris Johnson）26日在国会下议院应询时，强调中共国大陆军机扰台行为无助台海关系稳定，同时也强调两岸应发展和平且具建设性对话的必要性。
-
-参考来源：
-
-[外交部：賴清德過境 循例與美國行政部門有所互動](https://udn.com/news/story/6656/6064618?from=udn-referralnews_ch2artbottom》)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
