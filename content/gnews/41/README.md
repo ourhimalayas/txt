@@ -2,28 +2,30 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1924787/)
+## 2022/01/27 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1925819/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+1. 1月24日，四川成都。在出现给大蒜苗做核酸的荒唐景象后，成都又出现为共享单车随机做核酸检测的画面。
+2. 1月26日，中共推行的防疫政策给了政府无限的权力，市民持有核酸证明，被强制要求重新检测一遍！中共不会给百姓任何反抗质疑的权利。
+3. 1月26日，重庆。下高速的要排长队做核酸检测、不做核酸不准走！
+4. 江西偏远农村小伙住10年公司宿舍，省吃俭用10年才能在大城市买一套房。中共国的高房价让中国普通年轻人生活的方向只能是买房。
+5. 1月26日，广东东莞。一医院年会聚餐挂横幅“手术室里全是钱”引发网络热议。
+6. 山东菏泽，网友拍下心酸一幕。老奶奶交不起治病的医药费，坐在一旁独自哭泣！
+7. 1月24日，河南洛阳。男子为了省300块的路费，雨雪天气步行30公里回家。
+8. 中共利用高科技手段监控百姓的手段十分成熟，视频为高速公路上行驶的私家车被政府实时监控。
+9. 老年人没有智能手机，无法扫健康码在银行取不了钱！
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-28.png)
-文章仅代表作者本人观点，与Gnews无关
 
-视频参看：[2022.01.28早GTV新闻访谈](https://gtv.org/video/id=61f3ef5681ce0a3ac2a07c90)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

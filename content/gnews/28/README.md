@@ -2,28 +2,37 @@
 ---
 
 
-## 人类历史偶尔会被某个精神患者改变
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926251/)
+## 欧盟委员会因对辉瑞的疫苗交易保密受到抨击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1926322/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/人类历史偶尔会被某个精神患者改变_01.jpg)
-直播时间：2021.12.01
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-习近平这场大局里面，给中国和世界带来最重要灾难的两个人，王岐山和孟建柱就是当年毛泽东身边的康生和周恩来。
+整理/编辑：小红帽
 
-首先一点，习近平肯定不正常，就是精神病，心理也不正常，人格不正常的变态，澳门的经济问题就是政治问题，澳门就是犯罪之都，和珠海没有什么两样，而耳是腐败西方最核心的地方，从这里可以看出来共产党的内部斗争一点都不激烈。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)【雅典娜快讯】，紧贴时事脉搏
 
-新中国联邦和爆料革命知道共产党的游戏规则，也知道它的情报，对它们每个人的个性都有把握。要记住凡是世界历史的改变都是因为某一个人的性格决定的希特勒，斯大林，胡志明这些人。
 
-人类的历史就是被某个人、疯子或者神经病改变的。
+根据《RT》新闻1月28日报道，欧盟委员会拒绝公布其主席乌苏拉·冯德莱恩（Ursula von der Leyen）去年在达成新冠病毒（Covid-19）疫苗交易的谈判中，发给辉瑞（Pfizer）公司首席执行官阿尔伯特·布尔拉（Albert Bourla）的短信。因此，冯德莱恩被欧盟监察机构指控为“行政不当”。
 
-发布：*皮特*
+欧洲监察专员艾米丽·奥莱利（Emily O’Reilly）周五的一项调查批评欧盟执行机构未能要求冯德莱恩的办公室搜索这些短信。这部分讨论被认为有助于欧盟获得大约18亿剂辉瑞公司的新冠疫苗。
+
+去年4月，冯德莱恩透露，在谈判期间，她与布尔拉交换了一个月的短信和电话。然而，该委员会后来回应了一名记者对这些信息的公开访问请求，声称其没有保留这些短信的记录，只拥有一封电子邮件、一封信和一份关于该主题的新闻稿。
+
+在调查过程中，该委员会曾要求总统办公室寻找符合其内部记录标准的 “文件”–短信不属于这一定义范围。欧盟委员会辩称，其记录保存政策原则上不包括即时通信。到目前为止，还没有在其文件管理系统中记录任何短信。
+
+监察员奥莱利指出，这“相当于行政失当”，要求欧盟委员会再次检查相关信息，并在4月26日之前对该建议作出答复。其声称“短信不属于欧盟透明度法律范围”是“不可信的”。如果“短信涉及欧盟政策和决定，它们应该被视为欧盟文件”。
+
+欧盟委员会的一位发言人表示，该机构已经 注意到”这一建议，并将在截止日期前答复监察员。
+
+新闻链接：[EU Commission lambasted over Pfizer vaccine deal secrecy](https://www.rt.com/news/547653-eu-commission-criticism-pfizer-secret-texts/)
+
+*发布：  tianzhihuan*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

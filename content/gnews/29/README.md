@@ -2,47 +2,42 @@
 ---
 
 
-## 美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926249/)
+## 瑞典不为5至12岁的儿童接种中共病毒疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1926308/)
 
-作者：首尔天池农场—zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2400.png)2021年3月2日，在瑞典斯德哥尔摩北部索伦图纳的一座教堂内的临时疫苗接种诊所，一名卫生工作者为一名老人接种辉瑞公司的中共病毒疫苗。(图源：路透社)
+新加坡《亚洲新闻台》2022年1月27日报道，瑞典卫生署周四(1月27日)表示，瑞典已决定不推荐5至11岁的儿童接种中共病毒疫苗，认为其益处并未超过风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+卫生署官员布里塔·比约克霍尔姆(Britta Bjorkholm)在新闻发布会上说：“根据我们今天所掌握的知识，由于儿童患严重疾病的风险很低，我们认为为他们接种中共病毒疫苗没有任何明显的好处。”
+
+她补充说，如果研究发生变化或新变种病毒改变了大流行，则可能会重新审视该决定。高危人群中的儿童已经可以接种疫苗。
+
+尽管检测数量有限，瑞典在1月26日登记了超过40,000例新病例，这是大流行期间单日病例最高的一天。虽然第四波疫情的单日感染记录被打破，但医疗保健并没有承受前几波疫情期间同样的压力。
+
+周四，101名中共病毒患者需要重症监护，远低于2021年春季期间的400多名患者。自中共病毒大流行病开始以来，瑞典总共有近16,000人死于该病毒。
+
+瑞典政府周三将限制措施延长了两周，其中包括限制餐馆的营业时间和室内场所的上座率上限，但表示希望在2月9日取消这些限制。
+
+简评：
+
+随着美英在中共病毒强制令上的掉头，欧洲多个国家逐步放宽限制措施以及对疫苗的强制。瑞典政府不建议儿童接种中共病毒疫苗，其理由是益处并未超过风险。这只是一个暂时的可以下台的借口罢了。随着疫苗真相的逐渐揭开，和疫苗灾难的到来，没有哪一个政府能够独善其身。新中国联邦会在拯救世界这场灾难中扮演越来越重要的角色。新中国联邦人和全世界正义力量的坚持和努力一定可以让更多的人觉醒，并最终挽救人类。
+
+新闻链接：[https://www.channelnewsasia.com/world/sweden-decides-against-recommending-covid-19-vaccines-kids-aged-5-12-2464301](https://www.channelnewsasia.com/world/sweden-decides-against-recommending-covid-19-vaccines-kids-aged-5-12-2464301)
+
+翻译/简评：milkcat
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-据《网关专家》1月26日报道，1月24日，参议员罗恩·约翰逊 在华盛顿特区主持了一个长达五小时的小组会议，会议名为《新冠病毒：第二种观点》。与会人员包括几位世界知名的医生和医学专家。
-
-在这次会议上，来自俄亥俄州的托马斯·伦茨律师展示了国防部医疗流行病学数据库中的医疗账单数据。这些数据揭示了自一年前新冠疫苗推出以来，军人的健康情况所发生的变化，这些真相令人不安。 伦茨律师说，美军中确诊的几种严重疾病患者人数出现了天文数字的增长。其中最令人担忧的是癌症，2021年前10个月的癌症患者比2016至2020年这五年的平均值增加了300%，流产率也增加了300%。神经系统疾病患者增加了10倍之多，这将直接影响到美军的军事准备活动，特别是美国空军。
-
-伦茨律师说：“神经系统问题会影响我们的飞行员，病例增加了1000%以上。从过去每年的82000人增加到现在的863000 人，大批飞行员受到影响。士兵接种实验性疫苗后受伤或者死亡。”约翰逊参议员对10倍的增长率感到震惊。伦茨还作证说，自从军方吹哨人从DMED系统中调出数据后，一些数据，特别是与心肌炎有关的数据被篡改，表明联邦政府正试图掩盖真相。
-
-军方的三位军医吹哨人在宣誓后提供了他们的证词，伦茨律师将在联邦法院使用这些证词。 另外，伦茨律师在接受《The Blaze》采访时提供了他没在会议上提到的数据：军队中的心肌埂塞病例增加了269%，贝尔氏麻痹症病例增加了291%，军人孩子中的先天性畸形病例增加了156%，女性不孕人数增加471%，肺栓塞病例增加了467%。这些数据只是“冰山一角”，伦茨未来还将公布更多数据。
-
-这些数据直接来自美国军方的国防部医疗流行病学数据库（DMED）系统，该系统相当于美国的疫苗不良反应事件报告系统（VAERS）。但DMED系统只有军医可以访问，并记录军队中的每一个病例，用于保险结算（insurance billing），这与VAERS不同，使得它非常准确。
-
-霍洛维茨指出，联邦政府机构美国食品药品监管局（FDA）、疾控中心（CDC）、国防部（DoD）很容易获得这些军事医疗信息，这些机构制造了我们正在经历的公共卫生噩梦。他们很清楚确诊的与实验性疫苗有关的危及生命疾病病例急剧上升，但他们决定向公众掩盖这些信息，同时继续强迫人们接种更多的疫苗。
-
-
-
-参考链接：
-
-1. [https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/](https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/) 2. [https://thecovidworld.com/attorney-thomas-renz-shares-shocking-vaccine-injury-numbers-from-us-military-whistleblowers/](https://thecovidworld.com/attorney-thomas-renz-shares-shocking-vaccine-injury-numbers-from-us-military-whistleblowers/)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

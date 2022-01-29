@@ -2,29 +2,30 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月28日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1926451/)
+## 文贵大直播摘要图片-不断不交（2022年1月27日）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1926557/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-28-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月28日早](https://gnews.org/zh-hans/1924787/)
+#### 设计：波士顿五月花 科存
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/美国不断不交弄死中共.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+美国“不断不交”弄死中共
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/授权撤离共产党已经结束.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+授权撤离共产党已经结束
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一百多家世界金融机构决心惩罚中共.png)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+一百多家世界金融机构决心惩罚中共
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中国人的灾难缘于信假不信真.png)
+
+中国人的灾难缘于信假不信真
+
+* * *
+
+*发布：霹雳鼠年*
 
  
 

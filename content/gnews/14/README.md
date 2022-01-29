@@ -2,19 +2,31 @@
 ---
 
 
-## 医疗专家正在死亡
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926375/)
+## GTV新闻访谈简报|2022年1月28日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1926441/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+作者：香草山翻译部
 
-发布：陶子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
 
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-6.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.28  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f4984281ce0a3ac2a0e050)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
