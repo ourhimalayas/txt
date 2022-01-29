@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/29/2022 6:22 PM (UTC)`
+
+1月29号：【🧧求七哥Gettr首发🧧   <br/><br/>《我剪的视频😂请多关照！🙏】
+![img](https://media.gettr.com/group45/getter/2022/01/29/18/21e838f2-d5f5-7dd9-dca4-8dfc178192d7/out.jpg)
+
+---
+
 `@miles 1/29/2022 3:11 PM (UTC)`
 
 1月29号：尊敬的战友们好！你们健身了吗？传播CCP病毒！香港危机真相了吗？共产党的冬奥会将成为共产党制造的最大体育灾难！将在世界丢尽中国人的脸！丑陋的国际形象不可思议！这个流氓政党简直就是世界上最丑陋的一帮下三烂流氓集团！
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/27/2022 Miles Guo: All the disasters suffered by the Chinese people are due to the fact that many of them only believe in the fake but not the real. That’s why we must have democracy, rule of law, and faith after the CCP is destroyed. The authorized departure granted to the US embassy in Beijing is by no means a hastily made decision by Biden. How does it relate to Pompeo’s trip to Taiwan and the visit of the US military aircraft and warships to Taiwan?<br/><br/>1/27/2022 文贵直播：中国人所有的灾难都缘于只信假的而不信真的，因此灭共后要有民主、法治和信仰；美国大使馆的授权撤离绝非拜登拍脑袋的决定，这和蓬佩奥、美军军机和军舰访台有何关联？<br/>
 ![img](https://media.gettr.com/group49/getter/2022/01/28/00/3ffa1c5f-1667-ae65-27a9-54477d7e0f82/out.jpg)
-
----
-
-`@miles 1/28/2022 12:14 AM (UTC)`
-
-1月27号：谢谢来福福战友，发来保存的……SNOW 视频🙏🙏🙏🙏🙏🙏美好的回忆！
-![img](https://media.gettr.com/group3/getter/2022/01/28/00/fc8d84ab-5785-dd48-fcf1-6ef282f3ea96/out.jpg)
 
 ---
 
