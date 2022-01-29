@@ -2,34 +2,34 @@
 ---
 
 
-## 脸书的加密货币业务或将失败
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929421/)
+## 拍马拍到新高度 冬奥会前天安门惊现“报答领袖豁出去！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929431/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月27日，据当地媒体报道，脸书在发现其加密货币项目可能不会成功后，目前正在出售该公司的加密货币业务。
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-39.png)
+距离北京冬奥会还有一周时间，近日网络社交媒体却传出一段夸张视频，视频中约100多名中国运动员站在天安门前高喊口号，“报答领袖豁出去”、“跟着总书记，一起向未来！”令外界看得傻眼。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-4.jpeg)
+日本JBpress网站1月27日报导，1月25日清晨7时26分左右，北京冬奥会中国体育代表团100多名运动员和教练员代表聚集在天安门广场，伴随着五星旗的升旗，高喊口号“为了祖国冲冲冲，不负人民拼拼拼，报答领袖豁出去，永争第一不认怂，跟着总书记，一起向未来！”据悉，北京当时气温低于零下7摄氏度。
 
-消息显示，脸书最初试图将这一数字货币项目打造成一个便捷支付业务，其当时还与PayPal、Visa和Stripe等公司具有合作关系。然而，美联储的官员早先对该业务平台是否能为用户提供安全和隐私服务的能力表示怀疑。该官员指出，脸书业务平台的使用者甚至包含了洗钱者和恐怖主义资助者。
+中国选手们在完成这项所谓的“天安门宣誓”后，集体搭乘大巴返回北京“闭环管理”（泡泡式管理）的奥运村。
 
-据悉，脸书已经计划以约两亿美元的价格将数字货币项目出售给加利福尼亚州的一家与比特币和区块链公司合作的小银行。
+报导指出，中国参选选手“天安门宣誓”举动不禁让外界质疑，为什么一场奥运赛，要与国家领袖有关联？
 
-参考链接：[Facebook winding down cryptocurrency effort: report](https://thehill.com/policy/technology/591710-facebook-winding-down-cryptocurrency-effort-report)
+为此，日本记者还专门找到北京民众询问此事，北京市民直言“天安门宣誓”行为就是白痴行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+目前中共官方已经移除了相关视频，但海外仍在热传，并引发民间讨论。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+拍马屁拍到肉麻，撒谎撒到地老天荒。中共这种邪恶体制下拍马屁也得看谁会舔，也得看谁更会卖命，马屁精们不嫌事大，拍马也得拍出个彩头，于是乎语不惊人死不休，各种奇葩应运而生。靠揣摩圣意而生的官场弄潮儿们，他们最擅长的就是根据圣意，编纂出各种奇奇怪怪的口号，以博皇上一笑。其实他们都知道是假，圣上更是知道假，他们要的就是这种效果，在假言假语的互相传唱中洗脑。一切都是假的，无关乎人生观，更无关乎价值观，生存而已。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：
+
+[高级黑？冬奥前天安门惊现“报答领袖豁出去！”](https://m.secretchina.com/news/gb/2022/01/28/996347.html)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

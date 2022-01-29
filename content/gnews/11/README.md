@@ -2,32 +2,37 @@
 ---
 
 
-## 瑞典不建议为12岁以下儿童接种中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929543/)
+## 有声|一周中共病毒及疫苗信息汇总
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929603/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月27日，据相关媒体报道，瑞典卫生局于当天发布声明表示，政府不建议当地5至11岁的儿童接种中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.27.png)
-瑞典卫生局的官员在新闻发布会上指出，当前所有的研究结果都明确显示，儿童患严重疾病的风险很低，但中共病毒疫苗所带来的危险性远远却超过它的防护性。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is 条幅.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+1月18日至25日，除中共国外，全球新增确诊中共病毒2389万余例，同比上周增长百分之13.1，增长率较上周上升了0.4个百分点；本周新增确诊死亡病例59138例，同比上周增长了百分之16.4，增长率较上周增加6.74个百分点。 
 
-据悉，本月26日，瑞典当日新增了超过四万例中共病毒感染病例，达到了该国自大流行以来的单日确诊峰值，这也让瑞典政府延长了该国所有关于中共病毒疫情的限制措施。但另一方面，瑞典当局正在计划于2月9日逐步取消这些限制。
+ 截止1月25日，除中共国外，全球累计接种71.1亿剂“中共病毒”疫苗，同比18日增长了百分之2.51；疫苗接种的增长率较一周前相比，下降了0.21个百分点。
 
-参考链接：[Sweden decides against recommending COVID vaccines for kids aged 5-11](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
+原文链接：[一周中共病毒及疫苗信息汇总](https://gnews.org/zh-hans/1921699/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+音频处理/发稿：Daxia
 
-总编：文特
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,35 @@
 ---
 
 
-## 意大利正在为大量疫苗伤害索赔做准备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929253/)
+## 拜登团队拟对俄采取“核”级制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1929272/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月21日，据相关媒体消息显示，意大利政府计划拨出1.5 亿欧元用于赔偿那些因接种中共病毒疫苗而遭受副作用的民众。
+#### 翻译：Steven Hu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-6.jpeg)
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2432.png)图片来源：谷歌图片
+《零对冲》引用彭博社报道称，拜登政府已向华尔街简要介绍了可能对俄罗斯实施的影响深远的新制裁，并正在努力确保这些制裁不会扰乱全球金融体系。 假设在乌克兰遭到攻击情况下，将会对俄罗斯银行、公司和进口商品的制裁方案已经摆在了桌面上。
 
-资料显示，意大利的法律规定，政府需要保证对那些因强制接种疫苗而受到伤害的民众进行赔偿，其范围甚至覆盖至因接种了政府推荐的疫苗而受到伤害的意大利人。据了解，这些疫苗受害者可以通过国家赔偿基金或民事及刑事司法程序得到其应有补偿。
+据彭博社报道，这包括本周国家安全委员会官员与花旗集团、美国银行、摩根大通和高盛集团等主要银行的高管进行了讨论。
 
-意大利政府公布的数据表明，该国12岁以上的公民中，超过90%的人已经接种了中共病毒疫苗，而罗马更是强制要求该市50岁以上的居民必须接种疫苗。值得注意的是，意大利政府已经报告了超过十万起的中共病毒疫苗不良反应案例，而其中的15%则属于严重不良反应范畴。
+传说政府正在与中东、亚洲和非洲的能源公司接触，希望在事态升级到俄罗斯大幅切断对欧洲的天然气供应时帮助西欧利用替代供应链。但是，当华盛顿一直在谈论制裁甚至切断俄罗斯与 SWIFT 的联系时，乌克兰总统泽伦斯基本人一直忙于试图淡化华盛顿官员发表的火药味浓厚的和“危险”的言论……
 
-对此，郭文贵先生曾在直播中透露，根据出走欧洲的科学家所提供的情报判断，中共病毒疫苗灾难将会在2022年5月开始集中爆发。届时，由于各种疫苗副作用所导致的伤害、死亡和随之而来的海量保险索赔会导致全球保险业、银行业的破产。最终，各国和国际金融的崩溃将是必然结果。
+同样，莫斯科在过去两个月来也一直表示没有“计划”入侵乌克兰，虽然它最近承认俄罗斯军队在俄罗斯 – 乌克兰边境附近的地区的重兵集结；但这些集结都是在自己的主权范围内领土，克里姆林宫提醒华盛顿，它完全有权这样做。
 
-参考链接：[Italy to set aside 150 mln euros for COVID vaccination compensation – draft](https://www.reuters.com/world/europe/italy-set-aside-150-mln-euros-covid-vaccination-compensation-draft-2022-01-21/)
+据称，财政部外国资产控制办公室的官员也参与了向美国金融公司介绍可能采取的措施。 就对俄罗斯实施新制裁的可能或不可能的选项以及制裁的严重程度而言，彭博这样报道：“美国和欧盟正在制定一整套计划，其中包括针对莫斯科的货币兑换能力，包括能源处罚以及切断进入每天管理 4200 万笔付款订单的斯威夫特（Swift ）系统的访问，但斯威夫特 被认为是核级别的、也是最具摧毁性的选项。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+目前看来，Swift 选项确实可能性不大，报告指出：“一位熟悉讨论的人士表示，这仅仅是在政府和银行之间的谈判中偶尔被提起，因为借贷方非常关切是否有可能采取这样的措施。”
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+同时，有关讨论也提醒华尔街就可能的制裁计划对投资策略的直接影响。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于北约联盟内部在如何应对乌克兰危机方面的分歧已经很深，这种情况也不太可能发生。
+
+而紧随周三在巴黎举行的相对积极的诺曼底式会谈之后，德国和法国已经非常明确地表明，他们希望不惜一切代价避免军事冲突。这导致了东欧国家——其中最重要的是拉脱维亚的谴责。 德国与莫斯科和北京的贸易和能源关系在欧洲导致了分裂。
+
+越来越多的乌克兰人自己似乎正在寻求降低紧张局势，并且正在迅速淡化有关在该国东部军事对抗的言论……
+
+[原文链接](https://www.zerohedge.com/markets/biden-team-briefs-wall-street-banks-looming-russia-sanctions-including-nuclear-option)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
