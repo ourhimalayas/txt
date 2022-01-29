@@ -2,33 +2,38 @@
 ---
 
 
-## 在中共的眼里草民就是一个符号
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1929230/)
+## 加拿大反对强制疫苗令的抗议活动继续升温
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929387/)
 
-撰稿：菜园子112～尕虎
+作者：银河系农场—骄子，加拿大温哥华扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月27日，据多家媒体消息显示，由加拿大卡车司机发起的反对当地中共病毒疫苗强制接种政策的抗议活动正在持续升温。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/012802.jpg)图片制作：澳喜农场©森森
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-10.jpeg)
 
-上高中的女儿由学校统一安排送回家，被家附近防疫卡点工作人员拦下。董女士主动提出愿意全家隔离仍不予放行，随后母女二人步行投奔亲属，但均遭卡点堵截，无奈只得再次返回，仍不得进，她和女儿在大雪中站了一整夜，直到次日早，才由学校派车将女儿接回。
+当天，一位“自由车队”中的卡车司机在接受采访时表示，加拿大已经从特鲁多承诺的阳光国家变成了一个黑暗的专制的地方。同时，政府目前所推行的疫苗护照包含了大量的个人信息，这将使当局更容易追踪并监控每一个公民的隐私数据。为此，这回的抗议活动不仅是为了让加拿大民众摆脱政府的强制疫苗令和疫苗护照政策，更是为了避免加拿大沦为一个充满着官僚主义、暴政与腐败的第三世界国家。
 
-我们想象一下那样的场景，大雪夜一对母女，其中准备回家的女儿有接种证明、核酸证明——她做了18次核酸检测——等各种证明，仍然回不了近在咫尺的家。大雪纷飞，应该还伴有寒风，她们就那样绝望地在雪中相拥，艰难地等待天明。
+与此同时，马斯克与小川普也在相关的新闻节目中对这些抗争的加拿大民众表示了极力的称赞。至于各国推行的中共病毒疫苗强制接种令，马斯克则认为，这是对公民自由的严重侵蚀。
 
-女儿依偎在母亲的怀里哭诉：妈妈，我冷！
+虽然加拿大总理特鲁多在26日的新闻发布会上对“自由车队”大肆贬低，甚至扬言他们只是少数边缘人士，不代表加拿大人，但据抗议现场拍摄的视频表明，越来越多的加拿大民众参与到了此次抗议活动中，他们自发地为卡车司机提供食物和物资支持。
 
-那是卡点还是鬼门关？
+参考链接：
+1)[Tucker Carlson Interviews Freedom Convoy Spokesman, Trucker Benjamin Dichter](https://theconservativetreehouse.com/blog/2022/01/27/tucker-carlson-interviews-freedom-convoy-spokesman-trucker-benjamin-dichter/)
+2)[‘Canadian truckers rule’ — Elon Musk joins Donald Trump Jr. cheering on vaccine protest barreling toward Trudeau](https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy)
 
-守卡点的，究竟是人还是鬼？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-穷尽所有词语都难以形容我心中的愤慨与不解：何以会荒诞至此？
+总编：文特，Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-此件事让我想到了那句评论国人的话：他们很爱国，但他们不爱人！
-
-在中共这个恶的制度下，人对人的概念就是冷淡无情，而草民在中共的眼里无非是一符号。
-
-注：文章部分观点来自墙内网友
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
