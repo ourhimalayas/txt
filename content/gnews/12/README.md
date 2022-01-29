@@ -2,50 +2,23 @@
 ---
 
 
-## 外交部：赖清德过境，循例与美国行政部门有所互动
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927455/)
+## 美台副元首首次在国际场合自然互动
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1927533/)
 
-作者：台湾宝岛农场—dobi
+**撰稿：日本东京方舟农场 海星**
 
+1月28日，美国副总统与台湾副总统在参加洪都拉斯总统就职典礼时短暂交谈，互相寒暄。这是每台副总统首次在国际场合上的自然互动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-505.jpg)（图片来源：总统府）
+据《自由时报》报导，在当天举行的洪都拉斯总统就职典礼上，台湾副总统赖清德被安排在元首特使区的第一排，美国副总统贺锦丽的座位就位于其左侧，两人进行了大约30秒左右的交谈。这是美台副总统第一次在国际场合自然互动，被视为外交突破。
 
+据该报记者了解，双方在交谈中谈到了两国在中美洲的共同利益，以及美国政府解決移民问题的“根本原因”战略。此外，赖清德就美国对台湾的帮助向贺锦丽表示感谢。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-45.jpg)
+参考链接：
+1.[https://news.ltn.com.tw/news/politics/breakingnews/3815810](https://news.ltn.com.tw/news/politics/breakingnews/3815810)
 
-
-
-
-
-据台媒1月27日报导，副总统赖清德代表参加友邦洪都拉斯新总统卡斯特罗（Xiomara Castro）的就职典礼，且于26日过境美国洛杉矶时，与美国跨党派参、众议员进行视频会议。至于后续是否会进一步会晤美国国务院官员，驻美代表萧美琴持保留，未直接响应的态度。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-75.png)
-台湾外交部欧江安认为，相信在台湾与美国在坚实友好的互信基础之上，台湾代表团应也会循例与美国行政部门有所互动。 此外，报导中也提及英国首相琼森（Boris Johnson）26日在国会下议院应询时，强调中共国大陆军机扰台行为无助台海关系稳定，同时也强调两岸应发展和平且具建设性对话的必要性。
-
-参考来源：
-
-[外交部：賴清德過境 循例與美國行政部門有所互動](https://udn.com/news/story/6656/6064618?from=udn-referralnews_ch2artbottom》)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
-
-
-
-
+素材采编：海星
+编辑：文顺
+发布：爱放飞
 
  
 

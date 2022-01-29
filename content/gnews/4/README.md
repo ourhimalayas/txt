@@ -2,24 +2,73 @@
 ---
 
 
-## 《共产党想将流毒输出到美国》(二)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927543/)
+## 多家媒体同时报道新中国联邦
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927666/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/《共产党想将流毒输出到美国》2.jpg)
-只要和共产党有关系的几乎没有他没在里头。就是王岐山今天能活着。高艳艳能活着，朱云来能活着。那朱云来跟 Ray Dalio有关系，那就是亲爹跟儿子的关系。这个美国佬是要出大事儿的啊，他一定会受到美国的审判。
-这哥们儿对中国人的伤害远远超过了一个国家对中国人的伤害。这就是拿钱干活。到现在他要在美国搞共享财富。你看，我在4年前说，大家觉得我放屁是吧？说他都活不几天了，怎么还能把这个共产主义搞得美国来。包括日本人，还有法国朋友。有次和我视频说，Miles，你说你干掉共产党，你就够有勇气的了，希望你这个梦啊一直做下去。另外—个他说，你干掉共产党我们相信。但是你说共产党要把共产主义搞到欧洲来搞到美国来，这个玩笑开太大了。他没有人相信。很不幸啊，这位法国人已经得病毒死了啊。这是一年前。希望他能上天堂不入地狱啊。日本这个朋友已经病毒，现在还在医院躺着呢。也很不幸，希望能活过来啊。我们不希望他们死，希望能看到共产党的灭亡。
+撰稿： 台湾宝岛农场 – dobi
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+1月28日，多达十家台湾媒体联合报道，新中国联邦创始人郭文贵先生，通过直播方式向世界率先透露，美国拜登政府已正式签署文件，授权撤离美国驻北京大使馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2409.png)
+新闻报道开篇转述郭先生直播内容，就在美国发布撤离公告后，接着，欧洲、日本乃至全世界也会跟着撤离。接下来，就是美国要对中共病毒进行溯源调查的时候了，届时中共若不配合就开战。
 
-2022年1月12日大直播
+文章最后引用郭文贵先生的盖特公告强调：新中国联邦第三份历史性文件中，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏，也希望美可进一步采取行动，否认中共是代表中国和中国人民的合法政府。并宣称COVID19是中共对无辜的中国人民和全人类的种族灭绝行为。
 
-发布： 星谕
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+新闻连接：
+
+[【讀者投書】郭文貴直播爆料 美國已決定撤離駐北京大使館](https://innews.com.tw/50139/)
+
+雅虎
+
+[雅虎： 郭文貴直播爆料 美國已決定撤離駐北京大使館](https://tw.news.yahoo.com/%E8%AE%80%E8%80%85%E6%8A%95%E6%9B%B8-%E9%83%AD%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%88%86%E6%96%99-%E7%BE%8E%E5%9C%8B%E5%B7%B2%E6%B1%BA%E5%AE%9A%E6%92%A4%E9%9B%A2%E9%A7%90%E5%8C%97%E4%BA%AC%E5%A4%A7%E4%BD%BF%E9%A4%A8-201736195.html)
+
+新浪
+
+[新浪：郭文貴直播爆料 美國已決定撤離駐北京大使館](https://news.sina.com.tw/article/20220128/41128530.html)
+
+hinet
+
+[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://times.hinet.net/mobile/news/23735188)
+
+卡提諾
+
+[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://ck101.com/thread-5375196-1-1.html)
+
+薯新聞
+
+[https://n.yam.com/Article/20220128651178](https://n.yam.com/Article/20220128651178)
+
+台北郵報
+
+[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://taipeipost.org/?s=%E8%AE%80%E8%80%85%E6%8A%95%E6%9B%B)
+
+LIFE
+
+[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://life.tw/?app=view&amp;no=1502577)
+
+match生活網
+
+[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://m.match.net.tw/pc/news/life/20220128/6354146)
+
+pchome
+
+[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://news.pchome.com.tw/living/innews/20220128/index-64334345625812284009.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
+
+总编/编辑：童谣
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+
 
  
 

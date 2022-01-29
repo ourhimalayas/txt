@@ -2,24 +2,22 @@
 ---
 
 
-## 英国一ICU医生就新冠疫苗强制令向政府发起司法审查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927213/)
+## 叙利亚摄像师谴责赵立坚滥用其照片歪曲事实
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927248/)
 
-#### 翻译/撰稿：黃金精神
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-47.jpg)图片来源：bbc
-1月27日据每日邮报（Daily Mail）报道，未接种疫苗的ICU医生就国民保健署（以下简称NHS）工作人员强制疫苗问题向卫生与社会服务大臣萨吉德·贾维德（Sajid Javid）提出挑战，并对政府发起司法审查，以结束疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-49.jpg)图片来源：推特
+据《布雷特巴特新闻网》（Breitbart News）1月28日报道，叙利亚摄像师阿里·哈吉·苏莱曼（Ali Haj Suleiman）1月27日在推特发文，谴责中共外交部发言人赵立坚将他为一篇反映叙利亚内战的文章而拍摄的照片谎称是展示阿富汗悲惨现状的照片，以作为美军入侵阿富汗并虐待阿富汗儿童的“证据”。
 
-在国王学院医院（King’s College Hospital）担任麻醉师的史蒂夫·詹姆斯医生（Steve James）宣布他正与其他七名医疗专业人员一起带头进行司法审查以结束NHS的新冠疫苗强制令。
+苏莱曼在推特上写道，赵立坚所发布的这些照片实际上是他在叙利亚西北部城市伊德利卜（Idlib）拍摄的，以让世人看到叙利亚政府和俄罗斯军队给当地孩子带去了什么灾难。
 
-英格兰政府要求所有与病人直接接触的NHS工作人员在4月1日前接种两剂新冠疫苗，否则有可能失去工作。英格兰所有一线NHS工作人员都必须在2月3日之前接种一剂新冠疫苗，以便在4月1日之前接种第二剂，但政府被警告说，这一期限可能会使卫生服务 “瘫痪”。
+赵立坚歪曲事实、抹黑造谣早已屡见不鲜。此前，他曾声称中共病毒是由美国马里兰州的一个生物武器实验室制造的，而且在2020年11月发推恶意诽谤澳大利亚军队杀害婴儿。但推特拒绝审查赵立坚的推文，尽管它明显违反了该平台的服务条款。
 
-由杰克逊·奥斯本（Jackson Osborne）律师事务所代表的詹姆斯医生与其他7名医疗专业人员一起向高等法院提交了一份文件，要求进行司法审查。这份32页的文件声称，如果不接种新冠疫苗，超过10万名未接种疫苗的工人将面临失业，并认为做出这一强制令的决定“本身是不合法的、不合理的、不相称的”。
+以赵立坚为代表的中共官员在国内甚至国际舞台上混淆是非、胡编乱造已是家常便饭。特别是在中共病毒的起源一事上，世人逐渐看清了中共的假、黑、骗等邪恶本质。中共的种种恶行让无辜的中国人甚至亚洲人和亚裔受到了牵连，因此向世人揭露中共的暴行以及中共不等于中国人十分重要。
 
-詹姆斯医生在GB新闻（GB News）节目中对奈杰尔·法拉奇（Nigel Farage）说，他准备为疫苗强制令（作抗争）放弃自己的事业，因为他想 “坚持 “自己的价值观，而不是被 “告知该做什么”。他说他没有受到来自管理层（强制疫苗）的压力，他自己的管理层对此（要求）很松，他们理解这种情况。他补充说：“但我也知道如果有压力，该如何应对。”詹姆斯医生之前坚称他不是一个反疫苗主义者，他声称没有 “足够的科学论据”来强制要求NHS的一线医务人员接种新冠疫苗。此外，他说，通过司法审查，他们计划争辩说“政府为实施强制令而制定的法律是不合理的，是不理性的，在基于科学的情况下是不适合当前情况的”。
-
-新闻来源：[Unjabbed ICU doctor who confronted Sajid Javid over compulsory jabs for NHS staff launches legal action against government’s vaccine mandate and insists he is prepared to lose his career to ‘stick with my values’](https://www.dailymail.co.uk/news/article-10449325/Unjabbed-doctor-confronted-Sajid-Javid-jabs-NHS-staff-launches-action-against-mandate.html)
+新闻来源：[Photographer Accuses China of Using His Photos from Syria to Smear U.S. Role in Afghanistan](https://www.breitbart.com/national-security/2022/01/28/photographer-accuses-china-using-his-photos-syria-smear-u-s-role-afghanistan/)
 
  
 

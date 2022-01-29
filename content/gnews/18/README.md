@@ -2,22 +2,50 @@
 ---
 
 
-## 叙利亚摄像师谴责赵立坚滥用其照片歪曲事实
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927248/)
+## 外交部：赖清德过境，循例与美国行政部门有所互动
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927455/)
 
-#### 翻译/撰稿：zzballack
+作者：台湾宝岛农场—dobi
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-49.jpg)图片来源：推特
-据《布雷特巴特新闻网》（Breitbart News）1月28日报道，叙利亚摄像师阿里·哈吉·苏莱曼（Ali Haj Suleiman）1月27日在推特发文，谴责中共外交部发言人赵立坚将他为一篇反映叙利亚内战的文章而拍摄的照片谎称是展示阿富汗悲惨现状的照片，以作为美军入侵阿富汗并虐待阿富汗儿童的“证据”。
 
-苏莱曼在推特上写道，赵立坚所发布的这些照片实际上是他在叙利亚西北部城市伊德利卜（Idlib）拍摄的，以让世人看到叙利亚政府和俄罗斯军队给当地孩子带去了什么灾难。
 
-赵立坚歪曲事实、抹黑造谣早已屡见不鲜。此前，他曾声称中共病毒是由美国马里兰州的一个生物武器实验室制造的，而且在2020年11月发推恶意诽谤澳大利亚军队杀害婴儿。但推特拒绝审查赵立坚的推文，尽管它明显违反了该平台的服务条款。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-45.jpg)
 
-以赵立坚为代表的中共官员在国内甚至国际舞台上混淆是非、胡编乱造已是家常便饭。特别是在中共病毒的起源一事上，世人逐渐看清了中共的假、黑、骗等邪恶本质。中共的种种恶行让无辜的中国人甚至亚洲人和亚裔受到了牵连，因此向世人揭露中共的暴行以及中共不等于中国人十分重要。
 
-新闻来源：[Photographer Accuses China of Using His Photos from Syria to Smear U.S. Role in Afghanistan](https://www.breitbart.com/national-security/2022/01/28/photographer-accuses-china-using-his-photos-syria-smear-u-s-role-afghanistan/)
+
+
+
+据台媒1月27日报导，副总统赖清德代表参加友邦洪都拉斯新总统卡斯特罗（Xiomara Castro）的就职典礼，且于26日过境美国洛杉矶时，与美国跨党派参、众议员进行视频会议。至于后续是否会进一步会晤美国国务院官员，驻美代表萧美琴持保留，未直接响应的态度。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-75.png)
+台湾外交部欧江安认为，相信在台湾与美国在坚实友好的互信基础之上，台湾代表团应也会循例与美国行政部门有所互动。 此外，报导中也提及英国首相琼森（Boris Johnson）26日在国会下议院应询时，强调中共国大陆军机扰台行为无助台海关系稳定，同时也强调两岸应发展和平且具建设性对话的必要性。
+
+参考来源：
+
+[外交部：賴清德過境 循例與美國行政部門有所互動](https://udn.com/news/story/6656/6064618?from=udn-referralnews_ch2artbottom》)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+
+
+
+
 
  
 
