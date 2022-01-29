@@ -2,10 +2,10 @@
 ---
 
 
-## 美国最高法院大法官斯蒂芬.布雷耶宣布将退休
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928847/)
+## 赵立坚希望美国能慎重考虑撤大使馆问题
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928934/)
 
-作者: 纽约香草山 金融部 – AT
+作者: 纽约香草山—Ivy001
 
 
 
@@ -13,13 +13,17 @@
 
 
 
-美国最高法院大法官斯蒂芬.布雷耶宣布将退休 ，1月26日，美国NBC新闻报道消息人士信息，美国最高法院大法官斯蒂芬.布雷耶将在本任期结束时退休 。 布雷耶于1994年5月17日由比尔·克林顿总统提名，自1994年8月3日起担任大法官，已经任职近28年。 他是最高法院的三位自由派大法官之一，也是最高法院最年长的现任大法官，现年83岁。 美国宪法规定，最高法院法官由总统提名，经美国参议院多数表决同意后任命。除首席大法官外，人数为8人，属终身制。 对于布雷耶的辞职，外界猜测，他的退休决定，将使拜登总统能够认命一位可以任职几十年的继任者，以尽可能维持目前保守派和自由派大法官之间 6-3 的比例。
+当地时间1月26日，中共外交部记者会上有记者问，“对于美国政府授权撤离美国驻北京大使馆，中共政府有何看法？” 中共外交部发言人赵立坚避重就轻的回答，指在控制疫情方面，中共国是世界上最安全的国家，从中共国撤出，只会极大增加美方人员感染的风险。最后，赵立坚还语带希望的挽留美方，“中方已就此向美方表示严重关切和不满。希望美方认真对待中方立场和关切，慎重考虑所谓外交领事人员“授权撤离”问题。” 网友评论：按照国际惯例，中共应该考虑撤离中共驻华盛顿的大使馆，而不是恳请美方“慎重考虑”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-5.jpg)图片来源网络
+同日，文贵先生发盖特指出，美国这次授权撤离与中共病毒疫情没有一点关系。相关撤离事宜已经进行将近两个月了，美国大使馆的相关重要文件及设备已全都撤出。而且，除非在中国已没有共产党了，否则美国大使馆将不打算返回中国。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-6-1.jpg)图片来源网络
 
 **相关链接:**
 
-[Supreme Court Justice Stephen Breyer to Retire](https://www.nbclosangeles.com/news/national-international/supreme-court-justice-stephen-breyer-to-retire/2807527/)
+[https://gettr.com/post/pqo95v8197](https://gettr.com/post/pqo95v8197)
+
+[https://gettr.com/post/pqo5pu3741](https://gettr.com/post/pqo5pu3741)
 
 ![This image has an empty alt attribute; its file name is Jan-17.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
 

@@ -2,48 +2,28 @@
 ---
 
 
-## 奥地利将结束封锁未接种者 下周起强制接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1928533/)
+## 美高级官员将访问立陶宛 对抗中共经济胁迫
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1928571/)
 
-编译： Mandel
+**撰稿：日本东京方舟农场  老孙**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-34.png)图片来源：[www.euronews.com](https://www.euronews.com/2021/12/10/austria-anti-vaxxers-will-be-hit-with-3-600-fine-for-refusing-covid-19-jab)
+据美国之声1月29日报道，美国国务院发表声明，副国务卿费尔南德斯（Jose Fernandez）将于1月30日出发，访问立陶宛首都维尔纽斯及比利时布鲁塞尔，表达美国对立陶宛的坚定支持，并与欧盟官员讨论双边经济合作，以对抗来自中共政府的政治压力和经济胁迫。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-525.jpg)（图片取自美国之声）
+声明指出，双方将讨论落实一项总额6亿美元的谅解备忘录，拓展美国出口商和立陶宛买家在高科技制造业、商业服务、再生能源等方面的合作机会，并与欧盟贸易和技术委员会，讨论跨大西洋贸易和投资，以阻止中国在全球范围内不断提升的影响力。
 
-奥地利周三宣布结束对未接种疫苗者的封锁，因为它准备从下周起成为第一个强制接种新冠疫苗的欧盟国家。
+声明中还表示，中共经济胁迫的行为已违反国际经贸协定，不应被准许，台湾将与立陶宛及欧盟等其他理念相近伙伴合作，防止中共采取经济及外交胁迫措施，维护以规则为基础的国际贸易体系。
 
-去年11月，奥地利政府下令那些没有接种疫苗或最近从中共病毒中恢复过来的人呆在家里，只有有限的例外，比如去上班，因为该国正在与激增的感染人数作斗争。
+台湾驻立陶宛代表处于2021年11月18日在首都维尔纽斯挂牌成立。中共政府以代表处名称使用“台湾”、“损害国家主权和领土完整”为由，持续对立陶宛外交及经贸强力施压，甚至要求欧洲企业将立陶宛排除供应链。
 
-但由于重症监护室没有达到饱和状态，奥地利总理卡尔·内哈默 (Karl Nehammer) 说，要求呆在家里的规定将从下周一开始取消。
+台湾行政院经贸谈判办公室星期五晚间也发表声明说，全力支持欧盟和立陶宛反对中共经济胁迫的不当行径。
 
-然而，未接种疫苗的人仍将面临限制。餐馆、旅店、文化和体育场馆都要求客人接种疫苗或者是最近康复了的。
+参考链接：
+1.[https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html](https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html)
+2.[https://www.cna.com.tw/news/aopl/202201290012.aspx](https://www.cna.com.tw/news/aopl/202201290012.aspx)
 
-“我们的首要任务是尽可能地减少限制，而且只在绝对必要的情况下才进行限制。”内哈默告诉记者。
-
-他说：“对未接种疫苗者的封锁是可以采取的最严格措施之一。目前医院里的情况允许我们结束对未接种疫苗者的封锁。”
-
-周三，奥地利每天激增的新感染病例创下了新纪录。这个拥有近900万人口的国家已经出现了160多万个病例和1.4万人死亡。
-
-上周四，尽管出现了抗议浪潮，但议会还是批准从2月4日起对成年人强制接种新冠疫苗。
-
-到目前为止，72%的奥地利居民已经完全接种了新冠疫苗。
-
-根据新的法律，在起始的“初步阶段”之后，从3月中旬开始，那些坚持反对注射疫苗的人可能面临高达3600欧元（4100美元）的罚款。
-
-尽管厄瓜多尔、印度尼西亚、密克罗尼西亚、塔吉克斯坦和土库曼斯坦已经引入了此类计划，但强制接种新冠疫苗在全世界都很罕见。
-
-由news18于2022年1月26日报道。
-
-**参考资料：**[news18][Austria to End Lockdown for Covid Unvaccinated, Jabs Mandatory from Next Week](https://www.news18.com/news/india/austria-to-end-lockdown-for-covid-unvaccinated-jabs-mandatory-from-next-week-4701344.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
-
-
+素材采编：老孙
+编辑：文顺
+发布：爱放飞
 
  
 
