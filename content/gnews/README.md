@@ -15,137 +15,137 @@
 
 ---
 
-### [马克龙与普京就乌克兰局势通电话](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2021年12月15日 郭先生视频部分内容整理](/content/gnews/1/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [CCP在新疆虚假的共享财富(二)](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [CCP在新疆虚假的共享财富(一)](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [多家媒体同时报道新中国联邦](/content/gnews/4/README.md)
+### [美国海军遣散无苗水兵](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：瑞典决定撤销对5-11岁儿童注射中共病毒疫苗](/content/gnews/5/README.md)
+### [1.27大直播后记：七哥谈战友救人](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [泽连科医生证实中共病毒与解药被同时制造](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [爆料革命——历史的今天12月15日](/content/gnews/5/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [马克龙与普京就乌克兰局势通电话](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [CCP在新疆虚假的共享财富(二)](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [CCP在新疆虚假的共享财富(一)](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [多家媒体同时报道新中国联邦](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [共产党迷信](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线：瑞典决定撤销对5-11岁儿童注射中共病毒疫苗](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《共产党想将流毒输出到美国》(四)](/content/gnews/6/README.md)
+### [《共产党想将流毒输出到美国》(四)](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [《共产党想将流毒输出到美国》(三)](/content/gnews/7/README.md)
+### [《共产党想将流毒输出到美国》(三)](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [澳洲卫生部长表示，可能将新冠疫苗与流感疫苗合并](/content/gnews/8/README.md)
+### [澳洲卫生部长表示，可能将新冠疫苗与流感疫苗合并](/content/gnews/14/README.md)
  ` 走进澳洲`
 
-### [1.27大直播后记:千万别拿自己当根葱](/content/gnews/9/README.md)
+### [1.27大直播后记:千万别拿自己当根葱](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [《共产党想将流毒输出到美国》(二)](/content/gnews/10/README.md)
+### [《共产党想将流毒输出到美国》(二)](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [中共国凑数自嗨冬奥史上最大代表团](/content/gnews/11/README.md)
+### [中共国凑数自嗨冬奥史上最大代表团](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美台副元首首次在国际场合自然互动](/content/gnews/12/README.md)
+### [美台副元首首次在国际场合自然互动](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [国际金融机构欲查封中共高官海外资产](/content/gnews/13/README.md)
+### [国际金融机构欲查封中共高官海外资产](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [《共产党想将流毒输出到美国》(一)](/content/gnews/14/README.md)
+### [《共产党想将流毒输出到美国》(一)](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [美国和欧盟就能源安全问题发表联合声明](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秦刚就新疆种族灭绝问题的狡辩真是无耻至极](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [全球排华](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [外交部：赖清德过境，循例与美国行政部门有所互动](/content/gnews/18/README.md)
+### [中共暗地里要求返乡民众必须做核酸检测](/content/gnews/21/README.md)
  ` GTV News Talk`
 
-### [中共暗地里要求返乡民众必须做核酸检测](/content/gnews/19/README.md)
- ` GTV News Talk`
-
-### [中共在加拿大华人社区存在广泛的间谍和操纵活动](/content/gnews/20/README.md)
+### [中共在加拿大华人社区存在广泛的间谍和操纵活动](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [叙利亚摄像师谴责赵立坚滥用其照片歪曲事实](/content/gnews/21/README.md)
+### [叙利亚摄像师谴责赵立坚滥用其照片歪曲事实](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆|中共病毒疫情已给德国经济造成3500亿欧元损失](/content/gnews/22/README.md)
+### [中日财经爆|中共病毒疫情已给德国经济造成3500亿欧元损失](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国防部长称，俄罗斯军队有能力占领多个城市和大片领土](/content/gnews/23/README.md)
+### [美国防部长称，俄罗斯军队有能力占领多个城市和大片领土](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国一ICU医生就新冠疫苗强制令向政府发起司法审查](/content/gnews/24/README.md)
+### [英国一ICU医生就新冠疫苗强制令向政府发起司法审查](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆|美联储宣布调整利息政策 全球股市面临考验](/content/gnews/25/README.md)
+### [中日财经爆|美联储宣布调整利息政策 全球股市面临考验](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [这张春晚节目单信息量真大](/content/gnews/26/README.md)
+### [这张春晚节目单信息量真大](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [秘翻在线：战狼狂吠的代价是中美两国人民](/content/gnews/27/README.md)
+### [秘翻在线：战狼狂吠的代价是中美两国人民](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [币圈新闻动态：喜交所网站春节前更新升级](/content/gnews/28/README.md)
+### [币圈新闻动态：喜交所网站春节前更新升级](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美台副总统在洪都拉斯进行了罕见会晤和短暂交谈](/content/gnews/29/README.md)
- ` 首尔天池农场`
-
-### [加拿大政府指控中共从事间谍活动并“操纵”海外华人社区](/content/gnews/30/README.md)
+### [加拿大政府指控中共从事间谍活动并“操纵”海外华人社区](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [WTO批准中共向美国征收奥巴马时期的补偿性关税](/content/gnews/31/README.md)
+### [WTO批准中共向美国征收奥巴马时期的补偿性关税](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [每日快报:谁会来参加北京奥运会？](/content/gnews/32/README.md)
+### [每日快报:谁会来参加北京奥运会？](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|中共专家预警大爆发， 墙内中共病毒已然失控](/content/gnews/33/README.md)
+### [有声|中共专家预警大爆发， 墙内中共病毒已然失控](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [有声|德国忧北京恐利用中共病毒筛检阻挡顶尖选手参赛](/content/gnews/34/README.md)
+### [有声|德国忧北京恐利用中共病毒筛检阻挡顶尖选手参赛](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [有声|青蒿素与越南战争中共秘密《五二三工程》](/content/gnews/35/README.md)
+### [有声|青蒿素与越南战争中共秘密《五二三工程》](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|台湾着手调度蓬佩奥先生访台事宜](/content/gnews/36/README.md)
+### [有声|台湾着手调度蓬佩奥先生访台事宜](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [有声|研究表明：伊维菌素能有效预防、治疗中共病毒](/content/gnews/37/README.md)
+### [有声|研究表明：伊维菌素能有效预防、治疗中共病毒](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [有声|德国制药、科技企业遭中共黑客锁定](/content/gnews/38/README.md)
+### [有声|德国制药、科技企业遭中共黑客锁定](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [澳洲政府正在为定义三针接种为完全接种者做铺垫](/content/gnews/39/README.md)
+### [澳洲政府正在为定义三针接种为完全接种者做铺垫](/content/gnews/40/README.md)
  ` 澳喜特战旅Gnews`
 
-### [研究证实二针男性青少年心肌心包炎风险最高](/content/gnews/40/README.md)
+### [研究证实二针男性青少年心肌心包炎风险最高](/content/gnews/41/README.md)
  ` GTV News Talk`
 
-### [习主席别承诺了 多少人跪了 多少人死了 富了谁](/content/gnews/41/README.md)
+### [习主席别承诺了 多少人跪了 多少人死了 富了谁](/content/gnews/42/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC大中华时事：中共称他们就是要来北京支持冬奥会](/content/gnews/42/README.md)
+### [DC大中华时事：中共称他们就是要来北京支持冬奥会](/content/gnews/43/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大政府报告：中共国实施广泛的间谍和操纵活动](/content/gnews/43/README.md)
+### [加拿大政府报告：中共国实施广泛的间谍和操纵活动](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
-
-### [中共国原中央巡视组副组长董宏一审被判死缓](/content/gnews/44/README.md)
- ` 首尔天池农场`
 
 ### [瑞典反对为5至11岁的儿童注射新冠疫苗](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`

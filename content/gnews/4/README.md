@@ -2,62 +2,26 @@
 ---
 
 
-## 多家媒体同时报道新中国联邦
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927666/)
+## 泽连科医生证实中共病毒与解药被同时制造
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927703/)
 
-撰稿： 台湾宝岛农场 – dobi
+撰稿：纽约磐石农场 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-1月28日，多达十家台湾媒体联合报道，新中国联邦创始人郭文贵先生，通过直播方式向世界率先透露，美国拜登政府已正式签署文件，授权撤离美国驻北京大使馆。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2409.png)
-新闻报道开篇转述郭先生直播内容，就在美国发布撤离公告后，接着，欧洲、日本乃至全世界也会跟着撤离。接下来，就是美国要对中共病毒进行溯源调查的时候了，届时中共若不配合就开战。
+根据文贵先生盖特视频，1月22日，泽连科医生接受采访时表示，20年来中共病毒被精心构造，是大规模破坏性武器。追溯到1998年，受到NIH及NIAID资助的巴里克，先后申请了病毒跨物种转移的技术专利，冠状病毒破坏人类肺组织专利，以及2015年巴里克与武毒所石正丽联名发表了研究蝙蝠冠状病毒感染人类的论文。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2410.png)
+2020年3月，泽连科推出中共病毒治疗方案，使感染者的住院率和死亡率降低了85%。而该方案正是基于巴里克2010年所写的一篇讨论锌离子载体的论文。这意味着制造病毒的人，同时制造了解药。
 
-文章最后引用郭文贵先生的盖特公告强调：新中国联邦第三份历史性文件中，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏，也希望美可进一步采取行动，否认中共是代表中国和中国人民的合法政府。并宣称COVID19是中共对无辜的中国人民和全人类的种族灭绝行为。
+泽连科进一步揭露，世界经济论坛和联合国发布的2030计划称，因人口爆炸，美国的医疗保险和社会保险体系将会于2026年开始崩溃。其它国家也存在相同的问题。因此，削减人口数量，成为当务之急。现在各国政府强制接种中共病毒疫苗，已经造成了不可估量的人身伤亡。疫苗护照就是史瓦布所说的用来控制并奴役民众的数字标识。泽连科医生表示，他是揭露人类历史上最严重犯罪的清醒者之一。
 
 
 
-新闻连接：
+新闻链接：[https://www.gettr.com/post/pqp79t8d1f](https://www.gettr.com/post/pqp79t8d1f)
 
-[【讀者投書】郭文貴直播爆料 美國已決定撤離駐北京大使館](https://innews.com.tw/50139/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-5.png)
 
-雅虎
+总编：雪梨
 
-[雅虎： 郭文貴直播爆料 美國已決定撤離駐北京大使館](https://tw.news.yahoo.com/%E8%AE%80%E8%80%85%E6%8A%95%E6%9B%B8-%E9%83%AD%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%88%86%E6%96%99-%E7%BE%8E%E5%9C%8B%E5%B7%B2%E6%B1%BA%E5%AE%9A%E6%92%A4%E9%9B%A2%E9%A7%90%E5%8C%97%E4%BA%AC%E5%A4%A7%E4%BD%BF%E9%A4%A8-201736195.html)
-
-新浪
-
-[新浪：郭文貴直播爆料 美國已決定撤離駐北京大使館](https://news.sina.com.tw/article/20220128/41128530.html)
-
-hinet
-
-[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://times.hinet.net/mobile/news/23735188)
-
-卡提諾
-
-[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://ck101.com/thread-5375196-1-1.html)
-
-薯新聞
-
-[https://n.yam.com/Article/20220128651178](https://n.yam.com/Article/20220128651178)
-
-台北郵報
-
-[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://taipeipost.org/?s=%E8%AE%80%E8%80%85%E6%8A%95%E6%9B%B)
-
-LIFE
-
-[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://life.tw/?app=view&amp;no=1502577)
-
-match生活網
-
-[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://m.match.net.tw/pc/news/life/20220128/6354146)
-
-pchome
-
-[郭文貴直播爆料 美國已決定撤離駐北京大使館](https://news.pchome.com.tw/living/innews/20220128/index-64334345625812284009.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
-
-总编/编辑：童谣
+编辑：宁文静
 
 校正/发稿：浪迹天涯
 
@@ -68,8 +32,6 @@ pchome
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
