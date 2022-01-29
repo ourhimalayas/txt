@@ -2,38 +2,34 @@
 ---
 
 
-## 加拿大反对强制疫苗令的抗议活动继续升温
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929387/)
+## 中日财经爆┃紫光集团存储业务出现重大变故
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929395/)
 
-作者：银河系农场—骄子，加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月27日，据多家媒体消息显示，由加拿大卡车司机发起的反对当地中共病毒疫苗强制接种政策的抗议活动正在持续升温。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-37.png)
+[图片来源](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60250610/%E4%B8%AD%E5%9B%BD%E6%9C%80%E5%A4%A7%E5%8D%8A%E5%AF%BC%E4%BD%93%E7%B4%AB%E5%85%89%E9%9B%86%E5%9B%A2%E8%A2%AB%E7%94%B3%E8%AF%B7%E7%A0%B4%E4%BA%A7%E6%9B%BE%E6%89%AC%E8%A8%80%E6%94%B6%E8%B4%AD%E5%8F%B0%E7%A7%AF%E7%94%B5%E5%90%88%E5%B9%B6%E8%81%94%E5%8F%91%E7%A7%91)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-10.jpeg)
+据日经1月26日报道，紫光集团将放弃在重庆和成都的存储厂建厂计划，同时前日本尔必达社长、紫光集团高级副总裁兼日本分公司CEO坂本幸雄也已离职。
 
-当天，一位“自由车队”中的卡车司机在接受采访时表示，加拿大已经从特鲁多承诺的阳光国家变成了一个黑暗的专制的地方。同时，政府目前所推行的疫苗护照包含了大量的个人信息，这将使当局更容易追踪并监控每一个公民的隐私数据。为此，这回的抗议活动不仅是为了让加拿大民众摆脱政府的强制疫苗令和疫苗护照政策，更是为了避免加拿大沦为一个充满着官僚主义、暴政与腐败的第三世界国家。
+报道称，紫光集团终止的两个项目之一是位于重庆的DRAM业务。此前，紫光集团曾希望坂本幸雄执掌DRAM业务，通过其经验和人脉在日本组建一个100多人的团队，然后在重庆量产先进的DRAM产品。
 
-与此同时，马斯克与小川普也在相关的新闻节目中对这些抗争的加拿大民众表示了极力的称赞。至于各国推行的中共病毒疫苗强制接种令，马斯克则认为，这是对公民自由的严重侵蚀。
+但知情人士称，招聘工作未能按预期顺利进行，加上紫光集团遭遇财务危机，以及美国阻挠之下获取先进的半导体设备面临重重难关，坂本在去年下半年就已离开紫光集团。这一消息已被坂本的发言人证实。
 
-虽然加拿大总理特鲁多在26日的新闻发布会上对“自由车队”大肆贬低，甚至扬言他们只是少数边缘人士，不代表加拿大人，但据抗议现场拍摄的视频表明，越来越多的加拿大民众参与到了此次抗议活动中，他们自发地为卡车司机提供食物和物资支持。
+此外，报道援引一份政府文件和知情人士的话称，紫光集团终止的第二个存储芯片项目位于四川成都。该公司原本计划投资240亿美元在成都建设一座3D NAND闪存芯片工厂。消息人士称，紫光集团曾希望成都项目能复制武汉长江存储的成功。
 
-参考链接：
-1)[Tucker Carlson Interviews Freedom Convoy Spokesman, Trucker Benjamin Dichter](https://theconservativetreehouse.com/blog/2022/01/27/tucker-carlson-interviews-freedom-convoy-spokesman-trucker-benjamin-dichter/)
-2)[‘Canadian truckers rule’ — Elon Musk joins Donald Trump Jr. cheering on vaccine protest barreling toward Trudeau](https://financialpost.com/transportation/autos/elon-musk-lauds-canada-truckers-vaccine-protest-convoy)
+不过，2020年底，由于紫光集团出现债务违约，重庆和成都的存储芯片项目已经严重推迟。2021年7月，由于未能解决债务危机，紫光集团被债权人申请破产重组。2021年底，智路资产和建广资产组成的联合体成为紫光集团的战略投资者，负责解决紫光集团高达千亿的巨额负债。这一战略重组计划日前已被法院批准。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+报道称，智路建广联合体所持紫光集团股份的具体情况尚不清楚。
 
-总编：文特，Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[日经：紫光集团撤销重庆、成都存储厂计划，阪本幸雄已离职\_人士](https://www.sohu.com/a/519417706_166680)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

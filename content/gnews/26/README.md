@@ -2,46 +2,36 @@
 ---
 
 
-## 加政府未阻止中企9亿加元收购其锂矿企业
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1929424/)
+## 加拿大自由卡车车队最新消息：特鲁多称自由车队为‘少数边缘人’，边境已经开始利用疫苗护照追踪卡车司机
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1929470/)
 
-作者：加拿大温哥华扬帆农场 Spirit
+#### 加拿大温哥华扬帆农场 视频组
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+素材：文倩
+翻译：Kent
+字幕：杰尼龟
 
+加拿大刚刚对卡车司机实施了强制疫苗政策，除此之外还有许多其它疯狂的新冠限制，终于司机们受够了，数千名卡车司机本周末在温哥华集会抗议，他们组成了一个自由车队，目的地是加拿大首都渥太华，车队有40多英里长，他们已经筹集了超过600万美元（目前已达740万）的捐款。政府正在尝试镇压并阻止这一切，加拿大总理贾斯汀-特鲁多说他因暴露于新冠风险需要隔离五天，这意味着当车队到达首都时，他不会与这些真正的选民们见面，特鲁多还告诉他的国家，卡车司机只是一个边缘群体。
 
-根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
+正在前往渥太华的少数边缘人，或持有不被接受的观点的人们，他们所表达的意见并不代表加拿大人的观点。
 
-在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
+哦，所以他们不是真正的加拿大人…可能他们还是种族主义者，我相信特鲁多会这么说，本杰明-维克多是自由车队的发言人，他明天就会加入车队，但现在我们请到了他，维克多先生，非常感谢你今晚来这里，你们为什么要这样做？这个车队的意义何在？
 
-反对党保守党表示，自由党政府本应阻止紫金矿业(601899.SS)去年以9.187亿加元(7.213亿美元)收购Neo Lithium(NLC.V) 。加拿大在与美国加紧关键矿物的区域的合作，以对抗中共主导地位，允许这宗收购的决定不合理。
+很简单，我们看到加拿大从一个特鲁多所承诺的阳光大道走进了黑暗的专制压迫和集权控制，我们要两件事，我们要摆脱强制疫苗政策，以及疫苗护照，护照真的是一个令人担忧的问题，昨天是我第一次带着疫苗护照开卡车穿越边境，我把手机和二维码举到边防人员面前，你知道他对我说什么吗？他说：哦不需要。我说：不需要是什么意思？他说：你的卡车或手机资料已经在我的电脑上显示了，车或手机与疫苗护照相关联。
+![COVID-19: Only Vaccinated Can Cross Land Border From Canada To US - Canada  Immigration and Visa Information. Canadian Immigration Services and Free  Online Evaluation.](https://www.immigration.ca/wp-content/uploads/2021/05/427525350-scaled.jpeg)immigration
+你敢信吗？ 他们在每个人到达边境之前就知道谁要来，并且正在追踪司机，可能这有点离谱，但无法阻挡的这种追踪会被应用到全加拿大，而不仅仅是美加边境，美国人也会被要求使用它，你可以为此’感谢’我们，因为根据我们的消息来源，在媒体内部，以及在政府内部，我们有一些密切的联系。特鲁多政府…拜登政府对它没有兴趣，但特鲁多政府游说并要求拜登政府引进它，我们不知道为什么，也不知道交易的具体条款，他们是否会在美加两国之间来回追踪手机和交易情报？我们不知道，但这就是我们要阻止的，这是我们的底线，因此这必须是终点。
 
-Neo Lithium的矿产储备是由碳酸锂组成，用于电动汽车电池生产。去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+有几件事，第一，你以开卡车为生，在你的国家有数千名有资格的相关专家，他们被支付来研究这些问题，为什么是你把这些显著的线索联系起来？上帝保佑你，其次你认为你和卡车司机们能阻止这一切吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-420.jpeg)图片来源：路透社
+我们经常看到……我们讨论到阿尔伯塔省，作为加拿大的能源大省，我在新冠之前就在阿尔伯塔和萨斯喀彻温省，我长时间的在拉丁美洲旅行，那里看起来像一个第三世界国家，这令人难以置信，让我感到害怕，而那是在新冠之前，现在这些人的产业被毁了，他们的生活被毁了，新冠出现了，现在官僚机构对待他们就像虫子。
 
-参考链接[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
+没错就像昆虫，哇，本杰明-维克多，我希望你能再上节目，你很勇敢并且你把问题解释得很清楚，这真的很鼓舞人心，非常感谢你。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-421.jpeg)
+你是我们所有人的英雄， 请不要感谢我，感谢所有在路上为我们的自由而战的卡车司机。
 
-编辑/校对/发稿：文敬
+阿门，谢谢你。
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
+编辑/发文：Kent
 
  
 

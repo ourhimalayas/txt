@@ -2,25 +2,46 @@
 ---
 
 
-## 微信把数字集权延伸到他国
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1929411/)
+## 加政府未阻止中企9亿加元收购其锂矿企业
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1929424/)
 
-澳洲大选在即，总理莫里森的官方微信公众号遭到身分不明人士控制。该公众号在1月被重新命名为“澳华新生活”，宣传澳洲华人的生活，该账户注册与福建省的一家科技公司有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/download-7-2.jpg)
-澳洲两大主要政党自2019年以来一，直使用中共国科技巨头腾讯0700.HK旗下的社交媒体平台微信，在激烈的选区与澳洲华裔选民沟通。
+作者：加拿大温哥华扬帆农场 Spirit
 
-腾讯没有立即回应该事件。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-澳洲议会情报和安全联合委员会主席詹姆斯-帕特森(James Paterson)告诉媒体，这是“审查制度 ”和“外国干涉”的一个典型例子。
 
-微信把数字的集权延伸到其他国家。微信和推特何以如此相像？一个封掉美国总统的账号，一个封掉澳大利亚总理的账号。中共的独裁方式被完美复制到西方。
+根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
 
-一个西方民主国家的总理要靠微信公众号来扩大影响力，可见华人群体对澳大利亚的影响之深。莫里森愿意使用微信，实际是叩头了中共国。微信和抖音在西方国家的延伸都是在帮中共收集情报，影响舆论。澳洲政客都有微信公众号。据不完全统计，澳大利亚华人群体有超过一百五十万人口，占了澳洲总人口百分之五十以上，已经成为澳大利亚第一大的非英语群体。哪个政党能获胜，哪个人能做总理，华人的选票起很关键的决定。中共可以赤裸裸的通过它的国家媒体平台，干涉他国的政治选举，直接或间接地影响各国政治。
+在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
 
-中共集权不消灭，没有一个国家是安全的。只有脱钩把中共灭了，让微信滚出澳洲才有安全的可能。
+反对党保守党表示，自由党政府本应阻止紫金矿业(601899.SS)去年以9.187亿加元(7.213亿美元)收购Neo Lithium(NLC.V) 。加拿大在与美国加紧关键矿物的区域的合作，以对抗中共主导地位，允许这宗收购的决定不合理。
 
-文案编辑：文勇
-校对整理：面包树、文峰
+Neo Lithium的矿产储备是由碳酸锂组成，用于电动汽车电池生产。去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-420.jpeg)图片来源：路透社
+
+参考链接[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-421.jpeg)
+
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
 
  
 
