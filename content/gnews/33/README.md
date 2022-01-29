@@ -2,31 +2,34 @@
 ---
 
 
-## 因接触了中共病毒阳性患者，新西兰总理和总督开始自我隔离
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1929396/)
+## 脸书的加密货币业务或将失败
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929421/)
 
-撰稿：彩虹
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月27日，据当地媒体报道，脸书在发现其加密货币项目可能不会成功后，目前正在出售该公司的加密货币业务。
 
-责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2438.png)图片来源：彭博社
-1月29日，《国会山报》报道，周六，新西兰总理杰辛达·阿德恩（Jacinda Ardern）宣布，在她接触到一个中共病毒（COVID-19）检测呈阳性的人之后，现在正在进行自我隔离。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide10-4.jpeg)
 
-据《美联社》的报道，阿德恩和新西兰总督辛迪·基罗（Cindy Kiro）在1月22日从凯里市（Kerikeri）飞往奥克兰的航班上接触到了这种病毒。
+消息显示，脸书最初试图将这一数字货币项目打造成一个便捷支付业务，其当时还与PayPal、Visa和Stripe等公司具有合作关系。然而，美联储的官员早先对该业务平台是否能为用户提供安全和隐私服务的能力表示怀疑。该官员指出，脸书业务平台的使用者甚至包含了洗钱者和恐怖主义资助者。
 
-该新闻机构指出，基罗也已经开始自我隔离。
+据悉，脸书已经计划以约两亿美元的价格将数字货币项目出售给加利福尼亚州的一家与比特币和区块链公司合作的小银行。
 
-阿德恩的办公室在给美联社的一份声明中说：“总理没有症状，感觉很好。根据卫生部的建议，她明天将立即接受测试，并将隔离到星期二。”
+参考链接：[Facebook winding down cryptocurrency effort: report](https://thehill.com/policy/technology/591710-facebook-winding-down-cryptocurrency-effort-report)
 
-报道说，新西兰卫生官员周六将至少十几个航班列为潜在的暴露对象，并指出航班上的个人可能已经感染了中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-当局称，基因组测序将于周日完成，以确定受感染的人是否有该病毒的奥米炕（Omicron）变体。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-根据《以数据看世界》网站披露的数据，近77%的新西兰人已经完全接种了中共病毒（COVID-19）疫苗。新西兰官员告诉《美联社》，12岁及以上的人中，大约93%的已经接种了中共病毒疫苗。
-
-**新闻来源**
-
-[New Zealand Prime Minister isolates after COVID-19 exposure](https://thehill.com/policy/healthcare/public-global-health/591922-new-zealand-prime-minister-isolates-after-covid-19)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
