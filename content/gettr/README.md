@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/29/2022 5:32 AM (UTC)`
+
+1/27/2022 Miles Guo: What are the stories behind the photo of me sitting in the dragon chair taken a long time ago? Why did I appear to be angry in the photo? Why is there a circle drawn in the photo? The older brother of the young hero, a cellmate executed by the CCP under false accusation, hasn’t realized until recently that his younger brother was a great man.<br/><br/>1/27/2022 文贵直播：文贵当年拍的那张坐龙椅的照片背后是怎样的故事？为什么照片中的文贵面露怒火？照片中画的圈是怎么回事？处男英雄哥哥直到今天才明白他的弟弟有多伟大<br/>
+![img](https://media.gettr.com/group6/getter/2022/01/29/05/3dbb6b43-a72d-657d-be3c-6cc1ca19e0c3/out.jpg)
+
+---
+
 `@miles 1/29/2022 2:43 AM (UTC)`
 
 1/27/2022 Miles Guo: Do I look like I appeared in a photo sent by a fellow fighter taken long ago in Hubei? A guy who followed me in Hubei in the past was determined to become a CCP official to make a fortune when he was young and is now a member of the Politburo of the CCP. He is the most promising political star, but Xi Jinping and Wang Qishan will not let him go.<br/><br/>1/27/2022 文贵直播：战友发给文贵当年在湖北的照片和现在的文贵像吗？当年在湖北跟着文贵的人从小立志当官发财，现已成为中共政治局委员而且是最有希望的政治明星，但习王不会放过他<br/>
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/27/2022 Miles Guo: I am going to launch three Tian Mi Mi Movements by using the Himalaya Coin. The Himalaya Coin is of extraordinary significance, and the Himalaya Pay is like pulling the tube that draws the blood from the Chinese people and inserting it into the old CCP kleptocrats. What are the three landmark events of the Himalaya Coin from its fetal period to birth?<br/><br/>1/27/2022 文贵直播：文贵计划用“喜币”启动三场“甜蜜蜜”运动；喜币意义非凡，H-Pay就是把中共是把中共插在中国人民身上的抽血管倒插进中南坑老杂毛身上；喜币从胎儿到出生的三个标志性事件是什么？<br/>
 ![img](https://media.gettr.com/group46/getter/2022/01/27/23/e221077b-9a4e-f557-26d5-21710b8b1fc3/out.jpg)
-
----
-
-`@miles 1/27/2022 11:38 PM (UTC)`
-
-1月27号：衷心地，感谢，喜安娜喜欢第一次做得精美的视频，是的是的，是的，是的，太好了。<br/><br/>［郭叔好，您在大直播中对文化、信仰、真相的分享，让我和爱迪受到了这些信息的启发，感受到了来自真相的灵感。我和爱迪创作了两首原创歌曲。这里面包含了我们对这些讯息的一些理解和感受。非常感谢您对我们的开智，最近一系列世界的行动也让我们再一次的认识到了真相是多么的重要。］
-![img](https://media.gettr.com/group23/getter/2022/01/27/23/1ba1874e-17d0-6335-e0aa-9be757016091/out.jpg)
 
 ---
 

@@ -2,35 +2,21 @@
 ---
 
 
-## WTO批准中共向美国征收奥巴马时期的补偿性关税
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926910/)
+## 中共国SJ-21太空牵引：谁是太空霸主
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1926961/)
 
-作者：银河系农场—骄子
+撰稿：望海潮
+![](https://assets.gnews.org/wp-content/uploads/2022/01/292.jpg)图片来自网络
+1月22日，美国商业空间遥感公司 Exoanalytic Solutions 的望远镜观察到，中（共）国的实践 21 号卫星（SJ-21）变身“太空拖船”将一颗失效的卫星从正常的地球同步轨道中拉出，然后将其放置在几百英里外的所谓墓地轨道上。早在去年，美国空军中国航天研究所（CASI）就发布了一份关于SJ-21 的报告，指出其具有远程接近操作能力和机械臂技术，这意味着除了科学或实用性之外SJ-21卫星还有潜在军事用途。
 
-近日，世界贸易组织WTO通过了一项决议，允许中共向美国征收6.45亿美元的补偿性关税，此举立即遭到了华盛顿的抨击。
+早在2013年中共国的天宫空间站天河舱发射的机械臂也展示出类似于SJ-21卫星的能力，说明中共国太空牵引技术已臻成熟。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ZQOVA56VCFOPLFI5EMBQHU256A.jpg)
+拥有类似技术的国家还有俄罗斯，这项技术可以用于捕获或破坏敌方军事卫星，实际上任何能在另一颗卫星附近机动的卫星都有能力对其进行各种攻击，例如干扰传输、致传感器失灵、在其太阳能电池板和光学器件上喷洒气溶胶、对其进行物理操作或将其移出轨道，甚至利用[微波、激光或](https://www.thedrive.com/the-war-zone/33531/x-37bs-power-beaming-payload-a-reminder-of-potential-orbital-microwave-anti-satellite-weapons)导弹将其摧毁 。
 
-据悉，奥巴马时期与中共签署了22项产品协议，而此项补偿性关税的焦点集中在，美国是否可以将中共政府拥有多数股权的中国公司视为由中共国家控制。
+为了应对中俄太空威胁，美国太空部队除了扩大地球同步空间态势感知计划，密切跟踪类似SJ-21卫星外，还准备解密部分美军太空军事能力，对中俄进行威慑，相信不久的将来，美国太空军会展示与其太空霸主地位相对应的太空军事科技实力。
 
- 美国认为，中国在补贴制成品并将其倾销到世界市场的同时，受益于世贸组织的更宽松待遇规则。世贸组织的规则曾用于“屏蔽中国的非市场经济实践，破坏公平和以市场导向为主的竞争”，目前这项规则亟待改善。
-
- 美国发言人认为世贸组织做出的此错误解释，损害了保护美国工人和企业免受中国扭曲的贸易补贴的能力
-
-参考链接：[https://www.reuters.com/business/wto-gives-china-right-impose-tariffs-645-mln-us-goods-2022-01-26/](https://www.reuters.com/business/wto-gives-china-right-impose-tariffs-645-mln-us-goods-2022-01-26/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-编辑：雪梨
-校正/发稿：Daxia
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

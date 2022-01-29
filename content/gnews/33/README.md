@@ -2,31 +2,32 @@
 ---
 
 
-## 【秘翻在线】拜登将派兵前往东欧
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1926473/)
+## 美企业家于反疫苗集会抨击卫生部门不作为
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926544/)
 
-**撰稿：Grace**
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月23日，在美国华盛顿特区举行的、数万人参加的反对中共病毒疫苗强制接种政策的集会中，企业家史蒂夫·基尔希强烈抨击了政府卫生部门的不作为。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.55.png)
+基尔希表示，中共病毒疫情大流行其实完全是可以避免的。此前，很多医生开发了相应的早期治疗方案，这些药物治愈了大量的感染病例，且很少有患者死亡。然而，直到现在，美国国立卫生研究院仍然对这些方案不置可否。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-28-at-9.51.37-PM.jpeg)图片来源：journal-neo
-据《福克斯新闻》1月28日报道，拜登周五告诉记者，他将在 “近期内” 把美国军队调往东欧和北约国家。
+基尔希还提到，另一当面，人们被要求为社会利益接种中共病毒疫苗，且没有人被告知过这些疫苗的风险和效益。如今，事实证明，中共病毒疫苗只会加重人们的病情。 此外，基尔希也指出，令人不安的是，美国政府的相关机构，包括FDA、CDC、NIH等都缺乏透明的问责制，这导致没有人愿意在媒体前回答民众关于中共病毒疫情及疫苗所提出的尖锐问题。为此，基尔希强调，在得到明确且令人满意的答案之前，任何人都不应该遵守不合理的强制疫苗政策。
 
-报道称，拜登在匹兹堡（Pittsburgh）发表演讲后走下空军一号，发表了上述评论。但是，他没有说将有多少部队前往，他还表示，他没有关于俄罗斯和乌克兰之间紧张局势的最新情况。
+参考链接：[https://gettr.com/post/pqgun176aa](https://gettr.com/post/pqgun176aa)
 
-五角大楼的高级官员周五表示，俄罗斯军队在乌克兰边境的集结是冷战以来规模最大的一次。参谋长联席会议（Joint Chiefs of Staff Chairman）主席马克·米利（Mark Milley）警告说，东欧的冲突将是 “可怕的”。国防部长劳埃德·奥斯汀（Lloyd Austin）强调，这 “并非不可避免”，他坚持认为，在克里姆林宫（Kremlin）继续威胁要对乌克兰进行大规模入侵的情况下，“仍有时间和空间进行外交活动”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-据报道，尽管本周早些时候，拜登暗示美国军队可能被调往欧洲， 但他说，“不会有任何美国军队进入乌克兰”，如果俄罗斯开始对乌克兰采取大规模军事行动，这些部队可能会被派往北约前线国家。
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-五角大楼发言人约翰·柯比（John Kirby）在周四的新闻发布会上表示，部队包括驻扎在布拉格堡（Fort Bragg）的第82空降师的成员（82nd Airborne Division）和第18空降团（18th Airborne Corps）的成员经常保持高度戒备。
-
-美国几周来一直在为俄罗斯可能发动对乌克兰的入侵做准备，警告说如果莫斯科实施入侵，后果将不堪设想。
-
-美国国务院周四明确警告说，如果俄罗斯入侵乌克兰，[北溪2号管道（Nord Stream 2](https://gnews.org/zh-hans/1926081/)）将被闲置在海洋底部。
-
-据报道，目前超过10万名俄罗斯军队在与乌克兰的边界，柯比说五角大楼在过去24小时内继续看到俄罗斯的 “可靠的战斗力量 ”的集结。
-
-**新闻来源：** [Biden sending troops to Eastern Europe soon as Ukraine turmoil intensifies](https://www.foxnews.com/politics/president-biden-sending-troops-to-eastern-europe-as-ukraine-turmoil-intensifies)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
