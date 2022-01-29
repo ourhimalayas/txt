@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929469/)
+## 什么叫文明？人生的动机决定人生的结果
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1929493/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月24日，外媒报道，一名男子因未接种中共病毒疫苗，导致无法接受心脏移植手术，目前徘徊在生死边缘。
+《2022年01月27日文贵大直播》节选
 
- 该男子的父亲大卫·弗格森在接受媒体采访时说到，31岁的儿子DJ本来排在接受移植手术的前列，但由于他拒绝接种中共病毒疫苗，医院根据相关政策将 他从移植名单上删除。 该医院认为，疫苗是麻省总医院布里格姆系统对移植候选人进行选择的必要条件之一。 纽约大学格罗斯曼医学院的阿瑟·卡普兰博士对此解释说，实施移植手术后，病人的免疫系统都是关闭的，接种疫苗的人在手术后会有更好的生存机会。
+我不是神，我也不能代表神，我也不是真理，我也创造不了真理，我就是想灭共，谁灭共都是我们朋友。
 
-原文链接：[男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](https://gnews.org/zh-hans/1919676/)
+你知道什么叫文明啊？就(是)知道香臭、知道真假、知道善恶。
 
-音频处理/发稿：Daxia
+大陆是不允许你犯错的，台湾允许你犯错，你好好爱台湾，还有你今天的动机是要灭共灭掉邪恶，保护台湾，几个台湾年轻人有你这个(动机) ，有这样伟大的信仰？那才是今天我们坐在这的根本原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+* * *
 
-**更多资讯，更多关注**
+素材，剪辑，字幕：小蜜蜂 | 发布：文零
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

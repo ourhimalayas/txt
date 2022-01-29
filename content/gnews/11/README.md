@@ -2,52 +2,90 @@
 ---
 
 
-## 【Michael.Tonny专栏】防腐师在大量接种过COVID-19疫苗的尸体中发现血栓
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1929660/)
+## 为什么要隐藏疫苗接种后最初两周发生的问题？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1929756/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新冠疫苗接種_林智文.jpg)图片来源：eonway.com
 
-COVID-19病毒，是中共向全世界投放的生化武器，没有疫苗！试验性的COVID-19疫苗只会带来严重的疫苗灾难！
+许多研究得出结论，COVID疫苗在第二剂疫苗后可以保护人们，但这些结论基于的数据是排除了疫苗接种后两周内人们感染率的数据，“显然，这是有缺陷的。”
 
-防腐师Richard Hirschman在参加1月27日Jane Ruby博士主持的视频节目[Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots](https://stateofthenation.co/?p=104914)中透露，在他处理的大量尸体中看到死者动脉（arteries）和静脉（veins）中充满了非自然的血凝块（unnatural blood clot）组合，以及完全充满血管系统（vascular system）的奇怪的纤维材料（fibrous materials）。他确认这些死者很多接种了COVID-19病毒疫苗！
+当一个组在两个时间点进行比较时，就会发生幸存者偏差，但该组的成员在两个时间点之间发生了变化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Embalmers-Find-Veins-Arteries-Filled-with-Never-Before-Seen-Rubbery-Clots-.png)
+这就像评估一所学校的游泳水平一样，该学校将人都扔到海中央，让他们呆上几个小时，然后评价活着的学生游泳的好坏。
 
-Richard Hirschman，在防腐行业（embalming industry）有20 多年的工作经验，是董事会认证的殡仪馆主任（funeral director）和防腐师（embalmer）。
+两个小时后，只剩下那些已经会游泳的人，而且，可能还有一些艰难地学会了游泳的人！**在此期间淹死的可怜的灵魂甚至都不算数**。
 
-Jane Ruby博士，是一名医学专业人士和药物（pharmaceutical drug）开发专家，在 FDA和EMA的药物批准监管流程（regulatory processes）方面拥有超过20年的工作经验。曾推出一些世界上最著名的治疗抑郁症（Depression）、阿尔茨海默病（Alzheimer’s disease）、戒毒（Addiction）和心肺疾病（Cardio-pulmonary diseases）方面的药物。她曾出现在美国的众多电视和广播节目中。
+将剩下的人的游泳能力归咎于2小时后出现的教练，显然会给出一个非常误导的画面，教练在确定“教学技巧”的成功与否时，没有人会在以后的课程中被淹死。
 
-Richard Hirschman说，从2020年11月开始，他看到大量尸体中有长而有弹性的纤维状血块，Hirschman先生把这些长而有弹性的纤维状血块叫作“蠕虫”。后来，他发现在他处理的尸体中高达50%都含有这种“蠕虫”。现在，这个比例甚至接近80%。仅仅在这个月，他亲自做防腐处理的35具尸体中，就有20~24具尸体含有这种长而有弹性的纤维状血块。
+对于 COVID 疫苗接种，疫苗接种后的两周时间不包含在数据中。给出的理由是疫苗需要一段时间才能产生抗体，因此，前两周的数据不相关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnatural-blood-clot1.png)
+（**点评：也就是说打了疫苗在两周内死亡的，都不算在疫苗伤亡里！多么滑稽的“科学论证”。在VAERS2022-01-24报告中，0-14天之间死亡人数为35+74+382+228＝719人， 他们的死亡难道连个数都不算吗？)**
 
-在前年11月开始注意到有很多尸体中出现这些奇怪的纤维状血块之后，他对这些所谓的“蠕虫”进行了防腐处理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1-11.png)
 
-在显微镜下，这些蠕虫状结构的血凝块与接种过疫苗的死者的血液非常相似，但他以前从未见过这种大小的东西。他能够确认一些血管中含有这类血栓的死者确实接种了Covid-19疫苗，但他无法确认所有这些人都接种了疫苗，或者具体是什么原因导致这些很长的血栓出现在死者的血液循环系统中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-2-12.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnatural-blood-clot.png)
+如果疫苗具有直接可见的有害影响，与抗体产生无关怎么办？ 一个例子是在接种 COVID **疫苗后出现带状疱疹的比率很高，这表明病毒再激活存在问题**。
 
-COVID-19病毒不同于任何其它来源于自然的病毒，而是[中共国科学院武汉病毒研究所](http://www.whiov.cas.cn/)通过基因编辑制造的生化武器病毒！COVID-19病毒疫苗，只会导致严重的灾难！
+（点评：普通大夫都知道，**带状疱疹是免疫系统出问题的外部体现。）**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
+这可以解释为什么在接种疫苗后的前两周，接种疫苗的 Sars-CoV-2 感染率实际上高于未接种疫苗的人。
 
-随着更多人注射这种实验性的中共病毒疫苗，像这样血液循环系统中充满血凝块的死者只会越来越多，因心脏病发作和中风（heart attacks and strokes）而导致的死亡人数大量增加。
+消除前两周的效果是一种误导性的数据偏差。如果人们在此期间被感染并死亡，当然需要包括在内。
 
-Richard Hirschman曾与其他同行进行过交流，这些同行也在他们处理的尸体中发现了这种情况，而之前他们都从未见过这样的事情。
+**疫苗本身可能对感染率产生影响的可能性不容忽视**，为了准确评估有效性，需要包括整个数据集。
 
-毫无疑问，这就是疫苗灾难！停止毒疫苗！
+如果只测量感染风险较高的时期（0-14天）之后的时段，就有可能被欺骗。任何信号都会被错过。
 
-参考资料：
+除了在个人风险方面消除这段时间是荒谬的之外，还将对更广泛的社区产生影响。如果疫苗确实在头两周内导致感染人数激增，这将不可避免地增加传播，并导致该社区在此期间感染人数增加。
 
-[Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots (Video)](https://stateofthenation.co/?p=104914)
+因此，对疫苗接种计划影响的评估，**必须不仅包括对个人的影响，还包括对更广泛社区的影响**。
 
-[Embalmers Find Veins & Arteries Filled with “Never Before Seen” Rubbery Clots](https://notaakhirzaman.com/9336/)
+这一点对于许多人同时接种疫苗的紧密社区特别相关，例如学校，特别是具有大量弱势群体的社区，例如疗养院和医院。
 
-[中共国科学院武汉病毒研究所](http://www.whiov.cas.cn/)
+我们正在做的是有效地“加速”感染（和死亡）的浪潮，最终在病毒季节结束时，同样数量的人死亡，因为排除了较早死亡的人数（1-14 天内），我们被误导认为疫苗比实际更有效。
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+（点评：我们用一个最普通的常识问一问：为什么本应该是保护公众健康的政府和机构要特意这样误导大众？）
+
+只看后期，看到那段时间死亡人数较少，就产生了生命得救的错觉。这在疫苗推出后许多国家的数据中都很明显。 下图显示了英国与欧洲的对比，可以说明这一点，因为英国是最快推出疫苗的国家。 以曲线下面积表示的死亡总数与其他国家相似，但只是被压缩到更短的时间段内。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Daily-new-confirmed-chart-1024x549-1.png)Figure 1: 英国和欧盟的冬季新冠病毒死亡人数
+
+现在让我们来看看一些具体的例子，例如，这项针对美国疗养院居民的研究，结果表明，在研究过程中，6.8% 的接种疫苗人口被感染，6.8% 的未接种疫苗人口被感染。
+
+但是，决定排除接种后的前 14 天，将接种组的灰色区域与未接种组的黑色和灰色区域相比较。
+
+这样做可能会导致声称疫苗对感染的功效为 66%。 这项研究的作者很诚实地分享了原始数据，并没有声称有 66% 的疗效。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pic-3-1.png)Figure 2: 来自美国论文的数据显示，按诊所到家后的时间和疫苗接种状态，疗养院人口感染的百分比。
+
+然而，**许多研究都依赖于这一技巧**来宣称疫苗的有效性。最明显的例子是最初的辉瑞试验研究和阿斯利康试验。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1-1.png)Figure 3: 来自 AstraZeneca 试验的图表显示了早期（“排除期”）。
+
+举第二个例子，丹麦的一篇论文，检测了医护人员和疗养院居民的感染人数。在疫苗接种计划开始之前，4.8% 的医护人员和 3.8% 的疗养院居民被感染。
+
+在95% 的疗养院居民和 28% 的医护人员接种疫苗后，这项研究在丹麦冬季浪潮结束时结束。
+
+鉴于一开始的情况较差，而且医护人员的疫苗接种率较低，您可能会认为他们的整体情况更糟。然而，到疫情结束时，医护人员的感染率为 7.0%，而养老院居民的感染率为 7.7%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Danish-study.png)Figure 4: 来自丹麦论文的数据显示了疗养院居民和医护人员中感染人口的百分比。
+
+在 COVID 研究中，报告的疫苗功效中有多少真正是衡量幸存者偏差和自然获得性免疫力的指标？ 这是一个关键问题。
+
+如果不首先解决这个问题，就不应声称疫苗的功效。
+
+**参考资料：**[childrenshealthdefense.org][Why Hide What Happens in First Two Weeks After Vaccination?](https://childrenshealthdefense.org/defender/what-happens-first-two-weeks-vaccination/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bcf8f93a-db44-4f1f-8e44-c3343bb314fc)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
 
  
 

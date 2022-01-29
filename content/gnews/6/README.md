@@ -2,28 +2,28 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1929840/)
+## 秘翻在线：中共国指责美国用金钱利益鼓励运动员抗议北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1929893/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
+撰稿：billwilliam
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-29.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-17.jpg)图片来源：AFP
+中共外宣《中国日报》1月29日报道，有匿名人士透露，美国用金钱收买外国运动员在北京冬奥会期间制造事端。感觉中共要以这个莫须有的指控为抓手，要刁难参加北京冬奥会的外国运动员。
 
-视频参看：[2022.01.29早GTV新闻访谈](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
+该新闻指责美国以“高额奖励“鼓动各国运动员”表达对中国不满、消极比赛甚至不参加比赛“。美国甚至会调动全球资源保护消极比赛的运动员的名声。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+这篇宣传新闻继而批评美国反华势力“将体育运动政治化，蓄意干扰破坏北京冬奥会”，是国际奥利匹克事业的“麻烦制造者”。匿名消息人士还说，美国反华势力出钱收买运动员，“怂恿“他们从事与运动员身份不符的活动，违背奥林匹克精神。美国反华势力利用运动员搞”政治操弄“的手法不会得逞。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-21.jpg)
+首先需要澄清，美国政府没有出资鼓励运动员在北京冬奥会期间进行任何抗议。而所谓“美国反华势力“一词似乎在暗指爆料革命和一些支持灭共的美国人，而事实与中共的外宣完全相反。由郭文贵先生创立的爆料革命旨在区分中国共产党和中国人，中国人不等于邪恶的共产党。我们支持中国，但不支持共产党，根本没有反华势力。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+另外，郭先生在前几天的直播中说，有设立秘密基金给抵制冬奥会的外国运动员提供数字货币喜币。抵制北京冬奥会是完全正当的。以美国为首的西方政府宣布外交抵制北京冬奥会，因为中共在新疆西藏犯有种族灭绝。同时，中共释放新冠病毒并研发毒疫苗，犯有反人类罪。郭先生甚至说，中共在北京一带扑杀数百万只狗，运动员去中共国吃的汉堡可能都是狗肉的，中共犯有残害动物罪。
+
+在拜登政府授权撤离美国驻北京大使馆之际，中共还妄图进行最后的疯狂。在北京天津地区病毒疫情失控的情况下，外国运动员真的不该去参加奥运会，而且还会遇到中共“肛门拭子“掏肛核酸检测的卑鄙做法。为所有不幸参加北京冬奥会的外国运动员祈祷，希望他们能安全、健康地回家。
+
+新闻来源：
+
+[https://news.ifeng.com/c/8DBMieEh5gD](https://news.ifeng.com/c/8DBMieEh5gD)
 
  
 

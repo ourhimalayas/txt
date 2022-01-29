@@ -2,34 +2,38 @@
 ---
 
 
-## 疫苗副作用导致一美国F-35战机在南中国海坠毁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929542/)
+## 有声|美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929617/)
 
-作者：纽约香草山 金融部 AT
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月25日，据相关媒体消息显示，一架正在南海地区执行演习任务的美国海军 F-35C 战斗机，因其飞行员心肌炎急性发作，在试图降落在卡尔文森号航空母舰的甲板上时坠毁。目前，该事故已造成7名船员受伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.16.png)
-报道提及，美军的两个航母打击群共一万四千多名水兵和海军陆战队队员正在南海进行军事演习。其中，这位F-35C的飞行员在起飞前72小时刚刚接种了中共病毒疫苗加强针。然而，返航时，该名飞行员所驾驶的飞机突然撞上了航空母舰的甲板，飞行员则在战机坠海前弹射逃生。
+配音：香草山佛教部 – 李傻
 
-据了解，这名飞行员在回忆事故经过时提到，他在返航过程中突然感到胸部剧烈疼痛，而该飞行员也在被送医救治后确诊患有急性心肌炎。值得注意的是，这一病症是中共病毒疫苗的常见且可能致命的副作用。
 
-对此，分析人士指出，当前，大量的报道提到了接种过中共病毒疫苗的飞行员在飞行途中生病或直接坠机死亡的事件，而这类灾难性事件不仅会危及飞行员，更会危及数百万将安全托付给航空公司的乘客。虽然联邦政府极力掩盖这些接种过疫苗的飞行员的安全性问题，但其所带来的后续影响或将难以避免。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+周二(25日)，在乌克兰里斯波尔国际机场，该国人员卸下了来自美国的大约 300 枚标枪导弹、肩扛式多用途攻击武器和掩体炸弹。 其他北约成员国也提供军事装备，协助保卫乌克兰。
 
-参考链接：[Navy Pilot Crashes Plane, Ejects, After Vax Reaction](https://bestnewshere.com/navy-pilot-crashes-plane-ejects-after-vax-reaction/)
+同日美国政府高级官员警告说 : 如果俄罗斯入侵乌克兰，并对欧洲各国发切断天然气燃料供应的话，拜登政府准备实施制裁，其后果严重。
 
+拜登总统还警告要对俄罗斯总统普京实施个人制裁。英国首相鲍里斯•约翰逊周二(25日)表示，英国和美国已讨论阻止俄罗斯进入 SWIFT 国际支付系统。他说，这样的举动将“成为一种非常有力的武器”，并指出美国的合作对于实施这样的行动是必要的。
+
+文字版原文：[美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响](https://gnews.org/zh-hans/1926092/)
+
+音频处理：Tom Li
+发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：童谣
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
