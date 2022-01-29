@@ -2,35 +2,26 @@
 ---
 
 
-## WTO批准中共向美国征收奥巴马时期的补偿性关税
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926910/)
+## 中日财经爆|美联储宣布调整利息政策 全球股市面临考验
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1927204/)
 
-作者：银河系农场—骄子
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2407.png)（图片来源于本文链接）
+美联储主席鲍威尔暗示中共病毒（新冠疫情Covid-19）爆发以来的首次加息，很可能在今年三月就会启动。这番表示引起了全球股市的波动。
 
-近日，世界贸易组织WTO通过了一项决议，允许中共向美国征收6.45亿美元的补偿性关税，此举立即遭到了华盛顿的抨击。
+美联储主席鲍威尔（ Jerome Powell）周三在华盛顿新闻发布会上表示：“提高利率将很快成为一件应当做的事情。”其中“很快”这个词也说明了问题的紧迫性。鲍威尔表示，他认为有可能会在今年三月就首次上调利率。不过，美联储的利率目前仍保持在0至0.25的历史最低水平。出于对通胀率居高不下的担忧，美联储今后几次会议议息都会讨论提升利率的可能性。不过，鲍威尔并没有明确说出上调利率的具体次数。这也就给投资者们留下了极大的遐想空间。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ZQOVA56VCFOPLFI5EMBQHU256A.jpg)
+德国股市今天开盘大幅走低。达克斯加权指数下跌了1.03个百分点，降至15300.43点，损失了昨天涨幅的一半。理财公司QC Partners的阿尔特曼表示：“鲍威尔已经成了股市的煞星，现在各方达成的共识是，美联储今年会采取五次调息步骤。而昨天的美联储会议之前，人们还认为今年只会调整四次利息。”
 
-据悉，奥巴马时期与中共签署了22项产品协议，而此项补偿性关税的焦点集中在，美国是否可以将中共政府拥有多数股权的中国公司视为由中共国家控制。
+日经指数则下滑了3.6个百分点，降至26044点，跌至一年多以来的最低点。本周四，日本股市收盘时也下跌了3.1%。周四晚些时候，美联储的决定公布后，华尔街股市也应声大跌，当天的涨幅在收盘时已损失殆尽。
 
- 美国认为，中国在补贴制成品并将其倾销到世界市场的同时，受益于世贸组织的更宽松待遇规则。世贸组织的规则曾用于“屏蔽中国的非市场经济实践，破坏公平和以市场导向为主的竞争”，目前这项规则亟待改善。
+在德国，德意志银行昨天出乎意料地传出利好消息，这家德国规模最大的银行经过多年亏损后，去年再度实现数亿盈利。今天晚些时候，苹果公司和Visa信用卡公司将发布年度业绩。一般认为，苹果公司的季度报告将对股市信心产生重大影响。
 
- 美国发言人认为世贸组织做出的此错误解释，损害了保护美国工人和企业免受中国扭曲的贸易补贴的能力
+信息来源： [美联储宣布调整利息政策 全球股市面临考验](https://www.dw.com/zh/%E7%BE%8E%E8%81%94%E5%82%A8%E5%AE%A3%E5%B8%83%E8%B0%83%E6%95%B4%E5%88%A9%E6%81%AF%E6%94%BF%E7%AD%96-%E5%85%A8%E7%90%83%E8%82%A1%E5%B8%82%E9%9D%A2%E4%B8%B4%E8%80%83%E9%AA%8C/a-60587815)
 
-参考链接：[https://www.reuters.com/business/wto-gives-china-right-impose-tariffs-645-mln-us-goods-2022-01-26/](https://www.reuters.com/business/wto-gives-china-right-impose-tariffs-645-mln-us-goods-2022-01-26/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
-编辑：雪梨
-校正/发稿：Daxia
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

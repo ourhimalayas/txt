@@ -2,8 +2,8 @@
 ---
 
 
-## 最早投GTV的人， 是新中国联邦的老椅子
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928007/)
+## 为什么疫苗灾难五月左右开始？!
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928087/)
 
 台灣寶島農場
 

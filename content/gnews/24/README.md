@@ -2,19 +2,10 @@
 ---
 
 
-## 法律是人类安全公平的基础
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927943/)
+## 最早投GTV的人， 是新中国联邦的老椅子
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928007/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
-
-发布：陶子
-
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+台灣寶島農場
 
  
 

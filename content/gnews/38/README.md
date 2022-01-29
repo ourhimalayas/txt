@@ -2,66 +2,41 @@
 ---
 
 
-## 中共暗地里要求返乡民众必须做核酸检测
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927303/)
+## 澳洲卫生部长表示，可能将新冠疫苗与流感疫苗合并
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1927557/)
 
-作者：日本方舟农场—Andy5
+#### 【雅典娜快讯】，紧贴时代脉博
 
+整理报道：小鱼儿
+编辑：jasse01
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-44.jpg)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2294.png)图片来源：雅典娜设计组
 
 
+**澳洲卫生部长表示，可能将新冠疫苗与流感疫苗合并**
 
+当地时间1月28日，据天空（Skynews）新闻报道，卫生部长格雷格·亨特（Greg Hunt）表示，新冠病毒疫苗和流感疫苗可以合并为每年一次的疫苗，并在年底前为一些澳大利亚人注射第四剂疫苗，这是一种“可能性”。
 
-墙内百姓拍摄中共疫情检测人员不承认百姓自带的48小时内核酸阴性报告视频，打脸中共在1月6日所谓“坚决防止层层加码和一刀切，减少对群众生产生活影响”的政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-60.png)
-视频拍摄者在检查点询问，自己自带的48小时内核酸阴性检测报告到底行不行，一位工作人员非常强势地告诉他不行，因为这个检测是全部人员的抽检；另一位工作人员则要求视频拍摄者出示身份证，用于做核酸检测。而面对为什么自带的48小时内核酸检测报告不行的质疑，并要求提供相关文件时，第一位工作人员态度蛮横，没有任何解释，且不耐烦地对视频拍摄者多次指指点点。最后拍摄者无奈质问：是不是我这样的算是“恶意返乡”呢？
+亨特说，到2024年，流感疫苗可以与新冠疫苗结合起来，这正在成为一个“真正的场景”。
 
-这种现象在中共国并非个例。在黑龙江哈尔滨也发生了更加恶劣的事件。仅因为返乡人员来自有过感染者的北京海淀区，检测点仅给出了要么强制隔离14天，要么原路返回的两个选项，甚至没有给出现场核酸检测的选项。这让返乡人员无奈只好带上孩子原路返回北京，错失与父母团聚。
+政府在（去年）12月宣布了一项将莫德纳（Moderna）引入澳大利亚的协议，将在维多利亚州建造一个生产工厂，每年供应多达1亿剂的药物。
 
-分析人士称，中共为了冬奥会所采取的清零政策，并没有中共在政策中描绘的那样人性化，没有从西安孕妇流产等事件吸取一丝一毫的教训，相反已经造成了春节前极其反常的人流量减少，甚至引起了墙内各地老百姓的不满。
+当亨特敦促澳大利亚人接种第三剂疫苗时，主持人彼得·斯特凡诺维奇认为，许多居民已经注射了两剂疫苗，（但）在最近感染了新冠病毒，他们“不应被打扰”去预约（接种）。主持人补充说，许多居民只是“不愿意接种”，因为他们的工作单位要求接种。
 
-参考来源：
+斯特凡诺维奇随后问，一个人在不到一年的时间里，接种三剂新冠疫苗是否“健康”。亨特先生强调“绝对没有风险”，因为澳大利亚免疫技术咨询小组 (ATAGI)的任务是评估疫苗的安全性，并在向公众推广之前给予最终批准。
 
-1.[https://www.gettr.com/post/pqrzit7f5d](https://www.gettr.com/post/pqrzit7f5d)
+亨特最后补充说，有可能在2022年底为年龄较大或免疫力低下的居民注射第四剂（疫苗）。
 
-2.[https://www.gettr.com/post/pqo72a3798](https://www.gettr.com/post/pqo72a3798)
+参考新闻：[Annual boosters and combining COVID-19 jabs with the flu shot on the cards for federal government](https://www.skynews.com.au/australia-news/coronavirus/annual-boosters-and-combining-covid19-jabs-with-the-flu-shot-on-the-cards-for-federal-government/news-story/e2bca83263487d0d11824e1ec5fc6934)
 
-3.[热评丨不搞“层层加码”“一刀切” 保春运安全有序](https://china.huanqiu.com/article/46JfF62Wvyt)
+*发布：tianzhihuan*
 
-4.[关于全力做好2022年春运工作的意见](https://www.ndrc.gov.cn/xxgk/zcfb/tz/202201/t20220106_1311501.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-16.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-43.jpg)
-
-
-
-
-
-
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
