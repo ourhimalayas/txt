@@ -2,20 +2,14 @@
 ---
 
 
-## 共产党虐待出卖这些国家的所有人的利益
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926076/)
+## 2022年1月29日《樱花简报》：日本新增中共病毒确诊近8万人 连续3天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1926136/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+![](https://assets.gnews.org/wp-content/uploads/2022/01/20220129-scaled.jpg)
 
-发布：陶子
-
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
-
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

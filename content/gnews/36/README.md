@@ -2,44 +2,35 @@
 ---
 
 
-## Meta准备出售其数字货币项目
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1924737/)
+## 加政府未阻止中企9亿加元收购其锂矿企业
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1925042/)
 
-作者：MOS – 柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-由于数字货币计划不成功，Meta（原Facebook）正在考虑出售 Diem（原名为Libra）相关资产，以退还早期投资者的投资。知情人士称，Diem 正与投资银行家们探讨出售其知识产权的最优方案，这可能意味着Meta承认失败，放弃构筑数字货币的野心。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/01/LRKHFOLQYVP3BH2LAAENGSM3CY.jpg.jpg)图片来源：The Globe and Mail
+根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/捕获1-1.png)
+在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
 
-数字金融被认为是元宇宙（Metaverse）关键组成部分，Diem的失败使Meta的元宇宙梦想变得更加遥远。
+加拿大和美国在2020年承诺紧密合作，以确保锂等关键矿产的可靠供应。但在周四的听证会上，Champagne先生不会回答他是否与美国或加拿大的任何盟友讨论过Neo Lithium的交易。
 
-总部在瑞士日内瓦，按最初的设想，Libra将是一种与美元、欧元等一篮子主权货币挂钩的稳定币，试图将Facebook庞大用户基础与区块链技术相结合，打造数字经济时代新的储值手段和价值尺度。为此，扎克伯格找来了数十家大型公司一起合作，很多市场分析认为，这是科技巨头们试图改变金融体系。
+反对党保守党表示，自由党政府本应阻止紫金矿业([601899.SS](https://www.reuters.com/companies/601899.SS))去年以9.187亿加元(7.213亿美元)收购Neo Lithium([NLC.V](https://www.reuters.com/companies/NLC.V)) 。
 
-Meta 拥有Diem协会约三分之一的股份，其余股份由该协会成员持有，目前尚不清楚还有哪些公司参投了Diem协会。
+保守党表示，在华盛顿与加拿大合作促进关键矿物的区域供应链，以对抗中共主导地位的时候，允许这宗收购的决定并不合理。
 
-Libra计划引来了各国主管机关与央行的关切，担心Libra的模式将挑战各国货币主权、扰乱金融稳定甚至彻底沦为洗钱工具。因此，该计划在全球范围内遭到了监管机构的强烈反对。随后，Libra失去了包括Visa和万事达卡在内的主要支持者，并在2020年4月将重心从锚定一篮子货币转为锚定单一货币——美元。在监管机构的压力下，扎克伯格在2020年12月份将Libra正式更名Diem，同时做出各种新尝试，竭尽全力打消美国监管机构的疑虑。
+商鹏飞对下议院工业委员会表示：“有足够的信息来确定这项交易不会对国家安全造成损害。Neo Lithium的矿产储备是由碳酸锂组成，而电动汽车电池生产商偏好使用氢氧化锂”。
 
-2021年5月13日，Diem协会宣布与Silvergate Bank（美联储成员之一）达成战略合作，并将其主要业务从瑞士转移至美国，放弃瑞士金融牌照申请，并计划将该项目完全纳入美国监管范围，尝试简化Diem美元稳定币的发行计划。
+去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
 
-尽管Diem得到了诸如SHOPIFY、UBER等一众Diem协会的会员公司支持，但扎克伯格始终未能为其争取到监管机构的信任。 到了去年11月，美国监管机构在一份报告中表示，他们担心如果科技公司的庞大用户网络突然开始以新货币进行交易，现有金融体系将遭到冲击。同时稳定币发行人同时也是科技巨头，这一情况“可能导致经济权力过度集中”。 这也导致Facebook雄心勃勃的“发币计划”的努力前景愈发黯淡，Meta高管、Diem项目的联合创建者之一的David Marcus也在加入该科技巨头七年后离职。
+伦敦Benchmark Mineral Intelligence公司的首席数据官Caspar Rawles说，碳酸锂比氢氧化锂在电动汽车上使用更广泛，由于短缺交易价格很高。
 
-参考链接：
+原文链接：
 
-- [Mark Zuckerberg’s Stablecoin Ambitions Unravel With Diem Sale Talks](https://www.bloomberg.com/news/articles/2022-01-25/zuckerberg-s-stablecoin-ambitions-unravel-with-diem-sale-talks)
+[https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB](https://www.reuters.com/article/canada-zijin-neo-lithium-acquisition-012-idCNKBS2K20BB)
 
+[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+编辑，发稿Spirit
 
-总编：雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

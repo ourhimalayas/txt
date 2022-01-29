@@ -2,30 +2,50 @@
 ---
 
 
-## 扬帆每日速递 2022年1月28日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1925265/)
+## 香港外汇基金2021年投资收益创近三年新低
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1925564/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、成千上万的“一小撮边缘化”（特鲁多语）的加拿大卡车司机正赶往首都渥太华推进“自由护航2022”活动，以抗议联邦政府1月15日生效的中共病毒疫苗强制暴政。而此时，特鲁多宣称，由于意外与中共病毒感染者可能的接触，他将于未来5天足不出户、进行自我隔离（躲避卡车司机的抗议活动）。
+作者：纽约香草山农场 – 四季
 
-2、《纽约时报》终于承认，以前感染过中共病毒的未接种过中共病毒疫苗的人“感染率和住院率均低于接种过疫苗的人”。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-3、据文贵大直播：美国前国务卿、官员马上还要再访问台湾，多架军机、军舰要到台湾，甚至到高雄港。
 
-4、据文贵大直播：美国大使馆“授权撤离”绝对不是与中共国绝交，也不是断交，是美国人用 “不断不交”来弄死中共。
 
-5、新华社1月28日消息，中央巡视组原副组长董宏被判处死缓。2000年之后，董宏一路跟随王岐山，被称为王岐山的“大管家”，2020年10月被立案审查。
 
-6、1月28日，港府专家顾问、中文大学呼吸系统科讲座教授许树昌今在电台节目表示:必須增加接种率，同意将公共交通工具及商场纳入接种疫苗范围。评:共狗砖家除了做残害港人的帮凶，其它一无所能。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板128-1_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
 
-编辑：文敏
+据[OAN网站](https://www.oann.com/hong-kong-exchange-funds-2021-investment-income-at-hk170-5-billion-hkma/)援引路透社1月27日报道，香港金融管理局周四表示，用于支持港元的香港外汇基金在2021年的投资收益为1,705亿港元（219亿美元），同比下降27.7%，为三年来最低。
 
-发布：风起云间（文敏）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-27T090311Z_1_LYNXMPEI0Q0CB_RTROPTP_0_HKMA-MONETARYEXCHANGE_1.jpg)在这张2017年5月31日的插图照片中，可以看到一张港币纸币。（REUTERS/Thomas White/插图）
 
-海报图片设计：飞天面、 Shuang
+香港金管局首席执行官余承东认为，随着全球经济复苏放缓、企业盈利增长势头放缓，以及对新病毒变种和地缘政治紧张局势的担忧挥之不去，投资环境将仍然不确定。
+
+香港金管局是外汇基金的主要管理者，该基金由香港财政司司长监管，投资于股票、债券、外汇和其他证券和资
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
+
 
  
 
