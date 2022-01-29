@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥遇到高人师傅指点
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926415/)
+## 七哥相信奇门遁甲
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926436/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,20 +2,41 @@
 ---
 
 
-## 美驻华使馆申请外交撤离验证文贵先生公告
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1925961/)
+## 美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926092/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：新中国联邦静
 
-据[CNN新闻]1月26日报道，美驻华外交使团以“中共当局不断强化防疫措施”为由，已于日前正式向美国务院申请 “授权外交撤离”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
 
-报道称，中共对美方该突如其来的决定感到错愕和惊恐，已致其外交部发言人赵立坚窘迫表示：撤离只会大大增加美方人员被病毒感染的风险。在距北京冬奥会开幕不到两周的时间内, 美国政府突然做出以上的决定，其背后隐含的外交意义重大，并在国际政坛上引起轩然大波。
 
-CNN的此篇报道无疑验证了文贵先生日前在GTV直播中，首先向全世界发出的以上重大公告内容，此举不仅直接引发了各国争相外交撤离的多米诺骨牌效应，更重要的是还打开了彻底灭共的第三道大门。正如文贵先生断言：中共暴政的末日将因此屈指可数，而新中国联邦的喜币则即将一飞冲天。
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2396.png)（图片来自《华盛顿邮报》）(Brendan Smialowski/Pool/Reuters)）
+
+周二(25日)，在乌克兰里斯波尔国际机场，该国人员卸下了来自美国的大约 300 枚标枪导弹、肩扛式多用途攻击武器和掩体炸弹。 其他北约成员国也提供军事装备，协助保卫乌克兰。
+
+同日美国政府高级官员警告说 : 如果俄罗斯入侵乌克兰，并对欧洲各国发切断天然气燃料供应的话，拜登政府准备实施制裁，其后果严重。
+
+拜登总统还警告要对俄罗斯总统普京实施个人制裁。英国首相鲍里斯•约翰逊周二(25日)表示，英国和美国已讨论阻止俄罗斯进入 SWIFT 国际支付系统。他说，这样的举动将“成为一种非常有力的武器”，并指出美国的合作对于实施这样的行动是必要的。
+
+参考链接：
+
+[https://www.washingtonpost.com/world/2022/01/26/ukraine-russia-sanctions-biden-putin/?utm\_campaign=wp\_main&utm\_medium=social&utm\_source=twitter](https://www.washingtonpost.com/world/2022/01/26/ukraine-russia-sanctions-biden-putin/?utm_campaign=wp_main&amp;utm_medium=social&amp;utm_source=twitter)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
 
  
 

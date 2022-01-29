@@ -2,38 +2,66 @@
 ---
 
 
-## 欧盟委员会因对辉瑞的疫苗交易保密受到抨击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1926322/)
+## 拜登团队表示，全球芯片短缺将持续到2022年下半年
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1926342/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**评论：***全球半导体供应链仍然脆弱，需求远超供应。短期可能解决不了这些供应链中的瓶颈问题。*
 
-整理/编辑：小红帽
+据《彭博社》作者：珍妮·伦纳德(Jenny Leonard)和伊恩金(Ian King), 2022年1月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2402-e1643421969873.png)图片来源：Iaroslav Neliubov/Shutterstock
+拜登政府认为，全球半导体短缺将至少持续到今年下半年。这将给汽车制造商和消费电子行业在内的诸多美国企业带来压力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2299.png)【雅典娜快讯】，紧贴时事脉搏
+**美国商务部长吉娜·雷蒙多（Gina Raimondo）周二表示，美国官员计划对汽车和医疗设备制造商遭遇芯片供给价格欺诈展开调查。**
+
+“我们远没有走出困境，这与半导体的供应问题有关。”雷蒙多在与记者讨论其机构周二发布的一份行业报告时表示。
+
+该报告基于来自芯片供应链中150多家公司的信息，显示“芯片的供需存在严重且持续的不匹配”。 报告称，这些公司认为在未来六个月，这一问题不会得到解决。
+
+**商务部的报告强调了拜登政府试图应对危机时选项的局限性。这场危机导致电子设备生产延迟和汽车行业的劳工休假。 芯片短缺也是通胀上升的一个关键驱动因素。这一直困扰拜登总统的白宫，并有可能帮助共和党在11月的中期选举中实现对国会的控制。**
+
+雷蒙多表示，库存中位数已从40天降至不到5天。
+
+海外制造商的任何中断，例如Covid爆发或与天气相关的事件，都可能导致美国方面的停产和休假。
+
+“半导体供应链仍然脆弱，”报告称，“尽管拜登政府为缓解短缺进行了数月的工作，需求仍然远超供应。”
+
+大多数行业高管警告称，短缺要到今年下半年才会缓解，而因零部件稀缺部分产品会延迟到2023年。当前的需求繁荣可能会持续到 2025 年。
+
+报告称，这种短缺对医疗设备、宽带和汽车行业的影响尤为深远。
+
+根据商务部的报告，政府还将调查在供应紧缺期间出现“异常高价”的某些类型半导体供应商的潜在价格欺诈行为。 雷蒙多表示，似乎是汽车和医疗设备领域的经纪人在收取高额的费用。
+
+许多半导体通过第三方分销商(如 Avnet Inc. 和 Arrow Electronics Inc.)销售，一些公司，如德州仪器公司，正在改变这种模式，并与芯片买家建立更直接的关系。
+
+该报告还发现，2021年对芯片的需求中位数比2019年高出17%，而供应没有相应增加。
+
+商务部的报告几乎承认政府无力解决瓶颈问题。
+
+“私营部门可以更好地应对当前短缺带来的挑战，比如通过增加产量、改善供应链管理以及通过产品设计以优化半导体的使用。”她说。
+
+雷蒙多表示，该报告同时强调了对国内（芯片）制造业进行更多投资的必要性。目前，将投入520亿美元鼓励半导体制造商在美国建厂的立法在国会停滞不前。
+
+“国会必须采取行动。”她说。
+
+尽管如此，任何新工厂都不会在几年内上线，因此无法立即缓解短缺问题。
+
+与此同时，雷蒙多和她的团队希望芯片供应商和消费者之间更多的信息共享可以帮助减少供需之间的不匹配。
+
+原文链接：[https://www.bloomberg.com/news/articles/2022-01-25/biden-team-says-global-chip-shortage-to-stretch-through-2022?utm\_source=twitter&utm\_campaign=socialflow-organic&cmpid%3D=socialflow-twitter-markets&utm\_medium=social&utm\_content=markets](https://www.bloomberg.com/news/articles/2022-01-25/biden-team-says-global-chip-shortage-to-stretch-through-2022?utm_source=twitter&amp;utm_campaign=socialflow-organic&amp;cmpid%3D=socialflow-twitter-markets&amp;utm_medium=social&amp;utm_content=markets)
+
+翻译：洛杉矶盘古农场 – 海潮
+
+校对：洛杉矶盘古农场 – Freeearth
+
+评论：洛杉矶盘古农场 – WenXiong
+
+编辑：洛杉矶盘古农场 – 子萍
 
 
-根据《RT》新闻1月28日报道，欧盟委员会拒绝公布其主席乌苏拉·冯德莱恩（Ursula von der Leyen）去年在达成新冠病毒（Covid-19）疫苗交易的谈判中，发给辉瑞（Pfizer）公司首席执行官阿尔伯特·布尔拉（Albert Bourla）的短信。因此，冯德莱恩被欧盟监察机构指控为“行政不当”。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-欧洲监察专员艾米丽·奥莱利（Emily O’Reilly）周五的一项调查批评欧盟执行机构未能要求冯德莱恩的办公室搜索这些短信。这部分讨论被认为有助于欧盟获得大约18亿剂辉瑞公司的新冠疫苗。
-
-去年4月，冯德莱恩透露，在谈判期间，她与布尔拉交换了一个月的短信和电话。然而，该委员会后来回应了一名记者对这些信息的公开访问请求，声称其没有保留这些短信的记录，只拥有一封电子邮件、一封信和一份关于该主题的新闻稿。
-
-在调查过程中，该委员会曾要求总统办公室寻找符合其内部记录标准的 “文件”–短信不属于这一定义范围。欧盟委员会辩称，其记录保存政策原则上不包括即时通信。到目前为止，还没有在其文件管理系统中记录任何短信。
-
-监察员奥莱利指出，这“相当于行政失当”，要求欧盟委员会再次检查相关信息，并在4月26日之前对该建议作出答复。其声称“短信不属于欧盟透明度法律范围”是“不可信的”。如果“短信涉及欧盟政策和决定，它们应该被视为欧盟文件”。
-
-欧盟委员会的一位发言人表示，该机构已经 注意到”这一建议，并将在截止日期前答复监察员。
-
-新闻链接：[EU Commission lambasted over Pfizer vaccine deal secrecy](https://www.rt.com/news/547653-eu-commission-criticism-pfizer-secret-texts/)
-
-*发布：  tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

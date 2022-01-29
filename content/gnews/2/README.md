@@ -2,30 +2,45 @@
 ---
 
 
-## 【秘翻在线】拜登将派兵前往东欧
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1926473/)
+## 有声|Meta准备出售其数字货币项目
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1926474/)
 
-**撰稿：Grace**
+配音：香草山农场 – 纳米
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-28-at-9.51.37-PM.jpeg)图片来源：journal-neo
-据《福克斯新闻》1月28日报道，拜登周五告诉记者，他将在 “近期内” 把美国军队调往东欧和北约国家。
 
-报道称，拜登在匹兹堡（Pittsburgh）发表演讲后走下空军一号，发表了上述评论。但是，他没有说将有多少部队前往，他还表示，他没有关于俄罗斯和乌克兰之间紧张局势的最新情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+由于数字货币计划不成功，Meta（原Facebook）正在考虑出售 Diem（原名为Libra）相关资产，以退还早期投资者的投资。知情人士称，Diem 正与投资银行家们探讨出售其知识产权的最优方案，这可能意味着Meta承认失败，放弃构筑数字货币的野心。
 
-五角大楼的高级官员周五表示，俄罗斯军队在乌克兰边境的集结是冷战以来规模最大的一次。参谋长联席会议（Joint Chiefs of Staff Chairman）主席马克·米利（Mark Milley）警告说，东欧的冲突将是 “可怕的”。国防部长劳埃德·奥斯汀（Lloyd Austin）强调，这 “并非不可避免”，他坚持认为，在克里姆林宫（Kremlin）继续威胁要对乌克兰进行大规模入侵的情况下，“仍有时间和空间进行外交活动”。
+数字金融被认为是元宇宙（Metaverse）关键组成部分，Diem的失败使Meta的元宇宙梦想变得更加遥远。
 
-据报道，尽管本周早些时候，拜登暗示美国军队可能被调往欧洲， 但他说，“不会有任何美国军队进入乌克兰”，如果俄罗斯开始对乌克兰采取大规模军事行动，这些部队可能会被派往北约前线国家。
+总部在瑞士日内瓦，按最初的设想，Libra将是一种与美元、欧元等一篮子主权货币挂钩的稳定币，试图将Facebook庞大用户基础与区块链技术相结合，打造数字经济时代新的储值手段和价值尺度。为此，扎克伯格找来了数十家大型公司一起合作，很多市场分析认为，这是科技巨头们试图改变金融体系。
 
-五角大楼发言人约翰·柯比（John Kirby）在周四的新闻发布会上表示，部队包括驻扎在布拉格堡（Fort Bragg）的第82空降师的成员（82nd Airborne Division）和第18空降团（18th Airborne Corps）的成员经常保持高度戒备。
+Meta 拥有Diem协会约三分之一的股份，其余股份由该协会成员持有，目前尚不清楚还有哪些公司参投了Diem协会。
 
-美国几周来一直在为俄罗斯可能发动对乌克兰的入侵做准备，警告说如果莫斯科实施入侵，后果将不堪设想。
+Libra计划引来了各国主管机关与央行的关切，担心Libra的模式将挑战各国货币主权、扰乱金融稳定甚至彻底沦为洗钱工具。因此，该计划在全球范围内遭到了监管机构的强烈反对。随后，Libra失去了包括Visa和万事达卡在内的主要支持者，并在2020年4月将重心从锚定一篮子货币转为锚定单一货币——美元。在监管机构的压力下，扎克伯格在2020年12月份将Libra正式更名Diem，同时做出各种新尝试，竭尽全力打消美国监管机构的疑虑。
 
-美国国务院周四明确警告说，如果俄罗斯入侵乌克兰，[北溪2号管道（Nord Stream 2](https://gnews.org/zh-hans/1926081/)）将被闲置在海洋底部。
+2021年5月13日，Diem协会宣布与Silvergate Bank（美联储成员之一）达成战略合作，并将其主要业务从瑞士转移至美国，放弃瑞士金融牌照申请，并计划将该项目完全纳入美国监管范围，尝试简化Diem美元稳定币的发行计划。
 
-据报道，目前超过10万名俄罗斯军队在与乌克兰的边界，柯比说五角大楼在过去24小时内继续看到俄罗斯的 “可靠的战斗力量 ”的集结。
+尽管Diem得到了诸如SHOPIFY、UBER等一众Diem协会的会员公司支持，但扎克伯格始终未能为其争取到监管机构的信任。 到了去年11月，美国监管机构在一份报告中表示，他们担心如果科技公司的庞大用户网络突然开始以新货币进行交易，现有金融体系将遭到冲击。同时稳定币发行人同时也是科技巨头，这一情况“可能导致经济权力过度集中”。 这也导致Facebook雄心勃勃的“发币计划”的努力前景愈发黯淡，Meta高管、Diem项目的联合创建者之一的David Marcus也在加入该科技巨头七年后离职。
 
-**新闻来源：** [Biden sending troops to Eastern Europe soon as Ukraine turmoil intensifies](https://www.foxnews.com/politics/president-biden-sending-troops-to-eastern-europe-as-ukraine-turmoil-intensifies)
+文字版原文：[Meta准备出售其数字货币项目](https://gnews.org/zh-hans/1924737/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
