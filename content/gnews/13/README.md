@@ -2,12 +2,31 @@
 ---
 
 
-## 让运动员去北京冬奥会参赛就像把他们往狮子窝里送
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928977/)
+## 樱花灭共诗——陪故人登红莲湖北阁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929012/)
 
-01/27/2022 前国安顾问杰米·梅茨尔做客福克斯称让运动员去北京冬奥会参赛就像把他们往狮子窝里送。这届奥运会就不该在中共国举办。
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-526.jpg)
+北岸凭高阁，
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+登临我与君。
+
+大湖淹落日，
+
+垂柳傍浮云。
+
+衙署犹能见，
+
+苍梧不可闻。
+
+抚栏伤世道，
+
+悲诉夜无垠。
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
