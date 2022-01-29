@@ -2,38 +2,50 @@
 ---
 
 
-## 有声|天才出走始末
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929632/)
+## 美国海军希望在南中国海尽快找回坠毁的隐形战机
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1929647/)
 
-配音：香草山巡管部– 文凯琳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-今天在公众号看到许晨阳教授说的几句话，深有感触，更有同感。
+据《www.cnn.com》作者：[Brad Lendon](https://www.cnn.com/profiles/brad-lendon)，2022年1月26日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2439-e1643472797582.png)图片来源：CNN
+韩国首尔（CNN）——美国海军正试图从南中国海深处找回其最先进的战斗机，这是一项极其复杂的工作，分析家认为北京将密切关注。
 
-北大数院曾出现我国数学界最出色的几位青年数学家，可惜目前仅有一人留在国内，其他几位全部在共产党所描绘的地狱国，自由民主法制的灯塔国，美国。
+海军透露，一架F-35C单引擎隐形战斗机，周一在例行行动中坠落在卡尔-文森号航空母舰上。
 
-许晨阳是那一代中的天骄，在美国学成后怀揣报效国家之情怀回归北大，但在6年后再次离开，留下了3句发人深省的话。
+这架价值1亿美元的战机撞击了航空母舰的飞行甲板，随后落入海中。飞行员和文森号上的六名水手受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2440-e1643472840754.png)图片来源：CNN
+文森号已经恢复了正常的运作，但海军面临着一项艰巨的任务，即需要将F-35C从这一具有争议的海域打捞出水。
 
-原文链接：[天才出走始末](https://gnews.org/zh-hans/1923879/)
+海军没有透露具体的坠机地点，但北京声称130万平方英里（330万平方公里）的水道几乎都是它的领土，并通过对礁石和岛屿的军事化来加强其主张。
 
-音频处理/发稿：Daxia
+中共国海军和海岸警卫队船只在南中国海水域保持持续存在。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+美国对中共国的领土主张提出异议，并利用海军部署来推动其“自由和开放的印度洋-太平洋”的主张。
 
-**更多资讯，更多关注**
+中国官方尚未对这起坠机事件发表评论，但分析人士说，中共国几乎肯定会对这架丢失的F-35感兴趣。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+美国太平洋司令部夏威夷联合情报中心前行动主任卡尔-舒斯特认为：“中国将试图用潜艇和它的一艘深潜潜水器对其进行彻底定位和调查。”
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+他补充道，中国有可能根据其在南中国海的领土主张提出打捞权的要求。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+他接着说：“借助商业和海岸警卫队打捞飞机，将使北京能够声称第三方正从其领海中打捞潜在的环境危害物或外国军事装备。”
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+但这样的行动会带来政治风险，新加坡S.Rajaratnam国际研究学院的研究员Collin Koh认为，公开地去做这件事可能会使中共国与美国的紧张关系恶化。他不相信北京有这个胃口。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文连接：[https://www.cnn.com/2022/01/25/asia/us-f-35-crash-recovery-south-china-sea-intl-hnk-ml/index.html](https://www.cnn.com/2022/01/25/asia/us-f-35-crash-recovery-south-china-sea-intl-hnk-ml/index.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
