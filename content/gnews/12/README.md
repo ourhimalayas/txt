@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月28日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1926451/)
+## 1.27大直播后记：亲身经历就是情报
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926475/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-28-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2022年1月28日早](https://gnews.org/zh-hans/1924787/)
+整理：雅典娜速记组
+编辑：朝花夕拾
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/EZA6@XZVA6AUAZGJL4.png)图片来源：雅典娜设计组
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+罗西问七哥：
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+七哥，每天您接收到这么多情报，那很多人都会想要把知道的情报交给，那你要怎么判断这个情报是正确的，然后它是可靠的，因为有你嘴巴讲出来，这全世界会重视的，所以你会特别的去挑选，那你要怎么样去知道说这个是你认可的，觉得它是一个好的情报？因为这关乎我们每天也接收到这么多的各种不不同样的资讯，那我们要怎么样对我们自己去知道说哦，我怎么样去判断正确的情况，然后做出正确的判断。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+七哥答：
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+我觉得罗西这听起来的问题很复杂，实际上也很简单。七哥这个不给你装神弄鬼的，这关键是一个经验。还有一个你知道的，比如说现在你给巴黎，你给佳佳谈生孩子的事情，她俩都是女的，她没生过孩子，她也跟家说感受呢，都是糊弄你的。她这没生过孩子啊。你像我母亲这样人生过12个孩子，是吧？我母亲一辈子都在怀孕生孩子，她告诉你生孩子怀孕，那她是绝对可以（有把握）。我这一辈子都在搞情报，是吧，和搞情报的人？所以说情报的东西对我来讲还有个太多的基本的常识啊，人家搞情报，我搞搞情报的人，对吧？我跟搞情报的人天天在一起啊，情报它有很多具体特征。你比如说很简单，就像这个战友刚才发的信息，我为啥要选他的呀？人家发给我有医院的名和姓，这个战友跟我有联系，他是本身就是专家，又是战友，很可爱很相近，个人的信任，时间的积累和它发出的信息，和我对这个信息的判断，和多个对同等信息的叫横向和纵向的比较。加上这种生多孩子的出来的这种完全独到的经验，那么这就是个基础嘛。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我知道他们做了决策人，知道又亲身参与了，又建设了，那然后我再有这各种人给我来经过证实，在我对共产党的行动的政治的把握和内部的情报向国安委的那人，我现在可以对着镜头说，国安委的人不知道习近平晚上睡哪儿，我（知道）他睡哪儿。就敢那么牛，这国安委都不知道，中办不知道，我觉得知道他每天睡哪儿，因为他睡觉的地方，他有仨人的回避不了。
+
+第一个就是他的安全人员。他除非不用安保。他只要用安保，我就知道。还不用安保人告诉我，因为安保的人一定会开车，安保的人一定会用通信。他什么加密通信胡扯的，在我面前就跟就穿了个透明的衣服一样，就这么简单。那么另外一个它离不了就是他的机要秘书，国家就是机要的军方的，咱只要有证人跟着，我就知道他在哪儿。第三个，他只要在中国，我就知道在哪儿。为什么？他所到之处必然有服务。
+
+这三样呢，除非都枪毙了，都不用，（不然）我一定知道在哪儿，这就是实力。
+
+
+| *发布：tianzhihuan*<br>更多资讯，请关注：<br>[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena<br>[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena<br>[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)<br>[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)<br>[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6) |
+| --- |
+
 
  
 

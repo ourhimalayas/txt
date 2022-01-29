@@ -2,30 +2,37 @@
 ---
 
 
-## 【秘翻在线】拜登将派兵前往东欧
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1926473/)
+## 有声|香港外汇基金2021年投资收益创近三年新低
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1926507/)
 
-**撰稿：Grace**
+配音：香草山农场 – 纳米
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-28-at-9.51.37-PM.jpeg)图片来源：journal-neo
-据《福克斯新闻》1月28日报道，拜登周五告诉记者，他将在 “近期内” 把美国军队调往东欧和北约国家。
 
-报道称，拜登在匹兹堡（Pittsburgh）发表演讲后走下空军一号，发表了上述评论。但是，他没有说将有多少部队前往，他还表示，他没有关于俄罗斯和乌克兰之间紧张局势的最新情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据[OAN网站](https://www.oann.com/hong-kong-exchange-funds-2021-investment-income-at-hk170-5-billion-hkma/)援引路透社1月27日报道，香港金融管理局周四表示，用于支持港元的香港外汇基金在2021年的投资收益为1,705亿港元（219亿美元），同比下降27.7%，为三年来最低。
 
-五角大楼的高级官员周五表示，俄罗斯军队在乌克兰边境的集结是冷战以来规模最大的一次。参谋长联席会议（Joint Chiefs of Staff Chairman）主席马克·米利（Mark Milley）警告说，东欧的冲突将是 “可怕的”。国防部长劳埃德·奥斯汀（Lloyd Austin）强调，这 “并非不可避免”，他坚持认为，在克里姆林宫（Kremlin）继续威胁要对乌克兰进行大规模入侵的情况下，“仍有时间和空间进行外交活动”。
+香港金管局首席执行官余承东认为，随着全球经济复苏放缓、企业盈利增长势头放缓，以及对新病毒变种和地缘政治紧张局势的担忧挥之不去，投资环境将仍然不确定。
 
-据报道，尽管本周早些时候，拜登暗示美国军队可能被调往欧洲， 但他说，“不会有任何美国军队进入乌克兰”，如果俄罗斯开始对乌克兰采取大规模军事行动，这些部队可能会被派往北约前线国家。
+香港金管局是外汇基金的主要管理者，该基金由香港财政司司长监管，投资于股票、债券、外汇和其他证券。
 
-五角大楼发言人约翰·柯比（John Kirby）在周四的新闻发布会上表示，部队包括驻扎在布拉格堡（Fort Bragg）的第82空降师的成员（82nd Airborne Division）和第18空降团（18th Airborne Corps）的成员经常保持高度戒备。
+文字版原文：[香港外汇基金2021年投资收益创近三年新低](https://gnews.org/zh-hans/1925564/)
 
-美国几周来一直在为俄罗斯可能发动对乌克兰的入侵做准备，警告说如果莫斯科实施入侵，后果将不堪设想。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-美国国务院周四明确警告说，如果俄罗斯入侵乌克兰，[北溪2号管道（Nord Stream 2](https://gnews.org/zh-hans/1926081/)）将被闲置在海洋底部。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据报道，目前超过10万名俄罗斯军队在与乌克兰的边界，柯比说五角大楼在过去24小时内继续看到俄罗斯的 “可靠的战斗力量 ”的集结。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**新闻来源：** [Biden sending troops to Eastern Europe soon as Ukraine turmoil intensifies](https://www.foxnews.com/politics/president-biden-sending-troops-to-eastern-europe-as-ukraine-turmoil-intensifies)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

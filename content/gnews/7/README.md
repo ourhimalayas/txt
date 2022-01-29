@@ -2,56 +2,32 @@
 ---
 
 
-## 有声|基辅宣布在与乌克兰的边界上俄罗斯部署了112000名军人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1926518/)
+## 美企业家于反疫苗集会抨击卫生部门不作为
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926544/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月23日，在美国华盛顿特区举行的、数万人参加的反对中共病毒疫苗强制接种政策的集会中，企业家史蒂夫·基尔希强烈抨击了政府卫生部门的不作为。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.55.png)
+基尔希表示，中共病毒疫情大流行其实完全是可以避免的。此前，很多医生开发了相应的早期治疗方案，这些药物治愈了大量的感染病例，且很少有患者死亡。然而，直到现在，美国国立卫生研究院仍然对这些方案不置可否。
 
+基尔希还提到，另一当面，人们被要求为社会利益接种中共病毒疫苗，且没有人被告知过这些疫苗的风险和效益。如今，事实证明，中共病毒疫苗只会加重人们的病情。 此外，基尔希也指出，令人不安的是，美国政府的相关机构，包括FDA、CDC、NIH等都缺乏透明的问责制，这导致没有人愿意在媒体前回答民众关于中共病毒疫情及疫苗所提出的尖锐问题。为此，基尔希强调，在得到明确且令人满意的答案之前，任何人都不应该遵守不合理的强制疫苗政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月28日，据《国际文传电讯社》报道，乌克兰国防部长阿列克谢·雷兹尼科夫（Oleksiy Reznikov）说，大约有112000名俄罗斯军事人员在与乌克兰的边界上，再加上海军和空军部分，他们的人数达到约13万人。
+参考链接：[https://gettr.com/post/pqgun176aa](https://gettr.com/post/pqgun176aa)
 
-“去年4月，俄罗斯拉来的作战部队是126000人。因此，当时和现在的数字是相应的。”雷兹尼科夫周五在最高拉达的《向政府提问一小时》中说，“这种反应是不相称的”。
-
-国防部长说，俄罗斯比春季多部署了300辆坦克，但乌克兰军队今天拥有的现代反坦克武器的数量，如Stugna、Corsair、Javelin和NLAW比潜在目标的数量要多一个数量级。
-
-此外，雷兹尼科夫提请注意，已经观察到俄罗斯北方和波罗的海舰队的六艘大型登陆舰进入地中海并可能进入黑海的过渡情况。
-
-“我们知道他们在船上有哪些海军陆战队单位，甚至更好的是美国海军的航母编队知道这件事。”雷兹尼科夫补充说。
-
-他还表示，今天的军事行动与去年春天发生的情况没有明显的不同。
-
-“在军事方面，我们密切关注的唯一区别是白俄罗斯的局势。本质不同的是混合活动的强度，主要是信息活动，以及这些活动对宏观经济形势的影响。”雷兹尼科夫说。
-
-他强调，乌克兰情报部门、他本人和乌克兰武装部队总司令都与国际伙伴保持联系。“我们有充分的信息，在某些时候，我们宣布了我们的外国同事的数据。”列兹尼科夫具体指出。
-
-此外，乌克兰国防部负责人表示，基辅从合作伙伴那里获得的援助金额比媒体上听到的更乐观。
-
-雷兹尼科夫说：“我不能说出收到的援助的确切数字。”
-
-国防部长对美国、英国、加拿大、瑞典、丹麦、立陶宛、拉脱维亚、爱沙尼亚、捷克、荷兰、西班牙、波兰、土耳其、欧盟领导层、日本、克罗地亚总理安德烈·普连科维奇个人的立场表示感谢。
-
-PS：现代战争下的俄罗斯的军事人员调动，乌克兰及其伙伴已完全掌握，连具体人数都已查明。可想而知中共想打台湾的行动，早已被郭先生、爆料革命及美国军方完全掌控。只要中共敢出手，就是它灭亡的倒计时。
-
-文字版原文：[基辅宣布在与乌克兰的边界上俄罗斯部署了112000名军人](https://gnews.org/zh-hans/1924247/)
-
-音频处理：Tom Li
-发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

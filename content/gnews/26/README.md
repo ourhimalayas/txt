@@ -2,198 +2,60 @@
 ---
 
 
-## 2月2日的听证会将发生什么？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1926334/)
+## 随着“奥米炕”威胁消退，英格兰正解除中共病毒限制
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1926372/)
 
-[https://gtv.org/video/id=61f3b7d7d90bdd2085a165ed](https://gtv.org/video/id=61f3b7d7d90bdd2085a165ed)
+![The Associated Press](https://www.usnews.com/dims4/USNEWS/5385524/2147483647/thumbnail/640x420/quality/85/?url=http%3A%2F%2Fmedia.beam.usnews.com%2F7f%2F9f9ea0b18afa1cdc14b0478f245a24%2Fmedia%3Aae93b3cb5b45483d9c98ab10ea3b105aAPTOPIX_Virus_Outbreak_Britain_74961.jpg)*2022 年 1 月 27 日，星期四，一名戴着口罩以遏制冠状病毒传播的男子在通往伦敦威斯敏斯特地铁站的地下通道中走过一个非政府组织的健康宣传海报。*
+来自《美国新闻与世界报道》网站2022年01月27日的报道，在英国政府表示推出疫苗加强针成功地减少了中共病毒重症和住院人数后，英格兰在周四取消了大部分中共病毒限制，包括强制戴口罩规定。
 
-**郭文贵
-Miles Guo**
+从周四开始，英格兰任何地方根据法律都不再要求戴口罩，进入夜总会和其他大型场所的疫苗通行证的法律要求也被取消了。
 
-那么，2月2号的听证会（将发生）什么？
-Entonces, ¿qué sucederá en la audiencia del 2 de febrero?
+政府上周放弃了对人们在家工作的建议，以及对在教室里戴口罩的要求。从下周起，对养老院到访人数的限制也将被取消。
 
-法官会再（一次）可能是…
-A lo mejor el juez…
+英格兰并不是欧洲本周唯一放弃中共病毒限制的地方。周三，荷兰在一个月后首次将餐馆、酒吧、博物馆和剧院重新开放，作为进一步的放宽限制的一部分。这一措施正值该国感染人数激增之际，不过进入重症监护室的人数一直在下降。
 
-法官就两种可能
-Hay sólo dos posibilidades para el juez
+在丹麦，首相梅特·弗雷德里克森(Mette Frederiksen)周三表示，从2月1日起，丹麦人可以自由进入餐馆、博物馆和夜总会，而且乘坐公共交通和在商店中戴口罩的强制性要求也将被取消。
 
-一个判这船不是Miles Guo的
-Una posibilidad es que sentencie que el yate no es de Miles Guo
+相比之下，德国领导人本周决定保持该国现有的限制措施，包括限制私人聚会的规模，因为奥米炕(omicron)病毒变种继续推动感染人数的急剧上升。
 
-一个判是Miles的
-Y el otro es que sea de Miles
+英格兰所谓的“B计划”措施是在12月初推出的，目的是阻止omicron的快速传播，防止其压垮公共卫生机构，并为民众接种疫苗加强针争取时间。
 
-纽约美国的法官是没有做出判决
-Recuerda que el juez de Nueva York no tiene autorización para hacer esta sentencia
+官员们周四说，英格兰12岁以上的人中，近84%已经接种了第二剂疫苗，而在符合条件的人中，81%已经接种了加强针疫苗。
 
-没有权利做出这样的决定的
-No tiene derecho a tomar esa decisión
+入院人数和在重症监护室的人数已经稳定或下降，每天的病例已经从新年前后超过20万的峰值下降到10万以下。
 
-但是他会强烈影响BVI（英属维京群岛）
-Pero él influenciará fuertemente al BVI (British Virgin Islands)
+首相鲍里斯·约翰逊(Boris Johnson)上周表示，奥米炕感染病例的激增“现在已经在全国范围内达到了顶峰”。
 
-你在美国看到这个案子
-Si ves este tipo de casos en Estados Unidos
+卫生部长萨吉德·贾维德(Sajid Javid)说，疫苗的推广、病毒的检测和抗病毒治疗的开发结合起来，形成了“欧洲最强大的一些防御屏障”，使得欧洲“小心翼翼地恢复”到正常状态。
 
-你知道比中共国
-Sabrás que en comparación con China comunista
+但他补充说，“当我们学会与新冠病毒相处时，我们需要清楚地认识到这种病毒不会消失”。虽然感染率继续下降，但卫生官员说，奥米炕在全国各地仍然普遍存在，特别是在儿童和老年人中。在英格兰，病毒疫苗不提供给12岁以下的儿童。
 
-那个被抓起来的那个张明鹏
-Ese Zhang Mingpeng que fue arrestado
+苏格兰、威尔士和北爱尔兰制定了自己的公共卫生规则，也同样放松了对病毒的限制。
 
-大连西（岗）区的法院判李友案
-El tribunal del distrito Xigang, Dalian, sentenció el caso de Li You
+尽管法律要求被撤销，但一些商店——包括大型连锁超市森宝利(Sainsbury’s)和乐购(Tesco)——以及公共交通运营商表示，他们将继续要求人们戴上口罩。伦敦市长萨迪克·汗(Sadiq Khan)说，在首都的公共汽车和地铁列车上仍然需要戴口罩，但目前还不清楚这将如何执行。
 
-受贿几个亿的，你比那
-Aceptó cientos de millones de soborno, y si comparas con ese caso
-你觉得这个案子跟那个有一拼吧
-Crees que este caso tiene comparación con ese
+法律仍要求那些感染者自我隔离整整五天，但约翰逊说这项措施也将很快结束，取而代之的是建议和指导感染者谨慎行事。
 
-最可怕的（是）
-Lo más temible es
+英国卫生官员表示，他们正在计划一个更长期的、大流行后的策略，将中共病毒更多地作为流感对待。
 
-程序正义在那里？
-¿Dónde está el proceso justo?
+简评：自中共病毒在全球爆发两年以来，英国政府一直采取限制政策来阻止疫苗的传播。在全民84%的民众打了两针疫苗的情况下，英国每天也有大量的民众被感染。事实本身就验证了中共病毒疫苗的无效性。至于疫苗能减少重症更是无稽之谈，且不说中共病毒疫苗的危害性已经被诸多医学界专家以及一线医护人员曝光，单从自然发展规律来看，病毒在传播过程中为了更长久地在宿主体内生存，变种病毒的毒性也会逐渐降低，甚至消失。何况可以确认的是，中共病毒是中共政权实验室制造的产物，当中共病毒疫苗最终被证明是黑暗势力毁灭人类的武器的时候，那些强推疫苗接种的政府和组织，必将受到人类的审判。
 
-对方就是这一次
-¿Es sólo esta vez que los abogados opositores
+新闻链接:[https://www.usnews.com/news/world/articles/2022-01-26/england-lifts-covid-restrictions-as-omicron-threat-recedes](https://www.usnews.com/news/world/articles/2022-01-26/england-lifts-covid-restrictions-as-omicron-threat-recedes)
 
-强烈地违反职业道德造假吗？
-Violaran fuertemente la ética profesional y falsificaron las evidencias?
+翻译/简评: kkoto(芬兰大灰狼)
 
-多维网站
-El DuoWei News
-
-竟然我们告多维网站，也不让我们告
-Hasta no nos dejan demandar esa página
-
-取证也不让取
-Y tampoco dejan recolectar las evidencias
-
-但是，对方这给我们subpoena（传票）
-Pero, el abogado opositor nos dió subpoena (citación)
-
-超过六十三个人
-Más de 63 personas
-
-应该是七八十个人
-Debe ser 70-80 personas
-
-完全跟他没有关系
-Sin nada que ver con él
-
-全部发subponena（传票）
-A todos les han mandado citación
-发subpoena要什么，你知道吗？
-¿Sabes para qué mandan la citación?
-
-就要三样东西
-Sólo quieren 3 cosas
-
-你的钱，帐单
-Tu dinero, tu cuenta
-
-你的背后控制人
-Y la persona que controla detrás de ti
-
-第三个（是）现在你所有的个人信息
-El tercero es ahora todas tus informaciones personales
-
-战友们，你知道（世界上）谁最想要这东西？
-Compañeros luchadores, ¿sabes quién (en este mundo) es el que más quiere estas cosas?
-
-它只有共产党啊
-Solo el PCCh
-
-为什么PAG要调查的是
-¿Por qué las investigaciones de la Alianza del Pacífico
-
-subpoena（传票）的东西都是
-Las citaciones son cosas que
-
-共产党最想要的呢？
-Más quiere el Partido Comunista?
-
-我们国内被抓的战友
-Los compañeros luchadores arrestados en China
-
-GTV投资者的所有战友，被抓的人
-Todos los compañeros luchadores inversores de GTV, las personas que fueron arrestadas
-
-所有的都是被索要这三样东西
-A todos les han pedido estas 3 cosas
-
-为什么和太平联盟又弄一起了？
-¿Por qué otra vez se juntaron las cosas de la Alianza del Pacífico?
-
-为什么又偏偏是一个太平联盟的吴征
-Por qué casualmente es un Wu Zheng de la Alianza del Pacífico
-
-海航，王岐山
-HNA Group, Wang Qishan
-
-而且就在上海和北京银泰
-Además, ahorita está en Shanghai y Beijing Yintai Centre
-
-国贸中心圈的这些律师事务所
-Estos bufetes de abogados en el Círculo del World Trade Center de China
-
-掺和在一起
-Están mezclados
-
-他们之间又有什么利益？
-¿Cuáles son los beneficios que hay entre ellos?
-
-和代表马云的律师事务所
-Y la firma de abogados que representa a Jack Ma
-
-他们又有什么利益？
-¿Cuáles son sus beneficios?
-
-难道跟这个美国司法部（腐败案有什么关系）
-¿Podría tener algo que ver con este Departamento de Justicia de EE. UU. (caso de corrupción)?
-
-Higginbotham, Elliott Broidy
-Higginbotham, Elliott Broidy
-
-Nickie Lum Davis, Steve Wynn
-Nickie Lum Davis, Steve Wynn
-
-美国司法部副部长都牵扯其内
-El viceministro del Departamento de Justicia de EE. UU también está involucrado
-
-都要被说服
-Ya serán convencidos
-
-跟这件事情有没有牵连呢？
-¿Y no tendrá relación con este asunto?
-
-谁能说没牵连呢？
-¿Quién puede decir que no tiene relación?
+PR:Harvey（叶知秋）
 
 * * *
 
-日期：01/26/2022
-原视频标题：1/17/2022 文贵直播：2月2日的听证会将发生什么？为何说太平联盟案跟大连西岗区张明鹏判的李友案有的一比？太平联盟发传票要求提供的信息为何恰恰是中共最想要的？吴征、王岐山和在中共国设办公室的律所之间有何勾当？美国司法部史上最大腐败案的涉案人员和太平联盟案有何关联？
-17/01/2022 Transmisión en Vivo de Miles: ¿Qué sucederá en la audiencia del 2 de febrero?, ¿por qué se dice que se puede comparar el asunto de la Alianza del Pacífico con el caso de la sentencia de Li You por Zhang Mingpeng en el distrito Xigang, Dalian? ¿Cuál es el trato entre Wu Zheng, Wang Qishan y la firma de abogados con la oficina establecida en China comunista? ¿Cuál es la conexión entre las personas involucradas en el caso de corrupción más grande en la historia del Departamento de Justicia de EE. UU. y el caso de la Alianza del Pacífico?
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原视频日期：01/19/2022
-原视频网址：[https://gettr.com/post/pp6o5v0de7](https://gettr.com/post/pp6o5v0de7)
-任务编号：KC434（3536）
-视频时间段：0:00-02:01
 
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
