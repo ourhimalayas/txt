@@ -2,45 +2,35 @@
 ---
 
 
-## 加政府未阻止中企9亿加元收购其锂矿企业
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1929424/)
+## 有声|男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929469/)
 
-作者：加拿大温哥华扬帆农场 Spirit
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+1月24日，外媒报道，一名男子因未接种中共病毒疫苗，导致无法接受心脏移植手术，目前徘徊在生死边缘。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+ 该男子的父亲大卫·弗格森在接受媒体采访时说到，31岁的儿子DJ本来排在接受移植手术的前列，但由于他拒绝接种中共病毒疫苗，医院根据相关政策将 他从移植名单上删除。 该医院认为，疫苗是麻省总医院布里格姆系统对移植候选人进行选择的必要条件之一。 纽约大学格罗斯曼医学院的阿瑟·卡普兰博士对此解释说，实施移植手术后，病人的免疫系统都是关闭的，接种疫苗的人在手术后会有更好的生存机会。
 
+原文链接：[男子因拒绝接种疫苗 遭到医院拒绝为其进行心脏移植手术](https://gnews.org/zh-hans/1919676/)
 
-根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
+音频处理/发稿：Daxia
 
-在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
-
-反对党保守党表示，自由党政府本应阻止紫金矿业(601899.SS)去年以9.187亿加元(7.213亿美元)收购Neo Lithium(NLC.V) 。加拿大在与美国加紧关键矿物的区域的合作，以对抗中共主导地位，允许这宗收购的决定不合理。
-
-Neo Lithium的矿产储备是由碳酸锂组成，用于电动汽车电池生产。去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-420.jpeg)图片来源：路透社
-
-参考链接[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-421.jpeg)
-
-编辑/校对/发稿：文敬
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
  

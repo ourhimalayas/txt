@@ -2,39 +2,42 @@
 ---
 
 
-## 有声|加拿大疫苗抗议活动升温 直逼特鲁多
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929638/)
+## 有声|佳能珠海撤出中共国， 高额补偿金引热议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929648/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山巡管部– 文凯琳
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据当地媒体报道，由于加拿大联邦政府持续推行针对卡车司机的中共病毒疫苗强制接种政策，自1月23日起，一大批卡车司机开始向加拿大首都渥太华进发，而他们的目的地则是于本月29日在那里举办的抗议强制疫苗令的集会。届时，预计将有来自全国各地的五千至一万辆卡车参与其中。
 
-与此同时，加拿大的商业领袖们也正在敦促渥太华放弃对跨境卡车司机实行的疫苗强制令，用以缓解当地与美国之间拥堵的供应链。加拿大商会主席表示，政府需要明白来自卡车司机所提供的服务至关重要，即使在最严重的大流行病浪潮中也需要他们来保持供应链的正常运转。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
-截止1月26日，名为“自由车队”的卡车队伍已经得到了超过一百万加拿大人的支持，他们正在逐渐逼近渥太华。消息显示，参与抗议的加拿大民众将矛头直指总理特鲁多，即要么特鲁多辞职，要么政府取消所有关于中共病毒及疫苗的强制措施。对此，有报道提及，在寻求加拿大皇家骑警和军方介入无果的情况下，特鲁多以“接触了中共病毒”为由，进行了所谓的“居家隔离”。
 
-另外，截至目前，此次抗议活动已经在相关网站上募集了超过630万加元的资金，有八万多加拿大民众踊跃捐款。
 
-文字版原文：[加拿大疫苗抗议活动升温 直逼特鲁多](https://gnews.org/zh-hans/1926543/)
+佳能珠海宣布撤出中共国后，于1月16日公布了针对员工的补偿金标准。根据公告，补偿金包括经济补偿金、特别慰劳金、就业支援金、感怀铭记奖金以及春节慰问金等。据一些人测算，如果一个员工2003年进入企业，月工资1万元，可以获得高达37万元的经济补偿。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+近两年，随着世界与中共国的全方位脱钩，很多在大陆经营多年的外资企业陆续撤离，佳能珠海也和他们一样，撤离时给予员工的高额补偿引起了国内民众的多种议论。有羡慕者认为外资企业各项制度都优于国内企业，有批评者则站在中共的立场，认为这些企业扰乱了市场环境。
+
+原文链接：[佳能珠海撤出中共国， 高额补偿金引热议](https://gnews.org/zh-hans/1923281/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

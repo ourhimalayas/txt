@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929617/)
+## 有声|天才出走始末
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929632/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山巡管部– 文凯琳
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+今天在公众号看到许晨阳教授说的几句话，深有感触，更有同感。
 
+北大数院曾出现我国数学界最出色的几位青年数学家，可惜目前仅有一人留在国内，其他几位全部在共产党所描绘的地狱国，自由民主法制的灯塔国，美国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-周二(25日)，在乌克兰里斯波尔国际机场，该国人员卸下了来自美国的大约 300 枚标枪导弹、肩扛式多用途攻击武器和掩体炸弹。 其他北约成员国也提供军事装备，协助保卫乌克兰。
+许晨阳是那一代中的天骄，在美国学成后怀揣报效国家之情怀回归北大，但在6年后再次离开，留下了3句发人深省的话。
 
-同日美国政府高级官员警告说 : 如果俄罗斯入侵乌克兰，并对欧洲各国发切断天然气燃料供应的话，拜登政府准备实施制裁，其后果严重。
+原文链接：[天才出走始末](https://gnews.org/zh-hans/1923879/)
 
-拜登总统还警告要对俄罗斯总统普京实施个人制裁。英国首相鲍里斯•约翰逊周二(25日)表示，英国和美国已讨论阻止俄罗斯进入 SWIFT 国际支付系统。他说，这样的举动将“成为一种非常有力的武器”，并指出美国的合作对于实施这样的行动是必要的。
+音频处理/发稿：Daxia
 
-文字版原文：[美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响](https://gnews.org/zh-hans/1926092/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
