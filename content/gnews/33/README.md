@@ -2,32 +2,39 @@
 ---
 
 
-## 瑞典不建议为12岁以下儿童接种中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929543/)
+## 有声|天才出走始末
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929632/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月27日，据相关媒体报道，瑞典卫生局于当天发布声明表示，政府不建议当地5至11岁的儿童接种中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.27.png)
-瑞典卫生局的官员在新闻发布会上指出，当前所有的研究结果都明确显示，儿童患严重疾病的风险很低，但中共病毒疫苗所带来的危险性远远却超过它的防护性。
+配音：香草山巡管部– 文凯琳
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+今天在公众号看到许晨阳教授说的几句话，深有感触，更有同感。
 
-据悉，本月26日，瑞典当日新增了超过四万例中共病毒感染病例，达到了该国自大流行以来的单日确诊峰值，这也让瑞典政府延长了该国所有关于中共病毒疫情的限制措施。但另一方面，瑞典当局正在计划于2月9日逐步取消这些限制。
+北大数院曾出现我国数学界最出色的几位青年数学家，可惜目前仅有一人留在国内，其他几位全部在共产党所描绘的地狱国，自由民主法制的灯塔国，美国。
 
-参考链接：[Sweden decides against recommending COVID vaccines for kids aged 5-11](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
+许晨阳是那一代中的天骄，在美国学成后怀揣报效国家之情怀回归北大，但在6年后再次离开，留下了3句发人深省的话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+原文链接：[天才出走始末](https://gnews.org/zh-hans/1923879/)
 
-总编：文特
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
