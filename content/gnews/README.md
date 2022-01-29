@@ -15,58 +15,58 @@
 
 ---
 
-### [两件震惊世界的事（二）](/content/gnews/1/README.md)
+### [为战友供应青蒿素](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [两件震惊世界的事（一）](/content/gnews/2/README.md)
+### [两件震惊世界的事（二）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [美国联邦通信委员会撤销中国联通营运授权](/content/gnews/3/README.md)
+### [两件震惊世界的事（一）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [美国联邦通信委员会撤销中国联通营运授权](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥金句](/content/gnews/4/README.md)
+### [七哥金句](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵先生1.27大直播精要](/content/gnews/5/README.md)
+### [郭文贵先生1.27大直播精要](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报（01/21/2022）](/content/gnews/6/README.md)
+### [五月花简报（01/21/2022）](/content/gnews/7/README.md)
  ` mayflowertranslate`
 
-### [七哥金句](/content/gnews/7/README.md)
+### [七哥金句](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [2022年1月29日《樱花简报》：日本新增中共病毒确诊近8万人 连续3天创新高](/content/gnews/8/README.md)
+### [2022年1月29日《樱花简报》：日本新增中共病毒确诊近8万人 连续3天创新高](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [他帮助撰写了宪章。 现在他说政府正在违反它。](/content/gnews/9/README.md)
+### [他帮助撰写了宪章。 现在他说政府正在违反它。](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [美国Omicron单日死亡超过Delta 总死亡](/content/gnews/10/README.md)
+### [美国Omicron单日死亡超过Delta 总死亡](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [新冠疫苗中到底有什么 （二）？](/content/gnews/11/README.md)
+### [新冠疫苗中到底有什么 （二）？](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [卡车司机想要什么？为什么渥太华不能给他们？](/content/gnews/12/README.md)
+### [卡车司机想要什么？为什么渥太华不能给他们？](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置](/content/gnews/13/README.md)
+### [【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党虐待出卖这些国家的所有人的利益](/content/gnews/14/README.md)
+### [共产党虐待出卖这些国家的所有人的利益](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [特鲁多猛烈抨击卡车司机对COVID疫苗授权的“恐慌散布”](/content/gnews/15/README.md)
+### [特鲁多猛烈抨击卡车司机对COVID疫苗授权的“恐慌散布”](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [标普500指数和纳指上演历史最强日内反弹](/content/gnews/16/README.md)
+### [标普500指数和纳指上演历史最强日内反弹](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [G系列的魅力（2）](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [G系列的魅力（1）](/content/gnews/18/README.md)
+### [G系列的魅力（2）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
 ### [《历史的今天》2022.01.29](/content/gnews/19/README.md)
