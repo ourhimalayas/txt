@@ -2,35 +2,50 @@
 ---
 
 
-## 喜联储KYC绝对是最高境界
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927121/)
+## 美提书面答复，力促俄奉行外交路线化解乌克兰危机
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927177/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/喜联储KYC绝对是最高境界-.jpg)
-直播时间：2021.12.01
+作者：台湾宝岛农场—dobi
 
-现在美国是对于这个数字货币，有监管方面的要求，其实他主要就是害怕两件事情，一个就是逃税，就是国家收入会减少，所以他对这个事情关心的比较多。那另外就是安全方面的这个隐患。
 
-那么对喜币来说，在设计之初就是一个合规的数字货币，所以对我们来说应该并不是一件坏事。
 
-现在美国方面是有各种各样新的规定出来是要规范虚拟货币的市场，我们都一致觉得说对喜联储喜币来说是一件好事，因为我们设计之初就是已经是考虑到了这些合规性，那么我刚刚是有一个问题是说，就是我们马上开启支付了嘛，美加日现在整个市场还没有被打开，法律法规是对于我们这个美加日市场打开是有好处呢？还是说会有一个推迟效应？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-36.jpg)
 
-大家一定要记住，我现在跟喜联储之间，这个从上一次到现在这个，由于这个坏的事情，搞得我们连个会都不开了啊。他们强调是KYC，他说我们的价值就是KYC确实没错，是目前世界上最严的。
 
-这是为什么现在大量的几亿的十几亿的都要进HDO，但是这些人来的目的就是因为你KYC，包括现在欧洲美国日本，中东好多大的地产公司，汽车公司都要接受HCN来做交易，任何一个象征性的交易，都是了不得的。请问，比特币、火币还有什么？币安这么多是1万4000个币，有几个币在市场上被大型的严肃性的企业接受，他不流通。
 
-数字货币的核心你不流通，屁都不是。你要流通你就一定跟法币连在一起，你不能成为一个洗钱的工具偷税的工具，那是没有未来的。这就是比特币最终会消亡的。你确实是跟法币联系，你必须要受监管，受监管就是要KYC。
+在俄罗斯和乌克兰冲突一触即发的危机局势中，俄罗斯要求北约和美国不得同意乌克兰加入北约盟国，并反对北约盟国提供乌克兰安全协助。俄罗斯将“乌克兰寻求加入北约”或北约盟国提供乌克兰安全协助，泛称为“北约东扩”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/de58493d62fdc612.jpg)
+针对俄罗斯的要求，美国和北约盟友目前虽仍未松口，但美国答应以书面方式回复俄罗斯；北约也在26日向俄罗斯大使馆交付书面答复，并宣称北约与美国立场一致，呼吁俄罗斯退兵。
 
-所以战们一定看到，现在喜联储的核心就是KYC。
+美国国务卿布林肯（Antony Blinken）表示，就看俄罗斯反应，美国准备好进入下一步协商，力促俄罗斯奉行外交路线。
 
-发布：*皮特*
+俄罗斯外交部长拉夫罗夫（Sergey Lavro）则表示，若不满意美方答复，不会坐视俄罗斯的要求陷入无尽的讨论，且若西方持续胁迫，莫斯科将会采取必要的报复作为。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考来源：
+
+[美提書面答覆 力促俄奉行外交路線化解烏克蘭危機](https://udn.com/news/story/122663/6063923?from=udn-catelistnews_ch2》)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-15.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-39.jpg)
+
+
 
  
 

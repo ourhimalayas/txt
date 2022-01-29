@@ -2,18 +2,50 @@
 ---
 
 
-## 秘翻在线：战狼狂吠的代价是中美两国人民
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1926986/)
+## 由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927080/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/画像1-38.png)（图片源自本文链接）
-日本朝日新闻1月29日报道称：中共国驻美国大使秦刚，28日在接受美国公共广播电台（NPR）采访时说：如果台湾在台独道路上继续走下去，美中之间很有可能发生 “军事冲突”。这句话，是对美国支持台湾的蔡英文政府之强烈牵制。中共国驻美国大使肆意提及美中在台湾问题上发生军事冲突的可能性，很可能会在美国引起争议。
+作者：首尔天池农场—zzballack
 
-当被问及美国对中国入侵台湾的担忧时，秦刚说：我们将尽最大努力实现和平统一，但不会放弃使用非和平手段。他还警告说：如果台湾当局在美国的激励下继续走台独道路，那么美中两国很有可能会被卷入军事冲突。
 
-秦刚，作为中共豢养的战狼一匹，其努力方向就是令中共满意。才不管战争将带给中美两国人民的是什么！
 
-信息源：[「台湾、独立へ歩み続ければ…」　駐米中国大使、米中「衝突」に言及（朝日新聞デジタル） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/cb29cf6b41bd1e139c49174b3a4c8d3aa8ba3be9)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-34.jpg)
+
+
+
+《路透社》1月25日报道，由于美国政府无力阻止中共当局采取侵入性的大流行病控制措施，美国国务院正准备授权希望美国在华外交官及其家属离开中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/125-.jpg)
+两位熟悉这一问题的消息人士说，本周一（1月24日），美国大使馆已将这一请求送交华盛顿正式签署。因为在距北京冬奥会开幕不到两周之际，中共政府准备实施更严格的防疫限制令。 一位人士说，美国大使馆进行的一项内部调查显示，多达25%的工作人员和家属会选择尽快离开中共国。另一位人士说，在整个大流行病期间，大使馆领导层未能从中共那里获得有关美国外交官待遇的适当保证。
+
+根据郭文贵先生在1月25日的“甜蜜蜜”大直播中所说，其实美国早在1个多月前就把大使馆重要的东西运走了，只是为了让人员体面的离开，择机选择发布撤离公告。这件事是全世界多个政治力量共同推动的结果，但新中国联邦无疑是最重要的推动者。 只要美国撤离，欧洲、日本乃至全世界都会跟着撤。中共政权过去存在的合法性就在于美国的驻华大使馆，一旦美国驻华大使馆撤离，中共也就名存实亡了。
+
+参考来源：
+
+1.https://gtv.org/video/id=61f092fe28a108147c62bba4
+
+2.[U.S. weighs letting diplomats leave China over tough COVID rules](https://www.reuters.com/world/china/us-considers-allowing-diplomats-leave-china-over-strict-covid-rules-2022-01-25/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-13.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-35.jpg)
+
+
 
  
 

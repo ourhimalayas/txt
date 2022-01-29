@@ -2,8 +2,8 @@
 ---
 
 
-## 爹娘是自己最好的老师
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927091/)
+## 一步一脚印物理的生活
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927155/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
