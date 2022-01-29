@@ -2,12 +2,31 @@
 ---
 
 
-## 泽连科医生分享对抗COVID的“枪和子弹”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928958/)
+## 樱花灭共诗——陪故人登红莲湖北阁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929012/)
 
-01/24/2022 泽连科医生：我们需要枪和子弹来杀死病毒。锌就是子弹。硫酸羟氯喹和伊维菌素是枪。但这种药物需要处方。现在可以在柜台买到槲皮素，连同维他命C，维他命D和锌，它们组成有效单位可以杀死病毒。
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-526.jpg)
+北岸凭高阁，
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+登临我与君。
+
+大湖淹落日，
+
+垂柳傍浮云。
+
+衙署犹能见，
+
+苍梧不可闻。
+
+抚栏伤世道，
+
+悲诉夜无垠。
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

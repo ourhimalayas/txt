@@ -2,31 +2,36 @@
 ---
 
 
-## 樱花灭共诗——陪故人登红莲湖北阁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929012/)
+## 瑞典卫生机构不建议为5至11岁的儿童接种新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1929105/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-526.jpg)
-北岸凭高阁，
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-登临我与君。
+整理：Sara9
+编辑：Little Lamp
 
-大湖淹落日，
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-1.png)图片来源：雅典娜设计组
 
-垂柳傍浮云。
 
-衙署犹能见，
+瑞典卫生机构将不建议为5至11岁的儿童接种新冠疫苗，称接种的益处并没有高于风险。瑞典卫生官员称，新冠在儿童中引起严重疾病的风险很低，但如果研究证明发生变化，或者出现了新的变种，这一决定可能被推翻。
 
-苍梧不可闻。
+澳大利亚全国内阁尚未就澳大利亚人是否需要接种三剂新冠疫苗才能被视为完全免疫作出决定。
 
-抚栏伤世道，
+澳大利亚免疫技术咨询小组（ATAGI）仍在确定完全免疫的定义，并建议当该定义确定后，将由各州和地区修改各自的公共卫生命令。
 
-悲诉夜无垠。
+维多利亚州州长安德鲁斯称，该定义应包括加强针。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+他说：“这不是接种两针的事，或者两针和一个附加的，这是一个接种三剂疫苗的项目，只有接种三针，才有希望得到适当的保护，防止严重的疾病，将传播这种病毒的可能性降到最低。”
 
+文章来源：[瑞典卫生机构不建议为5至11岁的儿童接种新冠疫苗](https://www.sbs.com.au/chinese/mandarin/zh-hans/sweden-s-health-agency-will-not-recommend-covid-vaccines-for-children-aged-5-to-11)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
