@@ -2,48 +2,36 @@
 ---
 
 
-## 奥地利将结束封锁未接种者 下周起强制接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1928533/)
+## “甜蜜蜜”运动将在各个领域全面开花
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1928546/)
 
-编译： Mandel
+作者：纽约香草山文艺部 宁文静
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-34.png)图片来源：[www.euronews.com](https://www.euronews.com/2021/12/10/austria-anti-vaxxers-will-be-hit-with-3-600-fine-for-refusing-covid-19-jab)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-奥地利周三宣布结束对未接种疫苗者的封锁，因为它准备从下周起成为第一个强制接种新冠疫苗的欧盟国家。
+郭文贵先生在1月27日的大直播中解析了美国率先撤离驻北京大使馆的重大意义。郭先生指出，“甜蜜蜜”运动将在外交撤馆、宗教抵制、金融制裁和中共高官海外资产查封等各个方面掀起蝴蝶效应。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-29-at-8.58.25-PM.png)
+郭先生分析道，美国政府这次“授权撤离”驻北京大使馆的策略在于与中共不断不交。同时，虽然美方给出的理由是软的，但其手段绝对强硬。于美国而言，干掉中共独裁政权不是任何党派的决定，而是出于国家安全的考虑，也是美国20年来的国家战略。如今，美国率先撤馆将起到示范作用，从而引发国际社会对中共的群起而攻之。
 
-去年11月，奥地利政府下令那些没有接种疫苗或最近从中共病毒中恢复过来的人呆在家里，只有有限的例外，比如去上班，因为该国正在与激增的感染人数作斗争。
+郭先生补充道，截至目前，“甜蜜蜜”运动已经带动了全球50多个国家计划从北京撤馆，当中甚至包括了中共所谓的“铁哥们儿”巴基斯坦。而更加令人振奋的是，自1月26日起，一百多个国际金融机构和三十多个国际非政府组织已经开始研究如何配合美国制裁中共高官并查封他们在海外的资产。其中，国际货币基金组织一位德高望重的官员表示，该组织会穷尽一切金融手段惩戒中共政府。
 
-但由于重症监护室没有达到饱和状态，奥地利总理卡尔·内哈默 (Karl Nehammer) 说，要求呆在家里的规定将从下周一开始取消。
+郭先生最后强调，对于中共政府来说，断交是抽筋，而查封非法资产就是放血。为此，在失去美国认可和经济支撑的情况下，中共政权的溃亡指日可待。
 
-然而，未接种疫苗的人仍将面临限制。餐馆、旅店、文化和体育场馆都要求客人接种疫苗或者是最近康复了的。
+参考链接：[2022年1月27日 文贵大直播：(1) 卧薪尝胆三十载 爆料革命整五年 正道至善得人心 除恶建邦开纪元](https://gtv.org/video/id=61f297e628a108147c63ad37)
 
-“我们的首要任务是尽可能地减少限制，而且只在绝对必要的情况下才进行限制。”内哈默告诉记者。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-他说：“对未接种疫苗者的封锁是可以采取的最严格措施之一。目前医院里的情况允许我们结束对未接种疫苗者的封锁。”
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
-周三，奥地利每天激增的新感染病例创下了新纪录。这个拥有近900万人口的国家已经出现了160多万个病例和1.4万人死亡。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-上周四，尽管出现了抗议浪潮，但议会还是批准从2月4日起对成年人强制接种新冠疫苗。
-
-到目前为止，72%的奥地利居民已经完全接种了新冠疫苗。
-
-根据新的法律，在起始的“初步阶段”之后，从3月中旬开始，那些坚持反对注射疫苗的人可能面临高达3600欧元（4100美元）的罚款。
-
-尽管厄瓜多尔、印度尼西亚、密克罗尼西亚、塔吉克斯坦和土库曼斯坦已经引入了此类计划，但强制接种新冠疫苗在全世界都很罕见。
-
-由news18于2022年1月26日报道。
-
-**参考资料：**[news18][Austria to End Lockdown for Covid Unvaccinated, Jabs Mandatory from Next Week](https://www.news18.com/news/india/austria-to-end-lockdown-for-covid-unvaccinated-jabs-mandatory-from-next-week-4701344.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
