@@ -2,47 +2,24 @@
 ---
 
 
-## 美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926249/)
+## 蓝枫法律税务专栏—是否喜币不变现就涉及税务问题
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1926282/)
 
-作者：首尔天池农场—zzballack
+#### 加拿大温哥华扬帆农场 蓝枫法律
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+到现在为止无论从白皮书上还是各方面的信息里面还没有一个明确的规定，而从七哥所讲的理解来说，它整个的设计是在太空里的一条船，只有我们在太空里面不停的转动，不接触地面，那么在地面的税就不能收，但是你的东西一旦到了地面就可以。
 
+其中具体有一个，七哥举过一个例子，你在GCLUB里面买的东西，没问题，你买的东西送到你在加拿大的家里，那么加拿大就可以说那你这个东西要付税的，这个在白皮书里面也提到过，在税务这一栏里面，所以现在政府如何来看待这个事情，现在没有讲，因为最难的一个地方它是用法币，到底你用喜币或者用喜美元买了多少，用怎样的价钱来算，他现在没有一个规定能做到。
+![OECD to introduce digital currency tax standards in 2021 - CoinGeek](https://coingeek.com/wp-content/uploads/2020/11/oecd-to-introduce-digital-currency-tax-standards-in-2021-1200x675.jpg)CoinGeek
+没有规定，没有税单的情况下，到现在为止他也不知道，你也没得报，许多地方的国家，比如在海外的某一个国家，或者在非洲的跟加拿大没有关系的国家，他那边给你开的收入，没有报出来过，那么加拿大政府不知道的，但是你作为一个加拿大报税的居民你是需要上报的，但是他没有办法查你，对你来说是需要报的，你如果对他有欺瞒，它可以永久的追你。
 
+可以说在世界上各地，在加拿大这个国家里面，无论怎样他都要拿你，现在还剩下最后一个，就是说这个资产不在你名下，税务就和你没有关系，如何来达到这一步，下面我们一年多两年里面都要挑战。
 
+直播视频链接：
 
+[第四十期 一 金融税务专题](https://gtv.org/video/id=61ec9c46533c672fca81492e)
 
-据《网关专家》1月26日报道，1月24日，参议员罗恩·约翰逊 在华盛顿特区主持了一个长达五小时的小组会议，会议名为《新冠病毒：第二种观点》。与会人员包括几位世界知名的医生和医学专家。
-
-在这次会议上，来自俄亥俄州的托马斯·伦茨律师展示了国防部医疗流行病学数据库中的医疗账单数据。这些数据揭示了自一年前新冠疫苗推出以来，军人的健康情况所发生的变化，这些真相令人不安。 伦茨律师说，美军中确诊的几种严重疾病患者人数出现了天文数字的增长。其中最令人担忧的是癌症，2021年前10个月的癌症患者比2016至2020年这五年的平均值增加了300%，流产率也增加了300%。神经系统疾病患者增加了10倍之多，这将直接影响到美军的军事准备活动，特别是美国空军。
-
-伦茨律师说：“神经系统问题会影响我们的飞行员，病例增加了1000%以上。从过去每年的82000人增加到现在的863000 人，大批飞行员受到影响。士兵接种实验性疫苗后受伤或者死亡。”约翰逊参议员对10倍的增长率感到震惊。伦茨还作证说，自从军方吹哨人从DMED系统中调出数据后，一些数据，特别是与心肌炎有关的数据被篡改，表明联邦政府正试图掩盖真相。
-
-军方的三位军医吹哨人在宣誓后提供了他们的证词，伦茨律师将在联邦法院使用这些证词。 另外，伦茨律师在接受《The Blaze》采访时提供了他没在会议上提到的数据：军队中的心肌埂塞病例增加了269%，贝尔氏麻痹症病例增加了291%，军人孩子中的先天性畸形病例增加了156%，女性不孕人数增加471%，肺栓塞病例增加了467%。这些数据只是“冰山一角”，伦茨未来还将公布更多数据。
-
-这些数据直接来自美国军方的国防部医疗流行病学数据库（DMED）系统，该系统相当于美国的疫苗不良反应事件报告系统（VAERS）。但DMED系统只有军医可以访问，并记录军队中的每一个病例，用于保险结算（insurance billing），这与VAERS不同，使得它非常准确。
-
-霍洛维茨指出，联邦政府机构美国食品药品监管局（FDA）、疾控中心（CDC）、国防部（DoD）很容易获得这些军事医疗信息，这些机构制造了我们正在经历的公共卫生噩梦。他们很清楚确诊的与实验性疫苗有关的危及生命疾病病例急剧上升，但他们决定向公众掩盖这些信息，同时继续强迫人们接种更多的疫苗。
-
-
-
-参考链接：
-
-1. [https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/](https://www.thegatewaypundit.com/2022/01/whistleblowers-reveal-dod-medical-data-showing-military-cancer-diagnoses-tripled-since-rollout-experimental-vaccines-along-10x-increase-neurological-disorders-near-5x/) 2. [https://thecovidworld.com/attorney-thomas-renz-shares-shocking-vaccine-injury-numbers-from-us-military-whistleblowers/](https://thecovidworld.com/attorney-thomas-renz-shares-shocking-vaccine-injury-numbers-from-us-military-whistleblowers/)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-33.jpg)
+编辑/发文：蓝枫法律栏目
 
  
 

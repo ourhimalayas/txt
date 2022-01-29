@@ -2,29 +2,37 @@
 ---
 
 
-## 人类历史偶尔会被某个精神患者改变
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926251/)
+## 谷歌因欺骗性位置跟踪与监控被美国多个州起诉
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926298/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/人类历史偶尔会被某个精神患者改变_01.jpg)
-直播时间：2021.12.01
+作者：银河系农场—骄子
 
-习近平这场大局里面，给中国和世界带来最重要灾难的两个人，王岐山和孟建柱就是当年毛泽东身边的康生和周恩来。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
-首先一点，习近平肯定不正常，就是精神病，心理也不正常，人格不正常的变态，澳门的经济问题就是政治问题，澳门就是犯罪之都，和珠海没有什么两样，而耳是腐败西方最核心的地方，从这里可以看出来共产党的内部斗争一点都不激烈。
 
-新中国联邦和爆料革命知道共产党的游戏规则，也知道它的情报，对它们每个人的个性都有把握。要记住凡是世界历史的改变都是因为某一个人的性格决定的希特勒，斯大林，胡志明这些人。
 
-人类的历史就是被某个人、疯子或者神经病改变的。
 
-发布：*皮特*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据外媒报道，美国多个州指控谷歌公司进行欺骗性位置跟踪。美国华盛顿特区、德克萨斯州、华盛顿州和印第安纳州宣布对科技巨头谷歌提起诉讼。诉讼中称，谷歌开发了一个位置跟踪系统，即使在用户认为位置跟踪已被禁用的情况下，该系统仍然在收集用户数据，且误导用户，从而监控用户数据，并从此数据中获利。用户无法自行退出此应用程序。
+
+华盛顿特区司法部长Racine的办公室正在对谷歌实行禁令，并迫使谷歌支付通过误导用户隐私而获得的利润。
+
+参考链接：
+
+[https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/](https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
  
 
