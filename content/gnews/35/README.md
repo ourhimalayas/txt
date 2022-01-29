@@ -2,32 +2,91 @@
 ---
 
 
-## 瑞典不建议为12岁以下儿童接种中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929543/)
+## 为什么要隐藏疫苗接种后最初两周发生的问题？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1929756/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月27日，据相关媒体报道，瑞典卫生局于当天发布声明表示，政府不建议当地5至11岁的儿童接种中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.27.png)
-瑞典卫生局的官员在新闻发布会上指出，当前所有的研究结果都明确显示，儿童患严重疾病的风险很低，但中共病毒疫苗所带来的危险性远远却超过它的防护性。
+翻译： Jenny Ball
 
-据悉，本月26日，瑞典当日新增了超过四万例中共病毒感染病例，达到了该国自大流行以来的单日确诊峰值，这也让瑞典政府延长了该国所有关于中共病毒疫情的限制措施。但另一方面，瑞典当局正在计划于2月9日逐步取消这些限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/新冠疫苗接種_林智文.jpg)图片来源：eonway.com
 
-参考链接：[Sweden decides against recommending COVID vaccines for kids aged 5-11](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
+许多研究得出结论，COVID疫苗在第二剂疫苗后可以保护人们，但这些结论基于的数据是排除了疫苗接种后两周内人们感染率的数据，“显然，这是有缺陷的。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+当一个组在两个时间点进行比较时，就会发生幸存者偏差，但该组的成员在两个时间点之间发生了变化。
 
-总编：文特
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+这就像评估一所学校的游泳水平一样，该学校将人都扔到海中央，让他们呆上几个小时，然后评价活着的学生游泳的好坏。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+两个小时后，只剩下那些已经会游泳的人，而且，可能还有一些艰难地学会了游泳的人！**在此期间淹死的可怜的灵魂甚至都不算数**。
+
+将剩下的人的游泳能力归咎于2小时后出现的教练，显然会给出一个非常误导的画面，教练在确定“教学技巧”的成功与否时，没有人会在以后的课程中被淹死。
+
+对于 COVID 疫苗接种，疫苗接种后的两周时间不包含在数据中。给出的理由是疫苗需要一段时间才能产生抗体，因此，前两周的数据不相关。
+
+（**点评：也就是说打了疫苗在两周内死亡的，都不算在疫苗伤亡里！多么滑稽的“科学论证”。在VAERS2022-01-24报告中，0-14天之间死亡人数为35+74+382+228＝719人， 他们的死亡难道连个数都不算吗？)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1-11.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-2-12.png)
+
+如果疫苗具有直接可见的有害影响，与抗体产生无关怎么办？ 一个例子是在接种 COVID **疫苗后出现带状疱疹的比率很高，这表明病毒再激活存在问题**。
+
+（点评：普通大夫都知道，**带状疱疹是免疫系统出问题的外部体现。）**
+
+这可以解释为什么在接种疫苗后的前两周，接种疫苗的 Sars-CoV-2 感染率实际上高于未接种疫苗的人。
+
+消除前两周的效果是一种误导性的数据偏差。如果人们在此期间被感染并死亡，当然需要包括在内。
+
+**疫苗本身可能对感染率产生影响的可能性不容忽视**，为了准确评估有效性，需要包括整个数据集。
+
+如果只测量感染风险较高的时期（0-14天）之后的时段，就有可能被欺骗。任何信号都会被错过。
+
+除了在个人风险方面消除这段时间是荒谬的之外，还将对更广泛的社区产生影响。如果疫苗确实在头两周内导致感染人数激增，这将不可避免地增加传播，并导致该社区在此期间感染人数增加。
+
+因此，对疫苗接种计划影响的评估，**必须不仅包括对个人的影响，还包括对更广泛社区的影响**。
+
+这一点对于许多人同时接种疫苗的紧密社区特别相关，例如学校，特别是具有大量弱势群体的社区，例如疗养院和医院。
+
+我们正在做的是有效地“加速”感染（和死亡）的浪潮，最终在病毒季节结束时，同样数量的人死亡，因为排除了较早死亡的人数（1-14 天内），我们被误导认为疫苗比实际更有效。
+
+（点评：我们用一个最普通的常识问一问：为什么本应该是保护公众健康的政府和机构要特意这样误导大众？）
+
+只看后期，看到那段时间死亡人数较少，就产生了生命得救的错觉。这在疫苗推出后许多国家的数据中都很明显。 下图显示了英国与欧洲的对比，可以说明这一点，因为英国是最快推出疫苗的国家。 以曲线下面积表示的死亡总数与其他国家相似，但只是被压缩到更短的时间段内。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Daily-new-confirmed-chart-1024x549-1.png)Figure 1: 英国和欧盟的冬季新冠病毒死亡人数
+
+现在让我们来看看一些具体的例子，例如，这项针对美国疗养院居民的研究，结果表明，在研究过程中，6.8% 的接种疫苗人口被感染，6.8% 的未接种疫苗人口被感染。
+
+但是，决定排除接种后的前 14 天，将接种组的灰色区域与未接种组的黑色和灰色区域相比较。
+
+这样做可能会导致声称疫苗对感染的功效为 66%。 这项研究的作者很诚实地分享了原始数据，并没有声称有 66% 的疗效。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pic-3-1.png)Figure 2: 来自美国论文的数据显示，按诊所到家后的时间和疫苗接种状态，疗养院人口感染的百分比。
+
+然而，**许多研究都依赖于这一技巧**来宣称疫苗的有效性。最明显的例子是最初的辉瑞试验研究和阿斯利康试验。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-1-1.png)Figure 3: 来自 AstraZeneca 试验的图表显示了早期（“排除期”）。
+
+举第二个例子，丹麦的一篇论文，检测了医护人员和疗养院居民的感染人数。在疫苗接种计划开始之前，4.8% 的医护人员和 3.8% 的疗养院居民被感染。
+
+在95% 的疗养院居民和 28% 的医护人员接种疫苗后，这项研究在丹麦冬季浪潮结束时结束。
+
+鉴于一开始的情况较差，而且医护人员的疫苗接种率较低，您可能会认为他们的整体情况更糟。然而，到疫情结束时，医护人员的感染率为 7.0%，而养老院居民的感染率为 7.7%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Danish-study.png)Figure 4: 来自丹麦论文的数据显示了疗养院居民和医护人员中感染人口的百分比。
+
+在 COVID 研究中，报告的疫苗功效中有多少真正是衡量幸存者偏差和自然获得性免疫力的指标？ 这是一个关键问题。
+
+如果不首先解决这个问题，就不应声称疫苗的功效。
+
+**参考资料：**[childrenshealthdefense.org][Why Hide What Happens in First Two Weeks After Vaccination?](https://childrenshealthdefense.org/defender/what-happens-first-two-weeks-vaccination/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bcf8f93a-db44-4f1f-8e44-c3343bb314fc)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

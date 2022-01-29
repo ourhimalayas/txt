@@ -2,41 +2,34 @@
 ---
 
 
-## 欧盟立陶宛美国联合状告中共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1929132/)
+## 疫苗副作用导致一美国F-35战机在南中国海坠毁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1929542/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：纽约香草山 金融部 AT
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月25日，据相关媒体消息显示，一架正在南海地区执行演习任务的美国海军 F-35C 战斗机，因其飞行员心肌炎急性发作，在试图降落在卡尔文森号航空母舰的甲板上时坠毁。目前，该事故已造成7名船员受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-29-上午10.02.16.png)
+报道提及，美军的两个航母打击群共一万四千多名水兵和海军陆战队队员正在南海进行军事演习。其中，这位F-35C的飞行员在起飞前72小时刚刚接种了中共病毒疫苗加强针。然而，返航时，该名飞行员所驾驶的飞机突然撞上了航空母舰的甲板，飞行员则在战机坠海前弹射逃生。
 
-整理：Sara9
-编辑：Little Lamp
+据了解，这名飞行员在回忆事故经过时提到，他在返航过程中突然感到胸部剧烈疼痛，而该飞行员也在被送医救治后确诊患有急性心肌炎。值得注意的是，这一病症是中共病毒疫苗的常见且可能致命的副作用。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-2.png)图片来源：雅典娜设计组
+对此，分析人士指出，当前，大量的报道提到了接种过中共病毒疫苗的飞行员在飞行途中生病或直接坠机死亡的事件，而这类灾难性事件不仅会危及飞行员，更会危及数百万将安全托付给航空公司的乘客。虽然联邦政府极力掩盖这些接种过疫苗的飞行员的安全性问题，但其所带来的后续影响或将难以避免。
 
+参考链接：[Navy Pilot Crashes Plane, Ejects, After Vax Reaction](https://bestnewshere.com/navy-pilot-crashes-plane-ejects-after-vax-reaction/)
 
-据大纪元报导，欧盟周四（1月27日）表示，已在世界贸易组织（WTO）就中共对欧盟成员国立陶宛实施贸易限制提起诉讼。美国贸易代表办公室（USTR）当天表示，美国将要求加入这些WTO磋商，以声援立陶宛和欧盟。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-欧盟指控中共对立陶宛实施歧视性贸易做法，并称这威胁到欧盟单一市场的完整性。
+总编：童谣
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-欧盟执委会副主席瓦尔迪斯‧东布罗夫基斯（Valdis Dombrovskis）周四表示，他的办公室已要求在WTO就欧盟认为的歧视性贸易做法与中国进行磋商，这是WTO诉讼程式的第一阶段。欧盟代表其27个成员国处理对外贸易。
-
-立陶宛2021年同意台湾以“台湾”名义在该国设立代表处
-
-中共政府不仅将中立两国外交关系降级，而且对立陶宛实施全面的经济制裁和报复。
-
-欧盟方面表示，北京对立陶宛的贸易限制措施包括中共海关对立陶宛商品不予清关、拒绝立陶宛的进口申请以及对欧盟公司施加压力，要求其向中国出口的商品不得含有立陶宛的零部件。
-
-美国贸易代表戴琪表示立陶宛可获美国支持，两国将共同应对中共“经济胁迫”。共同捍卫的核心价值和原则公开，表示支持立陶宛
-
-文章来源：[欧盟在世贸组织状告中共 美要求加入](https://www.epochtimes.com/gb/22/1/27/n13534577.htm%20)
-
-发布：星谕
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

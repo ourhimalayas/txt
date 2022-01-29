@@ -2,35 +2,44 @@
 ---
 
 
-## 澳大利亚卡车司机正集结堪培拉，抗议疫苗强制
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1929872/)
+## 澳卡车司机加入抗议强制令和限制车队争取自由
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1929985/)
 
-##### 整理报道：小鱼儿
-编辑：jasse01
+编译： Jenny Ball
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2442.png)图片来源：rebelnews.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/澳大利亚卡车司机正集结堪培拉，抗议疫苗强制-1.png)图片来源：9News
+澳大利亚卡车司机正在计划“前往堪培拉的车队”，以抗议澳大利亚的疫苗规定和在整个 Covid-19 大流行期间对全国各地社区施加的严厉限制。
 
+卡车司机计划在到达澳大利亚首都之前，在维多利亚、新南威尔士、南澳大利亚和西澳大利亚的城市集结。
 
-当地时间1月28日，据反抗（Rebelnews）新闻报道，澳大利亚卡车司机正计划举行“车队集结堪培拉”的活动，抗议澳大利亚（政府）在新冠病毒大流行期间，对全国各地社区实施的疫苗强制和苛刻的限制。
+车队计划于周一上午 10 点抵达国会大厦。
 
-卡车司机们计划在维多利亚州、新南威尔士州、南澳大利亚州和西澳大利亚州的城市集合，然后前往国家的首都。车队计划于周一上午10点到达议会大厦。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2444.png)图片来源：rebelnews.com
 
-电报群（Telegram）的数千名用户正在协调（车队）前往堪培拉的路线。来自各行各业的用户，列举了参与的动力，如因疫苗强制而失去工作以及小企业主被迫关闭商店。群组中的一些人，正计划驾驶汽车和摩托车参与其中，增加对国家政治的压力，以放宽其强制执行的限制和隔离。
+这一事态发展是在受加拿大的卡车车队的感染，加拿大车队正在前往渥太华以抗议总理贾斯汀特鲁多的跨境疫苗授权。
 
-同时，大量的车队正在前往渥太华，抗议总理贾斯汀·特鲁多的跨境疫苗强制。虽然主流媒体忽略了大量抗议者，但卡车司机已经赢得了埃隆·马斯克等名人的支持。
+虽然主流媒体在极力忽视大量前往首都的抗议者，但卡车司机已经赢得了像一龙·马斯克(Elon Mask)这样人士的支持，他们大声疾呼支持他们的行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2446.png)图片来源：rebelnews.com
+《电报》Telegram 消息应用程序上的数千名用户，正在组织特定于州的小组来协调前往堪培拉的路线。
 
-参考新闻：[Australian truck drivers join the convoy for freedom](https://www.rebelnews.com/australian_truck_drivers_join_the_convoy_for_freedom)
+该平台上的用户还分享了卡车司机群体聚集和准备长期路途的驾驶室的图像和视频。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+虽然卡车司机是此次抗议活动的主要焦点，但《电报》群组中各行各业的各种用户，都在引用转发信息参与，例如，被迫关闭的小企业主店主们，他们由于严格的疫苗强制令要求而失去工作 。
+
+这些团体中的一些人正计划驾驶汽车和摩托车，作为向该国政治家施加压力的一部分，要求放松以授权为借口实施的限制和隔离。
+
+**点评：一切都是刚刚开始！自由永远不是天上掉下来的馅饼！**
+
+素材链接：[rebelnews.com][Australian truck drivers join the convoy for freedom](https://www.rebelnews.com/australian_truck_drivers_join_the_convoy_for_freedom)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+
 
  
 

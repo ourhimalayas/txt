@@ -2,80 +2,28 @@
 ---
 
 
-## 1月28日木兰战友联盟答疑G系列相关信息文字版
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1929622/)
+## GTV新闻访谈简报|2022年1月29日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1929840/)
 
-非官方整理，一切信息以联盟答疑音频为准
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-G-听写： 文希； 爱狠Love7(文友)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-29.png)
+文章仅代表作者本人观点，与Gnews无关
 
-1、通过农场进行买GCLUBS卡，农场也把款项汇给G|CLUBS公司将近一年了，G|CLUBS公司也没有给卡号，怎么办？
+视频参看：[2022.01.29早GTV新闻访谈](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
 
-答:现在各农场都有与G|CLUBS 对接的专员，可以问那个义工或农场主
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-2、数字银行走了总部基金，现在想转成联盟基金怎么操作？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-21.jpg)
 
-答:可以联系农场主填表格，整个项目大概2月底截止。
-
-3、4.30之前增资的话还需要报备吗？
-
-答:需要的，追加的方式跟农场说一下
-
-4、新投资者投资GTV到这个月底31号吗？是报备日期到31号还是到账31号？
-
-答:报备截止12月31日。
-
-5、老战友要追加还需要报备吗？
-
-答:要跟农场报备。
-
-6、VOG义工奖励币没给，怎么解决？
-
-答:联系你的前农场主或现任农场主。
-
-7、问：关于投资新GTV项目的细节。
-
-答：了解有关细节请联系农场义工。
-
-8、问：通过卡项目投资新GTV，昨天收到通知说款项收到了，这个新GTV对账找谁对账？
-
-答：找农场负责这个项目的义工。
-
-9、问：去年3月通过卡项目投资，已有6字头号码，是否有1:10的GTV股票？
-
-答：有。
-
-问：什么时候给？操作？
-
-答：今年4月30号以后。
-
-10、问：当初填拆分表时写了给孩子GTV股票，以后发股票时，可以直接写孩子的名字吗？
-
-答：如果你当时填表写清楚了，可以直接是孩子的名字的。
-
-11、问：墙内战友，有KYC账号，也有卡订单号码，无法付款怎么办？
-
-主持人代答：有关问题私信我试试。
-
-12、问：这次喜交所更新，是否和HPay上线有关？
-
-答：喜交所官方没有说，我想应该是。
-
-13、问：战友问，可以私信你（木兰）吗？
-
-答：可以。
-
-G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
-
-语音链接:
-
-[https://mega.nz/file/1CAHmQIT#kCNT99OGsAWa3R-utm6hmIP9kw2r2tDvGhAKH\_XMdJ0](https://mega.nz/file/1CAHmQIT#kCNT99OGsAWa3R-utm6hmIP9kw2r2tDvGhAKH_XMdJ0)
-
-*审核：夏目&山竹*
-
-*发布：夏目&山竹*
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

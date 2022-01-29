@@ -2,29 +2,22 @@
 ---
 
 
-## 志愿者惨遭利用 社区领导邀功
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1929868/)
+## G系列走在时代的最前端 GTV投资是王牌中的王牌
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1929983/)
 
-制作：媒体部 – 贵气比人
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-隔离期间中共国墙内小区百姓声讨，社区领导利用学生、百姓志愿者在疫情期间帮助社区度过难关，却在疫情接近尾声后，全部被下层干部们顶替；倘若志愿者在疫情期间不幸感染，还要自费隔离；同时社区领导把百姓自己花钱买的食品谎称捐赠物资拍照宣传，然而救疫物资却从未发到居民手中。
+疫情催发了世界经济变革，互联网经济，数字货币是未来的发展趋势。G系列走在时代的最前端。
 
+GETTR很快会有全方位的大升级，GETTR币，GETTR支付等功能将会上线。互联网，区块链技术的应用，实现了“使用即金钱”，如战友们使用GETTR时，就是在赚钱。
 
+GFASHION和喜币，GLCUB的结合，当GCLUB被世界接受时，GFASION的销量绝对不只是百万级别的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+[GTV](https://www.gettr.com/hashtag/%23GTV) 投资是王牌中的王牌，未来将是[G系列的](https://www.gettr.com/hashtag/%23G%E7%B3%BB%E5%88%97%E7%9A%84)[控股集团](https://www.gettr.com/hashtag/%23%E6%8E%A7%E8%82%A1%E9%9B%86%E5%9B%A2)！最早投GTV的战友，还有早期GCLUB会员，永远都是优先受利的，未来新中国联邦会立法保护战友的权利和利益。
 
-**校对/发稿：童谣**
+视频来源: 20220127—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
