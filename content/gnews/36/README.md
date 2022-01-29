@@ -2,21 +2,36 @@
 ---
 
 
-## 习主席别承诺了 多少人跪了 多少人死了 富了谁
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1926738/)
+## 研究证实二针男性青少年心肌心包炎风险最高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926771/)
 
-作者：Aiolis
-![](https://assets.gnews.org/wp-content/uploads/2022/01/fc0ee2f6e5fa43f5ba6ffd28c921f070.png)
-1月28日新华社一则《习近平承诺中国为世界作出更大贡献》的新闻，细品再次给人一个中国噩梦的遐想。在这新年的时刻，这样的承诺不免大煞风景，而对新中国联邦却是再好不过的礼物，习加速师年年都要做贡献，一年更比一年大，体制的精神变态魔怔后足以大到毁灭人类。集合各种头衔于一身的习主席，又一次代表背后的各路妖魔鬼怪，向长期豢养的鹰犬发出了“问候”和祝贺并进行了交谈，能谈的应该是“伟大光荣正确”，私底下能谈的才是核心。比如可能的对话：我日后可以给你上调犬阶，你要听话，你家里的那点事都攥在我手里，你知道党的规矩，不要做对党不忠诚不老实的两面人。文贵直播爆料里9000万党员，150万是承认被抓的，起码400万个家庭是毁了，他们得不到类似民主国家法律那样合法的审判，能得到的是安排好的台词和不再上诉的服从党的判决，如同扔掉弄脏了的一次性白手套，把知道太多秘密的人清理掉以保全最上面那么几个人，习主席和上海帮的角斗，如火如荼，我们要做好打扫战场的准备才行！美国和欧洲近期对于灭共的发力，足可见中共气数已尽，不然不会如此决绝。
+作者：纽约香草山 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据gateway pundit 25日报道，美国医学会杂志JAMA周二发布的一项新研究显示，接种mRNA新冠疫苗后，青春期和年轻男性的心肌炎和心包炎的发病率比其他人更高。
 
-文中看到被 “问候”梯队中有中共党卫军各陈杂人员若干，他们在香港、在新疆，中国以及世界带去了威胁、不公、死亡，这些恶行被全世界看在眼里，习主席鼓励他们发挥更大的“作用”，以国家的名义继续保障党和几个家族的安全，并对此“寄予厚望”。为啥不让这些人说说心里话？他们知道他们也只是这个体制内的奴隶吗？这一波操作下去，又有多少人要跪，要死多少人，富了的中南坑，就等新中国联邦来收拾，老杂毛们的日子，长不了了！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-25-at-8.25.44-PM.jpg)
+
+该研究基于VAERS的数据，考察了2020年12月至2021年8月期间，美国12岁以上的1亿9240万5448名被接种者，打了辉瑞和莫德纳疫苗后，发生心肌炎的报告病例。这些数据由VAERS收集，截止日期2021年9月30日。
+
+ 新冠疫苗主要是引发心肌炎，其次是心包炎。VAERS收到了1991份打了至少1针mRNA新冠疫苗的病例的心肌炎报告，其中有1626份，符合CDC定义的疑似或可确诊的心肌炎的情况。
+
+参考链接：[https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/](https://www.thegatewaypundit.com/2022/01/top-american-medical-journal-study-confirms-risk-myocarditis-pericarditis-receiving-covid-19-vaccines-risks-highest-second-vaccine/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+编辑：Irene木木
+校正/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-新闻链接：[http://en.people.cn/n3/2022/0129/c90000-9950996.html](http://en.people.cn/n3/2022/0129/c90000-9950996.html)
-
-审核校对：Barry Jack
-上传排版：V在途中
 
  
 

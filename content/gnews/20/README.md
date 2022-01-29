@@ -2,48 +2,50 @@
 ---
 
 
-## 台湾的未来和美中关系 &#8212;-前韩国驻日本外交官禹东周教授系列讲座四
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1927068/)
+## 美提书面答复，力促俄奉行外交路线化解乌克兰危机
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1927177/)
 
-整理：瑞沃路森
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-29-at-14.59.10.jpeg)
-**1、美中关系 未来**
+作者：台湾宝岛农场—dobi
 
-~价值观，制度，文化差异
-~经济体制的差异
-~科学技术的差异
-~国防力量的差异
-~政治的厉害关系
 
-**2、台湾的未来**
 
-~美国的对台政策
-~西方同盟和台湾
--五眼联盟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-36.jpg)
 
-**-AUKUS**
-**澳 英 美 2021.09.15**
-**由英美协助澳打造一支核潜艇舰队是美国印太战略的一部分**
 
-**-DUAD（四方安全对话）**
-**美·日·印·澳 非正式战略对话**
-**2007年由日本发起**
 
-\*东南亚
-~军事的紧张
-~政治经济的差异
-~一个中国的未来
+在俄罗斯和乌克兰冲突一触即发的危机局势中，俄罗斯要求北约和美国不得同意乌克兰加入北约盟国，并反对北约盟国提供乌克兰安全协助。俄罗斯将“乌克兰寻求加入北约”或北约盟国提供乌克兰安全协助，泛称为“北约东扩”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/de58493d62fdc612.jpg)
+针对俄罗斯的要求，美国和北约盟友目前虽仍未松口，但美国答应以书面方式回复俄罗斯；北约也在26日向俄罗斯大使馆交付书面答复，并宣称北约与美国立场一致，呼吁俄罗斯退兵。
 
-Anti xijinping（反对习近平）
-Anti PRC（反对中共国）
-妥协和协商
-原则 中共的本色
-One China幻想
+美国国务卿布林肯（Antony Blinken）表示，就看俄罗斯反应，美国准备好进入下一步协商，力促俄罗斯奉行外交路线。
 
-台湾生存
+俄罗斯外交部长拉夫罗夫（Sergey Lavro）则表示，若不满意美方答复，不会坐视俄罗斯的要求陷入无尽的讨论，且若西方持续胁迫，莫斯科将会采取必要的报复作为。
 
-直播讲座：[自由谈第四十七期一美中问题与台湾未来](https://gtv.org/video/id=61ebe390533c672fca80ee65)
+参考来源：
+
+[美提書面答覆 力促俄奉行外交路線化解烏克蘭危機](https://udn.com/news/story/122663/6063923?from=udn-catelistnews_ch2》)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-15.png)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-39.jpg)
+
+
 
  
 
