@@ -2,28 +2,37 @@
 ---
 
 
-## 美国高官将访问立陶宛支持对抗中共国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1930330/)
+## 有声|FCC宣布吊销中共国联通在美国的运营执照
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930366/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-at-18-15-46-Beijings-2022-Winter-Olympic-propaganda-mirrors-Hitlers-1936-efforts2.jpg)图片来源：www.voachinese.com
-据美国之音1月29日报道，美国国务院负责经济增长、能源和环境事务的副国务卿费尔南德斯将访问立陶宛。届时费尔南德斯将与欧盟官员讨论落实一项总额6亿美元的谅解备忘录，拓展美国出口商和立陶宛买家在高科技制造业，商业服务，再生能源等方面的合作机会，以及美国强力支持立陶宛对抗中共国的政治压力和经济胁迫。
-
-美国支持立陶宛因台湾问题跟中共国发生的争议。台湾去年在维尔纽斯设立了“驻立陶宛台湾代表处”，而不是通常使用的“台北”之后，北京将中共国和立陶宛的外交关系降为代办级，并敦促跨国公司切断与立陶宛的联系。美国在阻止中共国在全球范围内不断加大的影响力。
-
-中共霸凌台湾很多年，还阻止世界上其他国家与台湾建立任何正式的官方联系，否则就采取政治打击、经济制裁等手段，一副无能的流氓嘴脸。中共窃取政权之后，没有能力搞好经济，提高国民生活水平，一味地盘剥人民、掠夺财富，还试图通过蓝金黄的手段控制全世界。弹丸小国立陶宛不畏强权，公开支持台湾，遭到中共多方打压。美国支持立陶宛的行为无疑是对中共的警告，同时也会带动世界其他国家保持与台湾的关系，孤立中共。
-
-新闻参考链接：[https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html](https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+配音：香草山农场 – 纳米
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月27日，美国联邦通信委员会FCC，再次因国家安全问题，以4比0的投票结果，一致通过撤销中共国联通在美国的服务授权。并要求其美洲营运有限公司，在该命令发布的60天内停止在美国的任何国内和国际业务。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+FCC表示，自20年前FCC授权以来，有关中共国的国家安全环境发生了变化，并发现联通美洲子公司和其在大陆的母公司，中共政府都有机会进入、存储、破坏或误导美国通信。并指出，联通的行为缺乏坦诚、可信度和可靠性，不符合FCC要求的基本信任水平。
+
+继2019年5月FCC投票否决中共国移动在美服务授权，2021年10月吊销中共国电信服务授权后，到现在中共国联通被吊销执照。至此，中共三大电信运营商彻底在美国出局。
+
+文字版原文：[FCC宣布吊销中共国联通在美国的运营执照](https://gnews.org/zh-hans/1927870/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

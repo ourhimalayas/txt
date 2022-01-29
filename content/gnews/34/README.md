@@ -2,28 +2,17 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1929840/)
+## 这个疫苗和绿色通行证，它的本质是共产主义形式
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1929913/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
+翻译: 意大利罗马达芬奇农场- 小布丁奶茶
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-29.png)
-文章仅代表作者本人观点，与Gnews无关
+统治我们的人，或者通常一个小团体，一个精英。他们正在用新技术工具有效地控制人们，我们在过去几十年就已经知道的技术，来获得更多控制权，来限制你的自由。
 
-视频参看：[2022.01.29早GTV新闻访谈](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-21.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频剪辑：eternallight
+字幕制作/ 发布：阿娜
 
  
 
