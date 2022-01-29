@@ -2,45 +2,32 @@
 ---
 
 
-## 加政府未阻止中企9亿加元收购其锂矿企业
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1929424/)
+## 拍马拍到新高度 冬奥会前天安门惊现“报答领袖豁出去！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1929431/)
 
-作者：加拿大温哥华扬帆农场 Spirit
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-39.png)
+距离北京冬奥会还有一周时间，近日网络社交媒体却传出一段夸张视频，视频中约100多名中国运动员站在天安门前高喊口号，“报答领袖豁出去”、“跟着总书记，一起向未来！”令外界看得傻眼。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+日本JBpress网站1月27日报导，1月25日清晨7时26分左右，北京冬奥会中国体育代表团100多名运动员和教练员代表聚集在天安门广场，伴随着五星旗的升旗，高喊口号“为了祖国冲冲冲，不负人民拼拼拼，报答领袖豁出去，永争第一不认怂，跟着总书记，一起向未来！”据悉，北京当时气温低于零下7摄氏度。
 
+中国选手们在完成这项所谓的“天安门宣誓”后，集体搭乘大巴返回北京“闭环管理”（泡泡式管理）的奥运村。
 
-根据《路透社》1月27日报道，加拿大创新、科学及工业部长商鹏飞(Francois-Philippe Champagne)周四表示，加拿大并未阻止一家中企收购在加拿大上市的锂矿公司，称不存在国家安全风险。
+报导指出，中国参选选手“天安门宣誓”举动不禁让外界质疑，为什么一场奥运赛，要与国家领袖有关联？
 
-在工业和技术委员会周四举行的听证会上，部长商鹏飞被多次问及他何时知道紫金收购Neo Lithium的计划，但他保持沉默。
+为此，日本记者还专门找到北京民众询问此事，北京市民直言“天安门宣誓”行为就是白痴行为。
 
-反对党保守党表示，自由党政府本应阻止紫金矿业(601899.SS)去年以9.187亿加元(7.213亿美元)收购Neo Lithium(NLC.V) 。加拿大在与美国加紧关键矿物的区域的合作，以对抗中共主导地位，允许这宗收购的决定不合理。
+目前中共官方已经移除了相关视频，但海外仍在热传，并引发民间讨论。
 
-Neo Lithium的矿产储备是由碳酸锂组成，用于电动汽车电池生产。去年3月，加拿大收紧了外国投资规定以保护供应链的安全，因为预期用于制造电动汽车的金属需求料将激增。
+拍马屁拍到肉麻，撒谎撒到地老天荒。中共这种邪恶体制下拍马屁也得看谁会舔，也得看谁更会卖命，马屁精们不嫌事大，拍马也得拍出个彩头，于是乎语不惊人死不休，各种奇葩应运而生。靠揣摩圣意而生的官场弄潮儿们，他们最擅长的就是根据圣意，编纂出各种奇奇怪怪的口号，以博皇上一笑。其实他们都知道是假，圣上更是知道假，他们要的就是这种效果，在假言假语的互相传唱中洗脑。一切都是假的，无关乎人生观，更无关乎价值观，生存而已。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-420.jpeg)图片来源：路透社
+信息来源：
 
-参考链接[https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/](https://www.theglobeandmail.com/business/article-industry-minister-mum-on-when-he-became-aware-of-chinese-firms-plans/)
+[高级黑？冬奥前天安门惊现“报答领袖豁出去！”](https://m.secretchina.com/news/gb/2022/01/28/996347.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-421.jpeg)
-
-编辑/校对/发稿：文敬
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

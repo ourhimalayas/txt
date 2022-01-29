@@ -2,42 +2,52 @@
 ---
 
 
-## 有声|佳能珠海撤出中共国， 高额补偿金引热议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1929648/)
+## 【Michael.Tonny专栏】防腐师在大量接种过COVID-19疫苗的尸体中发现血栓
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1929660/)
 
-配音：香草山巡管部– 文凯琳
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
+COVID-19病毒，是中共向全世界投放的生化武器，没有疫苗！试验性的COVID-19疫苗只会带来严重的疫苗灾难！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
+防腐师Richard Hirschman在参加1月27日Jane Ruby博士主持的视频节目[Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots](https://stateofthenation.co/?p=104914)中透露，在他处理的大量尸体中看到死者动脉（arteries）和静脉（veins）中充满了非自然的血凝块（unnatural blood clot）组合，以及完全充满血管系统（vascular system）的奇怪的纤维材料（fibrous materials）。他确认这些死者很多接种了COVID-19病毒疫苗！
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Embalmers-Find-Veins-Arteries-Filled-with-Never-Before-Seen-Rubbery-Clots-.png)
 
+Richard Hirschman，在防腐行业（embalming industry）有20 多年的工作经验，是董事会认证的殡仪馆主任（funeral director）和防腐师（embalmer）。
 
-佳能珠海宣布撤出中共国后，于1月16日公布了针对员工的补偿金标准。根据公告，补偿金包括经济补偿金、特别慰劳金、就业支援金、感怀铭记奖金以及春节慰问金等。据一些人测算，如果一个员工2003年进入企业，月工资1万元，可以获得高达37万元的经济补偿。
+Jane Ruby博士，是一名医学专业人士和药物（pharmaceutical drug）开发专家，在 FDA和EMA的药物批准监管流程（regulatory processes）方面拥有超过20年的工作经验。曾推出一些世界上最著名的治疗抑郁症（Depression）、阿尔茨海默病（Alzheimer’s disease）、戒毒（Addiction）和心肺疾病（Cardio-pulmonary diseases）方面的药物。她曾出现在美国的众多电视和广播节目中。
 
-近两年，随着世界与中共国的全方位脱钩，很多在大陆经营多年的外资企业陆续撤离，佳能珠海也和他们一样，撤离时给予员工的高额补偿引起了国内民众的多种议论。有羡慕者认为外资企业各项制度都优于国内企业，有批评者则站在中共的立场，认为这些企业扰乱了市场环境。
+Richard Hirschman说，从2020年11月开始，他看到大量尸体中有长而有弹性的纤维状血块，Hirschman先生把这些长而有弹性的纤维状血块叫作“蠕虫”。后来，他发现在他处理的尸体中高达50%都含有这种“蠕虫”。现在，这个比例甚至接近80%。仅仅在这个月，他亲自做防腐处理的35具尸体中，就有20~24具尸体含有这种长而有弹性的纤维状血块。
 
-原文链接：[佳能珠海撤出中共国， 高额补偿金引热议](https://gnews.org/zh-hans/1923281/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnatural-blood-clot1.png)
 
-音频处理/发稿：Daxia
+在前年11月开始注意到有很多尸体中出现这些奇怪的纤维状血块之后，他对这些所谓的“蠕虫”进行了防腐处理。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+在显微镜下，这些蠕虫状结构的血凝块与接种过疫苗的死者的血液非常相似，但他以前从未见过这种大小的东西。他能够确认一些血管中含有这类血栓的死者确实接种了Covid-19疫苗，但他无法确认所有这些人都接种了疫苗，或者具体是什么原因导致这些很长的血栓出现在死者的血液循环系统中。
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnatural-blood-clot.png)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+COVID-19病毒不同于任何其它来源于自然的病毒，而是[中共国科学院武汉病毒研究所](http://www.whiov.cas.cn/)通过基因编辑制造的生化武器病毒！COVID-19病毒疫苗，只会导致严重的灾难！
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+随着更多人注射这种实验性的中共病毒疫苗，像这样血液循环系统中充满血凝块的死者只会越来越多，因心脏病发作和中风（heart attacks and strokes）而导致的死亡人数大量增加。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Richard Hirschman曾与其他同行进行过交流，这些同行也在他们处理的尸体中发现了这种情况，而之前他们都从未见过这样的事情。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+毫无疑问，这就是疫苗灾难！停止毒疫苗！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+参考资料：
 
+[Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots (Video)](https://stateofthenation.co/?p=104914)
 
+[Embalmers Find Veins & Arteries Filled with “Never Before Seen” Rubbery Clots](https://notaakhirzaman.com/9336/)
+
+[中共国科学院武汉病毒研究所](http://www.whiov.cas.cn/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
