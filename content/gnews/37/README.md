@@ -2,24 +2,39 @@
 ---
 
 
-## 台湾宣布，其代表团不参加北京冬奥的会开幕和闭幕式
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1927835/)
+## 美国支持欧盟在世贸组织状诉中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927859/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-77.png)（图片源自本文链接）
-Q电视新闻1月29日消息：台湾当局宣布，台湾运动员不参加将于2月4日开始的北京冬奥会的开幕和闭幕式。
+作者：台湾宝岛农场 – motdfry(文旦)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月27日，欧盟表示，已在世界贸易组织就中共对欧盟成员国立陶宛实施贸易限制提起诉讼。同时，美国贸易代表办公室当天表示，美国将加入WTO磋商，以声援立陶宛和欧盟。
 
-台湾教育部28日宣布，包括4名运动员在内的台湾代表团15名成员，不参加北京冬奥会的开幕和闭幕式。台湾给出的理由是：运动员将从台湾、美国、瑞士和其它国家前往北京，另外也考虑到中共病毒（新冠病毒Covid-19）疫情以及队员们的旅途疲劳。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/10-17-scaled.jpg)
 
-在台湾，中共国政府发言人26日称台湾队为“中国台北”，而不是过去使用的“中华台北”，引发了台湾民众的不满情绪的发泄，称台湾被当成了中共国的一部分。
+据悉，欧盟指控中共对立陶宛实施歧视性贸易做法，并称这威胁到欧盟单一市场的完整性。
 
-信息来源：
+欧盟方面表示，中共对立陶宛的贸易限制措施包括中共海关对立陶宛商品不予清关、拒绝立陶宛的进口申请以及对欧盟公司施加压力，要求其向中共出口的商品不得含有立陶宛的零部件。
 
-[台湾 北京五輪の開会式と閉会式 選手らの不参加を発表](https://www3.nhk.or.jp/news/html/20220128/k10013455811000.html)
+据了解，美国贸易代表戴琪今年初曾与立陶宛外长通话，表示在这场外交争端中，立陶宛可获美国支持，两国将共同应对中共经济胁迫。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+
+- [歐盟在世貿組織狀告中共 美要求加入](https://www.epochtimes.com/b5/22/1/27/n13534577.htm)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：童谣
+编辑：文特
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

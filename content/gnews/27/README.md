@@ -2,12 +2,10 @@
 ---
 
 
-## 中国大陆有多少人相信爆料革命？!
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1927978/)
+## 新中国联邦秘密团队正在建置区块链技术平台
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928041/)
 
 台灣寶島農場
-
-中国是两个极端，只相信假的，不相信真的。
 
  
 

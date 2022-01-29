@@ -2,25 +2,49 @@
 ---
 
 
-## 中共禁止返乡过年防疫“层层加码”就是谎言
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1928211/)
+## 帮助中共研发病毒的生态健康联盟又获政府巨额经费
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928377/)
 
-作者：德国纽伦堡正义农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/01/五不得.jpeg)封面来源：网络图片
-新华社2022年1月29日报道，中共返乡过年防疫禁止“层层加码”！中共国务院联防联控机制综合组29日对执行防疫政策再次提出明确要求，概括起来是“五不得”：**不得随意禁止外地群众返乡过年；不得随意扩大限制出行范围；不得将限制出行的范围由中、高风险地区扩大到所在地市及全省；不得对低风险地区返乡群众采取强制劝返、集中隔离等措施；不得随意延长集中隔离观察和居家健康监测期限**。
+作者: MOS- 柳是多水土透
 
-“中共新闻反着看才是对的”，这是七哥在直播中反复提出的怎么看中共国新闻的逻辑，因为中共是一个流氓黑社会组织，“谎言加暴力”才是其真实嘴脸。中共玩的套路永远都是，“表面一套背后一套”、“好话说尽，坏事做绝”，出了成绩都是党的培养，出了问题都是个人问题。中共的“五不得”就是“五必须”，返乡过年已经变成了“恶意返乡”，出行被“行程码”和“健康码”牢牢限制，“动态清零”和“强制隔离”已是常态……
 
-根据要求，各地既要科学精准落实防疫措施，又要对群众饱含温情，解决实际困难，坚决防止“简单化”“一刀切”。中共国家卫生健康委官网开设了“春节返乡路”留言板，群众在返乡途中遇到“层层加码”等问题，可以在这里反映，国务院联防联控机制综合组将认真核实、督促整改。
 
-中共禁止返乡过年防疫“层层加码”，这不过就是中共“立牌坊”的一次表演而已，老百姓都知道“中共禁止”看看就好，千万不要当成真的，如果当成真的你就真的惨了。冰天雪地中“叫天天不应”的境况已经不是一次出现；被堵在小区外不能回家的窘况你骂人求人都没用；庆幸的坐上飞机回家过年，落地即返程既花了金钱又浪费了时间又增加了感染病毒的几率；被拉去强制隔离能再次走出隔离点都是你最大的幸运……
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
-新闻来源：🔗[权威快报｜返乡过年防疫禁止“层层加码”](http://www.news.cn/politics/2022-01/29/c_1128313681.htm)
 
-*编辑/校对/发稿：德国纽伦堡正义农场-儒为*
 
-想了解更多资讯，请扫描农场二维码：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/85c861bf6b6325b4.jpg)
+美国媒体1月22日消息，美国非营利机构生态健康联盟，刚刚从联邦政府得到了470万美元的科研经费。这是美国国际开发署向该机构提供的最大金额，也是该组织从联邦机构获得的第三大金额的拨款。 根据近期各种渠道披露的证据，生态健康联盟与中共武毒所有着非同寻常的关系。之前公开的预算文件则显示，美国国立卫生院曾经前任主席柯林斯和白宫顾问福奇批准，拨款至该机构，用于和武汉病毒所合作进行冠状病毒功能增强实验，以强化其传播能力和致命性。 如今这个涉嫌与导致全球疫情大流行有重大关系的机构非但没有受到质疑，反而获得政府空前资助，有分析人士认为，病毒溯源的时机恐怕还要拖延。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-1.jpg)图片来源网络
+
+
+
+**相关链接:**
+
+[Wuhan Collaborators ‘EcoHealth’ Just Received One Their Largest EVER Grants, From Joe Biden’s Government.](https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
+
+编辑: 飞虹
+
+校对/发稿: Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-46.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

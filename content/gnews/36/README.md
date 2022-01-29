@@ -2,35 +2,37 @@
 ---
 
 
-## 研究发现中共病毒疫苗导致妇女月经周期延长
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927858/)
+## 英国首相强调台海稳定，台湾回应与英共护印太和平
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927860/)
 
-#### 撰稿：彩虹       
+作者：台湾宝岛农场 – motdfry(文旦)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+英国首相强森于1月26日英国国会下议院应询指出，共机扰台无助台海和平稳定，并强调两岸和平且具建设性对话的必要性。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/vaccine-nurse-giving-patient-shot-1440x748-2.jpg)图片来源：CHOA
-1月28日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）报道，美国国家卫生研究院（NIH）的一项研究发现，中共病毒（COVID-19）疫苗延长了妇女的月经周期。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-18.jpg)
 
-这项研究发表在一月份的《妇产科学》杂志上，比较了接种和未接种中共病毒疫苗的妇女的月经周期长度。
+台湾外交部27日对此表达高度欢迎及诚挚感谢。并说，台湾不会因为中共派遣军机扰台而放弃自由民主生活方式；中共威权持续胁迫台湾，只会让世界各国更认清中国共产党穷兵黩武的本质。
 
-研究报告的摘要中写道：“对于接种疫苗的人来说，数据来自接种前的三个连续周期，以及接种疫苗后的三个连续周期。对于未接种疫苗的人，收集了连续六个周期的数据。”
+台湾作为印太地区负责任的成员，将持续秉持透明、高标准及共享价值等民主原则，并与理念相近国家携手强化民主联盟韧性，共同维护印太地区和平。
 
-在被分析的3,959人中，2,403人接种了疫苗，其中大多数人接受了辉瑞（Pfizer）公司或莫德纳（Moderna）公司的疫苗，1,556人未接种疫苗。
+参考链接：
 
-平均而言，第一剂疫苗导致周期长度增加0.71天，第二剂疫苗导致周期增加0.91天。
+- [英相強生強調台海穩定 台外交部：與英共護印太和平](https://www.epochtimes.com/b5/22/1/27/n13533607.htm)
 
-美国国立卫生研究院（NIH）尤尼斯·肯尼迪·施莱佛（Eunice Kennedy Shriver）国家儿童健康和人类发展研究所（NICHD）所长戴安娜·**W**·比安奇（Diana W. Bianchi）博士强调说：“以前很少有人对COVID-19（中共病毒）疫苗或其他疾病的疫苗如何可能影响月经周期进行研究。”
 
-作者指出，疫苗的副作用是在制药巨头（特别是辉瑞和摩德纳）的游说工作之后发生的，在支出和雇用人员方面达到了历史最高水平。虽然强制接种被地区法院驳回，但这些大规模的游说活动很可能为全国范围内的疫苗强制接种负责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-更为值得注意的是，汤森路透基金会（Thomson Reuters Foundation）的主席和前首席执行官（CEO）詹姆斯-C-史密斯（James C. Smith）正是制药巨头辉瑞公司的顶级投资者和董事会成员。
+总编：童谣
+编辑：文特
+校正/发稿：海阔天空1
 
-截止本篇文章发稿，路透社还没有报道美国国立卫生研究院的此项研究。但是，该媒体却已经刊登了题为“疫苗与月经变化无关；COVID（中共病毒）疫苗和流感疫苗可以一起使用”以及“月经变化和COVID（中共病毒）疫苗之间没有发现联系”的报道。
-
-**新闻来源**
-
-[U.S. Government Study Admits COVID Vaccine Lengthens Menstrual Cycles](https://thenationalpulse.com/2022/01/28/u-s-government-study-admits-covid-vaccine-lengthens-menstrual-cycles/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
