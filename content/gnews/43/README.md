@@ -2,12 +2,16 @@
 ---
 
 
-## 欧洲有更多人抗议疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1925152/)
+## 五月花简报（01/21/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1926167/)
 
-01/23/2022 本·哈恩威尔：欧洲反对强制疫苗的和平游行正在发生；参与游行少数人的规模正在成比例的增长，这印证了这两个月史蒂夫·班农和我一直在讨论的局势。
+全球要闻
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：波士顿五月花—冲天一怒
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D0925FEE-4F81-4EEC-BC36-CE757E7E3A12.jpeg)
+*发布：思澈*
+
+
 
  
 

@@ -2,22 +2,19 @@
 ---
 
 
-## 如果我们提前按照文贵先生的警告做了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926721/)
+## 我们这次文明的力量，超越人类历史上的任何一次
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926847/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/如果我们已经提前按照文贵的警告做了--scaled.jpg)
-班农：那么根本就不会有今天中共病毒的灾难。你看看现在，纽约毁坏了，美国经济被摧毁了，美国的家庭呢，有多少代人要付出代价，我们看看中共在做了什么，然后看看文贵已经说的话，多少事实被验证！
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-*发布：开智则立*
+发布：陶子
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
 
  
 
