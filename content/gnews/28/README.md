@@ -2,46 +2,34 @@
 ---
 
 
-## 有声|輝瑞董事會成員建議停止強制疫苗接種
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1925942/)
+## 《历史的今天》2022.01.29
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1926026/)
 
-配音：香草山健身部 – 玫瑰园
+作者： JAY (杰伊)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/real-final-vote.png)图片来源：[https://tibet.net/the-tibetan-policy-and-support-act-hr-4331-passed-in-the-us-house-with-supermajority-vote/](https://tibet.net/the-tibetan-policy-and-support-act-hr-4331-passed-in-the-us-house-with-supermajority-vote/)
 
+一、1979年1月29日，中共邓小平访美。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-42.jpg)
+二、2002年1月29日：在美国911事件数月后，美国总统乔治布什发表国情咨文演讲，把伊朗、伊拉克和朝鲜称为“邪恶轴心”，指责这三国支持恐怖主义。
 
+三、2008年1月29日，美国总统乔治布什最后一次国情咨文演讲时表示，在伊拉克的部队 增兵正在取得成功，基地组织正在逃跑并将被打败。
 
+四、2018年1月29日，中共国企中交建在巴基斯坦瓜达尔港区所承建所谓自由区起步区市政工程的“一带一路”项目开始营运。
 
-美國食品和藥物管理局（FDA）前局長、輝瑞公司現任董事會成員斯科特-戈特利布博士（Dr. Scott Gottlieb)認為新冠病例的減少是給決策者發出的信號，現在是取消更多疫情相關限制政策的時候。
+五、2019年的1月29日，郭文贵先生向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料。
 
-他在1月24日接受 The Squawk Box 採訪時說：”我認為，在東海岸病例數急劇下降的時候，我們需要根據時局調整措施。隨著形式的改變，我們必須以實施措施時的相同速度，來放鬆一些相關制度。
+六、2020年1月29日，川普政府成立由卫生与公众服务部部长亚历克斯-阿扎尔领导的白宫冠状病毒工作组。
 
-戈特利布說，美國的 “很多爭執 “來源於對何時取消疫情措施沒有 “明確的目標”。
+七、2020年1月29日，美国国会众议院压倒性票数通过《西藏政策及支持法案》，以捍卫藏人宗教自由，保障西藏自治地位。法案规定，中共官员不得干涉未来包括达赖喇嘛在内的藏传佛教领袖转世，否则美方将予以制裁。
 
-這位前美國食品和藥物管理局專員還提到，康涅狄格州政府最近取消對州政府工作人員的疫苗強制的決定，應該被其他州決策者所採納。戈特利布補充說：”要想讓民眾遵守規則和贊同，唯一方式是要證明我們有能力施行政策，也有能力取消這些政策”。
+八、2021年1月29日，中共幕后操纵，海航集团以不能清偿到期债务为由，向法院申请破产重组。
 
-原文链接：[輝瑞董事會成員建議停止強制疫苗接種](https://gnews.org/zh-hant/1921158/)
+九、2021年1月29日，中共国企华融资产管理公司前负责人赖小民，指控受贿而被处决。
 
-音频处理/发稿：Daxia
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+*发布：Theodosia*
 
  
 

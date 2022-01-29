@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/29/2022 2:00 AM (UTC)`
+
+1/28/2022 Miles Guo’s GETTR: The CCP begged the US to withdraw only the personnel who tested positive for the virus, but the US sent several military medical aircraft, which have arrived at the Beijing Capital International Airport. The CCP is like a wolf disguised as a sheep in front of the Chinese people, whereas it is like a sheep disguised as a wolf when it's facing the West. I will deal a few more fatal blows to the CCP.<br/><br/>1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员，但美国却派了多架军事医疗飞机已抵达北京首都机场；中共在中国人面前是披着羊皮的狼，在西方面前则是披着狼皮的羊；文贵再给你中共玩几个招杀手锏！
+![img](https://media.gettr.com/group4/getter/2022/01/29/01/72f2295f-e4e4-fffb-b092-b2f5300770b1/out.jpg)
+
+---
+
 `@miles 1/29/2022 12:27 AM (UTC)`
 
 1月28号，Hcoin To the Moon MV上线第50天位列澳门🇲🇴iTunesMV榜首🥇，累计共37次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共33次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1924888<br/><br/>Jan 28，2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 50 Day of Launch, hit No .1 for 37 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 33 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/27/2022 Miles Guo: Over one hundred of international financial institutions have made the decision to do everything they can to punish the CCP before it attacks Taiwan, and this is huge! The so-called “authorized departure” of the U.S. embassy in Beijing, which technically means “No Severance, No Contact”, is tantamount to taking out the sinews of the CCP, and seizure of the CCP cadres’ offshore assets is like draining the CCP’s blood.<br/><br/>1/27/2022 文贵直播: 一百多家世界金融家机构组织决心要在中共打台湾前用尽力量惩罚中共，这可是天大的事儿！美国的不断不交“授权撤离”是抽共产党的筋、国际社会查封中共高官海外资产是放中共的血<br/>
 ![img](https://media.gettr.com/group38/getter/2022/01/27/23/a47b66c1-67e7-2d89-6c3e-5f8e9b07bb33/out.jpg)
-
----
-
-`@miles 1/27/2022 5:19 PM (UTC)`
-
-1月27日： ［七哥您好! 这篇文章跟您说的宇宙观一致，根据量子等式，宇宙无始无终］。🙏🙏🙏🙏 https://www.sciphysics.com/2021/08/no-big-bang-quantum-equation-predicts.html?m=1&s=08
-![img](https://media.gettr.com/group6/getter/2022/01/27/17/8fd4e49f-1941-a6e0-0f63-94cdf3d19d1f/6a8c41f4e1293ea2fec4afe1e50d8644.jpg)
 
 ---
 

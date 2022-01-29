@@ -3,20 +3,12 @@
 
 
 ## 七哥金句
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926159/)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926177/)
 
 整理：雅典娜速记组
 编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句2-1.jpg)
-什么叫政治权利?
-
-你问政治政治家，不是说Yes的权利，那不是他的权利。
-
-政治家所有的总统，是说不的权利。
-
-什么叫政治?
-
-政治就可以说不。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥金句11_01.jpg)
+音乐加情感加事实的力量绝对是精神导弹
 
 发布：*皮特*
 
