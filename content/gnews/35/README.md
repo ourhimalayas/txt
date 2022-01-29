@@ -2,31 +2,25 @@
 ---
 
 
-## 美国拒绝中共哀求 派军事医疗专机协助撤离大使馆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1928135/)
+## 中日财经爆|IMF：中共国地产危机与清零防疫会伤及全球经济
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1928244/)
 
-撰稿：东京樱花团丨喜马拉雅的微尘
-![](https://lh3.googleusercontent.com/PxG54td-2dD-rcC8qg49LZGyS0HPBzB-sr4A0Nl6OPe8Uha0jJt7Um5iuxwXEg42lcIZwO65hsIiRmBZidlfVfmA7N02dn9F5eVEgIYsR_-JPj50ZgkaJlOi5xgncFksUrIpSoYr)
-自郭文贵先生近日爆出美国将撤离北京大使馆消息以来，美国撤馆情况已为全球所瞩目。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2423.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F56361301_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fen%2Fimf-extends-debt-service-relief-for-25-low-income-countries%2Fa-60204052&amp;tbnid=fXwYD4dnDu3t-M&amp;vet=12ahUKEwjLn9HrrNb1AhVH4GEKHf8XCIoQMygEegUIARCxAQ..i&amp;docid=OLXbFSqOaV-hcM&amp;w=700&amp;h=394&amp;itg=1&amp;q=IMF&amp;ved=2ahUKEwjLn9HrrNb1AhVH4GEKHf8XCIoQMygEegUIARCxAQ)
+国际货币基金组织（IMF）1月28日在一份报告中发出警告，中共国大型房地产开发企业面临的债务危机可能会产生更大范围的经济影响，会波及到全球市场，并呼吁中共国放弃清零防疫政策。
 
-1月28日，郭文贵先生在盖特视频中透露了最新的美国撤离北京大使馆情况。
+国际货币基金组织认为，要完全消除这一威胁，中共国就需要进行深层次的改革。一般认为，流动性问题与中共国政府在过去一年对房地产市场的债务问题进行全面清理有着很大的关系。
 
-郭文贵先生透露，中共刚刚跟美国商量，也就是昨天（1月27日）中共恳求美国不要撤走（大使馆）那么多人，并建议美国“象征性的把所谓阳性的人撤走，剩下的留在这儿，然后共同来个公告”，对外宣称“由于使馆有人感染阳性，短暂的授权撤离”。
+报告说，除了债台高筑的恒大集团之外，还有一些开发生也面临资金短缺的问题，存在着对“更加广泛的经济和全球市场发生负面溢出效应的担忧”。如果中共国增长突然失速，其影响将会通过贸易和商品价格向外扩散开来。
 
-郭文贵先生进一步透露，美国派了几架军事医疗专机到了北京，目前就在北京首都机场T3机楼。
+国际货币基金组织说，虽然中国的经济复苏“走在了前面”，但这个复苏并不平衡，其势头也开始减弱，其部分原因是消费疲软，和疫情不断出现反复。
 
-美国为什么派遣多架军事医疗专机到北京？
+中共国是全球大流疫发生最早的地方，也是目前全世界还继续坚持清零防疫并出现大量人道灾难的唯一国家。这将对全球供应链和经济增长造成的负面影响。
 
-“美国北京大使馆几个人呢，去那么多军事医疗专机干啥去啊？ ”郭文贵先生以启发式的反问进行了回答。
+消息来源：[IMF罕见表态：北京应放弃防疫清零策略 以防债务危机殃及全球复苏](https://www.voachinese.com/a/IMF-warns-China-s-property-stress-poses-spillover-risk-20220128/6416664.html)
 
-1月25日，郭文贵先生在“甜蜜蜜运动重大公告”中公布了关于美国授权撤离北京大使馆消息，该消息震惊世界，同时也充分展示了爆料革命、新中国联邦在推动“美国撤馆”这一重要的灭共历史进程中的巨大作用。
-
-对于美国坚定撤离大使馆的行动，中共内部当前不敢面对、不愿面对，仍旧寄望于联合美国出个公告以欺骗广大的中国老百姓，以维护它们对中国的统治。不管中共是否愿意正视现实，作为中共政权合法性“定海神针”的美国大使馆的撤离，已经开启了中共灭亡的倒计时。
-
-信息来源：[**郭文贵先生2022年1月28日盖特视频（4分05秒）全文字版**](https://gnews.org/zh-hans/1927201/)
-
-*校对：东京樱花团 / 东洋武士*
-*发布：东京樱花团 / 平安卿卿*
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

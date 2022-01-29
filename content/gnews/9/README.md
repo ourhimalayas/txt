@@ -2,10 +2,10 @@
 ---
 
 
-## 图表显示中共国人口增长呈断崖式下跌
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928682/)
+## 强制疫苗正在使美国军队失去数百名经验丰富的飞行员
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928757/)
 
-01/22/2022 图表显示中共国人口增长呈断崖式下跌
+01/25/2022 斯科特·邓肯表达了他对美国失去数百名经验丰富的飞行员的担忧，仅仅因为军方领导层强制接种新冠疫苗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

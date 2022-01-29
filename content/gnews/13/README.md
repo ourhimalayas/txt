@@ -2,33 +2,12 @@
 ---
 
 
-## 电影制片人捕捉到的“击败授权”集会的真正精神
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1928631/)
+## 罗伯特·马龙博士：为我们的孩子而战，绝不妥协
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928717/)
 
-翻译：Jenny Ball
+01/23/2022 罗伯特·马龙：我是一名医生和科学家，在开发疫苗和其他药物方面训练有素且经验丰富。我们不应该将公共卫生对中共病毒 的反应政治化。关于中共病毒基因疫苗，科学已经确定他们没用。这些基因疫苗是有漏洞的，耐用性很差。即使美国的每个男人、女人和儿童都接种了疫苗，这些产品也无法实现群体免疫并阻止病毒.它们并不完全安全，风险的全部性质仍然未知。保护我们的孩子是第一职责，这是你我的职责。我们的公共卫生系统要求我们对孩子们做的很多事情都直接伤害了他们。所以为你的孩子而战，不妥协！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-1.jpg)图片来源：The Defender Staff
-
-调查记者和纪录片制片人丹·科恩（Dan Cohen）参加了周日在华盛顿特区举行的“击败授权”抗议活动，超过 30,000 人聚集在那里抗议疫苗授权、抗议政府过度扩张和审查。
-
-科恩是为了了解真实的故事——而不是制药公司资助的主流媒体向公众兜售的故事。
-
-他采访了消防员、医疗保健工作者、律师、医生、民权活动家、职业运动员和疫苗受伤儿童的父母，以找出他们参加抗议的原因。
-
-尽管主流媒体将抗议者描述为“极端分子”和“反疫苗者”， 但科恩发现人们有许多不同的宗教信仰、政治观点以及对疫苗风险和益处的看法。
-
-但他们都围绕着一个单一的信息团结起来：自由。
-
-**纪录片链接**：[www.youtube.com](https://www.youtube.com/watch?v=iDLBYjDPkSg&amp;t=7s)
-**素材来源**：[childrenshealthdefense.org][Filmmaker Captures True Spirit of ‘Defeat the Mandates’ Rally](https://childrenshealthdefense.org/defender/dan-cohen-video-defeat-the-mandates/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

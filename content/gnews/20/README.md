@@ -2,35 +2,10 @@
 ---
 
 
-## MV版Hcoin To the Moon上线51天第38次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928543/)
+## 一个北京人在墙内勇敢发声赞扬民主制度好
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1928666/)
 
-1/29/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线51天第38次位列澳门iTunes热门音乐视频榜榜首，第45次位列前三名
-
-* * *
-
-[【PDF Download】Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
-
-
-[【PDF Download】Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Saturday-29-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+01/25/2022 一个北京人在墙内勇敢发声赞扬民主制度好。他批评中国人太愚蠢太虚弱不敢反对中共独裁暴政。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

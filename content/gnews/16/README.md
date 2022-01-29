@@ -2,28 +2,46 @@
 ---
 
 
-## 美高级官员将访问立陶宛 对抗中共经济胁迫
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1928571/)
+## 日媒打脸习和巴赫为北京冬奥造势的行径
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928704/)
 
-**撰稿：日本东京方舟农场  老孙**
+作者: 日本方舟农场 – Andy5
 
-据美国之声1月29日报道，美国国务院发表声明，副国务卿费尔南德斯（Jose Fernandez）将于1月30日出发，访问立陶宛首都维尔纽斯及比利时布鲁塞尔，表达美国对立陶宛的坚定支持，并与欧盟官员讨论双边经济合作，以对抗来自中共政府的政治压力和经济胁迫。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-525.jpg)（图片取自美国之声）
-声明指出，双方将讨论落实一项总额6亿美元的谅解备忘录，拓展美国出口商和立陶宛买家在高科技制造业、商业服务、再生能源等方面的合作机会，并与欧盟贸易和技术委员会，讨论跨大西洋贸易和投资，以阻止中国在全球范围内不断提升的影响力。
 
-声明中还表示，中共经济胁迫的行为已违反国际经贸协定，不应被准许，台湾将与立陶宛及欧盟等其他理念相近伙伴合作，防止中共采取经济及外交胁迫措施，维护以规则为基础的国际贸易体系。
 
-台湾驻立陶宛代表处于2021年11月18日在首都维尔纽斯挂牌成立。中共政府以代表处名称使用“台湾”、“损害国家主权和领土完整”为由，持续对立陶宛外交及经贸强力施压，甚至要求欧洲企业将立陶宛排除供应链。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
-台湾行政院经贸谈判办公室星期五晚间也发表声明说，全力支持欧盟和立陶宛反对中共经济胁迫的不当行径。
 
-参考链接：
-1.[https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html](https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html)
-2.[https://www.cna.com.tw/news/aopl/202201290012.aspx](https://www.cna.com.tw/news/aopl/202201290012.aspx)
 
-素材采编：老孙
-编辑：文顺
-发布：爱放飞
+正在以国宾身份访问中共国的国际奥委会主席巴赫，于当地时间25日在北京，跟习近平举行会晤为北京冬奥会造势。日媒用三个事实打脸这个宣传活动。 首先习和巴赫在戴着口罩拍完照以后，就摘下口罩举行面对面的会晤，这并不符合中共目前自己颁布的防疫条例。其次，除了巴赫的国宾待遇，中共更是在北京的公园内为巴赫专门做了一个铜像。然而在公园内休息的北京市民并不知道现任奥委会主席是谁，甚至还有回答是已故的雅克罗格。第三，中共为了举办冬奥会而执行的清零政策，让许多墙内老百姓在春节期间，面临着有家不能回、回家后担忧无法再返回工作城市的顾虑，各地也出现不同程度的事件，弄得老百姓怨声载道。 分析人士指出，北京冬奥会在面临国际抵制之后，又面临墙内百姓的不满，无论习和巴赫如何吹捧也无法改变这些事实。正如郭先生在1月19日大直播里说的那样，北京冬奥会将是习近平最后一场国际政治表演（国际秀）。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-4-1.jpg)图片来源网络
+
+**相关链接:**
+
+[https://www.gettr.com/post/pqo72a3798](https://www.gettr.com/post/pqo72a3798)
+
+[https://www.gettr.com/post/ppx8bac0d1](https://www.gettr.com/post/ppx8bac0d1)
+
+
+
+![This image has an empty alt attribute; its file name is Jan-17.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
+
+编辑/校对/发稿: Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-46.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
  
 
