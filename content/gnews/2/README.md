@@ -2,37 +2,28 @@
 ---
 
 
-## 有声|英国首相强调台海稳定，台湾回应与英共护印太和平
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930251/)
+## 美国高官将访问立陶宛支持对抗中共国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1930330/)
 
-配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-at-18-15-46-Beijings-2022-Winter-Olympic-propaganda-mirrors-Hitlers-1936-efforts2.jpg)图片来源：www.voachinese.com
+据美国之音1月29日报道，美国国务院负责经济增长、能源和环境事务的副国务卿费尔南德斯将访问立陶宛。届时费尔南德斯将与欧盟官员讨论落实一项总额6亿美元的谅解备忘录，拓展美国出口商和立陶宛买家在高科技制造业，商业服务，再生能源等方面的合作机会，以及美国强力支持立陶宛对抗中共国的政治压力和经济胁迫。
+
+美国支持立陶宛因台湾问题跟中共国发生的争议。台湾去年在维尔纽斯设立了“驻立陶宛台湾代表处”，而不是通常使用的“台北”之后，北京将中共国和立陶宛的外交关系降为代办级，并敦促跨国公司切断与立陶宛的联系。美国在阻止中共国在全球范围内不断加大的影响力。
+
+中共霸凌台湾很多年，还阻止世界上其他国家与台湾建立任何正式的官方联系，否则就采取政治打击、经济制裁等手段，一副无能的流氓嘴脸。中共窃取政权之后，没有能力搞好经济，提高国民生活水平，一味地盘剥人民、掠夺财富，还试图通过蓝金黄的手段控制全世界。弹丸小国立陶宛不畏强权，公开支持台湾，遭到中共多方打压。美国支持立陶宛的行为无疑是对中共的警告，同时也会带动世界其他国家保持与台湾的关系，孤立中共。
+
+新闻参考链接：[https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html](https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-英国首相强森于1月26日英国国会下议院应询指出，共机扰台无助台海和平稳定，并强调两岸和平且具建设性对话的必要性。
+编辑：【英国伦敦喜庄园编辑部】
 
-台湾外交部27日对此表达高度欢迎及诚挚感谢。并说，台湾不会因为中共派遣军机扰台而放弃自由民主生活方式；中共威权持续胁迫台湾，只会让世界各国更认清中国共产党穷兵黩武的本质。
-
-台湾作为印太地区负责任的成员，将持续秉持透明、高标准及共享价值等民主原则，并与理念相近国家携手强化民主联盟韧性，共同维护印太地区和平。
-
-文字版原文：[英国首相强调台海稳定，台湾回应与英共护印太和平](https://gnews.org/zh-hans/1927860/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

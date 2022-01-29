@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/29/2022 9:49 PM (UTC)`
+
+FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; Bombshell Documents Debunk Dr. Fauci’s Narrative on COVID’s Origin.<br/><br/>内部文件揭示中共病毒武汉实验室起源论被诸如福奇等所谓的”科学家“淡化。
+![img](https://media.gettr.com/group18/origin/2022/01/29/21/776df428-dce3-a3d8-64d7-17c29bfac375/out.jpg)
+
+---
+
 `@miles 1/29/2022 6:22 PM (UTC)`
 
 1月29号：【🧧求七哥Gettr首发🧧   <br/><br/>《我剪的视频😂请多关照！🙏】
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/27/2022 Miles Guo: I will sing an unprecedented song during the grand live stream of the lunar new year to ruin the CCP’s opening ceremony for the Winter Olympics. Xi Jinping and Putin will meet up in a private room at the Great Hall of People during the Winter Olympics. The Tian Mi Mi Movement will make various countries around the world bargain with the CCP, which will sell out all the Chinese people by paying these countries tens or hundreds of billions of dollars. So, the Chinese people are the most miserable in the world!<br/><br/>1/27/2022 文贵直播：文贵将在春节大直播上唱首前所未有的歌，灭掉中共冬奥会开幕式；冬奥会期间习近平和普京两人将在人民大会堂的包厢会面；甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的！<br/>
 ![img](https://media.gettr.com/group17/getter/2022/01/28/01/7968b950-6d7e-3f3b-ffda-b81a322cde0a/out.jpg)
-
----
-
-`@miles 1/28/2022 12:33 AM (UTC)`
-
-1/27/2022 Miles Guo: All the disasters suffered by the Chinese people are due to the fact that many of them only believe in the fake but not the real. That’s why we must have democracy, rule of law, and faith after the CCP is destroyed. The authorized departure granted to the US embassy in Beijing is by no means a hastily made decision by Biden. How does it relate to Pompeo’s trip to Taiwan and the visit of the US military aircraft and warships to Taiwan?<br/><br/>1/27/2022 文贵直播：中国人所有的灾难都缘于只信假的而不信真的，因此灭共后要有民主、法治和信仰；美国大使馆的授权撤离绝非拜登拍脑袋的决定，这和蓬佩奥、美军军机和军舰访台有何关联？<br/>
-![img](https://media.gettr.com/group49/getter/2022/01/28/00/3ffa1c5f-1667-ae65-27a9-54477d7e0f82/out.jpg)
 
 ---
 

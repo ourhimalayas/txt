@@ -2,22 +2,44 @@
 ---
 
 
-## G系列走在时代的最前端 GTV投资是王牌中的王牌
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1929983/)
+## 1990年的春天 吉他弹唱
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1930028/)
 
-疫情催发了世界经济变革，互联网经济，数字货币是未来的发展趋势。G系列走在时代的最前端。
+作者：香草山信息部 – 呼吸的雾霾（文小呼吸）
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+姐姐，今夜我在等你
+那个夏天，那辆火车。带我们去一个地方
+爸爸正在听着汽笛声
+妈妈为你做了白裙子
 
-GETTR很快会有全方位的大升级，GETTR币，GETTR支付等功能将会上线。互联网，区块链技术的应用，实现了“使用即金钱”，如战友们使用GETTR时，就是在赚钱。
+姐姐，今夜我在想你
+我的朋友，他们都老了。只有你，永远十七岁
+我已忘了家乡的春天是什么
+我已忘了你的颜色是什么
+我已忘了他们议论的是什么
+我已忘了明天的我是什么
 
-GFASHION和喜币，GLCUB的结合，当GCLUB被世界接受时，GFASION的销量绝对不只是百万级别的。
+姐姐，今夜我在恨你
+你的眼睛出卖了我。你的爱毁灭了我
+什么时候我才能忘了你
+什么时候我才能靠近你
+什么时候我才能忘记你
+什么时候我才能靠近你
 
-[GTV](https://www.gettr.com/hashtag/%23GTV) 投资是王牌中的王牌，未来将是[G系列的](https://www.gettr.com/hashtag/%23G%E7%B3%BB%E5%88%97%E7%9A%84)[控股集团](https://www.gettr.com/hashtag/%23%E6%8E%A7%E8%82%A1%E9%9B%86%E5%9B%A2)！最早投GTV的战友，还有早期GCLUB会员，永远都是优先受利的，未来新中国联邦会立法保护战友的权利和利益。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
 
-视频来源: 20220127—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+**校对/发稿：童谣**
 
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
