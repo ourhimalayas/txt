@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/29/2022 2:43 AM (UTC)`
+
+1/27/2022 Miles Guo: Do I look like I appeared in a photo sent by a fellow fighter taken long ago in Hubei? A guy who followed me in Hubei in the past was determined to become a CCP official to make a fortune when he was young and is now a member of the Politburo of the CCP. He is the most promising political star, but Xi Jinping and Wang Qishan will not let him go.<br/><br/>1/27/2022 文贵直播：战友发给文贵当年在湖北的照片和现在的文贵像吗？当年在湖北跟着文贵的人从小立志当官发财，现已成为中共政治局委员而且是最有希望的政治明星，但习王不会放过他<br/>
+![img](https://media.gettr.com/group31/getter/2022/01/29/02/5a3148d3-dbab-9a21-35fb-b578cf3d3a55/out.jpg)
+
+---
+
 `@miles 1/29/2022 2:00 AM (UTC)`
 
 1/28/2022 Miles Guo’s GETTR: The CCP begged the US to withdraw only the personnel who tested positive for the virus, but the US sent several military medical aircraft, which have arrived at the Beijing Capital International Airport. The CCP is like a wolf disguised as a sheep in front of the Chinese people, whereas it is like a sheep disguised as a wolf when it's facing the West. I will deal a few more fatal blows to the CCP.<br/><br/>1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员，但美国却派了多架军事医疗飞机已抵达北京首都机场；中共在中国人面前是披着羊皮的狼，在西方面前则是披着狼皮的羊；文贵再给你中共玩几个招杀手锏！
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1月27号：衷心地，感谢，喜安娜喜欢第一次做得精美的视频，是的是的，是的，是的，太好了。<br/><br/>［郭叔好，您在大直播中对文化、信仰、真相的分享，让我和爱迪受到了这些信息的启发，感受到了来自真相的灵感。我和爱迪创作了两首原创歌曲。这里面包含了我们对这些讯息的一些理解和感受。非常感谢您对我们的开智，最近一系列世界的行动也让我们再一次的认识到了真相是多么的重要。］
 ![img](https://media.gettr.com/group23/getter/2022/01/27/23/1ba1874e-17d0-6335-e0aa-9be757016091/out.jpg)
-
----
-
-`@miles 1/27/2022 11:33 PM (UTC)`
-
-1/27/2022 Miles Guo: Over one hundred of international financial institutions have made the decision to do everything they can to punish the CCP before it attacks Taiwan, and this is huge! The so-called “authorized departure” of the U.S. embassy in Beijing, which technically means “No Severance, No Contact”, is tantamount to taking out the sinews of the CCP, and seizure of the CCP cadres’ offshore assets is like draining the CCP’s blood.<br/><br/>1/27/2022 文贵直播: 一百多家世界金融家机构组织决心要在中共打台湾前用尽力量惩罚中共，这可是天大的事儿！美国的不断不交“授权撤离”是抽共产党的筋、国际社会查封中共高官海外资产是放中共的血<br/>
-![img](https://media.gettr.com/group38/getter/2022/01/27/23/a47b66c1-67e7-2d89-6c3e-5f8e9b07bb33/out.jpg)
 
 ---
 

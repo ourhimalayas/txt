@@ -15,98 +15,98 @@
 
 ---
 
-### [医疗专家正在死亡](/content/gnews/1/README.md)
+### [瑞典反对为5至11岁的儿童注射新冠疫苗](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥遇到高人师傅指点](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员，但美国却派了多架军事医疗飞机已抵达北京首都机场](/content/gnews/2/README.md)
+### [七哥随时知道习近平行踪](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [疫苗灾难在五月](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥对情报判断为什么总是那么准确](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [医疗专家正在死亡](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [随着“奥米炕”威胁消退，英格兰正解除中共病毒限制](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员，但美国却派了多架军事医疗飞机已抵达北京首都机场](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [拜登团队表示，全球芯片短缺将持续到2022年下半年](/content/gnews/3/README.md)
+### [拜登团队表示，全球芯片短缺将持续到2022年下半年](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2月2日的听证会将发生什么？](/content/gnews/4/README.md)
+### [2月2日的听证会将发生什么？](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联合国：新疆人权报吿不会在北京冬奥前公布](/content/gnews/5/README.md)
+### [联合国：新疆人权报吿不会在北京冬奥前公布](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧盟委员会因对辉瑞的疫苗交易保密受到抨击](/content/gnews/6/README.md)
+### [欧盟委员会因对辉瑞的疫苗交易保密受到抨击](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞典不为5至12岁的儿童接种中共病毒疫苗](/content/gnews/7/README.md)
+### [瑞典不为5至12岁的儿童接种中共病毒疫苗](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1.27大直播后记：虚伪宗教的真相](/content/gnews/8/README.md)
+### [1.27大直播后记：虚伪宗教的真相](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [谷歌因欺骗性位置跟踪与监控被美国多个州起诉](/content/gnews/9/README.md)
+### [谷歌因欺骗性位置跟踪与监控被美国多个州起诉](/content/gnews/15/README.md)
  ` GTV News Talk`
 
-### [蓝枫法律税务专栏—是否喜币不变现就涉及税务问题](/content/gnews/10/README.md)
+### [蓝枫法律税务专栏—是否喜币不变现就涉及税务问题](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [在西澳，未接种疫苗的父母被禁止看望的患病孩子](/content/gnews/11/README.md)
+### [在西澳，未接种疫苗的父母被禁止看望的患病孩子](/content/gnews/17/README.md)
  ` 走进澳洲`
 
-### [全球243个非政府组织呼吁外交抵制北京冬奥会](/content/gnews/12/README.md)
+### [全球243个非政府组织呼吁外交抵制北京冬奥会](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报（01/28/2022）](/content/gnews/13/README.md)
+### [五月花简报（01/28/2022）](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [人类历史偶尔会被某个精神患者改变](/content/gnews/14/README.md)
+### [人类历史偶尔会被某个精神患者改变](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增](/content/gnews/15/README.md)
+### [美国国防部的医疗数据显示：新冠疫苗导致美军中的严重疾病患者猛增](/content/gnews/21/README.md)
  ` GTV News Talk`
 
-### [2022年1月29日《樱花快报》：俄罗斯新增中共病毒确诊病例连续8天创新高](/content/gnews/16/README.md)
+### [2022年1月29日《樱花快报》：俄罗斯新增中共病毒确诊病例连续8天创新高](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [魁北克省媒体刊登第二张支持自由车队卡车司机抗议活动的漫画](/content/gnews/17/README.md)
+### [魁北克省媒体刊登第二张支持自由车队卡车司机抗议活动的漫画](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [为战友供应青蒿素](/content/gnews/18/README.md)
+### [为战友供应青蒿素](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [两件震惊世界的事（二）](/content/gnews/19/README.md)
+### [两件震惊世界的事（二）](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [两件震惊世界的事（一）](/content/gnews/20/README.md)
+### [两件震惊世界的事（一）](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [美国联邦通信委员会撤销中国联通营运授权](/content/gnews/21/README.md)
+### [美国联邦通信委员会撤销中国联通营运授权](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥金句](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [郭文贵先生1.27大直播精要](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [五月花简报（01/21/2022）](/content/gnews/24/README.md)
+### [五月花简报（01/21/2022）](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
-### [七哥金句](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [2022年1月29日《樱花简报》：日本新增中共病毒确诊近8万人 连续3天创新高](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [他帮助撰写了宪章。 现在他说政府正在违反它。](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [新冠疫苗中到底有什么 （二）？](/content/gnews/28/README.md)
+### [新冠疫苗中到底有什么 （二）？](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响](/content/gnews/29/README.md)
+### [美国援助乌克兰防卫性武器，并将采取措施保护欧洲免受俄罗斯引发的燃料危机影响](/content/gnews/30/README.md)
  ` GTV News Talk`
 
-### [【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置](/content/gnews/30/README.md)
+### [【秘翻在线】美国警告俄罗斯-北溪2号管道（Nord Stream 2）将可能被闲置](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [《历史的今天》2022.01.29](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [美驻华使馆申请外交撤离验证文贵先生公告](/content/gnews/32/README.md)
  ` 扬帆枫叶快讯`
