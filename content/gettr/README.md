@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/29/2022 10:09 PM (UTC)`
+
+1/27/2022 Miles Guo: I would like to thank the fellow fighter whose Twitter account is "Tai Ping Quan". He was the police officer who handled my case in 1989 and tweeted to clarify many facts about my case. The so-called verdict spread online by the CCP was completely fabricated.<br/><br/>1/27/2022 文贵直播：文贵要感谢这位推特帐号叫“太平犬”的战友，他是1989年办文贵案子的警察并且发推澄清了有关文贵案子的很多事实，中共在网上散布的所谓判决书纯粹是胡编乱造的<br/>
+![img](https://media.gettr.com/group8/getter/2022/01/29/22/944af1de-a763-40e3-f676-f012a414eda7/out.jpg)
+
+---
+
 `@miles 1/29/2022 9:49 PM (UTC)`
 
 FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; Bombshell Documents Debunk Dr. Fauci’s Narrative on COVID’s Origin.<br/><br/>内部文件揭示中共病毒武汉实验室起源论被诸如福奇等所谓的”科学家“淡化。
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/27/2022 Miles Guo: The shameless Zhang Gaoli gave Peng Shuai many of the fake artworks and antiques that he received. Peng Shuai has lost her freedom and is under surveillance. The CCP has issued an order to eliminate her after the Winter Olympics.<br/><br/>1/27/2022 文贵直播：不要脸的张高丽把他收到的很多假艺术品和假古董都给了彭帅；彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失！<br/>
 ![img](https://media.gettr.com/group38/getter/2022/01/28/01/3b66dc5b-3ae7-00fa-b928-0ef42321b72a/out.jpg)
-
----
-
-`@miles 1/28/2022 1:01 AM (UTC)`
-
-1/27/2022 Miles Guo: I will sing an unprecedented song during the grand live stream of the lunar new year to ruin the CCP’s opening ceremony for the Winter Olympics. Xi Jinping and Putin will meet up in a private room at the Great Hall of People during the Winter Olympics. The Tian Mi Mi Movement will make various countries around the world bargain with the CCP, which will sell out all the Chinese people by paying these countries tens or hundreds of billions of dollars. So, the Chinese people are the most miserable in the world!<br/><br/>1/27/2022 文贵直播：文贵将在春节大直播上唱首前所未有的歌，灭掉中共冬奥会开幕式；冬奥会期间习近平和普京两人将在人民大会堂的包厢会面；甜蜜蜜运动将让世界各国与中共讲数，中共将出卖所有中国人并付出百亿千亿的金钱，中国人是天下最可怜的！<br/>
-![img](https://media.gettr.com/group17/getter/2022/01/28/01/7968b950-6d7e-3f3b-ffda-b81a322cde0a/out.jpg)
 
 ---
 
