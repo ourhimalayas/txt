@@ -2,24 +2,33 @@
 ---
 
 
-## 台湾宣布，其代表团不参加北京冬奥的会开幕和闭幕式
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1927835/)
+## 美台外交新突破 两国副总统首次同场互动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927861/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-77.png)（图片源自本文链接）
-Q电视新闻1月29日消息：台湾当局宣布，台湾运动员不参加将于2月4日开始的北京冬奥会的开幕和闭幕式。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月28日，台湾副总统赖清德在参加洪都拉斯总统就职典礼时与美国副总统贺锦丽“巧遇”，二人简单互动寒暄，约进行20至30秒交谈。据了解，赖清德就美国对台湾的支持向贺锦丽表示感谢。贺锦丽在台上致词时，也特别向赖清德致意。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-27.png)
+有分析人士指出，正值中美关系敏感之际，赖清德与贺锦丽在洪都拉斯总统就职典礼上寒暄，是台美副元首第一次在国际场合自然互动，被各界视为双方外交的一大突破。
 
-台湾教育部28日宣布，包括4名运动员在内的台湾代表团15名成员，不参加北京冬奥会的开幕和闭幕式。台湾给出的理由是：运动员将从台湾、美国、瑞士和其它国家前往北京，另外也考虑到中共病毒（新冠病毒Covid-19）疫情以及队员们的旅途疲劳。
+参考链接：
 
-在台湾，中共国政府发言人26日称台湾队为“中国台北”，而不是过去使用的“中华台北”，引发了台湾民众的不满情绪的发泄，称台湾被当成了中共国的一部分。
+- [「巧遇」成功 賴清德與賀錦麗在宏都拉斯同框寒暄](https://money.udn.com/money/story/7307/6066789?from=edn_related_storybottom)
 
-信息来源：
 
-[台湾 北京五輪の開会式と閉会式 選手らの不参加を発表](https://www3.nhk.or.jp/news/html/20220128/k10013455811000.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：童谣
+编辑：文特
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

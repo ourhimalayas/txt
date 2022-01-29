@@ -2,8 +2,8 @@
 ---
 
 
-## 最早投GTV的人， 是新中国联邦的老椅子
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928007/)
+## 世界卫生组织已发出警告疫苗加强针可能削弱免疫力
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1928228/)
 
 台灣寶島農場
 

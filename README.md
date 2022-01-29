@@ -15,161 +15,161 @@
 
 ---
 
-### [从达沃斯看到邪恶的死亡](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [一个北京人在墙内勇敢发声赞扬民主制度好](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [喜保险，数字保险](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
+### [中共派出有史以来第二多数量的战机入侵台湾防空区](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [要找病毒疫苗源头就找达沃斯](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [忧及人权问题 耶鲁大学基金启动在华投资调查](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [达沃斯就是世界的共产党](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [达沃斯私下讨论喜币](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [战友们拥有喜币](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [雅典娜时报-第188期](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国最顶尖律师对决](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [房地产的溢出效应](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [帮助中共研发病毒的生态健康联盟又获政府巨额经费](/content/gnews/11/README.md)
- ` GTV News Talk`
-
-### [人民币的溢出效应](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [日本疫情加重 各大公司纷纷表态出勤率50%也会继续生产运营](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Mike Pompeo：‘将病毒强加于世界’习近平想要‘主宰世界’](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [达沃斯就是玩小孩的一帮垃圾](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [达沃斯存在一天人类都不安全（三）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [中日财经爆|IMF：中共国地产危机与清零防疫会伤及全球经济](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [欧盟就中共对立陶宛的歧视性贸易做法发起WTO诉讼](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [世界卫生组织已发出警告疫苗加强针可能削弱免疫力](/content/gnews/19/README.md)
- ` G-NEWS TAIWAN`
-
-### [今天意义深远](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [全球243个非政府组织呼吁各国政府外交抵制北京冬奥会](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为保冬奥会面子 雄安偷偷封城不敢声张](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国拒绝中共哀求 派军事医疗专机协助撤离大使馆](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [达到高度才能准确说出叛国、卖国的定义(二)](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
-
-### [“上帝站在我们这一边”安大略省牧师 鼓励加拿大卡车司机继续前进](/content/gnews/25/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [为什么疫苗灾难五月左右开始？!](/content/gnews/26/README.md)
- ` G-NEWS TAIWAN`
-
-### [新中国联邦秘密团队正在建置区块链技术平台](/content/gnews/27/README.md)
- ` G-NEWS TAIWAN`
-
-### [最早投GTV的人， 是新中国联邦的老椅子](/content/gnews/28/README.md)
- ` G-NEWS TAIWAN`
-
-### [CDC谴责药店拒为免疫功能低下者提供第四剂COVID疫苗](/content/gnews/29/README.md)
+### [电影制片人捕捉到的“击败授权”集会的真正精神](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国大陆有多少人相信爆料革命？!](/content/gnews/30/README.md)
- ` G-NEWS TAIWAN`
-
-### [美宣布授权撤离中国大使馆，新中国联邦是重要的推手](/content/gnews/31/README.md)
- ` G-NEWS TAIWAN`
-
-### [多家冬奥赞助商极力低调，避开和北京的关系](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [FCC宣布吊销中共国联通在美国的运营执照](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [弗吉尼亚州新任总检察长：州立大学不能要求学生接种中共病毒疫苗](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美台外交新突破 两国副总统首次同场互动](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [英国首相强调台海稳定，台湾回应与英共护印太和平](/content/gnews/36/README.md)
- ` GTV新闻访谈`
-
-### [美国支持欧盟在世贸组织状诉中共](/content/gnews/37/README.md)
- ` GTV新闻访谈`
-
-### [研究发现中共病毒疫苗导致妇女月经周期延长](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [台湾宣布，其代表团不参加北京冬奥的会开幕和闭幕式](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：瑞典决定撤销对5-11岁儿童注射中共病毒疫苗](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共暗地里要求返乡民众必须做核酸检测](/content/gnews/41/README.md)
+### [欧盟报告提醒中共严重威胁 呼吁加强与台合作](/content/gnews/4/README.md)
  ` GTV News Talk`
 
-### [中共在加拿大华人社区存在广泛的间谍和操纵活动](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
+### [第二个版本的奥米炕病毒正在蔓延 科学家们发出警报](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [美国防部长称，俄罗斯军队有能力占领多个城市和大片领土](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [美高级官员将访问立陶宛 对抗中共经济胁迫](/content/gnews/6/README.md)
+ ` 日本东京方舟农场`
 
-### [中日财经爆|美联储宣布调整利息政策 全球股市面临考验](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习主席别承诺了 多少人跪了 多少人死了 富了谁](/content/gnews/45/README.md)
+### [根据新出台的南卡罗来纳州法案特定机构无权要求个人提供中共病毒疫苗接种状态。](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [加拿大政府报告：中共国实施广泛的间谍和操纵活动](/content/gnews/46/README.md)
+### [疫苗暴政一定要终结](/content/gnews/8/README.md)
+ ` 焦點20分`
+
+### [美国政府研究承认COVID疫苗会延长月经周期](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞典反对为5至11岁的儿童注射新冠疫苗](/content/gnews/47/README.md)
- ` 墨尔本雅典娜农场`
+### [MV版Hcoin To the Moon上线51天第38次位列澳门iTunes热门MV榜首](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [谷歌因欺骗性位置跟踪与监控被美国多个州起诉](/content/gnews/48/README.md)
+### [奥地利将结束封锁未接种者 下周起强制接种疫苗](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [从达沃斯看到邪恶的死亡](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [喜保险，数字保险](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [美名记新书揭露硅谷寡头与中共勾兑牟利](/content/gnews/14/README.md)
  ` GTV News Talk`
 
-### [全球243个非政府组织呼吁外交抵制北京冬奥会](/content/gnews/49/README.md)
+### [要找病毒疫苗源头就找达沃斯](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [忧及人权问题 耶鲁大学基金启动在华投资调查](/content/gnews/16/README.md)
+ ` 日本东京方舟农场`
+
+### [达沃斯就是世界的共产党](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [达沃斯私下讨论喜币](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [战友们拥有喜币](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [雅典娜时报-第188期](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022/01/27 墙内世界](/content/gnews/50/README.md)
+### [美国最顶尖律师对决](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [房地产的溢出效应](/content/gnews/22/README.md)
+ ` 雅典娜GNotes`
+
+### [帮助中共研发病毒的生态健康联盟又获政府巨额经费](/content/gnews/23/README.md)
+ ` GTV News Talk`
+
+### [日本疫情加重 各大公司纷纷表态出勤率50%也会继续生产运营](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Mike Pompeo：‘将病毒强加于世界’习近平想要‘主宰世界’](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧洲有更多人抗议疫苗强制令](/content/gnews/51/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中日财经爆|IMF：中共国地产危机与清零防疫会伤及全球经济](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [弗兰克·加夫尼呼吁人们抵制北京奥运会](/content/gnews/52/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [欧盟就中共对立陶宛的歧视性贸易做法发起WTO诉讼](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [世界卫生组织已发出警告疫苗加强针可能削弱免疫力](/content/gnews/28/README.md)
+ ` G-NEWS TAIWAN`
+
+### [全球243个非政府组织呼吁各国政府外交抵制北京冬奥会](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为保冬奥会面子 雄安偷偷封城不敢声张](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国拒绝中共哀求 派军事医疗专机协助撤离大使馆](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“上帝站在我们这一边”安大略省牧师 鼓励加拿大卡车司机继续前进](/content/gnews/32/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [为什么疫苗灾难五月左右开始？!](/content/gnews/33/README.md)
+ ` G-NEWS TAIWAN`
+
+### [新中国联邦秘密团队正在建置区块链技术平台](/content/gnews/34/README.md)
+ ` G-NEWS TAIWAN`
+
+### [最早投GTV的人， 是新中国联邦的老椅子](/content/gnews/35/README.md)
+ ` G-NEWS TAIWAN`
+
+### [多家冬奥赞助商极力低调，避开和北京的关系](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [FCC宣布吊销中共国联通在美国的运营执照](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [弗吉尼亚州新任总检察长：州立大学不能要求学生接种中共病毒疫苗](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美台外交新突破 两国副总统首次同场互动](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [英国首相强调台海稳定，台湾回应与英共护印太和平](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [美国支持欧盟在世贸组织状诉中共](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [研究发现中共病毒疫苗导致妇女月经周期延长](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共暗地里要求返乡民众必须做核酸检测](/content/gnews/43/README.md)
+ ` GTV News Talk`
+
+### [中共在加拿大华人社区存在广泛的间谍和操纵活动](/content/gnews/44/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国防部长称，俄罗斯军队有能力占领多个城市和大片领土](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆|美联储宣布调整利息政策 全球股市面临考验](/content/gnews/46/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [习主席别承诺了 多少人跪了 多少人死了 富了谁](/content/gnews/47/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [加拿大政府报告：中共国实施广泛的间谍和操纵活动](/content/gnews/48/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [瑞典反对为5至11岁的儿童注射新冠疫苗](/content/gnews/49/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [谷歌因欺骗性位置跟踪与监控被美国多个州起诉](/content/gnews/50/README.md)
+ ` GTV News Talk`
+
+### [全球243个非政府组织呼吁外交抵制北京冬奥会](/content/gnews/51/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022/01/27 墙内世界](/content/gnews/52/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [自由车队2022组织者在GoFundMe上的最新声明](/content/gnews/53/README.md)
  ` 温哥华扬帆农场`

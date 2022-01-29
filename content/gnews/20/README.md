@@ -2,13 +2,15 @@
 ---
 
 
-## 今天意义深远
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928203/)
+## 雅典娜时报-第188期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1928432/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+#### **《雅典娜时报》汇聚全球新闻时事**
 
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/936796428972478544/155_4.png?width=818&amp;height=1218)![圖片](https://media.discordapp.net/attachments/825592691433668612/936796429920374804/155_5.png?width=818&amp;height=1218)
 *发布：陶子*
-
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
 [澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)

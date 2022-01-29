@@ -2,52 +2,48 @@
 ---
 
 
-## Mike Pompeo：‘将病毒强加于世界’习近平想要‘主宰世界’
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1928353/)
+## 美名记新书揭露硅谷寡头与中共勾兑牟利
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928489/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1000x563_cmsv2_11e614ff-4c57-5bf3-9c54-5fa71c9f98f0-64307842.jpg)
-迈克·蓬佩奥(Mike Pompeo)说，中国领导人习近平想要“中国共产党霸权主义主宰世界”，他警告说，中国共产党的崛起可能会破坏自二战结束以来建立的国际秩序。“这不是中国的坦克师出动台湾的问题”，蓬佩奥说，“这是关于其在全世界范围内增加政治权力和影响力的问题。
-
-蓬佩奥曾担任中央情报局局长，后来在唐纳德·川普(Donald Trump)总统政府担任国务卿，他在2022年阿格斯美洲原油峰会上发表了上述言论。
-
-他说，他在担任中央情报局局长期间，正值美国不得不把注意力从恐怖主义转向其他威胁，其中首要的威胁就是中共。他补充说，有关他眼中的中国共产党的野心，一场“全球觉醒” 正在发生。
-
-蓬佩奥说：“这大部分要归功于习近平。天那，他把病毒强加给世界，并拒绝让任何人去弄清楚它的来源。”
-
-中共因阻止联合国访问武汉病毒研究所(WIV)和在武汉的相关设施而遭到国际社会的批评。许多科学家和记者都在怀疑导致新冠肺炎(COVID-19)的中共病毒(CCP virus)源自武毒所。
-
-蓬佩奥还评论了美国和中共国之间不断发生的贸易冲突，对美国在与中共国当时的竞争对手苏联处于冷战的背景下决定对中共国开放提出了质疑。
-
-他说：“贸易战也许始于1972年”，指的是亨利·基辛格(Henry Kissinger)和理查德·尼克松(Richard Nixon)总统在恢复外交关系下对中共国的访问。“也许在1972年这样做是正确的，但说明贸易战早在川普政府之前就开始了。”
-
-蓬佩奥说：“我们鼓励一起做生意。我不怪那些去那里的企业。注意这句话的过去式。美国的政策鼓励与中共的联系。如今，这对世界来说是一个巨大的负担，而习近平知道这一点。”
-
-**简评：**
-
-蓬佩奥指出的“贸易战也许始于1972年”，是指从那时起，美国政府开始对中共采取姑息政策。中共以“会哭的孩子有奶吃”的发展中国家姿态，成功进入了WTO。
-
-从此，打开了中共对外扩张的大门。当时中共为了借风使舵，其对外开放政策选择走“和平发展、不称霸、不扩张，构建不冲突、不对抗、合作共赢的道路”。直到中共国通过“搬来主义”把自身转变成了一个世界加工出口垄断国，让人担心的事情“中共一旦经济发展起来，就会另起炉灶，破坏现有的经济体系和机制”发生了。
-
-正如蓬佩奥所指出的：“美国的政策鼓励与中共的联系。如今，这对世界来说是一个巨大的负担，而习近平知道这一点。”
-
-这负担不免指的就是中共对外扩张的野心，用垄断生产来挟制其他国家，用金融外交换蚕食其他国家，用制造的病毒威胁全世界。而这些‘负担’确实给世界的和平、稳定和经济带了巨大的震荡和破坏。
-
-负担的背后是责任，美国意识到要尽的义务，也清楚地认识到谁要为此承担责任。在蓬佩奥看来，对于中国共产党的这一野心，全球正在觉醒。
-
-没错，中共承担责任的时候到了。习想要‘主宰全球’那只是他的一个‘甜蜜蜜的梦’。新中国联邦会履行监督中共的使命，直至其灭亡。
-
-新闻链接：[https://www.theepochtimes.com/xi-jinping-seeking-global-domination-mike-pompeo\_4235829.html](https://www.theepochtimes.com/xi-jinping-seeking-global-domination-mike-pompeo_4235829.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者: 首尔天池农场—zzballack
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+
+
+
+1月22日，《纽约邮报》摘录了高级撰稿人、“政府问责研究所”主席彼得·施魏策尔撰写的新书——《人赃俱在：美国精英如何通过帮助中共获胜而致富》的节选。讲述了美国大科技公司与中共互相勾兑，出卖国家利益的行径。 书中提到几个典型例子。2015年，脸书的扎克伯格参加了奥巴马政府在白宫为习近平举行的国宴，请习为孩子取中文名以示好。2014年底，扎克伯格特意在办公桌上摆放《习近平谈治国理政》，向来访的鲁炜解释说，也给同事购买书，以便让他们学习中国特色社会主义。 2017年，谷歌宣布在中共国成立人工智能研究中心，由李飞飞和李佳领导，帮助中共实现“伟大复兴”。为了拉拢特斯拉上海建厂，数家中资银行主动向特斯拉提供了14亿美元的贷款。2019年1月，上海特斯拉工厂奠基仪式，李克强亲自出席，甚至提出让马斯克成为中共国的永久居民。 这些事例进一步证实了文贵先生的早期爆料。中共以“蓝金黄”手段渗透美国高科技企业，以便盗取技术，诱使并控制这些行业精英，互相出卖国家和人民的利益。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-2.jpg)图片来源网络
+
+**相关链接:**
+
+[Peter Schweizer’s ‘Red-Handed’ Exposes Communist China’s Silicon Valley Sympathizers](https://www.breitbart.com/tech/2022/01/22/peter-schweizers-red-handed-exposes-communist-chinas-silicon-valley-sympathizers/)
+
+
+
+![This image has an empty alt attribute; its file name is Jan-17.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
+
+编辑: 纽约香草山文艺部 – 宁文静
+
+校对/发稿: Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-46.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
  
 
