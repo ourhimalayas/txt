@@ -2,12 +2,19 @@
 ---
 
 
-## 美宣布授权撤离中国大使馆，新中国联邦是重要的推手
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1927933/)
+## 美国司法部被国外机构行贿和腐败
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928058/)
 
-台灣寶島農場
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-清朝时期，美国就有驻中国大使馆，美国大使馆见证了中国的堕落。
+发布：陶子
+
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
 
  
 

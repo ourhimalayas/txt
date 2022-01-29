@@ -2,36 +2,39 @@
 ---
 
 
-## 接种新冠疫苗死亡导致尸体充满栓塞
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927785/)
+## 媒体审查疫苗伤害故事 德莱森告诉小肯尼迪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1927876/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-1月26日，殡仪馆馆长理查德·赫希曼揭示了新近死亡人群的尸体中动脉和静脉中充满了非自然血凝块和奇怪的纤维材料。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2412.png)
-这位殡仪馆馆长同时持有人体防腐资格证。他的殡仪馆接受的死亡大多数与心脏病和中风有关，这同时也是中共病毒疫苗引发的常见不良并发症。馆长说当他试图给这些接种过中共病毒疫苗死亡的尸体进行防腐处理时，发现有阻力，血凝块和奇怪的纤维材料被从尸体的大血管中拉出。并且在过去的一年里，在他的防腐案例中，有这些类型堵塞物的比例从50%上升到近80%。
+翻译： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2414.png)图片来源：childrenshealthdefense.org
 
+德莱森想知道，为什么她的故事和许多其他疫苗伤害案例，没有被媒体报道。雪上加霜的是，她发现**记者极不愿意写任何关于疫苗的负面消息**。社交媒体正在压制有关疫苗受伤的信息。
 
-新闻来源：[Worldwide Exclusive: Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots](https://www.redvoicemedia.com/2022/01/worldwide-exclusive-embalmers-find-veins-arteries-filled-with-never-before-seen-rubbery-clots/)
+她说：
 
+“正在发生着明确的审查制度，这令人震惊，因为这个国家的信息自由和言论自由需要得到保护。我们需要人们真正站出来，愿意保护我们的言论自由。**这还包括让****——****不仅是主流媒体****——****还包括社交媒体公司****——****负责。**”
 
+即使在去年与参议员罗恩·约翰逊（Ron Johnson）举行的新闻发布会之后，德莱森表示，人们仍然不愿意面对越来越多的疫苗伤害报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
+她告诉肯尼迪：
 
-总编：童谣
+“正如你在主流媒体上看到的，完全不报道。我们的面孔都被删去——即使约翰逊参议员在新闻发布会上讲的非常好的、诚实的铁板钉子的真实伤害，没人报道。每个人都有非常详尽的医疗报告来证实我们的说法，但都没有进入主流媒体。媒体出现在约翰逊参议员所做的第一次新闻发布会上，但他们并没有真正展示我们的面孔，而是报道说，约翰逊参议员正在传播错误信息。”
 
-编辑：文特
+今天，德莱森专注于让人们意识到 COVID 疫苗的风险，并帮助其他受伤的人，因为这样做的资源很少。
 
-校正/发稿：浪迹天涯
+肯尼迪为她的英雄行为而鼓掌：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+“**你为那些人所做的是你在谈论有效的协议，这些协议对团队中的人有效，否则，他们无法了解。你说的是可以治疗这些疾病的医生，这些独特的、罕见的医生，实际上正在尝试治疗疫苗损伤，并且正在开发在某些情况下非常成功的药物治疗方案和方法。**”
+
+素材链接：[childrenshealthdefense.org] [Media Censoring Vaccine Injury Stories, Brianne Dressen Tells RFK, Jr.](https://childrenshealthdefense.org/defender/rfk-jr-defender-brianne-dressen-media-censoring-vaccine-injury-stories/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bcf8f93a-db44-4f1f-8e44-c3343bb314fc)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

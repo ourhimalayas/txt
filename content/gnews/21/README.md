@@ -2,23 +2,41 @@
 ---
 
 
-## 系紧安全带！美银：FED今年将升息7次、每次1码
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1927745/)
+## FCC宣布吊销中共国联通在美国的运营执照
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927870/)
 
-素材推荐：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-29-at-4.37.16-PM.png)图片来源：互联网
-美银分析师周五表示，美联储（Fed）在 1 月货币政策会议后召开记者会，暗示將在3月升息，且不排除每次开会都升息的可能性。为对抗通膨，预计Fed今年将从3月起升息7次，每次升25个基点。
+作者：日本方舟农场 – Andy5，纽约香草山金融部 – AT
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+当地时间1月27日，美国联邦通信委员会FCC，再次因国家安全问题，以4比0的投票结果，一致通过撤销中共国联通在美国的服务授权。并要求其美洲营运有限公司，在该命令发布的60天内停止在美国的任何国内和国际业务。
 
-路透报道，美银经济学家在1份报告中表示，美联储几乎已经承认，它严重落后于现实情况，经济学家进一步指出，美联储激进的政策收紧，应该会对经济产生滞后影响，对2023年的增长构成压力。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.png)
 
-预估2022年的美国国内生产总值（GDP）增长预估将从4.0%下调至3.6%。
+FCC表示，自20年前FCC授权以来，有关中共国的国家安全环境发生了变化，并发现联通美洲子公司和其在大陆的母公司，中共政府都有机会进入、存储、破坏或误导美国通信。并指出，联通的行为缺乏坦诚、可信度和可靠性，不符合FCC要求的基本信任水平。
 
-* * *
+继2019年5月FCC投票否决中共国移动在美服务授权，2021年10月吊销中共国电信服务授权后，到现在中共国联通被吊销执照。至此，中共三大电信运营商彻底在美国出局。
 
-*编辑&发布：Vicky*
+参考链接：
 
-原文链接：[繫緊安全帶！美銀：Fed今年將升息7次、每次1碼](https://ec.ltn.com.tw/article/breakingnews/3817103)
+- [美国以国家安全为由 吊销中国联通在美经营权](https://www.zaobao.com/realtime/world/story20220128-1237504)
+- [接二连三无理打压！中国联通被勒令60天内停止公司在美业务](http://finance.eastmoney.com/a/202201282264596976.html)
+- [商务部回应中国电信被美吊销运营牌照：恶意打压，应立即纠正](https://www.163.com/dy/article/GNDP9ANI05129QAF.html)
+- [美国突然宣布吊销这家中国巨头的运营牌照，并限期60天内停业](https://www.sohu.com/a/497870818_120762996)
+- [美国正式拒绝中国移动赴美开展业务](https://cn.nikkei.com/china/ccompany/35509-2019-05-10-09-23-25.html)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：DM
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
