@@ -2,42 +2,25 @@
 ---
 
 
-## 美国最高法院大法官斯蒂芬.布雷耶宣布将退休
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1928847/)
+## 往市政府柜台匿名捐款500万日元，要求改变煞风景站前颜色
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1928948/)
 
-作者: 纽约香草山 金融部 – AT
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-286.png)
+[图片来源](https://news.yahoo.co.jp/articles/4f24ecc4ee615f85b1bbccdd2d0fe9037726192f/images/000)
 
+1月26日，千叶县松户市政厅发表了，柜台上发现了500万日元现金捐款。现金和捐赠申请书放在一起，但捐赠者是匿名。附上了将JR新松户站前（市民觉得不好看）像神社鸟居并排物体似的，“灯箱”造型，从红色改涂别的颜色的要求。 1月17日下午1时至1时45分左右，面值为100万日元的5捆纸币被放在总务科柜台上。捐赠申请书上写着“红色尽快改涂别的”，寄件人是“新松户北小、新松户北中全体毕业生”。
 
+据市政府介绍，艺术品是高4.8米、延长12.5米的钢铁制品。2002年3月，为了改变新松户站前杀气腾腾的高架桥气氛，花费了约3500万日元建成。但是，艺术品的红色从竣工之初就引起了众议。市议会在2002年承认市干部“有意见认为色彩与街道不协调”，并提出了将色彩作为研究课题的方针。接受捐款后，本乡谷健次市长表示:“现在到了重新考虑的时候，以捐赠为契机，将听取当地人的意见，开始讨论改变颜色的方案。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+信息来源：
 
+[市役所カウンターに匿名の寄付５００万円、要望は駅前オブジェ「赤い塗装を１日も早く塗り替えて」](https://news.yahoo.co.jp/articles/4f24ecc4ee615f85b1bbccdd2d0fe9037726192f)
 
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-美国最高法院大法官斯蒂芬.布雷耶宣布将退休 ，1月26日，美国NBC新闻报道消息人士信息，美国最高法院大法官斯蒂芬.布雷耶将在本任期结束时退休 。 布雷耶于1994年5月17日由比尔·克林顿总统提名，自1994年8月3日起担任大法官，已经任职近28年。 他是最高法院的三位自由派大法官之一，也是最高法院最年长的现任大法官，现年83岁。 美国宪法规定，最高法院法官由总统提名，经美国参议院多数表决同意后任命。除首席大法官外，人数为8人，属终身制。 对于布雷耶的辞职，外界猜测，他的退休决定，将使拜登总统能够认命一位可以任职几十年的继任者，以尽可能维持目前保守派和自由派大法官之间 6-3 的比例。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2022-01-29-5.jpg)图片来源网络
-
-**相关链接:**
-
-[Supreme Court Justice Stephen Breyer to Retire](https://www.nbclosangeles.com/news/national-international/supreme-court-justice-stephen-breyer-to-retire/2807527/)
-
-![This image has an empty alt attribute; its file name is Jan-17.png](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-17.png)
-
-编辑/校对/发稿: Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-46.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
  
 
