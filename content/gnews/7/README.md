@@ -2,41 +2,39 @@
 ---
 
 
-## FCC宣布吊销中共国联通在美国的运营执照
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927870/)
+## 媒体审查疫苗伤害故事 德莱森告诉小肯尼迪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1927876/)
 
-作者：日本方舟农场 – Andy5，纽约香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月27日，美国联邦通信委员会FCC，再次因国家安全问题，以4比0的投票结果，一致通过撤销中共国联通在美国的服务授权。并要求其美洲营运有限公司，在该命令发布的60天内停止在美国的任何国内和国际业务。
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2414.png)图片来源：childrenshealthdefense.org
 
-FCC表示，自20年前FCC授权以来，有关中共国的国家安全环境发生了变化，并发现联通美洲子公司和其在大陆的母公司，中共政府都有机会进入、存储、破坏或误导美国通信。并指出，联通的行为缺乏坦诚、可信度和可靠性，不符合FCC要求的基本信任水平。
+德莱森想知道，为什么她的故事和许多其他疫苗伤害案例，没有被媒体报道。雪上加霜的是，她发现**记者极不愿意写任何关于疫苗的负面消息**。社交媒体正在压制有关疫苗受伤的信息。
 
-继2019年5月FCC投票否决中共国移动在美服务授权，2021年10月吊销中共国电信服务授权后，到现在中共国联通被吊销执照。至此，中共三大电信运营商彻底在美国出局。
+她说：
 
-参考链接：
+“正在发生着明确的审查制度，这令人震惊，因为这个国家的信息自由和言论自由需要得到保护。我们需要人们真正站出来，愿意保护我们的言论自由。**这还包括让****——****不仅是主流媒体****——****还包括社交媒体公司****——****负责。**”
 
-- [美国以国家安全为由 吊销中国联通在美经营权](https://www.zaobao.com/realtime/world/story20220128-1237504)
-- [接二连三无理打压！中国联通被勒令60天内停止公司在美业务](http://finance.eastmoney.com/a/202201282264596976.html)
-- [商务部回应中国电信被美吊销运营牌照：恶意打压，应立即纠正](https://www.163.com/dy/article/GNDP9ANI05129QAF.html)
-- [美国突然宣布吊销这家中国巨头的运营牌照，并限期60天内停业](https://www.sohu.com/a/497870818_120762996)
-- [美国正式拒绝中国移动赴美开展业务](https://cn.nikkei.com/china/ccompany/35509-2019-05-10-09-23-25.html)
+即使在去年与参议员罗恩·约翰逊（Ron Johnson）举行的新闻发布会之后，德莱森表示，人们仍然不愿意面对越来越多的疫苗伤害报告。
 
+她告诉肯尼迪：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+“正如你在主流媒体上看到的，完全不报道。我们的面孔都被删去——即使约翰逊参议员在新闻发布会上讲的非常好的、诚实的铁板钉子的真实伤害，没人报道。每个人都有非常详尽的医疗报告来证实我们的说法，但都没有进入主流媒体。媒体出现在约翰逊参议员所做的第一次新闻发布会上，但他们并没有真正展示我们的面孔，而是报道说，约翰逊参议员正在传播错误信息。”
 
-总编：Irene木木
-编辑：DM
-校正/发稿：海阔天空1
+今天，德莱森专注于让人们意识到 COVID 疫苗的风险，并帮助其他受伤的人，因为这样做的资源很少。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+肯尼迪为她的英雄行为而鼓掌：
+
+“**你为那些人所做的是你在谈论有效的协议，这些协议对团队中的人有效，否则，他们无法了解。你说的是可以治疗这些疾病的医生，这些独特的、罕见的医生，实际上正在尝试治疗疫苗损伤，并且正在开发在某些情况下非常成功的药物治疗方案和方法。**”
+
+素材链接：[childrenshealthdefense.org] [Media Censoring Vaccine Injury Stories, Brianne Dressen Tells RFK, Jr.](https://childrenshealthdefense.org/defender/rfk-jr-defender-brianne-dressen-media-censoring-vaccine-injury-stories/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bcf8f93a-db44-4f1f-8e44-c3343bb314fc)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

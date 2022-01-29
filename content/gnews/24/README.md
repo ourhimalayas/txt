@@ -2,26 +2,22 @@
 ---
 
 
-## 泽连科医生证实中共病毒与解药被同时制造
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927703/)
+## 美国海军遣散无苗水兵
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927739/)
 
-撰稿：纽约磐石农场 – 在远方
+撰稿：台湾宝岛农场 – 新中国联邦静，motdfry(文旦)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-根据文贵先生盖特视频，1月22日，泽连科医生接受采访时表示，20年来中共病毒被精心构造，是大规模破坏性武器。追溯到1998年，受到NIH及NIAID资助的巴里克，先后申请了病毒跨物种转移的技术专利，冠状病毒破坏人类肺组织专利，以及2015年巴里克与武毒所石正丽联名发表了研究蝙蝠冠状病毒感染人类的论文。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2410.png)
-2020年3月，泽连科推出中共病毒治疗方案，使感染者的住院率和死亡率降低了85%。而该方案正是基于巴里克2010年所写的一篇讨论锌离子载体的论文。这意味着制造病毒的人，同时制造了解药。
+美国海军周三宣布，已将45名拒绝接种中共病毒疫苗的军人遣散，其中包括23名现役水兵。据官方通知显示，截至周四，仍有5,035名现役水手和2,860名预备役军人未接种疫苗。在未接种疫苗的现役水手中，10人获得永久医疗豁免，259人获得临时医疗豁免，其中59人获得行政豁免。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2411.png)
+截至上周晚些时候，海军陆战队已经解雇了334名海军陆战队员，而截至本周，空军已经解雇了111名拒绝接种的飞行员。根据最新数据，美国海军陆战队、空军、海军共解雇了超过500名未接种中共病毒疫苗的现役军人。美国军方各分支机构都报告了超过90%的中共病毒疫苗施打率，虽然有宗教豁免方法，但只有少数人成功。
 
-泽连科进一步揭露，世界经济论坛和联合国发布的2030计划称，因人口爆炸，美国的医疗保险和社会保险体系将会于2026年开始崩溃。其它国家也存在相同的问题。因此，削减人口数量，成为当务之急。现在各国政府强制接种中共病毒疫苗，已经造成了不可估量的人身伤亡。疫苗护照就是史瓦布所说的用来控制并奴役民众的数字标识。泽连科医生表示，他是揭露人类历史上最严重犯罪的清醒者之一。
+总编/编辑: 童谣
 
+新闻连接: [U.S. Navy Begins Discharging Sailors Who Refuse Coronavirus Vaccine](https://www.breitbart.com/politics/2022/01/27/u-s-navy-begins-discharging-sailors-who-refuse-coronavirus-vaccine/?utm_source=facebook&amp;utm_medium=social)
 
+新闻连接:[https://www.britbart.com/politics/2022/01/27/over-500-active-duty-service-members-discharged-due-to-coronavirus-vaccine-mandate/](https://www.britbart.com/politics/2022/01/27/over-500-active-duty-service-members-discharged-due-to-coronavirus-vaccine-mandate/)
 
-新闻链接：[https://www.gettr.com/post/pqp79t8d1f](https://www.gettr.com/post/pqp79t8d1f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-5.png)
-
-总编：雪梨
-
-编辑：宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-4.png)
 
 校正/发稿：浪迹天涯
 
