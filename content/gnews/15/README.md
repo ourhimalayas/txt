@@ -2,8 +2,8 @@
 ---
 
 
-## 达沃斯存在一天人类都不安全（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928295/)
+## 达沃斯就是玩小孩的一帮垃圾
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928349/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

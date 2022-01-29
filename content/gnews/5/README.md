@@ -2,8 +2,8 @@
 ---
 
 
-## 战友们拥有喜币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928436/)
+## 达沃斯就是世界的共产党
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1928469/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

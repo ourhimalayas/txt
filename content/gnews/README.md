@@ -15,52 +15,52 @@
 
 ---
 
-### [要找病毒疫苗源头就找达沃斯](/content/gnews/1/README.md)
+### [从达沃斯看到邪恶的死亡](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [忧及人权问题 耶鲁大学基金启动在华投资调查](/content/gnews/2/README.md)
+### [喜保险，数字保险](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [要找病毒疫苗源头就找达沃斯](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [忧及人权问题 耶鲁大学基金启动在华投资调查](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [达沃斯就是世界的共产党](/content/gnews/3/README.md)
+### [达沃斯就是世界的共产党](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [达沃斯私下讨论喜币](/content/gnews/4/README.md)
+### [达沃斯私下讨论喜币](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [战友们拥有喜币](/content/gnews/5/README.md)
+### [战友们拥有喜币](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [雅典娜时报-第188期](/content/gnews/6/README.md)
+### [雅典娜时报-第188期](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国最顶尖律师对决](/content/gnews/7/README.md)
+### [美国最顶尖律师对决](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [房地产的溢出效应](/content/gnews/8/README.md)
+### [房地产的溢出效应](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [帮助中共研发病毒的生态健康联盟又获政府巨额经费](/content/gnews/9/README.md)
+### [帮助中共研发病毒的生态健康联盟又获政府巨额经费](/content/gnews/11/README.md)
  ` GTV News Talk`
 
-### [人民币的溢出效应](/content/gnews/10/README.md)
+### [人民币的溢出效应](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [日本疫情加重 各大公司纷纷表态出勤率50%也会继续生产运营](/content/gnews/11/README.md)
+### [日本疫情加重 各大公司纷纷表态出勤率50%也会继续生产运营](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Mike Pompeo：‘将病毒强加于世界’习近平想要‘主宰世界’](/content/gnews/12/README.md)
+### [Mike Pompeo：‘将病毒强加于世界’习近平想要‘主宰世界’](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [达沃斯就是玩小孩的一帮垃圾](/content/gnews/13/README.md)
+### [达沃斯就是玩小孩的一帮垃圾](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [达沃斯存在一天人类都不安全（三）](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [达沃斯存在一天人类都不安全（二）](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [达沃斯存在一天人类都不安全](/content/gnews/16/README.md)
+### [达沃斯存在一天人类都不安全（三）](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
 ### [中日财经爆|IMF：中共国地产危机与清零防疫会伤及全球经济](/content/gnews/17/README.md)
