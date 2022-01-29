@@ -2,25 +2,29 @@
 ---
 
 
-## 英国传奇摇滚巨星接种三针疫苗后染疫
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926542/)
+## 加拿大疫苗抗议活动升温 直逼特鲁多
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926543/)
 
-作者：纽约磐石农场—在远方
+作者：首尔天池农场-zzballack、加拿大温哥华扬帆农场-Spirit、银河系农场-骄子、纽约香草山 defiance、纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月26日，据相关媒体消息显示，英国传奇摇滚天王艾尔-强顿当天凌晨通过社交媒体软件向外界透露了他感染中共病毒疫情的消息，同时，他原计划于美国德克萨斯州举行的演唱会也将因此确定延期。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.34.png)
-据悉，现年74岁的艾尔-强顿在欧美演艺圈有着举足轻重的地位，其更于去年荣获英国“名誉勋位”勋章，且他的传奇人生经常被好莱坞电影引用。
+据当地媒体报道，由于加拿大联邦政府持续推行针对卡车司机的中共病毒疫苗强制接种政策，自1月23日起，一大批卡车司机开始向加拿大首都渥太华进发，而他们的目的地则是于本月29日在那里举办的抗议强制疫苗令的集会。届时，预计将有来自全国各地的五千至一万辆卡车参与其中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.45.png)
+与此同时，加拿大的商业领袖们也正在敦促渥太华放弃对跨境卡车司机实行的疫苗强制令，用以缓解当地与美国之间拥堵的供应链。加拿大商会主席表示，政府需要明白来自卡车司机所提供的服务至关重要，即使在最严重的大流行病浪潮中也需要他们来保持供应链的正常运转。
 
-值得注意的是，艾尔-强顿明确道，他已经接种过三针中共病毒疫苗，但而今仍然不幸感染中共病毒。
+截止1月26日，名为“自由车队”的卡车队伍已经得到了超过一百万加拿大人的支持，他们正在逐渐逼近渥太华。消息显示，参与抗议的加拿大民众将矛头直指总理特鲁多，即要么特鲁多辞职，要么政府取消所有关于中共病毒及疫苗的强制措施。对此，有报道提及，在寻求加拿大皇家骑警和军方介入无果的情况下，特鲁多以“接触了中共病毒”为由，进行了所谓的“居家隔离”。
 
-而评论人员则分析道，大量数据已经表明，中共病毒疫苗及其加强针除了会给接种者带来严重的副作用外，其对中共病毒感染和传播的预防效果实际非常小，尤其对于奥密克戎变种而言，疫苗接种者将更有可能感染此类变种病毒。
+另外，截至目前，此次抗议活动已经在相关网站上募集了超过630万加元的资金，有八万多加拿大民众踊跃捐款。
 
-参考链接：[74歲搖滾傳奇爆染武肺！艾爾頓強「打3劑疫苗」確診 IG親曝最新病況](https://ent.ltn.com.tw/news/breakingnews/3813440)
+参考链接：
+1）[Business groups urge feds to reverse vaccine mandate for cross-border truckers](https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/)
+2）[Canadian Truck Drivers Protesting COVID-19 Vaccine Mandate Begin March From Vancouver To Ottawa](https://thecovidworld.com/canadian-truck-drivers-protesting-covid-19-vaccine-mandate-begin-march-from-vancouver-to-ottawa/)
+3）[Revolution! One Million People Marching To Ottawa To Demand PM Trudeau’s Resignation](https://www.infowars.com/posts/revolution-one-million-people-marching-to-ottawa-to-demand-pm-trudeaus-resignation/)
+4）[https://twitter.com/justintrudeau/status/1486704226449379329?s=21](https://twitter.com/justintrudeau/status/1486704226449379329?s=21)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：飞虹
-编辑：飞虹
+总编：Irene木木
+编辑：飞虹/Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

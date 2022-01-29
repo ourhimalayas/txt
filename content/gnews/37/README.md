@@ -2,31 +2,24 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月28日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1926441/)
+## 中共国原中央巡视组副组长董宏一审被判死缓
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1926449/)
 
-作者：香草山翻译部
+撰稿：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-5.jpg)
+据中共新华社1月28日的报道，山东省青岛市中级人民法院公开宣判中央巡视组原副组长董宏受贿一案，对被告人董宏以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产。董宏当庭表示服从法院判决，不上诉。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-29-at-13.04.40.jpeg)图片来源：原新闻
+董宏在就职期间，利用职务之便，直接或者通过他人非法收受财物共计折合人民币4.63亿余元。
 
+此外，2020年10月2日，中纪委宣布董宏接受调查。2021年4月12日，董宏被开除其党籍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-6.png)
-校对：Stay文苑
+在2020年11月20日，郭文贵先生在直播的时候就已经爆料：“王健和陈峰就是王岐山和共产党多个领导家族的白手套。王健知道的太多了。如果王健不死，第一个要死的就是董宏，董宏已经被抓了；如果王健不死，第二个死的就是陈峰；如果王健不死，第三个就可能是王岐山”。
 
-编辑：Stay文苑
+在郭先生爆料半年不到，2021年4月26日，最高人民检察院依法以涉嫌受贿罪对董宏作出逮捕决定。
 
-发稿：Stay文苑
+王健的死、陈峰被抓以及董宏被判死缓，再次证明了中共就是一部绞肉机，无论是体制内还是体制外，没有一个人能够幸免，唯有推翻中共这个邪恶的体制，中国人才有安全和未来。
 
-视频参看：[1.28  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f4984281ce0a3ac2a0e050)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-22.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息来源：[董宏，死缓！](https://mp.weixin.qq.com/s/AhBjHJIWpJPo6eoXOPyHUA)
 
  
 
