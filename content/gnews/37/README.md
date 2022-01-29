@@ -2,25 +2,32 @@
 ---
 
 
-## 中共国原中央巡视组副组长董宏一审被判死缓
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1926449/)
+## 美企业家于反疫苗集会抨击卫生部门不作为
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926544/)
 
-撰稿：追着曙光跑
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月23日，在美国华盛顿特区举行的、数万人参加的反对中共病毒疫苗强制接种政策的集会中，企业家史蒂夫·基尔希强烈抨击了政府卫生部门的不作为。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.55.png)
+基尔希表示，中共病毒疫情大流行其实完全是可以避免的。此前，很多医生开发了相应的早期治疗方案，这些药物治愈了大量的感染病例，且很少有患者死亡。然而，直到现在，美国国立卫生研究院仍然对这些方案不置可否。
 
-据中共新华社1月28日的报道，山东省青岛市中级人民法院公开宣判中央巡视组原副组长董宏受贿一案，对被告人董宏以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产。董宏当庭表示服从法院判决，不上诉。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-29-at-13.04.40.jpeg)图片来源：原新闻
-董宏在就职期间，利用职务之便，直接或者通过他人非法收受财物共计折合人民币4.63亿余元。
+基尔希还提到，另一当面，人们被要求为社会利益接种中共病毒疫苗，且没有人被告知过这些疫苗的风险和效益。如今，事实证明，中共病毒疫苗只会加重人们的病情。 此外，基尔希也指出，令人不安的是，美国政府的相关机构，包括FDA、CDC、NIH等都缺乏透明的问责制，这导致没有人愿意在媒体前回答民众关于中共病毒疫情及疫苗所提出的尖锐问题。为此，基尔希强调，在得到明确且令人满意的答案之前，任何人都不应该遵守不合理的强制疫苗政策。
 
-此外，2020年10月2日，中纪委宣布董宏接受调查。2021年4月12日，董宏被开除其党籍。
+参考链接：[https://gettr.com/post/pqgun176aa](https://gettr.com/post/pqgun176aa)
 
-在2020年11月20日，郭文贵先生在直播的时候就已经爆料：“王健和陈峰就是王岐山和共产党多个领导家族的白手套。王健知道的太多了。如果王健不死，第一个要死的就是董宏，董宏已经被抓了；如果王健不死，第二个死的就是陈峰；如果王健不死，第三个就可能是王岐山”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-在郭先生爆料半年不到，2021年4月26日，最高人民检察院依法以涉嫌受贿罪对董宏作出逮捕决定。
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-王健的死、陈峰被抓以及董宏被判死缓，再次证明了中共就是一部绞肉机，无论是体制内还是体制外，没有一个人能够幸免，唯有推翻中共这个邪恶的体制，中国人才有安全和未来。
-
-信息来源：[董宏，死缓！](https://mp.weixin.qq.com/s/AhBjHJIWpJPo6eoXOPyHUA)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

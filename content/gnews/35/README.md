@@ -2,38 +2,60 @@
 ---
 
 
-## 加拿大疫苗抗议活动升温 直逼特鲁多
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1926543/)
+## 加拿大政府报告：中共国实施广泛的间谍和操纵活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1926639/)
 
-作者：首尔天池农场-zzballack、加拿大温哥华扬帆农场-Spirit、银河系农场-骄子、纽约香草山 defiance、纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据当地媒体报道，由于加拿大联邦政府持续推行针对卡车司机的中共病毒疫苗强制接种政策，自1月23日起，一大批卡车司机开始向加拿大首都渥太华进发，而他们的目的地则是于本月29日在那里举办的抗议强制疫苗令的集会。届时，预计将有来自全国各地的五千至一万辆卡车参与其中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-28-下午10.28.45.png)
-与此同时，加拿大的商业领袖们也正在敦促渥太华放弃对跨境卡车司机实行的疫苗强制令，用以缓解当地与美国之间拥堵的供应链。加拿大商会主席表示，政府需要明白来自卡车司机所提供的服务至关重要，即使在最严重的大流行病浪潮中也需要他们来保持供应链的正常运转。
+#### **【雅典娜观察】与您一起洞察世界**
 
-截止1月26日，名为“自由车队”的卡车队伍已经得到了超过一百万加拿大人的支持，他们正在逐渐逼近渥太华。消息显示，参与抗议的加拿大民众将矛头直指总理特鲁多，即要么特鲁多辞职，要么政府取消所有关于中共病毒及疫苗的强制措施。对此，有报道提及，在寻求加拿大皇家骑警和军方介入无果的情况下，特鲁多以“接触了中共病毒”为由，进行了所谓的“居家隔离”。
+翻译：文扬
+编辑：Mttfly
 
-另外，截至目前，此次抗议活动已经在相关网站上募集了超过630万加元的资金，有八万多加拿大民众踊跃捐款。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/VAP_W1PVUDHX2E30.png)图片来源：希望之声
 
-参考链接：
-1）[Business groups urge feds to reverse vaccine mandate for cross-border truckers](https://globalnews.ca/news/8535295/truckers-vaccine-mandate-business-groups/amp/)
-2）[Canadian Truck Drivers Protesting COVID-19 Vaccine Mandate Begin March From Vancouver To Ottawa](https://thecovidworld.com/canadian-truck-drivers-protesting-covid-19-vaccine-mandate-begin-march-from-vancouver-to-ottawa/)
-3）[Revolution! One Million People Marching To Ottawa To Demand PM Trudeau’s Resignation](https://www.infowars.com/posts/revolution-one-million-people-marching-to-ottawa-to-demand-pm-trudeaus-resignation/)
-4）[https://twitter.com/justintrudeau/status/1486704226449379329?s=21](https://twitter.com/justintrudeau/status/1486704226449379329?s=21)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+在一份关于中共国在加拿大的间谍活动的政府报告中，加拿大指责中共国政府对华人社区进行了“系统的情报收集、劝诱、影响和操纵活动”。
 
-总编：Irene木木
-编辑：飞虹/Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+在“环球新闻”的报道中，加拿大官员称，侨务办公室的任务是“影响或操纵”社区成员，并对持不同政见者和少数族裔使用“胁迫手段”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+报告说：“这涉及到社会各个层面对海外华人OC（Overseas Chinese）的恐吓。对他们行为的管理是通过激励或抑制，以及情报收集、监视和对海外华人社区的颠覆来完成的。”
+
+在最近的一起，涉及一名试图移民加拿大的前中共国国务院侨务办公室（OCAO）雇员的法庭案件中，该报告被披露。因此该报告是对中共国情报活动一次相对客观的概括。虽然中共国被广泛指责针对侨民，特别是亲台和民主活动人士，以及维吾尔人和法轮功学员，但加拿大政府对此类活动的看法却很少被公开。
+
+中共国声称国务院侨务办公室对生活在国外的中共国公民负责，但加拿大的报告称它“从事间谍活动”和“被得知在加拿大活动”。
+
+报告说：“国侨办参与了针对海外中共国异见人士的秘密行动和胁迫，并参与了对海外华人及其活动的情报收集。”国侨办的实际工作是侵害被认定为中共威胁的个人。它“组织和监控海外华人的商业、留学、文化、媒体和政治网络”等活动。
+
+该报告是由加拿大边境服务局的安全检查部门撰写的2020年3月的报告，这是加拿大官方对中共国在该国和世界各地的间谍和外国影响活动的罕见评估。
+
+上周，联邦法院驳回了前国侨办雇员张勇（音译）提出的上诉，该上诉试图推翻拒绝其永久居留申请的决定。法院裁定处理他的案件的移民官“合理地确定”有“合理的理由相信其在加拿大正在进行针对海外华人社区的信息收集”。
+
+联邦法院说，1984年至2002年期间，他是国侨办的一名计算机技术员，当时他转到一个行政职位。法院说，他在2004年退休时是一名“首席工作人员”。
+
+张的律师杰奎琳·博尼斯特尔（Jacqueline Bonisteel）为其辩护。律师认为当事人从未涉嫌间谍活动，他只是一名国侨办的低级雇员。
+
+国侨办和中共国大使馆没有对此进行评论。
+
+在这份报告中，引用了美国政府、学术期刊和新闻报道的信息。CBSA称中共国的情报部门是世界上最活跃的情报部门之一，并说他们在不断发展，“变得更具侵略性”。
+
+加拿大边境管理局的报告说：“虽然对间谍人数的估计各不相同，但据报道，中共国绝对可以称得上拥有世界上最大的、最无定形的、但也是最活跃的情报部门……因为任何来自中共国的人，从学生到CEO，都是潜在的间谍资产。”
+
+报告说，中共一心想着“消除异议人士和海外华人群体中威胁其政权存续的敌对言论或潜在威胁”。此外国侨办还在海外协调反对法轮功的行动。
+
+为了减轻这些威胁，中共依靠国侨办，该组织在几乎每个国家的中共国（People’s Republic of China）大使馆、领事馆和代表机构都设立了附属机构，意图与当地的海外华人社区进行直接联络。
+
+具有讽刺意味的是，在加拿大这样的多元文化社会中，许多社区更在意迎合像中共这样的外国势力，而失去对加拿大居民而言至关重要的安全的环境。
+
+参考链接：[Canadian government report accuses China of widespread campaign of espionage, manipulation – National | Globalnews.ca](https://globalnews.ca/news/8537707/canadian-government-report-china-espionage-manipulation/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

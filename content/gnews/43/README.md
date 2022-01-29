@@ -2,38 +2,37 @@
 ---
 
 
-## 美国联邦通信委员会撤销中国联通营运授权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1926182/)
+## 谷歌因欺骗性位置跟踪与监控被美国多个州起诉
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926298/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：银河系农场—骄子
 
-整理/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/WAIX@9CG7SAVADQO5TH.png)图片来源：Reuters
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
 
-当地时间1月28日，据《德国之声》报道，美国联邦通信委员会（FCC）周四（1月27日）以国家安全为由，投票撤销对中国联通（美洲）营运有限公司在美国运营的授权。最后投票结果为4票对零票。
 
-这是美国监管机构禁止中国电信运营商进入美国的最新举措，要求中国联通（美洲）营运有限公司在该命令发布后60天内停止在美国的国内、州际和国际电信服务。
 
-美国联邦通信委员会主席罗森沃塞尔指出，自批准中国联通（美洲）营运有限公司在美国营运以来，美国国家安全形势已经发生变化，**而且有越来越多的证据表明，中共的国有电信运营商对美国的电信网络安全构成了威胁。**
 
-联邦通信委员会说，**中国联通提供的答复是不完整、有误导性且不正确的。，**罗森沃塞尔补充道，**去年****FCC****发布了有史以来的第一份对国家安全构成不可接受风险的通信设备和服务清单。**这个月，她写信给美国商务部、联邦调查局、国家情报总监办公室和其他机构，来借此更新该清单。
+据外媒报道，美国多个州指控谷歌公司进行欺骗性位置跟踪。美国华盛顿特区、德克萨斯州、华盛顿州和印第安纳州宣布对科技巨头谷歌提起诉讼。诉讼中称，谷歌开发了一个位置跟踪系统，即使在用户认为位置跟踪已被禁用的情况下，该系统仍然在收集用户数据，且误导用户，从而监控用户数据，并从此数据中获利。用户无法自行退出此应用程序。
 
-自去年3月起，美国联邦通信委员会全力撤销对中国联通、太平洋网络公司和其全资子公司ComNet的运营授权。
+华盛顿特区司法部长Racine的办公室正在对谷歌实行禁令，并迫使谷歌支付通过误导用户隐私而获得的利润。
 
-在去年10月，美国联邦通信委员会撤销了对中国联通（美洲）营运有限公司的美国授权，称该公司受中国政府的影响和控制。中方未能赢得对该决定的上诉。此前，美国联邦通信委员会2019年以国家安全风险为由，拒绝了中国移动有限公司提供美国电信服务的投标。
+参考链接：
 
-新闻链接：[忧危害国安 美FCC撤销中国联通营运授权](https://udn.com/news/story/6809/6067194?from=udn-catebreaknews_ch2)
+[https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/](https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/)
 
-**发布：**tianzhihuan
+编辑/校对/发稿：有莫举名
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
  
 

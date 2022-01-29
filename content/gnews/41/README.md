@@ -2,37 +2,38 @@
 ---
 
 
-## 谷歌因欺骗性位置跟踪与监控被美国多个州起诉
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926298/)
+## 瑞典反对为5至11岁的儿童注射新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1926421/)
 
-作者：银河系农场—骄子
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
+整理/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜快讯图-2.png)图片来源：雅典娜设计组
 
 
+根据《RT》新闻1月28日报道，瑞典公共卫生署周四宣布，瑞典决定不跟随一些西方国家赞同为5-11岁儿童注射新冠病毒（Covid-19）疫苗。
 
+该机构在即将到来的春季学期的指导意见中表示，在该年龄段进行注射不会对新冠病毒的传播产生重大影响，并且对接受注射的儿童几乎没有医疗益处。
 
+瑞典的决定与各国批准为越来越小的儿童注射（新冠）疫苗的趋势背道而驰，尤其是在Omicron迅速传播的情况下。德国、法国、意大利和西班牙等国家/地区已批准对年仅5岁的儿童注射新冠疫苗。
 
-据外媒报道，美国多个州指控谷歌公司进行欺骗性位置跟踪。美国华盛顿特区、德克萨斯州、华盛顿州和印第安纳州宣布对科技巨头谷歌提起诉讼。诉讼中称，谷歌开发了一个位置跟踪系统，即使在用户认为位置跟踪已被禁用的情况下，该系统仍然在收集用户数据，且误导用户，从而监控用户数据，并从此数据中获利。用户无法自行退出此应用程序。
+在美国，白宫首席医疗顾问安东尼·福奇（Anthony Fauci）博士周三告诉记者，他预计（新冠）三剂（疫苗）量疗法最终将被批准用于年仅6个月大的儿童。
 
-华盛顿特区司法部长Racine的办公室正在对谷歌实行禁令，并迫使谷歌支付通过误导用户隐私而获得的利润。
+瑞典公共卫生署表示：“从5岁开始的普通疫苗注射，预计也不会对目前病毒感染的传播产生任何重大影响，无论是在5至11岁的儿童群体中，还是在其他群体中。” .
 
-参考链接：
+瑞典是在新冠病毒大流行最严重的时候选择反对全面封锁的少数几个国家之一。
 
-[https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/](https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/)
+新闻[链接：](https://www.rt.com/news/547653-eu-commission-criticism-pfizer-secret-texts/)[European country opts against Covid jabs for children](https://www.rt.com/news/547585-children-vaccination-rejected-covid/)
 
-编辑/校对/发稿：有莫举名
+发布：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
