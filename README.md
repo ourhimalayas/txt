@@ -15,122 +15,122 @@
 
 ---
 
-### [全球疫情更新（两则“疫苗”新闻中的谎言和掩盖）](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [英国官方数据：儿童接种疫苗死亡率高52倍](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实](/content/gnews/3/README.md)
+### [加拿大北京冬奥代表团中5人确诊](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [懦弱虚伪！还是制造恐慌？小土豆又一次玩隔离？](/content/gnews/4/README.md)
+### [全球疫情更新（两则“疫苗”新闻中的谎言和掩盖）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [英国官方数据：儿童接种疫苗死亡率高52倍](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [懦弱虚伪！还是制造恐慌？小土豆又一次玩隔离？](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [GTV是王！喜联储拒绝5000亿美元现金投资拿5%-10%股份提议](/content/gnews/5/README.md)
+### [GTV是王！喜联储拒绝5000亿美元现金投资拿5%-10%股份提议](/content/gnews/6/README.md)
  ` YALUN 亚伦`
 
-### [新冠大流行对超过三分之一的飞行员造成精神和经济损失，不再飞行](/content/gnews/6/README.md)
+### [新冠大流行对超过三分之一的飞行员造成精神和经济损失，不再飞行](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自疫苗问世以来，美国人在壮年时期的非新冠死亡数比正常情况下增加140%](/content/gnews/7/README.md)
+### [自疫苗问世以来，美国人在壮年时期的非新冠死亡数比正常情况下增加140%](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/8/README.md)
+### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [中日财经爆┃总部大楼被砸！金科地产要暴雷](/content/gnews/9/README.md)
+### [中日财经爆┃总部大楼被砸！金科地产要暴雷](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|FCC宣布吊销中共国联通在美国的运营执照](/content/gnews/10/README.md)
+### [有声|FCC宣布吊销中共国联通在美国的运营执照](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [1/27/2022 文贵直播：文贵要感谢这位推特昵称叫“太平犬”的战友，他是1989年办文贵案子的警察并且发推澄清了有关文贵案子的很多事实，中共在网上散布的所谓判决书纯粹是胡编乱造的](/content/gnews/11/README.md)
+### [1/27/2022 文贵直播：文贵要感谢这位推特昵称叫“太平犬”的战友，他是1989年办文贵案子的警察并且发推澄清了有关文贵案子的很多事实，中共在网上散布的所谓判决书纯粹是胡编乱造的](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共官媒：美国出钱奖励运动员“扰乱”北京冬奥会](/content/gnews/12/README.md)
+### [中共官媒：美国出钱奖励运动员“扰乱”北京冬奥会](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国高官将访问立陶宛支持对抗中共国](/content/gnews/13/README.md)
+### [美国高官将访问立陶宛支持对抗中共国](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [扬帆每日速递 2022年1月29日版（2）](/content/gnews/14/README.md)
+### [扬帆每日速递 2022年1月29日版（2）](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|多家冬奥赞助商极力低调，避开和北京的关系](/content/gnews/15/README.md)
+### [有声|多家冬奥赞助商极力低调，避开和北京的关系](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|美国支持欧盟在世贸组织状诉中共](/content/gnews/16/README.md)
+### [有声|美国支持欧盟在世贸组织状诉中共](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|英国首相强调台海稳定，台湾回应与英共护印太和平](/content/gnews/17/README.md)
+### [有声|英国首相强调台海稳定，台湾回应与英共护印太和平](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [1/29/2022国际财经快讯：美消费者情绪因对新冠病毒和通胀的担忧而下降；2021年通胀指标飙升5.8%](/content/gnews/18/README.md)
+### [1/29/2022国际财经快讯：美消费者情绪因对新冠病毒和通胀的担忧而下降；2021年通胀指标飙升5.8%](/content/gnews/19/README.md)
  ` 秘密翻译组金融团队`
 
-### [扬帆每日速递 2022年1月29日版（1）](/content/gnews/19/README.md)
+### [扬帆每日速递 2022年1月29日版（1）](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [喜马拉雅真义12解：新中国联邦人因情缘、承使命而得天助！](/content/gnews/20/README.md)
+### [喜马拉雅真义12解：新中国联邦人因情缘、承使命而得天助！](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|美提书面答复，力促俄奉行外交路线化解乌克兰危机](/content/gnews/21/README.md)
+### [有声|美提书面答复，力促俄奉行外交路线化解乌克兰危机](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [美国17,000 医生站出来揭露疫苗真相](/content/gnews/22/README.md)
+### [美国17,000 医生站出来揭露疫苗真相](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [七哥直播之感想](/content/gnews/23/README.md)
+### [七哥直播之感想](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [五月花简报（01/29/2022）](/content/gnews/24/README.md)
+### [五月花简报（01/29/2022）](/content/gnews/25/README.md)
  ` mayflowertranslate`
 
-### [CBC是如何在加拿大自由车队支持现场做虚假报道的？](/content/gnews/25/README.md)
+### [CBC是如何在加拿大自由车队支持现场做虚假报道的？](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [“甜蜜蜜”运动的重大意义和影响力](/content/gnews/26/README.md)
+### [“甜蜜蜜”运动的重大意义和影响力](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [DC每日热点0129](/content/gnews/27/README.md)
+### [DC每日热点0129](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|美企业家于反疫苗集会抨击卫生部门不作为](/content/gnews/28/README.md)
+### [有声|美企业家于反疫苗集会抨击卫生部门不作为](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [1990年的春天 吉他弹唱](/content/gnews/29/README.md)
+### [1990年的春天 吉他弹唱](/content/gnews/30/README.md)
  ` 纽约香草山MOS03`
 
-### [接种疫苗的医生和病人正在死亡 疫苗灾难才刚刚开始](/content/gnews/30/README.md)
+### [接种疫苗的医生和病人正在死亡 疫苗灾难才刚刚开始](/content/gnews/31/README.md)
  ` 焦點20分`
 
-### [澳卡车司机加入抗议强制令和限制车队争取自由](/content/gnews/31/README.md)
+### [澳卡车司机加入抗议强制令和限制车队争取自由](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [G系列走在时代的最前端 GTV投资是王牌中的王牌](/content/gnews/32/README.md)
+### [G系列走在时代的最前端 GTV投资是王牌中的王牌](/content/gnews/33/README.md)
  ` 焦點20分`
 
-### [国际大型金融机构组织研究讨论美国如何制裁查封中共高官在海外的资产](/content/gnews/33/README.md)
+### [国际大型金融机构组织研究讨论美国如何制裁查封中共高官在海外的资产](/content/gnews/34/README.md)
  ` 焦點20分`
 
-### [这个疫苗和绿色通行证，它的本质是共产主义形式](/content/gnews/34/README.md)
+### [这个疫苗和绿色通行证，它的本质是共产主义形式](/content/gnews/35/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [秘翻在线：中共国指责美国用金钱利益鼓励运动员抗议北京冬奥会](/content/gnews/35/README.md)
+### [秘翻在线：中共国指责美国用金钱利益鼓励运动员抗议北京冬奥会](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [志愿者惨遭利用 社区领导邀功](/content/gnews/36/README.md)
+### [志愿者惨遭利用 社区领导邀功](/content/gnews/37/README.md)
  ` 纽约香草山MOS03`
 
-### [GTV新闻访谈简报|2022年1月29日早](/content/gnews/37/README.md)
+### [GTV新闻访谈简报|2022年1月29日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [从历史角度看撤离令和疫苗政策](/content/gnews/38/README.md)
+### [从历史角度看撤离令和疫苗政策](/content/gnews/39/README.md)
  ` 纽约香草山MOS03`
-
-### [瑞典不建议为12岁以下儿童接种中共病毒疫苗](/content/gnews/39/README.md)
- ` GTV新闻访谈`
 
 ### [欧盟立陶宛美国联合状告中共](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
