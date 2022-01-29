@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|FCC宣布吊销中共国联通在美国的运营执照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930366/)
+## 加拿大卡车司机聚集渥太华 抗议政府强制疫苗令
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1930395/)
 
-配音：香草山农场 – 纳米
+**撰稿：日本东京方舟农场  海星**
 
+1月28日，众多加拿大卡车司机聚集于首都渥太华参加示威游行活动，抗议政府实施的强制疫苗令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月27日，美国联邦通信委员会FCC，再次因国家安全问题，以4比0的投票结果，一致通过撤销中共国联通在美国的服务授权。并要求其美洲营运有限公司，在该命令发布的60天内停止在美国的任何国内和国际业务。
+据《法新社国际新闻》报导，由众多卡车司机组成的车队于1月28 日到达加拿大首都渥太华，并进行大型示威游行活动，抗议特鲁多政府强制实施的疫苗接种令。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-37.png)（图片来源：法新社）
+报导指出，加拿大特鲁多政府规定从1月中旬开始，穿越加美两国边境的卡车司机必须接种疫苗。对此，众多卡车司机表示不满，称此规定剥夺了人民的自由，违反宪法。于是，司机们便纷纷展开行动，于1月23日组织车队前往首都渥太华。据悉，该车队有多达7万辆车组成，长达70公里，另有来自美国卡车司机的车辆。
 
-FCC表示，自20年前FCC授权以来，有关中共国的国家安全环境发生了变化，并发现联通美洲子公司和其在大陆的母公司，中共政府都有机会进入、存储、破坏或误导美国通信。并指出，联通的行为缺乏坦诚、可信度和可靠性，不符合FCC要求的基本信任水平。
+美国电动车巨头特斯拉和太空公司SpaceX的创始人埃隆·马斯克，对抗议强制疫苗令的卡车司机表示支持。他在推特上发帖说：”加拿大的卡车司机是最棒的！”
 
-继2019年5月FCC投票否决中共国移动在美服务授权，2021年10月吊销中共国电信服务授权后，到现在中共国联通被吊销执照。至此，中共三大电信运营商彻底在美国出局。
+据了解，抗议活动也受到了沿途民众的广泛支持。卡车驶过之处民众纷纷上街，挥舞着国旗向抗苗英雄们致敬。
 
-文字版原文：[FCC宣布吊销中共国联通在美国的运营执照](https://gnews.org/zh-hans/1927870/)
+参考链接：
+1.[https://www.afpbb.com/articles/-/3387570?pid=24141003](https://www.afpbb.com/articles/-/3387570?pid=24141003)
+2.[https://gettr.com/post/pr5yjhb7e4](https://gettr.com/post/pr5yjhb7e4)
+3.[https://gettr.com/post/pr66aucbbd](https://gettr.com/post/pr66aucbbd)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：海星
+编辑：文顺
+发布：文曦
 
  
 

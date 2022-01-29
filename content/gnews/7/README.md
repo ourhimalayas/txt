@@ -2,38 +2,68 @@
 ---
 
 
-## 新冠大流行对超过三分之一的飞行员造成精神和经济损失，不再飞行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1930421/)
+## 懦弱虚伪！还是制造恐慌？小土豆又一次玩隔离？
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1930440/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-at-18-15-46-Beijings-2022-Winter-Olympic-propaganda-mirrors-Hitlers-1936-efforts4.jpg)www.thenationalnews.com
-一项调查发现，世界上超过三分之一的航空公司飞行员仍然不能进行飞行工作——五分之一的人仍然失业——因为新冠大流行继续对这个职业造成精神和经济损失。周三公布的一项对1743名职业飞行员的调查，询问了他们的工作状况和对职业的态度，发现与去年的调查相比，情况略有改善。
+**加拿大温哥华扬帆农场路仁**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/C5E52E93-DC9A-46D7-AC25-7FB7858A0675.jpeg)
+图片来源：finance.sina.com.cn
 
-这项研究是由英国的大雁招聘公司和行业出版物FlightGlobal进行的。最新的民意调查发现，62%的飞行员是“受雇并正在飞行的”，比一年前的43%有所提高。“失业”的比例从30%下降到20%，而6%的人正在休假，而在上一次调查中，这一比例为17%。
+据《CP24》新闻网1月27日报道，加拿大总理特鲁多（俗称小土豆）在得知自己接触了COVID-19中共病毒检测阳性的人后，选择在家里隔离。
 
-“尽管情绪低落，但很明显，飞行员确实期待航空业恢复到我们在2019年看到的那种程度，宜早不宜迟”大雁招聘的首席执行官和创始人马克·查曼说。由于航空公司被迫重组，以及政府实施的旅行限制造成的不确定性，航空业经历了技术工人的大规模离职，他们永久性地离开了工作岗位。在两年的新冠大流行期间，由于该行业努力应对其历史上最严重的危机，航空从业人员被裁员、休假或面临大幅减薪。
+小土豆在27日的一条推文中公告了这个消息。小土豆说，他接受的快速抗原检测结果为阴性，但他遵守当地公共卫生规定并隔离了五天。他说在那段时间他将在家工作。“我感觉很好，将在家工作，”他在推文中写道。 “大家注意安全，请接种疫苗。”
+![pastedGraphic.png](https://gnews.org/7d96604d-9327-408b-b208-6ed4e7cea7a8)
+但小土豆办公室表示，事件发生后，总理接触范围内的任何工作人员和部长都没有被隔离。
 
-国际航空运输协会总干事威利·沃尔什（Willie Walsh）在该行业游说团体周二举行的在线新闻发布会上单独的评论中说，所谓的大辞职对 “我们的行业打击特别大”。FlightGlobal的部门主管Sophie Wild说，这场大流行病在精神上和经济上都对这个行业产生了严重影响。
+极具讽刺的是，三周前，特鲁多前往渥太华的一家药房接受了第三针加强针的注射。按照[公共卫生的规定](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/faq.html?CDC_AA_refVal=https%3A%2F%2Fwww.cdc.gov%2Fcoronavirus%2F2019-ncov%2Fvaccines%2Fkeythingstoknow.html)，接种14天以上就算有效接种。小土豆应该妥妥的有效三针接种了吧？
 
-她说：“听取飞行员的意见，了解近两年内这场危机对他们的影响，以及他们对未来的感受，这一点非常重要。”对于一些失去工作的飞行员来说，回到驾驶舱的前景是令人担忧的。调查显示，近四分之一的失业飞行员——24%—对重返飞行“完全没有信心”，在北美，这一比例上升到40%。
+渥太华公共卫生指南说，任何没有COVID -19 症状且在快速抗原检测中呈阴性的人都不需要自我隔离，除非他们因为密切接触而这样做，比如有症状的家庭成员。那么小土豆有家庭成员有症状吗？迄今为止，还没有这方面消息透露出来。
 
-尽管对行业复苏持乐观态度，61%的受访者说他们“担心”工作安全。然而，与去年相比，这一情况有所改善，去年有82%的人说他们担心。调查说，与去年相比，更多的飞行员——现在有56%的人考虑在未来12个月内更换工作，而上一次调查是54%。“尽管这可能是就业市场改善以及对目前雇主不满意的一个迹象”。大约37%的飞行员说，如果他们可以重新选择的话，他们不会成为飞行员——比一年前的36%略高。
+这不是小土豆第一次隔离了。早在病毒之初的2020年3月，特鲁多的妻子因为检测阳性，于是小土豆就开始在家里隔离办公，期间还不[忘视频秀自己一个人带三个孩子的经历](https://fashionmodelsecret.com/world-news/justin-trudeau-in-home-isolation-daddys-on-an-important-phone-call/)。
 
-大多数人（55%）说他们不会向年轻人推荐他们的职业。这比两年前，即大流行之前，只有29%的受访者给出这个答案有所下降。然而，调查确实显示了一些曙光，60%的飞行员认为行业将在两年内完全恢复到大流行前的水平，还有23%的人说还需要12个月。随着危机对航空旅行需求的冲击，在不确定性、压力和焦虑程度不断上升的情况下，大流行病对航空从业人员的心理健康产生了深远的影响。
+自从2020年12月份加拿大开始全面推广中共病毒（COVID-19）疫苗以来，小土豆以及其内阁和卫生主管可谓不遗余力地向全加拿大人推广疫苗。可病毒却像耍猴一般戏耍着小土豆和其内阁成员。就在去年12月份，小土豆几个最得力的左膀右臂-财政部长兼加拿大副总理的方慧兰（ Chrystia Freeland ），因其团队两名成员检测呈阳性而选择了在家隔离远程办公。几天后，另一位重要内阁-外交部长梅兰妮·乔利（Mélanie Joly）宣布她的快速检测呈阳性并隔离。
 
-简评：持续了两年的新冠大流行病不仅仅是对民航业，对各行各业，全世界的每一个人都产生了巨大影响，造成心理和身体上诸多伤害。接下来全世界的人们需要面对的，也许就是新冠毒疫苗带来的二次伤害，会造成什么程度的灾害，目前还不好判断。我们爆料革命和新中国联邦的战友们现在还不是放松的时候，一定要紧跟文贵先生，健身健心，做好应有的准备，同时传播真相，团结一致灭掉邪恶的共产党，等待真正胜利曙光的到来。
+根据小土豆的刚硬政策，其内阁成员和联邦雇员必须是[完全接种疫苗才能工作](https://www.canada.ca/en/employment-social-development/news/2021/12/government-of-canada-will-require-employees-in-all-federally-regulated-workplaces-to-be-vaccinated-against-covid-19.html)。想必这两位部长和其随扈都应该是接种两针的全接种者。
 
-新闻链接：[https://www.thenationalnews.com/business/2022/01/26/more-than-a-third-of-pilots-not-flying-as-pandemic-takes-mental-and-financial-toll/](https://www.thenationalnews.com/business/2022/01/26/more-than-a-third-of-pilots-not-flying-as-pandemic-takes-mental-and-financial-toll/)
+完全接种两针的内阁部长，和接种完3针并且检测呈阴性的小土豆，只是因为跟阳性检测者有接触就选择了在家隔离，那么那些成天战斗在一线医院的医生和护士们，他们可是时时刻刻都和中共病毒（COVID-19）患者接触，难道他们都要选择回家隔离吗？
 
-* * *
+小土豆不遗余力所推广的疫苗，就那么的脆弱吗？早在2020年，小土豆就给全加拿大人[订购了超过4亿剂疫苗](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)。够给全加拿大每人打10针以上，包括孕妇和小孩。既然如此不堪一击，可小土豆还是要强行推广他用加拿大纳税人的钱购买的，已经被证明有着明显副作用的毒疫苗，这里面有什么猫腻吗？请参阅[“崽卖爷田不心疼？” 小土豆大撒币背后的猫腻？](https://gnews.org/zh-hans/1882073/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+最近几天加拿大最大的新闻，就是卡车司机们不满小土豆的强制疫苗政策，发起了声势浩大的“自由车队”抗议活动。尽管主流媒体声称只有10%左右的卡车司机受到影响，而不会影响整个运输行业的运行。而根据有记者粗略统计，有超过50000名卡车和140万卡车司机将于1月29日从全国各地聚集到加拿大首都渥太华。另外还有数万名卡车司机组成的卡车车队从美国数个城市前往加拿大给与支援。截至27日，卡车司机们在GOFUNDME上募集的资金也超过了650万加元。
+
+[根据《真北方》网站统计](https://tnc.news/2022/01/25/recap-of-day-3-of-the-truckers-for-freedom-convoy-across-canada/)，超过十几位保守党的国会议员们对卡车司机的抗议表示支持。就连早前态度模棱两可的保守党党魁奥图尔，也在1月27日发视频表示了对抗议活动的支持，并表示要和卡车司机进行对话。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/086F2500-7955-4B7D-A6AA-1564E6B9D2BF.jpeg)
+推特上极具影响力的人气推主艾伦马斯克，乔希罗根，塔克卡尔森等都对加拿大卡车司机表达了支持。
+
+然而，就在1月26日，小土豆在渥太华声称参与“自由车队”的卡车司机只[是“持有不可接受观点的一小撮人](https://globalnews.ca/video/8542159/trudeau-says-fringe-minority-in-trucker-convoy-with-unacceptable-views-dont-represent-canadians)”。这个语气和嘴脸，凡是经历中共国统治的人民再熟悉不过了。“一小撮人”是独裁统治者惯用词汇。 而就在一个月前，小土豆也把未接种疫苗者为“种族主义和厌恶女性的极端分子”。其用心险恶，可见一斑。
+
+《Logistic Daily》在领英上发表的一篇文章称：“当和平而令人生畏的‘自由车队’卡车司机们逼近渥太华时，贾斯汀特鲁多却躲藏了起来” 跟我们分析的一样，在打了加强三针而且快速检测为阴性的情况下，小土豆的隔离确实没有理由。唯一的理由，就是他想通过躲起来，躲过卡车司机在渥太华期间的抗议。
+
+作为一个民选的国家领导人，小土豆在任期间，丑闻不断，靠的就是一张厚脸皮度过各种难关。在对待中共强权上，唯唯诺诺，软弱无能，至今加拿大还是五眼联盟中唯一一个使用华为设备的国家，罔顾国家和人民信息安全。对于本国人民，小土豆则是刚硬狠辣，他曾经说过[对习近平独裁的羡慕](https://torontosun.com/opinion/columnists/goldstein-trudeau-said-he-admired-chinas-dictatorship-believe-him)，想必他也想通过铁腕手段对待民众，来体验作为独裁者的威风和荣耀。和世界精英主义沆瀣一气的小土豆，口口声声为了人民的福祉，但却破坏宪法，不顾人权，实行近乎世界最严苛的封锁和强制政策。而这次的所谓接触隔离，一方面想通过制造恐慌，用以达到其不可告人的目的，另一方面，也暴露其个性中的懦弱虚伪。
+
+比起来加拿大人的福祉，真正让他心心念念地是以达沃斯党为核心的所谓的“世界精英”们处心积虑为人类构造的“大重启（The Great Reset）”或“再建美好（Build Back Better）”计划。难怪达沃斯创始人[施瓦布在2017年哈佛的一次座谈会上说](https://www.bitchute.com/video/RFe1qdfZrGE2/)：“我们感到非常自豪的是，我们与我们的世界经济论坛全球青年领袖一起渗透了各国的全球内阁。”，毫无疑问，小土豆就是这个全球青年领袖之一。
+![pastedGraphic.png](https://gnews.org/c5d182d1-3cd3-4c3b-a16e-be31868fb37c)
+[https://www.cdc.gov/coronavirus/2019-ncov/vaccines/faq.html?CDC\_AA\_refVal=https%3A%2F%2Fwww.cdc.gov%2Fcoronavirus%2F2019-ncov%2Fvaccines%2Fkeythingstoknow.html](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/faq.html?CDC_AA_refVal=https%3A%2F%2Fwww.cdc.gov%2Fcoronavirus%2F2019-ncov%2Fvaccines%2Fkeythingstoknow.html)
+
+https://fashionmodelsecret.com/world-news/justin-trudeau-in-home-isolation-daddys-on-an-important-phone-call/
+
+[https://www.canada.ca/en/employment-social-development/news/2021/12/government-of-canada-will-require-employees-in-all-federally-regulated-workplaces-to-be-vaccinated-against-covid-19.html](https://www.canada.ca/en/employment-social-development/news/2021/12/government-of-canada-will-require-employees-in-all-federally-regulated-workplaces-to-be-vaccinated-against-covid-19.html)
+
+[https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)
+
+[https://globalnews.ca/video/8542159/trudeau-says-fringe-minority-in-trucker-convoy-with-unacceptable-views-dont-represent-canadians](https://globalnews.ca/video/8542159/trudeau-says-fringe-minority-in-trucker-convoy-with-unacceptable-views-dont-represent-canadians)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> [Recap of Day 3 of the Truckers for Freedom Convoy across Canada](https://tnc.news/2022/01/25/recap-of-day-3-of-the-truckers-for-freedom-convoy-across-canada/)
+
+
+
+
+
+[https://torontosun.com/opinion/columnists/goldstein-trudeau-said-he-admired-chinas-dictatorship-believe-him](https://torontosun.com/opinion/columnists/goldstein-trudeau-said-he-admired-chinas-dictatorship-believe-him)
+
+编审：文敏 发布：天予
 
  
 

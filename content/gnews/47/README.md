@@ -2,29 +2,34 @@
 ---
 
 
-## 美高级官员将访问立陶宛 对抗中共经济胁迫
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1928571/)
+## 美方动用军事医疗专机撤离遭中共哀求挽留
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1928581/)
 
-**撰稿：日本东京方舟农场  老孙**
+作者：新西兰伊甸农场财经G乐部 亚伦
 
-据美国之声1月29日报道，美国国务院发表声明，副国务卿费尔南德斯（Jose Fernandez）将于1月30日出发，访问立陶宛首都维尔纽斯及比利时布鲁塞尔，表达美国对立陶宛的坚定支持，并与欧盟官员讨论双边经济合作，以对抗来自中共政府的政治压力和经济胁迫。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-525.jpg)（图片取自美国之声）
-声明指出，双方将讨论落实一项总额6亿美元的谅解备忘录，拓展美国出口商和立陶宛买家在高科技制造业、商业服务、再生能源等方面的合作机会，并与欧盟贸易和技术委员会，讨论跨大西洋贸易和投资，以阻止中国在全球范围内不断提升的影响力。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-声明中还表示，中共经济胁迫的行为已违反国际经贸协定，不应被准许，台湾将与立陶宛及欧盟等其他理念相近伙伴合作，防止中共采取经济及外交胁迫措施，维护以规则为基础的国际贸易体系。
+1月28日，郭文贵先生在盖特视频中透露，中共刚刚私下向美方乞求，希望美国的这次“授权撤离”仅覆盖那些中共病毒检测结果呈阳性的工作人员，其余人则继续留在驻北京大使馆中。同时，中共恳求美国能将此次撤离定性为对染疫人员的短暂授权撤离。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-29-at-9.01.02-PM.png)
+郭先生透露，美方虽然口头上表示，此次撤离将只接回染病的使馆人员，望中共配合，但美国政府随后派出了多架军事医疗专机降落在北京首都机场——这些专机的运输力远远超过撤离驻京大使馆人员所需求的。
 
-台湾驻立陶宛代表处于2021年11月18日在首都维尔纽斯挂牌成立。中共政府以代表处名称使用“台湾”、“损害国家主权和领土完整”为由，持续对立陶宛外交及经贸强力施压，甚至要求欧洲企业将立陶宛排除供应链。
+郭先生感慨，中共对内残暴苛刻、对外点头哈腰，实属将两面派的作风发展到极致。但不管如何垂死挣扎，全球对中共围剿的大势已定，灭共的大行动更会一个接一个的到来。
 
-台湾行政院经贸谈判办公室星期五晚间也发表声明说，全力支持欧盟和立陶宛反对中共经济胁迫的不当行径。
+参考链接：[文贵先生 1月28号盖特：….共产党在美国授权撤离的外交后……还在尝试磕头，下跪．求美国！帮他们欺骗十几亿中国人……悲剧呀……中国人可怜至极！](https://gettr.com/post/pr277kd558)
 
-参考链接：
-1.[https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html](https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html)
-2.[https://www.cna.com.tw/news/aopl/202201290012.aspx](https://www.cna.com.tw/news/aopl/202201290012.aspx)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-素材采编：老孙
-编辑：文顺
-发布：爱放飞
+编辑：宁文静
+总编：文特
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
