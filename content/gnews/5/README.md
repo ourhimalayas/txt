@@ -2,10 +2,19 @@
 ---
 
 
-## 1/27/2022 文贵直播：文贵当年拍的那张坐龙椅的照片背后是怎样的故事？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1926569/)
+## 得天助就会有超人的力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926742/)
 
-秘密翻译组-北美组
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+
+发布：陶子
+
+更多资讯，请关注：
+澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
+澳大利亚墨尔本农场Gettr：himalayaathena
+澳大利亚墨尔本雅典娜农场YouTube
+澳大利亚墨尔本雅典娜农场Discord
+澳大利亚墨尔本雅典娜农场GTV直播1台
 
  
 

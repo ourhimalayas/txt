@@ -2,19 +2,30 @@
 ---
 
 
-## 七哥随时知道习近平行踪
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1926410/)
+## 文贵大直播摘要图片-不断不交（2022年1月27日）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1926557/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 设计：波士顿五月花 科存
 
-发布：陶子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/美国不断不交弄死中共.png)
 
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+美国“不断不交”弄死中共
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/授权撤离共产党已经结束.png)
+
+授权撤离共产党已经结束
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一百多家世界金融机构决心惩罚中共.png)
+
+一百多家世界金融机构决心惩罚中共
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/中国人的灾难缘于信假不信真.png)
+
+中国人的灾难缘于信假不信真
+
+* * *
+
+*发布：霹雳鼠年*
 
  
 

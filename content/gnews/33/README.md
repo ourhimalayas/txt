@@ -2,37 +2,28 @@
 ---
 
 
-## 谷歌因欺骗性位置跟踪与监控被美国多个州起诉
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1926298/)
+## 联合国：新疆人权报吿不会在北京冬奥前公布
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1926333/)
 
-作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Unknown-40.jpg)联合国：新疆人权报吿不会在北京冬奥前公布 网络图片
+据台湾中央广播电台1月28日报道，由于担心中共国利用2022年北京冬奥会转移各方对新疆大规模种族灭绝的注意力，多位美国国会议员和许多人权团体要求联合国人权事务高级专员巴舍莱在北京冬奥前公布新疆人权报告。联合国人权事务高级专员公署28日确认，新疆人权报告不会在2022年北京冬季奥运前公布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
+人权是每个人与生俱来的权利，没有人可以剥夺他人的生存权利。中共被指控对新疆维吾尔人施行种族灭绝，人权报告指出最少100万维吾尔人和其他以穆斯林为主的少数民族被关押在新疆的再教育营区。中共一向耍无赖，敢做不敢当，当然否定。联合国已经接收中共国作为人权理事会的成员，怎么能为新疆人权问题发声呢？中共已经剥夺了数以亿计中国人的生命，中共国和整个世界在病毒和疫苗的杀戮中挣扎。只要中共存在一天，新疆的人权问题就不会解决，杀戮就不会停止。
+
+新闻参考链接：[https://cn.rti.org.tw/news/view/id/2123427](https://cn.rti.org.tw/news/view/id/2123427)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-
-据外媒报道，美国多个州指控谷歌公司进行欺骗性位置跟踪。美国华盛顿特区、德克萨斯州、华盛顿州和印第安纳州宣布对科技巨头谷歌提起诉讼。诉讼中称，谷歌开发了一个位置跟踪系统，即使在用户认为位置跟踪已被禁用的情况下，该系统仍然在收集用户数据，且误导用户，从而监控用户数据，并从此数据中获利。用户无法自行退出此应用程序。
-
-华盛顿特区司法部长Racine的办公室正在对谷歌实行禁令，并迫使谷歌支付通过误导用户隐私而获得的利润。
-
-参考链接：
-
-[https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/](https://www.breitbart.com/tech/2022/01/25/multiple-states-sue-google-over-deceptive-location-tracking/)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-12.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-31.jpg)
 
  
 

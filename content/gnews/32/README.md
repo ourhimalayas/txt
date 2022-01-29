@@ -2,42 +2,66 @@
 ---
 
 
-## 瑞典不为5至12岁的儿童接种中共病毒疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1926308/)
+## 拜登团队表示，全球芯片短缺将持续到2022年下半年
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1926342/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2400.png)2021年3月2日，在瑞典斯德哥尔摩北部索伦图纳的一座教堂内的临时疫苗接种诊所，一名卫生工作者为一名老人接种辉瑞公司的中共病毒疫苗。(图源：路透社)
-新加坡《亚洲新闻台》2022年1月27日报道，瑞典卫生署周四(1月27日)表示，瑞典已决定不推荐5至11岁的儿童接种中共病毒疫苗，认为其益处并未超过风险。
+**评论：***全球半导体供应链仍然脆弱，需求远超供应。短期可能解决不了这些供应链中的瓶颈问题。*
 
-卫生署官员布里塔·比约克霍尔姆(Britta Bjorkholm)在新闻发布会上说：“根据我们今天所掌握的知识，由于儿童患严重疾病的风险很低，我们认为为他们接种中共病毒疫苗没有任何明显的好处。”
+据《彭博社》作者：珍妮·伦纳德(Jenny Leonard)和伊恩金(Ian King), 2022年1月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2402-e1643421969873.png)图片来源：Iaroslav Neliubov/Shutterstock
+拜登政府认为，全球半导体短缺将至少持续到今年下半年。这将给汽车制造商和消费电子行业在内的诸多美国企业带来压力。
 
-她补充说，如果研究发生变化或新变种病毒改变了大流行，则可能会重新审视该决定。高危人群中的儿童已经可以接种疫苗。
+**美国商务部长吉娜·雷蒙多（Gina Raimondo）周二表示，美国官员计划对汽车和医疗设备制造商遭遇芯片供给价格欺诈展开调查。**
 
-尽管检测数量有限，瑞典在1月26日登记了超过40,000例新病例，这是大流行期间单日病例最高的一天。虽然第四波疫情的单日感染记录被打破，但医疗保健并没有承受前几波疫情期间同样的压力。
+“我们远没有走出困境，这与半导体的供应问题有关。”雷蒙多在与记者讨论其机构周二发布的一份行业报告时表示。
 
-周四，101名中共病毒患者需要重症监护，远低于2021年春季期间的400多名患者。自中共病毒大流行病开始以来，瑞典总共有近16,000人死于该病毒。
+该报告基于来自芯片供应链中150多家公司的信息，显示“芯片的供需存在严重且持续的不匹配”。 报告称，这些公司认为在未来六个月，这一问题不会得到解决。
 
-瑞典政府周三将限制措施延长了两周，其中包括限制餐馆的营业时间和室内场所的上座率上限，但表示希望在2月9日取消这些限制。
+**商务部的报告强调了拜登政府试图应对危机时选项的局限性。这场危机导致电子设备生产延迟和汽车行业的劳工休假。 芯片短缺也是通胀上升的一个关键驱动因素。这一直困扰拜登总统的白宫，并有可能帮助共和党在11月的中期选举中实现对国会的控制。**
 
-简评：
+雷蒙多表示，库存中位数已从40天降至不到5天。
 
-随着美英在中共病毒强制令上的掉头，欧洲多个国家逐步放宽限制措施以及对疫苗的强制。瑞典政府不建议儿童接种中共病毒疫苗，其理由是益处并未超过风险。这只是一个暂时的可以下台的借口罢了。随着疫苗真相的逐渐揭开，和疫苗灾难的到来，没有哪一个政府能够独善其身。新中国联邦会在拯救世界这场灾难中扮演越来越重要的角色。新中国联邦人和全世界正义力量的坚持和努力一定可以让更多的人觉醒，并最终挽救人类。
+海外制造商的任何中断，例如Covid爆发或与天气相关的事件，都可能导致美国方面的停产和休假。
 
-新闻链接：[https://www.channelnewsasia.com/world/sweden-decides-against-recommending-covid-19-vaccines-kids-aged-5-12-2464301](https://www.channelnewsasia.com/world/sweden-decides-against-recommending-covid-19-vaccines-kids-aged-5-12-2464301)
+“半导体供应链仍然脆弱，”报告称，“尽管拜登政府为缓解短缺进行了数月的工作，需求仍然远超供应。”
 
-翻译/简评：milkcat
+大多数行业高管警告称，短缺要到今年下半年才会缓解，而因零部件稀缺部分产品会延迟到2023年。当前的需求繁荣可能会持续到 2025 年。
 
-PR: Harvey（叶知秋）
+报告称，这种短缺对医疗设备、宽带和汽车行业的影响尤为深远。
 
-* * *
+根据商务部的报告，政府还将调查在供应紧缺期间出现“异常高价”的某些类型半导体供应商的潜在价格欺诈行为。 雷蒙多表示，似乎是汽车和医疗设备领域的经纪人在收取高额的费用。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+许多半导体通过第三方分销商(如 Avnet Inc. 和 Arrow Electronics Inc.)销售，一些公司，如德州仪器公司，正在改变这种模式，并与芯片买家建立更直接的关系。
+
+该报告还发现，2021年对芯片的需求中位数比2019年高出17%，而供应没有相应增加。
+
+商务部的报告几乎承认政府无力解决瓶颈问题。
+
+“私营部门可以更好地应对当前短缺带来的挑战，比如通过增加产量、改善供应链管理以及通过产品设计以优化半导体的使用。”她说。
+
+雷蒙多表示，该报告同时强调了对国内（芯片）制造业进行更多投资的必要性。目前，将投入520亿美元鼓励半导体制造商在美国建厂的立法在国会停滞不前。
+
+“国会必须采取行动。”她说。
+
+尽管如此，任何新工厂都不会在几年内上线，因此无法立即缓解短缺问题。
+
+与此同时，雷蒙多和她的团队希望芯片供应商和消费者之间更多的信息共享可以帮助减少供需之间的不匹配。
+
+原文链接：[https://www.bloomberg.com/news/articles/2022-01-25/biden-team-says-global-chip-shortage-to-stretch-through-2022?utm\_source=twitter&utm\_campaign=socialflow-organic&cmpid%3D=socialflow-twitter-markets&utm\_medium=social&utm\_content=markets](https://www.bloomberg.com/news/articles/2022-01-25/biden-team-says-global-chip-shortage-to-stretch-through-2022?utm_source=twitter&amp;utm_campaign=socialflow-organic&amp;cmpid%3D=socialflow-twitter-markets&amp;utm_medium=social&amp;utm_content=markets)
+
+翻译：洛杉矶盘古农场 – 海潮
+
+校对：洛杉矶盘古农场 – Freeearth
+
+评论：洛杉矶盘古农场 – WenXiong
+
+编辑：洛杉矶盘古农场 – 子萍
 
 
-编辑：【英国伦敦喜庄园编辑部】
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
