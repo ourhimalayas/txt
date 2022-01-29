@@ -16,6 +16,10 @@
 ---
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/content/2019/12/20191231-1107954365607490232.md)
+
+[文字版：2019年12月27日文贵报平安录播](/content/2019/12/20191231-7426238118380743813.md)
+
 [文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/content/2019/12/20191228-6979826398362851059.md)
 
 [文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/content/2019/12/20191228-7349804487258741094.md)
@@ -61,10 +65,6 @@
 [文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
 
 [文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/2019/12/20191201-3479974122524096649.md)
-
-[文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/content/2019/11/20191129-6884019306620752974.md)
-
-[文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/content/2019/11/20191129-9084303791170558370.md)
 
 
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

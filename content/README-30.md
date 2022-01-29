@@ -16,6 +16,10 @@
 ---
 ## 頁面 30/39 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [39](/content/README-39.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
 
+[文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/content/2018/09/20180929-7242138828289666043.md)
+
+[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/content/2018/09/20180922-1607406229433269336.md)
+
 [翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/content/2018/09/20180922-4453715019951435654.md)
 
 [文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/2018/09/20180922-4402169540593751293.md)
@@ -61,10 +65,6 @@
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/content/2018/08/20180817-7104426966626506659.md)
 
 [文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/2018/08/20180817-2378902037495839266.md)
-
-[文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/content/2018/08/20180816-757785613793361402.md)
-
-[文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张](/content/2018/08/20180814-4681495316347763859.md)
 
 
 ## 頁面 30/39 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [39](/content/README-39.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
