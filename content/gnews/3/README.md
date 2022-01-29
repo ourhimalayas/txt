@@ -2,33 +2,36 @@
 ---
 
 
-## 1.27大直播后记：七哥谈战友救人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927731/)
+## 接种新冠疫苗死亡导致尸体充满栓塞
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927785/)
 
-整理：Rianna
-编辑：小红帽
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+1月26日，殡仪馆馆长理查德·赫希曼揭示了新近死亡人群的尸体中动脉和静脉中充满了非自然血凝块和奇怪的纤维材料。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2412.png)
+这位殡仪馆馆长同时持有人体防腐资格证。他的殡仪馆接受的死亡大多数与心脏病和中风有关，这同时也是中共病毒疫苗引发的常见不良并发症。馆长说当他试图给这些接种过中共病毒疫苗死亡的尸体进行防腐处理时，发现有阻力，血凝块和奇怪的纤维材料被从尸体的大血管中拉出。并且在过去的一年里，在他的防腐案例中，有这些类型堵塞物的比例从50%上升到近80%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/3-62.png)图片来源:雅典娜设计组
 
 
-兄弟们，人生的变化，你的积累，人生最后，你对上天的理解，就是你对事情判断的能力。你看雅各，他是宗教（人士），他所有的判断（都）基于宗教的理解来判断大势。但是很可惜，基于宗教的判断绝大多数都是错误的。我们面临最大的问题就是一定要坚持唯真不破，还有尽量不要大头症。科学是手段，信仰是我们终极的力量。我就不相信人类是猴子变的，我也不相信地球是共产党控制的；不相信共产党说，爹亲娘亲不如共产党亲。我不相信共产党说，不要爹，不要娘，得癌症也不要管，也要为党献身是吧？还有刘胡兰、雷锋，我从来不相信。
+新闻来源：[Worldwide Exclusive: Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots](https://www.redvoicemedia.com/2022/01/worldwide-exclusive-embalmers-find-veins-arteries-filled-with-never-before-seen-rubbery-clots/)
 
-同样的，我也不相信共产党还能活下去。但是，我知道，我必须按照当下的物理生活，一步一个脚印。我每天工作18-20个小时。我要念经，我要打坐。我每天必须健身。我不健身，我坚持不住坐在这跟你们谈几个小时，我怎么可能（做到），是吧？
 
-就像在喜联储那帮孙子骂我说，这谁呀，这小子一侃十几个小时。喜联储的人竟然不知道Miles Guo！我侃十几个小时，现在出名了。他们一开会，200多个人说，你就是那个一侃十几个小时的Miles Guo，相当愤怒。我们就一个战友在那儿，她叫Kathy。她开始已经救了我们战友3次了，就一个战友Kathy。她是我们很特别的战友。你们不知道，小王子知道,很多人都不了解，这是个了不起的战友。
 
-很多战友跟我有（发）私密的信息，Kathy也跟我有一次，特别一句话，把我一下子眼泪就给说出来了。我当时是正在一个会上，她说，七哥，你不会把我放下不管了吧？因为她是单身母亲，还有孩子。这孩子每天就是听你的直播。从小就听我直播，很少说话，喜欢我唱歌，喜欢我。听到这，我眼泪唰就下来了。我跟她从没谋面。我们过去和她家人和我们之间有很多关系。一个女人，单身的母亲，一个孩子，把我当成了依托。如果我是个混蛋，像路大脑袋（路德）一样，逮住秘书也睡，逮住他妈也睡，逮住什么姨也睡的，你说我这就不成畜生了吗？哪能玩？哪能行？开玩笑归开玩笑。就是因为战友相信我不是那种坏人，才相信我，而且孩子也相信我。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
 
-昨天晚上的时候，有一位我们的战友，他母亲和他的女婿，还有他女儿在一起，发个小视频给我。他说，七哥，我们家让你救了，没打疫苗，还有我们的孩子出了国了。同时，昨天有人从共产党国出来的。昨天有战友的妈妈去到大使馆（申请）签证被拒签了。同时，昨天有战友离开到别的国家，入境时给拒签了，拒进了，然后现在等待着，往回送他。还有塞浦路斯的，我们那一对母女已经从法院的监狱，送到了当地的警察监狱，马上就要释放了。
+总编：童谣
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：文特
 
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
