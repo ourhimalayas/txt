@@ -2,36 +2,27 @@
 ---
 
 
-## 泽连科医生证实中共病毒与解药被同时制造
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927703/)
+## 风水即磁场，天亦会灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927740/)
 
-撰稿：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-根据文贵先生盖特视频，1月22日，泽连科医生接受采访时表示，20年来中共病毒被精心构造，是大规模破坏性武器。追溯到1998年，受到NIH及NIAID资助的巴里克，先后申请了病毒跨物种转移的技术专利，冠状病毒破坏人类肺组织专利，以及2015年巴里克与武毒所石正丽联名发表了研究蝙蝠冠状病毒感染人类的论文。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2410.png)
-2020年3月，泽连科推出中共病毒治疗方案，使感染者的住院率和死亡率降低了85%。而该方案正是基于巴里克2010年所写的一篇讨论锌离子载体的论文。这意味着制造病毒的人，同时制造了解药。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/风水即磁场天亦会灭共.png)
+大家一定要记住这个震就是龙。我想给大家说一下，从地球上来看，风水是什么？就是磁场。昆仑山的气场到啥程度？有人带了一袋面粉，带上铜钱银元，不同的地方放三小堆面，会从中间切开，每天凌晨**12**点交接。科学叫磁场，我们人就是**100**亿年前地球被撞后逐渐地形成了，从这里又形成了月亮，然后是河流山川。人只不过是宇宙中的一个**DNA**。龙脉是什么？你的鼻子眼睛，昆仑山一旦没有了磁场就没了。玉女峰南侧因为温度变化万物产生，竟然有六亿人靠着这水生存。咱们遇到了共产党这妖孽王八，各种龙脉水神被破坏。最重要的是什么， 共产党让这个国家的空气水污染，风水全毁了，不灭它天理不容。人不灭它天也会把它灭了！我深信不疑！
 
-泽连科进一步揭露，世界经济论坛和联合国发布的2030计划称，因人口爆炸，美国的医疗保险和社会保险体系将会于2026年开始崩溃。其它国家也存在相同的问题。因此，削减人口数量，成为当务之急。现在各国政府强制接种中共病毒疫苗，已经造成了不可估量的人身伤亡。疫苗护照就是史瓦布所说的用来控制并奴役民众的数字标识。泽连科医生表示，他是揭露人类历史上最严重犯罪的清醒者之一。
+战友问：属虎的为什么不让去，疫苗灾难严重吗？绝对严重，经济、疫苗病毒灾难！ **5**月份之后开始，战友们没打疫苗是多么幸福的一件事啊！
 
+为什么不让去昆仑山？因为共产党的命已经定了，以当年毛泽东为核心的，五星红旗其实就是他个人的生辰八字。他就是火，红色，不是汉朝的红。一切以毛泽东为主，他是湖南人，你去看韶山周围，以及最后定都北京后列出来的。毛泽东最大的属相相冲是什么？就是虎！ 属虎的对共产党的五星红旗是最大的伤害，所以常委里几乎没有属虎的，好几个人之前因为属虎都给拿下了。属猪的可以进常委但绝不允许当总书记！
 
+*发布：开智则立*
 
-新闻链接：[https://www.gettr.com/post/pqp79t8d1f](https://www.gettr.com/post/pqp79t8d1f)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-5.png)
-
-总编：雪梨
-
-编辑：宁文静
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

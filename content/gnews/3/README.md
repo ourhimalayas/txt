@@ -2,36 +2,25 @@
 ---
 
 
-## 接种新冠疫苗死亡导致尸体充满栓塞
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1927785/)
+## 风水就是磁场
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1927848/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-1月26日，殡仪馆馆长理查德·赫希曼揭示了新近死亡人群的尸体中动脉和静脉中充满了非自然血凝块和奇怪的纤维材料。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2412.png)
-这位殡仪馆馆长同时持有人体防腐资格证。他的殡仪馆接受的死亡大多数与心脏病和中风有关，这同时也是中共病毒疫苗引发的常见不良并发症。馆长说当他试图给这些接种过中共病毒疫苗死亡的尸体进行防腐处理时，发现有阻力，血凝块和奇怪的纤维材料被从尸体的大血管中拉出。并且在过去的一年里，在他的防腐案例中，有这些类型堵塞物的比例从50%上升到近80%。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/风水是什么就是磁场.png)
+大家一定要记住这个就是龙，我想给大家说一下，从地球上来看，风水是什么？就是磁场。昆仑山的磁场到啥程度，有人带了一袋面粉，带上铜钱银元，不同的地方放三小堆面，会从中间切开，每天凌晨**12**点交接。科学叫磁场，我们人就因为**100**亿年前地球撞击逐渐地形成了，从这里形成了月亮，然后是河流山川。人只不过是宇宙中的一个**DNA**，龙脉是什么？你的鼻子眼睛，昆仑山一旦没有磁场了就没了。玉女峰南侧因为温度变化万物产生，竟然有六亿人靠着水生存。咱们遇到了共产党这妖孽王八，各种龙脉水神。最重要的是什么，共产党让这个国家的空气水污染，风水全毁了，不灭它天理不容。
 
+问题是属虎的为什么不让碰？为什么不让去昆仑山？因为共产党的命已经定了，以毛泽东为属性的，他个人的生辰八字，他就是火，红不是汉朝的红。湖南人，你去看韶山周围，毛泽东最大的属相是什么，之前好几个人因为属虎都给拿下了。
 
+*发布：开智则立*
 
-新闻来源：[Worldwide Exclusive: Embalmers Find Veins & Arteries Filled with Never Before Seen Rubbery Clots](https://www.redvoicemedia.com/2022/01/worldwide-exclusive-embalmers-find-veins-arteries-filled-with-never-before-seen-rubbery-clots/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
-
-总编：童谣
-
-编辑：文特
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

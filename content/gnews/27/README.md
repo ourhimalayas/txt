@@ -2,22 +2,23 @@
 ---
 
 
-## 美国防部长称，俄罗斯军队有能力占领多个城市和大片领土
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1927216/)
+## 叙利亚摄像师谴责赵立坚滥用其照片歪曲事实
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1927248/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-279.png)[图片来源](https://news.yahoo.co.jp/articles/0d875b69a714ab0e23f83c64fbff8ae202625120#:~:text=%E3%83%88%E)
-1月29日共同通信在线消息，美国防部长奥斯汀28日在新闻发布会上表示，集结在乌克兰边境周围的10万俄罗斯军队“有能力占领多个城市和大片领土”。这表明普京的入侵决定是可能的。虽然俄罗斯对此予以否认，但美国越来越担心，入侵的可能性会变为现实。奥斯汀呼吁，需要通过外交途径解决问题。
+#### 翻译/撰稿：zzballack
 
-针对乌克兰的紧张局势，美方已经以书面形式回应了俄方提议，正式拒绝了俄罗斯关于不扩大北大西洋公约组织（NATO）的承诺的要求。今后外交谈判预计将会继续进行，但普京的下一步行动正在引起关注。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-49.jpg)图片来源：推特
+据《布雷特巴特新闻网》（Breitbart News）1月28日报道，叙利亚摄像师阿里·哈吉·苏莱曼（Ali Haj Suleiman）1月27日在推特发文，谴责中共外交部发言人赵立坚将他为一篇反映叙利亚内战的文章而拍摄的照片谎称是展示阿富汗悲惨现状的照片，以作为美军入侵阿富汗并虐待阿富汗儿童的“证据”。
 
-信息源：
+苏莱曼在推特上写道，赵立坚所发布的这些照片实际上是他在叙利亚西北部城市伊德利卜（Idlib）拍摄的，以让世人看到叙利亚政府和俄罗斯军队给当地孩子带去了什么灾难。
 
-[米長官、ロシア軍は侵攻準備完了　「都市の奪取可能」](https://news.yahoo.co.jp/articles/212cff647051e07ac6268497b432861bbbb18c80#:~:text=%E7%B1%B3%)
+赵立坚歪曲事实、抹黑造谣早已屡见不鲜。此前，他曾声称中共病毒是由美国马里兰州的一个生物武器实验室制造的，而且在2020年11月发推恶意诽谤澳大利亚军队杀害婴儿。但推特拒绝审查赵立坚的推文，尽管它明显违反了该平台的服务条款。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+以赵立坚为代表的中共官员在国内甚至国际舞台上混淆是非、胡编乱造已是家常便饭。特别是在中共病毒的起源一事上，世人逐渐看清了中共的假、黑、骗等邪恶本质。中共的种种恶行让无辜的中国人甚至亚洲人和亚裔受到了牵连，因此向世人揭露中共的暴行以及中共不等于中国人十分重要。
+
+新闻来源：[Photographer Accuses China of Using His Photos from Syria to Smear U.S. Role in Afghanistan](https://www.breitbart.com/national-security/2022/01/28/photographer-accuses-china-using-his-photos-syria-smear-u-s-role-afghanistan/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
