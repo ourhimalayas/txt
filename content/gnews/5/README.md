@@ -2,8 +2,8 @@
 ---
 
 
-## 2022年三大官司
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930830/)
+## 杨洁篪去多个国家企图遣返战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930878/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

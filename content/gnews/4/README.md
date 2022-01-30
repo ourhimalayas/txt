@@ -2,8 +2,8 @@
 ---
 
 
-## 世界的法律，金融，制度，文化，军校，警校，NGO背后都有达沃斯党在控制
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930832/)
+## 不铲除达沃斯党不可能有民天下
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930888/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
