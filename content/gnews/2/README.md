@@ -2,8 +2,8 @@
 ---
 
 
-## 王孟江家这个局设计的很高妙
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931845/)
+## 现在做个正确决定
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931898/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

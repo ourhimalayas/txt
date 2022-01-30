@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦人是世界最伟大的力量
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931829/)
+## 七哥包容不了说假话还有傻人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931882/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

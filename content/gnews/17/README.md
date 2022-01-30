@@ -2,36 +2,52 @@
 ---
 
 
-## 【秘翻在线】如果受到制裁，俄罗斯将可能对美国发动网络攻击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1931647/)
+## 疫苗导致美军流产、癌症和神经系统疾病暴增
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1931769/)
 
-**撰稿：Grace**
+作者：纽约磐石农场—在远方
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-29-at-11.30.56-PM.jpeg)图片来源：cybernews
-据《福克斯新闻》1月29日报道，一位高级网络安全官员周六警告说，美国与俄罗斯 “已经处于战争状态”，并说美国应该为来自莫斯科的网络攻击做好准备。
 
-美国及其北约盟国已承诺，如果俄罗斯以军事主导的入侵行动侵犯乌克兰的主权，这些国家将以迅速和严厉的经济制裁打击俄罗斯。
 
-网络安全公司Ergo的首席执行官R.P.艾迪（R.P. Eddy）说：“如果俄罗斯真的进入顿巴斯（Donbas）地区并挥舞旗帜。。。俄罗斯的下一步行动是什么？”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-47.jpg)
 
-艾迪认为，俄罗斯“很可能是增加网络攻击”，因为“这对他们来说是一个容易的举动”。
 
-“这意味着美国各州和美国私营公司需要非常认真地对待这个问题，” 他强调道。
 
-艾迪还警告说：“我们现在已经处于战争状态，我们需要意识到这一点。”
+盖特消息，当地时间1月24日，律师托马斯·伦茨告知由参议员罗恩·约翰逊领导的关于中共病毒疫苗和治疗方案小组称，根据三名举报人提供的数据显示，中共病毒疫苗正在对美军成员造成灾难性伤害，而且无法阻止他们感染中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-67.png)
+伦茨律师总结了从美国国防医学流行病学数据库获得的数据，该数据显示，2021年的流产率比五年前增加了300%；2021年的癌症率比五年前平均水平增加了300%；2021年的神经系统疾病比五年前增加了1000%；一年内从82000起，暴增到863000起。
 
-报道指出，2017年NotPetya恶意软件对乌克兰关键部门的攻击，包括电网、企业和政府机构。但是，最初作为俄罗斯对乌克兰的疑似攻击的一个组成部分，蔓延到整个欧洲，据说花费了数十亿美元。
+伦茨告诉专家组，来自DMED、国防部军民综合健康数据库、以及医生爆料者的情报表明，自2021年9月以来，美国国防部和美国疾病控制和预防中心一直扣留着中共病毒疫苗监测数据。他强调说，美军士兵正在接受试验，他们会受伤，甚至可能会被杀。
 
-另一方面，网络安全和基础设施安全局（CISA）局长仁·伊斯特利(Jen Easterly) 说，该机构正 “非常认真” 地对待俄罗斯入侵的威胁和任何波及的影响。
+参考来源：
 
-但她也警告说，不要对迫在眉睫的网络攻击威胁过度担忧。
+1.[COVID Vaccines Causing Miscarriages, Cancer and Neurological Disorders Among Military, DOD Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-miscarriages-cancer-neurological-disorders-military/?itm_term=hom)
 
-CISA负责人说，该机构的首要任务不仅是与美国军方、政府实体和私营企业合作，以最佳方式解决网络安全需求，而且要更好地教育美国人了解持续的网络威胁。
+2.[https://gettr.com/user/dczhengjingquan](https://gettr.com/user/dczhengjingquan)
 
-伊斯特利说，采取措施更新软件，更换传统的基础设施，转向安全云和密码管理程序，不仅可以更好地保护政府实体，甚至可以保护普通美国人免受网络攻击的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-18.png)
 
-**新闻来源：****[Russia will hit US with cyberattack if sanctioned, cyber expert warns: ‘We are already in warfare state’](https://www.foxnews.com/world/russia-cyberattack-sanctioned-cyber-expert-warns)**
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-49.jpg)
+
+
+
+
 
  
 
