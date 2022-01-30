@@ -2,33 +2,49 @@
 ---
 
 
-## 有声|中共暗地里要求返乡民众必须做核酸检测
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1931026/)
+## 瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1931223/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-墙内百姓拍摄中共疫情检测人员不承认百姓自带的48小时内核酸阴性报告视频，打脸中共在1月6日所谓“坚决防止层层加码和一刀切，减少对群众生产生活影响”的政策。
+作者：纽约香草山农场 – 四季
 
-视频拍摄者在检查点询问，自己自带的48小时内核酸阴性检测报告到底行不行，一位工作人员非常强势地告诉他不行，因为这个检测是全部人员的抽检；另一位工作人员则要求视频拍摄者出示身份证，用于做核酸检测。而面对为什么自带的48小时内核酸检测报告不行的质疑，并要求提供相关文件时，第一位工作人员态度蛮横，没有任何解释，且不耐烦地对视频拍摄者多次指指点点。最后拍摄者无奈质问：是不是我这样的算是“恶意返乡”呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-这种现象在中共国并非个例。在黑龙江哈尔滨也发生了更加恶劣的事件。仅因为返乡人员来自有过感染者的北京海淀区，检测点仅给出了要么强制隔离14天，要么原路返回的两个选项，甚至没有给出现场核酸检测的选项。这让返乡人员无奈只好带上孩子原路返回北京，错失与父母团聚。
 
-分析人士称，中共为了冬奥会所采取的清零政策，并没有中共在政策中描绘的那样人性化，没有从西安孕妇流产等事件吸取一丝一毫的教训，相反已经造成了春节前极其反常的人流量减少，甚至引起了墙内各地老百姓的不满。
 
-文字版原文：[中共暗地里要求返乡民众必须做核酸检测](https://gnews.org/zh-hans/1927303/)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+据[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)1月28日报道，瑞典政府宣布将不会建议为5至11岁的儿童接种中共病毒疫苗，因为没有看到这样做的医疗好处。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/kids-children-vaccine.jpg)图片来源：[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)
+
+瑞典卫生局官员布里塔·比约霍尔姆（Britta Bjorkholm）在新闻发布会上说，“根据我们目前所掌握的知识，儿童患严重疾病的风险很低，我们看不到为他们接种疫苗的任何明显益处”。
+
+瑞典公共卫生局周四在一份新闻稿中说，尽管情况正在被“不断”评估，但他们已决定不建议在2022年春季学期为12岁以下儿童进行中共病毒疫苗的接种。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
