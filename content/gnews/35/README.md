@@ -2,8 +2,8 @@
 ---
 
 
-## 甜蜜蜜
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1932446/)
+## 功夫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1932447/)
 
 制作：香草山视频部
 

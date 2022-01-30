@@ -2,37 +2,40 @@
 ---
 
 
-## 因疫情青少年心理创伤已达国家紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932645/)
+## 英国考虑参与北约在乌克兰危机中大规模部署
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1932669/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月26日，戈尔迪·霍恩撰写的专栏文章中表述，中共病毒时代以更真实、更具体的方式改变了孩子们的生活方式。社会疏远、人际隔离、学校关闭。
+新闻来源：路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-30.png)
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-霍恩研究发现，连续两年的中共病毒，青少年面临的“生存恐惧和创伤”已经超越911，接近美苏冷战时期而达到国家紧急状态，必须予以高度关注。其中四分之一的青少年有抑郁症症状，五分之一的有焦虑症迹象， 2020年因疑似自杀而就诊的女孩人数比2019年高出50% 。
-
-霍恩忧心忡忡地指出，NIH、美国外科医生学会、儿科学会一致认为青少年心理健康状况已达国家紧急情况的水平。青少年一代从中共病毒中幸存下来，却带着残缺不堪的心理进入成年，将会是国家的灾难。
-
-参考链接：
-
-- [Goldie Hawn on COVID Pandemic: ‘We Have Failed Our Children’](https://www.newsmax.com/thewire/goldie-hawn-covid-pandemic-mental-health/2022/01/28/id/1054498/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/LLZ7VPALXRMJNIK7L5VHJXFSAU.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+资料来源：路透社
 
-总编：Irene木木
-编辑：文特
-校正/发稿：海阔天空1
+英国政府周六表示，英国正在考虑部署北约，作为加强欧洲边界计划的一部分，以应对俄罗斯在与乌克兰接壤的边境集结军队。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国曾表示，任何俄罗斯入侵乌克兰的行为都将受到迅速制裁，对双方都将造成毁灭性打击。
+
+英国首相鲍里斯·约翰逊将于下周访问该地区，并将与弗拉基米尔·普京通电话。
+
+他的办公室表示，约翰逊正在考虑向北欧和波罗的海的北约防务条约成员提供最大可能的报价，这将使部队人数增加一倍，并向爱沙尼亚提供防御性武器。
+
+“这一方案将向克里姆林宫发出明确的信息——我们不会容忍他们破坏稳定的活动，面对俄罗斯的敌意，我们将始终与我们的北约盟国站在一起，”约翰逊在一份声明中说。
+
+“我已下令我们的武装部队准备下周在欧洲部署，以确保我们能够支持我们的北约盟国。”
+
+官员们将于下周在布鲁塞尔敲定这项提议的细节，部长们将在周一讨论军事选择。
+
+他的办公室表示，在因做得不够而受到批评后，约翰逊将加强外交努力，他将于下月初第二次访问北约同行。
+
+未来几天，英国外交大臣和国防部长也将前往莫斯科与俄罗斯同行进行会谈，以改善关系并缓和紧张局势。
+
+🔗[英国考虑参与北约在乌克兰危机中大规模部署](https://www.reuters.com/world/uk/britain-considering-major-nato-deployment-amid-ukraine-crisis-2022-01-29/)
+
+责任编辑/发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

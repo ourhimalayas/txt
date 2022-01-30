@@ -2,38 +2,24 @@
 ---
 
 
-## 中共驻美大使秦刚罕见威胁：中美或因台湾爆发军事冲突
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932507/)
+## 盗国贼们和中共统治下几千万个杨改兰们(二)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932589/)
 
-撰稿：纽约香草山农场 007
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-1月28日，中共驻美大使秦刚，接受上任后的首次美国媒体专访，威胁称，由于台湾问题，中美极有可能卷入一场军事冲突。他说，台湾问题是中美之间最大的火药桶，中共不会承诺放弃非和平的统一手段。对于如果美国继续与中共接触、中共会否保持现状的提问，秦刚没有直接回答。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2483.png)
-这是中共异常直接的声明，中共过去通常会用更笼统的说法，比如指责美国在“玩火”。此次采访之前，以美国为首的西方国家，正大力抵制北京冬奥会，美国刚刚决定“授权撤离”美国驻北京大使馆。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/盗国贼们和中共统治下几千万个杨改兰们.002.jpeg)
+结果让我们知道了。中国现在有几千万个杨改兰，你让联合国去查一查。还说我们叛国卖国。那么2022年他们公司的这个土地交易背后是谁知道吗？江去查查朱镕基跟他谈的啥？我敢到世界任何一个法庭告诉你，朱镕基江泽民家族在那拿到天大的钱。到今天还在收钱，中国老百姓的无知是全人类，我没有见过的。他们敢把国家的土地这么卖出去，那儿的矿，而且协议就很简单一永久。这个公司拥有这个地方的矿的开发权,昆仑玉。就是所谓的和田玉,真的是几吨重的和田玉,跟你说你可能不相信那个价格全都是江曾朱控制的比特币为啥是共产党搞起来的？就是现在搞起来，他要洗钱，不是洗白了，要洗雪白呀！为什么UBS成为中国第一个外资允许的，100%的执照？为什么摩尔根要拿证券公司？王岐山降价了，他洗钱需要工具啊，需要水，需要池子，他洗完放哪去？我告诉大家，如果你不懂得什么叫叛国和卖国，你这一辈子被被骂叛国卖国，那你就太冤了。
 
-观察人士认为，中共国的经济、政治、外交已陷入困境，面临全世界与其脱钩的局面，尽管中共一贯施以口炮威慑和战狼外交的手法，但秦刚的最新说法，说明中共内部已承认大势已去，不排除中共孤注一掷，不惜中美军事冲突，随时入侵台湾。
+2022年1月12日大直播
 
+发布： 星谕
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-新闻链接：
-
-[China’s ambassador to the U.S. warns of ‘military conflict’ over Taiwan](https://www.npr.org/2022/01/28/1076246311/chinas-ambassador-to-the-u-s-warns-of-military-conflict-over-taiwan)
-
-[Ambassador Qin Gang Takes an Interview with NPR Morning Edition](http://www.china-embassy.org/eng/dshd/202201/t20220129_10636444.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
-
-总编：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-13.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

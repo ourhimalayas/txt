@@ -2,37 +2,22 @@
 ---
 
 
-## 监督机构指控欧盟主席购买疫苗“行政不当”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932647/)
+## 日本队启程前往北京 创纪录的124人参加海外冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1932697/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月28日，欧盟官方监督机构指控欧盟委员会主席乌苏拉·冯德莱恩构成 “行政不当”，要求其公开在购买辉瑞疫苗期间，与辉瑞公司CEO之间的秘密信息。
+撰稿：东京樱花团丨向海
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2490.png)[*图片来源*](https://news.yahoo.co.jp/articles/c09238d5de0d517433f7c8aa6bc1dd9fd9f62078/images/000)
+据日媒ABEMA TIMES报道，距离北京冬季奥运会开幕还有5天，日本选手团今日早上从羽田机场出发前往北京。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-43.png)
+日本选手团的着装是海军蓝西装外套，系着红色领带，左胸上闪耀着日本队的徽章。这件西装外套将用于开幕式和闭幕式，此次北京“纳粹奥运会”的开幕式将于2月4日举行，整个冬奥会将历时17天至2月20日结束。
 
-欧盟监察专员艾米丽·奥莱利发布了一项正式提议，根据“信息自由申请”，要求冯德莱恩办公室公开这些文本。据悉，冯德莱恩为27个欧盟国家购买的一半以上的中共病毒疫苗来自辉瑞公司，辉瑞是迄今为止欧盟最大的疫苗供应商。冯德莱恩利用“个人外交”，与辉瑞CEO布拉达成巨额订单。 奥莱利说，短信电话和邮件如果涉及欧盟的政策和决定，它们就应该被视为欧盟文件，必须予以公开。
+加上新项目跳台滑雪混和组，15个竞技种类共109个项目，为冬季赛事历史上最多。冰壶等一些比赛将于2月2日开始。本次北京冬奥会的运动员出场人数将达到124人，是国外冬奥会参赛的最高人数。女子冰球队已经进入奥运村，今天约有80名球员离开日本。
 
-截至目前，欧盟委员会以商业机密为由，拒绝透露其与疫苗供应商合同的关键内容，特别是定价方面。
+信息来源：[**日本選手団が北京に向け出発 国外の冬季五輪で過去最多の124人が参加**](https://news.yahoo.co.jp/articles/c09238d5de0d517433f7c8aa6bc1dd9fd9f62078)
 
-参考链接：
-
-- [EU watchdog accuses Ursula von der Leyen of ‘maladministration’ and orders her to hand over secret texts she sent to Pfizer’s CEO during efforts to buy 1.8billion Covid jabs](https://www.dailymail.co.uk/news/article-10451919/EU-watchdog-orders-Ursula-von-der-Leyen-hand-secret-texts-sent-Pfizers-CEO.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：文特
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
