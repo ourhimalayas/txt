@@ -2,48 +2,18 @@
 ---
 
 
-## 瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1931223/)
+## 习近平说脱钩就是穷途末路，孙立军是自己会解放
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931242/)
 
-作者：纽约香草山农场 – 四季
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+*发布： tianzhihuan*
 
-
-
-
-
-据[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)1月28日报道，瑞典政府宣布将不会建议为5至11岁的儿童接种中共病毒疫苗，因为没有看到这样做的医疗好处。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/kids-children-vaccine.jpg)图片来源：[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)
-
-瑞典卫生局官员布里塔·比约霍尔姆（Britta Bjorkholm）在新闻发布会上说，“根据我们目前所掌握的知识，儿童患严重疾病的风险很低，我们看不到为他们接种疫苗的任何明显益处”。
-
-瑞典公共卫生局周四在一份新闻稿中说，尽管情况正在被“不断”评估，但他们已决定不建议在2022年春季学期为12岁以下儿童进行中共病毒疫苗的接种。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
