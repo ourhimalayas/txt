@@ -2,44 +2,37 @@
 ---
 
 
-## 我是音雄最重要的本质是音乐的无国界无民族和肤色障碍
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932449/)
+## 澳网观众担心彭帅处境危险 女单决赛声援彭帅
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1932460/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f630d7d90bdd2085a27789](https://gtv.org/video/id=61f630d7d90bdd2085a27789)
+作者： 改兰餐厅
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMG_1015.jpg)
+中国网球女将彭帅微博自曝被CCP高官性侵后人身安全得到世界广泛关注，倡议人员今天在澳洲网球公开赛女单决赛登场前发放了1000件“彭帅在哪里？”T恤，不分观众也穿着这款上衣进场，加入声援行列。
 
-**郭文贵先生：**而且新中国联邦在灭共的这个事业当中，在极度的压力和恐惧之下，我们每个人能站这里唱歌、露脸，而且越唱越好，越唱越专业，而且唱出了我们的特色。这种感觉只有，这个点儿摇滚歌王啊，被你们制造这个摇滚歌王而且是全球性的，我不知道有多少人明白这其中的道理，但是我是知道的。
+据法新社报道，澳网维安人员日前命令观众脱掉写有支持彭帅标语的上衣，引发关注；澳网主席提列（Craig Tiley）之后表示，球迷只要不制造干扰就可以穿着声援彭帅的T恤进场观赛。
 
-就像中东的我看着长大的这些王子还有公主什么的这些小孩：“Uncle Miles，you are rock, you are rock star, unbelievable!”每个人都说，每个人都是说：“unbelievable! fantastic!”是吧？他们羡慕死我了。我看到这些孩子，一个是G-Fashion，一个是咱们的喜币，一个是七哥这个全球打榜，他们就是简直是朗朗上口。
+今天，抗议者带了1000件“彭帅在哪里？”（Where is Peng Shuai?）T恤返回墨尔本球场（Melbourne Park），分送给民众。
 
-我跟我这朋友他们见面的时候，这都是国家级的领导人他们孩子，看到我时都紧张，我说：“为什么紧张啊？”“哎呦，你是Rockstar，你真的太厉害了！”就音乐对人的影响是没有国界的，它是没有民族障碍的，没有肤色障碍的。这就是新中国联邦《我是音雄》的最最重要的本质。
+巴夫鲁（Drew Pavlou）是发起以T恤挺彭帅活动的其中一人，他告诉法新社：“我们已经免费发了数百件T恤，有很多人穿着这T恤去看（女单）决赛。他们很兴奋。”
 
-字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
+巴夫鲁表示，活动参与者将T恤分送给要进入墨尔本球场的民众，希望在决赛期间透过转播，把“彭帅在哪里？”这一讯息传递到全世界。
 
-编辑整理：Jacques；
+“我们只是希望彭帅能自由发言。我们希望她能够在中国以外的地方旅游，能向媒体发表谈话而不受中国政府控制。”
 
-字幕文件制作：小满；
+在决赛开打期间，现场直播画面短暂扫过观战群众，几乎没有看见“彭帅在哪里？”T恤的影子。不过，法新社摄影记者在拉佛球场（Rod Laver Arena）场内发现了几名穿着声援彭帅上衣的观赛者。
 
-视频制作及上传：Cindy；
+巴夫鲁则在推特（Twitter）发布一张澳网女单决赛时，超远距空拍观众的直播画面。他写道：“当你必须避开群众里（声援）彭帅的衣服时，这就是会出现的典型群众画面，哈哈。”
 
-G-News发布：小满；
+前女双球后彭帅去年11月在网络上自陈被迫与中国前国务院副总理张高丽发生性关系，之后鲜少露面，各界开始担忧她的人身安全。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+彭帅12月表示，从未指控遭到任何人性侵，还说她11月初在社群媒体的发文被误解。张高丽则未就此事发表评论。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+今天在场外停下脚步与巴夫鲁交谈的人，也表达了对彭帅安危的关切。观众吉布生（Karen Gibson）表示：“不，我想如果她平安没事的话，我们早就可能在一些网球赛事中看见她。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+分析人士称，随着CCP深陷塔西陀陷阱，世界上越来越多的民众对CCP统治下的中国产生深切的不信任感，并且感受到CCP对内的强力且残暴的统治，这帮助了世界人民清醒的认识CCP，同时也需要警惕这种不信任感被转嫁到华人身上，造成可怕的排华浪潮。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+审核校对：Barry Jack
+上传排版：F
 
  
 

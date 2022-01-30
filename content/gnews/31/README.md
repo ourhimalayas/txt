@@ -2,36 +2,44 @@
 ---
 
 
-## IMF：中国经济的不平衡状况已经恶化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1932271/)
+## 加拿大首都渥太华万人游行抗议，总理特鲁多成缩头乌龟
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1932276/)
 
-整理：Sara9
-编辑：Little Lamp
+#### 撰稿：彩虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-2.png)图片来源：雅典娜设计组
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-7.jpg)图片来源：独立报
+据美联社报道，周六，在加拿大首都渥太华，上万人参加游行示威，抗议中共病毒（COVID-19）疫情限制。1月29日，《国会山报》和《新闻极限》对此做了相关报道。
 
+文章引述美联社报道，抗议者示威反对强制接种中共病毒疫苗、口罩和封锁。一些人手持标语，称强制接种中共病毒疫苗是法西斯主义，并谴责加拿大总理贾斯汀·特鲁多（Justin Trudeau）的政治举措。
 
-据大纪元报导，国际货币基金组织（IMF）在一份报告中说，中国经济的不平衡状况已经恶化。
+据该通讯社报道，一辆卡车上挂着一面美利坚联盟国国旗，而其他抗议者则举着印有纳粹标志的标牌和旗帜。
 
-在跟北京进行2021年第四条款磋商后，IMF在周二（1月25日）发布的年度审查报告《世界经济展望》中说，不太有利的比较基数、消费疲软、房地产投资下滑带来的阻力将成为2022年拖累中国经济增长的主要因素。
+此前，特鲁多妄称，本周末聚集在一起抗议该国的中共病毒疫情限制的人是“非常令人不安的少数加拿大人，他们对科学、对政府、对社会、对强制令和公共健康建议进行抨击。”
 
-虽然中共官方报告说，2021年经济增长8.1%，比2020年的2.3%有大幅提高，但经济增长很大程度上依赖于国家部门的投资和出口，而私人消费支出却出现急剧下降，且在2021年的最后几个月，中国经济增长明显放缓。
+加拿大约90%的跨境卡车司机和77%的人口已经注射了两针COVID疫苗。
 
-中共的COVID-19“清零”政策也抑制了消费者的消费信心，再加上一连串的打压行业政策措施——包括房地产投机以及教育培训业——也抑制了私营企业和消费者个体的情绪。
+主要的车队定于中午左右到达，但周五已经有车辆封锁了国会前的道路，周六早上有几十辆卡车聚集。联邦政府的一位消息人士说，预计总共会有大约2700辆卡车。
 
-IMF的报告说，房地产部门扰动已成为更大范围的中国经济减速的前奏，严格的清零政策导致频繁地实施人员流动限制措施，加之建筑业就业前景不断恶化，很可能使私人消费弱于预期。
+渥太华警察局长彼得·斯洛利 (Peter Sloly)周五说，这次示威将是“大规模的”。抗议组织者表示，集会将是和平的，他们发誓要留在渥太华，直到他们成功地推翻这些规定。
 
-IMF已经下调中国2022年的增速预测值至4.8%，低于之前预期的5.7%。
+2021年10月份选举前夕，特鲁多宣布对联邦工作人员实行强制接种中共病毒疫苗，然后在上个月，加拿大和美国都对跨境卡车司机实行了强制接种中共病毒疫苗。
 
-文章来源：[IMF下调中国经济增长前景 中共急安抚华尔街](https://www.epochtimes.com/gb/22/1/28/n13537112.htm)
+报道说，保守党领袖艾林·奥图尔 (Erin O’Toole)反对疫苗授权，并在周五与一些卡车司机举行会谈后对抗议活动表示支持。
 
-发布：tianzhihuan
+据《新闻极限》的最新报道，加拿大官员出于安全考虑，已经将总理特鲁多和他的家人从渥太华的家中转移到了一个秘密地点。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据加拿大广播公司报道，特鲁多的办公室不愿对其家人的位置发表评论。在加拿大国会警卫官警告说示威者可能会出现在官员家中后，总理被转移。
+
+特鲁多一家住在丽都小屋（Rideau Cottage），位于总督府的地产上，离大规模抗议活动的中心约2.5英里远。
+
+**新闻来源**
+
+[Thousands demonstrate against COVID restrictions in Canadian capital](https://thehill.com/blogs/blog-briefing-room/591959-thousands-demonstrate-against-covid-restrictions-in-canadian-capital)
+
+[Trucks Roll into Ottawa for Protest Against Canada’s Vaccine Mandates](https://www.newsmax.com/newsfront/ottowa-cananda-protest-vaccine/2022/01/29/id/1054583/)
+
+[Trudeau, Family Moved to Secret Location Over Anti-Vax Convoy](https://www.newsmax.com/newsfront/justin-trudeau-canada-truck-protests-covid/2022/01/29/id/1054609/)
 
  
 

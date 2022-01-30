@@ -2,40 +2,40 @@
 ---
 
 
-## 反对党敦促维州停止二维码登记，反对强制接种加强针
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1932296/)
+## 班农谈新中国联邦所取得的巨大胜利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932318/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+1月28日，郭文贵先先生盖特转发了班农先生接受英喜农场采访的视频。
 
-整理报道：小鱼儿
-编辑：文泓
+班农先生说，新中国联邦送达拜登总统和布林肯国务卿的信函，说明新中国联邦在美国开始撤离行动时，就已经知道了消息。显然新中国联邦是管理中国人民的另一个选择。这是新中国联邦迈出的具有重要意义的一步。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2477.png)
+新中国联邦在信中表示，支持美国政府的举动，更希望美国真正开始与中共彻底断绝外交关系，这将是宣布中共是跨国犯罪组织的第一步。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/FAI@U7LEMZ66ZXRZP.png)图片来源：ClarkCountyToday
+另外，在新中国联邦发出信函之后，郭文贵先生宣布了此事，说明新中国联邦得到了白宫某种程度的确认。
+
+另外，班农认为，新中国联邦、爆料革命、Gnews和GTV，应该持续揭露中共举办冬奥会的荒谬性，必须坚持更多更好地工作，就如同班农作战室和美国人民一起所做的事情一样，他希望看到更多的爆料者站出来跟西方联系，爆料北京尤其是奥运村附近的情况。
+
+班农强调说，他很喜欢新中国联邦给白宫的这封信，它特别指出中国共产党是非法组织，它不代表中国人民，而是一个跨国犯罪组织。
 
 
-当地时间1月30日，据澳广新闻报道，鉴于疫苗接种率的上升，维州反对党呼吁立即放宽新冠病毒的若干限制，取消目前实行的在家工作的建议，以及取消对所有接待和娱乐场所的人数限制。
 
-反对党领袖马修·盖伊说：“维多利亚的民众需要一种新的方法，尊重他们、支持他们，而不是责备他们要做出（所谓）正确的选择。”同时，反对党表示，反对维多利亚州的普通社区强制接种加强针。
+总编/编辑： 飞虹
 
-当前，维多利亚州和新南威尔士州政府都主张，更新“完全接种”的定义，即以第三针（加强剂）作为完全接种，但国家内阁在最近一次会议上没有同意这一改变。
+新闻链接：[郭文贵先生1月28日盖特](https://www.gettr.com/post/pr1kny4943)
 
-反对党还表示，对于一些“没有接触者追踪的低风险环境”，应取消二维码登记。但州长安德鲁斯说，虽然二维码登记系统“不是永远的”，但在可预见的未来，它将继续存在。他说：“这确实是一个工具，以确保只有那些被接种两剂疫苗的人，（甚至）我认为在某些时候，接种了三剂的人才能外出活动。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
 
-盖伊先生说：“强制接种加强针破坏了公共卫生政策（信用），并可能导致政府强制程度的变本加厉。我们会不会强制要求打第四针？第五针？第六针？”
+校正/发稿：浪迹天涯
 
-安德鲁斯表示，专家的建议就是是强制性的，也拒绝盖伊先生的主张。
-
-新闻链接：[Victoria records 20 COVID-19 deaths and 10,589 cases as hospitalisations fall to 889](https://www.abc.net.au/news/2022-01-30/victoria-covid-deaths-hospitalisations-cases-vaccinations/100790678?utm_campaign=abc_news_web&amp;utm_content=link&amp;utm_medium=content_shared&amp;utm_source=abc_news_web)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

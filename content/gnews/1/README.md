@@ -2,42 +2,37 @@
 ---
 
 
-## 中共虚假同意联合国人权专员访问新疆
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932563/)
+## 华盛顿州警官因疫苗要求而辞职 数月后死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932567/)
 
-撰稿：纽约香草山-侠肝义胆，Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-据外媒1月27日消息，中共已同意让联合国人权事务高级专员，在北京冬奥会后的今年上半年访问新疆。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2479.png)
-该媒体称，联合国人权组织指责中共在新疆地区对维吾尔人和其他少数民族实施了大规模拘留、酷刑和强迫劳动。从2018年9月以来，联合国人权组织高级专员一直就新疆问题和中共相关部门进行交涉，并要求到新疆独立调查。
+编译： Jenny Ball
 
-但中共一直否认，所有抓捕和虐待新疆少数民族的指控，并拒绝同意联合国人权组织到新疆进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2489.png)图片来源：thehill.com
 
-据有关消息人士称，中共这次是有条件的同意联合国人权高级专员访问新疆。中共要求联合国人权专员按照其安排“友好”的访问新疆，而不是去调查新疆种族灭绝真相。目前还没有联合国人权组织方面的回应消息。
+周五，一名华盛顿州州警因疫苗需求被迫辞职后几个月去世。
 
-对此，有关分析人士认为，这显然是中共在美国撤出大使馆及扺制冬奥会的巨大压力下，玩耍的一出虚假的政治游戏。妄想让联合国人权组织配合中共到新疆表演一场政治秀，减缓国际压力。
+“得知我们的朋友和前同事骑警罗伯特·拉梅（Robert LaMay）去世的消息，我深感悲痛，州警机构的祈祷和哀悼与他的家人和亲人在一起，”华盛顿州巡逻队队长约翰·巴蒂斯特在一份声明中说。“罗伯光荣地服务了二十多年，我们很失望地看到他在去年 10 月离开州巡逻队。他对这个州和州巡逻队的服务将被人们铭记和感激。”
 
-新闻来源：
+据《新闻周刊》报道，拉梅因反对州长杰伊·英斯利 (Jay Inslee) 的疫苗要求而辞职，该命令要求大多数医护人员和州政府雇员在 10 月 18 日之前接种冠状病毒疫苗，将考虑因医疗和宗教原因的豁免。
 
-[China Agrees to Xinjiang Visit by UN Rights Chief in Early 2022](https://www.newsmax.com/newsfront/china/2022/01/27/id/1054395/)
+他被迫退出警队的消息在网上疯传，他说“州长你舔我的屁股吧”，“因为我很脏而被你们要求离开”，新闻媒体指出。
 
-[China agrees to Xinjiang visit by U.N. rights chief in early 2022–South China Morning Post](https://www.asahi.com/ajw/articles/14534238)
+到 10 月 19 日，大约 3% 的员工已因不遵守疫苗规定而被解雇或辞职。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
+英斯利的新闻秘书迈克·福克在 10 月份的一份声明中告诉希尔：“接种疫苗的州雇员人数众多是个好消息。对工人、他们的同事和他们所服务的人都有好处。”
 
-总编：Irene木木/飞虹
+他补充说：“虽然我们很遗憾看到 3% 的入离开，我们希望他们一切顺利，但我们很高兴这个比例没有更高。”“如果他们在下个月内完全接种疫苗，有些人可以选择返回工作。华盛顿州政府是一个工作的好地方，他们的职位都需要被填补上。”
 
-编辑:飞虹
+**评论：华盛顿州强制mRNA病毒注射的各级官员，必将为警官罗伯特·拉梅的悲惨离世，和无数受到mRNA刺突蛋白毒害伤亡死亡的人们，受到历史的审判和惩罚！**
 
-校正/发稿：浪迹天涯
+素材链接：[thehill.com] [Washington state trooper dies after quitting job over vaccination requirement](https://thehill.com/homenews/state-watch/591933-washington-state-trooper-dies-after-quitting-job-over-vaccination)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,42 @@
 ---
 
 
-## 中超职业球员参加特奥会比赛获奖，从郝海东爆料谈中共的假丑恶
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1932526/)
+## 中共虚假同意联合国人权专员访问新疆
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932563/)
 
-作者：D.B\_Cooper
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-9.png)
-2022年1月29日早间《GTV新闻访谈》节目中，郝海东在谈到中共国体育界的虚假现象时，举了自己的亲生经历，当年天津天海足球俱乐部的球员张诚，跟他讲过自己曾经作为特殊足球队队员参加过特奥会，并且最终获得奖牌。
+撰稿：纽约香草山-侠肝义胆，Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+据外媒1月27日消息，中共已同意让联合国人权事务高级专员，在北京冬奥会后的今年上半年访问新疆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2479.png)
+该媒体称，联合国人权组织指责中共在新疆地区对维吾尔人和其他少数民族实施了大规模拘留、酷刑和强迫劳动。从2018年9月以来，联合国人权组织高级专员一直就新疆问题和中共相关部门进行交涉，并要求到新疆独立调查。
 
-张诚是中超赛场上的常客，属于职业球队主力球员水平。这样一个正常的甚至智商可能高于一般人的球员，如何能参加了特殊足球队的比赛且获得了奖牌？这就是中共体制下，一切虚假现象的缩影。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-5.png)
-中共统治下的体育比赛，获得成绩第一受益人一定是负责这个项目的领导，这些领导大部分都从未从事过体育项目，都是外行管内行。为了证明这种一切听党的，党能领导一切是成功的，他们根本无视规则和公平正义，靠使用各种欺骗和虚假的伎俩达到最终目的。
+但中共一直否认，所有抓捕和虐待新疆少数民族的指控，并拒绝同意联合国人权组织到新疆进行调查。
 
-张诚既是这种邪恶体制下的参与者，也是受害者。我想他的父母当初给他起名的时候，一定希望他做一个诚实守信的人。可是生在被中共统治的中共国，好人也会被这个虚假的环境影响。
+据有关消息人士称，中共这次是有条件的同意联合国人权高级专员访问新疆。中共要求联合国人权专员按照其安排“友好”的访问新疆，而不是去调查新疆种族灭绝真相。目前还没有联合国人权组织方面的回应消息。
 
-新中国联邦秉持为真不破，追求一人一票的民主，建立真正的法制体系。唤醒每一个中国人内心最初追求的那份纯真和善良，是每一个有良知的中国人追求的目标。让我们都能通过张诚身上发生的光怪陆离的事，看透中共虚假的本质，积极参与到新中国联邦的建设中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image3.png)
-审核校对：Barry Jack
-上传排版：F
+对此，有关分析人士认为，这显然是中共在美国撤出大使馆及扺制冬奥会的巨大压力下，玩耍的一出虚假的政治游戏。妄想让联合国人权组织配合中共到新疆表演一场政治秀，减缓国际压力。
 
+新闻来源：
+
+[China Agrees to Xinjiang Visit by UN Rights Chief in Early 2022](https://www.newsmax.com/newsfront/china/2022/01/27/id/1054395/)
+
+[China agrees to Xinjiang visit by U.N. rights chief in early 2022–South China Morning Post](https://www.asahi.com/ajw/articles/14534238)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
+
+总编：Irene木木/飞虹
+
+编辑:飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
