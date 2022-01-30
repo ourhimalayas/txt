@@ -2,41 +2,42 @@
 ---
 
 
-## 有声|赵立坚希望美国能慎重考虑撤大使馆问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934555/)
+## 警惕暴力，魁北克省媒体爆出一小部分抗议者袭击记者，尽管绝大多数自由车队卡车司机抗议者面带微笑
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1934622/)
 
-配音：香草山健身部 – 玫瑰园
+**编译及评论：16626**
 
+**一小部分人显得更加暴力**
 
+蒙特利尔日报, 2022 年 1 月 29 日，发表一篇题为《自由车队：抗议者袭击记者》的文章报道，尽管绝大多数抗议者继续面带微笑地在街上走动示威，但人群中的一小部分人显得更加暴力，并当场口头攻击记者。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/D41ED722-10BA-406D-ADB2-498F9DE758E8.png)**图片来源：AGENCE QMI, 蒙特利尔日报（2022 年 1 月 29 日）**
+随着渥太华市中心（示威）人群的增加，在场的一些“自由车队”示威者的语气也越来越高，尤其是对在场的媒体和记者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+TVA Nouvelles的记者，费利克斯·塞甘，Félix Séguin受到一名男子的骚扰，该男子想打断他的一次直播，随后其被他人进行干预制止。
 
+**这些（恐吓记者的）人在示威者中只占少数**
 
+另外，Gnews, 2022 年 1 月 29 日发表一篇题为《魁北克省媒体四位大腕主持人受到2022自由车队卡车司机的抗议，[https://gnews.org/zh-hans/1931397/](https://gnews.org/zh-hans/1931397/) 》的文章报道，蒙特利尔日报, 2022 年 1 月 29 日，发表一篇题为《卡车司机车队：抗议者恐吓记者》的文章。报道称，支持自由车队的抗议者恐吓了周五进行现场报道的记者。随着公民对卫生措施的愤懑情绪日益高涨，针对新闻工作者的难以接受（令人难堪）的评论，以及针对媒体工作者的人身威胁和侮辱越来越多。然而，这些（恐吓记者的）人在示威者中只占少数。
 
-当地时间1月26日，中共外交部记者会上有记者问，“对于美国政府授权撤离美国驻北京大使馆，中共政府有何看法？” 中共外交部发言人赵立坚避重就轻的回答，指在控制疫情方面，中共国是世界上最安全的国家，从中共国撤出，只会极大增加美方人员感染的风险。最后，赵立坚还语带希望的挽留美方，“中方已就此向美方表示严重关切和不满。希望美方认真对待中方立场和关切，慎重考虑所谓外交领事人员“授权撤离”问题。” 网友评论：按照国际惯例，中共应该考虑撤离中共驻华盛顿的大使馆，而不是恳请美方“慎重考虑”。
+**公民不服从是积极、非暴力地拒绝接受政府的命令**
 
-原文链接：[赵立坚希望美国能慎重考虑撤大使馆问题](https://gnews.org/zh-hans/1928934/)
+还有，Gnews, 2022 年 1 月 26 日发表一篇题为《魁北克省媒体刊登冠以极具政治敏感性标题：“公民不服从”的漫画，[https://gnews.org/zh-hans/1916348/](https://gnews.org/zh-hans/1916348/)  》的文章报道，漫画家，塞尔日•查普洛SERGE CHAPLEAU，发表了一张题为《公民不服从》的漫画图片。“公民不服从”译于法文“Désobéissance civile”，或英文“Civil disobedience”。什么是公民不服从？一篇题为《15 Examples of Civil Disobedience（15个公民不服从的例子），[https://rebellion.global/blog/2020/11/03/civil-disobedience-examples/](https://rebellion.global/blog/2020/11/03/civil-disobedience-examples/) 》的文章指出，公民不服从是积极、非暴力地拒绝接受政府的命令.。
 
-音频处理/发稿：Daxia
+自从疫情爆发到现在两年多的时间以来，反对卫生措施的示威活动不断发生。这些示威活动应当是合法地，积极地、非暴力地表示拒绝接受政府的命令的愿望。我们看到在自由车队的抗议示威活动中“一小部分人显得更加暴力”，最终渥太华会出现什么样的局面，让我们拭目以待。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+**参考资料：**
 
-**更多资讯，更多关注**
+[Convoi de la liberté: des manifestants s’en prennent aux journalistes](https://www.journaldemontreal.com/2022/01/29/convoi-de-la-liberte-des-manifestants-sen-prennent-aux-journalistes-1)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：LILA
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发布：歪桑
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+20220130
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

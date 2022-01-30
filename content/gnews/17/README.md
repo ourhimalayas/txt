@@ -2,20 +2,38 @@
 ---
 
 
-## 蓝枫法律财富管理专栏：加拿大公司的股东获得分红是否需要报个人所得稅
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1934283/)
+## 有声|班农谈新中国联邦所取得的巨大胜利
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934467/)
 
-#### 加拿大温哥华扬帆农场 蓝枫法律
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+1月28日，郭文贵先先生盖特转发了班农先生接受英喜农场采访的视频。
 
-有战友问：加拿大的有限公司的股东从公司获得利润分红，公司已经申报交过了所得税，还需要上交个人所得税吗？
+班农先生说，新中国联邦送达拜登总统和布林肯国务卿的信函，说明新中国联邦在美国开始撤离行动时，就已经知道了消息。显然新中国联邦是管理中国人民的另一个选择。这是新中国联邦迈出的具有重要意义的一步。
 
-是的，因为你拿到了分红，分红有分红的税率，它里面有个调节的平衡，在公司付了税到你个人和直接放到你一个人口袋里基本上是一样的，如果你这个公司只有你一个老板的话，到哪都需要报税，哪怕税率到零你也要报。
+新中国联邦在信中表示，支持美国政府的举动，更希望美国真正开始与中共彻底断绝外交关系，这将是宣布中共是跨国犯罪组织的第一步。
 
-直播视频链接：
+原文链接：[班农谈新中国联邦所取得的巨大胜利](https://gnews.org/zh-hans/1932318/)
 
-[第四十期 一 金融税务专题](https://gtv.org/video/id=61ec9c46533c672fca81492e)
+音频处理/发稿：Daxia
 
-编辑/发文：蓝枫法律栏目
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
