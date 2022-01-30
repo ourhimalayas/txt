@@ -2,39 +2,24 @@
 ---
 
 
-## 报道称多国测到奥密克戎变体，但网友表现冷静
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1931561/)
+## 中日财经爆┃软银集团副总裁兼首席运营官辞职
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931615/)
 
-**整理报道：小鱼儿
-编辑：Candy**
+撰稿：东京樱花团丨百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2471.png)[*图片来源*](https://res.cloudinary.com/allwork-space/images/v1643390656/wordpress/Marcelo-Claure-Will-Step-Down-As-COO-Of-SoftBank/Marcelo-Claure-Will-Step-Down-As-COO-Of-SoftBank.jpg)
+软银集团（SBG）28日宣布，负责监管海外业务的副总裁兼首席运营官（COO）马塞洛-克劳尔（Marcelo Claure）已离开公司，详细原因没有说明。据欧美媒体报道称，在报酬和权力问题上与董事长兼社长的孙正义存在分歧。
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+据西方媒体报道，克劳尔要求孙正义提高报酬，并使他领导的拉美投资基金独立，他们未能达成协议。2020年马塞洛-克劳尔的薪酬为17.95亿日元。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/恐吓.png)图片来源：香草山农场
+克劳尔来自南美洲的玻利维亚，2014年他在美国创办的一家手机销售公司出售给SBG后，成为该集团的一员。同年，他被任命为当时由SBG控制的Sprint（现在的T-Mobile US）的CEO，并改善了其业绩。因他的业务能力，自2018年以来一直担任SBG的副总裁兼首席运营官。
 
+包括克劳尔在内的三名SBG副总裁曾一度被视为孙正义的潜在继任者，其中一位曾担任高盛证券高管的佐护胜纪已于去年3月离职。随着克劳尔的离开，唯一剩下的副总裁是拉吉夫-米斯拉（Rajeev Misra），他负责公司的主要业务——新兴公司的投资基金。
 
-澳洲当地时间1月29日，据天空新闻（Skynews）报道，至少40个国家检测到奥密克戎的变体BA.2，包括澳大利亚在内，但专家们对大流行病的前景保持乐观。BA.1和BA.2被描述为 “同一家族的兄弟”，它们大部分的基因构成是相同的。
+信息来源：[**孫正義氏と報酬増額交渉、折り合い不調か…ソフトバンクＧのＣＯＯが退任**](https://news.yahoo.co.jp/articles/8a734e9c5e69bb4478cddd9bdeea846925303843#:~:text=%E3%83%88%E)
 
-第一次报道是在11月，Omicron的亚变体是欧洲和亚洲部分地区疫情的罪魁祸首，并在美国海岸被检测到。
-
-周五，传染病儿科医生罗伯特·博伊在接受天空新闻采访时说：BA.2病毒 “可能比BA.1病毒株更具有传播性。它与Omicron的关系非常密切，但目前还没有证据表明它的毒性更强，更令人讨厌。”。“我们希望它是相似的（BA.1和BA.2），而且我们认为这是真的。如果你感染过奥密克戎，你对它有交叉免疫力，因为它在基因上是如此密切相似。”同时，博伊博士说，他不相信该亚变体会在澳大利亚引发新冠病例的大幅增加。
-
-更多的民众正在醒来，以下是网友的评论。
-网友——玛丽：他们在这件事上大肆渲染，以至于失去了所有的可信度。够了，够了！
-网友——澳大利亚人的常识, 多么惊人的……，又是一个变种。这将使政府能够再控制我们的生活6个月。
-网友——霏霏：为什么要炒作和歇斯底里，并继续鼓噪恐惧？人们对这些废话感到非常疲惫。
-
-参考新闻：[Omicron spin-off variant continues to gain ground in UK, India and Denmark](https://www.skynews.com.au/australia-news/coronavirus/omicron-spinoff-variant-continues-to-gain-ground-in-uk-india-and-denmark/news-story/cda53294a0b2d50157e50bd9d00a695f)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

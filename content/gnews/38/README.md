@@ -2,81 +2,240 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在50.383 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1931728/)
+## 每日快报：川普称MAGA是历史上 &#8220;最伟大的政治运动&#8221;
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1931747/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+*作者：GSeries*
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
+# ***今日摘要***
 
-
-## 每日一问
-
-
-
-
-
-喜币价格突破50美元，下一个关口是100美元？
+1. **[川普：MAGA是历史上 “最伟大的政治运动”](https://www.newsmax.com/us/conroe-texas-save-america-rally/2022/01/29/id/1054616/)**
+2. **[前疾控中心主任：Fauci撰写的“COVID-19起源的论文”与科学背道而驰](https://www.zerohedge.com/covid-19/former-cdc-director-fauci-shaped-paper-origins-covid-19-antithetical-science)**
+3. **[吉姆-乔丹抨击参议院民主党人试图恢复媒体卡特尔法案的做法](https://www.breitbart.com/tech/2022/01/29/exclusive-jim-jordan-slams-senate-democrat-attempts-to-revive-media-cartel-act/)**
+4. **[中共国大使警告，美国加强与台湾的关系将 “很可能 “导致战争](https://www.zerohedge.com/geopolitical/chinese-ambassador-warns-increasing-us-ties-taiwan-will-most-likely-lead-war)**
+5. [**蓬佩奥：‘将病毒强加于世界’习近平想要‘主宰世界’**](https://gnews.org/zh-hans/1928353/)
 
 
+# 重要事件
+
+- **[01.30. NewsMAX：川普：MAGA是历史上 “最伟大的政治运动” Trump: MAGA Is ‘Greatest Political Movement’ in History](https://www.newsmax.com/us/conroe-texas-save-america-rally/2022/01/29/id/1054616/)**
+
+
+前总统唐纳德-川普周六回到德克萨斯州，发誓这个美国最大的共和党领导的州 “永远不会变成蓝色”。”我们的国家很愤怒，我们的国家希望再次受到尊重，”川普在德克萨斯州康罗的最新一次拯救美国集会上说。”你好，德克萨斯州，很高兴回到这个伟大的、美妙的、美丽的州，与成千上万的自豪的美国爱国者在一起，他们相信家庭和自由、上帝和国家。顺便说一句，石油和枪支–与民主党人不同。”
+
+川普为德克萨斯州历史上最大的政治集会人群欢呼，他抛出了写有 “拯救美国”的帽子，与写有 “让美国再次伟大 “的帽子的红色相同，这是他自2016年竞选以来一直标榜的MAGA竞选口号。
+
+“我们的MAGA运动是迄今为止我们国家历史上最伟大的政治运动，我一直在说，他们甚至从来没有–假新闻–他们甚至从来没有质疑过它，因为它从来没有类似的东西，”川普说。
+
+“而你知道它真正代表什么吗？热爱我们的国家，这就是它的全部。我们正在一起对抗我们的人民所见过的一些最险恶的势力、根深蒂固的利益和恶毒的对手–可以说我们的国家从来没有见过这样的事情。但是，无论这些腐败的激进分子有多大、多强大，你们永远不要忘记我们的国家不属于他们。我们的国家是属于你们的。这是你的家。这是你的遗产。而我们的美国自由是上帝赋予你们的权利。”
+
+- **[01.30. ZeroHedge：前疾控中心主任：Fauci撰写的关于“COVID-19起源的论文 “与科学背道而驰 Former CDC Director: Fauci-Shaped Paper On Origins Of COVID-19 ‘Antithetical To Science’](https://www.zerohedge.com/covid-19/former-cdc-director-fauci-shaped-paper-origins-covid-19-antithetical-science)**
+
+
+安东尼-福奇博士悄悄形成的一篇论文中提出，引起COVID-19的病毒肯定不是来自实验室，这种说法被其他科学家引用，他们称实验室的想法是 “阴谋论”，这种说法 “与科学背道而驰”，一位前疾病控制和预防中心主任说。
+
+“科学的目的是对不同的假说进行严格的辩论“。在我的生活中，我从来没有真正经历过科学家之间的私人电话，他们决定集体采取什么立场，然后看到这个立场发表在像《柳叶刀》这样的科学杂志上，说像我这样有不同科学假说的人，在某种程度上必须被打倒，被视为阴谋家，这真的与科学背道而驰，”该机构负责人罗伯特-雷德菲尔德博士在2021年1月20日前在福克斯新闻上说。
+
+最近公开的电子邮件显示，美国国家过敏和传染病研究所（NIAID）所长Fauci在塑造《自然》杂志2020年初发表的一篇论文中发挥了关键作用。这些作者中的大多数人与Fauci反复通信，在论文发表前不久加入了他的电话会议，并在此后从Fauci的机构获得了数百万美元，他们声称他们的分析 “清楚地表明SARS-CoV-2不是一个实验室构造或有目的地操纵的病毒。”
+
+《自然》杂志的文章是生态健康联盟创始人Peter Daszak和另一组科学家在后来发表在《柳叶刀》上的文章中引用的文章之一。达斯扎克写道：”我们站在一起强烈谴责暗示COVID-19没有自然来源的阴谋论，”他的小组从福奇的机构向中国武汉的科学家和其他作者输送资金。许多专家后来承认没有明确的证据表明CCP病毒有自然来源，一些人说大部分证据表明它来自武汉的那套实验室。
+
+- **[01.29. Breitbart：独家：吉姆-乔丹抨击参议院民主党人试图恢复媒体卡特尔法案的做法 EXCLUSIVE: Jim Jordan Slams Senate Democrat Attempts to Revive Media Cartel Act](https://www.breitbart.com/tech/2022/01/29/exclusive-jim-jordan-slams-senate-democrat-attempts-to-revive-media-cartel-act/)**
+
+
+众议院司法委员会排名第一的共和党成员吉姆-乔丹（Jim Jordan）今天出现在SiriusXM的Breitbart News Saturday与Matt Boyle的节目中。乔丹议员抨击了参议院民主党人试图恢复《新闻业竞争和保护法》的做法，该法案去年未能在他的委员会获得通过。
+
+博伊尔说：”本周让我眼前一亮的是，参议院司法委员会反垄断小组委员会宣布，他们将就这项名为《新闻业竞争和保护法》的法案举行听证会。“
+
+“你在众议院领导了反对这个法案的斗争，它没有在众议院通过，甚至没有在去年通过它的委员会。他们试图恢复它……这个法案将创建一个反托拉斯豁免，就像美国职业棒球大联盟有一个反托拉斯豁免一样，这样大媒体公司就可以与大科技公司进行集体谈判。”
+
+“这不是关于竞争和维护竞争，”乔丹议员说，”这是在创造一个卡特尔，这是在报纸业务中创造一个欧佩克。”
+
+“你认为让《纽约时报》和《华盛顿邮报》勾结起来会真正帮助保守派，会真正帮助第一修正案，帮助言论自由，阻止审查制度吗？”
+
+“回到2020年总统选举前的一个月，看看大媒体是如何与大科技公司勾结，不让美国人民知道头号新闻，也就是关于亨特-拜登和他与外国的关系，以及它与拜登总统和大人物以及其他人的关系，”乔丹继续说。
+
+这位俄亥俄州共和党人接着讨论了众议院司法委员会对该院版本的《联合公报》举行的听证会，其中独立记者对该立法表示关切。
+
+- **[01.30. ZeroHedge：中共国大使警告，美国加强与台湾的关系将 “很可能 “导致战争 Chinese Ambassador Warns Increasing US Ties With Taiwan Will “Most Likely” Lead To War](https://www.zerohedge.com/geopolitical/chinese-ambassador-warns-increasing-us-ties-taiwan-will-most-likely-lead-war)**
+
+
+中共驻美国大使周五警告说，华盛顿对台湾越来越多的支持可能最终导致美国和中国之间的战争。
+
+秦刚称台湾问题是 “中国和美国之间最大的火药桶”。他说，台湾和中国大陆的人民是 “同胞”，不想打仗，但由于台湾 “正在努力走向独立……中国不会承诺放弃非和平的统一手段，因为这是一种威慑。”
+
+从川普政府时期开始，美国一直在采取措施，增加与台湾的军事和外交关系。2020年8月，特朗普派时任卫生部长阿扎尔访问台湾，使他成为自1979年华盛顿与台北断绝外交关系以来访问该岛的最高级别美国官员。
+
+秦刚说，美国正在为台湾的独立力量 “壮胆”。”他在接受美国国家公共广播电台采访时说：”如果台湾当局在美国的鼓动下，继续走独立的道路，很可能会使中国和美国这两个大国卷入军事冲突。
+
+- [**01.30. GNEWS：蓬佩奥：‘将病毒强加于世界’习近平想要‘主宰世界’**](https://gnews.org/zh-hans/1928353/)
+
+
+迈克·蓬佩奥(Mike Pompeo)说，中国领导人习近平想要“中国共产党霸权主义主宰世界”，他警告说，中国共产党的崛起可能会破坏自二战结束以来建立的国际秩序。“这不是中国的坦克师出动台湾的问题”，蓬佩奥说，“这是关于其在全世界范围内增加政治权力和影响力的问题。
+
+蓬佩奥曾担任中央情报局局长，后来在唐纳德·川普(Donald Trump)总统政府担任国务卿，他在2022年阿格斯美洲原油峰会上发表了上述言论。他说，他在担任中央情报局局长期间，正值美国不得不把注意力从恐怖主义转向其他威胁，其中首要的威胁就是中共。他补充说，有关他眼中的中国共产党的野心，一场“全球觉醒” 正在发生。
+
+蓬佩奥说：“这大部分要归功于习近平。天那，他把病毒强加给世界，并拒绝让任何人去弄清楚它的来源。”
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/04/s48.jpg)
+# 更多要闻链接
+
+1. [满眼都是敌情 北京设法转移注意力](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220129-%E6%BB%A1%E7%9C%BC%E9%83%BD%E6%98%AF%E6%95%8C%E6%83%85-%E5%8C%97%E4%BA%AC%E8%AE%BE%E6%B3%95%E8%BD%AC%E7%A7%BB%E6%B3%A8%E6%84%8F%E5%8A%9B)
+2. [“中国与新冠”：冬奥新闻工作成为艰巨任务](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E4%B8%8E%E6%96%B0%E5%86%A0%E5%86%AC%E5%A5%A5%E6%96%B0%E9%97%BB%E5%B7%A5%E4%BD%9C%E6%88%90%E4%B8%BA%E8%89%B0%E5%B7%A8%E4%BB%BB%E5%8A%A1/a-60597677)
+3. [北京冬奥前安保紧绷 疫情与维稳双重挑战](https://www.voachinese.com/a/beijing-escalates-control-measures-over-virus-and-dissidents-as-winter-games-approaches-20220129/6417815.html)
+4. [北京为冬奥向华盛顿开呛，2022美中关系料难有缓](https://www.voachinese.com/a/us-china-row-over-beijing-olympics-20220127/6416298.html)
+5. [朝鲜疑似进行了远程弹道导弹试射](https://www.voachinese.com/a/n-korea-conducts-possible-long-range-missile-test-20220129/6418613.html)
+6. [中共暗地里要求返乡民众必须做核酸检测](https://gnews.org/zh-hans/1927303/)
+
+
+# 每日推特文摘
 
 
 
-## 喜马拉雅交易所要闻
+谁是杨狈狈？ Who is Isobel Yeung?
 
 
 
 
 
-- Himalaya Exchange网站于29日更新后，HPay应用程序可在AppleStore和PlayStore下载。
-- 喜交所网站行情显示，喜币（HCN）价格目前在50.383 HDO，24H最高价格为50.384 HDO，24H最低价格为48.300 HDO，24H成交量约为123184.922HCN。
+> Who is Isobel Yeung? [pic.twitter.com/bsMFfjIlaT](https://t.co/bsMFfjIlaT)
+> — Marvin (@MarvinCA1013) [January 28, 2022](https://twitter.com/MarvinCA1013/status/1487163348827389959?ref_src=twsrc%5Etfw)
 
 
 
 
 
 
-## 新闻动态
+
+CCP在美国撤离大使馆实施前疯狂洗地🤣🤣🤣
+案板上的肉被暂时放回冰箱就这么开心？肉放久了，不新鲜，调理就不会再是整体清蒸，而是切块切丝加足调料大火烹制
+澎湃新闻路子野，战友的大直播截屏也敢用？
 
 
 
 
 
-1. U.today报道，据Coinshares报告显示，比特币挖矿的碳排放量比航空业低50倍、比空调业低25倍。即时是滚筒式干衣机，其碳排放量也比比特币挖矿高12%。
-2. U.today报道，彭博情报（Bloomberg Intelligence）的分析师列出了2022年值得关注的50家公司股票，其中包括Robinhood、Roblox、SoFi。值得注意的是，腾讯（Tencent）也位列其中，不仅因为其进军元宇宙领域的雄心，还因为它是Roblox和Epic Games的主要投资者之一。
-3. Coinyuppie报道，高盛在一份报告中说，加密货币市场最近的回调表明，其融入主流市场的趋势可能是一把”双刃剑”。自11月以来，加密货币的总市值已经下降了约40%。这轮下跌主要是由宏观经济因素驱动的，主流投资机构的采用可以提高其估值，但同时也在提升其与传统金融市场变量的相关性，这近一步降低了持有数字资产的多样化优势。高盛还指出，代币价格的急剧下跌导致清算和去中心化金融（DeFi）平台上的借款下降，这与传统金融体系非常相似。但元宇宙领域的发展，可能会随着时间的推移为某些数字资产提供”长期的推动力”，但它们不会”免受宏观经济力量的影响”，如中央银行的货币紧缩。
-4. News.Bitcoin报道，加密货币和区块链统计和分析平台Nansen发布了一份关于2021年去中心化金融(defi)增长的报告。该文件强调了defi如何设法保持增长，为新的参与者链打开了该领域。NFT也有一个值得注意的一年，许多新钱包因此经历了增长。关于defi，Nansen估计与2020年相比，TVL市场的增长率为1,120%。虽然以太坊在今年结束时在defi领域占据了70%的主导地位，但加密货币无法扩展为其他解决方案的出现打开了大门。BSC和Polygon是其中两条链，它们在峰值时分别超过了以太坊上的交易数量1,345%和760%。同样，solana和avalanche在其网络上的活动也达到了显着水平。
-5. Cryptonews报道，Ertha Metaverse已成为2022年最热门的Play-to-Earn游戏之一。根据CryptoRank的数据，Ertha在30天内的“搜索次数最多的Play-to-Earn代币”列表中排名第二。该项目产生了令人难以置信的52,290次页面访问量，比前30天增长了58.2%，目前拥有2100万美元的市值。Ertha的NFT的销量大大超出预期。他们最近超过了20,000个里程碑，并且没有放缓的迹象。
-6. 官方消息，Mask Network宣布与创意市场Ideamarket建立合作伙伴关系，Mask Network能够参与Ideamarket的空投计划，Ideamarket将于2022年2月2日推出其代币IMO。Ideamarket为250名Mask Network活跃成员预留了250,000枚IMO代币，每个用户将获得1,000没IMO。据悉，Ideamarket将于2月2日推出IMO代币，5%空投给早期用户，10%分配给早期投资者，18%分配给团队，10%分配给战略合作伙伴，15%用于生态和资金库，32%为社区奖励。
-7. 1月30日消息，OpenSea认证为Justin Bieber NFT的地址以500ETH（约130万美元）买入无聊猿BAYC#3001。
-8. 路透社报道，来自宝莱坞和板球界的印度名人越来越多地通过不可替代的代币(NFT)推出数字纪念品。Amitabh Bachchan和Salman Khan等宝莱坞巨星计划很快推出NFT。虽然Bachchan的NFT将包括他的电影的亲笔签名海报，但Khan通过告诉他的4300万粉丝计划推出NFT，在他的Twitter帐户上引起了兴奋。宝莱坞资产的NFT市场Bollycoin的Ayaan Agnihotri表示：在本月推出的几天内，他的平台售出了2000万个可用的所谓“Bolly Coins”中的800万个，这些加密代币在推出时可用于购买NFT。一枚BollyCoin价值10美分。
-9. Decrypt报道，LooksRare在以太坊NFT清洗交易中产生了80亿美元收入。根据分析公司CryptoSlam的说法，新的NFT市场LooksRare充斥着洗牌交易，因为用户试图玩弄交易奖励模式。CryptoSlam估计LooksRare已经产生了价值超过83亿美元的洗牌交易，占其迄今为止销售额的绝大部分。根据DuneAnalytics收集的公共区块链数据，LooksRare自推出以来已积累了超过95亿美元的以太坊总交易量。如果这两个来源的数据都是准确的，那么迄今为止LooksRare的交易量中约有87%符合CryptoSlam的清洗交易标准。
-10. 加密质押协议pSTAKE在Coin List的公开代币销售中筹集了1000万美元。目前，pSTAKE支持Cosmos($ATOM)和Persistence($XPRT)网络的原生代币。据悉，pSTAKE是一种为质押资产解锁流动性的协议。pSTAKE是Cosmos网络的首批流动质押协议之一。它此前筹集了1000万美元的战略融资。
-11. Ambcrypto报道，根据彭博社的一份报告，高盛没有计划发行内部数字代币。高盛的代表Maeve DuVally认为，我们没有立即制造高盛硬币的意图。我们继续看到与私人机构密切合作的价值，这些机构希望创造一种无处不在的稳定币，满足法律和监管要求，并具有透明的治理。该银行投资了按市值计算最大的稳定币之一USD Coin的支持者Circle Internet Financial Ltd.。此外，在2020年，高盛数字资产全球负责人Matthew McDermott也表达了类似的兴趣。该银行正在考虑自己的加密货币，可能是稳定币。他还暗示可能与社交媒体巨头Facebook（现称为Meta）或银行业竞争对手摩根大通合作。
-12. Cryptoslate报道，为《纽约时报》撰稿的经济学家保罗克鲁格曼将其与加密货币和2008年的次贷危机相提并论。在他严厉的观点中，克鲁格曼提到了总市值从2021年11月的高点下跌了近50%，他说，受害最大的是不知情的参与者。从那以后，他将次贷危机比作数字货币，同时抓住机会重新讨论有争议的论点，包括加密在洗钱和逃税中的作用。克鲁格曼的主要观点围绕着“被排除在外的群体”陷入危险的财务状况，他们既没有准备好也没有财务安全可以承受。
-13. CryptoGlobe报道，几位专家警告投资者，加密市场的高波动性，包括“长期低迷”应该被长期投资者视为“正常”的市场行为。根据CNBC的“Make It”的报道，在BTC的价格在本周早些时候跌破33,000美元之后，与它交谈的几位专家表示，这种波动是正常的。比特币在2021年11月达到约69,000美元的历史新高，现在已下跌约44%。Onramp Invest首席执行官Tyrone Ross解释说，波动性对于加密资产市场来说并不罕见，像这样的长期低迷对于加密货币来说是正常的。
-14. News.Bitcoin报道，据总部位于阿拉伯联合酋长国的沙迦银行（Bank of Sharjah）的首席执行官Varouj Nerguizian表示，区块链和加密货币不会消失，但很可能成为银行系统的重要组成部分。然而，Nerguizian表示，银行只有在部署非公共或企业区块链时才能充分受益于技术。在接受采访时，首席执行官还解释了区块链如何可能成为试图适应大流行后形势的金融机构的一把双刃剑。他说：区块链是一项革命性的技术，整个银行业尚未完全理解。虽然它的应用在某些领域很容易掌握，例如了解您的客户[KYC]或房地产业权契据验证，但据称区块链允许各方在不需要中介的情况下相互交易。这引起了希望监控该活动的当局的担忧。
-15. Decrypt报道，SBF确信FTX在体育营销方面的巨大推动是成功的，同时SBF承认他还没有数据来证明营销直接导致了客户获取。据悉，2021年，加密交易所选择了一个新的营销战场：职业体育。Binance、Coinbase、Crypto.com和FTX都签署了多项体育赞助协议。在八个月的时间里，FTX与迈阿密热火队（体育场冠名权）、美国职业棒球大联盟（官方加密货币交易所，包括每个裁判制服上的FTX标志补丁）、金州勇士队（国际权利）、华盛顿奇才队和首都队（官方加密货币交易所和NFT合作伙伴），以及大型电子竞技团队TSM（冠名权）。
-16. 1月30日消息，据DefiLlama数据显示，目前Avalanche链上DeFi协议总锁仓量为86.3亿美元，24小时减少9.72%。锁仓资产排名前五分别为AAVE（23.5亿美元）、Trader Joe（12.2亿美元）、Benqi（10.2亿美元）、Curve（9.76亿美元）、multichan（8.12亿美元）。
-17. 1月30日消息，据DefiLlama数据显示，当前Terra链上DeFi锁仓量为134.1亿美元，在公链中仍排名第2位。目前，锁仓量排名前5的公链分别为以太坊（1123.8亿美元）、Terra（134.1亿美元）、BSC（112.6亿美元）、Fantom（113.2亿美元）、Avalanche（85.4亿美元）。
-18. Blockcrypto报道，包括杰富瑞和瑞士信贷在内的许多银行都发布了招聘新加密研究职位的招聘广告。几家传统银行正在寻求在其研究部门中填补与加密相关的角色，这是数字资产生态系统正在与更广泛的市场完全整合的最新迹象。投资银行长期以来一直对数字资产进行研究，但随着在该领域运营的大型上市公司数量的增长以及加密市场流入传统金融，这些公司现在希望更加关注。去年年底，摩根士丹利宣布Sheena Shah将领导一个涵盖加密生态系统的新团队，而美国银行在10月宣布了自己的加密覆盖部门。除了涵盖加密公司的业务外，分析师还解开可能影响代币价格波动的宏观主题、区块链领域的新技术发展以及其他主题。
-19. Beincrypto报道，马萨诸塞州民主党参议员伊丽莎白•沃伦（Elizabeth Warren）致函六家比特币矿业公司，要求他们披露有关能源使用和来源的信息。致函信件由八名参议员在1月20日的国会听证会之后签署。这六家比特币矿业公司分别是Riot Blockchain、Marathon Digital Holdings、Stronghold Digital Mining、Bitdeer、Bitfury Group和Bit Digital。
-20. 财联社报道，欧盟即将出台芯片法案，其主要目标之一是，吸引“大型芯片项目”投资。根据该计划，欧盟希望将该地区的芯片产能从目前占全球的10%，提高到2030年的20%。知情人士还称，欧盟还在考虑从法律上要求赢得国家援助的公司须回应有关库存、交货时间表和产能的信息请求。
-21. News.Bitcoin报道，俄罗斯政府多个部委、监管机构和执法机构已经制定了加密货币路线图，该文件旨在在今年年底前规范俄罗斯的加密货币市场。该计划由俄罗斯财政部、经济发展部和数字发展部、该国金融监管机构和税收服务机构以及俄罗斯中央银行(CBR)的代表起草。总检察长办公室和联邦安全局（FSB）也参与了这一进程。路线图上列出的目标得到了所有参与者的支持，除了CBR。根据路线图，预计财政部将在5月之前建立对点对点平台的组织者、运营者和客户的控制体系。金融当局还将为加密服务提供商制定监管制度，确定市场参与者的法律地位并任命监管机构。到11月，与虚拟资产有关的FATF标准应转入俄罗斯监管框架。到12月，必须完成有关促进俄罗斯联邦数字货币流通的组织的注册和报告机制。下一步将对涉及加密货币的犯罪引入法律责任，包括逃避加密交易数据申报的行政或刑事责任。政府还希望建立一种机制来验证所提交的数字资产所有权信息的准确性。报告义务将被纳入新法律。
-22. 财联社报道，财政部发布《关于开展银行函证试点工作的通知》，财政部、人民银行、国资委、银保监会、证监会联合在部分上市公司、会计师事务所和银行业金融机构开展银行函证试点工作。《通知》指出，试点会计师事务所、试点银行应分别整合内部函证申请和回函业务，集中开展银行函证工作，保障函证质量，防范舞弊风险。利用区块链等现代信息技术，推进函证数字化转型工作，加快银行函证数字平台建设，提升函证工作效率效果。
-23. CoinDesk报道，美国联邦政府可能再次考虑一项有争议的拟议规则，对未托管或自我托管的加密货币钱包实施KYC。该规则由美国洗钱监管机构金融犯罪执法网络(FinCEN)于2020年底首次提出。如果颁布，加密货币交易所将需要收集任何希望将加密货币转移到自己私人钱包的用户的姓名和家庭地址以及其他个人详细信息。美国财政部长Janet Yellen监督的财政部透露，该规则可能会在将于1月31日在联邦公报上正式发布的半年度法规议程中予以考虑。议程概述了财政部的优先事项，但这并不表示这些规则一定会实施，或者它们将按原样实施。相反，议程是一种工具，表明财政部将在未来六个月内开展的工作。
-24. 瑞典今日工业报报道，瑞典金融监管局局长兼欧洲证券和市场管理局副主席Erik Thedéen在接受采访时表示，比特币开采已经成为瑞典的一个“全国性问题”，加密货币对实现《巴黎协定》中减少气候变化的目标构成风险，他希望瑞典对耗费能源的加密货币开采实施禁令，并称欧盟也应考虑禁止能源密集型的所谓“工作量证明”(proof of w ork)加密货币挖掘方法，而应鼓励该行业转向能源密集度较低的“权益证明”(proof of stake)模式，以减少加密货币开采的能源使用。英国《金融时报》指出，以交易量衡量的两种最大加密货币比特币和以太币的开采都依赖于“工作量证明”模型，该模型要求区块链的所有参与者验证交易。矿工们通过使用大型数据中心解决复杂的“谜题”来获得新铸造的“硬币”作为奖励。这比“权益证明”模型需要耗费更多的能量，后者验证交易的参与者数量要少得多。Thedéen称，解决办法是禁止工作量证明型开采模式，而权益证明型模式能耗明显较低。
+> CCP在美國撤離大使館實施前瘋狂洗地🤣🤣🤣
+> 案板上的肉被暫時放回冰箱就這麼開心？肉放久了，不新鮮，調理就不會再是整體清蒸，而是切塊切絲加足調料大火烹制
+> 澎湃新聞路子野，戰友的大直播截屏也敢用[@caogenxiaogex](https://twitter.com/caogenxiaogex?ref_src=twsrc%5Etfw) [https://t.co/Q1lwET0rwV](https://t.co/Q1lwET0rwV) [pic.twitter.com/jQe5jhlWfs](https://t.co/jQe5jhlWfs)
+> — Andy5 (@andy5\_123) [January 29, 2022](https://twitter.com/andy5_123/status/1487297042129252352?ref_src=twsrc%5Etfw)
 
 
 
 
 
-*编辑：aQ
-发布：文顾*
+
+
+“我们不会再接受它了”！
+今天渥太华的大规模抗议， 反对医疗暴政， Vaxx 授权和 Vaxx 通行证， 从议会山蔓延到周围的街道
+加拿大人此举改变了我以前对他们的印象！加油💪💪💪
+
+
+
+
+
+> “我们不会再接受它了”！
+> 今天渥太华的大规模抗议， 反对医疗暴政， Vaxx 授权和 Vaxx 通行证， 从议会山蔓延到周围的街道
+> 加拿大人此举改变了我以前对他们的印象！加油💪💪💪 [pic.twitter.com/kWD42EX3qj](https://t.co/kWD42EX3qj)
+> — The last straw (@starstuded11) [January 30, 2022](https://twitter.com/starstuded11/status/1487583244824498177?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+加拿大卡车司机是英雄!
+我们爱你们!
+我们的心都被你们的勇敢所感动❤️❤️👍👍
+
+Canadian Truckers are heroes!
+We love you guys!
+Our heart are touched by your brave❤️❤️❤️👍👍👍
+
+
+
+
+
+> Canadian Truckers are heroes!
+> We love you guys! 
+> Our heart are touched by your brave❤️❤️❤️👍👍👍 [pic.twitter.com/nRbmFCL9Ie](https://t.co/nRbmFCL9Ie)
+> — 安平 Emma(新生号） (@PingRyan2016) [January 30, 2022](https://twitter.com/PingRyan2016/status/1487636483154628609?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+川普在 #拯救美国 的集会上。”今年11月，你们必须把这些疯狂的疯子赶下台。”
+
+Trump at #SaveAmerica rally: “This November you have to throw these raving lunatics the hell out of power.”
+
+
+
+
+
+> Trump at [#SaveAmerica](https://twitter.com/hashtag/SaveAmerica?src=hash&amp;ref_src=twsrc%5Etfw) rally: "This November you have to throw these raving lunatics the hell out of power."[#TrumpRally](https://twitter.com/hashtag/TrumpRally?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/566cjfyCJt](https://t.co/566cjfyCJt)
+> — Newsmax (@newsmax) [January 30, 2022](https://twitter.com/newsmax/status/1487636690973827074?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Hpay 还有几十个小时就要上线啦🎉🎊这是给所有正义勇敢善良的新联邦人最完美的礼物🎁
+2022新年我们是全球最幸福快乐的人
+没有之一😎
+
+
+
+
+
+> Hpay 还有几十个小时就要上线啦🎉🎊这是给所有正义勇敢善良的新联邦人最完美的礼物🎁
+> 2022新年我们是全球最幸福快乐的人
+> 没有之一😎 [pic.twitter.com/kW8TGpJY2q](https://t.co/kW8TGpJY2q)
+> — 草根小哥（新号） (@caogenxiaogex) [January 30, 2022](https://twitter.com/caogenxiaogex/status/1487640388043419649?ref_src=twsrc%5Etfw)
+
+
+
+
 
 
  
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*编辑：GSeries
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
