@@ -2,29 +2,32 @@
 ---
 
 
-## 中超球员曾假扮残障人士在特奥会夺冠
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932977/)
+## 中共跪求美国不要离开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932978/)
 
 作者：纽约香草山农场 文真
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月29日，郝海东先生在新中国联邦访谈节目中，以亲身经历爆料中共假丑恶，讲述中共如何在体育比赛中弄虚作假。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.52.42-PM.png)
-据称，前中超主力球员张诚，曾向海东先生炫耀自己获得“冠军”的事迹，但事实却是，他在中共的指使下，假扮成智力残障人士，参加特奥会足球比赛，取得了冠军。
+1月30日，郭文贵先生在盖特视频中连续爆料美国撤离驻北京大使馆后，中共对此事的反应。
+
+据内部战友披露，虽然中共恳求美国不要撤走全部驻北京人员，但美国仍派了多架军事医疗飞机已抵达北京首都机场。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.01.17-PM-1.png)
+
+郭先生爆料，中共昨天和今天无数次地骚扰美国，开出各种优厚条件试图挽留，比如，恢复两国领导人最重要个人关系，落实拜登和习近平的电话视频会议，以及和美国共同面对世界难题、为世界负责。
+
+郭先生评价道，中共对内，在中国人面前是披着羊皮的狼；而在西方面前，却是披着狼皮的羊。中共如此流氓的做法，遭到美国内部人士强烈鄙视。中共的流氓外交和丑陋的国际形象，在国际上丢尽中国人的脸。
 
 参考链接：
 
-1. [郝海东先生的详细讲述@1:32:25~1:35:15。](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
-2. [听郝董爆料中共这帮烂人的假丑陋。。。](https://gettr.com/comment/ckdf841194)
-3. [图文：特奥会足球比赛开赛 张诚在比赛中](http://2008.sohu.com/20071006/n252491322.shtml)
-4. [当年代表共产党参加特奥会的张诚…](https://gettr.com/comment/ckd14o6c48)
+1. [1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员…](https://gettr.com/post/pr64pxa8df)
+2. [1月29号：尊敬的战友们好！@1‘55”](https://gettr.com/post/pr8w9h1519)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-编辑：Jack Li文阳
-总编：Ivy001
+总编：文特
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -35,6 +38,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

@@ -2,27 +2,24 @@
 ---
 
 
-## NewSGman┃疫情严重 美国NBC决定不派播报团队到北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933542/)
+## 网友点赞纽约护士出售假中共疫苗卡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1933596/)
 
-撰稿：东京樱花团/NewSGman
+**采集****/****翻译：意翎 ****    **
 
-因为中共疫情加剧，近日，美国国家广播公司（NBC）宣布不派遣体育报道团队参加 2022北京冬奥会。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2498.png)
+据《美国真相》（NBC4NY）报道，纽约两名护士因出售假中共疫苗接种卡而被捕，49岁的朱莉·德沃诺（Julie Devuono）和44岁的玛丽莎·乌拉罗（Marissa Urraro）是长岛的两名护士，她们在2021年11月期间伪造了疫苗卡，涉案金额150万美元，假疫苗卡成人售价220至240美元，儿童85美元。
 
-美国国家广播公司（NBC）做出此决定是因不能容忍中共对待新冠病毒检测阳性所持的严厉政策。NBC担心旗下职员在中国采检新冠病毒若呈阳性时得面临冗长的隔离检疫 。
+据检察官称，这两名在野孩子儿科医疗保健中心的工作人员伪造了疫苗接种卡，出售后将这些信息添加到纽约州免疫信息系统（NYSIS）中。
 
-NBC奥运会制作团队负责人Molly Solomon表示，新冠病毒的情况在不断变化中国坚持‘零容忍’的政策，这使得NBC报道工作变得格外复杂。
+萨福克郡地方检查官雷蒙德·蒂尔尼（Raymond Tierney）说：“我希望这能向那些想利用这个系统牟利的人传递一个信息：他们会被绳之以法。”
 
-另外据美国媒体报道，因中共侵犯人权问题美国政府官员代表不会出席北京冬奥会。
+然而，网友却为这个造假行为点赞，被置顶最多的评论说：“很抱歉你们被捕了。再过几年，你们的高中母校会以你们的名字命名。”
 
-信息来源：
+还有网友说，“我喜欢她们对儿童做出的善举。”
 
-[https://gettr.com/post/ppvbgra60b](https://gettr.com/post/ppvbgra60b)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**[原文链接](https://www.zerohedge.com/covid-19/ny-nurses-arrested-after-selling-15-million-fake-vaccine-cards)**
 
  
 

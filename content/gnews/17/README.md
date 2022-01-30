@@ -2,16 +2,22 @@
 ---
 
 
-## 樱花头条┃冬奥运动员宣誓视频被爆 “报效领袖豁出去”誓词引哗然
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933401/)
+## NewSGman┃日美首次专题磋商人权问题 或为联合制裁中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933439/)
 
-撰稿：东京樱花团/樱花传媒
+撰稿：东京樱花团/NewSGman
 
-![](https://lh6.googleusercontent.com/iSik_KRs-0Uak8FErZRBAoLURj_-N7e8gF1AZsZW1gXaNJU0fLptfpfP6liAQGR0DVQhQyo-bB_X8ENlpC5EiMYcdDM7hdcyuojHLcyIUttClV1L5jv_fGL_RgP8X8QG6PWI44rw)
+负责国际人权事务的日本首相助理中谷元在1月26日网上会见了负责平民保护、[民主](https://gettr.com/hashtag/%23%E6%B0%91%E4%B8%BB)和[人权](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83) 的美国副国务卿泽亚。双方同意促进各相关组织之间和层面的意见交流，以深化日美两国在人权领域的合作。
 
-近日，北京冬奧会進入倒计时，中国体育代表团日前在天安門广场宣誓出征，喊出奇葩誓言“报答领袖豁出去”，引发议论热议。
+中谷元先生对美国保护自由民主等，普世价值的决心和举措表示敬意。泽亚也是西藏问题的特别协调员，据信双方已经讨论过中国的人权问题。
 
-盖特链接：[https://gettr.com/post/ppvbgra60b](https://gettr.com/post/ppvbgra60b)
+现年64岁的中谷元，中谷元同时长期关注中国新疆和香港等地人权状况。2021年4月，作为众议员议员的中谷元发起成立“全党议会人权外交联盟”，致力于推动日本版的《全球马格尼茨基人权问责法案》。
+
+中谷元曾在2001年出任小泉纯一郎内阁的防卫厅长官；2014年，他获时任首相安倍晋三委任为防卫大臣。
+
+信息来源：
+
+[https://gettr.com/post/pr111f4b74](https://gettr.com/post/pr111f4b74)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
