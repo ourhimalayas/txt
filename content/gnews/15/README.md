@@ -2,47 +2,78 @@
 ---
 
 
-## 文贵先生聊天直播要点（2022年1月30日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1933732/)
+## 【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1933733/)
 
-整理：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图142.png)图片来自GTV截屏
-1.加拿大车声声明震撼了世界，小土豆被吓跑
-2.普京不打乌克兰的两个条件：一，书面承认北约不再东扩；二，天然气管道通到欧洲
-3.中共打台湾被西方制裁，从15万亿美元GDP降到5万亿，回到石器时代
-4.中共打台湾美欧参战，中国人最少50万炮灰
-5.中共军队中没人相信会打、能打、打赢
-6.习太阳成为普京手里的尿壶
-7.打台湾是习近平的政治需要，是为了巩固习家天下
-8.打台湾对中国人民没有任何好处
-9.打台湾是灭顶的灾难，和美国开战是以卵击石
-10.普京打乌克兰加速欧洲和中共的决战
-11.因为中共的经济支持，普京才有资本打乌克兰
-12.中共动用核武器没有任何机会赢，常规战争100%会输
-13.日本5分钟消灭中共3万多个军事基地
-14.美国科学界、医学界、军界都出来反对疫苗
-15.世界的物流、供应流因为疫苗灾难一塌糊涂
-16.疫苗是人类大屠杀，是人类的灾难
-17.新加坡的李家变成灰一百次不拉到
-18.疫苗灾难使全人类的仇恨让中国人承担了
-19.不希望西方人把中国人带入坟墓
-20.西方甚至利用疫苗灾难发动战争，转移视线免于制裁
-21.国内2022年比想象的还要坏，备一定的现金、粮食，和活下去的环境
-22.国外同胞面临的最可怕的是排华，不是一般的危险
-23.战友们坚定的传播中共不等于中国人民，这是爆料革命的重要资产
-24.任何人不能以新中国联邦和农场的名义参与政治抗议、游行
-25.七哥的腿伤是因为打抱不平而负伤
-26.疫苗灾难会导致国内一半的房子没人住，中国会死2人人左右
-27.欧洲三国准备将大使馆家属接走，中共说奥运期间机场无法安排，公然刷流氓
-28.新华人寿给康典，王岐山一票弄走100亿美元，朱云来、朱燕来弄走一两百亿美元
-29.孟建柱说，习的情商、智商和江是千年的差距，只能当厅局级干部，孙力军都比他有政治智慧
-30.中共内斗的好戏在后面，没有哪个希望习好
-31.大直播目的是唤醒中国人的良知，有辨别真假善恶的能力
-32.带领战友致富，七哥是不二人选。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+COVID-19病毒是中共对全世界发动的生化武器战争投放的生化武器，试验性的COVID-19病毒疫苗不能预防感染，只会导致身体免疫力持续下降，感染中共病毒的风险成倍增加。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
 
-*编辑 /发布：吐纳*
+尽管澳大利亚新南威尔士州（New South Wales）的每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)）刻意偷换概念，将很多接种COVID-19病毒疫苗不超过21天的COVID-19感染者记入未接种人群，仍然无法掩盖疫苗带来的严重灾难的事实！
+
+在《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)》报告第31页，关于COVID-19疫苗接种状态分四种情形的定义：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)COVID-19 & Winter Statistical Report
+
+未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
+
+接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种第1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
+
+完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
+
+疫苗接种状态不明确（Under investigation）
+
+根据这样的定义，显然存在大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群。
+
+截止到2022年1月29日晚上8点，新南威尔士州共接种4,776,938剂疫苗，年满16岁的人群一针疫苗接种率高达95.4%，两针疫苗接种率为94%，年满18岁的人群中，三针或加强针接种率达​38.8%。甚至12~15岁的青少年也有83.2%被打了疫苗，连5~11岁的儿童也有37.4%受到疫苗祸害。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_22-27-09.png)
+
+在如此高的疫苗接种率下，新南威尔士州最近感染COVID-19病例数激增。上周新增感染病例110,883例，本周也有63,051例，全州累计确诊814,161例,占全州816.6万人口的10%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_23-59-13.png)
+
+仅仅在1月22日一天内，新南威尔士州新增COVID-19确诊人数就达到非常恐怖的92,264人，占全州人口的千分之1.13。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-05-12.png)
+
+最近1个月，新南威尔士州新增COVID-19确诊病例激增。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-12-12.png)
+不单是新南威尔士州，整个澳大利亚最近一个月新增COVID-19确诊病例也激增。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-09-36.png)
+
+下表为1月20日《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)》报告第7页，表5，2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-5-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-8-January-2022.jpg)
+
+我们来研究明确知道疫苗接种状态的COVID-19受害者的情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status.jpg)
+接种疫苗患者的无论在确诊、住院、ICU和死亡中都占绝大多数。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-366-1.png)
+
+接[【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](https://gnews.org/zh-hans/1933874/)
+
+参考资料：
+
+[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
+
+[COVID-19 vaccination update Vaccine doses administered to NSW populations](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/stats-nsw.aspx#today)
+
+[Spikevax (Moderna)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/moderna)
+
+[Comirnaty (Pfizer)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/pfizer)
+
+[Vaxzevria (AstraZeneca)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/astrazeneca)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW  Epidemiological week 1, ending 8 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

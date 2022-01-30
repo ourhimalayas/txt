@@ -2,24 +2,40 @@
 ---
 
 
-## 网友点赞纽约护士出售假中共疫苗卡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1933596/)
+## 疫苗灾难：2022年恐增加6千万心血管病死亡人口
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933674/)
 
-**采集****/****翻译：意翎 ****    **
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月28日外媒报道，根据史蒂夫·冈德瑞博士的全球疫苗后遗症的发展趋势进行推演，2022年因中共病毒疫苗导致的心血管病死亡患者将增加6230万人。
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2498.png)
-据《美国真相》（NBC4NY）报道，纽约两名护士因出售假中共疫苗接种卡而被捕，49岁的朱莉·德沃诺（Julie Devuono）和44岁的玛丽莎·乌拉罗（Marissa Urraro）是长岛的两名护士，她们在2021年11月期间伪造了疫苗卡，涉案金额150万美元，假疫苗卡成人售价220至240美元，儿童85美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-12.jpeg)
 
-据检察官称，这两名在野孩子儿科医疗保健中心的工作人员伪造了疫苗接种卡，出售后将这些信息添加到纽约州免疫信息系统（NYSIS）中。
+史蒂夫·冈德瑞博士在去年11月，发表在美国心脏协会AHA的论文警告说，根据mRNA疫苗第二次接种后的2个月内各种炎症标志物的测量结果，5年内遭受心脏病发作的机率增加一倍以上。
 
-萨福克郡地方检查官雷蒙德·蒂尔尼（Raymond Tierney）说：“我希望这能向那些想利用这个系统牟利的人传递一个信息：他们会被绳之以法。”
+约翰-霍普金斯大学1月22日的全球疫苗接种率最新数据是51.6% ，按照全世界正常的心脏疾病死亡每年890万来进行指数推算，在2022年将额外增加6230万的心血管病死亡。
 
-然而，网友却为这个造假行为点赞，被置顶最多的评论说：“很抱歉你们被捕了。再过几年，你们的高中母校会以你们的名字命名。”
+而这个惊人的数据模型推演出的结果，与泽连科医生接受媒体采访时所披露的75%接种疫苗的人士会在未来三年内死亡相吻合。这是一场全球大屠杀。
 
-还有网友说，“我喜欢她们对儿童做出的善举。”
+参考链接：
+1）[Covid-19 Vaccines are projected to cause 62.3 Million Cardiovascular Deaths in 2022 Worldwide](https://dailyexpose.uk/2022/01/28/covid-19-jabs-projected-cause-62-mil-cardiovascular-deaths-2022/)
+2）[https://gettr.com/post/p7zsan54d1](https://gettr.com/post/p7zsan54d1)
+3）[https://gettr.com/post/pi0ncxa731](https://gettr.com/post/pi0ncxa731)
 
-**[原文链接](https://www.zerohedge.com/covid-19/ny-nurses-arrested-after-selling-15-million-fake-vaccine-cards)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

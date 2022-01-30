@@ -2,30 +2,36 @@
 ---
 
 
-## 中小学全面姓党：新设“党书记”，校长成二把手
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933682/)
+## 中共金融机构将对单位和个人银行账户加大管控
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933689/)
 
-撰稿：东京樱花团丨喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-1-1.png)
-[*图片来源*](https://twitter.com/jielu22111278)
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月28日，中共央行发布最新文件称：3月1日起，金融机构将对单位和个人银行账户增加管控，尽职调查客户身份资料以及交易记录，其中有两条规定跟个人存款密切相关：
 
-近日，中共中央办公厅印发了《关于建立中小学校党组织领导的校长负责制的意见(试行)》（以下简称“意见”），并发出通知，要求各地区各部门贯彻落实。“意见”指出，要坚持和加强党对中小学校的全面领导，建立中小学校党组织领导的校长负责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13.jpeg)
 
-“意见”明确，党组织设置为党委、党总支的中小学校，党组织书记、校长一般应当分设，党组织书记一般不兼任行政领导职务，校长是中共党员的应当同时担任党组织副书记；党组织设置为党支部的中小学校，党组织书记、校长一般由一人担任，同时应当设1名专职副书记;学校行政班子副职中的党员一般应当进入党组织班子。
+1、对大额交易、可疑交易、单位或个人身份存疑的，将进行尽职调查，其中大额交易，包括任何账户现金交易超过5万，公户转账超过200万，以及境外私户转账超过20万或境内私户转账超过50万。
 
-根据“意见”，中小学校将单独增设党组织书记一职，是学校真正的一把手，而校长担任党组织副书记，是学校的二把手。中共全面强化对中小学的管控，直接带来的是对教师和教学管控的升级，同时对学生的洗脑也必将进一步强化。
+2、个人现金存取超过5万的，要核实身份，登记资金来源和用途。分析人士指出，在美国授权撤离大使馆之际，中共央行迅速出台了针对个人和企业的账目加强管控的规定，可以明显看出中共自知大限将至，开始努力防止人们弃船逃命，首先就是管住人们的钱。因为现在中共国内但凡开智的中国人都知道HCoin的存在，它特有的稳定币和浮动币结合，以及价值和黄金挂钩的天才设计，注定会成为人们财富安全的避风港。中共与其说是在加强资金管控，不如说就是在防止人们投资HCoin。
 
-信息来源：
+参考链接：
+1）[央行紧急通知！3月1日起，个人银行进账超过这个数将被重点监控！](https://new.qq.com/omn/20220128/20220128A09HVQ00.html)
+2）[https://gettr.com/post/pr7b151231](https://gettr.com/post/pr7b151231)
 
-[**中共中央办公厅印发关于建立中小学校党组织领导的校长负责制的意见(试行)**](https://www.163.com/dy/article/GUSB93TL0552ADWT.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+总编：飞虹 
+编辑：文特
+校正/发稿：谐趣园
 
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

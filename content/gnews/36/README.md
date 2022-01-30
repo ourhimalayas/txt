@@ -2,18 +2,18 @@
 ---
 
 
-## NewSGman┃六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933510/)
+## NewSGman┃美国17000名医生联署要求停止强制疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933515/)
 
 撰稿：东京樱花团/NewSGman
 
-1月24日，郭文贵先生在大直播中表示，要在六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动。
+美国17000名医生联署签名要求停止强制中共病毒（新冠病毒）疫苗。
 
-郭文贵先生指出，比茉莉花革命更高段数的“甜蜜蜜运动”获得了党内及各界人士的支持，习近平的中国梦将成噩梦。甜蜜蜜运动会有中国很多军人、音乐家、医生、律师 教师、知识分子界等有勇气有良知人士参加。
+Richard Urso医生在华盛顿参加击败疫苗授权集会上的演讲表示，有强大势力在反对压制正义良知的医生们，但医生们会用数据与真相唤醒人们抵抗疫苗暴政。
 
 信息来源：
 
-[https://www.gettr.com/post/pqf7rj9fd8](https://www.gettr.com/post/pqf7rj9fd8)
+[https://www.gettr.com/post/pq8yef2ad5](https://www.gettr.com/post/pq8yef2ad5)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
