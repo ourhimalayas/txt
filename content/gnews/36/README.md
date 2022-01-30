@@ -2,34 +2,39 @@
 ---
 
 
-## 英首相拟访问俄乌地区，在欧洲各地部署大量军队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1932185/)
+## 反对党敦促维州停止二维码登记，反对强制接种加强针
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1932296/)
 
-#### 撰稿：彩虹
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-50.jpg)图片来源：独立报
-1月29日，《新闻极限》发布文章说，根据《独立报》的报道，英国首相鲍里斯·约翰逊（Boris Johnson）将在未来几天访问俄乌地区，以在日益增长的担忧中努力“加强威慑（和）避免流血事件”。
+整理报道：小鱼儿
+编辑：文泓
 
-唐宁街的一位女发言人在一份声明中说：“首相决心加快外交努力，加大威慑力度，以避免欧洲发生流血事件。他将在本周与普京总统通话时重申，俄罗斯需要退一步，以外交方式参与。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/FAI@U7LEMZ66ZXRZP.png)图片来源：ClarkCountyToday
 
-报道说，在进行外交努力的同时，在上周关于欧洲局势的高级别情报会议上，约翰逊要求国防和安全主管考虑在欧洲采取进一步的防御性军事行动措施。
 
-在会议后选择的缓解俄罗斯侵略的方案中, 约翰逊将包括加强北约的防御以及（建立）新的部署。在其他选项中，预计约翰逊还将宣布对俄罗斯的进一步制裁，从而可能打击该国的金融利益。
+当地时间1月30日，据澳广新闻报道，鉴于疫苗接种率的上升，维州反对党呼吁立即放宽新冠病毒的若干限制，取消目前实行的在家工作的建议，以及取消对所有接待和娱乐场所的人数限制。
 
-而据《国会山报》1月29日最新报道，周六，英国首相鲍里斯·约翰逊在一份声明中说，由于俄罗斯可能入侵乌克兰的威胁导致紧张局势持续升温，英国正准备下周在欧洲各地进行一次大规模的军队部署。
+反对党领袖马修·盖伊说：“维多利亚的民众需要一种新的方法，尊重他们、支持他们，而不是责备他们要做出（所谓）正确的选择。”同时，反对党表示，反对维多利亚州的普通社区强制接种加强针。
 
-据路透社报道，根据约翰逊周六发表的声明，英国正在考虑向其他北约成员提议，将把部署在东欧的英国军队数量增加一倍，并向爱沙尼亚发送防御性武器，以努力加强东欧的边界（防卫力量）。
+当前，维多利亚州和新南威尔士州政府都主张，更新“完全接种”的定义，即以第三针（加强剂）作为完全接种，但国家内阁在最近一次会议上没有同意这一改变。
 
-首相在声明中说：“我已经命令我们的武装部队准备下周在欧洲各地进行部署，确保我们能够支持我们的北约盟友。这一方案将向克里姆林宫发出一个明确的信息，即我们不会容忍他们破坏稳定的活动，面对俄罗斯的敌意，我们将始终与我们的北约盟友站在一起。”
+反对党还表示，对于一些“没有接触者追踪的低风险环境”，应取消二维码登记。但州长安德鲁斯说，虽然二维码登记系统“不是永远的”，但在可预见的未来，它将继续存在。他说：“这确实是一个工具，以确保只有那些被接种两剂疫苗的人，（甚至）我认为在某些时候，接种了三剂的人才能外出活动。”
 
-据路透社报道，英国官员将在周一开会讨论军事方案，并在下周敲定这一决定。
+盖伊先生说：“强制接种加强针破坏了公共卫生政策（信用），并可能导致政府强制程度的变本加厉。我们会不会强制要求打第四针？第五针？第六针？”
 
-**新闻来源**
+安德鲁斯表示，专家的建议就是是强制性的，也拒绝盖伊先生的主张。
 
-[UK’s Boris Johnson to Visit Russia-Ukraine Region Amid Tensions](https://www.newsmax.com/newsfront/boris-johnson-diplomacy-invasion-aggression/2022/01/29/id/1054592/)
+新闻链接：[Victoria records 20 COVID-19 deaths and 10,589 cases as hospitalisations fall to 889](https://www.abc.net.au/news/2022-01-30/victoria-covid-deaths-hospitalisations-cases-vaccinations/100790678?utm_campaign=abc_news_web&amp;utm_content=link&amp;utm_medium=content_shared&amp;utm_source=abc_news_web)
 
-[UK’s Johnson says he’s ordered armed forces to prepare for deployment next week amid Ukraine tensions](https://thehill.com/policy/international/591961-uks-johnson-says-hes-ordered-armed-forces-to-prepare-for-deployment-next)
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

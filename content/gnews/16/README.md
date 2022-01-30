@@ -2,45 +2,61 @@
 ---
 
 
-## 我是音雄最重要的本质是音乐的无国界无民族和肤色障碍
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932449/)
+## 我们辜负了孩子：大流行给整整一代人带来精神创伤
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932513/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f630d7d90bdd2085a27789](https://gtv.org/video/id=61f630d7d90bdd2085a27789)
+翻译： Jenny Ball
 
-**郭文贵先生：**而且新中国联邦在灭共的这个事业当中，在极度的压力和恐惧之下，我们每个人能站这里唱歌、露脸，而且越唱越好，越唱越专业，而且唱出了我们的特色。这种感觉只有，这个点儿摇滚歌王啊，被你们制造这个摇滚歌王而且是全球性的，我不知道有多少人明白这其中的道理，但是我是知道的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2487.png)图片来源：theblaze.com
 
-就像中东的我看着长大的这些王子还有公主什么的这些小孩：“Uncle Miles，you are rock, you are rock star, unbelievable!”每个人都说，每个人都是说：“unbelievable! fantastic!”是吧？他们羡慕死我了。我看到这些孩子，一个是G-Fashion，一个是咱们的喜币，一个是七哥这个全球打榜，他们就是简直是朗朗上口。
+戈尔迪·霍恩（Goldie Hawn）警告说，COVID-19 大流行给儿童造成的全国性创伤正在逼近，并且“很可能超过”9/11 恐怖袭击和冷战带来的恐惧。
 
-我跟我这朋友他们见面的时候，这都是国家级的领导人他们孩子，看到我时都紧张，我说：“为什么紧张啊？”“哎呦，你是Rockstar，你真的太厉害了！”就音乐对人的影响是没有国界的，它是没有民族障碍的，没有肤色障碍的。这就是新中国联邦《我是音雄》的最最重要的本质。
+在《今日美国》的一篇专栏文章中，霍恩描述了她在 1956 年五年级时看到 “整个世界被美国和苏联之间全面核战争的威胁撕裂”，也撕裂了她的世界。
 
-字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
+在观看了一部关于核战争危险的真实而严峻的教育电影后，当时 11 岁的戈尔迪·霍恩在午餐时跑回家给正在工作的母亲打电话，并告诉她：“妈妈，快回家！我们在都要死了！”
 
-编辑整理：Jacques；
+霍恩说，核浩劫的恐惧，给她带来了多年的创伤。
 
-字幕文件制作：小满；
+霍恩写道：“即使在高中，我早上也会听到警笛声，那天害怕得不敢去上学。”“这是一个影响我的特定创伤，**但它也是一种集体创伤——整整一代美国儿童都以某种形式被教导，将核浩劫视为真正的威胁。”**
 
-视频制作及上传：Cindy；
+霍恩将她这一代人所遭受的集体创伤与其他几代人所经历的剧变进行了比较——比如，在 1986 年 1 月 28 日在现场亲眼目睹挑战者号航天飞机灾难发生的孩子们；2001年9月11日，目睹了双子塔因 9 月 11日恐怖袭击而倒塌的孩子们；以及因 COVID-19 大流行而生活天翻地覆的年轻人们。
 
-G-News发布：小满；
+“我们都知道，孩子的想象力有多么神奇——他们在脑海中创造出美妙的世界，快乐但是可以把一个大纸板箱变成一艘宇宙飞船这样快乐的创造力，也有它的另一面，”这位罗伯·格林伯格导演的电影《落水姻缘》里的女演员说，“一个孩子的心灵暴露在现实世界的恐惧中，如果没有正确处理它的能力，就会走向黑暗的通道，导致对生存的恐惧。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+霍恩解释说，COVID-19 大流行已经剥夺了关键的“所有人类都依赖的正确观点、鼓励和爱的支持结构。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+她补充说：“**新冠病毒时代以更加真实、切实的方式改变了我们孩子的生活——社交距离、学校停课、每天戴口罩。”“孩子们害怕人、害怕空间，甚至害怕他们周围的空气——这是几十年来从未见过的持续恐惧**。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+霍恩引用了美国CDC的一份报告，该报告发现，2021 年，青春期女孩因疑似自杀未遂而到急诊室就诊的人数激增了近 51%，而男孩则增加了近 4%。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+这位电影明星指出，美国外科医生维维克·穆尔蒂（Vivek Murthy ）博士在 12 月警告说，COVID-19 大流行“**对美国青年和家庭的心理健康产生了前所未有的影响**”。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+这还与美国儿科学会、美国儿童和青少年精神病学学会，和儿童医院协会宣布的国家儿童和青少年心理健康紧急状态有关。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“作为致力于照顾儿童和青少年的卫生专业人员，我们目睹了在 COVID-19 大流行期间，儿童、青少年及其家庭的心理健康挑战率飙升，加剧了大流行之前存在的情况， ”10 月份的声明说，“我们国家的儿童和家庭，经历了巨大的逆境和破坏。”
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+霍恩评论了对美国青年心理健康的令人担忧的担忧，“这告诉我们，作为一个国家，我们辜负了我们的孩子。”
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+这位获得奥斯卡奖的女演员写道：“**我们没有适当地资助预防性护理和早期干预治疗，**从而使每个人在某种程度上的心理斗争正常化。”“有这些用于心理健康的日常工具，就像锻炼和健康饮食之类的方法，我们只是没有以任何方式，系统地教给我们国家的孩子们。”
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+霍恩呼吁，“当孩子们听到晚间新闻的最新可怕统计数据或标题时，帮助孩子们了解他们脑海中将会发生的化学反应”。她说，了解大脑是如何工作的，将为孩子们提供“正确看待事物的耐心和信心，而不是成为当下情绪的牺牲品，最终陷入导致抑郁甚至自残的无助状态。我们已经在儿童中看到了创纪录数量的这种情况。”
 
+她警告说，答案是不要让孩子“在为时已晚后通过筛选和治疗极端病例的系统被过度诊断或洗牌”。
+
+“我们将在 COVID-19 大流行中幸存下来，但我不确定我们能否度过整整一代人的集体创伤，让他们步履蹒跚地步入成年期。我们需要更多的研究、更多的预防性护理和更多的早期干预。我们还有时间，”霍恩总结道，“如果我们做对了，今天的孩子可能会成为美国有史以来最强大的一代。”
+
+霍恩本周在“梅根·凯利秀”节目中也登上了头条，并称好莱坞名人，无论有什么政治背景，都需要娱乐公众。
+
+“我一直在我的轨道上，”霍恩在谈到发表政治观点时说到。
+
+素材链接：[theblaze.com][‘We have failed our children’: Goldie Hawn warns COVID-19 pandemic has unleashed mental trauma on an entire generation of kids](https://www.theblaze.com/news/goldie-hawn-children-covid-mental-health#toggle-gdpr)
+
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

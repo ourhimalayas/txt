@@ -2,24 +2,37 @@
 ---
 
 
-## 中超职业球员参加特奥会比赛获奖，从郝海东爆料谈中共的假丑恶
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1932526/)
+## 监督机构指控欧盟主席购买疫苗“行政不当”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932647/)
 
-作者：D.B\_Cooper
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-9.png)
-2022年1月29日早间《GTV新闻访谈》节目中，郝海东在谈到中共国体育界的虚假现象时，举了自己的亲生经历，当年天津天海足球俱乐部的球员张诚，跟他讲过自己曾经作为特殊足球队队员参加过特奥会，并且最终获得奖牌。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+1月28日，欧盟官方监督机构指控欧盟委员会主席乌苏拉·冯德莱恩构成 “行政不当”，要求其公开在购买辉瑞疫苗期间，与辉瑞公司CEO之间的秘密信息。
 
-张诚是中超赛场上的常客，属于职业球队主力球员水平。这样一个正常的甚至智商可能高于一般人的球员，如何能参加了特殊足球队的比赛且获得了奖牌？这就是中共体制下，一切虚假现象的缩影。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image1-5.png)
-中共统治下的体育比赛，获得成绩第一受益人一定是负责这个项目的领导，这些领导大部分都从未从事过体育项目，都是外行管内行。为了证明这种一切听党的，党能领导一切是成功的，他们根本无视规则和公平正义，靠使用各种欺骗和虚假的伎俩达到最终目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-43.png)
 
-张诚既是这种邪恶体制下的参与者，也是受害者。我想他的父母当初给他起名的时候，一定希望他做一个诚实守信的人。可是生在被中共统治的中共国，好人也会被这个虚假的环境影响。
+欧盟监察专员艾米丽·奥莱利发布了一项正式提议，根据“信息自由申请”，要求冯德莱恩办公室公开这些文本。据悉，冯德莱恩为27个欧盟国家购买的一半以上的中共病毒疫苗来自辉瑞公司，辉瑞是迄今为止欧盟最大的疫苗供应商。冯德莱恩利用“个人外交”，与辉瑞CEO布拉达成巨额订单。 奥莱利说，短信电话和邮件如果涉及欧盟的政策和决定，它们就应该被视为欧盟文件，必须予以公开。
 
-新中国联邦秉持为真不破，追求一人一票的民主，建立真正的法制体系。唤醒每一个中国人内心最初追求的那份纯真和善良，是每一个有良知的中国人追求的目标。让我们都能通过张诚身上发生的光怪陆离的事，看透中共虚假的本质，积极参与到新中国联邦的建设中。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image2.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image3.png)
-审核校对：Barry Jack
-上传排版：F
+截至目前，欧盟委员会以商业机密为由，拒绝透露其与疫苗供应商合同的关键内容，特别是定价方面。
 
+参考链接：
+
+- [EU watchdog accuses Ursula von der Leyen of ‘maladministration’ and orders her to hand over secret texts she sent to Pfizer’s CEO during efforts to buy 1.8billion Covid jabs](https://www.dailymail.co.uk/news/article-10451919/EU-watchdog-orders-Ursula-von-der-Leyen-hand-secret-texts-sent-Pfizers-CEO.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：Irene木木
+编辑：文特
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

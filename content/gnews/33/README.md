@@ -2,44 +2,44 @@
 ---
 
 
-## 加拿大首都渥太华万人游行抗议，总理特鲁多成缩头乌龟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1932276/)
+## 最廉价最无价的音乐把人引入一个时代是生活的最好表达
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932433/)
 
-#### 撰稿：彩虹
+G-TV视频链接：[https://gtv.org/video/id=61f6300ed90bdd2085a2775b](https://gtv.org/video/id=61f6300ed90bdd2085a2775b)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-7.jpg)图片来源：独立报
-据美联社报道，周六，在加拿大首都渥太华，上万人参加游行示威，抗议中共病毒（COVID-19）疫情限制。1月29日，《国会山报》和《新闻极限》对此做了相关报道。
+**郭文贵先生：**我小的时候我爹我娘我们过得这么苦的日子，只要我听到过我娘“啊哼”着几句豫剧的时候，我就知道我们家今天这个好日子，有好吃的。我要听我爹一唱两句豫剧的时候、唱两句歌的时候，哎呦我知道我们家今天这个日子不错，我爹我娘没打架。
 
-文章引述美联社报道，抗议者示威反对强制接种中共病毒疫苗、口罩和封锁。一些人手持标语，称强制接种中共病毒疫苗是法西斯主义，并谴责加拿大总理贾斯汀·特鲁多（Justin Trudeau）的政治举措。
+后来跟你七嫂子结婚。你七嫂子当时我追她的时候，她就唱豫剧啊，然后唱歌，是后来我们听这些流行歌曲《一无所有》是吧？还有崔健的歌，还有张蔷的歌《相思小蚂蚁》这种歌，是不是？那是这一系列的。
 
-据该通讯社报道，一辆卡车上挂着一面美利坚联盟国国旗，而其他抗议者则举着印有纳粹标志的标牌和旗帜。
+那时候一说唱《走过咖啡屋》，就马上想咖啡了，觉得很洋派啊。它把我们带入了一个时代，带着另外一个精神的空间，它是一个生活的最好的表达，而且我觉得它是最最廉价也是最无价的东西。
 
-此前，特鲁多妄称，本周末聚集在一起抗议该国的中共病毒疫情限制的人是“非常令人不安的少数加拿大人，他们对科学、对政府、对社会、对强制令和公共健康建议进行抨击。”
+字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
 
-加拿大约90%的跨境卡车司机和77%的人口已经注射了两针COVID疫苗。
+编辑整理：Jacques；
 
-主要的车队定于中午左右到达，但周五已经有车辆封锁了国会前的道路，周六早上有几十辆卡车聚集。联邦政府的一位消息人士说，预计总共会有大约2700辆卡车。
+字幕文件制作：小满；
 
-渥太华警察局长彼得·斯洛利 (Peter Sloly)周五说，这次示威将是“大规模的”。抗议组织者表示，集会将是和平的，他们发誓要留在渥太华，直到他们成功地推翻这些规定。
+视频制作及上传：Cindy；
 
-2021年10月份选举前夕，特鲁多宣布对联邦工作人员实行强制接种中共病毒疫苗，然后在上个月，加拿大和美国都对跨境卡车司机实行了强制接种中共病毒疫苗。
+G-News发布：小满；
 
-报道说，保守党领袖艾林·奥图尔 (Erin O’Toole)反对疫苗授权，并在周五与一些卡车司机举行会谈后对抗议活动表示支持。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-据《新闻极限》的最新报道，加拿大官员出于安全考虑，已经将总理特鲁多和他的家人从渥太华的家中转移到了一个秘密地点。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-据加拿大广播公司报道，特鲁多的办公室不愿对其家人的位置发表评论。在加拿大国会警卫官警告说示威者可能会出现在官员家中后，总理被转移。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-特鲁多一家住在丽都小屋（Rideau Cottage），位于总督府的地产上，离大规模抗议活动的中心约2.5英里远。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**新闻来源**
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[Thousands demonstrate against COVID restrictions in Canadian capital](https://thehill.com/blogs/blog-briefing-room/591959-thousands-demonstrate-against-covid-restrictions-in-canadian-capital)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[Trucks Roll into Ottawa for Protest Against Canada’s Vaccine Mandates](https://www.newsmax.com/newsfront/ottowa-cananda-protest-vaccine/2022/01/29/id/1054583/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[Trudeau, Family Moved to Secret Location Over Anti-Vax Convoy](https://www.newsmax.com/newsfront/justin-trudeau-canada-truck-protests-covid/2022/01/29/id/1054609/)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
