@@ -2,45 +2,31 @@
 ---
 
 
-## 我们的教育、音乐及所做的一切绝非金钱和权力可以达到
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932481/)
+## 纽约养老院的COVID死亡数少报告了近一半
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932613/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f63194d90bdd2085a277b6](https://gtv.org/video/id=61f63194d90bdd2085a277b6)
+编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-30-112222.jpg)图片来源：thegatewaypundit.com
+纽约养老院的中共病毒（COVID19）死亡人数比官方的报告多49%。 值得一提的是，对纽约前州长库莫(Andrew Cuomo)的相关防疫行为调查被索罗斯支持的曼哈顿新检察官所扼杀。
 
-**郭文贵先生：**这是为什么今天在这个大平台上直播的时候，我们的教育、我们的音乐、我们这现在所有做的一切，这都是用金钱和用权力无法达到的，即使它达到了，最后它一定是邪恶的！这你去想一想当时瓦格纳一个音乐中的犹太人，就把犹太人给杀掉几百万，你去想想多可怕呀！这个事情有多恐惧啊！那么我们现在用音乐要拯救不是600万人，是75亿人中的很多人！
+TGP在2020年多次报道了纽约州长库莫如何实施方案，命令得了COVID的老人回到老人院，并导致其不必要的死亡；当要求司法部对纽约养老院的死亡人数报告进行正式统计时，数字被篡改（本周在纽约得到证实）。 报告的数字比真实的数字少了大约50%。
 
-就像刚才我们谈喜币的时候，我们不在乎谁买不买，不在乎你信不信，你最好别信，我们不希望任何不信的人进来。就像这个音乐一样，我们不希望任何人不相信音乐的力量和正义的力量，我们不需要你们加入。
+失宠的纽约州长安德鲁·库莫手下的卫生专员周四（27日）证实，真实死于中共病毒的养老院居民比官方统计数字多出数千人；在纽约数月来拒绝透露其真实数字之后，这一令人惊讶的进展显示，截至今年1月19日，至少有1.2743万名（官方只统计8505名）长期护理居民死于该病毒，这标志着纽约的死亡人数是全国最高之一。
 
-就像今天你看到这个屏幕上，还有我们上次的咱们整个《我是音雄》的这个晚会，十大冠军每个人看我的Mike医生刚才唱歌的，Mike医生那种肢体的语言，还有我们的小福利都上去唱歌，这不是勇气，这不是要不要脸的问题，是一个人的内心世界的精神健康。我绝对不相信一个精神和心理不健康的人敢唱歌，特别到《我是音雄》唱歌，他没这个种，他也没有这个能力。
+这些数字得到了州司法部长莱蒂西亚·詹姆斯（Letitia James）的认可。但本月早些时候，曼哈顿地区检察官办公室已对库莫与大量养老院死亡有关的非法行为的调查被撤销。
 
-字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
+库莫的发言人转发了埃尔坎·阿布拉莫维茨（Elkan Abramowitz）的声明，这位律师曾在库莫时期为州长办公室辩护：“今天，曼哈顿地区检察官办公室的老年人护理部门负责人联系了我，告诉我他们已经结束了涉及行政会议厅和养老院的调查；我被告知，经过彻底的调查—正如我们一直所说的—没有证据表明有任何违法行为。”
 
-编辑整理：Jacques；
+因此，最终的结果是库莫在强迫数千名患病的COVID19患者引入疗养院后致死，而逍遥法外。 数千人死亡，死亡人数被篡改（很可能仍然如此），调查被索罗斯支持的检察官终止。
 
-字幕文件制作：小满；
+新闻来源：[thegatewaypundit.com] [COVID Deaths in New York Nursing Homes Were Under Reported by Nearly 50% But Both DOJ and New Manhattan DA Drop Investigations into Cuomo](https://www.thegatewaypundit.com/2022/01/covid-deaths-new-york-reported-nearly-50-no-worries-investigation-cuomo-dropped/) | 发布时间：2022年01月29日
 
-视频制作及上传：Cindy；
+* * *
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

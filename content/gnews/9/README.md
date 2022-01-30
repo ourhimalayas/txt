@@ -2,45 +2,40 @@
 ---
 
 
-## 中共国在奥运会相关人员中报告了 34 例新的 COVID-19 病例
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1932653/)
+## 美国政府研究承认COVID-19疫苗会延长月经周期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932744/)
 
-新闻来源：路透社
+编译：wenwu
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-45.jpg)图片来源：thenationalpulse.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/EIBESVYBGVIFJDAVEC2BLXSR4E.jpg)
+美国国家卫生研究院的研究发现，中共病毒（COVID-19）疫苗延长了妇女的月经周期。
 
+这项研究发表在一月份的《妇产科学》杂志上，它比较了接种和未接种COVID-19疫苗的妇女的月经周期长度。
 
-资料来源：路透社
+“对于接种中共病毒疫苗的人来说，数据来自接种前的三个连续周期，以及另外三个连续周期，包括接种中共病毒疫苗的周期或几个周期。对于未接种中共病毒疫苗的人，收集了连续六个周期的数据，”研究报告的摘要中写道。
 
-北京 2022 年冬奥会组委会周日表示，在与奥运会相关的人员中发现了 34 例新的 COVID-19 感染，其中包括波兰短道金牌得主娜塔莉亚·马利舍夫斯卡（Natalia Maliszewska）。
+在分析的3,959人中，有2,403人接种了中共病毒疫苗（大多数人接受了辉瑞公司或莫德纳公司），另有1,556人未接种疫苗。
 
-其中，13人是周六抵达机场后检测呈阳性的运动员或球队官员。
+平均而言，第一次接种中共病毒疫苗的周期长度增加了0.71天，第二次接种疫苗的周期长度增加了0.91天。
 
-在总感染人数中，有 23 人是新抵达机场的人，而 11 人已经处于将活动人员与公众隔开以遏制感染传播的“闭环”中。
+美国国立卫生研究院（NIH）的尤尼斯·肯尼迪·施莱佛儿童健康和人类发展国家研究所（Eunice Kennedy Shriver National Institute of Child Health and Human Development）所长 Dr. Diana W. Bianchi 强调，“以前很少有人对COVID-19疫苗或其他疾病的疫苗如何可能影响月经周期进行研究”。
 
-该环路允许奥运会参与者乘坐官方交通工具在其住宿和奥运场馆之间自由移动，但不允许他们在城市内自由移动。包括媒体和工作人员在内的所有奥运会利益相关者也每天都要接受测试。
+NICHD和NIH的妇女健康研究办公室资助了这项研究，作为167万美元拨款的一部分，探索COVID-19疫苗接种和月经变化之间的潜在联系。
 
-波兰奥委会周日表示，马利舍夫斯卡是第八名检测呈阳性并已被隔离的波兰运动员。她与受感染的速滑运动员 Natalia Czerwonka、Magdalena Czyszczon 和 Marek Kania 一起隔离。
+值得一提的是，汤森路透基金会（Thomson Reuters Foundation）的主席和前首席执行官（CEO）——詹姆斯·C·史密斯（James C. Smith）——是制药巨头辉瑞公司的顶级投资者和董事会成员。
 
-随着 500m 预赛将于周六开始，Maliszewska 正在与时间赛跑。检测呈阳性且无症状的运动员只有在间隔 24 小时连续两次检测呈阴性的情况下才能解除隔离。
+路透社仍未报道美国国立卫生研究院的研究；反之，该媒体已经刊登了题为“疫苗与月经变化无关；COVID和流感疫苗可以一起使用”和“月经变化和COVID疫苗之间没有发现联系”的报道。
 
-澳大利亚周日在其团队成员中宣布了 COVID-19 检测呈阳性，但没有说明是运动员还是教练组。
+**新闻来源：**[thenationalpulse.com] [U.S. Government Study Admits COVID Vaccine Lengthens Menstrual Cycles.](https://thenationalpulse.com/2022/01/28/u-s-government-study-admits-covid-vaccine-lengthens-menstrual-cycles/) | 发布时间：2022年01月28日
 
-团队负责人杰夫·利普舒特（Geoff Lipshut）表示，阳性检测结果令人担忧，但迄今为止只有一例病例，感染者与其他团队成员没有密切接触，这将迫使其他人进行隔离。
+* * *
 
-“对于这种意外情况，没有任何焦虑或压力，每个人都做好了准备，”Lipshut 告诉记者。
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
 
-北京奥运会组织者警告说，随着中国首都采取严厉措施，限制任何奥运会参与者与当地民众的活动和接触，未来几天会有更多病例出现。
-
-与许多寻求与 COVID-19 共存的国家不同，中国以零容忍政策孤立自己，取消了几乎所有的国际航班。奥运会运动员和其他人必须乘坐包机直接飞往城市。
-
-🔗 [中共国在奥运会相关人员中报告了 34 例新的 COVID-19 病例](https://www.reuters.com/world/china/china-reports-34-new-covid-19-cases-among-olympics-related-personnel-2022-01-30/)
-
-责任编辑/发布： Shuizhuyu
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
 
  
 

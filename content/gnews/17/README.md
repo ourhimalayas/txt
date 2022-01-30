@@ -2,42 +2,40 @@
 ---
 
 
-## 中共虚假同意联合国人权专员访问新疆
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932563/)
+## 英国考虑参与北约在乌克兰危机中大规模部署
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1932669/)
 
-撰稿：纽约香草山-侠肝义胆，Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-据外媒1月27日消息，中共已同意让联合国人权事务高级专员，在北京冬奥会后的今年上半年访问新疆。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2479.png)
-该媒体称，联合国人权组织指责中共在新疆地区对维吾尔人和其他少数民族实施了大规模拘留、酷刑和强迫劳动。从2018年9月以来，联合国人权组织高级专员一直就新疆问题和中共相关部门进行交涉，并要求到新疆独立调查。
+新闻来源：路透社
 
-但中共一直否认，所有抓捕和虐待新疆少数民族的指控，并拒绝同意联合国人权组织到新疆进行调查。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据有关消息人士称，中共这次是有条件的同意联合国人权高级专员访问新疆。中共要求联合国人权专员按照其安排“友好”的访问新疆，而不是去调查新疆种族灭绝真相。目前还没有联合国人权组织方面的回应消息。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/LLZ7VPALXRMJNIK7L5VHJXFSAU.jpg)
 
-对此，有关分析人士认为，这显然是中共在美国撤出大使馆及扺制冬奥会的巨大压力下，玩耍的一出虚假的政治游戏。妄想让联合国人权组织配合中共到新疆表演一场政治秀，减缓国际压力。
 
-新闻来源：
+资料来源：路透社
 
-[China Agrees to Xinjiang Visit by UN Rights Chief in Early 2022](https://www.newsmax.com/newsfront/china/2022/01/27/id/1054395/)
+英国政府周六表示，英国正在考虑部署北约，作为加强欧洲边界计划的一部分，以应对俄罗斯在与乌克兰接壤的边境集结军队。
 
-[China agrees to Xinjiang visit by U.N. rights chief in early 2022–South China Morning Post](https://www.asahi.com/ajw/articles/14534238)
+英国曾表示，任何俄罗斯入侵乌克兰的行为都将受到迅速制裁，对双方都将造成毁灭性打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
+英国首相鲍里斯·约翰逊将于下周访问该地区，并将与弗拉基米尔·普京通电话。
 
-总编：Irene木木/飞虹
+他的办公室表示，约翰逊正在考虑向北欧和波罗的海的北约防务条约成员提供最大可能的报价，这将使部队人数增加一倍，并向爱沙尼亚提供防御性武器。
 
-编辑:飞虹
+“这一方案将向克里姆林宫发出明确的信息——我们不会容忍他们破坏稳定的活动，面对俄罗斯的敌意，我们将始终与我们的北约盟国站在一起，”约翰逊在一份声明中说。
 
-校正/发稿：浪迹天涯
+“我已下令我们的武装部队准备下周在欧洲部署，以确保我们能够支持我们的北约盟国。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+官员们将于下周在布鲁塞尔敲定这项提议的细节，部长们将在周一讨论军事选择。
+
+他的办公室表示，在因做得不够而受到批评后，约翰逊将加强外交努力，他将于下月初第二次访问北约同行。
+
+未来几天，英国外交大臣和国防部长也将前往莫斯科与俄罗斯同行进行会谈，以改善关系并缓和紧张局势。
+
+🔗[英国考虑参与北约在乌克兰危机中大规模部署](https://www.reuters.com/world/uk/britain-considering-major-nato-deployment-amid-ukraine-crisis-2022-01-29/)
+
+责任编辑/发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

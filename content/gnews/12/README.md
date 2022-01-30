@@ -2,37 +2,26 @@
 ---
 
 
-## 因疫情青少年心理创伤已达国家紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932645/)
+## 又一名人被中共病毒？中共病毒疫苗？夺走了生命
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1932708/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月26日，戈尔迪·霍恩撰写的专栏文章中表述，中共病毒时代以更真实、更具体的方式改变了孩子们的生活方式。社会疏远、人际隔离、学校关闭。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-44.png)（图片源自本文链接）
+1月30日CNN消息：曾出演热门美剧《海军陆战队：洛杉矶-卧底》的演员巴蒂克-曼加萨里安因中共病毒(新冠病毒Covid-19)感染引起并发症而死亡，享年78岁。他的经纪人透露了这一消息，并说他已经接种了中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-30.png)
+作为一名出色的演员，巴蒂克-曼加萨里安先生曾出演《海军罪案调查处》、电视剧《超感警探》、《拉里的中年危机》。他还主持过自己的节目，在电台和电视台播出。
 
-霍恩研究发现，连续两年的中共病毒，青少年面临的“生存恐惧和创伤”已经超越911，接近美苏冷战时期而达到国家紧急状态，必须予以高度关注。其中四分之一的青少年有抑郁症症状，五分之一的有焦虑症迹象， 2020年因疑似自杀而就诊的女孩人数比2019年高出50% 。
+最近，他还与女演员莉莉-汤姆林（Lily Tomlin）和简-方达（Jane Fonda）一起拍摄电影《继续前进》，并在脸书上分享了自己与她们的合影。
 
-霍恩忧心忡忡地指出，NIH、美国外科医生学会、儿科学会一致认为青少年心理健康状况已达国家紧急情况的水平。青少年一代从中共病毒中幸存下来，却带着残缺不堪的心理进入成年，将会是国家的灾难。
+曼加萨里安先生是出生于伊朗的亚美尼亚人，年轻时搬到美国洛杉矶。在他还是个普通服务员的1978年，得到了他人生中出演第一个电影角色的机会。
 
-参考链接：
+笔者前几天发表了有关最近常常看到名人死亡，但却都没有是否接种疫苗的报道之内容的稿件。之后，仍是几乎每天都能在网上看到名人死亡的消息。其中像这样直言是否接种过疫苗的报道实属罕见。当人们没有意识到疫苗的危害时，死亡原因很有可能都被归结于中共病毒感染、心肌炎、心包炎等等。政府不作为、媒体不报道，使得绝大多数普通民众不知真相、不知道自己的亲人很可能就是疫苗致死。
 
-- [Goldie Hawn on COVID Pandemic: ‘We Have Failed Our Children’](https://www.newsmax.com/thewire/goldie-hawn-covid-pandemic-mental-health/2022/01/28/id/1054498/)
+信息来源：[俳優バチク・マンガサリアン氏、コロナ合併症で死去　「ＮＣＩＳ：ＬＡ」などに出演（CNN.co.jp） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e3c0d299cf58e75d0558473331fd4e998bc36460)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：Irene木木
-编辑：文特
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
