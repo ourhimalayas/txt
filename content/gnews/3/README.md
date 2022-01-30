@@ -2,10 +2,10 @@
 ---
 
 
-## 蓬佩奥谈当前国际局势及独裁政权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1932166/)
+## 波士顿的病人因为未接种疫苗被拒绝心脏移植手术
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1932227/)
 
-01/28/2022 迈克·蓬佩奥: 世界局势极为险恶，如果美国不下定决心保护其利益，独裁政权就会伺机而动
+01/27/2022 波士顿一名患者的家属在塔克·卡尔森的采访中说，该患者因没有接种COVID疫苗而被布莱根妇女医院从心脏移植名单中剔除。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

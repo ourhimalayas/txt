@@ -2,30 +2,50 @@
 ---
 
 
-## 中共国大使警告说美国加强与台湾的关系将“非常可能”导致战争
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1931979/)
+## 数字货币三大选择:与法币共存,让多数人接受,稳定且低成本
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932036/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-111.jpg)
-图片来源：网络截图
+G-TV视频链接：[https://gtv.org/video/id=61f61c53d90bdd2085a27041](https://gtv.org/video/id=61f61c53d90bdd2085a27041)
 
-据零对冲1月29日报道，中共国驻美国大使周五警告说，华盛顿对台湾越来越多的支持可能最终导致美国和中共国之间的战争。
+**郭文贵先生：**那么今天我们在看到世界数字货币变化的时候，面临着三个最大的选择，它是必然要走的过程，它如何和法币共存？如何成为世界上穷人、任何人都能依靠和信托的、使用的或流通的货币？这是全球性的。第三个，它必须是低成本，它必须是稳定的，它必须要成为世界上生产价值公平交易的工具，这是永远是货币的属性。
 
-秦刚大使说，美国正在为台湾的独立力量“壮胆”。他在接受美国国家公共广播电台（NPR）采访时说：“如果台湾当局在美国的鼓动下，继续走独立的道路，很可能会使中共国和美国这两个大国卷入军事冲突。”
+当我们看到共产党把全国人民14亿人民获得全球流通的数字货币变为绝对的中共控制，把去中心化的技术变成绝对中心化的技术，不允许任何人来跟它玩这游戏，要独家的游戏，并且在全球推广的时候，喜币恰恰是以它独特的全球化的身份，去中心化和中心化的结合身份，浮动币和稳定币相结合的系统，而且创造出了一个又一个的富翁。
 
-秦刚称台湾问题是“中共国和美国之间最大的火药桶”。他说，台湾和中共国大陆的人民是“同胞”，不想打仗，但由于台湾 “正在努力走向独立……中共国不会承诺放弃非和平的统一手段，因为这是一种威慑。”
+那么现在看到我们战友当中有多少人从零变成了亿万富翁？十亿富翁、百亿富翁？未来的喜币会让更多有小钱的变成大钱，有大钱的变成更多的钱，而且是让所有的投资者全面的参与。
 
-从川普政府时期开始，美国一直在采取措施，增加与台湾的军事和外交关系。2020年8月，川普派时任卫生部长阿扎尔访问台湾，使他成为自1979年华盛顿与台北断绝外交关系以来访问该岛的最高级别美国官员。
+即将推出的热钱包？冷钱包？喜保险、喜数字银行，更重要的我们还有推出一系列的，现在别人没有的，更核心的技术，现在还不能说。
 
-自阿扎尔访问以来，川普和拜登政府的国务院都采取了鼓励美国和台湾官员接触的政策，美国国会代表团也更频繁地访问台湾。
+所以你可以看得出来，你问问赵长鹏，他未来将走向何方？把赵长鹏给抓了，赵长鹏的都归零，你找谁要去？比特币跌没了，你找谁去？谁给你负责任？包括今天各种数字货币，哪一个币背后没有人操作呢？
 
-自1979年以来，美国向台湾出售了武器，并部署了少量部队来训练台湾部队。但在去年之前，美国对台湾的军队部署一直是非正式的。10月，台湾总统蔡英文确认了美国军队在台湾的存在，使她成为几十年来第一位这样做的台湾领导人。
+所谓的去中心化是去掉了负责任的人，而喜币恰恰相反，去中心化的技术是保证你货币的安全和隐私，而且有绝对的负责人叫中心化，这和共产党的币和赵长鹏的币和现在一系列数字货币本质上的不同。
 
-除了促进与台湾的关系，美国还大大增加了在南海和其他靠近台湾和中共国水域的军事活动，导致北京也这样做，使该地区成为一个潜在的战争爆发点。
+字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
 
-新闻来源：[Chinese Ambassador Warns Increasing US Ties With Taiwan Will “Most Likely” Lead To War](https://www.zerohedge.com/geopolitical/chinese-ambassador-warns-increasing-us-ties-taiwan-will-most-likely-lead-war)
+编辑整理：Jacques；
 
+字幕文件制作：小满；
 
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

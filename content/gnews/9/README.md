@@ -2,50 +2,34 @@
 ---
 
 
-## 合法代表中国人的新中国联邦改写规则时就是量子的力量
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932109/)
+## 英首相拟访问俄乌地区，在欧洲各地部署大量军队
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1932185/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f61f73d90bdd2085a27125](https://gtv.org/video/id=61f61f73d90bdd2085a27125)
+#### 撰稿：彩虹
 
-**郭文贵先生：**但是战友们记住，这跟你们没半能半毛关系，千万别碰！这就像有人真的拿耳勺舀大海里的水一样，是吧？不管你这勺有多大，你那个锅老往家端，那个水就一点儿都不会有动静。这就真的是我们是山上的猴子或山上的鸟，别往大海里边去装鱼去，这不是你玩的游戏。你唯一能玩的就是我们现在的喜币，这是你能玩儿，拿钱进去你知道涨多少钱，你能摸得着看得着。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-50.jpg)图片来源：独立报
+1月29日，《新闻极限》发布文章说，根据《独立报》的报道，英国首相鲍里斯·约翰逊（Boris Johnson）将在未来几天访问俄乌地区，以在日益增长的担忧中努力“加强威慑（和）避免流血事件”。
 
-你像比特币，比特币现在你进去，那你只有，你不可能你能压住上和起伏，已经在今年割了多少？（割了）17次韭菜，17次韭菜割走了多少钱你们算过没有？你有多少钱能玩得起，是吧？
+唐宁街的一位女发言人在一份声明中说：“首相决心加快外交努力，加大威慑力度，以避免欧洲发生流血事件。他将在本周与普京总统通话时重申，俄罗斯需要退一步，以外交方式参与。”
 
-所以说这个接下来会起起伏伏，大家千万别后悔，也别眼馋，你也别觉得这个东西你失去了机会，这永远不属于你的机会，千万不要贪婪的心和让你那个贪婪的眼睛迷惑了你的智慧、失去了你自己，那比自杀还可怕。
+报道说，在进行外交努力的同时，在上周关于欧洲局势的高级别情报会议上，约翰逊要求国防和安全主管考虑在欧洲采取进一步的防御性军事行动措施。
 
-不管你对面看到有多么漂亮、多么美丽的一个大象，如果你是蚂蚁的时候你千万别和它谈恋爱，你更别想跟它生孩子，你生不出来孩子来。这就是真的我们最多来讲是个蚊子是吧？蚊子叮大象你还想跟大象还想交配出孩子是不可能的，因为我们还不够强大。
+在会议后选择的缓解俄罗斯侵略的方案中, 约翰逊将包括加强北约的防御以及（建立）新的部署。在其他选项中，预计约翰逊还将宣布对俄罗斯的进一步制裁，从而可能打击该国的金融利益。
 
-什么时候会强大？我们变成量子力量的时候，就无处不在的时候，我们来改写规则的时候、新中国联邦真正成为世界上合法代表中国人的力量的时候。
+而据《国会山报》1月29日最新报道，周六，英国首相鲍里斯·约翰逊在一份声明中说，由于俄罗斯可能入侵乌克兰的威胁导致紧张局势持续升温，英国正准备下周在欧洲各地进行一次大规模的军队部署。
 
-那个时候我们不是用耳勺舀大海，我们是站在太空看地球，那个时候我们的比例就变了，我们成了大海，别人成了挖耳勺子，那个时候咱就可以想干啥干啥了，当然要干好事啊。谢谢！
+据路透社报道，根据约翰逊周六发表的声明，英国正在考虑向其他北约成员提议，将把部署在东欧的英国军队数量增加一倍，并向爱沙尼亚发送防御性武器，以努力加强东欧的边界（防卫力量）。
 
-字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
+首相在声明中说：“我已经命令我们的武装部队准备下周在欧洲各地进行部署，确保我们能够支持我们的北约盟友。这一方案将向克里姆林宫发出一个明确的信息，即我们不会容忍他们破坏稳定的活动，面对俄罗斯的敌意，我们将始终与我们的北约盟友站在一起。”
 
-编辑整理：Jacques；
+据路透社报道，英国官员将在周一开会讨论军事方案，并在下周敲定这一决定。
 
-字幕文件制作：小满；
+**新闻来源**
 
-视频制作及上传：Cindy；
+[UK’s Boris Johnson to Visit Russia-Ukraine Region Amid Tensions](https://www.newsmax.com/newsfront/boris-johnson-diplomacy-invasion-aggression/2022/01/29/id/1054592/)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[UK’s Johnson says he’s ordered armed forces to prepare for deployment next week amid Ukraine tensions](https://thehill.com/policy/international/591961-uks-johnson-says-hes-ordered-armed-forces-to-prepare-for-deployment-next)
 
  
 
