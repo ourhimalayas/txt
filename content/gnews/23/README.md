@@ -2,44 +2,23 @@
 ---
 
 
-## 2012年被江家私谈做第二荣毅仁的马云不知道荣家多惨
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932180/)
+## 拜登政府授权撤离北京大使馆的重大历史意义
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1932409/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f62670d90bdd2085a273ac](https://gtv.org/video/id=61f62670d90bdd2085a273ac)
+作者：D.B\_Cooper
+![](https://assets.gnews.org/wp-content/uploads/2022/01/SHOUQUANCHELI.jpg)
+2022年1月25日，文贵先生突发直播，郑重向世界率先宣布，美国拜登政府已通知中国政府，将授权撤离北京大使馆。该举动是新中国联邦联合美国多方正义力量一起运作的结果。这是爆料革命5年来的一个重大里程碑。美国的撤离，会掀起一场多国从中国撤馆的蝴蝶效应。中共从此开始在国际关系上将遭受一系列前所未有的重大挫折，它就像过街老鼠一样，面临人人喊打的窘境。同时，新中国联邦作为代表新中国人形象的唯一选择，在此消彼长的运势下，逐渐在国际关系中显露头角！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-8.png)
+为了更准确的理解美国政府此次“授权撤离”的实际意义，我查找了历史资料，发现在当年的伊拉克战争开始前，美国布什政府同样有类似撤馆行动。搜狐新闻在2003年2月14日的新闻中讲述，“随着美国对伊拉克动武可能性的不断增加，美国正计划进一步减少在中东及海湾地区的外交人员”，“布什政府已经授权驻巴林麦纳麦和驻卡塔尔多哈的美国使馆人员家属和非急需的外交人员离开”，同时新闻也报道了乌克兰、西班牙、葡萄牙等其他国家也相继撤离伊拉克。
 
-**郭文贵先生：**你看马云，拍过电影，在纽约演过专场音乐会，迈克尔·杰克逊，是不是？吸过毒，包养过无数个小三儿，然后觉得钱不是他奋斗的目标，是吧？然后达沃斯论坛带着几十个厨师要跟达沃斯的这些沼泽地大佬们要搞交易，他想成为达沃斯的一员，啥事他没干？是人类能买的东西、能干的事他全尝完了，这又去搞政治去了。
+所谓“授权撤离”，就是美国政府发出的行政命令撤离，授权的含义是相对国会立法程序而言的，本质就是撤离，只是走的是行政流程而不是立法流程。因为但凡需要撤离的情况，基本都属于紧急突发时间，立法流程根本来不及。
 
-2012年江家跟马云私谈，要推荐马云成为第二个荣毅仁，说十八大以后让他成为国家副主席，他就真以为共产党让他当副主席了，他就没想到荣家最后结局是最惨的。王岐山上来第一个干的就是荣智健，大家知道王岐山上来第一个就把荣智健给灭了。
+目前美国国内对拜登及其儿子亨特拜登，与中共之间经济往来的调查呼声日益高涨。这更有可能推动拜登总统选择灭共这个选项从而彻底为自己家族正名。无论如何，新中国联邦是这次撤馆行动的最大收益者。代表着新中国人形象的新中国联邦人，必将成为世界和平力量在消灭共产党之后重新定义中国人的唯一选择。
 
-最早不回大陆的人、大老板是谁呀？是荣智健；第一个被抄家的就是荣氏家族。然后就是中信的王军，他以为是红二代，他没想到王震怎么得罪了习家和姚依林，上来以后就把王震他全家给端了。后来又有陈元，陈元的爹是陈云，陈云那是我今天早上说那个，比毛泽东、周恩来在共产主义还受尊重呢。宋平是他家的，现在怎么样？国开行快抓完了。那么这种暴富之后一定是很快地消去，它不属于你。
+我们拭目以待！
 
-字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+审核校对：Barry Jack
+上传排版：F
 
  
 

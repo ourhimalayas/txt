@@ -2,25 +2,44 @@
 ---
 
 
-## 普京对美国和北约的回应表示不满：“我们将慎重考虑后续行动”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1932037/)
+## 加拿大首都渥太华万人游行抗议，总理特鲁多成缩头乌龟
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1932276/)
 
-撰稿：东京樱花团丨盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-33.png)[*图片来源*](https://news.yahoo.co.jp/articles/09d86a355c4060c2a5489f5e8e19c518b6fc4c20/images/000)
-1月28日，俄罗斯总统普京对美国和北约（NATO）对他要求的“保证自己国家安全”的回应表示不满，并表示他将在仔细考虑后决定未来的行动。 美国和其他国家已经呼吁继续进行会谈，而俄罗斯的回应将是一个焦点。
+#### 撰稿：彩虹
 
-美国和北约拒绝了普京政府的要求，包括承诺乌克兰不会加入北约，以及从俄罗斯周边地区移除进攻性武器。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-7.jpg)图片来源：独立报
+据美联社报道，周六，在加拿大首都渥太华，上万人参加游行示威，抗议中共病毒（COVID-19）疫情限制。1月29日，《国会山报》和《新闻极限》对此做了相关报道。
 
-根据俄罗斯总统办公室的一份声明，普京在周四与法国总统马克龙的电话中说，美国和北约根本没有考虑到俄罗斯潜在的关切问题，重要问题被忽略了。至于美方留有谈判余地的军事演习限制，俄罗斯的立场是，它们是“次要问题”。
+文章引述美联社报道，抗议者示威反对强制接种中共病毒疫苗、口罩和封锁。一些人手持标语，称强制接种中共病毒疫苗是法西斯主义，并谴责加拿大总理贾斯汀·特鲁多（Justin Trudeau）的政治举措。
 
-1月28日，俄罗斯外交部长拉夫罗夫在接受俄罗斯媒体采访时强调：我们不希望战争，但我们也不允许我们的利益受到攻击，我们不认为谈判已经结束。
+据该通讯社报道，一辆卡车上挂着一面美利坚联盟国国旗，而其他抗议者则举着印有纳粹标志的标牌和旗帜。
 
-信息来源：[**プーチン氏、米・ＮＡＴＯ回答に不満「入念に検討した上で行動決める」**](https://news.yahoo.co.jp/articles/09d86a355c4060c2a5489f5e8e19c518b6fc4c20/images/000)
+此前，特鲁多妄称，本周末聚集在一起抗议该国的中共病毒疫情限制的人是“非常令人不安的少数加拿大人，他们对科学、对政府、对社会、对强制令和公共健康建议进行抨击。”
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+加拿大约90%的跨境卡车司机和77%的人口已经注射了两针COVID疫苗。
 
+主要的车队定于中午左右到达，但周五已经有车辆封锁了国会前的道路，周六早上有几十辆卡车聚集。联邦政府的一位消息人士说，预计总共会有大约2700辆卡车。
+
+渥太华警察局长彼得·斯洛利 (Peter Sloly)周五说，这次示威将是“大规模的”。抗议组织者表示，集会将是和平的，他们发誓要留在渥太华，直到他们成功地推翻这些规定。
+
+2021年10月份选举前夕，特鲁多宣布对联邦工作人员实行强制接种中共病毒疫苗，然后在上个月，加拿大和美国都对跨境卡车司机实行了强制接种中共病毒疫苗。
+
+报道说，保守党领袖艾林·奥图尔 (Erin O’Toole)反对疫苗授权，并在周五与一些卡车司机举行会谈后对抗议活动表示支持。
+
+据《新闻极限》的最新报道，加拿大官员出于安全考虑，已经将总理特鲁多和他的家人从渥太华的家中转移到了一个秘密地点。
+
+据加拿大广播公司报道，特鲁多的办公室不愿对其家人的位置发表评论。在加拿大国会警卫官警告说示威者可能会出现在官员家中后，总理被转移。
+
+特鲁多一家住在丽都小屋（Rideau Cottage），位于总督府的地产上，离大规模抗议活动的中心约2.5英里远。
+
+**新闻来源**
+
+[Thousands demonstrate against COVID restrictions in Canadian capital](https://thehill.com/blogs/blog-briefing-room/591959-thousands-demonstrate-against-covid-restrictions-in-canadian-capital)
+
+[Trucks Roll into Ottawa for Protest Against Canada’s Vaccine Mandates](https://www.newsmax.com/newsfront/ottowa-cananda-protest-vaccine/2022/01/29/id/1054583/)
+
+[Trudeau, Family Moved to Secret Location Over Anti-Vax Convoy](https://www.newsmax.com/newsfront/justin-trudeau-canada-truck-protests-covid/2022/01/29/id/1054609/)
 
  
 
