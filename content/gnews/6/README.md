@@ -2,39 +2,37 @@
 ---
 
 
-## 杭州疫情爆发 增设橙码 市民出行举步维艰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933026/)
+## MV版Hcoin To the Moon上线52天第39次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1933069/)
 
-撰稿：东京樱花团/山顶闲人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-114.jpg)
-杭州市近万居民连夜被巴士统一拉去隔离，引发民怨。（视频截图）
+1/30/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线52天第39次位列澳门iTunes热门音乐视频榜榜首，第46次位列前三名
 
-据大纪元2022年01月30日报导，近日浙江杭州中共病毒（新冠病毒Covid-19）疫情升温。本轮疫情出现三条传播链，且四省多地出现了杭州关联病例。杭州再增设“橙码”，要三次核酸阴性才能转绿，增加市民出行难度。
+* * *
 
-1月30日，据中共国家卫健委网站消息，29日的24小时，大陆全境新增本土确诊病例54例，其中杭州市19例。
+[【PDF 下载】Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-据《健康时报》30日报导，自1月26日的杭州通报首例确诊病例系感染奥密克戎（Omicron）变异株开始，4天内，杭州市本轮疫情已累计确诊59人，分布全市多区。出现公司传播、婚姻传播、社区传播三条传播链。此外，江西上饶、贵州安顺、湖北罗田、河南三门峡等四省多地也出现了杭州关联病例。
+* * *
 
-从1月26日杭州出现首宗Omicron病例后，疫情持续升温，杭州市政府如临大敌。杭州当局在27日派出300余车次的游览车，将封控区内的近万名居民全数转移到隔离酒店安置，进行约“14＋7”天的封控观察。隔离的酒店距离杭州100多公里。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
 
-同时，杭州在健康码“红黄绿”中，再临时增设“橙码”，要3次核酸阴性才能转绿，增加出行难度。
 
-财经网29日报导，从1月29日凌晨开始，杭州部分市民的“健康码”颜色将会变为橙色。与健康码“黄码”“红码”有所不同，健康码转为橙色的市民主要为本人处于疫情防范区内的人群，存在一定的疫情感染风险。
+[【PDF 下载】Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-橙码市民需前往就近的核酸检测点，连续三天进行每日一次的核酸检测，结果均为阴性后，健康码将自动转为绿码。
-
-持绿码出行的杭州人也遇到麻烦。据杭州网报道，26日从杭州返回温州平阳的杨女士住在杭州滨江长河街道一个小区，“不在管控范围内”。出发前，她跟老家打电话，说需要48小时核酸报告加上14天居家健康管理。但是返乡次日，她就接到短讯，健康码也变成黄色，她即去做核酸检测；但当日下午她再接到通知，变成红码，当晚7时，被送往酒店集中隔离。
-
-笔者认为，杭州市政府作为“卖地”为主要财政来源的地方政府，由于2021年起，内地房地产企业接连遭遇债务危机，导致杭州市政府财政收入锐减，于是杭州市政府把“歪脑筋”动到了“疫情经济”上面。这次增设“橙码”，可以扩大管控民众数量，利用疫情创收，进一步盘剥墙内民众所剩无几的“钱包”。限制民众移动和聚集，变相可以减少所谓“群体事件”发生。全局上，中共以疫情为抓手，利用“健康码”“手机定位”“面部识别”等技术来达到管控民众行动的目的，从而达到打造高科技奴隶制社会的邪恶目的。墙内民众一定会遭遇更变本加厉的管控手段，墙内民众一定要有自救措施才能应对突发危机。
-
-# 新闻来源；
-
-#### [杭州疫情升温 增设橙码 加大市民出行难度](https://www.epochtimes.com/gb/22/1/30/n13541307.htm)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

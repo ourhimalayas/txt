@@ -2,24 +2,32 @@
 ---
 
 
-## 共产主义和资本主义之间的较量
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932759/)
+## 诺姆法案将允许雇员就COVID疫苗授权提起诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932785/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/共产主义和资本主义之间的较量.001.jpeg)
-教基本上可以说是在已经被消灭了，它不是信仰。
-然后所谓的民主和法治制度，诞生了一个共产主义和资本主义，它们之间永远是对立的。共产主义它就是家天下，家族控制的独裁的天下，还是以个人投票的。但是各国都有各国的利益。接着诞生了后来所谓的冷战，还有东方和西方共产主义，资本主义阵营。然后呢？俄罗斯也不是纯民主国家，那么所有的中亚还有东欧属于后民主后独裁政府。那么这些地方的法制基本上是被利用的，只是共产党都没有。所谓的北约欧洲，欧洲东扩，还有亚洲。亚洲谁是老大？日本是美国代言人，中国是谁的代言人？围绕着这些。但是宗教已经是过去的话了，但现在打的是什么呢？地球之外还有宇宙无限大地球是一粒沙，还有太阳系星球系高科技互联网。这个时候已经不是地域战争，也不是海洋文明和大陆文明的战争。这个时候几乎是人类到了一个真正的资本主义和共产主义，对未来的太空的一场战斗。南极和北极，还有稀有资源，特别是全人类的一个消费市场。在这个问题上美国已经非常清楚。我就说过20年了美国从来没有停过，想把这几个独裁国家给消灭掉。
+编译：wenwu
 
-2022年1月12日大直播
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-1-11.jpg)图片来源：justthenews.com
 
-发布： 星谕
+南达科他州（South Dakota）州长克莉丝蒂·诺姆（Kristi Noem）正在提出一项法案，允许雇员在被拒绝豁免接种中共病毒（COVID19）疫苗时起诉雇主。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+诺姆州长周四（27）公布的立法将要求雇主因医疗或宗教原因给予疫苗豁免；还将要求雇主承认自然免疫是一种豁免。雇员必须在申请豁免的180天内提供合格实验室的阳性血清抗体测试证明。根据诺姆法案（Noem Bill），雇主可以要求进行另一次测试以延长疫苗豁免。
+
+诺姆在一份声明中说：“接种COVID19疫苗应该是一种选择，我们应该拒绝试图在美国其他地区看到将我们分成两类的努力：接种疫苗者和未接种疫苗者（承认未接种疫苗的美国人仍然是美国人）。”
+
+诺姆法案将豁免国民警卫队的疫苗授权。五角大楼正在要求所有国民警卫队成员接种COVID-19疫苗，而因违反本法而受到伤害的雇员可以申请禁令和声明性救济，不需要担保，以限制其雇主违反本法。
+
+诺姆去年签署了一项行政命令来限制拜登总统的全面疫苗授权的影响。
+
+**新闻来源：**[justthenews.com] [Noem bill would allow employees to sue over COVID vaccination mandates](https://justthenews.com/nation/states/center-square/noem-bill-would-allow-employees-sue-over-covid-vaccination-requirements) | 发布时间：2022年01月27日
+
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
 
  
 

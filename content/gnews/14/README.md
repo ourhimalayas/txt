@@ -2,44 +2,24 @@
 ---
 
 
-## 中共跪求美国不要离开
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932978/)
+## 关于上合组织地缘政治利益关系(一)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932984/)
 
-作者：纽约香草山农场 文真
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/关于上合组织地缘政治利益关系（一）-.jpg)
+哈萨克斯坦的事情你觉得那么简单吗？七哥告诉你们了吧，我说一定会甩锅美国，七哥是第一个在哈萨克的事情发生之前说这话吧，是蒙的吗？你放看看连外国人都在找我Miles，你太厉害了啊，你看这孙子（王文斌）简直就是我们的代言人，说到这个时候你们再看，这就是马上兑现的事啊，刚才我谈了叛国和卖国的事情，再过几次大直播，我让你们知道叛国卖国的意义是什么?
+塔吉克斯坦，我为什么说塔吉克斯坦，这个塔吉克斯坦的意义是什么？这几十万的哈萨克斯族和中共之间的勾兑是什么？你们要记住，江泽民时代搞了个国际组织叫什么，大家永远别忘了叫上海上海合作组织对了简称上合啊，上合组织2个最牛的人全是我发小同学啊，我同学最牛的一个被抓啊，一个现在已经回家了啊，半死不死的折腾，整个全是江家当年最相信人之一，讲流利的俄语流利的英文，还能讲这个新疆语言，我这哥们，整个过程我都知道，上合组织就是当年江泽民家族的利益，简称叫中亚。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月12日大直播
 
-1月30日，郭文贵先生在盖特视频中连续爆料美国撤离驻北京大使馆后，中共对此事的反应。
+发布： 星谕
 
-据内部战友披露，虽然中共恳求美国不要撤走全部驻北京人员，但美国仍派了多架军事医疗飞机已抵达北京首都机场。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.01.17-PM-1.png)
-
-郭先生爆料，中共昨天和今天无数次地骚扰美国，开出各种优厚条件试图挽留，比如，恢复两国领导人最重要个人关系，落实拜登和习近平的电话视频会议，以及和美国共同面对世界难题、为世界负责。
-
-郭先生评价道，中共对内，在中国人面前是披着羊皮的狼；而在西方面前，却是披着狼皮的羊。中共如此流氓的做法，遭到美国内部人士强烈鄙视。中共的流氓外交和丑陋的国际形象，在国际上丢尽中国人的脸。
-
-参考链接：
-
-1. [1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员…](https://gettr.com/post/pr64pxa8df)
-2. [1月29号：尊敬的战友们好！@1‘55”](https://gettr.com/post/pr8w9h1519)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
-
-总编：文特
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

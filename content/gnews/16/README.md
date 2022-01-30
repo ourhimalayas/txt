@@ -2,37 +2,43 @@
 ---
 
 
-## 有声|脸书的加密货币业务或将失败
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1932976/)
+## 郝海东先生呼吁：不要做中共炮灰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932979/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山农场 文鹰
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月27日，据当地媒体报道，脸书在发现其加密货币项目可能不会成功后，目前正在出售该公司的加密货币业务。
+美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
 
-消息显示，脸书最初试图将这一数字货币项目打造成一个便捷支付业务，其当时还与PayPal、Visa和Stripe等公司具有合作关系。然而，美联储的官员早先对该业务平台是否能为用户提供安全和隐私服务的能力表示怀疑。该官员指出，脸书业务平台的使用者甚至包含了洗钱者和恐怖主义资助者。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.14-PM.png)
 
-据悉，脸书已经计划以约两亿美元的价格将数字货币项目出售给加利福尼亚州的一家与比特币和区块链公司合作的小银行。
+中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.37-PM.png)
+没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
 
-文字版原文：[脸书的加密货币业务或将失败](https://gnews.org/zh-hans/1929421/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.43.54-PM.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
+
+郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
+
+参考链接： [2022.01.29 早《GTV新闻访谈》与郝海东大卫聊聊军队投诚那些事儿01:27:52](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
+
+编辑：Jack Li文阳
+总编：文真
+校正/发稿：我不在这里
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

@@ -2,37 +2,59 @@
 ---
 
 
-## MV版Hcoin To the Moon上线52天第39次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1933069/)
+## 1/30/2022國內經濟財經週報：牛頭熊尾，滬指牛年跌8%;銀監會副主席蔡鄂生被開除黨籍
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1933075/)
 
-1/30/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线52天第39次位列澳门iTunes热门音乐视频榜榜首，第46次位列前三名
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E5%9B%BE%E7%89%871-175.png)圖片來源：搜狐
+**1.****喜幣再次起飛，Hpay 或很快上線**
 
-* * *
+[本周喜幣價格再次起飛。 截止美東時間週五，喜幣價格最高到達49，即將衝擊50關口。 美東週五晚喜聯儲將進行大規模升級維護，喜支付或在農曆新年前正式上線。 如7哥所言，加拿大某位戰友已經用喜幣成功購買私人飛機。 相信在喜支付上線后，戰友們豪車自由或不再是夢想。 隨著美聯儲宣佈其可以和私人的穩定幣進行合作，數字貨幣世界貨迎來翻天覆地的變化。 在機構投資者還未正式入場的今天，喜幣已向全世界展示了其強大的技術力，穩定性和合法性。](https://himalaya.exchange/trading)
 
-[【PDF 下载】Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+注：關於喜幣的價值走向及預測僅代表個人觀點，投資需謹慎。
 
-* * *
+**2.****A股牛年收官：牛年A滬指跌8****%**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_119.jpg)
+[1月28日，A股迎來牛年的最後一個交易日，這一年的A股市場可謂「牛頭鼠尾」，開年的第一個交易日即為全年的最高點。 今日，牛年最後一個交易日，以接近全年低點的行情收官。 另外，A股藍籌指數上證50、滬深300兩指數全年均下跌超20%。 週五早盤，三大指數一度小幅反彈，尾盤再度走弱。 盤面上，通信、數位貨幣、養殖等板塊活躍，旅遊板塊掀起漲停潮。 總體上，個股漲多跌少，兩市超3200隻個股上漲，賺錢效應較好。 上證指數牛年（2021年2月18日-2022年1月28日）年跌8.03%，深成指牛年（2021年2月18日-2022年1月28日）累計下跌16.5%，創業板指牛年（2021年2月18日-2022年1月28日）下跌14.79%。](https://finance.sina.com.cn/stock/jsy/2022-01-28/doc-ikyamrmz7967083.shtml)
 
+**3.****中共中止審查6****0****份IPO**
 
-[【PDF 下载】Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Sunday-30-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+[由於中國證監會對包括中德證券在內的中介機構進行調查，中國證券交易所已停止審查至少60份的首次公開售股（IPO）申請。 據澎湃新聞引述Wind數據顯示，本月26日，創業板和科創板合計61個專案的審核狀態變更為中止審查。 其中，科創板有12家，創業板有49家。 經梳理，這61個專案中，有59家與中德證券、北京市金杜律師事務所以及信永中和會計師事務所等三家保薦機構相關。 報導稱，此次大範圍中止審查，或與樂視網案件相關。](https://www.zaobao.com.sg/realtime/china/story20220128-1237557)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**4.****合生創展股價暴跌3****1%****，普華永道辭任其審計師**
+
+[28日港股早間開盤，合生創展集團開盤報16.34港元，與昨日收盤價持平。 之後，合生股價一度跳水最低下探至11.2港元，跌幅達到31.45%，總市值跌至266億港元。 截止發稿，合生報13.14港元，跌幅達到19.58%;總市值約為312億港元。 從消息面上來看，於1月27日晚間，合生公告，由於公司與普華永道會計師事務所未能就2021財年審計費用達成共識，普華永道於2022年1月20日獲告知，董事會已通過決議要求普華永道考慮辭任公司2021財年核數師。 合生在這則公告中表示，鑒於普華永道無法就集團的若干股權投資及物業專案的會計處理、集團投資物業的估值等重大事項計劃並執行相應的審計程式，故同意其辭任公司核數師一職，並自1月27日起生效。](https://www.sohu.com/a/519551840_100001551)
+
+**5.****銀監會副主席蔡鄂生被開除黨籍**
+
+[近日，日前，經中共中央批准，中央紀委國家監委對原中國銀行業監督管理委員會黨委委員、副主席蔡鄂生嚴重違紀違法問題進行了立案審查調查。 經查，蔡鄂生喪失理想信念，背棄初心使命，政治上徹底蛻變，對黨不忠誠不老實，搞兩面派、做兩面人，濫用金融監管權，嚴重擾亂金融市場秩序，嚴重污染金融領域政治生態，對抗組織審查;無視中央八項規定精神，奢靡腐化，違規收受禮品禮金，接受可能影響公正執行公務的宴請、旅遊和打高爾夫球等活動安排，多次違規出入私人會所;組織觀念淡漠， 不按規定報告個人有關事項;寡廉鮮恥，大搞權色、錢色交易;不正確履行職責，違規干預和插手行政許可事項;目無法紀，”退而不休”，頂風作案，利用職務便利和影響力為他人在融資貸款、專案承攬、職務晉陞等方面謀利，並非法收受巨額財物。](https://news.sina.com.cn/c/2022-01-24/doc-ikyamrmz7069927.shtml)
+
+**6.****聯通被撤銷在美運營許可**
+
+[美國聯邦通信委員會（FCC）1月27日發表聲明宣佈，撤銷中國聯通（美洲）運營有限公司在美提供州際和國際通訊服務的授權。 撤銷令指示中國聯通（美洲）公司在該命令發佈后60天內停止其在美提供的任何國內或國際服務。 這是美國監管機構禁止中國電信運營商繼續在美運營的最新舉措。 FCC的聲明稱：「根據行政當局部門的意見、對該公司在本程式中的答覆的徹底審查、公共記錄以及聯邦通信委員會根據法律進行的公共利益分析，委員會認為今天的行動保障了國家的電信基礎設施免受潛在的安全威脅。 “聲明稱：”2021年3月，FCC發現中國聯通（美洲）公司未能消除對其保留在美國提供電信服務權力的嚴重關切。 因此，委員會通過了一些程式，允許中國聯通（美洲）公司、行政當局部門構和公眾在此問題上提出任何剩餘的論點或證據。 今天，根據FCC的公共利益分析和廣泛的記錄，委員會認為中國聯通（美洲）公司保留其第214條的權力不再符合當前和未來的公共利益、便利和必要性。 ”](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjhtd7ViNb1AhVIm2oFHezRBi8QxfQBKAB6BAgFEAI&amp;url=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E7%25A7%2591%25E6%258A%2580%25E4%25B8%258E%25E6%2596%2587%25E5%258C%2596%2F20220128-%25E7%25BE%258E%25E5%259B%25BD%25E8%2581%2594%25E9%2582%25A6%25E9%2580%259A%25E4%25BF%25A1%25E5%25A7%2594%25E5%2591%2598%25E4%25BC%259A%25E6%2592%25A4%25E9%2594%2580%25E4%25B8%25AD%25E5%259B%25BD%25E8%2581%2594%25E9%2580%259A%25E5%259C%25A8%25E7%25BE%258E%25E8%25BF%2590%25E8%2590%25A5%25E8%25AE%25B8%25E5%258F%25AF&amp;usg=AOvVaw2agC5PXKESKXwH7Qx-lHdO)
+
+**7.****小米再度破發，市值蒸發4****700****億元**
+
+[28日，小米集團繼昨日破發后，股價再度下探，盤中一度跌於3.5%，股價下探至15.88元，同時該股價刷新了近17個月來最低。 目前市值已較最高值蒸發4789億港元，股價較最高值跌去54%。 與股價表現不佳同步的，是去年以來小米煩心事不斷。 去年剛開年，美國政府曾將9家中國企業列入所謂「與中國軍方相關」的黑名單中，其中包括手機製造商小米及飛機製造商中國商飛。 根據相關投資禁令，美國投資者需在當年11月11日前出售所持「黑名單」公司的股份。 受此影響，當時港股開盤后，小米集團股票一度大跌。](https://www.stcn.com/xw/sd/202201/t20220128_4121955.html)
+
+[今年1月5日晚間，小米傳出被印度財政部追繳稅款繳65.3億盧比。 對此，小米回應記者稱，小米在全球範圍內堅持合法合規經營，並遵守經營地的相關法律法規。 小米稱，此次印度有關部門要求小米補繳的是2017年4月1日至2020年6月30日之間與特許權使用費相關的進口環節稅金，與小米近期業務無關，且該官方聲明並非最終結果。 負面消息下，小米業績也面臨挑戰。 2021年第三季度，小米實現營收780.6億元，僅同比增長8.2%;經調整凈利潤51.8億元，同比增長25.4%。 與此同時，小米造車的消息仍言猶在耳。 去年3月小米集團公告稱，公司擬成立一家全資子公司，負責智慧電動汽車業務。 首期投資為100億元人民幣，預計未來10年投資額100億美元。 集團首席執行官雷軍將兼任智慧電動汽車業務的首席執行官。](https://www.stcn.com/xw/sd/202201/t20220128_4121955.html)
+
+**8.****千億房企金科股份突然跌停**
+
+[28日，又一家行業排名前二十的千億房企金科股份突然跌停，此前一天公司債券大幅殺跌27%，出現臨時停牌。 昨日一段公司被討債人衝擊的視頻在網上發酵流傳，28日午間公司通過互動平臺緊急回應稱，所傳播視頻與公司總包建設工程相關，公司正全力配合總包結算，其中涉及的農民工工資均全部足額打入專戶，公司及下屬公司截至目前未出現逾期情況。 2021年三季報來看，金科股份負債總額達到3159億元，剔除預收款負債也仍超1700億元。 就在兩周前，金科股份發生了一次權益變動，隨後公司實控人的女兒減持了近7800萬股，套現超4億元。 1月21日，深交所向金科股份下發關注函，要求說明是否存在通過解除一致行動關係規避股東要約收購義務等情形，並要求26日前回復、披露，但目前為止未見公司公告回復。](https://www.163.com/money/article/GUQDVQ0L00259DLP.html?clickfrom=w_stock)
+
+**9.****恆大或面臨資產出售重組**
+
+[恆大集團因為境外債重組計劃令投資人不滿，星期四在港交所股價再次暴跌;而美聯儲（FED）討論加息也讓其他負債纍纍的中國房企股價下滑，原因是升息將增加這些企業境外融資的成本。 由於中國官方去年起出手整頓房地產行業，限制房地產商借貸，同時迫使開發商減債，特別打擊開發商高槓桿、高負債、高周轉的”三高”運營模式，導致恆大等房地產巨頭迅速陷入現金流危機，多筆巨額債務無法按期兌付，甚至還被迫交叉違約。](https://www.voachinese.com/a/China-property-shares-slump-as-planned-US-rate-hike-adds-to-woes-20220127/6415361.html)
+
+[恆大星期四在港交所早盤暴跌9.6%，隨後跌幅收窄。 收盤報1.71港元，跌幅3.4%。 恆大星期三表示，準備在6個月內發佈一份尊重境外債權人合法權益的全球重組計劃。 華爾街日報引述知情人士的話說，恆大在與境外債權人的一次電話會議上承諾，該重組計劃將遵守法律和法規，也尊重債券持有人的權利，而且在某些情況下，這些權利還包括對公司有境外抵押資產的索賠權。 恆大還在會議上表示，公司創始人兼董事局主席許家印可能會向公司提供進一步的財務支援。](https://www.voachinese.com/a/China-property-shares-slump-as-planned-US-rate-hike-adds-to-woes-20220127/6415361.html)
+
+[但是由於恆大在電話會議上沒有談及任何有關該重組計劃的細節，無法安撫投資人的擔心，因此也造成恆大股價在港交所的進一步下滑。 與此同時，美聯儲星期三召開新年裡的第一次會議，除了維持0.25%的基準利率不變外，還暗示將在3月中旬的會議上加息。 如果屆時付諸行動，這將標誌著美聯儲三年來首次加息，對美國，乃至全球經濟的影響都非常大。 而靠海外融資度日的中國房地產企業也將因為融資成本升高而陷入新的苦惱。](https://www.voachinese.com/a/China-property-shares-slump-as-planned-US-rate-hike-adds-to-woes-20220127/6415361.html)
+
+**10.****騰訊擬將鬥魚私有化**
+
+[據兩位知情消息人士透露，騰訊計劃將鬥魚私有化。 據消息人士說，騰訊希望至少與一家私募股權投資公司合作完成這筆交易，目前正在與投資銀行談判。 騰訊是在納斯達克上市的鬥魚的最大股東，持有鬥魚37%的股份。 其中一位消息人士表示，騰訊計劃在今年完成這筆交易。 鬥魚是騰訊的主要遊戲行銷平臺之一，也是中國第二大視頻遊戲流媒體網站，騰訊將其與更大競爭對手虎牙行合併的計劃於去年7月被監管機構以反壟斷為由阻止后，鬥魚一直在討論其業務戰略。 虎牙也在美國紐約華爾街股市上市。 據消息人士表示，私有化計劃反映出騰訊希望在面臨一系列監管問題之際，能牢牢控制其核心遊戲關聯公司。 他們並稱，自7月以來，鬥魚的股價下滑了60%，市值成為7.17億美元，也意味著這價格對私有化交易有吸引力。](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwiAtbPritb1AhWxkIkEHae1CK4QxfQBKAB6BAgREAI&amp;url=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E4%25B8%25AD%25E5%259B%25BD%2F20220127-%25E8%25B7%25AF%25E9%2580%258F%25E7%25A4%25BE-%25E8%2585%25BE%25E8%25AE%25AF%25E6%258B%259F%25E5%25B0%2586%25E6%25B8%25B8%25E6%2588%258F%25E7%259B%25B4%25E6%2592%25AD%25E5%25B9%25B3%25E5%258F%25B0%25E6%2596%2597%25E9%25B1%25BC%25E7%25A7%2581%25E6%259C%2589%25E5%258C%2596&amp;usg=AOvVaw3MO5lcgCD_G08zhaaQkZPi)
+
+By 【秘密翻譯組-金融組】
 
  
 
