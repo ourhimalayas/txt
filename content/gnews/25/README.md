@@ -2,48 +2,39 @@
 ---
 
 
-## 全世界的卡车司机团结起来反对医疗暴政
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1932919/)
+## 有声|疫苗副作用导致一美国F-35战机在南中国海坠毁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1932999/)
 
-#### **【雅典娜观察】和您一起洞察世界**
-
-整理/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/MYXGU1PFSD82K.png)图片来源：雅典娜设计组
+配音：香草山佛教部 – 李傻
 
 
-当地时间2022年1月28日，据零对冲报道，最早将于周六抵达加拿大首都渥太华的5万名卡车司机们可能会打破最长车队的吉尼斯世界纪录。反对加拿大政府对跨境物流活动的疫苗强制政策，卡车司机组建浩浩荡荡的抗议“自由车队”，正在激励了世界各地的其他人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月25日，据相关媒体消息显示，一架正在南海地区执行演习任务的美国海军 F-35C 战斗机，因其飞行员心肌炎急性发作，在试图降落在卡尔文森号航空母舰的甲板上时坠毁。目前，该事故已造成7名船员受伤。
 
-从加拿大到美国，从澳大利亚到欧洲，卡车司机在全球范围内团结起来抗议各国政府对公共卫生的过度干预，特别是疫苗强制政策。
+报道提及，美军的两个航母打击群共一万四千多名水兵和海军陆战队队员正在南海进行军事演习。其中，这位F-35C的飞行员在起飞前72小时刚刚接种了中共病毒疫苗加强针。然而，返航时，该名飞行员所驾驶的飞机突然撞上了航空母舰的甲板，飞行员则在战机坠海前弹射逃生。
 
-周六来自美国的自由车队也将于数万名卡车司机队伍汇合，以促使加拿大政府废除跨境新冠疫苗护照。
+据了解，这名飞行员在回忆事故经过时提到，他在返航过程中突然感到胸部剧烈疼痛，而该飞行员也在被送医救治后确诊患有急性心肌炎。值得注意的是，这一病症是中共病毒疫苗的常见且可能致命的副作用。
 
-澳大利亚一个名为[“2022年堪培拉官方车队”](https://www.facebook.com/groups/335743718379134)的脸书（Facebook）群组拥有超过66,000名成员，并正准备在1月31日之前组建车队抵达首都堪培拉，以抗议疫苗强制。
+对此，分析人士指出，当前，大量的报道提到了接种过中共病毒疫苗的飞行员在飞行途中生病或直接坠机死亡的事件，而这类灾难性事件不仅会危及飞行员，更会危及数百万将安全托付给航空公司的乘客。虽然联邦政府极力掩盖这些接种过疫苗的飞行员的安全性问题，但其所带来的后续影响或将难以避免。
 
-与此同时，欧洲各地的多个车队正在组织起来，他们将在未指定的日期会合于欧盟总部布鲁塞尔。一个拥有超过14,500名成员的电报群（[Telegram）小组将召集整个非洲大陆的车队在欧盟首都会师。](https://t.me/FreedomEuro)
+文字版原文：[疫苗副作用导致一美国F-35战机在南中国海坠毁](https://gnews.org/zh-hans/1929542/)
 
-欧洲车队是为了取消疫苗护照、没有医疗种族隔离，以及让一大批欧洲官员辞职。那么卡车司机车队是在意大利抗议吗？
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-全球的卡车司机，首先是加拿大，现在是意大利，是的，意大利卡车司机来了，那么，巴西呢？
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-现在一切清晰明了，正如著名播客乔·罗根所言，“加拿大人正在反抗”。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-而世界首富埃隆·马斯克昨天向他的7180万追随者发话，他支持加拿大卡车司机。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-由于卡车司机是任何经济体的心脏，这种趋势可能会发生转变，而卡车司机的集体行动可能会使世界经济重新陷入衰退。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**也许政府会意识到卡车司机所拥有的力量，因为这场运动像野火一样正在全球蔓延，这也是让人民重新获得一些医疗自由并至少结束强制接种疫苗所需要的。**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-新闻链接：[Truckers Across Planet Unite In Convoys Against Medical Tyranny | ZeroHedge](https://www.zerohedge.com/political/truckers-across-planet-unite-convoys-against-medical-tyranny)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,43 +2,28 @@
 ---
 
 
-## 中共跪求美国不要离开
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932978/)
+## 医生插漫画预防奥米克戎感染扩散
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933071/)
 
-作者：纽约香草山农场 文真
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-59.jpg)
+图片来源于本文链接
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+制定过“克服新冠病毒感染说明书”的是诹访中央医院的玉井道裕医生。从去年开始，将“冠状病毒的基本知识、为了防止感染要做的事情等”（通过该院网站）与漫画插图一起整理出来，进行了数次公开。在社交媒体上也经常以“容易理解”的方式扩散开来。
 
-1月30日，郭文贵先生在盖特视频中连续爆料美国撤离驻北京大使馆后，中共对此事的反应。
+1月18日公开的“Omicron篇”开头道:“Omicron是弱毒。没什么大不了的……”并嘱咐了以下信息。
 
-据内部战友披露，虽然中共恳求美国不要撤走全部驻北京人员，但美国仍派了多架军事医疗飞机已抵达北京首都机场。
+“在Omicron的大流行中，世界上还有Omicron更充裕的东西。那是信息。不要太害怕，不要太甜。让我们正确应对！”说明书介绍了大流行奥米克戎的3个因素，以及与美国的情况、三角洲等地的差异，并强调感染力强、潜伏期短等特点，虽然与三角洲相比，重症化的危险较小，但“有人会死亡”。“重症化的概率不是0。这还不至于像‘风’那么轻”，并提醒人们注意，并强调基本的感染对策。“如果这个时期感冒了（in流行地区）→就当得了冠状病毒吧”，“口罩、换气、洗手都是有效的。请避免比现在更紧密的联系”，最后这样诉苦道。“流行病中最可怕的是什么？病毒会变异吗？没有疫苗和治疗药物吗？我个人认为这是没有信息的事情。”如果没有情报，恐惧会加倍增加。为了不让Omicron侵害到心灵，用正确的信息这一‘心灵盾牌’来渡过第6波！”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.01.17-PM-1.png)
+诹访中央医院宣传负责人说:“为了不引起误会，请阅读完整。”
 
-郭先生爆料，中共昨天和今天无数次地骚扰美国，开出各种优厚条件试图挽留，比如，恢复两国领导人最重要个人关系，落实拜登和习近平的电话视频会议，以及和美国共同面对世界难题、为世界负责。
+信息来源：
 
-郭先生评价道，中共对内，在中国人面前是披着羊皮的狼；而在西方面前，却是披着狼皮的羊。中共如此流氓的做法，遭到美国内部人士强烈鄙视。中共的流氓外交和丑陋的国际形象，在国际上丢尽中国人的脸。
+[「パンデミックの中で最も恐いことは…」オミクロン感染拡大、医師がイラストに込めたメッセージ](https://www.buzzfeed.com/jp/kotahatachi/corona-omicron-illustration-faq)
 
-参考链接：
-
-1. [1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员…](https://gettr.com/post/pr64pxa8df)
-2. [1月29号：尊敬的战友们好！@1‘55”](https://gettr.com/post/pr8w9h1519)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
-
-总编：文特
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

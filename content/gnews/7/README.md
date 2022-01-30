@@ -2,50 +2,25 @@
 ---
 
 
-## 有声|1990年的春天 吉他弹唱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1933051/)
+## NewSGman┃疫情新闻全球最新速报（1月30日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933244/)
 
-配音：香草山农场 – 纳米
+撰稿：东京樱花团/NewSGman
 
+**瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-姐姐，今夜我在等你
-那个夏天，那辆火车。带我们去一个地方
-爸爸正在听着汽笛声
-妈妈为你做了白裙子
+瑞典卫生局官员Britta Bjorkholm在新闻发布会上说，根据我们目前所掌握的知识，儿童患严重疾病的风险很低，我们看不到为他们接种疫苗的任何明显益处。
 
-姐姐，今夜我在想你
-我的朋友，他们都老了。只有你，永远十七岁
-我已忘了家乡的春天是什么
-我已忘了你的颜色是什么
-我已忘了他们议论的是什么
-我已忘了明天的我是什么
+瑞典公共卫生局周四在一份新闻稿中说：尽管情况正在被“不断”评估，但他们已决定不建议在2022年春季学期为12岁以下儿童进行中共病毒疫苗的接种。
 
-姐姐，今夜我在恨你
-你的眼睛出卖了我。你的爱毁灭了我
-什么时候我才能忘了你
-什么时候我才能靠近你
-什么时候我才能忘记你
-什么时候我才能靠近你
+加拿大卡车司机聚集渥太华 ，万人聚集国会山抗议呼吁，废除联邦政府疫苗强制令。自由传递车队1月29日抵达渥太华国会山来自全国各地的加拿大民众赶来支持抵制特鲁多政府的联邦疫苗强制令，埃隆·马斯克也在推特上发帖支持。
 
-文字版原文：[1990年的春天 吉他弹唱](https://gnews.org/zh-hans/1930028/)
+盖特链接：[https://www.gettr.com/post/prdim4d67c](https://www.gettr.com/post/prdim4d67c)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
