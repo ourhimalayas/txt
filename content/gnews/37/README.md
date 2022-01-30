@@ -2,77 +2,27 @@
 ---
 
 
-## 有声|致我们的亲人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1933302/)
+## NewSGman┃疫情新闻全球最新速报（1月27日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933461/)
 
-配音：香草山佛教部 – 李傻
+撰稿：东京樱花团/NewSGman
 
+![](https://lh4.googleusercontent.com/ieWRyHAc_qz2NCvfH_T8FOYNLR-9eE61Bb9ej4CIXtDXiFIXfa2F1Izipw9zHuleZWaaohGbcI_kARgzsePplpxXi-iqNmKZ9yvc3Pdp9mUIbhrsygIcNfJUOpHUDY_C-udao2Qr)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-——谨以此文写给每一个因为疫苗灾难、无法回国等等原因，见不到亲人最后一面的你、我、他。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-172-768x471-1.png)
-上天把最亮的光照向了你。
+日本民众在觉醒，要求停止给未成年人接种疫苗️。
 
-用最温柔的方式叫醒梦中的你。
+1月25日据RBC琉球广播电视台报道：冲绳县将于3月开始给儿童接种中共病毒疫苗。本月25日该县的一个由医生和孩子家长组成的民间团体向冲绳县政府提交了一份请求书，要求停止给未成年人接种中共病毒疫苗，因该疫苗的中长期副作用尚不明确 。
 
-我知道那光温柔而温暖，
+该医生家长组成的反疫苗团体在稻田举行了新闻发布会表示“在新冠疫苗的安全性和有效性确定之前，我们将要求暂停未成年人的疫苗接种。”“在接种疫苗的情况下，父母的焦虑没有得到解决，这是一个问题。”
 
-但我，不在。
+日本政府1月21日宣布将允许给5岁以上、12岁以下的儿童接种疫苗。该团体呼吁县政府在中共病毒疫苗的安全性和有效性还未得到证实之前，为儿童接种中共病毒疫苗的问题应该认真考虑，并说在没有解决家长的担忧的情况下进行疫苗接种是有问题的。当涉及到孩子的问题时，民众就不会那么容易被欺骗了，这关乎着日本的未来，今后一定会有更多的家长和医生站出来 。
 
-我的善良不多，只是继承你的所有。
+盖特链接：[https://www.gettr.com/post/pqu7q12e4e](https://www.gettr.com/post/pqu7q12e4e)
 
-你的善良不少，只愿梦醒没有遗憾。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-我的担心很少，因你学会做回自己。
-
-你的担心很多，怕这怕那隐忍一生。
-
-我的快乐很多，因你用心用力呵护。
-
-你的快乐不多，呵护别人忘了自己。
-
-我的悲伤不多，只是充满我的世界。
-
-你的悲伤不少，只愿梦醒再无悲伤。
-
-你拥有这个世界上最温柔，最明亮，最温暖的光芒，那是你用生命燃烧出来的。
-
-我时时刻刻都被这光芒笼罩着，这光将永远在我心中，永远不灭，我今后的路上有它足以为我照亮一切，给我勇气。
-
-我记得住你的美好，你的美丽，你的温暖，你的光芒，不只在脑海里更在心中。
-
-我此生的生命中
-
-再无和你相见美好
-
-相拥的温度。
-
-你从你的梦中醒来
-
-默默的等着我醒来
-
-继承你的美好
-
-传递你的爱
-
-文字版原文：[致我们的亲人](https://gnews.org/zh-hans/1929055/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

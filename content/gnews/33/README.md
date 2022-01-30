@@ -2,16 +2,18 @@
 ---
 
 
-## 樱花头条┃冬奥运动员宣誓视频被爆 “报效领袖豁出去”誓词引哗然
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933401/)
+## NewSGman┃六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933510/)
 
-撰稿：东京樱花团/樱花传媒
+撰稿：东京樱花团/NewSGman
 
-![](https://lh6.googleusercontent.com/iSik_KRs-0Uak8FErZRBAoLURj_-N7e8gF1AZsZW1gXaNJU0fLptfpfP6liAQGR0DVQhQyo-bB_X8ENlpC5EiMYcdDM7hdcyuojHLcyIUttClV1L5jv_fGL_RgP8X8QG6PWI44rw)
+1月24日，郭文贵先生在大直播中表示，要在六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动。
 
-近日，北京冬奧会進入倒计时，中国体育代表团日前在天安門广场宣誓出征，喊出奇葩誓言“报答领袖豁出去”，引发议论热议。
+郭文贵先生指出，比茉莉花革命更高段数的“甜蜜蜜运动”获得了党内及各界人士的支持，习近平的中国梦将成噩梦。甜蜜蜜运动会有中国很多军人、音乐家、医生、律师 教师、知识分子界等有勇气有良知人士参加。
 
-盖特链接：[https://gettr.com/post/ppvbgra60b](https://gettr.com/post/ppvbgra60b)
+信息来源：
+
+[https://www.gettr.com/post/pqf7rj9fd8](https://www.gettr.com/post/pqf7rj9fd8)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

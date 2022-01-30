@@ -2,31 +2,19 @@
 ---
 
 
-## NewSGman┃金融界沼泽地“梵蒂冈”卢森堡将与新中国联邦正式合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933524/)
+## 历史上的音乐教程
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933690/)
 
-撰稿：东京樱花团/NewSGman
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-1月19日，郭文贵先生大直播时透露，金融界沼泽地“梵蒂冈”卢森堡将与新中国联邦正式合作。
+*发布：*Frank2021
 
-卢森堡作为金融界的教皇之地，现在准备和新中国联邦合作，卢森堡是中共洗钱大本营邓家的盗国财就藏匿在卢森堡。
-
-郭文贵先生提出合作前提卢森堡第一必须承认新中国联邦是代表中国人的合法政权国家，第二需为喜币和喜联储提供合法的数字银行牌照。
-
-卢森堡的转变是因为他们相信中共制造了冠状病毒生化武器，相信疫苗是真正的杀人手段，卢森堡选择与代表正义的新中国联邦站在一起。
-
-中共邓家近期动用在卢森堡老钱，购买大量黄金和期货。
-
-此情报证实中共的死期真正将至。
-
-信息来源：
-
-[https://gettr.com/post/pq2k5d217f](https://gettr.com/post/pq2k5d217f)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

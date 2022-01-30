@@ -2,18 +2,40 @@
 ---
 
 
-## 文贵直播 1/30 中共打台湾无关民族国家利益 只会让中国百姓吃草
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1933480/)
+## 疫苗灾难：2022年恐增加6千万心血管病死亡人口
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933674/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-6.jpg)图片来源 GTV
-1月30日，距离中国农历春节还剩2天，但纽约依旧未脱严寒。新中国联邦创始人郭文贵先生在直播中，纵论当前世界政治军事变局的核心风险，用数据和事实分析告诉中国亿万百姓，中共即将进行的台湾之战，只会让人民真正面临吃草的悲惨生活。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月28日外媒报道，根据史蒂夫·冈德瑞博士的全球疫苗后遗症的发展趋势进行推演，2022年因中共病毒疫苗导致的心血管病死亡患者将增加6230万人。
 
-当今全球热点，从加拿大货车司机自由车队万众瞩目，到俄罗斯陈兵乌克兰，直至中共即将把战火烧到台湾。郭先生条分缕析军事、外交、经济错综复杂的联系之后，明确告诉中国人民，打台湾对于民族无必要，对于国家无需要，只是为了中共习皇帝的一己虚荣。但一旦炮响，中国人民至少会有50万子弟成炮灰，15万亿的生活会回到5万亿的石器时代，可怜的中国百姓真的会吃草求活。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-12.jpeg)
 
-如果不能灭共，世界将行走在世纪灾难的边缘。
+史蒂夫·冈德瑞博士在去年11月，发表在美国心脏协会AHA的论文警告说，根据mRNA疫苗第二次接种后的2个月内各种炎症标志物的测量结果，5年内遭受心脏病发作的机率增加一倍以上。
 
-【来源链接】https://gtv.org/broadcast/watch/61f6900896ba5d73e0bee911
+约翰-霍普金斯大学1月22日的全球疫苗接种率最新数据是51.6% ，按照全世界正常的心脏疾病死亡每年890万来进行指数推算，在2022年将额外增加6230万的心血管病死亡。
+
+而这个惊人的数据模型推演出的结果，与泽连科医生接受媒体采访时所披露的75%接种疫苗的人士会在未来三年内死亡相吻合。这是一场全球大屠杀。
+
+参考链接：
+1）[Covid-19 Vaccines are projected to cause 62.3 Million Cardiovascular Deaths in 2022 Worldwide](https://dailyexpose.uk/2022/01/28/covid-19-jabs-projected-cause-62-mil-cardiovascular-deaths-2022/)
+2）[https://gettr.com/post/p7zsan54d1](https://gettr.com/post/p7zsan54d1)
+3）[https://gettr.com/post/pi0ncxa731](https://gettr.com/post/pi0ncxa731)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

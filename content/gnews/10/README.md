@@ -2,36 +2,26 @@
 ---
 
 
-## 中共金融机构将对单位和个人银行账户加大管控
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933689/)
+## 中日财经爆┃大发疫苗血财之后，智飞生物向员工派股
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933737/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日，中共央行发布最新文件称：3月1日起，金融机构将对单位和个人银行账户增加管控，尽职调查客户身份资料以及交易记录，其中有两条规定跟个人存款密切相关：
+撰稿：东京樱花团丨喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-5.png)
+[*图片来源*](https://med.sina.com/article_detail_100_1_65413.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13.jpeg)
+1月28日晚间，智飞生物(300122)发布公告，在当日召开的董事会上，审议并通过了《共同富裕之员工持股计划草案(2022)》，此次计划筹集资金总额不超过16亿元，计划份额合计不超过16亿份，每份额金额为1元。
 
-1、对大额交易、可疑交易、单位或个人身份存疑的，将进行尽职调查，其中大额交易，包括任何账户现金交易超过5万，公户转账超过200万，以及境外私户转账超过20万或境内私户转账超过50万。
+此次智飞生物员工持股计划规定，参加对象总人数不超过2000人。其中，参加其中参加员工持股计划的董、监、高人员共计14人，合计认购份额不超过5.42亿份，占员工持股计划总份额的比例不超过33.88%；其他员工合计认购份额不超过10.58亿份，占员工持股计划总份额的比例不超过66.13%；员工持股计划的参加对象在认购计划份额后即成为计划的份额持有人，资金来源为其合法薪酬、自筹资金和法律、行政法规允许的其他方式。
 
-2、个人现金存取超过5万的，要核实身份，登记资金来源和用途。分析人士指出，在美国授权撤离大使馆之际，中共央行迅速出台了针对个人和企业的账目加强管控的规定，可以明显看出中共自知大限将至，开始努力防止人们弃船逃命，首先就是管住人们的钱。因为现在中共国内但凡开智的中国人都知道HCoin的存在，它特有的稳定币和浮动币结合，以及价值和黄金挂钩的天才设计，注定会成为人们财富安全的避风港。中共与其说是在加强资金管控，不如说就是在防止人们投资HCoin。
+草案指出，员工持股计划的存续期为48个月，自[股东](http://data.eastmoney.com/gdfx/)大会审议通过员工持股计划并且员工持股计划认购之日起计算，存续期满可展期；员工持股计划所涉及的标的股票锁定期届满，且员工持股计划资产均为货币资金时，经管理委员会同意，员工持股计划可提前终止；员工持股计划的锁定期为12个月，自智飞生物公告最后一笔标的股票过户时起算。1月24日晚间，智飞生物已发布公告，预计2021年净利润99亿元~105.6亿元，同比增长200%~220%。
 
-参考链接：
-1）[央行紧急通知！3月1日起，个人银行进账超过这个数将被重点监控！](https://new.qq.com/omn/20220128/20220128A09HVQ00.html)
-2）[https://gettr.com/post/pr7b151231](https://gettr.com/post/pr7b151231)
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：飞虹 
-编辑：文特
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
