@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/30/2022 12:12 AM (UTC)`
+
+1月29号，Hcoin To the Moon MV上线第51天位列澳门🇲🇴iTunesMV榜首🥇，累计共38次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共34次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利,  柬埔寨和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1928543/<br/><br/>Jan 29, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 51 Day of Launch, hit No .1 for 38 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 34 times in total🎉🎉🎉<br/><br/>Hit No.1🥇on Cambodia 🇰🇭 iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, Cambodia and Laos 🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 1/29/2022 10:09 PM (UTC)`
 
 1/27/2022 Miles Guo: I would like to thank the fellow fighter whose Twitter account is "Tai Ping Quan". He was the police officer who handled my case in 1989 and tweeted to clarify many facts about my case. The so-called verdict spread online by the CCP was completely fabricated.<br/><br/>1/27/2022 文贵直播：文贵要感谢这位推特帐号叫“太平犬”的战友，他是1989年办文贵案子的警察并且发推澄清了有关文贵案子的很多事实，中共在网上散布的所谓判决书纯粹是胡编乱造的<br/>
@@ -147,13 +153,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 `@miles 1/28/2022 1:28 AM (UTC)`
 
 1月27号，Hcoin To the Moon MV上线第49天位列澳门🇲🇴iTunesMV榜首🥇，累计共36次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共32次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1918971/<br/><br/>Jan 27，2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 49 Day of Launch, hit No .1 for 36 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 32 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 1/28/2022 1:05 AM (UTC)`
-
-1/27/2022 Miles Guo: The shameless Zhang Gaoli gave Peng Shuai many of the fake artworks and antiques that he received. Peng Shuai has lost her freedom and is under surveillance. The CCP has issued an order to eliminate her after the Winter Olympics.<br/><br/>1/27/2022 文贵直播：不要脸的张高丽把他收到的很多假艺术品和假古董都给了彭帅；彭帅正处于失去自由并处于被监管的状态之中，党下令在冬奥会结束后让她消失！<br/>
-![img](https://media.gettr.com/group38/getter/2022/01/28/01/3b66dc5b-3ae7-00fa-b928-0ef42321b72a/out.jpg)
 
 ---
 

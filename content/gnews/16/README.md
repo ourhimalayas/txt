@@ -2,28 +2,51 @@
 ---
 
 
-## 美国高官将访问立陶宛支持对抗中共国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1930330/)
+## 英国官方数据：儿童接种疫苗死亡率高52倍
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1930526/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-at-18-15-46-Beijings-2022-Winter-Olympic-propaganda-mirrors-Hitlers-1936-efforts2.jpg)图片来源：www.voachinese.com
-据美国之音1月29日报道，美国国务院负责经济增长、能源和环境事务的副国务卿费尔南德斯将访问立陶宛。届时费尔南德斯将与欧盟官员讨论落实一项总额6亿美元的谅解备忘录，拓展美国出口商和立陶宛买家在高科技制造业，商业服务，再生能源等方面的合作机会，以及美国强力支持立陶宛对抗中共国的政治压力和经济胁迫。
+**翻译：不要代表我Kari**
+**校对/编辑：守望黎明**
 
-美国支持立陶宛因台湾问题跟中共国发生的争议。台湾去年在维尔纽斯设立了“驻立陶宛台湾代表处”，而不是通常使用的“台北”之后，北京将中共国和立陶宛的外交关系降为代办级，并敦促跨国公司切断与立陶宛的联系。美国在阻止中共国在全球范围内不断加大的影响力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/儿童1111.jpeg)
 
-中共霸凌台湾很多年，还阻止世界上其他国家与台湾建立任何正式的官方联系，否则就采取政治打击、经济制裁等手段，一副无能的流氓嘴脸。中共窃取政权之后，没有能力搞好经济，提高国民生活水平，一味地盘剥人民、掠夺财富，还试图通过蓝金黄的手段控制全世界。弹丸小国立陶宛不畏强权，公开支持台湾，遭到中共多方打压。美国支持立陶宛的行为无疑是对中共的警告，同时也会带动世界其他国家保持与台湾的关系，孤立中共。
-
-新闻参考链接：[https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html](https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+图片来源：iStock
 
 
-编辑：【英国伦敦喜庄园编辑部】
+英国国家统计局无意中透露出了一个事实——儿童在接种新冠疫苗后死亡率比未接种的高出了52倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+2021年12月20日，英国国家统计局（ONS）公布了一组数据，其中包含2021年1月1日至10月31日期间 “英格兰按疫苗接种状况划分的死亡人数 ”的详细信息。
+
+该数据还包括“按年龄组和疫苗接种状况划分的所有死亡的年龄标准化死亡率”，但是略过了儿童的数据，只包括18岁以上年龄组的数据。
+
+然而，在 “按疫苗接种状况分类的死亡”数据组的表中，英国国家统计局无意中提供了按疫苗接种状况分类的儿童和青少年死亡的全部细节，使我们能够自己计算出死亡率。坦率地说，数据是很吓人的。显然，这也是为什么国家统计局选择将儿童死亡率排除在数据表之外的原因。
+
+根据国家统计局的数据，在2021年1月2日至10月31日期间，在未接种疫苗的10-14岁儿童中，有96人死亡；同一期间内，在未接种疫苗的15-19岁儿童中，有160人死亡。
+
+因此，折算成10万人年死亡率，未接种儿童和青少年中，10-14岁的孩子是4.58人，15-19岁人群是10.08人。
+
+而根据英国国家统计局的数据，计算出的疫苗接种儿童和青少年的10万人死亡率是： 10-14 岁儿童——接种了一针疫苗的是45.12人，两针疫苗238.37人。15-19岁年龄组——接种一针疫苗的是10.08人，两针疫苗32.85人。
+
+这些数字是令人震惊的！接种了一针疫苗的10-14岁的儿童比未接种疫苗的儿童死亡率高10倍，而15-19岁的青少年比未接种疫苗的青少年死亡率高了2倍。
+
+但真正令人恐惧的是接种了第二针疫苗的数据。15-19岁的青少年两针接种的比未接种疫苗的青少年死亡率高3倍，而10-14岁的两针接种儿童比未接种儿童的死亡率整整高了52倍。
+
+实际上，这些数字比初看上去的感觉还要糟糕， 因为在 10-14 岁儿童未接种疫苗的死亡率统计当中，还包括了当时不允许接种的 10 岁和 11 岁儿童的数据。英国疫苗接种和免疫联合委员会是到了最近的2021年12月22日才同意为5至11岁儿童提供疫苗接种的。
+
+因此，如果注射新冠疫苗不是导致儿童过早死亡的原因，那么我们看到的接种疫苗人群的死亡率应该是明显低于未接种疫苗人群，而不是相近的死亡率，更不可能是高出52倍这样的结果。
+
+这个令人瞠目结舌的可怕数据，是足以登上全国的头条新闻的。我们不敢想象，国家统计局下一次公布的会是什么样的数字，因为到那时，2021年10月31日之后开始接种第一针和第二针疫苗的数百万儿童的数据会计入当中。
+
+**原文链接：**[**Official Data shows Children are up to 52 times more likely to die following Covid-19 Vaccination than Unvaccinated Children & the ONS is trying to hide it**](https://dailyexpose.uk/2022/01/29/ons-data-covid-vaccinated-children-52x-more-likely-to-die/)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
