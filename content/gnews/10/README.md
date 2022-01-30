@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥小时候的照片
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930745/)
+## 七哥生下来就是灭共的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930793/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

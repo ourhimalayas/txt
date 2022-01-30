@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥生下来就是灭共的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930793/)
+## 七万多份文件七哥第一天就说是假的（三个关键点）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930843/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

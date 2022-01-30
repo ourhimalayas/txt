@@ -2,30 +2,38 @@
 ---
 
 
-## 新冠大流行促进了私人飞机产业的蓬勃发展
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1930677/)
+## 有声|新中国联邦重大公告 甜蜜蜜运动改变世界
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930671/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-291.png)图片来自网络
-新冠大流行改变了人们传统的生活方式。由于机场对疫苗护照和核酸检测结果的严格检查，以及人们对新冠病毒的恐惧，使很多人减少了出行，各大航空公司损失惨重。然而，新冠大流行却促进了私人飞机产业的蓬勃发展。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月25日，郭文贵先生代表新中国联邦在GTV和盖特平台上向世界发布了重大紧急公告。
 
-越来越多的人正在考虑拥有自己的私人飞机。私人飞机不仅提供了灵活性、私密性、舒适性，还可以不经过机场。这可以使人们放心地跟自己认识的人一起旅行。
+郭先生郑重声明，鉴于中共独裁政权对中国人民犯下的滔天罪行，以及其对文明世界发动的生化战争，爆料革命一直致力于消灭中国共产党。而今，历时五年的爆料和情报让各国政府逐渐认识到了中共的邪恶。其中，中共病毒的溯源、疫苗的真相和经济大危机等重大事件也已经让文明、民主、法治的国家觉醒。
 
-根据摩根士丹利的数据，美国的商务飞机起降量同比增长了40%，达到了自2008年金融危机之前的最高点。在高端行业需求上升和通货膨胀上升的情况下，新飞机和二手飞机的价格都达到了多年来的最高水平。
+此外，郭先生先生还向全世界宣告，美国总统拜登和国务卿布林肯做出了一个重大的政治决定：即日起“授权撤离”美利坚共和国驻北京大使馆。随后，郭先生以新中国联邦创始人的身份向美国总统和国务卿致感谢函。
 
-随着越来越多的人拥有自己的喷气飞机，巨富和名流的旅行模式—私人飞机，已经成为一个大流行的增长产业。
+原文链接：[新中国联邦重大公告 甜蜜蜜运动改变世界](https://gnews.org/zh-hans/1921578/)
 
-二手喷气机的库存，全球待售飞机的数量处于历史最低水平，包括赛斯纳、达索、湾流、庞巴迪和巴西航空工业公司在内的大多数主要喷气机制造商的库存在3%左右或以下，价格也高出20-30%。有些买家面临着长达两年的交货等待期。
+音频处理/发稿：Daxia
 
-诸如庞巴迪环球7500和湾流650这样的远程喷气机可能会有更大的需求，因为它们能够在跨太平洋的航线上飞行。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-一架Phenom 100飞机的起价约为280万美元，而一架庞巴迪环球7500飞机的起价则高达7300万美元。随着私人飞机数量的增加，对飞行支持服务和飞机维修的需求也在增加。
+**更多资讯，更多关注**
 
-信息来源：
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[Better than first class?: travel nerves, pandemic rules prove a winner for private jets](https://www.heraldsun.com.au/business/better-than-first-class-travel-nerves-pandemic-rules-prove-a-winner-for-private-jets/news-story/c1086902f5484aaf62f1f32a882cd931)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[The soaring billionaire economy is squeezing the private jet market](https://www.cnbc.com/2021/11/26/the-rich-are-getting-richer-and-theyre-fueling-a-private-jet-boom.html)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
