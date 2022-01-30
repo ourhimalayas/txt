@@ -2,12 +2,28 @@
 ---
 
 
-## 纽约护士爆料抑菌水被错误混入中共病毒疫苗并给孩子注射
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1933847/)
+## GTV新闻访谈简报|2022年1月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1933902/)
 
-01/26/2022 纽约一名护士爆料，其诊所误将抑菌水作为生理盐水混入中共病毒疫苗，导致一些儿童接种了此疫苗。该事件并没有通报，也不确定抑菌水能否抵消中共病毒疫苗的作用或产生不良影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-30.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2022.01.30早GTV新闻访谈](https://gtv.org/video/id=61f6927e96ba5d73e0bef09f)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-26.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

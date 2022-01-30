@@ -2,30 +2,27 @@
 ---
 
 
-## 疫苗灾难：2022年恐增加6千万心血管病死亡人口
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933674/)
+## 中共金融机构将对单位和个人银行账户加大管控
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933689/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日外媒报道，根据史蒂夫·冈德瑞博士的全球疫苗后遗症的发展趋势进行推演，2022年因中共病毒疫苗导致的心血管病死亡患者将增加6230万人。
+1月28日，中共央行发布最新文件称：3月1日起，金融机构将对单位和个人银行账户增加管控，尽职调查客户身份资料以及交易记录，其中有两条规定跟个人存款密切相关：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13.jpeg)
 
-史蒂夫·冈德瑞博士在去年11月，发表在美国心脏协会AHA的论文警告说，根据mRNA疫苗第二次接种后的2个月内各种炎症标志物的测量结果，5年内遭受心脏病发作的机率增加一倍以上。
+1、对大额交易、可疑交易、单位或个人身份存疑的，将进行尽职调查，其中大额交易，包括任何账户现金交易超过5万，公户转账超过200万，以及境外私户转账超过20万或境内私户转账超过50万。
 
-约翰-霍普金斯大学1月22日的全球疫苗接种率最新数据是51.6% ，按照全世界正常的心脏疾病死亡每年890万来进行指数推算，在2022年将额外增加6230万的心血管病死亡。
-
-而这个惊人的数据模型推演出的结果，与泽连科医生接受媒体采访时所披露的75%接种疫苗的人士会在未来三年内死亡相吻合。这是一场全球大屠杀。
+2、个人现金存取超过5万的，要核实身份，登记资金来源和用途。分析人士指出，在美国授权撤离大使馆之际，中共央行迅速出台了针对个人和企业的账目加强管控的规定，可以明显看出中共自知大限将至，开始努力防止人们弃船逃命，首先就是管住人们的钱。因为现在中共国内但凡开智的中国人都知道HCoin的存在，它特有的稳定币和浮动币结合，以及价值和黄金挂钩的天才设计，注定会成为人们财富安全的避风港。中共与其说是在加强资金管控，不如说就是在防止人们投资HCoin。
 
 参考链接：
-1）[Covid-19 Vaccines are projected to cause 62.3 Million Cardiovascular Deaths in 2022 Worldwide](https://dailyexpose.uk/2022/01/28/covid-19-jabs-projected-cause-62-mil-cardiovascular-deaths-2022/)
-2）[https://gettr.com/post/p7zsan54d1](https://gettr.com/post/p7zsan54d1)
-3）[https://gettr.com/post/pi0ncxa731](https://gettr.com/post/pi0ncxa731)
+1）[央行紧急通知！3月1日起，个人银行进账超过这个数将被重点监控！](https://new.qq.com/omn/20220128/20220128A09HVQ00.html)
+2）[https://gettr.com/post/pr7b151231](https://gettr.com/post/pr7b151231)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文真
-编辑：Jack Li文阳
+总编：飞虹 
+编辑：文特
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -35,8 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

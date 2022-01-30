@@ -2,23 +2,19 @@
 ---
 
 
-## NewSGman┃六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933510/)
+## 国内银行行长在俄罗斯发生的事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933525/)
 
-撰稿：东京樱花团/NewSGman
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-1月24日，郭文贵先生在大直播中表示，要在六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动。
+*发布：*Frank2021
 
-郭文贵先生指出，比茉莉花革命更高段数的“甜蜜蜜运动”获得了党内及各界人士的支持，习近平的中国梦将成噩梦。甜蜜蜜运动会有中国很多军人、音乐家、医生、律师 教师、知识分子界等有勇气有良知人士参加。
-
-信息来源：
-
-[https://www.gettr.com/post/pqf7rj9fd8](https://www.gettr.com/post/pqf7rj9fd8)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
