@@ -2,38 +2,36 @@
 ---
 
 
-## 报道称多国测到奥密克戎变体，但网友表现冷静
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1931561/)
+## 【秘翻在线】如果受到制裁，俄罗斯将可能对美国发动网络攻击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1931647/)
 
-**整理报道：小鱼儿
-编辑：Candy**
+**撰稿：Grace**
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-29-at-11.30.56-PM.jpeg)图片来源：cybernews
+据《福克斯新闻》1月29日报道，一位高级网络安全官员周六警告说，美国与俄罗斯 “已经处于战争状态”，并说美国应该为来自莫斯科的网络攻击做好准备。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/恐吓.png)图片来源：香草山农场
+美国及其北约盟国已承诺，如果俄罗斯以军事主导的入侵行动侵犯乌克兰的主权，这些国家将以迅速和严厉的经济制裁打击俄罗斯。
 
+网络安全公司Ergo的首席执行官R.P.艾迪（R.P. Eddy）说：“如果俄罗斯真的进入顿巴斯（Donbas）地区并挥舞旗帜。。。俄罗斯的下一步行动是什么？”
 
-澳洲当地时间1月29日，据天空新闻（Skynews）报道，至少40个国家检测到奥密克戎的变体BA.2，包括澳大利亚在内，但专家们对大流行病的前景保持乐观。BA.1和BA.2被描述为 “同一家族的兄弟”，它们大部分的基因构成是相同的。
+艾迪认为，俄罗斯“很可能是增加网络攻击”，因为“这对他们来说是一个容易的举动”。
 
-第一次报道是在11月，Omicron的亚变体是欧洲和亚洲部分地区疫情的罪魁祸首，并在美国海岸被检测到。
+“这意味着美国各州和美国私营公司需要非常认真地对待这个问题，” 他强调道。
 
-周五，传染病儿科医生罗伯特·博伊在接受天空新闻采访时说：BA.2病毒 “可能比BA.1病毒株更具有传播性。它与Omicron的关系非常密切，但目前还没有证据表明它的毒性更强，更令人讨厌。”。“我们希望它是相似的（BA.1和BA.2），而且我们认为这是真的。如果你感染过奥密克戎，你对它有交叉免疫力，因为它在基因上是如此密切相似。”同时，博伊博士说，他不相信该亚变体会在澳大利亚引发新冠病例的大幅增加。
+艾迪还警告说：“我们现在已经处于战争状态，我们需要意识到这一点。”
 
-更多的民众正在醒来，以下是网友的评论。
-网友——玛丽：他们在这件事上大肆渲染，以至于失去了所有的可信度。够了，够了！
-网友——澳大利亚人的常识, 多么惊人的……，又是一个变种。这将使政府能够再控制我们的生活6个月。
-网友——霏霏：为什么要炒作和歇斯底里，并继续鼓噪恐惧？人们对这些废话感到非常疲惫。
+报道指出，2017年NotPetya恶意软件对乌克兰关键部门的攻击，包括电网、企业和政府机构。但是，最初作为俄罗斯对乌克兰的疑似攻击的一个组成部分，蔓延到整个欧洲，据说花费了数十亿美元。
 
-参考新闻：[Omicron spin-off variant continues to gain ground in UK, India and Denmark](https://www.skynews.com.au/australia-news/coronavirus/omicron-spinoff-variant-continues-to-gain-ground-in-uk-india-and-denmark/news-story/cda53294a0b2d50157e50bd9d00a695f)
+另一方面，网络安全和基础设施安全局（CISA）局长仁·伊斯特利(Jen Easterly) 说，该机构正 “非常认真” 地对待俄罗斯入侵的威胁和任何波及的影响。
 
-***发布：Candy***
+但她也警告说，不要对迫在眉睫的网络攻击威胁过度担忧。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+CISA负责人说，该机构的首要任务不仅是与美国军方、政府实体和私营企业合作，以最佳方式解决网络安全需求，而且要更好地教育美国人了解持续的网络威胁。
+
+伊斯特利说，采取措施更新软件，更换传统的基础设施，转向安全云和密码管理程序，不仅可以更好地保护政府实体，甚至可以保护普通美国人免受网络攻击的威胁。
+
+**新闻来源：****[Russia will hit US with cyberattack if sanctioned, cyber expert warns: ‘We are already in warfare state’](https://www.foxnews.com/world/russia-cyberattack-sanctioned-cyber-expert-warns)**
 
  
 

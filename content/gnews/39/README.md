@@ -2,31 +2,29 @@
 ---
 
 
-## 叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1930491/)
+## 有声|美台外交新突破 两国副总统首次同场互动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930948/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月28日，台湾副总统赖清德在参加洪都拉斯总统就职典礼时与美国副总统贺锦丽“巧遇”，二人简单互动寒暄，约进行20至30秒交谈。据了解，赖清德就美国对台湾的支持向贺锦丽表示感谢。贺锦丽在台上致词时，也特别向赖清德致意。
 
-据《中央社》1月29日报道，中共国外交部发言人赵立坚在推特发出4张照片，直指这是美国在阿富汗战争中为孩童带来的景象，但该组照片其实拍摄于叙利亚。叙利亚摄影师苏莱曼表示，作品被如此扭曲盗用，非常生气。
+有分析人士指出，正值中美关系敏感之际，赖清德与贺锦丽在洪都拉斯总统就职典礼上寒暄，是台美副元首第一次在国际场合自然互动，被各界视为双方外交的一大突破。
 
-据报道，赵立坚1月24日在推特（Twitter）个人账号发出4张照片，发文写着“After 20 years’ war, this is what the US has brought to the children in Afghanistan”，直指这是美军进入阿富汗20年后造成的结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-38.png)（图片来自自由亚洲电台）
-随后，这些照片的拍摄者——叙利亚摄影师苏莱曼（Ali Haj Suleiman）1月27日在推特个人账号上澄清，这组图片在叙利亚拍摄，图片残破景象是由俄罗斯军队造成的，“这些大大小小的弹壳，是得到俄罗斯支持的叙利亚阿萨德政权，针对叙利亚平民和儿童发动攻击所留下的。”
+文字版原文：[美台外交新突破 两国副总统首次同场互动](https://gnews.org/zh-hans/1927861/)
 
-在苏莱曼澄清的第二天，赵立坚悄无声息地删除了他发的那篇推文。
+音频处理：Fei797
+发稿：Fei797
 
-对此，苏莱曼在28日接受自由亚洲电台访问时表示，他很生气中共国官员没有获得允许就使用这些照片，而且扭曲了事实，赵立坚事后没有做出任何联系，也没有道歉。另外，苏莱曼还揭露，除了赵立坚，另一名中共国外交部发言人华春莹也照抄、发送错误讯息。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-此外，自由亚洲电台引述相关国际研究专家指出，事实查核和外交事务最在乎的是谨言慎行、多交朋友，但这似乎不再是中共这代外交官所讲究的了。他们对内抹黑美国来彰显中共国多好，事实查证根本不重要。
-
-参考链接：
-[https://www.cna.com.tw/news/acn/202201290149.aspx](https://www.cna.com.tw/news/acn/202201290149.aspx)
-
-素材采编：幽蘭自得
-编辑：文顺
-校对：文顺
-发布：文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

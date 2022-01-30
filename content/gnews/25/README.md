@@ -2,49 +2,38 @@
 ---
 
 
-## Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931484/)
+## 中共继用病毒把家变成监狱地狱后又把民警变成狱警
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931596/)
 
-Dr. Peter McCullough recaps 5-hour COVID-19 panel
-Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+澎湃在线2022年1月28日报道：兰州公安再动员再部署机关民警常态化驻守社区工作
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2468-e1643516303101.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2469.png)
+**短评：**
 
-There was a nearly five-hour long panel in the senate focused on the response of the covid pandemic on Monday morning led by Senator Ron Johnson
-周一上午，参议院在罗恩·约翰逊（Ron Johnson）参议员的领导下进行了近五个小时的关于新冠病毒大流行应对问题的小组讨论
+2022年1月28日下午，兰州市公安局专门召开会议，再动员再部署机关民警常态化驻守社区工作。
 
-Here is one America’s John Hines
-这是来自one America的John Hines的报道
+在过去的2021年与2022年整整两年，我们看到了中共作为国际恐怖组织、跨国犯罪集团、反人类罪罪犯、世界邪教黑帮，是如何在全球释放病毒强打毒疫苗以在全世界谋财害命的；看到了中共是如何妄想用生物武器“病毒与毒疫苗”奴役全世界。中共先是将武汉P4实验室的生化武器病毒释放到武汉，随即对武汉进行大封城，以试点对封城的管控效果与能力；在试点成功后将中共病毒生化武器释放到全世界，让全世界得病，给全世界制造困难。然后中共扮演老中医的角色，给全世界开药方打疫苗解决困难，而且是强制打；只是因为当下人们对信仰的缺失对死亡的恐惧对科学教的迷信，中了中共设好的圈套，不知中共开的药方正是毒药，不知疫苗正是毒药。在过去的整整两年中共通过释放病毒把家变成监狱，把人封在家里，如今又把民警驻守监狱一般驻点到了社区。
 
-Wondered if you could share a little bit about your message here with us
-想知道您是否可以在这里与我们分享您的信息
+中共用病毒封城宵禁用强打疫苗限制人们的就学、就医、购物、出行，抹杀人们方方面面的自由；妄想像用网络防火墙一样把中共国老百姓一样，用病毒防火墙疫苗防火墙把全世界老百姓牢牢控制住。
 
-Yeah, my message was that I wanted to see full transparency and full discussion in co-chairing this meeting with Senator Ron Johnson
-好的，我的信息是：我希望在与参议员罗恩·约翰逊共同主持这次会议时看到完全的透明度和充分的讨论
+中共不仅通过在全球释放病毒强打毒疫苗害命谋财，还用蓝金黄手段用强大的国家宣传机器对全世界人民进行事实的歪曲，对全世界人民进行洗脑，颠倒全世界的黑白；通过对14亿肉票死亡人数染病人数毒疫苗发作人数不报道的方式，通过对世界各国网红及群众蓝金黄收买的方式，大肆诋毁美国为首的世界自由文明国家的制度法律优越性，大肆宣扬中共独裁集权无法无天的“合理性”与“合法性”，妄想以此洗脑全世界人民、带全世界的节奏，从而奴役全世界。
 
-I wanted full transparency on early treatment, the suppression of early treatment, the number of lives lost that were all avoidable, the hospitalizations and the tragedy of being in the hospital and the hardship that was avoidable
-我希望（看到）对冠状病毒早期治疗、早期治疗的压制、本可避免的死亡人数、住院和在医院里的悲剧以及本可避免的困难的完全透明 的（讨论）
+甘肃兰州民警常态化驻守社区只是试点，只是刚刚开始，按中共一贯以来的伎俩，接下来我们完全有理由推测中共会将民警常态化驻守社区的做法在全国推行开来，而且不仅是驻守社区，很可能还会招募临时工辅警驻守到居民小区、并且常态化日夜驻守。如果世界人民不觉醒不反抗，接下来中共还会通过蓝金黄手段通过病毒与毒疫苗将政府人员将民警军警常态化驻守到全世界人民的社区小区。
 
-And then I wanted American to hear about vaccine safety, in the lack thereof, and that the scores of individuals who have died shortly after taking the vaccine, the large number of non-fatal injuries now, and the ones that the agencies acknowledge including heart inflammation, neurologic, immunologic, and hematologic injuries
-然后我想让美国人知道疫苗的安全性，在缺乏安全性的情况下，以及在接种疫苗不久后死亡的人数，现在大量的非致命伤害，以及机构承认的包括心脏炎症、神经系统、免疫系统和血液系统损伤在内的伤害
+中共已经用病毒用毒疫苗用核酸检测把全世界人民的家都变成了监狱变成了地狱，接下来又要把民警、军警、辅警变成全世界人民家门口的狱警，变成全世界人民家门口的疯狗，你不听中共的话它就咬你、吃你的肉。千万不要让自己的家变成监狱变成地狱，千万不要让魔鬼中共的民警军警辅警变成监狱地狱的狱警。觉醒吧，人类；觉醒吧，世界！
 
-So, I wanted it to all be up in the open and I am satisfied that American got the correct information today.
-所以我希望它全部公开，我很满意美国人今天得到了正确的信息
+新闻链接：[https://mr.baidu.com/r/AqFcgWoxJS?f=cp&u=00820344abd3114c](https://mr.baidu.com/r/AqFcgWoxJS?f=cp&amp;u=00820344abd3114c)
 
-**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
+文章观点仅代表作者个人，与Gnews平台无关
 
-Date: 1/26/2022
-原视频标题: Dr. Peter McCullough recaps 5-hour COVID-19 panel
-Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
-原视频日期：1/26/2022
-**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
-任务编号：KE371(3608)
-视频时间段 : 0:00-01:00
+素材：洛杉矶盘古农场 — 归去来兮
 
-中听校: 洛杉矶盘古农场 -海潮
-翻译: 洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+评论：洛杉矶盘古农场 — 归去来兮
+
+编审：洛杉矶盘古农场 — 心照
+
+发布：洛杉矶盘古农场 — 子萍
+
+
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
