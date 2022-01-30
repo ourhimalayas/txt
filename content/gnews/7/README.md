@@ -2,30 +2,39 @@
 ---
 
 
-## 躺平币到底是什么
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932934/)
+## 有声|“甜蜜蜜”运动将在各个领域全面开花
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1932965/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![此图像的alt属性为空；文件名为《躺平币到底是什么》-.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E3%80%8A%E8%BA%BA%E5%B9%B3%E5%B8%81%E5%88%B0%E5%BA%95%E6%98%AF%E4%BB%80%E4%B9%88%E3%80%8B-.jpg)
-躺平币肯定是公链，获取不经过人工审核，但是提现需要通过KYC。可能你盖特加v了，根据关注者数量自然而然就到账上，也可能通过大直播获得。
+配音：香草山佛教部 – 李傻
 
-所有的东西都有标准，躺平币如何确定躺平是新中国联邦未来的雏形，根据获得币的数量就是未来系统中的定位。
 
-那怎么兑现呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+郭文贵先生在1月27日的大直播中解析了美国率先撤离驻北京大使馆的重大意义。郭先生指出，“甜蜜蜜”运动将在外交撤馆、宗教抵制、金融制裁和中共高官海外资产查封等各个方面掀起蝴蝶效应。
 
-躺平币第一天就能买面包买油，也能买 GFashion, GClubs躺平币的厉害，现在还不能完全告诉你们，不然你们要一个星期都睡不着了。
+郭先生分析道，美国政府这次“授权撤离”驻北京大使馆的策略在于与中共不断不交。同时，虽然美方给出的理由是软的，但其手段绝对强硬。于美国而言，干掉中共独裁政权不是任何党派的决定，而是出于国家安全的考虑，也是美国20年来的国家战略。如今，美国率先撤馆将起到示范作用，从而引发国际社会对中共的群起而攻之。
 
-只要躺平币出来，共产党就知道自己的棺材板要钉上钉子了。
+郭先生补充道，截至目前，“甜蜜蜜”运动已经带动了全球50多个国家计划从北京撤馆，当中甚至包括了中共所谓的“铁哥们儿”巴基斯坦。而更加令人振奋的是，自1月26日起，一百多个国际金融机构和三十多个国际非政府组织已经开始研究如何配合美国制裁中共高官并查封他们在海外的资产。其中，国际货币基金组织一位德高望重的官员表示，该组织会穷尽一切金融手段惩戒中共政府。
 
-发布：于white
+郭先生最后强调，对于中共政府来说，断交是抽筋，而查封非法资产就是放血。为此，在失去美国认可和经济支撑的情况下，中共政权的溃亡指日可待。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：[“甜蜜蜜”运动将在各个领域全面开花](https://gnews.org/zh-hans/1928546/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,42 +2,37 @@
 ---
 
 
-## 中共虚假同意联合国人权专员访问新疆
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932563/)
+## 英国会外委会预计2月访问台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932640/)
 
-撰稿：纽约香草山-侠肝义胆，Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-据外媒1月27日消息，中共已同意让联合国人权事务高级专员，在北京冬奥会后的今年上半年访问新疆。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2479.png)
-该媒体称，联合国人权组织指责中共在新疆地区对维吾尔人和其他少数民族实施了大规模拘留、酷刑和强迫劳动。从2018年9月以来，联合国人权组织高级专员一直就新疆问题和中共相关部门进行交涉，并要求到新疆独立调查。
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+当地时间1月28日，英国工党国会议员布莱恩特向媒体表示，外交委员会预计在2周后访问台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-18.png)
+据悉，英国近来增高了对台湾的关注度，外相特拉斯、国防大臣华勒斯及秘密情报局局长摩尔等官员都曾在公开场合呼吁各主要国家应重视台海安全及和平稳定的重要性。
 
-但中共一直否认，所有抓捕和虐待新疆少数民族的指控，并拒绝同意联合国人权组织到新疆进行调查。
+英国首相约翰逊近日在回答议员质询时也表示，中共军机侵扰台湾，无助于区域和平的稳定。
 
-据有关消息人士称，中共这次是有条件的同意联合国人权高级专员访问新疆。中共要求联合国人权专员按照其安排“友好”的访问新疆，而不是去调查新疆种族灭绝真相。目前还没有联合国人权组织方面的回应消息。
+据了解，越来越多跨党派国会议员关心台英之间关系的发展，外委会主席图根哈特在去年底一场有关台英关系的听证会中表示，期待很快就能访问台湾，此访问行程将凸显本委员会及国会对英国与台湾关系的重视。
 
-对此，有关分析人士认为，这显然是中共在美国撤出大使馆及扺制冬奥会的巨大压力下，玩耍的一出虚假的政治游戏。妄想让联合国人权组织配合中共到新疆表演一场政治秀，减缓国际压力。
+参考链接：
 
-新闻来源：
+- [英國對台灣關注提升 國會外委會可望2月訪台](https://www.cna.com.tw/news/aopl/202201290010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-[China Agrees to Xinjiang Visit by UN Rights Chief in Early 2022](https://www.newsmax.com/newsfront/china/2022/01/27/id/1054395/)
 
-[China agrees to Xinjiang visit by U.N. rights chief in early 2022–South China Morning Post](https://www.asahi.com/ajw/articles/14534238)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
-
-总编：Irene木木/飞虹
-
-编辑:飞虹
-
-校正/发稿：浪迹天涯
+总编：文特
+编辑：文特
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

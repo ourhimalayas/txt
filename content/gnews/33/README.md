@@ -2,28 +2,28 @@
 ---
 
 
-## 因疫情青少年心理创伤已达国家紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932645/)
+## 拜登与中共签订中共病毒测试剂合同引发强烈不满
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932646/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月26日，戈尔迪·霍恩撰写的专栏文章中表述，中共病毒时代以更真实、更具体的方式改变了孩子们的生活方式。社会疏远、人际隔离、学校关闭。
+美国媒体1月28日报道，拜登政府决定将超过10亿美元的资金授予一家生产中共病毒检测试剂盒的中共公司，引起了国会山共和党人的愤怒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-30.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-33.png)
 
-霍恩研究发现，连续两年的中共病毒，青少年面临的“生存恐惧和创伤”已经超越911，接近美苏冷战时期而达到国家紧急状态，必须予以高度关注。其中四分之一的青少年有抑郁症症状，五分之一的有焦虑症迹象， 2020年因疑似自杀而就诊的女孩人数比2019年高出50% 。
+众议员米歇尔·瓦尔茨说，这是“向帮助救火的纵火犯支付费用”，美国不能依赖中共这样的敌对国家，在与任何中共公司打交道时，所有资金都不可避免地进入中共的腰包，这会极大损害美国的国家安全。
 
-霍恩忧心忡忡地指出，NIH、美国外科医生学会、儿科学会一致认为青少年心理健康状况已达国家紧急情况的水平。青少年一代从中共病毒中幸存下来，却带着残缺不堪的心理进入成年，将会是国家的灾难。
+另有一些议员认为，中共是病毒的发源地，在新冠病毒这件事上没有一丝一毫的透明度。中共应对向世界释放中共病毒负责。拜登政府应该利用和协助美国供应商，而不是从中共那里购买关键物资，这损害了美国的就业机会，是对美国企业的又一次侮辱。
 
 参考链接：
 
-- [Goldie Hawn on COVID Pandemic: ‘We Have Failed Our Children’](https://www.newsmax.com/thewire/goldie-hawn-covid-pandemic-mental-health/2022/01/28/id/1054498/)
+- [‘Paying The Arsonist’: Biden’s COVID Test Contract With China Draws Ire on Capitol Hill](https://freebeacon.com/biden-administration/bidens-covid-test-contract-with-china-draws-ire-on-capitol-hill/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
 总编：Irene木木
-编辑：文特
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
