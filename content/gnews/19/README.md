@@ -2,18 +2,19 @@
 ---
 
 
-## 文贵直播 1/30 中共打台湾无关民族国家利益 只会让中国百姓吃草
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1933480/)
+## 国内银行行长在俄罗斯发生的事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933525/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-6.jpg)图片来源 GTV
-1月30日，距离中国农历春节还剩2天，但纽约依旧未脱严寒。新中国联邦创始人郭文贵先生在直播中，纵论当前世界政治军事变局的核心风险，用数据和事实分析告诉中国亿万百姓，中共即将进行的台湾之战，只会让人民真正面临吃草的悲惨生活。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-当今全球热点，从加拿大货车司机自由车队万众瞩目，到俄罗斯陈兵乌克兰，直至中共即将把战火烧到台湾。郭先生条分缕析军事、外交、经济错综复杂的联系之后，明确告诉中国人民，打台湾对于民族无必要，对于国家无需要，只是为了中共习皇帝的一己虚荣。但一旦炮响，中国人民至少会有50万子弟成炮灰，15万亿的生活会回到5万亿的石器时代，可怜的中国百姓真的会吃草求活。
+*发布：*Frank2021
 
-如果不能灭共，世界将行走在世纪灾难的边缘。
-
-【来源链接】https://gtv.org/broadcast/watch/61f6900896ba5d73e0bee911
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

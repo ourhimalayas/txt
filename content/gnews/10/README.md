@@ -2,69 +2,36 @@
 ---
 
 
-## Covid-19疫苗使儿童死亡率提高52倍 英统计局隐瞒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1933560/)
+## 中共金融机构将对单位和个人银行账户加大管控
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933689/)
 
-编译：wenwu
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月28日，中共央行发布最新文件称：3月1日起，金融机构将对单位和个人银行账户增加管控，尽职调查客户身份资料以及交易记录，其中有两条规定跟个人存款密切相关：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-2-13.png)图片来源：dailyexpose.uk
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13.jpeg)
 
-国家统计局（ONS）在不知不觉中透露，儿童在接种中共病毒（Covid-19）疫苗后死亡的可能性比未接种Covid-19疫苗的儿童高52倍。
+1、对大额交易、可疑交易、单位或个人身份存疑的，将进行尽职调查，其中大额交易，包括任何账户现金交易超过5万，公户转账超过200万，以及境外私户转账超过20万或境内私户转账超过50万。
 
-早在2021年12月20日，国家统计局（ONS）公布了一个数据集，其中包含了2021年1月1日至10月31日期间“[英格兰按疫苗接种状态分类的死亡](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/deathsbyvaccinationstatusengland)”（Deaths by Vaccination Status）的细节：诸如“涉及COVID-19的死亡，按疫苗接种状态划分的月度年龄标准化死亡率”，以及“非COVID-19死亡，按疫苗接种状态划分的月度年龄标准化死亡率”等。
+2、个人现金存取超过5万的，要核实身份，登记资金来源和用途。分析人士指出，在美国授权撤离大使馆之际，中共央行迅速出台了针对个人和企业的账目加强管控的规定，可以明显看出中共自知大限将至，开始努力防止人们弃船逃命，首先就是管住人们的钱。因为现在中共国内但凡开智的中国人都知道HCoin的存在，它特有的稳定币和浮动币结合，以及价值和黄金挂钩的天才设计，注定会成为人们财富安全的避风港。中共与其说是在加强资金管控，不如说就是在防止人们投资HCoin。
 
-另外，ONS的数据集还包括“按年龄组和疫苗接种状况分类的所有死亡的年龄标准化死亡率”，但他们很方便地忽略了儿童的数据，只包括18岁以上年龄组的数据。
+参考链接：
+1）[央行紧急通知！3月1日起，个人银行进账超过这个数将被重点监控！](https://new.qq.com/omn/20220128/20220128A09HVQ00.html)
+2）[https://gettr.com/post/pr7b151231](https://gettr.com/post/pr7b151231)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-3-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-他们在所包括的数据中（如上图1）还做了一件事，就是把所有年轻的成年人集中在一起，这意味着计算的是18-39岁的死亡率，总共跨度是22岁。但是对于其他每个年龄段的人来说，死亡率的计算跨度总共是10岁：有40-49岁，50-59岁等等。
+总编：飞虹 
+编辑：文特
+校正/发稿：谐趣园
 
-然而，在“按疫苗接种状况分类的死亡”数据集的 [Table 9](https://www.ons.gov.uk/file?uri=/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/deathsbyvaccinationstatusengland/deathsoccurringbetween1januaryand31october2021/referencetable31.xlsx) （如下三个图2）中，国家统计局无意中提供了按疫苗接种状况分类的儿童和青少年死亡的足够细节，以便我们自己计算死亡率，直截了当地说，它们是可怕的，并使人明白国家统计局为什么选择将儿童从死亡率数据集中排除；国家统计局为我们提供了儿童和青少年中按疫苗接种状态分类的死亡人数，并友好地提供了人年数，这意味着我们可以按疫苗接种状态计算出10-14岁和15-19岁的每跨度10万人的死亡率。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-4-6.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unknown-5-6.png)
-
-根据国家统计局的数据，在2021年1月2日至10月31日期间，在未接种疫苗的10-14岁儿童中，有96人死亡，在未接种疫苗的15-19岁儿童中，有160人死亡。
-
-国家统计局计算出在此期间10-14岁未接种疫苗的儿童为209.4711万，而他们计算出在此期间未接种疫苗的15-19岁儿童为158.7072万。
-
-为了计算出每跨度10万人的死亡率，我们现在需要做的就是除以10万，然后用死亡人数除以该结果的答案（4.58）。
-
-因此，对于10-14岁的跨度儿童，我们进行以下计算：
-
-2094711/100000=20.94711
-
-96（死亡）/20.94711=4.58
-
-因此，在21年1月1日至10月31日期间，未接种疫苗的10-14岁儿童每10万人的死亡率为4.58人。
-
-通过使用同样的公式，我们发现未接种疫苗的15-19岁儿童的死亡率为每10万人出现10.08例死亡。
-
-现在我们所要做的就是使用同样的公式来计算10-14岁和15-19岁的一剂疫苗接种者和两剂疫苗接种者的死亡率，使用国家统计局在其“按疫苗接种状况分类的死亡”报告的 Table9 中提供的人年数和死亡人数，具体如下图3是根据国家统计局计算的按15-19岁人群的疫苗接种状态计算的死亡率 。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-354-1.png)
-
-如下图4是根据 ONS 计算的 10-14 岁儿童疫苗接种状态的死亡率
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-356-1.png)
-
-这些数字是令人震惊的。国家统计局的数据显示，在21年1月1日至10月31日期间，10-14岁的打了一针的儿童比未接种疫苗的儿童死亡的可能性高10倍，而15-19岁的打了一针的青少年比未接种疫苗的青少年死亡的可能性高2倍；根据统计，15-19岁的打了两针的青少年比未接种疫苗的青少年死亡的可能性高3倍，而10-14岁的打了两针的儿童比未接种疫苗的儿童死亡的可能性高52倍（每10万人出现238.37人）。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-359-1.png)
-
-这个令人瞠目结舌的可怕数据（如上图5）应该成为全国性的头条新闻，我们不敢想象国家统计局的下一次更新会是什么数字，因为它将包括2021年10月31日之后打了第一、二针中共病毒疫苗的数百万英国儿童的数据。
-
-**新闻来源：**[dailyexpose.uk] [Official Data shows Children are up to 52 times more likely to die following Covid-19 Vaccination than Unvaccinated Children & the ONS is trying to hide it](https://dailyexpose.uk/2022/01/29/ons-data-covid-vaccinated-children-52x-more-likely-to-die/) | 发布时间：2022年01月29日
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
