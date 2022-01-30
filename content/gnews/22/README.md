@@ -2,62 +2,77 @@
 ---
 
 
-## Pierre Kory 说我们的COVID政策把利润放在病人前面
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931881/)
+## 美联储主席杰罗姆鲍威尔发表 2022 年货币政策展望
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931957/)
 
-[https://gtv.org/video/id=61f509fbd90bdd2085a2127a](https://gtv.org/video/id=61f509fbd90bdd2085a2127a)
+[https://gtv.org/video/id=61f5e588d90bdd2085a25e85](https://gtv.org/video/id=61f5e588d90bdd2085a25e85)
 
-Pierre Kory says our COVID policies are putting profits ahead of patients.
-Pierre Kory 说我们的COVID政策把利润优先排在病人前面
+Fed Chair Jerome Powell Provides 2022 Monetary Policy Outlook
+美联储主席杰罗姆-鲍威尔（Jerome Powell）发布 2022 年货币政策展望
 
-Sorry, I have to do this, I feel like broken record.
-对不起，我必须这样做，我感觉像破纪录
+I would describe what we’re doing along these lines
+我将描述我们在这些方面所做的事情
 
-But I’m listening to my colleagues (and) call out all the nullities, insanities, and absurdities.
-但我在听我的同事（并且）指出所有的无效、疯狂和荒谬
+This is going to be a year in which we move steadily away from the very highly accommodative monetary policy that we put in place to deal with the economic effects of the pandemic
+今年我们将逐步摆脱为应对大流行的经济影响而实施的高度宽松的货币政策
 
-Ok these departures of our policies from what we know to be scientific truth.
-好吧，我们的政策偏离了我们所知的科学真理
+And that’s going to involve a number of things
+这将涉及到很多事情
 
-Things like denial of natural immunity, we have to understand why the city are pointing finger to doing this wrong, that wrong, why are they doing this.
-诸如否认自然免疫力之类的事情，我们必须了解为什么这座城市会指责这个错误，那个错误，他们为什么要这样做
+It’s going to involve finishing assets purchases
+这将涉及完成资产购买
 
-There could be multiple reasons, the simplest and most easily understandable and approvable is every vaccine, every this, you know this novel pattern to high cost drugs is profits; they are putting profits ahead of patients.
-可能有多种原因，最简单，最容易理解和认可的是每一种疫苗，每一种，你知道这种高成本药物的新模式是利润，他们把利润优先排在病人之前
+It’s going to involve lifting off
+这将涉及提息
 
-You know we can call attention to all of these policies. They are non-scientific,
-你知道我们可以提请注意所有这些政策，它们是非科学的
+and it’s going to involve additional rate increases as appropriate
+并且会酌情增加额外的利率
 
-they are failing and having scientific support.
-它们正在失败，并有科学支持我们的观点
+and we are going to write down in March our next assessment of what that might be
+我们将在３月份进行下一次评估并写出计划
 
-Yet they are been carrying out and being distributed across the country.
-然而，它们一直在执行并分布在全国各地
+It’s going to continue to evolve as the data evolve
+（具体的计划）将随着数据的变化的而改变
 
-And Doctors and states and health departments are willingly accepting these without question, without critical thinking.
-医生、州和卫生部门都愿意毫无疑问地接受这些政策，没有批判性思考
+we need to be quite adaptable in our understanding of this
+对这件事的理解我们需要非常有适应性
 
-And that’s what I want these to be clear and that we’re calling attention to them, this is corruption.
-这就是我希望这些清楚，我们要引起人们注意的地方，这就是腐败
+The last thing we’re going to do is we’re going to have a couple more meetings, and to talk about allowing the balance sheet to begin to run off
+最后我们会举行更多会议，然后讨论允许缩减美联储资产负债表的计划
 
-Plain and simple, it’s corruption.
-清楚而简单，这就是腐败。
+and do so in a predictable manner and that’s something that we will also be doing as appropriate
+并且以可预测的方式，酌情操作
+
+and I don’t think it’s possible to say exactly how this is going to go
+我不认为我们可以确切地说出这将如何发展
+
+and we are going to need to be as I have mentioned nimble about this and the economy is quite different this time
+就像我提到过的那样，我们需要很敏捷，这次经济形势完全不同
+
+I have said this several times now the economy is quite different
+我已经多次说过现在经济完全不一样
+
+It’s stronger, Inflation is higher, the labor market much much stronger than it was and growth above trend even this year, let alone last year
+经济更强劲，通货膨胀率更高，劳动力市场比以前强得多，甚至今年的增长也高于趋势，更不用说去年了
+
+So, all of those things are going to go into our thinking as we make monetary policy.
+因此，在我们制定货币政策时，所有这些事情都将进入我们的思考范围
 
 * * *
 
-Date:01/27/2022
-原视频标题: Pierre Kory says our COVID policies are putting profits ahead of patients.
-Pierre Kory 说我们的COVID政策把利润放在病人前面
-原视频日期：2022/01/24
-原视频链接: [**https://twitter.com/senronjohnson/status/1485723592063131648?s=24**](https://twitter.com/senronjohnson/status/1485723592063131648?s=24)
-任务编号：KE370（3589）
-视频时间段 : 0:00-1:05
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
+Date: 1/26/2022
+原视频标题: Fed Chair Jerome Powell Provides 2022 Monetary Policy Outlook
+美联储主席杰罗姆鲍威尔发表 2022 年货币政策展望
+原视频日期：1/26/2022
+原视频链接: [**https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html**](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
+任务编号：3609
+视频时间段 : 0:00-01:30
+中听校：洛杉矶盘古农场 -海潮
+翻译：洛杉矶盘古农场 – 海潮
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场-恩典
+字幕+视频制作：洛杉矶盘古农场 – 文新战
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

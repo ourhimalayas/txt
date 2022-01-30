@@ -2,26 +2,240 @@
 ---
 
 
-## 郭文贵先生2022年1月29日盖特视频（3分04秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931667/)
+## 每日快报：川普称MAGA是历史上 &#8220;最伟大的政治运动&#8221;
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1931747/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/77-2.png)
-我让东弟颖妹妹把我笑疯了，大卫和草根兄弟啊，这颖妹妹咋过呀，这每天不得笑死你说？真开心。
+*作者：GSeries*
 
-这共产党从昨天到今天，无数的，骚扰美国呀“唉，求求了啊，什么都好谈，我们要共同面对世界问题。两国领导人，恢复两国领导人的所谓的，这个最重要的个人关系，为世界负责啊，落实拜登总统和习主席的电话视频所决定。”
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-哎呀，用美国人的话“这共产党就是一流氓啊。”仰起头就骂娘，低下头又下跪啊，就这帮东西，东弟说的太准确了，自卫还击战，他说的百分之百真实。
+# ***今日摘要***
 
-唉，啥都不说了啊，现在准备明这个后天的春节联欢会呢。我有时间跟大家再聊聊，姆该噻了，嗯，我被他把我笑死了。
+1. **[川普：MAGA是历史上 “最伟大的政治运动”](https://www.newsmax.com/us/conroe-texas-save-america-rally/2022/01/29/id/1054616/)**
+2. **[前疾控中心主任：Fauci撰写的“COVID-19起源的论文”与科学背道而驰](https://www.zerohedge.com/covid-19/former-cdc-director-fauci-shaped-paper-origins-covid-19-antithetical-science)**
+3. **[吉姆-乔丹抨击参议院民主党人试图恢复媒体卡特尔法案的做法](https://www.breitbart.com/tech/2022/01/29/exclusive-jim-jordan-slams-senate-democrat-attempts-to-revive-media-cartel-act/)**
+4. **[中共国大使警告，美国加强与台湾的关系将 “很可能 “导致战争](https://www.zerohedge.com/geopolitical/chinese-ambassador-warns-increasing-us-ties-taiwan-will-most-likely-lead-war)**
+5. [**蓬佩奥：‘将病毒强加于世界’习近平想要‘主宰世界’**](https://gnews.org/zh-hans/1928353/)
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-[郭文贵先生2022年1月29日盖特视频](https://gettr.com/post/pr8w9h1519)
+# 重要事件
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+- **[01.30. NewsMAX：川普：MAGA是历史上 “最伟大的政治运动” Trump: MAGA Is ‘Greatest Political Movement’ in History](https://www.newsmax.com/us/conroe-texas-save-america-rally/2022/01/29/id/1054616/)**
+
+
+前总统唐纳德-川普周六回到德克萨斯州，发誓这个美国最大的共和党领导的州 “永远不会变成蓝色”。”我们的国家很愤怒，我们的国家希望再次受到尊重，”川普在德克萨斯州康罗的最新一次拯救美国集会上说。”你好，德克萨斯州，很高兴回到这个伟大的、美妙的、美丽的州，与成千上万的自豪的美国爱国者在一起，他们相信家庭和自由、上帝和国家。顺便说一句，石油和枪支–与民主党人不同。”
+
+川普为德克萨斯州历史上最大的政治集会人群欢呼，他抛出了写有 “拯救美国”的帽子，与写有 “让美国再次伟大 “的帽子的红色相同，这是他自2016年竞选以来一直标榜的MAGA竞选口号。
+
+“我们的MAGA运动是迄今为止我们国家历史上最伟大的政治运动，我一直在说，他们甚至从来没有–假新闻–他们甚至从来没有质疑过它，因为它从来没有类似的东西，”川普说。
+
+“而你知道它真正代表什么吗？热爱我们的国家，这就是它的全部。我们正在一起对抗我们的人民所见过的一些最险恶的势力、根深蒂固的利益和恶毒的对手–可以说我们的国家从来没有见过这样的事情。但是，无论这些腐败的激进分子有多大、多强大，你们永远不要忘记我们的国家不属于他们。我们的国家是属于你们的。这是你的家。这是你的遗产。而我们的美国自由是上帝赋予你们的权利。”
+
+- **[01.30. ZeroHedge：前疾控中心主任：Fauci撰写的关于“COVID-19起源的论文 “与科学背道而驰 Former CDC Director: Fauci-Shaped Paper On Origins Of COVID-19 ‘Antithetical To Science’](https://www.zerohedge.com/covid-19/former-cdc-director-fauci-shaped-paper-origins-covid-19-antithetical-science)**
+
+
+安东尼-福奇博士悄悄形成的一篇论文中提出，引起COVID-19的病毒肯定不是来自实验室，这种说法被其他科学家引用，他们称实验室的想法是 “阴谋论”，这种说法 “与科学背道而驰”，一位前疾病控制和预防中心主任说。
+
+“科学的目的是对不同的假说进行严格的辩论“。在我的生活中，我从来没有真正经历过科学家之间的私人电话，他们决定集体采取什么立场，然后看到这个立场发表在像《柳叶刀》这样的科学杂志上，说像我这样有不同科学假说的人，在某种程度上必须被打倒，被视为阴谋家，这真的与科学背道而驰，”该机构负责人罗伯特-雷德菲尔德博士在2021年1月20日前在福克斯新闻上说。
+
+最近公开的电子邮件显示，美国国家过敏和传染病研究所（NIAID）所长Fauci在塑造《自然》杂志2020年初发表的一篇论文中发挥了关键作用。这些作者中的大多数人与Fauci反复通信，在论文发表前不久加入了他的电话会议，并在此后从Fauci的机构获得了数百万美元，他们声称他们的分析 “清楚地表明SARS-CoV-2不是一个实验室构造或有目的地操纵的病毒。”
+
+《自然》杂志的文章是生态健康联盟创始人Peter Daszak和另一组科学家在后来发表在《柳叶刀》上的文章中引用的文章之一。达斯扎克写道：”我们站在一起强烈谴责暗示COVID-19没有自然来源的阴谋论，”他的小组从福奇的机构向中国武汉的科学家和其他作者输送资金。许多专家后来承认没有明确的证据表明CCP病毒有自然来源，一些人说大部分证据表明它来自武汉的那套实验室。
+
+- **[01.29. Breitbart：独家：吉姆-乔丹抨击参议院民主党人试图恢复媒体卡特尔法案的做法 EXCLUSIVE: Jim Jordan Slams Senate Democrat Attempts to Revive Media Cartel Act](https://www.breitbart.com/tech/2022/01/29/exclusive-jim-jordan-slams-senate-democrat-attempts-to-revive-media-cartel-act/)**
+
+
+众议院司法委员会排名第一的共和党成员吉姆-乔丹（Jim Jordan）今天出现在SiriusXM的Breitbart News Saturday与Matt Boyle的节目中。乔丹议员抨击了参议院民主党人试图恢复《新闻业竞争和保护法》的做法，该法案去年未能在他的委员会获得通过。
+
+博伊尔说：”本周让我眼前一亮的是，参议院司法委员会反垄断小组委员会宣布，他们将就这项名为《新闻业竞争和保护法》的法案举行听证会。“
+
+“你在众议院领导了反对这个法案的斗争，它没有在众议院通过，甚至没有在去年通过它的委员会。他们试图恢复它……这个法案将创建一个反托拉斯豁免，就像美国职业棒球大联盟有一个反托拉斯豁免一样，这样大媒体公司就可以与大科技公司进行集体谈判。”
+
+“这不是关于竞争和维护竞争，”乔丹议员说，”这是在创造一个卡特尔，这是在报纸业务中创造一个欧佩克。”
+
+“你认为让《纽约时报》和《华盛顿邮报》勾结起来会真正帮助保守派，会真正帮助第一修正案，帮助言论自由，阻止审查制度吗？”
+
+“回到2020年总统选举前的一个月，看看大媒体是如何与大科技公司勾结，不让美国人民知道头号新闻，也就是关于亨特-拜登和他与外国的关系，以及它与拜登总统和大人物以及其他人的关系，”乔丹继续说。
+
+这位俄亥俄州共和党人接着讨论了众议院司法委员会对该院版本的《联合公报》举行的听证会，其中独立记者对该立法表示关切。
+
+- **[01.30. ZeroHedge：中共国大使警告，美国加强与台湾的关系将 “很可能 “导致战争 Chinese Ambassador Warns Increasing US Ties With Taiwan Will “Most Likely” Lead To War](https://www.zerohedge.com/geopolitical/chinese-ambassador-warns-increasing-us-ties-taiwan-will-most-likely-lead-war)**
+
+
+中共驻美国大使周五警告说，华盛顿对台湾越来越多的支持可能最终导致美国和中国之间的战争。
+
+秦刚称台湾问题是 “中国和美国之间最大的火药桶”。他说，台湾和中国大陆的人民是 “同胞”，不想打仗，但由于台湾 “正在努力走向独立……中国不会承诺放弃非和平的统一手段，因为这是一种威慑。”
+
+从川普政府时期开始，美国一直在采取措施，增加与台湾的军事和外交关系。2020年8月，特朗普派时任卫生部长阿扎尔访问台湾，使他成为自1979年华盛顿与台北断绝外交关系以来访问该岛的最高级别美国官员。
+
+秦刚说，美国正在为台湾的独立力量 “壮胆”。”他在接受美国国家公共广播电台采访时说：”如果台湾当局在美国的鼓动下，继续走独立的道路，很可能会使中国和美国这两个大国卷入军事冲突。
+
+- [**01.30. GNEWS：蓬佩奥：‘将病毒强加于世界’习近平想要‘主宰世界’**](https://gnews.org/zh-hans/1928353/)
+
+
+迈克·蓬佩奥(Mike Pompeo)说，中国领导人习近平想要“中国共产党霸权主义主宰世界”，他警告说，中国共产党的崛起可能会破坏自二战结束以来建立的国际秩序。“这不是中国的坦克师出动台湾的问题”，蓬佩奥说，“这是关于其在全世界范围内增加政治权力和影响力的问题。
+
+蓬佩奥曾担任中央情报局局长，后来在唐纳德·川普(Donald Trump)总统政府担任国务卿，他在2022年阿格斯美洲原油峰会上发表了上述言论。他说，他在担任中央情报局局长期间，正值美国不得不把注意力从恐怖主义转向其他威胁，其中首要的威胁就是中共。他补充说，有关他眼中的中国共产党的野心，一场“全球觉醒” 正在发生。
+
+蓬佩奥说：“这大部分要归功于习近平。天那，他把病毒强加给世界，并拒绝让任何人去弄清楚它的来源。”
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/04/s48.jpg)
+# 更多要闻链接
+
+1. [满眼都是敌情 北京设法转移注意力](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220129-%E6%BB%A1%E7%9C%BC%E9%83%BD%E6%98%AF%E6%95%8C%E6%83%85-%E5%8C%97%E4%BA%AC%E8%AE%BE%E6%B3%95%E8%BD%AC%E7%A7%BB%E6%B3%A8%E6%84%8F%E5%8A%9B)
+2. [“中国与新冠”：冬奥新闻工作成为艰巨任务](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E4%B8%8E%E6%96%B0%E5%86%A0%E5%86%AC%E5%A5%A5%E6%96%B0%E9%97%BB%E5%B7%A5%E4%BD%9C%E6%88%90%E4%B8%BA%E8%89%B0%E5%B7%A8%E4%BB%BB%E5%8A%A1/a-60597677)
+3. [北京冬奥前安保紧绷 疫情与维稳双重挑战](https://www.voachinese.com/a/beijing-escalates-control-measures-over-virus-and-dissidents-as-winter-games-approaches-20220129/6417815.html)
+4. [北京为冬奥向华盛顿开呛，2022美中关系料难有缓](https://www.voachinese.com/a/us-china-row-over-beijing-olympics-20220127/6416298.html)
+5. [朝鲜疑似进行了远程弹道导弹试射](https://www.voachinese.com/a/n-korea-conducts-possible-long-range-missile-test-20220129/6418613.html)
+6. [中共暗地里要求返乡民众必须做核酸检测](https://gnews.org/zh-hans/1927303/)
+
+
+# 每日推特文摘
+
+
+
+谁是杨狈狈？ Who is Isobel Yeung?
+
+
+
+
+
+> Who is Isobel Yeung? [pic.twitter.com/bsMFfjIlaT](https://t.co/bsMFfjIlaT)
+> — Marvin (@MarvinCA1013) [January 28, 2022](https://twitter.com/MarvinCA1013/status/1487163348827389959?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+CCP在美国撤离大使馆实施前疯狂洗地🤣🤣🤣
+案板上的肉被暂时放回冰箱就这么开心？肉放久了，不新鲜，调理就不会再是整体清蒸，而是切块切丝加足调料大火烹制
+澎湃新闻路子野，战友的大直播截屏也敢用？
+
+
+
+
+
+> CCP在美國撤離大使館實施前瘋狂洗地🤣🤣🤣
+> 案板上的肉被暫時放回冰箱就這麼開心？肉放久了，不新鮮，調理就不會再是整體清蒸，而是切塊切絲加足調料大火烹制
+> 澎湃新聞路子野，戰友的大直播截屏也敢用[@caogenxiaogex](https://twitter.com/caogenxiaogex?ref_src=twsrc%5Etfw) [https://t.co/Q1lwET0rwV](https://t.co/Q1lwET0rwV) [pic.twitter.com/jQe5jhlWfs](https://t.co/jQe5jhlWfs)
+> — Andy5 (@andy5\_123) [January 29, 2022](https://twitter.com/andy5_123/status/1487297042129252352?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+“我们不会再接受它了”！
+今天渥太华的大规模抗议， 反对医疗暴政， Vaxx 授权和 Vaxx 通行证， 从议会山蔓延到周围的街道
+加拿大人此举改变了我以前对他们的印象！加油💪💪💪
+
+
+
+
+
+> “我们不会再接受它了”！
+> 今天渥太华的大规模抗议， 反对医疗暴政， Vaxx 授权和 Vaxx 通行证， 从议会山蔓延到周围的街道
+> 加拿大人此举改变了我以前对他们的印象！加油💪💪💪 [pic.twitter.com/kWD42EX3qj](https://t.co/kWD42EX3qj)
+> — The last straw (@starstuded11) [January 30, 2022](https://twitter.com/starstuded11/status/1487583244824498177?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+加拿大卡车司机是英雄!
+我们爱你们!
+我们的心都被你们的勇敢所感动❤️❤️👍👍
+
+Canadian Truckers are heroes!
+We love you guys!
+Our heart are touched by your brave❤️❤️❤️👍👍👍
+
+
+
+
+
+> Canadian Truckers are heroes!
+> We love you guys! 
+> Our heart are touched by your brave❤️❤️❤️👍👍👍 [pic.twitter.com/nRbmFCL9Ie](https://t.co/nRbmFCL9Ie)
+> — 安平 Emma(新生号） (@PingRyan2016) [January 30, 2022](https://twitter.com/PingRyan2016/status/1487636483154628609?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+川普在 #拯救美国 的集会上。”今年11月，你们必须把这些疯狂的疯子赶下台。”
+
+Trump at #SaveAmerica rally: “This November you have to throw these raving lunatics the hell out of power.”
+
+
+
+
+
+> Trump at [#SaveAmerica](https://twitter.com/hashtag/SaveAmerica?src=hash&amp;ref_src=twsrc%5Etfw) rally: "This November you have to throw these raving lunatics the hell out of power."[#TrumpRally](https://twitter.com/hashtag/TrumpRally?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/566cjfyCJt](https://t.co/566cjfyCJt)
+> — Newsmax (@newsmax) [January 30, 2022](https://twitter.com/newsmax/status/1487636690973827074?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Hpay 还有几十个小时就要上线啦🎉🎊这是给所有正义勇敢善良的新联邦人最完美的礼物🎁
+2022新年我们是全球最幸福快乐的人
+没有之一😎
+
+
+
+
+
+> Hpay 还有几十个小时就要上线啦🎉🎊这是给所有正义勇敢善良的新联邦人最完美的礼物🎁
+> 2022新年我们是全球最幸福快乐的人
+> 没有之一😎 [pic.twitter.com/kW8TGpJY2q](https://t.co/kW8TGpJY2q)
+> — 草根小哥（新号） (@caogenxiaogex) [January 30, 2022](https://twitter.com/caogenxiaogex/status/1487640388043419649?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*编辑：GSeries
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

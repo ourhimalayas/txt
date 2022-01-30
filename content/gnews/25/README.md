@@ -2,53 +2,26 @@
 ---
 
 
-## 疫苗导致美军流产、癌症和神经系统疾病暴增
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1931769/)
+## 中日财经爆┃中国制造业PMI因经济活动放缓和防疫实施而下降
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931945/)
 
-作者：纽约磐石农场—在远方
+撰稿：东京樱花团丨盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2476.png)[*图片来源*](https://s.wsj.net/public/resources/images/S1-GY255_0731ch_M_20200731005031.jpg)
+据彭博社消息：衡量中国制造业活动的一项政府指数在1月有所下降，但仍高于50大关，这是经济扩大或收缩的重要指标。经济活动的季节性放缓、中共（新冠）病毒感染激增、以及住房销售疲软都对商业活动产生了影响。
 
+根据国家统计局的数据，1月份制造业采购经理人指数（PMI）为50.1，勉强高于彭博社汇编的经济学家预测中值50。涵盖建筑业和服务业的非制造业PMI降至51.1，但略高于市场预期。
 
+因工人回家过中国新年假期，中国的制造业活动通常在1月和2月放缓。 今年，它还受到政府命令钢厂在2月4日北京冬奥会开幕前削减产量以减少空气污染的影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-47.jpg)
+除了房屋销售的下降，消费也受到了为遏制奥密克戎扩散而出台的限制性措施的打击。
 
+同日财新网公布制造业采购经理人指数PMI在1月份降至49.1，是近两年来的最低水平。
 
+信息源：[**中国製造業ＰＭＩが低下、季節的な活動鈍化やコロナ対策の影響で**](https://news.yahoo.co.jp/articles/3abce2c6e51552a938c66a7453cf5577084e2b12)
 
-盖特消息，当地时间1月24日，律师托马斯·伦茨告知由参议员罗恩·约翰逊领导的关于中共病毒疫苗和治疗方案小组称，根据三名举报人提供的数据显示，中共病毒疫苗正在对美军成员造成灾难性伤害，而且无法阻止他们感染中共病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-67.png)
-伦茨律师总结了从美国国防医学流行病学数据库获得的数据，该数据显示，2021年的流产率比五年前增加了300%；2021年的癌症率比五年前平均水平增加了300%；2021年的神经系统疾病比五年前增加了1000%；一年内从82000起，暴增到863000起。
-
-伦茨告诉专家组，来自DMED、国防部军民综合健康数据库、以及医生爆料者的情报表明，自2021年9月以来，美国国防部和美国疾病控制和预防中心一直扣留着中共病毒疫苗监测数据。他强调说，美军士兵正在接受试验，他们会受伤，甚至可能会被杀。
-
-参考来源：
-
-1.[COVID Vaccines Causing Miscarriages, Cancer and Neurological Disorders Among Military, DOD Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-miscarriages-cancer-neurological-disorders-military/?itm_term=hom)
-
-2.[https://gettr.com/user/dczhengjingquan](https://gettr.com/user/dczhengjingquan)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Jan-18.png)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-49.jpg)
-
-
-
-
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
