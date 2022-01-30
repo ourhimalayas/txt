@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党不是沼泽地的主角，也必死无疑
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931866/)
+## 疫苗对人类的大冲击
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931921/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

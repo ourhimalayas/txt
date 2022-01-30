@@ -2,24 +2,49 @@
 ---
 
 
-## 中日财经爆┃软银集团副总裁兼首席运营官辞职
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931615/)
+## 中共国的微博警告用户不要发布冬奥会内容
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1931735/)
 
-撰稿：东京樱花团丨百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2471.png)[*图片来源*](https://res.cloudinary.com/allwork-space/images/v1643390656/wordpress/Marcelo-Claure-Will-Step-Down-As-COO-Of-SoftBank/Marcelo-Claure-Will-Step-Down-As-COO-Of-SoftBank.jpg)
-软银集团（SBG）28日宣布，负责监管海外业务的副总裁兼首席运营官（COO）马塞洛-克劳尔（Marcelo Claure）已离开公司，详细原因没有说明。据欧美媒体报道称，在报酬和权力问题上与董事长兼社长的孙正义存在分歧。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2474.png)资料图
+2022年1月28日《今日德州新闻网》发布，上海（路透社）—在中共国相当于推特的微博，周五向用户发送了一条信息，警告他们，不要发布转播权所有者拥有的北京冬奥会的相关内容。
 
-据西方媒体报道，克劳尔要求孙正义提高报酬，并使他领导的拉美投资基金独立，他们未能达成协议。2020年马塞洛-克劳尔的薪酬为17.95亿日元。
+该平台拥有超过5.7亿月度活跃用户，平台在官方账户发布通知，并直接向用户发送了消息，无论他们过去是否发布过奥运内容。
 
-克劳尔来自南美洲的玻利维亚，2014年他在美国创办的一家手机销售公司出售给SBG后，成为该集团的一员。同年，他被任命为当时由SBG控制的Sprint（现在的T-Mobile US）的CEO，并改善了其业绩。因他的业务能力，自2018年以来一直担任SBG的副总裁兼首席运营官。
+该平台在通知中称，中共国家广播公司CCTV拥有在中国大陆（包括澳门）独家播报2月4日至20日比赛的权利，未经CCTV同意的内容转贴，即是侵犯了这一权利。
 
-包括克劳尔在内的三名SBG副总裁曾一度被视为孙正义的潜在继任者，其中一位曾担任高盛证券高管的佐护胜纪已于去年3月离职。随着克劳尔的离开，唯一剩下的副总裁是拉吉夫-米斯拉（Rajeev Misra），他负责公司的主要业务——新兴公司的投资基金。
+“在这种情况下，微博将应版权所有者的要求，采取诸如删除和屏蔽可能发布的侵权、禁止内容，以及其它严重违法者等措施。你将会受到处罚。”
 
-信息来源：[**孫正義氏と報酬増額交渉、折り合い不調か…ソフトバンクＧのＣＯＯが退任**](https://news.yahoo.co.jp/articles/8a734e9c5e69bb4478cddd9bdeea846925303843#:~:text=%E3%83%88%E)
+“以文明、合法的方式参与、互动、传播奥运内容，支持中国运动员！”
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+国际奥委会表示，它严格保护奥运会的转播权，即使是运动员也不允许在社交媒体上分享视频。
+
+在东京奥运会期间，牙买加的短跑双料金牌得主伊莱恩·汤普森·赫拉(Elaine Thompson Hera)在向31万名关注者发布了100米和200米比赛的获胜视频后，被Instagram暂时禁封.
+
+脸书发言人后来表示，汤普森·赫拉发布的内容已从脸书旗下的Instagram上删除，但被错误的使用了暂停。
+
+周五，许多微博用户拿该平台传达这一通知的方式开玩笑。“它吓到我了。起初我以为我做错了什么”一位用户说。
+
+简评:
+
+中共为了冬奥会不惜花费千亿,以求外国元首来站台。它们不让大家发布冬奥信息，其本质不是所谓“广播版权”问题,而是“话语权”问题.。微博的此番通知，充分维护了CCTV独家播报权利，从而保障只有中共喉舌一个声音、一个论调，保持将民众噤声。对内继续营造“盛世空前”假象，对外继续输出谎言。不明真相的“粉红”因此被蒙蔽，但总有人会从这些反常的举动中看出异常，思索并逐渐觉醒，探索真相。
+
+新闻链接：[https://texasnewstoday.com/weibo-in-china-warns-users-about-posting-content-for-the-winter-olympics/622686/](https://texasnewstoday.com/weibo-in-china-warns-users-about-posting-content-for-the-winter-olympics/622686/)
+
+翻译/简评: Victory(木先生)
+
+PR：Julia Win
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

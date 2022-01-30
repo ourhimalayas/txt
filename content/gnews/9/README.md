@@ -2,19 +2,22 @@
 ---
 
 
-## 七哥包容不了说假话还有傻人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931882/)
+## 2021年日本网络犯罪创新高，首次超过10,000起
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931949/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团丨百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2475.png)[*图片来源*](https://news.yahoo.co.jp/articles/e648a82f3335668aaa717152ebb5ec1c10e69698/images/000)
+日本警察厅1月28日宣布，2021年警方侦破的网络犯罪，包括未经授权的访问，比前一年增加了2400起，达到12275起。
 
-*发布： tianzhihuan*
+这是连续第七年的增长。过去，增长率和前一年相比最多在8%左右，2021年增长率急剧上升达到了24.3%。警察局（NPA）认为，这是由于中共病毒爆发后，日常生活数字化进程加快，电子支付服务和其他服务的扩展所引发的。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+网络攻击可疑的访问量平均每天7335.0次（临时值），比上年增长了12.7%，创历史新高，自2017年以来的过去五年里翻了4番，威胁越来越严重。
 
+信息来源：[**サイバー犯罪摘発、過去最多　24.3％増で初の1万件超**](https://news.yahoo.co.jp/articles/e648a82f3335668aaa717152ebb5ec1c10e69698#:~:text=%E3%83%88%E)
+
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
