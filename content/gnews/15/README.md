@@ -2,44 +2,54 @@
 ---
 
 
-## 魁北克省媒体四位大腕主持人受到2022自由车队卡车司机的抗议
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1931397/)
+## Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931484/)
 
-2022-01-29
+Dr. Peter McCullough recaps 5-hour COVID-19 panel
+Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/01/A29HIO4G756WZD56.png)图片来源：TVA Nouvelles, 蒙特利尔日报（2022 年 1 月 28 日）一名抗议者大发脾气，视频片段摘录（从视频中不难看出记者流露出略带惭愧的表情）[视频来源：TVA Nouvelles, 蒙特利尔日报（2022 年 1 月 28 日），中文字幕添加：16626](https://discord.com/channels/725361984450854992/932482533273260092/937182092146638848)
-蒙特利尔日报, 2022 年 1 月 28 日，发表一篇题为《卡车司机车队：抗议者恐吓记者》的文章报道，支持自由车队的抗议者恐吓了周五进行现场报道的记者。随着公民对卫生措施的愤懑情绪日益高涨，针对新闻工作者的难以接受（令人难堪）的评论，以及针对媒体工作者的人身威胁和侮辱越来越多。
+There was a nearly five-hour long panel in the senate focused on the response of the covid pandemic on Monday morning led by Senator Ron Johnson
+周一上午，参议院在罗恩·约翰逊（Ron Johnson）参议员的领导下进行了近五个小时的关于新冠病毒大流行应对问题的小组讨论
 
-我们的记者卡里安·布拉萨（Kariane Bourassa）是遭受示威抗议者愤怒地谴责的记者之一。布拉萨说，她在两个小时内听到了二十到三十次（对她的）侮辱的言语。
+Here is one America’s John Hines
+这是来自one America的John Hines的报道
 
-#### （你们的报道）从来都不是事实
+Wondered if you could share a little bit about your message here with us
+想知道您是否可以在这里与我们分享您的信息
 
-“我们不想看到你带着你的狗屎在这里,你每天都在电视上胡说八道,你就是（我们要抗议的）问题的一部分。这（你们的报道）从来都不是事实,它（你们的报道）总是偏离（事实）的,（你们）每月有 3000 万条广告，（你们）大概还有奖金！快点滚开，我们不想见到你”，一名抗议者对记者大发脾气。
+Yeah, my message was that I wanted to see full transparency and full discussion in co-chairing this meeting with Senator Ron Johnson
+好的，我的信息是：我希望在与参议员罗恩·约翰逊共同主持这次会议时看到完全的透明度和充分的讨论
 
-#### （从视频中不难看出记者流露出似乎是略带惭愧的表情）
+I wanted full transparency on early treatment, the suppression of early treatment, the number of lives lost that were all avoidable, the hospitalizations and the tragedy of being in the hospital and the hardship that was avoidable
+我希望（看到）对冠状病毒早期治疗、早期治疗的压制、本可避免的死亡人数、住院和在医院里的悲剧以及本可避免的困难的完全透明 的（讨论）
 
-## 自由车队卡车司机抗议示威运动没有被做充分地报道
+And then I wanted American to hear about vaccine safety, in the lack thereof, and that the scores of individuals who have died shortly after taking the vaccine, the large number of non-fatal injuries now, and the ones that the agencies acknowledge including heart inflammation, neurologic, immunologic, and hematologic injuries
+然后我想让美国人知道疫苗的安全性，在缺乏安全性的情况下，以及在接种疫苗不久后死亡的人数，现在大量的非致命伤害，以及机构承认的包括心脏炎症、神经系统、免疫系统和血液系统损伤在内的伤害
 
-然而该记者指出，这些人在示威者中只占少数。另外，这些人还在社交网络上批评媒体，因为对周六（自由车队）在渥太华的的抗议示威运动没有做充分地报道。
+So, I wanted it to all be up in the open and I am satisfied that American got the correct information today.
+所以我希望它全部公开，我很满意美国人今天得到了正确的信息
 
-另外，Gnews, 2022 年 1 月 28 日发表一篇题为《[魁北克省媒体刊登第二张支持自由车队卡车司机抗议活动的漫画](https://gnews.org/zh-hans/1926233/)   》的文章报道，漫画家，雅尼克•勒梅 Yannick Lemay发表一张漫画。漫画中显示加拿大总理，贾斯汀·特鲁多（Justin Trudeau），手中紧紧握着新冠疫苗注射器试图阻挡行驶着的而且轮子悬空的大卡车。卡车司机显得富有美国人的气质，并探出车窗愤怒地大声叫喊着“……”，卡车标有显赫的“自由”的字眼。
+**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
 
-## 更多魁北克省媒体将会报道示威活动
+Date: 1/26/2022
+原视频标题: Dr. Peter McCullough recaps 5-hour COVID-19 panel
+Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+原视频日期：1/26/2022
+**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
+任务编号：KE371(3608)
+视频时间段 : 0:00-01:00
 
-自从疫情爆发到现在两年多的时间以来，魁北克省媒体很少正面报道和正面评论反对卫生措施的示威活动。只是最近几天魁北克省媒体才开始报道和评论这些示威活动，相信很快会有更多魁北克省媒体参与正面报道和正面评论这些示威活动。当然媒体的报道和示威活动是会互相促进的，最终会出现什么样的局面，让我们拭目以待
+中听校: 洛杉矶盘古农场 -海潮
+翻译: 洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**参考资料**：
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-1. [蒙特利尔日报，Le Journal De Montreal，TVA NOUVELLES,  2022 年 1 月 28 日](https://www.journaldemontreal.com/2022/01/28/convoi-de-camionneurs-des-journalistes-intimides-par-des-manifestants)
-
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
