@@ -2,38 +2,96 @@
 ---
 
 
-## 新冠大流行对超过三分之一的飞行员造成精神和经济损失，不再飞行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1930421/)
+## 全球疫情更新（两则“疫苗”新闻中的谎言和掩盖）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1930533/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-at-18-15-46-Beijings-2022-Winter-Olympic-propaganda-mirrors-Hitlers-1936-efforts4.jpg)www.thenationalnews.com
-一项调查发现，世界上超过三分之一的航空公司飞行员仍然不能进行飞行工作——五分之一的人仍然失业——因为新冠大流行继续对这个职业造成精神和经济损失。周三公布的一项对1743名职业飞行员的调查，询问了他们的工作状况和对职业的态度，发现与去年的调查相比，情况略有改善。
+**整理/编辑：枳实**
 
-这项研究是由英国的大雁招聘公司和行业出版物FlightGlobal进行的。最新的民意调查发现，62%的飞行员是“受雇并正在飞行的”，比一年前的43%有所提高。“失业”的比例从30%下降到20%，而6%的人正在休假，而在上一次调查中，这一比例为17%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2452.png)
 
-“尽管情绪低落，但很明显，飞行员确实期待航空业恢复到我们在2019年看到的那种程度，宜早不宜迟”大雁招聘的首席执行官和创始人马克·查曼说。由于航空公司被迫重组，以及政府实施的旅行限制造成的不确定性，航空业经历了技术工人的大规模离职，他们永久性地离开了工作岗位。在两年的新冠大流行期间，由于该行业努力应对其历史上最严重的危机，航空从业人员被裁员、休假或面临大幅减薪。
-
-国际航空运输协会总干事威利·沃尔什（Willie Walsh）在该行业游说团体周二举行的在线新闻发布会上单独的评论中说，所谓的大辞职对 “我们的行业打击特别大”。FlightGlobal的部门主管Sophie Wild说，这场大流行病在精神上和经济上都对这个行业产生了严重影响。
-
-她说：“听取飞行员的意见，了解近两年内这场危机对他们的影响，以及他们对未来的感受，这一点非常重要。”对于一些失去工作的飞行员来说，回到驾驶舱的前景是令人担忧的。调查显示，近四分之一的失业飞行员——24%—对重返飞行“完全没有信心”，在北美，这一比例上升到40%。
-
-尽管对行业复苏持乐观态度，61%的受访者说他们“担心”工作安全。然而，与去年相比，这一情况有所改善，去年有82%的人说他们担心。调查说，与去年相比，更多的飞行员——现在有56%的人考虑在未来12个月内更换工作，而上一次调查是54%。“尽管这可能是就业市场改善以及对目前雇主不满意的一个迹象”。大约37%的飞行员说，如果他们可以重新选择的话，他们不会成为飞行员——比一年前的36%略高。
-
-大多数人（55%）说他们不会向年轻人推荐他们的职业。这比两年前，即大流行之前，只有29%的受访者给出这个答案有所下降。然而，调查确实显示了一些曙光，60%的飞行员认为行业将在两年内完全恢复到大流行前的水平，还有23%的人说还需要12个月。随着危机对航空旅行需求的冲击，在不确定性、压力和焦虑程度不断上升的情况下，大流行病对航空从业人员的心理健康产生了深远的影响。
-
-简评：持续了两年的新冠大流行病不仅仅是对民航业，对各行各业，全世界的每一个人都产生了巨大影响，造成心理和身体上诸多伤害。接下来全世界的人们需要面对的，也许就是新冠毒疫苗带来的二次伤害，会造成什么程度的灾害，目前还不好判断。我们爆料革命和新中国联邦的战友们现在还不是放松的时候，一定要紧跟文贵先生，健身健心，做好应有的准备，同时传播真相，团结一致灭掉邪恶的共产党，等待真正胜利曙光的到来。
-
-新闻链接：[https://www.thenationalnews.com/business/2022/01/26/more-than-a-third-of-pilots-not-flying-as-pandemic-takes-mental-and-financial-toll/](https://www.thenationalnews.com/business/2022/01/26/more-than-a-third-of-pilots-not-flying-as-pandemic-takes-mental-and-financial-toll/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+图片：雅典娜农场设计组 精灵蓝
 
 
-编辑：【英国伦敦喜庄园编辑部】
+雅典娜疫情更新（2022年 1月29日）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+**一，全球疫情基本数据**
+
+感染总数：368,851,744（日新增3,195,921，14天增幅+10%）
+
+死亡总数：5,646,102（日新增8,705人，14天增幅 +22%）
+
+**二，全球“疫苗”毒针统计数据**
+
+“疫苗”毒针注射总数：100亿
+
+完全“接种”：40.5亿人
+
+完全“接种”百分比：52.0 %
+
+**三，澳洲疫情和“疫苗”数据**** **
+
+感染总数：2,533,702（今日新增39,889人）
+
+死亡总数：3,631人（今日新增 95人）
+
+每万人感染人数：952.8712人
+
+“疫苗”毒针注射总数：49,398,801    （日新增308,821  针）
+
+完全“接种”：19,228,014人
+
+第二针“接种”百分比：78.6%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.2%
+
+加强针总数：7,568,852（日新增：235,009针）
+
+**四，两则“疫苗”新闻中的谎言和掩盖**
+
+[巴黎医院系统负责人关于要求未接种中共病毒疫苗者为治疗额外付费的言论招来政界的抨击](https://www.theguardian.com/world/2022/jan/28/outrage-as-paris-hospitals-chief-raises-idea-of-charging-unvaccinated-patients)
+
+昨日的疫情更新提到了这个新闻，今日新闻中他的发言在法国政界激起了愤怒，并要求他辞职，其中包括四月总统选举中的一些候选人。有趣的是，这个新闻中提到的几个数字，看起来很可能是另一个[德国式的荒唐统计错误](https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)。报道中声称“据医生称，据报导，未接种疫苗的 Covid 患者占巴黎和波尔多重症监护患者的 70%，在马赛和尼斯占 90% 以上。”我们在之前的[疫情更新](https://gnews.org/zh-hans/1855526/)提到过，在澳大利亚新南威尔士州的披露的数据是[完全接种者在重症监护室的中占多数（50.5%）](https://aci.health.nsw.gov.au/__data/assets/pdf_file/0006/698388/20220104-COVID-19-Monitor.pdf)，考虑到新南威尔士州和法国的疫苗接种率相仿，加上这篇报道中的完全接种者的比例数字根本没有出处，笔者高度怀疑很可能是另一个“软件错误”，甚至干脆是只是道听途说而已，连转述数据的“医生”都是匿名的，这比德国式的“软件错误”还要低级，。
+
+[媒体爆出国防部掩盖了卡尔文森号航母飞行员事故前72小时注射了疫苗加强针](https://realrawnews.com/2022/01/navy-pilot-crashes-plane-ejects-after-vax-reaction/)
+
+[之前的疫情更新中我们分享了FIFA球员在赛场或训练场上发生的猝死的历年数据比较](https://gnews.org/zh-hans/1918297/)，发现强制接种以来，死亡数字每一个季度就翻一番，以至于去年12月一个月的死亡数据几乎达到了12年来的年平均值。同样需要接受强制性疫苗毒针注射的美军飞行员的处境也与FIFA球员们相仿。
+
+据海军称，周一，一架美国海军战斗机试图在南中国海的一艘航空母舰上降落，在舰艇甲板上发生“着陆事故”，导致包括飞行员在内的七名水手受伤。F-35c 战斗机的飞行员已安全弹射。然而媒体接到一位高级海军军官爆料，在国防部长劳埃德·奥斯汀（Lloyd Austin） 的指令下，国防部遗漏了一个关键事实。
+
+飞行员在事故发生前 72 小时在文森号航空母舰上接受了疫苗加强剂注射，他之前身体健康，并于 2021 年 9 月 5 日通过了体检。飞行员被救出后，舰队医生确定他患有急性心肌炎，该飞行员目前健康情况不明。
+
+以上两则新闻中体现的“主流”媒体的谎言和掩盖如今已经让人见怪不怪了。凡是对推广“疫苗”不利的新闻都必须被审查和遮掩，而对“疫苗”有利的数据连出处都不需要就刊登出来了。在这些媒体的谎言和政府的强制政策之下，澳洲的加强针注射数量今天已经达到每日23万，全球毒针每日注射接近2500万。荒唐之事仍然在延续，但血淋淋的真相最终必然会促成大觉醒和之后的审判和追责。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

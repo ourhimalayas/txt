@@ -2,29 +2,29 @@
 ---
 
 
-## 有声|美台外交新突破 两国副总统首次同场互动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930948/)
+## 中国大使警告称与美国就台湾问题发生“军事冲突”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1931151/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月28日，台湾副总统赖清德在参加洪都拉斯总统就职典礼时与美国副总统贺锦丽“巧遇”，二人简单互动寒暄，约进行20至30秒交谈。据了解，赖清德就美国对台湾的支持向贺锦丽表示感谢。贺锦丽在台上致词时，也特别向赖清德致意。
+投稿人：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-295.png)图片来自网络 （2021年9月28日，戴口罩的工人站在中国航天科工集团公司生产的导弹旁。2021年第13届中国国际航空航天博览会在中国南部广东省珠海举行。）
+本周，中国驻美国大使就台湾问题日益紧张的局势再次发出强硬警告，预测如果台湾继续走向独立，将会发生军事冲突。
 
-有分析人士指出，正值中美关系敏感之际，赖清德与贺锦丽在洪都拉斯总统就职典礼上寒暄，是台美副元首第一次在国际场合自然互动，被各界视为双方外交的一大突破。
+中国驻美大使秦刚在接受美国国家公共电台采访时说，如果台湾当局在美国的怂恿下，继续在独立的道路上往前推进，很可能会让中国和美国这两个大国卷入一场军事冲突。
 
-文字版原文：[美台外交新突破 两国副总统首次同场互动](https://gnews.org/zh-hans/1927861/)
+目前已有10万多名俄罗斯士兵在乌克兰边境集结，在美国将注意力集中在乌克兰日益严重的危机之际，中国政府对台湾这片独立领土占有的企图越来越咄咄逼人。
 
-音频处理：Fei797
-发稿：Fei797
+本周日中国政府在台湾近海附近有39架飞行器起落，其中大部分是战斗机，这是几个月来规模最大的一次武力展示。当天，美国海军的两艘航空母舰和两艘两栖攻击舰与盟国在菲律宾海域航行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+今年1月，中共国外交部长王毅指责台湾政府应为地区紧张局势、背弃与中共国建交时的承诺负责，纵容和煽动台独势力，歪曲一个中国原则。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+王毅同时说:“这将把台湾置于极其危险的境地，并给美国本身带来无法承受的代价。1949年，台湾和中国大陆分离，中国反对台湾参与国际组织。美国虽没有正式承认台湾，但与台湾保持着非正式的同盟关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-296.png)图片来自网络
+2021年10月，拜登总统被问及美国是否会保护台湾免受中国的攻击，他肯定地说，“我们有这样做的承诺。” 拜登发表讲话后，白宫很快澄清了这一言论，并表示总统不会放弃美国长期以来的战略模糊政策。
+
+在本周的美国国家公共电台采访中，中共国驻美大使秦刚形容台湾是最大的火药桶。他声称中国没有战争的企图，但也不排除这种可能性。“两岸人民都是中国人，我们是同胞。因此，我们最不应该做的就是和同胞作战。我们将以最大的诚意，尽最大的努力实现和平统一。但是，在美国的鼓励下，台湾当局正在走向独立。因此，中国不会承诺放弃以非和平方式实现统一。”
+
+信息来源：[Chinese ambassador warns of ‘military conflict’ with US over Taiwan](https://www.foxnews.com/politics/chinese-ambassador-warns-military-conflict-taiwan)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

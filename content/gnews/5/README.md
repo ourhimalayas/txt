@@ -2,8 +2,8 @@
 ---
 
 
-## 我们要创造绝对的财富系统
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931158/)
+## 习就是困兽，七哥第一个说脱钩、中资股
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931268/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的教育，新中国联邦的教育
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931135/)
+## 习近平说脱钩，王岐山就是魔鬼
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931224/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

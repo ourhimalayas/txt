@@ -2,8 +2,8 @@
 ---
 
 
-## 我们要创造绝对的财富系统（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931182/)
+## 习怕什么，加息
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931279/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党脱钩就是脱控
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931196/)
+## 七哥爆料人类疫苗灾难今年五月开始
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931288/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
