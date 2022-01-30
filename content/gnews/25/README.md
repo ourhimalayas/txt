@@ -2,36 +2,49 @@
 ---
 
 
-## 搞死美国之余中共又咄咄逼人地置英国于死地
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931453/)
+## Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931484/)
 
-光明网2022年1月22日刊载：一味随美遏华，英国将走进死胡同
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2459-e1643513831146.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2460.png)
-**短评：**
+Dr. Peter McCullough recaps 5-hour COVID-19 panel
+Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
 
-原文标题“随美遏华”就很有毛病，明明是遏共，而不是遏华，也不只是遏共，分明是灭共，中共总是试图把14亿人民和自己一起绑架在死亡战车上。也不仅仅是英国随美灭共，当中共在全世界通过释放病毒与强打疫苗的行为谋财害命后，全世界都在随美灭共。
+There was a nearly five-hour long panel in the senate focused on the response of the covid pandemic on Monday morning led by Senator Ron Johnson
+周一上午，参议院在罗恩·约翰逊（Ron Johnson）参议员的领导下进行了近五个小时的关于新冠病毒大流行应对问题的小组讨论
 
-原文说到“英国前商务大臣凯布尔近日公开表示，英国政府禁止与华为5G服务和设备的决定‘与国家安全无关’，而是迫于美国压力；在他担任商务大臣期间，情报和安全部门多次保证使用华为服务不会带来任何风险。新加坡前外交官马凯硕也曾透露，一位英企高管称英方曾在华为内部安插情报人员进行‘全面检查’，确认华为没有任何威胁。”通过中共一贯地作恶手法，我们完全有理由相信马凯硕是被中共蓝金黄收买威胁的走狗，引狼入室，轻而易举就把英国新加坡人民的利益给出卖了，当然更把中华儿女的利益出卖给了盗国贼中国共产党。
+Here is one America’s John Hines
+这是来自one America的John Hines的报道
 
-一个卸任已久的前外交官有什么权限透露英企高管的信息？所谓的英企高管又有什么权限声明英方确认华为没有任何威胁？又是哪位英企高管声明的？有没有视频证据？拿不出视频证据就是无中生有地胡说八道带节奏。英国前商务大臣凯布尔公开表示英国政府禁止与华为5G服务和设备的决定‘与国家安全无关’而是迫于美国压力的说法只是一种智慧的借口与说辞而已，就像朝鲜不参加北京冬奥会的说辞，禁止的决定于不参加的结果才是重点，找什么借口与说辞不重要。中共你们太LOW了，以至于找的带风向的写手也这么LOW。更何况，华为就是军企间谍公司这件事已是全球公认的事实，华为手机就连其他手机能随便下载的Youtube视频都不支持下载，管中窥豹、可见一般。
+Wondered if you could share a little bit about your message here with us
+想知道您是否可以在这里与我们分享您的信息
 
-事实上，间谍军企华为落户英国已有近20年，对英国电信业的渗透排挤和阻碍英国经济社会发展作出了重要“贡献”。限制华为这样的间谍军企进入英国5G基础设施建设市场，虽然可能导致未来10年英国相关网络部署成本提高9%-29%，但如果不限制的话整个英国的利益都会被华为窃走；“你谋我息，我谋你本”的中共套路不胜枚举，对香港对台湾对美国的渗透如是，对非洲的基建债务陷阱亦如是。只有中共国被圈在网络防火墙内洗脑的老百姓被蒙上了眼睛堵上了耳朵，在自由世界的英国美国及其他文明国家都把中共对本国利益国家安全的侵害看得清清楚楚明明白白。华盛顿已经觉醒，向亚太派出“伊丽莎白”号航母舰队的大英帝国也已经觉醒，全世界的人民在病毒与毒疫苗的真相被普及后也都已经觉醒。
+Yeah, my message was that I wanted to see full transparency and full discussion in co-chairing this meeting with Senator Ron Johnson
+好的，我的信息是：我希望在与参议员罗恩·约翰逊共同主持这次会议时看到完全的透明度和充分的讨论
 
-中共置本国人民的发展利益于不顾，企图让全世界都为自己奴役全球的野心摇旗呐喊，殊不知这样只有一个结果，那就是把自己拖进死胡同。既入穷巷，及时掉头方是正道。路该怎么走，中共已经做出了错误的选择；爆料革命郭文贵先生为首的新中国联邦的正道主义已经给出了最正确的答案，共产党，你完蛋了。
+I wanted full transparency on early treatment, the suppression of early treatment, the number of lives lost that were all avoidable, the hospitalizations and the tragedy of being in the hospital and the hardship that was avoidable
+我希望（看到）对冠状病毒早期治疗、早期治疗的压制、本可避免的死亡人数、住院和在医院里的悲剧以及本可避免的困难的完全透明 的（讨论）
 
-文章观点仅代表作者，与GNews 平台无关
+And then I wanted American to hear about vaccine safety, in the lack thereof, and that the scores of individuals who have died shortly after taking the vaccine, the large number of non-fatal injuries now, and the ones that the agencies acknowledge including heart inflammation, neurologic, immunologic, and hematologic injuries
+然后我想让美国人知道疫苗的安全性，在缺乏安全性的情况下，以及在接种疫苗不久后死亡的人数，现在大量的非致命伤害，以及机构承认的包括心脏炎症、神经系统、免疫系统和血液系统损伤在内的伤害
 
-新闻链接：[https://mi.mbd.baidu.com/r/A70roiMYzS?f=cp&u=6ca0e9d595da34cf](https://mi.mbd.baidu.com/r/A70roiMYzS?f=cp&amp;u=6ca0e9d595da34cf)
+So, I wanted it to all be up in the open and I am satisfied that American got the correct information today.
+所以我希望它全部公开，我很满意美国人今天得到了正确的信息
 
-素材：洛杉矶盘古农场 — 归去来兮
+**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
 
-评论：洛杉矶盘古农场 — 归去来兮
+Date: 1/26/2022
+原视频标题: Dr. Peter McCullough recaps 5-hour COVID-19 panel
+Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+原视频日期：1/26/2022
+**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
+任务编号：KE371(3608)
+视频时间段 : 0:00-01:00
 
-编审：洛杉矶盘古农场 — 心照
-
-发布：洛杉矶盘古农场 — 子萍
-
-
+中听校: 洛杉矶盘古农场 -海潮
+翻译: 洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
