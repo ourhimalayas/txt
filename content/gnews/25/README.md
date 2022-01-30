@@ -2,31 +2,37 @@
 ---
 
 
-## 纽约养老院的COVID死亡数少报告了近一半
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932613/)
+## 英国会外委会预计2月访问台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932640/)
 
-编译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-30-112222.jpg)图片来源：thegatewaypundit.com
-纽约养老院的中共病毒（COVID19）死亡人数比官方的报告多49%。 值得一提的是，对纽约前州长库莫(Andrew Cuomo)的相关防疫行为调查被索罗斯支持的曼哈顿新检察官所扼杀。
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+当地时间1月28日，英国工党国会议员布莱恩特向媒体表示，外交委员会预计在2周后访问台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/11-18.png)
+据悉，英国近来增高了对台湾的关注度，外相特拉斯、国防大臣华勒斯及秘密情报局局长摩尔等官员都曾在公开场合呼吁各主要国家应重视台海安全及和平稳定的重要性。
 
-TGP在2020年多次报道了纽约州长库莫如何实施方案，命令得了COVID的老人回到老人院，并导致其不必要的死亡；当要求司法部对纽约养老院的死亡人数报告进行正式统计时，数字被篡改（本周在纽约得到证实）。 报告的数字比真实的数字少了大约50%。
+英国首相约翰逊近日在回答议员质询时也表示，中共军机侵扰台湾，无助于区域和平的稳定。
 
-失宠的纽约州长安德鲁·库莫手下的卫生专员周四（27日）证实，真实死于中共病毒的养老院居民比官方统计数字多出数千人；在纽约数月来拒绝透露其真实数字之后，这一令人惊讶的进展显示，截至今年1月19日，至少有1.2743万名（官方只统计8505名）长期护理居民死于该病毒，这标志着纽约的死亡人数是全国最高之一。
+据了解，越来越多跨党派国会议员关心台英之间关系的发展，外委会主席图根哈特在去年底一场有关台英关系的听证会中表示，期待很快就能访问台湾，此访问行程将凸显本委员会及国会对英国与台湾关系的重视。
 
-这些数字得到了州司法部长莱蒂西亚·詹姆斯（Letitia James）的认可。但本月早些时候，曼哈顿地区检察官办公室已对库莫与大量养老院死亡有关的非法行为的调查被撤销。
+参考链接：
 
-库莫的发言人转发了埃尔坎·阿布拉莫维茨（Elkan Abramowitz）的声明，这位律师曾在库莫时期为州长办公室辩护：“今天，曼哈顿地区检察官办公室的老年人护理部门负责人联系了我，告诉我他们已经结束了涉及行政会议厅和养老院的调查；我被告知，经过彻底的调查—正如我们一直所说的—没有证据表明有任何违法行为。”
+- [英國對台灣關注提升 國會外委會可望2月訪台](https://www.cna.com.tw/news/aopl/202201290010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-因此，最终的结果是库莫在强迫数千名患病的COVID19患者引入疗养院后致死，而逍遥法外。 数千人死亡，死亡人数被篡改（很可能仍然如此），调查被索罗斯支持的检察官终止。
 
-新闻来源：[thegatewaypundit.com] [COVID Deaths in New York Nursing Homes Were Under Reported by Nearly 50% But Both DOJ and New Manhattan DA Drop Investigations into Cuomo](https://www.thegatewaypundit.com/2022/01/covid-deaths-new-york-reported-nearly-50-no-worries-investigation-cuomo-dropped/) | 发布时间：2022年01月29日
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-* * *
+总编：文特
+编辑：文特
+校正/发稿：海阔天空1
 
-*审核：文乐
-校对：花羽
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

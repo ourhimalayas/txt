@@ -2,40 +2,30 @@
 ---
 
 
-## 美国政府研究承认COVID-19疫苗会延长月经周期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932744/)
+## 1千件T恤撼动澳网，人权活动者抗议中共国强权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1932749/)
 
-编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/96FB616D-7802-42E6-9D11-0753759BCB01_w1023_r1_s.jpg)图片来源：www.voachinese.com
+据美国之音1月30日报道，2022澳大利亚网球公开赛女子单打决赛现场，一些球迷穿着白色T恤，上面印着：彭帅在哪里？ 还有一些人胸前贴着黄色标语，写着：失踪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-45.jpg)图片来源：thenationalpulse.com
+彭帅是中共国最杰出的网球运动员之一。去年11月，她在中共国社交平台上曝光中共国前副总理张高丽曾性侵她之后，彭帅消失于公众视野。澳大利亚人权活动者现场送出了一千件专门印制的“彭帅在哪里”的T恤。这场T恤运动撼动了本届澳网大满贯赛事，也让彭帅的名字再度成为世界媒体关注的焦点。
 
-美国国家卫生研究院的研究发现，中共病毒（COVID-19）疫苗延长了妇女的月经周期。
+澳网公开赛曾一度禁止“彭帅在哪里”的T恤出现在赛场上。主办方声称，赛场不准出现政治性服装、横幅或标语。后来澳网协会软化了立场，准许球迷可以身着T恤入场，但是不得扰乱比赛。
 
-这项研究发表在一月份的《妇产科学》杂志上，它比较了接种和未接种COVID-19疫苗的妇女的月经周期长度。
+中共国泸州老窖酒业是澳网公开赛最主要的赞助商之一，赞助资金约为1200万美元。在利益面前，澳网协会帮助中共国在澳洲打压人权和民主的声音。“彭帅在哪里”成了世界之谜，中共利用其经济和政治势力一直保持这个秘密。即将举行的北京冬奥会，也许会出现第二个、第三个“彭帅”。任何质疑、反对中共的人，随时都可能消失，成为下一个彭帅，除非是听话的哑巴、一味唱赞歌的说谎者。中共不灭，人人都可能成为彭帅，哪怕身在所谓的民主国家，因为中共的蓝金黄买遍了全世界各个角落。
 
-“对于接种中共病毒疫苗的人来说，数据来自接种前的三个连续周期，以及另外三个连续周期，包括接种中共病毒疫苗的周期或几个周期。对于未接种中共病毒疫苗的人，收集了连续六个周期的数据，”研究报告的摘要中写道。
-
-在分析的3,959人中，有2,403人接种了中共病毒疫苗（大多数人接受了辉瑞公司或莫德纳公司），另有1,556人未接种疫苗。
-
-平均而言，第一次接种中共病毒疫苗的周期长度增加了0.71天，第二次接种疫苗的周期长度增加了0.91天。
-
-美国国立卫生研究院（NIH）的尤尼斯·肯尼迪·施莱佛儿童健康和人类发展国家研究所（Eunice Kennedy Shriver National Institute of Child Health and Human Development）所长 Dr. Diana W. Bianchi 强调，“以前很少有人对COVID-19疫苗或其他疾病的疫苗如何可能影响月经周期进行研究”。
-
-NICHD和NIH的妇女健康研究办公室资助了这项研究，作为167万美元拨款的一部分，探索COVID-19疫苗接种和月经变化之间的潜在联系。
-
-值得一提的是，汤森路透基金会（Thomson Reuters Foundation）的主席和前首席执行官（CEO）——詹姆斯·C·史密斯（James C. Smith）——是制药巨头辉瑞公司的顶级投资者和董事会成员。
-
-路透社仍未报道美国国立卫生研究院的研究；反之，该媒体已经刊登了题为“疫苗与月经变化无关；COVID和流感疫苗可以一起使用”和“月经变化和COVID疫苗之间没有发现联系”的报道。
-
-**新闻来源：**[thenationalpulse.com] [U.S. Government Study Admits COVID Vaccine Lengthens Menstrual Cycles.](https://thenationalpulse.com/2022/01/28/u-s-government-study-admits-covid-vaccine-lengthens-menstrual-cycles/) | 发布时间：2022年01月28日
+新闻参考链接：[https://www.voachinese.com/a/they-shook-australian-open-with-1000-t-shirts20220130/6418202.html](https://www.voachinese.com/a/they-shook-australian-open-with-1000-t-shirts20220130/6418202.html)
 
 * * *
 
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

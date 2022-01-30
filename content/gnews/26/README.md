@@ -2,24 +2,31 @@
 ---
 
 
-## 盗国贼们和中共统治下几千万个杨改兰们(二)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932589/)
+## 纽约养老院的COVID死亡数少报告了近一半
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932613/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/盗国贼们和中共统治下几千万个杨改兰们.002.jpeg)
-结果让我们知道了。中国现在有几千万个杨改兰，你让联合国去查一查。还说我们叛国卖国。那么2022年他们公司的这个土地交易背后是谁知道吗？江去查查朱镕基跟他谈的啥？我敢到世界任何一个法庭告诉你，朱镕基江泽民家族在那拿到天大的钱。到今天还在收钱，中国老百姓的无知是全人类，我没有见过的。他们敢把国家的土地这么卖出去，那儿的矿，而且协议就很简单一永久。这个公司拥有这个地方的矿的开发权,昆仑玉。就是所谓的和田玉,真的是几吨重的和田玉,跟你说你可能不相信那个价格全都是江曾朱控制的比特币为啥是共产党搞起来的？就是现在搞起来，他要洗钱，不是洗白了，要洗雪白呀！为什么UBS成为中国第一个外资允许的，100%的执照？为什么摩尔根要拿证券公司？王岐山降价了，他洗钱需要工具啊，需要水，需要池子，他洗完放哪去？我告诉大家，如果你不懂得什么叫叛国和卖国，你这一辈子被被骂叛国卖国，那你就太冤了。
+编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-30-112222.jpg)图片来源：thegatewaypundit.com
+纽约养老院的中共病毒（COVID19）死亡人数比官方的报告多49%。 值得一提的是，对纽约前州长库莫(Andrew Cuomo)的相关防疫行为调查被索罗斯支持的曼哈顿新检察官所扼杀。
 
-2022年1月12日大直播
+TGP在2020年多次报道了纽约州长库莫如何实施方案，命令得了COVID的老人回到老人院，并导致其不必要的死亡；当要求司法部对纽约养老院的死亡人数报告进行正式统计时，数字被篡改（本周在纽约得到证实）。 报告的数字比真实的数字少了大约50%。
 
-发布： 星谕
+失宠的纽约州长安德鲁·库莫手下的卫生专员周四（27日）证实，真实死于中共病毒的养老院居民比官方统计数字多出数千人；在纽约数月来拒绝透露其真实数字之后，这一令人惊讶的进展显示，截至今年1月19日，至少有1.2743万名（官方只统计8505名）长期护理居民死于该病毒，这标志着纽约的死亡人数是全国最高之一。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这些数字得到了州司法部长莱蒂西亚·詹姆斯（Letitia James）的认可。但本月早些时候，曼哈顿地区检察官办公室已对库莫与大量养老院死亡有关的非法行为的调查被撤销。
 
+库莫的发言人转发了埃尔坎·阿布拉莫维茨（Elkan Abramowitz）的声明，这位律师曾在库莫时期为州长办公室辩护：“今天，曼哈顿地区检察官办公室的老年人护理部门负责人联系了我，告诉我他们已经结束了涉及行政会议厅和养老院的调查；我被告知，经过彻底的调查—正如我们一直所说的—没有证据表明有任何违法行为。”
+
+因此，最终的结果是库莫在强迫数千名患病的COVID19患者引入疗养院后致死，而逍遥法外。 数千人死亡，死亡人数被篡改（很可能仍然如此），调查被索罗斯支持的检察官终止。
+
+新闻来源：[thegatewaypundit.com] [COVID Deaths in New York Nursing Homes Were Under Reported by Nearly 50% But Both DOJ and New Manhattan DA Drop Investigations into Cuomo](https://www.thegatewaypundit.com/2022/01/covid-deaths-new-york-reported-nearly-50-no-worries-investigation-cuomo-dropped/) | 发布时间：2022年01月29日
+
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
