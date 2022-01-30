@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥小时候的故事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930753/)
+## 七哥的幸运受益于从小艰苦悲惨的生活
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930784/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

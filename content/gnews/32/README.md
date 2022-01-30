@@ -2,30 +2,28 @@
 ---
 
 
-## 扬帆每日速递 2022年1月29日版（2）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1930300/)
+## 美国高官将访问立陶宛支持对抗中共国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1930330/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、中共国报告称，北京冬奥会运动员和代表队官员的中共病毒感染病例激增。奥运会组织者表示，未来几天可能会出现更多病例。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-at-18-15-46-Beijings-2022-Winter-Olympic-propaganda-mirrors-Hitlers-1936-efforts2.jpg)图片来源：www.voachinese.com
+据美国之音1月29日报道，美国国务院负责经济增长、能源和环境事务的副国务卿费尔南德斯将访问立陶宛。届时费尔南德斯将与欧盟官员讨论落实一项总额6亿美元的谅解备忘录，拓展美国出口商和立陶宛买家在高科技制造业，商业服务，再生能源等方面的合作机会，以及美国强力支持立陶宛对抗中共国的政治压力和经济胁迫。
 
-2、加拿大新斯科舍省周五下午宣布“高速公路封锁禁令”，规定聚集在省际高速公路旁以支持卡车司机“自由护航2022”活动是非法的。该禁令有效期将至少持续到2月6日。
+美国支持立陶宛因台湾问题跟中共国发生的争议。台湾去年在维尔纽斯设立了“驻立陶宛台湾代表处”，而不是通常使用的“台北”之后，北京将中共国和立陶宛的外交关系降为代办级，并敦促跨国公司切断与立陶宛的联系。美国在阻止中共国在全球范围内不断加大的影响力。
 
-3、据文贵大直播：郭文贵先生要启动三个甜蜜蜜运动：金融甜蜜蜜、外交甜蜜蜜、宗教甜蜜蜜，将重创共产党。
+中共霸凌台湾很多年，还阻止世界上其他国家与台湾建立任何正式的官方联系，否则就采取政治打击、经济制裁等手段，一副无能的流氓嘴脸。中共窃取政权之后，没有能力搞好经济，提高国民生活水平，一味地盘剥人民、掠夺财富，还试图通过蓝金黄的手段控制全世界。弹丸小国立陶宛不畏强权，公开支持台湾，遭到中共多方打压。美国支持立陶宛的行为无疑是对中共的警告，同时也会带动世界其他国家保持与台湾的关系，孤立中共。
 
-4、据文贵大直播：GTV是G系列投资王牌中的王牌！未来GTV一定是G系列的控股集团。
+新闻参考链接：[https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html](https://www.voachinese.com/a/senior-u-s-official-to-visit-lithuania-in-show-of-support-over-chinese-coercion-20220128/6417821.html)
 
-5、中国日报中文网1月28日刊文称：美国有关方面于近日制定计划，鼓动各国运动员以各种理由表达对中国不满、消极比赛甚至不参加比赛。
+* * *
 
-6、港府专家顾问袁国勇1月29日接受电视访问，建议于2 月24日推行的疫苗通行证扩展至公共交通工具。他表示向沒有通行证者罚款，唯有这样可推高疫苗接种率。评:病毒专家不谈病毒真相，所作所为已不配为人，应称它为袁畜牲。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板130-2_page-0001-1.jpg)
-素材提供战友：Revelation熙攘、文敏、Shuang、从来多难不兴邦
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编辑：文敏
 
-发布：风起云间（文敏）
+编辑：【英国伦敦喜庄园编辑部】
 
-海报图片设计：飞天面、 Shuang
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

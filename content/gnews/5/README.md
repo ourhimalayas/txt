@@ -2,42 +2,19 @@
 ---
 
 
-## 有声|帮助中共研发病毒的生态健康联盟又获政府巨额经费
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930744/)
+## 七哥的成长就是 说明了共产党有多么可怕
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930766/)
 
-配音：香草山健身部 – 玫瑰园
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
+*发布：陶子*
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
-
-
-
-美国媒体1月22日消息，美国非营利机构生态健康联盟，刚刚从联邦政府得到了470万美元的科研经费。这是美国国际开发署向该机构提供的最大金额，也是该组织从联邦机构获得的第三大金额的拨款。
-
- 根据近期各种渠道披露的证据，生态健康联盟与中共武毒所有着非同寻常的关系。之前公开的预算文件则显示，美国国立卫生院曾经前任主席柯林斯和白宫顾问福奇批准，拨款至该机构，用于和武汉病毒所合作进行冠状病毒功能增强实验，以强化其传播能力和致命性。 如今这个涉嫌与导致全球疫情大流行有重大关系的机构非但没有受到质疑，反而获得政府空前资助，有分析人士认为，病毒溯源的时机恐怕还要拖延。
-
-原文链接：[帮助中共研发病毒的生态健康联盟又获政府巨额经费](https://gnews.org/zh-hans/1928377/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

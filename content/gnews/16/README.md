@@ -2,30 +2,42 @@
 ---
 
 
-## 新冠大流行促进了私人飞机产业的蓬勃发展
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1930677/)
+## 有声|欧盟报告提醒中共严重威胁 呼吁加强与台合作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930711/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-291.png)图片来自网络
-新冠大流行改变了人们传统的生活方式。由于机场对疫苗护照和核酸检测结果的严格检查，以及人们对新冠病毒的恐惧，使很多人减少了出行，各大航空公司损失惨重。然而，新冠大流行却促进了私人飞机产业的蓬勃发展。
+配音：香草山健身部 – 玫瑰园
 
-越来越多的人正在考虑拥有自己的私人飞机。私人飞机不仅提供了灵活性、私密性、舒适性，还可以不经过机场。这可以使人们放心地跟自己认识的人一起旅行。
 
-根据摩根士丹利的数据，美国的商务飞机起降量同比增长了40%，达到了自2008年金融危机之前的最高点。在高端行业需求上升和通货膨胀上升的情况下，新飞机和二手飞机的价格都达到了多年来的最高水平。
 
-随着越来越多的人拥有自己的喷气飞机，巨富和名流的旅行模式—私人飞机，已经成为一个大流行的增长产业。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
-二手喷气机的库存，全球待售飞机的数量处于历史最低水平，包括赛斯纳、达索、湾流、庞巴迪和巴西航空工业公司在内的大多数主要喷气机制造商的库存在3%左右或以下，价格也高出20-30%。有些买家面临着长达两年的交货等待期。
 
-诸如庞巴迪环球7500和湾流650这样的远程喷气机可能会有更大的需求，因为它们能够在跨太平洋的航线上飞行。
 
-一架Phenom 100飞机的起价约为280万美元，而一架庞巴迪环球7500飞机的起价则高达7300万美元。随着私人飞机数量的增加，对飞行支持服务和飞机维修的需求也在增加。
+当地时间1月25日，欧盟议会“外国干预欧盟民主程序特别委员会”通过调查报告，指出欧洲没有意识到中共等专制政权的严重威胁，并肯定台湾抵御中共虚假讯息攻击成果，鼓励欧盟与台湾合作。
 
-信息来源：
+ 该特别委员会表示，欧洲公民和政府官员，绝大多数没有意识到外国专制政权，特别是中共国和俄罗斯所构成威胁的严重性。由于防御不足，容易让恶意行为者接触关键基础设施，以及发动网络攻击。另外中共国等专制政权，还经常聘用具有知名度的欧洲前政治人物，在公共辩论中传播消息。再由于欧盟国家之间的协调不足等原因，都加剧了外国势力干预欧盟民主。 该报告还表示，台湾位于中共操控信息的最前线，但台湾政府与独立的非政府组织，以及社交媒体进行了合作抵御。报告肯定了台湾采取的策略，并鼓励欧盟及其成员国深化与台湾的合作，打击恶意第三国的干扰民主行动和虚假信息。报告还建议，要支持多元化媒体和事实核查人员、禁止外国资助欧洲政党，改善网络安全，处理中共在地缘政治竞争中所投入的资金等问题。
 
-[Better than first class?: travel nerves, pandemic rules prove a winner for private jets](https://www.heraldsun.com.au/business/better-than-first-class-travel-nerves-pandemic-rules-prove-a-winner-for-private-jets/news-story/c1086902f5484aaf62f1f32a882cd931)
+原文链接：[欧盟报告提醒中共严重威胁 呼吁加强与台合作](https://gnews.org/zh-hans/1928617/)
 
-[The soaring billionaire economy is squeezing the private jet market](https://www.cnbc.com/2021/11/26/the-rich-are-getting-richer-and-theyre-fueling-a-private-jet-boom.html)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

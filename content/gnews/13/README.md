@@ -2,40 +2,19 @@
 ---
 
 
-## 有声|美国最高法院大法官斯蒂芬.布雷耶宣布将退休
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930696/)
+## 誓死战斗到底绝不放弃
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930717/)
 
-配音：香草山健身部 – 玫瑰园
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
+*发布：陶子*
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
-
-
-
-美国最高法院大法官斯蒂芬.布雷耶宣布将退休 ，1月26日，美国NBC新闻报道消息人士信息，美国最高法院大法官斯蒂芬.布雷耶将在本任期结束时退休 。 布雷耶于1994年5月17日由比尔·克林顿总统提名，自1994年8月3日起担任大法官，已经任职近28年。 他是最高法院的三位自由派大法官之一，也是最高法院最年长的现任大法官，现年83岁。 美国宪法规定，最高法院法官由总统提名，经美国参议院多数表决同意后任命。除首席大法官外，人数为8人，属终身制。 对于布雷耶的辞职，外界猜测，他的退休决定，将使拜登总统能够认命一位可以任职几十年的继任者，以尽可能维持目前保守派和自由派大法官之间 6-3 的比例。
-
-原文链接：[美国最高法院大法官斯蒂芬.布雷耶宣布将退休](https://gnews.org/zh-hans/1928847/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
