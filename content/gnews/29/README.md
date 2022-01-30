@@ -2,19 +2,23 @@
 ---
 
 
-## 国内数字银行7字开始
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933169/)
+## 关于中共20大（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933214/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/关于中共20大（二）-.jpg)
+但结果是被盘古给定了龙戏蛋了，就真的10公里不差，还跨过北塔跨过瀛台，还有很多秘密，现在我不能说的，不是叫天机吗？这叫天机，它挡不住，就现在50家银行啊，当然有人是配合的了，天机是跟人要配合，因为在人间显灵就叫天机，让人有人配合了啊，就是天机的结果，他没办法抗拒不了！就这几天喜币多少钱？41了，就这几天你看了交易啊，100%没有任何机构操作，超过100%没有任何机构购买，全都是新加进来的而且据我所知，60%，70%都是外国人啊！这吹狼蛋的吗？你砸钱试试，你买买试试啊，这就叫天机的结果有人配合。20大是老天爷给咱更大的机会，他不搞20大就没有内部的这种厮杀，不搞20大就没有这种掠夺，不搞20大他就不会在全世界更加的疯狂，不搞20大就没有今天的利用核糖核酸把北京和首都最大的周围的城市全部给你核糖核酸化，也就宵禁化，不过这个就不会给你搞共享财富，20大谁是赢家？新中国联邦是唯一的赢家，连习他所有的人都是输家，不会再有20大了，不会再有20大了，放心吧!七哥从11大看到共产党看到今天，11大从1977年当时干啥？胡耀邦总书记，邓小平军委主席然后华国锋宣布了2个凡是：1、凡是毛主席说的都是正确的 2、凡是毛主席定的,咱都要坚定执行和维护啊。一直呢，我是毛主席接班人，到1978年邓小平就说了，毛主席两个凡是我们坚持，但是它不适合所有的事情，意思不是他说的就是对的，否定了两个凡是。11大，你再看看今天是20大了，九大都过去了。那时候你们都在哪儿呢？你们，你们4个都在哪？我都已经抠墙上报纸去了，是不是？七哥不是老天爷派来的吗？就是老天爷派来的保证解决共产党在20大，放心吧，对不对？！
 
-*发布：*Frank2021
+2022年1月12日大直播
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发布： 星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,43 +2,29 @@
 ---
 
 
-## 郝海东先生呼吁：不要做中共炮灰
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932979/)
+## 医生插漫画预防奥米克戎感染扩散
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933071/)
 
-作者：纽约香草山农场 文鹰
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-59.jpg)
+图片来源于本文链接
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+制定过“克服新冠病毒感染说明书”的是诹访中央医院的玉井道裕医生。从去年开始，将“冠状病毒的基本知识、为了防止感染要做的事情等”（通过该院网站）与漫画插图一起整理出来，进行了数次公开。在社交媒体上也经常以“容易理解”的方式扩散开来。
 
-美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
+1月18日公开的“Omicron篇”开头道:“Omicron是弱毒。没什么大不了的……”并嘱咐了以下信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.14-PM.png)
+“在Omicron的大流行中，世界上还有Omicron更充裕的东西。那是信息。不要太害怕，不要太甜。让我们正确应对！”说明书介绍了大流行奥米克戎的3个因素，以及与美国的情况、三角洲等地的差异，并强调感染力强、潜伏期短等特点，虽然与三角洲相比，重症化的危险较小，但“有人会死亡”。“重症化的概率不是0。这还不至于像‘风’那么轻”，并提醒人们注意，并强调基本的感染对策。“如果这个时期感冒了（in流行地区）→就当得了冠状病毒吧”，“口罩、换气、洗手都是有效的。请避免比现在更紧密的联系”，最后这样诉苦道。“流行病中最可怕的是什么？病毒会变异吗？没有疫苗和治疗药物吗？我个人认为这是没有信息的事情。”如果没有情报，恐惧会加倍增加。为了不让Omicron侵害到心灵，用正确的信息这一‘心灵盾牌’来渡过第6波！”
 
-中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.37-PM.png)
-没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
+诹访中央医院宣传负责人说:“为了不引起误会，请阅读完整。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.43.54-PM.png)
+信息来源：
 
-战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
+[「パンデミックの中で最も恐いことは…」オミクロン感染拡大、医師がイラストに込めたメッセージ](https://www.buzzfeed.com/jp/kotahatachi/corona-omicron-illustration-faq)
 
-郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-参考链接： [2022.01.29 早《GTV新闻访谈》与郝海东大卫聊聊军队投诚那些事儿01:27:52](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
-
-编辑：Jack Li文阳
-总编：文真
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
