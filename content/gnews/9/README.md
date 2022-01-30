@@ -2,8 +2,8 @@
 ---
 
 
-## 七万多份文件七哥第一天就说是假的（三个关键点）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930843/)
+## 共产党花律师费200亿美元
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930947/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

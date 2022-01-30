@@ -2,8 +2,8 @@
 ---
 
 
-## 共产主义来自哪里
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930904/)
+## 大觉醒时刻
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931020/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,25 +2,38 @@
 ---
 
 
-## 加拿大北京冬奥代表团中5人确诊
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1930569/)
+## 有声|新中国联邦重大公告 甜蜜蜜运动改变世界
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930671/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月25日，郭文贵先生代表新中国联邦在GTV和盖特平台上向世界发布了重大紧急公告。
 
-1月29日，加拿大奥林匹克委员会表示，已到北京参加冬奥的加拿大代表团，有5名团员验出了COVID-19（中共病毒）阳性反应。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-39.png)（图片来自网络）
-据《中央社》援引《法新社》报道，加拿大奥委会28日晚发表声明表示，目前在北京的246名代表团团员当中，有5人已接受COVID-19（中共病毒）防治安排。
+郭先生郑重声明，鉴于中共独裁政权对中国人民犯下的滔天罪行，以及其对文明世界发动的生化战争，爆料革命一直致力于消灭中国共产党。而今，历时五年的爆料和情报让各国政府逐渐认识到了中共的邪恶。其中，中共病毒的溯源、疫苗的真相和经济大危机等重大事件也已经让文明、民主、法治的国家觉醒。
 
-目前，加拿大奥委会并未透露，5名确诊者究竟是选手、随行支持人员还是官员。根据国际奥委会的防疫规定，确诊者必须离开代表团接受隔离。
+此外，郭先生先生还向全世界宣告，美国总统拜登和国务卿布林肯做出了一个重大的政治决定：即日起“授权撤离”美利坚共和国驻北京大使馆。随后，郭先生以新中国联邦创始人的身份向美国总统和国务卿致感谢函。
 
-另外，根据当地筹办单位数据显示，自本月26日以来，针对各国运动员和代表团其他团员所进行的5092次筛检，共发现23例确诊病例。
+原文链接：[新中国联邦重大公告 甜蜜蜜运动改变世界](https://gnews.org/zh-hans/1921578/)
 
-参考链接： 
-[https://www.cna.com.tw/news/aopl/202201290160.aspx](https://www.cna.com.tw/news/aopl/202201290160.aspx)
+音频处理/发稿：Daxia
 
-素材采编：幽蘭自得
-编辑：文顺
-发布：文曦
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
