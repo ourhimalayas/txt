@@ -2,17 +2,41 @@
 ---
 
 
-## 共产党深信它不让你信的迷信（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931254/)
+## 埃隆马斯克对购买社交媒体持开放态度
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1931299/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党深信它不让你信的迷信二.png)
-执行的秘密部队从来没有人回来过，就要你献神了，这种事情能让你们知道吗？你们不知道。你不知道，你就灭不了共。爆料革命知道，新中国联邦你七哥知道就能灭共。就像西藏所有的这些事情，大家看一看，你去过墨脱吗？你去过喜马拉雅峰的七座峰哪个峰？你去过那曲吗？为什么长虫草？你去过喀什吗？你去过帕米尔高原的红石山吗？你去过南疆和北疆吗？ 你去过昆仑山的奇山异峰吗？你去过帕米尔高原吗？帕米尔湖吗？你没去过，你就不知道阿富汗为什么那么重要，你就不知道新疆人为什么，他们要给他种族大屠杀，你就不知道新疆大屠杀。对待死人什么人权，这你就不用想了，那太扯太远了，对他来讲，一切都是用具是吧？这是为什么昆仑山上每年啊要700个仙女，700个处女祭昆仑山神。为什么要从新疆抓多少的仙女，西藏抓多少女神，蒙古抓多少神，54个民族要抓多少孩子去！
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-*发布：开智则立*
+整理/编辑：文泓
 
-**更多资讯，请关注：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/24-1.png)图片来源：墨尔本雅典娜农场设计组
+
+
+当地时间1月28日，据《科技时报》报道，一位有影响力的网络名人，保守派评论员兼作家迪内什·德索萨（Dinesh D’Souza）给埃隆·马斯克支了一招，要求特斯拉CEO去影响世界的政治和文化变革。德索萨对马斯克提出三项建议，包括购买社交媒体平台、电视台和建立学校。
+
+来自德·索萨的这条推文，无疑是这位科技大佬需要深思熟虑的事情，因为它暗示了马斯克在世时要建立的三大支柱，德·索萨表示，马斯克要想实现政治和文化变革，他就需要（上述）三个支柱来推动他的想法和推广他的信仰。
+
+为此，建议埃隆马斯克应该购买社交媒体平台，创建电视台或媒体渠道，并为其企业建立学校或学习机构。有了这些机构，马斯克可以有效地更好地传播他的信念和理想，并有助于这位CEO实现他想要的社会变革。
+
+马斯克曾因多次反对CNN和《纽约时报》等传统媒体提出的叙述而屡次登上新闻。这次马斯克回应说，这些是[“有趣的”](https://twitter.com/elonmusk/status/1487168671269203968)，也许是现在需要考虑的事情。
+
+德索萨的言论广受好评，几个小时内在推特上获得40,000多个赞，马斯克的回复获得了近50,000个赞。
+
+马斯克以其对社交媒体的巨大政治和文化影响而闻名，但马斯克的推特平台可能只供个人使用，绝不意味着带来社会变革。
+
+尽管如此，即使没有这三个可以推动政治和文化变革的机构，马斯克也已经可以为世界做出很多贡献。世界不需要仅仅为了传播思想和信仰而对其公民进行“控制”并成为最终的统治者。
+
+然而，这仍然可能是马斯克的选择，特别是如果他决定想为全球公民带来更多的东西。
+
+新闻链接：
+
+1、[Will Elon Musk Buy a Social Media, Create a TV Station, and Establish a School? Twitter is Not Enough Says Souza | Tech Times](https://www.techtimes.com/articles/271177/20220128/will-elon-musk-buy-social-media-create-tv-station-establish-school.htm)
+
+2、[Elon Musk appears open to idea of buying media platforms | The Post Millennial](https://thepostmillennial.com/dinesh-dsouza-elon-musk-media-platform)
+
+***发布：**tianzhihuan*
+
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

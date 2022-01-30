@@ -2,96 +2,38 @@
 ---
 
 
-## 全球疫情更新（两则“疫苗”新闻中的谎言和掩盖）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1930533/)
+## 有声|美名记新书揭露硅谷寡头与中共勾兑牟利
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930726/)
 
-**整理/编辑：枳实**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2452.png)
-
-图片：雅典娜农场设计组 精灵蓝
+配音：香草山健身部 – 玫瑰园
 
 
-雅典娜疫情更新（2022年 1月29日）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-**一，全球疫情基本数据**
+1月22日，《纽约邮报》摘录了高级撰稿人、“政府问责研究所”主席彼得·施魏策尔撰写的新书——《人赃俱在：美国精英如何通过帮助中共获胜而致富》的节选。讲述了美国大科技公司与中共互相勾兑，出卖国家利益的行径。 书中提到几个典型例子。2015年，脸书的扎克伯格参加了奥巴马政府在白宫为习近平举行的国宴，请习为孩子取中文名以示好。2014年底，扎克伯格特意在办公桌上摆放《习近平谈治国理政》，向来访的鲁炜解释说，也给同事购买书，以便让他们学习中国特色社会主义。 2017年，谷歌宣布在中共国成立人工智能研究中心，由李飞飞和李佳领导，帮助中共实现“伟大复兴”。为了拉拢特斯拉上海建厂，数家中资银行主动向特斯拉提供了14亿美元的贷款。2019年1月，上海特斯拉工厂奠基仪式，李克强亲自出席，甚至提出让马斯克成为中共国的永久居民。 这些事例进一步证实了文贵先生的早期爆料。中共以“蓝金黄”手段渗透美国高科技企业，以便盗取技术，诱使并控制这些行业精英，互相出卖国家和人民的利益。
 
-感染总数：368,851,744（日新增3,195,921，14天增幅+10%）
+原文链接：[美名记新书揭露硅谷寡头与中共勾兑牟利](https://gnews.org/zh-hans/1928489/)
 
-死亡总数：5,646,102（日新增8,705人，14天增幅 +22%）
+音频处理/发稿：Daxia
 
-**二，全球“疫苗”毒针统计数据**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-“疫苗”毒针注射总数：100亿
+**更多资讯，更多关注**
 
-完全“接种”：40.5亿人
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-完全“接种”百分比：52.0 %
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**三，澳洲疫情和“疫苗”数据**** **
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-感染总数：2,533,702（今日新增39,889人）
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-死亡总数：3,631人（今日新增 95人）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-每万人感染人数：952.8712人
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-“疫苗”毒针注射总数：49,398,801    （日新增308,821  针）
 
-完全“接种”：19,228,014人
-
-第二针“接种”百分比：78.6%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.2%
-
-加强针总数：7,568,852（日新增：235,009针）
-
-**四，两则“疫苗”新闻中的谎言和掩盖**
-
-[巴黎医院系统负责人关于要求未接种中共病毒疫苗者为治疗额外付费的言论招来政界的抨击](https://www.theguardian.com/world/2022/jan/28/outrage-as-paris-hospitals-chief-raises-idea-of-charging-unvaccinated-patients)
-
-昨日的疫情更新提到了这个新闻，今日新闻中他的发言在法国政界激起了愤怒，并要求他辞职，其中包括四月总统选举中的一些候选人。有趣的是，这个新闻中提到的几个数字，看起来很可能是另一个[德国式的荒唐统计错误](https://thenationalpulse.com/2022/01/24/oppressive-covid-measures-for-the-unvaccinated-were-based-on-software-error-claims-german-minister/)。报道中声称“据医生称，据报导，未接种疫苗的 Covid 患者占巴黎和波尔多重症监护患者的 70%，在马赛和尼斯占 90% 以上。”我们在之前的[疫情更新](https://gnews.org/zh-hans/1855526/)提到过，在澳大利亚新南威尔士州的披露的数据是[完全接种者在重症监护室的中占多数（50.5%）](https://aci.health.nsw.gov.au/__data/assets/pdf_file/0006/698388/20220104-COVID-19-Monitor.pdf)，考虑到新南威尔士州和法国的疫苗接种率相仿，加上这篇报道中的完全接种者的比例数字根本没有出处，笔者高度怀疑很可能是另一个“软件错误”，甚至干脆是只是道听途说而已，连转述数据的“医生”都是匿名的，这比德国式的“软件错误”还要低级，。
-
-[媒体爆出国防部掩盖了卡尔文森号航母飞行员事故前72小时注射了疫苗加强针](https://realrawnews.com/2022/01/navy-pilot-crashes-plane-ejects-after-vax-reaction/)
-
-[之前的疫情更新中我们分享了FIFA球员在赛场或训练场上发生的猝死的历年数据比较](https://gnews.org/zh-hans/1918297/)，发现强制接种以来，死亡数字每一个季度就翻一番，以至于去年12月一个月的死亡数据几乎达到了12年来的年平均值。同样需要接受强制性疫苗毒针注射的美军飞行员的处境也与FIFA球员们相仿。
-
-据海军称，周一，一架美国海军战斗机试图在南中国海的一艘航空母舰上降落，在舰艇甲板上发生“着陆事故”，导致包括飞行员在内的七名水手受伤。F-35c 战斗机的飞行员已安全弹射。然而媒体接到一位高级海军军官爆料，在国防部长劳埃德·奥斯汀（Lloyd Austin） 的指令下，国防部遗漏了一个关键事实。
-
-飞行员在事故发生前 72 小时在文森号航空母舰上接受了疫苗加强剂注射，他之前身体健康，并于 2021 年 9 月 5 日通过了体检。飞行员被救出后，舰队医生确定他患有急性心肌炎，该飞行员目前健康情况不明。
-
-以上两则新闻中体现的“主流”媒体的谎言和掩盖如今已经让人见怪不怪了。凡是对推广“疫苗”不利的新闻都必须被审查和遮掩，而对“疫苗”有利的数据连出处都不需要就刊登出来了。在这些媒体的谎言和政府的强制政策之下，澳洲的加强针注射数量今天已经达到每日23万，全球毒针每日注射接近2500万。荒唐之事仍然在延续，但血淋淋的真相最终必然会促成大觉醒和之后的审判和追责。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平说脱钩，王岐山就是魔鬼
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931224/)
+## 习怕什么，加息
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931279/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
