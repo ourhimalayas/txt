@@ -2,78 +2,26 @@
 ---
 
 
-## 【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1933733/)
+## 文贵爆料 1.30：“当代包公”还是“当代和绅”
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1933827/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-COVID-19病毒是中共对全世界发动的生化武器战争投放的生化武器，试验性的COVID-19病毒疫苗不能预防感染，只会导致身体免疫力持续下降，感染中共病毒的风险成倍增加。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-6.jpg)
+曾经的王岐山权倾朝野，被誉为“当代包公”，然而他的下属却相继入狱。对此，郭文贵先生在1月30日的直播中说，为什么“反腐沙皇”身边的人都腐败呢？试问，你是“当代包公”还是“当代和绅”？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
+中共中央巡视组前副组长董宏被判死缓。他是王岐山的大马仔，也是王岐山最相信的人。说他贪污了几个亿，还是在广东投康典的时候。当时康典是CEO，他也是王岐山的铁仔，是当时粤海投资的老大，王岐山见他就跟见祖师爷似的。王岐山当广东副省长时，跟李长春对着骂，就是因为他要保康典和董宏。
 
-尽管澳大利亚新南威尔士州（New South Wales）的每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)）刻意偷换概念，将很多接种COVID-19病毒疫苗不超过21天的COVID-19感染者记入未接种人群，仍然无法掩盖疫苗带来的严重灾难的事实！
+董宏此人的智慧和智商，在某些方面在王岐山之上。在一次喝酒聊天时他说，共产党就是一黑社会、流氓和骗子，只有愚蠢、傻的人会相信它，而聪明的人是利用这个黑社会、这个骗子达到自己的目的。因为王岐山的缘故，董宏后来从广东跟李长春到社会上经商。
 
-在《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)》报告第31页，关于COVID-19疫苗接种状态分四种情形的定义：
+王岐山在2003年Sars疫情的时候，对我说，我要回政府工作了。当时我说，为什么进京，不在海南嘛？他说，谈过，老爷子说过了，回京，锦涛也同意，我要回去当政府的秘书长，两手抓，一手民生，一手钱。后来就把张宏伟和一个东北合伙人抓起来了，因此康典、王岐山和董宏，在瑞士就拿了一百亿美元。后来，康典、董宏、田国立、田惠宇、朱镕基的儿子朱云来和女儿朱艳来，又弄走了一两百亿美元。新华人寿“寿在中国、钱在瑞士”！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)COVID-19 & Winter Statistical Report
+你说这个世界有多疯狂？中国人有几个人去认真想过，这些人偷走我们多少钱？王岐山，你是中国的的反腐沙皇，怎么你身边所有的人都腐败呢？而且你管中国金融、银行近几十年，你偷了多少钱？骗了多少钱？这些钱回中国了吗？在哪儿呢？就凭习近平的几个人能搞清楚王岐山的钱吗？不可能。用孟建柱的一句话说，习近平的智商和江泽民比的话，那是千年的差距，习近平最多当个地市级干部，也就是厅局级干部。孟建柱曾经在私下里边跟几个江西人说，你看他都能娶彭丽媛，他的情商能有多高。
 
-未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
+郭先生说，现在习近平在党内通过各种方式，将王岐山和孟建柱的马仔一个一个抓进去了，他们能给他拉倒吗？
 
-接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种第1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
+参考链接：
 
-完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
-
-疫苗接种状态不明确（Under investigation）
-
-根据这样的定义，显然存在大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群。
-
-截止到2022年1月29日晚上8点，新南威尔士州共接种4,776,938剂疫苗，年满16岁的人群一针疫苗接种率高达95.4%，两针疫苗接种率为94%，年满18岁的人群中，三针或加强针接种率达​38.8%。甚至12~15岁的青少年也有83.2%被打了疫苗，连5~11岁的儿童也有37.4%受到疫苗祸害。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_22-27-09.png)
-
-在如此高的疫苗接种率下，新南威尔士州最近感染COVID-19病例数激增。上周新增感染病例110,883例，本周也有63,051例，全州累计确诊814,161例,占全州816.6万人口的10%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_23-59-13.png)
-
-仅仅在1月22日一天内，新南威尔士州新增COVID-19确诊人数就达到非常恐怖的92,264人，占全州人口的千分之1.13。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-05-12.png)
-
-最近1个月，新南威尔士州新增COVID-19确诊病例激增。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-12-12.png)
-不单是新南威尔士州，整个澳大利亚最近一个月新增COVID-19确诊病例也激增。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-09-36.png)
-
-下表为1月20日《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)》报告第7页，表5，2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-5-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-8-January-2022.jpg)
-
-我们来研究明确知道疫苗接种状态的COVID-19受害者的情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status.jpg)
-接种疫苗患者的无论在确诊、住院、ICU和死亡中都占绝大多数。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-366-1.png)
-
-接[【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](https://gnews.org/zh-hans/1933874/)
-
-参考资料：
-
-[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
-
-[COVID-19 vaccination update Vaccine doses administered to NSW populations](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/stats-nsw.aspx#today)
-
-[Spikevax (Moderna)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/moderna)
-
-[Comirnaty (Pfizer)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/pfizer)
-
-[Vaxzevria (AstraZeneca)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/astrazeneca)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW  Epidemiological week 1, ending 8 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
 
  
 

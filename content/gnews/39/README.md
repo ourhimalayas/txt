@@ -2,19 +2,27 @@
 ---
 
 
-## 国内银行行长在俄罗斯发生的事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933525/)
+## NewSGman┃疫情严重 美国NBC决定不派播报团队到北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933542/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团/NewSGman
 
-*发布：*Frank2021
+因为中共疫情加剧，近日，美国国家广播公司（NBC）宣布不派遣体育报道团队参加 2022北京冬奥会。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美国国家广播公司（NBC）做出此决定是因不能容忍中共对待新冠病毒检测阳性所持的严厉政策。NBC担心旗下职员在中国采检新冠病毒若呈阳性时得面临冗长的隔离检疫 。
+
+NBC奥运会制作团队负责人Molly Solomon表示，新冠病毒的情况在不断变化中国坚持‘零容忍’的政策，这使得NBC报道工作变得格外复杂。
+
+另外据美国媒体报道，因中共侵犯人权问题美国政府官员代表不会出席北京冬奥会。
+
+信息来源：
+
+[https://gettr.com/post/ppvbgra60b](https://gettr.com/post/ppvbgra60b)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
