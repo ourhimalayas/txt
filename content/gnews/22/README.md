@@ -2,22 +2,27 @@
 ---
 
 
-## 日本队启程前往北京 创纪录的124人参加海外冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1932697/)
+## 共产党的共享财富
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932722/)
 
-撰稿：东京樱花团丨向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2490.png)[*图片来源*](https://news.yahoo.co.jp/articles/c09238d5de0d517433f7c8aa6bc1dd9fd9f62078/images/000)
-据日媒ABEMA TIMES报道，距离北京冬季奥运会开幕还有5天，日本选手团今日早上从羽田机场出发前往北京。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党的共享财富.001.jpeg)
+西安列出了30多个企业，120多家所谓管制企业。30多个企业，30多个富豪，通过这次西安整治，所有财富全部没收。西安，共享财富开始了天津大概是35家，马上收归国有，大概200家共享财富，然后就到江浙去了，郑州已经开始了。
+啥叫共享财富？抓了马云就共享财富了？共享财富有招的。
 
-日本选手团的着装是海军蓝西装外套，系着红色领带，左胸上闪耀着日本队的徽章。这件西装外套将用于开幕式和闭幕式，此次北京“纳粹奥运会”的开幕式将于2月4日举行，整个冬奥会将历时17天至2月20日结束。
+当年抓地主怎么抓的？大型的秧歌队、宣传队，梆梆梆！人民要翻身当主人，人民要推翻三座大山（七哥我从来没见过一个坏地主，我见到的都是好地主）。地主被推翻了，最后，大地主共产党来了。
 
-加上新项目跳台滑雪混和组，15个竞技种类共109个项目，为冬季赛事历史上最多。冰壶等一些比赛将于2月2日开始。本次北京冬奥会的运动员出场人数将达到124人，是国外冬奥会参赛的最高人数。女子冰球队已经进入奥运村，今天约有80名球员离开日本。
+2022年1月12日大直播
 
-信息来源：[**日本選手団が北京に向け出発 国外の冬季五輪で過去最多の124人が参加**](https://news.yahoo.co.jp/articles/c09238d5de0d517433f7c8aa6bc1dd9fd9f62078)
+发布： 星谕
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

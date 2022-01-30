@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/30/2022 12:51 PM (UTC)`
+
+1月30号：尊敬的战友们好．七哥将在1小时左右开始今天的七哥乱聊直播，今天只有我一个人．直播时间会在两小时左右，一切都已经开始！
+![img](https://media.gettr.com/group9/getter/2022/01/30/12/05d59ea0-5421-265f-64f1-60fd25930a27/out.jpg)
+
+---
+
 `@miles 1/30/2022 12:12 AM (UTC)`
 
 1月29号，Hcoin To the Moon MV上线第51天位列澳门🇲🇴iTunesMV榜首🥇，累计共38次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共34次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利,  柬埔寨和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1928543/<br/><br/>Jan 29, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 51 Day of Launch, hit No .1 for 38 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 34 times in total🎉🎉🎉<br/><br/>Hit No.1🥇on Cambodia 🇰🇭 iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, Cambodia and Laos 🙏🙏🙏🙏🙏🙏🙏
@@ -147,12 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/27/2022 Miles Guo: The authorized departure of the US embassy in Beijing will neither sever nor maintain the US diplomatic ties with the CCP. Instead, the US is going to destroy the CCP via “No Severance, No Contact”. The US may go back and forth in terms of the authorized departure of the US embassy, but the more that happens, the more times we are going to win. I have helped push Egypt to extort the CCP.<br/><br/>1/27/2022 文贵直播：美国大使馆的授权撤离既非绝交，又非断交，这是“不断不交”来弄死中共；美国可能会在撤离使馆上来回反复，但反复越多，我们就赢得越多；文贵帮助推动埃及敲诈了中共<br/>
 ![img](https://media.gettr.com/group6/getter/2022/01/28/04/1e362266-7e06-45a7-d107-2a828eb7a4b6/out.jpg)
-
----
-
-`@miles 1/28/2022 1:28 AM (UTC)`
-
-1月27号，Hcoin To the Moon MV上线第49天位列澳门🇲🇴iTunesMV榜首🥇，累计共36次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共32次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1918971/<br/><br/>Jan 27，2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 49 Day of Launch, hit No .1 for 36 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 32 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
