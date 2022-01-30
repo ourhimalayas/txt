@@ -2,8 +2,8 @@
 ---
 
 
-## 我们要创造绝对的财富系统（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931182/)
+## 习近平说脱钩，王岐山就是魔鬼
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931224/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
