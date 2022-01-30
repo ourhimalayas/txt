@@ -2,48 +2,44 @@
 ---
 
 
-## 全世界的卡车司机团结起来反对医疗暴政
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1932919/)
+## 中共跪求美国不要离开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932978/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+作者：纽约香草山农场 文真
 
-整理/编辑：文泓
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/MYXGU1PFSD82K.png)图片来源：雅典娜设计组
+1月30日，郭文贵先生在盖特视频中连续爆料美国撤离驻北京大使馆后，中共对此事的反应。
+
+据内部战友披露，虽然中共恳求美国不要撤走全部驻北京人员，但美国仍派了多架军事医疗飞机已抵达北京首都机场。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.01.17-PM-1.png)
+
+郭先生爆料，中共昨天和今天无数次地骚扰美国，开出各种优厚条件试图挽留，比如，恢复两国领导人最重要个人关系，落实拜登和习近平的电话视频会议，以及和美国共同面对世界难题、为世界负责。
+
+郭先生评价道，中共对内，在中国人面前是披着羊皮的狼；而在西方面前，却是披着狼皮的羊。中共如此流氓的做法，遭到美国内部人士强烈鄙视。中共的流氓外交和丑陋的国际形象，在国际上丢尽中国人的脸。
+
+参考链接：
+
+1. [1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员…](https://gettr.com/post/pr64pxa8df)
+2. [1月29号：尊敬的战友们好！@1‘55”](https://gettr.com/post/pr8w9h1519)
 
 
-当地时间2022年1月28日，据零对冲报道，最早将于周六抵达加拿大首都渥太华的5万名卡车司机们可能会打破最长车队的吉尼斯世界纪录。反对加拿大政府对跨境物流活动的疫苗强制政策，卡车司机组建浩浩荡荡的抗议“自由车队”，正在激励了世界各地的其他人。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-从加拿大到美国，从澳大利亚到欧洲，卡车司机在全球范围内团结起来抗议各国政府对公共卫生的过度干预，特别是疫苗强制政策。
+总编：文特
+校正/发稿：我不在这里
 
-周六来自美国的自由车队也将于数万名卡车司机队伍汇合，以促使加拿大政府废除跨境新冠疫苗护照。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-澳大利亚一个名为[“2022年堪培拉官方车队”](https://www.facebook.com/groups/335743718379134)的脸书（Facebook）群组拥有超过66,000名成员，并正准备在1月31日之前组建车队抵达首都堪培拉，以抗议疫苗强制。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-与此同时，欧洲各地的多个车队正在组织起来，他们将在未指定的日期会合于欧盟总部布鲁塞尔。一个拥有超过14,500名成员的电报群（[Telegram）小组将召集整个非洲大陆的车队在欧盟首都会师。](https://t.me/FreedomEuro)
 
-欧洲车队是为了取消疫苗护照、没有医疗种族隔离，以及让一大批欧洲官员辞职。那么卡车司机车队是在意大利抗议吗？
-
-全球的卡车司机，首先是加拿大，现在是意大利，是的，意大利卡车司机来了，那么，巴西呢？
-
-现在一切清晰明了，正如著名播客乔·罗根所言，“加拿大人正在反抗”。
-
-而世界首富埃隆·马斯克昨天向他的7180万追随者发话，他支持加拿大卡车司机。
-
-由于卡车司机是任何经济体的心脏，这种趋势可能会发生转变，而卡车司机的集体行动可能会使世界经济重新陷入衰退。
-
-**也许政府会意识到卡车司机所拥有的力量，因为这场运动像野火一样正在全球蔓延，这也是让人民重新获得一些医疗自由并至少结束强制接种疫苗所需要的。**
-
-新闻链接：[Truckers Across Planet Unite In Convoys Against Medical Tyranny | ZeroHedge](https://www.zerohedge.com/political/truckers-across-planet-unite-convoys-against-medical-tyranny)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

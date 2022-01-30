@@ -2,24 +2,26 @@
 ---
 
 
-## 习惯被俄虐？乌克兰总统竟呼吁西方勿制造恐慌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933176/)
+## NewSGman┃疫情新闻全球最新速报（1月30日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933244/)
 
-撰稿：东京樱花团丨麗子
-![](https://lh4.googleusercontent.com/7ViV35hvGpf1MaibWQgff4-PYrveXDhtXspGW8VycKFSyp1ViPYq48XuYxPSI2RiDYKkHqAfrHkdXHlwYo3z4yB4CltpcmL9sWuztgmHa5Qd0Z2b0eheZzs_-c8uqqaCNh6Ltv_E)[*图片来源*](https://www.cnn.co.jp/storage/2022/01/21/ecea4851157373c65f26cb8f0fa7bab4/t/768/432/d/ukrainian-president-volodymyr-zelensky-msc-super-169.jpg)
-关于乌克兰的紧张局势，泽伦斯基总统说“没有必要恐慌”，并批评西方领导人过度强调俄罗斯入侵的可能性。
+撰稿：东京樱花团/NewSGman
 
-1月28日，泽伦斯基总统召开新闻发布会，指出“受人尊敬的世界领导人释放信息，好像明天就会有一场战争”。他指出无需这样恐慌，并对美国和其他国家撤离使馆人员的决定作出回应，称外交官就像船长一样，应该是最后离开一艘沉船的人，乌克兰不是泰坦尼克号。
+**瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗。**
 
-乌克兰正在遭受严重的经济危机，包括外国资本的外流，泽伦斯基总统希望防止因对入侵的日益担忧而造成国家的进一步不稳定。
+瑞典卫生局官员Britta Bjorkholm在新闻发布会上说，根据我们目前所掌握的知识，儿童患严重疾病的风险很低，我们看不到为他们接种疫苗的任何明显益处。
 
-这位总统是不是有受虐倾向，还是被虐得不清？看来不是要被强奸，这妥妥是要自愿送上门啊，真是哀其不幸啊！
+瑞典公共卫生局周四在一份新闻稿中说：尽管情况正在被“不断”评估，但他们已决定不建议在2022年春季学期为12岁以下儿童进行中共病毒疫苗的接种。
 
-信息来源：[**「パニック不要」ウクライナ大統領が欧米首脳を批判**](https://news.yahoo.co.jp/articles/d541187fe58043bf472d57ee1c42721d60a821b9)
+加拿大卡车司机聚集渥太华 ，万人聚集国会山抗议呼吁，废除联邦政府疫苗强制令。自由传递车队1月29日抵达渥太华国会山来自全国各地的加拿大民众赶来支持抵制特鲁多政府的联邦疫苗强制令，埃隆·马斯克也在推特上发帖支持。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+盖特链接：[https://www.gettr.com/post/prdim4d67c](https://www.gettr.com/post/prdim4d67c)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

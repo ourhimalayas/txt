@@ -2,19 +2,50 @@
 ---
 
 
-## 雅典娜时报-第189期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1932983/)
+## 有声|1990年的春天 吉他弹唱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1933051/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
-![圖片](https://media.discordapp.net/attachments/825592691433668612/937248913424003082/155_1-9.png?width=818&amp;height=1218)![圖片](https://media.discordapp.net/attachments/825592691433668612/937248913830866974/155_6.png?width=818&amp;height=1218)
-*发布：陶子*
+配音：香草山农场 – 纳米
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+姐姐，今夜我在等你
+那个夏天，那辆火车。带我们去一个地方
+爸爸正在听着汽笛声
+妈妈为你做了白裙子
+
+姐姐，今夜我在想你
+我的朋友，他们都老了。只有你，永远十七岁
+我已忘了家乡的春天是什么
+我已忘了你的颜色是什么
+我已忘了他们议论的是什么
+我已忘了明天的我是什么
+
+姐姐，今夜我在恨你
+你的眼睛出卖了我。你的爱毁灭了我
+什么时候我才能忘了你
+什么时候我才能靠近你
+什么时候我才能忘记你
+什么时候我才能靠近你
+
+文字版原文：[1990年的春天 吉他弹唱](https://gnews.org/zh-hans/1930028/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

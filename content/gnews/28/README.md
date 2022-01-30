@@ -2,43 +2,26 @@
 ---
 
 
-## 郝海东先生呼吁：不要做中共炮灰
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932979/)
+## 关于上合组织地缘政治利益关系(三)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933042/)
 
-作者：纽约香草山农场 文鹰
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/关于上合组织地缘政治利益关系（三）-.jpg)
+加在一起，西方这些官员的钱都没有共产党一个官员的钱多。这一个江家之几万亿美元，真的把全世界的所有政治家加在一起都没有。这个你就看到了，刚才七哥告诉你的哈萨克斯坦的这个较量，绝对是共产党整个中亚，整个和美国较量，它这个本质甩锅到美国去，又颜色革命了！而且你看到所有的感谢是什么？巩固双方的政治利益，国家权力，没有句和人民有关系，然后我们合作的项目要进行，然后呢是美国西方搞的颜色革命，为啥它完全不谈为什么老百姓上街了？
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+为什么老百姓就像在杜上别，当年杜上别开上海组织（大会），大家看看当年杜上别开会，里边有一句精彩的话，上合组织每年我一定要看它的所有的发言，说杜上别告诉西方世界，上合组织是人类和平，中亚东亚、西欧北欧东欧的和平基础！你去想这句话就搞明白了，我的地盘就是东欧、西欧、东亚、中亚都是我的！这才是目的，那钱当然是我的，这就是俄罗斯和中国之间的事儿。
+你知道昆仑山帕米尔高原整个西藏什么意思了吗？它完全是这帮王八蛋抢劫，利益分配的牺牲品。
 
-美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
+2022年1月12日大直播
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.14-PM.png)
+发布： 星谕
 
-中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.37-PM.png)
-没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.43.54-PM.png)
-
-战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
-
-郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
-
-参考链接： [2022.01.29 早《GTV新闻访谈》与郝海东大卫聊聊军队投诚那些事儿01:27:52](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
-
-编辑：Jack Li文阳
-总编：文真
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
