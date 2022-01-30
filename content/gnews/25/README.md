@@ -2,36 +2,32 @@
 ---
 
 
-## 中共金融机构将对单位和个人银行账户加大管控
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933689/)
+## 中日财经爆┃融创多个区域商票逾期 交易者异常紧张
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933703/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日，中共央行发布最新文件称：3月1日起，金融机构将对单位和个人银行账户增加管控，尽职调查客户身份资料以及交易记录，其中有两条规定跟个人存款密切相关：
+撰稿：东京樱花团丨喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-3-1.png)
+[*图片来源*](https://www.sohu.com/a/519982169_115571)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13.jpeg)
+据财经网1月30日消息，自2021年12月下旬起，融创下属项目公司开始出现无法兑付到期商票的现象。
 
-1、对大额交易、可疑交易、单位或个人身份存疑的，将进行尽职调查，其中大额交易，包括任何账户现金交易超过5万，公户转账超过200万，以及境外私户转账超过20万或境内私户转账超过50万。
+《财经》记者从持票人处得到多张票面信息，这些商票自2021年12月28日至2022年1月21日陆续到期，票据状态显示为“提示付款已拒付”，拒付理由为“承兑人账户余额不足”。这些票面金额从10万元到80万元不等，出票公司来自三亚、成都、天津、大连等多个城市。据天眼查显示，开票公司均为融创多层控股的项目公司。
 
-2、个人现金存取超过5万的，要核实身份，登记资金来源和用途。分析人士指出，在美国授权撤离大使馆之际，中共央行迅速出台了针对个人和企业的账目加强管控的规定，可以明显看出中共自知大限将至，开始努力防止人们弃船逃命，首先就是管住人们的钱。因为现在中共国内但凡开智的中国人都知道HCoin的存在，它特有的稳定币和浮动币结合，以及价值和黄金挂钩的天才设计，注定会成为人们财富安全的避风港。中共与其说是在加强资金管控，不如说就是在防止人们投资HCoin。
+融创的地产业务在全国分为北京、华北、上海、东南、华南、华中、西南七大区域。据悉，目前上海和东南两个销售状况最好的区域商票兑付正常，其余区域均有到期不兑现象。一位持有大量融创商票的保理公司人士告诉《财经》记者，融创目前的逾期规模尚可控，预计大多数机构投资者会同意展期，为融创宽限些时间。融创的真正考验在春节之后，2021年融创大量商票在2月开出，今年这些商票也将在2月集中到期。
 
-参考链接：
-1）[央行紧急通知！3月1日起，个人银行进账超过这个数将被重点监控！](https://new.qq.com/omn/20220128/20220128A09HVQ00.html)
-2）[https://gettr.com/post/pr7b151231](https://gettr.com/post/pr7b151231)
+一位接近融创高层的知情人估算，2022年春节结束时，融创会有20亿元左右的到期票据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+此次融创商票风波中，已有不少商票逾期超过10天。因此，交易者还是异常紧张。来自成都和山东的持票供应商认为，融创商票已经失去了流动性。如今他们们想把未到期商票折价出手，但买家难寻。
 
-总编：飞虹 
-编辑：文特
-校正/发稿：谐趣园
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**融创商票出现逾期，展期谈判尚在进行**](https://www.sohu.com/a/519982169_115571)
+
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

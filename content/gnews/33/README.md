@@ -2,38 +2,40 @@
 ---
 
 
-## 中国证监会立案调查相关机构导致60多家IPO项目中止
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1933527/)
+## 疫苗灾难：2022年恐增加6千万心血管病死亡人口
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933674/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/96FB616D-7802-42E6-9D11-0753759BCB01_w1023_r1_s1.jpg)图片来源：https://www.pymnts.com
-据路透社周五（1月28日）报道，随着监管机构调查他们背后的律师事务所和承销商，中共国各地有60多家首次公开募股(IPO)——包括德意志银行的中国证券企业——被搁置。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月28日外媒报道，根据史蒂夫·冈德瑞博士的全球疫苗后遗症的发展趋势进行推演，2022年因中共病毒疫苗导致的心血管病死亡患者将增加6230万人。
 
-报道称，中共国股市周三（1月26日）披露的信息显示，随着对他们背后支持者的调查继续进行，12家计划在上海科创版（这个国家的科技中心）和超过48家在深圳创业板的IPO被搁置。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-12.jpeg)
 
-报道称，寻求公开上市的这60家公司，每家都雇佣了正在被证券监管机构调查的三家公司中的一家或多家：中德证券有限责任公司（山西证券和德国银行的合资企业）、信永中和会计师事务所(SineWing)和金杜律师事务所(King&Wood Mallesons)。
+史蒂夫·冈德瑞博士在去年11月，发表在美国心脏协会AHA的论文警告说，根据mRNA疫苗第二次接种后的2个月内各种炎症标志物的测量结果，5年内遭受心脏病发作的机率增加一倍以上。
 
-这些公司都为乐视网信息技术股份有限公司提供咨询，该公司在去年3月被中国证监会(CSRC)指控在2007年至2016年期间存在财务欺诈。报道称，中共政府誓言对证券和财务欺诈“零容忍”。
+约翰-霍普金斯大学1月22日的全球疫苗接种率最新数据是51.6% ，按照全世界正常的心脏疾病死亡每年890万来进行指数推算，在2022年将额外增加6230万的心血管病死亡。
 
-拟议中的上海科创版首次公开募股的候选公司包括北京通美晶体技术有限公司、合肥晶合集成电路股份有限公司和国网智能科技股份有限公司。创业板支持的希望上市的公司包括龙口联合化学有限公司、浙江斯菱汽车轴承股份有限公司和制药商天津同仁堂集团股份有限公司。
+而这个惊人的数据模型推演出的结果，与泽连科医生接受媒体采访时所披露的75%接种疫苗的人士会在未来三年内死亡相吻合。这是一场全球大屠杀。
 
-本周早些时候，彭博新闻社报道，帮助电商进行跨境支付的中共国初创公司杭州乒乓智能技术有限公司(PingPong)正在考虑IPO，以筹集高达10亿美元的资金，并考虑在中共国大陆上市后，可能在今年晚些时候进入香港市场。
+参考链接：
+1）[Covid-19 Vaccines are projected to cause 62.3 Million Cardiovascular Deaths in 2022 Worldwide](https://dailyexpose.uk/2022/01/28/covid-19-jabs-projected-cause-62-mil-cardiovascular-deaths-2022/)
+2）[https://gettr.com/post/p7zsan54d1](https://gettr.com/post/p7zsan54d1)
+3）[https://gettr.com/post/pi0ncxa731](https://gettr.com/post/pi0ncxa731)
 
-据彭博社报道，杭州乒乓智能技术有限公司还将尝试在IPO融资前的一轮融资中筹集约3亿美元，并指出该公司的估值为50亿美元。该公司在2020年取得了“独角兽”的地位，这意味着它的价值在上市前就已经超过了10亿美元，到当年年底达到了15亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-**简评：**企业在中共国证券市场的上市行为实际上是中共权贵们收割老百姓韭菜的一种有效手段。中共国的股市不同于发达国家股市有完善的法律监管体制，只有好的企业才能继续留在股票市场，而长期表现不佳的企业则将被退市。而这些国家长期实行的就是自由市场经济，因此股票能反映出它本身真实的价格。但中共国的股票市场本质就是在线赌场，所有的涨跌都是权贵们的背后操作，通过各个电视频道宣讲炒股理财，吸引大量的中国老百姓将自己的血汗钱投出股市，等到人数凑齐了，来一泼下跌，薅一波羊毛，自己赚的盆满钵满，而老百姓亏的血本归。中共国的监管机构对律师事务所和会计事务所展开调查也并不是为了取缔这一不公平的游戏，而是共产党内斗在金融领域的延伸，是新晋权贵取代老一辈权贵的过程，而中共国老百姓想要摆脱这种被不断压榨的命运，唯有灭掉中国共产党。
+总编：文真
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-新闻链接: [https://www.pymnts.com/news/ipo/2022/china-investigation-triggers-delay-in-60-ipos/](https://www.pymnts.com/news/ipo/2022/china-investigation-triggers-delay-in-60-ipos/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

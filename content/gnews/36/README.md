@@ -2,20 +2,20 @@
 ---
 
 
-## NewSGman┃美国17000名医生联署要求停止强制疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933515/)
+## 樱花灭共诗——甜蜜蜜之行（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933554/)
 
-撰稿：东京樱花团/NewSGman
+作者：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2022/01/4-49.jpg)
+软语春风甜蜜蜜，
 
-美国17000名医生联署签名要求停止强制中共病毒（新冠病毒）疫苗。
+孤心旧梦曲飞飞。
 
-Richard Urso医生在华盛顿参加击败疫苗授权集会上的演讲表示，有强大势力在反对压制正义良知的医生们，但医生们会用数据与真相唤醒人们抵抗疫苗暴政。
+万千悲喜多情意，
 
-信息来源：
-
-[https://www.gettr.com/post/pq8yef2ad5](https://www.gettr.com/post/pq8yef2ad5)
-
-编辑：东京樱花团/喜马拉雅的微尘
+飘过神州铁幕帷。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2497.png)
+校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 

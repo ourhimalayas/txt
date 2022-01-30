@@ -2,22 +2,18 @@
 ---
 
 
-## NewSGman┃疫情新闻全球最新速报（1月27日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933461/)
+## NewSGman┃六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933510/)
 
 撰稿：东京樱花团/NewSGman
 
-![](https://lh4.googleusercontent.com/ieWRyHAc_qz2NCvfH_T8FOYNLR-9eE61Bb9ej4CIXtDXiFIXfa2F1Izipw9zHuleZWaaohGbcI_kARgzsePplpxXi-iqNmKZ9yvc3Pdp9mUIbhrsygIcNfJUOpHUDY_C-udao2Qr)
+1月24日，郭文贵先生在大直播中表示，要在六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动。
 
-日本民众在觉醒，要求停止给未成年人接种疫苗️。
+郭文贵先生指出，比茉莉花革命更高段数的“甜蜜蜜运动”获得了党内及各界人士的支持，习近平的中国梦将成噩梦。甜蜜蜜运动会有中国很多军人、音乐家、医生、律师 教师、知识分子界等有勇气有良知人士参加。
 
-1月25日据RBC琉球广播电视台报道：冲绳县将于3月开始给儿童接种中共病毒疫苗。本月25日该县的一个由医生和孩子家长组成的民间团体向冲绳县政府提交了一份请求书，要求停止给未成年人接种中共病毒疫苗，因该疫苗的中长期副作用尚不明确 。
+信息来源：
 
-该医生家长组成的反疫苗团体在稻田举行了新闻发布会表示“在新冠疫苗的安全性和有效性确定之前，我们将要求暂停未成年人的疫苗接种。”“在接种疫苗的情况下，父母的焦虑没有得到解决，这是一个问题。”
-
-日本政府1月21日宣布将允许给5岁以上、12岁以下的儿童接种疫苗。该团体呼吁县政府在中共病毒疫苗的安全性和有效性还未得到证实之前，为儿童接种中共病毒疫苗的问题应该认真考虑，并说在没有解决家长的担忧的情况下进行疫苗接种是有问题的。当涉及到孩子的问题时，民众就不会那么容易被欺骗了，这关乎着日本的未来，今后一定会有更多的家长和医生站出来 。
-
-盖特链接：[https://www.gettr.com/post/pqu7q12e4e](https://www.gettr.com/post/pqu7q12e4e)
+[https://www.gettr.com/post/pqf7rj9fd8](https://www.gettr.com/post/pqf7rj9fd8)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
