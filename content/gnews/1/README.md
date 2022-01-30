@@ -2,16 +2,18 @@
 ---
 
 
-## 樱花头条┃冬奥运动员宣誓视频被爆 “报效领袖豁出去”誓词引哗然
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933401/)
+## NewSGman┃日版“马格尼茨基人权法案”呼之欲出 电台预热正在进行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933454/)
 
-撰稿：东京樱花团/樱花传媒
+撰稿：东京樱花团/NewSGman
 
-![](https://lh6.googleusercontent.com/iSik_KRs-0Uak8FErZRBAoLURj_-N7e8gF1AZsZW1gXaNJU0fLptfpfP6liAQGR0DVQhQyo-bB_X8ENlpC5EiMYcdDM7hdcyuojHLcyIUttClV1L5jv_fGL_RgP8X8QG6PWI44rw)
+2022年１月28日，日本电视节目引用2012年在美国颁布实施的《马格尼茨基人权问责法》，联系当前欧美对中共人权问题的批判和制裁，深入解析中共人权问题。
 
-近日，北京冬奧会進入倒计时，中国体育代表团日前在天安門广场宣誓出征，喊出奇葩誓言“报答领袖豁出去”，引发议论热议。
+《马格尼茨基人权问责法》规定对参与镇压、酷刑和种族灭绝等侵犯人权行为的外国个人和组织实施制裁的法律。资产可以被冻结，并被禁止入境。
 
-盖特链接：[https://gettr.com/post/ppvbgra60b](https://gettr.com/post/ppvbgra60b)
+信息来源：
+
+[https://gettr.com/post/pr1ftz8056](https://gettr.com/post/pr1ftz8056)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

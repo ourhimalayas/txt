@@ -2,29 +2,33 @@
 ---
 
 
-## 中超球员曾假扮残障人士在特奥会夺冠
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932977/)
+## 郝海东先生呼吁：不要做中共炮灰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932979/)
 
-作者：纽约香草山农场 文真
+作者：纽约香草山农场 文鹰
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月29日，郝海东先生在新中国联邦访谈节目中，以亲身经历爆料中共假丑恶，讲述中共如何在体育比赛中弄虚作假。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.52.42-PM.png)
-据称，前中超主力球员张诚，曾向海东先生炫耀自己获得“冠军”的事迹，但事实却是，他在中共的指使下，假扮成智力残障人士，参加特奥会足球比赛，取得了冠军。
+美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.14-PM.png)
 
-1. [郝海东先生的详细讲述@1:32:25~1:35:15。](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
-2. [听郝董爆料中共这帮烂人的假丑陋。。。](https://gettr.com/comment/ckdf841194)
-3. [图文：特奥会足球比赛开赛 张诚在比赛中](http://2008.sohu.com/20071006/n252491322.shtml)
-4. [当年代表共产党参加特奥会的张诚…](https://gettr.com/comment/ckd14o6c48)
+中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.37-PM.png)
+没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.43.54-PM.png)
+
+战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
+
+郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
+
+参考链接： [2022.01.29 早《GTV新闻访谈》与郝海东大卫聊聊军队投诚那些事儿01:27:52](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
 编辑：Jack Li文阳
-总编：Ivy001
+总编：文真
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
