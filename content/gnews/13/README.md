@@ -2,8 +2,8 @@
 ---
 
 
-## 沼泽地对人类的大犯罪
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931821/)
+## 共产党都看爆料和了解各个战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931858/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

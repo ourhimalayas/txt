@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦人是世界最伟大的力量
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931829/)
+## 共产党不是沼泽地的主角，也必死无疑
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931866/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

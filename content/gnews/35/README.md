@@ -2,47 +2,28 @@
 ---
 
 
-## 埃隆马斯克对购买社交媒体持开放态度
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1931299/)
+## 中共将对银行境外贷款进行严格管制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931352/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团丨深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2457.png)
+1月29日，中国人民银行、国家外汇管理局发布关于银行业金融机构境外贷款业务有关事宜的通知。
 
-整理/编辑：文泓
+通知提到，境内银行应按照审慎经营原则，综合考虑资产负债情况和币种结构等各方面因素，统筹境内、境外业务发展，在境外贷款余额上限内按规定自主开展境外贷款业务，鼓励对有实际需求的境外企业优先采用人民币贷款。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/24-1.png)图片来源：墨尔本雅典娜农场设计组
+境内银行应做好境外贷款业务规划和管理，确保任一时点贷款余额不超过上限。若因银行一级资本净额（营运资金）、境外贷款杠杆率或宏观审慎调节参数调整导致境外贷款余额超过上限，银行应暂停办理新的境外贷款业务，直至境外贷款余额调整至上限之内。
 
+中国人民银行、国家外汇管理局对27家银行境外贷款业务实行统一管理。
 
-当地时间1月28日，据《科技时报》报道，一位有影响力的网络名人，保守派评论员兼作家迪内什·德索萨（Dinesh D’Souza）给埃隆·马斯克支了一招，要求特斯拉CEO去影响世界的政治和文化变革。德索萨对马斯克提出三项建议，包括购买社交媒体平台、电视台和建立学校。
+如今，中共央行和外管局将严格管理通过银行进行境外贷款， 以防止通过内保外贷将资金转移出境，更害怕将资金投入到喜币、喜联储！
 
-来自德·索萨的这条推文，无疑是这位科技大佬需要深思熟虑的事情，因为它暗示了马斯克在世时要建立的三大支柱，德·索萨表示，马斯克要想实现政治和文化变革，他就需要（上述）三个支柱来推动他的想法和推广他的信仰。
+随着美国政府授权撤离其驻北京大使馆，标志着灭共的第三道大门已正式打开！此时此刻，世界已经炸锅了，想当年美国撤离伊拉克大使馆后，马上就是开战！美国长期不派大使，授权撤离大使馆，中共内部所有有权有脑子的都知道，大势已去，共产党彻底要完了！另外，随着喜交所Hpay功能即将上线，中共资金将会被迅速抽干，中共邪恶政权将瞬间土崩瓦解！
 
-为此，建议埃隆马斯克应该购买社交媒体平台，创建电视台或媒体渠道，并为其企业建立学校或学习机构。有了这些机构，马斯克可以有效地更好地传播他的信念和理想，并有助于这位CEO实现他想要的社会变革。
+信息来源：[**央行、外汇局：境内银行发放的境外贷款不得用于证券投资**](https://www.cs.com.cn/xwzx/hg/202201/t20220129_6239845.html)
 
-马斯克曾因多次反对CNN和《纽约时报》等传统媒体提出的叙述而屡次登上新闻。这次马斯克回应说，这些是[“有趣的”](https://twitter.com/elonmusk/status/1487168671269203968)，也许是现在需要考虑的事情。
-
-德索萨的言论广受好评，几个小时内在推特上获得40,000多个赞，马斯克的回复获得了近50,000个赞。
-
-马斯克以其对社交媒体的巨大政治和文化影响而闻名，但马斯克的推特平台可能只供个人使用，绝不意味着带来社会变革。
-
-尽管如此，即使没有这三个可以推动政治和文化变革的机构，马斯克也已经可以为世界做出很多贡献。世界不需要仅仅为了传播思想和信仰而对其公民进行“控制”并成为最终的统治者。
-
-然而，这仍然可能是马斯克的选择，特别是如果他决定想为全球公民带来更多的东西。
-
-新闻链接：
-
-1、[Will Elon Musk Buy a Social Media, Create a TV Station, and Establish a School? Twitter is Not Enough Says Souza | Tech Times](https://www.techtimes.com/articles/271177/20220128/will-elon-musk-buy-social-media-create-tv-station-establish-school.htm)
-
-2、[Elon Musk appears open to idea of buying media platforms | The Post Millennial](https://thepostmillennial.com/dinesh-dsouza-elon-musk-media-platform)
-
-***发布：**tianzhihuan*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
