@@ -2,26 +2,43 @@
 ---
 
 
-## 中日财经爆┃中国制造业PMI因经济活动放缓和防疫实施而下降
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931945/)
+## 纽约护士伪造疫苗卡被捕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1931953/)
 
-撰稿：东京樱花团丨盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2476.png)[*图片来源*](https://s.wsj.net/public/resources/images/S1-GY255_0731ch_M_20200731005031.jpg)
-据彭博社消息：衡量中国制造业活动的一项政府指数在1月有所下降，但仍高于50大关，这是经济扩大或收缩的重要指标。经济活动的季节性放缓、中共（新冠）病毒感染激增、以及住房销售疲软都对商业活动产生了影响。
+翻译：文扬
+编辑：Sadhu
 
-根据国家统计局的数据，1月份制造业采购经理人指数（PMI）为50.1，勉强高于彭博社汇编的经济学家预测中值50。涵盖建筑业和服务业的非制造业PMI降至51.1，但略高于市场预期。
+该计划据称带来超过150万美元的收入
+![](https://assets.gnews.org/wp-content/uploads/2022/01/P584OVAOL_IIC7MH.png)© Ethan Miller/Getty Images
+两名纽约护士因涉嫌出售假冒的 Covid-19 疫苗接种卡，并在此过程中赚取超过 150 万美元而被捕。
 
-因工人回家过中国新年假期，中国的制造业活动通常在1月和2月放缓。 今年，它还受到政府命令钢厂在2月4日北京冬奥会开幕前削减产量以减少空气污染的影响。
+萨福克县地区检察官办公室宣布，在长岛工作的两名护士，49岁的朱莉-德沃诺（Julie Devuono）和44岁的玛丽莎-乌拉罗（Marissa Urraro），从去年11月到2022年月一直在伪造疫苗卡。据报道，这两人对成人的疫苗卡收取220至440美元的价钱，但对儿童提供折扣， 仅收取 85美元。
 
-除了房屋销售的下降，消费也受到了为遏制奥密克戎扩散而出台的限制性措施的打击。
+在伪造实体疫苗卡后，据称这两个人会在纽约州免疫[B1] 信息系统 (NYSIIS) 中添加虚假信息，将未接种疫苗的人列为接种疫苗者。
 
-同日财新网公布制造业采购经理人指数PMI在1月份降至49.1，是近两年来的最低水平。
+检察官还称，这些护士为卧底警探伪造了疫苗卡。这两人在阿米蒂维尔（Amityville）的Wild Child Pediatric Healthcare工作，该机构由执业护士德沃诺（DeVuono）拥有。
 
-信息源：[**中国製造業ＰＭＩが低下、季節的な活動鈍化やコロナ対策の影響で**](https://news.yahoo.co.jp/articles/3abce2c6e51552a938c66a7453cf5577084e2b12)
+据当地媒体报道，该儿科诊所周围的商家注意到最近人流量增加。一位居住在附近的人士告诉纽约哥伦比亚广播公司(CBS)的记者：“这可怕到无可言喻！”
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+在对DeVuono的家进行搜查中，警方发现了90多万美元现款，以及一个记录了150多万美元的所谓疫苗卡计划付款的账本。
+
+德沃诺和乌拉罗双双被控触犯了伪造罪。
+
+萨福克县地区检察官雷蒙德-蒂尔尼（Raymond Tierney）在一份声明中补充说，他希望逮捕行动将向任何其他 “考虑玩弄现有系统 “的人 “发出一个信息”。
+
+**蒂尔尼说：****“****我们充分地执行法律。”**
+
+原文链接： [New York nurses arrested after making staggering amount from fake vaccine cards — RT World News](https://www.rt.com/news/547744-nurses-fake-covid-vaccine-cards/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

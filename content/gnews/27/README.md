@@ -2,45 +2,32 @@
 ---
 
 
-## 音乐是敞开心扉开启与对方沟通之门和情绪表达的方式
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932382/)
+## 中日财经爆┃历史最高8.7万亿土地收入 中共拙劣的财富洗劫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1932410/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f62ea2d90bdd2085a276dc](https://gtv.org/video/id=61f62ea2d90bdd2085a276dc)
+撰稿：东京樱花团丨知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-34.png)[*图片来源*](https://finance.sina.com.cn/china/2021-06-10/doc-ikqcfnca0289086.shtml)
+1月28日，中共财政部公开2021年财政收支情况。其中，国有土地使用权出让收入87051亿元，同比增长3.5%，创历史新高。大约相当于地方一般公共预算本级收入（约11.11万亿元）的78%。自1998年中国住房市场化改革启动后，土地出让收入从507亿元增至87051亿元，增长了170倍，而同期GPD仅增长了14倍。这也显示出地方财政收入对土地出让收入的绝对依赖。
 
-**郭文贵先生：**我刚才看了咱们做的MV，还有一开始的这个音乐啊，我觉得这是G-TV有史以来我觉得音乐是听着最舒服的，这是要感谢G-TV后台的工作，所有的工程师，还有咱们G-Music这个团队咱们制作的精美的视频，每一段视频还有音乐都太棒了！这你很难想象（在）一年前，新中国联邦搞音乐的时候《我是音雄》这个节目从开始到今天。
+而2021年是房企大规模债务违约元年，大量房地产标杆企业均陷入债务危机，流动性严重不足，面临破产重组。可就在这种大规模债务违约下，土地出让收入还创历史新高，谁在买地？
 
-刚才我们看到Superman，就是Superman是个特别害羞的女孩啊，但是我觉得她表达的能力和各方面都是用音乐给表达出来了。我从认识甜甜我觉得她今天讲得是最好的，她讲音乐讲最好的，我刮目相看。Ryan也是少言寡语，跟Q May两个人加一起说的话，我觉的都没有今天多，我觉得就是一下敞开心扉。音乐是一个人内心的一把钥匙，它能开启和对方沟通的门，也是情绪表达最好的一种方式。
+从2021年1—12月国央企及民营企业拿地金额的分布情况来看，国央企在土地市场的参与度有明显提升，上半年多保持在50%左右，至12月国央企拿地的权益金额占比已高至82.5%。首批集中供地时期，即4—6月，国央企的权益拿地金额占比上升至50%左右；第二批集中供地时期，即9月，国央企占比高达79.3%； 第三批集中供地时期，即10—12月，各地的城投、城建企业占据了拿地的主流，国央企占比高达88%。这会产生什么影响？
 
-然后刚才作为一个唯一今天外国人坐在这里的Peter，Peter刚才英文讲的我都听懂了，我觉的比我的英文讲得好。特别是他的祖宗、爷爷为自由而战呐，Peter讲的音乐还有整个这一系列，我觉得真的是我觉得自由、正义，音乐是一个很好的工具表达，这就是音乐的来源。
+国央企拿地的集中度有极大提高，民企基本上被挤出了土地市场，市场参与者实质就只有一个，中国共产党，他自己玩左右手互搏。中共模拟了一个土地市场，价格自定，供应量自定，参与者就是代笔党的利益的各个地方政府和各个不同的国央企。这些参与者能炮制出任意巨额交易，并通过银行、股市和债券市场融资，将人民的财富转移至国央企，再转移到政府手里。为什么要产生如此巨额的交易量？
 
-字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
+一是，中共国房地产总市值超100万亿美元，中共国GDP超过17万亿美元，支撑如此天量市值，就必须要有一定的增长，即为虚假繁荣的必须；二是，地方政府正在大量流失税收，只有通过卖地才能保持基本的运营收入；三是，做大水池定向回收人民手中的钞票，绑架中国人民，为党买单。这会产生什么后果？
 
-编辑整理：Jacques；
+随着房地产业即将出现的断崖式崩塌，企业必定出现债务违约，银行贷款无法收回，房企股票价格暴跌，债券无人接手，整个链条上就只有一个倒霉蛋，中国人民，财富面临直接清零的巨大风险。巨额土地出让收入实质就是政府自导自演“合法”洗劫人民财富所得，直接不还钱了，比货币增发还彻底。
 
-字幕文件制作：小满；
+信息来源：
 
-视频制作及上传：Cindy；
+**1、**[**8.7万亿！去年地方土地收入创新高，但今年不乐观**](https://www.163.com/dy/article/GUSR522C0519DDQ2.html)
 
-G-News发布：小满；
+[**2、2021 年房企拿地四大变化**](https://pdf.dfcfw.com/pdf/H3_AP202201181541177562_1.pdf?1642537043000.pdf)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

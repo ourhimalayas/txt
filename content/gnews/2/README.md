@@ -2,42 +2,46 @@
 ---
 
 
-## 中共虚假同意联合国人权专员访问新疆
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932563/)
+## 中共国在奥运会相关人员中报告了 34 例新的 COVID-19 病例
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1932653/)
 
-撰稿：纽约香草山-侠肝义胆，Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-据外媒1月27日消息，中共已同意让联合国人权事务高级专员，在北京冬奥会后的今年上半年访问新疆。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2479.png)
-该媒体称，联合国人权组织指责中共在新疆地区对维吾尔人和其他少数民族实施了大规模拘留、酷刑和强迫劳动。从2018年9月以来，联合国人权组织高级专员一直就新疆问题和中共相关部门进行交涉，并要求到新疆独立调查。
+新闻来源：路透社
 
-但中共一直否认，所有抓捕和虐待新疆少数民族的指控，并拒绝同意联合国人权组织到新疆进行调查。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据有关消息人士称，中共这次是有条件的同意联合国人权高级专员访问新疆。中共要求联合国人权专员按照其安排“友好”的访问新疆，而不是去调查新疆种族灭绝真相。目前还没有联合国人权组织方面的回应消息。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/EIBESVYBGVIFJDAVEC2BLXSR4E.jpg)
 
-对此，有关分析人士认为，这显然是中共在美国撤出大使馆及扺制冬奥会的巨大压力下，玩耍的一出虚假的政治游戏。妄想让联合国人权组织配合中共到新疆表演一场政治秀，减缓国际压力。
 
-新闻来源：
+资料来源：路透社
 
-[China Agrees to Xinjiang Visit by UN Rights Chief in Early 2022](https://www.newsmax.com/newsfront/china/2022/01/27/id/1054395/)
+北京 2022 年冬奥会组委会周日表示，在与奥运会相关的人员中发现了 34 例新的 COVID-19 感染，其中包括波兰短道金牌得主娜塔莉亚·马利舍夫斯卡（Natalia Maliszewska）。
 
-[China agrees to Xinjiang visit by U.N. rights chief in early 2022–South China Morning Post](https://www.asahi.com/ajw/articles/14534238)
+其中，13人是周六抵达机场后检测呈阳性的运动员或球队官员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
+在总感染人数中，有 23 人是新抵达机场的人，而 11 人已经处于将活动人员与公众隔开以遏制感染传播的“闭环”中。
 
-总编：Irene木木/飞虹
+该环路允许奥运会参与者乘坐官方交通工具在其住宿和奥运场馆之间自由移动，但不允许他们在城市内自由移动。包括媒体和工作人员在内的所有奥运会利益相关者也每天都要接受测试。
 
-编辑:飞虹
+波兰奥委会周日表示，马利舍夫斯卡是第八名检测呈阳性并已被隔离的波兰运动员。她与受感染的速滑运动员 Natalia Czerwonka、Magdalena Czyszczon 和 Marek Kania 一起隔离。
 
-校正/发稿：浪迹天涯
+随着 500m 预赛将于周六开始，Maliszewska 正在与时间赛跑。检测呈阳性且无症状的运动员只有在间隔 24 小时连续两次检测呈阴性的情况下才能解除隔离。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+澳大利亚周日在其团队成员中宣布了 COVID-19 检测呈阳性，但没有说明是运动员还是教练组。
+
+团队负责人杰夫·利普舒特（Geoff Lipshut）表示，阳性检测结果令人担忧，但迄今为止只有一例病例，感染者与其他团队成员没有密切接触，这将迫使其他人进行隔离。
+
+“对于这种意外情况，没有任何焦虑或压力，每个人都做好了准备，”Lipshut 告诉记者。
+
+北京奥运会组织者警告说，随着中国首都采取严厉措施，限制任何奥运会参与者与当地民众的活动和接触，未来几天会有更多病例出现。
+
+与许多寻求与 COVID-19 共存的国家不同，中国以零容忍政策孤立自己，取消了几乎所有的国际航班。奥运会运动员和其他人必须乘坐包机直接飞往城市。
+
+🔗 [中共国在奥运会相关人员中报告了 34 例新的 COVID-19 病例](https://www.reuters.com/world/china/china-reports-34-new-covid-19-cases-among-olympics-related-personnel-2022-01-30/)
+
+责任编辑/发布： Shuizhuyu
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

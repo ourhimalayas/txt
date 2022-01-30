@@ -2,34 +2,36 @@
 ---
 
 
-## 英首相拟访问俄乌地区，在欧洲各地部署大量军队
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1932185/)
+## IMF：中国经济的不平衡状况已经恶化
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1932271/)
 
-#### 撰稿：彩虹
+整理：Sara9
+编辑：Little Lamp
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-50.jpg)图片来源：独立报
-1月29日，《新闻极限》发布文章说，根据《独立报》的报道，英国首相鲍里斯·约翰逊（Boris Johnson）将在未来几天访问俄乌地区，以在日益增长的担忧中努力“加强威慑（和）避免流血事件”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-2.png)图片来源：雅典娜设计组
 
-唐宁街的一位女发言人在一份声明中说：“首相决心加快外交努力，加大威慑力度，以避免欧洲发生流血事件。他将在本周与普京总统通话时重申，俄罗斯需要退一步，以外交方式参与。”
 
-报道说，在进行外交努力的同时，在上周关于欧洲局势的高级别情报会议上，约翰逊要求国防和安全主管考虑在欧洲采取进一步的防御性军事行动措施。
+据大纪元报导，国际货币基金组织（IMF）在一份报告中说，中国经济的不平衡状况已经恶化。
 
-在会议后选择的缓解俄罗斯侵略的方案中, 约翰逊将包括加强北约的防御以及（建立）新的部署。在其他选项中，预计约翰逊还将宣布对俄罗斯的进一步制裁，从而可能打击该国的金融利益。
+在跟北京进行2021年第四条款磋商后，IMF在周二（1月25日）发布的年度审查报告《世界经济展望》中说，不太有利的比较基数、消费疲软、房地产投资下滑带来的阻力将成为2022年拖累中国经济增长的主要因素。
 
-而据《国会山报》1月29日最新报道，周六，英国首相鲍里斯·约翰逊在一份声明中说，由于俄罗斯可能入侵乌克兰的威胁导致紧张局势持续升温，英国正准备下周在欧洲各地进行一次大规模的军队部署。
+虽然中共官方报告说，2021年经济增长8.1%，比2020年的2.3%有大幅提高，但经济增长很大程度上依赖于国家部门的投资和出口，而私人消费支出却出现急剧下降，且在2021年的最后几个月，中国经济增长明显放缓。
 
-据路透社报道，根据约翰逊周六发表的声明，英国正在考虑向其他北约成员提议，将把部署在东欧的英国军队数量增加一倍，并向爱沙尼亚发送防御性武器，以努力加强东欧的边界（防卫力量）。
+中共的COVID-19“清零”政策也抑制了消费者的消费信心，再加上一连串的打压行业政策措施——包括房地产投机以及教育培训业——也抑制了私营企业和消费者个体的情绪。
 
-首相在声明中说：“我已经命令我们的武装部队准备下周在欧洲各地进行部署，确保我们能够支持我们的北约盟友。这一方案将向克里姆林宫发出一个明确的信息，即我们不会容忍他们破坏稳定的活动，面对俄罗斯的敌意，我们将始终与我们的北约盟友站在一起。”
+IMF的报告说，房地产部门扰动已成为更大范围的中国经济减速的前奏，严格的清零政策导致频繁地实施人员流动限制措施，加之建筑业就业前景不断恶化，很可能使私人消费弱于预期。
 
-据路透社报道，英国官员将在周一开会讨论军事方案，并在下周敲定这一决定。
+IMF已经下调中国2022年的增速预测值至4.8%，低于之前预期的5.7%。
 
-**新闻来源**
+文章来源：[IMF下调中国经济增长前景 中共急安抚华尔街](https://www.epochtimes.com/gb/22/1/28/n13537112.htm)
 
-[UK’s Boris Johnson to Visit Russia-Ukraine Region Amid Tensions](https://www.newsmax.com/newsfront/boris-johnson-diplomacy-invasion-aggression/2022/01/29/id/1054592/)
+发布：tianzhihuan
 
-[UK’s Johnson says he’s ordered armed forces to prepare for deployment next week amid Ukraine tensions](https://thehill.com/policy/international/591961-uks-johnson-says-hes-ordered-armed-forces-to-prepare-for-deployment-next)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

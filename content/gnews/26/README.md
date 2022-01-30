@@ -2,57 +2,36 @@
 ---
 
 
-## 我是音雄里每个人唱出的歌都会让人想起音乐到底是什么
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1932404/)
+## 突破：新疆冰雪运动员再次“被祝福”北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1932419/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f62f42d90bdd2085a27715](https://gtv.org/video/id=61f62f42d90bdd2085a27715)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-0-1-15.png)[*图片来源*](https://www.sohu.com/a/519848413_748852)
+**中共利用北京冬奥会企图掩盖种族灭绝罪。除了要求新疆的冰雪运动员在其赛场上为共产党血旗增添更深血色外，世界也正在以一场“冰冷的运动”为其背书？并要求中共国体育官员和运动员在天安门表忠心：“报答领袖，豁出去！”“跟着总书记，一起向未来！” 正如新疆“图尔苏奈 ·齐亚”的悲惨遭遇那样，被集体轮奸后还要高唱共产主义歌曲。美国企业家也如此，他们承认维吾尔人遭遇“酷刑”，但他们辩称：“我不是政客。”而政客又辩称，“官方抵制、但不会体育政治化。”**
 
-**郭文贵先生：**这就是我说二战的时候的希特勒时期的瓦格纳音乐中的犹太人，大家一定去了解这个瓦格纳太厉害了！这瓦格纳在二战的时候的音乐改变了欧洲人。你想想，杀600万犹太人他竟然拿着个音乐让大家坚信杀人是对的，到了这个苏联的四首歌曲，是吧？
+据中共国新华社30日消息，新疆和田地区各族冰雪运动员正在“冰上曲棍球比赛”为北京冬奥会助兴，而中共在新疆犯下的种族灭绝罪似乎被忽视，相反，新疆的冰雪运动员却被用来增添共产党血旗的深红血色外，世界也正在以一场冰冷的运动在为其邪恶政权背书？
 
-你看看那四首歌曲你就不要说内容洗脑，你就说那个音乐对你的征服力量超过了导弹。然后就毛主席，是吧？《北京的金山上》出来个红太阳，还是“呼呀嗨呀呼呀嗨”的，你看你想想。
+消息称，12岁的古丽克孜·艾沙5岁时就喜欢上滑冰，从最初的冰车，到现在[无师自通](http://m.news.cn/xj/2022-01/30/c_1128309335.htm)滑起冰刀，加速、冲刺、刹车、原地旋转等基本技能都已熟练掌握。古丽克孜·艾沙说： “滑冰不仅锻炼身体，也给我带来很多快乐。”但艾沙接下来的一番表态却像极了“[电视认罪](https://www.youtube.com/watch?v=UNPcFm1UsR0)”，艾沙说，“我特别羡慕站在领奖台上的奥运健儿，每当五星红旗升起，我都特别激动，我要——为北京冬奥加油！”更邪恶的是，运动员和体育官员纷纷在天安门“被表忠心”：“[报答领袖，豁出去！”“跟着总书记，一起向未来！](https://www.youtube.com/watch?app=desktop&amp;v=1QdCnLEy9Lc)”
 
-我们现在几乎咱们这几代人你怎么都跑不掉，斯大林还有希特勒、还有共产党给你洗脑的六调，几乎跑不掉，“共产党你是我们的灯塔”，是不是？你想想多可怕多恐怖啊这些歌这些东西。
+- ***延展阅读：***[***北京冬奥会公布芮宁、迪妮格尔 • 衣拉木江、巴亚尼 • 加林3名“新疆娃”入选名单***](https://www.sohu.com/a/519848413_748852)
 
-然后你再看到Peter刚才讲这是爷爷开始奋斗，到今天为自由、为正义，这很重要的，是吧？可是你看我们的Ray妹妹那种自豪感啊，因为音乐找到了爱，这是多么……你看每个人的这个内心世界，在音乐面前打开的时候是多么的灿烂，多么的美丽，而且是多么的浪漫啊！
 
-然后，我知道这是甜甜找不着男朋友的原因，一般人配不上，内心世界很浪漫。然后那二圣不但有了一个好的娘，二圣你看看刚才对音乐的理解，她对整个音乐和music作为缪斯女神带给人类的影响，音乐是天赋的，不是谁给我们的，我们每个人都可以有music表达的能力，我觉得二圣讲得太好了！
+- ***延展阅读：***[***维吾尔族妇女的灭绝：中国西北地区政府的“职业培训营”中对穆斯林妇女的虐待、酷刑和强制绝育***](https://www.theiwi.org/gpr-reports/annihilation-of-uighur-women)
 
-青藤这样能唱歌，我觉得青藤老是太谦虚，青藤还没打开，打开（的话）歌会唱得更好。然后你看我们当时《我是音雄》Rica还有我们的小伙子Bunny，这让我真的是，对我的影响是特别特别大的。我们那么多人，你像娜娜酱、300年飞飞、罗伊这人你看都去唱歌，而且今天我们在G-TV上，现在是自己的G-TV表达了这样的专业的音乐，这不是开玩笑的。
 
-就像这个Q May和Ryan都是专业啊，甜甜也是专业，Superman也是专业，唐平是专业，Peter和Ray是专业，二圣也是专业，现在就青藤和我、威廉（王）不是专业。但是威廉的歌词是我认为我所有听的歌讲得最好的，写得最好，我觉得他绝对是天才中的天才啊！
+那个名叫“[图尔苏奈 ·齐亚被中共警察在集中营轮奸](https://nypost.com/2021/12/18/uyghur-women-recall-horrors-of-chinas-labor-camps/)” 的故事正在被冬奥会冲淡了中共政权的犯罪事实吗？人们不知道有多少“图尔苏奈 ·齐亚”这样不幸的悲惨女性，但她们都轮奸、奸杀、羞辱和“被要求唱共产主义的爱国主义歌曲，并一再告诉她她的穆斯林宗教不存在”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2484.png)
+[*图片来源*](https://images.squarespace-cdn.com/content/v1/552fe729e4b0c33e91169c8e/1615976713649-GCWC5DQUY2OHHOWDUVKI/Uighur+women.png?format=1500w)
 
-这是为什么今天，你看我现在运动（时）谁的歌都不听就听咱们的歌。唐平嗓子“啊～”的一喊“我是英雄，喜马拉雅”，我健身的这个劲儿就来了，就“咵咵”地就开始了。它是一种动力，它是一种希望，它是一个绝对的纯天然的力量！
+这是一个沉痛的消息，尽管人们相信中共国政党的邪恶不会被冰雪覆盖、而是那些冤魂一定会在2022年北京冬奥会后“蒙冤昭雪”，但一些企业家仍在垂涎中共国市场。随着2022年北京冬奥会的到来，中共将利用新疆天然的冰雪条件打造一个“冰雪运动中心” 。据 BBC News 中文消息称，“[尽管一些西方国家声称中国正在对当地穆斯林进行‘种族灭绝’，但许多外国公司都在争先恐后地进入新疆——中国降雪条件和气候最好的地区](https://www.archyde.com/beijing-winter-olympics-2022-xinjiang-takes-advantage-of-olympics-to-become-chinas-ice-and-snow-sports-centre-bbc-news-%E4%B8%AD%E6%96%87/)。”
 
-我觉得《我是音雄》在未来全人类面对这个黑暗的最黑暗的时刻的时候，《我是音雄》的每个人唱出的歌声都会让后人去想音乐到底是什么？音乐和我们什么关系？
+这就是美国等西方民主国家认为共产党对维吾尔族进行“种族灭绝”的地方。正如美国伯顿滑雪板制造公司中国区总裁克雷格·史密斯告诉 BBC说，“尽管被指控侵犯人权，但伯顿并不想通过拒绝在中国开展业务与中国市场 “离婚”（脱钩）”他说，但“我们有两个选择，我们要么与新疆保持距离，宣布我们不会在那里做任何事情；要么我们可以尝试更好地了解新疆正在发生的事情。”他承认中共国对维吾尔人实施“酷刑和有辱人格”的行为，但克雷格·史密斯说，“[我不是政客](https://www.archyde.com/beijing-winter-olympics-2022-xinjiang-takes-advantage-of-olympics-to-become-chinas-ice-and-snow-sports-centre-bbc-news-%E4%B8%AD%E6%96%87/)。”
 
-字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
+2022年1月30日
 
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 觉醒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1932442/)
+## 香草山农场2022年新年晚会开场
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1932445/)
 
 制作：香草山视频部
 

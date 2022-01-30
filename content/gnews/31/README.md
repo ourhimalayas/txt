@@ -2,45 +2,40 @@
 ---
 
 
-## 加拿大首都渥太华万人游行抗议，总理特鲁多成缩头乌龟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1932276/)
+## 班农谈新中国联邦所取得的巨大胜利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932318/)
 
-#### 撰稿：彩虹
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+1月28日，郭文贵先先生盖特转发了班农先生接受英喜农场采访的视频。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-7.jpg)图片来源：独立报
-据美联社报道，周六，在加拿大首都渥太华，上万人参加游行示威，抗议中共病毒（COVID-19）疫情限制。1月29日，《国会山报》和《新闻极限》对此做了相关报道。
+班农先生说，新中国联邦送达拜登总统和布林肯国务卿的信函，说明新中国联邦在美国开始撤离行动时，就已经知道了消息。显然新中国联邦是管理中国人民的另一个选择。这是新中国联邦迈出的具有重要意义的一步。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2477.png)
+新中国联邦在信中表示，支持美国政府的举动，更希望美国真正开始与中共彻底断绝外交关系，这将是宣布中共是跨国犯罪组织的第一步。
 
-文章引述美联社报道，抗议者示威反对强制接种中共病毒疫苗、口罩和封锁。一些人手持标语，称强制接种中共病毒疫苗是法西斯主义，并谴责加拿大总理贾斯汀·特鲁多（Justin Trudeau）的政治举措。
+另外，在新中国联邦发出信函之后，郭文贵先生宣布了此事，说明新中国联邦得到了白宫某种程度的确认。
 
-据该通讯社报道，一辆卡车上挂着一面美利坚联盟国国旗，而其他抗议者则举着印有纳粹标志的标牌和旗帜。
+另外，班农认为，新中国联邦、爆料革命、Gnews和GTV，应该持续揭露中共举办冬奥会的荒谬性，必须坚持更多更好地工作，就如同班农作战室和美国人民一起所做的事情一样，他希望看到更多的爆料者站出来跟西方联系，爆料北京尤其是奥运村附近的情况。
 
-此前，特鲁多妄称，本周末聚集在一起抗议该国的中共病毒疫情限制的人是“非常令人不安的少数加拿大人，他们对科学、对政府、对社会、对强制令和公共健康建议进行抨击。”
+班农强调说，他很喜欢新中国联邦给白宫的这封信，它特别指出中国共产党是非法组织，它不代表中国人民，而是一个跨国犯罪组织。
 
-加拿大约90%的跨境卡车司机和77%的人口已经注射了两针COVID疫苗。
 
-主要的车队定于中午左右到达，但周五已经有车辆封锁了国会前的道路，周六早上有几十辆卡车聚集。联邦政府的一位消息人士说，预计总共会有大约2700辆卡车。
 
-渥太华警察局长彼得·斯洛利 (Peter Sloly)周五说，这次示威将是“大规模的”。抗议组织者表示，集会将是和平的，他们发誓要留在渥太华，直到他们成功地推翻这些规定。
+总编/编辑： 飞虹
 
-2021年10月份选举前夕，特鲁多宣布对联邦工作人员实行强制接种中共病毒疫苗，然后在上个月，加拿大和美国都对跨境卡车司机实行了强制接种中共病毒疫苗。
+新闻链接：[郭文贵先生1月28日盖特](https://www.gettr.com/post/pr1kny4943)
 
-报道说，保守党领袖艾林·奥图尔 (Erin O’Toole)反对疫苗授权，并在周五与一些卡车司机举行会谈后对抗议活动表示支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-Artemisinin-Gnews-6.png)
 
-据《新闻极限》的最新报道，加拿大官员出于安全考虑，已经将总理特鲁多和他的家人从渥太华的家中转移到了一个秘密地点。
+校正/发稿：浪迹天涯
 
-据加拿大广播公司报道，特鲁多的办公室不愿对其家人的位置发表评论。在加拿大国会警卫官警告说示威者可能会出现在官员家中后，总理被转移。
-
-特鲁多一家住在丽都小屋（Rideau Cottage），位于总督府的地产上，离大规模抗议活动的中心约2.5英里远。
-
-**新闻来源**
-
-[Thousands demonstrate against COVID restrictions in Canadian capital](https://thehill.com/blogs/blog-briefing-room/591959-thousands-demonstrate-against-covid-restrictions-in-canadian-capital)
-
-[Trucks Roll into Ottawa for Protest Against Canada’s Vaccine Mandates](https://www.newsmax.com/newsfront/ottowa-cananda-protest-vaccine/2022/01/29/id/1054583/)
-
-[Trudeau, Family Moved to Secret Location Over Anti-Vax Convoy](https://www.newsmax.com/newsfront/justin-trudeau-canada-truck-protests-covid/2022/01/29/id/1054609/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
