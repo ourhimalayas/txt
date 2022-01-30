@@ -2,27 +2,27 @@
 ---
 
 
-## 英国会外委会预计2月访问台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932640/)
+## 因疫情青少年心理创伤已达国家紧急状态
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932645/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月28日，英国工党国会议员布莱恩特向媒体表示，外交委员会预计在2周后访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-18.png)
-据悉，英国近来增高了对台湾的关注度，外相特拉斯、国防大臣华勒斯及秘密情报局局长摩尔等官员都曾在公开场合呼吁各主要国家应重视台海安全及和平稳定的重要性。
+1月26日，戈尔迪·霍恩撰写的专栏文章中表述，中共病毒时代以更真实、更具体的方式改变了孩子们的生活方式。社会疏远、人际隔离、学校关闭。
 
-英国首相约翰逊近日在回答议员质询时也表示，中共军机侵扰台湾，无助于区域和平的稳定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/9-30.png)
 
-据了解，越来越多跨党派国会议员关心台英之间关系的发展，外委会主席图根哈特在去年底一场有关台英关系的听证会中表示，期待很快就能访问台湾，此访问行程将凸显本委员会及国会对英国与台湾关系的重视。
+霍恩研究发现，连续两年的中共病毒，青少年面临的“生存恐惧和创伤”已经超越911，接近美苏冷战时期而达到国家紧急状态，必须予以高度关注。其中四分之一的青少年有抑郁症症状，五分之一的有焦虑症迹象， 2020年因疑似自杀而就诊的女孩人数比2019年高出50% 。
+
+霍恩忧心忡忡地指出，NIH、美国外科医生学会、儿科学会一致认为青少年心理健康状况已达国家紧急情况的水平。青少年一代从中共病毒中幸存下来，却带着残缺不堪的心理进入成年，将会是国家的灾难。
 
 参考链接：
 
-- [英國對台灣關注提升 國會外委會可望2月訪台](https://www.cna.com.tw/news/aopl/202201290010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [Goldie Hawn on COVID Pandemic: ‘We Have Failed Our Children’](https://www.newsmax.com/thewire/goldie-hawn-covid-pandemic-mental-health/2022/01/28/id/1054498/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文特
+总编：Irene木木
 编辑：文特
 校正/发稿：海阔天空1
 

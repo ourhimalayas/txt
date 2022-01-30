@@ -2,40 +2,24 @@
 ---
 
 
-## 美国政府研究承认COVID-19疫苗会延长月经周期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932744/)
+## 共产主义和资本主义之间的较量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932759/)
 
-编译：wenwu
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产主义和资本主义之间的较量.001.jpeg)
+教基本上可以说是在已经被消灭了，它不是信仰。
+然后所谓的民主和法治制度，诞生了一个共产主义和资本主义，它们之间永远是对立的。共产主义它就是家天下，家族控制的独裁的天下，还是以个人投票的。但是各国都有各国的利益。接着诞生了后来所谓的冷战，还有东方和西方共产主义，资本主义阵营。然后呢？俄罗斯也不是纯民主国家，那么所有的中亚还有东欧属于后民主后独裁政府。那么这些地方的法制基本上是被利用的，只是共产党都没有。所谓的北约欧洲，欧洲东扩，还有亚洲。亚洲谁是老大？日本是美国代言人，中国是谁的代言人？围绕着这些。但是宗教已经是过去的话了，但现在打的是什么呢？地球之外还有宇宙无限大地球是一粒沙，还有太阳系星球系高科技互联网。这个时候已经不是地域战争，也不是海洋文明和大陆文明的战争。这个时候几乎是人类到了一个真正的资本主义和共产主义，对未来的太空的一场战斗。南极和北极，还有稀有资源，特别是全人类的一个消费市场。在这个问题上美国已经非常清楚。我就说过20年了美国从来没有停过，想把这几个独裁国家给消灭掉。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-45.jpg)图片来源：thenationalpulse.com
+2022年1月12日大直播
 
-美国国家卫生研究院的研究发现，中共病毒（COVID-19）疫苗延长了妇女的月经周期。
+发布： 星谕
 
-这项研究发表在一月份的《妇产科学》杂志上，它比较了接种和未接种COVID-19疫苗的妇女的月经周期长度。
-
-“对于接种中共病毒疫苗的人来说，数据来自接种前的三个连续周期，以及另外三个连续周期，包括接种中共病毒疫苗的周期或几个周期。对于未接种中共病毒疫苗的人，收集了连续六个周期的数据，”研究报告的摘要中写道。
-
-在分析的3,959人中，有2,403人接种了中共病毒疫苗（大多数人接受了辉瑞公司或莫德纳公司），另有1,556人未接种疫苗。
-
-平均而言，第一次接种中共病毒疫苗的周期长度增加了0.71天，第二次接种疫苗的周期长度增加了0.91天。
-
-美国国立卫生研究院（NIH）的尤尼斯·肯尼迪·施莱佛儿童健康和人类发展国家研究所（Eunice Kennedy Shriver National Institute of Child Health and Human Development）所长 Dr. Diana W. Bianchi 强调，“以前很少有人对COVID-19疫苗或其他疾病的疫苗如何可能影响月经周期进行研究”。
-
-NICHD和NIH的妇女健康研究办公室资助了这项研究，作为167万美元拨款的一部分，探索COVID-19疫苗接种和月经变化之间的潜在联系。
-
-值得一提的是，汤森路透基金会（Thomson Reuters Foundation）的主席和前首席执行官（CEO）——詹姆斯·C·史密斯（James C. Smith）——是制药巨头辉瑞公司的顶级投资者和董事会成员。
-
-路透社仍未报道美国国立卫生研究院的研究；反之，该媒体已经刊登了题为“疫苗与月经变化无关；COVID和流感疫苗可以一起使用”和“月经变化和COVID疫苗之间没有发现联系”的报道。
-
-**新闻来源：**[thenationalpulse.com] [U.S. Government Study Admits COVID Vaccine Lengthens Menstrual Cycles.](https://thenationalpulse.com/2022/01/28/u-s-government-study-admits-covid-vaccine-lengthens-menstrual-cycles/) | 发布时间：2022年01月28日
-
-* * *
-
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
