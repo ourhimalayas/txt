@@ -2,30 +2,31 @@
 ---
 
 
-## 王岐山的“大管家”董宏敛财超4.63亿被判死缓
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1931313/)
+## GTV新闻访谈简报|2022年1月29日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1931378/)
 
-整理：顺其自然
-编辑：文敏
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-297.png)图片来源：雅典娜设计组
+作者：香草山翻译部
 
 
-2022年1月28日，据《北京青年报》报道：中央巡视组原副组长董宏，在山东青岛受审。经法院审理查明——自1999年至2020年 ，董宏共敛财超过4.63亿。依照法律，董宏应当判处死刑。但鉴于董宏有自动投案行为，并且如实供述了其全部罪行，具有自首情节。同时，认罪悔罪、积极退赃。并将赃款、赃物，全部追缴到案。法律上具有多个可酌情从宽处罚情节，故对其判处死刑，可不立即执行，即死缓。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-7.png)
+校对：Stay文苑
 
-1999年至2020年之间，被告人董宏，利用其担任广东国际信托投资公司破产清算组成员，中共海南省委副秘书长，北京市人民政府副秘书长，中央文献研究室副主任，中央巡视组副组长等职务之便，通过和其他国家人员，以公务上形成的便利条件，为有关单位和个人在项目开发、工程承揽，职务提拔等方面谋取利益。直接或间接的通过他人，非法收受财物共计折合人民币4.63亿余元。
+编辑：Stay文苑
 
-众所周知，董宏是王岐山的“大管家”，现在也被判处了死缓。更有之前，王岐山的另一秘书陈峰——海航集团董事长，在2021年9月24日被依法采取强制措施。以及王岐山的“铁哥们”蔡锷生——原中国银行业监督管理委员会党委委员、副主席，也在2022年1月24日，被中纪委对其进行了立案审查调查。
+发稿：Stay文苑
 
-从去年9月份到现在，仅仅4个月的时间里，王岐山的手下就接二连三的被习近平收拾了。立案的立案，死缓的死缓。在距离20大还有9个月的时间里，倘若习近平还是动不了王岐山，那么习近平就将很难在20大时连任，继而大权旁落。所以在这仅剩的短短9个月里，习近平必定会抓紧一切机会把王岐山拿下，当然还有孟建柱。即使这样，王岐山还有周亮、田惠宇、田国立这些人可以用，假若习近平还一个一个的收拾他们，恐怕时间上会来不及。所以，估计王岐山会和周亮、田国立等人在差不多的时间里同时被拿下。
+视频参看：[1.29  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f5e97381ce0a3ac2a16b18)
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-24.jpg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,29 +2,49 @@
 ---
 
 
-## 有声|外交部：赖清德过境，循例与美国行政部门有所互动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1931178/)
+## 瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1931223/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据台媒1月27日报导，副总统赖清德代表参加友邦洪都拉斯新总统卡斯特罗（Xiomara Castro）的就职典礼，且于26日过境美国洛杉矶时，与美国跨党派参、众议员进行视频会议。至于后续是否会进一步会晤美国国务院官员，驻美代表萧美琴持保留，未直接响应的态度。
+作者：纽约香草山农场 – 四季
 
-台湾外交部欧江安认为，相信在台湾与美国在坚实友好的互信基础之上，台湾代表团应也会循例与美国行政部门有所互动。 此外，报导中也提及英国首相琼森（Boris Johnson）26日在国会下议院应询时，强调中共国大陆军机扰台行为无助台海关系稳定，同时也强调两岸应发展和平且具建设性对话的必要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-文字版原文：[外交部：赖清德过境，循例与美国行政部门有所互动](https://gnews.org/zh-hans/1927455/)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+
+据[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)1月28日报道，瑞典政府宣布将不会建议为5至11岁的儿童接种中共病毒疫苗，因为没有看到这样做的医疗好处。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/kids-children-vaccine.jpg)图片来源：[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)
+
+瑞典卫生局官员布里塔·比约霍尔姆（Britta Bjorkholm）在新闻发布会上说，“根据我们目前所掌握的知识，儿童患严重疾病的风险很低，我们看不到为他们接种疫苗的任何明显益处”。
+
+瑞典公共卫生局周四在一份新闻稿中说，尽管情况正在被“不断”评估，但他们已决定不建议在2022年春季学期为12岁以下儿童进行中共病毒疫苗的接种。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

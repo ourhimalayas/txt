@@ -2,26 +2,152 @@
 ---
 
 
-## 关于喜币（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931311/)
+## 数字货币是未来发展的趋势，不可阻挡
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931370/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/关于喜币（一）-.jpg)
-七哥：我给你举个例子，我现在问你们几个问题，最大的银行美国银行、汇丰银行、UBS银行所有的钱，如果大家都去取钱它会不会垮？ Yes和No ?大家都说yes所以全世界美联储你看今天到任何银行全取出钱，马上垮！没有一个不垮。到喜联储，你要取走你所有的钱，拿走你的HDO会不会垮？回答Yes还是No？不会，是吧？为什么？
+[https://gtv.org/video/id=61f49ce5d90bdd2085a1ef82](https://gtv.org/video/id=61f49ce5d90bdd2085a1ef82)
 
-文风而动：因为这个币锁了嘛，它就根本就没有机会。
+**郭文贵
+Miles Guo**
 
-七哥：错了，跟锁币没有任何关系，为啥今天问你们这么简单的问题啊？我们的威廉王搞这个节目能讲重点，每个HDO都应对着你进来的美元，你所有在市场的交易都是真实的钱，所有都是战友还有人家投资者的钱进来的，你把你的HDO拿走就拿走了，喜联储不欠任何人一分钱。例如今天文耀说我把我的币没锁，我去卖去， 一毛钱的币咱全卖完多少钱呢？大概六亿个币按照今天卖200多个亿，将近400个亿啊， 400个亿，但是你卖出它，价格就会下来，因为没有那么多HDO在市场上，现在只有大概100多亿。
+美元啊
+U.S. dollar
 
-*发布：开智则立*
+美元目前应该是世界上还是最稳定的币
+the U.S. dollar should be the most stable currency in the world right now
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+最终它一定是出问题的
+Although, there must be something wrong with it
+
+它出问题以后世界上数字货币肯定是大赢家
+After it goes wrong, the digital currency in the world will definitely be a big winner
+
+到现在我都认为比特币很有可能会超过10万块钱一个
+Up to now, I still think that Bitcoin is very likely to exceed $100,000 each
+
+甚至是50万到100万都有可能
+or even 500,000 to 1 million
+
+但是比特币被干掉以后
+But after Bitcoin is wiped out
+
+数字货币会重生
+digital currency will be reborn
+
+就是有人说以太坊的技术严格讲现在已经是2.0版
+Some people say that the current technology of Ethereum is strictly version 2.0
+
+我觉得它马上已经是3.0了
+I feel that it will soon be the 3.0
+
+它这个去中心化技术, 以太坊出现以后
+This decentralized technology, after the presence of Ethereum
+
+它已经是第二了
+is already the second generation
+
+未来它会有第三代
+It will have a third generation in the future
+
+我认为到3.5代的新的数字货币的时候
+I think that by the time of the new digital currency of generation 3.5
+
+基本上美元就遇到巨大挑战了
+basically, the US dollar would have encountered a huge challenge
+
+就比特币你干掉了
+Even though you wiped out Bitcoin
+
+你把其它的有瑕疵的历史原罪的干掉了
+you got rid of other flawed historical sins
+
+但是你不能把这个技术数字货币干掉
+but you can’t get rid of this technical digital currency
+
+那是不可能的, 那就是人类就没了
+That is impossible, and it means that human beings will be gone
+
+这种情况下大家要记住
+In this case, everyone should keep in mind that
+
+那美元在它有问题的时候
+when there is a problem with the US dollar
+
+所有大量的恐慌资金都会去到数字货币
+all large amounts of panic funds will go to digital currencies
+
+包括比特币
+including Bitcoin
+
+而且美金我觉得崩盘是崩溃
+and I think the US dollar market crash is a collapse
+
+严格讲是崩溃的标准不一样
+Strictly speaking, the standards for a collapse are different
+
+共产党的人民币就没了
+If the CCP’s RMB is gone
+
+共产党就没了都是零
+the CCP will be gone, and it will be zero
+
+都是零
+all zeros
+
+跟当年国民党印的钞票是一样的
+It is the same as the money printed by the Kuomintang back then
+
+而美国的崩溃是什么
+But what would be the collapse of the United States?
+
+是美元可能是极度的贬低
+It is that the dollar could be extremely depreciated
+
+不会没有
+It wouldn’t be without it
+
+甚至美元也以另外一种形式变成升值
+and even the dollar could have become an appreciation in another form
+
+它大量的挤水以后升值
+after squeezing the most out of it
+
+升值以后呢
+What about after the appreciation?
+
+它要一段时间的存在
+it will exist for a while
+
+当然了
+Of course
+
+它升值，黄金也要升值
+when it appreciates, the gold also appreciates
+
+我认为黄金是有大的变化的
+I believe that gold will have huge changes
+
+* * *
+
+Date: 01/24/2022
+原视频标题:
+数字货币 是未来发展的趋势，不可阻挡。#比特币 可能会超过10万，甚至50万、100万，但比特币和其他有原罪的数字货币都会被干掉。美元虽是当下最稳定的货币，但终将出现问题，可能是极度贬值；也有可能挤水后大幅升值，继续存在一段时间。美元的崩溃，会使所有的恐慌资金，流向数字货币，它将是最大的赢家
+Digital currency is the trend of future development and unstoppable Bitcoin may exceed 100,000, even 500,000, 1 million, but Bitcoin and other original sin digital currencies will be wiped out. Although the US dollar is the most stable currency at the moment, there will eventually be problems, which may be extreme depreciation; it may also appreciate sharply after being squeezed and continue to exist for a period of time. The collapse of the dollar will make all the panic funds flow to the digital currency, and it will be the biggest winner原视频日期：2022/01/21
+
+原视频链接: [https://gettr.com/post/pq15o5e2f6](https://gettr.com/post/pq15o5e2f6)
+任务编号：KC435（3598）
+视频时间段 : 0:00-01:52
+
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
