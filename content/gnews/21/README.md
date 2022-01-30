@@ -2,26 +2,76 @@
 ---
 
 
-## 文贵爆料 1.30：“当代包公”还是“当代和绅”
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1933827/)
+## 【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1933874/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/snapshot-6.jpg)
-曾经的王岐山权倾朝野，被誉为“当代包公”，然而他的下属却相继入狱。对此，郭文贵先生在1月30日的直播中说，为什么“反腐沙皇”身边的人都腐败呢？试问，你是“当代包公”还是“当代和绅”？
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-中共中央巡视组前副组长董宏被判死缓。他是王岐山的大马仔，也是王岐山最相信的人。说他贪污了几个亿，还是在广东投康典的时候。当时康典是CEO，他也是王岐山的铁仔，是当时粤海投资的老大，王岐山见他就跟见祖师爷似的。王岐山当广东副省长时，跟李长春对着骂，就是因为他要保康典和董宏。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-董宏此人的智慧和智商，在某些方面在王岐山之上。在一次喝酒聊天时他说，共产党就是一黑社会、流氓和骗子，只有愚蠢、傻的人会相信它，而聪明的人是利用这个黑社会、这个骗子达到自己的目的。因为王岐山的缘故，董宏后来从广东跟李长春到社会上经商。
+接[【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（上）](https://gnews.org/zh-hans/1933733/)
 
-王岐山在2003年Sars疫情的时候，对我说，我要回政府工作了。当时我说，为什么进京，不在海南嘛？他说，谈过，老爷子说过了，回京，锦涛也同意，我要回去当政府的秘书长，两手抓，一手民生，一手钱。后来就把张宏伟和一个东北合伙人抓起来了，因此康典、王岐山和董宏，在瑞士就拿了一百亿美元。后来，康典、董宏、田国立、田惠宇、朱镕基的儿子朱云来和女儿朱艳来，又弄走了一两百亿美元。新华人寿“寿在中国、钱在瑞士”！
+2021年11月26日至2022年1月8日，澳大利亚新南威尔士州总共273,511例明确知道疫苗接种状态的确诊病例中，打了一针疫苗的2,578例，接种两针或两针以上的267,381例，未接种疫苗的人群中仅确诊了3,552例。
 
-你说这个世界有多疯狂？中国人有几个人去认真想过，这些人偷走我们多少钱？王岐山，你是中国的的反腐沙皇，怎么你身边所有的人都腐败呢？而且你管中国金融、银行近几十年，你偷了多少钱？骗了多少钱？这些钱回中国了吗？在哪儿呢？就凭习近平的几个人能搞清楚王岐山的钱吗？不可能。用孟建柱的一句话说，习近平的智商和江泽民比的话，那是千年的差距，习近平最多当个地市级干部，也就是厅局级干部。孟建柱曾经在私下里边跟几个江西人说，你看他都能娶彭丽媛，他的情商能有多高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367-1.png)
 
-郭先生说，现在习近平在党内通过各种方式，将王岐山和孟建柱的马仔一个一个抓进去了，他们能给他拉倒吗？
+2021年11月26日至2022年1月8日，3,022名Covid-19住院患者中，打了一针疫苗的80例，接种两针或两针以上的2,627例，未接种疫苗的人群中仅315例。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-368-1.png)
 
-[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
+2021年11月26日至2022年1月8日，282名进入ICU的患者中，打了一针疫苗的12例，接种两针或两针以上的215例，未接种疫苗的人群中仅55例。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-369-1.png)
+
+2021年11月26日至2022年1月8日，282名死者中，打了一针疫苗的3例，接种两针或两针以上的67例，未接种疫苗的人群中仅21例。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-370-1.png)
+
+在确诊、住院、ICU和死亡中，打了一针的似乎都最少，但这完全是假象，不能说明接种一针疫苗似乎感染、住院、ICU和死亡都很少。
+
+首先，根据澳大利亚卫生部门的统计规则（见报告31页），大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群中；
+
+其次除了37.4%的5~11岁的儿童仅打了一针外，在年满16岁的人群中，95.4%被打了一针，94%被打了两针，也就是说，仅打了一针的仅1.4%，；而在12~15岁的人群中，打了一针的83.2%，打了两针的78.5%，也就是说，仅打了一针的才4.7%，基数本来就少。
+
+而在新南威尔士州公布的疫苗接种状态中，只公布了年满16岁的人接种疫苗比率的时间曲线，并未公布16岁以下的人群是什么时候接种的。这让我们难以判断究竟有多少16岁以下的人是在确诊前21天内打的第一针。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_23-46-13.png)
+
+根据澳大利亚卫生部门的介绍，澳大利亚是从去年1月25日开始向年满16岁的人注射辉瑞疫苗，去年7月22日开始向12~15岁的青少年打辉瑞疫苗，去年12月5日开始向5~11岁的儿童打辉瑞疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Comirnaty-Pfizer-is-approved-for-use-in-people-aged-5-years-and-over.png)
+
+澳大利亚从去年2月15日开始向年满18岁的人注射阿斯利康疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaxzevria-AstraZeneca-is-approved-for-use-in-people-aged-18-years-and-over.png)
+
+澳大利亚从去年8月9日开始向年满18岁的人注射Moderna疫苗，9月3日开始向12~15岁的青少年注射Moderna疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Spikevax-Moderna-is-approved-for-use-in-people-aged-12-years-and-over.png)
+
+而2021年11月26日~2022年1月8日的中位日期为2021年12月17日，也就是说，5~11岁的儿童都是确诊前21天内第一次接种的疫苗，都被计入了未接种疫苗的人群。而12~15岁的青少年是从去年7月22日和9月3日才开始打疫苗，这些人打疫苗的时间比率曲线完全不知道。
+
+因此，如果南威尔士州不公布各年龄段的疫苗接种时间线，同时把接种第一针疫苗不超过21天的人混入未接种疫苗的人群中计算，极容易对公众产生误导，或者说错误的把大量第一次接种疫苗不超过21天的COVID-19患者计入未接种疫苗人群中，掩盖疫苗灾难的真相！
+
+但无论如何，南威尔士州的数据说明，COVID-19确诊、住院、ICU和死亡人群中，绝大多数为疫苗接种者，而未接种疫苗的人微乎其微。疫苗灾难正在爆发！
+
+参考资料：
+
+[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
+
+[COVID-19 vaccination update Vaccine doses administered to NSW populations](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/stats-nsw.aspx#today)
+
+[Spikevax (Moderna)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/moderna)
+
+[Comirnaty (Pfizer)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/pfizer)
+
+[Vaxzevria (AstraZeneca)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/astrazeneca)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW  Epidemiological week 1, ending 8 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
