@@ -2,39 +2,23 @@
 ---
 
 
-## 有声|母打莫德纳猝死 儿子：配合政府打疫苗只求一个公理
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1933374/)
+## NewSGman┃日版“马格尼茨基人权法案”呼之欲出 电台预热正在进行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933454/)
 
-配音：香草山佛教部 – 李傻
+撰稿：东京樱花团/NewSGman
 
+2022年１月28日，日本电视节目引用2012年在美国颁布实施的《马格尼茨基人权问责法》，联系当前欧美对中共人权问题的批判和制裁，深入解析中共人权问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-陈姓妇人的灵堂设在七堵家里，过世到今天已9天，家属都相当难过。
+《马格尼茨基人权问责法》规定对参与镇压、酷刑和种族灭绝等侵犯人权行为的外国个人和组织实施制裁的法律。资产可以被冻结，并被禁止入境。
 
-据台媒报导，台湾一位81岁妇人接种第三剂莫德纳疫苗3天后，胸口闷痛送医不治，疑心肌梗塞猝死，家属质疑是因为接种疫苗导致猝死。
+信息来源：
 
-家属表示妇人本身并没有慢性病史，身体也很好。18日注射疫苗后，19、20日并无出现身体不适症状，到21日上午7点50分突感到身体不舒服，紧急送医。送医时意识都还清楚，但一个多小时后就死亡。家属认为妇人是因为配合政府的政策注射疫苗，却发生这样的憾事，是疫苗害人，要求政府要给他们一个公道。
+[https://gettr.com/post/pr1ftz8056](https://gettr.com/post/pr1ftz8056)
 
-台灣卫生局疾病管制科长郭香兰表示将会由专业审议小组审议，会调阅相关病史等，厘清妇人的死亡是否和疫苗注射有关。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-文字版原文：[母打莫德纳猝死 儿子：配合政府打疫苗只求一个公理](https://gnews.org/zh-hans/1932205/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

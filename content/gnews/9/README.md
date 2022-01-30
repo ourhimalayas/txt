@@ -2,23 +2,24 @@
 ---
 
 
-## NewSGman┃六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933510/)
+## 网友点赞纽约护士出售假中共疫苗卡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1933596/)
 
-撰稿：东京樱花团/NewSGman
+**采集****/****翻译：意翎 ****    **
 
-1月24日，郭文贵先生在大直播中表示，要在六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2498.png)
+据《美国真相》（NBC4NY）报道，纽约两名护士因出售假中共疫苗接种卡而被捕，49岁的朱莉·德沃诺（Julie Devuono）和44岁的玛丽莎·乌拉罗（Marissa Urraro）是长岛的两名护士，她们在2021年11月期间伪造了疫苗卡，涉案金额150万美元，假疫苗卡成人售价220至240美元，儿童85美元。
 
-郭文贵先生指出，比茉莉花革命更高段数的“甜蜜蜜运动”获得了党内及各界人士的支持，习近平的中国梦将成噩梦。甜蜜蜜运动会有中国很多军人、音乐家、医生、律师 教师、知识分子界等有勇气有良知人士参加。
+据检察官称，这两名在野孩子儿科医疗保健中心的工作人员伪造了疫苗接种卡，出售后将这些信息添加到纽约州免疫信息系统（NYSIS）中。
 
-信息来源：
+萨福克郡地方检查官雷蒙德·蒂尔尼（Raymond Tierney）说：“我希望这能向那些想利用这个系统牟利的人传递一个信息：他们会被绳之以法。”
 
-[https://www.gettr.com/post/pqf7rj9fd8](https://www.gettr.com/post/pqf7rj9fd8)
+然而，网友却为这个造假行为点赞，被置顶最多的评论说：“很抱歉你们被捕了。再过几年，你们的高中母校会以你们的名字命名。”
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+还有网友说，“我喜欢她们对儿童做出的善举。”
 
+**[原文链接](https://www.zerohedge.com/covid-19/ny-nurses-arrested-after-selling-15-million-fake-vaccine-cards)**
 
  
 

@@ -2,29 +2,40 @@
 ---
 
 
-## 80岁的马塔雷拉获得连任意大利总统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1932812/)
+## 中超球员曾假扮残障人士在特奥会夺冠
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932977/)
 
-撰稿：东京樱花团丨向海
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2492.png)[*图片来源*](https://p9.itc.cn/q_70/images03/20220130/32af5faf4d0a496a97cdb9453b812c94.jpeg)
-已经确定了现年80岁的意大利总统塞尔焦·马塔雷拉（Sergio Mattarella）将被重新任命为意大利的下一任总统。
+作者：纽约香草山农场 文真
 
-最初，马塔雷拉先生表示他打算本届任期后退休，但没有一个能够获得各政党广泛支持的候选人，他是应各政党领导人继续连任的要求而决定的。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-24日进行第一次投票后的5天内，共进行了8次投票。总统的决定需要议会 1009 过半数票才能决定，但在29日最后（第八轮）的投票中，马塔雷拉先生获得了 759 票，以绝对多数获得连任。
+1月29日，郝海东先生在新中国联邦访谈节目中，以亲身经历爆料中共假丑恶，讲述中共如何在体育比赛中弄虚作假。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.52.42-PM.png)
+据称，前中超主力球员张诚，曾向海东先生炫耀自己获得“冠军”的事迹，但事实却是，他在中共的指使下，假扮成智力残障人士，参加特奥会足球比赛，取得了冠军。
 
-现年80岁的马塔雷拉出生于意大利西西里岛巴勒莫市，曾任意副总理、国防部长与宪法法院法官等职，于2015年1月当选意大利总统。
+参考链接：
 
-根据意大利宪法，总统任期7年，由参众两院议员及各大区代表选出。选举采用绝对多数制，在前三轮投票中，绝对多数“门槛”为总票数的三分之二，从第四轮起降低为超过半数。意大利总统有权任命总理和解散议会。
+1. [郝海东先生的详细讲述@1:32:25~1:35:15。](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
+2. [听郝董爆料中共这帮烂人的假丑陋。。。](https://gettr.com/comment/ckdf841194)
+3. [图文：特奥会足球比赛开赛 张诚在比赛中](http://2008.sohu.com/20071006/n252491322.shtml)
+4. [当年代表共产党参加特奥会的张诚…](https://gettr.com/comment/ckd14o6c48)
 
-信息来源：[**イタリア大統領　80歳のマッタレッラ氏が再任  党首らの続投要請受け**](https://news.yahoo.co.jp/articles/8bc97e69103edc1426ab4458e6801ff58558ef27)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑：Jack Li文阳
+总编：Ivy001
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

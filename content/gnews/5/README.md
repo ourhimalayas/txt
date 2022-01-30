@@ -2,39 +2,36 @@
 ---
 
 
-## 中国证监会立案调查相关机构导致60多家IPO项目中止
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1933527/)
+## 中共金融机构将对单位和个人银行账户加大管控
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933689/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/96FB616D-7802-42E6-9D11-0753759BCB01_w1023_r1_s1.jpg)图片来源：https://www.pymnts.com
-据路透社周五（1月28日）报道，随着监管机构调查他们背后的律师事务所和承销商，中共国各地有60多家首次公开募股(IPO)——包括德意志银行的中国证券企业——被搁置。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月28日，中共央行发布最新文件称：3月1日起，金融机构将对单位和个人银行账户增加管控，尽职调查客户身份资料以及交易记录，其中有两条规定跟个人存款密切相关：
 
-报道称，中共国股市周三（1月26日）披露的信息显示，随着对他们背后支持者的调查继续进行，12家计划在上海科创版（这个国家的科技中心）和超过48家在深圳创业板的IPO被搁置。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide13.jpeg)
 
-报道称，寻求公开上市的这60家公司，每家都雇佣了正在被证券监管机构调查的三家公司中的一家或多家：中德证券有限责任公司（山西证券和德国银行的合资企业）、信永中和会计师事务所(SineWing)和金杜律师事务所(King&Wood Mallesons)。
+1、对大额交易、可疑交易、单位或个人身份存疑的，将进行尽职调查，其中大额交易，包括任何账户现金交易超过5万，公户转账超过200万，以及境外私户转账超过20万或境内私户转账超过50万。
 
-这些公司都为乐视网信息技术股份有限公司提供咨询，该公司在去年3月被中国证监会(CSRC)指控在2007年至2016年期间存在财务欺诈。报道称，中共政府誓言对证券和财务欺诈“零容忍”。
+2、个人现金存取超过5万的，要核实身份，登记资金来源和用途。分析人士指出，在美国授权撤离大使馆之际，中共央行迅速出台了针对个人和企业的账目加强管控的规定，可以明显看出中共自知大限将至，开始努力防止人们弃船逃命，首先就是管住人们的钱。因为现在中共国内但凡开智的中国人都知道HCoin的存在，它特有的稳定币和浮动币结合，以及价值和黄金挂钩的天才设计，注定会成为人们财富安全的避风港。中共与其说是在加强资金管控，不如说就是在防止人们投资HCoin。
 
-拟议中的上海科创版首次公开募股的候选公司包括北京通美晶体技术有限公司、合肥晶合集成电路股份有限公司和国网智能科技股份有限公司。创业板支持的希望上市的公司包括龙口联合化学有限公司、浙江斯菱汽车轴承股份有限公司和制药商天津同仁堂集团股份有限公司。
+参考链接：
+1）[央行紧急通知！3月1日起，个人银行进账超过这个数将被重点监控！](https://new.qq.com/omn/20220128/20220128A09HVQ00.html)
+2）[https://gettr.com/post/pr7b151231](https://gettr.com/post/pr7b151231)
 
-本周早些时候，彭博新闻社报道，帮助电商进行跨境支付的中共国初创公司杭州乒乓智能技术有限公司(PingPong)正在考虑IPO，以筹集高达10亿美元的资金，并考虑在中共国大陆上市后，可能在今年晚些时候进入香港市场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-据彭博社报道，杭州乒乓智能技术有限公司还将尝试在IPO融资前的一轮融资中筹集约3亿美元，并指出该公司的估值为50亿美元。该公司在2020年取得了“独角兽”的地位，这意味着它的价值在上市前就已经超过了10亿美元，到当年年底达到了15亿美元。
+总编：飞虹 
+编辑：文特
+校正/发稿：谐趣园
 
-**简评：**企业在中共国证券市场的上市行为实际上是中共权贵们收割老百姓韭菜的一种有效手段。中共国的股市不同于发达国家股市有完善的法律监管体制，只有好的企业才能继续留在股票市场，而长期表现不佳的企业则将被退市。而这些国家长期实行的就是自由市场经济，因此股票能反映出它本身真实的价格。但中共国的股票市场本质就是在线赌场，所有的涨跌都是权贵们的背后操作，通过各个电视频道宣讲炒股理财，吸引大量的中国老百姓将自己的血汗钱投出股市，等到人数凑齐了，来一泼下跌，薅一波羊毛，自己赚的盆满钵满，而老百姓亏的血本归。中共国的监管机构对律师事务所和会计事务所展开调查也并不是为了取缔这一不公平的游戏，而是共产党内斗在金融领域的延伸，是新晋权贵取代老一辈权贵的过程，而中共国老百姓想要摆脱这种被不断压榨的命运，唯有灭掉中国共产党。
-
-新闻链接: [https://www.pymnts.com/news/ipo/2022/china-investigation-triggers-delay-in-60-ipos/](https://www.pymnts.com/news/ipo/2022/china-investigation-triggers-delay-in-60-ipos/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

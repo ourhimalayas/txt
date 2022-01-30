@@ -2,16 +2,22 @@
 ---
 
 
-## 樱花头条┃冬奥运动员宣誓视频被爆 “报效领袖豁出去”誓词引哗然
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933401/)
+## NewSGman┃北京冬奥会遭多国抵制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933478/)
 
-撰稿：东京樱花团/樱花传媒
+撰稿：东京樱花团/NewSGman
 
-![](https://lh6.googleusercontent.com/iSik_KRs-0Uak8FErZRBAoLURj_-N7e8gF1AZsZW1gXaNJU0fLptfpfP6liAQGR0DVQhQyo-bB_X8ENlpC5EiMYcdDM7hdcyuojHLcyIUttClV1L5jv_fGL_RgP8X8QG6PWI44rw)
+葡萄牙正式表态外交抵制北京冬奥会。
 
-近日，北京冬奧会進入倒计时，中国体育代表团日前在天安門广场宣誓出征，喊出奇葩誓言“报答领袖豁出去”，引发议论热议。
+葡萄牙外交部长席瓦1月24日在欧洲联盟外长会议后向记者表示，葡萄牙将不会派政治代表参与北京冬奥会仪式。
 
-盖特链接：[https://gettr.com/post/ppvbgra60b](https://gettr.com/post/ppvbgra60b)
+欧洲议会通过香港基本人权遭破坏的相关决议案，面对中共“正当化专制体制”的企图，决议呼吁成员国对北京冬奥采取外交与政治抵制。
+
+为谴责中共国人权劣迹，英、美、加拿大、澳洲等国已宣布外交抵制北京冬奥，不派代表团，但也不阻止运动员参与。欧洲议会也建议成员国，对2月4至20日举行的北京冬奥发动外交与政治抵制。
+
+信息来源：
+
+[https://www.gettr.com/post/pqto07df06](https://www.gettr.com/post/pqto07df06)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
