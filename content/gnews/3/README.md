@@ -2,28 +2,23 @@
 ---
 
 
-## 日本纪录片《疫苗副作用》即将上映
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934100/)
+## 澳洲加入加拿大反强制新冠疫苗自由车队
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934101/)
 
-作者：日本方舟农场 Andy5
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，制作方放出了纪录片《疫苗副作用》预告片。并将在1月底日本为5至11岁儿童接种前上映。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.47.png)
-这部纪录片拍摄于2021年12月25日，记录了在大阪举行的由医生、记者、政界人物参加的中共疫苗副作用研讨会。内容涉及到实际上出现副作用的病例，医生们对疫苗副作用的看法，以及愿意为此发声的政界人士的呼喊。
+1月28日据悉，澳大利亚卡车司机们正在计划一场自由之战，来反抗政府对中共病毒疫苗的强制，以及政府在疫情期间过于严酷的防疫政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.55.png)
+正如加拿大自由车队即将驶向首都渥太华一样，澳大利亚自由车队将会前往首都堪培拉。在前往首都之前，卡车车队计划在维多利亚州、新南威尔士州、南澳大利亚州和西澳大利亚州等城市会面，最后于周一上午10点抵达堪培拉议会大厦，抗议政府的强制疫苗政策。
 
-预告片中，京都大学病毒研究所的宫泽孝幸教授表示，即使有中共疫苗，病毒也不可能完全被清除，相反那些被疫苗影响的细胞，会被免疫系统认为是病毒而进行总攻，通俗来讲就是接种后的人体在自爆。而记者鸟集彻则表示，所谓“为了身边人不被感染所以接种疫苗”，就相当于二战的时候“为了日本国让那些孩子上战场”一样，甚至在他的幻灯片中用红字写上了“为国捐躯”。
+据悉参与此次游行活动的还包括，那些因政府的疫苗强制，和中共病毒隔离政策而被迫关店的小企业主，他们打算驾驶摩托车和汽车加入自由车队。
 
-在片尾制作方更是打出了“接种第三针之前，请‘目击’这个记录”的标语，呼吁人们在盲目跟从政府政策施打第三针前，听听这些真实的声音。
-
-参考链接：
-1）[https://www.gettr.com/post/pr7v6gcdfb](https://www.gettr.com/post/pr7v6gcdfb)
-2）[https://www.aoyama-masayuki.com/](https://www.aoyama-masayuki.com/)
-3）[https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9](https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9)
+参考链接：[Australian truck drivers join the convoy for freedom](https://www.rebelnews.com/australian_truck_drivers_join_the_convoy_for_freedom)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-总编：飞虹
-编辑：文特
+总编：Jack Li文阳
+编辑：Ivy001
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

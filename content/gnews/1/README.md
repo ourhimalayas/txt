@@ -2,34 +2,31 @@
 ---
 
 
-## 冬奥会运动员及官员确诊病例激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934102/)
+## 扬帆每日速递 2022年1月30日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1934194/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月29日，中共国冬奥会组委会发布声明称，每日病毒确诊病例从前一天的2例跃升至28日的19例，并警告说未来几天恐会出现病例激增。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.14.03.png)
-组委会在声明中说，包括运动员和官员在内，29日当天共有36名奥运会相关人员被发现感染，其中29人在抵达北京机场时被确诊，7人在与公众隔离的 “闭环 “气泡中被检测出感染。自本月23日开始，中共国每日公布与奥运相关的中共病毒确诊病例数字，运动员和官员的病例数首次超过了包括媒体、赞助商和工作人员在内的“其他相关人员”的病例数。
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、据文贵先生1月30日直播：加拿大的大卡车运动最终会发展为暴力，爆料革命战友们不要参加，未经联盟委员会授权，使用新中国联邦标志参加抗议的战友，都会被清理出爆料革命。共产党会充分利用这个事件，把爆料革命定义为邪教。
 
-冬奥会的医疗负责人表示，预计会在未来数日，运动员抵京高峰期，出现更高的病例数字。
+2、据文贵先生1月30日直播：加拿大卡车司机的“自由护航2022”抗议活动震撼世界，而10亿中国人包括生生死死几十亿人，从未对共产党暴政包括8964抗议过，发出内心的声音。
 
-之前，美国议员对冬奥参赛选手的卫生安全和人身安全表达了担忧。班农先生称这是一次超级病毒传播运动会。
+3、高盛经济学家周五预测，美联储将在2022年加息五次，预计3月首次加息。
 
-参考链接：[https://gettr.com/post/pr9qqrffa6](https://gettr.com/post/pr9qqrffa6)
+4、台湾总统蔡英文在周日的农历新年贺词中，无视来自中共巨大的军事压力，感谢民主国家对台湾的支持，并承诺“大踏步”走向世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+5、中共喉舌《环球时报》1月30日发表署名文章称，美国正在酝酿一场新的阴谋，极尽抹黑北京冬奥会。随着冬奥会临近，攻击和干扰的狠招黑招还会更多。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+6、1月30日港府宣布明日始，由珠海经港珠澳大桥入境香港免检疫。评:这边香港人正被大规模的封区封楼禁足要动态清零，那边来港人士免检。这样的政府谁能信？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板130-1_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦 、Shuang
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：文敏
+
+发布：风起云间（文敏）
+
+海报图片设计：飞天面、 Shuang
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
