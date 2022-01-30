@@ -2,28 +2,28 @@
 ---
 
 
-## 英国会外委会预计2月访问台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932640/)
+## 拜登与中共签订中共病毒测试剂合同引发强烈不满
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932646/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月28日，英国工党国会议员布莱恩特向媒体表示，外交委员会预计在2周后访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-18.png)
-据悉，英国近来增高了对台湾的关注度，外相特拉斯、国防大臣华勒斯及秘密情报局局长摩尔等官员都曾在公开场合呼吁各主要国家应重视台海安全及和平稳定的重要性。
+美国媒体1月28日报道，拜登政府决定将超过10亿美元的资金授予一家生产中共病毒检测试剂盒的中共公司，引起了国会山共和党人的愤怒。
 
-英国首相约翰逊近日在回答议员质询时也表示，中共军机侵扰台湾，无助于区域和平的稳定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/8-33.png)
 
-据了解，越来越多跨党派国会议员关心台英之间关系的发展，外委会主席图根哈特在去年底一场有关台英关系的听证会中表示，期待很快就能访问台湾，此访问行程将凸显本委员会及国会对英国与台湾关系的重视。
+众议员米歇尔·瓦尔茨说，这是“向帮助救火的纵火犯支付费用”，美国不能依赖中共这样的敌对国家，在与任何中共公司打交道时，所有资金都不可避免地进入中共的腰包，这会极大损害美国的国家安全。
+
+另有一些议员认为，中共是病毒的发源地，在新冠病毒这件事上没有一丝一毫的透明度。中共应对向世界释放中共病毒负责。拜登政府应该利用和协助美国供应商，而不是从中共那里购买关键物资，这损害了美国的就业机会，是对美国企业的又一次侮辱。
 
 参考链接：
 
-- [英國對台灣關注提升 國會外委會可望2月訪台](https://www.cna.com.tw/news/aopl/202201290010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [‘Paying The Arsonist’: Biden’s COVID Test Contract With China Draws Ire on Capitol Hill](https://freebeacon.com/biden-administration/bidens-covid-test-contract-with-china-draws-ire-on-capitol-hill/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文特
-编辑：文特
+总编：Irene木木
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

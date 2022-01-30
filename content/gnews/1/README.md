@@ -2,30 +2,19 @@
 ---
 
 
-## 躺平币到底是什么
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932934/)
+## 雅典娜时报-第189期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1932983/)
 
-#### 整理：雅典娜速记组
-编辑：于white
-![此图像的alt属性为空；文件名为《躺平币到底是什么》-.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/%E3%80%8A%E8%BA%BA%E5%B9%B3%E5%B8%81%E5%88%B0%E5%BA%95%E6%98%AF%E4%BB%80%E4%B9%88%E3%80%8B-.jpg)
-躺平币肯定是公链，获取不经过人工审核，但是提现需要通过KYC。可能你盖特加v了，根据关注者数量自然而然就到账上，也可能通过大直播获得。
-
-所有的东西都有标准，躺平币如何确定躺平是新中国联邦未来的雏形，根据获得币的数量就是未来系统中的定位。
-
-那怎么兑现呢？
-
-躺平币第一天就能买面包买油，也能买 GFashion, GClubs躺平币的厉害，现在还不能完全告诉你们，不然你们要一个星期都睡不着了。
-
-只要躺平币出来，共产党就知道自己的棺材板要钉上钉子了。
-
-发布：于white
+#### **《雅典娜时报》汇聚全球新闻时事**
+![圖片](https://media.discordapp.net/attachments/825592691433668612/937248913424003082/155_1-9.png?width=818&amp;height=1218)![圖片](https://media.discordapp.net/attachments/825592691433668612/937248913830866974/155_6.png?width=818&amp;height=1218)
+*发布：陶子*
 
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

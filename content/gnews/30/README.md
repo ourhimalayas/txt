@@ -2,22 +2,22 @@
 ---
 
 
-## 因疫情青少年心理创伤已达国家紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932645/)
+## 监督机构指控欧盟主席购买疫苗“行政不当”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932647/)
 
 作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月26日，戈尔迪·霍恩撰写的专栏文章中表述，中共病毒时代以更真实、更具体的方式改变了孩子们的生活方式。社会疏远、人际隔离、学校关闭。
+1月28日，欧盟官方监督机构指控欧盟委员会主席乌苏拉·冯德莱恩构成 “行政不当”，要求其公开在购买辉瑞疫苗期间，与辉瑞公司CEO之间的秘密信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-30.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-43.png)
 
-霍恩研究发现，连续两年的中共病毒，青少年面临的“生存恐惧和创伤”已经超越911，接近美苏冷战时期而达到国家紧急状态，必须予以高度关注。其中四分之一的青少年有抑郁症症状，五分之一的有焦虑症迹象， 2020年因疑似自杀而就诊的女孩人数比2019年高出50% 。
+欧盟监察专员艾米丽·奥莱利发布了一项正式提议，根据“信息自由申请”，要求冯德莱恩办公室公开这些文本。据悉，冯德莱恩为27个欧盟国家购买的一半以上的中共病毒疫苗来自辉瑞公司，辉瑞是迄今为止欧盟最大的疫苗供应商。冯德莱恩利用“个人外交”，与辉瑞CEO布拉达成巨额订单。 奥莱利说，短信电话和邮件如果涉及欧盟的政策和决定，它们就应该被视为欧盟文件，必须予以公开。
 
-霍恩忧心忡忡地指出，NIH、美国外科医生学会、儿科学会一致认为青少年心理健康状况已达国家紧急情况的水平。青少年一代从中共病毒中幸存下来，却带着残缺不堪的心理进入成年，将会是国家的灾难。
+截至目前，欧盟委员会以商业机密为由，拒绝透露其与疫苗供应商合同的关键内容，特别是定价方面。
 
 参考链接：
 
-- [Goldie Hawn on COVID Pandemic: ‘We Have Failed Our Children’](https://www.newsmax.com/thewire/goldie-hawn-covid-pandemic-mental-health/2022/01/28/id/1054498/)
+- [EU watchdog accuses Ursula von der Leyen of ‘maladministration’ and orders her to hand over secret texts she sent to Pfizer’s CEO during efforts to buy 1.8billion Covid jabs](https://www.dailymail.co.uk/news/article-10451919/EU-watchdog-orders-Ursula-von-der-Leyen-hand-secret-texts-sent-Pfizers-CEO.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
