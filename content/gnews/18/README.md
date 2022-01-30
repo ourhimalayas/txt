@@ -2,53 +2,66 @@
 ---
 
 
-## Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931484/)
+## 文•贵天成——文贵先生谈“北京冬奥会”（二十一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1931539/)
 
-Dr. Peter McCullough recaps 5-hour COVID-19 panel
-Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+整理：BENJ1
+编辑：Kelly
 
-There was a nearly five-hour long panel in the senate focused on the response of the covid pandemic on Monday morning led by Senator Ron Johnson
-周一上午，参议院在罗恩·约翰逊（Ron Johnson）参议员的领导下进行了近五个小时的关于新冠病毒大流行应对问题的小组讨论
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-298-1.png)图片来源：雅典娜设计组
 
-Here is one America’s John Hines
-这是来自one America的John Hines的报道
 
-Wondered if you could share a little bit about your message here with us
-想知道您是否可以在这里与我们分享您的信息
+郭文贵先生**2022**年**1**月**7**日直播
 
-Yeah, my message was that I wanted to see full transparency and full discussion in co-chairing this meeting with Senator Ron Johnson
-好的，我的信息是：我希望在与参议员罗恩·约翰逊共同主持这次会议时看到完全的透明度和充分的讨论
+我觉得中美已经在战争中了。刚才说那三条，首先一点就是有神、无神论（之战）。然后是民主和“家天下”这种独裁社会（之战），包括自由资本，现在已经完全是在(战争中)。只要共产党在，美国就得完，美国在，共产党必须完。最后咱所说的“必有一战”就是火战这一块，我觉得会在冬奥会之后，台湾问题、一系列问题爆发后瞬间有可能发生。现在就在战争中，火战我相信很有可能因为台湾会引起。
 
-I wanted full transparency on early treatment, the suppression of early treatment, the number of lives lost that were all avoidable, the hospitalizations and the tragedy of being in the hospital and the hardship that was avoidable
-我希望（看到）对冠状病毒早期治疗、早期治疗的压制、本可避免的死亡人数、住院和在医院里的悲剧以及本可避免的困难的完全透明 的（讨论）
+接下来共产党一定会有一个超级符合我们利益需求的操作，在冬奥会2月14号突然间中国的什么事都好了，都解决了，共产党“解决世界问题的能力”、“解决大事情的能力”和“集中力量办大事的能力”就会表现出来。这个骚操作会再一次地让中共的疫苗灾难更加激烈，就是自我传染，从疫苗变异成病毒还有Omicron传染都会发生。
 
-And then I wanted American to hear about vaccine safety, in the lack thereof, and that the scores of individuals who have died shortly after taking the vaccine, the large number of non-fatal injuries now, and the ones that the agencies acknowledge including heart inflammation, neurologic, immunologic, and hematologic injuries
-然后我想让美国人知道疫苗的安全性，在缺乏安全性的情况下，以及在接种疫苗不久后死亡的人数，现在大量的非致命伤害，以及机构承认的包括心脏炎症、神经系统、免疫系统和血液系统损伤在内的伤害
+冬奥会后，会发生地方和中央的激烈矛盾，而且会更多的失控。然后会让共产党自我表演的冬奥会“能解决世界所有困难的共产党，一党独大的优越性”全部打脸，这都符合咱的利益，但是西安人民(也好)、郑州人民也好，你们不要当牺牲品。
 
-So, I wanted it to all be up in the open and I am satisfied that American got the correct information today.
-所以我希望它全部公开，我很满意美国人今天得到了正确的信息
+郭文贵先生**2022**年**1**月**14**日直播
 
-**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
+现在美欧搞不定，搞中东国家，搞非洲国家。到北京去，所谓6个外长，拿千亿的钱来搞，就是为了（让人家）出席冬奥会。人家普京1000多亿来不来？现在真的可能是有问题了。普京现在以乌克兰为由，说可能真的就不来了，连东欧国家都不来了。
 
-Date: 1/26/2022
-原视频标题: Dr. Peter McCullough recaps 5-hour COVID-19 panel
-Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
-原视频日期：1/26/2022
-**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
-任务编号：KE371(3608)
-视频时间段 : 0:00-01:00
+你不觉得共产党不是灭的问题了吗？牠已经low到爆了，牠已经被世界认为是一个邪恶的、不可相信的、流氓的，全人类的威胁。今天的美国高院所有的判决结果一定会走到病毒溯源，病毒哪来的？疫苗怎么发生的？谁让打的疫苗？你记住，这绝对是个重要时刻。
 
-中听校: 洛杉矶盘古农场 -海潮
-翻译: 洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+郭文贵先生**2022**年**1**月**16**日盖特
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+刚刚西方媒体报导，北京的奥运会没有雪那我们去北京开冬奥会干什么？外国人完全不明白，放一百万打雪弹它不就有雪了吗？人类里我听说过的，只有中共冬天把树用绿漆给喷起来，只有中共。还有哪个国家能做出这种事？那只有中共国！这个国家造假到了一种你无法想象程度。
+
+死亡对共产党来说是他们最好的礼物；憎恨是他们的甜品，杀戮、阴谋诡计是他们的咖啡；媒体、基金是他们利用的喝咖啡勺和工具。你看着西方这些媒体在冬奥会上，在新疆大屠杀上一切闭嘴就明白了。
+
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
+[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
+[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
+[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
+[文·贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1913831/)
+[文·贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1916177/)
+[文·贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1914628/)
+[文·贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1918018/)
+[文·贵天成——文贵先生谈“北京冬奥会”（九）](https://gnews.org/zh-hans/1918752/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十）](https://gnews.org/zh-hans/1917988/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十一）](https://gnews.org/zh-hans/1918147/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十二）](https://gnews.org/zh-hans/1921128/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十三）](https://gnews.org/zh-hans/1922599/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十四）](https://gnews.org/zh-hans/1921604/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十五）](https://gnews.org/zh-hans/1921478/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十六）](https://gnews.org/zh-hans/1925490/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十七）](https://gnews.org/zh-hans/1924447/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十八）](https://gnews.org/zh-hans/1924304/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十九）](https://gnews.org/zh-hans/1931480/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二十）](https://gnews.org/zh-hans/1925718/)
+
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

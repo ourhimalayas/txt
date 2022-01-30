@@ -2,26 +2,29 @@
 ---
 
 
-## 加拿大北京冬奥代表团中5人确诊
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1930569/)
+## 有声|美台外交新突破 两国副总统首次同场互动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930948/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月28日，台湾副总统赖清德在参加洪都拉斯总统就职典礼时与美国副总统贺锦丽“巧遇”，二人简单互动寒暄，约进行20至30秒交谈。据了解，赖清德就美国对台湾的支持向贺锦丽表示感谢。贺锦丽在台上致词时，也特别向赖清德致意。
 
-1月29日，加拿大奥林匹克委员会表示，已到北京参加冬奥的加拿大代表团，有5名团员验出了COVID-19（中共病毒）阳性反应。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-39.png)（图片来自网络）
-据《中央社》援引《法新社》报道，加拿大奥委会28日晚发表声明表示，目前在北京的246名代表团团员当中，有5人已接受COVID-19（中共病毒）防治安排。
+有分析人士指出，正值中美关系敏感之际，赖清德与贺锦丽在洪都拉斯总统就职典礼上寒暄，是台美副元首第一次在国际场合自然互动，被各界视为双方外交的一大突破。
 
-目前，加拿大奥委会并未透露，5名确诊者究竟是选手、随行支持人员还是官员。根据国际奥委会的防疫规定，确诊者必须离开代表团接受隔离。
+文字版原文：[美台外交新突破 两国副总统首次同场互动](https://gnews.org/zh-hans/1927861/)
 
-另外，根据当地筹办单位数据显示，自本月26日以来，针对各国运动员和代表团其他团员所进行的5092次筛检，共发现23例确诊病例。
+音频处理：Fei797
+发稿：Fei797
 
-参考链接： 
-[https://www.cna.com.tw/news/aopl/202201290160.aspx](https://www.cna.com.tw/news/aopl/202201290160.aspx)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-素材采编：幽蘭自得
-编辑：文顺
-发布：文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

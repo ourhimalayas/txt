@@ -2,49 +2,28 @@
 ---
 
 
-## 瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1931223/)
+## 中共将对银行境外贷款进行严格管制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931352/)
 
-作者：纽约香草山农场 – 四季
+撰稿：东京樱花团丨深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2457.png)
+1月29日，中国人民银行、国家外汇管理局发布关于银行业金融机构境外贷款业务有关事宜的通知。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+通知提到，境内银行应按照审慎经营原则，综合考虑资产负债情况和币种结构等各方面因素，统筹境内、境外业务发展，在境外贷款余额上限内按规定自主开展境外贷款业务，鼓励对有实际需求的境外企业优先采用人民币贷款。
 
+境内银行应做好境外贷款业务规划和管理，确保任一时点贷款余额不超过上限。若因银行一级资本净额（营运资金）、境外贷款杠杆率或宏观审慎调节参数调整导致境外贷款余额超过上限，银行应暂停办理新的境外贷款业务，直至境外贷款余额调整至上限之内。
 
+中国人民银行、国家外汇管理局对27家银行境外贷款业务实行统一管理。
 
+如今，中共央行和外管局将严格管理通过银行进行境外贷款， 以防止通过内保外贷将资金转移出境，更害怕将资金投入到喜币、喜联储！
 
+随着美国政府授权撤离其驻北京大使馆，标志着灭共的第三道大门已正式打开！此时此刻，世界已经炸锅了，想当年美国撤离伊拉克大使馆后，马上就是开战！美国长期不派大使，授权撤离大使馆，中共内部所有有权有脑子的都知道，大势已去，共产党彻底要完了！另外，随着喜交所Hpay功能即将上线，中共资金将会被迅速抽干，中共邪恶政权将瞬间土崩瓦解！
 
-据[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)1月28日报道，瑞典政府宣布将不会建议为5至11岁的儿童接种中共病毒疫苗，因为没有看到这样做的医疗好处。
+信息来源：[**央行、外汇局：境内银行发放的境外贷款不得用于证券投资**](https://www.cs.com.cn/xwzx/hg/202201/t20220129_6239845.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/kids-children-vaccine.jpg)图片来源：[网管专家](https://www.thegatewaypundit.com/2022/01/no-clear-benefit-sweden-will-not-recommend-covid-vaccines-children-ages-5-11/)
-
-瑞典卫生局官员布里塔·比约霍尔姆（Britta Bjorkholm）在新闻发布会上说，“根据我们目前所掌握的知识，儿童患严重疾病的风险很低，我们看不到为他们接种疫苗的任何明显益处”。
-
-瑞典公共卫生局周四在一份新闻稿中说，尽管情况正在被“不断”评估，但他们已决定不建议在2022年春季学期为12岁以下儿童进行中共病毒疫苗的接种。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

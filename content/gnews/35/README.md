@@ -2,39 +2,33 @@
 ---
 
 
-## 有声|美名记新书揭露硅谷寡头与中共勾兑牟利
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930726/)
+## 有声|中共暗地里要求返乡民众必须做核酸检测
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1931026/)
 
-配音：香草山健身部 – 玫瑰园
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+墙内百姓拍摄中共疫情检测人员不承认百姓自带的48小时内核酸阴性报告视频，打脸中共在1月6日所谓“坚决防止层层加码和一刀切，减少对群众生产生活影响”的政策。
 
+视频拍摄者在检查点询问，自己自带的48小时内核酸阴性检测报告到底行不行，一位工作人员非常强势地告诉他不行，因为这个检测是全部人员的抽检；另一位工作人员则要求视频拍摄者出示身份证，用于做核酸检测。而面对为什么自带的48小时内核酸检测报告不行的质疑，并要求提供相关文件时，第一位工作人员态度蛮横，没有任何解释，且不耐烦地对视频拍摄者多次指指点点。最后拍摄者无奈质问：是不是我这样的算是“恶意返乡”呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+这种现象在中共国并非个例。在黑龙江哈尔滨也发生了更加恶劣的事件。仅因为返乡人员来自有过感染者的北京海淀区，检测点仅给出了要么强制隔离14天，要么原路返回的两个选项，甚至没有给出现场核酸检测的选项。这让返乡人员无奈只好带上孩子原路返回北京，错失与父母团聚。
 
+分析人士称，中共为了冬奥会所采取的清零政策，并没有中共在政策中描绘的那样人性化，没有从西安孕妇流产等事件吸取一丝一毫的教训，相反已经造成了春节前极其反常的人流量减少，甚至引起了墙内各地老百姓的不满。
 
-1月22日，《纽约邮报》摘录了高级撰稿人、“政府问责研究所”主席彼得·施魏策尔撰写的新书——《人赃俱在：美国精英如何通过帮助中共获胜而致富》的节选。讲述了美国大科技公司与中共互相勾兑，出卖国家利益的行径。 书中提到几个典型例子。2015年，脸书的扎克伯格参加了奥巴马政府在白宫为习近平举行的国宴，请习为孩子取中文名以示好。2014年底，扎克伯格特意在办公桌上摆放《习近平谈治国理政》，向来访的鲁炜解释说，也给同事购买书，以便让他们学习中国特色社会主义。 2017年，谷歌宣布在中共国成立人工智能研究中心，由李飞飞和李佳领导，帮助中共实现“伟大复兴”。为了拉拢特斯拉上海建厂，数家中资银行主动向特斯拉提供了14亿美元的贷款。2019年1月，上海特斯拉工厂奠基仪式，李克强亲自出席，甚至提出让马斯克成为中共国的永久居民。 这些事例进一步证实了文贵先生的早期爆料。中共以“蓝金黄”手段渗透美国高科技企业，以便盗取技术，诱使并控制这些行业精英，互相出卖国家和人民的利益。
+文字版原文：[中共暗地里要求返乡民众必须做核酸检测](https://gnews.org/zh-hans/1927303/)
 
-原文链接：[美名记新书揭露硅谷寡头与中共勾兑牟利](https://gnews.org/zh-hans/1928489/)
+音频处理：Fei797
+发稿：Fei797
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,22 @@
 ---
 
 
-## 疫苗副作用导致美军F35战机坠毁
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1931504/)
+## 文贵大直播摘要图片-“处男英雄”（2022年1月27日）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1931542/)
 
-#### 设计：波士顿五月花 水涨船高
+#### 设计：波士顿五月花 科存
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/疫苗副作用导致美军F35战机坠毁-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/处男英雄.png)
+
+处男英雄
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/感谢太平犬战友.png)
+
+感谢“太平犬”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/从小立志当官发财的政治明星不会被习王放过.png)
+
+习王不会放过最有希望的政治明星
 
 * * *
 

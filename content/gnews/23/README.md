@@ -2,60 +2,53 @@
 ---
 
 
-## 麦卡洛博士呼吁重视自然免疫，停止大规模接种疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1931369/)
+## Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931484/)
 
-![Dr. Peter McCullough in an interview with NTD's Capitol Reports program during &quot;Defeat The Mandate&quot; rally in Washington D.C., on Jan. 23, 2022. (Screenshot via The Epoch Times)](https://img.theepochtimes.com/assets/uploads/2022/01/25/Dr.-Peter-McCullough-700x420.jpg)彼得·麦卡洛博士于 2022 年 1 月 23 日在华盛顿特区举行的“击败授权”集会上接受 NTD 国会报告节目的采访。（大纪元时报
-《大纪元时报》网站1月26日报道，著名心脏病专家和流行病学家彼得·麦卡洛(Peter McCullough)博士1月23日在华盛顿特区举行的“击败强制令”(Defeat the Mandates)游行中告诉新唐人电视台(NTD)的“国会山报导”(Capitol Report)节目，中共病毒肺炎(COVID-19)不需要大规模接种疫苗就可以停止。
+Dr. Peter McCullough recaps 5-hour COVID-19 panel
+Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
 
-据麦卡洛讲，早期治疗和自然免疫对中共病毒肺炎是安全和有效的方法，而不需要大规模使用疫苗，但联邦卫生机构在推动疫苗的过程中无视了这些。他说：“在早期治疗方面，政府刻意“遗忘”早期治疗的有效性。”
+There was a nearly five-hour long panel in the senate focused on the response of the covid pandemic on Monday morning led by Senator Ron Johnson
+周一上午，参议院在罗恩·约翰逊（Ron Johnson）参议员的领导下进行了近五个小时的关于新冠病毒大流行应对问题的小组讨论
 
-数以千计的人参加了抗议中共病毒疫苗强制令的游行——这是自中共病毒大流行爆发以来美国发生的最大的一次反对疫苗强制令事件。
+Here is one America’s John Hines
+这是来自one America的John Hines的报道
 
-麦卡洛说：“我们的疾病控制与预防中心(CDC)、食品药品监督管理局(FDA)和国立卫生研究院(NIH)在早期治疗方面没有有效地传递信息，哪怕是对具有紧急使用授权的安全有效的单克隆抗体疗法。甚至最近在美国各地销售的默克和辉瑞公司的新药，媒体基本上没有该消息的报道。”
+Wondered if you could share a little bit about your message here with us
+想知道您是否可以在这里与我们分享您的信息
 
-对任何疾病的早期有效治疗都有助于避免发展为更严重的疾病，额外的好处是减轻医疗保健系统的负担。
+Yeah, my message was that I wanted to see full transparency and full discussion in co-chairing this meeting with Senator Ron Johnson
+好的，我的信息是：我希望在与参议员罗恩·约翰逊共同主持这次会议时看到完全的透明度和充分的讨论
 
-周一，FDA宣布将限制两种中共病毒肺炎单克隆抗体疗法的使用，称数据显示这种治疗“极不可能”积极对抗变异毒株奥密克戎(Omicron)。
+I wanted full transparency on early treatment, the suppression of early treatment, the number of lives lost that were all avoidable, the hospitalizations and the tragedy of being in the hospital and the hardship that was avoidable
+我希望（看到）对冠状病毒早期治疗、早期治疗的压制、本可避免的死亡人数、住院和在医院里的悲剧以及本可避免的困难的完全透明 的（讨论）
 
-麦卡洛说，一些资深医生已经做了研究，并表明“早期治疗可以通过降低疾病的强度和严重程度，减少高风险老年人住院和死亡的可能性，并结束这场大流行”。麦卡洛补充说：“这基本上意味着，广泛使用疫苗是不必要的。而事实上，我们已经看到了太多的疫苗伤害和现如今的疫苗失效。对于奥密克戎变异毒株，这些疫苗实际上无法防治最新形式的病毒。”另外22项研究显示，疫苗在六个月后就失效。
+And then I wanted American to hear about vaccine safety, in the lack thereof, and that the scores of individuals who have died shortly after taking the vaccine, the large number of non-fatal injuries now, and the ones that the agencies acknowledge including heart inflammation, neurologic, immunologic, and hematologic injuries
+然后我想让美国人知道疫苗的安全性，在缺乏安全性的情况下，以及在接种疫苗不久后死亡的人数，现在大量的非致命伤害，以及机构承认的包括心脏炎症、神经系统、免疫系统和血液系统损伤在内的伤害
 
-麦卡洛举了一个例子，说明伊维菌素作为一个赢得诺贝尔奖，被许多研究和医生声称对治疗中共病毒肺炎患者有效的获FDA批准的药物，是如何被联邦卫生机构驳回的。
+So, I wanted it to all be up in the open and I am satisfied that American got the correct information today.
+所以我希望它全部公开，我很满意美国人今天得到了正确的信息
 
-FDA一直表示该药物是被批准用于治疗内部和外部寄生虫感染，目前没有数据显示其对治疗中共病毒肺炎有效。
+**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
 
-麦卡洛还声称，联邦卫生机构无视自然免疫，而自然免疫“对致命的病毒毒株来说有强大、完整和持久的作用。直到出现奥密克戎变异毒株，才有了突破性感染，已有自然免疫力的人可能只有轻微症状。自然免疫就是中共病毒大流行的终结者”，麦卡洛继续说，“记住，当我们都有自然免疫时，中共病毒就不再对我们的生命构成威胁。而我们的政府机构没有认识到自然免疫力的作用，反而给人们带来了不必要的痛苦、不必要的检测、不必要的口罩和社交隔离。不必要地遵守为易感人群设置的各种措施，而那些具有自然免疫力的人是不再容易受到致命疾病影响的。”
+Date: 1/26/2022
+原视频标题: Dr. Peter McCullough recaps 5-hour COVID-19 panel
+Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论
+原视频日期：1/26/2022
+**原视频链接:** [https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
+任务编号：KE371(3608)
+视频时间段 : 0:00-01:00
 
-麦卡洛对COVID-19疫苗可以减少住院和死亡的说法表示怀疑。
+中听校: 洛杉矶盘古农场 -海潮
+翻译: 洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-麦卡洛说：“我们目前所拥有的只是偏见混淆，而且我认为是无效的住院数据。美国政府机构仍然宣称这些疫苗可以防止住院治疗，而我们没有在英国、德国、南非和世界其他地方看到这方面的证据。而且我可以告诉你，美国与其他这些国家没有什么不同。这肯定是有问题的。而且我可以告诉你，这种不正确的、无效的关于疫苗减少住院的说法是有问题的。我不认为是可以支持的。”
-
-1月19日，CDC发表的一项研究显示，没有接种过疫苗但之前确实有感染的人形成的免疫，也被称为自然免疫力，与没有自然免疫力的接种者相比，他们进入医院的可能性更小。《大纪元时报》已与CDC联系，希望得到更多评论。
-
-上个月，美国总统乔·拜登宣布了对抗中共病毒肺炎的新措施，其中最重要的三项措施包括为所有成年人提供疫苗加强针，接种疫苗保护儿童，以及扩大免费居家测试。拜登确实谈到了新的治疗方法，他说：“如果有任何新的中共病毒肺炎治疗药物被发现符合FDA的科学标准，所有美国人都可以公平地获得它们。”
-
-简评：
-
-美国这些政府医疗机构无视最基本的治病救人的方法，包括媒体在内，对具有紧急使用授权的安全有效的单克隆抗体疗法进行限制。一味遵循NIH的中共病毒肺炎治疗指南，其“在必要时的氧气呼吸器的补给供养支持”只是一种对有呼吸困难病人的一种机器辅助，但对中共病毒没有治疗作用，反而会延误治疗时机。
-
-对经过验证的，能够治疗中共病毒的伊维菌素，却被美国联邦机构声称没有足够数据，不予批准使用。政府极力推广大规模疫苗接种，无视人类具有的天生的自然免疫，使接种疫苗人群变为易感人群，最终破坏其自身的天然免疫系统。这些政府机构是中共的帮凶，或说他们就是谋杀犯也不为过。值得欣喜的是，世界上包括美国的很多民众都在与疫苗强制令持续做抗争，各个国家民众参与的抵抗疫苗强制令大游行等活动也在逐渐出现成效，美国最高法院阻止了拜登政府的疫苗强制令，拜登政府的劳工部周二也宣布，撤回对员工接种疫苗或定期检测的强制令。英国、爱尔兰、荷兰等国也相继公布了取消中共病毒限制等类似声明，加拿大卡车司机更是举行了前所未有的抵制疫苗强制接种大游行。全世界范围内的反中共病毒疫苗接种的大趋势已经形成，伴随着变种病毒的减弱形势，相信这场肆虐全球的由邪恶的中共政权发起的病毒战争将很快结束。
-
-新闻链接：[https://www.theepochtimes.com/dr-mccullough-early-treatment-and-natural-immunity-safe-and-effective-no-need-to-broadly-use-covid-19-vaccines\_4235673.html](https://www.theepochtimes.com/dr-mccullough-early-treatment-and-natural-immunity-safe-and-effective-no-need-to-broadly-use-covid-19-vaccines_4235673.html)
-
-翻译/简评:JS
-
-PR：Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

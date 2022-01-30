@@ -2,88 +2,40 @@
 ---
 
 
-## 致我们的亲人
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1929055/)
+## 欧盟立陶宛美国联合状告中共
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1929132/)
 
-**作者**：香草山农场-天才老鼠
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-33.jpg)
+整理：Sara9
+编辑：Little Lamp
 
-
-
-
-
-——谨以此文写给每一个因为疫苗灾难、无法回国等等原因，见不到亲人最后一面的你、我、他。
-
-* * *
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-172.png)
-
-上天把最亮的光照向了你。
-
-用最温柔的方式叫醒梦中的你。
-
-我知道那光温柔而温暖，
-
-但我，不在。
-
-我的善良不多，只是继承你的所有。
-
-你的善良不少，只愿梦醒没有遗憾。
-
-我的担心很少，因你学会做回自己。
-
-你的担心很多，怕这怕那隐忍一生。
-
-我的快乐很多，因你用心用力呵护。
-
-你的快乐不多，呵护别人忘了自己。
-
-我的悲伤不多，只是充满我的世界。
-
-你的悲伤不少，只愿梦醒再无悲伤。
-
-你拥有这个世界上最温柔，最明亮，最温暖的光芒，那是你用生命燃烧出来的。
-
-我时时刻刻都被这光芒笼罩着，这光将永远在我心中，永远不灭，我今后的路上有它足以为我照亮一切，给我勇气。
-
-我记得住你的美好，你的美丽，你的温暖，你的光芒，不只在脑海里更在心中。
-
-我此生的生命中
-
-再无和你相见美好
-
-相拥的温度。
-
-你从你的梦中醒来
-
-默默的等着我醒来
-
-继承你的美好
-
-传递你的爱
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6acb4e3f-0990-4c36-b2c0-2c41dca00878.jpg)
-
-***校对/发稿：遍地开花***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-2.png)图片来源：雅典娜设计组
 
 
+据大纪元报导，欧盟周四（1月27日）表示，已在世界贸易组织（WTO）就中共对欧盟成员国立陶宛实施贸易限制提起诉讼。美国贸易代表办公室（USTR）当天表示，美国将要求加入这些WTO磋商，以声援立陶宛和欧盟。
 
+欧盟指控中共对立陶宛实施歧视性贸易做法，并称这威胁到欧盟单一市场的完整性。
 
+欧盟执委会副主席瓦尔迪斯‧东布罗夫基斯（Valdis Dombrovskis）周四表示，他的办公室已要求在WTO就欧盟认为的歧视性贸易做法与中国进行磋商，这是WTO诉讼程式的第一阶段。欧盟代表其27个成员国处理对外贸易。
+
+立陶宛2021年同意台湾以“台湾”名义在该国设立代表处
+
+中共政府不仅将中立两国外交关系降级，而且对立陶宛实施全面的经济制裁和报复。
+
+欧盟方面表示，北京对立陶宛的贸易限制措施包括中共海关对立陶宛商品不予清关、拒绝立陶宛的进口申请以及对欧盟公司施加压力，要求其向中国出口的商品不得含有立陶宛的零部件。
+
+美国贸易代表戴琪表示立陶宛可获美国支持，两国将共同应对中共“经济胁迫”。共同捍卫的核心价值和原则公开，表示支持立陶宛
+
+文章来源：[欧盟在世贸组织状告中共 美要求加入](https://www.epochtimes.com/gb/22/1/27/n13534577.htm%20)
+
+发布：星谕
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
