@@ -2,32 +2,33 @@
 ---
 
 
-## 中共跪求美国不要离开
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932978/)
+## 郝海东先生呼吁：不要做中共炮灰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932979/)
 
-作者：纽约香草山农场 文真
+作者：纽约香草山农场 文鹰
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1月30日，郭文贵先生在盖特视频中连续爆料美国撤离驻北京大使馆后，中共对此事的反应。
+美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
 
-据内部战友披露，虽然中共恳求美国不要撤走全部驻北京人员，但美国仍派了多架军事医疗飞机已抵达北京首都机场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.14-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.01.17-PM-1.png)
+中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.42.37-PM.png)
+没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
 
-郭先生爆料，中共昨天和今天无数次地骚扰美国，开出各种优厚条件试图挽留，比如，恢复两国领导人最重要个人关系，落实拜登和习近平的电话视频会议，以及和美国共同面对世界难题、为世界负责。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-9.43.54-PM.png)
 
-郭先生评价道，中共对内，在中国人面前是披着羊皮的狼；而在西方面前，却是披着狼皮的羊。中共如此流氓的做法，遭到美国内部人士强烈鄙视。中共的流氓外交和丑陋的国际形象，在国际上丢尽中国人的脸。
+战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
 
-参考链接：
+郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
 
-1. [1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员…](https://gettr.com/post/pr64pxa8df)
-2. [1月29号：尊敬的战友们好！@1‘55”](https://gettr.com/post/pr8w9h1519)
-
+参考链接： [2022.01.29 早《GTV新闻访谈》与郝海东大卫聊聊军队投诚那些事儿01:27:52](https://gtv.org/video/id=61f540af81ce0a3ac2a121f4)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-08-at-9.10.27-PM.png)
 
-总编：文特
+编辑：Jack Li文阳
+总编：文真
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -38,8 +39,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
 
  
 
