@@ -15,119 +15,119 @@
 
 ---
 
-### [会看2017年伪类案件（2）](/content/gnews/1/README.md)
+### [七哥的成长就是 说明了共产党有多么可怕](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [有声|欧盟报告提醒中共严重威胁 呼吁加强与台合作](/content/gnews/2/README.md)
+### [秘翻在线：北京冬季奥运开幕前6名入境者相继感染 警戒升级](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [七哥小时候的故事](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥小时候的照片](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|帮助中共研发病毒的生态健康联盟又获政府巨额经费](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [回看2017年伪类案件（1）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [美国政界司法界都牵扯到（2）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [有声|美国最高法院大法官斯蒂芬.布雷耶宣布将退休](/content/gnews/5/README.md)
+### [有声|美名记新书揭露硅谷寡头与中共勾兑牟利](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [美国政界司法界都牵扯到（1）](/content/gnews/6/README.md)
+### [誓死战斗到底绝不放弃](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [共产党在BVI巴哈马的地方 彻底搞定法官和律师事务所](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [新冠大流行促进了私人飞机产业的蓬勃发展](/content/gnews/8/README.md)
- ` 喜国公民`
-
-### [有声|新中国联邦重大公告 甜蜜蜜运动改变世界](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [邦迪强烈违反职业道德（2）](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [邦迪强烈违反职业道德（1）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [后面还有多少个巴森姆？美国司法的腐败](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [奥委会计划在北京冬奥会期间与中国网球名将彭帅会面](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [加拿大北京冬奥代表团中5人确诊](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [全球疫情更新（两则“疫苗”新闻中的谎言和掩盖）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [英国官方数据：儿童接种疫苗死亡率高52倍](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [懦弱虚伪！还是制造恐慌？小土豆又一次玩隔离？](/content/gnews/18/README.md)
- ` 温哥华扬帆农场`
-
-### [GTV是王！喜联储拒绝5000亿美元现金投资拿5%-10%股份提议](/content/gnews/19/README.md)
- ` YALUN 亚伦`
-
-### [新冠大流行对超过三分之一的飞行员造成精神和经济损失，不再飞行](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [自疫苗问世以来，美国人在壮年时期的非新冠死亡数比正常情况下增加140%](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [中日财经爆┃总部大楼被砸！金科地产要暴雷](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|FCC宣布吊销中共国联通在美国的运营执照](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [荷兰首相撒谎闹剧](/content/gnews/25/README.md)
+### [我们都有个八弟](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [1/27/2022 文贵直播：文贵要感谢这位推特昵称叫“太平犬”的战友，他是1989年办文贵案子的警察并且发推澄清了有关文贵案子的很多事实，中共在网上散布的所谓判决书纯粹是胡编乱造的](/content/gnews/26/README.md)
- ` 秘密翻译组-北美组`
+### [会看2017年伪类案件（2）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [中共官媒：美国出钱奖励运动员“扰乱”北京冬奥会](/content/gnews/27/README.md)
+### [有声|欧盟报告提醒中共严重威胁 呼吁加强与台合作](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [回看2017年伪类案件（1）](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [美国政界司法界都牵扯到（2）](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|美国最高法院大法官斯蒂芬.布雷耶宣布将退休](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [美国政界司法界都牵扯到（1）](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [共产党在BVI巴哈马的地方 彻底搞定法官和律师事务所](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [新冠大流行促进了私人飞机产业的蓬勃发展](/content/gnews/16/README.md)
+ ` 喜国公民`
+
+### [有声|新中国联邦重大公告 甜蜜蜜运动改变世界](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [邦迪强烈违反职业道德（2）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [邦迪强烈违反职业道德（1）](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大北京冬奥代表团中5人确诊](/content/gnews/20/README.md)
+ ` 日本东京方舟农场`
+
+### [全球疫情更新（两则“疫苗”新闻中的谎言和掩盖）](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [英国官方数据：儿童接种疫苗死亡率高52倍](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实](/content/gnews/23/README.md)
+ ` 日本东京方舟农场`
+
+### [GTV是王！喜联储拒绝5000亿美元现金投资拿5%-10%股份提议](/content/gnews/24/README.md)
+ ` YALUN 亚伦`
+
+### [新冠大流行对超过三分之一的飞行员造成精神和经济损失，不再飞行](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国高官将访问立陶宛支持对抗中共国](/content/gnews/28/README.md)
+### [自疫苗问世以来，美国人在壮年时期的非新冠死亡数比正常情况下增加140%](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [中日财经爆┃总部大楼被砸！金科地产要暴雷](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [荷兰首相撒谎闹剧](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共官媒：美国出钱奖励运动员“扰乱”北京冬奥会](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [扬帆每日速递 2022年1月29日版（2）](/content/gnews/29/README.md)
+### [美国高官将访问立陶宛支持对抗中共国](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [扬帆每日速递 2022年1月29日版（2）](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|多家冬奥赞助商极力低调，避开和北京的关系](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|美国支持欧盟在世贸组织状诉中共](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [1/29/2022国际财经快讯：美消费者情绪因对新冠病毒和通胀的担忧而下降；2021年通胀指标飙升5.8%](/content/gnews/32/README.md)
+### [1/29/2022国际财经快讯：美消费者情绪因对新冠病毒和通胀的担忧而下降；2021年通胀指标飙升5.8%](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [扬帆每日速递 2022年1月29日版（1）](/content/gnews/33/README.md)
+### [扬帆每日速递 2022年1月29日版（1）](/content/gnews/34/README.md)
  ` 温哥华扬帆农场`
 
-### [喜马拉雅真义12解：新中国联邦人因情缘、承使命而得天助！](/content/gnews/34/README.md)
+### [喜马拉雅真义12解：新中国联邦人因情缘、承使命而得天助！](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国17,000 医生站出来揭露疫苗真相](/content/gnews/35/README.md)
+### [美国17,000 医生站出来揭露疫苗真相](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
 
-### [七哥直播之感想](/content/gnews/36/README.md)
+### [七哥直播之感想](/content/gnews/37/README.md)
  ` 纽约香草山MOS02`
 
-### [五月花简报（01/29/2022）](/content/gnews/37/README.md)
+### [五月花简报（01/29/2022）](/content/gnews/38/README.md)
  ` mayflowertranslate`
-
-### [“甜蜜蜜”运动的重大意义和影响力](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [澳卡车司机加入抗议强制令和限制车队争取自由](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`

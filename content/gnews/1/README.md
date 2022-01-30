@@ -2,8 +2,8 @@
 ---
 
 
-## 会看2017年伪类案件（2）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930712/)
+## 七哥的成长就是 说明了共产党有多么可怕
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930766/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

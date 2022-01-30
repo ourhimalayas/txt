@@ -2,8 +2,8 @@
 ---
 
 
-## 后面还有多少个巴森姆？美国司法的腐败
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930624/)
+## 美国政界司法界都牵扯到（2）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930698/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
