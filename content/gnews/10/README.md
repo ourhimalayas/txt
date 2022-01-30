@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|赵立坚希望美国能慎重考虑撤大使馆问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934555/)
+## 中共慷民脂民膏之慨 结参加冬奥洋人之欢心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1934582/)
 
-配音：香草山健身部 – 玫瑰园
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-308.png)[图片来源](https://t.cj.sina.com.cn/articles/view/7228207506/1aed5b192001018qw4)
+据网易体育1月30日报道，北京冬奥会主办方给每位运动员都准备了一份礼包，里面有价值7999元的手机、运动耳机、限定项链，不少外国运动员打开后都震惊了。
 
+该消息迅速引爆网络，后中共官方快速在全网删除了该新闻，并开始洗地。
 
+郭文贵先生近期多次爆料，为了这场作秀，特别是在当前遭受欧美普遍抵制的情况下，中共更是不计成本和代价，通过各种送钱的手段来收买各国政要出席运动会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+北京冬奥会完全就是习近平彰显个人权力，以及中共向世界展示其统治能力的表演，而非中国和中国人民的冬奥会。中共向冬奥运动员送豪礼的做法，慷的是老百姓民脂民膏之慨，结的是洋人之欢心。
 
+信息来源：
 
+[大气!冬奥村送豪礼外国运动员拆开礼包激动尖叫|项链\_网易体育](https://www.163.com/sports/article/GUVKI82K00059CHO.html)
 
-当地时间1月26日，中共外交部记者会上有记者问，“对于美国政府授权撤离美国驻北京大使馆，中共政府有何看法？” 中共外交部发言人赵立坚避重就轻的回答，指在控制疫情方面，中共国是世界上最安全的国家，从中共国撤出，只会极大增加美方人员感染的风险。最后，赵立坚还语带希望的挽留美方，“中方已就此向美方表示严重关切和不满。希望美方认真对待中方立场和关切，慎重考虑所谓外交领事人员“授权撤离”问题。” 网友评论：按照国际惯例，中共应该考虑撤离中共驻华盛顿的大使馆，而不是恳请美方“慎重考虑”。
-
-原文链接：[赵立坚希望美国能慎重考虑撤大使馆问题](https://gnews.org/zh-hans/1928934/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  
