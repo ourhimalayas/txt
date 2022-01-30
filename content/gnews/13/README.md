@@ -2,303 +2,46 @@
 ---
 
 
-## 加拿大数千名卡车司机组成车队抗议该国的强制疫苗规定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931917/)
+## 能够激发孩子对学习的兴趣和愉悦的心情才是最好的教育
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1931971/)
 
-[https://gtv.org/video/id=61f52663d90bdd2085a21aa9](https://gtv.org/video/id=61f52663d90bdd2085a21aa9)
+G-TV视频链接：[https://gtv.org/video/id=61f618f9d90bdd2085a26f0f](https://gtv.org/video/id=61f618f9d90bdd2085a26f0f)
 
-Tucker Carlson (Fox News host)
-塔克·卡尔森（福克斯新闻主持人）
+**郭文贵先生：**今天因为很多战友就想为什么今天磐石农场成立要用七哥这个盖特的平台？因为，就是因为EDU，咱们的整个G教育是属于我们新中国联邦的。我们让更多人的知道这不是唐平的磐石农场成立的特权，但是她占了便宜，只要你对教育有贡献，你就会得到比别人更多的东西。
 
-Canada has just imposed a vaccine mandate for truckers
-加拿大刚刚强制要求卡车司机接种疫苗
+今天看到George老师、Happy老师，平和老师还没说话。刚才Q May也讲了整个的这个缘起，还有唐平、威廉王还有Q May他们一起发起的缘起。刚才青藤CEO也讲话了，Nick也讲了，包括我们冯老师刚才讲得那么多。
 
-this in addition to so many other lunatic corona restrictions
-除此以外，还有许多其他疯狂的新冠病毒限制之外
+我想给大家说的事情，最好的教育，最好的教育就是激发孩子对学习的兴趣和愉悦的心情。只要能做到这一点，就是最好的教育，能让孩子张开嘴、睁开眼、迈开腿，就是最好的教育。所有的“填鸭式”的教育，我认为都是人类的灾难，我没有资格谈教育，但是我是在老师和特别的人的教育下才走到今天的。
 
-Well, finally they’ve had enough
-好吧，他们终于受够了
+人的智慧和人的本能是天生的，即使没有教育，人也不会偏离他的轨道。但是如果让孩子有愉悦的心情和激发他学习的兴趣，能让他尽早地知道人和畜牲、人和大自然、人和人之间关系的基本的原则，那么就会实现我们人类到今天，无论是爱因斯坦、无论是原苏联的什么高尔基都承认的——人类的天才都是在忘掉了学校的所有的教育之后而激发对社会的兴趣，而对社会和人生、大自然关系的思考之后而成就的特殊贡献于人类的和这个大自然的人物，称为天才。
 
-1000s of truckers assembled in Vancouver this weekend to protest
-本周末数千名卡车司机聚集在温哥华抗议
+字幕来源：[2022年01月21日 喜马拉雅纽约磐石农场《开幕典礼》全文字版](https://gnews.org/zh-hans/1900057/)
 
-they formed a freedom convoy
-他们组成了一个自由车队
+编辑整理：Jacques；
 
-their destination, the Canadian capital of Ottawa
-他们的目的地，加拿大首都渥太华
+字幕文件制作：小满；
 
-The convoy is more than 40 miles long
-车队长达40多英里
+视频制作及上传：Cindy；
 
-they’ve raised more than $6 million in donations
-他们已经筹集了超过600万美元的捐款
+G-News发布：小满；
 
-The government is cracking down trying to stop this
-政府正在打击试图阻止这种情况
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-Now the Prime Minister so called Canada Justin Trudeau says
-现在，所谓的加拿大总理贾斯汀·特鲁多说
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-he said COVID exposure he’s isolate for five days
-他接触新了冠病毒，需要隔离五天
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-that means he cannot meet with the convoy with actual voters
-这意味着他无法与车队与实际选民会面
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-when it arrives in the capital city
-当自由车队到达首都时
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-Trudeau also told his country the truckers are just a fringe group
-特鲁多还告诉他的国家，卡车司机只是一个边缘群体
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-Justin Trudeau (Prime minister of Canada)
-贾斯汀·特鲁多（加拿大总理）
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-the small fringe minority of people who are on their way to Ottawa
-少数边缘人正在前往渥太华的途中
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-or who are holding unacceptable views that they’re expressing
-或那些持有不可接受的观点的人
-
-Do not represent the views of Canadians
-不代表加拿大人的观点
-
-Tucker Carlson
-塔克·卡尔森
-
-Those are not really Canadians, probably racist too
-那些不是真正的加拿大人，也可能是种族主义者
-
-Sure, we’re hear that
-当然，我们得到了他想表达的信息
-
-Benjamin Dichter is a spokesman for the freedom convoy
-本杰明·迪希特是自由车队的发言人
-
-He’s gonna join it tomorrow, but he joins us now
-他明天会加入，但他现在加入我们
-
-Mr. Dichter, thanks so much for coming on tonight
-迪希特先生，非常感谢今晚的光临
-
-Tell us why you’re doing this. What’s the point of this convoy?
-告诉我们你为什么这样做, 这个车队的意义何在？
-
-Benjamin Dichter (Freedom Convoy 2022 spokesman)
-本杰明·迪希特
-
-Well, it’s simple. I mean
-嗯，很简单, 我的意思说
-
-we’ve seen Canada go from a country of Justin Trudeau promises of sunny ways
-我们已经看到加拿大从贾斯汀·特鲁多承诺的阳光国家
-
-into dark authoritarian oppression and control
-陷入黑暗的专制压迫和控制
-
-Tucker Carlson
-塔克·卡尔森
-
-Yes
-是的
-
-Benjamin Dichter
-本杰明·迪希特
-
-We want to do, we want two things
-我们想做的，我们想做两件事
-
-we want to get rid of the vaccine mandates and the passports
-我们想摆脱强制疫苗和疫苗疫苗
-
-and the passports is is that’s a really concerning one
-疫苗护照是真的很令人担忧的
-
-Yesterday, it was my first time ever crossing the border in my truck with my digital passport
-昨天，这是我第一次用我的数字护照开着卡车过边境
-
-and I held my phone up to the border agent to give him the QR code
-我把手机举到边防人员面前给他二维码
-
-You know, he said to me, “oh, it’s okay, I don’t need it”
-你知道，他对我说，”哦，没关系，我不需要那个”
-
-So what do you mean you don’t need it?
-你是什么意思你不需要它？
-
-So your truck oh your phone already popped up on my screen
-所以你的卡车, 哦，你的手机已经出现在我的屏幕上
-
-and is correlate with your passport
-并且与你的疫苗护照相关
-
-keep think of that? Can you believe that?
-想想这件事儿？ 你相信吗？
-
-so they know everybody who’s coming up to the border before they’re there
-所以他们在到达边境之前就知道每个即将到达边境的人
-
-And they’re tracking them
-他们正在跟踪他们
-
-Now, it may be it’s outlandish
-现在，它可能是古怪的
-
-but what’s to prevent the government from introducing that across the Canada
-但是，是什么阻止了政府在整个加拿大引入疫苗护照
-
-across Canada and not limiting it to just borders
-横跨加拿大而不限于边境
-
-and you guys are getting it as well and you can thank us for it
-你们美国卡车司机也得到了它，你可以感谢我们
-
-because apparently according to our sources within the media and within government
-因为显然根据我们在媒体和政府内部的消息来源
-
-we have some some close ties
-我们有一些密切的联系
-
-Apparently the Trudeau Government
-显然特鲁多政府
-
-the Biden administration administration have no interest in it
-拜登政府对此没有兴趣
-
-But the Trudeau Trudeau Government lobbied
-但特鲁多政府游说
-
-and requested the Biden administration to introduce this
-并要求拜登政府引入了这个疫苗护照
-
-we don’t know why
-我们不知道为什么
-
-We don’t know the terms of the deal
-我们不知道具体细节
-
-Are they going to be trading intelligence back and forth between Canada US tracking cell phones?
-他们会追踪手机，在加拿大和美国之间来回交易情报吗？
-
-Of course we have no idea
-我们当然不知道
-
-But this is where we’re going if this does not stop
-但如果这不停止，这就是即将要面对的情况
-
-That’s why this is the line，this is where it ends
-这就是为什么这条线，这是它结束的地方
-
-Tucker Carlson
-塔克·卡尔森
-
-Well, I mean, I two things one you know, you drive a truck for living
-好吧，我的意思是，我有两件事，你知道，你开卡车谋生
-
-your country and ours, you know
-你的国家和我们的，你知道
-
-1000s of multiple credentialed intellectuals are paid to think about this stuff
-数以千计的多位有资质的知识分子被付钱来思考这些东西
-
-Why is fallen you to connect the obvious dots? God bless you for that
-为什么你会连接这些明显的点？ 上帝保佑你
-
-And second, do you think that you can stop this with your trucks?
-其次，你认为你可以用你的卡车阻止这种情况吗？
-
-Benjamin Dichter
-本杰明·迪希特
-
-What is followed to follow us
-跟随我们的是什么?
-
-because we’re the ones who actually suffer the repercussions
-因为我们才是真正受到影响的人
-
-You know, we often see and we talked about Alberta
-你知道，我们经常看到并谈论阿尔伯塔省
-
-being Canada’s energy sector
-它是加拿大的能源部门
-
-I was in Alberta and Saskatchewan just before COVID
-在COVID之前我去过艾伯塔省和萨斯喀彻温省
-
-and Tucker, I spent a lot of time traveling through Latin America
-还有塔克，我花了很多时间在拉丁美洲旅行
-
-I couldn’t believe it. It looked like a third world country
-我简直不敢相信, 它看起来像一个第三世界国家
-
-It scared me, and that was before COVID
-它吓到我了，那是在COVID之前
-
-So now these people who have their their industries crushed
-所以现在这些人他们的行业被压垮了
-
-their lives crushed COVID comes along
-随着COVID的到来他们的生活被压垮了
-
-and now they’re treated like insects by the bureaucracy
-并且现在他们被官僚机构当作虫子对待
-
-Tucker Carlson
-塔克·卡尔森
-
-exactly, by insects
-确切地说，虫子
-
-Benjamin Dichter, I hope you will come back
-本杰明·迪希特，我希望你能回来
-
-I found that really inspiring your bravery and the way
-我发现你的勇气真的鼓舞人心，和
-
-that you explained it as clearly as you did
-你解释的非常地清楚
-
-Thank you very much
-非常感谢你
-
-Benjamin Dichter
-本杰明·迪希特
-
-You’re a hero to all of us
-你是我们所有人的英雄
-
-And don’t thank me
-不要谢我
-
-Thank all those guys on the road right now fighting for our freedom
-感谢所有在路上为我们的自由而战的人
-
-Tucker Carlson
-塔克·卡尔森
-
-Amen. Thank you
-阿门，谢谢你
-
-* * *
-
-Date:01/28/2022
-原视频标题: Thousands of truckers in Canada have formed a convoy to protest the country’s vaccine mandates
-加拿大数千名卡车司机组成车队抗议该国的强制疫苗规定
-原视频日期：2022/01/28
-原视频链接: **[https://twitter.com/tuckercarlson/status/1486879324825427972?s=24](https://twitter.com/tuckercarlson/status/1486879324825427972?s=24)**
-任务编号：KE374（3620）
-视频时间段 : 0:00-4:05
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

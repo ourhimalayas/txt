@@ -2,81 +2,178 @@
 ---
 
 
-## 美联储主席杰罗姆鲍威尔发表 2022 年货币政策展望
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931957/)
+## 墙内视频网站上被删减阉割的电影作品（下）
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1931999/)
 
-[https://gtv.org/video/id=61f5e588d90bdd2085a25e85](https://gtv.org/video/id=61f5e588d90bdd2085a25e85)
+作者 台湾宝岛农场 Y.M.O
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-427.jpeg)
+前文说到腾讯视频上《搏击俱乐部》的结局被发现遭到了篡改，这件事引起了观影圈不小的讨论。另外值得一提的是为了增加这个虚假结局的可信度这段文字也是用的电影原始字体，如果没有看过原版的影迷也许真的可以糊弄过去，而《搏击俱乐部》原著小说作者恰克·帕拉尼克也发表了两个前后迥异的立场。也许它们都是真的，也许作者本人在事情发酵过程中遭到了威胁或者蓝金黄但这都不重要。因为在中共国视频网站上被删减阉割的电影作品又何止《搏击俱乐部》这一部呢？中共不可能搞得定所有相关创作者，而且并不是所有创作者都会买中共的帐，看看下面这40部被删减阉割的作品吧。
 
-Fed Chair Jerome Powell Provides 2022 Monetary Policy Outlook
-美联储主席杰罗姆-鲍威尔（Jerome Powell）发布 2022 年货币政策展望
+41《小人物》（2021）
 
-I would describe what we’re doing along these lines
-我将描述我们在这些方面所做的事情
+本片在优酷平台上架后，遭到了约6分钟的删减。
 
-This is going to be a year in which we move steadily away from the very highly accommodative monetary policy that we put in place to deal with the economic effects of the pandemic
-今年我们将逐步摆脱为应对大流行的经济影响而实施的高度宽松的货币政策
+42《末代皇帝》（1987）
 
-And that’s going to involve a number of things
-这将涉及到很多事情
+本片在腾讯视频平台上架后，遭到了约2分钟的删减；在B站平台上架后，遭到了约1分钟的删减。
 
-It’s going to involve finishing assets purchases
-这将涉及完成资产购买
+43《海滩的一天》（1983）
 
-It’s going to involve lifting off
-这将涉及提息
+本片在腾讯视频平台上架后，遭到了113分钟的删减；在爱奇艺平台上架后，遭到了7分钟的删减。
 
-and it’s going to involve additional rate increases as appropriate
-并且会酌情增加额外的利率
+44《伯德小姐》（2017）
 
-and we are going to write down in March our next assessment of what that might be
-我们将在３月份进行下一次评估并写出计划
+本片在优酷平台上架后，遭到了约1分钟的删减。
 
-It’s going to continue to evolve as the data evolve
-（具体的计划）将随着数据的变化的而改变
+45《钢琴家》（2002）
 
-we need to be quite adaptable in our understanding of this
-对这件事的理解我们需要非常有适应性
+本片在芒果TV平台上架后，遭到了约2分钟的删减。
 
-The last thing we’re going to do is we’re going to have a couple more meetings, and to talk about allowing the balance sheet to begin to run off
-最后我们会举行更多会议，然后讨论允许缩减美联储资产负债表的计划
+46《无声》（2020）
 
-and do so in a predictable manner and that’s something that we will also be doing as appropriate
-并且以可预测的方式，酌情操作
+本片在腾讯视频平台上架后，遭到了约4分钟的删减。
 
-and I don’t think it’s possible to say exactly how this is going to go
-我不认为我们可以确切地说出这将如何发展
+47《最佳出价》（2013）
 
-and we are going to need to be as I have mentioned nimble about this and the economy is quite different this time
-就像我提到过的那样，我们需要很敏捷，这次经济形势完全不同
+本片在腾讯视频平台上架后，遭到了约2分钟的删减；在优酷平台上架后，遭到了约3分钟的删减。
 
-I have said this several times now the economy is quite different
-我已经多次说过现在经济完全不一样
+48《复仇者联盟2：奥创纪元》（2015）
 
-It’s stronger, Inflation is higher, the labor market much much stronger than it was and growth above trend even this year, let alone last year
-经济更强劲，通货膨胀率更高，劳动力市场比以前强得多，甚至今年的增长也高于趋势，更不用说去年了
+本片在腾讯视频、爱奇艺平台上架后，约遭到了7分钟的删减。
 
-So, all of those things are going to go into our thinking as we make monetary policy.
-因此，在我们制定货币政策时，所有这些事情都将进入我们的思考范围
+49《复仇者联盟3：无限战争》（2018）
+
+本片在腾讯视频平台上架后，遭到了约6分钟的删减。
+
+50《茶馆》（1982）
+
+本片在优酷平台上架后，遭到了约2分钟的删减。
+
+51《搏击俱乐部》（1999）
+
+本片在腾讯视频平台上架后，遭到了约12分钟的删减。
+
+52《丹麦女孩》（2015）
+
+本片在优酷平台上架后，遭到了约7分钟的删减。
+
+53《烈日灼心》（2015）
+
+本片在爱奇艺平台上架后，遭到了约1分钟的删减。
+
+54《门徒》（2007）
+
+本片在优酷平台上架后，遭到了约10分钟的删减。
+
+55《浮城谜事》（2012）
+
+本片在爱奇艺平台上架后，遭到了约5分钟的删减。
+
+56《爱在午夜降临前》（2013）
+
+本片在优酷平台上架后，遭到了约24分钟的删减。
+
+57《超体》（2014）
+
+本片在腾讯视频平台上架后，遭到了约4分钟的删减；在咪咕视频平台上架后，遭到了约3分钟的删减。
+
+58《星月童话》（1999）
+
+本片在优酷平台上架后，遭到了约2分钟的删减。
+
+59《BJ的单身日记》（2001）
+
+本片在优酷平台上架后，遭到了约2分钟的删减。
+
+60《汉尼拔》（2001）
+
+本片在优酷平台上架后，遭到了约3分钟的删减。
+
+61《英国病人》（1996）
+
+本片在爱奇艺平台上架后，遭到了约4分钟的删减。
+
+62《维多利亚》（2015）
+
+本片在爱奇艺平台上架后，遭到了约29分钟的删减。
+
+63《怪形》（1982）
+
+本片在优酷平台上架后，遭到了约3分钟的删减。
+
+64《天生一对》（1998）
+
+本片在爱奇艺平台上架后，遭到了约4分钟的删减。
+
+65《阿甘正传》（1994）
+
+本片在优酷平台上架后，遭到了约5分钟的删减。
+
+66《当哈利遇到莎莉》（1989）
+
+本片在爱奇艺平台上架后，遭到了约4分钟的删减。
+
+68《八恶人》（2015）
+
+本片在爱奇艺平台上架后，遭到了约6分钟的删减。
+
+69《穆赫兰道》（2001）
+
+本片在腾讯视频、爱奇艺平台上架后，遭到了约19分钟的删减。
+
+70《月光男孩》（2016）
+
+本片在爱奇艺平台上架后，遭到了约4分钟的删减。
+
+71《堕落天使》（1995）
+
+本片在爱奇艺平台上架后，遭到了约3分钟的删减。
+
+72《金刚狼3：殊死一战 》（2017）
+
+本片在中国大陆上映后，遭到了约14分钟的删减，在爱奇艺平台上架后，又再遭到了约6分钟的删减。
+
+73《毒液：致命守护者》（2018）
+
+本片在中国大陆上映后，遭到了约4分钟的删减，在爱奇艺平台上架后，又再遭到了约4分钟的删减。
+
+74《剪刀手爱德华》（1990）
+
+本片在腾讯视频、爱奇艺平台上架后，遭到了约5分钟的删减。
+
+75《香水》（2006）
+
+本片在优酷平台上架后，遭到了约18分钟的删减。
+
+76《时空恋旅人》（2013）
+
+本片在爱奇艺平台上架后，遭到了约5分钟的删减；在腾讯视频平台上架后，遭到了约1分钟的删减。
+
+77《闻香识女人》（1992）
+
+本片在爱奇艺平台上架后，遭到了约7分钟的删减。
+
+78《加勒比海盗2：聚魂棺》（2006）
+
+本片在爱奇艺、优酷平台上架后，遭到了约7分钟的删减。
+
+79《加勒比海盗3：世界的尽头》（2007）
+
+本片在爱奇艺上架后，遭到了约27分钟的删减。
+
+80《美国甜心》（2016）
+
+本片在爱奇艺上架后，遭到了约12分钟的删减。
+
+作者本人了解到的最不容易被察觉的删减是中共国上映的《坂本龙一：终曲》，它精准地只删去了《Merry Christmas Mr.Lawrence》中同性亲吻脸颊的那一帧画面，相较之下《搏击俱乐部》的这个处理其实算是很粗糙。这两篇文章中只列举了视频网站上被阉割删减的有代表性的80部电影，没被列举出来的还有很多。并且这还没算上在中共国放映时被删减的电影，由于中共的审查无法在中共国上映或者遭到修改的电影，还有那些由于中共的审查根本无法开拍的电影。就像中共病毒大流行已经造成了全球至少500万人死亡，但这还不算三年大饥荒、十年文革的死亡人数，西藏、新疆等地的种族灭绝，由于计划生育死亡的胎儿以及河南的水灾造成的死亡人数。 不过即使是删减一帧画面都逃不过有识之士的眼睛，中共害了这么多人的性命它的命数也走到尽头了。
 
 * * *
 
-Date: 1/26/2022
-原视频标题: Fed Chair Jerome Powell Provides 2022 Monetary Policy Outlook
-美联储主席杰罗姆鲍威尔发表 2022 年货币政策展望
-原视频日期：1/26/2022
-原视频链接: [**https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html**](https://rumble.com/vtbypk-dr.-peter-mccullough-recaps-5-hour-covid-19-panel.html)
-任务编号：3609
-视频时间段 : 0:00-01:30
-中听校：洛杉矶盘古农场 -海潮
-翻译：洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 文新战
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

@@ -2,35 +2,67 @@
 ---
 
 
-## 原东证资管董事长王国斌成立个人系公募基金，且行且珍惜
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1931838/)
+## Pierre Kory 说我们的COVID政策把利润放在病人前面
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1931881/)
 
-撰稿：童媚
-![](https://assets.gnews.org/wp-content/uploads/2022/01/23-3.jpg)（图片来自网站）
-1月29日证监会官方网站发布《关于核准设立泉果基金管理有限公司的批复》，立刻引来多家媒体“众星捧月”。
+[https://gtv.org/video/id=61f509fbd90bdd2085a2127a](https://gtv.org/video/id=61f509fbd90bdd2085a2127a)
 
-为什么呢？因为这家个人系公司的发起股东为重磅级行业大佬——东方红资管原董事长王国斌、原总经理任莉等。
+Pierre Kory says our COVID policies are putting profits ahead of patients.
+Pierre Kory 说我们的COVID政策把利润优先排在病人前面
 
-王国斌作为资管行业的老人，一直是倍受关注的人物。在2014年中国基金报面向券商、保险、基金等机构投资者进行的最具影响力投资家调查中，王国斌位居三甲。
+Sorry, I have to do this, I feel like broken record.
+对不起，我必须这样做，我感觉像破纪录
 
-而也是因为他在东证资管的从业经历，使得公司名声大震、业绩非凡。
+But I’m listening to my colleagues (and) call out all the nullities, insanities, and absurdities.
+但我在听我的同事（并且）指出所有的无效、疯狂和荒谬
 
-1998年王国斌被东方证券作为核心人才引进，长期分管公司自营及资产管理业务，2005年起担任东方证券副总裁。他带领的团队长期投资业绩名列前茅。2007年曾被评为“上海十大杰出青年”。2010年，东方证券资产管理公司成立，王国斌出任董事长，2016年，王国斌离开东证资管，结束在东方证券18年的投资生涯。
+Ok these departures of our policies from what we know to be scientific truth.
+好吧，我们的政策偏离了我们所知的科学真理
 
-之后的王国斌一直比较低调，也将投资战线从原来的二级市场拉到一级市场，并淡出公众视野。为何王国斌选择在这个时间点重出江湖？背后一定有故事。
+Things like denial of natural immunity, we have to understand why the city are pointing finger to doing this wrong, that wrong, why are they doing this.
+诸如否认自然免疫力之类的事情，我们必须了解为什么这座城市会指责这个错误，那个错误，他们为什么要这样做
 
-中共的经济走到了即将崩塌的拐点，节前更是出现连续三天大跌的惨状。但与此同时，党媒喊话“A股要挺起脊梁”，之后就是多家公募基金拿出自有资金入市，以显示看好后期市场的“信心”。但中共国的宣传从来就不会是自发的，而且那么多家基金公司同一时间表态，更突显了中央的层层压力。看得懂国际局势的资本早已纷纷撤离，而此时一连串的大动作，只能显示中共已回天乏术，无力应对。
+There could be multiple reasons, the simplest and most easily understandable and approvable is every vaccine, every this, you know this novel pattern to high cost drugs is profits; they are putting profits ahead of patients.
+可能有多种原因，最简单，最容易理解和认可的是每一种疫苗，每一种，你知道这种高成本药物的新模式是利润，他们把利润优先排在病人之前
 
-但除此以外，我们值得关注的是继首家个人系公募基金公司——泓德基金2015年成立后，由专业人士发起设立的个人系公募基金公司逼近20家，有汇安、凯石、鹏扬、博道、东方阿尔法、合煦智远、睿远等。背后皆有实力雄厚的资方或者是能呼风唤雨的投资大佬直接参与。“泉果基金”也是如此，媒体宣传该类基金公司的最大优势就是发起人的行业地位与号召力，就像王国斌的个人光环足以吸引“韭菜们”的眼球，但在中共国，哪位业绩非凡的大佬背后没有”原罪“，这些最光鲜的荣耀也可能瞬间成为中共置你于死地的罪状。
+You know we can call attention to all of these policies. They are non-scientific,
+你知道我们可以提请注意所有这些政策，它们是非科学的
 
-看看马化腾、马云、张一鸣、雷军等，哪个能逃脱被“共同富裕”的宿命？这些自视甚高的资本市场老手，会跳出这个结局吗？可悲的是，已经沦为砧板上的鱼肉还不自知，还要带走更多老百姓的财富。
+they are failing and having scientific support.
+它们正在失败，并有科学支持我们的观点
 
-且行且珍惜。
+Yet they are been carrying out and being distributed across the country.
+然而，它们一直在执行并分布在全国各地
 
-新闻来源：[25万亿公募迎来重量级人物：王国斌携手任莉设立泉果基金获批！股权结构曝光\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/money/fund/jjyj/2022-01-30/doc-ikyakumy3425504.shtml)
+And Doctors and states and health departments are willingly accepting these without question, without critical thinking.
+医生、州和卫生部门都愿意毫无疑问地接受这些政策，没有批判性思考
 
-发稿：MG5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+And that’s what I want these to be clear and that we’re calling attention to them, this is corruption.
+这就是我希望这些清楚，我们要引起人们注意的地方，这就是腐败
+
+Plain and simple, it’s corruption.
+清楚而简单，这就是腐败。
+
+* * *
+
+Date:01/27/2022
+原视频标题: Pierre Kory says our COVID policies are putting profits ahead of patients.
+Pierre Kory 说我们的COVID政策把利润放在病人前面
+原视频日期：2022/01/24
+原视频链接: [**https://twitter.com/senronjohnson/status/1485723592063131648?s=24**](https://twitter.com/senronjohnson/status/1485723592063131648?s=24)
+任务编号：KE370（3589）
+视频时间段 : 0:00-1:05
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

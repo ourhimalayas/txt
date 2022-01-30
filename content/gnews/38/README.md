@@ -2,31 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月29日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1931378/)
+## 【秘翻在线】英国考虑在北约进行大规模部署
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1931479/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
+**撰稿：Grace**
 
-作者：香草山翻译部
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-29-at-10.27.55-PM-2.jpeg)图片来源：newshub
+据《福克斯新闻》 1月29日报道，英国政府周六表示，作为加强欧洲边界计划的一部分，英国正在考虑在北约进行大规模部署，以应对俄罗斯在乌克兰的边界集结军队的问题。
 
+英国表示，俄罗斯对乌克兰的任何入侵都将受到迅速的制裁，对双方都是毁灭性的打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-7.png)
-校对：Stay文苑
+据报道，英国首相鲍里斯·约翰逊 (Boris Johnson)  将于下周访问乌克兰，还将会与俄罗斯总统弗拉基米尔·普京(Vladimir Putin) 通电话。
 
-编辑：Stay文苑
+约翰逊的办公室说，约翰逊正在考虑向北欧（Nordics）和波罗的海（Baltics）地区的北约防务公约成员提出最大可能的提议，该提议将可能会使部队人数增加一倍，并向爱沙尼亚（Estonia）发送防御性武器。
 
-发稿：Stay文苑
+约翰逊在一份声明中表示，面对俄罗斯的敌意，英国将始终与北约盟友站在一起。
 
-视频参看：[1.29  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f5e97381ce0a3ac2a16b18)
+他说：“我已经命令我们的武装部队准备下周在欧洲各地进行部署，确保我们能够支持我们的北约盟友。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-24.jpg)
+据报道，英国的官员们将于下周在布鲁塞尔（Brussels）敲定提议的细节，部长们将在周一讨论军事选项。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+约翰逊办公室还表示，约翰逊将在下月初第二次出访，会见北约的同行，以加强外交努力。
+
+报道称，为了改善关系和缓和紧张局势，英国的外交部长和国防部长也都将在未来几天内前往莫斯科与他们的俄罗斯同行进行会谈。
+
+**新闻来源：****[Britain considering major NATO deployment amid Ukraine crisis](https://www.foxnews.com/world/britain-considering-major-nato-deployment-amid-ukraine-crisis)**
 
  
 
