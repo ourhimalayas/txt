@@ -2,12 +2,28 @@
 ---
 
 
-## 加州正试图通过美国最严格的疫苗法来推动更多学生接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1933880/)
+## GTV新闻访谈简报|2022年1月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1933902/)
 
-01/26/2022 汤姆·麦格拉思：加利福尼亚州的一位左翼议员正试图通过美国最严格的疫苗法。对于选择不接受中共病毒疫苗的公立学校学生，该立法将大大限制其个人信仰豁免。立法的预期效果是通过法律手段消除个人选择，从而推动更多的学生注射疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-30.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2022.01.30早GTV新闻访谈](https://gtv.org/video/id=61f6927e96ba5d73e0bef09f)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-26.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

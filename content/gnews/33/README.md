@@ -2,34 +2,32 @@
 ---
 
 
-## 港大遮盖8964最后一件纪念作品
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1933701/)
+## 中日财经爆┃融创多个区域商票逾期 交易者异常紧张
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933703/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒1月29日报道，在中共持续打压香港民主自由之际，港共政府授意香港大学，遮盖校园内一幅巨型六四标语牌。
+撰稿：东京樱花团丨喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-3-1.png)
+[*图片来源*](https://www.sohu.com/a/519982169_115571)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide14-2.jpeg)
+据财经网1月30日消息，自2021年12月下旬起，融创下属项目公司开始出现无法兑付到期商票的现象。
 
-记者当天看到，建筑工人正以金属围板，在港大校园内太古桥上，将写有“冷血屠城烈士英魂不朽，誓歼豺狼民主星火不灭”的，巨型六四标语的行人道封住。这行标语是港大学生，在中共镇压六四民主运动后不久，铺着黑布用白色油漆写上的。30多年来，它一直伫立在校园，提醒民众不要忘记六四。
+《财经》记者从持票人处得到多张票面信息，这些商票自2021年12月28日至2022年1月21日陆续到期，票据状态显示为“提示付款已拒付”，拒付理由为“承兑人账户余额不足”。这些票面金额从10万元到80万元不等，出票公司来自三亚、成都、天津、大连等多个城市。据天眼查显示，开票公司均为融创多层控股的项目公司。
 
-据悉，上个月，香港大学已移除校园内著名的“国殇之柱”雕塑。香港先前是中共国唯一一个，被允许大规模纪念8964天安门民主运动的地方。自中共当局在香港强行实施国安法以后，此类活动被迫转至地下。这个往日宁静祥和的自由之港，现已成为一片肃杀窒息的悲惨世界。
+融创的地产业务在全国分为北京、华北、上海、东南、华南、华中、西南七大区域。据悉，目前上海和东南两个销售状况最好的区域商票兑付正常，其余区域均有到期不兑现象。一位持有大量融创商票的保理公司人士告诉《财经》记者，融创目前的逾期规模尚可控，预计大多数机构投资者会同意展期，为融创宽限些时间。融创的真正考验在春节之后，2021年融创大量商票在2月开出，今年这些商票也将在2月集中到期。
 
-参考链接：[移除國殤之柱後 港大遮蓋巨型六四標語](https://cn.rti.org.tw/news/view/id/2123472)
+一位接近融创高层的知情人估算，2022年春节结束时，融创会有20亿元左右的到期票据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+此次融创商票风波中，已有不少商票逾期超过10天。因此，交易者还是异常紧张。来自成都和山东的持票供应商认为，融创商票已经失去了流动性。如今他们们想把未到期商票折价出手，但买家难寻。
 
-总编：Ivy001 
-编辑：静言
-校正/发稿：谐趣园
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**融创商票出现逾期，展期谈判尚在进行**](https://www.sohu.com/a/519982169_115571)
+
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
