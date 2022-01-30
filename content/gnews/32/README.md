@@ -2,13 +2,29 @@
 ---
 
 
-## 2022年1月29日《樱花简报》：日本新增中共病毒确诊病例首超8万 连续4天创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1930763/)
+## 有声|美台外交新突破 两国副总统首次同场互动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1930948/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/20220130-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/二维码.jpg)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月28日，台湾副总统赖清德在参加洪都拉斯总统就职典礼时与美国副总统贺锦丽“巧遇”，二人简单互动寒暄，约进行20至30秒交谈。据了解，赖清德就美国对台湾的支持向贺锦丽表示感谢。贺锦丽在台上致词时，也特别向赖清德致意。
+
+有分析人士指出，正值中美关系敏感之际，赖清德与贺锦丽在洪都拉斯总统就职典礼上寒暄，是台美副元首第一次在国际场合自然互动，被各界视为双方外交的一大突破。
+
+文字版原文：[美台外交新突破 两国副总统首次同场互动](https://gnews.org/zh-hans/1927861/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

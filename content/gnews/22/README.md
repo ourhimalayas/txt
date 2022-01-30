@@ -2,28 +2,32 @@
 ---
 
 
-## 中共将对银行境外贷款进行严格管制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1931352/)
+## GTV新闻访谈简报|2022年1月29日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1931378/)
 
-撰稿：东京樱花团丨深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2457.png)
-1月29日，中国人民银行、国家外汇管理局发布关于银行业金融机构境外贷款业务有关事宜的通知。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-通知提到，境内银行应按照审慎经营原则，综合考虑资产负债情况和币种结构等各方面因素，统筹境内、境外业务发展，在境外贷款余额上限内按规定自主开展境外贷款业务，鼓励对有实际需求的境外企业优先采用人民币贷款。
+作者：香草山翻译部
 
-境内银行应做好境外贷款业务规划和管理，确保任一时点贷款余额不超过上限。若因银行一级资本净额（营运资金）、境外贷款杠杆率或宏观审慎调节参数调整导致境外贷款余额超过上限，银行应暂停办理新的境外贷款业务，直至境外贷款余额调整至上限之内。
 
-中国人民银行、国家外汇管理局对27家银行境外贷款业务实行统一管理。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-7.png)
+校对：Stay文苑
 
-如今，中共央行和外管局将严格管理通过银行进行境外贷款， 以防止通过内保外贷将资金转移出境，更害怕将资金投入到喜币、喜联储！
+编辑：Stay文苑
 
-随着美国政府授权撤离其驻北京大使馆，标志着灭共的第三道大门已正式打开！此时此刻，世界已经炸锅了，想当年美国撤离伊拉克大使馆后，马上就是开战！美国长期不派大使，授权撤离大使馆，中共内部所有有权有脑子的都知道，大势已去，共产党彻底要完了！另外，随着喜交所Hpay功能即将上线，中共资金将会被迅速抽干，中共邪恶政权将瞬间土崩瓦解！
+发稿：Stay文苑
 
-信息来源：[**央行、外汇局：境内银行发放的境外贷款不得用于证券投资**](https://www.cs.com.cn/xwzx/hg/202201/t20220129_6239845.html)
+视频参看：[1.29  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f5e97381ce0a3ac2a16b18)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-24.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

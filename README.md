@@ -15,113 +15,113 @@
 
 ---
 
-### [中共继用病毒把家变成监狱地狱后又把民警变成狱警](/content/gnews/1/README.md)
+### [2022年1月29日郭先生盖特 — 视频1「3分04秒」](/content/gnews/1/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中日财经爆┃软银集团副总裁兼首席运营官辞职](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [你可知道疫苗灾难到底有多深重有多深远？](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [不送礼不是一名合格的共产党员](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [为何预测疫苗灾难从5月开始](/content/gnews/2/README.md)
+### [中共继用病毒把家变成监狱地狱后又把民警变成狱警](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [为何预测疫苗灾难从5月开始](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大卡车司机大革命，暗黑势力崩塌的前奏](/content/gnews/3/README.md)
+### [加拿大卡车司机大革命，暗黑势力崩塌的前奏](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大陆的农民工权益何时能得到有效的保障](/content/gnews/4/README.md)
+### [大陆的农民工权益何时能得到有效的保障](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [中共制造病毒与疫苗制造灾难，强推独裁制度奴役全世界](/content/gnews/5/README.md)
+### [中共制造病毒与疫苗制造灾难，强推独裁制度奴役全世界](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵大直播摘要图片-“处男英雄”（2022年1月27日）](/content/gnews/6/README.md)
+### [文贵大直播摘要图片-“处男英雄”（2022年1月27日）](/content/gnews/10/README.md)
  ` 波士顿五月花农场`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十一）](/content/gnews/7/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（二十一）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际金融机构要开始研究对中共高官金融制裁](/content/gnews/8/README.md)
+### [国际金融机构要开始研究对中共高官金融制裁](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [从美吊销中国联通在美运营权新闻个案看中共洗脑套路](/content/gnews/9/README.md)
+### [从美吊销中国联通在美运营权新闻个案看中共洗脑套路](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国防部医疗数据显示疫苗副作用](/content/gnews/10/README.md)
+### [国防部医疗数据显示疫苗副作用](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [关于喜币（五）](/content/gnews/11/README.md)
+### [关于喜币（五）](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [世界警察自由灯塔美国带头与中共决裂](/content/gnews/12/README.md)
+### [世界警察自由灯塔美国带头与中共决裂](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗副作用导致美军F35战机坠毁](/content/gnews/13/README.md)
+### [疫苗副作用导致美军F35战机坠毁](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十二）](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论](/content/gnews/15/README.md)
+### [Peter McCullough 博士回顾 5 小时的 COVID-19 小组讨论](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【秘翻在线】英国考虑在北约进行大规模部署](/content/gnews/16/README.md)
+### [【秘翻在线】英国考虑在北约进行大规模部署](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [关于喜币（四）](/content/gnews/17/README.md)
+### [关于喜币（四）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [“严肃”媒体将受到大审判](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [搞死美国之余中共又咄咄逼人地置英国于死地](/content/gnews/19/README.md)
+### [搞死美国之余中共又咄咄逼人地置英国于死地](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2022年1月29日晚](/content/gnews/20/README.md)
+### [GTV新闻访谈简报|2022年1月29日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [麦卡洛博士呼吁重视自然免疫，停止大规模接种疫苗](/content/gnews/21/README.md)
+### [麦卡洛博士呼吁重视自然免疫，停止大规模接种疫苗](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共将对银行境外贷款进行严格管制](/content/gnews/22/README.md)
+### [中共将对银行境外贷款进行严格管制](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王岐山的“大管家”董宏敛财超4.63亿被判死缓](/content/gnews/23/README.md)
+### [王岐山的“大管家”董宏敛财超4.63亿被判死缓](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [埃隆马斯克对购买社交媒体持开放态度](/content/gnews/24/README.md)
+### [埃隆马斯克对购买社交媒体持开放态度](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|谷歌因欺骗性位置跟踪与监控被美国多个州起诉](/content/gnews/25/README.md)
+### [有声|谷歌因欺骗性位置跟踪与监控被美国多个州起诉](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗](/content/gnews/26/README.md)
+### [瑞典宣布将不会推荐5至11岁的儿童接种中共病毒疫苗](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|外交部：赖清德过境，循例与美国行政部门有所互动](/content/gnews/27/README.md)
+### [有声|外交部：赖清德过境，循例与美国行政部门有所互动](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [从924空战浅谈空对空导弹 （上）](/content/gnews/28/README.md)
+### [从924空战浅谈空对空导弹 （上）](/content/gnews/30/README.md)
  ` 军情启示录`
 
-### [有声|中共暗地里要求返乡民众必须做核酸检测](/content/gnews/29/README.md)
+### [有声|中共暗地里要求返乡民众必须做核酸检测](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|美台外交新突破 两国副总统首次同场互动](/content/gnews/30/README.md)
+### [有声|美台外交新突破 两国副总统首次同场互动](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [秘翻在线：北京冬季奥运开幕前6名入境者相继感染 警戒升级](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年1月29日《樱花简报》：日本新增中共病毒确诊病例首超8万 连续4天创新高](/content/gnews/32/README.md)
+### [2022年1月29日《樱花简报》：日本新增中共病毒确诊病例首超8万 连续4天创新高](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|帮助中共研发病毒的生态健康联盟又获政府巨额经费](/content/gnews/33/README.md)
+### [有声|帮助中共研发病毒的生态健康联盟又获政府巨额经费](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [有声|美名记新书揭露硅谷寡头与中共勾兑牟利](/content/gnews/34/README.md)
+### [有声|美名记新书揭露硅谷寡头与中共勾兑牟利](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [加拿大北京冬奥代表团中5人确诊](/content/gnews/35/README.md)
+### [加拿大北京冬奥代表团中5人确诊](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
-
-### [全球疫情更新（两则“疫苗”新闻中的谎言和掩盖）](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
