@@ -2,37 +2,33 @@
 ---
 
 
-## 拜登与中共签订中共病毒测试剂合同引发强烈不满
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932646/)
+## 诺姆法案将允许雇员就COVID疫苗授权提起诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932785/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国媒体1月28日报道，拜登政府决定将超过10亿美元的资金授予一家生产中共病毒检测试剂盒的中共公司，引起了国会山共和党人的愤怒。
+编译：wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/8-33.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image0-1-11.jpg)图片来源：justthenews.com
 
-众议员米歇尔·瓦尔茨说，这是“向帮助救火的纵火犯支付费用”，美国不能依赖中共这样的敌对国家，在与任何中共公司打交道时，所有资金都不可避免地进入中共的腰包，这会极大损害美国的国家安全。
+南达科他州（South Dakota）州长克莉丝蒂·诺姆（Kristi Noem）正在提出一项法案，允许雇员在被拒绝豁免接种中共病毒（COVID19）疫苗时起诉雇主。
 
-另有一些议员认为，中共是病毒的发源地，在新冠病毒这件事上没有一丝一毫的透明度。中共应对向世界释放中共病毒负责。拜登政府应该利用和协助美国供应商，而不是从中共那里购买关键物资，这损害了美国的就业机会，是对美国企业的又一次侮辱。
+诺姆州长周四（27）公布的立法将要求雇主因医疗或宗教原因给予疫苗豁免；还将要求雇主承认自然免疫是一种豁免。雇员必须在申请豁免的180天内提供合格实验室的阳性血清抗体测试证明。根据诺姆法案（Noem Bill），雇主可以要求进行另一次测试以延长疫苗豁免。
 
-参考链接：
+诺姆在一份声明中说：“接种COVID19疫苗应该是一种选择，我们应该拒绝试图在美国其他地区看到将我们分成两类的努力：接种疫苗者和未接种疫苗者（承认未接种疫苗的美国人仍然是美国人）。”
 
-- [‘Paying The Arsonist’: Biden’s COVID Test Contract With China Draws Ire on Capitol Hill](https://freebeacon.com/biden-administration/bidens-covid-test-contract-with-china-draws-ire-on-capitol-hill/)
+诺姆法案将豁免国民警卫队的疫苗授权。五角大楼正在要求所有国民警卫队成员接种COVID-19疫苗，而因违反本法而受到伤害的雇员可以申请禁令和声明性救济，不需要担保，以限制其雇主违反本法。
 
+诺姆去年签署了一项行政命令来限制拜登总统的全面疫苗授权的影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+**新闻来源：**[justthenews.com] [Noem bill would allow employees to sue over COVID vaccination mandates](https://justthenews.com/nation/states/center-square/noem-bill-would-allow-employees-sue-over-covid-vaccination-requirements) | 发布时间：2022年01月27日
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

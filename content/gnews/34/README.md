@@ -2,37 +2,57 @@
 ---
 
 
-## 因疫情青少年心理创伤已达国家紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932645/)
+## 加拿大自由车队长驱直入 小土豆和家人仓皇而逃
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1932767/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-1月26日，戈尔迪·霍恩撰写的专栏文章中表述，中共病毒时代以更真实、更具体的方式改变了孩子们的生活方式。社会疏远、人际隔离、学校关闭。
+**翻译：Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/9-30.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip04抗议车队抵达渥太华参加大型示威活动.png)抗议车队抵达渥太华参加大型示威活动
 
-霍恩研究发现，连续两年的中共病毒，青少年面临的“生存恐惧和创伤”已经超越911，接近美苏冷战时期而达到国家紧急状态，必须予以高度关注。其中四分之一的青少年有抑郁症症状，五分之一的有焦虑症迹象， 2020年因疑似自杀而就诊的女孩人数比2019年高出50% 。
+据加拿大广播公司报道，加拿大总理贾斯汀·特鲁多和他的家人已经离开了他们在渥太华的家，前往一个秘密地点，因为安全问题，周六成千上万的卡车司机车队涌入加拿大首都，抗议疫苗强制令。
 
-霍恩忧心忡忡地指出，NIH、美国外科医生学会、儿科学会一致认为青少年心理健康状况已达国家紧急情况的水平。青少年一代从中共病毒中幸存下来，却带着残缺不堪的心理进入成年，将会是国家的灾难。
+总理办公室表示，出于安全考虑，它不会对特鲁多先生的位置发表评论。
 
-参考链接：
+加拿大议会的军士长警告说，示威者可能会出现在官员的家门口，这一点特鲁多先生很清楚。
 
-- [Goldie Hawn on COVID Pandemic: ‘We Have Failed Our Children’](https://www.newsmax.com/thewire/goldie-hawn-covid-pandemic-mental-health/2022/01/28/id/1054498/)
+2020年，一名携带枪支的加拿大武装部队成员将其车辆撞向特鲁多夫妇居住的里多厅的大门，希望能接触到总理。
+
+特鲁多先生谴责该国日益增长的反疫苗强制令运动，认为它违背了公共卫生和加拿大的良好价值观。
+
+特鲁多先生说：“正在前往渥太华的少数边缘人，他们所表达的不可接受的观点并不代表加拿大人的观点，他们知道遵循科学并站出来保护彼此是作为一个国家继续确保我们的自由、我们的权利、我们的价值观的最佳途径。”
+
+随着周六抗议活动的开始，议会保护局估计本周末可能有多达上万人参加活动，渥太华警察局已经收到来自多伦多、伦敦、约克和达勒姆地区的增援，加上安大略省警察。
+
+一些活动的组织者已经呼吁支持者避免暴力。
+
+“如果有威胁或暴力行为，我们就无法实现我们的目标，”BJ·迪切尔告诉加拿大广播公司。“这个运动是一个和平的抗议，我们不容忍任何暴力行为。”
+
+到目前为止，根据渥太华警方的说法，“没有报告任何事件”。
+
+然而，警方对该运动中的一些暴力言论表示担忧。
+
+在社交媒体上，一些与车队抗议者关系不明的人呼吁渥太华的示威活动演变成对国会的攻击，就像1月6日美国国会大厦的行动一样。
+
+周五，渥太华警察局局长彼得·斯洛利警告说，“独狼”分子将利用抗议活动制造破坏。
+
+他周五说：“我们不知道所有可能发生的平行示威活动，和/或可能出于各种原因混入其中的独狼分子，”他称抗议活动“独特、流动、有风险和意义重大”。
+
+周六，有人看到一些抗议者举着爱国者旗帜，与1837年的下加拿大反抗运动联系在一起，当时魁北克的法语区反抗英国统治。
+
+卡车司机连日来组成车队，抗议新颁布的要求前往加拿大和美国之间的司机提供疫苗接种证明的规定，这一运动已经发展到包括对中共病毒大流行限制措施的全面抗议。
+
+**新闻来源**：[www.independent.co.uk][Justin Trudeau and family move to secret location as Canada trucker protests spark security fears, report says](https://www.independent.co.uk/news/world/americas/justin-trudeau-trucker-convoy-protest-canada-b2003458.html)
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/西喜.jpeg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：Irene木木
-编辑：文特
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

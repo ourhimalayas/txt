@@ -2,26 +2,31 @@
 ---
 
 
-## 关于上合组织地缘政治利益关系(二)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933009/)
+## “官方”的新冠病毒死亡总人数为4636人
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1933082/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/01/关于上合组织地缘政治利益关系（二）-.jpg)
-这几个吉尔吉斯坦啊，这几个大概11个国家，几乎都是江家的势力。你看孟建柱在上来以后，几乎每年2到3次访问，一定是从中亚开始俄罗斯、中亚，然后到土耳其再到中东。所以这次你看看哈萨克斯坦事情出来，现在土耳其出来了。俄罗斯出来了，白俄罗斯出来了，吉尔吉斯坦也表态了，上海组织全部派兵了，是你们一定记住，大家就是咱们的老百姓都变成猪了，只知道低头吃猪食，你根本不知道猪圈以外发生了什么事儿，就你旁边那菜园子还有你旁边这山脉，已经被这些王八蛋全给
-卖光了，就你再吃下去就啥都没了，你要猪食都没了。你去想一想谁控制着和田玉的市场？70%，80%都这帮孙子，谁在搞昆仑玉，共产党搞昆仑玉，它想开多少开多少，昆仑玉和田玉市场的控制，然后呢它信不信神，爆料革命告诉你了，把盘古龙头变鸟头它绝对比谁都信神！它为什么用昆仑玉？它为什么它要用和田玉？它咋不用所谓的共产党自己玉呢？这里边都是钱都是利益，都是信，所以共产党绝对是比谁的信神！然后这无产阶级，无产阶级是没有房子没有地的，(它)把地主都推翻
-了，你觉得世界还有比共产党再有钱的吗？
+作者：WS
 
-2022年1月12日大直播
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-87.png)图片来源：2022年1月27日Worldometer官方网站截图/Conner
+《伯恩布鲁克杂志》报道：自2020年4月以来，中共国只记录了四起死亡事件，这些数字“低得可疑”。
 
-发布： 星谕
+2022年1月25日，英国《伯恩布鲁克》杂志审视了 “大流行 ”的谎言和统计数据。作者卢克-佩里（Luke Perry）写道：“自2020年4月以来，中华人民共和国只记录了4例新冠病毒的死亡病例，这样’官方’死亡总数达到4636例” 。他的说法的依据是Worldometer上中国的统计数据。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他指出，鉴于人口比中共国少几亿的国家都记录了高得多的死亡人数。即便是这些国家的统计数字被夸大了，（中共国的）最终统计数字也是低得可疑。
 
+佩里继续说，中共国甚至没有尝试发布可信的数字或解释为什么它的死亡曲线拉平得那么快。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-304.png)图片来源：2022年1月27日Worldometer官方网站截图/Conner
+他说，中共国国家主席习近平正在推行的零感染政策非常无情，一旦发现疫情，居民便被关在自己家里，不准外出寻找食物，导致许多中共国公民处于饥饿的边缘。他说，他确信营养不良已经危及到四条以上的生命。
+
+“当然，*4636*这个数字是一个谎言，只有中共高层才会知道真相，除非他们中一些人叛变。那么，我为什么要提请你注意这个问题呢？因为当实验室泄漏理论逐月变得更加可信和合法的时候，我们似乎无法将二者结合起来。”
+
+中共国的保密和 “铁腕 ”并不新鲜，但关键问题仍然是：“他们还在试图隐藏什么？”
+
+校对：Danny，貓聲/ 图像编辑：Conner54/发布：Luckycky
+
+原文链接：[https://corona-transition.org/china-offizielle-gesamtzahl-der-covid-toten-belauft-sich-auf-4636-personen](https://corona-transition.org/china-offizielle-gesamtzahl-der-covid-toten-belauft-sich-auf-4636-personen)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

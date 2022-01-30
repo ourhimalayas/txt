@@ -2,37 +2,25 @@
 ---
 
 
-## 英国会外委会预计2月访问台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932640/)
+## 共产主义和资本主义之间的较量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932759/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月28日，英国工党国会议员布莱恩特向媒体表示，外交委员会预计在2周后访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-18.png)
-据悉，英国近来增高了对台湾的关注度，外相特拉斯、国防大臣华勒斯及秘密情报局局长摩尔等官员都曾在公开场合呼吁各主要国家应重视台海安全及和平稳定的重要性。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产主义和资本主义之间的较量.001.jpeg)
+教基本上可以说是在已经被消灭了，它不是信仰。
+然后所谓的民主和法治制度，诞生了一个共产主义和资本主义，它们之间永远是对立的。共产主义它就是家天下，家族控制的独裁的天下，还是以个人投票的。但是各国都有各国的利益。接着诞生了后来所谓的冷战，还有东方和西方共产主义，资本主义阵营。然后呢？俄罗斯也不是纯民主国家，那么所有的中亚还有东欧属于后民主后独裁政府。那么这些地方的法制基本上是被利用的，只是共产党都没有。所谓的北约欧洲，欧洲东扩，还有亚洲。亚洲谁是老大？日本是美国代言人，中国是谁的代言人？围绕着这些。但是宗教已经是过去的话了，但现在打的是什么呢？地球之外还有宇宙无限大地球是一粒沙，还有太阳系星球系高科技互联网。这个时候已经不是地域战争，也不是海洋文明和大陆文明的战争。这个时候几乎是人类到了一个真正的资本主义和共产主义，对未来的太空的一场战斗。南极和北极，还有稀有资源，特别是全人类的一个消费市场。在这个问题上美国已经非常清楚。我就说过20年了美国从来没有停过，想把这几个独裁国家给消灭掉。
 
-英国首相约翰逊近日在回答议员质询时也表示，中共军机侵扰台湾，无助于区域和平的稳定。
+2022年1月12日大直播
 
-据了解，越来越多跨党派国会议员关心台英之间关系的发展，外委会主席图根哈特在去年底一场有关台英关系的听证会中表示，期待很快就能访问台湾，此访问行程将凸显本委员会及国会对英国与台湾关系的重视。
+发布： 星谕
 
-参考链接：
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-- [英國對台灣關注提升 國會外委會可望2月訪台](https://www.cna.com.tw/news/aopl/202201290010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
-
-总编：文特
-编辑：文特
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
