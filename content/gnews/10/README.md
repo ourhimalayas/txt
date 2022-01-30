@@ -2,8 +2,8 @@
 ---
 
 
-## 为什么共济会招募七哥
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930934/)
+## 人类社会没有好的婚姻，教育和信仰就没有好的社会
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931107/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党百年杀人六亿
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1930999/)
+## 共产党脱钩就是脱控
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1931196/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
