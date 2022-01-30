@@ -2,32 +2,39 @@
 ---
 
 
-## 澳洲加入加拿大反强制新冠疫苗自由车队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934101/)
+## 有声|英国会外委会预计2月访问台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934446/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日据悉，澳大利亚卡车司机们正在计划一场自由之战，来反抗政府对中共病毒疫苗的强制，以及政府在疫情期间过于严酷的防疫政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.55.png)
-正如加拿大自由车队即将驶向首都渥太华一样，澳大利亚自由车队将会前往首都堪培拉。在前往首都之前，卡车车队计划在维多利亚州、新南威尔士州、南澳大利亚州和西澳大利亚州等城市会面，最后于周一上午10点抵达堪培拉议会大厦，抗议政府的强制疫苗政策。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+当地时间1月28日，英国工党国会议员布莱恩特向媒体表示，外交委员会预计在2周后访问台湾。
 
-据悉参与此次游行活动的还包括，那些因政府的疫苗强制，和中共病毒隔离政策而被迫关店的小企业主，他们打算驾驶摩托车和汽车加入自由车队。
+据悉，英国近来增高了对台湾的关注度，外相特拉斯、国防大臣华勒斯及秘密情报局局长摩尔等官员都曾在公开场合呼吁各主要国家应重视台海安全及和平稳定的重要性。
 
-参考链接：[Australian truck drivers join the convoy for freedom](https://www.rebelnews.com/australian_truck_drivers_join_the_convoy_for_freedom)
+英国首相约翰逊近日在回答议员质询时也表示，中共军机侵扰台湾，无助于区域和平的稳定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+原文链接：[英国会外委会预计2月访问台湾](https://gnews.org/zh-hans/1932640/)
 
-总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

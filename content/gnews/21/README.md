@@ -2,12 +2,26 @@
 ---
 
 
-## 新冠疫苗使人患艾滋病，无论如何不能打这种死亡毒针
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1933907/)
+## 香草山翻译部周刊|2022年1月30日第33期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1934050/)
 
-01/24/2022 泽连科医生：这些疫苗会导致艾滋病，损害你的先天免疫系统，损害你的T 细胞，损害你的自然杀伤细胞，导致可怕的副作用，甚至死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CN33-1.png)
+文章仅代表作者本人观点，与Gnews无关
+
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-24.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

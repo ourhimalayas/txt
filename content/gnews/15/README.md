@@ -2,46 +2,32 @@
 ---
 
 
-## 20个所谓“中共特色”
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1934039/)
+## 澳洲加入加拿大反强制新冠疫苗自由车队
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934101/)
 
-作者：香草山健身部-新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-公众号近来越来越难看到有价值的文章和视频了，敏感到几乎没有人敢发出声音来，应该说是没有人被容许发出声音来，因为所有些微不合党意的诗词、文章、视频，发出直接就消失在茫茫网海里。今天看到网友发的这20个“全世界只有中国”，觉得有必要搬过来，让全世界人民看看，什么才是中国共产党所说的现代中国的特色，这个外来的幽灵带来的中国特色，把中华传统美德的文化消失殆尽。中国共产党是输出罪恶和灾难的非法政党，中国共产党不代表中国人，中共是侵害中国人民心灵、身体、生命的罪魁祸首。总结出来的20个特色精确的述说了14亿中国人民被奴役的罪证！
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月28日据悉，澳大利亚卡车司机们正在计划一场自由之战，来反抗政府对中共病毒疫苗的强制，以及政府在疫情期间过于严酷的防疫政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.55.png)
+正如加拿大自由车队即将驶向首都渥太华一样，澳大利亚自由车队将会前往首都堪培拉。在前往首都之前，卡车车队计划在维多利亚州、新南威尔士州、南澳大利亚州和西澳大利亚州等城市会面，最后于周一上午10点抵达堪培拉议会大厦，抗议政府的强制疫苗政策。
 
-一、全世界只有中国分出城乡二元户籍；
-二、全世界只有中国分出体制内和体制外；
-三、全世界只有中国人没有一寸属于自己的土地；
-四、全世界只有中国人生前死后的居住地是租来的；
-五、全世界只有中国生孩子不由己，超生还要交罚款；
-六、全世界只有中国先有强制下岗，然后又有强征、强拆；
-七、全世界只有中国有官员享有食品特供；
-八、全世界只有中国有退休以及医疗双轨；
-九、全世界只有中国的所有资源都属于官家所有；
-十、全世界只有中国的政府有信访办；
-十一、全世界只有中国有一个参政议政党而没有一个反对党；
-十二、全世界只有中国取消罢工；
-十三、全世界只有中国实行菜刀实名；
-十四、全世界只有中国有专职城管；
-十五、全世界只有中国游行示威得不到政府的批准；
-十六、全世界只有中国的互联网上屏蔽敏感词；
-十七、全世界只有中国的高官出行有交通管制和警车开道；
-十八、全世界只有中国股市国外低价高分红，国内高价不分红；
-十九、全世界只有中国的“议会”裏有外国籍议员；
-二十、全世界只有中国的钱财宁赠外邦也绝不予家奴。
+据悉参与此次游行活动的还包括，那些因政府的疫苗强制，和中共病毒隔离政策而被迫关店的小企业主，他们打算驾驶摩托车和汽车加入自由车队。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/01/M1-1.jpeg)
+参考链接：[Australian truck drivers join the convoy for freedom](https://www.rebelnews.com/australian_truck_drivers_join_the_convoy_for_freedom)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

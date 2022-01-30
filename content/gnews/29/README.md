@@ -2,25 +2,28 @@
 ---
 
 
-## 中日财经爆┃大发疫苗血财之后，智飞生物向员工派股
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933737/)
+## GTV新闻访谈简报|2022年1月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1933902/)
 
-撰稿：东京樱花团丨喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-5.png)
-[*图片来源*](https://med.sina.com/article_detail_100_1_65413.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-1月28日晚间，智飞生物(300122)发布公告，在当日召开的董事会上，审议并通过了《共同富裕之员工持股计划草案(2022)》，此次计划筹集资金总额不超过16亿元，计划份额合计不超过16亿份，每份额金额为1元。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-30.png)
+文章仅代表作者本人观点，与Gnews无关
 
-此次智飞生物员工持股计划规定，参加对象总人数不超过2000人。其中，参加其中参加员工持股计划的董、监、高人员共计14人，合计认购份额不超过5.42亿份，占员工持股计划总份额的比例不超过33.88%；其他员工合计认购份额不超过10.58亿份，占员工持股计划总份额的比例不超过66.13%；员工持股计划的参加对象在认购计划份额后即成为计划的份额持有人，资金来源为其合法薪酬、自筹资金和法律、行政法规允许的其他方式。
+视频参看：[2022.01.30早GTV新闻访谈](https://gtv.org/video/id=61f6927e96ba5d73e0bef09f)
 
-草案指出，员工持股计划的存续期为48个月，自[股东](http://data.eastmoney.com/gdfx/)大会审议通过员工持股计划并且员工持股计划认购之日起计算，存续期满可展期；员工持股计划所涉及的标的股票锁定期届满，且员工持股计划资产均为货币资金时，经管理委员会同意，员工持股计划可提前终止；员工持股计划的锁定期为12个月，自智飞生物公告最后一笔标的股票过户时起算。1月24日晚间，智飞生物已发布公告，预计2021年净利润99亿元~105.6亿元，同比增长200%~220%。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-26.jpg)
 
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

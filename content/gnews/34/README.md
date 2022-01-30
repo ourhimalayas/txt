@@ -2,19 +2,25 @@
 ---
 
 
-## 从我是音雄看GTV的音乐发展
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1933719/)
+## 中日财经爆┃大发疫苗血财之后，智飞生物向员工派股
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933737/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团丨喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-5.png)
+[*图片来源*](https://med.sina.com/article_detail_100_1_65413.html)
 
-*发布：*Frank2021
+1月28日晚间，智飞生物(300122)发布公告，在当日召开的董事会上，审议并通过了《共同富裕之员工持股计划草案(2022)》，此次计划筹集资金总额不超过16亿元，计划份额合计不超过16亿份，每份额金额为1元。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+此次智飞生物员工持股计划规定，参加对象总人数不超过2000人。其中，参加其中参加员工持股计划的董、监、高人员共计14人，合计认购份额不超过5.42亿份，占员工持股计划总份额的比例不超过33.88%；其他员工合计认购份额不超过10.58亿份，占员工持股计划总份额的比例不超过66.13%；员工持股计划的参加对象在认购计划份额后即成为计划的份额持有人，资金来源为其合法薪酬、自筹资金和法律、行政法规允许的其他方式。
+
+草案指出，员工持股计划的存续期为48个月，自[股东](http://data.eastmoney.com/gdfx/)大会审议通过员工持股计划并且员工持股计划认购之日起计算，存续期满可展期；员工持股计划所涉及的标的股票锁定期届满，且员工持股计划资产均为货币资金时，经管理委员会同意，员工持股计划可提前终止；员工持股计划的锁定期为12个月，自智飞生物公告最后一笔标的股票过户时起算。1月24日晚间，智飞生物已发布公告，预计2021年净利润99亿元~105.6亿元，同比增长200%~220%。
+
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+
 
  
 
