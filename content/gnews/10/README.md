@@ -2,27 +2,27 @@
 ---
 
 
-## 英国会外委会预计2月访问台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932640/)
+## 监督机构指控欧盟主席购买疫苗“行政不当”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1932647/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间1月28日，英国工党国会议员布莱恩特向媒体表示，外交委员会预计在2周后访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/11-18.png)
-据悉，英国近来增高了对台湾的关注度，外相特拉斯、国防大臣华勒斯及秘密情报局局长摩尔等官员都曾在公开场合呼吁各主要国家应重视台海安全及和平稳定的重要性。
+1月28日，欧盟官方监督机构指控欧盟委员会主席乌苏拉·冯德莱恩构成 “行政不当”，要求其公开在购买辉瑞疫苗期间，与辉瑞公司CEO之间的秘密信息。
 
-英国首相约翰逊近日在回答议员质询时也表示，中共军机侵扰台湾，无助于区域和平的稳定。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/7-43.png)
 
-据了解，越来越多跨党派国会议员关心台英之间关系的发展，外委会主席图根哈特在去年底一场有关台英关系的听证会中表示，期待很快就能访问台湾，此访问行程将凸显本委员会及国会对英国与台湾关系的重视。
+欧盟监察专员艾米丽·奥莱利发布了一项正式提议，根据“信息自由申请”，要求冯德莱恩办公室公开这些文本。据悉，冯德莱恩为27个欧盟国家购买的一半以上的中共病毒疫苗来自辉瑞公司，辉瑞是迄今为止欧盟最大的疫苗供应商。冯德莱恩利用“个人外交”，与辉瑞CEO布拉达成巨额订单。 奥莱利说，短信电话和邮件如果涉及欧盟的政策和决定，它们就应该被视为欧盟文件，必须予以公开。
+
+截至目前，欧盟委员会以商业机密为由，拒绝透露其与疫苗供应商合同的关键内容，特别是定价方面。
 
 参考链接：
 
-- [英國對台灣關注提升 國會外委會可望2月訪台](https://www.cna.com.tw/news/aopl/202201290010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [EU watchdog accuses Ursula von der Leyen of ‘maladministration’ and orders her to hand over secret texts she sent to Pfizer’s CEO during efforts to buy 1.8billion Covid jabs](https://www.dailymail.co.uk/news/article-10451919/EU-watchdog-orders-Ursula-von-der-Leyen-hand-secret-texts-sent-Pfizers-CEO.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-总编：文特
+总编：Irene木木
 编辑：文特
 校正/发稿：海阔天空1
 
