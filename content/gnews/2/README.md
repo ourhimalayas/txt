@@ -2,46 +2,39 @@
 ---
 
 
-## 打开无疆界支付系统配上热钱包硬钱包后的喜币无人能挡
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1936623/)
+## 部分国际赞助商不愿抵制北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1936821/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f76f54d90bdd2085a2fad1](https://gtv.org/video/id=61f76f54d90bdd2085a2fad1)
+撰稿：东京樱花团/山顶闲人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-556.jpg)
+[图片来源](https://t.cj.sina.com.cn/articles/view/7228207506/1aed5b192001018qw4%20%20%20%20%20)（**图为主办方给每位运动员都准备了一份礼包，里面有价值7999元的三星手机 不少外国运动员打开后都震惊了）**
 
-**郭文贵先生：**我告诉你喜币未来影响到什么程度？我说你看，支付系统，当它打开之后无疆界的支付系统， 特别是有热钱包、硬钱包发生之后，我说你一个最简单例子，全球任何一个人通过手机没有任何人可以控制，钱，你的币，你的HDO，可以随时交流，谁都无法挡。
+据《纽约时报中文版》1月28日消息。拜登总统和其他西方国家领导人或许宣布了对冬奥会的“外交抵制”，但全球最著名的一些品牌仍将出现在赛事现场。
 
-我说你把它变成冷钱包放在了一个硬盘里，就类似硬盘的硬钱包里，可以加入你们的眼指纹、脚指纹、屁指纹，什么纹都行，没有任何人可以给你拿走。
+比如在滑雪选手将即将于2022年北京冬奥会竞逐的赛道底部，一块电子标牌循环播放着三星和奥迪等企业的广告。可口可乐易拉罐上装饰着奥运五环。宝洁在奥运村开了一家美容沙龙。Visa则是本届赛事的官方信用卡合作伙伴。
 
-即使我扔掉了，人有时候扔掉了，你会再找回，而且没有一个人可以看到你的个人信息。我说就是你们知道的我恨的共产党即使王岐山、习近平把钱放这我也拿不走，我也看不到。谁能做到？只有喜币。
+这些举足轻重的跨国企业（其中许多来自美国）减轻了拜登等领导人惩罚中国侵犯人权行为造成的政治上的不愉快，这些侵犯行为包括在西部地区新疆的镇压运动，美国国务院将其称为种族灭绝。
 
-另外，这在流通以后它能买面包，能买汽油，还能买飞机。我现在告诉大家，就此时此刻，此时此刻在加拿大庞巴迪就有战友用喜币私下交易就买了两架飞机，但是很小型的。庞巴迪挑战者3，在接飞机，在接飞机，对吧。而且战友用喜币私下里边买了好几台超级的车，你未来都会看，我说你们记住，都会看到的。
+对冬奥会的赞助反映出在华跨国企业所面临的艰难抉择：要么可能被赶出日益敏感的中国，要么就得应对在华开展业务在声誉上造成的风险。对于这届北京冬奥会，他们的选择已经很明确了。
 
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+虽然在多个国家都面临人权活动人士的抗议，但各家赞助商基本不为所动，而是选择继续让中国及其新兴的民族主义消费者群体满意。这些企业提出奥运会与政治无关，并且表示它们已在持续多届奥运的赞助合约上投入了数亿美元，不是只有北京冬奥会。最主要的13家奥运赞助商与国际奥委会签订的合同总额超过了10亿美元。
 
-编辑整理：Jacques；
+但对于企业而言，批评中国的政策很可能[激怒中国的消费者](https://cn.nytimes.com/business/20210407/xinjiang-china-cotton-brands/)。中国社交媒体上的爱国者大军已经对他们眼里的外国品牌辱华行为作出过严辞谴责，而政府和官媒也经常放大这些恶言恶语。在对新疆强迫劳动的报道[表达关切](https://www.nytimes.com/2021/03/29/style/china-cotton-uyghur-hm-nike.html?action=click&amp;module=RelatedLinks&amp;pgtype=Article)后，阿迪达斯、耐克和一些时装品牌在中国遭遇了全国性的抵制。中共在新疆地区强行将数百万维吾尔族穆斯林关进了大规模拘禁营和再教育营。当时装零售商H&M承诺停止购买新疆棉后，中国消费者的[抵制](https://cn.nytimes.com/business/20210325/handm-boycott-china-uyghurs/)使其一个季度[损失了约7400万美元销售额](https://www.wsj.com/articles/h-m-pays-price-of-upsetting-beijing-as-china-sales-drop-11625136844)。
 
-字幕文件制作：知津；
+就连奥运会主要赞助商之一的英特尔，上个月也[面临抵制呼声](https://cn.nytimes.com/business/20211224/intel-apology-china-xinjiang/)，因为该公司发布了一封呼吁国际供应商避免从新疆采购产品的信函。面对愤怒，英特尔在几天内[重写了这封信](https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-english.html)，删除了提及新疆的内容。
 
-视频制作及上传：Cindy；
+关于这样的支持是否有效粉饰了中共的威权统治，主要赞助商均回避了相关问题，[有时方式还很笨拙](https://www.youtube.com/watch?v=NpkOD_jlJT0)。这些企业的高管认为，奥运会不应被政治化，并援引了[《奥林匹克宪章》](https://olympics.com/athlete365/app/uploads/2021/07/Rule-50.2-Guidelines-Olympic-Games-Tokyo-2020-Final.pdf)的相关内容，尽管有关奥运会的政治阴谋由来已久。
 
-G-News发布：小满；
+在全球共同抵制北京冬奥会大趋势下，部分奥运会国际赞助商，对腐朽邪恶的中共政权还抱有幻想，以扶持中共助其成功举办冬奥会，这种变相的“利益输送”方式贿赂中共高层，妄图进一步扩大自己品牌在中共国市场占有率，在中共国的市场多分一杯羹。但是在现在中共国经济即将“崩盘”，“全球化”经济危机即将爆发的大趋势下，这些国际赞助商攫取利益的图谋将化为“泡影”，自身的丑行也会被钉在历史的耻辱柱上。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+信息来源：
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[“中国是个例外”：为何国际赞助商不愿抵制北京冬奥会](https://cn.nytimes.com/business/20220128/olympic-sponsors-china-beijing/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

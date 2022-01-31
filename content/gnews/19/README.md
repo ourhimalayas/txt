@@ -2,42 +2,96 @@
 ---
 
 
-## 与Isobel Yeung把爆料革命打成邪教的乱伦彪一定打疫苗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1936341/)
+## 世界是一个危险的地方, 当美国不准备表现出决心和保护其利益时，威权政权就会看到弱点
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1936610/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f768f1d90bdd2085a2f891](https://gtv.org/video/id=61f768f1d90bdd2085a2f891)
+[https://gtv.org/video/id=61f71f27d90bdd2085a2d5e2](https://gtv.org/video/id=61f71f27d90bdd2085a2d5e2)
 
-**郭文贵先生：**你像路大脑袋、蛇妖闫都打毒苗了是吧，你打呗，打5针才好呢。还有乱伦彪，最好打5针。是吧？最近和Bob傅又掐起来了是吧？你说这海外欺民贼，你能别吃相那么难看是不是？
+Mike Pompeo (Former US Secretary of State)
+迈克·蓬佩奥（美国前国务卿）
 
-然后呢咱国内的桦甸的，某个战友是当地最有权力的人之一。“七哥，这帮垃圾也值得上你的嘴呀？”他说“他们连屁都不是，他们在中国桦甸连饭都吃不着，还能上你的嘴？”我说：“你记住七哥这个人的本事就是什么呢？”我说：“最土的饭七哥也能吃，最洋的饭也能吃，而且我吃得还都能很享受。”我说：“这些欺民贼让我偶尔地玩一玩挺开心的。”那么在桦甸这个地方打的疫苗呢，据我所知大多数是真的，乱伦彪的家人也都会打的是真疫苗。所以说，哎呀乱伦彪呀，信了共产党走进火葬场，到了美国还跟共产党玩儿，这孙子是他是一定会受到惩罚的，跟Isobel Yeung的采访引起了众怒。国内的人说：“他竟然跟这个家伙来把中国人在海外的中国人变成了邪教？”他说：“七哥，这个事这个家伙不是个好东西。”他无意中就帮了咱。
+We talk a lot about Ukraine today in Russia
+我们今天在俄罗斯方面谈论了很多关于乌克兰的事情
 
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+We shouldn’t forget that Xi Jinping is about to host the Olympics
+我们不应该忘记习近平即将举办奥运会
 
-编辑整理：Jacques；
+You mentioned North Korea’s now over half a dozen missiles have been fired
+你提到朝鲜从今年年初开始到现在已经
 
-字幕文件制作：知津；
+since just the beginning of this year
+发射了超过六枚导弹
 
-视频制作及上传：Cindy；
+The world’s a dangerous place and when America is not prepared to be resolved
+世界是一个危险的地方，当美国不准备解决
 
-G-News发布：小满；
+and do the right things to protect its interests
+并做正确的事情来保护自己的利益的时候
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+These are what this is what authoritarian regimes do
+这就是威权政权所做的行动
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+I was in the meetings with Chairman Kim probably more than anybody else
+我与金主席的会面可能比其他任何人都多
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+I was there with the President
+我和总统在那里
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+We convinced him not to conduct long range missile tests
+我们说服他不要进行远程导弹试验
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+and not to conduct any more nuclear tests
+并且不再进行任何核试验
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+He’s not saying he’s going to do some more nuclear testing
+他没有说他会进行更多的核试验
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+This this is what happens when you leave from behind
+这就是当你从后面离开时发生的事情
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+and you’re not prepared to do things that matter
+并且你还没有准备好做重要的事情
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+if you’re sitting in Kansas or New Hampshire or in South Carolina, Florida
+如果你坐在堪萨斯州、新罕布什尔州或佛罗里达州的南卡罗来纳州
+
+And you watch the United States walk away from these things
+你看着美国放任这些地缘政治问题发生
+
+It has a real impact we could if Ukraine goes wrong or North Korea goes wrong
+如果乌克兰出错或朝鲜出错，它会产生真正的影响
+
+we’ll have higher energy prices more instability, food will cost more
+我们将有更高的、更不稳定的能源价格，食品将花费更多
+
+these things you know what happens in Beijing or Pyongyang or in Kyiv
+这些事情，你知道在北京、平壤或基辅发生的事情
+
+doesn’t just stay in those places
+不仅仅停留在那些地方
+
+It matters a lot to get foreign policy and national security
+这些行动对美国外交政策和国家安全非常重要
+
+* * *
+
+Date:01/29/2022
+原视频标题: The world is a dangerous place. When America is not prepared to demonstrate resolve and protect its interests, authoritarian regimes see weakness
+世界是一个危险的地方, 当美国不准备表现出决心和保护其利益时，威权政权就会看到弱点
+原视频日期：2022/01/29
+原视频链接: [**https://twitter.com/mikepompeo/status/1487161785685843968?s=24**](https://twitter.com/mikepompeo/status/1487161785685843968?s=24)
+任务编号：KE376（3630）
+视频时间段 : 0:00-1:00
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
