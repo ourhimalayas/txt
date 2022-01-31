@@ -2,8 +2,8 @@
 ---
 
 
-## 喜币受多个法律管辖约束
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935610/)
+## 中东国家参加冬奥会的前提条件
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935689/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

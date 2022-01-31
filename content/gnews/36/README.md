@@ -2,10 +2,33 @@
 ---
 
 
-## 1/30/2022 文贵直播：普京打乌克兰会加速欧洲与中共的决战
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1935197/)
+## GTV新闻访谈简报|2022年1月30日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1935239/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-9.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[1.30  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f73bab96ba5d73e0bf73ca)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-27.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

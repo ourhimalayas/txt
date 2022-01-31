@@ -2,14 +2,11 @@
 ---
 
 
-## 雅典娜时报-第190期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935677/)
+## 体育界大翻车李永波被抓
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935711/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/937515332334149672/155_2-3.png?width=818&amp;height=1218)![圖片](https://media.discordapp.net/attachments/825592691433668612/937515332833247272/155-8.png?width=818&amp;height=1218)
 *发布：陶子*
 
 更多资讯，请关注：

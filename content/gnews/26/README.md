@@ -2,10 +2,10 @@
 ---
 
 
-## CDC最新研究：接种中共病毒疫苗导致心肌炎风险超百倍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935344/)
+## 喜马拉雅币一周分析与总结（1月24日-1月30日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935348/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山金融部 – ILOVE战神
 
 
 
@@ -13,16 +13,19 @@
 
 
 
-1月25日，美国医学会杂志在网站发布了一项最新研究，由美国疾病预防控制中心CDC以及来自美国几所大学和医院的相关人员完成，研究显示，接种MRNA疫苗后产生心肌炎的风险增加133倍。
+过去一周喜马拉雅币价格加速攀升至50美元上方，最高涨幅约24%，平均日交易量约11万5千枚喜币。喜币上市以来总交易量约2670万枚 ，占今年总发行量的仅约2.67%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture3-3.png)
+本周四，一篇来自英国金融科技资讯网站TechBullion的文章提到，喜交所是业内第一个运用人工智能技术识别人体行为与生物特征并与冷钱包安全措施相结合的加密货币平台。文章指出这一设计使喜交所的安全性达到业内最高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-4.png)
+本周据郭文贵先生在大直播中透露，喜交所拥有世界上最好的KYC制度，目前有50亿美元现金正在等待KYC后进场。之后还会有上千亿美元进入。目前已经有六大品牌提前宣布接受喜币购买商品。喜支付上线后会有更多商家进场。随着喜支付的逐渐推广，会有金融机构开始接手相关业务，下一步会有国家主权机构接受并投资喜币，之后喜币将改变这个世界。
 
-该研究使用疾控中心的VAERS报告系统获得数据，分析了辉瑞和Moderna疫苗的接种效果。这些数据经过了交叉检查，以确保它们符合疾控中心对心肌炎的定义。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-12.jpg)
-鉴于大量研究证实了疫苗接种与心肌炎之间的联系，美国疾控中心已开始积极监测青少年和年轻人在接种疫苗后心脏相关事件后的进展。
+郭先生还表示，喜支付会在春节甜蜜蜜运动期间上线，会把中共插在中国人民身上的血管改变方向，转而插到中共盗国贼自己的身上。
 
-与此同时，美国心脏协会和美国心脏病学院建议，心肌炎患者在三到六个月内应避免剧烈运动，此外，他们特别建议心肌炎患者暂缓继续接种mRNA疫苗。
-
+本周五喜交所进行了11小时的维护升级，并更新了官网的喜支付页面。目前官网已经提供了喜支付APP苹果与安卓版本的下载链接，预计在未来几天内可以开始使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-17.jpg)
 参考信息：
-[New study: 133x risk of myocarditis after COVID vaccination](http://New%20study:%20133x%20risk%20of%20myocarditis%20after%20COVID%20vaccination)
+1. [Safeguarding Digital Assets in an Increasingly Intangible World](https://techbullion.com/safeguarding-digital-assets-in-an-increasingly-intangible-world/)
+2. [HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
