@@ -2,10 +2,10 @@
 ---
 
 
-## G系列是福
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939458/)
+## 虎年吉祥，降魔兴邦
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939505/)
 
-设计者：纽约香草山设计部 — 上帝的平安， 哇大兄弟
+设计者：纽约香草山设计部 — 决明子
 
 
 
@@ -18,7 +18,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-G-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-1-41.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-.gif)
 
 
 **编辑/发稿：小鹿**

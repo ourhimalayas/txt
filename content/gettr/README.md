@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 1/31/2022 5:03 PM (UTC)`
+
+Limited Edition Exclusive Release for Chinese New Year.                                            Today at 5 pm ET at gfashion.com
+![img](https://media.gettr.com/group34/getter/2022/01/31/17/5e4e1872-c06e-9878-bfa4-2a9ed6fe15c8/5763bed0fb65a345b5b4b8522cdf6544.jpg)
+
+---
+
 `@miles 1/31/2022 6:52 PM (UTC)`
 
 灭共的雪<br/><br/>演唱： Miles Guo<br/>改编： 威廉王 唐平<br/>编曲： SFG<br/>视频： 塔奇克马
@@ -147,13 +156,6 @@ EP7: The Master of Mind Control. Let's tear down the monstrous lies of this desp
 
 Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Beijing that will be authorized by the U.S. government is a huge and monumental step for the New Federal State of China #NFSC. It's something obviously the NFSC as an alternative governing entity apparatus mechanism for the Chinese people. <br/><br/>The Thank You letter from the NFSC to President Joe Biden and Secretary of State Anthony Blinken very specifically calls out the Chinese Communist Party as being illegitimate, not representing the Chinese people and being a transnational criminal organization.<br/><br/>班农先生：经美国政府授权立即撤出美国驻北京大使馆所有外交人员是新中国联邦迈出的巨大且具有里程碑意义的一步。显然，新中国联邦是管理中国人民的另一个选择。新中国联邦致拜登总统和布林肯国务卿的感谢信特别指出中国共产党是非法的政权，不代表中国人民，是一个跨国犯罪组织。
 ![img](https://media.gettr.com/group9/origin/2022/01/28/10/3af609f4-d827-c3b4-75bc-b5a92ed7ef6a/out.jpg)
-
----
-
-`@miles 1/28/2022 8:40 AM (UTC)`
-
-1/25/2022 Miles Guo’s Big Announcement: President Biden and Secretary Blinken’s decision to authorize the departure of the US embassy in Communist China is by far the best decision for the Chinese people that the US has ever made. This decision is of paramount significance, and the resultant domino effect will pave the way for the “Tian Mi Mi Movement” to occur in all the embassy districts around the Second Ring Road in Beijing.<br/><br/>1/25/2022 文贵重大公告：拜登总统和布林肯国务卿授权撤离驻华大使馆是美国迄今对中国人所做出的最好的决定，其意义极为重大，它所导致的多米诺效应将让甜蜜蜜运动发生在北京二环的所有使馆区<br/>
-![img](https://media.gettr.com/group36/getter/2022/01/28/08/458e29a5-5eeb-fe7f-d19d-d5e0c6a8abd4/out.jpg)
 
 ---
 
