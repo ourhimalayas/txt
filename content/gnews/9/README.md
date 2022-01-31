@@ -2,45 +2,24 @@
 ---
 
 
-## 一位参加北京冬奥会的法国女士众目睽睽之下被检查肛门
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1936247/)
+## 玩火自焚！疫苗灾难将促使欧洲对中共开战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1936324/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f76163d90bdd2085a2f43b](https://gtv.org/video/id=61f76163d90bdd2085a2f43b)
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2558.png)
+1月30日，郭文贵先生在直播中专门针对中共打台湾、俄罗斯打乌克兰与当前世界疫苗政治形势走向的关联时特别指出：
 
-**郭文贵先生：**我觉得现在共产党现在到处找，包括改成肛门测试，我现在跟所有的外国人开会的时候，我就发给他们这个肛门测试的屏，他们都受不了，是吧。我说你们要去中国就是会用肛门给你测试。结果发现真有外国人被肛门测试的，而且很多是女士，真的是受到了奇耻大辱的感觉。我这手里现在我要很多视频发给你们，你们真得会、你们都会崩溃的。
+关于疫苗政治，这么多人死，MRNA可以说是人类大屠杀，是一场阴谋，是医学灾难，推广打疫苗的人是没有好下场的。如果欧州面临美国，加拿大，日本最后承认疫苗完全是灾难，确实打了疫苗的人会得癌症，会有很大几率会猝死，不要说50%，就是5%，欧洲各国领导人都不会躲过去的。接下来世界的疫苗军事，疫苗政治，疫苗经济突然间就来了。这时候不是普京对乌克兰，习对台湾这么简单了，欧洲这些政治家为了能活下去，他们自己就会搞战争。
 
-昨天一法国的姐妹儿给我说：“Miles，我太后悔没听你话了，我来这个完全的、糟糕的、灾难的国家，哎呀受不了了！” 我说：“你被插肛门了是吧？” 她说：“是的，还被那个一个愚蠢的男人、粗鲁的男人插肛门。” 我不相信她被插肛门的时候，他只能看到肛门啊，他肯定整个屁股从生理学来看是什么都能看到的，这点澄道和Longwood比较专业是吧？你不可能被插肛门只能看到肛门。对这个女士是奇耻大辱是吧？而且旁边儿还不是一个人，一群人。
+当前，中共一方面加紧举办冬奥会试图稳定内部和迷惑世界，另一方面，加紧着手备战攻打台湾。中共试图联合俄罗斯通过两线开火，以达到拖住美欧实现各取所需的目的，但是中共未料到的是世界疫苗形势急剧翻转。面临即将到来的疫苗灾难，美欧特别是欧洲实施激进疫苗政策的政治人物为了自保，必将选择将矛盾向外转移，甚至主动地向中共发动战争，以便刷锅和清算。
 
-你去想想，这个国家现在这么干的时候，它到底儿想干啥？包括人家带着包儿化妆品给人家打开，让人家把化妆品在嘴上抹两下，人家不抹，在手上抹两下，他说：“你抹一下嘴上，你抹手上都不算数。“所以说我又高兴啦，是吧？我又想唱啊。你想想这种人离开中共国以后，她还能对中共有什么好感吗？是吧？她要张嘴了会说啥呢？是吧？你想想那化妆品里怎么会有病毒呢？
+中共释放病毒，操弄疫苗，终将为其反噬。
 
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+信息来源：[2022年1月30日： 文贵直播- G|TV](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
 
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

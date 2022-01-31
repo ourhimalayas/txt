@@ -2,24 +2,45 @@
 ---
 
 
-## 玩火自焚！疫苗灾难将促使欧洲对中共开战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1936324/)
+## 在美国股市跌下四成时很多人都忽视了七哥三年前的预言
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1936418/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2558.png)
-1月30日，郭文贵先生在直播中专门针对中共打台湾、俄罗斯打乌克兰与当前世界疫苗政治形势走向的关联时特别指出：
+G-TV视频链接：[https://gtv.org/video/id=61f76cb4d90bdd2085a2f9c7](https://gtv.org/video/id=61f76cb4d90bdd2085a2f9c7)
 
-关于疫苗政治，这么多人死，MRNA可以说是人类大屠杀，是一场阴谋，是医学灾难，推广打疫苗的人是没有好下场的。如果欧州面临美国，加拿大，日本最后承认疫苗完全是灾难，确实打了疫苗的人会得癌症，会有很大几率会猝死，不要说50%，就是5%，欧洲各国领导人都不会躲过去的。接下来世界的疫苗军事，疫苗政治，疫苗经济突然间就来了。这时候不是普京对乌克兰，习对台湾这么简单了，欧洲这些政治家为了能活下去，他们自己就会搞战争。
+**郭文贵先生：**确实，我觉得我们人类，从来没有像今天这个样。就真的就像那个北京烤鸭店的鸭子一样，上去之前还在那块儿手舞足蹈的，他忘了是你的手舞足蹈，不是因为你兴奋，是因为脚底下给你加了温，你不在这块儿继续舞蹈你就会死在那儿。
 
-当前，中共一方面加紧举办冬奥会试图稳定内部和迷惑世界，另一方面，加紧着手备战攻打台湾。中共试图联合俄罗斯通过两线开火，以达到拖住美欧实现各取所需的目的，但是中共未料到的是世界疫苗形势急剧翻转。面临即将到来的疫苗灾难，美欧特别是欧洲实施激进疫苗政策的政治人物为了自保，必将选择将矛盾向外转移，甚至主动地向中共发动战争，以便刷锅和清算。
+今天全世界的经济，被共产党都绑架了，被共产党的病毒给扼杀了。你看到今天就是Eglise说的这个很多人还在买房子，房子还在涨，就是那个鸭子，他在那个加温以后的那个上边儿，他还在手舞足蹈，他是不自然的。还有一个就是大家没有意识到，都已经20%、有的40%，你知道在三年前你知道有多少人挑战七哥，你们真的没法想象，就像你没有去过清丰看守所一样的道理。他说：“Miles，你知道全美国要股票跌20%，”我在直播中给你们讲过，他说：“那美国会一半儿就完了。”欧洲的那些基金跟我合作，他说：“Miles，你要说对了要跌20%，不要说全部，部分股、就类型股跌20%，他说那就我们全完了，这一辈子就结束了。”
 
-中共释放病毒，操弄疫苗，终将为其反噬。
+结果呢，现在看到都有40%了吧，你见有动静了吗？没动静，为什么？你们忘了一个最关键的，就你们光看现象，没看过程。七哥是这件事的创始者、亲历者，也是最大的受益和受害者。你们忘了去年，短短的我们从2019年年底到2020年、2021年，不到26个月的时间，全人类印发了260万亿美元！！！260万亿美元呐！印发出来钞票啊！叫QE，M2，实际就是印钞票嘛。世界的GDP的将近两倍，你知道这260万亿到了数字货币多少钱呢，3万多亿美元。
 
-信息来源：[2022年1月30日： 文贵直播- G|TV](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
+字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+编辑整理：Jacques；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
