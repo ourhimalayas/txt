@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/31/2022 12:56 PM (UTC)`
+
+2022年壬寅年新春大直播
+![img](https://media.gettr.com/group44/origin/2022/01/31/12/1847a9a6-7fb1-2f16-1321-a5821623b4f6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 1/31/2022 3:09 AM (UTC)`
 
 1/30/2022 Miles Guo: The Whistleblowers’ Movement and the New Federal State of China are the first to tell the whole world the truth about the CCP virus and the COVID vaccines, pushing the people of conscience across the globe to stand up against vaccine mandates. Digital finance is bound to be born as the U.S. economy is set to plummet!<br/><br/>1/30/2022 文贵直播：爆料革命和新中国联邦第一个向全世界揭露了中共病毒和疫苗的真相，推动了全世界有良知的人站出来反对疫苗强制令；随着美国经济将出现大跌，数字金融必将诞生！<br/>
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/25/2022 Miles Guo’s Big Announcement: The authorized departure of the US Embassy means that the US has rendered the CCP illegitimate on the world stage. So, the CCP is really doomed!<br/><br/>1/25/2022 文贵重大公告：美国大使馆被授权撤离意味着美国让中共在国际上失去了合法性，中共真的完了！<br/>
 ![img](https://media.gettr.com/group38/getter/2022/01/28/08/1ffeeb16-2ce3-a0d2-69b6-038eab4c0c2c/out.jpg)
-
----
-
-`@miles 1/28/2022 6:08 AM (UTC)`
-
-1/27/2022 Miles Guo: All the mainstream media and major social media platforms will be brought to justice in the future. These mainstream media will all be condemned by the common people after the Winter Olympics. The Tian Mi Mi Movement is making so much progress! Nearly 50 countries are bargaining with the CCP. Pakistan, which used to be the CCP’s closest ally, has almost become the CCP’s enemy.<br/><br/>1/27/2022 文贵直播：未来所有严肃媒体和大社交媒体平台都将接受正义的审判，冬奥会后这些严肃媒体都将被老百姓声讨；甜蜜蜜运动进展太快了，近50国正在跟中共讲数，巴铁已成“巴仇”<br/>
-![img](https://media.gettr.com/group37/getter/2022/01/28/06/71ad2e15-97e8-5a36-4b4b-5e3bfa8e310b/out.jpg)
 
 ---
 
