@@ -2,40 +2,35 @@
 ---
 
 
-## 有声|赵立坚希望美国能慎重考虑撤大使馆问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934555/)
+## 美国对喜市监管体现喜币的战略重要性
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1934810/)
 
-配音：香草山健身部 – 玫瑰园
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/美国对喜币监管体现喜币的战略重要性-.jpg)
+直播时间：2021.12.01
 
+新中国联邦的所有今天在美国监管的时候，你才知道我们的战略多重要。
 
+我们是中心化的行政管理体制，去中心化的美国JP摩根的技术，而且是第三代区块链，我们是有支付系统保证这个价值的，特别严格的KYC，绝不妥协。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-46.jpg)
+今天战友锁币的原因就是因为咱KYC太严，不让水管进来。我如果随便放开像币安一样，币安竟然是现在才说我宣布90%KYC，那就是什么钱都可以来，就是洗钱的平台。天地之差。
 
+你才知道今天咱有多厉害，你看咱有多么的重要的战略决策。这是监管没有中心化的这种100%必给你取消，100%不会有比特币，100%不会有币安，100%不会有火币，共产党的币跟伊朗有关的币，北朝鲜有关的币，你都再见吧，去中心化的币，你再见吧。有去中心化的技术，不接受去中心化的币，是这次监管中的绝对的决策。
 
+第2所有跟法币联系的，必须无条件提供给当时联络法币的所有的当事国信息。你不要有任何侥幸心理，一定会来。
 
-当地时间1月26日，中共外交部记者会上有记者问，“对于美国政府授权撤离美国驻北京大使馆，中共政府有何看法？” 中共外交部发言人赵立坚避重就轻的回答，指在控制疫情方面，中共国是世界上最安全的国家，从中共国撤出，只会极大增加美方人员感染的风险。最后，赵立坚还语带希望的挽留美方，“中方已就此向美方表示严重关切和不满。希望美方认真对待中方立场和关切，慎重考虑所谓外交领事人员“授权撤离”问题。” 网友评论：按照国际惯例，中共应该考虑撤离中共驻华盛顿的大使馆，而不是恳请美方“慎重考虑”。
+第3条，所有全世界的监管，这是七哥都有资格说，因为今天下午还给他们开会，七哥要提建议给他们。如何加大监管，既不能管死，而且能保证国家的税收安全，还不影响个人的隐私。
 
-原文链接：[赵立坚希望美国能慎重考虑撤大使馆问题](https://gnews.org/zh-hans/1928934/)
+我就告诉他们你要管的死了，数字货币，虚拟货币会成为你的噩梦。你杀一批，出来一批，你会逼出无数个比特币出来，你不管死他。你现在要优化它，你会让你的法币和数字货币会成为人类创新的金融事业到来，包括美元，欧元。
 
-音频处理/发稿：Daxia
+发布：*皮特*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,29 +2,26 @@
 ---
 
 
-## 加拿大渥太华反强制疫苗继续延烧
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1933274/)
+## NewSGman┃日美首次专题磋商人权问题 或为联合制裁中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933439/)
 
-作者：香草山教育部 – 文百合
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-1月28日去渥太华的路上卡车司机车队停在路边。
+撰稿：东京樱花团/NewSGman
 
-当地时间1月29日，加拿大人民党的党魁Max面对集会人群演讲，主题是支持卡车司机，捍卫自由、反对強制疫苗，引起阵阵呼应。
+负责国际人权事务的日本首相助理中谷元在1月26日网上会见了负责平民保护、[民主](https://gettr.com/hashtag/%23%E6%B0%91%E4%B8%BB)和[人权](https://gettr.com/hashtag/%23%E4%BA%BA%E6%9D%83) 的美国副国务卿泽亚。双方同意促进各相关组织之间和层面的意见交流，以深化日美两国在人权领域的合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-1.png)
+中谷元先生对美国保护自由民主等，普世价值的决心和举措表示敬意。泽亚也是西藏问题的特别协调员，据信双方已经讨论过中国的人权问题。
 
-**校对/发稿：童谣**
+现年64岁的中谷元，中谷元同时长期关注中国新疆和香港等地人权状况。2021年4月，作为众议员议员的中谷元发起成立“全党议会人权外交联盟”，致力于推动日本版的《全球马格尼茨基人权问责法案》。
 
-**更多资讯，更多关注**
+中谷元曾在2001年出任小泉纯一郎内阁的防卫厅长官；2014年，他获时任首相安倍晋三委任为防卫大臣。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息来源：
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[https://gettr.com/post/pr111f4b74](https://gettr.com/post/pr111f4b74)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

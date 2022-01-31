@@ -2,37 +2,31 @@
 ---
 
 
-## 日本纪录片《疫苗副作用》即将上映
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934100/)
+## 扬帆每日速递 2022年1月30日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1934194/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，制作方放出了纪录片《疫苗副作用》预告片。并将在1月底日本为5至11岁儿童接种前上映。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.47.png)
-这部纪录片拍摄于2021年12月25日，记录了在大阪举行的由医生、记者、政界人物参加的中共疫苗副作用研讨会。内容涉及到实际上出现副作用的病例，医生们对疫苗副作用的看法，以及愿意为此发声的政界人士的呼喊。
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、据文贵先生1月30日直播：加拿大的大卡车运动最终会发展为暴力，爆料革命战友们不要参加，未经联盟委员会授权，使用新中国联邦标志参加抗议的战友，都会被清理出爆料革命。共产党会充分利用这个事件，把爆料革命定义为邪教。
 
-预告片中，京都大学病毒研究所的宫泽孝幸教授表示，即使有中共疫苗，病毒也不可能完全被清除，相反那些被疫苗影响的细胞，会被免疫系统认为是病毒而进行总攻，通俗来讲就是接种后的人体在自爆。而记者鸟集彻则表示，所谓“为了身边人不被感染所以接种疫苗”，就相当于二战的时候“为了日本国让那些孩子上战场”一样，甚至在他的幻灯片中用红字写上了“为国捐躯”。
+2、据文贵先生1月30日直播：加拿大卡车司机的“自由护航2022”抗议活动震撼世界，而10亿中国人包括生生死死几十亿人，从未对共产党暴政包括8964抗议过，发出内心的声音。
 
-在片尾制作方更是打出了“接种第三针之前，请‘目击’这个记录”的标语，呼吁人们在盲目跟从政府政策施打第三针前，听听这些真实的声音。
+3、高盛经济学家周五预测，美联储将在2022年加息五次，预计3月首次加息。
 
-参考链接：
-1）[https://www.gettr.com/post/pr7v6gcdfb](https://www.gettr.com/post/pr7v6gcdfb)
-2）[https://www.aoyama-masayuki.com/](https://www.aoyama-masayuki.com/)
-3）[https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9](https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9)
+4、台湾总统蔡英文在周日的农历新年贺词中，无视来自中共巨大的军事压力，感谢民主国家对台湾的支持，并承诺“大踏步”走向世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+5、中共喉舌《环球时报》1月30日发表署名文章称，美国正在酝酿一场新的阴谋，极尽抹黑北京冬奥会。随着冬奥会临近，攻击和干扰的狠招黑招还会更多。
 
-总编：飞虹
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+6、1月30日港府宣布明日始，由珠海经港珠澳大桥入境香港免检疫。评:这边香港人正被大规模的封区封楼禁足要动态清零，那边来港人士免检。这样的政府谁能信？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板130-1_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦 、Shuang
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：文敏
+
+发布：风起云间（文敏）
+
+海报图片设计：飞天面、 Shuang
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

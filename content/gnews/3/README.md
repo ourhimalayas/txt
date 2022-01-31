@@ -2,29 +2,36 @@
 ---
 
 
-## 1/28/2022文贵爆料 : 中共跪求美国只撤走病毒检测阳性的人员
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1934668/)
+## 有声|自由车队2022组织者在GoFundMe的最新声明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935011/)
 
-整撰：shanshan
-校对：Shifter
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-5.21.29-PM.png)图片：GETTR
-郭文贵先生在1月28日的盖特直播中爆料，中共外交战狼表面上对美国授权撤离使领馆大加挞伐，实际上跪求美国只撤走病毒检测阳性的外交人员，不要全员撤离。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自由车队2022在GoFundMe1月28日筹款已经过7百万美元，约有9万人参加了捐款。该组织者今日早些时候更新了声明，全文内容如下：
 
-北京现在可热闹了啊。郭先生以梦见说起，中共刚刚与美国商量，求求美国啦：你撤走点人，你就别撤那么多啦。就象征性的把所谓阳性的几个人撤走。剩下的就留在这儿吧。中美共同来个公告，说是由于有使馆人员感染了阳性，短暂的授权撤离。
+对加拿大同胞来说，政府嚣张时代应该结束。 现任政府正在实施的强制规定在破坏我们的企业、行业和生计的基础。
 
-美国说是啊，我只接受阳性的，很多人都留在那儿呢。你赶快配合吧，人都回来。美国派了几架医疗专机进北京城，军事医疗专机，现在此时此刻就在北京首都机场T3航机楼，大家看看T3航机楼。
+我们是一个和平的国家，曾帮助保护全球各地的国家免受政府暴政对其人民的压迫，现在同样的事情却在加拿大这里发生。我们要把战斗带到联邦政府的门口，要求他们停止所有反人民的强制规.
 
-**多架军事医疗专机在北京城。美国大使馆有多少人呢? 干嘛去那么多军事医疗专机? 共产党都不敢面对。这是中共国这个国家、这个文化，可悲可怜到了无法形容的地步**。
+原文链接：[自由车队2022组织者在GoFundMe的最新声明](https://gnews.org/zh-hans/1926857/)
 
-就这个时候，中共有两副嘴脸，披着狼皮的羊，和披着羊皮的狼，混合交织。**对中国内部的人就是披着羊皮的狼，对外国人就是披着狼皮的羊**。
+音频处理/发稿：Daxia
 
-郭先生说中共这帮孙子垃圾到了极点。什么话形容他们都不为过。他们垃圾到了这种程度，这个国家让他们统治着。 人家美国人一声都不说，竟然质问美国人，为什么 MILES GUO知道这么多绝密的信息 ?
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-人家美国人说 : 不知道，无从告知。多着呢。你想停…..走着看。郭先生最后说，还有几个杀手锏，让羊娘娘（杨洁篪）、王沪宁和王毅等着结果吧。
+**更多资讯，更多关注**
 
-来源链接：[https://gettr.com/post/pr277kd558](https://gettr.com/post/pr277kd558)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

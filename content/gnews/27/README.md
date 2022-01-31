@@ -2,32 +2,38 @@
 ---
 
 
-## 澳洲加入加拿大反强制新冠疫苗自由车队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934101/)
+## DC每日热点0130
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1934317/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日据悉，澳大利亚卡车司机们正在计划一场自由之战，来反抗政府对中共病毒疫苗的强制，以及政府在疫情期间过于严酷的防疫政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.55.png)
-正如加拿大自由车队即将驶向首都渥太华一样，澳大利亚自由车队将会前往首都堪培拉。在前往首都之前，卡车车队计划在维多利亚州、新南威尔士州、南澳大利亚州和西澳大利亚州等城市会面，最后于周一上午10点抵达堪培拉议会大厦，抗议政府的强制疫苗政策。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/01/CD652A12-CD09-43F1-8DEC-B3E70F0B06AB-scaled.jpeg)
+道琼斯指数 34725.47 ▲1.65%
+纳斯达克指数 13770.57 ▲3.13%
+WTI纽约原油CFD 87.205 ▲0.69%
+布伦特原油CFD 88.807 ▲0.72%
+标普50指数 2,610.24 ▼54.47%
+美元兑人民币 1USD=6.361 RMB
+美元兑港币 1USD=7.791 HKD
+国际黄金 1791.53 美元/盎司
+全球CCP病毒感染人数373,754,516例
 
-据悉参与此次游行活动的还包括，那些因政府的疫苗强制，和中共病毒隔离政策而被迫关店的小企业主，他们打算驾驶摩托车和汽车加入自由车队。
+1、北京冬奥会继续严防死守新冠病毒 波兰女子速滑夺金热门选手被隔离
+2、拥有核武器的朝鲜当地时间30日进行了2017年以来最大的导弹试射，向太空发射了一枚疑似中程弹道导弹，引发美国及其盟国的谴责
+3、俄罗斯将海军演习移出爱尔兰专属经济区
+4、以色列总统艾萨克-赫尔佐格周日开始对阿联酋进行首次为期两天的访问
+5、法国谴责俄罗斯雇佣兵“抢劫”马里
+6、人民币的国际结算份额升至第四
+7、赵立坚遭指盗用叙利亚照片骂阿富汗战争 摄影师本人怒斥扭曲事实
+8、中共国微博禁止转发北京冬奥赛事影片
+9、应对乌克兰危机：英国罕见向北约大规模派兵
+10、法国总统与伊朗总统通电话：核协议，人权，区域安全
+11、美众议院下周审议关于提高与中共国竞争力议案
+12、日韩再就历史遗留问题申遗发生外交争执
+13、美联储货币政策委员会1月26日发布议息会议声明，披露会很快适时加息，将于3月初结束资产购买缩减，美国股市和债券市场均应声下跌
+14、韩总统候选人谈外交蓝图：韩美同盟是基本轴心
+15、乌克兰危机 法德外交官2月初访问基辅
+16、来自东部和西部的加拿大卡车“自由车队”（Freedom Convoy）驶入加拿大首都渥太华，抗议政府颁布的新冠疫苗接种强制令
 
-参考链接：[Australian truck drivers join the convoy for freedom](https://www.rebelnews.com/australian_truck_drivers_join_the_convoy_for_freedom)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

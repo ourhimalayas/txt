@@ -2,36 +2,23 @@
 ---
 
 
-## 有声|意大利正在为大量疫苗伤害索赔做准备
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934547/)
+## 神秘袖扣揭秘
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1934804/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月21日，据相关媒体消息显示，意大利政府计划拨出1.5 亿欧元用于赔偿那些因接种中共病毒疫苗而遭受副作用的民众。
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/神秘袖扣解密-_01.jpg)
+直播时间：2021.12.01
 
-资料显示，意大利的法律规定，政府需要保证对那些因强制接种疫苗而受到伤害的民众进行赔偿，其范围甚至覆盖至因接种了政府推荐的疫苗而受到伤害的意大利人。据了解，这些疫苗受害者可以通过国家赔偿基金或民事及刑事司法程序得到其应有补偿。
+这个神秘袖扣内部含有摄像头，超稳定，实时传送图像，被他们广泛的用在了澳门赌场，澳门赌场的马仔还有发牌的人都要带袖扣，这个袖扣是录像获取证据手段之一，最重要的事情戴这个袖扣的人站在VIP客户后面的时候，可以看牌并传送到后台，所以，赌场是完全控制赌局。
 
-原文链接：[意大利正在为大量疫苗伤害索赔做准备](https://gnews.org/zh-hans/1929253/)
+发布：*皮特*
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

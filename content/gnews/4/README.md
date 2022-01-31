@@ -2,14 +2,20 @@
 ---
 
 
-## 2022.1.22疫苗灾难
-` 【去疫前线】` [轉載自GNews](https://gnews.org/zh-hans/1934667/)
+## 文贵先生聊天直播要点-图片（2022年1月30日）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1935001/)
 
-**⚠️****我们不反疫苗，只针对假疫苗**
+#### 设计：波士顿五月花 科存
 
-**⚠️我们不反科学，只针对反人类**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵先生聊天直播要点01.png)
 
-**⚠️covid-19=新冠病毒=中共病毒**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵先生聊天直播要点02.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵先生聊天直播要点03.png)
+
+* * *
+
+*发布：霹雳鼠年*
 
  
 
