@@ -2,20 +2,36 @@
 ---
 
 
-## 喜币受多个法律管辖约束
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935610/)
+## 日本自卫队开始实施大规模疫苗接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935659/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-537.jpg)[图片来源](https://www.japantimes.co.jp/news/2021/07/02/national/sdf-covid-19-vaccination-sites/)
+1月31日消息，日本自卫队大规模疫苗接种将于31日从东京会场开始。随着感染的继续快速传播，将在多大程度上促进第3针疫苗的接种是政府关注的焦点。
 
-*发布：陶子*
+自卫队的大规模接种将在东京和大阪进行，东京会场将于31日在东京大手町的联合政府大楼开始，大阪会场则从1月7日起在大阪市中央区的“八木大厦”开始。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Moderna疫苗接种第3针条件：
 
+▽ 18 岁以上；
+
+▽ 有第三次疫苗接种券（政府提供的）；
+
+▽ 距第二次接种已间隔6个月以上的人。
+
+在东京会场，1月31号到2月5号，每天有720人总共有4320个接种名额。从接受预订开始大约9分钟内名额就被预约满了。从2月7日起，每日接种人数上限提高至2160人。此外大阪会场，计划从2月7日起每天接种960名。防卫省呼吁从官网进行预订，预计电话预约将难以接通。
+
+通过这则消息可以看出，日本政府在大力推广5-11岁儿童注射病毒疫苗之后，又大规模实施军队的疫苗接种。政府对于疫苗副作用的淡化和回避令人非常担心。此外，从预约开始9分钟接种名额就满了可以看出，日本民侄女对政府的信任导致日本社会的疫苗高接种率。据Our World in Data的统计显示，日本的疫苗接种率高达79.1%，远远高于全球平均水平的52.1%。可以预见，由疫苗引起的灾难将重创日本社会。
+
+由郭文贵先生领导的新中国联邦一直致力于向全世界讲述中共病毒和疫苗的真相。衷心的希望日本政府能够尽快的认清疫苗之恶，溯源中共病毒，停止病毒疫苗的推广，让日本民众早日回归到正常的生活秩序之中来。
+
+信息来源：
+
+[自衛隊のワクチン大規模接種 31日から3回目開始 東京](https://www3.nhk.or.jp/news/html/20220131/k10013457771000.html?utm_int=news-new_contents_list-items_025%20)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
