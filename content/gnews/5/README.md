@@ -2,10 +2,10 @@
 ---
 
 
-## 虎啸起，灭共时——一切已经开始
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939400/)
+## G系列是福
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939458/)
 
-设计者：纽约香草山设计部 — 喜马拉雅大喵儿
+设计者：纽约香草山设计部 — 上帝的平安， 哇大兄弟
 
 
 
@@ -18,7 +18,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Happy_Lunar_New_Year-_copy-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-_G2-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-_G-_copy-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-2021-2022-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-_copy-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-G-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-3.jpg)
 
 
 **编辑/发稿：小鹿**

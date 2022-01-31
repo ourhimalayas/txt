@@ -2,24 +2,28 @@
 ---
 
 
-## 文贵爆料 1.31：塞北的雪 灭共的雪
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1938373/)
+## GTV新闻访谈简报|2022年1月31日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1938487/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ba32f0be-0a8f-4993-9a27-b8e690cebf74.jpg)
-时代的沉淀总能赋予一首歌曲不同的意义，在2022年壬寅年新春大直播中，郭文贵先生以其特有的粗旷、苍凉的嗓音重新演绎了三首轻柔、抒情、婉转的老歌，唱出了他内心的伤痛、理想和信念。那飘飘洒洒、漫天遍野的塞北之雪，在他的歌声中也变成了灭共之雪。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-共产党如果不控制网络、控制老百姓，音乐就会戳穿他们的虚伪、官僚和欺骗。真正的音乐是发自内心的，是不会死亡的。邓丽君不属于任何党派，但说出了人最基本的要求——民主和人权，这就是音乐的力量。心中喜欢的、真实的、有益于别人的，就是好音乐。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-1-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-“甜蜜蜜”这首歌曲，没有任何政治倾向，只是生活，但中共还是要封杀它。邓丽君的歌曲永远不会过时，那一代人一听到她的歌曲，仿佛就回到了过去。只有找到了歌的灵魂的人，才能得到了欢愉，并不一定是写歌的人或唱歌的人。
+视频参看：[2022.01.31早GTV新闻访谈](https://gtv.org/video/id=61f7e3d696ba5d73e0bfe2d8)
 
-音乐也从来不是一方净土。希特勒和斯大林时期创造的音乐太有蛊惑性了。瓦格纳写的煽动反犹的歌曲，挑起了人们对犹太人的憎恨，最终造成了几百万犹太人被杀。斯大林感慨地说，瓦格纳一人顶千军万马，顶十个红军师。希特勒说，他一个人做到了一个国家做不到的事。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-郭先生还讲述了一位朋友教他如何唱“塞北的雪”的这首歌的一些技巧。之后，视频中再次播放了这首歌。”我爱你，塞北的雪，飘飘洒洒漫天遍野……我爱你，灭共的雪，轰轰烈烈、漫山遍野……”歌声在耳边经久回荡。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-27.jpg)
 
-参考链接：
-
-[2022年1月31日 文贵直播](https://gettr.com/streaming/prm988df17)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

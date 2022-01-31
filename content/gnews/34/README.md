@@ -2,29 +2,33 @@
 ---
 
 
-## 英国首相将于2月访问日本 协商共同对抗中共事宜
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1938305/)
+## 欧盟27国2月1日起全面解除疫情封锁政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1938307/)
 
-**撰稿：日本东京方舟农场  老孙**
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月28日，据相关媒体报道，欧盟理事会于近日发布了一则有关欧盟内部旅行的最新规定。当中指出，自2月1日起，游客只需携带中共病毒疫苗接种证明、康复证明或中共病毒阴性检测证明，即可在欧盟27个国家内畅行无阻，且无需经过隔离或额外的核酸检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-36.jpg)
+据悉，尽管目前整个欧洲的中共病毒感染率依然很高，但各国政府都迫不及待地想要重新开放。对此，欧盟的卫生官员表示，欧洲各国应立即结束那些会使旅行变得格外复杂的各种疫情限制措施。
 
-据多家媒体报导，英国首相鲍里斯·约翰逊（Boris Johnson）将在2月中旬访问日本，与日本首相岸田文雄举行领导级会谈。共同关注来自中共国政府的威胁，并在安全保障方面强化合作。
+此外，英国近日也宣布，将全面解除该国的限制措施并重新开放酒吧和餐馆。同时，当地也解除了针对民众佩戴口罩的法律要求，以及与游客入境相关的封锁政策。
 
-目前双方相关人员就访日相关事宜，已经进入最终协调阶段，两国领导人将于2月15日及16日进行为期两天的会谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-49.png)（图片取自路透社）
-会谈期间，两国元首将就强化两国关系和在印太地区的合作进行商议，密切关注来自中共国方面的威胁，并在安全保障方面强化合作。预计二人还将为推动日英早日缔结《互惠准入协定》(Reciprocal Access Agreement, RAA)而加速谈判。**   **
+于丹麦而言，该国也声明，将在2月1日前取消当地所有的防疫措施。而在1月31日之后，丹麦政府不再将中共病毒归类为社会危重疾病。
 
-《互惠准入协定》的意义在于简化因日本自卫队与英国军队实施共同训练等相关活动时，在对方国家停留时期的携带武器入境手续等，日本和英国去年10月已启动谈判。日本已在本月与澳大利亚签署《互惠准入协定》，英国将是第二个签约国。
+参考链接：[欧盟27国将在2月1日全面解封！旅行不用隔离不用检测？！](https://www.163.com/dy/article/GUQOEUR40552AOEM.html?f=post2020_dy_recommends)
 
-本月早些时候，日本首相岸田文雄已与美国和法国领导人进行了对话，并达成共识，将共同对抗来自中共政府的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-**参考链接**：
-1:[https://www.cna.com.tw/news/aopl/202201290052.aspx](https://www.cna.com.tw/news/aopl/202201290052.aspx)
-2:[https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220129-%E6%97%A5%E8%8B%B1%E5%B0%B1%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E7%BA%A6%E7%BF%B0%E9%80%8A2%E6%9C%88%E8%AE%BF%E6%97%A5%E5%B1%95%E5%BC%80%E5%8D%8F%E8%B0%83](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220129-%E6%97%A5%E8%8B%B1%E5%B0%B1%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E7%BA%A6%E7%BF%B0%E9%80%8A2%E6%9C%88%E8%AE%BF%E6%97%A5%E5%B1%95%E5%BC%80%E5%8D%8F%E8%B0%83)
+总编/编辑：飞虹
+校正/发稿：Fei797
 
-**撰稿：**老孙**
-编辑：**文顺**
-发布：**文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

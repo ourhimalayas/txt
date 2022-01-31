@@ -2,10 +2,10 @@
 ---
 
 
-## 新春快乐，灭共大吉！
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939388/)
+## 新中国联邦-新年快乐（二）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939403/)
 
-设计者：纽约香草山设计部 — 战友时光
+设计者：纽约香草山设计部 — 沙漠绿洲
 
 
 
@@ -18,7 +18,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-2-1-1.png-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-G-.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-3-portrait-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-portrait-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-1-1.jpeg)
 
 
 **编辑/发稿：小鹿**

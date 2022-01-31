@@ -2,31 +2,48 @@
 ---
 
 
-## 七哥谈修行（2022-01-27摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1939267/)
+## 英国国会议员计划对台湾进行国事访问以对抗中共
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1939339/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场 – 四季
 
-来源：郭先生2022-01-27直播08：31：07摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-第一批反应就在五月份左右。还有一个，明年是虎年，我对中国的大势乾坤、但奇门遁甲，七哥是很迷信的啊，很信的。再一个我认为地球运行的规则是有任何一种力量。中国的属相之说我一点不信，但中国的年份的定义和四季的划分，乾、门、艮、兑，对这些命数、阴阳，这我是懂的。否则盘古就不会变成“龟头”了。哈哈，你说这盘古变成“龟头”的力量有多大？你不要忘了，今年是虎年，它把龙头变成了“龟头”，龙虎相冲啊。然后它把龙头变成了“龟头”了，然后又在奥运村那儿接受全世界来搞这个开幕式啊。大家看着这个龙头变“龟头”了，龙就是中国的王子啊，太子啊，老大呀，皇帝呀，代表上天和人间勾兑的桥梁啊，象征啊，权力啊，金钱啊。它变成给包起来了，这个意义多大呀？战友们，你想想，你给它一千个亿它都不会给你干这事。如果它没有信咱，不相信七哥和爆料革命能把它干掉。它不相信盘古这个中轴线上龙头，我说让大家查查跟山西，跟昆仑山的关系，没人查出来。很难，查不出来，我告诉你，盘古龙头和毛泽东所谓他老家出生的地方，所有的绝妙数字就像盘古和中南海那个水蒸蛋，十公里一点都不差。就像法国一个哥们说：“Miles，我查了，exactly，Miles ，exactly，unbelievable”。我说：“对呀，不是我编的啊。不是郭骗子说的，是吧。” Exactly。你去看看去，盘古龙头和毛泽东所谓他的家的祖坟和山上，天然形成了决然的数字，这没有任何可以编排。还有更重要的，大家看看少林寺，跟五台山，跟真正的今天西安法门寺啥关系？所以呢我遇到过高人，就是我们那个，告诉我：人生绝处逢生。绝处不逢生就是你修行不够。站在悬崖这边是因为你怕掉下去，死亡。你物理你一定会掉下去，但是人，最终你会死。就像你面临跳下去会死亡一样，你如何跨过到对方彼岸呢？解决呢？解脱呢？那要靠你的实力和修行，天地之间对你的造化，是吧？你老杀人放火的，吃狗肉，怎么可能啊？全世界吃狗肉的，没有不穷，没有长寿的地方，我都查过，你告诉我是不是这样？
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+据[布莱特巴特新闻网](https://www.breitbart.com/politics/2022/01/31/british-parliamentarians-plan-taiwan-trip-in-defiance-of-communist-china/)1月31日报道，英国议会外交事务委员会的议员们正计划在2月底对台湾进行国事访问，以对抗中共。
 
-Gettr 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1164775737-640x480-1.png)ANTHONY WALLACE/AFP via Getty Images
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+英国议员们一直是中共专制政权直言不讳的批评者。2021年4月，英国议员在下议院批准了一项动议，宣布中共对新疆地区的穆斯林维吾尔族和其他少数民族实施了种族灭绝。
+
+英国政府已经禁止了中国电信公司华为进入英国的5G网络，并对中共镇压香港的民主抗议活动的行径提出强烈批评。英国认为这违反了1984年签署的《中英联合声明》。该声明是一份具有法律约束力的联合国文件，旨在保护香港的自由和自治，在英国于1997年将其前殖民地的控制权交给中共国后的50年里，不受共产主义统治。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
