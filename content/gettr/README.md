@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/31/2022 2:10 AM (UTC)`
+
+1/30/2022 Miles Guo: Politicians all over the world pushing toxic COVID vaccines will not end up well. When politicians in Europe, America, Canada, and Japan have to admit that the COVID vaccine is a disaster, then they will take the initiative to start a war to avoid being held accountable.<br/><br/>1/30/2022 文贵直播：全世界强推毒疫苗的政客都没有好下场，当欧美加日的政客们不得不承认疫苗是一场灾难后，他们会为了逃避追责而主动挑起战争！<br/>
+![img](https://media.gettr.com/group15/getter/2022/01/31/02/24b645eb-ccc6-3c57-b612-ea88ec563480/out.jpg)
+
+---
+
 `@miles 1/30/2022 12:51 PM (UTC)`
 
 1月30号：尊敬的战友们好．七哥将在1小时左右开始今天的七哥乱聊直播，今天只有我一个人．直播时间会在两小时左右，一切都已经开始！
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/27/2022 Miles Guo: Hope fellow fighters will not become big-headed. We must adhere to the belief that “only the truth prevails”. The CCP is doomed after the US granted the authorized departure to its embassy in Beijing. So, I hope my fellow Chinese will not become the CCP’s cannon fodder. Please leave Communist China ASAP if you can!<br/><br/>1/27/2022 文贵直播：希望战友们不要得大头症，我们要坚持唯真不破；美国驻北京大使馆被授权撤离之后，共产党已经结束了！请国内同胞们不要做中共的炮灰，能出来的赶紧出来！<br/>
 ![img](https://media.gettr.com/group25/getter/2022/01/28/05/c2c22816-c46f-1c8a-ebf5-24f4b19148fc/out.jpg)
-
----
-
-`@miles 1/28/2022 4:40 AM (UTC)`
-
-1/27/2022 Miles Guo: The authorized departure of the US embassy in Beijing will neither sever nor maintain the US diplomatic ties with the CCP. Instead, the US is going to destroy the CCP via “No Severance, No Contact”. The US may go back and forth in terms of the authorized departure of the US embassy, but the more that happens, the more times we are going to win. I have helped push Egypt to extort the CCP.<br/><br/>1/27/2022 文贵直播：美国大使馆的授权撤离既非绝交，又非断交，这是“不断不交”来弄死中共；美国可能会在撤离使馆上来回反复，但反复越多，我们就赢得越多；文贵帮助推动埃及敲诈了中共<br/>
-![img](https://media.gettr.com/group6/getter/2022/01/28/04/1e362266-7e06-45a7-d107-2a828eb7a4b6/out.jpg)
 
 ---
 

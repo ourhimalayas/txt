@@ -2,41 +2,36 @@
 ---
 
 
-## 英国和日本准备在2月中旬举行约翰逊-岸田峰会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1934857/)
+## 有声|WTO批准中共向美国征收奥巴马时期的补偿性关税
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935013/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1515554-1.jpg)日本首相岸田文雄于 2021 年 11 月 2 日在英国苏格兰格拉斯哥举行的联合国气候变化会议 (COP26) 上发表讲话。档案图片：Adrian Dennis摄/Pool /路透社
+配音：香草山巡管部– 文凯琳
 
-来自《日本网》（Nippon）2022年01月19日的报道，
+近日，世界贸易组织WTO通过了一项决议，允许中共向美国征收6.45亿美元的补偿性关税，此举立即遭到了华盛顿的抨击。
 
-摘要翻译：
+据悉，奥巴马时期与中共签署了22项产品协议，而此项补偿性关税的焦点集中在，美国是否可以将中共政府拥有多数股权的中国公司视为由中共国家控制。
 
-东京（路透社）—据《日经新闻》（Nikkei ）周六报道，英国和日本正准备于2月中旬在日本举行英国首相鲍里斯·约翰逊和日本首相岸田文雄间的峰会。报道称，约翰逊和岸田预计将讨论乌克兰危机，以及如何应对日益强大的中共国，但没有引述消息来源。
+美国认为，中国在补贴制成品并将其倾销到世界市场的同时，受益于世贸组织的更宽松待遇规则。世贸组织的规则曾用于“屏蔽中国的非市场经济实践，破坏公平和以市场导向为主的竞争”，目前这项规则亟待改善。
 
-英国驻日本大使馆和日本外交部没有立即回应置评请求，因为他们的办公室在周六关闭。
+原文链接：[WTO批准中共向美国征收奥巴马时期的补偿性关税](https://gnews.org/zh-hans/1926910/)
 
-这次峰会将是自去年11月第26次缔约方会议以来，两国领导人的首次会谈。报道补充说，英国和日本将根据英国的政治局势和日本中共病毒疫情的严重程度，来决定是否举行这次峰会。
+音频处理/发稿：Daxia
 
-**简评：**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-中共是乌克兰危机的间接推动者，中共向俄罗斯提供经济援助，使俄罗斯有能力向乌克兰边境部署武装部队。当欧美的注意力聚焦于乌克兰时，中共则可以将自己的魔爪伸向台湾。亚洲的日本与欧洲的英国协商探讨乌克兰危机，以及如何应对中共国的威胁表明，当代民主文明国家已经非常清醒的认识到当下所有问题的根源，包括病毒危机，罪魁祸首均是中国共产党，而解决这些问题的唯一方法就是灭掉邪恶的中共。日本作为亚洲最强大的国家，中共的眼中钉、肉中刺，除了积极主动的站出来，与西方国家联手阻止中共，才能自保，别无它法。
+**更多资讯，更多关注**
 
-新闻链接: [Britain, Japan prepare Johnson-Kishida summit for mid-February -Nikkei](https://www.nippon.com/en/news/reu20220129KBN2K301Q/britain-japan-prepare-johnson-kishida-summit-for-mid-february--nikkei.html)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*翻译/简评: kkoto(芬兰大灰狼)*
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*校对：Julia Win*
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

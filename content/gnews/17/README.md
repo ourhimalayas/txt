@@ -2,42 +2,26 @@
 ---
 
 
-## 有声|由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935023/)
+## 救人（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935062/)
 
-配音：香草山巡管部– 文凯琳
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/救人（二）-.jpg)
+她辩护，我的身份外国护照我都有，我的孩子就是不想生在中国。
 
+Miles郭为什么答应你百万美元，他想把我肚里的孩子给救出来，他不是想救我们。这哥们儿感动的不得了啊，他说你这太棒了，而且这人是典型的维族人，打完电话就告诉我说，我知道你会这么做的，但我没想要20万，我想你怎么得收个200万吧。而且我告诉你，为什么我要救维族人，我说现在维族人多生一个比汉族多生10个还重要。就这么简单，我没有任何见不得人的事，就这么简单。我做这个决定的时候，中间人说Miles你疯了，哪有100万美元的救人费呀，我说对不起，这个钱我是拿得起的，我可以找人来拿。这就像刚才说老江你卖掉72000个币，10块钱一个，是多少钱啊？72万是吧。还有一个我救人愿意花100万美元。
 
+这两件事不同的决定，你就看出我这个事情，做事的基础，为什么这么做。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-768x103-34.jpg)
+*发布：开智则立*
 
-
-
-《路透社》1月25日报道，由于美国政府无力阻止中共当局采取侵入性的大流行病控制措施，美国国务院正准备授权希望美国在华外交官及其家属离开中共国。
-
-两位熟悉这一问题的消息人士说，本周一（1月24日），美国大使馆已将这一请求送交华盛顿正式签署。因为在距北京冬奥会开幕不到两周之际，中共政府准备实施更严格的防疫限制令。 一位人士说，美国大使馆进行的一项内部调查显示，多达25%的工作人员和家属会选择尽快离开中共国。另一位人士说，在整个大流行病期间，大使馆领导层未能从中共那里获得有关美国外交官待遇的适当保证。
-
-原文链接：[由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国](https://gnews.org/zh-hans/1927080/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
