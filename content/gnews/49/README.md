@@ -2,33 +2,72 @@
 ---
 
 
-## 中日财经爆┃全球通胀油价攀升 经济陷入滞胀股市将崩盘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933693/)
+## 【Michael.Tonny专栏】Rubio等参议员提起冠状病毒起源验证调查与确定法案
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1932953/)
 
-撰稿：东京樱花团丨麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-2-1.png)
-[*图片来源*](http://fromnewworld.com/wp-content/uploads/2017/01/stock.jpg)
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+2022年1月10日，Rubio、Cramer等共和党参议员提起《冠状病毒起源验证、调查与确定法案》（[Coronavirus Origin Validation, Investigation, and Determination Act of 2022](https://senatorkevincramer.app.box.com/s/jg99e0fst27w90qbsqjsmnzeokb6z1vc)，简称COVID Act of 2022或新冠病毒法案），如果美国总统不能在本法案颁布之日起90天内证明中共国政府允许国际法医专家进入包括中国科学院武汉病毒研究所在内的武汉可疑实验室进行透明调查，美国总统将对中科院、中国共产党、解放军、国务院官员，以及起初涉及掩盖疫情的人士祭出制裁措施。
 
-在美国，作为通胀指标的消费者价格指数（CPI）在 2021 年 12 月同比上涨 7%，汽油价格在过去一年上涨了 50%，二手车价格上涨了 37%。对公民生活的影响尤其大，高油价提高了生产一切的成本，包括服装、肉类、蔬菜和水果。加上新冠疫情导致的劳动力短缺、物流停滞、房价飙升等因素，价格上行压力暂时不大可能减弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Bill-investigation-into-the-origins-of-COVID–19-at-suspect-laboratories-in-Wuhan.jpg)
 
-德国、法国等19个欧元区国家的CPI（2021年12月）也同比上涨5%，是1997年以来的最高涨幅。英国也同比增长 5.4%，为 30 年来最大增幅。 在新兴经济体巴西，价格将继续同比上涨 10% 以上。在日本，去年 12 月的 CPI 连续第四个月同比上涨 0.8%。 扣除生鲜食品后的核心 CPI 也上涨 了0.5%。 相关专家认为， 4月份之后，核心CPI将可能加速至1%左右。
+这一法案是由共和党参议员RUBIO、SCOTT、CORNYN、SCOTT、CRAMER、MARSHALL、DAINES、GRASSLEY、LANKFORD、SASSE、TUBERVILLE、HYDE-SMITH共同提起。
 
-在通货膨胀时期，对股票、房地产和商品的投资据说比现金更能“抵抗通货膨胀”，因为现金的价值在未来会被稀释。在美国股市中，由于资本过剩，资金继续流入，相关人员正在密切关注通货膨胀和由此产生的利率上升对市场的影响。
+中共向全世界发动生化武器战争的两年多来，中国共产党 (CCP) 一直在阻止所有试图揭露COVID-19真正起源的努力 。病毒起源于中共国武汉，但中共试图掩盖真相的企图导致全世界无数人死亡和遭受不必要的痛苦。显然，CCP只会回应来自美国和国际社会的一致压力。这一法案将迫使中共坐到谈判桌前。
 
-对于股票价格来说，经济增长率是一个积极因素，而利率和通货膨胀是消极因素。这里的利率是长期利率，它是各种利率的基准，如抵押贷款利率。目前美国的长期利率为1.7%（截至1月25日）。如果把美联储2%的目标通胀率（一定时期内的平均通胀率）加进去，约为3.7%左右。这与经合组织（OECD）预测的美国今年3.7%的增长水平相同。
+中共病毒溯源，是全球灭共，中共彻底灭亡的关键一步！
 
-但是，如果通货膨胀继续上升，利率上升，而经济增速低于此水平，那么对股价将会造成不利影响。此外，今年上半年美国股市的风险是高油价，这也是通胀的一个因素。1月19日，纽约WTI原油价格创下每桶86美元的七年新高，反映了产油国对增产的谨慎态度和中东地区的地缘政治风险。如果原油接近100美元水平，对通胀和经济恶化同时进行的“滞胀”的担忧将增加，宏观经济可能会看跌。 如果将其视为机会的投机者进行“卖空”，股市可能会崩溃。日本的股票也会受到通货膨胀的影响。就目前而言，企业能够暂且做到不把价格上涨转嫁到最终消费价格上，但能坚持多久，还有待观察。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
 
-信息来源：
+如果美国总统不能在本法案颁布之日起90天内证明中共国政府允许国际法医专家进入包括中共国科学院武汉病毒研究所在内的武汉可疑实验室进行病毒溯源透明调查，美国总统将实施以下制裁：
 
-[**米欧でインフレ加速  原油高の追い打ちで株価暴落も**](https://news.yahoo.co.jp/articles/d5b4ed0c43f2a25ca16bb633f359b483d4412f99)
+1.对个人的制裁
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+在中国科学院及其附属机构、研究所和实验室、地方分支机构和大学担任领导职务的个人；
 
+政府官员包括，中国共产党、中国人民解放军或国务院，包括其下属国家机关，如工信部、卫健委、中国疾病预防控制中心、外交部、应急管理部和公安部；
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/shi-li-shan-lu-bu-huan-jian.jpg)
 
+COVID-19病毒爆发初期参与了隐瞒的社会团体，知道病毒严重性、参与疫情爆发信息封锁以及阻碍对病毒溯源调查的相关人员。
+
+2.禁止联邦资金为在任何学术领域的美国和中科院研究人员提供资助，包括那些受雇于中国科学院下属研究所和实验室，中科院地方分支机构或大学，或由中科院和中科院资助创建或创办的中华人民共和国境内科技企业；
+
+3.领取联邦经费的美国研究人员或机构，也不得与中共国人员或机构合作进行病毒功能增强研究。
+
+具体制裁手段将包括冻结相关人士在美资产、禁止他们入境美国、撤销现有签证等。
+
+中共发动生化武器战争以来，已导致全世界3.73亿人感染，杀死566万人，仅仅过去28天内，全世界就有8,313万人感染。仅美国就有7,424万人被感染，死亡89万人。随后的COVID-19病毒疫苗，给全世界带来巨大的灾难。
+
+国际社会对中共病毒溯源的要求越来越强烈，中共不断造遥是美国制造并故意投毒！
+
+1月23日，中共媒体昆仑策发文《[中方制裁果然没错！新冠溯源有重大发现，“美投放病毒”传遍国际](http://www.kunlunce.com/ssjj/fl11/2022-01-23/158403.html)》，称“美国一直不肯配合国际专家进行调查”，“美国很有可能是新冠病毒的源头”，“拜登政府必须给予全世界人民一个合理的交代”，“中国蒙受了这么长时间的‘不白之冤‘，美国必须道歉！”。
+
+早在2021年8月18日，中共官媒人民日报和人民网就刊登文章《[美国科学家长期研究人工冠状病毒合成技术（深度观察）](http://world.people.com.cn/n1/2021/0818/c1002-32197375.html)》，称“国际舆论呼吁，为提高透明度，世界卫生组织应对德特里克堡生物实验室等进行调查，这一行动应被视为寻找新冠病毒起源的积极步骤”。
+
+2021年8月23日，中共外交部发言人汪文斌在回答澎湃新闻记者提问时说，“美国是重组病毒研究开展得最早、能力最强的国家，也是全球冠状病毒研究的最大资助者和实施方”，“只要调查巴里克团队及其实验室，就可以澄清对冠状病毒的研究有没有、会不会产生新冠病毒”，同时汪还公开质问美国，“美国什么时候邀请世卫专家到北卡大学生物实验室和德堡‘美国陆军传染病医学研究所’去进行调查呢？”
+
+中共对中共人民犯下滔天罪行，种族灭绝罪和反人类罪！中共在2019年底2020年初向全世界投放COVID-19病毒，发动生化武器战争，对全人类的继续生存造成巨大威胁。
+
+相信Rubio、Cramer等美国参议员的这一提案很快就会得到通过，最终将给美国人民和世界满意的答案。
+
+共惨党，你完了！Take Down CCP!
+
+参考资料：
+
+[Coronavirus Origin Validation, Investigation, and Determination Act of 2022](https://senatorkevincramer.app.box.com/s/jg99e0fst27w90qbsqjsmnzeokb6z1vc)
+
+[Coronavirus Origin Validation, Investigation, and Determination Act](https://www.cramer.senate.gov/news/press-releases/sen-cramer-colleagues-introduce-bill-to-sanction-beijing-for-obstruction-of-covid-origins)
+
+[2021年8月23日外交部发言人汪文斌主持例行记者会](https://www.mfa.gov.cn/web/wjdt_674879/fyrbt_674889/202108/t20210823_9177433.shtml)
+
+[美国科学家长期研究人工冠状病毒合成技术（深度观察）](http://world.people.com.cn/n1/2021/0818/c1002-32197375.html)
+
+[中方制裁果然没错！新冠溯源有重大发现，“美投放病毒”传遍国际](http://www.kunlunce.com/ssjj/fl11/2022-01-23/158403.html)
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

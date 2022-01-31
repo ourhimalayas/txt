@@ -2,64 +2,39 @@
 ---
 
 
-## 樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935328/)
+## 法囯民众示威，呼吁政府抵制冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935102/)
 
-编译：东京樱花团/Hopkins
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-（内容摘要）
+整理/编辑：小红帽
 
-• 北京冬奥会与希特勒 1936 年在柏林的奥运会有很多相似之处
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122.png)图片来源：雅典娜设计组
 
-• 2 月 4 日的活动笼罩在争议和抵制威胁中
 
-• 维吾尔人和其他少数民族声称他们面临赛前镇压
+根据《自由亚洲电台》1月30日报道，1月29日，几百名法国、维吾尔、西藏、香港等民众集聚到法国外交部旁广场，呼吁法国政府抵制北京冬季奥运。
 
-• 流亡的家庭成员说他们现在与亲人完全隔绝
+示威人员指出，中共压迫各地人民，违反民主与奥运精神，不配主办奥运，要求法国政府不要派代表出席北京冬奥会。
 
-• 在国际事件之前让少数族裔保持沉默是中共的一种策略
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-534.jpg)
-(图片说明)西方民主国家一直在激烈争论是否要完全抵制这一有争议的事件，就像他们在 1936 年柏林夏季奥运会之前所做的那样
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-115.jpg)
-(图片说明)早在 30 年代，随着希特勒的法西斯政权作为一个全球大国崛起，争论的焦点是德国对犹太人的可恶待遇，以及参加奥运会是否会使竞争国家在某种程度上受到指责。图：希特勒在 1936 年柏林奥运会上
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-60.jpg)
-(图片说明) “他想展示雅利安人的至高无上——但当然，美国黑人运动员杰西欧文斯（如图）“单枪匹马粉碎了希特勒的雅利安霸权神话”，赢得四枚金牌，”巴卡博士说
+在场的法国“公共广场”（Place publique）青年部与社会党（PS）、欧洲生态绿党（EELV）等法国政党，以及10多个维吾尔、西藏、香港、越南等公民团体一起呼吁抵制北京冬奥会。
 
-“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够重视？” ——拉米拉·查尼舍夫
+欧洲议会议员格鲁克斯曼（Raphaël Glucksmann）出席了示威活动并表示：“我们看到出席奥运的领导人名单，大多是国际上独裁国家领袖的相互支援，法国并不属于这类范畴的国家。法国有民主人权，不应该为中共政权的宣传行动背书。我们无法接受，因为维吾尔、西藏、民主香港都被压迫，台湾也面临威胁。”
 
-现居住在阿德莱德的澳大利亚维吾尔唐格里塔妇女协会(Australian Uyghur Tangritagh Women’s Association)主席拉米拉·查尼舍夫(Ramila Chanisheff)向《每日邮报》澳大利亚透露，海外维吾尔人“与他们的朋友和家人失去了完整的沟通”。
+法国总统候选人、前司法部长陶比拉（Christiane Taubira）也抵达会场并发言，维吾尔族的确面临种族灭绝的行为，不仅希望透过外交力量敦促国际组织进行调查，也强调无法接受法国派出官方代表出席北京冬奥会。
 
-她说：“过去，很多维吾尔人能够与家人交谈，但在过去六个月左右的时间里，他们一直被切断了联系。”
+期间，欧洲维吾尔学院主席、旅法维族人代表迪丽努尔·热依汗（Dilnur Reyhan）和《中国古拉格幸存者》一书的作者古巴哈·海蒂瓦吉（Gulbahar Haitiwaji）也出席了示威活动以反对法国参加冬奥会。
 
-这也发生在2008年北京夏季奥运会之前，是专制政权在任何重大事件之前的常用策略。
+新闻链接：[法囯民间组织示威 呼吁政府抵制北京冬奥](https://www.rfa.org/mandarin/yataibaodao/huanjing/cl-01302022171829.html)
 
-查尼舍夫女士说：“人们被警告不要发声，也不要与海外任何人交流，这样外界就不知道那里真正发生了什么。”
+发布：*tianzhihuan*
 
-“我的表弟被关押在劳教所，每周只出来看望他的妻子和孩子，然后被带回。但每次他出去时，我都会试着打电话看看他是否还好，但我们被告知他不在。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-“一个正在犯下种族灭绝罪行的国家怎么能被授予一项享有盛誉的体育赛事？
-
-“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够的重视？”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-50.jpg)
-(图片说明)据估计，有超过一百万维吾尔人被围捕并投入劳改营，在那里他们面临酷刑、国家支持的器官摘取甚至绝育的威胁，联合国和各种人权组织声称。图为：习近平在山西省北京冬奥会前与居民打招呼，合影留念
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-35.jpg)
-(图片说明)中国张家口，2022 年冬奥会前夕，一名单板滑雪运动员在赛场训练中进行跳跃
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-33.jpg)
-(图片说明)中国张家口 2022 年冬奥会前，一名工人飞过赛道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-31.jpg)
-(图片说明)中国张家口 2022 年冬奥会前，三名滑雪者在赛场上训练
-
-（未完待续）
-
-作者：LEVI PARSONS/澳大利亚每日邮报
-
-信息来源：
-
-[How Beijing’s 2022 Winter Olympics ‘sportswashing’ propaganda mirrors Hitler’s 1936 efforts in Berlin – as desperate Uyghurs speak out about China’s brutal pre-Games crackdown on minorities](https://www.dailymail.co.uk/news/article-10447673/How-Beijings-2022-Winter-Olympic-sportswashing-propaganda-mirrors-Hitlers-1936-efforts-Berlin.html)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

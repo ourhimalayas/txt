@@ -2,37 +2,104 @@
 ---
 
 
-## 从924空战浅谈空对空导弹 （上）
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/1931166/)
+## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
 
-**作者**：AWAC （新西兰伊甸农场）
+[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
 
-上传：文斌（新西兰伊甸农场）
+**Steve Bannon
+史蒂夫·班农**
 
-**摘要:** 924空战又称温州空战, 是台海两岸历史上的最大规模空战, 也是人类现代空战史上的第一次空对空导弹实战， 在此次战役中，中共意外获得了未爆炸的美军响尾蛇空空导弹，并将导弹残骸转移前苏联，前苏联由此开发出了R13空空导弹。数年后中共在R13基础上也仿制出了霹雳2导弹。924空战直接导致美军当时最先进的响尾蛇导弹在东方被克隆出了孪生兄弟，也从此拉开了东西方航空大国竞相研制空对空导弹的序幕。本文从924空战说起，谈谈东西方现代空空导弹的基本发展脉络，以及中共的空空导弹发家史。
+I want the people
+我希望人们
 
-924空战又称温州空战，是台海两岸历史上的最大规模空战， 也是人类现代空战史上的第一次空对空导弹实战。
+also the here’s the more fundamental thing for people in the audience right now
+也对现在观众中的人们来说这是更基本的事情
 
-1958年，美军向台湾转移了总共40枚刚刚研制成功不久的AIM9-B响尾蛇空空导弹，装备在台湾空军当时比较先进的F86佩刀战斗机上。 9月24日, 台湾空军派出了RF-84侦察机在温州湾上空实施侦察任务, 同时有18架F86战机分不同空层进行掩护。 其中有4架F86携带了8枚响尾蛇导弹。中共方面在探测到台军机群后立即派出三波机队升空迎击， 其中包括苏制米格-17战斗机，歼-5以及米格15。共军准备不足，损失惨重。根据中共网络报道，飞行员王自重与台军12架战机近距离缠斗5分钟，击落两架台军飞机后被6枚响尾蛇导弹围攻击落。根据台湾方面记载，两波空战台军用机炮和响尾蛇导弹共击落9架共军米格17，并可能击落2架，击伤一架, 台军方面无损伤。在空战的过程中，有2-3枚 （一说4枚）响尾蛇导弹未爆炸，在燃料耗尽后坠落地面被共军获得。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-174.png)
-中共在获得响尾蛇导弹完整残骸后,立刻对其展开了仿制测绘工作，项目代号55号任务，在大跃进思潮的感召下上级要求有关单位在当年年底就复制出一枚实验弹。可当时中共国的工业基础十分薄弱，仿制工作进行得相当不顺利。当时苏联也得知中共获得了美军最先进空空导弹残骸，时仍苏共总书记赫鲁晓夫反复向中共索取导弹残骸，但被几次致函都没有得到回复。最好苏方施压，停止了包括中程弹道导弹在内的多项对华技术援助，中共方面才向苏联转移了响尾蛇导弹的部分残骸，据说中方最后还私藏了导弹红外传感器。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-63.png)
-*中共获得的AIM-9B残骸*
-*图片来源： 网络*
-但苏联毕竟还是老大哥，凭借着其强大的工业实力，在短短两年之内就完成了AIM-9B的全部逆向仿制工作， 苏联的仿制产品名为R13, 北约代号AA-2环礁。据说当时还有一位叛变的瑞典空军上校向苏联出售了早期响尾蛇导弹的全套图纸，所以早期批次的R13导弹连配件编号都是沿袭了响尾蛇导弹的零件号， 甚至早期的R13也完全沿袭了AIM-9B响尾蛇导弹的一些技术缺陷。1961年，苏联将R13导弹全套技术资料连同米格21-13型战斗机一起转移给中共，中共用了5年的时间进行仿制消化，终于在1967年成功研制出了国产红外制导空空导弹霹雳2， 并配备歼6和歼7战机。而此时，美军已经开始装备第二代的响尾蛇导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-39.png)
-*中苏仿制AIM-9B的历史， 仿制再仿制*
-924空战直接导致美军当时最先进的响尾蛇导弹被克隆出了红色孪生兄弟，也从此拉开了东西方航空大国竞相研制空对空导弹的序幕。 苏联在AIM-9B的技术基础上改善了红外制导装置的冷却性能，和AIM-9B一样早期R13的红外制导头呈半球形，空气阻力大，不适合60年代的超音速战斗机，因此苏联在后期产品上修改了制导头的气动外形，甚至还研制出了半主动雷达制导型号。在AIM9-X出来之前，美国人在响尾蛇导弹家族的研制思路上走的也是这样的 “换头大法” 。既在不更改导弹整体气动外形的前提下，更换导弹引导头，来实现性能提升和不同军种的需求。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片4-24.png)
-*AIM-9响尾蛇导弹发展史*
-前苏联在掌握AIM-9原理后很快就另起炉灶，在冷战期间发展了多个型号的中近程空空导弹。比较有名并实现大规模装备的就是R60，R73近程红外制导空空导弹对应美军AIM-9响尾蛇系列，中程拦截弹则有R27系列和R77.  对应美军的AIM-7麻雀和AIM-120系列。众观整个冷战期间的美苏空空导弹设计，我们可以发现一个有趣的现象，前苏联的现代空空导弹型号繁多，气动控制面比较复杂，弹翼形状各异，相比之下美军的现代中近程空空导弹只有3个主要型号，每个型号的升级换代并没有涉及到明显的气动外形的改变， 就拿响尾蛇导弹来举例，从A型发展到M型，那么多年过去了，长得还是那个样， 那个尾部弹翼上的机械式空气陀螺舵最终在9X上才被取消。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-220325.jpg)
-*在响尾蛇导弹上延续了几代的空气陀螺舵*
-后来的麻雀导弹和AIM-120走得也是这个路线，换代不换气动。 这是得益于西方的先进航空电子和飞控技术，使得导弹可以通过内部的硬件和软件升级完成跟新换代和性能提升，而前苏联在飞控技术相对落后的情况下，想提高导弹性能就必须不断优化气动外形和增加额外的控制翼面来达到预期效果。前苏联在电子技术相对落后的情况下，集中资源把功夫花在空气动力学上，以获得与北约阵营同等性能的导弹，这是不得已但也是明智之举。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片5-11.png)
-*前苏联在飞控技术相对落后的情况下，想提高导弹性能就必须不断优化气动外形和增加额外的控制翼面*。
+other than capital markets
+除了资本市场，
+because capital markets are reactive to this
+因为资本市场对此有反应
 
-***(未完持续)***
+You’ve had these cheerleaders like Jim Cramer and others,
+你有像吉姆·克莱默和其他人这样的啦啦队员，
+
+Jamie Dimon up there,
+杰米·戴蒙在那里
+
+cheerleading for Biden’s economic plan
+为拜登的经济计划做拉拉队，
+
+which we said is a disaster
+我们说这是一场灾难
+
+And Kramer was on TV said the greatest economy in his life in his life.
+克莱默在电视上说是他一生中最伟大的经济
+
+Just a couple of weeks ago
+就在几周前
+
+This is right now getting oil at $85 a barrel. Right?
+现在的油价是每桶85美元，对吧？
+
+Yeah, they’re about to announce
+是的，他们即将宣布
+
+they’re going to redo the forecast for the first quarter slowing GDP
+他们将重做第一季度GDP放缓的预测
+
+There’s you could see that yesterday
+昨天你可以看到
+
+The reason Goldman Sachs is so important of missing the earnings
+高盛失去收益如此重要的原因
+
+Why is that important?
+为什么这很重要？
+
+Why do we focus on that?
+我们为什么要专注于此？
+
+Because in this complex financial capital market driven world
+因为在这个复杂的金融资本市场驱动的世界里
+
+who would have a better understanding of it than Goldman Sachs
+谁能比高盛更了解它
+
+when they miss earnings that badly that is bad
+当他们严重失去收入时，这很糟糕
+
+everybody in the world capital markets say
+世界资本市场上的每个人都说
+
+and hi the Goldman guys missed it this badly?
+嗨，高盛的人的损失这么的糟糕？
+
+It’s worse than we thought
+比我们想象的还要糟糕
+
+Okay, that’s why the stocks off so much.
+好吧，这就是为什么股票下跌这么多
+
+* * *
+
+Date:01/19/2022
+原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
+当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
+原视频日期：2022/01/18
+原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
+任务编号：KE361(3538)
+视频时间段 : 0:00-0:59
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

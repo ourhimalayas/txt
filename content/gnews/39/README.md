@@ -2,47 +2,31 @@
 ---
 
 
-## 中共腐败现实每况愈下
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935343/)
+## GTV新闻访谈简报|2022年1月30日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1935239/)
 
-作者：纽约磐石农场—在远方
+作者：香草山翻译部
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-9.png)
+校对：Stay文苑
 
-1月30日，“国际透明组织”公布了2021全球廉洁指数，针对180个国家和地区的政府部门的腐败程度进行排名，其中中共国排名第66，低于亚太地区平均水平。
+编辑：Stay文苑
 
-据悉，国际透明组织自1995年起，开始对世界各国贪腐情形进行追踪调查，发现许多国家反腐行动不但没有进展，甚至发生倒退现象。尤其是中共国，由于缺乏有效监督机制，中共从上至下，大量盗国贼及其家属，将海外视为窝藏贪腐所得的据点，并且中共国没有自由言论空间，当权者禁止政治改革，而所谓反贪腐打虎拍蝇行动，都是为了打击异己的手段而已。
+发稿：Stay文苑
 
-另外，该组织还发现，中共国以所谓外援的形式，将政府腐败的行为输出，让一些弱势国家的贪腐情况更为严重。分析人士指出，中共的独裁专制并非只是制度的优劣，更加能对民主国家带来制度侵害。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-9.jpg)
-参考信息：
-[習近平打虎拍蠅反貪無效 廉潔指數排名低於亞太國家平均水平](https://cn.rti.org.tw/news/view/id/2123296)
+视频参看：[1.30  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f73bab96ba5d73e0bf73ca)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：飞虹
-编辑：文特
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-27.jpg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 
 

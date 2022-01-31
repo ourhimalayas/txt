@@ -2,79 +2,49 @@
 ---
 
 
-## 樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（四）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935451/)
+## CDC最新研究：接种中共病毒疫苗导致心肌炎风险超百倍
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935344/)
 
-编译：东京樱花团/Hopkins
+作者：纽约香草山 – 侠肝义胆
 
-（内容摘要）
 
-• 北京冬奥会与希特勒 1936 年在柏林的奥运会有很多相似之处
 
-• 2 月 4 日的活动笼罩在争议和抵制威胁中
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-• 维吾尔人和其他少数民族声称他们面临赛前镇压
 
-• 流亡的家庭成员说他们现在与亲人完全隔绝
 
-• 在国际事件之前让少数族裔保持沉默是中共的一种策略
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-536.jpg)
-（图片说明）巴格卓先生告诉《每日邮报》澳大利亚，运动员、组织者和那些在电视上收看为祖国加油的人不应该相信北京的宣传。图为：德国的自由西藏抗议活动
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-117.jpg)
-（图片说明）印度藏族学生高举呼吁抵制2022年北京冬奥会的标语牌
+1月25日，美国医学会杂志在网站发布了一项最新研究，由美国疾病预防控制中心CDC以及来自美国几所大学和医院的相关人员完成，研究显示，接种MRNA疫苗后产生心肌炎的风险增加133倍。
 
-谁是中国穆斯林？
-穆斯林在中国并不是一个新的存在。根据智库皮尤研究中心的数据，中国的大多数穆斯林社区，包括回族、维吾尔族和哈萨克族，已经在中国生活了 1000 多年。今天穆斯林最集中的地方是新疆、宁夏、青海和甘肃等西部省份。大量穆斯林生活在北京、西安、天津和上海等城市。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-62.jpg)
-（图片说明）在中国北京的牛街清真寺，中国穆斯林男子参加庆祝穆斯林节日、宰牲节或穆斯林祭祀的聚会
+该研究使用疾控中心的VAERS报告系统获得数据，分析了辉瑞和Moderna疫苗的接种效果。这些数据经过了交叉检查，以确保它们符合疾控中心对心肌炎的定义。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-12.jpg)
+鉴于大量研究证实了疫苗接种与心肌炎之间的联系，美国疾控中心已开始积极监测青少年和年轻人在接种疫苗后心脏相关事件后的进展。
 
-他们约占中国 14 亿人口的 2%。然而，由于该国人口众多，其穆斯林人口预计将在 2030 年成为世界第 19 大人口。
+与此同时，美国心脏协会和美国心脏病学院建议，心肌炎患者在三到六个月内应避免剧烈运动，此外，他们特别建议心肌炎患者暂缓继续接种mRNA疫苗。
 
-中国的穆斯林人口预计将从 2010 年的 2330 万增加到 2030 年的近 3000 万。
+参考信息：
+[New study: 133x risk of myocarditis after COVID vaccination](http://New%20study:%20133x%20risk%20of%20myocarditis%20after%20COVID%20vaccination)
 
-那些在汉族人占主导地位的地方长大和生活的人对伊斯兰教——或一般的宗教——知之甚少，因此将其视为一种威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-北京的决策者主要是汉族。
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-与此同时，激进的穆斯林维吾尔人近年来已经杀害了数百人，导致中国采取更加极端的措施来镇压潜在的分裂运动。
+**更多资讯，更多关注**
 
-据英国《金融时报》报道，在 2009 年乌鲁木齐发生一系列致命骚乱后，维吾尔人长期以来一直习惯于严格限制着装、宗教活动和旅行。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-学童被禁止在斋月期间禁食和参加宗教活动，而父母则被禁止给新生儿起穆斯林名字，例如“穆罕默德”和“圣战”。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-伊斯兰教的某些象征，如胡须和面纱，也被禁止。有时不允许戴面纱的女性乘坐公共汽车。未经授权前往麦加朝圣也受到限制。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-1936 年柏林与 2022 年北京：有何相似之处？
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-两届奥运会都将由全球实力日益增强的高度威权国家举办。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-尽管对人权问题和犹太人口待遇的强烈反对，柏林奥运会还是如期举行。
 
-北京的冬奥会面临着类似的强烈反对，该国的维吾尔人以及西藏人和其他各种少数民族受到可怕的迫害。
 
-阿道夫·希特勒试图利用奥运会作为宣传机会，使他的法西斯政权合法化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-中国国家主席习近平将尝试做同样的事情，批评者称之为粗暴的“体育洗白”。
-
-什么是体育洗白？
-
-“体育洗白”一词是指利用体育作为宣传工具来提高国家、公司或个人声誉的做法。
-
-人权记录不佳的国家通常会寻求举办大型国际体育赛事，希望借此掩盖他们对少数群体的待遇并提高他们在世界上的外交地位。
-
-当有黑幕的公司或个人赞助运动队或赛事以赢得社区或政府的青睐时，也会发生体育洗白。
-
-（全文完）
-
-作者：LEVI PARSONS/澳大利亚每日邮报
-
-信息来源：
-
-[How Beijing’s 2022 Winter Olympics ‘sportswashing’ propaganda mirrors Hitler’s 1936 efforts in Berlin – as desperate Uyghurs speak out about China’s brutal pre-Games crackdown on minorities](https://www.dailymail.co.uk/news/article-10447673/How-Beijings-2022-Winter-Olympic-sportswashing-propaganda-mirrors-Hitlers-1936-efforts-Berlin.html)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  

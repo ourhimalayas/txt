@@ -2,54 +2,22 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月24日-1月30日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935348/)
+## 联俄两线开火各取所需 中共加速全球自动灭共进程
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935294/)
 
-作者：纽约香草山金融部 – ILOVE战神
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-533.jpg)
+2022年1月30日郭文贵先生直播爆料：
 
+普京和习近平原本说好，普京取乌克兰和习近平取台湾，各取所需。现在，乌克兰找到美国，到瑞士会谈。俄罗斯提出把天然气管道放到欧洲，这相当于插到了欧洲的一个输钱管道，俄罗斯GDP将会翻翻。普京另一要求，欧盟书面放弃东扩，来换取不攻打乌克兰。中共国如果打台湾，会被国际制裁，GDP会从15万亿美元会降到5万亿美元，而且美国欧洲会参战，到时中国老百姓的孩子至少死50万。现在军队没有人相信会真打台湾，也没有人认为有必要打台湾。习近平的政治智商连普京的尿壶都不如，无论打不打对俄罗斯都会有利益，只是多少的问题，然而对于习近平，却无异于自杀！
 
+现在，笔者认为如果普京进攻乌克兰，习近平去打台湾，对于有极高政治智慧的普京来说将是弊大于利！因为邪恶的中共一旦拿下台湾，美国会退出亚洲，日本就彻底完蛋了，美元时代就此结束，中共习近平将会变成世界的霸主，强大的中共习近平定会背信弃义，转过头来会对付俄罗斯，因为未来俄罗斯会是其未来的首要威胁！所以，普京不会傻到顶着西方的强力制裁和战争，为中共做嫁衣！相信普京会同西方合作一起干掉中共习近平，这样才能得到更大的利益，现在大声音嚷嚷无非就是向西方要个高价罢了！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+随着疫苗灾难到来，会让疫苗强制令的美欧政客彻底曝光，美欧等西方政客为了自保，转嫁责任，必将与俄罗斯联合在一起共同灭共！战友们，郭文贵先生早就警示的，全球自动灭共即将到来……
 
-
-
-过去一周喜马拉雅币价格加速攀升至50美元上方，最高涨幅约24%，平均日交易量约11万5千枚喜币。喜币上市以来总交易量约2670万枚 ，占今年总发行量的仅约2.67%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture3-3.png)
-本周四，一篇来自英国金融科技资讯网站TechBullion的文章提到，喜交所是业内第一个运用人工智能技术识别人体行为与生物特征并与冷钱包安全措施相结合的加密货币平台。文章指出这一设计使喜交所的安全性达到业内最高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-4.png)
-本周据郭文贵先生在大直播中透露，喜交所拥有世界上最好的KYC制度，目前有50亿美元现金正在等待KYC后进场。之后还会有上千亿美元进入。目前已经有六大品牌提前宣布接受喜币购买商品。喜支付上线后会有更多商家进场。随着喜支付的逐渐推广，会有金融机构开始接手相关业务，下一步会有国家主权机构接受并投资喜币，之后喜币将改变这个世界。
-
-郭先生还表示，喜支付会在春节甜蜜蜜运动期间上线，会把中共插在中国人民身上的血管改变方向，转而插到中共盗国贼自己的身上。
-
-本周五喜交所进行了11小时的维护升级，并更新了官网的喜支付页面。目前官网已经提供了喜支付APP苹果与安卓版本的下载链接，预计在未来几天内可以开始使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-17.jpg)
-参考信息：
-1. [Safeguarding Digital Assets in an Increasingly Intangible World](https://techbullion.com/safeguarding-digital-assets-in-an-increasingly-intangible-world/)
-2. [HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

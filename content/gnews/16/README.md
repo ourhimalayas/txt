@@ -2,19 +2,18 @@
 ---
 
 
-## 新中国联邦想不赢都不行
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1937017/)
+## 德法斡旋 俄乌同意维持乌东停战下月续谈
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/1937019/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+[撰稿日期]：2022.1.27
 
-*发布：陶子*
+[署名]：台湾宝岛农场dobi
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[新闻连接]： 《https://udn.com/news/story/122663/6064108?from=udn-catebreaknews\_ch2》
+
+
+
+据台媒报导，俄罗斯和乌克兰今天透过巴黎会谈对乌东达成停火协议，协议中联合声明承诺俄、乌双方「无条件遵守停战」。惟因俄罗斯仍可能入侵，所以各方仍保留继续讨论的空间。而法国外交人员表示，这场停火会谈是透过德法两国居中斡旋；德国政府消息人士随后也证实，下一轮谈判预计于2月第2周在柏林举行。
 
  
 
