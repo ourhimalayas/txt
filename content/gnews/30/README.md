@@ -2,92 +2,43 @@
 ---
 
 
-## 全球疫情更新（研究揭示“疫苗”阻碍DNA损伤修复）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1934647/)
+## 英国和日本准备在2月中旬举行约翰逊-岸田峰会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1934857/)
 
-**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1515554-1.jpg)日本首相岸田文雄于 2021 年 11 月 2 日在英国苏格兰格拉斯哥举行的联合国气候变化会议 (COP26) 上发表讲话。档案图片：Adrian Dennis摄/Pool /路透社
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2529.png)
+来自《日本网》（Nippon）2022年01月19日的报道，
 
-图片：雅典娜农场设计组 精灵蓝
+摘要翻译：
+
+东京（路透社）—据《日经新闻》（Nikkei ）周六报道，英国和日本正准备于2月中旬在日本举行英国首相鲍里斯·约翰逊和日本首相岸田文雄间的峰会。报道称，约翰逊和岸田预计将讨论乌克兰危机，以及如何应对日益强大的中共国，但没有引述消息来源。
+
+英国驻日本大使馆和日本外交部没有立即回应置评请求，因为他们的办公室在周六关闭。
+
+这次峰会将是自去年11月第26次缔约方会议以来，两国领导人的首次会谈。报道补充说，英国和日本将根据英国的政治局势和日本中共病毒疫情的严重程度，来决定是否举行这次峰会。
+
+**简评：**
+
+中共是乌克兰危机的间接推动者，中共向俄罗斯提供经济援助，使俄罗斯有能力向乌克兰边境部署武装部队。当欧美的注意力聚焦于乌克兰时，中共则可以将自己的魔爪伸向台湾。亚洲的日本与欧洲的英国协商探讨乌克兰危机，以及如何应对中共国的威胁表明，当代民主文明国家已经非常清醒的认识到当下所有问题的根源，包括病毒危机，罪魁祸首均是中国共产党，而解决这些问题的唯一方法就是灭掉邪恶的中共。日本作为亚洲最强大的国家，中共的眼中钉、肉中刺，除了积极主动的站出来，与西方国家联手阻止中共，才能自保，别无它法。
+
+新闻链接: [Britain, Japan prepare Johnson-Kishida summit for mid-February -Nikkei](https://www.nippon.com/en/news/reu20220129KBN2K301Q/britain-japan-prepare-johnson-kishida-summit-for-mid-february--nikkei.html)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-雅典娜疫情更新（2022年 1月30日）
+编辑：【英国伦敦喜庄园编辑部】
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**一，全球疫情基本数据**
 
-感染总数：371,662,787（日新增3,200,292，14天增幅+8%）
-
-死亡总数：5,654,065（日新增8,900人，14天增幅 +22%）
-
-**二，全球“疫苗”毒针统计数据**
-
-“疫苗”毒针注射总数：101亿
-
-完全“接种”：40.6亿人
-
-完全“接种”百分比：52.1 %
-
-**三，澳洲疫情和“疫苗”数据**** **
-
-感染总数：2,826,941（今日新增36,373人）
-
-死亡总数：3,716人（今日新增 85人）
-
-每万人感染人数：996.782人
-
-“疫苗”毒针注射总数：49,572,846 （今日新增174,045  针）
-
-完全“接种”：19,237,151人
-
-第二针“接种”百分比：78.6%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.3%
-
-加强针总数：7,699,044（日新增：130,192针）
-
-**四，瑞典发表论文显示刺突蛋白阻碍DNA损伤修复，抑制后天免疫**
-
-[CDC的官网](https://chinese.cdc.gov/coronavirus/2019-ncov/vaccines/different-vaccines/mrna.html)介绍疫苗毒针时给刺突蛋白加了一个“无害”的定语，其实这是公然的撒谎。关于中共病毒的分子生物学致病机理的研究论文最常见就是关于刺突蛋白对人体的毒性作用研究。之前[我已经分享过](https://gnews.org/zh-hans/1406764/)很多相关论文阐述了刺突蛋白能诱发线粒体损伤，自身免疫病，神经退行性疾病甚至癌症。最近[瑞典斯德哥爾摩大學和优密欧大学的华裔学者在《病毒》杂志发表论文](https://www.mdpi.com/1999-4915/13/10/2056/htm)，揭示刺突蛋白能够进入细胞核，显著抑制DNA损伤修复，发现了刺突蛋白阻碍适应性免疫的潜在分子机制，还罕见的在论文中强调了这揭示了全刺突蛋白疫苗的潜在副作用，这实际上是不点名的针对辉瑞，莫德纳，阿斯利康等所有全刺突蛋白疫苗。
-
-在[之前的疫情更新](https://gnews.org/zh-hans/1801715/)中，我们提到了[丹麦研究](https://t.co/A8gp5cTnYR)显示，两种“疫苗”辉瑞和莫德纳注射90天后，它们对奥米克戎毒株有效性都降低到了分别为-39.3%和-76.5%，也就是说，比不打疫苗者更加容易感染！实际上这意味着，这些毒针注射虽然在几个星期内也许能够暂时提高对中共病毒的免疫力，但是90天后其免疫力就大幅下降到比不打疫苗低得多的水平，这实际上也就意味着这些毒针已经严重损害了患者的免疫力。
-
-而这篇瑞典研究则发现了这些刺突蛋白疫苗损害适应性免疫，也就是后天免疫的重要机制：阻碍DNA修复。
-
-免疫和 DNA 修复系统是高等生物防御各种威胁和组织稳态的主要系统。新出现的证据表明，这两个系统是相互依赖的，尤其是在淋巴细胞发育和成熟期间，DNA 修复系统发挥了关键的作用。而适应性免疫在对抗中共病毒感染方面发挥着至关重要的作用，并直接影响患者的临床结果。临床研究表明，患有严重 COVID-19 的患者表现出延迟和较弱的适应性免疫反应。
-
-然而，SARS-CoV-2 阻碍适应性免疫的机制仍不清楚。这个研究中通过使用体外细胞系，发现 SARS-CoV-2 刺突蛋白显著抑制 DNA 损伤修复，由此阻碍了淋巴细胞的发育和成熟，从而损害了适应性免疫系统。学者们发现刺突蛋白能进入细胞核并通过阻止关键的 DNA 修复蛋白 BRCA1 和 53BP1 募集到损伤部位来抑制 DNA 损伤修复。研究结果揭示了刺突蛋白可能阻碍适应性免疫的潜在分子机制，并强调了刺突蛋白疫苗的潜在副作用。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

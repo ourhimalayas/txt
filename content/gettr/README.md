@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/31/2022 2:20 AM (UTC)`
+
+1/30/2022 Miles Guo: Putin’s invasion of Ukraine can accelerate the final battle between Europe and the CCP! The CCP has fueled Russia’s westward expansion. As long as the CCP is destroyed, Putin will have no money to attack Ukraine. Europe, together with its allies such as the US, Japan, and Australia, can defeat the CCP's troops in a few minutes.<br/><br/>1/30/2022 文贵直播：普京打乌克兰会加速欧洲与中共的决战！中共助长了俄罗斯的西扩，只要干掉中共，普京就没钱去打乌克兰；欧洲和美日澳等盟友一起能分分钟干掉中共军队<br/>
+![img](https://media.gettr.com/group29/getter/2022/01/31/02/63bbe57f-a1c9-64d7-5b25-f3f1bc2b0ac1/out.jpg)
+
+---
+
 `@miles 1/31/2022 2:10 AM (UTC)`
 
 1/30/2022 Miles Guo: Politicians all over the world pushing toxic COVID vaccines will not end up well. When politicians in Europe, America, Canada, and Japan have to admit that the COVID vaccine is a disaster, then they will take the initiative to start a war to avoid being held accountable.<br/><br/>1/30/2022 文贵直播：全世界强推毒疫苗的政客都没有好下场，当欧美加日的政客们不得不承认疫苗是一场灾难后，他们会为了逃避追责而主动挑起战争！<br/>
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/25/2022 Miles Guo: The authorized departure of the US Embassy in Beijing marks the opening of the “third gate” to take down the CCP, initiating the investigation of the origin of the CCP virus and the revelation of the truth about the COVID vaccine. The CCP is totally doomed!<br/><br/>1/25/2022 文贵直播：美国授权撤离驻北京大使馆标志着灭共第三道大门已打开，并开启了冠状病毒溯源及疫苗真相揭露，中共彻底完蛋了！<br/>
 ![img](https://media.gettr.com/group11/getter/2022/01/28/06/d5d7d347-143c-0bc0-46c9-158ddbd9d84f/out.jpg)
-
----
-
-`@miles 1/28/2022 5:17 AM (UTC)`
-
-1/27/2022 Miles Guo: Hope fellow fighters will not become big-headed. We must adhere to the belief that “only the truth prevails”. The CCP is doomed after the US granted the authorized departure to its embassy in Beijing. So, I hope my fellow Chinese will not become the CCP’s cannon fodder. Please leave Communist China ASAP if you can!<br/><br/>1/27/2022 文贵直播：希望战友们不要得大头症，我们要坚持唯真不破；美国驻北京大使馆被授权撤离之后，共产党已经结束了！请国内同胞们不要做中共的炮灰，能出来的赶紧出来！<br/>
-![img](https://media.gettr.com/group25/getter/2022/01/28/05/c2c22816-c46f-1c8a-ebf5-24f4b19148fc/out.jpg)
 
 ---
 

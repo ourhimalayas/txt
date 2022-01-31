@@ -2,32 +2,28 @@
 ---
 
 
-## 澳洲加入加拿大反强制新冠疫苗自由车队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934101/)
+## 中共慷民脂民膏之慨 结参加冬奥洋人之欢心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1934582/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日据悉，澳大利亚卡车司机们正在计划一场自由之战，来反抗政府对中共病毒疫苗的强制，以及政府在疫情期间过于严酷的防疫政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.55.png)
-正如加拿大自由车队即将驶向首都渥太华一样，澳大利亚自由车队将会前往首都堪培拉。在前往首都之前，卡车车队计划在维多利亚州、新南威尔士州、南澳大利亚州和西澳大利亚州等城市会面，最后于周一上午10点抵达堪培拉议会大厦，抗议政府的强制疫苗政策。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-308.png)[图片来源](https://t.cj.sina.com.cn/articles/view/7228207506/1aed5b192001018qw4)
+据网易体育1月30日报道，北京冬奥会主办方给每位运动员都准备了一份礼包，里面有价值7999元的手机、运动耳机、限定项链，不少外国运动员打开后都震惊了。
 
-据悉参与此次游行活动的还包括，那些因政府的疫苗强制，和中共病毒隔离政策而被迫关店的小企业主，他们打算驾驶摩托车和汽车加入自由车队。
+该消息迅速引爆网络，后中共官方快速在全网删除了该新闻，并开始洗地。
 
-参考链接：[Australian truck drivers join the convoy for freedom](https://www.rebelnews.com/australian_truck_drivers_join_the_convoy_for_freedom)
+郭文贵先生近期多次爆料，为了这场作秀，特别是在当前遭受欧美普遍抵制的情况下，中共更是不计成本和代价，通过各种送钱的手段来收买各国政要出席运动会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+北京冬奥会完全就是习近平彰显个人权力，以及中共向世界展示其统治能力的表演，而非中国和中国人民的冬奥会。中共向冬奥运动员送豪礼的做法，慷的是老百姓民脂民膏之慨，结的是洋人之欢心。
 
-总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[大气!冬奥村送豪礼外国运动员拆开礼包激动尖叫|项链\_网易体育](https://www.163.com/sports/article/GUVKI82K00059CHO.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
