@@ -2,37 +2,37 @@
 ---
 
 
-## 论中国共产党一党专制统治下的公民自由
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1937416/)
+## MV版Hcoin To the Moon上线53天第40次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1937461/)
 
-作者: ：WLQF
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/屏幕截图-2022-01-31-183031.jpg)图片来源: google .com
-
-公民自由是建立在社会发展的基本规律之上，建立在法律道德框架下的社会自由。社会发展基本规律指的是能够顺应全球社会发展的主流趋势，是符合人类自然发展与进化的社会需要。法律道德框架的制定必须建立在社会发展基本规律之上，它是全人类都要遵循的社会生活准则。言论自由与个性自由是公民自由的最主要组成部分。言论自由与个性自由本身就代表着思想自由。所以说公民自由的本质从某种意义上来讲是思想的自由。公民自由之所以如此重要是因为她不仅是个人幸福所系，而且也是社会进步的主要动力之一。
-
-民主、自由与法治是世界发展之大势，顺势者昌，逆势者亡，这是当今人类社会发展最基本的自然规律。在西方自由民主国家，诸如美国、英国等，公民自由已经成为了宪法规定的赋予公民最重要、最基本的人权。然而，在中国共产党一党专政下的中国社会里，只有剥削者与被剥削者的存在，只有统治者与被统治者的存在。在这样的社会体系中，作为绝大多数的普通老百姓，完全没有事实上的公民自由而言。所谓的自由只能是以习近平为首的共产党执政党的自由。让人唏嘘的是，代表着无产阶级的中国共产党事实上却是全世界最有钱、最腐败、最多资产的执政党。自共产党非法攫取中国政权以来，中国老百姓就完全失去了不受剥削与奴役的自由，公民自由更是无从谈起。
-
-言论自由，是把人当人的一种基本人权，是公民可以按照个人的意愿表达意见和想法的法定政治权利，这些意见表达不用受任何人“事前”的审查及限制，也无需担心受到政府或他人报复。在美国，《美国宪法第一修正案》规定，美国人有自由发表任何主张和意见的权利，包括对现任及历任国家领导人的批评，这种言论自由不受权力机构的审查及限制，也无需担心受到政府的报复。当然，言论自由并不是无限制的，必须在法律范围内。
-
-然而，在中共统治下的中国简直就是言论自由的地狱。中共独裁政党视言论自由为洪水猛兽，打压、破坏是其一贯的态度与处理方式。随举几例，一看便知。
-
-例子一：2019年12月30日，武汉市中心医院眼科医生李文亮在微信中向朋友与同行发布了一条关于华南海鲜市场疫情的信息“华南水果海鲜市场确诊了7例SARS”。李文亮医生此举被认为是2019中共冠状病毒疫情中率先向外界披露疫情的医疗人员之一，从而被称为“疫情吹哨人”。正是此举，让他付出了沉重的代价。2020年1月3日，他因“在互联网上发布不实言论”而被武汉市公安局武昌区分局中南路街派出所提出警示和训诫。李文亮被舆论广泛关注，并被中共党媒中央电视台解读为8名“造谣”者中的一人。事件后李文亮医生仍持续在第一线工作，于1月10日左右出现症状，1月31日确诊感染中共冠状病毒病，2月7日凌晨2时58分病逝，年仅34岁。
-
-例子二：2021年12月14日，上海震旦职业学院教师宋庚一在课堂上质疑南京大屠杀的死亡数字是否被夸大。事后有学生举报，学校以造成严重社会不良影响为由将她开除。随后，中共党媒《人民日报》点名批评宋庚一妄加揣测，质疑历史真相，“枉为人师，忘却苦难, 否认他国恶行，枉为国人”。
-
-从以上二例，我们很容易就得出结论，中共治下根本不存在言论自由的土壤，当然他也不会给予人们言论自由的基本人权。这样腐朽专制的中国共产党显然是在冒天下之大不韪，开历史倒车，逆人类民主自由的社会发展之大势。
-
-言论自由尚且如此，对于中国人来说，个性自由就更是海市蜃楼了。在民众个体发展上，中共推崇的是“驭民五术”，扼杀国人的个性自由，寄希望于培训出的都是爹亲娘亲不如党亲的社会主义奴才。这也就是中共为什么竭力宣扬其社会主义与共产主义的意识形态，防止人们在个性上变得更加多元与自由。维护独裁统治最好的方式就是灌输给你统一的思想，这也正是这个共产主义幽灵-中国共产党一直在愚弄中国14亿人民的根本之所在。一旦中国人民打开了言论与个性自由的阀门，那么共产党就会被瞬间淹没在人们的唾弃声中。
-
-黑暗再久，终会迎来光明。2017年以来，郭文贵先生发起的“爆料革命”将全球亿万战友凝聚在一起，为实现新中国法治、民主和自由而不懈努力。爆料革命一方面摧毁人类文明之癌中国共产党及其代表的暗黑势力，另一方面带领人类特别是全球华人走向正道主义。经过数年努力，形成了以喜马拉雅监督机构为指导，分支农场遍布全球的组织网络，并与世界各国合作，以捍卫人权自由，保障财富安全为目标，推出了自己的货币、金融、媒体、时尚和电子商务平台，对中共暴政发起全方位挑战。在中国共产党即将土崩瓦解之际，我们的14亿同胞请尽快醒来，加入爆料革命，加入新中国联邦。没有共产党，才有新中国。未来没有共产党的中国，公民自由是每一位中国公民享有的最基本的权利，法治、自由与民主也会成为中国再次崛起的擎天之柱。
+1/31/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线53天第40次位列澳门iTunes热门音乐视频榜榜首，第47次位列前三名
 
 * * *
 
-*审核：阿伯塔
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-5.jpeg)
+[【PDF 下载】Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+
+
+[【PDF 下载】Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/01/Monday-31-Jan-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,54 +2,20 @@
 ---
 
 
-## 新疆西藏香港及海内外有良知同胞的参与启动甜蜜蜜运动
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1937125/)
+## 秘翻在线:欧洲开始解除新冠病毒强制措施的行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1937180/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f77e7cd90bdd2085a3007c](https://gtv.org/video/id=61f77e7cd90bdd2085a3007c)
+**撰稿：William**
 
-**郭文贵先生：**就是刚才澄道说到这个英雄的话题，就是想到这一幕一幕的，就是他们在里面，我看到共产党枪毙人、弄死人、虐待人的时候，共产党你一定记住：所有这些人是开心的，这是你们没有想到的另外一面。就是他们虐待人的时候，这些人都是很开心的，包括枪毙人的时候他都很兴奋、很开心的。就是他们在里面就叫秘密执行嘛，不是到刑场执行的，就是把他拉出去就在看守所支起一个大墙外面“咵嚓”铁丝网前面，毙完以后他们都是很兴奋的。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/111-7.jpg)图片来源：*Androniques | Dreamstime.com*
+根据零对冲(Zero Hedge) 的报导, 本周晚些时候，英格兰计划放弃对商店和公共交通的的口罩规定，以及极不受欢迎的疫苗护照制度。同时在北部，苏格兰表示将“放松”所谓的“在家工作指导”，重新开放夜总会，并结束场地容量限制。尽管英国和爱尔兰小心翼翼地撤回了其极具破坏性的 COVID-19 限制政策，但其他一些欧洲国家已经通过了完全废除整个“大流行”制度。
 
-那种感觉跟你这个医生治病可是两回事，所以说为啥我说Eglise你没有看过邪恶，你是治病救人。这帮人、孙子我是看到他们枪毙人那种兴奋、开心，就像你家杀个羊是要等着吃羊肉一样，杀个鸡等着吃鸡肉一样，就是这帮人。就像Isobel Yeung要吃狗肉一样，是吧！这么看着狗杀掉、剥皮、炖出来、吃了，就是Isobel Yeung的感觉。
+根据金融时报(Financial Times)报导，丹麦表示，它将在周三取消几乎所有的 Covid-19 限制并停止将其列为“社会危急”(societally critical)疾病，这是西欧国家正在放松甚至消除为对抗奥米炕冠状病毒变体而采取严格措施的最新迹象。丹麦卫生部长马格努斯·霍尼克(Magnus Heunicke) 本周三写信给议会表示，他将在 2 月 1 日取消对 Covid-19 的所有限制，除了从国外抵达时的需要检测之外。正如丹麦政府在 9 月取消所有限制时所做的那样，它也将停止将 Covid-19 称为“社会危急疾病”(societally critical disease)，这意味着丹麦将不再具有引入广泛限制措施的法律依据。
 
-所以为啥我说新中国联邦一定要有信仰。我觉得郝海东先生、叶钊颖女士我们当时跟班农先生那个宣言里面，保护动物这个真的是战友们我觉得太棒了，任何未来咱们新中国联邦人吃狗肉的，绝对不能让你加入新中国联邦，对动物不尊重不能让加入新中国联邦，因为我们看到人对动物有多狠的时候，对人就会有多狠！这个残忍是逐渐培养起来的。
+周三晚上，丹麦首相梅特·弗雷德里克森 (Mette Frederiksen) 表示：“今晚，我们可以开始放下肩膀，重新找回笑容。” “大流行仍然存在，但以我们现在所知道的情况来看，我们可以相信我们已经度过了关键阶段。”丹麦是最近几天宣布放弃大部分或几乎所有措施的最新欧洲国家，紧随英国、爱尔兰和荷兰的脚步……。
 
-对待英雄也好，对待人也好，你们没有感受过那种痛苦，说老实话，真的是有些人也被枪毙的时候，我没那么痛苦，因为他真的就不是什么好人，没那么痛苦啊。
-
-就这种英雄，就真的活在我心里边了，你就觉得这个人被带出去虐待成那样回来，喘着就一口气，他完全没有、就一点点放弃、后悔的感觉都没有。
-
-你能感觉到这就是你说的那种升华，包括其他的你看那个教士，我觉得真有信仰的人是很伟大的！那教士被打到，那真是浑身血淋淋地回来呀！就是打完以后几个小时，Eglise医生知道，就是粘在血上，就是血不流了，衣服粘在那上边了，穿的内裤粘在那衣服上你知道一拽得多疼啊，Eglise你知道回来是吧，那是很恐怖的！但是你看到他咬着牙、咧着嘴，但是这些人他没有一点儿后悔的，他没有任何恐惧。
-
-这个你真是能看到，我老开玩笑说中国男人不行，绝大多数中国男人还是很行的，特别像有这样的英雄和宗教人士。当你想到这一幕的时候，你觉得新中国联邦当中，你就会觉得我们灭共真的就不仅仅是正义的需要的问题，就是太多语言无法形容的啦。而且我相信在这个香港刚刚发生的事儿，有多少这样的英雄故事，只是你不知道而已，香港没出现一个郭文贵告诉你这些故事。
-
-没有人告诉你新疆集中营发生什么事了，因为新疆没出现郭文贵，西藏没出现郭文贵。我们这次的“甜蜜蜜运动”得到了海外的有良知、有能力的新疆、还有西藏、还有香港的同胞们、手足们的巨大的支持，他们是重要的参与者，我们才能把“甜蜜蜜运动”启动起来。现在不能细说，等到“甜蜜蜜运动”发生以后咱们再细说。
-
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
-
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**新闻来源**: [https://www.zerohedge.com/covid-19/denmark-first-eu-country-scrap-all-covid-restrictions](https://www.zerohedge.com/covid-19/denmark-first-eu-country-scrap-all-covid-restrictions)
 
  
 

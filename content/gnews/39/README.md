@@ -2,52 +2,79 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月24日-1月30日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935348/)
+## 樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（四）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935451/)
 
-作者：纽约香草山金融部 – ILOVE战神
+编译：东京樱花团/Hopkins
 
+（内容摘要）
 
+• 北京冬奥会与希特勒 1936 年在柏林的奥运会有很多相似之处
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+• 2 月 4 日的活动笼罩在争议和抵制威胁中
 
+• 维吾尔人和其他少数民族声称他们面临赛前镇压
 
+• 流亡的家庭成员说他们现在与亲人完全隔绝
 
-过去一周喜马拉雅币价格加速攀升至50美元上方，最高涨幅约24%，平均日交易量约11万5千枚喜币。喜币上市以来总交易量约2670万枚 ，占今年总发行量的仅约2.67%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture3-3.png)
-本周四，一篇来自英国金融科技资讯网站TechBullion的文章提到，喜交所是业内第一个运用人工智能技术识别人体行为与生物特征并与冷钱包安全措施相结合的加密货币平台。文章指出这一设计使喜交所的安全性达到业内最高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-4.png)
-本周据郭文贵先生在大直播中透露，喜交所拥有世界上最好的KYC制度，目前有50亿美元现金正在等待KYC后进场。之后还会有上千亿美元进入。目前已经有六大品牌提前宣布接受喜币购买商品。喜支付上线后会有更多商家进场。随着喜支付的逐渐推广，会有金融机构开始接手相关业务，下一步会有国家主权机构接受并投资喜币，之后喜币将改变这个世界。
+• 在国际事件之前让少数族裔保持沉默是中共的一种策略
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-536.jpg)
+（图片说明）巴格卓先生告诉《每日邮报》澳大利亚，运动员、组织者和那些在电视上收看为祖国加油的人不应该相信北京的宣传。图为：德国的自由西藏抗议活动
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-117.jpg)
+（图片说明）印度藏族学生高举呼吁抵制2022年北京冬奥会的标语牌
 
-郭先生还表示，喜支付会在春节甜蜜蜜运动期间上线，会把中共插在中国人民身上的血管改变方向，转而插到中共盗国贼自己的身上。
+谁是中国穆斯林？
+穆斯林在中国并不是一个新的存在。根据智库皮尤研究中心的数据，中国的大多数穆斯林社区，包括回族、维吾尔族和哈萨克族，已经在中国生活了 1000 多年。今天穆斯林最集中的地方是新疆、宁夏、青海和甘肃等西部省份。大量穆斯林生活在北京、西安、天津和上海等城市。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/3-62.jpg)
+（图片说明）在中国北京的牛街清真寺，中国穆斯林男子参加庆祝穆斯林节日、宰牲节或穆斯林祭祀的聚会
 
-本周五喜交所进行了11小时的维护升级，并更新了官网的喜支付页面。目前官网已经提供了喜支付APP苹果与安卓版本的下载链接，预计在未来几天内可以开始使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-17.jpg)
-参考信息：
-1. [Safeguarding Digital Assets in an Increasingly Intangible World](https://techbullion.com/safeguarding-digital-assets-in-an-increasingly-intangible-world/)
-2. [HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
+他们约占中国 14 亿人口的 2%。然而，由于该国人口众多，其穆斯林人口预计将在 2030 年成为世界第 19 大人口。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+中国的穆斯林人口预计将从 2010 年的 2330 万增加到 2030 年的近 3000 万。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+那些在汉族人占主导地位的地方长大和生活的人对伊斯兰教——或一般的宗教——知之甚少，因此将其视为一种威胁。
 
-**更多资讯，更多关注**
+北京的决策者主要是汉族。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+与此同时，激进的穆斯林维吾尔人近年来已经杀害了数百人，导致中国采取更加极端的措施来镇压潜在的分裂运动。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+据英国《金融时报》报道，在 2009 年乌鲁木齐发生一系列致命骚乱后，维吾尔人长期以来一直习惯于严格限制着装、宗教活动和旅行。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+学童被禁止在斋月期间禁食和参加宗教活动，而父母则被禁止给新生儿起穆斯林名字，例如“穆罕默德”和“圣战”。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+伊斯兰教的某些象征，如胡须和面纱，也被禁止。有时不允许戴面纱的女性乘坐公共汽车。未经授权前往麦加朝圣也受到限制。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+1936 年柏林与 2022 年北京：有何相似之处？
 
+两届奥运会都将由全球实力日益增强的高度威权国家举办。
 
+尽管对人权问题和犹太人口待遇的强烈反对，柏林奥运会还是如期举行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+北京的冬奥会面临着类似的强烈反对，该国的维吾尔人以及西藏人和其他各种少数民族受到可怕的迫害。
 
+阿道夫·希特勒试图利用奥运会作为宣传机会，使他的法西斯政权合法化。
+
+中国国家主席习近平将尝试做同样的事情，批评者称之为粗暴的“体育洗白”。
+
+什么是体育洗白？
+
+“体育洗白”一词是指利用体育作为宣传工具来提高国家、公司或个人声誉的做法。
+
+人权记录不佳的国家通常会寻求举办大型国际体育赛事，希望借此掩盖他们对少数群体的待遇并提高他们在世界上的外交地位。
+
+当有黑幕的公司或个人赞助运动队或赛事以赢得社区或政府的青睐时，也会发生体育洗白。
+
+（全文完）
+
+作者：LEVI PARSONS/澳大利亚每日邮报
+
+信息来源：
+
+[How Beijing’s 2022 Winter Olympics ‘sportswashing’ propaganda mirrors Hitler’s 1936 efforts in Berlin – as desperate Uyghurs speak out about China’s brutal pre-Games crackdown on minorities](https://www.dailymail.co.uk/news/article-10447673/How-Beijings-2022-Winter-Olympic-sportswashing-propaganda-mirrors-Hitlers-1936-efforts-Berlin.html)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  

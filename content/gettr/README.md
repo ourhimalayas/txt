@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/31/2022 6:52 PM (UTC)`
+
+灭共的雪<br/><br/>演唱： Miles Guo<br/>改编： 威廉王 唐平<br/>编曲： SFG<br/>视频： 塔奇克马
+![img](https://media.gettr.com/group46/getter/2022/01/31/18/0a0ec0ec-90b6-e396-691f-ecbd0c83792b/out.jpg)
+
+---
+
 `@miles 1/31/2022 12:56 PM (UTC)`
 
 2022年壬寅年新春大直播
@@ -147,13 +154,6 @@ Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Bei
 
 1/25/2022 Miles Guo’s Big Announcement: President Biden and Secretary Blinken’s decision to authorize the departure of the US embassy in Communist China is by far the best decision for the Chinese people that the US has ever made. This decision is of paramount significance, and the resultant domino effect will pave the way for the “Tian Mi Mi Movement” to occur in all the embassy districts around the Second Ring Road in Beijing.<br/><br/>1/25/2022 文贵重大公告：拜登总统和布林肯国务卿授权撤离驻华大使馆是美国迄今对中国人所做出的最好的决定，其意义极为重大，它所导致的多米诺效应将让甜蜜蜜运动发生在北京二环的所有使馆区<br/>
 ![img](https://media.gettr.com/group36/getter/2022/01/28/08/458e29a5-5eeb-fe7f-d19d-d5e0c6a8abd4/out.jpg)
-
----
-
-`@miles 1/28/2022 8:37 AM (UTC)`
-
-1/25/2022 Miles Guo’s Big Announcement: The authorized departure of the US Embassy means that the US has rendered the CCP illegitimate on the world stage. So, the CCP is really doomed!<br/><br/>1/25/2022 文贵重大公告：美国大使馆被授权撤离意味着美国让中共在国际上失去了合法性，中共真的完了！<br/>
-![img](https://media.gettr.com/group38/getter/2022/01/28/08/1ffeeb16-2ce3-a0d2-69b6-038eab4c0c2c/out.jpg)
 
 ---
 

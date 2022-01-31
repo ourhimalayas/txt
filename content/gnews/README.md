@@ -15,125 +15,125 @@
 
 ---
 
-### [七哥说“没有信仰，你这一辈子不会有愉快的”（2022-01-27摘录）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [七哥谈中国人的人心（2022-01-27摘录）](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [MV版Hcoin To the Moon上线53天第40次位列澳门iTunes热门MV榜首](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥说“我们作为一个正常的人宁可相信他好也不愿意相信坏”（2022-01-27摘录）](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [朝鲜向东海发射了中程弹道导弹](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [论中国共产党一党专制统治下的公民自由](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈十二属相今年运势（2022-01-30摘录）](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [DC大中华时事：中国驻大阪总领事薛剑接受日媒采访](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美国及世界疫情简报 （01-31-2022）](/content/gnews/11/README.md)
- ` 波士顿五月花农场`
-
-### [七哥谈属猴的人（2022-01-30摘录）](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [1/31/2022国际财经快讯：德国财政部长支持提前结束征收绿色能源费用；亚洲股市试探性上涨](/content/gnews/14/README.md)
- ` 秘密翻译组金融团队`
-
-### [2022/01/31 英喜时事速递](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年12月18-19日 郭先生视频部分内容整理](/content/gnews/16/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [美国否认中共官媒指控其“将国际体育赛事政治化”的说法](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线:欧洲开始解除新冠病毒强制措施的行动](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [法国数十组织示威呼吁抵制北京冬奥会](/content/gnews/19/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [爆料革命吸取六四教训以不流血没有伤亡的超超限战灭共](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [被抛弃的跨境生](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“政府权力过度扩张即将结束”美国卡车车队即将加入抗议](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [新疆西藏香港及海内外有良知同胞的参与启动甜蜜蜜运动](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [NewSGman┃疫情新闻全球最新速报（1月31日）](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [处男之身却以强奸碎尸罪名处决的六四英雄何以无惧生死](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [英国考虑在乌克兰危机中部署北约军力](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美参院两党议员就制裁俄罗斯达成一致](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/27文贵直播：美授权撤离大使馆代表灭共第三道大门打开（粤语配音）](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/25郭文贵先生签署新中国联邦第三份历史性文件（粤语配音）](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/21文贵直播：谢里夫证明了中共在全球腐败各国领导人（粤语配音）](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [1/21文贵直播：欧盟和美国可能永久关闭在中共国使领馆（粤语配音）](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2022年1月30日 郭文贵先生直播 全文字版](/content/gnews/32/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [英国计划向北约大规模增兵 以应对乌克兰危机](/content/gnews/33/README.md)
+### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2021~2022年郭文贵最新单曲Hcoin To The Moon创造的历史记录](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [法国扭捏表态不参加中共冬奥开幕式](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [七哥谈当时在湖北襄樊（2022-01-27摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
 
-### [美军强制疫苗使美国国家安全受到巨大挑战](/content/gnews/36/README.md)
+### [德国卫生部将疫苗暴政甩锅软件错误](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [七哥说“没有信仰，你这一辈子不会有愉快的”（2022-01-27摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [01/31/22 香港快讯 7.28上环冲突 15人暴动罪成押后至2月9日判刑](/content/gnews/6/README.md)
+ ` 英喜-粵語組`
+
+### [七哥谈中国人的人心（2022-01-27摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [MV版Hcoin To the Moon上线53天第40次位列澳门iTunes热门MV榜首](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [七哥说“我们作为一个正常的人宁可相信他好也不愿意相信坏”（2022-01-27摘录）](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [朝鲜向东海发射了中程弹道导弹](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [论中国共产党一党专制统治下的公民自由](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈十二属相今年运势（2022-01-30摘录）](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [DC大中华时事：中国驻大阪总领事薛剑接受日媒采访](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国及世界疫情简报 （01-31-2022）](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（四）](/content/gnews/37/README.md)
+### [七哥谈属猴的人（2022-01-30摘录）](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [1/31/2022国际财经快讯：德国财政部长支持提前结束征收绿色能源费用；亚洲股市试探性上涨](/content/gnews/19/README.md)
+ ` 秘密翻译组金融团队`
+
+### [2022/01/31 英喜时事速递](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年12月18-19日 郭先生视频部分内容整理](/content/gnews/21/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [美国否认中共官媒指控其“将国际体育赛事政治化”的说法](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线:欧洲开始解除新冠病毒强制措施的行动](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国数十组织示威呼吁抵制北京冬奥会](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [爆料革命吸取六四教训以不流血没有伤亡的超超限战灭共](/content/gnews/25/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [被抛弃的跨境生](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（三）](/content/gnews/38/README.md)
+### [“政府权力过度扩张即将结束”美国卡车车队即将加入抗议](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [NewSGman┃疫情新闻全球最新速报（1月31日）](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜马拉雅币一周分析与总结（1月24日-1月30日）](/content/gnews/39/README.md)
- ` GTV新闻访谈`
+### [美参院两党议员就制裁俄罗斯达成一致](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CDC最新研究：接种中共病毒疫苗导致心肌炎风险超百倍](/content/gnews/40/README.md)
- ` GTV新闻访谈`
+### [1/27文贵直播：美授权撤离大使馆代表灭共第三道大门打开（粤语配音）](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/25郭文贵先生签署新中国联邦第三份历史性文件（粤语配音）](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/21文贵直播：谢里夫证明了中共在全球腐败各国领导人（粤语配音）](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [1/21文贵直播：欧盟和美国可能永久关闭在中共国使领馆（粤语配音）](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2022年1月30日 郭文贵先生直播 全文字版](/content/gnews/34/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [英国计划向北约大规模增兵 以应对乌克兰危机](/content/gnews/35/README.md)
+ ` 日本东京方舟农场`
+
+### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法国扭捏表态不参加中共冬奥开幕式](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美军强制疫苗使美国国家安全受到巨大挑战](/content/gnews/38/README.md)
+ ` 波士顿五月花农场`
+
+### [樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（四）](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（三）](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二）](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
