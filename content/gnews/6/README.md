@@ -2,40 +2,41 @@
 ---
 
 
-## 谈古论今 | 请看疫苗中的利刃——石墨烯的真面目！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935848/)
+## 最好的教育是离开学校全部忘掉学到的东西然后找到自己
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1935929/)
 
-撰稿：东京樱花团/谈古论今
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-119.jpg)图片来源于网络
-新冠病毒疫苗的主要成分是新冠病毒的刺突蛋白（信使RNA分子），为了使疫苗中的刺突蛋白快速有效地进入人体细胞进行复制，新冠病毒疫苗的设计者特地在疫苗里加入了人体完全不需要的无机物氧化石墨烯。那么，氧化石墨烯是什么？氧化石墨烯在疫苗中起什么作用？氧化石墨烯将给人体造成怎样的伤害？本文简明扼要地说明如下：
+G-TV视频链接：[https://gtv.org/video/id=61f75a50d90bdd2085a2f178](https://gtv.org/video/id=61f75a50d90bdd2085a2f178)
 
-1. 氧化石墨烯是什么？
+**郭文贵先生：**我跟你说老师，真的这老师的感受，我们的小新老师，我老跟她开玩笑，我说递那个擦屁股纸的事儿。说实在的，我对老师有很多话是不敢在这儿说的，我真不敢在这儿说的。但是我，就像我们的EDU这个教育，这个磐石农场唐平搞这个节目，我觉得做EDU教育和文洁老师，我特别支持。什么叫教育，就是把人的兴趣激发出来，然后最重要的事情让人找到自己，张开嘴、迈开腿、睁开眼。
 
-2017年12月01日《人民网-人民日报小字号》刊载了原标题《石墨烯是世界上最薄最“快”的纳米材料（作者 余建斌） 》的文章，摘录部分原文如下：
+最好的教育，就是离开学校后所有学校的东西全忘掉，然后自己找到了自己，这就最好的教育。把一个人的兴趣能引起来，是最关键的。字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
 
-和金刚石一样，石墨是碳元素的一种存在形式。有趣的是，由于原子结构不同，金刚石是地球上自然界最坚硬的东西，石墨则成了最软的矿物之一，常做成石墨棒和铅笔芯。
+编辑整理：Jacques；
 
-科学家介绍说，石墨烯是从石墨材料中剥离出来，只由一层碳原子构成、按蜂窝状六边形排列的平面晶体。通俗地讲，石墨烯就是单层石墨。一块厚1毫米的石墨大约包含300万层石墨烯；铅笔在纸上轻轻划过，留下的痕迹就可能是好多层石墨烯。
+字幕文件制作：小满；
 
-石墨烯的特点首先是薄，堪称目前世界上最薄的材料，只有一个原子那么厚，约0.3纳米，是一张A4纸厚度的十万分之一、一根头发丝的五十万分之一。与此同时，石墨烯比金刚石更硬，透光率高达97.7%，是世界上最坚硬又最薄的纳米材料。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-70.png)
-氧化石墨烯电子显微镜照片
+视频制作及上传：Cindy；
 
-以上的几段话再结合电子显微镜照片你就明白了，纳米级氧化石墨烯微粒子的特性之一就是锯齿边缘非常锋利和强劲，就像坚固锋利的剃须刀片。
+G-News发布：小满；
 
-氧化石墨烯在疫苗中起什么作用？
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-氧化石墨烯在疫苗中作为疫苗中的信使RNA分子的载体，携带着刺突蛋白横冲直撞，随机割破细胞壁，把疫苗中的信使RNA分子送进细胞内使之结合。那么，它的可怕之处是什么呢？
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-氧化石墨烯将给人体造成怎样的伤害？
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-所谓的疫苗，就是用氧化石墨烯以破坏的方式强行把40万亿个刺突蛋白“插进”你身体的细胞里去。氧化石墨烯的割伤必然会给各处器官以及血管上皮细胞造成慢性损伤并可能感染，不但人体免疫功能持续受损，还会抑制抗癌基因诱发癌症和其他慢性病。尤其令人担忧的是，这些锋利无比的刀片似乎又不存在排泄或代谢机制，只要它们在体内它们就没完没了的随机割伤刺伤器官或细胞。那么，1年的时间长度会发生什么？5年？10年？20年呢？由此引发癌症、血栓等等不可预见风险找谁算账去？尤其已经有高血压、高血脂等基础疾病的人群风险更是大得不可想象，一旦“随地倒”了，你找谁负责？
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-想想看，你的身体里被别人强行塞进了这样的粉末，尤其是不知道任何时间会发生任何意外，此时此刻你作何感想？也可能你说：我是打了疫苗，可我没有不良反应呀？我没事呀？是的，你大无畏！可惜是“无知无畏”。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
