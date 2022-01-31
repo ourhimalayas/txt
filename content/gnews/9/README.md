@@ -2,8 +2,8 @@
 ---
 
 
-## 不尊重自由凭什么要有自由
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935767/)
+## 共产党制造邪说
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935790/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人到今天对事情的判断
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935735/)
+## 成长需要过程要面对
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935744/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
