@@ -2,36 +2,23 @@
 ---
 
 
-## 有声|中共驻美大使秦刚罕见威胁：中美或因台湾爆发军事冲突
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935129/)
+## 美国国务院驳斥中国关于美国破坏奥运会的宣传
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1935148/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
-1月28日，中共驻美大使秦刚，接受上任后的首次美国媒体专访，威胁称，由于台湾问题，中美极有可能卷入一场军事冲突。他说，台湾问题是中美之间最大的火药桶，中共不会承诺放弃非和平的统一手段。对于如果美国继续与中共接触、中共会否保持现状的提问，秦刚没有直接回答。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-30-205958.png)图片来源：latimes.com
+据《华盛顿时报》（Washington Times）1月30日报道，美国国务院周日表示，中共媒体声称的所谓美国在暗中破坏北京冬奥会的说法是错误的。
 
-这是中共异常直接的声明，中共过去通常会用更笼统的说法，比如指责美国在“玩火”。此次采访之前，以美国为首的西方国家，正大力抵制北京冬奥会，美国刚刚决定“授权撤离”美国驻北京大使馆。
+报道称，国务院发言人告诉《华盛顿时报》说，美国“过去和现在从来没有协调并参与有关奥运会的某项全球行动”，“根据奥运会的精神和章程，美国运动员以及全体运动员都有自由表达个人意见的权利”。 发言人呼吁中共国“尊重基本自由，包括言论自由”。
 
-原文链接：[中共驻美大使秦刚罕见威胁：中美或因台湾爆发军事冲突](https://gnews.org/zh-hans/1932507/)
+报道指出，此前，中共下属的《中国日报》（China Daily）指责美国买通参加北京冬奥会的运动员来破坏这一全球体育赛事，付钱给运动员要他们在奥运会期间发声反对中共在西部侵犯维吾尔族人权和种族灭绝的行为。《中国日报》还称，这一将奥运会政治化的阴谋是美国境内某“反华势力”所为。
 
-音频处理/发稿：Daxia
+去年 12 月，美国政府宣布了对被称为“种族灭绝运动会”的北京冬奥会进行外交抵制 ，随后另有九个国家也加入了外交抵制的行列。虽然这些国家没有阻止本国运动员个人参加奥运会，但都警告他们说，中共国当局可能会对他们批评中国共产党制度的行为采取行动。因为在中共国，批评共产党是违法的，将面临长期监禁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+报道披露，自由西藏学生组织发表了一封致运动员的公开信。信中说，“中国共产党（CCP）应对我们这一代所犯下的最严重的人权暴行负责：包括对维吾尔人的种族灭绝，将100 万藏族儿童通过 21 世纪的寄宿学校被迫与父母分离，以及严重打压香港的民主和新闻自由。” 学生们要求运动员与当今世界上一些受压迫最严重的民族团结一致。
 
 
+
+消息来源：[State Department rebuffs Chinese propaganda on U.S. undermining Olympics](https://m.washingtontimes.com/news/2022/jan/30/state-department-rebuffs-chinese-propaganda-us-und/)
 
  
 

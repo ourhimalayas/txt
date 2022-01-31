@@ -2,8 +2,8 @@
 ---
 
 
-## 法律与行政命令
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935424/)
+## 西方被人家利用了法律程序
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935444/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 不是老中医不要开偏方
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935370/)
+## 美国高院停止企业强制疫苗令
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935386/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
