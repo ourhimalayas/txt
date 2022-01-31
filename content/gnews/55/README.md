@@ -2,38 +2,274 @@
 ---
 
 
-## 从924空战浅谈空对空导弹 （上）
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/1931166/)
+## 77国际功成农场及友人带来的新春祝福
+` Himalaya 77 G-Engineers` [轉載自GNews](https://gnews.org/zh-hans/1931292/)
 
-**作者**：AWAC （新西兰伊甸农场）
+##### 字幕 – 老虎尾巴、星星
+视频 – 文宝宝、星星、Cute panda
+翻译/校对 – 小王子、文仁
 
-上传：文斌（新西兰伊甸农场）
 
-**摘要:** 924空战又称温州空战, 是台海两岸历史上的最大规模空战, 也是人类现代空战史上的第一次空对空导弹实战， 在此次战役中，中共意外获得了未爆炸的美军响尾蛇空空导弹，并将导弹残骸转移前苏联，前苏联由此开发出了R13空空导弹。数年后中共在R13基础上也仿制出了霹雳2导弹。924空战直接导致美军当时最先进的响尾蛇导弹在东方被克隆出了孪生兄弟，也从此拉开了东西方航空大国竞相研制空对空导弹的序幕。本文从924空战说起，谈谈东西方现代空空导弹的基本发展脉络，以及中共的空空导弹发家史。
 
-924空战又称温州空战，是台海两岸历史上的最大规模空战， 也是人类现代空战史上的第一次空对空导弹实战。
 
-1958年，美军向台湾转移了总共40枚刚刚研制成功不久的AIM9-B响尾蛇空空导弹，装备在台湾空军当时比较先进的F86佩刀战斗机上。 9月24日, 台湾空军派出了RF-84侦察机在温州湾上空实施侦察任务, 同时有18架F86战机分不同空层进行掩护。 其中有4架F86携带了8枚响尾蛇导弹。中共方面在探测到台军机群后立即派出三波机队升空迎击， 其中包括苏制米格-17战斗机，歼-5以及米格15。共军准备不足，损失惨重。根据中共网络报道，飞行员王自重与台军12架战机近距离缠斗5分钟，击落两架台军飞机后被6枚响尾蛇导弹围攻击落。根据台湾方面记载，两波空战台军用机炮和响尾蛇导弹共击落9架共军米格17，并可能击落2架，击伤一架, 台军方面无损伤。在空战的过程中，有2-3枚 （一说4枚）响尾蛇导弹未爆炸，在燃料耗尽后坠落地面被共军获得。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片1-174.png)
-中共在获得响尾蛇导弹完整残骸后,立刻对其展开了仿制测绘工作，项目代号55号任务，在大跃进思潮的感召下上级要求有关单位在当年年底就复制出一枚实验弹。可当时中共国的工业基础十分薄弱，仿制工作进行得相当不顺利。当时苏联也得知中共获得了美军最先进空空导弹残骸，时仍苏共总书记赫鲁晓夫反复向中共索取导弹残骸，但被几次致函都没有得到回复。最好苏方施压，停止了包括中程弹道导弹在内的多项对华技术援助，中共方面才向苏联转移了响尾蛇导弹的部分残骸，据说中方最后还私藏了导弹红外传感器。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片2-63.png)
-*中共获得的AIM-9B残骸*
-*图片来源： 网络*
-但苏联毕竟还是老大哥，凭借着其强大的工业实力，在短短两年之内就完成了AIM-9B的全部逆向仿制工作， 苏联的仿制产品名为R13, 北约代号AA-2环礁。据说当时还有一位叛变的瑞典空军上校向苏联出售了早期响尾蛇导弹的全套图纸，所以早期批次的R13导弹连配件编号都是沿袭了响尾蛇导弹的零件号， 甚至早期的R13也完全沿袭了AIM-9B响尾蛇导弹的一些技术缺陷。1961年，苏联将R13导弹全套技术资料连同米格21-13型战斗机一起转移给中共，中共用了5年的时间进行仿制消化，终于在1967年成功研制出了国产红外制导空空导弹霹雳2， 并配备歼6和歼7战机。而此时，美军已经开始装备第二代的响尾蛇导弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片3-39.png)
-*中苏仿制AIM-9B的历史， 仿制再仿制*
-924空战直接导致美军当时最先进的响尾蛇导弹被克隆出了红色孪生兄弟，也从此拉开了东西方航空大国竞相研制空对空导弹的序幕。 苏联在AIM-9B的技术基础上改善了红外制导装置的冷却性能，和AIM-9B一样早期R13的红外制导头呈半球形，空气阻力大，不适合60年代的超音速战斗机，因此苏联在后期产品上修改了制导头的气动外形，甚至还研制出了半主动雷达制导型号。在AIM9-X出来之前，美国人在响尾蛇导弹家族的研制思路上走的也是这样的 “换头大法” 。既在不更改导弹整体气动外形的前提下，更换导弹引导头，来实现性能提升和不同军种的需求。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片4-24.png)
-*AIM-9响尾蛇导弹发展史*
-前苏联在掌握AIM-9原理后很快就另起炉灶，在冷战期间发展了多个型号的中近程空空导弹。比较有名并实现大规模装备的就是R60，R73近程红外制导空空导弹对应美军AIM-9响尾蛇系列，中程拦截弹则有R27系列和R77.  对应美军的AIM-7麻雀和AIM-120系列。众观整个冷战期间的美苏空空导弹设计，我们可以发现一个有趣的现象，前苏联的现代空空导弹型号繁多，气动控制面比较复杂，弹翼形状各异，相比之下美军的现代中近程空空导弹只有3个主要型号，每个型号的升级换代并没有涉及到明显的气动外形的改变， 就拿响尾蛇导弹来举例，从A型发展到M型，那么多年过去了，长得还是那个样， 那个尾部弹翼上的机械式空气陀螺舵最终在9X上才被取消。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-29-220325.jpg)
-*在响尾蛇导弹上延续了几代的空气陀螺舵*
-后来的麻雀导弹和AIM-120走得也是这个路线，换代不换气动。 这是得益于西方的先进航空电子和飞控技术，使得导弹可以通过内部的硬件和软件升级完成跟新换代和性能提升，而前苏联在飞控技术相对落后的情况下，想提高导弹性能就必须不断优化气动外形和增加额外的控制翼面来达到预期效果。前苏联在电子技术相对落后的情况下，集中资源把功夫花在空气动力学上，以获得与北约阵营同等性能的导弹，这是不得已但也是明智之举。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片5-11.png)
-*前苏联在飞控技术相对落后的情况下，想提高导弹性能就必须不断优化气动外形和增加额外的控制翼面*。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo77Gnews.004-2.png)
 
-***(未完持续)***
 
+### 77国际功成农场
+正义小sarah
+
+
+
+大家好，我是正义小Sarah，来自77国际功成农场，我们致力于为所有G系列工程师服务。我们欢迎所有战友、新中国联邦和世界各地热爱和平的人们。我们将一起打倒中国共产党，确保新中国联邦的未来。
+
+Hello everyone, my name is Sarah from Himalaya G-Engineers farm. We are committed to serving all G-series engineers. We welcome all members of the whistleblower’s movements, the New Federal State of China and the peace loving people around the world. Together we will take down the CCP and ensure a bright future for the New Federal State of China.
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo77Gnews.004-2.png)
+
+
+### 77国际功成农场
+小王子
+
+
+
+大家好，我是小王子，在77国际功成农场，我们致力于为给工程师创造一个包容性的安全环境，使他们能够专注于他们的重要工作，不受干扰。我们希望确保工程师们能够成为最好的自己。我们理解你的激情，我们崇拜你的才华。加入我们，分享G系列成功的喜悦，品尝我们不可逆转胜利的甜蜜。
+
+Hello everyone, my name is Prince. Here at G-Engineers we committed to creating an inclusive safe harbor for our engineers, so they can focus on their important work and be free from distractions. We want to ensure that our engineers can be the best version of themselves. We understand your passions and we adore your talent. Join us to share the joy of G-series’ success and taste the sweetness of our inevitable victory
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Japan-fangzhou.jpg)
+
+
+### 日本方舟农场
+草根小哥
+
+
+
+77功成农场的所有兄弟姐妹们，工程师们，大家新年好！感谢各位过去一年的辛苦劳作！在新的一年里我祝愿各位身体健康！这样的话你们就可以成为这个世界上最健康，最多金，同时也是最有才的人！你们将会是这个时代的翘楚！
+
+Dear brothers and sisters and all the engineers from Himalaya G-Engineers farm, I wish you Happy New Year! Thank you all for your hard work in the past year! In this new year I wish you all good health! So that you can be the healthiest, the richest, and the most talented people in the world! You will be the envy of this generation!
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1200px-GTV_Media_Group_logo.svg_.png)
+
+
+### GTV – CTO 
+杖子小哥
+
+
+
+在这辞旧迎新之际，我代表日本GTV工程师团队，给大家拜年了！祝福郭先生和全球战友及家人平安健康，虎年大吉！祝福G系列工程师团队虎气冲天！ 我们一定不负众望，把GTV 做好！
+
+On behalf of the GTV Japan team of engineers, I would like to wish you all a Happy New Year! I wish Mr. Guo and his global supporters and their families a safe and healthy New Year of the Tiger! I wish the G-Series engineer team a great year of the Tiger! We will definitely live up to the expectations of everyone and make GTV a success!
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo77Gnews.004-2.png)
+
+
+### 77国际功成农场
+小王子，佳佳
+
+
+
+尊敬的战友们好，我是小王子，我是佳佳。
+
+在2022年新春佳节之际，我在此真心祝各位战友们，生体健康，万事如意。远离病毒，远离疫苗，一定生活甜蜜蜜。
+
+共产党你玩球蛋了。 Take down the CCP！
+
+Dear brothers and sisters in arms, I am Prince, I am Evelyn.
+
+In the occasion of the Chinese New Year 2022, we would like to sincerely wish all my brothers and sisters in arms, a healthy life and only the best. Free of viruses, free of vaccines, and to undoubtedly live a life ‘as sweet as honey’.
+
+CCP, you’re done for. Take down the CCP!
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gettr-1.png)
+
+
+### Gettr – CEO
+Jason Miller
+
+
+
+大家好，我是盖特CEO Jason Miller，祝大家新年快乐！我们现在马上就要进入虎年了。我认为老虎完美的代表了盖特作为一个自由媒体平台的勇气，自信，与骄傲。我们是一个自由的平台，我们与所有努力消灭中共的先生们和女士们站在一起！我们与新疆维吾尔族人站在一起！我们与西藏人站在一起！我们更是与在香港前线勇敢奋战的学生勇士们站在一起！我们会把盖特带到月球！我们会携手并且作战，消灭中共！今年，我们就是老虎！我们是胜利的平台！我非常荣幸和激动能够和大家一起踏上我们的使命！
+
+Hi everybody this is GETTR CEO Jason Miller wishing you a very happy Chinese New Year.We are now entering the year of the tiger.I can think of no better description than the tiger that represents the courage, the self-confidence, the self-esteem that we have as a platform of free speech.We are the platform of freedom, we stand with the hard-working men and women who face up against the CCP oppression.We stand with the Uyghurs.We stand with the people of Tibet.We stand with the students who are in Hong Kong valiantly making their voices heard.We are gonna take GETTR to the moon.We are going to take down the CCP.We are the tiger.This is the platform for victory and I am so excited to be on this mission with you!
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gettr-1.png)
+
+
+### Gettr – CTO
+Ken
+
+
+
+Hi 大家好，我是在盖特的KEN，去年我们同舟共济，兢兢业业，新的一年我们要再接再厉，所谓忘过去展未来，2022年是个新起点，在这我代表盖特的科技部门，工程师团队向七哥大家拜年祈福，希望2022年灿烂辉煌，互转乾坤行大运，合家幸福，岁岁平安，虎年旺旺来～
+
+Hello everyone, I’m Ken from Gettr. Last year we were all in the same boat, working diligently, in the new year we have to continue to work hard, the so-called forgetting the past to discover the future, the year of 2022 is a new starting point, on behalf of Gettr’s technology department, the team of engineers wish Miles Guo and everyone a happy new year, hopefully 2022 will be splendid and brilliant, turning the wheel of fortune, happy family, peace and prosperity in the Year of the Tiger~
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo77Gnews.004-2.png)
+
+
+### 77国际功成农场
+文随riki
+
+
+
+郭先生好！全世界各地的战友们好！我是文随，来自77国际功成农场, 也在全球G系列咨服群做志愿者。
+
+祝大家新年快乐！远离病毒， 也远离疫苗，早日灭掉共产党！
+
+Hello Mr. Guo and all the supporters around the world! I’m Wen Sui, from Himalaya 77 G-Engineers Farm, and I also volunteer in the Global G-Series Advisory Service Group.
+
+Happy New Year to all of you! Stay away from viruses and vaccines, and let’s take down the CCP soon!
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-30-at-12.38.32.png)
+
+
+### G|FASHION – CEO & Co-founder
+Kamel & Doaa
+
+
+
+大家好，我们代表G-fashion，祝愿你们在未来的一年里能一切顺利。感谢你们对G-fashion的支持，使它成为一个非常成功和高贵的品牌。谢谢大家。
+
+谢谢你。非常感谢你们，并再次祝大家新年快乐!  大家多保重，再见。
+
+Hello everyone, we wish you the best year to come. Thank you for making G fashion a successful luxury brand. Thank you. Thank you so much and happy new year again! Take care, bye.
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo77Gnews.004-2.png)
+
+
+### 77国际功成农场
+Cute panda
+
+
+
+感恩上天，我们的是最有福报的人，能追随郭叔做人生中最有意义的灭共使命。在新的一年祝郭叔全家，还有全世界的战友虎年生体健康，万事如意， 虎年行大运。大家一起努力为了达到我们共同的目标。
+
+We are so grateful to be the most blessed people to follow Mr. Guo to do the most meaningful mission in our life, that is to take down the CCP!
+
+In the new year, we wish Mr. Guo and his family and all our comrades around the world to have a healthy and prosperous life in the Year of the Tiger, and we will work together to achieve our common goal!
+
+* * *
+
+**77国际功成农场**
+
+**2022 新春贺岁片 **
+
+**Himalaya International 77 G|Engineers Farm**
+
+**2022 Chinese New Year Special Film**
+
+**77国际功成农场**
+
+**出品**
+
+**Produced By**
+
+**Himalaya International 77 G|Engineers Farm **
+
+**导演 **
+
+**Executive Directors**
+
+**正义小Sarah (Sarah)**
+
+**小王子 (Prince）**
+
+**策划与文案 **
+
+**Planning & Copyediting**
+
+**Lakeman 文仁**
+
+**Cute Panda**
+
+**旗风 (QiFeng)**
+
+**特邀嘉宾**
+
+** Special Guests **
+
+**GTV CTO**
+
+**杖子小哥 (Kirby）**
+
+**GTV Director**
+
+**草根小哥 (Sean)**
+
+**GETTR CTO**
+
+**Ken**
+
+**G｜FASHION President & CEO**
+
+**Doaa Dashoush **
+
+**G｜FASHION Co-Founder**
+
+**Kamel Debeche**
+
+**  出镜战友：**
+
+**Cast Members: **
+
+**正义小Sarah (Sarah)**
+
+**小王子 (Prince)**
+
+**佳佳 (Evelyn)**
+
+**文随riki (Riki)**
+
+**Cute Panda**
+
+**视频监制 **
+
+**Video Producer**
+
+**Cute Panda**
+
+**字幕 **
+
+**Caption****
+****老虎尾巴 (TigerTail)**
+
+**星星 (XingXing)****
+**** **
+
+** 视频制作 **
+
+**Video Editors**
+
+**文宝宝 (WenBaoBao)****
+****星星 (XingXing)****
+****Cute panda**
+
+**感谢观看，77国际功成农场祝您新春快乐！**
+
+**Thank you for watching! **
+
+**We wish you a very happy Chinese New Year!**
+
+编辑/上传 大废墙（文非）
+
+* * *
+
+[77国际功成农场 on GTV](https://gtv.org/user/618f6773e7e7703792344ce6#home)
+[77国际功成农场 Himalaya G|Engineers on Gettr](https://gettr.com/user/himalaya77tech)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/banner-gnews77.010.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
