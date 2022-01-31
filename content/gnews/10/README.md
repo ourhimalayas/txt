@@ -2,8 +2,8 @@
 ---
 
 
-## 体育界大翻车李永波被抓
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935711/)
+## 成长需要过程要面对
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935744/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
