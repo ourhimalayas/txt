@@ -2,33 +2,76 @@
 ---
 
 
-## 中日财经爆┃全球通胀油价攀升 经济陷入滞胀股市将崩盘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933693/)
+## 【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1933874/)
 
-撰稿：东京樱花团丨麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-2-1.png)
-[*图片来源*](http://fromnewworld.com/wp-content/uploads/2017/01/stock.jpg)
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-在美国，作为通胀指标的消费者价格指数（CPI）在 2021 年 12 月同比上涨 7%，汽油价格在过去一年上涨了 50%，二手车价格上涨了 37%。对公民生活的影响尤其大，高油价提高了生产一切的成本，包括服装、肉类、蔬菜和水果。加上新冠疫情导致的劳动力短缺、物流停滞、房价飙升等因素，价格上行压力暂时不大可能减弱。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-德国、法国等19个欧元区国家的CPI（2021年12月）也同比上涨5%，是1997年以来的最高涨幅。英国也同比增长 5.4%，为 30 年来最大增幅。 在新兴经济体巴西，价格将继续同比上涨 10% 以上。在日本，去年 12 月的 CPI 连续第四个月同比上涨 0.8%。 扣除生鲜食品后的核心 CPI 也上涨 了0.5%。 相关专家认为， 4月份之后，核心CPI将可能加速至1%左右。
+接[【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（上）](https://gnews.org/zh-hans/1933733/)
 
-在通货膨胀时期，对股票、房地产和商品的投资据说比现金更能“抵抗通货膨胀”，因为现金的价值在未来会被稀释。在美国股市中，由于资本过剩，资金继续流入，相关人员正在密切关注通货膨胀和由此产生的利率上升对市场的影响。
+2021年11月26日至2022年1月8日，澳大利亚新南威尔士州总共273,511例明确知道疫苗接种状态的确诊病例中，打了一针疫苗的2,578例，接种两针或两针以上的267,381例，未接种疫苗的人群中仅确诊了3,552例。
 
-对于股票价格来说，经济增长率是一个积极因素，而利率和通货膨胀是消极因素。这里的利率是长期利率，它是各种利率的基准，如抵押贷款利率。目前美国的长期利率为1.7%（截至1月25日）。如果把美联储2%的目标通胀率（一定时期内的平均通胀率）加进去，约为3.7%左右。这与经合组织（OECD）预测的美国今年3.7%的增长水平相同。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367-1.png)
 
-但是，如果通货膨胀继续上升，利率上升，而经济增速低于此水平，那么对股价将会造成不利影响。此外，今年上半年美国股市的风险是高油价，这也是通胀的一个因素。1月19日，纽约WTI原油价格创下每桶86美元的七年新高，反映了产油国对增产的谨慎态度和中东地区的地缘政治风险。如果原油接近100美元水平，对通胀和经济恶化同时进行的“滞胀”的担忧将增加，宏观经济可能会看跌。 如果将其视为机会的投机者进行“卖空”，股市可能会崩溃。日本的股票也会受到通货膨胀的影响。就目前而言，企业能够暂且做到不把价格上涨转嫁到最终消费价格上，但能坚持多久，还有待观察。
+2021年11月26日至2022年1月8日，3,022名Covid-19住院患者中，打了一针疫苗的80例，接种两针或两针以上的2,627例，未接种疫苗的人群中仅315例。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-368-1.png)
 
-[**米欧でインフレ加速  原油高の追い打ちで株価暴落も**](https://news.yahoo.co.jp/articles/d5b4ed0c43f2a25ca16bb633f359b483d4412f99)
+2021年11月26日至2022年1月8日，282名进入ICU的患者中，打了一针疫苗的12例，接种两针或两针以上的215例，未接种疫苗的人群中仅55例。
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-369-1.png)
 
+2021年11月26日至2022年1月8日，282名死者中，打了一针疫苗的3例，接种两针或两针以上的67例，未接种疫苗的人群中仅21例。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-370-1.png)
 
+在确诊、住院、ICU和死亡中，打了一针的似乎都最少，但这完全是假象，不能说明接种一针疫苗似乎感染、住院、ICU和死亡都很少。
+
+首先，根据澳大利亚卫生部门的统计规则（见报告31页），大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群中；
+
+其次除了37.4%的5~11岁的儿童仅打了一针外，在年满16岁的人群中，95.4%被打了一针，94%被打了两针，也就是说，仅打了一针的仅1.4%，；而在12~15岁的人群中，打了一针的83.2%，打了两针的78.5%，也就是说，仅打了一针的才4.7%，基数本来就少。
+
+而在新南威尔士州公布的疫苗接种状态中，只公布了年满16岁的人接种疫苗比率的时间曲线，并未公布16岁以下的人群是什么时候接种的。这让我们难以判断究竟有多少16岁以下的人是在确诊前21天内打的第一针。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_23-46-13.png)
+
+根据澳大利亚卫生部门的介绍，澳大利亚是从去年1月25日开始向年满16岁的人注射辉瑞疫苗，去年7月22日开始向12~15岁的青少年打辉瑞疫苗，去年12月5日开始向5~11岁的儿童打辉瑞疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Comirnaty-Pfizer-is-approved-for-use-in-people-aged-5-years-and-over.png)
+
+澳大利亚从去年2月15日开始向年满18岁的人注射阿斯利康疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaxzevria-AstraZeneca-is-approved-for-use-in-people-aged-18-years-and-over.png)
+
+澳大利亚从去年8月9日开始向年满18岁的人注射Moderna疫苗，9月3日开始向12~15岁的青少年注射Moderna疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Spikevax-Moderna-is-approved-for-use-in-people-aged-12-years-and-over.png)
+
+而2021年11月26日~2022年1月8日的中位日期为2021年12月17日，也就是说，5~11岁的儿童都是确诊前21天内第一次接种的疫苗，都被计入了未接种疫苗的人群。而12~15岁的青少年是从去年7月22日和9月3日才开始打疫苗，这些人打疫苗的时间比率曲线完全不知道。
+
+因此，如果南威尔士州不公布各年龄段的疫苗接种时间线，同时把接种第一针疫苗不超过21天的人混入未接种疫苗的人群中计算，极容易对公众产生误导，或者说错误的把大量第一次接种疫苗不超过21天的COVID-19患者计入未接种疫苗人群中，掩盖疫苗灾难的真相！
+
+但无论如何，南威尔士州的数据说明，COVID-19确诊、住院、ICU和死亡人群中，绝大多数为疫苗接种者，而未接种疫苗的人微乎其微。疫苗灾难正在爆发！
+
+参考资料：
+
+[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
+
+[COVID-19 vaccination update Vaccine doses administered to NSW populations](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/stats-nsw.aspx#today)
+
+[Spikevax (Moderna)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/moderna)
+
+[Comirnaty (Pfizer)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/pfizer)
+
+[Vaxzevria (AstraZeneca)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/astrazeneca)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW  Epidemiological week 1, ending 8 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

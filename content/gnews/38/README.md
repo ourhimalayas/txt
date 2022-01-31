@@ -2,34 +2,49 @@
 ---
 
 
-## 币安以《国际洗钱法》为由，限制281个尼日利亚账户
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935247/)
+## 中共腐败现实每况愈下
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935343/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
-
-整理/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-1.png)图片来源：雅典娜设计组
+作者：纽约磐石农场—在远方
 
 
-根据《路透社》1月31日报道，全球最大的加密货币交易所币安（ Binance）首席执行官表示，已限制281名尼日利亚用户的个人账户，理由是需要遵守《国际洗钱法》。
 
-赵长鹏在1月29日给尼日利亚客户的一封信中表示，限制部分个人账户的决定是为了确保用户安全，其中超过三分之一受影响的账户是应国际执法机构的要求而限制的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-赵长鹏说：“目前，我们已经解决了79起案件，并继续通过其他案件开展工作。所有与执法无关的案件将在两周内解决。”
 
-尽管有中央银行的禁令，尼日利亚人仍继续转向加密货币开展业务，以保护他们的储蓄。他们在奈拉货币贬值时向国外发送付款，因为在当地通常很难获得美元。
 
-新闻链接：[Crypto giant Binance restricts 281 Nigerian accounts](https://www.reuters.com/technology/crypto-giant-binance-restricts-281-nigerian-accounts-2022-01-30/)
+1月30日，“国际透明组织”公布了2021全球廉洁指数，针对180个国家和地区的政府部门的腐败程度进行排名，其中中共国排名第66，低于亚太地区平均水平。
 
-发布：tianzhihuan
+据悉，国际透明组织自1995年起，开始对世界各国贪腐情形进行追踪调查，发现许多国家反腐行动不但没有进展，甚至发生倒退现象。尤其是中共国，由于缺乏有效监督机制，中共从上至下，大量盗国贼及其家属，将海外视为窝藏贪腐所得的据点，并且中共国没有自由言论空间，当权者禁止政治改革，而所谓反贪腐打虎拍蝇行动，都是为了打击异己的手段而已。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+另外，该组织还发现，中共国以所谓外援的形式，将政府腐败的行为输出，让一些弱势国家的贪腐情况更为严重。分析人士指出，中共的独裁专制并非只是制度的优劣，更加能对民主国家带来制度侵害。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-9.jpg)
+参考信息：
+[習近平打虎拍蠅反貪無效 廉潔指數排名低於亞太國家平均水平](https://cn.rti.org.tw/news/view/id/2123296)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

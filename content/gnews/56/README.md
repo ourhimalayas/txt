@@ -2,179 +2,129 @@
 ---
 
 
-## 中共国希望将美国文化女性化以进行控制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1879630/)
+## 独家报道：奥地利联邦宪法法院就强制新冠疫苗接种令照会卫生官员质疑其合法性
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1930543/)
 
-**Steve Bannon
-史蒂夫·班农**
+简评：瞌睡猫
 
-Ken Blackwell, I want to go back this about this central issue of masculinity
-肯·布莱克威尔, 我想回到这个关于男子阳刚之气的核心问题
+翻译：英喜德语组幺蛾子，澜磬筱竺，Miao，Wistaria，Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMAGE-2022-01-29-235422.jpeg)图片来源：2022年1月28日官网截屏/ 奥地利联邦宪法法院
 
-and trying to de masculinity this whole attack on males overall
-当试图去男性化对男性整体进行攻击
+简评：
 
-but particularly on black men
-但尤其是对男性黑人
+经奥地利国会内部人士爆料，奥地利宪法法院Dr. Andreas Hauer大法官于2022年1月22日向奥地利联邦社会事务、健康、护理和消费者保护部发出正式照会，要求该部部长 Wolfgang Mückstein 于2月18号之前到国家宪法法院就其目前所实施各种针对CCP病毒的强制措施，包括对未接种人群实施的残酷无情的有差别强制隔离措施进行一些列的答辩。 这个时刻联邦宪法法院发出照会，笔者认为，象征了奥地利法律系统开始关注这一系列行政措施开始关注这一系列行政措施是否具有合理性，是否有必要实施。
 
-Walk us through what that attack is
-引导我们了解攻击的是什么
+目前，奥地利是欧洲第一个通过新冠疫苗接种强制令的国家，也是为数不多几个对未接种人群进行强制隔离的国家。尽管实施了最严格的隔离和新冠疫苗接种政策，奥地利CCP病毒感染新增案例居高不下，在1月28日截稿日更达到了前所未有的38681新增病例。我们不仅要问，到底是没打新冠疫苗的人群还是打了新冠疫苗的人群在得病并传播病毒？到目前为止奥地利政府和卫生部门不仅就这些问题没有给出明确答案，而且还一而再再而三地歧视未接种CCP病毒疫苗人群，并且以罚款等各种名义胁迫百姓接种CCP病毒实验性新冠疫苗，这种新冠疫苗不可靠，有严重副作用，甚至有死亡的危险。奥地利政府所采取和颁布的各项措施充满争议，不光引起了民众的反感，在全国各地进行大游行，如今也引来了奥地利宪法法院的密切关注和法律介入。
 
-and how does that translate to the practical politics
-以及这如何转化为实际的政治
+1月14日美国最高法院否决了拜登政府对雇员超过百名公司的强制接种及检测行政命令，打开了美欧民主国家各国最高立法机构介入并阻止执法部门利用抗击CCP新冠病毒的名义进行无限制扩充权力的先例。现在奥地利宪法法院紧跟其后，将给在欧洲各国政府强制新冠疫苗，强制隔离越权最严重的奥地利带来转机。Dr. Andreas Hauer大法官发出的照会思维严谨，不带有任何政治倾向，所有问题紧紧围绕科学数据和法律，将对其它欧洲各国依法反对强制新冠疫苗和隔离的斗争起到一个很好的榜样作用。
 
-we need to basically destroy root and branch the Democratic Party in November this year
-我们需要在今年11月基本击败民主党
+法令发自：
 
-Ken Blackwell (Commentator, Former Ohio State Treasurer)
-肯·布莱克威尔（评论员，前俄亥俄州财政部长）
+**宪法法院 **
 
-Steve, It really did start at an accelerated pace with the Great Society Program
-史蒂夫，它确实从大社会主义计划开始加速
+弗赖翁 8，1010 维也纳
 
-when in fact they created an incentive system to break up the family
-事实上，他们创造了一个激励系统来打破家庭
+V 11/2022-4
 
-and to drive unemployed a low wage of black males out of the family
-以及将低工资的黑人男性赶出家庭
+法令发至：
 
-they created a penalty box for intact families
-他们为完整的家庭创造了惩罚箱
+**联邦社会事务，卫生部，护理和消费者保护部部长**
 
-1960s there were many intact black families as my family
-1960年代有许多完整的黑人家庭就像我的家庭
+Stubring 1
 
-The Great Society Program accelerated the attack on the black on the black males
-大社会计划主义加速了对黑人男性的攻击
+1010 维也纳
 
-We were experiencing that
-我们正在经历这种情况
+在上述法令审查程序中，根据 宪法法院法（VFGG） 第 5 20 条第 3 款， 也是为了准备可能的口头听证会 – 要求在 2022 年 2 月 18 日之前提供以下信息：
 
-I’ll just go to TikTok, the feminization of America
-我用抖音举例，美国的女性化
+1. 在根据 COVID-19-措施法（COVID-19-MG） 发布的法令文件中，特别提到了因新冠病症入住普通或重症监护病房以及死亡的人数。 引用2021 年 10 月 11 日《新闻》日报报道（“接种过疫苗的人也住院：疫苗有效吗？”）为例子，根据官方信息“如果患者因肾功能衰竭住进重症监护室，并且偶然因新冠病毒检测结果呈阳性”，则将其归为 “新冠病例”。
 
-and America America’s family unit which is not a family unit
-而美国的家庭单位，它不是一个家庭单位
 
-‘cause Marxism so big government socialist, they all destroyed the family
-因为马克思主义这么大的政府社会主义者，他们摧毁了家庭
+因此，宪法法院要求提供信息，法令文件中给出的住院或死亡人数是否包括所有在医院被安置在普通或重症监护病房中的新冠病毒感染者，无论是直接死于新冠病毒还是带着新冠病毒而死的人。 如果是，为什么选择这种计算方式？此外，宪法法院要求—如有必要—按以下方式对这些数字进行分类:
 
-because they want to create a dependency on the government
-因为他们想建立人们对政府的依赖
+-新冠病毒直接导致病人死亡，病人带着新冠病症而死亡和病人生前无新冠病毒感染症状。
 
-They want you on the tip of big government so they can control you
-他们想让你站在大政府的施舍上，这样他们就可以控制你
+-病人因新冠病症住进重症监护室，病人因其它病症住进重症监护室，但同时也伴有新冠病毒症状，以及最后病人因其它病症住进重症监护室且感染了新冠病毒（无症状或轻度病症不需要住院）。
 
-They’ll move you from being a free citizen to being a subject
-他们会让你从一个自由公民变成一个臣民
+— 因新冠病症而在普通病房住院的人，因其它病症而在普通病房住院，但也感染了新冠病毒的人，以及因其它病症在普通病房住院且（无症状或病症轻微本身不需要住院）感染了新冠病毒的人。
 
-Now what black males have experience it’s that they in fact around in reality
-现在黑人男性在现实中的经历可以追溯到
+宪法法院试图提供各自的数字，一方面是总数（按年龄组划分），另一方面是2022年1月25日的数字。
 
-and they see that the left is one pushing a feminization of our community and our America
-他们看到左派正在推动我们社区和美国的女性化
+2. 因新冠病毒在普通病房和重症监护病房住院的人以及因新冠病毒死亡的人年龄的平均值和中位数分别是多少？
 
-And they are in fact, continuing to zero in on males
-事实上，他们正在继续对男性进行调查
+3.1. 按年龄组和性别划分，每10万个疾病病例的死亡人数分别是多少？按年龄组和性别划分，每10万个疾病病例中在普通或重症监护病房住院的人数分别是多少？
 
-the Chinese Communist Party along with big government marches in general
-中国共产党和大政府普遍推行
+3.2. 按年龄组和性别划分，每10万名感染者的死亡人数分别是多少？按年龄组和性别划分，每10万名感染者在普通或重症监护病房住院的人数分别是多少？
 
-which it’s Putin in Russia
-就是在俄罗斯的普京
+3.3 按年龄组和性别划分，每10万名居民的死亡人数分别是多少？按年龄组和性别划分，每10万名居民中在普通或重症监护病房住院的人数分别是多少？
 
-they understand that they can feminineness the American culture
-他们明白他们可以使美国文化女性化
+4. 在2022年1月1日，2022年1月25日和（回答此问题时）当日的感染者、住院者和死亡者中存在哪些病毒变种，其比例各占多少？
 
-they in fact, they gain an advantage on the battlefield
-事实上，他们在战场上获得了优势
+5.  在生活方面（比如家庭、工作、购物（基本日用品、其他商品）、各种休闲活动）发生感染，其对应的比例是多少？
 
-What we have to do is to understand that black males are ready to speak up
-我们要做的是了解黑人男性已经准备好发声
+6. 在室内或着室外佩戴FFP2口罩会以什么因素降低病毒感染或传染的风险？
 
-Our get to do is to go to Chicago and they are tired of this mess
-我们要做的就是去芝加哥，他们厌倦了这个烂摊子
+7. 疫苗接种率（按照接种第一、第二和第三剂细分）在各年龄组中是如何分布的？
 
-And in fact, we need to say, look, we have an agenda for freedom
-事实上，我们需要说，看，我们有一个自由议程
+7.1. 关于欧米克隆（Omikron）感染，下面四组人群中平均7天发病率是多少：2022年1月未接种新冠病毒疫苗的人；接种了第二剂、但尚在接种后14天内的人；已完成“基本免疫” （尚未接种第三剂“加强针”）的人；已接种加强针的人？
 
-We have an agenda for self sufficiency
-我们有一个自给自足的议程
+7.2. 接种新冠病毒疫苗后减少发展为重症的几率为多少？媒体的说法是可达95%。目前，总体（不分年龄和健康状况）死于新冠病毒的风险（参照流行病学报告系统数据（AGES-Dashboard））似乎为0.1516%。95%的疫苗接种有效率指的是什么？在这种情况下，绝对和相对风险降低又指什么？
 
-We have an agenda that respects your human agency and your human dignity
-我们有一个尊重你的人的能动性和你的人格尊严的议程
+7.3. 接种第一、第二和第三剂疫苗能在多大程度上降低因感染新冠病毒在普通病房或重症监护室住院的风险、或因感染新冠病毒死亡的风险？这一程度是否取决于（流行的）变种病毒？
 
-and we can begin to move not in next two years, not in four years
-我们可以开始行动，不是两年后，不是四年后
+7.4. 据媒体报道，新冠病毒疫苗的保护作用会随着时间的推移而减弱。 这是真的吗？那么在接种第二剂最常用疫苗后的三个月、六个月和九个月以后，这一保护系数有多高？请说明每种情况下的绝对和相对风险的降低。
 
-but this year in this election, we can change things in the margin
-而是在今年这次选举，我们可以在很大程度上改变一些事情
+7.5. 在直接因新冠病毒导致住院和因其它病症导致住院，但同时携带新冠病毒的人中，接种第一、第二和第三剂疫苗的人各占多少？
 
-you get black males voting for MAGA candidates
-让黑人男性投票给使美国再次伟大的候选人
+7.6. 接种了新冠病毒疫苗的人也可能感染SARS-CoV-2、罹患新冠病毒症并传播SARS-CoV-2。这似乎与当前的科学状况相符。接种新冠病毒疫苗能在多大程度上降低感染、患病和传播的风险？如果这些取决于接种疫苗的数量和/或自上一次接种疫苗以来的时间，请提供详细的数据。
 
-who in fact, respect human dignity, respect the family, respect work, and respect freedom
-事实上，是尊重人的尊严，尊重家庭，尊重工作，尊重自由的候选人
+8.1. 在新冠病毒(§2第2段第3项，COVID-19-SchuMaV经BGBI.I|24/2022修订) 分子生物学测试呈阴性后，排除被测者在检测后72小时内将新冠病毒传染给其他人的概率有多少？考虑到潜伏期：检测（阴性）后多久可以排除（最高概率）这名阴性被测者可传播新冠病毒？
 
-you in fact, we’ll win elections for the next 50 or 100 year
-事实上，我们将赢得未来 50 或 100 年的选举
+8.2. 在三个月，六个月或八个月前接种第二次疫苗后的新冠病毒感染者，与未接种疫苗、24小时前PCR检测结果呈阴性的人相比，他的传播风险有多高？
 
-Steve Bannon
-史蒂夫·班农
+9.1.  一个未接种疫苗的25岁的人在一年内因新冠病毒住院（普通病房或重症监护室）的风险有多高？
 
-Ken, how do people get you on social media? How do you get your website?
-肯，人们如何在社交媒体上找到你？ 如何得到你的网站？
+9.2.  一个25岁的人，两次接种奥地利最常用的疫苗后，在第三、第六和第九个月因新冠病毒住院（普通病房或重症监护室）的风险，平均在一年内有多高？
 
-Ken Blackwell
-肯·布莱克威尔
+9.3.  一个未接种疫苗的65岁老人在一年内因新冠病毒住院（普通病房或重症监护室）的风险有多高？
 
-Kenblackwell.com, @kenblackwell on Gettr, and twitter
-Kenblackwell.com, @kenblackwell在盖特和推特
+9.4. 一个65岁的老人，在两次接种奥地利最常用的疫苗后在第三、第六和第九个月，因新冠病毒住院（普通病房或重症监护室）的风险，平均在一年内有多高？
 
-I’m deemphasizing on Twitter
-我正在淡化推特
+9.5.1. 所谓的“对未接种疫苗者的封锁 ”并不能排除例如在家庭或工作中的感染，但是或许能避免在宾馆中的感染。参照感染风险在生活领域的归类（上面第5点）： “对未接种疫苗者的封锁 ”会使未接种疫苗者的感染风险降低多少个百分点（基数为：没有 “对未接种疫苗者的封锁 ”的感染风险=100）？
 
-And we’re growing like gangbusters on Gettr
-而且我们在盖特上的发展势头迅猛
+9.5.2. 除其它外， “对未接种疫苗者的封锁” 可能是基于以下考虑：未接种新冠病毒疫苗的人比接种疫苗的人的住院风险更高，这可能会给卫生系统带来更大的风险。现在，住院的风险也可能在很大程度上取决于年龄，疫苗接种率可能因年龄组而异。无论如何，所有年龄组的“第二剂疫苗”接种覆盖率应该在75%左右，感染的发生率也可能在不同的生活领域有不同的分布，据此，对未接种疫苗者的“封锁”可能只排除了他们的某些感染源。考虑到这些参数以及第二剂疫苗接种降低风险的程度： “对未接种疫苗者的封锁”对医院负担的影响百分比是多少？
 
-Steve Bannon
-史蒂夫·班农
+或者在绝对数量上，AGES仪表板显示: 2022年1月24日，普通病房有1049名新冠病毒患者，重症监护病房有194名新冠病毒患者。如果没有 “对未接种疫苗者的封锁”，那普通病房或重症监护病房的床位占用率预期会提高多少？
 
-Ken, honor to have you on here. Sir, thank you
-肯，很荣幸有请你在这里， 先生，谢谢你
+《标准日报》在2021年12月2日以 “新冠病毒受害者比去年秋天少，但死亡率超高 ”为题进行了报道。
 
-Ken Blackwell
-肯·布莱克威尔
+与前一年相比，患新冠病毒的死亡人数减少了三分之一，但同时每周的超常死亡率却达到三位数，这是真的吗？
 
-Good be with you
-高兴和你一起
+如果是这样，2021年人们并非死于冠状病毒的总超常死亡率有多高? 这种超常死亡率如何解释?
 
-Steve Bannon
-史蒂夫·班农
+2022.01.26 维也纳
 
-Thanks, brother
-谢谢， 兄弟
+宪法法院
 
-* * *
+Dr. Hauer
 
-Date:01/18/2022
-原视频标题: China Wants To Feminize The Culture Of America For Control
-中共国希望将美国文化女性化以进行控制
-原视频日期：2022/01/18
-原视频链接: [**https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html**](https://rumble.com/vsrm97-china-wants-to-feminize-the-culture-of-america-for-control.html)
-任务编号：KE356(3526)
-视频时间段 : 0:00-3:29
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+发送至:
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+联邦社会事务、卫生、护理和消费者保障部长 Stubenring 1
 
+Unterzeichner 签名
+
+Darum/Zeit 日期/时间
+
+Aussteller Zertifikat 签证人证书
+
+本文件已经正式签署
+
+关于验证电子印章或电子签名的信息可以在以下网站找到。
+
+原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/IMAGE-2022-01-29-235855.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/IMAGE-2022-01-30-001512.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/IMAGE-2022-01-30-095424.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/IMAGE-2022-01-30-095430.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/IMAGE-2022-01-30-095434.jpeg)
+校对：英喜德语组 Luckycky，貓聲，Wistaria，Nena，澜磬筱竺/ 审核：貓聲，Charles / 发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

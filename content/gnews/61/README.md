@@ -2,64 +2,154 @@
 ---
 
 
-## 塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1851946/)
+## 我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1878442/)
 
-秘密翻译组-北美组
-![](https://assets.gnews.org/wp-content/uploads/2022/01/WhatsApp-Image-2022-01-12-at-12.08.23-PM.jpeg)
-塞浦路斯当局发现自己陷入了一个严重但也具有政治影响的复杂案件之中。
+[https://gtv.org/video/id=61e6a22e87664c47acd645e2](https://gtv.org/video/id=61e6a22e87664c47acd645e2)
 
-事实上，这些是它的参数，因此有死胡同的说法。这是因为，一方面，与中国的外交关系岌岌可危，另一方面，另一个阵营的政治活动家正在被美国承认。
+**Steve Bannon:
+史蒂夫班农:**
 
-整个问题涉及可能引渡两名中国公民，一名母亲和一名儿子，他们获得了共和国的永久居留许可，并通过投资计划在帕福斯省定居。
+I just want to make sure we go through it one more time
+我只是想再一次明确实一下
 
-去年 12 月 8 日（2021 年），根据国际刑警组织的红色通缉令，他们在 Pegeia 被法庭逮捕。出于安全原因，这两个人的姓名和年龄没有透露，在他们的祖国被通缉。他们涉嫌与金融/投资欺诈有关的罪行，据中国当局称，2013 年发生在中国。
+The numbers a day you’ve had CPI now PPI
+你每天的数字是消费者物价指数，现在是生产者物价指数
 
-目前，这对母子被关押在中央监狱，直到帕福斯地方法院就中国当局的引渡请求作出决定。考虑到所有参数，这个决定似乎一点也不简单。
+Come by and tell people this is…
+过来告诉人们这是…
 
-与 L.D. 的协议 中国的
+I’m stunned in my lifetime，given what we’ve seen before that we ever get these things
+鉴于我们之前所见，我们曾经得到过这些东西，我有生以来都惊呆了
 
-塞浦路斯共和国和中华人民共和国之间有一项关于引渡逃犯的特别协议，该协议实际上是合法的（参见 2019 年批准法 {Law 12 (III) / 2019.）。这也是建立在幅员辽阔的国家与塞浦路斯共和国之间的良好关系之上。
+And this is dangerous
+这是很危险的
 
-美国的政治运动
+No. 1 our system for these rate increases is talk trying to choke this down
+now our system is set up for negative interest rates
+第一，我们的这些加息系统是试图扼杀这种情况，现在我们的系统设置为负利率
 
-然而，整个案件因其他相关事实和事件而变得复杂。这两名被拘留者是新中国联邦的成员和政治活动家。这场政治运动，也称为游说，由郭文贵和史蒂夫·班农发起，其既定目标是推翻中国共产党（CCP），进而推翻中国政府。
+People don’t understand that the trauma that is going to happen in our financial system
+人们不明白我们金融体系将要发生的创伤
 
-它于2020年6月4日在纽约成立，自称是中国的“流亡政府”，间接得到美国的承认。
+That’s going to roll into your personal life, okay?
+将会影响每个人生活，知道吗？
 
-联邦调查局的支持
+No. 2 run-away inflation has many bad things that happens when that happens Steve Cortes
+第二，通货膨胀失控时有很多不好的事情发生，交给史蒂夫科尔特斯
 
-事实上，在 2020 年底，美国联邦调查局正式表达了对中华人民共和国对居住在美国的华人的类似迫害的不满。
+Steve Cortes:
+史蒂夫科尔特斯:
+You’re exactly right Steve
+你是非常对的，史蒂夫
 
-该服务办公室主任克里斯托弗·雷 (Christopher Ray) 于 2020 年 10 月 28 日发表了官方声明，除其他外，中国共产党不会被允许针对生活在美国和其他国家的中国人，只是“因为他们被看到作为对政权的威胁。”
+Look, if we look at history we see that a lot of political upheaval
+看，如果我们回顾历史，我们会看到很多政治动荡
 
-法治基金致各部委的信
+upheaval that we could say the least evil actually results from inflation
+我们可以说最小的邪恶动荡实际上是由通货膨胀造成的
 
-我们持有并呈现的一封信被添加到整个场景中。法治基金于 1 月 5 日上周三将其发送至塞浦路斯司法和公共秩序部，同时也发送至内政部。
+If we look at country that were formally extremely successful places like Venezuela and Argentina in our own hemisphere
+如果我们看看在我们自己的半球有像委内瑞拉和阿根廷这样在形式上非常成功的国家
 
-它是一个同样位于美国（纽约）的激进组织，旨在为中华人民共和国的人权保护服务。作为其活动的一部分，它对中国执政党（CCP）的成员采取了法律行动。
+If we look at Germany pre-World War II
+如果我们看看二战前的德国
 
-信中指出，在 Pegeia 被捕的女子自 2020 年 4 月以来一直是法治基金的支持者和成员。
+We can see that inflation leads ultimately to abord authoritarianism and totalitarianism
+我们可以看到通货膨胀最终导致社会走向威权主义和极权主义
 
-还要注意的是，事实上这对母子是因为他们的政治观点而受到迫害，这些指控是捏造的。
+And in a country that is already as polarized as the United States is
+而在一个已经像美国这样两极分化的国家
 
-该机构的运营总监爱丽丝·杨（Alice Young）也签署了这封信，她说：“中国一方，我们认为这适用于两人的案件。”
+This kind of inflation is not just bad economics
+这种通货膨胀不仅仅是糟糕的经济学
 
-杨女士还引用了美国监管机构的官方声明来支持她的指控。
+It’s actually societally dangerous for our country
+它实际上是对我们国家的社会危险
 
-困境
+And that’s why we need to be cleared-eyed about what it is and about policy solution
+而这就是为什么我们需要清楚它是什么，以及政策解决方案是什么
 
-简单地说，塞浦路斯当局正面临两难境地。一方面是与友好的中国达成协议。对岸是有组织的团体，在美国的支持下运作，呼吁政治迫害，提出人权问题。
+Because Steve, we can’t just curse the darkness
+因为，史蒂夫，我们不能只是诅咒黑暗
 
-应该指出的是，塞浦路斯共和国过去在俄罗斯联邦提出的引渡该国公民的请求中处于困境。这是由于担心这些外国国民在被引渡后将面临的条件。
+We have to do that, yes
+是的，我们必须这样做
 
-“政治迫害的理由”
+But as lamentable as this current economic quagmire is
+但与当前的经济泥潭一样可悲的是
 
-接管母亲和她儿子的代理的律师 Efstathios K. Efstathiou 在他对“P”的陈述中谈到了政治迫害：“因为我的客户反对美国的纽约政治运动美利坚合众国正在为中华人民共和国的民主化而战。”
+This is stagflationary embroil that we face right now in America
+我们美国现在面临的滞胀困境
 
-给予国际保护
+It does also, Steve, present political opportunity
+史蒂夫，它也确实提供了政治机会
 
-需要注意的是，已经根据一项特殊的跨国协议提出了另一项引渡中国公民的请求。此案正在拉纳卡地区法院审理中
+Political opportunity to solidify the America first cost as the lasting secular ship in favor of working class Americans
+巩固美国作为有利于美国工人阶级的持久世俗之船的首要成本的政治机会
+
+and to transform the republican party, not of the parties of the chased right
+并改变共和党，而不是被追逐的权利的政党
+
+But instead, into a party of working class Americans that is truly multi-ethnic and multi-racial
+反而成为一个真正多民族和多种族的美国工人阶级政党
+
+And the polling is starting to show us that political opening is there
+民意调查开始向我们表明政治开放是存在的
+
+If we have the guts and the gumption to cease it of course the right policies mix as well
+如果我们有勇气和进取心去停止它，当然正确的政策也会混合在一起
+
+For example, as I mentioned yesterday in the show
+例如，正如我昨天在节目中提到的
+
+I think the most powerful way right now to win both politically as well as get the economy back on track
+我认为目前最有力的方式是去赢得政治上以及让经济重回正轨
+
+get the inflation in control again
+再次控制通胀
+
+and get wages rising is inflation motive
+并提高工资就是通胀动机
+
+We need to absolutely stop illegal migration in this country
+在这个国家，我们需要绝对阻止非法移民
+
+and I believe we need a pause in even legal migration to this country
+并且我相信，就算是合法移民也需要适当暂停
+
+A pause in H-1B and other similar would work which is why let the American people wages starts to rise
+H-1B和其他类似的暂停会起作用，这样可以让美国人的工资开始上涨
+
+So that we see real wages take off again the way they did under Donald Trump
+这样我们就可以看到实际工资再次像唐纳德-川普领导下那样飞腾
+
+instead of the way they are crashing right now under Joe Biden
+而不是现在在乔-拜登领导下崩溃的方式
+
+So, it’s calamity but there’s always opportunity as well in calamity
+因此，这是灾难，但灾难中也总是有机会的
+
+* * *
+
+Date: 01/13/2022
+原视频标题: 我们的加息系统是负利率设置的 人们不了解我们的金融体系将发生的创伤 将影响您的个人生活
+Our system is set up for negative interest rates. People don’t understand the trauma that’s going to happen in our financial system that’s going to roll into your personal life.
+原视频日期：2022/01/13
+原视频链接: [https://gettr.com/post/po5vfe12f0](https://gettr.com/post/po5vfe12f0)
+任务编号：KE353（3494）
+视频时间段 : 0:00-02:52
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

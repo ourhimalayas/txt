@@ -2,64 +2,54 @@
 ---
 
 
-## 樱花深度报道┃北京冬季奥运会的“体育洗白”宣传是柏林奥运会的翻版 维吾尔人大声疾呼中共对少数民族的残酷镇压（二）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935328/)
+## 喜马拉雅币一周分析与总结（1月24日-1月30日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935348/)
 
-编译：东京樱花团/Hopkins
+作者：纽约香草山金融部 – ILOVE战神
 
-（内容摘要）
 
-• 北京冬奥会与希特勒 1936 年在柏林的奥运会有很多相似之处
 
-• 2 月 4 日的活动笼罩在争议和抵制威胁中
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-• 维吾尔人和其他少数民族声称他们面临赛前镇压
 
-• 流亡的家庭成员说他们现在与亲人完全隔绝
 
-• 在国际事件之前让少数族裔保持沉默是中共的一种策略
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-534.jpg)
-(图片说明)西方民主国家一直在激烈争论是否要完全抵制这一有争议的事件，就像他们在 1936 年柏林夏季奥运会之前所做的那样
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-115.jpg)
-(图片说明)早在 30 年代，随着希特勒的法西斯政权作为一个全球大国崛起，争论的焦点是德国对犹太人的可恶待遇，以及参加奥运会是否会使竞争国家在某种程度上受到指责。图：希特勒在 1936 年柏林奥运会上
-![](https://assets.gnews.org/wp-content/uploads/2022/01/3-60.jpg)
-(图片说明) “他想展示雅利安人的至高无上——但当然，美国黑人运动员杰西欧文斯（如图）“单枪匹马粉碎了希特勒的雅利安霸权神话”，赢得四枚金牌，”巴卡博士说
+过去一周喜马拉雅币价格加速攀升至50美元上方，最高涨幅约24%，平均日交易量约11万5千枚喜币。喜币上市以来总交易量约2670万枚 ，占今年总发行量的仅约2.67%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture3-3.png)
+本周四，一篇来自英国金融科技资讯网站TechBullion的文章提到，喜交所是业内第一个运用人工智能技术识别人体行为与生物特征并与冷钱包安全措施相结合的加密货币平台。文章指出这一设计使喜交所的安全性达到业内最高。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-4.png)
+本周据郭文贵先生在大直播中透露，喜交所拥有世界上最好的KYC制度，目前有50亿美元现金正在等待KYC后进场。之后还会有上千亿美元进入。目前已经有六大品牌提前宣布接受喜币购买商品。喜支付上线后会有更多商家进场。随着喜支付的逐渐推广，会有金融机构开始接手相关业务，下一步会有国家主权机构接受并投资喜币，之后喜币将改变这个世界。
 
-“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够重视？” ——拉米拉·查尼舍夫
+郭先生还表示，喜支付会在春节甜蜜蜜运动期间上线，会把中共插在中国人民身上的血管改变方向，转而插到中共盗国贼自己的身上。
 
-现居住在阿德莱德的澳大利亚维吾尔唐格里塔妇女协会(Australian Uyghur Tangritagh Women’s Association)主席拉米拉·查尼舍夫(Ramila Chanisheff)向《每日邮报》澳大利亚透露，海外维吾尔人“与他们的朋友和家人失去了完整的沟通”。
+本周五喜交所进行了11小时的维护升级，并更新了官网的喜支付页面。目前官网已经提供了喜支付APP苹果与安卓版本的下载链接，预计在未来几天内可以开始使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-17.jpg)
+参考信息：
+1. [Safeguarding Digital Assets in an Increasingly Intangible World](https://techbullion.com/safeguarding-digital-assets-in-an-increasingly-intangible-world/)
+2. [HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
 
-她说：“过去，很多维吾尔人能够与家人交谈，但在过去六个月左右的时间里，他们一直被切断了联系。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-这也发生在2008年北京夏季奥运会之前，是专制政权在任何重大事件之前的常用策略。
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-查尼舍夫女士说：“人们被警告不要发声，也不要与海外任何人交流，这样外界就不知道那里真正发生了什么。”
+**更多资讯，更多关注**
 
-“我的表弟被关押在劳教所，每周只出来看望他的妻子和孩子，然后被带回。但每次他出去时，我都会试着打电话看看他是否还好，但我们被告知他不在。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“一个正在犯下种族灭绝罪行的国家怎么能被授予一项享有盛誉的体育赛事？
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-“中国的种族灭绝和种族清洗在什么时候能够引起国际社会足够的重视？”
-![](https://assets.gnews.org/wp-content/uploads/2022/01/4-50.jpg)
-(图片说明)据估计，有超过一百万维吾尔人被围捕并投入劳改营，在那里他们面临酷刑、国家支持的器官摘取甚至绝育的威胁，联合国和各种人权组织声称。图为：习近平在山西省北京冬奥会前与居民打招呼，合影留念
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-35.jpg)
-(图片说明)中国张家口，2022 年冬奥会前夕，一名单板滑雪运动员在赛场训练中进行跳跃
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-33.jpg)
-(图片说明)中国张家口 2022 年冬奥会前，一名工人飞过赛道
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-31.jpg)
-(图片说明)中国张家口 2022 年冬奥会前，三名滑雪者在赛场上训练
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-（未完待续）
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-作者：LEVI PARSONS/澳大利亚每日邮报
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-信息来源：
 
-[How Beijing’s 2022 Winter Olympics ‘sportswashing’ propaganda mirrors Hitler’s 1936 efforts in Berlin – as desperate Uyghurs speak out about China’s brutal pre-Games crackdown on minorities](https://www.dailymail.co.uk/news/article-10447673/How-Beijings-2022-Winter-Olympic-sportswashing-propaganda-mirrors-Hitlers-1936-efforts-Berlin.html)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
