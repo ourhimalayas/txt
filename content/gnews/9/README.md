@@ -2,28 +2,33 @@
 ---
 
 
-## 英国首相将于2月访问日本 协商共同对抗中共事宜
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1938305/)
+## 七哥说“人类，这地球就那么大，是不是，咱们就是一粒沙中的沙”（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938328/)
 
-**撰稿：日本东京方舟农场  老孙**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据多家媒体报导，英国首相鲍里斯·约翰逊（Boris Johnson）将在2月中旬访问日本，与日本首相岸田文雄举行领导级会谈。共同关注来自中共国政府的威胁，并在安全保障方面强化合作。
+来源：郭先生2022-01-27直播08：59：13摘录
 
-目前双方相关人员就访日相关事宜，已经进入最终协调阶段，两国领导人将于2月15日及16日进行为期两天的会谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-49.png)（图片取自路透社）
-会谈期间，两国元首将就强化两国关系和在印太地区的合作进行商议，密切关注来自中共国方面的威胁，并在安全保障方面强化合作。预计二人还将为推动日英早日缔结《互惠准入协定》(Reciprocal Access Agreement, RAA)而加速谈判。**   **
+台湾巴黎：我想问七哥为什么你想要活到65至70岁？你是想要寻求更高的维度的目标吗？
 
-《互惠准入协定》的意义在于简化因日本自卫队与英国军队实施共同训练等相关活动时，在对方国家停留时期的携带武器入境手续等，日本和英国去年10月已启动谈判。日本已在本月与澳大利亚签署《互惠准入协定》，英国将是第二个签约国。
+郭文贵先生：是的。我觉得我现在越来越有这种感觉，我真的是…..现在我觉得人啊，活到就让人家伺候你的时候，我觉得真的不太好，我觉得这是一个；第二个，我觉得人吧，人类，这地球就那么大，是不是，咱们就是一粒沙中的沙，你说你这个沙子老赖在这不走，你老充鹅卵石、充钻石的你干嘛呀？你该走就走。这关键是人他不生不灭，你不要怕死，他不会死的，这有太多话我在这直播中不能讲。而且你放心，到65以后七哥一定会寻找一个，我到65的时候一定寻找一个让你们看到…我要亲身证法，证明不生不灭的法，勇敢地面对这种生死轮替，生就是死，死就是生，生死轮替，我用生命证明给你们看。就不要像那些老杂毛不要脸的，天天赖在那活着。你看台湾那个连战都那个德行了，还在那赖着，天天吃药，还想搞台湾政治呢。你看台湾那些老政治老流氓从大陆去的那些国民党，那烂死了简直是，是吧？你看大陆那些老杂毛都活八九十岁，他也得死啊，他不就一万多天嘛。
 
-本月早些时候，日本首相岸田文雄已与美国和法国领导人进行了对话，并达成共识，将共同对抗来自中共政府的威胁。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**参考链接**：
-1:[https://www.cna.com.tw/news/aopl/202201290052.aspx](https://www.cna.com.tw/news/aopl/202201290052.aspx)
-2:[https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220129-%E6%97%A5%E8%8B%B1%E5%B0%B1%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E7%BA%A6%E7%BF%B0%E9%80%8A2%E6%9C%88%E8%AE%BF%E6%97%A5%E5%B1%95%E5%BC%80%E5%8D%8F%E8%B0%83](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220129-%E6%97%A5%E8%8B%B1%E5%B0%B1%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E7%BA%A6%E7%BF%B0%E9%80%8A2%E6%9C%88%E8%AE%BF%E6%97%A5%E5%B1%95%E5%BC%80%E5%8D%8F%E8%B0%83)
+**关注我们**
 
-**撰稿：**老孙**
-编辑：**文顺**
-发布：**文曦
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

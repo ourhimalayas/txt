@@ -2,36 +2,33 @@
 ---
 
 
-## 七哥谈当时在湖北襄樊（2022-01-27摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938295/)
+## 欧盟27国2月1日起全面解除疫情封锁政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1938307/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月28日，据相关媒体报道，欧盟理事会于近日发布了一则有关欧盟内部旅行的最新规定。当中指出，自2月1日起，游客只需携带中共病毒疫苗接种证明、康复证明或中共病毒阴性检测证明，即可在欧盟27个国家内畅行无阻，且无需经过隔离或额外的核酸检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-36.jpg)
+据悉，尽管目前整个欧洲的中共病毒感染率依然很高，但各国政府都迫不及待地想要重新开放。对此，欧盟的卫生官员表示，欧洲各国应立即结束那些会使旅行变得格外复杂的各种疫情限制措施。
 
-来源：郭先生2022-01-27直播08：47：19摘录
+此外，英国近日也宣布，将全面解除该国的限制措施并重新开放酒吧和餐馆。同时，当地也解除了针对民众佩戴口罩的法律要求，以及与游客入境相关的封锁政策。
 
-我只有当时我知道我的感觉，我知道我的感觉。这是那个退休警察那个，说我参与动乱，哇塞，这帮王八蛋给我盖个大帽子：中原油田无业人员郭文贵北京参与动乱。我都忘了当时我住那个村儿叫什么？我现在我在这上面昨天我才看到，“太平犬”这位战友很了不起。叫张海村。我跟你说战友们，真是这人生啊……这个“太平犬”的战友我不知道是谁，如果这一生我还能找到他，我要好好感谢他。我最起码想办法要给他弄10万个币捐给他，这个人能这样的说实话，大部分实话，有的我也不承认，我不觉得是实话。你比如在后面说道，说我父亲的朋友，那个湖北的跟我父亲没半毛关系，就是当时我在湖北襄樊，你们想看看我在当时湖北襄樊照的照片吗？战友们？想不想看？
+于丹麦而言，该国也声明，将在2月1日前取消当地所有的防疫措施。而在1月31日之后，丹麦政府不再将中共病毒归类为社会危重疾病。
 
-战友们：想。
+参考链接：[欧盟27国将在2月1日全面解封！旅行不用隔离不用检测？！](https://www.163.com/dy/article/GUQOEUR40552AOEM.html?f=post2020_dy_recommends)
 
-郭文贵先生：这个照片你们会很震惊啊，很震惊。另外一个会很震惊。我发给你吧，我发给墨镜，墨镜总导演。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+总编/编辑：飞虹
+校正/发稿：Fei797
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

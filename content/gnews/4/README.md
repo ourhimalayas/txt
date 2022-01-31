@@ -2,24 +2,31 @@
 ---
 
 
-## 日本兴和制药公司证实伊维菌素有效
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1938343/)
+## 七哥谈“美国开始制裁中共的高官在海外的资产”（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938372/)
 
-**撰稿：日本东京方舟农场  海星**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1月31日，日本知名制药公司兴和宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗中共病毒（新冠）的功效。
+来源：郭先生2022-01-27直播09：26：36摘录
 
-据《路透社》报导，日本兴和制药公司当天对外表示，针对伊维菌素治疗中共病毒（新冠）的功效，该公司与北里大学合作研究的一份试验报告显示，伊维菌素在进行中共病毒（新冠）感染治疗的第三期临床试验中，不仅对奥密克戎（Omicron）病毒有效，对现有的变异病毒（如Delta）同样有效。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-50.png)（图片来源：路透社）
-此前，日本东京都便已配合数家制药公司开展伊维菌素治疗中共病毒（新冠）的临床试验。有分析人士表示，临床试验的开展意味着伊维菌素很快就能在日本获得批准，推向市场，有利于控制疫情。
+我再今天告诉大家今天好消息，准备好啊，你们要脱的话准备好。昨天下午最起码100多个国际金融机构和公司，和30几个大的国际，大家都知道打着所谓NGO的名义，实际是国际的合法的公益机构要开始研究如何美国开始制裁中共的高官在海外的资产，如何配合、如何查封。这一步绝不亚于 “不断不交” 的授权撤离，要把共产党的官的钱、属于中国人的钱，在海外要开始查封，一旦这个宣布，大家知道意味着什么？抽你的筋：断交，断掉你的血、放掉你的血：查封你的资产。快不？
 
-参考链接：
-1.[https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)
-2.[https://gnews.org/zh-hans/1699941/](https://gnews.org/zh-hans/1699941/)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-撰稿：海星
-编辑：文顺
-发布：文曦
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
