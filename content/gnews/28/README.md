@@ -2,26 +2,40 @@
 ---
 
 
-## 救人（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935062/)
+## 有声|每个墙内同胞都应该拥有一个香草山
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935103/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/救人（二）-.jpg)
-她辩护，我的身份外国护照我都有，我的孩子就是不想生在中国。
+配音：香草山巡管部– 文凯琳
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+中共国有北京金山、井冈山、延安塔、北京玉泉山，而老百姓只有债务山。国内有人要求减工资、到前线,为党灭毒、鼓励大家打疫苗。甚至正常的人能获得残疾奖项，打仗的人没玩过枪就直接充军。
 
-Miles郭为什么答应你百万美元，他想把我肚里的孩子给救出来，他不是想救我们。这哥们儿感动的不得了啊，他说你这太棒了，而且这人是典型的维族人，打完电话就告诉我说，我知道你会这么做的，但我没想要20万，我想你怎么得收个200万吧。而且我告诉你，为什么我要救维族人，我说现在维族人多生一个比汉族多生10个还重要。就这么简单，我没有任何见不得人的事，就这么简单。我做这个决定的时候，中间人说Miles你疯了，哪有100万美元的救人费呀，我说对不起，这个钱我是拿得起的，我可以找人来拿。这就像刚才说老江你卖掉72000个币，10块钱一个，是多少钱啊？72万是吧。还有一个我救人愿意花100万美元。
+希望国内的兄弟姐妹、同胞们，都应该拥有一个香草山，和香草山的生存环境。
 
-这两件事不同的决定，你就看出我这个事情，做事的基础，为什么这么做。
+我们是人不是畜生、不是猪。
 
-*发布：开智则立*
+现在的东北和甘肃人，锅有洞，盖4年的被子透亮没换过。就这，冬奥会要来，王沪宁的常秘书给美国人打电话，说“咱是哥们，咱见个面吧，干嘛都撤走啊，我还给你准备着几件家具呢”。王沪宁办公室的人公开行贿美国。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[每个墙内同胞都应该拥有一个香草山](https://gnews.org/zh-hans/1931620/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

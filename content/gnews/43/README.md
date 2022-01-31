@@ -2,34 +2,34 @@
 ---
 
 
-## 中日财经爆┃房企2022年美元债兑付高峰将至 暴雷名单近期逐一揭晓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933720/)
+## 冬奥会运动员及官员确诊病例激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934102/)
 
-撰稿：东京樱花团丨喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/01/unnamed-4-1.png)
-[*图片来源*](https://xueqiu.com/1290113342/200215523)
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月29日，中共国冬奥会组委会发布声明称，每日病毒确诊病例从前一天的2例跃升至28日的19例，并警告说未来几天恐会出现病例激增。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.14.03.png)
+组委会在声明中说，包括运动员和官员在内，29日当天共有36名奥运会相关人员被发现感染，其中29人在抵达北京机场时被确诊，7人在与公众隔离的 “闭环 “气泡中被检测出感染。自本月23日开始，中共国每日公布与奥运相关的中共病毒确诊病例数字，运动员和官员的病例数首次超过了包括媒体、赞助商和工作人员在内的“其他相关人员”的病例数。
 
-Wind数据显示，2022—2025年是房企美元债兑付高峰期，房企海外债到期余额分别为273.25亿美元、182.8亿美元、190.32亿美元及179.94亿美元，其中2022年偿债压力集中于上半年。
+冬奥会的医疗负责人表示，预计会在未来数日，运动员抵京高峰期，出现更高的病例数字。
 
-据不完全统计，截至一季度末，上市房企共有43只存量美元债券到期，涉及41家房企，发行总额超157亿美元。
+之前，美国议员对冬奥参赛选手的卫生安全和人身安全表达了担忧。班农先生称这是一次超级病毒传播运动会。
 
-其中，1月到期的债券数量最多，共有21只，即将到来的3月偿债压力也不小，偿还额度近70亿美元，已经深陷债务泥沼的中国恒大将迎来一笔20.25亿美元债的到期。
+参考链接：[https://gettr.com/post/pr9qqrffa6](https://gettr.com/post/pr9qqrffa6)
 
-但截至目前，仅旭辉、中梁、上坤等几家企业对外宣称，已将1月到期美元债的兑付资金汇至投资者指定账户。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-对于大多数房企来说，当前这个节点，偿债依然是难以跨越的障碍，甚至有房企直接选择“躺平”。1月19日，中国奥园公告称，其将不会为即将于2022年1月20日本金总额为1.88亿美元及1月23日到期本金总额为5亿美元的美元票据支付余下本金及最后一期利息；此外，在30天宽限期届满后，其也将不会支付于2023年6月到期本金总额为2亿美元、2024年6月到期本金总额为2亿美元的美元票据项下的最新一期利息。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-除了奥园外，新力也公告称1月24日到期的2.42亿美元发生交叉违约。 截至1月28日，一季度美元债超过5亿美元主体还有中国金茂、雅居乐、融信中国、盈大地产、中骏集团等，20.25亿美元的到期债券也将令恒大的债务难题雪上加霜，这些美元债将何去何从，答案将在近期逐一揭晓。
-
-信息来源：
-
-[**一季度41家房企还债近160亿：债务兑付高峰的另一面｜关注2022美元债\_财经网**](http://m.caijing.com.cn/article/247151?target=blank)
-
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

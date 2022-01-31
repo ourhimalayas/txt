@@ -2,37 +2,17 @@
 ---
 
 
-## 日本纪录片《疫苗副作用》即将上映
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934100/)
+## 郭文贵—让中共闻风丧胆的战神
+` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1934853/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，制作方放出了纪录片《疫苗副作用》预告片。并将在1月底日本为5至11岁儿童接种前上映。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.47.png)
-这部纪录片拍摄于2021年12月25日，记录了在大阪举行的由医生、记者、政界人物参加的中共疫苗副作用研讨会。内容涉及到实际上出现副作用的病例，医生们对疫苗副作用的看法，以及愿意为此发声的政界人士的呼喊。
+郭文贵先生是第一个以一己之力挑战强大邪恶统治的真男儿，他的名号已经成了灭共勇士的代名词。郭文贵先生引领的爆料革命和新中国联邦戳到了中共的痛处，使傲慢自负的中共措手不及。他让中共权贵闻之胆寒、无法安眠，令盗国集团恨之入骨、欲除之而后快，伪类们对郭先生的羡慕嫉妒恨已经到了疯狂地步。中共倾尽一国之力，动用沉默力量，甚至动用了各种暗杀手段要铲除郭先生这个中共的眼中钉。
 
-预告片中，京都大学病毒研究所的宫泽孝幸教授表示，即使有中共疫苗，病毒也不可能完全被清除，相反那些被疫苗影响的细胞，会被免疫系统认为是病毒而进行总攻，通俗来讲就是接种后的人体在自爆。而记者鸟集彻则表示，所谓“为了身边人不被感染所以接种疫苗”，就相当于二战的时候“为了日本国让那些孩子上战场”一样，甚至在他的幻灯片中用红字写上了“为国捐躯”。
+郭先生就是一面照妖镜，他揭开了中共用谎言蒙上的面纱，让全世界看清了中共的丑陋面目，他是当之无愧的灭共英雄，我们绝不应该害怕伪类们的抨击就不去赞颂他。作为郭文贵先生和爆料革命的忠实粉丝，在我们迈入2022春节之际，我们就是要大声地告诉世人，灭共战神郭文贵先生是当今世界的“真男儿”，是14亿中国人得到自由的希望！
 
-在片尾制作方更是打出了“接种第三针之前，请‘目击’这个记录”的标语，呼吁人们在盲目跟从政府政策施打第三针前，听听这些真实的声音。
+作者：正道人
 
-参考链接：
-1）[https://www.gettr.com/post/pr7v6gcdfb](https://www.gettr.com/post/pr7v6gcdfb)
-2）[https://www.aoyama-masayuki.com/](https://www.aoyama-masayuki.com/)
-3）[https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9](https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9)
+查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-
-总编：飞虹
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

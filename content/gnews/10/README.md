@@ -2,23 +2,33 @@
 ---
 
 
-## 美国国务院驳斥中国关于美国破坏奥运会的宣传
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1935148/)
+## 习近平计划侵台 共军基层无人有信心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935266/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-30-205958.png)图片来源：latimes.com
-据《华盛顿时报》（Washington Times）1月30日报道，美国国务院周日表示，中共媒体声称的所谓美国在暗中破坏北京冬奥会的说法是错误的。
+撰稿：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+当地时间1月29日，纽约香草山农场举办春节晚会。郭文贵先生在节目中爆料指出，墙内有一位福建的战友曾三次被警察请去喝茶，后来的结果是该位警察反而被唤醒成为战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-80.jpg)
+郭先生爆料称该警察在前几日让那位被喝茶的战友代为转告郭先生，习近平最近到军方基层视察，想了解十年来预备侵略台湾的军事准备是否已到位。看完后回来，很感慨的对身边干部说，没想到准备了十多年，想要完成百年大业拿下台湾，结果现在要打仗了，突然发现除了身边几位军方作战部的高层真要打外，在外面基层部队的人，没有人相信我们会打仗，也不相信我们敢打仗，更不相信我们能打赢仗。令习近平非常震撼。
 
-报道称，国务院发言人告诉《华盛顿时报》说，美国“过去和现在从来没有协调并参与有关奥运会的某项全球行动”，“根据奥运会的精神和章程，美国运动员以及全体运动员都有自由表达个人意见的权利”。 发言人呼吁中共国“尊重基本自由，包括言论自由”。
+郭先生说，他在之前就已经得到此情报，这次经过这位福建警察所透露的高端讯息再次作了验证。但是此讯息显示出，中共这个体制没有人敢说真话，大家都知道一切都是假的，但是就没有人要说真话。只有习近平心中确实想打台湾，其他人都是同床异梦。
 
-报道指出，此前，中共下属的《中国日报》（China Daily）指责美国买通参加北京冬奥会的运动员来破坏这一全球体育赛事，付钱给运动员要他们在奥运会期间发声反对中共在西部侵犯维吾尔族人权和种族灭绝的行为。《中国日报》还称，这一将奥运会政治化的阴谋是美国境内某“反华势力”所为。
+参考链接：[习近平计划侵台 共军基层无人有信心](https://gtv.org/video/id=61f5e4a281ce0a3ac2a166b6)
 
-去年 12 月，美国政府宣布了对被称为“种族灭绝运动会”的北京冬奥会进行外交抵制 ，随后另有九个国家也加入了外交抵制的行列。虽然这些国家没有阻止本国运动员个人参加奥运会，但都警告他们说，中共国当局可能会对他们批评中国共产党制度的行为采取行动。因为在中共国，批评共产党是违法的，将面临长期监禁。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-报道披露，自由西藏学生组织发表了一封致运动员的公开信。信中说，“中国共产党（CCP）应对我们这一代所犯下的最严重的人权暴行负责：包括对维吾尔人的种族灭绝，将100 万藏族儿童通过 21 世纪的寄宿学校被迫与父母分离，以及严重打压香港的民主和新闻自由。” 学生们要求运动员与当今世界上一些受压迫最严重的民族团结一致。
+总编：文特
+编辑：文特
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-消息来源：[State Department rebuffs Chinese propaganda on U.S. undermining Olympics](https://m.washingtontimes.com/news/2022/jan/30/state-department-rebuffs-chinese-propaganda-us-und/)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

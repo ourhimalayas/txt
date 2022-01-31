@@ -2,24 +2,37 @@
 ---
 
 
-## 昆仑山的风水
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935154/)
+## 没打疫苗拥有喜币 就是今年春节最快乐的人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935267/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/01/昆仑的风水.png)
-七哥从昆仑山脉、新疆、吉尔吉斯坦、哈萨克斯坦，整个帕米尔高原到喜马拉雅山，整个印度到中东、不丹，我全都去过。去这些地方我跟公司、家人，从来没有一次跟他们聊过，因为他们谁也听不懂。这是为啥？共产党不让你知道！共产党没有跟你谈山海经，没人给你谈昆仑山脉，没人给谈帕米尔高原，但是我告诉你，全人类最牛的水，帕米尔高原水，那真是万年的水呀，它是印度洋被挡下来的水，在整个石头里边留下来的，和大西洋的水，整个未蒸发留下来的，在沉寂之后，从下面再挖出来的水，那真的是万年的水呀！七哥在盘古的时候天天用帕米尔高原水煮饭吃的。你到新疆以后，你知道新疆的灾难在哪里呀？新疆的大自然里边藏的物资和密码，包括昆仑山脉的北侧2577公里，从南到北。共产党是不可能让出西藏的，是不可能让出新疆的。很多人说要搞西藏独立新疆独立。可以告诉你，除非你把中国全灭了， 不然是不可能让你独立的。没有这水没有这山，他的灵都没了。
+撰稿：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在1月29日香草山新春联欢中表示，今天最兴奋的人是真正在买喜币的人。
 
-而共产党迷信的认为昆仑山和喜马拉雅山，是他所谓的阴阳，是他的天地之神。然后他认为人间道就是普陀，普陀是什么在哪里？就是今天的南普陀山舟山。大家讲这个的时候，你再想想南普陀会议为什么选在南普陀，千年的普陀寺里边最关键地点在哪里。普陀寺里边有几个山洞，曾庆红每年都去，每年的冬天都在福建过。福建在哪里？在厦门，厦门在哪里？中国的东南方。巽山、艮山、震山就是南龙中龙北龙。你把巽艮震兑八卦搞出来你就知道山海经讲了什么。共产党是全人类最迷信的，他让你不迷信，而共产党却对整个国家的控制是从天到地，从心到生殖器。
+郭先生爆料称，有一位福建警察说，这几天过年，他可以骄傲地给家人说，我们有未来，因为我们有喜币。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-81.jpg)
+郭先生解释喜币涨到50元的意义，它涨一毛钱就是涨一倍，一块钱就是涨十倍。而且大家知道喜币在任何情况下都不可能再回到一毛钱一个币了。以目前50元，就是涨500倍。如果依此速度，解开锁币的时间会比预期的时间早很多。
 
-*发布：开智则立*
+郭先生提到，很多人希望郭先生帮他弄点喜币，并询问喜币会涨到多少钱，郭先生回答，喜币在未来一定会超过比特币的价钱。喜支付在几个小时后即将上线，喜联储将是世界真正的香草山。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭先生最后补充道，在这个特别的春节，爆料革命战友不打毒疫苗，又拥有喜币。能保有健康的身体又拥抱喜系列一切美好未来的无穷希望。将是此刻在世界上最高兴及充满希望的一群人。
+
+参考链接：[没打疫苗拥有喜币 就是今年春节最快乐的人](https://gtv.org/video/id=61f5e4a281ce0a3ac2a166b6)
+
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：文特
+编辑：文特
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
