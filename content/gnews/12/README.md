@@ -2,44 +2,42 @@
 ---
 
 
-## 不管冬奥会成功还是失败最大的可能性是习近平会打台湾
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1937097/)
+## 英国考虑在乌克兰危机中部署北约军力
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1937100/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f77d62d90bdd2085a3000a](https://gtv.org/video/id=61f77d62d90bdd2085a3000a)
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip13英国考虑在乌克兰危机中部署北约军力.png)图片来源：reuters.com
+英国政府周六（29日）表示，作为加强欧洲边界计划的一部分——应对俄罗斯在与乌克兰的边境集结军队，英国正在考虑进行大规模的北约部署。
 
-**Eglise: **我就是关心，我关心可能更多的还是台湾。如果这次冬奥会按照这个习近平的标准它是胜利结束了，他是不是能够放下想攻打台湾的意向？如果这个冬奥会是个失败的，他可能会？七哥您是这个意思吧？
+英国表示，俄罗斯对乌克兰的任何入侵都将受到迅速的制裁，对双方都是毁灭性的。
 
-**郭文贵先生：**我觉得成功与失败他都会打台湾，我基本上我觉得。他没有失败的，他一定不管什么，失败他也说成赢了。就像路大脑袋，像欺民贼一样，永远他们赢了。郭宝胜在法庭出来，你还记得郭宝胜出来，对着夏业良（说）：我们赢了。还有那个什么，叫叶什么的给了当律师的是吧？他说：我替你省了一百万。这就是他们的心理状态嘛是吧？他一定说我赢，不管什么情况都说我赢。
+英国首相鲍里斯·约翰逊（Boris Johnson）将于下周访问乌克兰，还将与弗拉基米尔·普京（Vladimir Putin）通电话。
 
-但是我觉得不管什么结果他都会打台湾。这是，现在他必须打的，只有很少的可能不打台湾，所以说咱们看着吧。
+约翰逊的办公室说，他正在考虑向北欧（Nordics）和波罗的海（Baltics）地区的北约防务公约成员提供最大的可能，这将使部队人数增加一倍，并向爱沙尼亚（Estonia）发送防御性武器。
 
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+约翰逊在一份声明中说：“这一方案将向克里姆林宫（Kremlin）发出一个明确的信息—我们不会容忍他们破坏稳定的活动，面对俄罗斯的敌意，我们将始终与我们的北约盟友站在一起；我已经命令我们的武装部队准备下周在欧洲各地进行部署，确保我们能够支持我们的北约盟友。”
 
-编辑整理：Jacques；
+官员们将于下周在布鲁塞尔（Brussels）敲定该提议的细节，部长们将于周一（31日）讨论军事选项。
 
-字幕文件制作：大好河山；
+约翰逊办公室表示，在面临做得不够的批评后，他将在下月初第二次出访，会见北约的同行，以加强外交努力。
 
-视频制作及上传：Cindy；
+英国外交部长和国防部长也都将在未来几天前往莫斯科（Moscow）与俄罗斯同行进行会谈，目的是改善关系和缓和紧张局势。
 
-G-News发布：小满；
+简评：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+根据七哥2022年1月30日的独家[直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)，欧亚的乌克兰和台湾的战争危机的背后主使是中共（资助俄罗斯攻打乌克兰），而且西方为了转移国内追求疫苗真相的压力与疫苗次声灾难的注意力，很可能让事态走向战争。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**新闻来源**：[reuters.com] [Britain considering major NATO deployment amid Ukraine crisis](https://www.reuters.com/world/uk/britain-considering-major-nato-deployment-amid-ukraine-crisis-2022-01-29/) |发布时间：2022年01月29日｜
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+***审核：文乐
+校对：小东
+发布：信心满满***
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-5.jpeg)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
