@@ -2,23 +2,35 @@
 ---
 
 
-## 朝鲜向东海发射了中程弹道导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1937425/)
+## 七哥谈当时在湖北襄樊（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938295/)
 
-翻译：  Evalu
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-122.jpg)
-图片来源： www.yazhouribao.com
+来源：郭先生2022-01-27直播08：47：19摘录
 
-美国合众社新闻1月30日报道，韩国军方说朝鲜周日向东海发射了中程弹道导弹，这让人感到对金正恩担心，生怕他违背原来答应的不进行核武器和长程导弹的试验。
-韩国军方联合主席说检测到朝鲜以很陡的角度从朝鲜北部的慈江道武坪里发射导弹，飞行497英里，每小时达1243英里。
-导弹最高速度达16倍音速，类似于2017年发射的火星弹道导弹。本次是到目前为止的自2017年11月发射的洲际弹道导弹以类的最大的一次武器试验。人们在担心金正恩自1月20日警告说要不再遵守2018年4月宣布的暂停战略性武器试验的承诺，将进行更多的挑衅行为。
-本月朝鲜已进行了四次发射，包括其声称的高超音速导弹。近来的几项行动在朝鲜的说法是寻求内部的紧密团结，以抗击新冠疫情和因制裁所致的经济上的困境。
+我只有当时我知道我的感觉，我知道我的感觉。这是那个退休警察那个，说我参与动乱，哇塞，这帮王八蛋给我盖个大帽子：中原油田无业人员郭文贵北京参与动乱。我都忘了当时我住那个村儿叫什么？我现在我在这上面昨天我才看到，“太平犬”这位战友很了不起。叫张海村。我跟你说战友们，真是这人生啊……这个“太平犬”的战友我不知道是谁，如果这一生我还能找到他，我要好好感谢他。我最起码想办法要给他弄10万个币捐给他，这个人能这样的说实话，大部分实话，有的我也不承认，我不觉得是实话。你比如在后面说道，说我父亲的朋友，那个湖北的跟我父亲没半毛关系，就是当时我在湖北襄樊，你们想看看我在当时湖北襄樊照的照片吗？战友们？想不想看？
 
-##### 新闻来源：[N. Korea fires ballistic missile 1,243 miles toward East Sea](https://www.upi.com/Top_News/World-News/2022/01/30/N-Korea-fires-ballistic-missile-1243-miles-toward-East-Sea/3111643550644/)
+战友们：想。
 
-#  
+郭文贵先生：这个照片你们会很震惊啊，很震惊。另外一个会很震惊。我发给你吧，我发给墨镜，墨镜总导演。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

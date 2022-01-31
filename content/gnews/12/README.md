@@ -2,37 +2,31 @@
 ---
 
 
-## 语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1937420/)
+## 德国卫生部将疫苗暴政甩锅软件错误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1938284/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-559.jpg)
-图片来源：网络截图
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月28日，据相关媒体报道，在恐吓了当地未接种中共病毒疫苗的民众数月之后，德国卫生部长突然改变口风称，政府此前关于未接种疫苗的群体会引发中共病毒大传染的言论是错误的。同时，该卫生部长还将这一错误言论归因于“软件问题”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-41.jpg)
+数据显示，德国先前的中共病毒感染病例数据呈现出令人难以置信的高增长态势。然而，汉堡市市长却在新闻发布会上声称，该市90%的感染患者出现在未接种疫苗的人群中，并以此强制当地民众接种中共病毒疫苗。
 
-据零对冲1月30日报道，一位语言治疗师说，在大流行期间戴口罩导致婴儿和幼儿的病人转诊量增加364%。杰克琳·西克（Jaclyn Theek）告诉WPBF新闻网，在大流行之前，只有5%的病人是婴幼儿，但这一比例已经飙升至20%。
+值得注意的是，据消息人士透露，这些数据已经被发现全部是伪造的，而德国政府则基于这些伪造数据对未接种疫苗人群实施了暴政，包括不让他们进入公共场所，甚至避免所有的社会接触等。 目前，大量的研究证据表明，那些接种过中共病毒疫苗的群体其实具有更高的感染中共病毒的风险。对此，为了挽回面子，德国政府企图将决策错误全部归咎于软件数据出错。
 
-家长们将他们孩子的语言问题描述为“COVID延迟”，面部遮盖物是导致他们说话能力严重受损的主要原因。
+参考链接：[German Health Minister says Tyrannical Covid-19 Restrictions for Unvaccinated were based on “Software Error”](https://dailyexpose.uk/2022/01/28/german-health-minister-says-tyrannical-covid-19-restrictions-for-unvaccinated-were-based-on-software-error/)
 
-早在8个月大的时候，婴儿就开始通过阅读嘴唇来学习如何说话，如果父母和照顾者为了遵守规定而用口罩捂住自己，这是一项艰巨的任务。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-西克说：“孩子们看到你的脸来学习是非常重要的，因为他们在看你的嘴。”
+总编/编辑：飞虹
+校正/发稿：Fei797
 
-新闻报道介绍了这样一位母亲，布里安娜·盖伊（Briana Gay），她正在抚养五个孩子，但她最小的孩子有语言问题。盖伊说：“当你在这个世界上成长时，你不能与人和他们的脸交流，这肯定会产生不同的效果，这对婴儿来说是超级重要的。”
-
-据西克说，自从大流行以来，自闭症症状也在急剧上升。“他们不做任何语言尝试，完全不与家人沟通。”
-
-正如我们之前强调的那样，福布斯删除了一篇由教育专家撰写的文章，他断言强迫学童戴口罩会造成心理创伤。
-
-布朗大学研究人员的一项研究发现，在大流行期间出生的幼儿的平均智商分数下降了22分之多，而语言、运动和认知能力都因封锁而受到影响。
-
-迈克尔·科尔松（Michael Curzon）指出，造成这种情况的两个主要原因是口罩和儿童因远离其他儿童而被原子化。
-
-“根据美国的一项新研究，在过去一年封锁期间出生的儿童，由于在这个时候，政府阻止婴儿见到年长的亲戚和其他大家庭成员，阻止他们在公园或与父母朋友的孩子交往，阻止他们在室内公共场所研究当地人口罩背后的表情，与之前出生的儿童相比，他们的语言、运动和整体认知能力明显下降。他写道：“早期学习、言语发展和非言语发展的测试结果都远远落后于封锁前几年的结果。”
-
-也许所有认为自己戴着口罩是道德高尚的人都会改变他们的行为，因为他们实际上是在造成儿童的主要认知问题。也可能他们根本就不在乎，因为口罩现在是一种高于一切的政治地位象征。
-
-新闻来源：[Speech Therapist: 364% Surge In Baby And Toddler Referrals Thanks To Mask Wearing](https://www.zerohedge.com/political/speech-therapist-364-surge-baby-and-toddler-referrals-thanks-mask-wearing)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
