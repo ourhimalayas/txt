@@ -2,24 +2,16 @@
 ---
 
 
-## 文贵爆料 1.31：塞北的雪 灭共的雪
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1938373/)
+## 《新中国联邦宣言》的现实意义和历史地位
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1938419/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/01/ba32f0be-0a8f-4993-9a27-b8e690cebf74.jpg)
-时代的沉淀总能赋予一首歌曲不同的意义，在2022年壬寅年新春大直播中，郭文贵先生以其特有的粗旷、苍凉的嗓音重新演绎了三首轻柔、抒情、婉转的老歌，唱出了他内心的伤痛、理想和信念。那飘飘洒洒、漫天遍野的塞北之雪，在他的歌声中也变成了灭共之雪。
+2022年壬寅年新春大直播20220131
 
-共产党如果不控制网络、控制老百姓，音乐就会戳穿他们的虚伪、官僚和欺骗。真正的音乐是发自内心的，是不会死亡的。邓丽君不属于任何党派，但说出了人最基本的要求——民主和人权，这就是音乐的力量。心中喜欢的、真实的、有益于别人的，就是好音乐。
+撰稿：三票先生（DC）
 
-“甜蜜蜜”这首歌曲，没有任何政治倾向，只是生活，但中共还是要封杀它。邓丽君的歌曲永远不会过时，那一代人一听到她的歌曲，仿佛就回到了过去。只有找到了歌的灵魂的人，才能得到了欢愉，并不一定是写歌的人或唱歌的人。
-
-音乐也从来不是一方净土。希特勒和斯大林时期创造的音乐太有蛊惑性了。瓦格纳写的煽动反犹的歌曲，挑起了人们对犹太人的憎恨，最终造成了几百万犹太人被杀。斯大林感慨地说，瓦格纳一人顶千军万马，顶十个红军师。希特勒说，他一个人做到了一个国家做不到的事。
-
-郭先生还讲述了一位朋友教他如何唱“塞北的雪”的这首歌的一些技巧。之后，视频中再次播放了这首歌。”我爱你，塞北的雪，飘飘洒洒漫天遍野……我爱你，灭共的雪，轰轰烈烈、漫山遍野……”歌声在耳边经久回荡。
-
-参考链接：
-
-[2022年1月31日 文贵直播](https://gettr.com/streaming/prm988df17)
+美工：青山（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片8-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片9-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片10-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片11-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片12.png)
+*发布：Theodosia*
 
  
 

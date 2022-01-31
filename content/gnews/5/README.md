@@ -2,35 +2,31 @@
 ---
 
 
-## 樱花数据分析┃苏格兰：两针接种者更易出现感染、住院和死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1939113/)
+## 七哥说“G系列将给你一切的自由、所有的尊严”（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1939180/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-43.png)
-制图：东京樱花团/chuansang
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1月26日，苏格兰政府发布了惊人的数据。在最近四周中，每十万人感染，住院（近三周），甚至死亡人数的结果，均为两针接种者超过未接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2595.png)
-制图：东京樱花团/chuansang
+来源：郭先生2022-01-27直播09：58：38摘录
 
-对比未接种者，两针接种者的感染风险为1.91～2.62倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2596.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2597.png)
-制图：东京樱花团/chuansang
+大家要记住，这是什么？数据时代的时尚，数据时代的金融，数据时代的支付，和数据时代的新的、真的数据网给你带来的价值——使用即金钱。在国内的战友们只要你上网，只要使用盖特，只要使用GTV，只要使用这个，你就有钱赚。看看刚刚在这冬奥会录制那些香港的明星，穷得要死，一年能收入多少钱呢？卖身卖命卖未来，瞪眼说瞎话，还任人摆布。G系列将给你一切的自由、所有的尊严，而且走向世界最前端，这就是咱们整个喜联储和G系列未来最有魅力的地方。谢谢！
 
-住院风险为1.01～1.44倍，死亡风险为1.32～3.88倍。可以说，疫苗在这一轮疫情中，直接增加了30%的死亡。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-在我们所了解的范围内，这是第一次从政府数据确认到“两针接种者住院及死亡风险的显著提升”。这无疑对全世界的疫苗推进国投下了一颗重磅炸弹。
+**关注我们**
 
-这给了疯狂的疫苗推进者们一记响亮的耳光。他们应该陷入惶恐，因为他们的起诉书上已经多了一条罪名：“杀人罪”。不是吗？
+Discord 账号
 
-数据来源：
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[https://publichealthscotland.scot/media/11318/22-01-26-covid19-winter\_publication\_report.pdf](https://publichealthscotland.scot/media/11318/22-01-26-covid19-winter_publication_report.pdf)
+Gettr 账号
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -15,74 +15,74 @@
 
 ---
 
-### [1/30/2022 文贵直播：中共打台湾对中国人是灭顶之灾！美欧日将参战，起码50万中国人会成炮灰](/content/gnews/1/README.md)
+### [七哥谈GTV的控股公司（2022-01-27摘录）](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [七哥说“一定记住GTV是你们的王牌中的王牌！”（2022-01-27摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [1/30/2022 文贵直播：中共打台湾对中国人是灭顶之灾！美欧日将参战，起码50万中国人会成炮灰](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [从“零感染”政策到中美冲突 有理由相信冬奥会后北京将“崩溃”](/content/gnews/2/README.md)
+### [从“零感染”政策到中美冲突 有理由相信冬奥会后北京将“崩溃”](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥说“G系列将给你一切的自由、所有的尊严”（2022-01-27摘录）](/content/gnews/3/README.md)
+### [七哥说“G系列将给你一切的自由、所有的尊严”（2022-01-27摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [七哥谈区块链的数字货币（2022-01-27摘录）](/content/gnews/4/README.md)
+### [七哥谈区块链的数字货币（2022-01-27摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [樱花数据分析┃苏格兰：两针接种者更易出现感染、住院和死亡](/content/gnews/5/README.md)
+### [樱花数据分析┃苏格兰：两针接种者更易出现感染、住院和死亡](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1/30/2022 文贵直播：爆料革命和新中国联邦第一个向全世界揭露了中共病毒和疫苗的真相，推动了全世界有良知的人站出来反对疫苗强制令](/content/gnews/6/README.md)
+### [1/30/2022 文贵直播：爆料革命和新中国联邦第一个向全世界揭露了中共病毒和疫苗的真相，推动了全世界有良知的人站出来反对疫苗强制令](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [世界对北京“一起向未来”的“种族灭绝运动会”说不](/content/gnews/7/README.md)
+### [世界对北京“一起向未来”的“种族灭绝运动会”说不](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈“局限的认知限制了我们的思维”（2022-01-27摘录）](/content/gnews/8/README.md)
+### [七哥谈“局限的认知限制了我们的思维”（2022-01-27摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [2022年1月29日香草山农场年会直播全文字版](/content/gnews/9/README.md)
+### [2022年1月29日香草山农场年会直播全文字版](/content/gnews/11/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [七哥说要推出HPay（2022-01-27摘录）](/content/gnews/10/README.md)
+### [今日盖特大V推荐 — Mike pompeo（迈克·蓬佩奥）](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥说要推出HPay（2022-01-27摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈喜币的两大缺陷（2022-01-27摘录）](/content/gnews/11/README.md)
+### [七哥谈喜币的两大缺陷（2022-01-27摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [七哥说“如果金钱能让帮助你干好事，它就是最伟大的东西”（2022-01-27摘录）](/content/gnews/12/README.md)
+### [七哥说“如果金钱能让帮助你干好事，它就是最伟大的东西”（2022-01-27摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [七哥谈人类上绝没有一个国家像共产党虐待人民（2022-01-27摘录）](/content/gnews/13/README.md)
+### [七哥谈人类上绝没有一个国家像共产党虐待人民（2022-01-27摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [漫雪除夕夜，絮语诉心声](/content/gnews/14/README.md)
+### [漫雪除夕夜，絮语诉心声](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [没有加强针的欧盟疫苗接种证书今后将只有九个月的有效期](/content/gnews/15/README.md)
+### [没有加强针的欧盟疫苗接种证书今后将只有九个月的有效期](/content/gnews/18/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [七哥说中国人真的是天下最可怜的（2022-01-27摘录）](/content/gnews/16/README.md)
+### [七哥说中国人真的是天下最可怜的（2022-01-27摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [GTV新闻访谈简报|2022年1月31日早](/content/gnews/17/README.md)
+### [GTV新闻访谈简报|2022年1月31日早](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [危机与希望](/content/gnews/18/README.md)
+### [危机与希望](/content/gnews/21/README.md)
  ` MilesGuoLivePPT`
 
-### [《新中国联邦宣言》的现实意义和历史地位](/content/gnews/19/README.md)
+### [《新中国联邦宣言》的现实意义和历史地位](/content/gnews/22/README.md)
  ` MilesGuoLivePPT`
 
-### [七哥谈“甜蜜蜜”运动（2022-01-27摘录）](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [七哥说“到处响起《甜蜜蜜》的时候，共产党你就玩球蛋了”（2022-01-27摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [文贵爆料 1.31：塞北的雪 灭共的雪](/content/gnews/22/README.md)
+### [文贵爆料 1.31：塞北的雪 灭共的雪](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
-
-### [七哥谈“美国开始制裁中共的高官在海外的资产”（2022-01-27摘录）](/content/gnews/23/README.md)
- ` MG FARM`
 
 ### [日本兴和制药公司证实伊维菌素有效](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
