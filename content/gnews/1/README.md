@@ -2,8 +2,8 @@
 ---
 
 
-## 什么是中共的零容忍
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935477/)
+## 记住必须戴口罩
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935518/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

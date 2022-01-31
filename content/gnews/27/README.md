@@ -2,34 +2,37 @@
 ---
 
 
-## 币安以《国际洗钱法》为由，限制281个尼日利亚账户
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935247/)
+## 没打疫苗拥有喜币 就是今年春节最快乐的人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935267/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+撰稿：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在1月29日香草山新春联欢中表示，今天最兴奋的人是真正在买喜币的人。
 
-整理/编辑：小红帽
+郭先生爆料称，有一位福建警察说，这几天过年，他可以骄傲地给家人说，我们有未来，因为我们有喜币。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-81.jpg)
+郭先生解释喜币涨到50元的意义，它涨一毛钱就是涨一倍，一块钱就是涨十倍。而且大家知道喜币在任何情况下都不可能再回到一毛钱一个币了。以目前50元，就是涨500倍。如果依此速度，解开锁币的时间会比预期的时间早很多。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/12122-1.png)图片来源：雅典娜设计组
+郭先生提到，很多人希望郭先生帮他弄点喜币，并询问喜币会涨到多少钱，郭先生回答，喜币在未来一定会超过比特币的价钱。喜支付在几个小时后即将上线，喜联储将是世界真正的香草山。
 
+郭先生最后补充道，在这个特别的春节，爆料革命战友不打毒疫苗，又拥有喜币。能保有健康的身体又拥抱喜系列一切美好未来的无穷希望。将是此刻在世界上最高兴及充满希望的一群人。
 
-根据《路透社》1月31日报道，全球最大的加密货币交易所币安（ Binance）首席执行官表示，已限制281名尼日利亚用户的个人账户，理由是需要遵守《国际洗钱法》。
+参考链接：[没打疫苗拥有喜币 就是今年春节最快乐的人](https://gtv.org/video/id=61f5e4a281ce0a3ac2a166b6)
 
-赵长鹏在1月29日给尼日利亚客户的一封信中表示，限制部分个人账户的决定是为了确保用户安全，其中超过三分之一受影响的账户是应国际执法机构的要求而限制的。
+![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-赵长鹏说：“目前，我们已经解决了79起案件，并继续通过其他案件开展工作。所有与执法无关的案件将在两周内解决。”
+总编：文特
+编辑：文特
+校对/发稿：Hetangyuese
 
-尽管有中央银行的禁令，尼日利亚人仍继续转向加密货币开展业务，以保护他们的储蓄。他们在奈拉货币贬值时向国外发送付款，因为在当地通常很难获得美元。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-新闻链接：[Crypto giant Binance restricts 281 Nigerian accounts](https://www.reuters.com/technology/crypto-giant-binance-restricts-281-nigerian-accounts-2022-01-30/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

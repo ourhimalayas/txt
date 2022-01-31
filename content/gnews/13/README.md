@@ -2,53 +2,24 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（1月24日-1月30日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935348/)
+## 老有所养，老年人的尊严（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935359/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/老有所养，老年人的尊严（二）-.jpg)
+其实刚刚说养老了，这个事情其实我自己感触特别深，因为前几年的时候我奶奶生了一场重病，然后当时我是放假回家，然后去医院看我奶奶，然后那个时候我就觉得中国的老人的那些生存环境真的很差，因为我们家已经算是能给老人一些比较好的医疗条件了，但是国内的那些医院，哪怕它是那种三甲，或者是说上海市最好的医院，它的那些病床，然后还有它的那些厕所，那些装修真的就让我觉得就是根本就不像是你外面看到海市蜃楼的那种中国，然后一直到我奶奶，现在80多岁了，她现在枕头下面永远会压人民币，就是她就觉得她到那个年纪，她可能随时都会身上有病，然 后随时都要去医院，所以她自己的存折、银行卡，包括一些现金，她永远都压在自己枕头下面，就是这个习惯，她一辈子都改不掉，所以我就一直在想，以后有新中国联邦，我希望每一个家里的老人都能被善待，而且我觉的我也希望就是有这样一个很好的养老体系，每一个人都可以体面有尊严地老去，我觉的这是中国人那么多年以来一直都没有的，就不管你家的生活状况到底是如何，所以真的很感谢七哥，感谢爆料革命。
 
+七哥：小飞象我要跟你说一下啊佳佳，你看这个我出生的地方三河，后来我搬到了赵家沟，你看到这个地方三河，赵家沟，你看这个山脉，那个山顶，你看到没有？这个小墨镜这个家伙太可爱了，墨镜这个家伙太可爱太可爱了啊，太可爱了这个地方。
 
+*发布：开智则立*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-过去一周喜马拉雅币价格加速攀升至50美元上方，最高涨幅约24%，平均日交易量约11万5千枚喜币。喜币上市以来总交易量约2670万枚 ，占今年总发行量的仅约2.67%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture3-3.png)
-本周四，一篇来自英国金融科技资讯网站TechBullion的文章提到，喜交所是业内第一个运用人工智能技术识别人体行为与生物特征并与冷钱包安全措施相结合的加密货币平台。文章指出这一设计使喜交所的安全性达到业内最高。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture2-4.png)
-本周据郭文贵先生在大直播中透露，喜交所拥有世界上最好的KYC制度，目前有50亿美元现金正在等待KYC后进场。之后还会有上千亿美元进入。目前已经有六大品牌提前宣布接受喜币购买商品。喜支付上线后会有更多商家进场。随着喜支付的逐渐推广，会有金融机构开始接手相关业务，下一步会有国家主权机构接受并投资喜币，之后喜币将改变这个世界。
-
-郭先生还表示，喜支付会在春节甜蜜蜜运动期间上线，会把中共插在中国人民身上的血管改变方向，转而插到中共盗国贼自己的身上。
-
-本周五喜交所进行了11小时的维护升级，并更新了官网的喜支付页面。目前官网已经提供了喜支付APP苹果与安卓版本的下载链接，预计在未来几天内可以开始使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Picture1-17.jpg)
-参考信息：
-1. [Safeguarding Digital Assets in an Increasingly Intangible World](https://techbullion.com/safeguarding-digital-assets-in-an-increasingly-intangible-world/)
-2. [HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

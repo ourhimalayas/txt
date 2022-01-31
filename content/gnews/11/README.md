@@ -2,8 +2,8 @@
 ---
 
 
-## 被人利用最可怕
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935358/)
+## 美国高院停止企业强制疫苗令
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935386/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

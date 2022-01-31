@@ -2,35 +2,24 @@
 ---
 
 
-## 为冬奥会 中共强行人工改变天气
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935268/)
+## 老有所养，老年人的尊严（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935293/)
 
-撰稿：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-台媒1月30报道，临近北京冬奥开幕式，中共当局为营造虚假的天气良好状况，将对气候实施人工控制。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/老有所养，老年人的尊严（一）-.jpg)
+我在很小的时候，还没有接触到共产党这些愚昧人教育的时候我其实经常在想，就是我晚上往天上看星星，然后又看自己手里的各种纹路，然后当时知道这个身上有几万亿的细胞，然后宇宙这么大，然后我就在想会不会是就是人身上的每一个细胞，它就是一个小宇宙，然后对于外面的宇宙来说，我们地球可能就是一个小细胞，然后其实就是我们整个这个地球他不是我们理解上的一个，它就是一直存在，那不变的一个，他其实自己可能也是一种从某种意义上它是有生命的，它是有活动的，这个山脉河流、四季日月，整个的这个活动， 这个我小时候呢，就是对这些比较感兴趣，但是后来已被整个这个教育体系愚弄，就变了，但今年七哥这么一想，真的是觉得这是真的，这些事情还是需要很多研究学习。
 
-据悉，中共为了制造所谓的奥运气候，授意北京市人工影响天气办公室，人工强行改变天气状况。在过去3个月里，该单位已经向张家口附近的云层，至少发射了250枚碘化银炮弹，另外还有12架云催化飞机随时待命。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-82.jpg)
-评论认为，中共此举不仅影响中共国，也将影响周边的印度、缅甸等国，加剧了国家主权与全球责任之间的道德气象紧张局势，甚至会出现法律诉讼。
+我们尊重大自然，我们讨论的是如何与大自然共处，如何去尊敬这些，我们去观察这些山海天地，但是同时我们也会往下来去看现在周遭发生的事情，疫苗，人类正在遭受灾难，我们在讨论的是如何给老人养老，然后给孩子一个幸福安全的未来，就是我们又去看待我们，也去关注身边的事情，但是你看共产党，它是从七哥刚刚讲的，可以发现它是极其极其迷信一些人，极其迷恋这个风水，但是这个它所迷恋的这个风水并没有保护它，就是因为它眼里完全没有别人，完全没有这个世界，它只有它自己的那一块天地。
 
-专家指出，人工影响天气引发了关于“一个国家有没有权利改变天气”“谁拥有用于云催化的空中水资源”的争议，同时，人工改变气候，也将引起世界对中共国致力于气候霸权的担忧。
+*发布：开智则立*
 
-参考链接：[为冬奥会 中共强行人工改变天气](https://cn.rti.org.tw/news/view/id/2123481)
-
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
