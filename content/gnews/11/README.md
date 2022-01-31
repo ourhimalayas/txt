@@ -2,33 +2,42 @@
 ---
 
 
-## 欧盟27国2月1日起全面解除疫情封锁政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1938307/)
+## 七哥说“人生的动机决定了你人生的结果”（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938318/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，据相关媒体报道，欧盟理事会于近日发布了一则有关欧盟内部旅行的最新规定。当中指出，自2月1日起，游客只需携带中共病毒疫苗接种证明、康复证明或中共病毒阴性检测证明，即可在欧盟27个国家内畅行无阻，且无需经过隔离或额外的核酸检测。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-36.jpg)
-据悉，尽管目前整个欧洲的中共病毒感染率依然很高，但各国政府都迫不及待地想要重新开放。对此，欧盟的卫生官员表示，欧洲各国应立即结束那些会使旅行变得格外复杂的各种疫情限制措施。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-此外，英国近日也宣布，将全面解除该国的限制措施并重新开放酒吧和餐馆。同时，当地也解除了针对民众佩戴口罩的法律要求，以及与游客入境相关的封锁政策。
+来源：郭先生2022-01-27直播08：48：48摘录
 
-于丹麦而言，该国也声明，将在2月1日前取消当地所有的防疫措施。而在1月31日之后，丹麦政府不再将中共病毒归类为社会危重疾病。
+这个照片，当年我住在湖北干休所，刚刚的晚上一帮人喝完酒，那个男的女的我们都睡一个屋，你们知道吧？而且那时候小，睡旁边小孩就一喝完酒就不冷静了，就开始羞羞上来，就搞流水去了。你说床上也是人，床下边也是人，湖北人真的是很开放，非常开放。那个小孩就这么开放，我们也没觉得什么不正常。大早上醒来还继续喝酒，但是，就是那个时候酝酿出了巨大的郭文贵之一，我在卧龙岗，我在卧龙岗学了很多东西。我也交了很多好朋友，所以这个“太平犬”战友说的是我父亲的关系，不对的，这个跟我父亲没任何关系，我是做生意的朋友。结果湖北这个战友他说：“老七，我发给你这个照片。” 把我看得…我完全忘掉了，完全忘掉了，我看着照片我都傻眼了。大家你们能想一想，一个枪毙的“处男英雄”，被“强奸碎尸罪”的家人，在30几年后给我一个照片。七哥当时穿着，那时候穿个西装。哎呦，看到了吗？看看当时的我，怎么样兄弟姐妹们？那时候的七哥，哎呀喝大酒后的…
 
-参考链接：[欧盟27国将在2月1日全面解封！旅行不用隔离不用检测？！](https://www.163.com/dy/article/GUQOEUR40552AOEM.html?f=post2020_dy_recommends)
+佳佳：长得不像七哥。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+郭文贵先生：不像了吧？
 
-总编/编辑：飞虹
-校正/发稿：Fei797
+摔跤的雅各：酒窝还是有点像的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台湾巴黎：对，酒窝还是有点像的。
+
+郭文贵先生：天呐！所以大牛我刚才跟你说，你心中有啥你就会长啥样，你懂吗？你看我现在干的事，我的环境就让我长这样。这个人生啊，真的是你有什么动机你就会干出什么事。我还有好几个照片，因为里边有涉及到好几个现在还都活着的几个牛人，另外有一张照片你要看了，就是今天你们大家都无法想象的，当年跟我在一起，他比我大八九岁，现在是中共的政治局委员之一。我真的都忘了这个照片了，这个发来以后，他说：“你看，他现在的样子和你现在的样子什么样？” 真的让我很震惊。他说：“他现在混到政治局委员，七哥，当年在你面前他说：‘我们就喝酒去，到襄樊，’ 你记得开着拉达车，当时他啥样吗？他的一个表妹当时超级喜欢你。” 姓唐，他那个表妹我记得。真的跟巴黎长得特别像，特别甜，特别敢那种，很直接，我真的都忘掉了，他一说我都想起来了。那个照片你们看了你们会震惊。当年跟着七哥我们那时候走江湖的人现在成为了政治局委员，那个时候他就说：“我要花掉一切钱途、利用一切手段我要当官。” 当官去干什么呢？当官就是为了发财！所以大牛你要记住，就这小子早晚会被抓起来的，他现在很牛，我不相信他能过两年，他一定会被习跟王岐山给弄下来，因为他现在是最有希望的政治明星。所以人生的动机决定了你人生的结果。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

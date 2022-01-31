@@ -15,80 +15,80 @@
 
 ---
 
-### [英国计划向北约大规模增兵 以应对乌克兰危机](/content/gnews/1/README.md)
- ` 日本东京方舟农场`
+### [GTV新闻访谈简报|2022年1月31日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
 
-### [七哥说“到处响起《甜蜜蜜》的时候，共产党你就玩球蛋了”（2022-01-27摘录）](/content/gnews/2/README.md)
+### [七哥谈“甜蜜蜜”运动（2022-01-27摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [文贵爆料 1.31：塞北的雪 灭共的雪](/content/gnews/3/README.md)
+### [七哥说“到处响起《甜蜜蜜》的时候，共产党你就玩球蛋了”（2022-01-27摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [文贵爆料 1.31：塞北的雪 灭共的雪](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈“美国开始制裁中共的高官在海外的资产”（2022-01-27摘录）](/content/gnews/4/README.md)
+### [七哥谈“美国开始制裁中共的高官在海外的资产”（2022-01-27摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [七哥说“绝大多数中国人信的是假的，不信真的”（2022-01-27摘录）](/content/gnews/5/README.md)
+### [七哥说“绝大多数中国人信的是假的，不信真的”（2022-01-27摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [【Michael.Tonny专栏】泰国一剂科兴疫苗挥发就导致15人眼表糜烂](/content/gnews/6/README.md)
+### [【Michael.Tonny专栏】泰国一剂科兴疫苗挥发就导致15人眼表糜烂](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [日本兴和制药公司证实伊维菌素有效](/content/gnews/7/README.md)
+### [日本兴和制药公司证实伊维菌素有效](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [七哥说“时间是蒙住你眼罩、蒙住真相的一个工具，跨过时间以后你就是永恒、永生”(2022-01-27摘录）](/content/gnews/8/README.md)
+### [七哥说“时间是蒙住你眼罩、蒙住真相的一个工具，跨过时间以后你就是永恒、永生”(2022-01-27摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥说“人类，这地球就那么大，是不是，咱们就是一粒沙中的沙”（2022-01-27摘录）](/content/gnews/9/README.md)
+### [七哥说“人类，这地球就那么大，是不是，咱们就是一粒沙中的沙”（2022-01-27摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [七哥说“人生的动机决定了你人生的结果”（2022-01-27摘录）](/content/gnews/10/README.md)
+### [七哥说“人生的动机决定了你人生的结果”（2022-01-27摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [欧盟27国2月1日起全面解除疫情封锁政策](/content/gnews/11/README.md)
+### [欧盟27国2月1日起全面解除疫情封锁政策](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/12/README.md)
+### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [2021~2022年郭文贵最新单曲Hcoin To The Moon创造的历史记录](/content/gnews/13/README.md)
+### [2021~2022年郭文贵最新单曲Hcoin To The Moon创造的历史记录](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈当时在湖北襄樊（2022-01-27摘录）](/content/gnews/14/README.md)
+### [七哥谈当时在湖北襄樊（2022-01-27摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [德国卫生部将疫苗暴政甩锅软件错误](/content/gnews/15/README.md)
+### [德国卫生部将疫苗暴政甩锅软件错误](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [七哥说“没有信仰，你这一辈子不会有愉快的”（2022-01-27摘录）](/content/gnews/16/README.md)
+### [七哥说“没有信仰，你这一辈子不会有愉快的”（2022-01-27摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [01/31/22 香港快讯 7.28上环冲突 15人暴动罪成押后至2月9日判刑](/content/gnews/17/README.md)
+### [01/31/22 香港快讯 7.28上环冲突 15人暴动罪成押后至2月9日判刑](/content/gnews/18/README.md)
  ` 英喜-粵語組`
 
-### [七哥谈中国人的人心（2022-01-27摘录）](/content/gnews/18/README.md)
+### [七哥谈中国人的人心（2022-01-27摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [MV版Hcoin To the Moon上线53天第40次位列澳门iTunes热门MV榜首](/content/gnews/19/README.md)
+### [MV版Hcoin To the Moon上线53天第40次位列澳门iTunes热门MV榜首](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/20/README.md)
+### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥说“我们作为一个正常的人宁可相信他好也不愿意相信坏”（2022-01-27摘录）](/content/gnews/21/README.md)
+### [七哥说“我们作为一个正常的人宁可相信他好也不愿意相信坏”（2022-01-27摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [朝鲜向东海发射了中程弹道导弹](/content/gnews/22/README.md)
+### [朝鲜向东海发射了中程弹道导弹](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％](/content/gnews/23/README.md)
+### [语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [论中国共产党一党专制统治下的公民自由](/content/gnews/24/README.md)
+### [论中国共产党一党专制统治下的公民自由](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈十二属相今年运势（2022-01-30摘录）](/content/gnews/25/README.md)
- ` MG FARM`
 
 ### [DC大中华时事：中国驻大阪总领事薛剑接受日媒采访](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
