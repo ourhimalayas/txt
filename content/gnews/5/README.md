@@ -2,47 +2,48 @@
 ---
 
 
-## 全世界保护数字资产，喜交所方案独树一帜！
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1939329/)
+## 虎啸起，灭共时——一切已经开始
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939400/)
 
-#### **【雅典娜观察】和您一起洞察世界**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1005-2.jpg)图片来源：Himalya Exchange
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿
 
 
-整理/编辑：文泓
 
-尽管实物资产更容易实现占有，但数字资产正在成为现代社会中不可或缺的价值储存。加密货币、智能合约和分布式账本技术在数字资产的使用和转让方式中发挥着越来越大的作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-数字资产被定义为可以拥有和转让的数据电子记录，也可以作为交易货币或作为储存无形内容的方式。可以是电脑设计艺术品、视频或合同文件的形式，最常见的例子包括加密货币，（比特币，以太币，系绳Tether，索拉纳Solana等）资产支持的稳定币和不可伪造的代币（NFT）。
 
-在许多情况下，保障数字资产的责任是由发行和交易这些资产的实体控制的，它们的范围从集中的政府和组织（即主权国家中央银行数字货币）到分散的自治组织——DAO（即加密货币交易所）和区块链协议（以太坊或索拉纳）。
 
-目前加密货币资产市场的规模达到2万亿美元，**那些能够证明其对数字资产以及用户的个人数据有卓越保护的****DAO****将引领潮流**。币安公司强调了DAO经常使用的方法组合，以避免或减轻安全威胁。
 
-第一种方法是提供冷存储选项，通过离线保存私钥。分类账纳米X钱包（Ledger Nano X）和Trezor下一代硬钱包（Trezor Model T）等公司提供物理USB风格的**“冷钱包****”**，允许人们离线存储其资产。其他专业的第三方服务，如数字资产托管商Vo1t，则更进一步，将私人钥匙保存在由前军事人员保护的地下掩体中。
 
-第二种方法是提供**数字资产保险**，以涵盖组织被黑客攻击时造成的损失。较大的加密货币交易所，如币安和Coinbase，为其投资者提供“担保资产”保险基金，以防止数据泄露或黑客攻击。各家的保险水平也不相同。交易所比特雷克斯（Bittrex）目前给用户有3亿美元的保险计划，然而，如果用户忘记或放错了他们的登录密码或私人钥匙，这并不能保护他们……不幸的是，所有流通中的25%比特币均是这种情况。
 
-最后，DAO的许多访问和交易数字资产的过程中都有严格的安全功能。例如，交易所双子座（Gemini）要求**生物识别登录和双因素认证**来访问账户或在他们的平台上提款，这可以保护用户账户免受任何未经授权的数据或资金访问。
 
-随着数据泄露被盗和违规事件的不断发生，下一代的加密货币平台只能选用新的方法来保护用户。喜马拉雅交易所是目前采用了最严密的安全方法之一。**喜交所是第一家使用人工智能行为模式识别来实现额外安全防护层的公司，再与最低****AES-256****级别的加密相结合，以保护所有的数据；并且有****95%****的资金被安全地离线存储在地理分布的保险库中。**
 
-【备注：AES-256的密钥长度为256位，支持最大的位大小，基于当前的计算能力，几乎无法通过暴力破解，使其成为最强的加密标准。】
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Happy_Lunar_New_Year-_copy-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-_G2-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-_G-_copy-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-2021-2022-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-_copy-scaled.jpg)
 
-**喜交所采用了多层次的网络安全方法，并内置了****“****安全和隐私设计****”****，以确保技术层面的安全保障**，防止高级SQL注入、跨网站脚本、缓冲区溢出、拒绝服务和LDAP攻击（均为黑客攻击技巧）**。这些安全协议的复杂性不仅对防止恶意攻击势在必行，而且对用户的信心也至关重要。**
 
-**数字资产保护的未来将取决于****DAO****的能力，**将一些不同的安全协议结合在一起。通过拥有一个安全的多层次方法，这些实体将在更广泛的用户群中获得了信任和可信度。这不仅是更广泛地接受加密技术的基础，也是继续从实物资产向数字资产发展的基础。
+**编辑/发稿：小鹿**
 
-新闻链接：[Safeguarding Digital Assets in an Increasingly Intangible World – TechBullion](https://techbullion.com/safeguarding-digital-assets-in-an-increasingly-intangible-world/)
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

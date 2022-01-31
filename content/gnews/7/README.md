@@ -2,32 +2,45 @@
 ---
 
 
-## 2021最后的悲凉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1939298/)
+## 新春快乐，灭共大吉！
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939388/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/01/7-33.jpg)
-[图片来源](https://china.caixin.com/2022-01-31/101836993.html)
+设计者：纽约香草山设计部 — 战友时光
 
-八个娃的铁链女，看得我毛骨悚然！惊悚片也找不到这样的邪恶！我在微信转发了，无人点赞无人转发无人过问，像一颗石子轻滑湖面，连一丝波纹还没浪起，就转眼消失……
 
-这种惨绝人寰的行径，人们竟然视若罔闻，一股悲凉无从释怀……
 
-我很想透过手机问问他们，这样的人间悲剧，已经不是畜生所能，你们不对受害者同情吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-朋友圈的人都很好，他们在公司轻言细语礼貌有加，妥妥的高层次高素质，回家又是好儿女好父母，给家人很舒适的生活，用手机捕捉着每一个幸福瞬间。可是，不远处一个女人像狗一样拴在地狱挨饿受冻，他们选择性忽视。
 
-恐怖片带给人的是感官上的浅表性刺激，而这种无视惨剧的人性冷漠，如同幽黑冰冷的无底洞，让我感到无尽地阴森森的绝望！
 
-我们的新联邦媒体分析过这事件，如果惨剧根源是制度不公造成的贫穷，那么对邪恶的无视无为就是帮凶！女人被打的没了牙齿被折磨成神经病，可以想象她曾经怎样惨烈地抗争！邻里乡亲怎么可能不知道？这个女人通往地狱之路是所有人用沉默铺就的。一个极权专制政府最怕的是底层人民的团结，所以有了什么明哲保身、识时务者为俊杰等等一系列的脑残学，这些所谓的名言警句看似朗朗上口，实则毒害千年，人们天真地认为，只要管好自己就万事大吉了，他们事不关己高高挂起，他们缺失人性，隐忍罪恶，对同胞受到的不公正不敢过问一句，生怕自己受到牵连，自私冷漠怯懦！
 
-有人说，最先醒来的是善良的人，他们天生有悲天悯人的情怀，对别人的痛苦感同身受，他们能顺藤摸瓜找到痛苦的根源，从而唾弃这个制度！
 
-我的朋友圈是良善之人，可能他们缺了一点悲天悯人的情怀，我相信我们新中国联邦人都是最先醒来的一批，最先开启民智的一批，我们也是最早拥有喜币的一批，老天是公平的，想到这里我多少有点心理平衡不那么愤世嫉俗了……
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-2-1-1.png-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/5-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/6-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/7-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/8-G-.png)
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
 
 
 

@@ -2,35 +2,31 @@
 ---
 
 
-## 樱花数据分析┃苏格兰：两针接种者更易出现感染、住院和死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1939113/)
+## 七哥谈修行（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1939267/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-43.png)
-制图：东京樱花团/chuansang
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1月26日，苏格兰政府发布了惊人的数据。在最近四周中，每十万人感染，住院（近三周），甚至死亡人数的结果，均为两针接种者超过未接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2595.png)
-制图：东京樱花团/chuansang
+来源：郭先生2022-01-27直播08：31：07摘录
 
-对比未接种者，两针接种者的感染风险为1.91～2.62倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2596.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2597.png)
-制图：东京樱花团/chuansang
+第一批反应就在五月份左右。还有一个，明年是虎年，我对中国的大势乾坤、但奇门遁甲，七哥是很迷信的啊，很信的。再一个我认为地球运行的规则是有任何一种力量。中国的属相之说我一点不信，但中国的年份的定义和四季的划分，乾、门、艮、兑，对这些命数、阴阳，这我是懂的。否则盘古就不会变成“龟头”了。哈哈，你说这盘古变成“龟头”的力量有多大？你不要忘了，今年是虎年，它把龙头变成了“龟头”，龙虎相冲啊。然后它把龙头变成了“龟头”了，然后又在奥运村那儿接受全世界来搞这个开幕式啊。大家看着这个龙头变“龟头”了，龙就是中国的王子啊，太子啊，老大呀，皇帝呀，代表上天和人间勾兑的桥梁啊，象征啊，权力啊，金钱啊。它变成给包起来了，这个意义多大呀？战友们，你想想，你给它一千个亿它都不会给你干这事。如果它没有信咱，不相信七哥和爆料革命能把它干掉。它不相信盘古这个中轴线上龙头，我说让大家查查跟山西，跟昆仑山的关系，没人查出来。很难，查不出来，我告诉你，盘古龙头和毛泽东所谓他老家出生的地方，所有的绝妙数字就像盘古和中南海那个水蒸蛋，十公里一点都不差。就像法国一个哥们说：“Miles，我查了，exactly，Miles ，exactly，unbelievable”。我说：“对呀，不是我编的啊。不是郭骗子说的，是吧。” Exactly。你去看看去，盘古龙头和毛泽东所谓他的家的祖坟和山上，天然形成了决然的数字，这没有任何可以编排。还有更重要的，大家看看少林寺，跟五台山，跟真正的今天西安法门寺啥关系？所以呢我遇到过高人，就是我们那个，告诉我：人生绝处逢生。绝处不逢生就是你修行不够。站在悬崖这边是因为你怕掉下去，死亡。你物理你一定会掉下去，但是人，最终你会死。就像你面临跳下去会死亡一样，你如何跨过到对方彼岸呢？解决呢？解脱呢？那要靠你的实力和修行，天地之间对你的造化，是吧？你老杀人放火的，吃狗肉，怎么可能啊？全世界吃狗肉的，没有不穷，没有长寿的地方，我都查过，你告诉我是不是这样？
 
-住院风险为1.01～1.44倍，死亡风险为1.32～3.88倍。可以说，疫苗在这一轮疫情中，直接增加了30%的死亡。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-在我们所了解的范围内，这是第一次从政府数据确认到“两针接种者住院及死亡风险的显著提升”。这无疑对全世界的疫苗推进国投下了一颗重磅炸弹。
+**关注我们**
 
-这给了疯狂的疫苗推进者们一记响亮的耳光。他们应该陷入惶恐，因为他们的起诉书上已经多了一条罪名：“杀人罪”。不是吗？
+Discord 账号
 
-数据来源：
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[https://publichealthscotland.scot/media/11318/22-01-26-covid19-winter\_publication\_report.pdf](https://publichealthscotland.scot/media/11318/22-01-26-covid19-winter_publication_report.pdf)
+Gettr 账号
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

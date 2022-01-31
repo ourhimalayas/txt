@@ -2,31 +2,25 @@
 ---
 
 
-## 德国卫生部将疫苗暴政甩锅软件错误
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1938284/)
+## 日本兴和制药公司证实伊维菌素有效
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1938343/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，据相关媒体报道，在恐吓了当地未接种中共病毒疫苗的民众数月之后，德国卫生部长突然改变口风称，政府此前关于未接种疫苗的群体会引发中共病毒大传染的言论是错误的。同时，该卫生部长还将这一错误言论归因于“软件问题”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-41.jpg)
-数据显示，德国先前的中共病毒感染病例数据呈现出令人难以置信的高增长态势。然而，汉堡市市长却在新闻发布会上声称，该市90%的感染患者出现在未接种疫苗的人群中，并以此强制当地民众接种中共病毒疫苗。
+**撰稿：日本东京方舟农场  海星**
 
-值得注意的是，据消息人士透露，这些数据已经被发现全部是伪造的，而德国政府则基于这些伪造数据对未接种疫苗人群实施了暴政，包括不让他们进入公共场所，甚至避免所有的社会接触等。 目前，大量的研究证据表明，那些接种过中共病毒疫苗的群体其实具有更高的感染中共病毒的风险。对此，为了挽回面子，德国政府企图将决策错误全部归咎于软件数据出错。
+1月31日，日本知名制药公司兴和宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗中共病毒（新冠）的功效。
 
-参考链接：[German Health Minister says Tyrannical Covid-19 Restrictions for Unvaccinated were based on “Software Error”](https://dailyexpose.uk/2022/01/28/german-health-minister-says-tyrannical-covid-19-restrictions-for-unvaccinated-were-based-on-software-error/)
+据《路透社》报导，日本兴和制药公司当天对外表示，针对伊维菌素治疗中共病毒（新冠）的功效，该公司与北里大学合作研究的一份试验报告显示，伊维菌素在进行中共病毒（新冠）感染治疗的第三期临床试验中，不仅对奥密克戎（Omicron）病毒有效，对现有的变异病毒（如Delta）同样有效。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-50.png)（图片来源：路透社）
+此前，日本东京都便已配合数家制药公司开展伊维菌素治疗中共病毒（新冠）的临床试验。有分析人士表示，临床试验的开展意味着伊维菌素很快就能在日本获得批准，推向市场，有利于控制疫情。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+参考链接：
+1.[https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)
+2.[https://gnews.org/zh-hans/1699941/](https://gnews.org/zh-hans/1699941/)
 
-总编/编辑：飞虹
-校正/发稿：Fei797
+撰稿：海星
+编辑：文顺
+发布：文曦
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

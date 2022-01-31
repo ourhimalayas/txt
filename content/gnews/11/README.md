@@ -2,25 +2,31 @@
 ---
 
 
-## 日本主要电力公司出现亏损 电价将继续上涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1939229/)
+## 七哥谈人性（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1939341/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6-37.jpg)
-[图片来源](http://titibu.sakura.ne.jp/chichibujin/denkidaineagesinsei.html)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-日本10家主要电力公司，截至2022年3月的合并结算预测于31日发布，所有这些公司都下调了预测值。包括东京电力控股在内的六家公司预测将出现亏损，主要是由于火力发电中使用的煤炭和其他材料价格飙升导致燃料成本增加。燃料成本的增加将在数月后转嫁到电价上，这将给普通家庭和企业带来负担。
+来源：郭先生2022-01-27直播10：55：29摘录
 
-东京电力公司预计将出现410亿日元的净亏损,这将是自2013年以来九年来首次出现亏损。中国(日本的地区名)电力公司预测净亏损为370亿日元，原因是火力发电的计划外关闭导致购电成本增加。
+人性，人、人·性，记住啊，人·性，性是性生活和性格，性是人的根本，人·性。到了我认为是所有宗教没有的完美境界。金钱、时尚、生活、饮食、文明、人性，没有屠杀、没有暴力、没有掠夺、没有权力，不是你说……我就想到这时候，文贵何能何德和战友能干出这么大事啊？
 
-信息来源:
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[電力10社、純損益予想下げ　22年3月期、燃料費増加](https://news.yahoo.co.jp/articles/14c2044a6e68f41c65a26775417317d3467c0ab3)
+**关注我们**
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,31 +2,48 @@
 ---
 
 
-## 七哥说“一定记住GTV是你们的王牌中的王牌！”（2022-01-27摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1939208/)
+## 英国国会议员计划对台湾进行国事访问以对抗中共
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1939339/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场 – 四季
 
-来源：郭先生2022-01-27直播10：00：24摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-一定记住GTV是你们的王牌中的王牌！我今天大家我想你们都明白了，GTV的投资未来一定是成为G系列的控股集团，也就是所谓中共的中投，台湾的中信，还有台湾叫什么那个？当时他们搞的台湾政府的公司，就是美国的美联储，它一定是这样子的。所以说GTV的控股公司将拥有盖特的5%的股份，它拥有喜联储的、喜币的5%的股份。你不要搞错了，你的币，今年币是你的数，喜联储的5%是一百年的一千亿的数，你可千万别搞错了，那是一千亿个的5%。现在某个国家现在跟我们谈，它要认购5%，现金拿进来，按照今天市值是430亿，今年就现在市值；乘以100的话就4.3万亿，它按这个4.3万亿给它一个15%的折扣投10%，你告诉我投多少钱？5000亿美元。我要在仨月以前说我这话的话，你们真的是：“七哥你滚一边睡觉去吧”，真的是你们得尿我一脸水。今天我说了，你不觉得没有什么了吧？就在这儿啊，就在这儿说，就在这个桌子，他两个人站在这，我们抽着雪茄说的。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+据[布莱特巴特新闻网](https://www.breitbart.com/politics/2022/01/31/british-parliamentarians-plan-taiwan-trip-in-defiance-of-communist-china/)1月31日报道，英国议会外交事务委员会的议员们正计划在2月底对台湾进行国事访问，以对抗中共。
 
-Gettr 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1164775737-640x480-1.png)ANTHONY WALLACE/AFP via Getty Images
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+英国议员们一直是中共专制政权直言不讳的批评者。2021年4月，英国议员在下议院批准了一项动议，宣布中共对新疆地区的穆斯林维吾尔族和其他少数民族实施了种族灭绝。
+
+英国政府已经禁止了中国电信公司华为进入英国的5G网络，并对中共镇压香港的民主抗议活动的行径提出强烈批评。英国认为这违反了1984年签署的《中英联合声明》。该声明是一份具有法律约束力的联合国文件，旨在保护香港的自由和自治，在英国于1997年将其前殖民地的控制权交给中共国后的50年里，不受共产主义统治。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
