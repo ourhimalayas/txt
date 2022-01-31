@@ -2,8 +2,8 @@
 ---
 
 
-## 在利益满足情况下可以跟对方要求真理和正义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935697/)
+## 共产党恐惧新中国联邦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935728/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

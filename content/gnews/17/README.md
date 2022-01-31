@@ -2,8 +2,8 @@
 ---
 
 
-## 什么是中共的零容忍
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935477/)
+## 共产党灭亡前的灾难到来
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935573/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
