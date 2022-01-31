@@ -2,44 +2,28 @@
 ---
 
 
-## 不管冬奥会成功还是失败最大的可能性是习近平会打台湾
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1937097/)
+## 法国数十组织示威呼吁抵制北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1937160/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f77d62d90bdd2085a3000a](https://gtv.org/video/id=61f77d62d90bdd2085a3000a)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6c12ddb68e9a7f360d0b6286e4c66a9d3.jpg)法国国际广播
+据法国国际广播电台1月30日报道，20个民间团体、多个政党、上百名法国、维吾尔、西藏、香港、越南、台湾等民众29日集结法国外交部旁广场，要求法国政府不派代表出席2月4日举行的北京冬奥。欧洲议员格鲁克斯曼、前司法部长陶比拉、中共国集中营的幸存者—古巴哈·海蒂瓦吉、自由西藏学生会主席顿珠平措等人到场声援。
 
-**Eglise: **我就是关心，我关心可能更多的还是台湾。如果这次冬奥会按照这个习近平的标准它是胜利结束了，他是不是能够放下想攻打台湾的意向？如果这个冬奥会是个失败的，他可能会？七哥您是这个意思吧？
+法国国民议会于20日以169比1的压倒性票数通过吾尔族决议案，认定并谴责中共国的反人类与种族灭绝罪行。法国多家媒体刊登由大赦国际以及法国非政府人权组织撰发的呼吁信，表示在集中营的阴影下不应该庆祝北京奥运会。法国总统马克龙预计仍仍然会派出官方代表团前往北京，
 
-**郭文贵先生：**我觉得成功与失败他都会打台湾，我基本上我觉得。他没有失败的，他一定不管什么，失败他也说成赢了。就像路大脑袋，像欺民贼一样，永远他们赢了。郭宝胜在法庭出来，你还记得郭宝胜出来，对着夏业良（说）：我们赢了。还有那个什么，叫叶什么的给了当律师的是吧？他说：我替你省了一百万。这就是他们的心理状态嘛是吧？他一定说我赢，不管什么情况都说我赢。
+奥运会是中共政权的一次洗白行动。利用奥运会这种重大的体育赛事来庆祝独裁政权的威力，这是专制政权一贯的做法，就像当年的纳粹和前苏联。北京冬奥会是新疆种族灭绝运动会，也是病毒和疫苗的大传播运动会。根据中共以往不计后果的病毒清零政策，和完全虚假的数字报告，中共一直隐瞒真实的感染和死亡案例，北京冬奥会存在着极大的危险性。为了捍卫人权、为了运动员的安全和生命，应该抵制北京冬奥会。
 
-但是我觉得不管什么结果他都会打台湾。这是，现在他必须打的，只有很少的可能不打台湾，所以说咱们看着吧。
+新闻参考链接：[https://www.rfi.fr/cn/法国/20220130-法国数十组织联合示威呼吁当局抵制北京冬奥会](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220130-%E6%B3%95%E5%9B%BD%E6%95%B0%E5%8D%81%E7%BB%84%E7%BB%87%E8%81%94%E5%90%88%E7%A4%BA%E5%A8%81%E5%91%BC%E5%90%81%E5%BD%93%E5%B1%80%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A)
 
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+* * *
 
-编辑整理：Jacques；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-字幕文件制作：大好河山；
 
-视频制作及上传：Cindy；
+编辑：【英国伦敦喜庄园编辑部】
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,27 +2,22 @@
 ---
 
 
-## 小米股价暴跌，市值蒸发4千多亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1936864/)
+## 捷报：伊维菌素终于被认可
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1937041/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6c12ddb68e9a7f360d0b6286e4c66a9d2.jpg)网络图片
-据网易新闻1月30日报道，小米股价近日连续暴跌，与最高值相比下跌54%。目前，小米总市值为4120亿港元，蒸发了4850亿港元。创始人雷军28日辞去小米公司董事长职务，据说为了专注小米造车。
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2590.png)[图片来源](https://www.fwbusiness.com/covid-19/article_d602bf9d-afe9-5337-96c5-fd37b7e62846.html)
+东京 1月31日（路透社）报道：兴和制药公司（名古屋）1月31日表示，兴和已与北里大学完成了一项关于伊维菌素治疗中共病毒（新冠状病毒）感染的临床前研究。通过与北里大学的联合非临床研究实验，证实了伊维菌素对治疗中共病毒（新冠状病毒）感染，无论是对德尔塔（Delta）毒株还是对奥米炕（Omicron）毒株都有相同的抗病毒效果。
 
-小米手机曾经信誓旦旦地要与苹果手机竞争，2021年小米手机的全球市场销量也一度超过苹果手机，但是作为市值4千亿的小米手机与市值3万亿的苹果手机相比，差距不是一次销量就能够证明。中共国的企业没有技术支撑，完全靠假骗偷得来的技术缺乏持续更新和发展。一飞冲天之后，后续力量不足，还是要跌落地面，一蹶不振。
+伊维菌素是根据北里大学名誉教授大村智先生的研究开发的，他在2015年获得了诺贝尔生理学•医学奖。伊维菌素主要在非洲国家被用作治疗寄生虫感染。
 
-新闻参考链接：[https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp](https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp)
+我们新中国联邦一直在呼吁，要求用伊维菌素治疗中共病毒，现在终于得到了证实。兴和制药公司用科学实验验证了这一切。期待着今后伊维菌素在治疗中共病毒方面发挥最大的作用。
 
-* * *
+信息来源：[興和、「イベルメクチン」のオミクロン株への抗ウイルス効果を確認](https://news.yahoo.co.jp/articles/4924fb35eaa89d16884e9562defa71572857e2f7)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,27 @@
 ---
 
 
-## 法国扭捏表态不参加中共冬奥开幕式
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935835/)
+## 英国计划向北约大规模增兵 以应对乌克兰危机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1936322/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-317.png)[图片来源](https://www.jiji.com/sp/article?k=2022013100170&amp;g=int&amp;p=20220131at04S&amp;rel=pv)
-据巴黎时报报道：法国欧洲事务部长在1月30日，出席法国电台的节目时，就讨论2月4日开幕的中共冬奥会是否出席的问题时表示，体育部长将被派往2月4日开幕的北京冬奥会，但她不会出席开幕式，但会在奥运会期间的某个时候去当地支持鼓励法国运动员。
+**撰稿：日本东京方舟农场  海星**
 
-欧洲事务部长还进一步强调，拒绝明确表示他不会参加关于外交抵制的辩论，强调 “外交必须是低调的”。解释说欧盟对于有于抵制问题也还在讨论中，但认为许多国家没有派人或没有让其国家元首出席开幕式是明智的决定。
+1月29日，英国政府表示，英国计划向北大西洋公约组织(NATO)大规模增兵，以应对俄罗斯在乌克兰边界集结军队的问题。
 
-信息来源：
+据《路透社》报导，英国首相约翰逊的办公室当天表示，英国正考虑向北欧和波罗的海地区的北约防务公约成员国提供最大可能的军事部署，预计下周向北约提出增兵计划，将目前在东欧约1150名的英军人数增加一倍，以确保能够支持北约盟国。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-46.png)（图片来源：路透社）
+据悉，1月中旬俄罗斯就几乎完成了在乌克兰边境的军事集结，该地区共聚集了12.7万名士兵，随时可能入侵乌克兰，在东欧发动战争。
 
-[北京五輪開会式欠席へ　「外交控えめ」―仏](https://www.jiji.com/sp/article?k=2022013100170&amp;g=int)
+对此，英国首相约翰逊在一份声明中强调，英国不会容忍俄罗斯破坏欧洲和平的行为，将始终与北约盟友站在一起。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+1.[https://cn.reuters.com/article/uk-nato-military-deployment-0130-idCNKBS2K4044](https://cn.reuters.com/article/uk-nato-military-deployment-0130-idCNKBS2K4044)
+2. [https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220130-%E5%BA%94%E5%AF%B9%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%9B%BD%E7%BD%95%E8%A7%81%E5%90%91%E5%8C%97%E7%BA%A6%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%B4%BE%E5%85%B5](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220130-%E5%BA%94%E5%AF%B9%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%9B%BD%E7%BD%95%E8%A7%81%E5%90%91%E5%8C%97%E7%BA%A6%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%B4%BE%E5%85%B5)
+3.[https://zh.wikipedia.org/wiki/2021%E5%B9%B4%EF%BC%8D2022%E5%B9%B4%E4%BF%84%E4%B9%8C%E5%8D%B1%E6%9C%BA#cite\_note-%E6%8B%92%E7%B5%95-43](https://zh.wikipedia.org/wiki/2021%E5%B9%B4%EF%BC%8D2022%E5%B9%B4%E4%BF%84%E4%B9%8C%E5%8D%B1%E6%9C%BA#cite_note-%E6%8B%92%E7%B5%95-43)
 
+撰稿：海星
+编辑：文顺
+发布：文曦
 
  
 

@@ -2,38 +2,45 @@
 ---
 
 
-## 部分国际赞助商不愿抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1936821/)
+## 纽约男子杀害三名亚裔后被判送精神病院
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1937036/)
 
-撰稿：东京樱花团/山顶闲人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-556.jpg)
-[图片来源](https://t.cj.sina.com.cn/articles/view/7228207506/1aed5b192001018qw4%20%20%20%20%20)（**图为主办方给每位运动员都准备了一份礼包，里面有价值7999元的三星手机 不少外国运动员打开后都震惊了）**
+**编译：wenwu**
 
-据《纽约时报中文版》1月28日消息。拜登总统和其他西方国家领导人或许宣布了对冬奥会的“外交抵制”，但全球最著名的一些品牌仍将出现在赛事现场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/tempsnip12纽约男子杀害三名亚裔后被判送精神病院.png)图片来源：news.yahoo.com
 
-比如在滑雪选手将即将于2022年北京冬奥会竞逐的赛道底部，一块电子标牌循环播放着三星和奥迪等企业的广告。可口可乐易拉罐上装饰着奥运五环。宝洁在奥运村开了一家美容沙龙。Visa则是本届赛事的官方信用卡合作伙伴。
+在2019年发生的暴力仇恨犯罪锤击事件中，被杀害的华人男子的遗孀对法院的裁定感到愤怒，因其最终结果是将嫌疑人送往精神病院而不是让他在本周面对应有的惩罚。
 
-这些举足轻重的跨国企业（其中许多来自美国）减轻了拜登等领导人惩罚中国侵犯人权行为造成的政治上的不愉快，这些侵犯行为包括在西部地区新疆的镇压运动，美国国务院将其称为种族灭绝。
+据《纽约每日新闻》报道，仇恨犯罪锤击案受害者之一 Tsz Mat Pun（50岁）的遗孀 Jennifer Pun，其批评美国司法系统在周四（27日）将37岁的嫌疑犯亚瑟·马图诺维奇（Arthur Martunovich）转移到精神病院。
 
-对冬奥会的赞助反映出在华跨国企业所面临的艰难抉择：要么可能被赶出日益敏感的中国，要么就得应对在华开展业务在声誉上造成的风险。对于这届北京冬奥会，他们的选择已经很明确了。
+“我以为美国的司法系统会做好自己的工作，将犯人绳之以法；他是有能力的。当他做出夺走三条生命的决定时，他是清醒的。”Jennifer Pun 通过翻译说。
 
-虽然在多个国家都面临人权活动人士的抗议，但各家赞助商基本不为所动，而是选择继续让中国及其新兴的民族主义消费者群体满意。这些企业提出奥运会与政治无关，并且表示它们已在持续多届奥运的赞助合约上投入了数亿美元，不是只有北京冬奥会。最主要的13家奥运赞助商与国际奥委会签订的合同总额超过了10亿美元。
+布鲁克林最高法院法官 Danny Chun 指定嫌犯为有“危险精神障碍”的马图诺维奇被认定对2019年1月15日在布鲁克林 Seaport Buffet 餐厅杀害老板 Kheong Ng-Thang、餐馆经理 Tsz Mat Pun 和他的侄子兼厨师 Fufai Pun（34岁）的事件“不负责任”。据报道，Tsz Mat Pun 和 Fufai Pun（唯一在现场被宣布死亡的受害者）从中国福建省的同一个村庄移民过来。
 
-但对于企业而言，批评中国的政策很可能[激怒中国的消费者](https://cn.nytimes.com/business/20210407/xinjiang-china-cotton-brands/)。中国社交媒体上的爱国者大军已经对他们眼里的外国品牌辱华行为作出过严辞谴责，而政府和官媒也经常放大这些恶言恶语。在对新疆强迫劳动的报道[表达关切](https://www.nytimes.com/2021/03/29/style/china-cotton-uyghur-hm-nike.html?action=click&amp;module=RelatedLinks&amp;pgtype=Article)后，阿迪达斯、耐克和一些时装品牌在中国遭遇了全国性的抵制。中共在新疆地区强行将数百万维吾尔族穆斯林关进了大规模拘禁营和再教育营。当时装零售商H&M承诺停止购买新疆棉后，中国消费者的[抵制](https://cn.nytimes.com/business/20210325/handm-boycott-china-uyghurs/)使其一个季度[损失了约7400万美元销售额](https://www.wsj.com/articles/h-m-pays-price-of-upsetting-beijing-as-china-sales-drop-11625136844)。
+据 NextShark 此前报道，2021年8月，法院决定不起诉马图诺维奇，因为他患有精神疾病，受害者的家人和社区成员对此表示愤怒；在周四的法庭审判中，Jennifer Pun 和 Fufai Pun 的遗孀艾米（Amy）在场，并被看到在判决后对检察官大喊大叫。
 
-就连奥运会主要赞助商之一的英特尔，上个月也[面临抵制呼声](https://cn.nytimes.com/business/20211224/intel-apology-china-xinjiang/)，因为该公司发布了一封呼吁国际供应商避免从新疆采购产品的信函。面对愤怒，英特尔在几天内[重写了这封信](https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-english.html)，删除了提及新疆的内容。
+“我不相信被告有那么严重的精神疾病；他非常冷静，他能够分辨出你[原文如此]是亚洲人还是西班牙人。”Jennifer Pun 说。
 
-关于这样的支持是否有效粉饰了中共的威权统治，主要赞助商均回避了相关问题，[有时方式还很笨拙](https://www.youtube.com/watch?v=NpkOD_jlJT0)。这些企业的高管认为，奥运会不应被政治化，并援引了[《奥林匹克宪章》](https://olympics.com/athlete365/app/uploads/2021/07/Rule-50.2-Guidelines-Olympic-Games-Tokyo-2020-Final.pdf)的相关内容，尽管有关奥运会的政治阴谋由来已久。
+“危险的精神障碍”是一项裁决，是对面临指控的嫌疑人的“最严重类别”。FindLaw 解释说，有“危险精神障碍”的人被认为“对自己或他人构成身体危险”。纽约州的精神错乱辩护裁定，被告应被安置在由精神卫生局监管的安全设施中，未经法院批准，将不允许释放或转移。
 
-在全球共同抵制北京冬奥会大趋势下，部分奥运会国际赞助商，对腐朽邪恶的中共政权还抱有幻想，以扶持中共助其成功举办冬奥会，这种变相的“利益输送”方式贿赂中共高层，妄图进一步扩大自己品牌在中共国市场占有率，在中共国的市场多分一杯羹。但是在现在中共国经济即将“崩盘”，“全球化”经济危机即将爆发的大趋势下，这些国际赞助商攫取利益的图谋将化为“泡影”，自身的丑行也会被钉在历史的耻辱柱上。
+布鲁克林地区检察官奥伦·亚尼夫（Oren Yaniv）说，嫌犯马图诺维奇将被送往一个上锁的最高安全级别的精神病院。“我不相信被告有那么严重的精神疾病；他非常冷静，他能够分辨出你[原文如此]是亚洲人还是西班牙人。”Jennifer Pun 说。
 
-信息来源：
+据报道，Tsz Mat Pun 和 Fufai Pun（唯一在现场被宣布死亡的受害者）从中国福建省的同一个村庄移民过来；布鲁克林地区检察官奥伦·亚尼夫（Oren Yaniv）还补充说，嫌疑人在许多年内不会被释放，如果他被释放，这将使他们的办公室能够“在法官面前挑战这一决定”（康复后可能获释）。
 
-[“中国是个例外”：为何国际赞助商不愿抵制北京冬奥会](https://cn.nytimes.com/business/20220128/olympic-sponsors-china-beijing/)
+“我们相信，他将永远不会再有机会在我们的社区实施暴力，向受害者的朋友和亲人表示最深切的慰问，并祈祷他们能够得到安宁，”亚尼夫检察官说。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+马图诺维奇接受了中哈德逊法医精神病学中心（Mid-Hudson Forensic Psychiatric Center）医生的评估，他将继续留在该机构，并在今年七月后重新进行评估。
+
+**新闻来源**：[news.yahoo.com] [Ruling that man who killed three Asian men with hammer is ‘notresponsible’ due to mental illness angers victims’ widows](https://news.yahoo.com/ruling-man-killed-three-asian-220630784.html) | 发布时间：2022年01月28日｜
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEWS_CH.-1-3-5.jpeg)
+
 
 
  
