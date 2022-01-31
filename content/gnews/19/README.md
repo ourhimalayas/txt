@@ -2,26 +2,19 @@
 ---
 
 
-## 小米股价暴跌，市值蒸发4千多亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1936864/)
+## 病毒疫苗必将溯源共产党必死
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1937009/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/6c12ddb68e9a7f360d0b6286e4c66a9d2.jpg)网络图片
-据网易新闻1月30日报道，小米股价近日连续暴跌，与最高值相比下跌54%。目前，小米总市值为4120亿港元，蒸发了4850亿港元。创始人雷军28日辞去小米公司董事长职务，据说为了专注小米造车。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-小米手机曾经信誓旦旦地要与苹果手机竞争，2021年小米手机的全球市场销量也一度超过苹果手机，但是作为市值4千亿的小米手机与市值3万亿的苹果手机相比，差距不是一次销量就能够证明。中共国的企业没有技术支撑，完全靠假骗偷得来的技术缺乏持续更新和发展。一飞冲天之后，后续力量不足，还是要跌落地面，一蹶不振。
+*发布：陶子*
 
-新闻参考链接：[https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp](https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

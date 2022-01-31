@@ -2,8 +2,8 @@
 ---
 
 
-## 超出预想的好消息
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1936997/)
+## 新中国联邦想不赢都不行
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1937017/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
