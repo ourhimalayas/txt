@@ -2,31 +2,33 @@
 ---
 
 
-## 德国卫生部将疫苗暴政甩锅软件错误
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1938284/)
+## 七哥说“时间是蒙住你眼罩、蒙住真相的一个工具，跨过时间以后你就是永恒、永生”(2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938341/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，据相关媒体报道，在恐吓了当地未接种中共病毒疫苗的民众数月之后，德国卫生部长突然改变口风称，政府此前关于未接种疫苗的群体会引发中共病毒大传染的言论是错误的。同时，该卫生部长还将这一错误言论归因于“软件问题”。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-41.jpg)
-数据显示，德国先前的中共病毒感染病例数据呈现出令人难以置信的高增长态势。然而，汉堡市市长却在新闻发布会上声称，该市90%的感染患者出现在未接种疫苗的人群中，并以此强制当地民众接种中共病毒疫苗。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-值得注意的是，据消息人士透露，这些数据已经被发现全部是伪造的，而德国政府则基于这些伪造数据对未接种疫苗人群实施了暴政，包括不让他们进入公共场所，甚至避免所有的社会接触等。 目前，大量的研究证据表明，那些接种过中共病毒疫苗的群体其实具有更高的感染中共病毒的风险。对此，为了挽回面子，德国政府企图将决策错误全部归咎于软件数据出错。
+来源：郭先生2022-01-27直播09：00：58摘录
 
-参考链接：[German Health Minister says Tyrannical Covid-19 Restrictions for Unvaccinated were based on “Software Error”](https://dailyexpose.uk/2022/01/28/german-health-minister-says-tyrannical-covid-19-restrictions-for-unvaccinated-were-based-on-software-error/)
+七哥有更高维度的追求，而且我一定要以身证法，我觉得我生命最后的价值就是我要证明给人类看，你的修行、你的能力，最后你要在人类面前、在所有的宗教人面前，没有人敢证法的，我要以身证法，证明这个法力的存在，人生死轮替，不生不灭。我在清丰看守所待过，我经历的事情很多。我昨天跟我这旁边的同事，我给他们讲了两段故事，他们吓一大跳，我说我当年在清丰看守所经历的故事。我出来以后很少跟人讲，因为什么？我跟人讲，人家觉得我神经病。再一个，跟不懂的人讲，就像咱现在直播一样，是吧，你跟一个八九十岁没有直播的人讲直播，他根本不懂，就这么简单的事他都不懂，他也不信。那你不懂不信的人，你就不用再去讲了，你把自己的事做好。而且我越来越能感受到，我觉得生命的意义真是太奇妙、太美好！如果说你现在人要活着能活1000岁，你选择1000岁还是65岁？我选择1000岁，我不活65岁，那肯定的。但关键你要让我65岁活到1000岁这个中间像王岐山这样的活着、像路大脑袋这样的活着，我马上就死，我不想活着，是吧？如果没有价值、没有意义活着，多一天都不想活。如果我能用我的生命来证明生命的意义的话，我马上就可以做。所以说我觉得我不希望看到生活中现在就太多…..我从十几岁跟我打交道的都是中年人、老年人，当年的将军，你像郑永乐先生是北京炮兵部部长，你说我一个十几岁的孩子，比现在看到的照片还早呢，是吧？我见过多少老年人？他能咋地呢？对不对呀？
+所以当你们能明白这个的时候，你就知道我们真的是人类上唯一一个，这个运动不为钱、不为性、不为名、不为任何个人利益的，就是想灭掉邪恶，就这么纯洁，就这么纯洁！我们啥也不在乎，啥都不在乎。所以今天五周年的时候，你能想到我当年爆料，当时郭美还没回到家呢，刘彦平还没放她回去呢，我就爆了，就是五年前的今天。他可能让我女儿一辈子都不让她回来，但是我做这个决定我就是爆了。所以刘彦平给我打电话你们记得吗？你们还记得那个录音吗？“咋你就不跟我说一声吗？你直播什么播？我这不都准备好了嘛，让闺女回家嘛”，你们记得这段吧？如果中国人在历史上和今天有一个人能做到这点，你给我找出来，包括你们所谓的政治大家，什么这父那父的，你给我找一个人能做到这点的。我告诉刘彦平我说：“这事早有准备的，我一定会播的。”这五年来如果还不能唤醒很多人，这些人我永远也不想再唤醒了。这就是对生命的理解。你想想65岁，我65岁我现在还有十几年，还有十二三年，多少天？5000天，严格讲还不到5000天，4000来天，七哥就嗝屁了走人了，按照人间的说法，我再活50年，1万多天，又能咋地呢？随便中央公园的一棵树都比咱活得时间长，对吧？一切都不会是……你也带不走。但是七哥这五年来直播的视频你想给我扼杀了？万年你也扼杀不掉，包括咱现在此时此刻说的话，那未来得多少人听？多少人看？他们怎么理解？“当时的那个巴黎好漂亮啊！而且叫水多，旁边的大牛跟她双修啥感觉？” 大家都会怀疑；然后 “羅西的老师是谁呀？” 后来都要了解了解；“上面那个佳佳和王子两口子，他俩双修啥样啊？” 都会研究研究；“雅各为啥出来爆料啊？”这个是万年千年不会变的，这个就是我们的伟大呀，对吧？所以说巴黎，不要在乎时间，65年和75年、85年、1000年没什么差距，瞬间即过。时间是蒙住你眼罩、蒙住真相的一个工具，跨过时间以后你就是永恒、永生。谢谢！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-总编/编辑：飞虹
-校正/发稿：Fei797
+**关注我们**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

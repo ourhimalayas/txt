@@ -2,32 +2,23 @@
 ---
 
 
-## 七哥谈“美国开始制裁中共的高官在海外的资产”（2022-01-27摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938372/)
+## 没有加强针的欧盟疫苗接种证书今后将只有九个月的有效期
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1938515/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-16.tiff)图片：Manuel Zimmermann / BRF
+从周二开始，对许多人来说，在欧盟没有接种疫苗加强针去旅行将变得更加困难。这是因为没有疫苗加强针的欧盟疫苗接种证书将从2月1日起只有9个月的有效期。
 
-来源：郭先生2022-01-27直播09：26：36摘录
+在此之后，没有接种疫苗加强针的人在过境时将被视作未接种疫苗。
 
-我再今天告诉大家今天好消息，准备好啊，你们要脱的话准备好。昨天下午最起码100多个国际金融机构和公司，和30几个大的国际，大家都知道打着所谓NGO的名义，实际是国际的合法的公益机构要开始研究如何美国开始制裁中共的高官在海外的资产，如何配合、如何查封。这一步绝不亚于 “不断不交” 的授权撤离，要把共产党的官的钱、属于中国人的钱，在海外要开始查封，一旦这个宣布，大家知道意味着什么？抽你的筋：断交，断掉你的血、放掉你的血：查封你的资产。快不？
+这就意味着人们在欧盟跨境旅行时，需要有效的阴性（新冠病毒）测试，甚至必须进行隔离。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+欧盟司法专员迪迪埃·雷恩德斯(Didier Reynders)说，这反映了对疫苗的保护作用正在下降。（dpa/okr）
 
-**关注我们**
+原文链接：[https://brf.be/international/1570622/](https://brf.be/international/1570622/)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,16 @@
 ---
 
 
-## 日本兴和制药公司证实伊维菌素有效
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1938343/)
+## 《新中国联邦宣言》的现实意义和历史地位
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1938419/)
 
-**撰稿：日本东京方舟农场  海星**
+2022年壬寅年新春大直播20220131
 
-1月31日，日本知名制药公司兴和宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗中共病毒（新冠）的功效。
+撰稿：三票先生（DC）
 
-据《路透社》报导，日本兴和制药公司当天对外表示，针对伊维菌素治疗中共病毒（新冠）的功效，该公司与北里大学合作研究的一份试验报告显示，伊维菌素在进行中共病毒（新冠）感染治疗的第三期临床试验中，不仅对奥密克戎（Omicron）病毒有效，对现有的变异病毒（如Delta）同样有效。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-50.png)（图片来源：路透社）
-此前，日本东京都便已配合数家制药公司开展伊维菌素治疗中共病毒（新冠）的临床试验。有分析人士表示，临床试验的开展意味着伊维菌素很快就能在日本获得批准，推向市场，有利于控制疫情。
-
-参考链接：
-1.[https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)
-2.[https://gnews.org/zh-hans/1699941/](https://gnews.org/zh-hans/1699941/)
-
-撰稿：海星
-编辑：文顺
-发布：文曦
+美工：青山（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片1-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片2-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片3-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片4-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片5-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片7-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片8-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片9-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片10-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片11-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/幻灯片12.png)
+*发布：Theodosia*
 
  
 
