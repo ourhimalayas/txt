@@ -2,32 +2,40 @@
 ---
 
 
-## 七哥谈精神上的虹化（2022-01-27摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1939352/)
+## 疫苗灾难将促使全球自动灭共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1939393/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山农场-晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月30日，郭文贵先生在直播中再次谈及了有关中共病毒疫苗灾难的话题。
 
-来源：郭先生2022-01-27直播11：19：59摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-24.jpeg)
 
-我要的是精神上的虹化。这个精神上的虹化就是我要表现给大家、证明给大家，一定比这高不知道多少段落去了。然后我在过程当中我要通过科技、电脑、超级的芯片，用物质的讲法科学的讲给你。别玄玄乎乎的什么舍利子、绿呀、红啊这都太……到那时候完全通过科学、电脑、视频展现给你。这是一个物质，另外我们叫物质的世界。我们展示物质世界的灵魂的世界的一个共同体。就把灵和魂和肉体通过物质的方法和科学的方法、生物的方法展现。没有其他条件的，这七哥能做到这个。而且一定要记住，到那个时候不是我能做到，大家很多人我觉得大家都能做到。大家一定要去掉恐惧，而且七哥不会离开，这是最起码的。我上深山老林是跟战友们更多的时间在一起。不直播了，更多咱们在一起。一天不见你们我会孤独的很难受，是吧。到了65岁的时候我更高的境界，就是你们天天更加每个人都可以拥有一个七哥。到那时候就是你到洗手间里的时候 “哎，七哥帮我擦擦屁股” ，就有人过来帮你擦屁股， 然后 “七哥，我需要双休” ，然后七哥马上就来了，宽衣解带就来了。“七哥，我想叫你当女的” ，我就当女的。就这种境界，这不是开玩笑啊，不是开玩笑，你们不用开任何玩笑。这就叫情缘。啥叫情缘？你把情和缘搞明白的时候，这就是人类最高的境界。这就是我对同性恋，我从来没有觉得同性恋不正常。按照遗传学是不正常、不好。但是从物种来讲他有啥不正常的？没有啥不正常的。最高的境界情缘不分男女，也不分女男，不分老少，不分高低。所有的这个情缘，情、缘都是一个物体、物理、肉体和情绪的结合。任何爱对方不需要理由、不用带条件。 你不能说我都要娶个佳佳，我都要娶个大牛，那天下就……你都要弄个王子、雅格、羅伊这样的人物、大牛，那天下多少人不能活了？ 路大脑袋还不得自己把自己给浸死去。只要是你心中生了缘念，情起即缘落。所以说这是七哥追求的境界，放心，七哥有更多美好的。
+郭先生透露，一位参加过《文贵大直播》的战友，其17岁的孩子在接种了中共病毒疫苗后于昨晚过世。其后，还有9位战友也分别向郭先生传递了家人因疫苗副作用而引起家庭灾难的消息。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+郭先生指出，据科学家预计，全世界因中共病毒疫苗造成死亡的人数将达到6至7亿人。同时，疫苗政治、疫苗军事和疫苗经济下的疫苗灾难将从2022年5月开始爆发。
 
-**关注我们**
+对此，郭先生表示，各国民众应尽快苏醒，从而能将所有推行疫苗强制令的政客彻底曝光。随之而来的，为了平衡民心并保住其政治地位，这些政客势必要把民意引向追溯病毒起源、疫苗真相，甚至战争等方面。自此，全球必将开启自动灭共的进程。
 
-Discord 账号
+郭先生还提醒爆料革命战友，当世界进入混乱之时，新中国联邦在海外的华人要防止当地排华事件的发生并改变与人交往的方式；而墙内的战友则不要充当中共的炮灰。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+郭先生最后也反复强调，共产党不等于中国人，且新中国联邦只为救人。因此，我们不希望用鲜血与生命来证明爆料革命的伟大。
 
-Gettr 账号
+参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
+总编：文特
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
