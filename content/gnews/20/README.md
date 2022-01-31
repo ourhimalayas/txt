@@ -2,10 +2,10 @@
 ---
 
 
-## 新中国联邦-新年快乐（二）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939403/)
+## G系列是福
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939458/)
 
-设计者：纽约香草山设计部 — 沙漠绿洲
+设计者：纽约香草山设计部 — 上帝的平安， 哇大兄弟
 
 
 
@@ -18,7 +18,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-3-portrait-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-portrait-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-1-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-G-.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-1-3.jpg)
 
 
 **编辑/发稿：小鹿**
