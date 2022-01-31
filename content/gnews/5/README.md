@@ -2,46 +2,50 @@
 ---
 
 
-## 在中共造假和篡改历史之下疫苗带走很多穷人和怕死的人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1936386/)
+## 美媒重提“肛拭子”，中共冬奥会是否噩梦重现？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1936532/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f76a4bd90bdd2085a2f911](https://gtv.org/video/id=61f76a4bd90bdd2085a2f911)
+作者：sherryok(水云间)
 
-**郭文贵先生：**所以疫苗灾难，在中国和外国体现的完全不同的结果。但是中国人造假和篡改历史，这回也救了一批人，也确实把一帮无知的人这回也害惨了。我的家人是受害者，属于无知那里边的。澄道和Longwood我不知道你们的家人属于哪一块的？听党的话的、是被政治洗脑的？还是什么样子？反正我们家人所有人都是被害者。是吧？就这么简单吧。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1311.gif)
 
-所以疫苗这个事情在国内啊，跟大家想象的是不太一样的。共产党的很多官会活下来，你高不高兴都会活下来。他第一天就知道是坏东西，很多穷人，很多怕死的人都被灭了，可惜啊！
+据国家脉动网站2022年1月27日报道，司法观察组织通过《信息自由法》获得的电子邮件显示，中共2021年初让美国外交官在北京进行中共病毒肛拭子检测。
 
-我听说很多！很多！就那个市长在视频里就说到了：“你们别愚蠢，帮助你们家人和帮助别人，这些人反咬你一口，中国老百姓值得帮吗？你们还用我教吗？”是吧？我把这个视频给了外国人，外国人都吓傻了。他说这个市长竟然教给这些人，他们坚决不能打还不能帮别人。不但不帮别人，看到别人帮别人还要举报。就是这个邪恶到了什么程度是你无法想象的，没办法，一点办法都没有，一点办法都没有，就是真可怜。
+文中提到就[在乔·拜登宣誓就职总统几天后，2021 年 1 月下旬交换](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://www.judicialwatch.org/documents/jw-v-state-covid-test-january-2022-02111/)的一系列电子邮件显示，美国国务院官员在中共国期间正在接受中共病毒肛门检测。在 2021 年 1 月 22 日的一封标题为“新测试方法”的电子邮件中，一位国务院官员解释了一位同事如何接受了中共病毒的肛拭子测试：“一位同事告诉我们的小组，他在他的公寓里得到了中共病毒肛拭子。请一定注意，因为我相信它很快就被无限放大……如果在消息被泄露之前你还没有解决它，雇员姓名为…”
 
-就是现在在国内看直播的人，你问问现在看直播的，有多少人真正地相信爆料革命，有这个智慧辨别真假，识这个善恶，你真的是别人帮你不打疫苗你不说、你不去炫耀，或者不去揭发他，你真的能是坚持到底不打疫苗最后20秒吗？很可悲的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13101.gif)
 
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+国家脉动登出了由司法观察获得的邮件原文 （附图）。
 
-编辑整理：Jacques；
+对这封电子邮件的另一份回复显示，一名国务院官员询问有关测试的前因后果。“这发生在哪个城市？和什么测试代码？他有没有说他们是否事先通知将以这种方式进行测试？他有没有选择，”名字被隐藏的官员问道。随后的一封电子邮件显示，肛拭子测试是在中共国北京进行的，并且该官员“没有得到任何通知或选择”：
 
-字幕文件制作：大好河山；
+-北京
+-作为7天居家观察的一部分，他在他的公寓里（据我了解）
+– 没有通知或选项，我可以明确。
+– 他必须做鼻咽拭子和肛门拭子。
 
-视频制作及上传：Cindy；
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13102.gif)
 
-G-News发布：小满；
+司法观察获得的其他电子邮件似乎表明，国务院各官员对中共病毒测试的潜在要求感到恐慌。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13103.gif)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+其他电子邮件似乎将美国外交官的强制肛拭子检测归因于“错误”，因为据报道该政策“不适用于外交官”：联合国粮农组织告诉大使馆，要求提供肛门拭子是错误的，这并不适用于外交官。尽管还需进一步确认，但现在我们必须告诉人们他们不必这样做。据报告，你是在私人处所自己进行检测的，所以没有我想象的那么糟糕。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2022/01/13104.gif)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+这些电子邮件证实了之前的[报道](https://thenationalpulse-com.translate.goog/2021/01/27/china-pushes-anal-coronavirus-tests/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=wapp)，称中国共产党正在推出有争议的中共病毒测试形式。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+据悉，中共国于2021年1月启动肛拭子检测，声称增加肛拭子核酸检测能够提高感染者检出率，减少漏诊。中共官媒新华网曾发文称，由于肛拭子采样不够方便，加上很多人对它接受度不高，因此采用肛拭子采样只是对部分人进行的“针对性筛查”，并非所有人都需要采用，更不是要全（中）国推广。鼻咽拭子检测仍然是目前最为普遍的检测方式。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+所以肛拭子检测在2021年一推出，就用在了美国外交官员身上，这在中美关系恶化中起到了什么样的激化作用耐人寻味，美国国务院发言人2021年2月表示美国国务院从未同意这种测试，“当我们得知一些工作人员被要求做这样的测试时，直接向中国外交部提出抗议”。日本随后也要求中共停止在日本公民入境中国时进行肛拭子测试。随后中共方面表示是工作人员的失误，不应该用于外交人员。连拥有外交豁免权的外交人员都可能遭遇这样的失误，在中共国还有谁是安全的？
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+神奇的是，在2022北京冬奥会开幕前夕，纽约邮报1月21日又报道了“中国在冬奥会前两周带来了肛拭子检测”，前往冬奥的各国运动员和外交人员，是否会再次经历1年前的噩梦？1月24日郭文贵先生在直播中爆料，一位因奥运前往中共国的女外交官竟然在众多男士面前被迫进行了肛拭子检测，最后愤而离开中共国。正如郭先生所感叹的，中共国民众在中共的统治下，已经丧失了对美丑，善恶的基本判断，人心的毒不知道还要经过多少代才能去除。2022年1月25日，美国政府已正式通知北京中共政府，授权美利坚驻北京大使馆工作人员撤离！正值中共肛拭子外交闹剧重现江湖之际，中共国已经内忧外患，疲态尽显，就像它独创的肛拭子检测一样，让人避之唯恐不及。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[新闻链接：](https://thenationalpulse.com/2022/01/27/china-forced-american-diplomats-to-take-anal-covid-tests/)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 

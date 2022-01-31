@@ -2,34 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月30日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1935239/)
+## 联俄两线开火各取所需 中共加速全球自动灭共进程
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935294/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-533.jpg)
+2022年1月30日郭文贵先生直播爆料：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
+普京和习近平原本说好，普京取乌克兰和习近平取台湾，各取所需。现在，乌克兰找到美国，到瑞士会谈。俄罗斯提出把天然气管道放到欧洲，这相当于插到了欧洲的一个输钱管道，俄罗斯GDP将会翻翻。普京另一要求，欧盟书面放弃东扩，来换取不攻打乌克兰。中共国如果打台湾，会被国际制裁，GDP会从15万亿美元会降到5万亿美元，而且美国欧洲会参战，到时中国老百姓的孩子至少死50万。现在军队没有人相信会真打台湾，也没有人认为有必要打台湾。习近平的政治智商连普京的尿壶都不如，无论打不打对俄罗斯都会有利益，只是多少的问题，然而对于习近平，却无异于自杀！
 
+现在，笔者认为如果普京进攻乌克兰，习近平去打台湾，对于有极高政治智慧的普京来说将是弊大于利！因为邪恶的中共一旦拿下台湾，美国会退出亚洲，日本就彻底完蛋了，美元时代就此结束，中共习近平将会变成世界的霸主，强大的中共习近平定会背信弃义，转过头来会对付俄罗斯，因为未来俄罗斯会是其未来的首要威胁！所以，普京不会傻到顶着西方的强力制裁和战争，为中共做嫁衣！相信普京会同西方合作一起干掉中共习近平，这样才能得到更大的利益，现在大声音嚷嚷无非就是向西方要个高价罢了！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-9.png)
-校对：Stay文苑
+随着疫苗灾难到来，会让疫苗强制令的美欧政客彻底曝光，美欧等西方政客为了自保，转嫁责任，必将与俄罗斯联合在一起共同灭共！战友们，郭文贵先生早就警示的，全球自动灭共即将到来……
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[1.30  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f73bab96ba5d73e0bf73ca)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-27.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

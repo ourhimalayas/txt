@@ -2,39 +2,97 @@
 ---
 
 
-## 俄罗斯哭闹着要过上西方人的生活
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1936455/)
+## 世界是一个危险的地方, 当美国不准备表现出决心和保护其利益时，威权政权就会看到弱点
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1936610/)
 
-撰稿：何处是我家
-![](https://assets.gnews.org/wp-content/uploads/2022/01/311-2.png)图片来自网络
-快过年了，那些不安分守己没有积蓄的人们，也渴望过个衣帽崭新，肉嫩菜鲜的春节。一些平日游手好闲缺衣少穿的朋友，在临近春节的日子却格外的忙碌，腿脚比往日勤快许多，倏然变得耳聪目明起来。东家顺一根葱，西家拽袋面，竟然也能过个不错的年。
+[https://gtv.org/video/id=61f71f27d90bdd2085a2d5e2](https://gtv.org/video/id=61f71f27d90bdd2085a2d5e2)
 
-世界上华人年关临近，北京冬奥运盛会开幕之际，这个关键时间点，确实是一个千载难逢的契机。记得2008那一年，北京奥运会俄罗斯突出奇兵打格鲁吉亚一个措手不及。这一次俄罗斯在西部靠近乌克兰的漫长的边境线上，集结了各兵种达10万之多，战争似乎一触即发。一时间欧洲乱了营，炸了锅。美国，北约如临大敌，一会美国主导举行外交斡旋，一会NATO和俄罗斯举行谈判，一会欧盟和俄罗斯紧急召开会议。英国首相，德国总理，法国总统，忙的不亦乐乎，比中国人过年还热闹！
+Mike Pompeo (Former US Secretary of State)
+迈克·蓬佩奥（美国前国务卿）
 
-小动作有小的要求，大动作有大的目的。俄罗斯的普京弄这么大的动静，想要得到什么，以前我说过北溪2号是普京最想要的礼物。我始终以为德国前总理默克尔离任前会实现普京的梦想，顺利开通北溪2号天然气管道（这条管道是起始俄罗斯经波罗的海直通德国）。
+We talk a lot about Ukraine today in Russia
+我们今天在俄罗斯方面谈论了很多关于乌克兰的事情
 
-北溪2号为何千呼万唤也未始出来？究其原因也不得而知，也许因为，默克尔的政党在德国2021年换届选举中的败北，变成了在野党，让北溪2号成为德国的鸡肋（北溪2号的建设资金几乎全部来自德国）；亦或是2021年初川普离奇的丢掉总统宝座（这是看上去的偶然，确是事情发展的必然），使得俄罗斯丧失掉和美国政府的勾兑机会；更或是以波兰，波罗的海三国以及瑞典的坚决反对北溪2号的开通（其理由是威胁到各自国家的安全）。总之直到今天北溪2号却变成了各方手里的利刃，同时亦是盾牌。
+We shouldn’t forget that Xi Jinping is about to host the Olympics
+我们不应该忘记习近平即将举办奥运会
 
-那么，今天俄罗斯和西方国家的冲突来自哪里？究其原因是——俄罗斯要过上西方人体面，文明和现代的生活，这个想法即是前苏联解体时一个基本的诉求和愿望，也是苏联寿终正寝的一个主要因素。为何三十年后的今天，以俄罗斯为首的独联体国家还在以各种的方式和理由，拼死的实现这个三十年前的愿望，这也是几百年前彼得大帝时期俄国雄心壮志——引进，学习和融入西方（西欧国家）国家的经济，政治，金融和军事。可是由于自身天然的缺陷和外部条件的不成熟，终是功亏一篑。
+You mentioned North Korea’s now over half a dozen missiles have been fired
+你提到朝鲜从今年年初开始到现在已经
 
-而北溪2号或许是实现俄罗斯人拥有西方人生活的一个桥梁，一扇大门，他不但会流入俄罗斯滚滚的含金量高的欧元，同时会带给普京使其手中握有重要的筹码。一旦开通北溪2号，德国的能源会极度依赖俄罗斯，今天德国的天然气超过50%依靠俄罗斯。当北溪2号正式的开通，假以时日，德国从俄罗斯能源进口会达到惊人的数字。那时德国和俄罗斯将牢牢绑在一起，一荣俱荣一损俱损。同样，德国定会给予俄罗斯世界一流的机械工业技术，带给俄罗斯世界最前沿的文化，教育，医疗，金融还有高科技。这一切一旦变成事实，俄罗斯人就过上德国人的日子（西方人的生活）。
+since just the beginning of this year
+发射了超过六枚导弹
 
-十万大军的威逼乌克兰，最终的诉求也许是北溪2号。看俄罗斯提出的条件，一、坚决反对乌克兰，格鲁吉亚加入北约。乌克兰和格鲁吉亚是独立自主国家，有权利加入任何组织，和你俄罗斯有何关系吗？二、要求北约在俄罗斯的毗邻国家波罗的海三国，罗马尼亚和波兰国家撤出北约驻军。这个要求更是无稽之谈，北约国家在NATO的27个国家境内驻军是天经地义。哪有不允许自己国家的部队驻防自己国家的？如果可以，你俄罗斯的部队跑到俄乌边境去干嘛？前两天还飞到哈萨克斯坦维和。
+The world’s a dangerous place and when America is not prepared to be resolved
+世界是一个危险的地方，当美国不准备解决
 
-而美国，北约和欧盟在今天的乌克兰面临被攻击的情况下，要对俄罗斯祭出的制裁和采取的手段有哪些？提得最多的是要把俄罗斯踢出SWIFT。这似乎是对俄罗斯最严厉和最沉重的打击；要停止北溪2号运营的批准，同时也在讨论是否要彻底终止北溪2号；北溪2号竟成了俄罗斯打开未来大门得一把“钥匙“！
+and do the right things to protect its interests
+并做正确的事情来保护自己的利益的时候
 
-俄罗斯普京挥师西进威胁乌克兰，其最重要的因素就是北溪2号迟迟没能在欧盟内部通过，默克尔政党又意外下台，川普也突然的走人，使得北溪2号的开通成为咫尺天涯。另一面俄罗斯在当下国内经济非常糟糕，社会不稳定政权岌岌可危，普京只想保证和保护自己政治利益延续，如果能多得一些更好。所以这次的俄罗斯在乌克兰危机中提出的要求多之又多，甚至不惜对乌克兰开战，中度规模的战争都有可能。
+These are what this is what authoritarian regimes do
+这就是威权政权所做的行动
 
-同时我们看到，面对俄罗斯的咄咄逼人，美国，北约迅速在增加兵力部署，向东欧派出一定数量军事人员和运送大量战备物资。英国，丹麦，爱尔兰，荷兰又分别提供军事人员物资。波罗的海和波兰更是直接向乌克兰提供了美国生产的防空技术和单兵防坦克武器。德国却运送了一批安全头盔，一致招来乌克兰和国内一些反俄罗斯人的指责和嘲讽，因为，德国有一部分人是另有打算，他们也想开通北溪2号，
+I was in the meetings with Chairman Kim probably more than anybody else
+我与金主席的会面可能比其他任何人都多
 
-至此，北溪2号的地位凸显出来。北溪2号决定着未来俄罗斯能否过上西方人的美好生活？前进的路不知道有多遥远？彼得大帝亲自尝试过没有实现！俄罗斯建立的苏维埃政权，曾经管理过东德，捷克和匈牙利这样的准西方的国家，也没实现俄罗斯的理想。同样苏联的解体也没能让俄罗斯进入西方文明社会！
+I was there with the President
+我和总统在那里
 
-我想：西方国家不怕俄罗斯融入西方社会！他们怕西方国家变成俄罗斯！俄罗斯永远不会放弃进入西方社会的这个愿望和祈求！西方国家也会不停的等待和向俄罗斯招手，更会—— 不停的前进着！
+We convinced him not to conduct long range missile tests
+我们说服他不要进行远程导弹试验
 
-生活在中国大地和生活在共产党思想下的中国人们，俄罗斯现状是我们的未来镜子和将来的历史。假如，我们摆脱不了！抛弃不掉俄罗斯式（国际共产义）的行为准则，分不清共产党到底给我们种下什么样的蛊！还在崇拜相信着前苏联强大！还异想天开认为俄罗斯和美国能分庭抗礼。况且在中国永不会有北溪2号这样的筹码下，那么，等待我们的和西方文明国家的距离不是咫尺天涯，是无穷无尽的天涯路！
+and not to conduct any more nuclear tests
+并且不再进行任何核试验
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
+He’s not saying he’s going to do some more nuclear testing
+他没有说他会进行更多的核试验
+
+This this is what happens when you leave from behind
+这就是当你从后面离开时发生的事情
+
+and you’re not prepared to do things that matter
+并且你还没有准备好做重要的事情
+
+if you’re sitting in Kansas or New Hampshire or in South Carolina, Florida
+如果你坐在堪萨斯州、新罕布什尔州或佛罗里达州的南卡罗来纳州
+
+And you watch the United States walk away from these things
+你看着美国放任这些地缘政治问题发生
+
+It has a real impact we could if Ukraine goes wrong or North Korea goes wrong
+如果乌克兰出错或朝鲜出错，它会产生真正的影响
+
+we’ll have higher energy prices more instability, food will cost more
+我们将有更高的、更不稳定的能源价格，食品将花费更多
+
+these things you know what happens in Beijing or Pyongyang or in Kyiv
+这些事情，你知道在北京、平壤或基辅发生的事情
+
+doesn’t just stay in those places
+不仅仅停留在那些地方
+
+It matters a lot to get foreign policy and national security
+这些行动对美国外交政策和国家安全非常重要
+
+* * *
+
+Date:01/29/2022
+原视频标题: The world is a dangerous place. When America is not prepared to demonstrate resolve and protect its interests, authoritarian regimes see weakness
+世界是一个危险的地方, 当美国不准备表现出决心和保护其利益时，威权政权就会看到弱点
+原视频日期：2022/01/29
+原视频链接: [**https://twitter.com/mikepompeo/status/1487161785685843968?s=24**](https://twitter.com/mikepompeo/status/1487161785685843968?s=24)
+任务编号：KE376（3630）
+视频时间段 : 0:00-1:00
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

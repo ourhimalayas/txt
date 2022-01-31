@@ -2,52 +2,35 @@
 ---
 
 
-## 中共病毒武毒所起源论被福奇等人淡化
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935350/)
+## 澳洲卡车司机集结堪培拉，议员凯利呼吁支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935621/)
 
-作者：纽约磐石农场—在远方
+**翻译整理：小鱼儿
+编辑：Candy**
 
+澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-1月30日，郭文贵先生盖特转发了福克斯新闻的一个节目视频。该节目显示，有内部文件揭露出，中共病毒武汉实验室起源论，被诸如福奇等所谓的“科学家”故意淡化了。
-
-根据来自美国国立卫生院的内部信息，在中共病毒爆发初期，有人告知福奇，病毒可能来自中共武毒所，而福奇领导的传染病研究所，通过生态联盟间接资助了武毒所。还有专家表示，中共病毒经过了基因改造。
-
-之后，福奇与全世界十几位病毒学家召开了电话会议，记录显示对武毒所泄露病毒的怀疑被压制。他们认为公开披露中共国的参与，会损害科学和国际和谐。然后，研究人员撰写了初步研究结果，放弃了病毒可能是实验室泄漏的看法，并于2月份在网络，3月份在《自然医学》杂志发表，称中共病毒不是实验室制造，或者故意操纵的病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide8-11.jpg)
-但其他多方消息证明，武毒所就是中共病毒的来源地，中共对病毒真相的隐瞒，可能是有史以来最大的政府掩盖。在川普总统表示要对此开展调查的时候，国立卫生研究院主任柯林斯发邮件给蝠奇，商讨如何能制止病毒来自武毒所的说法。之后福奇在记者会上，公开支持海鲜市场来源论。他说病毒的变异，已经完全达到了从一种动物跳到人类的程度。
-
-而先前两位不同意自然说后来却改口的专家，以及生态健康联盟的皮特.达扎克，则分别获得了福奇900万美和750万美元的资助经费。
-
-参考信息：
-[内部文件揭示中共病毒武汉实验室起源论被诸如福奇等所谓的”科学家“淡化](https://www.gettr.com/post/prbedtf209)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/车队-1.png)图片来源：rebelnews
 
 
+澳洲当地时间1月30日，据反抗新闻（Rebelnews）报道，越来越多的卡车和汽车车队今天正在前往议会大厦的路上，以抗议疫苗强制接种。清晨，记者在维多利亚州和新南威尔士州边境的沃顿加附近的一个集合点现场，几十辆卡车和一个庞大的汽车车队从那里出发了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+一夜之间，电报群（Telegram）上的支持信息爆棚，数以千计的新成员加入，表达他们对卡车司机的支持，还有人发布了车队的照片和视频。
 
+同时，克雷格·凯利议员（联合党领袖）发推文表示支持：“让我们共同支持我们的澳大利亚卡车司机。我没有卡车，但我做了一个自由的拖车，用来拖动以示支持。如果有人想要标识的话，我周一早上7点会在雉鸡巢（Pheasants Nest）带着很多印有自由的标志。”
 
+更多的民众在觉醒，网友罗杰·萨雷塔（Roger Saretta）写到：“人们不会购买没有担保的汽车、自行车、甚至烤面包机，但却乐于接受一种没有担保的实验性药物，注射到自己体内，任何不良反应都是你自己的事。他们也很乐意给他们的孩子注射。（你）想明白了吗？”
+
+参考新闻：[Convoy to Canberra: Truckies on the road to freedom](https://www.rebelnews.com/convoy_to_canberra_truckies_on_the_road_to_freedom)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
