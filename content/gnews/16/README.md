@@ -2,10 +2,10 @@
 ---
 
 
-## 寅虎之年——大浪掀翻共匪贼船
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939401/)
+## 新春快樂，TAKE DOWN THE CCP
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939504/)
 
-设计者：纽约香草山设计部 — 六道
+设计者：纽约香草山设计部 — yan，FLj
 
 
 
@@ -18,7 +18,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/4-Take_down_the_CCP-.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Yan--scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-FLj-Take_Down_the_CCP-JPG-scaled.jpg)
 
 
 **编辑/发稿：小鹿**

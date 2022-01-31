@@ -2,46 +2,44 @@
 ---
 
 
-## 新中国联邦-新年快乐（二）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1939403/)
+## 有声|墙诗推荐 – 天涯孤旅&amp;孤愤
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1939522/)
 
-设计者：纽约香草山设计部 — 沙漠绿洲
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+配音：香草山佛教部 – 李傻
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)**天涯孤旅**
+浪迹天涯仗笔行，写尽人间各不同。
+冷暖心知莫叩问，心忧国运难成眠。
+愁云惨淡锁前程，被困笼中四月整。
+隔空长叹犹啼血，苦茶一杯饮残生。
+浊浪排空家万里，哀雁争鸣唤涛声。
+过江之鲫醉复乐，陶然忘机嗨翻天。
 
+**孤愤**
+贤人多贬逐，哀唱假大空。
+莫话庙堂事，构陷囹圄中。
+落日吞破旗，残月噬僵虫。
+悲风送豪客，断雁入霜弓。
+忧郁成孤愤，寂寥身后同。
+文字版原文：[墙诗推荐 – 天涯孤旅&孤愤](https://gnews.org/zh-hans/1933981/)
 
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-3-portrait-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-portrait-.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/01/3-1-1.jpeg)
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 

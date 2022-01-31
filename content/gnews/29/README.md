@@ -2,30 +2,20 @@
 ---
 
 
-## 樱花数据分析┃苏格兰：两针接种者更易出现感染、住院和死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1939113/)
+## 日本主要电力公司出现亏损 电价将继续上涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1939229/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/01/5-43.png)
-制图：东京樱花团/chuansang
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6-37.jpg)
+[图片来源](http://titibu.sakura.ne.jp/chichibujin/denkidaineagesinsei.html)
 
-1月26日，苏格兰政府发布了惊人的数据。在最近四周中，每十万人感染，住院（近三周），甚至死亡人数的结果，均为两针接种者超过未接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2595.png)
-制图：东京樱花团/chuansang
+日本10家主要电力公司，截至2022年3月的合并结算预测于31日发布，所有这些公司都下调了预测值。包括东京电力控股在内的六家公司预测将出现亏损，主要是由于火力发电中使用的煤炭和其他材料价格飙升导致燃料成本增加。燃料成本的增加将在数月后转嫁到电价上，这将给普通家庭和企业带来负担。
 
-对比未接种者，两针接种者的感染风险为1.91～2.62倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2596.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2597.png)
-制图：东京樱花团/chuansang
+东京电力公司预计将出现410亿日元的净亏损,这将是自2013年以来九年来首次出现亏损。中国(日本的地区名)电力公司预测净亏损为370亿日元，原因是火力发电的计划外关闭导致购电成本增加。
 
-住院风险为1.01～1.44倍，死亡风险为1.32～3.88倍。可以说，疫苗在这一轮疫情中，直接增加了30%的死亡。
+信息来源:
 
-在我们所了解的范围内，这是第一次从政府数据确认到“两针接种者住院及死亡风险的显著提升”。这无疑对全世界的疫苗推进国投下了一颗重磅炸弹。
-
-这给了疯狂的疫苗推进者们一记响亮的耳光。他们应该陷入惶恐，因为他们的起诉书上已经多了一条罪名：“杀人罪”。不是吗？
-
-数据来源：
-
-[https://publichealthscotland.scot/media/11318/22-01-26-covid19-winter\_publication\_report.pdf](https://publichealthscotland.scot/media/11318/22-01-26-covid19-winter_publication_report.pdf)
+[電力10社、純損益予想下げ　22年3月期、燃料費増加](https://news.yahoo.co.jp/articles/14c2044a6e68f41c65a26775417317d3467c0ab3)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
