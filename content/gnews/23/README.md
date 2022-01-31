@@ -2,33 +2,38 @@
 ---
 
 
-## 灭共的三扇大门（上）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1934771/)
+## 有声|英国传奇摇滚巨星接种三针疫苗后染疫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934997/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/灭共的三扇大门上_01.jpg)
-直播时间：2021.12.01
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月26日，据相关媒体消息显示，英国传奇摇滚天王艾尔-强顿当天凌晨通过社交媒体软件向外界透露了他感染中共病毒疫情的消息，同时，他原计划于美国德克萨斯州举行的演唱会也将因此确定延期。
 
-飞飞问：灭共的大门之前说有三扇大门，是不是100%都打开了？
+据悉，现年74岁的艾尔-强顿在欧美演艺圈有着举足轻重的地位，其更于去年荣获英国“名誉勋位”勋章，且他的传奇人生经常被好莱坞电影引用。
 
-七哥：没有，台湾只要没有动作就没有。在上海西郊宾馆那次，川普总统派人那次谈判。那是一次非常危险的谈判。
+值得注意的是，艾尔-强顿明确道，他已经接种过三针中共病毒疫苗，但而今仍然不幸感染中共病毒。
 
-从那一天开始起，基本上像上海公报一样，决定了共产党的命运。
+原文链接：[英国传奇摇滚巨星接种三针疫苗后染疫](https://gnews.org/zh-hans/1926542/)
 
-一定要记住，美国人是我们灭共的帮手，不要指望美国灭共。
+音频处理/发稿：Daxia
 
-但是那次美国回来以后，我们过去的十几年的所有对中共的宣告失败，必须有第2个计划开始这一点，不管是拜登还是川普，谁当总统，一点关系都没有，他都是短暂小性的政治利益操作。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-美国的核心利益，就是要灭掉共产党，一定要记住七哥的话。
+**更多资讯，更多关注**
 
-发布：*皮特*
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

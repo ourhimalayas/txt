@@ -2,37 +2,28 @@
 ---
 
 
-## 日本纪录片《疫苗副作用》即将上映
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1934100/)
+## 中共慷民脂民膏之慨 结参加冬奥洋人之欢心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1934582/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，制作方放出了纪录片《疫苗副作用》预告片。并将在1月底日本为5至11岁儿童接种前上映。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-30-下午1.13.47.png)
-这部纪录片拍摄于2021年12月25日，记录了在大阪举行的由医生、记者、政界人物参加的中共疫苗副作用研讨会。内容涉及到实际上出现副作用的病例，医生们对疫苗副作用的看法，以及愿意为此发声的政界人士的呼喊。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-308.png)[图片来源](https://t.cj.sina.com.cn/articles/view/7228207506/1aed5b192001018qw4)
+据网易体育1月30日报道，北京冬奥会主办方给每位运动员都准备了一份礼包，里面有价值7999元的手机、运动耳机、限定项链，不少外国运动员打开后都震惊了。
 
-预告片中，京都大学病毒研究所的宫泽孝幸教授表示，即使有中共疫苗，病毒也不可能完全被清除，相反那些被疫苗影响的细胞，会被免疫系统认为是病毒而进行总攻，通俗来讲就是接种后的人体在自爆。而记者鸟集彻则表示，所谓“为了身边人不被感染所以接种疫苗”，就相当于二战的时候“为了日本国让那些孩子上战场”一样，甚至在他的幻灯片中用红字写上了“为国捐躯”。
+该消息迅速引爆网络，后中共官方快速在全网删除了该新闻，并开始洗地。
 
-在片尾制作方更是打出了“接种第三针之前，请‘目击’这个记录”的标语，呼吁人们在盲目跟从政府政策施打第三针前，听听这些真实的声音。
+郭文贵先生近期多次爆料，为了这场作秀，特别是在当前遭受欧美普遍抵制的情况下，中共更是不计成本和代价，通过各种送钱的手段来收买各国政要出席运动会。
 
-参考链接：
-1）[https://www.gettr.com/post/pr7v6gcdfb](https://www.gettr.com/post/pr7v6gcdfb)
-2）[https://www.aoyama-masayuki.com/](https://www.aoyama-masayuki.com/)
-3）[https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9](https://president.jp/list/author/%E9%B3%A5%E9%9B%86%20%E5%BE%B9)
+北京冬奥会完全就是习近平彰显个人权力，以及中共向世界展示其统治能力的表演，而非中国和中国人民的冬奥会。中共向冬奥运动员送豪礼的做法，慷的是老百姓民脂民膏之慨，结的是洋人之欢心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+信息来源：
 
-总编：飞虹
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+[大气!冬奥村送豪礼外国运动员拆开礼包激动尖叫|项链\_网易体育](https://www.163.com/sports/article/GUVKI82K00059CHO.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

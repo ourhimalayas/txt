@@ -2,30 +2,36 @@
 ---
 
 
-## 澳洲卡车司机声援加拿大同行抗议新冠疫苗强制接种
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1934884/)
+## 有声|接种新冠疫苗死亡导致尸体充满栓塞
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935051/)
 
-By：喜国公民
-视频来自网络
-据阿维·耶米尼在维州乌东格的报道，大批来自全国各地的卡车正浩浩荡荡开往堪培拉，在国会大厦汇聚，反对疫苗的强制接种。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-14.png)
+1月26日，殡仪馆馆长理查德·赫希曼揭示了新近死亡人群的尸体中动脉和静脉中充满了非自然血凝块和奇怪的纤维材料。
 
-为了声援他们在加拿大的同行，澳洲卡车和汽车车队将在今天，在堪培拉大规模集会。
+这位殡仪馆馆长同时持有人体防腐资格证。他的殡仪馆接受的死亡大多数与心脏病和中风有关，这同时也是中共病毒疫苗引发的常见不良并发症。馆长说当他试图给这些接种过中共病毒疫苗死亡的尸体进行防腐处理时，发现有阻力，血凝块和奇怪的纤维材料被从尸体的大血管中拉出。并且在过去的一年里，在他的防腐案例中，有这些类型堵塞物的比例从50%上升到近80%。
 
-在加拿大，一个由卡车司机和他们的支持者组成的车队正在加拿大首都举行抗议活动。该活动从对疫苗强制接种的不满演变成要求废除所有公共卫生措施，甚至推翻联邦政府。
+原文链接：[接种新冠疫苗死亡导致尸体充满栓塞](https://gnews.org/zh-hans/1927785/)
 
-加拿大总理贾斯汀·特鲁多将该行动斥为 “不可接受 “，并不认为卡车司机队伍代表了大多数加拿大人的想法。
+音频处理/发稿：Daxia
 
-本月早些时候，加拿大开始要求任何从美国抵达的卡车司机必须全面接种冠状病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-抗议活动的发起者一直反对政府推行的新冠疫苗强制接种政策，他们的目的是要在加拿大建立一个全国管理委员会，致力于撤销新冠疫苗强制接种政策。
+**更多资讯，更多关注**
 
-政府认为这在很大程度上是无法接受的，完全脱离了政治现实。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-卡车司机的行动已经造成货物供应链的紧张，一些杂货店货架上已经货物空空。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-加拿大每年从美国进口价值210亿加元的食品，加拿大的食品系统实际上是依靠卡车的支撑，因此，卡车在运输这些食品方面发挥着关键作用。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-消息来源：[Canada truckers’ vaccine protest spirals into calls to repeal all public health rules](https://www.theguardian.com/world/2022/jan/28/canada-truckers-covid-vaccine-mandate-protest-government)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

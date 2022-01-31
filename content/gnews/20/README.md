@@ -2,23 +2,38 @@
 ---
 
 
-## 神秘袖扣揭秘
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1934804/)
+## 有声|WTO批准中共向美国征收奥巴马时期的补偿性关税
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935013/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/神秘袖扣解密-_01.jpg)
-直播时间：2021.12.01
+配音：香草山巡管部– 文凯琳
 
-这个神秘袖扣内部含有摄像头，超稳定，实时传送图像，被他们广泛的用在了澳门赌场，澳门赌场的马仔还有发牌的人都要带袖扣，这个袖扣是录像获取证据手段之一，最重要的事情戴这个袖扣的人站在VIP客户后面的时候，可以看牌并传送到后台，所以，赌场是完全控制赌局。
+近日，世界贸易组织WTO通过了一项决议，允许中共向美国征收6.45亿美元的补偿性关税，此举立即遭到了华盛顿的抨击。
 
-发布：*皮特*
+据悉，奥巴马时期与中共签署了22项产品协议，而此项补偿性关税的焦点集中在，美国是否可以将中共政府拥有多数股权的中国公司视为由中共国家控制。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美国认为，中国在补贴制成品并将其倾销到世界市场的同时，受益于世贸组织的更宽松待遇规则。世贸组织的规则曾用于“屏蔽中国的非市场经济实践，破坏公平和以市场导向为主的竞争”，目前这项规则亟待改善。
+
+原文链接：[WTO批准中共向美国征收奥巴马时期的补偿性关税](https://gnews.org/zh-hans/1926910/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
