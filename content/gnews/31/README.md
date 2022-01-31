@@ -2,24 +2,31 @@
 ---
 
 
-## 朝鲜向东海发射了中程弹道导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1937425/)
+## 德国卫生部将疫苗暴政甩锅软件错误
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1938284/)
 
-翻译：  Evalu
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月28日，据相关媒体报道，在恐吓了当地未接种中共病毒疫苗的民众数月之后，德国卫生部长突然改变口风称，政府此前关于未接种疫苗的群体会引发中共病毒大传染的言论是错误的。同时，该卫生部长还将这一错误言论归因于“软件问题”。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/5-41.jpg)
+数据显示，德国先前的中共病毒感染病例数据呈现出令人难以置信的高增长态势。然而，汉堡市市长却在新闻发布会上声称，该市90%的感染患者出现在未接种疫苗的人群中，并以此强制当地民众接种中共病毒疫苗。
 
-校对：
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-122.jpg)
-图片来源： www.yazhouribao.com
+值得注意的是，据消息人士透露，这些数据已经被发现全部是伪造的，而德国政府则基于这些伪造数据对未接种疫苗人群实施了暴政，包括不让他们进入公共场所，甚至避免所有的社会接触等。 目前，大量的研究证据表明，那些接种过中共病毒疫苗的群体其实具有更高的感染中共病毒的风险。对此，为了挽回面子，德国政府企图将决策错误全部归咎于软件数据出错。
 
-美国合众社新闻1月30日报道，韩国军方说朝鲜周日向东海发射了中程弹道导弹，这让人感到对金正恩担心，生怕他违背原来答应的不进行核武器和长程导弹的试验。
-韩国军方联合主席说检测到朝鲜以很陡的角度从朝鲜北部的慈江道武坪里发射导弹，飞行497英里，每小时达1243英里。
-导弹最高速度达16倍音速，类似于2017年发射的火星弹道导弹。本次是到目前为止的自2017年11月发射的洲际弹道导弹以类的最大的一次武器试验。人们在担心金正恩自1月20日警告说要不再遵守2018年4月宣布的暂停战略性武器试验的承诺，将进行更多的挑衅行为。
-本月朝鲜已进行了四次发射，包括其声称的高超音速导弹。近来的几项行动在朝鲜的说法是寻求内部的紧密团结，以抗击新冠疫情和因制裁所致的经济上的困境。
+参考链接：[German Health Minister says Tyrannical Covid-19 Restrictions for Unvaccinated were based on “Software Error”](https://dailyexpose.uk/2022/01/28/german-health-minister-says-tyrannical-covid-19-restrictions-for-unvaccinated-were-based-on-software-error/)
 
-##### 新闻来源：[N. Korea fires ballistic missile 1,243 miles toward East Sea](https://www.upi.com/Top_News/World-News/2022/01/30/N-Korea-fires-ballistic-missile-1243-miles-toward-East-Sea/3111643550644/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screen-Shot-2022-01-01-at-10.17.55-PM.png)
 
-#  
+总编/编辑：飞虹
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

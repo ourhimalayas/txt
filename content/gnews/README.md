@@ -15,103 +15,103 @@
 
 ---
 
-### [七哥谈GTV的控股公司（2022-01-27摘录）](/content/gnews/1/README.md)
+### [七哥谈所谓的缘份、情起、缘分（2022-01-27摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [七哥说“一定记住GTV是你们的王牌中的王牌！”（2022-01-27摘录）](/content/gnews/2/README.md)
+### [七哥谈精神上的虹化（2022-01-27摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [1/30/2022 文贵直播：中共打台湾对中国人是灭顶之灾！美欧日将参战，起码50万中国人会成炮灰](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
+### [七哥谈人性（2022-01-27摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
 
-### [从“零感染”政策到中美冲突 有理由相信冬奥会后北京将“崩溃”](/content/gnews/4/README.md)
+### [英国国会议员计划对台湾进行国事访问以对抗中共](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [全世界保护数字资产，喜交所方案独树一帜！](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥说“你只要真正得天助的时候，你就有超人的力量，你有超人的力量，你就有超人的需要”（2022-01-27摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [2021最后的悲凉](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥说“G系列将给你一切的自由、所有的尊严”（2022-01-27摘录）](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [七哥谈区块链的数字货币（2022-01-27摘录）](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [樱花数据分析┃苏格兰：两针接种者更易出现感染、住院和死亡](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/30/2022 文贵直播：爆料革命和新中国联邦第一个向全世界揭露了中共病毒和疫苗的真相，推动了全世界有良知的人站出来反对疫苗强制令](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [世界对北京“一起向未来”的“种族灭绝运动会”说不](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥谈“局限的认知限制了我们的思维”（2022-01-27摘录）](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [2022年1月29日香草山农场年会直播全文字版](/content/gnews/11/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [今日盖特大V推荐 — Mike pompeo（迈克·蓬佩奥）](/content/gnews/12/README.md)
+### [今日盖特大V推荐&#8212; Peter Navarro （彼得·纳瓦罗）](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥说要推出HPay（2022-01-27摘录）](/content/gnews/13/README.md)
+### [七哥谈修行（2022-01-27摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈喜币的两大缺陷（2022-01-27摘录）](/content/gnews/14/README.md)
+### [七哥谈GTV的控股公司（2022-01-27摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [七哥说“如果金钱能让帮助你干好事，它就是最伟大的东西”（2022-01-27摘录）](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [七哥谈人类上绝没有一个国家像共产党虐待人民（2022-01-27摘录）](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [漫雪除夕夜，絮语诉心声](/content/gnews/17/README.md)
- ` 澳喜特战旅Gnews`
-
-### [没有加强针的欧盟疫苗接种证书今后将只有九个月的有效期](/content/gnews/18/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [七哥说中国人真的是天下最可怜的（2022-01-27摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [GTV新闻访谈简报|2022年1月31日早](/content/gnews/20/README.md)
- ` 纽约香草山MOS01`
-
-### [危机与希望](/content/gnews/21/README.md)
- ` MilesGuoLivePPT`
-
-### [《新中国联邦宣言》的现实意义和历史地位](/content/gnews/22/README.md)
- ` MilesGuoLivePPT`
-
-### [文贵爆料 1.31：塞北的雪 灭共的雪](/content/gnews/23/README.md)
- ` 秘密翻译组-原创组`
-
-### [日本兴和制药公司证实伊维菌素有效](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [驻华外国记者协会称中共当局严重阻碍媒体自由](/content/gnews/25/README.md)
+### [日本主要电力公司出现亏损 电价将继续上涨](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟27国2月1日起全面解除疫情封锁政策](/content/gnews/26/README.md)
- ` GTV新闻访谈`
+### [七哥说“一定记住GTV是你们的王牌中的王牌！”（2022-01-27摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
 
-### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/27/README.md)
+### [1/30/2022 文贵直播：中共打台湾对中国人是灭顶之灾！美欧日将参战，起码50万中国人会成炮灰](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [从“零感染”政策到中美冲突 有理由相信冬奥会后北京将“崩溃”](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥说“G系列将给你一切的自由、所有的尊严”（2022-01-27摘录）](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [七哥谈区块链的数字货币（2022-01-27摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [樱花数据分析┃苏格兰：两针接种者更易出现感染、住院和死亡](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1/30/2022 文贵直播：爆料革命和新中国联邦第一个向全世界揭露了中共病毒和疫苗的真相，推动了全世界有良知的人站出来反对疫苗强制令](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [世界对北京“一起向未来”的“种族灭绝运动会”说不](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥谈“局限的认知限制了我们的思维”（2022-01-27摘录）](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [2022年1月29日香草山农场年会直播全文字版](/content/gnews/21/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [今日盖特大V推荐 — Mike pompeo（迈克·蓬佩奥）](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [没有加强针的欧盟疫苗接种证书今后将只有九个月的有效期](/content/gnews/23/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [GTV新闻访谈简报|2022年1月31日早](/content/gnews/24/README.md)
+ ` 纽约香草山MOS01`
+
+### [危机与希望](/content/gnews/25/README.md)
+ ` MilesGuoLivePPT`
+
+### [文贵爆料 1.31：塞北的雪 灭共的雪](/content/gnews/26/README.md)
+ ` 秘密翻译组-原创组`
+
+### [日本兴和制药公司证实伊维菌素有效](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [德国卫生部将疫苗暴政甩锅软件错误](/content/gnews/28/README.md)
+### [驻华外国记者协会称中共当局严重阻碍媒体自由](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [欧盟27国2月1日起全面解除疫情封锁政策](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [01/31/22 香港快讯 7.28上环冲突 15人暴动罪成押后至2月9日判刑](/content/gnews/29/README.md)
+### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/30/README.md)
+ ` 日本东京方舟农场`
+
+### [德国卫生部将疫苗暴政甩锅软件错误](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [01/31/22 香港快讯 7.28上环冲突 15人暴动罪成押后至2月9日判刑](/content/gnews/32/README.md)
  ` 英喜-粵語組`
 
-### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/30/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [朝鲜向东海发射了中程弹道导弹](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [DC大中华时事：中国驻大阪总领事薛剑接受日媒采访](/content/gnews/33/README.md)
+### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [1/31/2022国际财经快讯：德国财政部长支持提前结束征收绿色能源费用；亚洲股市试探性上涨](/content/gnews/34/README.md)
