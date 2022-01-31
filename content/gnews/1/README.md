@@ -2,8 +2,8 @@
 ---
 
 
-## 杨贝贝事件是一盘大棋Q组织
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1939908/)
+## 法律与行政命令
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1939962/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
