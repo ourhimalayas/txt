@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党福利造假中纪委战友
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1936930/)
+## 病毒疫苗必将溯源共产党必死
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1937009/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

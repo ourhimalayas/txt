@@ -2,8 +2,8 @@
 ---
 
 
-## 中共是最大的政治迫害国 茅台酒厂销售总经理自杀
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1936906/)
+## 冬奥会很多国家不来
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1936982/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

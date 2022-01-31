@@ -2,33 +2,27 @@
 ---
 
 
-## 印度尼西亚新增确诊逾万例 Omicron亚变种BA.2现踪
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1936777/)
+## 小米股价暴跌，市值蒸发4千多亿
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1936864/)
 
-作者：台湾宝岛农场 – dobi
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/1643493567_61328.jpg)
-据台媒报导，印度尼西亚卫生部发言人席蒂（Siti Nadia Tarmizi）指出，印度尼西亚因制定限制群聚活动的规定以及远距医疗服务等措施，相较于菲律宾、新加坡、马来西亚、泰国、印度等国家，这波疫情控制得最好。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6c12ddb68e9a7f360d0b6286e4c66a9d2.jpg)网络图片
+据网易新闻1月30日报道，小米股价近日连续暴跌，与最高值相比下跌54%。目前，小米总市值为4120亿港元，蒸发了4850亿港元。创始人雷军28日辞去小米公司董事长职务，据说为了专注小米造车。
 
-然而，印度尼西亚卫生部长布迪（Budi Gunadi Sadikin）昨日（28）也指出，印度尼西亚目前已出现受到Omicron的亚变种BA.2感染的少数个案了。
+小米手机曾经信誓旦旦地要与苹果手机竞争，2021年小米手机的全球市场销量也一度超过苹果手机，但是作为市值4千亿的小米手机与市值3万亿的苹果手机相比，差距不是一次销量就能够证明。中共国的企业没有技术支撑，完全靠假骗偷得来的技术缺乏持续更新和发展。一飞冲天之后，后续力量不足，还是要跌落地面，一蹶不振。
 
-报导中也指出COVID-19变异株Omicron亚变种BA.2因无法以检测不到S基因靶标（SGTF）的核酸筛检方式验出，因此也被称为隐形的Omicron，且目前尚无研究显示BA.2的传染力更强。
+新闻参考链接：[https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp](https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp)
 
-新闻链接：[https://tw.news.yahoo.com/%E5%8D%B0%E5%B0%BC%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA%E9%80%BE%E8%90%AC%E4%BE%8B-omicron%E4%BA%9E%E8%AE%8A%E7%A8%AEba-2%E7%8F%BE%E8%B9%A4-122902704.html%E3%80%8B](https://tw.news.yahoo.com/%E5%8D%B0%E5%B0%BC%E6%96%B0%E5%A2%9E%E7%A2%BA%E8%A8%BA%E9%80%BE%E8%90%AC%E4%BE%8B-omicron%E4%BA%9E%E8%AE%8A%E7%A8%AEba-2%E7%8F%BE%E8%B9%A4-122902704.html%E3%80%8B)
+* * *
 
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
