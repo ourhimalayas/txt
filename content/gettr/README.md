@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 1/31/2022 10:37 PM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: My singing reinterprets the song "Tian Mi Mi (Sweet as Honey)" that has accompanied several generations of the Chinese people to grow up. The New Federal State of China is going to use the color red, which has been hijacked by the CCP for decades, and the key to starting the “Tian Mi Mi Movement” to kick off our 2022 Year of the Tiger to take down the CCP!<br/><br/>1/31/2022 文贵虎年新春大直播：文贵的演唱重新诠释了这首伴随几代中国人成长的《甜蜜蜜》，新中国联邦要用被共匪霸占了几十年的红色和甜蜜蜜运动的这把钥匙，开启我们的2022虎年灭共年！<br/>
+![img](https://media.gettr.com/group14/getter/2022/01/31/22/29664343-f690-54fe-5a8a-db777f9f268c/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gfashion 1/31/2022 5:03 PM (UTC)`
@@ -149,13 +156,6 @@ EP7: The Master of Mind Control. Let's tear down the monstrous lies of this desp
 
 <br/>1月28号：尊敬的战友们好？你们健身了吗？传播C C P病毒，疫苗解药的真相了吗？共产党在美国授权撤离的外交后……还在尝试磕头，下跪．求美国！帮他们欺骗十几亿中国人……悲剧呀……中国人可怜至极！
 ![img](https://media.gettr.com/group42/getter/2022/01/28/14/f1af29f1-7041-ff9e-e437-617037b95569/out.jpg)
-
----
-
-`@miles 1/28/2022 10:36 AM (UTC)`
-
-Mr. Steve K. Bannon: The immediate withdrawal of all diplomatic personnel in Beijing that will be authorized by the U.S. government is a huge and monumental step for the New Federal State of China #NFSC. It's something obviously the NFSC as an alternative governing entity apparatus mechanism for the Chinese people. <br/><br/>The Thank You letter from the NFSC to President Joe Biden and Secretary of State Anthony Blinken very specifically calls out the Chinese Communist Party as being illegitimate, not representing the Chinese people and being a transnational criminal organization.<br/><br/>班农先生：经美国政府授权立即撤出美国驻北京大使馆所有外交人员是新中国联邦迈出的巨大且具有里程碑意义的一步。显然，新中国联邦是管理中国人民的另一个选择。新中国联邦致拜登总统和布林肯国务卿的感谢信特别指出中国共产党是非法的政权，不代表中国人民，是一个跨国犯罪组织。
-![img](https://media.gettr.com/group9/origin/2022/01/28/10/3af609f4-d827-c3b4-75bc-b5a92ed7ef6a/out.jpg)
 
 ---
 
