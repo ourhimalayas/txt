@@ -2,28 +2,31 @@
 ---
 
 
-## 英国首相将于2月访问日本 协商共同对抗中共事宜
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1938305/)
+## 七哥说“到处响起《甜蜜蜜》的时候，共产党你就玩球蛋了”（2022-01-27摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1938392/)
 
-**撰稿：日本东京方舟农场  老孙**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据多家媒体报导，英国首相鲍里斯·约翰逊（Boris Johnson）将在2月中旬访问日本，与日本首相岸田文雄举行领导级会谈。共同关注来自中共国政府的威胁，并在安全保障方面强化合作。
+来源：郭先生2022-01-27直播09：28：06摘录
 
-目前双方相关人员就访日相关事宜，已经进入最终协调阶段，两国领导人将于2月15日及16日进行为期两天的会谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-49.png)（图片取自路透社）
-会谈期间，两国元首将就强化两国关系和在印太地区的合作进行商议，密切关注来自中共国方面的威胁，并在安全保障方面强化合作。预计二人还将为推动日英早日缔结《互惠准入协定》(Reciprocal Access Agreement, RAA)而加速谈判。**   **
+其中某个金融机构，世界货币组织的这位女士说的一句话，说：“我们要在他打台湾之前，我们要用尽一切金融里面的能力让他知道国际货币基金组织一定会用尽一切力量惩罚你。” 哇～这个太重要了！这位女士德高望重啊，这个女士是法国的我这个长期的朋友，虽然她是个同性恋，是女性同性恋，但是跟我很好的朋友。我说：“你能说这话让我真的感动，真的让我身体激动了好几秒钟啊。如果本人能让你高兴，愿以身相许， 把她给笑坏了，她说：“你放心，Miles，我会奋斗下去。” 本人愿以身相许。这就是，你知道兄弟姐妹们这种事情是天大的事，共产党一没钱了，没美国人撑腰了，没有绑架的那些国家在那个二环里边了，到处响起《甜蜜蜜》的时候，共产党你就玩球蛋了，天意！
 
-《互惠准入协定》的意义在于简化因日本自卫队与英国军队实施共同训练等相关活动时，在对方国家停留时期的携带武器入境手续等，日本和英国去年10月已启动谈判。日本已在本月与澳大利亚签署《互惠准入协定》，英国将是第二个签约国。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-本月早些时候，日本首相岸田文雄已与美国和法国领导人进行了对话，并达成共识，将共同对抗来自中共政府的威胁。
+**关注我们**
 
-**参考链接**：
-1:[https://www.cna.com.tw/news/aopl/202201290052.aspx](https://www.cna.com.tw/news/aopl/202201290052.aspx)
-2:[https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220129-%E6%97%A5%E8%8B%B1%E5%B0%B1%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E7%BA%A6%E7%BF%B0%E9%80%8A2%E6%9C%88%E8%AE%BF%E6%97%A5%E5%B1%95%E5%BC%80%E5%8D%8F%E8%B0%83](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220129-%E6%97%A5%E8%8B%B1%E5%B0%B1%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E7%BA%A6%E7%BF%B0%E9%80%8A2%E6%9C%88%E8%AE%BF%E6%97%A5%E5%B1%95%E5%BC%80%E5%8D%8F%E8%B0%83)
+Discord 账号
 
-**撰稿：**老孙**
-编辑：**文顺**
-发布：**文曦
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,25 +2,23 @@
 ---
 
 
-## 日本兴和制药公司证实伊维菌素有效
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1938343/)
+## 没有加强针的欧盟疫苗接种证书今后将只有九个月的有效期
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1938515/)
 
-**撰稿：日本东京方舟农场  海星**
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-16.tiff)图片：Manuel Zimmermann / BRF
+从周二开始，对许多人来说，在欧盟没有接种疫苗加强针去旅行将变得更加困难。这是因为没有疫苗加强针的欧盟疫苗接种证书将从2月1日起只有9个月的有效期。
 
-1月31日，日本知名制药公司兴和宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗中共病毒（新冠）的功效。
+在此之后，没有接种疫苗加强针的人在过境时将被视作未接种疫苗。
 
-据《路透社》报导，日本兴和制药公司当天对外表示，针对伊维菌素治疗中共病毒（新冠）的功效，该公司与北里大学合作研究的一份试验报告显示，伊维菌素在进行中共病毒（新冠）感染治疗的第三期临床试验中，不仅对奥密克戎（Omicron）病毒有效，对现有的变异病毒（如Delta）同样有效。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图片-1-50.png)（图片来源：路透社）
-此前，日本东京都便已配合数家制药公司开展伊维菌素治疗中共病毒（新冠）的临床试验。有分析人士表示，临床试验的开展意味着伊维菌素很快就能在日本获得批准，推向市场，有利于控制疫情。
+这就意味着人们在欧盟跨境旅行时，需要有效的阴性（新冠病毒）测试，甚至必须进行隔离。
 
-参考链接：
-1.[https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)
-2.[https://gnews.org/zh-hans/1699941/](https://gnews.org/zh-hans/1699941/)
+欧盟司法专员迪迪埃·雷恩德斯(Didier Reynders)说，这反映了对疫苗的保护作用正在下降。（dpa/okr）
 
-撰稿：海星
-编辑：文顺
-发布：文曦
+原文链接：[https://brf.be/international/1570622/](https://brf.be/international/1570622/)
 
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

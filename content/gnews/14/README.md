@@ -2,52 +2,34 @@
 ---
 
 
-## 【Michael.Tonny专栏】泰国一剂科兴疫苗挥发就导致15人眼表糜烂
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1938344/)
+## 漫雪除夕夜，絮语诉心声
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1938520/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+撰稿：何处是我家
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/013001-1.jpg)网络图片
 
-在笔者过去的文章中，有接近几十篇讨论注射中共病毒疫苗既不能减少感染，也不能减少死亡，注射这种毒疫苗会带来严重副作用等话题。然而，仅仅暴露于COVID-19疫苗挥发的环境中，都会遇到严重的问题，过去从未涉及。
+春节的喜悦，随着时间悄无声息地涌进每一个田野农庄，跟着雪花飘落在山川河流。这似玉女温柔的葱指也触碰了我略显枯老的心里。伴随着春节的温暖，我的脸有了温度，赶紧照了下镜子，脸颊竟然泛起了微红。又扭身望向窗外，见飞舞了一天的雪花依旧妩媚。不知这喜悦、温暖、妩媚能否光临我的亲人和家乡。因为那个地方的阳光总是有气无力，山川失去秀丽，河流不再清澈，人们忘记真诚，万物没有光泽。这一切到底是为了什么？
 
-然而，泰国曼谷Rajavithi医院在2020年4月就发生了这种匪夷所思的事件！
+看了一眼时针，粗略计算时差。这时家里已是除夕夜时刻。不知村里好动的那个男孩是否点燃二踢脚和窜天猴，抑或爬的高度比肩金三胖的火箭。村里的男孩只是用声音和烟花，来问候隔壁害羞的女孩和班里漂亮的女生。害羞的女孩和班里的女生也在等着烟火的绚丽，照亮梦里路径去和男孩子相见。而中国隔壁的金三放的劣质和他人遗赠的火箭，不能吓唬远在万里之遥的美国人。火箭的声音明明打扰了除夕夜的美好。
 
-2020年4月，Rajavithi医院在接种来自于中共国北京科兴控股生物技术有限公司的CoronaVac疫苗时，一名护士不小心摔碎了一小瓶0.5毫升的疫苗，结果导致15名工作人员出现眼表糜烂（ocular surface erosion）。北京科兴控股生物技术有限公司宣称，科兴疫苗是由β-丙内酯灭活SARS-CoV-2病毒颗粒（beta-propiolactone inactivated SARS-CoV-2 virus particles）溶于氢氧化铝溶液制成的疫苗。
+可怜的人们竟纷纷竖起拇指，赞誉金三胖的英武，殊不知这所谓的火箭是你们的党老爷放到金三胖手里，让金三胖的火箭技术看上去飞速发展，来缓解美国给予的压力，让人们不再议论美国外交行动“授权撤离”，同时更重要的是奥运会要如期的举行。这才有短时间朝鲜半岛的金三胖的七连射。也许金三燃放一枚火箭会进账一笔巨款。不然，已经缺钱缺得国库比金三胖的脸都干净的北朝鲜，舍得把如此昂贵，如此高端的火箭射向天空，好像老天和他有仇似的。要是真痛恨美利坚你直接导向夏威夷多好！还有假如你是实验武器，干嘛一连气实验七枚火箭。到最后只是吓唬好的一塌糊涂的日本人，和迷惑已经晕头转向七十多年的中国人。只要稍微一思考，金三胖才不会傻不拉几地浪费金贵的火箭。一，他没有能力生产；二，他没有充盈的国库。在这件事上，金三是既收取中共国的燃放手续费，也要征收美利坚和日本的担惊害怕税。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1642660399.png)
+雪飘着下，下着飘。外面只能听到轻微汽车行驶的声音，不知欧洲人为什么鲜有的按汽车喇叭。假设这种情况在中国，肯定会有高智商的专家，建议汽车的制造商不要安装汽车喇叭，反正不用，这在十四亿人的巨大汽车消费市场，得是多么大的一笔创收啊！这件事不能让外国汽车生产商知道，真的中国专家来到欧洲，那些已经移民西方国家的人就会后悔还不如不出来。那些没有能力出来的人们特想中国的专家早日溜进欧美，指点美国欧洲的江山，偷偷告诉他们“渔网能防核潜艇”。
 
-本文摘自2020年10月6日，泰国曼谷Rangsit大学医学院Rajavithi医院眼科（Department of Ophthalmology）Somporn Chantra、Pareena Chaitanuwong、Seresirikachorm K、Paisan Ruamviboonsuk，皮肤科（Department of Dermatology）Brinks M、Chamberlain W和美国俄勒冈州波特兰市俄勒冈健康与科学大学（Oregon Health & Science University）凯西眼科研究所（Casey Eye Institute）Brinks M等人发表的论文[Ocular Surface Erosion after Suspected Exposure to Evaporated COVID-19 Vaccine](https://www.karger.com/Article/FullText/520500)。
+为了继续苟活，寄生在中国的共产党高价聘请另一个帮凶，在乌克兰耀武扬威，舞刀弄剑。更有很多人跟着起哄，好像俄罗斯真地有能力长驱直入似的，好像乌克兰不堪一击一样。在2014年克里米亚事件中之所以轻松得手，不是俄罗斯有多强大，是克里米亚有内应。那里长期居住生活着大量得俄罗斯人。生活在俄罗斯的人比生活在中国的人只是清醒一点，对世界的认知高度比中国人高几公分而已。不要忘了他们也是被长久洗脑的人群，所以大部分人是拥护普京的。乌克兰的东部地区同样是俄罗斯的居住区，亦是普京的拥趸者。
 
-疫苗接种区是一个封闭的空间，其中一部分被分为6个大小相等的小房间，前后走廊相互连接，1-4号房间用于接种疫苗，5-6号房间用于登记。所有房间都有一个正常运行的空调系统，没有额外的通风装置或空气过滤装置。
+我不知道俄罗斯的武器有多么的尖端，有多么强大。我只知道俄罗斯在近四十年里，没有世界知名的电视机、洗衣机、冰箱、手机、照相机、摄像机、电脑、汽车、传真机、高速列车，有很多的人会说，俄罗斯的军工企业在世界比肩欧、美、日。我从未相信军工企业产品不包含电子，通讯，材料技术。既然俄罗斯军工产品那么牛，为何曾经购买2艘法国的“西北风”两栖突击舰。最后因为克里米亚事件，“西北风”驶进埃及的军港。又为什么前几年叙利亚危机中，航行在大西洋的俄罗斯航母冒着浓浓的黑烟，活像是燃烧着煤炭的蒸汽机。这事一定告诉瑞典那位漂亮的气候女孩，下次在气候大会上提出严厉的抗议。
 
-被分隔的区域长11.04米，深5.96米，高2.6米。分隔后的6个小房间高2.5米，宽 1.84米。前后走廊分别为11.04米×1.67米和11.04米×1.79米，后走廊有一个11.04米×0.6 m的洗涤区。每面墙的顶部有一个 0.6 m的露天空间。红色飞溅表示疫苗意外掉落的位置。
+我从来不怀疑欧盟在军事上会输与俄罗斯，况且还有北约，俄罗斯的军事世界排名不在前十名，至于中共国能进入前三十名都是花钱运作的。俄罗斯强大的是数不尽的被洗脑的善良的人们，中共国牛逼的是无边无际，漫山遍野的无知的可怜人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/520500-3.jpg)The purpose is to report ocular surface erosion of health personnel who were exposed to evaporated CoronaVac during a vaccination campaign. A campaign for CoronaVac vaccination was conducted in a closed space of 11.04 × 5.96 m, partially divided into 6 rooms with interconnected area among the rooms. A total of 20 health personnel worked in the vaccination rooms. On the third day of campaign, a vial, containing a single dose of 0.5 mL, of the vaccine was dropped accidentally onto the floor and broken by an administering nurse. A total of 15 personnel had symptoms and signs of ocular surface erosion at the average time from the accident to the onset of 10.2 ± 7.1 h; 4 personnel also had skin rash. These personnel included all 13 persons who already worked in the rooms when the accident occurred and continued for additional 4–6 h and 2 personnel who presented in the rooms 1–2 h after the accident and stayed for 2–3 h. Proximity and timing suggest CoronaVac correlation with the ocular and skin reactions. Cautions should be taken to avoid broken vials, spills, and aerosolization of CoronaVac during the vaccination.
+俄罗斯刷刀亮剑也好，中共国的南海筑岛也罢，归根到底是想要好处，要活着。是要欧洲，美国和日本的技术和资金支持和默许，来继续维持现状以奴役自己的老百姓而已!
 
-前两天一切正常，第三天，共有20名工作人员正在工作，护士准备和接种疫苗，其他人是助理，除口罩外，都没有使用其它任何防护设备。4号房间的一名护士不小心摔碎了一小瓶0.5毫升的疫苗，导致其溢出到3号和4号房间之间靠近墙壁的地板上。她立即用一张纸巾擦拭干净并将纸巾丢弃在4号房间的垃圾箱中，并在那里放置了一整天。
+试想，俄罗斯能拥有一个“爱立信”或“诺基亚”就可以进入世界富裕强大的国家，可惜俄罗斯没有。为何，如俄罗斯、中共国、北朝鲜、伊朗这样的国家不会诞生伟大的企业。这是个好课题，交给耶鲁和牛津去讨论吧！
 
-共有15名工作人员出现眼部症状，这15名工作人员包括事故发生时正在房间内工作，之后又继续工作4~6小时的13人和事故发生后才开始工作了3小时的2人。事故发生后在房间内只工作了半小时的其他5人员没有任何症状。
+反正他们从没让我好好地过一个除夕夜，我只能在这美好的夜里胡思乱想，多亏另一台电脑里郭先生的歌声不时飘进我的脑海。外面雪不知何时飞进街灯里，密密麻麻异常的拥挤不堪。我什么也不管啦，我要到郭先生那里去了！再见！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/TUBIAO-X.jpg)
 
-从事故到出现症状的平均时间为10.2±7.1小时。症状是眼睛刺激（eye irritation，60%）、眼睛发红（red eyes，50%）、流泪（tearing，45%）、眼睑肿胀（swollen eyelids ，30%）和皮疹（skin rash，20%）。
-
-15名出现眼部症状的人员均出现一定程度的无乳突或滤泡（papillae or follicles）结膜炎（conjunctivitis），根据牛津分级系统（Oxford Grading System），眼睑间区域（interpalpebral area）荧光素染色呈阳性（positive fluorescein staining），为点状上皮糜烂（punctate epithelial erosion），严重程度为1至3级。未受影响人员的眼科检查无异常。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Clinical-evidence-of-the-adverse-events.jpg)The purpose is to report ocular surface erosion of health personnel who were exposed to evaporated CoronaVac during a vaccination campaign. A campaign for CoronaVac vaccination was conducted in a closed space of 11.04 × 5.96 m, partially divided into 6 rooms with interconnected area among the rooms. A total of 20 health personnel worked in the vaccination rooms. On the third day of campaign, a vial, containing a single dose of 0.5 mL, of the vaccine was dropped accidentally onto the floor and broken by an administering nurse. A total of 15 personnel had symptoms and signs of ocular surface erosion at the average time from the accident to the onset of 10.2 ± 7.1 h; 4 personnel also had skin rash. These personnel included all 13 persons who already worked in the rooms when the accident occurred and continued for additional 4–6 h and 2 personnel who presented in the rooms 1–2 h after the accident and stayed for 2–3 h. Proximity and timing suggest CoronaVac correlation with the ocular and skin reactions. Cautions should be taken to avoid broken vials, spills, and aerosolization of CoronaVac during the vaccination.
-
-在4号房间不小心摔碎疫苗的护士和在3号房间戴隐形眼镜工作的助理出现了最严重、最长的临床表现，在接受了3天的局部氟米龙QID（topical fluorometholone QID）后，持续了2周。其余受影响的人员使用了局部抗组胺药（topical antihistamine）或润滑剂。46.7%的人在72小时内完全恢复，在最后一次检查中均显示完全恢复。所有人员逆转录聚合酶链反应（reversetranscriptionpolymerasechainreaction，或PCR）测试结果均为阴性。
-
-591名疫苗接种者和在接种区附近但不在接种区工作的医院工作人员均未报告类似症状。此外，此前2天出现在同一区域的1,705名疫苗接种者和其它36名工作人员没有出现任何症状。说明这15名工作人员的症状完全由摔碎的疫苗挥发引起的。
-
-疫苗接种空间的总体积为287.61m3，泄漏疫苗的体积仅0.5mL，如此小剂量的挥发都会导致如此严重的后果！
-
-参考数据：
-
-[科兴疫苗：新型冠状病毒灭活疫苗-克尔来福®](http://www.sinovac.com/product/showproduct.php?id=66)
-
-[Ocular Surface Erosion after Suspected Exposure to Evaporated COVID-19 Vaccine](https://www.karger.com/Article/FullText/520500)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
