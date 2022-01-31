@@ -15,155 +15,155 @@
 
 ---
 
-### [控制中国人民，中共布置的风水](/content/gnews/1/README.md)
+### [新西兰救护车因人手短缺出现延误，患者因此死亡](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [币安以《国际洗钱法》为由，限制281个尼日利亚账户](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [昆仑山是共产党的权力来源](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [1/30/2022 文贵直播：普京打乌克兰会加速欧洲与中共的决战](/content/gnews/2/README.md)
+### [控制中国人民，中共布置的风水](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [1/30/2022 文贵直播：普京打乌克兰会加速欧洲与中共的决战](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [尽管病毒案例已经跌下峰值，美国因中共病毒死亡的人数继续飙升](/content/gnews/3/README.md)
+### [尽管病毒案例已经跌下峰值，美国因中共病毒死亡的人数继续飙升](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [波士顿医院拒绝对未接种 COVID-19 疫苗的患者进行心脏移植](/content/gnews/4/README.md)
+### [波士顿医院拒绝对未接种 COVID-19 疫苗的患者进行心脏移植](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美媒重提“肛拭子”，中共奥运会否噩梦重现？](/content/gnews/5/README.md)
+### [美媒重提“肛拭子”，中共奥运会否噩梦重现？](/content/gnews/8/README.md)
  ` yoyoseaman`
 
-### [昆仑山的风水](/content/gnews/6/README.md)
+### [昆仑山的风水](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [美国国务院驳斥中国关于美国破坏奥运会的宣传](/content/gnews/7/README.md)
+### [美国国务院驳斥中国关于美国破坏奥运会的宣传](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [哈萨克斯坦是世界变化的导火索](/content/gnews/8/README.md)
+### [哈萨克斯坦是世界变化的导火索](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [有声|中共驻美大使秦刚罕见威胁：中美或因台湾爆发军事冲突](/content/gnews/9/README.md)
+### [有声|中共驻美大使秦刚罕见威胁：中美或因台湾爆发军事冲突](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [1/30/2022 文贵直播：全世界强推毒疫苗的政客都没有好下场，当欧美加日的政客们不得不承认疫苗是一场灾难后，他们会为了逃避追责而主动挑起战争](/content/gnews/10/README.md)
+### [1/30/2022 文贵直播：全世界强推毒疫苗的政客都没有好下场，当欧美加日的政客们不得不承认疫苗是一场灾难后，他们会为了逃避追责而主动挑起战争](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [扬帆每日速递 2022年1月30日版（2）](/content/gnews/11/README.md)
+### [扬帆每日速递 2022年1月30日版（2）](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|中共国原中央巡视组副组长董宏一审被判死缓](/content/gnews/12/README.md)
+### [有声|中共国原中央巡视组副组长董宏一审被判死缓](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [哈萨克斯坦局势分析](/content/gnews/13/README.md)
+### [哈萨克斯坦局势分析](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [有声|每个墙内同胞都应该拥有一个香草山](/content/gnews/14/README.md)
+### [有声|每个墙内同胞都应该拥有一个香草山](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [法囯民众示威，呼吁政府抵制冬奥会](/content/gnews/15/README.md)
+### [法囯民众示威，呼吁政府抵制冬奥会](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美国17,000 医生站出来揭露疫苗真相](/content/gnews/16/README.md)
+### [有声|美国17,000 医生站出来揭露疫苗真相](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [澳门警察逮捕第二大“赌厅之王”陈荣炼](/content/gnews/17/README.md)
+### [澳门警察逮捕第二大“赌厅之王”陈荣炼](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [卡车队聚集渥太华抗议加拿大中共病毒疫苗强制令](/content/gnews/18/README.md)
+### [卡车队聚集渥太华抗议加拿大中共病毒疫苗强制令](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒疫情导致日本11个县病床使用率超过50%](/content/gnews/19/README.md)
+### [中共病毒疫情导致日本11个县病床使用率超过50%](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [丹麦是第一个取消所有新冠限制的欧盟国家](/content/gnews/20/README.md)
+### [丹麦是第一个取消所有新冠限制的欧盟国家](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|瑞典不建议为12岁以下儿童接种中共病毒疫苗](/content/gnews/21/README.md)
+### [有声|瑞典不建议为12岁以下儿童接种中共病毒疫苗](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|加拿大反对强制疫苗令的抗议活动继续升温](/content/gnews/22/README.md)
+### [有声|加拿大反对强制疫苗令的抗议活动继续升温](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|日媒打脸习和巴赫为北京冬奥造势的行径](/content/gnews/23/README.md)
+### [有声|日媒打脸习和巴赫为北京冬奥造势的行径](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [](/content/gnews/24/README.md)
+### [](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [救人（二）](/content/gnews/25/README.md)
+### [救人（二）](/content/gnews/28/README.md)
  ` 雅典娜GNotes`
 
-### [有声|接种新冠疫苗死亡导致尸体充满栓塞](/content/gnews/26/README.md)
+### [有声|接种新冠疫苗死亡导致尸体充满栓塞](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [有声|美国海军遣散无苗水兵](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [美国前国务卿彭培奥警告：中共寻求 &#8220;统治全球&#8221;](/content/gnews/28/README.md)
+### [美国前国务卿彭培奥警告：中共寻求 &#8220;统治全球&#8221;](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|由于中共政府苛刻的防疫措施，美国准备允许驻华外交人员离开中共国](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [美澳印日四国外长将在2月中旬举行四方会谈](/content/gnews/30/README.md)
+### [美澳印日四国外长将在2月中旬举行四方会谈](/content/gnews/31/README.md)
  ` 喜国公民`
 
-### [英国和日本准备在2月中旬举行约翰逊-岸田峰会](/content/gnews/31/README.md)
+### [英国和日本准备在2月中旬举行约翰逊-岸田峰会](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵—让中共闻风丧胆的战神](/content/gnews/32/README.md)
+### [郭文贵—让中共闻风丧胆的战神](/content/gnews/33/README.md)
  ` mary202064`
 
-### [全球疫情更新（研究揭示“疫苗”阻碍DNA损伤修复）](/content/gnews/33/README.md)
+### [全球疫情更新（研究揭示“疫苗”阻碍DNA损伤修复）](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [警惕暴力，魁北克省媒体爆出一小部分抗议者袭击记者，尽管绝大多数自由车队卡车司机抗议者面带微笑](/content/gnews/34/README.md)
+### [警惕暴力，魁北克省媒体爆出一小部分抗议者袭击记者，尽管绝大多数自由车队卡车司机抗议者面带微笑](/content/gnews/35/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [加拿大萨斯喀彻温省宣布终止疫苗护照——感谢卡车司机！](/content/gnews/35/README.md)
+### [加拿大萨斯喀彻温省宣布终止疫苗护照——感谢卡车司机！](/content/gnews/36/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共慷民脂民膏之慨 结参加冬奥洋人之欢心](/content/gnews/36/README.md)
+### [中共慷民脂民膏之慨 结参加冬奥洋人之欢心](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冬奥会运动员及官员确诊病例激增](/content/gnews/37/README.md)
+### [冬奥会运动员及官员确诊病例激增](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [澳洲加入加拿大反强制新冠疫苗自由车队](/content/gnews/38/README.md)
+### [澳洲加入加拿大反强制新冠疫苗自由车队](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [日本纪录片《疫苗副作用》即将上映](/content/gnews/39/README.md)
+### [日本纪录片《疫苗副作用》即将上映](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [香草山翻译部周刊|2022年1月30日第33期](/content/gnews/40/README.md)
+### [香草山翻译部周刊|2022年1月30日第33期](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [GTV新闻访谈简报|2022年1月30日早](/content/gnews/41/README.md)
+### [GTV新闻访谈简报|2022年1月30日早](/content/gnews/42/README.md)
  ` 纽约香草山MOS01`
 
-### [中日财经爆┃房企2022年美元债兑付高峰将至 暴雷名单近期逐一揭晓](/content/gnews/42/README.md)
+### [中日财经爆┃房企2022年美元债兑付高峰将至 暴雷名单近期逐一揭晓](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃全球通胀油价攀升 经济陷入滞胀股市将崩盘](/content/gnews/43/README.md)
+### [中日财经爆┃全球通胀油价攀升 经济陷入滞胀股市将崩盘](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NewSGman┃疫情严重 美国NBC决定不派播报团队到北京冬奥会](/content/gnews/44/README.md)
+### [NewSGman┃疫情严重 美国NBC决定不派播报团队到北京冬奥会](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NewSGman┃金融界沼泽地“梵蒂冈”卢森堡将与新中国联邦正式合作](/content/gnews/45/README.md)
+### [NewSGman┃金融界沼泽地“梵蒂冈”卢森堡将与新中国联邦正式合作](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NewSGman┃六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动](/content/gnews/46/README.md)
+### [NewSGman┃六周内直插中共心脏北京城 唱响世界级的“甜蜜蜜”运动](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NewSGman┃新中国联邦重大公告：美国政府授权撤离驻北京大使馆！](/content/gnews/47/README.md)
+### [NewSGman┃新中国联邦重大公告：美国政府授权撤离驻北京大使馆！](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NewSGman┃北京冬奥会遭多国抵制](/content/gnews/48/README.md)
+### [NewSGman┃北京冬奥会遭多国抵制](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NewSGman┃日版“马格尼茨基人权法案”呼之欲出 电台预热正在进行](/content/gnews/49/README.md)
+### [NewSGman┃日版“马格尼茨基人权法案”呼之欲出 电台预热正在进行](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1/30/2022國內經濟財經週報：牛頭熊尾，滬指牛年跌8%;銀監會副主席蔡鄂生被開除黨籍](/content/gnews/50/README.md)
- ` 秘密翻译组金融团队`
 
 ### [中共国春节期间人口流动人数骤减　但仍然呈现混乱局面](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

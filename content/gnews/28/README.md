@@ -2,48 +2,26 @@
 ---
 
 
-## 美国前国务卿彭培奥警告：中共寻求 &#8220;统治全球&#8221;
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1935040/)
+## 救人（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935062/)
 
-作者：纽约香草山农场 – 四季
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/救人（二）-.jpg)
+她辩护，我的身份外国护照我都有，我的孩子就是不想生在中国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+Miles郭为什么答应你百万美元，他想把我肚里的孩子给救出来，他不是想救我们。这哥们儿感动的不得了啊，他说你这太棒了，而且这人是典型的维族人，打完电话就告诉我说，我知道你会这么做的，但我没想要20万，我想你怎么得收个200万吧。而且我告诉你，为什么我要救维族人，我说现在维族人多生一个比汉族多生10个还重要。就这么简单，我没有任何见不得人的事，就这么简单。我做这个决定的时候，中间人说Miles你疯了，哪有100万美元的救人费呀，我说对不起，这个钱我是拿得起的，我可以找人来拿。这就像刚才说老江你卖掉72000个币，10块钱一个，是多少钱啊？72万是吧。还有一个我救人愿意花100万美元。
 
+这两件事不同的决定，你就看出我这个事情，做事的基础，为什么这么做。
 
+*发布：开智则立*
 
-
-
-据[零对冲](https://www.zerohedge.com/geopolitical/xi-jinping-seeking-global-domination-mike-pompeo)1月28日报道，美国前国务卿彭培奥在2022年阿古斯美洲原油峰会上发表声明说，中共正在寻求“统治全球”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Mike-Pompeo-700x420-1.jpeg)图片来源：零对冲
-
-蓬佩奥说，中共国领导人希望“中共实现全球统治霸权”，并警告说，中共的崛起可能会破坏自二战结束以来建立的基于规则的国际秩序，而中共的野心正在引发“全球觉醒”。
-
-彭培奥同时谴责中共把病毒强加给世界，并拒绝和阻止国际社会对病毒溯源的诉求。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
