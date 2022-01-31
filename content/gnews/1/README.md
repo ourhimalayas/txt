@@ -2,18 +2,41 @@
 ---
 
 
-## 疫苗副作用对人体的伤害
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935856/)
+## 最好的教育是离开学校全部忘掉学到的东西然后找到自己
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1935929/)
 
-撰稿：东京樱花团/立正道
+G-TV视频链接：[https://gtv.org/video/id=61f75a50d90bdd2085a2f178](https://gtv.org/video/id=61f75a50d90bdd2085a2f178)
 
-截止2022年1月末，日本接种疫苗后死亡人数为1444人，重症病例为6370人，虽然大多数副作用在接种几天内发生，但随着时间推移，也许会出现各种后遗症。
+**郭文贵先生：**我跟你说老师，真的这老师的感受，我们的小新老师，我老跟她开玩笑，我说递那个擦屁股纸的事儿。说实在的，我对老师有很多话是不敢在这儿说的，我真不敢在这儿说的。但是我，就像我们的EDU这个教育，这个磐石农场唐平搞这个节目，我觉得做EDU教育和文洁老师，我特别支持。什么叫教育，就是把人的兴趣激发出来，然后最重要的事情让人找到自己，张开嘴、迈开腿、睁开眼。
 
-这些后遗症主要包括心肌炎、血栓形成、格里-巴利综合症、免疫功能低下、免疫力不全、ADE、自身免疫性疾病、不孕症、癌症、朊病毒-雅各布病，等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-538.jpg)
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+最好的教育，就是离开学校后所有学校的东西全忘掉，然后自己找到了自己，这就最好的教育。把一个人的兴趣能引起来，是最关键的。字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

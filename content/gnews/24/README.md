@@ -2,34 +2,35 @@
 ---
 
 
-## 澳洲卡车司机集结堪培拉，议员凯利呼吁支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935621/)
+## 第四位摩萨德指挥官在一年内辞职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935658/)
 
-**翻译整理：小鱼儿
-编辑：Candy**
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+整理/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/车队-1.png)图片来源：rebelnews
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/雅典娜快讯图-2.png)图片来源：雅典娜设计组
 
 
-澳洲当地时间1月30日，据反抗新闻（Rebelnews）报道，越来越多的卡车和汽车车队今天正在前往议会大厦的路上，以抗议疫苗强制接种。清晨，记者在维多利亚州和新南威尔士州边境的沃顿加附近的一个集合点现场，几十辆卡车和一个庞大的汽车车队从那里出发了。
+根据《RT新闻》1月31日报道，援引色列媒体报道，摩萨德特种作战部门的未具名指挥官已经辞职。他成为自2021年6月大卫·巴尼亚 (David Barnea) 担任以色列情报机构主任以来，七个月内离开摩萨德的第四位高调官员。
 
-一夜之间，电报群（Telegram）上的支持信息爆棚，数以千计的新成员加入，表达他们对卡车司机的支持，还有人发布了车队的照片和视频。
+《国土报》详细报道说，由于以色列特工在国外的行动存在困难，巴尼亚希望对（这位不知名的指挥官）领导的部门的工作方式做出重大改变，而（这位指挥官）没有按照要求实施这些改变。该指挥官的副手和部分特工也因这一事件辞职。该指挥官后来被替换。
 
-同时，克雷格·凯利议员（联合党领袖）发推文表示支持：“让我们共同支持我们的澳大利亚卡车司机。我没有卡车，但我做了一个自由的拖车，用来拖动以示支持。如果有人想要标识的话，我周一早上7点会在雉鸡巢（Pheasants Nest）带着很多印有自由的标志。”
+去年，摩萨德的技术主管、行动主管和反恐主管都因据称与巴尼亚的冲突而辞职。
 
-更多的民众在觉醒，网友罗杰·萨雷塔（Roger Saretta）写到：“人们不会购买没有担保的汽车、自行车、甚至烤面包机，但却乐于接受一种没有担保的实验性药物，注射到自己体内，任何不良反应都是你自己的事。他们也很乐意给他们的孩子注射。（你）想明白了吗？”
+巴尼亚于1996年加入摩萨德，2013年成为其Tzomet部门的负责人，2019年成为摩萨德的副负责人，最后在2021年担任该机构的负责人。据说他试图将摩萨德带回绝对沉默的守则–威胁那些向媒体谈论摩萨德行动的现任和前任特工。
 
-参考新闻：[Convoy to Canberra: Truckies on the road to freedom](https://www.rebelnews.com/convoy_to_canberra_truckies_on_the_road_to_freedom)
+在6月被以色列前总理本雅明·内塔尼亚胡（Benjamin Netanyahu）任命为该机构主任后，巴尼亚特别指出伊朗是该机构的首要任务，并指责该国“正在不断向大规模毁灭性武器计划迈进”。
 
-***发布：Candy***
+新闻链接：[4th Mossad commander resigns in under a year – media](https://www.rt.com/news/547798-4th-mossad-commander-resigns/)
+
+发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

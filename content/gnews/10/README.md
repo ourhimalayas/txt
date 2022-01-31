@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命不要每天到处找敌人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935777/)
+## 小飞象仅4个月获得美国政治庇护的意义重大
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935803/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
