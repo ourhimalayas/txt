@@ -2,33 +2,27 @@
 ---
 
 
-## 日本中共病毒确诊数激增 多地确诊人数创纪录
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1936775/)
+## 小米股价暴跌，市值蒸发4千多亿
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1936864/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/2-121.jpg)
-据朝日新闻报道，1月28日，日本全国每日新增中共病毒病例数首次超过 80,000 例，其中东京报告了创纪录的 17,631 例。这是日本全国和东京的确诊数字连续第四天创下新纪录。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/6c12ddb68e9a7f360d0b6286e4c66a9d2.jpg)网络图片
+据网易新闻1月30日报道，小米股价近日连续暴跌，与最高值相比下跌54%。目前，小米总市值为4120亿港元，蒸发了4850亿港元。创始人雷军28日辞去小米公司董事长职务，据说为了专注小米造车。
 
-兵库县当天确认了创纪录的 4,342 例新感染病例，而大阪县的这一数字首次突破 10,000 例，为 10,013 例。东京的最新数字比一周前报告的 9,699 例增加了约 1.8 倍。
+小米手机曾经信誓旦旦地要与苹果手机竞争，2021年小米手机的全球市场销量也一度超过苹果手机，但是作为市值4千亿的小米手机与市值3万亿的苹果手机相比，差距不是一次销量就能够证明。中共国的企业没有技术支撑，完全靠假骗偷得来的技术缺乏持续更新和发展。一飞冲天之后，后续力量不足，还是要跌落地面，一蹶不振。
 
-截至 1 月 27 日，东京 46.1% 的病床被占用，东京表示，如果比率达到 50%，将考虑要求中央政府宣布进入紧急状态。
+新闻参考链接：[https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp](https://c.m.163.com/news/a/GUVMNURV0531M1VQ.html?spss=newsapp)
 
-新闻链接：[https://www.asahi.com/ajw/articles/14534634](https://www.asahi.com/ajw/articles/14534634)
+* * *
 
-编辑/校对/发稿：文留
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-3.jpg)
-**更多资讯，更多关注**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

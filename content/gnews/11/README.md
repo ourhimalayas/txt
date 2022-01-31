@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥让人走到前面法治社会
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1936798/)
+## 新中国联邦已经被世界上大多数国家承认是大家的平台
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1936886/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
