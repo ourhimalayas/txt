@@ -2,8 +2,8 @@
 ---
 
 
-## 记住必须戴口罩
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935518/)
+## 对事情真假善恶的判断的能力
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935586/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
@@ -14,7 +14,7 @@
 [澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)¥
 
  
 

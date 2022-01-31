@@ -2,50 +2,24 @@
 ---
 
 
-## CDC最新研究：接种中共病毒疫苗导致心肌炎风险超百倍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935344/)
+## 老有所养，老年人的尊严（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935359/)
 
-作者：纽约香草山 – 侠肝义胆
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/老有所养，老年人的尊严（二）-.jpg)
+其实刚刚说养老了，这个事情其实我自己感触特别深，因为前几年的时候我奶奶生了一场重病，然后当时我是放假回家，然后去医院看我奶奶，然后那个时候我就觉得中国的老人的那些生存环境真的很差，因为我们家已经算是能给老人一些比较好的医疗条件了，但是国内的那些医院，哪怕它是那种三甲，或者是说上海市最好的医院，它的那些病床，然后还有它的那些厕所，那些装修真的就让我觉得就是根本就不像是你外面看到海市蜃楼的那种中国，然后一直到我奶奶，现在80多岁了，她现在枕头下面永远会压人民币，就是她就觉得她到那个年纪，她可能随时都会身上有病，然 后随时都要去医院，所以她自己的存折、银行卡，包括一些现金，她永远都压在自己枕头下面，就是这个习惯，她一辈子都改不掉，所以我就一直在想，以后有新中国联邦，我希望每一个家里的老人都能被善待，而且我觉的我也希望就是有这样一个很好的养老体系，每一个人都可以体面有尊严地老去，我觉的这是中国人那么多年以来一直都没有的，就不管你家的生活状况到底是如何，所以真的很感谢七哥，感谢爆料革命。
 
+七哥：小飞象我要跟你说一下啊佳佳，你看这个我出生的地方三河，后来我搬到了赵家沟，你看到这个地方三河，赵家沟，你看这个山脉，那个山顶，你看到没有？这个小墨镜这个家伙太可爱了，墨镜这个家伙太可爱太可爱了啊，太可爱了这个地方。
 
+*发布：开智则立*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-1月25日，美国医学会杂志在网站发布了一项最新研究，由美国疾病预防控制中心CDC以及来自美国几所大学和医院的相关人员完成，研究显示，接种MRNA疫苗后产生心肌炎的风险增加133倍。
-
-该研究使用疾控中心的VAERS报告系统获得数据，分析了辉瑞和Moderna疫苗的接种效果。这些数据经过了交叉检查，以确保它们符合疾控中心对心肌炎的定义。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide9-12.jpg)
-鉴于大量研究证实了疫苗接种与心肌炎之间的联系，美国疾控中心已开始积极监测青少年和年轻人在接种疫苗后心脏相关事件后的进展。
-
-与此同时，美国心脏协会和美国心脏病学院建议，心肌炎患者在三到六个月内应避免剧烈运动，此外，他们特别建议心肌炎患者暂缓继续接种mRNA疫苗。
-
-参考信息：
-[New study: 133x risk of myocarditis after COVID vaccination](http://New%20study:%20133x%20risk%20of%20myocarditis%20after%20COVID%20vaccination)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

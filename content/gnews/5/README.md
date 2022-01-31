@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗就是热毒
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935560/)
+## 喜币受多个法律管辖约束
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935610/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
