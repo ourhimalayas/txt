@@ -15,83 +15,83 @@
 
 ---
 
-### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [朝鲜向东海发射了中程弹道导弹](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [论中国共产党一党专制统治下的公民自由](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈十二属相今年运势（2022-01-30摘录）](/content/gnews/5/README.md)
+### [七哥说“没有信仰，你这一辈子不会有愉快的”（2022-01-27摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [DC大中华时事：中国驻大阪总领事薛剑接受日媒采访](/content/gnews/6/README.md)
+### [七哥谈中国人的人心（2022-01-27摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [MV版Hcoin To the Moon上线53天第40次位列澳门iTunes热门MV榜首](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [每日快报：特鲁多在躲避加拿大卡车司机时检测阳性](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国及世界疫情简报 （01-31-2022）](/content/gnews/7/README.md)
+### [七哥说“我们作为一个正常的人宁可相信他好也不愿意相信坏”（2022-01-27摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [朝鲜向东海发射了中程弹道导弹](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [语言治疗师说由于口罩的佩戴使婴幼儿转诊人数激增364％](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [论中国共产党一党专制统治下的公民自由](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈十二属相今年运势（2022-01-30摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [DC大中华时事：中国驻大阪总领事薛剑接受日媒采访](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国及世界疫情简报 （01-31-2022）](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [七哥谈属猴的人（2022-01-30摘录）](/content/gnews/8/README.md)
+### [七哥谈属猴的人（2022-01-30摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/9/README.md)
+### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [1/31/2022国际财经快讯：德国财政部长支持提前结束征收绿色能源费用；亚洲股市试探性上涨](/content/gnews/10/README.md)
+### [1/31/2022国际财经快讯：德国财政部长支持提前结束征收绿色能源费用；亚洲股市试探性上涨](/content/gnews/14/README.md)
  ` 秘密翻译组金融团队`
 
-### [2022/01/31 英喜时事速递](/content/gnews/11/README.md)
+### [2022/01/31 英喜时事速递](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年12月18-19日 郭先生视频部分内容整理](/content/gnews/12/README.md)
+### [2021年12月18-19日 郭先生视频部分内容整理](/content/gnews/16/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [美国否认中共官媒指控其“将国际体育赛事政治化”的说法](/content/gnews/13/README.md)
+### [美国否认中共官媒指控其“将国际体育赛事政治化”的说法](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线:欧洲开始解除新冠病毒强制措施的行动](/content/gnews/14/README.md)
+### [秘翻在线:欧洲开始解除新冠病毒强制措施的行动](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国数十组织示威呼吁抵制北京冬奥会](/content/gnews/15/README.md)
+### [法国数十组织示威呼吁抵制北京冬奥会](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [爆料革命吸取六四教训以不流血没有伤亡的超超限战灭共](/content/gnews/16/README.md)
+### [爆料革命吸取六四教训以不流血没有伤亡的超超限战灭共](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [被抛弃的跨境生](/content/gnews/17/README.md)
+### [被抛弃的跨境生](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“政府权力过度扩张即将结束”美国卡车车队即将加入抗议](/content/gnews/18/README.md)
+### [“政府权力过度扩张即将结束”美国卡车车队即将加入抗议](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新疆西藏香港及海内外有良知同胞的参与启动甜蜜蜜运动](/content/gnews/19/README.md)
+### [新疆西藏香港及海内外有良知同胞的参与启动甜蜜蜜运动](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [NewSGman┃疫情新闻全球最新速报（1月31日）](/content/gnews/20/README.md)
+### [NewSGman┃疫情新闻全球最新速报（1月31日）](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [处男之身却以强奸碎尸罪名处决的六四英雄何以无惧生死](/content/gnews/21/README.md)
+### [处男之身却以强奸碎尸罪名处决的六四英雄何以无惧生死](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英国考虑在乌克兰危机中部署北约军力](/content/gnews/22/README.md)
+### [英国考虑在乌克兰危机中部署北约军力](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [不管冬奥会成功还是失败最大的可能性是习近平会打台湾](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [捷报：伊维菌素终于被认可](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [纽约男子杀害三名亚裔后被判送精神病院](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [强制50岁以上的人接种新冠疫苗无成效,实际数字让德拉吉政府无奈](/content/gnews/26/README.md)
- ` xiaobaige`
 
 ### [美参院两党议员就制裁俄罗斯达成一致](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
