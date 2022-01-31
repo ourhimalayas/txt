@@ -2,18 +2,23 @@
 ---
 
 
-## 疫苗副作用对人体的伤害
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935856/)
+## 巴基斯坦就是共产党各种作恶的地方（下）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935914/)
 
-撰稿：东京樱花团/立正道
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队。
 
-截止2022年1月末，日本接种疫苗后死亡人数为1444人，重症病例为6370人，虽然大多数副作用在接种几天内发生，但随着时间推移，也许会出现各种后遗症。
+**往期回顾：**
+[巴基斯坦就是共产党各种作恶的地方（下）](https://gnews.org/zh-hans/1935886/)
 
-这些后遗症主要包括心肌炎、血栓形成、格里-巴利综合症、免疫功能低下、免疫力不全、ADE、自身免疫性疾病、不孕症、癌症、朊病毒-雅各布病，等。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-538.jpg)
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

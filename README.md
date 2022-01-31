@@ -15,62 +15,62 @@
 
 ---
 
-### [清丰看守所的教授狱友和隔壁女号长伉俪已经逃离中共国](/content/gnews/1/README.md)
+### [疫苗是人类巨大灾难,不打疫苗是新中国联邦人的天赐大礼](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [欧盟3-4个国家干掉中国大使馆](/content/gnews/2/README.md)
+### [自信和大头症的唯一区别是有没有真正能力和自然的表现](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [当年判有期无期的狱友老师和学校老师会讲一场七哥大戏](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥编案情让号里看着不顺眼的举报立功调号玩狱警武警](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [清丰看守所的教授狱友和隔壁女号长伉俪已经逃离中共国](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [欧盟3-4个国家干掉中国大使馆](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [从东北到山东再到清丰看守所的经历就是七哥最好的老师](/content/gnews/3/README.md)
+### [从东北到山东再到清丰看守所的经历就是七哥最好的老师](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [各国跟着共产党什么结果](/content/gnews/4/README.md)
+### [各国跟着共产党什么结果](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [清丰看守所让七哥找到搞革命的兴趣和树立起更大的理想](/content/gnews/5/README.md)
+### [清丰看守所让七哥找到搞革命的兴趣和树立起更大的理想](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [最好的教育是离开学校全部忘掉学到的东西然后找到自己](/content/gnews/6/README.md)
+### [最好的教育是离开学校全部忘掉学到的东西然后找到自己](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥就差把脚翘起来给习太阳拍脚然后鼓掌祝他圆满成功](/content/gnews/7/README.md)
+### [七哥就差把脚翘起来给习太阳拍脚然后鼓掌祝他圆满成功](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [巴基斯坦就是共产党各种作恶的地方（下）](/content/gnews/8/README.md)
+### [巴基斯坦就是共产党各种作恶的地方（下）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/9/README.md)
+### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [过去48小时睡觉不到5小时的七哥不知该如何释放感情](/content/gnews/10/README.md)
+### [过去48小时睡觉不到5小时的七哥不知该如何释放感情](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [巴基斯坦就是共产党各种作恶的地方（上）](/content/gnews/11/README.md)
+### [巴基斯坦就是共产党各种作恶的地方（上）](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [疫苗副作用对人体的伤害](/content/gnews/12/README.md)
+### [疫苗副作用对人体的伤害](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谈古论今 | 请看疫苗中的利刃——石墨烯的真面目！](/content/gnews/13/README.md)
+### [谈古论今 | 请看疫苗中的利刃——石墨烯的真面目！](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国扭捏表态不参加中共冬奥开幕式](/content/gnews/14/README.md)
+### [法国扭捏表态不参加中共冬奥开幕式](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谈古论今 | 如何理解新冠病毒治疗药上出现的全球性的集体谎言现象？](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲冬奥会代表团一人测试呈阳性后再转阴性](/content/gnews/16/README.md)
+### [澳洲冬奥会代表团一人测试呈阳性后再转阴性](/content/gnews/19/README.md)
  ` 走进澳洲`
-
-### [小飞象仅4个月获得美国政治庇护的意义重大](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [Joe Rogan事件的启发](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [共产党的法律](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
 
 ### [DC大中华时事：中共大使的警告“不同寻常”](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
