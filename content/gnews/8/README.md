@@ -2,16 +2,12 @@
 ---
 
 
-## 文贵先生聊天直播要点-图片（2022年1月30日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1935001/)
+## 未经授权不得以新中国联邦名义参与政治抗议
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1935017/)
 
-#### 设计：波士顿五月花 科存
+#### 设计：波士顿五月花 水涨船高
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵先生聊天直播要点01.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵先生聊天直播要点02.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/文贵先生聊天直播要点03.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/未经授权不得参加任何政治抗议-scaled.jpg)
 
 * * *
 

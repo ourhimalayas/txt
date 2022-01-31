@@ -2,30 +2,38 @@
 ---
 
 
-## 澳洲卡车司机声援加拿大同行抗议新冠疫苗强制接种
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1934884/)
+## 有声|自由车队2022组织者在GoFundMe的最新声明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935011/)
 
-By：喜国公民
-视频来自网络
-据阿维·耶米尼在维州乌东格的报道，大批来自全国各地的卡车正浩浩荡荡开往堪培拉，在国会大厦汇聚，反对疫苗的强制接种。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自由车队2022在GoFundMe1月28日筹款已经过7百万美元，约有9万人参加了捐款。该组织者今日早些时候更新了声明，全文内容如下：
 
-为了声援他们在加拿大的同行，澳洲卡车和汽车车队将在今天，在堪培拉大规模集会。
+对加拿大同胞来说，政府嚣张时代应该结束。 现任政府正在实施的强制规定在破坏我们的企业、行业和生计的基础。
 
-在加拿大，一个由卡车司机和他们的支持者组成的车队正在加拿大首都举行抗议活动。该活动从对疫苗强制接种的不满演变成要求废除所有公共卫生措施，甚至推翻联邦政府。
+我们是一个和平的国家，曾帮助保护全球各地的国家免受政府暴政对其人民的压迫，现在同样的事情却在加拿大这里发生。我们要把战斗带到联邦政府的门口，要求他们停止所有反人民的强制规.
 
-加拿大总理贾斯汀·特鲁多将该行动斥为 “不可接受 “，并不认为卡车司机队伍代表了大多数加拿大人的想法。
+原文链接：[自由车队2022组织者在GoFundMe的最新声明](https://gnews.org/zh-hans/1926857/)
 
-本月早些时候，加拿大开始要求任何从美国抵达的卡车司机必须全面接种冠状病毒疫苗。
+音频处理/发稿：Daxia
 
-抗议活动的发起者一直反对政府推行的新冠疫苗强制接种政策，他们的目的是要在加拿大建立一个全国管理委员会，致力于撤销新冠疫苗强制接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-政府认为这在很大程度上是无法接受的，完全脱离了政治现实。
+**更多资讯，更多关注**
 
-卡车司机的行动已经造成货物供应链的紧张，一些杂货店货架上已经货物空空。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-加拿大每年从美国进口价值210亿加元的食品，加拿大的食品系统实际上是依靠卡车的支撑，因此，卡车在运输这些食品方面发挥着关键作用。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-消息来源：[Canada truckers’ vaccine protest spirals into calls to repeal all public health rules](https://www.theguardian.com/world/2022/jan/28/canada-truckers-covid-vaccine-mandate-protest-government)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

@@ -2,38 +2,26 @@
 ---
 
 
-## 有声|自由车队2022组织者在GoFundMe的最新声明
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1935011/)
+## 美澳印日四国外长将在2月中旬举行四方会谈
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1935022/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自由车队2022在GoFundMe1月28日筹款已经过7百万美元，约有9万人参加了捐款。该组织者今日早些时候更新了声明，全文内容如下：
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-312.png)图片来自网络
+美国国务卿安东尼·布林肯，澳大利亚外交部长玛丽斯·佩恩，印度外交部长苏布拉曼亚姆·杰森卡尔以及日本外相林芳正将于2月中旬在澳大利亚墨尔本，举行四方外长安全对话会议。中共国对印太地区稳定的威胁是会谈的主要焦点。峰会还将讨论乌克兰危机。
 
-对加拿大同胞来说，政府嚣张时代应该结束。 现任政府正在实施的强制规定在破坏我们的企业、行业和生计的基础。
+这次峰会表明了所有四国对中共国的战略挑战的重视。部长们还将与澳洲总理斯科特·莫里森进行单独会晤。
 
-我们是一个和平的国家，曾帮助保护全球各地的国家免受政府暴政对其人民的压迫，现在同样的事情却在加拿大这里发生。我们要把战斗带到联邦政府的门口，要求他们停止所有反人民的强制规.
+网络安全和关键基础设施安全方面的合作也是讨论的核心。当澳大利亚首次禁止中国电信运营商参与其5G网络时，尚不清楚除美国外，其他国家是否会采取类似行动。人们认为北京在这一技术领域的主导地位可能太大，许多国家无法抵制。
 
-原文链接：[自由车队2022组织者在GoFundMe的最新声明](https://gnews.org/zh-hans/1926857/)
+四国外长会议代表了莫里森政府在外交上的一个巨大胜利。尽管北京对澳大利亚进行了强烈的恐吓，并努力在外交上孤立堪培拉，但韩国总统文在寅和英国外交部长和国防部长最近都访问了澳大利亚。
 
-音频处理/发稿：Daxia
+莫里森政府还与日本达成了历史性的《互惠协定》，使双方的军事合作成为可能，并确保将印度关系提升为全面战略伙伴关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+另据报道，英国和日本也准备在2月中旬举行约翰逊·岸田首脑峰会，讨论乌克兰危机，以及如何应对中共国对世界造成的威胁。
 
-**更多资讯，更多关注**
+消息来源：[US Secretary of State Antony Blinken heading to Melbourne for meeting of Quad Foreign Ministers](https://www.theaustralian.com.au/nation/us-secretary-of-state-antony-blinken-heading-to-melbourne-for-meeting-of-quad-foreign-ministers/news-story/29a188349f1f9b8a97c78d91b640c0d3)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[英国和日本准备在](https://gnews.org/zh-hans/1934857/)[2月中旬举行约翰逊-岸田峰会](https://gnews.org/zh-hans/1934857/)
 
  
 
