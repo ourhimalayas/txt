@@ -2,36 +2,23 @@
 ---
 
 
-## 澳洲冬奥会代表团一人测试呈阳性后再转阴性
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1935822/)
+## 法国扭捏表态不参加中共冬奥开幕式
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1935835/)
 
-**整理/编辑：小红帽**
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-317.png)[图片来源](https://www.jiji.com/sp/article?k=2022013100170&amp;g=int&amp;p=20220131at04S&amp;rel=pv)
+据巴黎时报报道：法国欧洲事务部长在1月30日，出席法国电台的节目时，就讨论2月4日开幕的中共冬奥会是否出席的问题时表示，体育部长将被派往2月4日开幕的北京冬奥会，但她不会出席开幕式，但会在奥运会期间的某个时候去当地支持鼓励法国运动员。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2554.png)
+欧洲事务部长还进一步强调，拒绝明确表示他不会参加关于外交抵制的辩论，强调 “外交必须是低调的”。解释说欧盟对于有于抵制问题也还在讨论中，但认为许多国家没有派人或没有让其国家元首出席开幕式是明智的决定。
 
-图片来源：雅典娜设计组
+信息来源：
 
+[北京五輪開会式欠席へ　「外交控えめ」―仏](https://www.jiji.com/sp/article?k=2022013100170&amp;g=int)
 
-根据《澳大利亚人报》1月31日报道，澳大利亚冬奥代表团的一名成员被中共极端的新冠病毒（Covid）检测程序所拦截。该名运动员在抵达北京国际机场时得到了一份阳性检测报告，但后来证明是该检测结果是阴性的。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-由于隐私原因，澳大利亚队官员未透露这名运动员的姓名，但证实此人于周末抵达中国，最初的阳性结果来自于其降落后直接采集的核酸（PCR）样本。
-
-澳大利亚代表团团长Geoff Lipshut说：“这是一个令人担忧的问题，但这只是第一次测试。”然而，第二次测试后来得出了不同的结果，为该运动员可能参加比赛开辟了道路，但还需要再做一次测试。
-
-中共为阻止新冠病毒的传播而采取的高压手段受到了批评，因为他们使用了超敏感的设备，这可以从外国运动员身上检测出以前感染新冠病毒的残留。这导致了病例数量的激增，已经毁掉了一些运动员的奥运梦想。
-
-到目前为止，只有12名澳大利亚运动员抵达中共国，预计大多数人将在周五的开幕式前几天抵达。
-
-新闻链接：[严苛Covid检测震动北京冬奥 澳洲代表团一人测试阳转阴](https://cn.theaustralian.com.au/2022/01/31/63035/)
-
-*发布：盘古相聚*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

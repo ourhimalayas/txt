@@ -2,22 +2,19 @@
 ---
 
 
-## 1/27文贵直播：美授权撤离大使馆代表灭共第三道大门打开（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1936727/)
+## 七哥让人走到前面法治社会
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1936798/)
 
-2022/1/27文贵直播：
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-1. 100多个国际金融机构和公司和30几个大的国际公司要开始研究如何开始制裁中共高官
-2. 六四、南海争端、文化大革命、病毒威胁，都没撤离大使馆，就在冬奥会前一周撤
-3. 美国前国务卿还要访问台湾
-4. 普京去北京的安排有变化，各国领导都要求同个包厢
-5. 中共承诺中东几国，石油、天然气订购量翻1.5倍
-6. 美国这次授权撤离是不断不交
-7. 第三道大门打开了，病毒溯源、疫苗真相
-8. 50个国家要撤离大使馆
+*发布：陶子*
 
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

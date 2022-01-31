@@ -2,31 +2,52 @@
 ---
 
 
-## 美参院两党议员就制裁俄罗斯达成一致
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1936800/)
+## 七哥99%的把握让冬奥会的北京二环以内响遍甜蜜蜜歌声
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1936844/)
 
-撰稿：东京樱花团/山顶闲人
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-93.png)
-[图片来源](http://nankaioverseas.net/NKAlumni/CuiQingping/WhyCapitol082520.html)
+G-TV视频链接：[https://gtv.org/video/id=61f773cdd90bdd2085a2fc80](https://gtv.org/video/id=61f773cdd90bdd2085a2fc80)
 
-据法新社华盛顿30日报导**，**美国重量级联邦参议员今天表示，两党即将就制裁俄罗斯的相关法案达成共识，只要派军进入乌克兰，俄国经济就会遭“毁灭性打击”，还强调绝不重蹈二战前夕的姑息主义。
+**郭文贵先生：**这个事大家要看到的，一切的铺垫，在全世界所有人都在讨论冬奥会的时候，乌克兰、台湾将生事端。就像当年的希特勒和苏联一样，所有冬奥会以后，他们判断世界人民对这个国家的好感和政治上的反映是最麻木的，他要行动，但是七哥也有行动。
 
-美国联邦参议院外交委员会主席、民主党参议员梅南德兹（Bob Menendez）表示，美国要向俄罗斯总统普京发出「任何这类侵略均不可接受」的明确信息，这点至关重要。梅南德兹在美国有线电视新闻网（CNN）里说：“我们不容再有慕尼黑时刻，普京不会对乌克兰收手。”还说相关立法距完成仅“一步之遥”。
+我的行动你们会看到就在北京城，我今天告诉大家，七哥的行动就在北京城，记住我说的话啊，就在二环以内，我今天就告诉大家地方啊。我都不去四环，四环离盘古太近了，不好意思，我就在二环以内给它弄点动静出来！你们会突然间听到二环以内到处充满着歌声。（注：众嘉宾鼓掌）
 
-所谓慕尼黑时刻意指1938年英法德义于慕尼黑召开会议，英法为避免开战与德国达成慕尼黑协议，在捷克没与会下同意将捷克的苏台德区（Sudetenland）割让给纳粹德国，是史上着名的姑息政策。
+在哪里……在哪里见过你，你的笑容这样熟悉……啊……在梦里……全北京城就要听到这首《甜蜜蜜》。暗号，暗号！
 
-梅南德兹放狠话的同时，英国已完成自身对俄的包裹制裁方案，英国外相特拉斯（Liz Truss）昨天说完全不给俄国躲掉的空间。梅南德兹与参院外委会的共和党要员里契（James Risch）连袂现身，表明两党决心。里契表示，一个两党的参议员联盟马不停蹄作业，盼完成一个代价会高到让蒲亭认真以对的制裁法案，“不同于2014年俄国兼并克里米亚，这回世界的反对力道更为可观”。里契还说有鉴俄国高度依赖能源出口，一旦侵乌遭制裁引发油价上涨，对全球经济会造成灾难性冲击，所有人都不该轻忽制裁后果。不过两党在制裁时机上仍有争论；一些共和党人称现在就应执行，但民主党人觉得还可再观察一阵。
+到时候七哥叫北京城整点动静，整点动静。你就看着七哥，你就看着七哥整出来这个动静，会以病毒为借口的动静，而且是世界级的，世界级的。
 
-结合2022年1月30日文贵大直播中爆料信息，发动俄罗斯发动入侵乌克兰战争，俄罗斯现在1万亿美元左右的GDP会降到6000-7000亿美元左右，苏联时期失去的土地被夺回来了，几年后俄罗斯GDP会翻翻，再者部分北约国家现任领导人，因为疫苗灾难会让疫苗强制令的政客彻底曝光，即将死去的6-7亿人，西方人的血气勇气爆发。等到时疫苗灾难降临。不仅仅是普京搞乌克兰那么简单了，这些北约部分国家现任领导人自己就要搞战争了来掩盖疫苗灾难，综合分析下来，就算美国参议院对俄实施制裁也是杯水车薪，无法阻止俄罗斯西扩的野心，以及部分北约国家现任领导人政治图谋。因此在乌克兰的华人应该及早撤离，以防战争发生时遭遇不测。
+记住啊，世界级的，绝不超过六周。我有99%的把握在冬奥会期间整点大动静，在北京城叫大家……习近平不老是做梦吗？咱们就要在梦里梦见你。（注：哼唱）在哪里～在哪里见过你，你的笑容这样熟悉……啊……在梦里……
 
-信息来源：
+我们在梦里相见，而且一只手还摸得着。到那时候飞飞就出名了，就是三百年的飞飞一首《甜蜜蜜》唱得郭文贵如醉如痴，然后在北京城搞了叫“甜蜜蜜”的运动，绝对是这个运动就叫甜蜜蜜运动，然后你就看到在二环以内的动静。
 
-#### [美参院两党议员：合力端出毁灭性对俄制裁](https://www.rfi.fr/cn/%E7%BE%8E%E5%8F%82%E9%99%A2%E4%B8%A4%E5%85%9A%E8%AE%AE%E5%91%98-%E5%90%88%E5%8A%9B%E7%AB%AF%E5%87%BA%E6%AF%81%E7%81%AD%E6%80%A7%E5%AF%B9%E4%BF%84%E5%88%B6%E8%A3%81)
+习近平就傻眼，他就明知道：“呀？呀？怎么有动静了？”没办法，控制不了。然后就听到身边都在唱《甜蜜蜜》，左看右看，前看后看，上看下看，都在“甜蜜蜜”，都在“梦里见过你”。中国的习近平“我的中国梦”都变成“甜蜜蜜”的梦了呢？是吧？到那时候就热闹了。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
 
+编辑整理：Jacques；
+
+字幕文件制作：大好河山；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

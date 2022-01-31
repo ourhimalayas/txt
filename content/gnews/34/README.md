@@ -2,31 +2,38 @@
 ---
 
 
-## 澳洲卡车司机集结堪培拉，议员凯利呼吁支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935621/)
+## 短视频：拜登政府强制疫苗令违反宪法
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935710/)
 
-**翻译整理：小鱼儿
-编辑：Candy**
+翻译：Julia Gao
+校对：Lish|
+剪辑字幕：小强
+编辑：文泓
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/车队-1.png)图片来源：rebelnews
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/815-4.jpg)图片来源：视频截屏
 
 
-澳洲当地时间1月30日，据反抗新闻（Rebelnews）报道，越来越多的卡车和汽车车队今天正在前往议会大厦的路上，以抗议疫苗强制接种。清晨，记者在维多利亚州和新南威尔士州边境的沃顿加附近的一个集合点现场，几十辆卡车和一个庞大的汽车车队从那里出发了。
+让我们请出亚利桑那州总检察长马克·拉辛诺维奇。先生，很高兴又能采访你。我想先为您读一段联邦总律师（联邦检察官）的讲话，她是拜登今天在法庭上的律师。
 
-一夜之间，电报群（Telegram）上的支持信息爆棚，数以千计的新成员加入，表达他们对卡车司机的支持，还有人发布了车队的照片和视频。
+她说，工人们因为在工作中接触到病毒而病重、死亡，包括广泛的、有据可查的工作场所集群感染和疫情爆发。
 
-同时，克雷格·凯利议员（联合党领袖）发推文表示支持：“让我们共同支持我们的澳大利亚卡车司机。我没有卡车，但我做了一个自由的拖车，用来拖动以示支持。如果有人想要标识的话，我周一早上7点会在雉鸡巢（Pheasants Nest）带着很多印有自由的标志。”
+然后她继续论证道，如果在今年冬天预期的新冠病毒疫情激增期间，该规则仍然保持不变的话，那么医院、养老院和其他参加医疗保险和医疗补助的设施中可能会有数百名甚至可能有1000名病人死亡。所以要求医护人员接种疫苗的好处，远远超过了任何副作用的担忧。
 
-更多的民众在觉醒，网友罗杰·萨雷塔（Roger Saretta）写到：“人们不会购买没有担保的汽车、自行车、甚至烤面包机，但却乐于接受一种没有担保的实验性药物，注射到自己体内，任何不良反应都是你自己的事。他们也很乐意给他们的孩子注射。（你）想明白了吗？”
+总检察长先生，她说的会不会是真的？但国会并没有授权职业安全与健康管理局（OSHA）或医疗保险和医疗补助服务中心（CM）来执行这些任务？
 
-参考新闻：[Convoy to Canberra: Truckies on the road to freedom](https://www.rebelnews.com/convoy_to_canberra_truckies_on_the_road_to_freedom)
+是的，你知道吗，这只是这个大问题其中的一部分。**这不是一场关于医学科学的辩论。这实际上是一场关于宪法的辩论。**所以有人可以支持科学，但你也可以支持宪法。**在我们的宪法中，任何总统，无论他是共和党人还是民主党人，在危机时刻都没有这种不受约束的绝对权力和自由裁量权。**
 
-***发布：Candy***
+**这就是我们更需要维护宪法的原因。因为总是会有一些团体或个人要找出一些理由，来说明他们需要践踏你个人自由的合理性。这时宪法变得最重要。**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+这就是为什么我和我的同事们站出来反对拜登政府的越权。因为这是一个危险的先例，因为任何政府都不应该告诉你或其他任何人，他们必须向他们的身体注射什么。
+
+因此，**我们不应该讨论实验性疫苗是否有效，我们应该讨论宪法是否旨在保护我们的个人自由。**显然它是的。
+
+视频链接：[Arizona AG on vaccine mandate arguments in Supreme Court: ‘A debate about the Constitution’ | On Air Videos | Fox News](https://video.foxnews.com/v/6290481125001#sp=show-clips)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)

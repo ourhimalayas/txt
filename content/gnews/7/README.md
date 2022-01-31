@@ -2,60 +2,39 @@
 ---
 
 
-## 上千亿身家网红难比经济危机中随时可变现的喜币拥有者
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1936785/)
+## 部分国际赞助商不愿抵制北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1936821/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f77221d90bdd2085a2fbd4](https://gtv.org/video/id=61f77221d90bdd2085a2fbd4)
+撰稿：东京樱花团/山顶闲人
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-556.jpg)
+[图片来源](https://t.cj.sina.com.cn/articles/view/7228207506/1aed5b192001018qw4%20%20%20%20%20)（**图为主办方给每位运动员都准备了一份礼包，里面有价值7999元的三星手机 不少外国运动员打开后都震惊了）**
 
-**郭文贵先生：**你再看共产党的房地产、还有共产党的上市公司在美国的，你看他们骗钱、骗人多少？ 是骗人家真的是好几代人。许家印香港公司加一起就剩几百个亿了，他欠人家一、两万亿他咋还呢？融创、万达、平安都会烟消云散。
+据《纽约时报中文版》1月28日消息。拜登总统和其他西方国家领导人或许宣布了对冬奥会的“外交抵制”，但全球最著名的一些品牌仍将出现在赛事现场。
 
-今天你们去问问去“马明哲你想当飞飞呢还是当马明哲？”他说“我想当飞飞，绝不当马明哲。”你去问徐家印“你想当Eglise还是当许家印呢？”他一定说“我当Eglise不当许家印。”澄道你随便喊个中国房地产商你说“你愿意当澄道还是当你自己？”
+比如在滑雪选手将即将于2022年北京冬奥会竞逐的赛道底部，一块电子标牌循环播放着三星和奥迪等企业的广告。可口可乐易拉罐上装饰着奥运五环。宝洁在奥运村开了一家美容沙龙。Visa则是本届赛事的官方信用卡合作伙伴。
 
-Longwood可以叫任何人，你别信我的，你问问他去。他们没有安全、没有未来。澄道已经脱了，澄道你现在你可以中国任何明星、名人、网红那几个被抓的网红，你给他打电话说“我就叫澄道，你想当我呢还是当你以前呢？”
+这些举足轻重的跨国企业（其中许多来自美国）减轻了拜登等领导人惩罚中国侵犯人权行为造成的政治上的不愉快，这些侵犯行为包括在西部地区新疆的镇压运动，美国国务院将其称为种族灭绝。
 
-他一定说：“爷呀，我当你澄道！我赶快去吧！”没有自由、没有希望、没有未来，剩下全是灾难。某网红被抓以后出来了，你知道很多网红都跟我有很深的关系，然后说：“叔叔，我后悔呀 ，没听你话。他们把我弄进来检查。”我说：“是捅你肛门呀，还是捅你嗓子？” “捅我嗓子。”我说：“还挺好，没捅你肛门都不错了。”他就笑：“郭叔一跟你就笑，我好多天都不会笑了，从里边儿出来我一听你说话就笑。”
+对冬奥会的赞助反映出在华跨国企业所面临的艰难抉择：要么可能被赶出日益敏感的中国，要么就得应对在华开展业务在声誉上造成的风险。对于这届北京冬奥会，他们的选择已经很明确了。
 
-他说在里边儿还问我：你跟郭文贵最近有没有联系呀？怎么怎么说，你给我如实的说说郭文贵，到底你怎么看郭文贵？他说我就傻乎乎跟他们说了：他是我的英雄！然后他如何如何的，我就差没听他的话，我要听他的话我就从英国不该回来，我要不回来你们也抓不着我，你们也不会把我这二十几个亿给弄走。
+虽然在多个国家都面临人权活动人士的抗议，但各家赞助商基本不为所动，而是选择继续让中国及其新兴的民族主义消费者群体满意。这些企业提出奥运会与政治无关，并且表示它们已在持续多届奥运的赞助合约上投入了数亿美元，不是只有北京冬奥会。最主要的13家奥运赞助商与国际奥委会签订的合同总额超过了10亿美元。
 
-他当初让我说我们叫马云叫“马爸爸”，他说你们不要那么愚蠢叫“马爸爸”，你们的爸爸就是你爸爸，不要叫马云爸爸，我就听他的了不叫马爸爸。
+但对于企业而言，批评中国的政策很可能[激怒中国的消费者](https://cn.nytimes.com/business/20210407/xinjiang-china-cotton-brands/)。中国社交媒体上的爱国者大军已经对他们眼里的外国品牌辱华行为作出过严辞谴责，而政府和官媒也经常放大这些恶言恶语。在对新疆强迫劳动的报道[表达关切](https://www.nytimes.com/2021/03/29/style/china-cotton-uyghur-hm-nike.html?action=click&amp;module=RelatedLinks&amp;pgtype=Article)后，阿迪达斯、耐克和一些时装品牌在中国遭遇了全国性的抵制。中共在新疆地区强行将数百万维吾尔族穆斯林关进了大规模拘禁营和再教育营。当时装零售商H&M承诺停止购买新疆棉后，中国消费者的[抵制](https://cn.nytimes.com/business/20210325/handm-boycott-china-uyghurs/)使其一个季度[损失了约7400万美元销售额](https://www.wsj.com/articles/h-m-pays-price-of-upsetting-beijing-as-china-sales-drop-11625136844)。
 
-后来就上市，上市赚钱，郭叔就说快把你钱先拿一部分现金搁起来，我就把一部分现金存起来，我只剩这些钱了。而且郭叔叔说千万你自己不要有划款权，给一个你海外的划款权。听了我了，在瑞士银行存的钱他自己没有任何划款的权利，专案组也划不走他的钱，给谁了？给了他海外的一个小姨，他小姨拿着钱呢。
+就连奥运会主要赞助商之一的英特尔，上个月也[面临抵制呼声](https://cn.nytimes.com/business/20211224/intel-apology-china-xinjiang/)，因为该公司发布了一封呼吁国际供应商避免从新疆采购产品的信函。面对愤怒，英特尔在几天内[重写了这封信](https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-english.html)，删除了提及新疆的内容。
 
-他说你们逼我也没用，我也拿不出来这钱，我就听了郭叔说。还有，我还买了他的喜币，买了五万喜币。专案组对这5万喜币大感兴趣：能不能把这五万喜币转给我们呢？
+关于这样的支持是否有效粉饰了中共的威权统治，主要赞助商均回避了相关问题，[有时方式还很笨拙](https://www.youtube.com/watch?v=NpkOD_jlJT0)。这些企业的高管认为，奥运会不应被政治化，并援引了[《奥林匹克宪章》](https://olympics.com/athlete365/app/uploads/2021/07/Rule-50.2-Guidelines-Olympic-Games-Tokyo-2020-Final.pdf)的相关内容，尽管有关奥运会的政治阴谋由来已久。
 
-你知道咱们一个战友，一个战友买喜币的人，被敲走了1200万人民币。就是专注办案给敲走了1200万，说：“我们要过年了弄点儿钱吧，你这币留着捐我们点儿钱，我们要过年去，我们要给你开发票。”
+在全球共同抵制北京冬奥会大趋势下，部分奥运会国际赞助商，对腐朽邪恶的中共政权还抱有幻想，以扶持中共助其成功举办冬奥会，这种变相的“利益输送”方式贿赂中共高层，妄图进一步扩大自己品牌在中共国市场占有率，在中共国的市场多分一杯羹。但是在现在中共国经济即将“崩盘”，“全球化”经济危机即将爆发的大趋势下，这些国际赞助商攫取利益的图谋将化为“泡影”，自身的丑行也会被钉在历史的耻辱柱上。
 
-还开发票啊，捐钱开发票！最后他捐了1200万，还开了个发票，叫“资助社会见义勇为基金”，开了发票1200万，币保。所以说澄道，我现在跟你说我不是开半点玩笑，你问问这些大网红，我说这网红都是上千亿身家的，他愿意做你还是愿意做他？
+信息来源：
 
-你告诉我人类今天经济危机谁能像爆料革命G系列一样，伸手就能拿现金回来？几亿、几百万、几千万，你给我想想找一个地方去，高盛都做不到，这吹狼蛋呢是吧？说到这儿还得唱：“在哪里？在哪里见过你？”
+[“中国是个例外”：为何国际赞助商不愿抵制北京冬奥会](https://cn.nytimes.com/business/20220128/olympic-sponsors-china-beijing/)
 
-字幕来源：[2022年1月24日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1909538/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
