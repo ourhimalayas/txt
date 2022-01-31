@@ -2,35 +2,19 @@
 ---
 
 
-## 为冬奥会 中共强行人工改变天气
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935268/)
+## 美国高院停止企业强制疫苗令
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935386/)
 
-撰稿：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-台媒1月30报道，临近北京冬奥开幕式，中共当局为营造虚假的天气良好状况，将对气候实施人工控制。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-据悉，中共为了制造所谓的奥运气候，授意北京市人工影响天气办公室，人工强行改变天气状况。在过去3个月里，该单位已经向张家口附近的云层，至少发射了250枚碘化银炮弹，另外还有12架云催化飞机随时待命。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-82.jpg)
-评论认为，中共此举不仅影响中共国，也将影响周边的印度、缅甸等国，加剧了国家主权与全球责任之间的道德气象紧张局势，甚至会出现法律诉讼。
+*发布：陶子*
 
-专家指出，人工影响天气引发了关于“一个国家有没有权利改变天气”“谁拥有用于云催化的空中水资源”的争议，同时，人工改变气候，也将引起世界对中共国致力于气候霸权的担忧。
-
-参考链接：[为冬奥会 中共强行人工改变天气](https://cn.rti.org.tw/news/view/id/2123481)
-
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
