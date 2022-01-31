@@ -2,8 +2,8 @@
 ---
 
 
-## 法律与行政命令
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935424/)
+## 未来会证明新中国联邦有多伟大
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935508/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

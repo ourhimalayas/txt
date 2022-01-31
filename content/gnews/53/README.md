@@ -2,19 +2,27 @@
 ---
 
 
-## 几句经典的话
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1932998/)
+## NewSGman┃北京冬奥会遭多国抵制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1933478/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团/NewSGman
 
-*发布：陶子*
+葡萄牙正式表态外交抵制北京冬奥会。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+葡萄牙外交部长席瓦1月24日在欧洲联盟外长会议后向记者表示，葡萄牙将不会派政治代表参与北京冬奥会仪式。
+
+欧洲议会通过香港基本人权遭破坏的相关决议案，面对中共“正当化专制体制”的企图，决议呼吁成员国对北京冬奥采取外交与政治抵制。
+
+为谴责中共国人权劣迹，英、美、加拿大、澳洲等国已宣布外交抵制北京冬奥，不派代表团，但也不阻止运动员参与。欧洲议会也建议成员国，对2月4至20日举行的北京冬奥发动外交与政治抵制。
+
+信息来源：
+
+[https://www.gettr.com/post/pqto07df06](https://www.gettr.com/post/pqto07df06)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

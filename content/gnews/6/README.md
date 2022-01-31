@@ -2,8 +2,8 @@
 ---
 
 
-## 西方被人家利用了法律程序
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935444/)
+## 记住必须戴口罩
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935518/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

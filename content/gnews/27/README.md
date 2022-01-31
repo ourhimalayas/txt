@@ -2,37 +2,42 @@
 ---
 
 
-## 没打疫苗拥有喜币 就是今年春节最快乐的人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935267/)
+## 中共联俄意欲发动两场战争的如意算盘落空
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1935289/)
 
-撰稿：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-郭文贵先生在1月29日香草山新春联欢中表示，今天最兴奋的人是真正在买喜币的人。
+**【国内新闻短评】**
 
-郭先生爆料称，有一位福建警察说，这几天过年，他可以骄傲地给家人说，我们有未来，因为我们有喜币。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Capture1-81.jpg)
-郭先生解释喜币涨到50元的意义，它涨一毛钱就是涨一倍，一块钱就是涨十倍。而且大家知道喜币在任何情况下都不可能再回到一毛钱一个币了。以目前50元，就是涨500倍。如果依此速度，解开锁币的时间会比预期的时间早很多。
+据新浪网2022年01月25日报道：美俄博弈加剧，乌克兰局势恶化。专家点评，乌克兰局势会加重美国与欧洲矛盾，美国将会优先考虑乌克兰局势。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2547-e1643598536683.png)图片来源： 新浪
+**短评：**
 
-郭先生提到，很多人希望郭先生帮他弄点喜币，并询问喜币会涨到多少钱，郭先生回答，喜币在未来一定会超过比特币的价钱。喜支付在几个小时后即将上线，喜联储将是世界真正的香草山。
+俄罗斯陈兵乌克兰边境，美国一边和俄罗斯在欧洲谈判，一边进行军事部署，向乌克兰运武器和部队，要求驻乌克兰使馆工作人员撤离。每当世界有动荡发生，就是中共砖家最兴奋的时刻，第一时间跳出来分析解读局势，恨不得给全世界指引方向。
 
-郭先生最后补充道，在这个特别的春节，爆料革命战友不打毒疫苗，又拥有喜币。能保有健康的身体又拥抱喜系列一切美好未来的无穷希望。将是此刻在世界上最高兴及充满希望的一群人。
+中共砖家既不在美国，也不在俄罗斯，为何得出美国会遭遇矛盾，优先考虑乌克兰局势呢？常言道“事出反常必有妖”，郭文贵先生多次提到乌克兰和中共的密切关系，指出中共花大价钱收买俄罗斯，想要同时发动亚欧两场战争，使得美国分身无术，无力派兵针对中共，从而实现武力占领台湾。
 
-参考链接：[没打疫苗拥有喜币 就是今年春节最快乐的人](https://gtv.org/video/id=61f5e4a281ce0a3ac2a166b6)
+郭先生近日爆料，中共为了让普京出席冬奥会，已经花费一千亿美金。现在又出大价钱，和俄罗斯唱“二人转”演戏，俄罗斯有可能假戏真做，直取基辅，让乌克兰跪下，最后美国被迫加入战争，消灭邪恶力量，方式取决于局势变化。
 
-![This image has an empty alt attribute; its file name is F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+美国总统拜登宣布，如果俄罗斯入侵乌克兰，美国不打算部署军队，但会针对俄罗斯和普京进行经济制裁。今早郭先生提前宣布，美国以疫情为由，即日起，撤离北京大使馆，开启灭共第三道大门。现在美国又不在乌克兰部属军队，其主要兵力将针对中共。没有了中共经济支撑的俄罗斯，精明如普京，到底作何进退？相信号称“双头鹰”的俄罗斯定会最终给中共致命一击。至此，中共想发动两场战争的如意算盘彻底落空。
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+“机关算尽太聪明，反误了卿卿性命”既是中共的宿命，也是新中国联邦人对中共的准确评价。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+文章观点仅代表作者个人，与gnews平台无关
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻链接：[https://news.sina.com.cn/w/2022-01-25/doc-ikyakumy2393905.shtml](https://news.sina.com.cn/w/2022-01-25/doc-ikyakumy2393905.shtml)
+
+素材：洛杉矶盘古农场 — Poplar
+
+评论：洛杉矶盘古农场 — Poplar
+
+审核：洛杉矶盘古农场 — 心照
+
+发布：洛杉矶盘古农场 — 恩典
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 记住必须戴口罩
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935518/)
+## 喜币值钱的地方
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935599/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

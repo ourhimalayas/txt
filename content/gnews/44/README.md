@@ -2,76 +2,49 @@
 ---
 
 
-## 【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1933874/)
+## 丹麦是第一个取消所有新冠限制的欧盟国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1935083/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+#### **【雅典娜观察】和您一起洞察世界**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+整理/编辑：文泓
 
-接[【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（上）](https://gnews.org/zh-hans/1933733/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-313.png)图片来源：Traveldone.net
 
-2021年11月26日至2022年1月8日，澳大利亚新南威尔士州总共273,511例明确知道疫苗接种状态的确诊病例中，打了一针疫苗的2,578例，接种两针或两针以上的267,381例，未接种疫苗的人群中仅确诊了3,552例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367-1.png)
+当地时间1月30日，据零对冲报道，上周晚些时候，**英格兰计划放弃对商店和公共交通工具的口罩强制规定，以及非常不受欢迎的疫苗护照制度**；在英国北部，苏格兰说它将“放宽”所谓的“在家工作指南”，并重新开放夜总会，以及结束营业场所对人数容量限制。
 
-2021年11月26日至2022年1月8日，3,022名Covid-19住院患者中，打了一针疫苗的80例，接种两针或两针以上的2,627例，未接种疫苗的人群中仅315例。
+当英国和爱尔兰小心翼翼地收回其极具破坏性的新冠病毒限制政策时，一些欧洲国家现在正引领潮流，完全废除整个“大流行”制度。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-368-1.png)
+**丹麦表示，它将取消几乎所有的新冠限制规定，并在周三停止将其指定为“（影响）社会关键”疾病，**这是西欧国家正在放宽甚至消减为打击奥密克戎变种病毒而采取的严格措施的最新迹象。
 
-2021年11月26日至2022年1月8日，282名进入ICU的患者中，打了一针疫苗的12例，接种两针或两针以上的215例，未接种疫苗的人群中仅55例。
+丹麦卫生部长马格努斯·赫尼克周三给议会写信说，他将在2月1日取消所有新冠疫情的限制，除了从国外抵达时的（核酸）测试。正如丹麦政府在9月取消所有限制一样，它也将不再称新冠病毒为“（影响）社会关键性疾病”，这意味着政府将不再有法律依据来引入广泛的限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-369-1.png)
+丹麦首相梅特·弗雷德里克森在上周三说：“今晚，我们紧张的压力可以松弛一下，重新找回我们的笑容。大流行病仍然在这里，但是根据我们现在所了解的情况，可以确信我们已经度过了关键阶段。”
 
-2021年11月26日至2022年1月8日，282名死者中，打了一针疫苗的3例，接种两针或两针以上的67例，未接种疫苗的人群中仅21例。
+追随了英国、爱尔兰和荷兰的脚步，丹麦是最近几天宣布放弃大部分或几乎所有限制措施的最新一个欧洲国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-370-1.png)
+在宣布这一消息时，奥密克戎的一个新亚变体BA.2正在丹麦“站稳脚跟”，并推动感染率上升，周三记录了46,000个新增病例。
 
-在确诊、住院、ICU和死亡中，打了一针的似乎都最少，但这完全是假象，不能说明接种一针疫苗似乎感染、住院、ICU和死亡都很少。
+“最近几周的感染率非常高，事实上是整个大流行病中最高的”，弗雷德里克森说：“因此，我们现在准备放开限制，这可能看起来有些奇怪和矛盾。”
 
-首先，根据澳大利亚卫生部门的统计规则（见报告31页），大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群中；
+根据丹麦卫生和药品管理局的数据，丹麦约有82%的人口完全接种了两剂疫苗，其中50%的人加强了第三剂。
 
-其次除了37.4%的5~11岁的儿童仅打了一针外，在年满16岁的人群中，95.4%被打了一针，94%被打了两针，也就是说，仅打了一针的仅1.4%，；而在12~15岁的人群中，打了一针的83.2%，打了两针的78.5%，也就是说，仅打了一针的才4.7%，基数本来就少。
+但也有媒体，如《金融时报》指出，随着舆论宣传的这种所谓“病例”（又称PCR阳性测试）的增加，新冠病毒导致的严重疾病并没有相应增加。
 
-而在新南威尔士州公布的疫苗接种状态中，只公布了年满16岁的人接种疫苗比率的时间曲线，并未公布16岁以下的人群是什么时候接种的。这让我们难以判断究竟有多少16岁以下的人是在确诊前21天内打的第一针。
+丹麦仍然是世界上人均新冠病例数最多的国家之一，目前是以前高峰期的10倍以上，因为奥密克戎每天造成数万人感染。但重症监护室的病人数量继续下降，从未达到2020年4月和2021年1月达到的峰值。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_23-46-13.png)
+在斯堪的纳维亚半岛的其他地方，瑞典、挪威和芬兰都已宣布他们也将在未来几周内放宽限制。
 
-根据澳大利亚卫生部门的介绍，澳大利亚是从去年1月25日开始向年满16岁的人注射辉瑞疫苗，去年7月22日开始向12~15岁的青少年打辉瑞疫苗，去年12月5日开始向5~11岁的儿童打辉瑞疫苗。
+新闻链接：[Denmark Is First EU Country To Scrap All COVID Restrictions | ZeroHedge](https://www.zerohedge.com/covid-19/denmark-first-eu-country-scrap-all-covid-restrictions)
+**发布：**tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Comirnaty-Pfizer-is-approved-for-use-in-people-aged-5-years-and-over.png)
-
-澳大利亚从去年2月15日开始向年满18岁的人注射阿斯利康疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaxzevria-AstraZeneca-is-approved-for-use-in-people-aged-18-years-and-over.png)
-
-澳大利亚从去年8月9日开始向年满18岁的人注射Moderna疫苗，9月3日开始向12~15岁的青少年注射Moderna疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Spikevax-Moderna-is-approved-for-use-in-people-aged-12-years-and-over.png)
-
-而2021年11月26日~2022年1月8日的中位日期为2021年12月17日，也就是说，5~11岁的儿童都是确诊前21天内第一次接种的疫苗，都被计入了未接种疫苗的人群。而12~15岁的青少年是从去年7月22日和9月3日才开始打疫苗，这些人打疫苗的时间比率曲线完全不知道。
-
-因此，如果南威尔士州不公布各年龄段的疫苗接种时间线，同时把接种第一针疫苗不超过21天的人混入未接种疫苗的人群中计算，极容易对公众产生误导，或者说错误的把大量第一次接种疫苗不超过21天的COVID-19患者计入未接种疫苗人群中，掩盖疫苗灾难的真相！
-
-但无论如何，南威尔士州的数据说明，COVID-19确诊、住院、ICU和死亡人群中，绝大多数为疫苗接种者，而未接种疫苗的人微乎其微。疫苗灾难正在爆发！
-
-参考资料：
-
-[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
-
-[COVID-19 vaccination update Vaccine doses administered to NSW populations](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/stats-nsw.aspx#today)
-
-[Spikevax (Moderna)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/moderna)
-
-[Comirnaty (Pfizer)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/pfizer)
-
-[Vaxzevria (AstraZeneca)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/astrazeneca)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW  Epidemiological week 1, ending 8 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

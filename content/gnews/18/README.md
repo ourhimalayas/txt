@@ -2,49 +2,24 @@
 ---
 
 
-## 中共腐败现实每况愈下
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1935343/)
+## 老有所养，老年人的尊严（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1935359/)
 
-作者：纽约磐石农场—在远方
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/01/老有所养，老年人的尊严（二）-.jpg)
+其实刚刚说养老了，这个事情其实我自己感触特别深，因为前几年的时候我奶奶生了一场重病，然后当时我是放假回家，然后去医院看我奶奶，然后那个时候我就觉得中国的老人的那些生存环境真的很差，因为我们家已经算是能给老人一些比较好的医疗条件了，但是国内的那些医院，哪怕它是那种三甲，或者是说上海市最好的医院，它的那些病床，然后还有它的那些厕所，那些装修真的就让我觉得就是根本就不像是你外面看到海市蜃楼的那种中国，然后一直到我奶奶，现在80多岁了，她现在枕头下面永远会压人民币，就是她就觉得她到那个年纪，她可能随时都会身上有病，然 后随时都要去医院，所以她自己的存折、银行卡，包括一些现金，她永远都压在自己枕头下面，就是这个习惯，她一辈子都改不掉，所以我就一直在想，以后有新中国联邦，我希望每一个家里的老人都能被善待，而且我觉的我也希望就是有这样一个很好的养老体系，每一个人都可以体面有尊严地老去，我觉的这是中国人那么多年以来一直都没有的，就不管你家的生活状况到底是如何，所以真的很感谢七哥，感谢爆料革命。
 
+七哥：小飞象我要跟你说一下啊佳佳，你看这个我出生的地方三河，后来我搬到了赵家沟，你看到这个地方三河，赵家沟，你看这个山脉，那个山顶，你看到没有？这个小墨镜这个家伙太可爱了，墨镜这个家伙太可爱太可爱了啊，太可爱了这个地方。
 
+*发布：开智则立*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-1月30日，“国际透明组织”公布了2021全球廉洁指数，针对180个国家和地区的政府部门的腐败程度进行排名，其中中共国排名第66，低于亚太地区平均水平。
-
-据悉，国际透明组织自1995年起，开始对世界各国贪腐情形进行追踪调查，发现许多国家反腐行动不但没有进展，甚至发生倒退现象。尤其是中共国，由于缺乏有效监督机制，中共从上至下，大量盗国贼及其家属，将海外视为窝藏贪腐所得的据点，并且中共国没有自由言论空间，当权者禁止政治改革，而所谓反贪腐打虎拍蝇行动，都是为了打击异己的手段而已。
-
-另外，该组织还发现，中共国以所谓外援的形式，将政府腐败的行为输出，让一些弱势国家的贪腐情况更为严重。分析人士指出，中共的独裁专制并非只是制度的优劣，更加能对民主国家带来制度侵害。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide7-9.jpg)
-参考信息：
-[習近平打虎拍蠅反貪無效 廉潔指數排名低於亞太國家平均水平](https://cn.rti.org.tw/news/view/id/2123296)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：飞虹
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
