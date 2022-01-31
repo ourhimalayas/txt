@@ -2,16 +2,38 @@
 ---
 
 
-## 郭文贵—让中共闻风丧胆的战神
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1934853/)
+## 有声|英国传奇摇滚巨星接种三针疫苗后染疫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1934997/)
 
-郭文贵先生是第一个以一己之力挑战强大邪恶统治的真男儿，他的名号已经成了灭共勇士的代名词。郭文贵先生引领的爆料革命和新中国联邦戳到了中共的痛处，使傲慢自负的中共措手不及。他让中共权贵闻之胆寒、无法安眠，令盗国集团恨之入骨、欲除之而后快，伪类们对郭先生的羡慕嫉妒恨已经到了疯狂地步。中共倾尽一国之力，动用沉默力量，甚至动用了各种暗杀手段要铲除郭先生这个中共的眼中钉。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月26日，据相关媒体消息显示，英国传奇摇滚天王艾尔-强顿当天凌晨通过社交媒体软件向外界透露了他感染中共病毒疫情的消息，同时，他原计划于美国德克萨斯州举行的演唱会也将因此确定延期。
 
-郭先生就是一面照妖镜，他揭开了中共用谎言蒙上的面纱，让全世界看清了中共的丑陋面目，他是当之无愧的灭共英雄，我们绝不应该害怕伪类们的抨击就不去赞颂他。作为郭文贵先生和爆料革命的忠实粉丝，在我们迈入2022春节之际，我们就是要大声地告诉世人，灭共战神郭文贵先生是当今世界的“真男儿”，是14亿中国人得到自由的希望！
+据悉，现年74岁的艾尔-强顿在欧美演艺圈有着举足轻重的地位，其更于去年荣获英国“名誉勋位”勋章，且他的传奇人生经常被好莱坞电影引用。
 
-作者：正道人
+值得注意的是，艾尔-强顿明确道，他已经接种过三针中共病毒疫苗，但而今仍然不幸感染中共病毒。
 
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
+原文链接：[英国传奇摇滚巨星接种三针疫苗后染疫](https://gnews.org/zh-hans/1926542/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
