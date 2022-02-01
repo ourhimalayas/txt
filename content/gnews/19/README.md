@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党卖国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940539/)
+## 江曾如何洗钱
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940769/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

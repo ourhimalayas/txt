@@ -2,36 +2,35 @@
 ---
 
 
-## 有声|德国卫生部将疫苗暴政甩锅软件错误
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940427/)
+## 单伟健是王岐山最大的马仔
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940673/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月28日，据相关媒体报道，在恐吓了当地未接种中共病毒疫苗的民众数月之后，德国卫生部长突然改变口风称，政府此前关于未接种疫苗的群体会引发中共病毒大传染的言论是错误的。同时，该卫生部长还将这一错误言论归因于“软件问题”。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-数据显示，德国先前的中共病毒感染病例数据呈现出令人难以置信的高增长态势。然而，汉堡市市长却在新闻发布会上声称，该市90%的感染患者出现在未接种疫苗的人群中，并以此强制当地民众接种中共病毒疫苗。
+单伟健对我的攻击，对咱们爆料革命的攻击是在美国最早我在华盛顿的演讲，他在背后作为赞助人干掉咱们，所以单伟建这个PAG当了主席。
 
-原文链接：[德国卫生部将疫苗暴政甩锅软件错误](https://gnews.org/zh-hans/1938284/)
+你看看在攻击我的同时，马瑞强奸案是他付钱，吴征、博讯案子是他付钱，连鸡腿潘的案子，都是他付钱。
 
-音频处理/发稿：Daxia
+单伟健又投了腾讯音乐，还有digital group37亿美元一起卖给了马云，又骗了美国几十亿美 元。就这一会儿一说，吴征就搞了50亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+单伟建的基金号称450亿美元，但英国几个上市公司也是几百亿美元，说上市就上市，说下市就下市，整个达沃斯马云带着十几个厨师行贿世界领导人的时候，单伟健在密室使相见, 沃顿学院美联储美财政部。
 
-**更多资讯，更多关注**
+你去想一想是什么既念?
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这是宝岐?绝对的最最忠实的马仔。然后跟（康蒂尔，人名）又在一起，是吧？然后你看蔡崇信又是跟他在一起的。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+你想想王岐山这个力量有多大？这些人你觉得他能看得起习近平吗？他半拉看不起。 这就为什么这次到盘古收家的时候专门讲了一句话啊，你不要以为王岐山拉倒了。。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/单伟健是王岐山最大的马仔_01.jpg)
+2021年12月08日文贵大直播
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

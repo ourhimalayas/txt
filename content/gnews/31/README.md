@@ -2,36 +2,43 @@
 ---
 
 
-## 有声|香草山农场之价值
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940259/)
+## 官方数据显示大多数感染者，住院者和死亡者都是疫苗的完全接种者，这是一场疫苗接种者的瘟疫。
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1940340/)
 
-配音：香草山巡管部– 文凯琳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022/1/29是纽约香草山农场壬寅年的新春联欢，由小飞象，大卫王做主持人，农场主长岛伟哥及铁血组的同仁们，老班长，木兰，草根，如水，小飞侠，同心同框，庆祝新年快乐。七哥作为特邀嘉宾，更作为建立新中国联邦的创世人，对香草山农场的付出做了最公正公平的肯定。
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-七哥说香草山农场是培养人才的基地，是爆料革命有史以来培养战友帮助战友最多的一个农场，发挥了香草山这个名字的联续和传承，永远给别人做嫁妆是香草山的使命。
+整理报道：小鱼儿
+编辑：文明明来了
 
-正如铁血组如水战友说的那样，香草山也可以说是爆料革命的黄埔军校，输送了一批又一批优秀的人才出去，这是长岛哥和香草山整体管理团队的力量！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/IHFKLB3CVUDAES7YWSJW.png)图片来源：雅典娜设计组
 
-原文链接：[香草山农场之价值](https://gnews.org/zh-hans/1934026/)
 
-音频处理/发稿：Daxia
+当地时间1月30日，据曝光（the exposé）新闻报道，根据澳大利亚新南威尔士州的官方数据，21年11月26日至22年1月8日期间，每10个住院人中就有9人，及每10个死亡人中就有8人是接种过三剂或两剂疫苗的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+新州每周都会发布一份新冠监测报告，内容包含按疫苗接种情况划分的新冠病例、住院和死亡的数据。最新一份报告发布于2022年1月13日。
 
-**更多资讯，更多关注**
+该份报告的第8页显示（感染者的接种情况），自从奥密克戎被发现以来，新州所有符合接种疫苗的人群（12岁以上）中，总共有273,511个确诊病例，其中有267,381为完全接种疫苗的人群，2,578个病例已经接种一剂，3,552个病例没有接种。这意味着，21年11月26日至22年1月8日期间新冠病例的中接种疫苗的人群占99%。
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该报告的第8页还显示了，医院中新冠人群的疫苗接种情况。21年11月26日至22年1月8日期间，新州共有3,022名新冠阳性住院患者。其中三剂或两剂疫苗接种者2627人，一剂接种者80人，而未接种者仅315人。这意味着，自从奥密克戎出现以来占因新冠住院人数的90%是接种过疫苗的人。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+在英国，由于缺乏数据，名人和政客可以对重症监护室中大多数新冠患者的疫苗接种情况进行虚假宣传。与此不同的是，新州政府友好地告知公众具体数据。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+报告的第8页显示，在21年11月26日至22年1月8日期间，在重症监护室有282名符合接种条件的新冠患者，其中完全接种疫苗的有215人，接种一剂的有12人，未接种的却只有55人。这意味着接种疫苗的人群占ICU中新冠病人的81%。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+最后我们来看看新冠的死亡情况。报告第8页显示了，21年11月26日至22年1月8日期间，总共只有91人死亡。 其中，67人完全接种疫苗，3人接种一剂，21人未接种。这意味着，接种疫苗的人数占所有新冠死亡人数的77%。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+在澳大利亚，之前政府花钱为避免一场 “尚未发生的大瘟疫”而购买和推动新冠疫苗注射，而现在看来这场大瘟疫才刚刚开始，而且这恰恰是一场属于疫苗接种者的瘟疫。
 
+参考新闻：[Covid-19 Deaths are rising sharply in Australia and official data shows the Fully Vaccinated account for 4 in every 5 of them](https://dailyexpose.uk/2022/01/30/australias-pandemic-of-the-fully-vaccinated/)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

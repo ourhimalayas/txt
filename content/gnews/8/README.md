@@ -2,19 +2,31 @@
 ---
 
 
-## 江朱家族拿了大钱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940715/)
+## 共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940842/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-*发布：陶子*
+进去后怕大家录像，马上先监控。你看他们，第一个是把监控室干掉，第二就是财务部。
 
+东西都别动，电脑别动，迅速冲进去。
+
+酒店是女孩占80%，都穿着睡衣睡觉呢，进去拿枪一顶，出去，啥也不让拿, 手机不能拿，你只要一动啪一下就用枪托给你砸下去。就这样对那帮女孩。零下四度，全站大街上去，有的女孩就穿一只鞋，有的光着脚就被赶到大街上去了，你们想过这有多残忍吗？
+
+这是北京首都，”依法治国’的共产党天下。有的客人问咋回事，啪一个大嘴巴子就扇上去了。
+
+最后就到我爹那儿去了。我爹是中风，这是一会儿清楚一会儿不清楚。进去的人先跟我爹说，谁让你住这儿，怎么样怎么样说这话，结果我爹说，我是不会离开这儿的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（二）_01.jpg)
+2021年12月08日文贵大直播
+
+*发布：tianzhihuan*
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
