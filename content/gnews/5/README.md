@@ -2,39 +2,50 @@
 ---
 
 
-## 最新：魁北克省政府让步，放弃“疫苗税”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1943142/)
+## “这是党内的裂痕”：奥图尔周三将面临领导层投票
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1943248/)
 
-**编译评论：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-38.png)**图片来源：**[**TVA Nouvelles 2022 年 2 月 1 日**](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
-**官方公告将在下午**** 1 ****点的发布。**
+作者：Alex Boutilier
+翻译：Himaboy
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-4.png)
+加拿大联邦保守党持续数月的内斗，严重削弱了党魁奥图尔(Erin O ‘Toole)的领导地位，周三，保守党议员将举行投票决定他是否下台。
 
-TVA Nouvelles（2022 年 2 月 1 日上午09:15）发表一篇题为《结束对未接种疫苗者的“疫苗税”》的文章报道，魁北克省弗朗索瓦·勒戈（François Legault）**政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）**的想法。
+多位保守党消息人士周一晚间证实，约占保守党119名党团成员30%的35名议员签署了一份请愿书，要求就奥图尔继续担任党团主席进行投票。
 
-官方公告将在当地时间今日下午 1 点（GMT-5）的新闻发布会上发布。
+党内反对奥图尔的派系认为，既然请愿书已经公开，会有更多的人在请愿书上签名。
 
-在周一接受 TVA 采访时，卫生部长克里斯蒂安·杜贝（Christian Dubé）确实表示，健康贡献对他来说“不是优先事项”。
+同时，奥图尔打算努力挽救他的领导地位。
 
-1 月 11 日，总理宣布他打算为未接种疫苗的魁北克人征收健康贡献税。他说：“10% 的人口会通过堵塞我们的医院来伤害另外 90% 的人口，这是不正确的。”
+“这不再是领导力的问题。这是党内的一个裂痕。”周一晚，一名议员在接受Global News采访时要求不具名。
 
-健身房的重新开放和成人运动的恢复也会在今天下午的新闻发布会上宣布。
+奥图尔周一晚些时候在推特上表示，他将接受投票结果。“我哪儿也不去，也不会回头。加拿大需要我们团结和认真。”
 
-**“****公民不服从****”****示威活动不断发生**
+如果他失败，保守党将陷入六年来的第三次党魁竞选。
 
-自从疫情爆发到现在两年多的时间以来，反对卫生措施的“公民不服从”示威活动不断发生。这些示威活动合法地，积极地、非暴力地表示了拒绝接受政府的命令的愿望。现在，我们看到“魁北克省勒戈（François Legault ）政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）的想法”。最终结局如何，让我们拭目以待。
+如果奥图尔赢得了投票，他将在主持保守党党团会议时充分意识到，大量议员已经对他的领导失去了信心，并可能继续在公开和私下里削弱这种信心。
 
-**参考资料**：
-TVA Nouvelles（2022 年 2 月 1 日 09:15）Terminé le «vaccimpôt» pour les non-vaccinés. [https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
+去年9月保守党在大选中的结果令人失望，尽管奥图尔在支持碳定价和巨额赤字支出方面下了很大的赌注，但他还是面临着多次要求他下台的呼声。最近，多个保守党选区协会呼吁对奥图尔的领导能力进行提前评估，而不是计划中的2023年年底。
 
-编辑：MQ
+来源：https://globalnews.ca/news/8584864/erin-otoole-leadership-vote-wednesday/
 
-发布：MQ
+（文章仅代表作者个人观点）
 
-20220201
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

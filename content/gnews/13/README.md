@@ -2,32 +2,39 @@
 ---
 
 
-## 科顿参议员指出本不该让中共举办冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943053/)
+## 最新：魁北克省政府让步，放弃“疫苗税”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1943142/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月30日，科顿参议员指出中共根本没有资格举办冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-01-上午11.42.56.png)
-科顿参议员提到，在他2年前刚开始质疑病毒起源于武汉实验室的时候，遭到了福奇、柯林斯为首的各方打压。而2021年越来越多的证据指向了，病毒最有可能起源的地方就是研究了蝙蝠冠状病毒，并且有蝙蝠女王之称的石正丽所在的武汉实验室。
+**编译评论：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-38.png)**图片来源：**[**TVA Nouvelles 2022 年 2 月 1 日**](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
+**官方公告将在下午**** 1 ****点的发布。**
 
-科顿参议员指出，在这样的背景下，中共本来就不应该拥有举办冬奥会为其进行宣传的巨大机会，应该在一年前就把冬奥会举办权交给其他国家。
+TVA Nouvelles（2022 年 2 月 1 日上午09:15）发表一篇题为《结束对未接种疫苗者的“疫苗税”》的文章报道，魁北克省弗朗索瓦·勒戈（François Legault）**政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）**的想法。
 
-参考链接：[https://www.gettr.com/post/prm20rf80a](https://www.gettr.com/post/prm20rf80a)
+官方公告将在当地时间今日下午 1 点（GMT-5）的新闻发布会上发布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+在周一接受 TVA 采访时，卫生部长克里斯蒂安·杜贝（Christian Dubé）确实表示，健康贡献对他来说“不是优先事项”。
 
-总编：文真
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+1 月 11 日，总理宣布他打算为未接种疫苗的魁北克人征收健康贡献税。他说：“10% 的人口会通过堵塞我们的医院来伤害另外 90% 的人口，这是不正确的。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+健身房的重新开放和成人运动的恢复也会在今天下午的新闻发布会上宣布。
+
+**“****公民不服从****”****示威活动不断发生**
+
+自从疫情爆发到现在两年多的时间以来，反对卫生措施的“公民不服从”示威活动不断发生。这些示威活动合法地，积极地、非暴力地表示了拒绝接受政府的命令的愿望。现在，我们看到“魁北克省勒戈（François Legault ）政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）的想法”。最终结局如何，让我们拭目以待。
+
+**参考资料**：
+TVA Nouvelles（2022 年 2 月 1 日 09:15）Terminé le «vaccimpôt» pour les non-vaccinés. [https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
+
+编辑：MQ
+
+发布：MQ
+
+20220201
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

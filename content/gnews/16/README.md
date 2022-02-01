@@ -2,35 +2,18 @@
 ---
 
 
-## 有声|郝海东先生呼吁：不要做中共炮灰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943029/)
+## 青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1943091/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
+重大好消息！！
 
-中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
+科学家战友在欧洲一个军事级别的医学研究所，正在研究和测试与青蒿素相关的鸡尾酒疗法。该疗法能更深层次的清除疫苗余毒，甚至有可能达到100%清毒，并且对新冠也有很高效的治疗用。 目前该疗法的成本大约1美金一副。 郭文贵先生已经预定了约1亿美金的药物，专门供应爆料革命、新中国联邦的战友使用。还要等待最后的确认。
 
-没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
+视频来源: 20220201- -虎年新春直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
-战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
-
-郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
-
-文字版原文：[郝海东先生呼吁：不要做中共炮灰](https://gnews.org/zh-hans/1932979/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
