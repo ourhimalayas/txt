@@ -2,44 +2,76 @@
 ---
 
 
-## 2/1/2022国际财经快讯：澳大利亚央行结束债券购买，不急于加息；石油价格攀升
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1942675/)
+## 【Michael.Tonny专栏】奥地利的强制疫苗法毫无科学依据！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1942775/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1.png)[图片来源](https://dzm0ugdauank9.cloudfront.net)
-**1.****澳大利亚央行结束债券购买，但不急于加息**
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-[悉尼（路透社）–澳大利亚央行周二将其现金利率维持在0.1%的历史最低水平，并如预期般结束了2750亿澳元（1944亿美元）的债券购买活动，但对市场上关于提前加息的赌注进行了严厉的回击。在结束2月份的政策会议时，澳大利亚储备银行(RBA)强调，停止购买债券 “并不意味着 “短期内加息，委员会仍准备保持耐心。澳大利亚央行行长Philip Lowe在一份简短的声明中说：”正如委员会之前所说，在实际通货膨胀率可持续地处于2-3%的目标范围内之前，它不会提高现金利率。虽然通胀率已经回升，但现在得出结论说通胀率可持续在目标范围内还为时过早。”尽管市场仍然认为澳大利亚央行在通胀问题上落后于形势，但这一鸽派信息使当地美元略微下滑至0.7055美元。洛威现在将在周三发表关于政策的演讲，该银行将在周五发布一整套经济预测。](https://www.oann.com/australias-central-bank-ends-bond-buying-in-no-rush-to-hike-rates/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-**2.****俄罗斯****1****月制造业因需求强劲而上升**
+尽管抗议浪潮不断，奥地利议会1月20日仍然以137票赞成和33票反对通过从2月4日开始强制成年人接种Covid-19疫苗，成为第一个强制疫苗的欧洲国家。时任奥地利总理亚历山大·沙伦伯格（Alexander Schallenberg）在介绍强制接种疫苗计划时说，这是避免新一轮病毒爆发的唯一方法！
 
-[莫斯科（路透社）–周二的一项调查显示，由于新的订单和更强的需求促使企业加大招聘力度，俄罗斯制造业活动在1月份有所扩大。1月Markit采购经理人指数（PMI）从上月的51.6升至51.8，连续第四个月高于分隔扩张与收缩的50.0标志。IHS Markit的高级经济学家Sian Jones说：“随着国内外客户需求状况的改善，俄罗斯制造业企业在2022年有了一个令人鼓舞的开始。”企业将新销售的增长与更强劲的商业和消费支出联系起来。月度调查显示，制造业创造就业的速度是2018年11月以来最快的，因为乐观程度上升到4月以来的最高点。](https://www.oann.com/russian-manufacturing-sector-rises-in-jan-on-stronger-demand-pmi/)
+根据这项2月4日生效的新法律，在最初的“介绍性阶段”之后，从3月中旬开始，那些拒绝注射的人可能面临高达3,600欧元（4,100美元）的罚款。该措施适用于成年人，孕妇和医疗豁免者除外。那些不遵守新的强制性疫苗接种法的人最初可能会收到一封正式的信件，然后才会被处以罚款。
 
-**3.****澳大利亚博拉公司将向股东返还****30****亿澳元，股票上涨**
+为了激励那些对注射COVID-19病毒疫苗仍然犹豫不决的人，奥地利政府正在为所有接种疫苗的人了推出500欧元的代金券彩票，这些代金券可用于商店、酒店、餐馆以及文化和体育场馆。
 
-[(路透社）–建筑材料制造商博拉有限公司将向其股东返还30亿澳元（21.2亿美元），主要使用出售几项北美业务的收益，这些业务帮助其重新专注于国内市场。这家在澳大利亚上市的公司股价上涨6.8%，至6.27澳元，创下2021年6月以来的最大盘中百分比涨幅。博拉公司周二表示，此次现金分配将采取每股2.65澳元的等额资本削减和每股0.07澳元的股息形式。这也意味着，很大一部分回报将归于其最大股东，亿万富翁媒体大亨Kerry Stokes的Seven Group Holdings。公告发布后，Seven的股票也上涨了约2%。柒牌集团拥有博乐近70%的股份，去年9月，柒牌集团将其股份从近20%增加到了70%。7月，博拉公司任命Seven的老板Ryan Stokes为其董事长。](https://www.oann.com/australias-boral-to-return-a3-billion-to-shareholders-shares-rise/)
+根据霍普金斯大学统计数据，截止到美东时间上午7时21分，奥地利9,043,072人口中，总共有1,881,472人感染中共病毒，占该国人口的20.8%，14,127人被中共投放的COVID-19生化武器杀害。
 
-**4.****瑞银公布****2006****年以来最佳年度利润，制定更宏伟的目标**
+面对中共向全世界发动的生化武器战争，奥地利政府单纯依靠如此疯狂的举动，强迫民众注射试验性的中共病毒疫苗就可以减少感染吗？
 
-[路透社苏黎世2月1日电–瑞银集团(UBSG.S)周二公布了自全球金融危机以来的最佳年度利润，这使它更有勇气增加股票回购，并制定了更雄心勃勃的利润目标，因为它的银行认为更多的数字产品将带来巨额的成本节约。瑞士最大的银行在2020年11月首席执行官拉尔夫-哈默斯(Ralph Hamers)掌舵以来的第一次重大战略审查中表示，它希望利用技术帮助它在未来几年增加收入和接触更多客户，同时也继续降低成本。“瑞银的状况比以前更好，”哈默斯在一份声明中说。”我们正在调整我们的覆盖模式，以提供更多的数字化和可扩展的建议以及定制的解决方案。”它宣布了今年高达50亿美元的股票回购计划，此前在2021年回购了26亿美元，并表示它提议将去年的股息从2020年的0.37美元提高到0.50美元/股。](https://www.reuters.com/business/finance/ubs-plans-boost-profitability-posts-q4-net-profit-fall-2022-02-01/)
+答案是绝对不可能！
 
-**5.****日本野村第三季度净利润下降****39%****，因为大流行时期的交易热潮有所减缓**
+奥地利自前年12月27日开始注射COVID-19病毒疫苗，目前，总共有17,603,180剂中共病毒疫苗被打入奥地利人的体内，平均每人1.95剂，这在全世界都是非常高的COVID-19病毒疫苗接种率。
 
-[东京，2月1日（路透社）–日本最大的经纪和投资银行野村控股公司（8604.T）周二报告称，由于大流行时期的交易热潮减弱，第三季度净利润下降38.7%。但这是野村四个季度以来首次在海外没有重大的一次性损失，此前野村曾因美国投资基金Archegos的倒闭而受到29亿美元的打击，并因遗留交易而产生3.45亿美元的费用。10-12月的利润为603亿日元（5.2470亿美元），低于去年同期的984亿日元。惨淡的第三季度收益反映了全球市场交易业务的放缓，由于美联储向资本市场注入大量现金，该业务在前一年曾受益于高交易活动。](https://www.reuters.com/markets/deals/japans-nomura-q3-net-profit-drops-39-pandemic-era-trading-boom-slows-2022-02-01/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Austria-People-Vaccinated-per-Hundred.jpg)
 
-**6.****报告称美国公共养老基金可能转向更 ****“****积极 ****“****的投资**
+截止到1月28日，奥地利1针，2针和加强针疫苗接种率分别是74.59%，74.49%和48.51%。这在欧洲国家中属于非常高的比例。除非成人全部打加强针，小孩也全部打针，否则提高接种率的可能性非常低。
 
-[纽约，1月31日（路透社）–一份新报告称，尽管在2021年股票市场繁荣的情况下，主权投资者持有的资产已经增长到创纪录的水平，但美国公共养老基金在未来几年可能不得不转向更积极的投资策略以填补资金缺口。主权投资者专家Global SWF在一份报告中说，平均而言，美国公共养老基金的资产和负债之间的差额（被称为 “资金到位率”）仍然 “不令人满意”，低于75%。Global SWF的Diego Lopez告诉路透社，为了提高回报率，许多人可能不得不专注于替代资产，包括私募股权和私人信贷。”包括物流地产和基础设施在内的某些领域的实物资产也可能因兴趣增加而受益，对冲基金将继续成为美国\[公共养老基金\]投资组合的重要组成部分。”](https://www.reuters.com/business/us-public-pension-funds-seen-turning-more-aggressive-investment-report-2022-01-31/)
+然而，最近28天内，奥地利新增COVID-19病例566,749例，其中493,837例集中在最近20天内，最近10天，新增感染病例324,659例，1月22日达到创记录的46,669例，1月27日也出现43,053例。
 
-**7.****石油****价格因供应减少和大流行病后的复苏而攀升**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Austria-New-Cases.jpg)
 
-[东京，2月1日（路透社）–油价周二攀升，在上周创下的七年高点附近徘徊，原因是预计主要产油国的有限增产和大流行后燃料需求的稳固复苏将保持供应紧张状态。4月交货的布伦特原油在0455GMT时上涨34美分，或0.4%，报每桶89.60美元。3月份交割的前月合约周一到期时为每桶91.21美元，上涨1.3%。美国西德克萨斯中质原油上涨32美分，或0.4%，至每桶88.47美元，前一日上涨1.5%。这两个基准在周五创下了2014年10月以来的最高水平，分别为91.70美元和88.84美元。在供应短缺以及东欧和中东的地缘政治紧张局势下，它们在1月份已经上涨了约17%，是2021年2月以来的最大月度涨幅。](https://www.reuters.com/business/energy/oil-edges-higher-tight-supply-post-pandemic-recovery-2022-02-01/)
+从2019年末、2020年初中共发动生化武器战争以来，到目前为止，奥地利50%的新增感染病例发生2021年11月11日以后的最近81天内。
 
-**8.****软银投资****的****加密货币交易所****FTX****估值为****320****亿美元**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Austria-Total-Cases.jpg)
 
-[伦敦，1月31日（路透社）–主要加密货币交易所FTX周一表示，从包括软银（9984.T）在内的投资者那里筹集了4亿美元，估值达到320亿美元，使该平台成为快速增长的数字货币领域最有价值的初创企业之一。FTX表示，本轮融资还包括来自新加坡淡马锡控股\[RIC:RIC:TEM.UL\]和安大略省教师退休金计划委员会等机构的投资。总部位于巴哈马的FTX是FTX.com的所有者和经营者，这是一个加密货币平台，面向包括美国以外的零售和机构投资者在内的广泛客户群。该公司目前在过去六个月中共筹集了18亿美元，在风险资本对这个自COVID-19大流行开始以来引起空前兴趣的行业的押注推动下。](https://www.reuters.com/markets/us/crypto-exchange-ftx-valued-32-bln-softbank-invests-2022-01-31/)
+去年11月11日，奥地利1针、2针、加强针疫苗的接种率已经达到67.65%、63.78%和7.02%。与1月31的74.59%、74.49%和48.51%相比，1针和两针增加很少。而1月31日的加强针接种率是去年11月11日的6.91倍，而总计感染率是2倍。
 
-By 【秘密翻译组-金融组】
-作者：千年等一回
+说明打疫苗加强针不但不能预防感染，反而极大地增加了新增确诊率。
+
+因此，奥地利议会的决策显然是不顾科学统计结论，毫无理由，甚至可以认为严重损害公众利益！必然遭到人民的反抗！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/austria-is-becoming-the-first-european-union-country-to-make-covid-19-vaccination-legally-compulsory-for-adults.png)
+
+目前，全球范围内只有厄瓜多尔（Ecuador）、塔吉克斯坦（Tajikistan, Turkmenistan, Indonesia and Micronesia）、土库曼斯坦（Tajikistan）、印度尼西亚（Turkmenistan, Indonesia）和密克罗尼西亚（Micronesia）存在强制性COVID-19疫苗接种计划，但全球范围内类似的强制COVID-19病毒疫苗接种仍然很少见。
+
+自去年11月以来，奥地利仅允许接种疫苗或最近从COVID-19中治愈的人进入餐馆、理发店、酒店、非必需品商店、体育和文化场所。这引发了零售业的抱怨，零售业的员工必须充当“辅助警察”，检查客户的疫苗通行证。
+
+疫苗反对者创建了一个新的代表“人民、自由、基本权利”的政党MFG。根据去年12月的一项民意调查显示，6%的奥地利人表示他们准备投票给MFG。已经有美发师愿意为那些没有接种疫苗或刚刚从COVID-19中治愈的人提供服务，人们仍然通过社交网络组织私人聚会，一起喝咖啡。
+
+如果奥地利政府真的在3月中旬对拒绝COVID-19病毒毒疫苗的民众罚款3600欧元，特鲁多应当是前车之鉴！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/protesters-have-taken-to-the-streets-of-Austria-to-rally-against-compulsory-vaccinatination.png)
+
+参考数据：
+
+[Austria makes Covid vaccination mandatory in EU first](https://www.france24.com/en/live-news/20220120-austria-makes-covid-vaccination-mandatory-in-eu-first)
+
+[Unvaccinated and undeterred: Austria holdouts dig in despite new law](https://www.france24.com/en/live-news/20220131-unvaccinated-and-undeterred-austria-holdouts-dig-in-despite-new-law)
+
+[Austria holdouts dig in despite new law](https://www.dailyadvent.com/news/b7d7ed957632e830c8643293ebd8145b-Austria-holdouts-dig-in-despite-new-law)
+
+[Live COVID-19 Vaccination Tracker Austria](https://covidvax.live/location/aut)
+
+[Austria Coronavirus COVID-19 Vaccination Rate](https://tradingeconomics.com/austria/coronavirus-vaccination-rate)
+
+[Total number of recorded vaccinations against the coronavirus (COVID-19) in Austria in 2022, by federal state](https://www.statista.com/statistics/1201038/coronavirus-covid-19-vaccinations-federal-state-austria/)
+
+[Which countries in Europe will follow Austria and make COVID vaccines mandatory?](https://www.euronews.com/2022/02/01/are-countries-in-europe-are-moving-towards-mandatory-vaccination)
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

@@ -2,22 +2,36 @@
 ---
 
 
-## 美国将严厉制裁俄罗斯 俄将全面启用人民币
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1943059/)
+## 喜支付成功上线影响深远
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943115/)
 
-重要消息！！
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月31日，文贵除夕大直播传出重大消息，中共开出天价，企图阻止喜支付上线，但安卓版喜支付程序已经成功上线。
 
-北京冬奥后，世界政治经济局势将大变！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-1.jpeg)
 
-美国准备开始严厉制裁俄罗斯，俄罗斯将启用人民币。
+据消息人士向郭文贵先生透露，北京冬奥后，世界政治经济局势将发生巨大变化。俄罗斯将启用人民币，这迫使该国富豪把财富转入喜联储。喜支付上线，令通过喜币、喜美元进行大宗原油和天然气的对价交易成为可能，而且机构已经使用喜币，以自定义的价值成功实现了多笔交易。
 
-俄罗斯、乌克兰等国的富豪准备入场喜币！ 喜币、喜支付最大的流通市场极有可能会是俄罗斯和乌克兰。Google Hpay已经上线，喜币、喜联储的一飞冲天，谁都挡不住。
+郭先生预测，俄罗斯和乌克兰一定会是喜币最大的流通市场，日本则会是第二大喜币、喜美元的应用市场。
 
-视频来源: 20220201- -虎年新春直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+喜联储拥有世界上最安全的信息系统，用户拥有的喜币数量和喜支付交易的信息安全有极高保障。喜支付的成功上线，标志着喜联储、喜币已经打通了任督二脉。喜币成为数字货币之王，将势不可挡。喜支付的使用安全便捷，是打破世界暴政的利器。喜支付成功上线，前所未有地启动了插往中共身上的吸血管，使中共吐出从老百姓身上吸走的血。
 
+参考链接：[Watch MILES GUO live on GETTR2022年壬寅年新春大直播](https://gettr.com/post/prm988df17)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

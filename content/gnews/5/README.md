@@ -2,35 +2,37 @@
 ---
 
 
-## 有声|郝海东先生呼吁：不要做中共炮灰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943029/)
+## 无国界记者组织谴责中共国对新闻的“空前镇压”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1943064/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
+翻译：七龙珠
 
-中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-01-174350.jpg)图片来源: elperiodico.com
 
-没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
+距离中国迎来冬奥会只有短短几天时间，无国界记者组织将他们的报告翻译成九种语言，谴责中共政权对中国的新闻和信息自由进行“前所未有的镇压”。
 
-战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
+在82页的报告中，无国界记者组织分析了北京如何对国内记者和外国记者施加压力，以及其对香港新闻界的镇压。最近几个月，在香港这个以前被认为是典范的地区，警方对独立媒体的突击检查激增。这种严酷的民主倒退因《国家安全法》的通过而演变得更加剧烈，该法被用来迫害批评政权的新闻声音，并指控他们为“恐怖主义”或“叛乱”。
 
-郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
+无国界记者东亚局局长Cédric Alviani在报告中说：“尽管习近平大规模打压新闻自由和知情权，但他希望冬奥会能帮助他重获威望”，无国界记者组织还敦促民主国家“加倍施压，劝阻中国政权推行其自由主义政策”。
 
-文字版原文：[郝海东先生呼吁：不要做中共炮灰](https://gnews.org/zh-hans/1932979/)
+互联网，加倍力度的审查制度
 
-音频处理：Fei797
-发稿：Fei797
+为了驯服公众舆论，北京已经把互联网变成了一只万能的监控眼睛。被称为“长城”的中共国监控机器严格控制着媒体和电信运营商，迫使他们越来越严格的审查政权敏感问题，如西藏或公民抗议，并放大中国共产党的官方宣传版本。北京还利用机器人和粉红大军在网络上充斥其口号，骚扰批评者，包括西方记者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM.png)
+此外，所有私人数字通信都被当局控制，这损害了记者的消息来源的安全性。在一个有“黑监狱”的国家，在没有任何法律辩护权的情况下拘留和折磨持不同政见者，这对真实新闻报道是一个重大风险。自2019年起，想要获得或更新记者证的中国记者必须下载一个手机应用程序，该程序会在未经他们同意的情况下提取个人信息。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据无国界记者的年度世界新闻自由指数，中共国在180个国家中排名第177。该报告于去年12月以英文和法文出版，现在已被翻译成西班牙文、德文、阿拉伯文、中文、俄文、韩文、日文、蒙古文和葡萄牙文。
+
+新闻来源: [elperiodico.com] [Reporteros Sin Fronteras denuncia la “campaña de represión sin precedentes” a la prensa en China](https://www.elperiodico.com/es/internacional/20220131/reporteros-fronteras-denuncia-represion-prensa-13173962)
+
+* * *
+
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-1.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,32 @@
 ---
 
 
-## 王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1942410/)
+## 新中国联邦将助邓丽君女士实现“一帘幽梦”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1942651/)
 
-2022年中国中央电视台春节联欢晚会落下帷幕，无数明星齐聚舞台，卖力地为这个吃人不吐骨头的盛世涂脂抹粉。明星在舞台上熠熠生辉，但背后却是一只看不见的黑手，无形地在控制明星。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2022新春大直播中，郭先生演绎了改编版的《一帘幽梦》，表示新中国联邦会助邓丽君女士实现未了的夙愿，替国内同胞争取法制、自由、民主，消灭邪恶中共。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-9.jpg)
+89年六·四事件发生以后，邓女士在同年11月24日的日本演唱会上表示，无论走到世界何处，永远都是中国人。每一位国人都应该享有自由，相信这一天一定会到来。邓女士身处台湾却心系国内同胞，因赞美人性、热爱自由的甜美歌声太受欢迎而遭到中共的打压，一生未能踏上大陆的土地。
 
-2021年底王力宏遭到其妻李靓蕾毁灭性的千字血泪信揭发真面目，声称王力宏在每一个城市都有不同的约炮对象，一时间，中共舆论狂潮口诛笔伐，王力宏人设崩塌，逃无可逃，成为公众眼中不折不扣的渣男。这次，中共又成功地动用了其翻手为云、覆手为雨的媒体力量，将王力宏彻底抹黑，从粉丝心理将王力宏诛杀，王力宏的几家代言合作也随之取消。
+郭先生用粗犷的嗓音演绎了新中国联邦版的《一帘幽梦》，并发出誓言，愿万佛万神护佑天堂里的邓丽君女士。新中国联邦一定会完成她的心愿，把民主、法制和自由，带给每一位善良勤劳智慧的中国人！
 
-据说，王力宏是因为得罪彭丽媛、宋祖英遭到秋后算账。2021年年底，王力宏成功碾压李云迪、吴亦凡，高居明星人气榜榜首。杀鸡儆猴，王力宏因个人私德被舆论掀翻，让整个娱乐界风声鹤唳、战战兢兢。
+参考链接：[2022年壬寅年新春大直播](https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55)
 
-2021年底几乎同时登上热搜榜榜单的明星是何韵诗。2021年12月29日，《立场》新闻前董事及前总编辑等七人以涉嫌违反“串谋发布煽动刊物罪”，被香港警察国安处高调拘捕，其中包括香港歌手何韵诗。此事瞬间引发舆论狂潮。一方面舆论对中共在香港肆无忌惮制造白色恐怖，打压香港自由，港警迅速黑化表达了强烈的愤怒和愤慨，另一方面，何韵诗再一次走入人们的视线，成为舆论关注的焦点。人们对何韵诗的各种赞美铺天盖地，更有无数人用行动表达了对何韵诗的支持和敬佩。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-01-29-at-7.35.34-PM.png)
 
-作者：华盛顿DC农场 海阔天空
+总编: Zion文恩
+编辑： 文真
+校正/发稿：Fei797
 
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

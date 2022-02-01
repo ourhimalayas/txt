@@ -2,36 +2,70 @@
 ---
 
 
-## 红色新中国联邦国旗首现2022新中国联邦春晚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1942890/)
+## 文•贵天成——文贵先生谈“北京冬奥会”（二十七）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1943030/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年1月31日新中国联邦2022年新春晚会上首次向全球战友们展示了红色新中国联邦国旗。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3.jpg)
-郭先生向战友们解释了红色新中国联邦国旗跟中共血旗的区别。
+整理：BENJ1
+编辑：Kelly
 
-郭先生说，红色新中国联邦国旗的红色是太阳的红，象征着光明，象征我们崇拜的是太阳，红色新中国联邦国旗是铲除邪恶的红旗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/dfdef.png)图片来源：雅典娜设计组
 
-中共国旗的红是鲜血的红，代表着暴力与杀戮；代表着流血。代表杀人后血染的红旗。
 
-郭先生强调，红色不能被共产党垄断，就像中国的权力不能被共产党垄断一样，中国人的幸福和健康更不能让共产党说了算。
+郭文贵先生**2022**年**1**月**21**日直播
 
-参考链接：[2022年壬寅年新春大直播](https://gtv.org/broadcast/watch/61f7dc4d96ba5d73e0bfcc56)
+我们就把这些东西全部整理完以后，让西方看到，你们的大企业还能待在中国吗？撤，全都要撤！连黑龙江、吉林、辽宁这种破地方的外国投资企业都在撤，美资、欧资。这三招儿决定了冬奥会绝对是老天赐给我们的礼物，是共产党的噩梦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM.png)
+七哥成就最牛的人生，最辉煌的时刻，就是北京奥运会2008，七哥独享天下。七哥在那时候积累的政治财富和财富，天下无人能比，甭说中共国了，全世界也没人能比，只有七哥能创造出两千倍的回报。
 
-总编: 文真
-编辑：文特
-校正/发稿：Fei797
+全世界的精英围绕在七哥的身边，又赚钱又赚名，还赚机会。你想想七哥玩儿奥运，习近平他算老几呀？共产党算老几呀？冬奥会七哥比他玩儿得更厉害，七哥跟这奥运会真有关系。这次七哥在冬奥会上、在全球的举动，有一天你们知道的时候，绝对会让你震撼。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这种操作绝对是一人打一国的超级水平，拍电影的，什么美国的电影，绝对没有七哥这实际的功力厉害。未来有人拍电影的时候，未来看咱新中国联邦历史最核心之一，就是怎么能让冬奥会这帮人都不敢去的。
+
+你会看到一系列（操作），现在我不能说，说了就破功了。现在咱得保持着“童子功”，咱把它冬奥会给毁掉之前咱不能说。所以战友们，一定要记住，如果天不助你的时候，你真是“喝水都塞牙缝”。现在就是天在帮咱，而且老天让七哥到这世界上绝对就是为灭共来了。
+
+如果七哥没有经历过2008的奥运会，从1999年到现在，我怎么有能力、有智慧、有本事干掉北京冬奥会。干掉北京冬奥会光有钱，光有脑子，光有权力是不行的。你得懂这人际关系，哪个奥林匹克官员跟七哥没有过关系呀？你怎么知道他在盘古睡觉的时候，玩儿小姑娘的时候，七哥没给他录点儿小视频呢，是吧？
+
+共产党会玩儿，咱也会玩儿。对坏人用的招儿，咱通用嘛，是吧？这个今天跟你说透了吧，用东北话说，跟你说点儿透话，说点儿明白话。冬奥会我最担心去年说不开了，我心说完了，因为这疫苗的问题。只要它没停，当时我就天天偷着乐。现在它想收都收不回去了。
+
+资料来源：郭先生GTV和盖特直播视频
+
+**往期回顾：**
+[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
+[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
+[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
+[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
+[文·贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1913831/)
+[文·贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1916177/)
+[文·贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1914628/)
+[文·贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1918018/)
+[文·贵天成——文贵先生谈“北京冬奥会”（九）](https://gnews.org/zh-hans/1918752/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十）](https://gnews.org/zh-hans/1917988/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十一）](https://gnews.org/zh-hans/1918147/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十二）](https://gnews.org/zh-hans/1921128/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十三）](https://gnews.org/zh-hans/1922599/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十四）](https://gnews.org/zh-hans/1921604/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十五）](https://gnews.org/zh-hans/1921478/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十六）](https://gnews.org/zh-hans/1925490/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十七）](https://gnews.org/zh-hans/1924447/)
+[文·贵天成——文贵先生谈“北京冬奥会”（十八）](https://gnews.org/zh-hans/1924304/)
+[文•贵天成——文贵先生谈“北京冬奥会”（十九）](https://gnews.org/zh-hans/1931480/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二十）](https://gnews.org/zh-hans/1925718/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二十一）](https://gnews.org/zh-hans/1931539/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二十二）](https://gnews.org/zh-hans/1931497/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二十三）](https://gnews.org/zh-hans/1931975/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二十四）](https://gnews.org/zh-hans/1931785/)
+[文•贵天成——文贵先生谈“北京冬奥会”（二十五）](https://gnews.org/zh-hans/1943007/)
+
+发布：tianzhihuan
+
+**
+**更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
