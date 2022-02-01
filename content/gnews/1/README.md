@@ -2,21 +2,13 @@
 ---
 
 
-## 七哥金句1－邪教的六个特征
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942208/)
+## 七哥金句2
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942227/)
 
 整理：雅典娜速记组
 编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1－邪教的六个特征-.001.jpeg)
-邪教的六个特征
-教主崇拜
-精神控制
-编造邪说
-聚敛钱财
-秘密结社
-对抗社会
-
-伊莎贝拉杨就是邪教的传播者
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001.jpeg)
+共产党对新疆的杀戮就从对新疆说要让新疆富起来，要让共产党的政策向新疆倾斜开始！
 
 2022年1月12日大直播
 

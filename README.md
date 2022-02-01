@@ -15,68 +15,68 @@
 
 ---
 
-### [七哥金句1－邪教的六个特征](/content/gnews/1/README.md)
+### [七哥金句2](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [每日快报：特鲁多指责车队人群的 &#8220;仇恨言论 &#8220;和 &#8220;对公民的暴力&#8221;](/content/gnews/2/README.md)
+### [七哥金句1－邪教的六个特征](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [外媒报道：中共国仍在致力于发展基金市场](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [每日快报：特鲁多指责车队人群的 &#8220;仇恨言论 &#8220;和 &#8220;对公民的暴力&#8221;](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥从小时候打架联想到今天灭共的绝招一一预判](/content/gnews/3/README.md)
+### [七哥从小时候打架联想到今天灭共的绝招一一预判](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [狗一样的活着猪一样的生娃 江苏女连生8孩被拴铁链囚禁](/content/gnews/4/README.md)
+### [狗一样的活着猪一样的生娃 江苏女连生8孩被拴铁链囚禁](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [音乐巨头Spotify勇揭中共病毒疫苗的阴谋](/content/gnews/5/README.md)
+### [音乐巨头Spotify勇揭中共病毒疫苗的阴谋](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：喜币（HCN）价格目前在51.000 HDO](/content/gnews/6/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在51.000 HDO](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [大直播后记——郝海东爆料宋祖英用假胸垫子](/content/gnews/7/README.md)
+### [大直播后记——郝海东爆料宋祖英用假胸垫子](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [命运是冥冥注定（一）](/content/gnews/8/README.md)
+### [命运是冥冥注定（一）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [港星被挟宣传北京冬奥](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [联合国报告：塔利班杀害数十名阿富汗前官员](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [万物之间的关系（二）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [摧毁中华传统文化的邪恶政权](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新年祈福受阻 信仰备受考验](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新州卫生部：今日一名年轻健康且完全接种的男子，感染新冠死亡](/content/gnews/14/README.md)
- ` 走进澳洲`
-
-### [参加北京冬奥的人将列入与暴政为伍的名单](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪](/content/gnews/16/README.md)
- ` 秘密翻译组-原创组`
-
-### [万物之间的关系（一）](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [最新报道：雷切尔·马多“中断”自己最火的MSNBC节目](/content/gnews/18/README.md)
+### [美国必须从中共国的掌控中解放半导体产业](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共官媒大肆宣传用金钱买来的中俄元首“冬奥之约”](/content/gnews/19/README.md)
- ` 儒为`
+### [港星被挟宣传北京冬奥](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [向北京冬奥SAY NO](/content/gnews/20/README.md)
+### [联合国报告：塔利班杀害数十名阿富汗前官员](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [万物之间的关系（二）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [奥运会还没开幕，张家口地方政府财政就崩溃了](/content/gnews/21/README.md)
- ` 波士顿五月花农场金融部`
+### [摧毁中华传统文化的邪恶政权](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新年祈福受阻 信仰备受考验](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新州卫生部：今日一名年轻健康且完全接种的男子，感染新冠死亡](/content/gnews/17/README.md)
+ ` 走进澳洲`
+
+### [注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪](/content/gnews/18/README.md)
+ ` 秘密翻译组-原创组`
+
+### [万物之间的关系（一）](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [最新报道：雷切尔·马多“中断”自己最火的MSNBC节目](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共官媒大肆宣传用金钱买来的中俄元首“冬奥之约”](/content/gnews/21/README.md)
+ ` 儒为`
 
 ### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/22/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
