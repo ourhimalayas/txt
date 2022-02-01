@@ -2,27 +2,32 @@
 ---
 
 
-## 有声|郝海东先生呼吁：不要做中共炮灰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943029/)
+## 中俄勾兑，习近平只是普京玩弄的工具
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943187/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美东时间1月29日，郝海东先生叶钊颖女士，在接受GTV新闻访谈早间节目中，真实讲述中共所谓“自卫反击战”中，童年伙伴孙长平的亲历越南战场往事。
+作者：纽约香草山教育部- Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2022年1月30日直播中，向战友们深入解密了现在的俄乌局势，并强调，在这场国际博弈中，习近平只是普京手中把玩的工具而已。
 
-中共在与越南开战前，召集大量年轻新兵匆忙上战场。孙长平只是其中一员，开往前线的两天途中，在军列上仅接受了操作枪支使用的简单讲解。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6.jpeg)
 
-没有经过正规军训的新兵，当发起“人海战术” 冲锋时，不是倒在越军的阵地前，就是被“督战队”背后击毙。孙在战斗中踏入雷区，被炸伤失去小腿。他凭自己坚强意志和毅力，爬回阵地捡了一命。
+郭先生指出，虽然普京和习近平企图通过东西两线同时开战，让美国无法兼顾。但普京和习近平开战的目的截然不同，结果也截然不同。
 
-战场的残酷真相，暴露出中共视人命如草芥，军队训练严重不足，战术僵硬死板。即使取得了胜利，也是中共用无数年轻生命充当炮灰换来的。
+普京通过制造乌克兰危机跟美国和欧洲谈条件，如果美欧同意俄罗斯把天然气管道铺设到欧洲，俄罗斯就拥有了一个插在欧洲人血管上的赚钱工具，俄罗斯的GPD会翻倍的增长，同时俄罗斯西部的战略线会西扩几千公里。
 
-郝海东先生用孙长平的血淋淋事实，真情告诫墙内同胞，不要再做中共的炮灰。
+如果俄乌开战，俄罗斯将在几年内会受到美国的经济制裁，但却可以收复苏联时期失去的国土，在西线取得战略优势。
 
-文字版原文：[郝海东先生呼吁：不要做中共炮灰](https://gnews.org/zh-hans/1932979/)
+习近平打台湾的目的，仅仅是为了满足他愚蠢的做千年明君的梦想，中共进攻台湾，一旦开战，无论是常规战争还是核战，中共都毫无胜算。而且，一旦开战中共国的GDP会骤降，同时还会造成数十万中共百姓的死亡。
 
-音频处理：Fei797
-发稿：Fei797
+郭先生强调，俄乌开战会加速欧洲与中共的决战，因为欧洲已经清楚的意识到，普京开战的底气来自中共对俄罗斯的经济支持。消灭中共是解决俄乌危机最有效的办法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM.png)
+参考链接：[2022.1.30文贵先生爆料 中俄勾兑，习近平只是普京玩弄的工具](https://gnews.org/zh-hans/1933442/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：文真
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,6 +36,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

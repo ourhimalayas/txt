@@ -2,67 +2,46 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“北京冬奥会”（二十五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1943007/)
+## 郭文贵先生宣布虎年新郭七条
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943143/)
 
-整理：BENJI
-编辑：朝花夕拾
+作者：纽约香草山农场 -文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月 31日新中国联邦春晚中，郭文贵先生在2022年新春伊始，寄语全球新中国联邦人，新中国联邦人在2022年最重要任务是“新郭七条”：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/dfdef.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5.jpeg)
 
+1，一心一意灭共。
 
-**郭文贵先生****2022****年****1****月****21****日直播**
+2，全力以赴扩大新中国联邦，被国际各个国家主权认可度。
 
-那些杀狗所谓的打流浪狗，那些视频发给西方，你知道这些人吐啊，呕吐啊。我说:“一个为了冬奥会抓了几百万只狗要炖了吃了的，你怎么知道运动员吃的不是狗肉呢？给你做的汉堡包，你怎么知道是牛肉呢？” 哇塞，这些运动员说:“Miles，不要说了，求求你了，我们不会吃狗肉的。” 我说:“很有可能。”
+3，全力以赴建设更多的新农场。
 
-而且看的视频当中那些小狗刚下崽儿，都给抓走。战友们，这比核武器厉害。中国人的智慧一旦用到正道上，那就是大智慧了，七哥这智慧绝对是核弹级的!不行我就给他发一下子，不行我就给他发一下子，发一次让他们哭一次，发一(次)让他们两天吃不下饭去，去呀，去参加奥运会呀，是吧？不但狗肉还有小狗崽儿，那个母狗的尖叫声，对他们刺激到不行了:“Miles，千万不要再发了，受不了。”
+4，把国内更多的战友救出来，同时让更多的中国人知道新中国联邦。
 
-欧洲主席死球蛋了，欧洲主席看完以后，欧洲主席说绝对不能在欧洲议会发，结果他死了，两周以后死了球了，打了三针(疫苗)。我发给他办公室，我说:“一定要让他好好看，你们再开会内部研究研究，你们的运动员去了以后可能要几百万只狗死了吃到你们肚子里面去。”这我没有撒谎吧？唯真不破吧？你真的吧？兄弟姐妹们。你们就没有注意到这个问题。
+5，让新中国联邦战友在G系列财富增值，有更多的投资机会。
 
-我说:“还有，为了让你们所谓的当官的人开荤吃饭，什么大公国，什么摩纳哥，什么阿曼、卡塔尔，为了让你们这些人去，中国共产党准备的餐让你们吃什么你们知道吗？全都是什么西藏的什么天河的鱼，在大连准备的鲍鱼，这些都是环境不允许杀生的，中国保护性动物。”
+6，联合全世界爱好正义的人，让受疫苗伤害的人找到病毒真相，找到毒疫苗的解决办法，让更多的人和我们联合在一起。让遭经济威胁和超限战伤害的人团结在新中国联邦真相媒体中
 
-我说:“弄不好还给你们弄弄猴脑吃吃呢。”哇塞这些人就更崩溃了，是吧？我说:“你们去呀，你们就去。” 西枫妹妹，你看你都要吐了，你受不了吧？我说:“你看看，只有中国人把猴子活着的时候脑子打开让你吃活脑。” 我把视频打开让他们看，哎哟，他们受不了了。
+7，全体战友统一作战目标统一行动，“保命保财报仇”共同渡过至暗时代。
 
-毫不夸张地说，兄弟姐妹们，你觉得谁能做到？七哥用和平的方式就用智慧恶心到外国人不敢到中国参加冬奥会去？只有咱新中国联邦能做到，而且意义之深远，好莱坞的几个大佬，原来都准备去的，全取消。从今天直播完你数着到2月1号前你会看到多少人宣布不去。
+全球战友将坚定信仰，不辱使命。
 
-资料来源：郭先生GTV和盖特直播视频
+参考链接：[新中国联邦2022年最重要做什么？2022年《 #郭七条》](https://gettr.com/post/prpytb473e)
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“北京冬奥会”（一）](https://gnews.org/zh-hans/1785702/)
-[文·贵天成——文贵先生谈“北京冬奥会”（二）](https://gnews.org/zh-hans/1785933/)
-[文·贵天成——文贵先生谈“北京冬奥会”（三）](https://gnews.org/zh-hans/1786045/)
-[文·贵天成——文贵先生谈“北京冬奥会”（四）](https://gnews.org/zh-hans/1913117/)
-[文·贵天成——文贵先生谈“北京冬奥会”（五）](https://gnews.org/zh-hans/1913831/)
-[文·贵天成——文贵先生谈“北京冬奥会”（六）](https://gnews.org/zh-hans/1916177/)
-[文·贵天成——文贵先生谈“北京冬奥会”（七）](https://gnews.org/zh-hans/1914628/)
-[文·贵天成——文贵先生谈“北京冬奥会”（八）](https://gnews.org/zh-hans/1918018/)
-[文·贵天成——文贵先生谈“北京冬奥会”（九）](https://gnews.org/zh-hans/1918752/)
-[文·贵天成——文贵先生谈“北京冬奥会”（十）](https://gnews.org/zh-hans/1917988/)
-[文·贵天成——文贵先生谈“北京冬奥会”（十一）](https://gnews.org/zh-hans/1918147/)
-[文•贵天成——文贵先生谈“北京冬奥会”（十二）](https://gnews.org/zh-hans/1921128/)
-[文·贵天成——文贵先生谈“北京冬奥会”（十三）](https://gnews.org/zh-hans/1922599/)
-[文•贵天成——文贵先生谈“北京冬奥会”（十四）](https://gnews.org/zh-hans/1921604/)
-[文•贵天成——文贵先生谈“北京冬奥会”（十五）](https://gnews.org/zh-hans/1921478/)
-[文·贵天成——文贵先生谈“北京冬奥会”（十六）](https://gnews.org/zh-hans/1925490/)
-[文•贵天成——文贵先生谈“北京冬奥会”（十七）](https://gnews.org/zh-hans/1924447/)
-[文·贵天成——文贵先生谈“北京冬奥会”（十八）](https://gnews.org/zh-hans/1924304/)
-[文•贵天成——文贵先生谈“北京冬奥会”（十九）](https://gnews.org/zh-hans/1931480/)
-[文•贵天成——文贵先生谈“北京冬奥会”（二十）](https://gnews.org/zh-hans/1925718/)
-[文•贵天成——文贵先生谈“北京冬奥会”（二十一）](https://gnews.org/zh-hans/1931539/)
-[文•贵天成——文贵先生谈“北京冬奥会”（二十二）](https://gnews.org/zh-hans/1931497/)
-[文•贵天成——文贵先生谈“北京冬奥会”（二十三）](https://gnews.org/zh-hans/1931975/)
-[文•贵天成——文贵先生谈“北京冬奥会”（二十四）](https://gnews.org/zh-hans/1931785/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-发布：tianzhihuan
+总编：Jack Li文阳
+编辑：文特
+校正/发稿：谐趣园
 
-**
-**更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

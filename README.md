@@ -15,122 +15,122 @@
 
 ---
 
-### [有声|年度回顾关键词 – 青蒿素](/content/gnews/1/README.md)
- ` MOSREC`
+### [美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [疫苗诱发的心肌炎创纪录 也会让家庭破产（1/2）](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|日媒指斥国际奥委会跟中共是一丘之貉](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [大多数加拿大人希望终止所有COVID限制](/content/gnews/4/README.md)
- ` 温哥华扬帆农场`
-
-### [“这是党内的裂痕”：奥图尔周三将面临领导层投票](/content/gnews/5/README.md)
+### [新型短信诈骗：打疫苗领奖励](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [通货膨胀的政治力量](/content/gnews/6/README.md)
+### [新民意调查发现，大多数加拿大人希望结束对 COVID-19 的限制](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [“我们已准备好向前迈进：”福特重申解除封锁](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [瑞典决定不建议为5-11岁的儿童接种COVID疫苗](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|国际金融机构欲查封中共高官海外资产](/content/gnews/7/README.md)
+### [安大略省报告了 63 例新的 COVID-19 死亡病例； 住院人数较 1 月高峰期下降 25%](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [有声|年度回顾关键词 – 青蒿素](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/8/README.md)
+### [疫苗诱发的心肌炎创纪录 也会让家庭破产（1/2）](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共冬奥会釆集美国顶尖运动员DNA的邪恶目的引发国际关注](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新中国联邦成功举办迎虎年灭共春晚](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|日媒指斥国际奥委会跟中共是一丘之貉](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [大多数加拿大人希望终止所有COVID限制](/content/gnews/12/README.md)
+ ` 温哥华扬帆农场`
+
+### [“这是党内的裂痕”：奥图尔周三将面临领导层投票](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [通货膨胀的政治力量](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|中共国几乎成了空中禁区](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [有声|监督机构指控欧盟主席购买疫苗“行政不当”](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [有声|GTV新闻访谈简报|2022年1月29日晚](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [有声|GTV新闻访谈简报|2022年1月29日早](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [有声|中共将中国人变成了信假不信真](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|爆料革命五周年 灭共让人生最精彩](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|泽连科医生证实中共病毒与解药被同时制造](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [有声|多家媒体同时报道新中国联邦](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|国际金融机构欲查封中共高官海外资产](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [有声|甜蜜蜜运动在中共国发酵](/content/gnews/9/README.md)
+### [有声|甜蜜蜜运动在中共国发酵](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [英国：接种两剂新冠疫苗的儿童死亡可能性高于正常儿童52倍](/content/gnews/10/README.md)
+### [英国：接种两剂新冠疫苗的儿童死亡可能性高于正常儿童52倍](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [工业革命—从蒸汽机到区块链](/content/gnews/11/README.md)
+### [工业革命—从蒸汽机到区块链](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [郭文贵先生宣布虎年新郭七条](/content/gnews/12/README.md)
+### [郭文贵先生宣布虎年新郭七条](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [最新：魁北克省政府让步，放弃“疫苗税”](/content/gnews/13/README.md)
+### [最新：魁北克省政府让步，放弃“疫苗税”](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [喜支付成功上线影响深远](/content/gnews/14/README.md)
+### [喜支付成功上线影响深远](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [爆料革命日记 （十三）：一触即发？](/content/gnews/15/README.md)
+### [台海两岸，春节油价不同步](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [科顿参议员指出本不该让中共举办冬奥会](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [厄瓜多尔总统寻求与中共国重新谈判债务问题](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳](/content/gnews/16/README.md)
- ` 焦點20分`
-
-### [无国界记者组织谴责中共国对新闻的“空前镇压”](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国将严厉制裁俄罗斯 俄将全面启用人民币](/content/gnews/18/README.md)
- ` 焦點20分`
-
-### [中共病毒及疫苗危机的可怕后果](/content/gnews/19/README.md)
- ` GTV新闻访谈`
-
-### [台海两岸，春节油价不同步](/content/gnews/20/README.md)
- ` GTV新闻访谈`
-
-### [科顿参议员指出本不该让中共举办冬奥会](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [厄瓜多尔总统寻求与中共国重新谈判债务问题](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十七）](/content/gnews/23/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（二十七）](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|郝海东先生呼吁：不要做中共炮灰](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [乔治-索罗斯警告说，中共国正面临一场经济危机](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行](/content/gnews/26/README.md)
- ` 焦點20分`
-
-### [有声|20个所谓“中共特色”](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十五）](/content/gnews/28/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（二十五）](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [变本加厉：澳洲酝酿第四针，ATAGI重新定义“完全接种”](/content/gnews/29/README.md)
+### [变本加厉：澳洲酝酿第四针，ATAGI重新定义“完全接种”](/content/gnews/36/README.md)
  ` 走进澳洲`
 
-### [红色新中国联邦国旗首现2022新中国联邦春晚](/content/gnews/30/README.md)
+### [红色新中国联邦国旗首现2022新中国联邦春晚](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [有声|年度回顾关键词 – 中共病毒](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/32/README.md)
+### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京如果攻打乌克兰 会加速西方国家消灭中共 乌克兰和台湾的战争 最大的受害者将是中国人](/content/gnews/33/README.md)
- ` 焦點20分`
-
-### [“青蒿素鸡尾酒”疗法有望彻底清除疫苗毒素](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [疫苗诱发的心肌炎创纪录 也会让家庭破产（2/2）](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [感染中共病毒的艾滋患者出现21种突变](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2/1/2022国际财经快讯：澳大利亚央行结束债券购买，不急于加息；石油价格攀升](/content/gnews/37/README.md)
- ` 秘密翻译组金融团队`
-
-### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/38/README.md)
+### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/39/README.md)
  ` mary202064`
-
-### [《历史上的今天》2022.02.01](/content/gnews/39/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/40/README.md)
  ` 纽约香草山MOS03`

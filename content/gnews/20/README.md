@@ -2,30 +2,25 @@
 ---
 
 
-## 台海两岸，春节油价不同步
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943054/)
+## 有声|爆料革命五周年 灭共让人生最精彩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943199/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近期，俄罗斯和乌克兰两国边境局势紧张，导致国际油价上涨。海峡两岸同样受到影响。春节将至，两岸政府作出了各自的应对之策。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-01-上午11.43.04.png)
-台湾中油1月30日表示，为维持价格优势，并配合政府春节期间稳定物价，减轻民众负担等政策，中油启动油价平稳措施。春节期间油价将按“上涨不调、下跌调”原则办理。台湾中油今天表示，为平抑油价将分别吸收汽、柴油0.7元新台币及2.3元新台币的溢价。31日凌晨零时起台湾的汽、柴油均不作调整。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1月27日，郭文贵先生在盖特平台上发布了一则视频纪念爆料革命五周年，并回顾了当初爆料时的种种难关。
 
-与台湾政府稳定油价，让群众轻松过年的政策相比，中共发改委于同日宣布，墙内汽、柴油价格每吨分别提高310元和300元，并在调价周期内，国内成品油市场价格延续上涨为主。本次涨价已经是2022年墙内成品油第二次调价。
+郭先生提到，2017年爆料伊始之时，他的家人都还在被中共关押。彼时，中共官员对郭先生在此情此景下仍坚持爆料的举动大为不解。对此，郭先生则解释道，当一个人面对着一个绝大多数民众都受其所害的独裁体制时，他所能做的只有奋起反击，把它消灭掉，因为没有人能够成为所谓的侥幸者——这是一个普世皆知的道理——如果任何人对共产党抱有侥幸心理，那他的下场就是被中共控制和愚弄。
 
-中共发改委提示，下一次调价窗口将在2022年2月17日24时开启，根据目前的情况，下一次调价开局仍将呈现上行趋势，在90元/吨左右。
+郭先生还补充道，如果他5年前因为考虑家人的安危和所谓的利益而不开始爆料，或许盘古和裕达酒店不会发生后来的这一些列闹剧，但郭先生和他的家人恐怕很多都会被人间消失，也没有人能真正看到未来。另一方面，为了灭共，郭先生足足准备了30年。因此，如果他当年选择放弃爆料，那郭先生被共产党杀害的八弟、清丰看守所60多名为追求民主自由而献身的同仁，以及他几十年的灭共梦想都会日夜折磨着他。
 
-春节是华人阖家团圆的节日。遥望海峡两岸，一边平抑油价，减轻民众负担；一边“喜”迎涨价，收割民脂民膏。民主与独裁，优劣立见。
+最后，郭先生强调，面对中共这个魔鬼的独裁统治，我们别无选择，必须将其消灭。而坚持爆料革命灭共走到今天，是他人生活的最精彩的时刻，也是最有价值的时刻。
 
-参考链接：
-1）[春節期間 汽柴油價格不調漲](https://www.cna.com.tw/news/ahel/202201300057.aspx)
-2）[成品油价今起上调 92号汽油每升涨0.25元](https://finance.sina.cn/2022-01-30/detail-ikyamrmz8273307.d.html)
+文字版原文：[爆料革命五周年 灭共让人生最精彩](https://gnews.org/zh-hans/1928582/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

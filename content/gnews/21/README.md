@@ -2,24 +2,23 @@
 ---
 
 
-## 科顿参议员指出本不该让中共举办冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943053/)
+## 有声|泽连科医生证实中共病毒与解药被同时制造
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943198/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月30日，科顿参议员指出中共根本没有资格举办冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-01-上午11.42.56.png)
-科顿参议员提到，在他2年前刚开始质疑病毒起源于武汉实验室的时候，遭到了福奇、柯林斯为首的各方打压。而2021年越来越多的证据指向了，病毒最有可能起源的地方就是研究了蝙蝠冠状病毒，并且有蝙蝠女王之称的石正丽所在的武汉实验室。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+根据文贵先生盖特视频，1月22日，泽连科医生接受采访时表示，20年来中共病毒被精心构造，是大规模破坏性武器。追溯到1998年，受到NIH及NIAID资助的巴里克，先后申请了病毒跨物种转移的技术专利，冠状病毒破坏人类肺组织专利，以及2015年巴里克与武毒所石正丽联名发表了研究蝙蝠冠状病毒感染人类的论文。
 
-科顿参议员指出，在这样的背景下，中共本来就不应该拥有举办冬奥会为其进行宣传的巨大机会，应该在一年前就把冬奥会举办权交给其他国家。
+2020年3月，泽连科推出中共病毒治疗方案，使感染者的住院率和死亡率降低了85%。而该方案正是基于巴里克2010年所写的一篇讨论锌离子载体的论文。这意味着制造病毒的人，同时制造了解药。
 
-参考链接：[https://www.gettr.com/post/prm20rf80a](https://www.gettr.com/post/prm20rf80a)
+泽连科进一步揭露，世界经济论坛和联合国发布的2030计划称，因人口爆炸，美国的医疗保险和社会保险体系将会于2026年开始崩溃。其它国家也存在相同的问题。因此，削减人口数量，成为当务之急。现在各国政府强制接种中共病毒疫苗，已经造成了不可估量的人身伤亡。疫苗护照就是史瓦布所说的用来控制并奴役民众的数字标识。泽连科医生表示，他是揭露人类历史上最严重犯罪的清醒者之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+文字版原文：[泽连科医生证实中共病毒与解药被同时制造](https://gnews.org/zh-hans/1927703/)
 
-总编：文真
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,55 @@
 ---
 
 
-## 大多数加拿大人希望终止所有COVID限制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1943344/)
+## “我们已准备好向前迈进：”福特重申解除封锁
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1943395/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0131_protest_10.jpg)图片来源：NationalPost
-根据《国家邮报》 (National Post) 2月1日报道，两项新的民意调查显示，随着Omicron变体的日渐消退，加拿大人的态度正在转向取消COVID限制。
+作者：CityNews
+翻译: HimaBoy
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-10.jpg)
+在安省周一宣布部分解封后，福特省长似乎突然对COVID-19封锁的看法有了转变，安省反对党领导人似乎也支持这种转变。
 
-专门从事加拿大舆论研究的非营利机构安格斯-里德研究所（Angus Reid Institute）周一公布的研究显示，54%的受访者同意结束所有的限制，32%的人强烈同意。
+福特在周一的一份书面声明中说：所有安大略人都团结一致，希望将这场流行病抛在脑后，让我们回到我们在COVID-19之前所过的生活里去。
 
-数据显示，最同意结束限制的省份是萨斯喀彻温省（62%）和魁北克省（59%），加拿大大西洋地区的大多数人（52%）不同意放宽限制。
+此前福特省长语气已经发生了类似的转变。上周五，他告诉安省Peterborough当地广播电台说，我们必须学会忍受这种情况，要让一切都恢复正常。
 
-加拿大首席公共卫生官员Theresa Tam博士在1月21日的新闻发布会上说，1月14日的最新模型更新表明，全国的Omicron感染可能在1月已经达到高峰，进入2月后会有所消退。但她呼吁大家继续保持警惕。
+福特省长最近的评论与安省首席卫生官 Kieran Moore博士的说法一致， Kieran Moore上周四表示现在是时候“学会与COVID-19一起生活了。”
 
-安格斯-里德指出，尽管公共卫生官员强调面对OMICRON的警惕性，但在省一级，”疫苗护照计划已经开始出现分歧”。
+Kieran Moore认为COVID-19疫苗和新的抗病毒药物是安省现在需要转变思维方式的主要原因。
 
-萨斯喀彻温省省长Scott Moe在1月29日对抗议联邦政府跨境疫苗强制的卡车司机发表的声明中说，他将 “在不远的将来 “结束该省目前的阴性测试证明和疫苗护照政策。他说，接种疫苗并不能减少病毒的传播，他已经完全接种了加强针，但最近感染了COVID-19。
+安省自由党党领Steven Del Duca星期一表示：我不希望有再一次封城，永远不希望再封城了。新民主党省议员Catherine Fife说：安省人己对封城感到疲倦了，大家真的很沮丧。
 
-Moe表示：”由于接种疫苗并没有减少传播，目前针对卡车司机的联邦边境强制疫苗政策没有任何意义。未接种疫苗的卡车司机并不比接种疫苗的卡车司机构成更大的传播风险”。
+周一，因为放宽限制，安省的餐馆、健身房和影剧院重新迎来了顾客，顾客感到高兴，企业对弥补损失既感到焦虑但又充满希望。
 
-该研究所说：“如果加拿大已经度过了OMICRON变体的最糟糕时期，公众情绪似乎正朝着开放社区的方向发展”。
+重新开放标志着安省计划在Omicron变种病例激增的情况下逐步取消1月初实施的公共卫生措施的第一步。
 
-新闻链接：
-[https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
+福特省长周一表示：今天安省开始放松一些公共卫生措施，这是恢复正常的第一步。所有安大略人都团结一致，希望将这场流行病抛在脑后，让我们回到我们在COVID-19之前所过的生活里去。
 
-[https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll\_4248078.html?utm\_source=morningbriefnoe&utm\_medium=email\_MB&utm\_campaign=mb-2022-01-31&utm\_content=News\_Majority\_of\_Canadians&est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D](https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll_4248078.html?utm_source=morningbriefnoe&amp;utm_medium=email_MB&amp;utm_campaign=mb-2022-01-31&amp;utm_content=News_Majority_of_Canadians&amp;est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D)
+对于福特政府应该采取哪些措施来防止进一步的限制，反对党存在不同的意见。NDP呼吁省政府扩大PCR检测的范围，绿党领袖Mike Schreiner表示，政府需要增加病假天数，并在风险高的工作场所强制使用N95口罩。
 
-编辑，发稿 Spirit
+教育厅长Stephen Lecce周一表示，带薪病假协议和与联邦政府签署儿童保育计划都已接近达成共识。
+
+尽管安省一月份有超过1,200人死于新冠病毒，但是与病毒共存的声音已经越来越成为主流。
+
+来源：https://toronto.citynews.ca/2022/01/31/ontario-covid19-lockdown-doug-ford/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
