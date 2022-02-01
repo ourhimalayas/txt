@@ -15,71 +15,71 @@
 
 ---
 
-### [美国国税局2019年即调查拜登家族与中共国关系](/content/gnews/1/README.md)
+### [印度央行本年度将推出“数字卢比”](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国国税局2019年即调查拜登家族与中共国关系](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我们现在都是加拿大卡车司机](/content/gnews/2/README.md)
+### [我们现在都是加拿大卡车司机](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳媒报道：美国政府认为中共利用冬奥会转移各方对其人权侵害的注意力](/content/gnews/3/README.md)
- ` 澳喜农场`
-
-### [七哥金句3](/content/gnews/4/README.md)
+### [七哥金句4](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [西方敲定对俄罗斯的一系列制裁计划 （一）](/content/gnews/5/README.md)
+### [澳媒报道：美国政府认为中共利用冬奥会转移各方对其人权侵害的注意力](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [七哥金句3](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [西方敲定对俄罗斯的一系列制裁计划 （一）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本议会通过关于中国人权问题的决议](/content/gnews/6/README.md)
+### [日本议会通过关于中国人权问题的决议](/content/gnews/8/README.md)
  ` 波士顿五月花农场金融部`
 
-### [七哥金句2](/content/gnews/7/README.md)
+### [七哥金句2](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句1－邪教的六个特征](/content/gnews/8/README.md)
+### [七哥金句1－邪教的六个特征](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [外媒报道：中共国仍在致力于发展基金市场](/content/gnews/9/README.md)
+### [外媒报道：中共国仍在致力于发展基金市场](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [每日快报：特鲁多指责车队人群的 &#8220;仇恨言论 &#8220;和 &#8220;对公民的暴力&#8221;](/content/gnews/10/README.md)
+### [每日快报：特鲁多指责车队人群的 &#8220;仇恨言论 &#8220;和 &#8220;对公民的暴力&#8221;](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥从小时候打架联想到今天灭共的绝招一一预判](/content/gnews/11/README.md)
+### [七哥从小时候打架联想到今天灭共的绝招一一预判](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [狗一样的活着猪一样的生娃 江苏女连生8孩被拴铁链囚禁](/content/gnews/12/README.md)
+### [狗一样的活着猪一样的生娃 江苏女连生8孩被拴铁链囚禁](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西方敲定对俄罗斯的一系列制裁计划 （二）](/content/gnews/13/README.md)
+### [西方敲定对俄罗斯的一系列制裁计划 （二）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [音乐巨头Spotify勇揭中共病毒疫苗的阴谋](/content/gnews/14/README.md)
+### [音乐巨头Spotify勇揭中共病毒疫苗的阴谋](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：喜币（HCN）价格目前在51.000 HDO](/content/gnews/15/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在51.000 HDO](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [大直播后记——郝海东爆料宋祖英用假胸垫子](/content/gnews/16/README.md)
+### [大直播后记——郝海东爆料宋祖英用假胸垫子](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [命运是冥冥注定（一）](/content/gnews/17/README.md)
+### [命运是冥冥注定（一）](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [美国必须从中共国的掌控中解放半导体产业](/content/gnews/18/README.md)
+### [美国必须从中共国的掌控中解放半导体产业](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [港星被挟宣传北京冬奥](/content/gnews/19/README.md)
+### [港星被挟宣传北京冬奥](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联合国报告：塔利班杀害数十名阿富汗前官员](/content/gnews/20/README.md)
+### [联合国报告：塔利班杀害数十名阿富汗前官员](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
-
-### [万物之间的关系（二）](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [摧毁中华传统文化的邪恶政权](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [新年祈福受阻 信仰备受考验](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -105,38 +105,38 @@
 ### [日媒报道的中共病毒感染数字相关统计标准令人质疑](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本兴和制药公司证实伊维菌素有效](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
-
-### [2022/02/01 英喜时事速递](/content/gnews/32/README.md)
+### [2022/02/01 英喜时事速递](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大北京冬奥代表团中5人确诊](/content/gnews/33/README.md)
- ` 日本东京方舟农场`
-
-### [年度回顾关键词 &#8211; 早期治疗药](/content/gnews/34/README.md)
+### [年度回顾关键词 &#8211; 青蒿素](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [纽约护士吹哨人：录音揭示了可能对儿童、低收入和无家可归的成年人接种 COVID-19 疫苗的拙劣的管理](/content/gnews/35/README.md)
+### [年度回顾关键词 &#8211; 早期治疗药](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [纽约护士吹哨人：录音揭示了可能对儿童、低收入和无家可归的成年人接种 COVID-19 疫苗的拙劣的管理](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/36/README.md)
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/37/README.md)
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [法国巴黎！人们在辉瑞总部前反强制疫苗](/content/gnews/38/README.md)
+### [法国巴黎！人们在辉瑞总部前反强制疫苗](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [武汉科学家发现集几种病毒特性于一身的新型冠状病毒](/content/gnews/39/README.md)
+### [武汉科学家发现集几种病毒特性于一身的新型冠状病毒](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/40/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/41/README.md)
+### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [年度回顾关键词 &#8211; 中共病毒](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
 
 ### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

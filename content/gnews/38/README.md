@@ -2,10 +2,10 @@
 ---
 
 
-## 法国巴黎！人们在辉瑞总部前反强制疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1941482/)
+## 武汉科学家发现集几种病毒特性于一身的新型冠状病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1941480/)
 
-01/30/2022 法国巴黎，人们在辉瑞总部前反强制疫苗。
+01/29/2022 印度媒体Wion：武汉科学家们在南非的蝙蝠身上发现了一种更致命的冠状病毒，他们称这种病毒离感染人类只差一个突变，其死亡率约为33%。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
