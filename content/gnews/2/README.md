@@ -2,26 +2,214 @@
 ---
 
 
-## 音乐巨头Spotify勇揭中共病毒疫苗的阴谋
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1942164/)
+## 每日快报：特鲁多指责车队人群的 &#8220;仇恨言论 &#8220;和 &#8220;对公民的暴力&#8221;
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1942198/)
 
-撰稿：东京樱花团/风翼
+*作者：*冰川
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/音乐巨头Spotify勇揭中共病毒疫苗的阴谋.png)[图片来源](https://www.menabytes.com/spotify-launches-pakistan/)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-据伦敦“硅谷时事”报道：瑞典音乐发行巨头声破天（Spotify）针对正在传播中共病毒（新冠病毒）疫苗信息的互联网音频节目，受到一系列的抗议和批评后，正式发布了官方声明。
+# ***今日摘要***
 
-“虽收到美国喜剧演员乔.罗根的批评，以及加拿大流行歌手尼尔.杨和乔尼.米切尔将要在声破天删除自己歌曲等抗议行为,但鉴于有关节目所谈论的中共病毒疫苗的危险性是根据卫生当局和科学家的可靠信息得出的结论，所以再次强调不会因抗议而删除这个栏目。
+1. 特鲁多指责车队人群的 “仇恨言论 “和 “对公民的暴力”
+2. 海军部长COVID-19检测呈阳性
+3. Moderna COVID-19疫苗获得FDA全面批准用于成人
+4. 在中国被监禁和殴打的亚马逊告密者要求公司道歉
 
-作为四大串流音乐服务商的瑞典音乐服务平台声破天，以第三方的广告费和使用者订阅做为主要收入来源的背景，不难看出，不惜付出代价，坚持揭露中共病毒疫苗对人类带来的危险性已到了无法阻拦的程度。
 
-信息来源：
+# 重要事件
 
-[スポティファイ、誤情報拡散で対策　ワクチンめぐり抗議浴び](https://www.jiji.com/sp/article?k=2022020100184&amp;g=int)
+- ** 01.31. Gateway Pundit：**[特鲁多从秘密地点向卡车司机发难，指责车队人群的 “仇恨言论 “和 “对公民的暴力” Trudeau Lashes Out at Truckers from Secret Location, Accuses Convoy Crowd of “Hateful Rhetoric” and “Violence Toward Citizens”](https://www.thegatewaypundit.com/2022/01/trudeau-lashes-truckers-secret-location-accuses-convoy-crowd-hateful-rhetoric-violence-toward-citizens-video/)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
+加拿大总理贾斯汀-特鲁多目前正躲在一个未公开的地点。在反疫苗抗议活动中，由于安全原因，贾斯汀-特鲁多和他的家人于周六被转移到一个秘密地点。
+
+反疫苗的抗议者和卡车司机周五深夜来到渥太华的国会山。和平抗议活动持续了整个周末。自由车队正在和平地抗议贾斯汀-特鲁多的疫苗任务。然而，特鲁多在其藏身之处的广播中指责卡车司机车队的 “仇恨言论 “和 “对公民的暴力”。特鲁多还说他更喜欢BLM的暴力抗议活动，因为他 “同意他们的目标”。
+
+- ** 01.31. The Hill：**[海军部长COVID-19检测呈阳性 Navy secretary tests positive for COVID-19](https://thehill.com/policy/defense/592163-navy-secretary-tests-positive-for-covid-19)
+
+
+海军部长卡洛斯-德尔托罗(Carlos Del Toro) 周一宣布，他的COVID-19检测结果呈阳性。
+
+接种了疫苗的德尔托罗说，根据他办公室的一份声明，他在周一上午检测出阳性，本周将在家工作。他说，他周五从公务旅行中回来，在1月21日出发前和周五旅行结束后，他的检测结果都是阴性。德尔托罗说：”我正在遵循我的医生的指示，并将根据CDC[疾病控制和预防中心]的指导方针，至少在未来五天内进行隔离。””我很感激已经完全接种了疫苗，并在10月份接受了加强注射，因为我知道我的症状可能会更糟糕，”这位61岁的部长指出。他补充说：”我们必须继续为我们的海军部队接种疫苗，并在我们完成与COVID的斗争时注意我们的身体健康。“德尔托罗是过去一个月中对COVID-19检测呈阳性的最新军事领导人。
+
+- ** 01.31. Washington Examiner：**[Moderna COVID-19疫苗获得FDA全面批准用于成人 Moderna COVID-19 vaccine receives full FDA approval for adults](https://www.washingtonexaminer.com/policy/moderna-covid-19-vaccine-receives-full-fda-approval-for-adults)
+
+
+食品和药物管理局在批准Moderna公司的两剂量COVID-19疫苗用于公共用途一年多后，全面批准了该疫苗，该疫苗以Spikevax的名义销售。美国食品和药物管理局代理局长Janet Woodcock说：”美国食品和药物管理局对Spikevax的批准是对抗COVID-19大流行病的重要一步，标志着第二种被批准用于预防COVID-19的疫苗。””公众可以放心，Spikevax符合FDA对在美国批准使用的任何疫苗所要求的安全、有效和制造质量的高标准”。
+
+Moderna疫苗的两剂方案已获得全面批准，而免疫力低下者的第三剂和成人的加强剂仍处于紧急使用授权之下，这是在速度至关重要的紧急情况下使用的途径。美国食品和药物管理局已经完全批准了辉瑞生物技术公司的mRNA疫苗，它是第一个在2020年12月获得紧急使用标准监管授权的疫苗。与辉瑞公司的疫苗不同，最初获得紧急使用授权的是16岁及以上的成年人，而Moderna疫苗已被完全批准用于18岁及以上的成年人。
+
+联邦官员希望，批准第二种COVID-19疫苗将使剩余的那部分尚未注射疫苗的人有所改变。由于缺乏来自监管机构的全面支持，许多人不敢接种疫苗，担心美国食品和药物管理局为了在国家紧急情况下迅速向公众提供疫苗而加快了安全和功效试验。迄今为止，美国5岁及以上人口的近64%，即近2.12亿人，已经完全接种了疫苗。在这个总数中，有超过7450万人选择了Moderna疫苗。
+
+- ** 01.31. Daily Caller：**[在中国被监禁和殴打的亚马逊告密者要求公司道歉 Amazon Whistleblower Who Was Imprisoned And Beaten In China Asks Company For Apology](https://dailycaller.com/2022/01/31/amazon-foxconn-whistleblower-china/)
+
+
+一名中国男子声称，他在揭露亚马逊产品生产工厂的不合格工作条件后遭到监禁和酷刑，要求公司道歉。唐明方告诉《卫报》，在他揭露了富士康生产亚马逊Echo、Echo Dot和Kindle设备的工厂内的工作条件后，他在监狱里待了两年。唐明方称，他在被关押期间遭到了中国当局的殴打和酷刑。”我认为亚马逊应该给我一个解释，告诉我是否真的应该被送进监狱？” 唐说。”如果不是，亚马逊应该给我一个道歉，连同它的合作伙伴富士康一起，协助我上诉，提供赔偿。”
+
+据《卫报》报道，唐的揭露包括指控学童被迫在富士康工厂长时间工作，以及工人被迫在一个月内超过规定的36小时加班时间，有些单位一个月超过100小时。在唐决定发声后，亚马逊对该工厂进行了调查，富士康因违反劳工规定被罚款。然而，唐告诉《卫报》，他认为公司应该做得更多，以保护他免遭报复。
+
+中共当局用手铐将唐某铐住，使其处于紧张状态，并打他耳光，还说他被迫在供词上签字。”我拒绝签字七次，他们很生气，把我铐在铁架子的底部，不能站、不能蹲、不能坐；只能弯腰，半蹲一晚上。凌晨时分，我再也站不住了，”他告诉《卫报》。”我们不容忍违反我们的供应链标准的行为，”亚马逊的一位发言人告诉Daily Caller新闻基金会。”我们定期评估供应商，酌情使用独立审计师，以监测持续的合规性和改进–如果我们发现违规，我们会采取适当的措施，包括要求立即采取纠正措施”。
+
+# 每日文贵说
+![](http://himalayawashingtondc.org/wp-content/uploads/2022/02/1-1024x576.jpg)
+# 每日推特文摘
+
+
+
+《一帘幽梦》 新唱
+为何我要灭共，是谁带来苦痛，多少愤恨在心中，唯有战友能懂。它毁香港圣城，犯下罪孽深重。欲占台湾大一统，必是黄粱一梦。谁与七哥灭共，打破千年的牢笼。中华儿女多英雄，今朝盘古必相逢！
+
+
+
+
+
+> 《一帘幽梦》 新唱 🔥🔥🔥
+> 🎵🎵🎶
+> 为何我要灭共，是谁带来苦痛，多少愤恨在心中，唯有战友能懂。它毁香港圣城，犯下罪孽深重。欲占台湾大一统，必是黄粱一梦。谁与七哥灭共，打破千年的牢笼。中华儿女多英雄，今朝盘古必相逢！[#灭共](https://twitter.com/hashtag/%E7%81%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) [#消灭共产党](https://twitter.com/hashtag/%E6%B6%88%E7%81%AD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hash&amp;ref_src=twsrc%5Etfw) [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) [#爆料革命](https://twitter.com/hashtag/%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/5dugd44W0Z](https://t.co/5dugd44W0Z)
+> — MOS Translation (New Account #3) (@No3Mos) [January 31, 2022](https://twitter.com/No3Mos/status/1488196882950234118?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+邓丽君
+
+
+
+
+
+> 邓丽君：🙏 [pic.twitter.com/i7H18jY89F](https://t.co/i7H18jY89F)
+> — 三文鱼Salmon (@Salmon\_Ten) [January 31, 2022](https://twitter.com/Salmon_Ten/status/1488192866174193665?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+《灭共的雪》
+
+
+
+
+
+> 《灭共的雪》 [#TakeDownTheCCP](https://twitter.com/hashtag/TakeDownTheCCP?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/TRsyKBVlY5](https://t.co/TRsyKBVlY5)
+> — 500 𝕸𝖎𝖑𝖊𝖘 (@SafeGuard009) [January 31, 2022](https://twitter.com/SafeGuard009/status/1488200330248859649?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+东京时间1月31日，兴和（名古屋市）发布已经证实了作为中共病毒治疗药物正在进行的临床试验（clinical trial）的“伊维菌素”对突变株“Omicron株”的抗病毒作用有效。今后，该公司将确认作为治疗药物的有效性和安全性，并以实用化为目标。
+
+
+
+
+
+> 東京時間1月31日，興和（名古屋市）發布已經證實了作為中共病毒治療藥物正在進行的臨床試驗（clinical trial）的“伊維菌素”對突變株“Omicron株”的抗病毒作用有效。今後，該公司將確認作為治療藥物的有效性和安全性，並以實用化為目標。
+> ⁦[@caogenxiaogex](https://twitter.com/caogenxiaogex?ref_src=twsrc%5Etfw)⁩ [#Ivermectin](https://twitter.com/hashtag/Ivermectin?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WVvdRNlWxH](https://t.co/WVvdRNlWxH)
+> — Aki愛琴海 (@Aki20200624) [January 31, 2022](https://twitter.com/Aki20200624/status/1488154497209753612?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+不能让他们这么快被送走 他们为中国人造了人间地狱 让他们去杨改兰曾经的屋子里住一住 到新疆集中营用镣铐锁上体验上几年 在香港看守所享受下鸡奸服务 在西藏被泼上汽油体会下自焚的恐惧 十个城管用圈踢送上为人民服务套餐 到监狱最后享受下被现割现卖器官的恐怖 ……
+
+
+
+
+
+> 不能让他们这么快被送走
+> 他们为中国人造了人间地狱
+> 让他们去杨改兰曾经的屋子里住一住
+> 到新疆集中营用镣铐锁上体验上几年
+> 在香港看守所享受下鸡奸服务
+> 在西藏被泼上汽油体会下自焚的恐惧
+> 十个城管用圈踢送上为人民服务套餐
+> 到监狱最后享受下被现割现卖器官的恐怖 
+> …… [pic.twitter.com/OOOqFcbVSd](https://t.co/OOOqFcbVSd)
+> — 新中国联邦公民（北评2025） (@tGj6kq0sAMr4NWx) [January 31, 2022](https://twitter.com/tGj6kq0sAMr4NWx/status/1488217371756011522?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+在新中国联邦和七哥引领下 看马斯克的预言 即便是我对世界金融危机的预见 也比马老板知道的早 全球各国政府海量超发的货币 超级富豪的巧取豪夺 极权国家的横征暴敛和穷奢极欲 让世界经济与商业彻底病了 这一切 在病毒和疫苗的双重催化下 让世界大衰退的到来变得更近了 金融危机如同惊天巨浪 无人幸免
+
+
+
+
+
+> 在新中国联邦和七哥引领下
+> 看马斯克的预言
+> 即便是我对世界金融危机的预见
+> 也比马老板知道的早
+> 
+> 全球各国政府海量超发的货币
+> 超级富豪的巧取豪夺
+> 极权国家的横征暴敛和穷奢极欲
+> 让世界经济与商业彻底病了
+> 这一切
+> 在病毒和疫苗的双重催化下
+> 让世界大衰退的到来变得更近了
+> 金融危机如同惊天巨浪
+> 无人幸免 [pic.twitter.com/mK8dDhm5Vj](https://t.co/mK8dDhm5Vj)
+> — 新中国联邦公民（北评2025） (@tGj6kq0sAMr4NWx) [January 31, 2022](https://twitter.com/tGj6kq0sAMr4NWx/status/1488197719449432064?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美国撤离6个月后，阿富汗经济崩溃98％的人吃不饱
+
+
+
+
+
+> 美国🇺🇸撤离6个月后，阿富汗🇦🇫经济崩溃98％的人吃不饱 [pic.twitter.com/DrxvSVH1L8](https://t.co/DrxvSVH1L8)
+> — 银河系勇气之星🌟🛸🌟 (@COURAGESTARnew) [January 31, 2022](https://twitter.com/COURAGESTARnew/status/1488132592641933314?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+*编辑：冰川
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

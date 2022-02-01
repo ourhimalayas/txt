@@ -2,45 +2,25 @@
 ---
 
 
-## 年度回顾关键词 &#8211; 早期治疗药
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941609/)
+## 加拿大北京冬奥代表团中5人确诊
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1941665/)
 
-作者：西班牙巴塞罗那喜悦农场
+**撰稿：日本东京方舟农场  幽蘭自得**
 
+1月29日，加拿大奥林匹克委员会表示，已到北京参加冬奥的加拿大代表团，有5名团员验出了COVID-19（中共病毒）阳性反应。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-2.jpg)（图片来自网络）
+据《中央社》援引《法新社》报道，加拿大奥委会28日晚发表声明表示，目前在北京的246名代表团团员当中，有5人已接受COVID-19（中共病毒）防治安排。
 
+目前，加拿大奥委会并未透露，5名确诊者究竟是选手、随行支持人员还是官员。根据国际奥委会的防疫规定，确诊者必须离开代表团接受隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+另外，根据当地筹办单位数据显示，自本月26日以来，针对各国运动员和代表团其他团员所进行的5092次筛检，共发现23例确诊病例。
 
+参考链接：
+[https://www.cna.com.tw/news/aopl/202201290160.aspx](https://www.cna.com.tw/news/aopl/202201290160.aspx)
 
-
-羟氯喹和伊维菌素作为中共病毒早期治疗药物已经被大量实例证明有奇效。
-
-医学博士哈维曾指出，羟氯喹已经有65年的历史，是一种治愈过数以亿计的患者的安全药剂。而美国疾病控制与预防中心也在其官网上表明，婴儿、哺乳期的儿童和孕妇，老人和身患疾病的人都可以服用此种药物。另一方面，伊维菌素是一种有效抗多种寄生虫的治疗药物。由于伊维菌素低廉的价格，它是世界卫生组织基本药物标准清单中的一部分，更是基层健康卫生系统中非常重要的药物之一。
-
-据郭文贵先生的情报显示，羟氯喹或伊维菌素与锌、维生素C、维生素D3配合服用可有效预防和治疗中共病毒感染。而GNews、GTV和盖特上很多医生的专业文章和访谈节目也清楚的解释了这两种早期治疗药物的安全性和有效性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：Irene木木
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+素材采编：幽蘭自得
+编辑：文顺
+发布：爱放飞
 
  
 
