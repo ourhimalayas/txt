@@ -2,21 +2,13 @@
 ---
 
 
-## 七哥金句1－邪教的六个特征
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942208/)
+## 七哥金句3
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942256/)
 
 整理：雅典娜速记组
 编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1－邪教的六个特征-.001.jpeg)
-邪教的六个特征
-教主崇拜
-精神控制
-编造邪说
-聚敛钱财
-秘密结社
-对抗社会
-
-伊莎贝拉杨就是邪教的传播者
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3.001.jpeg)
+美国从来没有侵略过中国，却一直被共产党称为“亡我之心不死”。现在共产党又将甩锅美国，说美国挑拔了中哈关系。
 
 2022年1月12日大直播
 

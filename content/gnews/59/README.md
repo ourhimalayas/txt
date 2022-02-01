@@ -2,104 +2,43 @@
 ---
 
 
-## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
+## 因提供对维吾尔人的监控 北京奥运会“人工智能冠军”翻译供应商被制裁
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1927328/)
 
-[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
+作者：Jerry Dunleavy
+发布日期：2022年1月28日
+新闻来源：华盛顿检查官（Washington Examiner )
+翻译：V 在途中
 
-**Steve Bannon
-史蒂夫·班农**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/iFLYTEK-Asia-AI-Leader-Debuts-Cutting-Edge-Voice-Technologies-in-the-US-696x392-1.jpg)
 
-I want the people
-我希望人们
+北京奥运会官方翻译服务提供商因帮助中共监视维吾尔穆斯林而被美国列入黑名单。
+这家名为 iFlytek 的语音识别公司长期协助中国安全部门在新疆和其他地方提供技术监控，2019年9月被指定为“北京2022年官方自动翻译软件独家供应商” 。美国称中共正在对维吾尔人进行种族灭绝，美国商务部在 2019 年 10 月表示，科大讯飞是被列入美国黑名单的 20 多个中国实体公司之一，称科大讯飞“在实施中共国的镇压、大规模任意拘留和针对维吾尔人、哈萨克人和其他穆斯林少数群体成员提供了技术监控。”
 
-also the here’s the more fundamental thing for people in the audience right now
-也对现在观众中的人们来说这是更基本的事情
+科大讯飞的创始人兼首席执行官刘庆峰也是中共的橡皮图章全国立法机关全国人大代表。2021年，科大讯飞为东京奥运会提供了翻译服务，在9月份的新闻稿中暗示了其在北京冬奥会的计划。该公司长期以来得到中共国家的支持和政府的认可。公司于2018年被科技部评为全国“人工智能冠军”。
 
-other than capital markets
-除了资本市场，
-because capital markets are reactive to this
-因为资本市场对此有反应
+一家中国媒体在 2014 年报道称，科大讯飞“表示使用大数据技术打击恐怖主义已成为国际趋势”，讯飞公司可以提供帮助。科大讯飞智慧城市事业群公安部营销总监傅立亭告诉中共运营的《中国日报》，“我们通过应用我们的人工智能与警方合作。” 他告诉媒体，该公司自 2015 年以来一直在中国安徽和上海等城市与警方合作，“我们已经开始将应用程序扩展到 10 多个省的公安部门。” 傅指出科大讯飞的人工智能机器人“警察助手”，并表示该公司希望其设备在200个城市被警察使用。
 
-You’ve had these cheerleaders like Jim Cramer and others,
-你有像吉姆·克莱默和其他人这样的啦啦队员，
+人权观察在 2017 年表示，科大讯飞表示已帮助中国公安部建立了国家语音模式数据库，并成立了人工智能语音技术部级实验室，以在新疆和西藏“破案”。监管机构表示，该公司“也是新疆和安徽公安局采购的声纹采集系统的指定供应商”。
 
-Jamie Dimon up there,
-杰米·戴蒙在那里
+该翻译提供商与中国移动、中国电信和中国联通合作多年，而这些电讯公司都已被美国列入黑名单，中国联通北京也是奥运会的独家供应商。
 
-cheerleading for Biden’s economic plan
-为拜登的经济计划做拉拉队，
+美国国家人工智能安全委员会在 2021 年表示，科大讯飞等“国家冠军”公司帮助“引领国内人工智能技术的发展”，并“推进国家主导的优先事项，为军事和安全计划提供支持”，有大量证据表明科大讯飞帮助参与中国当局的追捕行动。
 
-which we said is a disaster
-我们说这是一场灾难
+据报道，科大讯飞的创始人兼首席执行官刘庆峰也是中共的橡皮图章全国立法机关全国人大代表。刘晓波回应美国黑名单时说：“没有任何力量可以阻挡我们用人工智能建设美丽世界的信心和步伐！” 他还发誓“我们不会被勒死”。
 
-And Kramer was on TV said the greatest economy in his life in his life.
-克莱默在电视上说是他一生中最伟大的经济
+讯飞其业务在 2020 年增长了 66%。在 2020 年对中国国营《环球时报》表示，黑名单并没有放慢速度，并吹捧他与华为的合作伙伴关系。
 
-Just a couple of weeks ago
-就在几周前
+华为分享的 2018 年杂志文章 断言，“科大讯飞和华为已形成战略合作伙伴关系，以开发语音和人工智能技术的实际应用。”
 
-This is right now getting oil at $85 a barrel. Right?
-现在的油价是每桶85美元，对吧？
+《华盛顿邮报》去年 12 月 透露，作为协助中国当局为“国家安全”目的分析声音的宣传的一部分，华为制作了幻灯片显示“科大讯飞声纹管理平台”（由华为和科大讯飞共同开发）可以识别个人通过庞大的“声纹”数据库。
 
-Yeah, they’re about to announce
-是的，他们即将宣布
+美国国会中国执行委员会在 2019 年表示，“中国安全当局继续与包括科大讯飞在内的国内公司合作，以扩大政府监控系统的覆盖范围和分析能力”。该公司参加奥运会是美国和国际运动员可能被迫使用与中共镇压有关的技术和产品的又一个例子，科大讯飞也可能被用来监视奥运会参与者和与会者。
 
-they’re going to redo the forecast for the first quarter slowing GDP
-他们将重做第一季度GDP放缓的预测
+[新闻链接](https://www.washingtonexaminer.com/policy/foreign/beijing-olympics-translation-provider-is-ccp-ai-champion-sanctioned-for-uyghur-surveillance)
 
-There’s you could see that yesterday
-昨天你可以看到
-
-The reason Goldman Sachs is so important of missing the earnings
-高盛失去收益如此重要的原因
-
-Why is that important?
-为什么这很重要？
-
-Why do we focus on that?
-我们为什么要专注于此？
-
-Because in this complex financial capital market driven world
-因为在这个复杂的金融资本市场驱动的世界里
-
-who would have a better understanding of it than Goldman Sachs
-谁能比高盛更了解它
-
-when they miss earnings that badly that is bad
-当他们严重失去收入时，这很糟糕
-
-everybody in the world capital markets say
-世界资本市场上的每个人都说
-
-and hi the Goldman guys missed it this badly?
-嗨，高盛的人的损失这么的糟糕？
-
-It’s worse than we thought
-比我们想象的还要糟糕
-
-Okay, that’s why the stocks off so much.
-好吧，这就是为什么股票下跌这么多
-
-* * *
-
-Date:01/19/2022
-原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
-当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-原视频日期：2022/01/18
-原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
-任务编号：KE361(3538)
-视频时间段 : 0:00-0:59
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 
