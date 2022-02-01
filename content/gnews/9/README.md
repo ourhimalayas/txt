@@ -2,49 +2,91 @@
 ---
 
 
-## 随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1940832/)
+## 2022年1月31日壬寅新春大直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1940869/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-2620.png)2022年1月23日，由卡车司机组成的车队从温哥华出发，前往首都渥太华抗议疫苗强制令。(法新社)
-《大纪元时报》2022年1月29日报道，2022年1月28日，在加拿大渥太华，自由车队的支持者在加拿大议会前抗议中共病毒疫苗强制令和限制措施。加拿大一位省长周六表示，要求疫苗的证明没有意义，他将在 “不远的将来 ”在他的省份终止这一要求。
-萨斯喀彻温省省长斯科特·莫(Scott Moe)在一份声明中说，接种疫苗并不能防止人们感染病毒，强制疫苗令“毫无意义”。
-“我想清楚地说明我对疫苗的看法。我已经完全接种了疫苗，也打了加强针。这并没有阻止我最近感染中共病毒，但我相信它确实让我免于不适。”他在一份声明中说道。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/壬寅春节大直播.jpg)
+视频连接Gettr：[2022年壬寅年新春大直播part1](https://gettr.com/streaming/prm988df17)& [2022年壬寅年新春大直播part2](https://gettr.com/streaming/prpt2a3c97)
 
-新冠肺炎是由CCP(Chinese Communist Party, 中国共产党)病毒，也被称为冠状病毒引起的疾病。
-“这就是说，由于接种疫苗并没有减少病毒传播，目前针对卡车司机的联邦边境政策是没有意义的。一个未接种疫苗的卡车司机并不会比一个接种疫苗的卡车司机造成更大的传播风险，”他继续说道。
-不过，他将“继续鼓励每个人接种疫苗”，他相信这将防止人们变成重症。
+视频连接G-TV：[2022年壬寅年新春大直播](https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55)
 
-2022年1月28日，在安大略省金斯顿的一座立交桥上，支持者们为前往渥太华的“自由”车队中的卡车司机加油。(图源：加拿大通讯社)
-莫对卡车司机在大流行期间保持国家运转表示感谢，并表示联邦对卡车司机的疫苗強制令对加拿大的经济和萨斯喀彻温省的供应链构成了重大风险。
-萨斯喀彻温省是加拿大的一个省，距离渥太华约1950英里。其南部与美国接壤。
-在莫发表声明之际，超过一万名加拿大卡车司机正在举行“自由车队2022”(Freedom Convoy 2022)活动，以抗议针对卡车司机的中共病毒疫苗强制令。
-在加拿大公共卫生署宣布从1月15日起外国卡车司机只有在完全接种疫苗的情况下才能进入加拿大，以及美国职业安全与健康管理局(Occupational Safety and Health Administra-tion, OSHA)宣布从1月22日起对进入美国的非美国籍卡车司机类似的要求之后，成千上万的卡车司机决定进行抗议，并将在渥太华汇合，试图阻止这些强制令。
-加拿大西部的卡车司机于1月23日开始行动。
-当破纪录的车队经过不同的城市时，迎接他们的是一排排长长的人群，他们举着加拿大国旗欢呼，有些人还放起了烟火。
-在“自由战士国度”的创建者利•邓达斯(Leigh Dundas)律师和她的私人助理莫琳斯•蒂尔(Maureen Steele)听到这个消息并开始在美国组织起来后，美国卡车司机迅速开始加入抗议活动。
+1、文贵先生拿出一个红色小便签纸，当他打开的时候，就是喜币上1000美元之时；
 
-2022年1月25日，在温尼伯以西的跨加拿大高速公路上，抗议中共病毒强制令的加拿大卡车司机的支持者为前往渥太华的卡车车队加油。(图源：加拿大通讯社)
-阿尔伯塔省省长杰森·肯尼(Jason Kenney)也表达了对卡车司机的支持，并承诺在他参加华盛顿特区的全国州长协会会议时,他会与美国同行讨论针对卡车司机的疫苗强制令。
-他在一份声明中说：“我将在那里讨论日益严重的供应链问题，包括美国和加拿大政府的政策，这些政策影响了许多跨境卡车司机，对供应链造成了进一步的损害，并为消费者带来了更高的价格。”
+2、文贵先生唱了三首歌：甜蜜蜜、一帘幽梦、塞北的雪；
 
-**简评：**在COVID-9大流行期间供应链持续紧张，加拿大卡车司机们反抗疫苗暴政的举动，无疑震惊世界，让政客们震惊的同时，也给予全世界各地追求自由的人民莫大的勇气。卡车司机们以及世界各地抗议的人民，很多人都已接种了中共病毒疫苗，大家反抗的是疫苗暴政和行动限制。试想如果当疫苗副作用爆发的时候，会有多少人逝去和多少家庭破碎，疫苗带来的灾难是难以想象的。我们爆料革命的战友必须牢牢的站在一起，坚持传播病毒和疫苗真相，当灾难来临之时，尽可能的帮助他人，一起度过难关。
+3、中共国春节晚会的现场都是国安的人，手机都不允许带；
 
-新闻链接：[https://www.theepochtimes.com/makes-no-sense-canada-premier-vows-to-end-proof-of-vaccine-policy-as-truckers-protest-in-ottawa\_4244794.html](https://www.theepochtimes.com/makes-no-sense-canada-premier-vows-to-end-proof-of-vaccine-policy-as-truckers-protest-in-ottawa_4244794.html)
+4、增强了春节晚会的审查制度，怕春节晚会突然插播咱们新中国联邦甜蜜蜜运动；
 
-翻译/简评：milkcat
+5、几个西方人看了我们新中国联邦春节大直播，决定不参加北京冬奥会；
 
-PR: 感恩
+6、H-Pay上线等于打通了喜联储喜币的任督二脉；
 
-* * *
+7、俄罗斯国家会启用人民币；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+8、喜币最大的流通就是俄罗斯和乌克兰；
 
+9、日本是喜币第二大流通市场；
 
-编辑：【英国伦敦喜庄园编辑部】
+10、中国45-60岁是癌症的最高发期，2021年，中国癌症是过去的15-18倍；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+11、疫苗灾难：中共春节晚会排练当中一百多个人随地倒；
+
+12、科学家正在欧洲军事实验室研究青蒿素鸡尾酒疗法，可以帮助打了疫苗的排毒；
+
+13、参加冬奥会的国家，每个国家拿中共500-1000亿的买卖或者现金，一个冬奥会花了中国人1万亿美元；
+
+14、2022年郭七条：
+
+（1）一心一意灭共；
+
+（2）扩大新中国联邦认可度；
+
+（3）在全球建立更多的新中国联邦农场；
+
+（4）让我们更多的战友从国内被救出来，同时让更多的国内的人知道我们新中国联邦；
+
+（5）让我们所有新中国联邦的战友们在G系列里面能赚更多的钱；
+
+（6）让更多人知道病毒真相，找到病毒真相，找到毒疫苗的解决办法；
+
+（7）2022年我们更加要统一目标，行动；
+
+15、宋祖英有三个孩子，孩子爹是三个人；
+
+16、郭广昌代持他股份的战友，说一生最大的好事就是卖出去2亿针假疫苗，而且都使用了。文贵先生说，只要有证据一针假疫苗，兑现一个喜币；
+
+17、宋祖英的身价可不止是几十个亿；
+
+18、跟着新中国联邦，你只会得到，不信你就看着。
+
+**注：大直播音讯正在制作和上传中，敬请关注——**
+
+壬寅新春大直播音频Part1——
+
+壬寅新春大直播音频Part2——
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

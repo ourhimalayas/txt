@@ -15,110 +15,110 @@
 
 ---
 
-### [共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（一）](/content/gnews/1/README.md)
+### [记住人类是有主人的](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [美众议院推出“美国竞争法”并将对中共实施额外制裁](/content/gnews/2/README.md)
+### [国内战友得紧急救助与国际正义力量得迅速反应](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [美国五角大楼发出警报:俄罗斯随时可能入侵乌克兰](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新疆西藏是盗国贼的牺牲品](/content/gnews/3/README.md)
+### [1.31春节大直播后记：中共春晚的假丑恶](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（一）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（三）](/content/gnews/4/README.md)
+### [美众议院推出“美国竞争法”并将对中共实施额外制裁](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新疆西藏是盗国贼的牺牲品](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [2022年1月31日壬寅新春大直播摘要及音频—银河系农场](/content/gnews/5/README.md)
+### [共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（三）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年1月31日壬寅新春大直播摘要及音频—银河系农场](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大直播后记——设计如何报仇的心路历程](/content/gnews/6/README.md)
+### [大直播后记——设计如何报仇的心路历程](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党盗国贼的力量不容小窥](/content/gnews/7/README.md)
+### [共产党盗国贼的力量不容小窥](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（二）](/content/gnews/8/README.md)
+### [共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（二）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/9/README.md)
+### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥爬过喜马拉雅山](/content/gnews/10/README.md)
+### [七哥爬过喜马拉雅山](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [对单伟建的行动](/content/gnews/11/README.md)
+### [对单伟建的行动](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [有声|美国前国务卿彭培奥警告：中共寻求 “统治全球”](/content/gnews/12/README.md)
+### [有声|美国前国务卿彭培奥警告：中共寻求 “统治全球”](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|冬奥会运动员及官员确诊病例激增](/content/gnews/13/README.md)
+### [有声|冬奥会运动员及官员确诊病例激增](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|澳洲加入加拿大反强制新冠疫苗自由车队](/content/gnews/14/README.md)
+### [有声|澳洲加入加拿大反强制新冠疫苗自由车队](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|因疫情青少年心理创伤已达国家紧急状态](/content/gnews/15/README.md)
+### [有声|因疫情青少年心理创伤已达国家紧急状态](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|拜登与中共签订中共病毒测试剂合同引发强烈不满](/content/gnews/16/README.md)
+### [有声|拜登与中共签订中共病毒测试剂合同引发强烈不满](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|中共虚假同意联合国人权专员访问新疆](/content/gnews/17/README.md)
+### [有声|中共虚假同意联合国人权专员访问新疆](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [1.31春节大直播后记：真正的音乐发自内心](/content/gnews/18/README.md)
+### [1.31春节大直播后记：真正的音乐发自内心](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [江曾如何洗钱](/content/gnews/19/README.md)
+### [江曾如何洗钱](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [新疆西藏是盗国贼的牺牲品](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（三）](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大总理特鲁多确诊感染中共病毒](/content/gnews/22/README.md)
+### [加拿大总理特鲁多确诊感染中共病毒](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [单伟健是王岐山最大的马仔](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [澳政府禁止未接种疫苗的父母探视患病子女](/content/gnews/24/README.md)
+### [澳政府禁止未接种疫苗的父母探视患病子女](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [班农先生谈中共对美洲的渗透](/content/gnews/25/README.md)
+### [班农先生谈中共对美洲的渗透](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [谁有那火眼金睛](/content/gnews/26/README.md)
+### [谁有那火眼金睛](/content/gnews/27/README.md)
  ` 骄子`
 
-### [追一朵云](/content/gnews/27/README.md)
+### [追一朵云](/content/gnews/28/README.md)
  ` 骄子`
 
-### [《国家利益》警告：西方商界投资中共国犹如把绞绳卖给刽子手](/content/gnews/28/README.md)
+### [《国家利益》警告：西方商界投资中共国犹如把绞绳卖给刽子手](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2022年1月31日晚](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2022年1月31日晚](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [冬奥会临近 中共国COVID-19激增](/content/gnews/30/README.md)
+### [冬奥会临近 中共国COVID-19激增](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [官方数据显示大多数感染者，住院者和死亡者都是疫苗的完全接种者，这是一场疫苗接种者的瘟疫。](/content/gnews/31/README.md)
+### [官方数据显示大多数感染者，住院者和死亡者都是疫苗的完全接种者，这是一场疫苗接种者的瘟疫。](/content/gnews/32/README.md)
  ` 走进澳洲`
 
-### [顶级主播瑞秋•玛多将暂停她在MSNBC的热播节目](/content/gnews/32/README.md)
+### [顶级主播瑞秋•玛多将暂停她在MSNBC的热播节目](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [扬帆每日速递 2022月1月31日版（2）](/content/gnews/33/README.md)
+### [扬帆每日速递 2022月1月31日版（2）](/content/gnews/34/README.md)
  ` 温哥华扬帆农场`
 
-### [扬帆每日速递 2022年1月31日版（1）](/content/gnews/34/README.md)
+### [扬帆每日速递 2022年1月31日版（1）](/content/gnews/35/README.md)
  ` 温哥华扬帆农场`
-
-### [疫苗危机渐渐拉开序幕，疫苗强制令政客为脱罪准备战争](/content/gnews/35/README.md)
- ` YALUN 亚伦`
 
 ### [郭先生为香草山农场的战友送去新年寄语](/content/gnews/36/README.md)
  ` GTV新闻访谈`
