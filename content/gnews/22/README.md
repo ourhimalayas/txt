@@ -2,22 +2,38 @@
 ---
 
 
-## 冬奥会临近 中共国COVID-19激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1940359/)
+## 有声|俄乌局势趋紧 美国近期将向东欧增兵
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940407/)
 
-#### 翻译：文斗
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+据台湾联合新闻网报道，美国总统拜登28日接受媒体采访时表示，近期将向东欧增兵，加强美军在俄罗斯附近的军事存在。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)
-1月31日（合众国际社） — 据有关官员称，在北京冬奥会开幕前两天，因参与冬奥会引发的CCP病毒病例在增加。
+拜登从空军一号下机并被问及是否已决定何时会派兵前往东欧时，CBS报导，拜登说他将在“短期内”派遣少量美军前往东欧。
 
-组织者已经确定了250个与冬奥会有关的病例，其中仅上周末就有71个新病例。涉及运动员或团队官员有28例。其中20个病例是在北京的“闭环系统”内检测确认的。
+美国国防部24日宣布，已提高8500名士兵的警戒状态，以便迅速将部队部署至东欧。
 
-2022年北京冬奥会医疗专家组主席布莱恩·麦克洛斯基（Brian McCloskey）说，随着抵达开幕式和比赛开始的运动员人数增加，现在这种情况是早就预料到的。
+原文链接：[俄乌局势趋紧 美国近期将向东欧增兵](https://gnews.org/zh-hans/1936776/)
 
-北京平均每天有36个新病例，比1月25日至27日的三天平均数翻了一番。这些数字超过了去年东京夏季奥运会期间的感染数字。
+音频处理/发稿：Daxia
 
-[新闻链接](https://www.upi.com/Top_News/World-News/2022/01/31/Beijing-Olympics-COVID-19/6841643654072/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

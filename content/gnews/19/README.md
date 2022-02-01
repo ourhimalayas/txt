@@ -2,19 +2,41 @@
 ---
 
 
-## Miles Guo’s broadcast highlights summary 1
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940403/)
+## 上天给新中国联邦人的使命一一消灭共产党!
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940458/)
 
 整理：雅典娜速记组
 编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Miles-Guos-broadcast-highlights-summary-3.1.jpg)
-12/08/2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/上天给新中国联邦人的使命-消灭共产党！-.jpg)
+直播时间：2021.12.08
 
-Chairman Xi Jinping originally intended 57 nations to attend Winter Olympic that is to be held in Beijing. All but 3 of small nations will be boycotting the Winter Olympic. This signifies that China no longer enjoys good diplomatic relationship with the world. Xi is furious as he had spent too much time and effort to plan this Winter Olympic. New Federal state of China had contributed the most to make this boycott happen. To take revenge on United States for the boycott, Evergrande defaulted on interest rate payment, causing losses to US investment firms.
+西方这个世界这次疫苗灾难我说过是年底开始爆发，到年底了吧。十二月份爆发了吗？
 
-To break Mile’s spirit, CCP sent a few hundred special forces and policemen to Pangu hotel (Pangu hotel is owned by Miles). All hotel staff and customers including Mile/s 92 years old father were forced onto the street by these policemen. All the people who were driven out were not allowed to change into winter clothes during a time when the weather was freezing at -4 ℃. Those who showed even a slight hint of resist were beaten on the spot. These victims and some of their family members also had their mobile phone network cut off and credit cards deactivated, therefore removing their power to purchase and communication to get help.
+我说两个月以内疫苗会结束，两到三个月会结束，一定会结束。
 
-Shan Weijian, chairperson of PAG, together with Bruno Wu began to launch various lawsuits on Mile’s companies. These lawsuits and Pangu hotel incident both happened concurrently, showing that these attacks are coordinated and pre-planned. The true identity of Shan Weijian is actually a China KGB groomed by the CCP.
+明年五月份以前一定是经济大萧条，经济大战。不会超过五月份。绝大多数概率是五月份左右。
+
+然后就是疫苗灾难大死亡。人类经历了世界最黑暗的时刻。全球灭共，那时候冬奥会的事已经是过去式了。
+
+共产党的经济，共产党整个社会内乱，不可能撑下去。
+
+如果中国人不能把中南坑这帮老杂毛给活吃了，活剥了。中国人就不配活在地球上。
+
+走着看，他让我老爹这一次流落街头，把1000多个员工零下4度扔在马路上，所有手机（没收），电，水停。
+
+这种抢劫方式，对我们新中国联邦所有人都会这么干。这次我们跟他之间一定是一场决战。
+
+我们一定赢，不是该我们赢了，是我们必须赢。一定会赢，否则我们人类就没有主人。
+
+我们不是猴子变的，我们整个就是魔鬼变得。没有阳光，没有太阳，没有水，没有空气的存在。
+
+世界在万变之中，它有一些东西是不变的。阳光和太阳从来没变过，水从来没变过。
+
+我不相信阳光下和干净的天空和我们人类的赖以生存的水资源当中，能容纳下共产党。
+
+新中国联邦人做好一切准备，最痛苦最艰难最考验人的时刻到来。
+
+从今天开始起，然后，我们将彻底改变人类，改变全地球。我们会完成上天给我们的使命——消灭这个邪恶的共产党。
 
 发布：*皮特*
 
