@@ -2,30 +2,45 @@
 ---
 
 
-## Grindr在中共国遭审查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1943539/)
+## 法官命令FDA加快提供疫苗数据，辉瑞介入庭审
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1943559/)
 
-**编译：蚂蚁兄弟**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip16Grindr在中共国遭审查.png)图片来源：trecebits.com
-除了谷歌自己的应用商店Play Store，Grindr应用在华为或腾讯等其他平台的商店也无法使用。尽管中共在法律上并不禁止同性恋，但随着北京奥运会开幕日期的临近，政府政策中的不容忍现象有所增加，例如扩大了对与同性恋性质内容有关的信息的审查。
+据《beckernews.com》作者：[Kyle Becker](https://beckernews.com/author/kylebeckereditorgmail-com/)，2022年1月26日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-42-e1643742871519.png)图片来源：beckernews.com
+**食品和药物管理局（FDA）认为，延迟75年时间提供疫苗数据是合适的，这些数据是美国历史上最大公共政策灾难的基础。**
 
-还值得回顾的是，上周中共政府宣布对网上发布的非法内容、色情和“不健康的性质”（根据中共国政府的术语）进行特别打击，这通常是指与同性恋有关的内容。2020年，Grindr已经在巴基斯坦被封锁（与Tindr一起），原因是托管和传播“不道德内容”。
+法官命令FDA加快百倍提供数据文件。
 
-在中共国，从应用商店中删除某些应用并不罕见，之前主要是与媒体、播客、社交网络甚至是地图和地理位置应用有关的应用。所有这些都是政府机构担心他们对中共政权的稳定或安全构成威胁的情况。通常的指责是，这些应用程序的背后可能正在进行非法活动，这甚至导致数以万计的视频游戏应用程序被删除。
+“我很高兴地报告，一位联邦法官正确地拒绝了FDA的要求，并命令FDA以每月55,000页的速度提供所有数据！” Aaron Siri是本案的关键诉讼律师，他早些时候在其Substack页面上宣布。
 
-与此同时，其他主要公司也被迫撤回或调整他们的一些平台以适应政府的要求。从LinkedIn到Fortnite，社交网络和视频游戏不得不自愿退出，但在这种情况下，决定似乎来自应用商店，它们暂时没有对退出的原因作出解释。
+“但是，这场法律斗争仍在继续，”Siri现在表示，“FDA正在拖延时间，同时提出一些站不住脚的借口，证明它不按命令行事的原因。”
 
-**新闻来源**：[trecebits.com][Grindr, censurada en China](https://www.trecebits.com/2022/02/01/grindr-censurada-en-china/)
+对于科学透明度和法治来说，更不祥的是，辉瑞公司甚至介入此案。Siri指出，这家制药公司的代表最近出现在的庭审中。
 
-* * *
+此案的联邦法官早些时候发布了一项不利于FDA的裁决，即FDA必须每月拿出5.5万页资料。
 
-***审核：蚂蚁兄弟
-校对：信心满满
-发布：信心满满***
+**Siri说： “任何人都不应该被胁迫进行不想要的医疗程序。政府不但通过强制疫苗侵犯了基本的自由权利，还想隐藏数据。这种治理方式对自由具有破坏性，与民主社会所要求的公开性背道而驰。”**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3.jpeg)
+“命令及时发布文件后，法官认识到发布这些数据对公众来说是最重要的，应该是FDA的最高优先事项之一。” 他继续说道。
+
+他引用詹姆斯-麦迪逊（James Madison）的一句话——一个民众的政府，如果没有获取信息的手段，那不过是一场闹剧或悲剧的序幕。而约翰-F-肯尼迪（John F. Kennedy）也认为：一个害怕让其人民在公开市场上判断真假的国家是一个害怕其人民的国家。
+
+**公开透明是至关重要的，有消息称辉瑞公司在“疫苗”授权之前掩盖了安慰剂组的死亡报告。而在11月，一位举报人站出来揭露了辉瑞公司如何 “伪造数据” 和操纵临床试验。**
+
+**难怪FDA不想公布这些文件。而辉瑞公司也不希望FDA公布这些文件。**
+
+文章来源: //beckernews.com/fda-stonewalls-after-judge-refused-to-give-it-75-years-to-produce-vaccine-data-pfizer-has-now-intervened-43887/
+
+翻译：洛杉矶盘古农场 – 海潮
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 –子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

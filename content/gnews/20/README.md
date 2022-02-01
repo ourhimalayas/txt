@@ -2,33 +2,62 @@
 ---
 
 
-## 大多数加拿大人希望终止所有COVID限制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1943344/)
+## 美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1943423/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0131_protest_10.jpg)图片来源：NationalPost
-根据《国家邮报》 (National Post) 2月1日报道，两项新的民意调查显示，随着Omicron变体的日渐消退，加拿大人的态度正在转向取消COVID限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16437385541.png)
 
-专门从事加拿大舆论研究的非营利机构安格斯-里德研究所（Angus Reid Institute）周一公布的研究显示，54%的受访者同意结束所有的限制，32%的人强烈同意。
 
-数据显示，最同意结束限制的省份是萨斯喀彻温省（62%）和魁北克省（59%），加拿大大西洋地区的大多数人（52%）不同意放宽限制。
+**  美利坚合众国**
 
-加拿大首席公共卫生官员Theresa Tam博士在1月21日的新闻发布会上说，1月14日的最新模型更新表明，全国的Omicron感染可能在1月已经达到高峰，进入2月后会有所消退。但她呼吁大家继续保持警惕。
+**在美国证券交易委员会之前**
 
-安格斯-里德指出，尽管公共卫生官员强调面对OMICRON的警惕性，但在省一级，”疫苗护照计划已经开始出现分歧”。
+依据1934年证券交易法
 
-萨斯喀彻温省省长Scott Moe在1月29日对抗议联邦政府跨境疫苗强制的卡车司机发表的声明中说，他将 “在不远的将来 “结束该省目前的阴性测试证明和疫苗护照政策。他说，接种疫苗并不能减少病毒的传播，他已经完全接种了加强针，但最近感染了COVID-19。
+发布号：94107 于2022年1月31日
 
-Moe表示：”由于接种疫苗并没有减少传播，目前针对卡车司机的联邦边境强制疫苗政策没有任何意义。未接种疫苗的卡车司机并不比接种疫苗的卡车司机构成更大的传播风险”。
+行政过程
 
-该研究所说：“如果加拿大已经度过了OMICRON变体的最糟糕时期，公众情绪似乎正朝着开放社区的方向发展”。
+文件号：3-20537
 
-新闻链接：
-[https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
+事关： G-TV媒体群公司，Saraca
 
-[https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll\_4248078.html?utm\_source=morningbriefnoe&utm\_medium=email\_MB&utm\_campaign=mb-2022-01-31&utm\_content=News\_Majority\_of\_Canadians&est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D](https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll_4248078.html?utm_source=morningbriefnoe&amp;utm_medium=email_MB&amp;utm_campaign=mb-2022-01-31&amp;utm_content=News_Majority_of_Canadians&amp;est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D)
+媒体群公司和郭媒体之声公司
 
-编辑，发稿 Spirit
+—-应答方
+
+分布和时机的拟议计划的通知供评论
+
+这里给出的通知，依据美国证券交易委员会规则1103条，在公平基金和释出计划（委员会规则）17C.F.R.   201.1103, 执法部已经向委员会递交一份拟议分发计划（拟议计划）将钱付给上述字幕内的事关方。
+
+于2021年9月13日，委员会依据1933年安全法第8A条款出具了一项建立停止与中止过程的命令，去发现并强制执行停止与中止命令（命令），针对方是G-TV媒体群公司，Saraca媒体群公司和郭媒体之声公司（合称为应答方）。在该命令中，委员会发现大约从2020年4月到2020年6月（关联期），应答方违反了联邦安全法中的登记报备项使得数千名个人投资出据G-TV常规股票，委员会也发现，在同期内，G-TV和Saraca公司还向这些投资人出具数字资产证券，称为G币或G美元（数字资产），根据这个命令，作为出具这两项未登记证券的结果，这两项操作合在一起，应答方从5000多名投资者直到2020年7月收集了4.87亿美元。
+
+委员会命令应答方收集的4亿8千6百74万5千零63元释出，预估1千7百68万8千365元利息，民事赔偿3千5百万，总计5亿3千9百43万3千428元在委员会，委员会建立的公平基金，依据2002年萨班斯-奥克斯利法案，支付的罚款，释出的资金和利息，可以分发给受害的投资人（公平基金）。
+
+公平基金包括4亿5千5百49万7千588元37分支付给应答方，任何附加的支付基金，根据命令，将加入公平基金，公平基金的财产应该继续接受委员会的判决和控制。公平基金和存在了美国财政部财政服务计息账户，任何产生的利息均将加入公平基金。
+
+评议机会
+
+根据这项通知，建议所有有关人员他们将获得一份发布在公共网站上：[http://www.sec.gov/litigation/fairfundlist.htm](https://www.sec.gov/litigation/fairfundlist.htm) 的计划复印件，有关人员可以通过递交一份向美国证券交易委员会(100F街，NE, 华盛顿地区，20549- 5876)诺亚·基顿斯的书面请求，获得一份书面的拟定计划，任何人都可以从即日起在30天内对拟定计划提出书面评论。
+
+1. 美国证券交易委员会秘书办公室，100F街，NE, 华盛顿地区，20549-1090
+2. 通过委员会的网络评论表格 ([http://www.sec.gov/litigation/admin.shtml](https://www.sec.gov/litigation/admin.shtml));  或
+3. 通过发电子邮件至  [\[email protected\]](/cdn-cgi/l/email-protection#e193948d84cc828e8c8c848f9592a1928482cf868e97)
+
+
+通过电子邮件或通过网站的评论应该在条目栏中包含行政过程文件号：3-20537。可以从公众获得评论，相关人员应当只递交他们愿意让公众知道的信息。
+
+拟定计划
+
+公平基金目前有效的包含了4.56亿49万7千588元37分供释出，预计利息，由应答方的民事赔偿，加上利息和收益，较少的税，费用和化费，拟定计划提供一揽子公平基金发放给在关联购买GTV普通股股票和数字财产的投资者和被作为计算方法分配计划中被认定的损失方。
+
+委员会，依法代表权力机构的执法部
+
+秘书：维尼莎·A·康彻曼
+
+
+
+#### 翻译：honglu61
 
  
 
