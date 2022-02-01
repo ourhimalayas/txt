@@ -2,77 +2,36 @@
 ---
 
 
-## 【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1933874/)
+## 追一朵云
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1940514/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Cumulus_cloud_above_Lechtaler_Alps_at_tannheim_Austria.jpeg)Cumulus Wolke, Lechtal, Österreich
+往城市边缘开，一直走，一路都有一朵云，如果方向不变，可以一直追着这朵云跑。一下子出去几百里地，那朵云还是会悬空在原来的地方，好像一步也不曾走过似的。天快黑了，人也倦了，云还在天上。沙漠公路尤其如此，一天开几百里地，外面都是相同的景象，除了沙还是沙，除了路还是路，走一天有时候都碰不上一个人。人类多么渺小，一天行走的路途有时候比不上一朵云的移动。沙漠里走得时间长了，人会抑郁，不仅是沙漠，雪山公路，初见时盛大开放，震撼到激动不己，但是沿着那条公路一直开，很快就会厌倦。因为一成不变会伴随一整天，伴随几百公里的旅途。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-02-01-11.18.08-1280x715.png)
 
-接[【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（上）](https://gnews.org/zh-hans/1933733/)
+后来高科技发明了一个东西叫做无人机，在空旷的地面升起无人机，然后随着它的视角，人可以看到更远，看到更高。以前无人机不在民用范围，很多奢侈的享受都叫做直升机观光。七哥直播里说军方的人带着他去看共产党在昆仑山的祭坛时，就是军机安排的。飞到一定高度，视野就会开阔不少，看到的也就更多。人类生活的地球其实从视野高一些的地方观看，美妙无比。四个平民登上太空去，看到的地球，就是如此。在电影电视中，甚至地图上，我们看到的地球都超过了我们原先认知的那一小块土地。遥远的外太空一直被蒙上一层神秘的光环，因为人类要到达那里，不是一天两天，一年两年，科学家终其一生研究的课题，在我们这个时代，有了让平民登上太空的可能，并且已经有人上去了一趟，费用也并不高昂，只用了100万美元，这都比不上北京一套房贵吧？况且这是四个人的费用，一个人平均是25万美元，更便宜了。这四个人中，剩余三个人的费用且都是那个富豪来赞助的。
 
-2021年11月26日至2022年1月8日，澳大利亚新南威尔士州总共273,511例明确知道疫苗接种状态的确诊病例中，打了一针疫苗的2,578例，接种两针或两针以上的267,381例，未接种疫苗的人群中仅确诊了3,552例。
+在高空中看到的云彩，像棉花糖一样，飞机飞到平流层上空，正好脚底下就是云彩，厚厚的一层，铺满在脚底下。可惜靠窗的位置永远只有一个座位，整个过程都可以观看云彩。和平时在地上看到的是完全不一样的，是朵状的，大团大团簇拥在一起。人不能踩上去，因为人有重力，会掉下去。孙悟空有筋斗云，那朵云可以带着他到处飞，他踩在上面一点都不会有重力，他获得的是绝世轻功。每次梦想像孙悟空一样踩着一朵云游来游去，总归就是要离开地球表面，哪怕是一寸。最爱看那些拥有魔法的少女，或者骑着扫帚，或者坐着飞毯，或者驯服了一头巨大的飞龙，别提有多神奇了。作为一个地上的人，却在羡慕飞鸟的翅膀，向往一望无际的天空，总觉得天空一无所有，但好像应有尽有，无论阴天晴天还是雨天，抬头就能感受安慰。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/v2-05563d3a2631d9672f4e52c619787278_1440w.jpeg)
+今天人类拥有的天空似乎很宁静，无论人们向往的是什么，每个人都可以抬头看看天空，天空里是干净的，不像战争时期天空里总充满着战斗机，充满着大炮的浓烟，轰炸的猛烈味道。然而地球上这场中共病毒和疫苗的灾难却弥漫在大地上，久久不曾褪去。两年了，人们被时不时地圈禁在家里，可以随时看到头上的天空，但那个天空很小，是自家窗户的那么小，不能出门看到更广阔的天空，更全面的云朵，因为有各种各样的居家令，甚至出门买菜都得小心翼翼的。很多独裁政府对不接种新冠疫苗的人都下了强制令，尽管最高法已经驳回了拜登的疫苗强制计划，但仍然有不少极端的做法。人的活动范围越来越小，曾经我们能够一步踏上的新鲜空气，如今都要拿口罩来遮住，为了安全，为了防止病毒感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-367-1.png)
+人们在这种高压环境下，几乎不能生存，人是群居动物，人类之间永远需要互动，互联网可以做到一部分，但面对面的沟通那又是一部分，目前人类的科技还无法做到在网上视讯像是身临其境一样。最简单的就是，网上开会和平时开会是完全不同的，网上开会只能听着，但平时开会可以做很多事，比如和旁边的同事小声说话开小差，或者稍微使个眼色啥的，哈哈。所以，在中共病毒两年以后，越来越多的国家放开了限制，不再需要限制，不再会强制核酸检测，强制打疫苗，人们还是恢复原来的生活状态。这也是始作俑者共产党，最不想看到的，毕竟这个中共病毒可以对人实行网格化管制，再加上新冠疫苗已经打了不少人了，几乎就要统治全球了，只是往往在最后一刻，事情发生了转机。
 
-2021年11月26日至2022年1月8日，3,022名Covid-19住院患者中，打了一针疫苗的80例，接种两针或两针以上的2,627例，未接种疫苗的人群中仅315例。
+几百公里追不上一朵云，一会儿就能厌倦一条路，因为人始终在地面上，能够到达的远方是有限的。人们对天空的梦想，对飞行的愿望，对更大更广阔的宇宙探索，是挡不住也不可预测的。拿中共病毒和疫苗妄想把所有热爱自由的身体和灵魂都圈禁起来，好比把盘古龙头给罩起来，人怎么能就此罢休呢？真正的龙怎么能被这个罩子罩住呢？阻止他人做某件事，而放任自我随意戕害人类，这是共产党邪恶的一贯手法，地球有多大，不过宇宙的一粒沙而已，人类有多渺小，有时候连一粒沙子都不如。只是无论沙漠还是沙滩，他们联合在一起的时候，总能够连接天空。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-368-1.png)
+* * *
 
-2021年11月26日至2022年1月8日，282名进入ICU的患者中，打了一针疫苗的12例，接种两针或两针以上的215例，未接种疫苗的人群中仅55例。
+作者：骄子
+发布：骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-369-1.png)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
-2021年11月26日至2022年1月8日，282名死者中，打了一针疫苗的3例，接种两针或两针以上的67例，未接种疫苗的人群中仅21例。
+ 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/image-370-1.png)
-
-在确诊、住院、ICU和死亡中，打了一针的似乎都最少，但这完全是假象，不能说明接种一针疫苗似乎感染、住院、ICU和死亡都很少。
-
-首先，根据澳大利亚卫生部门的统计规则（见报告31页），大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群中；
-
-其次除了37.4%的5~11岁的儿童仅打了一针外，在年满16岁的人群中，95.4%被打了一针，94%被打了两针，也就是说，仅打了一针的仅1.4%，；而在12~15岁的人群中，打了一针的83.2%，打了两针的78.5%，也就是说，仅打了一针的才4.7%，基数本来就少。
-
-而在新南威尔士州公布的疫苗接种状态中，只公布了年满16岁的人接种疫苗比率的时间曲线，并未公布16岁以下的人群是什么时候接种的。这让我们难以判断究竟有多少16岁以下的人是在确诊前21天内打的第一针。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_23-46-13.png)
-
-根据澳大利亚卫生部门的介绍，澳大利亚是从去年1月25日开始向年满16岁的人注射辉瑞疫苗，去年7月22日开始向12~15岁的青少年打辉瑞疫苗，去年12月5日开始向5~11岁的儿童打辉瑞疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Comirnaty-Pfizer-is-approved-for-use-in-people-aged-5-years-and-over.png)
-
-澳大利亚从去年2月15日开始向年满18岁的人注射阿斯利康疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaxzevria-AstraZeneca-is-approved-for-use-in-people-aged-18-years-and-over.png)
-
-澳大利亚从去年8月9日开始向年满18岁的人注射Moderna疫苗，9月3日开始向12~15岁的青少年注射Moderna疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Spikevax-Moderna-is-approved-for-use-in-people-aged-12-years-and-over.png)
-
-而2021年11月26日~2022年1月8日的中位日期为2021年12月17日，也就是说，5~11岁的儿童都是确诊前21天内第一次接种的疫苗，都被计入了未接种疫苗的人群。而12~15岁的青少年是从去年7月22日和9月3日才开始打疫苗，这些人打疫苗的时间比率曲线完全不知道。
-
-因此，如果南威尔士州不公布各年龄段的疫苗接种时间线，同时把接种第一针疫苗不超过21天的人混入未接种疫苗的人群中计算，极容易对公众产生误导，或者说错误的把大量第一次接种疫苗不超过21天的COVID-19患者计入未接种疫苗人群中，掩盖疫苗灾难的真相！
-
-但无论如何，南威尔士州的数据说明，COVID-19确诊、住院、ICU和死亡人群中，绝大多数为疫苗接种者，而未接种疫苗的人微乎其微。疫苗灾难正在爆发！
-
-参考资料：
-
-[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
-
-[COVID-19 vaccination update Vaccine doses administered to NSW populations](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/stats-nsw.aspx#today)
-
-[Spikevax (Moderna)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/moderna)
-
-[Comirnaty (Pfizer)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/pfizer)
-
-[Vaxzevria (AstraZeneca)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/astrazeneca)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW  Epidemiological week 1, ending 8 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

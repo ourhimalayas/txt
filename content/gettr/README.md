@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 11:53 PM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: Zhang Gaoli fooled Peng Shuai by using the idea that "the universe is infinite" and thus became the first man to sleep with her. The stories of heroes like Churchill and Mitterrand tell us it is important to be ourselves and not to care how others see us. However, the CCP’s China Central Television (CCTV) is purely brainwashing the people, and everything is just a show<br/><br/>1/31/2022 文贵虎年新春大直播：张高丽用“宇宙无限大”骗彭帅献出第一次；丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看<br/>
+![img](https://media.gettr.com/group40/getter/2022/02/01/23/c0a6521f-2774-8933-9559-b73738990214/out.jpg)
+
+---
+
+`@miles 2/1/2022 11:40 PM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: The launch of H-Pay means that the Himalaya Exchange and Himalaya Coin have been opened to unlimited possibilities. The CCP has put up an enormous amount of money to stop H-Pay from launching. Someone from a certain country can designate the value of the Himalaya Dollar. The Himalaya Coin will be the largest currency in circulation in Russia and Ukraine. Japan will be the second largest market for Himalaya Dollar. H-Pay and Himalaya Dollar will solve the problem that spending money is harder than earning it<br/><br/>1/31/2022 文贵虎年新春大直播：H-Pay上线意味着喜联储、喜币被打通了七通六脉；中共开出天价阻碍H-Pay上线；某国人士可指定喜美元的价值；俄乌将是喜美元流通最多的国家；日本会是喜美元的第二大市场；H-Pay和喜美元将解决花钱比挣钱难的问题<br/>
+![img](https://media.gettr.com/group6/getter/2022/02/01/23/0171c2c5-8a9f-dda5-769f-250f026dcc8d/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@thepotomacview 2/1/2022 10:43 PM (UTC)`
@@ -146,20 +160,6 @@ Limited Edition Exclusive Release for Chinese New Year.                         
 
 2022年壬寅年新春大直播
 ![img](https://media.gettr.com/group44/origin/2022/01/31/12/1847a9a6-7fb1-2f16-1321-a5821623b4f6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 1/31/2022 3:09 AM (UTC)`
-
-1/30/2022 Miles Guo: The Whistleblowers’ Movement and the New Federal State of China are the first to tell the whole world the truth about the CCP virus and the COVID vaccines, pushing the people of conscience across the globe to stand up against vaccine mandates. Digital finance is bound to be born as the U.S. economy is set to plummet!<br/><br/>1/30/2022 文贵直播：爆料革命和新中国联邦第一个向全世界揭露了中共病毒和疫苗的真相，推动了全世界有良知的人站出来反对疫苗强制令；随着美国经济将出现大跌，数字金融必将诞生！<br/>
-![img](https://media.gettr.com/group27/getter/2022/01/31/03/d4db329d-5bf8-3a5c-d52b-2cdda3b94531/out.jpg)
-
----
-
-`@miles 1/31/2022 2:20 AM (UTC)`
-
-1/30/2022 Miles Guo: Putin’s invasion of Ukraine can accelerate the final battle between Europe and the CCP! The CCP has fueled Russia’s westward expansion. As long as the CCP is destroyed, Putin will have no money to attack Ukraine. Europe, together with its allies such as the US, Japan, and Australia, can defeat the CCP's troops in a few minutes.<br/><br/>1/30/2022 文贵直播：普京打乌克兰会加速欧洲与中共的决战！中共助长了俄罗斯的西扩，只要干掉中共，普京就没钱去打乌克兰；欧洲和美日澳等盟友一起能分分钟干掉中共军队<br/>
-![img](https://media.gettr.com/group29/getter/2022/01/31/02/63bbe57f-a1c9-64d7-5b25-f3f1bc2b0ac1/out.jpg)
 
 ---
 

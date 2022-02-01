@@ -153,41 +153,41 @@
 ### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/46/README.md)
  ` 關注組`
 
-### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/47/README.md)
+### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/47/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/48/README.md)
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/49/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/50/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [追一朵云](/content/gnews/51/README.md)
- ` 骄子`
-
-### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/52/README.md)
+### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](/content/gnews/53/README.md)
+### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/52/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [追一朵云](/content/gnews/53/README.md)
+ ` 骄子`
+
+### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/54/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](/content/gnews/55/README.md)
  ` 温哥华扬帆农场`
 
-### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)](/content/gnews/54/README.md)
+### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)](/content/gnews/56/README.md)
  ` 温哥华扬帆农场`
 
-### [【Michael.Tonny专栏】Rubio等参议员提起冠状病毒起源验证调查与确定法案](/content/gnews/55/README.md)
+### [【Michael.Tonny专栏】Rubio等参议员提起冠状病毒起源验证调查与确定法案](/content/gnews/57/README.md)
  ` 温哥华扬帆农场`
 
-### [每个墙内同胞都应该拥有一个香草山](/content/gnews/56/README.md)
+### [每个墙内同胞都应该拥有一个香草山](/content/gnews/58/README.md)
  ` 纽约香草山MOS02`
-
-### [从924空战浅谈空对空导弹 （上）](/content/gnews/57/README.md)
- ` 军情启示录`
-
-### [GTV是王！喜联储拒绝5000亿美元现金投资拿5%-10%股份提议](/content/gnews/58/README.md)
- ` YALUN 亚伦`
 
 ### [因提供对维吾尔人的监控 北京奥运会“人工智能冠军”翻译供应商被制裁](/content/gnews/59/README.md)
  ` 喜马拉雅农场新西兰站`
