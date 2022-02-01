@@ -2,18 +2,14 @@
 ---
 
 
-## 有声|多家媒体同时报道新中国联邦
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943197/)
+## 有声|GTV新闻访谈简报|2022年1月29日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943202/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月28日，多达十家台湾媒体联合报道，新中国联邦创始人郭文贵先生，通过直播方式向世界率先透露，美国拜登政府已正式签署文件，授权撤离美国驻北京大使馆。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-7.png)
 
-新闻报道开篇转述郭先生直播内容，就在美国发布撤离公告后，接着，欧洲、日本乃至全世界也会跟着撤离。接下来，就是美国要对中共病毒进行溯源调查的时候了，届时中共若不配合就开战。
 
-文章最后引用郭文贵先生的盖特公告强调：新中国联邦第三份历史性文件中，对美国总统拜登和国务卿布林肯授权关闭美国驻北京大使馆表示赞赏，也希望美可进一步采取行动，否认中共是代表中国和中国人民的合法政府。并宣称COVID19是中共对无辜的中国人民和全人类的种族灭绝行为。
-
-文字版原文：[多家媒体同时报道新中国联邦](https://gnews.org/zh-hans/1927666/)
+文字版原文：GTV新闻访谈简报|2022年1月29日晚
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

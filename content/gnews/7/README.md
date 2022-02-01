@@ -2,36 +2,61 @@
 ---
 
 
-## 瑞典决定不建议为5-11岁的儿童接种COVID疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1943387/)
+## 新型短信诈骗：打疫苗领奖励
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1943421/)
 
-据《路透社》作者：Johan Ahlander，2022年1月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-41-e1643737488220.png)2021年3月2日，瑞典斯德哥尔摩北部索伦图纳一个教堂里，一名卫生工作者为一名老人接种辉瑞公司的COVID-19疫苗。
-图片来源：Fredrik Sandberg/TT News Agency/via REUTERS
-瑞典卫生局周四表示，瑞典决定不建议为5-11岁的儿童接种COVID疫苗，认为疫苗带来的风险大于其好处。
+作者：Rachel Lau
+翻译：Himaboy
 
-瑞典卫生署官员Britta Bjorkholm在一次新闻发布会上说：“根据我们今天掌握的情况，孩子们患严重疾病的风险很低，我们没有看到为他们接种疫苗有任何明显的好处。”
+日前有民众称，收到自称是安省公共卫生厅发来的信息，鼓励民众在接种新冠疫苗或遵守公共卫生措施，从政府处领取奖励。安省公共卫生厅近日特别就此事发文，提醒民众要小心这类信息。
 
-她补充认为，如果研究发生变化，或者如果新的变体改变了大流行趋势，可以重新考虑这一决定。
+安省公共卫生厅在31日上午发布推文表示，“希望提醒民众近期正盛行的一种新型短信诈骗手法，它谎称公共卫生厅将给接种了新冠疫苗或遵守公共卫生措施的民众提供金钱奖励。”
 
-瑞典在1月26日登记了超过4万个新病例，尽管测试有限，但已经是大流行期间单天最高病例数。虽然日感染记录被打破，但医疗保健并不像前几波那样紧张。
+“我们从未发送过此类短信。民众切勿回复，应立即删除这类信息。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-6.png)
+随后有网友回复卫生厅的推文称，“我在我的工作电话上收到了类似短信。它以卫生厅的名义发来，还说会给我发80元奖励，因为我已经打完三针。”
 
-周四有101名COVID患者需要重症监护，远远低于2021年春季期间的400多名患者。自大流行开始以来，瑞典共有近16000人死于COVID。
+这类短信诈骗在魁省也已出现。有民众反映收到的类似信息中，要求人们点击链接领取奖励或了解详情。
 
-瑞典政府周三将限制措施延长了两周，包括餐馆的有限开放时间和室内场所的上座率限制，但表示希望在2月9日取消这些限制。
+卫生厅提醒民众，这些链接看起来非常像政府的官网网址，但实际上并非如此。
 
-文章来源: [https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
+据加拿大反诈骗中心发布的信息，现在出现了多种与新冠疫情有关的骗局，其中多种诈骗手法都试图诱骗民众使用政府服务，以此获取民众的个人资料和财务信息。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+加拿大网络安全中心建议民众：
 
+要特别警惕这类信息，尤其如果它的口吻看起来特别紧急或具有威胁性的时候；
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+看看这些信息有没有错字；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+千万不要点击信息中自己不确定的链接或附件；
+
+使用可信的反恶意程序软件；
+
+检查网址中有没有拼写错误；
+
+用搜索引擎查询网址，不要直接点击信息中提供的链接；
+
+若不能确定网页是否合法，不要录入自己的个人信息或信用卡内容。
+
+来源：https://montreal.ctvnews.ca/covid-19-text-scams-targeting-quebecers-by-offering-prizes-information-1.5756919
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月29日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943202/)
+## 有声|印度尼西亚新增确诊逾万例 Omicron亚变种BA.2现踪
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943207/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-7.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据台媒报导，印度尼西亚卫生部发言人席蒂（Siti Nadia Tarmizi）指出，印度尼西亚因制定限制群聚活动的规定以及远距医疗服务等措施，相较于菲律宾、新加坡、马来西亚、泰国、印度等国家，这波疫情控制得最好。
 
+然而，印度尼西亚卫生部长布迪（Budi Gunadi Sadikin）昨日（28）也指出，印度尼西亚目前已出现受到Omicron的亚变种BA.2感染的少数个案了。
 
-文字版原文：GTV新闻访谈简报|2022年1月29日晚
+报导中也指出COVID-19变异株Omicron亚变种BA.2因无法以检测不到S基因靶标（SGTF）的核酸筛检方式验出，因此也被称为隐形的Omicron，且目前尚无研究显示BA.2的传染力更强。
+
+文字版原文：[印度尼西亚新增确诊逾万例 Omicron亚变种BA.2现踪](https://gnews.org/zh-hans/1936777/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
