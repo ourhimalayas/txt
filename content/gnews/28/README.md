@@ -2,49 +2,40 @@
 ---
 
 
-## 英国国会议员计划对台湾进行国事访问以对抗中共
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1939339/)
+## 疫苗灾难将促使全球自动灭共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1939393/)
 
-作者：纽约香草山农场 – 四季
+作者：香草山农场-晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月30日，郭文贵先生在直播中再次谈及了有关中共病毒疫苗灾难的话题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-24.jpeg)
 
+郭先生透露，一位参加过《文贵大直播》的战友，其17岁的孩子在接种了中共病毒疫苗后于昨晚过世。其后，还有9位战友也分别向郭先生传递了家人因疫苗副作用而引起家庭灾难的消息。
 
+郭先生指出，据科学家预计，全世界因中共病毒疫苗造成死亡的人数将达到6至7亿人。同时，疫苗政治、疫苗军事和疫苗经济下的疫苗灾难将从2022年5月开始爆发。
 
+对此，郭先生表示，各国民众应尽快苏醒，从而能将所有推行疫苗强制令的政客彻底曝光。随之而来的，为了平衡民心并保住其政治地位，这些政客势必要把民意引向追溯病毒起源、疫苗真相，甚至战争等方面。自此，全球必将开启自动灭共的进程。
 
+郭先生还提醒爆料革命战友，当世界进入混乱之时，新中国联邦在海外的华人要防止当地排华事件的发生并改变与人交往的方式；而墙内的战友则不要充当中共的炮灰。
 
-据[布莱特巴特新闻网](https://www.breitbart.com/politics/2022/01/31/british-parliamentarians-plan-taiwan-trip-in-defiance-of-communist-china/)1月31日报道，英国议会外交事务委员会的议员们正计划在2月底对台湾进行国事访问，以对抗中共。
+郭先生最后也反复强调，共产党不等于中国人，且新中国联邦只为救人。因此，我们不希望用鲜血与生命来证明爆料革命的伟大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1164775737-640x480-1.png)ANTHONY WALLACE/AFP via Getty Images
+参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
 
-英国议员们一直是中共专制政权直言不讳的批评者。2021年4月，英国议员在下议院批准了一项动议，宣布中共对新疆地区的穆斯林维吾尔族和其他少数民族实施了种族灭绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-英国政府已经禁止了中国电信公司华为进入英国的5G网络，并对中共镇压香港的民主抗议活动的行径提出强烈批评。英国认为这违反了1984年签署的《中英联合声明》。该声明是一份具有法律约束力的联合国文件，旨在保护香港的自由和自治，在英国于1997年将其前殖民地的控制权交给中共国后的50年里，不受共产主义统治。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
-
-编辑/校对/发稿：小鹿
-
-
+总编：文特
+编辑：静言
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

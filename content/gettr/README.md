@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 1:11 AM (UTC)`
+
+2022年壬寅年新春大直播
+![img](https://media.gettr.com/group44/origin/2022/01/31/12/1847a9a6-7fb1-2f16-1321-a5821623b4f6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/1/2022 12:35 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Behind the CCP’s Spring Festival Gala are the dirty deals and fake performance, and it is the Chinese people’s money that has been spent on the CCP’s Gala. In contrast, the NeFederal State of China (NFSC) never takes a penny from Lao Baixing and has been saving the people at every moment. The NFSC worships the sun, while the CCP worships bloodshed and violence.<br/><br/>1/31/2022 文贵虎年新春大直播：中共春晚的背后都是肮脏的交易和虚假的表演，花的全是民脂民膏！新中国联邦不拿老百姓一分钱，每时每刻都在不停地救人；新中国联邦崇拜太阳，而中共却崇拜血腥暴力<br/>
@@ -147,15 +154,6 @@ FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; B
 
 1月28号：感谢战友凯莉，收藏的SNOW 的视频，一切都是如此的美好。
 ![img](https://media.gettr.com/group17/getter/2022/01/28/21/fbcfa9ea-1a00-0614-b660-78adac0c273e/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 1/28/2022 8:39 PM (UTC)`
-
-EP7: The Master of Mind Control. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第七集：脑控专家。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles  #mindcontrol #nfsc新中国联邦 #takedowntheccp #indoctrination #conqueranddivide #covid19censorship  #hbovice #hbovice訪談真相 #june4th1989 #june4th2020
-![img](https://media.gettr.com/group41/origin/2022/01/28/20/064ea884-efef-8155-e788-b24c90da1fb8/out.jpg)
 
 ---
 
