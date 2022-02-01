@@ -2,41 +2,40 @@
 ---
 
 
-## 有声|甜蜜蜜运动在中共国发酵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943183/)
+## 中俄勾兑，习近平只是普京玩弄的工具
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943187/)
 
-配音：香草山健身部 – 玫瑰园
+作者：纽约香草山教育部- Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2022年1月30日直播中，向战友们深入解密了现在的俄乌局势，并强调，在这场国际博弈中，习近平只是普京手中把玩的工具而已。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6.jpeg)
 
+郭先生指出，虽然普京和习近平企图通过东西两线同时开战，让美国无法兼顾。但普京和习近平开战的目的截然不同，结果也截然不同。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+普京通过制造乌克兰危机跟美国和欧洲谈条件，如果美欧同意俄罗斯把天然气管道铺设到欧洲，俄罗斯就拥有了一个插在欧洲人血管上的赚钱工具，俄罗斯的GPD会翻倍的增长，同时俄罗斯西部的战略线会西扩几千公里。
 
+如果俄乌开战，俄罗斯将在几年内会受到美国的经济制裁，但却可以收复苏联时期失去的国土，在西线取得战略优势。
 
+习近平打台湾的目的，仅仅是为了满足他愚蠢的做千年明君的梦想，中共进攻台湾，一旦开战，无论是常规战争还是核战，中共都毫无胜算。而且，一旦开战中共国的GDP会骤降，同时还会造成数十万中共百姓的死亡。
 
-据2022年1月31日盖特消息，中共国国家电视台地方电视台在迎新春庆祝晚会上播出“甜蜜蜜”歌曲的背景音乐，地方电视台在迎新春庆祝晚会上播出“甜蜜蜜”现场歌手歌唱。
+郭先生强调，俄乌开战会加速欧洲与中共的决战，因为欧洲已经清楚的意识到，普京开战的底气来自中共对俄罗斯的经济支持。消灭中共是解决俄乌危机最有效的办法。
 
-郭文贵先生倡导的甜蜜蜜运动引起中共统治阶层的极度恐慌，中共不惜使用专制宣传机器，即刻在网络媒体上封杀“甜蜜蜜”这首歌曲。 盖特视频显示，央视中央四台用一段“甜蜜蜜”音乐做为背景音乐。而四川电视台节目，则放出两位歌手对“甜蜜蜜”歌曲的倾情演唱。
+参考链接：[2022.1.30文贵先生爆料 中俄勾兑，习近平只是普京玩弄的工具](https://gnews.org/zh-hans/1933442/)
 
-原文链接：[甜蜜蜜运动在中共国发酵](https://gnews.org/zh-hans/1941527/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+总编：Zion文恩
+编辑：文真
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
