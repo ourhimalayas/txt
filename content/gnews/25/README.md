@@ -2,26 +2,27 @@
 ---
 
 
-## 日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1941129/)
+## 【速報】前东京都知事石原慎太郎去世
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941260/)
 
-#### 翻译：文斗
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6.png)
+[图片来源](https://news.yahoo.co.jp/articles/b126b9f149d73ec31770365d35e4d52ee3f0156f/images/000)
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2.png)
-日本贸易和制药公司興和公司（ Kowa Co Ltd ）周一表示，抗寄生虫药物伊维菌素在联合非临床研究显示出对奥米炕（ Omicron ）和其他冠状病毒变体具有“抗病毒作用”。
+根据日本新闻2月1日消息，前东京都知事、芥川奖获奖作家石原慎太郎去世，享年89岁。
 
-興和公司没有提供更多细节。 该公司一直与一家日本医学研究与开发机构，位于东京的医科大学-北里大学（Kitasato University）合作。
+石原在1968年当选为参议院议员，1972年，他转入众议院，此后八次当选。他还担任过环境局局长和交通部长。1999年竞选东京都知事并首次当选。2006年，他承诺主办东京奥运会，尽管他在2004年未能赢得申办，但他为2008年的申办铺平了道路。他于2014年退出坛。
 
-该研究于 2020 年 9 月 16 日开始，计划结束日期为 2022 年 3 月 31 日。该研究的标题为“安慰剂对照随机双盲（评估者、患者）多机构联合平行组比较试验，以测试伊维菌素对CCP病毒患者的疗效和安全性。”
+其实，石原首先被公众认识是作为一名作家。作为一名作家，他创作了许多有争议的作品，1955年，当他还是一桥大学的学生时，他因小说《太阳的季节》成为有史以来最年轻的芥川奖得主。2004年，他以第一人称“矿石”写他以前的“天敌”田中角荣的自传体小说《天赛》成为畅销书。
 
-该临床试验正在进行中，日本国立保健医疗科学院官网可以查看[简报（日文版、英文版）](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)。
+信息来源：
 
-伊维菌素用于治疗动物和人类的寄生虫，但推广该药物治疗CCP病毒引发了争议。路透社在报道发表几小时后删除了原文中有关“ III 期临床试验中有效治疗 Omicron 的药物”的内容。但在The Gateway Pundit网站仍可以找到完整报道以及该研究的英文版报告文件。
+[【速報】石原慎太郎元都知事が死去　近年は脳梗塞や膵臓がん患う](https://news.yahoo.co.jp/articles/b126b9f149d73ec31770365d35e4d52ee3f0156f)
 
-新闻链接：[1](https://www.thegatewaypundit.com/2022/01/japans-kowa-company-finds-ivermectin-effective-omicron-covid-variants-phase-3-trial/) [2](https://www.reuters.com/article/health-coronavirus-japan-kowa/japans-kowa-says-ivermectin-effective-against-omicron-in-phase-iii-trial-idUSL1N2UB0AV)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-日本国立保健医疗科学院官网 [https://rctportal.niph.go.jp/s/detail/um?trial\_id=jRCT2031200120](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)
 
  
 

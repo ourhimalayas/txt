@@ -2,24 +2,53 @@
 ---
 
 
-## 2022春节的北京，病毒＋奥运已年味儿不再
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941216/)
+## 普京进攻乌克兰会加速欧洲与中共决战
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1941303/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3.png)
-（图片源自本文链接）
+作者：纽约磐石农场—在远方
 
-２月１日朝日电视新闻消息：距北京奥运会只有三天时间了。历年春节，北京访客最多的寺庙已关闭，人们被要求不要外出用餐。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-4.png)
-有北京市民表示人：确实有点失望，但我今天一定要来，心到神知。
 
-每年春节的北京，最受初拜者欢迎的藏传佛教寺庙也因中共病毒（新冠病毒Covid-19）扩散而关闭。北京市还要求人们在节日期间限制外出就餐，不超过10人，不超过2小时，并避免长时间交谈。从2日开始，将在中共国的长城上进行为期三天的火炬传递。届时，长城将不对公众开放。
 
-信息来源：[北京五輪まであと3日 北京では寺院閉鎖で異例の春節（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/37fe30c7d683a7a918990832a1b4e2f4bd14bd5f)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-3.jpg)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+
+
+郭文贵先生在2022年1月30日的直播中爆料，普京进攻乌克兰会加速欧洲与中共决战。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file.png)
+郭先生说，在新中国联邦与欧洲的合作者全力停止全世界疫苗灾难的时候，欧洲人意识到，如果普京下令俄军进攻乌克兰，将会加速欧洲和中共的决战。欧洲合作者表示：普京能发动侵略和敢于发动侵略的本质是因为习近平统治的中共国给了普京巨大的经济支持。普京意图阻止欧洲东扩的根本原因就是因为中共给了普京的两个合同，总共价值一万亿美元，这能够让俄罗斯扩张军事。
+
+另外，由于中共国的数字人民币以及人民币国际化，这些都助长了俄罗斯妄图侵略乌克兰的野心，欧洲也将面临着噩梦。该合作者表示，在面临俄罗斯西扩的威胁下，欧洲将会别无选择地先消灭中共。只有中共不能再给俄罗斯经济援助，然后欧洲才会动手攻击俄罗斯。
+
+欧洲合作者还强调说，虽然中共有核武器，但是美国和欧洲都有应对的办法。欧洲只会赢而不会输，没有任何可能会输。在常规战争的条件下，电子战、潜艇战、海战，欧洲更将是100%会赢。如果美国再加入的话，那消灭中共就是几分钟的事情，而且还有澳大利亚和日本的加入，消灭中共将是轻而易举的事情。
+
+参考来源：
+
+[https://www.gettr.com/post/prk9cub4f7](https://www.gettr.com/post/prk9cub4f7)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-2.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
+
+
+
 
 
  

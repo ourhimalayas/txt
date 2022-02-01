@@ -2,22 +2,16 @@
 ---
 
 
-## 雅典娜时报-第191期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941333/)
+## 壬寅新春大直播要点图片-成为最后的5%
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1941477/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 设计：波士顿五月花 水涨船高
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490364633138/155_7-1.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490893127740/155_4-4.png?width=768&amp;height=1144)
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/如何成为坚持到最后的5-1.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+*发布：霹雳鼠年*
 
  
 

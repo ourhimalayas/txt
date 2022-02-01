@@ -2,31 +2,38 @@
 ---
 
 
-## 有声|美国前国务卿彭培奥警告：中共寻求 “统治全球”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940783/)
+## 美议员呼吁奥委会保护参加北京冬奥运动员安全
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1941119/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[零对冲](https://www.zerohedge.com/geopolitical/xi-jinping-seeking-global-domination-mike-pompeo)1月28日报道，美国前国务卿彭培奥在2022年阿古斯美洲原油峰会上发表声明说，中共正在寻求“统治全球”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6168F802-A0D7-4E93-A1E8-82F93B398F9D_cx0_cy3_cw0_w650_r1_s.jpg)@voachinese.com 资料照：人权组织活动人士在联合国国际人权日聚集在台北呼吁抵制北京冬奥会。（2021年12月10日）
 
-蓬佩奥说，中共国领导人希望“中共实现全球统治霸权”，并警告说，中共的崛起可能会破坏自二战结束以来建立的基于规则的国际秩序，而中共的野心正在引发“全球觉醒”。
+**编辑摘要：**
 
-彭培奥同时谴责中共把病毒强加给世界，并拒绝和阻止国际社会对病毒溯源的诉求。
+据美国之音2月1日报道，多位美国国会两党议员在2022年北京冬奥会开幕前夕呼吁，要求保护美国运动员的人身安全、言论自由及个人数据隐私，并减少他们接触任何涉及强迫劳动制造的产品。
 
-文字版原文：[美国前国务卿彭培奥警告：中共寻求 “统治全球”](https://gnews.org/zh-hans/1935040/)
+中共政府建有全世界最先进、最具侵入性的监控系统，摄像头覆盖了北京每一寸土地。在中共国手机上或者生活中做的每一件事都可以被追踪。多伦多大学网络安全检测部门“公民实验室”指出，运动员参加北京冬奥会所必须使用的应用程序“冬奥通”，存在严重的加密漏洞。包括美国、加拿大、英国等多个国家奥委会建议各自的运动员使用一次性或者可丢弃式手机前往中共国，不要携带私人电子设备。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+北京表示“任何符合奥运精神的言论都会受到保护；任何违背奥运精神，特别是违反中共国法律规定的会受到一定惩罚”。国际奥委会表示，在运动员的基本人权问题上，将遵守中共国法律。中共国有人权吗？不要说人权，连动物都没有兽权。冬奥会还没有开始，中共国已经开始大肆捕狗杀狗。试问，狗能影响冬奥会举行吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+北京种族灭绝冬奥会在病毒肆虐、疫苗灾难随时发生的高风险环境中举行。任何到达中共国的人都不会拥有西方国家所习惯拥有的隐私和自由。美国公民的身份不是护身符，不能保护运动员免于受到中共国政府的不公待遇。避免危险、保护隐私最安全的方法就是远离危险，不去中共国，拒绝羞辱的核酸检测，抵制冬奥会。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新闻参考链接：[北京冬奥前夕 美议员呼吁奥委会保护运动员安全](https://www.voachinese.com/a/us-lawmakers-raise-concerns-over-athletes-safety-during-winter-olympics-20210131/6421221.html)
+
+*编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

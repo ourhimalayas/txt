@@ -2,31 +2,44 @@
 ---
 
 
-## 有声|澳洲加入加拿大反强制新冠疫苗自由车队
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940781/)
+## 年度回顾关键词 &#8211; 河南水灾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941033/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月28日据悉，澳大利亚卡车司机们正在计划一场自由之战，来反抗政府对中共病毒疫苗的强制，以及政府在疫情期间过于严酷的防疫政策。
+作者：西班牙巴塞罗那喜悦农场
 
-正如加拿大自由车队即将驶向首都渥太华一样，澳大利亚自由车队将会前往首都堪培拉。在前往首都之前，卡车车队计划在维多利亚州、新南威尔士州、南澳大利亚州和西澳大利亚州等城市会面，最后于周一上午10点抵达堪培拉议会大厦，抗议政府的强制疫苗政策。
 
-据悉参与此次游行活动的还包括，那些因政府的疫苗强制，和中共病毒隔离政策而被迫关店的小企业主，他们打算驾驶摩托车和汽车加入自由车队。=
 
-文字版原文：[澳洲加入加拿大反强制新冠疫苗自由车队](https://gnews.org/zh-hans/1934101/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
+
+河南，古称“天地之中”。郑州，中原佛手所在之地。2021年7月，这里遭遇了中共所谓的“千年一遇”的洪水灾害。
+
+在中共低效、落后的政府管理措施下，为面子工程而大兴土木的城市基础建设，每逢灾难必失灵。中共每次都把“水灾”归咎于“天灾”，而造成这次水灾的真正原因，正是上游的水库毫无预警的提前泄洪。藏在这场“人祸”背后的是一场中共政治斗争导致的阴谋。 无论是在灌满了水的地铁车厢中，垂死挣扎的同胞们；还是那些被洪水困在京广北路隧道中的路人们，这场人为的灾难，再次给中国这片土地上带来了千千万万的冤魂。在那短短的十几天中，河南共有150个市县受灾。我们所看到的仅仅是冰山一角。这一切罪恶的始作俑者便是“中国共产党”。 中共不灭，天理难容。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：文真
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,122 +15,122 @@
 
 ---
 
-### [壬寅新春大直播要点图片-成为最后的5%](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
-
-### [因父母未接种疫苗，3岁儿童被多国医院拒绝治疗](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [壬寅新春大直播要点图片-青蒿素鸡尾酒疗法](/content/gnews/3/README.md)
- ` 波士顿五月花农场`
-
-### [壬寅新春大直播要点图片-“灭共的雪”“一帘幽梦”](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
-
-### [黄金部队，腐败（五）](/content/gnews/5/README.md)
+### [经济危机](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [上天给新中国联邦人的使命一一消灭共产党!](/content/gnews/6/README.md)
+### [黄金部队，腐败（六）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [壬寅新春大直播要点图片-喜币一飞冲天](/content/gnews/7/README.md)
- ` 波士顿五月花农场`
-
-### [草木皆兵，满眼都是敌情， 中共大爆阴谋论甩锅美国](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [雅典娜时报-第191期](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2022年“郭七条”](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [如果北京冬奥会取消，意味着国家信用的彻底破产！](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [喜马拉雅联储有世界最好的KYC 目前有50亿美元在等待通过KYC](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [爆料革命——历史的今天12月19日](/content/gnews/13/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [普京进攻乌克兰会加速欧洲与中共决战](/content/gnews/15/README.md)
+### [甜蜜蜜运动在中共国发酵](/content/gnews/3/README.md)
  ` GTV News Talk`
 
-### [黄金部队，腐败（四）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [人活着就是精气神](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [中共国《海警法》实施一周年，157天侵入日本领海](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【速報】前东京都知事石原慎太郎去世](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国政府将取消强制对医护人员的疫苗接种](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本F-15战机在海上失联](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022春节的北京，病毒＋奥运已年味儿不再](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾代表团在国际奥委会的施压下出尔反尔](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日媒指斥国际奥委会跟中共是一丘之貉](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美议员呼吁奥委会保护参加北京冬奥运动员安全](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [音乐灭共 爆料革命一定会实现邓丽君女士的梦想](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共人造 “毒雪” 办冬奥](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/29/README.md)
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵精品视频-中共把国内的“共享财富”推广到全世界](/content/gnews/30/README.md)
- ` cindy`
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年壬寅年新春大直播：新中国联邦人2022年的七大任务](/content/gnews/31/README.md)
- ` 秘密翻译组-原创组`
+### [法国巴黎！人们在辉瑞总部前反强制疫苗](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国五角大楼发出警报:俄罗斯随时可能入侵乌克兰](/content/gnews/32/README.md)
+### [武汉科学家发现集几种病毒特性于一身的新型冠状病毒](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [英国殡仪馆主任透露死亡人数增长了500-600%，死者都打过疫苗](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [壬寅新春大直播要点图片-成为最后的5%](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
+
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [因父母未接种疫苗，3岁儿童被多国医院拒绝治疗](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [壬寅新春大直播要点图片-青蒿素鸡尾酒疗法](/content/gnews/12/README.md)
+ ` 波士顿五月花农场`
+
+### [壬寅新春大直播要点图片-“灭共的雪”“一帘幽梦”](/content/gnews/13/README.md)
+ ` 波士顿五月花农场`
+
+### [黄金部队，腐败（五）](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [上天给新中国联邦人的使命一一消灭共产党!](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [壬寅新春大直播要点图片-喜币一飞冲天](/content/gnews/16/README.md)
+ ` 波士顿五月花农场`
+
+### [草木皆兵，满眼都是敌情， 中共大爆阴谋论甩锅美国](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [雅典娜时报-第191期](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [如果北京冬奥会取消，意味着国家信用的彻底破产！](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [喜马拉雅联储有世界最好的KYC 目前有50亿美元在等待通过KYC](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [普京进攻乌克兰会加速欧洲与中共决战](/content/gnews/22/README.md)
+ ` GTV News Talk`
+
+### [黄金部队，腐败（四）](/content/gnews/23/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国《海警法》实施一周年，157天侵入日本领海](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【速報】前东京都知事石原慎太郎去世](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国政府将取消强制对医护人员的疫苗接种](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本F-15战机在海上失联](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022春节的北京，病毒＋奥运已年味儿不再](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾代表团在国际奥委会的施压下出尔反尔](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [年度回顾关键词 &#8211; 中共邪教组织](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [日媒指斥国际奥委会跟中共是一丘之貉](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美议员呼吁奥委会保护参加北京冬奥运动员安全](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|美国前国务卿彭培奥警告：中共寻求 “统治全球”](/content/gnews/33/README.md)
- ` MOSREC`
+### [音乐灭共 爆料革命一定会实现邓丽君女士的梦想](/content/gnews/34/README.md)
+ ` 秘密翻译组-原创组`
 
-### [有声|冬奥会运动员及官员确诊病例激增](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [有声|澳洲加入加拿大反强制新冠疫苗自由车队](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [有声|因疫情青少年心理创伤已达国家紧急状态](/content/gnews/36/README.md)
- ` MOSREC`
-
-### [有声|拜登与中共签订中共病毒测试剂合同引发强烈不满](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [澳政府禁止未接种疫苗的父母探视患病子女](/content/gnews/38/README.md)
+### [年度回顾关键词 &#8211; 河南水灾](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [班农先生谈中共对美洲的渗透](/content/gnews/39/README.md)
+### [中共人造 “毒雪” 办冬奥](/content/gnews/36/README.md)
  ` GTV新闻访谈`
+
+### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2022年壬寅年新春大直播：新中国联邦人2022年的七大任务](/content/gnews/38/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美国五角大楼发出警报:俄罗斯随时可能入侵乌克兰](/content/gnews/39/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [追一朵云](/content/gnews/40/README.md)
  ` 骄子`
