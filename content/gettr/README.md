@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 11:34 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" <br/><br/>1/31/2022 文贵虎年新春大直播：<br/>新中国联邦版《一帘幽梦》
+![img](https://media.gettr.com/group16/getter/2022/02/01/11/12ccb69d-bf10-31a5-3fda-5b9e7846b91b/out.jpg)
+
+---
+
+`@miles 2/1/2022 11:34 AM (UTC)`
+
+⚠️⚠️Timeline of The New Federal State of China About the CCP Virus And COVID Vaccine Disaster Warning<br/><br/>The #NFSC has always been committed to the truth and saving lives by exposing CCP's evil nature and the fact that they created the #CCP virus killing millions of people worldwide. The NFSC has also been spreading COVID therapeutics and related medications to the world, as well as the real purpose of COVID vaccines. All the facts prove what the CCP did has nothing to do with the Chinese people, the CCP cannot represent the Chinese people, who are also the victims.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警的时间线<br/><br/>#新中国联邦 一直致力于揭露中共邪恶本质，揭露他们制造 #中共病毒 已经在全世界造成数百万人死亡的事实，从而揭示真相，拯救生命。新中国联邦也一直在向全世界传播 #CCPVirus 治疗方法和相关药物，以及 #COVID 疫苗的真实目的。所有事实证明，中共的所作所为与中国人民无关，中共不能代表中国人民，中国人民也是受害者。
+![img](https://media.gettr.com/group8/origin/2022/02/01/11/b65bdc52-ffd9-94cb-5393-e69830ecfb38/out.jpg)
+
+---
+
 `@miles 2/1/2022 6:10 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: The former boss of Hermes admires the clothing of ancient China during the Northern Wei Dynasty, but the CCP has destroyed the best food culture, clothing culture, and music in China. The most important thing for the New Federal State of China is to make people live a good and authentic life.<br/><br/>1/31/2022 文贵虎年新春大直播：爱马仕前老板崇拜中国古代北魏时期的服饰，但中共却毁掉了中国最好的饮食文化、服饰文化和音乐；新中国联邦最重要的是要让人们的生活美好而真实<br/>
@@ -141,20 +155,6 @@ FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; B
 
 1月29号：【🧧求七哥Gettr首发🧧   <br/><br/>《我剪的视频😂请多关照！🙏】
 ![img](https://media.gettr.com/group45/getter/2022/01/29/18/21e838f2-d5f5-7dd9-dca4-8dfc178192d7/out.jpg)
-
----
-
-`@miles 1/29/2022 3:11 PM (UTC)`
-
-1月29号：尊敬的战友们好！你们健身了吗？传播CCP病毒！香港危机真相了吗？共产党的冬奥会将成为共产党制造的最大体育灾难！将在世界丢尽中国人的脸！丑陋的国际形象不可思议！这个流氓政党简直就是世界上最丑陋的一帮下三烂流氓集团！
-![img](https://media.gettr.com/group13/getter/2022/01/29/15/4c10a858-0cfa-c4c1-c9cc-e2c19e53ca89/out.jpg)
-
----
-
-`@miles 1/29/2022 5:32 AM (UTC)`
-
-1/27/2022 Miles Guo: What are the stories behind the photo of me sitting in the dragon chair taken a long time ago? Why did I appear to be angry in the photo? Why is there a circle drawn in the photo? The older brother of the young hero, a cellmate executed by the CCP under false accusation, hasn’t realized until recently that his younger brother was a great man.<br/><br/>1/27/2022 文贵直播：文贵当年拍的那张坐龙椅的照片背后是怎样的故事？为什么照片中的文贵面露怒火？照片中画的圈是怎么回事？处男英雄哥哥直到今天才明白他的弟弟有多伟大<br/>
-![img](https://media.gettr.com/group6/getter/2022/01/29/05/3dbb6b43-a72d-657d-be3c-6cc1ca19e0c3/out.jpg)
 
 ---
 
