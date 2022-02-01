@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 3:46 PM (UTC)`
+
+2月1号：尊敬的战友们好！文贵在此衷心感谢所有的全球的灭共的战友！共产党已经走在灭亡的路上，我们要不骄不傲，战斗到直至彻底消灭中国邪恶的共产党为止，再次地祝福全球的人们和爆料革命的战友和家人们春节快乐！永远平安健康！
+![img](https://media.gettr.com/group20/getter/2022/02/01/15/48d02880-7b7e-9ae5-2798-bc58c130bdf4/out.jpg)
+
+---
+
 `@miles 2/1/2022 2:57 PM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: The CCP has been using the same lies to brainwash the Lao Bai Xing for 70 years, oppressing the people yet making them believe that they should thank the CCP for everything.<br/><br/>1/31/2022 文贵虎年新春大直播：中共70年来用同样的谎言给老百姓洗脑， 压榨人民的同时还要让人感谢他们<br/>
@@ -148,13 +155,6 @@ Limited Edition Exclusive Release for Chinese New Year.                         
 
 1/27/2022 Miles Guo: I would like to thank the fellow fighter whose Twitter account is "Tai Ping Quan". He was the police officer who handled my case in 1989 and tweeted to clarify many facts about my case. The so-called verdict spread online by the CCP was completely fabricated.<br/><br/>1/27/2022 文贵直播：文贵要感谢这位推特帐号叫“太平犬”的战友，他是1989年办文贵案子的警察并且发推澄清了有关文贵案子的很多事实，中共在网上散布的所谓判决书纯粹是胡编乱造的<br/>
 ![img](https://media.gettr.com/group8/getter/2022/01/29/22/944af1de-a763-40e3-f676-f012a414eda7/out.jpg)
-
----
-
-`@miles 1/29/2022 9:49 PM (UTC)`
-
-FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; Bombshell Documents Debunk Dr. Fauci’s Narrative on COVID’s Origin.<br/><br/>内部文件揭示中共病毒武汉实验室起源论被诸如福奇等所谓的”科学家“淡化。
-![img](https://media.gettr.com/group18/origin/2022/01/29/21/776df428-dce3-a3d8-64d7-17c29bfac375/out.jpg)
 
 ---
 

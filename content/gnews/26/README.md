@@ -2,22 +2,35 @@
 ---
 
 
-## 印度央行本年度将推出“数字卢比”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1942355/)
+## 除夕随笔
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1942391/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh4.googleusercontent.com/p_dpVKhFvbOrSTC5gGorihck23RBAroxYcfQQPxyX5SCY_QuWIYlzZzdO_5podIpiJJe9U4ESucNVe5oy8Htcw_z0pYY5stqaS8anUFFcR3M0LpUmuSGZwmx0BzB0nWiPlxWFSsw)[*图片来源*](https://5b0988e595225.cdn.sohucs.com/q_70,c_zoom,w_640/images/20191202/b18e63fbf8134bd7bb68c71e99e4ac75.jpeg)
-2月1日，印度财政部长西塔拉曼在议会就2022年度预算发表讲话时宣布，中央银行将在本年度推出“数字卢比”，其中包含“区块链”等其他加密资产（虚拟货币）技术。
+作者：香草山健身部 – 新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+今天大年三十了，日子好快呀，虎年大吉，民天下的新中国联邦，新春佳节气氛火热而吉祥，战友们的节目满满当当，目不暇接。
 
-西塔拉曼氏表示，希望这将大大推动经济数字化。
+打开gtv、盖特，直播应接不暇，战友们可以随意串门，观赏，互动，好不热闹，更有我们的喜币分分钟都在出现富豪。时间差不多了，估计战友们已经洗漱完毕，买好零食，备好红酒，幸福的哼着甜蜜蜜，静等摇滚巨星，我们尊敬的七哥直播。每个人兴奋的都在想着，晚上又是什么样的利好的消息来呢，晚上七哥会不会脱呢，晚上的节目都会出现那些呢。
 
-印度政府对私人加密资产的流通一直态度强硬，因为加密资产可能导致金融不稳定。西塔拉曼氏在当天的讲话中表示，将对加密资产交易产生的利润征收30%的较高税率，并且不允许用出售的损失来抵消其他收益。
+新中国联邦的大年三十处处激情澎湃的喜迎虎年，这是新中国联邦的第二个春节了，欢乐在每个角落每个战友的心里。新的一年，坚定信念，灭共路上继续前行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-33.png)
+对比中共国，过年的喜庆大不如前，饭店生意萧条，身边的大多数也不再呼朋唤友大搞聚餐，也没有了往些年，热热闹闹的相约着时间走亲访友。好久不见的除夕俩字又出现在挂历上了，这是真到了除习时候了。
 
-信息来源：[**インド中銀、デジタル通貨導入へ  暗号資産に30％課税  財務相**](https://news.yahoo.co.jp/articles/db55d7774319ccda90b0373f5d9da1c1fd814af6)
+中共为了招引人民看春节晚会，抖音，微信，腾讯到处弹出看春晚直播的广告和醒目字样。中共，任凭你再怎么造势，怎么做假骗民众，你依然只会也只能是朝末日狂奔而去。中共，2022年就是你的祭年，同时是我们新中国联邦腾飞的喜庆年！
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

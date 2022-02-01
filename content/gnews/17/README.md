@@ -2,26 +2,17 @@
 ---
 
 
-## 七哥金句5
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942423/)
+## 七哥金句6
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942438/)
 
 整理：雅典娜速记组
 编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5.jpg)
-七哥会不会亲自编制教育大纲呢?
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6.jpg)
+七哥在一个东北那连猪狗不如的地方——赵家沟，找能跑出来，到今天，我每天都感恩，因为我没有忘过去。我认为我今天即使最烂的生活也比我那会儿最好的生活还好。
 
-不会的。新中国联邦灭完共产党以后，剩下的事都跟我没关系。
-我再重申一遍，七哥隐居山林，都是你们的事儿。由一人一票选出的政府的事，我不会做的，我也没这能力。
+今天在那里的人，绝大多数还是过着猪狗不如的生活，就我出生的地方很多杨改兰的家庭。
 
-2022年1月12日大直播
-
-发布： 星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+所以说兄弟姐妹们，珍惜今天你拥有的，更重要的是要看清事实，我们是人，我们不是宠物不是畜生。我们和畜生不同的是我们有思想、有文明，我们有上天，这就是爆料革命（让）你要开智、明眼、辨是非、识善恶。
 
  
 

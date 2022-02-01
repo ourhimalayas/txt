@@ -2,17 +2,37 @@
 ---
 
 
-## 七哥金句6
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942438/)
+## 有声|法院裁定宾州邮寄投票法违宪
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1942631/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6.jpg)
-七哥在一个东北那连猪狗不如的地方——赵家沟，找能跑出来，到今天，我每天都感恩，因为我没有忘过去。我认为我今天即使最烂的生活也比我那会儿最好的生活还好。
+配音：香草山农场 – 纳米
 
-今天在那里的人，绝大多数还是过着猪狗不如的生活，就我出生的地方很多杨改兰的家庭。
 
-所以说兄弟姐妹们，珍惜今天你拥有的，更重要的是要看清事实，我们是人，我们不是宠物不是畜生。我们和畜生不同的是我们有思想、有文明，我们有上天，这就是爆料革命（让）你要开智、明眼、辨是非、识善恶。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月28日，宾夕法尼亚州联邦法院裁定，该州的无理由邮寄投票法违宪。该法即宾州第77号法案，制定于2019年，宾州众议院的14名议员提交了一份请愿书，要求阻止该法案。
+
+该法允许任何选民在选举前50天内通过邮寄方式提交选票，并将选民列入名单，以便永久接收邮寄的选票。同时，还规定了增加15天的投票登记时间，延长了邮寄和缺席投票的截止日期，并概述了投票机取消认证的规则。
+
+宾州国务院不同意裁决，已向宾州最高法院提出上诉。
+
+文字版原文：[法院裁定宾州邮寄投票法违宪](https://gnews.org/zh-hans/1936774/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
