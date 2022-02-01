@@ -2,31 +2,29 @@
 ---
 
 
-## 有声|英国国会议员计划对台湾进行国事访问以对抗中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943209/)
+## 中共冬奥会釆集美国顶尖运动员DNA的邪恶目的引发国际关注
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1943354/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[布莱特巴特新闻网](https://www.breitbart.com/politics/2022/01/31/british-parliamentarians-plan-taiwan-trip-in-defiance-of-communist-china/)1月31日报道，英国议会外交事务委员会的议员们正计划在2月底对台湾进行国事访问，以对抗中共。
+**采集****/****翻译：意翎**** ****   **
 
-英国议员们一直是中共专制政权直言不讳的批评者。2021年4月，英国议员在下议院批准了一项动议，宣布中共对新疆地区的穆斯林维吾尔族和其他少数民族实施了种族灭绝。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40.png)
+据《大纪元时报》记者德罗西·李（Dorothy Li）和杰莎·菲力普（Joshua Philipp）报道，200多名美国运动员被封闭在北京的一个“封闭气泡”中，冬奥会期间每天都要接受新冠肺炎检查。一些专家担心美国选手的DNA会被CCP（中共）收集，用以加强中共的人工智能系统和医学领域，并协助间谍和军事行动。
 
-英国政府已经禁止了中国电信公司华为进入英国的5G网络，并对中共镇压香港的民主抗议活动的行径提出强烈批评。英国认为这违反了1984年签署的《中英联合声明》。该声明是一份具有法律约束力的联合国文件，旨在保护香港的自由和自治，在英国于1997年将其前殖民地的控制权交给中共国后的50年里，不受共产主义统治。
+在1月26日大纪元电视《揭露共产主义中国》的网络研讨会上，加拿大非盈利组织“国际调查”的执行董事帕特里夏·亚当斯（Patricia Adams）表示，CCP“很有可能”在奥运会上收集表现最好的运动员的DNA，“他们每天都在进行测试……”
 
-文字版原文：[英国国会议员计划对台湾进行国事访问以对抗中共](https://gnews.org/zh-hans/1939339/)
+在谈到中共政府大规模收集个人信息和健康数据所带来的威胁时，美国DC国际咨询公司的首席执行官斯蒂芬·耶茨（Stephen Yates）说，危险在于CCP为了不道德的目的使用收集来的大数据，他们不仅可能会利用大数据给他们的运动员提供竞争优势或增加心理战的机会，而且，中共“已经以文明国家不允许的方式将人工智能生物武器化，我们没有办法知道未来的暗黑陷阱是什么。”
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+冬奥会将于2月4日在北京开幕，美国和其他一些国家宣布进行外交抵制，目的是让CCP政权对其在新疆侵犯人权的行为负责，但这并不能阻止运动员参加奥运会。美国运动员于1月28日晚抵达北京，被直接运到用铁丝网围成的的封闭酒店，每个人要想离开“气泡”只能通过中共主办机构安排专车，穿着全套防护服的工作人员每天都要对他们进行口腔拭子检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+“我认为运动员们非常紧张，他们并不快乐。”亚当斯说道，CCP可能“使用Covid检测假阳性的邪恶手段”“淘汰一名可能羸得金牌的美国人”。中共官方媒体《中国日报》报道，北京奥委会于1月29日否认了他们可能篡改新冠病毒检测结果的报道，称其符合国际标准。亚当斯指出：“没有人相信中共政府……归根结底，一切都由中共政府在操纵，没有人能真正知道这些数据会发生什么变化。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+已被揭露的中共网络间谍纪录导致包括美国、英国和加拿大在内的几个国家要求他们的运动员在奥运会上携带一次性手机。网络安全专家警告称，北京2022年冬奥会的强制健康应用程序可能会通过加密漏洞监视用户。
+
+“中共政府一次又一次地向世界表明，他们不遵守规则，他们只遵守自己的规则。他们既不遵守国际规则，也不遵守他们自已签署的条约”，亚当斯说。
+
+**[原文链接](https://www.theepochtimes.com/ccp-may-collect-top-american-athletes-dna-at-beijing-olympics-experts-say_4245850.html?utm_source=partner&amp;utm_campaign=ZeroHedge)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
