@@ -2,39 +2,30 @@
 ---
 
 
-## 一辆装满冷冻菠菜的翻车运输卡车在 401 公路上造成“交通拥堵”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1943502/)
+## Grindr在中共国遭审查
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1943539/)
 
-作者：Patrick John Gilson
-翻译：HimaBoy
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-13.jpg)
-安省警方通报说，周一早上，一辆装满冷冻菠菜的运输卡车在401高速公路东行线靠近400高速公路附近发生翻车事故，造成严重的交通延误，警方表示还需要一段时间才能解决问题。
+**编译：蚂蚁兄弟**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip16Grindr在中共国遭审查.png)图片来源：trecebits.com
+除了谷歌自己的应用商店Play Store，Grindr应用在华为或腾讯等其他平台的商店也无法使用。尽管中共在法律上并不禁止同性恋，但随着北京奥运会开幕日期的临近，政府政策中的不容忍现象有所增加，例如扩大了对与同性恋性质内容有关的信息的审查。
 
-据警方推特介绍，翻车事件发生在上午8:00左右，在东行匝道上，前往400高速公路北行线寸步难行。
+还值得回顾的是，上周中共政府宣布对网上发布的非法内容、色情和“不健康的性质”（根据中共国政府的术语）进行特别打击，这通常是指与同性恋有关的内容。2020年，Grindr已经在巴基斯坦被封锁（与Tindr一起），原因是托管和传播“不道德内容”。
 
-出事卡车司机在事件中没有受伤，司机声称自己被其他车辆切线导致翻车，但目击者没有报告在该地区看到任何其他车辆，很可能这辆车开得太快并最终导致翻车，警方也怀疑司机所谓的事故原因推理是否准确。
+在中共国，从应用商店中删除某些应用并不罕见，之前主要是与媒体、播客、社交网络甚至是地图和地理位置应用有关的应用。所有这些都是政府机构担心他们对中共政权的稳定或安全构成威胁的情况。通常的指责是，这些应用程序的背后可能正在进行非法活动，这甚至导致数以万计的视频游戏应用程序被删除。
 
-目前，工人们正试图将菠菜装载到另一辆卡车上，但预计还需要几个小时。警方说如果你不想被堵，应该考虑避开这个地区，选择其他陆续。
+与此同时，其他主要公司也被迫撤回或调整他们的一些平台以适应政府的要求。从LinkedIn到Fortnite，社交网络和视频游戏不得不自愿退出，但在这种情况下，决定似乎来自应用商店，它们暂时没有对退出的原因作出解释。
 
-来源：https://www.narcity.com/toronto/a-rolled-over-transport-truck-full-of-frozen-spinach-is-causing-heavy-traffic-on-the-401
+**新闻来源**：[trecebits.com][Grindr, censurada en China](https://www.trecebits.com/2022/02/01/grindr-censurada-en-china/)
 
-（文章仅代表作者个人观点）
+* * *
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+***审核：蚂蚁兄弟
+校对：信心满满
+发布：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3.jpeg)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

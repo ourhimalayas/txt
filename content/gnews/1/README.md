@@ -2,35 +2,31 @@
 ---
 
 
-## 有声|喜马拉雅币一周分析与总结（1月24日-1月30日）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943776/)
+## 《美国竞争法》强化与中共国竞争和确保芯片供应
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1943832/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-过去一周喜马拉雅币价格加速攀升至50美元上方，最高涨幅约24%，平均日交易量约11万5千枚喜币。喜币上市以来总交易量约2670万枚 ，占今年总发行量的仅约2.67%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/children-52-times-more-likely-to-die-following-covid-19-vaccination2.jpg)资料照：美国波士顿中国城社区飘扬的美中国旗（2019年11月1日）
+据美国之音2月1日报道，拥有1250万会员的美国最大的劳工组织劳联-产联1日表示，全力支持美国众议院正在推动的《美国竞争法案》，强化与中共国竞争，促进美国半导体芯片的生产，并改革美国的一些贸易法规。
 
-本周四，一篇来自英国金融科技资讯网站TechBullion的文章提到，喜交所是业内第一个运用人工智能技术识别人体行为与生物特征并与冷钱包安全措施相结合的加密货币平台。文章指出这一设计使喜交所的安全性达到业内最高。
+美国参议院率去年6月以68票赞成、32票反对通过了参院版的《美国创新与竞争法案》，目前在美国众议院酝酿的《美国竞争法案》则是该法案的众院版本。两院的两个版本都强调与中共国竞争，也都同意拨款520亿美元，促进美国国内的半导体芯片生产。
 
-本周据郭文贵先生在大直播中透露，喜交所拥有世界上最好的KYC制度，目前有50亿美元现金正在等待KYC后进场。之后还会有上千亿美元进入。目前已经有六大品牌提前宣布接受喜币购买商品。喜支付上线后会有更多商家进场。随着喜支付的逐渐推广，会有金融机构开始接手相关业务，下一步会有国家主权机构接受并投资喜币，之后喜币将改变这个世界。
+新冠疫情肆虐以及供应链受到干扰，使美欧等国的芯片供应受到严重冲击。因为“缺芯”，很多行业面临停工甚至停产。拜登政府一直鼓励国会调拨资金，补助在美国的半导体芯片生产，以解决“芯荒”危机。
 
-郭先生还表示，喜支付会在春节甜蜜蜜运动期间上线，会把中共插在中国人民身上的血管改变方向，转而插到中共盗国贼自己的身上。
+中共的全球扩张战略，尤其释放病毒之后和大规模的强制疫苗政策，从根本上打击了全球的供应链系统。芯片的严重短缺即将对全球经济带来严重影响，这也促使美国不得不重新调整经济战略，建立自己的芯片产业，以应对危机和重新占领市场。
 
-本周五喜交所进行了11小时的维护升级，并更新了官网的喜支付页面。目前官网已经提供了喜支付APP苹果与安卓版本的下载链接，预计在未来几天内可以开始使用。
+新闻参考链接：[https://www.voachinese.com/a/AFL-CIO-strongly-backs-US-House-bill-on-China-competition-chips-20220201/6421660.html](https://www.voachinese.com/a/AFL-CIO-strongly-backs-US-House-bill-on-China-competition-chips-20220201/6421660.html)
 
-文字版原文：[喜马拉雅币一周分析与总结（1月24日-1月30日）](https://gnews.org/zh-hans/1935348/)
+* * *
 
-音频处理：Fei797
-发稿：Fei797
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

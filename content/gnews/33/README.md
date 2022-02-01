@@ -2,52 +2,33 @@
 ---
 
 
-## 英国：接种两剂新冠疫苗的儿童死亡可能性高于正常儿童52倍
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1943146/)
+## 大多数加拿大人希望终止所有COVID限制
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1943344/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/children-52-times-more-likely-to-die-following-covid-19-vaccination.jpg)图片来源：dailyexpose.uk
-早在2021年12月20日，英国国家统计局(ONS)就发布了一个数据集，其中包含2021年1月1日至10月31日期间“英格兰疫苗接种状况导致的死亡”的详细信息。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0131_protest_10.jpg)图片来源：NationalPost
+根据《国家邮报》 (National Post) 2月1日报道，两项新的民意调查显示，随着Omicron变体的日渐消退，加拿大人的态度正在转向取消COVID限制。
 
-该数据集包含显示详细信息的各种表格，例如“涉及中共病毒的死亡按疫苗接种状况划分的月年龄标准化死亡率”和“非中共病毒死亡按疫苗接种状态划分的月年龄标准化死亡率”。
+专门从事加拿大舆论研究的非营利机构安格斯-里德研究所（Angus Reid Institute）周一公布的研究显示，54%的受访者同意结束所有的限制，32%的人强烈同意。
 
-该数据集还包括“按年龄组划分的年龄标准化死亡率和所有死亡的疫苗接种状态”，但他们顺手忽略了儿童的数据，仅包括18岁以上年龄组的数据。
+数据显示，最同意结束限制的省份是萨斯喀彻温省（62%）和魁北克省（59%），加拿大大西洋地区的大多数人（52%）不同意放宽限制。
 
-此外，他们在包含的数据中将所有年轻人聚集在一起，这意味着死亡率是针对18-39岁的人计算的，跨度为22年。但是对于每个其他年龄组，死亡率计算跨度为10年，例如40-49、50-59等。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/grafik.png)
-然而，在表9的[“按疫苗接种状况分类的死亡”](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/deathsbyvaccinationstatusengland)数据集中，ONS无意中通过疫苗接种的状况提供了足够多关于儿童和青少年死亡的详细信息，供我们自己计算死亡率，坦率地说，它们是可怕的，并明确地说明了为什么ONS选择将儿童排除在死亡率数据集之外。
+加拿大首席公共卫生官员Theresa Tam博士在1月21日的新闻发布会上说，1月14日的最新模型更新表明，全国的Omicron感染可能在1月已经达到高峰，进入2月后会有所消退。但她呼吁大家继续保持警惕。
 
-如上表所示，ONS所做的是提供每10万人年的年龄标准化死亡率，而不是每10万人口。
+安格斯-里德指出，尽管公共卫生官员强调面对OMICRON的警惕性，但在省一级，”疫苗护照计划已经开始出现分歧”。
 
-以下是根据ONS计算出的人年，按15-19岁儿童疫苗接种状况计算出的死亡率：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/grafik-1.png)
-以下是根据 ONS 计算出的人年，按10-14 岁儿童疫苗接种状况计算出的死亡率：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/grafik-2.png)
-这些数字太可怕了。ONS的数据显示，在2021年1月1日至10月31日期间，10-14岁儿童死亡的可能性是未接种疫苗儿童的10倍，而15-19岁青少年死亡的可能性是未接种疫苗的青少年的2倍。
+萨斯喀彻温省省长Scott Moe在1月29日对抗议联邦政府跨境疫苗强制的卡车司机发表的声明中说，他将 “在不远的将来 “结束该省目前的阴性测试证明和疫苗护照政策。他说，接种疫苗并不能减少病毒的传播，他已经完全接种了加强针，但最近感染了COVID-19。
 
-但真正可怕的是接种了两剂疫苗的数字。
+Moe表示：”由于接种疫苗并没有减少传播，目前针对卡车司机的联邦边境强制疫苗政策没有任何意义。未接种疫苗的卡车司机并不比接种疫苗的卡车司机构成更大的传播风险”。
 
-[ONS 数据](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/deathsbyvaccinationstatusengland)显示，在2021年1月1日至10月31日期间，15-19岁的青少年死亡的可能性是未接种疫苗的青少年的3倍，但10-14岁的儿童死亡的可能性是未接种疫苗的儿童的 52倍。死亡率为每10万人年238.37。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/grafik-3.png)
-因此，如果中共病毒疫苗没有导致儿童过早死亡，那么我们实际上会预期看到接种疫苗人群的死亡率低于未接种疫苗人群的死亡率，而不是一个相似的死亡率，当然死亡率也不会高出52倍。
+该研究所说：“如果加拿大已经度过了OMICRON变体的最糟糕时期，公众情绪似乎正朝着开放社区的方向发展”。
 
-这个令人瞠目结舌和可怕的数据应该是全国性的头条新闻，我们不敢想象ONS的下一次更新中的数字会是多少，其中将包括2021年10月31日之后数百万接受第一剂和第二剂中共病毒疫苗的儿童的数据。
+新闻链接：
+[https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
 
-**简评：**英国国家统计局的数据再一次打脸疫苗有效的谎言，这是完整接种疫苗的人数所占百分比达到了70.94%（[Our World in Date](https://ourworldindata.org/covid-vaccinations?country=OWID_WRL)网站1月29日数据）的民主国家的官方统计数据。那么，其他国家会有例外么？当然不会。新中国联邦人作为首先向世界发出疫苗无效、新冠病毒是中共政权释放的生物武器的群体，尤其能够理解疫苗的危害性。
+[https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll\_4248078.html?utm\_source=morningbriefnoe&utm\_medium=email\_MB&utm\_campaign=mb-2022-01-31&utm\_content=News\_Majority\_of\_Canadians&est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D](https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll_4248078.html?utm_source=morningbriefnoe&amp;utm_medium=email_MB&amp;utm_campaign=mb-2022-01-31&amp;utm_content=News_Majority_of_Canadians&amp;est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D)
 
-如今，美国已经率先发起反对中共病毒疫苗的法律战，并取得了显著的成果。世界各国人民也都在相继发起挑战疫苗强制接种的街头运动，更多的护士、医生和医学界专家也陆续站出来揭露疫苗的危害性和以中共为首的世界黑暗力量以疫苗伤害人类的阴谋。全球反抗中共病毒疫苗的大趋势已经形成，让我们新中国联邦人继续利用各种媒体平台特别是我们的GETTR，GNEWS以及GTV平台，加大宣传病毒和疫苗真相，推动我们以毒灭共、以疫苗灭共这一伟大的事业尽速完成，以挽救在中共病毒阴影笼罩下岌岌可危的人类。
-
-新闻链接：[https://dailyexpose.uk/2022/01/29/ons-data-covid-vaccinated-children-52x-more-likely-to-die/](https://dailyexpose.uk/2022/01/29/ons-data-covid-vaccinated-children-52x-more-likely-to-die/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑，发稿 Spirit
 
  
 
