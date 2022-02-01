@@ -2,39 +2,33 @@
 ---
 
 
-## 有声|欧盟27国2月1日起全面解除疫情封锁政策
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940358/)
+## 七哥对习近平的宣战
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940442/)
 
-配音：香草山佛教部 – 李傻
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥对习近平的宣战_01.jpg)
+直播时间：2021.12.08
 
+习近平，你在梁家河混过，我是赵家沟出来的。你看过死人，我也看过死人。我在清风看守所看到死人是我的经历，你3次被关押是吧？咱们也都知道。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月28日，据相关媒体报道，欧盟理事会于近日发布了一则有关欧盟内部旅行的最新规定。当中指出，自2月1日起，游客只需携带中共病毒疫苗接种证明、康复证明或中共病毒阴性检测证明，即可在欧盟27个国家内畅行无阻，且无需经过隔离或额外的核酸检测。
+你现在你的彭丽媛是人是吗？我们的爹妈不是人是吗？
 
-据悉，尽管目前整个欧洲的中共病毒感染率依然很高，但各国政府都迫不及待地想要重新开放。对此，欧盟的卫生官员表示，欧洲各国应立即结束那些会使旅行变得格外复杂的各种疫情限制措施。
+咱就试试看你梁家河出来和我这赵家沟出来的谁狠。
 
-此外，英国近日也宣布，将全面解除该国的限制措施并重新开放酒吧和餐馆。同时，当地也解除了针对民众佩戴口罩的法律要求，以及与游客入境相关的封锁政策。
+习近平，咱就从今年大年30初一开始，未来3年看咱俩谁先死，你要不把我做死，要不然我就让你死，就这么简单。
 
-于丹麦而言，该国也声明，将在2月1日前取消当地所有的防疫措施。而在1月31日之后，丹麦政府不再将中共病毒归类为社会危重疾病。
+你看看咱俩谁先退？习近平看看谁先软谁先退。你要有种，你站出来，你对着我，咋俩单对单的干。你要没种，你用你手里边儿奴役的机器虐杀我们被你绑架的这些家人。
 
-文字版原文：[欧盟27国2月1日起全面解除疫情封锁政策](https://gnews.org/zh-hans/1938307/)
+你看你还能做啥？我已经做好下面每1分钟，我爹被你给弄死。我一滴泪都不会掉，如果你要看到我要能再掉一滴泪，我就不叫郭文贵，我就不叫郭七儿，我不可能让这件事情就这么过得去。咱走着看。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
+发布：*皮特*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

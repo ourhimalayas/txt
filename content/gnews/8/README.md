@@ -2,27 +2,28 @@
 ---
 
 
-## Miles Guo’s broadcast highlights summary 1
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940403/)
+## 《国家利益》警告：西方商界投资中共国犹如把绞绳卖给刽子手
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1940513/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Miles-Guos-broadcast-highlights-summary-3.1.jpg)
-12/08/2021
+#### 翻译/撰稿：文旺 |校对: 沙拉猫
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Screenshot-2022-01-31-221241.png)图片来源：NTD News
+美国国家利益杂志（National Interest）1月31日发表了题为《中国的真正挑战并非军事》的文章，三位作者其中两位是前陆军将军约瑟夫·沃特尔（Joseph Votel）和前空军将军罗伯特·斯伯丁（Robert Spalding）。 文章警告说，西方企业界投资中共国的做法犹如把绞绳卖给了刽子手，并呼吁自由市场的企业应尽快停止这种自杀行为，不然就为时晚矣。
 
-Chairman Xi Jinping originally intended 57 nations to attend Winter Olympic that is to be held in Beijing. All but 3 of small nations will be boycotting the Winter Olympic. This signifies that China no longer enjoys good diplomatic relationship with the world. Xi is furious as he had spent too much time and effort to plan this Winter Olympic. New Federal state of China had contributed the most to make this boycott happen. To take revenge on United States for the boycott, Evergrande defaulted on interest rate payment, causing losses to US investment firms.
+文章称，尽管苹果、因特尔、沃尔玛、H&M、Nike等企业因长期投资中共国获得了利润，但其知识产权和技术被中共窃取，业务也日益被中共控制。据估计，仅美国每年就因中共国盗窃知识产权 (IP) 而损失2250 亿至 6000 亿美元。
 
-To break Mile’s spirit, CCP sent a few hundred special forces and policemen to Pangu hotel (Pangu hotel is owned by Miles). All hotel staff and customers including Mile/s 92 years old father were forced onto the street by these policemen. All the people who were driven out were not allowed to change into winter clothes during a time when the weather was freezing at -4 ℃. Those who showed even a slight hint of resist were beaten on the spot. These victims and some of their family members also had their mobile phone network cut off and credit cards deactivated, therefore removing their power to purchase and communication to get help.
+然而，文章作者认为，对西方企业来说，最大的挑战不是知识产权被盗，而是中共国对数据的控制。美国前副国家安全顾问博明 （Matt Pottinger） 和大卫·费斯（David Feith） 曾指出，数据是“20 世纪的石油……是推动人工智能算法、增强经济实力和国家实力不可或缺的资源”。西方投资者收集的数据随时可能落入中共意识形态的控制之下，影响人工智能和创造新的尖端技术的发展。
 
-Shan Weijian, chairperson of PAG, together with Bruno Wu began to launch various lawsuits on Mile’s companies. These lawsuits and Pangu hotel incident both happened concurrently, showing that these attacks are coordinated and pre-planned. The true identity of Shan Weijian is actually a China KGB groomed by the CCP.
+文章作者指出，与一个国家境内的自然资源不同，数据本质上是无边界和不可见的，被存储在云端设备中，可以从世界上的任何地方访问和操作，因而很难用常规军队保护。获取数据对民主制度和其开放市场通过自由交换信息而蓬勃发展至关重要。中共国对大数据的控制不仅能让意识形态主导技术创新，而且还使中共有可能在互联网上的任何地方操纵、扭曲和控制构成的事实和现实，最终左右人们的阅读、思考和相信的内容。
 
-发布：*皮特*
+文章称，为了保护自由市场的价值体系，西方企业仅仅遵守本国制定的限制与中共国开展业务的法律是不够的，还必须像履行诸如气候变化、种族和社会正义等“社会责任”那样，在与中共国开展业务时也必须履行同样的社会责任。国家安全企业高管竞争力委员会（BENS）呼吁西方企业要采取一系列措施，包括提高对中共国投资而给知识产权带来风险的意识；只接受可信来源的资金以避免知识产权和技术面临的风险；建立不依赖中共国的弹性供应链；优先与非中共国的伙伴进行贸易；并认识到投资于中共国这样的极权社会对品牌声誉的风险。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文章最后指出，自由市场企业必须在为时已晚之前，停止向刽子手出售绳索。
+
+评：郭文贵先生5年前就向世界揭露了中共正通过蓝金黄手段执行其搞弱，搞乱，搞死美国的3F邪恶计划，中共以庞大的市场和14亿被控制和奴役的人民为诱饵，吸引和绑架西方大企业，无疑是3F计划的一部分。庆幸的是，美国的有识之士如此文作者那样，认识到了与中共做交易的危险性。希望越来越多的西方企业也能尽快清醒过来，不要被金钱蒙住眼睛，为了利益而抛弃西方珍贵的普世价值，无视中共犯下的违反人权和种族灭绝罪。只有这样，中共的3F计划就不会得逞，中共这一邪恶组织和其非法政府就会被消灭。届时与西方和美国保持千年和平的新中国联邦，定会成为西方真正平等互利友好的贸易伙伴，共同造福于世界和全人类。
+
+新闻来源：[China’s Real Challenge Is Not Military](https://nationalinterest.org/feature/china’s-real-challenge-not-military-200115)
+
+（文章评论只代表译者观点）
 
  
 

@@ -2,28 +2,28 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月31日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1938487/)
+## 文贵直播1.31：谁在看新中国联邦大直播
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1939321/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/01/图像-9.jpg)
+图片来源：GTV直播截图
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-1-3.png)
-文章仅代表作者本人观点，与Gnews无关
+从新中国联邦的直播在国内引起了巨大的震动，但是从数据看，经常在5000万，但没能突破6000万。对此，郭文贵先生表示在意料之中，我们新中国联邦这5年有多么的不容易，人心要开启没那么容易。但我们的战友被先生的歌声传递出来的情感深深地感动了，我们知道郭先生的苦衷。
 
-视频参看：[2022.01.31早GTV新闻访谈](https://gtv.org/video/id=61f7e3d696ba5d73e0bfe2d8)
+中国的高中低等人可以分出来，绝大多数在金字塔底部，几辈子被吸血被奴役的人不会看我们新中国联邦大直播，很少；中间层次的人也没时间看，不看CCTV，也不看新中国联邦，就只想着睡觉，吃；金字塔尖上的人又分两种：最穷但有思想的人，最有权力和最有钱的人，还有现在开了眼的人在看我们新中国联邦直播。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+郭先生说，我们的大直播在西方社会的影响力远远超过国内。尽管有疯狂的时候，但是文明国家对新事物的接受很强。欧洲本来准备去参加奥运会的很多官员宁愿放弃金钱利益也不去中共国了，因为他们看到了我们新中国联邦人和中共的不同。他们看到我们的真，和共产党完全不一样。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-27.jpg)
+看到今天国内和国外的反应，就知道新中国联邦有多么的不容易，我们每天在提升，每天在进步。中共国人就像一个装睡的人，你天天喊不醒。共产党将中国人培养成了完全没有羞耻，不识真假的人群。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+来源：
+
+[GTV 2022.1.31 大直播](https://gtv.org/broadcast/watch/61f7dc4d96ba5d73e0bfcc56)
+
+
+
+
 
  
 

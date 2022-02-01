@@ -2,43 +2,19 @@
 ---
 
 
-## 有声|疫苗灾难将促使全球自动灭共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940371/)
+## Q组织是共产党造谣平台
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940476/)
 
-配音：香草山佛教部 – 李傻
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月30日，郭文贵先生在直播中再次谈及了有关中共病毒疫苗灾难的话题。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-24.jpeg)
-郭先生透露，一位参加过《文贵大直播》的战友，其17岁的孩子在接种了中共病毒疫苗后于昨晚过世。其后，还有9位战友也分别向郭先生传递了家人因疫苗副作用而引起家庭灾难的消息。
-
-郭先生指出，据科学家预计，全世界因中共病毒疫苗造成死亡的人数将达到6至7亿人。同时，疫苗政治、疫苗军事和疫苗经济下的疫苗灾难将从2022年5月开始爆发。
-
-对此，郭先生表示，各国民众应尽快苏醒，从而能将所有推行疫苗强制令的政客彻底曝光。随之而来的，为了平衡民心并保住其政治地位，这些政客势必要把民意引向追溯病毒起源、疫苗真相，甚至战争等方面。自此，全球必将开启自动灭共的进程。
-
-郭先生还提醒爆料革命战友，当世界进入混乱之时，新中国联邦在海外的华人要防止当地排华事件的发生并改变与人交往的方式；而墙内的战友则不要充当中共的炮灰。
-
-郭先生最后也反复强调，共产党不等于中国人，且新中国联邦只为救人。因此，我们不希望用鲜血与生命来证明爆料革命的伟大。
-
-文字版原文：[疫苗灾难将促使全球自动灭共](https://gnews.org/zh-hans/1939393/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

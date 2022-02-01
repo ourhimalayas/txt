@@ -2,24 +2,29 @@
 ---
 
 
-## Miles Guo’s broadcast highlights summary 3
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940430/)
+## 1.31大直播后记：中共无法阻挠新中国联邦的春晚
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940601/)
 
 整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Miles-Guos-broadcast-highlights-summary-3.3.jpg)
-2021.12.08
+编辑：小红帽
 
-We should only limit our revenge targets to Xi Jinping, Wang Qishan, Jiang Zeming, Jiang Mianheng, and members of the politburo standing committee. NFSC members are also encouraged to perform mock funerals on these people and their family members. CCP officials are most superstitious and will believe mock funerals will bring them immense bad luck. It must be stressed that at no time should laws and regulations be broken when exercising the above. All must be done within the parameters of what is allowed legally.
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-332.png)图片来源：雅典娜农场设计组
 
-China’s economy is now in a bad shape and companies are falling apart left and right. Once China is kicked out of WTO and SWIFT; CCP’s strategy of using money as bargaining chip with the rest of the world will be rendered useless.
 
-发布：*皮特*
+新中国联邦的“真”和中共的“假”在春晚上见分晓。我们这个直播将长达12个小时。整个直播（期间），我们各个农场都会有新面孔的战友参与进来。战友们之间充满爱的交流和灭共的分享。（这）是一个真正意义上的大联欢。我觉得这就是春晚的真正意义。相对于中共那个假、恶、丑、骗，肮脏的春晚，（我们）让大家观众去评价，去感受吧。
 
+只有参与者才懂。在这种感觉下，我觉得展示一个唯真不破的新中国联邦的春节联欢晚会，是意义重大的。等到未来，（回顾）历史，大家再看今天的（这个）时候，知道有一帮这样的中国人在世界上对抗一个共产党。（那个是在）10几亿人民被绑架的（情况下），完全虚假的，提前录好的，还要在现场装假高潮的晚会。这是多么的荒唐！ 我们都是过去（观看的）那一部分人。
+
+昨天晚上，一个美国朋友说，“Miles，我们得到情报，共产党一定不会让你直播成功。但是，我们一定会要保证你直播成功。”我一开始看这信息，因为是（在）早上，凌晨1点多起来，我揉了眼（后），这信息我就放一边去了。等我开完会，（一看），吓我一大跳。我的妈，这么大个人物！我（以为是）皮特纳瓦罗。结果发现，因为他用那个秘密通信方式跟我联络的，一发现又是另外一个人。我马上给他回复我说，“感谢你啊。”结果他给我回（复），他说，“我们已经探测到共产党要使用干扰，最高的干扰系统，把你们这个节目给干掉。”因为他们（共产党）在内部，已经下了命令，决不让咱们这次直播成功。那么我昨天也得到内部战友的信息，说各省公安厅，各省安全厅得到情报，得到命令，绝不能让这一次郭文贵的所谓春节晚会直播成功，而且这是最高的政治要求。很对不起。我前一晚就告诉大家，我们一定会直播成功，而且（能）直播成功绝不是你们战友能理解的这种力量。不仅我们要成功，西方很多国家都希望我们成功，甜蜜蜜运动的参与者都希望我们成功。这就是此时此刻发生的事。我告诉大家，在接下来的24小时，48小时，你看着。今天的晚会给你带来什么，你绝对想象不到的。这叫和平时期的战争。
+
+内容来源：郭文贵先生盖特和GTV直播
+
+*发布：tianzhihuan*
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

@@ -2,38 +2,44 @@
 ---
 
 
-## 有声|中共金融机构将对单位和个人银行账户加大管控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940202/)
+## 顶级主播瑞秋•玛多将暂停她在MSNBC的热播节目
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1940325/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日，中共央行发布最新文件称：3月1日起，金融机构将对单位和个人银行账户增加管控，尽职调查客户身份资料以及交易记录，其中有两条规定跟个人存款密切相关：
+#### **【雅典娜观察】和您一起洞察世界**
 
-1、对大额交易、可疑交易、单位或个人身份存疑的，将进行尽职调查，其中大额交易，包括任何账户现金交易超过5万，公户转账超过200万，以及境外私户转账超过20万或境内私户转账超过50万。
+整理/编辑：文泓
 
-2、个人现金存取超过5万的，要核实身份，登记资金来源和用途。分析人士指出，在美国授权撤离大使馆之际，中共央行迅速出台了针对个人和企业的账目加强管控的规定，可以明显看出中共自知大限将至，开始努力防止人们弃船逃命，首先就是管住人们的钱。因为现在中共国内但凡开智的中国人都知道HCoin的存在，它特有的稳定币和浮动币结合，以及价值和黄金挂钩的天才设计，注定会成为人们财富安全的避风港。中共与其说是在加强资金管控，不如说就是在防止人们投资HCoin。
-
-原文链接：[中共金融机构将对单位和个人银行账户加大管控](https://gnews.org/zh-hans/1933689/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/2S8QVI06YIN5Q484EOGE.png)图片来源：MSNBC
 
 
+#### 当地时间1月31日，据外媒报道，美国新闻付费有线电视频道MSNBC收视率最高的主持人将在周一晚上宣布，她将暂停在黄金时段的主持工作。在瑞秋·玛多（Rachel Maddow）签署新合同仅几个月后，就有报道称她曾考虑离开该电视台。
+
+#### 瑞秋·玛多是美国电视新闻节目主持人和[自由派](https://en.wikipedia.org/wiki/Liberalism_in_the_United_States)政治评论员，[拥有斯坦福大学](https://en.wikipedia.org/wiki/Stanford_University)公共政策学士学位和[牛津大学](https://en.wikipedia.org/wiki/University_of_Oxford)政治学博士学位。“瑞秋·玛多秀”在2008年9月首播，后被《华盛顿邮报》评为十年来的顶级节目之一，在2009年-2018年期间玛多因该节目多次荣获艾美奖。
+
+#### 一位MSNBC的消息人士向媒体证实了这一分手事件，并说它将于周五开始。该消息人士说，玛多将从她的晚间节目中休息几周，为NBC环球公司开展几个项目，包括一个新的播客和一部基于她的新书《包包人》的电影。
+
+玛多在休整期间也会参加一些节目。她将回到MSNBC参加一些特殊的活动，比如乔·拜登总统的国情咨文演讲。
+
+周一，知情人克莱尔·阿特金森率先报道说，玛多“刚刚告诉她的工作人员，她正在休整，将在几周后回来”。
+
+阿特金森说，玛多正在抽出时间拍摄一部根据她的书和播客“包包人”改编的关于政治贿赂丑闻的焦点电影。
+
+报道补充说：“玛多的休整是为了再次卷土重来，也是为了建立她的新的项目，这也是暂时的。”报道指出，玛多将很快回到她的节目中，甚至将在她休息期间主持一个特别节目。
+
+据报道，玛多签订的新合同答应支付给她高达3000万美元的年薪，让她在MSNBC呆到2024年的选举。在2021年中期，媒体已经猜测，玛多将离开MSNBC，创办自己的媒体公司。
+
+玛多的节目在非福克斯新闻网的有线电视新闻节目中收视率最高。瑞秋·玛多秀也是唯一一个每晚总收视率定期突破200万的非福克斯节目，经常比她最近的MSNBC竞争对手多出100万收视率。
+
+新闻链接：[Rachel Maddow Taking a Hiatus to Work on a Movie: Report (mediaite.com)](https://www.mediaite.com/news/just-in-rachel-maddow-reportedly-taking-a-hiatus-from-her-top-rated-msnbc-show/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

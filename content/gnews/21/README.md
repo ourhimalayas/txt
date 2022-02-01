@@ -2,40 +2,43 @@
 ---
 
 
-## 有声|香草山春节联欢脱口秀台词
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940247/)
+## 有声|疫苗灾难将促使全球自动灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940371/)
 
-配音：香草山巡管部– 文凯琳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-一个战友去相亲，问我怎么获得美女好感，我说你不是有个富豪舅舅吗，提舅舅保证让她爱上你。过几天我问战友相亲成功没？战友说，美女没看上他。我说你没提富豪舅舅？提了，然后呢？美女成我舅妈了。
+配音：香草山佛教部 – 李傻
 
-去年12月份这位战友又去相亲，这回可是雄赳赳气昂昂，底气十足声响亮。小伙我本姓王，一没车来二没房，没有存款在银行。
 
-美女说，你精神病吧？战友说，自从有了喜币，别人都说我看上去更精神了。战友说完转身就走。美女上前一把拉住他，帅哥请留步，有币好商量，我喜欢画家，最爱币加锁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+1月30日，郭文贵先生在直播中再次谈及了有关中共病毒疫苗灾难的话题。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-24.jpeg)
+郭先生透露，一位参加过《文贵大直播》的战友，其17岁的孩子在接种了中共病毒疫苗后于昨晚过世。其后，还有9位战友也分别向郭先生传递了家人因疫苗副作用而引起家庭灾难的消息。
 
-另一位战友，说我一堂堂没打疫苗的纯爷们，胯下自带两个精子银行，结婚多没劲，捐一管子出去，还不是儿孙满堂，村村都有丈母娘。
+郭先生指出，据科学家预计，全世界因中共病毒疫苗造成死亡的人数将达到6至7亿人。同时，疫苗政治、疫苗军事和疫苗经济下的疫苗灾难将从2022年5月开始爆发。
 
-原文链接：[香草山春节联欢脱口秀台词](https://gnews.org/zh-hans/1934070/)
+对此，郭先生表示，各国民众应尽快苏醒，从而能将所有推行疫苗强制令的政客彻底曝光。随之而来的，为了平衡民心并保住其政治地位，这些政客势必要把民意引向追溯病毒起源、疫苗真相，甚至战争等方面。自此，全球必将开启自动灭共的进程。
 
-音频处理/发稿：Daxia
+郭先生还提醒爆料革命战友，当世界进入混乱之时，新中国联邦在海外的华人要防止当地排华事件的发生并改变与人交往的方式；而墙内的战友则不要充当中共的炮灰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+郭先生最后也反复强调，共产党不等于中国人，且新中国联邦只为救人。因此，我们不希望用鲜血与生命来证明爆料革命的伟大。
 
+文字版原文：[疫苗灾难将促使全球自动灭共](https://gnews.org/zh-hans/1939393/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
