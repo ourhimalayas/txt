@@ -2,8 +2,8 @@
 ---
 
 
-## 上合组织成员几乎是江家的势力
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941012/)
+## 美国一直想消灭独裁和后独裁国家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941021/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

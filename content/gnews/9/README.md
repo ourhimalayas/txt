@@ -2,8 +2,8 @@
 ---
 
 
-## 中共借上合组织名义出兵哈萨克斯坦和普京打的算盘
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941040/)
+## 共产党的核糖核酸游戏
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941064/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
