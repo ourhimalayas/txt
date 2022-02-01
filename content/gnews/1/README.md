@@ -2,25 +2,25 @@
 ---
 
 
-## COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941816/)
+## 你们一定要认识到邪教组织的本能是什么（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941846/)
 
-**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-31日路透社东京报道，日本兴和制药公司对外宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗新冠病毒的功效。 在第三期试验中，研究显示伊维菌素对Delta、Omicron等病毒的感染治疗有相同的效果。 伊维菌素过去被多国新闻媒体误认为「动物用」并倡导「不建议使用伊维菌素」作为治疗新冠用药，但伊维菌素有区分为人用、动物使用版本，人用伊维菌素经日本兴和制药与爱知县北里大学的实验结果证实可作为新冠治疗用药。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/你们一定要认识到邪教组织的本能是什么.001.jpeg)
+这个邪教组织的6个特征：教主崇拜，精神控制，编造邪说，聚敛钱财，秘密结社，对抗社会。
 
-目前，日本已有数家制药公司展开临床试验，分析人士指出多家制药公司展开临床试验，代表伊维菌素在新冠病毒的应用可能很快获得日本政府的批准，并有利于控制疫情。
+邪教组织的六大特征是什么？教主崇拜，你们有教主崇拜吗？所以说就别老说爱七哥了又是水多，又是啥多的。精神控制，我控制你们了吗？草根小哥你跟谁双修，我管过你吗？编造邪说，战友每一个都能证明真伪。聚敛钱财，秘密结社。咱秘密结社了吗？咱都是公开直播，咱有秘密结社吗？咱聚敛过谁的钱财？告诉我，哪一个不是在法律范围內的。对抗社会，看看啊，居然说我们对抗社会！如果什么叫邪教组织？那这上面每一条，毛泽东教主崇拜，精神控制，穿蓝衣服白衣服，爹亲娘亲不如共产党亲。东方红太阳升中国出了个毛泽东，万岁万岁！万万岁！编造邪说，共产党说这个抗日拯救了56个少数民族。
 
-此外去年开始，美国卫生研究院（NIH）便着手考虑[批准伊维菌素作为新冠治疗药物](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)。 同年9月，[外媒](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)报道印度德里都市区约97%的新冠病毒（COVID-19）病例，也使用伊维菌素得到有效治疗。
+2022年1月12日大直播
 
-- 相关：[COVID-19 最新情报|以色列疫苗覆盖率逾7成 确诊仍持续创新高](https://gnews.org/zh-hant/1902573/)
+发布： 星谕
 
-
-有关于新冠治疗药物，日首相岸田文雄曾宣布经与辉瑞公司达成基本协议，确保200万剂量的新冠口服药物供给，且正在考虑用公费支付新冠口服药物的相关费用，然[郭文贵曾爆料称新冠口服药副作用极强](https://gnews.org/zh-hant/1770349/)。
-
-* * *
-
-来源｜[路透社](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)、[NIH](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)、[100percentfedup](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

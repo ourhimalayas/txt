@@ -15,95 +15,95 @@
 
 ---
 
-### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/1/README.md)
+### [你们一定要认识到邪教组织的本能是什么（一）](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [没有预测能力千万别瞎猜（二）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/3/README.md)
  ` 關注組`
 
-### [全球疫情更新(辉瑞将成为下一个安然公司？)](/content/gnews/2/README.md)
+### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [全球疫情更新(辉瑞将成为下一个安然公司？)](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日媒报道的中共病毒感染数字相关统计标准令人质疑](/content/gnews/3/README.md)
+### [新中国联邦 2022年最重要的7件事！](/content/gnews/6/README.md)
+ ` 焦點20分`
+
+### [音乐灭共](/content/gnews/7/README.md)
+ ` 骄子`
+
+### [日媒报道的中共病毒感染数字相关统计标准令人质疑](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本兴和制药公司证实伊维菌素有效](/content/gnews/4/README.md)
+### [日本兴和制药公司证实伊维菌素有效](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [英国计划向北约大规模增兵 以应对乌克兰危机](/content/gnews/5/README.md)
+### [七哥说—第47期](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英国计划向北约大规模增兵 以应对乌克兰危机](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [2022/02/01 英喜时事速递](/content/gnews/6/README.md)
+### [2022/02/01 英喜时事速递](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [谢里夫事情意味着什么](/content/gnews/7/README.md)
+### [谢里夫事情意味着什么](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [九指妖造假](/content/gnews/8/README.md)
+### [九指妖造假](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [外交部骗习，一切都是假的](/content/gnews/9/README.md)
+### [外交部骗习，一切都是假的](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/10/README.md)
+### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [冬奥会，谢利夫，拜登言论](/content/gnews/11/README.md)
+### [冬奥会，谢利夫，拜登言论](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [谢利夫 外交人员骗钱](/content/gnews/12/README.md)
+### [谢利夫 外交人员骗钱](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [宣言，和平](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [政治脱钩不超过3个月](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大北京冬奥代表团中5人确诊](/content/gnews/15/README.md)
+### [加拿大北京冬奥代表团中5人确诊](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [宪法法院要求奥地利卫生部证明新冠法规的合理性](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥谈自己如何做人（一）](/content/gnews/17/README.md)
+### [没有预测能力千万别瞎猜（一）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [关掉大使馆意味着什么](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [没有预测能力千万别瞎猜（一）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [年度回顾关键词 &#8211; 青蒿素](/content/gnews/20/README.md)
+### [年度回顾关键词 &#8211; 青蒿素](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [年度回顾关键词 &#8211; 早期治疗药](/content/gnews/21/README.md)
+### [年度回顾关键词 &#8211; 早期治疗药](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实](/content/gnews/22/README.md)
+### [叙利亚摄影师怒斥赵立坚盗用照片、扭曲事实](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [纽约护士吹哨人：录音揭示了可能对儿童、低收入和无家可归的成年人接种 COVID-19 疫苗的拙劣的管理](/content/gnews/23/README.md)
+### [纽约护士吹哨人：录音揭示了可能对儿童、低收入和无家可归的成年人接种 COVID-19 疫苗的拙劣的管理](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/24/README.md)
+### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/25/README.md)
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/26/README.md)
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [法国巴黎！人们在辉瑞总部前反强制疫苗](/content/gnews/27/README.md)
+### [法国巴黎！人们在辉瑞总部前反强制疫苗](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [武汉科学家发现集几种病毒特性于一身的新型冠状病毒](/content/gnews/28/README.md)
+### [武汉科学家发现集几种病毒特性于一身的新型冠状病毒](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/29/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文贵先生直播重点大纲2022/01/31](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [因父母未接种疫苗，3岁儿童被多国医院拒绝治疗](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`

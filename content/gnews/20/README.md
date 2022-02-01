@@ -2,48 +2,23 @@
 ---
 
 
-## 年度回顾关键词 &#8211; 青蒿素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941610/)
+## 没有预测能力千万别瞎猜（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941617/)
 
-作者：华盛顿DC农场 – 海阔天空
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/没有预测能力千万别瞎猜（一）-.jpg)
+你没这个能力预测的时候，你干万不能瞎蒙。比如咱有很多战友是精神上真的是有点不正常。昨天晚上有这样有发信息的去咯。我又跟太白金星，这个预告了明天的直播会发生什么事情啊。然后，这个战友经常给我发。几乎所有的神都是他的朋友。然后说元宇宙里边谁谁谁又决定，但我从来不否定，但在直播你们不能这样，既不符合科学，也不符合宗教和信仰。也就是一个梦。希特勒还在什么是在他的梦中走向自己的人生，你这是在这完全是在胡扯的梦中要决定七哥的人生。你只有坚持规则，带着有点常识。我们是物质的世界，我们有磁场。今天讲昆仑是讲磁场，讲喜马拉雅是讲磁场，雪化了，地球就完了。昆仑山倒了，整个昆仑山要出了事儿，整个昆仑山的整个地球上，变成很多沙漠。整个绿被（消失）。而且昆仑山玉，和田玉在俄罗斯有的是，你别听他瞎忽悠。就是地球形成撞击以后，形成了物质，形成了磁场，磁场就今天的风水。你不能乱来呀，你做个梦就决定咱们的人生了，这太可怕了。还有人做梦说，其实你看，我做了梦了，说你后面有一个狮子的尾巴，然后你头上有一个龙的角。大家要记住Q组织的行为就是共产党一直以来，（像）印尼排华（的阴谋），首先要给你引导着，说华人在那儿，欺负人家华人犯事儿，华人出国都是卖国主义。
 
+2022年1月12日大直播
 
+发布： 星谕
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2015年，中国科学家屠呦呦女士因创制了新型抗疟疾药——青蒿素和双氢青蒿素，荣获诺贝尔医学奖。青蒿素及其衍生物，一直被认为是现今最有效的抗疟疾药。
-
-屠呦呦曾说，青蒿素的发现是中国传统医学给人类的一份礼物。青蒿素及其衍生药物，已经被很多临床应用证实，对于治疗糖尿病、高血压等慢性病，以及癌症，都有积极疗效。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13.jpg)
-新中国联邦最早向世界宣告，青蒿素是治疗中共病毒的关键药物之一，同时，也是防止中共病毒疫苗副作用的特效药物。除了青蒿素外，伊维菌素、阿奇霉素、土霉素、地塞米松等，对治疗中共病毒都有非常好的临床效果。
-
-目前，很多国家的政府和主流媒体仍然在压制青蒿素等药物的信息，因此，广泛传播青蒿素的作用，对消灭中共病毒大流行、控制疫苗灾难有举足轻重的意义。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：Irene木木
-编辑：文真
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

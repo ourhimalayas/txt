@@ -2,33 +2,25 @@
 ---
 
 
-## 日媒报道的中共病毒感染数字相关统计标准令人质疑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941797/)
+## COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941816/)
 
-撰稿：东京樱花团｜待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed.png)
-（图片源自本文链接）
+**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+31日路透社东京报道，日本兴和制药公司对外宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗新冠病毒的功效。 在第三期试验中，研究显示伊维菌素对Delta、Omicron等病毒的感染治疗有相同的效果。 伊维菌素过去被多国新闻媒体误认为「动物用」并倡导「不建议使用伊维菌素」作为治疗新冠用药，但伊维菌素有区分为人用、动物使用版本，人用伊维菌素经日本兴和制药与爱知县北里大学的实验结果证实可作为新冠治疗用药。
 
-2月1日《读卖新闻》记者前田辽太郎报道：1月份截至30日，山梨县有6人被确认死于中共病毒(新冠病毒)，而重症患者的人数却一直为零。为什么在没有重症感染者的情况下会出现死亡现象？有人认为，原因在厚生省制定的关于如何计算死亡人数的规则。
+目前，日本已有数家制药公司展开临床试验，分析人士指出多家制药公司展开临床试验，代表伊维菌素在新冠病毒的应用可能很快获得日本政府的批准，并有利于控制疫情。
 
-厚生劳动省的一位官员在谈到目前死亡人数时说：目前死亡人数的增加并不一定意味着更多的人死于中共病毒(新冠病毒)。
+此外去年开始，美国卫生研究院（NIH）便着手考虑[批准伊维菌素作为新冠治疗药物](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)。 同年9月，[外媒](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)报道印度德里都市区约97%的新冠病毒（COVID-19）病例，也使用伊维菌素得到有效治疗。
 
-目前，统计中共病毒(新冠病毒)死亡的标准基于感染者是否在治疗或住院期间死亡。而过去“死亡”的定义是模糊的，不同城市对是否将死因不明确的人计入中共病毒(新冠病毒)有不同的统计方法。作为对策，厚生省从2020年6月18日起统一了计数方法，即使死因是老年或其它疾病，只要在以前的检查中被确诊感染，那么其死亡将被算作“中共病毒(新冠病毒)死亡”。
+- 相关：[COVID-19 最新情报|以色列疫苗覆盖率逾7成 确诊仍持续创新高](https://gnews.org/zh-hant/1902573/)
 
-虽然令人难以理解这种统计的意义何在，但厚生省建议将“死后检测呈阳性的人”也算作感染死亡，其理由是，这将使厚生省能够“监测全国的感染情况”，但医疗机构却很难对所有死者进行检测。
 
-随着具有高度传染性的奥密克戎变异毒株的流行，进行的测试越多，出现阳性结果的几率越大，因感染中共病毒(新冠病毒)死亡的人数也越多。1月份，没有关于无症状或轻度疾病的人恶化成为重患的报告。
+有关于新冠治疗药物，日首相岸田文雄曾宣布经与辉瑞公司达成基本协议，确保200万剂量的新冠口服药物供给，且正在考虑用公费支付新冠口服药物的相关费用，然[郭文贵曾爆料称新冠口服药副作用极强](https://gnews.org/zh-hant/1770349/)。
 
-除了目前的统计之外，厚生省正在努力对生命统计中的中共病毒(新冠病毒)死亡人数进行更准确的统计，该统计基于医生的死亡证明，但这需要几个月的时间来编制。
+* * *
 
-一向以工作严谨著称的日本尚且在中共病毒(新冠病毒)相关数字统计上出现问题，那么媒体每天在报道的世界各国的感染、重症、以及死亡数据能可信吗？
-
-信息来源：[**重症ゼロなのに、なぜか「死者６人」の県…原因は「厚労省ルール」か（読売新聞オンライン）**](https://news.yahoo.co.jp/articles/30180c2cb57b748fda7bdbb1634aca1bf0767049)
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+来源｜[路透社](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)、[NIH](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)、[100percentfedup](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)
 
  
 

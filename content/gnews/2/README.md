@@ -2,91 +2,22 @@
 ---
 
 
-## 全球疫情更新(辉瑞将成为下一个安然公司？)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941810/)
+## 没有预测能力千万别瞎猜（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941827/)
 
-**整理/编辑：枳实**
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/没有预测能力千万别瞎猜（二）-.jpg)
+今天一定要提醒，大家听认真想一想。谁有卖国的权利，谁有叛国的权力，你们根本就没国家，你又叛什么国卖什么？你被定义化以后，你就会死很惨。增加自己的知识和见解和能力。就像我去过这地方，我才知道。我们就像我的人生，你七嫂99.99%不知道，我不喜欢她知道，因为这个东西不是谁知道你能承受得了。还有战友也别没事儿找事儿，你根本就没有，你瞎编啥。Q组织会一个接一个会出来。像很多战友们看到谁谁被杀了，这个美国高法判决了说停止疫苗了，干万别听风就是雨。这个人积累自己的信用，是可能是百年，10年，一年，毁掉只需句话1秒，别装神弄鬼。今天草根小哥和青青草原，我们今天是交换最快啊，就是我们之间这个话题最多，而且我认为青青青草原的哈萨克斯族56个民族，所有的一个真正的受到的待遇，所谓少数民族政策，包括西藏神秘的什么山峰，神秘的别墅啊，包括现在哈萨克斯坦发生的，中亚，对国际政治的认识，今天节目未来会无数次被截段，拿出来去证明。就像你们看到证明他们把甩锅甩到美国一样，接下来，中亚的事情会在哈吉克斯坦中亚这十几个国家都会发生。这是东西方共产主义和独裁主义与资本主义的一场较量，也是欧洲和美国和整个中亚和亚洲的较量。然后共产党掺和着，装大尾巴狼。最后被灭了一定是他。一定是他，但愿少死点中国人。最后是对新疆人绝对是有好处。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-13.png)
+2022年1月12日大直播
 
-图片：雅典娜农场设计组 精灵蓝
+发布： 星谕
 
-
-雅典娜疫情更新（2022年 2月1日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-**一，全球疫情基本数据**
-
-感染总数：377,867,962（日新增3,249,478，14天增幅+12%）
-
-死亡总数：5,670,961（日新增9,380人，14天增幅 +29%）
-
-**二，全球“疫苗”毒针统计数据**
-
-“疫苗”毒针注射总数：101亿
-
-完全“接种”：41.5亿人
-
-完全“接种”百分比：53.2 %
-
-**三，澳洲疫情和“疫苗”数据**** **
-
-感染总数：2,580,386（今日新增35,198人）
-
-死亡总数：3,835人（今日新增 77人）
-
-每万人感染人数：1000.6066人（澳大利亚在2022年1月31日，中国新年除夕，感染人数正式超越十分之一）
-
-“疫苗”毒针注射总数：49,926,171 （今日新增174,045  针）
-
-完全“接种”：19,258,399人
-
-第二针“接种”百分比：78.7%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.4%
-
-加强针总数：7,971,368（日新增：206,804针）
-
-**四，**[**辉瑞和莫德纳将成为下一个安然公司？**](https://paine.tv/listen-are-moderna-and-pfizer-the-next-enrons-former-blackrock-hedge-fund-guru-edward-dowd-paints-grim-picture-for-big-pharmas-vax-kings-while-big-insurance-appears-prepped-to-go-to-war-with/)** **
-
-辉瑞等几大疫苗公司之所以能够如此肆无忌惮地推广其“疫苗“毒针，并非因为其产品安全有效，而是因为这些疫苗生产商都获得了豁免，从而能逃避因疫苗伤害案件所引起的法庭起诉追责。然而在[最近的一期班农战斗室上](https://dailyexpose.uk/2022/01/31/pharma-liability-shields-could-be-at-risk-if-fraud-is-found-says-former-blackrock-investment-executive/)，前黑石和对冲基金大师爱德华·多德（Edward Dowd）提出，如果涉嫌欺诈，根据判例法，合同将无效，这将导致对大药品公司的责任豁免可能不再适用了。多德说，这可能意味着辉瑞，莫德纳和其他mRNA疫苗制造公司的末日，因为大保险公司正准备与大制药公司就与中共病毒基因治疗针剂有关的人寿保险赔付进行 “对峙”。
-
-我们从VAERs等不良事件数据库中看到了许多这些疫苗造成的死亡和残疾事件，但多德说，“现在保险公司的精算结果中也看到了这一点”。Aegon保险在其美国部门的第三季度业绩中看到，死亡索赔从2020年的3100万增加到2021年的1.11亿，这大约增加了268%，根据多德的说法，“这不仅仅是一个医疗骗局，也是一个金融和资本市场骗局。”
-
-2021年8月23日，美国食品和药物管理局（FDA）批准了辉瑞生物技术公司的中共病毒疫苗。四天后，有人提交了[一份依据《信息自由法》的信息公开申请](https://phmpt.org/wp-content/uploads/2021/10/IR0546-FDA-Pfizer-Approval-FINAL.pdf)。然而，尽管FDA承诺 “透明”，但他们似乎一直不愿意分享必要的数据，甚至试图在法庭上挑战《信息自由法案》，要求每月仅发布500页，到50年后才能公开全部文件。考虑到FDA在分析辉瑞公司的数据仅108天后，就能认为这个基因疗法的针剂值得获得紧急使用授权，他们的做法相当可疑。
-
-在法庭命令下，FDA公布的第一批数据中，我们已经可以看到，[辉瑞和FDA都知道这种针剂绝非 “安全和有效 “](https://dailyexpose.uk/2021/12/06/pfizer-documents-reveal-both-pfizer-and-the-fda-knew-the-risks-of-vaccine-adverse-events-and-deaths/)的。这可以从他们发布的文件[《疫苗紧急授权后不良事件记录报告的累积分析》](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)中看出。该文件显示，在FDA的紧急授权下，该疫苗推出的前90天内（2020年12月1日至2021年2月28日），有数以万计的不良反应报告，包括1200多人死亡。报告指出，全世界总共有42086份个人对辉瑞公司的疫苗产生不良反应的案例报告，其中最大的数字（13739）来自美国和英国（13404）。
-
-根据郭先生的爆料，真正的疫苗灾难到5月份前后才会开始。但现在追责的脚步声已经提前3月响起了。从保险公司入手和欺诈的指控，这是一个切实可行的法律追诉的方向，未来随着疫苗灾难的逐渐逼近，民意的觉醒，各种类似的法律追责，媒体追责，政治追责和卸责必然接踵而至。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布:盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
