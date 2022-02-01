@@ -2,43 +2,39 @@
 ---
 
 
-## 官方数据显示大多数感染者，住院者和死亡者都是疫苗的完全接种者，这是一场疫苗接种者的瘟疫。
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1940340/)
+## 有声|欧盟27国2月1日起全面解除疫情封锁政策
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940358/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
-
-整理报道：小鱼儿
-编辑：文明明来了
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/IHFKLB3CVUDAES7YWSJW.png)图片来源：雅典娜设计组
+配音：香草山佛教部 – 李傻
 
 
-当地时间1月30日，据曝光（the exposé）新闻报道，根据澳大利亚新南威尔士州的官方数据，21年11月26日至22年1月8日期间，每10个住院人中就有9人，及每10个死亡人中就有8人是接种过三剂或两剂疫苗的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间1月28日，据相关媒体报道，欧盟理事会于近日发布了一则有关欧盟内部旅行的最新规定。当中指出，自2月1日起，游客只需携带中共病毒疫苗接种证明、康复证明或中共病毒阴性检测证明，即可在欧盟27个国家内畅行无阻，且无需经过隔离或额外的核酸检测。
 
-新州每周都会发布一份新冠监测报告，内容包含按疫苗接种情况划分的新冠病例、住院和死亡的数据。最新一份报告发布于2022年1月13日。
+据悉，尽管目前整个欧洲的中共病毒感染率依然很高，但各国政府都迫不及待地想要重新开放。对此，欧盟的卫生官员表示，欧洲各国应立即结束那些会使旅行变得格外复杂的各种疫情限制措施。
 
-该份报告的第8页显示（感染者的接种情况），自从奥密克戎被发现以来，新州所有符合接种疫苗的人群（12岁以上）中，总共有273,511个确诊病例，其中有267,381为完全接种疫苗的人群，2,578个病例已经接种一剂，3,552个病例没有接种。这意味着，21年11月26日至22年1月8日期间新冠病例的中接种疫苗的人群占99%。
+此外，英国近日也宣布，将全面解除该国的限制措施并重新开放酒吧和餐馆。同时，当地也解除了针对民众佩戴口罩的法律要求，以及与游客入境相关的封锁政策。
 
-该报告的第8页还显示了，医院中新冠人群的疫苗接种情况。21年11月26日至22年1月8日期间，新州共有3,022名新冠阳性住院患者。其中三剂或两剂疫苗接种者2627人，一剂接种者80人，而未接种者仅315人。这意味着，自从奥密克戎出现以来占因新冠住院人数的90%是接种过疫苗的人。
+于丹麦而言，该国也声明，将在2月1日前取消当地所有的防疫措施。而在1月31日之后，丹麦政府不再将中共病毒归类为社会危重疾病。
 
-在英国，由于缺乏数据，名人和政客可以对重症监护室中大多数新冠患者的疫苗接种情况进行虚假宣传。与此不同的是，新州政府友好地告知公众具体数据。
+文字版原文：[欧盟27国2月1日起全面解除疫情封锁政策](https://gnews.org/zh-hans/1938307/)
 
-报告的第8页显示，在21年11月26日至22年1月8日期间，在重症监护室有282名符合接种条件的新冠患者，其中完全接种疫苗的有215人，接种一剂的有12人，未接种的却只有55人。这意味着接种疫苗的人群占ICU中新冠病人的81%。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-最后我们来看看新冠的死亡情况。报告第8页显示了，21年11月26日至22年1月8日期间，总共只有91人死亡。 其中，67人完全接种疫苗，3人接种一剂，21人未接种。这意味着，接种疫苗的人数占所有新冠死亡人数的77%。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在澳大利亚，之前政府花钱为避免一场 “尚未发生的大瘟疫”而购买和推动新冠疫苗注射，而现在看来这场大瘟疫才刚刚开始，而且这恰恰是一场属于疫苗接种者的瘟疫。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考新闻：[Covid-19 Deaths are rising sharply in Australia and official data shows the Fully Vaccinated account for 4 in every 5 of them](https://dailyexpose.uk/2022/01/30/australias-pandemic-of-the-fully-vaccinated/)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*发布：tianzhihuan*
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

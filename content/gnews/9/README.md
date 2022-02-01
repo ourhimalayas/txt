@@ -2,33 +2,43 @@
 ---
 
 
-## 从今天起，没有郭七条!
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940376/)
+## 有声|乡下的第一个新年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940383/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/12月8日1pm.jpg)
-直播时间：2021.12.08
+配音：香草山佛教部 – 李傻
 
-就是70年中国人的忍受压迫，才纵容了共产党。他认为死你几个人没问题，为什么他们家就不能死人呢？我们要让共产党的爹，共产党的妈，共产党的姐姐妹妹受到严厉的审判。
 
-要让他比我们痛苦一百倍一万倍！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+回到乡下生活快有一年了。自从中共病毒出来后，真的厌倦了城市里的生活。头一年只是戴口罩还能忍受，第二年开始强打疫苗，不打就没有工作，以及其他的各种限制。让人难受的是周围的同事总用一种怀疑的眼光看过来并问道：你为什么不打？你不打就是对我们的不负责，你不打你要染上了就会传染给我们……, 领导：这是政治任务必须打。更伤心的是回到家里劝家人别打，可是家人不但不听还反问一句：什么副不副作用的？别人死得你不能死呀。我崩溃了，想起七哥的话收拾行李就回到了乡下。为了生存在乡下找了份工作。老板挺好的，是那种只看工作能力不追问别人隐私的人。
 
-这个游行是最简单的开始，你看我在做什么？共产党在6年前，他不相信我们有新中国联邦，不相信海航是吧？他不相信马云，他不相信冬奥会能灭了他，不相信美国会脱钩，他不相信班农和美国西方政府和我们站在一起，他不相信我们的喜联储和Gclub喜美元能成功。
+今天大年三十，回亲戚家帮忙打扫卫生，由于没打疫苗寸步难行，回不了原来的家，这个虎年就在亲戚家过了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Happy_Lunar_New_Year.png)
+中午过后鞭炮声四处响起，忙把自己关在屋里，重看七哥的直播视频，视频里的七哥能让人心情好起来，忘掉所有的落寞，燃起新的希望。
 
-他知道意味着什么？
+灭共进入第五个年头，跟随七哥也进入第四年，七哥就像茫茫黑夜中的一盏灯照亮着前方的路。
 
-民心向郭，民心向新中国联邦，他们很清楚，现在中国是没钱，没团结，没未来，没希望。他没有的，我们都有。他只剩下一招去打台湾了。他只剩下一招，他把我爹给炖了。你还能干啥呢共产党？你做给我看看！
+展望未来，正义必将战胜邪恶！中共必将灭亡！
 
-从今天起，没有郭七条。只要能灭共的，一切都能干。充分利用好当地的法律，只要是保护好战友的，一切都能干。因为这个行动所有遭受的损失，郭文贵新中国联邦法制基金法制社会承担一切后果，所有的成本所有的后果，我们承担。如果大家有信心，我们要加速共产党的灭亡。一定在2025年以前把它消灭。
+文字版原文：[乡下的第一个新年](https://gnews.org/zh-hans/1939787/)
 
-发布：*皮特*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
  
 

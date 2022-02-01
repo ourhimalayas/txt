@@ -2,39 +2,22 @@
 ---
 
 
-## 有声|欧盟27国2月1日起全面解除疫情封锁政策
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940358/)
+## 冬奥会临近 中共国COVID-19激增
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1940359/)
 
-配音：香草山佛教部 – 李傻
+#### 翻译：文斗
 
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)
+1月31日（合众国际社） — 据有关官员称，在北京冬奥会开幕前两天，因参与冬奥会引发的CCP病毒病例在增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间1月28日，据相关媒体报道，欧盟理事会于近日发布了一则有关欧盟内部旅行的最新规定。当中指出，自2月1日起，游客只需携带中共病毒疫苗接种证明、康复证明或中共病毒阴性检测证明，即可在欧盟27个国家内畅行无阻，且无需经过隔离或额外的核酸检测。
+组织者已经确定了250个与冬奥会有关的病例，其中仅上周末就有71个新病例。涉及运动员或团队官员有28例。其中20个病例是在北京的“闭环系统”内检测确认的。
 
-据悉，尽管目前整个欧洲的中共病毒感染率依然很高，但各国政府都迫不及待地想要重新开放。对此，欧盟的卫生官员表示，欧洲各国应立即结束那些会使旅行变得格外复杂的各种疫情限制措施。
+2022年北京冬奥会医疗专家组主席布莱恩·麦克洛斯基（Brian McCloskey）说，随着抵达开幕式和比赛开始的运动员人数增加，现在这种情况是早就预料到的。
 
-此外，英国近日也宣布，将全面解除该国的限制措施并重新开放酒吧和餐馆。同时，当地也解除了针对民众佩戴口罩的法律要求，以及与游客入境相关的封锁政策。
+北京平均每天有36个新病例，比1月25日至27日的三天平均数翻了一番。这些数字超过了去年东京夏季奥运会期间的感染数字。
 
-于丹麦而言，该国也声明，将在2月1日前取消当地所有的防疫措施。而在1月31日之后，丹麦政府不再将中共病毒归类为社会危重疾病。
-
-文字版原文：[欧盟27国2月1日起全面解除疫情封锁政策](https://gnews.org/zh-hans/1938307/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[新闻链接](https://www.upi.com/Top_News/World-News/2022/01/31/Beijing-Olympics-COVID-19/6841643654072/)
 
  
 

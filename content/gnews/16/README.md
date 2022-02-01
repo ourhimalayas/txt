@@ -2,8 +2,8 @@
 ---
 
 
-## 日本排华战友亲身经历
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940305/)
+## Q组织是共产党的阴谋
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940313/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

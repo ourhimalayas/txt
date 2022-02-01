@@ -2,43 +2,33 @@
 ---
 
 
-## 有声|疫苗灾难将促使全球自动灭共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940371/)
+## 从今天起，没有郭七条!
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940376/)
 
-配音：香草山佛教部 – 李傻
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12月8日1pm.jpg)
+直播时间：2021.12.08
 
+就是70年中国人的忍受压迫，才纵容了共产党。他认为死你几个人没问题，为什么他们家就不能死人呢？我们要让共产党的爹，共产党的妈，共产党的姐姐妹妹受到严厉的审判。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-1月30日，郭文贵先生在直播中再次谈及了有关中共病毒疫苗灾难的话题。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-24.jpeg)
-郭先生透露，一位参加过《文贵大直播》的战友，其17岁的孩子在接种了中共病毒疫苗后于昨晚过世。其后，还有9位战友也分别向郭先生传递了家人因疫苗副作用而引起家庭灾难的消息。
+要让他比我们痛苦一百倍一万倍！
 
-郭先生指出，据科学家预计，全世界因中共病毒疫苗造成死亡的人数将达到6至7亿人。同时，疫苗政治、疫苗军事和疫苗经济下的疫苗灾难将从2022年5月开始爆发。
+这个游行是最简单的开始，你看我在做什么？共产党在6年前，他不相信我们有新中国联邦，不相信海航是吧？他不相信马云，他不相信冬奥会能灭了他，不相信美国会脱钩，他不相信班农和美国西方政府和我们站在一起，他不相信我们的喜联储和Gclub喜美元能成功。
 
-对此，郭先生表示，各国民众应尽快苏醒，从而能将所有推行疫苗强制令的政客彻底曝光。随之而来的，为了平衡民心并保住其政治地位，这些政客势必要把民意引向追溯病毒起源、疫苗真相，甚至战争等方面。自此，全球必将开启自动灭共的进程。
+他知道意味着什么？
 
-郭先生还提醒爆料革命战友，当世界进入混乱之时，新中国联邦在海外的华人要防止当地排华事件的发生并改变与人交往的方式；而墙内的战友则不要充当中共的炮灰。
+民心向郭，民心向新中国联邦，他们很清楚，现在中国是没钱，没团结，没未来，没希望。他没有的，我们都有。他只剩下一招去打台湾了。他只剩下一招，他把我爹给炖了。你还能干啥呢共产党？你做给我看看！
 
-郭先生最后也反复强调，共产党不等于中国人，且新中国联邦只为救人。因此，我们不希望用鲜血与生命来证明爆料革命的伟大。
+从今天起，没有郭七条。只要能灭共的，一切都能干。充分利用好当地的法律，只要是保护好战友的，一切都能干。因为这个行动所有遭受的损失，郭文贵新中国联邦法制基金法制社会承担一切后果，所有的成本所有的后果，我们承担。如果大家有信心，我们要加速共产党的灭亡。一定在2025年以前把它消灭。
 
-文字版原文：[疫苗灾难将促使全球自动灭共](https://gnews.org/zh-hans/1939393/)
+发布：*皮特*
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
