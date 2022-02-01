@@ -2,14 +2,17 @@
 ---
 
 
-## 2022.1.10疫苗灾难
-` 【去疫前线】` [轉載自GNews](https://gnews.org/zh-hans/1939842/)
+## 五月花简报（01/31/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1939852/)
 
-**⚠️我们不反疫苗，只针对假疫苗**
+编辑：波士顿五月花—冲天一怒
 
-**⚠️我们不反科学，只针对反人类**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/A72781C4-5871-47C9-BD15-F934338C6436.jpeg)
 
-**⚠️covid-19=新冠病毒=中共病毒**
+
+*发布：思澈*
+
+
 
  
 
