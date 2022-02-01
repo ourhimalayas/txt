@@ -2,38 +2,30 @@
 ---
 
 
-## 有声|中共跪求美国不要离开
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940167/)
+## 扬帆每日速递 2022年1月31日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1940206/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月30日，郭文贵先生在盖特视频中连续爆料美国撤离驻北京大使馆后，中共对此事的反应。
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、据壬寅年春节大主播：今天新中国联邦创始人郭文贵先生在春晚中祝全世界、国内所有战友及家人新春快乐，祝大家身体健康、平平安安、合家团圆。
 
-据内部战友披露，虽然中共恳求美国不要撤走全部驻北京人员，但美国仍派了多架军事医疗飞机已抵达北京首都机场。
+2、据壬寅年春节大主播：今天的新中国联邦春节晚会特别是文贵先生《一帘幽梦》《塞北的雪》两首歌曲，在世界上引起强烈震撼，又有一些国家决定不去参加奥运会。
 
-郭先生爆料，中共昨天和今天无数次地骚扰美国，开出各种优厚条件试图挽留，比如，恢复两国领导人最重要个人关系，落实拜登和习近平的电话视频会议，以及和美国共同面对世界难题、为世界负责。
+3、随着加拿大卡车司机及支持者们在渥太华举行“自由护航2022”抗议活动，加拿大总理贾斯汀·特鲁多周一早上及时宣布，他的中共病毒检测呈阳性。之前特鲁多称自己已打三针新冠疫苗。
 
-原文链接：[中共跪求美国不要离开](https://gnews.org/zh-hans/1932978/)
+4、中共党魁习近平在周末的农历新年致辞中赞扬中共国“在经济发展中的全球领先地位”。
 
-音频处理/发稿：Daxia
+5、据中共财经网1月30日消息，中国人民银行、中国银保监会、中国证监会三部门日前联合发文，自2022年3月1日起，个人办理人民币单笔5万元以上或者外币等值1万美元以上现金存取业务的，应当识别并核实客户身份，了解登记资金来源或用途。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+6、1月31日，港7.21警黑勾结事件的元朗南边围村，村长 陈礼喜29日被人发现猝死在车内，死因心肌炎。评:老天有眼现世报！齐鼓掌齐欢唱！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板131-1_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
-**更多资讯，更多关注**
+编辑：文敏
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发布：风起云间（文敏）
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+海报图片设计：飞天面、 Shuang
 
  
 

@@ -2,57 +2,40 @@
 ---
 
 
-## 戴口罩影响婴幼儿认知能力，语言治疗就诊率大增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1939353/)
+## 疫苗灾难将促使全球自动灭共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1939393/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+作者：香草山农场-晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月30日，郭文贵先生在直播中再次谈及了有关中共病毒疫苗灾难的话题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/815-5.jpg)图片来源：Truth Press
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide1-24.jpeg)
 
+郭先生透露，一位参加过《文贵大直播》的战友，其17岁的孩子在接种了中共病毒疫苗后于昨晚过世。其后，还有9位战友也分别向郭先生传递了家人因疫苗副作用而引起家庭灾难的消息。
 
-整理报道：文扬
-编辑：彩虹
+郭先生指出，据科学家预计，全世界因中共病毒疫苗造成死亡的人数将达到6至7亿人。同时，疫苗政治、疫苗军事和疫苗经济下的疫苗灾难将从2022年5月开始爆发。
 
-一位语言治疗师说，在中共病毒疫情期间戴口罩导致婴儿和幼儿的病人转诊量增加364%。
+对此，郭先生表示，各国民众应尽快苏醒，从而能将所有推行疫苗强制令的政客彻底曝光。随之而来的，为了平衡民心并保住其政治地位，这些政客势必要把民意引向追溯病毒起源、疫苗真相，甚至战争等方面。自此，全球必将开启自动灭共的进程。
 
-雅克琳·特克(Jaclyn Theek)告诉WPBF新闻台，在中共病故疫情之前，只有5%的病人是婴幼儿，但（现在）这一比例已经飙升至20%。
+郭先生还提醒爆料革命战友，当世界进入混乱之时，新中国联邦在海外的华人要防止当地排华事件的发生并改变与人交往的方式；而墙内的战友则不要充当中共的炮灰。
 
-家长们将他们孩子的语言问题描述为“COVID延迟”，脸部遮盖物是导致他们说话能力严重受损的主要原因。
+郭先生最后也反复强调，共产党不等于中国人，且新中国联邦只为救人。因此，我们不希望用鲜血与生命来证明爆料革命的伟大。
 
-早在8个月大的时候，婴儿就开始通过读唇语来学习如何说话，如果父母和照顾者为了遵守规定而戴口罩，使婴儿读唇语来学习如何说话变得困难。
+参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
 
-特克说：“孩子们看到你的脸来学习是非常重要的，因此他们（可以）会注视你的嘴。”
+![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
 
-新闻报道介绍了这样一位母亲，布里安娜·盖伊（Briana Gay），她在抚养五个孩子，但她最小的孩子有语言问题。
+总编：文特
+编辑：静言
+校正/发稿：谐趣园
 
-盖伊说：“在你成长的世界里，你不能与人和他们的脸互动时，这肯定会产生差异，这对婴儿非常重要。”
-
-据特克说，自从中共病毒疫情以来，自闭症症状也在急剧上升
-
-她说：“他们没有做出任何文字上的尝试，也没有与家人进行任何沟通。”
-
-正如我们之前强调的那样，《福布斯》删除了一篇由教育专家撰写的文章，该专家称强迫学童戴口罩会造成心理创伤。
-
-布朗大学（Brown University ）研究人员的一项研究发现，在中共病毒疫情期间出生的幼儿的平均智商分数下降了22分，同时语言、运动和认知表现都因封锁而受到影响。
-
-迈克尔·科尔松（Michael Curzon ）指出，造成这种情况的两个主要原因是口罩和儿童因远离其他儿童而受到影响。
-
-他写道：“根据美国的一项新研究，在过去一年封锁期间出生的儿童，（由于）在这个时候，政府阻止婴儿见到年长的亲戚和其他大家庭成员，阻止他们在公园或与父母朋友的孩子交往，阻止他们在室内公共场所研究人的表情，从而与之前出生的儿童相比，他们的语言、运动和整体认知能力明显下降。早期学习、言语发展和非言语发展的测试结果都远远落后于封锁前几年的结果。”
-
-也许所有认为自己戴着口罩是道德高尚的人都会改变他们的行为，因为他们实际上是在造成儿童的主要认知问题。
-
-或许，也可能他们根本不会在意，因为口罩现在是一种高于其他东西的政治地位象征。
-
-**原文链接：**[Speech Therapist: 364% Surge In Baby And Toddler Referrals Thanks To Mask Wearing | ZeroHedge](https://www.zerohedge.com/political/speech-therapist-364-surge-baby-and-toddler-referrals-thanks-mask-wearing)
-
-发布：文泓
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

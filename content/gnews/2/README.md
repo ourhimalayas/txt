@@ -2,8 +2,8 @@
 ---
 
 
-## 共享财富就是共产主义 就是共产到少数几个家族手里
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940258/)
+## 日本排华战友亲身经历
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940305/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
