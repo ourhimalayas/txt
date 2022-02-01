@@ -2,16 +2,48 @@
 ---
 
 
-## COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941897/)
+## 年度回顾关键词 &#8211; 青蒿素
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941610/)
 
-**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio-1.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-据新中国联邦及爆料革命发起人郭文贵于2月1日直播中表示，与他有联系的某一科学家在欧洲军事等级的医学研究所正在进行一项青蒿素鸡尾酒疗法的研究与测试。 他表示，这个青蒿素相关的鸡尾酒疗法能更深度的清除新冠疫苗余毒（可能指「新冠疫苗刺突蛋白引发的心肌炎、癌症及其他未知副作用」）。
+作者：华盛顿DC农场 – 海阔天空
 
-青蒿素相关的鸡尾酒疗法，据郭所述成本约为“一美金”，对新冠病毒有极高的治疗效用，甚至可能可以100%清除新冠疫苗的未知不良反应。 目前，并无更多关于青蒿素鸡尾酒疗法的信息。
-來源：[20m](https://gettr.com/user/20minfocus)[infocus](https://gettr.com/user/20minfocus)GETTR
-來源｜[GETTR](https://gettr.com/post/prpkcn65c4)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+2015年，中国科学家屠呦呦女士因创制了新型抗疟疾药——青蒿素和双氢青蒿素，荣获诺贝尔医学奖。青蒿素及其衍生物，一直被认为是现今最有效的抗疟疾药。
+
+屠呦呦曾说，青蒿素的发现是中国传统医学给人类的一份礼物。青蒿素及其衍生药物，已经被很多临床应用证实，对于治疗糖尿病、高血压等慢性病，以及癌症，都有积极疗效。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13.jpg)
+新中国联邦最早向世界宣告，青蒿素是治疗中共病毒的关键药物之一，同时，也是防止中共病毒疫苗副作用的特效药物。除了青蒿素外，伊维菌素、阿奇霉素、土霉素、地塞米松等，对治疗中共病毒都有非常好的临床效果。
+
+目前，很多国家的政府和主流媒体仍然在压制青蒿素等药物的信息，因此，广泛传播青蒿素的作用，对消灭中共病毒大流行、控制疫苗灾难有举足轻重的意义。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：Irene木木
+编辑：文真
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

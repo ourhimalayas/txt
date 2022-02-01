@@ -2,41 +2,48 @@
 ---
 
 
-## 年度回顾关键词 &#8211; 中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941146/)
+## 欧洲商会表示 ：香港可能会在2024年之前保持隔离状态
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1940594/)
 
-作者：英喜农场 – 舒平风
+作者：纽约香草山教育部-Naughty(文行)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-2.jpeg)
 
 
 
-郭文贵先生早在2019年曾多次向世界预警，中共政府近年来一直在研发用于维稳的准化学武器，并且其将使用某生化武器对付香港民众。直至2022年1月初，中共国内武汉市出现多例不明原因的肺炎患者。随后，经郭先生反复爆料，中共政府被迫承认此次冠状病毒肺炎疫情存在人传人现象，武汉随即进入封城状态。而在紧闭国门的同时，中共通过境外航班将这一被称为“中共病毒”的肺炎输送至全世界。
 
-另一方面，中共透过与其勾兑的WHO和NIH阻挠全球对中共病毒的溯源工作，并持续向全球继续放毒。目前，中共病毒在全球已经造成了3亿多人感染，数百万人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+香港欧洲商会在一份草案中表示，由于施行严格的中共病毒管控政策，香港可能要到 2024 年初才能重新开放，这可能会引发外国公司和员工的外流，并危及其作为世界金融中心的地位。
 
-总编/编辑：Irene木木
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2022/01/95680aa5549f487e23356890080fa4d4-696x464-1.jpg)
+
+1 月份香港中共病毒感染人数激增，当局一直在努力控制，但由于旅行限制和间歇性封锁加速了人才从这个前英国殖民地流失，跨国公司将越来越多地将专注于把将其亚洲区域团队转移到新加坡或首尔。欧洲商会预计这次的人口外流，可能是香港有史以来规模最大的一次。香港可能会失去其作为国际商业中心的地位。
+
+该商会建议外国企业应该假设香港很可能在未来12-36个月内处于国际旅行半关闭状态。并强调，人才才是最宝贵的，香港应该采取措施留住人才，并坚持下去。
+
+参阅链接：
+
+[https://www.asahi.com/ajw/articles/14534238](https://www.asahi.com/ajw/articles/14534238)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑/校对/发稿：遍地开花
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

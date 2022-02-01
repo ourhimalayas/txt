@@ -2,10 +2,10 @@
 ---
 
 
-## 绝对无可争辩的证据表明疫苗强制令是一场谋杀
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1941486/)
+## 法国巴黎！人们在辉瑞总部前反强制疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1941482/)
 
-01/29/2022 律师托马斯·伦茨：绝对无可争辩的证据表明疫苗强制令是一场谋杀。
+01/30/2022 法国巴黎，人们在辉瑞总部前反强制疫苗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
