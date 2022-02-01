@@ -2,32 +2,17 @@
 ---
 
 
-## 历史为何惊人相似！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1942432/)
+## 七哥金句6
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942438/)
 
-制作：贵气比人
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-百姓几代人受到如此伤害，龙的传人何时才能真正醒来？天赋人权是与生俱来的权利！
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6.jpg)
+七哥在一个东北那连猪狗不如的地方——赵家沟，找能跑出来，到今天，我每天都感恩，因为我没有忘过去。我认为我今天即使最烂的生活也比我那会儿最好的生活还好。
 
+今天在那里的人，绝大多数还是过着猪狗不如的生活，就我出生的地方很多杨改兰的家庭。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-35.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-
+所以说兄弟姐妹们，珍惜今天你拥有的，更重要的是要看清事实，我们是人，我们不是宠物不是畜生。我们和畜生不同的是我们有思想、有文明，我们有上天，这就是爆料革命（让）你要开智、明眼、辨是非、识善恶。
 
  
 
