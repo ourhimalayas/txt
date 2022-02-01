@@ -2,36 +2,30 @@
 ---
 
 
-## 有声|疫苗灾难：2022年恐增加6千万心血管病死亡人口
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940165/)
+## 扬帆每日速递 2022月1月31日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1940219/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月28日外媒报道，根据史蒂夫·冈德瑞博士的全球疫苗后遗症的发展趋势进行推演，2022年因中共病毒疫苗导致的心血管病死亡患者将增加6230万人。
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、据壬寅年新春大主播：红色的新联邦国旗首次亮相新春晚会，郭先生身穿全新的红色Gfashion，手持红色的百宝书。共产党霸占了红色，抢夺了我们的自由，让我们失去未来和家人。未来文贵先生告诉手中百宝书秘密的时候，喜币可能已经涨到1000！
 
-史蒂夫·冈德瑞博士在去年11月，发表在美国心脏协会AHA的论文警告说，根据mRNA疫苗第二次接种后的2个月内各种炎症标志物的测量结果，5年内遭受心脏病发作的机率增加一倍以上。
+2、据壬寅年新春大主播：文贵先生报告好消息，我们在欧洲的科学家正在欧洲某军事研究所研制青蒿素的鸡尾酒疗法，将彻底清除中共疫苗病毒，一旦得到全面认证，将拯救世界。新中国联邦已预定1亿剂。
 
-原文链接：[疫苗灾难：2022年恐增加6千万心血管病死亡人口](https://gnews.org/zh-hans/1933674/)
+3、英国外交事务议会委员会的英国议员工党议员克里斯·布莱恩特无视中共国不要与台湾接触的要求，计划在2月份访问台湾。
 
-音频处理/发稿：Daxia
+4、美国食品药品管理局（FDA）周一（1月31日）宣布，该机构已完全批准莫德纳（Moderna）COVID-19疫苗的使用权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+5、、1月31日，民政事务局局长徐英伟表示疫情爆发情况下，于1 月3日出席港区人大代表洪为民生日宴会行为失当，向行政长官请辞今日离任。评: 防疫禁令下二百多人群聚派对，唯独一入认罪。参加派对的有警务署长、入境事务处长、廉政公署署长哪个地位不比徐英伟高？
 
-**更多资讯，更多关注**
+6、观察者网1月31日刊文称，阿根廷驻华大使牛望道近日在接受媒体采访中表示，阿根廷总统费尔南德斯在来中国出席冬奥委会期间，将参观瞻仰毛主席纪念堂，参观中国共产党历史展览馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板131-2_page-0001-2.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：文敏
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发布：风起云间（文敏）
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+海报图片设计：飞天面、 Shuang
 
  
 
