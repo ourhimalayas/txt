@@ -2,22 +2,12 @@
 ---
 
 
-## 雅典娜时报-第191期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941333/)
+## 英国殡仪馆主任透露死亡人数增长了500-600%，死者都打过疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1941478/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+01/21/2022 英国殡仪馆主任说当前飙升的死亡人数证实了专业人士之前的担忧。死去的不仅是老年人，还有20多岁、30多岁和40多岁的人，以及那些通常不会死的人，他们都被打过疫苗。他在当地为验尸官工作的朋友都非常忙碌，因为他们不得不外出并去死者家里接死者。
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490364633138/155_7-1.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490893127740/155_4-4.png?width=768&amp;height=1144)
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,25 +2,22 @@
 ---
 
 
-## 日本F-15战机在海上失联
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941231/)
+## 雅典娜时报-第191期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941333/)
 
-稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4.png)
-图片来源于本文链接
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-31日下午5点30分左右，一架从石川县小松空军基地起飞的航空自卫队F-15战斗机在该基地西北方向约5公里的海域上空从雷达上消失。 这架飞机正在进行训练，有两名机组人员。在该地区发现了几块漂浮的碎片，目前正在打捞，以确定它们是否是失踪飞机的一部分。国防部官员认为这架飞机可能已经坠毁。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490364633138/155_7-1.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490893127740/155_4-4.png?width=768&amp;height=1144)
+*发布：陶子*
 
-航空自卫队正在搜寻这架飞机及其机组人员，并正在详细调查它是如何从雷达上消失的。 金泽市海岸警卫队也已派出一艘巡逻艇到现场查看情况。
-
-信息源：
-
-[【速報】F-15戦闘機 海上で機体の一部見つかる　離陸直後 消息絶つ](https://nordot.app/860900347736457216)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

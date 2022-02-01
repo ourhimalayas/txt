@@ -2,26 +2,27 @@
 ---
 
 
-## 日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1941129/)
+## 台湾代表团在国际奥委会的施压下出尔反尔
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941199/)
 
-#### 翻译：文斗
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1.png)
+（图片源自本文链接）
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2.png)
-日本贸易和制药公司興和公司（ Kowa Co Ltd ）周一表示，抗寄生虫药物伊维菌素在联合非临床研究显示出对奥米炕（ Omicron ）和其他冠状病毒变体具有“抗病毒作用”。
+2月1日朝日电视新闻消息：已经宣布不参加北京奥运会开幕式等活动的台湾，突然改变主意，宣布参加。
 
-興和公司没有提供更多细节。 该公司一直与一家日本医学研究与开发机构，位于东京的医科大学-北里大学（Kitasato University）合作。
+台湾当局曾于12月28日宣布，由于“中共病毒(新冠病毒Covid-19)的影响”，不让包括运动员和教练员在内的台湾代表团参加开闭幕式。然而，1月31日午夜，却匆忙撤回了不参加的声明，说将调整选手的计划，台湾代表团参加开幕式和闭幕式。
 
-该研究于 2020 年 9 月 16 日开始，计划结束日期为 2022 年 3 月 31 日。该研究的标题为“安慰剂对照随机双盲（评估者、患者）多机构联合平行组比较试验，以测试伊维菌素对CCP病毒患者的疗效和安全性。”
+根据台湾当局的说法，改变的原因是“IOC（国际奥委会）要求我们参加庆典仪式”。人们普遍认为，当初决定不参加是基于台湾代表团对自己在开幕式上被称为“中国台北”的担忧。
 
-该临床试验正在进行中，日本国立保健医疗科学院官网可以查看[简报（日文版、英文版）](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)。
+国际奥委会为何如此为北京奥运卖力，对台湾施加压力？相信这个谜，新中国联邦一定会帮我们解开！
 
-伊维菌素用于治疗动物和人类的寄生虫，但推广该药物治疗CCP病毒引发了争议。路透社在报道发表几小时后删除了原文中有关“ III 期临床试验中有效治疗 Omicron 的药物”的内容。但在The Gateway Pundit网站仍可以找到完整报道以及该研究的英文版报告文件。
+信息来源：[台湾　不参加から一転　北京五輪開会式「参加する」（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/06f80e6e9831edf1e88b0acbeed69906889d144b)
 
-新闻链接：[1](https://www.thegatewaypundit.com/2022/01/japans-kowa-company-finds-ivermectin-effective-omicron-covid-variants-phase-3-trial/) [2](https://www.reuters.com/article/health-coronavirus-japan-kowa/japans-kowa-says-ivermectin-effective-against-omicron-in-phase-iii-trial-idUSL1N2UB0AV)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-日本国立保健医疗科学院官网 [https://rctportal.niph.go.jp/s/detail/um?trial\_id=jRCT2031200120](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)
 
  
 
