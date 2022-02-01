@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 12:35 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: Behind the CCP’s Spring Festival Gala are the dirty deals and fake performance, and it is the Chinese people’s money that has been spent on the CCP’s Gala. In contrast, the NeFederal State of China (NFSC) never takes a penny from Lao Baixing and has been saving the people at every moment. The NFSC worships the sun, while the CCP worships bloodshed and violence.<br/><br/>1/31/2022 文贵虎年新春大直播：中共春晚的背后都是肮脏的交易和虚假的表演，花的全是民脂民膏！新中国联邦不拿老百姓一分钱，每时每刻都在不停地救人；新中国联邦崇拜太阳，而中共却崇拜血腥暴力<br/>
+![img](https://media.gettr.com/group29/getter/2022/02/01/00/7e060328-309f-ce0e-1248-8e83d8868adc/out.jpg)
+
+---
+
 `@miles 1/31/2022 10:37 PM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: My singing reinterprets the song "Tian Mi Mi (Sweet as Honey)" that has accompanied several generations of the Chinese people to grow up. The New Federal State of China is going to use the color red, which has been hijacked by the CCP for decades, and the key to starting the “Tian Mi Mi Movement” to kick off our 2022 Year of the Tiger to take down the CCP!<br/><br/>1/31/2022 文贵虎年新春大直播：文贵的演唱重新诠释了这首伴随几代中国人成长的《甜蜜蜜》，新中国联邦要用被共匪霸占了几十年的红色和甜蜜蜜运动的这把钥匙，开启我们的2022虎年灭共年！<br/>
@@ -149,13 +156,6 @@ FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; B
 
 EP7: The Master of Mind Control. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第七集：脑控专家。让我们用真相揭露这部卑鄙的，充满谎言的#HBO #VICE 制作 ！   #isobelyeung #vice @miles  #mindcontrol #nfsc新中国联邦 #takedowntheccp #indoctrination #conqueranddivide #covid19censorship  #hbovice #hbovice訪談真相 #june4th1989 #june4th2020
 ![img](https://media.gettr.com/group41/origin/2022/01/28/20/064ea884-efef-8155-e788-b24c90da1fb8/out.jpg)
-
----
-
-`@miles 1/28/2022 2:21 PM (UTC)`
-
-<br/>1月28号：尊敬的战友们好？你们健身了吗？传播C C P病毒，疫苗解药的真相了吗？共产党在美国授权撤离的外交后……还在尝试磕头，下跪．求美国！帮他们欺骗十几亿中国人……悲剧呀……中国人可怜至极！
-![img](https://media.gettr.com/group42/getter/2022/01/28/14/f1af29f1-7041-ff9e-e437-617037b95569/out.jpg)
 
 ---
 
