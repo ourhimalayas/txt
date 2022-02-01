@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的核糖核酸游戏
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941064/)
+## 任何药物都不要连续服用
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941147/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

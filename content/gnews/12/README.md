@@ -2,19 +2,30 @@
 ---
 
 
-## 哈萨克斯坦是上合组织成员国及其在一带一路中重要的战略地位
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941032/)
+## 音乐灭共 爆料革命一定会实现邓丽君女士的梦想
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1941118/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-01-31-at-11.34.55-PM-e1643696312646.jpeg)
+郭文贵先生在2022年1月31日新中国联邦2022年新春晚会上揭露现在正在播放春节联欢晚会的CCTV，称里面的每件东西都是有回扣的，每场表演都是假的。，赵忠祥曾现场卖字，坐地起价，毫无廉耻。郭先生指出CCTV里面充满了各种见不得人的邪恶交易，那里是全中国除厕所和妓院之外最藏污纳垢的地方。
 
-*发布：陶子*
+新中国联邦的春晚，设备都是真金白银买来的，战友现场演奏，现场演唱，歌曲都是战友改编，一切都是唯真不破。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭先生表示针对新中国联邦这次春晚，CCP曾下死命令，一定不能让春晚成功，郭先生表示我们一定要成功举办这次春晚，而且西方国家，以及其他很多甜蜜蜜运动的参与者都希望新中国联邦这次春晚能够成功。
+
+郭先生在这次春晚上还亲自演唱了爆料革命版的《一帘幽梦》，唱到动情处，郭先生几次哽咽，引起战友们的强烈共鸣。
+
+郭先生表示，音乐是永恒的，邓丽君的歌打开我们的心门，它会永远激励着我们，我们永远不会忘记，也永远不会放弃。 郭先生郑重承诺，新中国联邦一定会实现邓丽君女士的愿望。
+
+参考链接：https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55
+
+
+
+
+
+
+
+
 
  
 
