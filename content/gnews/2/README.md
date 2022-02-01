@@ -2,46 +2,26 @@
 ---
 
 
-## 新州卫生部：今日一名年轻健康且完全接种的男子，感染新冠死亡
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1942047/)
+## 音乐巨头Spotify勇揭中共病毒疫苗的阴谋
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1942164/)
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+撰稿：东京樱花团/风翼
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-19.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/音乐巨头Spotify勇揭中共病毒疫苗的阴谋.png)[图片来源](https://www.menabytes.com/spotify-launches-pakistan/)
 
-图片来源：雅典娜设计组
+据伦敦“硅谷时事”报道：瑞典音乐发行巨头声破天（Spotify）针对正在传播中共病毒（新冠病毒）疫苗信息的互联网音频节目，受到一系列的抗议和批评后，正式发布了官方声明。
 
+“虽收到美国喜剧演员乔.罗根的批评，以及加拿大流行歌手尼尔.杨和乔尼.米切尔将要在声破天删除自己歌曲等抗议行为,但鉴于有关节目所谈论的中共病毒疫苗的危险性是根据卫生当局和科学家的可靠信息得出的结论，所以再次强调不会因抗议而删除这个栏目。
 
-**整理/编辑：小鱼儿**
+作为四大串流音乐服务商的瑞典音乐服务平台声破天，以第三方的广告费和使用者订阅做为主要收入来源的背景，不难看出，不惜付出代价，坚持揭露中共病毒疫苗对人类带来的危险性已到了无法阻拦的程度。
 
-当地时间2月1日，据天空（Skynews）新闻报道，新南威尔士州卫生部门（周二）表示，一名完全接种疫苗，且没有明显潜在健康问题的（30多岁）男子，感染新冠病毒死亡。
+信息来源：
 
-当天，该州报道了30例与新冠病毒相关的死亡病例，其中5人接种了三剂疫苗，19 人接种了两剂，6人未接种。另一名65岁以下的死亡病例，是一名50多岁的女性，她没有接种过疫苗，（但）有潜在的健康问题。
+[スポティファイ、誤情報拡散で対策　ワクチンめぐり抗議浴び](https://www.jiji.com/sp/article?k=2022020100184&amp;g=int)
 
-同时，根据新州卫生部公布的新冠病毒数据（表格如下），竖向对比发现，2021年
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-21.png)
-
-图片来源：新州卫生部
-
-
-11月26号至2022年1月8号期间，共98人因为新冠病毒死亡，其中67人接种两剂疫苗，3人一剂，21人未接种，6人不确定接种情况，1人未接种（不符合要求）。这意味着，所有（因病毒）去世者中，至少71%的人接种过疫苗。
-
-图片来源：新州卫生部
-
-参考资料：[Fully vaxxed man aged in his 30s with no underlying health conditions dies after contracting COVID-19 in NSW](https://www.skynews.com.au/australia-news/coronavirus/fully-vaxxed-man-aged-in-his-30s-with-no-underlying-health-conditions-dies-after-contracting-covid19-in-nsw/news-story/29812b3db0f22514895d224b4d13ff8d)
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
-
-*发布：盘古相聚*
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

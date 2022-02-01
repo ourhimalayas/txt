@@ -2,25 +2,37 @@
 ---
 
 
-## 七哥再谈喜币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941908/)
+## 最新报道：雷切尔·马多“中断”自己最火的MSNBC节目
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1942015/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥再谈喜币.jpg)
-因为战友们的锁币，未来会成就很多亿万富豪。这个喜币到今天，现在 是大概两三个月的时间，它创造了神奇。几乎你可以看到所有的数字货 币在一个月就暴跌，能撑过俩月还长的几乎没有。马上就开始支付系统了，这个支付系统大家一定要用好。
+翻译：Jenny Ball
 
-这个支付系统是王，是我们真正的这个价格走向的开始。我这些天开会，每次都听到一句话说，文贵我们做梦也没想到涨了400倍。几乎所有现在喜联储遇到的问题都是涨了400倍，谁也没想到曲线的问题、投资的问题还有投资机构进来估值的问题，都遇到这个问题，谁也没想到涨400倍，当时最多认为1块钱到5块钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-23.png)图片来源：mediaite.com
 
-*发布：开智则立*
+据报道，MSNBC 的顶级主持人，在她的黄金时段主持演出后将暂停几周。中断发生在马多签署新合同几个月后，有报道称，她曾考虑离开MSNBC网络。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+知情人克莱尔·阿特金森周一报道说，马多“刚刚告诉她的员工，她正在休假，几周后会回来。”
 
+阿特金森报道：
+
+马多正在花时间制作一部基于她的书和播客 “收钱人”（“Bag Man”）的焦点专题电影，讲述政治贿赂丑闻。它将由本·斯蒂勒（Ben Stiller ）执导，马多将担任执行制片人。这位有影响力的主播也在开发一个新的播客。
+
+报告补充说：“马多的休息将是临时的，是为了重新焕发活力，并且她还建立了她的新的外部项目”报告补充说，并指出马多将很快回到她的项目，而且会在她的中断期间主持一个特别项目。
+
+据报道，马多的新协议每年向她支付高达 3000 万美元的费用，让她在 2024 年大选期间留在 MSNBC。
+
+2021 年年中的媒体猜测认为，马多将离开 MSNBC，创办自己的媒体公司。
+
+马多的节目是福克斯新闻以外收视率最高的有线新闻节目。 “雷切尔·马多秀”（Rachel Maddow Show ）也是唯一一个每晚定期突破 200 万观众的非福克斯节目——经常以 100 万观众击败最近她的 MSNBC 竞争对手。
+
+素材链接：[mediaite.com] [Rachel Maddow Taking Hiatus From Her Top-Rated MSNBC Show](https://www.mediaite.com/news/just-in-rachel-maddow-reportedly-taking-a-hiatus-from-her-top-rated-msnbc-show/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

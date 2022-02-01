@@ -2,22 +2,12 @@
 ---
 
 
-## 雅典娜时报-第191期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941333/)
+## 武汉科学家发现集几种病毒特性于一身的新型冠状病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1941480/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+01/29/2022 印度媒体Wion：武汉科学家们在南非的蝙蝠身上发现了一种更致命的冠状病毒，他们称这种病毒离感染人类只差一个突变，其死亡率约为33%。
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490364633138/155_7-1.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490893127740/155_4-4.png?width=768&amp;height=1144)
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

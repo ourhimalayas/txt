@@ -2,27 +2,22 @@
 ---
 
 
-## 【速報】前东京都知事石原慎太郎去世
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941260/)
+## 雅典娜时报-第191期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941333/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6.png)
-[图片来源](https://news.yahoo.co.jp/articles/b126b9f149d73ec31770365d35e4d52ee3f0156f/images/000)
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-根据日本新闻2月1日消息，前东京都知事、芥川奖获奖作家石原慎太郎去世，享年89岁。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490364633138/155_7-1.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490893127740/155_4-4.png?width=768&amp;height=1144)
+*发布：陶子*
 
-石原在1968年当选为参议院议员，1972年，他转入众议院，此后八次当选。他还担任过环境局局长和交通部长。1999年竞选东京都知事并首次当选。2006年，他承诺主办东京奥运会，尽管他在2004年未能赢得申办，但他为2008年的申办铺平了道路。他于2014年退出坛。
-
-其实，石原首先被公众认识是作为一名作家。作为一名作家，他创作了许多有争议的作品，1955年，当他还是一桥大学的学生时，他因小说《太阳的季节》成为有史以来最年轻的芥川奖得主。2004年，他以第一人称“矿石”写他以前的“天敌”田中角荣的自传体小说《天赛》成为畅销书。
-
-信息来源：
-
-[【速報】石原慎太郎元都知事が死去　近年は脳梗塞や膵臓がん患う](https://news.yahoo.co.jp/articles/b126b9f149d73ec31770365d35e4d52ee3f0156f)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
