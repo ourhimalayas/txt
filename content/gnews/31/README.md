@@ -2,48 +2,26 @@
 ---
 
 
-## 日媒指斥国际奥委会跟中共是一丘之貉
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941137/)
+## 台湾代表团在国际奥委会的施压下出尔反尔
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941199/)
 
-作者：日本方舟农场 – Andy5
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1.png)
+（图片源自本文链接）
 
+2月1日朝日电视新闻消息：已经宣布不参加北京奥运会开幕式等活动的台湾，突然改变主意，宣布参加。
 
+台湾当局曾于12月28日宣布，由于“中共病毒(新冠病毒Covid-19)的影响”，不让包括运动员和教练员在内的台湾代表团参加开闭幕式。然而，1月31日午夜，却匆忙撤回了不参加的声明，说将调整选手的计划，台湾代表团参加开幕式和闭幕式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+根据台湾当局的说法，改变的原因是“IOC（国际奥委会）要求我们参加庆典仪式”。人们普遍认为，当初决定不参加是基于台湾代表团对自己在开幕式上被称为“中国台北”的担忧。
 
+国际奥委会为何如此为北京奥运卖力，对台湾施加压力？相信这个谜，新中国联邦一定会帮我们解开！
 
+信息来源：[台湾　不参加から一転　北京五輪開会式「参加する」（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/06f80e6e9831edf1e88b0acbeed69906889d144b)
 
-当地时间1月28日，日媒以彭帅事件为切入点分析了国际奥委会在北京冬奥会中的不作为，并指斥国际奥委会跟中共是一丘之貉。
-
-媒体从三个方面分析了国际奥委会的不作为。首先彭帅被中共高官张高丽性侵事件，既侵害人权又是对妇女的性暴力，然而以巴赫为首的国际奥委会屡次为中共洗地。其次，本次冬奥会最终候选城市只剩北京和刚爆发骚乱的哈萨克斯坦阿拉木图，让选项几乎全部偏向了北京。最后，多位日本专家指出，中共人工降雪破坏环境，国际奥委会本该因此而中止北京冬奥会，但在这件事上它也默不作声。
-
-节目嘉宾最后总结道，近年来国家奥委会以人权和环境作为两大招牌，而它现在的表现说明这两大招牌只是噱头。而国际奥委会跟中共一样，自认为得要领导所有运动员，所以自己绝对正确，出了错也不会承认。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8.jpg)
-参考信息：
-1. [20220128日本TBS分析國際奧委會的不作為](https://www.gettr.com/post/prgpadab7f)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：Irene木木
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

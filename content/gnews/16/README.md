@@ -2,16 +2,14 @@
 ---
 
 
-## 壬寅新春大直播要点图片-喜币一飞冲天
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1941357/)
+## 壬寅新春大直播要点图片-青蒿素鸡尾酒疗法
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1941452/)
 
 #### 设计：波士顿五月花 水涨船高
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Hpa已经在palystore上线.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/青蒿素鸡尾酒疗法.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/当打卡红色卡片喜币上千.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/红色、权力不能让共产党垄断.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/法制基金捐款者最为重要-1.jpg)
 
 * * *
 

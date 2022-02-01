@@ -2,25 +2,48 @@
 ---
 
 
-## 经济危机
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941566/)
+## 年度回顾关键词 &#8211; 青蒿素
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941610/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/经济危机-.jpg)
-中国的不是衰退，中国的经济是非常夸张的，绝大部分会失去所有一切拥有的，而成为房奴车奴这奴那奴的，而且极少数人，就是共产党这些家族一定会成为最后受益的，共产党被灭了他们也是受益者，因为这些人已经在你血管里边生存的这种能力和转移的财富是根本不可能清除掉的，灭掉共产党后我们能做到，信用卡你不用还了，房子地绝对是老百姓的，部分钱会追回来，但是因为你现在的智慧你的脑子你的文化你的行为结果，人本来是两腿走路，你变成两腿和两手走路，学猪学狗爬的时候（太久了），让你站起来你很不适应的，而且你会觉得晕的，人吃猪食吃惯了，你给他弄牛肉，他觉得太香了受不了的，中国还有很长的时间，因为这些人当多了猪狗，是要有一段时间来适应的。
+作者：华盛顿DC农场 – 海阔天空
 
-西方的世界，经过这次大洗牌之后，西方又是大嬴家，有中国人还有这些亚非拉的被共产党共产主义虐的国家，会再次成为西方资本主义国家的奴隶，一定是这结果，2022年是人类上最黑暗的一年，政治经济文化都是最黑暗的，疫苗灾难就更不用说了，能活下去是最好的。
 
-2022年1月12日大直播
 
-发布： 星谕
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+2015年，中国科学家屠呦呦女士因创制了新型抗疟疾药——青蒿素和双氢青蒿素，荣获诺贝尔医学奖。青蒿素及其衍生物，一直被认为是现今最有效的抗疟疾药。
+
+屠呦呦曾说，青蒿素的发现是中国传统医学给人类的一份礼物。青蒿素及其衍生药物，已经被很多临床应用证实，对于治疗糖尿病、高血压等慢性病，以及癌症，都有积极疗效。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13.jpg)
+新中国联邦最早向世界宣告，青蒿素是治疗中共病毒的关键药物之一，同时，也是防止中共病毒疫苗副作用的特效药物。除了青蒿素外，伊维菌素、阿奇霉素、土霉素、地塞米松等，对治疗中共病毒都有非常好的临床效果。
+
+目前，很多国家的政府和主流媒体仍然在压制青蒿素等药物的信息，因此，广泛传播青蒿素的作用，对消灭中共病毒大流行、控制疫苗灾难有举足轻重的意义。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编：Irene木木
+编辑：文真
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
