@@ -2,24 +2,44 @@
 ---
 
 
-## 文贵直播1.31：谁在看新中国联邦大直播
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1939321/)
+## 英国国会议员计划对台湾进行国事访问以对抗中共
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1939339/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/01/图像-9.jpg)
-图片来源：GTV直播截图
+作者：纽约香草山农场 – 四季
 
-从新中国联邦的直播在国内引起了巨大的震动，但是从数据看，经常在5000万，但没能突破6000万。对此，郭文贵先生表示在意料之中，我们新中国联邦这5年有多么的不容易，人心要开启没那么容易。但我们的战友被先生的歌声传递出来的情感深深地感动了，我们知道郭先生的苦衷。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-中国的高中低等人可以分出来，绝大多数在金字塔底部，几辈子被吸血被奴役的人不会看我们新中国联邦大直播，很少；中间层次的人也没时间看，不看CCTV，也不看新中国联邦，就只想着睡觉，吃；金字塔尖上的人又分两种：最穷但有思想的人，最有权力和最有钱的人，还有现在开了眼的人在看我们新中国联邦直播。
 
-郭先生说，我们的大直播在西方社会的影响力远远超过国内。尽管有疯狂的时候，但是文明国家对新事物的接受很强。欧洲本来准备去参加奥运会的很多官员宁愿放弃金钱利益也不去中共国了，因为他们看到了我们新中国联邦人和中共的不同。他们看到我们的真，和共产党完全不一样。
 
-看到今天国内和国外的反应，就知道新中国联邦有多么的不容易，我们每天在提升，每天在进步。中共国人就像一个装睡的人，你天天喊不醒。共产党将中国人培养成了完全没有羞耻，不识真假的人群。
 
-来源：
 
-[GTV 2022.1.31 大直播](https://gtv.org/broadcast/watch/61f7dc4d96ba5d73e0bfcc56)
+据[布莱特巴特新闻网](https://www.breitbart.com/politics/2022/01/31/british-parliamentarians-plan-taiwan-trip-in-defiance-of-communist-china/)1月31日报道，英国议会外交事务委员会的议员们正计划在2月底对台湾进行国事访问，以对抗中共。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GettyImages-1164775737-640x480-1.png)ANTHONY WALLACE/AFP via Getty Images
+
+英国议员们一直是中共专制政权直言不讳的批评者。2021年4月，英国议员在下议院批准了一项动议，宣布中共对新疆地区的穆斯林维吾尔族和其他少数民族实施了种族灭绝。
+
+英国政府已经禁止了中国电信公司华为进入英国的5G网络，并对中共镇压香港的民主抗议活动的行径提出强烈批评。英国认为这违反了1984年签署的《中英联合声明》。该声明是一份具有法律约束力的联合国文件，旨在保护香港的自由和自治，在英国于1997年将其前殖民地的控制权交给中共国后的50年里，不受共产主义统治。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-10.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 

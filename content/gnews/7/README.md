@@ -2,8 +2,8 @@
 ---
 
 
-## Q组织是共产党的阴谋
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1939916/)
+## 西方被人家利用了法律程序
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1939980/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
@@ -15,6 +15,8 @@
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

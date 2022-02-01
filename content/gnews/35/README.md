@@ -2,29 +2,23 @@
 ---
 
 
-## GTV新闻访谈简报|2022年1月31日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1938487/)
+## 没有加强针的欧盟疫苗接种证书今后将只有九个月的有效期
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1938515/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/01/pasted-image-16.tiff)图片：Manuel Zimmermann / BRF
+从周二开始，对许多人来说，在欧盟没有接种疫苗加强针去旅行将变得更加困难。这是因为没有疫苗加强针的欧盟疫苗接种证书将从2月1日起只有9个月的有效期。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV_-_Google_-1-3.png)
-文章仅代表作者本人观点，与Gnews无关
+在此之后，没有接种疫苗加强针的人在过境时将被视作未接种疫苗。
 
-视频参看：[2022.01.31早GTV新闻访谈](https://gtv.org/video/id=61f7e3d696ba5d73e0bfe2d8)
+这就意味着人们在欧盟跨境旅行时，需要有效的阴性（新冠病毒）测试，甚至必须进行隔离。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+欧盟司法专员迪迪埃·雷恩德斯(Didier Reynders)说，这反映了对疫苗的保护作用正在下降。（dpa/okr）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-27.jpg)
+原文链接：[https://brf.be/international/1570622/](https://brf.be/international/1570622/)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
