@@ -17,6 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@thepotomacview 2/1/2022 10:43 PM (UTC)`
+
+🔥 How did America’s elites in Washington and Wall Street become influence peddlers for Beijing’s kleptocrats?<br/>🔥 What makes the US law enforcement officers work for a lawless tyranny?<br/>Subscribe & watch full episode: <br/>https://youtu.be/tSVBNw-mzsY<br/>https://gtv.org/video/id=61f990bad90bdd2085a3ae95
+![img](https://media.gettr.com/group37/getter/2022/02/01/22/9c7f1f73-87a5-b0f1-8770-aa677066dbed/out.jpg)
+> `@thepotomacview 2/1/2022 10:30 PM (UTC)`<br/>🔥How did the CCP attempt to turn America’s courtroom into its own courtyard? <br/>🔥What tactics did the CCP use to wreak havoc on America’s judicial system? <br/>Subscribe & watch full episode: <br/>https://youtu.be/tSVBNw-mzsY<br/>https://gtv.org/video/id=61f990bad90bdd2085a3ae95
+![img](https://media.gettr.com/group14/getter/2022/02/01/22/201432e1-a0cd-1508-12bd-4074408a9dc8/out.jpg)
+
+---
+
 `@miles 2/1/2022 10:41 PM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Miles Guo's version "A Quiet Dream"<br/><br/>1/31/2022 文贵虎年新春大直播：郭文贵版“一帘幽梦”
@@ -149,13 +160,6 @@ Limited Edition Exclusive Release for Chinese New Year.                         
 
 1/30/2022 Miles Guo: Putin’s invasion of Ukraine can accelerate the final battle between Europe and the CCP! The CCP has fueled Russia’s westward expansion. As long as the CCP is destroyed, Putin will have no money to attack Ukraine. Europe, together with its allies such as the US, Japan, and Australia, can defeat the CCP's troops in a few minutes.<br/><br/>1/30/2022 文贵直播：普京打乌克兰会加速欧洲与中共的决战！中共助长了俄罗斯的西扩，只要干掉中共，普京就没钱去打乌克兰；欧洲和美日澳等盟友一起能分分钟干掉中共军队<br/>
 ![img](https://media.gettr.com/group29/getter/2022/01/31/02/63bbe57f-a1c9-64d7-5b25-f3f1bc2b0ac1/out.jpg)
-
----
-
-`@miles 1/31/2022 2:10 AM (UTC)`
-
-1/30/2022 Miles Guo: Politicians all over the world pushing toxic COVID vaccines will not end up well. When politicians in Europe, America, Canada, and Japan have to admit that the COVID vaccine is a disaster, then they will take the initiative to start a war to avoid being held accountable.<br/><br/>1/30/2022 文贵直播：全世界强推毒疫苗的政客都没有好下场，当欧美加日的政客们不得不承认疫苗是一场灾难后，他们会为了逃避追责而主动挑起战争！<br/>
-![img](https://media.gettr.com/group15/getter/2022/01/31/02/24b645eb-ccc6-3c57-b612-ea88ec563480/out.jpg)
 
 ---
 
