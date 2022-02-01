@@ -2,26 +2,23 @@
 ---
 
 
-## 班农先生谈中共对美洲的渗透
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1940652/)
+## 有声|拜登与中共签订中共病毒测试剂合同引发强烈不满
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940779/)
 
-作者：纽约磐石农场 — 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月30日，据盖特消息显示，近日，班农先生在接受新中国联邦媒体采访时谈到了中共对中美洲和南美洲的渗透问题。班农先生强调，西方人其实得益于郭文贵先生的爆料。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-31-下午10.37.16.png)
-班农先生解释道，西方和美国对于中共在世界上的渗透不甚了解，而郭先生当时第一个指出，中共对加勒比海地区，尤其是巴哈马存在严重的威胁。据郭先生透露，中共在巴哈马建立了海军情报站，用以监测美军潜艇，同时，巴哈马也是中共的情报据点。此外，中共还将澳大利亚和巴西视为获取农产品和原材料的生存空间。因此，中共的威胁并不仅限于整个南美地区，甚至已经到达了中美洲地区。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国媒体1月28日报道，拜登政府决定将超过10亿美元的资金授予一家生产中共病毒检测试剂盒的中共公司，引起了国会山共和党人的愤怒。
 
-班农先生还提到，当前，美国所面临的边境入侵的压力明显有中共的原因：中共与墨西哥毒枭勾兑，向美国输入毒品芬太尼。
+众议员米歇尔·瓦尔茨说，这是“向帮助救火的纵火犯支付费用”，美国不能依赖中共这样的敌对国家，在与任何中共公司打交道时，所有资金都不可避免地进入中共的腰包，这会极大损害美国的国家安全。
 
-班农先生也回忆道，郭先生第一个提醒西方要高度警惕中共的渗透，就是从爆料巴哈马的情况开始，而巴西前总统卢拉入狱的原因就是因为其变成了中共的同伙。 班农先生认为，南美洲和中美洲是一个意识形态、经济和信息的新战场，且由于中共已经开始干涉了巴西和哥伦比亚等国家的选举，拉丁美洲的命运因此而前途未卜。
+另有一些议员认为，中共是病毒的发源地，在新冠病毒这件事上没有一丝一毫的透明度。中共应对向世界释放中共病毒负责。拜登政府应该利用和协助美国供应商，而不是从中共那里购买关键物资，这损害了美国的就业机会，是对美国企业的又一次侮辱。
 
-参考链接：[https://www.gettr.com/post/prg4dc183f](https://www.gettr.com/post/prg4dc183f)
+文字版原文：[拜登与中共签订中共病毒测试剂合同引发强烈不满](https://gnews.org/zh-hans/1932646/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-总编：Irene木木
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

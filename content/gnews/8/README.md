@@ -2,8 +2,8 @@
 ---
 
 
-## 文贵大直播“精选”
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941004/)
+## 长线投资都在离场 数字货币领域大额洗钱正在离场
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941060/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
