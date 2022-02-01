@@ -2,18 +2,18 @@
 ---
 
 
-## 有声|印度尼西亚新增确诊逾万例 Omicron亚变种BA.2现踪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943207/)
+## 有声|英国国会议员计划对台湾进行国事访问以对抗中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943209/)
 
 配音：香草山教育部 – Rose
 ![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据台媒报导，印度尼西亚卫生部发言人席蒂（Siti Nadia Tarmizi）指出，印度尼西亚因制定限制群聚活动的规定以及远距医疗服务等措施，相较于菲律宾、新加坡、马来西亚、泰国、印度等国家，这波疫情控制得最好。
+据[布莱特巴特新闻网](https://www.breitbart.com/politics/2022/01/31/british-parliamentarians-plan-taiwan-trip-in-defiance-of-communist-china/)1月31日报道，英国议会外交事务委员会的议员们正计划在2月底对台湾进行国事访问，以对抗中共。
 
-然而，印度尼西亚卫生部长布迪（Budi Gunadi Sadikin）昨日（28）也指出，印度尼西亚目前已出现受到Omicron的亚变种BA.2感染的少数个案了。
+英国议员们一直是中共专制政权直言不讳的批评者。2021年4月，英国议员在下议院批准了一项动议，宣布中共对新疆地区的穆斯林维吾尔族和其他少数民族实施了种族灭绝。
 
-报导中也指出COVID-19变异株Omicron亚变种BA.2因无法以检测不到S基因靶标（SGTF）的核酸筛检方式验出，因此也被称为隐形的Omicron，且目前尚无研究显示BA.2的传染力更强。
+英国政府已经禁止了中国电信公司华为进入英国的5G网络，并对中共镇压香港的民主抗议活动的行径提出强烈批评。英国认为这违反了1984年签署的《中英联合声明》。该声明是一份具有法律约束力的联合国文件，旨在保护香港的自由和自治，在英国于1997年将其前殖民地的控制权交给中共国后的50年里，不受共产主义统治。
 
-文字版原文：[印度尼西亚新增确诊逾万例 Omicron亚变种BA.2现踪](https://gnews.org/zh-hans/1936777/)
+文字版原文：[英国国会议员计划对台湾进行国事访问以对抗中共](https://gnews.org/zh-hans/1939339/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

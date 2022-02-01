@@ -2,39 +2,36 @@
 ---
 
 
-## 最新：魁北克省政府让步，放弃“疫苗税”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1943142/)
+## 喜支付成功上线影响深远
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943115/)
 
-**编译评论：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-38.png)**图片来源：**[**TVA Nouvelles 2022 年 2 月 1 日**](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
-**官方公告将在下午**** 1 ****点的发布。**
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月31日，文贵除夕大直播传出重大消息，中共开出天价，企图阻止喜支付上线，但安卓版喜支付程序已经成功上线。
 
-TVA Nouvelles（2022 年 2 月 1 日上午09:15）发表一篇题为《结束对未接种疫苗者的“疫苗税”》的文章报道，魁北克省弗朗索瓦·勒戈（François Legault）**政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）**的想法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-1.jpeg)
 
-官方公告将在当地时间今日下午 1 点（GMT-5）的新闻发布会上发布。
+据消息人士向郭文贵先生透露，北京冬奥后，世界政治经济局势将发生巨大变化。俄罗斯将启用人民币，这迫使该国富豪把财富转入喜联储。喜支付上线，令通过喜币、喜美元进行大宗原油和天然气的对价交易成为可能，而且机构已经使用喜币，以自定义的价值成功实现了多笔交易。
 
-在周一接受 TVA 采访时，卫生部长克里斯蒂安·杜贝（Christian Dubé）确实表示，健康贡献对他来说“不是优先事项”。
+郭先生预测，俄罗斯和乌克兰一定会是喜币最大的流通市场，日本则会是第二大喜币、喜美元的应用市场。
 
-1 月 11 日，总理宣布他打算为未接种疫苗的魁北克人征收健康贡献税。他说：“10% 的人口会通过堵塞我们的医院来伤害另外 90% 的人口，这是不正确的。”
+喜联储拥有世界上最安全的信息系统，用户拥有的喜币数量和喜支付交易的信息安全有极高保障。喜支付的成功上线，标志着喜联储、喜币已经打通了任督二脉。喜币成为数字货币之王，将势不可挡。喜支付的使用安全便捷，是打破世界暴政的利器。喜支付成功上线，前所未有地启动了插往中共身上的吸血管，使中共吐出从老百姓身上吸走的血。
 
-健身房的重新开放和成人运动的恢复也会在今天下午的新闻发布会上宣布。
+参考链接：[Watch MILES GUO live on GETTR2022年壬寅年新春大直播](https://gettr.com/post/prm988df17)
 
-**“****公民不服从****”****示威活动不断发生**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-自从疫情爆发到现在两年多的时间以来，反对卫生措施的“公民不服从”示威活动不断发生。这些示威活动合法地，积极地、非暴力地表示了拒绝接受政府的命令的愿望。现在，我们看到“魁北克省勒戈（François Legault ）政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）的想法”。最终结局如何，让我们拭目以待。
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：谐趣园
 
-**参考资料**：
-TVA Nouvelles（2022 年 2 月 1 日 09:15）Terminé le «vaccimpôt» pour les non-vaccinés. [https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
-
-编辑：MQ
-
-发布：MQ
-
-20220201
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
