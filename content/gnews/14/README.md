@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥爬过喜马拉雅山
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940816/)
+## 新疆西藏是盗国贼的牺牲品
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940877/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

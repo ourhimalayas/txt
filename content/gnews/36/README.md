@@ -2,36 +2,31 @@
 ---
 
 
-## 郭先生为香草山农场的战友送去新年寄语
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1939456/)
+## 扬帆每日速递 2022年1月31日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1940206/)
 
-作者：纽约香草山教育部 Naughty(文行)，新世界一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月29日，郭文贵先生以新中国联邦创始人和特邀嘉宾的身份参加了纽约香草山农场举办的壬寅年新春联欢直播暨香草山年会。
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
+1、据壬寅年春节大主播：今天新中国联邦创始人郭文贵先生在春晚中祝全世界、国内所有战友及家人新春快乐，祝大家身体健康、平平安安、合家团圆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Slide2-19.jpeg)
+2、据壬寅年春节大主播：今天的新中国联邦春节晚会特别是文贵先生《一帘幽梦》《塞北的雪》两首歌曲，在世界上引起强烈震撼，又有一些国家决定不去参加奥运会。
 
-郭先生提到，香草山农场是一个讲求自由、真相和包容的团队，其自建立以来就源源不断地向爆料革命输送人才，堪称爆料革命的人才培养基地。此外，香草山农场还协助喜马拉雅联盟委员会完成了战友们G系列投资及对账50%以上的工作——这也得益于农场主长岛哥公开、包容、真实的运营模式和他对待法律问题上严谨、认真、严肃的态度。
+3、随着加拿大卡车司机及支持者们在渥太华举行“自由护航2022”抗议活动，加拿大总理贾斯汀·特鲁多周一早上及时宣布，他的中共病毒检测呈阳性。之前特鲁多称自己已打三针新冠疫苗。
 
-郭先生表示，培养战友、帮助战友是香草山的使命，也是农场的精神传承，而这恰恰符合“香草山”一名的由来，也体现出其背后“延续、传承、真相、包容”的真实含义。
+4、中共党魁习近平在周末的农历新年致辞中赞扬中共国“在经济发展中的全球领先地位”。
 
-最后，郭先生也代表所有的战友感谢长岛哥以及香草山农场的战友们为爆料革命所作出的付出和贡献。同时，郭先生也祝愿香草山农场在新的一年能创造更多辉煌。
+5、据中共财经网1月30日消息，中国人民银行、中国银保监会、中国证监会三部门日前联合发文，自2022年3月1日起，个人办理人民币单笔5万元以上或者外币等值1万美元以上现金存取业务的，应当识别并核实客户身份，了解登记资金来源或用途。
 
-参考链接：[纽约香草山壬寅年新春联欢](https://gtv.org/video/id=61f60dc496ba5d73e0be7ce2)
+6、1月31日，港7.21警黑勾结事件的元朗南边围村，村长 陈礼喜29日被人发现猝死在车内，死因心肌炎。评:老天有眼现世报！齐鼓掌齐欢唱！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/简体模板131-1_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/一月小图-1.jpg)
+编辑：文敏
 
-总编：文特，Ivy001
-编辑：文特 ，静言
-校正/发稿：谐趣园
+发布：风起云间（文敏）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+海报图片设计：飞天面、 Shuang
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

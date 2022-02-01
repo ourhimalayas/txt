@@ -2,22 +2,29 @@
 ---
 
 
-## 冬奥会临近 中共国COVID-19激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1940359/)
+## GTV新闻访谈简报|2022年1月31日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1940428/)
 
-#### 翻译：文斗
+作者：香草山翻译部
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)
-1月31日（合众国际社） — 据有关官员称，在北京冬奥会开幕前两天，因参与冬奥会引发的CCP病毒病例在增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-6.jpg)
 
-组织者已经确定了250个与冬奥会有关的病例，其中仅上周末就有71个新病例。涉及运动员或团队官员有28例。其中20个病例是在北京的“闭环系统”内检测确认的。
 
-2022年北京冬奥会医疗专家组主席布莱恩·麦克洛斯基（Brian McCloskey）说，随着抵达开幕式和比赛开始的运动员人数增加，现在这种情况是早就预料到的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/text-SC-10.png)
+校对：Stay文苑
 
-北京平均每天有36个新病例，比1月25日至27日的三天平均数翻了一番。这些数字超过了去年东京夏季奥运会期间的感染数字。
+编辑：Stay文苑
 
-[新闻链接](https://www.upi.com/Top_News/World-News/2022/01/31/Beijing-Olympics-COVID-19/6841643654072/)
+发稿：Stay文苑
+
+视频参看：[1.31  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61f88c9496ba5d73e0c09277)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/calendar-29.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
