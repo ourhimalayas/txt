@@ -2,28 +2,23 @@
 ---
 
 
-## 你们一定要认识到邪教组织的本能是什么（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941855/)
+## 七哥再谈喜币
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941908/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/你们一定要认识到邪教组织的本能是什么.002.jpeg)
-56个少数民族认为毛泽东是太阳，没有共产党，就没有新中国。这是不是编造邪说？
-聚敛钱财，打土豪分田地。
-秘密结社，共产党这1913年以前完全属于外来组织，早就该抓了吧?
-对抗社会，所有中国人网络控制。
-新疆大屠杀，56个民族都会被它灭了。制造假的所谓人大代表，你说哪个不是
-共产党啊？
-就这6条，但凡有点脑子的人，你们告诉我。如果这6条你说不是共产党还有天理吗！这是昨天我跟那些外国人开了几个小会，我说，“你们知道什么叫中国？说是这个cult的邪教组织吗？”他们不知道。我说我告诉你们。“哇塞！”他们说，“太险恶了吧”，我说这就是共产党要把我们所有的反共行动定为邪教组织。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥再谈喜币.jpg)
+因为战友们的锁币，未来会成就很多亿万富豪。这个喜币到今天，现在 是大概两三个月的时间，它创造了神奇。几乎你可以看到所有的数字货 币在一个月就暴跌，能撑过俩月还长的几乎没有。马上就开始支付系统了，这个支付系统大家一定要用好。
 
-2022年1月12日大直播
+这个支付系统是王，是我们真正的这个价格走向的开始。我这些天开会，每次都听到一句话说，文贵我们做梦也没想到涨了400倍。几乎所有现在喜联储遇到的问题都是涨了400倍，谁也没想到曲线的问题、投资的问题还有投资机构进来估值的问题，都遇到这个问题，谁也没想到涨400倍，当时最多认为1块钱到5块钱。
 
-发布： 星谕
+*发布：开智则立*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

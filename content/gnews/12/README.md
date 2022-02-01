@@ -2,92 +2,76 @@
 ---
 
 
-## 全球疫情更新(辉瑞将成为下一个安然公司？)
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941810/)
+## 【Michael.Tonny专栏】都是什么样的东西在统治着中国人民？
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1941859/)
 
-**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-13.png)
+2022年1月28日，尼加拉瓜（Nicaraguan）副总统Compañera Rosario Murillo宣布，中共国政府批准了一个面向尼加拉瓜（República de Nicaragua）全国家庭提供住房的伟大计划，惠及该国84个城市的5万个尼加拉瓜家庭，在未来3年内，这些家庭将获得一栋提供了所有基本服务的漂亮、安全、有尊严的房子，同时还包括道路、人行道和一个新的棒球场等公共基础设施项目。
 
-图片：雅典娜农场设计组 精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_17-15-44.png)
 
+从2019年启动到2021年，尼加拉瓜开展了一项名为俾斯麦马丁内斯计划（Bismarck Martínez Program）的公共住房运动，向低收入农民和工人交付了约3,000套房屋，以及30,000块市区土地。2021年，又为3,000户贫困家庭免费提供了房屋，向农民授予土地契约（granting land deeds）。
 
-雅典娜疫情更新（2022年 2月1日）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Bismarck-Martinez-program-houses-Nicaragua.jpg)
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+马那瓜（Managua）市长办公室于2021年9月宣布，计划在接下来的七年内再建造50,000套新房，作为俾斯麦马丁内斯计划的一部分，同时计划向50,000家庭分配土地。
 
-**一，全球疫情基本数据**
+在1979年桑地诺政变（Sandinista Revolution）之后，尼加拉瓜在1980年代与台湾断绝关系并承认中共政权。但当桑地诺党在1990年大选失败后，掌权的右翼总统维奥莱塔·巴里奥斯·德查莫罗（Violeta Barrios de Chamorro）立即与中共国断绝关系，重新承认认了台湾。
 
-感染总数：377,867,962（日新增3,249,478，14天增幅+12%）
+尼加拉瓜政府于2021年12月再次与台湾断交，与中共国恢复正式外交关系。丹尼尔•奥尔特加（Daniel Ortega）总统在1月10日就职典礼上的讲话中透露，马那瓜已与中共国政府签署协议，将这个中美洲国家纳入中共称霸全球的“一带一路”协议。标志着中共彻底拿下这个中美洲国家，同时意味着中共国韭菜将付出沉重的代价！
 
-死亡总数：5,670,961（日新增9,380人，14天增幅 +29%）
+尼加拉瓜是位于中美洲的一个国家，国土面积130,370平方公里，为中美地峡面积最大的国家，北邻洪都拉斯，南边是哥斯达黎加，东临加勒比海、西临太平洋。
 
-**二，全球“疫苗”毒针统计数据**
+中共要在未来3年内，为尼加拉瓜84个城市的5万个尼加拉瓜家庭，提供了一栋包含所有基本服务的漂亮、安全、有尊严的房子，同时还包括道路、人行道和一个新的棒球场等公共基础设施项目。
 
-“疫苗”毒针注射总数：101亿
+尼加拉瓜人民生活在水深火热之中？难道尼加拉瓜人民活得还不如中共国6亿月收入不足1000元的韭菜有尊严？
 
-完全“接种”：41.5亿人
+尼加拉瓜是一个拥有大约650万人口的小国，作为西半球第二富有的国家，2020年，人均GDP为5567.647美元。
 
-完全“接种”百分比：53.2 %
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_18-19-28.png)
 
-**三，澳洲疫情和“疫苗”数据**** **
+左派桑地诺（Sandinista）政府致力于制定雄心勃勃的社会福利计划，包括全民免费医疗保健和教育（universal healthcare and education）、就业培训（jobs training）和扶贫（poverty alleviation）举措。
 
-感染总数：2,580,386（今日新增35,198人）
+反观中共国，根据中共国务院2020年5月28日《[李克强总理出席记者会并答中外记者问](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm)》新闻发布会现场视频，李克强说：“中国是一个人口众多的发展中国家，我们人均年收入是3万元人民币，但是有6亿人每个月的收入也就1000元，1000元在一个中等城市可能租房都困难”，“现在低保、失业保障、特困救助等人员大概一年6000万人左右”！
 
-死亡总数：3,835人（今日新增 77人）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_17-12-13.png)
 
-每万人感染人数：1000.6066人（澳大利亚在2022年1月31日，中国新年除夕，感染人数正式超越十分之一）
+一个在向全世界发动生化武器战争前，就有6亿人每个月的收入不足1000元，在一个中等城市可能租房都困难，低保、特困等人员6000万人左右，更别说疫情大爆发之后，又有多少百姓一贫如洗、饥寒白骨的国家，要去给西半球第二富有、人均GDP为5567.647美元国家免费提供包含所有基本服务、棒球场等公共基础设施的漂亮、安全、有尊严的房子，不知道共惨党要让中共国的老粉红、小粉红和6亿韭菜们情以何堪？这是一帮什么样的卖国贼和牲畜在统治着中国人民！
 
-“疫苗”毒针注射总数：49,926,171 （今日新增174,045  针）
+根据2020年1月14网易新闻《[中国已是对外援助大国之一，近15年内对外援助超过2.4万亿人民币](https://www.163.com/dy/article/F2SED5AU05380L8V.html)》，从2000年到2014年的15年间，中共国向140个国家提供了经济援助和贷款，累计金额高达3620亿美元，约2.45万亿元人民币。从2011年开始，中共国对外援助金额就开始超过美国，2009年中共国对外援助金额几乎是美国的两倍！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_17-29-31.png)
+2000年开始的15年来，中共国每年对外援助从2000年几乎为零增长到数百亿美元。
 
-完全“接种”：19,258,399人
+尤其2016~2019年四年间，中国合计对外援助达到60365亿元人民币，如果平均分配给国内3000家上市公司，每家可获得20亿元RMB。如果贷给国内小微企业，可以彻底解决全部1000万户小微企业的融资难问题，平均每户60万元人民币。如果用于“三农”，可以一次性实现全部1亿户农民的小康目标，平均每户6万元人民币。如果平均分配给每个中共国人，每人4378.28元人民币。中共国对外援助支出的21％属于传统的无偿经济援助， 其余是贷款。而美国对外援助的93％是用于经济发展和福利。
 
-第二针“接种”百分比：78.7%
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_17-38-25.png)
 
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+中南坑老杂毛们如此“豪迈”的大撒币，这明显是要让发一次贴才挣5毛人民币的维稳、网管们都快活不下去，更别说另外6亿月收入不足1000元的韭菜！
 
-16岁以上人口接种至少两剂疫苗的比例：93.4%
+都是一帮什么样的卖国贼和牲畜在统治着中国人民？
 
-加强针总数：7,971,368（日新增：206,804针）
+最后需要提醒的是，为什么尼加拉瓜的人民可以免费得到一栋中共国免费援助的房子，因为尼加拉瓜总统由公民普选产生，任期5年，除了现任总统丹尼尔·奥尔特加所属左派之桑定民族解放阵线（FSLN）执政党外，还有包括自由宪政党（PLC）、独立自由党（PLI）、自由联盟、共和联盟、保守党、大地之子原民党（YATAMA）等其他主要在野党。
 
-**四，**[**辉瑞和莫德纳将成为下一个安然公司？**](https://paine.tv/listen-are-moderna-and-pfizer-the-next-enrons-former-blackrock-hedge-fund-guru-edward-dowd-paints-grim-picture-for-big-pharmas-vax-kings-while-big-insurance-appears-prepped-to-go-to-war-with/)** **
+总统丹尼尔·奥尔特加需要公民普选，不像200斤一样，直接上称就可以成为一尊，尼加拉瓜总统当然也不敢称为“领袖”，尼加拉瓜更没有“习太阳”！
 
-辉瑞等几大疫苗公司之所以能够如此肆无忌惮地推广其“疫苗“毒针，并非因为其产品安全有效，而是因为这些疫苗生产商都获得了豁免，从而能逃避因疫苗伤害案件所引起的法庭起诉追责。然而在[最近的一期班农战斗室上](https://dailyexpose.uk/2022/01/31/pharma-liability-shields-could-be-at-risk-if-fraud-is-found-says-former-blackrock-investment-executive/)，前黑石和对冲基金大师爱德华·多德（Edward Dowd）提出，如果涉嫌欺诈，根据判例法，合同将无效，这将导致对大药品公司的责任豁免可能不再适用了。多德说，这可能意味着辉瑞，莫德纳和其他mRNA疫苗制造公司的末日，因为大保险公司正准备与大制药公司就与中共病毒基因治疗针剂有关的人寿保险赔付进行 “对峙”。
+参考数据：
 
-我们从VAERs等不良事件数据库中看到了许多这些疫苗造成的死亡和残疾事件，但多德说，“现在保险公司的精算结果中也看到了这一点”。Aegon保险在其美国部门的第三季度业绩中看到，死亡索赔从2020年的3100万增加到2021年的1.11亿，这大约增加了268%，根据多德的说法，“这不仅仅是一个医疗骗局，也是一个金融和资本市场骗局。”
+[China aprueba proyecto de cooperación para construcción de viviendas en Nicaragua](https://www.el19digital.com/articulos/ver/titulo:124851-china-aprueba-proyecto-de-cooperacion-para-construccion-de-viviendas-en-nicaragua)
 
-2021年8月23日，美国食品和药物管理局（FDA）批准了辉瑞生物技术公司的中共病毒疫苗。四天后，有人提交了[一份依据《信息自由法》的信息公开申请](https://phmpt.org/wp-content/uploads/2021/10/IR0546-FDA-Pfizer-Approval-FINAL.pdf)。然而，尽管FDA承诺 “透明”，但他们似乎一直不愿意分享必要的数据，甚至试图在法庭上挑战《信息自由法案》，要求每月仅发布500页，到50年后才能公开全部文件。考虑到FDA在分析辉瑞公司的数据仅108天后，就能认为这个基因疗法的针剂值得获得紧急使用授权，他们的做法相当可疑。
+[China is helping Nicaragua’s Sandinista gov’t build houses for poor people](https://multipolarista.com/2022/01/29/china-nicaragua-build-house/)
 
-在法庭命令下，FDA公布的第一批数据中，我们已经可以看到，[辉瑞和FDA都知道这种针剂绝非 “安全和有效 “](https://dailyexpose.uk/2021/12/06/pfizer-documents-reveal-both-pfizer-and-the-fda-knew-the-risks-of-vaccine-adverse-events-and-deaths/)的。这可以从他们发布的文件[《疫苗紧急授权后不良事件记录报告的累积分析》](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)中看出。该文件显示，在FDA的紧急授权下，该疫苗推出的前90天内（2020年12月1日至2021年2月28日），有数以万计的不良反应报告，包括1200多人死亡。报告指出，全世界总共有42086份个人对辉瑞公司的疫苗产生不良反应的案例报告，其中最大的数字（13739）来自美国和英国（13404）。
+[李克强总理出席记者会并答中外记者问（实录全文）](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm#1)
 
-根据郭先生的爆料，真正的疫苗灾难到5月份前后才会开始。但现在追责的脚步声已经提前3月响起了。从保险公司入手和欺诈的指控，这是一个切实可行的法律追诉的方向，未来随着疫苗灾难的逐渐逼近，民意的觉醒，各种类似的法律追责，媒体追责，政治追责和卸责必然接踵而至。
+[GDP per capita, PPP (current international $) – Nicaragua](https://data.worldbank.org/indicator/NY.GDP.PCAP.PP.CD?locations=NI)
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+[尼加拉瓜](https://zh.wikipedia.org/wiki/%E5%B0%BC%E5%8A%A0%E6%8B%89%E7%93%9C)
 
-数据来源：
+[中国已是对外援助大国之一，近15年内对外援助超过2.4万亿人民币](https://www.163.com/dy/article/F2SED5AU05380L8V.html)
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[“6亿人每月人均收入1000元”？国家统计局回应](http://politics.people.com.cn/n1/2020/0615/c1001-31747507.html)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布:盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

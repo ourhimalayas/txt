@@ -2,28 +2,25 @@
 ---
 
 
-## 新中国联邦 2022年最重要的7件事！
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1941805/)
+## COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941816/)
 
-郭先生在壬寅新春大直播里，告诉战友们2022年新中国联邦最重要做的7件事情！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/42ab2dec-a524-4af1-8ef6-82941db51ebd.jpg)
-1）一心一意灭共！
+**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+31日路透社东京报道，日本兴和制药公司对外宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗新冠病毒的功效。 在第三期试验中，研究显示伊维菌素对Delta、Omicron等病毒的感染治疗有相同的效果。 伊维菌素过去被多国新闻媒体误认为「动物用」并倡导「不建议使用伊维菌素」作为治疗新冠用药，但伊维菌素有区分为人用、动物使用版本，人用伊维菌素经日本兴和制药与爱知县北里大学的实验结果证实可作为新冠治疗用药。
 
-2）全力以赴扩大新中国联邦被国际和各国家主权的认可度；
+目前，日本已有数家制药公司展开临床试验，分析人士指出多家制药公司展开临床试验，代表伊维菌素在新冠病毒的应用可能很快获得日本政府的批准，并有利于控制疫情。
 
-3）全力以赴在全球建立更多的新中国联邦农场；
+此外去年开始，美国卫生研究院（NIH）便着手考虑[批准伊维菌素作为新冠治疗药物](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)。 同年9月，[外媒](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)报道印度德里都市区约97%的新冠病毒（COVID-19）病例，也使用伊维菌素得到有效治疗。
 
-4）让我们更多的战友从国内被救出来，同时让更多国内的同胞知道新中国联邦；
+- 相关：[COVID-19 最新情报|以色列疫苗覆盖率逾7成 确诊仍持续创新高](https://gnews.org/zh-hant/1902573/)
 
-5）让新中国联邦的战友们在G系列赚更多的钱，获得更多机会；
 
-6）让全世界有爱和正义的人们、被共产党病毒伤害的人们、受到共产党疫苗毒武器设计的人们，找到病毒真相，找到毒疫苗的解决办法，让更多人跟我们联合在一起。我们要把全世界现在受到了共产党的经济威胁、超限战的人，紧紧团结在一起，建立真正的、爆料革命的、被国际公认的社交媒体大平台；
+有关于新冠治疗药物，日首相岸田文雄曾宣布经与辉瑞公司达成基本协议，确保200万剂量的新冠口服药物供给，且正在考虑用公费支付新冠口服药物的相关费用，然[郭文贵曾爆料称新冠口服药副作用极强](https://gnews.org/zh-hant/1770349/)。
 
-7）2022年新中国联邦人统一行动，保命、保财、报仇，让所有的战友兄弟姐妹们都能共同度过这个至暗时代。
+* * *
 
-以上内容由新西兰农场焦点组提供。最终内容请以郭先生大直播视频为准。
-
-文案提供：梦田
+来源｜[路透社](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)、[NIH](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)、[100percentfedup](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)
 
  
 

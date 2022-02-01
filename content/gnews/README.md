@@ -15,64 +15,64 @@
 
 ---
 
-### [七哥再谈喜币](/content/gnews/1/README.md)
+### [奥运会还没开幕，张家口地方政府财政就崩溃了](/content/gnews/1/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [七哥和新中国联邦用智慧及和平的方式让更多的国家和名人取消参加冬奥会](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [欧美排华甚至排亚裔情绪非常严重很危险（二）](/content/gnews/2/README.md)
+### [英首相约翰逊在“党门”报告中被谴责“领导失败”](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [锁币的意义（二）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/3/README.md)
+### [中共私人的冬奥会,杀狗事件西方的强烈反应](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [锁币的意义（一）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥再谈喜币](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [欧美排华甚至排亚裔情绪非常严重很危险（二）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/9/README.md)
  ` 關注組`
 
-### [欧美排华甚至排亚裔情绪非常严重很危险（一）](/content/gnews/4/README.md)
+### [欧美排华甚至排亚裔情绪非常严重很危险（一）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [人是有灵魂的，那灵魂去哪里了？](/content/gnews/5/README.md)
+### [人是有灵魂的，那灵魂去哪里了？](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [【Michael.Tonny专栏】都是什么样的东西在统治着中国人民？](/content/gnews/6/README.md)
+### [【Michael.Tonny专栏】都是什么样的东西在统治着中国人民？](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [你们一定要认识到邪教组织的本能是什么（二）](/content/gnews/7/README.md)
+### [你们一定要认识到邪教组织的本能是什么（二）](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [你们一定要认识到邪教组织的本能是什么（一）](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [没有预测能力千万别瞎猜（二）](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/10/README.md)
+### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/14/README.md)
  ` 關注組`
 
-### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
-
-### [全球疫情更新(辉瑞将成为下一个安然公司？)](/content/gnews/12/README.md)
+### [全球疫情更新(辉瑞将成为下一个安然公司？)](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [音乐打榜](/content/gnews/13/README.md)
+### [音乐打榜](/content/gnews/16/README.md)
  ` 骄子`
 
-### [新中国联邦 2022年最重要的7件事！](/content/gnews/14/README.md)
- ` 焦點20分`
-
-### [音乐灭共](/content/gnews/15/README.md)
- ` 骄子`
-
-### [日媒报道的中共病毒感染数字相关统计标准令人质疑](/content/gnews/16/README.md)
+### [日媒报道的中共病毒感染数字相关统计标准令人质疑](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本兴和制药公司证实伊维菌素有效](/content/gnews/17/README.md)
+### [日本兴和制药公司证实伊维菌素有效](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [2022/02/01 英喜时事速递](/content/gnews/18/README.md)
+### [2022/02/01 英喜时事速递](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦宣言的追求](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [七哥谈自己如何做人（二）](/content/gnews/20/README.md)
+### [新中国联邦宣言的追求](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
 ### [加拿大北京冬奥代表团中5人确诊](/content/gnews/21/README.md)
