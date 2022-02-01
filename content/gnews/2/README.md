@@ -2,36 +2,22 @@
 ---
 
 
-## 红色新中国联邦国旗首现2022新中国联邦春晚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1942890/)
+## 美国将严厉制裁俄罗斯 俄将全面启用人民币
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1943059/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年1月31日新中国联邦2022年新春晚会上首次向全球战友们展示了红色新中国联邦国旗。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3.jpg)
-郭先生向战友们解释了红色新中国联邦国旗跟中共血旗的区别。
+重要消息！！
 
-郭先生说，红色新中国联邦国旗的红色是太阳的红，象征着光明，象征我们崇拜的是太阳，红色新中国联邦国旗是铲除邪恶的红旗。
+北京冬奥后，世界政治经济局势将大变！
 
-中共国旗的红是鲜血的红，代表着暴力与杀戮；代表着流血。代表杀人后血染的红旗。
+美国准备开始严厉制裁俄罗斯，俄罗斯将启用人民币。
 
-郭先生强调，红色不能被共产党垄断，就像中国的权力不能被共产党垄断一样，中国人的幸福和健康更不能让共产党说了算。
+俄罗斯、乌克兰等国的富豪准备入场喜币！ 喜币、喜支付最大的流通市场极有可能会是俄罗斯和乌克兰。Google Hpay已经上线，喜币、喜联储的一飞冲天，谁都挡不住。
 
-参考链接：[2022年壬寅年新春大直播](https://gtv.org/broadcast/watch/61f7dc4d96ba5d73e0bfcc56)
+视频来源: 20220201- -虎年新春直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM.png)
-
-总编: 文真
-编辑：文特
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

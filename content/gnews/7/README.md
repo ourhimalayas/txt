@@ -2,36 +2,19 @@
 ---
 
 
-## MV版Hcoin To the Moon上线54天第41次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1942807/)
+## 未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1943027/)
 
-2/1/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线54天第41次位列澳门iTunes热门音乐视频榜榜首，第48次位列前三名
+加拿大卡车司机反疫苗行动，最终很可能会演变成暴力冲突。郭文贵先生建议战友们为了个人安全，不要参与。
 
-* * *
+同时，任何个人或组织参加该游行，没有联盟委员会授权，擅自使用新中国联邦或农场的标志的，都会被清理出爆料革命。
 
-[【PDF 下载】Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+因为共产党会充分利用这个事件，污名化新中国联邦，诬陷爆料革命。把爆料革命定义为邪教组织、暴力分子。
 
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+视频来源: 20220130—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 

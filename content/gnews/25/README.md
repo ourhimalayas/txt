@@ -2,33 +2,33 @@
 ---
 
 
-## 历史为何惊人相似！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1942432/)
+## 一首百年中国童谣《新年》，祝大家新年快乐，心想事成，早日灭共！
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1942690/)
 
-制作：贵气比人
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-百姓几代人受到如此伤害，龙的传人何时才能真正醒来？天赋人权是与生俱来的权利！
+“梅花含笑，对着水仙，不同的香气，一样的清鲜。
 
+我们闻到了就知道，现在是快乐的新年。
 
+锣鼓这边，爆竹那边，彼此相呼应，声响几震天。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-35.png)
+我们听到了就知道，现在是快乐的新年。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
+街市热闹，行人插肩，柏枝和纸彩，点缀戏院前。
 
-**校对/发稿：童谣**
+我们看到了就知道，现在是快乐的新年。”
 
-**更多资讯，更多关注**
+一百年前的新年就有如此的热闹和氛围，百年后的今天，CCP统治了70年后的今天，没有了爆竹声声，没有了街市热闹，没有了柏枝、彩纸点缀，只留下漆黑的夜，全城封锁，人人龟缩在家里，门上贴着封条，只剩下饥寒交迫！
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**是谁造成了今天？是谁让您过得如此清苦？——是中国共产党！**
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新年到来的第一天，让全世界善良的百姓、正义的人类一起站出来，消灭这邪恶的万罪之源——中国共产党，TAKE DOWN THE CCP!
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+撰稿：玟秋；编辑，视频：蔻依；发布：文零
 
-
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
