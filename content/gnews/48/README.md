@@ -2,35 +2,75 @@
 ---
 
 
-## 中日财经爆|索罗斯警告：中共国正面临经济危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941305/)
+## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-1.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fdw%2F2XBXKA9IWhBEoZBg7A7bOilqcJk%253D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20170209%2F1486622987589c110b51d99.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dwnews.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60256677%2F%25E7%25B4%25A2%25E7%25BD%2597%25E6%2596%25AF%25E6%2589%25B9%25E4%25B8%25AD%25E5%2585%25B1%25E9%25AB%2598%25E5%25B1%2582%25E6%25AD%25A3%25E6%2591%25A7%25E6%25AF%2581%25E4%25B8%258B%25E9%2587%2591%25E8%259B%258B%25E7%259A%2584%25E9%25B9%2585%25E6%258A%259B%25E5%25BC%2583%25E9%2582%2593%25E5%25B0%258F%25E5%25B9%25B3%25E9%2581%2597%25E4%25BA%25A7&amp;tbnid=cVIH96TFlxREdM&amp;vet=12ahUKEwjCzd-m_931AhWeGVkFHedUAo0QMygBegUIARCgAQ..i&amp;docid=a4PstPBaZfMTnM&amp;w=1920&amp;h=1195&amp;itg=1&amp;q=%E7%B4%A2%E7%BE%85%E6%96%AF&amp;ved=2ahUKEwjCzd-m_931AhWeGVkFHedUAo0QMygBegUIARCgAQ)
+[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
 
-投资名人乔治·索罗斯（GeorgeSoros）指出，中共国房地产热潮去年告终后，目前正面临经济危机，习近平可能无法重振房地产业的信心。
+**Steve Bannon
+史蒂夫·班农**
 
-美国有线电视新闻网（CNN）报导，索罗斯1月31日在斯坦福大学胡佛研究所的演说中表示，中共国国家主席习近平可能无法重振这个陷入困境产业的信心。中共国房地产业因一连串开发商债务违约及土地和公寓价格下跌而深受打击。
+the vaccine things have been rejected by every court
+每个法院都拒绝了疫苗的事情
 
-索罗斯说，中共国房地产热潮是基于一种“竭泽而渔”模式，这种模式让地方政府尝到好处，并鼓励人民将主要积蓄投资于房地产。
+every major court in the country, rejected out
+全国各大法院，都被拒之门外
 
-他还表示，旨在抑制这种热潮的政府政策，让负债累累的房地产巨擘恒大集团难以偿还债务。恒大集团背负债务超过3000亿美元，恒大集团有数个月时间难以筹集现金偿还借款者。
+Now you’re a butcher, now we says six is always 60 to 90 days was
+现在你是个屠夫，现在我们说是60到90天
 
-政府官员派至恒大集团监督企业重整，不过未来会如何发展仍相当不明朗。恒大集团请求债权人给予更多时间，但部分借款者似乎不想等。
+guess what? they’re not going to do on next Tuesday on February 1st in Austria
+你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
 
-索罗斯指出，中共政府推迟处理这个危机的时间可能太久了，因为民众的信心已受到打击。
+The mandatory vaccines is kind of getting wobbly
+强制性疫苗规定有点摇摇欲坠
 
-索罗斯去年9月表示，资产管理公司贝莱德集团（BlackRock）在中共国扩大生意规模是犯了“悲惨的错误”，他一直批评中共的监控政策及对民营企业的整顿作法。
+now people now that unvaccinated can come out of the house
+现在，未接种疫苗的人可以走出家门
 
-消息来源:
+We’re about to see if they still gotta pay the penalty
+我们要看看他们是否还要支付罚款
 
-#### [房地产荣景结束索罗斯警告：中共国正面临经济危机](https://tw.news.yahoo.com/%E6%88%BF%E5%9C%B0%E7%94%A2%E6%A6%AE%E6%99%AF%E7%B5%90%E6%9D%9F-%E7%B4%A2%E7%BE%85%E6%96%AF%E8%AD%A6%E5%91%8A%EF%BC%9A%E4%B8%AD%E5%9C%8B%E5%A4%A7%E9%99%B8%E6%AD%A3%E9%9D%A2%E8%87%A8%E7%B6%93%E6%BF%9F%E5%8D%B1%E6%A9%9F-060947560.html)
+In England’s off, in Denmark’s off, it’s gonna be off others
+在英格兰取消了，在丹麦取消了，其他地方取消了
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+Sweden just announced yesterday, Guess what?
+瑞典昨天刚刚宣布，你猜怎样？
 
+The research and the data and the science shows
+研究、数据和科学表明
+
+that children, you know 5-12 kids don’t have to get the vaccine
+你知道5-12岁的孩子们不必接种疫苗
+
+because the dangers of it outweigh the benefits
+因为它的危害大于好处
+
+the dangers of it outweigh the benefits
+它的危害大于好处
+
+suck on that Tony Fauci
+想想吧托尼·福奇
+
+* * *
+
+Date:01/30/2022
+原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
+史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+原视频日期：2022/01/30
+原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
+任务编号：KE377（3637）
+视频时间段 : 0:00-0:45
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,120 +2,44 @@
 ---
 
 
-## 改革体制改变政治制度就无异于自杀，习近平将何去何从
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1943845/)
+## 推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1943895/)
 
-[https://gtv.org/video/id=61f800afd90bdd2085a32a23](https://gtv.org/video/id=61f800afd90bdd2085a32a23)
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-**郭文贵**
-**Miles Guo**
+1月31日，郭文贵先生于GTV、Gettr新春大直播中透露，Hpay（喜支付）的如期上线是给Hcoin（喜币）的价值架上了天梯，并将推翻世界范围的银行暴政。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2c61373ad59f33fb3c26eb57660d5c23.png)图片来源Gettr
 
-习说了句话，你觉得中国还需要往回调整
-Xi Jinping has said that “you think China still needs to adjust back
 
-是往中间调整还是要回来呢？
-should it regulate to the middle or come back?”
+Hpay（喜支付）的上线意义重大，相当于Hcoin（喜币）和HDO（喜美元）被打通了奇经八脉（可以自由支付、无边疆流通），Hcoin（喜币）的价值走上无法阻挡的快速上升通道。目前，安卓版的Hpay APP（喜支付应用）已经上线，接下来还会有苹果版的Hpay APP（喜支付应用）。
 
-意思我还来得及调整吗？
-It means that do I still have time to adjust?
+然而，使用Hpay（喜支付）的主力军超出一般人的想象，Hpay（喜支付）的如期上线竟成为俄罗斯大佬的救命稻草。
 
-你知道这人说了句什么？
-Do you know what did this man (Xi’s best childhood friend) say?
+有俄罗斯大佬上周透露，在普京总统参加北京冬奥会之后，俄罗斯会被美国严重制裁，而俄罗斯会以国家的名义启用人民币，所以担心Hpay（喜支付）无法正常上线。他本人需要把本国资本转移到除美国和欧洲之外但是又安全、又能支付的地方，因为业务涉及石油、天然气等大宗货物交易（交易额巨大）的支付结算。
 
-不可能！你已经没有机会调整
-(He said) it’s impossible! You have no chance to adjust
+由于Hcoin（喜币）每年严格的10亿枚发行量，而且大量的Hcoin（喜币）又被投资成为永久性资产储备，会导致流通量严重缺乏，继而更加推高Hcoin（喜币）的价值。所以这位大佬也有自己的解决方案，即用一个HDO（喜美元）或Hcoin（喜币）代表一个既定金额比如1亿美元，在支付转移HDO（喜美元）或Hcoin（喜币）后，用之前约定的美元金额结算。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2f72cb1c69c17ac702a89ac8b84054bb.png)图片来源himalaya.exchange
 
-所以说，你看习这几年的折腾
-So, take a look at Xi’s struggling over the past few years
 
-所谓私人资产国有化，极端的共产主义化，极端的党化
-the so-called nationalization of private assets, extreme communism, and extreme partyization
+在Hpay（喜支付）正式上市的当日，这位俄罗斯大佬私下兴奋地透露自己已用Hpay（喜支付）完成了N笔交易。完全超出想象，俄罗斯、乌克兰会成为Hcoin（喜币）最大的流通地。但是也是现实，人类历史上的财富重新分配和新货币金融系统的诞生没有一次不伴随着战争。
 
-他把所有的南巡讲话，你一定要记住
-All Deng Xiaoping’ speeches on the Southern Tour, you must remember
+除了俄罗斯和周边地区，日本将是第二大Hcoin（喜币）、HDO（喜美元）市场，接下来日本会有更多令人震惊的企业接受Hpay（喜支付）、Hcoin（喜币）和HDO（喜美元）。
 
-咱不说共产党谁好谁坏
-let’s not talk about who is good and who is the bad guy in the Communist Party
+所以，作为全世界最安全的支付系统Hpay（喜支付）的上线意义非凡，不仅让资本无限流通和及时到账做到真正的汇通天下，还将彻底推翻银行界对个人合法资产过度监管的暴政。
 
-就这个南巡讲话之后的中国改革开放，才有了七哥最起码
-At least because of China’s reform and opening up after the speech on Deng Xiaoping’s southern tour, Miles Guo (has had the opportunity)
+未来，随着Hpay（喜支付）系统的不断升级换代，结合量子电脑、生物科技、太空科技的冷钱包技术，完成守护人类财富的最后一步。
 
-中国最起码不管是灾难什么结果
-No matter if it is a disaster or whatever outcome
 
-最起码它的经济上给了中国一个机会
-(China’s reform and opening) at least has given China an opportunity economically
 
-让中国人知道了更多的世界, 否则你们也不能来到美国
-allowed the Chinese people to know more about the world, or you can’t be in America now
+**相关Gnews文章：**
 
-但是兄弟姐妹们，要记住一个核心的问题
-But remember a core issue, brothers and sisters
+瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标
 
-习问这个问题的时候，我这个英国朋友说
-When Xi asked that question, my British friend said that
 
-如果你没有勇气改变你的政治制度
-if you do not have the courage to change your political system
 
-你绝不可能再有任何第二次选择，所谓的改革开放
-you will never have any second choice, the so-called reform and opening up
+> [瞧不起谁？一个Hcoin（喜币）价值10万美元不算是目标](https://gnews.org/zh-hans/1905173/)
 
-大家要记住了啊
-Everyone should remember that
 
-这句话这个英国朋友讲的这句话，绝对是受七哥影响
-this sentence said by this British friend is definitely influenced by Brother 7
-
-就说你现在
-(Xi’s best friend said) Let’s talk about your current situation
-
-过去邓小平，你是让老百姓改革开放
-In the past, Deng Xiaoping allowed the people to reform and open up
-
-所谓南巡讲话，你还有机会让大家能赚钱、能活下去
-The so-called Southern Tour Speech has provided the opportunity for everyone to make money and survive
-
-谁富、谁先富、谁后富
-has allowed people get rich, who rich first, and who rich later
-
-现在你在没有改变你政治制度的情况下
-Now under the situation that you don’t change your political system
-
-你想再任何改革，不可能
-any reform you want to make will be impossible
-
-这句话把这个
-This sentence had (shocked Xi)
-
-习说这就是西方人最想让我们干的事
-Xi said that this is what Westerners want us to do most
-
-就是我们要干这种事情
-and if we do this kind of thing
-
-对我们来讲就等同于自杀
-for us, it’s like killing ourselves
-
-**原视频链接:** [https://gettr.com/post/pqk22jabb6](https://gettr.com/post/pqk22jabb6)
-
-Date: 01/25/2022
-原视频标题:
-私人资产国有化加上 #极端的共产主义化，变本加厉实行党天下，当下的中共国已经无药可救了。当年的南巡讲话客观上拯救了中国的经济，打开了国门。但是现在，#习近平 如果没有勇气改变政治制度，中国就绝对不可能再有第二次的改革开放。对于中共而言，改革体制改变政治制度就无异于自杀，习近平将何去何从。
-The nationalization of private assets combining with the extreme communismization has intensified the implementation of the CCP in the world. The CCP now is hopeless. The Southern Tour speech that year has objectively saved China’s economy and opened the door to the country. But now if Xi Jinping does not have the courage to change the political system, it is definitely impossible for China to have a second reform and opening-up. For the CCP, reforming the system and changing the political system is tantamount to suicide. Where will Xi Jinping go?
-**原视频链接: **https://gettr.com/post/pqk22jabb6
-任务编号：KC437（3628）视频时间段 : 0:00-01:51
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

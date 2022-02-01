@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 10:41 PM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: Miles Guo's version "A Quiet Dream"<br/><br/>1/31/2022 文贵虎年新春大直播：郭文贵版“一帘幽梦”
+![img](https://media.gettr.com/group12/getter/2022/02/01/22/26013b60-df44-2172-fc43-23b45d435ad6/out.jpg)
+
+---
+
 `@miles 2/1/2022 10:12 PM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow to Terminate the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border” <br/><br/>1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》
@@ -149,13 +156,6 @@ Limited Edition Exclusive Release for Chinese New Year.                         
 
 1/30/2022 Miles Guo: Politicians all over the world pushing toxic COVID vaccines will not end up well. When politicians in Europe, America, Canada, and Japan have to admit that the COVID vaccine is a disaster, then they will take the initiative to start a war to avoid being held accountable.<br/><br/>1/30/2022 文贵直播：全世界强推毒疫苗的政客都没有好下场，当欧美加日的政客们不得不承认疫苗是一场灾难后，他们会为了逃避追责而主动挑起战争！<br/>
 ![img](https://media.gettr.com/group15/getter/2022/01/31/02/24b645eb-ccc6-3c57-b612-ea88ec563480/out.jpg)
-
----
-
-`@miles 1/30/2022 12:51 PM (UTC)`
-
-1月30号：尊敬的战友们好．七哥将在1小时左右开始今天的七哥乱聊直播，今天只有我一个人．直播时间会在两小时左右，一切都已经开始！
-![img](https://media.gettr.com/group9/getter/2022/01/30/12/05d59ea0-5421-265f-64f1-60fd25930a27/out.jpg)
 
 ---
 
