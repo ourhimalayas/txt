@@ -2,25 +2,25 @@
 ---
 
 
-## Miles Guo’s broadcast highlights summary 2
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940419/)
+## 七哥对习近平的宣战
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940442/)
 
 整理：雅典娜速记组
 编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Miles-Guos-broadcast-highlights-summary-3.2.jpg)
-12/08/2021
+![](https://assets.gnews.org/wp-content/uploads/2022/01/七哥对习近平的宣战_01.jpg)
+直播时间：2021.12.08
 
-What the CCP did to Pangu’s staft they can repeat it on anyone. Nobody is safe in this mafia state. If people were to keep silence and take CCP’s bullying tactics lying down, then CCP will sense weakness and will intensify the bullying. The best way to deal with a bully is to punch him in the face, so Miles had decided to go on the offense and listed the following 5 points for action:
+习近平，你在梁家河混过，我是赵家沟出来的。你看过死人，我也看过死人。我在清风看守所看到死人是我的经历，你3次被关押是吧？咱们也都知道。
 
-1. Members of NFSC are to find out information on CCP officials7 children (both legitimate and illegitimate), lovers and immediate family members. The information can in the form of home address, bank account number; asset info, overseas diplomatic marriage and scandals.
+你现在你的彭丽媛是人是吗？我们的爹妈不是人是吗？
 
-2. In various countries, organise groups to protest at China embassy, foreign agencies related to CCP and outside the homes of CCP officials7 family members.
+咱就试试看你梁家河出来和我这赵家沟出来的谁狠。
 
-3. Members of NFSC should standardise protest materials such as photos, logos, broadcast videos, statues, and scandal news.
+习近平，咱就从今年大年30初一开始，未来3年看咱俩谁先死，你要不把我做死，要不然我就让你死，就这么简单。
 
-4. These protests should be made known on TV, social media, internet, and any other form of mass media.
+你看看咱俩谁先退？习近平看看谁先软谁先退。你要有种，你站出来，你对着我，咋俩单对单的干。你要没种，你用你手里边儿奴役的机器虐杀我们被你绑架的这些家人。
 
-5. All contributors will be rewarded monetarily. 1 billion dollars and 100m HCN will be spent on this war with CCP.
+你看你还能做啥？我已经做好下面每1分钟，我爹被你给弄死。我一滴泪都不会掉，如果你要看到我要能再掉一滴泪，我就不叫郭文贵，我就不叫郭七儿，我不可能让这件事情就这么过得去。咱走着看。
 
 发布：*皮特*
 

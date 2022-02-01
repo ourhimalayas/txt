@@ -2,25 +2,56 @@
 ---
 
 
-## Miles Guo’s broadcast highlights summary 3
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940430/)
+## 澳喜作品：《郭文贵》
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1940448/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Miles-Guos-broadcast-highlights-summary-3.3.jpg)
-2021.12.08
+童起冰封苦寒之地
+奔跑中突袭来风雨
+亲爱的人儿， 慢些走
+没有告别， 已成永远
 
-We should only limit our revenge targets to Xi Jinping, Wang Qishan, Jiang Zeming, Jiang Mianheng, and members of the politburo standing committee. NFSC members are also encouraged to perform mock funerals on these people and their family members. CCP officials are most superstitious and will believe mock funerals will bring them immense bad luck. It must be stressed that at no time should laws and regulations be broken when exercising the above. All must be done within the parameters of what is allowed legally.
+你的眼，像寂寞的深海
+鲁松乐聚嵩山见
+黄纱披身揽神贤
 
-China’s economy is now in a bad shape and companies are falling apart left and right. Once China is kicked out of WTO and SWIFT; CCP’s strategy of using money as bargaining chip with the rest of the world will be rendered useless.
+禅念禅定， 中原佛手
+御光乘风， 盘古龙吟
+星辰之外， 览天地无穷
 
-发布：*皮特*
+你在云中呐喊
+在细枝末节中揣测，目视洞若观火
+表面逢迎， 暗中韬晦
+泡过最辣的妞，喝过最烈的酒
+你是那个最浪漫的人
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+谁将一切改变
+临窗远眺望归鸿， 风回轩台逐明月
+踌躇脚尖， 就这么开始
+揽孤勇在怀中， 藏天真在眼底
+女神手中的光， 屹立不变的爱
+放肆痛哭，理好愤怒， 这是最后救赎
+
+情浓千般， 你只会用行动表示
+天国亲人
+终有一日， 魂归去兮， 重回一家
+
+你双手合掌为世人祷祝
+万佛万神之手在你肩上
+
+惜欢宴， 笑语满堂
+鼎中肉微烫， 杯中咖啡醇香
+富贵非所愿，天下皆在君壮阔心胸
+
+七芒星相互辉映， 勾起了相思
+风从虎， 云从龙， 龙虎英雄傲苍穹
+昆仑山脉， 藏龙之巅， 云裂路开
+
+喜系列， 渊停岳势， 涤荡群雄
+畅音阁里终一叙， 星月在侧揽穹苍
+Hcoin to the moon
+碧海同舟， 意气相许， 与君共坐春风
+
+灭共， 与生俱来的使命
 
  
 

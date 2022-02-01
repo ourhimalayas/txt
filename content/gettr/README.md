@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 3:03 AM (UTC)`
+
+1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
+![img](https://media.gettr.com/group22/getter/2022/02/01/03/af99e67a-fc6a-75f3-a79d-1de42bc4a4cc/fd2a7fbf67541184a61a778d47178045.jpg)
+
+---
+
 `@miles 2/1/2022 2:53 AM (UTC)`
 
 1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
@@ -148,13 +155,6 @@ FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; B
 
 1/27/2022 Miles Guo: Do I look like I appeared in a photo sent by a fellow fighter taken long ago in Hubei? A guy who followed me in Hubei in the past was determined to become a CCP official to make a fortune when he was young and is now a member of the Politburo of the CCP. He is the most promising political star, but Xi Jinping and Wang Qishan will not let him go.<br/><br/>1/27/2022 文贵直播：战友发给文贵当年在湖北的照片和现在的文贵像吗？当年在湖北跟着文贵的人从小立志当官发财，现已成为中共政治局委员而且是最有希望的政治明星，但习王不会放过他<br/>
 ![img](https://media.gettr.com/group31/getter/2022/01/29/02/5a3148d3-dbab-9a21-35fb-b578cf3d3a55/out.jpg)
-
----
-
-`@miles 1/29/2022 2:00 AM (UTC)`
-
-1/28/2022 Miles Guo’s GETTR: The CCP begged the US to withdraw only the personnel who tested positive for the virus, but the US sent several military medical aircraft, which have arrived at the Beijing Capital International Airport. The CCP is like a wolf disguised as a sheep in front of the Chinese people, whereas it is like a sheep disguised as a wolf when it's facing the West. I will deal a few more fatal blows to the CCP.<br/><br/>1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员，但美国却派了多架军事医疗飞机已抵达北京首都机场；中共在中国人面前是披着羊皮的狼，在西方面前则是披着狼皮的羊；文贵再给你中共玩几个招杀手锏！
-![img](https://media.gettr.com/group4/getter/2022/01/29/01/72f2295f-e4e4-fffb-b092-b2f5300770b1/out.jpg)
 
 ---
 
