@@ -2,18 +2,36 @@
 ---
 
 
-## 普京如果攻打乌克兰 会加速西方国家消灭中共 乌克兰和台湾的战争 最大的受害者将是中国人
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1942850/)
+## 红色新中国联邦国旗首现2022新中国联邦春晚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1942890/)
 
-普京和习近平早期达成协议，针对乌克兰和台湾，各取所需。俄罗斯如果把天然气管道放到欧洲，等于多了一条输钱管道，GDP会翻翻。普京要求欧盟书面放弃东扩，并建立天然气输送，换取不攻打乌克兰。如果打乌克兰，俄罗斯GDP会从一万亿，降到6000亿左右，但之后的利益可以弥补制裁的损失。但如果中共打台湾， GDP会从15万亿美元会降到5万亿美元，无法弥补，而且美国欧洲会参战。到时候中国老百姓的孩子最少死50万。中共的军队没有人相信会打台湾，而且会大赢，也没有人认为有必要打台湾。打台湾是习近平自己政治利益的需要。习太阳的政治智商连普京的尿壶都不如，这场战争的最大受害人会是中国人。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2022年1月31日新中国联邦2022年新春晚会上首次向全球战友们展示了红色新中国联邦国旗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3.jpg)
+郭先生向战友们解释了红色新中国联邦国旗跟中共血旗的区别。
 
-如果普京打了乌克兰，会加速欧洲和中共的决战。普京敢动手本质上是因为习近平给了2个大额石油天然气订单，经济上支持俄军事扩张。同时共产党的数字人民币和人民币国际化也助长了俄罗斯西扩的野心。要阻止普京，就要断其财路，要先灭共。核战，潜水艇，海战欧洲100%赢；如果美国出手，分分钟就赢；何况还有澳大利亚、日本的加入。
+郭先生说，红色新中国联邦国旗的红色是太阳的红，象征着光明，象征我们崇拜的是太阳，红色新中国联邦国旗是铲除邪恶的红旗。
 
-视频来源: 20220130—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+中共国旗的红是鲜血的红，代表着暴力与杀戮；代表着流血。代表杀人后血染的红旗。
 
+郭先生强调，红色不能被共产党垄断，就像中国的权力不能被共产党垄断一样，中国人的幸福和健康更不能让共产党说了算。
+
+参考链接：[2022年壬寅年新春大直播](https://gtv.org/broadcast/watch/61f7dc4d96ba5d73e0bfcc56)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM.png)
+
+总编: 文真
+编辑：文特
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,43 @@
 ---
 
 
-## 新中国联邦将助邓丽君女士实现“一帘幽梦”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1942651/)
+## 感染中共病毒的艾滋患者出现21种突变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1942759/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2022新春大直播中，郭先生演绎了改编版的《一帘幽梦》，表示新中国联邦会助邓丽君女士实现未了的夙愿，替国内同胞争取法制、自由、民主，消灭邪恶中共。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-9.jpg)
-89年六·四事件发生以后，邓女士在同年11月24日的日本演唱会上表示，无论走到世界何处，永远都是中国人。每一位国人都应该享有自由，相信这一天一定会到来。邓女士身处台湾却心系国内同胞，因赞美人性、热爱自由的甜美歌声太受欢迎而遭到中共的打压，一生未能踏上大陆的土地。
+翻译：Lulumi
 
-郭先生用粗犷的嗓音演绎了新中国联邦版的《一帘幽梦》，并发出誓言，愿万佛万神护佑天堂里的邓丽君女士。新中国联邦一定会完成她的心愿，把民主、法制和自由，带给每一位善良勤劳智慧的中国人！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown.jpg)2021年12月8日，两位医学科学家梅尔瓦·姆兰博（右）和普塞莱索·莱索菲在南非研究中心准备对中共病毒奥米克戎样本进行排序。（Jerome Delay/美联社照片，文件）
 
-参考链接：[2022年壬寅年新春大直播](https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55)
+据斯泰伦博斯大学和夸祖鲁·纳塔尔大学的研究人员说，这名22岁的女性患者在开始服用治疗艾滋病毒的抗逆转录病毒药物后的6至9周内，能够克服引起COVID-19的中共病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-01-29-at-7.35.34-PM.png)
+他们的结论是，感染COVID-19中共病毒的艾滋患者“需要提高警惕”，以“防止”COVID-19变种的出现。值得注意的是，奥米克戎变体于2021年11月首次在南非出现，美国卫生官员说它现在是全美的主导毒株。
 
-总编: Zion文恩
-编辑： 文真
-校正/发稿：Fei797
+“这个案例和之前的其他案例一样，描述了一个出现新型变体的潜在途径，”科学家们在预印本研究报告中说，并补充说这仍然是一个假说，需要更多的数据。“我们的经验加强了以前的报告，有效的抗逆转录病毒治疗是控制此类事件的关键”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+南非拥有世界上最大的艾滋病毒感染群体。在6000万人口中，约有820万人感染了艾滋病毒。
+
+据研究人员称，研究中观察到的病人在中共病毒的刺突蛋白上发生了大约10个突变，让它能够与细胞结合，同时还有其他11个突变。其中一些突变与奥米克戎和拉姆达变体中的突变相似，而其他突变则与允许病毒绕过抗体的突变一致。
+
+“我们的经验再次加强了以前的报告，有效的（抗逆转录病毒药物是）控制此类事件的关键。他们说：“一旦HIV复制得到控制，免疫重建开始，甚至可能在完全免疫重建发生之前，就能迅速清除CCP病毒。”这强调了一个更广泛的观点，即需要填补艾滋病毒护理中的空白，这也将有利于其他条件和公共卫生问题，包括COVID-19。”
+
+同时，奥米克戎在全国蔓延数周后，一些南非专家表示，他们对该国达到“转折点”感到乐观。
+
+威特沃特斯兰德大学的教授沙比尔·马迪提周一对CBS新闻说：“[在南非]奥米克戎变体只占自大流行开始以来因中共病毒所有死亡人数的不到5%。”
+
+虽然可能会出现更多的中共病毒COVID-19变种，但他认为长达两年的大流行病最糟的时期已经过去。
+
+马迪提说：“我非常乐观地认为，我们已经达到大流行病的转折点。我们不会重蹈在南非前三波疫情过程中所经历的事情”。
+
+**参考资料：**[theepochtimes][COVID-19-Infected HIV Patient Developed 21 Mutations: Study](https://www.theepochtimes.com/covid-19-infected-hiv-patient-developed-21-mutations-study_4248127.html?utm_source=newsnoe&amp;utm_campaign=breaking-2022-01-31-4&amp;utm_medium=email2&amp;est=F6XpyMyv5RHjQxhnTYfiQxAuo%2FOfHX5V9nJs92VU1qw6aHbqV9R4IWpImEMSEIk%2Bq1r7B5Q%3D)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

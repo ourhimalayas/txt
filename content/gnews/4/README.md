@@ -2,18 +2,46 @@
 ---
 
 
-## 青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1943091/)
+## 郭文贵先生宣布虎年新郭七条
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943143/)
 
-重大好消息！！
+作者：纽约香草山农场 -文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月 31日新中国联邦春晚中，郭文贵先生在2022年新春伊始，寄语全球新中国联邦人，新中国联邦人在2022年最重要任务是“新郭七条”：
 
-科学家战友在欧洲一个军事级别的医学研究所，正在研究和测试与青蒿素相关的鸡尾酒疗法。该疗法能更深层次的清除疫苗余毒，甚至有可能达到100%清毒，并且对新冠也有很高效的治疗用。 目前该疗法的成本大约1美金一副。 郭文贵先生已经预定了约1亿美金的药物，专门供应爆料革命、新中国联邦的战友使用。还要等待最后的确认。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5.jpeg)
 
-视频来源: 20220201- -虎年新春直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+1，一心一意灭共。
 
+2，全力以赴扩大新中国联邦，被国际各个国家主权认可度。
+
+3，全力以赴建设更多的新农场。
+
+4，把国内更多的战友救出来，同时让更多的中国人知道新中国联邦。
+
+5，让新中国联邦战友在G系列财富增值，有更多的投资机会。
+
+6，联合全世界爱好正义的人，让受疫苗伤害的人找到病毒真相，找到毒疫苗的解决办法，让更多的人和我们联合在一起。让遭经济威胁和超限战伤害的人团结在新中国联邦真相媒体中
+
+7，全体战友统一作战目标统一行动，“保命保财报仇”共同渡过至暗时代。
+
+全球战友将坚定信仰，不辱使命。
+
+参考链接：[新中国联邦2022年最重要做什么？2022年《 #郭七条》](https://gettr.com/post/prpytb473e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Jack Li文阳
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

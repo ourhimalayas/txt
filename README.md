@@ -15,119 +15,119 @@
 
 ---
 
-### [最新：魁北克省政府让步，放弃“疫苗税”](/content/gnews/1/README.md)
+### [中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
+
+### [英国：接种两剂新冠疫苗的儿童死亡可能性高于正常儿童52倍](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [工业革命—从蒸汽机到区块链](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [郭文贵先生宣布虎年新郭七条](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [最新：魁北克省政府让步，放弃“疫苗税”](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [喜支付成功上线影响深远](/content/gnews/2/README.md)
+### [喜支付成功上线影响深远](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [爆料革命日记 （十三）：一触即发？](/content/gnews/3/README.md)
+### [爆料革命日记 （十三）：一触即发？](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳](/content/gnews/4/README.md)
+### [青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳](/content/gnews/8/README.md)
  ` 焦點20分`
 
-### [无国界记者组织谴责中共国对新闻的“空前镇压”](/content/gnews/5/README.md)
+### [无国界记者组织谴责中共国对新闻的“空前镇压”](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国将严厉制裁俄罗斯 俄将全面启用人民币](/content/gnews/6/README.md)
+### [美国将严厉制裁俄罗斯 俄将全面启用人民币](/content/gnews/10/README.md)
  ` 焦點20分`
 
-### [中共病毒及疫苗危机的可怕后果](/content/gnews/7/README.md)
+### [中共病毒及疫苗危机的可怕后果](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [台海两岸，春节油价不同步](/content/gnews/8/README.md)
+### [台海两岸，春节油价不同步](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [科顿参议员指出本不该让中共举办冬奥会](/content/gnews/9/README.md)
+### [科顿参议员指出本不该让中共举办冬奥会](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [厄瓜多尔总统寻求与中共国重新谈判债务问题](/content/gnews/10/README.md)
+### [厄瓜多尔总统寻求与中共国重新谈判债务问题](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十七）](/content/gnews/11/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（二十七）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|郝海东先生呼吁：不要做中共炮灰](/content/gnews/12/README.md)
+### [有声|郝海东先生呼吁：不要做中共炮灰](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [乔治-索罗斯警告说，中共国正面临一场经济危机](/content/gnews/13/README.md)
+### [乔治-索罗斯警告说，中共国正面临一场经济危机](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行](/content/gnews/14/README.md)
+### [未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [有声|20个所谓“中共特色”](/content/gnews/15/README.md)
+### [有声|20个所谓“中共特色”](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十五）](/content/gnews/16/README.md)
+### [文•贵天成——文贵先生谈“北京冬奥会”（二十五）](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [变本加厉：澳洲酝酿第四针，ATAGI重新定义“完全接种”](/content/gnews/17/README.md)
+### [变本加厉：澳洲酝酿第四针，ATAGI重新定义“完全接种”](/content/gnews/21/README.md)
  ` 走进澳洲`
 
-### [红色新中国联邦国旗首现2022新中国联邦春晚](/content/gnews/18/README.md)
+### [红色新中国联邦国旗首现2022新中国联邦春晚](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [有声|年度回顾关键词 – 中共病毒](/content/gnews/19/README.md)
+### [有声|年度回顾关键词 – 中共病毒](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/20/README.md)
+### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [记录显示中共政府对美国外交官进行了病毒肛门拭子测试](/content/gnews/21/README.md)
+### [记录显示中共政府对美国外交官进行了病毒肛门拭子测试](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [普京如果攻打乌克兰 会加速西方国家消灭中共 乌克兰和台湾的战争 最大的受害者将是中国人](/content/gnews/22/README.md)
+### [普京如果攻打乌克兰 会加速西方国家消灭中共 乌克兰和台湾的战争 最大的受害者将是中国人](/content/gnews/26/README.md)
  ` 焦點20分`
 
-### [有声|年度回顾关键词 – 中共邪教组织](/content/gnews/23/README.md)
+### [有声|年度回顾关键词 – 中共邪教组织](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [MV版Hcoin To the Moon上线54天第41次位列澳门iTunes热门MV榜首](/content/gnews/24/README.md)
+### [MV版Hcoin To the Moon上线54天第41次位列澳门iTunes热门MV榜首](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [“青蒿素鸡尾酒”疗法有望彻底清除疫苗毒素](/content/gnews/25/README.md)
+### [“青蒿素鸡尾酒”疗法有望彻底清除疫苗毒素](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [【Michael.Tonny专栏】奥地利的强制疫苗法毫无科学依据！](/content/gnews/26/README.md)
+### [【Michael.Tonny专栏】奥地利的强制疫苗法毫无科学依据！](/content/gnews/30/README.md)
  ` 温哥华扬帆农场`
 
-### [疫苗诱发的心肌炎创纪录 也会让家庭破产（2/2）](/content/gnews/27/README.md)
+### [疫苗诱发的心肌炎创纪录 也会让家庭破产（2/2）](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [感染中共病毒的艾滋患者出现21种突变](/content/gnews/28/README.md)
+### [感染中共病毒的艾滋患者出现21种突变](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|年度回顾关键词 – 河南水灾](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [1/30/2022 文贵直播：未来一两年比想象更糟，国内的战友要有现金和粮食并找到合适的生存环境；排华是对国外战友最大的威胁，我们要继续让西方区分中国人和中共，拯救更多同胞](/content/gnews/30/README.md)
- ` 秘密翻译组-北美组`
-
-### [2/1/2022国际财经快讯：澳大利亚央行结束债券购买，不急于加息；石油价格攀升](/content/gnews/31/README.md)
+### [2/1/2022国际财经快讯：澳大利亚央行结束债券购买，不急于加息；石油价格攀升](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [新中国联邦将助邓丽君女士实现“一帘幽梦”](/content/gnews/32/README.md)
+### [新中国联邦将助邓丽君女士实现“一帘幽梦”](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [灭共后中国文化的绚丽之花将再度在全球盛开](/content/gnews/33/README.md)
+### [灭共后中国文化的绚丽之花将再度在全球盛开](/content/gnews/35/README.md)
  ` 纽约香草山MOS03`
 
-### [香草山新春联欢七哥寄语](/content/gnews/34/README.md)
+### [香草山新春联欢七哥寄语](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
 
-### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/35/README.md)
+### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/37/README.md)
  ` mary202064`
 
-### [《历史上的今天》2022.02.01](/content/gnews/36/README.md)
+### [《历史上的今天》2022.02.01](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [除夕随笔](/content/gnews/37/README.md)
- ` 纽约香草山MOS03`
-
-### [横纹肌炎，强生和阿斯利康疫苗的一个新副作用](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/39/README.md)
  ` 纽约香草山MOS03`

@@ -2,47 +2,32 @@
 ---
 
 
-## 乔治-索罗斯警告说，中共国正面临一场经济危机
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1943028/)
+## 科顿参议员指出本不该让中共举办冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943053/)
 
-翻译：七龙珠
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月30日，科顿参议员指出中共根本没有资格举办冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-01-上午11.42.56.png)
+科顿参议员提到，在他2年前刚开始质疑病毒起源于武汉实验室的时候，遭到了福奇、柯林斯为首的各方打压。而2021年越来越多的证据指向了，病毒最有可能起源的地方就是研究了蝙蝠冠状病毒，并且有蝙蝠女王之称的石正丽所在的武汉实验室。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-01-173210.jpg)图片来源:google.com
+科顿参议员指出，在这样的背景下，中共本来就不应该拥有举办冬奥会为其进行宣传的巨大机会，应该在一年前就把冬奥会举办权交给其他国家。
 
-投资者乔治-索罗斯(George Soros)表示，在去年房地产热潮轰轰烈烈地结束之后，中国正面临着一场经济危机。
+参考链接：[https://www.gettr.com/post/prm20rf80a](https://www.gettr.com/post/prm20rf80a)
 
-这位亿万富翁周一在斯坦福大学胡佛研究所发表演讲时说，习近平主席可能无法恢复对陷入困境的房地产行业的信心，该行业受到一系列开发商违约以及土地和房产价格下跌的打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-索罗斯说，中国的房地产繁荣是基于一种“不可持续的”模式，这种模式使地方政府受益，并鼓励人们将其大部分储蓄投资于房地产。
+总编：文真
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-他补充说，政府的遏制经济政策使房地产巨头恒大难以偿还债务。
-
-这家房地产开发商的总负债超过3000亿美元，包括国际资产管理公司和私人银行代表其客户持有的约190亿美元的海外债券。几个月来，恒大一直在努力筹集现金以偿还债务。
-
-恒大的国际债权人威胁要采取法律行动
-
-政府官员被派往恒大公司监督重组，但对下一步的工作却不甚明了。恒大偿还贷款申请更长的时间，但一些贷款人似乎不愿意等待。周日，恒大公司称已就香港的一块土地委任了接管人，该土地去年被当作5.2亿美元贷款的抵押品。
-
-“当局将如何处理这场危机还有待观察，”索罗斯在关于中共国的发展和美国应如何应对的小组讨论中说。“他们可能已经推迟了太长时间来处理这个问题，人们的信心已经受到影响。”
-
-近年来，索罗斯已成为习近平和中国执政的共产党的主要批评者。这位传奇的投资者和开放社会基金会主席在去年9月说，资产管理公司贝莱德在中共国开展更多业务是一个“悲惨的错误”。索罗斯还批评了北京的监控政策和对私营企业的打压。
-
-索罗斯说，房价下跌“将使许多将大部分储蓄投资于房地产的人反对习近平”，目前的情况“看起来并不乐观”。
-
-索罗斯说：“习近平有许多措施可以用来恢复信心；问题是他是否会正确使用这些工具”？
-
-分析师们长期以来一直担心，恒大的倒闭可能引发中共国房地产市场更广泛的风险，伤害房主和金融系统，而且房地产和相关行业占中共国GDP比例的30%，占比重相当大。
-
-2021年最后几个月的经济增长明显减弱表明，房地产危机、新爆发的柯维德病毒和北京控制病毒的严格方法正在造成不可估量的损失。国际货币基金组织预计经济增长将在2022年急剧放缓至4.8%。
-
-新闻来源: [cnnespanol.cnn.com][George Soros advierte que China está enfrentando una crisis económica](https://cnnespanol.cnn.com/2022/01/31/george-soros-crisis-economica-china-trax/)
-
-* * *
-
-*审核：蚂蚁兄弟
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

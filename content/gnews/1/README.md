@@ -2,39 +2,42 @@
 ---
 
 
-## 最新：魁北克省政府让步，放弃“疫苗税”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1943142/)
+## 中俄勾兑，习近平只是普京玩弄的工具
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943187/)
 
-**编译评论：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-38.png)**图片来源：**[**TVA Nouvelles 2022 年 2 月 1 日**](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
-**官方公告将在下午**** 1 ****点的发布。**
+作者：纽约香草山教育部- Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2022年1月30日直播中，向战友们深入解密了现在的俄乌局势，并强调，在这场国际博弈中，习近平只是普京手中把玩的工具而已。
 
-TVA Nouvelles（2022 年 2 月 1 日上午09:15）发表一篇题为《结束对未接种疫苗者的“疫苗税”》的文章报道，魁北克省弗朗索瓦·勒戈（François Legault）**政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）**的想法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6.jpeg)
 
-官方公告将在当地时间今日下午 1 点（GMT-5）的新闻发布会上发布。
+郭先生指出，虽然普京和习近平企图通过东西两线同时开战，让美国无法兼顾。但普京和习近平开战的目的截然不同，结果也截然不同。
 
-在周一接受 TVA 采访时，卫生部长克里斯蒂安·杜贝（Christian Dubé）确实表示，健康贡献对他来说“不是优先事项”。
+普京通过制造乌克兰危机跟美国和欧洲谈条件，如果美欧同意俄罗斯把天然气管道铺设到欧洲，俄罗斯就拥有了一个插在欧洲人血管上的赚钱工具，俄罗斯的GPD会翻倍的增长，同时俄罗斯西部的战略线会西扩几千公里。
 
-1 月 11 日，总理宣布他打算为未接种疫苗的魁北克人征收健康贡献税。他说：“10% 的人口会通过堵塞我们的医院来伤害另外 90% 的人口，这是不正确的。”
+如果俄乌开战，俄罗斯将在几年内会受到美国的经济制裁，但却可以收复苏联时期失去的国土，在西线取得战略优势。
 
-健身房的重新开放和成人运动的恢复也会在今天下午的新闻发布会上宣布。
+习近平打台湾的目的，仅仅是为了满足他愚蠢的做千年明君的梦想，中共进攻台湾，一旦开战，无论是常规战争还是核战，中共都毫无胜算。而且，一旦开战中共国的GDP会骤降，同时还会造成数十万中共百姓的死亡。
 
-**“****公民不服从****”****示威活动不断发生**
+郭先生强调，俄乌开战会加速欧洲与中共的决战，因为欧洲已经清楚的意识到，普京开战的底气来自中共对俄罗斯的经济支持。消灭中共是解决俄乌危机最有效的办法。
 
-自从疫情爆发到现在两年多的时间以来，反对卫生措施的“公民不服从”示威活动不断发生。这些示威活动合法地，积极地、非暴力地表示了拒绝接受政府的命令的愿望。现在，我们看到“魁北克省勒戈（François Legault ）政府正在放弃其对未接种疫苗的魁北克人征收健康贡献（税）的想法”。最终结局如何，让我们拭目以待。
+参考链接：[2022.1.30文贵先生爆料 中俄勾兑，习近平只是普京玩弄的工具](https://gnews.org/zh-hans/1933442/)
 
-**参考资料**：
-TVA Nouvelles（2022 年 2 月 1 日 09:15）Terminé le «vaccimpôt» pour les non-vaccinés. [https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines](https://www.tvanouvelles.ca/2022/02/01/termine-le-vaccimpot-pour-les-non-vaccines)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-编辑：MQ
+总编：Zion文恩
+编辑：文真
+校正/发稿：谐趣园
 
-发布：MQ
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-20220201
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
