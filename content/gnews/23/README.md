@@ -2,41 +2,34 @@
 ---
 
 
-## 有声|乡下的第一个新年
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940383/)
+## 有声|德国卫生部将疫苗暴政甩锅软件错误
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940427/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月28日，据相关媒体报道，在恐吓了当地未接种中共病毒疫苗的民众数月之后，德国卫生部长突然改变口风称，政府此前关于未接种疫苗的群体会引发中共病毒大传染的言论是错误的。同时，该卫生部长还将这一错误言论归因于“软件问题”。
 
+数据显示，德国先前的中共病毒感染病例数据呈现出令人难以置信的高增长态势。然而，汉堡市市长却在新闻发布会上声称，该市90%的感染患者出现在未接种疫苗的人群中，并以此强制当地民众接种中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-回到乡下生活快有一年了。自从中共病毒出来后，真的厌倦了城市里的生活。头一年只是戴口罩还能忍受，第二年开始强打疫苗，不打就没有工作，以及其他的各种限制。让人难受的是周围的同事总用一种怀疑的眼光看过来并问道：你为什么不打？你不打就是对我们的不负责，你不打你要染上了就会传染给我们……, 领导：这是政治任务必须打。更伤心的是回到家里劝家人别打，可是家人不但不听还反问一句：什么副不副作用的？别人死得你不能死呀。我崩溃了，想起七哥的话收拾行李就回到了乡下。为了生存在乡下找了份工作。老板挺好的，是那种只看工作能力不追问别人隐私的人。
+原文链接：[德国卫生部将疫苗暴政甩锅软件错误](https://gnews.org/zh-hans/1938284/)
 
-今天大年三十，回亲戚家帮忙打扫卫生，由于没打疫苗寸步难行，回不了原来的家，这个虎年就在亲戚家过了。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Happy_Lunar_New_Year.png)
-中午过后鞭炮声四处响起，忙把自己关在屋里，重看七哥的直播视频，视频里的七哥能让人心情好起来，忘掉所有的落寞，燃起新的希望。
+音频处理/发稿：Daxia
 
-灭共进入第五个年头，跟随七哥也进入第四年，七哥就像茫茫黑夜中的一盏灯照亮着前方的路。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-展望未来，正义必将战胜邪恶！中共必将灭亡！
-
-文字版原文：[乡下的第一个新年](https://gnews.org/zh-hans/1939787/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
 

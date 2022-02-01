@@ -2,22 +2,43 @@
 ---
 
 
-## 冬奥会临近 中共国COVID-19激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1940359/)
+## 有声|乡下的第一个新年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940383/)
 
-#### 翻译：文斗
+配音：香草山佛教部 – 李傻
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)[图片来源](https://assets.gnews.org/wp-content/uploads/2022/01/16436817761.png)
-1月31日（合众国际社） — 据有关官员称，在北京冬奥会开幕前两天，因参与冬奥会引发的CCP病毒病例在增加。
 
-组织者已经确定了250个与冬奥会有关的病例，其中仅上周末就有71个新病例。涉及运动员或团队官员有28例。其中20个病例是在北京的“闭环系统”内检测确认的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+回到乡下生活快有一年了。自从中共病毒出来后，真的厌倦了城市里的生活。头一年只是戴口罩还能忍受，第二年开始强打疫苗，不打就没有工作，以及其他的各种限制。让人难受的是周围的同事总用一种怀疑的眼光看过来并问道：你为什么不打？你不打就是对我们的不负责，你不打你要染上了就会传染给我们……, 领导：这是政治任务必须打。更伤心的是回到家里劝家人别打，可是家人不但不听还反问一句：什么副不副作用的？别人死得你不能死呀。我崩溃了，想起七哥的话收拾行李就回到了乡下。为了生存在乡下找了份工作。老板挺好的，是那种只看工作能力不追问别人隐私的人。
 
-2022年北京冬奥会医疗专家组主席布莱恩·麦克洛斯基（Brian McCloskey）说，随着抵达开幕式和比赛开始的运动员人数增加，现在这种情况是早就预料到的。
+今天大年三十，回亲戚家帮忙打扫卫生，由于没打疫苗寸步难行，回不了原来的家，这个虎年就在亲戚家过了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Happy_Lunar_New_Year.png)
+中午过后鞭炮声四处响起，忙把自己关在屋里，重看七哥的直播视频，视频里的七哥能让人心情好起来，忘掉所有的落寞，燃起新的希望。
 
-北京平均每天有36个新病例，比1月25日至27日的三天平均数翻了一番。这些数字超过了去年东京夏季奥运会期间的感染数字。
+灭共进入第五个年头，跟随七哥也进入第四年，七哥就像茫茫黑夜中的一盏灯照亮着前方的路。
 
-[新闻链接](https://www.upi.com/Top_News/World-News/2022/01/31/Beijing-Olympics-COVID-19/6841643654072/)
+展望未来，正义必将战胜邪恶！中共必将灭亡！
+
+文字版原文：[乡下的第一个新年](https://gnews.org/zh-hans/1939787/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
  
 
