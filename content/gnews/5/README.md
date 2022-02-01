@@ -2,120 +2,47 @@
 ---
 
 
-## 改革体制改变政治制度就无异于自杀，习近平将何去何从
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1943845/)
+## 文贵先生盖特精要2022/02/01
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1943857/)
 
-[https://gtv.org/video/id=61f800afd90bdd2085a32a23](https://gtv.org/video/id=61f800afd90bdd2085a32a23)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-46.png)[盖特直播链接](https://gettr.com/post/prt6yo3915)
 
-**郭文贵**
-**Miles Guo**
+今天是咱们农历新年大年初一。昨天我们大家一起共同度过了美妙的、传奇的、传统的中国虎年春节，七哥新改编的三首歌曲，《我爱你，塞北的雪》、《甜蜜蜜》和《一帘幽梦》 轰动了国内外，再次感谢我们的音乐团队–威廉王、唐平、Qmay、瑞恩等所有参与制作的战友们。特别昨天我们这场精神盛宴在国内各界引起了轰动，邓丽君女士再次辉煌，唤起了无数人心中的记忆和共鸣。
 
-习说了句话，你觉得中国还需要往回调整
-Xi Jinping has said that “you think China still needs to adjust back
+收到了很多的信息都表示，今年的直播技术、效果、体验感都比以往有很大的进步，参与直播战友的素质也越来越高，让人们看到了在爆料革命队伍当中真的是人才辈出，看到了中国未来真有希望！
 
-是往中间调整还是要回来呢？
-should it regulate to the middle or come back?”
+郝海东兄弟的“掏胸罩”一词又火了，成了时髦用语，他说啥都出名。海东和钊颖的每句话都是那么的真切可信，给体制内的人触动很大，这就是咱新中国联邦的魅力。我们新春大直播的服饰选择和使用，一套又一套，都是原创；我们自己的fashion，保证材料和设计，每套成本都在2万美元以上，都是一针一针手工缝出来的，货真价实，一点不玩虚的。这不仅是一种实力的体现，更揭穿了中共晚会成本 质量低下、毫无价值。
 
-意思我还来得及调整吗？
-It means that do I still have time to adjust?
+中共给国内百姓宣传“美帝已经不行了”，但是看看我这里的生活条件，大农场，几千亩地，树林成群，自然环境与人之间和谐统一。
 
-你知道这人说了句什么？
-Do you know what did this man (Xi’s best childhood friend) say?
+我们昨天整个服饰文化的表现，所有参加直播战友们的状态和三首歌的精神力量对比共产党搞的劣质晚会和“蓝、金、黄”拉去参加冬奥站台的人，行贿与买通、毫无精神追求，只有肮脏交易，一瞬间高低自分。我们每天都不一样，每天都在提升！
 
-不可能！你已经没有机会调整
-(He said) it’s impossible! You have no chance to adjust
+西方现在越来越多的人抵制奥运会，越来越多的人拒绝去奥运会，越来越多的法案出炉都是来针对这个邪恶的共产党；同时，现在我们新中国联邦获得了多少人的尊重，又有很多人想跟我们合作以及承认新中国联邦政权。让战友有家不能回，家人分离让所有同胞长期受到了政治、经济、人生、欺骗与威胁、恐惧、盘剥的和把人民变成无知的、愚昧的、狭隘的、只知道吃喝的、连猪狗都不如的人类，就是这个邪恶的中国共产党。如果不再消灭这个邪恶的体制，那真的就是天理不容了。
 
-所以说，你看习这几年的折腾
-So, take a look at Xi’s struggling over the past few years
+大雪会融化，春天会到来，“甜蜜蜜”运动会开启一场史无前例的、结合媒体传播、高科技的，包含精神、信仰、宗教、和平方式的政治文化运动。战友们，你们都准备好了吗？！
 
-所谓私人资产国有化，极端的共产主义化，极端的党化
-the so-called nationalization of private assets, extreme communism, and extreme partyization
+当你看到现在一切一切的时候，请不要忘记正在国内前线、无私奉献奋战的战友们，还有很多正在为国内即将发生的‘甜蜜蜜’运动工作着的战友，他们都是高智商、 高情商、高素养、高教育、有信仰追求的优秀人们。他们才是我们同胞中的真正榜样，任何参与‘甜蜜蜜’运动的人都会获得应有的喜币和“躺币”。你们的人生绝对充满价值，会震撼和直击愚昧无知者的心灵，可以唤醒更多的同胞们！
 
-他把所有的南巡讲话，你一定要记住
-All Deng Xiaoping’ speeches on the Southern Tour, you must remember
+我们存在的意义和我们世界就像我身着的G-fashion和那三首歌一样，原创、唯一、无限光荣，永远地照亮着大地！（唱）我爱你，灭共的雪，轰轰烈烈漫山遍野…… 昨天没有参加大直播的战友们，抱歉！来日方长！
 
-咱不说共产党谁好谁坏
-let’s not talk about who is good and who is the bad guy in the Communist Party
+*听写：阿甘*
 
-就这个南巡讲话之后的中国改革开放，才有了七哥最起码
-At least because of China’s reform and opening up after the speech on Deng Xiaoping’s southern tour, Miles Guo (has had the opportunity)
+*校对：小雨*
 
-中国最起码不管是灾难什么结果
-No matter if it is a disaster or whatever outcome
 
-最起码它的经济上给了中国一个机会
-(China’s reform and opening) at least has given China an opportunity economically
 
-让中国人知道了更多的世界, 否则你们也不能来到美国
-allowed the Chinese people to know more about the world, or you can’t be in America now
+* * *
 
-但是兄弟姐妹们，要记住一个核心的问题
-But remember a core issue, brothers and sisters
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-习问这个问题的时候，我这个英国朋友说
-When Xi asked that question, my British friend said that
 
-如果你没有勇气改变你的政治制度
-if you do not have the courage to change your political system
+编辑：【英国伦敦喜庄园编辑部】
 
-你绝不可能再有任何第二次选择，所谓的改革开放
-you will never have any second choice, the so-called reform and opening up
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-大家要记住了啊
-Everyone should remember that
 
-这句话这个英国朋友讲的这句话，绝对是受七哥影响
-this sentence said by this British friend is definitely influenced by Brother 7
-
-就说你现在
-(Xi’s best friend said) Let’s talk about your current situation
-
-过去邓小平，你是让老百姓改革开放
-In the past, Deng Xiaoping allowed the people to reform and open up
-
-所谓南巡讲话，你还有机会让大家能赚钱、能活下去
-The so-called Southern Tour Speech has provided the opportunity for everyone to make money and survive
-
-谁富、谁先富、谁后富
-has allowed people get rich, who rich first, and who rich later
-
-现在你在没有改变你政治制度的情况下
-Now under the situation that you don’t change your political system
-
-你想再任何改革，不可能
-any reform you want to make will be impossible
-
-这句话把这个
-This sentence had (shocked Xi)
-
-习说这就是西方人最想让我们干的事
-Xi said that this is what Westerners want us to do most
-
-就是我们要干这种事情
-and if we do this kind of thing
-
-对我们来讲就等同于自杀
-for us, it’s like killing ourselves
-
-**原视频链接:** [https://gettr.com/post/pqk22jabb6](https://gettr.com/post/pqk22jabb6)
-
-Date: 01/25/2022
-原视频标题:
-私人资产国有化加上 #极端的共产主义化，变本加厉实行党天下，当下的中共国已经无药可救了。当年的南巡讲话客观上拯救了中国的经济，打开了国门。但是现在，#习近平 如果没有勇气改变政治制度，中国就绝对不可能再有第二次的改革开放。对于中共而言，改革体制改变政治制度就无异于自杀，习近平将何去何从。
-The nationalization of private assets combining with the extreme communismization has intensified the implementation of the CCP in the world. The CCP now is hopeless. The Southern Tour speech that year has objectively saved China’s economy and opened the door to the country. But now if Xi Jinping does not have the courage to change the political system, it is definitely impossible for China to have a second reform and opening-up. For the CCP, reforming the system and changing the political system is tantamount to suicide. Where will Xi Jinping go?
-**原视频链接: **https://gettr.com/post/pqk22jabb6
-任务编号：KC437（3628）视频时间段 : 0:00-01:51
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
