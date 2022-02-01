@@ -2,19 +2,33 @@
 ---
 
 
-## 商鞅五策让中国人 没有信仰和无知真的很可拍
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940953/)
+## 没有新中国联邦，没有爆料革命 ，我们无法发声！
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940963/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-*发布：陶子*
+自从2019年我母亲2月2日过世以后，我没和我任何家人联系过，没有一次视频，没有和一个哥哥联系过。我就是不想牵连他们。同时，盘古裕达坚守着的员工有将近几亿的产值，养活着这么多员工和家人，这些孩子很多人供房供车贷。
 
+然而就那天你动用几百个警察，几百个特警，带着 （金隅以物业？）管理不善为名接管七星酒店、盘古公寓所有业主，你把这些员工赶出来，零下4度连鞋都不让穿，你问他一句，他就拿枪托打你。 我爹竟然流落街头没饭吃，我都不知道我爹去哪儿到处要找亲爹。
+
+所有的员工家人的信用卡所有的车辆交通工具、 手机全都不能用。大家全傻眼了，因为他们下个月都不知道该怎么活。
+
+你不觉得它们比魔鬼还无耻吗？阿富汗、北朝鲜能这样吗？
+
+你当了郭文贵，你不过如此，你当了马云，你不过如此。这是以国家的名义要灭你，这是真的会死人的。
+
+没有新中国联邦，没有爆料革命，没有我们今天这个发声平台，世界上没有一个会替我们发声。！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/没有新中国联邦，没有爆料革命-，我们无法发声！-_01.jpg)
+2021年12月08日文贵大直播
+
+*发布：tianzhihuan*
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

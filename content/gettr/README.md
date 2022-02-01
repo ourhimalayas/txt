@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 6:10 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: The former boss of Hermes admires the clothing of ancient China during the Northern Wei Dynasty, but the CCP has destroyed the best food culture, clothing culture, and music in China. The most important thing for the New Federal State of China is to make people live a good and authentic life.<br/><br/>1/31/2022 文贵虎年新春大直播：爱马仕前老板崇拜中国古代北魏时期的服饰，但中共却毁掉了中国最好的饮食文化、服饰文化和音乐；新中国联邦最重要的是要让人们的生活美好而真实<br/>
+![img](https://media.gettr.com/group20/getter/2022/02/01/06/0b48a72e-9d7d-b3df-265c-1812acc24508/out.jpg)
+
+---
+
 `@miles 2/1/2022 3:03 AM (UTC)`
 
 1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
@@ -148,13 +155,6 @@ FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; B
 
 1/27/2022 Miles Guo: What are the stories behind the photo of me sitting in the dragon chair taken a long time ago? Why did I appear to be angry in the photo? Why is there a circle drawn in the photo? The older brother of the young hero, a cellmate executed by the CCP under false accusation, hasn’t realized until recently that his younger brother was a great man.<br/><br/>1/27/2022 文贵直播：文贵当年拍的那张坐龙椅的照片背后是怎样的故事？为什么照片中的文贵面露怒火？照片中画的圈是怎么回事？处男英雄哥哥直到今天才明白他的弟弟有多伟大<br/>
 ![img](https://media.gettr.com/group6/getter/2022/01/29/05/3dbb6b43-a72d-657d-be3c-6cc1ca19e0c3/out.jpg)
-
----
-
-`@miles 1/29/2022 2:43 AM (UTC)`
-
-1/27/2022 Miles Guo: Do I look like I appeared in a photo sent by a fellow fighter taken long ago in Hubei? A guy who followed me in Hubei in the past was determined to become a CCP official to make a fortune when he was young and is now a member of the Politburo of the CCP. He is the most promising political star, but Xi Jinping and Wang Qishan will not let him go.<br/><br/>1/27/2022 文贵直播：战友发给文贵当年在湖北的照片和现在的文贵像吗？当年在湖北跟着文贵的人从小立志当官发财，现已成为中共政治局委员而且是最有希望的政治明星，但习王不会放过他<br/>
-![img](https://media.gettr.com/group31/getter/2022/01/29/02/5a3148d3-dbab-9a21-35fb-b578cf3d3a55/out.jpg)
 
 ---
 

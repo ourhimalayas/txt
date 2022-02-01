@@ -15,53 +15,53 @@
 
 ---
 
-### [长线投资都在离场 数字货币领域大额洗钱正在离场](/content/gnews/1/README.md)
+### [1.31文贵大直播后记：新中国联邦一切唯真不破](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [中共借上合组织名义出兵哈萨克斯坦和普京打的算盘](/content/gnews/2/README.md)
+### [长线投资都在离场 数字货币领域大额洗钱正在离场](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [哈萨克斯坦是上合组织成员国及其在一带一路中重要的战略地位](/content/gnews/3/README.md)
+### [中共借上合组织名义出兵哈萨克斯坦和普京打的算盘](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [美国一直想消灭独裁和后独裁国家](/content/gnews/4/README.md)
+### [哈萨克斯坦是上合组织成员国及其在一带一路中重要的战略地位](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/5/README.md)
+### [美国一直想消灭独裁和后独裁国家](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上合组织成员几乎是江家的势力](/content/gnews/6/README.md)
+### [上合组织成员几乎是江家的势力](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [文贵大直播“精选”](/content/gnews/7/README.md)
+### [文贵大直播“精选”](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [1.31大直播后记：点评改版的《塞北的雪》](/content/gnews/8/README.md)
+### [1.31大直播后记：点评改版的《塞北的雪》](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [天地间是有规则的爆料革命中要开智、明眼、辩是非、识善恶](/content/gnews/9/README.md)
+### [天地间是有规则的爆料革命中要开智、明眼、辩是非、识善恶](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [1.31大直播后记：共产党毁掉中国最好的服饰文化](/content/gnews/10/README.md)
+### [1.31大直播后记：共产党毁掉中国最好的服饰文化](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [没有新中国联邦，没有爆料革命 ，我们无法发声！](/content/gnews/11/README.md)
+### [郭文贵精品视频-中共把国内的“共享财富”推广到全世界](/content/gnews/12/README.md)
+ ` cindy`
+
+### [没有新中国联邦，没有爆料革命 ，我们无法发声！](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [2022年壬寅年新春大直播：新中国联邦人2022年的七大任务](/content/gnews/12/README.md)
+### [2022年壬寅年新春大直播：新中国联邦人2022年的七大任务](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [商鞅五策让中国人 没有信仰和无知真的很可拍](/content/gnews/13/README.md)
+### [商鞅五策让中国人 没有信仰和无知真的很可拍](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [老百姓在中共眼里，让你干啥就得干啥](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [1.31春节大直播后记：完成邓丽君女士的遗愿](/content/gnews/15/README.md)
+### [1.31春节大直播后记：完成邓丽君女士的遗愿](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
-
-### [记住人类是有主人的](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
 
 ### [美国五角大楼发出警报:俄罗斯随时可能入侵乌克兰](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -69,25 +69,25 @@
 ### [美众议院推出“美国竞争法”并将对中共实施额外制裁](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/19/README.md)
+### [黄金部队，腐败（一）](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [随着卡车司机在渥太华抗议，加拿大省长誓言结束疫苗通行证政策](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|美国前国务卿彭培奥警告：中共寻求 “统治全球”](/content/gnews/20/README.md)
+### [有声|美国前国务卿彭培奥警告：中共寻求 “统治全球”](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|冬奥会运动员及官员确诊病例激增](/content/gnews/21/README.md)
+### [有声|冬奥会运动员及官员确诊病例激增](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|澳洲加入加拿大反强制新冠疫苗自由车队](/content/gnews/22/README.md)
+### [有声|澳洲加入加拿大反强制新冠疫苗自由车队](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|因疫情青少年心理创伤已达国家紧急状态](/content/gnews/23/README.md)
+### [有声|因疫情青少年心理创伤已达国家紧急状态](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|拜登与中共签订中共病毒测试剂合同引发强烈不满](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|中共虚假同意联合国人权专员访问新疆](/content/gnews/25/README.md)
+### [有声|拜登与中共签订中共病毒测试剂合同引发强烈不满](/content/gnews/25/README.md)
  ` MOSREC`
 
 ### [加拿大总理特鲁多确诊感染中共病毒](/content/gnews/26/README.md)
