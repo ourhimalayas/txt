@@ -2,8 +2,8 @@
 ---
 
 
-## 文贵大直播“精选”
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941004/)
+## 哈萨克斯坦是上合组织成员国及其在一带一路中重要的战略地位
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941032/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
