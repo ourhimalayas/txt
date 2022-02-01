@@ -2,8 +2,8 @@
 ---
 
 
-## 凡是不拿动物当动物的地方，人也活不好
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941193/)
+## 共产党欺骗中国人是最大的悲哀
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941238/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

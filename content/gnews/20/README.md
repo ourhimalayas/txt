@@ -2,26 +2,48 @@
 ---
 
 
-## 日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1941129/)
+## 加拿大第一波抗议强制疫苗卡车队抵渥太华
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1941186/)
 
-#### 翻译：文斗
+作者：银河系农场—骄子
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2.png)
-日本贸易和制药公司興和公司（ Kowa Co Ltd ）周一表示，抗寄生虫药物伊维菌素在联合非临床研究显示出对奥米炕（ Omicron ）和其他冠状病毒变体具有“抗病毒作用”。
 
-興和公司没有提供更多细节。 该公司一直与一家日本医学研究与开发机构，位于东京的医科大学-北里大学（Kitasato University）合作。
 
-该研究于 2020 年 9 月 16 日开始，计划结束日期为 2022 年 3 月 31 日。该研究的标题为“安慰剂对照随机双盲（评估者、患者）多机构联合平行组比较试验，以测试伊维菌素对CCP病毒患者的疗效和安全性。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-该临床试验正在进行中，日本国立保健医疗科学院官网可以查看[简报（日文版、英文版）](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)。
 
-伊维菌素用于治疗动物和人类的寄生虫，但推广该药物治疗CCP病毒引发了争议。路透社在报道发表几小时后删除了原文中有关“ III 期临床试验中有效治疗 Omicron 的药物”的内容。但在The Gateway Pundit网站仍可以找到完整报道以及该研究的英文版报告文件。
 
-新闻链接：[1](https://www.thegatewaypundit.com/2022/01/japans-kowa-company-finds-ivermectin-effective-omicron-covid-variants-phase-3-trial/) [2](https://www.reuters.com/article/health-coronavirus-japan-kowa/japans-kowa-says-ivermectin-effective-against-omicron-in-phase-iii-trial-idUSL1N2UB0AV)
+2022年1月28日，加拿大第一波抗议强制新冠疫苗卡车队已抵渥太华。数千名加拿大人冒着严寒天气，在道路和高速公路旁站了几个小时欢迎车队的到来。他们为车队加油，同时也为大规模后勤工作提供食物、饮料和用品。在加拿大政府多年悲观的厄运下，以及加拿大政府宣布即将到来的“死亡之冬”后，能听到这么富有感染力的欢呼声、看到风中飒爽飘扬的旗帜、见到幸福和微笑交织的场面，这是多么令人难以置信，也多么令人精神振奋。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file-scaled.jpg)
+卡车车队从西部的不列颠哥伦比亚省、东部的纽芬兰和南部的安大略省温莎出发，汽车、SUV、面包车和小型商用卡车一一呈现在大型车队长龙中。沿途每一条高速公路上，人群都在欢呼，并向车队挥舞支持。
 
-日本国立保健医疗科学院官网 [https://rctportal.niph.go.jp/s/detail/um?trial\_id=jRCT2031200120](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)
+加拿大政府严酷的疫情隔离政策以及强制疫苗接种的情况，造成社会严重分离。自由车队的活动把热爱自由的人重新凝聚起来，这是人民的呼声与力量，这也表明平民主义才是民主政体核心所在。
+
+参考来源：
+
+[First Wave of Canadian Freedom Convoy Arrives in Ottawa](https://theconservativetreehouse.com/blog/2022/01/28/first-wave-of-canadian-freedom-convoy-arrives-in-ottawa/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-1.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+
+
 
  
 

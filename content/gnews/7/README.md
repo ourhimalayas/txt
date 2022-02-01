@@ -2,25 +2,27 @@
 ---
 
 
-## 日本F-15战机在海上失联
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941231/)
+## 人活着就是精气神
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941286/)
 
-稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4.png)
-图片来源于本文链接
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-31日下午5点30分左右，一架从石川县小松空军基地起飞的航空自卫队F-15战斗机在该基地西北方向约5公里的海域上空从雷达上消失。 这架飞机正在进行训练，有两名机组人员。在该地区发现了几块漂浮的碎片，目前正在打捞，以确定它们是否是失踪飞机的一部分。国防部官员认为这架飞机可能已经坠毁。
+新中国联邦人给人希望的原因。
 
-航空自卫队正在搜寻这架飞机及其机组人员，并正在详细调查它是如何从雷达上消失的。 金泽市海岸警卫队也已派出一艘巡逻艇到现场查看情况。
+我说过不是我道德多高尚，就是我看过坦桑尼亚的艾滋病，叫我一生对性恐惧, 不敢乱来，看过吸毒的身上长的脓包， 那个肉芽，我在小时候第一次去火葬场, 看到的哭声一片，花圈，特别我们山东人的那个叫啊，黑帆、白帆，我说这个死人是挺恐怖啊，然后到了非洲就看到打死人，就在街上血流干啊，然后大家也想到我在清风看守所，死人就一枪下去，人迅速就扁了，一会人就越来越扁, 脸就没有什么鼻子、眼睛，他就越来越扁，扁完以后脸就没有血色了，然后人你会发现人突然就显得小了，实际上人1米8、1米7很小的。你没见过死人没那感觉了，原来人和肉啊，就是那么一念一口气之差。
 
-信息源：
+那么特别是看到好人气色越好，精神状态越好，人活着就是一口气，就这个精气神。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/人活着就是精气神-_01.jpg)
+2021年12月08日文贵大直播
 
-[【速報】F-15戦闘機 海上で機体の一部見つかる　離陸直後 消息絶つ](https://nordot.app/860900347736457216)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

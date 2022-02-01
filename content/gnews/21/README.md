@@ -2,37 +2,26 @@
 ---
 
 
-## 美议员呼吁奥委会保护参加北京冬奥运动员安全
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1941119/)
+## 日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1941129/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6168F802-A0D7-4E93-A1E8-82F93B398F9D_cx0_cy3_cw0_w650_r1_s.jpg)@voachinese.com 资料照：人权组织活动人士在联合国国际人权日聚集在台北呼吁抵制北京冬奥会。（2021年12月10日）
+#### 翻译：文斗
 
-**编辑摘要：**
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2.png)
+日本贸易和制药公司興和公司（ Kowa Co Ltd ）周一表示，抗寄生虫药物伊维菌素在联合非临床研究显示出对奥米炕（ Omicron ）和其他冠状病毒变体具有“抗病毒作用”。
 
-据美国之音2月1日报道，多位美国国会两党议员在2022年北京冬奥会开幕前夕呼吁，要求保护美国运动员的人身安全、言论自由及个人数据隐私，并减少他们接触任何涉及强迫劳动制造的产品。
+興和公司没有提供更多细节。 该公司一直与一家日本医学研究与开发机构，位于东京的医科大学-北里大学（Kitasato University）合作。
 
-中共政府建有全世界最先进、最具侵入性的监控系统，摄像头覆盖了北京每一寸土地。在中共国手机上或者生活中做的每一件事都可以被追踪。多伦多大学网络安全检测部门“公民实验室”指出，运动员参加北京冬奥会所必须使用的应用程序“冬奥通”，存在严重的加密漏洞。包括美国、加拿大、英国等多个国家奥委会建议各自的运动员使用一次性或者可丢弃式手机前往中共国，不要携带私人电子设备。
+该研究于 2020 年 9 月 16 日开始，计划结束日期为 2022 年 3 月 31 日。该研究的标题为“安慰剂对照随机双盲（评估者、患者）多机构联合平行组比较试验，以测试伊维菌素对CCP病毒患者的疗效和安全性。”
 
-北京表示“任何符合奥运精神的言论都会受到保护；任何违背奥运精神，特别是违反中共国法律规定的会受到一定惩罚”。国际奥委会表示，在运动员的基本人权问题上，将遵守中共国法律。中共国有人权吗？不要说人权，连动物都没有兽权。冬奥会还没有开始，中共国已经开始大肆捕狗杀狗。试问，狗能影响冬奥会举行吗？
+该临床试验正在进行中，日本国立保健医疗科学院官网可以查看[简报（日文版、英文版）](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)。
 
-北京种族灭绝冬奥会在病毒肆虐、疫苗灾难随时发生的高风险环境中举行。任何到达中共国的人都不会拥有西方国家所习惯拥有的隐私和自由。美国公民的身份不是护身符，不能保护运动员免于受到中共国政府的不公待遇。避免危险、保护隐私最安全的方法就是远离危险，不去中共国，拒绝羞辱的核酸检测，抵制冬奥会。
+伊维菌素用于治疗动物和人类的寄生虫，但推广该药物治疗CCP病毒引发了争议。路透社在报道发表几小时后删除了原文中有关“ III 期临床试验中有效治疗 Omicron 的药物”的内容。但在The Gateway Pundit网站仍可以找到完整报道以及该研究的英文版报告文件。
 
-新闻参考链接：[北京冬奥前夕 美议员呼吁奥委会保护运动员安全](https://www.voachinese.com/a/us-lawmakers-raise-concerns-over-athletes-safety-during-winter-olympics-20210131/6421221.html)
+新闻链接：[1](https://www.thegatewaypundit.com/2022/01/japans-kowa-company-finds-ivermectin-effective-omicron-covid-variants-phase-3-trial/) [2](https://www.reuters.com/article/health-coronavirus-japan-kowa/japans-kowa-says-ivermectin-effective-against-omicron-in-phase-iii-trial-idUSL1N2UB0AV)
 
-*编辑：胖丁*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+日本国立保健医疗科学院官网 [https://rctportal.niph.go.jp/s/detail/um?trial\_id=jRCT2031200120](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)
 
  
 

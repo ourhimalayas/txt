@@ -2,48 +2,24 @@
 ---
 
 
-## 加拿大第一波抗议强制疫苗卡车队抵渥太华
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1941186/)
+## 黄金部队，腐败（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941230/)
 
-作者：银河系农场—骄子
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/黄金部队，腐败-（三）-.jpg)
+新疆有多少人被掠夺，他不是上你那是吃囊吃你羊肉串去了，他是要你的命去了。我可以告诉你，你没看过西藏驻军的军营别墅，在什么时候大家记住，这是拜美国所赐，2000年以前几乎很少，它都是比较中国式的所谓享受，盖个大房子军营，大家找的那个地方是中共的一个军那个军营是个导弹部队，还导弹部队，还有个发射卫星使用的，那个地方我很清楚，那个不是什么禁地。禁地是在山里边，你根本看不见的。大家要看看，2000年中国加入这个奥林匹斯后加入世贸以后，中国从1.3万亿美元到达15万亿美元。中国1977年的中国GDP是500亿美元，它连盘古的一半
+资产都没有。现在是15万亿美元，但那个时候，在西藏、新疆、昆仑山、塔石、帕米尔高原、嘎吱马峰(音译)….…所有这些地方，出现了无数好评，特别是你去看看所谓的小瑞士，还有像墨脱(音译)都是当官享受的地方，领导度假的地方，就像当年中国最惨的时候，1979年在上海，在那个珠海盖的避暑山庄，你想想79年，邓小平刚刚掌权，盖的珠海避暑山庄，那个里边的豪华已经完全是日本化，邓小平骨子里边喜欢日本，喜欢美国。你去看看现在还在那儿呢。避暑山庄从来不对外。所以说那个直升机在那儿逛来逛去，一个黄金部队一年都弄出多少百吨黄金都不止，这虫草是一年80% 90%的给共产党，享受西藏新疆哈萨克斯坦彝族处女是领导的每年必然有的活动。你以为张高丽只跟彭帅谈恋爱呀？你相信吗？
 
+2022年1月12日大直播
 
+发布： 星谕
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
-
-
-
-2022年1月28日，加拿大第一波抗议强制新冠疫苗卡车队已抵渥太华。数千名加拿大人冒着严寒天气，在道路和高速公路旁站了几个小时欢迎车队的到来。他们为车队加油，同时也为大规模后勤工作提供食物、饮料和用品。在加拿大政府多年悲观的厄运下，以及加拿大政府宣布即将到来的“死亡之冬”后，能听到这么富有感染力的欢呼声、看到风中飒爽飘扬的旗帜、见到幸福和微笑交织的场面，这是多么令人难以置信，也多么令人精神振奋。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file-scaled.jpg)
-卡车车队从西部的不列颠哥伦比亚省、东部的纽芬兰和南部的安大略省温莎出发，汽车、SUV、面包车和小型商用卡车一一呈现在大型车队长龙中。沿途每一条高速公路上，人群都在欢呼，并向车队挥舞支持。
-
-加拿大政府严酷的疫情隔离政策以及强制疫苗接种的情况，造成社会严重分离。自由车队的活动把热爱自由的人重新凝聚起来，这是人民的呼声与力量，这也表明平民主义才是民主政体核心所在。
-
-参考来源：
-
-[First Wave of Canadian Freedom Convoy Arrives in Ottawa](https://theconservativetreehouse.com/blog/2022/01/28/first-wave-of-canadian-freedom-convoy-arrives-in-ottawa/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-1.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

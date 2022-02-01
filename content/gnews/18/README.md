@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命最重要的是让你看真假、辩善恶
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941156/)
+## 农场体制特点
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941204/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

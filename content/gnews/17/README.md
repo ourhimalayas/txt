@@ -2,19 +2,25 @@
 ---
 
 
-## 科学是主义不是真理 本身就是要挑战和怀疑的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941167/)
+## 2022春节的北京，病毒＋奥运已年味儿不再
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941216/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3.png)
+（图片源自本文链接）
 
-*发布：陶子*
+２月１日朝日电视新闻消息：距北京奥运会只有三天时间了。历年春节，北京访客最多的寺庙已关闭，人们被要求不要外出用餐。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-4.png)
+有北京市民表示人：确实有点失望，但我今天一定要来，心到神知。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+每年春节的北京，最受初拜者欢迎的藏传佛教寺庙也因中共病毒（新冠病毒Covid-19）扩散而关闭。北京市还要求人们在节日期间限制外出就餐，不超过10人，不超过2小时，并避免长时间交谈。从2日开始，将在中共国的长城上进行为期三天的火炬传递。届时，长城将不对公众开放。
+
+信息来源：[北京五輪まであと3日 北京では寺院閉鎖で異例の春節（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/37fe30c7d683a7a918990832a1b4e2f4bd14bd5f)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
