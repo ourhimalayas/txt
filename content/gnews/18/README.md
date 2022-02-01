@@ -2,19 +2,29 @@
 ---
 
 
-## 谢利夫 外交人员骗钱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941703/)
+## 加拿大卡车司机聚集渥太华 抗议政府强制疫苗令
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1941715/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队。
+**撰稿：日本东京方舟农场  海星**
 
-*发布：玉米地守望者*
+1月28日，众多加拿大卡车司机聚集于首都渥太华参加示威游行活动，抗议政府实施的强制疫苗令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-3.jpg)（图片来源：法新社）
+据《法新社国际新闻》报导，由众多卡车司机组成的车队于1月28 日到达加拿大首都渥太华，并进行大型示威游行活动，抗议特鲁多政府强制实施的疫苗接种令。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报导指出，加拿大特鲁多政府规定从1月中旬开始，穿越加美两国边境的卡车司机必须接种疫苗。对此，众多卡车司机表示不满，称此规定剥夺了人民的自由，违反宪法。于是，司机们便纷纷展开行动，于1月23日组织车队前往首都渥太华。据悉，该车队有多达7万辆车组成，长达70公里，另有来自美国卡车司机的车辆。
+
+美国电动车巨头特斯拉和太空公司SpaceX的创始人埃隆·马斯克，对抗议强制疫苗令的卡车司机表示支持。他在推特上发帖说：”加拿大的卡车司机是最棒的！”
+
+据了解，抗议活动也受到了沿途民众的广泛支持。卡车驶过之处民众纷纷上街，挥舞着国旗向抗苗英雄们致敬。
+
+参考链接：
+1.[https://www.afpbb.com/articles/-/3387570?pid=24141003](https://www.afpbb.com/articles/-/3387570?pid=24141003)
+2.[https://gettr.com/post/pr5yjhb7e4](https://gettr.com/post/pr5yjhb7e4)
+3.[https://gettr.com/post/pr66aucbbd](https://gettr.com/post/pr66aucbbd)
+
+素材采编：海星
+编辑：文顺
+发布：爱放飞
 
  
 

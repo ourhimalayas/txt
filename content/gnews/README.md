@@ -15,59 +15,59 @@
 
 ---
 
-### [你们一定要认识到邪教组织的本能是什么（一）](/content/gnews/1/README.md)
+### [【Michael.Tonny专栏】都是什么样的东西在统治着中国人民？](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
+
+### [你们一定要认识到邪教组织的本能是什么（二）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [没有预测能力千万别瞎猜（二）](/content/gnews/2/README.md)
+### [你们一定要认识到邪教组织的本能是什么（一）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/3/README.md)
+### [没有预测能力千万别瞎猜（二）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/5/README.md)
  ` 關注組`
 
-### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/4/README.md)
+### [英国首相将于2月访问日本 协商共同对抗中共事宜](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [全球疫情更新(辉瑞将成为下一个安然公司？)](/content/gnews/5/README.md)
+### [全球疫情更新(辉瑞将成为下一个安然公司？)](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦 2022年最重要的7件事！](/content/gnews/6/README.md)
+### [新中国联邦 2022年最重要的7件事！](/content/gnews/8/README.md)
  ` 焦點20分`
 
-### [音乐灭共](/content/gnews/7/README.md)
+### [音乐灭共](/content/gnews/9/README.md)
  ` 骄子`
 
-### [日媒报道的中共病毒感染数字相关统计标准令人质疑](/content/gnews/8/README.md)
+### [日媒报道的中共病毒感染数字相关统计标准令人质疑](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本兴和制药公司证实伊维菌素有效](/content/gnews/9/README.md)
+### [日本兴和制药公司证实伊维菌素有效](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [七哥说—第47期](/content/gnews/10/README.md)
+### [七哥说—第47期](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国计划向北约大规模增兵 以应对乌克兰危机](/content/gnews/11/README.md)
+### [英国计划向北约大规模增兵 以应对乌克兰危机](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [2022/02/01 英喜时事速递](/content/gnews/12/README.md)
+### [2022/02/01 英喜时事速递](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [谢里夫事情意味着什么](/content/gnews/13/README.md)
+### [谢里夫事情意味着什么](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [九指妖造假](/content/gnews/14/README.md)
+### [九指妖造假](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [外交部骗习，一切都是假的](/content/gnews/15/README.md)
+### [七哥谈自己如何做人（二）](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/16/README.md)
+### [加拿大卡车司机聚集渥太华 抗议政府强制疫苗令](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
-
-### [冬奥会，谢利夫，拜登言论](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [谢利夫 外交人员骗钱](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
 
 ### [加拿大北京冬奥代表团中5人确诊](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
