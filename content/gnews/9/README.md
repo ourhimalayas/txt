@@ -2,13 +2,13 @@
 ---
 
 
-## 七哥金句2
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942227/)
+## 七哥金句3
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1942256/)
 
 整理：雅典娜速记组
 编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001.jpeg)
-共产党对新疆的杀戮就从对新疆说要让新疆富起来，要让共产党的政策向新疆倾斜开始！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3.001.jpeg)
+美国从来没有侵略过中国，却一直被共产党称为“亡我之心不死”。现在共产党又将甩锅美国，说美国挑拔了中哈关系。
 
 2022年1月12日大直播
 

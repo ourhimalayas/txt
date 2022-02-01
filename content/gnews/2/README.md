@@ -2,32 +2,38 @@
 ---
 
 
-## 美国国税局2019年即调查拜登家族与中共国关系
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1942291/)
+## 横纹肌炎，强生和阿斯利康疫苗的一个新副作用
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1942368/)
 
-翻译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.jpg)
-**美国国税局2019年即调查拜登家族与中共国关系**
+编译：七龙珠
 
-一份送达摩根大通银行的机密传票显示，美国国税局对亨特·拜登（拜登总统的儿子）的刑事调查似乎早在2019年5月就已经召集了一个大陪审团。该传票还寻求詹姆斯·拜登（总统的弟弟）的银行记录，这似乎是另一个拜登家族成员首次因调查而浮出水面。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/117604181_1be2b8c3-2834-4220-9dff-2867808010f8.png)图片来源：REUTERS
 
-布赖特巴特新闻（Breitbart News）获得的这份文件特别要求提供摩根大通银行（该文件称之为 “代理银行”）和中国银行（该文件称之为“发起行或收款行”）之间的相关交易信息。
+这是一种新的疫苗副作用：横纹肌炎，影响脊髓，引起炎症，破坏神经细胞。
 
-该文件似乎表明，在拜登总统当年春天发起竞选时，美国特拉华州检察官办公室的联邦检察官已经组建了一个大陪审团，并要求出示与亨特和詹姆斯·拜登以及他们的两名商业伙伴德文·阿彻尔（Devon Archer）和埃里克·施维林（ Eric Schwerin）有关的银行记录。
+西班牙药品和保健品管理局（Aemps）发布了第12份关于COVID-19疫苗的药物警戒报告。报告列出了在西班牙接种疫苗的不良反应。
 
-传票中列出的企业名称有：Owasco、Skaneateles、RSP Holdings、RSP Investments、RSTP II Alpha、RSTP II Bravo、塞內卡环球顾问公司(Seneca Global Advisors)、亚喀巴国际（Aqaba International）、罗斯蒙特-塞内卡（Rosemont Seneca）、乌克兰天然气公司布利斯玛股份有限公司（Burisma Holdings）、渤海华美（上海）股权投资基金管理有限公司（ Bohai Harvest RST Shanghai Equity）、罗宾逊·沃克（Robinson Walker）、Hudson West（译注：亨特和华信能源联合成立的公司）、欧洲能源和基础设施集团有限公司（European Energy and Infras Group Limited）、Bladen Enterprises Limited。
+截至1月9日，西班牙共使用了八千万多剂COVID-19疫苗，其中报告了55,455例不良事件，其中11,048例被认为是严重的，相当于每10万剂疫苗有13.7例。在这11,048例不良反应中，375例是致命的。
 
-亨特·拜登在2020年12月的一份声明中透露，就在总统选举之后，他因可能的税务欺诈而受到联邦调查。当时据福克斯新闻和CNN报道，调查从2018年开始，正在调查亨特和他的商业伙伴是否违反了税收和洗钱法。CNN当时的报道说，调查的重点是亨特在中共国和其他国家的活动以及与“引发反情报问题顾虑的人”之交易。
+根据该报告，与疫苗有关的病症包括偏瘫（一种可发生在全身的刺激性感觉障碍）和横纹肌炎，这是一种脊髓炎症，阿斯利康和杨森的疫苗很可能会发生。
 
-亨特·拜登在2021年4月接受哥伦比亚广播公司采访时透露，他的律师没有在此案中进行认罪协议。
+**该病如何治疗？**
 
-这份文件首先由前白宫官员加勒特·齐格勒（Garrett Ziegler）获得，他是彼得·纳瓦罗在白宫时期的贸易和制造业政策办公室前副主任，在2019-2021年任职，他向布莱巴特新闻提供了这份文件。在白宫任职后，齐格勒成立了一个“揭露腐败和勒索”的非营利性研究团体——马可波罗（Marco Polo），并一直在进行法医审查，并结合对亨特·拜登的笔记本电脑进行特别的独立调查。
+据消息人士称，横纹肌炎患者只需发作一次，但其影响可能持续很长时间。该疾病通过药物和康复疗法进行治疗，患者通常只能部分康复。有一些严重的案例，人们最终可能会出现严重的残疾。
 
-齐格勒在给布赖特巴特新闻的一份声明中说：
+在任何情况下，如果你有上述任何症状，建议咨询医生，以便有一个正确的诊断和针对每个案例的具体治疗方法。梅奥诊所说：“几种神经系统疾病可导致感觉问题、虚弱和膀胱或肠道功能障碍，包括脊髓压迫，这是一种外科急症”。
 
-“这份范围广泛的大陪审团传票表明，乔（拜登）的儿子和弟弟从中国银行的账户中收到了转账。剩下的问题是，正如之前的报道所证实的那样，为什么比尔·巴尔（Bill Barr 司法部长）直接干预，以确保特拉华州的美国检察官对拜登家的调查在17个多月内不被公开，直到选举后。戴维•韦斯(David Weiss特拉华州的检查官)和比尔·巴尔或司法部内部有良知的人应该为美国人民回答这个问题。
+还有可引起疱疹病毒、巨细胞病毒、爱泼斯坦-巴尔病毒、艾滋病毒、肠道病毒、西尼罗河病毒、埃科病毒、寨卡病毒、流感、乙肝、流行性腮腺炎、麻疹和风疹等。引发的炎症性疾病中，如多发性硬化症、神经性脊髓炎、自身免疫性疾病或肉毒杆菌病。
 
-新闻链接：[https://www.breitbart.com/politics/2022/01/30/us-attorney-doc-irs-issued-grand-jury-subpoena-jpmorgan-hunter-james-biden-bank-records-probe-biden-familys-china-connections/](https://www.breitbart.com/politics/2022/01/30/us-attorney-doc-irs-issued-grand-jury-subpoena-jpmorgan-hunter-james-biden-bank-records-probe-biden-familys-china-connections/)
+**参考资料：**[as][La mielitis transversa, nuevo efecto secundario de las vacunas de Janssen y AstraZeneca](https://as.com/diarioas/2022/01/27/actualidad/1643281568_537717.html)
+
+* * *
+
+*审核：蚂蚁兄弟*
+*校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-1.jpeg)
 
  
 
