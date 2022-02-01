@@ -2,8 +2,8 @@
 ---
 
 
-## 江志成吴征付钱HBO VICE
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1939934/)
+## 共产党正在制造排华行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1939948/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
