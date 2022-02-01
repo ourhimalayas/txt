@@ -2,27 +2,25 @@
 ---
 
 
-## 英国计划向北约大规模增兵 以应对乌克兰危机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1941757/)
+## COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941816/)
 
-**撰稿：日本东京方舟农场  海星**
+**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+31日路透社东京报道，日本兴和制药公司对外宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗新冠病毒的功效。 在第三期试验中，研究显示伊维菌素对Delta、Omicron等病毒的感染治疗有相同的效果。 伊维菌素过去被多国新闻媒体误认为「动物用」并倡导「不建议使用伊维菌素」作为治疗新冠用药，但伊维菌素有区分为人用、动物使用版本，人用伊维菌素经日本兴和制药与爱知县北里大学的实验结果证实可作为新冠治疗用药。
 
-1月29日，英国政府表示，英国计划向北大西洋公约组织(NATO)大规模增兵，以应对俄罗斯在乌克兰边界集结军队的问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-4.jpg)（图片来源：路透社）
-据《路透社》报导，英国首相约翰逊的办公室当天表示，英国正考虑向北欧和波罗的海地区的北约防务公约成员国提供最大可能的军事部署，预计下周向北约提出增兵计划，将目前在东欧约1150名的英军人数增加一倍，以确保能够支持北约盟国。
+目前，日本已有数家制药公司展开临床试验，分析人士指出多家制药公司展开临床试验，代表伊维菌素在新冠病毒的应用可能很快获得日本政府的批准，并有利于控制疫情。
 
-据悉，1月中旬俄罗斯就几乎完成了在乌克兰边境的军事集结，该地区共聚集了12.7万名士兵，随时可能入侵乌克兰，在东欧发动战争。
+此外去年开始，美国卫生研究院（NIH）便着手考虑[批准伊维菌素作为新冠治疗药物](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)。 同年9月，[外媒](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)报道印度德里都市区约97%的新冠病毒（COVID-19）病例，也使用伊维菌素得到有效治疗。
 
-对此，英国首相约翰逊在一份声明中强调，英国不会容忍俄罗斯破坏欧洲和平的行为，将始终与北约盟友站在一起。
+- 相关：[COVID-19 最新情报|以色列疫苗覆盖率逾7成 确诊仍持续创新高](https://gnews.org/zh-hant/1902573/)
 
-参考链接：
-1.[https://cn.reuters.com/article/uk-nato-military-deployment-0130-idCNKBS2K4044](https://cn.reuters.com/article/uk-nato-military-deployment-0130-idCNKBS2K4044)
-2. [https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220130-%E5%BA%94%E5%AF%B9%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%9B%BD%E7%BD%95%E8%A7%81%E5%90%91%E5%8C%97%E7%BA%A6%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%B4%BE%E5%85%B5](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220130-%E5%BA%94%E5%AF%B9%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%9B%BD%E7%BD%95%E8%A7%81%E5%90%91%E5%8C%97%E7%BA%A6%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%B4%BE%E5%85%B5)
-3. [https://zh.wikipedia.org/wiki/2021%E5%B9%B4%EF%BC%8D2022%E5%B9%B4%E4%BF%84%E4%B9%8C%E5%8D%B1%E6%9C%BA#cite\_note-%E6%8B%92%E7%B5%95-43](https://zh.wikipedia.org/wiki/2021%E5%B9%B4%EF%BC%8D2022%E5%B9%B4%E4%BF%84%E4%B9%8C%E5%8D%B1%E6%9C%BA#cite_note-%E6%8B%92%E7%B5%95-43)
 
-素材采编：海星
-编辑：文顺
-发布：爱放飞
+有关于新冠治疗药物，日首相岸田文雄曾宣布经与辉瑞公司达成基本协议，确保200万剂量的新冠口服药物供给，且正在考虑用公费支付新冠口服药物的相关费用，然[郭文贵曾爆料称新冠口服药副作用极强](https://gnews.org/zh-hant/1770349/)。
+
+* * *
+
+来源｜[路透社](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)、[NIH](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)、[100percentfedup](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)
 
  
 

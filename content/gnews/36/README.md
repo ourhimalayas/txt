@@ -2,42 +2,24 @@
 ---
 
 
-## 年度回顾关键词 &#8211; 中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941146/)
+## 日本F-15战机在海上失联
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941231/)
 
-作者：英喜农场 – 舒平风
+稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4.png)
+图片来源于本文链接
 
+31日下午5点30分左右，一架从石川县小松空军基地起飞的航空自卫队F-15战斗机在该基地西北方向约5公里的海域上空从雷达上消失。 这架飞机正在进行训练，有两名机组人员。在该地区发现了几块漂浮的碎片，目前正在打捞，以确定它们是否是失踪飞机的一部分。国防部官员认为这架飞机可能已经坠毁。
 
+航空自卫队正在搜寻这架飞机及其机组人员，并正在详细调查它是如何从雷达上消失的。 金泽市海岸警卫队也已派出一艘巡逻艇到现场查看情况。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息源：
 
+[【速報】F-15戦闘機 海上で機体の一部見つかる　離陸直後 消息絶つ](https://nordot.app/860900347736457216)
 
-
-郭文贵先生早在2019年曾多次向世界预警，中共政府近年来一直在研发用于维稳的准化学武器，并且其将使用某生化武器对付香港民众。直至2022年1月初，中共国内武汉市出现多例不明原因的肺炎患者。随后，经郭先生反复爆料，中共政府被迫承认此次冠状病毒肺炎疫情存在人传人现象，武汉随即进入封城状态。而在紧闭国门的同时，中共通过境外航班将这一被称为“中共病毒”的肺炎输送至全世界。
-
-另一方面，中共透过与其勾兑的WHO和NIH阻挠全球对中共病毒的溯源工作，并持续向全球继续放毒。目前，中共病毒在全球已经造成了3亿多人感染，数百万人死亡。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：Irene木木
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

@@ -2,25 +2,19 @@
 ---
 
 
-## 加拿大北京冬奥代表团中5人确诊
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1941665/)
+## 冬奥会，谢利夫，拜登言论
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941713/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+编辑/整理：澳雅大直播工作组视频剪辑小队。
 
-1月29日，加拿大奥林匹克委员会表示，已到北京参加冬奥的加拿大代表团，有5名团员验出了COVID-19（中共病毒）阳性反应。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-2.jpg)（图片来自网络）
-据《中央社》援引《法新社》报道，加拿大奥委会28日晚发表声明表示，目前在北京的246名代表团团员当中，有5人已接受COVID-19（中共病毒）防治安排。
+*发布：玉米地守望者*
 
-目前，加拿大奥委会并未透露，5名确诊者究竟是选手、随行支持人员还是官员。根据国际奥委会的防疫规定，确诊者必须离开代表团接受隔离。
-
-另外，根据当地筹办单位数据显示，自本月26日以来，针对各国运动员和代表团其他团员所进行的5092次筛检，共发现23例确诊病例。
-
-参考链接：
-[https://www.cna.com.tw/news/aopl/202201290160.aspx](https://www.cna.com.tw/news/aopl/202201290160.aspx)
-
-素材采编：幽蘭自得
-编辑：文顺
-发布：爱放飞
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

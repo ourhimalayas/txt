@@ -2,25 +2,45 @@
 ---
 
 
-## 经济危机
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941566/)
+## 年度回顾关键词 &#8211; 早期治疗药
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941609/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/经济危机-.jpg)
-中国的不是衰退，中国的经济是非常夸张的，绝大部分会失去所有一切拥有的，而成为房奴车奴这奴那奴的，而且极少数人，就是共产党这些家族一定会成为最后受益的，共产党被灭了他们也是受益者，因为这些人已经在你血管里边生存的这种能力和转移的财富是根本不可能清除掉的，灭掉共产党后我们能做到，信用卡你不用还了，房子地绝对是老百姓的，部分钱会追回来，但是因为你现在的智慧你的脑子你的文化你的行为结果，人本来是两腿走路，你变成两腿和两手走路，学猪学狗爬的时候（太久了），让你站起来你很不适应的，而且你会觉得晕的，人吃猪食吃惯了，你给他弄牛肉，他觉得太香了受不了的，中国还有很长的时间，因为这些人当多了猪狗，是要有一段时间来适应的。
+作者：西班牙巴塞罗那喜悦农场
 
-西方的世界，经过这次大洗牌之后，西方又是大嬴家，有中国人还有这些亚非拉的被共产党共产主义虐的国家，会再次成为西方资本主义国家的奴隶，一定是这结果，2022年是人类上最黑暗的一年，政治经济文化都是最黑暗的，疫苗灾难就更不用说了，能活下去是最好的。
 
-2022年1月12日大直播
 
-发布： 星谕
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+羟氯喹和伊维菌素作为中共病毒早期治疗药物已经被大量实例证明有奇效。
+
+医学博士哈维曾指出，羟氯喹已经有65年的历史，是一种治愈过数以亿计的患者的安全药剂。而美国疾病控制与预防中心也在其官网上表明，婴儿、哺乳期的儿童和孕妇，老人和身患疾病的人都可以服用此种药物。另一方面，伊维菌素是一种有效抗多种寄生虫的治疗药物。由于伊维菌素低廉的价格，它是世界卫生组织基本药物标准清单中的一部分，更是基层健康卫生系统中非常重要的药物之一。
+
+据郭文贵先生的情报显示，羟氯喹或伊维菌素与锌、维生素C、维生素D3配合服用可有效预防和治疗中共病毒感染。而GNews、GTV和盖特上很多医生的专业文章和访谈节目也清楚的解释了这两种早期治疗药物的安全性和有效性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：Irene木木
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
