@@ -2,42 +2,26 @@
 ---
 
 
-## 年度回顾关键词 &#8211; 中共病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941146/)
+## 【速報】前东京都知事石原慎太郎去世
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941260/)
 
-作者：英喜农场 – 舒平风
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6.png)
+[图片来源](https://news.yahoo.co.jp/articles/b126b9f149d73ec31770365d35e4d52ee3f0156f/images/000)
 
+根据日本新闻2月1日消息，前东京都知事、芥川奖获奖作家石原慎太郎去世，享年89岁。
 
+石原在1968年当选为参议院议员，1972年，他转入众议院，此后八次当选。他还担任过环境局局长和交通部长。1999年竞选东京都知事并首次当选。2006年，他承诺主办东京奥运会，尽管他在2004年未能赢得申办，但他为2008年的申办铺平了道路。他于2014年退出坛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+其实，石原首先被公众认识是作为一名作家。作为一名作家，他创作了许多有争议的作品，1955年，当他还是一桥大学的学生时，他因小说《太阳的季节》成为有史以来最年轻的芥川奖得主。2004年，他以第一人称“矿石”写他以前的“天敌”田中角荣的自传体小说《天赛》成为畅销书。
 
+信息来源：
 
+[【速報】石原慎太郎元都知事が死去　近年は脳梗塞や膵臓がん患う](https://news.yahoo.co.jp/articles/b126b9f149d73ec31770365d35e4d52ee3f0156f)
 
-郭文贵先生早在2019年曾多次向世界预警，中共政府近年来一直在研发用于维稳的准化学武器，并且其将使用某生化武器对付香港民众。直至2022年1月初，中共国内武汉市出现多例不明原因的肺炎患者。随后，经郭先生反复爆料，中共政府被迫承认此次冠状病毒肺炎疫情存在人传人现象，武汉随即进入封城状态。而在紧闭国门的同时，中共通过境外航班将这一被称为“中共病毒”的肺炎输送至全世界。
-
-另一方面，中共透过与其勾兑的WHO和NIH阻挠全球对中共病毒的溯源工作，并持续向全球继续放毒。目前，中共病毒在全球已经造成了3亿多人感染，数百万人死亡。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：Irene木木
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  
