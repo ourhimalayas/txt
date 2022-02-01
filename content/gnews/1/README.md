@@ -2,36 +2,35 @@
 ---
 
 
-## 今日盖特大V推荐 — Jason Miller （杰森·米勒）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1943714/)
+## 有声|喜马拉雅币一周分析与总结（1月24日-1月30日）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943776/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/a8rm0-dhhwv.jpg)
-**盖特链接**：[https://gettr.com/user/jasonmillerindc](https://gettr.com/user/jasonmillerindc)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/111.jpg)
-杰森·米勒自述：
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+过去一周喜马拉雅币价格加速攀升至50美元上方，最高涨幅约24%，平均日交易量约11万5千枚喜币。喜币上市以来总交易量约2670万枚 ，占今年总发行量的仅约2.67%。目前喜币交易在全球尚未完全开放，大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
 
-盖特CEO
-唐纳德·川普总统前高级顾问
-@Newsmax 撰稿人
+本周四，一篇来自英国金融科技资讯网站TechBullion的文章提到，喜交所是业内第一个运用人工智能技术识别人体行为与生物特征并与冷钱包安全措施相结合的加密货币平台。文章指出这一设计使喜交所的安全性达到业内最高。
 
-**大V 杰森·米勒介绍：**
+本周据郭文贵先生在大直播中透露，喜交所拥有世界上最好的KYC制度，目前有50亿美元现金正在等待KYC后进场。之后还会有上千亿美元进入。目前已经有六大品牌提前宣布接受喜币购买商品。喜支付上线后会有更多商家进场。随着喜支付的逐渐推广，会有金融机构开始接手相关业务，下一步会有国家主权机构接受并投资喜币，之后喜币将改变这个世界。
 
-杰森·米勒是美国通讯策略师、政治顾问和首席执行官，是唐纳德·川普 2016年总统竞选和川普政府过渡时期的首席发言人。在总统过渡期间，米勒最初被宣布为即将上任的白宫通讯主任，但由于个人原因删消了。
+郭先生还表示，喜支付会在春节甜蜜蜜运动期间上线，会把中共插在中国人民身上的血管改变方向，转而插到中共盗国贼自己的身上。
 
-米勒是川普2020年连任竞选活动的高级顾问。2021年1月，川普离开白宫后，米勒成为他的发言人。同年6月米勒辞去川普发言人的职务，成为保守派社交网络盖特的首席执行官。
+本周五喜交所进行了11小时的维护升级，并更新了官网的喜支付页面。目前官网已经提供了喜支付APP苹果与安卓版本的下载链接，预计在未来几天内可以开始使用。
 
-米勒曾是Jamestown Associates的合伙人兼执行副总裁。这是一家美国的政治、公共事务和企业广告公司，专门从事媒体制作、直邮、新闻关系和竞选管理。
+文字版原文：[喜马拉雅币一周分析与总结（1月24日-1月30日）](https://gnews.org/zh-hans/1935348/)
 
-**2021年3月，他成为Newsmax的撰稿人。**
+音频处理：Fei797
+发稿：Fei797
 
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

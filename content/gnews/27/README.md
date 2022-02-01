@@ -2,33 +2,36 @@
 ---
 
 
-## 大多数加拿大人希望终止所有COVID限制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1943344/)
+## 瑞典决定不建议为5-11岁的儿童接种COVID疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1943387/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0131_protest_10.jpg)图片来源：NationalPost
-根据《国家邮报》 (National Post) 2月1日报道，两项新的民意调查显示，随着Omicron变体的日渐消退，加拿大人的态度正在转向取消COVID限制。
+据《路透社》作者：Johan Ahlander，2022年1月27日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-41-e1643737488220.png)2021年3月2日，瑞典斯德哥尔摩北部索伦图纳一个教堂里，一名卫生工作者为一名老人接种辉瑞公司的COVID-19疫苗。
+图片来源：Fredrik Sandberg/TT News Agency/via REUTERS
+瑞典卫生局周四表示，瑞典决定不建议为5-11岁的儿童接种COVID疫苗，认为疫苗带来的风险大于其好处。
 
-专门从事加拿大舆论研究的非营利机构安格斯-里德研究所（Angus Reid Institute）周一公布的研究显示，54%的受访者同意结束所有的限制，32%的人强烈同意。
+瑞典卫生署官员Britta Bjorkholm在一次新闻发布会上说：“根据我们今天掌握的情况，孩子们患严重疾病的风险很低，我们没有看到为他们接种疫苗有任何明显的好处。”
 
-数据显示，最同意结束限制的省份是萨斯喀彻温省（62%）和魁北克省（59%），加拿大大西洋地区的大多数人（52%）不同意放宽限制。
+她补充认为，如果研究发生变化，或者如果新的变体改变了大流行趋势，可以重新考虑这一决定。
 
-加拿大首席公共卫生官员Theresa Tam博士在1月21日的新闻发布会上说，1月14日的最新模型更新表明，全国的Omicron感染可能在1月已经达到高峰，进入2月后会有所消退。但她呼吁大家继续保持警惕。
+瑞典在1月26日登记了超过4万个新病例，尽管测试有限，但已经是大流行期间单天最高病例数。虽然日感染记录被打破，但医疗保健并不像前几波那样紧张。
 
-安格斯-里德指出，尽管公共卫生官员强调面对OMICRON的警惕性，但在省一级，”疫苗护照计划已经开始出现分歧”。
+周四有101名COVID患者需要重症监护，远远低于2021年春季期间的400多名患者。自大流行开始以来，瑞典共有近16000人死于COVID。
 
-萨斯喀彻温省省长Scott Moe在1月29日对抗议联邦政府跨境疫苗强制的卡车司机发表的声明中说，他将 “在不远的将来 “结束该省目前的阴性测试证明和疫苗护照政策。他说，接种疫苗并不能减少病毒的传播，他已经完全接种了加强针，但最近感染了COVID-19。
+瑞典政府周三将限制措施延长了两周，包括餐馆的有限开放时间和室内场所的上座率限制，但表示希望在2月9日取消这些限制。
 
-Moe表示：”由于接种疫苗并没有减少传播，目前针对卡车司机的联邦边境强制疫苗政策没有任何意义。未接种疫苗的卡车司机并不比接种疫苗的卡车司机构成更大的传播风险”。
+文章来源: [https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/](https://www.reuters.com/world/europe/sweden-decides-against-recommending-covid-vaccines-kids-aged-5-12-2022-01-27/)
 
-该研究所说：“如果加拿大已经度过了OMICRON变体的最糟糕时期，公众情绪似乎正朝着开放社区的方向发展”。
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
 
-新闻链接：
-[https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
 
-[https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll\_4248078.html?utm\_source=morningbriefnoe&utm\_medium=email\_MB&utm\_campaign=mb-2022-01-31&utm\_content=News\_Majority\_of\_Canadians&est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D](https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll_4248078.html?utm_source=morningbriefnoe&amp;utm_medium=email_MB&amp;utm_campaign=mb-2022-01-31&amp;utm_content=News_Majority_of_Canadians&amp;est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑，发稿 Spirit
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 8:58 PM (UTC)`
+
+2月1号：尊敬的战友们好生鲜，阳谷县大县……说了就得干……说了就得算……承诺必须要兑现！天助，新中国联邦……🔥🔥🔥🔥🔥🔥🔥🔥❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️<br/>Himalaya Pay (HPay 或 喜支付）已经在今天大年初一正式上市了！大家可同时在苹果的App Store 或 Google Play 下载。HPay 颠覆了以虚拟货币支付和转账的方式、带领了购物支付的潮流，拉近了人与人之间的距离！无论是商家或个人，用Hpay支付或转账都是完全免费！<br/>感谢苹果公司和谷歌公司的大力支持，让我们在虎年的大年初一同时上线，让喜联储如虎添翼，虎虎生威！<br/>由于各国的金融法规不一样，如果你的国家的App Store 或 Google Play 下载不了HPay，这是HPay暂时不支持这些国家，请耐心等待。
+![img](https://media.gettr.com/group16/getter/2022/02/01/20/373a3956-2646-bab9-9191-a810f1d51d9d/fa9ef32a1eff85cb7311bb43244a819d.jpg)
+
+---
+
 `@miles 2/1/2022 3:46 PM (UTC)`
 
 2月1号：尊敬的战友们好！文贵在此衷心感谢所有的全球的灭共的战友！共产党已经走在灭亡的路上，我们要不骄不傲，战斗到直至彻底消灭中国邪恶的共产党为止，再次地祝福全球的人们和爆料革命的战友和家人们春节快乐！永远平安健康！
@@ -148,13 +155,6 @@ Limited Edition Exclusive Release for Chinese New Year.                         
 `@miles 1/30/2022 12:12 AM (UTC)`
 
 1月29号，Hcoin To the Moon MV上线第51天位列澳门🇲🇴iTunesMV榜首🥇，累计共38次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共34次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利,  柬埔寨和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1928543/<br/><br/>Jan 29, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 51 Day of Launch, hit No .1 for 38 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 34 times in total🎉🎉🎉<br/><br/>Hit No.1🥇on Cambodia 🇰🇭 iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, Cambodia and Laos 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 1/29/2022 10:09 PM (UTC)`
-
-1/27/2022 Miles Guo: I would like to thank the fellow fighter whose Twitter account is "Tai Ping Quan". He was the police officer who handled my case in 1989 and tweeted to clarify many facts about my case. The so-called verdict spread online by the CCP was completely fabricated.<br/><br/>1/27/2022 文贵直播：文贵要感谢这位推特帐号叫“太平犬”的战友，他是1989年办文贵案子的警察并且发推澄清了有关文贵案子的很多事实，中共在网上散布的所谓判决书纯粹是胡编乱造的<br/>
-![img](https://media.gettr.com/group8/getter/2022/01/29/22/944af1de-a763-40e3-f676-f012a414eda7/out.jpg)
 
 ---
 

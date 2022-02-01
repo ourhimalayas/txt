@@ -15,116 +15,116 @@
 
 ---
 
-### [今日盖特大V推荐 — Jason Miller （杰森·米勒）](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [DC每日热点0201](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [小特朗普鼓励卡车司机：“坚持到底，为你们而感到骄傲!”](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
-
-### [1/30/2022 文贵直播：王岐山作为中共国的所谓反腐沙皇，其大马仔董宏却因广国投几亿贪污案被判死缓](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [1/30/2022 文贵直播：外交“甜蜜蜜运动” &#8211; 听说欧洲几国要求撤回多余外交官家属被中共拒绝了，美国又要派几架军机去北京接人也被中共拒绝了，而文贵却成了西方政客和金融家最相信的人](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [加拿大再次被评为世界上最悲催的国家之一](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [1/31/2022 文贵虎年新春大直播：任何公开攻击战友的人都必须离开爆料革命，我们不要被中共拉仇恨](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [BC省父亲为不让孩子接种疫苗告上法庭](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [法官命令FDA加快提供疫苗数据，辉瑞介入庭审](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [1/31/2022 文贵虎年新春大直播：丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [多伦多似要超越温哥华成为加拿大最昂贵的房地产市场](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [Grindr在中共国遭审查](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [货运联盟表示&#8221;大量&#8221;抗议者与行业无关](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [数千人加入渥太华卡车司机抗议，总理贾斯汀·特鲁多保持沉默](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [1/31/2022 文贵虎年新春大直播：H-Pay上线意味着喜联储、喜币被打通了七通六脉，中共开出天价阻碍H-Pay上线](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
-
-### [为什么在某些地方接种双重疫苗的人比未接种疫苗的人更频繁地检测出 COVID 阳性](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [一辆装满冷冻菠菜的翻车运输卡车在 401 公路上造成“交通拥堵”](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [有声|新春快乐，灭共大吉！](/content/gnews/19/README.md)
+### [有声|喜马拉雅币一周分析与总结（1月24日-1月30日）](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [五月花简报（02/01/2022）](/content/gnews/20/README.md)
- ` mayflowertranslate`
+### [GTV新闻访谈简报|2022年2月1日早](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
 
-### [丹麦作出重大外交和安全政策调整，民主价值观排首位](/content/gnews/21/README.md)
+### [有声|GTV新闻访谈简报|2022年1月30日晚](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [今日盖特大V推荐 — Jason Miller （杰森·米勒）](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [DC每日热点0201](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [小特朗普鼓励卡车司机：“坚持到底，为你们而感到骄傲!”](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [特鲁多总理 COVID-19 检测呈阳性](/content/gnews/22/README.md)
+### [1/30/2022 文贵直播：王岐山作为中共国的所谓反腐沙皇，其大马仔董宏却因广国投几亿贪污案被判死缓](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [1/30/2022 文贵直播：外交“甜蜜蜜运动” &#8211; 听说欧洲几国要求撤回多余外交官家属被中共拒绝了，美国又要派几架军机去北京接人也被中共拒绝了，而文贵却成了西方政客和金融家最相信的人](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大再次被评为世界上最悲催的国家之一](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
+### [1/31/2022 文贵虎年新春大直播：任何公开攻击战友的人都必须离开爆料革命，我们不要被中共拉仇恨](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
 
-### [瑞典决定不建议为5-11岁的儿童接种COVID疫苗](/content/gnews/24/README.md)
+### [BC省父亲为不让孩子接种疫苗告上法庭](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [法官命令FDA加快提供疫苗数据，辉瑞介入庭审](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共冬奥会釆集美国顶尖运动员DNA的邪恶目的引发国际关注](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
+### [1/31/2022 文贵虎年新春大直播：丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
 
-### [新中国联邦成功举办迎虎年灭共春晚](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [多伦多似要超越温哥华成为加拿大最昂贵的房地产市场](/content/gnews/15/README.md)
+ ` MG FARM`
 
-### [大多数加拿大人希望终止所有COVID限制](/content/gnews/27/README.md)
- ` 温哥华扬帆农场`
-
-### [通货膨胀的政治力量](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [英国：接种两剂新冠疫苗的儿童死亡可能性高于正常儿童52倍](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [工业革命—从蒸汽机到区块链](/content/gnews/31/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [郭文贵先生宣布虎年新郭七条](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [最新：魁北克省政府让步，放弃“疫苗税”](/content/gnews/33/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [喜支付成功上线影响深远](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [台海两岸，春节油价不同步](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [厄瓜多尔总统寻求与中共国重新谈判债务问题](/content/gnews/36/README.md)
+### [Grindr在中共国遭审查](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十七）](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
+### [货运联盟表示&#8221;大量&#8221;抗议者与行业无关](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [数千人加入渥太华卡车司机抗议，总理贾斯汀·特鲁多保持沉默](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [1/31/2022 文贵虎年新春大直播：H-Pay上线意味着喜联储、喜币被打通了七通六脉，中共开出天价阻碍H-Pay上线](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [为什么在某些地方接种双重疫苗的人比未接种疫苗的人更频繁地检测出 COVID 阳性](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [一辆装满冷冻菠菜的翻车运输卡车在 401 公路上造成“交通拥堵”](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [有声|新春快乐，灭共大吉！](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [五月花简报（02/01/2022）](/content/gnews/23/README.md)
+ ` mayflowertranslate`
+
+### [丹麦作出重大外交和安全政策调整，民主价值观排首位](/content/gnews/24/README.md)
+ ` 秘密翻译组-原创组`
+
+### [特鲁多总理 COVID-19 检测呈阳性](/content/gnews/25/README.md)
+ ` MG FARM`
+
+### [美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [瑞典决定不建议为5-11岁的儿童接种COVID疫苗](/content/gnews/27/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共冬奥会釆集美国顶尖运动员DNA的邪恶目的引发国际关注](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新中国联邦成功举办迎虎年灭共春晚](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [大多数加拿大人希望终止所有COVID限制](/content/gnews/30/README.md)
+ ` 温哥华扬帆农场`
+
+### [通货膨胀的政治力量](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [英国：接种两剂新冠疫苗的儿童死亡可能性高于正常儿童52倍](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭文贵先生宣布虎年新郭七条](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [最新：魁北克省政府让步，放弃“疫苗税”](/content/gnews/35/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [喜支付成功上线影响深远](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [厄瓜多尔总统寻求与中共国重新谈判债务问题](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
