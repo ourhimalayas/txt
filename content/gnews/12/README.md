@@ -2,38 +2,19 @@
 ---
 
 
-## 有声|中共跪求美国不要离开
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940167/)
+## 日本排华战友亲身经历
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1940305/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月30日，郭文贵先生在盖特视频中连续爆料美国撤离驻北京大使馆后，中共对此事的反应。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-据内部战友披露，虽然中共恳求美国不要撤走全部驻北京人员，但美国仍派了多架军事医疗飞机已抵达北京首都机场。
+*发布：陶子*
 
-郭先生爆料，中共昨天和今天无数次地骚扰美国，开出各种优厚条件试图挽留，比如，恢复两国领导人最重要个人关系，落实拜登和习近平的电话视频会议，以及和美国共同面对世界难题、为世界负责。
-
-原文链接：[中共跪求美国不要离开](https://gnews.org/zh-hans/1932978/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

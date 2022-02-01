@@ -2,35 +2,42 @@
 ---
 
 
-## 有声|香草山农场之价值
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940259/)
+## 有声|乡下的第一个新年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940383/)
 
-配音：香草山巡管部– 文凯琳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022/1/29是纽约香草山农场壬寅年的新春联欢，由小飞象，大卫王做主持人，农场主长岛伟哥及铁血组的同仁们，老班长，木兰，草根，如水，小飞侠，同心同框，庆祝新年快乐。七哥作为特邀嘉宾，更作为建立新中国联邦的创世人，对香草山农场的付出做了最公正公平的肯定。
+配音：香草山佛教部 – 李傻
 
-七哥说香草山农场是培养人才的基地，是爆料革命有史以来培养战友帮助战友最多的一个农场，发挥了香草山这个名字的联续和传承，永远给别人做嫁妆是香草山的使命。
 
-正如铁血组如水战友说的那样，香草山也可以说是爆料革命的黄埔军校，输送了一批又一批优秀的人才出去，这是长岛哥和香草山整体管理团队的力量！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+回到乡下生活快有一年了。自从中共病毒出来后，真的厌倦了城市里的生活。头一年只是戴口罩还能忍受，第二年开始强打疫苗，不打就没有工作，以及其他的各种限制。让人难受的是周围的同事总用一种怀疑的眼光看过来并问道：你为什么不打？你不打就是对我们的不负责，你不打你要染上了就会传染给我们……, 领导：这是政治任务必须打。更伤心的是回到家里劝家人别打，可是家人不但不听还反问一句：什么副不副作用的？别人死得你不能死呀。我崩溃了，想起七哥的话收拾行李就回到了乡下。为了生存在乡下找了份工作。老板挺好的，是那种只看工作能力不追问别人隐私的人。
 
-原文链接：[香草山农场之价值](https://gnews.org/zh-hans/1934026/)
+今天大年三十，回亲戚家帮忙打扫卫生，由于没打疫苗寸步难行，回不了原来的家，这个虎年就在亲戚家过了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Happy_Lunar_New_Year.png)
+中午过后鞭炮声四处响起，忙把自己关在屋里，重看七哥的直播视频，视频里的七哥能让人心情好起来，忘掉所有的落寞，燃起新的希望。
 
-音频处理/发稿：Daxia
+灭共进入第五个年头，跟随七哥也进入第四年，七哥就像茫茫黑夜中的一盏灯照亮着前方的路。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+展望未来，正义必将战胜邪恶！中共必将灭亡！
 
+文字版原文：[乡下的第一个新年](https://gnews.org/zh-hans/1939787/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
 
  

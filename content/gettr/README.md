@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 2:53 AM (UTC)`
+
+1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
+![img](https://media.gettr.com/group36/getter/2022/02/01/02/b03df35a-43a6-2692-96cf-b65e84147455/d61821c6bea22a3d3d511a8416b0fd22.jpg)
+
+---
+
+`@miles 2/1/2022 2:45 AM (UTC)`
+
+1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
+![img](https://media.gettr.com/group21/getter/2022/02/01/02/6d50107f-63e5-6da7-870b-57ad12d8ad04/027f528427f7b9c01e56cb593f6f5b5d.jpg)
+
+---
+
 `@miles 2/1/2022 1:11 AM (UTC)`
 
 2022年壬寅年新春大直播
@@ -141,19 +155,6 @@ FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; B
 
 1/28/2022 Miles Guo’s GETTR: The CCP begged the US to withdraw only the personnel who tested positive for the virus, but the US sent several military medical aircraft, which have arrived at the Beijing Capital International Airport. The CCP is like a wolf disguised as a sheep in front of the Chinese people, whereas it is like a sheep disguised as a wolf when it's facing the West. I will deal a few more fatal blows to the CCP.<br/><br/>1/28/2022 文贵盖特：中共求美国只撤走病毒检测阳性的人员，但美国却派了多架军事医疗飞机已抵达北京首都机场；中共在中国人面前是披着羊皮的狼，在西方面前则是披着狼皮的羊；文贵再给你中共玩几个招杀手锏！
 ![img](https://media.gettr.com/group4/getter/2022/01/29/01/72f2295f-e4e4-fffb-b092-b2f5300770b1/out.jpg)
-
----
-
-`@miles 1/29/2022 12:27 AM (UTC)`
-
-1月28号，Hcoin To the Moon MV上线第50天位列澳门🇲🇴iTunesMV榜首🥇，累计共37次排名第一🎉🎉🎉<br/><br/>位列匈牙利🇭🇺iTunes MV摇滚榜首🥇，累计共33次排名第一🎉🎉🎉<br/><br/>“Fight for Hong Kong”位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，匈牙利和老挝的兄弟姐妹们!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1924888<br/><br/>Jan 28，2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 50 Day of Launch, hit No .1 for 37 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Hungary 🇭🇺 iTunes MV Rock Song Chart, hit No.1 for 33 times in total🎉🎉🎉<br/><br/>“Fight for Hong Kong” hit No.1 🥇on Laos 🇱🇦 iTunes Rock song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau Hungary, and Laos 🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 1/28/2022 9:17 PM (UTC)`
-
-1月28号：感谢战友凯莉，收藏的SNOW 的视频，一切都是如此的美好。
-![img](https://media.gettr.com/group17/getter/2022/01/28/21/fbcfa9ea-1a00-0614-b660-78adac0c273e/out.jpg)
 
 ---
 
