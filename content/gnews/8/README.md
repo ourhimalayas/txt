@@ -2,35 +2,33 @@
 ---
 
 
-## 澳媒报道：美国政府认为中共利用冬奥会转移各方对其人权侵害的注意力
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1942262/)
+## 美国国税局2019年即调查拜登家族与中共国关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1942291/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-31.png)
-来自网络截图
+翻译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2.jpg)
+**美国国税局2019年即调查拜登家族与中共国关系**
 
-澳洲主流媒体报道，美国政府否认中共国喉舌媒体称：美国“付钱给运动员在北京冬奥会期间‘制造骚乱’”。据称，中共国的指控是在本次“最政治化的奥运会”之前一周出现的。中共的喉舌称美国此举为“表达对中共国的不满”，并且目的是“将体育政治化，恶意破坏北京冬奥会”。
+一份送达摩根大通银行的机密传票显示，美国国税局对亨特·拜登（拜登总统的儿子）的刑事调查似乎早在2019年5月就已经召集了一个大陪审团。该传票还寻求詹姆斯·拜登（总统的弟弟）的银行记录，这似乎是另一个拜登家族成员首次因调查而浮出水面。
 
-文章中提到，中共国认为“华盛顿正在领导一群西方国家对奥运会的外交抵制”，理由就是中共国糟糕的人权记录，“特别是中共国对新疆西部地区穆斯林维吾尔人的镇压”。美国将中共国对于维吾尔族人民的人权伤害称为“种族灭绝”。
+布赖特巴特新闻（Breitbart News）获得的这份文件特别要求提供摩根大通银行（该文件称之为 “代理银行”）和中国银行（该文件称之为“发起行或收款行”）之间的相关交易信息。
 
-该报道指出，所有“参加抵制的国家没有派官员到北京参加周五的开幕式”。同时，美国驻北京大使馆“否认了”中共国官方喉舌的指控。文章引用美国大使馆发言人的相关电子邮件中内容称，“我们没有也没有协调关于参加奥运会的全球运动”。同时，美国官方发言人指出，“美国运动员有权根据奥运会的精神和宪章自由表达自己，其中包括促进人权”。
+该文件似乎表明，在拜登总统当年春天发起竞选时，美国特拉华州检察官办公室的联邦检察官已经组建了一个大陪审团，并要求出示与亨特和詹姆斯·拜登以及他们的两名商业伙伴德文·阿彻尔（Devon Archer）和埃里克·施维林（ Eric Schwerin）有关的银行记录。
 
-根据报道，美国方面表示，北京正试图“转移人们对其恶劣人权记录的注意力”。文章引用美方发言人观点，希望中共国“确保”美国运动员，以及所有运动员“在北京参加比赛的安全和福祉，并尊重他们的人权和基本自由”。
+传票中列出的企业名称有：Owasco、Skaneateles、RSP Holdings、RSP Investments、RSTP II Alpha、RSTP II Bravo、塞內卡环球顾问公司(Seneca Global Advisors)、亚喀巴国际（Aqaba International）、罗斯蒙特-塞内卡（Rosemont Seneca）、乌克兰天然气公司布利斯玛股份有限公司（Burisma Holdings）、渤海华美（上海）股权投资基金管理有限公司（ Bohai Harvest RST Shanghai Equity）、罗宾逊·沃克（Robinson Walker）、Hudson West（译注：亨特和华信能源联合成立的公司）、欧洲能源和基础设施集团有限公司（European Energy and Infras Group Limited）、Bladen Enterprises Limited。
 
-综上所述，笔者认为，本文集中体现了，中共国对于国际社会以美国为首的冬奥会抵制强烈不满。可是，不满有什么用呢？中共的不得人心，在国际环境下，已经成为定势和不可逆转。有了这个前提，和西方的整体性立场转向，中共国的冬奥会必定会是惨淡的景象。
+亨特·拜登在2020年12月的一份声明中透露，就在总统选举之后，他因可能的税务欺诈而受到联邦调查。当时据福克斯新闻和CNN报道，调查从2018年开始，正在调查亨特和他的商业伙伴是否违反了税收和洗钱法。CNN当时的报道说，调查的重点是亨特在中共国和其他国家的活动以及与“引发反情报问题顾虑的人”之交易。
 
-同时，中共国的人权现实，已经不可遮盖和没有任何的辩解空间。中共多年对于包括维吾尔族同胞在内的自己专权下的人民的欺压和残害，已经是不可否认的事实。通过爆料革命的真相传播，世界正在更加强烈地感受和体会中共的无底线和至极邪恶。
+亨特·拜登在2021年4月接受哥伦比亚广播公司采访时透露，他的律师没有在此案中进行认罪协议。
 
-此外，本次的冬奥会，各方面都对中共的主办形成碾压的挑战和一致性的对立。我们相信这样的一个动态，必定会形成不可阻挡的潮流。中共国虽然力图尽量为自己辩解，并企图将过错推给别人，可是世人已经在中共的邪恶罪行教育下，更加清醒。世界各国都会更多站起来，世界人民也更加坚定地站起来，反抗中共的暴政。自由和正义不可阻挡，真相和光明必将胜利。
+这份文件首先由前白宫官员加勒特·齐格勒（Garrett Ziegler）获得，他是彼得·纳瓦罗在白宫时期的贸易和制造业政策办公室前副主任，在2019-2021年任职，他向布莱巴特新闻提供了这份文件。在白宫任职后，齐格勒成立了一个“揭露腐败和勒索”的非营利性研究团体——马可波罗（Marco Polo），并一直在进行法医审查，并结合对亨特·拜登的笔记本电脑进行特别的独立调查。
 
-参考消息：
+齐格勒在给布赖特巴特新闻的一份声明中说：
 
-America rejects sinister accusation from China ahead of Winter Olympics
+“这份范围广泛的大陪审团传票表明，乔（拜登）的儿子和弟弟从中国银行的账户中收到了转账。剩下的问题是，正如之前的报道所证实的那样，为什么比尔·巴尔（Bill Barr 司法部长）直接干预，以确保特拉华州的美国检察官对拜登家的调查在17个多月内不被公开，直到选举后。戴维•韦斯(David Weiss特拉华州的检查官)和比尔·巴尔或司法部内部有良知的人应该为美国人民回答这个问题。
 
-[https://www.news.com.au/sport/olympics/america-rejects-sinister-accusation-from-china-ahead-of-winter-olympics/news-story/7f79510e197719aaf036e1cc90784856](https://www.news.com.au/sport/olympics/america-rejects-sinister-accusation-from-china-ahead-of-winter-olympics/news-story/7f79510e197719aaf036e1cc90784856)
+新闻链接：[https://www.breitbart.com/politics/2022/01/30/us-attorney-doc-irs-issued-grand-jury-subpoena-jpmorgan-hunter-james-biden-bank-records-probe-biden-familys-china-connections/](https://www.breitbart.com/politics/2022/01/30/us-attorney-doc-irs-issued-grand-jury-subpoena-jpmorgan-hunter-james-biden-bank-records-probe-biden-familys-china-connections/)
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
