@@ -2,26 +2,25 @@
 ---
 
 
-## 日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1941129/)
+## 日本F-15战机在海上失联
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941231/)
 
-#### 翻译：文斗
+稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4.png)
+图片来源于本文链接
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2.png)
-日本贸易和制药公司興和公司（ Kowa Co Ltd ）周一表示，抗寄生虫药物伊维菌素在联合非临床研究显示出对奥米炕（ Omicron ）和其他冠状病毒变体具有“抗病毒作用”。
+31日下午5点30分左右，一架从石川县小松空军基地起飞的航空自卫队F-15战斗机在该基地西北方向约5公里的海域上空从雷达上消失。 这架飞机正在进行训练，有两名机组人员。在该地区发现了几块漂浮的碎片，目前正在打捞，以确定它们是否是失踪飞机的一部分。国防部官员认为这架飞机可能已经坠毁。
 
-興和公司没有提供更多细节。 该公司一直与一家日本医学研究与开发机构，位于东京的医科大学-北里大学（Kitasato University）合作。
+航空自卫队正在搜寻这架飞机及其机组人员，并正在详细调查它是如何从雷达上消失的。 金泽市海岸警卫队也已派出一艘巡逻艇到现场查看情况。
 
-该研究于 2020 年 9 月 16 日开始，计划结束日期为 2022 年 3 月 31 日。该研究的标题为“安慰剂对照随机双盲（评估者、患者）多机构联合平行组比较试验，以测试伊维菌素对CCP病毒患者的疗效和安全性。”
+信息源：
 
-该临床试验正在进行中，日本国立保健医疗科学院官网可以查看[简报（日文版、英文版）](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)。
+[【速報】F-15戦闘機 海上で機体の一部見つかる　離陸直後 消息絶つ](https://nordot.app/860900347736457216)
 
-伊维菌素用于治疗动物和人类的寄生虫，但推广该药物治疗CCP病毒引发了争议。路透社在报道发表几小时后删除了原文中有关“ III 期临床试验中有效治疗 Omicron 的药物”的内容。但在The Gateway Pundit网站仍可以找到完整报道以及该研究的英文版报告文件。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-新闻链接：[1](https://www.thegatewaypundit.com/2022/01/japans-kowa-company-finds-ivermectin-effective-omicron-covid-variants-phase-3-trial/) [2](https://www.reuters.com/article/health-coronavirus-japan-kowa/japans-kowa-says-ivermectin-effective-against-omicron-in-phase-iii-trial-idUSL1N2UB0AV)
-
-日本国立保健医疗科学院官网 [https://rctportal.niph.go.jp/s/detail/um?trial\_id=jRCT2031200120](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)
 
  
 

@@ -2,27 +2,31 @@
 ---
 
 
-## 英国政府将取消强制对医护人员的疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941244/)
+## 如果北京冬奥会取消，意味着国家信用的彻底破产！
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941318/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5.png)
-图片来源于本文链接
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-伦敦，31 日，路透社，英国政府宣布了一项政策，撤销要求医务人员接种中共病毒（新冠病毒Covid-19）疫苗的决定。因为被警告说，在已经紧张的医疗中，会出现医务人员严重短缺的情况。
+冬奥会它是以国家名义举办，2022年北京冬奥会是共产党组织，为习近平政治加分。
 
-该计划是针对英国民保健服务(NHS)要求医护人员在4月1日之前完成疫苗接种的政策。该政策于去年11月公布后，遭到部分职员反对，称解雇不愿接种疫苗的医护人员会导致医疗服务从业者严重短缺。许多执政党成员也表示反对。
+如果取消冬奥会，比中国退出世贸组织还严重，原因是什么？取消冬奥会以后再有任何国际盛事，中国都会被审视。
 
-现任卫生部长31日表示，他将考虑这项政策对于高传染性和轻度症状的Omicron毒株的出现是否仍然必要。他告诉国会：“政府将废除这条规定。虽然疫苗仍然是抵御新冠病毒的最佳手段，但我认为它们不再与工作条件相提并论。”
+就全世界的领导人，我知道原来是约好的57国领导人参加，现在只剩3个国家参加。这三国的领导人想见习，习一个也没答应。
 
-消息来源：
+其中一个中东某国还有一个非洲某国啊，都是我拉的关系。
 
-[英政府、医療従事者のワクチン接種義務撤回へ　人員不足懸念で](https://jp.reuters.com/article/worldNews/idJPKBN2K624Z)
+现在这些人都问我为什么习近平让我们去却不见我们呢？他怕染毒，我难道不怕染毒嘛？你看看这次北京冬奥会，根本不存在美国、欧洲、澳大利亚、日本这种一线国家参加，二线国家都轮不着了，三线国家还想见习近平, 习近平却还不见。通过这次北京冬奥会，习的个人政治已经彻底破产，现在国家信用也将彻底破产。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/如果北京冬奥会取消，意味着国家信用的彻底破产！_01.jpg)
+2021年12月08日文贵大直播
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

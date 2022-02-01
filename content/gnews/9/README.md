@@ -2,11 +2,14 @@
 ---
 
 
-## 消灭共产党在二十大
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941274/)
+## 雅典娜时报-第191期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1941333/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+#### **《雅典娜时报》汇聚全球新闻时事**
 
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490364633138/155_7-1.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/937946490893127740/155_4-4.png?width=768&amp;height=1144)
 *发布：陶子*
 
 更多资讯，请关注：

@@ -2,24 +2,23 @@
 ---
 
 
-## 澳政府禁止未接种疫苗的父母探视患病子女
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1940653/)
+## 有声|拜登与中共签订中共病毒测试剂合同引发强烈不满
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1940779/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月27日，据澳洲媒体报道，西澳大利亚州州长颁布了一项关于中共病毒疫苗的新暴政：自1月31日起，未接种中共病毒疫苗的父母不得去医院探视自己生病的孩子。
-![](https://assets.gnews.org/wp-content/uploads/2022/01/截屏2022-01-31-下午10.37.24.png)
-报道提及，此项政策的目的在于利用中共病毒疫苗暴政将未接种疫苗的公民锁定在日常生活的很多区域之外，甚至包括他们缴纳过税收的公共空间，从而使这些民众的生活愈加艰难。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国媒体1月28日报道，拜登政府决定将超过10亿美元的资金授予一家生产中共病毒检测试剂盒的中共公司，引起了国会山共和党人的愤怒。
 
-然而，绝大多数的理智民众指责这项政策为一种威胁。他们表示，从澳大利亚新南威尔士州、维多利亚州，以及包括以色列在内的世界其他国家和地区的数据可以看出，疫苗暴政带来的高中共病毒疫苗接种率并没有真正阻止中共病毒的传播，同样的，限制未接种中共病毒疫苗群体的活动空间也起不到任何防护病毒的作用。
+众议员米歇尔·瓦尔茨说，这是“向帮助救火的纵火犯支付费用”，美国不能依赖中共这样的敌对国家，在与任何中共公司打交道时，所有资金都不可避免地进入中共的腰包，这会极大损害美国的国家安全。
 
-参考链接：[Unvaccinated parents BANNED from seeing their own sick kids](https://www.rebelnews.com/unvaccinated_parents_banned_from_seeing_their_own_sick_kids)
+另有一些议员认为，中共是病毒的发源地，在新冠病毒这件事上没有一丝一毫的透明度。中共应对向世界释放中共病毒负责。拜登政府应该利用和协助美国供应商，而不是从中共那里购买关键物资，这损害了美国的就业机会，是对美国企业的又一次侮辱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+文字版原文：[拜登与中共签订中共病毒测试剂合同引发强烈不满](https://gnews.org/zh-hans/1932646/)
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%B8%80%E6%9C%88%E5%B0%8F%E5%9B%BE-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

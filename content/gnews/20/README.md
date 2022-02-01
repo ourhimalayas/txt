@@ -2,47 +2,26 @@
 ---
 
 
-## 加拿大第一波抗议强制疫苗卡车队抵渥太华
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1941186/)
+## 英国政府将取消强制对医护人员的疫苗接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941244/)
 
-作者：银河系农场—骄子
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5.png)
+图片来源于本文链接
 
+伦敦，31 日，路透社，英国政府宣布了一项政策，撤销要求医务人员接种中共病毒（新冠病毒Covid-19）疫苗的决定。因为被警告说，在已经紧张的医疗中，会出现医务人员严重短缺的情况。
 
+该计划是针对英国民保健服务(NHS)要求医护人员在4月1日之前完成疫苗接种的政策。该政策于去年11月公布后，遭到部分职员反对，称解雇不愿接种疫苗的医护人员会导致医疗服务从业者严重短缺。许多执政党成员也表示反对。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
+现任卫生部长31日表示，他将考虑这项政策对于高传染性和轻度症状的Omicron毒株的出现是否仍然必要。他告诉国会：“政府将废除这条规定。虽然疫苗仍然是抵御新冠病毒的最佳手段，但我认为它们不再与工作条件相提并论。”
 
+消息来源：
 
+[英政府、医療従事者のワクチン接種義務撤回へ　人員不足懸念で](https://jp.reuters.com/article/worldNews/idJPKBN2K624Z)
 
-2022年1月28日，加拿大第一波抗议强制新冠疫苗卡车队已抵渥太华。数千名加拿大人冒着严寒天气，在道路和高速公路旁站了几个小时欢迎车队的到来。他们为车队加油，同时也为大规模后勤工作提供食物、饮料和用品。在加拿大政府多年悲观的厄运下，以及加拿大政府宣布即将到来的“死亡之冬”后，能听到这么富有感染力的欢呼声、看到风中飒爽飘扬的旗帜、见到幸福和微笑交织的场面，这是多么令人难以置信，也多么令人精神振奋。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file-scaled.jpg)
-卡车车队从西部的不列颠哥伦比亚省、东部的纽芬兰和南部的安大略省温莎出发，汽车、SUV、面包车和小型商用卡车一一呈现在大型车队长龙中。沿途每一条高速公路上，人群都在欢呼，并向车队挥舞支持。
-
-加拿大政府严酷的疫情隔离政策以及强制疫苗接种的情况，造成社会严重分离。自由车队的活动把热爱自由的人重新凝聚起来，这是人民的呼声与力量，这也表明平民主义才是民主政体核心所在。
-
-参考来源：
-
-[First Wave of Canadian Freedom Convoy Arrives in Ottawa](https://theconservativetreehouse.com/blog/2022/01/28/first-wave-of-canadian-freedom-convoy-arrives-in-ottawa/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-1.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  
