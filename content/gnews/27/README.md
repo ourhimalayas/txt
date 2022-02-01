@@ -2,24 +2,16 @@
 ---
 
 
-## 日本兴和制药公司证实伊维菌素有效
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1941782/)
+## COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941897/)
 
-**撰稿：日本东京方舟农场  海星**
+**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio-1.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+据新中国联邦及爆料革命发起人郭文贵于2月1日直播中表示，与他有联系的某一科学家在欧洲军事等级的医学研究所正在进行一项青蒿素鸡尾酒疗法的研究与测试。 他表示，这个青蒿素相关的鸡尾酒疗法能更深度的清除新冠疫苗余毒（可能指「新冠疫苗刺突蛋白引发的心肌炎、癌症及其他未知副作用」）。
 
-1月31日，日本知名制药公司兴和宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗中共病毒（新冠）的功效。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-5.jpg)（图片来源：路透社）
-据《路透社》报导，日本兴和制药公司当天对外表示，针对伊维菌素治疗中共病毒（新冠）的功效，该公司与北里大学合作研究的一份试验报告显示，伊维菌素在进行中共病毒（新冠）感染治疗的第三期临床试验中，不仅对奥密克戎（Omicron）病毒有效，对现有的变异病毒（如Delta）同样有效。
-
-此前，日本东京都便已配合数家制药公司开展伊维菌素治疗中共病毒（新冠）的临床试验。有分析人士表示，临床试验的开展意味着伊维菌素很快就能在日本获得批准，推向市场，有利于控制疫情。
-
-参考链接：
-1.[https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)
-2.[https://gnews.org/zh-hans/1699941/](https://gnews.org/zh-hans/1699941/)
-
-素材采编：海星
-编辑：文顺
-发布：爱放飞
+青蒿素相关的鸡尾酒疗法，据郭所述成本约为“一美金”，对新冠病毒有极高的治疗效用，甚至可能可以100%清除新冠疫苗的未知不良反应。 目前，并无更多关于青蒿素鸡尾酒疗法的信息。
+來源：[20m](https://gettr.com/user/20minfocus)[infocus](https://gettr.com/user/20minfocus)GETTR
+來源｜[GETTR](https://gettr.com/post/prpkcn65c4)
 
  
 

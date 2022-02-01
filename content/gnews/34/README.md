@@ -2,36 +2,45 @@
 ---
 
 
-## 欧洲各国政府的债务在疫情期间疯涨状况！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1941570/)
+## 年度回顾关键词 &#8211; 早期治疗药
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941609/)
 
-作者：Martin Armstrong
-发布日期：2022年02月01日
-新闻来源：https://www.statista.com/
-翻译：V 在途中
+作者：西班牙巴塞罗那喜悦农场
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02011.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-在疫情大流行期间，欧洲政府债务全面增加，但正如Statista的马丁·阿姆斯特朗（Martin Armstrong）在上图中所示，一些国家的影响比其他国家要严重得多。
+羟氯喹和伊维菌素作为中共病毒早期治疗药物已经被大量实例证明有奇效。
 
-由英国国家统计局编制的数据显示，所有欧盟国家债务平均增长了12.9个百分点。
+医学博士哈维曾指出，羟氯喹已经有65年的历史，是一种治愈过数以亿计的患者的安全药剂。而美国疾病控制与预防中心也在其官网上表明，婴儿、哺乳期的儿童和孕妇，老人和身患疾病的人都可以服用此种药物。另一方面，伊维菌素是一种有效抗多种寄生虫的治疗药物。由于伊维菌素低廉的价格，它是世界卫生组织基本药物标准清单中的一部分，更是基层健康卫生系统中非常重要的药物之一。
 
-您可以在Statista找到更多信息图表
+据郭文贵先生的情报显示，羟氯喹或伊维菌素与锌、维生素C、维生素D3配合服用可有效预防和治疗中共病毒感染。而GNews、GTV和盖特上很多医生的专业文章和访谈节目也清楚的解释了这两种早期治疗药物的安全性和有效性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-就一般政府债务总额而言，爱尔兰从2019年第四季度末到2021年第三季度末仅增长了0.4个百分点。另一方面，西班牙现在发现自己的产量增加了26.3个百分点。
+总编/编辑：Irene木木
+校对/发稿：为真不破20
 
-相比之下，英国则录得增长18.8%的变化。英国政府债务现在超过其GDP（103.7%），是战后时代的最高比率，甚至远远超过2008年金融危机造成的水平，该危机在2014/15年度达到峰值，占GDP的84.9%。
+**更多资讯，更多关注**
 
-应当可以判断：欧洲各国负债的大幅增长，可能对未来欧洲经济会造成巨大的影响！
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[新闻链接](https://www.statista.com/chart/26729/change-in-government-debt-european-countries-pandemic/)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-审核校对：Barry Jack
-上传排版：V在途中
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
