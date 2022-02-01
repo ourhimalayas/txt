@@ -2,41 +2,33 @@
 ---
 
 
-## 中俄勾兑，习近平只是普京玩弄的工具
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1943187/)
+## 大多数加拿大人希望终止所有COVID限制
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1943344/)
 
-作者：纽约香草山教育部- Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年1月30日直播中，向战友们深入解密了现在的俄乌局势，并强调，在这场国际博弈中，习近平只是普京手中把玩的工具而已。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0131_protest_10.jpg)图片来源：NationalPost
+根据《国家邮报》 (National Post) 2月1日报道，两项新的民意调查显示，随着Omicron变体的日渐消退，加拿大人的态度正在转向取消COVID限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6.jpeg)
+专门从事加拿大舆论研究的非营利机构安格斯-里德研究所（Angus Reid Institute）周一公布的研究显示，54%的受访者同意结束所有的限制，32%的人强烈同意。
 
-郭先生指出，虽然普京和习近平企图通过东西两线同时开战，让美国无法兼顾。但普京和习近平开战的目的截然不同，结果也截然不同。
+数据显示，最同意结束限制的省份是萨斯喀彻温省（62%）和魁北克省（59%），加拿大大西洋地区的大多数人（52%）不同意放宽限制。
 
-普京通过制造乌克兰危机跟美国和欧洲谈条件，如果美欧同意俄罗斯把天然气管道铺设到欧洲，俄罗斯就拥有了一个插在欧洲人血管上的赚钱工具，俄罗斯的GPD会翻倍的增长，同时俄罗斯西部的战略线会西扩几千公里。
+加拿大首席公共卫生官员Theresa Tam博士在1月21日的新闻发布会上说，1月14日的最新模型更新表明，全国的Omicron感染可能在1月已经达到高峰，进入2月后会有所消退。但她呼吁大家继续保持警惕。
 
-如果俄乌开战，俄罗斯将在几年内会受到美国的经济制裁，但却可以收复苏联时期失去的国土，在西线取得战略优势。
+安格斯-里德指出，尽管公共卫生官员强调面对OMICRON的警惕性，但在省一级，”疫苗护照计划已经开始出现分歧”。
 
-习近平打台湾的目的，仅仅是为了满足他愚蠢的做千年明君的梦想，中共进攻台湾，一旦开战，无论是常规战争还是核战，中共都毫无胜算。而且，一旦开战中共国的GDP会骤降，同时还会造成数十万中共百姓的死亡。
+萨斯喀彻温省省长Scott Moe在1月29日对抗议联邦政府跨境疫苗强制的卡车司机发表的声明中说，他将 “在不远的将来 “结束该省目前的阴性测试证明和疫苗护照政策。他说，接种疫苗并不能减少病毒的传播，他已经完全接种了加强针，但最近感染了COVID-19。
 
-郭先生强调，俄乌开战会加速欧洲与中共的决战，因为欧洲已经清楚的意识到，普京开战的底气来自中共对俄罗斯的经济支持。消灭中共是解决俄乌危机最有效的办法。
+Moe表示：”由于接种疫苗并没有减少传播，目前针对卡车司机的联邦边境强制疫苗政策没有任何意义。未接种疫苗的卡车司机并不比接种疫苗的卡车司机构成更大的传播风险”。
 
-参考链接：[2022.1.30文贵先生爆料 中俄勾兑，习近平只是普京玩弄的工具](https://gnews.org/zh-hans/1933442/)
+该研究所说：“如果加拿大已经度过了OMICRON变体的最糟糕时期，公众情绪似乎正朝着开放社区的方向发展”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+新闻链接：
+[https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
 
-总编：Zion文恩
-编辑：文真
-校正/发稿：谐趣园
+[https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll\_4248078.html?utm\_source=morningbriefnoe&utm\_medium=email\_MB&utm\_campaign=mb-2022-01-31&utm\_content=News\_Majority\_of\_Canadians&est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D](https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll_4248078.html?utm_source=morningbriefnoe&amp;utm_medium=email_MB&amp;utm_campaign=mb-2022-01-31&amp;utm_content=News_Majority_of_Canadians&amp;est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+编辑，发稿 Spirit
 
  
 
