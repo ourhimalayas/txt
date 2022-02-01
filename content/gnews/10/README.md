@@ -2,26 +2,25 @@
 ---
 
 
-## 日本医药公司称伊维菌素在研究中显示对 Omicron有 “抗病毒作用”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1941129/)
+## 2022春节的北京，病毒＋奥运已年味儿不再
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941216/)
 
-#### 翻译：文斗
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3.png)
+（图片源自本文链接）
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2.png)
-日本贸易和制药公司興和公司（ Kowa Co Ltd ）周一表示，抗寄生虫药物伊维菌素在联合非临床研究显示出对奥米炕（ Omicron ）和其他冠状病毒变体具有“抗病毒作用”。
+２月１日朝日电视新闻消息：距北京奥运会只有三天时间了。历年春节，北京访客最多的寺庙已关闭，人们被要求不要外出用餐。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-4.png)
+有北京市民表示人：确实有点失望，但我今天一定要来，心到神知。
 
-興和公司没有提供更多细节。 该公司一直与一家日本医学研究与开发机构，位于东京的医科大学-北里大学（Kitasato University）合作。
+每年春节的北京，最受初拜者欢迎的藏传佛教寺庙也因中共病毒（新冠病毒Covid-19）扩散而关闭。北京市还要求人们在节日期间限制外出就餐，不超过10人，不超过2小时，并避免长时间交谈。从2日开始，将在中共国的长城上进行为期三天的火炬传递。届时，长城将不对公众开放。
 
-该研究于 2020 年 9 月 16 日开始，计划结束日期为 2022 年 3 月 31 日。该研究的标题为“安慰剂对照随机双盲（评估者、患者）多机构联合平行组比较试验，以测试伊维菌素对CCP病毒患者的疗效和安全性。”
+信息来源：[北京五輪まであと3日 北京では寺院閉鎖で異例の春節（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/37fe30c7d683a7a918990832a1b4e2f4bd14bd5f)
 
-该临床试验正在进行中，日本国立保健医疗科学院官网可以查看[简报（日文版、英文版）](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-伊维菌素用于治疗动物和人类的寄生虫，但推广该药物治疗CCP病毒引发了争议。路透社在报道发表几小时后删除了原文中有关“ III 期临床试验中有效治疗 Omicron 的药物”的内容。但在The Gateway Pundit网站仍可以找到完整报道以及该研究的英文版报告文件。
-
-新闻链接：[1](https://www.thegatewaypundit.com/2022/01/japans-kowa-company-finds-ivermectin-effective-omicron-covid-variants-phase-3-trial/) [2](https://www.reuters.com/article/health-coronavirus-japan-kowa/japans-kowa-says-ivermectin-effective-against-omicron-in-phase-iii-trial-idUSL1N2UB0AV)
-
-日本国立保健医疗科学院官网 [https://rctportal.niph.go.jp/s/detail/um?trial\_id=jRCT2031200120](https://rctportal.niph.go.jp/s/detail/um?trial_id=jRCT2031200120)
 
  
 
