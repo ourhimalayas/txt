@@ -2,52 +2,28 @@
 ---
 
 
-## 甜蜜蜜运动在中共国发酵
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1941527/)
+## 七哥谈自己如何做人（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941659/)
 
-作者：纽约香草山农场—文鹰
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥谈自己如何做人（一）-.jpg)
+我不想把你老江推向敌人那一面，但是我也不希望你用战友这个身份，你把战友们全变成连你智商的亿分之一都不如的人，你觉得我能创造出喜联储，我没有这个情商和智商吗？
 
+就像我们每天在救人，很多战友救完以后，说七哥都是你救了我。告诉战友句话，如果你觉得都是我的话，我就白救你了。送药的不是我，买药的不是我，买药的钱是来自于战友捐的钱。没有新中国联邦没有爆料革命，你根本不知道郭文贵是谁。
 
+我给你送药我都不知道从哪送去，你可以说，爆料革命新中国联邦战友们和郭文贵救了你，我已经觉得，我真的就够不要脸的了。没有你们我真的狗屁都不是，昆仑山喜马拉雅山，你去看看最核心是什么？每个人都很渺小的，大自然的力量是永恒的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+集体的力量形成了山，山之所以广，之所以大，之所以雄伟，之所以包容万物，才成为山和河海之差距，是死的和活的，包容和不包容的差距。河沟，那就是因为你太狭窄，你不能包容。你没有多大价值，七哥最多是一个小河沟。你不能把我当成大海和山川，我就是那其中的一份子，因为你们，我才显出了我。就像今天老江要卖这个币一样。
 
+*发布：开智则立*
 
-
-据2022年1月31日盖特消息，中共国国家电视台地方电视台在迎新春庆祝晚会上播出“甜蜜蜜”歌曲的背景音乐，地方电视台在迎新春庆祝晚会上播出“甜蜜蜜”现场歌手歌唱。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file-1.png)
-郭文贵先生倡导的甜蜜蜜运动引起中共统治阶层的极度恐慌，中共不惜使用专制宣传机器，即刻在网络媒体上封杀“甜蜜蜜”这首歌曲。 盖特视频显示，央视中央四台用一段“甜蜜蜜”音乐做为背景音乐。而四川电视台节目，则放出两位歌手对“甜蜜蜜”歌曲的倾情演唱。
-
-甜蜜蜜运动自北京二环使馆区爆发以来，影响深远。中共国央视台及地方电视台春晚节目突破封锁放出禁歌，标志着该灭共正义运动在中共国大陆深得人心、开花结果。
-
-参考来源：
-
-1. [https://gettr.com/post/prlodlf07e](https://gettr.com/post/prlodlf07e)
-
-2. [https://gettr.com/post/prltjq3d93](https://gettr.com/post/prltjq3d93)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
-
-
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

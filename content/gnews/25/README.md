@@ -2,54 +2,23 @@
 ---
 
 
-## 普京进攻乌克兰会加速欧洲与中共决战
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1941303/)
+## 黄金部队，腐败（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1941382/)
 
-作者：纽约磐石农场—在远方
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/黄金部队，腐败-（五）-.jpg)
+什么叫社会主义，有关系才主义，什么叫社会主义，有权力才有主义。什么叫共产主义，死越来越多的人把财富集中在几个人身上，享受一切的，爹亲娘亲不如党亲。那就叫共产主义。你问这个问题不太天真，你是站在日本问中共的问题不太傻了嘛，你自己穿上西装问猪圈里的猪，你怎么吃猪食的？猪会告诉你说我就是猪，我发现你不是猪，你是郭文贵，你只是穿了个猪皮而已。是吗，我这时候脱下猪皮，哎，我就是郭文贵，我是七哥。就是这么简单的事。我们战友所有对昆仑山，对这个喜马拉雅山，最高境界的就是叶钊颖去过，上过山，这是最高境界，觉得雪山纯洁。找了昆仑山找出来一个解放军的一个正常的军事基地，你就觉得解密了。你能知道几个峰你都不错，你想想多可悲呀。连着哈萨克斯族的青青草原，他知道新疆啥呀，他在新疆享受什么样的新疆生活，他去过几次喀什，喝过多少次帕米尔高原的水。你真的以为你知道吗？你啥都不知道。这就是共产党。把所有的中国人圈在了一个圈里面。
 
+2022年1月12日大直播
 
+发布： 星谕
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-3.jpg)
-
-
-
-
-
-郭文贵先生在2022年1月30日的直播中爆料，普京进攻乌克兰会加速欧洲与中共决战。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file.png)
-郭先生说，在新中国联邦与欧洲的合作者全力停止全世界疫苗灾难的时候，欧洲人意识到，如果普京下令俄军进攻乌克兰，将会加速欧洲和中共的决战。欧洲合作者表示：普京能发动侵略和敢于发动侵略的本质是因为习近平统治的中共国给了普京巨大的经济支持。普京意图阻止欧洲东扩的根本原因就是因为中共给了普京的两个合同，总共价值一万亿美元，这能够让俄罗斯扩张军事。
-
-另外，由于中共国的数字人民币以及人民币国际化，这些都助长了俄罗斯妄图侵略乌克兰的野心，欧洲也将面临着噩梦。该合作者表示，在面临俄罗斯西扩的威胁下，欧洲将会别无选择地先消灭中共。只有中共不能再给俄罗斯经济援助，然后欧洲才会动手攻击俄罗斯。
-
-欧洲合作者还强调说，虽然中共有核武器，但是美国和欧洲都有应对的办法。欧洲只会赢而不会输，没有任何可能会输。在常规战争的条件下，电子战、潜艇战、海战，欧洲更将是100%会赢。如果美国再加入的话，那消灭中共就是几分钟的事情，而且还有澳大利亚和日本的加入，消灭中共将是轻而易举的事情。
-
-参考来源：
-
-[https://www.gettr.com/post/prk9cub4f7](https://www.gettr.com/post/prk9cub4f7)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-2.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
