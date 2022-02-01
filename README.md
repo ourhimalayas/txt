@@ -18,80 +18,80 @@
 ### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/1/README.md)
  ` YALUN 亚伦`
 
-### [改革体制改变政治制度就无异于自杀，习近平将何去何从](/content/gnews/2/README.md)
+### [文贵先生盖特精要2022/02/01](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [改革体制改变政治制度就无异于自杀，习近平将何去何从](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《美国竞争法》强化与中共国竞争和确保芯片供应](/content/gnews/3/README.md)
+### [《美国竞争法》强化与中共国竞争和确保芯片供应](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本国会通过决议关注中共国人权](/content/gnews/4/README.md)
+### [日本国会通过决议关注中共国人权](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年壬寅年新春大直播：青蒿素鸡尾酒是毒疫苗的解药](/content/gnews/5/README.md)
+### [2022年壬寅年新春大直播：青蒿素鸡尾酒是毒疫苗的解药](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（二）](/content/gnews/6/README.md)
+### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（二）](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声|喜马拉雅币一周分析与总结（1月24日-1月30日）](/content/gnews/7/README.md)
+### [有声|喜马拉雅币一周分析与总结（1月24日-1月30日）](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [白宫预计下月发布数字货币条例](/content/gnews/8/README.md)
+### [白宫预计下月发布数字货币条例](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2022年2月1日早](/content/gnews/9/README.md)
+### [GTV新闻访谈简报|2022年2月1日早](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|GTV新闻访谈简报|2022年1月30日晚](/content/gnews/10/README.md)
+### [有声|GTV新闻访谈简报|2022年1月30日晚](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [今日盖特大V推荐 — Jason Miller （杰森·米勒）](/content/gnews/11/README.md)
+### [今日盖特大V推荐 — Jason Miller （杰森·米勒）](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC每日热点0201](/content/gnews/12/README.md)
+### [DC每日热点0201](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [小特朗普鼓励卡车司机：“坚持到底，为你们而感到骄傲!”](/content/gnews/13/README.md)
+### [小特朗普鼓励卡车司机：“坚持到底，为你们而感到骄傲!”](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/14/README.md)
+### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [1/30/2022 文贵直播：王岐山作为中共国的所谓反腐沙皇，其大马仔董宏却因广国投几亿贪污案被判死缓](/content/gnews/15/README.md)
+### [1/30/2022 文贵直播：王岐山作为中共国的所谓反腐沙皇，其大马仔董宏却因广国投几亿贪污案被判死缓](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/30/2022 文贵直播：外交“甜蜜蜜运动” &#8211; 听说欧洲几国要求撤回多余外交官家属被中共拒绝了，美国又要派几架军机去北京接人也被中共拒绝了，而文贵却成了西方政客和金融家最相信的人](/content/gnews/16/README.md)
+### [1/30/2022 文贵直播：外交“甜蜜蜜运动” &#8211; 听说欧洲几国要求撤回多余外交官家属被中共拒绝了，美国又要派几架军机去北京接人也被中共拒绝了，而文贵却成了西方政客和金融家最相信的人](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大再次被评为世界上最悲催的国家之一](/content/gnews/17/README.md)
+### [加拿大再次被评为世界上最悲催的国家之一](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [1/31/2022 文贵虎年新春大直播：任何公开攻击战友的人都必须离开爆料革命，我们不要被中共拉仇恨](/content/gnews/18/README.md)
+### [1/31/2022 文贵虎年新春大直播：任何公开攻击战友的人都必须离开爆料革命，我们不要被中共拉仇恨](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [BC省父亲为不让孩子接种疫苗告上法庭](/content/gnews/19/README.md)
+### [BC省父亲为不让孩子接种疫苗告上法庭](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [法官命令FDA加快提供疫苗数据，辉瑞介入庭审](/content/gnews/20/README.md)
+### [法官命令FDA加快提供疫苗数据，辉瑞介入庭审](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [1/31/2022 文贵虎年新春大直播：丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看](/content/gnews/21/README.md)
+### [1/31/2022 文贵虎年新春大直播：丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [多伦多似要超越温哥华成为加拿大最昂贵的房地产市场](/content/gnews/22/README.md)
+### [多伦多似要超越温哥华成为加拿大最昂贵的房地产市场](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [Grindr在中共国遭审查](/content/gnews/23/README.md)
+### [Grindr在中共国遭审查](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [货运联盟表示&#8221;大量&#8221;抗议者与行业无关](/content/gnews/24/README.md)
+### [货运联盟表示&#8221;大量&#8221;抗议者与行业无关](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [数千人加入渥太华卡车司机抗议，总理贾斯汀·特鲁多保持沉默](/content/gnews/25/README.md)
+### [数千人加入渥太华卡车司机抗议，总理贾斯汀·特鲁多保持沉默](/content/gnews/26/README.md)
  ` MG FARM`
-
-### [1/31/2022 文贵虎年新春大直播：H-Pay上线意味着喜联储、喜币被打通了七通六脉，中共开出天价阻碍H-Pay上线](/content/gnews/26/README.md)
- ` 秘密翻译组-北美组`
 
 ### [为什么在某些地方接种双重疫苗的人比未接种疫苗的人更频繁地检测出 COVID 阳性](/content/gnews/27/README.md)
  ` MG FARM`
