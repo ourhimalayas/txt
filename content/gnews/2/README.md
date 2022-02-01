@@ -2,36 +2,43 @@
 ---
 
 
-## MV版Hcoin To the Moon上线54天第41次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1942807/)
+## 记录显示中共政府对美国外交官进行了病毒肛门拭子测试
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1942866/)
 
-2/1/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线54天第41次位列澳门iTunes热门音乐视频榜榜首，第48次位列前三名
+翻译：波士顿五月花  jiasen
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/记录显示中共政府对美国外交官进行了中共病毒肛门拭子测试.jpg)www.foxnews.com
+Records reveal Chinese government performed anal swab COVID-19 tests on US diplomatic officials
+
+美国国务院显示：中共政府要求美国驻华外交官接受中共(Covid-19)病毒肛门拭子测试。司法观察作为回应《信息自由法案》诉讼国务院而获得的文件显示，一名美国雇员在其公寓接受了中共(Covid-19)病毒肛门拭子测试。
+
+去年 6 月，司法观察提交了《信息自由法案》请求，要求提供“关于美国外交人员在中共国或寻求进入中共国时接受中共(Covid-19)病毒肛门拭子测试的记录，包括有关此类测试的所有投诉和通讯记录。” 该请求并未得到答复，因此导致司法观察提起诉讼。
+
+尽管某些信息已被隐藏，但官员往来的电子邮件证实：美国雇员被通过肛门拭子的方式检测了中共(Covid-19)病毒。
+
+美国驻沈阳领事馆的一名综合事务官员(姓名已被隐去)于2021 年 1 月 22 日发送了一封电子邮件，主题为：“新的测试方法？” 电子邮件中写道：“来自[被隐藏]的一位同事告诉我们组的[被隐藏]，他在他的公寓内被做了中共(Covid-19)病毒肛门拭子。只是提醒一下，如果你们还没有处理这个问题，我确信它很快就会成为爆炸新闻…..。员工的名字是[被隐藏]。在事情开始发酵之前先告之你们一下。”
+
+一位姓名被隐藏的官员随后回应说：“这是在哪个城市发生的？测试号码是什么？他有没有说他们是否事先通知会以这种方式进行测试？是否提供给他了选择权。”
+
+一位姓名被删除的官员给予了回复，并通知了另一位官员：事件发生在北京，被测试的美国人的公寓里。这位官员在电子邮件中写道：“据我所知，没有通知或选项”。他不得不做了鼻腔和肛门拭子测试。
+
+司法观察还报道称，2021 年 1 月 22 日，美国驻沈阳领事馆一名被姓名被隐藏的管理人员发送了一封电子邮件，主题为“回复：外交官不做肛门拭子”。
+
+“FAO [外国地区办事处] 告诉大使馆，要求提供肛门拭子是错误的，而且它不适用于外交官。[被隐藏] 将如何应对还不确定，但现在我们必须告诉大家他们不必这样做。据报，你是自己私下做的，所以没有我设想的那么糟糕。”
+
+一位姓名被隐藏的美国官员在 2021 年 1 月 26 日的讯息中表达了对中共(Covid-19)病毒肛门测试的沮丧，写道：“我希望 GSO [综合事务办公室] 和到北京的VIP访问可以对此事有所行动。”
+
+一位姓名被隐藏的官员于 2021 年 1 月 27 日写道：“我已要求 [被隐藏]就肛门拭子和环境测试的事宜立即联系 [被隐藏]。他现在正在打电话给他们。”
+
+同天，姓名被隐藏的官员给予了回复：“请联系[被隐藏]。[被隐藏]取消了肛门拭子测试，并表示口腔或鼻腔拭子是可被接收的。他还取消了公寓内部环境测试，因为对这两件事都提出了抗议”。
+
+新闻来源: [Records reveal Chinese government performed anal swab COVID-19 tests on US diplomatic officials](https://www.foxnews.com/politics/records-reveal-chinese-government-performed-anal-swab-covid-19-tests-on-u-s-diplomatic-officials)
 
 * * *
 
-[【PDF 下载】Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+*素材来源：一尘*
 
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Tuesday-1-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*编辑* *&**发布：**jamie(**文胤**)*
 
  
 
