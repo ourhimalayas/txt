@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/1/2022 2:57 PM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: The CCP has been using the same lies to brainwash the Lao Bai Xing for 70 years, oppressing the people yet making them believe that they should thank the CCP for everything.<br/><br/>1/31/2022 文贵虎年新春大直播：中共70年来用同样的谎言给老百姓洗脑， 压榨人民的同时还要让人感谢他们<br/>
+![img](https://media.gettr.com/group42/getter/2022/02/01/14/c625babc-f857-bd72-75ef-77adce92d10c/out.jpg)
+
+---
+
 `@miles 2/1/2022 11:34 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" <br/><br/>1/31/2022 文贵虎年新春大直播：<br/>新中国联邦版《一帘幽梦》
@@ -148,13 +155,6 @@ Limited Edition Exclusive Release for Chinese New Year.                         
 
 FOX NEWS: Internal Documents Reveal Wuhan Lab Origins of CCP Virus Downplayed; Bombshell Documents Debunk Dr. Fauci’s Narrative on COVID’s Origin.<br/><br/>内部文件揭示中共病毒武汉实验室起源论被诸如福奇等所谓的”科学家“淡化。
 ![img](https://media.gettr.com/group18/origin/2022/01/29/21/776df428-dce3-a3d8-64d7-17c29bfac375/out.jpg)
-
----
-
-`@miles 1/29/2022 6:22 PM (UTC)`
-
-1月29号：【🧧求七哥Gettr首发🧧   <br/><br/>《我剪的视频😂请多关照！🙏】
-![img](https://media.gettr.com/group45/getter/2022/01/29/18/21e838f2-d5f5-7dd9-dca4-8dfc178192d7/out.jpg)
 
 ---
 

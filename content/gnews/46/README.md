@@ -2,30 +2,30 @@
 ---
 
 
-## 欧洲三国电视节目谈论中共威胁台湾
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1940490/)
+## 欧洲商会表示 ：香港可能会在2024年之前保持隔离状态
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1940594/)
 
-作者：纽约磐石农-在远方
+作者：纽约香草山教育部-Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-2.jpeg)
 
 
 
-台媒报道，台湾驻德国代表谢志伟在社交媒体撰文指出，当地时间1月28日，总部设在德国，由德国、奥地利和瑞士公共电视台联合运作的3sat电视台，播出一集以民主和专制冲突为主题的节目，其中台湾与中共，乌克兰和俄罗斯是两个最具代表性的焦点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/phpIsCHmz.jpg)
 
-谢志伟说，该节目内容强调，台湾身处台湾海峡与西太平洋的关键战略地位，如果中共侵略台湾得逞，将会致使英法德等贸易大国，遭受巨大损失。
+香港欧洲商会在一份草案中表示，由于施行严格的中共病毒管控政策，香港可能要到 2024 年初才能重新开放，这可能会引发外国公司和员工的外流，并危及其作为世界金融中心的地位。
 
-谢志伟表示，在该节目介绍台湾时，旁白是以“岛屿共和国”称呼台湾，并指出面对中共的武力威胁，台湾会得到美国的支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/95680aa5549f487e23356890080fa4d4-696x464-1.jpg)
 
-新闻链接：
+1 月份香港中共病毒感染人数激增，当局一直在努力控制，但由于旅行限制和间歇性封锁加速了人才从这个前英国殖民地流失，跨国公司将越来越多地将专注于把将其亚洲区域团队转移到新加坡或首尔。欧洲商会预计这次的人口外流，可能是香港有史以来规模最大的一次。香港可能会失去其作为国际商业中心的地位。
 
-[https://news.ltn.com.tw/news/politics/breakingnews/3816886](https://news.ltn.com.tw/news/politics/breakingnews/3816886)
+该商会建议外国企业应该假设香港很可能在未来12-36个月内处于国际旅行半关闭状态。并强调，人才才是最宝贵的，香港应该采取措施留住人才，并坚持下去。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpg)
+参阅链接：
+
+[https://www.asahi.com/ajw/articles/14534238](https://www.asahi.com/ajw/articles/14534238)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 
 编辑/校对/发稿：遍地开花
 
@@ -41,7 +41,7 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
 
 
 

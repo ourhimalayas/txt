@@ -2,48 +2,55 @@
 ---
 
 
-## 欧洲商会表示 ：香港可能会在2024年之前保持隔离状态
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1940594/)
+## 年度回顾关键词 &#8211; 中共邪教组织
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941139/)
 
-作者：纽约香草山教育部-Naughty(文行)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-2.jpeg)
+作者：温哥华扬帆农场 – shuang/文敏
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-香港欧洲商会在一份草案中表示，由于施行严格的中共病毒管控政策，香港可能要到 2024 年初才能重新开放，这可能会引发外国公司和员工的外流，并危及其作为世界金融中心的地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/95680aa5549f487e23356890080fa4d4-696x464-1.jpg)
+郭文贵先生在大直播中谈到了中共实为邪教组织的7大特征：
 
-1 月份香港中共病毒感染人数激增，当局一直在努力控制，但由于旅行限制和间歇性封锁加速了人才从这个前英国殖民地流失，跨国公司将越来越多地将专注于把将其亚洲区域团队转移到新加坡或首尔。欧洲商会预计这次的人口外流，可能是香港有史以来规模最大的一次。香港可能会失去其作为国际商业中心的地位。
+第一，教主崇拜。中共善于造神，其往往将独裁统制者塑造成人们的精神领袖。
 
-该商会建议外国企业应该假设香港很可能在未来12-36个月内处于国际旅行半关闭状态。并强调，人才才是最宝贵的，香港应该采取措施留住人才，并坚持下去。
+第二，精神控制。中共通过严控宣传出版、文化教育和艺术体育等各个领域洗脑中共国内的民众。
 
-参阅链接：
+第三，编造邪说。中共将各式歪理邪说包装成民主正义的思想灌输给中国人民，制造大量不知善恶、不辨黑白的愚民。
 
-[https://www.asahi.com/ajw/articles/14534238](https://www.asahi.com/ajw/articles/14534238)
+第四，篡改历史。中共篡改历史，为自己歌功颂德，欺骗不明就里的百姓。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+第五，聚敛钱财。中共不择手段地剥夺私有财产并剥削老百姓，将大量的财富聚敛到少数盗国贼家族手中。
 
-编辑/校对/发稿：遍地开花
+第六，秘密结社。中共自成立以来，其所有活动均不公开透明，此外，加入其中需要经过严格的审查和宣誓，这无一不彰显其邪教气息。
+
+第七，对抗社会。中共以民主社会为敌，并通过各种政治运动和强制手段对民众进行监控、打压，制造种族大屠杀。
+
+郭先生指出，中共就是人类最大的邪教组织！中共不灭，灾难不止!
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+总编/编辑：Irene木木
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-4.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

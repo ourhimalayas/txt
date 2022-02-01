@@ -2,56 +2,34 @@
 ---
 
 
-## 年度回顾关键词 &#8211; 中共邪教组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941139/)
+## 中日财经爆|索罗斯警告：中共国正面临经济危机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941305/)
 
-作者：温哥华扬帆农场 – shuang/文敏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-1.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fdw%2F2XBXKA9IWhBEoZBg7A7bOilqcJk%253D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20170209%2F1486622987589c110b51d99.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dwnews.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60256677%2F%25E7%25B4%25A2%25E7%25BD%2597%25E6%2596%25AF%25E6%2589%25B9%25E4%25B8%25AD%25E5%2585%25B1%25E9%25AB%2598%25E5%25B1%2582%25E6%25AD%25A3%25E6%2591%25A7%25E6%25AF%2581%25E4%25B8%258B%25E9%2587%2591%25E8%259B%258B%25E7%259A%2584%25E9%25B9%2585%25E6%258A%259B%25E5%25BC%2583%25E9%2582%2593%25E5%25B0%258F%25E5%25B9%25B3%25E9%2581%2597%25E4%25BA%25A7&amp;tbnid=cVIH96TFlxREdM&amp;vet=12ahUKEwjCzd-m_931AhWeGVkFHedUAo0QMygBegUIARCgAQ..i&amp;docid=a4PstPBaZfMTnM&amp;w=1920&amp;h=1195&amp;itg=1&amp;q=%E7%B4%A2%E7%BE%85%E6%96%AF&amp;ved=2ahUKEwjCzd-m_931AhWeGVkFHedUAo0QMygBegUIARCgAQ)
 
+投资名人乔治·索罗斯（GeorgeSoros）指出，中共国房地产热潮去年告终后，目前正面临经济危机，习近平可能无法重振房地产业的信心。
 
+美国有线电视新闻网（CNN）报导，索罗斯1月31日在斯坦福大学胡佛研究所的演说中表示，中共国国家主席习近平可能无法重振这个陷入困境产业的信心。中共国房地产业因一连串开发商债务违约及土地和公寓价格下跌而深受打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+索罗斯说，中共国房地产热潮是基于一种“竭泽而渔”模式，这种模式让地方政府尝到好处，并鼓励人民将主要积蓄投资于房地产。
 
+他还表示，旨在抑制这种热潮的政府政策，让负债累累的房地产巨擘恒大集团难以偿还债务。恒大集团背负债务超过3000亿美元，恒大集团有数个月时间难以筹集现金偿还借款者。
 
+政府官员派至恒大集团监督企业重整，不过未来会如何发展仍相当不明朗。恒大集团请求债权人给予更多时间，但部分借款者似乎不想等。
 
-郭文贵先生在大直播中谈到了中共实为邪教组织的7大特征：
+索罗斯指出，中共政府推迟处理这个危机的时间可能太久了，因为民众的信心已受到打击。
 
-第一，教主崇拜。中共善于造神，其往往将独裁统制者塑造成人们的精神领袖。
+索罗斯去年9月表示，资产管理公司贝莱德集团（BlackRock）在中共国扩大生意规模是犯了“悲惨的错误”，他一直批评中共的监控政策及对民营企业的整顿作法。
 
-第二，精神控制。中共通过严控宣传出版、文化教育和艺术体育等各个领域洗脑中共国内的民众。
+消息来源:
 
-第三，编造邪说。中共将各式歪理邪说包装成民主正义的思想灌输给中国人民，制造大量不知善恶、不辨黑白的愚民。
+#### [房地产荣景结束索罗斯警告：中共国正面临经济危机](https://tw.news.yahoo.com/%E6%88%BF%E5%9C%B0%E7%94%A2%E6%A6%AE%E6%99%AF%E7%B5%90%E6%9D%9F-%E7%B4%A2%E7%BE%85%E6%96%AF%E8%AD%A6%E5%91%8A%EF%BC%9A%E4%B8%AD%E5%9C%8B%E5%A4%A7%E9%99%B8%E6%AD%A3%E9%9D%A2%E8%87%A8%E7%B6%93%E6%BF%9F%E5%8D%B1%E6%A9%9F-060947560.html)
 
-第四，篡改历史。中共篡改历史，为自己歌功颂德，欺骗不明就里的百姓。
-
-第五，聚敛钱财。中共不择手段地剥夺私有财产并剥削老百姓，将大量的财富聚敛到少数盗国贼家族手中。
-
-第六，秘密结社。中共自成立以来，其所有活动均不公开透明，此外，加入其中需要经过严格的审查和宣誓，这无一不彰显其邪教气息。
-
-第七，对抗社会。中共以民主社会为敌，并通过各种政治运动和强制手段对民众进行监控、打压，制造种族大屠杀。
-
-郭先生指出，中共就是人类最大的邪教组织！中共不灭，灾难不止!
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编/编辑：Irene木木
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

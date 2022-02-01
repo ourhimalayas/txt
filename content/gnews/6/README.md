@@ -2,32 +2,10 @@
 ---
 
 
-## 历史为何惊人相似！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1942432/)
+## 1/30/2022 文贵直播：爱马仕前老板崇拜中国古代北魏时期的服饰，但中共却毁掉了中国最好的饮食文化、服饰文化和音乐
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1942669/)
 
-制作：贵气比人
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-百姓几代人受到如此伤害，龙的传人何时才能真正醒来？天赋人权是与生俱来的权利！
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-35.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Calendar-2.png)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-
+秘密翻译组-北美组
 
  
 

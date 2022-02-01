@@ -2,45 +2,46 @@
 ---
 
 
-## 新州卫生部：今日一名年轻健康且完全接种的男子，感染新冠死亡
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1942047/)
+## 日本议会通过关于中国人权问题的决议
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1942241/)
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-19.png)
-
-图片来源：雅典娜设计组
+素材整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-01-at-8.42.59-PM.png)图片来源：互联网
 
 
-**整理/编辑：小鱼儿**
+在北京奥运会开幕前几天，日本议会星期二通过了一项罕见的决议，对中国的人权问题表示关注，包括对待新疆维吾尔族穆斯林人口和香港的人权问题。
 
-当地时间2月1日，据天空（Skynews）新闻报道，新南威尔士州卫生部门（周二）表示，一名完全接种疫苗，且没有明显潜在健康问题的（30多岁）男子，感染新冠病毒死亡。
+据报道，经过长时间的讨论，一个两党小组提出的决议案的措辞被淡化，避免了直接指责中共的侵权行为。
 
-当天，该州报道了30例与新冠病毒相关的死亡病例，其中5人接种了三剂疫苗，19 人接种了两剂，6人未接种。另一名65岁以下的死亡病例，是一名50多岁的女性，她没有接种过疫苗，（但）有潜在的健康问题。
+东京试图在对待中共的问题上谨慎行事，以平衡其亲密盟友华盛顿对北京施加的压力。美国和中共国是日本的最大贸易伙伴。
 
-同时，根据新州卫生部公布的新冠病毒数据（表格如下），竖向对比发现，2021年
+下议院以多数票通过了该项决议，其中对中共国新疆地区、西藏、香港和内蒙古的 “人权状况 “表示严重关切。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-21.png)
+该决议还呼吁日本政府建设性地参与解决中共国的人权问题。
 
-图片来源：新州卫生部
+不出意料，中共抨击该决议是 “严重的政治挑衅”。
 
+中共外交部赵利坚说，该决议 “严重干涉了中共国的内部事务”，并补充道：”中共国保留采取进一步措施的权利”。
 
-11月26号至2022年1月8号期间，共98人因为新冠病毒死亡，其中67人接种两剂疫苗，3人一剂，21人未接种，6人不确定接种情况，1人未接种（不符合要求）。这意味着，所有（因病毒）去世者中，至少71%的人接种过疫苗。
+新中国联邦爆料革命揭露，在中共国少数民族聚居的新疆地区，有超过一百万人被关押在集中营。
 
-图片来源：新州卫生部
+同样，中共亦否认这样的说法：藏族人生活在严格的监视之下，如果有任何非中国人身份的迹象，包括拥有达赖喇嘛–他们流亡的精神领袖–的图像，就有可能被监禁或虐待。
 
-参考资料：[Fully vaxxed man aged in his 30s with no underlying health conditions dies after contracting COVID-19 in NSW](https://www.skynews.com.au/australia-news/coronavirus/fully-vaxxed-man-aged-in-his-30s-with-no-underlying-health-conditions-dies-after-contracting-covid19-in-nsw/news-story/29812b3db0f22514895d224b4d13ff8d)
+关于香港，日本多次对这个前英国殖民地的选举制度表示 “严重关切”，因为中共加强了对这个金融中心的控制，已引发大规模的持续的民主抗议。
 
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
+去年12月，日本说它不会派政府代表参加北京奥运会，并呼吁中共尊重人权和法治。此举发生在美国、英国、澳大利亚和加拿大宣布对奥运会进行外交抵制之后，因为他们认为中共国普遍存在侵犯人权行为。
 
-*发布：盘古相聚*
+他们的抵制行动仅限于不派运动员参加2月4日开始的冬季奥运会。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共政府警告说，这四个西方国家将为美国领导的运动 “付出代价”。
+
+日本将派东京2020年奥运会负责人桥本清子和日本奥委会负责人山下康弘参加北京冬奥会的开幕式。
+
+* * *
+
+*编辑&发布：Vicky*
+
+原文链接：[Japan parliament adopts resolution on China rights issues](https://www.thenews.com.pk/latest/929972-japan-parliament-adopts-resolution-on-china-rights-issues)
 
  
 

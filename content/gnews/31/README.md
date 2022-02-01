@@ -2,17 +2,26 @@
 ---
 
 
-## COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941897/)
+## 音乐巨头Spotify勇揭中共病毒疫苗的阴谋
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1942164/)
 
-**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio-1.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-据新中国联邦及爆料革命发起人郭文贵于2月1日直播中表示，与他有联系的某一科学家在欧洲军事等级的医学研究所正在进行一项青蒿素鸡尾酒疗法的研究与测试。 他表示，这个青蒿素相关的鸡尾酒疗法能更深度的清除新冠疫苗余毒（可能指「新冠疫苗刺突蛋白引发的心肌炎、癌症及其他未知副作用」）。
+撰稿：东京樱花团/风翼
 
-青蒿素相关的鸡尾酒疗法，据郭所述成本约为“一美金”，对新冠病毒有极高的治疗效用，甚至可能可以100%清除新冠疫苗的未知不良反应。 目前，并无更多关于青蒿素鸡尾酒疗法的信息。
-來源：[20m](https://gettr.com/user/20minfocus)[infocus](https://gettr.com/user/20minfocus)GETTR
-來源｜[GETTR](https://gettr.com/post/prpkcn65c4)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/音乐巨头Spotify勇揭中共病毒疫苗的阴谋.png)[图片来源](https://www.menabytes.com/spotify-launches-pakistan/)
 
+据伦敦“硅谷时事”报道：瑞典音乐发行巨头声破天（Spotify）针对正在传播中共病毒（新冠病毒）疫苗信息的互联网音频节目，受到一系列的抗议和批评后，正式发布了官方声明。
+
+“虽收到美国喜剧演员乔.罗根的批评，以及加拿大流行歌手尼尔.杨和乔尼.米切尔将要在声破天删除自己歌曲等抗议行为,但鉴于有关节目所谈论的中共病毒疫苗的危险性是根据卫生当局和科学家的可靠信息得出的结论，所以再次强调不会因抗议而删除这个栏目。
+
+作为四大串流音乐服务商的瑞典音乐服务平台声破天，以第三方的广告费和使用者订阅做为主要收入来源的背景，不难看出，不惜付出代价，坚持揭露中共病毒疫苗对人类带来的危险性已到了无法阻拦的程度。
+
+信息来源：
+
+[スポティファイ、誤情報拡散で対策　ワクチンめぐり抗議浴び](https://www.jiji.com/sp/article?k=2022020100184&amp;g=int)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
