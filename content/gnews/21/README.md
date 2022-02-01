@@ -2,48 +2,25 @@
 ---
 
 
-## 年度回顾关键词 &#8211; 青蒿素
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941610/)
+## 加拿大北京冬奥代表团中5人确诊
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1941665/)
 
-作者：华盛顿DC农场 – 海阔天空
+**撰稿：日本东京方舟农场  幽蘭自得**
 
+1月29日，加拿大奥林匹克委员会表示，已到北京参加冬奥的加拿大代表团，有5名团员验出了COVID-19（中共病毒）阳性反应。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-2.jpg)（图片来自网络）
+据《中央社》援引《法新社》报道，加拿大奥委会28日晚发表声明表示，目前在北京的246名代表团团员当中，有5人已接受COVID-19（中共病毒）防治安排。
 
+目前，加拿大奥委会并未透露，5名确诊者究竟是选手、随行支持人员还是官员。根据国际奥委会的防疫规定，确诊者必须离开代表团接受隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+另外，根据当地筹办单位数据显示，自本月26日以来，针对各国运动员和代表团其他团员所进行的5092次筛检，共发现23例确诊病例。
 
+参考链接：
+[https://www.cna.com.tw/news/aopl/202201290160.aspx](https://www.cna.com.tw/news/aopl/202201290160.aspx)
 
-
-2015年，中国科学家屠呦呦女士因创制了新型抗疟疾药——青蒿素和双氢青蒿素，荣获诺贝尔医学奖。青蒿素及其衍生物，一直被认为是现今最有效的抗疟疾药。
-
-屠呦呦曾说，青蒿素的发现是中国传统医学给人类的一份礼物。青蒿素及其衍生药物，已经被很多临床应用证实，对于治疗糖尿病、高血压等慢性病，以及癌症，都有积极疗效。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13.jpg)
-新中国联邦最早向世界宣告，青蒿素是治疗中共病毒的关键药物之一，同时，也是防止中共病毒疫苗副作用的特效药物。除了青蒿素外，伊维菌素、阿奇霉素、土霉素、地塞米松等，对治疗中共病毒都有非常好的临床效果。
-
-目前，很多国家的政府和主流媒体仍然在压制青蒿素等药物的信息，因此，广泛传播青蒿素的作用，对消灭中共病毒大流行、控制疫苗灾难有举足轻重的意义。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：Irene木木
-编辑：文真
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+素材采编：幽蘭自得
+编辑：文顺
+发布：爱放飞
 
  
 
