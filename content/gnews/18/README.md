@@ -2,10 +2,10 @@
 ---
 
 
-## 《灭共的雪》—— 新中国联邦版《塞北的雪》
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946981/)
+## 郭文贵版“一帘幽梦”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1947037/)
 
-1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》
+1/31/2022 文贵虎年新春大直播：郭文贵版“一帘幽梦”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

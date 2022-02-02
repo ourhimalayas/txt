@@ -2,35 +2,30 @@
 ---
 
 
-## 中共的以假治国导致军队毫无实战能力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947155/)
+## FDA与辉瑞合谋，要为5岁以下儿童接种至少两针中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1947212/)
 
-作者：香草山 – 新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月29日，郭文贵先生在香草山农场的年会直播中爆料称，一位曾被习近平接见过的中共军方人士对下属感慨道，中共军队一直在为攻打台湾做准备，但除了军中高层和作战部的相关人员外，基层士兵根本不相信双方会真正开战，且即便中共敢打台湾，其也不可能在战争中取得胜利。
+####  撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.jpeg)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-103.png)图片来源：Today
+2月1日，《新闻极限》引述美联社的报道，指辉瑞公司周二要求美国批准为5岁以下儿童提供超低剂量的中共病毒（COVID-19）疫苗，为最年幼的美国人最早在3月份开始接种开辟道路。
 
-郭先生指出，中共是一个以假治国的腐败体制，其根本没有实际的核心战斗力——这一点习近平也心知肚明，但他却实实在在地试图攻打台湾，即便中共内部没人相信能打赢。
+非同寻常的是，FDA（食品和药物管理局）敦促辉瑞公司（Pfizer）及其合作伙伴生物科技（BioNTech）公司比原计划更早提出申请。
 
-郭先生此前也多次提及，中共一旦出兵台湾必将立刻覆灭。彼时，新中国联邦会快速接手中国并推出“一人一票”的民主政体！
+目前，美国1900万5岁以下的儿童是唯一没有接种中共病毒疫苗的群体。一旦获得FDA批准，则瑞公司的中共病毒疫苗还要给6个月大的孩子注射。
 
-参考链接：[Watch 美国纽约香草山农场 live on GETTR2022年美东香草山壬寅年新春联欢](https://gettr.com/streaming/prcsd0a0b2)
+报道说，还未确定这些年幼的孩子们需要打多少针。辉瑞公司正在测试三针，因为其中两针超低剂量的对婴儿来说足够强大，但对学龄前儿童来说却不够强大，而研究的最终数据预计要到3月下旬才能出来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+这意味着FDA可能会考虑是否暂时批准两针，如果研究结果支持的话，第三针可能会被批准。辉瑞公司的研究是，间隔三周，然后至少两个月后再给参与打两针的5岁以下孩子打第三针。
 
-总编：Jack Li文阳
-编辑：谐趣园
-校正/发稿：谐趣园
+文章预测FDA可能在几周内对此做出决定，当然，后续也需要CDC（疾病控制和预防中心）的签字通过。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据美国儿科学会的数据，截至上周，只有20%的5至11岁儿童和刚刚超过一半的12至17岁儿童完全接种了中共病毒疫苗。近四分之三的成年人已完全接种中共病毒疫苗。
 
+**新闻来源**
+
+[Pfizer Asks FDA to Allow COVID-19 Vaccine for Kids Under 5](https://www.newsmax.com/health/health-news/covid-vaccine-pfizer-children/2022/02/01/id/1055046/)
 
  
 

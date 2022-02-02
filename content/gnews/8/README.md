@@ -2,35 +2,35 @@
 ---
 
 
-## 有声|新中国联邦永远成为第三方的监督者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947094/)
+## 中共的以假治国导致军队毫无实战能力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947155/)
 
-配音：香草山佛教部 – 李傻
+作者：香草山 – 新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月29日，郭文贵先生在香草山农场的年会直播中爆料称，一位曾被习近平接见过的中共军方人士对下属感慨道，中共军队一直在为攻打台湾做准备，但除了军中高层和作战部的相关人员外，基层士兵根本不相信双方会真正开战，且即便中共敢打台湾，其也不可能在战争中取得胜利。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.jpeg)
 
+郭先生指出，中共是一个以假治国的腐败体制，其根本没有实际的核心战斗力——这一点习近平也心知肚明，但他却实实在在地试图攻打台湾，即便中共内部没人相信能打赢。
 
+郭先生此前也多次提及，中共一旦出兵台湾必将立刻覆灭。彼时，新中国联邦会快速接手中国并推出“一人一票”的民主政体！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-1-1.jpg)
-人类文明的变迁和争斗，无一例外的，都涉及到人类大屠杀，最后赢家都会拿走权力。新中国联邦绝不会去触碰这个权力，将永远成为第三方监督者，让中国人实现新中国联邦宣言的承诺，对背道而驰者绝不姑息。新中国联邦宪法必须是一人一票选择的结果，这次文明的力量将得到更高维度力量的加持。
+参考链接：[Watch 美国纽约香草山农场 live on GETTR2022年美东香草山壬寅年新春联欢](https://gettr.com/streaming/prcsd0a0b2)
 
-文字版原文：[新中国联邦永远成为第三方的监督者](https://gnews.org/zh-hans/1941074/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+总编：Jack Li文阳
+编辑：谐趣园
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
