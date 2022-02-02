@@ -2,26 +2,35 @@
 ---
 
 
-## 北京冬奥会在即 日本通过反对中共侵害人权的决议
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1946286/)
+## 丹麦宣布解除防疫限制
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1946349/)
 
-**撰稿：日本东京方舟农场  海星**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-在中共北京冬奥会开幕前夕，日本国会2月1 日通过了反对中共侵害人权的决议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-5.png)（图片来源：共同社）
-据《路透社》报导，日本国会当天通过了反对中共侵害人权的决议。该决议表示，国际社会一直在密切关注中共拘禁新疆、西藏和香港人民、侵犯人权及宗教自由等犯罪行为，国会已经意识到中共正在通过这些行为强制改变国际规则，这是对国际社会的威胁。该决议表明，人权具有普世价值，日本不仅要关注国内人权问题，也应与国际社会共同关注中共的人权问题。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-报导称，该决议在部分议员的推动下最终于北京冬奥会2月4日开幕前通过。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.39.37.png)图片来源：雅典娜设计组
 
-此外，由于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，日本于12月宣布将不派政府代表团参加北京冬奥会。
 
-参考链接：
-1. [https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD](https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
-2. [https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html](https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html)
+根据澳大利亚人报中文网2月2日报道：法新社哥本哈根1日电 尽管冠状病毒Omicron变异株病例创纪录新高，丹麦今天仍告别口罩和健康通行证，成为欧洲联盟（EU）第一个解除国内几乎所有防疫限制的国家。
 
-撰稿：海星
-编辑：文顺
-发布：文曦
+现在丹麦只在边境为来自非申根国家，且未施打疫苗的旅客，制定少数防疫限制。
+
+丹麦去年9月至11月首度尝试解除限制后，如今再度放弃防疫检查，酒吧餐厅营业时间也不再受限。
+
+目前丹麦每天新增约4万至5万例COVID-19病例，相当于丹麦国内580万人口的1%左右。但卫生官员认为相关数字很快会下降。
+
+参考链接：[https://cn.theaustralian.com.au/2022/02/02/63118/](https://cn.theaustralian.com.au/2022/02/02/63118/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

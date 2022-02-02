@@ -2,122 +2,32 @@
 ---
 
 
-## 成千上万的加拿大人出现在渥太华支持卡车司机争取自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1945925/)
+## 即时新闻汇总
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1946295/)
 
-[https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad](https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad)
+作者：顺其自然
+编辑：朝花夕拾
 
-Keean Bexte’s here with the Counter Signal in Ottawa, Ontario
-基恩·贝克斯特在安大略省渥太华与《柜台信号》报道
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-2.png)图片来源：雅典娜设计组
 
-We’re here today after days and days of driving across the country
-经过几天的驾车穿越全国，我们今天来到这里
 
-And we’re here for a very specific reason
-而且我们在这里有一个非常具体的原因
+1）THE WALL STREET  JOURNAL 报道，美国和英国筹划制裁俄罗斯寡头和企业。报道中说，这项涉及广泛的制裁计划拟在俄罗斯入侵乌克兰的情况下对莫斯科进行惩罚。看来俄罗斯被制裁已经八九不离十了。若普京继续和习近平联合，那俄罗斯受到的制裁会更多。
 
-We’re here to share the story that the mainstream media is not going to share
-我们在这里分享主流媒体不会分享的故事
+２）在2022年年初，在一些房产群里，有消息露出金科打折卖房的消息。据金科内部员工透露，目前金科的内部全款购房是6.3折，而且对管理层有强制性的购房要求。不仅如此，还有公司的理财产品也要求强制性购买，每个人购买10万元的理财产品，否则就离职。几乎绝大部分房地产商都在想尽办法积极的回款，以维持现金流不断裂，虽然各地方政府不让降价卖房，但各地产商会想出别的办法回笼资金，要不房价没降下来，地产商先自己死了。
 
-We’re here to speak with these lovely people
-我们在这里与这些可爱的人交谈
+３）２·２·ZEROHEDGE·OM报道，美国向乌克兰运送500吨武器。周二，乌克兰国防部长奥利克西在TWITTER宣布，乌克兰收到了来自美国的新一批500吨国防装备。84吨弹药抵达基辅。前两天郭先生说，美国在阿富汗来不及销毁的武器，直接给乌克兰运过去了，这应该就是阿富汗来不及销毁的武器。乌克兰的局势日益紧张，各方势力都在桌子底下谈判较量，若达不成协议，战争就会打起来。
 
-who have come from across the country to stand up and speak up for what is right
-来自全国各地站出来为正义发声的人
+4）vv据澎湃新闻1月30日报道，恒大成本89亿港元的土地被欠债5.2亿美元的橡树资本接管。该项目为恒大在元朗的和声维项目，是恒大集团在2019年以47.5亿港元，从恒基地产手中购入的。恒大的海外债主已经把恒大在启东的地拿去抵债了，而国内的债主还在傻傻的等着，有很多供应商已经破产，甚至有的供应商都已经自杀了，这就是国内强力维稳的结果。中共的这种维稳模式，不只是普通老百姓没有没权发声的渠道，就是有上亿资产的企业主也状告无门。都是韭菜，只是有的粗，有的细而已。
 
-they’re here and Agenda Item number one，priority number one is freedom
-他们在这里，议程项目第一，优先第一的是自由
+*发布：tianzhihuan*
 
-The mainstream media is also here
-主流媒体也在这里
-
-but no one really cares about them
-但没有人真正在乎他们
-
-because they’ve been lying about this convoy since the beginning
-因为他们从一开始就关于这个车队撒谎
-
-First it was about icy roads, and then it was about white nationalism and Nazism
-首先是关于结冰的道路，然后是关于白人民族主义和纳粹主义
-
-They were lying the whole time and Canadians knew what they called their bluff
-他们一直在撒谎而且加拿大人知道他们所谓的虚张声势
-
-and showed up here in the 1000s
-并有成千上万的人出现在这里
-
-Absolutely massive numbers here today, more than the convoy of 2019
-今天这里的人数绝对的庞大，超过了2019年的车队
-
-this convoy is uniting all Canadians
-这个车队正在团结所有加拿大人
-
-Canadians are here to stand up to say their piece and be heard
-加拿大人在这里站出来表达他们的观点并被倾听
-
-The unfortunate part is the loser that occupies this building right behind me
-不幸的是，在我身后占据这栋大楼的失败者
-
-is taking a few sick days despite not being sick
-尽管没有生病，但请了几天病假
-
-Justin Trudeau tested negative for COVID-19 but it’s still in hiding
-贾斯汀·特鲁多的COVID-19检测呈阴性，但他仍在躲藏中
-
-Actually today his official itinerary was released
-其实今天他的官方行程公布了
-
-And Justin Trudeau says that instead of meeting with these wonderful people here today
-贾斯汀·特鲁多说今天不会在这里与这些了不起的人会面
-
-he’s meeting with the Islamic lobby of Quebec
-而他正在与魁北克的伊斯兰游说团体会面
-
-He’s got his priorities, these Canadians have their own priorities
-他有他的优先事项，这些加拿大人有自己的优先事项
-
-Their priority here today is freedom
-他们今天在这里的首要任务是自由
-
-We’re gonna go speak to as many as we can, and share this story as loud as possible
-我们将与尽可能多的人交谈，并尽可能大声地分享这个故事
-
-because the mainstream media won’t
-因为主流媒体不会
-
-As I’ve been saying, throughout this whole convoy
-正如我一直在说的贯穿整个车队
-
-please go to convoycoverage.com to see what we’ve been reporting
-请访问 convoycoverage.com 查看我们一直在报告的内容
-
-to see the other story that the mainstream media isn’t sharing
-看看主流媒体不去分享的另外的故事
-
-the story that the mainstream media and Justin Trudeau just don’t want you to hear
-主流媒体和贾斯汀·特鲁多不想让你听到的故事
-
-Let’s go chat with some folks
-让我们去和一些人聊聊
-
-* * *
-
-Date:01/30/2022
-原视频标题: Thousands Canadians show up in Ottawa to support trucker for freedom
-成千上万的加拿大人出现在渥太华支持卡车司机争取自由
-原视频日期：2022/01/30
-原视频链接: [**https://twitter.com/therealkeean/status/1487517568122372109?s=24**](https://twitter.com/therealkeean/status/1487517568122372109?s=24)
-任务编号：3636
-视频时间段 : 0:00-1:53
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**
+**更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

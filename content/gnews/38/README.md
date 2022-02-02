@@ -2,102 +2,122 @@
 ---
 
 
-## 中国人一出生就需要7.4年不吃不喝还债！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1945672/)
+## 成千上万的加拿大人出现在渥太华支持卡车司机争取自由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1945925/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad](https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+Keean Bexte’s here with the Counter Signal in Ottawa, Ontario
+基恩·贝克斯特在安大略省渥太华与《柜台信号》报道
 
-2022年1月18日，在中共国务院新闻办公室举行的《[2021年金融统计数据新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47730/index.htm)》上，中共国人民银行副行长刘国强说，2021年末，宏观杠杆率为272.5%。
+We’re here today after days and days of driving across the country
+经过几天的驾车穿越全国，我们今天来到这里
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-44-35.png)
+And we’re here for a very specific reason
+而且我们在这里有一个非常具体的原因
 
-而就在前一天中共国务院新闻办公室举行的《[2021年国民经济运行情况新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47722/index.htm)》上，中共国务院新闻办新闻局局长、新闻发言人陈文俊说，2021年（中共国）经济总量114.4万亿元，按年平均汇率折算，为17.7万亿美元。
+We’re here to share the story that the mainstream media is not going to share
+我们在这里分享主流媒体不会分享的故事
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-36-44.png)
+We’re here to speak with these lovely people
+我们在这里与这些可爱的人交谈
 
-根据中共国务院新闻办新闻局局长、新闻发言人陈文俊公布的数字，2021年中共国的GDP 114.4万亿元，而中共国人民银行副行长刘国强公布的2021年末，中共国宏观杠杆率为272.5%，也就是说中共国2021年末的总债务为114.4万亿元×272.5%=311.74万亿元。
+who have come from across the country to stand up and speak up for what is right
+来自全国各地站出来为正义发声的人
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-24-51.png)
+they’re here and Agenda Item number one，priority number one is freedom
+他们在这里，议程项目第一，优先第一的是自由
 
-就在1月17号的新闻发布会上，陈文俊说，（2021）年末全国人口（包括31个省、自治区、直辖市和现役军人的人口，不包括居住在31个省、自治区、直辖市的港澳台居民和外籍人员）141260万人。
+The mainstream media is also here
+主流媒体也在这里
 
-做一个简单的计算，2021年末，中共国平均每个居民（包含刚出生的婴儿和年逾古稀的老人）负债311.74万亿元÷141260万人=22.07万元。
+but no one really cares about them
+但没有人真正在乎他们
 
-中共国国家统计局的数字一贯造假，但2020年5月28日，中共国务院总理李克强在出席十三届全国人大三次会议《[李克强总理出席记者会并答中外记者问](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm#1)》时说：“中国是一个人口众多的发展中国家，我们人均年收入是3万元人民币，但是有6亿人每个月的收入也就1000元”。
+because they’ve been lying about this convoy since the beginning
+因为他们从一开始就关于这个车队撒谎
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_17-12-13.png)
+First it was about icy roads, and then it was about white nationalism and Nazism
+首先是关于结冰的道路，然后是关于白人民族主义和纳粹主义
 
-根据李克强公布的“我们人均年收入是3万元人民币”，可以推算出中共国的婴儿从出生那天起，就负债22.07万元，需要22.07万元÷3万元/年=7.4年不吃不喝才能还清债务。而有6亿人每个月的收入也就1000元，这6亿需要22.07万元÷（1000元/月×12月/年）=18.4年才能还清债务。
+They were lying the whole time and Canadians knew what they called their bluff
+他们一直在撒谎而且加拿大人知道他们所谓的虚张声势
 
-李克强公布的人均年收入是3万元人民币，与陈文俊公布的2021年全年全国居民人均可支配收入35128元相差不大，说明上述计算过程是合理的！
+and showed up here in the 1000s
+并有成千上万的人出现在这里
 
-对于中共国人来说，一生能挣钱的时间在20岁~55岁，也就35年时间，中共国的人需要把人生7.4年÷35年=21%的精力用于偿还出生就有的债务！对于那6亿月收入不到1000元的韭菜来说，需要把人生18.4年÷35年=53%的精力用于偿还出生就有的债务！
+Absolutely massive numbers here today, more than the convoy of 2019
+今天这里的人数绝对的庞大，超过了2019年的车队
 
-中共治下的荒唐何止于此！
+this convoy is uniting all Canadians
+这个车队正在团结所有加拿大人
 
-中共国有3.2亿烟民，位居世界第一，2020年香烟生产总量高达2万亿支，10元低价烟逐渐消失的大背景下，还连续三年亏损。2020年亏损4.3亿元；2019年亏损达22.8亿元；2018年亏损13.8亿元。
+Canadians are here to stand up to say their piece and be heard
+加拿大人在这里站出来表达他们的观点并被倾听
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-28-20.png)
+The unfortunate part is the loser that occupies this building right behind me
+不幸的是，在我身后占据这栋大楼的失败者
 
-不仅如此，中共国国航2021年预亏145亿到170亿元！2020年亏损67.86亿！
+is taking a few sick days despite not being sick
+尽管没有生病，但请了几天病假
 
-国家电网2020年亏损178亿！2021年上半年广东售电公司整体亏损面88.2%！
+Justin Trudeau tested negative for COVID-19 but it’s still in hiding
+贾斯汀·特鲁多的COVID-19检测呈阴性，但他仍在躲藏中
 
-2021年，电力上市公司业绩出现史无前例的巨额亏损！中国电力预计2021年度净亏损5亿~6亿元，国电电力预计2021年度净亏损16亿~23亿元，华电国际预计2021年度净亏损45亿~53亿元，大唐发电预计2021年度净亏损90亿~108亿元，华能国际预计2021年度净亏损98亿~117亿元！
+Actually today his official itinerary was released
+其实今天他的官方行程公布了
 
-中国国家铁路集团2020年净亏损555亿元，2021年前三季度，发送旅客19.95亿人次，同比增加5.1亿人次、增长34.3%，然而净利润亏损698亿元！
+And Justin Trudeau says that instead of meeting with these wonderful people here today
+贾斯汀·特鲁多说今天不会在这里与这些了不起的人会面
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-31-38.png)
+he’s meeting with the Islamic lobby of Quebec
+而他正在与魁北克的伊斯兰游说团体会面
 
-1月28日收盘至24点， 409家A股上市公司发布预亏公告，合计亏损3772亿元至4492亿元。其中，预亏金额最高的十家上市公司预亏损合计近2000亿元。
+He’s got his priorities, these Canadians have their own priorities
+他有他的优先事项，这些加拿大人有自己的优先事项
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/o8hrrck10xzbxd1aetvk6q3tjc0s6s.jpg)
+Their priority here today is freedom
+他们今天在这里的首要任务是自由
 
-仅苏宁易购一家预计亏损额就达到423亿~433亿元，而当日苏宁易购总市值仅364.02亿。相当于苏宁易购一家就亏掉每个中国人433亿÷14.126亿人=30.7元。恐怕绝大多数中国人去年都没有在苏宁易购买过一次东西，就是白送甚至倒贴运费也不至于亏这么多！
+We’re gonna go speak to as many as we can, and share this story as loud as possible
+我们将与尽可能多的人交谈，并尽可能大声地分享这个故事
 
-华夏幸福亏损331亿~391亿元、正邦科技亏损182亿~197亿元、中国国航亏损145亿~170亿元、温氏股份亏损130亿~138亿元、中国东航亏损122亿~147亿元、南方航空亏损110亿~135亿元、蓝光发展亏损120.37亿元、华能国际亏损98亿~117亿元、百济神州亏损85.42亿~110.12亿元。
+because the mainstream media won’t
+因为主流媒体不会
 
-共惨党的腐败和荒唐，给全社会带来深重的灾难！消灭共惨党，公审老杂毛，是中共国唯一的出路！
+As I’ve been saying, throughout this whole convoy
+正如我一直在说的贯穿整个车队
 
-参考数据：
+please go to convoycoverage.com to see what we’ve been reporting
+请访问 convoycoverage.com 查看我们一直在报告的内容
 
-[2021年金融统计数据新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47730/index.htm)
+to see the other story that the mainstream media isn’t sharing
+看看主流媒体不去分享的另外的故事
 
-[2021年国民经济运行情况新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47722/index.htm)
+the story that the mainstream media and Justin Trudeau just don’t want you to hear
+主流媒体和贾斯汀·特鲁多不想让你听到的故事
 
-[A股上市公司“亏损王”历史被改写: 三大板块巨亏](https://www.sohu.com/a/520114115_118622)
+Let’s go chat with some folks
+让我们去和一些人聊聊
 
-[李克强总理出席记者会并答中外记者问（实录全文）](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm#1)
+* * *
 
-[意外!中国烟草,连续三年经营亏损!钱去哪了?](https://www.anmoyi98.com/a/314239)
+Date:01/30/2022
+原视频标题: Thousands Canadians show up in Ottawa to support trucker for freedom
+成千上万的加拿大人出现在渥太华支持卡车司机争取自由
+原视频日期：2022/01/30
+原视频链接: [**https://twitter.com/therealkeean/status/1487517568122372109?s=24**](https://twitter.com/therealkeean/status/1487517568122372109?s=24)
+任务编号：3636
+视频时间段 : 0:00-1:53
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[10元低价烟逐渐消失，年纳税达万亿的中国烟草，为何连亏3年？](https://new.qq.com/omn/20211026/20211026A05DIO00.html)
-
-[一年亏损178亿，14亿人养不起国家电网？](https://www.163.com/dy/article/GCIA0V6T0531MRNF.html)
-
-[粤电力A：2021年预计亏损29-35亿元](https://news.bjx.com.cn/html/20220126/1201523.shtml)
-
-[国家电网去年主业首亏178亿，利润创七年新低](https://www.jiemian.com/article/5961951.html)
-
-[2021年上半年广东售电公司整体亏损面88.2% 仅19家度电获利0.9厘/千瓦时](https://shoudian.bjx.com.cn/html/20210810/1168822.shtml)
-
-[电力上市公司2021年集体巨亏 煤、电业绩再现冰火两重天](https://finance.eastmoney.com/a/202201302266896082.html)
-
-[发送旅客19.95亿人次！国家铁路集团：前三季度亏损698亿元](https://news.mydrivers.com/1/792/792608.htm)
-
-[亏损持续扩大 中国国航2021年预亏145亿到170亿元](https://finance.eastmoney.com/a/202201282266139696.html)
-
-[都知道中国烟草纳税额第一 却没几个人知道其亏损多年](https://finance.sina.com.cn/tech/2021-08-15/doc-ikqciyzm1499049.shtml)
-
-[中国烟草总公司，连续三年亏损！没人敢相信！](https://fcnews.finchina.com/newsview/default.aspx?newscode=20220102020015112865)
-
-[苏宁易购(002024.SZ)](https://finance.sina.com.cn/realstock/company/sz002024/nc.shtml)
-
-[袁海霞：2021年中国债务规模达336万亿，未来三年地方政府每年要偿债超2.5万亿](https://www.sohu.com/a/443259444_100160903)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

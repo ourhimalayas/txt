@@ -15,149 +15,149 @@
 
 ---
 
-### [加拿大生活美谈 2022-01-27第四十期](/content/gnews/1/README.md)
+### [澳大利亚将参与讨论欧盟与中共的贸易争端](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国正在和澳大利亚玩‘好警察、坏警察’的游戏](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [冬奥会选手表示 希望去其他国家参赛](/content/gnews/3/README.md)
+ ` NFSC News`
+
+### [脸书群&#8221;Convoy to DC 2022&#8243;宣布了美国卡车司机车队的抗议疫苗强制活动](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共春晚 全民洗脑](/content/gnews/5/README.md)
+ ` MilesGuoLivePPT`
+
+### [魁北克省媒：周三住院人数将“急剧”下降，暗示出台新措施](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [MV版Hcoin To the Moon上线55天第42次位列澳门iTunes热门MV榜首](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [何为人？中共为人工子宫中的胚胎寻“妈妈”](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新西兰财经G乐部2022年2月2日:财经新闻整理](/content/gnews/9/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [加拿大生活美谈 2022-01-27第四十期](/content/gnews/10/README.md)
  ` canadalifetalk`
 
-### [什么叫卖国叛国？（一）](/content/gnews/2/README.md)
+### [什么叫卖国叛国？（一）](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [谁有资格叛国和卖国？（二）](/content/gnews/3/README.md)
+### [谁有资格叛国和卖国？（二）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [《历史上的今天》2022.02.02](/content/gnews/4/README.md)
+### [《历史上的今天》2022.02.02](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [谁有资格叛国和卖国？（一）](/content/gnews/5/README.md)
+### [谁有资格叛国和卖国？（一）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆┃日本五大银行净利润略微增长](/content/gnews/6/README.md)
+### [中日财经爆┃日本五大银行净利润略微增长](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [伊利诺伊州国会议员要求”隔离”不打疫苗者](/content/gnews/7/README.md)
+### [伊利诺伊州国会议员要求”隔离”不打疫苗者](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1.31大直播后记：永远不忘法治基金捐款者](/content/gnews/8/README.md)
+### [1.31大直播后记：永远不忘法治基金捐款者](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [灭共后重建中国 公民票选公权及任期制](/content/gnews/9/README.md)
+### [灭共后重建中国 公民票选公权及任期制](/content/gnews/18/README.md)
  ` 纽约香草山MOS03`
 
-### [谁才是真正邪教的传播者](/content/gnews/10/README.md)
+### [谁才是真正邪教的传播者](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [1.31大直播后记： 法制基金大额捐款嘉宾访谈](/content/gnews/11/README.md)
+### [1.31大直播后记： 法制基金大额捐款嘉宾访谈](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [2022/02/02 英喜时事速递](/content/gnews/12/README.md)
+### [2022/02/02 英喜时事速递](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [壬寅春晚掀“甜蜜蜜运动”高潮 文贵以歌灭共狙击北京冬奥](/content/gnews/13/README.md)
+### [壬寅春晚掀“甜蜜蜜运动”高潮 文贵以歌灭共狙击北京冬奥](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [红色百宝书里究竟藏着什么秘密](/content/gnews/14/README.md)
+### [红色百宝书里究竟藏着什么秘密](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
 
-### [国际奥委会助纣为虐 力保北京冬奥会](/content/gnews/15/README.md)
+### [国际奥委会助纣为虐 力保北京冬奥会](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [北京冬奥会人造雪，对环境构成威胁，对运动员更危险](/content/gnews/16/README.md)
+### [北京冬奥会人造雪，对环境构成威胁，对运动员更危险](/content/gnews/25/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共国冰壶“菜鸟”将在北京冬奥会首场比赛挑战瑞士名将](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Miles背后出现了新中国联邦红旗](/content/gnews/18/README.md)
+### [Miles背后出现了新中国联邦红旗](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
 
-### [“生育八孩女子被锁事件”折射出中共治下社会的扭曲](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [若入侵乌克兰 美英将制裁与普京关系密切的俄罗斯富豪](/content/gnews/20/README.md)
- ` 日本东京方舟农场`
-
-### [丹麦宣布解除防疫限制](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [假作真时梦难醒](/content/gnews/22/README.md)
- ` 银河勇气之星`
-
-### [美、英、加联合向缅军政权实施制裁](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本国会通过关切中共国人权决议](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [AMA：疫情对美国造成的影响才刚刚开始](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [北京冬奥后美升级对俄制裁 中美货币之战全面对决](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [即时新闻汇总](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [索罗斯说四大危机会导致习近平连任不成功](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [北京冬奥会在即 日本通过反对中共侵害人权的决议](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
-
-### [【速报】东京中共病毒日感染人数破两万](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：日本滑雪奥运选手出发前检测呈阴性，到达后检测成阳性](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大总理特鲁多确诊感染病毒](/content/gnews/32/README.md)
- ` 日本东京方舟农场`
-
-### [中共春节收紧管控 个人存取5万需登记资金来源](/content/gnews/33/README.md)
- ` 日本东京方舟农场`
-
-### [成千上万的加拿大人出现在渥太华支持卡车司机争取自由](/content/gnews/34/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言](/content/gnews/35/README.md)
+### [中共国公司因业绩不佳纷纷从美国证券交易所退市](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”](/content/gnews/36/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [若入侵乌克兰 美英将制裁与普京关系密切的俄罗斯富豪](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
 
-### [币圈新闻动态：HPay今日正式登陆AppleStore和PlayStore](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [丹麦宣布解除防疫限制](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [中国人一出生就需要7.4年不吃不喝还债！](/content/gnews/38/README.md)
- ` 温哥华扬帆农场`
+### [美、英、加联合向缅军政权实施制裁](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [我爱你，灭共的雪](/content/gnews/39/README.md)
- ` 澳喜特战旅Gnews`
+### [日本国会通过关切中共国人权决议](/content/gnews/31/README.md)
+ ` 日本东京方舟农场`
 
-### [CNN首席主播称将关注报道中共“恐怖”行为](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
+### [AMA：疫情对美国造成的影响才刚刚开始](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [全球农场](/content/gnews/41/README.md)
- ` MOSREC`
-
-### [以歌灭共](/content/gnews/42/README.md)
- ` MOSREC`
-
-### [回顾G系列](/content/gnews/43/README.md)
- ` MOSREC`
-
-### [香草山农场祝大家新年快乐](/content/gnews/44/README.md)
- ` MOSREC`
-
-### [日本国会通过关于中国人权状况的决议](/content/gnews/45/README.md)
+### [北京冬奥后美升级对俄制裁 中美货币之战全面对决](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/46/README.md)
+### [即时新闻汇总](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [索罗斯说四大危机会导致习近平连任不成功](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [北京冬奥会在即 日本通过反对中共侵害人权的决议](/content/gnews/36/README.md)
+ ` 日本东京方舟农场`
+
+### [【速报】东京中共病毒日感染人数破两万](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [成千上万的加拿大人出现在渥太华支持卡车司机争取自由](/content/gnews/38/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言](/content/gnews/39/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”](/content/gnews/40/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [币圈新闻动态：HPay今日正式登陆AppleStore和PlayStore](/content/gnews/41/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中国人一出生就需要7.4年不吃不喝还债！](/content/gnews/42/README.md)
+ ` 温哥华扬帆农场`
+
+### [我爱你，灭共的雪](/content/gnews/43/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [CNN首席主播称将关注报道中共“恐怖”行为](/content/gnews/44/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [全球农场](/content/gnews/45/README.md)
+ ` MOSREC`
+
+### [日本国会通过关于中国人权状况的决议](/content/gnews/46/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/47/README.md)
  ` YALUN 亚伦`
 
-### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/47/README.md)
+### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/48/README.md)
  ` 秘密翻译组-原创组`
-
-### [通货膨胀的政治力量](/content/gnews/48/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

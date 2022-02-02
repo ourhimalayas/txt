@@ -2,24 +2,32 @@
 ---
 
 
-## 谁有资格叛国和卖国？（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1946529/)
+## 冬奥会选手表示 希望去其他国家参赛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1946668/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/谁有资格叛国和卖国？（二）-.jpg)
-你有资格叛国吗？有资格卖国吗？你算个屁！当时我在里边的时候，当时郑州裕达，说我是美国的派来的特务，跟一个好莱坞的女人结婚了，然后就监视郑州的时候，他说郭文贵人家又说你是叛国，我说：“是吧，你说我叛哪个国？”他说：“你还真以为你叛国，你有资格叛国吗？那叛国得是共产党员来判国”，轮到你来说叛国了吗？就连一个郑州的一个所谓金水区的检察官反贪局的副局长都敢说我这话，后来这哥们被枪毙了，被注射毒针死了，你给查查去个人贪污2个多亿当年。所以兄弟姐妹你再看一看，为啥我讲昆仑山脉，为什么讲帕米尔高原，为什么讲整个的西藏、喜马拉雅。
+作者：台灣農場 – zhong
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月30日，据相关媒体报道，时逢中共北京冬奥会开幕在即，虽然中共媒体一直试图向外界传递出各国参赛选手喜爱此次冬奥会的错觉，但很多来自欧洲的运动员纷纷表示，他们对冬奥会完全喜欢不了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-2.jpg)
+不少来自法国的运动员在采访时指出，中共国并不是一个拥有滑雪文化的国家，但为了此次冬奥会的场地问题，中共政府大肆破坏森林植被并人为制造出相当违和的雪地会场。对此，运动员们强调，相较于因举办冬奥会而造成严重的生态问题，他们更希望奥委会能选择尊重自然、尊重个人的国家举办奥运会。
 
-2022年1月12日大直播
+此外，一些来自瑞典的运动员也通过媒体声明表示，国际机构不应该选择中共政府组织锦标赛或举办奥运会，他们更希望去其他国家参加比赛。
 
-发布：星谕
+参考链接：[外国运动员喜欢北京冬奥？欧洲运动员这样说](https://www.soundofhope.org/post/589594)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
+总编: Irene木木
+编辑：谐趣园
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
