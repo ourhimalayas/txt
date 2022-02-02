@@ -2,26 +2,35 @@
 ---
 
 
-## 加拿大总理特鲁多感染新冠病毒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1947153/)
+## 中共的以假治国导致军队毫无实战能力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947155/)
 
-采编/编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=CRyAG2o7&amp;id=FB2858F3B595404FCEEF2D7992AD17491E019FBD&amp;thid=OIF.W8qeoraz6HDFc0vt%2fuZURQ&amp;mediaurl=https%3a%2f%2fcdn.cheknews.ca%2fwp-content%2fuploads%2f2020%2f11%2f10132752%2ftrudeaunov10.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.091c801b6a3bc854d78f815a4e7b7a56%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=543&amp;expw=963&amp;q=justin+trudeau+covid+update&amp;simid=95800763123&amp;FORM=IRPRST&amp;ck=5BCA9EA2B6B3E870C5734BEDFEE65445&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
+作者：香草山 – 新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月29日，郭文贵先生在香草山农场的年会直播中爆料称，一位曾被习近平接见过的中共军方人士对下属感慨道，中共军队一直在为攻打台湾做准备，但除了军中高层和作战部的相关人员外，基层士兵根本不相信双方会真正开战，且即便中共敢打台湾，其也不可能在战争中取得胜利。
 
-加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.jpeg)
 
-特鲁多在推特上表示：由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作。同时还不忘提请国民接种疫苗以及加强剂。
+郭先生指出，中共是一个以假治国的腐败体制，其根本没有实际的核心战斗力——这一点习近平也心知肚明，但他却实实在在地试图攻打台湾，即便中共内部没人相信能打赢。
 
-报道称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
+郭先生此前也多次提及，中共一旦出兵台湾必将立刻覆灭。彼时，新中国联邦会快速接手中国并推出“一人一票”的民主政体！
 
-据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗！
+参考链接：[Watch 美国纽约香草山农场 live on GETTR2022年美东香草山壬寅年新春联欢](https://gettr.com/streaming/prcsd0a0b2)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-发稿： 苦尽甜来 (文來）
+总编：Jack Li文阳
+编辑：谐趣园
+校正/发稿：谐趣园
 
-[原文链接](https://twitter.com/JustinTrudeau/status/1488162322187182085?t=DXtzvVrQhlPz82X1CoZq7A&amp;s=19)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
