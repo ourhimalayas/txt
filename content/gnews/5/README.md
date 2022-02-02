@@ -2,16 +2,12 @@
 ---
 
 
-## 中共春晚 全民洗脑
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1946581/)
+## 澳大利亚将参与讨论欧盟与中共的贸易争端
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946720/)
 
-文贵大直播20220202
+01/29/2022 天空新闻报道： 澳大利亚将参与讨论欧盟与中共的贸易争端。 澳大利亚贸易部长丹·特汉声称澳大利亚反对破坏国际贸易体系规则的经济胁迫和限制性贸易行为。
 
-撰稿：待命（文晓）（樱花）
-
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

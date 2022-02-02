@@ -2,42 +2,32 @@
 ---
 
 
-## 魁北克省媒：周三住院人数将“急剧”下降，暗示出台新措施
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1946580/)
+## 长期中共病毒患者的肺部存在异常表现
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1946710/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-4.png)
-图片来源：TVA NOUVELLES（2022 年 2 月 1 日）
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月29日，据相关媒体报道，一项新的研究发现指出，中共病毒长期患者的肺部会存在异常表现，且该异常很难被目前的常规医疗措施检测出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-1.jpg)
+据悉，研究人员检测到，很多长期感染中共病毒但并不需要住院的患者在确诊之后的一年里一直存在呼吸困难的症状。而研究人员在使用氙气MRI扫描后发现，这些患者大多都存在肺损伤的情况。虽然这些症状很少能被包括CT在内的其他测试检测出来，但中共病毒的长期患者在呼吸时，气体从患者肺部到血液的转移明显受损，相关异常情况则体现在肺部的气道、气体交换膜和毛细血管之间。
 
-#### 在魁北克，与 COVID-19 相关的住院人数急剧下降
+目前，研究人员正在尝试分析此类情况涉及的人数和治疗方法。
 
-TVA NOUVELLES（菲利克斯·塞甘Félix Séguin  2022 年 2 月 1 日晚上 7:09）发表一篇题为《周三住院人数将“急剧”下降》的文章报道，根据魁北克政府将于周三（2022 年 2 月 2 日）公布的报告，魁北克医院的（住院）患者减少 122 人。
+参考链接：[Lung abnormalities found in long Covid patients with breathlessness](https://www.itv.com/news/2022-01-29/lung-abnormalities-found-in-long-covid-patients-with-breathlessness)
 
-（周三，2022 年 2 月 2 日）还将宣布：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-- （与 COVID-19 相关的）52 人死亡。
-- PCR检测确诊病例3840例。
+总编: Irene木木
+编辑：飞虹
+校正/发稿：Fei797
 
-
-这些数字与魁北克政府宣布的报告（将于周三，2022 年 2 月 2 日，公布的报告）可能略有不同。
-
-自从疫情爆发到现在两年多的时间以来，在魁北克主流媒体上很少有几次出现“住院人数下降”的报道，特别是描述为“急剧”下降的报道，这暗示魁北克政府将要出台新的与 COVID-19 相关的措施。
-
-**参考资料**：
-
-1. TVA NOUVELLES，菲利克斯·塞甘Félix Séguin，  2022 年 2 月 1 日晚上 7:09，Vers une forte baisse des hospitalisations mercredi，[https://www.tvanouvelles.ca/2022/02/01/vers-une-forte-baisse-des-hospitalisations-mercredi](https://www.tvanouvelles.ca/2022/02/01/vers-une-forte-baisse-des-hospitalisations-mercredi)
-
-
-编辑：LILY
-
-发布：面包飞上天
-
-20220202
-
-
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

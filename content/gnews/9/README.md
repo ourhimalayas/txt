@@ -2,61 +2,32 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月2日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1946567/)
+## 冬奥会选手表示 希望去其他国家参赛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1946668/)
 
-采集整理：蚂蚁的城堡
+作者：台灣農場 – zhong
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月30日，据相关媒体报道，时逢中共北京冬奥会开幕在即，虽然中共媒体一直试图向外界传递出各国参赛选手喜爱此次冬奥会的错觉，但很多来自欧洲的运动员纷纷表示，他们对冬奥会完全喜欢不了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-2.jpg)
+不少来自法国的运动员在采访时指出，中共国并不是一个拥有滑雪文化的国家，但为了此次冬奥会的场地问题，中共政府大肆破坏森林植被并人为制造出相当违和的雪地会场。对此，运动员们强调，相较于因举办冬奥会而造成严重的生态问题，他们更希望奥委会能选择尊重自然、尊重个人的国家举办奥运会。
 
-提纲：
+此外，一些来自瑞典的运动员也通过媒体声明表示，国际机构不应该选择中共政府组织锦标赛或举办奥运会，他们更希望去其他国家参加比赛。
 
-1、中共国未能兑现中美第一阶段贸易协议承诺-美国贸易副代表比安奇
+参考链接：[外国运动员喜欢北京冬奥？欧洲运动员这样说](https://www.soundofhope.org/post/589594)
 
-2、中共国宣传：冬奥会再度催热数字人民币
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-3、 美国国债总额首次突破30万亿美元
+总编: Irene木木
+编辑：谐趣园
+校正/发稿：Fei797
 
-4、停办现金业务，两民营银行加强线上渠道
-
-正文
-
-1、中共国未能兑现中美第一阶段贸易协议承诺-美国贸易副代表比安奇
-
-![美国将公布贸易数据或报告中国未履行承诺细节](https://s.rfi.fr/media/display/74f62e94-1201-11ea-8f3b-005056a99247/w:1280/p:16x9/zmgxt.jpg)
-
-2月1日，美国副贸易代表比安奇(Sarah Bianchi)周二表示，中国未能履行于2021年底到期的两年期“第一阶段”贸易协议中的承诺，目前正在与中国就此事进行讨论。“你知道，很明显，中共国没有兑现第一阶段的承诺。这是我们试图解决的问题，”比安奇在华盛顿国际贸易协会主办的一个虚拟论坛上说。 在前总统特朗普于2020年1月签署的协议中，中国承诺在2020年和2021年期间，在2017年的水平上增加2,000亿美元的美国农业和制成品、能源和服务采购。彼得森国际经济研究所高级研究员Chad Bown编制的贸易数据显示，截至11月，中国仅完成了这一目标的约60%。
-
-参考链接：[https://cn.reuters.com/article/wrapup-china-usa-trae-commitments-0201-t-idCNKBS2K7048?il=0](https://cn.reuters.com/article/wrapup-china-usa-trae-commitments-0201-t-idCNKBS2K7048?il=0)
-
-2、中共国宣传：冬奥会再度催热数字人民币
-
-![](https://n.sinaimg.cn/sinakd20210909s/416/w1592h1224/20210909/44e4-2942a4e34e291da42b8671a42bf4ea9e.png)
-
-中共国北京冬奥会的“东风”带动数字货币加速落地，在北京冬奥组委园区内，试点部署了无人售货车、自助售货机、无人超市等创新应用场景，并推出了支付手套、支付徽章、冬奥支付服装等可穿戴设备。这些试点有效验证了数字人民币系统稳定性、产品易用性，截至2021年12月31日，中共国的数字人民币累计开立个人钱包2.61亿个，交易金额875.65亿元。
-
-参考链接 ：[http://www.21jingji.com/article/20220202/herald/5afa30cca93fb775545686f8247a444e.html](http://www.21jingji.com/article/20220202/herald/5afa30cca93fb775545686f8247a444e.html)
-
-3、 美国国债总额首次突破30万亿美元
-
-![创历史新高！美国国债总额首次突破30万亿美元_疫情_显示_援助](https://p8.itc.cn/q_70/images03/20220202/eff8a507502e46e1a0888af77b02f55d.jpeg)
-
-根据美国财政部周二公布的数据，美国国债首次超过 30 万亿美元。近年来债务激增的速度比预期的要快，这在很大程度上是由赤字资助的联邦对冠状病毒大流行的反应所推动的。自 2020 年初以来，未偿公共债务总额（截至周一为 30,012,386,059,238.29 美元）增加了近 7 万亿美元，债务在经济中的占比在 2020 年达到 100%，达到二战以来的最高水平。国债总额包括政府欠自己的 6.5 万亿美元，称为政府内部持有，以及欠外部债权人的 23.5 万亿美元，称为公众持有的债务。
-
-参考链接：[https://finance.yahoo.com/news/americas-national-debt-tops-30-235817085.html](https://finance.yahoo.com/news/americas-national-debt-tops-30-235817085.html)
-
-4、停办现金业务，两民营银行加强线上渠道
-
-![两家民营银行申请停办网点现金业务为申请互联网型铺路？ – 论金](https://img1.lunjin.net/69bb310f3adb25041a9ab2fd083f801055.webp)
-
-两家民营银行停办现金业务，多家民营银行正在积极谋求互联网银行资质，包括加大数字化转型力度、引入互联网背景的股东等。
-
-1月28日，中关村银行发布公告称，经向有关监管部门报备，该行将于2022年4月1日起停办现金收付业务，停办渠道包括营业网点柜面和该行ATM机自助渠道。在此不久前，辽宁振兴银行也曾公告称，经主管人民银行批复，该行将于2022年3月1日起停办柜面现金存取款、零钱兑换、残损币兑换、自助设备存取款等现金业务。
-
-参考链接 ：[https://www.stcn.com/xw/sd/202202/t20220202\_4128754.html](https://www.stcn.com/xw/sd/202202/t20220202_4128754.html)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

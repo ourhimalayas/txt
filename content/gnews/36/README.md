@@ -2,26 +2,35 @@
 ---
 
 
-## 北京冬奥会在即 日本通过反对中共侵害人权的决议
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1946286/)
+## 美、英、加联合向缅军政权实施制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1946319/)
 
-**撰稿：日本东京方舟农场  海星**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-在中共北京冬奥会开幕前夕，日本国会2月1 日通过了反对中共侵害人权的决议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-5.png)（图片来源：共同社）
-据《路透社》报导，日本国会当天通过了反对中共侵害人权的决议。该决议表示，国际社会一直在密切关注中共拘禁新疆、西藏和香港人民、侵犯人权及宗教自由等犯罪行为，国会已经意识到中共正在通过这些行为强制改变国际规则，这是对国际社会的威胁。该决议表明，人权具有普世价值，日本不仅要关注国内人权问题，也应与国际社会共同关注中共的人权问题。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-报导称，该决议在部分议员的推动下最终于北京冬奥会2月4日开幕前通过。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.39.37.png)图片来源：雅典娜设计组
 
-此外，由于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，日本于12月宣布将不派政府代表团参加北京冬奥会。
 
-参考链接：
-1. [https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD](https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
-2. [https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html](https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html)
+根据果敢资讯网：据有关媒体消息，2022年2月1日是缅军发动军事政变推翻民选执政政府（NLD）一周年，1月31日美国、英国、加拿大对缅军政权及起诉昂山素季的司法官员实施联合制裁。
 
-撰稿：海星
-编辑：文顺
-发布：文曦
+美国国务卿布林肯（Antony Blinken）表示，实施联合制裁行动显示国际社会对缅甸人民的支持，也进一步促使缅政权应为政变后的动荡与暴力事件负起责任，并指出自缅军夺取国家政权后，有近1500余名反军事政变抗议民众在缅军镇压中丧生，及1万余民众遭到逮捕。
+
+美国财政部表示，总共对7人与两个实体实施制裁，包括缅军政权总检察长蒂达乌（Thida Oo），并指出蒂达乌办公室对昂山素季罗织政治动机的罪名指控。
+
+国际非政府组织全球见证（Global Witness）活动领导人杜诺维兹（Paul Donowitz）表示：“联合制裁行动提醒缅甸商业界，从事军火采购并从中获利会有后果产生的。”
+
+参考链接：[https://c.m.163.com/news/a/GV57FVON0515M9K0.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GV57FVON0515M9K0.html?spss=today-news-hotrank)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
