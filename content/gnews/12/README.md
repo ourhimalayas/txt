@@ -2,44 +2,62 @@
 ---
 
 
-## 习仲勋开创的改革被邓小平抢走，习近平上台后全面左转
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944999/)
+## 中共间谍渗入慈善机构，接近英国精英圈，影响英国政治
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945025/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7d406d90bdd2085a31dfd](https://gtv.org/video/id=61f7d406d90bdd2085a31dfd)
+![Reports have surfaced suggesting that a charity founded by Martin Palmer and Prince Philip (pictured together) was infiltrated by Chinese intelligence officers in 2017](https://i.dailymail.co.uk/1s/2022/01/31/02/53568205-10458523-image-a-1_1643594562851.jpg)有报道称，由马丁·帕尔默和菲利普亲王（合照）创立的慈善机构于 2017 年被中国情报人员渗透
+《每日邮报》网站1月31日消息，报道称，菲利普亲王创立的一个慈善机构已被中共国情报官员渗透其中。这些外国间谍渗入了经营FaithInvest的公司，这是一家由已故菲利普亲王于1995年共同创立的慈善机构，旨在帮助信仰团体根据自己的信仰和宗教习俗来发展环境和保护项目。
 
-**郭文贵先生：**但是这个时候叫习仲勋是最最落魄者，集改革开放的人，到现在习最纠缠的是这改革开放是我爹干的，怎么是你邓小平干的呢？深圳的事情，习仲勋绝对是最大的功臣。不杀人、不能再杀人，这话是习仲勋说的，不能再杀人了。一天最多几千人，打到整个深圳罗湖那块，都是血流成河。杀人杀到，杀人开枪开到，杀人的兵疯了，一天疯好几个。都是游着过去，打西瓜皮“叭”一个，打中了“叭”一个。你知道人会杀人、会杀自己杀疯掉的。
+据《太阳报》报道，这些中共特工于2017年在温莎与菲利普亲王会面。该媒体称，这些情报官员在中国道教协会(China Taoist Association)组织下工作，但实际上是由中共中央统战部控制(United Front Work Department)。
 
-你们可真是不知道这个，这是七哥亲身经历太多了。那个时候我才多大，你去想想。七哥那时候早就已经混深圳了。是不是！那时候你们干啥呢？包括这平风，是不是！看你西枫，你看那时候，你们干啥呢？七哥已经在罗湖酒店混了，那时候罗湖还是个镇呢！那时候小沙滩，是不是！七哥就已经搞电子表、搞牛仔裤、邓丽君磁带，是不是！然后海外版的少女之心了，是吧！都玩这个去了。
+据报道，该组织与FaithInvest公司合作，因此他们能够在2017年派遣特工与爱丁堡公爵会面，从而开展行动并购买影响力。他们还通过与世界宗教与环境保护联盟(ARC)有关的活动与菲利普亲王会面——ARC也是一个由彭马田先生和菲利普亲王建立的独立慈善机构。
 
-所以兄弟姐妹们，你看到那个时代的时候，到十三大的时候，到今天，你发现十三大影响到今天，就是习近平今天的极端思想和对邓家的打压，当时就是所谓的南巡讲话，是走左还是走右？是不是！改革派还是极端派、绝对共产主义？最后是选择了一个既不走极左，也不是（极右），所谓的中国特色社会主义，确定了江山。习上来以后来个极左、绝对极左，跟他爹是完全相悖的。
+一位消息人士称：“中共统战部过去常常为一个相当不友好的政权呈现出一张更容易让人接受的面孔。但他们也参与了残酷的情报和外国干涉活动。”
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+《太阳报》说，没有迹象表明菲利普亲王或该慈善机构的另一位联合创始人彭马田(Martin Palmer)知道该组织已被渗透。
 
-编辑整理：Jacques；
+此前，军情五处本月早些时候在给国会议员的安全警告中指责中共统战部试图“暗中干涉”英国政治。国会议员在本周的一封重磅邮件中被警告要避免与考文垂(Coventry)58岁的律师李贞驹(Christine Lee)接触，她已经被安全部门监控了一段时间，并被军情五处认定为中共统战部的特工。
 
-字幕文件制作：小满；
+昨天有消息称，保守党贵族贝茨勋爵(Lord Bates)的妻子在一次与中共统战部有关的一个团体的北京会议上与中共主席习近平握过手。
 
-视频制作及上传：Cindy；
+李雪琳·贝茨勋爵(Xuelin Li Bates)自2010年以来向保守党捐赠了20.6万英镑，在2019年5月中华海外联谊会(Cofa)的一次会议上与习会面并握手。
 
-G-News发布：小满；
+这位60岁的保守党捐赠者前往北京参加中华海外联谊会理事会会议，该会议每十年举行两次，是负责世界各地的情报和宣传行动的统战部的一部分。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+据官媒报道，习在天安门广场的人民大会堂发表讲话，赞扬了与会者，并代表中国共产党表示“真诚的祝贺”。据《星期日泰晤士报》报道，李雪琳为习鼓掌，并在演讲后被拍到与习握手。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+贝茨夫人在1989年刚从一所中国大学毕业后就抵达伦敦，于2012年7月与保守党贵族贝茨勋爵结婚。贝茨勋爵曾在特雷莎·梅(Theresa May)、大卫·卡梅伦(David Cameron)和约翰·梅杰(John Major)手下担任部长。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+这对夫妇是在她为北朝鲜议会议长举办的一次私人晚宴上认识的。贝茨勋爵长期以来一直对这个神秘的国家感兴趣，他也是其最亲密的盟友中共国的朋友。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+在2020年出版的《隐藏的手》一书中，李雪琳被称为“一位在中国事务上有突出影响的人物”，并声称她成功地使自己接近了英国的顶级精英圈，在那里她可以传播“中国视角”。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**简评：**
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+中共统战部通过设立海外教育机构，成立商会联盟向海外派出间谍。这些在海外生活的人往往都隐藏很深，职业背景各不相同。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+几周前，MI5曝出的李贞驹律师被认定为中共统战部的间谍。她和贝茨勋爵夫人李雪琳一样，都是通过英国华人同盟会组织，与中共接洽。他们积极参与商务团体、政府机构的社交活动，目的就是伺机接近目标，最后用金钱和美色手段拿下有利用价值的政界和商界重要人物。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+文中提到的《隐藏的手》一书，是由澳洲中国专家汉密尔顿(Clive Hamilton )和德国马歇尔基金会的奥尔伯格(Mareike Ohlberg)联手的著作，此书介绍了中共多年来如何在英国政界和商界培植其线人诱骗“有用的白痴”，以渗透西方社会。书中指出贝茨勋爵夫人李雪琳通过成功接近英国的主流社会精英圈来传播“中共的观点”达到影响英国政治的目的，很好的诠释了中共间谍代理人的操作行为和手段。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新中国联邦创始人郭文贵先生在大直播中说，“在英国像李贞驹这样的中共间谍有七八十个”。英国政府也意识到“在冰山一角的下面还有厚重的冰块”，因此将针对中共间谍推出新的立法以打击中共对英国的渗透。以这样的趋势发展下去，中共政权在英国政商界的影响力将很快被清除，英国清除中共间谍的行动将为全世界范围内的反共运动起到推波助澜的作用。
+
+新闻链接：[https://www.dailymail.co.uk/news/article-10458523/Chinese-spies-infiltrated-charity-set-Prince-Philip-met-Duke-Windsor-Castle.html](https://www.dailymail.co.uk/news/article-10458523/Chinese-spies-infiltrated-charity-set-Prince-Philip-met-Duke-Windsor-Castle.html)
+
+翻译/简评:JS
+
+PR：Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

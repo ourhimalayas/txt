@@ -2,33 +2,30 @@
 ---
 
 
-## 新中国联邦持续三年的统一行动口
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945011/)
+## FBI再敲警钟：中共国对美威胁更具破坏性
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945095/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦3年的持续行动_01-1.jpg)
-直播时间：2021.12.08
+![资料照：美国联邦调查局局长克里斯托弗·雷在司法部的记者会上讲话。](https://gdb.voanews.com/52AD43DC-BBBE-4DE7-978F-73FD9D6C0F06_w1023_r1_s.jpg)资料照：美国联邦调查局局长克里斯托弗·雷在司法部的记者会上讲话。
+据美国之音2月2日报道，美国联邦调查局（FBI）局长克里斯托弗·雷指责北京盗取美国技术，对美国发起大规模黑客行动，称中共国政府对西方的威胁比以往任何时候都更厚颜无耻和具有破坏性，是对美国长期经济安全最大的威胁。FBI大约每12个小时便启动一个反中共国间谍的调查。
 
-一、凡提供中共高官子女、私生子女、亲属、情人在海外家庭住址、海外联姻关系、银行账号和其他资产相关信息的，一经核实，我们将对信息提供者给予一定标准的现金或喜币奖励。
+雷表示，美国和西方世界发现他们在与一个全球对手—中共在对阵。中共政府拒绝最基本的自由、人权以及民主规范。但是，中共的经济和政治具有全球影响力。中共国政府常常利用其能力在全球进行偷盗和威胁。雷特别强调一点，是中共国政府和中共构成对美国的威胁，不是作为中共国政府的人质和最大、最无辜的受害者的中国人民，当然更不是华裔美国人。FBI致力于保护所有美国人的安全及权利。
 
-二、在全球所有的国家，包括没有设立农场的国家，组织人员在中共大使馆、中共驻外机构、中共官员及其子女亲属住宅的门外场所举行24小时连续抗议行动。凡参加抗议行动者每人每天给予一个喜币，或者按不同国家和地区给予现金补助。
+中共在美国启动了大规模的黑客盗取项目，比所有其他国家加起来的程度都高。防偷盗防中共，是美国国家安全的头等大事。忽视了中共的危害性和破坏力，篱笆扎得再高，能挡住君子，也挡不住中共。
 
-三、联盟委员会将对抗议行动制定统一标准，包括着装、旗帜、口号、车辆装饰、扩音器、大屏幕等。要通过图片、视频、雕塑等方式曝光这些中共领导人及其父母、子女、私生子女、家属、情人的姓名、照片、丑闻等。
+新闻参考链接：[https://www.voachinese.com/a/threat-from-China-more-brazen-than-ever-before-20220201/6421768.html](https://www.voachinese.com/a/threat-from-China-more-brazen-than-ever-before-20220201/6421768.html)
 
-四、动员各所在国各类媒体，包括电视、网络、社交媒体等对抗议活动进行广泛深入的采访报道。我们将根据媒体的影响力和报道量给予不同标准的奖励。
+编辑：胖丁
 
-五、我们将投入10亿美元、1亿喜币来组织这场持久的抗议行动。
+* * *
 
-全球各地的战友们同胞们，为了我们的尊严，为了我们不被歧视，行动！行动！行动!
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-发布：*皮特*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
