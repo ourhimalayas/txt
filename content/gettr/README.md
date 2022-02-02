@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 1:08 PM (UTC)`
+
+2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币
+![img](https://media.gettr.com/group30/origin/2022/02/02/12/4786ae9f-93f8-998f-9713-759424b2bcfe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/2/2022 8:01 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Our NFSC’s scientists are working on a low-cost artemisinin cocktail therapy to save humanity from the CCP virus and vaccine disaster.<br/><br/>1/31/2022 文贵虎年新春大直播：我们新中国联邦的科学家正在研究一种低成本的青蒿素鸡尾酒疗法，以拯救人类免受中共病毒和疫苗灾难的影响。<br/>
@@ -151,13 +158,6 @@
 
 1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
 ![img](https://media.gettr.com/group22/getter/2022/02/01/03/af99e67a-fc6a-75f3-a79d-1de42bc4a4cc/fd2a7fbf67541184a61a778d47178045.jpg)
-
----
-
-`@miles 2/1/2022 2:53 AM (UTC)`
-
-1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
-![img](https://media.gettr.com/group36/getter/2022/02/01/02/b03df35a-43a6-2692-96cf-b65e84147455/d61821c6bea22a3d3d511a8416b0fd22.jpg)
 
 ---
 
