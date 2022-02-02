@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 3:03 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: What are the secrets behind my singing the song "The Snow Taking Down the CCP"? "The Snow Taking Down the CCP” is a piece of unprecedented epic music. Fellow fighters, you should all sing it!<br/><br/>1/31/2022 文贵虎年新春大直播：文贵演唱这首《灭共的雪》的背后有什么不认为人知的秘密？《灭共的雪》是前无古人的史诗般的音乐，战友们好好唱这首歌吧！<br/>
+![img](https://media.gettr.com/group17/getter/2022/02/02/03/f49cbe14-e685-600e-d4e5-a8a843dd5e21/out.jpg)
+
+---
+
 `@miles 2/2/2022 2:20 AM (UTC)`
 
 2月1日: 永恒的邓丽君，中国人的骄傲！ 
@@ -151,13 +158,6 @@
 
 2022年壬寅年新春大直播
 ![img](https://media.gettr.com/group44/origin/2022/01/31/12/1847a9a6-7fb1-2f16-1321-a5821623b4f6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/1/2022 12:35 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: Behind the CCP’s Spring Festival Gala are the dirty deals and fake performance, and it is the Chinese people’s money that has been spent on the CCP’s Gala. In contrast, the NeFederal State of China (NFSC) never takes a penny from Lao Baixing and has been saving the people at every moment. The NFSC worships the sun, while the CCP worships bloodshed and violence.<br/><br/>1/31/2022 文贵虎年新春大直播：中共春晚的背后都是肮脏的交易和虚假的表演，花的全是民脂民膏！新中国联邦不拿老百姓一分钱，每时每刻都在不停地救人；新中国联邦崇拜太阳，而中共却崇拜血腥暴力<br/>
-![img](https://media.gettr.com/group29/getter/2022/02/01/00/7e060328-309f-ce0e-1248-8e83d8868adc/out.jpg)
 
 ---
 

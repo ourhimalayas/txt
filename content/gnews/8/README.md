@@ -2,92 +2,29 @@
 ---
 
 
-## 虎年吉祥
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1944594/)
+## 共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1944879/)
 
-作者：香草山健身部-新世界的一员
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/共产党对盘古员工和业主，对文贵先生父亲犯下的罪行（二）_01.jpg)
+直播时间：2021.12.08
 
+进去后怕大家录像，马上先监控。你看他们，第一个是把监测室干掉，第二就是财务部，东西都别动，电脑别动，迅速冲进去。
 
+酒店是女孩占80%，都穿着睡衣睡觉呢，进去拿枪一顶，出去，啥也不让拿，手机不能拿，你只要一动啪一下就用枪托给你砸下去。就这样对那帮女孩。零下四度，全站大街上去，有的女孩就穿一只鞋，有的光着脚就被赶到大街上去了，你们想过这有多残忍吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-7.jpg)
+这是北京首都，“依法治国”的共产党天下。有的客人问咋回事，啪一个大嘴巴子就扇上去了。
 
+最后就到我爹那儿去了。我爹是中风，这是一会儿清楚一会儿不清楚，进去的人先跟我爹说，谁让你住这儿，怎么样怎么样说这话，结果我爹说，我是不会离开这儿的。
 
+发布：*皮特*
 
-新春佳节忆往昔
-
-万千澎湃袍泽情
-
-土墙瓦壁赵家沟 ​
-
-不羁少年真英雄
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0.jpg)
-卧薪尝胆三十年
-
-历难九九八十一
-
-莲出污泥而不染
-
-七芒星聚亿万心 ​
-
-九州同庆祝甜蜜！
-
-翩翩少年旷世才
-
-不谋权势不谋金
-
-乱世傲骨挺脊梁
-
-破除千年愚昧病
-
-不屈不饶生死抛
-
-心怀苍生跨战马
-
-五年爆料抛家舍
-
-重磅实锤捣魔窟
-
-喜迎虎年开大门
-
-完成灭共三头门
-
-豪唱灭共圣洁雪
-
-一帘幽梦藏良策
-
-以歌灭共声嘹亮
-
-秉承天意顺民心
-
-宇宙瀚海定海针
-
-千年传奇出一贵
-
-万物复苏世祥瑞！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

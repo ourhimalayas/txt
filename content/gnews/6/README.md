@@ -2,20 +2,26 @@
 ---
 
 
-## 法律你我他—中共国那些扫黄出来的明星嫖娼案
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1944607/)
+## 重生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1944896/)
 
-#### 加拿大温哥华扬帆农场 蓝枫法律
+发布：奇门遁甲
 
-中共明星嫖娼案最近被爆出来蛮多的，包括李云迪，其实每次中共爆出来明星的绯闻，就是用舆论操控来转移人们的注意力，凡是在国内酒店开房的，只要你是个人物，基本上中共都会有录像，只是说是不是时候给你拿出来，这是个没有法治的地方。未来新中国联邦关于性产业也是大家一人一票来决定，到时候也会有NGO组织来做，就像一个生态圈一样。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
 
-在西方就没有说抓个名人来公开认罪忏悔说跟谁发生什么关系，这个是侵犯人权的，当然根据加拿大法律，嫖客也是会被抓的，但是谁会在电视上放出来呢？同时西方会保护弱势群体的隐私，这都与中共国形成强烈的对比，中共操纵玩弄法律，贬低每一个人的尊严，我们尊重每一位观众对法律的理解，但也希望大家知道你的自由是基于宪法而来，不要触犯它。
+**更多资讯，更多关注**
 
-直播视频链接：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[第四十一期 一 金融税务专题](https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑/发文：蓝枫法律栏目
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

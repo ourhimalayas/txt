@@ -2,22 +2,44 @@
 ---
 
 
-## 莫要贪图利益酿大祸
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1944585/)
+## 霹雳山下的雷神和我们的雷神一样的勇士将埋葬妖魔鬼怪
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944875/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/02/莫要贪图利益酿大祸.png)
-你一定要记住全人类上没有一个人知道王毅**3**号跑了去那儿了，离开就大乱。就像王毅去阿富汗一样，王毅去越南一样。你们千万别把这个事儿给忘了兄弟姐妹们。为什么我们知道王毅去越南就要出事啊。为什么我们知道王毅说去阿富汗，我说阿富汗就完蛋了，是因为我们掌握共产党的安全委员会。中共的国家安全委员会，实际上是让全世界不安全委员会。 昨天下午，有一个人说，哎，**Miles**你怎么能说这个人是共产党呢。这是美国的这么有名的人，我说你怎么知道他不是共产党呢？他不吱声了。当时阿富汗的一哥们儿给我打电话，我说你们完了，王毅去那儿就是搞死你们去了。就是要递情报，把几个大家族协调好。而结果他说啥啊？你怎么知道王毅来不是给我们送粮食来了？我说，那你好好享受你的粮食。 纳扎尔巴耶夫身边的人，我说你千万记住你们那儿现在成了美国和中共和俄罗斯间较量的最大牺牲品，赶快跑。你的直升飞机，把你的私人飞机能拉啥拉啥快跑。你说这哥们儿过了半天回来，他说全家开了个会，**miles**我们特别爱你，你说的都对的，但你怎么知道他们来不是跟我们谈条件的？我们帮他弄那么多黄金，光我就经手了**20**吨黄金，他能对我们做什么啊？我说好，保存着你的黄金。人类不仅中国人是鼠目寸光，在利益面前，在平常的生活面前，所有的人类都有一个最大的共性，贪生怕死，永远不相信坏事情发生在身上，人家家出车祸，永远是人家，是你家不会出车祸，你家怎么开车都不翻，那坏事摊你身上是正常，没摊上是侥幸。我遇到什么事，我宁可相信坏我不相信好。
+G-TV视频链接：[https://gtv.org/video/id=61f7d370d90bdd2085a31db7](https://gtv.org/video/id=61f7d370d90bdd2085a31db7)
 
-*发布：开智则立*
+**郭文贵先生：**雷神是我女儿送给我的生日礼物啊，当时我们说武汉霹雳山，然后霹雳山会和雷神之间合作，整个霹雳山最后出现了，就是看到了潘多拉的盒子。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+大家记住那个时候还没有出现病毒呢，我说放出潘多拉盒子是多么的危险。最后我最早说出武汉潘多拉盒子的整个墓铭碑铭，就是：一旦你走进这里边就是一个潘多拉，你要是一旦有什么事，我就是潘多拉的盒子被打开。
+
+最后就是潘多拉盒子，霹雳山下的雷神和我们，现在我们所追求的和我们想要的，就是希望有雷神这样的勇士，正义和勇敢，将这些妖魔鬼怪雷击在荒野之中变成垃圾。
+
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
