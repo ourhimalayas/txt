@@ -2,27 +2,26 @@
 ---
 
 
-## 有声|台海两岸，春节油价不同步
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947086/)
+## 中共的以假治国导致军队毫无实战能力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947155/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近期，俄罗斯和乌克兰两国边境局势紧张，导致国际油价上涨。海峡两岸同样受到影响。春节将至，两岸政府作出了各自的应对之策。
+作者：香草山 – 新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月29日，郭文贵先生在香草山农场的年会直播中爆料称，一位曾被习近平接见过的中共军方人士对下属感慨道，中共军队一直在为攻打台湾做准备，但除了军中高层和作战部的相关人员外，基层士兵根本不相信双方会真正开战，且即便中共敢打台湾，其也不可能在战争中取得胜利。
 
-台湾中油1月30日表示，为维持价格优势，并配合政府春节期间稳定物价，减轻民众负担等政策，中油启动油价平稳措施。春节期间油价将按“上涨不调、下跌调”原则办理。台湾中油今天表示，为平抑油价将分别吸收汽、柴油0.7元新台币及2.3元新台币的溢价。31日凌晨零时起台湾的汽、柴油均不作调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.jpeg)
 
-与台湾政府稳定油价，让群众轻松过年的政策相比，中共发改委于同日宣布，墙内汽、柴油价格每吨分别提高310元和300元，并在调价周期内，国内成品油市场价格延续上涨为主。本次涨价已经是2022年墙内成品油第二次调价。
+郭先生指出，中共是一个以假治国的腐败体制，其根本没有实际的核心战斗力——这一点习近平也心知肚明，但他却实实在在地试图攻打台湾，即便中共内部没人相信能打赢。
 
-中共发改委提示，下一次调价窗口将在2022年2月17日24时开启，根据目前的情况，下一次调价开局仍将呈现上行趋势，在90元/吨左右。
+郭先生此前也多次提及，中共一旦出兵台湾必将立刻覆灭。彼时，新中国联邦会快速接手中国并推出“一人一票”的民主政体！
 
-春节是华人阖家团圆的节日。遥望海峡两岸，一边平抑油价，减轻民众负担；一边“喜”迎涨价，收割民脂民膏。民主与独裁，优劣立见。
+参考链接：[Watch 美国纽约香草山农场 live on GETTR2022年美东香草山壬寅年新春联欢](https://gettr.com/streaming/prcsd0a0b2)
 
-文字版原文：[台海两岸，春节油价不同步](https://gnews.org/zh-hans/1943054/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+总编：Jack Li文阳
+编辑：谐趣园
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,30 @@
 ---
 
 
-## 加拿大总理特鲁多感染新冠病毒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1947153/)
+## FDA与辉瑞合谋，要为5岁以下儿童接种至少两针中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1947212/)
 
-采编/编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=CRyAG2o7&amp;id=FB2858F3B595404FCEEF2D7992AD17491E019FBD&amp;thid=OIF.W8qeoraz6HDFc0vt%2fuZURQ&amp;mediaurl=https%3a%2f%2fcdn.cheknews.ca%2fwp-content%2fuploads%2f2020%2f11%2f10132752%2ftrudeaunov10.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.091c801b6a3bc854d78f815a4e7b7a56%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=543&amp;expw=963&amp;q=justin+trudeau+covid+update&amp;simid=95800763123&amp;FORM=IRPRST&amp;ck=5BCA9EA2B6B3E870C5734BEDFEE65445&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
+####  撰稿：彩虹       
 
-加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-103.png)图片来源：Today
+2月1日，《新闻极限》引述美联社的报道，指辉瑞公司周二要求美国批准为5岁以下儿童提供超低剂量的中共病毒（COVID-19）疫苗，为最年幼的美国人最早在3月份开始接种开辟道路。
 
-特鲁多在推特上表示：由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作。同时还不忘提请国民接种疫苗以及加强剂。
+非同寻常的是，FDA（食品和药物管理局）敦促辉瑞公司（Pfizer）及其合作伙伴生物科技（BioNTech）公司比原计划更早提出申请。
 
-报道称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
+目前，美国1900万5岁以下的儿童是唯一没有接种中共病毒疫苗的群体。一旦获得FDA批准，则瑞公司的中共病毒疫苗还要给6个月大的孩子注射。
 
-据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗！
+报道说，还未确定这些年幼的孩子们需要打多少针。辉瑞公司正在测试三针，因为其中两针超低剂量的对婴儿来说足够强大，但对学龄前儿童来说却不够强大，而研究的最终数据预计要到3月下旬才能出来。
 
-校对编辑：硫酸羟氯喹64
+这意味着FDA可能会考虑是否暂时批准两针，如果研究结果支持的话，第三针可能会被批准。辉瑞公司的研究是，间隔三周，然后至少两个月后再给参与打两针的5岁以下孩子打第三针。
 
-发稿： 苦尽甜来 (文來）
+文章预测FDA可能在几周内对此做出决定，当然，后续也需要CDC（疾病控制和预防中心）的签字通过。
 
-[原文链接](https://twitter.com/JustinTrudeau/status/1488162322187182085?t=DXtzvVrQhlPz82X1CoZq7A&amp;s=19)
+根据美国儿科学会的数据，截至上周，只有20%的5至11岁儿童和刚刚超过一半的12至17岁儿童完全接种了中共病毒疫苗。近四分之三的成年人已完全接种中共病毒疫苗。
+
+**新闻来源**
+
+[Pfizer Asks FDA to Allow COVID-19 Vaccine for Kids Under 5](https://www.newsmax.com/health/health-news/covid-vaccine-pfizer-children/2022/02/01/id/1055046/)
 
  
 

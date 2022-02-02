@@ -2,36 +2,36 @@
 ---
 
 
-## 有声|新中国联邦永远成为第三方的监督者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947094/)
+## 郭先生警示战友远离未经授权的游行活动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947177/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月30日的直播中，郭文贵先生向所有爆料革命的战友们发出预警称，任何个人或组织未经授权，不得擅自使用新中国联邦或农场的标志参与任何政治游行或抗议活动。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpeg)
 
+郭先生指出，世界各国中反对强制疫苗令的抗议活动已经在全球范围内掀起了反对极权统治的潮流，他们是保卫民主自由的英雄。但是，那些初衷是为了自由和正义的抗议活动大多都难免落入被政治构陷的结局，有些甚至被抹黑成暴力事件。
 
+为此，郭先生强调，任何爆料革命的战友如果没有得到喜马拉雅联盟委员会的授权而擅自打着新中国联邦或任何农场的旗号参与这类游行，他们都会被清理出爆料革命。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-1-1.jpg)
-人类文明的变迁和争斗，无一例外的，都涉及到人类大屠杀，最后赢家都会拿走权力。新中国联邦绝不会去触碰这个权力，将永远成为第三方监督者，让中国人实现新中国联邦宣言的承诺，对背道而驰者绝不姑息。新中国联邦宪法必须是一人一票选择的结果，这次文明的力量将得到更高维度力量的加持。
+郭先生还补充道，政治游行的走向往往不可控，而我们新中国联邦绝不能置身于这样的危机之中。尤其在全世界“排华”倾向日趋严重的当下，中共以及西方黑暗势力会充分利用这些事件污名化新中国联邦，甚至会诬陷爆料革命为邪教组织或暴力分子。非常时期，战友们必须谨慎地保持安全距离。
 
-文字版原文：[新中国联邦永远成为第三方的监督者](https://gnews.org/zh-hans/1941074/)
+参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

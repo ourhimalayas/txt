@@ -2,35 +2,22 @@
 ---
 
 
-## 中共的以假治国导致军队毫无实战能力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947155/)
+## 2022.2.2大直播 新中国联邦用音乐、用真实、用行动唤醒国人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1947232/)
 
-作者：香草山 – 新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月29日，郭文贵先生在香草山农场的年会直播中爆料称，一位曾被习近平接见过的中共军方人士对下属感慨道，中共军队一直在为攻打台湾做准备，但除了军中高层和作战部的相关人员外，基层士兵根本不相信双方会真正开战，且即便中共敢打台湾，其也不可能在战争中取得胜利。
+撰稿：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot1.jpg)
+郭文贵先生在2022年2月2日大直播中，提到了新中国联邦春晚上宋祖英被郝海东爆料的事一夜之间墙内尽人皆知，郭先生追问为什么郑州水灾，武汉病毒，杨佳杀警这些事无人提及，而一个明星的传闻却被全国人关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.jpeg)
+郭先生指出这就是CCTV春晚最大的祸害，中共利用春晚掩盖真相，粉饰太平，全民洗脑。是中共这个体制决定了CCTV春晚的性质，让春晚成为中共的政治风向标，成为中共掌权者的勾兑工具。
 
-郭先生指出，中共是一个以假治国的腐败体制，其根本没有实际的核心战斗力——这一点习近平也心知肚明，但他却实实在在地试图攻打台湾，即便中共内部没人相信能打赢。
+郭先生提到，国外通过对CCTV春节联欢晚会的调查发现中国人的宗教、节日、活动，所有的一切都是被国家和政府部门控制安排，中国人完全已经失去了辨别能力。
 
-郭先生此前也多次提及，中共一旦出兵台湾必将立刻覆灭。彼时，新中国联邦会快速接手中国并推出“一人一票”的民主政体！
+郭先生指出,CCTV春晚是精神毒药，毒害了几代中国人，它除了给人们洗脑之外，最可怕的是扼杀人们对政治、对知识、对世界的认知，浪费人们的生命。
 
-参考链接：[Watch 美国纽约香草山农场 live on GETTR2022年美东香草山壬寅年新春联欢](https://gettr.com/streaming/prcsd0a0b2)
+郭先生强调，爆料革命就利用了共产党几十年洗脑的这一做法，创办了新中国联邦春晚。2022年新中国联邦春晚取得了巨大的成功，国内观看超过2.5亿次，重播率高达50-60%。新中国联邦今天用音乐的力量，用真实的力量，用行动的力量唤醒了人们。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Jack Li文阳
-编辑：谐趣园
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+郭先生认为共产党真的是完了。
 
  
 
