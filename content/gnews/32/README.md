@@ -2,8 +2,8 @@
 ---
 
 
-## 回顾G系列
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945121/)
+## 以歌灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945124/)
 
 发布：奇门遁甲
 

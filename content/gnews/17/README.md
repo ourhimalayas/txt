@@ -2,46 +2,38 @@
 ---
 
 
-## 国内投资最多华人之一的夏平女士临死前被剥夺一切资产
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945453/)
+## CNN首席主播称将关注报道中共“恐怖”行为
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1945485/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7da75d90bdd2085a3217c](https://gtv.org/video/id=61f7da75d90bdd2085a3217c)
+#### **撰稿：彩虹**
 
-**郭文贵先生：**就像我今天我可以非常自信地说，我可以让任何人痛苦，没有人可以让我痛苦。我所有的痛苦是来自我内心的感情。就像我昨天听到一个我最重要的一位，最重要、最重要的一位我人生中经历的一个女性过世了。我知道她过世，我真的是昨天晚上一直难受，我在今天上直播前我还难受，很难受。这是我的痛苦，因为她不在的时候我并不知道。因为她在香港，我并没有能见到她，我很难受。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2.png)图片来源：Mediaite
+杰克·塔珀（Jake Tapper）是美国记者、作者和漫画家，也是CNN华盛顿的首席主播。本周，宣布，CNN将跟踪报道中共政府在本月北京2022年冬奥会期间犯下的“恐怖”行为。2月1日，新闻网站Mediaite对此作了报道。
 
-是昨天王雁平来告诉我这个消息，这是我很痛苦，但这种痛苦是我的感情让我造成的，不是别人、困难、挑战或者因为恐惧让我痛苦。我可以解脱和接受这种痛苦，因为她毕竟是95了嘛。
+文章说，在中国共产党被广泛指控对中国最西部的新疆地区的大部分穆斯林维吾尔人犯下侵犯人权的罪行前，北京这座城市于2015年被选中。
 
-大家要想知道，我想说的就是原来裕达的董事长，就是夏平董事长。她去年过世了，95岁。她比我母亲大三岁，所以说我很难过，非常难过。共产党在我爆料革命之后，对她在国内的家人和钱都给查封了。
+中共对维吾尔人的待遇是有据可查的。在2021年12月宣布总统乔·拜登（Joe Biden）将不派官方代表团前往中国参加奥运会时，白宫新闻秘书珍·普萨基（Jen Psaki）就提到了“种族灭绝”。
 
-你说共产党有多不要脸，夏平董事长给国内投资最多的华人之一。在她临死前，老人家在国内资产全部被剥夺。所以海外华人你想给中国共产党打交道，你永远是这下场。就当年中国人感谢香港人、感谢台湾人。香港夏平董事长捐了多少钱？给国内投了多少资在国内？结果弄成那么惨。我很难受，我很抱歉。这是一种感性的东西。
+塔珀在周一主持的“The Lead with Jake Tapper”节目中宣布，他将在每期节目中用一部分时间来报道北京（当局）的暴行，这个新栏目的名称为“中共防火墙背后（Behind China’s Wall）”。
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+他说：“在即将举行的奥运会的大肆宣传和魅力背后，有许多丑陋的真相，而中（共）国政府却希望你忽视这些真相。CNN的大卫·卡尔弗(David Culver)会介绍这些情况，当你在本周为你最喜爱的一些运动员欢呼时，习近平主席希望你忘记这些恐怖的事情。”
 
-编辑整理：Jacques；
+接着，CNN播出了卡尔弗预先录制的一段话，其中，卡尔弗列出了中共对新疆和台湾进行虐待或侵略的证据。
 
-字幕文件制作：知津；
+此外，卡尔弗还报告说，中共政府官员已经开展了大规模的行动来阻止中共病毒（COVID）的传播，并将该病毒称为“输入型威胁（imported threat）”。
 
-视频制作及上传：Cindy；
+文章特别报道说，2021年1月19日，迈克·蓬佩奥（Mike Pompeo）在担任国务卿的最后一天说，中共国对维吾尔人的待遇等同于（纳粹）大屠杀期间对犹太人的待遇以及ISIS统治下的基督徒。当时蓬佩奧说：
 
-G-News发布：小满；
+**在过去的四年里，本届政府揭露了中国共产党的本质，它是一个通过洗脑和暴力对长期受苦的中国人民行使权力的马克思列宁主义政权。我们特别关注中共对维吾尔族人的待遇……。**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**经过对既有事实的仔细审查，我确定，至少自2017年3月以来，中华人民共和国（PRC）在中国共产党（CCP）的指挥和控制下，对新疆以穆斯林为主的维吾尔人和其他少数民族和宗教团体成员犯下了反人类罪。**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+文章最后说，蓬佩奥指责中共国对大约1200万维吾尔人实施了非法监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和非人道待遇。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**新闻来源**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Jake Tapper Announces CNN Will Focus on ‘Horrors’ Committed by China During Beijing Olympics](https://www.mediaite.com/tv/jake-tapper-announces-cnn-will-focus-on-horrors-committed-by-china-during-beijing-olympics/)
 
  
 
