@@ -2,102 +2,171 @@
 ---
 
 
-## 中国人一出生就需要7.4年不吃不喝还债！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1945672/)
+## 斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1945814/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[https://gtv.org/video/id=61f9b9ccd90bdd2085a3b765](https://gtv.org/video/id=61f9b9ccd90bdd2085a3b765)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+Stephen Breyer (the US supreme court justice)
+斯蒂芬·布雷耶 （美国高院大法官）
 
-2022年1月18日，在中共国务院新闻办公室举行的《[2021年金融统计数据新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47730/index.htm)》上，中共国人民银行副行长刘国强说，2021年末，宏观杠杆率为272.5%。
+People have come to accept this Constitution
+人们开始接受这部宪法
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-44-35.png)
+and they’ve come to accept the importance of a rule of law
+他们已经开始接受法治的重要性
 
-而就在前一天中共国务院新闻办公室举行的《[2021年国民经济运行情况新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47722/index.htm)》上，中共国务院新闻办新闻局局长、新闻发言人陈文俊说，2021年（中共国）经济总量114.4万亿元，按年平均汇率折算，为17.7万亿美元。
+And I want to make another point to them
+我想对他们提出另一点
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-36-44.png)
+I want to say, look, of course people don’t agree
+我想说，看，当然人们会有不同意的时候
 
-根据中共国务院新闻办新闻局局长、新闻发言人陈文俊公布的数字，2021年中共国的GDP 114.4万亿元，而中共国人民银行副行长刘国强公布的2021年末，中共国宏观杠杆率为272.5%，也就是说中共国2021年末的总债务为114.4万亿元×272.5%=311.74万亿元。
+But we have a country that is based on human rights, democracy and so forth
+但我们有一个以人权、民主等为基础的国家
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-24-51.png)
+But I’ll tell you what Lincoln thought, what Washington thought
+但我会告诉你林肯的想法，华盛顿的想法
 
-就在1月17号的新闻发布会上，陈文俊说，（2021）年末全国人口（包括31个省、自治区、直辖市和现役军人的人口，不包括居住在31个省、自治区、直辖市的港澳台居民和外籍人员）141260万人。
+and what people today still think: it’s an experiment
+今天人们仍然认为这是一个实验
 
-做一个简单的计算，2021年末，中共国平均每个居民（包含刚出生的婴儿和年逾古稀的老人）负债311.74万亿元÷141260万人=22.07万元。
+It’s an experiment, that’s what they said
+这是一个实验，他们就是这么说的
 
-中共国国家统计局的数字一贯造假，但2020年5月28日，中共国务院总理李克强在出席十三届全国人大三次会议《[李克强总理出席记者会并答中外记者问](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm#1)》时说：“中国是一个人口众多的发展中国家，我们人均年收入是3万元人民币，但是有6亿人每个月的收入也就1000元”。
+And Joanna paid each of our grandchildren a certain amount of money to memorize the Gettysburg Address
+乔安娜付给我们每个孙子一定数量的钱来记住葛底斯堡演说
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_17-12-13.png)
+And the reason, the reason that what we want them to pick up there
+以及原因，我们希望他们在那里捕捉到的东西的原因
 
-根据李克强公布的“我们人均年收入是3万元人民币”，可以推算出中共国的婴儿从出生那天起，就负债22.07万元，需要22.07万元÷3万元/年=7.4年不吃不喝才能还清债务。而有6亿人每个月的收入也就1000元，这6亿需要22.07万元÷（1000元/月×12月/年）=18.4年才能还清债务。
+and what I want those students to pick up
+以及我希望那些学生学习的东西
 
-李克强公布的人均年收入是3万元人民币，与陈文俊公布的2021年全年全国居民人均可支配收入35128元相差不大，说明上述计算过程是合理的！
+if I can remember the first two lines
+如果我能记得前两行
 
-对于中共国人来说，一生能挣钱的时间在20岁~55岁，也就35年时间，中共国的人需要把人生7.4年÷35年=21%的精力用于偿还出生就有的债务！对于那6亿月收入不到1000元的韭菜来说，需要把人生18.4年÷35年=53%的精力用于偿还出生就有的债务！
+is that: four score and seven years ago
+就是：87年前
 
-中共治下的荒唐何止于此！
+our fathers brought created upon this, here a new country
+我们的祖先在此创造了一个新的国家
 
-中共国有3.2亿烟民，位居世界第一，2020年香烟生产总量高达2万亿支，10元低价烟逐渐消失的大背景下，还连续三年亏损。2020年亏损4.3亿元；2019年亏损达22.8亿元；2018年亏损13.8亿元。
+a country that was dedicated to liberty
+一个致力于自由的国家
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-28-20.png)
+and the proposition that all men are created equal
+以及人人生而平等的主张
 
-不仅如此，中共国国航2021年预亏145亿到170亿元！2020年亏损67.86亿！
+conceived in Liberty，those are his words,
+在自由中受孕，这是他的话
 
-国家电网2020年亏损178亿！2021年上半年广东售电公司整体亏损面88.2%！
+and dedicated to the proposition that all men are created equal
+并致力于人人生而平等的主张
 
-2021年，电力上市公司业绩出现史无前例的巨额亏损！中国电力预计2021年度净亏损5亿~6亿元，国电电力预计2021年度净亏损16亿~23亿元，华电国际预计2021年度净亏损45亿~53亿元，大唐发电预计2021年度净亏损90亿~108亿元，华能国际预计2021年度净亏损98亿~117亿元！
+he meat women too
+他认为妇女也是
 
-中国国家铁路集团2020年净亏损555亿元，2021年前三季度，发送旅客19.95亿人次，同比增加5.1亿人次、增长34.3%，然而净利润亏损698亿元！
+and we are now engaged in a great civil war to determine
+而我们现在正在进行一场伟大的内战来决定
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-31-38.png)
+whether that nation or any nation so conceived
+无论那个国家或任何国家是这样构想的
 
-1月28日收盘至24点， 409家A股上市公司发布预亏公告，合计亏损3772亿元至4492亿元。其中，预亏金额最高的十家上市公司预亏损合计近2000亿元。
+and so dedicated, can long endure
+如此敬业，能长久忍耐
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/o8hrrck10xzbxd1aetvk6q3tjc0s6s.jpg)
+see, those are the words I want to see “an experiment”
+看，这些是我想看到的“实验”
 
-仅苏宁易购一家预计亏损额就达到423亿~433亿元，而当日苏宁易购总市值仅364.02亿。相当于苏宁易购一家就亏掉每个中国人433亿÷14.126亿人=30.7元。恐怕绝大多数中国人去年都没有在苏宁易购买过一次东西，就是白送甚至倒贴运费也不至于亏这么多！
+And that’s what he thought, it’s an experiment
+他就是这么想的，这是一个实验
 
-华夏幸福亏损331亿~391亿元、正邦科技亏损182亿~197亿元、中国国航亏损145亿~170亿元、温氏股份亏损130亿~138亿元、中国东航亏损122亿~147亿元、南方航空亏损110亿~135亿元、蓝光发展亏损120.37亿元、华能国际亏损98亿~117亿元、百济神州亏损85.42亿~110.12亿元。
+And I found some letters that George Washington wrote where he said the same thing
+我找到了乔治-华盛顿写的一些信，他说了同样的话
 
-共惨党的腐败和荒唐，给全社会带来深重的灾难！消灭共惨党，公审老杂毛，是中共国唯一的出路！
+It’s an experiment
+这是一个实验
 
-参考数据：
+That experiment existed then because even the liberals in Europe
+实验之所以存在，是因为即使是欧洲的自由主义者
 
-[2021年金融统计数据新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47730/index.htm)
+you know, they’re looking over here, and they’re saying it’s a great idea in principle
+你知道，他们看看这里发生的事情，他们说原则上是个好主意
 
-[2021年国民经济运行情况新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47722/index.htm)
+but it’ll never work
+但它永远不会有效
 
-[A股上市公司“亏损王”历史被改写: 三大板块巨亏](https://www.sohu.com/a/520114115_118622)
+But we will show them it does
+但我们会告诉他们它行得通
 
-[李克强总理出席记者会并答中外记者问（实录全文）](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm#1)
+That’s what Washington thought
+这就是华盛顿支持的
 
-[意外!中国烟草,连续三年经营亏损!钱去哪了?](https://www.anmoyi98.com/a/314239)
+And that’s what Lincoln thought
+这就是林肯支持的
 
-[10元低价烟逐渐消失，年纳税达万亿的中国烟草，为何连亏3年？](https://new.qq.com/omn/20211026/20211026A05DIO00.html)
+And that’s what people still think today
+也是今天人们仍然认可的想法
 
-[一年亏损178亿，14亿人养不起国家电网？](https://www.163.com/dy/article/GCIA0V6T0531MRNF.html)
+And I say, well, I want you and I’m talking to the students now
+我说，好吧，我想对你们说，我现在想和学生们说
 
-[粤电力A：2021年预计亏损29-35亿元](https://news.bjx.com.cn/html/20220126/1201523.shtml)
+I say I want you to pick just this up, it’s an experiment
+我想让你们把它继承下去, 这是一个实验
 
-[国家电网去年主业首亏178亿，利润创七年新低](https://www.jiemian.com/article/5961951.html)
+That’s still going on. And I’ll tell you something
+这仍在继续， 我会告诉你一些事情
 
-[2021年上半年广东售电公司整体亏损面88.2% 仅19家度电获利0.9厘/千瓦时](https://shoudian.bjx.com.cn/html/20210810/1168822.shtml)
+you know who will see whether that experiment works
+你知道谁会看到这个实验是否有效？
 
-[电力上市公司2021年集体巨亏 煤、电业绩再现冰火两重天](https://finance.eastmoney.com/a/202201302266896082.html)
+It’s you, my friend, it’s you, Mr. High school students
+是你，我的朋友，是你，高中生先生
 
-[发送旅客19.95亿人次！国家铁路集团：前三季度亏损698亿元](https://news.mydrivers.com/1/792/792608.htm)
+It’s you, Mr. College student
+是你，大学生先生
 
-[亏损持续扩大 中国国航2021年预亏145亿到170亿元](https://finance.eastmoney.com/a/202201282266139696.html)
+it’s you, Mr. Law school students
+是你，法学院的学生先生
 
-[都知道中国烟草纳税额第一 却没几个人知道其亏损多年](https://finance.sina.com.cn/tech/2021-08-15/doc-ikqciyzm1499049.shtml)
+It’s us, but it’s you
+是我们，但也是你
 
-[中国烟草总公司，连续三年亏损！没人敢相信！](https://fcnews.finchina.com/newsview/default.aspx?newscode=20220102020015112865)
+It’s that next generation and the one after that my grandchildren and their children
+是下一代和我的孙子孙女和他们的孩子
 
-[苏宁易购(002024.SZ)](https://finance.sina.com.cn/realstock/company/sz002024/nc.shtml)
+They’ll determine whether the experiment still works
+他们将确定这个自由、民主、法治的实验是否仍然有效
 
-[袁海霞：2021年中国债务规模达336万亿，未来三年地方政府每年要偿债超2.5万亿](https://www.sohu.com/a/443259444_100160903)
+And of course, I am an optimist, and I’m pretty sure it will
+当然，我是一个乐观主义者，我很确定它会
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+because it surprise you that that’s the thought that comes into my mind today
+因为令你们惊讶的是，这就是我今天想到的想法
+
+I don’t know, but thank
+我不知道，但是谢谢
+
+* * *
+
+Date:01/29/2022
+原视频标题: Stephen Breyer says the U.S. is “an experiment that’s still going on,” based on its Constitution and founding principles
+斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”
+原视频日期：2022/01/28
+原视频链接: **[https://twitter.com/cbsnews/status/1486760986484822022?s=24](https://twitter.com/cbsnews/status/1486760986484822022?s=24)**
+任务编号：KE375（3621）
+视频时间段 : 0:00-2:43
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

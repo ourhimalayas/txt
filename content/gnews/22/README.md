@@ -2,24 +2,21 @@
 ---
 
 
-## 郭文贵盖特音频2022.02.01
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1946154/)
+## 加拿大总理特鲁多确诊感染病毒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1946215/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/out-4.jpg)
-### 视频链接:
+**撰稿：日本东京方舟农场 Kevin wang**
 
-[https://www.gettr.com/post/prt6yo3915](https://www.gettr.com/post/prt6yo3915)
+1月31日，加拿大总理特鲁多确诊感染中共病毒（COVID-19），身体暂未出现严重症状，正在隔离中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-4.png)（图片来自网络）
+据中央社报道，加拿大总理杜鲁道当日表示，他的中共病毒检测呈阳性，已确诊感染，在遵循医嘱的同时，仍然远程处理政府事务。
 
-### 音频链接：
+参考链接： 
+[https://www.cna.com.tw/news/aopl/202201310184.aspx](https://www.cna.com.tw/news/aopl/202201310184.aspx)
 
-
-
-
-
-编辑发布：闪电训练
-
-
+素材采编：Kevin wang
+编辑： 文顺
+发布： 文曦
 
  
 
