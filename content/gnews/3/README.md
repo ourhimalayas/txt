@@ -2,23 +2,24 @@
 ---
 
 
-## 中日财经爆┃日本五大银行净利润略微增长
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1946502/)
+## 谁有资格叛国和卖国？（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1946529/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mtxx01.png)
-[*图片来源*](https://truth.bahamut.com.tw/s01/202201/8e4f5d96807ae46421570bf2027c1221.JPG)
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/谁有资格叛国和卖国？（二）-.jpg)
+你有资格叛国吗？有资格卖国吗？你算个屁！当时我在里边的时候，当时郑州裕达，说我是美国的派来的特务，跟一个好莱坞的女人结婚了，然后就监视郑州的时候，他说郭文贵人家又说你是叛国，我说：“是吧，你说我叛哪个国？”他说：“你还真以为你叛国，你有资格叛国吗？那叛国得是共产党员来判国”，轮到你来说叛国了吗？就连一个郑州的一个所谓金水区的检察官反贪局的副局长都敢说我这话，后来这哥们被枪毙了，被注射毒针死了，你给查查去个人贪污2个多亿当年。所以兄弟姐妹你再看一看，为啥我讲昆仑山脉，为什么讲帕米尔高原，为什么讲整个的西藏、喜马拉雅。
 
-三菱日联金融集团等五大银行2日完成2021年4-12月合并财务报表，所有集团净利润同比都有所增长，其主要原因是企业盈利的恢复，因而为应对借方经营恶化而积累的“信贷相关费用”大幅减少。
+2022年1月12日大直播
 
-五个集团的信贷费用总额为3500亿日元，比前一年超过7000亿日元的总额减少了一半。根据东京商工研究，2021年企业破产（债务在1000万日元或以上）的数量是57年来的最低值。政府的财政支持一定程度上抑制了破产，从而巩固了各家银行的经营业绩。
+发布：星谕
 
-羊毛出在羊身上，靠政府补贴维持各公司运营的操作方式又能坚持多久？！日本政府这种左手倒右手、掩耳盗铃的做法应该也快黔驴技穷了。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-信息来源：[**大手銀、全5グループが増益  取引先企業の業績回復**](https://news.yahoo.co.jp/articles/64c8fbbd2fe5a51d7ac43a2bdb97379f7a00c48c)
-
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
