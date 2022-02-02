@@ -2,23 +2,26 @@
 ---
 
 
-## 从身边的伪类到世界各地，看灾难的不断上演（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1946231/)
+## 北京冬奥会在即 日本通过反对中共侵害人权的决议
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1946286/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+**撰稿：日本东京方舟农场  海星**
 
-你想想，盘古还有我父亲受到这种虐待，就是那些警察，那些法官， 他就是瞬间就变成了。受她没想过她脱下那身警服。他的家人王王丽王丽君孙立军孟建柱他都是在下场，何况你个法警特警了。 那不太容易了嘛？在那儿吃龙虾？这人他没想过你下一个不是吃你乱吃，吃法警特警你的女儿吃你老婆，那不太容易了嘛，在那儿吃龙虾？这人他没想过你下一个不是吃你乱吃，你女儿吃你老婆的乳房。是吧，像彭帅一样玩儿的你还得跟你让你消失。但是人性和认知之间就是这么一，就是这么模糊的界限，人和无没有信仰，只去就跟畜生没什么两样的。你看看路大脑袋时要研究，只要你去 看看他跟我们在一起时候啥样，你看他离开以后9，只要还露个脸吗? 食盐那个样子真的已成蛇了吧？你看路大脑袋还是有人样吗？背后，放一摞子书。就你看个就那个鸡腿潘你再看看当时的跟这个安红了来一起直播的那几个老头。你看看这个国宝是那个德行，所以这个人和鬼和魔之间你是不是一个成正比的，不是说不这样就那样， 我告诉你会发生什么事情世界上。最终的一个结果是，没有什么大药厂也不存在什么科学家被清算，你们都太天真了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/从身边的伪类到世界各地，看灾难的不断上演（一）-.jpg)
-2021年12月10日文贵大直播
+在中共北京冬奥会开幕前夕，日本国会2月1 日通过了反对中共侵害人权的决议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-5.png)（图片来源：共同社）
+据《路透社》报导，日本国会当天通过了反对中共侵害人权的决议。该决议表示，国际社会一直在密切关注中共拘禁新疆、西藏和香港人民、侵犯人权及宗教自由等犯罪行为，国会已经意识到中共正在通过这些行为强制改变国际规则，这是对国际社会的威胁。该决议表明，人权具有普世价值，日本不仅要关注国内人权问题，也应与国际社会共同关注中共的人权问题。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报导称，该决议在部分议员的推动下最终于北京冬奥会2月4日开幕前通过。
+
+此外，由于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，日本于12月宣布将不派政府代表团参加北京冬奥会。
+
+参考链接：
+1. [https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD](https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
+2. [https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html](https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html)
+
+撰稿：海星
+编辑：文顺
+发布：文曦
 
  
 

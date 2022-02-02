@@ -2,21 +2,25 @@
 ---
 
 
-## 加拿大总理特鲁多确诊感染病毒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1946215/)
+## 对盘古事件的认知、看法（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1946281/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-1月31日，加拿大总理特鲁多确诊感染中共病毒（COVID-19），身体暂未出现严重症状，正在隔离中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-4.png)（图片来自网络）
-据中央社报道，加拿大总理杜鲁道当日表示，他的中共病毒检测呈阳性，已确诊感染，在遵循医嘱的同时，仍然远程处理政府事务。
+另外一个就是我我的这个整个当时这个远古受到的这个殴打。我们就，我说那个高个子大山那个收养了6个姑娘孤儿她连饭都吃不起了，就被撵上马路。这个时候突然想起啊，我突然是给我一个已经被判刑释放那个老员工给他发信息。不过回最后人家，我说这是不给我号给错了，我找其他这个我的员工找的。最后，他叫别人给我回个信息，不要给我发信息。
 
-参考链接： 
-[https://www.cna.com.tw/news/aopl/202201310184.aspx](https://www.cna.com.tw/news/aopl/202201310184.aspx)
+你已经给我们家带来了很大灾难，我从来不后悔，我可以为你死1万次，但是我们的家人他非常的恐惧。你说这种对我是多难受。我的员工被吓成这个样子，家人是如此之痛苦，所以我说他一家人撒癌症。那一天，他在现场也是被撵出，就是说狼狈至极。其他员工被打的女员工，好多人就是那个肩部胳膊腿打断。不是，你就想想这些特警这些发展你跟这些打工妹打工仔的孩子都来自全国各地，你跟他什么仇？你把这人下城家人都得癌症，你把这些无辜的给你纳税的这些人打成腿割不断。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/对盘古事件的认知、看法（三）-.jpg)
+2021年12月10日文贵大直播
 
-素材采编：Kevin wang
-编辑： 文顺
-发布： 文曦
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

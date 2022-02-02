@@ -2,22 +2,32 @@
 ---
 
 
-## 对盘古事件的认知、看法（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1946281/)
+## AMA：疫情对美国造成的影响才刚刚开始
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1946298/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-另外一个就是我我的这个整个当时这个远古受到的这个殴打。我们就，我说那个高个子大山那个收养了6个姑娘孤儿她连饭都吃不起了，就被撵上马路。这个时候突然想起啊，我突然是给我一个已经被判刑释放那个老员工给他发信息。不过回最后人家，我说这是不给我号给错了，我找其他这个我的员工找的。最后，他叫别人给我回个信息，不要给我发信息。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-你已经给我们家带来了很大灾难，我从来不后悔，我可以为你死1万次，但是我们的家人他非常的恐惧。你说这种对我是多难受。我的员工被吓成这个样子，家人是如此之痛苦，所以我说他一家人撒癌症。那一天，他在现场也是被撵出，就是说狼狈至极。其他员工被打的女员工，好多人就是那个肩部胳膊腿打断。不是，你就想想这些特警这些发展你跟这些打工妹打工仔的孩子都来自全国各地，你跟他什么仇？你把这人下城家人都得癌症，你把这些无辜的给你纳税的这些人打成腿割不断。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/对盘古事件的认知、看法（三）-.jpg)
-2021年12月10日文贵大直播
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.39.37.png)图片来源：雅典娜设计组
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+根据红星新闻2月1日：据外媒报道，美国联邦当局估计，自2020年初以来，因受新冠病毒影响而死亡的美国人数大约为98.7万。美国疾控中心（CDC）表示，其中至少有90%的病例是直接死于新冠病毒感染，剩余的部分则是因医疗保健中断，过量服用药物等导致死亡。
+
+与1918年大流感不同，新冠病毒对老年人群体的打击更为严重。据联邦政府统计，美国养老院中超过14.5万人因感染新冠去世，其中大多数发生在疫情爆发的第一年。有分析称，美国总体上有14万多名处于黄金工作年龄（25-54岁）的人在疫情中去世。
+
+CDC国家卫生统计中心死亡率统计处处长罗伯特·安德森表示，美国新冠死亡人数可能更高。因为在疫情爆发初期，当时病例感染检测供不应求，而且填写死亡证明的医生仍在熟悉这种新冠病毒，可能会疏漏大量的死亡病例统计。
+
+美国医学协会（AMA）主席杰拉尔德·哈蒙说，“疫情对美国社会造成的影响，才刚刚开始。”
+
+参考链接：[https://c.m.163.com/news/a/GV57QLHM051492T3.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GV57QLHM051492T3.html?spss=today-news-hotrank)
+
+*发布：*tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
