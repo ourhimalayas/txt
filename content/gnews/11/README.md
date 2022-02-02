@@ -2,30 +2,34 @@
 ---
 
 
-## 扬帆每日速递 2022年2月2日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1948298/)
+## 有声|中共病毒及疫苗危机的可怕后果
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948301/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-1、五角大楼周三（2月2日）宣布，将向靠近乌克兰地区增加大约3,000名士兵。拜登总统已正式批准这一计划，这些军队将被部署到波兰和罗马尼亚等国。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2022年1月30日直播中表示，mRNA疫苗接种已经在世界上造成了数量惊人的死亡率，激起了社会各界的抗议。现在的人们已经意识到这是一场人类大屠杀，一场社交媒体大封杀，这是一场阴谋，mRNA疫苗接种是一场医学灾难。
 
-2、在加拿大西部，无法参加周末渥太华“2022年自由车队”抗议活动的卡车司机正在当地集会，支持结束疫苗令和所有疫期限制的行动。温哥华和弗雷泽河谷有一支声援车队从1月29日开始，穿过温哥华市中心，于1月30日在100公里外的卑诗省奇利瓦克（Chilliwack）结束。
+原文链接：[中共病毒及疫苗危机的可怕后果](https://gnews.org/zh-hans/1943055/)
 
-3、据文贵大直播：Himalaya Pay (HPay 或 喜支付）大年初一正式上市！ HPay 颠覆以虚拟货币支付和转账的方式、带领购物支付潮流，拉近人与人之间距离！无论是商家或个人，用Hpay支付或转账完全免费！
+音频处理/发稿：Daxia
 
-4、据文贵大直播：郭先生正式向共产党下战书！七哥誓言冬奥会变成冬眠会！
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-5、中共国外交部网站2月1日刊登赵立坚就日本国会众议院通过涉华人权决议答记者问：所谓人权事务纯属中国内政，事关中国主权和领土完整，不容任何外部势力置喙。日本部分政客强行拼凑所谓决议，是对中国人民的严重政治挑衅，中方保留采取进一步措施的权利。
+**更多资讯，更多关注**
 
-6、2月2日，港府今年取消年初二「农历新年烟花汇演」，凌晨有市民在獅子山公园及茘枝角公园等地上演烟花秀，公园上空爆出阵阵巨响。评:狮子山代表香港人不屈精神，荔枝角关押着大批受迫害的政治犯，而黄大仙、将军澳是反送中运动时的坚强后盾。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板2-2-1_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑：文敏
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-发布：风起云间（文敏）
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-海报图片设计：飞天面、 Shuang
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
