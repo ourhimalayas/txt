@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 7:29 PM (UTC)`
+
+2月2号：我的那乖乖嘞，咋了，这是咋回事儿了……
+![img](https://media.gettr.com/group40/getter/2022/02/02/19/e5da3084-a742-598f-3ee6-ca7a02cb2036/69c6e6018739d57020447d1dc517c660.jpg)
+
+---
+
 `@miles 2/2/2022 1:08 PM (UTC)`
 
 2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币
@@ -151,13 +158,6 @@
 
 1/31/2022 Miles Guo’s Chinese New Year Live: The former boss of Hermes admires the clothing of ancient China during the Northern Wei Dynasty, but the CCP has destroyed the best food culture, clothing culture, and music in China. The most important thing for the New Federal State of China is to make people live a good and authentic life.<br/><br/>1/31/2022 文贵虎年新春大直播：爱马仕前老板崇拜中国古代北魏时期的服饰，但中共却毁掉了中国最好的饮食文化、服饰文化和音乐；新中国联邦最重要的是要让人们的生活美好而真实<br/>
 ![img](https://media.gettr.com/group20/getter/2022/02/01/06/0b48a72e-9d7d-b3df-265c-1812acc24508/out.jpg)
-
----
-
-`@miles 2/1/2022 3:03 AM (UTC)`
-
-1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
-![img](https://media.gettr.com/group22/getter/2022/02/01/03/af99e67a-fc6a-75f3-a79d-1de42bc4a4cc/fd2a7fbf67541184a61a778d47178045.jpg)
 
 ---
 

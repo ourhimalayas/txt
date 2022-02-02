@@ -2,45 +2,17 @@
 ---
 
 
-## 2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947608/)
+## 青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1947612/)
 
-翻译及视频制作：香草山教育部 – 珠丝玛迹
+重大好消息！！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+科学家战友在欧洲一个军事级别的医学研究所，正在研究和测试与青蒿素相关的鸡尾酒疗法。该疗法能更深层次的清除疫苗余毒，甚至有可能达到100%清毒，并且对新冠也有很高效的治疗用。 目前该疗法的成本大约1美金一副。 郭文贵先生已经预定了约1亿美金的药物，专门供应爆料革命、新中国联邦的战友使用。还要等待最后的确认。
 
-
-
-
-
-原视频链接：
-
-[https://odysee.com/@LiBERTY\_VOICE:b/LucM:e](https://odysee.com/@LiBERTY_VOICE:b/LucM:e)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-校对：Gtv abeilles（蜜蜂）
-发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+视频来源: 20220130—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 

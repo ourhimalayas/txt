@@ -2,16 +2,75 @@
 ---
 
 
-## COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941897/)
+## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
 
-**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio-1.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-据新中国联邦及爆料革命发起人郭文贵于2月1日直播中表示，与他有联系的某一科学家在欧洲军事等级的医学研究所正在进行一项青蒿素鸡尾酒疗法的研究与测试。 他表示，这个青蒿素相关的鸡尾酒疗法能更深度的清除新冠疫苗余毒（可能指「新冠疫苗刺突蛋白引发的心肌炎、癌症及其他未知副作用」）。
+[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
 
-青蒿素相关的鸡尾酒疗法，据郭所述成本约为“一美金”，对新冠病毒有极高的治疗效用，甚至可能可以100%清除新冠疫苗的未知不良反应。 目前，并无更多关于青蒿素鸡尾酒疗法的信息。
-來源：[20m](https://gettr.com/user/20minfocus)[infocus](https://gettr.com/user/20minfocus)GETTR
-來源｜[GETTR](https://gettr.com/post/prpkcn65c4)
+**Steve Bannon
+史蒂夫·班农**
+
+the vaccine things have been rejected by every court
+每个法院都拒绝了疫苗的事情
+
+every major court in the country, rejected out
+全国各大法院，都被拒之门外
+
+Now you’re a butcher, now we says six is always 60 to 90 days was
+现在你是个屠夫，现在我们说是60到90天
+
+guess what? they’re not going to do on next Tuesday on February 1st in Austria
+你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
+
+The mandatory vaccines is kind of getting wobbly
+强制性疫苗规定有点摇摇欲坠
+
+now people now that unvaccinated can come out of the house
+现在，未接种疫苗的人可以走出家门
+
+We’re about to see if they still gotta pay the penalty
+我们要看看他们是否还要支付罚款
+
+In England’s off, in Denmark’s off, it’s gonna be off others
+在英格兰取消了，在丹麦取消了，其他地方取消了
+
+Sweden just announced yesterday, Guess what?
+瑞典昨天刚刚宣布，你猜怎样？
+
+The research and the data and the science shows
+研究、数据和科学表明
+
+that children, you know 5-12 kids don’t have to get the vaccine
+你知道5-12岁的孩子们不必接种疫苗
+
+because the dangers of it outweigh the benefits
+因为它的危害大于好处
+
+the dangers of it outweigh the benefits
+它的危害大于好处
+
+suck on that Tony Fauci
+想想吧托尼·福奇
+
+* * *
+
+Date:01/30/2022
+原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
+史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+原视频日期：2022/01/30
+原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
+任务编号：KE377（3637）
+视频时间段 : 0:00-0:45
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
