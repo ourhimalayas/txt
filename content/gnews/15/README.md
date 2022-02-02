@@ -2,10 +2,26 @@
 ---
 
 
-## 1/31/2022 文贵虎年新春大直播：文贵演唱这首《灭共的雪》的背后有什么不认为人知的秘密？《灭共的雪》是前无古人的史诗般的音乐，战友们好好唱这首歌吧
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1944837/)
+## 奇迹再见
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1944869/)
 
-秘密翻译组-北美组
+发布：奇门遁甲
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-Jan.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
