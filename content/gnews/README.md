@@ -15,53 +15,53 @@
 
 ---
 
-### [中国人要从活得象猪狗变成有尊严有价值有信仰自由的人](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [新中国联邦的系统让战友从零到有，从少到多再变成更多](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [世界需要新中国联邦](/content/gnews/3/README.md)
+### [如何减少共产党给海外华人带来的威胁（下）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”](/content/gnews/4/README.md)
+### [郭文贵先生直播警示 西方政府不惜发动战争](/content/gnews/2/README.md)
+ ` GTV News Talk`
+
+### [中国人要从活得象猪狗变成有尊严有价值有信仰自由的人](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [新中国联邦的系统让战友从零到有，从少到多再变成更多](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [世界需要新中国联邦](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [抗议者聚集美加边境支持卡车司机反对强制新冠疫苗规定](/content/gnews/5/README.md)
+### [抗议者聚集美加边境支持卡车司机反对强制新冠疫苗规定](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [大觉醒的西方精英和正义人士真不少,中国却只有一个七哥](/content/gnews/6/README.md)
+### [大觉醒的西方精英和正义人士真不少,中国却只有一个七哥](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [这个世界很疯狂](/content/gnews/7/README.md)
+### [这个世界很疯狂](/content/gnews/9/README.md)
  ` GTV News Talk`
 
-### [川普结束的时候亡腚缸已做好背叛爆料革命出卖战友准备](/content/gnews/8/README.md)
+### [川普结束的时候亡腚缸已做好背叛爆料革命出卖战友准备](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [每日快报：FBI局长表示，中共国政府对西方的威胁更加无耻](/content/gnews/9/README.md)
+### [每日快报：FBI局长表示，中共国政府对西方的威胁更加无耻](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈东北和鹤岗破产（五）](/content/gnews/10/README.md)
+### [七哥谈东北和鹤岗破产（五）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [胆小懦弱的路德在别人强奸他老婆和女儿时百分之百会跑](/content/gnews/11/README.md)
+### [胆小懦弱的路德在别人强奸他老婆和女儿时百分之百会跑](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳洲传奇音乐制作人惠特利：感染新冠去世，其已接种疫苗](/content/gnews/12/README.md)
+### [澳洲传奇音乐制作人惠特利：感染新冠去世，其已接种疫苗](/content/gnews/14/README.md)
  ` 走进澳洲`
 
-### [疫苗灾难和经济危机双重打击下的加拿大最终将迅速解决](/content/gnews/13/README.md)
+### [疫苗灾难和经济危机双重打击下的加拿大最终将迅速解决](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [那一年为何嫁给了共产党](/content/gnews/14/README.md)
+### [那一年为何嫁给了共产党](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
-
-### [数字银行股份的获得源起于献奉、坚持、灭共和唯真不破](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [几百号投资银行的战友们一分钱没动取得银行51%的49%](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [币圈新闻动态：HPay今日正式登陆AppleStore和PlayStore](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -132,65 +132,65 @@
 ### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/39/README.md)
  ` YALUN 亚伦`
 
-### [通货膨胀的政治力量](/content/gnews/40/README.md)
+### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/40/README.md)
+ ` 秘密翻译组-原创组`
+
+### [丹麦作出重大外交和安全政策调整，民主价值观排首位](/content/gnews/41/README.md)
+ ` 秘密翻译组-原创组`
+
+### [通货膨胀的政治力量](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/41/README.md)
+### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/42/README.md)
+### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/44/README.md)
  ` mary202064`
 
-### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/43/README.md)
+### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`
 
-### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/44/README.md)
+### [注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪](/content/gnews/46/README.md)
+ ` 秘密翻译组-原创组`
+
+### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/47/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/45/README.md)
+### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/48/README.md)
  ` 關注組`
 
-### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/46/README.md)
+### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/49/README.md)
  ` 關注組`
 
-### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/47/README.md)
+### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/50/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/48/README.md)
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/49/README.md)
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/50/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/51/README.md)
+### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/52/README.md)
+### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [追一朵云](/content/gnews/53/README.md)
+### [追一朵云](/content/gnews/56/README.md)
  ` 骄子`
 
-### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/54/README.md)
+### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](/content/gnews/55/README.md)
+### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](/content/gnews/58/README.md)
  ` 温哥华扬帆农场`
 
-### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)](/content/gnews/56/README.md)
+### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)](/content/gnews/59/README.md)
  ` 温哥华扬帆农场`
-
-### [【Michael.Tonny专栏】Rubio等参议员提起冠状病毒起源验证调查与确定法案](/content/gnews/57/README.md)
- ` 温哥华扬帆农场`
-
-### [每个墙内同胞都应该拥有一个香草山](/content/gnews/58/README.md)
- ` 纽约香草山MOS02`
-
-### [因提供对维吾尔人的监控 北京奥运会“人工智能冠军”翻译供应商被制裁](/content/gnews/59/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/60/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

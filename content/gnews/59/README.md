@@ -2,43 +2,78 @@
 ---
 
 
-## 因提供对维吾尔人的监控 北京奥运会“人工智能冠军”翻译供应商被制裁
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1927328/)
+## 【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1933733/)
 
-作者：Jerry Dunleavy
-发布日期：2022年1月28日
-新闻来源：华盛顿检查官（Washington Examiner )
-翻译：V 在途中
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+COVID-19病毒是中共对全世界发动的生化武器战争投放的生化武器，试验性的COVID-19病毒疫苗不能预防感染，只会导致身体免疫力持续下降，感染中共病毒的风险成倍增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/iFLYTEK-Asia-AI-Leader-Debuts-Cutting-Edge-Voice-Technologies-in-the-US-696x392-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
 
-北京奥运会官方翻译服务提供商因帮助中共监视维吾尔穆斯林而被美国列入黑名单。
-这家名为 iFlytek 的语音识别公司长期协助中国安全部门在新疆和其他地方提供技术监控，2019年9月被指定为“北京2022年官方自动翻译软件独家供应商” 。美国称中共正在对维吾尔人进行种族灭绝，美国商务部在 2019 年 10 月表示，科大讯飞是被列入美国黑名单的 20 多个中国实体公司之一，称科大讯飞“在实施中共国的镇压、大规模任意拘留和针对维吾尔人、哈萨克人和其他穆斯林少数群体成员提供了技术监控。”
+尽管澳大利亚新南威尔士州（New South Wales）的每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)）刻意偷换概念，将很多接种COVID-19病毒疫苗不超过21天的COVID-19感染者记入未接种人群，仍然无法掩盖疫苗带来的严重灾难的事实！
 
-科大讯飞的创始人兼首席执行官刘庆峰也是中共的橡皮图章全国立法机关全国人大代表。2021年，科大讯飞为东京奥运会提供了翻译服务，在9月份的新闻稿中暗示了其在北京冬奥会的计划。该公司长期以来得到中共国家的支持和政府的认可。公司于2018年被科技部评为全国“人工智能冠军”。
+在《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)》报告第31页，关于COVID-19疫苗接种状态分四种情形的定义：
 
-一家中国媒体在 2014 年报道称，科大讯飞“表示使用大数据技术打击恐怖主义已成为国际趋势”，讯飞公司可以提供帮助。科大讯飞智慧城市事业群公安部营销总监傅立亭告诉中共运营的《中国日报》，“我们通过应用我们的人工智能与警方合作。” 他告诉媒体，该公司自 2015 年以来一直在中国安徽和上海等城市与警方合作，“我们已经开始将应用程序扩展到 10 多个省的公安部门。” 傅指出科大讯飞的人工智能机器人“警察助手”，并表示该公司希望其设备在200个城市被警察使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)COVID-19 & Winter Statistical Report
 
-人权观察在 2017 年表示，科大讯飞表示已帮助中国公安部建立了国家语音模式数据库，并成立了人工智能语音技术部级实验室，以在新疆和西藏“破案”。监管机构表示，该公司“也是新疆和安徽公安局采购的声纹采集系统的指定供应商”。
+未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-该翻译提供商与中国移动、中国电信和中国联通合作多年，而这些电讯公司都已被美国列入黑名单，中国联通北京也是奥运会的独家供应商。
+接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种第1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
 
-美国国家人工智能安全委员会在 2021 年表示，科大讯飞等“国家冠军”公司帮助“引领国内人工智能技术的发展”，并“推进国家主导的优先事项，为军事和安全计划提供支持”，有大量证据表明科大讯飞帮助参与中国当局的追捕行动。
+完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
 
-据报道，科大讯飞的创始人兼首席执行官刘庆峰也是中共的橡皮图章全国立法机关全国人大代表。刘晓波回应美国黑名单时说：“没有任何力量可以阻挡我们用人工智能建设美丽世界的信心和步伐！” 他还发誓“我们不会被勒死”。
+疫苗接种状态不明确（Under investigation）
 
-讯飞其业务在 2020 年增长了 66%。在 2020 年对中国国营《环球时报》表示，黑名单并没有放慢速度，并吹捧他与华为的合作伙伴关系。
+根据这样的定义，显然存在大量打了一针疫苗不超过21天的COVID-19病例被计算在了未接种疫苗人群。
 
-华为分享的 2018 年杂志文章 断言，“科大讯飞和华为已形成战略合作伙伴关系，以开发语音和人工智能技术的实际应用。”
+截止到2022年1月29日晚上8点，新南威尔士州共接种4,776,938剂疫苗，年满16岁的人群一针疫苗接种率高达95.4%，两针疫苗接种率为94%，年满18岁的人群中，三针或加强针接种率达​38.8%。甚至12~15岁的青少年也有83.2%被打了疫苗，连5~11岁的儿童也有37.4%受到疫苗祸害。
 
-《华盛顿邮报》去年 12 月 透露，作为协助中国当局为“国家安全”目的分析声音的宣传的一部分，华为制作了幻灯片显示“科大讯飞声纹管理平台”（由华为和科大讯飞共同开发）可以识别个人通过庞大的“声纹”数据库。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_22-27-09.png)
 
-美国国会中国执行委员会在 2019 年表示，“中国安全当局继续与包括科大讯飞在内的国内公司合作，以扩大政府监控系统的覆盖范围和分析能力”。该公司参加奥运会是美国和国际运动员可能被迫使用与中共镇压有关的技术和产品的又一个例子，科大讯飞也可能被用来监视奥运会参与者和与会者。
+在如此高的疫苗接种率下，新南威尔士州最近感染COVID-19病例数激增。上周新增感染病例110,883例，本周也有63,051例，全州累计确诊814,161例,占全州816.6万人口的10%。
 
-[新闻链接](https://www.washingtonexaminer.com/policy/foreign/beijing-olympics-translation-provider-is-ccp-ai-champion-sanctioned-for-uyghur-surveillance)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-30_23-59-13.png)
 
-审核校对：Barry Jack
-上传排版：V在途中
+仅仅在1月22日一天内，新南威尔士州新增COVID-19确诊人数就达到非常恐怖的92,264人，占全州人口的千分之1.13。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-05-12.png)
+
+最近1个月，新南威尔士州新增COVID-19确诊病例激增。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-12-12.png)
+不单是新南威尔士州，整个澳大利亚最近一个月新增COVID-19确诊病例也激增。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Snipaste_2022-01-31_00-09-36.png)
+
+下表为1月20日《[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 01 ENDING 8 JANUARY 2022 Published 20 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)》报告第7页，表5，2021年11月26日~2022年1月8日，新南威尔士州COVID-19新增确诊、住院、ICU和死亡数据。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Table-5-Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status-NSW-from-26-November-2021-to-8-January-2022.jpg)
+
+我们来研究明确知道疫苗接种状态的COVID-19受害者的情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/Hospitalisations-ICU-admissions-and-deaths-among-cases-diagnosed-with-COVID-19-by-vaccination-status.jpg)
+接种疫苗患者的无论在确诊、住院、ICU和死亡中都占绝大多数。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/image-366-1.png)
+
+接[【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](https://gnews.org/zh-hans/1933874/)
+
+参考资料：
+
+[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
+
+[COVID-19 vaccination update Vaccine doses administered to NSW populations](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/stats-nsw.aspx#today)
+
+[Spikevax (Moderna)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/moderna)
+
+[Comirnaty (Pfizer)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/pfizer)
+
+[Vaxzevria (AstraZeneca)](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/approved-vaccines/astrazeneca)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW  Epidemiological week 1, ending 8 January 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

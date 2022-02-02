@@ -2,75 +2,36 @@
 ---
 
 
-## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
+## 欧洲各国政府的债务在疫情期间疯涨状况！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1941570/)
 
-[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
+作者：Martin Armstrong
+发布日期：2022年02月01日
+新闻来源：https://www.statista.com/
+翻译：V 在途中
 
-**Steve Bannon
-史蒂夫·班农**
 
-the vaccine things have been rejected by every court
-每个法院都拒绝了疫苗的事情
 
-every major court in the country, rejected out
-全国各大法院，都被拒之门外
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02011.jpeg)
 
-Now you’re a butcher, now we says six is always 60 to 90 days was
-现在你是个屠夫，现在我们说是60到90天
 
-guess what? they’re not going to do on next Tuesday on February 1st in Austria
-你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
 
-The mandatory vaccines is kind of getting wobbly
-强制性疫苗规定有点摇摇欲坠
+在疫情大流行期间，欧洲政府债务全面增加，但正如Statista的马丁·阿姆斯特朗（Martin Armstrong）在上图中所示，一些国家的影响比其他国家要严重得多。
 
-now people now that unvaccinated can come out of the house
-现在，未接种疫苗的人可以走出家门
+由英国国家统计局编制的数据显示，所有欧盟国家债务平均增长了12.9个百分点。
 
-We’re about to see if they still gotta pay the penalty
-我们要看看他们是否还要支付罚款
+您可以在Statista找到更多信息图表
 
-In England’s off, in Denmark’s off, it’s gonna be off others
-在英格兰取消了，在丹麦取消了，其他地方取消了
+就一般政府债务总额而言，爱尔兰从2019年第四季度末到2021年第三季度末仅增长了0.4个百分点。另一方面，西班牙现在发现自己的产量增加了26.3个百分点。
 
-Sweden just announced yesterday, Guess what?
-瑞典昨天刚刚宣布，你猜怎样？
+相比之下，英国则录得增长18.8%的变化。英国政府债务现在超过其GDP（103.7%），是战后时代的最高比率，甚至远远超过2008年金融危机造成的水平，该危机在2014/15年度达到峰值，占GDP的84.9%。
 
-The research and the data and the science shows
-研究、数据和科学表明
+应当可以判断：欧洲各国负债的大幅增长，可能对未来欧洲经济会造成巨大的影响！
 
-that children, you know 5-12 kids don’t have to get the vaccine
-你知道5-12岁的孩子们不必接种疫苗
+[新闻链接](https://www.statista.com/chart/26729/change-in-government-debt-european-countries-pandemic/)
 
-because the dangers of it outweigh the benefits
-因为它的危害大于好处
-
-the dangers of it outweigh the benefits
-它的危害大于好处
-
-suck on that Tony Fauci
-想想吧托尼·福奇
-
-* * *
-
-Date:01/30/2022
-原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
-史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-原视频日期：2022/01/30
-原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
-任务编号：KE377（3637）
-视频时间段 : 0:00-0:45
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 

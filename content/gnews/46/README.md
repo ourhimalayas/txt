@@ -2,25 +2,34 @@
 ---
 
 
-## COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941816/)
+## 注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1942039/)
 
-**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-31日路透社东京报道，日本兴和制药公司对外宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗新冠病毒的功效。 在第三期试验中，研究显示伊维菌素对Delta、Omicron等病毒的感染治疗有相同的效果。 伊维菌素过去被多国新闻媒体误认为「动物用」并倡导「不建议使用伊维菌素」作为治疗新冠用药，但伊维菌素有区分为人用、动物使用版本，人用伊维菌素经日本兴和制药与爱知县北里大学的实验结果证实可作为新冠治疗用药。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图像-10-1.jpg)
+图片来源：西陆网
 
-目前，日本已有数家制药公司展开临床试验，分析人士指出多家制药公司展开临床试验，代表伊维菌素在新冠病毒的应用可能很快获得日本政府的批准，并有利于控制疫情。
+自杭州所谓爆发疫情，多个小区被封后。据称，很快找到了源头。具有中共军方背景，代表着中共高层授意的西陆军事网《西陆网》带领下，国内多家媒体用同一的含沙射影的标题：《杭州疫情源头是美资公司？和某巨头还有关联》，继续将病毒源头指向美国。 作者：秦安战略
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-26.png)
+大家记得，《西陆网》在2020年1月26号用一篇报道，直指美国制造了冠状病毒，目的在于精准攻击华人。 它用一种露骨的报导方式提醒阅读这篇新闻的中国人：是美国制造并释放了这种病毒，用于精准攻击华人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-11.png)
+2月3日，郭文贵先生在一场与班农先生共同出现的直播当中，郭文贵先生就这篇报导向班农表示 ：现在具有中共军方背景，代表着中共高层授意的西陆军事网，在病毒来源明显不可能来自蝙蝠或野生动物的时候，他们不得不承认病毒确系人工制造，但是中共却要把这个屎盘子扣到美国头上，要挑起14亿中国人与美国的矛盾，转嫁仇恨。 ccp不但释放了这种人造病毒，而且还要把它嫁祸到美国人。
 
-此外去年开始，美国卫生研究院（NIH）便着手考虑[批准伊维菌素作为新冠治疗药物](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)。 同年9月，[外媒](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)报道印度德里都市区约97%的新冠病毒（COVID-19）病例，也使用伊维菌素得到有效治疗。
+而在一年之后的今天所谓的杭州疫情中，《西陆网》又出现了，声称和一家“慧而特”公司有关，奇怪的是，在说该公司进口物料检测出多份奥密克戎阳性时，没有说物料来源地？说与国外样本2021年12月11日的病毒序列高度同源，但没说哪一国？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-27.png)
+该文声称调查到“慧而特”公司几度改名，原名是马尼托瓦（中国）制冷有限公司，是世界制冰机行业领袖Manitowoc在中国的公司。Manitowoc总部设在美国威斯康星州马尼托瓦市。 文章用了绿色背景自由女神撒播病毒的画像。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-28.png)
+自2022年1月25日，面对美国政府要么撤馆要么面对病毒追责，中共一边在美国人面前装披着狼皮的羊，另一边在中国人面前装披着羊皮的狼，继续煽动着民族仇恨，指责是美国干的。这样的文章在中共国的微信中广泛流传，必须引起美国和西方社会的警惕，加上冬奥会和打台湾，将是中共激发民族情绪，得以维系中共政权的三张赌牌。
 
-- 相关：[COVID-19 最新情报|以色列疫苗覆盖率逾7成 确诊仍持续创新高](https://gnews.org/zh-hant/1902573/)
+而且这样的文章居然2022.1.30号上线youtube
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-29.png)
+来源：
+
+[西陆网](http://shizheng.xilu.com/20220129/1000010001197881_2.html)
+
+[youtube](https://www.youtube.com/watch?v=-PmxUIgU0Rk)
 
 
-有关于新冠治疗药物，日首相岸田文雄曾宣布经与辉瑞公司达成基本协议，确保200万剂量的新冠口服药物供给，且正在考虑用公费支付新冠口服药物的相关费用，然[郭文贵曾爆料称新冠口服药副作用极强](https://gnews.org/zh-hant/1770349/)。
-
-* * *
-
-来源｜[路透社](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)、[NIH](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)、[100percentfedup](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)
 
  
 
