@@ -2,50 +2,32 @@
 ---
 
 
-## 中国人要从活得象猪狗变成有尊严有价值有信仰自由的人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945848/)
+## 伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945904/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f80a0dd90bdd2085a32c1c](https://gtv.org/video/id=61f80a0dd90bdd2085a32c1c)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown.jpg)伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言 网络图片
+据台湾中央广播电台2月1日报道，非政府组织全球伊玛目理事会去年12月30日宣布，鉴于中共国政府继续以迫害、折磨、独裁专政等手段违反中共国穆斯林的基本人权，因而“禁止参加及出席2022中共国北京冬季奥运会”。中共官媒“环球时报”1月28日发文，声称全球伊玛目理事会获得了世界维吾尔大会的资助和欺骗。
 
-**郭文贵先生：**还有一个追求一个，中国人现在最重要的事情，把别把自己活得跟猪狗似的，一辈子就是吃了睡、睡了吃，然后死掉拉倒。变成有尊严有价值的人，有信仰自由的人。
+2月1日全球伊玛目理事会再度发布声明，驳斥“环球时报是谎言”，强调与世界维吾尔代表大会团结一致。所谓穆斯林领袖否认支持禁止参加北京冬奥声明，“也是谎言”。
 
-司法独立，一人一票选出的政府，然后让我们尊重天地，尊重大自然，让人和人之间像人的关系，人和畜生的之间的关系，应该是人要尊重畜生，而不是把畜生虐待畜生。
+中共在新疆持续犯下种族灭绝和反人类罪。在国际压力下，中国通过外交途径，甚至运用自己控制的媒体编造、散布谎言，企图误导国际社会、分化伊斯兰世界，让外界误以为伊斯兰世界支持北京冬奥会，没有抵制。
 
-而且人要知道自己是有主人，我们是来自于地球之外的，我们的主人的力量，我们叫做超自然力的，也可以叫大自然的，我们绝对不是猴变，猴是谁变的是不是？胡扯八道的事。
+这些手段是中共能生存下来的基本技能。如果不说谎话，中共一天都活不下去。全球越来越看清中共的本质，抵制北京冬奥会只是开始，会有越来越多针对中共的新举措。中共是人类的公敌，中共全球输出病毒和疫苗，所有人都成了中共的受害者。早早晚晚，世界会来清算中共的罪孽。北京冬奥会是中共灭亡之前的最后一场表演赛。
 
-然后现在我们在追求正义和真相的同时，就会找到自己，然后我相信人是不生不灭，人生就是一场黄粱一梦。但你醒来梦的时候，你是躺在床上，你别醒来梦的时候自己睡在洗手间里边去，你作恶太多你醒不来，你醒来的时候就在茅屎坑，你可能醒来在蛇堆里边，所以不要做恶，做好梦，做噩梦完全不同。
+新闻参考链接：[https://cn.rti.org.tw/news/view/id/2123644](https://cn.rti.org.tw/news/view/id/2123644)
 
-共产党、习近平，和从1913年的中国共产党、乌托邦到达中国，中国人做的都是噩梦，都是噩梦。
+* * *
 
-而新中国联邦人做的，是一个在梦中有双修、有流水，有欢乐、有摸胸，还有金钱，还有馒头，还有蛋糕，快乐的健康的愉悦的梦。你醒来会躺在软软的床上，微微的汗让你很舒服，而不会醒来是在茅屎坑里面，醒来在蛇洞里面，这就是我们新中国联邦。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-编辑整理：Jacques；
+编辑：【英国伦敦喜庄园编辑部】
 
-字幕文件制作：知津；
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

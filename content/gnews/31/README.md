@@ -2,22 +2,50 @@
 ---
 
 
-## 日本国会人权决议表述含糊 被批“很可耻”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1945227/)
+## 乌克兰兵凶战危 美英不排除联手制裁俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945241/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-95.png)
-日本众议会1日投票通过了一项关于中国侵犯人权问题的决议，但该决议没有特别提到 “中国”，也没有包括 “侵犯人权 “或 “谴责决议”等高度批评性的字眼。据说 这样做是为了照顾到与中国关系密切的公明党的面子，但自民党内的强硬派和日本共产党等反对党对此不满。
+作者：台湾宝岛农场 – zhong
 
-日本国会谴责中国政府在新疆维吾尔自治区侵犯人权的决议中没有包括中国的国名，“侵犯人权”被修改为“人权状况”，并且从“决议草案”中删除了“谴责”两个字。
 
-日本著名记者樱井女士认为这么做是荒唐的。日本作为世界第三大经济体，是一个文明国家，也是一个重视人权和法治的国家。 她说：“这真的很可耻。”
 
-信息源：[批判トーン弱めた人権決議　公明に配慮、自民にも共産にも不満の声](https://www.asahi.com/articles/ASQ216645Q21UTFK00Q.html?iref=pc_photo_gallery_breadcrumb)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+东欧和中东的地缘政治局势持续紧张，面对俄罗斯与乌克兰的战争风险，美国两党重量级联邦参议员1月30日宣布，就制裁俄罗斯的相关法案达成共识，只要俄罗斯派军进入乌克兰，俄罗斯经济就会遭到“毁灭性打击”，美国绝不重蹈二战前夕的姑息主义。
+
+美国副国务卿纽兰也向媒体透露，白宫正和参议院密切合作，若祭出制裁，相关措施将与欧盟一致，并保证会让俄罗斯“难以忽略”，预计美俄双方本周会再次举行会谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-3.jpg)
+另外，英国政府早前表态，若俄罗斯入侵乌克兰，英国会制裁与俄罗斯政府有关的公司，包括普京身边，所有统治集团的要员。对此，俄罗斯克里姆林宫发言人佩斯科夫回应指：英国政府的举动不仅是对俄罗斯企业的攻击，也会损害英国的投资环境，更会导致欧洲局势进一步紧张。他在记者会上警告，任何类似举动，俄罗斯都会基于自身利益予以回击。
+
+参考信息：
+1. [阻俄侵烏 美將毀滅性打擊俄經濟](https://udn.com/news/story/122663/6072885)
+2. [英國嗆擴大經濟制裁 克里姆林宮揚言報復](https://news.ltn.com.tw/news/world/breakingnews/3818400)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：天灭中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

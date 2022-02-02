@@ -15,104 +15,104 @@
 
 ---
 
-### [如何减少共产党给海外华人带来的威胁（下）](/content/gnews/1/README.md)
+### [从口罩到测试，世卫组织警告数千吨废物](/content/gnews/1/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [桥水基金](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵先生直播警示 西方政府不惜发动战争](/content/gnews/2/README.md)
+### [伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [如何减少共产党给海外华人带来的威胁（下）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [如何减少共产党给海外华人的威胁（中）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥谈东北和鹤岗破产（六）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [郭文贵先生直播警示 西方政府不惜发动战争](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [中国人要从活得象猪狗变成有尊严有价值有信仰自由的人](/content/gnews/3/README.md)
+### [中国人要从活得象猪狗变成有尊严有价值有信仰自由的人](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦的系统让战友从零到有，从少到多再变成更多](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [世界需要新中国联邦](/content/gnews/5/README.md)
+### [如何减少共产党给海外华人的威胁（上）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”](/content/gnews/6/README.md)
+### [新中国联邦的系统让战友从零到有，从少到多再变成更多](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [世界需要新中国联邦](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [抗议者聚集美加边境支持卡车司机反对强制新冠疫苗规定](/content/gnews/7/README.md)
+### [抗议者聚集美加边境支持卡车司机反对强制新冠疫苗规定](/content/gnews/13/README.md)
  ` GTV News Talk`
 
-### [大觉醒的西方精英和正义人士真不少,中国却只有一个七哥](/content/gnews/8/README.md)
+### [大觉醒的西方精英和正义人士真不少,中国却只有一个七哥](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [这个世界很疯狂](/content/gnews/9/README.md)
+### [这个世界很疯狂](/content/gnews/15/README.md)
  ` GTV News Talk`
 
-### [川普结束的时候亡腚缸已做好背叛爆料革命出卖战友准备](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [每日快报：FBI局长表示，中共国政府对西方的威胁更加无耻](/content/gnews/11/README.md)
+### [每日快报：FBI局长表示，中共国政府对西方的威胁更加无耻](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈东北和鹤岗破产（五）](/content/gnews/12/README.md)
+### [七哥谈东北和鹤岗破产（五）](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [胆小懦弱的路德在别人强奸他老婆和女儿时百分之百会跑](/content/gnews/13/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [澳洲传奇音乐制作人惠特利：感染新冠去世，其已接种疫苗](/content/gnews/14/README.md)
+### [澳洲传奇音乐制作人惠特利：感染新冠去世，其已接种疫苗](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [疫苗灾难和经济危机双重打击下的加拿大最终将迅速解决](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [那一年为何嫁给了共产党](/content/gnews/16/README.md)
- ` 澳喜特战旅Gnews`
-
-### [币圈新闻动态：HPay今日正式登陆AppleStore和PlayStore](/content/gnews/17/README.md)
+### [币圈新闻动态：HPay今日正式登陆AppleStore和PlayStore](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [我爱你，灭共的雪](/content/gnews/18/README.md)
+### [我爱你，灭共的雪](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [辉瑞制口服药“Paxlovid”10日将由专家审议是否使用](/content/gnews/19/README.md)
+### [辉瑞制口服药“Paxlovid”10日将由专家审议是否使用](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈东北和鹤岗破产（四）](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [CNN首席主播称将关注报道中共“恐怖”行为](/content/gnews/21/README.md)
+### [CNN首席主播称将关注报道中共“恐怖”行为](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本通过临床试验确定伊维菌素对治疗新冠肺炎的有效](/content/gnews/22/README.md)
+### [日本通过临床试验确定伊维菌素对治疗新冠肺炎的有效](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为办冬奥 中共崇礼县政府财务崩盘](/content/gnews/23/README.md)
+### [为办冬奥 中共崇礼县政府财务崩盘](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [CECC主席致函国务卿对遣返中共国进行外交干预](/content/gnews/24/README.md)
+### [CECC主席致函国务卿对遣返中共国进行外交干预](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳联储不得已开启货币紧缩政策](/content/gnews/25/README.md)
+### [澳联储不得已开启货币紧缩政策](/content/gnews/26/README.md)
  ` 走进澳洲`
 
-### [共和党参议员敦促拜登政府加紧对中芯的出口管制](/content/gnews/26/README.md)
+### [共和党参议员敦促拜登政府加紧对中芯的出口管制](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [金融巨鳄索罗斯预测 习近平连任无望](/content/gnews/27/README.md)
+### [金融巨鳄索罗斯预测 习近平连任无望](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/28/README.md)
+### [FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [战争恐成为政客逃避疫苗追责的借口](/content/gnews/29/README.md)
+### [战争恐成为政客逃避疫苗追责的借口](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/30/README.md)
+### [乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [日本国会人权决议表述含糊 被批“很可耻”](/content/gnews/31/README.md)
+### [日本国会人权决议表述含糊 被批“很可耻”](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [安然模式的疫苗骗局？——大药企正面临来自保险业的战争](/content/gnews/32/README.md)
+### [安然模式的疫苗骗局？——大药企正面临来自保险业的战争](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
-
-### [雅典娜时报-第192期](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [全球农场](/content/gnews/34/README.md)
  ` MOSREC`
@@ -138,58 +138,58 @@
 ### [丹麦作出重大外交和安全政策调整，民主价值观排首位](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
 
-### [通货膨胀的政治力量](/content/gnews/42/README.md)
+### [美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [通货膨胀的政治力量](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/43/README.md)
+### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/44/README.md)
+### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/45/README.md)
  ` mary202064`
 
-### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/45/README.md)
+### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/46/README.md)
  ` 纽约香草山MOS03`
 
-### [注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪](/content/gnews/46/README.md)
+### [注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪](/content/gnews/47/README.md)
  ` 秘密翻译组-原创组`
 
-### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/47/README.md)
+### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/48/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/48/README.md)
+### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/49/README.md)
  ` 關注組`
 
-### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/49/README.md)
+### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/50/README.md)
  ` 關注組`
 
-### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/50/README.md)
+### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/51/README.md)
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/52/README.md)
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/53/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/54/README.md)
+### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/55/README.md)
+### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [追一朵云](/content/gnews/56/README.md)
+### [追一朵云](/content/gnews/57/README.md)
  ` 骄子`
 
-### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/57/README.md)
+### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/58/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](/content/gnews/58/README.md)
- ` 温哥华扬帆农场`
-
-### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难(上)](/content/gnews/59/README.md)
+### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](/content/gnews/59/README.md)
  ` 温哥华扬帆农场`
 
 ### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/60/README.md)
