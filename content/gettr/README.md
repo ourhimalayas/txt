@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 12:03 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: Mr. Miles Guo proposed a new “7 Principles”for 2022 on the live broadcast of the Chinese New Year of the Tiger, to share with all the fellow fighters of New Federal State of China <br/><br/>1/31/2022 文贵虎年新春大直播：郭文贵先生于虎年春节大直播上提出了2022年新“郭七条”，与新中国联邦战友们共勉
+![img](https://media.gettr.com/group18/getter/2022/02/02/00/0762b768-6a8a-0f83-7274-d78f0c7d4555/out.jpg)
+
+---
+
 `@miles 2/1/2022 11:53 PM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Zhang Gaoli fooled Peng Shuai by using the idea that "the universe is infinite" and thus became the first man to sleep with her. The stories of heroes like Churchill and Mitterrand tell us it is important to be ourselves and not to care how others see us. However, the CCP’s China Central Television (CCTV) is purely brainwashing the people, and everything is just a show<br/><br/>1/31/2022 文贵虎年新春大直播：张高丽用“宇宙无限大”骗彭帅献出第一次；丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看<br/>
@@ -153,13 +160,6 @@ Limited Edition Exclusive Release for Chinese New Year.                         
 
 灭共的雪<br/><br/>演唱： Miles Guo<br/>改编： 威廉王 唐平<br/>编曲： SFG<br/>视频： 塔奇克马
 ![img](https://media.gettr.com/group46/getter/2022/01/31/18/0a0ec0ec-90b6-e396-691f-ecbd0c83792b/out.jpg)
-
----
-
-`@miles 1/31/2022 12:56 PM (UTC)`
-
-2022年壬寅年新春大直播
-![img](https://media.gettr.com/group44/origin/2022/01/31/12/1847a9a6-7fb1-2f16-1321-a5821623b4f6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
