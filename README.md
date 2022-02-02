@@ -15,101 +15,101 @@
 
 ---
 
-### [文贵爆料 2.2：Hpay上线，我的财富我做主](/content/gnews/1/README.md)
+### [美国将严厉制裁俄罗斯 俄将全面启用人民币](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [文贵爆料 2.2：Hpay上线，我的财富我做主](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [参议员敦促拜登政府弥补中芯国际出口管制中的漏洞](/content/gnews/2/README.md)
+### [参议员敦促拜登政府弥补中芯国际出口管制中的漏洞](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗与战争的关系](/content/gnews/3/README.md)
+### [疫苗与战争的关系](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [银河快讯：日本表示可能采取“额外措施”抑制油价；朝鲜有可能发射中远程弹道导弹](/content/gnews/4/README.md)
+### [银河快讯：日本表示可能采取“额外措施”抑制油价；朝鲜有可能发射中远程弹道导弹](/content/gnews/6/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [香草山村晚之联盟铁血组向战友致新春问候](/content/gnews/5/README.md)
+### [香草山村晚之联盟铁血组向战友致新春问候](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [灭共者之郭氏情报站（十九）2022/01/31 文贵虎年大直播](/content/gnews/6/README.md)
+### [灭共者之郭氏情报站（十九）2022/01/31 文贵虎年大直播](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [Miles背后出现了新中国联邦红旗的联想](/content/gnews/7/README.md)
+### [Miles背后出现了新中国联邦红旗的联想](/content/gnews/9/README.md)
  ` GTV News Talk`
 
-### [国际合作施压中共《海警法》](/content/gnews/8/README.md)
+### [国际合作施压中共《海警法》](/content/gnews/10/README.md)
  ` GTV News Talk`
 
-### [强国奇闻](/content/gnews/9/README.md)
+### [强国奇闻](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [中共左手病毒右手解药青蒿素进行人口清洗并甩锅美国](/content/gnews/10/README.md)
+### [中共左手病毒右手解药青蒿素进行人口清洗并甩锅美国](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022/01/28 墙内世界](/content/gnews/11/README.md)
+### [2022/01/28 墙内世界](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Twitter将遭受损失，直到它显示出更多的用户增长](/content/gnews/12/README.md)
+### [Twitter将遭受损失，直到它显示出更多的用户增长](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2/1银河快讯:乌克兰局势紧张，英国取消对日访问；兴和确认伊维菌素对Omicron有效](/content/gnews/13/README.md)
+### [2/1银河快讯:乌克兰局势紧张，英国取消对日访问；兴和确认伊维菌素对Omicron有效](/content/gnews/15/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [俄亥俄州的家长和学生因疫苗强制令起诉该州4所大学](/content/gnews/14/README.md)
+### [俄亥俄州的家长和学生因疫苗强制令起诉该州4所大学](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022.2.2大直播 新中国联邦用音乐、用真实、用行动唤醒国人](/content/gnews/15/README.md)
+### [2022.2.2大直播 新中国联邦用音乐、用真实、用行动唤醒国人](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥用生命在歌唱！灭共曲威力胜核弹](/content/gnews/16/README.md)
+### [七哥用生命在歌唱！灭共曲威力胜核弹](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [2/2银河快讯:日本自卫队开始运营东京大规模接种；新车销售量比去年1月下降14%](/content/gnews/17/README.md)
+### [2/2银河快讯:日本自卫队开始运营东京大规模接种；新车销售量比去年1月下降14%](/content/gnews/19/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [FDA与辉瑞合谋，要为5岁以下儿童接种至少两针中共病毒疫苗](/content/gnews/18/README.md)
+### [FDA与辉瑞合谋，要为5岁以下儿童接种至少两针中共病毒疫苗](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦新闻英文节目完美首播](/content/gnews/19/README.md)
+### [新中国联邦新闻英文节目完美首播](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [郭先生警示战友远离未经授权的游行活动](/content/gnews/20/README.md)
+### [郭先生警示战友远离未经授权的游行活动](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [虎年初一日本重拳出击 中共攒锋聚镝四面楚歌](/content/gnews/21/README.md)
+### [虎年初一日本重拳出击 中共攒锋聚镝四面楚歌](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共的以假治国导致军队毫无实战能力](/content/gnews/22/README.md)
+### [中共的以假治国导致军队毫无实战能力](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [加拿大总理特鲁多感染新冠病毒](/content/gnews/23/README.md)
+### [加拿大总理特鲁多感染新冠病毒](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [从太平联盟诉讼案透视中共法律超限战及渗透美国司法界](/content/gnews/24/README.md)
+### [从太平联盟诉讼案透视中共法律超限战及渗透美国司法界](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [今日盖特大V推荐 — Rudy W.Giuliani（鲁迪·朱利安尼 ）](/content/gnews/25/README.md)
+### [今日盖特大V推荐 — Rudy W.Giuliani（鲁迪·朱利安尼 ）](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共再次造谣将CCP病毒源头指向美国德特里克堡](/content/gnews/26/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|新中国联邦永远成为第三方的监督者](/content/gnews/27/README.md)
+### [有声|新中国联邦永远成为第三方的监督者](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|台海两岸，春节油价不同步](/content/gnews/28/README.md)
+### [有声|台海两岸，春节油价不同步](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [郭文贵先生：新中国联邦的影响力已经传遍世界](/content/gnews/29/README.md)
+### [郭文贵先生：新中国联邦的影响力已经传遍世界](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大科技公司像一个法西斯政府，他们在参与构建世界](/content/gnews/30/README.md)
+### [大科技公司像一个法西斯政府，他们在参与构建世界](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|历史为何惊人相似！](/content/gnews/31/README.md)
+### [有声|历史为何惊人相似！](/content/gnews/32/README.md)
  ` MOSREC`
-
-### [2022年2月2日郭先生大直播 文字同步精要](/content/gnews/32/README.md)
- ` 焦點20分`
 
 ### [有声|共产党在达沃斯继续勾兑，拿14亿中国人做代价](/content/gnews/33/README.md)
  ` MOSREC`

@@ -2,36 +2,31 @@
 ---
 
 
-## 郭先生警示战友远离未经授权的游行活动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947177/)
+## FDA与辉瑞合谋，要为5岁以下儿童接种至少两针中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1947212/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月30日的直播中，郭文贵先生向所有爆料革命的战友们发出预警称，任何个人或组织未经授权，不得擅自使用新中国联邦或农场的标志参与任何政治游行或抗议活动。
+####  撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpeg)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-103.png)图片来源：Today
+2月1日，《新闻极限》引述美联社的报道，指辉瑞公司周二要求美国批准为5岁以下儿童提供超低剂量的中共病毒（COVID-19）疫苗，为最年幼的美国人最早在3月份开始接种开辟道路。
 
-郭先生指出，世界各国中反对强制疫苗令的抗议活动已经在全球范围内掀起了反对极权统治的潮流，他们是保卫民主自由的英雄。但是，那些初衷是为了自由和正义的抗议活动大多都难免落入被政治构陷的结局，有些甚至被抹黑成暴力事件。
+非同寻常的是，FDA（食品和药物管理局）敦促辉瑞公司（Pfizer）及其合作伙伴生物科技（BioNTech）公司比原计划更早提出申请。
 
-为此，郭先生强调，任何爆料革命的战友如果没有得到喜马拉雅联盟委员会的授权而擅自打着新中国联邦或任何农场的旗号参与这类游行，他们都会被清理出爆料革命。
+目前，美国1900万5岁以下的儿童是唯一没有接种中共病毒疫苗的群体。一旦获得FDA批准，则瑞公司的中共病毒疫苗还要给6个月大的孩子注射。
 
-郭先生还补充道，政治游行的走向往往不可控，而我们新中国联邦绝不能置身于这样的危机之中。尤其在全世界“排华”倾向日趋严重的当下，中共以及西方黑暗势力会充分利用这些事件污名化新中国联邦，甚至会诬陷爆料革命为邪教组织或暴力分子。非常时期，战友们必须谨慎地保持安全距离。
+报道说，还未确定这些年幼的孩子们需要打多少针。辉瑞公司正在测试三针，因为其中两针超低剂量的对婴儿来说足够强大，但对学龄前儿童来说却不够强大，而研究的最终数据预计要到3月下旬才能出来。
 
-参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
+这意味着FDA可能会考虑是否暂时批准两针，如果研究结果支持的话，第三针可能会被批准。辉瑞公司的研究是，间隔三周，然后至少两个月后再给参与打两针的5岁以下孩子打第三针。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+文章预测FDA可能在几周内对此做出决定，当然，后续也需要CDC（疾病控制和预防中心）的签字通过。
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
+根据美国儿科学会的数据，截至上周，只有20%的5至11岁儿童和刚刚超过一半的12至17岁儿童完全接种了中共病毒疫苗。近四分之三的成年人已完全接种中共病毒疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源**
+
+[Pfizer Asks FDA to Allow COVID-19 Vaccine for Kids Under 5](https://www.newsmax.com/health/health-news/covid-vaccine-pfizer-children/2022/02/01/id/1055046/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
