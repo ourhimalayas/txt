@@ -2,29 +2,42 @@
 ---
 
 
-## 1.31大直播后记： 共产党恐惧文贵
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945274/)
+## 疫苗停止不会戛然而止西方对疫苗和药厂审判会交叉而起
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945346/)
 
-整理：雅典娜速记组
-编辑：朝花夕拾
+**郭文贵先生：**我觉得疫苗这个事情一定会停下来的，它不会说这些制药厂、辉瑞制药停了怎么着的。我觉得它是一个反复的过程，一定是反复的过程，不可能一下子全停然后全开始，一定要挣扎，药厂要给自己解脱，继续赚钱，继续弄，它是一个机器，它是一个赚钱的机器，一个邪恶的机器。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)
+共产党会不会弄？共产党我觉得在它死亡前什么都可能，什么都可能。而且共产党的无知和疯狂和愚蠢，包括现在在国内还在打针呢，还在推广呢，很疯狂啊，它的无知和愚蠢和傲慢都超出常人想象。
 
+关于美国和西方对这个疫苗停止以后各种反应、各种审判，它会交叉而起。它不可能说你突然就停了，大家都是很天真地想，都停了，都没事儿了，然后疫苗审判了、上绞刑，那我们就啥事儿都没有了，不可能的。到现在德国的纳粹都二战多少年了，纳粹思想还存在呢，纳粹人还没都抓起来呢，对吧？它就是这个结局。
 
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-图片来源：雅典娜设计组
+编辑整理：Jacques；
 
+字幕文件制作：知津；
 
-另外一个我发信息，他说，你知道今天防你们那真的是一切之大敌。他说谁要敢在现场，谁要毁谁，发信息说我发现谁在看新中国联邦的直播，他百分之百现场给你撵出去。他说，还管录播，他说你知道这个很可怕的，以前从来没有过，他参加过这么多届春节联欢晚会，他说，就连录播放东西，台前是先审再按，过去是12秒的缓冲，现在是35秒。你说他恐惧到啥程度啊， 他就怕谁把咱这个东西接进去了。说突然那节目直播变成郝海东讲流水项目， 郭文贵唱一帘幽梦不就完球蛋了。他们以为就个甜蜜蜜，跟今天中共的晚会有关系，他们已经怕了咱，疑神疑鬼，处处是郭文贵，新中国联邦了，他说这个小子弄不好就黑到咱这里边来。你们没感觉呀，咱现在真的是太牛了。牛到全世界了，就西方人看完以后，最后决定钱不要了，老子不去了。给我发信息，不去了。还会有更多人不去。所以咱这个直播的功能多大，这可不是演给别人看的，我们不是所谓共产党所说的，共产党私下所谓演艺界叫演艺圈，再说难听点，戏子供来玩儿的，哄别人的。我们可不是，我们这是真刀真枪的，每句话都是真的。咱们新中国联邦今天这个直播会真正的创造音乐的历史。你想想今天的音乐，你们听那个摇滚版了吧， 你看那歌听的我自己都爱我自己了。在这之前你想想，我能唱歌唱这样，你想想，这就是唐平、威廉王、Q妹、瑞恩等几个人整出来的。我们是几个人干掉一个14亿国家这个政党。我不相信有任何有脑袋有正常思考，不听我们的歌，去听他们的歌。你一听他们塞北的雪，一个国内平安的， 他家人也是我们战友， 也唱塞北的雪，那啥玩意儿， 跟那个杀猪最后的喘气儿，他就顶不上来这个气儿。你唱出个男人的样子，为啥中国男人唱的都像个女人呢？ 都是娘娘腔的。包括一帘幽梦，咱这个改的词改了太好了。 那么咱们现在在这个歌的力量，再一个就是音乐不会被忘记永远流传。今天这个新中国联邦晚会太绝了。 所以说今天大家真的是无人入眠，我也是兴奋到这个不能形容的兴奋，能让别人兴奋，是你的本事，你能让你自己也兴奋， 这可不是那么简单，你自己一直兴奋，这很难。 这像海东兄弟的流水项目一样，流不流水，真不是你一个人说了算，那得俩人说了算。 这就是个最实际的，现在是都流水，估计这个项目没有过。咱们是第一次，所以咱们今天下午，咱上午的重点已经完了，共产党已经被咱们秒杀，我相信冬奥会的塞北的雪，他不再唱了。他有种他屏蔽了。他把一帘幽梦给屏蔽了。你要记住邓丽君这个视频是没有人看过，我以前都没有看过。这个视频绝对对共产党对台湾对海外侨胞的影响力绝对超过百亿千亿的力量。
+视频制作及上传：Cindy；
 
-发布：星谕
+G-News发布：小满；
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

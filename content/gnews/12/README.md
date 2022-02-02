@@ -2,44 +2,30 @@
 ---
 
 
-## 内斗外困的共产党只有死路一条，新中国联邦是唯一出路
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945266/)
+## 共和党参议员敦促拜登政府加紧对中芯的出口管制
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945343/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72](https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72)
+![资料照片：中芯国际在上海举办的中国国际半导体博览会上的展台。(2020年10月14日)](https://gdb.voanews.com/6ee21c31-9fb2-430f-8b10-61b3faa0901d_cx0_cy1_cw0_w1023_r1_s.jpg)资料照片：中芯国际在上海举办的中国国际半导体博览会上的展台。(2020年10月14日)
+据美国之音2月2日报道，美国共和党参议员敦促拜登行政当局堵住前总统川普时期实施的出口管控措施中的一个“漏洞”，以加强对中共国首要芯片制造商中芯国际(SMIC)的限制。2020年末，川普行政当局将中芯国际纳入美国商务部的实体名单，原因是中芯国际与中共国军方关系密切，这被认为是对美国“明显的国家安全威胁”。
 
-**郭文贵先生：**所以说现在看到世界上，欧洲要带起的外交叫“脱交”。脱交可能跟美国同时干，也可能是什么，两个一起干，叫脱交。然后科技上已经彻底的幻想破灭。AMSl荷兰这一仗，对他绝对是致命的。在所有的领域全完蛋，这叫科技脱科还是脱技，是吧！都脱了。
+通常，一家公司被纳入贸易黑名单，美国供应商在向其发送任何美国物品时都必须申请特殊许可，而这会面临标准严格的审议。然而，在川普当局将中芯国际加入实体名单时，严格审议标准只适用于运往中共国公司的芯片制造设备，其它美国物件则走“个案”审议程序。去年10月，中芯国际的供应商们获得了价值几十亿美元的许可证。
 
-第三，大家现在的病毒溯源。第四冬奥会彻底完球蛋，成世界政治笑话。最后一条，大家看到了全人类在探讨一个问题，到底中国是改革开放，再次改革，深度改革，什么改革，开放能救中国吗？会避免共产党对全世界的威胁吗？都不会。只有一个一人一票的选举制度，才能救中国。
+中共军方通过中共国在海外的企业，或者与海外有业务往来的企业，通过各种手段偷盗技术并输出威胁。美国越来越多的有识之士和军方高层已经意识到了中共对美国国防安全，以及各行各业的威胁，该出议案的出议案，有漏洞的补漏洞。把中共可能带来的危险系数调到最高，把自己可能做到的防范级别做到极致。中共的邪恶本质决定了，只要中共存在一天，就不会停止攻击美国。
 
-因此十三大所有上台的人、家族，基本完球蛋。现在习想跟他们斗，也斗不了。那么现在就需要一个世界的力量和中国人的新力量，就我们新中国联邦，所以以上所有解决之道，只有《新中国联邦宣言》，你们信不信？服不服？兄弟姐妹们。谢谢！
+新闻参考链接：[https://www.voachinese.com/a/republican-senators-press-biden-administration-to-tighten-export-curbs-on-smic-20220201/6422287.html](https://www.voachinese.com/a/republican-senators-press-biden-administration-to-tighten-export-curbs-on-smic-20220201/6422287.html)
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+编辑：胖丁
 
-编辑整理：Jacques；
+* * *
 
-字幕文件制作：知津；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
+编辑：【英国伦敦喜庄园编辑部】
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

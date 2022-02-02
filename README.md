@@ -15,116 +15,116 @@
 
 ---
 
-### [以假赚钱搞政治的岳文海和科兴中维要投房地产赚棺材板](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [习近平难过鬼门关](/content/gnews/2/README.md)
+### [七哥怎么玩冬奥会的](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [极端化的马克龙九成可能落选法国人民会选出自由派总统](/content/gnews/3/README.md)
+### [没有人生目标没有信仰没有能力者因无信仰无能力而痛苦](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳联储不得已开启货币紧缩政策](/content/gnews/4/README.md)
+### [外资全撤，冬奥会是礼物](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [清零的经济危害](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [CECC主席致函国务卿对遣返中共国进行外交干预](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登给习近平的2个选择](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [以假赚钱搞政治的岳文海和科兴中维要投房地产赚棺材板](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [习近平难过鬼门关](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [极端化的马克龙九成可能落选法国人民会选出自由派总统](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [澳联储不得已开启货币紧缩政策](/content/gnews/10/README.md)
  ` 走进澳洲`
 
-### [疫苗停止不会戛然而止西方对疫苗和药厂审判会交叉而起](/content/gnews/5/README.md)
+### [疫苗停止不会戛然而止西方对疫苗和药厂审判会交叉而起](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [共和党参议员敦促拜登政府加紧对中芯的出口管制](/content/gnews/6/README.md)
+### [共和党参议员敦促拜登政府加紧对中芯的出口管制](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [爆料革命不是保险公司不能为灭共时间线和灭共方式担保](/content/gnews/7/README.md)
+### [爆料革命不是保险公司不能为灭共时间线和灭共方式担保](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [空谈不可能灭共为狗粮砸爆料革命的海外欺民贼缺乏常识](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [新中国联邦会给被中共深度渗透的新西兰意想不到的好处](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [在正义与邪恶大形势下共产党的内斗和自保不会有人胜出](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [1.31大直播后记： 共产党恐惧文贵](/content/gnews/11/README.md)
+### [七哥谈东北和鹤岗破产（一）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [内斗外困的共产党只有死路一条，新中国联邦是唯一出路](/content/gnews/12/README.md)
+### [空谈不可能灭共为狗粮砸爆料革命的海外欺民贼缺乏常识](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [江泽民王岐山孟建柱曾庆红重提邓南巡讲话给习近平刹车](/content/gnews/13/README.md)
+### [新中国联邦会给被中共深度渗透的新西兰意想不到的好处](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/14/README.md)
+### [在正义与邪恶大形势下共产党的内斗和自保不会有人胜出](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [金融巨鳄索罗斯预测 习近平连任无望](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [美国军舰虎年首度穿越台海](/content/gnews/15/README.md)
+### [FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [日本国会人权决议表述含糊 被批“很可耻”](/content/gnews/16/README.md)
+### [战争恐成为政客逃避疫苗追责的借口](/content/gnews/20/README.md)
+ ` NFSC News`
+
+### [乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/21/README.md)
+ ` NFSC News`
+
+### [美国军舰虎年首度穿越台海](/content/gnews/22/README.md)
+ ` NFSC News`
+
+### [日本国会人权决议表述含糊 被批“很可耻”](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平发小告诫习没有政治制度改变的改革绝无成功可能](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文贵先生大年初一盖特直播要点（2022年2月1日）](/content/gnews/18/README.md)
- ` 波士顿五月花农场`
-
-### [安然模式的疫苗骗局？——大药企正面临来自保险业的战争](/content/gnews/19/README.md)
+### [安然模式的疫苗骗局？——大药企正面临来自保险业的战争](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [雅典娜时报-第192期](/content/gnews/20/README.md)
+### [雅典娜时报-第192期](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [东京大规模接种疫苗 将扩大到每天约5000人](/content/gnews/21/README.md)
+### [东京大规模接种疫苗 将扩大到每天约5000人](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [邓丽君之死背后的中共魔影](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
-
-### [全球农场](/content/gnews/23/README.md)
+### [全球农场](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [以歌灭共](/content/gnews/24/README.md)
+### [以歌灭共](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [回顾G系列](/content/gnews/25/README.md)
+### [回顾G系列](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [香草山农场祝大家新年快乐](/content/gnews/26/README.md)
+### [香草山农场祝大家新年快乐](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [FBI再敲警钟：中共国对美威胁更具破坏性](/content/gnews/27/README.md)
+### [FBI再敲警钟：中共国对美威胁更具破坏性](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共间谍渗入慈善机构，接近英国精英圈，影响英国政治](/content/gnews/28/README.md)
+### [中共间谍渗入慈善机构，接近英国精英圈，影响英国政治](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [收藏殿堂 | 新冠病毒生物战争的设计者发动者到底是谁？](/content/gnews/29/README.md)
+### [收藏殿堂 | 新冠病毒生物战争的设计者发动者到底是谁？](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京奥运会运动员、教练员的病毒感染率上升较快](/content/gnews/30/README.md)
+### [北京奥运会运动员、教练员的病毒感染率上升较快](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|科顿参议员指出本不该让中共举办冬奥会](/content/gnews/31/README.md)
+### [有声|科顿参议员指出本不该让中共举办冬奥会](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [DC大中华时事：世上最腐败的政党虚假宣传中共中央拜年“清茶一杯”](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [郭文贵绝唱-谁与七哥共同来灭共，打碎那千年的牢笼](/content/gnews/33/README.md)
+### [郭文贵绝唱-谁与七哥共同来灭共，打碎那千年的牢笼](/content/gnews/36/README.md)
  ` cindy`
 
-### [2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/34/README.md)
+### [2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
-
-### [2022年2月2日《樱花简报》：东京新增中共病毒人数首次破万创新高](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Hpay上市了](/content/gnews/36/README.md)
- ` genwsGNEWS`
-
-### [Himayala Pay(Hpay/喜支付)正式上市](/content/gnews/37/README.md)
- ` 首尔天池农场`
 
 ### [日本国会通过关于中国人权状况的决议](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

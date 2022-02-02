@@ -2,50 +2,44 @@
 ---
 
 
-## 美国军舰虎年首度穿越台海
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945240/)
+## 空谈不可能灭共为狗粮砸爆料革命的海外欺民贼缺乏常识
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945323/)
 
-作者：纽约磐石农场—在远方 ，纽约香草山教育部 Naughty(文行)
+G-TV视频链接：[https://gtv.org/video/id=61f7d6aad90bdd2085a31f2b](https://gtv.org/video/id=61f7d6aad90bdd2085a31f2b)
 
+**郭文贵先生：**这就我一再跟战友说的，我们要有一个常识，不要犯了天真的毛病，也不要犯了那种大脑症，所有海外的所谓民主民运的大脑症。
 
+你看路大脑袋还有高冰尘，我告诉（过）大家，我说我们熬都能熬死高冰尘，现在已经舌头都梗儿了，是吧？他一个月也就是能弄个万把美金，是吧？共产党的那些所谓的常州的、江苏的安全局的人通过他能骗个共产党十万美金，让他弄个一万美金就不错了。老婆给戴绿帽子了，是吧？他现在他待的那个屋里边，用些假的过去进的中国假瓷器装修在后面，然后舌梗儿，咱耗都能把他耗死。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+为什么这么说？欺民贼就是，高冰尘他天真，他没有常识，但凡有常识的、有点脑子的，我也不会跟你爆料革命作对，我也不会赚这个钱。咱海外的民运欺民贼就太天真，以为讲讲说说，你就能灭共，你开什么玩笑是吧？没有行动，什么都没有用。
 
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
+编辑整理：Jacques；
 
-台媒消息，美国第七舰队31日证实，麾下伯克级神盾飞弹驱逐舰，杜威号，于1月22日穿越台海。据报道，这是2022年为止，美国军舰第1次穿越台湾海峡。
+字幕文件制作：知津；
 
-第七舰队发言人西姆斯表示，杜威号在国际水域航行的举动，完全符合国际法。而且，穿越台海也显示了美国对自由开放印太地区的承诺，美国军机和军舰，会飞越或航经任何国际法允许的地方。
+视频制作及上传：Cindy；
 
-不过，中共方面似乎有不同看法，虽然，中共当日也有派遣军机进入台湾西南空域，但是，中共东部战区新闻发言人施毅却坚持认为，美国才是台海和平稳定的破坏者、台海安全的风险制造者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.4.jpg)
-参考信息：
-1. [今年第1次！美軍驅逐艦杜威號 春節前穿越台海](https://news.ltn.com.tw/news/world/breakingnews/3818286)
-2[. 挑衅！港媒：美军爆“杜威”号驱逐舰穿越台湾海峡](http://mil.news.sina.com.cn/china/2022-01-31/doc-ikyakumy3641967.shtml)
+G-News发布：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-总编：飞虹
-编辑：天灭中共
-校对/发稿：为真不破20
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**更多资讯，更多关注**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

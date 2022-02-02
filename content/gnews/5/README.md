@@ -2,42 +2,28 @@
 ---
 
 
-## 疫苗停止不会戛然而止西方对疫苗和药厂审判会交叉而起
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945346/)
+## CECC主席致函国务卿对遣返中共国进行外交干预
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945405/)
 
-**郭文贵先生：**我觉得疫苗这个事情一定会停下来的，它不会说这些制药厂、辉瑞制药停了怎么着的。我觉得它是一个反复的过程，一定是反复的过程，不可能一下子全停然后全开始，一定要挣扎，药厂要给自己解脱，继续赚钱，继续弄，它是一个机器，它是一个赚钱的机器，一个邪恶的机器。
+![在哈萨克斯坦阿拉木图一个中国哈萨克族人组织的办公室里，人们手举在新疆失踪亲属的照片。（2018年12月7日）](https://gdb.voanews.com/0B47DE01-EAC9-4F90-BD46-5D4EF0CF76B6_w1023_r1_s.jpg)在哈萨克斯坦阿拉木图一个中国哈萨克族人组织的办公室里，人们手举在新疆失踪亲属的照片。（2018年12月7日）
+据美国之音2月2日报道，美国国会及行政当局中共国委员会(CECC)的两位主席1日致函美国国务卿布林肯，呼吁美国国务院对摩洛哥、沙特阿拉伯和哈萨克斯坦境内的中共国维吾尔族和哈萨克斯族庇护者可能被遣返的案例进行外交干预。两位主席表示，如果把这些庇护申请者赶回中共国，违反了国际法，而且这些人被遣返后有遭受严重虐待的重大风险，特别是考虑到新疆正在发生的种族灭绝和反人类罪行。
 
-共产党会不会弄？共产党我觉得在它死亡前什么都可能，什么都可能。而且共产党的无知和疯狂和愚蠢，包括现在在国内还在打针呢，还在推广呢，很疯狂啊，它的无知和愚蠢和傲慢都超出常人想象。
+过去十年里，包括沙特、巴基斯坦、埃及、泰国和马来西亚在内的各国当局在中共的压力下，曾经把维吾尔人遣返回中共国。毫无例外，被迫返回中共国的这些人都遭到了任意拘押、酷刑折磨和其它形式的虐待、伤害，甚至失踪。在中共国，人没有人权，动物没有兽权。中共上管天下管地，中间管着的都是奴隶，随便抢任意杀。中共不会把任何一个人当作人，也不会给任何一个人以“人权”。那么，推翻中共，人人拥有人权，人人拥有天赋的自然权利，就不需要再谴责、抗议或者制裁中共。中共魔鬼下到地狱，人间恢复万象更新。
 
-关于美国和西方对这个疫苗停止以后各种反应、各种审判，它会交叉而起。它不可能说你突然就停了，大家都是很天真地想，都停了，都没事儿了，然后疫苗审判了、上绞刑，那我们就啥事儿都没有了，不可能的。到现在德国的纳粹都二战多少年了，纳粹思想还存在呢，纳粹人还没都抓起来呢，对吧？它就是这个结局。
+新闻参考链接：[https://www.voachinese.com/a/cecc-chairs-seek-protection-for-uyghurs-and-kazakhs-at-risk-of-deportation-from-morocco-saudi-and-kazakhstan-20220201/6422419.html](https://www.voachinese.com/a/cecc-chairs-seek-protection-for-uyghurs-and-kazakhs-at-risk-of-deportation-from-morocco-saudi-and-kazakhstan-20220201/6422419.html)
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+编辑：胖丁
 
-编辑整理：Jacques；
+* * *
 
-字幕文件制作：知津；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
+编辑：【英国伦敦喜庄园编辑部】
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

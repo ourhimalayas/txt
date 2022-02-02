@@ -2,49 +2,26 @@
 ---
 
 
-## 乌克兰兵凶战危 美英不排除联手制裁俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945241/)
+## 七哥谈东北和鹤岗破产（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945324/)
 
-作者：台湾宝岛农场 – zhong
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥谈东北和鹤岗破产1.jpg)
+习震怒啊，栗战书当时是黑龙江书记，栗战书告诉了习说你刚走孙政才就跑那干啥去了？就是打听你的行踪去了，摸底。任何政治行动都是玩政治去了，那天津真的想跟你做核糖核酸吗？中国做核酸怎么做吗？
+我告诉你，世界上只有一个国家有这个能力，也就是集中资源办大事儿，办大事首先要把小事变成大事儿，把好事变成坏事儿是吧？把小事变成大事儿了然后我再帮你集中你的资源，办你的大事儿。各乡村街道派出所，本来可以把核糖核酸测试放到家里做而且1分钝都不会耽误，他不这么干，要让你排队，（然后）告诉全世界的媒体共产党能办大事，最后是清零，这叫政治！
+像当年希特勒一样，我从不让你看到我被炸的柏林，但我定要看到德军在前线叫帝国军事！艾因坦斯的空军轰炸队打到斯大林格勒了！
+就是有选择性的洗你的脑，你说在西安死人你见了吗？你见不着。
 
+2022年1月12日大直播
 
+发布：星谕
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-东欧和中东的地缘政治局势持续紧张，面对俄罗斯与乌克兰的战争风险，美国两党重量级联邦参议员1月30日宣布，就制裁俄罗斯的相关法案达成共识，只要俄罗斯派军进入乌克兰，俄罗斯经济就会遭到“毁灭性打击”，美国绝不重蹈二战前夕的姑息主义。
-
-美国副国务卿纽兰也向媒体透露，白宫正和参议院密切合作，若祭出制裁，相关措施将与欧盟一致，并保证会让俄罗斯“难以忽略”，预计美俄双方本周会再次举行会谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-3.jpg)
-另外，英国政府早前表态，若俄罗斯入侵乌克兰，英国会制裁与俄罗斯政府有关的公司，包括普京身边，所有统治集团的要员。对此，俄罗斯克里姆林宫发言人佩斯科夫回应指：英国政府的举动不仅是对俄罗斯企业的攻击，也会损害英国的投资环境，更会导致欧洲局势进一步紧张。他在记者会上警告，任何类似举动，俄罗斯都会基于自身利益予以回击。
-
-参考信息：
-1. [阻俄侵烏 美將毀滅性打擊俄經濟](https://udn.com/news/story/122663/6072885)
-2. [英國嗆擴大經濟制裁 克里姆林宮揚言報復](https://news.ltn.com.tw/news/world/breakingnews/3818400)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：天灭中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

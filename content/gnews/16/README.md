@@ -2,22 +2,53 @@
 ---
 
 
-## 日本国会人权决议表述含糊 被批“很可耻”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1945227/)
+## 新中国联邦会给被中共深度渗透的新西兰意想不到的好处
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945310/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-95.png)
-日本众议会1日投票通过了一项关于中国侵犯人权问题的决议，但该决议没有特别提到 “中国”，也没有包括 “侵犯人权 “或 “谴责决议”等高度批评性的字眼。据说 这样做是为了照顾到与中国关系密切的公明党的面子，但自民党内的强硬派和日本共产党等反对党对此不满。
+G-TV视频链接：[https://gtv.org/video/id=61f7d682d90bdd2085a31f1c](https://gtv.org/video/id=61f7d682d90bdd2085a31f1c)
 
-日本国会谴责中国政府在新疆维吾尔自治区侵犯人权的决议中没有包括中国的国名，“侵犯人权”被修改为“人权状况”，并且从“决议草案”中删除了“谴责”两个字。
+**郭文贵先生：**首先新西兰这个国家，还有新加坡，还有韩国，甚至其他的像东欧的一些小的国家，在和中共的勾兑当中，它和像巴基斯坦、像其他国家，还真不一样，它有个最核心的问题，就是人种还有价值观和法律系统，它是一个民主的社会，而且过去声誉极好。
 
-日本著名记者樱井女士认为这么做是荒唐的。日本作为世界第三大经济体，是一个文明国家，也是一个重视人权和法治的国家。 她说：“这真的很可耻。”
+但是从过去的十年到十二年吧，就是习之前，2008年以后到2010年主要开始，中共成为新西兰最大的海外贸易国，一年大概从30亿到了300亿美元的交易的时候，然后就渗透，特别是中国的一些富豪、大佬们，还有一些高官的家属、常委们、政治局的家属们藏在新西兰以后，对新西兰政党的选举制度和政党选举的资产，它需要的钱的控制超出了想象。
 
-信息源：[批判トーン弱めた人権決議　公明に配慮、自民にも共産にも不満の声](https://www.asahi.com/articles/ASQ216645Q21UTFK00Q.html?iref=pc_photo_gallery_breadcrumb)
+新西兰这个国家是绝对的已经在精神上、在经济上、在社会基础上被共产党基本给拿下了，它不像韩国，韩国人民还有很多清醒的，还有很多人能明白，新西兰很惨的。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+那么在疫苗政策、在这一切上，它走的都是共产党这一套手段，它深受共产党的影响，特别是共产党在新西兰那些富豪还有家族背景的，身上是富豪，但是家里边爹都是政治局、省长、副省长，像马明哲的家人，是吧？你像腾讯的很多高管的家人，民生的股东的家人，都在新西兰还有澳大利亚，它（共产党）对他们影响特别深。
+
+但是就像我原来说的疫苗这个事情一样，新西兰一定会很快停掉，咱有绝对的把握，它渗透，咱反渗透，咱反渗透的力量一点也不比它小，而且一定很快让它停。停完以后会把这些推广疫苗的人会把他绳之以法，而且爆料革命会让新西兰一定会回到西方的这个民主法治的大家庭当中。
+
+这个世界上最邪恶的，你看看就是德国，这个纳粹思想的诞生地，共产主义的诞生地之一，喔噻相当邪恶！还有这个又漂亮、又穷、又垃圾的意大利政府，极为极端，是吧？只有七哥说呀，就是英国政府我说的咱一定让它彻底干掉疫苗，咱都做到了。
+
+在新西兰，我今天要再重申，你们等着，很快新中国联邦将给你们送大礼，你们看到不喜欢的人基本上都会烟消云散。而且我告诉你，疫苗之后的大审判，新西兰首当其冲，你放心，你好好过吧，新中国联邦会为你带来意想不到的好处！唔该晒了。
+
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+
+编辑整理：Jacques；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
