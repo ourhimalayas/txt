@@ -2,51 +2,30 @@
 ---
 
 
-## FBI指中共对西方的威胁较以往更明目张胆
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945243/)
+## 共和党参议员敦促拜登政府加紧对中芯的出口管制
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945343/)
 
-作者：台湾宝岛农场 – 天灭中共
+![资料照片：中芯国际在上海举办的中国国际半导体博览会上的展台。(2020年10月14日)](https://gdb.voanews.com/6ee21c31-9fb2-430f-8b10-61b3faa0901d_cx0_cy1_cw0_w1023_r1_s.jpg)资料照片：中芯国际在上海举办的中国国际半导体博览会上的展台。(2020年10月14日)
+据美国之音2月2日报道，美国共和党参议员敦促拜登行政当局堵住前总统川普时期实施的出口管控措施中的一个“漏洞”，以加强对中共国首要芯片制造商中芯国际(SMIC)的限制。2020年末，川普行政当局将中芯国际纳入美国商务部的实体名单，原因是中芯国际与中共国军方关系密切，这被认为是对美国“明显的国家安全威胁”。
 
+通常，一家公司被纳入贸易黑名单，美国供应商在向其发送任何美国物品时都必须申请特殊许可，而这会面临标准严格的审议。然而，在川普当局将中芯国际加入实体名单时，严格审议标准只适用于运往中共国公司的芯片制造设备，其它美国物件则走“个案”审议程序。去年10月，中芯国际的供应商们获得了价值几十亿美元的许可证。
 
+中共军方通过中共国在海外的企业，或者与海外有业务往来的企业，通过各种手段偷盗技术并输出威胁。美国越来越多的有识之士和军方高层已经意识到了中共对美国国防安全，以及各行各业的威胁，该出议案的出议案，有漏洞的补漏洞。把中共可能带来的危险系数调到最高，把自己可能做到的防范级别做到极致。中共的邪恶本质决定了，只要中共存在一天，就不会停止攻击美国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新闻参考链接：[https://www.voachinese.com/a/republican-senators-press-biden-administration-to-tighten-export-curbs-on-smic-20220201/6422287.html](https://www.voachinese.com/a/republican-senators-press-biden-administration-to-tighten-export-curbs-on-smic-20220201/6422287.html)
 
+编辑：胖丁
 
+* * *
 
-美国联邦调查局局长克里斯托弗·雷 1 月 31 日在发表演说时表示，中共当局对西方的威胁比以往更加明目张胆，也更具有破坏性。
-
-在联邦调查局的调查中，有超过 2000 宗涉及中共指使盗窃的案件，包括试图窃取美国的科技资讯，雇用黑客窃取美国国民的个人信息以及商业机密等，其严重程度比其他国家的总和还要厉害得多。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/NDI-installation-pass.jpg)
-这是自克里斯托弗雷 2017 年接任联邦调查局局长以来，又一次对中共当局表示担忧和关注，根据他的形容：“没有一个国家像中共政府一样，对美国的理念、创意和经济安全，构成了如此广泛的威胁。”
-
-与此同时，中共则一如既往地予以否认，更批评美国的指控毫无事实根据，是蓄意抹黑中国。
-
-参考信息：
-[FBI director says the threat from China is ‘more brazen’ than ever before](https://www.npr.org/2022/01/31/1077174231/fbi-director-says-the-threat-from-china-is-more-brazen-than-ever-before?t=1643700410131)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：飞虹
-编辑：天灭中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 回顾G系列
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945121/)
+## 全球农场
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945129/)
 
 发布：奇门遁甲
 

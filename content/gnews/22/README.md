@@ -2,10 +2,10 @@
 ---
 
 
-## 美国军舰虎年首度穿越台海
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945240/)
+## FBI指中共对西方的威胁较以往更明目张胆
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945243/)
 
-作者：纽约磐石农场—在远方 ，纽约香草山教育部 Naughty(文行)
+作者：台湾宝岛农场 – 天灭中共
 
 
 
@@ -13,15 +13,16 @@
 
 
 
-台媒消息，美国第七舰队31日证实，麾下伯克级神盾飞弹驱逐舰，杜威号，于1月22日穿越台海。据报道，这是2022年为止，美国军舰第1次穿越台湾海峡。
+美国联邦调查局局长克里斯托弗·雷 1 月 31 日在发表演说时表示，中共当局对西方的威胁比以往更加明目张胆，也更具有破坏性。
 
-第七舰队发言人西姆斯表示，杜威号在国际水域航行的举动，完全符合国际法。而且，穿越台海也显示了美国对自由开放印太地区的承诺，美国军机和军舰，会飞越或航经任何国际法允许的地方。
+在联邦调查局的调查中，有超过 2000 宗涉及中共指使盗窃的案件，包括试图窃取美国的科技资讯，雇用黑客窃取美国国民的个人信息以及商业机密等，其严重程度比其他国家的总和还要厉害得多。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/NDI-installation-pass.jpg)
+这是自克里斯托弗雷 2017 年接任联邦调查局局长以来，又一次对中共当局表示担忧和关注，根据他的形容：“没有一个国家像中共政府一样，对美国的理念、创意和经济安全，构成了如此广泛的威胁。”
 
-不过，中共方面似乎有不同看法，虽然，中共当日也有派遣军机进入台湾西南空域，但是，中共东部战区新闻发言人施毅却坚持认为，美国才是台海和平稳定的破坏者、台海安全的风险制造者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.4.jpg)
+与此同时，中共则一如既往地予以否认，更批评美国的指控毫无事实根据，是蓄意抹黑中国。
+
 参考信息：
-1. [今年第1次！美軍驅逐艦杜威號 春節前穿越台海](https://news.ltn.com.tw/news/world/breakingnews/3818286)
-2[. 挑衅！港媒：美军爆“杜威”号驱逐舰穿越台湾海峡](http://mil.news.sina.com.cn/china/2022-01-31/doc-ikyakumy3641967.shtml)
+[FBI director says the threat from China is ‘more brazen’ than ever before](https://www.npr.org/2022/01/31/1077174231/fbi-director-says-the-threat-from-china-is-more-brazen-than-ever-before?t=1643700410131)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 

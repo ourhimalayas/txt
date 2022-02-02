@@ -2,8 +2,8 @@
 ---
 
 
-## 香草山农场祝大家新年快乐
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945119/)
+## 以歌灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945124/)
 
 发布：奇门遁甲
 
