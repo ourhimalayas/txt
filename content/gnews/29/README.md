@@ -2,33 +2,38 @@
 ---
 
 
-## 2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1944562/)
+## 收藏殿堂 | 新冠病毒生物战争的设计者发动者到底是谁？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1944968/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/谈古论今
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁1.png)
 
+本世纪之初突如其来的新冠病毒生物战裹挟了全人类，截至2021年11月1日的数据统计，全球因新冠病毒死亡的人数突破了500万人，其中，欧洲美洲受害最为深重，死亡人数接近全球总死亡人数的一半。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC.png)
-校对：Stay文苑
+灾难远远没有结束，2022年，估计在全球范围内由新冠病毒疫苗灾难造成的心血管死亡人数会达到6000-7000万。
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁2.png)
 
-发稿：Stay文苑
+这场人类历史上首次大规模杀戮的新冠病毒生物战争包括了两大部分，即病毒和疫苗。那么，这场生物战的总设计师到底是谁？是谁指挥发动的？病毒和疫苗这两者的技术开发、制造、投毒都是谁干的？例如：
 
-新闻：[https://gtv.org/broadcast/watch/61f9e06a96ba5d73e0c11371](https://gtv.org/broadcast/watch/61f9e06a96ba5d73e0c11371)
-访谈：[https://gtv.org/broadcast/watch/61f9e8d196ba5d73e0c11743](https://gtv.org/broadcast/watch/61f9e8d196ba5d73e0c11743)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+变态的比尔盖茨10年前就宣称通过病毒/疫苗控制人口。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁4.png)
 
+早在31年前的1981年法国前总统弗朗索瓦密特朗就写下了“未来将面临如何才能减少人口的问题，我们要从老年人着手因为他超过了60-65岁”，因为这些高龄者和弱者不再创造任何社会价值，一句话要被清除掉。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁5.png)
+
+中共战争狂人原国防部长迟浩田在《战争离我们不远，它是中华世纪的产婆！》中把中共的狂妄顶层设计说得冠冕堂皇：自诩中国人是“超百万年的文化根系，上万年的文明进步，五千年的古国，两千年的中华同一实体”，是我们引以为傲、自称为“炎黄子孙”的中华民族。因为现有的土地不足以承载中国人口了，需要美洲澳洲的广袤土地，并且洋洋得意地认为不需要动用高成本高代价的核武器，用病毒生物战就可轻而易举就可以取胜，为此还做了网上问卷民意调查，认为超过80％的中国人肯定了“会向妇孺和战俘开枪”，即，确认中共统治教育下的国民完全可以按照中共的意志对外族杀戮进行领土扩张。中共确认了已经具备对外杀戮和扩张的“民意”和“战争工具”。
+
+这仅仅是冰山一角，真相还远在黑暗中——这场新冠病毒生物战争到底要达到什么目的？目标要杀多少人？还有多少种存储病毒？还有其他什么阴谋手段？阿桑奇说“人类社会的黑暗，普通人哪怕窥知一二也会被震惊得瞠目结舌”，希望战友们能够收集资料接龙，归纳整理成为系统证据，尽可能将真相大白于天下！
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

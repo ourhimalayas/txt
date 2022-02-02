@@ -2,44 +2,53 @@
 ---
 
 
-## 内斗外困的共产党只有死路一条，新中国联邦是唯一出路
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945266/)
+## 澳联储不得已开启货币紧缩政策
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1945353/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72](https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72)
+#### **【雅典娜观察】和您一起洞察世界**
 
-**郭文贵先生：**所以说现在看到世界上，欧洲要带起的外交叫“脱交”。脱交可能跟美国同时干，也可能是什么，两个一起干，叫脱交。然后科技上已经彻底的幻想破灭。AMSl荷兰这一仗，对他绝对是致命的。在所有的领域全完蛋，这叫科技脱科还是脱技，是吧！都脱了。
+整理报道：文扬
+编辑：文泓
 
-第三，大家现在的病毒溯源。第四冬奥会彻底完球蛋，成世界政治笑话。最后一条，大家看到了全人类在探讨一个问题，到底中国是改革开放，再次改革，深度改革，什么改革，开放能救中国吗？会避免共产党对全世界的威胁吗？都不会。只有一个一人一票的选举制度，才能救中国。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-4.png)图片来源：Ledger Insights
 
-因此十三大所有上台的人、家族，基本完球蛋。现在习想跟他们斗，也斗不了。那么现在就需要一个世界的力量和中国人的新力量，就我们新中国联邦，所以以上所有解决之道，只有《新中国联邦宣言》，你们信不信？服不服？兄弟姐妹们。谢谢！
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+让政府花钱很容易，尤其是当它控制了印钞机。但是，澳联储现在非常纠结中，因为它必须面临自大流行以来为了维持经济而超发货币结束的局面。
 
-编辑整理：Jacques；
+大多数澳大利亚人关注的是澳洲央行的现金利率变动，以及这对他们的抵押贷款和商业运作意味着什么？
 
-字幕文件制作：知津；
+大流行造成的经济衰退创造了有记录以来的最低利率（仅为0.1%），这是澳洲央行首次尝试量化宽松政策，政府通过银行向经济注入数千亿澳元。
 
-视频制作及上传：Cindy；
+今年政府预算赤字预计将达到990亿澳元。仅在过去的两个半月中，央行就每月创记录40亿澳元用于购买联邦和州政府债券。
 
-G-News发布：小满；
+这不仅在澳大利亚央行，在全球范围内，由于大流行的影响，各国中央银行增发了约12万亿美元（17万亿澳元）。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+然而，随着通货膨胀率的上升，澳洲人承担了创纪录的债务水平，政府从量化宽松（QE）转向量化紧缩（QT）的时间正在逼近。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+在周二的澳洲央行董事会会议后正式确认QE的结束，行长菲利普·洛在日历上圈出了关于QT讨论即将开始的日期。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+他说：“自大流行病开始以来，澳大利亚央行的资产负债表已经增加了两倍多，达到约6400亿澳元，这种（信用）扩张为经济提供了持续的支持，董事会将在5月份的会议上考虑未来债券到期收益的再投资问题。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+这对银行、堪培拉的任何一个政党以及总体经济来说都是一个重要的决定。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+如果澳大利亚央行对QT方面不积极主动，那么在下次经济需要支持时，它可能会发现自己持有大量的债务。仅仅22个月，澳洲央行持有的政府债券从从160亿澳元飙升至3360亿澳元。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+在一个被动的方法下，要花几年时间才能摆脱这些债券。有240亿澳元的联邦债券将在2024年4月偿还，另有200亿澳元将在2028年11月偿还，甚至有6.7亿澳元在2033年中期到期。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+但是，政府也必须紧缩，同时还试图使利率正常化（为其提供缓冲以应对下一次经济衰退），当联邦政府试图让政府预算恢复到某种秩序时，它可能也需要这样做。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+在大流行期间管理经济上，QE是至关重要的，未来QT之路将很艰难。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+原文链接： [Quantitative easing is dead, long live quantitative tightening (theage.com.au)](https://www.theage.com.au/politics/federal/quantitative-easing-is-dead-long-live-quantitative-tightening-20220201-p59sy9.html?utm_medium=Social&amp;utm_source=Twitter)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

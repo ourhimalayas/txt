@@ -2,40 +2,44 @@
 ---
 
 
-## 邓丽君之死背后的中共魔影
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1945177/)
+## 内斗外困的共产党只有死路一条，新中国联邦是唯一出路
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945266/)
 
-作者：波士顿五月花 淘喵先生
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220202-1.jpg)
-在1月25日的文贵大直播中，郭先生在全世界第一个发布了美国即将从中共国“授权撤离”使领馆的消息，并指出美国的撤离开启了直插共匪心脏的“甜蜜蜜”外交运动。
+G-TV视频链接：[https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72](https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72)
 
-之所以用“甜蜜蜜”来命名，就是要这首歌来纪念热爱民主自由、强烈反对共产党的台湾著名女歌星邓丽君小姐。
+**郭文贵先生：**所以说现在看到世界上，欧洲要带起的外交叫“脱交”。脱交可能跟美国同时干，也可能是什么，两个一起干，叫脱交。然后科技上已经彻底的幻想破灭。AMSl荷兰这一仗，对他绝对是致命的。在所有的领域全完蛋，这叫科技脱科还是脱技，是吧！都脱了。
 
-而且郭先生在31日的虎年新春大直播演唱的三首歌中，“甜蜜蜜”和“一帘幽梦”这两首都是邓丽君小姐的代表作。
+第三，大家现在的病毒溯源。第四冬奥会彻底完球蛋，成世界政治笑话。最后一条，大家看到了全人类在探讨一个问题，到底中国是改革开放，再次改革，深度改革，什么改革，开放能救中国吗？会避免共产党对全世界的威胁吗？都不会。只有一个一人一票的选举制度，才能救中国。
 
-通过这些细节，我们既可以看出郭先生对邓丽君小姐的尊重，也可以体会到她在灭共运动中的重要象征意义。
+因此十三大所有上台的人、家族，基本完球蛋。现在习想跟他们斗，也斗不了。那么现在就需要一个世界的力量和中国人的新力量，就我们新中国联邦，所以以上所有解决之道，只有《新中国联邦宣言》，你们信不信？服不服？兄弟姐妹们。谢谢！
 
-而邓丽君小姐的猝然离世，很有可能也是与她坚定的灭共意志有关。
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-根据公开报道，1995年5月8日，邓丽君因支气管哮喘发作于泰国清迈逝世，年仅42岁。
+编辑整理：Jacques；
 
-对于她猝死离世的原因，一直都是众说纷纭，其中的疑惑至今没有解开。
+字幕文件制作：知津；
 
-当年曾亲赴清迈采访邓丽君死亡事件的资深媒体人寇维勇，在一次电台节目中称，邓丽君死后，左脸颊上遗有一个巴掌印。其后网上也有人曝出邓丽君尸检照片，她左边颈部到额头位置有明显的红色痕迹，非常像勒痕和巴掌印。
+视频制作及上传：Cindy；
 
-泰国清迈，气候温暖湿润，非常适合调养身体。之前邓丽君已多次到清迈休养，而且离世前也已在清迈居住了一个月。因此，突发哮喘而猝死的说法很难令人信服。
+G-News发布：小满；
 
-众所周知，泰国是共匪的势力范围。联系邓丽君除了歌星之外反共斗士的身份，再结合同样英年早逝的黄家驹、梅艳芳、张国荣，甚至迈克尔杰克逊等等巨星的遭遇，我们会发现，邓丽君与这些同样死于非命的明星们还有一个共同的特征：公开反共！
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-因此，有理由相信邓丽君是死于中共的魔爪！期待将来灭共之后真相大白于天下！
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-* * *
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*编辑：黄金时代*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*封面：霹雳鼠年*
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-*发布：吐纳*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

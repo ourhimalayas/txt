@@ -2,30 +2,44 @@
 ---
 
 
-## 文贵先生大年初一盖特直播要点（2022年2月1日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1945198/)
+## 空谈不可能灭共为狗粮砸爆料革命的海外欺民贼缺乏常识
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945323/)
 
-整理：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图145.png)图片来自GTV截屏
-1.塞北的雪、甜蜜蜜、一帘幽梦三首歌非常震撼，在国内外影响巨大
-2.春节大直播震撼了国内各界的朋友
-3.国内朋友评价大直播：技术、感觉、观看度一流，参与直播的战友素质高，感觉到了中国的希望
-4.直播战友的衣服都是原创，服饰文化的核心，材料和设计是第一位的
-5.中共春晚就是行贿、就是买通，没有任何精神上的追求
-6.邓丽君女士再次在全世界辉煌，唤起了中国人心中的记忆
-7.塞北的雪这首歌曲是中国南北文化的结合
-8.新中国联邦每天不一样，每天在向上
-9.从昨天到现在，有多少人拒绝去冬奥会，多少人发起各种法案惩治邪恶的中共
-10.新中国联邦获得了多少人的尊重，有多少人联系承认新中国联邦政权
-11.让我们所有人有家不能回、家人分离，受到政治、经济、人身及生命威胁，感到恐惧、受到盘剥的就是中共
-12.甜蜜蜜运动将开始史无前例的和精神、信仰、宗教、媒体传播的一场政治文化运动、和平运动
-13.现在的一切，背后有无数个国内战友的奉献和付出。
-14.此时此刻还有很多人正在前线为甜蜜蜜运动在工作着，这些战友都是高智商、高情商、高教育、高信仰追求的人，他们是同胞中伟大的人
-15.再次重申：任何参与甜蜜蜜运动的人你将拥有喜币和未来的躺平币。
+G-TV视频链接：[https://gtv.org/video/id=61f7d6aad90bdd2085a31f2b](https://gtv.org/video/id=61f7d6aad90bdd2085a31f2b)
 
-* * *
+**郭文贵先生：**这就我一再跟战友说的，我们要有一个常识，不要犯了天真的毛病，也不要犯了那种大脑症，所有海外的所谓民主民运的大脑症。
 
-*编辑 /发布：吐纳*
+你看路大脑袋还有高冰尘，我告诉（过）大家，我说我们熬都能熬死高冰尘，现在已经舌头都梗儿了，是吧？他一个月也就是能弄个万把美金，是吧？共产党的那些所谓的常州的、江苏的安全局的人通过他能骗个共产党十万美金，让他弄个一万美金就不错了。老婆给戴绿帽子了，是吧？他现在他待的那个屋里边，用些假的过去进的中国假瓷器装修在后面，然后舌梗儿，咱耗都能把他耗死。
+
+为什么这么说？欺民贼就是，高冰尘他天真，他没有常识，但凡有常识的、有点脑子的，我也不会跟你爆料革命作对，我也不会赚这个钱。咱海外的民运欺民贼就太天真，以为讲讲说说，你就能灭共，你开什么玩笑是吧？没有行动，什么都没有用。
+
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+
+编辑整理：Jacques；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

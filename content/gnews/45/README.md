@@ -2,36 +2,16 @@
 ---
 
 
-## 欧洲各国政府的债务在疫情期间疯涨状况！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1941570/)
+## COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941897/)
 
-作者：Martin Armstrong
-发布日期：2022年02月01日
-新闻来源：https://www.statista.com/
-翻译：V 在途中
+**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio-1.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+据新中国联邦及爆料革命发起人郭文贵于2月1日直播中表示，与他有联系的某一科学家在欧洲军事等级的医学研究所正在进行一项青蒿素鸡尾酒疗法的研究与测试。 他表示，这个青蒿素相关的鸡尾酒疗法能更深度的清除新冠疫苗余毒（可能指「新冠疫苗刺突蛋白引发的心肌炎、癌症及其他未知副作用」）。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02011.jpeg)
-
-
-
-在疫情大流行期间，欧洲政府债务全面增加，但正如Statista的马丁·阿姆斯特朗（Martin Armstrong）在上图中所示，一些国家的影响比其他国家要严重得多。
-
-由英国国家统计局编制的数据显示，所有欧盟国家债务平均增长了12.9个百分点。
-
-您可以在Statista找到更多信息图表
-
-就一般政府债务总额而言，爱尔兰从2019年第四季度末到2021年第三季度末仅增长了0.4个百分点。另一方面，西班牙现在发现自己的产量增加了26.3个百分点。
-
-相比之下，英国则录得增长18.8%的变化。英国政府债务现在超过其GDP（103.7%），是战后时代的最高比率，甚至远远超过2008年金融危机造成的水平，该危机在2014/15年度达到峰值，占GDP的84.9%。
-
-应当可以判断：欧洲各国负债的大幅增长，可能对未来欧洲经济会造成巨大的影响！
-
-[新闻链接](https://www.statista.com/chart/26729/change-in-government-debt-european-countries-pandemic/)
-
-审核校对：Barry Jack
-上传排版：V在途中
+青蒿素相关的鸡尾酒疗法，据郭所述成本约为“一美金”，对新冠病毒有极高的治疗效用，甚至可能可以100%清除新冠疫苗的未知不良反应。 目前，并无更多关于青蒿素鸡尾酒疗法的信息。
+來源：[20m](https://gettr.com/user/20minfocus)[infocus](https://gettr.com/user/20minfocus)GETTR
+來源｜[GETTR](https://gettr.com/post/prpkcn65c4)
 
  
 
