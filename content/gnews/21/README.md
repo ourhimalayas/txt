@@ -2,32 +2,20 @@
 ---
 
 
-## 伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945904/)
+## 从口罩到测试，世卫组织警告数千吨废物
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1945921/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown.jpg)伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言 网络图片
-据台湾中央广播电台2月1日报道，非政府组织全球伊玛目理事会去年12月30日宣布，鉴于中共国政府继续以迫害、折磨、独裁专政等手段违反中共国穆斯林的基本人权，因而“禁止参加及出席2022中共国北京冬季奥运会”。中共官媒“环球时报”1月28日发文，声称全球伊玛目理事会获得了世界维吾尔大会的资助和欺骗。
+翻译、整理：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02021.jpg)图片来自today.it
+自疫情爆发以来，从口罩到手套，从检测试剂盒到一升一升的化学废物，成千上万吨各种材料给世界各地的废物处置系统带来了压力。
 
-2月1日全球伊玛目理事会再度发布声明，驳斥“环球时报是谎言”，强调与世界维吾尔代表大会团结一致。所谓穆斯林领袖否认支持禁止参加北京冬奥声明，“也是谎言”。
+超过 1.4 亿个检测试剂盒有可能产生 2,600 吨非传染性废物（主要是塑料）和 731,000 升化学废物，相当于一个奥林匹克规模的游泳池的三分之一。全球已经接种了超过 80 亿剂疫苗，以注射器、针头和安全容器产生了 144,000 吨额外的废物。
 
-中共在新疆持续犯下种族灭绝和反人类罪。在国际压力下，中国通过外交途径，甚至运用自己控制的媒体编造、散布谎言，企图误导国际社会、分化伊斯兰世界，让外界误以为伊斯兰世界支持北京冬奥会，没有抵制。
+世卫组织报告的作者指出，这不是一个不可低估的问题，因为它可能使医疗保健专业人员受到针刺、烧伤和病原微生物的伤害；它还通过受污染的空气、糟糕的水质或携带疾病的寄生虫影响生活在管理不善的垃圾填埋场附近的社区。
 
-这些手段是中共能生存下来的基本技能。如果不说谎话，中共一天都活不下去。全球越来越看清中共的本质，抵制北京冬奥会只是开始，会有越来越多针对中共的新举措。中共是人类的公敌，中共全球输出病毒和疫苗，所有人都成了中共的受害者。早早晚晚，世界会来清算中共的罪孽。北京冬奥会是中共灭亡之前的最后一场表演赛。
+原文链接：[https://www.today.it/partner/adnkronos/salute/covid-da-mascherine-a-test-allarme-oms-per-migliaia-di-tonnellate-rifiuti.html](https://www.today.it/partner/adnkronos/salute/covid-da-mascherine-a-test-allarme-oms-per-migliaia-di-tonnellate-rifiuti.html)
 
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2123644](https://cn.rti.org.tw/news/view/id/2123644)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

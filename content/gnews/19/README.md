@@ -2,20 +2,25 @@
 ---
 
 
-## 从口罩到测试，世卫组织警告数千吨废物
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1945921/)
+## 商鞅五策昆仑山喜马拉雅山（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945926/)
 
-翻译、整理：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02021.jpg)图片来自today.it
-自疫情爆发以来，从口罩到手套，从检测试剂盒到一升一升的化学废物，成千上万吨各种材料给世界各地的废物处置系统带来了压力。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/商鞅五策-昆仑山-喜马拉雅山.001.jpeg)
+Renee：为什么共产党要在全世界建它的孔子学院，歌颂共产党。为什么它如此地恐惧我们的G平台，它不惜倾一国之力来攻击黑客和滲透我们的GTV和盖特？谢谢七哥。
 
-超过 1.4 亿个检测试剂盒有可能产生 2,600 吨非传染性废物（主要是塑料）和 731,000 升化学废物，相当于一个奥林匹克规模的游泳池的三分之一。全球已经接种了超过 80 亿剂疫苗，以注射器、针头和安全容器产生了 144,000 吨额外的废物。
+七哥答：这个问题实际上你刚才已经都回答完了，就是商鞅五策。商鞅五策里面有很多具体的手段，在我们生活中都能——找到当年的商鞅最开始跟孝帝合作的时候，大家要整个（事件）想一想。当时为了纳税，为了管制老百姓，有更下三滥的招，它是维护统治者的阶级。就是让一家人，孩子和父亲不要住在一起。孩子父亲不住在一起的目的就是让你就是按人，按每家每户纳税，你就不能在一起。那说让你让兄弟跟这个家人不住在一起，就像今天新疆，对付这个新疆人哈萨克斯坦人一模一样的。还有当时商鞅更惨的事情，就老百姓读书读得好的人，说老师要报道的。
 
-世卫组织报告的作者指出，这不是一个不可低估的问题，因为它可能使医疗保健专业人员受到针刺、烧伤和病原微生物的伤害；它还通过受污染的空气、糟糕的水质或携带疾病的寄生虫影响生活在管理不善的垃圾填埋场附近的社区。
+2022年1月12日大直播
 
-原文链接：[https://www.today.it/partner/adnkronos/salute/covid-da-mascherine-a-test-allarme-oms-per-migliaia-di-tonnellate-rifiuti.html](https://www.today.it/partner/adnkronos/salute/covid-da-mascherine-a-test-allarme-oms-per-migliaia-di-tonnellate-rifiuti.html)
+发布：星谕
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

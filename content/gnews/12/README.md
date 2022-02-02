@@ -2,17 +2,20 @@
 ---
 
 
-## 西媒头条 — 第164期 – 西媒要闻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1945959/)
+## 中共里每个人都会完蛋
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945989/)
 
-**制作：**蚂蚁兄弟
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
+*发布：玉米地守望者*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西媒头条-喜国要文-图片.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
