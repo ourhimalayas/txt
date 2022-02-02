@@ -2,35 +2,52 @@
 ---
 
 
-## 美、英、加联合向缅军政权实施制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1946319/)
+## Miles背后出现了新中国联邦红旗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1946368/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.39.37.png)图片来源：雅典娜设计组
+作者：纽约香草山农场教育部-马克文、爱丽丝
 
 
-根据果敢资讯网：据有关媒体消息，2022年2月1日是缅军发动军事政变推翻民选执政政府（NLD）一周年，1月31日美国、英国、加拿大对缅军政权及起诉昂山素季的司法官员实施联合制裁。
 
-美国国务卿布林肯（Antony Blinken）表示，实施联合制裁行动显示国际社会对缅甸人民的支持，也进一步促使缅政权应为政变后的动荡与暴力事件负起责任，并指出自缅军夺取国家政权后，有近1500余名反军事政变抗议民众在缅军镇压中丧生，及1万余民众遭到逮捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-美国财政部表示，总共对7人与两个实体实施制裁，包括缅军政权总检察长蒂达乌（Thida Oo），并指出蒂达乌办公室对昂山素季罗织政治动机的罪名指控。
 
-国际非政府组织全球见证（Global Witness）活动领导人杜诺维兹（Paul Donowitz）表示：“联合制裁行动提醒缅甸商业界，从事军火采购并从中获利会有后果产生的。”
 
-参考链接：[https://c.m.163.com/news/a/GV57FVON0515M9K0.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GV57FVON0515M9K0.html?spss=today-news-hotrank)
 
-*发布：*tianzhihuan
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新中国联邦春节大直播上Miles背后出现了红色的49颗星旗，目前新中国联邦出现了蓝红两种颜色的49颗星旗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/123.001.jpeg)
+把蓝红白混色作为国旗的颜色主要为美英等民主国家，其中蓝色代表正义、自由、民主以及海洋般的博大胸怀；红色代表勇气、力量。红色也是中华民族千年历史过程中的吉祥色，无论是百姓、商人还是皇家贵族，举办婚庆、开业大典、春节过年等重要场合都以红色为主色。
+
+Miles Guo率先在新中国联邦春节大直播中唱响“甜蜜蜜”歌声，吹响了在中华大地上发起“甜蜜蜜运动”的号角。在新中国联邦49颗星蓝色国旗之后又打造出了新中国联邦49颗星红旗，意义重大。这意味新中国联邦可以用蓝色、红色两种49颗星旗帜。49星蓝色旗帜代表新中国联邦形象，决心实现中华大地百姓享有民主、自由、法律、一人一票选举权力；49颗星红色旗帜是传承中华民族千年传统文化，重要节日可以使用。
+
+参考来源：
+
+[https://gettr.com/post/prqi4sc1e5](https://gettr.com/post/prqi4sc1e5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-6.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
+
+
+
+
 
  
 

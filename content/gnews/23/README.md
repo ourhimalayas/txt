@@ -2,24 +2,23 @@
 ---
 
 
-## 北京冬奥会在即 日本通过反对中共侵害人权的决议
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1946286/)
+## 日本国会通过关切中共国人权决议
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1946314/)
 
-**撰稿：日本东京方舟农场  海星**
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-在中共北京冬奥会开幕前夕，日本国会2月1 日通过了反对中共侵害人权的决议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-5.png)（图片来源：共同社）
-据《路透社》报导，日本国会当天通过了反对中共侵害人权的决议。该决议表示，国际社会一直在密切关注中共拘禁新疆、西藏和香港人民、侵犯人权及宗教自由等犯罪行为，国会已经意识到中共正在通过这些行为强制改变国际规则，这是对国际社会的威胁。该决议表明，人权具有普世价值，日本不仅要关注国内人权问题，也应与国际社会共同关注中共的人权问题。
+2月1日，日本国会下议院通过一项决议，表达对中共国人权议题的关切，包括中共当局对待维吾尔穆斯林和香港的方式。
 
-报导称，该决议在部分议员的推动下最终于北京冬奥会2月4日开幕前通过。
+据《中央社》报道，日本下议院当天通过的这项决议对中共国新疆地区、西藏、香港和内蒙古的“人权状况表达严重关切”，并呼吁政府就中共国人权议题积极表态。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-6.png)图为新疆再教育营。（图片来自美联社）
+此外，由于中共加强对香港的控制，掀起当地大规模民主示威活动，向来谨慎行事的日本政府也一再对香港选举制度表达“严重关切”。
 
-此外，由于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，日本于12月宣布将不派政府代表团参加北京冬奥会。
+去年12月，日本因中共国的人权问题表示不会派政府代表团参加北京冬奥，并呼吁中共国尊重人权与法治。
 
 参考链接：
-1. [https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD](https://cn.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
-2. [https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html](https://www.voachinese.com/a/japan-parliament-china-human-rights-20220201/6421385.html)
+[https://www.cna.com.tw/news/aopl/202202010125.aspx](https://www.cna.com.tw/news/aopl/202202010125.aspx)
 
-撰稿：海星
+撰稿：幽蘭自得
 编辑：文顺
 发布：文曦
 
