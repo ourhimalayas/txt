@@ -2,23 +2,23 @@
 ---
 
 
-## 长期中共病毒患者的肺部存在异常表现
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1946710/)
+## 研究显示 康复的病毒感染者具有自然免疫力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1946787/)
 
 作者：银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月29日，据相关媒体报道，一项新的研究发现指出，中共病毒长期患者的肺部会存在异常表现，且该异常很难被目前的常规医疗措施检测出来。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-1.jpg)
-据悉，研究人员检测到，很多长期感染中共病毒但并不需要住院的患者在确诊之后的一年里一直存在呼吸困难的症状。而研究人员在使用氙气MRI扫描后发现，这些患者大多都存在肺损伤的情况。虽然这些症状很少能被包括CT在内的其他测试检测出来，但中共病毒的长期患者在呼吸时，气体从患者肺部到血液的转移明显受损，相关异常情况则体现在肺部的气道、气体交换膜和毛细血管之间。
+1月27日，据当地媒体报道称，美国疾病控制和预防中心CDC数据库、耶鲁大学、哈佛大学和斯坦福大学的一份联合研究表明，绝大多数民众对中共病毒具有自然免疫力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10.jpg)
+据悉，CDC数据库通过对多个国家和地区的中共病毒感染数据进行分析后得出，大多数中共病毒的感染者都拥有了自然抗体，且这种自然免疫不仅有效，还更加持久。数据显示，自然免疫力在预防中共病毒感染方面的有效性是接种中共病毒疫苗的3.3至4.7倍。其中，儿童的自然免疫反应比成年人更强。
 
-目前，研究人员正在尝试分析此类情况涉及的人数和治疗方法。
+评论人士对此表示，该研究的结论揭示了强制民众接种中共毒疫苗政策的政治效应。另一方面，在中共病毒大流行期间，大媒体努力淡化对中共病毒感染者自然免疫力的报道，甚至不惜一切代价吹嘘全民中共毒疫苗接种计划的做法可以被看作是蓄意谋杀。因此，所有因政府强制疫苗令而失去工作的民众应该得到道歉并恢复其工作。
 
-参考链接：[Lung abnormalities found in long Covid patients with breathlessness](https://www.itv.com/news/2022-01-29/lung-abnormalities-found-in-long-covid-patients-with-breathlessness)
+参考链接：[New Harvard, Yale & Stanford Data Show 4 Out of 5 Americans Have Covid ‘Natural Immunity’](https://beckernews.com/99-harvard-yale-stanford-data-natural-immunity-43898/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: Irene木木
-编辑：飞虹
+总编: 飞虹
+编辑：文特
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
