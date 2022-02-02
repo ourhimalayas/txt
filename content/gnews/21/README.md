@@ -2,25 +2,44 @@
 ---
 
 
-## 国内战友得紧急救助与国际正义力量得迅速反应
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1944958/)
+## 习仲勋开创的改革被邓小平抢走，习近平上台后全面左转
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944999/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/国内战友得紧急救助与国际正义力量得迅速反应-.jpg)
-直播时间：2021.12.08
+G-TV视频链接：[https://gtv.org/video/id=61f7d406d90bdd2085a31dfd](https://gtv.org/video/id=61f7d406d90bdd2085a31dfd)
 
-昨天啊，就是我特别感动的，很多战友到现场去，后来我说千万千万别去，别去。战友过去没有太大的作用，因为这么1000多个员工，你也帮不了几个，而且会把你暴露了。我父亲，你看就是社会上，当时就是旁边很多人主动的，周围的老客户来送吃的，送棉衣服，有人往家接。后来员工就在外面租的公寓，很快就安定下来了，让我特别感动。到现在不知道是谁呢，就有人就扔了20万块钱扔了30万就走，说你们去买吃，因为员工没有卡，公司账号也全封了。买水都没得喝的，就是旁边就很多邻居啊，就来一送就是十几箱水仍了就走，就过去了，我们都是你们老客户，很感谢你们啊，就这你去想想，一定要记住，绝大多中国人是善良的啊。我父亲当时是没地方去，我哥家也都没了，啥都没了，你想想我们上千个家庭一夜一秒钟都给毁掉了，它们有多大的势力？结果我父亲是用别人的车把我父亲找到了亚运村北边那个紫玉山庄旁边一个餐厅待下来了。到餐厅，师傅一看啥也没说，直接进去点着炉子把老爷子放在沙发上，你在这儿躺着。我爹他是中风状态，他糊涂的嘛。所以大家记住，是好人多，在这里感谢我就不说了啊！
+**郭文贵先生：**但是这个时候叫习仲勋是最最落魄者，集改革开放的人，到现在习最纠缠的是这改革开放是我爹干的，怎么是你邓小平干的呢？深圳的事情，习仲勋绝对是最大的功臣。不杀人、不能再杀人，这话是习仲勋说的，不能再杀人了。一天最多几千人，打到整个深圳罗湖那块，都是血流成河。杀人杀到，杀人开枪开到，杀人的兵疯了，一天疯好几个。都是游着过去，打西瓜皮“叭”一个，打中了“叭”一个。你知道人会杀人、会杀自己杀疯掉的。
 
-第2个就是美国，欧洲让我特别感动的就是这些国家政府马上知道以后就找我，就刚才给我发信息让我回电话，包括昨天某国情报部门说，你能不能来一趟华盛顿啊，做个秘密听证，包括今天也让我也去啊，然后说星期六你可以来，星期六我们大家都已经周末，我们专为你讲一下这个事情。像欧洲包括日本，他们都看到了，说郭文贵的爹还真不简单啊，这个待遇，我说你看我爹，你就知道新疆人有多惨。
+你们可真是不知道这个，这是七哥亲身经历太多了。那个时候我才多大，你去想想。七哥那时候早就已经混深圳了。是不是！那时候你们干啥呢？包括这平风，是不是！看你西枫，你看那时候，你们干啥呢？七哥已经在罗湖酒店混了，那时候罗湖还是个镇呢！那时候小沙滩，是不是！七哥就已经搞电子表、搞牛仔裤、邓丽君磁带，是不是！然后海外版的少女之心了，是吧！都玩这个去了。
 
-发布：*皮特*
+所以兄弟姐妹们，你看到那个时代的时候，到十三大的时候，到今天，你发现十三大影响到今天，就是习近平今天的极端思想和对邓家的打压，当时就是所谓的南巡讲话，是走左还是走右？是不是！改革派还是极端派、绝对共产主义？最后是选择了一个既不走极左，也不是（极右），所谓的中国特色社会主义，确定了江山。习上来以后来个极左、绝对极左，跟他爹是完全相悖的。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

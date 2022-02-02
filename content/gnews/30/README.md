@@ -2,14 +2,13 @@
 ---
 
 
-## 2022年2月2日《樱花简报》：东京新增中共病毒人数首次破万创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1944436/)
+## 研究显示伊维菌素可以有效预防中共病毒感染
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1944468/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/简报-scaled.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220202-scaled.jpg)
 *编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

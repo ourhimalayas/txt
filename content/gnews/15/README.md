@@ -2,27 +2,30 @@
 ---
 
 
-## 对单伟建的行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945005/)
+## FBI再敲警钟：中共国对美威胁更具破坏性
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945095/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/对单伟建的行动-.jpg)
-直播时间：2021.12.08
+![资料照：美国联邦调查局局长克里斯托弗·雷在司法部的记者会上讲话。](https://gdb.voanews.com/52AD43DC-BBBE-4DE7-978F-73FD9D6C0F06_w1023_r1_s.jpg)资料照：美国联邦调查局局长克里斯托弗·雷在司法部的记者会上讲话。
+据美国之音2月2日报道，美国联邦调查局（FBI）局长克里斯托弗·雷指责北京盗取美国技术，对美国发起大规模黑客行动，称中共国政府对西方的威胁比以往任何时候都更厚颜无耻和具有破坏性，是对美国长期经济安全最大的威胁。FBI大约每12个小时便启动一个反中共国间谍的调查。
 
-这小子在海外大量的投资和骗取的钱，还有偷税漏税，咱都得干他。
+雷表示，美国和西方世界发现他们在与一个全球对手—中共在对阵。中共政府拒绝最基本的自由、人权以及民主规范。但是，中共的经济和政治具有全球影响力。中共国政府常常利用其能力在全球进行偷盗和威胁。雷特别强调一点，是中共国政府和中共构成对美国的威胁，不是作为中共国政府的人质和最大、最无辜的受害者的中国人民，当然更不是华裔美国人。FBI致力于保护所有美国人的安全及权利。
 
-可以告诉大家，我们已经聘请了N个国际上金融的律师事务所，对单伟建过去这些年所有的金融案件进行调查，我们会一一连线。记住我说的话啊，不让单伟建在全世界面前变形，不让他变成第2个海航，我就不叫郭文贵，咱走着看。
+中共在美国启动了大规模的黑客盗取项目，比所有其他国家加起来的程度都高。防偷盗防中共，是美国国家安全的头等大事。忽视了中共的危害性和破坏力，篱笆扎得再高，能挡住君子，也挡不住中共。
 
-你看那个德行那个样不打他就便宜个球的了，但是我们一定要让西方知道这人是个什么东西。大家要集体行动啊，我们今天就算单伟建的事儿。
+新闻参考链接：[https://www.voachinese.com/a/threat-from-China-more-brazen-than-ever-before-20220201/6421768.html](https://www.voachinese.com/a/threat-from-China-more-brazen-than-ever-before-20220201/6421768.html)
 
-发布：*皮特*
+编辑：胖丁
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

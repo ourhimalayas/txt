@@ -2,50 +2,44 @@
 ---
 
 
-## 安然模式的疫苗骗局？——大药企正面临来自保险业的战争
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1945192/)
+## 内斗外困的共产党只有死路一条，新中国联邦是唯一出路
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945266/)
 
-温哥华杨帆船农场 – 编译：Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb1_22-1.png)图片来源：pixabay.com
-在1月26日的美国潘恩电视台广播录音中，主持人托马斯·潘恩和前对冲基金大师爱德华·多德发出了警示：大药企可能最终会步入安然的后尘；保险业正在与大药企就疫苗接种有关的人寿保险赔偿问题酝酿着一场战争。下面是录音的要点。
+G-TV视频链接：[https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72](https://gtv.org/video/id=61f7d4f5d90bdd2085a31e72)
 
-**对冲基金经理们正在谈论着将大药企做空为零。**在过去的一周里，辉瑞和莫德纳的股价随着无止境疫苗接种的推动而呈螺旋式下跌。华尔街正在觉醒，对冲基金经理开始谈论强制疫苗令是否正确。
+**郭文贵先生：**所以说现在看到世界上，欧洲要带起的外交叫“脱交”。脱交可能跟美国同时干，也可能是什么，两个一起干，叫脱交。然后科技上已经彻底的幻想破灭。AMSl荷兰这一仗，对他绝对是致命的。在所有的领域全完蛋，这叫科技脱科还是脱技，是吧！都脱了。
 
-**这看来是多重欺诈**；它起源于大药企。随之而来的是科技巨头和主流媒体的协同努力和分享宣传资源。如果没有它们的压制和审查，这场疫苗灾难就不会发生。政府的腐败为贿赂打开了大门以掌控权力。
+第三，大家现在的病毒溯源。第四冬奥会彻底完球蛋，成世界政治笑话。最后一条，大家看到了全人类在探讨一个问题，到底中国是改革开放，再次改革，深度改革，什么改革，开放能救中国吗？会避免共产党对全世界的威胁吗？都不会。只有一个一人一票的选举制度，才能救中国。
 
-**FDA****被迫授权疫苗令**。FDA预算的6%来自大药企。他们看到了虚假的临床试验过程，但仍在推进。FDA、CDC、NIH和白宫据说都参与中。
+因此十三大所有上台的人、家族，基本完球蛋。现在习想跟他们斗，也斗不了。那么现在就需要一个世界的力量和中国人的新力量，就我们新中国联邦，所以以上所有解决之道，只有《新中国联邦宣言》，你们信不信？服不服？兄弟姐妹们。谢谢！
 
-**大药企无视人们的死亡和残疾，来帮助全球政府在疫苗交易中获取回报**。疫苗利润和强制接种疫苗是成正比的。鉴于全球一半人口接种了疫苗，其利润所得应该是增长了50%。这足以贿赂全球政府官员。然后，他们向1至3岁的儿童推广疫苗，好像是为了最后一点市场利润而踩下油门。这太疯狂了。
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-**似乎新西兰总理杰辛达·****阿登在扑克游戏一开盘就吆喝到“****我全力以赴!”****。**未经证实的消息称，杰辛达·阿登的网络从40万美元增加到2500万美元。假设大药企给了她2500万美元，让她在500万新西兰人中强制250万人打疫苗。收入大概是2.9亿美元。
+编辑整理：Jacques；
 
-**不同于安然，其只涉及金钱问题而且在调查时已经造成了损害**。但疫苗计划仍在进行人们正在死亡和受伤。这是一个非常独特的情况，
+字幕文件制作：知津；
 
-**被贿赂的政客们将会把矛头指向大药企的首席执行官。**他们相互协调的蜘蛛网地图将会显示出真相。感觉被背叛的人将会向政客施加压力来迫使他们坦白。他们不可能对此保持沉默下去而真相总会被揭穿。
+视频制作及上传：Cindy；
 
-**不允许谈论疫苗死亡是不可能的。**根据Acorn保险的报告，第三季度的保险死亡索赔为1.11亿美元，高于去年同期的3100万美元。Swiss Ray报告2021年前三个季度的死亡索赔为12亿美元。这些报告包括了疫苗和其它死亡数字。
+G-News发布：小满；
 
-**随着裂缝的出现华尔街正在觉醒**。在某个时刻，保险公司会说他们不再支付疫苗死亡索赔。经过核实的一个人，其所得到的法庭文件上显示：“这是实验性的，你应该知道”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-**大药企的股价将会跌至几美元或零**。当调查大型制药公司的疫苗投资收益时，保险公司将会发现大药企的所作所为。有朝一日，保险业将会与大药企开战。大药企将会面临史上最大数额的和解和罚款。首席执行官们将入狱。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**因疫苗死亡的数据远未被报道**。得知多少相关的人们死于疫苗接种是令人痛心的。据累计数据的保守估计，至少有13万美国人死亡，到目前大致有40万美国人死亡。这仅仅是个开始。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**对冲基金经理们做空大药企股票的速度越快，死亡人数就越少。**各行业的疫苗强制在某个时候会崩裂。雇员们会发起集体诉讼，而律师们会为雇主们处理麻烦。如果对冲基金经理们翻转屏幕做空大药企股票，其结果将比监管措施更快。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**对冲基金一直以邪恶的名义存在，现在他们可以成为英雄了**。交易的灵感来自有关涉嫌假疫苗的信息。你只需要知道FDA试图对公众隐瞒临床实验数据，和FDA雇员不会被注射疫苗 就够了。从常识上讲，对大药企选择做“多头”是支持法西斯和强制疫苗令。为了你自己的利益，应该去“做空”大药企。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-**就像”****安然“****刚刚开始漏油一样，大药企开始漏油，它们的股价呈现螺旋式下跌。**希望这一进程加速并得以暴露 FDA，CDC 和 NIH。像 Fauci 这样的来自监管机构的废物可以控制媒体和其它方面。当股票市场嗅到血腥味时，它将把监管机构推到台前致使他们不能隐藏任何东西。当人们看到真相的时候，他们就会反抗。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**他们明白自己已经暴露了，一切都结束了，只是时间问题。**越来越多的证据和担忧正在显现出来。他们想方设法掩盖这个骗局。几乎在一夜之间，他们试图说“哦，冠状病毒结束了”来以此终结。这可能是他们绝望的迹象。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**上面的信息证明了郭文贵先生的早期预测。他是最早公开表示大药企将会破产的人。**
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-参考链接: [https://paine.tv/listen-are-moderna-and-pfizer-the-next-enrons-former-blackrock-hedge-fund-guru-edward-dowd-paints-grim-picture-for-big-pharmas-vax-kings-while-big-insurance-appears-prepped-to-go-to-war-with/](https://paine.tv/listen-are-moderna-and-pfizer-the-next-enrons-former-blackrock-hedge-fund-guru-edward-dowd-paints-grim-picture-for-big-pharmas-vax-kings-while-big-insurance-appears-prepped-to-go-to-war-with/)
-
-（以上内容仅代表作者观点，与GNEWS平台无关）
-
-**编审/****发布：shuang**
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
