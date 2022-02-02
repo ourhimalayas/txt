@@ -15,83 +15,83 @@
 
 ---
 
-### [美国向欧洲增派2000名士兵](/content/gnews/1/README.md)
- ` Shuizhuyu`
-
-### [中共压榨奴隶高筑债务却罔顾民生对外“大撒币”](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [CNN主播：北京奥运会的背后掩盖着许多丑陋的事实](/content/gnews/3/README.md)
- ` 纽约香草山MOS02`
-
-### [灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/4/README.md)
- ` MOS Designer香草山设计部`
-
-### [DC每日热点0202](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [举报中共血汗工厂使用童工获刑入狱](/content/gnews/6/README.md)
- ` 焦點20分`
-
-### [Hpay上市，战友要做好三件事](/content/gnews/7/README.md)
- ` genwsGNEWS`
-
-### [从924空战浅谈空空导弹 （下）](/content/gnews/8/README.md)
- ` 军情启示录`
-
-### [美国CNN老板杰夫扎克因与女下属的关系辞职](/content/gnews/9/README.md)
- ` Shuizhuyu`
-
-### [2022年1月31日壬寅年新春大直播全文字版（二）](/content/gnews/10/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [2022年1月31日大直播速记精萃](/content/gnews/11/README.md)
+### [2022年2月2日大直播速记精萃](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [福克斯新闻：来自世界各地的科学家们早已谈论过实验室泄露病毒的可能性](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [乌兹别克斯坦提议封锁TikTok](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
-
-### [英国保守党议员称将呼吁对首相进行信任投票](/content/gnews/14/README.md)
+### [美国向欧洲增派2000名士兵](/content/gnews/2/README.md)
  ` Shuizhuyu`
 
-### [青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳](/content/gnews/15/README.md)
- ` 焦點20分`
+### [中共压榨奴隶高筑债务却罔顾民生对外“大撒币”](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](/content/gnews/16/README.md)
- ` MOSREC`
+### [CNN主播：北京奥运会的背后掩盖着许多丑陋的事实](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
 
-### [美国将严厉制裁俄罗斯 俄将全面启用人民币](/content/gnews/17/README.md)
- ` 焦點20分`
-
-### [未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行](/content/gnews/18/README.md)
- ` 焦點20分`
-
-### [文贵爆料 2.2：Hpay上线，我的财富我做主](/content/gnews/19/README.md)
- ` 秘密翻译组-原创组`
-
-### [与心理医生谈焦虑症—如何应对疫情期间的各种心理压力（三）](/content/gnews/20/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [参议员敦促拜登政府弥补中芯国际出口管制中的漏洞](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫苗与战争的关系](/content/gnews/22/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [银河快讯：日本表示可能采取“额外措施”抑制油价；朝鲜有可能发射中远程弹道导弹](/content/gnews/23/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [香草山村晚之联盟铁血组向战友致新春问候](/content/gnews/24/README.md)
- ` GTV News Talk`
-
-### [灭共者之郭氏情报站（十九）2022/01/31 文贵虎年大直播](/content/gnews/25/README.md)
+### [灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/5/README.md)
  ` MOS Designer香草山设计部`
 
-### [Miles背后出现了新中国联邦红旗的联想](/content/gnews/26/README.md)
+### [DC每日热点0202](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [举报中共血汗工厂使用童工获刑入狱](/content/gnews/7/README.md)
+ ` 焦點20分`
+
+### [Hpay上市，战友要做好三件事](/content/gnews/8/README.md)
+ ` genwsGNEWS`
+
+### [从924空战浅谈空空导弹 （下）](/content/gnews/9/README.md)
+ ` 军情启示录`
+
+### [美国CNN老板杰夫扎克因与女下属的关系辞职](/content/gnews/10/README.md)
+ ` Shuizhuyu`
+
+### [2022年1月31日壬寅年新春大直播全文字版（二）](/content/gnews/11/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [2022年1月31日大直播速记精萃](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [福克斯新闻：来自世界各地的科学家们早已谈论过实验室泄露病毒的可能性](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [乌兹别克斯坦提议封锁TikTok](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
+
+### [英国保守党议员称将呼吁对首相进行信任投票](/content/gnews/15/README.md)
+ ` Shuizhuyu`
+
+### [青蒿素鸡尾酒将面世 对清疫苗和治疗新冠效果奇佳](/content/gnews/16/README.md)
+ ` 焦點20分`
+
+### [2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [美国将严厉制裁俄罗斯 俄将全面启用人民币](/content/gnews/18/README.md)
+ ` 焦點20分`
+
+### [未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行](/content/gnews/19/README.md)
+ ` 焦點20分`
+
+### [文贵爆料 2.2：Hpay上线，我的财富我做主](/content/gnews/20/README.md)
+ ` 秘密翻译组-原创组`
+
+### [与心理医生谈焦虑症—如何应对疫情期间的各种心理压力（三）](/content/gnews/21/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [参议员敦促拜登政府弥补中芯国际出口管制中的漏洞](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫苗与战争的关系](/content/gnews/23/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [银河快讯：日本表示可能采取“额外措施”抑制油价；朝鲜有可能发射中远程弹道导弹](/content/gnews/24/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [香草山村晚之联盟铁血组向战友致新春问候](/content/gnews/25/README.md)
  ` GTV News Talk`
+
+### [灭共者之郭氏情报站（十九）2022/01/31 文贵虎年大直播](/content/gnews/26/README.md)
+ ` MOS Designer香草山设计部`
 
 ### [2022/01/28 墙内世界](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
