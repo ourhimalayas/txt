@@ -2,102 +2,50 @@
 ---
 
 
-## 中国人一出生就需要7.4年不吃不喝还债！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1945672/)
+## 疫苗灾难和经济危机双重打击下的加拿大最终将迅速解决
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945761/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+G-TV视频链接：[https://gtv.org/video/id=61f80879d90bdd2085a32bc6](https://gtv.org/video/id=61f80879d90bdd2085a32bc6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+**郭文贵先生：**加拿大这个他会也一样的，他会今天有多疯狂，他收的就会有多快，没有任何选择的。这就是西方民主政府，就是我们要追求的。就是不管这个政府多疯狂，他最后他还必须回到正轨的渠道上。这就是中国人要懂得民主自由的重要。
 
-2022年1月18日，在中共国务院新闻办公室举行的《[2021年金融统计数据新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47730/index.htm)》上，中共国人民银行副行长刘国强说，2021年末，宏观杠杆率为272.5%。
+大卡车司机太勇敢了，我觉得太佩服了啊。他们和我们也都有联系，包括这个在去年年底的时候跟我们都有联系，现在很多联系，我们……只要咱们加了中英文字幕的视频呐关于疫苗的，我都会发给他们。他们这些组织人跟我们都有很紧密的联系，我们大概有六七个战友也跟他们保持紧密联系，跟他们提供很多信息，让他们更多的了解到整个世界上疫苗的问题和疫苗灾难的问题，对他们帮助很大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-44-35.png)
+而且这个加拿大这个国家他有两个跟所有刚才的国家极端的不一样的。小土豆这个人呢，他这个政党在这块儿，在加拿大的力量很大，特别在媒体上他都控制。
 
-而就在前一天中共国务院新闻办公室举行的《[2021年国民经济运行情况新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47722/index.htm)》上，中共国务院新闻办新闻局局长、新闻发言人陈文俊说，2021年（中共国）经济总量114.4万亿元，按年平均汇率折算，为17.7万亿美元。
+而且加拿大这个国家实际上就是美国的一个小弟，他遇到了一个美国又民主党现在是执政，然后小土豆这个人现在又得到了媒体上对他的帮助，把加拿大一下子送上了一个这么个灾难的境地，疯狂到了极点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-36-44.png)
+对加拿大这次人民的疫苗灾害可能是全世界，我说可能是排在第一位的。加拿大、澳大利亚，像德国这都疯狂啊，不可思议的。
 
-根据中共国务院新闻办新闻局局长、新闻发言人陈文俊公布的数字，2021年中共国的GDP 114.4万亿元，而中共国人民银行副行长刘国强公布的2021年末，中共国宏观杠杆率为272.5%，也就是说中共国2021年末的总债务为114.4万亿元×272.5%=311.74万亿元。
+那么另外一个就是对经济上的打击，对加拿大可能几十年都缓不过来，几十年都缓不过来。然而再一个就是加拿大在全世界的国际地位这次一下子打击太大了。但是最终迅速的会解决。我觉得因为他都是跟着美国的嘛，他是美国小弟。美国最后一行动，他立马就跟过来，他没有选择的，他没有任何选择。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-24-51.png)
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-就在1月17号的新闻发布会上，陈文俊说，（2021）年末全国人口（包括31个省、自治区、直辖市和现役军人的人口，不包括居住在31个省、自治区、直辖市的港澳台居民和外籍人员）141260万人。
+编辑整理：Jacques；
 
-做一个简单的计算，2021年末，中共国平均每个居民（包含刚出生的婴儿和年逾古稀的老人）负债311.74万亿元÷141260万人=22.07万元。
+字幕文件制作：知津；
 
-中共国国家统计局的数字一贯造假，但2020年5月28日，中共国务院总理李克强在出席十三届全国人大三次会议《[李克强总理出席记者会并答中外记者问](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm#1)》时说：“中国是一个人口众多的发展中国家，我们人均年收入是3万元人民币，但是有6亿人每个月的收入也就1000元”。
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-01_17-12-13.png)
+G-News发布：小满；
 
-根据李克强公布的“我们人均年收入是3万元人民币”，可以推算出中共国的婴儿从出生那天起，就负债22.07万元，需要22.07万元÷3万元/年=7.4年不吃不喝才能还清债务。而有6亿人每个月的收入也就1000元，这6亿需要22.07万元÷（1000元/月×12月/年）=18.4年才能还清债务。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-李克强公布的人均年收入是3万元人民币，与陈文俊公布的2021年全年全国居民人均可支配收入35128元相差不大，说明上述计算过程是合理的！
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-对于中共国人来说，一生能挣钱的时间在20岁~55岁，也就35年时间，中共国的人需要把人生7.4年÷35年=21%的精力用于偿还出生就有的债务！对于那6亿月收入不到1000元的韭菜来说，需要把人生18.4年÷35年=53%的精力用于偿还出生就有的债务！
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-中共治下的荒唐何止于此！
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-中共国有3.2亿烟民，位居世界第一，2020年香烟生产总量高达2万亿支，10元低价烟逐渐消失的大背景下，还连续三年亏损。2020年亏损4.3亿元；2019年亏损达22.8亿元；2018年亏损13.8亿元。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-28-20.png)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-不仅如此，中共国国航2021年预亏145亿到170亿元！2020年亏损67.86亿！
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-国家电网2020年亏损178亿！2021年上半年广东售电公司整体亏损面88.2%！
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-2021年，电力上市公司业绩出现史无前例的巨额亏损！中国电力预计2021年度净亏损5亿~6亿元，国电电力预计2021年度净亏损16亿~23亿元，华电国际预计2021年度净亏损45亿~53亿元，大唐发电预计2021年度净亏损90亿~108亿元，华能国际预计2021年度净亏损98亿~117亿元！
-
-中国国家铁路集团2020年净亏损555亿元，2021年前三季度，发送旅客19.95亿人次，同比增加5.1亿人次、增长34.3%，然而净利润亏损698亿元！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-02_14-31-38.png)
-
-1月28日收盘至24点， 409家A股上市公司发布预亏公告，合计亏损3772亿元至4492亿元。其中，预亏金额最高的十家上市公司预亏损合计近2000亿元。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/o8hrrck10xzbxd1aetvk6q3tjc0s6s.jpg)
-
-仅苏宁易购一家预计亏损额就达到423亿~433亿元，而当日苏宁易购总市值仅364.02亿。相当于苏宁易购一家就亏掉每个中国人433亿÷14.126亿人=30.7元。恐怕绝大多数中国人去年都没有在苏宁易购买过一次东西，就是白送甚至倒贴运费也不至于亏这么多！
-
-华夏幸福亏损331亿~391亿元、正邦科技亏损182亿~197亿元、中国国航亏损145亿~170亿元、温氏股份亏损130亿~138亿元、中国东航亏损122亿~147亿元、南方航空亏损110亿~135亿元、蓝光发展亏损120.37亿元、华能国际亏损98亿~117亿元、百济神州亏损85.42亿~110.12亿元。
-
-共惨党的腐败和荒唐，给全社会带来深重的灾难！消灭共惨党，公审老杂毛，是中共国唯一的出路！
-
-参考数据：
-
-[2021年金融统计数据新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47730/index.htm)
-
-[2021年国民经济运行情况新闻发布会](http://www.scio.gov.cn/xwfbh/xwbfbh/wqfbh/47673/47722/index.htm)
-
-[A股上市公司“亏损王”历史被改写: 三大板块巨亏](https://www.sohu.com/a/520114115_118622)
-
-[李克强总理出席记者会并答中外记者问（实录全文）](http://www.gov.cn/xinwen/2020-05/28/content_5515697.htm#1)
-
-[意外!中国烟草,连续三年经营亏损!钱去哪了?](https://www.anmoyi98.com/a/314239)
-
-[10元低价烟逐渐消失，年纳税达万亿的中国烟草，为何连亏3年？](https://new.qq.com/omn/20211026/20211026A05DIO00.html)
-
-[一年亏损178亿，14亿人养不起国家电网？](https://www.163.com/dy/article/GCIA0V6T0531MRNF.html)
-
-[粤电力A：2021年预计亏损29-35亿元](https://news.bjx.com.cn/html/20220126/1201523.shtml)
-
-[国家电网去年主业首亏178亿，利润创七年新低](https://www.jiemian.com/article/5961951.html)
-
-[2021年上半年广东售电公司整体亏损面88.2% 仅19家度电获利0.9厘/千瓦时](https://shoudian.bjx.com.cn/html/20210810/1168822.shtml)
-
-[电力上市公司2021年集体巨亏 煤、电业绩再现冰火两重天](https://finance.eastmoney.com/a/202201302266896082.html)
-
-[发送旅客19.95亿人次！国家铁路集团：前三季度亏损698亿元](https://news.mydrivers.com/1/792/792608.htm)
-
-[亏损持续扩大 中国国航2021年预亏145亿到170亿元](https://finance.eastmoney.com/a/202201282266139696.html)
-
-[都知道中国烟草纳税额第一 却没几个人知道其亏损多年](https://finance.sina.com.cn/tech/2021-08-15/doc-ikqciyzm1499049.shtml)
-
-[中国烟草总公司，连续三年亏损！没人敢相信！](https://fcnews.finchina.com/newsview/default.aspx?newscode=20220102020015112865)
-
-[苏宁易购(002024.SZ)](https://finance.sina.com.cn/realstock/company/sz002024/nc.shtml)
-
-[袁海霞：2021年中国债务规模达336万亿，未来三年地方政府每年要偿债超2.5万亿](https://www.sohu.com/a/443259444_100160903)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
