@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|科顿参议员指出本不该让中共举办冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1944830/)
+## 北京奥运会运动员、教练员的病毒感染率上升较快
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1944918/)
 
-配音：香草山佛教部 – 李傻
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-19.jpg)
+图片来源：网络截图
 
+据美联社北京2月2日报道，组织者周二表示，运动员和代表队官员的中共病毒（Covid-19）呈阳性的检测结果，比其他抵达中共国参加北京奥运会的人要高得多。
 
+公布的数据显示，在周一抵达的379名运动员和官员中，有11人的中共病毒检测呈阳性。他们已被带入隔离酒店，以限制感染的传播，并可能错过他们的比赛。
 
-当地时间1月30日，科顿参议员指出中共根本没有资格举办冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-01-%E4%B8%8A%E5%8D%8811.42.56.png)
-科顿参议员提到，在他2年前刚开始质疑病毒起源于武汉实验室的时候，遭到了福奇、柯林斯为首的各方打压。而2021年越来越多的证据指向了，病毒最有可能起源的地方就是研究了蝙蝠冠状病毒，并且有蝙蝠女王之称的石正丽所在的武汉实验室。
+运动员和官员的阳性检测率为2.9%，而同期奥运“利益相关者”（包括工人和媒体）的检测率为0.66%。有1059人属于这一类别。从周六到周一的三天时间里，运动员和官员的阳性率比其他抵达的奥运相关人员高出40%。
 
-科顿参议员指出，在这样的背景下，中共本来就不应该拥有举办冬奥会为其进行宣传的巨大机会，应该在一年前就把冬奥会举办权交给其他国家。
+北京奥运会的数万人将在与公众隔绝的封闭社区中生活、工作和训练，他们的PCR和其他后续测试都证实了这些比率。中共国政府正在推行一项零容忍的公共卫生战略。
 
-文字版原文：[科顿参议员指出本不该让中共举办冬奥会](https://gnews.org/zh-hans/1943053/)
+周一，对已经进入奥运封闭圈人进行的测试中，运动员和官员的感染率比工人高100倍。运动员和官员组的3103次测试中有5次呈阳性，而“利益相关者”的6万多次日常测试中只有一次呈阳性。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+自1月23日以来，奥运会上共记录了200次中共病毒的阳性测试。在这200人中，67人是运动员和官员。”利益相关者 “占了其他133人。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在北京检测出阳性的运动员中包括香港滑雪运动员金和晓（Audrey King），她从波黑的一个训练营赶来。金告诉《南华早报》，她没有任何症状，并对2月9日的女子大回转滑雪比赛持乐观态度。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+国际奥委会最高级别的运动员代表，两届奥运会曲棍球奖牌得主艾玛·特霍（Emma Terho），在抵达时检测结果呈阳性，也被关在一个隔离的酒店里。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[Virus infections for Olympic athletes, coaches rising faster](https://apnews.com/article/winter-olympics-coronavirus-pandemic-sports-health-beijing-d6de53686069e3802940e09a71df68eb)
 
  
 

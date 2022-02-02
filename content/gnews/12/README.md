@@ -2,38 +2,45 @@
 ---
 
 
-## 收藏殿堂 | 新冠病毒生物战争的设计者发动者到底是谁？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1944968/)
+## 习仲勋开创的改革被邓小平抢走，习近平上台后全面左转
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944999/)
 
-撰稿：东京樱花团/谈古论今
+G-TV视频链接：[https://gtv.org/video/id=61f7d406d90bdd2085a31dfd](https://gtv.org/video/id=61f7d406d90bdd2085a31dfd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁1.png)
+**郭文贵先生：**但是这个时候叫习仲勋是最最落魄者，集改革开放的人，到现在习最纠缠的是这改革开放是我爹干的，怎么是你邓小平干的呢？深圳的事情，习仲勋绝对是最大的功臣。不杀人、不能再杀人，这话是习仲勋说的，不能再杀人了。一天最多几千人，打到整个深圳罗湖那块，都是血流成河。杀人杀到，杀人开枪开到，杀人的兵疯了，一天疯好几个。都是游着过去，打西瓜皮“叭”一个，打中了“叭”一个。你知道人会杀人、会杀自己杀疯掉的。
 
-本世纪之初突如其来的新冠病毒生物战裹挟了全人类，截至2021年11月1日的数据统计，全球因新冠病毒死亡的人数突破了500万人，其中，欧洲美洲受害最为深重，死亡人数接近全球总死亡人数的一半。
+你们可真是不知道这个，这是七哥亲身经历太多了。那个时候我才多大，你去想想。七哥那时候早就已经混深圳了。是不是！那时候你们干啥呢？包括这平风，是不是！看你西枫，你看那时候，你们干啥呢？七哥已经在罗湖酒店混了，那时候罗湖还是个镇呢！那时候小沙滩，是不是！七哥就已经搞电子表、搞牛仔裤、邓丽君磁带，是不是！然后海外版的少女之心了，是吧！都玩这个去了。
 
-灾难远远没有结束，2022年，估计在全球范围内由新冠病毒疫苗灾难造成的心血管死亡人数会达到6000-7000万。
+所以兄弟姐妹们，你看到那个时代的时候，到十三大的时候，到今天，你发现十三大影响到今天，就是习近平今天的极端思想和对邓家的打压，当时就是所谓的南巡讲话，是走左还是走右？是不是！改革派还是极端派、绝对共产主义？最后是选择了一个既不走极左，也不是（极右），所谓的中国特色社会主义，确定了江山。习上来以后来个极左、绝对极左，跟他爹是完全相悖的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁2.png)
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-这场人类历史上首次大规模杀戮的新冠病毒生物战争包括了两大部分，即病毒和疫苗。那么，这场生物战的总设计师到底是谁？是谁指挥发动的？病毒和疫苗这两者的技术开发、制造、投毒都是谁干的？例如：
+编辑整理：Jacques；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁3.png)
+字幕文件制作：小满；
 
-变态的比尔盖茨10年前就宣称通过病毒/疫苗控制人口。
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁4.png)
+G-News发布：小满；
 
-早在31年前的1981年法国前总统弗朗索瓦密特朗就写下了“未来将面临如何才能减少人口的问题，我们要从老年人着手因为他超过了60-65岁”，因为这些高龄者和弱者不再创造任何社会价值，一句话要被清除掉。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新冠病毒生物战争的设计者发动者到底是谁5.png)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-中共战争狂人原国防部长迟浩田在《战争离我们不远，它是中华世纪的产婆！》中把中共的狂妄顶层设计说得冠冕堂皇：自诩中国人是“超百万年的文化根系，上万年的文明进步，五千年的古国，两千年的中华同一实体”，是我们引以为傲、自称为“炎黄子孙”的中华民族。因为现有的土地不足以承载中国人口了，需要美洲澳洲的广袤土地，并且洋洋得意地认为不需要动用高成本高代价的核武器，用病毒生物战就可轻而易举就可以取胜，为此还做了网上问卷民意调查，认为超过80％的中国人肯定了“会向妇孺和战俘开枪”，即，确认中共统治教育下的国民完全可以按照中共的意志对外族杀戮进行领土扩张。中共确认了已经具备对外杀戮和扩张的“民意”和“战争工具”。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-这仅仅是冰山一角，真相还远在黑暗中——这场新冠病毒生物战争到底要达到什么目的？目标要杀多少人？还有多少种存储病毒？还有其他什么阴谋手段？阿桑奇说“人类社会的黑暗，普通人哪怕窥知一二也会被震惊得瞠目结舌”，希望战友们能够收集资料接龙，归纳整理成为系统证据，尽可能将真相大白于天下！
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
