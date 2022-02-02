@@ -2,45 +2,39 @@
 ---
 
 
-## 2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947608/)
+## 英国保守党议员称将呼吁对首相进行信任投票
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1947641/)
 
-翻译及视频制作：香草山教育部 – 珠丝玛迹
+新闻来源：路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-
-
-
-原视频链接：
-
-[https://odysee.com/@LiBERTY\_VOICE:b/LucM:e](https://odysee.com/@LiBERTY_VOICE:b/LucM:e)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-校对：Gtv abeilles（蜜蜂）
-发稿：小鹿
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/643SYVAYEJOK3PWLH5E6OBQTUA.jpg)
 
 
+资料来源：路透社
 
-**更多资讯，更多关注**
+保守党高级议员托拜厄斯·埃尔伍德周三表示，他将在周三提交对英国首相鲍里斯·约翰逊的不信任信，称所谓的“党门”在国际危机时期分散了政府的注意力。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+数周以来，约翰逊正面临辞职的呼声，此前数周以来，数以百万计的英国人正处于 COVID-19 封锁之下，而他本人也在唐宁街的办公室和住所举办并参加了派对。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+议会国防特别委员会主席、前副部长埃尔伍德是最新一位表示将提交对约翰逊不信任信的保守党议员。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+“现在是解决这个问题的时候了，这样党就可以重新执政，是的……我今天将向 1922 委员会提交我的信，”埃尔伍德说，他指的是一个代表没有政府工作的立法者的团体。
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+如果 359 名保守党议员中有 15% 的人向 1922 委员会主席写信要求信任投票，则可以触发信任投票。
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+埃尔伍德说，这些丑闻分散了英国对乌克兰危机等重大问题的反应。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+“我认为现在是总理掌握这一点的时候了。他本人应该发起信任投票，而不是等待不可避免的 54 封信被实际提交，”埃尔伍德告诉天空新闻。
 
+“对于所有国会议员来说，不断向英国公众捍卫这一点真是太可怕了……现在我们所有人的问题是，首相是领导党前进的最佳人选吗？”
 
+简评： 英国首先约翰逊因为疫情封锁期间，自己在唐宁街举行个人聚会， 并且是上百人的聚会， 让英国的民众愤怒， 让他所在党也颜面扫尽。 当然反对党也不会错过这个机会来攻击他。 下台的呼声也越来越高， 虽然他曾经拒绝辞职， 但是如果进行这正信任度的投票， 他的前途十分不妙。 这就是民选政府和首相的结果， 你做得好请继续， 你让我们选民不满意， 你就要走人，不管你的任期是否到期。 民选政府有监督机制， 你做的事不能被掩盖。
 
+🔗[英国保守党议员称将呼吁对首相进行信任投票](https://www.reuters.com/world/uk/uk-conservative-lawmaker-says-will-call-confidence-vote-pm-2022-02-02/)
 
+责任编辑/发布： Shuizhuyu
 
  
 

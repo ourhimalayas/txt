@@ -2,19 +2,45 @@
 ---
 
 
-## 未经联盟委员会授权 禁止擅自使用新中国联邦或农场标志参加加拿大卡车司机反疫苗游行
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1947598/)
+## 2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947608/)
 
-加拿大卡车司机反疫苗行动，最终很可能会演变成暴力冲突。郭文贵先生建议战友们为了个人安全，不要参与。
+翻译及视频制作：香草山教育部 – 珠丝玛迹
 
-同时，任何个人或组织参加该游行，没有联盟委员会授权，擅自使用新中国联邦或农场的标志的，都会被清理出爆料革命。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-因为共产党会充分利用这个事件，污名化新中国联邦，诬陷爆料革命。把爆料革命定义为邪教组织、暴力分子。
 
-视频来源: 20220130—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+
+
+
+原视频链接：
+
+[https://odysee.com/@LiBERTY\_VOICE:b/LucM:e](https://odysee.com/@LiBERTY_VOICE:b/LucM:e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+校对：Gtv abeilles（蜜蜂）
+发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
