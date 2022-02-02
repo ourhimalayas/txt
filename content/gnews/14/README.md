@@ -2,25 +2,16 @@
 ---
 
 
-## 商鞅五策昆仑山喜马拉雅山（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1946031/)
+## 华邮：美5岁以下儿童 最快2月底可接种辉瑞／BNT疫苗
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/1946073/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/商鞅五策-昆仑山-喜马拉雅山.003.jpeg)
-就是我们这个民族，这个国家呀，就到了（如此地步）：你问他新疆人被种族大屠杀，几乎问任何人，我几乎很少听到国内同情，或者认为说不应该杀。新疆人该收拾收拾了，你一说香港人，还香港人！该教育教育了。台湾人呢？台湾人够得瑟了，这卖国嘛。他从来没问过你有国家吗？他们有资格卖国吗？咱们这个国家这个民族没有信仰无知真的比猪还可怕。
-不是任何人，就我们的家人、我们的亲朋好友都这样。话又说回来，你刚才问这些问题，就中国人到现在这种灾难的结果怎么办？说句老实话，很多话是在直播中真的不能说。
-但凡你真的在高空中看过昆仑山、帕米尔高原、七山一峰、八大山脉、喜马拉雅山，你就会真正的明白天地间是有规则的。
+[撰稿日期]：2022.02.01
 
-2022年1月12日大直播
+[署名]：台湾宝岛农场dobi
 
-发布：星谕
+[新闻连接]： 《https://udn.com/news/story/121707/6073124?from=udn-catelistnews\_ch2》
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据外媒报导，辉瑞药厂(Pfizer)与德国BioNTech公司合作研发的6个月到5岁幼儿新冠疫苗，最快在今天（2月1日）向美国食品药物管理局(FDA)提出紧急使用权申请。且报导中也指称，若此疫苗通过申请，将会是第一支针对6个月到5岁以下幼儿可接种的疫苗，且最快可在2月底将开放接种。至于5岁以上幼童则可接种辉瑞／BNT疫苗。
 
  
 
