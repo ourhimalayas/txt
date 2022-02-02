@@ -2,167 +2,118 @@
 ---
 
 
-## 斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1945814/)
+## 成千上万的加拿大人出现在渥太华支持卡车司机争取自由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1945925/)
 
-[https://gtv.org/video/id=61f9b9ccd90bdd2085a3b765](https://gtv.org/video/id=61f9b9ccd90bdd2085a3b765)
+[https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad](https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad)
 
-Stephen Breyer (the US supreme court justice)
-斯蒂芬·布雷耶 （美国高院大法官）
+Keean Bexte’s here with the Counter Signal in Ottawa, Ontario
+基恩·贝克斯特在安大略省渥太华与《柜台信号》报道
 
-People have come to accept this Constitution
-人们开始接受这部宪法
+We’re here today after days and days of driving across the country
+经过几天的驾车穿越全国，我们今天来到这里
 
-and they’ve come to accept the importance of a rule of law
-他们已经开始接受法治的重要性
+And we’re here for a very specific reason
+而且我们在这里有一个非常具体的原因
 
-And I want to make another point to them
-我想对他们提出另一点
+We’re here to share the story that the mainstream media is not going to share
+我们在这里分享主流媒体不会分享的故事
 
-I want to say, look, of course people don’t agree
-我想说，看，当然人们会有不同意的时候
+We’re here to speak with these lovely people
+我们在这里与这些可爱的人交谈
 
-But we have a country that is based on human rights, democracy and so forth
-但我们有一个以人权、民主等为基础的国家
+who have come from across the country to stand up and speak up for what is right
+来自全国各地站出来为正义发声的人
 
-But I’ll tell you what Lincoln thought, what Washington thought
-但我会告诉你林肯的想法，华盛顿的想法
+they’re here and Agenda Item number one，priority number one is freedom
+他们在这里，议程项目第一，优先第一的是自由
 
-and what people today still think: it’s an experiment
-今天人们仍然认为这是一个实验
+The mainstream media is also here
+主流媒体也在这里
 
-It’s an experiment, that’s what they said
-这是一个实验，他们就是这么说的
+but no one really cares about them
+但没有人真正在乎他们
 
-And Joanna paid each of our grandchildren a certain amount of money to memorize the Gettysburg Address
-乔安娜付给我们每个孙子一定数量的钱来记住葛底斯堡演说
+because they’ve been lying about this convoy since the beginning
+因为他们从一开始就关于这个车队撒谎
 
-And the reason, the reason that what we want them to pick up there
-以及原因，我们希望他们在那里捕捉到的东西的原因
+First it was about icy roads, and then it was about white nationalism and Nazism
+首先是关于结冰的道路，然后是关于白人民族主义和纳粹主义
 
-and what I want those students to pick up
-以及我希望那些学生学习的东西
+They were lying the whole time and Canadians knew what they called their bluff
+他们一直在撒谎而且加拿大人知道他们所谓的虚张声势
 
-if I can remember the first two lines
-如果我能记得前两行
+and showed up here in the 1000s
+并有成千上万的人出现在这里
 
-is that: four score and seven years ago
-就是：87年前
+Absolutely massive numbers here today, more than the convoy of 2019
+今天这里的人数绝对的庞大，超过了2019年的车队
 
-our fathers brought created upon this, here a new country
-我们的祖先在此创造了一个新的国家
+this convoy is uniting all Canadians
+这个车队正在团结所有加拿大人
 
-a country that was dedicated to liberty
-一个致力于自由的国家
+Canadians are here to stand up to say their piece and be heard
+加拿大人在这里站出来表达他们的观点并被倾听
 
-and the proposition that all men are created equal
-以及人人生而平等的主张
+The unfortunate part is the loser that occupies this building right behind me
+不幸的是，在我身后占据这栋大楼的失败者
 
-conceived in Liberty，those are his words,
-在自由中受孕，这是他的话
+is taking a few sick days despite not being sick
+尽管没有生病，但请了几天病假
 
-and dedicated to the proposition that all men are created equal
-并致力于人人生而平等的主张
+Justin Trudeau tested negative for COVID-19 but it’s still in hiding
+贾斯汀·特鲁多的COVID-19检测呈阴性，但他仍在躲藏中
 
-he meat women too
-他认为妇女也是
+Actually today his official itinerary was released
+其实今天他的官方行程公布了
 
-and we are now engaged in a great civil war to determine
-而我们现在正在进行一场伟大的内战来决定
+And Justin Trudeau says that instead of meeting with these wonderful people here today
+贾斯汀·特鲁多说今天不会在这里与这些了不起的人会面
 
-whether that nation or any nation so conceived
-无论那个国家或任何国家是这样构想的
+he’s meeting with the Islamic lobby of Quebec
+而他正在与魁北克的伊斯兰游说团体会面
 
-and so dedicated, can long endure
-如此敬业，能长久忍耐
+He’s got his priorities, these Canadians have their own priorities
+他有他的优先事项，这些加拿大人有自己的优先事项
 
-see, those are the words I want to see “an experiment”
-看，这些是我想看到的“实验”
+Their priority here today is freedom
+他们今天在这里的首要任务是自由
 
-And that’s what he thought, it’s an experiment
-他就是这么想的，这是一个实验
+We’re gonna go speak to as many as we can, and share this story as loud as possible
+我们将与尽可能多的人交谈，并尽可能大声地分享这个故事
 
-And I found some letters that George Washington wrote where he said the same thing
-我找到了乔治-华盛顿写的一些信，他说了同样的话
+because the mainstream media won’t
+因为主流媒体不会
 
-It’s an experiment
-这是一个实验
+As I’ve been saying, throughout this whole convoy
+正如我一直在说的贯穿整个车队
 
-That experiment existed then because even the liberals in Europe
-实验之所以存在，是因为即使是欧洲的自由主义者
+please go to convoycoverage.com to see what we’ve been reporting
+请访问 convoycoverage.com 查看我们一直在报告的内容
 
-you know, they’re looking over here, and they’re saying it’s a great idea in principle
-你知道，他们看看这里发生的事情，他们说原则上是个好主意
+to see the other story that the mainstream media isn’t sharing
+看看主流媒体不去分享的另外的故事
 
-but it’ll never work
-但它永远不会有效
+the story that the mainstream media and Justin Trudeau just don’t want you to hear
+主流媒体和贾斯汀·特鲁多不想让你听到的故事
 
-But we will show them it does
-但我们会告诉他们它行得通
-
-That’s what Washington thought
-这就是华盛顿支持的
-
-And that’s what Lincoln thought
-这就是林肯支持的
-
-And that’s what people still think today
-也是今天人们仍然认可的想法
-
-And I say, well, I want you and I’m talking to the students now
-我说，好吧，我想对你们说，我现在想和学生们说
-
-I say I want you to pick just this up, it’s an experiment
-我想让你们把它继承下去, 这是一个实验
-
-That’s still going on. And I’ll tell you something
-这仍在继续， 我会告诉你一些事情
-
-you know who will see whether that experiment works
-你知道谁会看到这个实验是否有效？
-
-It’s you, my friend, it’s you, Mr. High school students
-是你，我的朋友，是你，高中生先生
-
-It’s you, Mr. College student
-是你，大学生先生
-
-it’s you, Mr. Law school students
-是你，法学院的学生先生
-
-It’s us, but it’s you
-是我们，但也是你
-
-It’s that next generation and the one after that my grandchildren and their children
-是下一代和我的孙子孙女和他们的孩子
-
-They’ll determine whether the experiment still works
-他们将确定这个自由、民主、法治的实验是否仍然有效
-
-And of course, I am an optimist, and I’m pretty sure it will
-当然，我是一个乐观主义者，我很确定它会
-
-because it surprise you that that’s the thought that comes into my mind today
-因为令你们惊讶的是，这就是我今天想到的想法
-
-I don’t know, but thank
-我不知道，但是谢谢
+Let’s go chat with some folks
+让我们去和一些人聊聊
 
 * * *
 
-Date:01/29/2022
-原视频标题: Stephen Breyer says the U.S. is “an experiment that’s still going on,” based on its Constitution and founding principles
-斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”
-原视频日期：2022/01/28
-原视频链接: **[https://twitter.com/cbsnews/status/1486760986484822022?s=24](https://twitter.com/cbsnews/status/1486760986484822022?s=24)**
-任务编号：KE375（3621）
-视频时间段 : 0:00-2:43
-英听校：洛杉矶盘古农场 – Layka
+Date:01/30/2022
+原视频标题: Thousands Canadians show up in Ottawa to support trucker for freedom
+成千上万的加拿大人出现在渥太华支持卡车司机争取自由
+原视频日期：2022/01/30
+原视频链接: [**https://twitter.com/therealkeean/status/1487517568122372109?s=24**](https://twitter.com/therealkeean/status/1487517568122372109?s=24)
+任务编号：3636
+视频时间段 : 0:00-1:53
+英听校： 洛杉矶盘古农场 – Layka
 翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

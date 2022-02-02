@@ -2,49 +2,38 @@
 ---
 
 
-## 为办冬奥 中共崇礼县政府财务崩盘
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945456/)
+## CNN首席主播称将关注报道中共“恐怖”行为
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1945485/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+#### **撰稿：彩虹**
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2.png)图片来源：Mediaite
+杰克·塔珀（Jake Tapper）是美国记者、作者和漫画家，也是CNN华盛顿的首席主播。本周，宣布，CNN将跟踪报道中共政府在本月北京2022年冬奥会期间犯下的“恐怖”行为。2月1日，新闻网站Mediaite对此作了报道。
 
+文章说，在中国共产党被广泛指控对中国最西部的新疆地区的大部分穆斯林维吾尔人犯下侵犯人权的罪行前，北京这座城市于2015年被选中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+中共对维吾尔人的待遇是有据可查的。在2021年12月宣布总统乔·拜登（Joe Biden）将不派官方代表团前往中国参加奥运会时，白宫新闻秘书珍·普萨基（Jen Psaki）就提到了“种族灭绝”。
 
+塔珀在周一主持的“The Lead with Jake Tapper”节目中宣布，他将在每期节目中用一部分时间来报道北京（当局）的暴行，这个新栏目的名称为“中共防火墙背后（Behind China’s Wall）”。
 
+他说：“在即将举行的奥运会的大肆宣传和魅力背后，有许多丑陋的真相，而中（共）国政府却希望你忽视这些真相。CNN的大卫·卡尔弗(David Culver)会介绍这些情况，当你在本周为你最喜爱的一些运动员欢呼时，习近平主席希望你忘记这些恐怖的事情。”
 
-据外国媒体31日报道，中共冬奥会还未正式开始，承办冬奥滑雪项目的张家口崇礼县已经在承受财务崩盘之苦。
+接着，CNN播出了卡尔弗预先录制的一段话，其中，卡尔弗列出了中共对新疆和台湾进行虐待或侵略的证据。
 
-据悉，崇礼县是北京冬奥赛事三大场地之一，为建设冬奥场馆，该县的财政支出比以往增加了两倍。但同时遇到了国家三条红线的房地产限令，再加上疫情的影响，房地产跌去了3成多，重创了土地销售收入。而由冬奥推动的投资热潮已在逐渐消退。该县财政官员曾透露，县财政正面临巨额资金短缺，上级政府本应退还崇礼为这些活动支付的预付款，但尚未退还。
+此外，卡尔弗还报告说，中共政府官员已经开展了大规模的行动来阻止中共病毒（COVID）的传播，并将该病毒称为“输入型威胁（imported threat）”。
 
-除财政压力外，经济整体衰退和疫情等因素对当地的就业也造成了毁灭性影响，目前还看不到有复苏的希望。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-1.jpg)
-参考信息：
-[金融時報：冬奧還沒辦 中國地方政府財務已崩盤](https://ec.ltn.com.tw/article/breakingnews/3818412)
+文章特别报道说，2021年1月19日，迈克·蓬佩奥（Mike Pompeo）在担任国务卿的最后一天说，中共国对维吾尔人的待遇等同于（纳粹）大屠杀期间对犹太人的待遇以及ISIS统治下的基督徒。当时蓬佩奧说：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+**在过去的四年里，本届政府揭露了中国共产党的本质，它是一个通过洗脑和暴力对长期受苦的中国人民行使权力的马克思列宁主义政权。我们特别关注中共对维吾尔族人的待遇……。**
 
-总编：天灭中共
-编辑：飞虹
-校对/发稿：为真不破20
+**经过对既有事实的仔细审查，我确定，至少自2017年3月以来，中华人民共和国（PRC）在中国共产党（CCP）的指挥和控制下，对新疆以穆斯林为主的维吾尔人和其他少数民族和宗教团体成员犯下了反人类罪。**
 
-**更多资讯，更多关注**
+文章最后说，蓬佩奥指责中共国对大约1200万维吾尔人实施了非法监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和非人道待遇。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新闻来源**
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Jake Tapper Announces CNN Will Focus on ‘Horrors’ Committed by China During Beijing Olympics](https://www.mediaite.com/tv/jake-tapper-announces-cnn-will-focus-on-horrors-committed-by-china-during-beijing-olympics/)
 
  
 
