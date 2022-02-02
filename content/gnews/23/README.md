@@ -2,32 +2,122 @@
 ---
 
 
-## 伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945904/)
+## 成千上万的加拿大人出现在渥太华支持卡车司机争取自由
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1945925/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown.jpg)伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言 网络图片
-据台湾中央广播电台2月1日报道，非政府组织全球伊玛目理事会去年12月30日宣布，鉴于中共国政府继续以迫害、折磨、独裁专政等手段违反中共国穆斯林的基本人权，因而“禁止参加及出席2022中共国北京冬季奥运会”。中共官媒“环球时报”1月28日发文，声称全球伊玛目理事会获得了世界维吾尔大会的资助和欺骗。
+[https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad](https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad)
 
-2月1日全球伊玛目理事会再度发布声明，驳斥“环球时报是谎言”，强调与世界维吾尔代表大会团结一致。所谓穆斯林领袖否认支持禁止参加北京冬奥声明，“也是谎言”。
+Keean Bexte’s here with the Counter Signal in Ottawa, Ontario
+基恩·贝克斯特在安大略省渥太华与《柜台信号》报道
 
-中共在新疆持续犯下种族灭绝和反人类罪。在国际压力下，中国通过外交途径，甚至运用自己控制的媒体编造、散布谎言，企图误导国际社会、分化伊斯兰世界，让外界误以为伊斯兰世界支持北京冬奥会，没有抵制。
+We’re here today after days and days of driving across the country
+经过几天的驾车穿越全国，我们今天来到这里
 
-这些手段是中共能生存下来的基本技能。如果不说谎话，中共一天都活不下去。全球越来越看清中共的本质，抵制北京冬奥会只是开始，会有越来越多针对中共的新举措。中共是人类的公敌，中共全球输出病毒和疫苗，所有人都成了中共的受害者。早早晚晚，世界会来清算中共的罪孽。北京冬奥会是中共灭亡之前的最后一场表演赛。
+And we’re here for a very specific reason
+而且我们在这里有一个非常具体的原因
 
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2123644](https://cn.rti.org.tw/news/view/id/2123644)
+We’re here to share the story that the mainstream media is not going to share
+我们在这里分享主流媒体不会分享的故事
+
+We’re here to speak with these lovely people
+我们在这里与这些可爱的人交谈
+
+who have come from across the country to stand up and speak up for what is right
+来自全国各地站出来为正义发声的人
+
+they’re here and Agenda Item number one，priority number one is freedom
+他们在这里，议程项目第一，优先第一的是自由
+
+The mainstream media is also here
+主流媒体也在这里
+
+but no one really cares about them
+但没有人真正在乎他们
+
+because they’ve been lying about this convoy since the beginning
+因为他们从一开始就关于这个车队撒谎
+
+First it was about icy roads, and then it was about white nationalism and Nazism
+首先是关于结冰的道路，然后是关于白人民族主义和纳粹主义
+
+They were lying the whole time and Canadians knew what they called their bluff
+他们一直在撒谎而且加拿大人知道他们所谓的虚张声势
+
+and showed up here in the 1000s
+并有成千上万的人出现在这里
+
+Absolutely massive numbers here today, more than the convoy of 2019
+今天这里的人数绝对的庞大，超过了2019年的车队
+
+this convoy is uniting all Canadians
+这个车队正在团结所有加拿大人
+
+Canadians are here to stand up to say their piece and be heard
+加拿大人在这里站出来表达他们的观点并被倾听
+
+The unfortunate part is the loser that occupies this building right behind me
+不幸的是，在我身后占据这栋大楼的失败者
+
+is taking a few sick days despite not being sick
+尽管没有生病，但请了几天病假
+
+Justin Trudeau tested negative for COVID-19 but it’s still in hiding
+贾斯汀·特鲁多的COVID-19检测呈阴性，但他仍在躲藏中
+
+Actually today his official itinerary was released
+其实今天他的官方行程公布了
+
+And Justin Trudeau says that instead of meeting with these wonderful people here today
+贾斯汀·特鲁多说今天不会在这里与这些了不起的人会面
+
+he’s meeting with the Islamic lobby of Quebec
+而他正在与魁北克的伊斯兰游说团体会面
+
+He’s got his priorities, these Canadians have their own priorities
+他有他的优先事项，这些加拿大人有自己的优先事项
+
+Their priority here today is freedom
+他们今天在这里的首要任务是自由
+
+We’re gonna go speak to as many as we can, and share this story as loud as possible
+我们将与尽可能多的人交谈，并尽可能大声地分享这个故事
+
+because the mainstream media won’t
+因为主流媒体不会
+
+As I’ve been saying, throughout this whole convoy
+正如我一直在说的贯穿整个车队
+
+please go to convoycoverage.com to see what we’ve been reporting
+请访问 convoycoverage.com 查看我们一直在报告的内容
+
+to see the other story that the mainstream media isn’t sharing
+看看主流媒体不去分享的另外的故事
+
+the story that the mainstream media and Justin Trudeau just don’t want you to hear
+主流媒体和贾斯汀·特鲁多不想让你听到的故事
+
+Let’s go chat with some folks
+让我们去和一些人聊聊
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:01/30/2022
+原视频标题: Thousands Canadians show up in Ottawa to support trucker for freedom
+成千上万的加拿大人出现在渥太华支持卡车司机争取自由
+原视频日期：2022/01/30
+原视频链接: [**https://twitter.com/therealkeean/status/1487517568122372109?s=24**](https://twitter.com/therealkeean/status/1487517568122372109?s=24)
+任务编号：3636
+视频时间段 : 0:00-1:53
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
