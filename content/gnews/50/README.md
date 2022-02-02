@@ -2,35 +2,37 @@
 ---
 
 
-## 中日财经爆|索罗斯警告：中共国正面临经济危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1941305/)
+## 爆料革命推动全世界反对疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941075/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-1.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fdw%2F2XBXKA9IWhBEoZBg7A7bOilqcJk%253D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20170209%2F1486622987589c110b51d99.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dwnews.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60256677%2F%25E7%25B4%25A2%25E7%25BD%2597%25E6%2596%25AF%25E6%2589%25B9%25E4%25B8%25AD%25E5%2585%25B1%25E9%25AB%2598%25E5%25B1%2582%25E6%25AD%25A3%25E6%2591%25A7%25E6%25AF%2581%25E4%25B8%258B%25E9%2587%2591%25E8%259B%258B%25E7%259A%2584%25E9%25B9%2585%25E6%258A%259B%25E5%25BC%2583%25E9%2582%2593%25E5%25B0%258F%25E5%25B9%25B3%25E9%2581%2597%25E4%25BA%25A7&amp;tbnid=cVIH96TFlxREdM&amp;vet=12ahUKEwjCzd-m_931AhWeGVkFHedUAo0QMygBegUIARCgAQ..i&amp;docid=a4PstPBaZfMTnM&amp;w=1920&amp;h=1195&amp;itg=1&amp;q=%E7%B4%A2%E7%BE%85%E6%96%AF&amp;ved=2ahUKEwjCzd-m_931AhWeGVkFHedUAo0QMygBegUIARCgAQ)
+撰稿：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在1月30日的直播中强调，爆料革命和新中国联邦，正在世界范围内，全面推动反对中共病毒疫苗强制令运动。
 
-投资名人乔治·索罗斯（GeorgeSoros）指出，中共国房地产热潮去年告终后，目前正面临经济危机，习近平可能无法重振房地产业的信心。
+郭先生说，当前全世界反疫苗运动正在如火如荼地进行，1月23日在华盛顿举行的，由数万人参加的反对强制疫苗抗议中，多达17000名医生、其中包括发明了mRNA疫苗的医生，联合签署了拒绝强制疫苗宣言。很多更重要的抗议集会仍在酝酿中。视频显示，在世界广泛推广疫苗后，2021年的癌症发生率达到百分之几百暴增，肺炎、心肌炎、心脏病和猝死率也在暴增。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-2.jpg)
+从2019年5月开始，郭先生不断向世界发出警告，中共要在香港搞遣返法，中共要在香港使用化学武器和生物武器，中共在疫情开始爆发时即已经完全失控，冠状病毒就是中共研制的生化武器且不可控，并且一定会在西方爆发。
 
-美国有线电视新闻网（CNN）报导，索罗斯1月31日在斯坦福大学胡佛研究所的演说中表示，中共国国家主席习近平可能无法重振这个陷入困境产业的信心。中共国房地产业因一连串开发商债务违约及土地和公寓价格下跌而深受打击。
+2021年2月份，郭先生又第一个告诉全世界，生化病毒并不是黑暗势力和中共的目的，用疫苗大规模杀人，才是他们险恶的用心。
 
-索罗斯说，中共国房地产热潮是基于一种“竭泽而渔”模式，这种模式让地方政府尝到好处，并鼓励人民将主要积蓄投资于房地产。
+如今，强制接种疫苗带来的危害在不断显现，在郭先生和爆料革命的不断呼吁下，世界范围内反对中共病毒强制令的运动已经势不可挡。
 
-他还表示，旨在抑制这种热潮的政府政策，让负债累累的房地产巨擘恒大集团难以偿还债务。恒大集团背负债务超过3000亿美元，恒大集团有数个月时间难以筹集现金偿还借款者。
+参考链接：[爆料革命推动全世界反对疫苗强制令](https://www.gettr.com/post/prkk7g0edb)
 
-政府官员派至恒大集团监督企业重整，不过未来会如何发展仍相当不明朗。恒大集团请求债权人给予更多时间，但部分借款者似乎不想等。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-索罗斯指出，中共政府推迟处理这个危机的时间可能太久了，因为民众的信心已受到打击。
+总编：DM
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-索罗斯去年9月表示，资产管理公司贝莱德集团（BlackRock）在中共国扩大生意规模是犯了“悲惨的错误”，他一直批评中共的监控政策及对民营企业的整顿作法。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-消息来源:
-
-#### [房地产荣景结束索罗斯警告：中共国正面临经济危机](https://tw.news.yahoo.com/%E6%88%BF%E5%9C%B0%E7%94%A2%E6%A6%AE%E6%99%AF%E7%B5%90%E6%9D%9F-%E7%B4%A2%E7%BE%85%E6%96%AF%E8%AD%A6%E5%91%8A%EF%BC%9A%E4%B8%AD%E5%9C%8B%E5%A4%A7%E9%99%B8%E6%AD%A3%E9%9D%A2%E8%87%A8%E7%B6%93%E6%BF%9F%E5%8D%B1%E6%A9%9F-060947560.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

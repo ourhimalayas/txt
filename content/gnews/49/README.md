@@ -2,75 +2,31 @@
 ---
 
 
-## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
+## 共产党在达沃斯继续勾兑，拿14亿中国人做代价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941076/)
 
-[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
+撰稿：日本东京樱花团
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-3.jpg)
+中共达沃斯论坛过去这些年的所作所为就是他们犯罪的证据。无节制过度印钞、房地产泡沫，中共以中国巨大的市场潜力为筹码，威胁、绑架世界经济，目的就是为了不让中国人起来造反，为了给自己续命，为了控制人类，为了共产党的那几个达沃斯家族在今后的十年二十年再继续奴役中国人民。
 
-**Steve Bannon
-史蒂夫·班农**
+参考链接：[共产党在达沃斯继续勾兑，拿14亿中国人做代价](https://media.discordapp.net/attachments/888691282275340318/935778857552867388/video0.mp4)
 
-the vaccine things have been rejected by every court
-每个法院都拒绝了疫苗的事情
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-every major court in the country, rejected out
-全国各大法院，都被拒之门外
+总编：DM
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-Now you’re a butcher, now we says six is always 60 to 90 days was
-现在你是个屠夫，现在我们说是60到90天
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-guess what? they’re not going to do on next Tuesday on February 1st in Austria
-你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-The mandatory vaccines is kind of getting wobbly
-强制性疫苗规定有点摇摇欲坠
 
-now people now that unvaccinated can come out of the house
-现在，未接种疫苗的人可以走出家门
-
-We’re about to see if they still gotta pay the penalty
-我们要看看他们是否还要支付罚款
-
-In England’s off, in Denmark’s off, it’s gonna be off others
-在英格兰取消了，在丹麦取消了，其他地方取消了
-
-Sweden just announced yesterday, Guess what?
-瑞典昨天刚刚宣布，你猜怎样？
-
-The research and the data and the science shows
-研究、数据和科学表明
-
-that children, you know 5-12 kids don’t have to get the vaccine
-你知道5-12岁的孩子们不必接种疫苗
-
-because the dangers of it outweigh the benefits
-因为它的危害大于好处
-
-the dangers of it outweigh the benefits
-它的危害大于好处
-
-suck on that Tony Fauci
-想想吧托尼·福奇
-
-* * *
-
-Date:01/30/2022
-原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
-史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-原视频日期：2022/01/30
-原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
-任务编号：KE377（3637）
-视频时间段 : 0:00-0:45
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

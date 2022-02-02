@@ -2,20 +2,25 @@
 ---
 
 
-## 王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1942410/)
+## COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1941816/)
 
-2022年中国中央电视台春节联欢晚会落下帷幕，无数明星齐聚舞台，卖力地为这个吃人不吐骨头的盛世涂脂抹粉。明星在舞台上熠熠生辉，但背后却是一只看不见的黑手，无形地在控制明星。
+**撰文｜疫情關注組 / 發佈時間｜01/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Simple-Electronic-Music-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+31日路透社东京报道，日本兴和制药公司对外宣布，该公司与爱知县北里大学共同研究的一份报告证实，伊维菌素具有抗新冠病毒的功效。 在第三期试验中，研究显示伊维菌素对Delta、Omicron等病毒的感染治疗有相同的效果。 伊维菌素过去被多国新闻媒体误认为「动物用」并倡导「不建议使用伊维菌素」作为治疗新冠用药，但伊维菌素有区分为人用、动物使用版本，人用伊维菌素经日本兴和制药与爱知县北里大学的实验结果证实可作为新冠治疗用药。
 
-2021年底王力宏遭到其妻李靓蕾毁灭性的千字血泪信揭发真面目，声称王力宏在每一个城市都有不同的约炮对象，一时间，中共舆论狂潮口诛笔伐，王力宏人设崩塌，逃无可逃，成为公众眼中不折不扣的渣男。这次，中共又成功地动用了其翻手为云、覆手为雨的媒体力量，将王力宏彻底抹黑，从粉丝心理将王力宏诛杀，王力宏的几家代言合作也随之取消。
+目前，日本已有数家制药公司展开临床试验，分析人士指出多家制药公司展开临床试验，代表伊维菌素在新冠病毒的应用可能很快获得日本政府的批准，并有利于控制疫情。
 
-据说，王力宏是因为得罪彭丽媛、宋祖英遭到秋后算账。2021年年底，王力宏成功碾压李云迪、吴亦凡，高居明星人气榜榜首。杀鸡儆猴，王力宏因个人私德被舆论掀翻，让整个娱乐界风声鹤唳、战战兢兢。
+此外去年开始，美国卫生研究院（NIH）便着手考虑[批准伊维菌素作为新冠治疗药物](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)。 同年9月，[外媒](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)报道印度德里都市区约97%的新冠病毒（COVID-19）病例，也使用伊维菌素得到有效治疗。
 
-2021年底几乎同时登上热搜榜榜单的明星是何韵诗。2021年12月29日，《立场》新闻前董事及前总编辑等七人以涉嫌违反“串谋发布煽动刊物罪”，被香港警察国安处高调拘捕，其中包括香港歌手何韵诗。此事瞬间引发舆论狂潮。一方面舆论对中共在香港肆无忌惮制造白色恐怖，打压香港自由，港警迅速黑化表达了强烈的愤怒和愤慨，另一方面，何韵诗再一次走入人们的视线，成为舆论关注的焦点。人们对何韵诗的各种赞美铺天盖地，更有无数人用行动表达了对何韵诗的支持和敬佩。
+- 相关：[COVID-19 最新情报|以色列疫苗覆盖率逾7成 确诊仍持续创新高](https://gnews.org/zh-hant/1902573/)
 
-作者：华盛顿DC农场 海阔天空
 
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
+有关于新冠治疗药物，日首相岸田文雄曾宣布经与辉瑞公司达成基本协议，确保200万剂量的新冠口服药物供给，且正在考虑用公费支付新冠口服药物的相关费用，然[郭文贵曾爆料称新冠口服药副作用极强](https://gnews.org/zh-hant/1770349/)。
+
+* * *
+
+来源｜[路透社](https://jp.reuters.com/article/kowa-ivermectin-idJPKBN2K50B7)、[NIH](https://www.covid19treatmentguidelines.nih.gov/tables/antiviral-characteristics/)、[100percentfedup](https://100percentfedup.com/report-ivermectin-obliterated-97-of-covid-cases-in-delhi-india/)
 
  
 
