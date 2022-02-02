@@ -2,8 +2,8 @@
 ---
 
 
-## 以歌灭共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945124/)
+## 全球农场
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1945129/)
 
 发布：奇门遁甲
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 8:01 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: Our NFSC’s scientists are working on a low-cost artemisinin cocktail therapy to save humanity from the CCP virus and vaccine disaster.<br/><br/>1/31/2022 文贵虎年新春大直播：我们新中国联邦的科学家正在研究一种低成本的青蒿素鸡尾酒疗法，以拯救人类免受中共病毒和疫苗灾难的影响。<br/>
+![img](https://media.gettr.com/group32/getter/2022/02/02/08/2f5781f7-c51b-b855-a9ab-60cf49444bf0/out.jpg)
+
+---
+
 `@miles 2/2/2022 6:24 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: We have made the CCP so terrified, seeing us as their biggest enemy. The influence of the NFSC has spread around the world.<br/><br/>1/31/2022 文贵虎年新春大直播：我们令中共如临大敌，新中国联邦的影响力已经传遍世界。<br/>
@@ -151,13 +158,6 @@
 
 1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
 ![img](https://media.gettr.com/group36/getter/2022/02/01/02/b03df35a-43a6-2692-96cf-b65e84147455/d61821c6bea22a3d3d511a8416b0fd22.jpg)
-
----
-
-`@miles 2/1/2022 2:45 AM (UTC)`
-
-1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
-![img](https://media.gettr.com/group21/getter/2022/02/01/02/6d50107f-63e5-6da7-870b-57ad12d8ad04/027f528427f7b9c01e56cb593f6f5b5d.jpg)
 
 ---
 

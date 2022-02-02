@@ -15,116 +15,116 @@
 
 ---
 
-### [川普结束的时候亡腚缸已做好背叛爆料革命出卖战友准备](/content/gnews/1/README.md)
+### [中国人要从活得象猪狗变成有尊严有价值有信仰自由的人](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [每日快报：FBI局长表示，中共国政府对西方的威胁更加无耻](/content/gnews/2/README.md)
+### [新中国联邦的系统让战友从零到有，从少到多再变成更多](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [世界需要新中国联邦](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [斯蒂芬·布雷耶说，基于其宪法和建国原则, 美国是“仍在进行中的一个实验”](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [抗议者聚集美加边境支持卡车司机反对强制新冠疫苗规定](/content/gnews/5/README.md)
+ ` GTV News Talk`
+
+### [大觉醒的西方精英和正义人士真不少,中国却只有一个七哥](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [这个世界很疯狂](/content/gnews/7/README.md)
+ ` GTV News Talk`
+
+### [川普结束的时候亡腚缸已做好背叛爆料革命出卖战友准备](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [每日快报：FBI局长表示，中共国政府对西方的威胁更加无耻](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [胆小懦弱的路德在别人强奸他老婆和女儿时百分之百会跑](/content/gnews/3/README.md)
+### [七哥谈东北和鹤岗破产（五）](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [胆小懦弱的路德在别人强奸他老婆和女儿时百分之百会跑](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳洲传奇音乐制作人惠特利：感染新冠去世，其已接种疫苗](/content/gnews/4/README.md)
+### [澳洲传奇音乐制作人惠特利：感染新冠去世，其已接种疫苗](/content/gnews/12/README.md)
  ` 走进澳洲`
 
-### [疫苗灾难和经济危机双重打击下的加拿大最终将迅速解决](/content/gnews/5/README.md)
+### [疫苗灾难和经济危机双重打击下的加拿大最终将迅速解决](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [那一年为何嫁给了共产党](/content/gnews/6/README.md)
+### [那一年为何嫁给了共产党](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [数字银行股份的获得源起于献奉、坚持、灭共和唯真不破](/content/gnews/7/README.md)
+### [数字银行股份的获得源起于献奉、坚持、灭共和唯真不破](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [几百号投资银行的战友们一分钱没动取得银行51%的49%](/content/gnews/8/README.md)
+### [几百号投资银行的战友们一分钱没动取得银行51%的49%](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [一人一票的选举制度才有未来](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [币圈新闻动态：HPay今日正式登陆AppleStore和PlayStore](/content/gnews/10/README.md)
+### [币圈新闻动态：HPay今日正式登陆AppleStore和PlayStore](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [共产党的独裁政治制度没有明天](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [喜币从账户间转账到商家接受到整个支付系统与保险挂钩](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中国人一出生就需要7.4年不吃不喝还债！](/content/gnews/13/README.md)
- ` 温哥华扬帆农场`
-
-### [習已經沒有回頭路](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [美元最终出问题以后世界上的数字货币将成为最大的赢家](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [邓本來要拿下江，改革开放是习仲勋的功劳](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [我爱你，灭共的雪](/content/gnews/17/README.md)
+### [我爱你，灭共的雪](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [辉瑞制口服药“Paxlovid”10日将由专家审议是否使用](/content/gnews/18/README.md)
+### [辉瑞制口服药“Paxlovid”10日将由专家审议是否使用](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈东北和鹤岗破产（四）](/content/gnews/19/README.md)
+### [七哥谈东北和鹤岗破产（四）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [CNN首席主播称将关注报道中共“恐怖”行为](/content/gnews/20/README.md)
+### [CNN首席主播称将关注报道中共“恐怖”行为](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本通过临床试验确定伊维菌素对治疗新冠肺炎的有效](/content/gnews/21/README.md)
+### [日本通过临床试验确定伊维菌素对治疗新冠肺炎的有效](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为办冬奥 中共崇礼县政府财务崩盘](/content/gnews/22/README.md)
+### [为办冬奥 中共崇礼县政府财务崩盘](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [CECC主席致函国务卿对遣返中共国进行外交干预](/content/gnews/23/README.md)
+### [CECC主席致函国务卿对遣返中共国进行外交干预](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳联储不得已开启货币紧缩政策](/content/gnews/24/README.md)
+### [澳联储不得已开启货币紧缩政策](/content/gnews/25/README.md)
  ` 走进澳洲`
 
-### [共和党参议员敦促拜登政府加紧对中芯的出口管制](/content/gnews/25/README.md)
+### [共和党参议员敦促拜登政府加紧对中芯的出口管制](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [金融巨鳄索罗斯预测 习近平连任无望](/content/gnews/26/README.md)
+### [金融巨鳄索罗斯预测 习近平连任无望](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/27/README.md)
+### [FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [战争恐成为政客逃避疫苗追责的借口](/content/gnews/28/README.md)
+### [战争恐成为政客逃避疫苗追责的借口](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/29/README.md)
+### [乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [日本国会人权决议表述含糊 被批“很可耻”](/content/gnews/30/README.md)
+### [日本国会人权决议表述含糊 被批“很可耻”](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [安然模式的疫苗骗局？——大药企正面临来自保险业的战争](/content/gnews/31/README.md)
+### [安然模式的疫苗骗局？——大药企正面临来自保险业的战争](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [雅典娜时报-第192期](/content/gnews/32/README.md)
+### [雅典娜时报-第192期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球农场](/content/gnews/33/README.md)
+### [全球农场](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [以歌灭共](/content/gnews/34/README.md)
+### [以歌灭共](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [回顾G系列](/content/gnews/35/README.md)
+### [回顾G系列](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [香草山农场祝大家新年快乐](/content/gnews/36/README.md)
+### [香草山农场祝大家新年快乐](/content/gnews/37/README.md)
  ` MOSREC`
-
-### [郭文贵绝唱-谁与七哥共同来灭共，打碎那千年的牢笼](/content/gnews/37/README.md)
- ` cindy`
 
 ### [日本国会通过关于中国人权状况的决议](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
