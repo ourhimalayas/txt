@@ -114,83 +114,83 @@
 ### [安然模式的疫苗骗局？——大药企正面临来自保险业的战争](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [全球农场](/content/gnews/34/README.md)
+### [雅典娜时报-第192期](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球农场](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [以歌灭共](/content/gnews/35/README.md)
+### [以歌灭共](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [回顾G系列](/content/gnews/36/README.md)
+### [回顾G系列](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [香草山农场祝大家新年快乐](/content/gnews/37/README.md)
+### [香草山农场祝大家新年快乐](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [日本国会通过关于中国人权状况的决议](/content/gnews/38/README.md)
+### [日本国会通过关于中国人权状况的决议](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/39/README.md)
+### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/40/README.md)
  ` YALUN 亚伦`
 
-### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/40/README.md)
+### [2022年壬寅年新春大直播：七哥在清丰看守所时就开始设计灭共的计划](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
 
-### [丹麦作出重大外交和安全政策调整，民主价值观排首位](/content/gnews/41/README.md)
+### [丹麦作出重大外交和安全政策调整，民主价值观排首位](/content/gnews/42/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）](/content/gnews/42/README.md)
+### [美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [通货膨胀的政治力量](/content/gnews/43/README.md)
+### [通货膨胀的政治力量](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/44/README.md)
+### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/45/README.md)
+### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/46/README.md)
  ` mary202064`
 
-### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/46/README.md)
+### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/47/README.md)
  ` 纽约香草山MOS03`
 
-### [注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪](/content/gnews/47/README.md)
+### [注意：面对美国撤馆或病毒溯源，中共军事《西陆网》借杭州疫情，甩锅美企，煽动民族情绪](/content/gnews/48/README.md)
  ` 秘密翻译组-原创组`
 
-### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/48/README.md)
+### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/49/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/49/README.md)
+### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/50/README.md)
  ` 關注組`
 
-### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/50/README.md)
+### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/51/README.md)
  ` 關注組`
 
-### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/51/README.md)
+### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/52/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/52/README.md)
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/53/README.md)
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/54/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/55/README.md)
+### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/56/README.md)
+### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [追一朵云](/content/gnews/57/README.md)
+### [追一朵云](/content/gnews/58/README.md)
  ` 骄子`
 
-### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/58/README.md)
+### [冬奥会媒体中心餐厅因中共机器人“罢工”，被饿的头晕眼花](/content/gnews/59/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【Michael.Tonny专栏】新南威尔士州数据说明COVID-19疫苗带来严重灾难（下）](/content/gnews/59/README.md)
- ` 温哥华扬帆农场`
 
 ### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/60/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
