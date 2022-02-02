@@ -2,22 +2,28 @@
 ---
 
 
-## 小特朗普鼓励卡车司机：“坚持到底，为你们而感到骄傲!”
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1943712/)
+## GTV新闻访谈简报|2022年2月1日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1943758/)
 
-#### 加拿大温哥华扬帆农场 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
 
-素材：文倩
-翻译：文倩
-字幕：路仁
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-在加拿大集结了一个由卡车和挂车组成的长达70公里的车队。当我们团结起来，联合起来，共同反抗（政府的）疯狂（政策）时，我们就能赢，这就是这一切的结局。这是一个天才的想法。我们需要在美国更多地看到同样的场景。
+视频参看：[2022.02.01早GTV新闻访谈](https://gtv.org/video/id=61f9353296ba5d73e0c0de5b)
 
-不仅在加拿大、新西兰、澳大利亚等这些被称为或至少被认为是自由的国家，我们需要在更多国家看到（类似抗争活动）。自由(在这些所谓民主国家）不断被侵蚀。这些国家（的政策）绝对是疯狂的。对所有未接种疫苗的成年人征税。数百万人被命令待在家里。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-让我们支持这些为自由而战的卡车司机，无论是对他们的祖国还是对美国来说，他们都是爱国者。但我们需要更多愿意站出来反抗的人们。让我们告诉（那些政客），我们受够了他们的废话。请关注正在发生的这一切。请关注这只70公里长的车队，这实在是太棒了！他们想封锁首都渥太华，直到他们的国家恢复自由。你们太棒了！坚持到底！（我们）为你们感到骄傲！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-1.jpeg)
 
-编辑/发文：Kent
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
