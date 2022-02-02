@@ -2,10 +2,10 @@
 ---
 
 
-## 大科技公司像一个法西斯政府，他们在参与构建世界
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1947055/)
+## 郭文贵先生：新中国联邦的影响力已经传遍世界
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1947082/)
 
-01/30/2022 杰森·米勒提出警告称大科技公司在参与构建世界，没到失去的那一刻，人们是不会意识到言论自由是多么的宝贵。
+1/31/2022 文贵虎年新春大直播：我们令中共如临大敌，新中国联邦的影响力已经传遍世界。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
