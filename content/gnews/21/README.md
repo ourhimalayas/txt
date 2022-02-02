@@ -2,25 +2,31 @@
 ---
 
 
-## 七哥谈东北和鹤岗破产（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945776/)
+## 郭文贵先生直播警示 西方政府不惜发动战争
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1945852/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥谈东北和鹤岗破产5.jpg)
-咱们这个财政局的战友他说什么？七哥我们绝大多数认为这个病毒跟黑龙没关系，鹤岗破产有党有国家呢也没关系。大家怎么看？咱走着看，兄弟姐妹到明年5月份以后，你看看东北还有多少地方县市破产，你看看党管不管你，你看看你有没有机会杀老鼠（吃）？你还有没有机会吃狗肉？你吃那么多狗肉，现在就让你连吃老鼠肉的机会都没！
-停止杀掠吧停止无知，做个像人的样子，你不是猪你是人！
-这个就是现在看到这些疫苗（灾难）的时候，一切都是政治跟疫苗半点球关系没有。就是让你待在家里，就是让你知道只要你不死，就是我党给你的恩情，爹亲娘亲不如党亲，党让我没死，那党就是（比）爹娘爷爷还亲！但是你去想想不相信风水的习近平，人家花4000亩盖了那么大个坟地，你们家坟地你能干那儿去吗？他不信神他能盖那儿去吗？他能把他家坟盖在南京大屠杀那地方去吗？你问问他去嘛，他去哪都不去（那里），（因为）那地方非常不好风水。
+撰稿：纽约香草山农场 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1.png)
+1月30日郭文贵先生直播消息透露：据欧洲某人士情报来源得知，当美加日国家得出疫苗真相及评估后果时，法英德西意政府领导人，会跟进局势将不惜发动战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-97.png)
+郭先生讲到，美国林肯纪念中心白宫正面街区，聚集着大量抗议人群，举行反对政府疫苗政策活动。美国人民高呼‘这是一场人类大屠杀，这是社交媒体大封杀。 mRNA疫苗是让人类死亡，一场大屠杀的医学灾难。
 
-2022年1月12日大直播
+疫苗灾难改变了世界的军事，政治，经济格局。西方强推疫苗政策的国家领导人，面临人民觉醒的反抗政府运动，为保个人政治前途逃脱问责审判，将不惜用发动战争来转移国内矛盾。
 
-发布：星谕
+新闻来源：[1/30/2022 文贵直播：全世界强推毒疫苗的政客都没有好下场](https://gettr.com/post/prllap428e)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-2.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1.png)
+
 
  
 
