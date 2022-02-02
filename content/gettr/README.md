@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 12:18 AM (UTC)`
+
+2/1/2022 Miles Guo’s GETTR: The fellow fighters who joined the grand live broadcast yesterday and the three songs I sang have shocked all walks of lives in China, and people have seen the hope of China. The “Tian Mi Mi Movement” will be a peaceful political and cultural movement featuring high technology, spirits, faiths, religions, and media communication.<br/><br/>2/1/2022 文贵盖特：昨天大直播屏幕上的战友们和三首歌震撼了国内各界人士，大家看到了中国的希望，“甜蜜蜜运动”将是一场高科技和精神、信仰、宗教及媒体传播的和平政治文化运动<br/>
+![img](https://media.gettr.com/group15/getter/2022/02/02/00/f597a34b-3ac1-8760-b32d-79dfb7c94a1a/out.jpg)
+
+---
+
 `@miles 2/2/2022 12:03 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Mr. Miles Guo proposed a new “7 Principles”for 2022 on the live broadcast of the Chinese New Year of the Tiger, to share with all the fellow fighters of New Federal State of China <br/><br/>1/31/2022 文贵虎年新春大直播：郭文贵先生于虎年春节大直播上提出了2022年新“郭七条”，与新中国联邦战友们共勉
@@ -153,13 +160,6 @@
 
 Limited Edition Exclusive Release for Chinese New Year.                                            Today at 5 pm ET at gfashion.com
 ![img](https://media.gettr.com/group34/getter/2022/01/31/17/5e4e1872-c06e-9878-bfa4-2a9ed6fe15c8/5763bed0fb65a345b5b4b8522cdf6544.jpg)
-
----
-
-`@miles 1/31/2022 6:52 PM (UTC)`
-
-灭共的雪<br/><br/>演唱： Miles Guo<br/>改编： 威廉王 唐平<br/>编曲： SFG<br/>视频： 塔奇克马
-![img](https://media.gettr.com/group46/getter/2022/01/31/18/0a0ec0ec-90b6-e396-691f-ecbd0c83792b/out.jpg)
 
 ---
 
