@@ -2,8 +2,8 @@
 ---
 
 
-## 中共里每个人都会完蛋
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945989/)
+## 中共对民主小国家的渗透和控制
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945995/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

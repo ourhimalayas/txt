@@ -2,20 +2,29 @@
 ---
 
 
-## 世卫组织：在 Covid 上取得胜利还为时过早
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1945952/)
+## 普京警告西方不要忽视俄罗斯的基本关切
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1945990/)
 
-翻译、整理：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02022.jpg)图片来自Adnkronos
-世卫组织首席执行官谭德塞在日内瓦的例行简报中表示：“任何国家在 Covid 上宣布胜利都为时过早”。
+新闻来源：德国世界报
 
-同时还指出，自 Omicron 被发现以来，在大约 10 周前已记录了大约 9000 万例病例，比 2020 年还要多。死亡人数在很大一部分地区出现令人担忧的增加。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-目前正在追踪 Omicron 的四个子变种，包括 Ba.2。这种病毒很危险，而且还在继续进化，并且随着这种病毒的进化，变体可能会继续逃避疫苗针对先前变体的中和抗体。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0041.jpg)
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/2022/02/01/oms-prematuro-dichiarare-vittoria-al-covid\_558e734f-f1f3-4f5e-92aa-921f3f0dc290.html](https://www.ansa.it/sito/notizie/mondo/2022/02/01/oms-prematuro-dichiarare-vittoria-al-covid_558e734f-f1f3-4f5e-92aa-921f3f0dc290.html)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+资料来源：视频截图
+
+在与匈牙利总理维克托·欧尔班会谈后，俄罗斯总统弗拉基米尔·普京六周来首次就乌克兰冲突发表讲话。他重申了众所周知的立场——并警告说，如果乌克兰加入北约，欧洲将面临战争风险。
+
+在关于乌克兰冲突的第一份声明中，俄罗斯总统弗拉基米尔·普京近六周来重申了他的立场。 “很明显，俄罗斯的基本关切被忽视了，”普京周二在莫斯科与匈牙利总理维克托·奥尔班会面五个小时后告诉记者。
+
+普京警告说，如果乌克兰加入北约，欧洲将面临战争危险。在他看来，乌克兰希望在必要时以武力夺回克里米亚黑海半岛。俄罗斯于 2014 年吞并克里米亚，并断然拒绝有关其回归的谈判。在这方面，普京警告说，军事集团和北约之间可能就克里米亚发生武装冲突。
+
+周二，普京批评了俄罗斯对“安全保证”要求的消极态度。但是，将审查美国和北约的书面答复。 “我希望我们最终能找到解决方案。即使这并不容易。”克里姆林宫负责人说。他还呼吁北约撤回其 1997 年的阵地，并避免在俄罗斯边境附近部署导弹系统。
+
+🔗[普京警告西方不要忽视俄罗斯的基本关切](https://www.welt.de/politik/ausland/article236630681/Putin-warnt-vor-Kriegsgefahr-in-Europa-bei-Nato-Mitgliedschaft-der-Ukraine.html)
+
+责任编辑/发布： Shuizhuyu
 
  
 

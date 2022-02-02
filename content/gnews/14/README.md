@@ -2,122 +2,37 @@
 ---
 
 
-## 成千上万的加拿大人出现在渥太华支持卡车司机争取自由
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1945925/)
+## 随着与西方关系恶化，普京和习近平的关系越来越近
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1945950/)
 
-[https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad](https://gtv.org/video/id=61f9baf4d90bdd2085a3b7ad)
+新闻来源：CNN
 
-Keean Bexte’s here with the Counter Signal in Ottawa, Ontario
-基恩·贝克斯特在安大略省渥太华与《柜台信号》报道
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-We’re here today after days and days of driving across the country
-经过几天的驾车穿越全国，我们今天来到这里
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/220202012552-xi-putin-2019-file-restricted-exlarge-169.jpg)
 
-And we’re here for a very specific reason
-而且我们在这里有一个非常具体的原因
 
-We’re here to share the story that the mainstream media is not going to share
-我们在这里分享主流媒体不会分享的故事
+资料来源：CNN
 
-We’re here to speak with these lovely people
-我们在这里与这些可爱的人交谈
+2月4日，中国国家主席习近平在北京奥运会开幕式上欢迎世界各国领导人，这将是他400多天以来第一次与外国领导人面对面。而在他的宾客名单中，位居榜首的是俄罗斯的弗拉基米尔·普京(Vladimir Putin)。
 
-who have come from across the country to stand up and speak up for what is right
-来自全国各地站出来为正义发声的人
+预计将在开幕式当天举行的两位领导人峰会正值双方的关键时刻，因为俄罗斯军队在乌克兰边境集结加剧了人们对即将到来的入侵的担忧——这一事件肯定会盖过中国的奥运时刻。
 
-they’re here and Agenda Item number one，priority number one is freedom
-他们在这里，议程项目第一，优先第一的是自由
+随着北京和莫斯科与西方的关系恶化，面对面的交流也将为北京和莫斯科之间日益密切的伙伴关系增添一个新的里程碑。
 
-The mainstream media is also here
-主流媒体也在这里
+普京是参加奥运会的少数世界领导人之一，包括美国、英国和澳大利亚在内的西方政府已宣布对中国的人权记录进行外交抵制。其他领导人以北京严格的 Covid-19 控制为由拒绝了邀请。
 
-but no one really cares about them
-但没有人真正在乎他们
+这意味着北京 2022 将与该市 2008 年夏季奥运会形成鲜明对比，当时的美国总统乔治·布什和其他西方领导人被拍到在为他们的国家队欢呼时乐于助人的中国官员。
 
-because they’ve been lying about this convoy since the beginning
-因为他们从一开始就关于这个车队撒谎
+取而代之的是，本届奥运会将突出中国和西方在其间出现的空间，而此次峰会——以及普京在中国外交部公布的来访贵宾名单中排名第一——指出了两国之间的密切关系。两个强权国家的紧密关系。
 
-First it was about icy roads, and then it was about white nationalism and Nazism
-首先是关于结冰的道路，然后是关于白人民族主义和纳粹主义
+西方许多人现在提出的问题是，这些奥运会是否会重演北京上一次举办奥运会时发生的事情，当时俄罗斯入侵了另一个前苏联国家克里米亚。随着乌克兰边境的紧张局势继续加剧，所有的目光都将集中在普京身上。
 
-They were lying the whole time and Canadians knew what they called their bluff
-他们一直在撒谎而且加拿大人知道他们所谓的虚张声势
+🔗 [普京和习近平的关系越来越近](https://edition.cnn.com/2022/02/02/asia/china-russia-olympics-opening-ceremony-meeting-ukraine-intl-hnk-mic/index.html)
 
-and showed up here in the 1000s
-并有成千上万的人出现在这里
+责任编辑/发布： Shuizhuyu
 
-Absolutely massive numbers here today, more than the convoy of 2019
-今天这里的人数绝对的庞大，超过了2019年的车队
 
-this convoy is uniting all Canadians
-这个车队正在团结所有加拿大人
-
-Canadians are here to stand up to say their piece and be heard
-加拿大人在这里站出来表达他们的观点并被倾听
-
-The unfortunate part is the loser that occupies this building right behind me
-不幸的是，在我身后占据这栋大楼的失败者
-
-is taking a few sick days despite not being sick
-尽管没有生病，但请了几天病假
-
-Justin Trudeau tested negative for COVID-19 but it’s still in hiding
-贾斯汀·特鲁多的COVID-19检测呈阴性，但他仍在躲藏中
-
-Actually today his official itinerary was released
-其实今天他的官方行程公布了
-
-And Justin Trudeau says that instead of meeting with these wonderful people here today
-贾斯汀·特鲁多说今天不会在这里与这些了不起的人会面
-
-he’s meeting with the Islamic lobby of Quebec
-而他正在与魁北克的伊斯兰游说团体会面
-
-He’s got his priorities, these Canadians have their own priorities
-他有他的优先事项，这些加拿大人有自己的优先事项
-
-Their priority here today is freedom
-他们今天在这里的首要任务是自由
-
-We’re gonna go speak to as many as we can, and share this story as loud as possible
-我们将与尽可能多的人交谈，并尽可能大声地分享这个故事
-
-because the mainstream media won’t
-因为主流媒体不会
-
-As I’ve been saying, throughout this whole convoy
-正如我一直在说的贯穿整个车队
-
-please go to convoycoverage.com to see what we’ve been reporting
-请访问 convoycoverage.com 查看我们一直在报告的内容
-
-to see the other story that the mainstream media isn’t sharing
-看看主流媒体不去分享的另外的故事
-
-the story that the mainstream media and Justin Trudeau just don’t want you to hear
-主流媒体和贾斯汀·特鲁多不想让你听到的故事
-
-Let’s go chat with some folks
-让我们去和一些人聊聊
-
-* * *
-
-Date:01/30/2022
-原视频标题: Thousands Canadians show up in Ottawa to support trucker for freedom
-成千上万的加拿大人出现在渥太华支持卡车司机争取自由
-原视频日期：2022/01/30
-原视频链接: [**https://twitter.com/therealkeean/status/1487517568122372109?s=24**](https://twitter.com/therealkeean/status/1487517568122372109?s=24)
-任务编号：3636
-视频时间段 : 0:00-1:53
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 文新
-审片：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
