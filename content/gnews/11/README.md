@@ -2,16 +2,24 @@
 ---
 
 
-## 「金融巨鳄」索罗斯另类观察：习近平恐无法连任第3任
-` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/1946104/)
+## 郭文贵盖特音频2022.02.01
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1946154/)
 
-[撰稿日期]：2022.02.01
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/out-4.jpg)
+### 视频链接:
 
-[署名]：台湾宝岛农场dobi
+[https://www.gettr.com/post/prt6yo3915](https://www.gettr.com/post/prt6yo3915)
 
-[新闻连接]： 《https://udn.com/news/story/6811/6073468?from=udn-catebreaknews\_ch2》
+### 音频链接：
 
-据外媒报导，「金融巨鳄」索罗斯（George Soros)昨天在史丹福大学发表谈话时指出：中共国家主席习近平面临成效不佳的中共疫苗、国内房地产危机以及出生率下滑等问题，加上党内暗潮汹涌，有很强的反习近平力量等不利因素，认为习今年也许无法顺利连任第三任中共总书记。
+
+
+
+
+编辑发布：闪电训练
+
+
 
  
 
