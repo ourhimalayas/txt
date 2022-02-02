@@ -2,16 +2,12 @@
 ---
 
 
-## 中共春晚 全民洗脑
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1946581/)
+## 川普总统致加拿大卡车司机：我们一直与你们同在
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946750/)
 
-文贵大直播20220202
+01/29/2022 川普总统: 我们希望那些伟大的加拿大卡车司机知道，我们一直与他们同在。
 
-撰稿：待命（文晓）（樱花）
-
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,23 +2,42 @@
 ---
 
 
-## 中日财经爆┃日本五大银行净利润略微增长
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1946502/)
+## 魁北克省媒：周三住院人数将“急剧”下降，暗示出台新措施
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1946580/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mtxx01.png)
-[*图片来源*](https://truth.bahamut.com.tw/s01/202201/8e4f5d96807ae46421570bf2027c1221.JPG)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-4.png)
+图片来源：TVA NOUVELLES（2022 年 2 月 1 日）
 
-三菱日联金融集团等五大银行2日完成2021年4-12月合并财务报表，所有集团净利润同比都有所增长，其主要原因是企业盈利的恢复，因而为应对借方经营恶化而积累的“信贷相关费用”大幅减少。
+#### 在魁北克，与 COVID-19 相关的住院人数急剧下降
 
-五个集团的信贷费用总额为3500亿日元，比前一年超过7000亿日元的总额减少了一半。根据东京商工研究，2021年企业破产（债务在1000万日元或以上）的数量是57年来的最低值。政府的财政支持一定程度上抑制了破产，从而巩固了各家银行的经营业绩。
+TVA NOUVELLES（菲利克斯·塞甘Félix Séguin  2022 年 2 月 1 日晚上 7:09）发表一篇题为《周三住院人数将“急剧”下降》的文章报道，根据魁北克政府将于周三（2022 年 2 月 2 日）公布的报告，魁北克医院的（住院）患者减少 122 人。
 
-羊毛出在羊身上，靠政府补贴维持各公司运营的操作方式又能坚持多久？！日本政府这种左手倒右手、掩耳盗铃的做法应该也快黔驴技穷了。
+（周三，2022 年 2 月 2 日）还将宣布：
 
-信息来源：[**大手銀、全5グループが増益  取引先企業の業績回復**](https://news.yahoo.co.jp/articles/64c8fbbd2fe5a51d7ac43a2bdb97379f7a00c48c)
+- （与 COVID-19 相关的）52 人死亡。
+- PCR检测确诊病例3840例。
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
+这些数字与魁北克政府宣布的报告（将于周三，2022 年 2 月 2 日，公布的报告）可能略有不同。
+
+自从疫情爆发到现在两年多的时间以来，在魁北克主流媒体上很少有几次出现“住院人数下降”的报道，特别是描述为“急剧”下降的报道，这暗示魁北克政府将要出台新的与 COVID-19 相关的措施。
+
+**参考资料**：
+
+1. TVA NOUVELLES，菲利克斯·塞甘Félix Séguin，  2022 年 2 月 1 日晚上 7:09，Vers une forte baisse des hospitalisations mercredi，[https://www.tvanouvelles.ca/2022/02/01/vers-une-forte-baisse-des-hospitalisations-mercredi](https://www.tvanouvelles.ca/2022/02/01/vers-une-forte-baisse-des-hospitalisations-mercredi)
+
+
+编辑：LILY
+
+发布：面包飞上天
+
+20220202
+
+
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

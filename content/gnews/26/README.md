@@ -2,23 +2,15 @@
 ---
 
 
-## 《历史上的今天》2022.02.02
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1946525/)
+## 中共冬奥周边及北方地区经济破产状况
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1946594/)
 
-作者：虎子哥
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1.jpeg)
-1. 1913年：纽约中央火车站启用。
-2. 1920年：爱沙尼亚同苏联签订和约并宣布独立。
-3. 1943年：斯大林格勒城里的德军向苏军投降，九万多名纳粹德国士兵成为战俘，斯大林格勒战役结束。
-4. 1960年：中国山西发生严重食物中毒事件，61位农民工食物中毒。
-5. 1967年：美国篮球协会（ABA）宣布成立。
-6. 1971年：《湿地公约》（又称《拉姆萨尔公约》）在伊朗拉姆萨尔签署。
-7. 2004年：瑞士网球选手罗杰•费德勒成为ATP世界排名第一男子单打选手，之后以连续237周的保持成绩打破了过往纪录。
-8. 2009年：津巴布韦储备银行第三度对津巴布韦元给予货币贬值，使得新制度的1津巴布韦元相当于过去1兆津巴布韦元。
+文贵大直播20220202
 
+撰稿：北评2025（英喜）
 
-* * *
-
+美工：凌点夜话（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片10.jpg)
 *发布：Theodosia*
 
  
