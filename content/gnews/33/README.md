@@ -2,37 +2,23 @@
 ---
 
 
-## 新中国联邦新闻英文节目完美首播
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947197/)
+## 2022.2.2大直播 新中国联邦用音乐、用真实、用行动唤醒国人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1947232/)
 
-作者：纽约香草山教育部- Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
+撰稿：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot1.jpg)
+郭文贵先生在2022年2月2日大直播中，提到了新中国联邦春晚上宋祖英被郝海东爆料的事一夜之间墙内尽人皆知，郭先生追问为什么郑州水灾，武汉病毒，杨佳杀警这些事无人提及，而一个明星的传闻却被全国人关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-2.jpeg)
+郭先生指出这就是CCTV春晚最大的祸害，中共利用春晚掩盖真相，粉饰太平，全民洗脑。是中共这个体制决定了CCTV春晚的性质，让春晚成为中共的政治风向标，成为中共掌权者的勾兑工具。
 
-据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
+郭先生提到，国外通过对CCTV春节联欢晚会的调查发现中国人的宗教、节日、活动，所有的一切都是被国家和政府部门控制安排，中国人完全已经失去了辨别能力。
 
-新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
+郭先生指出,CCTV春晚是精神毒药，毒害了几代中国人，它除了给人们洗脑之外，最可怕的是扼杀人们对政治、对知识、对世界的认知，浪费人们的生命。
 
-另一方面，英文节目的推出将为新中国联邦获取更大的话语权和来自国际社会的承认，也为我们更多地增加国际影响力迈出了成功的一步。
+郭先生强调，爆料革命就利用了共产党几十年洗脑的这一做法，创办了新中国联邦春晚。2022年新中国联邦春晚取得了巨大的成功，国内观看超过2.5亿次，重播率高达50-60%。新中国联邦今天用音乐的力量，用真实的力量，用行动的力量唤醒了人们。
 
-参考链接：
-[Watch 全球喜马拉雅农场联盟委员会 live on GETTR2022.02.01 NFSC News](https://gettr.com/post/prvwxq7573)
+郭先生认为共产党真的是完了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,75 +2,58 @@
 ---
 
 
-## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
+## 土共国堕落、邪恶、冷漠世道的冰山一角
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1942358/)
 
-[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
+作者：香草山文艺部-猪逻辑
 
-**Steve Bannon
-史蒂夫·班农**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-33.jpg)
 
-the vaccine things have been rejected by every court
-每个法院都拒绝了疫苗的事情
 
-every major court in the country, rejected out
-全国各大法院，都被拒之门外
 
-Now you’re a butcher, now we says six is always 60 to 90 days was
-现在你是个屠夫，现在我们说是60到90天
+时逢北京国际冬奥会临际，一位微博上的视频报道令我的心情久久无法平静。
 
-guess what? they’re not going to do on next Tuesday on February 1st in Austria
-你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
+一位妇女被拐卖被折磨20多年，在穷乡僻壤里被沦落为生育工具，带着铁镣已然变得精神恍惚，“这个世界不要我了”。难以想象该妇女从未成年时期被拐卖，到如今37、38岁左右所经受的精神、心灵和肉体、生理上的折磨，度日如年的噩梦，被迫怀孕成为8个孩子的母亲。
 
-The mandatory vaccines is kind of getting wobbly
-强制性疫苗规定有点摇摇欲坠
+![](https://assets.gnews.org/wp-content/uploads/2022/02/28ed49a6cf064e3a8af724097a310d38.jpeg)Created with GIMP
 
-now people now that unvaccinated can come out of the house
-现在，未接种疫苗的人可以走出家门
+我有理由相信这是真的，因为这是中共统治下无数百姓苦海里再真实不过的个体写照。
 
-We’re about to see if they still gotta pay the penalty
-我们要看看他们是否还要支付罚款
+我又宁愿相信这是假的，因为这样世间会减少至少一个痛苦的家庭……
 
-In England’s off, in Denmark’s off, it’s gonna be off others
-在英格兰取消了，在丹麦取消了，其他地方取消了
+遥想2007年的电影《盲山》，竟然仍在如今21世纪的现实文明世界屡禁不止，悲哀，愤恨。
 
-Sweden just announced yesterday, Guess what?
-瑞典昨天刚刚宣布，你猜怎样？
+该事件的揭露和曝光竟然是以一种令人讽刺和愤怒的所谓正能量的形式——以捐款扶助所谓贫困的丈夫，有精神病的妻子和8个孩子的名义，大摇大摆、堂而皇之地出现在媒体上，发人深省。若是没有如此所谓的正能量，这件事岂不是要被终身埋没，谁人可知？在我们的国度，会有多少人知晓或去探究，又会有多少人具备行动的勇气，勇敢地去伸张正义呢？
 
-The research and the data and the science shows
-研究、数据和科学表明
+一个人的受害，全体人的默不作声，一个社会的集体冷漠。土共在国民身上洒下的毒，把一个优秀、敦厚、朴实的群体变得精神麻木、狡诈，使人性变得扭曲、丑陋不堪，使集体对世事极度冷漠、自私，对他人疾苦的漠不关心，对法律、人权也淡漠无知。众人未曾知的是，类似的事情在中共国无数次、长年累月地发生，整个公安系统到地方村行政到村民，对犯罪行为如此漠视 渎职 无能，甚至助纣为虐。所谓的职能执法部分对这些事件轻描淡写、讳莫如深，您真地相信他们会用心或全力以赴打击拐卖妇女儿童？
 
-that children, you know 5-12 kids don’t have to get the vaccine
-你知道5-12岁的孩子们不必接种疫苗
+一个社会对妇女幼儿的基本尊重态度，是现代文明社会基本尺度度量标准。仅公开资料显示：
 
-because the dangers of it outweigh the benefits
-因为它的危害大于好处
+“1991-1995年，官方公布获解救的被拐女性人数为80555人。”
 
-the dangers of it outweigh the benefits
-它的危害大于好处
+“WHO的数据里，中国是世界少数几个女性自杀率高于男性的国家，而吞农药曾经是农村地区最常见的自杀选择。”
 
-suck on that Tony Fauci
-想想吧托尼·福奇
+“2007年山西黑砖窑奴工“
 
-* * *
+“2008毒奶粉“……
 
-Date:01/30/2022
-原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
-史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-原视频日期：2022/01/30
-原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
-任务编号：KE377（3637）
-视频时间段 : 0:00-0:45
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+全国每年被拐卖、失踪的妇女儿童在土共国当是天文数字，每一个简单数字的背后，都至少是一个家庭几口几十口人的终生莫大的痛苦。试想该“合法丈夫”即便后续被公正地绳之以法，其后代的8个幼子，以及该受害妇女，都很难从创伤中走出来。笔者随手搜索一下，出来的竟是对全国每年失踪儿童20万人数否定的文章，“什么年头了还有人信这个？”似乎欲盖弥彰。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+中共政权完全不具备从文化变革、从基本文明素养、从生育政策上、从法制监督等方面预防 打击和根治拐卖妇女儿童的基本能力，他们只会用自己放的屁嘣自己所谓伟光正的嘴脸。这样性无能的外强中干的邪恶政权，只有铲除他！
+
+校对/发稿：飞虹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

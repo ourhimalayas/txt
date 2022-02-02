@@ -2,39 +2,38 @@
 ---
 
 
-## 1.31大直播后记：新郭七条
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1948225/)
+## 有声|金融巨鳄索罗斯预测 习近平连任无望
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948309/)
 
-**整理：雅典娜速记组**
-**编辑：守望黎明**
+配音：香草山健身部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-123.png)图片来源:雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+外媒2月1日报道，金融巨鳄索罗斯近日在斯坦福大学演讲时指出：中共党魁习近平目前面临多个危机，其中包括成效欠佳的中共疫苗、国内房地产危机以及出生率下滑等问题。
+
+索罗斯表示：中国房地产热潮的兴起，是基于一种称为“竭泽而渔”的模式，这种模式让中共当局尝到甜头，鼓励人民将积蓄投资于房地产。然而，这种模式所引发的一连串，像是开发商债务违约、房产价格下跌、需求量不足等问题，导致了中国房地产热潮自去年开始，全面冷却，目前已濒临崩溃边缘。 另外，索罗斯还透露，近期共产党内部暗潮汹涌，反习力量越来越强，加上各种习近平无力解决的问题，因此，他对习近平顺利连任的愿望持悲观态度。
+
+原文链接：[金融巨鳄索罗斯预测 习近平连任无望](https://gnews.org/zh-hans/1945244/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-**一、一心一意灭共。**
-
-**二、全力以赴，扩大新中国联邦被国际机构和各个主权国家的认可度。**
-
-**三、全力以赴，在全球建立更多的新中国联邦农场。**
-
-**四、让我们更多的战友从国内被救出来，同时让更多的国内的人知道我们新中国联邦。**
-
-**五、让我们所有新中国联邦的战友们在****G****系列里能赚更多的钱，获得更多的机会。**
-
-**六、要****让****全世界爱好正义的人们****，****以及被共产党病毒伤害的人们和受到共产党的疫苗武器设计的人们，知道真相****。****找到病毒真相，找到毒疫苗的解决的办法，让更多的人跟我们联合在一起。**
-
-**七、我们要把全世界****正****在受到共产党的经济威胁****和****超限战的人紧紧地团结在一起，建立我们真正爆料革命的****、****被国际认可的社交媒体大平台。**
-
-**我们所有的兄弟姐妹们，在****2022****年，我们新中国联邦人要****进一步****统一好我们的作战目标，统一行动，保命、保财、报仇。更重要的****是****，让我们所有的战友****和****兄弟姐妹们，能共同度过这个至暗的时代！**
-
-*发布：盘古相聚*
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,46 +2,39 @@
 ---
 
 
-## CNN主播：北京奥运会的背后掩盖着许多丑陋的事实
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1947896/)
+## 1.31大直播后记：新郭七条
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1948225/)
 
-作者：纽约香草山农场 – 四季
+**整理：雅典娜速记组**
+**编辑：守望黎明**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-123.png)图片来源:雅典娜设计组
 
 
-据[布赖特巴特新闻网](https://www.breitbart.com/clips/2022/02/01/cnns-tapper-behind-the-glamor-of-the-olympics-are-a-lot-of-ugly-truths-china-wants-you-to-ignore/)2月1日报道，CNN主播杰克·塔珀（Jake Tapper）周一在他的节目“领先”（The Lead ）中说，中共国在北京冬奥会期间试图掩盖 “许多丑陋的真相”。
+**一、一心一意灭共。**
 
-塔珀说，在他即将开始的名为“中国之墙背后”的系列节目里，将揭示中共在即将到来的奥运会的大肆宣传背后，有许多中共国政府希望你忽视的丑陋真相。
+**二、全力以赴，扩大新中国联邦被国际机构和各个主权国家的认可度。**
 
-CNN的大卫·库尔沃（David culver）说，虽然北京成为第一个同时举办夏季和冬季奥运会的城市，但是，中共国与西方的关系已经迅速瓦解。其在香港镇压民主抗议，威胁台湾，在新疆对维吾尔族人进行种族灭绝。中共国正走在一条与西方所希望的截然不同的道路上，已从贸易战到南中国海与西方实施了全面对抗。
+**三、全力以赴，在全球建立更多的新中国联邦农场。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+**四、让我们更多的战友从国内被救出来，同时让更多的国内的人知道我们新中国联邦。**
 
-编辑/校对/发稿：小鹿
+**五、让我们所有新中国联邦的战友们在****G****系列里能赚更多的钱，获得更多的机会。**
 
+**六、要****让****全世界爱好正义的人们****，****以及被共产党病毒伤害的人们和受到共产党的疫苗武器设计的人们，知道真相****。****找到病毒真相，找到毒疫苗的解决的办法，让更多的人跟我们联合在一起。**
 
+**七、我们要把全世界****正****在受到共产党的经济威胁****和****超限战的人紧紧地团结在一起，建立我们真正爆料革命的****、****被国际认可的社交媒体大平台。**
 
-**更多资讯，更多关注**
+**我们所有的兄弟姐妹们，在****2022****年，我们新中国联邦人要****进一步****统一好我们的作战目标，统一行动，保命、保财、报仇。更重要的****是****，让我们所有的战友****和****兄弟姐妹们，能共同度过这个至暗的时代！**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*发布：盘古相聚*
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

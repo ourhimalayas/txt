@@ -2,25 +2,28 @@
 ---
 
 
-## 中共的以假治国导致军队毫无实战能力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947155/)
+## 新中国联邦新闻英文节目完美首播
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947197/)
 
-作者：香草山 – 新世界的一员
+作者：纽约香草山教育部- Jack Li文阳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月29日，郭文贵先生在香草山农场的年会直播中爆料称，一位曾被习近平接见过的中共军方人士对下属感慨道，中共军队一直在为攻打台湾做准备，但除了军中高层和作战部的相关人员外，基层士兵根本不相信双方会真正开战，且即便中共敢打台湾，其也不可能在战争中取得胜利。
+美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-2.jpeg)
 
-郭先生指出，中共是一个以假治国的腐败体制，其根本没有实际的核心战斗力——这一点习近平也心知肚明，但他却实实在在地试图攻打台湾，即便中共内部没人相信能打赢。
+据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
 
-郭先生此前也多次提及，中共一旦出兵台湾必将立刻覆灭。彼时，新中国联邦会快速接手中国并推出“一人一票”的民主政体！
+新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
 
-参考链接：[Watch 美国纽约香草山农场 live on GETTR2022年美东香草山壬寅年新春联欢](https://gettr.com/streaming/prcsd0a0b2)
+另一方面，英文节目的推出将为新中国联邦获取更大的话语权和来自国际社会的承认，也为我们更多地增加国际影响力迈出了成功的一步。
+
+参考链接：
+[Watch 全球喜马拉雅农场联盟委员会 live on GETTR2022.02.01 NFSC News](https://gettr.com/post/prvwxq7573)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Jack Li文阳
-编辑：谐趣园
+总编：Ivy001
+编辑：Ivy001
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,8 +33,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
