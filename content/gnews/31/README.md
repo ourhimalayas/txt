@@ -2,16 +2,53 @@
 ---
 
 
-## 中共冬奥周边及北方地区经济破产状况
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1946594/)
+## 加泰罗尼亚政府从周四起取消在酒吧使用新冠护照
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1946676/)
 
-文贵大直播20220202
+![](https://assets.gnews.org/wp-content/uploads/2022/02/foto_3877939-1.jpg)@catalannews.com 图片：Aina Marti摄
 
-撰稿：北评2025（英喜）
+西班牙《加泰罗尼亚通讯社》网站1月27日报道，
 
-美工：凌点夜话（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片10.jpg)
-*发布：Theodosia*
+摘要翻译：
+
+从周四午夜到周五，加泰罗尼亚政府将取消强制使用中共病毒疫苗护照进入酒吧、餐馆、文化活动和所有其他场所的规定。行政部门最初计划延长其使用时间，但在周三晚上证实将不再要求使用。
+
+在负责管理中共病毒大流行(Covid-19)的政府官员们举行了的一次较晚的会议后，当局作出了这一决定，其依据是，当变异毒株德尔塔(Delta)普遍存在时，该措施是有效的。但现在传播性更强的变异毒株奥密克戎(Omicron)在加泰罗尼亚占主导，而且由于疫苗似乎可以预防严重疾病，但不能预防传播，那么使用疫苗护照进入公共场所就显得有些多余了。
+
+周三晚上发表的政府声明写道：“与变异毒株德尔塔相比，变异毒株奥密克戎已被证明能够逃避免疫，从而减少了对感染的预防，出于这个原因，不管他们是否接种过疫苗或患有这种疾病，都有很大一部分人可能会被感染。其结果是强制性使用疫苗证书的有效性降低了。”
+
+与此同时，周二，政府已经宣布将取消社交聚会的10人上限，这意味着从周五开始，唯一有效的中共病毒限制将是关闭夜生活。然而，业界领导者们表示，2月11日已被定为该行业重新开放的日期——此前，这些商家被迫在圣诞节之前关闭，进入这些场所也需要持有疫苗通行证。该行业于周二下午与政府会面，以评估情况。
+
+巴塞罗那夜总会协会秘书长拉蒙·马斯(Ramon Mas)说：“从那次会议开始，2月11日就被提到是可能重新开放的日子，但我们非常担心，因为我们尚未确定这是最终日期，目前还不确定。”
+
+如果夜生活真的恢复了，情况将几乎和正常一样，通常的开放时间，80%或100%的容量以及与大流行前时期相同的舞池。然而，业界领导者们在离开与当局的会议时感到“非常失望”。“他们没有具体说明或证明任何事情，我们对信息的不确定性感到担忧。”夜生活协会的负责人大卫·洛佩兹(David Lopez)说。
+
+夜生活协会秘书长华金·博阿达斯(Joaquim Boadas)也请求提供经济援助以符合对该行业施加的限制。据博阿达斯说，财政援助“仅涵盖累计损失的0.5%，对超过350亿欧元的损失提供1亿欧元的援助，完全不够而且很荒谬。”
+
+**简评：**
+
+西班牙的17个地区中，有些要求使用疫苗护照，有些则不需要。其中，加泰罗尼亚政府是去年11月末生效疫苗护照后今年1月份又取消的一个特区。疫苗护照限制确实给当地经济带来不少损失。二月份正值欧洲学生半学期假期之际，自治区政府想要刺激消费，挽救经济也只能取消疫苗护照的限制。
+
+全球各国政府在不同程度上实施的疫苗强制令、对未接种人员的惩罚措施和疫苗护照的要求都是对民众人身自由的亵渎。不管政府是出于人性考虑，还是迫于全球反疫苗游行运动的压力，或者是为了经济利益考虑，希望取消疫苗护照决议能永久生效，这样不仅可以还给人们应有的自由和选择的权利，同时也可以避免毒疫苗给更多的人群带来伤害。
+
+新闻链接：[Use of Covid passports in bars to be scrapped from Thursday](https://www.catalannews.com/covid-19/item/use-of-covid-passports-in-bars-to-be-scrapped-from-thursday)
+
+*翻译/简评:JS*
+
+*校对：Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

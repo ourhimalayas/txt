@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|台海两岸，春节油价不同步
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947086/)
+## 加拿大总理特鲁多感染新冠病毒
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1947153/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近期，俄罗斯和乌克兰两国边境局势紧张，导致国际油价上涨。海峡两岸同样受到影响。春节将至，两岸政府作出了各自的应对之策。
+采编/编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=CRyAG2o7&amp;id=FB2858F3B595404FCEEF2D7992AD17491E019FBD&amp;thid=OIF.W8qeoraz6HDFc0vt%2fuZURQ&amp;mediaurl=https%3a%2f%2fcdn.cheknews.ca%2fwp-content%2fuploads%2f2020%2f11%2f10132752%2ftrudeaunov10.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.091c801b6a3bc854d78f815a4e7b7a56%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=543&amp;expw=963&amp;q=justin+trudeau+covid+update&amp;simid=95800763123&amp;FORM=IRPRST&amp;ck=5BCA9EA2B6B3E870C5734BEDFEE65445&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
 
-台湾中油1月30日表示，为维持价格优势，并配合政府春节期间稳定物价，减轻民众负担等政策，中油启动油价平稳措施。春节期间油价将按“上涨不调、下跌调”原则办理。台湾中油今天表示，为平抑油价将分别吸收汽、柴油0.7元新台币及2.3元新台币的溢价。31日凌晨零时起台湾的汽、柴油均不作调整。
+加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
 
-与台湾政府稳定油价，让群众轻松过年的政策相比，中共发改委于同日宣布，墙内汽、柴油价格每吨分别提高310元和300元，并在调价周期内，国内成品油市场价格延续上涨为主。本次涨价已经是2022年墙内成品油第二次调价。
+特鲁多在推特上表示：由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作。同时还不忘提请国民接种疫苗以及加强剂。
 
-中共发改委提示，下一次调价窗口将在2022年2月17日24时开启，根据目前的情况，下一次调价开局仍将呈现上行趋势，在90元/吨左右。
+报道称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
 
-春节是华人阖家团圆的节日。遥望海峡两岸，一边平抑油价，减轻民众负担；一边“喜”迎涨价，收割民脂民膏。民主与独裁，优劣立见。
+据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗！
 
-文字版原文：[台海两岸，春节油价不同步](https://gnews.org/zh-hans/1943054/)
+校对编辑：硫酸羟氯喹64
 
-音频处理：Fei797
-发稿：Fei797
+发稿： 苦尽甜来 (文來）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+[原文链接](https://twitter.com/JustinTrudeau/status/1488162322187182085?t=DXtzvVrQhlPz82X1CoZq7A&amp;s=19)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

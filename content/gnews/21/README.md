@@ -2,10 +2,10 @@
 ---
 
 
-## 身处冬奥会的运动员们告诉媒体，中共偏执恐慌无以复加
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946846/)
+## 新中国联邦版《一帘幽梦》
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946881/)
 
-01/29/2022 本·哈恩威尔：身处中共奥米炕冬奥会的运动员们告诉媒体，中共恐慌得无以复加。封城西安到雄安，中共就算是开压路机，也要把种族灭绝冬奥在世界面前碾过去。
+1/31/2022 文贵虎年新春大直播：新中国联邦版《一帘幽梦》
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
