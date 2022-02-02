@@ -2,54 +2,32 @@
 ---
 
 
-## 新中国联邦的系统让战友从零到有，从少到多再变成更多
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945826/)
+## 伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945904/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f809ddd90bdd2085a32c14](https://gtv.org/video/id=61f809ddd90bdd2085a32c14)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown.jpg)伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言 网络图片
+据台湾中央广播电台2月1日报道，非政府组织全球伊玛目理事会去年12月30日宣布，鉴于中共国政府继续以迫害、折磨、独裁专政等手段违反中共国穆斯林的基本人权，因而“禁止参加及出席2022中共国北京冬季奥运会”。中共官媒“环球时报”1月28日发文，声称全球伊玛目理事会获得了世界维吾尔大会的资助和欺骗。
 
-**郭文贵先生：**我们让战友可以从少变成多，变成更多，但从没有变成有的价格是躺平币，躺平币是你没有变成有。
+2月1日全球伊玛目理事会再度发布声明，驳斥“环球时报是谎言”，强调与世界维吾尔代表大会团结一致。所谓穆斯林领袖否认支持禁止参加北京冬奥声明，“也是谎言”。
 
-另外一个就是战友们就是现在说投资的方式，G-Clubs它是一个未来的身份和新中国联邦各种获得利益，像马上召开的200万的大抽奖是吧？每年都有惊喜，都有，未来有各种特殊的照顾和利益，包括获得护照，它是这个样子的。
+中共在新疆持续犯下种族灭绝和反人类罪。在国际压力下，中国通过外交途径，甚至运用自己控制的媒体编造、散布谎言，企图误导国际社会、分化伊斯兰世界，让外界误以为伊斯兰世界支持北京冬奥会，没有抵制。
 
-那么另外一个就是G-TV的投资，它拥有了是一个控股公司，通过G-TV投资你可以拥有横向的各种的有利益的G系列的，它是非常非常重要的。但另外一个G-Fashion，G-Fashion是你一个占便宜的是一个利益，是个给予，G-Fashion现在到这个程度，大家想想这是多么了不起，多么了不起。
+这些手段是中共能生存下来的基本技能。如果不说谎话，中共一天都活不下去。全球越来越看清中共的本质，抵制北京冬奥会只是开始，会有越来越多针对中共的新举措。中共是人类的公敌，中共全球输出病毒和疫苗，所有人都成了中共的受害者。早早晚晚，世界会来清算中共的罪孽。北京冬奥会是中共灭亡之前的最后一场表演赛。
 
-然后大家看到我们未来，它很多投资的机会，像这个数字银行这些，你没有机会投，这就是人G-Clubs、G-TV很多人，包括喜币的，前面走了几步的人，他就应该多得到。
+新闻参考链接：[https://cn.rti.org.tw/news/view/id/2123644](https://cn.rti.org.tw/news/view/id/2123644)
 
-那么战友们说我都不行，我咋办？你现在你可以在二级市场买币，就二级市场买的币买卖操作，进出都是完全自由，没有任何关系。我们所有的就是，基于当时获得福利币，战友之间互相的契约，要兑现诺言，有这个因素。
+* * *
 
-那么战友们你多少钱你都可以去买这个喜币去，你买喜币的话，这二级市场你就可以赚钱。还有一个就未来躺平币，躺平币使用即金钱，使用就是金钱，你就可以从零、没有变成有，有变成多，从多变成永恒，然后不但变成永恒，从多还要变成让你多到横向的纵向的还丰富，这就是大家要做的选择。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-所以说问题很简单，你不能说既不付出时间也不付出、也不承担责任，也没有风险，然后你就什么都有，那是不可能的。这个不说新中国联邦，新新中国联邦也做不到。
 
-所以战友们承担风险，承担责任，共同的信仰，共同的未来，共同的利益，他是一个必要的因素，你承担的越多，你做的越多，你得到的越多。这就是我们建立的一个相对公平的新中国联邦。
+编辑：【英国伦敦喜庄园编辑部】
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-编辑整理：Jacques；
 
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
