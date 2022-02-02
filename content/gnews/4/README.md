@@ -2,14 +2,16 @@
 ---
 
 
-## 有声|中共病毒及疫苗危机的可怕后果
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948301/)
+## 有声|爆料革命推动全世界反对疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948319/)
 
 配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年1月30日直播中表示，mRNA疫苗接种已经在世界上造成了数量惊人的死亡率，激起了社会各界的抗议。现在的人们已经意识到这是一场人类大屠杀，一场社交媒体大封杀，这是一场阴谋，mRNA疫苗接种是一场医学灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在1月30日的直播中强调，爆料革命和新中国联邦，正在世界范围内，全面推动反对中共病毒疫苗强制令运动。
 
-原文链接：[中共病毒及疫苗危机的可怕后果](https://gnews.org/zh-hans/1943055/)
+郭先生说，当前全世界反疫苗运动正在如火如荼地进行，1月23日在华盛顿举行的，由数万人参加的反对强制疫苗抗议中，多达17000名医生、其中包括发明了mRNA疫苗的医生，联合签署了拒绝强制疫苗宣言。很多更重要的抗议集会仍在酝酿中。视频显示，在世界广泛推广疫苗后，2021年的癌症发生率达到百分之几百暴增，肺炎、心肌炎、心脏病和猝死率也在暴增。
+
+原文链接：[爆料革命推动全世界反对疫苗强制令](https://gnews.org/zh-hans/1941075/)
 
 音频处理/发稿：Daxia
 
