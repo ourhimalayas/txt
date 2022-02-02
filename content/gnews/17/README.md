@@ -2,10 +2,10 @@
 ---
 
 
-## 世界公民为自由抗争，全球主义精英需绳之以法
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946856/)
+## 新中国联邦版《一帘幽梦》
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946881/)
 
-01/29/2022 本·哈恩威尔：全世界公民为自由解放抗争；全球主义精英们就中共病毒撒谎造成损失，我们需对其个人追责。
+1/31/2022 文贵虎年新春大直播：新中国联邦版《一帘幽梦》
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

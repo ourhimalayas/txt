@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵：中共70年来用同样的谎言给老百姓洗脑
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946956/)
+## 《灭共的雪》—— 新中国联邦版《塞北的雪》
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946981/)
 
-1/31/2022 文贵虎年新春大直播：中共70年来用同样的谎言给老百姓洗脑， 压榨人民的同时还要让人感谢它们。
+1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -15,80 +15,80 @@
 
 ---
 
-### [郭文贵先生：新中国联邦的影响力已经传遍世界](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [今日盖特大V推荐 — Rudy W.Giuliani（鲁迪·朱利安尼 ）](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [大科技公司像一个法西斯政府，他们在参与构建世界](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|历史为何惊人相似！](/content/gnews/3/README.md)
+### [有声|台海两岸，春节油价不同步](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [郭文贵版“一帘幽梦”](/content/gnews/4/README.md)
+### [郭文贵先生：新中国联邦的影响力已经传遍世界](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵先生提出的2022郭七条](/content/gnews/5/README.md)
+### [大科技公司像一个法西斯政府，他们在参与构建世界](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|共产党在达沃斯继续勾兑，拿14亿中国人做代价](/content/gnews/6/README.md)
+### [有声|历史为何惊人相似！](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [有声|灭共后中国文化的绚丽之花将再度在全球盛开](/content/gnews/7/README.md)
+### [郭文贵版“一帘幽梦”](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [郭文贵先生提出的2022郭七条](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|共产党在达沃斯继续勾兑，拿14亿中国人做代价](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [《灭共的雪》—— 新中国联邦版《塞北的雪》](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|虎年吉祥](/content/gnews/9/README.md)
+### [有声|灭共后中国文化的绚丽之花将再度在全球盛开](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [郭文贵：中共70年来用同样的谎言给老百姓洗脑](/content/gnews/10/README.md)
+### [《灭共的雪》—— 新中国联邦版《塞北的雪》](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北京郊区疫情蔓延迅速，战斗室关注春节后中共种族灭绝奥运](/content/gnews/11/README.md)
+### [有声|虎年吉祥](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [郭文贵：中共70年来用同样的谎言给老百姓洗脑](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国及世界疫情简报 （02-02-2022）](/content/gnews/12/README.md)
+### [北京郊区疫情蔓延迅速，战斗室关注春节后中共种族灭绝奥运](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国及世界疫情简报 （02-02-2022）](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [战斗室：中共恐慌无以复加，封城北京市朝阳、丰台](/content/gnews/13/README.md)
+### [战斗室：中共恐慌无以复加，封城北京市朝阳、丰台](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵大直播 2/2 中共春晚是对百姓的思想大屠杀](/content/gnews/14/README.md)
+### [文贵大直播 2/2 中共春晚是对百姓的思想大屠杀](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [新中国联邦版《一帘幽梦》](/content/gnews/15/README.md)
+### [新中国联邦版《一帘幽梦》](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [SEC批准BSTX在传统市场上进行区块链结算](/content/gnews/16/README.md)
+### [SEC批准BSTX在传统市场上进行区块链结算](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [世界公民为自由抗争，全球主义精英需绳之以法](/content/gnews/17/README.md)
+### [世界公民为自由抗争，全球主义精英需绳之以法](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [好听不难系列｜ 《在维也纳老城》- 威廉·吉洛克 钢琴曲赏析+弹奏指导+曲谱分享](/content/gnews/18/README.md)
+### [好听不难系列｜ 《在维也纳老城》- 威廉·吉洛克 钢琴曲赏析+弹奏指导+曲谱分享](/content/gnews/20/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [身处冬奥会的运动员们告诉媒体，中共偏执恐慌无以复加](/content/gnews/19/README.md)
+### [身处冬奥会的运动员们告诉媒体，中共偏执恐慌无以复加](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵视角:&#8217;甜蜜蜜运动&#8217;的力量无人可挡](/content/gnews/20/README.md)
+### [文贵视角:&#8217;甜蜜蜜运动&#8217;的力量无人可挡](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [中国男足负于越南 宣告举国体制失败 打脸“习一尊”](/content/gnews/21/README.md)
+### [中国男足负于越南 宣告举国体制失败 打脸“习一尊”](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大萨斯喀彻温省宣布终止疫苗护照](/content/gnews/22/README.md)
+### [加拿大萨斯喀彻温省宣布终止疫苗护照](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [研究显示 康复的病毒感染者具有自然免疫力](/content/gnews/23/README.md)
+### [研究显示 康复的病毒感染者具有自然免疫力](/content/gnews/25/README.md)
  ` NFSC News`
-
-### [托马斯·伦茨律师揭示惊人数据显示新冠疫苗严重的副作用](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大卡车司机们希望结束疫苗强制令，在此之前不会退缩](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线：东京新增2万1576感染病例 首次单日突破2万](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
