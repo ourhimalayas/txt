@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/content/2019/12/20191231-3168641532778332278.md)
+
 [文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/content/2019/12/20191231-1107954365607490232.md)
 
 [文字版：2019年12月27日文贵报平安录播](/content/2019/12/20191231-7426238118380743813.md)
@@ -63,8 +65,6 @@
 [文字版：2019年12月1日郭先生报平安直播](/content/2019/12/20191203-2633135332131965317.md)
 
 [文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
-
-[文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/2019/12/20191201-3479974122524096649.md)
 
 
 ## 頁面 18/39 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [39](/content/README-39.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

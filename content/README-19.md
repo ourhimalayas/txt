@@ -16,6 +16,8 @@
 ---
 ## 頁面 19/39 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [39](/content/README-39.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/2019/12/20191201-3479974122524096649.md)
+
 [文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/content/2019/11/20191129-6884019306620752974.md)
 
 [文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/content/2019/11/20191129-9084303791170558370.md)
@@ -63,8 +65,6 @@
 [文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/content/2019/11/20191107-407016786599015158.md)
 
 [文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/content/2019/11/20191106-1023423131938564457.md)
-
-[文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/content/2019/11/20191105-5144727764458030814.md)
 
 
 ## 頁面 19/39 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [39](/content/README-39.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

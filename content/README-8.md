@@ -16,6 +16,8 @@
 ---
 ## 頁面 8/39 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [39](/content/README-39.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年6月20日郭先生给Snow理发直播](/content/2021/06/20210620-1338460.md)
+
 [全文字版2021年6月20日郭先生向西方再次发出警告做好准备](/content/2021/06/20210620-1338436.md)
 
 [全文字版2021年6月17日郭文贵先生G-TV直播](/content/2021/06/20210617-1331243.md)
@@ -63,8 +65,6 @@
 [全文字版2021年4月15日郭文贵先生G-TV直播](/content/2021/04/20210415-1110916.md)
 
 [全文字版2021年4月11日郭文贵先生G-TV直播](/content/2021/04/20210411-1099446.md)
-
-[全文字版2021年4月9日郭文贵先生G-TV直播](/content/2021/04/20210409-1099373.md)
 
 
 ## 頁面 8/39 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [39](/content/README-39.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,8 @@
 ---
 ## 頁面 6/39 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [39](/content/README-39.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[2021年8月28日郭文贵先生做健腹轮健身盖特全文字版](/content/2021/08/20210828-1566845.md)
+
 [2021年8月27日郭文贵先生做健腹轮健身盖特全文字版](/content/2021/08/20210827-1567894.md)
 
 [全文字版2021年8月26日郭文贵先生G-TV直播](/content/2021/08/20210826-1494569.md)
@@ -63,8 +65,6 @@
 [全文字版2021年8月13日郭文贵先生G-TV直播](/content/2021/08/20210813-1469006.md)
 
 [2021年8月12日郭文贵先生健腹轮健身盖特全文字版](/content/2021/08/20210812-1569762.md)
-
-[全文字版2021年8月11日郭文贵先生G-TV直播](/content/2021/08/20210811-1462815.md)
 
 
 ## 頁面 6/39 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [39](/content/README-39.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
