@@ -2,24 +2,37 @@
 ---
 
 
-## 命运是冥冥注定（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1944404/)
+## 有声|新中国联邦将助邓丽君女士实现“一帘幽梦”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1944522/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/02/命运是冥冥注定（二）-.jpg)
-最后你发现为什么中国人有信佛教，道教，儒教还有现在共产党教？你会真正的明白，人绝对是不生不灭的。就在我们现在说话的同时就有生就有灭，但是人类一直存在。万年来人没有多大变化，人也没变成猴子，也没见猴子变成人。而且人类身高、体重、肤色、习惯没什么大变化。唯一不变的在这个过程当中，人类的智慧和跟所有人类的文明，就是人和大自然的关系。
+配音：香草山农场 – 纳米
 
-就是人和大自然之间相处的关系和人自己行为的一个关系，没有任何变化。今天的科技就是读懂了大自然的一些密码，现在我们讲的是叫风水，实际上就是磁场。共产党讲的，不让你相信的迷信就是不让你读懂磁场，不让你读懂人生的密码。人生就这么简单，这是老天爷都给你定好的，你觉得这个这上万年的人类有变化吗？没有变化。
 
-*发布：开智则立*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+在2022新春大直播中，郭先生演绎了改编版的《一帘幽梦》，表示新中国联邦会助邓丽君女士实现未了的夙愿，替国内同胞争取法制、自由、民主，消灭邪恶中共。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-9.jpg)
+89年六·四事件发生以后，邓女士在同年11月24日的日本演唱会上表示，无论走到世界何处，永远都是中国人。每一位国人都应该享有自由，相信这一天一定会到来。邓女士身处台湾却心系国内同胞，因赞美人性、热爱自由的甜美歌声太受欢迎而遭到中共的打压，一生未能踏上大陆的土地。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭先生用粗犷的嗓音演绎了新中国联邦版的《一帘幽梦》，并发出誓言，愿万佛万神护佑天堂里的邓丽君女士。新中国联邦一定会完成她的心愿，把民主、法制和自由，带给每一位善良勤劳智慧的中国人！
+
+文字版原文：[新中国联邦将助邓丽君女士实现“一帘幽梦”](https://gnews.org/zh-hans/1942651/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
