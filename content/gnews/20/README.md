@@ -2,25 +2,27 @@
 ---
 
 
-## 中共的以假治国导致军队毫无实战能力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947155/)
+## 郭先生警示战友远离未经授权的游行活动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947177/)
 
-作者：香草山 – 新世界的一员
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月29日，郭文贵先生在香草山农场的年会直播中爆料称，一位曾被习近平接见过的中共军方人士对下属感慨道，中共军队一直在为攻打台湾做准备，但除了军中高层和作战部的相关人员外，基层士兵根本不相信双方会真正开战，且即便中共敢打台湾，其也不可能在战争中取得胜利。
+在1月30日的直播中，郭文贵先生向所有爆料革命的战友们发出预警称，任何个人或组织未经授权，不得擅自使用新中国联邦或农场的标志参与任何政治游行或抗议活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpeg)
 
-郭先生指出，中共是一个以假治国的腐败体制，其根本没有实际的核心战斗力——这一点习近平也心知肚明，但他却实实在在地试图攻打台湾，即便中共内部没人相信能打赢。
+郭先生指出，世界各国中反对强制疫苗令的抗议活动已经在全球范围内掀起了反对极权统治的潮流，他们是保卫民主自由的英雄。但是，那些初衷是为了自由和正义的抗议活动大多都难免落入被政治构陷的结局，有些甚至被抹黑成暴力事件。
 
-郭先生此前也多次提及，中共一旦出兵台湾必将立刻覆灭。彼时，新中国联邦会快速接手中国并推出“一人一票”的民主政体！
+为此，郭先生强调，任何爆料革命的战友如果没有得到喜马拉雅联盟委员会的授权而擅自打着新中国联邦或任何农场的旗号参与这类游行，他们都会被清理出爆料革命。
 
-参考链接：[Watch 美国纽约香草山农场 live on GETTR2022年美东香草山壬寅年新春联欢](https://gettr.com/streaming/prcsd0a0b2)
+郭先生还补充道，政治游行的走向往往不可控，而我们新中国联邦绝不能置身于这样的危机之中。尤其在全世界“排华”倾向日趋严重的当下，中共以及西方黑暗势力会充分利用这些事件污名化新中国联邦，甚至会诬陷爆料革命为邪教组织或暴力分子。非常时期，战友们必须谨慎地保持安全距离。
+
+参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Jack Li文阳
-编辑：谐趣园
+总编：Ivy001
+编辑：Ivy001
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,8 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

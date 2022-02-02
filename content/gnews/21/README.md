@@ -2,26 +2,37 @@
 ---
 
 
-## 加拿大总理特鲁多感染新冠病毒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1947153/)
+## 虎年初一日本重拳出击 中共攒锋聚镝四面楚歌
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1947162/)
 
-采编/编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=CRyAG2o7&amp;id=FB2858F3B595404FCEEF2D7992AD17491E019FBD&amp;thid=OIF.W8qeoraz6HDFc0vt%2fuZURQ&amp;mediaurl=https%3a%2f%2fcdn.cheknews.ca%2fwp-content%2fuploads%2f2020%2f11%2f10132752%2ftrudeaunov10.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.091c801b6a3bc854d78f815a4e7b7a56%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=543&amp;expw=963&amp;q=justin+trudeau+covid+update&amp;simid=95800763123&amp;FORM=IRPRST&amp;ck=5BCA9EA2B6B3E870C5734BEDFEE65445&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
+**【国内新闻短评】**
 
-加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
+环球网2022年02月01日报道：日本国会众议院通过的所谓人权决议罔顾事实真相，恶意诋毁中国人权状况，严重违反国际法和国际关系基本准则，粗暴干涉中国内政，性质极其恶劣。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-104.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/image-105.png)
+**短评：**
 
-特鲁多在推特上表示：由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作。同时还不忘提请国民接种疫苗以及加强剂。
+日本国会通过关于中国人权的决议，对新疆、西藏和香港的人权状况表示表示关切。这一决议是继不派政府代表团参加冬奥会的又一重拳，大年初一突然猛击中共，不仅拉开世界围殴中共的序曲，也注定三天后即将举行的冬奥会的惨淡结局。
 
-报道称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
+郭先生提前宣布美国宣布撤离驻中国使馆后，后面将有多国跟进。日本虎年伊始率先跟进一步，可以看到中共接下来会四面受敌。日本在经济上严重依赖中共国，其制造业、汽车和建筑设备将中国作为重要市场等。同时，在地缘政治上，日本对于中共一直有所忌惮。不论是外企撤出中共国，还是抵制奥运会，日本政府都只是行动，避免明确表态。这一决议表明日本已经选边站队，加入世界正义灭共联盟。
 
-据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗！
+外交部赵战狼的回应一如从前，从侵华战争和内部事务说起，回应的逻辑和智商水平永远在预料之中。即使在党治的中共国，关起门来虐打孩子，如果有人报警，也会触犯法律，更何况是杀死孩子。中共对新疆、西藏和香港犯下的罪行比纳粹更残暴，触犯到普世价值的底限，加之中共制造病毒贻害世界，人权问题成为世界围殴中共的最佳抓手。
 
-校对编辑：硫酸羟氯喹64
+世界经济运行良好之时，中共如何奴役国民，为了经济利益，各国都假装看不到，睁一只眼闭一只眼。如今，世界经济危机近在眼前，疫情死亡人数不断增加，经济下滑加上通货膨胀，民怨沸腾，各国政府为了找替罪羊也会推出中共。
 
-发稿： 苦尽甜来 (文來）
+考虑到中共高层你死我活的内斗和每况愈下的经济民生情况，中共四处树敌，被内外夹击的形式注定政权崩溃进入倒计时阶段。善恶到头终有报，中共政权步入末路。
 
-[原文链接](https://twitter.com/JustinTrudeau/status/1488162322187182085?t=DXtzvVrQhlPz82X1CoZq7A&amp;s=19)
+声明：文章观点仅代表作者个人，与gnews平台无关
+
+链接：**[https://world.huanqiu.com/article/46dmsZonoVA](https://world.huanqiu.com/article/46dmsZonoVA)**
+
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
