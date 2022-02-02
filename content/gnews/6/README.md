@@ -2,29 +2,40 @@
 ---
 
 
-## 游行需要注意的事情
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1944331/)
+## 马建副部长和七哥在巴基斯坦躲过孟建柱孙力军三次暗杀
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944405/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+G-TV视频链接：[https://gtv.org/video/id=61f7cbddd90bdd2085a31a23](https://gtv.org/video/id=61f7cbddd90bdd2085a31a23)
 
-战友们如果有选择的，做你最有利的选择， 你不要承担风险，承担痛苦。你不真心灭共的，不要跟我们走这一趟，很危险，很恐惧, 有很多挑战.
+**郭文贵先生：**我去巴基斯坦的时候，遇到了三次大爆炸，就在几分钟之后，我能活着出巴基斯坦也是个奇迹，我跟你们说过，马建副部长最后去巴基斯坦，中间拉肚子。一拉肚子，结果把他救了，到了前面会场，砰全给炸了。那绝对是孟建柱、孙力军要干掉马建还有所有这些安全部的人。这现在肯定的，这已经都证明了。巴基斯坦是共产党杀人、贩毒、走私、走私人口、器官移植、洗钱最关键的地方之一。
 
-我再说一遍,不管喜联储、喜币有多伟大， GTV多伟大，你记住，不灭共我们这些东西只能是祸害，没有一点好处。我们这次只要是大年三十啊，从共产党的时间起，开始这一战，直到共产党灭亡。
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-我们的抗议行动，还有我们的法律行动，还有一系列的行动，只能是越来越多越来越高, 否则，就不配做战友，各地农场和所有的战友们在这个事儿上见，就看你行动的结果。 你不能看到文耀在这块儿只擦眼泪是吧？你 不要擦眼泪，你要让共产党流眼泪，叶钊颖不能流眼泪，要让共产党流眼泪。
+编辑整理：Jacques；
 
-除了触碰法律这个之外啊，不能有暴力之外, 但一定要让对方犯规，让对方触红线，只要用对方的触红线战略性和战术的要求，战略性的让对方犯规，这是个最聪明的做法。千万不要为了抗议而抗议，是为了结果而抗议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/游行需要注意的事情_01.jpg)
-2021年12月08日文贵大直播
+字幕文件制作：小满；
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

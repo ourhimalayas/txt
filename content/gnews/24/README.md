@@ -2,31 +2,31 @@
 ---
 
 
-## 《美国竞争法》强化与中共国竞争和确保芯片供应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1943832/)
+## 有声|外媒称中共通过贿赂使西方忽视其暴行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1944117/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/children-52-times-more-likely-to-die-following-covid-19-vaccination2.jpg)资料照：美国波士顿中国城社区飘扬的美中国旗（2019年11月1日）
-据美国之音2月1日报道，拥有1250万会员的美国最大的劳工组织劳联-产联1日表示，全力支持美国众议院正在推动的《美国竞争法案》，强化与中共国竞争，促进美国半导体芯片的生产，并改革美国的一些贸易法规。
+配音：香草山教育部 – 百香果
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+1月24日，据美国媒体报道，一直以来，中共政府通过经济利益诱使一些西方的媒体和企业家忽视其在中共国内实施的各种暴行。
 
-美国参议院率去年6月以68票赞成、32票反对通过了参院版的《美国创新与竞争法案》，目前在美国众议院酝酿的《美国竞争法案》则是该法案的众院版本。两院的两个版本都强调与中共国竞争，也都同意拨款520亿美元，促进美国国内的半导体芯片生产。
+报道提到，此前，美国金州勇士队的高层查马斯扬言称，人们不关心中共对新疆维吾尔人犯下的种族灭绝罪。另一方面，国际奥林匹克委员会以及奥运会的赞助商们也不在乎他们为中共这次举办的种族灭绝奥运会买单和提供支持——这些企业家们只关注他们从中共政府那里获得的经济利益。而这也让中共政府产生了一种可以轻易通过经济手段收买世界的错觉。
 
-新冠疫情肆虐以及供应链受到干扰，使美欧等国的芯片供应受到严重冲击。因为“缺芯”，很多行业面临停工甚至停产。拜登政府一直鼓励国会调拨资金，补助在美国的半导体芯片生产，以解决“芯荒”危机。
+对此，评论人员则指出，与中共所预期的相反，越来越多的人正在关注中共所犯下的暴行以及这些暴行的可怕性。同时，不仅仅是新疆维吾尔人的遭遇，更多的正义团体和个人正在向全世界呼吁，关注中共政府对西藏人、香港人和其他许多中国政见异议者的镇压，而这或许是中共冬奥会给世界带来的唯一贡献。
 
-中共的全球扩张战略，尤其释放病毒之后和大规模的强制疫苗政策，从根本上打击了全球的供应链系统。芯片的严重短缺即将对全球经济带来严重影响，这也促使美国不得不重新调整经济战略，建立自己的芯片产业，以应对危机和重新占领市场。
+文字版原文：[外媒称中共通过贿赂使西方忽视其暴行](https://gnews.org/zh-hans/1929541/)
 
-新闻参考链接：[https://www.voachinese.com/a/AFL-CIO-strongly-backs-US-House-bill-on-China-competition-chips-20220201/6421660.html](https://www.voachinese.com/a/AFL-CIO-strongly-backs-US-House-bill-on-China-competition-chips-20220201/6421660.html)
+音频处理：Fei797
+发稿：Fei797
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

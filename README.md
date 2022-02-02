@@ -15,157 +15,157 @@
 
 ---
 
-### [共产党用行贿外国政要一千万自己拿走一个亿的方式盗国](/content/gnews/1/README.md)
+### [2022年1月21日西方开始和中共政治脱钩、经济脱钩](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [1.31大直播后记： 健康的活着最重要](/content/gnews/2/README.md)
+### [魁北克省道格拉斯医院工作人员举行抗议活动,称这不仅是为了要讨回一千元奖金](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [1.31大直播后记：无苗族是人类的火种](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [改变中国人留给世界的木讷懦弱自私眼神游移不变的形象](/content/gnews/3/README.md)
+### [共产党把巴基斯坦委内瑞拉吉尔吉斯朝鲜等国家推向地狱](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国从反恐战争转向与中共对抗 蓬佩奥警告中共国崛起](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [再次吹响灭共号角](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [游行需要注意的事情](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [法国变相抵制冬奥会，欧洲各国政治操作榨干CCP](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [文贵大直播就要把活在噩梦中的中国人从噩梦中解脱出来](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十六）](/content/gnews/9/README.md)
+### [“生育八孩女子事件”官方报道：系结婚时未核实身份信息](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦持续三年的统一行动](/content/gnews/10/README.md)
+### [马建副部长和七哥在巴基斯坦躲过孟建柱孙力军三次暗杀](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [命运是冥冥注定（二）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [扬帆每日速递2022年2月1日版（2）](/content/gnews/11/README.md)
+### [辉瑞要求美国授权 5 岁以下儿童接种病毒疫苗](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [共产党用行贿外国政要一千万自己拿走一个亿的方式盗国](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [1.31大直播后记： 健康的活着最重要](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [改变中国人留给世界的木讷懦弱自私眼神游移不变的形象](/content/gnews/11/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美国从反恐战争转向与中共对抗 蓬佩奥警告中共国崛起](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [再次吹响灭共号角](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [游行需要注意的事情](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [法国变相抵制冬奥会，欧洲各国政治操作榨干CCP](/content/gnews/15/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [文贵大直播就要把活在噩梦中的中国人从噩梦中解脱出来](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文•贵天成——文贵先生谈“北京冬奥会”（二十六）](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [扬帆每日速递2022年2月1日版（2）](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [Hpay上市了](/content/gnews/12/README.md)
+### [Hpay上市了](/content/gnews/19/README.md)
  ` genwsGNEWS`
 
-### [我们正处在一个非常危险的时刻](/content/gnews/13/README.md)
+### [我们正处在一个非常危险的时刻](/content/gnews/20/README.md)
  ` DC政经`
 
-### [扬帆每日速递 2022年2月1日 特别版](/content/gnews/14/README.md)
+### [扬帆每日速递 2022年2月1日 特别版](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [Himayala Pay(Hpay/喜支付)正式上市](/content/gnews/15/README.md)
+### [Himayala Pay(Hpay/喜支付)正式上市](/content/gnews/22/README.md)
  ` 首尔天池农场`
 
-### [1.31春晚大直播后记：Hpay上线了！](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|多数欧盟研究员称欧中关系将继续恶化](/content/gnews/17/README.md)
+### [有声|多数欧盟研究员称欧中关系将继续恶化](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|外媒称中共通过贿赂使西方忽视其暴行](/content/gnews/18/README.md)
+### [有声|外媒称中共通过贿赂使西方忽视其暴行](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [1.31春晚大直播后记：央视春晚现场布满国安](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本国会通过关于中国人权状况的决议](/content/gnews/20/README.md)
+### [日本国会通过关于中国人权状况的决议](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1.31春节大直播后记：人生一定要有信仰](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
+### [2022年1月31日 《春节大直播》 全文字版（一）](/content/gnews/26/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/22/README.md)
+### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/27/README.md)
  ` YALUN 亚伦`
 
-### [有声|年度回顾关键词 – 早期治疗药](/content/gnews/23/README.md)
+### [有声|年度回顾关键词 – 早期治疗药](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [《美国竞争法》强化与中共国竞争和确保芯片供应](/content/gnews/24/README.md)
+### [《美国竞争法》强化与中共国竞争和确保芯片供应](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本国会通过决议关注中共国人权](/content/gnews/25/README.md)
+### [日本国会通过决议关注中共国人权](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（二）](/content/gnews/26/README.md)
+### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（二）](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|喜马拉雅币一周分析与总结（1月24日-1月30日）](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2022年2月1日早](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2022年2月1日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0201](/content/gnews/29/README.md)
+### [DC每日热点0201](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [法官命令FDA加快提供疫苗数据，辉瑞介入庭审](/content/gnews/30/README.md)
+### [法官命令FDA加快提供疫苗数据，辉瑞介入庭审](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [五月花简报（02/01/2022）](/content/gnews/31/README.md)
+### [五月花简报（02/01/2022）](/content/gnews/35/README.md)
  ` mayflowertranslate`
 
-### [美国证券交易委员会3-20537号文件 （事关G-TV媒体投资）](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [瑞典决定不建议为5-11岁的儿童接种COVID疫苗](/content/gnews/33/README.md)
+### [通货膨胀的政治力量](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [通货膨胀的政治力量](/content/gnews/34/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/35/README.md)
+### [中共国春晚惊现港台明星为习皇营造“万民称颂”场面](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/36/README.md)
+### [王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数](/content/gnews/38/README.md)
  ` mary202064`
 
-### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/37/README.md)
+### [土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/39/README.md)
  ` 纽约香草山MOS03`
 
-### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/38/README.md)
+### [新西兰财经G乐部2022年2月1日:财经新闻整理](/content/gnews/40/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/39/README.md)
+### [COVID-19 最新情报|病毒解药大爆料！？ 青蒿素鸡尾酒疗法有望成为疫情终结者](/content/gnews/41/README.md)
  ` 關注組`
 
-### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/40/README.md)
+### [COVID-19 最新情报|日本知名制药厂研究证实 伊维菌素具新冠疗效](/content/gnews/42/README.md)
  ` 關注組`
 
-### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/41/README.md)
+### [欧洲各国政府的债务在疫情期间疯涨状况！](/content/gnews/43/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/42/README.md)
+### [绝对无可争辩的证据表明疫苗强制令是一场谋杀](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/43/README.md)
+### [食药局与辉瑞掩盖中共病毒疫苗终点全因死亡率的失败](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/44/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/45/README.md)
+### [中日财经爆|索罗斯警告：中共国正面临经济危机](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内多个庆春节节目出现《甜蜜蜜》](/content/gnews/46/README.md)
+### [墙内多个庆春节节目出现《甜蜜蜜》](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [澳洲官方数据显示80%中共病毒死亡者完全接种疫苗](/content/gnews/47/README.md)
+### [澳洲官方数据显示80%中共病毒死亡者完全接种疫苗](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [奥运会运动委员会主席确诊 已在北京隔离](/content/gnews/48/README.md)
+### [奥运会运动委员会主席确诊 已在北京隔离](/content/gnews/50/README.md)
  ` GTV新闻访谈`
 
-### [共产党在达沃斯继续勾兑，拿14亿中国人做代价](/content/gnews/49/README.md)
- ` GTV新闻访谈`
-
-### [爆料革命推动全世界反对疫苗强制令](/content/gnews/50/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦永远成为第三方的监督者](/content/gnews/51/README.md)
+### [共产党在达沃斯继续勾兑，拿14亿中国人做代价](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
 ### [国内春晚唱甜蜜蜜，响应新中国联邦“甜蜜蜜运动”](/content/gnews/52/README.md)

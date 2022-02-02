@@ -2,45 +2,45 @@
 ---
 
 
-## 文贵大直播就要把活在噩梦中的中国人从噩梦中解脱出来
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944327/)
+## 辉瑞要求美国授权 5 岁以下儿童接种病毒疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1944400/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7cb12d90bdd2085a319d3](https://gtv.org/video/id=61f7cb12d90bdd2085a319d3)
+2022-02-01
 
-**郭文贵先生：**刚才我们在直播前我接到两个战友给我发的信息，其中一句话真的是特别感动，他说：“七哥，我每天，每天想到即将面对着大直播的时候，真的就像过年，比我小时候看共产党的春节联欢晚会还兴奋。”他说：他的母亲八十几岁了，过去几年来任何一次没有落下过咱们的直播，我找翻墙方式七哥你很难想象，真的可能是上千种的翻墙方式。他说：“我母亲说‘什么都可以没有，但不能没有你七哥的直播。’”这是让人真地感动，现在咱们的这战友还有他母亲都在看直播啊，文贵在此对您表示衷心地感谢！刚才的这个话，你代表了亿万个战友过去几年的付出，和你对正义的追求。
+编译及评论: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/ZWCZZCFWEAWP3O7GDY5Q.png)图片来源：[U.S. considers authorization of first COVID vaccine for children under 5](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-submits-data-seeking-us-approval-covid-vaccine-young-kids-bloomberg-2022-02-01/)
+来自路透社二月一日的新闻报道：
 
-更重要的事情，我们中国人不会再像猪狗一样地活下去，不可能只是说天天晚上不洗不刷就睡觉，醒来以后马上就是折腾，不刷牙不洗脸必须干活。到了城市里刷牙洗脸去干活，回来以后不刷牙不洗脸就睡觉。这个世界上没有比中国人过得再痛苦的再糟的，临到死都没有闹明白你咋活的、为什么来一次世界上。
+辉瑞公司和 BioNTech SE 周二表示，尽管2至4岁孩子临床试验中的免疫反应弱于预期，但他们已开始向美国监管机构提交数据，以寻求其用于 5 岁以下儿童的 COVID-19 疫苗的紧急使用授权 (EUA)。
 
-我们的在南普陀山里面的我过去的老和尚还有尼姑给我发信息说：“文贵，你的人生就是一场梦，精彩至极！人生就是一场梦啊！”但是我说：中国人的一场梦是噩梦！你醒来的时候你都不知道曾经做过多惨的噩梦。大直播就是要把中国人从噩梦中解脱出来。
+两家公司表示，应美国食品和药物管理局FDA的要求，他们开始提交系列数据，以解决该年龄段人群的紧迫公共卫生需求。
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+FDA 表示，一个由专家顾问组成的外部委员会将于 2 月 15 日开会讨论授权问题。
 
-编辑整理：Jacques；
+制药公司要求 FDA 将明确两剂注射方案。然而，辉瑞首席执行官 Albert Bourla 在一份声明中表示，该公司认为需要三剂疫苗“来实现对当前和未来潜在变种的高水平保护”。
 
-字幕文件制作：小满；
+Bourla 说：“如果授权两剂，父母将有机会为他们的孩子开始 一系列COVID-19 疫苗接种，同时等待第三剂的潜在授权”。
 
-视频制作及上传：Cindy；
+两家公司预计将在未来几天内完成为 EUA 提交两剂注射方案的数据，随后将提供第三剂的数据。
 
-G-News发布：小满；
+辉瑞和 BioNTech 正在测试该年龄组的 3 微克剂量的疫苗，而 5 至 11 岁的人群为 10 微克的剂量，12 岁及以上的人群为 30 微克的剂量。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+授权为年幼的孩子接种疫苗可以帮助那些不得不应对隔离以及学前班、日托中心关闭的父母。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+去年 12 月，辉瑞表示正在修改其临床试验，以测试三剂疫苗，因为低剂量在 2 至 4 岁儿童中产生的免疫反应低于 16 -25岁儿童的免疫反应。在 6 个月至 24 个月大的儿童中，该疫苗产生了与 16 – 25 岁儿童一致的免疫反应。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+上个月，辉瑞表示，预计将在 4 月之前获得这些结果。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**点评：**真的相信了人间有魔鬼。这个授权要求的理由和逻辑非常滑稽可笑，辉瑞和FDA在明晃晃强奸美国人民的智商啊！
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+原文链接：[U.S. considers authorization of first COVID vaccine for children under 5](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-submits-data-seeking-us-approval-covid-vaccine-young-kids-bloomberg-2022-02-01/)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑：LILY
+发布：肥鯮
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

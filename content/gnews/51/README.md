@@ -2,19 +2,19 @@
 ---
 
 
-## 新中国联邦永远成为第三方的监督者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941074/)
+## 共产党在达沃斯继续勾兑，拿14亿中国人做代价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941076/)
 
 撰稿：日本东京樱花团
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-1.jpg)
-人类文明的变迁和争斗，无一例外的，都涉及到人类大屠杀，最后赢家都会拿走权力。新中国联邦绝不会去触碰这个权力，将永远成为第三方监督者，让中国人实现新中国联邦宣言的承诺，对背道而驰者绝不姑息。新中国联邦宪法必须是一人一票选择的结果，这次文明的力量将得到更高维度力量的加持。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-3.jpg)
+中共达沃斯论坛过去这些年的所作所为就是他们犯罪的证据。无节制过度印钞、房地产泡沫，中共以中国巨大的市场潜力为筹码，威胁、绑架世界经济，目的就是为了不让中国人起来造反，为了给自己续命，为了控制人类，为了共产党的那几个达沃斯家族在今后的十年二十年再继续奴役中国人民。
 
-参考链接：[新中国联邦永远成为第三方的监督者](https://media.discordapp.net/attachments/888691282275340318/937298444811374592/video0.mp4)
+参考链接：[共产党在达沃斯继续勾兑，拿14亿中国人做代价](https://media.discordapp.net/attachments/888691282275340318/935778857552867388/video0.mp4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
 总编：DM
-编辑：DM
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -25,6 +25,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

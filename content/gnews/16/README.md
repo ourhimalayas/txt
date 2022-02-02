@@ -2,41 +2,44 @@
 ---
 
 
-## 1.31春晚大直播后记：Hpay上线了！
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1944134/)
+## 文贵大直播就要把活在噩梦中的中国人从噩梦中解脱出来
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944327/)
 
-**整理：雅典娜速记组
-编辑：Candy**
+G-TV视频链接：[https://gtv.org/video/id=61f7cb12d90bdd2085a319d3](https://gtv.org/video/id=61f7cb12d90bdd2085a319d3)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/01/甜蜜蜜-2.png)
+**郭文贵先生：**刚才我们在直播前我接到两个战友给我发的信息，其中一句话真的是特别感动，他说：“七哥，我每天，每天想到即将面对着大直播的时候，真的就像过年，比我小时候看共产党的春节联欢晚会还兴奋。”他说：他的母亲八十几岁了，过去几年来任何一次没有落下过咱们的直播，我找翻墙方式七哥你很难想象，真的可能是上千种的翻墙方式。他说：“我母亲说‘什么都可以没有，但不能没有你七哥的直播。’”这是让人真地感动，现在咱们的这战友还有他母亲都在看直播啊，文贵在此对您表示衷心地感谢！刚才的这个话，你代表了亿万个战友过去几年的付出，和你对正义的追求。
 
+更重要的事情，我们中国人不会再像猪狗一样地活下去，不可能只是说天天晚上不洗不刷就睡觉，醒来以后马上就是折腾，不刷牙不洗脸必须干活。到了城市里刷牙洗脸去干活，回来以后不刷牙不洗脸就睡觉。这个世界上没有比中国人过得再痛苦的再糟的，临到死都没有闹明白你咋活的、为什么来一次世界上。
 
-郭先生说：我们正在等待着，现在我们的安卓版的Hpay已经上线了。已经有战友给我发信息，特别是国内的，说：7哥我收到HDO了！这个力量没有人顶得住啊！苹果电脑再过来，苹果的iOS就是HDO了。上次老班长跟长岛哥，他俩那1200万HDO，如果是今天的话，他俩一早给发哪去你都不知道，你找都找不着了。1200万1秒钟就没了，动一动手指头。多吓人！
+我们的在南普陀山里面的我过去的老和尚还有尼姑给我发信息说：“文贵，你的人生就是一场梦，精彩至极！人生就是一场梦啊！”但是我说：中国人的一场梦是噩梦！你醒来的时候你都不知道曾经做过多惨的噩梦。大直播就是要把中国人从噩梦中解脱出来。
 
-大家记住，今天Hpay 的上线等于什么？喜联储喜币被打通了七通六脉！ 我要给大家说的是，今天这个喜联储和喜币，今天就象通了天的天梯一样。它绝对不是 Hcoin to the Moon，绝对不是的，这回Hcoin梦想成真，谁都挡不了。 接地气啊!草根兄弟今天在日本深夜，兄弟你绝对是值得期待。 老班长在新西兰深夜，你绝对值得期待啊。 这不是一般的Hpay上线的主力，你是意识不到的。
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-你们知道背后的交易，就Hpay上线，我有些话是不能说的。你知道共产党开出的天价，就包括现在要去参加冬奥会开幕式的啊，前三号人物，在中国北方的团队当中有俩人。
+编辑整理：Jacques；
 
-就在上星期问我：你确定Hpay在31号能上线吗？ 
-我说，你什么意思？
-他说：俺国老大要去你们那开冬奥会，开完冬奥会世界会大变。俄罗斯会被美国严重制裁，俄罗斯会国家启用人民币。 记住啊，俄罗斯用人民币！现在得把我的钱倒腾出去，美国我也去不了，欧洲我也去不了了，我去哪啊？MILES，现在就你这一兄弟啦，现在关键你那不能支付啊！我这每天还得跟这些人之间，什么油啊，气呀对价呀，这是天大的事啊！我可以让一个HDO代表一个亿。
+字幕文件制作：小满；
 
-就是他们之间有个规则。就像郝海东兄弟说，给叶钊颖，俺俩一个床是吧？ 在客厅里外面：唉，钊颖，我给你发一个HDO，但是等同于一个亿算账啊，未来你要给我结算一个亿啊。颖妹说：是，我记下来了。未来海东要给她一个亿。这是因为咱现在喜币只有10亿，它太稀少了。
+视频制作及上传：Cindy；
 
-什么叫人民币？叫货币？叫M2？叫流通? 99.9%的货币是不流通的，M2是货币超发，就是流通币。咱没有流通数，他们现在自己设计这个值，HDO等同于多少多少数。兄弟，想想这多大的事，多大？！
+G-News发布：小满；
 
-他问我：你能不能保证？刚才我在路上，他说：我们已经完成了N笔交易。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-你没想到吧？我们的喜币最大的流通一定是俄罗斯，还有乌克兰。 我们不想发战争的财，但是没有一次人类的财富转移，没有一次人类货币金融系统诞生跟战争没关系，没有一次。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-***发布：Candy***
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
