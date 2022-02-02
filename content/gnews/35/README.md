@@ -2,35 +2,52 @@
 ---
 
 
-## 丹麦宣布解除防疫限制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1946349/)
+## Miles背后出现了新中国联邦红旗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1946368/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.39.37.png)图片来源：雅典娜设计组
+作者：纽约香草山农场教育部-马克文、爱丽丝
 
 
-根据澳大利亚人报中文网2月2日报道：法新社哥本哈根1日电 尽管冠状病毒Omicron变异株病例创纪录新高，丹麦今天仍告别口罩和健康通行证，成为欧洲联盟（EU）第一个解除国内几乎所有防疫限制的国家。
 
-现在丹麦只在边境为来自非申根国家，且未施打疫苗的旅客，制定少数防疫限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-丹麦去年9月至11月首度尝试解除限制后，如今再度放弃防疫检查，酒吧餐厅营业时间也不再受限。
 
-目前丹麦每天新增约4万至5万例COVID-19病例，相当于丹麦国内580万人口的1%左右。但卫生官员认为相关数字很快会下降。
 
-参考链接：[https://cn.theaustralian.com.au/2022/02/02/63118/](https://cn.theaustralian.com.au/2022/02/02/63118/)
 
-*发布：tianzhihuan*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新中国联邦春节大直播上Miles背后出现了红色的49颗星旗，目前新中国联邦出现了蓝红两种颜色的49颗星旗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/123.001.jpeg)
+把蓝红白混色作为国旗的颜色主要为美英等民主国家，其中蓝色代表正义、自由、民主以及海洋般的博大胸怀；红色代表勇气、力量。红色也是中华民族千年历史过程中的吉祥色，无论是百姓、商人还是皇家贵族，举办婚庆、开业大典、春节过年等重要场合都以红色为主色。
+
+Miles Guo率先在新中国联邦春节大直播中唱响“甜蜜蜜”歌声，吹响了在中华大地上发起“甜蜜蜜运动”的号角。在新中国联邦49颗星蓝色国旗之后又打造出了新中国联邦49颗星红旗，意义重大。这意味新中国联邦可以用蓝色、红色两种49颗星旗帜。49星蓝色旗帜代表新中国联邦形象，决心实现中华大地百姓享有民主、自由、法律、一人一票选举权力；49颗星红色旗帜是传承中华民族千年传统文化，重要节日可以使用。
+
+参考来源：
+
+[https://gettr.com/post/prqi4sc1e5](https://gettr.com/post/prqi4sc1e5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-6.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
+
+
+
+
 
  
 

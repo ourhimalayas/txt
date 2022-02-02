@@ -15,118 +15,118 @@
 
 ---
 
-### [托马斯·伦茨律师揭示惊人数据显示新冠疫苗严重的副作用](/content/gnews/1/README.md)
+### [世界公民为自由抗争，全球主义精英需绳之以法](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大卡车司机们希望结束疫苗强制令，在此之前不会退缩](/content/gnews/2/README.md)
+### [身处冬奥会的运动员们告诉媒体，中共偏执恐慌无以复加](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：东京新增2万1576感染病例 首次单日突破2万](/content/gnews/3/README.md)
+### [文贵视角:&#8217;甜蜜蜜运动&#8217;的力量无人可挡](/content/gnews/3/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中国男足负于越南 宣告举国体制失败 打脸“习一尊”](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大萨斯喀彻温省宣布终止疫苗护照](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [研究显示 康复的病毒感染者具有自然免疫力](/content/gnews/6/README.md)
+ ` NFSC News`
+
+### [托马斯·伦茨律师揭示惊人数据显示新冠疫苗严重的副作用](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大卡车司机们希望结束疫苗强制令，在此之前不会退缩](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻在线：东京新增2万1576感染病例 首次单日突破2万](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [川普总统致加拿大卡车司机：我们一直与你们同在](/content/gnews/4/README.md)
+### [川普总统致加拿大卡车司机：我们一直与你们同在](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳大利亚将参与讨论欧盟与中共的贸易争端](/content/gnews/5/README.md)
+### [澳大利亚将参与讨论欧盟与中共的贸易争端](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [长期中共病毒患者的肺部存在异常表现](/content/gnews/6/README.md)
+### [长期中共病毒患者的肺部存在异常表现](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [中共国正在和澳大利亚玩‘好警察、坏警察’的游戏](/content/gnews/7/README.md)
+### [中共国正在和澳大利亚玩‘好警察、坏警察’的游戏](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加泰罗尼亚政府从周四起取消在酒吧使用新冠护照](/content/gnews/8/README.md)
+### [加泰罗尼亚政府从周四起取消在酒吧使用新冠护照](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [冬奥会选手表示 希望去其他国家参赛](/content/gnews/9/README.md)
+### [冬奥会选手表示 希望去其他国家参赛](/content/gnews/15/README.md)
  ` NFSC News`
 
-### [脸书群&#8221;Convoy to DC 2022&#8243;宣布了美国卡车司机车队的抗议疫苗强制活动](/content/gnews/10/README.md)
+### [脸书群&#8221;Convoy to DC 2022&#8243;宣布了美国卡车司机车队的抗议疫苗强制活动](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共冬奥周边及北方地区经济破产状况](/content/gnews/11/README.md)
+### [中共冬奥周边及北方地区经济破产状况](/content/gnews/17/README.md)
  ` MilesGuoLivePPT`
 
-### [中共春晚 全民洗脑](/content/gnews/12/README.md)
+### [中共春晚 全民洗脑](/content/gnews/18/README.md)
  ` MilesGuoLivePPT`
 
-### [魁北克省媒：周三住院人数将“急剧”下降，暗示出台新措施](/content/gnews/13/README.md)
+### [魁北克省媒：周三住院人数将“急剧”下降，暗示出台新措施](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [MV版Hcoin To the Moon上线55天第42次位列澳门iTunes热门MV榜首](/content/gnews/14/README.md)
+### [MV版Hcoin To the Moon上线55天第42次位列澳门iTunes热门MV榜首](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [何为人？中共为人工子宫中的胚胎寻“妈妈”](/content/gnews/15/README.md)
+### [何为人？中共为人工子宫中的胚胎寻“妈妈”](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部2022年2月2日:财经新闻整理](/content/gnews/16/README.md)
+### [新西兰财经G乐部2022年2月2日:财经新闻整理](/content/gnews/22/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [加拿大生活美谈 2022-01-27第四十期](/content/gnews/17/README.md)
+### [加拿大生活美谈 2022-01-27第四十期](/content/gnews/23/README.md)
  ` canadalifetalk`
 
-### [什么叫卖国叛国？（一）](/content/gnews/18/README.md)
+### [什么叫卖国叛国？（一）](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [谁有资格叛国和卖国？（二）](/content/gnews/19/README.md)
+### [谁有资格叛国和卖国？（二）](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [《历史上的今天》2022.02.02](/content/gnews/20/README.md)
+### [《历史上的今天》2022.02.02](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [谁有资格叛国和卖国？（一）](/content/gnews/21/README.md)
+### [谁有资格叛国和卖国？（一）](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆┃日本五大银行净利润略微增长](/content/gnews/22/README.md)
+### [中日财经爆┃日本五大银行净利润略微增长](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [伊利诺伊州国会议员要求”隔离”不打疫苗者](/content/gnews/23/README.md)
+### [伊利诺伊州国会议员要求”隔离”不打疫苗者](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [1.31大直播后记：永远不忘法治基金捐款者](/content/gnews/24/README.md)
+### [1.31大直播后记：永远不忘法治基金捐款者](/content/gnews/30/README.md)
  ` 雅典娜GNotes`
 
-### [灭共后重建中国 公民票选公权及任期制](/content/gnews/25/README.md)
+### [灭共后重建中国 公民票选公权及任期制](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
 
-### [谁才是真正邪教的传播者](/content/gnews/26/README.md)
+### [谁才是真正邪教的传播者](/content/gnews/32/README.md)
  ` 雅典娜GNotes`
 
-### [1.31大直播后记： 法制基金大额捐款嘉宾访谈](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [2022/02/02 英喜时事速递](/content/gnews/28/README.md)
+### [2022/02/02 英喜时事速递](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [壬寅春晚掀“甜蜜蜜运动”高潮 文贵以歌灭共狙击北京冬奥](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [红色百宝书里究竟藏着什么秘密](/content/gnews/30/README.md)
- ` 波士顿五月花农场`
-
-### [国际奥委会助纣为虐 力保北京冬奥会](/content/gnews/31/README.md)
+### [国际奥委会助纣为虐 力保北京冬奥会](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [Miles背后出现了新中国联邦红旗](/content/gnews/32/README.md)
+### [Miles背后出现了新中国联邦红旗](/content/gnews/35/README.md)
  ` 纽约香草山MOS03`
 
-### [中共国公司因业绩不佳纷纷从美国证券交易所退市](/content/gnews/33/README.md)
+### [中共国公司因业绩不佳纷纷从美国证券交易所退市](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [若入侵乌克兰 美英将制裁与普京关系密切的俄罗斯富豪](/content/gnews/34/README.md)
+### [若入侵乌克兰 美英将制裁与普京关系密切的俄罗斯富豪](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [丹麦宣布解除防疫限制](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美、英、加联合向缅军政权实施制裁](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本国会通过关切中共国人权决议](/content/gnews/37/README.md)
- ` 日本东京方舟农场`
-
-### [AMA：疫情对美国造成的影响才刚刚开始](/content/gnews/38/README.md)
+### [丹麦宣布解除防疫限制](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [北京冬奥后美升级对俄制裁 中美货币之战全面对决](/content/gnews/39/README.md)
