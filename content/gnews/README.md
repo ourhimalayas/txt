@@ -21,80 +21,80 @@
 ### [北极光今晚将在加拿大大部分地区起舞](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [Hpay（喜支付）上线诠释永不放弃，打破万年金融规则，重塑人类文明](/content/gnews/3/README.md)
+### [文贵先生直播重点大纲2022/02/02](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [Hpay（喜支付）上线诠释永不放弃，打破万年金融规则，重塑人类文明](/content/gnews/4/README.md)
  ` YALUN 亚伦`
 
-### [美国陆军开始遣散拒绝接种 COVID-19 疫苗的士兵](/content/gnews/4/README.md)
+### [美国陆军开始遣散拒绝接种 COVID-19 疫苗的士兵](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [认识 TTC 第一个农历新年主题包装背后的女人](/content/gnews/5/README.md)
+### [认识 TTC 第一个农历新年主题包装背后的女人](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [多国奥运健儿抵制北京开幕式](/content/gnews/6/README.md)
+### [多国奥运健儿抵制北京开幕式](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [GTV新闻访谈简报|2022年2月2日早](/content/gnews/7/README.md)
+### [GTV新闻访谈简报|2022年2月2日早](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [CCP完蛋了不要当炮灰要挣脱牢笼](/content/gnews/8/README.md)
+### [CCP完蛋了不要当炮灰要挣脱牢笼](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2/2/2022 文贵直播：甜蜜蜜运动有哪三个回合？美国使馆的授权撤离、文贵唱的三首灭共歌以及文贵现在下的战贴 &#8211; 文贵将让中共的冬奥会开成“冬眠会”](/content/gnews/9/README.md)
+### [2/2/2022 文贵直播：甜蜜蜜运动有哪三个回合？美国使馆的授权撤离、文贵唱的三首灭共歌以及文贵现在下的战贴 &#8211; 文贵将让中共的冬奥会开成“冬眠会”](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [1/31/2022 文贵虎年新春大直播：宋祖英竟拿着老百姓付的中共军费包下维也纳金色大厅去唱《辣妹子》](/content/gnews/10/README.md)
+### [1/31/2022 文贵虎年新春大直播：宋祖英竟拿着老百姓付的中共军费包下维也纳金色大厅去唱《辣妹子》](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [1.31大直播后记：一切荣耀归上帝是不对的！](/content/gnews/11/README.md)
+### [1.31大直播后记：一切荣耀归上帝是不对的！](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|爆料革命推动全世界反对疫苗强制令](/content/gnews/12/README.md)
+### [有声|爆料革命推动全世界反对疫苗强制令](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|Miles背后出现了新中国联邦红旗](/content/gnews/13/README.md)
+### [有声|Miles背后出现了新中国联邦红旗](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [1.31大直播后记：马云尊七哥为男神](/content/gnews/14/README.md)
+### [1.31大直播后记：马云尊七哥为男神](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|金融巨鳄索罗斯预测 习近平连任无望](/content/gnews/15/README.md)
+### [有声|金融巨鳄索罗斯预测 习近平连任无望](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [1.31大直播后记：灭共音乐堪比核弹](/content/gnews/16/README.md)
+### [1.31大直播后记：灭共音乐堪比核弹](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中共病毒及疫苗危机的可怕后果](/content/gnews/17/README.md)
+### [有声|中共病毒及疫苗危机的可怕后果](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/18/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [扬帆每日速递 2022年2月2日版（1）](/content/gnews/19/README.md)
+### [扬帆每日速递 2022年2月2日版（1）](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|欧洲三国电视节目谈论中共威胁台湾](/content/gnews/20/README.md)
+### [有声|欧洲三国电视节目谈论中共威胁台湾](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [辱华？国足1:3输越南 网友：留给中国的对手不多了](/content/gnews/21/README.md)
+### [辱华？国足1:3输越南 网友：留给中国的对手不多了](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年1月31日壬寅新春大直播全文字版（三）](/content/gnews/22/README.md)
+### [2022年1月31日壬寅新春大直播全文字版（三）](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [多国奥运健儿抵制北京开幕式](/content/gnews/23/README.md)
+### [多国奥运健儿抵制北京开幕式](/content/gnews/24/README.md)
  ` Shuizhuyu`
 
-### [有声|除夕随笔](/content/gnews/24/README.md)
+### [有声|除夕随笔](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/25/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [1.31大直播后记：新郭七条](/content/gnews/26/README.md)
+### [1.31大直播后记：新郭七条](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
-
-### [有声|为办冬奥 中共崇礼县政府财务崩盘](/content/gnews/27/README.md)
- ` MOSREC`
 
 ### [多个国家的奥运选手将抵制北京的开幕式](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`

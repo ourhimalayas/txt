@@ -2,36 +2,31 @@
 ---
 
 
-## 有声|除夕随笔
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948238/)
+## 多国奥运健儿抵制北京开幕式
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1948250/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-今天大年三十了，日子好快呀，虎年大吉，民天下的新中国联邦，新春佳节气氛火热而吉祥，战友们的节目满满当当，目不暇接。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-打开gtv、盖特，直播应接不暇，战友们可以随意串门，观赏，互动，好不热闹，更有我们的喜币分分钟都在出现富豪。时间差不多了，估计战友们已经洗漱完毕，买好零食，备好红酒，幸福的哼着甜蜜蜜，静等摇滚巨星，我们尊敬的七哥直播。每个人兴奋的都在想着，晚上又是什么样的利好的消息来呢，晚上七哥会不会脱呢，晚上的节目都会出现那些呢。
-
-原文链接：[除夕随笔](https://gnews.org/zh-hans/1942391/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1237970843-1536x1024-1.jpg)
 
 
+资料来源：Getty
+
+据华盛顿邮报周三报道，奥运会运动员将抵制周五在北京举行的冬奥会开幕式。
+
+据一直在帮助教育和组织人权活动人士称，来自多个国家的奥运运动员想要向中国政府侵犯人权的受害者表示声援，他们一直在悄悄地准备抵制开幕式。
+
+几个月来，驻美国的活动人士一直在与来自几个西方国家的奥运运动员会面，敦促他们就中国政府的大规模暴行和对维吾尔人、藏人、香港人和中国境内其他群体的严厉镇压发表意见。如果运动员谈论人权，将面临中国政府的惩罚威胁，他们几乎都避免在公共场合谈论这个话题。
+
+运动员们还受到来自国际奥委会 (IOC) 及其赞助商的压力，以避免引起争议。但如果他们觉得说出来不安全，活动人士告诉他们，跳过开幕式和闭幕式至少会剥夺中国政府利用这些仪式将其滥用职权合法化并粉饰其罪行的能力。活动人士告诉我，至少有两支西方球队的运动员确认他们不会参加开幕式作为他们个人的抗议形式。
+
+
+
+> [Olympic Athletes From Multiple Countries to Boycott Opening Ceremony in Beijing: Report](https://www.mediaite.com/sports/olympic-athletes-from-multiple-countries-to-boycott-opening-ceremony-in-beijing-report/)
+
+
+
+责任编辑/发布： Shuizhuyu
 
  
 
