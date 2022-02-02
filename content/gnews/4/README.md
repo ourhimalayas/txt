@@ -2,28 +2,44 @@
 ---
 
 
-## 医生战友爆料疫苗灾难先从医疗系统
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1945627/)
+## 喜币从账户间转账到商家接受到整个支付系统与保险挂钩
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945680/)
 
-有在美国的，有在国内的的，有在亚洲的， 就是他们发现他们周围的医生在死， 病人在死 ，而且大咖在死。
+G-TV视频链接：[https://gtv.org/video/id=61f7dd78d90bdd2085a322f9](https://gtv.org/video/id=61f7dd78d90bdd2085a322f9)
 
-**【郭先生直播摘要】 2022.1.27 医生战友爆料疫苗灾难先从医疗系统 **
+**郭文贵先生：**另外一个就咱们刚才说的，咱们数字货币未来走向何方和战友们这个喜支付怎么用？第一步上线的是战友只要你开了KYC账号，大家可以互相用，没有任何问题的，就是。到时候接下来一步一步的，就是你当大家来用的时候，包括跟商家是互相账号、互相转的时候，接下来就给大家接受更多的商家，让大家更多的可以用，然后喜支付就会到另外一个阶段。
 
-**郭先生：**
+就是被很多机构像万事达卡啊，马斯达卡啊，像Coinbase很多交易所接受,交易同时,喜支付所有交易，信用卡、法币都可以流通，它一定是这些结果谁也挡不住，它只是时间的问题。
 
-从昨天到现在，大概有六七个战友给我发了同样的信息。 有个战友是医生，还有一个战友在急救室，有在美国的，有在国内的的，有在亚洲的，就是他们发现他们周围的医生在死，病人在死，而且大咖在死。
+另外一个就是它，整个支付系统未来和保险各方面都挂钩的时候，它自己就不需要别人，普遍的人多的时候，到哪里我不需要你万事达卡，我干嘛我要交你这个费用，是吧？
 
-他说那个环境很恐惧，我就征求了其中一个战友的同意，我说你能不能把你的东西处理一下，明天我们直播时候说一下。他在的医院大咖在死，天天给人家讲课，让你打疫苗的大咖在死。然后大家都恐惧了，灾难就来了，天天给人家讲课的大咖死了，死一个，死两个，死三个。有的像在新加坡某个医院的战友跟我说，他说七哥你知道吗？从前天昨天到现在。
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-昨天晚上6点钟我开着车，听着甜蜜蜜歌声，战友给我发信息说这个事情。七哥我们医院都死了四个。我们院长走道我都发现不走正路，现在走猫步、瘸猫，我们的战友是没有打疫苗。我们的战友是一个超级牛的脑科手术第一把手。从大陆去的，很多年了。他说我不打它，院长到哪里去他都跟着的。他说院长走道都已经走着瘸猫步，不是正着走，已经发抖了，为啥？院长打了三针。
+编辑整理：Jacques；
 
-我说我希望你们的院长早日归天，他说七哥你怎么这个说，我说我从来不这么说，我第一个说你们院长，祝福他早日归天。他早日归天新加坡人少死几个人，他是害人精。他说我们院长要死了，我们新加坡政治就要改了，我说新加坡一定会改的，太过分了。所以这个战友是其中之一，我被要求，被战友同意，把这些资料进行处理以后，说说他发的信息。我们现在给放出来PPT，给大家解释一下。
+字幕文件制作：知津；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-视频剪辑：GC|听写：雨山溪桥客 |翻译：精糧 |校对：Polaris | 视频制作+字幕：小腾腾说 |编辑&发布：闪电训练
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

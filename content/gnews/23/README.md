@@ -2,47 +2,30 @@
 ---
 
 
-## 金融巨鳄索罗斯预测 习近平连任无望
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945244/)
+## 共和党参议员敦促拜登政府加紧对中芯的出口管制
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945343/)
 
-作者：台湾宝岛农场 – dobi
+![资料照片：中芯国际在上海举办的中国国际半导体博览会上的展台。(2020年10月14日)](https://gdb.voanews.com/6ee21c31-9fb2-430f-8b10-61b3faa0901d_cx0_cy1_cw0_w1023_r1_s.jpg)资料照片：中芯国际在上海举办的中国国际半导体博览会上的展台。(2020年10月14日)
+据美国之音2月2日报道，美国共和党参议员敦促拜登行政当局堵住前总统川普时期实施的出口管控措施中的一个“漏洞”，以加强对中共国首要芯片制造商中芯国际(SMIC)的限制。2020年末，川普行政当局将中芯国际纳入美国商务部的实体名单，原因是中芯国际与中共国军方关系密切，这被认为是对美国“明显的国家安全威胁”。
 
+通常，一家公司被纳入贸易黑名单，美国供应商在向其发送任何美国物品时都必须申请特殊许可，而这会面临标准严格的审议。然而，在川普当局将中芯国际加入实体名单时，严格审议标准只适用于运往中共国公司的芯片制造设备，其它美国物件则走“个案”审议程序。去年10月，中芯国际的供应商们获得了价值几十亿美元的许可证。
 
+中共军方通过中共国在海外的企业，或者与海外有业务往来的企业，通过各种手段偷盗技术并输出威胁。美国越来越多的有识之士和军方高层已经意识到了中共对美国国防安全，以及各行各业的威胁，该出议案的出议案，有漏洞的补漏洞。把中共可能带来的危险系数调到最高，把自己可能做到的防范级别做到极致。中共的邪恶本质决定了，只要中共存在一天，就不会停止攻击美国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新闻参考链接：[https://www.voachinese.com/a/republican-senators-press-biden-administration-to-tighten-export-curbs-on-smic-20220201/6422287.html](https://www.voachinese.com/a/republican-senators-press-biden-administration-to-tighten-export-curbs-on-smic-20220201/6422287.html)
 
+编辑：胖丁
 
+* * *
 
-外媒2月1日报道，金融巨鳄索罗斯近日在斯坦福大学演讲时指出：中共党魁习近平目前面临多个危机，其中包括成效欠佳的中共疫苗、国内房地产危机以及出生率下滑等问题。
-
-索罗斯表示：中国房地产热潮的兴起，是基于一种称为“竭泽而渔”的模式，这种模式让中共当局尝到甜头，鼓励人民将积蓄投资于房地产。然而，这种模式所引发的一连串，像是开发商债务违约、房产价格下跌、需求量不足等问题，导致了中国房地产热潮自去年开始，全面冷却，目前已濒临崩溃边缘。 另外，索罗斯还透露，近期共产党内部暗潮汹涌，反习力量越来越强，加上各种习近平无力解决的问题，因此，他对习近平顺利连任的愿望持悲观态度。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/October.jpg)
-参考信息：
-[Soros Says China’s Real Estate Crisis, Omicron Threaten Xi’s Rule](https://www.bloomberg.com/news/articles/2022-01-31/soros-says-china-real-estate-crisis-omicron-threaten-xi-s-rule)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：Zhong
-编辑：天灭中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,28 +2,49 @@
 ---
 
 
-## CECC主席致函国务卿对遣返中共国进行外交干预
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945405/)
+## 为办冬奥 中共崇礼县政府财务崩盘
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945456/)
 
-![在哈萨克斯坦阿拉木图一个中国哈萨克族人组织的办公室里，人们手举在新疆失踪亲属的照片。（2018年12月7日）](https://gdb.voanews.com/0B47DE01-EAC9-4F90-BD46-5D4EF0CF76B6_w1023_r1_s.jpg)在哈萨克斯坦阿拉木图一个中国哈萨克族人组织的办公室里，人们手举在新疆失踪亲属的照片。（2018年12月7日）
-据美国之音2月2日报道，美国国会及行政当局中共国委员会(CECC)的两位主席1日致函美国国务卿布林肯，呼吁美国国务院对摩洛哥、沙特阿拉伯和哈萨克斯坦境内的中共国维吾尔族和哈萨克斯族庇护者可能被遣返的案例进行外交干预。两位主席表示，如果把这些庇护申请者赶回中共国，违反了国际法，而且这些人被遣返后有遭受严重虐待的重大风险，特别是考虑到新疆正在发生的种族灭绝和反人类罪行。
-
-过去十年里，包括沙特、巴基斯坦、埃及、泰国和马来西亚在内的各国当局在中共的压力下，曾经把维吾尔人遣返回中共国。毫无例外，被迫返回中共国的这些人都遭到了任意拘押、酷刑折磨和其它形式的虐待、伤害，甚至失踪。在中共国，人没有人权，动物没有兽权。中共上管天下管地，中间管着的都是奴隶，随便抢任意杀。中共不会把任何一个人当作人，也不会给任何一个人以“人权”。那么，推翻中共，人人拥有人权，人人拥有天赋的自然权利，就不需要再谴责、抗议或者制裁中共。中共魔鬼下到地狱，人间恢复万象更新。
-
-新闻参考链接：[https://www.voachinese.com/a/cecc-chairs-seek-protection-for-uyghurs-and-kazakhs-at-risk-of-deportation-from-morocco-saudi-and-kazakhstan-20220201/6422419.html](https://www.voachinese.com/a/cecc-chairs-seek-protection-for-uyghurs-and-kazakhs-at-risk-of-deportation-from-morocco-saudi-and-kazakhstan-20220201/6422419.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山教育部 – Naughty(文行)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据外国媒体31日报道，中共冬奥会还未正式开始，承办冬奥滑雪项目的张家口崇礼县已经在承受财务崩盘之苦。
+
+据悉，崇礼县是北京冬奥赛事三大场地之一，为建设冬奥场馆，该县的财政支出比以往增加了两倍。但同时遇到了国家三条红线的房地产限令，再加上疫情的影响，房地产跌去了3成多，重创了土地销售收入。而由冬奥推动的投资热潮已在逐渐消退。该县财政官员曾透露，县财政正面临巨额资金短缺，上级政府本应退还崇礼为这些活动支付的预付款，但尚未退还。
+
+除财政压力外，经济整体衰退和疫情等因素对当地的就业也造成了毁灭性影响，目前还看不到有复苏的希望。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-1.jpg)
+参考信息：
+[金融時報：冬奧還沒辦 中國地方政府財務已崩盤](https://ec.ltn.com.tw/article/breakingnews/3818412)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：天灭中共
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
