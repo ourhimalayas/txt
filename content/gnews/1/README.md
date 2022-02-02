@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵：中共70年来用同样的谎言给老百姓洗脑
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946956/)
+## 郭文贵先生：新中国联邦的影响力已经传遍世界
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1947082/)
 
-1/31/2022 文贵虎年新春大直播：中共70年来用同样的谎言给老百姓洗脑， 压榨人民的同时还要让人感谢它们。
+1/31/2022 文贵虎年新春大直播：我们令中共如临大敌，新中国联邦的影响力已经传遍世界。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

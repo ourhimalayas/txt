@@ -2,16 +2,12 @@
 ---
 
 
-## 喜币、全球股市和其他数字货币走向
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1946616/)
+## 加拿大卡车司机们希望结束疫苗强制令，在此之前不会退缩
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1946773/)
 
-文贵大直播20220202
+01/29/2022 卡车司机们希望结束对跨境卡车司机的疫苗强制，并表示这会使供应链面临风险。他们准备在渥太华呆上几周甚至更长时间。这为了整个加拿大，不仅为了安大略省或卡车司机，而是为了所有人。他们表示在疫苗强制解除之前不会退缩。一名卡车司机说：我准备来一个月的食物。 如果我们不运输食物，如果我们不运输产品，你们就完蛋了。所以你惹了卡车司机，你就必须来处理。
 
-撰稿：ILOVE战神（文凡）（香草山）Arthur文徐（DC）
-
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片9.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
