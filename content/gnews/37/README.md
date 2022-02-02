@@ -2,36 +2,23 @@
 ---
 
 
-## 郭先生警示战友远离未经授权的游行活动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947177/)
+## 2022.2.2大直播 新中国联邦用音乐、用真实、用行动唤醒国人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1947232/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月30日的直播中，郭文贵先生向所有爆料革命的战友们发出预警称，任何个人或组织未经授权，不得擅自使用新中国联邦或农场的标志参与任何政治游行或抗议活动。
+撰稿：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot1.jpg)
+郭文贵先生在2022年2月2日大直播中，提到了新中国联邦春晚上宋祖英被郝海东爆料的事一夜之间墙内尽人皆知，郭先生追问为什么郑州水灾，武汉病毒，杨佳杀警这些事无人提及，而一个明星的传闻却被全国人关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpeg)
+郭先生指出这就是CCTV春晚最大的祸害，中共利用春晚掩盖真相，粉饰太平，全民洗脑。是中共这个体制决定了CCTV春晚的性质，让春晚成为中共的政治风向标，成为中共掌权者的勾兑工具。
 
-郭先生指出，世界各国中反对强制疫苗令的抗议活动已经在全球范围内掀起了反对极权统治的潮流，他们是保卫民主自由的英雄。但是，那些初衷是为了自由和正义的抗议活动大多都难免落入被政治构陷的结局，有些甚至被抹黑成暴力事件。
+郭先生提到，国外通过对CCTV春节联欢晚会的调查发现中国人的宗教、节日、活动，所有的一切都是被国家和政府部门控制安排，中国人完全已经失去了辨别能力。
 
-为此，郭先生强调，任何爆料革命的战友如果没有得到喜马拉雅联盟委员会的授权而擅自打着新中国联邦或任何农场的旗号参与这类游行，他们都会被清理出爆料革命。
+郭先生指出,CCTV春晚是精神毒药，毒害了几代中国人，它除了给人们洗脑之外，最可怕的是扼杀人们对政治、对知识、对世界的认知，浪费人们的生命。
 
-郭先生还补充道，政治游行的走向往往不可控，而我们新中国联邦绝不能置身于这样的危机之中。尤其在全世界“排华”倾向日趋严重的当下，中共以及西方黑暗势力会充分利用这些事件污名化新中国联邦，甚至会诬陷爆料革命为邪教组织或暴力分子。非常时期，战友们必须谨慎地保持安全距离。
+郭先生强调，爆料革命就利用了共产党几十年洗脑的这一做法，创办了新中国联邦春晚。2022年新中国联邦春晚取得了巨大的成功，国内观看超过2.5亿次，重播率高达50-60%。新中国联邦今天用音乐的力量，用真实的力量，用行动的力量唤醒了人们。
 
-参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
+郭先生认为共产党真的是完了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
