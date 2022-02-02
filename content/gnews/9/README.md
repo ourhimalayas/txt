@@ -2,36 +2,20 @@
 ---
 
 
-## 郭先生警示战友远离未经授权的游行活动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947177/)
+## 七哥用生命在歌唱！灭共曲威力胜核弹
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1947230/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月30日的直播中，郭文贵先生向所有爆料革命的战友们发出预警称，任何个人或组织未经授权，不得擅自使用新中国联邦或农场的标志参与任何政治游行或抗议活动。
+摇滚巨星郭文贵先生在大直播中现场献唱《甜蜜蜜》、《一帘幽梦》、《塞北的雪》，真情流露催人泪下，战友无不动情。其歌声的威力不亚于一枚核弹，开啓数亿百姓的心智，鼓舞亿万战友更勇敢站出来，一同灭共！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-01-31-at-14.34.06.jpeg)
+郭文贵先生唱歌的真实，与中共洗脑式的春节晚会及其假唱，形成鲜明对比，真情实感的流露如一枚枚射向中共的核弹。他在用生命来演唱，极具穿透力，是发自灵魂深处的呐喊，很多词唯有战友能懂！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpeg)
+灭共版的《一帘幽梦》打动了亿万战友，力度之强，影响之远，超乎想象。墙内同胞春节回看七哥唱歌点击率极高。歌词之真，直达灵魂，有如一场没有硝烟的战争，威力远超核弹。
 
-郭先生指出，世界各国中反对强制疫苗令的抗议活动已经在全球范围内掀起了反对极权统治的潮流，他们是保卫民主自由的英雄。但是，那些初衷是为了自由和正义的抗议活动大多都难免落入被政治构陷的结局，有些甚至被抹黑成暴力事件。
+《塞北的雪》更是使得中共在冬奥会开幕式投鼠忌器，揭露了中共在台湾问题上的险恶居心，郭先生战略全方面碾压中共！
 
-为此，郭先生强调，任何爆料革命的战友如果没有得到喜马拉雅联盟委员会的授权而擅自打着新中国联邦或任何农场的旗号参与这类游行，他们都会被清理出爆料革命。
+文案编辑：雪菜
+校对整理：麵包树
 
-郭先生还补充道，政治游行的走向往往不可控，而我们新中国联邦绝不能置身于这样的危机之中。尤其在全世界“排华”倾向日趋严重的当下，中共以及西方黑暗势力会充分利用这些事件污名化新中国联邦，甚至会诬陷爆料革命为邪教组织或暴力分子。非常时期，战友们必须谨慎地保持安全距离。
-
-参考链接：[2022年1月30日 文贵直播](https://gtv.org/video/id=61f6900896ba5d73e0bee910)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

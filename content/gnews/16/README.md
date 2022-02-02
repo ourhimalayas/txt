@@ -2,35 +2,26 @@
 ---
 
 
-## 有声|新中国联邦永远成为第三方的监督者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1947094/)
+## 加拿大总理特鲁多感染新冠病毒
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1947153/)
 
-配音：香草山佛教部 – 李傻
+采编/编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.jpg)
+[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=CRyAG2o7&amp;id=FB2858F3B595404FCEEF2D7992AD17491E019FBD&amp;thid=OIF.W8qeoraz6HDFc0vt%2fuZURQ&amp;mediaurl=https%3a%2f%2fcdn.cheknews.ca%2fwp-content%2fuploads%2f2020%2f11%2f10132752%2ftrudeaunov10.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.091c801b6a3bc854d78f815a4e7b7a56%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=543&amp;expw=963&amp;q=justin+trudeau+covid+update&amp;simid=95800763123&amp;FORM=IRPRST&amp;ck=5BCA9EA2B6B3E870C5734BEDFEE65445&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
 
+加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
 
+特鲁多在推特上表示：由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作。同时还不忘提请国民接种疫苗以及加强剂。
 
+报道称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-1-1.jpg)
-人类文明的变迁和争斗，无一例外的，都涉及到人类大屠杀，最后赢家都会拿走权力。新中国联邦绝不会去触碰这个权力，将永远成为第三方监督者，让中国人实现新中国联邦宣言的承诺，对背道而驰者绝不姑息。新中国联邦宪法必须是一人一票选择的结果，这次文明的力量将得到更高维度力量的加持。
+据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗！
 
-文字版原文：[新中国联邦永远成为第三方的监督者](https://gnews.org/zh-hans/1941074/)
+校对编辑：硫酸羟氯喹64
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+发稿： 苦尽甜来 (文來）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[原文链接](https://twitter.com/JustinTrudeau/status/1488162322187182085?t=DXtzvVrQhlPz82X1CoZq7A&amp;s=19)
 
  
 
