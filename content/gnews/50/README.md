@@ -2,23 +2,23 @@
 ---
 
 
-## 澳洲官方数据显示80%中共病毒死亡者完全接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941078/)
+## 墙内多个庆春节节目出现《甜蜜蜜》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1941091/)
 
-撰稿：纽约香草山文艺部 – 宁文静
+撰稿：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据1月30日外媒报道，澳大利亚新南威尔士州的中共病毒住院率和死亡人数正在急剧上升。官方数据显示，正是疫苗接种导致了这一现象。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-5.jpg)
-在去年11月26日至今年1月8日期间，新州的中共病毒确诊病例增加了10倍，打破疫情爆发两年来的最高记录。最新数据显示，每10个住院病例中就有9个病例、每10个死亡病例中就有8个是三针或完全接种人群。接种疫苗人群占中共病毒感染病例的99% 。
+1月31日，盖特平台上多个战友爆出墙内春晚出现了邓丽君的《甜蜜蜜》。首先是重庆卫视的《2022年川渝春晚》上，陈建斌、蒋勤勤夫妇演唱了《甜蜜蜜》，之后更有中共中央电视台四台为春晚造势的节目背景曲，采用了《甜蜜蜜》这首歌。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-6.jpg)
+而郭文贵先生在1月下旬的两次直播中都透露，将在冬奥前后开始《甜蜜蜜》灭共运动，让中共老杂毛们寻找“在哪里”的恐惧同时，给全球华人一个甜蜜蜜的春节。
 
-分析人士指出，事实证明，完全接种中共病毒疫苗的人群主导的大流行病才刚刚开始。
+参考链接：
+1. [墙内多个庆春节节目出现《甜蜜蜜》](https://www.gettr.com/post/prlodlf07e)
+2.[墙内多个庆春节节目出现《甜蜜蜜》](https://mega.nz/file/pdwjnSpB#EKIb4uEpZVTMe0hhJLo3l4SR2JGEbqo0cWSV21mGcoE)
 
-参考链接：[澳洲官方数据显示80%中共病毒死亡者完全接种疫苗](https://dailyexpose.uk/2022/01/30/australias-pandemic-of-the-fully-vaccinated/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：Jack Li文阳
-编辑：文真
+总编：DM
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -29,6 +29,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
