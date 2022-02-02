@@ -2,49 +2,25 @@
 ---
 
 
-## 为办冬奥 中共崇礼县政府财务崩盘
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945456/)
+## 1.31大直播后记： 英雄有泪不轻弹
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945489/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+整理：雅典娜速记组
+编辑：Sadhu
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)图片来源：雅典娜设计组
 
 
-据外国媒体31日报道，中共冬奥会还未正式开始，承办冬奥滑雪项目的张家口崇礼县已经在承受财务崩盘之苦。
+刚才草根兄弟说他泪点一般来讲很高，不哭。从小我娘骂我爹说，你爹的人没有眼泪。我很少看到我爹哭，我娘是几乎经常哭，我就像我娘，眼泪多，泪点低。我娘老骂我爹一句话，就他爹死了他娘死了他都不会哭，说我爹。我很少见到我父亲哭，没有见过。 后来我真的认真研究过这个事。 什么情况下人的泪点高？ 自私，冷漠。还有一个经历过很多不平事，他见多不怪。后来我就问过我父亲，我说我老娘老骂你，说你老哭不了。我老爹啪一下眼泪就下来了。我爹说我哭，你知道我小时候腿被打断是什么感觉吗？ 被人打，被扔到河里啥感觉吗？ 你知道我饿了几天没饭吃啥感觉吗？ 我非要在你娘面前哭吗？我哭着找你娘，你娘找谁哭去？你娘找我哭。我对我爹是重新理解，就是说有的人他泪点高，他是忍受了常人没有忍受的痛，不是自私不是害怕，他没到那个哭的时候，我今天就是这个感受，就是唱那个歌。昨天唐平把邓丽君的视频发给我时候，我就听到不行了，我是听了前一段，我没听后一段儿。我到了办公室，这个Q妹给我放后面，哇，我就收不住了，这眼泪就控制不住了。下午的进屋，就把我给整哭了，然后就开始练，就我不敢唱这个一帘幽梦，啊，然后今天感觉到我真是歌王了，我真的感觉到了！这一生当中我就是天才的歌王，我一点也不说谦虚了，现在。今天我有感觉了！
 
-据悉，崇礼县是北京冬奥赛事三大场地之一，为建设冬奥场馆，该县的财政支出比以往增加了两倍。但同时遇到了国家三条红线的房地产限令，再加上疫情的影响，房地产跌去了3成多，重创了土地销售收入。而由冬奥推动的投资热潮已在逐渐消退。该县财政官员曾透露，县财政正面临巨额资金短缺，上级政府本应退还崇礼为这些活动支付的预付款，但尚未退还。
+***发布：**tianzhihuan*
 
-除财政压力外，经济整体衰退和疫情等因素对当地的就业也造成了毁灭性影响，目前还看不到有复苏的希望。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-1.jpg)
-参考信息：
-[金融時報：冬奧還沒辦 中國地方政府財務已崩盤](https://ec.ltn.com.tw/article/breakingnews/3818412)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：天灭中共
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

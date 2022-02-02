@@ -2,46 +2,64 @@
 ---
 
 
-## 国内投资最多华人之一的夏平女士临死前被剥夺一切资产
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1945453/)
+## 日本通过临床试验确定伊维菌素对治疗新冠肺炎的有效
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945483/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7da75d90bdd2085a3217c](https://gtv.org/video/id=61f7da75d90bdd2085a3217c)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IvermectinJPG-1-700x420-1.jpg)几十年来，伊维菌素被广泛用于治疗一系列疾病，包括治疗虱子、其他寄生虫和病毒。Natasha Holt摄/大纪元
+摘要翻译：
 
-**郭文贵先生：**就像我今天我可以非常自信地说，我可以让任何人痛苦，没有人可以让我痛苦。我所有的痛苦是来自我内心的感情。就像我昨天听到一个我最重要的一位，最重要、最重要的一位我人生中经历的一个女性过世了。我知道她过世，我真的是昨天晚上一直难受，我在今天上直播前我还难受，很难受。这是我的痛苦，因为她不在的时候我并不知道。因为她在香港，我并没有能见到她，我很难受。
+来源于《大纪元时报》网站2022年01月31日的报道，
 
-是昨天王雁平来告诉我这个消息，这是我很痛苦，但这种痛苦是我的感情让我造成的，不是别人、困难、挑战或者因为恐惧让我痛苦。我可以解脱和接受这种痛苦，因为她毕竟是95了嘛。
+根据一项III期临床试验，一家日本企业集团发现，抗寄生虫药物伊维菌素(Ivermectin)对治疗新冠变异毒株奥米克戎(Omicron)是有效和安全的。
 
-大家要想知道，我想说的就是原来裕达的董事长，就是夏平董事长。她去年过世了，95岁。她比我母亲大三岁，所以说我很难过，非常难过。共产党在我爆料革命之后，对她在国内的家人和钱都给查封了。
+兴和株式会社(Kowa Co.Ltd.)是一家集贸易、酒店和电子以及健康和医疗应用于一体的企业集团，它在1月31日发布了一份新闻稿，称发现伊维菌素对变异毒株奥米克戎有效。截至记者发稿时，兴和株式会社的代表没有回应置评请求。
 
-你说共产党有多不要脸，夏平董事长给国内投资最多的华人之一。在她临死前，老人家在国内资产全部被剥夺。所以海外华人你想给中国共产党打交道，你永远是这下场。就当年中国人感谢香港人、感谢台湾人。香港夏平董事长捐了多少钱？给国内投了多少资在国内？结果弄成那么惨。我很难受，我很抱歉。这是一种感性的东西。
+该公司与位于东京的北里大学(Kitasato University)合作，表示伊维菌素对所有“突变毒株”具有“相同的抗病毒效果”，包括变异毒株阿尔法(Alpha)、德尔塔(Delta)和奥米克戎。兴和补充说，伊维菌素可阻止病毒的入侵同时抑制病毒的复制。
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+“（伊维菌素）有望作为一种治疗所有新的冠状病毒传染病的药物(片剂)。”报告称。
 
-编辑整理：Jacques；
+伊维菌素已被世界卫生组织用于治疗寄生虫感染30多年。兴和的报告说，志愿者已经在非洲国家分发了这种药物，该药物在这些国家被发现非常有效。然而，由于美国食品药物监督管理局(FDA)尚未批准使用伊维菌素作为治疗新冠病毒的方法，这种治疗方法最近陷入了争议，尽管该药物被人类用于治疗多种疾病。
 
-字幕文件制作：知津；
+在FDA公开谴责伊维菌素使用期间，却拒绝对信息自由法案(FOIA)请求做出回应，该请求要求FDA提供有关使用伊维菌素治疗新冠病毒肺炎的任何副作用报告的详细信息。
 
-视频制作及上传：Cindy；
+联邦政府向全国各地的医院支付治疗新冠病毒患者的费用，但支付的费用与已批准的方法挂钩，伊维菌素不是该方案的一部分。然而，渴望拯救亲人的家庭正秘密将药物偷偷带进医院作为最后的努力，这往往最终帮助感染者康复。
 
-G-News发布：小满；
+根据多项研究，全球22个国家中的全部或部分国家已批准使用伊维菌素治疗新冠病毒肺炎。日本尚未批准伊维菌素用于治疗新冠病毒肺炎。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+一项已经提出的法案使新罕布什尔州成为美国第一个将伊维菌素作为已批准的新冠病毒肺炎治疗的一部分，并将其作为非处方药提供的州。“如果新冠病毒患者可以使用人用伊维菌素，我绝对毫不怀疑很多生命会得到拯救。”州众议员、共和党人、注册护士利亚·库什曼(Leah Cushman)向《大纪元时报》介绍了她提出的HB3005法案。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+使用伊维菌素的反对者声称这种药物非常危险。达特茅斯-希区柯克医疗中心的大卫·莱文(David Levine)博士在他关于该法案的书面证词中写道：“我永远不会希望这种药物开给自己或我的家人，并会对任何向我的亲人推荐这种药物的人采取法律行动。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+支持使用伊维菌素的保罗·马里克(Paul Marik)博士作证说，伊维菌素“是地球上最安全的药物之一”。马里克是由医生组成的“前线新冠病毒重症护理联盟”(Frontline COVID-19 Critical Care Alliance)的联合创始人，他说伊维菌素在79个国家被批准用于治疗新冠病毒肺炎。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+“所以不知何故，日本人、印度人、巴西人可以安全地容许它，但它对美国人却是有毒的。别开玩笑了。”马里克说。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+马里克被迫辞去他在东弗吉尼亚医学院的职位，因为有关使用新冠病毒肺炎替代治疗方法的法律纠纷，包括使用伊维菌素。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**简评：**
+此报道通过日本兴和株式会社这家有医疗专业背景与日本北里大学合作的一项III期临床试验证实伊维菌素对治疗新冠病毒肺炎有效且安全，同时指出伊维菌素也是一种被世界卫生组织用于治疗寄生虫感染30多年的药物。目前伊维菌素已经被世界上22个国家接受用于治疗新冠病毒肺炎，甚至在美国不被法律的允许下人们偷偷将伊维菌素带进医院给自己被新冠病毒感染的亲人使用，结果是让感染者康复。但即便如此，伊维菌素仍然被打压和妖魔化。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+以上种种污蔑治病良药伊维菌素的非正常现象，让人们看清楚了以中共政权为首的世界黑暗利益集团的力量已经深入到世界的各个角落，甚至包括美国FDA竟然也打着“科学”的旗号误导民众并对民众行使医疗霸权。为了让被误导的民众更快觉醒，新中国联邦的战友们需要进一步联合全世界的正义力量，传播病毒和疫苗真相，以打破被沼泽地团伙垄断和控制的舆论，将病毒和疫苗真相及治疗新冠病毒的良药硫酸羟氯喹、伊维菌素和青蒿素告诉世界，让世界人民更快恢复到正常的生活之中。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+新闻链接：[Ivermectin Shows Antiviral Effect Against Omicron: Japanese Pharma Firm](https://www.theepochtimes.com/ivermectin-safe-and-effective-for-treating-omicron-japanese-company_4246848.html)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*翻译/简评：Brianchow*
+*校对：Harvey（叶知秋）*
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

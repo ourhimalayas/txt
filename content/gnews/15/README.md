@@ -2,19 +2,49 @@
 ---
 
 
-## 外资全撤，冬奥会是礼物
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1945425/)
+## 为办冬奥 中共崇礼县政府财务崩盘
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1945456/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+作者：纽约香草山教育部 – Naughty(文行)
 
-*发布：玉米地守望者*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据外国媒体31日报道，中共冬奥会还未正式开始，承办冬奥滑雪项目的张家口崇礼县已经在承受财务崩盘之苦。
+
+据悉，崇礼县是北京冬奥赛事三大场地之一，为建设冬奥场馆，该县的财政支出比以往增加了两倍。但同时遇到了国家三条红线的房地产限令，再加上疫情的影响，房地产跌去了3成多，重创了土地销售收入。而由冬奥推动的投资热潮已在逐渐消退。该县财政官员曾透露，县财政正面临巨额资金短缺，上级政府本应退还崇礼为这些活动支付的预付款，但尚未退还。
+
+除财政压力外，经济整体衰退和疫情等因素对当地的就业也造成了毁灭性影响，目前还看不到有复苏的希望。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-1.jpg)
+参考信息：
+[金融時報：冬奧還沒辦 中國地方政府財務已崩盤](https://ec.ltn.com.tw/article/breakingnews/3818412)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：天灭中共
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
