@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵先生提出的2022郭七条
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1947015/)
+## 郭文贵先生：新中国联邦的影响力已经传遍世界
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1947082/)
 
-1/31/2022 文贵虎年新春大直播：郭文贵先生于虎年春节大直播上提出了2022年新郭七条，与新中国联邦战友们共勉
+1/31/2022 文贵虎年新春大直播：我们令中共如临大敌，新中国联邦的影响力已经传遍世界。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

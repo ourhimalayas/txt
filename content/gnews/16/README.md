@@ -2,27 +2,37 @@
 ---
 
 
-## 加拿大总理特鲁多感染新冠病毒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1947153/)
+## 新中国联邦新闻英文节目完美首播
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1947197/)
 
-采编/编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.jpg)
-[图片来源](https://www.bing.com/images/search?view=detailV2&amp;ccid=CRyAG2o7&amp;id=FB2858F3B595404FCEEF2D7992AD17491E019FBD&amp;thid=OIF.W8qeoraz6HDFc0vt%2fuZURQ&amp;mediaurl=https%3a%2f%2fcdn.cheknews.ca%2fwp-content%2fuploads%2f2020%2f11%2f10132752%2ftrudeaunov10.jpg&amp;cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.091c801b6a3bc854d78f815a4e7b7a56%3frik%3d%26pid%3dImgRaw%26r%3d0&amp;exph=543&amp;expw=963&amp;q=justin+trudeau+covid+update&amp;simid=95800763123&amp;FORM=IRPRST&amp;ck=5BCA9EA2B6B3E870C5734BEDFEE65445&amp;selectedIndex=18&amp;ajaxhist=0&amp;ajaxserp=0)
+作者：纽约香草山教育部- Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
 
-加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-2.jpeg)
 
-特鲁多在推特上表示：由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作。同时还不忘提请国民接种疫苗以及加强剂。
+据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
 
-报道称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
+新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
 
-据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗！
+另一方面，英文节目的推出将为新中国联邦获取更大的话语权和来自国际社会的承认，也为我们更多地增加国际影响力迈出了成功的一步。
 
-校对编辑：硫酸羟氯喹64
+参考链接：
+[Watch 全球喜马拉雅农场联盟委员会 live on GETTR2022.02.01 NFSC News](https://gettr.com/post/prvwxq7573)
 
-发稿： 苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-[原文链接](https://twitter.com/JustinTrudeau/status/1488162322187182085?t=DXtzvVrQhlPz82X1CoZq7A&amp;s=19)
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
