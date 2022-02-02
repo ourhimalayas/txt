@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 6:24 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: We have made the CCP so terrified, seeing us as their biggest enemy. The influence of the NFSC has spread around the world.<br/><br/>1/31/2022 文贵虎年新春大直播：我们令中共如临大敌，新中国联邦的影响力已经传遍世界。<br/>
+![img](https://media.gettr.com/group23/getter/2022/02/02/06/a6b519a4-f791-19d5-4076-88ec640d1918/out.jpg)
+
+---
+
 `@miles 2/2/2022 3:03 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: What are the secrets behind my singing the song "The Snow Taking Down the CCP"? "The Snow Taking Down the CCP” is a piece of unprecedented epic music. Fellow fighters, you should all sing it!<br/><br/>1/31/2022 文贵虎年新春大直播：文贵演唱这首《灭共的雪》的背后有什么不认为人知的秘密？《灭共的雪》是前无古人的史诗般的音乐，战友们好好唱这首歌吧！<br/>
@@ -151,13 +158,6 @@
 
 1/31/2022 文贵虎年新春大直播：<br/>祝亲爱的兄弟姐妹们新春快乐！虎年<br/>大吉！平平安安！㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯<br/><br/>1/31/2022 Miles Guo’s Chinese New Year Live<br/><br/>Wish all my dear brothers and sisters a happy Spring Festival and a lucky and safe year of Tiger!㊗️㊗️㊗️🧧🧧🧧🙏🙏🙏🐯🐯🐯
 ![img](https://media.gettr.com/group21/getter/2022/02/01/02/6d50107f-63e5-6da7-870b-57ad12d8ad04/027f528427f7b9c01e56cb593f6f5b5d.jpg)
-
----
-
-`@miles 2/1/2022 1:11 AM (UTC)`
-
-2022年壬寅年新春大直播
-![img](https://media.gettr.com/group44/origin/2022/01/31/12/1847a9a6-7fb1-2f16-1321-a5821623b4f6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
