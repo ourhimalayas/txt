@@ -2,61 +2,49 @@
 ---
 
 
-## 魁北克省道格拉斯医院工作人员举行抗议活动,称这不仅是为了要讨回一千元奖金
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1944432/)
+## 践行要与西方和世界订立千年和平之约的新中国联邦宣言
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944476/)
 
-2022-02-01
+G-TV视频链接：[https://gtv.org/video/id=61f7cc54d90bdd2085a31a57](https://gtv.org/video/id=61f7cc54d90bdd2085a31a57)
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/HA8LY1U1CSXM9XU@GR4M.png)图片来源：CTV NEWS（2022 年 1 月 31 日）
-CTV NEWS（卢卡·卡鲁索-莫罗Luca Caruso-Moro，2022 年 1 月 31 日）发表一篇题为《道格拉斯医院木匠和其他维修人员想要讨回疫情（大流行）期间应得的奖金和应有的“尊重”》的文章报道，周一（2022 年 1 月 31 日），道格拉斯精神病院的一群工作人员在午休时间举行了抗议活动，称他们要讨回疫情（大流行）期间应得的奖金。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4CCJJU_8@MDZHWQCC.png)图片来源：CTV NEWS（2022 年 1 月 31 日）
-周一（2022 年 1 月 31 日），道格拉斯精神病院的一群工作人员在午休时间举行了抗议活动，称他们要讨回疫情（大流行）期间应得的奖金。
+**郭文贵先生：**大家一定要记住，这是我们的新中国联邦的由郝海东先生、叶钊颖女士、班农先生的我们的宣言，永远不要忘了！只有和世界和平相处的中国人，只有一个给人带来和平的中国人，特别大家想到，在亚洲、全人类75亿人口，仅仅在东亚、印度、巴基斯坦，还有那个什么，这三个大国家，东亚国家，再加上日本，再加上中共国，我们占了将近一半的人口，在亚洲。
 
-#### 医院维修工人没有资格享受这个奖金
+如果我们在亚洲没有好的邻居，没有一个好的一个和平的、良好的相处的环境，特别是靠腐败、侵蚀人家的各国的政治和元首，不但给人家带来是灾难，给咱们带来无穷无尽的麻烦。
 
-他们（抗议活动者）不是卫生保健工作者，而是木匠和其他维修工人，他们认为该省设立的鼓励人们留在医院工作的奖金也应该适用于他们，因为他们在同一（COVID-19）环境中工作。
+其中更重要一条的事情，你看这个巴基斯坦，七哥是很有资格说这些，这两派，谢里夫、还有穆沙拉夫。穆沙拉夫是他的死敌。穆沙拉夫的全家我都认识，我经历过两次。穆沙拉夫的家人和谢里夫的家人为了见我，在门口打起来了。这是在哪？就在英国。
 
-“这将对他们产生积极的影响” ，SCFP 工会的工人代表范妮·德蒙蒂尼 (Fanny Demontigny) 说。
+第二次在北京盘古酒店，两边都在北京去“拉皮条”去了，是吧！就出卖去了——讨好，结果是也在盘古喝完酒打起来。就是你能看到这个国家两个总统，统治了巴基斯坦那么多年的人，恨不得把这国家什么都卖给你。
 
-“他们为这些COVID单元病房建造了墙壁，他们每天都在那里确保COVID单元病房正常运行，他们同样需要奖金鼓励”。
+你看到柬埔寨西哈努克还有他儿子，从有满头黑发到最后一根发都没有。全家是生的生，死的死。你再看到柬埔寨的杀掠……这就为什么，我们一定要和西方和世界有个千年的和平协议。一个十几亿的中国人，我们只要不打人，人家敢打我们还真不多。我们要有绝对的国防力量，但绝不能有侵略的力量。
 
-在普遍的倦怠和劳动力短缺的情况下，该省一直向医护人员支付每月 1,000 加元的奖金，以试图让他们继续工作，但维修工人却没有资格享受这个奖金。
+字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-德蒙蒂尼说，已经多次提出这个要求。
+编辑整理：Jacques；
 
-抗议的工人说，他们被遗忘。
+字幕文件制作：小满；
 
-SCFP 工会主席乔纳森·德尚 (Jonathan Deschamps) 说：“我们开始看到困扰，很多人失业”。
+视频制作及上传：Cindy；
 
-该省卫生部和财政部没有回应工会的要求，但表示新的补偿措施旨在加强对患者的诊所服务，而不是补偿接触病毒的风险。
+G-News发布：小满；
 
-#### 继续抗议，直到得到公平待遇
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-维修人员表示，这不仅仅是为了钱。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-“99% 是涉及尊重”，道格拉斯的木匠帕特里克·佩洛金 (Patrick Peloquin) 说。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“我们建造了健身房，我们 建造了COVID单元病房……”。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他和他的同事还表示，他们计划继续抗议，直到他们得到公平待遇。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-#### “公民不服从”示威活动不断发生
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-自从疫情爆发到现在两年多的时间以来，反对卫生措施的“公民不服从”示威活动不断发生。这次示威活动是合法地，积极地、非暴力地向政府表答他们受到了不公平待遇
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**参考资料**：
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-1. [CTV NEWS，卢卡·卡鲁索-莫罗Luca Caruso-Moro，2022 年 1 月 31 日，Douglas hospital carpenters, other maintenance staff want pandemic bonuses and ‘respect](https://montreal.ctvnews.ca/douglas-hospital-carpenters-other-maintenance-staff-want-pandemic-bonuses-and-respect-1.5762324)‘
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-
-编辑：LILY
-发布：肥鯮
-校对：班粉小哥
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

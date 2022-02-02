@@ -15,110 +15,110 @@
 
 ---
 
-### [2022年1月21日西方开始和中共政治脱钩、经济脱钩](/content/gnews/1/README.md)
+### [江泽民派系的谢里夫公开承认中共给钱证明中共腐败世界](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [魁北克省道格拉斯医院工作人员举行抗议活动,称这不仅是为了要讨回一千元奖金](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [1.31大直播后记：无苗族是人类的火种](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [共产党把巴基斯坦委内瑞拉吉尔吉斯朝鲜等国家推向地狱](/content/gnews/4/README.md)
+### [践行要与西方和世界订立千年和平之约的新中国联邦宣言](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [“生育八孩女子事件”官方报道：系结婚时未核实身份信息](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [马建副部长和七哥在巴基斯坦躲过孟建柱孙力军三次暗杀](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [命运是冥冥注定（二）](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [辉瑞要求美国授权 5 岁以下儿童接种病毒疫苗](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [共产党用行贿外国政要一千万自己拿走一个亿的方式盗国](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [1.31大直播后记： 健康的活着最重要](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [改变中国人留给世界的木讷懦弱自私眼神游移不变的形象](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美国从反恐战争转向与中共对抗 蓬佩奥警告中共国崛起](/content/gnews/12/README.md)
+### [研究显示伊维菌素可以有效预防中共病毒感染](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [再次吹响灭共号角](/content/gnews/13/README.md)
+### [有声|欧洲商会表示 ：香港可能会在2024年之前保持隔离状态](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [2022年1月21日西方开始和中共政治脱钩、经济脱钩](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [什么是修行](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [游行需要注意的事情](/content/gnews/14/README.md)
+### [2022年2月2日《樱花简报》：东京新增中共病毒人数首次破万创新高](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [魁北克省道格拉斯医院工作人员举行抗议活动,称这不仅是为了要讨回一千元奖金](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [1.31大直播后记：无苗族是人类的火种](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [法国变相抵制冬奥会，欧洲各国政治操作榨干CCP](/content/gnews/15/README.md)
+### [共产党把巴基斯坦委内瑞拉吉尔吉斯朝鲜等国家推向地狱](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [“生育八孩女子事件”官方报道：系结婚时未核实身份信息](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [马建副部长和七哥在巴基斯坦躲过孟建柱孙力军三次暗杀](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [命运是冥冥注定（二）](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [辉瑞要求美国授权 5 岁以下儿童接种病毒疫苗](/content/gnews/14/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [共产党用行贿外国政要一千万自己拿走一个亿的方式盗国](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [1.31大直播后记： 健康的活着最重要](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [改变中国人留给世界的木讷懦弱自私眼神游移不变的形象](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美国从反恐战争转向与中共对抗 蓬佩奥警告中共国崛起](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [再次吹响灭共号角](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [法国变相抵制冬奥会，欧洲各国政治操作榨干CCP](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [文贵大直播就要把活在噩梦中的中国人从噩梦中解脱出来](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文•贵天成——文贵先生谈“北京冬奥会”（二十六）](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [扬帆每日速递2022年2月1日版（2）](/content/gnews/18/README.md)
+### [扬帆每日速递2022年2月1日版（2）](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [Hpay上市了](/content/gnews/19/README.md)
+### [Hpay上市了](/content/gnews/22/README.md)
  ` genwsGNEWS`
 
-### [我们正处在一个非常危险的时刻](/content/gnews/20/README.md)
+### [我们正处在一个非常危险的时刻](/content/gnews/23/README.md)
  ` DC政经`
 
-### [扬帆每日速递 2022年2月1日 特别版](/content/gnews/21/README.md)
+### [扬帆每日速递 2022年2月1日 特别版](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [Himayala Pay(Hpay/喜支付)正式上市](/content/gnews/22/README.md)
+### [Himayala Pay(Hpay/喜支付)正式上市](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [有声|多数欧盟研究员称欧中关系将继续恶化](/content/gnews/23/README.md)
+### [有声|多数欧盟研究员称欧中关系将继续恶化](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|外媒称中共通过贿赂使西方忽视其暴行](/content/gnews/24/README.md)
+### [有声|外媒称中共通过贿赂使西方忽视其暴行](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [日本国会通过关于中国人权状况的决议](/content/gnews/25/README.md)
+### [日本国会通过关于中国人权状况的决议](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年1月31日 《春节大直播》 全文字版（一）](/content/gnews/26/README.md)
+### [2022年1月31日 《春节大直播》 全文字版（一）](/content/gnews/29/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/27/README.md)
+### [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](/content/gnews/30/README.md)
  ` YALUN 亚伦`
 
-### [有声|年度回顾关键词 – 早期治疗药](/content/gnews/28/README.md)
+### [有声|年度回顾关键词 – 早期治疗药](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [《美国竞争法》强化与中共国竞争和确保芯片供应](/content/gnews/29/README.md)
+### [《美国竞争法》强化与中共国竞争和确保芯片供应](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本国会通过决议关注中共国人权](/content/gnews/30/README.md)
+### [日本国会通过决议关注中共国人权](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（二）](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2022年2月1日早](/content/gnews/32/README.md)
+### [GTV新闻访谈简报|2022年2月1日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0201](/content/gnews/33/README.md)
+### [DC每日热点0201](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [法官命令FDA加快提供疫苗数据，辉瑞介入庭审](/content/gnews/34/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [五月花简报（02/01/2022）](/content/gnews/35/README.md)
- ` mayflowertranslate`
 
 ### [通货膨胀的政治力量](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

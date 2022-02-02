@@ -2,31 +2,22 @@
 ---
 
 
-## 有声|年度回顾关键词 – 早期治疗药
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943846/)
+## 日本国会通过关于中国人权状况的决议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1943993/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-羟氯喹和伊维菌素作为中共病毒早期治疗药物已经被大量实例证明有奇效。
+撰稿：东京樱花团｜向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-51.png)[*图片来源*](https://gdb.voanews.com/32091DCA-A276-41B6-964D-30FFFB692A1D_w1200_r1.jpg)
+在2月1日下午的全体会议上，日本众议院通过了一项对中共国“严重人权状况”表达关注的决议。决议称，国际社会对新疆维吾尔自治区、西藏和香港的拘禁和侵犯宗教自由等问题“表示严重关切”，并且呼吁政府建设性地参与。
 
-医学博士哈维曾指出，羟氯喹已经有65年的历史，是一种治愈过数以亿计的患者的安全药剂。而美国疾病控制与预防中心也在其官网上表明，婴儿、哺乳期的儿童和孕妇，老人和身患疾病的人都可以服用此种药物。另一方面，伊维菌素是一种有效抗多种寄生虫的治疗药物。由于伊维菌素低廉的价格，它是世界卫生组织基本药物标准清单中的一部分，更是基层健康卫生系统中非常重要的药物之一。
+自民党代会长古屋政调发言说：“关于严重的人权状况，我敦促国际社会用信服的方式履行责任。”长期以来，自民党内对中国的态度存在着不同的看法。该党的保守派对中国政策持鹰派态度，看来主要关注国防问题。该党的其他成员则力图保持日本与其邻国的深厚经济关系。
 
-据郭文贵先生的情报显示，羟氯喹或伊维菌素与锌、维生素C、维生素D3配合服用可有效预防和治疗中共病毒感染。而GNews、GTV和盖特上很多医生的专业文章和访谈节目也清楚的解释了这两种早期治疗药物的安全性和有效性。
+另外在该决议的文本中并没有出现“中国”国名，也没有使用“侵犯人权”这样的表述而是说“人权状况”，这招致了一些反对的声音，但这可能是默认双边经济关系密切。
 
-文字版原文：[年度回顾关键词 – 早期治疗药](https://gnews.org/zh-hans/1941609/)
+信息来源：[**中国の人権状況に対する決議採択  衆院本会議**](https://news.yahoo.co.jp/articles/2cf1204a5e85f285b812f8fe297c44bc9e0fb803)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

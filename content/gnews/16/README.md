@@ -2,44 +2,28 @@
 ---
 
 
-## 文贵大直播就要把活在噩梦中的中国人从噩梦中解脱出来
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944327/)
+## 1.31大直播后记： 健康的活着最重要
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1944368/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7cb12d90bdd2085a319d3](https://gtv.org/video/id=61f7cb12d90bdd2085a319d3)
+整理：雅典娜速记组
+编辑：朝花夕拾
 
-**郭文贵先生：**刚才我们在直播前我接到两个战友给我发的信息，其中一句话真的是特别感动，他说：“七哥，我每天，每天想到即将面对着大直播的时候，真的就像过年，比我小时候看共产党的春节联欢晚会还兴奋。”他说：他的母亲八十几岁了，过去几年来任何一次没有落下过咱们的直播，我找翻墙方式七哥你很难想象，真的可能是上千种的翻墙方式。他说：“我母亲说‘什么都可以没有，但不能没有你七哥的直播。’”这是让人真地感动，现在咱们的这战友还有他母亲都在看直播啊，文贵在此对您表示衷心地感谢！刚才的这个话，你代表了亿万个战友过去几年的付出，和你对正义的追求。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-335.png)图片来源：雅典娜设计组
 
-更重要的事情，我们中国人不会再像猪狗一样地活下去，不可能只是说天天晚上不洗不刷就睡觉，醒来以后马上就是折腾，不刷牙不洗脸必须干活。到了城市里刷牙洗脸去干活，回来以后不刷牙不洗脸就睡觉。这个世界上没有比中国人过得再痛苦的再糟的，临到死都没有闹明白你咋活的、为什么来一次世界上。
 
-我们的在南普陀山里面的我过去的老和尚还有尼姑给我发信息说：“文贵，你的人生就是一场梦，精彩至极！人生就是一场梦啊！”但是我说：中国人的一场梦是噩梦！你醒来的时候你都不知道曾经做过多惨的噩梦。大直播就是要把中国人从噩梦中解脱出来。
+我再说刚才长岛哥说，这个他的感受是真的，我也能感同身受，他想干事有多难，他就体会我有多深。你看大卫就没见我， 老班长，草根都没见过我本人，你这个感受就跟他绝对不一样。如水见过我本人跟我相处，她就感受很深， 她吃过七哥的馒头，还吃过羊肉，就像现在，你看我儿子在欧洲不能来美国跟我过年，明天大年初一，后天就2月2号，我女儿上庭。你去想想，父亲流落街头，租房子住；而我的哥哥嫂子这么多人，没人敢给我拜个年，给我发个信息，发个视频，这已经不是一年了。这种感受，你知道，唱歌的时候那种感觉都在歌里边，这是发自内心的啊！那么咱们战友今天呢？ 很多人参与这个节目，每个人的付出，没有一个人，想演给别人看的，没有任何一个战友有兴趣，就像大卫他做这，他没有任何兴趣，说我想演给你看，我是一个歌唱家，音乐家，什么这家那家，谁在乎那家呀！ 你觉得我们现在这些人都是拥有喜币的人牛到什么程度？是吧？ 关键更可怕的事情，也就是国内所有人说的，七哥你知道这个年最可怕就是见面，原来没感觉，现在一见面，“你有阳了吗， 转阴了吗？”，还有一个，他说，在中央电视台旁边，就是春节联欢晚会，中间抬出几次，超过100个人。他说，我都问过，都是打过两针三针的。就在排练当中抬出去的，超过100个人。你没打疫苗，兄弟姐妹们，你不知道这个理儿，它比一切都大，你活着什么都有感觉，你死了，你就是死了。 你灵魂也好，你不生不死也好，在这一届是跟你没啥关系了。这大过年的，大家想想，活着这个词儿，今天再去想这个词，它有多有意义啊！今天你去想想没打疫苗有多有意义。你想想东弟颖妹这样的人，老班长你们要打的疫苗，你去想想，今天你想啥感受吧。你还想当老中医去？如水、木兰、长岛哥、所有的今天看直播的，你想想是多可怕？ 你看看全世界医生的死专家的死球员的死，包括那欧洲主席的死，你以为那死，只跟穷人有关系啊？无知愚昧贪婪恐惧懦弱。 所有的人，好像上帝给设计了杠杆一样，要你付出代价，而且是生命的代价，有的一打还不是你一个人打，孩子也打，孙子也打，孙女也打。 哇塞这简直是何等的悲剧呀！
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
 
-编辑整理：Jacques；
+|   |
+| --- |
 
-字幕文件制作：小满；
 
-视频制作及上传：Cindy；
+发布：
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+| **<br>**更多资讯，请关注：**<br>**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena<br>[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena<br>[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)<br>[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)<br>[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6) |
+| --- |
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/2/2022 2:20 AM (UTC)`
+
+2月1日: 永恒的邓丽君，中国人的骄傲！ 
+![img](https://media.gettr.com/group8/getter/2022/02/02/02/baecb0cb-18ab-bac6-24d1-3782c85034e0/out.jpg)
+
+---
+
+`@miles 2/2/2022 2:18 AM (UTC)`
+
+二月二号：尊敬的战友们好，明天2月2号．早上8:30．开始虎年第一次的大直播，一切都已经开始！
+![img](https://media.gettr.com/group27/getter/2022/02/02/02/fde504f4-22b6-210d-926a-eb06c63e0b1a/200419a9a40802af8671e2ad4209d9a9.jpg)
+
+---
+
 `@miles 2/2/2022 12:18 AM (UTC)`
 
 2/1/2022 Miles Guo’s GETTR: The fellow fighters who joined the grand live broadcast yesterday and the three songs I sang have shocked all walks of lives in China, and people have seen the hope of China. The “Tian Mi Mi Movement” will be a peaceful political and cultural movement featuring high technology, spirits, faiths, religions, and media communication.<br/><br/>2/1/2022 文贵盖特：昨天大直播屏幕上的战友们和三首歌震撼了国内各界人士，大家看到了中国的希望，“甜蜜蜜运动”将是一场高科技和精神、信仰、宗教及媒体传播的和平政治文化运动<br/>
@@ -144,22 +158,6 @@
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Behind the CCP’s Spring Festival Gala are the dirty deals and fake performance, and it is the Chinese people’s money that has been spent on the CCP’s Gala. In contrast, the NeFederal State of China (NFSC) never takes a penny from Lao Baixing and has been saving the people at every moment. The NFSC worships the sun, while the CCP worships bloodshed and violence.<br/><br/>1/31/2022 文贵虎年新春大直播：中共春晚的背后都是肮脏的交易和虚假的表演，花的全是民脂民膏！新中国联邦不拿老百姓一分钱，每时每刻都在不停地救人；新中国联邦崇拜太阳，而中共却崇拜血腥暴力<br/>
 ![img](https://media.gettr.com/group29/getter/2022/02/01/00/7e060328-309f-ce0e-1248-8e83d8868adc/out.jpg)
-
----
-
-`@miles 1/31/2022 10:37 PM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: My singing reinterprets the song "Tian Mi Mi (Sweet as Honey)" that has accompanied several generations of the Chinese people to grow up. The New Federal State of China is going to use the color red, which has been hijacked by the CCP for decades, and the key to starting the “Tian Mi Mi Movement” to kick off our 2022 Year of the Tiger to take down the CCP!<br/><br/>1/31/2022 文贵虎年新春大直播：文贵的演唱重新诠释了这首伴随几代中国人成长的《甜蜜蜜》，新中国联邦要用被共匪霸占了几十年的红色和甜蜜蜜运动的这把钥匙，开启我们的2022虎年灭共年！<br/>
-![img](https://media.gettr.com/group14/getter/2022/01/31/22/29664343-f690-54fe-5a8a-db777f9f268c/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 1/31/2022 5:03 PM (UTC)`
-
-Limited Edition Exclusive Release for Chinese New Year.                                            Today at 5 pm ET at gfashion.com
-![img](https://media.gettr.com/group34/getter/2022/01/31/17/5e4e1872-c06e-9878-bfa4-2a9ed6fe15c8/5763bed0fb65a345b5b4b8522cdf6544.jpg)
 
 ---
 

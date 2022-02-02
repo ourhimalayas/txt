@@ -2,41 +2,57 @@
 ---
 
 
-## 辉瑞要求美国授权 5 岁以下儿童接种病毒疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1944400/)
+## 魁北克省道格拉斯医院工作人员举行抗议活动,称这不仅是为了要讨回一千元奖金
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1944432/)
 
 2022-02-01
 
-编译及评论: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/02/ZWCZZCFWEAWP3O7GDY5Q.png)图片来源：[U.S. considers authorization of first COVID vaccine for children under 5](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-submits-data-seeking-us-approval-covid-vaccine-young-kids-bloomberg-2022-02-01/)
-来自路透社二月一日的新闻报道：
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/02/HA8LY1U1CSXM9XU@GR4M.png)图片来源：CTV NEWS（2022 年 1 月 31 日）
+CTV NEWS（卢卡·卡鲁索-莫罗Luca Caruso-Moro，2022 年 1 月 31 日）发表一篇题为《道格拉斯医院木匠和其他维修人员想要讨回疫情（大流行）期间应得的奖金和应有的“尊重”》的文章报道，周一（2022 年 1 月 31 日），道格拉斯精神病院的一群工作人员在午休时间举行了抗议活动，称他们要讨回疫情（大流行）期间应得的奖金。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4CCJJU_8@MDZHWQCC.png)图片来源：CTV NEWS（2022 年 1 月 31 日）
+周一（2022 年 1 月 31 日），道格拉斯精神病院的一群工作人员在午休时间举行了抗议活动，称他们要讨回疫情（大流行）期间应得的奖金。
 
-辉瑞公司和 BioNTech SE 周二表示，尽管2至4岁孩子临床试验中的免疫反应弱于预期，但他们已开始向美国监管机构提交数据，以寻求其用于 5 岁以下儿童的 COVID-19 疫苗的紧急使用授权 (EUA)。
+#### 医院维修工人没有资格享受这个奖金
 
-两家公司表示，应美国食品和药物管理局FDA的要求，他们开始提交系列数据，以解决该年龄段人群的紧迫公共卫生需求。
+他们（抗议活动者）不是卫生保健工作者，而是木匠和其他维修工人，他们认为该省设立的鼓励人们留在医院工作的奖金也应该适用于他们，因为他们在同一（COVID-19）环境中工作。
 
-FDA 表示，一个由专家顾问组成的外部委员会将于 2 月 15 日开会讨论授权问题。
+“这将对他们产生积极的影响” ，SCFP 工会的工人代表范妮·德蒙蒂尼 (Fanny Demontigny) 说。
 
-制药公司要求 FDA 将明确两剂注射方案。然而，辉瑞首席执行官 Albert Bourla 在一份声明中表示，该公司认为需要三剂疫苗“来实现对当前和未来潜在变种的高水平保护”。
+“他们为这些COVID单元病房建造了墙壁，他们每天都在那里确保COVID单元病房正常运行，他们同样需要奖金鼓励”。
 
-Bourla 说：“如果授权两剂，父母将有机会为他们的孩子开始 一系列COVID-19 疫苗接种，同时等待第三剂的潜在授权”。
+在普遍的倦怠和劳动力短缺的情况下，该省一直向医护人员支付每月 1,000 加元的奖金，以试图让他们继续工作，但维修工人却没有资格享受这个奖金。
 
-两家公司预计将在未来几天内完成为 EUA 提交两剂注射方案的数据，随后将提供第三剂的数据。
+德蒙蒂尼说，已经多次提出这个要求。
 
-辉瑞和 BioNTech 正在测试该年龄组的 3 微克剂量的疫苗，而 5 至 11 岁的人群为 10 微克的剂量，12 岁及以上的人群为 30 微克的剂量。
+抗议的工人说，他们被遗忘。
 
-授权为年幼的孩子接种疫苗可以帮助那些不得不应对隔离以及学前班、日托中心关闭的父母。
+SCFP 工会主席乔纳森·德尚 (Jonathan Deschamps) 说：“我们开始看到困扰，很多人失业”。
 
-去年 12 月，辉瑞表示正在修改其临床试验，以测试三剂疫苗，因为低剂量在 2 至 4 岁儿童中产生的免疫反应低于 16 -25岁儿童的免疫反应。在 6 个月至 24 个月大的儿童中，该疫苗产生了与 16 – 25 岁儿童一致的免疫反应。
+该省卫生部和财政部没有回应工会的要求，但表示新的补偿措施旨在加强对患者的诊所服务，而不是补偿接触病毒的风险。
 
-上个月，辉瑞表示，预计将在 4 月之前获得这些结果。
+#### 继续抗议，直到得到公平待遇
 
-**点评：**真的相信了人间有魔鬼。这个授权要求的理由和逻辑非常滑稽可笑，辉瑞和FDA在明晃晃强奸美国人民的智商啊！
+维修人员表示，这不仅仅是为了钱。
 
-原文链接：[U.S. considers authorization of first COVID vaccine for children under 5](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-submits-data-seeking-us-approval-covid-vaccine-young-kids-bloomberg-2022-02-01/)
+“99% 是涉及尊重”，道格拉斯的木匠帕特里克·佩洛金 (Patrick Peloquin) 说。
+
+“我们建造了健身房，我们 建造了COVID单元病房……”。
+
+他和他的同事还表示，他们计划继续抗议，直到他们得到公平待遇。
+
+#### “公民不服从”示威活动不断发生
+
+自从疫情爆发到现在两年多的时间以来，反对卫生措施的“公民不服从”示威活动不断发生。这次示威活动是合法地，积极地、非暴力地向政府表答他们受到了不公平待遇
+
+**参考资料**：
+
+1. [CTV NEWS，卢卡·卡鲁索-莫罗Luca Caruso-Moro，2022 年 1 月 31 日，Douglas hospital carpenters, other maintenance staff want pandemic bonuses and ‘respect](https://montreal.ctvnews.ca/douglas-hospital-carpenters-other-maintenance-staff-want-pandemic-bonuses-and-respect-1.5762324)‘
+
 
 编辑：LILY
 发布：肥鯮
+校对：班粉小哥
 
 更多资讯请关注：
 [温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)

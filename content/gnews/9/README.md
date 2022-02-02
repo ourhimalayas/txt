@@ -2,48 +2,23 @@
 ---
 
 
-## 共产党用行贿外国政要一千万自己拿走一个亿的方式盗国
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1944379/)
+## 1.31大直播后记：无苗族是人类的火种
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1944424/)
 
-G-TV视频链接：[https://gtv.org/video/id=61f7cb9cd90bdd2085a31a0a](https://gtv.org/video/id=61f7cb9cd90bdd2085a31a0a)
+整理：雅典娜速记组
+编辑：朝花夕拾
 
-**郭文贵先生：**我们在谈这个，就是看这个谢里夫的时候，我们一定要有一个基本的一个常识，就是大家对共产党的认知，这就我们爆料革命的最重要的一个核心。常识是什么？就是共产党行贿的这所有的这些国家的元首，最后这个主题非常好，今天英喜和扬帆做得特别特别好，这个PPT。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-336.png)图片来源：雅典娜设计组
 
-就是看到这些国家领导人是拿到钱了，跟着共产党也被腐败了，共产党所到之处，这些国家和这些人民是最大的受害者。那中国共产党给他们的钱，是不是真的就给他们钱了呢？我可以告诉大家，很多人不知道其中的一个秘密，共产党当给谢里夫，给他一个亿的时候，中国人一定是付出百倍和千倍的代价。你知道这个意味着什么吗？兄弟姐妹们？
 
-这头两天儿，巴基斯坦我有很多朋友，巴基斯坦朋友很多人，就是最早跟我很亲密的合作人，最早因为我开始爆料就离开我的，就是巴基斯坦人。现在都在美国、都在英国，都在美国、英国长大的人，就是完全不讲义气，完全不讲义气，没有任何忠诚，而且嘴都特别能说。
+就在人类面临着至暗的时候，中央电视台还搞出了一个阖家团圆。历史他篡改了；人脑，他给洗了；所有的邪说都是他编造的；又是太阳，又是金山上，所有老百姓的钱被拿走了，是吧？ 这种邪教，现在还搞新春联欢晚会，你看看冬奥会有谁去？ 大家看看那个单子，拉出的单子你们认真看，有一个七哥没说过的吗？泰国森林公主，韩国议长，埃及，卡塔尔，UAE，还有沙特。然后呢就没人了，这些人全都是卖油的！你看哪个不是卖油的？俄罗斯是拿钱来，先拿钱，再往后全是拿油。你去数一数没有一个人在中国，得到少于500亿-1000亿美元的买卖或现金的。一个共产党的冬奥会，花掉中国人1万亿美元，他想干啥？他能干啥！？所以说，这就是为啥说塞北的雪，这个歌选做主题歌，他挺阴的。本来老百姓把这个雪，一擦这雪都没了，还以为那雪真的是，那是个假的雪！而且这个冬天的奥运会，所谓最伟大的美丽都市，同时举办两个奥运会。兄弟姐妹们，这个时候他有没有想到过疫苗会随时要他们的命？他还能张开嘴吗？很多中国老百姓一辈子的辛苦一场病，就把你整个赤贫。最近我跟国内的很多战友通信，我感到非常恐惧的，就是45到60岁是男性和女性得癌症最高发期。我们有一个群，里边 80%的人有过癌症史和二次癌症。你去想想有多可怕！？ 全中国去年一年得有多少癌症病例？ 共产党说是650万，350万改成650万。 但是我给大家爆料说过，咱们的内部的专家统计局告诉我们说，去年中国一年是过去的15倍到18倍，然后昨天告诉七哥，现在已经远远超过这个数据。中国的老百姓和中国看新春联欢晚会的人，他没想到这一条，下一个倒下的可能就是你。
 
-他跟谢里夫的侄女是结婚的，就是他亲的侄女婿，在英国。还有一个家里边儿的就是什么表妹、表女婿。当年他在2000年的时候，飞机回去7分钟没油了，那次回去，三次哥们儿没干到头。回去的时候，其中飞机上就有这个哥们儿。他说：“你知道吗，我们就是帮共产党洗钱的，我们拿一千万，共产党就在内部，就拿走一个亿。”
+*发布：tianzhihuan*
 
-大家要记住，所有的哈萨克斯坦、吉尔吉斯坦、阿塞拜疆、柬埔寨，还有这个巴基斯坦。大家要记住，他是两个多亿人，2.6亿人。兄弟姐妹们，这是个很大的国家，巴基斯坦。它的GDP才两、三千亿美元。隔壁的印度是2.3万、2.6万亿美元呐。你知道这是很恐怖的，两三千亿美元的一个国家，然后有2.3亿人，2.6亿人，1000多块钱的GDP。每年从中国拿走多少钱？上百亿美元。他们拿到手的也就是几亿美元，八九十亿美元全被这些共产党给拿走了。
 
-字幕来源：[2022年1月21日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1895427/)
+| **<br>**更多资讯，请关注：**<br>**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena<br>[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena<br>[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)<br>[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)<br>[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6) |
+| --- |
 
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
