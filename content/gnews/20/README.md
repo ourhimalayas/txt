@@ -2,27 +2,25 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2022年1月30日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1943757/)
+## 2022年壬寅年新春大直播：青蒿素鸡尾酒是毒疫苗的解药
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1943814/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV.jpg)
+撰稿：柯亭
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-01-161132.png)图片来源：GTV
+2022年1月31日，文贵先生在春节大直播中首次说到，新中国联邦的科学家正在加紧研发测试的**青蒿素鸡尾酒**，**是毒疫苗的解药**。（8:36:20 – 8:40:50）
 
-文字版原文：[GTV新闻访谈简报|2022年1月30日晚](https://gnews.org/zh-hans/1935239/)
+文贵先生正襟危坐告诉战友们说：刚才2:20pm我得到科学家的允许，今天我可以正式告诉大家，我们的科学家正在欧洲某个军事级的医学研究所做青蒿素鸡尾酒疗法试验，目的是要**为接种了毒疫苗的人****100%清除残毒**，就是要达到比单纯用青蒿素还有更彻底的清除。另外一个功效是：感染了CCP病毒的人吃了这个青蒿素鸡尾酒后，100%有疗效。
 
-音频处理：Fei797
-发稿：Fei797
+科学家已经做过很多测试。服用这个青蒿素鸡尾酒后，会拉出一些黑色和紫色的粘粘糊糊的东西。拉完以后，人就有点像处于休克状态；但目前还没有观测到任何极端的副作用。然后做血液和细胞化验，会发现身体像孩子般的透亮；各方面都变得通透啦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+我们每个人体有40万亿个细胞，每天有大约40亿个细胞死亡，同时有新细胞长出，更新换代。新细胞长出的时候如出现偏差，就是癌症；此时的最后防线就是免疫功能，就是防止人体细胞在更新换代中出偏差。人体随着年龄的增长变老，身体里的免疫功能纠偏机制就越来越弱，人体就越来越衰老。青蒿素鸡尾酒也有可能延缓人体的衰老过程。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+科学家说如果这个青蒿素鸡尾酒得到全面认证，**将又一次改变人类世界**。这个药的成本很低，**1美元就能做出一副药**。七哥已经准备在最早的可能时间，为新中国联邦人订购1亿剂。
+
+参考链接：[2022年壬寅年新春大直播](https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55)
+
+校对：
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
