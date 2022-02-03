@@ -2,37 +2,35 @@
 ---
 
 
-## Hpay/喜支付于美东时间2月1日正式上市
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949686/)
+## 郭文贵先生谈音乐的力量
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949713/)
 
-撰稿： 首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
-喜马拉雅交易所的支付应用程式Himalaya pay，中文名称为喜支付，已经在美东时间2月1 日正式上市，只要您所在的国家或地区允许下载运用喜支付，就可以在App Store 或 Google Play 下载。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-160.png)
-喜马拉雅交易所，官网强调提供用户一个安全、有备付、有信用以及受法律监督的平台，不仅能够确保数字货币和个人资讯的绝对安全，同时以先进技术免除用户因密码丢失、网络攻击等风险所导致的损失。 最重要的是，喜联储的”去中心化”的技术，自动实现每一笔资金的溯源，杜绝了做假账的可能。
+撰稿：纽约香草山金融部 – AT
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在2022年新中国联邦新春晚会上演唱的三首灭共歌，深深震撼了每一个镜头前的战友，用真情演绎了直击人心的音乐不需要技巧，用的是真心。郭先生是灵魂歌者，歌王实至名归。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-1.jpg)
+郭先生的演唱为这三首脍炙人口的著名歌曲赋予了新的生命，曲惊天下，尤其是邓丽君女士的《一帘幽梦》，这首最温柔的歌，郭先生唱出了呐喊，深情，力量！一帘幽梦，不再是儿女情长的梦，而是家国信仰之梦。
 
-据白皮书及相关消息指出，喜马拉雅交易所将会提供冷钱包和热钱包技术，允许客户使用私钥存储喜币，并且保障赔付、上线喜保险，追回客户的喜币和喜美元，因此Hpay 比现存的任何支付系统更加安全可靠。
+郭先生说中国人骨子里有浪漫，音乐是永恒的，邓丽君女士的歌激励着我们，让我们每个人的内心世界都打开一扇激情的门。中国人百年来一直都在追求民主，法治，自由，我们从来没有忘记过，也永远不会放弃。
 
-HPay 超越了现有的以虚拟货币支付和转账的方式，它将引领世界购物支付的潮流。 无论你在世界的哪一个角落，只要你所在国家或地区允许使用，你就可以享受到安全舒适的购物体验。 且在手续费用方面，无论是商家或个人，使用Hpay支付或转账将是完全免费。
+郭先生认为每个人演唱这三首歌时都将从中找到与神沟通的感觉。我们一定要活出每个人的精彩，我们新中国联邦必须让中国人找回属于自己的浪漫，尊严，善良，和平，友好。让中国人成为世界上最受尊敬，最被喜欢，最爱打交道的人。
 
-新闻链接：[2022年2月1日郭文贵先生盖特](https://gettr.com/post/prvbzt6d54)
+中国人被中共百年洗脑，中共展示的辉煌的新春晚会以及营造的万邦来朝的冬奥会背后，与老百姓凄惨的被洗脑的贫穷生活形成巨大反差，这就是共产党为什么要进行网络屏蔽。中共如果不控制音乐，音乐就会戳穿假恶丑，官僚和虚伪，这就是音乐的力量。音乐要唱出自己，唱出心声，真实和利他。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+参考来源：[https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55](https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55)
 
-总编：文特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
 
-编辑: Ivy001
-
-校正/发稿：浪迹天涯
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

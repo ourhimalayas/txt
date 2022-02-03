@@ -2,36 +2,33 @@
 ---
 
 
-## 新州：民众在觉醒，40岁以下不到三分之一接种加强针
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1949764/)
+## 美参议员希望召集科学家作证 中共病毒源于实验室
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949794/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+撰稿：纽约香草山 – 侠肝义胆
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+外媒1月31日报道，本周一，美国参议员布莱克本在参加一档媒体节目时表示，她期待召集那些认为中共病毒源自实验室的科学家到国会作证，她认为这将是查清中共病毒真相非常重要的一个环节。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-165.png)图片来源于breitbart
+布莱克本说，她期待参议院卫生委员会主席兰德. 保罗，能够召开这样的听证会，把那些被压制发声的科学家请来，让他们自由讲述中共病毒来源于实验室的事实。 同时，必须让福奇交待清楚如何参与和资助病毒功能增强实验，以及他和大医药公司之间的腐败关系。 布莱克本强调，如果想在今年中期大选之前得到中共病毒溯源最终答案，必须解决中共病毒来源的最关键问题。 而掌握科学事实的正义科学家的发声，尤为珍贵。
 
-整理/编辑：小鱼儿
+新闻链接：[Blackburn: Scientists Who Were Silenced on Lab Leak Theory Need to Testify](Scientists%20Who%20Were%20Silenced%20on%20Lab%20Leak%20Theory%20Need%20to%20Testify)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-5.jpg)
 
+编辑：静言
 
+总编：Irene木木
 
-图片来源：雅典娜设计组
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
 
-当地时间2月3日，据每日邮报（Dailymail）报道，新南威尔士州的三剂疫苗接种率为 43.71%——全国最低，不到三分之一的 40 岁以下的人接种了第三剂疫苗。
-
-反对党领袖克里斯·明斯（Chris Minns）呼吁，新州政府强制要求为卫生、教育和老年护理等领域的员工，接种第三剂疫苗。明斯先生希望新州，首先是强制为必要员工提供加强针，然后再转移到其他人口。
-
-幸运的是，更多的民众在觉醒。网友-加泽德写道：2 针？3 针？4 针？您遵守是因为您希望它结束​​，但您的遵守就是它永远不会结束的原因！在英国81,000 名护士和医生说“不”，政府做了 180 度大转弯。疫苗永远不应该是强制性的，尤其是对减少感染和死亡毫无帮助的疫苗，比如新冠疫苗。网友-赛德007写道：工党及其对疫苗强制的狂热痴迷是怎么回事？
-
-参考新闻：[Thousands of essential workers could be forced to get their Covid booster shots or be sacked in Dan Andrews-style mandate as NSW third dose rate falls to worst in Australia](https://www.dailymail.co.uk/news/article-10470513/Thousands-essential-workers-forced-Covid-booster-shots-sacked-NSW.html)
-
-发布：星谕
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

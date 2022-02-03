@@ -2,8 +2,8 @@
 ---
 
 
-## 喜支付系统里只有“信”和“用”
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949790/)
+## 自杀自残的冬奥会
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949804/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

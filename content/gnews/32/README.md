@@ -2,19 +2,35 @@
 ---
 
 
-## 欧盟会解体
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949539/)
+## 新春大直播震撼世界 甜蜜蜜运动史无前例
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949540/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：纽约香草山 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+2月1日，虎年初一，郭文贵先生在盖特视频中指出，”虎年新春大直播”在国内国外引起了轰动效应，”甜蜜蜜”运动将在虎年登上新高度。 长达13个小时的新春直播，国内战友称赞直播技术、观感有很大提升，出镜战友的素质也越来越高。 郝海东先生真切可信，再一次引领潮流。 这些都是新中国联邦的力量展现。
 
-*发布：玉米地守望者*
+大直播也对西方社会影响巨大。 很多人拒绝参加冬奥会，制裁邪恶中共的法案将陆续出台。 承认新中国联邦政权，并开展合作，也开始成为了各国的选项。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-156.png)
+此外，甜蜜蜜运动的意义，郭先生强调是史无前例的，融合了高科技、精神、信仰、媒体传播的政治文化运动。 无数高智商情商的战友正在为此精心准备。 它将唤醒愚钝的心灵，开始思考生存的意义。 且新中国联邦新春大直播已经对中共造成巨大的威胁，多国政府也受到新春大直播的直接影响。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+链接：[郭文贵先生2022年2月1日盖特](https://gettr.com/post/prt6yo3915)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编：Irene木木
+
+编辑：宁文静
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+
 
  
 

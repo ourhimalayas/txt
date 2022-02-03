@@ -2,38 +2,28 @@
 ---
 
 
-## 北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949654/)
+## 面对日本的硬 中共官媒为自己的软找台阶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949658/)
 
-作者：香草山金融部 – 闲聊钱币
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-自从疫情爆发以来，中共政府从未对内对外公布感染病毒及死亡的真实数字。随着冬奥开幕尽在咫尺，中共开始甩锅外来参赛人员。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-159.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://japan-forward.com/wp-content/uploads/2018/10/Japan-China-Summit-2018-007-e1610415984288.jpg&amp;imgrefurl=https://japan-forward.com/confession-of-a-recovering-pro-china-sympathizer-its-time-to-stop-giving-aid-and-comfort-to-the-ccp/&amp;tbnid=DUzVD2QDDhCzUM&amp;vet=12ahUKEwj3xvGN3-L1AhWawmEKHV09DgIQMygDegUIARCNAQ..i&amp;docid=TuEv1-gzBUKNRM&amp;w=1600&amp;h=800&amp;q=Japan%20CCP&amp;ved=2ahUKEwj3xvGN3-L1AhWawmEKHV09DgIQMygDegUIARCNAQ)
+自从去年岸田文雄政府执政以来，日本对中共一改过去的含蓄隐忍，而愈发强硬。面对日本的频频“挑衅”，中共却无实质反击动作，显得非常被动，对此，中共官媒近期开始找台阶安抚国内的粉红情绪。
 
-据路透社北京1月31日的—篇报道，在过去的四天里，在参与北京冬奥会的运动员和工作人员中发现了119例COVID-19病例。冬奥会组织者周一表示，周末的统计结果显示，周日有37个新病例，周六有34个，大多数人在抵达机场后检测出阳性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0.jpg)
-为减少所谓的扩散，将参与者、工作人员和媒体与公众分开，称之为“闭环”。所谓“闭环”，就是允许这些参赛者及工作人员可以乘坐官方交通工具在住宿区和奥运场馆之间移动，但不允许他们在公共场合自由行动。
+2月2日，中共《国防时报》发表《立陶宛挑衅，中国迅速反制，同样爱“挑衅”，中国为何不搭理日本》一文。
 
-对于这种极端限制人身自由的做法，中共官方喉舌《人民日报》给予了大力的赞扬，肯定了政府为筹备奥运会和对抗病毒传播所做的工作。
+文章称，一个有趣的现象是：近一段时间，中国对立陶宛进行了快准狠的反制，对日本却颇为冷淡，反击以舆论为主。日本，与立陶宛一样在台海问题上做文章，实际目的却不尽相同。日本之所以不断挑衅中国，是希望将中日关系推入更加紧张的状态。
 
-在一个由于严重污染冬季根本没有雪的城市举办冬季奥运会本身就是一个天大的笑话，打着对抗病毒传播限制人身自由更是愚蠢狂妄。
+日本主动挑衅中国，并渲染中国“军事威胁”，根本目的是倒逼美国放松对日本的军事捆绑，以达到“修宪”的目的。因此，面对日本的挑衅，中国选择一定程度上的“冷处理”，不让局势升级，避免踏入日本的圈套。
 
-参考来源：[北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](https://www.reuters.com/world/china/china-reports-37-new-covid-19-cases-among-olympics-personnel-jan-30-2022-01-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=31-1-22&amp;utm_campaign=31-1-22)
+从中共《国防时报》这篇文章可以看出，中共就是典型的流氓小痞子的本质，“你硬它就软，你软他就硬”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+中共敢动立陶宛而不敢动日本，主要还是基于对日本综合实力和利弊权衡所做出的研判，中共对日本在经济、科技等方面高度依赖，当前日企已经在不断撤离，中共既不能对日本硬来也没有硬来的抓手。
 
-编辑/校对/发稿：Hetangyuese
+信息来源：[立陶宛挑衅，中国迅速反制，同样爱“挑衅”，中国为何不搭理日本](https://c.m.163.com/news/a/GV27H9KJ0543B4S9.html?spss=newsapp)
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

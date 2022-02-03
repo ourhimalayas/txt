@@ -2,28 +2,38 @@
 ---
 
 
-## 日本成世界上所谓合法要求删除推文最多的国家
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949614/)
+## 北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949654/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-157.png)（图片源自本文链接）
-据2月3日新闻周刊报道：1月25日，美国公司推特发布了2021年上半年的“透明度报告”。 根据该报告，在去年1至6月期间，推特要求用户删除470万条违反推特公司规则的推文，并暂停了44974个宣传恐怖主义和暴力的个人账户。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+自从疫情爆发以来，中共政府从未对内对外公布感染病毒及死亡的真实数字。随着冬奥开幕尽在咫尺，中共开始甩锅外来参赛人员。
 
-上述相同期间，有196,878个账户是国家作为法律行动要求删除推文，这是自2012年报告发布以来的最高数字 这些请求中的95％是来自五个国家，按其数量顺序依次为：日本、俄罗斯、土耳其、印度和韩国。
+据路透社北京1月31日的—篇报道，在过去的四天里，在参与北京冬奥会的运动员和工作人员中发现了119例COVID-19病例。冬奥会组织者周一表示，周末的统计结果显示，周日有37个新病例，周六有34个，大多数人在抵达机场后检测出阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0.jpg)
+为减少所谓的扩散，将参与者、工作人员和媒体与公众分开，称之为“闭环”。所谓“闭环”，就是允许这些参赛者及工作人员可以乘坐官方交通工具在住宿区和奥运场馆之间移动，但不允许他们在公共场合自由行动。
 
-4,700,000，系去年上半年被推特要求删除的推文数量；
+对于这种极端限制人身自由的做法，中共官方喉舌《人民日报》给予了大力的赞扬，肯定了政府为筹备奥运会和对抗病毒传播所做的工作。
 
-196,878，系作为法律行动的一部分，收到国家删除推文要求的账户数量；
+在一个由于严重污染冬季根本没有雪的城市举办冬季奥运会本身就是一个天大的笑话，打着对抗病毒传播限制人身自由更是愚蠢狂妄。
 
-44,974，系个人账户因宣传恐怖主义或暴力而被暂停。
+参考来源：[北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](https://www.reuters.com/world/china/china-reports-37-new-covid-19-cases-among-olympics-personnel-jan-30-2022-01-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=31-1-22&amp;utm_campaign=31-1-22)
 
-国家以及推特公司的这些规定的制定之根据在哪里？标准在哪里？恐怖主义或暴力正在中共国上演，为什么这些国家以及推特公司不像在推特上删帖或关闭账户这样果断地去处理？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
 
-信息来源：[法的措置としての「ツイート削除」要請、世界最多の国は「日本」だった（ニューズウィーク日本版） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/3f21a424cbded26f1d95f4beeba9bad04f13bf2f)
+编辑/校对/发稿：Hetangyuese
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

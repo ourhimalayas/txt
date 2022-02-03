@@ -2,38 +2,19 @@
 ---
 
 
-## 有声|新中国联邦新闻英文节目完美首播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949531/)
+## 欧盟会解体
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949539/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
+*发布：玉米地守望者*
 
-新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
-
-原文链接：[新中国联邦新闻英文节目完美首播](https://gnews.org/zh-hans/1947197/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

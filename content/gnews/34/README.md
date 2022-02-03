@@ -2,26 +2,39 @@
 ---
 
 
-## “伟哥”被纳入日本公共医疗保险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949530/)
+## 有声|新中国联邦新闻英文节目完美首播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949531/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-153.png)图片来自本文网站
-2月2日《读卖新闻》在线消息，日本厚生劳动省2号决定，从今年4月开始，治疗勃起功能的“伟哥”将被纳入公共医疗保险，该决定在同一天得到了厚生大臣的咨询机构（中央社会保险医疗委员会）的批准。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
 
-作为新年度开始的新的生育治疗保险的一部分，它仅限于只有被诊断为因“勃起功能障碍导致的男性不育症”得情况下适用。今后，厚生劳动省计划对未来可以开处方的医疗机构制定相应要求。
+据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
 
-“伟哥”最早是由美国研发的，1999年被批准在日本销售，当时，因为原厚生省判断它不适合保险，所以到目前为止，“伟哥”一直被用于自费医疗。
+新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
 
-2月2号，除了“伟哥”之外，厚生劳动省还把另一种勃起功能障碍治疗药物“希爱力”和促发排卵剂等12项含有5种成分的与治疗生育有关的药物也列入了保险范围。
+原文链接：[新中国联邦新闻英文节目完美首播](https://gnews.org/zh-hans/1947197/)
 
-信息源：
+音频处理/发稿：Daxia
 
-[「バイアグラ」４月から保険対象に、「男性不妊」の場合のみ…厚労省了承](https://news.yahoo.co.jp/articles/9fad2e134e447a31f9c779f2d9789da52121f60e)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
