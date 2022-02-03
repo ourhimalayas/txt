@@ -2,16 +2,24 @@
 ---
 
 
-## 有声|中俄勾兑，习近平只是普京玩弄的工具
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948719/)
+## 有声|Miles宣布美国授权撤回美国北京大使馆意味什么？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948772/)
 
 配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年1月30日直播中，向战友们深入解密了现在的俄乌局势，并强调，在这场国际博弈中，习近平只是普京手中把玩的工具而已。
 
-郭先生指出，虽然普京和习近平企图通过东西两线同时开战，让美国无法兼顾。但普京和习近平开战的目的截然不同，结果也截然不同。
 
-原文链接：[中俄勾兑，习近平只是普京玩弄的工具](https://gnews.org/zh-hans/1943187/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-3.jpeg)
+
+
+
+美国宣布授权撤回北京美国大使馆，美国为首的西方国家态度已经很清楚了：
+
+1）今后在中国，美国不会再承认没有经过老百姓一人一票选出的政府了。
+
+2）让Miles Guo宣布这么重大事情，掌控美国实权一些重要人物默认未来新政府-新中国联邦正式走上世界舞台。
+
+原文链接：[Miles宣布美国授权撤回美国北京大使馆意味什么？](https://gnews.org/zh-hans/1940852/)
 
 音频处理/发稿：Daxia
 

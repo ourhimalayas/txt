@@ -2,25 +2,37 @@
 ---
 
 
-## 对盘古事件的认知、看法（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948838/)
+## 有声|冬奥会选手表示 希望去其他国家参赛
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948879/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山农场 – 纳米
 
-更让我感到夸张的事情，北京高院的人对着我们的同事员工说的那些话啊，他竟然 能说出这样的话，“你们的好日子到头啊，该我们过好日子了，你们郭老板反国家 反民族”我啥时候反国家？我啥时候反民族了？我拯救了你们多少人你连这点是非 都不辨你能穿什么警服？什么情况下你能配做人呢？连我家人都能把一个狗放弃掉，你就别想别人了。连把我爹赶了大街上，竟然没有地方住我的所有哥嫂子是没有地方住。生存能力在哪里呢？在这种情况下一个人性在哪里呢？
 
-警察和法警做了这种事丧失天良的说好日子该轮到他们。我真的轮到你过，我也 可以轮到你过，我不过好日子，你可以过去，你过你也过不了好日子。孙立军在 哪儿呢？孟建柱。就这个国家，这个民族已经到了丧心病狂。其中有那个就是海 东兄弟。我们俩的一个共同的朋友，发给我一个照片，当时她拍的啊，说那个当时看到那些特警。我现在我我我那天找我，发给你一个。你看那特警穿着那些警服啊。我看我发给群每一个我给你找找啊，就是我跟海东兄弟的一个共同朋友，他看到这个情况啊。你看这个照片你就能看得出来啊。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/对盘古事件的认知、看法（一）-.jpg)
-2021年12月10日文贵大直播
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+1月30日，据相关媒体报道，时逢中共北京冬奥会开幕在即，虽然中共媒体一直试图向外界传递出各国参赛选手喜爱此次冬奥会的错觉，但很多来自欧洲的运动员纷纷表示，他们对冬奥会完全喜欢不了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-2.jpg)
+不少来自法国的运动员在采访时指出，中共国并不是一个拥有滑雪文化的国家，但为了此次冬奥会的场地问题，中共政府大肆破坏森林植被并人为制造出相当违和的雪地会场。对此，运动员们强调，相较于因举办冬奥会而造成严重的生态问题，他们更希望奥委会能选择尊重自然、尊重个人的国家举办奥运会。
+
+此外，一些来自瑞典的运动员也通过媒体声明表示，国际机构不应该选择中共政府组织锦标赛或举办奥运会，他们更希望去其他国家参加比赛。
+
+文字版原文：[冬奥会选手表示 希望去其他国家参赛](https://gnews.org/zh-hans/1946668/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,38 +2,25 @@
 ---
 
 
-## 有声|奥运会运动委员会主席确诊 已在北京隔离
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948790/)
+## 对盘古事件的认知、看法（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948838/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月31日，中共冬奥委会组委会通报称，在冬奥委会入境人员中，又有23人在前一天的中共病毒检测呈阳性，其中包括奥委会运动员委员会主席埃玛·泰尔霍。她在社交媒体上表示，自己正在北京接受隔离。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-据报道，中共冬奥委会组委会30日通报的23名冬奥染疫人员中，有13人是运动员或代表团成员。此外，还有11名前几天已经入境的冬奥相关人员被检测出病毒阳性。
+更让我感到夸张的事情，北京高院的人对着我们的同事员工说的那些话啊，他竟然 能说出这样的话，“你们的好日子到头啊，该我们过好日子了，你们郭老板反国家 反民族”我啥时候反国家？我啥时候反民族了？我拯救了你们多少人你连这点是非 都不辨你能穿什么警服？什么情况下你能配做人呢？连我家人都能把一个狗放弃掉，你就别想别人了。连把我爹赶了大街上，竟然没有地方住我的所有哥嫂子是没有地方住。生存能力在哪里呢？在这种情况下一个人性在哪里呢？
 
-据悉，冬奥会对所有入境的外国运动员实行闭环管理，即北京本地不与入境运动员产生物理接触。此封闭式管理要求每天接受核酸检测，一旦发现阳性就会被送到隔离酒店。目前此闭环内已经检测出36例阳性患者。
+警察和法警做了这种事丧失天良的说好日子该轮到他们。我真的轮到你过，我也 可以轮到你过，我不过好日子，你可以过去，你过你也过不了好日子。孙立军在 哪儿呢？孟建柱。就这个国家，这个民族已经到了丧心病狂。其中有那个就是海 东兄弟。我们俩的一个共同的朋友，发给我一个照片，当时她拍的啊，说那个当时看到那些特警。我现在我我我那天找我，发给你一个。你看那特警穿着那些警服啊。我看我发给群每一个我给你找找啊，就是我跟海东兄弟的一个共同朋友，他看到这个情况啊。你看这个照片你就能看得出来啊。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/对盘古事件的认知、看法（一）-.jpg)
+2021年12月10日文贵大直播
 
-原文链接：[奥运会运动委员会主席确诊 已在北京隔离](https://gnews.org/zh-hans/1941077/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

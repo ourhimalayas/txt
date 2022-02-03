@@ -15,80 +15,80 @@
 
 ---
 
-### [文贵大直播要点（2022年2月2日）](/content/gnews/1/README.md)
+### [有声|研究显示 康复的病毒感染者具有自然免疫力](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [放毒威胁，企图控制世界（一）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [推销Hpay时第一句话就是 免费](/content/gnews/3/README.md)
+ ` genwsGNEWS`
+
+### [有声|冬奥会选手表示 希望去其他国家参赛](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [放毒威胁，企图控制全世界（三）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵大直播要点（2022年2月2日）](/content/gnews/6/README.md)
  ` 波士顿五月花农场`
 
-### [放毒威胁，企图控制世界（二）](/content/gnews/2/README.md)
+### [放毒威胁，企图控制世界（二）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [CECC要求增加《防止强迫维吾尔人劳动法》资金](/content/gnews/3/README.md)
+### [CECC要求增加《防止强迫维吾尔人劳动法》资金](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [对盘古事件的认知、看法（一）](/content/gnews/4/README.md)
+### [对盘古事件的认知、看法（一）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月3日《樱花简报》：日本与俄罗斯新增中共病毒感染病例再创新高](/content/gnews/5/README.md)
+### [2022年2月3日《樱花简报》：日本与俄罗斯新增中共病毒感染病例再创新高](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年2月2日文贵先生直播摘要及音频—银河系农场](/content/gnews/6/README.md)
+### [2022年2月2日文贵先生直播摘要及音频—银河系农场](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|战争恐成为政客逃避疫苗追责的借口](/content/gnews/7/README.md)
+### [有声|战争恐成为政客逃避疫苗追责的借口](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [2022年2月3日《樱花简报》：日本众议院全体通过涉中共国人权决议](/content/gnews/8/README.md)
+### [2022年2月3日《樱花简报》：日本众议院全体通过涉中共国人权决议](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|奥运会运动委员会主席确诊 已在北京隔离](/content/gnews/9/README.md)
+### [有声|奥运会运动委员会主席确诊 已在北京隔离](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [喜支付app store 上线不到24小时改变了世界支付的游戏规则](/content/gnews/10/README.md)
+### [喜支付app store 上线不到24小时改变了世界支付的游戏规则](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声|谁与七哥灭共，打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢！](/content/gnews/11/README.md)
+### [有声|谁与七哥灭共，打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢！](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [法律你我他：加拿大的性产业相关NGO](/content/gnews/12/README.md)
+### [法律你我他：加拿大的性产业相关NGO](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|Miles宣布美国授权撤回美国北京大使馆意味什么？](/content/gnews/13/README.md)
+### [有声|Miles宣布美国授权撤回美国北京大使馆意味什么？](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？](/content/gnews/14/README.md)
+### [2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好](/content/gnews/15/README.md)
+### [2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [扬帆每日速递2022年2月2日版（2）](/content/gnews/16/README.md)
+### [扬帆每日速递2022年2月2日版（2）](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [全球疫情更新（各国加强针接种的趋势比较）](/content/gnews/17/README.md)
+### [全球疫情更新（各国加强针接种的趋势比较）](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/18/README.md)
+### [有声|中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|郭文贵先生宣布虎年新郭七条](/content/gnews/19/README.md)
+### [有声|郭文贵先生宣布虎年新郭七条](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [1.31春晚大直播后记：唐平是卓越的音乐指导](/content/gnews/20/README.md)
+### [1.31春晚大直播后记：唐平是卓越的音乐指导](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
-
-### [有声|中共人造 “毒雪” 办冬奥](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声|澳政府禁止未接种疫苗的父母探视患病子女](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|班农先生谈中共对美洲的渗透](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|澳洲官方数据显示80%中共病毒死亡者完全接种疫苗](/content/gnews/25/README.md)
- ` MOSREC`
 
 ### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`

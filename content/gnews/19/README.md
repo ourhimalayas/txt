@@ -2,42 +2,10 @@
 ---
 
 
-## 有声|郭文贵先生宣布虎年新郭七条
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948717/)
+## 2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1948760/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月 31日新中国联邦春晚中，郭文贵先生在2022年新春伊始，寄语全球新中国联邦人，新中国联邦人在2022年最重要任务是“新郭七条”：
-
-1，一心一意灭共。
-
-2，全力以赴扩大新中国联邦，被国际各个国家主权认可度。
-
-3，全力以赴建设更多的新农场。
-
-4，把国内更多的战友救出来，同时让更多的中国人知道新中国联邦。
-
-原文链接：[郭文贵先生宣布虎年新郭七条](https://gnews.org/zh-hans/1943143/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+秘密翻译组-北美组
 
  
 

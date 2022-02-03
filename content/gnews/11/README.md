@@ -2,42 +2,67 @@
 ---
 
 
-## 有声|谁与七哥灭共，打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948781/)
+## 2022年2月2日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1948816/)
 
-配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本.jpg)
+盖特视频连接：[2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；H-Pay上线股市数字货币](https://gettr.com/streaming/przkho9412)
 
+G-TV视频连接：[2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；H-Pay上线 股市 数字货币](https://gtv.org/video/id=61fa824c96ba5d73e0c15749)
 
+1、中共春晚是：种族大屠杀、文化大屠杀、思想大屠杀、思想大垄断、没有性，钱，权交易，永远上不了春晚；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
+2、李长春喜欢古董，古董都是现挖的；
 
+3、新中国联邦春节大直播在国内观看超过2.5亿次 ，50%是重复观看；
 
+4、梵蒂冈教皇送袖扣，意味着把文贵先生当成大主教级别和他平级对待；
 
-2017年，七哥不顾家人亲属还留在危险的墙内，独自一人在美国开启爆料革命战场，与CCP展开史诗级的大博杀。面对CCP暴风骤雨般地构陷大量官司，面对海外潜伏力量让人防不胜防的打击，面对一批又一批所谓的“战友”的背叛，七哥展现出钢铁般的意志，毫不畏惧地用美国的法律沉着睿智迎战，决不动摇Take down CCP。
+5、文贵先生告诉全世界聪明的人们、智慧的人们永远要记住：珍惜生命，远离中共！
 
-如果人类不是由低级动物演变过来的，我们相信七哥就是上天安排好为百姓伸张正义、为中华大地百姓摆脱千年独裁统治而派到地球上的战神。千年一贵，正道主义感动天地，吸引大批的海外有正义、良知华裔跟随，墙内百姓积极响应。
+6、冬奥会安保都是军人，准备了最高端的电子枪，无色无味的催眠武器，500米范围内闻到就倒下；
 
-原文链接：[谁与七哥灭共，打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢！](https://gnews.org/zh-hans/1944689/)
+7、甜蜜蜜运动：第一回合美国外交撤离，第二回合三首歌，第三回合就是冬奥会，绝对把冬奥会开成冬眠会；
 
-音频处理/发稿：Daxia
+8、外交撤离在美国历史上只用过两次，打伊拉克和南斯拉夫；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+9、H-Pay：无障碍支付，无交易费（税）、无中心化支付系统、没有额度限制；
 
-**更多资讯，更多关注**
+10、喜联储提现额度会根据信用从10万到百万千万甚至亿；
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+11、GETTR有：Gettr Vision、盖特PAY、盖特币；
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+12、G-Clubs未来会一卡难求，和H-Pay联系，超出你的想象；
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+13、H-Coin 优势：（1）有稳定币；（2）有支付系统；（3）有广大使用人群（先有人后有币）；
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+14、H-Pay上线做三件事：（1）宣传使用H-Pay；（2）动用一切关系合法推广喜币H-Pay；（3）认真研究独创的H-Pay使用方法和渠道；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+15、很快中国的墓地不用付钱；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+**注：大直播音频——**
 
+编辑整理：文俊；
 
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
