@@ -2,32 +2,33 @@
 ---
 
 
-## 美官员呼吁国会立法注资高科技抗衡中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951554/)
+## 奥运会运动员在北京面临许多兴奋剂和病毒检查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1951733/)
 
-作者：纽约盘石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据相关媒体报道，16位美国前国家安全高级官员共同呼吁国会尽快通过立法，增加对美国高科技产业的资助，用以全力抗衡中共。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4.jpg)
-资料显示，美国联邦参议院已于2021年通过了《美国创新及竞争法》提案，当中要求政府为包括半导体产业在内的科技领域注资520亿美元，用于技术强化与开发。本周，联邦众议院将开始审议由该院提出的《美国竞争法》。通过后，参众两院将一同协商并解决二者之间的差异。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-39.jpg)
+图片来源：网络截图
 
-据悉，这16位前政府官员在联名信函中表示，技术保护类法案可以确保联邦所属的投资符合美国的国家安全利益，从而能够让美国继续维持实力与相当的优势来抗衡源于中共的威胁。
+据美联社北京2月2日报道，除了每天收集中共病毒样本外，北京奥运会的运动员还必须应对通常的兴奋剂检查，无论是在比赛中还是在比赛外。参加冬奥会的2900名左右的选手必须接受突击性的兴奋剂检查，这使他们面临感染中共病毒的更大风险，并可能被排除在其赛事之外。
 
-参考链接：[美前國安官員籲國會儘速立法 注資高科技抗衡中國](https://www.rti.org.tw/news/view/id/2123664)
+负责监督奥运会样本采集的国际检测机构周三表示，在奥运会封闭圈中的每个人每天都必须做检测，这增加了额外的心理负担和不确定性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+“当他们通过兴奋剂控制程序和所有的中共病毒措施时，会有很多人关注，”国际检测机构的负责人马蒂奥·瓦利尼（Matteo Vallini）说，这会给他们很大压力。
 
-总编: 飞虹
-编辑：文徬
-校正/发稿：Fei797
+设计奥运运动员检测的ITA和负责监督规则和北京检测实验室的世界反兴奋剂机构（WADA），在比赛的第一天，即开幕式的前两天详细说明了他们的计划。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+最近由奥米炕（Omicron）变体引起的中共病毒病例的浪潮使ITA的工作更加繁重。
+
+由于运动员检测结果呈阳性，迟来的和不可预测的团队选择意味着他们的替代者在奥运会前的检测计划中不那么优先。
+
+该机构周三表示，它仍然达到了向体育机构推荐的5400个样本中收集到约80%的目标。在2021年对远离比赛的运动员进行训练的测试比2019年最后一个大流行前的年份更多之后，ITA和WADA对希望举办一届干净的奥运会充满信心。
+
+今年的奥运会可能是最后一届不允许俄罗斯运动员以其国家的名义、在没有国旗和国歌的情况下参加比赛的奥运会。世界反兴奋剂机构总干事奥利维尔·尼格利（Olivier Niggli）周三说：“这一章即将结束。我们仍然保持着高度的警惕。”由212名成员组成的俄罗斯队是奥运前项目中测试最多的。
+
+北京体育大学经世界反兴奋剂机构认证的实验室将在奥运会期间分析大约2900个血液和尿液样本。该实验室是一所大学的一部分，而不是中共国的反兴奋剂机构，尼格利说，这种情况“总是更好，因为我们喜欢实验室参与研究”。他表示对该实验室没有特别的担心。
+
+新闻来源：[Olympic athletes face many doping, virus tests in Beijing](https://apnews.com/article/winter-olympics-coronavirus-pandemic-sports-health-europe-9824eafd8c76963c91139263eb431258)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/3/2022 4:08 PM (UTC)`
+
+2月3号：尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害⚠️正在被更多的人认清真相，并且将带动全球病毒溯源停止疫苗灾难的大运动💪……全球灭共全面开始！共产党你玩球蛋了！
+![img](https://media.gettr.com/group19/getter/2022/02/03/16/694e7633-6cd6-28ef-b7ab-d631647f836b/out.jpg)
+
+---
+
 `@miles 2/3/2022 3:23 PM (UTC)`
 
 2/2/2022 Miles Guo: What does the red of my suit have to do with the Vatican? It was God's will that I received the cufflinks from the Vatican before today's live broadcast.<br/><br/>2/2/2022 文贵直播：文贵这件衣服的红色跟梵蒂冈有何联系？文贵在今天直播前收到梵蒂冈送的袖扣是天意<br/>
@@ -147,13 +154,6 @@
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Zhang Gaoli fooled Peng Shuai by using the idea that "the universe is infinite" and thus became the first man to sleep with her. The stories of heroes like Churchill and Mitterrand tell us it is important to be ourselves and not to care how others see us. However, the CCP’s China Central Television (CCTV) is purely brainwashing the people, and everything is just a show<br/><br/>1/31/2022 文贵虎年新春大直播：张高丽用“宇宙无限大”骗彭帅献出第一次；丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看<br/>
 ![img](https://media.gettr.com/group40/getter/2022/02/01/23/c0a6521f-2774-8933-9559-b73738990214/out.jpg)
-
----
-
-`@miles 2/1/2022 11:40 PM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: The launch of H-Pay means that the Himalaya Exchange and Himalaya Coin have been opened to unlimited possibilities. The CCP has put up an enormous amount of money to stop H-Pay from launching. Someone from a certain country can designate the value of the Himalaya Dollar. The Himalaya Coin will be the largest currency in circulation in Russia and Ukraine. Japan will be the second largest market for Himalaya Dollar. H-Pay and Himalaya Dollar will solve the problem that spending money is harder than earning it<br/><br/>1/31/2022 文贵虎年新春大直播：H-Pay上线意味着喜联储、喜币被打通了七通六脉；中共开出天价阻碍H-Pay上线；某国人士可指定喜美元的价值；俄乌将是喜美元流通最多的国家；日本会是喜美元的第二大市场；H-Pay和喜美元将解决花钱比挣钱难的问题<br/>
-![img](https://media.gettr.com/group6/getter/2022/02/01/23/0171c2c5-8a9f-dda5-769f-250f026dcc8d/out.jpg)
 
 ---
 

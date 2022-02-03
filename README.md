@@ -15,110 +15,110 @@
 
 ---
 
-### [军队开始驱逐不愿打疫苗的士兵](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [奥运会运动员在北京面临许多兴奋剂和病毒检查](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|CNN主播：北京奥运会的背后掩盖着许多丑陋的事实](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [2.2大直播后记：战友推广HPAY三件事](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [科学家正在研究和青蒿素相关的鸡尾酒疗法](/content/gnews/6/README.md)
- ` G-NEWS TAIWAN`
-
-### [索罗斯称中共房地产热潮将全面告终](/content/gnews/7/README.md)
+### [中共国男足再次无缘世界杯](/content/gnews/1/README.md)
  ` NFSC News`
 
-### [中共为首的黑暗势力再次炒作推广新的毒疫苗](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [2/2/2022 文贵直播：喜支付的两个不可思议 &#8211; 先有客户后有币，只要双方同意战友可随心所欲地交易](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [当中共体制内认同H-pay，就达到以共灭共的手段](/content/gnews/9/README.md)
+### [2.2大直播后记：HPAY真正价值](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大前省长就旅行疫苗强制起诉联邦政府](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场`
+
+### [中共国农村八孩母亲被栓破屋的视频在网上激起民愤](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2.2大直播后记：李长春接受文贵意见](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/7/README.md)
+ ` NFSC News`
+
+### [封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/8/README.md)
+ ` NFSC News`
+
+### [年 想念](/content/gnews/9/README.md)
+ ` 纽约香草山MOS03`
+
+### [2.2大直播后记：冬奥会变成冬眠会](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [军队开始驱逐不愿打疫苗的士兵](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [奥运会运动员在北京面临许多兴奋剂和病毒检查](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|CNN主播：北京奥运会的背后掩盖着许多丑陋的事实](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [2.2大直播后记：战友推广HPAY三件事](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [科学家正在研究和青蒿素相关的鸡尾酒疗法](/content/gnews/16/README.md)
  ` G-NEWS TAIWAN`
 
-### [【玫瑰看新闻】每日快讯2021年2月2日（新西兰时间）](/content/gnews/10/README.md)
+### [索罗斯称中共房地产热潮将全面告终](/content/gnews/17/README.md)
+ ` NFSC News`
+
+### [中共为首的黑暗势力再次炒作推广新的毒疫苗](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [当中共体制内认同H-pay，就达到以共灭共的手段](/content/gnews/19/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【玫瑰看新闻】每日快讯2021年2月2日（新西兰时间）](/content/gnews/20/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [一帘幽梦千层浪](/content/gnews/11/README.md)
+### [一帘幽梦千层浪](/content/gnews/21/README.md)
  ` 银河勇气之星`
 
-### [美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/12/README.md)
+### [美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [2.2大直播后记：喜币的挑战](/content/gnews/13/README.md)
+### [2.2大直播后记：喜币的挑战](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [中共通过蓝金黄外国人为自己洗地颠倒黑白](/content/gnews/14/README.md)
+### [中共通过蓝金黄外国人为自己洗地颠倒黑白](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [贾平凹的逻辑](/content/gnews/15/README.md)
+### [贾平凹的逻辑](/content/gnews/25/README.md)
  ` 银河勇气之星`
 
-### [不要以“婚姻合法”来污辱人的智商](/content/gnews/16/README.md)
- ` 银河勇气之星`
-
-### [《灭共的雪》是前无古人的史诗般的音乐](/content/gnews/17/README.md)
- ` NFSC News`
-
-### [中共通过长津湖战役给老百姓进行爱党反美的洗脑教育](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [我让你们知道叛国卖国的意义是什么？（三）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [02/03/22 香港快讯 人权观察研究员来港签证被拒 入境处不评论 港大无回应](/content/gnews/20/README.md)
- ` 英喜-粵語組`
-
-### [喜联储H-Pay上线，战友们要做的三件事](/content/gnews/21/README.md)
- ` G-NEWS TAIWAN`
-
-### [郭先生大直播爆料 青蒿素相关鸡尾酒疗法是疫苗救星](/content/gnews/22/README.md)
- ` G-NEWS TAIWAN`
-
-### [我让你们知道叛国卖国的意义是什么？（二）](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [甜蜜蜜运动要让共产党的冬奥会变成冬眠会](/content/gnews/24/README.md)
- ` G-NEWS TAIWAN`
-
-### [美国及世界疫情简报 （02-03-2022）](/content/gnews/25/README.md)
+### [如果彭帅自己要求调查性侵事件，国际奥委会将给予支持](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [开幕之前军事行动和运动员抵制 冬奥注定变冬眠会](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [02/03/22 香港快讯 人权观察研究员来港签证被拒 入境处不评论 港大无回应](/content/gnews/27/README.md)
+ ` 英喜-粵語組`
 
-### [【玫瑰看新闻】每日快讯2021年2月1日（新西兰时间）](/content/gnews/27/README.md)
+### [喜联储H-Pay上线，战友们要做的三件事](/content/gnews/28/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美国及世界疫情简报 （02-03-2022）](/content/gnews/29/README.md)
+ ` 波士顿五月花农场`
+
+### [【玫瑰看新闻】每日快讯2021年2月1日（新西兰时间）](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [我让你们知道叛国卖国的意义是什么？（一）](/content/gnews/28/README.md)
- ` 雅典娜GNotes`
-
-### [中日财经爆┃欧洲央行决定维持其主要政策利率](/content/gnews/29/README.md)
+### [中日财经爆┃欧洲央行决定维持其主要政策利率](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】每日快讯2021年1月31日（新西兰时间）](/content/gnews/30/README.md)
+### [【玫瑰看新闻】每日快讯2021年1月31日（新西兰时间）](/content/gnews/32/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [大直播再揭中共春节晚会的黑暗内幕](/content/gnews/31/README.md)
- ` NFSC News`
-
-### [“甜蜜蜜运动”三招打残中共 让冬奥会变“冬眠会”](/content/gnews/32/README.md)
+### [“甜蜜蜜运动”三招打残中共 让冬奥会变“冬眠会”](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃疫情形势严峻 日本保险公司将何去何从](/content/gnews/33/README.md)
+### [中日财经爆┃疫情形势严峻 日本保险公司将何去何从](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：北京冬奥会开幕前夕什刹海冰场被关](/content/gnews/34/README.md)
+### [秘翻在线：北京冬奥会开幕前夕什刹海冰场被关](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [《历史上的今天》2022.02.03](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [伟大的、胜利的、继往开来的冬奥会](/content/gnews/36/README.md)
  ` 骄子`
@@ -129,35 +129,35 @@
 ### [2/3/2022 国际财经快讯：欧元通胀从未如此之高; 3.2亿美元在有史以来第二大DeFi黑客攻击后陷入困境](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国国税局不会对未售出的质押加密货币作为收入征税](/content/gnews/39/README.md)
- ` 波士顿五月花农场`
-
-### [国际奥委会胁迫台湾沦为共匪打手](/content/gnews/40/README.md)
+### [国际奥委会胁迫台湾沦为共匪打手](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`
 
-### [2/2/2022 国际财经快讯：欧元区创纪录的通胀给欧洲央行带来压力；美国贸易官员称中共国未能履行 “第一阶段 “的承诺](/content/gnews/41/README.md)
+### [2/2/2022 国际财经快讯：欧元区创纪录的通胀给欧洲央行带来压力；美国贸易官员称中共国未能履行 “第一阶段 “的承诺](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [新西兰财经G乐部2022年2月3日:财经新闻整理](/content/gnews/42/README.md)
+### [新西兰财经G乐部2022年2月3日:财经新闻整理](/content/gnews/41/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中日财经爆┃日本2022-2024年将新建多家晶圆厂](/content/gnews/43/README.md)
+### [中日财经爆┃日本2022-2024年将新建多家晶圆厂](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [助中共恶果已现！脸书股价暴跌20%、用户量下跌！](/content/gnews/44/README.md)
+### [助中共恶果已现！脸书股价暴跌20%、用户量下跌！](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/45/README.md)
+### [德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [调解日中韩三国天然气 美紧急应对俄罗斯进攻乌克兰](/content/gnews/46/README.md)
+### [调解日中韩三国天然气 美紧急应对俄罗斯进攻乌克兰](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰是俄罗斯对欧洲的帝国野心第一个受害者](/content/gnews/47/README.md)
+### [乌克兰是俄罗斯对欧洲的帝国野心第一个受害者](/content/gnews/46/README.md)
  ` 纽约香草山MOS02`
 
-### [美国前安全官员敦促国会尽早通过对华法案](/content/gnews/48/README.md)
+### [美国前安全官员敦促国会尽早通过对华法案](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦不参与加拿大自由车队示威活动](/content/gnews/48/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [文貴先生不捨中共70年來對14億人民的思想荼毒](/content/gnews/49/README.md)
  ` G-NEWS TAIWAN`

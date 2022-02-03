@@ -2,25 +2,35 @@
 ---
 
 
-## 军队开始驱逐不愿打疫苗的士兵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1951741/)
+## 中共国男足再次无缘世界杯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951940/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-8.jpg)
-图片来源：3g.163.com
-美国合众国际社新闻2月1日报道，美国军队周三宣布它将立刻赶走那些决定不打新冠病毒疫苗者。
+作者：纽约香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
 
-军事秘书克里斯丁·沃慕斯命令指挥官开始对那些没有获得例外的拒绝打疫苗者进行“非自愿行政分离程序”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
 
-军队需要士兵随时准备为国参加受训，出发，奋战和赢得战争的胜利，而不接受疫苗的士兵对此表现对战斗力的威胁性和危害到部队的随时准备性。我们将对那些没有获得例外准许的不愿接受疫苗的士兵开始非自愿行政分离程序。
+对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
 
-绝大多数军队服务人员已经完全接种，96%-97%的人至少打了一针，在军队预备役中有79%的人已完全接种，83%的人至少打了一针。
+参考链接：
+1）[https://gwins.org/cn/milesguo/21801.html](https://gwins.org/cn/milesguo/21801.html)
+2）[20180627之2 ：一边抽雪茄一边直播（第二段）](https://www.youtube.com/watch?v=C5iihj7zNqM)
 
-目前有3300位军队服务人员拒绝疫苗，3073人已收到训诫，5870人获得临时例外，还有些人正在等待请求例外的决定。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-目前还没有对任何不服从疫苗接种的士兵实施非自愿行政分离程序，但目前已解除了6名常规军事指挥官，包括两名营级指挥官。
+总编：文特
+编辑：文特
+校正/发稿：谐趣园
 
-##### 新闻来源： [Army to begin expelling soldiers who refuse COVID-19 vaccine](https://www.upi.com/Top_News/US/2022/02/02/Army-vaccine-COVID-19-separation/3241643828573/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

@@ -2,35 +2,38 @@
 ---
 
 
-## 中共为首的黑暗势力再次炒作推广新的毒疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1951639/)
+## 封锁与疫苗被证实无效 政府应向民众致歉
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951798/)
 
-**【国内新闻短评】**
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据多家媒体消息显示，约翰-霍普金斯大学近期发布的一项研究结果表明，在2020年春季的第一波中共病毒大流行期间，严格的封锁措施仅仅将欧美等国家的中共病毒死亡率降低了0.2%。
 
-参考消息2022年2月3日报道：西媒：“泛冠状病毒”疫苗或即将问世
-![](https://assets.gnews.org/wp-content/uploads/2022/02/103.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/image-220.png)
-**短评：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9.jpeg)
 
-2022年2月3日，中共喉舌参考消息网报道：西班牙《世界报》网站1月31日发表题为《预防所有新冠病毒变种和未来冠状病毒的通用疫苗离我们越来越近》，美国辉瑞公司和莫德纳公司已经开始针对奥密克戎变种的特定疫苗的临床试验，世界各地的研究人员正在努力研发新冠病毒的通用疫苗，这种“泛冠状病毒”疫苗不仅可以对抗新冠病毒，还可以对抗所有已知的人类冠状病毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-221.png)
-这让我们不禁想起2020年中共为首的黑暗势力对所谓疫苗问世的宣传与铺垫，和2022年2月3日的这篇报道手法如出一辙。2020年9月15日，据央视新闻1+1消息，白岩松连线中国疾病预防控制中心生物安全首席专家武桂珍，专家披露了秋冬是否可能面临新冠肺炎疫情和流感叠加流行，流感疫苗应该怎么打，以及新冠疫苗接种等问题的最新进展。当时武桂珍表示“大概2020年11月或12月普通人就可以接种新冠疫苗，且根据疫苗的三期临床结果来看，目前进展非常顺利。跟大家说呢，到现在为止打疫苗的这些人当中没有一例患新冠肺炎的。”2020年4月份武桂珍就作为受试人群打了疫苗，她表示“这几个月感觉非常好，没有任何不一样的地方，接种疫苗的时候局部也没有疼痛”，武桂珍还说“目前我们国家呢在整个这方面的疫苗的整个研发及生产都是全世界走在前列的”。但是，这近两年强打疫苗后的世界让我们看到了真相，疫苗根本就不存在，中共病毒只是餐前小菜，毒疫苗才是主角。被毒疫苗打死的人数不胜数，毒疫苗导致的各种疾病数不胜数，所谓疫苗不仅没有阻挡住病毒的爆发，反而让我们看到病毒爆发率与疫苗注射率成正相关的现象，这直截了当的说明了强打进身体里的疫苗就是毒。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-222.png)
-当然，这一切早就在新中国联邦爆料革命郭文贵先生的预料之中，郭文贵先生早就将掌握的中共的情报信息告诉了全世界，只是全世界都不相信，特朗普也不相信，导致了后来大家有目共睹的病毒灾难与疫苗灾难，导致了特朗普与众多政要与所谓精英都染上了中共病毒打了毒疫苗，老百姓就更不用说了。新中国联邦爆料革命郭文贵先生早在2020年2月21日的全球视频直播中就向全世界传达了武汉P4实验室研究病毒与疫苗的事实；早在2020年3月23日的全球视频直播中就向全世界揭发了中共一手拿疫苗一手拿医疗设备对全世界进行谈判与威胁的事实；早在2020年8月23日的全球视频直播中就告诉全世界疫苗和经济都在政客手里边，病毒疫情的（快速）解决是不可能的，无论是美国哪个党，不论是欧洲哪国，都应该全面的查清真相解决问题；早在2020年9月5日的全球视频直播中就向全世界委婉地宣告了中共2月26号就有真疫苗般的解药的真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-223.png)
-这两年不断恶化的病毒疫情与疫苗灾难一次次地向全世界证实了中共的邪恶，证明了郭文贵先生为代表的爆料革命新中国联邦的伟大。接下来，郭文贵先生为代表的爆料革命新中国联邦将同全世界正义力量一起，送中共下地狱。中共，你完蛋了。
+据悉，此项研究涉及的项目包括学校停课、企业倒闭和强制戴口罩等封锁措施。而相关研究的结果指出，封锁对于公共卫生而言几乎没有任何用处，但这些封锁措施却给各国带来了巨大的经济和社会成本。
 
-新闻链接：
-[**https://mr.baidu.com/r/AHXeLfqz4Y?f=cp&u=1e0aaa92aaedb79b**](https://mr.baidu.com/r/AHXeLfqz4Y?f=cp&amp;u=1e0aaa92aaedb79b)
+当天，约翰-霍普金斯大学的顶级医学博士麦克利也其社交媒体上表示，越来越多的研究证明，在中共病毒大流行期间，自然免疫比中共病毒疫苗更加有效且持久。麦克利博士强调，政府目前推行的疫苗强制令完全不尊重临床数据研究，实际上，拥有自然免疫力的民众不应该被强制要求接种中共病毒疫苗。
 
-素材：洛杉矶盘古农场 — 归去来兮
-评论：洛杉矶盘古农场 — 归去来兮
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+对此，评论人士则表示，民众不但应该拒绝政府将强制封锁作为应对中共病毒大流行的工具与措施，那些因拒绝接种中共病毒疫苗而被解雇的工人更应该被恢复工作，且政府与企业主应该向他们道歉。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：
+1）[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+2）[Lockdowns only reduced COVID-19 death rate by .2%, study finds: ‘Lockdowns should be rejected out of hand’](https://www.foxnews.com/us/lockdowns-reduced-covid-19-mortality-by-2-study-finds-lockdowns-should-be-rejected-out-of-hand)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Ivy001 
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
