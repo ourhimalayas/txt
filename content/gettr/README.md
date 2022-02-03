@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/3/2022 10:49 PM (UTC)`
+
+2月3日，“Hcoin To the Moon ” MV上线第56天位列澳门🇲🇴iTunesMV榜首🥇，累计共43次排名第一🎉🎉🎉<br/><br/>位列台湾🇹🇼iTunes 嘻哈歌曲榜首🥇🎉🎉🎉<br/><br/>《马背英雄》位列香港🇭🇰iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>《酒灭中共》位列香港🇭🇰iTunes 嘻哈歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，台湾和香港的兄弟姐妹们! 祝虎年吉祥平安！🧧🧧🧧🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1952609/<br/><br/>Feb 3rd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 56 Day of Launch, hit No .1 for 43 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Taiwan 🇹🇼 iTunes Hip-Hop/Rap Song Chart🎉🎉🎉<br/><br/>“The Hero” Hit No.1🥇on Hong Kong iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Drink Down The CCP” hit No.1 🥇on Hong Kong iTunes Hip-Hop/Rap song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau, Taiwan and Hong Kong! Have a safe and lucky year of Tiger!🧧🧧🧧🙏🙏🙏
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@miles 2/1/2022 11:34 AM (UTC)`
@@ -149,13 +155,6 @@
 
 2/1/2022 Miles Guo’s GETTR: The fellow fighters who joined the grand live broadcast yesterday and the three songs I sang have shocked all walks of lives in China, and people have seen the hope of China. The “Tian Mi Mi Movement” will be a peaceful political and cultural movement featuring high technology, spirits, faiths, religions, and media communication.<br/><br/>2/1/2022 文贵盖特：昨天大直播屏幕上的战友们和三首歌震撼了国内各界人士，大家看到了中国的希望，“甜蜜蜜运动”将是一场高科技和精神、信仰、宗教及媒体传播的和平政治文化运动<br/>
 ![img](https://media.gettr.com/group15/getter/2022/02/02/00/f597a34b-3ac1-8760-b32d-79dfb7c94a1a/out.jpg)
-
----
-
-`@miles 2/2/2022 12:03 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: Mr. Miles Guo proposed a new “7 Principles”for 2022 on the live broadcast of the Chinese New Year of the Tiger, to share with all the fellow fighters of New Federal State of China <br/><br/>1/31/2022 文贵虎年新春大直播：郭文贵先生于虎年春节大直播上提出了2022年新“郭七条”，与新中国联邦战友们共勉
-![img](https://media.gettr.com/group18/getter/2022/02/02/00/0762b768-6a8a-0f83-7274-d78f0c7d4555/out.jpg)
 
 ---
 

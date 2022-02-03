@@ -21,83 +21,83 @@
 ### [北京冬奥会是中共自杀的表演，甜蜜蜜运动正式进入第三幕](/content/gnews/2/README.md)
  ` YALUN 亚伦`
 
-### [魁北克政府计划放弃强征疫苗税](/content/gnews/3/README.md)
+### [在宪兵营前自焚的意大利教师，其真实目的迷雾重重](/content/gnews/3/README.md)
+ ` xiaobaige`
+
+### [文贵先生直播精要2022/02/02](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [魁北克政府计划放弃强征疫苗税](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [扬帆每日速递2022年2月3日版（2）](/content/gnews/4/README.md)
+### [扬帆每日速递2022年2月3日版（2）](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [扬帆每日速递2022年2月3日版（1）](/content/gnews/5/README.md)
+### [扬帆每日速递2022年2月3日版（1）](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [CNN表示会在北京冬奥会期间关注中共新疆大屠杀](/content/gnews/6/README.md)
+### [CNN表示会在北京冬奥会期间关注中共新疆大屠杀](/content/gnews/8/README.md)
  ` GTV News Talk`
 
-### [突发新闻：纽约护士爆料。录音揭示给儿童、低收入和无家可归的成年人注射的COVID-19 疫苗可能存在管理不善的情况](/content/gnews/7/README.md)
+### [突发新闻：纽约护士爆料。录音揭示给儿童、低收入和无家可归的成年人注射的COVID-19 疫苗可能存在管理不善的情况](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [市长庄德利说，市政府正在为多伦多可能的“车队”抗议做准备](/content/gnews/8/README.md)
+### [市长庄德利说，市政府正在为多伦多可能的“车队”抗议做准备](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [美国联邦债务首次超过30万亿](/content/gnews/9/README.md)
+### [美国联邦债务首次超过30万亿](/content/gnews/11/README.md)
  ` GTV News Talk`
 
-### [七绝 和禅宗悟道诗四首](/content/gnews/10/README.md)
+### [七绝 和禅宗悟道诗四首](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大《国家邮报》：多数加拿大人希望终止所有防疫限制，人们正在觉醒](/content/gnews/11/README.md)
+### [加拿大《国家邮报》：多数加拿大人希望终止所有防疫限制，人们正在觉醒](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [多伦多司机修车8个月还在等零件](/content/gnews/12/README.md)
+### [多伦多司机修车8个月还在等零件](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [2022符合条件加拿大居民装修房屋政府给钱](/content/gnews/13/README.md)
+### [2022符合条件加拿大居民装修房屋政府给钱](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [脸书母公司创股市历史最大单日损失](/content/gnews/14/README.md)
+### [脸书母公司创股市历史最大单日损失](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美智库专家：中共试图通过笼络美国精英击败美国](/content/gnews/15/README.md)
+### [美智库专家：中共试图通过笼络美国精英击败美国](/content/gnews/17/README.md)
  ` GTV News Talk`
 
-### [Meta股价大幅下跌震撼世界科技股](/content/gnews/16/README.md)
+### [Meta股价大幅下跌震撼世界科技股](/content/gnews/18/README.md)
  ` Shuizhuyu`
 
-### [中共将奥运政治化，印度特使不会出席开幕式或闭幕式](/content/gnews/17/README.md)
+### [中共将奥运政治化，印度特使不会出席开幕式或闭幕式](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [西站出品（之）– 七哥讲堂 （四）](/content/gnews/18/README.md)
+### [西站出品（之）– 七哥讲堂 （四）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国称ISIS头目库莱希在突袭叙利亚时自杀身亡](/content/gnews/19/README.md)
+### [美国称ISIS头目库莱希在突袭叙利亚时自杀身亡](/content/gnews/21/README.md)
  ` Shuizhuyu`
 
-### [白宫发言人回答关于美国冬奥运动员在华安全问题](/content/gnews/20/README.md)
+### [白宫发言人回答关于美国冬奥运动员在华安全问题](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北京奥运会将成为中共国情报收集的金矿](/content/gnews/21/README.md)
+### [北京奥运会将成为中共国情报收集的金矿](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国是美国有史以来面临的最大对手](/content/gnews/22/README.md)
+### [FBI局长：中国政府对西方的威胁更加肆无忌惮](/content/gnews/24/README.md)
+ ` GTV News Talk`
+
+### [中共国是美国有史以来面临的最大对手](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中俄正在形成很危险的伙伴关系](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新西兰科学家在辉瑞疫苗中发现奇怪纳米结构](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [DC每日热点0203](/content/gnews/25/README.md)
+### [DC每日热点0203](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国总理未规划出席北京冬奥会](/content/gnews/26/README.md)
+### [德国总理未规划出席北京冬奥会](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [【信仰之声】七哥所说“圣经中的香草山”是什么？](/content/gnews/27/README.md)
+### [【信仰之声】七哥所说“圣经中的香草山”是什么？](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
-
-### [MV版Hcoin To the Moon上线56天第43次位列澳门iTunes热门MV榜首](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [官方数据显示病毒死亡率与接种剂量相关](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
