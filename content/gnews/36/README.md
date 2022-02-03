@@ -2,14 +2,20 @@
 ---
 
 
-## 有声|2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950220/)
+## 有声|FBI指中共对西方的威胁较以往更明目张胆
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950222/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国联邦调查局局长克里斯托弗·雷 1 月 31 日在发表演说时表示，中共当局对西方的威胁比以往更加明目张胆，也更具有破坏性。
 
+在联邦调查局的调查中，有超过 2000 宗涉及中共指使盗窃的案件，包括试图窃取美国的科技资讯，雇用黑客窃取美国国民的个人信息以及商业机密等，其严重程度比其他国家的总和还要厉害得多。
 
-文字版原文：[2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1944562/)
+这是自克里斯托弗雷 2017 年接任联邦调查局局长以来，又一次对中共当局表示担忧和关注，根据他的形容：“没有一个国家像中共政府一样，对美国的理念、创意和经济安全，构成了如此广泛的威胁。”
+
+与此同时，中共则一如既往地予以否认，更批评美国的指控毫无事实根据，是蓄意抹黑中国。
+
+文字版原文：[FBI指中共对西方的威胁较以往更明目张胆](https://gnews.org/zh-hans/1945243/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

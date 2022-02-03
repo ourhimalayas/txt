@@ -2,24 +2,22 @@
 ---
 
 
-## 德国总理确定不出席北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949082/)
+## 中日财经爆|印度政府承认数字货币合法性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949238/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-141.png)图片来源
-德国总理萧兹（Olaf Scholz）去年12月29日表示尚未决定是否前往中共国出席冬奥会，今年2月2日终于决定说，他没有规划要出席2月4日展开的北京冬季奥运会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-148.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwp-content%2Fuploads%2F2021%2F07%2FTax-implications-for-Investing-in-Cryptocurrency-in-India.jpg&amp;imgrefurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwhat-are-the-tax-)
+印度2月1日举行的国家预算会议提案，将针对数字资产的交易征收30%的税赋，这代表印度官方认同加密资产合法性。
 
-萧兹接受「德国第二电视台」（ZDF）访问时，记者询问他是否会出席北京冬奥。萧兹回答：「我没有旅行计画，所以不能假设我会突然露面。」他没有说明为何未安排前往北京。
+印度财政暨企业事务部长Nirmala Sitharaman表示，有鉴于数字资产交易的频率与规模明显增加，任何源自于数字资产交易的营收应该征收30%的税赋，除了购入成本之外，在计算相关收入时，不得扣除任何支出；若有损失，也不得与其他收入抵销，就算是赠予，也建议向接受者征税。
 
-德国负责外交和体育事务的部门发言人去年12月29日表示，这两个部门的部长将不会出席2月份的北京冬奥会。目前，德国正与欧洲盟国就全面的外交抵制保持联系。
+加密货币在印度可说是峰回路转，因为，印度央行在2018年曾宣布禁止境内的加密货币交易，使得当地的加密货币交易中心相继退出，然而，印度最高法院却在2020年搁置此一禁令，认为加密货币并未直接或间接对当地银行造成任何损失。
 
-德国内政部发言人表示，部长法泽尔(Nancy Faeser)本人已决定，将不出席北京冬奥会，部分原因是中共病毒（新冠疫情）。
+在解禁之后，印度快速成为全球采用加密货币的第二大国家，仅次于越南。根据加密货币市场分析机构Chainalysis公布的加密货币采用指标，在前十名当中，除了位居第八的美国，其余皆属新兴市场。
 
-德国政府一位发言人表示，总理朔尔茨(Olaf Scholz)尚未决定是否前往中国出席冬奥会，并补充称柏林方面仍在与欧盟的盟友讨论此事。
+印度金融服务业者Zerodha的创办人暨执行长Nithin Kamath认为，这意味着，加密货币在印度的角色将成为资产而非货币，可能会被当成股票之类的资产对待，届时官方机构不仅可以提供加密货币交易，也将让它合法化，但值得注意的是，印度政府也可能会将它集中管理，因而失去加密货币的分散优势。
 
-消息来源：[北京冬奥前夕德国总理萧兹称未规划出席](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E5%89%8D%E5%A4%95-%E5%BE%B7%E5%9C%8B%E7%B8%BD%E7%90%86%E8%95%AD%E8%8C%B2%E7%A8%B1%E6%9C%AA%E8%A6%8F%E5%8A%83%E5%87%BA%E5%B8%AD-023522917.html)
-
-[德国外交和内政部长不会出席北京冬奥 总理尚未做出决定](https://cn.reuters.com/article/germany-beijing-olympics-1229-wedn-idCNKBS2J9028)
+消息来源：[数字资产走红，印度政府提议对加密货币及NFT交易抽税，比例为30%](https://www.ithome.com.tw/news/149177)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
