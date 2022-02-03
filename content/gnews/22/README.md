@@ -2,24 +2,24 @@
 ---
 
 
-## 面对日本的硬 中共官媒为自己的软找台阶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949658/)
+## 美国前安全官员敦促国会尽早通过对华法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949737/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-159.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://japan-forward.com/wp-content/uploads/2018/10/Japan-China-Summit-2018-007-e1610415984288.jpg&amp;imgrefurl=https://japan-forward.com/confession-of-a-recovering-pro-china-sympathizer-its-time-to-stop-giving-aid-and-comfort-to-the-ccp/&amp;tbnid=DUzVD2QDDhCzUM&amp;vet=12ahUKEwj3xvGN3-L1AhWawmEKHV09DgIQMygDegUIARCNAQ..i&amp;docid=TuEv1-gzBUKNRM&amp;w=1600&amp;h=800&amp;q=Japan%20CCP&amp;ved=2ahUKEwj3xvGN3-L1AhWawmEKHV09DgIQMygDegUIARCNAQ)
-自从去年岸田文雄政府执政以来，日本对中共一改过去的含蓄隐忍，而愈发强硬。面对日本的频频“挑衅”，中共却无实质反击动作，显得非常被动，对此，中共官媒近期开始找台阶安抚国内的粉红情绪。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-164.png)图片来源于本文链接
+华盛顿，2月1日，路透社消息，十几位前美国国家安全官员致函国会，敦促早日通过扶持美国高科技领域对抗中共国的法案。
 
-2月2日，中共《国防时报》发表《立陶宛挑衅，中国迅速反制，同样爱“挑衅”，中国为何不搭理日本》一文。
+民主党和共和党政府的十六位前官员签署了联名信，其中包括奥巴马时期担任国防部长的莱昂-帕内塔和小布什时期负责国家安全事务的总统助理斯蒂芬-哈德利。
 
-文章称，一个有趣的现象是：近一段时间，中国对立陶宛进行了快准狠的反制，对日本却颇为冷淡，反击以舆论为主。日本，与立陶宛一样在台海问题上做文章，实际目的却不尽相同。日本之所以不断挑衅中国，是希望将中日关系推入更加紧张的状态。
+信中强调该法案将确保美国继续处于微电子领域的前沿。呼吁两党早日达成一项全面竞争力法案，确保联邦投资与国家安全利益相一致，并使美国能够保持其实力和相对于竞争对手的优势。
 
-日本主动挑衅中国，并渲染中国“军事威胁”，根本目的是倒逼美国放松对日本的军事捆绑，以达到“修宪”的目的。因此，面对日本的挑衅，中国选择一定程度上的“冷处理”，不让局势升级，避免踏入日本的圈套。
+去年，参议院通过了《美国创新和竞争法》（USICA）。 它包括520亿美元用于促进半导体生产，以及约1900亿美元用于加强美国的技术和研究以应对中共国。
 
-从中共《国防时报》这篇文章可以看出，中共就是典型的流氓小痞子的本质，“你硬它就软，你软他就硬”。
+众议院法案不包括用于技术和研究的约1900亿美元，但包括450亿美元用于加强供应链，生产基本商品和工业设备，以及支持制造技术。
 
-中共敢动立陶宛而不敢动日本，主要还是基于对日本综合实力和利弊权衡所做出的研判，中共对日本在经济、科技等方面高度依赖，当前日企已经在不断撤离，中共既不能对日本硬来也没有硬来的抓手。
+众议院本周开始就该法案进行辩论。
 
-信息来源：[立陶宛挑衅，中国迅速反制，同样爱“挑衅”，中国为何不搭理日本](https://c.m.163.com/news/a/GV27H9KJ0543B4S9.html?spss=newsapp)
+信息源：[米の元安保担当高官十数人、議会に対中法案の早期可決求める](https://jp.reuters.com/article/usa-china-congress-letter-idJPKBN2K70A1)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*

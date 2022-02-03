@@ -2,8 +2,8 @@
 ---
 
 
-## 流氓才搞房地产
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949655/)
+## 输血会感染mRNA和石墨烯
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949711/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

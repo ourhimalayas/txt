@@ -2,34 +2,36 @@
 ---
 
 
-## 新春大直播震撼世界 甜蜜蜜运动史无前例
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949540/)
+## 北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949654/)
 
-撰稿：纽约香草山 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
-2月1日，虎年初一，郭文贵先生在盖特视频中指出，”虎年新春大直播”在国内国外引起了轰动效应，”甜蜜蜜”运动将在虎年登上新高度。 长达13个小时的新春直播，国内战友称赞直播技术、观感有很大提升，出镜战友的素质也越来越高。 郝海东先生真切可信，再一次引领潮流。 这些都是新中国联邦的力量展现。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+自从疫情爆发以来，中共政府从未对内对外公布感染病毒及死亡的真实数字。随着冬奥开幕尽在咫尺，中共开始甩锅外来参赛人员。
 
-大直播也对西方社会影响巨大。 很多人拒绝参加冬奥会，制裁邪恶中共的法案将陆续出台。 承认新中国联邦政权，并开展合作，也开始成为了各国的选项。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-156.png)
-此外，甜蜜蜜运动的意义，郭先生强调是史无前例的，融合了高科技、精神、信仰、媒体传播的政治文化运动。 无数高智商情商的战友正在为此精心准备。 它将唤醒愚钝的心灵，开始思考生存的意义。 且新中国联邦新春大直播已经对中共造成巨大的威胁，多国政府也受到新春大直播的直接影响。
+据路透社北京1月31日的—篇报道，在过去的四天里，在参与北京冬奥会的运动员和工作人员中发现了119例COVID-19病例。冬奥会组织者周一表示，周末的统计结果显示，周日有37个新病例，周六有34个，大多数人在抵达机场后检测出阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0.jpg)
+为减少所谓的扩散，将参与者、工作人员和媒体与公众分开，称之为“闭环”。所谓“闭环”，就是允许这些参赛者及工作人员可以乘坐官方交通工具在住宿区和奥运场馆之间移动，但不允许他们在公共场合自由行动。
 
-链接：[郭文贵先生2022年2月1日盖特](https://gettr.com/post/prt6yo3915)
+对于这种极端限制人身自由的做法，中共官方喉舌《人民日报》给予了大力的赞扬，肯定了政府为筹备奥运会和对抗病毒传播所做的工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+在一个由于严重污染冬季根本没有雪的城市举办冬季奥运会本身就是一个天大的笑话，打着对抗病毒传播限制人身自由更是愚蠢狂妄。
 
-总编：Irene木木
+参考来源：[北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](https://www.reuters.com/world/china/china-reports-37-new-covid-19-cases-among-olympics-personnel-jan-30-2022-01-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=31-1-22&amp;utm_campaign=31-1-22)
 
-编辑：宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
 
-校正/发稿：浪迹天涯
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
 
 
  

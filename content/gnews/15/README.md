@@ -2,35 +2,36 @@
 ---
 
 
-## 郭文贵先生谈音乐的力量
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949713/)
+## 新州：民众在觉醒，40岁以下不到三分之一接种加强针
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1949764/)
 
-撰稿：纽约香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-郭文贵先生在2022年新中国联邦新春晚会上演唱的三首灭共歌，深深震撼了每一个镜头前的战友，用真情演绎了直击人心的音乐不需要技巧，用的是真心。郭先生是灵魂歌者，歌王实至名归。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-1.jpg)
-郭先生的演唱为这三首脍炙人口的著名歌曲赋予了新的生命，曲惊天下，尤其是邓丽君女士的《一帘幽梦》，这首最温柔的歌，郭先生唱出了呐喊，深情，力量！一帘幽梦，不再是儿女情长的梦，而是家国信仰之梦。
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-郭先生说中国人骨子里有浪漫，音乐是永恒的，邓丽君女士的歌激励着我们，让我们每个人的内心世界都打开一扇激情的门。中国人百年来一直都在追求民主，法治，自由，我们从来没有忘记过，也永远不会放弃。
+整理/编辑：小鱼儿
 
-郭先生认为每个人演唱这三首歌时都将从中找到与神沟通的感觉。我们一定要活出每个人的精彩，我们新中国联邦必须让中国人找回属于自己的浪漫，尊严，善良，和平，友好。让中国人成为世界上最受尊敬，最被喜欢，最爱打交道的人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)
 
-中国人被中共百年洗脑，中共展示的辉煌的新春晚会以及营造的万邦来朝的冬奥会背后，与老百姓凄惨的被洗脑的贫穷生活形成巨大反差，这就是共产党为什么要进行网络屏蔽。中共如果不控制音乐，音乐就会戳穿假恶丑，官僚和虚伪，这就是音乐的力量。音乐要唱出自己，唱出心声，真实和利他。
 
-参考来源：[https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55](https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+图片来源：雅典娜设计组
 
-编辑/校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+当地时间2月3日，据每日邮报（Dailymail）报道，新南威尔士州的三剂疫苗接种率为 43.71%——全国最低，不到三分之一的 40 岁以下的人接种了第三剂疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+反对党领袖克里斯·明斯（Chris Minns）呼吁，新州政府强制要求为卫生、教育和老年护理等领域的员工，接种第三剂疫苗。明斯先生希望新州，首先是强制为必要员工提供加强针，然后再转移到其他人口。
+
+幸运的是，更多的民众在觉醒。网友-加泽德写道：2 针？3 针？4 针？您遵守是因为您希望它结束​​，但您的遵守就是它永远不会结束的原因！在英国81,000 名护士和医生说“不”，政府做了 180 度大转弯。疫苗永远不应该是强制性的，尤其是对减少感染和死亡毫无帮助的疫苗，比如新冠疫苗。网友-赛德007写道：工党及其对疫苗强制的狂热痴迷是怎么回事？
+
+参考新闻：[Thousands of essential workers could be forced to get their Covid booster shots or be sacked in Dan Andrews-style mandate as NSW third dose rate falls to worst in Australia](https://www.dailymail.co.uk/news/article-10470513/Thousands-essential-workers-forced-Covid-booster-shots-sacked-NSW.html)
+
+发布：星谕
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

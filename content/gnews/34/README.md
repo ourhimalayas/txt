@@ -2,39 +2,22 @@
 ---
 
 
-## 有声|新中国联邦新闻英文节目完美首播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949531/)
+## 英俄领导人电话会谈乌克兰局势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949572/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-154.png)[图片来源](https://www.dw.com/en/ukraine-accuses-russia-of-aggravating-situation-in-donbass/a-57082586)
+据2022年2月3日NHK消息，鉴于俄罗斯在乌克兰边境部署了一支庞大的军队，促使英国首相约翰逊和俄罗斯总统普京昨就乌克兰局势举行了电话会谈。
 
-据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
+据英国政府称，约翰逊首相强烈警告称，俄罗斯入侵乌克兰将导致“悲剧性误判”，并认为乌克兰有权选择是否加入北约。对此，俄罗斯总统府表示，普京批评北约继续扩大其成员数量的行为，以及不理会俄罗斯的担忧。两者之间各说各话，分歧并没有缩小。
 
-新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
+约翰逊首相说，他在本次电话会议前1天刚刚访问了乌克兰，并与泽连斯基总统举行了会谈。约翰逊首相表明将继续支持乌克兰的能源供应等，也希望通过与俄罗斯的对话找出解决问题方案。
 
-原文链接：[新中国联邦新闻英文节目完美首播](https://gnews.org/zh-hans/1947197/)
+英国、欧盟以及美国等西方国家就乌克兰局势继续外交斡旋，俄罗斯外长虽也表示不希望战争，但各国担忧的战争风险犹在。美国宣布时刻准备向东欧部署8500人的部队，美国和英国也宣布援助乌克兰武器。乌克兰局势还牵动着台海局势，为此美军同时加大了西太平洋的战备威慑。虽然中共和俄罗斯都打着互相利用渔翁得利的算盘，其实中共对这场可能的俄乌冲突实际左右为难。此外，乌克兰的防御能力也不容乐观，这一切都使得乌克兰的局势愈加今人担忧。
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
