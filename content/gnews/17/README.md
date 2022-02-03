@@ -2,36 +2,45 @@
 ---
 
 
-## 索罗斯称中共房地产热潮将全面告终
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951647/)
+## 有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1951678/)
 
-作者：纽约香草山农场 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月31日，据当地媒体消息显示，索罗斯在一份演讲中指出，中共国的房地产行业将因当地开发商的一系列债务违约及土地和公寓的价格下跌而深受打击。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-1.jpg)
-索罗斯认为，中共的房地产热潮一直以来都是基于“竭泽而渔”的模式，而这种模式让地方政府尝到了好处。为此，他们鼓惑中国老百姓将自己大部分的积蓄投资于房地产行业。 但是，随着房地产热潮的告终及政策的转变，这种模式将使中共政府面临巨大的经济危机。
+配音：香草山佛教部 – 李傻
 
-相较于索罗斯仅仅谈及的有关中共房地产的皮毛问题，郭文贵先生曾在直播中爆料并分析称，中共国的房地产是中共当局精心设计的“庞氏骗局”，其目的在于帮助中共盗国贼家族利用信托骗局和影子金融盗取国家财富。
 
-据郭先生透露，当前高额的信贷利息足以使中共的整个房地产业全然倒闭。而当中共国的房地产和与之相关的银行、保险等行业全部崩溃之时，共产党集团中将有一半的人都会陷入经济困境之中。最后，中共国老百姓所有的房、车和银行存款等都将灰飞烟灭。
 
-参考链接：
-1) . [索羅斯警告：中國房地產熱潮告終 正面臨經濟危機](https://topic.rti.org.tw/COVID-19/archives/65732)
-2) . [恒大庞氏骗局爆雷,扫厕所的许家印卖力搅粪中南坑](https://gnews.org/zh-hans/1543771/)
+**灭共者-郭氏情报站**
+**2022年2月2日 文贵大直播**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3c8c0785043f9f8c.png)
+1、中共春晚是思想大屠杀，最大的犯罪，精神毒药，一毒几代人，浪费别人生命。新中国联邦春节直播，突破往年的5800万，国内超过2.5亿次观看，50-60%是重看，七哥的3首歌曲重看率最高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+2、冬奥会是政治交换的结果，是灭共天大的礼物，共产党将自杀自残。冬奥会现场80%是军人，准备了电击枪 （电子枪），无声无色无味的催眠武器 （使用者提前服用解药），500米内闻到的人立刻倒地，昏倒十几分钟左右。七哥正式向共产党下战书！七哥3招，冬奥会变成冬眠会！造雪弹都让你打不成。
 
-总编: Irene木木
-编辑：静言
-校正/发稿：Fei797
+3、Hpay大年初一上线，超出共产党的想象。无条件的安全支付，0交易成本，没有额度限制，我的财富我说了算。Hpay是无物理行为的、无中心化的交易。推销Hpay时第一句话就是—— 免费！人类回到最早的交易方式（最牛），点到点，没有定价，没有中心化的交易方式。所有的战友一起隔空取钱。
 
+4、Hpay上线前，美联储最先反对，日本德国法国，瑞士卢森堡全部反对。初一上线是天意。战友们要开始加大Hpay的推广！各农场要在所在国家推广 Hpay，利益未来会无限变大！后面还将有贷款，存款。
+
+5、Hpay、喜联储，不只是金融，而是全人类的未来：物质大流通，大解放，使用即是金钱！喜联储是超越国家、物理世界的，人类最新的文明，消灭人与人之间的距离，超越人类信仰的人与人之间的关系。喜联储创造全世界提现之最，打破人类万年以来一切的金融规则。 5、强者，强己不强人；恕者，恕人不恕己。一定要讲信用。Gclub 很快会一卡难求，未来和Hpay连到一起的时候，价值超出想象。
+
+文字版原文：[灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](https://gnews.org/zh-hans/1947876/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

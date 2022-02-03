@@ -2,68 +2,29 @@
 ---
 
 
-## 年 想念
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1951777/)
+## 2.2大直播后记：李长春接受文贵意见
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1951886/)
 
-作者：纽约香草山农场文艺部 – 猪逻辑
+整理：雅典娜速记组
+编辑：**Kelly**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)图片来源：雅典娜设计组
 
 
-想念祥静的归乡
-想念纯净的故土
-想念简单的人情
-想念质朴的笑容
+春节晚会是一个人类、种族的大屠杀，文化思想的大垄断，是人类历史上最大的犯罪。谁说的？七哥说的！我当着李长春面说的。李长春刚进北京城，我去见他，都去见他，什么河南的王全书，也拿着一堆小海鲜，俺们河南也不产海鲜，不知道哪来的海鲜箱子？ 最重要的是，李长春喜欢古董，全都是古董，都是挖坟挖的。李长春说：“你说啥呢？你现挖的呀？”“真是现挖的，我这是公安局长洛阳现挖的。”真找到了一个所谓的公主坟。
 
-想念意象的文字
-想念精美的瓷艺
-想念轰鸣的鞭炮
-想念浓郁的年味
+那晚上我就在那儿，我跟他说：“我看春晚是陪着孩子、陪着我娘、陪着我媳妇看的，你们这就是精神毒药，一毒好几代。（老百姓）看你们的每一个节目除了被你们共产党洗脑之外，最可怕的是扼杀了对政治、对知识、对世界的认知，浪费人家的生命。”长春嗑着瓜子，我们俩聊了两个小时。后来他把我的很多话在内部讲话时说了：“不要把中央台春晚变成让世界批评我们的工具。执行党的政策，统一思想，但不要把人变成傻子了。”我当时说:“你记住，你把所有人都变成傻子的时候，你有一个极为危险的情况，（指鹿为马）。今天，爆料革命就利用了共产党几十年宣传洗脑的这一优势，（想寻求真相的）就会去看咱们新中国联邦的春晚。
 
-想念厚重的过往
-想念温婉的品性
-想念智慧的先贤
-想念开拓的壮士
+资料来源：郭先生GTV和盖特直播视频
 
-想念溪流中的嬉戏
-想念盛夏里的虫鸣
-想念玩伴的两小无猜
-想念古老书籍的味道
+发布：星谕
 
-想念自由欢畅的呼吸
-想念清澈湛蓝的天空
-想念 你我脑海里最纯情的记忆
-想念 你我血液里 最原生的脉动
-
-眷恋的动机
-只因有梦
-如斯想念
-启程逐梦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file.jpeg)
-编辑/校对/发稿：为真不破20
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
-
-
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

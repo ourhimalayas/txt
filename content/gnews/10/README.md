@@ -2,39 +2,35 @@
 ---
 
 
-## 2.2大直播后记：冬奥会变成冬眠会
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1951775/)
+## CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951885/)
 
-整理：雅典娜速记组
-编辑：朝花夕拾
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据当地媒体报道，儿童健康保护组织CHD正在敦促美国食品和药品监督管理局FDA停止对6个月至5岁儿童的中共病毒疫苗紧急使用授权。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10.jpeg)
 
+据悉，大量的研究表明，儿童不会存在因感染中共病毒而导致并发症的风险。然而，FDA目前仍在积极催促辉瑞公司为这一年龄组的中共病毒疫苗接种工作提交紧急授权资格申请。
 
+对此，CHD正在德克萨斯州起诉FDA的此项紧急使用授权严重违反了联邦法律。CHD的主席强调，强制婴幼儿接种中共病毒疫苗是非常危险和不道德的行为，尤其是当下的紧急授权可以使医药公司不承担因疫苗副作用所带来的任何责任。因此，FDA这项糟糕的决定必须被立即停止。
 
-图片来源：雅典娜设计组
+参考链接：[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-那么第二个要告诉大家这个冬奥会的所谓两千个运动员，你们可以看到。我再给大家说一遍，共产党的冬奥会，是共产党自杀自残的一个冬奥会。现在我们在现场，就刚才给我发的视频，我要发出来就把你们吓得哆嗦，我们的人无处不在。我们很有可能把很多重要场地24小时的保安录像都拿到，未来给你放出去，你会看到你很难想象的结果，80%是中国军队的人来管理的奥运会。冬奥会周围三个必备装备。专门做的就是电击枪。七哥很早到美国的时候，人家给我演示，当时我特别傻，我说：“你来，我不相信啊！”拿着对着对方一按，百米之外，那个人就跟绳牵着一样哇就倒地了，心脏疼得啊。 我说：“我不相信，装的吗？”他说：“那你要不要试试？”我说：“我来试试。”我亲自被电。哇塞，就像有个钩抓着你胸部，就是抓啊拽啊，叫电子枪。在现场最高的电子枪全部准备了，然后是防爆设施防爆墙。还有什么大家不知道，无声的无色的无香味的催眠武器。不用拿枪你想啥都是枪吗？不用的，但是手里一按，啪，周围的人闻到立马倒下。大概500米范围之内。他没事儿，因为他按这个之前他有一种药，先一吸，没事，没任何伤害。但是让你大概昏倒十几分钟左右。这是所谓的共产党大杀器。如果觉得冬奥会是一个人类上的盛会你干嘛要准备电子枪催眠弹？你告诉我他为啥这样准备呢？
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-甜蜜蜜运动第三招——把冬奥会变成冬眠会
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-所有的要求，你看运动员要照相是吧？照相是留你的信息。你只要接触机器人，只要进屋所有的DNA全被采集，现在人类最值钱的不是比特币也不是喜币，是男女的精子和卵子。所有去的2900个运动员，我可以告诉你全都是共产党掠夺精子、卵子的最好对象，而且科技到啥程度？你只要进了这个北京城，你绝对一切都会被留下来。就这么说吧。战友们，你们知道这2900个运动员80%甚至更多的都不是世界最顶级的运动员。你见那顶级运动员会去那儿吗？ 职业运动员一个都不会去。只要去的一定是有其他原因的。而且这个中间已经预测了各种所谓暴发事件。但是中国已经下令，任何情况下都要向世界宣布，这是一个完美的，历史上从未有过的完美运动会。然后爱北京，爱中国，中国无限伟大。这个调子已经定了。不管死多少人，死人都是正常的啊。不管发生多少事都是正常的。只要别出现当年奥运会绑架事件就行了是吧？
-
-可是我告诉大家甜蜜蜜运动第一回合：就是我们告诉大家的美国外交撤离，第二回合就是今年的三个歌，第三招就是对着你冬奥会去的。
-
-甜蜜蜜运动第三招——把冬奥会变成冬眠会  。
-
-我今天大年二月初二，我向你共产党老杂毛宣布，你看我不把你冬奥会开成个冬眠会我就不叫郭文贵！你现在想撤手都撤不了。就今天还有几天开幕，我要给你整不成你共产党的冬眠会，我就不叫郭文贵！共产党的老杂毛们，记住啊！郭文贵咱是明人不做暗事。无论你黑我手机，你黑了怎么着？ 你控制我手机能咋了呢？你挡住我的甜蜜蜜运动了吗？你找到郭文贵的小视频了吗？我就是有小视频又能咋的？ 能咋地呢？我的生殖器我说了算！跟你球关系呢？ 跟你杀人大屠杀，跟你骗钱有什么关系？跟你毁掉整个香港圣城，欲占台湾这有什么关系？所以说记住七哥第三招，甜蜜蜜运动会把共产党冬奥会打残，让它变成冬眠会，没有任何人了解冬奥会过去的来龙去脉和它的地址和它的弱点。你有230万所谓的打雪弹，七哥绝对能超过你的打雪弹，我让你打不成。不信？走着看！
-
-发布：星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

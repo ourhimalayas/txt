@@ -15,89 +15,89 @@
 
 ---
 
-### [中共国男足再次无缘世界杯](/content/gnews/1/README.md)
- ` NFSC News`
-
-### [2/2/2022 文贵直播：喜支付的两个不可思议 &#8211; 先有客户后有币，只要双方同意战友可随心所欲地交易](/content/gnews/2/README.md)
+### [2/2/2022 文贵直播：文贵这件衣服的红色跟梵蒂冈有何联系？文贵在今天直播前收到梵蒂冈送的袖扣是天意](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [2.2大直播后记：HPAY真正价值](/content/gnews/3/README.md)
+### [2.2大直播后记：央视淫乱春晚](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大前省长就旅行疫苗强制起诉联邦政府](/content/gnews/4/README.md)
+### [中共国男足再次无缘世界杯](/content/gnews/3/README.md)
+ ` NFSC News`
+
+### [2/2/2022 文贵直播：喜支付的两个不可思议 &#8211; 先有客户后有币，只要双方同意战友可随心所欲地交易](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2.2大直播后记：HPAY真正价值](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大前省长就旅行疫苗强制起诉联邦政府](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国农村八孩母亲被栓破屋的视频在网上激起民愤](/content/gnews/5/README.md)
+### [疫苗灾难将引发欧盟各国的联合灭共战争](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共国农村八孩母亲被栓破屋的视频在网上激起民愤](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2.2大直播后记：李长春接受文贵意见](/content/gnews/6/README.md)
+### [2.2大直播后记：李长春接受文贵意见](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/7/README.md)
+### [CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/8/README.md)
+### [封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/11/README.md)
  ` NFSC News`
 
-### [年 想念](/content/gnews/9/README.md)
+### [年 想念](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
 
-### [2.2大直播后记：冬奥会变成冬眠会](/content/gnews/10/README.md)
+### [2.2大直播后记：冬奥会变成冬眠会](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [军队开始驱逐不愿打疫苗的士兵](/content/gnews/11/README.md)
+### [军队开始驱逐不愿打疫苗的士兵](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奥运会运动员在北京面临许多兴奋剂和病毒检查](/content/gnews/12/README.md)
+### [奥运会运动员在北京面临许多兴奋剂和病毒检查](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|CNN主播：北京奥运会的背后掩盖着许多丑陋的事实](/content/gnews/13/README.md)
+### [有声|CNN主播：北京奥运会的背后掩盖着许多丑陋的事实](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/14/README.md)
+### [有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [2.2大直播后记：战友推广HPAY三件事](/content/gnews/15/README.md)
+### [2.2大直播后记：战友推广HPAY三件事](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [科学家正在研究和青蒿素相关的鸡尾酒疗法](/content/gnews/16/README.md)
+### [科学家正在研究和青蒿素相关的鸡尾酒疗法](/content/gnews/19/README.md)
  ` G-NEWS TAIWAN`
 
-### [索罗斯称中共房地产热潮将全面告终](/content/gnews/17/README.md)
+### [索罗斯称中共房地产热潮将全面告终](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [中共为首的黑暗势力再次炒作推广新的毒疫苗](/content/gnews/18/README.md)
+### [中共为首的黑暗势力再次炒作推广新的毒疫苗](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [当中共体制内认同H-pay，就达到以共灭共的手段](/content/gnews/19/README.md)
+### [当中共体制内认同H-pay，就达到以共灭共的手段](/content/gnews/22/README.md)
  ` G-NEWS TAIWAN`
 
-### [【玫瑰看新闻】每日快讯2021年2月2日（新西兰时间）](/content/gnews/20/README.md)
+### [【玫瑰看新闻】每日快讯2021年2月2日（新西兰时间）](/content/gnews/23/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [一帘幽梦千层浪](/content/gnews/21/README.md)
+### [一帘幽梦千层浪](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/22/README.md)
+### [美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [2.2大直播后记：喜币的挑战](/content/gnews/23/README.md)
+### [2.2大直播后记：喜币的挑战](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [中共通过蓝金黄外国人为自己洗地颠倒黑白](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [贾平凹的逻辑](/content/gnews/25/README.md)
- ` 银河勇气之星`
-
-### [如果彭帅自己要求调查性侵事件，国际奥委会将给予支持](/content/gnews/26/README.md)
+### [如果彭帅自己要求调查性侵事件，国际奥委会将给予支持](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [02/03/22 香港快讯 人权观察研究员来港签证被拒 入境处不评论 港大无回应](/content/gnews/27/README.md)
+### [02/03/22 香港快讯 人权观察研究员来港签证被拒 入境处不评论 港大无回应](/content/gnews/28/README.md)
  ` 英喜-粵語組`
-
-### [喜联储H-Pay上线，战友们要做的三件事](/content/gnews/28/README.md)
- ` G-NEWS TAIWAN`
 
 ### [美国及世界疫情简报 （02-03-2022）](/content/gnews/29/README.md)
  ` 波士顿五月花农场`

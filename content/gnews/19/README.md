@@ -2,10 +2,10 @@
 ---
 
 
-## 当中共体制内认同H-pay，就达到以共灭共的手段
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951604/)
+## 科学家正在研究和青蒿素相关的鸡尾酒疗法
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951672/)
 
-台灣 寶島農場
+台灣寶島農場
 
  
 
