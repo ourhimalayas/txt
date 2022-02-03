@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的冬奥会是共产党自杀自残的一场冬奥会
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951407/)
+## 甜蜜蜜运动要让共产党的冬奥会变成冬眠会
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951424/)
 
 台湾宝岛农场
 

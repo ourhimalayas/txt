@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/3/2022 3:23 PM (UTC)`
+
+2/2/2022 Miles Guo: What does the red of my suit have to do with the Vatican? It was God's will that I received the cufflinks from the Vatican before today's live broadcast.<br/><br/>2/2/2022 文贵直播：文贵这件衣服的红色跟梵蒂冈有何联系？文贵在今天直播前收到梵蒂冈送的袖扣是天意<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/03/15/3fca798c-08ed-e1d7-4e8f-d2ac93dbd085/out.jpg)
+
+---
+
 `@miles 2/3/2022 5:19 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border” <br/>1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（纯享版）
@@ -147,17 +154,6 @@
 
 1/31/2022 Miles Guo’s Chinese New Year Live: The launch of H-Pay means that the Himalaya Exchange and Himalaya Coin have been opened to unlimited possibilities. The CCP has put up an enormous amount of money to stop H-Pay from launching. Someone from a certain country can designate the value of the Himalaya Dollar. The Himalaya Coin will be the largest currency in circulation in Russia and Ukraine. Japan will be the second largest market for Himalaya Dollar. H-Pay and Himalaya Dollar will solve the problem that spending money is harder than earning it<br/><br/>1/31/2022 文贵虎年新春大直播：H-Pay上线意味着喜联储、喜币被打通了七通六脉；中共开出天价阻碍H-Pay上线；某国人士可指定喜美元的价值；俄乌将是喜美元流通最多的国家；日本会是喜美元的第二大市场；H-Pay和喜美元将解决花钱比挣钱难的问题<br/>
 ![img](https://media.gettr.com/group6/getter/2022/02/01/23/0171c2c5-8a9f-dda5-769f-250f026dcc8d/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@thepotomacview 2/1/2022 10:43 PM (UTC)`
-
-🔥 How did America’s elites in Washington and Wall Street become influence peddlers for Beijing’s kleptocrats?<br/>🔥 What makes the US law enforcement officers work for a lawless tyranny?<br/>Subscribe & watch full episode: <br/>https://youtu.be/tSVBNw-mzsY<br/>https://gtv.org/video/id=61f990bad90bdd2085a3ae95
-![img](https://media.gettr.com/group37/getter/2022/02/01/22/9c7f1f73-87a5-b0f1-8770-aa677066dbed/out.jpg)
-> `@thepotomacview 2/1/2022 10:30 PM (UTC)`<br/>🔥How did the CCP attempt to turn America’s courtroom into its own courtyard? <br/>🔥What tactics did the CCP use to wreak havoc on America’s judicial system? <br/>Subscribe & watch full episode: <br/>https://youtu.be/tSVBNw-mzsY<br/>https://gtv.org/video/id=61f990bad90bdd2085a3ae95
-![img](https://media.gettr.com/group14/getter/2022/02/01/22/201432e1-a0cd-1508-12bd-4074408a9dc8/out.jpg)
 
 ---
 

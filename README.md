@@ -15,100 +15,100 @@
 
 ---
 
-### [有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/1/README.md)
+### [军队开始驱逐不愿打疫苗的士兵](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [奥运会运动员在北京面临许多兴奋剂和病毒检查](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|CNN主播：北京奥运会的背后掩盖着许多丑陋的事实](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [2.2大直播后记：战友推广HPAY三件事](/content/gnews/2/README.md)
+### [有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [2.2大直播后记：战友推广HPAY三件事](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [科学家正在研究和青蒿素相关的鸡尾酒疗法](/content/gnews/3/README.md)
+### [科学家正在研究和青蒿素相关的鸡尾酒疗法](/content/gnews/6/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共为首的黑暗势力再次炒作推广新的毒疫苗](/content/gnews/4/README.md)
+### [中共为首的黑暗势力再次炒作推广新的毒疫苗](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [当中共体制内认同H-pay，就达到以共灭共的手段](/content/gnews/5/README.md)
+### [当中共体制内认同H-pay，就达到以共灭共的手段](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [【玫瑰看新闻】每日快讯2021年2月2日（新西兰时间）](/content/gnews/6/README.md)
+### [【玫瑰看新闻】每日快讯2021年2月2日（新西兰时间）](/content/gnews/9/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [一帘幽梦千层浪](/content/gnews/7/README.md)
+### [一帘幽梦千层浪](/content/gnews/10/README.md)
  ` 银河勇气之星`
 
-### [美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/8/README.md)
+### [美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/11/README.md)
  ` NFSC News`
 
-### [2.2大直播后记：喜币的挑战](/content/gnews/9/README.md)
+### [2.2大直播后记：喜币的挑战](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [中共通过蓝金黄外国人为自己洗地颠倒黑白](/content/gnews/10/README.md)
+### [中共通过蓝金黄外国人为自己洗地颠倒黑白](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [贾平凹的逻辑](/content/gnews/11/README.md)
+### [贾平凹的逻辑](/content/gnews/14/README.md)
  ` 银河勇气之星`
 
-### [不要以“婚姻合法”来污辱人的智商](/content/gnews/12/README.md)
+### [不要以“婚姻合法”来污辱人的智商](/content/gnews/15/README.md)
  ` 银河勇气之星`
 
-### [《灭共的雪》是前无古人的史诗般的音乐](/content/gnews/13/README.md)
+### [《灭共的雪》是前无古人的史诗般的音乐](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [中共通过长津湖战役给老百姓进行爱党反美的洗脑教育](/content/gnews/14/README.md)
+### [中共通过长津湖战役给老百姓进行爱党反美的洗脑教育](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [我让你们知道叛国卖国的意义是什么？（三）](/content/gnews/15/README.md)
+### [我让你们知道叛国卖国的意义是什么？（三）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [在美授权撤离驻北京大使馆前，外交撤离只在美国历史上发生过两次](/content/gnews/16/README.md)
- ` G-NEWS TAIWAN`
-
-### [02/03/22 香港快讯 人权观察研究员来港签证被拒 入境处不评论 港大无回应](/content/gnews/17/README.md)
+### [02/03/22 香港快讯 人权观察研究员来港签证被拒 入境处不评论 港大无回应](/content/gnews/19/README.md)
  ` 英喜-粵語組`
 
-### [喜联储H-Pay上线，战友们要做的三件事](/content/gnews/18/README.md)
+### [喜联储H-Pay上线，战友们要做的三件事](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [郭先生大直播爆料 青蒿素相关鸡尾酒疗法是疫苗救星](/content/gnews/19/README.md)
+### [郭先生大直播爆料 青蒿素相关鸡尾酒疗法是疫苗救星](/content/gnews/21/README.md)
  ` G-NEWS TAIWAN`
 
-### [我让你们知道叛国卖国的意义是什么？（二）](/content/gnews/20/README.md)
+### [我让你们知道叛国卖国的意义是什么？（二）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [甜蜜蜜运动要让共产党的冬奥会变成冬眠会](/content/gnews/21/README.md)
+### [甜蜜蜜运动要让共产党的冬奥会变成冬眠会](/content/gnews/23/README.md)
  ` G-NEWS TAIWAN`
 
-### [美国及世界疫情简报 （02-03-2022）](/content/gnews/22/README.md)
+### [美国及世界疫情简报 （02-03-2022）](/content/gnews/24/README.md)
  ` 波士顿五月花农场`
 
-### [共产党的冬奥会是共产党自杀自残的一场冬奥会](/content/gnews/23/README.md)
+### [共产党的冬奥会是共产党自杀自残的一场冬奥会](/content/gnews/25/README.md)
  ` G-NEWS TAIWAN`
 
-### [开幕之前军事行动和运动员抵制 冬奥注定变冬眠会](/content/gnews/24/README.md)
+### [开幕之前军事行动和运动员抵制 冬奥注定变冬眠会](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【玫瑰看新闻】每日快讯2021年2月1日（新西兰时间）](/content/gnews/25/README.md)
+### [【玫瑰看新闻】每日快讯2021年2月1日（新西兰时间）](/content/gnews/27/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [我让你们知道叛国卖国的意义是什么？（一）](/content/gnews/26/README.md)
+### [我让你们知道叛国卖国的意义是什么？（一）](/content/gnews/28/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆┃欧洲央行决定维持其主要政策利率](/content/gnews/27/README.md)
+### [中日财经爆┃欧洲央行决定维持其主要政策利率](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】每日快讯2021年1月31日（新西兰时间）](/content/gnews/28/README.md)
+### [【玫瑰看新闻】每日快讯2021年1月31日（新西兰时间）](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [大直播再揭中共春节晚会的黑暗内幕](/content/gnews/29/README.md)
+### [大直播再揭中共春节晚会的黑暗内幕](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [美国作家警告人类正处在非常危险的时刻](/content/gnews/30/README.md)
- ` NFSC News`
-
-### [加拿大魁北克省放弃“反疫苗税”政策](/content/gnews/31/README.md)
- ` NFSC News`
-
-### [美议员批评白宫使用中共来源的检测试剂](/content/gnews/32/README.md)
+### [美国作家警告人类正处在非常危险的时刻](/content/gnews/32/README.md)
  ` NFSC News`
 
 ### [“甜蜜蜜运动”三招打残中共 让冬奥会变“冬眠会”](/content/gnews/33/README.md)

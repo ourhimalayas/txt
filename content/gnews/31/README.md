@@ -2,26 +2,28 @@
 ---
 
 
-## 加拿大魁北克省放弃“反疫苗税”政策
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951248/)
+## 大直播再揭中共春节晚会的黑暗内幕
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951272/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：银河系农场—骄子/香草山农场-马克文、爱丽丝
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月1日，据相关媒体报道，加拿大魁北克省准备放弃向该省未接种中共病毒疫苗的居民征收“反疫苗税”的计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.44.59.png)PHOTO : LA PRESSE CANADIENNE / JACQUES BOISSINOT
-资料显示，魁北克省的省长弗朗索瓦-莱戈尔早先在一份名为“反疫苗税”的提案中声称，该省将向拒绝接种中共病毒疫苗的群体收取100至800加元的费用，用于其所谓的“缓解该省因中共病毒而陷入困境的医疗保健系统”。随后，这一提案引发加拿大各界的批评和反对。
+1月31日，郝海东先生在新中国联邦壬寅年新春大直播中爆料称，中共央视每年春节晚会的后台全部充斥着金钱与性的肮脏交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-38.jpg)
+郝海东先生解释道，包括香港、台湾在内的演艺界人士，无论他们排练得多努力、提供的节目多出彩，如果没有黑箱操作，他们就绝对与春晚无缘。而那些迫切想依靠春晚出人头地的演艺人员只能被中共高层用性和金钱勒索。
 
-评论人士指出，与其说是为了当地民众的健康，“反疫苗税”提案实质上是出于政治目的，其损害了加拿大全民免费及公平获取医疗保障的权利。另一方面，大量的民众在接种了三剂中共病毒疫苗后依然感染了中共病毒，这足以证明疫苗全然无用。
+郝海东先生还补充道，中共春晚后台的性交易会一直持续到相关人员上台前的一秒钟，甚至他们下台之后仍会继续交易。因此，春晚舞台上的假唱或独唱变合唱的现象都是司空见惯的事情。而那些被墙内无辜的老百姓每年除夕守着观看的春晚面孔都是靠金钱和性堆积出来的。
 
-为此，在当天的新闻发布会上，莱戈尔在声明中表示，“反疫苗税”这一提案会制造当地民众的分裂，甚至可能引发抗议。因此，为了维护当地的和平与稳定，他将放弃该提案。
+此外，郭文贵先生也透露，中共对今年的春晚实行了更加严格的管制措施：为了防止有现场人员提及新中国联邦和爆料革命，所有人都不能观看任何手机直播且全称被无数国安监控；同时，春晚的直播节目审核时间从12秒延迟到35秒。
 
-参考链接：[Quebec premier drops idea of ‘anti-vax tax,’ citing need to preserve social peace](https://torontosun.com/news/local-news/legault-is-poised-to-back-away-from-quebecs-anti-vax-tax-report-says/wcm/a603aedd-d4b5-467c-b015-bacade2378ed)
+郭先生强调，相较于中共央视春晚的龌龊与欺骗，新中国联邦此次的新春大直播给国内演艺人士带来了巨大震撼，这也让中共更加恐惧新中国联邦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+参考链接：[2022年壬寅年新春大直播](https://gtv.org/video/id=61f7dc4d96ba5d73e0bfcc55)
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: Irene木木
+编辑：谐趣园
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
