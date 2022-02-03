@@ -2,80 +2,38 @@
 ---
 
 
-## 【玫瑰看新闻】每日快讯2021年2月2日（新西兰时间）
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1951599/)
+## 封锁与疫苗被证实无效 政府应向民众致歉
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951798/)
 
-**1. 美参议员呼吁拜登政府加强对中芯国际的出口限制  堵上特朗普政策的“漏洞”**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image002-2.jpg)
-**路透华盛顿2月1日 – 美国共和党参议员敦促拜登政府堵住前总统特朗普对中共国最大芯片制造商中芯国际(SMIC)实施的出口管制的“漏洞”，他们称这“明显是国家安全威胁”。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据多家媒体消息显示，约翰-霍普金斯大学近期发布的一项研究结果表明，在2020年春季的第一波中共病毒大流行期间，严格的封锁措施仅仅将欧美等国家的中共病毒死亡率降低了0.2%。
 
-参议员Bill Hagerty和Tom Cotton在致美国商务部长雷蒙多的一封信中表示，他们对一些媒体报道感到”沮丧”。这些报道称，商务部正在阻止对运往中芯国际的美国技术加强出口管制的努力。他们表示，中芯国际与中共军方关系密切。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9.jpeg)
 
-参议员们在一封日期为1月31日的信中表示，加强控制”将堵住一个重要的漏洞，阻止(中共)和(中共人民解放军)利用美国技术推进其军事现代化计划”，并询问雷蒙多是否支持加强限制。
+据悉，此项研究涉及的项目包括学校停课、企业倒闭和强制戴口罩等封锁措施。而相关研究的结果指出，封锁对于公共卫生而言几乎没有任何用处，但这些封锁措施却给各国带来了巨大的经济和社会成本。
 
-雷蒙多表示，她对尽一切努力防止中共得到美国的技术高度关切。”世界对中共长期的技术偷窃已经开始警觉和防范。**
+当天，约翰-霍普金斯大学的顶级医学博士麦克利也其社交媒体上表示，越来越多的研究证明，在中共病毒大流行期间，自然免疫比中共病毒疫苗更加有效且持久。麦克利博士强调，政府目前推行的疫苗强制令完全不尊重临床数据研究，实际上，拥有自然免疫力的民众不应该被强制要求接种中共病毒疫苗。
 
-**2.中共未能兑现中美第一阶段贸易协议承诺–美国贸易副代表比安奇**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003.png)
-**路透华盛顿2月1日 – 美国副贸易代表比安奇周二表示，中共未能履行于2021年底到期的两年期”第一阶段”贸易协议中的承诺，目前正在与中共就此事进行讨论。**
+对此，评论人士则表示，民众不但应该拒绝政府将强制封锁作为应对中共病毒大流行的工具与措施，那些因拒绝接种中共病毒疫苗而被解雇的工人更应该被恢复工作，且政府与企业主应该向他们道歉。
 
-**在前总统特朗普于2020年1月签署的协议中，中国承诺在2020年和2021年期间，在2017年的水平上增加2,000亿美元的美国农业和制成品、能源和服务采购。
+参考链接：
+1）[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+2）[Lockdowns only reduced COVID-19 death rate by .2%, study finds: ‘Lockdowns should be rejected out of hand’](https://www.foxnews.com/us/lockdowns-reduced-covid-19-mortality-by-2-study-finds-lockdowns-should-be-rejected-out-of-hand)
 
-彼得森国际经济研究所高级研究员Chad Bown编制的贸易数据显示，截至11月，中国仅完成了这一目标的约60%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-美国农业部长维尔萨克1月底对国会议员说，中共购买美国农产品的金额比第一阶段的目标少了约130亿美元。
+总编：Ivy001 
+编辑：静言
+校正/发稿：谐趣园
 
-美国统计局预计将于2月8日公布2021年商品和服务的最终贸易数据，其中将提供有关缺口的具体信息。
-
-“我们在考虑我们拥有的所有工具来确保他们被问责，”比安奇说，但没有提供细节。
-
-比安奇说，美国与中共正处于”困难阶段”。 　**
-
-**
-她说，美国贸易代表办公室强调，中共政府对企业的补贴以及非市场经济政策和做法是”对美国经济利益的严重威胁”。**
-
-**3.法官：纽约口罩令可维持至三月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image004-2.jpg)
-**【大纪元2022年02月02日讯】31日（周一），上诉法院一个法官小组裁定，纽约州长霍楚推出的强制口罩令至少可维持到3月，届时上诉法院将听取两方对此案的论点。
-
-上诉法院法官小组的裁定提到，在纽约州的下级法院对上诉作出决定之前，强制口罩令将持续有效，但纽约州必须在3月2日之前提出申请。
-
-4.普京首次公开回应俄乌危机**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-2.jpg)
-**【大纪元2022年02月02日讯】俄罗斯总统普京周二（2月1日）在新闻会上针对乌克兰问题说，美国和北约忽视了俄罗斯的主要安全要求。但他也表示，莫斯科仍愿意与西方就缓解乌克兰紧张局势进行更多谈判。
-
-这是普京在一个多月以来首次公开回应俄乌危机。
-
-普京说，俄罗斯没有看到美国和北约对俄罗斯的三个关键要求给予足够的考量。这三个要求包括保证北约不会扩张到乌克兰、放弃在俄罗斯边境附近部署进攻性武器系统，以及将盟军撤回到1997年之前的北约范围。
-
-普京提出如果乌克兰加入北约并试图以武力从俄罗斯手中夺回克里米亚，俄罗斯与北约之间就可能发生战争。
-
-周二，英国首相鲍里斯‧约翰逊和乌克兰总统弗拉基米尔‧泽连斯基发表联合声明警告说，俄罗斯对乌克兰的任何进一步入侵都将是一个巨大的战略错误，并会造成严重的人道主义代价。
-
-美国国务卿安东尼‧布林肯周二再次与俄罗斯外交部长谢尔盖‧拉夫罗夫进行了电话会谈。布林肯敦促俄罗斯从乌克兰边境撤出军队和武器。**
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

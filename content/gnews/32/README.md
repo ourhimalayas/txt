@@ -2,32 +2,35 @@
 ---
 
 
-## 奥运会运动员在北京面临许多兴奋剂和病毒检查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1951733/)
+## CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951885/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-39.jpg)
-图片来源：网络截图
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据当地媒体报道，儿童健康保护组织CHD正在敦促美国食品和药品监督管理局FDA停止对6个月至5岁儿童的中共病毒疫苗紧急使用授权。
 
-据美联社北京2月2日报道，除了每天收集中共病毒样本外，北京奥运会的运动员还必须应对通常的兴奋剂检查，无论是在比赛中还是在比赛外。参加冬奥会的2900名左右的选手必须接受突击性的兴奋剂检查，这使他们面临感染中共病毒的更大风险，并可能被排除在其赛事之外。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10.jpeg)
 
-负责监督奥运会样本采集的国际检测机构周三表示，在奥运会封闭圈中的每个人每天都必须做检测，这增加了额外的心理负担和不确定性。
+据悉，大量的研究表明，儿童不会存在因感染中共病毒而导致并发症的风险。然而，FDA目前仍在积极催促辉瑞公司为这一年龄组的中共病毒疫苗接种工作提交紧急授权资格申请。
 
-“当他们通过兴奋剂控制程序和所有的中共病毒措施时，会有很多人关注，”国际检测机构的负责人马蒂奥·瓦利尼（Matteo Vallini）说，这会给他们很大压力。
+对此，CHD正在德克萨斯州起诉FDA的此项紧急使用授权严重违反了联邦法律。CHD的主席强调，强制婴幼儿接种中共病毒疫苗是非常危险和不道德的行为，尤其是当下的紧急授权可以使医药公司不承担因疫苗副作用所带来的任何责任。因此，FDA这项糟糕的决定必须被立即停止。
 
-设计奥运运动员检测的ITA和负责监督规则和北京检测实验室的世界反兴奋剂机构（WADA），在比赛的第一天，即开幕式的前两天详细说明了他们的计划。
+参考链接：[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
 
-最近由奥米炕（Omicron）变体引起的中共病毒病例的浪潮使ITA的工作更加繁重。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-由于运动员检测结果呈阳性，迟来的和不可预测的团队选择意味着他们的替代者在奥运会前的检测计划中不那么优先。
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-该机构周三表示，它仍然达到了向体育机构推荐的5400个样本中收集到约80%的目标。在2021年对远离比赛的运动员进行训练的测试比2019年最后一个大流行前的年份更多之后，ITA和WADA对希望举办一届干净的奥运会充满信心。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-今年的奥运会可能是最后一届不允许俄罗斯运动员以其国家的名义、在没有国旗和国歌的情况下参加比赛的奥运会。世界反兴奋剂机构总干事奥利维尔·尼格利（Olivier Niggli）周三说：“这一章即将结束。我们仍然保持着高度的警惕。”由212名成员组成的俄罗斯队是奥运前项目中测试最多的。
-
-北京体育大学经世界反兴奋剂机构认证的实验室将在奥运会期间分析大约2900个血液和尿液样本。该实验室是一所大学的一部分，而不是中共国的反兴奋剂机构，尼格利说，这种情况“总是更好，因为我们喜欢实验室参与研究”。他表示对该实验室没有特别的担心。
-
-新闻来源：[Olympic athletes face many doping, virus tests in Beijing](https://apnews.com/article/winter-olympics-coronavirus-pandemic-sports-health-europe-9824eafd8c76963c91139263eb431258)
 
  
 

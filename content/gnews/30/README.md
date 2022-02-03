@@ -2,68 +2,24 @@
 ---
 
 
-## 年 想念
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1951777/)
+## 疫苗灾难将引发欧盟各国的联合灭共战争
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1951921/)
 
-作者：纽约香草山农场文艺部 – 猪逻辑
+采编： 文莱       撰稿：Quitman
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image.png)
+据1月30日GTV文贵直播报道，随着“中共病毒”疫苗伤害所导致的次生灾难即将大规模来临，欧盟各国领导人，为延续各自的政治生涯，必将联合发动剿灭中共政权的自救战争。
 
+文贵先生对此表示，由于疫苗导致的大量死亡，现已有无数美国人聚集在白宫对面的林肯纪念堂，抗议当局及主流媒掩盖医学灾难真相并体利用MRNA疫苗进行的大屠杀。
 
+此外，如果疫苗灾难一旦被美加日等最终确定，欧洲那些最严厉执行疫苗接种措施的政客们，例如法国总统马克龙，德国总理默克尔，英国首相约翰逊等，都将受到国内民众的激烈报复和讨伐，谁都无法逃避被追责和审判的结局。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+但这些欧洲国家的独裁者们绝不会坐以待毙，他们必将联合在一起，无可选择地对中共发起最后的自救战争，并利用该政权为其替罪羊，以转移国内群情激荡的愤怒和仇恨情绪。而[新中国联邦]将成为最终打扫战场的唯一胜利者。
 
+校对编辑：硫酸羟氯喹64
 
+发稿： 苦尽甜来 (文来）
 
-想念祥静的归乡
-想念纯净的故土
-想念简单的人情
-想念质朴的笑容
-
-想念意象的文字
-想念精美的瓷艺
-想念轰鸣的鞭炮
-想念浓郁的年味
-
-想念厚重的过往
-想念温婉的品性
-想念智慧的先贤
-想念开拓的壮士
-
-想念溪流中的嬉戏
-想念盛夏里的虫鸣
-想念玩伴的两小无猜
-想念古老书籍的味道
-
-想念自由欢畅的呼吸
-想念清澈湛蓝的天空
-想念 你我脑海里最纯情的记忆
-想念 你我血液里 最原生的脉动
-
-眷恋的动机
-只因有梦
-如斯想念
-启程逐梦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file.jpeg)
-编辑/校对/发稿：为真不破20
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
-
-
+新闻来源： https://gtv.org/video/id=61f6900896ba5d73e0bee910
 
  
 
