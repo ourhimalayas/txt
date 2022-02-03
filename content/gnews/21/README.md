@@ -2,26 +2,34 @@
 ---
 
 
-## 澳洲免疫咨询小组或将普及第四针CCP病毒疫苗提上议程
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1951991/)
+## 完全接种疫苗的澳洲小哥一个月内两次确诊CCP病毒感染
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952004/)
 
 撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020301.jpg)网络图片
-澳大利亚新南威尔士州的首席医疗官保罗·凯利教授本周表示，或许新州民众乃至整个澳洲的居民还并没有完全走出CCP病毒的困境。
 
-在过去的24小时内，悉尼所在的新南威尔士州总共出现了12,632例新增CCP病毒确诊感染者。相较过去一段时间的情况，这一结果似乎已经趋于稳定。然而专家却认为，当南半球的冬季（即从5、6月份开始）到来时，或许还会有新一波的疫情浪潮。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020204.jpg)图片：澳喜农场
 
-而政府面对这一可能威胁的方法似乎仍然是推出更多剂次的疫苗——凯利教授透露，当局正在为冬季疫情的死灰复燃做准备，澳大利亚免疫技术咨询小组目前正在研究第四针CCP病毒疫苗的有效性。如果这一机构认为有必要，那么未来可能会推出第二剂加强针。
+来自澳大利亚新南威尔士纽卡斯尔地区的20岁男子Will Benson今日表示，他在一个月内连续感染了两次CCP病毒并检测呈阳性。
 
-凯利教授似乎也在附和免疫咨询小组的行动，他表示如果一些高风险群体需要进行第二剂的CCP病毒加强针注射，目前澳大利亚的CCP病毒疫苗储备完全能够满足要求。
+第一次确诊是在去年的12月27日，他收到来自澳大利亚新南威尔士州的短信消息，通知他病毒检测结果为阳性。随后Benson小哥花了大概一周的时间痊愈，并且在隔离情况下得到了阴性结果，于是他继续回归工作。
 
-然而实际情况似乎难以证明疫苗的有效性，哪怕是阻止死亡或重症。在过去的24小时中，澳洲新南威尔士共有38人因感染CCP病毒而不幸离世。其中4人接种了三剂CCP病毒疫苗、24人接种了两剂CCP病毒疫苗，1人接种了一剂CCP病毒疫苗。
+然而到了1月底，Benson再度感觉身体出现不适并且通过快速病毒检测发现自己再次变为CCP病毒阳性——于是他不得已又按流程开始了第二次隔离。
 
-显然部分澳大利亚官方的部分人士又一次试图利用下一次病毒大流行的风险预测来鼓动更多人进行更多剂次的CCP病毒疫苗注射。而第四剂CCP病毒疫苗，即第二剂加强针，或许在不久之后也将开始向大多数人群推广。
+“我联系了新南威尔士州卫生部并向他们解释了情况。不幸的是，电话另一端的女士似乎和我一样困惑。”Benson先生表示。
 
-新闻参考链接：[NSW records 12,632 COVID-19 cases, 38 deaths amid warning of winter Omicron wave](https://www.9news.com.au/national/coronavirus-update-nsw-cases-stark-warning-about-winter-omicron-wave/6311da3a-24d8-46a6-9893-57b91c4b31a0)
+Benson先生的两次阳性案例似乎难倒了亨特医学研究所的专家们。
+
+“这很不寻常——通常情况下，你从感染中获得的保护会在未来几天和几周内变得非常强大。”该机构的一位副教授在接受采访时对记者表示。
+
+但是，专家承认短期内再感染也不是不可能的，特别是在出现不同变种的情况下。从Benson先生第二次确诊时出现的不同症状来看，他有可能是感染了不同的CCP病毒变体。
+
+同时根据澳媒的消息，Benson先生已经完成了疫苗接种流程——这表明疫苗在连续的两次CCP病毒入侵时都没有起到任何显著效果。
+
+新闻参考链接：[Fully vaccinated man tests positive to COVID-19 twice in one month](https://www.9news.com.au/national/coronavirus-nsw-update-fully-vaccinated-man-tests-positive-to-covid19-twice-in-one-month/a53740ef-02f6-460e-bd77-2a96c8c190c0)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+
+
 
  
 

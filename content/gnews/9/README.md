@@ -2,25 +2,27 @@
 ---
 
 
-## 芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952092/)
+## 有声|2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1952119/)
 
-撰稿：随心所在
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020206.jpg)
-原定代表芬兰政府前往北京参加冬奥会的科学和文化部长安蒂·库尔维宁（Antti Kurvinen），2月2日宣布他以个人名义取消北京冬奥会之行。该部长在他的推特账户上证实了此事，称撤销决定并非基于政治抵制。“ 我自己做出了决定，这与外交政策无关“，他在推文中强调。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-227.png)[推文链接](https://twitter.com/kurvisentwiit/status/1488868591470526470)
 
-这是第一个芬兰部长级官员由于冬奥会的新冠病毒检疫和感染风险宣布取消奥运之旅。在接受Suomenmaalle采访时，他证实了自己担心暴露于疫情环境的风险以及随后一周多的隔离不便，他认为放弃行程的决定是正确的。“在国外被隔离十天这增加了风险，我不接受”，库尔维宁对Suomenmaalle说。
+文字版原文：[2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](https://gnews.org/zh-hans/1947608/)
 
-库维宁认为从芬兰直飞北京的航班已经被取消，改为换乘航班并必须在机场等待九个小时，这会增加他感染新冠病毒的风险，“这并不是一次安全的旅程。”
+音频处理：Fei797
+发稿：Fei797
 
-库维宁还表示，该解决方案也受到以下事实的影响：在冬奥会期间，与办公室管理相关的赛场外会议无法在现场举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-新闻链接：[Ministeri Kurvinen peruu sittenkin Pekingin olympiamatkansa – “Tein ratkaisuni itse”](https://www.msn.com/fi-fi/uutiset/other/ministeri-kurvinen-peruu-sittenkin-pekingin-olympiamatkansa-tein-ratkaisuni-itse/ar-AAToCPD?ocid=msedgdhp&amp;pc=U531)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

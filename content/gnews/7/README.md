@@ -2,27 +2,22 @@
 ---
 
 
-## 有声|2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1952119/)
+## 北京冬奧定址張家口 犯風水大忌 郭先生號召甜蜜蜜運動 變冬奧會成中共的冬眠會
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1952132/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+郭文贵先生当年就认为北京冬奥会搞不成！原因有二: 1.当年郭先生认为共产党活不过2022年。2.张家口位于西北位，风水上是战争动乱之位，而且多为松土，成不了大事。
 
+冬奥会期间，维稳人员80%是军人。中共准备了3样必然装备：电击枪 （电子枪），防暴设施和防暴警察，以及无声无色无味的催眠武器。
 
-文字版原文：[2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](https://gnews.org/zh-hans/1947608/)
+只要进了北京城的冬奥会与会者，一切个人信息，甚至是生理信息（如精子和卵子），都会被共产党掠夺走。
 
-音频处理：Fei797
-发稿：Fei797
+冬奥会是政治利益交易的结果，也是上天送的灭共大礼。郭先生发起的甜蜜蜜运动，三招让北京冬奥变成共产党的冬眠会！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+视频来源: 20220202—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

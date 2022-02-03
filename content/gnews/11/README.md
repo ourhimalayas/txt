@@ -2,33 +2,24 @@
 ---
 
 
-## 专家组报告“哈瓦那综合症”电磁波是否是部分原因
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1952053/)
+## 芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952092/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-8.png)
-[图片来源](https://news.yahoo.co.jp/articles/f6292d340ac02daa8ee29df985f067f94809a103/images/000)
+撰稿：随心所在
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020206.jpg)
+原定代表芬兰政府前往北京参加冬奥会的科学和文化部长安蒂·库尔维宁（Antti Kurvinen），2月2日宣布他以个人名义取消北京冬奥会之行。该部长在他的推特账户上证实了此事，称撤销决定并非基于政治抵制。“ 我自己做出了决定，这与外交政策无关“，他在推文中强调。
 
-雅虎转载路透社新闻，多名驻扎在世界各地的美国外交官、情报人员和他们的家人抱怨了不明原因的头痛等，被称为“哈瓦那综合症”的疾病，并将其提交给情报机构的高层。专家组的报告版本2日发布，称在某些情况下可能是被电磁波瞄准造成的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-227.png)[推文链接](https://twitter.com/kurvisentwiit/status/1488868591470526470)
 
-该小组委员会由美国国家情报局局长海恩斯和中央情报局（CIA）副局长担任主席，由来自美国政府内外的专家组成。报告指出“电磁波，尤其是无线电频段的能量”。被认为这是如耳痛和头晕等一些症状的原因。
+这是第一个芬兰部长级官员由于冬奥会的新冠病毒检疫和感染风险宣布取消奥运之旅。在接受Suomenmaalle采访时，他证实了自己担心暴露于疫情环境的风险以及随后一周多的隔离不便，他认为放弃行程的决定是正确的。“在国外被隔离十天这增加了风险，我不接受”，库尔维宁对Suomenmaalle说。
 
-哈瓦那综合症于2016年在日本驻古巴大使馆首次报道，俄罗斯、中国、塔吉克斯坦、非洲国家等也有报道，受害达约1000人。
+库维宁认为从芬兰直飞北京的航班已经被取消，改为换乘航班并必须在机场等待九个小时，这会增加他感染新冠病毒的风险，“这并不是一次安全的旅程。”
 
-根据2020 年美国国家科学院（NAS）的一份研究报告，今年1月20日，CIA 发布了一份中期报告，两者都认为大多数情况下都不太可能受到俄罗斯或其他外国势力的攻击。本报告基本遵循这一观点，并没有深入调查谁在做这件事。身体状况不佳或被迫退休的人的不满情绪很可能会增加。
+库维宁还表示，该解决方案也受到以下事实的影响：在冬奥会期间，与办公室管理相关的赛场外会议无法在现场举行。
 
-一位熟悉报告编写情况的信息官员表示，“我们没有特定的目标，也不以任何敌对国或个人行为为前提。我们致力于深入调查因果关系机制。”
+新闻链接：[Ministeri Kurvinen peruu sittenkin Pekingin olympiamatkansa – “Tein ratkaisuni itse”](https://www.msn.com/fi-fi/uutiset/other/ministeri-kurvinen-peruu-sittenkin-pekingin-olympiamatkansa-tein-ratkaisuni-itse/ar-AAToCPD?ocid=msedgdhp&amp;pc=U531)
 
-代表受害人的律师马克·扎伊德批评说，不时出现的个别机构的判断参差不齐，甚至结论存在矛盾。在报告结束时，他重申政府必须共同努力解决这个问题。
-
-信息来源
-
-[「ハバナ症候群」電磁波が一部原因か、専門家部会の報告書](https://news.yahoo.co.jp/articles/f6292d340ac02daa8ee29df985f067f94809a103)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 

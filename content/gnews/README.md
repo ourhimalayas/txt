@@ -15,89 +15,89 @@
 
 ---
 
-### [美国陆军开始遣散拒绝接种新冠病毒疫苗的士兵](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [安省家庭因误解旅游保险而被迫支付32,900加元的账单](/content/gnews/1/README.md)
+ ` MG FARM`
 
-### [HPAY真正实现了“我的财富我说了算”的自由](/content/gnews/2/README.md)
+### [HPAY将会是灭共的金融核武器](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [美国会议员因北京冬奥，正寻求剥夺国际奥委会的免税地位](/content/gnews/3/README.md)
+### [美国陆军开始遣散拒绝接种新冠病毒疫苗的士兵](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共在美国猖狂的间谍活动令FBI局长惊掉下巴](/content/gnews/4/README.md)
+### [HPAY真正实现了“我的财富我说了算”的自由](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [美国会议员因北京冬奥，正寻求剥夺国际奥委会的免税地位](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共在美国猖狂的间谍活动令FBI局长惊掉下巴](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京冬奧定址張家口 犯風水大忌 郭先生號召甜蜜蜜運動 變冬奧會成中共的冬眠會](/content/gnews/5/README.md)
+### [北京冬奧定址張家口 犯風水大忌 郭先生號召甜蜜蜜運動 變冬奧會成中共的冬眠會](/content/gnews/7/README.md)
  ` 焦點20分`
 
-### [2/3银河快讯:中共外交部抗议日本众院人权决议;日本滑雪运动员在北京冬奥会检测阳性](/content/gnews/6/README.md)
+### [2/3银河快讯:中共外交部抗议日本众院人权决议;日本滑雪运动员在北京冬奥会检测阳性](/content/gnews/8/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](/content/gnews/7/README.md)
+### [有声|2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [中共黨魁習近平將一意孤行入侵臺灣](/content/gnews/8/README.md)
+### [中共黨魁習近平將一意孤行入侵臺灣](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行](/content/gnews/9/README.md)
+### [芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [郭文贵盖特音频2022.02.04](/content/gnews/10/README.md)
+### [郭文贵盖特音频2022.02.04](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [专家组报告“哈瓦那综合症”电磁波是否是部分原因](/content/gnews/11/README.md)
+### [专家组报告“哈瓦那综合症”电磁波是否是部分原因](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [性产业的法规流派-合法性](/content/gnews/12/README.md)
+### [性产业的法规流派-合法性](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|SEC批准BSTX在传统市场上进行区块链结算](/content/gnews/13/README.md)
+### [有声|SEC批准BSTX在传统市场上进行区块链结算](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [从徐州八孩女子事件看中共大外宣的罪恶](/content/gnews/14/README.md)
+### [从徐州八孩女子事件看中共大外宣的罪恶](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [文·贵天成——文贵先生谈“H-pay、喜支付”（二）](/content/gnews/15/README.md)
+### [文·贵天成——文贵先生谈“H-pay、喜支付”（二）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“H-pay、喜支付”（一）](/content/gnews/16/README.md)
+### [文·贵天成——文贵先生谈“H-pay、喜支付”（一）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共党魁习近平将一意孤行入侵台湾](/content/gnews/17/README.md)
+### [中共党魁习近平将一意孤行入侵台湾](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [科学家开始对中共病毒来自实验室理论直言不讳](/content/gnews/18/README.md)
+### [科学家开始对中共病毒来自实验室理论直言不讳](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [完全接种疫苗的澳洲小哥一个月内两次确诊CCP病毒感染](/content/gnews/19/README.md)
+### [完全接种疫苗的澳洲小哥一个月内两次确诊CCP病毒感染](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [GTV新闻访谈简报|2022年2月3日早](/content/gnews/20/README.md)
+### [GTV新闻访谈简报|2022年2月3日早](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [澳洲免疫咨询小组或将普及第四针CCP病毒疫苗提上议程](/content/gnews/21/README.md)
+### [澳洲免疫咨询小组或将普及第四针CCP病毒疫苗提上议程](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2.2大直播后记：无中心化的HPAY 隔空取钱](/content/gnews/22/README.md)
+### [2.2大直播后记：无中心化的HPAY 隔空取钱](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [有声|八个孩子的无牙母亲，脖子被狗链拴住](/content/gnews/23/README.md)
+### [有声|八个孩子的无牙母亲，脖子被狗链拴住](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [2/2/2022 文贵直播：文贵这件衣服的红色跟梵蒂冈有何联系？文贵在今天直播前收到梵蒂冈送的袖扣是天意](/content/gnews/24/README.md)
+### [2/2/2022 文贵直播：文贵这件衣服的红色跟梵蒂冈有何联系？文贵在今天直播前收到梵蒂冈送的袖扣是天意](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [2.2大直播后记：央视淫乱春晚](/content/gnews/25/README.md)
+### [2.2大直播后记：央视淫乱春晚](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [中共国男足再次无缘世界杯](/content/gnews/26/README.md)
+### [中共国男足再次无缘世界杯](/content/gnews/28/README.md)
  ` NFSC News`
-
-### [2/2/2022 文贵直播：喜支付的两个不可思议 &#8211; 先有客户后有币，只要双方同意战友可随心所欲地交易](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
-
-### [2.2大直播后记：HPAY真正价值](/content/gnews/28/README.md)
- ` 雅典娜GNotes`
 
 ### [加拿大前省长就旅行疫苗强制起诉联邦政府](/content/gnews/29/README.md)
  ` 温哥华扬帆农场`
