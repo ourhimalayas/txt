@@ -2,42 +2,39 @@
 ---
 
 
-## 有声|战争恐成为政客逃避疫苗追责的借口
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948814/)
+## 有声|长期中共病毒患者的肺部存在异常表现
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948894/)
 
-配音：香草山巡管部– 文凯琳
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+配音：香草山农场 – 纳米
 
 
 
+1月29日，据相关媒体报道，一项新的研究发现指出，中共病毒长期患者的肺部会存在异常表现，且该异常很难被目前的常规医疗措施检测出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-1.jpg)
+据悉，研究人员检测到，很多长期感染中共病毒但并不需要住院的患者在确诊之后的一年里一直存在呼吸困难的症状。而研究人员在使用氙气MRI扫描后发现，这些患者大多都存在肺损伤的情况。虽然这些症状很少能被包括CT在内的其他测试检测出来，但中共病毒的长期患者在呼吸时，气体从患者肺部到血液的转移明显受损，相关异常情况则体现在肺部的气道、气体交换膜和毛细血管之间。
 
-在1月30日的大直播中，郭文贵先生解析了乌克兰战争和台湾战争的可能性，并指出随着疫苗灾难爆发、经济崩盘，战争极有可能成为政客逃避追责和审判的手段。而中共国将是众矢之的。
+目前，研究人员正在尝试分析此类情况涉及的人数和治疗方法。
 
-郭先生爆料，普京一边做出攻打乌克兰的阵势，一边提出和谈条件，目的是将天然气管道输送欧洲，而且，要求欧盟书面承认欧洲不东扩。打不打这一战，普京都是赢家。
+文字版原文：[长期中共病毒患者的肺部存在异常表现](https://gnews.org/zh-hans/1946710/)
 
-原文链接：[战争恐成为政客逃避疫苗追责的借口](https://gnews.org/zh-hans/1945242/)
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

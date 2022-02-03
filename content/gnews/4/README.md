@@ -2,12 +2,19 @@
 ---
 
 
-## 2月2日郭先生大直播要点（图）
-` genwsGNEWS` [轉載自GNews](https://gnews.org/zh-hans/1949013/)
+## 梵蒂冈寄来的袖扣
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949116/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/02/BA64B6C7-B131-44BC-BC34-6B5859829647-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/EE905393-3982-4E4C-BF4E-DD78984B5261-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/F47CD6E8-749C-42C3-9E2B-ACF3AD57ED3B-scaled.jpeg)冬奥会是中共自杀、自残的会，新中国联邦给你平安、健康、未来，让你发财，而且已经做到了。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

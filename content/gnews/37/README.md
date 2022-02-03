@@ -2,16 +2,21 @@
 ---
 
 
-## 中共病毒疫苗导致美国青壮年死亡人数暴增140%
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948258/)
+## 全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948261/)
 
-撰稿：纽约磐石农场 — 在远方
+撰稿：台湾宝岛农场 – dobi
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒近日揭露了一组惊人数据，显示在2020至2021年期间，美国青壮年的死亡率暴增了140%，而中共病毒疫苗的广泛推行就是这场巨大灾难背后的主因。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-10.jpg)
-世界著名肺科医生皮埃尔·科里警告，如果我们继续给健康的人注射这些有毒的实验性疫苗，我们会目睹死亡人数，甚至到达一个难以想像的规模。
+外媒 2月1日 引述消息人士指，供5岁以下儿童接种的中共病毒疫苗预计最快可在2月底开放使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-12.jpg)
+报道指出，共同参与研发的美国药厂辉瑞以及德国生物公司BioNTech预期今日内就会向美国食品及药物管理局递交申请，批准该款疫苗的紧急授权，这款以2针为完全接种剂量的疫苗，在未来数周内将经过多个部门的审批，若最终获得批准，它将是全球首款供6个月至5岁婴幼儿接种的中共病毒疫苗。
 
-参考链接：[中共病毒疫苗导致美国青壮年死亡人数暴增140%](https://www.gettr.com/post/prlxq30c29)
+不过，针对儿童疫苗，早前医学界曾有不少专家联署声明，谨慎为儿童接种中共病毒疫苗，因为疫苗中的刺突蛋白会对儿童的大脑、神经、心脏、生殖及免疫系统造成不可逆转的永久性伤害。
+
+参考链接：
+1. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://udn.com/news/story/121707/6073124?from=udn-catelistnews_ch2)
+2. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
+3. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 

@@ -2,22 +2,32 @@
 ---
 
 
-## 日本药厂的口服抗病毒新药得到认可
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948950/)
+## 黑人音乐（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949044/)
 
-撰稿：东京樱花团/立道正
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-137.png)[图片来源](https://cn.nikkei.com/industry/manufacturing/46216-2021-09-29-10-03-15.html)
-盐野义制药1月31 日宣布，该厂生产的新药具有抑制冠状病毒传染性的效果，服用该药的患者，在给药第三天后病毒的比例比服用安慰剂的患者低 60% 至 80%。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-盐野义药厂的口服药物主要是针对感染早期的患者，临床试验的最后阶段在去年9月开始。 它针对 69 名日本人的安慰剂比较研究中，每天服用一次，持续 5 天。 三剂后，与安慰剂组相比，服用治疗药物的组感染病毒的患者比例降低了 63-80%。目前尚未确认由于给药对人体造成的严重不良事件。
+你去查找新奥尔良出来二十几个天才，没有一个在乐谱的直接上去嗡就来了，每次都不一样。
 
-今年1月20日的治疗试验分析数据，已经提交给负责监管审查药品和医疗器械局（PMDA），并提交了一些关于抗病毒作用的数据。 为了获得批准后及时供应。于去年12月开始，己进行口服药物的商业化生产的准备， 它计划在今年 3 月之前生产 100 万人份的口服抗新冠病毒药物。
+一个黑人，39岁死了，现在还开了一个音乐店，在哪儿呢？他的亲表弟给他掌握着他临闭眼前说，你要把我的店经营下去。这个人就是永远不重复。
 
-信息来源：[塩野義のコロナ飲み薬、抗ウイルス効果を確認](https://news.yahoo.co.jp/articles/f4a5c56115ee340263006266ff80cb41dff2461f)
+你去看一看，去主要契合这地方都去过。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+七哥今天给吹吹牛，我去过世界上音乐的最发源之地，比Qmay比唐萍妹比威廉王多1000倍以上。
+
+这就是今天信口开河在这说说音乐，我才知道音乐，它就是这样的东西，但是大家要记住，就是这些不可重复的，你当下状态，身体和你拿到手里的乐器和环境下造就的一种和谐的一种声音出来，这叫音乐。真正的音乐是不能重复的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/黑人音乐（二）-.jpg)
+2021年12月10日文贵大直播
+
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
