@@ -2,28 +2,32 @@
 ---
 
 
-## 德国总理确定不出席北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949082/)
+## 美国牛人开会，要求打疫苗才能进入
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949156/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-141.png)图片来源
-德国总理萧兹（Olaf Scholz）去年12月29日表示尚未决定是否前往中共国出席冬奥会，今年2月2日终于决定说，他没有规划要出席2月4日展开的北京冬季奥运会。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-萧兹接受「德国第二电视台」（ZDF）访问时，记者询问他是否会出席北京冬奥。萧兹回答：「我没有旅行计画，所以不能假设我会突然露面。」他没有说明为何未安排前往北京。
+昨天我去美国一个地方啊，我和王燕平还有我们很多团队去看一个地方去开会，再上十楼的时候，人家说很抱歉，他说人家上边有个规定, 不打疫苗的不让进这一层楼。
 
-德国负责外交和体育事务的部门发言人去年12月29日表示，这两个部门的部长将不会出席2月份的北京冬奥会。目前，德国正与欧洲盟国就全面的外交抵制保持联系。
+几万尺的一层楼，美国的一个非常重要的一个地方。这个时候郭先生你咱别吱声你就进去， 但是旁边律师说，建议咱们别撒谎，因为咱们都没打疫苗。后来我说，现在咱不进啊，咱不撒谎，咱不去开这个会了，咱们撤回来。这楼里边都是牛叉的人。
 
-德国内政部发言人表示，部长法泽尔(Nancy Faeser)本人已决定，将不出席北京冬奥会，部分原因是中共病毒（新冠疫情）。
+你去想想这些人，他竟然绝对相信打疫苗管用。 它不绝对不认为打疫苗是杀人的。你不要忘了很多执行疫苗的绝不相信自己是干的事，杀人的事儿不都像你想象的一样。
 
-德国政府一位发言人表示，总理朔尔茨(Olaf Scholz)尚未决定是否前往中国出席冬奥会，并补充称柏林方面仍在与欧盟的盟友讨论此事。
+像我们很清楚，打疫苗就是杀人，不是的。 这个世界不是这个样子，就像当年跟希特勒干的很多人。很多人后来发现杀犹太人是不对的, 甚至到最后真有人相信杀犹太人是对的，是吧? 这很恐怖的。
 
-消息来源：[北京冬奥前夕德国总理萧兹称未规划出席](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E5%89%8D%E5%A4%95-%E5%BE%B7%E5%9C%8B%E7%B8%BD%E7%90%86%E8%95%AD%E8%8C%B2%E7%A8%B1%E6%9C%AA%E8%A6%8F%E5%8A%83%E5%87%BA%E5%B8%AD-023522917.html)
+正义和邪恶之间，人和兽之间只是非常模糊的界限。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美国牛人开会，要求打疫苗才能进入-.jpg)
+2021年12月10日文贵大直播
 
-[德国外交和内政部长不会出席北京冬奥 总理尚未做出决定](https://cn.reuters.com/article/germany-beijing-olympics-1229-wedn-idCNKBS2J9028)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

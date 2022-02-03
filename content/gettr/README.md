@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/3/2022 4:04 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" 1/31/2022 文贵虎年新春大直播：新中国联邦版《一帘幽梦》（中英双语版）
+![img](https://media.gettr.com/group21/origin/2022/02/03/04/1354b740-7055-581f-341a-1bc0fb03050d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 2/3/2022 4:04 AM (UTC)`
+
+2/2/2022 Miles Guo: The Himalaya Pay is a centerless, secured transaction and payment system with no preconditions, zero cost of transaction, and unlimited payment amount. No one can trace where your money goes. It enables everyone to have the freedom of being completely in charge of their wealth. With the Himalaya Pay, people can trade without the need to follow the pricing rules, and this is the most primitive but the most advanced form of trading.<br/><br/>2/2/2022 文贵直播：喜支付是无条件、零交易成本，并无支付额度限制的无中心安全化交易支付系统；谁都找不到你的钱花到了哪里，真正实现了“我的财富我说了算”的自由；喜支付所带来的没有定价规则的交易，虽然是最原始的，但境界却是最高的<br/>
+![img](https://media.gettr.com/group49/getter/2022/02/03/04/edd98ab7-7edc-b478-a058-113c625cdd14/out.jpg)
+
+---
+
+`@miles 2/3/2022 4:02 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" 1/31/2022 文贵虎年新春大直播：新中国联邦版《一帘幽梦》（中英双语版）
+![img](https://media.gettr.com/group21/origin/2022/02/03/04/1354b740-7055-581f-341a-1bc0fb03050d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/3/2022 3:00 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" <br/><br/>1/31/2022 文贵虎年新春大直播：<br/>新中国联邦版《一帘幽梦》
@@ -137,27 +158,6 @@
 ![img](https://media.gettr.com/group37/getter/2022/02/01/22/9c7f1f73-87a5-b0f1-8770-aa677066dbed/out.jpg)
 > `@thepotomacview 2/1/2022 10:30 PM (UTC)`<br/>🔥How did the CCP attempt to turn America’s courtroom into its own courtyard? <br/>🔥What tactics did the CCP use to wreak havoc on America’s judicial system? <br/>Subscribe & watch full episode: <br/>https://youtu.be/tSVBNw-mzsY<br/>https://gtv.org/video/id=61f990bad90bdd2085a3ae95
 ![img](https://media.gettr.com/group14/getter/2022/02/01/22/201432e1-a0cd-1508-12bd-4074408a9dc8/out.jpg)
-
----
-
-`@miles 2/1/2022 10:41 PM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: Miles Guo's version "A Quiet Dream"<br/><br/>1/31/2022 文贵虎年新春大直播：郭文贵版“一帘幽梦”
-![img](https://media.gettr.com/group12/getter/2022/02/01/22/26013b60-df44-2172-fc43-23b45d435ad6/out.jpg)
-
----
-
-`@miles 2/1/2022 10:12 PM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow to Terminate the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border” <br/><br/>1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》
-![img](https://media.gettr.com/group49/getter/2022/02/01/22/d5030807-0587-a1b1-a908-0ee9af25f1c1/out.jpg)
-
----
-
-`@miles 2/1/2022 8:58 PM (UTC)`
-
-2月1号：尊敬的战友们好生鲜，阳谷县大县……说了就得干……说了就得算……承诺必须要兑现！天助，新中国联邦……🔥🔥🔥🔥🔥🔥🔥🔥❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️<br/>Himalaya Pay (HPay 或 喜支付）已经在今天大年初一正式上市了！大家可同时在苹果的App Store 或 Google Play 下载。HPay 颠覆了以虚拟货币支付和转账的方式、带领了购物支付的潮流，拉近了人与人之间的距离！无论是商家或个人，用Hpay支付或转账都是完全免费！<br/>感谢苹果公司和谷歌公司的大力支持，让我们在虎年的大年初一同时上线，让喜联储如虎添翼，虎虎生威！<br/>由于各国的金融法规不一样，如果你的国家的App Store 或 Google Play 下载不了HPay，这是HPay暂时不支持这些国家，请耐心等待。
-![img](https://media.gettr.com/group16/getter/2022/02/01/20/373a3956-2646-bab9-9191-a810f1d51d9d/fa9ef32a1eff85cb7311bb43244a819d.jpg)
 
 ---
 

@@ -2,22 +2,21 @@
 ---
 
 
-## 研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948260/)
+## 全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948261/)
 
-撰稿：台湾宝岛农场 — zhong
+撰稿：台湾宝岛农场 – dobi
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒2月1日报道，一项由丹麦国家血清研究所、丹麦统计局和哥本哈根大学等机构共同完成的研究显示，Omicron亚变种BA2的传播速度较原始版本相比，更快、更强。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-11.jpg)
-该研究分析了去年12月至今年1月的数据发现，在感染 Omicron 亚变种 BA2 的人中，有 39% 的机会在一周内将病毒传染给其他人，而感染原始版本的机率是 29%，也就是说，BA.2变异株的传播速度是原版 Omicron 的1.5倍。
+外媒 2月1日 引述消息人士指，供5岁以下儿童接种的中共病毒疫苗预计最快可在2月底开放使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-12.jpg)
+报道指出，共同参与研发的美国药厂辉瑞以及德国生物公司BioNTech预期今日内就会向美国食品及药物管理局递交申请，批准该款疫苗的紧急授权，这款以2针为完全接种剂量的疫苗，在未来数周内将经过多个部门的审批，若最终获得批准，它将是全球首款供6个月至5岁婴幼儿接种的中共病毒疫苗。
 
-另外，研究人员还指出，BA2变异株不但传染力更快，隐匿性也更强，难以被及时检测出来。
-
-目前全球超过98%的Omicron感染个案，均只涉及原始版本 BA1，但在丹麦，BA2在短时间内已取代BA.1，成为当地的主流病毒株。
+不过，针对儿童疫苗，早前医学界曾有不少专家联署声明，谨慎为儿童接种中共病毒疫苗，因为疫苗中的刺突蛋白会对儿童的大脑、神经、心脏、生殖及免疫系统造成不可逆转的永久性伤害。
 
 参考链接：
-1. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://udn.com/news/story/121707/6073087)
-2. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://english.elpais.com/usa/2022-01-31/ba2-a-new-version-of-the-omicron-coronavirus-variant-that-is-even-more-contagious-but-not-more-serious-according-to-early-data.html)
+1. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://udn.com/news/story/121707/6073124?from=udn-catelistnews_ch2)
+2. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
+3. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 

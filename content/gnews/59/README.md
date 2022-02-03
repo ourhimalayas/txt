@@ -2,75 +2,24 @@
 ---
 
 
-## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
+## 新中国联邦甜蜜蜜运动打向中共的三个回合
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1945336/)
 
-[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
+撰稿：追着曙光跑
 
-**Steve Bannon
-史蒂夫·班农**
+2月2日，郭文贵先生在大直播中讲述了新中国联邦甜蜜蜜运动打向中共的三个回合，第一回合是美国外交撤离；第二回合是三首歌《甜蜜蜜》、《一帘幽梦》和《塞北的雪》；第三回合是让北京冬奥会变成冬眠会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-03-at-09.25.01.jpeg)
+第一回合是郭先生在1月25日大直播中向世界宣告，美国政府正式通知北京政府，从即日（25日）起，授权撤离美国驻北京大使馆。而且撤出后就不会再回去，除非没有共产党了。后来中共不断地向美国哀求，开出各种优厚条件试图挽留，但为时已晚。
 
-the vaccine things have been rejected by every court
-每个法院都拒绝了疫苗的事情
+第二回合是1月31日的新中国联邦新春晚会上，郭文贵先生演唱了三首灭共歌曲：《甜蜜蜜》、《一帘幽梦》和《塞北的雪》。《甜蜜蜜》开启了甜蜜蜜运动；郭先生演唱新中国联邦改编版《一帘幽梦》，是为了完成邓丽君女士的遗愿，消灭共产党，让中国人拥有民主、法制和自由；《塞北的雪》本是彭丽媛女士凭着它进京的歌曲，也是被定为北京冬奥会开幕式的主打歌曲，唱这首歌是揭露中共为了营造万邦来朝的好景象在全世界人面前制造假雪的真相。
 
-every major court in the country, rejected out
-全国各大法院，都被拒之门外
+第三回合是在2月2日直播上说的让北京的冬奥会变成冬眠会。从各个方面看，尤其是从人文和土壤，江家和胡家决定的这届冬奥会完全是政治交换、交易的结果。由于它的来路就不科学、不自然，以及作为政治交换、交易的结果，决定的人都已经完球蛋了，冬奥会也不会有好结果。另外，除了郭先生，没有任何人了解冬奥会的来龙去脉和它的弱点，而且新中国联邦的战友无处不在，有能力把冬奥会打残，让它成为冬眠会。
 
-Now you’re a butcher, now we says six is always 60 to 90 days was
-现在你是个屠夫，现在我们说是60到90天
+三个回合，每一个都是出其不意，让中共无还手之力，中共，你完了！
 
-guess what? they’re not going to do on next Tuesday on February 1st in Austria
-你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
+信息来源：[2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币](https://gtv.org/video/id=61fa824c96ba5d73e0c15749)
 
-The mandatory vaccines is kind of getting wobbly
-强制性疫苗规定有点摇摇欲坠
 
-now people now that unvaccinated can come out of the house
-现在，未接种疫苗的人可以走出家门
-
-We’re about to see if they still gotta pay the penalty
-我们要看看他们是否还要支付罚款
-
-In England’s off, in Denmark’s off, it’s gonna be off others
-在英格兰取消了，在丹麦取消了，其他地方取消了
-
-Sweden just announced yesterday, Guess what?
-瑞典昨天刚刚宣布，你猜怎样？
-
-The research and the data and the science shows
-研究、数据和科学表明
-
-that children, you know 5-12 kids don’t have to get the vaccine
-你知道5-12岁的孩子们不必接种疫苗
-
-because the dangers of it outweigh the benefits
-因为它的危害大于好处
-
-the dangers of it outweigh the benefits
-它的危害大于好处
-
-suck on that Tony Fauci
-想想吧托尼·福奇
-
-* * *
-
-Date:01/30/2022
-原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
-史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-原视频日期：2022/01/30
-原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
-任务编号：KE377（3637）
-视频时间段 : 0:00-0:45
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
