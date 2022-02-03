@@ -2,33 +2,32 @@
 ---
 
 
-## 有声|研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950289/)
+## 中日财经爆┃日本2022-2024年将新建多家晶圆厂
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950697/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒2月1日报道，一项由丹麦国家血清研究所、丹麦统计局和哥本哈根大学等机构共同完成的研究显示，Omicron亚变种BA2的传播速度较原始版本相比，更快、更强。
+撰稿：东京樱花团丨喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2.png)
+[*图片来源*](https://www.eletimes.com/there-are-no-large-semiconductor-manufacturing-facilities-in-india-yet-but-we-are-hoping-that-this-will-change)
 
-该研究分析了去年12月至今年1月的数据发现，在感染 Omicron 亚变种 BA2 的人中，有 39% 的机会在一周内将病毒传染给其他人，而感染原始版本的机率是 29%，也就是说，BA.2变异株的传播速度是原版 Omicron 的1.5倍。
+随着日本政府半导体振兴战略的实施，以及对本地IC制造业支持力度的加大，包括台积电和索尼的合资企业在内的几家新晶圆厂将在日本建设。据业内人士透露，这些晶圆厂预计将在2022年至2024年之间上线。
 
-另外，研究人员还指出，BA2变异株不但传染力更快，隐匿性也更强，难以被及时检测出来。
+《电子时报》援引消息人士称，用于国内尖端芯片制造投资的部分政府补贴将用于台积电和索尼之间的合资工厂，该工厂计划于2024年底投产。据日本商业杂志《钻石周刊》报道，台积电预计将在合资企业履行索尼的CMOS图像传感器和汽车MCU订单，以及丰田的自动驾驶芯片订单。
 
-目前全球超过98%的Omicron感染个案，均只涉及原始版本 BA1，但在丹麦，BA2在短时间内已取代BA.1，成为当地的主流病毒株。
+索尼还扩大了在日本长崎县ishaya的生产基地，该基地主要生产用于智能手机的CMOS图像传感器（CIS）。据索尼称，一个名为Fab5的新工厂已经建成，并于2021年4月开始运营。据报道，索尼将继续扩大Fab5的生产设施，以生产高分辨率和高性能的CIS，额外的fab产能将在今年年中左右上线。
 
-文字版原文：[研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://gnews.org/zh-hans/1948260/)
+业内消息人士称，铠侠和美光科技计划实施的新的存储器工厂项目，预计也将获得日本政府的补贴。铠侠正在岩手县北上市建设另一家3D NAND闪存工厂，而美光正寻求在其DRAM生产基地所在的广岛县加大投资。铠侠和美光预计将分别于2023年和2024年启动新晶圆厂的运营。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+此外，东芝和三菱电机正分别在石川和广岛的工厂建设新的功率半导体晶圆厂，预计在2023-2024年开始生产。东芝于2021年3月透露，计划扩建石川工厂，增设一个12英寸的工厂，用于生产动力设备，并计划在2023财年上半年开始大规模生产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+据SEMI称，从2021年开始，共有27家工厂和生产线开始安装设备，其中大部分在中国和日本。预计到2022年，日本的Fab设备支出将增长29%，届时全球的Fab设备支出将攀升至980亿美元以上的历史新高。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+信息来源：[**日本将于2022-2024年上线大量新晶圆厂**](https://www.sohu.com/a/520369410_166680)
+
+校对：东京樱花团 / 東洋武士
+*发布：东京樱花团 / yux*i*ngcao01*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

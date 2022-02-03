@@ -2,25 +2,27 @@
 ---
 
 
-## 新中国联邦新闻英文节目完美首播
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951085/)
+## 美国作家警告人类正处在非常危险的时刻
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951251/)
 
-作者：Jack Li文阳
+作者：纽约磐石农场 – 在远方/纽约香草山- Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.13.53.png)
-据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
+2月2日，据盖特消息显示，美国前记者、作家亚历克斯·贝伦森在采访中指出，人类目前正处在一个非常危险的时刻。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.45.06.png)亚历克斯·贝伦森开始反面具义务战争。（照片：脸谱网）
+贝伦森解释道，根据当下的现状可知，中共病毒疫苗对奥米克戎变种病毒毫无防护效用。更甚者，在那些疫苗及其加强针接种率高的国家和地区，当地民众不仅中共病毒的感染率随之走高，而且其重症患者和死亡率也持续上升。当中较为典型的例子是，葡萄牙的疫苗普及率高达93%，但当地当天的新增确认病例数亦突破峰值达到五万例，其中甚至还包括了葡萄牙总理科斯塔。
 
-新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
+为此，贝伦森强调称，民众绝对不应该接种中共病毒疫苗，更不应该继续注射加强针。它们不但对中共病毒预防无效，还极度危险。
 
-另一方面，英文节目的推出将为新中国联邦获取更大的话语权和来自国际社会的承认，也为我们更多地增加国际影响力迈出了成功的一步。
+贝伦森还警告称，人体在接种了中共病毒疫苗及其加强针后会产生大量的刺突蛋白，这些刺突蛋白所产生的“回旋效应”将破坏人体的免疫系统，让人们自食其果。对此，贝伦森呼吁，目前市面上的所有中共病毒疫苗需要被立即撤回。
 
-参考链接：[2022.02.01 NFSC News NFSC to Help Teresa Teng Achieve The Meaning Behind Her Song, “Artemisinin Cocktail” Might Detox CCP Virus Vaccines](https://gtv.org/video/id=61f9c99996ba5d73e0c0ffee)
+参考链接：
+1）[https://www.gettr.com/post/prw16kc096](https://www.gettr.com/post/prw16kc096)
+2）[Portuguese PM António Costa tests positive for COVID-19](https://www.politico.eu/article/portuguese-prime-minister-antonio-costa-tests-positive-for-covid19-coronavirus/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Ivy001
-编辑：Ivy001
+总编：文特/飞虹
+编辑：文徬
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

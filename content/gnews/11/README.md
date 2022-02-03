@@ -2,34 +2,28 @@
 ---
 
 
-## 台湾国民党严正谴责中共外交部
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951086/)
+## 【#G时新闻】欧盟立陶宛美国状告中共
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1951261/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月30日，据台湾媒体报道，国民党文化传播会主委凌涛当天就中共外交部发言人赵立坚有关贬低台湾的说辞予以反驳。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.14.06.png)
-报道提及，此前，台湾副总统赖清德在参加洪都拉斯新任总统的就职典礼时，曾与美国副总统贺锦丽有过良好的互动。随后，这一互动引发了来自中共的莫名谴责，其外交部发言人甚至扬言称“台湾只是一个省”。
+加拿大温哥华扬帆农场 播报： 七彩虹 视频制作: 文所未闻
 
-对此，凌涛指责赵立坚称，其言论只会进一步恶化两岸的关系。同时，凌涛再次强调，中华民国是主权独立国家，其在1912年创建之初就设有总统职务。而自1948年行宪以来，台湾更有用于规范总统职权的总统专章。1996年后，台湾的总统和副总统一直由中华民国自由地区的全体人民直选产生。
+欧盟周四（1月27日）表示，已在世界贸易组织（WTO）就中共对欧盟成员国立陶宛实施贸易限制提起诉讼。美国贸易代表办公室（USTR）当天表示，美国将要求加入这些WTO磋商，以声援立陶宛和欧盟。
 
-凌涛指出，台湾与中共互不承认主权、互不否认治权是两岸数十年来得以维持和平与互动发展的基础。而国民党将严正谴责任何伤害中华民国的恶意发言。
+欧盟指控中共对立陶宛实施歧视性贸易做法，并称这威胁到欧盟单一市场的完整性。
 
-参考链接：[中外交部批「哪來什麼副總統」 國民黨聽不下去譴責了](https://news.ltn.com.tw/news/politics/breakingnews/3817889)
+欧盟执委会副主席瓦尔迪斯‧东布罗夫基斯（Valdis Dombrovskis）周四表示，他的办公室已要求在WTO就欧盟认为的歧视性贸易做法与中国进行磋商，这是WTO诉讼程式的第一阶段。欧盟代表其27个成员国处理对外贸易。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+立陶宛2021年同意台湾以“台湾”名义在该国设立代表处。
 
-总编：Jack Li文阳
-编辑：谐趣园
-校正/发稿：呼吸的雾霾（文小呼吸）
+中共政府不仅将中立两国外交关系降级，而且对立陶宛实施全面的经济制裁和报复。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+欧盟方面表示，北京对立陶宛的贸易限制措施包括中共海关对立陶宛商品不予清关、拒绝立陶宛的进口申请以及对欧盟公司施加压力，要求其向中国出口的商品不得含有立陶宛的零部件。
+
+美国贸易代表戴琪表示，立陶宛可获美国支持，两国将共同应对中共“经济胁迫”，共同捍卫的核心价值和原则公开，表示支持立陶宛。
+
+盖特链接：[https://gettr.com/post/prkzrse4ed](https://gettr.com/post/prkzrse4ed)
+编辑/上传：七觉花
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,23 @@
 ---
 
 
-## 酒灭中共盘古巍
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1950864/)
+## 《历史上的今天》2022.02.03
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1951056/)
 
-作者：shanshan
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9a4f32a7-be15-4604-9b9d-85ad2c8a0d9d-1.jpg)图片来源：Gnews/雅典娜农场![](https://assets.gnews.org/wp-content/uploads/2022/02/Champagne-cheers.jpg)
-香飘四溢熏共匪，
+作者：DustInTheWind
 
-槟郎情系真相杯。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-2.jpeg)图片来自网络
 
-酒灭中共唤世人，
+2021年2月3日 世卫组织专家组在武汉病毒研究所，进行所谓的“调查”病毒来源。
+2018年2月3日 文贵先生直播爆陈军、袁建斌欲害文贵的背景；与博讯、明镜、陈小平、何频的关系！
+1995年2月3日 美国“发现”号航天飞机升空
+1972第2月3日 第11届冬奥会在日本札幌开幕
+1966年2月3日 苏联空间探测器月球9号降落在月球表面，成为首颗在月球着陆的航天器。
+1952年2月3日 中共要求“三反”运动和整党运动相结合
 
-醉醒战友盘古巍。
+* * *
 
-
-
-
-
-发布：Shifter
+*发布：Theodosia*
 
  
 
