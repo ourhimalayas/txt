@@ -2,27 +2,27 @@
 ---
 
 
-## 停止冬奥会，把CCP踢出WTO和SWIFT （二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950808/)
+## 2.2大直播后记：宋祖英哭诉被爆料
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950827/)
 
 整理：雅典娜速记组
-编辑：tianzhihuan
+编辑：朝花夕拾
 
-你们走着看。等到有一天黑客有啥文件公布的时候？你们就会明白新中国联邦干了什么事情。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)图片来源：雅典娜设计组
 
-这个世界上，记住，干死萨达姆、卡扎菲的，萨达姆当年到英国去杀他的部长，卡扎菲支持恐怖主义，炸掉美国飞机，萨达姆也尝试炸飞机。南斯拉夫当时挑战美国也要炸飞机。挑战美国的核心利益。伊朗几次被搞，就是因为要和恐怖分子搞在一起，跟共产党站在一起。
 
-你再想想当年的苏联。美国现在已经完全感受到了共产党的彻彻底底的威胁，用美国帮助我们建国防的一哥们说句话，他说：“Miles,你一定要相信我。过去20年我只干了一件事儿。我今天到这个位置上，就是因为我20年啥也没干，我甚至不记得谁当总统，但我只记得我有一个使命：消灭中国共产党，消灭伊朗政府，消灭沙特政府。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/停止冬奥会，把CCP踢出WTO和SWIFT（二）-.jpg)
-2021年12月10日文贵大直播
+这个春晚，我觉得你们说的都对，都是个人感受。但是还是那句话，你们没到幕后，你们没跟这些后面人交往过，就像你们不能笑郝海东兄弟是吧，拽过胸罩。所以昨天那哥们儿给我开玩笑，他说：“海东说的都是实话。但是海东一说你这个联欢会影响这么大，这不就小宋就完了嘛。她宁可现在给你十个亿，也不让你说这个事。”
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+昨天晚上国内都半夜了，他说小宋哭得不行了，“我咋惹郝海东了，他说我干什么呀，”哭得不行了，打完电话又打电话，还在电话里哭说：“那个郭文贵吧，我也没招惹他，瞎编，胡编乱造，反正他就这样爆料了。”我说你哥们儿太幸福了，大过年的，独享宋祖英的苦，就这你怕啥呀？他说那大家都知道了。
+
+你去想一想，一个宋祖英被拽胸罩，在中国成了过年后的最牛的，可以说在北京圈上海，到不了广西也到不了杨改兰的老家。但是这个圈儿里边政治圈经济圈火了。
+
+你知道为啥呀？这就是中央电视台最大的祸害。你要说宋祖英收了多少钱，没人搭理你。她收1个亿，5个亿，甚至有人说，那小宋收5个亿，正常啊。但是宋祖英拽胸罩，你说胸罩关老百姓上学看病，有啥关系呀！千叶草从八五年经历到今天，你觉得上春晚看春晚的人变了吗？没变。只是看春晚的少了一些而已，或者有些人死去了而已。导演春晚，还有这个出演的主角变了吗？没变。决定谁上春晚决定谁不上，春晚的规则变了吗？没变。只是过去赵本山要两万块钱让他上春晚，后来变成了两千万。后来赵本山变成了几十亿富豪了。
+
+
+| *发布：tianzhihuan*   <br><br>**更多资讯，请关注：<br>**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena<br>[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena<br>[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)<br>[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)<br>[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6) |
+| --- |
+
 
  
 
