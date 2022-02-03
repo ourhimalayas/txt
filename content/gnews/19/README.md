@@ -2,36 +2,29 @@
 ---
 
 
-## 有声|先生警示战友远离未经授权的游行活动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949351/)
+## 七哥教你关键时刻 如何把电脑数据销毁
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949465/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在1月30日的直播中，郭文贵先生向所有爆料革命的战友们发出预警称，任何个人或组织未经授权，不得擅自使用新中国联邦或农场的标志参与任何政治游行或抗议活动。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-郭先生指出，世界各国中反对强制疫苗令的抗议活动已经在全球范围内掀起了反对极权统治的潮流，他们是保卫民主自由的英雄。但是，那些初衷是为了自由和正义的抗议活动大多都难免落入被政治构陷的结局，有些甚至被抹黑成暴力事件。
+我教你一招：用电，就是用电流，将交流电的正负极交错，电脑就会自燃烧掉，没人可以恢复。
 
-原文链接：[先生警示战友远离未经授权的游行活动](https://gnews.org/zh-hans/1947177/)
+回去好好学学啊，注意别着火了, 如何用电源插错的方式，把电脑瞬间毁掉。
 
-音频处理/发稿：Daxia
+七哥当年受过这样的培训，如何在特别情况下把你电脑的东西毁掉，就用电源。正负极弄错咔嚓就烧了啊。大家不要统一行动, 别乱行动，记住后果自负。 所以战友马上就明白了，这么一弄，这家伙怎么回事，你看我电脑着火了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+哎，那行了，电脑我拿走吧。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥教你关键时刻如何把电脑数据销毁_01.jpg)
+2021年12月10日文贵大直播
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

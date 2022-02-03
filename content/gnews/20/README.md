@@ -2,22 +2,38 @@
 ---
 
 
-## 中国人寿王滨（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949313/)
+## 有声|加拿大总理杜鲁多确诊感染中共病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949460/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中国人寿王斌（一）-.jpg)
-王滨是王岐山最牛的马仔之一，康典排老大，田国宁、田惠宇，然后就是王滨了，马明哲得往他后排。你别看马明哲搞了平安集团，王滨这小子是什么概念？这小子几乎是中国人寿给共产党的高干子女输送钱、贷款、融资、票据的最关键，他很少搞零售业务。这哥们儿不搞零售业务，搞大的。就搞那些王岐山想栽培的共产党官员的女婿，他来几把。没动王滨是说明王岐山还有势在。没动马明哲说明马明哲跟王岐山的势还在。中共不动王滨、马明哲，不动董文标，不动中国上海银行行长李一飞，不动上海兴业银行行长，不动这几个人，王岐山不会出事儿。王滨牛到啥程度？我告诉你。王滨喜欢古董、翠玉、古木家具。我跟他去同一个地方买了一块儿小的鸡翅木板，我付了大概一亿多人民币。这个哥们儿后来跟我说，他说郭先生你那个板，你再给我吧，我再多给你5000万，为啥呀？王滨的 人要买。后来这个人就熟了，我说这样你多少钱你还给我多少钱，多少拿走。我不是做这个板买卖的，我觉得很多中国人真的很奇怪，就是中国越是有钱的老板，他越抠索，什么钱都赚，这天底下没有。越是有钱人越抠，你说我也不能卖板的，你拿回去完了，我就把钱还给他。结果这个人成我朋友了，他说光王滨一个人在他那买板，就花了20亿，这是2006年以前。第二个，你知道当时农行的贷款是给我50个亿，我只要了他32还是33我忘了，后来给了他们25%的回报，回了十几个利息。你知道当时王滨的人找到我给我多少贷款？100个亿。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+加拿大总理杜鲁多1月31日在Twitter发文，证实自己的中共病毒检测呈阳性，目前感觉良好，暂时没有出现任何病征。他表示会根据当局发布的公众健康指引，居家隔离，并继续远程办公。
 
-*发布：开智则立*
+杜鲁多上周因为其中一名孩子确诊，开始居家隔离，当时病毒快筛结果呈阴性，不料之后转阳。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+在周一举行的重启国会仪式上，杜鲁多透过视像出席，尽管是在接种过疫苗加强剂的情况下确诊，杜鲁多还是呼吁民众尽快接种中共病毒疫苗以及加强剂。另外，他对货车司机发起的，已持续多日的反疫苗示威活动，表示谴责。
+
+原文链接：[加拿大总理杜鲁多确诊感染中共病毒](https://gnews.org/zh-hans/1948256/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

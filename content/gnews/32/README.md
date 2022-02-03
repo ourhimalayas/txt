@@ -2,22 +2,32 @@
 ---
 
 
-## 西方国家警告：任何入侵乌克兰的行动都将面临“严重后果”
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1948884/)
+## 2022年2月2日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949017/)
 
-撰稿：追着曙光跑
+作者：香草山翻译部
 
-外媒2月2日报道，俄罗斯已在与乌克兰边界集结约10万部队人员，西方国家领袖警告，任何入侵乌克兰的行动，都将面临“严重后果”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-03-at-12.02.42.jpeg)图片来源：网络
-美国国防部发言人柯比2日表示，美国计划增派3000名部队人员，强化北大西洋公约组织（NATO）在东欧的武力。其中1000名驻德国美军将驻守罗马尼亚，另有2000名部队人员将从美国前往德国及波兰进行部署。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
 
-柯比指出，向俄罗斯总统普京及世界释出强烈讯息，昭告美国重视北约，这是相当重要之事。但柯比也强调，这些部队不会在乌克兰作战，美国并非进行永久性部署，这是对当今情势作出反应。
 
-另外，郭文贵先生在1月30日的大直播中指出，俄罗斯普京打乌克兰只会加速欧洲与中共的决战。因为欧洲已经意识到，乌克兰战争本质上源于中共对俄的经济支持。要解决乌克兰危机，必须首先灭掉中共。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1.png)
+校对：Stay文苑
 
-那么，西方国家警告的对象，不仅仅是俄罗斯，还有中共！
+编辑：Stay文苑
 
-参考信息：[朔尔茨很快将与普京在莫斯科会谈](https://www.rfi.fr/cn/欧洲/20220202-朔尔茨很快将与普京在莫斯科会谈)
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/61fb313196ba5d73e0c1b799](https://gtv.org/broadcast/watch/61fb313196ba5d73e0c1b799)
+访谈：[https://gtv.org/broadcast/watch/61fb39a196ba5d73e0c1bd4d](https://gtv.org/broadcast/watch/61fb39a196ba5d73e0c1bd4d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

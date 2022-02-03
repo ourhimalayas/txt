@@ -2,31 +2,28 @@
 ---
 
 
-## CECC要求增加《防止强迫维吾尔人劳动法》资金
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1948847/)
+## 232位北京冬奥会相关人员感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948988/)
 
-![资料照片：中国新疆哈密的农民在摘棉花。（2018年10月14日）](https://gdb.voanews.com/F067E3AD-8EC2-4AE4-8BF6-D61C41949BEA_w1023_r1_s.jpg)资料照片：中国新疆哈密的农民在摘棉花。（2018年10月14日）
-据美国之音2月3日报道，美国国会及行政当局中共国委员会(CECC)的民主与共和两党领导人2日致函参众两院拨款委员会领导人，要求增加2022财年国土安全拨款法案的资金，以允许国土安全部的海关和边境保护局(CBP)有力实施《防止强迫维吾尔人劳动法》。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-139.png)[图片来源](https://cn.nytimes.com/china/20220111/breakouts-and-lockdowns-in-chinese-cities-make-a-risk-free-olympics-look-unlikely/zh-hant/)
+北京冬奥会医疗小组首席专家麦克洛斯基（Brian McCloskey）2月2日在新闻发布会上证实，自1月23日以来，对涉奥人员的中共病毒（新冠病毒）检测中已有232人结果呈阳性，其中11人已经住院接受治疗。
 
-在2021年12月被签署为法律的《防止强迫维吾尔人劳动法》规定美国政府在2022年6月开始实施这个法律。国会及CECC希望能增加资金来推进该法的实施。众议院拨款小组委员会在2022财年国土安全部拨款法案中为该法案提供920万美元；参议院拨款小组委员会提供了1千万美元。美国国土安全部1月24日宣布就该法的实施征求公众意见。
+北京冬奥会医疗小组首席专家麦克洛斯基在北京举行的一场记者会上表示，11位住院的检测呈阳性的涉奥人员症状都不严重。
 
-中共在新疆对维吾尔少数民族持续犯下的种族灭绝和反人类罪，以及维吾尔人被强迫劳动，已经得到西方世界的实锤认证。中共一意孤行、拒不悔改，一定会得到惩罚和制裁。人权是最基本的普世价值，任何个人和政府都不能剥夺他人的自由，这是天赋神授的权利。
+北京冬奥会定于2月4日开幕，约有3000位来自世界各地的运动员参加比赛；另有教练员、随队官员以及记者都会进入闭环管理。
 
-新闻参考链接：[https://www.voachinese.com/a/cecc-seeks-additional-funding-to-implement-the-uyghur-bill-20220202/6423915.html](https://www.voachinese.com/a/cecc-seeks-additional-funding-to-implement-the-uyghur-bill-20220202/6423915.html)
+2月1日冬奥防疫复检阳性者32人，丹麦男子冰球队星期三在6位球员缺席的情况下，进行了首次的赛前训练；而6位缺席的球员是因为在入境北京时核酸检测呈阳性而被隔离。
 
-编辑：胖丁
+丹麦男子冰球队主教练海因茨∙埃勒（Heinz Ehler）表示，丹麦男子冰球队球员在启程前往北京前的48小时内，曾做过两次核酸检测，而且每人的检测结构都呈阴性。
 
-* * *
+运动员要解除隔离或恢复训练以及参加比赛，绝对不能有任何症状，而且必须提供间隔24小时的两次核酸检测阴性证明。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+消息来源：[北京冬奥会11位涉奥人员确诊住院，不过官方表示均属轻症](https://www.voachinese.com/a/eleven-beijing-games-personnel-in-hospital-with-covid-none-serious-20220202/6423288.html)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
