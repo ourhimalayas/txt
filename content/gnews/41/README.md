@@ -2,28 +2,37 @@
 ---
 
 
-## 中日财经爆┃美国即将全面封杀中芯国际
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949657/)
+## 美共和党议员敦促收紧对中芯国际的出口限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949754/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-158.png)[图片来源](https://www.xiaoheidiannao.com/221060.html)
-美国共和党参议员敦促拜登政府堵住前总统川普时期的出口管控措施中的一个“漏洞”，以加强对中国首要芯片制造商中芯国际（SMIC）的限制。他们说，中芯国际是“明显的国家安全威胁”。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+31日美国媒体报道，美国共和党议员正在敦促拜登政府加强对中共中芯国际的出口限制。
 
-路透社看到的共和党参议员哈格蒂（Bill Hagerty）和科顿（Tom Cotton）在写给美国商务部长雷蒙多的一封信中表示，媒体报道显示加强控制向中芯国际出口美国技术的努力在商务部遇阻，这令人“气馁”。他们说，中芯国际与中国军方关系密切。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-1.jpg)
 
-哈格蒂和科顿在1月31日的这封信中说，加紧管控“将堵住一个重要漏洞，并防止（中国共产党）和（解放军）利用美国技术来推进其军事现代化项目”。他们想了解雷蒙多是否支持加大限制措施。
+报道提到一封共和党议员汤姆-科顿致美国商务部长的信件，信件指出中芯国际和中共军方有着密切的关系，放松对这一技术出口漏洞的管制将对美国国家安全造成严重的威胁，尤其中共政府目前正在依靠来自美国的技术推进其军事现代化的进程。
 
-雷蒙多周二（2月1日）下午出席一听证会时被哈格蒂问及中芯国际一事，她表示尚未看到那封信，稍后才能给予他答复。不过，她也告诉哈格蒂，“我和你一样深切关注这个问题，一定要全力阻止中国取得我们的技术。”
+据瞭解，川普政府此前曾将中共中芯国际加入制裁名单，但由于程序上的失误，该制裁仅涉及对高度专业化的芯片制造设备的出口限制，而中共政府在此期间已经获得了价值数十亿美元的其他美国技术项目的许可证。 为此，参议员们敦促商务部尽快补上这一威胁国家安全的出口限制漏洞。
 
-2020年末，美国前政府将中芯国际列入商务部的黑名单，然而川普政府对中芯国际出口管控措施中留有一个“漏洞”，也即出口管制只针对运往中芯国际的高端晶片制造设备。
+参考链接：
 
-中芯国际是中共芯片国产化最重要的企业之一。此次共和党参议员敦促拜登政府堵住前总统川普时期的出口管控措施中的“漏洞”，意味着对中芯国际的全面封杀正式开始。
+- [Republican Lawmakers Press Biden to Tighten Export Curbs on China’s SMIC](https://www.newsmax.com/newsfront/republican-lawmakers-biden-export/2022/02/01/id/1054926/)
 
-信息来源：[美共和党参议员促政府加强对中芯国际出口管制| 早报](https://www.zaobao.com.sg/realtime/world/story20220202-1238615)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
