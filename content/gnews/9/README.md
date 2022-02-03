@@ -2,19 +2,22 @@
 ---
 
 
-## 有信仰能度过一切的难
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949821/)
+## 德国总理表示将不会出席2022年北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1949952/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 撰稿：彩虹 
 
-*发布：玉米地守望者*
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1.jpg)图片来源：日经亚洲
+2月2日，《国会山报》报道，周三，德国总理奥拉夫·肖尔茨（Olaf Scholz）表示，他将不会出席2022年北京冬奥会。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+根据路透社的报道，就在奥运会开幕前两天，肖尔茨告诉德国广播公司ZDF（德国电视二台）说：“我没有旅行计划，所以不能假设我将会突然出现（在那里）”。
+
+根据文章报道，目前表示参与外交抵制的国家包括美国、台湾、立陶宛、英国和澳大利亚。德国没有表示它将参与对2022年北京冬奥会的外交抵制，然而，路透社报道说，其他几位德国官员已经表明他们也不会出席北京冬奥会，包括其体育部长和外交部长。
+
+**新闻来源**
+
+[Germany’s chancellor says he will not be at Beijing Olympics](https://thehill.com/policy/international/592573-germanys-chancellor-says-he-will-not-be-at-beijing-olympics)
 
  
 

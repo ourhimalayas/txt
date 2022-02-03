@@ -2,26 +2,29 @@
 ---
 
 
-## 日本众议院通过中共国严重人权状况决议
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949758/)
+## 霍普金斯大学研究称 過度嚴格的社交封锁未能降低新冠死亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949762/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间2月1日，在中共举办冬奥会之前，日本国会通过了一项有关中共国人权的决议。该决议表示，国际社会對中共对新疆、西藏和香港的人权侵犯问题表达关切。决议内容明确指出，基于人权的普世价值，侵犯人权的相关争议不只是国内问题，而是国际社会理应关注的问题。该决议呼吁首相岸田文雄领导的日本政府，采取措施缓解此状况，强烈要求日本政府对中共施压，让中共履行其本该向国际社会做出的可被接纳的责任。
+2月1日多个媒体报道同一内容，约翰·霍普金斯大学发表一项最新研究，该研究对过去的几十项研究结果进行分析，结果认为在全球范围内推行的社交封锁政策对减少中共病毒的感染死亡率几乎没有影响，但不适当地社交封锁，已经对经济产生了 “破坏性影响” ，并导致了许多社会弊端，如提高失业率，减少学校教育，造成政治动荡和破坏自由民主等。 报告数据显示，在2020年疫情早期阶段，严格的封锁将中共病毒死亡率降低了约0.2%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-2.jpg)
+
+约翰·霍普金斯大学发表研究所谓的社交封锁，应该是指「过度严格」的社交封锁措施。 研究人员在分析中以过度严格的社交封锁措施为例，他们发现一些证据表明，严格的户外聚会限制将使人们必须在不安全的室内场所见面，此类社交封锁措施将适得其反，增加了中共病毒的感染率及死亡率。
+
+该报告指出，这些严格的限制措施首先来自中共国，最后竟然变成全球通用的强制性公共卫生政策。 报告总结认为：以一个标准的利益成本模型来计算经济和社会损失，可以得出结论：这些封锁措施作为大流行病的政策工具，应该被断然拒绝。
 
 参考链接：
 
-- [日本国会通过有关中国人权决议](https://www.zaobao.com/realtime/world/story20220201-1238578)
-- [日本国会通过关于中国人权的决议](https://www.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
-- [「中国」と名指しはせずに…衆院、新疆・香港などでの人権問題に「懸念」決議](https://www.yomiuri.co.jp/politics/20220201-OYT1T50158/)
+- [Johns Hopkins Researchers: Lockdowns Had Little Impact on COVID Deaths](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
+- [A LITERATURE REVIEW AND META-ANALYSISOF THE EFFECTS OF LOCKDOWNS ONCOVID-19 MORTALITY](https://sites.krieger.jhu.edu/iae/files/2022/01/A-Literature-Review-and-Meta-Analysis-of-the-Effects-of-Lockdowns-on-COVID-19-Mortality.pdf)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：Irene木木
-编辑：静言
+总编：zhong
+编辑：文特，飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

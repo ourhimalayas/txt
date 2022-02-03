@@ -2,22 +2,38 @@
 ---
 
 
-## 英俄领导人电话会谈乌克兰局势
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949572/)
+## 北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949654/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-154.png)[图片来源](https://www.dw.com/en/ukraine-accuses-russia-of-aggravating-situation-in-donbass/a-57082586)
-据2022年2月3日NHK消息，鉴于俄罗斯在乌克兰边境部署了一支庞大的军队，促使英国首相约翰逊和俄罗斯总统普京昨就乌克兰局势举行了电话会谈。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+自从疫情爆发以来，中共政府从未对内对外公布感染病毒及死亡的真实数字。随着冬奥开幕尽在咫尺，中共开始甩锅外来参赛人员。
 
-据英国政府称，约翰逊首相强烈警告称，俄罗斯入侵乌克兰将导致“悲剧性误判”，并认为乌克兰有权选择是否加入北约。对此，俄罗斯总统府表示，普京批评北约继续扩大其成员数量的行为，以及不理会俄罗斯的担忧。两者之间各说各话，分歧并没有缩小。
+据路透社北京1月31日的—篇报道，在过去的四天里，在参与北京冬奥会的运动员和工作人员中发现了119例COVID-19病例。冬奥会组织者周一表示，周末的统计结果显示，周日有37个新病例，周六有34个，大多数人在抵达机场后检测出阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0.jpg)
+为减少所谓的扩散，将参与者、工作人员和媒体与公众分开，称之为“闭环”。所谓“闭环”，就是允许这些参赛者及工作人员可以乘坐官方交通工具在住宿区和奥运场馆之间移动，但不允许他们在公共场合自由行动。
 
-约翰逊首相说，他在本次电话会议前1天刚刚访问了乌克兰，并与泽连斯基总统举行了会谈。约翰逊首相表明将继续支持乌克兰的能源供应等，也希望通过与俄罗斯的对话找出解决问题方案。
+对于这种极端限制人身自由的做法，中共官方喉舌《人民日报》给予了大力的赞扬，肯定了政府为筹备奥运会和对抗病毒传播所做的工作。
 
-英国、欧盟以及美国等西方国家就乌克兰局势继续外交斡旋，俄罗斯外长虽也表示不希望战争，但各国担忧的战争风险犹在。美国宣布时刻准备向东欧部署8500人的部队，美国和英国也宣布援助乌克兰武器。乌克兰局势还牵动着台海局势，为此美军同时加大了西太平洋的战备威慑。虽然中共和俄罗斯都打着互相利用渔翁得利的算盘，其实中共对这场可能的俄乌冲突实际左右为难。此外，乌克兰的防御能力也不容乐观，这一切都使得乌克兰的局势愈加今人担忧。
+在一个由于严重污染冬季根本没有雪的城市举办冬季奥运会本身就是一个天大的笑话，打着对抗病毒传播限制人身自由更是愚蠢狂妄。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+参考来源：[北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](https://www.reuters.com/world/china/china-reports-37-new-covid-19-cases-among-olympics-personnel-jan-30-2022-01-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=31-1-22&amp;utm_campaign=31-1-22)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

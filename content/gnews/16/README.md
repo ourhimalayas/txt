@@ -2,38 +2,25 @@
 ---
 
 
-## 霍普金斯大学研究称 過度嚴格的社交封锁未能降低新冠死亡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949762/)
+## 世界四大势力的政治角力（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949870/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月1日多个媒体报道同一内容，约翰·霍普金斯大学发表一项最新研究，该研究对过去的几十项研究结果进行分析，结果认为在全球范围内推行的社交封锁政策对减少中共病毒的感染死亡率几乎没有影响，但不适当地社交封锁，已经对经济产生了 “破坏性影响” ，并导致了许多社会弊端，如提高失业率，减少学校教育，造成政治动荡和破坏自由民主等。 报告数据显示，在2020年疫情早期阶段，严格的封锁将中共病毒死亡率降低了约0.2%。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/世界四大势力的政治角力.001.jpeg)
+现在就是中亚东亚。整个亚洲占据了人类65%到70%的人口。它怎么可能不独呢?世界上就四大势力，你有什么呀？美国中国俄罗斯欧洲没有其他势力，所以每个国家发生的地方一定有这4家。
+像在阿富汗帕米尔高原南部。这就是整个的阿富汗的实力。帕米尔高原的北部，就是新疆和哈萨克斯坦的势力。当年就是跟江家做这个交易，这小子很聪明是吧？大家共同发财。我来开发矿，江总书记，你们所有的这个家族的利益永远保护好，比宪法还重要。你要看到，哈萨克斯坦就更不用提了。这是上合组织成员，几乎是江家的事。跟你看到在阿富汗的整个较量当中。就是美国和上合组织的较量。不就是俄罗斯白俄罗斯吉尔吉斯坦吗？中共日本敢掺和吗？欧洲是跟在美国屁股后面的。那在中亚的这个较量当中，人家哈萨克斯坦石油卖给谁？现在是土耳其说不行啊，你不能光卖给他们啊，你得卖给我呀？你不能优先卖给中国，你得卖给我呀。俄罗斯说，你不能跟我抢，你这有问题我都出兵了，咱们两个好好想想怎么办？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-2.jpg)
+2022年1月12日大直播
 
-约翰·霍普金斯大学发表研究所谓的社交封锁，应该是指「过度严格」的社交封锁措施。 研究人员在分析中以过度严格的社交封锁措施为例，他们发现一些证据表明，严格的户外聚会限制将使人们必须在不安全的室内场所见面，此类社交封锁措施将适得其反，增加了中共病毒的感染率及死亡率。
+发布：星谕
 
-该报告指出，这些严格的限制措施首先来自中共国，最后竟然变成全球通用的强制性公共卫生政策。 报告总结认为：以一个标准的利益成本模型来计算经济和社会损失，可以得出结论：这些封锁措施作为大流行病的政策工具，应该被断然拒绝。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-参考链接：
-
-- [Johns Hopkins Researchers: Lockdowns Had Little Impact on COVID Deaths](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
-- [A LITERATURE REVIEW AND META-ANALYSISOF THE EFFECTS OF LOCKDOWNS ONCOVID-19 MORTALITY](https://sites.krieger.jhu.edu/iae/files/2022/01/A-Literature-Review-and-Meta-Analysis-of-the-Effects-of-Lockdowns-on-COVID-19-Mortality.pdf)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：zhong
-编辑：文特，飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

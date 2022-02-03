@@ -2,27 +2,25 @@
 ---
 
 
-## 奥图尔辞去加拿大联邦保守党党魁
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1949820/)
+## 世界四大势力的政治角力（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949935/)
 
-2022-02-03
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/世界四大势力的政治角力.002.jpeg)
+特别是阿塞拜疆，吉尔吉斯斯坦，然后哈萨克斯坦，纳扎尔巴耶夫非常清楚，在白俄罗斯俄罗斯面前。这个时候你弱了，大家都来给你来讲数了。但是真正要让它下台，变成一个跟亲西方的国家，这是美国人和欧洲人的较量。这个较量当中，中共你看玩啥？阿富汗，我就把它搞乱，搞乱的目的就是让你跟在美国后面乱。你乱了，你就找我说事儿，我能培养流氓，我能培养杀手。
+它在整个中亚是跟俄罗斯美国共同的较量，因为这个一带一路，是一个核心的关，它过不了那个关的。所有的关都过不了。而且它作为一个2000万人口，拥有500多吨黄金，70多种稀有矿。而且是直接橫跨白俄罗斯俄罗斯吉尔吉斯坦，哈萨克斯坦，巴基斯坦，这种战略位置一带一路是太软了，直接就插到土耳其，从土耳其南下直接到北非到中东。所以说共产党的利益，同时又是上合组织利益。这几天，纳扎尔巴耶夫在镜头前岀现几次。对中亚政治，这些人都了解。世界的油价世界的气。
 
-作者：涅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7@9QZ9ZB32ECOG4R4.png)图片来源：网络
-据加拿大CTV NEWS 2022年2月2日报道，加拿大联邦保守党举行了针对党魁奥图尔（Ericn O’Toole）的信任投票，结果以45票赞成73反对奥图尔继续留任加拿大联邦保守党党魁。随即奥图尔向保守党领导层递交了辞呈，即时生效。奥图尔将继续以安大略省达勒姆（Durham）的议员身份留在国会，加拿大联邦保守党最近就将选出临时党魁。
+2022年1月12日大直播
 
-奥图尔作为加拿大联邦议会最大反对党党魁，在总理特鲁多出台一系列违宪，违反人权的中共病毒强制措施之后，并没有率领保守党进行有力的回击来保护加拿大人民的利益以及价值观，从而失去了党内的信任，不得不提前下台。
+发布：星谕
 
-保守党议员马特  杰鲁克斯（Matt Jeneroux）说：“我们必须重新建立加拿大人民对我们的信任，并且向加拿大人民展示我们强大，稳定同时植根于加拿大保守价值观的领导人。同时，新的领导人也能不断学习、发展，从而使现代化的保守党可以满足所有加拿大人的要求”。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-参考：[O’Toole resigns as Conservative leader, will stay on as MP](https://www.ctvnews.ca/politics/o-toole-resigns-as-conservative-leader-will-stay-on-as-mp-1.5764196)
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

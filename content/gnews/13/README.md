@@ -2,33 +2,30 @@
 ---
 
 
-## 美参议员希望召集科学家作证 中共病毒源于实验室
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949794/)
+## 美国正在东欧部署和重新部署超过3000军人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1949900/)
 
-撰稿：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
-外媒1月31日报道，本周一，美国参议员布莱克本在参加一档媒体节目时表示，她期待召集那些认为中共病毒源自实验室的科学家到国会作证，她认为这将是查清中共病毒真相非常重要的一个环节。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-165.png)图片来源于breitbart
-布莱克本说，她期待参议院卫生委员会主席兰德. 保罗，能够召开这样的听证会，把那些被压制发声的科学家请来，让他们自由讲述中共病毒来源于实验室的事实。 同时，必须让福奇交待清楚如何参与和资助病毒功能增强实验，以及他和大医药公司之间的腐败关系。 布莱克本强调，如果想在今年中期大选之前得到中共病毒溯源最终答案，必须解决中共病毒来源的最关键问题。 而掌握科学事实的正义科学家的发声，尤为珍贵。
+#### 撰稿：彩虹
 
-新闻链接：[Blackburn: Scientists Who Were Silenced on Lab Leak Theory Need to Testify](Scientists%20Who%20Were%20Silenced%20on%20Lab%20Leak%20Theory%20Need%20to%20Testify)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2.jpg)图片来源：雅虎新闻
+2月2日，《国会山报》报道，为支持东欧盟友，五角大楼正在部署和重新调动超过3000名军人，这是在俄罗斯和乌克兰之间日益紧张的局势下，美国首次寻求加强北约在该地区（防御）能力的此类行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-5.jpg)
+周三，国防部新闻秘书约翰·科比（John Kirby）告诉记者，该机关将在“未来几天”把驻扎在北卡罗来纳州布拉格堡（Fort Bragg）的2000名军人部署到德国和波兰。
 
-编辑：静言
+此外，目前驻扎在德国的另外1000名军人将被重新部署到罗马尼亚。
 
-总编：Irene木木
+对此，科比说：“我想清楚地说明一点，这些并不是永久性的行动。它们是旨在应对当前安全环境的行动。此外，这些部队不打算在乌克兰作战，它们将确保我们北约盟友的强大防御（能力）。”
 
-校正/发稿：浪迹天涯
+根据五角大楼发布的一份情况介绍，被部署到德国和波兰的部队来自第82空降师的1700名军人和第18空降军团的300名军人组成。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+同时，从德国重新部署到罗马尼亚的部队是斯特赖克旅战斗队（Infantry Stryker squadron）的一部分，该战斗队目的在短期内快速部署。这些部队将扩编已经在罗马尼亚轮换的900多名美军服役人员。
 
+柯比说，这些部队是根据与波兰、德国和罗马尼亚的双边协议派出的，并将继续由美国指挥。
+
+**新闻来源**
+
+[Pentagon deploying 3,000 troops to allies in Europe amid tensions with Russia](https://thehill.com/policy/defense/592429-pentagon-deploying-3000-troops-to-allies-in-europe)
 
  
 

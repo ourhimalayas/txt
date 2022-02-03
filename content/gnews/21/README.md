@@ -2,22 +2,22 @@
 ---
 
 
-## 美共和党议员敦促收紧对中芯国际的出口限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949754/)
+## 丹麦、挪威政府宣布 即刻起取消中共病毒限制措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949761/)
 
-作者：银河系农场 – 骄子
+作者：香草山文艺部 – 宁文静；香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-31日美国媒体报道，美国共和党议员正在敦促拜登政府加强对中共中芯国际的出口限制。
+2月1日，挪威政府宣布，从当晚11点开始，取消绝大部分的中共病毒限制政策，并对外表示社会必须学会与病毒 “共存” 。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-2.jpg)
 
-报道提到一封共和党议员汤姆-科顿致美国商务部长的信件，信件指出中芯国际和中共军方有着密切的关系，放松对这一技术出口漏洞的管制将对美国国家安全造成严重的威胁，尤其中共政府目前正在依靠来自美国的技术推进其军事现代化的进程。
+挪威总理斯托尔在新闻发布会上说，尽管奥密克戎导致挪威的病例数飙升，但严重的确诊患者的入院人数并没有增加，因此决定放开几乎所有的限制措施，在经历较高比例的群体感染之后，与病毒和平相处。 阳性确诊者隔离从6天降至5天，密接者不再需要隔离，家庭和体育赛事不限人数，远程工作不再强制改为提倡，取消餐馆和酒吧售酒的限制。 只有在公共交通和商店等环境中，如不能遵循一米社交距离准则，仍然必须戴口罩。
 
-据瞭解，川普政府此前曾将中共中芯国际加入制裁名单，但由于程序上的失误，该制裁仅涉及对高度专业化的芯片制造设备的出口限制，而中共政府在此期间已经获得了价值数十亿美元的其他美国技术项目的许可证。 为此，参议员们敦促商务部尽快补上这一威胁国家安全的出口限制漏洞。
+与此同时，丹麦也将在2月1日解除几乎所有防疫限制，只剩下少数的边境限制措施，且只针对非申根国家。另外，丹麦当局仍建议人们在与人群接触之前进行家庭测试，尤其是那些免疫力较差的人群。在经历了两年的中共病毒疫情后，丹麦政府这项取消防疫限制的政策，获得了大多数民意的支持。
 
 参考链接：
 
-- [Republican Lawmakers Press Biden to Tighten Export Curbs on China’s SMIC](https://www.newsmax.com/newsfront/republican-lawmakers-biden-export/2022/02/01/id/1054926/)
+- [Norway Scraps Most Covid Curbs Despite Omicron Surge](https://www.barrons.com/news/norway-scraps-most-covid-curbs-despite-omicron-surge-01643745608?tesla=y)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)

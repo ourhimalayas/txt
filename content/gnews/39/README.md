@@ -2,26 +2,39 @@
 ---
 
 
-## 中日财经爆|印度政府承认数字货币合法性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949238/)
+## 有声|新中国联邦新闻英文节目完美首播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949531/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-148.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwp-content%2Fuploads%2F2021%2F07%2FTax-implications-for-Investing-in-Cryptocurrency-in-India.jpg&amp;imgrefurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwhat-are-the-tax-)
-印度2月1日举行的国家预算会议提案，将针对数字资产的交易征收30%的税赋，这代表印度官方认同加密资产合法性。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
 
-印度财政暨企业事务部长Nirmala Sitharaman表示，有鉴于数字资产交易的频率与规模明显增加，任何源自于数字资产交易的营收应该征收30%的税赋，除了购入成本之外，在计算相关收入时，不得扣除任何支出；若有损失，也不得与其他收入抵销，就算是赠予，也建议向接受者征税。
+据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
 
-加密货币在印度可说是峰回路转，因为，印度央行在2018年曾宣布禁止境内的加密货币交易，使得当地的加密货币交易中心相继退出，然而，印度最高法院却在2020年搁置此一禁令，认为加密货币并未直接或间接对当地银行造成任何损失。
+新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
 
-在解禁之后，印度快速成为全球采用加密货币的第二大国家，仅次于越南。根据加密货币市场分析机构Chainalysis公布的加密货币采用指标，在前十名当中，除了位居第八的美国，其余皆属新兴市场。
+原文链接：[新中国联邦新闻英文节目完美首播](https://gnews.org/zh-hans/1947197/)
 
-印度金融服务业者Zerodha的创办人暨执行长Nithin Kamath认为，这意味着，加密货币在印度的角色将成为资产而非货币，可能会被当成股票之类的资产对待，届时官方机构不仅可以提供加密货币交易，也将让它合法化，但值得注意的是，印度政府也可能会将它集中管理，因而失去加密货币的分散优势。
+音频处理/发稿：Daxia
 
-消息来源：[数字资产走红，印度政府提议对加密货币及NFT交易抽税，比例为30%](https://www.ithome.com.tw/news/149177)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

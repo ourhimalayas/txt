@@ -2,36 +2,38 @@
 ---
 
 
-## 新州：民众在觉醒，40岁以下不到三分之一接种加强针
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1949764/)
+## CDC警告避免前往墨西哥及其他11个目的地
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1949884/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+评价：***为了迫使民众接种疫苗，CDC将热门却又无需疫苗证明的目的地更改为四级高危地区。***
 
-整理/编辑：小鱼儿
+据《华盛顿邮报》作者：Hannah Sampson， 2022年1月31报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-167.png)图片来源：Bloomberg
+由于新冠疫情处于“高危”级别，疾病控制和预防中心(CDC)将12个目的地，包括一些受欢迎的度假胜地，增加到美国旅行清单。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)
+由于墨西哥不要求游客出示疫苗接种证明或冠状病毒阴性证明，其被视为“4级”高危国家。 在Omicron激增的情况下，圣卢卡斯角、坎昆和墨西哥城等热门旅游目的地的病例急剧增加。
 
+在周一升至CDC最高级别的国家和地区有巴西、智利、厄瓜多尔、巴拉圭、法属圭亚那、安圭拉、圣文森特和格林纳丁斯、科索沃、摩尔多瓦、新加坡和菲律宾。 “4 级”名单共包含100多个目的地，上周又增加了几个受欢迎的加勒比海岛屿。
 
+疾病预防控制中心建议，必须前往这些地区的人士需确保及时接种了中共病毒疫苗。
 
-图片来源：雅典娜设计组
+该机构表示：“即使您已接种最新的 COVID-19 疫苗，您仍可能面临感染和传播 COVID-19的风险。”
 
+除了飙升的中共病毒病例外，墨西哥还一直在努力应对度假城镇中备受关注的暴力行为。
 
-当地时间2月3日，据每日邮报（Dailymail）报道，新南威尔士州的三剂疫苗接种率为 43.71%——全国最低，不到三分之一的 40 岁以下的人接种了第三剂疫苗。
+周一美国国务院将旅行建议更改为“4级”——意思是“不要旅行”。
 
-反对党领袖克里斯·明斯（Chris Minns）呼吁，新州政府强制要求为卫生、教育和老年护理等领域的员工，接种第三剂疫苗。明斯先生希望新州，首先是强制为必要员工提供加强针，然后再转移到其他人口。
+文章来源：**[https://www.washingtonpost.com/travel/2022/01/31/cdc-mexico-travel-warning-level-4/?utm\_source=twitter&utm\_medium=social&utm\_campaign=wp\_main](https://www.washingtonpost.com/travel/2022/01/31/cdc-mexico-travel-warning-level-4/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=wp_main)**
 
-幸运的是，更多的民众在觉醒。网友-加泽德写道：2 针？3 针？4 针？您遵守是因为您希望它结束​​，但您的遵守就是它永远不会结束的原因！在英国81,000 名护士和医生说“不”，政府做了 180 度大转弯。疫苗永远不应该是强制性的，尤其是对减少感染和死亡毫无帮助的疫苗，比如新冠疫苗。网友-赛德007写道：工党及其对疫苗强制的狂热痴迷是怎么回事？
+翻译：洛杉矶盘古农场 – 轰炸机
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参考新闻：[Thousands of essential workers could be forced to get their Covid booster shots or be sacked in Dan Andrews-style mandate as NSW third dose rate falls to worst in Australia](https://www.dailymail.co.uk/news/article-10470513/Thousands-essential-workers-forced-Covid-booster-shots-sacked-NSW.html)
-
-发布：星谕
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
