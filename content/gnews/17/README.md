@@ -2,64 +2,27 @@
 ---
 
 
-## 日药厂：伊维菌素对奥米克戎有抗病毒疗效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950142/)
+## 有声|GTV新闻访谈简报|2022年2月1日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950219/)
 
-**编译：Lulumi**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_.png)
 
-**根据联合非临床研究，日本药企科瓦公司在研究抗寄生虫药物伊维菌素时发现，该药物对中共病毒Omicron变体有抗病毒作用。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-178-edited.png)
-人用包装的伊维菌素几十年来被广泛用于治疗一系列疾病，包括治疗虱子、其他寄生虫和病毒。
+文字版原文：[GTV新闻访谈简报|2022年2月1日早](https://gnews.org/zh-hans/1943758/)
 
-一家正在研究抗寄生虫药物伊维菌素的日本企业发现，根据联合非临床研究，该药物对Omicron有抗病毒作用。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-科瓦公司（Kowa Co. Ltd.）是一家涉及贸易、酒店和电子领域以及健康和医疗应用方面的企业集团，它在1月31日发布了一份新闻稿，称伊维菌素在体外研究中被发现对Omicron有效。该公司也在进行一项关于使用伊维菌素治疗中共病毒COVID-19患者的3期临床试验，该公司关于有效性的言论涉及到基于实验室的研究结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-截至记者发稿时，科瓦公司代表没有对评论请求作出回应。
-
-该公司与位于东京的北里大学合作，说伊维菌素对所有“变异毒株”都有“相同的抗病毒效果”，包括Alpha、Delta和Omicron。Kowa补充说，伊维菌素抑制病毒的入侵，并抑制它的复制。
-
-“[伊维菌素]有望作为一种治疗药物（片剂）应用于所有新的冠状病毒传染病，”报告说。
-
-伊维菌素已被世界卫生组织用于治疗寄生虫感染超过30年。科瓦公司的报告说，志愿者在非洲国家推广这种药物，发现它非常有效。
-
-然而，这种治疗方法在最近一段时间陷入争议，因为尽管这种药物被用于人类治疗各种疾病，美国食品和药物管理局（FDA）却没有批准使用伊维菌素作为中共病毒COVID-19的治疗方法。
-
-美国食品和药物管理局拒绝回应信息自由法案（FOIA）的请求，要求提供任何与使用伊维菌素治疗中共病毒COVID-19有关的副作用报告的细节，同时公开谴责使用伊维菌素。
-
-联邦政府向全国各地的医院支付治疗中共病毒COVID-19患者的费用，但支付费用与批准的方法有关，伊维菌素不属于该方案的一部分。
-
-然而，急于拯救他们所爱的人的家庭正在秘密地将这种药物偷偷带入医院，作为最后的努力，这往往最终帮助受感染的人康复。
-
-根据多项研究，全球22个国家全部或部分批准使用伊维菌素治疗中共病毒COVID-19，但日本还没有批准伊维菌素。
-
-新罕布什尔州已经提出一项法案，成为全国第一个将伊维菌素作为被批准的中共病毒COVID-19治疗方法的一部分，并将其作为非处方药提供的州。
-
-共和党人、同时也是一名注册护士的州众议员利亚·库什曼在谈到她提出的HB3005法案时说：“如果向COVID患者提供人用的伊维菌素，我绝对毫不怀疑会拯救生命。”
-
-使用伊维菌素的反对者声称，这种药物极其危险。达特茅斯·希区柯克医疗中心的大卫·莱文博士在其关于该法案的书面证词中写道：“我绝不希望这种药物被开给我自己或我的家人，并将对任何向我的亲人推荐这种药物的人采取法律行动。”
-
-支持使用伊维菌素的保罗·马里克博士作证说，伊维菌素“是这个星球上最安全的药物之一”。
-
-马里克是由医生组成的宣传团体中共病毒前线医生联盟（FLCCC）的共同创始人，他说伊维菌素在79个国家被批准用于治疗病毒。
-
-“所以不知何故，日本人、印度人、巴西人可以安全地容忍它，但它在美国人身上是有毒的。这一定是在开玩笑，”马里克说。
-
-由于使用中共病毒COVID-19的替代治疗方法，包括使用伊维菌素方面的法律斗争，马里克被迫辞去了他在东弗吉尼亚医学院的职务。
-
-更正。这篇文章已被更新，以明确Kowa公司发布的研究结果是基于非临床试验数据的。《大纪元时报》对这一错误表示遗憾。
-
-素材来源：【theepochtimes】[Ivermectin Shows Antiviral Effect Against Omicron: Japanese Pharma Firm](https://www.theepochtimes.com/ivermectin-safe-and-effective-for-treating-omicron-japanese-company_4246848.html?utm_source=mr_recommendation&amp;utm_medium=left_sticky)
-
-* * *
-
-审核：文乐
-校对：小东
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

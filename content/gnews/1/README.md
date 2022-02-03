@@ -2,50 +2,44 @@
 ---
 
 
-## 泰国中央银行加入全球数字银行热潮
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1950349/)
+## 塔克·卡尔森：“骗子”彼得·霍特兹博士与中共军方分享福奇经费
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950371/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+**翻译: Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip塔克·卡尔森：骗子彼得·霍特兹博士与中共军方分享福奇经费.png)Peter Hotez and Shibo Jiang
+你可能已经注意到，很多人已经不信任医生，这不是一个好兆头。您认识的人中可能有一半正在探索替代医学疗法。为什么会这样？ 有很多原因，但彼得·霍特兹（Peter Hotes）博士的所作所为绝对是其中原因之一。
 
-整理/编辑：文泓
+霍特兹是一名儿科医生，他一生都在研究热带寄生虫。对于有线电视新闻订户来说，他似乎不是明显的首选嘉宾，他们正在寻找一个可以了解有关 COVID 的人，但霍特兹是一个疯狂的宣传瘾君子，他会在任何时间、任何地点进行任何公开的露面从不停止。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfedf.png)
+对我们所有人来说不幸的是，当霍特兹讲话时，他抹黑了美国医学。他是一个错误信息机器，不断地吐出疯狂。静心把霍特兹对 COVID 的看法并与亚历克斯·琼斯（Alex Jones ）的看法进行比较，然后问问自己谁更清醒，他们的观点根本不同，而霍特兹所说的，很少与现实有任何关系。
 
+我们在 12 月下旬首次报道了霍特兹博士，我们注意到霍特兹博士获得了福奇博士每年 100 万美元的资助，但霍特兹博士并不是唯一享用的人。
 
+该项目的另外两名首席研究员之一是江世博，他列出了与资助项目R01AI098775相关的两个隶属关系：
 
-**图片来源：The PBS World**
+美国纽约病毒免疫学实验室，林兹利·F·金博尔（Lindsley F. Kimball） 研究所，纽约血液中心；
 
+中国上海教育部和卫生部医学分子病毒学重点实验室，上海医学院和复旦大学医学微生物研究所。
 
-泰国央行表示，它计划在今年6月前发布数字银行的指导方针。目前泰国正在准备建立数字银行的规则，准备与新加坡和马来西亚等同行一起推广金融技术，以刺激行业竞争和银行服务更广泛覆盖。
+江世博与中共解放军的关系已在《网关专家》（Gateway Pundit）的文章中详尽地详述[here](https://www.thegatewaypundit.com/2021/03/chinas-massive-infiltration-u-s-virus-research-laboratories/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily), [here](https://www.thegatewaypundit.com/2021/04/yes-covid-19-biological-attack-chinese-communist-party-lawrence-sellin-ph-d/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily) and [here](https://www.thegatewaypundit.com/2021/05/report-chinas-military-weapon-covid-19-constructed-completely-command-control-chinese-military/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily)。
 
-在周二的网上发布会上，泰国央行行长助理蓉·玛利克玛斯表示，泰国央行计划在6月前发布数字银行的指导方针，并可能允许现有的贷款人和新的申请者寻求许可证。她说，央行还计划取消对商业银行投资金融技术的限制，但数字资产除外。
+我们还注意到：
 
-随着蚂蚁金服集团和抢购网（Grab）等公司正在该地区寻找投资机会，泰国是亚洲最新接受虚拟贷款人概念的国家。虽然泰国缺乏独立的数字银行，但当地和外国贷款机构确实在该国提供各种数字服务，包括支付。她表示，泰国央行也将扩大现有银行的业务范围和增加业务灵活性。
+以江世博为渠道，福奇的 R01AI098775 拨款汇集了美国纳税人的资金，以支持与中国人民解放军有联系的多名中共科学家的研究。
 
-“我们期望通过数字银行业务推广看到更多的竞争和创新，它将使存款人受益”，蓉说：“没有人会一成不变。现有的参与者也将进行调整。”
+有两篇由 R01AI098775 资助的出版物值得注意，它们都涉及冠状病毒，而且奇怪的是，项目负责人霍特兹竟然没有参与两项目。
 
-根据一项题为“为可持续的数字经济重新定位泰国金融部门”的公开咨询，泰国央行说，它建议以更公平合理的成本为更多的参与者提供关键的金融基础设施，如支付系统和信贷担保机制。
+也就是说，这两项研究完全是由中共国科学家设计和进行的。
 
-央行还将敲定指导方针，引导金融部门将环评纳入商业运作，并支持公司从不可持续的经营活动中转型。
+**新闻来源**：[thegatewaypundit.com][Tucker Discussed ‘Charlatan’ Dr. Peter Hotez Last Night – TGP Identified Him in December for Receiving Millions in Grant Money from Dr. Fauci to Share with a China PLA Professor](https://www.thegatewaypundit.com/2022/02/tucker-discussed-charlatan-dr-peter-hotez-last-night-identified-december-receiving-millions-grant-money-dr-fauci-share-china-pla-professor/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
-泰国央行行长在这次简报会上说，泰国金融业的重新定位需要在促进创新和管理风险基础上，以及允许灵活应对突然变化之间取得适当的平衡。央行将通过推动贷款人采用金融技术，并寻求将不必要的监管负担或服务提供者的成本降到最低。
+* * *
 
-总部位于曼谷的TMB银行的经济学家纳里斯表示，数字银行不太可能对现有金融企业造成任何“大的破坏”，因为这些企业已足够强大，并且已经建立了移动银行服务。他说，由于泰国仍然是一个以现金为基础的社会，特别是在农村地区，新进入者在短期内可能会陷入困境。
+***审核：文乐
+校对：小东
+发布：信心满满***
 
-纳里斯说：“当然，更多的竞争对生态系统总是有利的，泰国市场将如何应对这项业务将是很有趣的。尽管如此，金融科技并不都是美好的和花哨的，所以新的参与者在加入之前必须认真考虑，因为监管成本会很高。”
-
-蓉说，泰国央行咨询文件将在2月28日之前公开征求公众的反馈意见，政策将根据这些意见进行微调。
-
-新闻链接：[FBI chief warns China a ‘more brazen’ threat to the West than ever before (afr.com)](https://www.afr.com/world/asia/fbi-chief-china-more-brazen-than-ever-before-20220201-p59t0f)
-
-发布：星谕
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 

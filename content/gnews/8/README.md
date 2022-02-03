@@ -2,26 +2,26 @@
 ---
 
 
-## 与福奇有关的高级美国官员就职于中共在美委员会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950224/)
+## 日本7-Eleven公司测试免触摸全息自助收银机
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950270/)
 
 **编译：wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip17与福奇有关的高级美国官员就职于中共在美委员会.png)图片来源：thenationalpulse.com
-《国家脉动》披露，亚当·霍特（Adam Hott）在美国国立卫生研究院（NIH）临床测序证据生成研究小组工作，他同时也在有争议的美国心脏地带中国协会（United States Heartland China Association，USHCA）团体中担任教育委员会的副主席，该委员会旨在“汇集K12和高等教育的资源，将研究、专业知识和新人力资源应用于美中合作”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip18日本7-Eleven公司测试免触摸全息自助收银机.png)图片来源：nextshark.com
+日本最近在东京的六家7-Eleven商店引入了免触式全息自助收银机。
 
-美国心脏地带中国协会（USHCA）是中共政府外国势力的一部分，其名下公司曾购买美国农田，这引起了立法者对国家安全的担忧；其次，USHCA还“自豪地与”中美交流基金会（CUSEF）合作。
+这种全息界面被称为Digi POS（销售点），当购物者直接面对自助收银机并扫描他们想要购买的物品时，会投射出一个漂浮在空中的触摸屏图像。
 
-据美国政府称，CUSEF 是中国共产党“[联合阵线](https://www.uscc.gov/sites/default/files/Research/China's%2520Overseas%2520United%2520Front%2520Work%2520-%2520Background%2520and%2520Implications%2520for%2520US_final_0.pdf)”（United Front）的一个组成部分，该组织试图“收编和消除可能反对其执政的政策和权威的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。
+据[SoraNews24](https://soranews24.com/2022/01/30/floating-hologram-registers-coming-to-japanese-convenience-stores%25E3%2580%2590video%25E3%2580%2591/)报道，Digi POS由六家不同的公司开发，包括 7-Eleven Japan 、Toshiba Tec 、Asukanet Development 、Kanda Kogyo Development 、Mitsui Chemicals Development，以及Mitsui Bussan Plastic。周三（2日）开始，Digi POS在东京的6家7-Eleven商店正式试运行。
 
-美中贸易协会（USHCA）还与中国人民对外友好协会（CPAFFC）共同举办活动，该协会负责中共统战的“公众形象”和“[党国的公开机构](https://www.reuters.com/article/us-usa-china-pompeo/u-s-designates-chinese-body-a-foreign-mission-quits-local-cooperation-agreement-idUSKBN27D305)”。美国国务院将CPAFFC描述为旨在寻求“直接和恶意影响”美国国家和地方领导人的团体。
+全息收银机只接受电子货币钱包、信用卡和二维码等无现金支付方式。据[lowyat.net](https://www.lowyat.net/2022/264706/7-eleven-japan-introduces-holographic-touch-screens-to-its-stores/)报道，它也仅限于店内产品，不包括烟、酒、明信片和邮票等物品，以及快递送货、水电费支付、现金券和账户充值等服务。
 
-在这些担忧的前提下，霍特竟然自2019年以来兼并美国国立卫生研究院临床测序证据生成研究（NIH’s Clinical Sequencing Evidence-Generating Research）小组的副主席；在他的LinkedIn个人资料中解释说：“这个工作组专注于基因组测序结果和对患者、家庭、护理人员和医疗服务提供者的教育的设计和发送。”
+简评：
 
-在这些担忧的前提下，霍特竟然自2019年以来兼并美国国立卫生研究院临床测序证据生成研究（NIH’s Clinical Sequencing Evidence-Generating Research）小组的副主席；在他的[LinkedIn](https://archive.ph/Wb8q8)个人资料中解释说：“这个工作组专注于基因组测序结果和对患者、家庭、护理人员和医疗服务提供者的教育的设计和发送。”，这显示他自2019年以来一直担任该职位。
+最早看到这类科技来自西雅图的 Amazon Go 无人超市试点，宗旨在于让顾客购物更加快速便捷，节省了在疫情期间排队结算的时间，更降低了感染病毒的风险。
 
-霍特发表了几篇期刊文章，概述了学校的科学课程，其中包括了美国国立卫生研究院的直接财政支持的论文；另外，也包括了“生物技术101：遗传学和生物技术的教育推广计划”（[Biotech 101: an educational outreach program in genetics and biotechnology](https://pubmed.ncbi.nlm.nih.gov/22383109/)）和“非科学专业的生物入门课程中的遗传学内容：理论与实践”（[Genetics Content in Introductory Biology Courses for Non-Science Majors: Theory and Practice](https://academic.oup.com/bioscience/article/52/11/1024/285767?login=false%23126031541)）。
+值得一提的是，这或意味着对人的监控手段更加的严重。另外，G系列的 Hpay 打破了政府、银行对私人企业主与顾客的要求、监控，实现了完全的交易自由（自己当家作主）。
 
-**新闻来源**：[thenationalpulse.com] [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/) | 发布时间：2022年01月28日｜
+**新闻来源**：[nextshark.com] [7-Eleven Japan testing out touch-free holographic self-checkouts](https://nextshark.com/holographic-touch-screen-self-checkout-registers-7-eleven/) |发布时间：2022年02月02日｜
 
 * * *
 

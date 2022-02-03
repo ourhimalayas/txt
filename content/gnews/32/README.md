@@ -2,35 +2,26 @@
 ---
 
 
-## 日本众议院通过中共国严重人权状况决议
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949758/)
+## 美国副贸易代表：中共未兑现第一阶段贸易协议承诺
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1949888/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间2月1日，在中共举办冬奥会之前，日本国会通过了一项有关中共国人权的决议。该决议表示，国际社会對中共对新疆、西藏和香港的人权侵犯问题表达关切。决议内容明确指出，基于人权的普世价值，侵犯人权的相关争议不只是国内问题，而是国际社会理应关注的问题。该决议呼吁首相岸田文雄领导的日本政府，采取措施缓解此状况，强烈要求日本政府对中共施压，让中共履行其本该向国际社会做出的可被接纳的责任。
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-1.jpg)
+2月1日，美国副贸易代表莎拉·比安奇（Sarah Bianchi ）在华盛顿国际贸易协会主办的虚拟论坛上表示，中共未能兑现第一阶段贸易协议中的承诺。
+
+据《路透社》报导，比安奇当日在华盛顿国际贸易协会主办的一个虚拟论坛上表示，中共明显没有兑现于2021年底到期的两年期第一阶段贸易协议中的承诺。目前美方正在试图与中共沟通，也在考虑采取一些行动来确保他们被问责。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-9.png)（图片来源：Getty Images）
+报导指出，在川普总统于2020年1月签署的协议中，中共承诺在2020年和2021年期间，履行在2017年的基础上增加采购2,000亿美元的美国农业和制成品、能源和服务等。然而，彼得森国际经济研究所编制的贸易数据则显示，截至11月，中国仅完成了该承诺的60%左右。农业部长汤姆·维尔萨克(Tom Vilsack) 也在稍早前对国会议员说，中共购买美国农产品的金额比第一阶段的目标少了约130亿美元。
+
+此外，比安奇强调，美国贸易代表办公室表示，中共对企业的补贴以及非市场经济政策和做法严重威胁美国经济利益。
 
 参考链接：
+1. [https://cn.reuters.com/article/wrapup-china-usa-trae-commitments-0201-t-idCNKBS2K7048](https://cn.reuters.com/article/wrapup-china-usa-trae-commitments-0201-t-idCNKBS2K7048)
 
-- [日本国会通过有关中国人权决议](https://www.zaobao.com/realtime/world/story20220201-1238578)
-- [日本国会通过关于中国人权的决议](https://www.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
-- [「中国」と名指しはせずに…衆院、新疆・香港などでの人権問題に「懸念」決議](https://www.yomiuri.co.jp/politics/20220201-OYT1T50158/)
+素材采编：海星
+编辑：文顺
+发布：文曦
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：Irene木木
-编辑：静言
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

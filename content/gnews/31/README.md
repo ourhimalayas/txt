@@ -2,35 +2,31 @@
 ---
 
 
-## 土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949759/)
+## 美国正在东欧部署和重新部署超过3000军人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1949900/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-土耳其当地媒体报道，土耳其卫生部1日晚间公布疫情通报显示，过去24小时有10万余起中共病毒确诊病例，198例死亡病例。 土耳其中共病毒单日病例数2月1日首度超过10万，与疫苗接种率同创新高。 土耳其目前18岁以上人口的两剂、单剂接种率分别为84.46%、92.54%，有近2513万人已施打第3剂。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-2.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2.jpg)图片来源：雅虎新闻
+2月2日，《国会山报》报道，为支持东欧盟友，五角大楼正在部署和重新调动超过3000名军人，这是在俄罗斯和乌克兰之间日益紧张的局势下，美国首次寻求加强北约在该地区（防御）能力的此类行动。
 
-土耳其近日因为奥米克戎变异株迅速传播而造成中共病毒病例数大幅攀升，这几天几乎每天刷新纪录，但是住院率较以往明显偏低。 卫生部2019冠状病毒科学咨询委员会委员欧达巴许告诉记者，从目前情况看，奧米克戎致死率不到Delta变异株的1/5，但奧米克戎变异株仍具危险性，几乎每天都有上百人因感染奥米克戎死亡。
+周三，国防部新闻秘书约翰·科比（John Kirby）告诉记者，该机关将在“未来几天”把驻扎在北卡罗来纳州布拉格堡（Fort Bragg）的2000名军人部署到德国和波兰。
 
-参考链接：
+此外，目前驻扎在德国的另外1000名军人将被重新部署到罗马尼亚。
 
-- [土耳其病例攀升 單日確診數首破10萬例大關](https://topic.rti.org.tw/COVID-19/archives/65760)
+对此，科比说：“我想清楚地说明一点，这些并不是永久性的行动。它们是旨在应对当前安全环境的行动。此外，这些部队不打算在乌克兰作战，它们将确保我们北约盟友的强大防御（能力）。”
 
+根据五角大楼发布的一份情况介绍，被部署到德国和波兰的部队来自第82空降师的1700名军人和第18空降军团的300名军人组成。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+同时，从德国重新部署到罗马尼亚的部队是斯特赖克旅战斗队（Infantry Stryker squadron）的一部分，该战斗队目的在短期内快速部署。这些部队将扩编已经在罗马尼亚轮换的900多名美军服役人员。
 
-总编：文特
-编辑：文徬
-校正/发稿：海阔天空1
+柯比说，这些部队是根据与波兰、德国和罗马尼亚的双边协议派出的，并将继续由美国指挥。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源**
+
+[Pentagon deploying 3,000 troops to allies in Europe amid tensions with Russia](https://thehill.com/policy/defense/592429-pentagon-deploying-3000-troops-to-allies-in-europe)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
