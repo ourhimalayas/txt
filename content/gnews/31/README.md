@@ -2,25 +2,25 @@
 ---
 
 
-## 新中国联邦新闻英文节目完美首播
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951085/)
+## 加拿大魁北克省放弃“反疫苗税”政策
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951248/)
 
-作者：Jack Li文阳
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.13.53.png)
-据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
+当地时间2月1日，据相关媒体报道，加拿大魁北克省准备放弃向该省未接种中共病毒疫苗的居民征收“反疫苗税”的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.44.59.png)PHOTO : LA PRESSE CANADIENNE / JACQUES BOISSINOT
+资料显示，魁北克省的省长弗朗索瓦-莱戈尔早先在一份名为“反疫苗税”的提案中声称，该省将向拒绝接种中共病毒疫苗的群体收取100至800加元的费用，用于其所谓的“缓解该省因中共病毒而陷入困境的医疗保健系统”。随后，这一提案引发加拿大各界的批评和反对。
 
-新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
+评论人士指出，与其说是为了当地民众的健康，“反疫苗税”提案实质上是出于政治目的，其损害了加拿大全民免费及公平获取医疗保障的权利。另一方面，大量的民众在接种了三剂中共病毒疫苗后依然感染了中共病毒，这足以证明疫苗全然无用。
 
-另一方面，英文节目的推出将为新中国联邦获取更大的话语权和来自国际社会的承认，也为我们更多地增加国际影响力迈出了成功的一步。
+为此，在当天的新闻发布会上，莱戈尔在声明中表示，“反疫苗税”这一提案会制造当地民众的分裂，甚至可能引发抗议。因此，为了维护当地的和平与稳定，他将放弃该提案。
 
-参考链接：[2022.02.01 NFSC News NFSC to Help Teresa Teng Achieve The Meaning Behind Her Song, “Artemisinin Cocktail” Might Detox CCP Virus Vaccines](https://gtv.org/video/id=61f9c99996ba5d73e0c0ffee)
+参考链接：[Quebec premier drops idea of ‘anti-vax tax,’ citing need to preserve social peace](https://torontosun.com/news/local-news/legault-is-poised-to-back-away-from-quebecs-anti-vax-tax-report-says/wcm/a603aedd-d4b5-467c-b015-bacade2378ed)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Ivy001
-编辑：Ivy001
+总编：Irene木木
+编辑：Lakeman文仁
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
