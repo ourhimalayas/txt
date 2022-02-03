@@ -2,31 +2,20 @@
 ---
 
 
-## 美国正在东欧部署和重新部署超过3000军人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1949900/)
+## 调解日中韩三国天然气 美紧急应对俄罗斯进攻乌克兰
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949981/)
 
-#### 撰稿：彩虹
+撰稿：东京樱花团/nan的曙光
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-170.png)[图片来源](https://www.energyconnects.com/news/utilities/2021/november/european-gas-prices-slump-as-russia-finally-increases-supplies/)
+据2月2日美国彭博通讯社报道，为应对俄罗斯随时入侵乌克兰，向欧洲供应的天然气有中断的情况发生，拜登政府对亚洲主要天然气进口国日本、中国、韩国、印度等国家进行磋商，在紧急情况下，是否可以将进口部分天然气融通到欧洲。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2.jpg)图片来源：雅虎新闻
-2月2日，《国会山报》报道，为支持东欧盟友，五角大楼正在部署和重新调动超过3000名军人，这是在俄罗斯和乌克兰之间日益紧张的局势下，美国首次寻求加强北约在该地区（防御）能力的此类行动。
+如果俄罗斯入侵乌克兰，美欧也将采取强有力的反制经济措施。为了避免俄罗斯可能会停止向欧洲供给天然气作为对抗，所以美欧正在紧急采取措施，避免供给不足。根据彭博的说法，美中两国之间的协调还没有进行。
 
-周三，国防部新闻秘书约翰·科比（John Kirby）告诉记者，该机关将在“未来几天”把驻扎在北卡罗来纳州布拉格堡（Fort Bragg）的2000名军人部署到德国和波兰。
+信息来源：  [日中韓にガス融通打診　米、ウクライナ侵攻に備え―報道](https://www.jiji.com/jc/article?k=2022020300203&amp;g=int)
 
-此外，目前驻扎在德国的另外1000名军人将被重新部署到罗马尼亚。
-
-对此，科比说：“我想清楚地说明一点，这些并不是永久性的行动。它们是旨在应对当前安全环境的行动。此外，这些部队不打算在乌克兰作战，它们将确保我们北约盟友的强大防御（能力）。”
-
-根据五角大楼发布的一份情况介绍，被部署到德国和波兰的部队来自第82空降师的1700名军人和第18空降军团的300名军人组成。
-
-同时，从德国重新部署到罗马尼亚的部队是斯特赖克旅战斗队（Infantry Stryker squadron）的一部分，该战斗队目的在短期内快速部署。这些部队将扩编已经在罗马尼亚轮换的900多名美军服役人员。
-
-柯比说，这些部队是根据与波兰、德国和罗马尼亚的双边协议派出的，并将继续由美国指挥。
-
-**新闻来源**
-
-[Pentagon deploying 3,000 troops to allies in Europe amid tensions with Russia](https://thehill.com/policy/defense/592429-pentagon-deploying-3000-troops-to-allies-in-europe)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,31 @@
 ---
 
 
-## 日本众议院通过中共国严重人权状况决议
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949758/)
+## 加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949760/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山教育部 – Naughty(文行)；台灣寶島農場 – dobi
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间2月1日，在中共举办冬奥会之前，日本国会通过了一项有关中共国人权的决议。该决议表示，国际社会對中共对新疆、西藏和香港的人权侵犯问题表达关切。决议内容明确指出，基于人权的普世价值，侵犯人权的相关争议不只是国内问题，而是国际社会理应关注的问题。该决议呼吁首相岸田文雄领导的日本政府，采取措施缓解此状况，强烈要求日本政府对中共施压，让中共履行其本该向国际社会做出的可被接纳的责任。
+加拿大总理杜鲁道1月31日在推特证实自己确诊了中共病毒，也随即展开隔离防疫。 据了解，杜鲁道去年已接种过两剂疫苗，今年1月也接种第三剂了。 面对中共病毒的威胁，加拿大政府祭出多项限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-3.jpg)
+
+加拿大媒体2月1日报道安格斯·里德研究所公布的一项民调结果，该研究所是专门从事加拿大舆论研究的机构。 民调显示，54%的受访者同意结束所有疫情相关的限制，另有32%的人表示强烈同意。
+
+安格斯·里德研究所表示：”如果加拿大已经度过了奥密克戎变体的最糟糕时期，公众情绪似乎正朝着开放社区的方向发展”。
+
+萨斯喀彻温省省长斯科特·摩尔在1月29日发表的声明中说，他将 “很快结束该省的测试证明和疫苗护照政策”。 接种疫苗并不能减少病毒的传播，他已经完全接种了加强针，但最近感染了COVID-19。
 
 参考链接：
 
-- [日本国会通过有关中国人权决议](https://www.zaobao.com/realtime/world/story20220201-1238578)
-- [日本国会通过关于中国人权的决议](https://www.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
-- [「中国」と名指しはせずに…衆院、新疆・香港などでの人権問題に「懸念」決議](https://www.yomiuri.co.jp/politics/20220201-OYT1T50158/)
+- [Canadian attitudes are shifting to living with COVID-19: poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
+- [Majority of Canadians Want All COVID-19 Restrictions to End: New Poll](https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll_4248078.html?utm_source=morningbriefnoe&amp;utm_medium=email_MB&amp;utm_campaign=mb-2022-01-31&amp;utm_content=News_Majority_of_Canadians&amp;est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
 总编：Irene木木
-编辑：静言
+编辑：飞虹、zhong
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

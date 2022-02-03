@@ -2,8 +2,8 @@
 ---
 
 
-## 后悔死了喜联储高管没买喜币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949993/)
+## 我们绝对要体现我的财富我说了算
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950033/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
