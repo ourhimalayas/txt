@@ -2,24 +2,49 @@
 ---
 
 
-## 中共国再显其本色：不要脸
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952250/)
+## 卑诗省医生现在可以为需要大自然治愈的患者开出免费国家公园门票
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952252/)
 
-撰稿：小毛牛
+作者：Elizabeth McSheffrey
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-42.jpg)
+对那些需要在大自然中度过有益身心健康的患者来说有一个好消息，BC省的医生现在可以为患者开出免费的国家公园通行证，患者因此可每年节省72元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/thediplomat_2022-02-01-191514-1.jpg)2022年1月30日北京，中共国男子冰球队于训练中。图片：Petr David Josek摄/美联社资料
+加拿大国家自然处方计划（Canada’s national nature prescription program, PaRx）宣布与加拿大公园局进行新的合作，允许经注册的、有执照的医疗保健专业人员向患者提供免费的加拿大公园局年度通行证。
 
-由于作为冬奥会主办国有个特别的好处：自动获得男子冰球锦标赛的席位。可当中共国在获得2022年冬季奥运会的举办权时，他们发现号称泱泱大国十多亿人口的体育大国却组建不了一支像样的冰球队。当然，这难不倒向来拿老百姓的钱挥金如土的中共国，一个字，买！
+家庭医生兼PaRx主管Melissa Lem博士说，根据最新研究，我们有一个标准建议，即患者每周至少花两个小时在大自然中，每次至少 20 分钟。这个做法是为了打破那些患者接近自然的障碍。
 
-在中共国拿到冬奥会举办权后的仅仅八个月，从世界各地搜罗混搭了一支长着亚洲脸庞的冰球队——昆仑红星（24名队员中有超过一半来自外国友人：11名加拿大人、3名美国人、1名俄罗斯人和9名中国人）。果然，金钱的力量是巨大的，在2016年，红星队正式出战了大陆冰球联赛（KHL），这是仅次于北美国家冰球联赛（NHL）的世界第二大冰球联赛。然而，这支球队在第一年进入了分区四分之一决赛后，金钱的威力视乎在衰减，从那之后，这支球队便从未进入过KHL 季后赛。令人吃惊的是，这支买来的球队在最近的一个赛季中，排名竟然垫底了……
+据悉每年的加拿大公园探索通行证费用约为每位成人72元。
 
-国际冰联主席卢克•塔迪夫在 9 月告诉法新社如下的话：如果中共国被排除在自己的比赛之外，那将是奥运会历史上的第一次。这在一个视面子至关重要的文化中，将是一个令其无法容忍的结果。这位国际冰联主席的担忧在 12 月初得到了验证，当时国际冰联确认代表中共国的昆仑红星排名世界第 32 位。
+只有在PaRx注册的医生才能开处方，“有任何健康状况的人”都有资格获得自然处方， Lem博士鼓励医生开公园通行证。
 
-根据冬奥会的安排，中国男子冰球队预赛被安排在A组，同组的外国球队有美国队、加拿大队和德国队。2月10日晚上，中国队将迎战美国队。中国队的成绩不容乐观，当然，除非中共国去“蓝、金、黄”比赛的裁判，否则对中国奖牌榜作出贡献的可能性微乎其微。。
+Lem博士说，大量研究表明，进入自然界的时间可以改善各种不同的身心健康状况，从糖尿病和心脏病到多动症和抑郁症。但对开出加拿大公园探索通行证，我们要求开处方者优先考虑居住在国家公园、历史遗迹或海洋保护区附近的患者，以及可能难以负担年度通行证的人。
 
-新闻来源：[China Recruited Canadians to Avoid Embarrassment on the Olympic Ice](https://thediplomat.com/2022/02/china-recruited-canadians-to-avoid-embarrassment-on-olympic-ice/)
+据悉BC省有七个国家公园：Glacier National Park, the Gulf Islands National Park Reserve, Gwaii Haanas National Park Reserve, Kootenay National Park, Mount Revelstoke National Park, Pacific Rim National Park Reserve和Yoho National Park。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+PaRx于2021年11月在BC省庆祝成立一周年。过去一年里，该计划还在安省、曼尼托巴省和萨斯喀彻温省启动。
+
+Lem补充说，到2022年底，该计划将在全国范围内推广，目前已经有1000多名合格的处方者注册。
+
+来源：https://globalnews.ca/news/8587316/bc-doctors-prescription-park-pass/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,31 +2,29 @@
 ---
 
 
-## 有声|SEC批准BSTX在传统市场上进行区块链结算
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1952044/)
+## 性产业的法规流派-合法性
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1952052/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1月29日，据相关媒体消息显示，波士顿安全代币交易所BSTX获得了美国证券交易委员会SEC的批准，将作为一个基于区块链的证券交易所运营。
+#### **加拿大温哥华扬帆农场 蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-03-at-23.29.08.png)
+全球性产业法规的流派合法性主要分成五种。
 
-根据SEC的批复，波士顿安全代币交易所使用的区块链技术将提高客户在传统市场的结算速率，同时减少结算周期。
+第一种是去犯罪化，它首先承认所有的东西都是合法的，性服务的提供方也就是卖的这一方是合法的，同时买的这一方也是合法的，然后中间商（帮助组织、打广告的和拉皮条）也都是合法的。
 
-此外，SEC与BSTX达成的一致条件还包括该交易所加入所有与股票交易有关的国家市场系统计划，确保与美国金融管理局签订监管服务协议，设立市场监督小组以及合适的管理结构。
+第二种模式就是合法化，相当于所有东西以及全部流程都被监管，比如德国和荷兰，性产业要上税，它与第一种的区别是：第一种主要特点是卖性没有犯罪，但是也没说合法，所以去犯罪化和合法化是两个不同的概念。
 
-文字版原文：[SEC批准BSTX在传统市场上进行区块链结算](https://gnews.org/zh-hans/1946873/)
+第三种是废除主义，指购买和贩卖性都是合法的，但是中间的组织和拉皮条都是不合法的，去掉了中间商掉挣差价，因为大部分组织方都是和黑社会或者有组织犯罪有关系，允许中间组织存在就会出现贩卖人口的情况，反之如果让买方和卖方直接接触，就会减小对社会的危害。
 
-音频处理：Fei797
-发稿：Fei797
+第四种的就是新废除主义北欧模式，加拿大也是采用这个模式，卖性是合法的，但是嫖客（买性）是违法的，同时中间组织方（妓院和拉皮条）也是违法的，它明确卖性是人身自由，但不鼓励买性，因为买性行为会助长卖性行为，同时助长人口贩卖。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+最后一种就是买卖性都是违法的，比如在中共国和俄罗斯就是这个模式。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+直播视频：
+
+[第四十一期 初探性产业及法律规范](https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb)
+
+编辑/发文：蓝枫法律栏目
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

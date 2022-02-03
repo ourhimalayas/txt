@@ -2,43 +2,27 @@
 ---
 
 
-## 安省家庭因误解旅游保险而被迫支付32,900加元的账单
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952222/)
+## 3名多伦多男孩失踪，警方要求公众帮助寻找他们
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952228/)
 
-作者：Pat Foran
+作者：Brooke Houghton
 翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-40.jpg)
-安省的一对夫妇旅行期间遇健康问题需要使用空中救护车，他们出发前购买了旅行保险，而且保险也包括空中救护车费用，但当他们要保险报销32,900加元的空中救护车费用时却被告知不符合报销规定，必须自费，夫妇听后感到震惊。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-10.jpg)
+多伦多警方罕见连发三名多伦多少年失踪信息，警方表示担心三人的安全，呼吁公众提供线索帮助寻人。
 
-家住安省Maple镇的Freda Burton告诉多伦多CTV新闻：我很失望，我很难过伤心。
+据报道，这三名年龄相近的青少年于1月29日至1月31日大约在同一时间失踪。根据多伦多警察局的一条推文，据信其中两个男孩可能在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-41.jpg)
+据警方新闻稿称， 15岁的Keon Regalado和13岁的Noah Aisosa Oseki最后一次露面是在1 月29日晚上9点，地点是在Finch Avenue West和Weston Road附近 。警方认为他们可能在一起。
 
-据介绍，Freda的丈夫Vashni Burton于2020年12月前往牙买加长期逗留。但他在2021年8 月在那里中风，Freda马上飞到他身边。
+警方描述Regalado身高5英尺4英寸，体重130磅，身材苗条，最后一次被人看到时身穿绿色/黑色冬季外套、黑色裤子、白色跑鞋，头发梳成辫子。
 
-考虑到他的照顾，他们决定乘坐空中救护车将他从牙买加带回家，因为他们购买了旅行保险，而保单包括支付这项费用。
+警方描述Oseki身高6英尺2英寸，体重130磅，身材瘦弱。他最后一次露面是在周六，身穿黑色耐克夹克、黑色裤子和黑色耐克Airmax鞋。
 
-使用空中救护车费用不菲，花了将近33,000元，他们以为回家后会报销。
+周二下午，警方公布了第三名失踪男孩Sheldon Gordon的照片，但并未说明案件是否相关。
 
-等Vashni Burton飞回家后，这对夫妇向他们的旅行保险公司提交了账单，但他们被告知保险公司不会支付空中救护车费用。
+据报道，16岁的Sheldon Gordon最后一次露面是在1月31日晚上9点30分，地点在Jane Street和Sheppard Avenue West附近 。
 
-Freda Burton被告知旅行保险有效时间只有30天，但她的丈夫已经在牙买加住了8个多月。
-
-Freda Burton说，保险只保前三十天。
-
-Travel Secure Inc. 总裁Martin Firestone表示，对于一些提供旅行保险的保险计划，人们普遍存在误解。
-
-Firestone表示，许多团体保险计划都提供旅行保险，但保险期限可能为30天。在那之后，旅行者将不得不回家，但一旦他们回到家之后，他们可以再次旅行，并再次获得30 天的保险。
-
-Firestone表示，如果您一次出国旅行需要超过30天，您可以购买额外的保险。
-
-如果你在第30天或第31天在国外又没有购买额外的保险，这是一个非常可怕的想法，因为如果有索赔，保险公司不会支付。
-
-Firestone建议每个人在旅行前要三次检查自己的保险覆盖范围。
-
-Freda Burton说，她确实购买了旅行保险，但她不知道有30天的限制，她仍然希望保险公司能够报销一部分空中救护车费用。
-
-Firestone说，现在他的许多客户决定再次旅行，他说许多保险政策确实覆盖COVID-19保险，但计划可能存在差异和限制，因此请确保您在出发前了解哪些属于承保范围和哪些不属于承保范围。
-
-来源：https://toronto.ctvnews.ca/ontario-family-forced-to-pay-32-900-bill-because-of-travel-insurance-confusion-1.5763690
+来源：https://www.narcity.com/toronto/3-toronto-boys-are-missing-police-are-asking-for-the-publics-help-to-find-them
 
 （文章仅代表作者个人观点）
 

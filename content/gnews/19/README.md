@@ -2,25 +2,27 @@
 ---
 
 
-## 中共黨魁習近平將一意孤行入侵臺灣
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1952096/)
+## 有声|2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1952119/)
 
-采編撰稿：Quitman
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image-3.png)
-據[GTV]1月30日文貴直播報道，中共黨魁習近平不明時務，不自量力，一意孤行地準備戰攻占臺灣，不僅想以此成為當代的秦始皇，更圖謀能徹底穩固其黨內政權，並讓習氏江山能千秋萬代。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-報道指出，習近平當局已計劃在占領臺灣後，將臺灣經濟繁榮和出產關鍵芯片的西部包括臺中，臺南和高雄地區的大部分人口遷移到中共國大陸集中營，並將福建省居民和深圳高科技人員移居到臺灣西部以控製經濟和芯片產業。同時，將臺灣東部變成遏製日本和挑戰美國的太平洋軍事基地。
 
-為此，在美國不參與的情況下，如果西方對中共因入侵臺灣而實施經濟製裁之後，中共國的GDP將從現有的15萬億美元驟降至5萬億美元，而最終導致其經濟和政權的徹底崩潰。
+文字版原文：[2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](https://gnews.org/zh-hans/1947608/)
 
-此外，如果歐美一旦介入並開動包括日本加入的代理人戰爭，那麽共軍將會有至少50萬年輕人無辜成為習近平的炮灰。但在目前的共軍高層內，除了總加速師外，無一人相信真的會打臺灣，更無人認為會打贏和有開戰的必要。
+音频处理：Fei797
+发稿：Fei797
 
-校對編輯：硫酸羥氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-發稿： 苦盡甜來 (文來）
-
-原文鏈接： https://gtv.org/video/id=61f6900896ba5d73e0bee910
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
