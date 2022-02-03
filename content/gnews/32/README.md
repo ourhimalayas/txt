@@ -2,21 +2,21 @@
 ---
 
 
-## 郭文贵解密中共春晚背后的肮脏交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948257/)
+## 中共病毒疫苗导致美国青壮年死亡人数暴增140%
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948258/)
 
-撰稿：台湾宝岛农场 — 天灭中共
+撰稿：纽约磐石农场 — 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-郭文贵先生在虎年新春大直播中透露，自己曾经到过中共中央电视台，春节联欢晚会的现场，见证了这档深受中国老百姓喜爱的节目背后，虚假及肮脏的嘴脸和交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-8.jpg)
-另外，郭先生还指出，每一个新中国联邦人都应该知道，社会主义的本质就是当权者可以不加节制的肆意挥霍民脂民膏，而实际上，一个正常的政府应该是在帮人民、救人民、给人民带来更好生活的前提下，花费人民创造的财富。一起听听郭先生怎么说
+外媒近日揭露了一组惊人数据，显示在2020至2021年期间，美国青壮年的死亡率暴增了140%，而中共病毒疫苗的广泛推行就是这场巨大灾难背后的主因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-10.jpg)
+世界著名肺科医生皮埃尔·科里警告，如果我们继续给健康的人注射这些有毒的实验性疫苗，我们会目睹死亡人数，甚至到达一个难以想像的规模。
 
-参考链接：[郭文贵解密中共春晚背后的肮脏交易](https://gettr.com/post/prqd7nb51a)
+参考链接：[中共病毒疫苗导致美国青壮年死亡人数暴增140%](https://www.gettr.com/post/prlxq30c29)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：zhong
-编辑：zhong
+总编：天灭中共
+编辑：天灭中共
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

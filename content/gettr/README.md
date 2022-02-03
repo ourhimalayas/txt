@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/3/2022 12:59 AM (UTC)`
+
+2/2/2022 Miles Guo: The CCP is hosting a suicidal and self-inflicted Winter Olympics! Why would the CCP troops keeping order in the Olympic venues be equipped with stun guns and hypnosis guns? The CCP will collect DNA, sperm, and eggs from the participating athletes, and it will announce to the world that this is an unprecedentedly perfect Winter Olympics <br/><br/>2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？中共将采集与会运动员的DNA、精子和卵子；中共将向世界宣布这是场前所未有的完美冬奥会<br/>
+![img](https://media.gettr.com/group48/getter/2022/02/03/00/f39a6688-0771-bb7b-aa21-0dd73ccda380/out.jpg)
+
+---
+
 `@miles 2/3/2022 12:52 AM (UTC)`
 
 2/2/2022 Miles Guo: The CCP’s chose Zhangjiakou as the venue of the Winter Olympics to make Beijing the city that can host two Olympics and to develop real estate there, not knowing that Zhangjiakou is a terrible place according to Feng Shui (Chinese geomancy). Upon hearing that the CCP picked Zhangjiakou, I knew that they would not successfully host the Winter Olympics. All the decision makers are already finished as well.<br/><br/>2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好；文贵一看中共选了张家口就知道他们搞不成冬奥会，那些决策者都已经完蛋了！
@@ -151,13 +158,6 @@
 
 2月1号：尊敬的战友们好！文贵在此衷心感谢所有的全球的灭共的战友！共产党已经走在灭亡的路上，我们要不骄不傲，战斗到直至彻底消灭中国邪恶的共产党为止，再次地祝福全球的人们和爆料革命的战友和家人们春节快乐！永远平安健康！
 ![img](https://media.gettr.com/group20/getter/2022/02/01/15/48d02880-7b7e-9ae5-2798-bc58c130bdf4/out.jpg)
-
----
-
-`@miles 2/1/2022 2:57 PM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: The CCP has been using the same lies to brainwash the Lao Bai Xing for 70 years, oppressing the people yet making them believe that they should thank the CCP for everything.<br/><br/>1/31/2022 文贵虎年新春大直播：中共70年来用同样的谎言给老百姓洗脑， 压榨人民的同时还要让人感谢他们<br/>
-![img](https://media.gettr.com/group42/getter/2022/02/01/14/c625babc-f857-bd72-75ef-77adce92d10c/out.jpg)
 
 ---
 
