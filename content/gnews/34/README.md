@@ -2,28 +2,86 @@
 ---
 
 
-## 荒诞的事在中共国和美国同时上演
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952298/)
+## 全球疫情更新（疫苗讨论的舆论攻防）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1952470/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/rsz_gettyimages-51742825-1.jpg)2004年，中ggogongong共国警方将面临死刑的囚犯排成一列/盖蒂图片社
-据华盛顿自由灯塔2月1日报道，
+**整理/编辑：枳实**
 
-据美联社报道，在2021年4月，中共国的一个法院判处了来自新疆维吾尔族的一名作家沙塔尔·沙吾提（Sattar Sawut）死刑，以及另外两人的无期徒刑。所谓罪名是他们编写了导致2009 年维吾尔族针对汉族实施的暴力行为的分裂主义的教科书。这些书描绘了 1940 年左右国民党与少数民族之间的暴力冲突故事。从中共国的官方媒体CGTN播放被判处无期徒刑的认罪视频可以明显的看出，这是充满中共国特色的被迫认罪。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新疆维吾尔自治区教育厅厅长沙塔尔·沙吾提.jpg)
-
-与此同时，位于大洋彼岸的美国的田纳西州的学校董事会作出了同样令人汗颜的举动：将课本中的一部关于描写大屠杀的图画小说《鼠》进行删除。其给出的理由是，这个小说包含了亵渎和裸露的内容。除此之外，还有不少其他的类似禁令的例子时有发生，比如纽约时报就报道过学校图书馆的管理员被指控储存了某些不当书籍，以及州立法机构提出法案对含有色情或种族分裂内容的书籍进行删除。更令人不可思议的是，就连获得了普利策奖的小说《杀死一只知更鸟》都被华盛顿一个被誉为自由学区的地方从他们的课本中进行了删除，其原因是这本书 “意图构造白人救世主”这样荒诞的理由。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/download-2.jpg)
-
-课程变更不会影响书籍的出版，而且通常会促进销售。在麦克明地区学校董事会撤下《鼠》之后，这部漫画小说的销售额非但没有因此而减少，反而促其登上了畅销书榜首。
-
-新闻来源：[In America, Books Get ‘Banned.’ In China, Authors Get the Death Sentence.](https://freebeacon.com/latest-news/in-america-books-get-banned-in-china-authors-get-the-death-sentence/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-144.png)图片：雅典娜农场设计组 精灵蓝
 
 
+雅典娜疫情更新（2022年 2月3日）
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+**一，全球疫情基本数据**
+
+感染总数：384,167,077（日新增3,081,425，14天增幅-1%）
+
+死亡总数：5,697,479（日新增10,143人，14天增幅 +36%）
+
+**二，全球“疫苗”毒针统计数据**
+
+“疫苗”毒针注射总数：101亿
+
+完全“接种”：41.7亿人
+
+完全“接种”百分比：53.4%
+
+**三，澳洲疫情和“疫苗”数据**
+
+感染总数：2,645,825（今日新增37,206人）
+
+死亡总数：3,989人（今日新增 85人）
+
+每万人感染人数：1025.5692人
+
+“疫苗”毒针注射总数：50,449,872（今日新增256,965   针）
+
+完全“接种”： 19,285,421人
+
+第二针“接种”百分比：78.8%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.5%
+
+加强针总数：8,418,676（日新增：226,997针）
+
+**四，疫苗讨论的舆论攻防**
+
+2022 年 2 月 2 日，《每日邮报》发表了一篇文章，歪曲报道乔·罗根 (Joe Rogan)对马龙博士和麦卡洛医生的访谈。今天[马龙博士撰写博客文章](https://rwmalonemd.substack.com/p/the-truth-about-the-daily-mail-article)，对这篇报道做出了逐条反驳。这篇文章虽然只是为了辩驳和回应《每日邮报》文章，但事实上总结了自然免疫，羟氯喹，伊维菌素的研究，心肌炎心包炎发病率等各方面的论文和文献索引，是非常好的搜寻疫苗真相相关文献的起始点。
+
+这篇文章的开头就引用《每日邮报》文章的话：“1 月 10 日，超过 250 名医生签署了一封致 Spotify 的公开信，题为：《全球科学和医学界呼吁实施错误信息政策》”，指出这些签署者实际上中有只有少数是医生，大多数只是护士、实习生和播客主播。相比之下，揭穿中共病毒疫苗毒针真相的[国际医师和医学科学家联盟（马龙博士担任主席）拥有超过 17,000 名经过验证的医师声明签署人，他们都是医师​​和医学科学家。](https://globalcovidsummit.org/)
+
+文章中的内容非常丰富，还有无数的细节和引证，篇幅所限，就不详细介绍了。对于被“主流媒体”洗脑，对毒疫苗充满信任的，但愿意花时间研究阅读思辨，寻找真相的人们，尤其是孩子们来说，这篇博文相当适合阅读。毕竟，毒疫苗的推行正是以科学之名，而科学有别于宗教之处，不正是科学就是在质疑中步步推进的吗？中共病毒疫苗是有效还是有害，这既然是科学问题而非宗教教义，当然就可以被质疑和讨论，毕竟已经有如此多的医生和科学家宁愿冒着丢掉自己的行医执照和科研经费的风险也要站出来反对毒疫苗了。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

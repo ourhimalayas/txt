@@ -2,53 +2,31 @@
 ---
 
 
-## 美国联邦债务首次超过30万亿
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1952935/)
+## 扬帆每日速递2022年2月3日版（1）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1953046/)
 
-作者: MOS – 柳是多水土透
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、加拿大渥太华警察局长表示可能会要求军队提供援助以阻止正在进行的反对中共病毒疫苗强制政策的“自由护航2022”卡车司机抗议活动。国防部回应称，他们没有介入此事的计划。
 
+2、2月2日，Meta（Facebook）股价大跌超过24%，市值蒸发逾2300亿美元，用户量首次下跌。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3、据文贵大直播：新中国联邦新春晚会，目前国内观看人数已经超过2.5亿次。中国人过去最大的代表中国人无知耻辱、精神萎靡、精神大屠杀、文化大屠杀的犯罪舞台就是中共国春晚。
 
+4、据文贵大直播：喜联储不叫金融。是超越国家主权、超越信仰、超越物理世界、人与人之间，最新的、最重要的、是人类最新的文明。解放生产力、开发人的智慧、缩短、几乎消灭人与人之间的距离、超出人类信仰，这样的互信关系。
 
-依据美财政部数据，国家债务在周二超过30万亿，是建国以来首次, 膨胀的债务大多归咎于Covid-19爆发后，激增的经济救助花销，从19年底至今，国债增长了约7万亿。
+5、普京2月3日通过新华社发表题为《俄罗斯和中国：着眼于未来的战略伙伴》的署名文章，其中讲到中俄双方已经签署结算和支付协议，不断扩大本币结算，建立起消除单边制裁负面影响的机制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-3.jpg)图片来源: 网络
+6、据香港now新闻台1月3日报道：香港新增142宗新冠病毒确诊，源头不明个案遍布全港。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板3-1-1_page-0001.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
+编辑：文敏
 
+发布：风起云间（文敏）
 
-财政部数据在高通胀和供需不平衡的经济背景下发布, 联储预计从三月开始进行一系列的利率上调举动，这将会显著增加政府借债融资成本。
+海报图片设计：飞天面、 Shuang
 
-由于新冠病毒，在过去的两年财政和货币刺激导致严重超发，以至于现有80%的流通美金是在之前22个月印刷的。
-
-联储主席 Jerome Powell上周表示将开始缩表，这将是2015年后首次利率提升。
-
-本届政府开启了前所未有的联邦支出，债务与GDP比值达到了130.65%，即债务超过经济产出。
-
-联邦政府有8万亿国债被外国持有，其中最大债权人是中共当局和日本政府，分别为1.05和1.3万亿美金。
-
-
-
-相关链接:
-
-[U.S. National Debt Hits $30 Trillion for First Time](https://www.nationalreview.com/news/u-s-national-debt-hits-30-million-for-first-time/)
-
-![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿: Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
