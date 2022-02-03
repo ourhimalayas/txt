@@ -2,47 +2,36 @@
 ---
 
 
-## 北极光今晚将在加拿大大部分地区起舞
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1948457/)
+## 有声|郭先生为香草山农场的战友送去新年寄语
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948661/)
 
-作者：Maggie Parkhill
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-24.jpg)
-加拿大又将迎来激光大爆发，今晚大部分地区都可以清楚看到北极光在天空跳舞。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月29日，郭文贵先生以新中国联邦创始人和特邀嘉宾的身份参加了纽约香草山农场举办的壬寅年新春联欢直播暨香草山年会。
 
-根据与加拿大航天局合作的非营利性协会Astronomy North的说法，安大略省北部、魁北克省北部和BC省北部。以及三个省份的南部地区：曼尼托巴省、萨斯喀彻温省和阿尔伯塔省都可以看到明亮的北极光。
+郭先生提到，香草山农场是一个讲求自由、真相和包容的团队，其自建立以来就源源不断地向爆料革命输送人才，堪称爆料革命的人才培养基地。此外，香草山农场还协助喜马拉雅联盟委员会完成了战友们G系列投资及对账50%以上的工作——这也得益于农场主长岛哥公开、包容、真实的运营模式和他对待法律问题上严谨、认真、严肃的态度。
 
-据加拿大航天局称，今晚抬头观看极光的最佳时间是当地时间午夜左右。
+原文链接：[郭先生为香草山农场的战友送去新年寄语](https://gnews.org/zh-hans/1939456/)
 
-当然是否幸运的在家看到极光，取决于今晚的天气。
+音频处理/发稿：Daxia
 
-温尼伯和Regina尽管午夜温度会降到零下30度，但天气仍然会是是晴朗的。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-在黄刀镇，午夜时分的天空也是晴朗的。但是埃德蒙顿和白马镇可能会因为厚云层而错过今晚的极光。
+**更多资讯，更多关注**
 
-在安大略省，Thunder Bay在夜间将有晴朗的天空，但是在更南边的城市则是多云的天气。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-如果今晚你所在地区的天气预报显示天气晴朗，加拿大航天局建议你穿上厚衣服，去一个光污染少的地方观看极光。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-来源：https://www.ctvnews.ca/sci-tech/northern-lights-will-dance-over-most-of-canada-tonight-but-clouds-may-crash-the-party-1.5765135
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-（文章仅代表作者个人观点）
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

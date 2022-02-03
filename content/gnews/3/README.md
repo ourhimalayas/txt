@@ -2,57 +2,36 @@
 ---
 
 
-## 渥太华抗议官方强硬 警方逮捕两人提刑事指控
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1948482/)
+## 有声|班农先生谈中共对美洲的渗透
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948683/)
 
-作者：Sean Boynton
-翻译：Himsally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-18.png)
-渥太华警方说，上周末集结在渥太华抗议的卡车司机人数正在减少，但两名抗议者遭到警方逮捕并面临刑事指控，他们与反COVID-19限制示威有关。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1月30日，据盖特消息显示，近日，班农先生在接受新中国联邦媒体采访时谈到了中共对中美洲和南美洲的渗透问题。班农先生强调，西方人其实得益于郭文贵先生的爆料。
 
-警方周二表示，29岁的Matthew Dorken被指控犯有5000元以下的财物破坏，他在周六抗议活动中涉及”破坏财产”。
+班农先生解释道，西方和美国对于中共在世界上的渗透不甚了解，而郭先生当时第一个指出，中共对加勒比海地区，尤其是巴哈马存在严重的威胁。据郭先生透露，中共在巴哈马建立了海军情报站，用以监测美军潜艇，同时，巴哈马也是中共的情报据点。此外，中共还将澳大利亚和巴西视为获取农产品和原材料的生存空间。因此，中共的威胁并不仅限于整个南美地区，甚至已经到达了中美洲地区。
 
-渥太华警察局的一份声明说，Dorken在抗议活动时没有被逮捕，”以避免发生更大的冲突”。
+原文链接：[班农先生谈中共对美洲的渗透](https://gnews.org/zh-hans/1940652/)
 
-警方说，第二名与抗议活动有关的男子是37岁的Andre Lacasse，在周日被指控携带武器参加公共会议。
+音频处理/发稿：Daxia
 
-一个由卡车司机和他们的支持者组成的车队周五晚间来到渥太华，抗议COVID-19的限制，包括强制疫苗，并在国会山周围的街道上进行了多天抗议。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-一些抗议者破坏了国家战争纪念碑和市中心的其他雕像，而当地的一个庇护所——Shepherds of Good Hope证实，一些车队的抗议者在周末对他们的工人进行了骚扰和胁迫，要求提供食物。还有报道称，在抗议活动中出现了纳粹旗帜，以及其他仇恨活动的标志。
+**更多资讯，更多关注**
 
-渥太华警方表示，对战争纪念碑破坏事件的调查已经取得了”一些进展”。总体而言，有13项调查正在进行。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-警方补充说，他们已经收到了8份与示威有关的投诉，其中3份正在由仇恨犯罪部门进行调查。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-据报道，渥太华的示威人群正在减少，从上周末的数千名抗议者减少到约250人，包括国会山目前还有约50人。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-总理贾斯汀·杜鲁多星期二说，他”不会屈服于”抗议者的要求，包括结束所有COVID-19的限制，以及要求杜鲁多辞职。
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-他说：”我想清楚表达：其中有些抗议者对小企业工人进行谩骂，从流浪者那里偷取食物，我们不会被这种人吓倒。”
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-“我们不会向那些悬挂种族主义旗帜的人屈服。我们不会屈服于那些从事破坏活动，或侮辱退伍军人的人。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-各级政府的从政者都敦促抗议者尽快离开渥太华。
 
-来源：https://globalnews.ca/news/8587838/trucker-convoy-protest-arrests/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

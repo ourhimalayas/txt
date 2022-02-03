@@ -2,34 +2,28 @@
 ---
 
 
-## 有声|中共病毒及疫苗危机的可怕后果
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948301/)
+## GTV新闻访谈简报|2022年2月2日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1948385/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年1月30日直播中表示，mRNA疫苗接种已经在世界上造成了数量惊人的死亡率，激起了社会各界的抗议。现在的人们已经意识到这是一场人类大屠杀，一场社交媒体大封杀，这是一场阴谋，mRNA疫苗接种是一场医学灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
 
-原文链接：[中共病毒及疫苗危机的可怕后果](https://gnews.org/zh-hans/1943055/)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-音频处理/发稿：Daxia
+视频参看：[2022.02.02早GTV新闻访谈](https://gtv.org/video/id=61fa86a596ba5d73e0c16281)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-1.jpeg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

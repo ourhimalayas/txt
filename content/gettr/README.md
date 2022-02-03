@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/3/2022 12:36 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live: Hao Haidong’s revelations on the fake, ugly, and evil of the CCP’s system - Without money, power, network, or sleeping with the CCP cadres, the Lao Baixing will be doomed. It is outrageous that Song Zuying’s performance of “Spicy Girl” at the Wiener Musikverein was paid with the CCP’s military funds, which are the Lao Baixing’s money<br/><br/>1/31/2022 文贵虎年新春大直播：郝董揭露中共体制的假丑恶 - 没钱、没实力、不找关系、不陪领导睡的老百姓没出路；宋祖英竟拿着老百姓付的中共军费包下维也纳金色大厅去唱《辣妹子》<br/>
+![img](https://media.gettr.com/group30/getter/2022/02/03/00/81bbf109-b14a-aacb-d794-ab6da9986f21/out.jpg)
+
+---
+
 `@miles 2/2/2022 7:29 PM (UTC)`
 
 2月2号：我的那乖乖嘞，咋了，这是咋回事儿了……
@@ -151,13 +158,6 @@
 
 ⚠️⚠️Timeline of The New Federal State of China About the CCP Virus And COVID Vaccine Disaster Warning<br/><br/>The #NFSC has always been committed to the truth and saving lives by exposing CCP's evil nature and the fact that they created the #CCP virus killing millions of people worldwide. The NFSC has also been spreading COVID therapeutics and related medications to the world, as well as the real purpose of COVID vaccines. All the facts prove what the CCP did has nothing to do with the Chinese people, the CCP cannot represent the Chinese people, who are also the victims.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警的时间线<br/><br/>#新中国联邦 一直致力于揭露中共邪恶本质，揭露他们制造 #中共病毒 已经在全世界造成数百万人死亡的事实，从而揭示真相，拯救生命。新中国联邦也一直在向全世界传播 #CCPVirus 治疗方法和相关药物，以及 #COVID 疫苗的真实目的。所有事实证明，中共的所作所为与中国人民无关，中共不能代表中国人民，中国人民也是受害者。
 ![img](https://media.gettr.com/group8/origin/2022/02/01/11/b65bdc52-ffd9-94cb-5393-e69830ecfb38/out.jpg)
-
----
-
-`@miles 2/1/2022 6:10 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: The former boss of Hermes admires the clothing of ancient China during the Northern Wei Dynasty, but the CCP has destroyed the best food culture, clothing culture, and music in China. The most important thing for the New Federal State of China is to make people live a good and authentic life.<br/><br/>1/31/2022 文贵虎年新春大直播：爱马仕前老板崇拜中国古代北魏时期的服饰，但中共却毁掉了中国最好的饮食文化、服饰文化和音乐；新中国联邦最重要的是要让人们的生活美好而真实<br/>
-![img](https://media.gettr.com/group20/getter/2022/02/01/06/0b48a72e-9d7d-b3df-265c-1812acc24508/out.jpg)
 
 ---
 

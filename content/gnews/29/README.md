@@ -2,31 +2,37 @@
 ---
 
 
-## 多国奥运健儿抵制北京开幕式
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1948250/)
+## 研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948260/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：台湾宝岛农场 — zhong
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒2月1日报道，一项由丹麦国家血清研究所、丹麦统计局和哥本哈根大学等机构共同完成的研究显示，Omicron亚变种BA2的传播速度较原始版本相比，更快、更强。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-11.jpg)
+该研究分析了去年12月至今年1月的数据发现，在感染 Omicron 亚变种 BA2 的人中，有 39% 的机会在一周内将病毒传染给其他人，而感染原始版本的机率是 29%，也就是说，BA.2变异株的传播速度是原版 Omicron 的1.5倍。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1237970843-1536x1024-1.jpg)
+另外，研究人员还指出，BA2变异株不但传染力更快，隐匿性也更强，难以被及时检测出来。
 
+目前全球超过98%的Omicron感染个案，均只涉及原始版本 BA1，但在丹麦，BA2在短时间内已取代BA.1，成为当地的主流病毒株。
 
-资料来源：Getty
+参考链接：
+1. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://udn.com/news/story/121707/6073087)
+2. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://english.elpais.com/usa/2022-01-31/ba2-a-new-version-of-the-omicron-coronavirus-variant-that-is-even-more-contagious-but-not-more-serious-according-to-early-data.html)
 
-据华盛顿邮报周三报道，奥运会运动员将抵制周五在北京举行的冬奥会开幕式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-据一直在帮助教育和组织人权活动人士称，来自多个国家的奥运运动员想要向中国政府侵犯人权的受害者表示声援，他们一直在悄悄地准备抵制开幕式。
+总编：天灭中共
+编辑：天灭中共
+校对/发稿：Hetangyuese
 
-几个月来，驻美国的活动人士一直在与来自几个西方国家的奥运运动员会面，敦促他们就中国政府的大规模暴行和对维吾尔人、藏人、香港人和中国境内其他群体的严厉镇压发表意见。如果运动员谈论人权，将面临中国政府的惩罚威胁，他们几乎都避免在公共场合谈论这个话题。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-运动员们还受到来自国际奥委会 (IOC) 及其赞助商的压力，以避免引起争议。但如果他们觉得说出来不安全，活动人士告诉他们，跳过开幕式和闭幕式至少会剥夺中国政府利用这些仪式将其滥用职权合法化并粉饰其罪行的能力。活动人士告诉我，至少有两支西方球队的运动员确认他们不会参加开幕式作为他们个人的抗议形式。
-
-
-
-> [Olympic Athletes From Multiple Countries to Boycott Opening Ceremony in Beijing: Report](https://www.mediaite.com/sports/olympic-athletes-from-multiple-countries-to-boycott-opening-ceremony-in-beijing-report/)
-
-
-
-责任编辑/发布： Shuizhuyu
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
