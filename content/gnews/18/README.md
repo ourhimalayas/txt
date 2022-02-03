@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党倒下需要过程
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949472/)
+## 欧盟会解体
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949539/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,35 +2,36 @@
 ---
 
 
-## 七哥分享躺平币（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949407/)
+## 有声|郭文贵献唱新中国联邦春晚，三首灭共歌荡气回肠
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949480/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在新中国联邦的新春晚会上，郭文贵先生作为开幕嘉宾，共演唱了三首灭共歌:《甜蜜蜜》《一帘幽梦》和《塞北的雪》，并讲述了选择这三首歌的目的和意义。
 
-当你躺平的时候，你不是躺着，那就给你钱，我咋知道你躺平了。你躺平， 你得在盖特上或者GTV上，GNEWS上你发文章，你发信息，你在线。
+首先，郭先生以一曲甜蜜蜜开启了甜蜜蜜运动，同时也开启了虎年春晚。郭先生身着红装，唱毕又拿出一神秘红色纸条，解释说红色带给我们力量，共产党霸占了红色，抢走了我们的自由，我们只有打开甜蜜蜜运动这把钥匙，一起合作干掉CCP。才能解放我们被奴役了几代的中国人。
 
-你是躺平了共产党，不给他当奴才，但是你在用你自己的时间再换你的躺平币。这个时候谁给你钱，不是我给你钱，我拿你的躺平的时间，我就卖到好多市场上去了。
+原文链接：[郭文贵献唱新中国联邦春晚，三首灭共歌荡气回肠](https://gnews.org/zh-hans/1948259/)
 
-七哥兜里没那么多钱给你们。
+音频处理/发稿：Daxia
 
-我提前只是做了这个系统，谁买我这儿有一亿个分钟人在线看你们的广告， 我这有11分钟，有人在帮你推你的信息，你愿不愿意给呢？
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-我不是卖你的数据，我这是完全是区块链式的，大家未来可以具体你们看。 有人说愿意多少钱一个呢？ 一亿个分钟，按照今天比，就是一亿美金。
+**更多资讯，更多关注**
 
-最低数也是1000万美金。这个钱到哪去了，七哥不拿走。唯一的不像不像 Facebook,谷歌，我给你拿走了，全拿走。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-苹果全拿走，我把这钱放到了第三方，有多少人买这些躺平币的时间，这个钱就是自然而然的支付。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥分享躺平币（五）-.jpg)
-2021年12月10日文贵大直播
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

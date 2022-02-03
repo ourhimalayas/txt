@@ -2,29 +2,38 @@
 ---
 
 
-## 七哥教你关键时刻 如何把电脑数据销毁
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949465/)
+## 有声|新中国联邦新闻英文节目完美首播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949531/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
 
-我教你一招：用电，就是用电流，将交流电的正负极交错，电脑就会自燃烧掉，没人可以恢复。
+据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
 
-回去好好学学啊，注意别着火了, 如何用电源插错的方式，把电脑瞬间毁掉。
+新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
 
-七哥当年受过这样的培训，如何在特别情况下把你电脑的东西毁掉，就用电源。正负极弄错咔嚓就烧了啊。大家不要统一行动, 别乱行动，记住后果自负。 所以战友马上就明白了，这么一弄，这家伙怎么回事，你看我电脑着火了。
+原文链接：[新中国联邦新闻英文节目完美首播](https://gnews.org/zh-hans/1947197/)
 
-哎，那行了，电脑我拿走吧。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥教你关键时刻如何把电脑数据销毁_01.jpg)
-2021年12月10日文贵大直播
+音频处理/发稿：Daxia
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

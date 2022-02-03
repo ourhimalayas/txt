@@ -2,225 +2,28 @@
 ---
 
 
-## 每日快报：更多国家放宽对冠状病毒的限制
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1949631/)
+## 面对日本的硬 中共官媒为自己的软找台阶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949658/)
 
-*作者：*文零
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-159.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://japan-forward.com/wp-content/uploads/2018/10/Japan-China-Summit-2018-007-e1610415984288.jpg&amp;imgrefurl=https://japan-forward.com/confession-of-a-recovering-pro-china-sympathizer-its-time-to-stop-giving-aid-and-comfort-to-the-ccp/&amp;tbnid=DUzVD2QDDhCzUM&amp;vet=12ahUKEwj3xvGN3-L1AhWawmEKHV09DgIQMygDegUIARCNAQ..i&amp;docid=TuEv1-gzBUKNRM&amp;w=1600&amp;h=800&amp;q=Japan%20CCP&amp;ved=2ahUKEwj3xvGN3-L1AhWawmEKHV09DgIQMygDegUIARCNAQ)
+自从去年岸田文雄政府执政以来，日本对中共一改过去的含蓄隐忍，而愈发强硬。面对日本的频频“挑衅”，中共却无实质反击动作，显得非常被动，对此，中共官媒近期开始找台阶安抚国内的粉红情绪。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+2月2日，中共《国防时报》发表《立陶宛挑衅，中国迅速反制，同样爱“挑衅”，中国为何不搭理日本》一文。
 
-# ***今日摘要***
+文章称，一个有趣的现象是：近一段时间，中国对立陶宛进行了快准狠的反制，对日本却颇为冷淡，反击以舆论为主。日本，与立陶宛一样在台海问题上做文章，实际目的却不尽相同。日本之所以不断挑衅中国，是希望将中日关系推入更加紧张的状态。
 
-1. [“夺回生命”：更多国家放宽对冠状病毒的限制](https://apnews.com/article/coronavirus-pandemic-business-health-pandemics-united-nations-ca046d38f7e78ad7150a0a8d95d81433)
-2. [陆军立即开始遣散疫苗拒绝者](https://apnews.com/article/coronavirus-pandemic-health-army-27bacdba9d130fd5263e97b179124610)
-3. [加拿大警方警告在渥太华反疫苗强制卡车司机抗议活动中使用枪支](https://www.reuters.com/world/americas/refile-anti-vaccine-mandate-protesters-say-they-will-block-ottawa-long-necessary-2022-02-02/)
-4. [联邦调查局局长雷：中共国在美国的间谍活动“让我大吃一惊”](https://www.newsmax.com/newsfront/fbi-director-wray-china-spying/2022/02/02/id/1055123/)
-5. [紧张局势：美国在欧洲增兵](https://www.bbc.com/news/world-europe-60234377)
+日本主动挑衅中国，并渲染中国“军事威胁”，根本目的是倒逼美国放松对日本的军事捆绑，以达到“修宪”的目的。因此，面对日本的挑衅，中国选择一定程度上的“冷处理”，不让局势升级，避免踏入日本的圈套。
 
+从中共《国防时报》这篇文章可以看出，中共就是典型的流氓小痞子的本质，“你硬它就软，你软他就硬”。
 
-# 重要事件
+中共敢动立陶宛而不敢动日本，主要还是基于对日本综合实力和利弊权衡所做出的研判，中共对日本在经济、科技等方面高度依赖，当前日企已经在不断撤离，中共既不能对日本硬来也没有硬来的抓手。
 
-- [**02.02. APNEWS：“夺回生命”：更多国家放宽对冠状病毒的限制；‘Take back life’: More nations ease coronavirus restrictions**](https://apnews.com/article/coronavirus-pandemic-business-health-pandemics-united-nations-ca046d38f7e78ad7150a0a8d95d81433)
+信息来源：[立陶宛挑衅，中国迅速反制，同样爱“挑衅”，中国为何不搭理日本](https://c.m.163.com/news/a/GV27H9KJ0543B4S9.html?spss=newsapp)
 
-
-在俱乐部深夜聚会，电影院的肘对肘座位，在公共场合不戴口罩，尤其是在欧洲和北美：许多国家正在逐步放宽对 COVID-19 的限制，希望Omicron波可能已经过了顶峰。基于最近几天病例数下降或持平而放松预防措施的早期举措，可能是近两年流行病的另一个转折点。
-
-在过去的10周里，极具传染性的Omicron在全球范围内引发了更多的病例——9000万——比2020年全年（疫情爆发的第一个全年）还要多。但世界卫生组织本周表示，一些国家现在可以考虑谨慎放宽规定，如果它们的免疫力高、卫生保健系统强大并且流行病学趋势正朝着正确的方向发展。根据联合国卫生部门的数据，1月24日至30日当周的全球新病例与前一周的水平相似，但新死亡人数增加了9%，达到59,000多人，反映出感染和死亡之间通常存在滞后。
-
-限制措施最明显的回落发生在欧洲，几个月来一直是世界大流行的中心，以及在南非（首先公开宣布Omicron）和美国。在英国和美国，就像在他们之前的南非一样，COVID-19病例起初猛增，但现在正在迅速下降。在美国，地方领导人提供了大杂烩式的回应。丹佛市正在结束对企业和公共场所的疫苗接种证明和口罩规则的要求，同时将它们保留用于学校和公共交通。纽约州州长计划在下周审查是否在早期Omicron热点地区病例和住院人数急剧下降的情况下保留该州的口罩规定。纽约市平均每天有4,200例病例，而1月的第一周为41,000例。整个美国也处于类似的轨迹上，感染人数从2.5周前的平均每天800,000多人暴跌至本周的430,000人。
-
-- [**02.02.APNEWS：陆军立即开始遣散疫苗拒绝者；Army to immediately start discharging vaccine refusers**](https://apnews.com/article/coronavirus-pandemic-health-army-27bacdba9d130fd5263e97b179124610)
-
-
-华盛顿（美联社）-陆军周三表示，将立即开始遣散拒绝接种强制性COVID-19疫苗的士兵，这将使3,300多名军人面临很快被驱逐的风险。
-
-陆军的公告使其成为最终制定疫苗拒绝者退伍政策的军种。海军陆战队、空军和海军已经因拒绝开枪而在新兵训练营解雇现役部队或入门级人员。到目前为止，陆军还没有解雇任何人。
-
-根据陆军上周公布的数据，已有3300多名士兵拒绝接种疫苗。陆军表示，已对3,000多名士兵发出正式书面谴责，这表明他们已经在纪律处分程序中被确定，其中一些人可能是最先被解雇的人。
-
-- [**02.02.REUTERS：加拿大警方警告在渥太华反疫苗强制卡车司机抗议活动中使用枪支；Canada police warn of guns at Ottawa anti-vaccine mandate trucker protest**](https://www.reuters.com/world/americas/refile-anti-vaccine-mandate-protesters-say-they-will-block-ottawa-long-necessary-2022-02-02/)
-
-
-渥太华，2月2日（路透社）-渥太华警察局局长彼得·斯洛利周三表示，有迹象表明，卡车司机抗议强制疫苗规定导致加拿大首都瘫痪，并补充说，召集军队将构成重大风险。
-
-“作为这次示威活动的一部分，我们已经有迹象表明枪支进入这个司法管辖区，作为这次示威活动的一部分，”彼得·斯洛利在简报会上说。有证据表明“美国在资助和组织抗议活动中发挥了重要作用”。数十名抗议COVID-19强制疫苗的卡车司机已经封锁了该市的中心路线六天。居民们对警察的不作为感到越来越愤怒，他们基本上站在一边。抗议者表示，在政府取消强制疫苗之前，他们无意离开。
-
-警方以可能加剧紧张局势为由拒绝结束抗议活动。他们说，他们正在调查包括仇恨犯罪和亵渎公共财产在内的刑事犯罪报告，迄今已逮捕三人。
-
-- [**02.02.NEWSMAX：联邦调查局局长雷：中共国在美国的间谍活动“让我大吃一惊”；FBI Director Wray: China’s Spying Efforts in US ‘Blew Me Away’**](https://www.newsmax.com/newsfront/fbi-director-wray-china-spying/2022/02/02/id/1055123/)
-
-
-联邦调查局局长克里斯托弗·雷告诉 NBC新闻，他的机构每天都会启动两项与中共国有关的新反情报调查。“没有哪个国家比中共国对我们的创新、我们的思想和我们的经济安全构成更广泛、更严重的威胁。”雷告诉NBC新闻。
-
-雷说，当他在2017年担任局长时，中共国窃取美国技术的广度令他震惊。“这个让我大吃一惊，”他告诉NBC新闻，“而且我不是那种容易使用”大吃一惊”这样的词的人。”
-
-平均而言，FBI每12小时启动一次与中共国有关的新反情报调查。目前有2,000多起此类案件正在审理中。
-
-- [**02.02.BBCNEWS:紧张局势：美国在欧洲增兵**](https://www.bbc.com/news/world-europe-60234377)
-
-
-五角大楼表示，由于对俄罗斯入侵乌克兰的持续担忧，美国总统乔·拜登本周将向欧洲增派军队。大约2,000名士兵将从北卡罗来纳州的布拉格堡派往波兰和德国，另外1,000名已经在德国的士兵将前往罗马尼亚。
-
-莫斯科否认计划入侵，但已在乌克兰边境附近部署了大约100,000名士兵。它称美国的部署是“破坏性的”。紧张局势发生在俄罗斯吞并乌克兰南部克里米亚半岛并支持顿巴斯东部地区的流血叛乱八年后。莫斯科指责乌克兰政府未能执行明斯克协议——这是一项旨在恢复东部和平的国际协议，俄罗斯支持的叛军控制着大片领土，自2014年以来至少有14,000人被杀。
-
-部署的美军不会在乌克兰作战，但会确保美国盟友的防御。他们的部署是五角大楼上个月处于戒备状态的8,500名士兵的补充，准备在需要时部署到欧洲。五角大楼发言人约翰·柯比对记者说：“重要的是，我们向普京先生，坦率地说，向全世界发出强烈信号，即北约对美国很重要，对我们的盟友也很重要。”
-
-# 更多要闻链接
-
-1. [与福奇有关的美国政府高级顾问在与中国共产党有关联的影响力团体任职](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/)
-2. [索罗斯：中共国危机四伏 习近平或无法如愿连任](https://www.voachinese.com/a/Soros-on-Xi-Jinping-20220201/6421928.html)
-3. [冬奥会人员确诊数不断上升，观察人士：北京无论如何都会强行把赛事进行下去](https://www.voachinese.com/a/beijing-olympic-covid-20220202/6424487.html)
-4. [新的研究表明，封锁对 COVID-19 死亡几乎没有影响](https://www.washingtontimes.com/news/2022/jan/31/lockdowns-had-little-or-no-impact-covid-19-deaths-/)
-5. [Freedom Convoy：GoFundMe暂停向加拿大卡车司机捐款](https://www.bbc.com/news/world-us-canada-60239038)
-
-
-# 每日推特文摘
-
-
-
-2022盗国贼春晚节目单
-
-开场歌舞《爹亲娘亲 洋爹最亲》领唱：王岐山 孟建柱 伴舞：周亮 康典
-
-相声《我的奶奶》表演者：江志成（美国）宋祖英
-
-戏曲《温酒斩王健》 表演者：田国立，田惠宇 武术指导：田丁
-
-……
-
-大合唱《难忘今宵 除习快乐》领唱：王岐山，孟建柱  连线嘉宾：江泽民 伴奏：曾庆红
-
-
-
-
-
-> 2022盗国贼春晚节目单
-> 开场歌舞《爹亲娘亲 洋爹最亲》 领唱：王岐山 孟建柱 伴舞：周亮 康典 
-> 相声《我的奶奶》表演者：江志成（美国）宋祖英 
-> 戏曲《温酒斩王健》 表演者：田国立，田惠宇 武术指导：田丁 
-> ……
-> 大合唱《难忘今宵 除习快乐》领唱：王岐山，孟建柱 连线嘉宾：江泽民 伴奏：曾庆红
-> — 冠军的亲爹（冠博士） (@Guan\_PhD) [February 2, 2022](https://twitter.com/Guan_PhD/status/1488668576722698242?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-郭先生直播爆料：
-
-北京冬奥会是中共国军队在管理，准备了电击枪、无色无味吸入就会晕倒十几分钟的大杀器迷药。
-
-所有参加的运动员的生理DNA都会被CCP搜集走。
-
-
-
-
-
-> 郭先生直播爆料：
-> 
-> 北京冬奥会是中国军队在管理，准备了电击枪、无色无味吸入就会晕倒十几分钟的大杀器迷药
-> 
-> 所有参加的运动员的生理DNA都会被CCP搜集走
-> — 500 𝕸𝖎𝖑𝖊𝖘 (@SafeGuard009) [February 2, 2022](https://twitter.com/SafeGuard009/status/1488883621058412545?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-谢谢这位匿名战友
-
-
-
-
-
-> 謝謝這位匿名戰友😍😍🙈🙈😛😛 [pic.twitter.com/wsjZX3uYqv](https://t.co/wsjZX3uYqv)
-> — 政清@台灣農場 (@chingtaiwanfarm) [February 2, 2022](https://twitter.com/chingtaiwanfarm/status/1488813587648823300?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-Hpay首发上线就有美国地区
-
-全球金融崩溃经济崩溃，在此时机Hpay带领一群最有钱还是全球唯一有消费能力的人冲进市场！各个商家开通Hpay支付就可以完成自我拯救，加入GCLUB联盟不但能规避风险甚至还能一飞冲天！
-
-Hpay是郭先生和新联邦送给世界的新年礼物。
-
-
-
-
-
-> Hpay首发上线就有美国地区
-> 
-> 全球金融崩溃经济崩溃，在此时机Hpay带领一群最有钱还是全球唯一有消费能力的人冲进市场！各个商家开通Hpay支付就可以完成自我拯救，加入GCLUB联盟不但能规避风险甚至还能一飞冲天‼️
-> 
-> Hpay是郭先生和新联邦送给世界的新年礼物🎁 [pic.twitter.com/Gtpa6Dh7ku](https://t.co/Gtpa6Dh7ku)
-> — 草根小哥（新号） (@caogenxiaogex) [February 2, 2022](https://twitter.com/caogenxiaogex/status/1488775887336062983?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-诋毁郭先生欺骗投资者，混乱剪辑，只留下郭先生不断说她撒谎的片段，故意贬低郭先生形象。我们还原当时的原始行反击，以揭露HBO如何虚假剪辑采访视频。
-
-
-
-
-
-> [#HBO](https://twitter.com/hashtag/HBO?src=hash&amp;ref_src=twsrc%5Etfw) [#VICE](https://twitter.com/hashtag/VICE?src=hash&amp;ref_src=twsrc%5Etfw)
-> 诋毁郭先生欺骗投资者，混乱剪辑，只留下郭先生不断说她撒谎的片段，故意贬低郭先生形象。我们还原当时的原始行反击，以揭露HBO如何虚假剪辑采访视频。 [pic.twitter.com/eGqPy1FGwU](https://t.co/eGqPy1FGwU)
-> — 88jj（加拿大圆成农场特战队） (@2\_88jj) [February 2, 2022](https://twitter.com/2_88jj/status/1488788694744334339?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-以数据说话:在每个covid打“疫苗”率高的国家，超额死亡人数飙升。
-
-
-
-
-
-> Excess deaths soaring in every country where covid “vaccine” uptake is high: data
-> 以数据说话:在每个covid打“疫苗”率高的国家，超额死亡人数飙升 [pic.twitter.com/8i5hNIw9hp](https://t.co/8i5hNIw9hp)
-> — 安平 Emma(新生号） (@PingRyan2016) [February 3, 2022](https://twitter.com/PingRyan2016/status/1489028553098375168?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-”收到梵蒂冈寄的袖扣，说迈尔斯郭我们知道你救了很多人。运去金如铁，时来铁变金！宋祖英拽胸罩火了为啥？中央电视台的祸害无聊假大空。外国机构说研究春晚就能知道中国人的情商智商以及对事物的判断能力，结论一切都是安排的，中国人已没有辨别能力，我当着李长春面说，春晚就是思想大屠杀大垄断！“
-
-
-
-
-
-> ”收到梵蒂冈寄的袖扣，说迈尔斯郭我们知道你救了很多人。运去金如铁，时来铁变金！宋祖英拽胸罩火了为啥？中央电视台的祸害无聊假大空。。外国机构说研究春晚就能知道中国人的情商智商以及对事物的判断能力，结论一切都是安排的，中国人已没有辨别能力，我当着李长春面说，春晚就是思想大屠杀大垄断！“ [pic.twitter.com/e3cxQFzJZ1](https://t.co/e3cxQFzJZ1)
-> — Bo Lu II (文龍） (@BoLu213) [February 2, 2022](https://twitter.com/BoLu213/status/1488873407982850054?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-*编辑：文零
-审核发布：文顾*
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

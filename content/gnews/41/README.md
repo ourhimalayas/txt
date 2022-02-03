@@ -2,37 +2,56 @@
 ---
 
 
-## 研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948260/)
+## Hpay（喜支付）上线诠释永不放弃，打破万年金融规则，重塑人类文明
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1948451/)
 
-撰稿：台湾宝岛农场 — zhong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒2月1日报道，一项由丹麦国家血清研究所、丹麦统计局和哥本哈根大学等机构共同完成的研究显示，Omicron亚变种BA2的传播速度较原始版本相比，更快、更强。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-11.jpg)
-该研究分析了去年12月至今年1月的数据发现，在感染 Omicron 亚变种 BA2 的人中，有 39% 的机会在一周内将病毒传染给其他人，而感染原始版本的机率是 29%，也就是说，BA.2变异株的传播速度是原版 Omicron 的1.5倍。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-另外，研究人员还指出，BA2变异株不但传染力更快，隐匿性也更强，难以被及时检测出来。
+2月2日，郭文贵先生于GTV、Gettr大直播中透露了Hpay（喜支付）上线的艰辛历程，并表示，Hpay（喜支付）成功打破人类万年以来设定的金融规则，建立人与人之间的最新文明。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2f72cb1c69c17ac702a89ac8b84054bb-1.png)图片来源himalaya.exchange
 
-目前全球超过98%的Omicron感染个案，均只涉及原始版本 BA1，但在丹麦，BA2在短时间内已取代BA.1，成为当地的主流病毒株。
 
-参考链接：
-1. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://udn.com/news/story/121707/6073087)
-2. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://english.elpais.com/usa/2022-01-31/ba2-a-new-version-of-the-omicron-coronavirus-variant-that-is-even-more-contagious-but-not-more-serious-according-to-early-data.html)
+**永不放弃 ****| Hpay（喜支付）上市前遭遇了强大阻力，甚至没有项目的参与者和律师相信Hpay能上线**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+世界金融体系的中坚力量，美联储最先反对，包括日本、德国、法国、瑞士、卢森堡等国家全部持反对意见。众所周知，App Store（苹果应用商店）对任何支付系统的App（应用）的审批及其严格，有大人物和律师都认为Hpay（喜支付）安卓版能上线已经赢了，但是在App Store（苹果应用商店）上线是不可能的。
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+然而，郭先生一生赢在永不放弃。在新春大直播的中间，一位曾经是敌对关系的、亲自参与协调Hpay（喜支付）苹果版App上线的大人物跟郭先生打电话说，“Congratulations！Good news（恭喜！好消息），Hpay（喜支付）对世界金融和共产党是个Right thing（正确的东西）。可以说，Hpay（喜支付）的顺利上线若没有美国政府的认可是天方夜谭。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Hpay（喜支付）安卓版、苹果版得以在大年初一上线是来自神的眷顾，得到世界最绝密的技术支持，保障用户的个人信息不会被泄露，对中共体制内的人士来说是如鱼得水。至此，真正的**隔空取钱**从今天开始，彻底开启以钱灭共、以共灭共。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**回归本源 ****| Hpay（喜支付）冲破政府设置的牢笼枷锁，****打破人类万年以来设定的金融规则**
+
+人类历史中最早的交易方式，就是点到点的关系而没有中间商。政府的造假和故意设置的障碍，造就人类金融最黑暗的时代。
+
+Hpay（喜支付）第一个核心功能，即不是在线买卖，是无条件的在线支付，帮忙找回人类掌控私有财富的本源方式。 只需和交易对象约定支付即可，再无中介。
+
+第二、智慧地使用Hpay（喜支付）支付商品或者服务，便能省下5%-20%的成本（无任何手续费）。善于使用避税港（比如BVI）的免税机制做中转，符合现有法律规定的同时又巧妙地避税减少购置成本。Hpay（喜支付）合法安全的特性、**0交易成本**，没有支付额度限制（上不封顶），真正做到我的财富我做主。
+
+第三，无物理行为的、无中心化的加密支付系统成功避免了未来被任何组织机构或犯罪份子敲诈的可能。
+
+其中，Hpay（喜支付）最大的玄妙是垄断，有能力在万里之外控制所有的货源。通过无中心化的支付系统，在交易双方同意的前提下，可以买天、买地、中间买飞机。而且，其中货币的流通又是无影无踪，踏雪无痕。不用衡量、没有定价规则下的交易，才是人类最原始、也是最高级的交易境界。
+
+**最新文明 ****| Hpay（喜支付）就****是实现信用的工具，****喜联储解放人类生产力**
+
+货币金融的本质就是物物交换，是生产力的价值等同。
+
+所有信用和金融体系的建立都是政府掠夺财富的需要、征税和统治的需要，而在Hpay（喜支付）里所有的价值就是信和用，以此完成双方交易，Hpay（喜支付）就是实现信用的工具。
+
+HDO（喜美元）是兑换法币的媒介，未来可以换成美元或者其他国家法币。根据个人的信用和存款数，提现将可以从现在的一次十万美元、到未来的百万、千万甚至到亿。
+
+喜联储从诞生的第一天开始，就是超越国家主权、超越信仰和物理世界的，为解放人类生产力而生，将成为人与人之间最新的文明。
+
+
+
+**相关Gnews文章：**
+
+推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯
+
+
+
+> [推翻银行暴政 | Hpay（喜支付）的如期上线为Hcoin（喜币）架上天梯](https://gnews.org/zh-hans/1943895/)
+
+
 
  
 

@@ -2,35 +2,34 @@
 ---
 
 
-## 有声|郭文贵献唱新中国联邦春晚，三首灭共歌荡气回肠
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949480/)
+## 新春大直播震撼世界 甜蜜蜜运动史无前例
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949540/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在新中国联邦的新春晚会上，郭文贵先生作为开幕嘉宾，共演唱了三首灭共歌:《甜蜜蜜》《一帘幽梦》和《塞北的雪》，并讲述了选择这三首歌的目的和意义。
+撰稿：纽约香草山 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+2月1日，虎年初一，郭文贵先生在盖特视频中指出，”虎年新春大直播”在国内国外引起了轰动效应，”甜蜜蜜”运动将在虎年登上新高度。 长达13个小时的新春直播，国内战友称赞直播技术、观感有很大提升，出镜战友的素质也越来越高。 郝海东先生真切可信，再一次引领潮流。 这些都是新中国联邦的力量展现。
 
-首先，郭先生以一曲甜蜜蜜开启了甜蜜蜜运动，同时也开启了虎年春晚。郭先生身着红装，唱毕又拿出一神秘红色纸条，解释说红色带给我们力量，共产党霸占了红色，抢走了我们的自由，我们只有打开甜蜜蜜运动这把钥匙，一起合作干掉CCP。才能解放我们被奴役了几代的中国人。
+大直播也对西方社会影响巨大。 很多人拒绝参加冬奥会，制裁邪恶中共的法案将陆续出台。 承认新中国联邦政权，并开展合作，也开始成为了各国的选项。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-156.png)
+此外，甜蜜蜜运动的意义，郭先生强调是史无前例的，融合了高科技、精神、信仰、媒体传播的政治文化运动。 无数高智商情商的战友正在为此精心准备。 它将唤醒愚钝的心灵，开始思考生存的意义。 且新中国联邦新春大直播已经对中共造成巨大的威胁，多国政府也受到新春大直播的直接影响。
 
-原文链接：[郭文贵献唱新中国联邦春晚，三首灭共歌荡气回肠](https://gnews.org/zh-hans/1948259/)
+链接：[郭文贵先生2022年2月1日盖特](https://gettr.com/post/prt6yo3915)
 
-音频处理/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+总编：Irene木木
+
+编辑：宁文静
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
 
 
  

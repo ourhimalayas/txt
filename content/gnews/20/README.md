@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|加拿大总理杜鲁多确诊感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949460/)
+## “伟哥”被纳入日本公共医疗保险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949530/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-加拿大总理杜鲁多1月31日在Twitter发文，证实自己的中共病毒检测呈阳性，目前感觉良好，暂时没有出现任何病征。他表示会根据当局发布的公众健康指引，居家隔离，并继续远程办公。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-153.png)图片来自本文网站
+2月2日《读卖新闻》在线消息，日本厚生劳动省2号决定，从今年4月开始，治疗勃起功能的“伟哥”将被纳入公共医疗保险，该决定在同一天得到了厚生大臣的咨询机构（中央社会保险医疗委员会）的批准。
 
-杜鲁多上周因为其中一名孩子确诊，开始居家隔离，当时病毒快筛结果呈阴性，不料之后转阳。
+作为新年度开始的新的生育治疗保险的一部分，它仅限于只有被诊断为因“勃起功能障碍导致的男性不育症”得情况下适用。今后，厚生劳动省计划对未来可以开处方的医疗机构制定相应要求。
 
-在周一举行的重启国会仪式上，杜鲁多透过视像出席，尽管是在接种过疫苗加强剂的情况下确诊，杜鲁多还是呼吁民众尽快接种中共病毒疫苗以及加强剂。另外，他对货车司机发起的，已持续多日的反疫苗示威活动，表示谴责。
+“伟哥”最早是由美国研发的，1999年被批准在日本销售，当时，因为原厚生省判断它不适合保险，所以到目前为止，“伟哥”一直被用于自费医疗。
 
-原文链接：[加拿大总理杜鲁多确诊感染中共病毒](https://gnews.org/zh-hans/1948256/)
+2月2号，除了“伟哥”之外，厚生劳动省还把另一种勃起功能障碍治疗药物“希爱力”和促发排卵剂等12项含有5种成分的与治疗生育有关的药物也列入了保险范围。
 
-音频处理/发稿：Daxia
+信息源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+[「バイアグラ」４月から保険対象に、「男性不妊」の場合のみ…厚労省了承](https://news.yahoo.co.jp/articles/9fad2e134e447a31f9c779f2d9789da52121f60e)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
