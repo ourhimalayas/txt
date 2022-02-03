@@ -2,34 +2,17 @@
 ---
 
 
-## 樱花灭共诗——与陈一之夜话
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950843/)
+## H-Pay的上线标志着在共产党身上插上了一根血管
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1950944/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-37.jpg)
-说罢真当哭，
+《2022年01月31日文贵大直播》节选
 
-逢君于乱前。
+* * *
 
-覆倾来似涌，
+素材，剪辑，字幕：小蜜蜂 | 发布：文零
 
-繁盛去如烟。
-
-不再悲光景，
-
-无穷怨自然。
-
-转身经十载，
-
-多难更生怜。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
-
-
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

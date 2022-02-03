@@ -2,33 +2,33 @@
 ---
 
 
-## 有声|研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950289/)
+## 寻求效仿加拿大抗议强制接种中共病毒疫苗的Facebook小组被删除
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1950488/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒2月1日报道，一项由丹麦国家血清研究所、丹麦统计局和哥本哈根大学等机构共同完成的研究显示，Omicron亚变种BA2的传播速度较原始版本相比，更快、更强。
+#### 撰稿：彩虹
 
-该研究分析了去年12月至今年1月的数据发现，在感染 Omicron 亚变种 BA2 的人中，有 39% 的机会在一周内将病毒传染给其他人，而感染原始版本的机率是 29%，也就是说，BA.2变异株的传播速度是原版 Omicron 的1.5倍。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2.jpg)图片来源：福克斯新闻
+2月2日，《国家极限》发布文章，引述福克斯新闻的报道，周三，由于寻求效仿加拿大在全国范围内抗议中共病毒疫苗规定，一个美国卡车司机小组被脸书（Facebook）删除。
 
-另外，研究人员还指出，BA2变异株不但传染力更快，隐匿性也更强，难以被及时检测出来。
+这个名为“2022前往华盛顿”的小组计划协调和组织一个从加利福尼亚到华盛顿的卡车司机车队的抗议活动，这与加拿大卡车司机从该国最西部到其国家首都渥太华的路线一致。
 
-目前全球超过98%的Omicron感染个案，均只涉及原始版本 BA1，但在丹麦，BA2在短时间内已取代BA.1，成为当地的主流病毒株。
+该组织领导人杰里米·约翰逊（Jeremy Johnson）在参加“福克斯朋友”节目时说，他的个人账户也被(脸书)删除了，促使他联系一位民权律师（进行维权）。
 
-文字版原文：[研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://gnews.org/zh-hans/1948260/)
+他告诉福克斯新闻说：“他们喜欢让说真话的人闭嘴。”
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+脸书对此回应了福克斯新闻，称该账户“多次违反了我们围绕Qanon组织的政策”，因为Qanon是一种阴谋论，从而导致脸书在2020年大选后对其进行了打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+但是，该组织的联合组织者布莱恩·布拉斯（Brian Brase）对脸书的定性进行了反击。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+报道说，尽管被删除，该组织计划继续抗议封锁、强制要求戴口罩和接种中共病毒（COVID-19）疫苗。约翰逊和布莱斯说，“所有性别、所有种族、所有性取向、和所有职业 ”的美国人都会出来支持他们。
+
+根据最新的信息，布拉斯于2月2日已经在盖特（GETTR）上注册了账号并开始发文。
+
+**新闻来源**
+
+[Facebook Removes US Trucker Group Calling For Vaccine Protest](https://www.newsmax.com/newsfront/censorship-facebook-big-tech-trucker-convoy/2022/02/02/id/1055223/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,14 @@
 ---
 
 
-## 新加坡狮城农场给全球战友拜年啦
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1951037/)
+## 虎年新春献才艺——《甜蜜蜜新编》
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1951107/)
 
 **视频制作：逍遥小哥**
 
+**歌曲改编及演唱：流浪的阳光**
 
 
-舞狮队送上的新春对联：
-
-**祝新中国联邦 虎年威名远扬**
 
  
 

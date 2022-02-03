@@ -2,46 +2,34 @@
 ---
 
 
-## 樱花深度报道│中共审查越来越严 好莱坞会遵守吗？（下）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950976/)
+## 美台共同商议双边贸易协定
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951087/)
 
-编译：东京樱花团/Hopkins
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月30日，据台湾媒体消息显示，台湾副总统赖清德在与多名美国政要召开的视频会议中提出了签署双边贸易协定的议程，而美台商业协会主席、纳斯达克董事长麦克-斯普林特则回应表示大力支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.14.15.png)
+报道提及，赖清德此次与美国政要一共进行了多场视频会晤，与会人员包括斯坦福大学医学院副院长梅尔多娜多和联邦参议员达克沃斯等。
 
-【编者按】据《好莱坞报道》报道，好莱坞高管们为了进入中国市场，拼命制作迎合中国市场的电影，但许多电影也还是未能穿透中国电影审查的长城。我们被告知，这些电影“是围绕中国人才打造的，目的是在市场上大放异彩。但无济于事。”这些都没有进入中国电影院。需要注意的是，中共并没有完全关闭好莱坞的大门。它施加了更严格的限制。进入门槛已经大大提高，只有对中国最友好的电影才能获得绿灯。现在，这些高管们发现自己面临一个重要问题：我们应该加倍对中国的承诺，还是应该制作具有一定诚信和艺术价值的电影？这个问题很重要。接下来的几个月将为我们提供答案。
+据悉，这四场会谈除了涉及美台双方的经济发展、供应链合作以及各领域的深化交流外，还讨论了双方关于国防与安全事项的议题。当中，美台双方针对区域安全形势交换了意见。同时，双方也就维持台海安全与稳定，提高台湾的国防能力，以及台湾如何应对来自中共的武装侵略达成了共识。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中共审查越来越严-好莱坞会遵守吗？（下）.png)好莱坞格劳曼的中国剧院（Hollywood Grauman’s Chinese Theatre）将其命名为 TCL 中国剧院，因为该设施的冠名权于 2013 年被一家中国公司 TCL 电子收购。（Frederic J. Brown/AFP/Getty Images）
+此外，美方也承诺道，将继续协助台湾减少其对中共国的经济依赖。为此，美方希望能与台湾开展更深度的经济和贸易合作，这其中包括在半导体、科技方面的合作，以及在农业方面的交流。因此，斯普林特表示，希望能尽快促成美台双方贸易协定的洽谈及签署。
 
-正如汤普森所指出的，市场变化“创造了一个自我延续的循环：美国电影观众忽略了没有 CGI（低成本的电脑生成动画） 的广受好评的原创电影，因为他们中的许多人为他们已经知道的故事保留了他们为数不多的年度电影票。电影制片厂对这种观众行为做出反应并推动它，通过更多地投资于充满动作的特许经营权，验证和加深观众对爆炸性续集的渴望。”
+参考链接：[賴清德過境美國舊金山 向美方倡議洽簽台美BTA](https://money.udn.com/money/story/7307/6071446?from=edn_maintab_index)
 
-有多少续集？好吧，中国想要多少就多少，或者至少直到最近一直如此。然而，去年，当《速度与激情 9》（“Fast and Furious 9”）（是的，第九部）登陆中国市场时，它收到的反应充其量只是冷淡。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-据《南华早报》报道，这部电影“本月早些时候在中国的票房收入达到 12 亿元人民币（1.87 亿美元），[并且] 为陷入困境的好莱坞产业提供了可喜的推动力。然而，这个看似炙手可热的数字与该系列之前的电影在中国的票房收入相去甚远。 2017年第八期票房27亿元，2015年第七期票房24亿元。”
+总编：Irene木木
+编辑：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-刺激市场的柴油似乎已经用完了……好吧，柴油。中国为何对好莱坞反感？中国对国产电影的需求正在增长。两个原因：正如《南华早报》的一篇文章所指出的，“内部人士指责美国电影特许经营的重复性，以及中国电影不断上升的制作价值。”
-
-但是，需要注意的是，中共并没有完全关闭好莱坞的大门。一点也不。它施加了更严格的限制。进入门槛已经大大提高，只有对中国最友好的电影才能获得绿灯。
-
-正如记者迪潘詹·罗伊·乔杜里（ Dipanjan Roy Chaudhury）最近指出的那样，“中共的一个重要考虑因素是好莱坞电影的内容以及制片厂、导演和演员对中国的行为”，北京的官员回避“任何人被认为表现出反华态度，他们的电影也是如此。”
-
-乔杜里以《永恒族》（“Eternals”）电影导演[趙婷](https://www.google.com.hk/search?q=%E8%B5%B5%E5%A9%B7&amp;stick=H4sIAAAAAAAAAONgVuLSz9U3SM41ybWsfMRoyi3w8sc9YSmdSWtOXmNU4-IKzsgvd80rySypFJLgYoOy-KR4uJC08SxiZXuxdevTldsBvpDTbk8AAAA&amp;sa=X&amp;ved=2ahUKEwiPn5i6ouP1AhWGUGwGHQBtAE0QzIcDKAB6BAgXEAE)（Chloé Zhao）为例。她“在她的过去的反华言论广为流传后，成为中共的眼中钉，其中包括她声称‘中国到处都是谎言’的言论。”
-
-为了进入中国电影市场这个世界上最赚钱的市场，好莱坞的高管们将不得不进行更多的自我审查。
-
-现在，这些高管们发现自己面临一个重要问题：我们应该加倍对中国的承诺，还是应该制作具有一定诚信和艺术价值的电影？这个问题很重要。接下来的几个月将为我们提供答案。
-
-（全文完）
-
-作者：约翰·麦克格里恩（John Mac Ghlionn）
-
-约翰·麦克格里恩是一名研究员和散文家。他的作品已由《纽约邮报》、《悉尼先驱晨报》、《新闻周刊》、《国家评论》和《美国旁观者》等多家媒体发表。他涵盖心理学和社会关系，并对社会功能障碍和媒体操纵有着浓厚的兴趣。
-
-信息来源：
-
-[China Demands Even More Self-Censorship—Will Hollywood Comply?](https://www.theepochtimes.com/china-demands-even-more-self-censorship-will-hollywood-comply_4188711.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
