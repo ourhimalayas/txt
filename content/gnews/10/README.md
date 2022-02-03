@@ -2,19 +2,31 @@
 ---
 
 
-## 有物质的地方就有Hpay(一)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950677/)
+## 中日财经爆┃日本2022-2024年将新建多家晶圆厂
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950697/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团丨喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2.png)
+[*图片来源*](https://www.eletimes.com/there-are-no-large-semiconductor-manufacturing-facilities-in-india-yet-but-we-are-hoping-that-this-will-change)
 
-*发布：陶子*
+随着日本政府半导体振兴战略的实施，以及对本地IC制造业支持力度的加大，包括台积电和索尼的合资企业在内的几家新晶圆厂将在日本建设。据业内人士透露，这些晶圆厂预计将在2022年至2024年之间上线。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+《电子时报》援引消息人士称，用于国内尖端芯片制造投资的部分政府补贴将用于台积电和索尼之间的合资工厂，该工厂计划于2024年底投产。据日本商业杂志《钻石周刊》报道，台积电预计将在合资企业履行索尼的CMOS图像传感器和汽车MCU订单，以及丰田的自动驾驶芯片订单。
+
+索尼还扩大了在日本长崎县ishaya的生产基地，该基地主要生产用于智能手机的CMOS图像传感器（CIS）。据索尼称，一个名为Fab5的新工厂已经建成，并于2021年4月开始运营。据报道，索尼将继续扩大Fab5的生产设施，以生产高分辨率和高性能的CIS，额外的fab产能将在今年年中左右上线。
+
+业内消息人士称，铠侠和美光科技计划实施的新的存储器工厂项目，预计也将获得日本政府的补贴。铠侠正在岩手县北上市建设另一家3D NAND闪存工厂，而美光正寻求在其DRAM生产基地所在的广岛县加大投资。铠侠和美光预计将分别于2023年和2024年启动新晶圆厂的运营。
+
+此外，东芝和三菱电机正分别在石川和广岛的工厂建设新的功率半导体晶圆厂，预计在2023-2024年开始生产。东芝于2021年3月透露，计划扩建石川工厂，增设一个12英寸的工厂，用于生产动力设备，并计划在2023财年上半年开始大规模生产。
+
+据SEMI称，从2021年开始，共有27家工厂和生产线开始安装设备，其中大部分在中国和日本。预计到2022年，日本的Fab设备支出将增长29%，届时全球的Fab设备支出将攀升至980亿美元以上的历史新高。
+
+信息来源：[**日本将于2022-2024年上线大量新晶圆厂**](https://www.sohu.com/a/520369410_166680)
+
+校对：东京樱花团 / 東洋武士
+*发布：东京樱花团 / yux*i*ngcao01*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
