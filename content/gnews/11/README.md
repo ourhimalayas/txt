@@ -2,12 +2,16 @@
 ---
 
 
-## 北京奥运会将成为中共国情报收集的金矿
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952754/)
+## 西站出品（之）– 七哥讲堂 （四）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1952810/)
 
-02/01/2022 众议院情报委员会成员布拉德·温斯特鲁普对联邦调查局警告奥运会期间的网络威胁作出反应： 北京奥运会可能成为中国的 “情报收集金矿”。
+制作：蚂蚁兄弟
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+**Hcoin 和 Bitcoin的区别**
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 
