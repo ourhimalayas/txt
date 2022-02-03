@@ -15,86 +15,86 @@
 
 ---
 
-### [2/2/2022 文贵直播：喜支付是无条件、零交易成本，并无支付额度限制的无中心安全化交易支付系统](/content/gnews/1/README.md)
+### [九招把共产党打得屁滚尿流](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [希望有雷神这样的勇士拥有正义和勇敢将妖魔鬼怪(中共)雷击在荒野之中变成垃圾](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [习已经没有回头路了](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [2/2/2022 文贵直播：喜支付是无条件、零交易成本，并无支付额度限制的无中心安全化交易支付系统](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|郭文贵解密中共春晚背后的肮脏交易](/content/gnews/2/README.md)
+### [七哥分享躺平币（四）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|郭文贵解密中共春晚背后的肮脏交易](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [甜蜜蜜运动 就是用音乐唤醒老百姓](/content/gnews/3/README.md)
+### [甜蜜蜜运动 就是用音乐唤醒老百姓](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [给运动员发的信息](/content/gnews/4/README.md)
+### [给运动员发的信息](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [有声|先生警示战友远离未经授权的游行活动](/content/gnews/5/README.md)
+### [有声|先生警示战友远离未经授权的游行活动](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|中共的以假治国导致军队毫无实战能力](/content/gnews/6/README.md)
+### [有声|中共的以假治国导致军队毫无实战能力](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [1.31大直播后记：Be yourself -做自己](/content/gnews/7/README.md)
+### [1.31大直播后记：Be yourself -做自己](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦春晚 国内超过2.5亿次观看](/content/gnews/8/README.md)
+### [新中国联邦春晚 国内超过2.5亿次观看](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [1.31春晚大直播后记：成功出逃的女科学家](/content/gnews/9/README.md)
+### [1.31春晚大直播后记：成功出逃的女科学家](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国人寿王滨（一）](/content/gnews/10/README.md)
+### [中国人寿王滨（一）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [文贵爆料2.2：北京冬奥会将成为共匪的冬眠会](/content/gnews/11/README.md)
+### [文贵爆料2.2：北京冬奥会将成为共匪的冬眠会](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥分享躺平币（三）个人数据](/content/gnews/12/README.md)
+### [七哥分享躺平币（三）个人数据](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [重塑老有所养的生态系统（二）](/content/gnews/13/README.md)
+### [重塑老有所养的生态系统（二）](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [记住人类是有主人的](/content/gnews/14/README.md)
+### [记住人类是有主人的](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线：初试中共特殊管制，多少奥运选手正面临各种问题？](/content/gnews/15/README.md)
+### [秘翻在线：初试中共特殊管制，多少奥运选手正面临各种问题？](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥对李长春说春晚就是毒害](/content/gnews/16/README.md)
+### [七哥对李长春说春晚就是毒害](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [老百姓在中共眼里，让你干啥就得干啥](/content/gnews/17/README.md)
+### [老百姓在中共眼里，让你干啥就得干啥](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [游行需要注意的事情](/content/gnews/18/README.md)
+### [七哥分享躺平币（七）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [七哥分享躺平币（七）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [中日财经爆|印度政府承认数字货币合法性](/content/gnews/20/README.md)
+### [中日财经爆|印度政府承认数字货币合法性](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [外国机构对春晚的研究 都是被共产党控制](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [文貴先生不捨中共70年來對14億人民的思想荼毒](/content/gnews/22/README.md)
+### [文貴先生不捨中共70年來對14億人民的思想荼毒](/content/gnews/24/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声|灭共者之郭氏情报站（十九）2022/01/31 文贵虎年大直播](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [日本国会通过一项关于“中国严重人权状况”的决议](/content/gnews/24/README.md)
+### [日本国会通过一项关于“中国严重人权状况”的决议](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [应对乌克兰局势 拜登总统调派2000名美军赴东欧](/content/gnews/25/README.md)
+### [应对乌克兰局势 拜登总统调派2000名美军赴东欧](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国总理确定不出席北京冬奥会](/content/gnews/26/README.md)
+### [德国总理确定不出席北京冬奥会](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [重塑老有所养的生态系统（一）](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
 
 ### [2022年2月2日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`

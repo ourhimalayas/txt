@@ -2,35 +2,36 @@
 ---
 
 
-## 1.31春晚大直播后记：成功出逃的女科学家
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1949314/)
+## 有声|先生警示战友远离未经授权的游行活动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949351/)
 
-**整理：雅典娜速记组
-编辑：Candy**
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在1月30日的直播中，郭文贵先生向所有爆料革命的战友们发出预警称，任何个人或组织未经授权，不得擅自使用新中国联邦或农场的标志参与任何政治游行或抗议活动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.22.00-2.png)
+郭先生指出，世界各国中反对强制疫苗令的抗议活动已经在全球范围内掀起了反对极权统治的潮流，他们是保卫民主自由的英雄。但是，那些初衷是为了自由和正义的抗议活动大多都难免落入被政治构陷的结局，有些甚至被抹黑成暴力事件。
+
+原文链接：[先生警示战友远离未经授权的游行活动](https://gnews.org/zh-hans/1947177/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-郭先生谈到：就像今天我们海东兄弟、颖妹妹，我们女科学家比海东兄弟还大十几岁，说：七哥，你一定要带话给海东兄弟，我们全家都喜欢海东，喜欢钊颖。就因为海东和钊颖参加了爆料革命，我们对爆料革命有了新的认识。他念《宣言》的时候，我们全家说：我们该做出决策，行动，得走人，只要我们能出去！
-
-你知道她跟家人商量的时候，家人说什么吗？咱出去的可能性几乎没有。没护照咋出国啊？出了国到哪？谁容咱啊？她根本不相信美国，不相信川普总统，而且黑暗势力如此之勾结。你看看，这个科学家当时最害怕的是美国政府的福奇。她害怕对了，他了解最核心的秘密，决定不来。但是最后决定相信七哥，跟我们说那句话。
-
-我说你们出来活着的可能几乎没有，但是你要不试，你是几乎任何可能也没有！我说你应该试，就像我一样，我要是不出来，我就再也没有机会，你不试你怎么知道呢？人生无限可能！我相信你们所有人在出境之前都有过这样的犹豫，但是我们今天就出来了。
-
-我们的科学家说 ：“ 你告诉飞飞和她的家人，我会让他们活到世界上最长寿的年龄。你告诉英喜的大卫，我会让他半点遗留下来的症状都没有。”我们的科学家60多快70岁了，科学家说：“我觉得对我过去最大的宽恕和赎罪就是参与爆料革命。”所以，珍惜吧，兄弟姐妹们。
-
-只有一心一意地灭共，一切才属于我们，这个中间有任何其它的都得排第二位和后几位。我在这个爆料革命、新中国联邦5年来，就像你们今天听到我唱歌一样。我们看到一个邓丽君女士，一人挑战中共，从头到尾没有放弃过，没有妥协过，没有被收买。
-
-这就是我说的，永远不要因为看到了懦夫，你就不再相信有勇士了；不要因为别人说了假话，你就不再相信真话了，甚至你也不讲真话了；你不能因为有些人泯灭良心，你也泯灭了良心！
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
