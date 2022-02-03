@@ -2,33 +2,20 @@
 ---
 
 
-## 有声|FBI指中共对西方的威胁较以往更明目张胆
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950222/)
+## 货币金融的本质是物物交换
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950234/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国联邦调查局局长克里斯托弗·雷 1 月 31 日在发表演说时表示，中共当局对西方的威胁比以往更加明目张胆，也更具有破坏性。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-在联邦调查局的调查中，有超过 2000 宗涉及中共指使盗窃的案件，包括试图窃取美国的科技资讯，雇用黑客窃取美国国民的个人信息以及商业机密等，其严重程度比其他国家的总和还要厉害得多。
+*发布：陶子*
 
-这是自克里斯托弗雷 2017 年接任联邦调查局局长以来，又一次对中共当局表示担忧和关注，根据他的形容：“没有一个国家像中共政府一样，对美国的理念、创意和经济安全，构成了如此广泛的威胁。”
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-与此同时，中共则一如既往地予以否认，更批评美国的指控毫无事实根据，是蓄意抹黑中国。
-
-文字版原文：[FBI指中共对西方的威胁较以往更明目张胆](https://gnews.org/zh-hans/1945243/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

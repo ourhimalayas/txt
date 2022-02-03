@@ -2,28 +2,35 @@
 ---
 
 
-## 美国前安全官员敦促国会尽早通过对华法案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949737/)
+## 土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949759/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-164.png)图片来源于本文链接
-华盛顿，2月1日，路透社消息，十几位前美国国家安全官员致函国会，敦促早日通过扶持美国高科技领域对抗中共国的法案。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+土耳其当地媒体报道，土耳其卫生部1日晚间公布疫情通报显示，过去24小时有10万余起中共病毒确诊病例，198例死亡病例。 土耳其中共病毒单日病例数2月1日首度超过10万，与疫苗接种率同创新高。 土耳其目前18岁以上人口的两剂、单剂接种率分别为84.46%、92.54%，有近2513万人已施打第3剂。
 
-民主党和共和党政府的十六位前官员签署了联名信，其中包括奥巴马时期担任国防部长的莱昂-帕内塔和小布什时期负责国家安全事务的总统助理斯蒂芬-哈德利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-2.jpg)
 
-信中强调该法案将确保美国继续处于微电子领域的前沿。呼吁两党早日达成一项全面竞争力法案，确保联邦投资与国家安全利益相一致，并使美国能够保持其实力和相对于竞争对手的优势。
+土耳其近日因为奥米克戎变异株迅速传播而造成中共病毒病例数大幅攀升，这几天几乎每天刷新纪录，但是住院率较以往明显偏低。 卫生部2019冠状病毒科学咨询委员会委员欧达巴许告诉记者，从目前情况看，奧米克戎致死率不到Delta变异株的1/5，但奧米克戎变异株仍具危险性，几乎每天都有上百人因感染奥米克戎死亡。
 
-去年，参议院通过了《美国创新和竞争法》（USICA）。 它包括520亿美元用于促进半导体生产，以及约1900亿美元用于加强美国的技术和研究以应对中共国。
+参考链接：
 
-众议院法案不包括用于技术和研究的约1900亿美元，但包括450亿美元用于加强供应链，生产基本商品和工业设备，以及支持制造技术。
+- [土耳其病例攀升 單日確診數首破10萬例大關](https://topic.rti.org.tw/COVID-19/archives/65760)
 
-众议院本周开始就该法案进行辩论。
 
-信息源：[米の元安保担当高官十数人、議会に対中法案の早期可決求める](https://jp.reuters.com/article/usa-china-congress-letter-idJPKBN2K70A1)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+总编：文特
+编辑：文徬
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

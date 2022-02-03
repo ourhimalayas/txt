@@ -2,35 +2,23 @@
 ---
 
 
-## 土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949759/)
+## 德国总理表示将不会出席2022年北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1949952/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-土耳其当地媒体报道，土耳其卫生部1日晚间公布疫情通报显示，过去24小时有10万余起中共病毒确诊病例，198例死亡病例。 土耳其中共病毒单日病例数2月1日首度超过10万，与疫苗接种率同创新高。 土耳其目前18岁以上人口的两剂、单剂接种率分别为84.46%、92.54%，有近2513万人已施打第3剂。
+#### 撰稿：彩虹 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-2.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1.jpg)图片来源：日经亚洲
+2月2日，《国会山报》报道，周三，德国总理奥拉夫·肖尔茨（Olaf Scholz）表示，他将不会出席2022年北京冬奥会。
 
-土耳其近日因为奥米克戎变异株迅速传播而造成中共病毒病例数大幅攀升，这几天几乎每天刷新纪录，但是住院率较以往明显偏低。 卫生部2019冠状病毒科学咨询委员会委员欧达巴许告诉记者，从目前情况看，奧米克戎致死率不到Delta变异株的1/5，但奧米克戎变异株仍具危险性，几乎每天都有上百人因感染奥米克戎死亡。
+根据路透社的报道，就在奥运会开幕前两天，肖尔茨告诉德国广播公司ZDF（德国电视二台）说：“我没有旅行计划，所以不能假设我将会突然出现（在那里）”。
 
-参考链接：
+根据文章报道，目前表示参与外交抵制的国家包括美国、台湾、立陶宛、英国和澳大利亚。德国没有表示它将参与对2022年北京冬奥会的外交抵制，然而，路透社报道说，其他几位德国官员已经表明他们也不会出席北京冬奥会，包括其体育部长和外交部长。
 
-- [土耳其病例攀升 單日確診數首破10萬例大關](https://topic.rti.org.tw/COVID-19/archives/65760)
+**新闻来源**
 
+[Germany’s chancellor says he will not be at Beijing Olympics](https://thehill.com/policy/international/592573-germanys-chancellor-says-he-will-not-be-at-beijing-olympics)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：文特
-编辑：文徬
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

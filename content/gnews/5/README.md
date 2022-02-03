@@ -2,31 +2,45 @@
 ---
 
 
-## 有声|全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950290/)
+## 塔克·卡尔森：“骗子”彼得·霍特兹博士与中共军方分享福奇经费
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950371/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒 2月1日 引述消息人士指，供5岁以下儿童接种的中共病毒疫苗预计最快可在2月底开放使用。
+**翻译: Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip塔克·卡尔森：骗子彼得·霍特兹博士与中共军方分享福奇经费.png)Peter Hotez and Shibo Jiang
+你可能已经注意到，很多人已经不信任医生，这不是一个好兆头。您认识的人中可能有一半正在探索替代医学疗法。为什么会这样？ 有很多原因，但彼得·霍特兹（Peter Hotes）博士的所作所为绝对是其中原因之一。
 
-报道指出，共同参与研发的美国药厂辉瑞以及德国生物公司BioNTech预期今日内就会向美国食品及药物管理局递交申请，批准该款疫苗的紧急授权，这款以2针为完全接种剂量的疫苗，在未来数周内将经过多个部门的审批，若最终获得批准，它将是全球首款供6个月至5岁婴幼儿接种的中共病毒疫苗。
+霍特兹是一名儿科医生，他一生都在研究热带寄生虫。对于有线电视新闻订户来说，他似乎不是明显的首选嘉宾，他们正在寻找一个可以了解有关 COVID 的人，但霍特兹是一个疯狂的宣传瘾君子，他会在任何时间、任何地点进行任何公开的露面从不停止。
 
-不过，针对儿童疫苗，早前医学界曾有不少专家联署声明，谨慎为儿童接种中共病毒疫苗，因为疫苗中的刺突蛋白会对儿童的大脑、神经、心脏、生殖及免疫系统造成不可逆转的永久性伤害。
+对我们所有人来说不幸的是，当霍特兹讲话时，他抹黑了美国医学。他是一个错误信息机器，不断地吐出疯狂。静心把霍特兹对 COVID 的看法并与亚历克斯·琼斯（Alex Jones ）的看法进行比较，然后问问自己谁更清醒，他们的观点根本不同，而霍特兹所说的，很少与现实有任何关系。
 
-文字版原文：[全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://gnews.org/zh-hans/1948261/)
+我们在 12 月下旬首次报道了霍特兹博士，我们注意到霍特兹博士获得了福奇博士每年 100 万美元的资助，但霍特兹博士并不是唯一享用的人。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+该项目的另外两名首席研究员之一是江世博，他列出了与资助项目R01AI098775相关的两个隶属关系：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+美国纽约病毒免疫学实验室，林兹利·F·金博尔（Lindsley F. Kimball） 研究所，纽约血液中心；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+中国上海教育部和卫生部医学分子病毒学重点实验室，上海医学院和复旦大学医学微生物研究所。
+
+江世博与中共解放军的关系已在《网关专家》（Gateway Pundit）的文章中详尽地详述[here](https://www.thegatewaypundit.com/2021/03/chinas-massive-infiltration-u-s-virus-research-laboratories/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily), [here](https://www.thegatewaypundit.com/2021/04/yes-covid-19-biological-attack-chinese-communist-party-lawrence-sellin-ph-d/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily) and [here](https://www.thegatewaypundit.com/2021/05/report-chinas-military-weapon-covid-19-constructed-completely-command-control-chinese-military/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily)。
+
+我们还注意到：
+
+以江世博为渠道，福奇的 R01AI098775 拨款汇集了美国纳税人的资金，以支持与中国人民解放军有联系的多名中共科学家的研究。
+
+有两篇由 R01AI098775 资助的出版物值得注意，它们都涉及冠状病毒，而且奇怪的是，项目负责人霍特兹竟然没有参与两项目。
+
+也就是说，这两项研究完全是由中共国科学家设计和进行的。
+
+**新闻来源**：[thegatewaypundit.com][Tucker Discussed ‘Charlatan’ Dr. Peter Hotez Last Night – TGP Identified Him in December for Receiving Millions in Grant Money from Dr. Fauci to Share with a China PLA Professor](https://www.thegatewaypundit.com/2022/02/tucker-discussed-charlatan-dr-peter-hotez-last-night-identified-december-receiving-millions-grant-money-dr-fauci-share-china-pla-professor/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

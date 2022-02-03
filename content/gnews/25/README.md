@@ -2,43 +2,47 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2022.02.02
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1950133/)
+## 日本公司称伊维菌素对新冠病毒显示出“抗病毒效果”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950193/)
 
-摘要撰稿人：文俊
+编译: Mandel
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/60f7dd5c2af31ffaf8039882aafbc838.jpg)
-### 视频链接：
+日本贸易和制药公司興和株式会社 (Kowa Co Ltd) 周一表示，抗寄生虫药物伊维菌素在联合非临床研究中对奥米炕和其他新冠病毒变种显示了“抗病毒效果”
 
-[https://gtv.org/video/id=61fa824c96ba5d73e0c15749](https://gtv.org/video/id=61fa824c96ba5d73e0c15749)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-181-edited.png)
+图片来源: REUTERS/Dado Ruvic，拍摄于2020年1月29日的图片，可以看到带有新冠病毒名称标签的试管。
 
-### 音频链接：
+东京，1月31日 (路透社)  – 日本贸易和制药公司興和株式会社 (Kowa Co Ltd) [(7807.T)](https://www.reuters.com/companies/7807.T) 周一表示，抗寄生虫药物伊维菌素在联合非临床研究中对奥米炕和其他新冠病毒变种显示了“抗病毒效果”。
 
-### 摘要:
+该公司一直与东京的北里大学合作，[测试该药物作为新冠病毒的潜在治疗方法](https://rctportal.niph.go.jp/en/detail?trial_id=jRCT2031200120)，但没有提供进一步的细节。路透社最初的报道错误地指出，伊维菌素在第三期临床试验中对奥米炕变种“有效”，而第三期临床试验是在人类身上进行的。
 
-- 中共春晚是：种族大屠杀、文化大屠杀、思想大屠杀、思想大垄断、没有性，钱，权交易，永远上不了春晚
-- 李长春喜欢古董，古董都是现挖的
-- 新中国联邦春节大直播在国内观看超过2.5亿次 ，50%是重复观看
-- 梵蒂冈教皇给七哥送袖扣，意味着把七哥当成大主教级，和他平级对待
-- 七哥告诉全世界聪明的人们、智慧的人们永远要记住：珍惜生命，远离中共！
-- 冬奥会安保都是军人，准备了最高端的电子枪，无色无味的催眠武器，500米范围内闻到就倒下
-- 甜蜜蜜运动：第一回合美国外交撤离，第二回合三首歌，第三回合就是冬奥会，绝对把冬奥会开成冬眠会
-- 外交撤离在美国历史上只用过两次，打伊拉克和南斯拉夫
-- Hpay：无障碍支付，无交易费（税）、无中心化支付系统、没有额度限制
-- 喜联储提现额度会根据信用从10万到百万千万甚至亿
-- GETTR有：gettr vision、盖特PAY、盖特币
-- Gclub未来会一卡难求，和Hpay联系超出你的想象
-- H coin 优势：（1）有稳定币(2)有支付系统（3）有广大使用人群（先有人后有币）
-- Hpay上线做三件事：1宣传使用Hpay，2动用一切关系合法推广喜币Hapy，3认真研究独创的Hpay使用方法和渠道
-- 很快中国的墓地不用付钱
+临床试验正在进行中，但推广伊维菌素作为新冠病毒的治疗方法已经引起了[争议](https://www.reuters.com/lifestyle/joni-mitchell-removes-music-spotify-over-vaccine-misinformation-2022-01-29/)。
 
+知名的疫苗怀疑论者乔·罗根 (Joe Rogan) 在Spotify上的播客节目引起了歌手乔尼·米切尔 (Joni Mitchell) 和尼尔·杨 (Neil Young) 的抗议，乔·罗根对新冠病毒大流行、政府强制规定和新冠疫苗的看法长期以来一直引起争议。
 
+罗根曾质疑疫苗的必要性，并说他使用了伊维菌素。
 
+这种药物在日本没有被批准用于治疗新冠病毒，美国[食品和药物管理局](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)、世界卫生组织、欧盟药物监管机构和制造这种药物的默克公司[(MRK.N)](https://www.reuters.com/companies/MRK.N)都警告不要使用这种药物，因为缺乏科学证据证明它有治疗效果。[点击这里，阅读关于默克公司不支持使用伊维菌素治疗新冠病毒的全文。](https://www.reuters.com/business/healthcare-pharmaceuticals/merck-warns-against-using-anti-parasite-drug-treat-covid-19-2021-02-04/)
 
+在其网站上2021年9月的指导意见中，美国食品和药物管理局注意到人们对该药物预防或治疗新冠病毒的兴趣越来越大，但表示它已收到多份报告，称有的患者在用该药物自我治疗后，需要医疗照顾，包括住院治疗。
 
+英国牛津大学目前正在进行的一项试验正在研究使用伊维菌素治疗新冠病毒。研究人员周一表示，该试验仍在进行中，在有结果报告之前，他们不想进一步评论。
 
-编辑发布：闪电训练
+许多在试管中显示出潜在的有前景的新冠病毒治疗方法，包括美国前总统唐纳德·川普推广的抗疟药物羟氯喹，一旦在临床试验中研究，最终未能显示出对新冠病毒患者的益处。
+
+2022年1月31日由Sam Nussey和Rocky Swift报道， Jennifer Rigby在伦敦补充报道， Josephine Mason、Jan Harvey和David Goodman编辑。
+
+简评: 随着时间，我相信伊维菌素和羟氯喹治疗中共病毒的真相将会逐渐揭开。主流媒体，大药企(如默克公司)和政府部门(如FDA)则在以国家之力掩盖伊维菌素和羟氯喹的治疗效果，甚至恐吓人民群众，吃了伊维菌素可能还会住院。伊维菌素于1987年被批准用于人体，而羟氯喹更是在1955年被批准用于治疗疟疾等疾病。我更愿意相信有足够临床数据的近40年，近70年的老药的安全性，也不相信一个只有一年左右研发的疫苗的安全性。只要合理用药，不过量吃药，我觉得伊维菌素和羟氯喹的安全性还是相当高的，当然相同的药对不同的人体会产生不同影响，有的人吃了确实会有副作用，但我认为比例不会很高。 政府能批准一个只有一年左右研发的疫苗来应急，却以伊维菌素和羟氯喹对中共病毒的临床试验仍在进行中为由，而不批准用更具有安全性的老药来应急，令人咋舌。如果不是还有可以自由发声的媒体，和郭文贵先生的情报，和像大胡子Zelenko医生的冒着生命危险告诉人民群众解药，我们真的会被曾经相信的政府，媒体所欺骗，甚至随波直流。
+
+素材链接：【reuters】[Ivermectin shows ‘antiviral effect’ against COVID, Japanese company says](https://www.reuters.com/business/healthcare-pharmaceuticals/japans-kowa-says-ivermectin-effective-against-omicron-phase-iii-trial-2022-01-31/)
+
+* * *
+
+审核：文乐
+校对：小东
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 

@@ -2,35 +2,31 @@
 ---
 
 
-## 日本众议院通过中共国严重人权状况决议
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949758/)
+## 美国正在东欧部署和重新部署超过3000军人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1949900/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间2月1日，在中共举办冬奥会之前，日本国会通过了一项有关中共国人权的决议。该决议表示，国际社会對中共对新疆、西藏和香港的人权侵犯问题表达关切。决议内容明确指出，基于人权的普世价值，侵犯人权的相关争议不只是国内问题，而是国际社会理应关注的问题。该决议呼吁首相岸田文雄领导的日本政府，采取措施缓解此状况，强烈要求日本政府对中共施压，让中共履行其本该向国际社会做出的可被接纳的责任。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-1.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2.jpg)图片来源：雅虎新闻
+2月2日，《国会山报》报道，为支持东欧盟友，五角大楼正在部署和重新调动超过3000名军人，这是在俄罗斯和乌克兰之间日益紧张的局势下，美国首次寻求加强北约在该地区（防御）能力的此类行动。
 
-参考链接：
+周三，国防部新闻秘书约翰·科比（John Kirby）告诉记者，该机关将在“未来几天”把驻扎在北卡罗来纳州布拉格堡（Fort Bragg）的2000名军人部署到德国和波兰。
 
-- [日本国会通过有关中国人权决议](https://www.zaobao.com/realtime/world/story20220201-1238578)
-- [日本国会通过关于中国人权的决议](https://www.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
-- [「中国」と名指しはせずに…衆院、新疆・香港などでの人権問題に「懸念」決議](https://www.yomiuri.co.jp/politics/20220201-OYT1T50158/)
+此外，目前驻扎在德国的另外1000名军人将被重新部署到罗马尼亚。
 
+对此，科比说：“我想清楚地说明一点，这些并不是永久性的行动。它们是旨在应对当前安全环境的行动。此外，这些部队不打算在乌克兰作战，它们将确保我们北约盟友的强大防御（能力）。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+根据五角大楼发布的一份情况介绍，被部署到德国和波兰的部队来自第82空降师的1700名军人和第18空降军团的300名军人组成。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：海阔天空1
+同时，从德国重新部署到罗马尼亚的部队是斯特赖克旅战斗队（Infantry Stryker squadron）的一部分，该战斗队目的在短期内快速部署。这些部队将扩编已经在罗马尼亚轮换的900多名美军服役人员。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+柯比说，这些部队是根据与波兰、德国和罗马尼亚的双边协议派出的，并将继续由美国指挥。
+
+**新闻来源**
+
+[Pentagon deploying 3,000 troops to allies in Europe amid tensions with Russia](https://thehill.com/policy/defense/592429-pentagon-deploying-3000-troops-to-allies-in-europe)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

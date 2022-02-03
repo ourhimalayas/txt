@@ -2,29 +2,41 @@
 ---
 
 
-## 有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950287/)
+## 多国奥运运动员抵制北京开幕式
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950348/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒近日揭露了一组惊人数据，显示在2020至2021年期间，美国青壮年的死亡率暴增了140%，而中共病毒疫苗的广泛推行就是这场巨大灾难背后的主因。
+编译： Jenny Ball
 
-世界著名肺科医生皮埃尔·科里警告，如果我们继续给健康的人注射这些有毒的实验性疫苗，我们会目睹死亡人数，甚至到达一个难以想像的规模。
+几个月来，驻美国的人权活动人士一直在与来自几个西方国家的奥运运动员会面，敦促他们就中共政府的大规模暴行和对维吾尔人、藏人、香港人和中国境内其他群体的严厉镇压发表意见。如果运动员谈论人权，将面临中共政府的惩罚威胁，他们几乎都避免在公共场合谈论这个话题。运动员们还受到国际奥委会 (IOC) 及其赞助商的压力……
 
-文字版原文：[中共病毒疫苗导致美国青壮年死亡人数暴增140%](https://gnews.org/zh-hans/1948258/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-189-edited.png)mediaite
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+据《华盛顿邮报》周三报道，奥运会运动员将抵制周五在北京举行的冬奥会开幕式。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+据一直在帮助教育和组织他们的人权活动人士称，来自多个国家的奥运运动员，要向受中共政府人权侵犯的受害者表示声援，他们一直在悄悄地准备抵制开幕式。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+几个月来，驻美国的活动人士一直在与来自几个西方国家的奥运运动员会面，敦促他们就中共政府的大规模暴行和对维吾尔人、藏人、香港人和中国境内其他群体的严厉镇压发表意见。如果运动员谈论人权，将面临中共政府的惩罚威胁，他们几乎都避免在公共场合谈论这个话题。
+
+运动员们还受到国际奥委会 (IOC) 及其赞助商的压力，以避免引起争议。但如果他们觉得说出来不安全，活动人士告诉他们，躲过开幕式和闭幕式，至少会减少中共政府利用这些仪式将其滥用政权合法化并粉饰其罪行的能力。活动人士告诉我，至少有两支西方球队的运动员确认，他们不会参加开幕式以表示他们个人的抗议。
+
+罗金写道：“计划抵制开幕式的运动员的确切人数尚不清楚”，并且，“活动人士告诉我，一些运动员表示，如果他们完全抗议，害怕被中共当局逮捕，或受到本国奥林匹克组织的惩罚。
+
+“一些运动员告诉活动人士，他们会解释为什么他们只在比赛结束后要离开开幕式，因为在中国期间保持沉默，以避免受到惩罚。”
+
+包括美国在内的一些国家已经宣布，由于中共侵犯人权的恶劣记录，他们将以外交方式抵制奥运会。 评论：多么滑稽，本应是健康文明的竞技盛事，但参与比赛的运动员不是兴高采烈去会友比赛，而是如临刑场：首先要考虑是否能活着在中共铁拳里平安无恙。他们可能也想知道中共给他们预备了什么？ 在爆料革命引领人文贵先生中国传统新年除夕的大直播中，文贵先生说：是中共部队在包围着冬奥会场馆，他们有的配备的是高频率电子枪，在500米之内对准目标，被击中者会像被无形的绳子牵着狂奔。这是几年前文贵先生曾经亲自要求体验被击中而得出到结论。
+
+还有的军人配备的是麻醉枪，中枪的人会失去意识十几分钟，射击的人在开枪之前吸引一种解药，就可避免自己同时受害。
+
+这还是在搞体育比赛吗？
+
+素材来源：【mediaite】[Olympic Athletes From Multiple Countries to Boycott Opening Ceremony in Beijing: Report](https://www.mediaite.com/sports/olympic-athletes-from-multiple-countries-to-boycott-opening-ceremony-in-beijing-report/)
+
+* * *
+
+审核：文乐
+校对：小东
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
