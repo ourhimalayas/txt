@@ -2,36 +2,26 @@
 ---
 
 
-## 美国联邦债务首次超过30万亿
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1952935/)
+## CNN表示会在北京冬奥会期间关注中共新疆大屠杀
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1953018/)
 
-作者: MOS – 柳是多水土透
+作者: 银河系农场 – 骄子
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
 
-依据美财政部数据，国家债务在周二超过30万亿，是建国以来首次, 膨胀的债务大多归咎于Covid-19爆发后，激增的经济救助花销，从19年底至今，国债增长了约7万亿。
+近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-3.jpg)图片来源: 网络
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
 
-
-
-财政部数据在高通胀和供需不平衡的经济背景下发布, 联储预计从三月开始进行一系列的利率上调举动，这将会显著增加政府借债融资成本。
-
-由于新冠病毒，在过去的两年财政和货币刺激导致严重超发，以至于现有80%的流通美金是在之前22个月印刷的。
-
-联储主席 Jerome Powell上周表示将开始缩表，这将是2015年后首次利率提升。
-
-本届政府开启了前所未有的联邦支出，债务与GDP比值达到了130.65%，即债务超过经济产出。
-
-联邦政府有8万亿国债被外国持有，其中最大债权人是中共当局和日本政府，分别为1.05和1.3万亿美金。
+据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
 
 
 
 相关链接:
 
-[U.S. National Debt Hits $30 Trillion for First Time](https://www.nationalreview.com/news/u-s-national-debt-hits-30-million-for-first-time/)
+[Jake Tapper Announces CNN Will Focus on ‘Horrors’ Committed by China During Beijing Olympics](https://www.mediaite.com/tv/jake-tapper-announces-cnn-will-focus-on-horrors-committed-by-china-during-beijing-olympics/)
 
 ![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 

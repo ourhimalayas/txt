@@ -2,41 +2,25 @@
 ---
 
 
-## 中共将奥运政治化，印度特使不会出席开幕式或闭幕式
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1952827/)
+## 脸书母公司创股市历史最大单日损失
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1952861/)
 
-**作者：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-242.png)图片来源：[WION Youtube Channel](https://www.youtube.com/watch?v=VXf7c482y4k)
-**中共选择将奥运会政治化，印度特使不会出席北京冬奥会开幕式或闭幕式**
+**翻译：雨季仰光**
 
-印度外交部（Ministry of External Affairs (MEA)）发言人阿林达姆-巴吉（Arindam Bagchi），在新闻发布会上说：“令人遗憾的是，中共选择将奥运会政治化，印度特使不会出席北京冬奥会开幕式和闭幕式”。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-243.png)**图片：网络合成**
+据彭博社（Bloomberg）数据显示，脸书母公司元平台创下美股史上最大单日市值蒸发。
 
-据悉，北京决定让在与印度的加勒万河谷边境冲突中头部受伤的解放军团长齐法宝（Qi Fabao，音译）担任火炬手。
+元平台也即我们原来熟知的脸书，在周四早盘交易中市值损失约2300亿美元，皆因失望的投资者对其去年第四季度收益极度失望，其日用户有史以来出现首次下降。
 
-**全球灭共全面开始**
+截至周二上午9:34, 元平台跌幅达25.6%至每股240.31美元，前日收盘价为323美元。公司于周三收市后披露了业绩消息。此次下跌致使公司总市值从8985亿美元降至6684亿美元。
 
-另外，郭先生，GETTR 2月3号称：尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害正在被更多的人认清真相，并且将带动全球病毒溯源，停止疫苗灾难的大运动……全球灭共全面开始！共产党你玩球蛋了！
+元平台CEO马克.扎克伯格周三表示，公司收益未来的形势依然严峻， 尤其是来自其他社交媒体应用的竞争诸如Tik Tok.
 
-**抵制北京冬奥会国家不断增加**
+扎克伯格始终顾左右而言它，真正使得股值蒸发的不是来自其它社交媒体的竞争，而是脸书对游戏规则的破坏：封锁真话，传播谎言。随着我们Gnews、盖特的壮大，随着疫苗真相的面纱逐步揭开，助纣为虐的互联网巨头们将面临历史和法律的审判，那时候才是它们真正的末日和宿命。
 
-一年多的时间以来，抵制北京冬奥会国家不断增加，“全球灭共全面开始”，最终会有几个国家出席明天北京冬奥会开幕，让我们拭目以待。
+**[新闻来源](http://Facebook%20parent%20Meta%20loses%20$200%20billion%20in%20market%20cap%20after%20dire%20earnings,%20on%20track%20for%20the%20biggest%20loss%20of%20value%20in%20stock-market%20history)**
 
-**参考链接：**
-
-1. [MSN: India to Boycott Beijing Winter Olympics After China Picked Galwan Solider as Torch-bearer](https://www.msn.com/en-in/news/other/indian-diplomat-in-china-to-boycott-beijing-olympics-over-china-picking-galwan-solider-as-torch-bearer/ar-AATqWN6)
-2. [WION: *India announces diplomatic boycott of Beijing olympics after Galwan soldier became torchbearer*. YouTube.](https://www.youtube.com/watch?v=VXf7c482y4k)
-3. [India Today: Indian diplomats to boycott Beijing Winter Olympics after China makes Galwan PLA soldier torchbearer.](https://www.indiatoday.in/india/story/indian-diplomats-in-china-to-boycott-beijing-winter-olympics-after-galwan-hurt-pla-officer-made-torch-bearer-1908335-2022-02-03)
-
-
-**编辑：LILY**
-
-**发布：MQ**
-
-20220203
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

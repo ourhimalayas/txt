@@ -2,45 +2,35 @@
 ---
 
 
-## 2.2.22大直播后记：张家口的风水埋葬冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1952556/)
+## MV版Hcoin To the Moon上线56天第43次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952609/)
 
-**整理：雅典娜速记组
-编辑：Candy**
+2/3/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线56天第43次位列澳门iTunes热门音乐视频榜榜首，第50次位列前三名
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.22.00-2.png)
+* * *
+
+[【PDF 下载】Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_104.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_108.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
 
-七哥有两个角度给大家分享冬奥会——为啥选址张家口？所有的地方就河北和北京，要往北走，要有雪，还要空旷，搞房地产开发；然后就是为了实现一个城市同时举办两个奥运会。这个里边的政治目的，大家一看就知道：北京城，中国首都，搞了两届奥运会。
+[【PDF 下载】Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-3-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-但到了这个地方以后，你看最早的房地产是哪啊？盘古！我是1999年买的地，1998年从河北承德往那边去。我在那儿，人家开发，那时候大概在1100块钱1平方米的房价的时候，我大概有几千亩地。就现在的会场，最重要的几个山坡。一直到他们申请冬奥，拿了以后，我把这地整个退回去不要了。
-
-如果今天没有爆料革命，都认为我是个神经病。这涨多少倍，百倍、千倍，为啥要退了呢？ 第一个，孙子潘石屹就去了；然后，就是朱梦怡、合生创展这些闻着味儿的，碧桂园、王健林到那儿直接干几公里；然后他们邀请我去。承德当地的书记什么的，河北的书记，那时候七哥在河北，省长、省委书记、政法委书记、公安厅长，全是我哥们儿，你想七哥有多牛！
-
-我一次都没有去过，我那时候告诉他，你搞不成冬奥会。我被安全部的董部长亲自当面警告：这话在外面可别说了，这是政治大忌。我今天第一次说了，你觉得我当时为啥说搞不成冬奥会？
-
-第一、我知道共产党活不到2022年，我深信不疑；即使活到，也是半死，我那时候我就信。
-
-更重要的事情，他选了这个地方以后，七哥相信风水的：西北为淫乱之地。中国历史上几千年，所有的战争都几乎90%来自于西北匈奴、新疆维族是吧，所有的都是从北方人，包括俄罗斯。而且张家口这个地方大家没去过，山穷水尽之处，从历史上皆如此。
-
-而且，历史上中国汉人到北部的战争，走到那儿几乎没不输的。选这个地方，我觉得该完蛋了。
-
-那个地方的土很有意思。那个地方，所谓到蒙古草原，开车去野游，只有那个地方跟河北所有土不一样：它那个土，全是松土，这种地方是成不了大事的。就像在火山下面再浪漫，它不宜盖房子一样。 火山石，你要想睡在那儿，那你是找死，熏都把你熏死了。
-
-各种通过历史、人文、土壤，我说这帮孙子，就是河北当时的几个书记，最牛的。大家看看，谁是江家的人，胡家的人，其中最主要的有个董仚生。董仚生是公安厅厅长的时候，河北为了拉买卖搞房地产，就整那儿去。这完全是政治交换、交易实施后的结果。
-
-但是，老天爷给了我们很大的礼物：这个冬季奥运会，绝对是个天大的礼物！
-
-刚才你们看的，都是网络上说的。我再告诉你们一个观点，你们不知道：他的来路就是邪恶的，就是政治交换。是不科学的，不自然的，是不可能造成的。那些决定的人，都已经玩球蛋了！
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

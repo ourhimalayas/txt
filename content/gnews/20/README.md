@@ -2,10 +2,10 @@
 ---
 
 
-## 新西兰科学家在辉瑞疫苗中发现奇怪纳米结构
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952720/)
+## 中共国是美国有史以来面临的最大对手
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952740/)
 
-01/28/2022 新西兰科学家在辉瑞疫苗中发现奇怪纳米结构
+01/31/2022 前国防部负责战略和部队发展的副助理部长埃尔布里奇·科尔比：中共国是我们有史以来面临的最大对手，未来甚至可能比我们的经济规模更大。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
