@@ -2,86 +2,24 @@
 ---
 
 
-## 全球疫情更新（疫苗讨论的舆论攻防）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1952470/)
+## 官方数据显示病毒死亡率与接种剂量相关
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1952587/)
 
-**整理/编辑：枳实**
+#### 加拿大温哥华扬帆农场 枫叶快讯
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-144.png)图片：雅典娜农场设计组 精灵蓝
+采编/编译撰稿：   薇文
+![This image has an empty alt attribute; its file name is image-310-1024x800.png](https://i0.wp.com/dailyexpose.uk/wp-content/uploads/2022/01/image-310.png?resize=639%2C499&amp;ssl=1)图片来源：dailyexpose
+据英国媒体[新闻调查]2月1日报道，[苏格兰公共卫生局]最新发布的疫情统计报告显示：疫苗将直接造成人体免疫力衰弱，这不仅导致完全接种者的感染死亡率最高，还使其对抗体依赖性增强，并促进病毒在细胞内的复制，从而起到 “特洛伊木马 “的作用。
 
+尽管目前苏格兰的“奥密克戎”疫情正在减缓，但大部分接种者不仅未得到疫苗的任何有效保护，而且注射了三剂的病毒感染患者还占了住院人数的大多数。相反，未接种者却因得益于完善的免疫系统而抵御了病毒感染，病例数也迅速减少。
 
-雅典娜疫情更新（2022年 2月3日）
+报道指出，[英国卫生安全局]的数据也有着相同的显示，即个体接种疫苗剂量与患病程度成正比。这足以证明[美国疾控中心]主任此前在参议院作证时称：疫苗安全有效并可预防变种病毒感染的论调完全都是蓄意的谎言。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+校对编辑：硫酸羟氯喹64
 
-**一，全球疫情基本数据**
+发稿：青青
 
-感染总数：384,167,077（日新增3,081,425，14天增幅-1%）
-
-死亡总数：5,697,479（日新增10,143人，14天增幅 +36%）
-
-**二，全球“疫苗”毒针统计数据**
-
-“疫苗”毒针注射总数：101亿
-
-完全“接种”：41.7亿人
-
-完全“接种”百分比：53.4%
-
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,645,825（今日新增37,206人）
-
-死亡总数：3,989人（今日新增 85人）
-
-每万人感染人数：1025.5692人
-
-“疫苗”毒针注射总数：50,449,872（今日新增256,965   针）
-
-完全“接种”： 19,285,421人
-
-第二针“接种”百分比：78.8%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.5%
-
-加强针总数：8,418,676（日新增：226,997针）
-
-**四，疫苗讨论的舆论攻防**
-
-2022 年 2 月 2 日，《每日邮报》发表了一篇文章，歪曲报道乔·罗根 (Joe Rogan)对马龙博士和麦卡洛医生的访谈。今天[马龙博士撰写博客文章](https://rwmalonemd.substack.com/p/the-truth-about-the-daily-mail-article)，对这篇报道做出了逐条反驳。这篇文章虽然只是为了辩驳和回应《每日邮报》文章，但事实上总结了自然免疫，羟氯喹，伊维菌素的研究，心肌炎心包炎发病率等各方面的论文和文献索引，是非常好的搜寻疫苗真相相关文献的起始点。
-
-这篇文章的开头就引用《每日邮报》文章的话：“1 月 10 日，超过 250 名医生签署了一封致 Spotify 的公开信，题为：《全球科学和医学界呼吁实施错误信息政策》”，指出这些签署者实际上中有只有少数是医生，大多数只是护士、实习生和播客主播。相比之下，揭穿中共病毒疫苗毒针真相的[国际医师和医学科学家联盟（马龙博士担任主席）拥有超过 17,000 名经过验证的医师声明签署人，他们都是医师​​和医学科学家。](https://globalcovidsummit.org/)
-
-文章中的内容非常丰富，还有无数的细节和引证，篇幅所限，就不详细介绍了。对于被“主流媒体”洗脑，对毒疫苗充满信任的，但愿意花时间研究阅读思辨，寻找真相的人们，尤其是孩子们来说，这篇博文相当适合阅读。毕竟，毒疫苗的推行正是以科学之名，而科学有别于宗教之处，不正是科学就是在质疑中步步推进的吗？中共病毒疫苗是有效还是有害，这既然是科学问题而非宗教教义，当然就可以被质疑和讨论，毕竟已经有如此多的医生和科学家宁愿冒着丢掉自己的行医执照和科研经费的风险也要站出来反对毒疫苗了。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源： [Public Health Scotland Data shows Covid-19 Death-Rate is highest among Fully Vaccinated; suggesting ADE](https://dailyexpose.uk/2022/02/01/phs-data-covd-death-rates-highest-vaccinated/)
 
  
 
