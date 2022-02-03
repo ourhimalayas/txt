@@ -2,14 +2,16 @@
 ---
 
 
-## 有声|2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950220/)
+## 有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950287/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC.png)
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒近日揭露了一组惊人数据，显示在2020至2021年期间，美国青壮年的死亡率暴增了140%，而中共病毒疫苗的广泛推行就是这场巨大灾难背后的主因。
 
+世界著名肺科医生皮埃尔·科里警告，如果我们继续给健康的人注射这些有毒的实验性疫苗，我们会目睹死亡人数，甚至到达一个难以想像的规模。
 
-文字版原文：[2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1944562/)
+文字版原文：[中共病毒疫苗导致美国青壮年死亡人数暴增140%](https://gnews.org/zh-hans/1948258/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

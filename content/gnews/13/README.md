@@ -2,31 +2,33 @@
 ---
 
 
-## 人类将付出惨痛的代价（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950788/)
+## 樱花灭共诗——与陈一之夜话
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950843/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-37.jpg)
+说罢真当哭，
 
-没有人在乎这句话就是习近平的女儿，彭丽媛，你彭雷的孩子，你彭丽媛的妹妹。李克强、汪洋、高法，还有北京高院大连法院，你们这些人不在了， 你这孩子死不了，死在你前面去是少数，我们新中国联邦人一定会比你长命百岁的。所以我刚才我告诉他我们这个账没得玩。你觉得我们可以忘记吗？ 中国人最大的事情就是忘记痛苦，忘记灾难，这叫精神麻痹症。
+逢君于乱前。
 
-就刚才Rica说那句话，就现在的年轻人就是已经完全被精神控制和精神麻痹。
+覆倾来似涌，
 
-所以，你去打疫苗，能不能停止回答你，停止不了。
+繁盛去如烟。
 
-因为我们的力量和共产党的70年对人类的统治和共产主义，对人类100多年的整个洗脑，和整个西方黑暗的资本主义邪恶的资本主义的一小部分毒瘤的所造成的。
+不再悲光景，
 
-还有他们既得利益者，实际控制人类99. 99%财富的人，和共产主义已经结成联盟。人类必须付出代价停不了。我们尽量。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/人类将付出惨痛的代价（二）-.jpg)
-2021年12月10日文贵大直播
+无穷怨自然。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+转身经十载，
+
+多难更生怜。
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+
 
  
 
