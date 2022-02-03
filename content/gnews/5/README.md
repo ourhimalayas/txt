@@ -2,27 +2,31 @@
 ---
 
 
-## 3名多伦多男孩失踪，警方要求公众帮助寻找他们
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952228/)
+## 卑诗省医生现在可以为需要大自然治愈的患者开出免费国家公园门票
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952252/)
 
-作者：Brooke Houghton
+作者：Elizabeth McSheffrey
 翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-10.jpg)
-多伦多警方罕见连发三名多伦多少年失踪信息，警方表示担心三人的安全，呼吁公众提供线索帮助寻人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-42.jpg)
+对那些需要在大自然中度过有益身心健康的患者来说有一个好消息，BC省的医生现在可以为患者开出免费的国家公园通行证，患者因此可每年节省72元。
 
-据报道，这三名年龄相近的青少年于1月29日至1月31日大约在同一时间失踪。根据多伦多警察局的一条推文，据信其中两个男孩可能在一起。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-41.jpg)
-据警方新闻稿称， 15岁的Keon Regalado和13岁的Noah Aisosa Oseki最后一次露面是在1 月29日晚上9点，地点是在Finch Avenue West和Weston Road附近 。警方认为他们可能在一起。
+加拿大国家自然处方计划（Canada’s national nature prescription program, PaRx）宣布与加拿大公园局进行新的合作，允许经注册的、有执照的医疗保健专业人员向患者提供免费的加拿大公园局年度通行证。
 
-警方描述Regalado身高5英尺4英寸，体重130磅，身材苗条，最后一次被人看到时身穿绿色/黑色冬季外套、黑色裤子、白色跑鞋，头发梳成辫子。
+家庭医生兼PaRx主管Melissa Lem博士说，根据最新研究，我们有一个标准建议，即患者每周至少花两个小时在大自然中，每次至少 20 分钟。这个做法是为了打破那些患者接近自然的障碍。
 
-警方描述Oseki身高6英尺2英寸，体重130磅，身材瘦弱。他最后一次露面是在周六，身穿黑色耐克夹克、黑色裤子和黑色耐克Airmax鞋。
+据悉每年的加拿大公园探索通行证费用约为每位成人72元。
 
-周二下午，警方公布了第三名失踪男孩Sheldon Gordon的照片，但并未说明案件是否相关。
+只有在PaRx注册的医生才能开处方，“有任何健康状况的人”都有资格获得自然处方， Lem博士鼓励医生开公园通行证。
 
-据报道，16岁的Sheldon Gordon最后一次露面是在1月31日晚上9点30分，地点在Jane Street和Sheppard Avenue West附近 。
+Lem博士说，大量研究表明，进入自然界的时间可以改善各种不同的身心健康状况，从糖尿病和心脏病到多动症和抑郁症。但对开出加拿大公园探索通行证，我们要求开处方者优先考虑居住在国家公园、历史遗迹或海洋保护区附近的患者，以及可能难以负担年度通行证的人。
 
-来源：https://www.narcity.com/toronto/3-toronto-boys-are-missing-police-are-asking-for-the-publics-help-to-find-them
+据悉BC省有七个国家公园：Glacier National Park, the Gulf Islands National Park Reserve, Gwaii Haanas National Park Reserve, Kootenay National Park, Mount Revelstoke National Park, Pacific Rim National Park Reserve和Yoho National Park。
+
+PaRx于2021年11月在BC省庆祝成立一周年。过去一年里，该计划还在安省、曼尼托巴省和萨斯喀彻温省启动。
+
+Lem补充说，到2022年底，该计划将在全国范围内推广，目前已经有1000多名合格的处方者注册。
+
+来源：https://globalnews.ca/news/8587316/bc-doctors-prescription-park-pass/
 
 （文章仅代表作者个人观点）
 
