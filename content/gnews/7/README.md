@@ -2,37 +2,40 @@
 ---
 
 
-## 德国总理肖尔茨宣布不出席北京冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1950445/)
+## 索罗斯：习近平恐无法连任第三任
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1950522/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：Eileen（围剿维尼熊）
-编辑：Sadhu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-5.png)图片：O-O
+作者: 纽约香草山教育部 Naughty(文行)
 
 
-据德国之声中文网报道，德国总理肖尔茨2月2日宣布，他不会出席北京冬奥会。但肖尔茨并没有说明他不参加北京冬奥的原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+《澳洲金融报》报导，金融巨鳄索罗斯1月31日在斯坦福大学胡佛研究所发表谈话指出，中国大陆国家主席习近平今年也许无法连任第三任中共总书记。
 
-此前，美国、加拿大、英国和澳大利亚等国家因为中国国内发生的人权侵犯事件，已宣布对北京冬奥进行外交抵制。
+91岁的索罗斯表示，“中国共产党内有很强的反对习近平力量，习近平精心安排想把自己提升到与毛泽东和邓小平同等地位的目标，可能无法完成”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8e27ef01b281daab1b57f66ab01d9f72-1.jpeg)图片来源: Gettr(@GlobalHimalaya)
+索罗斯又表示，习近平在党内的敌人、中国的房地产危机、效果不佳的中国疫苗，以及出生率下滑，都是对习近平不利的因素。
 
-德国《每日镜报》1月初时曾报道，肖尔茨不会禁止德国政府人员出席北京冬奥，并指他不想正式对北京冬奥实施外交抵制。
+表面上看，习近平已巩固权力，排除了潜在的挑战者，因此，大多数的中国事务观察家认为，他可以轻松连任。但索罗斯认为，习近平对经济和疫情的处理，正引发党内斗争，可能导致习近平失势。索罗斯指出，中国内部的分歧极其严重。在中共的各种刊物上，习近平遭到崇尚邓小平思想、想看到私有企业扮演更重要角色的派系攻击。
 
-在此之前，德国外交部长贝尔博克（Annalena Baerbock）与内政部长费泽尔（Nancy Faeser）皆在去年12月时表示，他们已经做出了不参加北京冬奥的个人决定，但这并不反映德国政府的官方立场。
+新闻来源: [https://www.afr.com/world/north-america/george-soros-xi-is-vulnerable-to-being-toppled-20220131-p59si8](https://www.afr.com/world/north-america/george-soros-xi-is-vulnerable-to-being-toppled-20220131-p59si8)
 
-中国外交部去年12月曾表示，那些抵制奥运会的国家将为自己的错误行为付出代价。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.png)
 
-参考链接：https://www.dw.com/zh/%E8%82%96%E5%B0%94%E8%8C%A8%E5%AE%A3%E5%B8%83%E4%B8%8D%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5/a-60640341
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-*发布：tianzhihuan*
+**更多资讯，更多关注**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

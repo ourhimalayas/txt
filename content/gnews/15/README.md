@@ -2,28 +2,37 @@
 ---
 
 
-## 美国陆军宣布将让未接种新冠疫苗的军人退役
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1950298/)
+## 德国总理肖尔茨宣布不出席北京冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1950445/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A82521FC-E297-4B62-AD79-087160A782BE_w1023_r1_s.jpg)图片来源：美国之音
-据美国之音2月3日报道，美国陆军部长克里斯汀·沃穆思2日宣布，将“针对任何拒绝执行接种COVID-19疫苗命令且无获批或待批豁免申请的军人启动非自愿行政离职程序”。该命令适用于陆军正规部队军人、现役的陆军预备役军人以及军校学员。这些拒绝接种新冠疫苗而离职的军人将没有资格获得非自愿离职金，而且可能要返还任何提前发放的特殊津贴和奖金。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-截至2022年1月26日，96%的现役人员和79%的后备役人员已经完全接种疫苗。出于医疗或宗教理由而申请豁免的军人在他们的申请接受审批期间，暂时不必遵守疫苗接种令。有709人提出永久性医疗豁免申请，只有6项获批。有2910人提出宗教豁免申请，没有一项获批。在2022年7月1日或之前退役的军人将获得临时豁免。
+整理：Eileen（围剿维尼熊）
+编辑：Sadhu
 
-一些共和党议员对强制军人接种疫苗令表达不满。美国其实做了一件令“亲者痛仇者快”的事情。中共生化武器打击的主要目标就是美国，疫苗是最重要的武器之一。当美国士兵全部接种疫苗后，可以预见的未来，美国的军事力量会遭到重大打击。美国军方居然强调，“未接种疫苗的军人对军队构成风险并破坏战备能力”。殊不知，美国军队真正的威胁是对美国虎视眈眈的中共，而不是未接种疫苗的士兵。美国自断臂膀的方式令人不免担心美国未来的国防力量。
-
-新闻参考链接：[https://www.voachinese.com/a/us-army-announces-discharges-for-unvaccinated-20220202/6423854.html](https://www.voachinese.com/a/us-army-announces-discharges-for-unvaccinated-20220202/6423854.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-5.png)图片：O-O
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据德国之声中文网报道，德国总理肖尔茨2月2日宣布，他不会出席北京冬奥会。但肖尔茨并没有说明他不参加北京冬奥的原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+此前，美国、加拿大、英国和澳大利亚等国家因为中国国内发生的人权侵犯事件，已宣布对北京冬奥进行外交抵制。
+
+德国《每日镜报》1月初时曾报道，肖尔茨不会禁止德国政府人员出席北京冬奥，并指他不想正式对北京冬奥实施外交抵制。
+
+在此之前，德国外交部长贝尔博克（Annalena Baerbock）与内政部长费泽尔（Nancy Faeser）皆在去年12月时表示，他们已经做出了不参加北京冬奥的个人决定，但这并不反映德国政府的官方立场。
+
+中国外交部去年12月曾表示，那些抵制奥运会的国家将为自己的错误行为付出代价。
+
+参考链接：https://www.dw.com/zh/%E8%82%96%E5%B0%94%E8%8C%A8%E5%AE%A3%E5%B8%83%E4%B8%8D%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5/a-60640341
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,51 +2,44 @@
 ---
 
 
-## 最新诉讼：COVID检测公司伪造测试结果
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950242/)
+## 塔克·卡尔森：“骗子”彼得·霍特兹博士与中共军方分享福奇经费
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950371/)
 
-编译： Jenny Ball
+**翻译: Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip塔克·卡尔森：骗子彼得·霍特兹博士与中共军方分享福奇经费.png)Peter Hotez and Shibo Jiang
+你可能已经注意到，很多人已经不信任医生，这不是一个好兆头。您认识的人中可能有一半正在探索替代医学疗法。为什么会这样？ 有很多原因，但彼得·霍特兹（Peter Hotes）博士的所作所为绝对是其中原因之一。
 
-根据一项新的诉讼，一家 COVID-19 测试公司伪造了测试结果，并且没有经营测试站点的许可证。
+霍特兹是一名儿科医生，他一生都在研究热带寄生虫。对于有线电视新闻订户来说，他似乎不是明显的首选嘉宾，他们正在寻找一个可以了解有关 COVID 的人，但霍特兹是一个疯狂的宣传瘾君子，他会在任何时间、任何地点进行任何公开的露面从不停止。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-184-edited.png)theepochtimes
+对我们所有人来说不幸的是，当霍特兹讲话时，他抹黑了美国医学。他是一个错误信息机器，不断地吐出疯狂。静心把霍特兹对 COVID 的看法并与亚历克斯·琼斯（Alex Jones ）的看法进行比较，然后问问自己谁更清醒，他们的观点根本不同，而霍特兹所说的，很少与现实有任何关系。
 
-COVID 控制中心声称，在华盛顿州免费提供 COVID-19 测试，并承诺在 48 小时内提供结果。但实际上，根据华盛顿州总检察长罗伯特·弗格森（Robert Ferguson）在金县高等法院提起的长达 14 页的诉讼，该公司收集了患者保险信息并提供了“无效的 COVID-19 测试结果或根本没有结果”。
+我们在 12 月下旬首次报道了霍特兹博士，我们注意到霍特兹博士获得了福奇博士每年 100 万美元的资助，但霍特兹博士并不是唯一享用的人。
 
-前雇员告诉检察官，该公司没有在该州大部分地区经营的许可证，无法处理其收到的所有测试，并且，业主被指控拒绝雇用更多工人。
+该项目的另外两名首席研究员之一是江世博，他列出了与资助项目R01AI098775相关的两个隶属关系：
 
-相反，据称该公司将测试样本存放在垃圾袋中一个多星期，而不是冷藏它们，并追溯收集日期，以便仍然可以处理样本。 “随着测试垃圾袋堆积如山，我的团队被指示每天对患者撒谎，我受够了。我首先要求将我的轮班领导降级，然后不久，我就辞职了，”一位住在伊利诺伊州的前员工告诉检察官。
+美国纽约病毒免疫学实验室，林兹利·F·金博尔（Lindsley F. Kimball） 研究所，纽约血液中心；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-186-edited-1.png)
-在未注明日期的图像中，在 COVID 控制中心实验室中，装有 COVID-19 测试的垃圾袋。（华盛顿州总检察长办公室）
+中国上海教育部和卫生部医学分子病毒学重点实验室，上海医学院和复旦大学医学微生物研究所。
 
-当提供假阴性结果时，控制中心促成了COVID-19的传播，”弗格森在一份声明中说。“这些假检测中心威胁到我们社区的健康和安全。他们必须承担责任。”
+江世博与中共解放军的关系已在《网关专家》（Gateway Pundit）的文章中详尽地详述[here](https://www.thegatewaypundit.com/2021/03/chinas-massive-infiltration-u-s-virus-research-laboratories/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily), [here](https://www.thegatewaypundit.com/2021/04/yes-covid-19-biological-attack-chinese-communist-party-lawrence-sellin-ph-d/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily) and [here](https://www.thegatewaypundit.com/2021/05/report-chinas-military-weapon-covid-19-constructed-completely-command-control-chinese-military/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily)。
 
-该公司尚未回应置评请求。
+我们还注意到：
 
-1 月，COVID 控制中心的创始人兼首席执行官阿莱娅·西雅宣布，由于“异常高的患者需求”导致人员短缺，该公司将在 1 月 14 日至 1 月 22 日期间暂停运营。在 1 月 20 日的更新中，该公司表示将延长暂停运营时间。
+以江世博为渠道，福奇的 R01AI098775 拨款汇集了美国纳税人的资金，以支持与中国人民解放军有联系的多名中共科学家的研究。
 
-“正如之前宣布的那样，控制中心正在利用这次运营，暂停对更多员工进行样本收集和处理、客户服务和沟通最佳实践，以及遵守监管准则的培训。控制中心将在适当时提供有关重新开放计划的最新信息，”该公司在一份声明中表示。
+有两篇由 R01AI098775 资助的出版物值得注意，它们都涉及冠状病毒，而且奇怪的是，项目负责人霍特兹竟然没有参与两项目。
 
-华盛顿州的诉讼要求法院以民事处罚的形式对该公司进行处罚，并阻止其在华盛顿管理或处理 COVID-19 测试。
+也就是说，这两项研究完全是由中共国科学家设计和进行的。
 
-COVID控制中心在全国有大约300个测试点，在该州有13个。
-
-在明尼苏达州总检察长基思·埃里森（Keith Ellison）起诉该公司涉嫌虚假广告后几天，该公司位于伊利诺伊州的总部遭到联邦特工的突袭。
-
-向明尼苏达州地方法院提起的诉讼称，许多明尼苏达州居民“在提交样本后，没有收到被告的任何检测结果，更不用说在被告承诺的时间范围内了。”
-
-素材链接：【theepochtimes】[Center for COVID Control Faked COVID-19 Test Results: Lawsuit](https://www.theepochtimes.com/center-for-covid-control-faked-covid-19-test-results-lawsuit_4249545.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-02-02&amp;utm_medium=email&amp;est=KhdG9qSOgdWf4C8p3JPhIWwZuDuvE78Fmv%2BRlXIWZJEiVfHjjiwaEQoG7CX%2FgfdJzeQiYg%3D%3D)
+**新闻来源**：[thegatewaypundit.com][Tucker Discussed ‘Charlatan’ Dr. Peter Hotez Last Night – TGP Identified Him in December for Receiving Millions in Grant Money from Dr. Fauci to Share with a China PLA Professor](https://www.thegatewaypundit.com/2022/02/tucker-discussed-charlatan-dr-peter-hotez-last-night-identified-december-receiving-millions-grant-money-dr-fauci-share-china-pla-professor/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
 * * *
 
-审核：文乐
+***审核：文乐
 校对：小东
-发布：花羽
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
-
-
 
  
 

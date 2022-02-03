@@ -2,34 +2,44 @@
 ---
 
 
-## 日本7-Eleven公司测试免触摸全息自助收银机
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950270/)
+## 郭文贵先生在2022年新中国联邦春晚上演唱了三首灭共歌，并讲述了其意义
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1950395/)
 
-**编译：wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip18日本7-Eleven公司测试免触摸全息自助收银机.png)图片来源：nextshark.com
-日本最近在东京的六家7-Eleven商店引入了免触式全息自助收银机。
+作者: 纽约香草山金融部 AT
 
-这种全息界面被称为Digi POS（销售点），当购物者直接面对自助收银机并扫描他们想要购买的物品时，会投射出一个漂浮在空中的触摸屏图像。
 
-据[SoraNews24](https://soranews24.com/2022/01/30/floating-hologram-registers-coming-to-japanese-convenience-stores%25E3%2580%2590video%25E3%2580%2591/)报道，Digi POS由六家不同的公司开发，包括 7-Eleven Japan 、Toshiba Tec 、Asukanet Development 、Kanda Kogyo Development 、Mitsui Chemicals Development，以及Mitsui Bussan Plastic。周三（2日）开始，Digi POS在东京的6家7-Eleven商店正式试运行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在北京时间2022年1月31日晚9点开始的新中国联邦新春晚会上，郭文贵先生作为开幕嘉宾演唱了三首灭共歌:《甜蜜蜜》、《一帘幽梦》和《塞北的雪》并讲述了选择这三首歌的目的和意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/b07ec5cd00f6a832f2f77b991cdb796c_500x0.jpeg)图片来源: Gettr
+前两首歌的原唱者都是邓丽君女士，她的歌声伴随了中国几代人的成长。郭先生以一曲甜蜜蜜开启了“甜蜜蜜运动”，同时也开启了虎年春晚。郭先生唱毕，拿出一神秘红色纸条，称之为百宝书。并说红色带给我们力量，共产党霸占了红色，抢走了我们的自由，让我们失去了未来，失去了家人。我们只有打开“甜蜜蜜运动”这把钥匙，一起合作干掉CCP，才能解放我们被奴役了几代的中国人。红宝书中的秘密将随“甜蜜蜜运动”而揭开，等郭先生揭示时，喜币可能已经达到1000美金。
 
-全息收银机只接受电子货币钱包、信用卡和二维码等无现金支付方式。据[lowyat.net](https://www.lowyat.net/2022/264706/7-eleven-japan-introduces-holographic-touch-screens-to-its-stores/)报道，它也仅限于店内产品，不包括烟、酒、明信片和邮票等物品，以及快递送货、水电费支付、现金券和账户充值等服务。
+随后，郭先生又深情演唱了新中国联邦改编版的《一帘幽梦》，当唱到:”为何我要灭共”，”谁与七哥与共，踏破千年的牢笼”时，不禁情动哽咽。郭先生给予邓丽君女士高度评价并向她致敬，中国人骨子里有浪漫，音乐是永恒的，邓丽君从没放弃过为中国同胞的民主自由而奋斗。邓丽君女士的歌激励着我们，让我们每个人的内心世界都打开一扇激情的门，我们从来没有忘记过，也永远不会放弃。我们会帮助邓丽君女士完成遗愿，消灭共产党，让中国人有民主法制自由。郭先生版《一帘幽梦》重新赋予了这首歌新的力量。
 
-简评：
+最后，郭文贵先生在Qmay钢琴伴奏下演唱了由新中国联邦团队改编的《塞北的雪》，这是彭丽媛女士最重要的一首歌。郭先生透露此歌被选为北京冬奥会开幕式主打歌。但是塞北的雪被中共侮辱了，雪本是纯洁的，不应该是人造的，而共产党在全世界人面前制造假雪，就像他们制造假民主，假法治，假良知，中共还制造了病毒。
 
-最早看到这类科技来自西雅图的 Amazon Go 无人超市试点，宗旨在于让顾客购物更加快速便捷，节省了在疫情期间排队结算的时间，更降低了感染病毒的风险。
+郭先生说每个人演唱这三首歌时都将从中找到与神沟通的感觉。我们一定要活出每个人的精彩，我们新中国联邦必须让中国人找回属于自己的浪漫，尊严，善良，和平，友好。让中国人成为世界上最受尊敬，最被喜欢，最爱与之打交道的人。
 
-值得一提的是，这或意味着对人的监控手段更加的严重。另外，G系列的 Hpay 打破了政府、银行对私人企业主与顾客的要求、监控，实现了完全的交易自由（自己当家作主）。
+中国人被中共洗脑百年，中共所展示辉煌的新春晚会以及营造的万邦来朝的冬奥会背后，与老百姓凄惨的被洗脑的贫穷生活形成鲜明对比，这就是共产党为什么要进行网络屏蔽。中共如果不控制音乐，音乐就会戳穿假恶丑，官僚和虚伪，这就是音乐的力量。音乐要唱出自己，唱出心声，真实和利他。
 
-**新闻来源**：[nextshark.com] [7-Eleven Japan testing out touch-free holographic self-checkouts](https://nextshark.com/holographic-touch-screen-self-checkout-registers-7-eleven/) |发布时间：2022年02月02日｜
+参考来源: https://www.gettr.com/post/prpt2a3c97
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.png)
 
-***审核：文乐
-校对：小东
-发布：信心满满***
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
 
 

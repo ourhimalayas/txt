@@ -2,29 +2,55 @@
 ---
 
 
-## 有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950287/)
+## 化学教授质问为什么Covid疫苗小瓶内容物有“灰色阴影”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950397/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒近日揭露了一组惊人数据，显示在2020至2021年期间，美国青壮年的死亡率暴增了140%，而中共病毒疫苗的广泛推行就是这场巨大灾难背后的主因。
+编译： Jenny Ball
 
-世界著名肺科医生皮埃尔·科里警告，如果我们继续给健康的人注射这些有毒的实验性疫苗，我们会目睹死亡人数，甚至到达一个难以想像的规模。
+在他们的联名信中，施奈普和他的同事们询问BioNTech“如何确保要包装的 mRNA 存在于脂质纳米颗粒中以及存在程度如何？”教授们要求回答的另一件事是， BioNTech 注射剂上的标签上面写着，小瓶含有“疫苗中使用的成分，这些成分未经批准用于人类医学”
 
-文字版原文：[中共病毒疫苗导致美国青壮年死亡人数暴增140%](https://gnews.org/zh-hans/1948258/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-191-edited.png)newstarget
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+来自欧洲的四位教授正在向辉瑞-生物科技 (Pfizer-BioNTech) ，请求解答为什么该公司针对武汉冠状病毒 (Covid-19) 的 mRNA“疫苗”在小瓶内，含有奇怪的“灰色阴影”成分。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+约尔格·马蒂西克（Jörg Matysik），莱比锡大学分析化学教授；杰拉德·戴克（Gerald Dyker），波鸿鲁尔大学有机化学教授；图宾根大学无机化学教授安德烈亚斯·施奈普夫（Andreas Schnepf）；苏黎世应用科技大学材料与工艺工程教授马丁·温克勒（Martin Winkler）都想知道，为什么这种注射剂与任何其他疫苗不同，它含有“白色至灰白色的分散体”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+“这种显着的色差是如何产生的？几乎所有使用的物质都是无色的，所以应该是白色的。灰色阴影从何而来？这些是杂质吗？”教授们问道。
+
+施奈普表示，“稀释的黑色”颜色“很难在预期的过程中产生”。 “我们需要知道它是否是杂质，”他补充说。“如果一颗药丸不是白色的，就会怀疑出了什么问题。我们需要辉瑞-生物科技对此进行澄清。
+
+在他们的联名信中，施奈普和他的同事们进一步探讨了BioNTech 如何确保产品的均匀性，“或者更确切地说，您如何确保要包装的 mRNA 存在于脂质纳米颗粒中以及存在程度如何？”
+
+“您如何继续控制每批中 mRNA 活性成分的浓度，以及如何控制脂质纳米颗粒中活性成分相对于颗粒外部的浓度？”信中进一步写道。
+
+包装说明书显示，疫苗中使用的某些化学成分“未获准用于人类医学”。教授们要求回答的另一件事是， BioNTech 注射剂上的标签上面写着，小瓶含有“疫苗中使用的成分，这些成分未经批准用于人类医学”。
+
+这些神秘的成分究竟是什么？它们被称为 ALC-0159 和 ALC-0315，BioNTech 称它们“用于形成脂质纳米颗粒”。
+
+ALC-0315 的安全数据表清楚地表明，**它****“****刺激眼睛和皮肤或粘膜**”，施耐普说，这是一个严重的问题，因为这意味着，难道这种化学物质不会对全身组织产生同样的影响？
+
+“这里我们需要澄清，”施耐普说，“是否有任何进一步的计划或正在进行的研究来确定这些物质的毒理学影响或其生物分解？”
+
+当然，**另一个主要问题是副作用**。某些批次的疫苗似乎比其他批次更致命。为什么会这样？
+
+教授们在信中补充说，这些副作用“与少量的批号相关”。
+
+“如何解释这种情况，以及这些批次与其他批次的区别，并且，是否正在努力更详细地调查这一重要方面，特别是在质量保证方面？是否有或计划进行临床研究来调查副作用及其原因，以及提高新冠病毒疫苗的安全性？” 假设公司完全回应，**BioNTech 很有可能会为所有这些问题提供虚假的答案**， 因为大型制药公司因撒谎和逍遥法外而臭名昭著。
+
+去年夏天，莫德纳(Moderna)的新冠疫苗小瓶中出现了奇怪的灰质，促使日本政府停止了对该药的所有进一步使用。
+
+日本政府官员宣布，灰色的小瓶是磁性的，暗示“它可能是金属的”。时至今日，这些注射剂的真实内容仍不得而知。
+
+素材来源：【newstarget】[Four chemistry professors ask BioNTech why covid “vaccine” vial contents have a “grey shade”](https://www.newstarget.com/2022-02-01-chemistry-professors-biontech-covid-vaccines-grey-shade.html)
+
+* * *
+
+审核：文乐
+校对：小东
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
