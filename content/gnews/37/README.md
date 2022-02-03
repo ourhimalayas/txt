@@ -2,24 +2,22 @@
 ---
 
 
-## 232位北京冬奥会相关人员感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948988/)
+## 中日财经爆|印度政府承认数字货币合法性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949238/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-139.png)[图片来源](https://cn.nytimes.com/china/20220111/breakouts-and-lockdowns-in-chinese-cities-make-a-risk-free-olympics-look-unlikely/zh-hant/)
-北京冬奥会医疗小组首席专家麦克洛斯基（Brian McCloskey）2月2日在新闻发布会上证实，自1月23日以来，对涉奥人员的中共病毒（新冠病毒）检测中已有232人结果呈阳性，其中11人已经住院接受治疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-148.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwp-content%2Fuploads%2F2021%2F07%2FTax-implications-for-Investing-in-Cryptocurrency-in-India.jpg&amp;imgrefurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwhat-are-the-tax-)
+印度2月1日举行的国家预算会议提案，将针对数字资产的交易征收30%的税赋，这代表印度官方认同加密资产合法性。
 
-北京冬奥会医疗小组首席专家麦克洛斯基在北京举行的一场记者会上表示，11位住院的检测呈阳性的涉奥人员症状都不严重。
+印度财政暨企业事务部长Nirmala Sitharaman表示，有鉴于数字资产交易的频率与规模明显增加，任何源自于数字资产交易的营收应该征收30%的税赋，除了购入成本之外，在计算相关收入时，不得扣除任何支出；若有损失，也不得与其他收入抵销，就算是赠予，也建议向接受者征税。
 
-北京冬奥会定于2月4日开幕，约有3000位来自世界各地的运动员参加比赛；另有教练员、随队官员以及记者都会进入闭环管理。
+加密货币在印度可说是峰回路转，因为，印度央行在2018年曾宣布禁止境内的加密货币交易，使得当地的加密货币交易中心相继退出，然而，印度最高法院却在2020年搁置此一禁令，认为加密货币并未直接或间接对当地银行造成任何损失。
 
-2月1日冬奥防疫复检阳性者32人，丹麦男子冰球队星期三在6位球员缺席的情况下，进行了首次的赛前训练；而6位缺席的球员是因为在入境北京时核酸检测呈阳性而被隔离。
+在解禁之后，印度快速成为全球采用加密货币的第二大国家，仅次于越南。根据加密货币市场分析机构Chainalysis公布的加密货币采用指标，在前十名当中，除了位居第八的美国，其余皆属新兴市场。
 
-丹麦男子冰球队主教练海因茨∙埃勒（Heinz Ehler）表示，丹麦男子冰球队球员在启程前往北京前的48小时内，曾做过两次核酸检测，而且每人的检测结构都呈阴性。
+印度金融服务业者Zerodha的创办人暨执行长Nithin Kamath认为，这意味着，加密货币在印度的角色将成为资产而非货币，可能会被当成股票之类的资产对待，届时官方机构不仅可以提供加密货币交易，也将让它合法化，但值得注意的是，印度政府也可能会将它集中管理，因而失去加密货币的分散优势。
 
-运动员要解除隔离或恢复训练以及参加比赛，绝对不能有任何症状，而且必须提供间隔24小时的两次核酸检测阴性证明。
-
-消息来源：[北京冬奥会11位涉奥人员确诊住院，不过官方表示均属轻症](https://www.voachinese.com/a/eleven-beijing-games-personnel-in-hospital-with-covid-none-serious-20220202/6423288.html)
+消息来源：[数字资产走红，印度政府提议对加密货币及NFT交易抽税，比例为30%](https://www.ithome.com.tw/news/149177)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

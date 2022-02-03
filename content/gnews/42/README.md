@@ -2,37 +2,30 @@
 ---
 
 
-## 全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948261/)
+## 中日财经爆|北大研究报告：中美科技脱钩 “中必输！”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948976/)
 
-撰稿：台湾宝岛农场 – dobi
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒 2月1日 引述消息人士指，供5岁以下儿童接种的中共病毒疫苗预计最快可在2月底开放使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-12.jpg)
-报道指出，共同参与研发的美国药厂辉瑞以及德国生物公司BioNTech预期今日内就会向美国食品及药物管理局递交申请，批准该款疫苗的紧急授权，这款以2针为完全接种剂量的疫苗，在未来数周内将经过多个部门的审批，若最终获得批准，它将是全球首款供6个月至5岁婴幼儿接种的中共病毒疫苗。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-138.png)[图片来源](https://boxun.com/archives/98172)
+北京大学最近公布的一份研究报告坦言，中美科技脱钩虽然令两国都遭受损失，但中共国的损失明显远大于美国，而且中共国一些关键的科技发展还有可能陷入瓶颈。
 
-不过，针对儿童疫苗，早前医学界曾有不少专家联署声明，谨慎为儿童接种中共病毒疫苗，因为疫苗中的刺突蛋白会对儿童的大脑、神经、心脏、生殖及免疫系统造成不可逆转的永久性伤害。
+北京大学国际战略研究院1月31日发表一份有关中美科技竞争的研究报告，对信息技术、人工智能、航空航天等领域中美科技力量对比、财力投入、人才争夺、技术标准与规范竞争、以及“技术脱钩”的现状与挑战进行了较为系统的研究。
 
-参考链接：
-1. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://udn.com/news/story/121707/6073124?from=udn-catelistnews_ch2)
-2. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
-3. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
+报告指出，自2017年底以来，美国对华政策发生重大变化，贸易摩擦和技术竞争逐渐成为两国关系的焦点。一方面，中共国力争加强自主创新能力，掌握关键核心技术，试图做创新型大国；另一方面，美国则因“中方强制美企技术转让、盗窃美方知识产权”等原因，对中共国进行“压制”。先进技术因此成为中美之间竞争和较量的主要舞台。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+报告以信息技术领域为例指出，中美技术脱钩将对中共国信息技术产业造成“巨大冲击”，而双方脱钩对美国的信息技术产业却没有明显的影响。
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+报告还对美国组建“民主国家科技联盟”的努力表达了关切。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“美国的‘脱钩’战略还将伴随‘民主国家科技联盟’的组建，试图将中共国置于孤立无援的境地。这种与国家实力和国际秩序密切相关的政治领导力竞争，很大程度上深刻影响着中美技术力量对比的走向，大大增加了中共国从第三国购买关键产品、获得先进技术和引进高端人才的难度，”报告说。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+“中美双方的出发点各不相同，但走向了共同的目标，在客观上促成了‘双向脱钩’的趋势。无论是技术还是产业层面，中美双方都面临‘脱钩’带来的损失，而从目前来看，中共国的损失可能更大，”报告说。
 
+消息来源：[北大研究报告揭示：中美科技脱钩后中共国损失比美国大，科技发展或陷入瓶颈](https://www.voachinese.com/a/chinese-academices-says-beijing-will-come-out-of-decoupling-worse-off-than-the-us-20220202/6423630.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

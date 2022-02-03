@@ -2,26 +2,36 @@
 ---
 
 
-## 中日财经爆|印度政府承认数字货币合法性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949238/)
+## 新春大直播震撼世界 甜蜜蜜运动史无前例
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949540/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-148.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwp-content%2Fuploads%2F2021%2F07%2FTax-implications-for-Investing-in-Cryptocurrency-in-India.jpg&amp;imgrefurl=https%3A%2F%2Fwww.india-briefing.com%2Fnews%2Fwhat-are-the-tax-)
-印度2月1日举行的国家预算会议提案，将针对数字资产的交易征收30%的税赋，这代表印度官方认同加密资产合法性。
+撰稿：纽约香草山 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+2月1日，虎年初一，郭文贵先生在盖特视频中指出，”虎年新春大直播”在国内国外引起了轰动效应，”甜蜜蜜”运动将在虎年登上新高度。 长达13个小时的新春直播，国内战友称赞直播技术、观感有很大提升，出镜战友的素质也越来越高。 郝海东先生真切可信，再一次引领潮流。 这些都是新中国联邦的力量展现。
 
-印度财政暨企业事务部长Nirmala Sitharaman表示，有鉴于数字资产交易的频率与规模明显增加，任何源自于数字资产交易的营收应该征收30%的税赋，除了购入成本之外，在计算相关收入时，不得扣除任何支出；若有损失，也不得与其他收入抵销，就算是赠予，也建议向接受者征税。
+大直播也对西方社会影响巨大。 很多人拒绝参加冬奥会，制裁邪恶中共的法案将陆续出台。 承认新中国联邦政权，并开展合作，也开始成为了各国的选项。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-156.png)
+此外，甜蜜蜜运动的意义，郭先生强调是史无前例的，融合了高科技、精神、信仰、媒体传播的政治文化运动。 无数高智商情商的战友正在为此精心准备。 它将唤醒愚钝的心灵，开始思考生存的意义。 且新中国联邦新春大直播已经对中共造成巨大的威胁，多国政府也受到新春大直播的直接影响。
 
-加密货币在印度可说是峰回路转，因为，印度央行在2018年曾宣布禁止境内的加密货币交易，使得当地的加密货币交易中心相继退出，然而，印度最高法院却在2020年搁置此一禁令，认为加密货币并未直接或间接对当地银行造成任何损失。
+链接：[郭文贵先生2022年2月1日盖特](https://gettr.com/post/prt6yo3915)
 
-在解禁之后，印度快速成为全球采用加密货币的第二大国家，仅次于越南。根据加密货币市场分析机构Chainalysis公布的加密货币采用指标，在前十名当中，除了位居第八的美国，其余皆属新兴市场。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-印度金融服务业者Zerodha的创办人暨执行长Nithin Kamath认为，这意味着，加密货币在印度的角色将成为资产而非货币，可能会被当成股票之类的资产对待，届时官方机构不仅可以提供加密货币交易，也将让它合法化，但值得注意的是，印度政府也可能会将它集中管理，因而失去加密货币的分散优势。
+总编：Irene木木
 
-消息来源：[数字资产走红，印度政府提议对加密货币及NFT交易抽税，比例为30%](https://www.ithome.com.tw/news/149177)
+编辑：宁文静
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A2B32B-1D6D-44CD-9062-921AE6C34232.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,75 +2,20 @@
 ---
 
 
-## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
+## 王力宏得罪两任国母跪舔无方,何韵诗一身傲骨获赞无数
+` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1942410/)
 
-[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
+2022年中国中央电视台春节联欢晚会落下帷幕，无数明星齐聚舞台，卖力地为这个吃人不吐骨头的盛世涂脂抹粉。明星在舞台上熠熠生辉，但背后却是一只看不见的黑手，无形地在控制明星。
 
-**Steve Bannon
-史蒂夫·班农**
+2021年底王力宏遭到其妻李靓蕾毁灭性的千字血泪信揭发真面目，声称王力宏在每一个城市都有不同的约炮对象，一时间，中共舆论狂潮口诛笔伐，王力宏人设崩塌，逃无可逃，成为公众眼中不折不扣的渣男。这次，中共又成功地动用了其翻手为云、覆手为雨的媒体力量，将王力宏彻底抹黑，从粉丝心理将王力宏诛杀，王力宏的几家代言合作也随之取消。
 
-the vaccine things have been rejected by every court
-每个法院都拒绝了疫苗的事情
+据说，王力宏是因为得罪彭丽媛、宋祖英遭到秋后算账。2021年年底，王力宏成功碾压李云迪、吴亦凡，高居明星人气榜榜首。杀鸡儆猴，王力宏因个人私德被舆论掀翻，让整个娱乐界风声鹤唳、战战兢兢。
 
-every major court in the country, rejected out
-全国各大法院，都被拒之门外
+2021年底几乎同时登上热搜榜榜单的明星是何韵诗。2021年12月29日，《立场》新闻前董事及前总编辑等七人以涉嫌违反“串谋发布煽动刊物罪”，被香港警察国安处高调拘捕，其中包括香港歌手何韵诗。此事瞬间引发舆论狂潮。一方面舆论对中共在香港肆无忌惮制造白色恐怖，打压香港自由，港警迅速黑化表达了强烈的愤怒和愤慨，另一方面，何韵诗再一次走入人们的视线，成为舆论关注的焦点。人们对何韵诗的各种赞美铺天盖地，更有无数人用行动表达了对何韵诗的支持和敬佩。
 
-Now you’re a butcher, now we says six is always 60 to 90 days was
-现在你是个屠夫，现在我们说是60到90天
+作者：华盛顿DC农场 海阔天空
 
-guess what? they’re not going to do on next Tuesday on February 1st in Austria
-你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
-
-The mandatory vaccines is kind of getting wobbly
-强制性疫苗规定有点摇摇欲坠
-
-now people now that unvaccinated can come out of the house
-现在，未接种疫苗的人可以走出家门
-
-We’re about to see if they still gotta pay the penalty
-我们要看看他们是否还要支付罚款
-
-In England’s off, in Denmark’s off, it’s gonna be off others
-在英格兰取消了，在丹麦取消了，其他地方取消了
-
-Sweden just announced yesterday, Guess what?
-瑞典昨天刚刚宣布，你猜怎样？
-
-The research and the data and the science shows
-研究、数据和科学表明
-
-that children, you know 5-12 kids don’t have to get the vaccine
-你知道5-12岁的孩子们不必接种疫苗
-
-because the dangers of it outweigh the benefits
-因为它的危害大于好处
-
-the dangers of it outweigh the benefits
-它的危害大于好处
-
-suck on that Tony Fauci
-想想吧托尼·福奇
-
-* * *
-
-Date:01/30/2022
-原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
-史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-原视频日期：2022/01/30
-原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
-任务编号：KE377（3637）
-视频时间段 : 0:00-0:45
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
 
  
 
