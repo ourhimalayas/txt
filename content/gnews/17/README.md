@@ -2,46 +2,45 @@
 ---
 
 
-## 游戏结束了吗？维也纳宪法法官在对政府进行制约吗？
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1952221/)
+## 3名多伦多男孩失踪，警方要求公众帮助寻找他们
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952228/)
 
-**一直禁忌的爆炸性问题**
+作者：Brooke Houghton
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-10.jpg)
+多伦多警方罕见连发三名多伦多少年失踪信息，警方表示担心三人的安全，呼吁公众提供线索帮助寻人。
 
-作者：克里斯-维伯（Chris Veber）
+据报道，这三名年龄相近的青少年于1月29日至1月31日大约在同一时间失踪。根据多伦多警察局的一条推文，据信其中两个男孩可能在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-41.jpg)
+据警方新闻稿称， 15岁的Keon Regalado和13岁的Noah Aisosa Oseki最后一次露面是在1 月29日晚上9点，地点是在Finch Avenue West和Weston Road附近 。警方认为他们可能在一起。
 
-翻译：英喜德语组 Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image.tiff)图片来源：Reitschuster
-一切都结束了。2022年1月26日，奥地利宪法法院（VfGH）启动了一项法规审查程序，并向奥地利卫生部长发出了一系列质问，其中的问题直到现在，都是绝对禁忌的，会从根本上撼动 “大流行病 ”的根基。卫生部长必须在2022年2月18日前回答这些问题，这也会是奥地利 “大流行病 “的结束日期。
+警方描述Regalado身高5英尺4英寸，体重130磅，身材苗条，最后一次被人看到时身穿绿色/黑色冬季外套、黑色裤子、白色跑鞋，头发梳成辫子。
 
-具体而言，宪法法院希望了解住院和死亡数字是否涵盖所有受感染者。是患有新冠还是新冠只是伴随症状的老问题。如果所有检测结果呈阳性的人都被计算在内，宪法法院想知道其中的理由。
+警方描述Oseki身高6英尺2英寸，体重130磅，身材瘦弱。他最后一次露面是在周六，身穿黑色耐克夹克、黑色裤子和黑色耐克Airmax鞋。
 
-此外，宪法法院希望得到新冠死亡和住院的详细情况。冠状病毒的原因在哪里？哪里只有毫无意义的 “阳性 ”测试？它甚至问到了死亡和住院的年龄！
+周二下午，警方公布了第三名失踪男孩Sheldon Gordon的照片，但并未说明案件是否相关。
 
-卫生部长还必须为要求戴FFP2口罩的合理性提供证据。
+据报道，16岁的Sheldon Gordon最后一次露面是在1月31日晚上9点30分，地点在Jane Street和Sheppard Avenue West附近 。
 
-（对制药黑手党来说）棘手的问题来了。宪法法院认为死于新冠的风险为0.15%，问到，如何理解疫苗接种的绝对和相对风险降低。宪法法院想知道，在接种一次、两次或三次疫苗后，绝对风险降低值有多高。说95%有效，这个谎言已经到头了。
+来源：https://www.narcity.com/toronto/3-toronto-boys-are-missing-police-are-asking-for-the-publics-help-to-find-them
 
-更有意思的是：“未接种疫苗者的大流行病 “正在受到质疑。卫生部长必须回答 “保护性接种”在多大程度上降低了感染、生病和传播的风险。因为 “从科学的角度来看，接种过新冠疫苗的人也会感染Sars-Cov-2、得新冠并传播Sars-Cov-2”。
+（文章仅代表作者个人观点）
 
-接下来是对卫生部长来说危险的部分。宪法法院希望了解患病后和接种疫苗后的住院风险，并按年龄组和接种疫苗的次数进行细分。这里开始涉及疫苗接种副作用的问题，到目前为止，这些副作用一直被漠然无视。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-即使是 “对未接种疫苗者的封锁 “也没有放过。宪法法院问，如果没有这种封锁，床位占用率会高出多少。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
-对政府来说，最致命的问题出现在最后。宪法法院问，虽然2021年得新冠死亡的人数减少，但每周的过高死亡率仍为三位数，这是否正确，如何解释这种过高的死亡率。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-自“大流行病”开始以来，横向思维者、胡说者和“复仇者”提出了所有这些问题， 在被收买的媒体和顺从的专家们的大力帮助下，政府对这些问题置之不理。这一切现在该结束了。 政府必须回答宪法法院的问题。
+**关注我们**
 
-我觉得，回答这些问题会结束 “大流行病”，也会结束政府。看来我们又侥幸的逃过了一劫。让我们不要忘记这个教训。自由永远不会戏剧性地消亡。它会一点一点地死去。我们决不能把它视为理所当然。我们必须为之奋斗! 一直坚持，直到那些当权者被戴上手铐从各自的岗位上被带走为止。
+Discord 账号
 
-原文链接：[https://reitschuster.de/post/game-over-setzen-wiens-verfassungsrichter-die-regierung-matt/](https://reitschuster.de/post/game-over-setzen-wiens-verfassungsrichter-die-regierung-matt/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-校对：貓聲/发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+Gettr 账号
 
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

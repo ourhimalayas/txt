@@ -2,63 +2,86 @@
 ---
 
 
-## 因收费开疫苗豁免证明桑希尔医生的执照被吊销
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952354/)
+## 全球疫情更新（疫苗讨论的舆论攻防）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1952470/)
 
-作者：Kim Zarzour
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-29.png)
-曾在列治文山一家诊所给民众开具可豁免打疫苗医学证明的医生，日前被勒令暂停从医。
+**整理/编辑：枳实**
 
-这名医生Dr. Christopher Hassell被安省内外科医学会CPSO要求，从1月27日晚11点59分开始暂停行医执照。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-144.png)图片：雅典娜农场设计组 精灵蓝
 
-Hassell在去年九月时，因为许多人来到他所在诊所York Medical Clinic门外排队，等着购买他开具的疫苗豁免医学证明，他被勒令不能在该诊所内会诊。
 
-同时，他也被发现于一个网站上一再散布有关新冠病毒的迷思和阴谋论，并建议使用抗寄生虫药物伊维菌素来治疗新冠。CDC疾控中心已经警告，这种做法是未被证明且危险的。
+雅典娜疫情更新（2022年 2月3日）
 
-该医学会从去年11月5日开始正式禁止这名医生参与与新冠有关的活动，他不能再开具豁免打疫苗、戴口罩、进行检测的医学证明，也不能开伊维菌素的处方药等。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-现在该医学会决定对这名家庭医生采取最严厉的措施，禁止他执业或会诊病人。
+**一，全球疫情基本数据**
 
-该医学会发言人Shae Greenfield在28日表示，该医学会是根据Regulated Health Professions Act法案中的Health Professions Procedural Code条例来颁布这项禁令。在有证据表明医生的做法很可能或已经对病人造成伤害的时候，医学会就有权这样做。
+感染总数：384,167,077（日新增3,081,425，14天增幅-1%）
 
-据报道，这名医生Hassell在去年11月被禁止于该诊所会诊后，仍然发布未经证实的医学建议及诊治手法。
+死亡总数：5,697,479（日新增10,143人，14天增幅 +36%）
 
-在某网站上，该医生还发布广告称，“可以治疗疫苗造成的损伤”，并接受预约来提供建议。有需要者可以通过OHIP健康卡或私人付费（15分钟50元，提前付款）来看诊。
+**二，全球“疫苗”毒针统计数据**
 
-网站上写道，“在消失了几个月后，我很高兴现在能够在有预约的情况下，以视频或上门服务的方式，为您提供建议。”
+“疫苗”毒针注射总数：101亿
 
-不过后来该网站修改了说明，“安省医学会CPSO在1月27日暂停了我的行医执照，并勒令我不能发布任何细节。目前我不知道这项禁令会持续多长时间，我会尽力争取，请随时回到这个网站查询进展。”
+完全“接种”：41.7亿人
 
-在去年九月许多人前来购买疫苗豁免证明的时候，Hassell未作出回应，仅在网站上表示，“我的许多病人对强制疫苗政策越来越不满，他们认为这是一种实验性的基因疗法。虽然CPSO医学会对我提出了警告，但我还是认为这是我的责任来给这些受困扰的人出具这些豁免证明，并以开出这种安全且有效的药物的方式等来帮助他们降低风险。”
+完全“接种”百分比：53.4%
 
-发言人Greenfield表示，Hassell是40多名因发布有关新冠错误言论而受调查的医生之一，也是被限制执业或暂停执照的7位医生中的其中一位。
+**三，澳洲疫情和“疫苗”数据**
 
-“作为医生，滥用人们对自己职务的信任来推广不受支持且未经证实的治疗方法，或者损害公共卫生措施的做法是让人不能接受的，” Greenfield说道。
+感染总数：2,645,825（今日新增37,206人）
 
-医生们必须在现有执业标准、法律法规、道德准测及职业操守的指导下，给病人提供诊疗选择。
+死亡总数：3,989人（今日新增 85人）
 
-“我们非常严肃地对待这类事件，对于任何令人担忧的行为，我们将继续展开调查并采取适当措施。”
+每万人感染人数：1025.5692人
 
-来源：https://www.yorkregion.com/news-story/10563790-college-of-physicians-and-surgeons-suspends-thornhill-doctor-s-licence/
+“疫苗”毒针注射总数：50,449,872（今日新增256,965   针）
 
-（文章仅代表作者个人观点）
+完全“接种”： 19,285,421人
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+第二针“接种”百分比：78.8%
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+16岁以上人口接种至少两剂疫苗的比例：93.5%
 
-**关注我们**
+加强针总数：8,418,676（日新增：226,997针）
 
-Discord 账号
+**四，疫苗讨论的舆论攻防**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+2022 年 2 月 2 日，《每日邮报》发表了一篇文章，歪曲报道乔·罗根 (Joe Rogan)对马龙博士和麦卡洛医生的访谈。今天[马龙博士撰写博客文章](https://rwmalonemd.substack.com/p/the-truth-about-the-daily-mail-article)，对这篇报道做出了逐条反驳。这篇文章虽然只是为了辩驳和回应《每日邮报》文章，但事实上总结了自然免疫，羟氯喹，伊维菌素的研究，心肌炎心包炎发病率等各方面的论文和文献索引，是非常好的搜寻疫苗真相相关文献的起始点。
 
-Gettr 账号
+这篇文章的开头就引用《每日邮报》文章的话：“1 月 10 日，超过 250 名医生签署了一封致 Spotify 的公开信，题为：《全球科学和医学界呼吁实施错误信息政策》”，指出这些签署者实际上中有只有少数是医生，大多数只是护士、实习生和播客主播。相比之下，揭穿中共病毒疫苗毒针真相的[国际医师和医学科学家联盟（马龙博士担任主席）拥有超过 17,000 名经过验证的医师声明签署人，他们都是医师​​和医学科学家。](https://globalcovidsummit.org/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+文章中的内容非常丰富，还有无数的细节和引证，篇幅所限，就不详细介绍了。对于被“主流媒体”洗脑，对毒疫苗充满信任的，但愿意花时间研究阅读思辨，寻找真相的人们，尤其是孩子们来说，这篇博文相当适合阅读。毕竟，毒疫苗的推行正是以科学之名，而科学有别于宗教之处，不正是科学就是在质疑中步步推进的吗？中共病毒疫苗是有效还是有害，这既然是科学问题而非宗教教义，当然就可以被质疑和讨论，毕竟已经有如此多的医生和科学家宁愿冒着丢掉自己的行医执照和科研经费的风险也要站出来反对毒疫苗了。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,24 +2,24 @@
 ---
 
 
-## 芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952092/)
+## 中共黨魁習近平將一意孤行入侵臺灣
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1952096/)
 
-撰稿：随心所在
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020206.jpg)
-原定代表芬兰政府前往北京参加冬奥会的科学和文化部长安蒂·库尔维宁（Antti Kurvinen），2月2日宣布他以个人名义取消北京冬奥会之行。该部长在他的推特账户上证实了此事，称撤销决定并非基于政治抵制。“ 我自己做出了决定，这与外交政策无关“，他在推文中强调。
+采編撰稿：Quitman
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image-3.png)
+據[GTV]1月30日文貴直播報道，中共黨魁習近平不明時務，不自量力，一意孤行地準備戰攻占臺灣，不僅想以此成為當代的秦始皇，更圖謀能徹底穩固其黨內政權，並讓習氏江山能千秋萬代。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-227.png)[推文链接](https://twitter.com/kurvisentwiit/status/1488868591470526470)
+報道指出，習近平當局已計劃在占領臺灣後，將臺灣經濟繁榮和出產關鍵芯片的西部包括臺中，臺南和高雄地區的大部分人口遷移到中共國大陸集中營，並將福建省居民和深圳高科技人員移居到臺灣西部以控製經濟和芯片產業。同時，將臺灣東部變成遏製日本和挑戰美國的太平洋軍事基地。
 
-这是第一个芬兰部长级官员由于冬奥会的新冠病毒检疫和感染风险宣布取消奥运之旅。在接受Suomenmaalle采访时，他证实了自己担心暴露于疫情环境的风险以及随后一周多的隔离不便，他认为放弃行程的决定是正确的。“在国外被隔离十天这增加了风险，我不接受”，库尔维宁对Suomenmaalle说。
+為此，在美國不參與的情況下，如果西方對中共因入侵臺灣而實施經濟製裁之後，中共國的GDP將從現有的15萬億美元驟降至5萬億美元，而最終導致其經濟和政權的徹底崩潰。
 
-库维宁认为从芬兰直飞北京的航班已经被取消，改为换乘航班并必须在机场等待九个小时，这会增加他感染新冠病毒的风险，“这并不是一次安全的旅程。”
+此外，如果歐美一旦介入並開動包括日本加入的代理人戰爭，那麽共軍將會有至少50萬年輕人無辜成為習近平的炮灰。但在目前的共軍高層內，除了總加速師外，無一人相信真的會打臺灣，更無人認為會打贏和有開戰的必要。
 
-库维宁还表示，该解决方案也受到以下事实的影响：在冬奥会期间，与办公室管理相关的赛场外会议无法在现场举行。
+校對編輯：硫酸羥氯喹64
 
-新闻链接：[Ministeri Kurvinen peruu sittenkin Pekingin olympiamatkansa – “Tein ratkaisuni itse”](https://www.msn.com/fi-fi/uutiset/other/ministeri-kurvinen-peruu-sittenkin-pekingin-olympiamatkansa-tein-ratkaisuni-itse/ar-AAToCPD?ocid=msedgdhp&amp;pc=U531)
+發稿： 苦盡甜來 (文來）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+原文鏈接： https://gtv.org/video/id=61f6900896ba5d73e0bee910
 
  
 

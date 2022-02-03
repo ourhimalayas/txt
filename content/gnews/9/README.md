@@ -2,49 +2,28 @@
 ---
 
 
-## 安大略省夫妇对 3 个月服务费近 $43,000 的煤气费感到震惊
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952288/)
+## 荒诞的事在中共国和美国同时上演
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952298/)
 
-作者：Kim Phillips
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-43.jpg)
-一对居住在安大略省Orillia市的夫妇，在收到他们3个月的天然气账单时，感到不可思议，因为账单价格为近43,000元。
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/rsz_gettyimages-51742825-1.jpg)2004年，中ggogongong共国警方将面临死刑的囚犯排成一列/盖蒂图片社
+据华盛顿自由灯塔2月1日报道，
 
-Candace和Bob Shaw说，他们从去年9月份开始就没有收到Enbridge天然气公司的账单。当时他们支付的账单价格非常低——大约26.25元，而通常他们的账单是80元。
+据美联社报道，在2021年4月，中共国的一个法院判处了来自新疆维吾尔族的一名作家沙塔尔·沙吾提（Sattar Sawut）死刑，以及另外两人的无期徒刑。所谓罪名是他们编写了导致2009 年维吾尔族针对汉族实施的暴力行为的分裂主义的教科书。这些书描绘了 1940 年左右国民党与少数民族之间的暴力冲突故事。从中共国的官方媒体CGTN播放被判处无期徒刑的认罪视频可以明显的看出，这是充满中共国特色的被迫认罪。
 
-Candance说，当他们10月和11月没有收到账单时，她在12月打电话给Enbridge。天然气公司告诉他们账户出了问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新疆维吾尔自治区教育厅厅长沙塔尔·沙吾提.jpg)
 
-她说公司派人上门读取了燃气表数字，随后告诉他们会在1月寄送到账单。
+与此同时，位于大洋彼岸的美国的田纳西州的学校董事会作出了同样令人汗颜的举动：将课本中的一部关于描写大屠杀的图画小说《鼠》进行删除。其给出的理由是，这个小说包含了亵渎和裸露的内容。除此之外，还有不少其他的类似禁令的例子时有发生，比如纽约时报就报道过学校图书馆的管理员被指控储存了某些不当书籍，以及州立法机构提出法案对含有色情或种族分裂内容的书籍进行删除。更令人不可思议的是，就连获得了普利策奖的小说《杀死一只知更鸟》都被华盛顿一个被誉为自由学区的地方从他们的课本中进行了删除，其原因是这本书 “意图构造白人救世主”这样荒诞的理由。
 
-Candance说，在收到9月中旬至1月中旬的天然气账单后，她彻夜难眠，而且非常震惊。因为账单金额居然为42,625.24元——约为他们41年的平均服务费。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/download-2.jpg)
 
-这对70多岁的夫妇说，以前在冬天天然气账单可能会多一些，大概为200元左右。但与这张账单上面平均每个月数千元的花费相差甚远。
+课程变更不会影响书籍的出版，而且通常会促进销售。在麦克明地区学校董事会撤下《鼠》之后，这部漫画小说的销售额非但没有因此而减少，反而促其登上了畅销书榜首。
 
-在给CTV新闻的一封电子邮件中，Enbridge说这个账单数字显然是不正确的，这可能与新的计费系统的问题有关。
+新闻来源：[In America, Books Get ‘Banned.’ In China, Authors Get the Death Sentence.](https://freebeacon.com/latest-news/in-america-books-get-banned-in-china-authors-get-the-death-sentence/)
 
-“我们在2020年7月引入了一个新的计费系统，可能有一些情况，以前计费系统的数据没有正确转移过来。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
-该公司表示，他们将从Shaws账户中删除该账单，并对造成的不便表示歉意。
 
-来源：https://barrie.ctvnews.ca/ontario-couple-shocked-by-nearly-43-000-gas-bill-for-3-months-service-1.5763279
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

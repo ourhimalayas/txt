@@ -2,45 +2,24 @@
 ---
 
 
-## 3名多伦多男孩失踪，警方要求公众帮助寻找他们
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952228/)
+## 中共国再显其本色：不要脸
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952250/)
 
-作者：Brooke Houghton
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-10.jpg)
-多伦多警方罕见连发三名多伦多少年失踪信息，警方表示担心三人的安全，呼吁公众提供线索帮助寻人。
+撰稿：小毛牛
 
-据报道，这三名年龄相近的青少年于1月29日至1月31日大约在同一时间失踪。根据多伦多警察局的一条推文，据信其中两个男孩可能在一起。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-41.jpg)
-据警方新闻稿称， 15岁的Keon Regalado和13岁的Noah Aisosa Oseki最后一次露面是在1 月29日晚上9点，地点是在Finch Avenue West和Weston Road附近 。警方认为他们可能在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/thediplomat_2022-02-01-191514-1.jpg)2022年1月30日北京，中共国男子冰球队于训练中。图片：Petr David Josek摄/美联社资料
 
-警方描述Regalado身高5英尺4英寸，体重130磅，身材苗条，最后一次被人看到时身穿绿色/黑色冬季外套、黑色裤子、白色跑鞋，头发梳成辫子。
+由于作为冬奥会主办国有个特别的好处：自动获得男子冰球锦标赛的席位。可当中共国在获得2022年冬季奥运会的举办权时，他们发现号称泱泱大国十多亿人口的体育大国却组建不了一支像样的冰球队。当然，这难不倒向来拿老百姓的钱挥金如土的中共国，一个字，买！
 
-警方描述Oseki身高6英尺2英寸，体重130磅，身材瘦弱。他最后一次露面是在周六，身穿黑色耐克夹克、黑色裤子和黑色耐克Airmax鞋。
+在中共国拿到冬奥会举办权后的仅仅八个月，从世界各地搜罗混搭了一支长着亚洲脸庞的冰球队——昆仑红星（24名队员中有超过一半来自外国友人：11名加拿大人、3名美国人、1名俄罗斯人和9名中国人）。果然，金钱的力量是巨大的，在2016年，红星队正式出战了大陆冰球联赛（KHL），这是仅次于北美国家冰球联赛（NHL）的世界第二大冰球联赛。然而，这支球队在第一年进入了分区四分之一决赛后，金钱的威力视乎在衰减，从那之后，这支球队便从未进入过KHL 季后赛。令人吃惊的是，这支买来的球队在最近的一个赛季中，排名竟然垫底了……
 
-周二下午，警方公布了第三名失踪男孩Sheldon Gordon的照片，但并未说明案件是否相关。
+国际冰联主席卢克•塔迪夫在 9 月告诉法新社如下的话：如果中共国被排除在自己的比赛之外，那将是奥运会历史上的第一次。这在一个视面子至关重要的文化中，将是一个令其无法容忍的结果。这位国际冰联主席的担忧在 12 月初得到了验证，当时国际冰联确认代表中共国的昆仑红星排名世界第 32 位。
 
-据报道，16岁的Sheldon Gordon最后一次露面是在1月31日晚上9点30分，地点在Jane Street和Sheppard Avenue West附近 。
+根据冬奥会的安排，中国男子冰球队预赛被安排在A组，同组的外国球队有美国队、加拿大队和德国队。2月10日晚上，中国队将迎战美国队。中国队的成绩不容乐观，当然，除非中共国去“蓝、金、黄”比赛的裁判，否则对中国奖牌榜作出贡献的可能性微乎其微。。
 
-来源：https://www.narcity.com/toronto/3-toronto-boys-are-missing-police-are-asking-for-the-publics-help-to-find-them
+新闻来源：[China Recruited Canadians to Avoid Embarrassment on the Olympic Ice](https://thediplomat.com/2022/02/china-recruited-canadians-to-avoid-embarrassment-on-olympic-ice/)
 
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 
