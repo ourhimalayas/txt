@@ -2,24 +2,35 @@
 ---
 
 
-## 疫苗灾难将引发欧盟各国的联合灭共战争
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1951921/)
+## 中共国男足再次无缘世界杯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951940/)
 
-采编： 文莱       撰稿：Quitman
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image.png)
-据1月30日GTV文贵直播报道，随着“中共病毒”疫苗伤害所导致的次生灾难即将大规模来临，欧盟各国领导人，为延续各自的政治生涯，必将联合发动剿灭中共政权的自救战争。
+作者：纽约香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
 
-文贵先生对此表示，由于疫苗导致的大量死亡，现已有无数美国人聚集在白宫对面的林肯纪念堂，抗议当局及主流媒掩盖医学灾难真相并体利用MRNA疫苗进行的大屠杀。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
 
-此外，如果疫苗灾难一旦被美加日等最终确定，欧洲那些最严厉执行疫苗接种措施的政客们，例如法国总统马克龙，德国总理默克尔，英国首相约翰逊等，都将受到国内民众的激烈报复和讨伐，谁都无法逃避被追责和审判的结局。
+对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
 
-但这些欧洲国家的独裁者们绝不会坐以待毙，他们必将联合在一起，无可选择地对中共发起最后的自救战争，并利用该政权为其替罪羊，以转移国内群情激荡的愤怒和仇恨情绪。而[新中国联邦]将成为最终打扫战场的唯一胜利者。
+参考链接：
+1）[https://gwins.org/cn/milesguo/21801.html](https://gwins.org/cn/milesguo/21801.html)
+2）[20180627之2 ：一边抽雪茄一边直播（第二段）](https://www.youtube.com/watch?v=C5iihj7zNqM)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-发稿： 苦尽甜来 (文来）
+总编：文特
+编辑：文特
+校正/发稿：谐趣园
 
-新闻来源： https://gtv.org/video/id=61f6900896ba5d73e0bee910
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@miles 2/1/2022 11:34 AM (UTC)`
+
+⚠️⚠️Timeline of The New Federal State of China About the CCP Virus And COVID Vaccine Disaster Warning<br/><br/>The #NFSC has always been committed to the truth and saving lives by exposing CCP's evil nature and the fact that they created the #CCP virus killing millions of people worldwide. The NFSC has also been spreading COVID therapeutics and related medications to the world, as well as the real purpose of COVID vaccines. All the facts prove what the CCP did has nothing to do with the Chinese people, the CCP cannot represent the Chinese people, who are also the victims.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警的时间线<br/><br/>#新中国联邦 一直致力于揭露中共邪恶本质，揭露他们制造 #中共病毒 已经在全世界造成数百万人死亡的事实，从而揭示真相，拯救生命。新中国联邦也一直在向全世界传播 #CCPVirus 治疗方法和相关药物，以及 #COVID 疫苗的真实目的。所有事实证明，中共的所作所为与中国人民无关，中共不能代表中国人民，中国人民也是受害者。
+![img](https://media.gettr.com/group8/origin/2022/02/01/11/b65bdc52-ffd9-94cb-5393-e69830ecfb38/out.jpg)
+
+---
+
 `@miles 2/3/2022 4:08 PM (UTC)`
 
 2月3号：尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害⚠️正在被更多的人认清真相，并且将带动全球病毒溯源停止疫苗灾难的大运动💪……全球灭共全面开始！共产党你玩球蛋了！
@@ -147,13 +156,6 @@
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Mr. Miles Guo proposed a new “7 Principles”for 2022 on the live broadcast of the Chinese New Year of the Tiger, to share with all the fellow fighters of New Federal State of China <br/><br/>1/31/2022 文贵虎年新春大直播：郭文贵先生于虎年春节大直播上提出了2022年新“郭七条”，与新中国联邦战友们共勉
 ![img](https://media.gettr.com/group18/getter/2022/02/02/00/0762b768-6a8a-0f83-7274-d78f0c7d4555/out.jpg)
-
----
-
-`@miles 2/1/2022 11:53 PM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: Zhang Gaoli fooled Peng Shuai by using the idea that "the universe is infinite" and thus became the first man to sleep with her. The stories of heroes like Churchill and Mitterrand tell us it is important to be ourselves and not to care how others see us. However, the CCP’s China Central Television (CCTV) is purely brainwashing the people, and everything is just a show<br/><br/>1/31/2022 文贵虎年新春大直播：张高丽用“宇宙无限大”骗彭帅献出第一次；丘吉尔、密特朗等全人类英雄的故事告诉我们要做自己，不要在乎别人怎么看，而CCTV纯粹都是洗脑和演给别人看<br/>
-![img](https://media.gettr.com/group40/getter/2022/02/01/23/c0a6521f-2774-8933-9559-b73738990214/out.jpg)
 
 ---
 

@@ -2,26 +2,38 @@
 ---
 
 
-## 军队开始驱逐不愿打疫苗的士兵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1951741/)
+## 封锁与疫苗被证实无效 政府应向民众致歉
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951798/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-8.jpg)
-图片来源：3g.163.com
-美国合众国际社新闻2月1日报道，美国军队周三宣布它将立刻赶走那些决定不打新冠病毒疫苗者。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据多家媒体消息显示，约翰-霍普金斯大学近期发布的一项研究结果表明，在2020年春季的第一波中共病毒大流行期间，严格的封锁措施仅仅将欧美等国家的中共病毒死亡率降低了0.2%。
 
-军事秘书克里斯丁·沃慕斯命令指挥官开始对那些没有获得例外的拒绝打疫苗者进行“非自愿行政分离程序”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9.jpeg)
 
-军队需要士兵随时准备为国参加受训，出发，奋战和赢得战争的胜利，而不接受疫苗的士兵对此表现对战斗力的威胁性和危害到部队的随时准备性。我们将对那些没有获得例外准许的不愿接受疫苗的士兵开始非自愿行政分离程序。
+据悉，此项研究涉及的项目包括学校停课、企业倒闭和强制戴口罩等封锁措施。而相关研究的结果指出，封锁对于公共卫生而言几乎没有任何用处，但这些封锁措施却给各国带来了巨大的经济和社会成本。
 
-绝大多数军队服务人员已经完全接种，96%-97%的人至少打了一针，在军队预备役中有79%的人已完全接种，83%的人至少打了一针。
+当天，约翰-霍普金斯大学的顶级医学博士麦克利也其社交媒体上表示，越来越多的研究证明，在中共病毒大流行期间，自然免疫比中共病毒疫苗更加有效且持久。麦克利博士强调，政府目前推行的疫苗强制令完全不尊重临床数据研究，实际上，拥有自然免疫力的民众不应该被强制要求接种中共病毒疫苗。
 
-目前有3300位军队服务人员拒绝疫苗，3073人已收到训诫，5870人获得临时例外，还有些人正在等待请求例外的决定。
+对此，评论人士则表示，民众不但应该拒绝政府将强制封锁作为应对中共病毒大流行的工具与措施，那些因拒绝接种中共病毒疫苗而被解雇的工人更应该被恢复工作，且政府与企业主应该向他们道歉。
 
-目前还没有对任何不服从疫苗接种的士兵实施非自愿行政分离程序，但目前已解除了6名常规军事指挥官，包括两名营级指挥官。
+参考链接：
+1）[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+2）[Lockdowns only reduced COVID-19 death rate by .2%, study finds: ‘Lockdowns should be rejected out of hand’](https://www.foxnews.com/us/lockdowns-reduced-covid-19-mortality-by-2-study-finds-lockdowns-should-be-rejected-out-of-hand)
 
-##### 新闻来源： [Army to begin expelling soldiers who refuse COVID-19 vaccine](https://www.upi.com/Top_News/US/2022/02/02/Army-vaccine-COVID-19-separation/3241643828573/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Ivy001 
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
