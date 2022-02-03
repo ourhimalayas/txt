@@ -2,26 +2,31 @@
 ---
 
 
-## 土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949759/)
+## 加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949760/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部 – Naughty(文行)；台灣寶島農場 – dobi
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-土耳其当地媒体报道，土耳其卫生部1日晚间公布疫情通报显示，过去24小时有10万余起中共病毒确诊病例，198例死亡病例。 土耳其中共病毒单日病例数2月1日首度超过10万，与疫苗接种率同创新高。 土耳其目前18岁以上人口的两剂、单剂接种率分别为84.46%、92.54%，有近2513万人已施打第3剂。
+加拿大总理杜鲁道1月31日在推特证实自己确诊了中共病毒，也随即展开隔离防疫。 据了解，杜鲁道去年已接种过两剂疫苗，今年1月也接种第三剂了。 面对中共病毒的威胁，加拿大政府祭出多项限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-3.jpg)
 
-土耳其近日因为奥米克戎变异株迅速传播而造成中共病毒病例数大幅攀升，这几天几乎每天刷新纪录，但是住院率较以往明显偏低。 卫生部2019冠状病毒科学咨询委员会委员欧达巴许告诉记者，从目前情况看，奧米克戎致死率不到Delta变异株的1/5，但奧米克戎变异株仍具危险性，几乎每天都有上百人因感染奥米克戎死亡。
+加拿大媒体2月1日报道安格斯·里德研究所公布的一项民调结果，该研究所是专门从事加拿大舆论研究的机构。 民调显示，54%的受访者同意结束所有疫情相关的限制，另有32%的人表示强烈同意。
+
+安格斯·里德研究所表示：”如果加拿大已经度过了奥密克戎变体的最糟糕时期，公众情绪似乎正朝着开放社区的方向发展”。
+
+萨斯喀彻温省省长斯科特·摩尔在1月29日发表的声明中说，他将 “很快结束该省的测试证明和疫苗护照政策”。 接种疫苗并不能减少病毒的传播，他已经完全接种了加强针，但最近感染了COVID-19。
 
 参考链接：
 
-- [土耳其病例攀升 單日確診數首破10萬例大關](https://topic.rti.org.tw/COVID-19/archives/65760)
+- [Canadian attitudes are shifting to living with COVID-19: poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
+- [Majority of Canadians Want All COVID-19 Restrictions to End: New Poll](https://www.theepochtimes.com/majority-of-canadians-want-all-covid-19-restrictions-to-end-new-poll_4248078.html?utm_source=morningbriefnoe&amp;utm_medium=email_MB&amp;utm_campaign=mb-2022-01-31&amp;utm_content=News_Majority_of_Canadians&amp;est=rmqxOXiuEbJBB8bq8OP7FOrSKP8pjod6Rjdwv%2FWKPOG8lAcXELbw7Ty8Qbnhc50AsQ%3D%3D)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：文特
-编辑：文徬
+总编：Irene木木
+编辑：飞虹、zhong
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

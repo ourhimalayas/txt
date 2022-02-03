@@ -2,22 +2,24 @@
 ---
 
 
-## 德国总理表示将不会出席2022年北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1949952/)
+## 疫苗的mRNA是病毒
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950028/)
 
-#### 撰稿：彩虹 
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/02/疫苗的mRNA是病毒.png)
+我们要相信人类到达地球到现在，绝对是有主人的。我们连这都不明白的话，你灭不了共，灭了共也没用，就是我们所说的信仰。可怕的是中国人没有信仰，中国人没有信仰的结局很可怕。到了今天，天津看到疫苗，一会儿说疫苗的事情，天津的疫苗，西安的疫苗，郑州的疫苗，武汉的病毒，才能发生如此之悲剧，这就是在喜马拉雅山上有一座山是什么山？就是猪的山，知道什么叫猪的山吗？就把蠢人送去的猪的山。所有统治者都想把所有的人民送到猪的山上去。这个猪的山峰就是重庆人民啊，受到了诅咒，把整个重庆当年刘备管理地方的人变为农业的奴隶。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1.jpg)图片来源：日经亚洲
-2月2日，《国会山报》报道，周三，德国总理奥拉夫·肖尔茨（Olaf Scholz）表示，他将不会出席2022年北京冬奥会。
+再说说疫苗吧，再说下去的话我就把秘密脱口而出了，把秘密告诉你们了。你们都成仙儿了咋办呢？说到这我给说一下啊，有个战友发信息来说我上次直播说的疫苗就是**mRNA**，说这个七哥表达不准确，战友谢谢你啊，咱们从来没说疫苗就是**mRNA**，我们说的是现在所有防病毒疫苗的**mRNA**就是毒。我们不会愚蠢地说**DNA**都是毒，我们身上都是**DNA**，它怎么是毒呢？我们说的现在防病毒疫苗的**mRNA**制造出来的**mRNA**就是信使、枪使。那个东西制造了蛋白脱落，刺突蛋白，那个问题就是毒。
 
-根据路透社的报道，就在奥运会开幕前两天，肖尔茨告诉德国广播公司ZDF（德国电视二台）说：“我没有旅行计划，所以不能假设我将会突然出现（在那里）”。
+*发布：开智则立*
 
-根据文章报道，目前表示参与外交抵制的国家包括美国、台湾、立陶宛、英国和澳大利亚。德国没有表示它将参与对2022年北京冬奥会的外交抵制，然而，路透社报道说，其他几位德国官员已经表明他们也不会出席北京冬奥会，包括其体育部长和外交部长。
-
-**新闻来源**
-
-[Germany’s chancellor says he will not be at Beijing Olympics](https://thehill.com/policy/international/592573-germanys-chancellor-says-he-will-not-be-at-beijing-olympics)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
