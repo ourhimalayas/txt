@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950220/)
+## 有声|美国军舰虎年首度穿越台海
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950221/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+台媒消息，美国第七舰队31日证实，麾下伯克级神盾飞弹驱逐舰，杜威号，于1月22日穿越台海。据报道，这是2022年为止，美国军舰第1次穿越台湾海峡。
 
+第七舰队发言人西姆斯表示，杜威号在国际水域航行的举动，完全符合国际法。而且，穿越台海也显示了美国对自由开放印太地区的承诺，美国军机和军舰，会飞越或航经任何国际法允许的地方。
 
-文字版原文：[2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1944562/)
+不过，中共方面似乎有不同看法，虽然，中共当日也有派遣军机进入台湾西南空域，但是，中共东部战区新闻发言人施毅却坚持认为，美国才是台海和平稳定的破坏者、台海安全的风险制造者。
+
+文字版原文：[美国军舰虎年首度穿越台海](https://gnews.org/zh-hans/1945240/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

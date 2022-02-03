@@ -2,8 +2,8 @@
 ---
 
 
-## 把不可能变成可能，把可能变成绝对可能
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950621/)
+## 有物质的地方就有Hpay(一)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950677/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

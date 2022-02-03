@@ -2,37 +2,32 @@
 ---
 
 
-## 德国总理肖尔茨宣布不出席北京冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1950445/)
+## 寻求效仿加拿大抗议强制接种中共病毒疫苗的Facebook小组被删除
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1950488/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹
 
-整理：Eileen（围剿维尼熊）
-编辑：Sadhu
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2.jpg)图片来源：福克斯新闻
+2月2日，《国家极限》发布文章，引述福克斯新闻的报道，周三，由于寻求效仿加拿大在全国范围内抗议中共病毒疫苗规定，一个美国卡车司机小组被脸书（Facebook）删除。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-5.png)图片：O-O
+这个名为“2022前往华盛顿”的小组计划协调和组织一个从加利福尼亚到华盛顿的卡车司机车队的抗议活动，这与加拿大卡车司机从该国最西部到其国家首都渥太华的路线一致。
 
+该组织领导人杰里米·约翰逊（Jeremy Johnson）在参加“福克斯朋友”节目时说，他的个人账户也被(脸书)删除了，促使他联系一位民权律师（进行维权）。
 
-据德国之声中文网报道，德国总理肖尔茨2月2日宣布，他不会出席北京冬奥会。但肖尔茨并没有说明他不参加北京冬奥的原因。
+他告诉福克斯新闻说：“他们喜欢让说真话的人闭嘴。”
 
-此前，美国、加拿大、英国和澳大利亚等国家因为中国国内发生的人权侵犯事件，已宣布对北京冬奥进行外交抵制。
+脸书对此回应了福克斯新闻，称该账户“多次违反了我们围绕Qanon组织的政策”，因为Qanon是一种阴谋论，从而导致脸书在2020年大选后对其进行了打击。
 
-德国《每日镜报》1月初时曾报道，肖尔茨不会禁止德国政府人员出席北京冬奥，并指他不想正式对北京冬奥实施外交抵制。
+但是，该组织的联合组织者布莱恩·布拉斯（Brian Brase）对脸书的定性进行了反击。
 
-在此之前，德国外交部长贝尔博克（Annalena Baerbock）与内政部长费泽尔（Nancy Faeser）皆在去年12月时表示，他们已经做出了不参加北京冬奥的个人决定，但这并不反映德国政府的官方立场。
+报道说，尽管被删除，该组织计划继续抗议封锁、强制要求戴口罩和接种中共病毒（COVID-19）疫苗。约翰逊和布莱斯说，“所有性别、所有种族、所有性取向、和所有职业 ”的美国人都会出来支持他们。
 
-中国外交部去年12月曾表示，那些抵制奥运会的国家将为自己的错误行为付出代价。
+根据最新的信息，布拉斯于2月2日已经在盖特（GETTR）上注册了账号并开始发文。
 
-参考链接：https://www.dw.com/zh/%E8%82%96%E5%B0%94%E8%8C%A8%E5%AE%A3%E5%B8%83%E4%B8%8D%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5/a-60640341
+**新闻来源**
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Facebook Removes US Trucker Group Calling For Vaccine Protest](https://www.newsmax.com/newsfront/censorship-facebook-big-tech-trucker-convoy/2022/02/02/id/1055223/)
 
  
 
