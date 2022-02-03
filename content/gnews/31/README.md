@@ -2,24 +2,24 @@
 ---
 
 
-## 芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1952092/)
+## 中共在美国猖狂的间谍活动令FBI局长惊掉下巴
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1952133/)
 
-撰稿：随心所在
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020206.jpg)
-原定代表芬兰政府前往北京参加冬奥会的科学和文化部长安蒂·库尔维宁（Antti Kurvinen），2月2日宣布他以个人名义取消北京冬奥会之行。该部长在他的推特账户上证实了此事，称撤销决定并非基于政治抵制。“ 我自己做出了决定，这与外交政策无关“，他在推文中强调。
+**釆编****/翻译  意翎   **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-227.png)[推文链接](https://twitter.com/kurvisentwiit/status/1488868591470526470)
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-225.png)
+据《国家脉动》记者娜塔莉·温特斯（Natali Winters）报道，联邦调查局（FBI）局长克里斯托弗·雷（Christopher Wray）承认，中共（CCP）在美国的间谍活动规模令他惊悚，FBI每12小时就会调查一起新的与中共有关的间谍案件，目前正在进行的此类调查超过2000起。
 
-这是第一个芬兰部长级官员由于冬奥会的新冠病毒检疫和感染风险宣布取消奥运之旅。在接受Suomenmaalle采访时，他证实了自己担心暴露于疫情环境的风险以及随后一周多的隔离不便，他认为放弃行程的决定是正确的。“在国外被隔离十天这增加了风险，我不接受”，库尔维宁对Suomenmaalle说。
+雷自2017年起担任联邦调查局局长，他在接受美国全国广播公司采访时表示：“他们的黑客程序的规模，以及他们的黑客窃取的个人和公司数据的数量，比其他所有国家加起来都要多。”这令一向淡定的FBI局长感觉“大吃一惊”。
 
-库维宁认为从芬兰直飞北京的航班已经被取消，改为换乘航班并必须在机场等待九个小时，这会增加他感染新冠病毒的风险，“这并不是一次安全的旅程。”
+采访是在一些备受瞩目的中共间谍案发生后进行的，这则新闻证实了有关“中国鹰派”的说法并非空穴来风，一些人多年以来一直在警告中共对西方的恶意企图，但他们一直被媒体嘲讽为“阴谋论者”。针对CCP间谍，美国政界人士和川普政府的司法部发起了打击他们渗透的“中国行动计划”。拜登(Biden)领导的白宫已经暗示可能终止该项目，最臭名昭著的麻省理工学院陈刚教授间谍案也将撤诉。
 
-库维宁还表示，该解决方案也受到以下事实的影响：在冬奥会期间，与办公室管理相关的赛场外会议无法在现场举行。
+“中共国可能是第一个将这种威权主义野心与尖端技术能力结合起来的国家。这就像是东德的监控噩梦加上硅谷的高科技”，雷说。近年来，包括推特和脸书在内的许多美国社交媒体都向中共示好，派遣高管参加由外国影响力团体主办的在华会议，并将与中共有联系的个人安排为顾问，这些平台聘请的“事实核查员”也得到了与中共有关联的公司的资助。
 
-新闻链接：[Ministeri Kurvinen peruu sittenkin Pekingin olympiamatkansa – “Tein ratkaisuni itse”](https://www.msn.com/fi-fi/uutiset/other/ministeri-kurvinen-peruu-sittenkin-pekingin-olympiamatkansa-tein-ratkaisuni-itse/ar-AAToCPD?ocid=msedgdhp&amp;pc=U531)
+“没有哪个国家比中共国对我们的创新、理念和经济安全构成更大、更严重的威胁”，雷重申。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**[原文链接](https://thenationalpulse.com/2022/02/02/chinese-espionage-blew-me-away-claims-fbi-director-wray/)**
 
  
 

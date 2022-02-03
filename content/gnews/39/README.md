@@ -2,55 +2,38 @@
 ---
 
 
-## 《一帘幽梦》唤醒梦中人
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1951771/)
+## 封锁与疫苗被证实无效 政府应向民众致歉
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951798/)
 
-作者：纽约香草山农场教育部 – 春草
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据多家媒体消息显示，约翰-霍普金斯大学近期发布的一项研究结果表明，在2020年春季的第一波中共病毒大流行期间，严格的封锁措施仅仅将欧美等国家的中共病毒死亡率降低了0.2%。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9.jpeg)
 
+据悉，此项研究涉及的项目包括学校停课、企业倒闭和强制戴口罩等封锁措施。而相关研究的结果指出，封锁对于公共卫生而言几乎没有任何用处，但这些封锁措施却给各国带来了巨大的经济和社会成本。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+当天，约翰-霍普金斯大学的顶级医学博士麦克利也其社交媒体上表示，越来越多的研究证明，在中共病毒大流行期间，自然免疫比中共病毒疫苗更加有效且持久。麦克利博士强调，政府目前推行的疫苗强制令完全不尊重临床数据研究，实际上，拥有自然免疫力的民众不应该被强制要求接种中共病毒疫苗。
 
+对此，评论人士则表示，民众不但应该拒绝政府将强制封锁作为应对中共病毒大流行的工具与措施，那些因拒绝接种中共病毒疫苗而被解雇的工人更应该被恢复工作，且政府与企业主应该向他们道歉。
 
+参考链接：
+1）[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+2）[Lockdowns only reduced COVID-19 death rate by .2%, study finds: ‘Lockdowns should be rejected out of hand’](https://www.foxnews.com/us/lockdowns-reduced-covid-19-mortality-by-2-study-finds-lockdowns-should-be-rejected-out-of-hand)
 
-在2022年1月31日《新中国联邦》的壬寅春节联欢会上，爆料革命的创始人、领路人一郭文贵先生，演唱了三首歌曲：甜蜜蜜、一帘幽梦、灭共的雪，又一次引起了国内外的震动，尤其在国内。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-我把这三首歌曲下载了反复听了几次，几乎每次都使我泪目，每次都有新的感受，越听越感到情绪的激动、灵魂的震颤，这些歌曲的改版刷新了我对音乐的认识，扩展了我的音乐知识和对音乐的理解。以前我对通俗歌曲大部分都不喜欢，认为那就是一些不懂音乐艺术的人们，扯着嗓门渲泄情绪的声嘶力竭的喊声，只要音域宽、声带能拔高音，就能成为歌星。特别是西方的摇滚乐曲，基本上就是普通民众在闲暇时的狂欢或庆祝节日时的娱乐活动。之后，随着七哥主唱的《酒灭中共》等几首歌曲推出有了改变。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-13.jpg)
-七哥唱的这三首歌曲，原来都是女声演唱的、柔美舒缓的抒情歌曲，尽管歌词有颂扬共匪(塞北的雪)的内容，但动人的还是乐曲的旋律、节奏和演唱者对声音掌控的恰当的表现力的结果，不过仍然没有达到震人心魄的效果。之后也有很多女声或男声演唱过，但都未能超越首唱。沒想到，七哥打破了这一纪录。七哥并不是用原唱同类型的演唱技艺创造了这个记录，而是采用了风格迥异的表现形式，以他那演唱摇滚歌曲的、粗犷豪放的嗓音，加了一些演唱技巧，重新诠释了这三首歌曲，达到了前无古人的境界。
-
-我首次听七哥的原版《甜蜜蜜》时就有所触动，比我预想的好很多，但没有震憾我。当听到第二首《一帘幽梦》时就有了强烈的感受，听到一半时控制不住的眼泪就不断流淌；听第三首《灭共的雪》时，心情稍有平复。在他的歌声中，我听到了钟爱、悲痛、哭诉、婉惜、愤怒、呐喊、抗争、拼搏等心声，感受到了爱恨交织、催人泪下、激发勇气、报仇血恨的复杂感情。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-4.jpg)
-七哥总是说自己一唱歌就跑调，一唱就会把人吓跑，我想那是以前的事情了，凡是他公开发行的歌曲都没有跑调现象。这次之所以打动人心，是七哥没有采用以前那种粗犷豪放、激情奔放的表现手段来演唱，而是用了低沉、缓慢、偶有沙哑的声音，加上天生的略带金属音质的嗓音产生的效果。明显地能感觉到七哥在演唱时，有意识地控制气息的强弱和节奏的张弛，有时候还故意延长或缩短某些乐句的时间，特别是那种情到深处哽咽般的演唱，使伴奏的Q妹也得随时微调原有的节奏和旋律(看来她是久经乐场的)，歌词的改编在感情传递方面也起了很大的作用，看来唐平和威廉王是下了很大功夫的(七哥说他们练了上百遍)。
-
-更重要的是七哥是用心在演唱这几首歌曲，是用他几十年的经历，用他全家人的血泪，用全国14亿人民的苦难在抒发自己的情感、控诉中共的罪恶、表达自己不灭共匪誓不罢休的决心。这就是七哥所说的唯真不破的道理，只有真情才能感动人心，生活中是这样，艺术表演也是同样。通俗歌曲和摇滚乐曲就以表达真情实感为主、同时辅以不太难的、适当的演唱技巧的一种表现形式，所以受到了广大平民百姓的喜爱。
-
-我们新中国联邦的战友之所以被感动，是我们和七哥有共同的经历(被中共欺压)、共同的的信仰、共同的目标和共同的未来。随着灭共的第三道大门开启，甜蜜蜜运动的发展，国际形势大转弯，共产党的日子不长了。但我们不能松懈，在保护好自己和家人的同时，让更多的国人知道新中国联邦，知道病毒和疫苗的真相，坚持到去盘古相聚的那一天。
-
-以上只是个人的体会。
-
-编辑/校对/发稿：为真不破20
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
+总编：Ivy001 
+编辑：静言
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

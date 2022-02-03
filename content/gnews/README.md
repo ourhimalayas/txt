@@ -15,122 +15,122 @@
 
 ---
 
-### [中共国是美国有史以来面临的最大对手](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中俄正在形成很危险的伙伴关系](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新西兰科学家在辉瑞疫苗中发现奇怪纳米结构](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [依赖俄罗斯是坏事？准备好迎接等待我们最大的挑战是中共国（一）](/content/gnews/4/README.md)
+### [加拿大首都数千人和平抗议 警方未报告暴力事件](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [索罗斯希望习近平在冬奥会期间或之后不久下台](/content/gnews/5/README.md)
+### [美国称ISIS头目库莱希在突袭叙利亚时自杀身亡](/content/gnews/2/README.md)
+ ` Shuizhuyu`
+
+### [白宫发言人回答关于美国冬奥运动员在华安全问题](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [DC每日热点0203](/content/gnews/6/README.md)
+### [北京奥运会将成为中共国情报收集的金矿](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [依赖俄罗斯是坏事？准备好迎接等待我们最大的挑战是中共国（二）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国是美国有史以来面临的最大对手](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中俄正在形成很危险的伙伴关系](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新西兰科学家在辉瑞疫苗中发现奇怪纳米结构](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [依赖俄罗斯是坏事？准备好迎接等待我们最大的挑战是中共国（一）](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [索罗斯希望习近平在冬奥会期间或之后不久下台](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [DC每日热点0203](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国总理未规划出席北京冬奥会](/content/gnews/7/README.md)
+### [德国总理未规划出席北京冬奥会](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [【信仰之声】七哥所说“圣经中的香草山”是什么？](/content/gnews/8/README.md)
+### [【信仰之声】七哥所说“圣经中的香草山”是什么？](/content/gnews/13/README.md)
  ` 纽约香草山MOS03`
 
-### [MV版Hcoin To the Moon上线56天第43次位列澳门iTunes热门MV榜首](/content/gnews/9/README.md)
+### [MV版Hcoin To the Moon上线56天第43次位列澳门iTunes热门MV榜首](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [官方数据显示病毒死亡率与接种剂量相关](/content/gnews/10/README.md)
+### [官方数据显示病毒死亡率与接种剂量相关](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中国外交部发言人赵立坚警告美国不要向台独势力发送错误信号](/content/gnews/11/README.md)
+### [中国外交部发言人赵立坚警告美国不要向台独势力发送错误信号](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国要求所有参加奥运会的人使用“我的2022”应用程序，引发隐私担忧](/content/gnews/12/README.md)
+### [中共国要求所有参加奥运会的人使用“我的2022”应用程序，引发隐私担忧](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英国将终止将疫苗接种作为在卫生护理环境中上岗的条件](/content/gnews/13/README.md)
+### [英国将终止将疫苗接种作为在卫生护理环境中上岗的条件](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全球疫情更新（疫苗讨论的舆论攻防）](/content/gnews/14/README.md)
+### [全球疫情更新（疫苗讨论的舆论攻防）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [因收费开疫苗豁免证明桑希尔医生的执照被吊销](/content/gnews/15/README.md)
+### [因收费开疫苗豁免证明桑希尔医生的执照被吊销](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [2.2.22大直播后记：梵蒂冈的袖扣代表地位](/content/gnews/16/README.md)
+### [2.2.22大直播后记：梵蒂冈的袖扣代表地位](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [来自澳大利亚全国各地的卡车司机正前往首都抗议疫苗强制令](/content/gnews/17/README.md)
+### [来自澳大利亚全国各地的卡车司机正前往首都抗议疫苗强制令](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年2月2日 《文贵大直播 》全文字版](/content/gnews/18/README.md)
+### [2022年2月2日 《文贵大直播 》全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [新西兰政府以高于市场价50%价格购买辉瑞疫苗](/content/gnews/19/README.md)
+### [新西兰政府以高于市场价50%价格购买辉瑞疫苗](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [荒诞的事在中共国和美国同时上演](/content/gnews/20/README.md)
+### [荒诞的事在中共国和美国同时上演](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [大多伦多地区公寓均价飙升至$700,000以上](/content/gnews/21/README.md)
+### [大多伦多地区公寓均价飙升至$700,000以上](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [安大略省夫妇对 3 个月服务费近 $43,000 的煤气费感到震惊](/content/gnews/22/README.md)
+### [安大略省夫妇对 3 个月服务费近 $43,000 的煤气费感到震惊](/content/gnews/27/README.md)
  ` MG FARM`
 
-### [市议会可能要求省征收房屋投机税以应对飙升的房地产市场](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [中共国再显其本色：不要脸](/content/gnews/24/README.md)
+### [中共国再显其本色：不要脸](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共的春晚是宣称假大空的精神毒药](/content/gnews/25/README.md)
- ` 焦點20分`
-
-### [游戏结束了吗？维也纳宪法法官在对政府进行制约吗？](/content/gnews/26/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [美国陆军开始遣散拒绝接种新冠病毒疫苗的士兵](/content/gnews/27/README.md)
+### [美国陆军开始遣散拒绝接种新冠病毒疫苗的士兵](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国会议员因北京冬奥，正寻求剥夺国际奥委会的免税地位](/content/gnews/28/README.md)
+### [美国会议员因北京冬奥，正寻求剥夺国际奥委会的免税地位](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共在美国猖狂的间谍活动令FBI局长惊掉下巴](/content/gnews/29/README.md)
+### [中共在美国猖狂的间谍活动令FBI局长惊掉下巴](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2/3银河快讯:中共外交部抗议日本众院人权决议;日本滑雪运动员在北京冬奥会检测阳性](/content/gnews/30/README.md)
+### [2/3银河快讯:中共外交部抗议日本众院人权决议;日本滑雪运动员在北京冬奥会检测阳性](/content/gnews/32/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行](/content/gnews/31/README.md)
+### [芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
 
-### [专家组报告“哈瓦那综合症”电磁波是否是部分原因](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [从徐州八孩女子事件看中共大外宣的罪恶](/content/gnews/33/README.md)
+### [从徐州八孩女子事件看中共大外宣的罪恶](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [科学家开始对中共病毒来自实验室理论直言不讳](/content/gnews/34/README.md)
+### [科学家开始对中共病毒来自实验室理论直言不讳](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2022年2月3日早](/content/gnews/35/README.md)
+### [GTV新闻访谈简报|2022年2月3日早](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [中共国男足再次无缘世界杯](/content/gnews/36/README.md)
+### [中共国男足再次无缘世界杯](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/37/README.md)
+### [CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/38/README.md)
+### [封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/39/README.md)
  ` NFSC News`
-
-### [《一帘幽梦》唤醒梦中人](/content/gnews/39/README.md)
- ` 纽约香草山MOS03`
 
 ### [“甜蜜蜜运动”三招打残中共 让冬奥会变“冬眠会”](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

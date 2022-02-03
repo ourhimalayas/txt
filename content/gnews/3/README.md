@@ -2,10 +2,10 @@
 ---
 
 
-## 新西兰科学家在辉瑞疫苗中发现奇怪纳米结构
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952720/)
+## 白宫发言人回答关于美国冬奥运动员在华安全问题
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952758/)
 
-01/28/2022 新西兰科学家在辉瑞疫苗中发现奇怪纳米结构
+02/01/2022 白宫发言人回答关于美国冬奥运动员在华安全问题
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
