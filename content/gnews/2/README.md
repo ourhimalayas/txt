@@ -2,8 +2,8 @@
 ---
 
 
-## H-Pay接下来贷款、存款
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950580/)
+## 没有定价规则的贸易下的交易
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950632/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
