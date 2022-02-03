@@ -2,22 +2,35 @@
 ---
 
 
-## 美政府承认新中国联邦是中国人民的选择
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1948068/)
+## 加拿大总理杜鲁多确诊感染中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948256/)
 
-采编：Quitman       编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image.png)
-据GTV和盖特近日新闻报道，班农先生在接受[新中国联邦]采访时指出：美国政府授权立即撤出驻北京大使馆所有外交人员的举动，是爆料革命迈出的巨大且具有里程碑意义的一步。这充分说明[新中国联邦]是中国人民的最佳选择。
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+加拿大总理杜鲁多1月31日在Twitter发文，证实自己的中共病毒检测呈阳性，目前感觉良好，暂时没有出现任何病征。他表示会根据当局发布的公众健康指引，居家隔离，并继续远程办公。
 
-对于郭文贵先生代表[新中国联邦]致拜登总统和布林肯国务卿的感谢信，班农指出，该外交信函的正式递交意义重大，充分表明[新中国联邦]已被美国政府所认可。并表示美国政府的该决定不仅是与中共彻底断绝外交关系的开始，也是重启“新冠病毒”溯源，调查武汉病毒研究的开始。
+杜鲁多上周因为其中一名孩子确诊，开始居家隔离，当时病毒快筛结果呈阴性，不料之后转阳。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-9.jpg)
+在周一举行的重启国会仪式上，杜鲁多透过视像出席，尽管是在接种过疫苗加强剂的情况下确诊，杜鲁多还是呼吁民众尽快接种中共病毒疫苗以及加强剂。另外，他对货车司机发起的，已持续多日的反疫苗示威活动，表示谴责。
 
-此外，班农还鼓励所有[新中国联邦]人，应该继续在GNews和GTV上不断揭露中共举办冬奥会的邪恶目的。并让全世界人民都知道，中共是一个跨国犯罪组织，是不能代表中国人民的非法政权。
+加拿大是世界上疫苗接种率最高的国家之一，根据约翰霍普金斯大学的数据显示，每 5 名加拿大人中就有 4 人完全接种了中共病毒疫苗。
 
-校对编辑：硫酸羟氯喹64
+参考链接：[加拿大总理杜鲁多确诊感染中共病毒](https://twitter.com/JustinTrudeau/status/1488162322187182085?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1488162322187182085%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.hk01.com%2FE58DB3E69982E59C8BE99A9B%2F731027%2FE58AA0E68BBFE5A4A7E7B8BDE79086E69D9CE9ADAFE5A49AE7A2BAE8A8BAE696B0E586A0E882BAE7828E)
 
-发稿： 苦尽甜来 (文来）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-新闻连接：[https://gettr.com/post/pr1kny4943](https://gettr.com/post/pr1kny4943)
+总编：天灭中共
+编辑：天灭中共
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

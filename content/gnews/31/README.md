@@ -2,38 +2,37 @@
 ---
 
 
-## 有声|奥运会运动委员会主席确诊 已在北京隔离
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948790/)
+## 有声|冬奥会选手表示 希望去其他国家参赛
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948879/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月31日，中共冬奥委会组委会通报称，在冬奥委会入境人员中，又有23人在前一天的中共病毒检测呈阳性，其中包括奥委会运动员委员会主席埃玛·泰尔霍。她在社交媒体上表示，自己正在北京接受隔离。
+配音：香草山农场 – 纳米
 
-据报道，中共冬奥委会组委会30日通报的23名冬奥染疫人员中，有13人是运动员或代表团成员。此外，还有11名前几天已经入境的冬奥相关人员被检测出病毒阳性。
 
-据悉，冬奥会对所有入境的外国运动员实行闭环管理，即北京本地不与入境运动员产生物理接触。此封闭式管理要求每天接受核酸检测，一旦发现阳性就会被送到隔离酒店。目前此闭环内已经检测出36例阳性患者。
 
-原文链接：[奥运会运动委员会主席确诊 已在北京隔离](https://gnews.org/zh-hans/1941077/)
+1月30日，据相关媒体报道，时逢中共北京冬奥会开幕在即，虽然中共媒体一直试图向外界传递出各国参赛选手喜爱此次冬奥会的错觉，但很多来自欧洲的运动员纷纷表示，他们对冬奥会完全喜欢不了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-2.jpg)
+不少来自法国的运动员在采访时指出，中共国并不是一个拥有滑雪文化的国家，但为了此次冬奥会的场地问题，中共政府大肆破坏森林植被并人为制造出相当违和的雪地会场。对此，运动员们强调，相较于因举办冬奥会而造成严重的生态问题，他们更希望奥委会能选择尊重自然、尊重个人的国家举办奥运会。
 
-音频处理/发稿：Daxia
+此外，一些来自瑞典的运动员也通过媒体声明表示，国际机构不应该选择中共政府组织锦标赛或举办奥运会，他们更希望去其他国家参加比赛。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+文字版原文：[冬奥会选手表示 希望去其他国家参赛](https://gnews.org/zh-hans/1946668/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

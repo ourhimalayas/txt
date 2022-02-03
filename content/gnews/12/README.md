@@ -2,8 +2,8 @@
 ---
 
 
-## 梵蒂冈寄来的袖扣
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949116/)
+## 外国机构对春晚的研究 都是被共产党控制
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949210/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
