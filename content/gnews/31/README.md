@@ -2,25 +2,27 @@
 ---
 
 
-## 郭文贵献唱新中国联邦春晚，三首灭共歌荡气回肠
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948259/)
+## 研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948260/)
 
-撰稿：纽约香草山金融部 – AT
+撰稿：台湾宝岛农场 — zhong
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在新中国联邦的新春晚会上，郭文贵先生作为开幕嘉宾，共演唱了三首灭共歌:《甜蜜蜜》《一帘幽梦》和《塞北的雪》，并讲述了选择这三首歌的目的和意义。
+外媒2月1日报道，一项由丹麦国家血清研究所、丹麦统计局和哥本哈根大学等机构共同完成的研究显示，Omicron亚变种BA2的传播速度较原始版本相比，更快、更强。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-11.jpg)
+该研究分析了去年12月至今年1月的数据发现，在感染 Omicron 亚变种 BA2 的人中，有 39% 的机会在一周内将病毒传染给其他人，而感染原始版本的机率是 29%，也就是说，BA.2变异株的传播速度是原版 Omicron 的1.5倍。
 
-首先，郭先生以一曲甜蜜蜜开启了甜蜜蜜运动，同时也开启了虎年春晚。郭先生身着红装，唱毕又拿出一神秘红色纸条，解释说红色带给我们力量，共产党霸占了红色，抢走了我们的自由，我们只有打开甜蜜蜜运动这把钥匙，一起合作干掉CCP。才能解放我们被奴役了几代的中国人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-7.jpg)
-之后，郭先生深情演唱了新中国联邦改编版《一帘幽梦》，郭先生给予邓丽君女士高度评价，认为邓丽君从没放弃过为中国同胞的民主自由而奋斗，我们会帮助邓女士完成遗愿，消灭共产党，让中国人有民主、法制、自由。
+另外，研究人员还指出，BA2变异株不但传染力更快，隐匿性也更强，难以被及时检测出来。
 
-最后，郭文贵先生演唱了经过新中国联邦团队改编的，彭丽媛女士最重要的一首歌《塞北的雪》。郭先生透露，此歌被选为了北京冬奥会开幕式的主打歌。但是塞北的雪被中共侮辱了，雪不应该是人造的，而共产党在全世界人面前制造假雪，就像他们制造假民主，假法治，假良知。
+目前全球超过98%的Omicron感染个案，均只涉及原始版本 BA1，但在丹麦，BA2在短时间内已取代BA.1，成为当地的主流病毒株。
 
-参考链接：[郭文贵献唱新中国联邦春晚，三首灭共歌荡气回肠](https://gettr.com/post/prnxiv9f42)
+参考链接：
+1. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://udn.com/news/story/121707/6073087)
+2. [研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](https://english.elpais.com/usa/2022-01-31/ba2-a-new-version-of-the-omicron-coronavirus-variant-that-is-even-more-contagious-but-not-more-serious-according-to-early-data.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：飞虹
-编辑：飞虹
+总编：天灭中共
+编辑：天灭中共
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
