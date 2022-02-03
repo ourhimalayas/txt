@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/3/2022 12:52 AM (UTC)`
+
+2/2/2022 Miles Guo: The CCP’s chose Zhangjiakou as the venue of the Winter Olympics to make Beijing the city that can host two Olympics and to develop real estate there, not knowing that Zhangjiakou is a terrible place according to Feng Shui (Chinese geomancy). Upon hearing that the CCP picked Zhangjiakou, I knew that they would not successfully host the Winter Olympics. All the decision makers are already finished as well.<br/><br/>2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好；文贵一看中共选了张家口就知道他们搞不成冬奥会，那些决策者都已经完蛋了！
+![img](https://media.gettr.com/group8/getter/2022/02/03/00/de81fa51-975a-ec2f-fad2-6217944ba6ec/out.jpg)
+
+---
+
+`@miles 2/3/2022 12:43 AM (UTC)`
+
+2/2/2022 Miles Guo: What are the three rounds of the “Tian Mi Mi Movement”? the US authorized departure of its embassy in Beijing, I sang three songs about taking down the CCP, and now I am officially throwing down the gauntlet - I will turn the CCP's Winter Olympics into the "hibernation games"!<br/><br/>2/2/2022 文贵直播：甜蜜蜜运动有哪三个回合？美国使馆的授权撤离、文贵唱的三首灭共歌以及文贵现在下的战贴 - 文贵将让中共的冬奥会开成“冬眠会”！<br/>
+![img](https://media.gettr.com/group5/getter/2022/02/03/00/27acafc4-59ea-af0f-4b67-8cc05c549d4b/out.jpg)
+
+---
+
 `@miles 2/3/2022 12:36 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Hao Haidong’s revelations on the fake, ugly, and evil of the CCP’s system - Without money, power, network, or sleeping with the CCP cadres, the Lao Baixing will be doomed. It is outrageous that Song Zuying’s performance of “Spicy Girl” at the Wiener Musikverein was paid with the CCP’s military funds, which are the Lao Baixing’s money<br/><br/>1/31/2022 文贵虎年新春大直播：郝董揭露中共体制的假丑恶 - 没钱、没实力、不找关系、不陪领导睡的老百姓没出路；宋祖英竟拿着老百姓付的中共军费包下维也纳金色大厅去唱《辣妹子》<br/>
@@ -144,20 +158,6 @@
 
 1/31/2022 Miles Guo’s Chinese New Year Live: The CCP has been using the same lies to brainwash the Lao Bai Xing for 70 years, oppressing the people yet making them believe that they should thank the CCP for everything.<br/><br/>1/31/2022 文贵虎年新春大直播：中共70年来用同样的谎言给老百姓洗脑， 压榨人民的同时还要让人感谢他们<br/>
 ![img](https://media.gettr.com/group42/getter/2022/02/01/14/c625babc-f857-bd72-75ef-77adce92d10c/out.jpg)
-
----
-
-`@miles 2/1/2022 11:34 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" <br/><br/>1/31/2022 文贵虎年新春大直播：<br/>新中国联邦版《一帘幽梦》
-![img](https://media.gettr.com/group16/getter/2022/02/01/11/12ccb69d-bf10-31a5-3fda-5b9e7846b91b/out.jpg)
-
----
-
-`@miles 2/1/2022 11:34 AM (UTC)`
-
-⚠️⚠️Timeline of The New Federal State of China About the CCP Virus And COVID Vaccine Disaster Warning<br/><br/>The #NFSC has always been committed to the truth and saving lives by exposing CCP's evil nature and the fact that they created the #CCP virus killing millions of people worldwide. The NFSC has also been spreading COVID therapeutics and related medications to the world, as well as the real purpose of COVID vaccines. All the facts prove what the CCP did has nothing to do with the Chinese people, the CCP cannot represent the Chinese people, who are also the victims.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警的时间线<br/><br/>#新中国联邦 一直致力于揭露中共邪恶本质，揭露他们制造 #中共病毒 已经在全世界造成数百万人死亡的事实，从而揭示真相，拯救生命。新中国联邦也一直在向全世界传播 #CCPVirus 治疗方法和相关药物，以及 #COVID 疫苗的真实目的。所有事实证明，中共的所作所为与中国人民无关，中共不能代表中国人民，中国人民也是受害者。
-![img](https://media.gettr.com/group8/origin/2022/02/01/11/b65bdc52-ffd9-94cb-5393-e69830ecfb38/out.jpg)
 
 ---
 
