@@ -2,53 +2,37 @@
 ---
 
 
-## 有声|土共国堕落、邪恶、冷漠世道的冰山一角
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950217/)
+## 与福奇有关的高级美国官员就职于中共在美委员会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950224/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-时逢北京国际冬奥会临际，一位微博上的视频报道令我的心情久久无法平静。
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip17与福奇有关的高级美国官员就职于中共在美委员会.png)图片来源：thenationalpulse.com
+《国家脉动》披露，亚当·霍特（Adam Hott）在美国国立卫生研究院（NIH）临床测序证据生成研究小组工作，他同时也在有争议的美国心脏地带中国协会（United States Heartland China Association，USHCA）团体中担任教育委员会的副主席，该委员会旨在“汇集K12和高等教育的资源，将研究、专业知识和新人力资源应用于美中合作”。
 
-一位妇女被拐卖被折磨20多年，在穷乡僻壤里被沦落为生育工具，带着铁镣已然变得精神恍惚，“这个世界不要我了”。难以想象该妇女从未成年时期被拐卖，到如今37、38岁左右所经受的精神、心灵和肉体、生理上的折磨，度日如年的噩梦，被迫怀孕成为8个孩子的母亲。
+美国心脏地带中国协会（USHCA）是中共政府外国势力的一部分，其名下公司曾购买美国农田，这引起了立法者对国家安全的担忧；其次，USHCA还“自豪地与”中美交流基金会（CUSEF）合作。
 
-我有理由相信这是真的，因为这是中共统治下无数百姓苦海里再真实不过的个体写照。
+据美国政府称，CUSEF 是中国共产党“[联合阵线](https://www.uscc.gov/sites/default/files/Research/China's%2520Overseas%2520United%2520Front%2520Work%2520-%2520Background%2520and%2520Implications%2520for%2520US_final_0.pdf)”（United Front）的一个组成部分，该组织试图“收编和消除可能反对其执政的政策和权威的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。
 
-我又宁愿相信这是假的，因为这样世间会减少至少一个痛苦的家庭……
+美中贸易协会（USHCA）还与中国人民对外友好协会（CPAFFC）共同举办活动，该协会负责中共统战的“公众形象”和“[党国的公开机构](https://www.reuters.com/article/us-usa-china-pompeo/u-s-designates-chinese-body-a-foreign-mission-quits-local-cooperation-agreement-idUSKBN27D305)”。美国国务院将CPAFFC描述为旨在寻求“直接和恶意影响”美国国家和地方领导人的团体。
 
-遥想2007年的电影《盲山》，竟然仍在如今21世纪的现实文明世界屡禁不止，悲哀，愤恨。
+在这些担忧的前提下，霍特竟然自2019年以来兼并美国国立卫生研究院临床测序证据生成研究（NIH’s Clinical Sequencing Evidence-Generating Research）小组的副主席；在他的LinkedIn个人资料中解释说：“这个工作组专注于基因组测序结果和对患者、家庭、护理人员和医疗服务提供者的教育的设计和发送。”
 
-该事件的揭露和曝光竟然是以一种令人讽刺和愤怒的所谓正能量的形式——以捐款扶助所谓贫困的丈夫，有精神病的妻子和8个孩子的名义，大摇大摆、堂而皇之地出现在媒体上，发人深省。若是没有如此所谓的正能量，这件事岂不是要被终身埋没，谁人可知？在我们的国度，会有多少人知晓或去探究，又会有多少人具备行动的勇气，勇敢地去伸张正义呢？
+在这些担忧的前提下，霍特竟然自2019年以来兼并美国国立卫生研究院临床测序证据生成研究（NIH’s Clinical Sequencing Evidence-Generating Research）小组的副主席；在他的[LinkedIn](https://archive.ph/Wb8q8)个人资料中解释说：“这个工作组专注于基因组测序结果和对患者、家庭、护理人员和医疗服务提供者的教育的设计和发送。”，这显示他自2019年以来一直担任该职位。
 
-一个人的受害，全体人的默不作声，一个社会的集体冷漠。土共在国民身上洒下的毒，把一个优秀、敦厚、朴实的群体变得精神麻木、狡诈，使人性变得扭曲、丑陋不堪，使集体对世事极度冷漠、自私，对他人疾苦的漠不关心，对法律、人权也淡漠无知。众人未曾知的是，类似的事情在中共国无数次、长年累月地发生，整个公安系统到地方村行政到村民，对犯罪行为如此漠视 渎职 无能，甚至助纣为虐。所谓的职能执法部分对这些事件轻描淡写、讳莫如深，您真地相信他们会用心或全力以赴打击拐卖妇女儿童？
+霍特发表了几篇期刊文章，概述了学校的科学课程，其中包括了美国国立卫生研究院的直接财政支持的论文；另外，也包括了“生物技术101：遗传学和生物技术的教育推广计划”（[Biotech 101: an educational outreach program in genetics and biotechnology](https://pubmed.ncbi.nlm.nih.gov/22383109/)）和“非科学专业的生物入门课程中的遗传学内容：理论与实践”（[Genetics Content in Introductory Biology Courses for Non-Science Majors: Theory and Practice](https://academic.oup.com/bioscience/article/52/11/1024/285767?login=false%23126031541)）。
 
-一个社会对妇女幼儿的基本尊重态度，是现代文明社会基本尺度度量标准。仅公开资料显示：
+**新闻来源**：[thenationalpulse.com] [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/) | 发布时间：2022年01月28日｜
 
-“1991-1995年，官方公布获解救的被拐女性人数为80555人。”
+* * *
 
-“WHO的数据里，中国是世界少数几个女性自杀率高于男性的国家，而吞农药曾经是农村地区最常见的自杀选择。”
+***审核：文乐
+校对：小东
+发布：信心满满***
 
-“2007年山西黑砖窑奴工“
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
-“2008毒奶粉“……
 
-全国每年被拐卖、失踪的妇女儿童在土共国当是天文数字，每一个简单数字的背后，都至少是一个家庭几口几十口人的终生莫大的痛苦。试想该“合法丈夫”即便后续被公正地绳之以法，其后代的8个幼子，以及该受害妇女，都很难从创伤中走出来。笔者随手搜索一下，出来的竟是对全国每年失踪儿童20万人数否定的文章，“什么年头了还有人信这个？”似乎欲盖弥彰。
 
-中共政权完全不具备从文化变革、从基本文明素养、从生育政策上、从法制监督等方面预防 打击和根治拐卖妇女儿童的基本能力，他们只会用自己放的屁嘣自己所谓伟光正的嘴脸。这样性无能的外强中干的邪恶政权，只有铲除他！
-
-文字版原文：[土共国堕落、邪恶、冷漠世道的冰山一角](https://gnews.org/zh-hans/1942358/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

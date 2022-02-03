@@ -2,29 +2,47 @@
 ---
 
 
-## 有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950287/)
+## 郭文贵先生在2022年新中国联邦春晚上演唱了三首灭共歌，并讲述了其意义
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1950395/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒近日揭露了一组惊人数据，显示在2020至2021年期间，美国青壮年的死亡率暴增了140%，而中共病毒疫苗的广泛推行就是这场巨大灾难背后的主因。
+作者: 纽约香草山金融部 AT
 
-世界著名肺科医生皮埃尔·科里警告，如果我们继续给健康的人注射这些有毒的实验性疫苗，我们会目睹死亡人数，甚至到达一个难以想像的规模。
 
-文字版原文：[中共病毒疫苗导致美国青壮年死亡人数暴增140%](https://gnews.org/zh-hans/1948258/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在北京时间2022年1月31日晚9点开始的新中国联邦新春晚会上，郭文贵先生作为开幕嘉宾演唱了三首灭共歌:《甜蜜蜜》、《一帘幽梦》和《塞北的雪》并讲述了选择这三首歌的目的和意义。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/b07ec5cd00f6a832f2f77b991cdb796c_500x0.jpeg)图片来源: Gettr
+前两首歌的原唱者都是邓丽君女士，她的歌声伴随了中国几代人的成长。郭先生以一曲甜蜜蜜开启了“甜蜜蜜运动”，同时也开启了虎年春晚。郭先生唱毕，拿出一神秘红色纸条，称之为百宝书。并说红色带给我们力量，共产党霸占了红色，抢走了我们的自由，让我们失去了未来，失去了家人。我们只有打开“甜蜜蜜运动”这把钥匙，一起合作干掉CCP，才能解放我们被奴役了几代的中国人。红宝书中的秘密将随“甜蜜蜜运动”而揭开，等郭先生揭示时，喜币可能已经达到1000美金。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+随后，郭先生又深情演唱了新中国联邦改编版的《一帘幽梦》，当唱到:”为何我要灭共”，”谁与七哥与共，踏破千年的牢笼”时，不禁情动哽咽。郭先生给予邓丽君女士高度评价并向她致敬，中国人骨子里有浪漫，音乐是永恒的，邓丽君从没放弃过为中国同胞的民主自由而奋斗。邓丽君女士的歌激励着我们，让我们每个人的内心世界都打开一扇激情的门，我们从来没有忘记过，也永远不会放弃。我们会帮助邓丽君女士完成遗愿，消灭共产党，让中国人有民主法制自由。郭先生版《一帘幽梦》重新赋予了这首歌新的力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+最后，郭文贵先生在Qmay钢琴伴奏下演唱了由新中国联邦团队改编的《塞北的雪》，这是彭丽媛女士最重要的一首歌。郭先生透露此歌被选为北京冬奥会开幕式主打歌。但是塞北的雪被中共侮辱了，雪本是纯洁的，不应该是人造的，而共产党在全世界人面前制造假雪，就像他们制造假民主，假法治，假良知，中共还制造了病毒。
+
+郭先生说每个人演唱这三首歌时都将从中找到与神沟通的感觉。我们一定要活出每个人的精彩，我们新中国联邦必须让中国人找回属于自己的浪漫，尊严，善良，和平，友好。让中国人成为世界上最受尊敬，最被喜欢，最爱与之打交道的人。
+
+中国人被中共洗脑百年，中共所展示辉煌的新春晚会以及营造的万邦来朝的冬奥会背后，与老百姓凄惨的被洗脑的贫穷生活形成鲜明对比，这就是共产党为什么要进行网络屏蔽。中共如果不控制音乐，音乐就会戳穿假恶丑，官僚和虚伪，这就是音乐的力量。音乐要唱出自己，唱出心声，真实和利他。
+
+参考来源: https://www.gettr.com/post/prpt2a3c97
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.png)
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

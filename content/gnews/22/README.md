@@ -2,35 +2,44 @@
 ---
 
 
-## 有声|香草山新春联欢七哥寄语
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1950218/)
+## 美国向欧洲增派军队 称不会进乌克兰作战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1950230/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2022年1月29日是纽约香草山农场壬寅年的新春联欢，七哥作为特邀嘉宾，更作为建立新中国联邦的创始人，对香草山农场的团队精神作了中肯评价，还参与了战友们的摇奖活动，欢乐声中，郭先生再次叮嘱战友们关照好自己家人们不要打疫苗，喊话国内同胞真的要认清形势，你可以不信爆料革命，不敢参与爆料革命，不能加入新中国联邦，但有一样可以做到，最起码要知道，爆料革命、新中国联邦不让大家打疫苗，是给了人间最大的礼物。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-这是新中国联邦在2022/1/27号的文贵大直播中，继2020年2月份以来多次发布的重要情报，这情报来自亲自参与了，建设了中共生化武器研发的，已经逃至在澳洲的科学家的情报，及七哥通过多种轨道的信息考证，病毒不是杀人，病毒不是主角，疫苗才是灾难，疫苗的次生灾难才是最大的灾难。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-郭先生例举了最近在战友们的家人身上发生的悲剧，他说我们新中国联邦救人，助人，不希望以死亡事例来证明自己的伟大。天大的事情就是不要打疫苗，打了疫苗就要吃青蒿素、伊维菌素。郭先生在数次的直播中再三强调不要找任何懦弱的理由让孩子再打疫苗，否则会痛不欲生。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)
 
-郭先生说人体细胞也就40万亿个，每天要死掉40亿细胞，并通过新陈代谢长出新细胞，如果新生细胞长不好就是癌症。而免疫力就是保证细胞正常的消亡和新生。但是一针疫苗就有40万亿个刺突蛋白打到身体里，什么样的免疫系统能够处理这么多的外来物质？
 
-郭先生告诉所有人，2022年，是人类最黑暗的一年，活下来，少害人，让家人活好。等胜利了你才可以享受新中国联邦带来的美好生活！
 
-文字版原文：[香草山新春联欢七哥寄语](https://gnews.org/zh-hans/1942412/)
+图片来源：雅典娜设计组
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+根据德国之声中文网报道：俄罗斯与乌克兰局势紧张之际，美国五角大楼宣布将增派2000名美军前往波兰及德国，并表示此举是为了捍卫北约盟友，同时称部队不会进入乌克兰。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+该报道称，在波兰的部队将处于高度戒备状态。美国国防部发言人约翰·柯比（John Kirby）强调，部署只是暂时性，他们不会在乌克兰作战。
+
+美方指出，已在德国的约1000名美军将被派往罗马尼亚，并补充，大约1700名美军将从美国被派遣至波兰，另有300名军人将前往德国。
+
+波兰国防部长马柳什·布瓦什查克（Mariusz Blaszczak）在推特上发文表示欢迎美军的部署。
+
+北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）也对美军在欧洲的部署表示欢迎。
+
+在美国宣布向欧洲派遣更多军队后，俄罗斯克里姆林宫称，该部署是个“破坏性”的举动。
+
+参考链接：[https://m.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%90%91%E6%AC%A7%E6%B4%B2%E5%A2%9E%E6%B4%BE%E5%86%9B%E9%98%9F-%E7%A7%B0%E4%B8%8D%E8%BF%9B%E4%B9%8C%E5%85%8B%E5%85%B0%E4%BD%9C%E6%88%98/a-60640399](https://m.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%90%91%E6%AC%A7%E6%B4%B2%E5%A2%9E%E6%B4%BE%E5%86%9B%E9%98%9F-%E7%A7%B0%E4%B8%8D%E8%BF%9B%E4%B9%8C%E5%85%8B%E5%85%B0%E4%BD%9C%E6%88%98/a-60640399)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

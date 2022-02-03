@@ -2,26 +2,36 @@
 ---
 
 
-## 日本7-Eleven公司测试免触摸全息自助收银机
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950270/)
+## 塔克·卡尔森：“骗子”彼得·霍特兹博士与中共军方分享福奇经费
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950371/)
 
-**编译：wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip18日本7-Eleven公司测试免触摸全息自助收银机.png)图片来源：nextshark.com
-日本最近在东京的六家7-Eleven商店引入了免触式全息自助收银机。
+**翻译: Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip塔克·卡尔森：骗子彼得·霍特兹博士与中共军方分享福奇经费.png)Peter Hotez and Shibo Jiang
+你可能已经注意到，很多人已经不信任医生，这不是一个好兆头。您认识的人中可能有一半正在探索替代医学疗法。为什么会这样？ 有很多原因，但彼得·霍特兹（Peter Hotes）博士的所作所为绝对是其中原因之一。
 
-这种全息界面被称为Digi POS（销售点），当购物者直接面对自助收银机并扫描他们想要购买的物品时，会投射出一个漂浮在空中的触摸屏图像。
+霍特兹是一名儿科医生，他一生都在研究热带寄生虫。对于有线电视新闻订户来说，他似乎不是明显的首选嘉宾，他们正在寻找一个可以了解有关 COVID 的人，但霍特兹是一个疯狂的宣传瘾君子，他会在任何时间、任何地点进行任何公开的露面从不停止。
 
-据[SoraNews24](https://soranews24.com/2022/01/30/floating-hologram-registers-coming-to-japanese-convenience-stores%25E3%2580%2590video%25E3%2580%2591/)报道，Digi POS由六家不同的公司开发，包括 7-Eleven Japan 、Toshiba Tec 、Asukanet Development 、Kanda Kogyo Development 、Mitsui Chemicals Development，以及Mitsui Bussan Plastic。周三（2日）开始，Digi POS在东京的6家7-Eleven商店正式试运行。
+对我们所有人来说不幸的是，当霍特兹讲话时，他抹黑了美国医学。他是一个错误信息机器，不断地吐出疯狂。静心把霍特兹对 COVID 的看法并与亚历克斯·琼斯（Alex Jones ）的看法进行比较，然后问问自己谁更清醒，他们的观点根本不同，而霍特兹所说的，很少与现实有任何关系。
 
-全息收银机只接受电子货币钱包、信用卡和二维码等无现金支付方式。据[lowyat.net](https://www.lowyat.net/2022/264706/7-eleven-japan-introduces-holographic-touch-screens-to-its-stores/)报道，它也仅限于店内产品，不包括烟、酒、明信片和邮票等物品，以及快递送货、水电费支付、现金券和账户充值等服务。
+我们在 12 月下旬首次报道了霍特兹博士，我们注意到霍特兹博士获得了福奇博士每年 100 万美元的资助，但霍特兹博士并不是唯一享用的人。
 
-简评：
+该项目的另外两名首席研究员之一是江世博，他列出了与资助项目R01AI098775相关的两个隶属关系：
 
-最早看到这类科技来自西雅图的 Amazon Go 无人超市试点，宗旨在于让顾客购物更加快速便捷，节省了在疫情期间排队结算的时间，更降低了感染病毒的风险。
+美国纽约病毒免疫学实验室，林兹利·F·金博尔（Lindsley F. Kimball） 研究所，纽约血液中心；
 
-值得一提的是，这或意味着对人的监控手段更加的严重。另外，G系列的 Hpay 打破了政府、银行对私人企业主与顾客的要求、监控，实现了完全的交易自由（自己当家作主）。
+中国上海教育部和卫生部医学分子病毒学重点实验室，上海医学院和复旦大学医学微生物研究所。
 
-**新闻来源**：[nextshark.com] [7-Eleven Japan testing out touch-free holographic self-checkouts](https://nextshark.com/holographic-touch-screen-self-checkout-registers-7-eleven/) |发布时间：2022年02月02日｜
+江世博与中共解放军的关系已在《网关专家》（Gateway Pundit）的文章中详尽地详述[here](https://www.thegatewaypundit.com/2021/03/chinas-massive-infiltration-u-s-virus-research-laboratories/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily), [here](https://www.thegatewaypundit.com/2021/04/yes-covid-19-biological-attack-chinese-communist-party-lawrence-sellin-ph-d/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily) and [here](https://www.thegatewaypundit.com/2021/05/report-chinas-military-weapon-covid-19-constructed-completely-command-control-chinese-military/?ff_source=Email&amp;ff_medium=the-gateway-pundit&amp;ff_campaign=dailyam&amp;ff_content=daily)。
+
+我们还注意到：
+
+以江世博为渠道，福奇的 R01AI098775 拨款汇集了美国纳税人的资金，以支持与中国人民解放军有联系的多名中共科学家的研究。
+
+有两篇由 R01AI098775 资助的出版物值得注意，它们都涉及冠状病毒，而且奇怪的是，项目负责人霍特兹竟然没有参与两项目。
+
+也就是说，这两项研究完全是由中共国科学家设计和进行的。
+
+**新闻来源**：[thegatewaypundit.com][Tucker Discussed ‘Charlatan’ Dr. Peter Hotez Last Night – TGP Identified Him in December for Receiving Millions in Grant Money from Dr. Fauci to Share with a China PLA Professor](https://www.thegatewaypundit.com/2022/02/tucker-discussed-charlatan-dr-peter-hotez-last-night-identified-december-receiving-millions-grant-money-dr-fauci-share-china-pla-professor/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
 * * *
 
@@ -30,8 +40,6 @@
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
-
-
 
  
 

@@ -15,115 +15,115 @@
 
 ---
 
-### [德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国防部吹哨人：Covid疫苗致流产和癌症增加3倍](/content/gnews/2/README.md)
+### [美国卡车司机抨击脸书删除自由车队贴文](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国家脉动披露另一个与中共游说团体有关的NIH官员](/content/gnews/3/README.md)
+### [乌克兰危机期间美军将在东欧部署兵力](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [寻求效仿加拿大抗议强制接种中共病毒疫苗的Facebook小组被删除](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [化学教授质问为什么Covid疫苗小瓶内容物有“灰色阴影”](/content/gnews/4/README.md)
+### [伊朗核谈判将在未来几周结束](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [塔克·卡尔森：“骗子”彼得·霍特兹博士与中共军方分享福奇经费](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共国重量级科学家叛逃中共来到美国](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [泰国中央银行加入全球数字银行热潮](/content/gnews/6/README.md)
+### [助中共恶果已现！脸书股价暴跌20%、用户量下跌！](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [多国奥运运动员抵制北京开幕式](/content/gnews/7/README.md)
+### [美国防部吹哨人：Covid疫苗致流产和癌症增加3倍](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国陆军宣布将让未接种新冠疫苗的军人退役](/content/gnews/8/README.md)
+### [国家脉动披露另一个与中共游说团体有关的NIH官员](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [化学教授质问为什么Covid疫苗小瓶内容物有“灰色阴影”](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [郭文贵先生在2022年新中国联邦春晚上演唱了三首灭共歌，并讲述了其意义](/content/gnews/11/README.md)
+ ` GTV News Talk`
+
+### [塔克·卡尔森：“骗子”彼得·霍特兹博士与中共军方分享福奇经费](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [泰国中央银行加入全球数字银行热潮](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [多国奥运运动员抵制北京开幕式](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国陆军宣布将让未接种新冠疫苗的军人退役](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](/content/gnews/9/README.md)
+### [有声|全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](/content/gnews/10/README.md)
+### [有声|研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%](/content/gnews/11/README.md)
+### [有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [日本7-Eleven公司测试免触摸全息自助收银机](/content/gnews/12/README.md)
+### [日本7-Eleven公司测试免触摸全息自助收银机](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [最新诉讼：COVID检测公司伪造测试结果](/content/gnews/13/README.md)
+### [最新诉讼：COVID检测公司伪造测试结果](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [货币金融的本质是物物交换](/content/gnews/14/README.md)
+### [货币金融的本质是物物交换](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [美国向欧洲增派军队 称不会进乌克兰作战](/content/gnews/15/README.md)
+### [美国向欧洲增派军队 称不会进乌克兰作战](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [与福奇有关的高级美国官员就职于中共在美委员会](/content/gnews/16/README.md)
+### [与福奇有关的高级美国官员就职于中共在美委员会](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中日财经爆┃日本进口23%依赖中国 比美国和德国更危险](/content/gnews/17/README.md)
+### [中日财经爆┃日本进口23%依赖中国 比美国和德国更危险](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/18/README.md)
+### [有声|FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|美国军舰虎年首度穿越台海](/content/gnews/19/README.md)
+### [有声|美国军舰虎年首度穿越台海](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/20/README.md)
+### [有声|2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2022年2月1日早](/content/gnews/21/README.md)
+### [有声|GTV新闻访谈简报|2022年2月1日早](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|香草山新春联欢七哥寄语](/content/gnews/22/README.md)
+### [有声|香草山新春联欢七哥寄语](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [有声|土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/23/README.md)
+### [有声|土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [不要迷信权威](/content/gnews/24/README.md)
+### [不要迷信权威](/content/gnews/31/README.md)
  ` 雅典娜GNotes`
 
-### [日本公司称伊维菌素对新冠病毒显示出“抗病毒效果”](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [Hpay有物质的地方就有Hpay](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [澳中商会：清洁能源或将成为两国潜在突破性合作领域](/content/gnews/27/README.md)
- ` 走进澳洲`
-
-### [欧洲四国家宣布放宽或取消疫情限制措施](/content/gnews/28/README.md)
+### [欧洲四国家宣布放宽或取消疫情限制措施](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵直播摘要和音频 2022.02.02](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [全球超43万人联署支持“拒绝中共”倡议](/content/gnews/30/README.md)
+### [全球超43万人联署支持“拒绝中共”倡议](/content/gnews/33/README.md)
  ` 日本东京方舟农场`
 
-### [丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/31/README.md)
+### [丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [调解日中韩三国天然气 美紧急应对俄罗斯进攻乌克兰](/content/gnews/32/README.md)
+### [调解日中韩三国天然气 美紧急应对俄罗斯进攻乌克兰](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国总理表示将不会出席2022年北京冬奥会](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国正在东欧部署和重新部署超过3000军人](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国副贸易代表：中共未兑现第一阶段贸易协议承诺](/content/gnews/35/README.md)
+### [美国副贸易代表：中共未兑现第一阶段贸易协议承诺](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/36/README.md)
- ` NFSC News`
-
-### [日本众议院通过中共国严重人权状况决议](/content/gnews/37/README.md)
+### [土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/37/README.md)
  ` NFSC News`
 
 ### [美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/38/README.md)
