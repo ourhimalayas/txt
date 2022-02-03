@@ -2,36 +2,28 @@
 ---
 
 
-## 与福奇有关的高级美国官员就职于中共在美委员会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950224/)
+## 美国陆军宣布将让未接种新冠疫苗的军人退役
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1950298/)
 
-**编译：wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip17与福奇有关的高级美国官员就职于中共在美委员会.png)图片来源：thenationalpulse.com
-《国家脉动》披露，亚当·霍特（Adam Hott）在美国国立卫生研究院（NIH）临床测序证据生成研究小组工作，他同时也在有争议的美国心脏地带中国协会（United States Heartland China Association，USHCA）团体中担任教育委员会的副主席，该委员会旨在“汇集K12和高等教育的资源，将研究、专业知识和新人力资源应用于美中合作”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A82521FC-E297-4B62-AD79-087160A782BE_w1023_r1_s.jpg)图片来源：美国之音
+据美国之音2月3日报道，美国陆军部长克里斯汀·沃穆思2日宣布，将“针对任何拒绝执行接种COVID-19疫苗命令且无获批或待批豁免申请的军人启动非自愿行政离职程序”。该命令适用于陆军正规部队军人、现役的陆军预备役军人以及军校学员。这些拒绝接种新冠疫苗而离职的军人将没有资格获得非自愿离职金，而且可能要返还任何提前发放的特殊津贴和奖金。
 
-美国心脏地带中国协会（USHCA）是中共政府外国势力的一部分，其名下公司曾购买美国农田，这引起了立法者对国家安全的担忧；其次，USHCA还“自豪地与”中美交流基金会（CUSEF）合作。
+截至2022年1月26日，96%的现役人员和79%的后备役人员已经完全接种疫苗。出于医疗或宗教理由而申请豁免的军人在他们的申请接受审批期间，暂时不必遵守疫苗接种令。有709人提出永久性医疗豁免申请，只有6项获批。有2910人提出宗教豁免申请，没有一项获批。在2022年7月1日或之前退役的军人将获得临时豁免。
 
-据美国政府称，CUSEF 是中国共产党“[联合阵线](https://www.uscc.gov/sites/default/files/Research/China's%2520Overseas%2520United%2520Front%2520Work%2520-%2520Background%2520and%2520Implications%2520for%2520US_final_0.pdf)”（United Front）的一个组成部分，该组织试图“收编和消除可能反对其执政的政策和权威的来源”，并“影响外国政府采取支持北京首选政策的行动或立场”。
+一些共和党议员对强制军人接种疫苗令表达不满。美国其实做了一件令“亲者痛仇者快”的事情。中共生化武器打击的主要目标就是美国，疫苗是最重要的武器之一。当美国士兵全部接种疫苗后，可以预见的未来，美国的军事力量会遭到重大打击。美国军方居然强调，“未接种疫苗的军人对军队构成风险并破坏战备能力”。殊不知，美国军队真正的威胁是对美国虎视眈眈的中共，而不是未接种疫苗的士兵。美国自断臂膀的方式令人不免担心美国未来的国防力量。
 
-美中贸易协会（USHCA）还与中国人民对外友好协会（CPAFFC）共同举办活动，该协会负责中共统战的“公众形象”和“[党国的公开机构](https://www.reuters.com/article/us-usa-china-pompeo/u-s-designates-chinese-body-a-foreign-mission-quits-local-cooperation-agreement-idUSKBN27D305)”。美国国务院将CPAFFC描述为旨在寻求“直接和恶意影响”美国国家和地方领导人的团体。
-
-在这些担忧的前提下，霍特竟然自2019年以来兼并美国国立卫生研究院临床测序证据生成研究（NIH’s Clinical Sequencing Evidence-Generating Research）小组的副主席；在他的LinkedIn个人资料中解释说：“这个工作组专注于基因组测序结果和对患者、家庭、护理人员和医疗服务提供者的教育的设计和发送。”
-
-在这些担忧的前提下，霍特竟然自2019年以来兼并美国国立卫生研究院临床测序证据生成研究（NIH’s Clinical Sequencing Evidence-Generating Research）小组的副主席；在他的[LinkedIn](https://archive.ph/Wb8q8)个人资料中解释说：“这个工作组专注于基因组测序结果和对患者、家庭、护理人员和医疗服务提供者的教育的设计和发送。”，这显示他自2019年以来一直担任该职位。
-
-霍特发表了几篇期刊文章，概述了学校的科学课程，其中包括了美国国立卫生研究院的直接财政支持的论文；另外，也包括了“生物技术101：遗传学和生物技术的教育推广计划”（[Biotech 101: an educational outreach program in genetics and biotechnology](https://pubmed.ncbi.nlm.nih.gov/22383109/)）和“非科学专业的生物入门课程中的遗传学内容：理论与实践”（[Genetics Content in Introductory Biology Courses for Non-Science Majors: Theory and Practice](https://academic.oup.com/bioscience/article/52/11/1024/285767?login=false%23126031541)）。
-
-**新闻来源**：[thenationalpulse.com] [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/) | 发布时间：2022年01月28日｜
+新闻参考链接：[https://www.voachinese.com/a/us-army-announces-discharges-for-unvaccinated-20220202/6423854.html](https://www.voachinese.com/a/us-army-announces-discharges-for-unvaccinated-20220202/6423854.html)
 
 * * *
 
-***审核：文乐
-校对：小东
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

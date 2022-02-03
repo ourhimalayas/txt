@@ -2,35 +2,26 @@
 ---
 
 
-## 土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949759/)
+## 美国副贸易代表：中共未兑现第一阶段贸易协议承诺
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1949888/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-土耳其当地媒体报道，土耳其卫生部1日晚间公布疫情通报显示，过去24小时有10万余起中共病毒确诊病例，198例死亡病例。 土耳其中共病毒单日病例数2月1日首度超过10万，与疫苗接种率同创新高。 土耳其目前18岁以上人口的两剂、单剂接种率分别为84.46%、92.54%，有近2513万人已施打第3剂。
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-2.jpg)
+2月1日，美国副贸易代表莎拉·比安奇（Sarah Bianchi ）在华盛顿国际贸易协会主办的虚拟论坛上表示，中共未能兑现第一阶段贸易协议中的承诺。
 
-土耳其近日因为奥米克戎变异株迅速传播而造成中共病毒病例数大幅攀升，这几天几乎每天刷新纪录，但是住院率较以往明显偏低。 卫生部2019冠状病毒科学咨询委员会委员欧达巴许告诉记者，从目前情况看，奧米克戎致死率不到Delta变异株的1/5，但奧米克戎变异株仍具危险性，几乎每天都有上百人因感染奥米克戎死亡。
+据《路透社》报导，比安奇当日在华盛顿国际贸易协会主办的一个虚拟论坛上表示，中共明显没有兑现于2021年底到期的两年期第一阶段贸易协议中的承诺。目前美方正在试图与中共沟通，也在考虑采取一些行动来确保他们被问责。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-9.png)（图片来源：Getty Images）
+报导指出，在川普总统于2020年1月签署的协议中，中共承诺在2020年和2021年期间，履行在2017年的基础上增加采购2,000亿美元的美国农业和制成品、能源和服务等。然而，彼得森国际经济研究所编制的贸易数据则显示，截至11月，中国仅完成了该承诺的60%左右。农业部长汤姆·维尔萨克(Tom Vilsack) 也在稍早前对国会议员说，中共购买美国农产品的金额比第一阶段的目标少了约130亿美元。
+
+此外，比安奇强调，美国贸易代表办公室表示，中共对企业的补贴以及非市场经济政策和做法严重威胁美国经济利益。
 
 参考链接：
+1. [https://cn.reuters.com/article/wrapup-china-usa-trae-commitments-0201-t-idCNKBS2K7048](https://cn.reuters.com/article/wrapup-china-usa-trae-commitments-0201-t-idCNKBS2K7048)
 
-- [土耳其病例攀升 單日確診數首破10萬例大關](https://topic.rti.org.tw/COVID-19/archives/65760)
+素材采编：海星
+编辑：文顺
+发布：文曦
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：文特
-编辑：文徬
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,37 @@
 ---
 
 
-## 中日财经爆┃日本进口23%依赖中国 比美国和德国更危险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950223/)
+## 日本7-Eleven公司测试免触摸全息自助收银机
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950270/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-182.png)
-3日，日本内阁办公室公布了一份题为“世界经济趋势”的报告。
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip18日本7-Eleven公司测试免触摸全息自助收银机.png)图片来源：nextshark.com
+日本最近在东京的六家7-Eleven商店引入了免触式全息自助收银机。
 
-报告比较和分析了日本、美国和德国对“世界工厂”中国的进口依赖程度。占日本总进口量（密集供应商品）50%以上的中国产品种类，在2019年将达到1133种，占其进口品种总量（约5000种）的23.0%。
+这种全息界面被称为Digi POS（销售点），当购物者直接面对自助收银机并扫描他们想要购买的物品时，会投射出一个漂浮在空中的触摸屏图像。
 
-报告警告说，如果中国的供应链中断，与美国和德国相比，很难找到可替代的供应国。
+据[SoraNews24](https://soranews24.com/2022/01/30/floating-hologram-registers-coming-to-japanese-convenience-stores%25E3%2580%2590video%25E3%2580%2591/)报道，Digi POS由六家不同的公司开发，包括 7-Eleven Japan 、Toshiba Tec 、Asukanet Development 、Kanda Kogyo Development 、Mitsui Chemicals Development，以及Mitsui Bussan Plastic。周三（2日）开始，Digi POS在东京的6家7-Eleven商店正式试运行。
 
-信息源：[中国依存、輸入品目の23％　日本、米独よりも「リスク」　内閣府報告](https://news.yahoo.co.jp/articles/90c38db16e074577e43913add6081007f2a3570d)
+全息收银机只接受电子货币钱包、信用卡和二维码等无现金支付方式。据[lowyat.net](https://www.lowyat.net/2022/264706/7-eleven-japan-introduces-holographic-touch-screens-to-its-stores/)报道，它也仅限于店内产品，不包括烟、酒、明信片和邮票等物品，以及快递送货、水电费支付、现金券和账户充值等服务。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+简评：
+
+最早看到这类科技来自西雅图的 Amazon Go 无人超市试点，宗旨在于让顾客购物更加快速便捷，节省了在疫情期间排队结算的时间，更降低了感染病毒的风险。
+
+值得一提的是，这或意味着对人的监控手段更加的严重。另外，G系列的 Hpay 打破了政府、银行对私人企业主与顾客的要求、监控，实现了完全的交易自由（自己当家作主）。
+
+**新闻来源**：[nextshark.com] [7-Eleven Japan testing out touch-free holographic self-checkouts](https://nextshark.com/holographic-touch-screen-self-checkout-registers-7-eleven/) |发布时间：2022年02月02日｜
+
+* * *
+
+***审核：文乐
+校对：小东
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

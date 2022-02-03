@@ -15,122 +15,122 @@
 
 ---
 
-### [货币金融的本质是物物交换](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [美国向欧洲增派军队 称不会进乌克兰作战](/content/gnews/2/README.md)
+### [泰国中央银行加入全球数字银行热潮](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [与福奇有关的高级美国官员就职于中共在美委员会](/content/gnews/3/README.md)
+### [多国奥运运动员抵制北京开幕式](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中日财经爆┃日本进口23%依赖中国 比美国和德国更危险](/content/gnews/4/README.md)
+### [美国陆军宣布将让未接种新冠疫苗的军人退役](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [日本7-Eleven公司测试免触摸全息自助收银机](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [最新诉讼：COVID检测公司伪造测试结果](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [货币金融的本质是物物交换](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [美国向欧洲增派军队 称不会进乌克兰作战](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [与福奇有关的高级美国官员就职于中共在美委员会](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中日财经爆┃日本进口23%依赖中国 比美国和德国更危险](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不要迷信权威](/content/gnews/5/README.md)
+### [有声|香草山新春联欢七哥寄语](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|土共国堕落、邪恶、冷漠世道的冰山一角](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [不要迷信权威](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [日本公司称伊维菌素对新冠病毒显示出“抗病毒效果”](/content/gnews/6/README.md)
+### [日本公司称伊维菌素对新冠病毒显示出“抗病毒效果”](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Hpay有物质的地方就有Hpay](/content/gnews/7/README.md)
+### [Hpay有物质的地方就有Hpay](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [澳中商会：清洁能源或将成为两国潜在突破性合作领域](/content/gnews/8/README.md)
+### [澳中商会：清洁能源或将成为两国潜在突破性合作领域](/content/gnews/15/README.md)
  ` 走进澳洲`
 
-### [为什么叫农场？（四）](/content/gnews/9/README.md)
+### [为什么叫农场？（四）](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [日药厂：伊维菌素对奥米克戎有抗病毒疗效](/content/gnews/10/README.md)
+### [日药厂：伊维菌素对奥米克戎有抗病毒疗效](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧洲四国家宣布放宽或取消疫情限制措施](/content/gnews/11/README.md)
+### [欧洲四国家宣布放宽或取消疫情限制措施](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵直播摘要和音频 2022.02.02](/content/gnews/12/README.md)
+### [郭文贵直播摘要和音频 2022.02.02](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥人生大赢家](/content/gnews/13/README.md)
+### [七哥人生大赢家](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [中国人看不得中国人好](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [地球磁场变化引起指南针偏移](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文雍漫谈：那条铁链锁住的女子就是一个民族的缩影](/content/gnews/16/README.md)
- ` 文雍`
-
-### [全球超43万人联署支持“拒绝中共”倡议](/content/gnews/17/README.md)
+### [全球超43万人联署支持“拒绝中共”倡议](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [北京冬奥会新增55人确诊中共病毒 创新高](/content/gnews/18/README.md)
+### [北京冬奥会新增55人确诊中共病毒 创新高](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国的核酸检测能力令人质疑](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022 – “好好活着”的7大妙招](/content/gnews/20/README.md)
+### [2022 – “好好活着”的7大妙招](/content/gnews/23/README.md)
  ` 正道人`
 
-### [丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/21/README.md)
+### [丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [调解日中韩三国天然气 美紧急应对俄罗斯进攻乌克兰](/content/gnews/22/README.md)
+### [调解日中韩三国天然气 美紧急应对俄罗斯进攻乌克兰](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国总理表示将不会出席2022年北京冬奥会](/content/gnews/23/README.md)
+### [德国总理表示将不会出席2022年北京冬奥会](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国正在东欧部署和重新部署超过3000军人](/content/gnews/24/README.md)
+### [美国正在东欧部署和重新部署超过3000军人](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国副贸易代表：中共未兑现第一阶段贸易协议承诺](/content/gnews/25/README.md)
+### [美国副贸易代表：中共未兑现第一阶段贸易协议承诺](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [有信仰能度过一切的难](/content/gnews/26/README.md)
+### [有信仰能度过一切的难](/content/gnews/29/README.md)
  ` 雅典娜GNotes`
 
-### [人活着的意义](/content/gnews/27/README.md)
+### [人活着的意义](/content/gnews/30/README.md)
  ` 雅典娜GNotes`
 
-### [土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/28/README.md)
+### [土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [日本众议院通过中共国严重人权状况决议](/content/gnews/29/README.md)
+### [日本众议院通过中共国严重人权状况决议](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/30/README.md)
+### [美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [美国前安全官员敦促国会尽早通过对华法案](/content/gnews/31/README.md)
+### [美国前安全官员敦促国会尽早通过对华法案](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [输血会感染mRNA和石墨烯](/content/gnews/32/README.md)
+### [输血会感染mRNA和石墨烯](/content/gnews/35/README.md)
  ` 雅典娜GNotes`
 
-### [中共堂而皇之用“归化球员”粉饰颜面](/content/gnews/33/README.md)
+### [中共堂而皇之用“归化球员”粉饰颜面](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [联盟工作汇报文字版2022.1.30](/content/gnews/34/README.md)
+### [联盟工作汇报文字版2022.1.30](/content/gnews/37/README.md)
  ` 纽约香草山MOS02`
 
-### [中日财经爆┃美国即将全面封杀中芯国际](/content/gnews/35/README.md)
+### [中日财经爆┃美国即将全面封杀中芯国际](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：世界发生货币战风险加大](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [流氓才搞房地产](/content/gnews/37/README.md)
+### [流氓才搞房地产](/content/gnews/39/README.md)
  ` 雅典娜GNotes`
-
-### [欧盟会解体](/content/gnews/38/README.md)
- ` 雅典娜GNotes`
-
-### [有声|新中国联邦新闻英文节目完美首播](/content/gnews/39/README.md)
- ` MOSREC`
 
 ### [中日财经爆|印度政府承认数字货币合法性](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
