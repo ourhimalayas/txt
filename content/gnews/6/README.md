@@ -2,36 +2,30 @@
 ---
 
 
-## 有声|中俄勾兑，习近平只是普京玩弄的工具
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948719/)
+## 扬帆每日速递2022年2月2日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1948725/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年1月30日直播中，向战友们深入解密了现在的俄乌局势，并强调，在这场国际博弈中，习近平只是普京手中把玩的工具而已。
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、加拿大保守党议员团星期三（2月2日）举行无记名信任投票，通过了罢免党领袖奥图尔（Erin OToole）的决定。
 
-郭先生指出，虽然普京和习近平企图通过东西两线同时开战，让美国无法兼顾。但普京和习近平开战的目的截然不同，结果也截然不同。
+2、周五（2月4日），中共领导人习近平将在北京冬奥会开幕式当天与俄罗斯总统普京会面。美媒称，这次会面外界特别关注俄罗斯是否会在冬奥会期间入侵乌克兰。
 
-原文链接：[中俄勾兑，习近平只是普京玩弄的工具](https://gnews.org/zh-hans/1943187/)
+3、据文贵大直播：甜蜜蜜运动对付中共第一招：美国外交授权撤大使馆；第二招：三首歌曲；第三招：冬奥会变成冬眠会。
 
-音频处理/发稿：Daxia
+4、据文贵大直播：伟大的班农先生的父亲–马克·班农先生去世，享年100岁，缅怀这位始终支持爆料革命的老战友。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+5、中共外交部日前公布出席冬奥的国际政要名单，一共仅32人，一些还有凑数的嫌疑，而且西方主要大国政要几乎悉数缺席。
 
-**更多资讯，更多关注**
+6、香港疫情持续升温，医院管理局2月1日警告，春节过后出现大型爆发的机会已达危险水平，海啸式爆发随时可以发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板2-2_page-0001-1.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：文敏
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发布：风起云间（文敏）
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+海报图片设计：飞天面、 Shuang
 
  
 

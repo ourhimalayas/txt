@@ -2,37 +2,36 @@
 ---
 
 
-## 有声|乌克兰兵凶战危 美英不排除联手制裁俄罗斯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948678/)
+## 有声|澳政府禁止未接种疫苗的父母探视患病子女
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948700/)
 
-配音：香草山农场 – 纳米
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月27日，据澳洲媒体报道，西澳大利亚州州长颁布了一项关于中共病毒疫苗的新暴政：自1月31日起，未接种中共病毒疫苗的父母不得去医院探视自己生病的孩子。
 
+报道提及，此项政策的目的在于利用中共病毒疫苗暴政将未接种疫苗的公民锁定在日常生活的很多区域之外，甚至包括他们缴纳过税收的公共空间，从而使这些民众的生活愈加艰难。
 
+原文链接：[澳政府禁止未接种疫苗的父母探视患病子女](https://gnews.org/zh-hans/1940653/)
 
-东欧和中东的地缘政治局势持续紧张，面对俄罗斯与乌克兰的战争风险，美国两党重量级联邦参议员1月30日宣布，就制裁俄罗斯的相关法案达成共识，只要俄罗斯派军进入乌克兰，俄罗斯经济就会遭到“毁灭性打击”，美国绝不重蹈二战前夕的姑息主义。
+音频处理/发稿：Daxia
 
-美国副国务卿纽兰也向媒体透露，白宫正和参议院密切合作，若祭出制裁，相关措施将与欧盟一致，并保证会让俄罗斯“难以忽略”，预计美俄双方本周会再次举行会谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-3.jpg)
-另外，英国政府早前表态，若俄罗斯入侵乌克兰，英国会制裁与俄罗斯政府有关的公司，包括普京身边，所有统治集团的要员。对此，俄罗斯克里姆林宫发言人佩斯科夫回应指：英国政府的举动不仅是对俄罗斯企业的攻击，也会损害英国的投资环境，更会导致欧洲局势进一步紧张。他在记者会上警告，任何类似举动，俄罗斯都会基于自身利益予以回击。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-文字版原文：[乌克兰兵凶战危 美英不排除联手制裁俄罗斯](https://gnews.org/zh-hans/1945241/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 

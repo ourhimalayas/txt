@@ -15,68 +15,68 @@
 
 ---
 
-### [有声|Miles宣布美国授权撤回美国北京大使馆意味什么？](/content/gnews/1/README.md)
+### [有声|谁与七哥灭共，打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢！](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？](/content/gnews/2/README.md)
+### [法律你我他：加拿大的性产业相关NGO](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [有声|Miles宣布美国授权撤回美国北京大使馆意味什么？](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好](/content/gnews/3/README.md)
+### [2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [扬帆每日速递2022年2月2日版（2）](/content/gnews/4/README.md)
+### [扬帆每日速递2022年2月2日版（2）](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [全球疫情更新（各国加强针接种的趋势比较）](/content/gnews/5/README.md)
+### [全球疫情更新（各国加强针接种的趋势比较）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/6/README.md)
+### [有声|中俄勾兑，习近平只是普京玩弄的工具](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|郭文贵先生宣布虎年新郭七条](/content/gnews/7/README.md)
+### [有声|郭文贵先生宣布虎年新郭七条](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|中共人造 “毒雪” 办冬奥](/content/gnews/8/README.md)
+### [有声|中共人造 “毒雪” 办冬奥](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|澳政府禁止未接种疫苗的父母探视患病子女](/content/gnews/9/README.md)
+### [有声|澳政府禁止未接种疫苗的父母探视患病子女](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|班农先生谈中共对美洲的渗透](/content/gnews/10/README.md)
+### [有声|班农先生谈中共对美洲的渗透](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/11/README.md)
+### [有声|乌克兰兵凶战危 美英不排除联手制裁俄罗斯](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|郭先生为香草山农场的战友送去新年寄语](/content/gnews/12/README.md)
+### [有声|郭先生为香草山农场的战友送去新年寄语](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|澳洲官方数据显示80%中共病毒死亡者完全接种疫苗](/content/gnews/13/README.md)
+### [有声|澳洲官方数据显示80%中共病毒死亡者完全接种疫苗](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/14/README.md)
+### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|中共病毒武毒所起源论被福奇等人淡化](/content/gnews/15/README.md)
+### [有声|中共病毒武毒所起源论被福奇等人淡化](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|瓦格纳的音乐魔方](/content/gnews/16/README.md)
+### [有声|瓦格纳的音乐魔方](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|中共腐败现实每况愈下](/content/gnews/17/README.md)
+### [有声|中共腐败现实每况愈下](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|找到生命真相：（五）中共在昆仑山上的活人祭](/content/gnews/18/README.md)
+### [有声|找到生命真相：（五）中共在昆仑山上的活人祭](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2022/01/31文贵先生新春直播](/content/gnews/19/README.md)
+### [2022/01/31文贵先生新春直播](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [渥太华抗议官方强硬 警方逮捕两人提刑事指控](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [自大麻合法化以来，大麻为加拿大的 GDP 贡献了 435 亿美元](/content/gnews/21/README.md)
- ` MG FARM`
 
 ### [文贵先生直播重点大纲2022/02/02](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
