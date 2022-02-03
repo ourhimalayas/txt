@@ -2,18 +2,14 @@
 ---
 
 
-## 有声|欧洲三国电视节目谈论中共威胁台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948289/)
+## 有声|中共病毒及疫苗危机的可怕后果
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948301/)
 
 配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2022年1月30日直播中表示，mRNA疫苗接种已经在世界上造成了数量惊人的死亡率，激起了社会各界的抗议。现在的人们已经意识到这是一场人类大屠杀，一场社交媒体大封杀，这是一场阴谋，mRNA疫苗接种是一场医学灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-
-台媒报道，台湾驻德国代表谢志伟在社交媒体撰文指出，当地时间1月28日，总部设在德国，由德国、奥地利和瑞士公共电视台联合运作的3sat电视台，播出一集以民主和专制冲突为主题的节目，其中台湾与中共，乌克兰和俄罗斯是两个最具代表性的焦点。
-
-谢志伟说，该节目内容强调，台湾身处台湾海峡与西太平洋的关键战略地位，如果中共侵略台湾得逞，将会致使英法德等贸易大国，遭受巨大损失。
-
-原文链接：[欧洲三国电视节目谈论中共威胁台湾](https://gnews.org/zh-hans/1940490/)
+原文链接：[中共病毒及疫苗危机的可怕后果](https://gnews.org/zh-hans/1943055/)
 
 音频处理/发稿：Daxia
 

@@ -2,40 +2,38 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1948300/)
+## 有声|金融巨鳄索罗斯预测 习近平连任无望
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948309/)
 
-翻译：土饭团
+配音：香草山健身部 – 玫瑰园
 
-您若想了解全文报导内容，请点击标题链接
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**1.[Nikki Haley和参议员Risch警告美国奥运选手在中共国将缺乏“隐私和自由”](https://www.foxnews.com/politics/haley-risch-congratulate-us-olympians-warn-they-wont-have-rights-they-are-accustomed-to-in-china)**
+外媒2月1日报道，金融巨鳄索罗斯近日在斯坦福大学演讲时指出：中共党魁习近平目前面临多个危机，其中包括成效欠佳的中共疫苗、国内房地产危机以及出生率下滑等问题。
 
-福克斯新闻1月31日电，前联合国大使Nikki Haley和参议院外交关系委员会最高级别委员Jim Risch（共和党-爱达荷州）警告美国运动员中共国与美国没有相同的价值观。美国人“需要知道，在北京冬奥会期间，我们将在电视上看到的背后有一个黑暗和邪恶的现实”。
+索罗斯表示：中国房地产热潮的兴起，是基于一种称为“竭泽而渔”的模式，这种模式让中共当局尝到甜头，鼓励人民将积蓄投资于房地产。然而，这种模式所引发的一连串，像是开发商债务违约、房产价格下跌、需求量不足等问题，导致了中国房地产热潮自去年开始，全面冷却，目前已濒临崩溃边缘。 另外，索罗斯还透露，近期共产党内部暗潮汹涌，反习力量越来越强，加上各种习近平无力解决的问题，因此，他对习近平顺利连任的愿望持悲观态度。
 
-**2.[前国防部官员:中共国将阻碍美国阻止乌克兰-俄罗斯冲突的重要战略](https://www.foxnews.com/world/china-handicap-strategy-ukraine-russia-conflict)**
+原文链接：[金融巨鳄索罗斯预测 习近平连任无望](https://gnews.org/zh-hans/1945244/)
 
-福克斯新闻1月31日电，川普政府时期负责人事和战备的国防部副部长Robert L.Wilkie表示，如果俄罗斯继续入侵乌克兰，美国威胁要对俄罗斯进行制裁，由于俄罗斯与中共国的紧密联系，任何此类经济惩罚都不会产生美国官员认为的那种影响，因为中共国会提供救济，以使美国难堪。只要削弱美国在世界眼中的地位，中共国愿意帮助任何人。
+音频处理/发稿：Daxia
 
-**3.[FBI局长警告说，中共国的威胁“比以往任何时候都更肆无忌惮”，“更具破坏性”](https://www.foxnews.com/politics/china-threat-brazen-damaging-fbi-director-warns)**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-福克斯新闻2月1日电，美国联邦调查局局长Christopher Wray表示，来自中国共产党（CCP）的威胁“比以往任何时候都更加肆无忌惮”和“比以往任何时候都更具破坏性”，美国的反间谍行动每12小时就会开启一次。在美国运动员准备参加2022年北京冬奥会之际，美国联邦调查局本周发出了额外警告，告诉选手及其团队远离社交媒体。
+**更多资讯，更多关注**
 
-**4.[美国贸易官员称中共国未能履行“第一阶段”承诺](https://www.reuters.com/world/us/us-trade-official-says-china-failed-meet-phase-1-commitments-2022-02-01/)**
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-路透社2月1日电，美国副贸易代表Sarah Bianchi周二表示，中共国未能履行其在2021年底到期为期两年的“第一阶段”贸易协议中的承诺，目前正在与北京就此事进行讨论。Bianchi说，美国贸易代表处正在强调，中共国对企业的国家援助以及非市场经济政策和做法是“对美国经济利益的严重威胁”。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**5.[AFL-CIO强烈支持美国众议院关于中共国竞争的法案](https://www.reuters.com/world/us/afl-cio-strongly-backs-us-house-bill-china-competition-chips-2022-01-31/)**
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-路透社1月31日电，美国最大的劳工组织美国劳工联合会和产业工会联合会(AFL-CIO)周一表示，它强烈支持美国众议院的一项法案，该法案旨在改善与中共国的竞争，促进美国的半导体生产并改革关键贸易条款。代表1250万工人的AFL-CIO在给立法者的一封信中说，该法案中用于芯片的520亿美元对于“解决目前继续对汽车行业和其他领域的生产造成不利影响的芯片短缺问题”至关重要。
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-* * *
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*审核：阿伯塔*
-*校对：信心满满
-发稿：信心的选择*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-1.jpeg)
+
 
  
 
