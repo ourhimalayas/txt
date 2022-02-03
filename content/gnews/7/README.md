@@ -2,27 +2,25 @@
 ---
 
 
-## 停止冬奥会，把CCP踢出WTO和SWIFT （二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1950808/)
+## 中日财经爆┃继续给房地产吃药 中共要求银行提供并购融资支持
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950815/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+撰稿：东京樱花团丨喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-2.png)
+[*图片来源*](https://m.soundofhope.org/post/543674)
 
-你们走着看。等到有一天黑客有啥文件公布的时候？你们就会明白新中国联邦干了什么事情。
+自《关于做好重点房地产企业风险处置项目并购金融服务的通知》发布以来，已有浦发银行、招商银行、广发银行等多家银行表态将提供房地产并购融资支持，方式包括并购主题债券、并购贷款、并购基金、资产证券化等，预计合计提供并购融资支持超300亿元。
 
-这个世界上，记住，干死萨达姆、卡扎菲的，萨达姆当年到英国去杀他的部长，卡扎菲支持恐怖主义，炸掉美国飞机，萨达姆也尝试炸飞机。南斯拉夫当时挑战美国也要炸飞机。挑战美国的核心利益。伊朗几次被搞，就是因为要和恐怖分子搞在一起，跟共产党站在一起。
+据知情人士透露，此前中共央行分别与国资委和银[保监会](http://insurance.jrj.com.cn/list/jgdt.shtml)召开了相关会议，一方面，鼓励大型民营企业、央企和国企并购出险和存在困难的房地产企业的优质项目；另一方面，希望大型银行和股份制银行能够积极为并购方提供并购贷款，同时，对出现风险和困难的房地产企业不要抽贷、断贷。
 
-你再想想当年的苏联。美国现在已经完全感受到了共产党的彻彻底底的威胁，用美国帮助我们建国防的一哥们说句话，他说：“Miles,你一定要相信我。过去20年我只干了一件事儿。我今天到这个位置上，就是因为我20年啥也没干，我甚至不记得谁当总统，但我只记得我有一个使命：消灭中国共产党，消灭伊朗政府，消灭沙特政府。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/停止冬奥会，把CCP踢出WTO和SWIFT（二）-.jpg)
-2021年12月10日文贵大直播
+当前，中共房地产行业面临全面暴雷，中共给自己和世界制造的这枚金融核弹已无法拆解。中共使用强力要求银行出钱支持房地产并购融资，实质还是使用老百姓的储蓄来延缓房地产暴雷的时间，其结果只是牺牲更多老百姓的财富而已。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[**多家银行支持房地产并购融资 并购项目将持续增加**](http://stock.10jqka.com.cn/20220203/c636471579.shtml)
+
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
