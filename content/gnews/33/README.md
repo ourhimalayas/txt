@@ -2,34 +2,44 @@
 ---
 
 
-## CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951885/)
+## 加拿大前省长就旅行疫苗强制起诉联邦政府
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1951931/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据当地媒体报道，儿童健康保护组织CHD正在敦促美国食品和药品监督管理局FDA停止对6个月至5岁儿童的中共病毒疫苗紧急使用授权。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/els-jan5th-2022-720p.jpg)图片来源：Rebel News
+根据《Times Colonist》2月3 日报道，上周六，纽芬兰前省长布莱恩-佩克福德在不列颠哥伦比亚省立法机构门前看到5000多人和平集会，要求改变政府在COVID疫苗接种方面的政策。这一运动已经持续了几个月，人们对大流行病导致的疫苗强制和经济限制感到厌倦。佩克福德表示，这些和平集会源于挫折感，组织良好，将带来改变。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10.jpeg)
+他在采访中说：“所有的非暴力反抗都会带来改变。你们确实影响了当权者， 他们确实注意到了。我在政府工作了17年，我很熟悉这一点”。
 
-据悉，大量的研究表明，儿童不会存在因感染中共病毒而导致并发症的风险。然而，FDA目前仍在积极催促辉瑞公司为这一年龄组的中共病毒疫苗接种工作提交紧急授权资格申请。
+佩克福德希望亲身在法庭上带来改变，他把他的政治影响力和作为起草加拿大宪法和权利与自由宪章的人之一的地位附在对联邦政府的诉讼上。
 
-对此，CHD正在德克萨斯州起诉FDA的此项紧急使用授权严重违反了联邦法律。CHD的主席强调，强制婴幼儿接种中共病毒疫苗是非常危险和不道德的行为，尤其是当下的紧急授权可以使医药公司不承担因疫苗副作用所带来的任何责任。因此，FDA这项糟糕的决定必须被立即停止。
+该诉讼于上周提交，声称联邦政府对航空旅行的COVID疫苗强制要求是违宪的，侵犯了所有加拿大人的宪章权利。
 
-参考链接：[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+佩克福德说：”作为一个加拿大公民，我很担心，作为一个参与制定宪章的人，我很担心”。他建议联邦政府使用宪法第一节，该节允许政府在某些情况下限制宪章权利，但用于大流行病不合理。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+他说：”这项从来不是在这种情况下使用的，它旨在用于非常严重的情况，比如如果国家处于危险之中，战争或叛乱或其他威胁到国家的事情。而不是这种99%的人从一种病毒中恢复的情况。这不是对国家的威胁”。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
+这起诉讼是由设在阿尔伯塔省的宪法自由正义中心（Justice Centre for Constitutional Freedoms）提出的，该组织一直在游说反对大流行病限制，其中包括另外五名加拿大人：一名来自萨里的教师，一名居住在英国的快递员，一名西北地区的高级经理，一名来自皇后区加蒂诺的家庭主妇和一名来自兰利的学生。佩克福德说，这就是要代表普通加拿大人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+正义中心称，600万未接种疫苗的加拿大人无法在加拿大境内旅行，并被阻止飞出加拿大，而参与诉讼的个人则无法去帮助生病的亲人，无法去上班，无法去拜访家人和朋友，无法去享受国际假期，也无法过普通人的生活。
+
+该法律挑战声称，旅行疫苗强制违反了宪章规定的流动性、生命、自由和人身安全、隐私和歧视等权利。该诉讼还质疑交通部长是否有管辖权使用航空安全权力来执行公共卫生措施。
+
+司法中心首席律师基思-威尔逊说，联邦政府明知疫苗不能阻止人们感染或传播病毒，却“任意限制加拿大人的基本权利和自由”。
+
+他说：“令人深感不安的是，未接种疫苗的人被成为加拿大的一个边缘化群体，基本上被禁止离开该国”。
+
+诉讼书说，没有接种疫苗的佩克福德依靠航空旅行到加拿大东部探亲。因为住在岛上，其他旅行方式不现实。自大流行病以来，他在全国各地进行各种演讲活动也依靠航空旅行。
+
+79岁的佩克福德说，他分析了这些数字后选择不接种疫苗，对疫苗的潜在副作用感到担忧，虽然卫生官员说疫苗的严重不良反应是罕见的。
+
+佩克福德在谈到诉讼中提到的六人时说：“我们都对旅行禁令有自己的观点，都知道我们的权利受到了践踏。我们必须继续生活。从我的角度来看，这个非常个人，因为我参与了制定［宪章］”。
+
+原文链接：
+[https://www.timescolonist.com/local-news/former-newfoundland-premier-sues-feds-over-vaccine-mandate-for-travel-5023202](https://www.timescolonist.com/local-news/former-newfoundland-premier-sues-feds-over-vaccine-mandate-for-travel-5023202)
+
+编辑，发稿 Spirit
+
 
 
  

@@ -2,27 +2,31 @@
 ---
 
 
-## 3名多伦多男孩失踪，警方要求公众帮助寻找他们
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952228/)
+## 安大略省夫妇对 3 个月服务费近 $43,000 的煤气费感到震惊
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952288/)
 
-作者：Brooke Houghton
+作者：Kim Phillips
 翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-10.jpg)
-多伦多警方罕见连发三名多伦多少年失踪信息，警方表示担心三人的安全，呼吁公众提供线索帮助寻人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-43.jpg)
+一对居住在安大略省Orillia市的夫妇，在收到他们3个月的天然气账单时，感到不可思议，因为账单价格为近43,000元。
 
-据报道，这三名年龄相近的青少年于1月29日至1月31日大约在同一时间失踪。根据多伦多警察局的一条推文，据信其中两个男孩可能在一起。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-41.jpg)
-据警方新闻稿称， 15岁的Keon Regalado和13岁的Noah Aisosa Oseki最后一次露面是在1 月29日晚上9点，地点是在Finch Avenue West和Weston Road附近 。警方认为他们可能在一起。
+Candace和Bob Shaw说，他们从去年9月份开始就没有收到Enbridge天然气公司的账单。当时他们支付的账单价格非常低——大约26.25元，而通常他们的账单是80元。
 
-警方描述Regalado身高5英尺4英寸，体重130磅，身材苗条，最后一次被人看到时身穿绿色/黑色冬季外套、黑色裤子、白色跑鞋，头发梳成辫子。
+Candance说，当他们10月和11月没有收到账单时，她在12月打电话给Enbridge。天然气公司告诉他们账户出了问题。
 
-警方描述Oseki身高6英尺2英寸，体重130磅，身材瘦弱。他最后一次露面是在周六，身穿黑色耐克夹克、黑色裤子和黑色耐克Airmax鞋。
+她说公司派人上门读取了燃气表数字，随后告诉他们会在1月寄送到账单。
 
-周二下午，警方公布了第三名失踪男孩Sheldon Gordon的照片，但并未说明案件是否相关。
+Candance说，在收到9月中旬至1月中旬的天然气账单后，她彻夜难眠，而且非常震惊。因为账单金额居然为42,625.24元——约为他们41年的平均服务费。
 
-据报道，16岁的Sheldon Gordon最后一次露面是在1月31日晚上9点30分，地点在Jane Street和Sheppard Avenue West附近 。
+这对70多岁的夫妇说，以前在冬天天然气账单可能会多一些，大概为200元左右。但与这张账单上面平均每个月数千元的花费相差甚远。
 
-来源：https://www.narcity.com/toronto/3-toronto-boys-are-missing-police-are-asking-for-the-publics-help-to-find-them
+在给CTV新闻的一封电子邮件中，Enbridge说这个账单数字显然是不正确的，这可能与新的计费系统的问题有关。
+
+“我们在2020年7月引入了一个新的计费系统，可能有一些情况，以前计费系统的数据没有正确转移过来。”
+
+该公司表示，他们将从Shaws账户中删除该账单，并对造成的不便表示歉意。
+
+来源：https://barrie.ctvnews.ca/ontario-couple-shocked-by-nearly-43-000-gas-bill-for-3-months-service-1.5763279
 
 （文章仅代表作者个人观点）
 

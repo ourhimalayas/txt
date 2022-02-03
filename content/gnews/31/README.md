@@ -2,45 +2,30 @@
 ---
 
 
-## 加拿大前省长就旅行疫苗强制起诉联邦政府
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1951931/)
+## GTV新闻访谈简报|2022年2月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1952003/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/els-jan5th-2022-720p.jpg)图片来源：Rebel News
-根据《Times Colonist》2月3 日报道，上周六，纽芬兰前省长布莱恩-佩克福德在不列颠哥伦比亚省立法机构门前看到5000多人和平集会，要求改变政府在COVID疫苗接种方面的政策。这一运动已经持续了几个月，人们对大流行病导致的疫苗强制和经济限制感到厌倦。佩克福德表示，这些和平集会源于挫折感，组织良好，将带来改变。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
 
-他在采访中说：“所有的非暴力反抗都会带来改变。你们确实影响了当权者， 他们确实注意到了。我在政府工作了17年，我很熟悉这一点”。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-佩克福德希望亲身在法庭上带来改变，他把他的政治影响力和作为起草加拿大宪法和权利与自由宪章的人之一的地位附在对联邦政府的诉讼上。
+视频参看：
+[2022.02.03早 《NFSC新闻》](https://gtv.org/video/id=61fbd87c96ba5d73e0c20443)
+[2022.02.03早 GTV《新闻访谈》](https://gtv.org/video/id=61fbe0f696ba5d73e0c20b5b)
 
-该诉讼于上周提交，声称联邦政府对航空旅行的COVID疫苗强制要求是违宪的，侵犯了所有加拿大人的宪章权利。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-佩克福德说：”作为一个加拿大公民，我很担心，作为一个参与制定宪章的人，我很担心”。他建议联邦政府使用宪法第一节，该节允许政府在某些情况下限制宪章权利，但用于大流行病不合理。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
 
-他说：”这项从来不是在这种情况下使用的，它旨在用于非常严重的情况，比如如果国家处于危险之中，战争或叛乱或其他威胁到国家的事情。而不是这种99%的人从一种病毒中恢复的情况。这不是对国家的威胁”。
-
-这起诉讼是由设在阿尔伯塔省的宪法自由正义中心（Justice Centre for Constitutional Freedoms）提出的，该组织一直在游说反对大流行病限制，其中包括另外五名加拿大人：一名来自萨里的教师，一名居住在英国的快递员，一名西北地区的高级经理，一名来自皇后区加蒂诺的家庭主妇和一名来自兰利的学生。佩克福德说，这就是要代表普通加拿大人。
-
-正义中心称，600万未接种疫苗的加拿大人无法在加拿大境内旅行，并被阻止飞出加拿大，而参与诉讼的个人则无法去帮助生病的亲人，无法去上班，无法去拜访家人和朋友，无法去享受国际假期，也无法过普通人的生活。
-
-该法律挑战声称，旅行疫苗强制违反了宪章规定的流动性、生命、自由和人身安全、隐私和歧视等权利。该诉讼还质疑交通部长是否有管辖权使用航空安全权力来执行公共卫生措施。
-
-司法中心首席律师基思-威尔逊说，联邦政府明知疫苗不能阻止人们感染或传播病毒，却“任意限制加拿大人的基本权利和自由”。
-
-他说：“令人深感不安的是，未接种疫苗的人被成为加拿大的一个边缘化群体，基本上被禁止离开该国”。
-
-诉讼书说，没有接种疫苗的佩克福德依靠航空旅行到加拿大东部探亲。因为住在岛上，其他旅行方式不现实。自大流行病以来，他在全国各地进行各种演讲活动也依靠航空旅行。
-
-79岁的佩克福德说，他分析了这些数字后选择不接种疫苗，对疫苗的潜在副作用感到担忧，虽然卫生官员说疫苗的严重不良反应是罕见的。
-
-佩克福德在谈到诉讼中提到的六人时说：“我们都对旅行禁令有自己的观点，都知道我们的权利受到了践踏。我们必须继续生活。从我的角度来看，这个非常个人，因为我参与了制定［宪章］”。
-
-原文链接：
-[https://www.timescolonist.com/local-news/former-newfoundland-premier-sues-feds-over-vaccine-mandate-for-travel-5023202](https://www.timescolonist.com/local-news/former-newfoundland-premier-sues-feds-over-vaccine-mandate-for-travel-5023202)
-
-编辑，发稿 Spirit
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

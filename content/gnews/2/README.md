@@ -2,53 +2,86 @@
 ---
 
 
-## 大多伦多地区公寓均价飙升至$700,000以上
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952294/)
+## 全球疫情更新（疫苗讨论的舆论攻防）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1952470/)
 
-作者：Chris Fox
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1.-1.jpg)
-大多伦多地区公寓的平均售价目前已超过70万加元。
+**整理/编辑：枳实**
 
-多伦多地区房地产局（TRREB）说，尽管上市量比前一年下降了29%，但2021年第四季度大多伦多地区有创纪录的7,815套共管公寓交易。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-144.png)图片：雅典娜农场设计组 精灵蓝
 
-在供应量下降的同时，需求的增加在公寓市场创造了”价格上涨的条件”，这导致平均转售价格同比上升16.4%，达到710,087元。
 
-成本的上升也影响到了公寓租赁市场，一居室单位的平均月租金上升了13.7%，达到2099元，两居室单位的平均成本上升了12.6%，达到2763元。
+雅典娜疫情更新（2022年 2月3日）
 
-TRREB说，这些增长基本上将租金推到了”疫情前的高峰”。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-TRREB的高级市场分析师Jason Mercer告诉CP24：”如果你回想一下疫情初期，房地产市场当时受到重创。当时房源激增，但没有很多的需求。因此，我们实际上看到销售价格下降了一点，但随后在2020年下半年，甚至更多的是在2021年，我们看到了公寓市场的复苏。很大程度上得益于首次购房者入市。当我们在去年年底进行消费者调查时，我们发现首次购房者是2021年的一个主要因素，事实证明确实如此。”
+**一，全球疫情基本数据**
 
-TRREB此前曾表示，GTA所有住宅类型的平均售价在2021年底达到109.5万元的高峰，比前一年增长近18%。
+感染总数：384,167,077（日新增3,081,425，14天增幅-1%）
 
-虽然有一些猜测认为，随着加拿大银行开始加息周期，房价会受到影响，但Mercer说，随着移民的增加和新上市的房产继续在历史低位水平以下徘徊，2022年的需求将继续强劲。
+死亡总数：5,697,479（日新增10,143人，14天增幅 +36%）
 
-他说：”如果你看一下去年年底的整个市场，我们在MLS系统上只有3200个挂牌，所以很多公寓，我们看到不止一个感兴趣的买家，这造成房价继续上涨的压力。”
+**二，全球“疫苗”毒针统计数据**
 
-根据TRREB的数据，2021年第四季度有超过16,000套公寓单位挂牌出租，比前一年下降48.9%。
+“疫苗”毒针注射总数：101亿
 
-多伦多的空置率为1.7％。GTA的其他郊区空置率更低，从0.2%到0.9%不等。
+完全“接种”：41.7亿人
 
-来源：https://toronto.ctvnews.ca/average-condo-price-in-greater-toronto-area-soars-above-700-000-1.5763311
+完全“接种”百分比：53.4%
 
-（文章仅代表作者个人观点）
+**三，澳洲疫情和“疫苗”数据**
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+感染总数：2,645,825（今日新增37,206人）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+死亡总数：3,989人（今日新增 85人）
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+每万人感染人数：1025.5692人
 
-**关注我们**
+“疫苗”毒针注射总数：50,449,872（今日新增256,965   针）
 
-Discord 账号
+完全“接种”： 19,285,421人
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+第二针“接种”百分比：78.8%
 
-Gettr 账号
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+16岁以上人口接种至少两剂疫苗的比例：93.5%
+
+加强针总数：8,418,676（日新增：226,997针）
+
+**四，疫苗讨论的舆论攻防**
+
+2022 年 2 月 2 日，《每日邮报》发表了一篇文章，歪曲报道乔·罗根 (Joe Rogan)对马龙博士和麦卡洛医生的访谈。今天[马龙博士撰写博客文章](https://rwmalonemd.substack.com/p/the-truth-about-the-daily-mail-article)，对这篇报道做出了逐条反驳。这篇文章虽然只是为了辩驳和回应《每日邮报》文章，但事实上总结了自然免疫，羟氯喹，伊维菌素的研究，心肌炎心包炎发病率等各方面的论文和文献索引，是非常好的搜寻疫苗真相相关文献的起始点。
+
+这篇文章的开头就引用《每日邮报》文章的话：“1 月 10 日，超过 250 名医生签署了一封致 Spotify 的公开信，题为：《全球科学和医学界呼吁实施错误信息政策》”，指出这些签署者实际上中有只有少数是医生，大多数只是护士、实习生和播客主播。相比之下，揭穿中共病毒疫苗毒针真相的[国际医师和医学科学家联盟（马龙博士担任主席）拥有超过 17,000 名经过验证的医师声明签署人，他们都是医师​​和医学科学家。](https://globalcovidsummit.org/)
+
+文章中的内容非常丰富，还有无数的细节和引证，篇幅所限，就不详细介绍了。对于被“主流媒体”洗脑，对毒疫苗充满信任的，但愿意花时间研究阅读思辨，寻找真相的人们，尤其是孩子们来说，这篇博文相当适合阅读。毕竟，毒疫苗的推行正是以科学之名，而科学有别于宗教之处，不正是科学就是在质疑中步步推进的吗？中共病毒疫苗是有效还是有害，这既然是科学问题而非宗教教义，当然就可以被质疑和讨论，毕竟已经有如此多的医生和科学家宁愿冒着丢掉自己的行医执照和科研经费的风险也要站出来反对毒疫苗了。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -15,116 +15,116 @@
 
 ---
 
-### [新西兰政府以高于市场价50%价格购买辉瑞疫苗](/content/gnews/1/README.md)
+### [中共国要求所有参加奥运会的人使用“我的2022”应用程序，引发隐私担忧](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [全球疫情更新（疫苗讨论的舆论攻防）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [因收费开疫苗豁免证明桑希尔医生的执照被吊销](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [2.2.22大直播后记：梵蒂冈的袖扣代表地位](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [来自澳大利亚全国各地的卡车司机正前往首都抗议疫苗强制令](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新西兰政府以高于市场价50%价格购买辉瑞疫苗](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [大多伦多地区公寓均价飙升至$700,000以上](/content/gnews/2/README.md)
+### [荒诞的事在中共国和美国同时上演](/content/gnews/7/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [大多伦多地区公寓均价飙升至$700,000以上](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [安大略省夫妇对 3 个月服务费近 $43,000 的煤气费感到震惊](/content/gnews/3/README.md)
+### [安大略省夫妇对 3 个月服务费近 $43,000 的煤气费感到震惊](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [市议会可能要求省征收房屋投机税以应对飙升的房地产市场](/content/gnews/4/README.md)
+### [市议会可能要求省征收房屋投机税以应对飙升的房地产市场](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [澳大利亚治疗用品管理局的数据信息显示，儿童们正在遭受来自疫苗的严重伤害](/content/gnews/5/README.md)
+### [澳大利亚治疗用品管理局的数据信息显示，儿童们正在遭受来自疫苗的严重伤害](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [卑诗省医生现在可以为需要大自然治愈的患者开出免费国家公园门票](/content/gnews/6/README.md)
+### [卑诗省医生现在可以为需要大自然治愈的患者开出免费国家公园门票](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [中共国再显其本色：不要脸](/content/gnews/7/README.md)
+### [中共国再显其本色：不要脸](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共的春晚是宣称假大空的精神毒药](/content/gnews/8/README.md)
+### [中共的春晚是宣称假大空的精神毒药](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [3名多伦多男孩失踪，警方要求公众帮助寻找他们](/content/gnews/9/README.md)
+### [3名多伦多男孩失踪，警方要求公众帮助寻找他们](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [安省家庭因误解旅游保险而被迫支付32,900加元的账单](/content/gnews/10/README.md)
+### [安省家庭因误解旅游保险而被迫支付32,900加元的账单](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [游戏结束了吗？维也纳宪法法官在对政府进行制约吗？](/content/gnews/11/README.md)
+### [游戏结束了吗？维也纳宪法法官在对政府进行制约吗？](/content/gnews/17/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [HPAY将会是灭共的金融核武器](/content/gnews/12/README.md)
+### [HPAY将会是灭共的金融核武器](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [美国陆军开始遣散拒绝接种新冠病毒疫苗的士兵](/content/gnews/13/README.md)
+### [美国陆军开始遣散拒绝接种新冠病毒疫苗的士兵](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [HPAY真正实现了“我的财富我说了算”的自由](/content/gnews/14/README.md)
+### [HPAY真正实现了“我的财富我说了算”的自由](/content/gnews/20/README.md)
  ` 焦點20分`
 
-### [美国会议员因北京冬奥，正寻求剥夺国际奥委会的免税地位](/content/gnews/15/README.md)
+### [美国会议员因北京冬奥，正寻求剥夺国际奥委会的免税地位](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共在美国猖狂的间谍活动令FBI局长惊掉下巴](/content/gnews/16/README.md)
+### [中共在美国猖狂的间谍活动令FBI局长惊掉下巴](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京冬奧定址張家口 犯風水大忌 郭先生號召甜蜜蜜運動 變冬奧會成中共的冬眠會](/content/gnews/17/README.md)
+### [北京冬奧定址張家口 犯風水大忌 郭先生號召甜蜜蜜運動 變冬奧會成中共的冬眠會](/content/gnews/23/README.md)
  ` 焦點20分`
 
-### [2/3银河快讯:中共外交部抗议日本众院人权决议;日本滑雪运动员在北京冬奥会检测阳性](/content/gnews/18/README.md)
+### [2/3银河快讯:中共外交部抗议日本众院人权决议;日本滑雪运动员在北京冬奥会检测阳性](/content/gnews/24/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|2008年诺贝尔医学奖得主、法国病毒学家吕克-蒙塔涅尔教授在什么情况下说：没打疫苗的人将会拯救人类？](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [中共黨魁習近平將一意孤行入侵臺灣](/content/gnews/20/README.md)
+### [中共黨魁習近平將一意孤行入侵臺灣](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行](/content/gnews/21/README.md)
+### [芬兰科学和文化部长安蒂·库尔维宁取消北京冬奥会之行](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [郭文贵盖特音频2022.02.04](/content/gnews/22/README.md)
+### [郭文贵盖特音频2022.02.04](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [专家组报告“哈瓦那综合症”电磁波是否是部分原因](/content/gnews/23/README.md)
+### [专家组报告“哈瓦那综合症”电磁波是否是部分原因](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [性产业的法规流派-合法性](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [有声|SEC批准BSTX在传统市场上进行区块链结算](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [从徐州八孩女子事件看中共大外宣的罪恶](/content/gnews/26/README.md)
+### [从徐州八孩女子事件看中共大外宣的罪恶](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共党魁习近平将一意孤行入侵台湾](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [科学家开始对中共病毒来自实验室理论直言不讳](/content/gnews/28/README.md)
+### [科学家开始对中共病毒来自实验室理论直言不讳](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2022年2月3日早](/content/gnews/29/README.md)
+### [GTV新闻访谈简报|2022年2月3日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [中共国男足再次无缘世界杯](/content/gnews/30/README.md)
+### [中共国男足再次无缘世界杯](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [加拿大前省长就旅行疫苗强制起诉联邦政府](/content/gnews/31/README.md)
+### [加拿大前省长就旅行疫苗强制起诉联邦政府](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [疫苗灾难将引发欧盟各国的联合灭共战争](/content/gnews/32/README.md)
+### [疫苗灾难将引发欧盟各国的联合灭共战争](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/33/README.md)
+### [CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/34/README.md)
+### [封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [《一帘幽梦》唤醒梦中人](/content/gnews/35/README.md)
+### [《一帘幽梦》唤醒梦中人](/content/gnews/37/README.md)
  ` 纽约香草山MOS03`
-
-### [军队开始驱逐不愿打疫苗的士兵](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【玫瑰看新闻】每日快讯2021年2月1日（新西兰时间）](/content/gnews/37/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [“甜蜜蜜运动”三招打残中共 让冬奥会变“冬眠会”](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
