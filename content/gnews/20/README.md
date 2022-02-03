@@ -2,24 +2,26 @@
 ---
 
 
-## 脸书母公司创股市历史最大单日损失
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1952861/)
+## 加拿大《国家邮报》：多数加拿大人希望终止所有防疫限制，人们正在觉醒
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1952919/)
 
-**翻译：雨季仰光**
+#### 加拿大温哥华扬帆农场 枫叶快讯
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-243.png)**图片：网络合成**
-据彭博社（Bloomberg）数据显示，脸书母公司元平台创下美股史上最大单日市值蒸发。
+采编：Spirit
 
-元平台也即我们原来熟知的脸书，在周四早盘交易中市值损失约2300亿美元，皆因失望的投资者对其去年第四季度收益极度失望，其日用户有史以来出现首次下降。
+编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6D051114-F463-4514-94CA-0EE77190FAC8_1_201_a.jpeg)ttutu p图片来源：nationalpost
+据加拿大《国家邮报》2月1日报道，最新民意调查显示，随着“奥密克戎”疫情的逐渐消退，多数加拿大人都希望取消现行的各项强制性防疫政策，以尽快恢复正常的生活。
 
-截至周二上午9:34, 元平台跌幅达25.6%至每股240.31美元，前日收盘价为323美元。公司于周三收市后披露了业绩消息。此次下跌致使公司总市值从8985亿美元降至6684亿美元。
+加拿大舆论研究机构[里德研究所]日前公布的民调结果显示：54%的受访者同意结束所有的疫情限制，32%的人表示强烈支持。同时，疫苗护照计划已开始在各省级政府间出现较大的分歧。对此，萨省省长斯科特近日宣称，即将停止该省的疫苗护照政策。
 
-元平台CEO马克.扎克伯格周三表示，公司收益未来的形势依然严峻， 尤其是来自其他社交媒体应用的竞争诸如Tik Tok.
+该研究报告指出：如果加拿大已度过了疫情的最危急时期，那么公众民意将会逐渐朝着开放社区的方向发展。
 
-扎克伯格始终顾左右而言它，真正使得股值蒸发的不是来自其它社交媒体的竞争，而是脸书对游戏规则的破坏：封锁真话，传播谎言。随着我们Gnews、盖特的壮大，随着疫苗真相的面纱逐步揭开，助纣为虐的互联网巨头们将面临历史和法律的审判，那时候才是它们真正的末日和宿命。
+校对编辑：硫酸羟氯喹64
 
-**[新闻来源](http://Facebook%20parent%20Meta%20loses%20$200%20billion%20in%20market%20cap%20after%20dire%20earnings,%20on%20track%20for%20the%20biggest%20loss%20of%20value%20in%20stock-market%20history)**
+发稿：青青
+
+原文链接：[https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
 
  
 

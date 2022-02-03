@@ -2,43 +2,25 @@
 ---
 
 
-## CNN表示会在北京冬奥会期间关注中共新疆大屠杀
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1953018/)
+## 魁北克政府计划放弃强征疫苗税
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1953052/)
 
-作者: 银河系农场 – 骄子
+#### 加拿大温哥华扬帆农场 枫叶快讯
 
+采编撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/B3DC646A-6644-4AF5-93C2-24A80A7CAF3C_1_201_a.jpeg)图片来源：torontosun
+据【多伦多太阳报】2月1日报道，鉴于目前疫情以及波及全国的反疫苗护照浪潮，魁北克省长勒戈将放弃已拟定的针对该省未接种疫苗居民惩罚性征收“健康税”的计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+报道称，魁省当局此前已制定好了一项法案，计划对因非医疗理由而拒绝接种“新冠病毒”疫苗的群体征收100至800加元的“反疫苗税”。试图以此缓解该省因疫情而陷入困境的医疗保健系统。此举随即招致各界的强烈谴责，并认为该措施是出于政治而不是健康目的违宪法案。
 
+对此，有评论指出，根据近日总理特鲁多在接种三剂疫苗后仍被感染的事实，足以证明“疫苗可以消除疫情”是政府的无耻谎言。当局借防疫而施行的极端政策严重侵害了人们的权益，越来越多的民众因此开始觉醒。而最近席卷整个加拿大的“自由卡车”抗议活动就是人们反抗暴政的最好例证。
 
-近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
+发稿：青青
 
-据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
+新闻连接：[https://torontosun.com/news/local-news/legault-is-poised-to-back-away-from-quebecs-anti-vax-tax-report-says/wcm/a603aedd-d4b5-467c-b015-bacade2378ed](https://torontosun.com/news/local-news/legault-is-poised-to-back-away-from-quebecs-anti-vax-tax-report-says/wcm/a603aedd-d4b5-467c-b015-bacade2378ed)
 
-
-
-相关链接:
-
-[Jake Tapper Announces CNN Will Focus on ‘Horrors’ Committed by China During Beijing Olympics](https://www.mediaite.com/tv/jake-tapper-announces-cnn-will-focus-on-horrors-committed-by-china-during-beijing-olympics/)
-
-![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿: Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

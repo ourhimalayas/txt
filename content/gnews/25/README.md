@@ -2,48 +2,41 @@
 ---
 
 
-## 美国称ISIS头目库莱希在突袭叙利亚时自杀身亡
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1952765/)
+## 中共将奥运政治化，印度特使不会出席开幕式或闭幕式
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1952827/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**作者：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-242.png)图片来源：[WION Youtube Channel](https://www.youtube.com/watch?v=VXf7c482y4k)
+**中共选择将奥运会政治化，印度特使不会出席北京冬奥会开幕式或闭幕式**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/45MQMKSLENPATIALZQCE3UGTKE.jpg)
+印度外交部（Ministry of External Affairs (MEA)）发言人阿林达姆-巴吉（Arindam Bagchi），在新闻发布会上说：“令人遗憾的是，中共选择将奥运会政治化，印度特使不会出席北京冬奥会开幕式和闭幕式”。
+
+据悉，北京决定让在与印度的加勒万河谷边境冲突中头部受伤的解放军团长齐法宝（Qi Fabao，音译）担任火炬手。
+
+**全球灭共全面开始**
+
+另外，郭先生，GETTR 2月3号称：尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害正在被更多的人认清真相，并且将带动全球病毒溯源，停止疫苗灾难的大运动……全球灭共全面开始！共产党你玩球蛋了！
+
+**抵制北京冬奥会国家不断增加**
+
+一年多的时间以来，抵制北京冬奥会国家不断增加，“全球灭共全面开始”，最终会有几个国家出席明天北京冬奥会开幕，让我们拭目以待。
+
+**参考链接：**
+
+1. [MSN: India to Boycott Beijing Winter Olympics After China Picked Galwan Solider as Torch-bearer](https://www.msn.com/en-in/news/other/indian-diplomat-in-china-to-boycott-beijing-olympics-over-china-picking-galwan-solider-as-torch-bearer/ar-AATqWN6)
+2. [WION: *India announces diplomatic boycott of Beijing olympics after Galwan soldier became torchbearer*. YouTube.](https://www.youtube.com/watch?v=VXf7c482y4k)
+3. [India Today: Indian diplomats to boycott Beijing Winter Olympics after China makes Galwan PLA soldier torchbearer.](https://www.indiatoday.in/india/story/indian-diplomats-in-china-to-boycott-beijing-winter-olympics-after-galwan-hurt-pla-officer-made-torch-bearer-1908335-2022-02-03)
 
 
-资料来源：路透社
+**编辑：LILY**
 
-总统乔拜登周四表示，伊斯兰国领导人在美国对叙利亚的军事袭击中引爆自己和家人时死亡，这对圣战组织在失去大片领土后的重组造成了打击。
+**发布：MQ**
 
-阿布·易卜拉欣·哈希米·库莱希 (Abu Ibrahim al-Hashemi al-Quraishi) 自 2019 年伊斯兰国创始人阿布·巴克尔·巴格达迪 (Abu Bakr al-Baghdadi) 去世以来一直领导该国，巴格达迪 (Abu Bakr al-Baghdadi) 在美国突击队的突袭中引爆炸药时也被炸死。
+20220203
 
-据拜登和美国官员称，当美军一夜之间接近叙利亚西北部的库莱希时，他引爆了自己并杀死了自己的家人，包括妇女和儿童。
-
-美国官员说，爆炸的规模如此之大，以至于将尸体从库莱希所在的三层建筑中炸出，并进入阿特梅镇周围的街道，美国官员称，所有平民伤亡均归咎于伊斯兰国。
-
-拜登在白宫发表讲话时说：“多亏我们部队的勇敢，这位可怕的恐怖分子头目已不复存在。”
-
-拜登和向记者通报的美国官员均未提供死亡人数，但叙利亚救援人员表示，至少有 13 人遇难，其中包括四名妇女和六名儿童。
-
-库莱希之死是伊斯兰国在其自封的哈里发被解散、其战士被美国和伊拉克军队击败近三年后的又一次挫折。
-
-从那时起，伊斯兰国，也被称为 ISIS，在伊拉克和叙利亚发动了叛乱袭击。最近的一次是上个月，其枪手冲进了叙利亚东北部关押伊斯兰国嫌疑人的监狱。
-
-库莱希是一名 45 岁的伊拉克人，自从接替巴格达迪之后，他基本上一直处于阴影之中，巴格达迪在其权力的顶峰时期领导该组织，当时该组织在 2014 年发起了震惊世界的闪电扩张。它控制了叙利亚和伊拉克的大片地区，以铁腕统治着数百万人，并在西方发动了多起针对平民的的袭击。
-
-拜登和美国官员称，库莱希是 2014 年伊拉克北部少数族裔雅兹迪人种族灭绝背后的“推动力”，并表示他负责监督从非洲到阿富汗的伊斯兰国分支机构网络。
-
-拜登说：“昨晚的行动将一名主要恐怖分子头目带离战场，并向世界各地的恐怖分子发出了强烈信息：我们会追捕你并找到你。”
-
-在去年因美军从阿富汗撤军而受到广泛批评后，库莱希被杀有助于恢复拜登政府的一些外交政策资格。
-
-叙利亚-土耳其边境附近阿特梅的居民说，在午夜左右开始的突袭行动中，直升机降落，并听到猛烈的枪声和爆炸声。美军使用扩音器警告妇女和儿童离开该地区。
-
-在五角大楼最初称赞成功的阿富汗一次高调的错误无人机袭击之后，美国防止平民伤亡的军事程序正在接受审查。
-
-🔗 [美国称ISIS头目库莱希在突袭叙利亚时自杀身亡](https://www.reuters.com/world/middle-east/biden-says-isis-leader-quraishi-killed-syria-raid-2022-02-03/)
-
-责任编辑/发布： Shuizhuyu
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

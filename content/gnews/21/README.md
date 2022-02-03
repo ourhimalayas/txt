@@ -2,45 +2,60 @@
 ---
 
 
-## 美智库专家：中共试图通过笼络美国精英击败美国
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1952829/)
+## 多伦多司机修车8个月还在等零件
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952915/)
 
-作者: 台湾宝岛农场 – dobi
+作者：Pat Foran
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-46.jpg)
+一名安省司机八个月前发生碰撞事故，自那时起他的汽车趴在修理厂里至今没有归还，修理厂说他们找不到零件。而保险公司提供的租车服务只有六周时间，之后他不得不自费租车。
 
+来自多伦多怡陶碧谷的建筑工人Dillon Gerelus说，八个月没有卡车这对我的工作、我的生活以及来说都是一种压力，这太疯狂了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+Gerelus 在2021年6月时驾驶他的2017款福特F-150皮卡车发生了事故，起初他被告知应该在几周内修理好。
 
+但是八个月后，他仍在等待，因为没人能找到修车需要的安全带传感器。
 
-据台媒报导，美国智库史怀哲（Peter Schweizer）近期表示，中共试图通过笼络美国精英藉以击败美国，他认为，“中共的本质是不可信的，不但是中国人民无法信任它，美国人民也无法信任它。” 因此他呼吁美国应采取措施因应。
+没有这个零件，他的卡车被认为在路上不安全，所以修理厂不能把车交给他。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-2.jpg)图片来源: 网络
+Gerelus说，我太沮丧了，我只想快点让我的卡车回来。
 
-据史怀哲的分析，他认为中共企图透过金钱诱惑、满足虚荣心和荣誉感等手段，收买与拉拢美国政界（华府）、商界（华尔街）和科技界（硅谷）等精英，并利用这些精英来干预美国的政策等作法，藉以达成企图想要成为世界第一大国的野心。他以美国前总统川普在位期间，很多政策遭到华尔街的抵制为例，证明此一现象。
+事故发生后，Gerelus通过他的保险公司获得了一辆出租汽车，但六周后他被告知必须归还。
 
-另外史怀哲也以谷歌、脸书为例，他认为虽然中共抵制谷歌和脸书进入中国市场，但这些公司却愿意帮中国说话，主要是因为中共缺乏对隐私权保护的重视，可轻易收集到巨大数据库，满足经济利益。 他同时也以曾被中共称为50个“对中共帮助最大的外国人”之一的比尔•盖茨（Bill Gates）为例，比尔•盖茨 “从来不会批评中共，还为中共的技术政策提建议”。 史怀哲说：“这些受益于美国制度的大企业和大公司，却成了中共专政政权的支持者”， 这不仅涉及到美国未来的核心问题，代价也非常高。同时他也提及，中共并非仅笼络美国的精英，在澳洲、新西兰也以这样的手段如法炮制，不得不重视。
+Gerelus说，他们希望我以每月1,200元的价格从他们那里租一辆车，那样的话累积到现在我应该花9,600元了。
 
+卡车已经等待零件等待了很长时间，现在他还需要支付的其他维修费用，因为刹车也生锈了，需要更换。Gerelus说他打电话给所有经销商，但都没有现货。
 
+CTV News Toronto就安全带传感器联系了加拿大福特公司，一位发言人说：客户所需部件均已经找到，我们已经联系客户安排必要的修理，包括免费更换刹车和转子。
 
-相关链接:
+这下Gerelus应该很快就会拿回自己的皮卡车了，这对他来说实在是个好消息。
 
-[美智库专家：中共试图通过笼络美精英击败美国](https://www.soundofhope.org/post/589834)
+Gerelus说，我很高兴，这听起来好像我中了彩票一样。我妈妈听后都哭了，这事真快把人折腾疯了。
 
-![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+事实上供应链出问题不仅会导致零部件短缺，还会导致价格上涨。
 
-编辑/校对/发稿: Petite abeille
+随着COVID-19大流行的结束和供应链的开放，汽车零部件和其他物品短缺情况应该会在今年晚些时候得到改善。
 
-**更多资讯，更多关注**
+来源：https://toronto.ctvnews.ca/just-so-frustrated-auto-body-shop-keeps-ontario-man-s-truck-for-eight-months-1.5765423
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
