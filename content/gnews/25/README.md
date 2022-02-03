@@ -2,35 +2,24 @@
 ---
 
 
-## CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951885/)
+## 疫苗灾难将引发欧盟各国的联合灭共战争
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1951921/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据当地媒体报道，儿童健康保护组织CHD正在敦促美国食品和药品监督管理局FDA停止对6个月至5岁儿童的中共病毒疫苗紧急使用授权。
+采编： 文莱       撰稿：Quitman
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image.png)
+据1月30日GTV文贵直播报道，随着“中共病毒”疫苗伤害所导致的次生灾难即将大规模来临，欧盟各国领导人，为延续各自的政治生涯，必将联合发动剿灭中共政权的自救战争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10.jpeg)
+文贵先生对此表示，由于疫苗导致的大量死亡，现已有无数美国人聚集在白宫对面的林肯纪念堂，抗议当局及主流媒掩盖医学灾难真相并体利用MRNA疫苗进行的大屠杀。
 
-据悉，大量的研究表明，儿童不会存在因感染中共病毒而导致并发症的风险。然而，FDA目前仍在积极催促辉瑞公司为这一年龄组的中共病毒疫苗接种工作提交紧急授权资格申请。
+此外，如果疫苗灾难一旦被美加日等最终确定，欧洲那些最严厉执行疫苗接种措施的政客们，例如法国总统马克龙，德国总理默克尔，英国首相约翰逊等，都将受到国内民众的激烈报复和讨伐，谁都无法逃避被追责和审判的结局。
 
-对此，CHD正在德克萨斯州起诉FDA的此项紧急使用授权严重违反了联邦法律。CHD的主席强调，强制婴幼儿接种中共病毒疫苗是非常危险和不道德的行为，尤其是当下的紧急授权可以使医药公司不承担因疫苗副作用所带来的任何责任。因此，FDA这项糟糕的决定必须被立即停止。
+但这些欧洲国家的独裁者们绝不会坐以待毙，他们必将联合在一起，无可选择地对中共发起最后的自救战争，并利用该政权为其替罪羊，以转移国内群情激荡的愤怒和仇恨情绪。而[新中国联邦]将成为最终打扫战场的唯一胜利者。
 
-参考链接：[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+发稿： 苦尽甜来 (文来）
 
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+新闻来源： https://gtv.org/video/id=61f6900896ba5d73e0bee910
 
  
 

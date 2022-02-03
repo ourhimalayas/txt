@@ -2,30 +2,24 @@
 ---
 
 
-## GTV新闻访谈简报|2022年2月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1952003/)
+## 中共党魁习近平将一意孤行入侵台湾
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1952013/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
+采编撰稿：Quitman
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image-2.png)
+据[GTV]1月30日文贵直播报道，中共党魁习近平不明时务，不自量力，一意孤行地准备战攻占台湾，不仅想以此成为当代的秦始皇，更图谋能彻底稳固其党内政权，并让习氏江山能千秋万代。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-2.png)
-文章仅代表作者本人观点，与Gnews无关
+报道指出，习近平当局已计划在占领台湾后，将台湾经济繁荣和出产关键芯片的西部包括台中，台南和高雄地区的大部分人口迁移到中共国大陆集中营，并将福建省居民和深圳高科技人员移居到台湾西部以控制经济和芯片产业。同时，将台湾东部变成遏制日本和挑战美国的太平洋军事基地。
 
-视频参看：
-[2022.02.03早 《NFSC新闻》](https://gtv.org/video/id=61fbd87c96ba5d73e0c20443)
-[2022.02.03早 GTV《新闻访谈》](https://gtv.org/video/id=61fbe0f696ba5d73e0c20b5b)
+为此，在美国不参与的情况下，如果西方对中共因入侵台湾而实施经济制裁之后，中共国的GDP将从现有的15万亿美元骤降至5万亿美元，而最终导致其经济和政权的彻底崩溃。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+此外，如果欧美一旦介入并开动包括日本加入的代理人战争，那么共军将会有至少50万年轻人无辜成为习近平的炮灰。但在目前的共军高层内，除了总加速师外，无一人相信真的会打台湾，更无人认为会打赢和有开战的必要。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿： 苦尽甜来 (文来）
+
+原文链接： https://gtv.org/video/id=61f6900896ba5d73e0bee910
 
  
 
