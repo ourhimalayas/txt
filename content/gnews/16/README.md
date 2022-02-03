@@ -2,42 +2,27 @@
 ---
 
 
-## 有声|谁与七哥灭共，打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948781/)
+## 放毒威胁，企图控制全世界（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948862/)
 
-配音：香草山巡管部– 文凯琳
+整理：雅典娜速记组
+编辑：tianzhihuan
 
+大家要看到，就是共产党在这些决定冬奥会的时候，他建了一个城，河北的张家口。造成了大概13万亿到15万亿美元的人民币的房地产，GDP归零。然后所有的在北京再造的所谓奥运村要活起来，借此机会，要把北京城的五环以北变成现代化商务中心。亚商行亚投行，亚洲基础建设银行。所有的你看看，从四环到五环压音，从开发区600万平方米的写字楼几乎是空的，从盘古五环到往外一直往北，大量的房地产开发，这次完全没了。
 
+再想到兄弟姐妹们共产党你觉得他放毒疫苗，包括对世界的整个房地产他难道不知道这几百万亿会给世界经济带来崩溃吗？他都知道。她也，她一定要记住，他竟然相信他冬奥会能开成这个是重点。直到现在，他也没放弃外交，不能大胆说什么不欢迎外国人外国来宾来参观，就运动员可以来来争来搞成绩，但绝对不允许外边来参观。一参观记者来了， 媒体来了怎么办呢？病毒怎么办呢？露馅怎么办呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
+这事无论如何的狂妄啊。我要跟安红全家开战。我要让你安红来参加我今天的晚餐但你孩子你老公不能来，你来的时候你得进来，得经过三3周的困境，然后换上我的衣裳，内裤，胸罩，然后呢。经过我们无数次摸身，是吧？跟你讲无数次，热，是我，宇宙无限大，地球是一粒沙的故事，让你可能进了屋参加我的晚餐,而你家人这个中间不能给你打电话。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/放毒威胁，企图控制世界（三）-.jpg)
+2021年12月10日文贵大直播
 
-
-
-2017年，七哥不顾家人亲属还留在危险的墙内，独自一人在美国开启爆料革命战场，与CCP展开史诗级的大博杀。面对CCP暴风骤雨般地构陷大量官司，面对海外潜伏力量让人防不胜防的打击，面对一批又一批所谓的“战友”的背叛，七哥展现出钢铁般的意志，毫不畏惧地用美国的法律沉着睿智迎战，决不动摇Take down CCP。
-
-如果人类不是由低级动物演变过来的，我们相信七哥就是上天安排好为百姓伸张正义、为中华大地百姓摆脱千年独裁统治而派到地球上的战神。千年一贵，正道主义感动天地，吸引大批的海外有正义、良知华裔跟随，墙内百姓积极响应。
-
-原文链接：[谁与七哥灭共，打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢！](https://gnews.org/zh-hans/1944689/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

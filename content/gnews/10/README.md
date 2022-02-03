@@ -2,15 +2,37 @@
 ---
 
 
-## 2022年2月3日《樱花简报》：日本与俄罗斯新增中共病毒感染病例再创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948823/)
+## 有声|研究显示 康复的病毒感染者具有自然免疫力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948918/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220203-scaled.jpg)
+配音：香草山农场 – 纳米
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
+1月27日，据当地媒体报道称，美国疾病控制和预防中心CDC数据库、耶鲁大学、哈佛大学和斯坦福大学的一份联合研究表明，绝大多数民众对中共病毒具有自然免疫力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10.jpg)
+据悉，CDC数据库通过对多个国家和地区的中共病毒感染数据进行分析后得出，大多数中共病毒的感染者都拥有了自然抗体，且这种自然免疫不仅有效，还更加持久。数据显示，自然免疫力在预防中共病毒感染方面的有效性是接种中共病毒疫苗的3.3至4.7倍。其中，儿童的自然免疫反应比成年人更强。
+
+评论人士对此表示，该研究的结论揭示了强制民众接种中共毒疫苗政策的政治效应。另一方面，在中共病毒大流行期间，大媒体努力淡化对中共病毒感染者自然免疫力的报道，甚至不惜一切代价吹嘘全民中共毒疫苗接种计划的做法可以被看作是蓄意谋杀。因此，所有因政府强制疫苗令而失去工作的民众应该得到道歉并恢复其工作。
+
+文字版原文：[研究显示 康复的病毒感染者具有自然免疫力](https://gnews.org/zh-hans/1946787/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,16 +2,11 @@
 ---
 
 
-## 2022年2月3日《樱花简报》：日本众议院全体通过涉中共国人权决议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948810/)
+## 推销Hpay时第一句话就是 免费
+` genwsGNEWS` [轉載自GNews](https://gnews.org/zh-hans/1948891/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2._3-scaled.jpg)
-
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
-
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4D77CE37-4F87-4C8B-9CA0-DB7CF7152779-scaled.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

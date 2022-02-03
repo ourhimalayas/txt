@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|冬奥会选手表示 希望去其他国家参赛
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948879/)
+## 关于《HCOIN TO THE MOON》打榜(—)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948975/)
 
-配音：香草山农场 – 纳米
+整理：雅典娜速记组
+编辑：tianzhihuan
 
+咱今天谈一谈，共产党为什么对我们现在开始了？
 
+就是真正的严肃对待，对我们是一级的考虑，包括这个 iTunes，没有木兰妹妹，我们被好莱坞忽悠了好几个月， 那账号一直就是上了《HCoin to the Moon》，就一直就给屏蔽掉， 是木兰找了自己的渠道，这小妮子有本事。哗哗哗把账号要过来， 用她的渠道直接上线，上线直接打榜。打完榜，现在是咱竟然成了billboard全球第一，我是冠军了。
 
-1月30日，据相关媒体报道，时逢中共北京冬奥会开幕在即，虽然中共媒体一直试图向外界传递出各国参赛选手喜爱此次冬奥会的错觉，但很多来自欧洲的运动员纷纷表示，他们对冬奥会完全喜欢不了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-2.jpg)
-不少来自法国的运动员在采访时指出，中共国并不是一个拥有滑雪文化的国家，但为了此次冬奥会的场地问题，中共政府大肆破坏森林植被并人为制造出相当违和的雪地会场。对此，运动员们强调，相较于因举办冬奥会而造成严重的生态问题，他们更希望奥委会能选择尊重自然、尊重个人的国家举办奥运会。
+大家一定要记住，就是因为过去这一次次的歌，和我们唱过的歌的这种影响力，实际上共产党真正的知道，爆料革命新中国联邦不是玩玩的，是玩真的，还真能威胁到他们的存在了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/关于《HCoin-to-the-Moon》打榜（一）_01.jpg)
+2021年12月10日文贵大直播
 
-此外，一些来自瑞典的运动员也通过媒体声明表示，国际机构不应该选择中共政府组织锦标赛或举办奥运会，他们更希望去其他国家参加比赛。
-
-文字版原文：[冬奥会选手表示 希望去其他国家参赛](https://gnews.org/zh-hans/1946668/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,28 @@
 ---
 
 
-## 扬帆每日速递 2022年2月2日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1948298/)
+## GTV新闻访谈简报|2022年2月2日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1948385/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-1、五角大楼周三（2月2日）宣布，将向靠近乌克兰地区增加大约3,000名士兵。拜登总统已正式批准这一计划，这些军队将被部署到波兰和罗马尼亚等国。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
 
-2、在加拿大西部，无法参加周末渥太华“2022年自由车队”抗议活动的卡车司机正在当地集会，支持结束疫苗令和所有疫期限制的行动。温哥华和弗雷泽河谷有一支声援车队从1月29日开始，穿过温哥华市中心，于1月30日在100公里外的卑诗省奇利瓦克（Chilliwack）结束。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-3、据文贵大直播：Himalaya Pay (HPay 或 喜支付）大年初一正式上市！ HPay 颠覆以虚拟货币支付和转账的方式、带领购物支付潮流，拉近人与人之间距离！无论是商家或个人，用Hpay支付或转账完全免费！
+视频参看：[2022.02.02早GTV新闻访谈](https://gtv.org/video/id=61fa86a596ba5d73e0c16281)
 
-4、据文贵大直播：郭先生正式向共产党下战书！七哥誓言冬奥会变成冬眠会！
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-5、中共国外交部网站2月1日刊登赵立坚就日本国会众议院通过涉华人权决议答记者问：所谓人权事务纯属中国内政，事关中国主权和领土完整，不容任何外部势力置喙。日本部分政客强行拼凑所谓决议，是对中国人民的严重政治挑衅，中方保留采取进一步措施的权利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-1.jpeg)
 
-6、2月2日，港府今年取消年初二「农历新年烟花汇演」，凌晨有市民在獅子山公园及茘枝角公园等地上演烟花秀，公园上空爆出阵阵巨响。评:狮子山代表香港人不屈精神，荔枝角关押着大批受迫害的政治犯，而黄大仙、将军澳是反送中运动时的坚强后盾。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板2-2-1_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
-
-编辑：文敏
-
-发布：风起云间（文敏）
-
-海报图片设计：飞天面、 Shuang
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
