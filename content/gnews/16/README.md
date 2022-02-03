@@ -2,41 +2,36 @@
 ---
 
 
-## 七哥分享躺平币（三）个人数据
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949290/)
+## 有声|郭文贵解密中共春晚背后的肮脏交易
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1949364/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在虎年新春大直播中透露，自己曾经到过中共中央电视台，春节联欢晚会的现场，见证了这档深受中国老百姓喜爱的节目背后，虚假及肮脏的嘴脸和交易。
 
-那么你上社交媒体躺平币为啥给你？为啥值钱啊？
+另外，郭先生还指出，每一个新中国联邦人都应该知道，社会主义的本质就是当权者可以不加节制的肆意挥霍民脂民膏，而实际上，一个正常的政府应该是在帮人民、救人民、给人民带来更好生活的前提下，花费人民创造的财富。一起听听郭先生怎么说。
 
-现在到谷歌，比如咱盖特，咱现在现在你看就是盖特的，咱客服现在木兰负责的所谓的客服是最好的。
+原文链接：[郭文贵解密中共春晚背后的肮脏交易](https://gnews.org/zh-hans/1948257/)
 
-但回复一个客服的价值多少钱呢？七美金。
+音频处理/发稿：Daxia
 
-假如安红说我不满意，结果木兰就让客服不回复了，价值除扣除工资成本七美金，一亿条语言，一条回复语言。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
 
-实际在互联网时代，没有一样东西不可计算的。
+**更多资讯，更多关注**
 
-你去想想啊，盖特赏在谷歌现在你看，我在我的手机上就就就都是一上手机, 我要看一个家具。
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-就是家具厂就问你是用郭文贵这个账号看吗？我当然是Yes,我就点击了好了我所有的其他电脑手机，我打开任何什么网站，发文的英文的非洲文的， 哇塞，银行的都在推这个家具。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-为什么这一个广告他要付谷歌？按照我点击的费用付给谷歌钱，这就叫个人数据销售。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-就你点郭文贵，我点着的时候就谷歌已经收了钱了。
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-那我这个东西值不值钱呢？我当然值钱了。像盖特，还有像这个Facebook, 你不知道每个人每一年，你被卖掉150、180美金，只要你注册账号，Facebook卖掉你给广告商，就推送给你广告的权利叫个人数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥分享躺平币（三）个人数据-.jpg)
-2021年12月10日文贵大直播
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
  
 
