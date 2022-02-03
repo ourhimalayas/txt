@@ -2,67 +2,27 @@
 ---
 
 
-## 2022年2月2日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1948816/)
+## 放毒威胁，企图控制世界（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948848/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本.jpg)
-盖特视频连接：[2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；H-Pay上线股市数字货币](https://gettr.com/streaming/przkho9412)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-G-TV视频连接：[2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；H-Pay上线 股市 数字货币](https://gtv.org/video/id=61fa824c96ba5d73e0c15749)
+所谓呢，造成这个不良反应的社会的一些债务，最后是个人。你去想想这个银行发完这个多可怕，所以说你冬奥会完了马上你经济让你崩溃。共产党这个崩溃还不说他要联苏抗美，你去打乌克兰，我去打台湾。
 
-1、中共春晚是：种族大屠杀、文化大屠杀、思想大屠杀、思想大垄断、没有性，钱，权交易，永远上不了春晚；
+然后让日本跪下，对印度竟然私下威胁说什么话我要在这个冬奥会上你抵制我, 你敢发高声我现在就整个让你在喜马拉雅山周围你会感受无法想象的冬天的到来，甚至更多病毒的传染，直接说给印度。
 
-2、李长春喜欢古董，古董都是现挖的；
+印度人就傻眼了，你这啥意思？他说，我们只要不帮你防毒，你毒就会越来越多。这机会就告诉你，老子就是放毒的。把印度给吓的腿软。对日本也几乎明朗，说你们现在病毒控制的不错啊，是吧？你知道明年会什么病毒，你要搞抵制奥运，你要 敢公开弄的话，我这块儿的病毒可能就控制不了了，最近的咱可是有五帮。受害者可能是你日本的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/放毒威胁，企图控制世界（二）-.jpg)
+2021年12月10日文贵大直播
 
-3、新中国联邦春节大直播在国内观看超过2.5亿次 ，50%是重复观看；
-
-4、梵蒂冈教皇送袖扣，意味着把文贵先生当成大主教级别和他平级对待；
-
-5、文贵先生告诉全世界聪明的人们、智慧的人们永远要记住：珍惜生命，远离中共！
-
-6、冬奥会安保都是军人，准备了最高端的电子枪，无色无味的催眠武器，500米范围内闻到就倒下；
-
-7、甜蜜蜜运动：第一回合美国外交撤离，第二回合三首歌，第三回合就是冬奥会，绝对把冬奥会开成冬眠会；
-
-8、外交撤离在美国历史上只用过两次，打伊拉克和南斯拉夫；
-
-9、H-Pay：无障碍支付，无交易费（税）、无中心化支付系统、没有额度限制；
-
-10、喜联储提现额度会根据信用从10万到百万千万甚至亿；
-
-11、GETTR有：Gettr Vision、盖特PAY、盖特币；
-
-12、G-Clubs未来会一卡难求，和H-Pay联系，超出你的想象；
-
-13、H-Coin 优势：（1）有稳定币；（2）有支付系统；（3）有广大使用人群（先有人后有币）；
-
-14、H-Pay上线做三件事：（1）宣传使用H-Pay；（2）动用一切关系合法推广喜币H-Pay；（3）认真研究独创的H-Pay使用方法和渠道；
-
-15、很快中国的墓地不用付钱；
-
-**注：大直播音频——**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
