@@ -2,15 +2,37 @@
 ---
 
 
-## 2022年2月3日《樱花简报》：日本与俄罗斯新增中共病毒感染病例再创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948823/)
+## 有声|冬奥会选手表示 希望去其他国家参赛
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948879/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220203-scaled.jpg)
+配音：香草山农场 – 纳米
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
+1月30日，据相关媒体报道，时逢中共北京冬奥会开幕在即，虽然中共媒体一直试图向外界传递出各国参赛选手喜爱此次冬奥会的错觉，但很多来自欧洲的运动员纷纷表示，他们对冬奥会完全喜欢不了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-2.jpg)
+不少来自法国的运动员在采访时指出，中共国并不是一个拥有滑雪文化的国家，但为了此次冬奥会的场地问题，中共政府大肆破坏森林植被并人为制造出相当违和的雪地会场。对此，运动员们强调，相较于因举办冬奥会而造成严重的生态问题，他们更希望奥委会能选择尊重自然、尊重个人的国家举办奥运会。
+
+此外，一些来自瑞典的运动员也通过媒体声明表示，国际机构不应该选择中共政府组织锦标赛或举办奥运会，他们更希望去其他国家参加比赛。
+
+文字版原文：[冬奥会选手表示 希望去其他国家参赛](https://gnews.org/zh-hans/1946668/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

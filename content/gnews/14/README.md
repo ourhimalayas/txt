@@ -2,18 +2,23 @@
 ---
 
 
-## 喜币会创造富豪
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948890/)
+## 关于《HCOIN TO THE MOON》打榜（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948922/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/02/喜币会创造富豪-.jpg)
-就是因为大家这种念性，相信昆仑山神，相信喜马拉雅神，相信须弥山。你相信人不生不灭，这1000多天你等下去，那你就会看到，我们要把喜支付上来的时候，大家就推广下去，推广的越多，大投资机构者就会给我们估价越高，他进来的越多，当他进来多少钱的时候？大概400亿到500亿美元现金进来。我们的市值达到1000的时候，是1万亿，我们有6亿个币，小飞象、小飞侠、小佳佳、小王子、文峰，你们都是10亿富翁，而且不用卖光所有的币。如果你再有GTV投资，记住GTV是王，永远别忘了，再有Gclub卡在手。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-*发布：开智则立*
+如果他不（认为爆料革命有）威胁，他不可能在冬奥会被抵制期间让杨洁箎王毅双双出手，到全世界去，威胁我们的战友，到西班牙，到迪拜到西欧，到东欧，然后 至塞浦路斯。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+你去想想，以一国之力，就是要诋毁我们爆料革命，还威胁战友， 在国内把我老爹92岁的老爹赶到马路上，把我的同事也赶到马路上。 大家去想一想，这种丧尽天良啊。
+
+昨天有战友在那路过，说盘古的那个七星酒店，一楼二楼三楼，窗帘都拉上了，因为自助餐厅，QMay知道，那有太多好吃的龙虾呀，说在里边他们偷着看，在里边 一大堆人都在那吃龙虾，说把那个咖喱啊给抹到那个龙虾上吃呢。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/关于《HCoin-to-the-Moon》打榜（二）_01.jpg)
+2021年12月10日文贵大直播
+
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

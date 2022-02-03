@@ -2,30 +2,22 @@
 ---
 
 
-## CECC要求增加《防止强迫维吾尔人劳动法》资金
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1948847/)
+## 喜币会创造富豪
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948890/)
 
-![资料照片：中国新疆哈密的农民在摘棉花。（2018年10月14日）](https://gdb.voanews.com/F067E3AD-8EC2-4AE4-8BF6-D61C41949BEA_w1023_r1_s.jpg)资料照片：中国新疆哈密的农民在摘棉花。（2018年10月14日）
-据美国之音2月3日报道，美国国会及行政当局中共国委员会(CECC)的民主与共和两党领导人2日致函参众两院拨款委员会领导人，要求增加2022财年国土安全拨款法案的资金，以允许国土安全部的海关和边境保护局(CBP)有力实施《防止强迫维吾尔人劳动法》。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/02/喜币会创造富豪-.jpg)
+就是因为大家这种念性，相信昆仑山神，相信喜马拉雅神，相信须弥山。你相信人不生不灭，这1000多天你等下去，那你就会看到，我们要把喜支付上来的时候，大家就推广下去，推广的越多，大投资机构者就会给我们估价越高，他进来的越多，当他进来多少钱的时候？大概400亿到500亿美元现金进来。我们的市值达到1000的时候，是1万亿，我们有6亿个币，小飞象、小飞侠、小佳佳、小王子、文峰，你们都是10亿富翁，而且不用卖光所有的币。如果你再有GTV投资，记住GTV是王，永远别忘了，再有Gclub卡在手。
 
-在2021年12月被签署为法律的《防止强迫维吾尔人劳动法》规定美国政府在2022年6月开始实施这个法律。国会及CECC希望能增加资金来推进该法的实施。众议院拨款小组委员会在2022财年国土安全部拨款法案中为该法案提供920万美元；参议院拨款小组委员会提供了1千万美元。美国国土安全部1月24日宣布就该法的实施征求公众意见。
+*发布：开智则立*
 
-中共在新疆对维吾尔少数民族持续犯下的种族灭绝和反人类罪，以及维吾尔人被强迫劳动，已经得到西方世界的实锤认证。中共一意孤行、拒不悔改，一定会得到惩罚和制裁。人权是最基本的普世价值，任何个人和政府都不能剥夺他人的自由，这是天赋神授的权利。
-
-新闻参考链接：[https://www.voachinese.com/a/cecc-seeks-additional-funding-to-implement-the-uyghur-bill-20220202/6423915.html](https://www.voachinese.com/a/cecc-seeks-additional-funding-to-implement-the-uyghur-bill-20220202/6423915.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

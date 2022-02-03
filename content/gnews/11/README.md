@@ -2,40 +2,22 @@
 ---
 
 
-## 有声|长期中共病毒患者的肺部存在异常表现
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948894/)
+## 日本药厂的口服抗病毒新药得到认可
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948950/)
 
-配音：香草山农场 – 纳米
+撰稿：东京樱花团/立道正
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-137.png)[图片来源](https://cn.nikkei.com/industry/manufacturing/46216-2021-09-29-10-03-15.html)
+盐野义制药1月31 日宣布，该厂生产的新药具有抑制冠状病毒传染性的效果，服用该药的患者，在给药第三天后病毒的比例比服用安慰剂的患者低 60% 至 80%。
 
+盐野义药厂的口服药物主要是针对感染早期的患者，临床试验的最后阶段在去年9月开始。 它针对 69 名日本人的安慰剂比较研究中，每天服用一次，持续 5 天。 三剂后，与安慰剂组相比，服用治疗药物的组感染病毒的患者比例降低了 63-80%。目前尚未确认由于给药对人体造成的严重不良事件。
 
+今年1月20日的治疗试验分析数据，已经提交给负责监管审查药品和医疗器械局（PMDA），并提交了一些关于抗病毒作用的数据。 为了获得批准后及时供应。于去年12月开始，己进行口服药物的商业化生产的准备， 它计划在今年 3 月之前生产 100 万人份的口服抗新冠病毒药物。
 
-1月29日，据相关媒体报道，一项新的研究发现指出，中共病毒长期患者的肺部会存在异常表现，且该异常很难被目前的常规医疗措施检测出来。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-1.jpg)
-据悉，研究人员检测到，很多长期感染中共病毒但并不需要住院的患者在确诊之后的一年里一直存在呼吸困难的症状。而研究人员在使用氙气MRI扫描后发现，这些患者大多都存在肺损伤的情况。虽然这些症状很少能被包括CT在内的其他测试检测出来，但中共病毒的长期患者在呼吸时，气体从患者肺部到血液的转移明显受损，相关异常情况则体现在肺部的气道、气体交换膜和毛细血管之间。
+信息来源：[塩野義のコロナ飲み薬、抗ウイルス効果を確認](https://news.yahoo.co.jp/articles/f4a5c56115ee340263006266ff80cb41dff2461f)
 
-目前，研究人员正在尝试分析此类情况涉及的人数和治疗方法。
-
-文字版原文：[长期中共病毒患者的肺部存在异常表现](https://gnews.org/zh-hans/1946710/)
-
-
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

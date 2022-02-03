@@ -2,27 +2,39 @@
 ---
 
 
-## 放毒威胁，企图控制全世界（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1948862/)
+## 有声|长期中共病毒患者的肺部存在异常表现
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948894/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山农场 – 纳米
 
-大家要看到，就是共产党在这些决定冬奥会的时候，他建了一个城，河北的张家口。造成了大概13万亿到15万亿美元的人民币的房地产，GDP归零。然后所有的在北京再造的所谓奥运村要活起来，借此机会，要把北京城的五环以北变成现代化商务中心。亚商行亚投行，亚洲基础建设银行。所有的你看看，从四环到五环压音，从开发区600万平方米的写字楼几乎是空的，从盘古五环到往外一直往北，大量的房地产开发，这次完全没了。
 
-再想到兄弟姐妹们共产党你觉得他放毒疫苗，包括对世界的整个房地产他难道不知道这几百万亿会给世界经济带来崩溃吗？他都知道。她也，她一定要记住，他竟然相信他冬奥会能开成这个是重点。直到现在，他也没放弃外交，不能大胆说什么不欢迎外国人外国来宾来参观，就运动员可以来来争来搞成绩，但绝对不允许外边来参观。一参观记者来了， 媒体来了怎么办呢？病毒怎么办呢？露馅怎么办呢？
 
-这事无论如何的狂妄啊。我要跟安红全家开战。我要让你安红来参加我今天的晚餐但你孩子你老公不能来，你来的时候你得进来，得经过三3周的困境，然后换上我的衣裳，内裤，胸罩，然后呢。经过我们无数次摸身，是吧？跟你讲无数次，热，是我，宇宙无限大，地球是一粒沙的故事，让你可能进了屋参加我的晚餐,而你家人这个中间不能给你打电话。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/放毒威胁，企图控制世界（三）-.jpg)
-2021年12月10日文贵大直播
+1月29日，据相关媒体报道，一项新的研究发现指出，中共病毒长期患者的肺部会存在异常表现，且该异常很难被目前的常规医疗措施检测出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-1.jpg)
+据悉，研究人员检测到，很多长期感染中共病毒但并不需要住院的患者在确诊之后的一年里一直存在呼吸困难的症状。而研究人员在使用氙气MRI扫描后发现，这些患者大多都存在肺损伤的情况。虽然这些症状很少能被包括CT在内的其他测试检测出来，但中共病毒的长期患者在呼吸时，气体从患者肺部到血液的转移明显受损，相关异常情况则体现在肺部的气道、气体交换膜和毛细血管之间。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+目前，研究人员正在尝试分析此类情况涉及的人数和治疗方法。
+
+文字版原文：[长期中共病毒患者的肺部存在异常表现](https://gnews.org/zh-hans/1946710/)
+
+
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
