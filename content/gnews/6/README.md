@@ -2,70 +2,43 @@
 ---
 
 
-## 市长庄德利说，市政府正在为多伦多可能的“车队”抗议做准备
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952937/)
+## CNN表示会在北京冬奥会期间关注中共新疆大屠杀
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1953018/)
 
-作者：Gabby Rodrigues
-翻译：HimaFAFA
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-31.png)
-多伦多市长庄德利(John Tory)表示，正在为卡车车队计划于本周末可能在省议会举行的抗议做准备。
+作者: 银河系农场 – 骄子
 
-他在声明中说：“我们必须尽一切努力避免渥太华居民和企业目前所面临的那种情况。”
 
-与此同时，多伦多警方周四要求多伦多的医院工作人员本周末不要穿制服或其他表明他们工作的服装。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-据CP24获得的一份发给医院工作人员的备忘录称：“多伦多警方建议，去医院时穿便服，而不是那些能表明你是医院工作人员的衣服。”
 
-警方还建议，“出于充分的谨慎”，包括Women’s College医院、西奈山医院和病童医院的工作人员，如果不工作，本周末不要去市中心。
+近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
 
-Women’s College医院还告诉员工，其COVID-19评估中心将于周六关闭，附近的一家家庭诊所和紧急护理诊所也将关闭。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
 
-警方称，“自由车队”游行将于周六下午12点在女王公园举行，期间医院周围将设置额外的安全措施。
+据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
 
-警方还表示，本周末他们将封闭一些道路，以“确保前往医院的道路畅通无阻”。
 
-目前有关游行的细节不多，组织者鼓励支持者在前往省议会之前在大多地区的七个集会点之一集会。大多数在大多地区的购物中心，并于周六中午前往皇后公园。
 
-在周四下午发布的一份声明中，警方表示，他们一直在与示威活动的组织者进行沟通，以限制可能造成的破坏，警方在整个周末将在市中心及周边地区部署大量警员。
+相关链接:
 
-**警方计划封路**
+[Jake Tapper Announces CNN Will Focus on ‘Horrors’ Committed by China During Beijing Olympics](https://www.mediaite.com/tv/jake-tapper-announces-cnn-will-focus-on-horrors-committed-by-china-during-beijing-olympics/)
 
-警方还将把医院的通道作为“优先”，并将“尽快”公布道路封闭的信息。
+![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 
-声明警告说：“任何试图扰乱医院或紧急行动的人都将受到执法。”
+编辑/校对/发稿: Petite abeille
 
-上周末，由卡车司机和支持者组成的车队抵达渥太华，要求取消疫苗令和其他限制。抗议者已经在首都停留了近一个星期。
+**更多资讯，更多关注**
 
-庄德利表示，他支持所有加拿大人和平、尊重地抗议的权利，在整个疫情期间，多伦多发生了多种抗议活动。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“我支持多伦多警方采取必要行动来应对这次抗议，竭尽所能保护多伦多居民和企业的安全，减少任何阻碍。”
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-他还说：“这个周末是许多企业可以营业的第一个周末，包括室内用餐。任何阻止这些受到疫情严重打击的企业继续营业或赶走顾客的想法是不可接受的。”
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-市长还表示，女王公园的任何抗议活动都不能阻拦病人或医院工作人员。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-市长说，他已经与多伦多警察局长拉默(James Ramer)、消防局长佩吉(Matthew Pegg)、市政府高级职员和官员就计划中的活动进行了会面。周五将向居民公布最新情况，警方正在继续收集信息。
-
-来源：https://globalnews.ca/news/8592100/toronto-convoy-protest-john-tory-preparations/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

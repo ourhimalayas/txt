@@ -2,12 +2,16 @@
 ---
 
 
-## 白宫发言人回答关于美国冬奥运动员在华安全问题
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952758/)
+## 西站出品（之）– 七哥讲堂 （四）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1952810/)
 
-02/01/2022 白宫发言人回答关于美国冬奥运动员在华安全问题
+制作：蚂蚁兄弟
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+**Hcoin 和 Bitcoin的区别**
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 

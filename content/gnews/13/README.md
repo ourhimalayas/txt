@@ -2,45 +2,74 @@
 ---
 
 
-## 美智库专家：中共试图通过笼络美国精英击败美国
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1952829/)
+## 2022符合条件加拿大居民装修房屋政府给钱
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1952870/)
 
-作者: 台湾宝岛农场 – dobi
+作者：Helena Hanson
+翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-45.jpg)
+如果你最近刚好相对房子进行翻新装修，那么你或许可以从联邦政府那里拿到一些补助。
 
+自从疫情以来，很多人待在家里的时间比以前更多，越来越多的房主也一直在投资翻新他们的房产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+H&R Block的一位税务专家与Narcity谈及加拿大人谈及如果要减少装修成本，可以获得一些额外的补助。
 
+至少能拿到什么补助，取决于个人的资格、情况和地点。
 
-据台媒报导，美国智库史怀哲（Peter Schweizer）近期表示，中共试图通过笼络美国精英藉以击败美国，他认为，“中共的本质是不可信的，不但是中国人民无法信任它，美国人民也无法信任它。” 因此他呼吁美国应采取措施因应。
+**家庭无障碍设施税收抵免**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-2.jpg)图片来源: 网络
+符合条件的个人在房产装修升级更多的安全和无障碍设施时，都可以拿到补助装修费。
 
-据史怀哲的分析，他认为中共企图透过金钱诱惑、满足虚荣心和荣誉感等手段，收买与拉拢美国政界（华府）、商界（华尔街）和科技界（硅谷）等精英，并利用这些精英来干预美国的政策等作法，藉以达成企图想要成为世界第一大国的野心。他以美国前总统川普在位期间，很多政策遭到华尔街的抵制为例，证明此一现象。
+根据H&R Tax Block的说法，这种联邦对于家庭无障碍设施的税收减免，允许人们申请高达10,000元的费用和高达15%的装修费用作为减税。
 
-另外史怀哲也以谷歌、脸书为例，他认为虽然中共抵制谷歌和脸书进入中国市场，但这些公司却愿意帮中国说话，主要是因为中共缺乏对隐私权保护的重视，可轻易收集到巨大数据库，满足经济利益。 他同时也以曾被中共称为50个“对中共帮助最大的外国人”之一的比尔•盖茨（Bill Gates）为例，比尔•盖茨 “从来不会批评中共，还为中共的技术政策提建议”。 史怀哲说：“这些受益于美国制度的大企业和大公司，却成了中共专政政权的支持者”， 这不仅涉及到美国未来的核心问题，代价也非常高。同时他也提及，中共并非仅笼络美国的精英，在澳洲、新西兰也以这样的手段如法炮制，不得不重视。
+联邦政府说：”一般来说，雇佣专业人员如电工、水管工、木匠和建筑师完成的装修工作都符合条件。”
 
+自己翻新装修的人，也可以得到建筑材料、固定装置、设备租赁、建筑计划和许可证等方面的补助。
 
+但需要注意，部分补助申请需要满足特定条件：比如申请人必须与65岁以上的老人，或有资格获得残疾税收抵免的人一起生活。
 
-相关链接:
+**加拿大绿色家园补助金**
 
-[美智库专家：中共试图通过笼络美精英击败美国](https://www.soundofhope.org/post/589834)
+如果你正在考虑让房屋更环保，如果符合条件，也可以获得补助。
 
-![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+加拿大绿色家园补助金给大约70万加拿大人提供高达5000元的资金，对房屋进行节能改造。
 
-编辑/校对/发稿: Petite abeille
+这部分补助不需要纳税，不需要偿还，也不需要作为收入申报。
 
-**更多资讯，更多关注**
+符合条件的改造类型诸如新安装的太阳能电池板、升级的加热器或新的门窗等。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+值得注意的是，新建筑（6个月或以下）不符合条件。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**其他房屋装修税收抵免**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+在不同的地区，可能有更多的房屋装修税收抵免可以申请。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+例如，在安大略省、BC省和新不伦瑞克省，有其他补助金，让老年人更容易获得房产的项目。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在萨斯喀彻温省的房屋翻新税收抵免，允许花费1000至11000元进行装修升级的人获得高达10.5%的成本回报。
+
+魁北克省有Rénoclimat计划，该计划支持节能升级（标准与联邦计划略有不同），而新不伦瑞克省的居民有资格获得该省类似的家庭节能计划补助。
+
+来源：https://www.narcity.com/you-can-get-money-back-from-the-government-for-renovating-your-home-heres-how-it-works
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

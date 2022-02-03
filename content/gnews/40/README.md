@@ -2,36 +2,38 @@
 ---
 
 
-## “甜蜜蜜运动”三招打残中共 让冬奥会变“冬眠会”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1951218/)
+## 封锁与疫苗被证实无效 政府应向民众致歉
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951798/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-11.png)
-2月2日，郭文贵先生在大直播中正式向中共下战帖，誓言“甜蜜蜜运动”三招将北京冬奥会变成“冬眠会”！“甜蜜蜜运动”的第一招是美国外交撤离，第二招是三个歌声，第三招就是对着冬奥会去的！
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据多家媒体消息显示，约翰-霍普金斯大学近期发布的一项研究结果表明，在2020年春季的第一波中共病毒大流行期间，严格的封锁措施仅仅将欧美等国家的中共病毒死亡率降低了0.2%。
 
-**美国外交撤离重创中共合法性，多米诺骨牌效应已显现**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9.jpeg)
 
-1月25日，郭文贵先生代表爆料革命、新中国联邦宣布，美国政府正式通知北京政府，从即日起，授权撤离美国驻北京大使馆。随后，美国派遣军事医疗专机赴北京协助撤离北京大使馆。与此同时，数十个国家向中共表达要求撤离外交使馆的意愿，其中既有紧跟美国步伐要求真撤的，也不乏借机敲中共一笔的，甚至连中共“巴铁”兄弟也趁火打劫，迫使中共拿钱摆平。
+据悉，此项研究涉及的项目包括学校停课、企业倒闭和强制戴口罩等封锁措施。而相关研究的结果指出，封锁对于公共卫生而言几乎没有任何用处，但这些封锁措施却给各国带来了巨大的经济和社会成本。
 
-由于美国大使馆之于中共政权合法性具有“定海神针”的重要象征意义，而在美国历史上“授权外交撤离”只发生过两次，就是分别打伊拉克和南斯拉夫之前。因此，爆料革命、新中国联邦推动美国外交撤离作为“甜蜜蜜运动”的第一招已经对中共政权合法性进行了釜底抽薪。
+当天，约翰-霍普金斯大学的顶级医学博士麦克利也其社交媒体上表示，越来越多的研究证明，在中共病毒大流行期间，自然免疫比中共病毒疫苗更加有效且持久。麦克利博士强调，政府目前推行的疫苗强制令完全不尊重临床数据研究，实际上，拥有自然免疫力的民众不应该被强制要求接种中共病毒疫苗。
 
-**文贵先生壬寅春晚以歌灭共，三首歌戳破北京冬奥假丑恶**
+对此，评论人士则表示，民众不但应该拒绝政府将强制封锁作为应对中共病毒大流行的工具与措施，那些因拒绝接种中共病毒疫苗而被解雇的工人更应该被恢复工作，且政府与企业主应该向他们道歉。
 
-1月31日，郭文贵先生在2022年壬寅年新春大直播现场献唱《甜蜜蜜》、新中国联邦版《一帘幽梦》和《灭共的雪》三首歌曲。郭文贵先生真我真情的演唱，引爆了亿万战友的感情，掀起了“甜蜜蜜运动”的新高潮。
+参考链接：
+1）[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+2）[Lockdowns only reduced COVID-19 death rate by .2%, study finds: ‘Lockdowns should be rejected out of hand’](https://www.foxnews.com/us/lockdowns-reduced-covid-19-mortality-by-2-study-finds-lockdowns-should-be-rejected-out-of-hand)
 
-《灭共的雪》，针对中共北京冬奥会的秘密主打歌《塞北的雪》而专门改编，目的就是揭露中共冬奥会的假丑恶。郭文贵先生表示，《塞北的雪》被共产党给侮辱了。雪是纯洁的，它不应该是人造的，而共产党要在全世界人面前要制造假的雪，就像假的民主、假的法治、假的粮食一样，还制造了病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-目前，三首歌火遍国内，截止2月2日文贵大直播，春节大直播国内收看达两亿多次，《甜蜜蜜》响遍南北各地。爆料革命、新中国联邦用真相、音乐的力量唤醒了被中共春晚洗脑几十年的麻木的心灵。
+总编：Ivy001 
+编辑：静言
+校正/发稿：谐趣园
 
-对于，“甜蜜蜜运动”的第三招，郭文贵先生虽没有透露具体细节，但从前两招出奇制胜的效果来看，第三招必然也是让广大战友叹为观止、值得期待的。
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

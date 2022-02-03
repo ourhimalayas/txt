@@ -2,25 +2,25 @@
 ---
 
 
-## CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951885/)
+## 中共国男足再次无缘世界杯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951940/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山农场 – 文鹰
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据当地媒体报道，儿童健康保护组织CHD正在敦促美国食品和药品监督管理局FDA停止对6个月至5岁儿童的中共病毒疫苗紧急使用授权。
+2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
 
-据悉，大量的研究表明，儿童不会存在因感染中共病毒而导致并发症的风险。然而，FDA目前仍在积极催促辉瑞公司为这一年龄组的中共病毒疫苗接种工作提交紧急授权资格申请。
+对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
 
-对此，CHD正在德克萨斯州起诉FDA的此项紧急使用授权严重违反了联邦法律。CHD的主席强调，强制婴幼儿接种中共病毒疫苗是非常危险和不道德的行为，尤其是当下的紧急授权可以使医药公司不承担因疫苗副作用所带来的任何责任。因此，FDA这项糟糕的决定必须被立即停止。
-
-参考链接：[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
+参考链接：
+1）[https://gwins.org/cn/milesguo/21801.html](https://gwins.org/cn/milesguo/21801.html)
+2）[20180627之2 ：一边抽雪茄一边直播（第二段）](https://www.youtube.com/watch?v=C5iihj7zNqM)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Irene木木
-编辑：静言
+总编：文特
+编辑：文特
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

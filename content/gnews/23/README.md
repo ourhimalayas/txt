@@ -2,10 +2,10 @@
 ---
 
 
-## 新西兰科学家在辉瑞疫苗中发现奇怪纳米结构
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952720/)
+## 中俄正在形成很危险的伙伴关系
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952729/)
 
-01/28/2022 新西兰科学家在辉瑞疫苗中发现奇怪纳米结构
+01/30/2022 澳大利亚自由党，国防和国家安全政策处主席林肯-帕克：现在我们可以看到俄中之间非常危险的伙伴关系，特别是中共国支持俄罗斯，而俄罗斯向中共国提供能源供应。
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
