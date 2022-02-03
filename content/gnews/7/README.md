@@ -2,8 +2,8 @@
 ---
 
 
-## 看看那些和中共打交道的政客与明星的下场
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951371/)
+## 甜蜜蜜运动要让共产党的冬奥会变成冬眠会
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951424/)
 
 台湾宝岛农场
 

@@ -2,40 +2,34 @@
 ---
 
 
-## 新中国联邦正式向中共国“伟大的”纳粹运动会下战书
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1951038/)
+## 美台共同商议双边贸易协定
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951087/)
 
-作者：东京樱花团｜捆绑CCP一千年
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月30日，据台湾媒体消息显示，台湾副总统赖清德在与多名美国政要召开的视频会议中提出了签署双边贸易协定的议程，而美台商业协会主席、纳斯达克董事长麦克-斯普林特则回应表示大力支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.14.15.png)
+报道提及，赖清德此次与美国政要一共进行了多场视频会晤，与会人员包括斯坦福大学医学院副院长梅尔多娜多和联邦参议员达克沃斯等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦正式向中共国伟大的纳粹运动会下战书.png)
+据悉，这四场会谈除了涉及美台双方的经济发展、供应链合作以及各领域的深化交流外，还讨论了双方关于国防与安全事项的议题。当中，美台双方针对区域安全形势交换了意见。同时，双方也就维持台海安全与稳定，提高台湾的国防能力，以及台湾如何应对来自中共的武装侵略达成了共识。
 
-**新中国联邦正式宣布向习近平下战书誓言灭掉北京冬奥会。中共国纳粹运动会的官宣正在纷纷寻找独裁国家“购买影响力“，图以此洗刷头顶上的反人类罪，但中共国的冬奥会注定会以失败告终。**
+此外，美方也承诺道，将继续协助台湾减少其对中共国的经济依赖。为此，美方希望能与台湾开展更深度的经济和贸易合作，这其中包括在半导体、科技方面的合作，以及在农业方面的交流。因此，斯普林特表示，希望能尽快促成美台双方贸易协定的洽谈及签署。
 
-美国东部时间2日，新中国联邦发起人郭文贵先生庄严向共产党发出宣战：“甜蜜蜜运动第一战就是美国外交撤理驻华大使馆；第二战就是邓丽君的《甜蜜蜜》《一帘幽梦》《我家在山的那一边》三首歌；第三战就是灭掉北京冬奥会。（[1:23.33 时段了解更多](https://gettr.com/post/przkho9412%0a%0a)）。
+参考链接：[賴清德過境美國舊金山 向美方倡議洽簽台美BTA](https://money.udn.com/money/story/7307/6071446?from=edn_maintab_index)
 
-“中共对本次冬奥会的不确定性已经预测到了，认为会有突发事件。但中共已经下令，冬奥会无论发生了什么事，都要向世界宣布说，这是一场完美的史无前例的冬奥会。（是世界各国人民表达）爱北京，爱中国（的大好时机）。无论死多少人，一切都（要说）是正常的，只要别发生当年([1972年慕尼黑奥运会大屠杀](https://www.history.com/this-day-in-history/massacre-begins-at-munich-olympics)）事件就行了。”（[1:23.33 时段了解更多](https://gettr.com/post/przkho9412%0a%0a)）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-- ***延展阅读：***[***与习近平会晤前夕，普京承诺深化与中国的关系***](https://www.nytimes.com/2022/02/03/world/asia/putin-xi-meeting-russia-china.html)
+总编：Irene木木
+编辑：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-
-中共国北京冬奥会正在歪曲“奥林匹克精神”，一个被定义为种族灭绝罪的中国共产党是在以“大屠杀运动会”对奥林匹克精神的羞辱、抹杀。中共政党早已成为世界黑暗力量的中心，对于一切邪恶的力量都力求宣传为正义的。正如中共国新华社2月3日消息报道的那样，“21岁的黎巴嫩高山滑雪女运动员[马诺·欧维斯](https://www.abouther.com/node/46426/people/features/lebanon%E2%80%99s-alpine-skier-manon-ouaiss-heading-2022-winter-olympics)将被见证中国伟大的机会。”而这并非欧维斯所言。欧维斯说：“[奥运会的核心价值观是友谊和尊重。通过奥运会展示我们的教养、自律和价值观](http://sports.news.cn/c/2022-02/03/c_1211552676.htm)。”但这正是中共官宣对本届冬奥会宣传策略——记者会诱导你表达他想要的意思，诸如[完美](http://www.2022bmc.cn/2022-02/03/c_1128325638.htm)、[圆满成功](http://www.news.cn/mrdx/2022-02/03/c_1310452354.htm)、[伟大](http://www.news.cn/mrdx/2022-01/30/c_1310447956.htm)、[史无前例](http://www.news.cn/sports/2021-12/03/c_1128126412.htm)、[爱中国](http://www.news.cn/world/2022-02/01/c_1128320784.htm)等虚假宣传。
-
-中共正在朝着郭文贵先生所披露的这种虚假方式宣传“伟大”的纳粹运动会。除上述所谓对参加比赛的运动员专访外，新华社还报道了诸如中非共和国总统图瓦德拉、白俄罗斯总统卢卡申科、肯尼亚、南苏丹等独裁专制国家领导及其体育官员祝贺其”伟大“外，还有常驻联合国的代表挪威、巴基斯坦、哈萨克斯坦、埃及、法国、俄罗斯代表也在称赞“北京冬奥会弘扬奥林匹克精神”。
-
-- ***延展阅读：***[***【纽约时报】中国运动员强制奥运应用程序存在安全漏洞***](https://www.nytimes.com/2022/01/18/technology/china-olympics-app-security.html)
-
-
-中共政权因为“[病毒溯源](https://www.voachinese.com/a/us-gop-senators-introduce-covid-act-to-sanction-china-20220113/6394903.html)”的压力的加剧和内部派系斗争的激烈，随时都有政治失控的可能，加上北京疫情的失控，但上述这些所谓独裁国家领导人和奥运官员运动员的祝贺背后又都是金钱交易的结果（[见 1:15.19时段](https://gettr.com/post/pqa8gpf229)），这跟本已崩溃的经济增加了更多不稳定因数。
-
-向来依赖钱能解决问题的中国共产党对于举办一场盛大的运动会似乎还不会感到有致命经济压力，但对于新中国联邦公开向习近平领导的中国共产党政权下战书的情况下，冬奥会能佛成功举办就不由得习近平控制了。
-
-2022年2月3日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

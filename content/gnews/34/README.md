@@ -2,20 +2,23 @@
 ---
 
 
-## 美国国税局不会对未售出的质押加密货币作为收入征税
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1950823/)
+## 为战友祈福
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1951045/)
 
-素材：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cmarkets-210205060103-0.jpg)From: dailyfxasia.com
-PANews 2月3日消息，IRS（美国国税局）在未来可能不会对未售出的质押加密货币作为收入征税，该决定是争取将质押奖励归类为财产而非应税收入的斗争中向前迈出的重要一步。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/为战友祈福.001.jpeg)
+那么我今天在开始的时候，首先，在此衷心的祝贺。1月12号全球的兄弟姐妹们，你们今天能在听大直播的时候，会听到很多很多好消息。当然了，我们首先要为我们现在染病的很多战友在全球（有些不能说出名字），要为他们祈福，希望他们早日康复。好消息是他们这些人，吃了我们的药以后都得到了康复。没有一个有生命危险为我们的老师美女小新，木兰的先生，还有我们日本台湾朋友的孩子，在中东，在中亚，吉尔吉斯坦等地的战友们和家人们祈福。
 
-2021年 5 月 26 日Joshua 和 Jessica Jerrett夫妇向美国田纳西州中区地方法院提交法律诉状，要求退还 2019 年因收到 8876 枚Tezos 代币而支付的 3293 美元所得税。据知情人士透露，IRS已批准全额退还他们通过质押获得的代币的税款。
+2022年1月12日大直播
 
-原文链接：[美国国税局不会对未售出的质押加密货币作为收入征税](https://www.panewslab.com/zh/sqarticledetails/1643857185430687.html)
+发布：星谕
 
-* * *
-
-*编辑 /发布：吐纳*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

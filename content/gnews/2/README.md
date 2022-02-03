@@ -2,10 +2,12 @@
 ---
 
 
-## 喜联储H-Pay上线，战友们要做的三件事
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951461/)
+## 在美授权撤离驻北京大使馆前，外交撤离只在美国历史上发生过两次
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951469/)
 
 台灣寶島農場
+
+
 
  
 

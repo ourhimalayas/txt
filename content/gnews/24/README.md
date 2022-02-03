@@ -2,34 +2,30 @@
 ---
 
 
-## 台湾国民党严正谴责中共外交部
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951086/)
+## 中日财经爆┃疫情形势严峻 日本保险公司将何去何从
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1951153/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月30日，据台湾媒体报道，国民党文化传播会主委凌涛当天就中共外交部发言人赵立坚有关贬低台湾的说辞予以反驳。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.14.06.png)
-报道提及，此前，台湾副总统赖清德在参加洪都拉斯新任总统的就职典礼时，曾与美国副总统贺锦丽有过良好的互动。随后，这一互动引发了来自中共的莫名谴责，其外交部发言人甚至扬言称“台湾只是一个省”。
+撰稿：东京樱花团/麗子
 
-对此，凌涛指责赵立坚称，其言论只会进一步恶化两岸的关系。同时，凌涛再次强调，中华民国是主权独立国家，其在1912年创建之初就设有总统职务。而自1948年行宪以来，台湾更有用于规范总统职权的总统专章。1996年后，台湾的总统和副总统一直由中华民国自由地区的全体人民直选产生。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/疫情形势严峻-日本保险公司将何去何从.png)[图片来源](https://www.asahi.com/sp/articles/ASQ235VCXQ23ULFA00Q.html)
 
-凌涛指出，台湾与中共互不承认主权、互不否认治权是两岸数十年来得以维持和平与互动发展的基础。而国民党将严正谴责任何伤害中华民国的恶意发言。
+在日本，中共病毒（新冠病毒Covid-19）的迅速传播导致大多数人开始购买病毒医疗保险，这些保险在感染时提供一次性赔付。保费可能只有几百日元，但有些保险产品赔付数万日元或更多。因为保单数量远超预期，保险公司被迫在暂停销售或提高保费之间做出选择。
 
-参考链接：[中外交部批「哪來什麼副總統」 國民黨聽不下去譴責了](https://news.ltn.com.tw/news/politics/breakingnews/3817889)
+日本生命保险的子公司大树生命保险3日宣布，将从4日开始停止销售针对中共病毒的医疗险产品。此产品，男性的月保费为370日元，女性为340日元，如果一个人因感染中共病毒而住院，将一次性支付10万日元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+许多医疗保险公司事先设定了保费，假设有一定比例的投保人会被感染并获得保险赔偿。负责人说，感染者人数骤增已经完全超过了预期，所以只能停止销售病毒医疗险。
 
-总编：Jack Li文阳
-编辑：谐趣园
-校正/发稿：呼吸的雾霾（文小呼吸）
+去年12月，损害保险日本公司开始通过Paypay销售中共病毒保险。三个月的保险费是500日元，如果测试结果呈阳性，将获得50,000日元。1月25日，保单数量超过10万份，2月1日超过20万份。2月，第一生命保险子公司将该保险的保费提高到1月份的4倍左右。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3日，日本新增感染人数已破10万，如此发展下去，保险公司实已危矣。
+
+信息源：
+
+[感染したら一時金、コロナ保険に加入殺到…販売休止や値上げも](https://news.yahoo.co.jp/articles/3566a0de6db92b3cba2ccfc6addb428acf009ff8)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

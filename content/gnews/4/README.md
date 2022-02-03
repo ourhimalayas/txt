@@ -2,10 +2,10 @@
 ---
 
 
-## 甜蜜蜜运动要让共产党的冬奥会变成冬眠会
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951424/)
+## 喜联储H-Pay上线，战友们要做的三件事
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1951461/)
 
-台湾宝岛农场
+台灣寶島農場
 
  
 

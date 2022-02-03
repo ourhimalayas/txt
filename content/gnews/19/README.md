@@ -2,19 +2,34 @@
 ---
 
 
-## 秘翻在线：北京冬奥会开幕前夕什刹海冰场被关
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1951152/)
+## 加拿大魁北克省放弃“反疫苗税”政策
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951248/)
 
-**撰稿：葛大饼**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月1日，据相关媒体报道，加拿大魁北克省准备放弃向该省未接种中共病毒疫苗的居民征收“反疫苗税”的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.44.59.png)PHOTO : LA PRESSE CANADIENNE / JACQUES BOISSINOT
+资料显示，魁北克省的省长弗朗索瓦-莱戈尔早先在一份名为“反疫苗税”的提案中声称，该省将向拒绝接种中共病毒疫苗的群体收取100至800加元的费用，用于其所谓的“缓解该省因中共病毒而陷入困境的医疗保健系统”。随后，这一提案引发加拿大各界的批评和反对。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-03-213736.jpg)图片来源：搜狐
-根据2022年2月3日 新浪报道， 北京什刹海冰场运营单位北京三海投资管理有限责任公司发布通告：为确保冰上安全，按照相关部门要求，什刹海冰场将于2022年2月4日起关闭。
+评论人士指出，与其说是为了当地民众的健康，“反疫苗税”提案实质上是出于政治目的，其损害了加拿大全民免费及公平获取医疗保障的权利。另一方面，大量的民众在接种了三剂中共病毒疫苗后依然感染了中共病毒，这足以证明疫苗全然无用。
 
-中共的脑回路真不是正常人能理解，冬天因为安全原因把冰场关闭了，是怕老百姓滑倒受伤吗？那以前不关，就今年特别危险吗？！众所周知，著名的什刹海冰场是北京人冬天活动的好去处，是开展民众“冰雪运动”最有代表性的地方，如今却在冬奥会开幕式前一天被关闭，这是多么讽刺！所谓的危险是中南坑的老杂毛们草木皆兵，太害怕了吧，什刹海冰场位于北京二环以内，当然属于重要安保区域了！与其说关闭冰场是确保民众冰上的安全，更不如说是确保冬奥会召开和习太阳的安全吧！既然开个国际盛会都那么紧张，那为什么要开北京冬奥会呢？中共为了国际友人的安全，作为一个“负责任的大国”，关闭冬奥会吧！“习太阳”，您出席冬奥会开幕式要小心，千万不要因为路滑闪掉了脑袋！
+为此，在当天的新闻发布会上，莱戈尔在声明中表示，“反疫苗税”这一提案会制造当地民众的分裂，甚至可能引发抗议。因此，为了维护当地的和平与稳定，他将放弃该提案。
 
-**[新闻来源](https://news.sina.cn/gn/2022-02-03/detail-ikyamrmz8893067.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
+参考链接：[Quebec premier drops idea of ‘anti-vax tax,’ citing need to preserve social peace](https://torontosun.com/news/local-news/legault-is-poised-to-back-away-from-quebecs-anti-vax-tax-report-says/wcm/a603aedd-d4b5-467c-b015-bacade2378ed)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

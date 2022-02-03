@@ -2,30 +2,36 @@
 ---
 
 
-## 中日财经爆┃疫情形势严峻 日本保险公司将何去何从
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1951153/)
+## 美国作家警告人类正处在非常危险的时刻
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951251/)
 
-撰稿：东京樱花团/麗子
+作者：纽约磐石农场 – 在远方/纽约香草山- Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月2日，据盖特消息显示，美国前记者、作家亚历克斯·贝伦森在采访中指出，人类目前正处在一个非常危险的时刻。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.45.06.png)亚历克斯·贝伦森开始反面具义务战争。（照片：脸谱网）
+贝伦森解释道，根据当下的现状可知，中共病毒疫苗对奥米克戎变种病毒毫无防护效用。更甚者，在那些疫苗及其加强针接种率高的国家和地区，当地民众不仅中共病毒的感染率随之走高，而且其重症患者和死亡率也持续上升。当中较为典型的例子是，葡萄牙的疫苗普及率高达93%，但当地当天的新增确认病例数亦突破峰值达到五万例，其中甚至还包括了葡萄牙总理科斯塔。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/疫情形势严峻-日本保险公司将何去何从.png)[图片来源](https://www.asahi.com/sp/articles/ASQ235VCXQ23ULFA00Q.html)
+为此，贝伦森强调称，民众绝对不应该接种中共病毒疫苗，更不应该继续注射加强针。它们不但对中共病毒预防无效，还极度危险。
 
-在日本，中共病毒（新冠病毒Covid-19）的迅速传播导致大多数人开始购买病毒医疗保险，这些保险在感染时提供一次性赔付。保费可能只有几百日元，但有些保险产品赔付数万日元或更多。因为保单数量远超预期，保险公司被迫在暂停销售或提高保费之间做出选择。
+贝伦森还警告称，人体在接种了中共病毒疫苗及其加强针后会产生大量的刺突蛋白，这些刺突蛋白所产生的“回旋效应”将破坏人体的免疫系统，让人们自食其果。对此，贝伦森呼吁，目前市面上的所有中共病毒疫苗需要被立即撤回。
 
-日本生命保险的子公司大树生命保险3日宣布，将从4日开始停止销售针对中共病毒的医疗险产品。此产品，男性的月保费为370日元，女性为340日元，如果一个人因感染中共病毒而住院，将一次性支付10万日元。
+参考链接：
+1）[https://www.gettr.com/post/prw16kc096](https://www.gettr.com/post/prw16kc096)
+2）[Portuguese PM António Costa tests positive for COVID-19](https://www.politico.eu/article/portuguese-prime-minister-antonio-costa-tests-positive-for-covid19-coronavirus/)
 
-许多医疗保险公司事先设定了保费，假设有一定比例的投保人会被感染并获得保险赔偿。负责人说，感染者人数骤增已经完全超过了预期，所以只能停止销售病毒医疗险。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-去年12月，损害保险日本公司开始通过Paypay销售中共病毒保险。三个月的保险费是500日元，如果测试结果呈阳性，将获得50,000日元。1月25日，保单数量超过10万份，2月1日超过20万份。2月，第一生命保险子公司将该保险的保费提高到1月份的4倍左右。
+总编：文特/飞虹
+编辑：文徬
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-3日，日本新增感染人数已破10万，如此发展下去，保险公司实已危矣。
-
-信息源：
-
-[感染したら一時金、コロナ保険に加入殺到…販売休止や値上げも](https://news.yahoo.co.jp/articles/3566a0de6db92b3cba2ccfc6addb428acf009ff8)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
