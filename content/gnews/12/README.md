@@ -2,10 +2,30 @@
 ---
 
 
-## 2/2/2022 文贵直播：喜支付的两个不可思议 &#8211; 先有客户后有币，只要双方同意战友可随心所欲地交易
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1951939/)
+## GTV新闻访谈简报|2022年2月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1952003/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-2.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.02.03早 《NFSC新闻》](https://gtv.org/video/id=61fbd87c96ba5d73e0c20443)
+[2022.02.03早 GTV《新闻访谈》](https://gtv.org/video/id=61fbe0f696ba5d73e0c20b5b)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

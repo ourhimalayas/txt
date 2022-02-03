@@ -2,44 +2,35 @@
 ---
 
 
-## 有声|灭共者之郭氏情报站（二十）2022/02/02 文贵大直播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1951678/)
+## CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951885/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据当地媒体报道，儿童健康保护组织CHD正在敦促美国食品和药品监督管理局FDA停止对6个月至5岁儿童的中共病毒疫苗紧急使用授权。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10.jpeg)
 
+据悉，大量的研究表明，儿童不会存在因感染中共病毒而导致并发症的风险。然而，FDA目前仍在积极催促辉瑞公司为这一年龄组的中共病毒疫苗接种工作提交紧急授权资格申请。
 
-**灭共者-郭氏情报站**
-**2022年2月2日 文贵大直播**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3c8c0785043f9f8c.png)
-1、中共春晚是思想大屠杀，最大的犯罪，精神毒药，一毒几代人，浪费别人生命。新中国联邦春节直播，突破往年的5800万，国内超过2.5亿次观看，50-60%是重看，七哥的3首歌曲重看率最高。
+对此，CHD正在德克萨斯州起诉FDA的此项紧急使用授权严重违反了联邦法律。CHD的主席强调，强制婴幼儿接种中共病毒疫苗是非常危险和不道德的行为，尤其是当下的紧急授权可以使医药公司不承担因疫苗副作用所带来的任何责任。因此，FDA这项糟糕的决定必须被立即停止。
 
-2、冬奥会是政治交换的结果，是灭共天大的礼物，共产党将自杀自残。冬奥会现场80%是军人，准备了电击枪 （电子枪），无声无色无味的催眠武器 （使用者提前服用解药），500米内闻到的人立刻倒地，昏倒十几分钟左右。七哥正式向共产党下战书！七哥3招，冬奥会变成冬眠会！造雪弹都让你打不成。
+参考链接：[Children’s Health Defense calls FDA’s push to green light COVID shots for infants ‘unethical and dangerous’](https://www.lifesitenews.com/news/childrens-health-defense-calls-fdas-push-to-green-light-covid-shots-for-infants-unethical-and-dangerous/)
 
-3、Hpay大年初一上线，超出共产党的想象。无条件的安全支付，0交易成本，没有额度限制，我的财富我说了算。Hpay是无物理行为的、无中心化的交易。推销Hpay时第一句话就是—— 免费！人类回到最早的交易方式（最牛），点到点，没有定价，没有中心化的交易方式。所有的战友一起隔空取钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-4、Hpay上线前，美联储最先反对，日本德国法国，瑞士卢森堡全部反对。初一上线是天意。战友们要开始加大Hpay的推广！各农场要在所在国家推广 Hpay，利益未来会无限变大！后面还将有贷款，存款。
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-5、Hpay、喜联储，不只是金融，而是全人类的未来：物质大流通，大解放，使用即是金钱！喜联储是超越国家、物理世界的，人类最新的文明，消灭人与人之间的距离，超越人类信仰的人与人之间的关系。喜联储创造全世界提现之最，打破人类万年以来一切的金融规则。 5、强者，强己不强人；恕者，恕人不恕己。一定要讲信用。Gclub 很快会一卡难求，未来和Hpay连到一起的时候，价值超出想象。
-
-文字版原文：[灭共者之郭氏情报站（二十）2022/02/02 文贵大直播](https://gnews.org/zh-hans/1947876/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
