@@ -15,98 +15,98 @@
 
 ---
 
-### [串珠566:达沃斯伙同中共奴役压榨中国人70年](/content/gnews/1/README.md)
+### [中日财经爆┃日本2022-2024年将新建多家晶圆厂](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [串珠566:达沃斯伙同中共奴役压榨中国人70年](/content/gnews/2/README.md)
  ` 郭爆料串珠`
 
-### [串珠565:“达沃斯党”都有谁？](/content/gnews/2/README.md)
+### [串珠565:“达沃斯党”都有谁？](/content/gnews/3/README.md)
  ` 郭爆料串珠`
 
-### [有物质的地方就有Hpay(一)](/content/gnews/3/README.md)
+### [有物质的地方就有Hpay(一)](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [加密平台 Wormhole 遭到 3.2 亿美元黑客攻击](/content/gnews/4/README.md)
+### [加密平台 Wormhole 遭到 3.2 亿美元黑客攻击](/content/gnews/5/README.md)
  ` Shuizhuyu`
 
-### [港铁刻薄清洁工奖励变监控](/content/gnews/5/README.md)
+### [港铁刻薄清洁工奖励变监控](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京通过新华社发表署名文章](/content/gnews/6/README.md)
+### [普京通过新华社发表署名文章](/content/gnews/7/README.md)
  ` 儒为`
 
-### [串珠564:01年开始中共用下流手段控制达沃斯](/content/gnews/7/README.md)
+### [串珠564:01年开始中共用下流手段控制达沃斯](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
-### [这歌七哥会唱到灭了共为止（下）](/content/gnews/8/README.md)
+### [这歌七哥会唱到灭了共为止（下）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [澳洲家长对学校要求的快速抗原检测感到愤怒](/content/gnews/9/README.md)
+### [澳洲家长对学校要求的快速抗原检测感到愤怒](/content/gnews/10/README.md)
  ` 走进澳洲`
 
-### [串珠563:王岐山在达沃斯](/content/gnews/10/README.md)
+### [串珠563:王岐山在达沃斯](/content/gnews/11/README.md)
  ` 郭爆料串珠`
 
-### [没有定价规则的贸易下的交易](/content/gnews/11/README.md)
+### [没有定价规则的贸易下的交易](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [把不可能变成可能，把可能变成绝对可能](/content/gnews/12/README.md)
+### [把不可能变成可能，把可能变成绝对可能](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [串珠562:奴隶主俱乐部达沃斯如何奴役世界？](/content/gnews/13/README.md)
+### [串珠562:奴隶主俱乐部达沃斯如何奴役世界？](/content/gnews/14/README.md)
  ` 郭爆料串珠`
 
-### [Hpay上线难度需要全世界认可](/content/gnews/14/README.md)
+### [Hpay上线难度需要全世界认可](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [串珠561:习近平在达沃斯](/content/gnews/15/README.md)
+### [串珠561:习近平在达沃斯](/content/gnews/16/README.md)
  ` 郭爆料串珠`
 
-### [投资GETTR就是投资未来](/content/gnews/16/README.md)
+### [投资GETTR就是投资未来](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [Gclub会一卡难求与Hpay有关系](/content/gnews/17/README.md)
+### [Gclub会一卡难求与Hpay有关系](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [专家称禁足市民有助“动态清零”](/content/gnews/18/README.md)
+### [专家称禁足市民有助“动态清零”](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三菱商事和三井物产携手在澳洲开发新项目](/content/gnews/19/README.md)
+### [三菱商事和三井物产携手在澳洲开发新项目](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美参众两院分别推出打击中共大疆无人机的重磅法案](/content/gnews/20/README.md)
+### [美参众两院分别推出打击中共大疆无人机的重磅法案](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [寻求效仿加拿大抗议强制接种中共病毒疫苗的Facebook小组被删除](/content/gnews/21/README.md)
+### [寻求效仿加拿大抗议强制接种中共病毒疫苗的Facebook小组被删除](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [助中共恶果已现！脸书股价暴跌20%、用户量下跌！](/content/gnews/22/README.md)
+### [助中共恶果已现！脸书股价暴跌20%、用户量下跌！](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/23/README.md)
+### [德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国家脉动披露另一个与中共游说团体有关的NIH官员](/content/gnews/24/README.md)
+### [国家脉动披露另一个与中共游说团体有关的NIH官员](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国陆军宣布将让未接种新冠疫苗的军人退役](/content/gnews/25/README.md)
+### [美国陆军宣布将让未接种新冠疫苗的军人退役](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](/content/gnews/26/README.md)
+### [有声|全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](/content/gnews/27/README.md)
+### [有声|研究发现：Omicron亚变种BA2的传染速度较原始版本高出1.5倍](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%](/content/gnews/28/README.md)
+### [有声|中共病毒疫苗导致美国青壮年死亡人数暴增140%](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [日本7-Eleven公司测试免触摸全息自助收银机](/content/gnews/29/README.md)
+### [日本7-Eleven公司测试免触摸全息自助收银机](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [与福奇有关的高级美国官员就职于中共在美委员会](/content/gnews/30/README.md)
+### [与福奇有关的高级美国官员就职于中共在美委员会](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [中日财经爆┃日本进口23%依赖中国 比美国和德国更危险](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [有声|FBI指中共对西方的威胁较以往更明目张胆](/content/gnews/32/README.md)
  ` MOSREC`
