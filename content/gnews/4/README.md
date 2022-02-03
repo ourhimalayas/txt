@@ -2,10 +2,15 @@
 ---
 
 
-## 2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1948760/)
+## 2022年2月3日《樱花简报》：日本众议院全体通过涉中共国人权决议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948810/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2._3-scaled.jpg)
+
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 

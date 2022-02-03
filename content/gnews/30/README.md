@@ -2,36 +2,35 @@
 ---
 
 
-## 全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1948261/)
+## 辱华？国足1:3输越南 网友：留给中国的对手不多了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1948273/)
 
-撰稿：台湾宝岛农场 – dobi
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒 2月1日 引述消息人士指，供5岁以下儿童接种的中共病毒疫苗预计最快可在2月底开放使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-12.jpg)
-报道指出，共同参与研发的美国药厂辉瑞以及德国生物公司BioNTech预期今日内就会向美国食品及药物管理局递交申请，批准该款疫苗的紧急授权，这款以2针为完全接种剂量的疫苗，在未来数周内将经过多个部门的审批，若最终获得批准，它将是全球首款供6个月至5岁婴幼儿接种的中共病毒疫苗。
+**整理/编辑：Little Lamp**
 
-不过，针对儿童疫苗，早前医学界曾有不少专家联署声明，谨慎为儿童接种中共病毒疫苗，因为疫苗中的刺突蛋白会对儿童的大脑、神经、心脏、生殖及免疫系统造成不可逆转的永久性伤害。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-125.png)图片来源：雅典娜设计组
 
-参考链接：
-1. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://udn.com/news/story/121707/6073124?from=udn-catelistnews_ch2)
-2. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
-3. [全球首支供5岁以下儿童接种的中共病毒疫苗或于2月底面市](https://www.nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+2月2日 12强赛B组第八轮，中国男足1-3不敌越南，提前两轮确定彻底无缘2022卡塔尔世界杯。
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+据统计，这是国足第11次与越南交手，国足首次告负，国足此前10战全胜。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+国足前9次与越南交手，第10次为12强赛第3轮国足3-2绝杀越南。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+网友评论道：“国足都是第一场：开局之战，第二场：关键之战，第三场：必争之战，第四场：背水一战，第五场：荣誉之战，第六场：高铁站。谁再说理论进世界杯，那都是眼瞎了！解散中国足协吧！暂停其投资！面壁思过十年吧！对了，踢成这样算辱华了吧？！话说十四亿人踢不好足球，到底为什么？为什么？”
+
+“1高拉特，年薪1.07亿 代表国足征战0场0进球。 2艾克森，年薪8600万，12强赛6场0进球。 3费南多，年薪6300万，代表国足0场0进球。 4洛国富，年薪4335万，12强赛7场1进球。 5阿兰，年薪2500万，12强赛7场0球。中国足球靠恒大！”
+
+“五星旗帜踢不过一颗星！五星的酒店、交通、薪酬、场馆换来0星的斗志、尊严、骨气！烂到骨髓的潜规则、一个个纹身就像能增加buff一样，就像能多上镜头记住你一样！人家汗流浃背，你们依然保持着出场的发型！裹足队！继续演！反正有体制养你们！有人愿意！你们继续捞！”
+
+文章来源：[脸都不要了！国足历史上首次负于越南，此前10战全胜](https://3g.163.com/dy/article_cambrian/GV5Q77GC0529AQIE.html)
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

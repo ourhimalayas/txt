@@ -2,22 +2,24 @@
 ---
 
 
-## 有声|郭文贵先生宣布虎年新郭七条
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948717/)
+## 有声|Miles宣布美国授权撤回美国北京大使馆意味什么？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948772/)
 
 配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1月 31日新中国联邦春晚中，郭文贵先生在2022年新春伊始，寄语全球新中国联邦人，新中国联邦人在2022年最重要任务是“新郭七条”：
 
-1，一心一意灭共。
 
-2，全力以赴扩大新中国联邦，被国际各个国家主权认可度。
 
-3，全力以赴建设更多的新农场。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-3.jpeg)
 
-4，把国内更多的战友救出来，同时让更多的中国人知道新中国联邦。
 
-原文链接：[郭文贵先生宣布虎年新郭七条](https://gnews.org/zh-hans/1943143/)
+
+美国宣布授权撤回北京美国大使馆，美国为首的西方国家态度已经很清楚了：
+
+1）今后在中国，美国不会再承认没有经过老百姓一人一票选出的政府了。
+
+2）让Miles Guo宣布这么重大事情，掌控美国实权一些重要人物默认未来新政府-新中国联邦正式走上世界舞台。
+
+原文链接：[Miles宣布美国授权撤回美国北京大使馆意味什么？](https://gnews.org/zh-hans/1940852/)
 
 音频处理/发稿：Daxia
 
