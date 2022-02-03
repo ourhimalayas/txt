@@ -2,16 +2,14 @@
 ---
 
 
-## 新加坡狮城农场给全球战友拜年啦
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1951037/)
+## 虎年新春献才艺——诗朗诵《回答》
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1951084/)
 
 **视频制作：逍遥小哥**
 
+**朗诵：Tracy**
 
 
-舞狮队送上的新春对联：
-
-**祝新中国联邦 虎年威名远扬**
 
  
 

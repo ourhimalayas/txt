@@ -2,25 +2,16 @@
 ---
 
 
-## 酒灭中共盘古巍
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1950864/)
+## 意识的清醒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950938/)
 
-作者：shanshan
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9a4f32a7-be15-4604-9b9d-85ad2c8a0d9d-1.jpg)图片来源：Gnews/雅典娜农场![](https://assets.gnews.org/wp-content/uploads/2022/02/Champagne-cheers.jpg)
-香飘四溢熏共匪，
+撰稿：东京樱花团/大炮
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-203.png)
+我们要做的是尊重、敬仰七叔（尊敬的郭文贵先生），而不是崇拜，我们一定要明白，七叔所释放的能量和灵魂才是永恒的，七叔的名字和身子只是借的（包括我们每一个生命体），上天给与我们的使命只是一种充满良知的能量及智慧，接下来要防止伪类借崇拜做文章，这个很可怕，不然又会陷入轮回，我们这一代人的使命就是打破那种对权利崇拜的轮回，建立民主、自由、法治、正道的秩序。
 
-槟郎情系真相杯。
-
-酒灭中共唤世人，
-
-醉醒战友盘古巍。
-
-
-
-
-
-发布：Shifter
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

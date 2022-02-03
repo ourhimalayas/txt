@@ -2,34 +2,30 @@
 ---
 
 
-## 美台共同商议双边贸易协定
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951087/)
+## 中日财经爆┃疫情形势严峻 日本保险公司将何去何从
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1951153/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月30日，据台湾媒体消息显示，台湾副总统赖清德在与多名美国政要召开的视频会议中提出了签署双边贸易协定的议程，而美台商业协会主席、纳斯达克董事长麦克-斯普林特则回应表示大力支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.14.15.png)
-报道提及，赖清德此次与美国政要一共进行了多场视频会晤，与会人员包括斯坦福大学医学院副院长梅尔多娜多和联邦参议员达克沃斯等。
+撰稿：东京樱花团/麗子
 
-据悉，这四场会谈除了涉及美台双方的经济发展、供应链合作以及各领域的深化交流外，还讨论了双方关于国防与安全事项的议题。当中，美台双方针对区域安全形势交换了意见。同时，双方也就维持台海安全与稳定，提高台湾的国防能力，以及台湾如何应对来自中共的武装侵略达成了共识。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/疫情形势严峻-日本保险公司将何去何从.png)[图片来源](https://www.asahi.com/sp/articles/ASQ235VCXQ23ULFA00Q.html)
 
-此外，美方也承诺道，将继续协助台湾减少其对中共国的经济依赖。为此，美方希望能与台湾开展更深度的经济和贸易合作，这其中包括在半导体、科技方面的合作，以及在农业方面的交流。因此，斯普林特表示，希望能尽快促成美台双方贸易协定的洽谈及签署。
+在日本，中共病毒（新冠病毒Covid-19）的迅速传播导致大多数人开始购买病毒医疗保险，这些保险在感染时提供一次性赔付。保费可能只有几百日元，但有些保险产品赔付数万日元或更多。因为保单数量远超预期，保险公司被迫在暂停销售或提高保费之间做出选择。
 
-参考链接：[賴清德過境美國舊金山 向美方倡議洽簽台美BTA](https://money.udn.com/money/story/7307/6071446?from=edn_maintab_index)
+日本生命保险的子公司大树生命保险3日宣布，将从4日开始停止销售针对中共病毒的医疗险产品。此产品，男性的月保费为370日元，女性为340日元，如果一个人因感染中共病毒而住院，将一次性支付10万日元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+许多医疗保险公司事先设定了保费，假设有一定比例的投保人会被感染并获得保险赔偿。负责人说，感染者人数骤增已经完全超过了预期，所以只能停止销售病毒医疗险。
 
-总编：Irene木木
-编辑：谐趣园
-校正/发稿：呼吸的雾霾（文小呼吸）
+去年12月，损害保险日本公司开始通过Paypay销售中共病毒保险。三个月的保险费是500日元，如果测试结果呈阳性，将获得50,000日元。1月25日，保单数量超过10万份，2月1日超过20万份。2月，第一生命保险子公司将该保险的保费提高到1月份的4倍左右。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3日，日本新增感染人数已破10万，如此发展下去，保险公司实已危矣。
+
+信息源：
+
+[感染したら一時金、コロナ保険に加入殺到…販売休止や値上げも](https://news.yahoo.co.jp/articles/3566a0de6db92b3cba2ccfc6addb428acf009ff8)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,34 @@
 ---
 
 
-## 为战友祈福
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1951045/)
+## 台湾国民党严正谴责中共外交部
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951086/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/为战友祈福.001.jpeg)
-那么我今天在开始的时候，首先，在此衷心的祝贺。1月12号全球的兄弟姐妹们，你们今天能在听大直播的时候，会听到很多很多好消息。当然了，我们首先要为我们现在染病的很多战友在全球（有些不能说出名字），要为他们祈福，希望他们早日康复。好消息是他们这些人，吃了我们的药以后都得到了康复。没有一个有生命危险为我们的老师美女小新，木兰的先生，还有我们日本台湾朋友的孩子，在中东，在中亚，吉尔吉斯坦等地的战友们和家人们祈福。
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间1月30日，据台湾媒体报道，国民党文化传播会主委凌涛当天就中共外交部发言人赵立坚有关贬低台湾的说辞予以反驳。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-03-上午8.14.06.png)
+报道提及，此前，台湾副总统赖清德在参加洪都拉斯新任总统的就职典礼时，曾与美国副总统贺锦丽有过良好的互动。随后，这一互动引发了来自中共的莫名谴责，其外交部发言人甚至扬言称“台湾只是一个省”。
 
-2022年1月12日大直播
+对此，凌涛指责赵立坚称，其言论只会进一步恶化两岸的关系。同时，凌涛再次强调，中华民国是主权独立国家，其在1912年创建之初就设有总统职务。而自1948年行宪以来，台湾更有用于规范总统职权的总统专章。1996年后，台湾的总统和副总统一直由中华民国自由地区的全体人民直选产生。
 
-发布：星谕
+凌涛指出，台湾与中共互不承认主权、互不否认治权是两岸数十年来得以维持和平与互动发展的基础。而国民党将严正谴责任何伤害中华民国的恶意发言。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：[中外交部批「哪來什麼副總統」 國民黨聽不下去譴責了](https://news.ltn.com.tw/news/politics/breakingnews/3817889)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Jack Li文阳
+编辑：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
