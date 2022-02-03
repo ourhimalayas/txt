@@ -2,28 +2,35 @@
 ---
 
 
-## 美国前安全官员敦促国会尽早通过对华法案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949737/)
+## 日本众议院通过中共国严重人权状况决议
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1949758/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-164.png)图片来源于本文链接
-华盛顿，2月1日，路透社消息，十几位前美国国家安全官员致函国会，敦促早日通过扶持美国高科技领域对抗中共国的法案。
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+当地时间2月1日，在中共举办冬奥会之前，日本国会通过了一项有关中共国人权的决议。该决议表示，国际社会對中共对新疆、西藏和香港的人权侵犯问题表达关切。决议内容明确指出，基于人权的普世价值，侵犯人权的相关争议不只是国内问题，而是国际社会理应关注的问题。该决议呼吁首相岸田文雄领导的日本政府，采取措施缓解此状况，强烈要求日本政府对中共施压，让中共履行其本该向国际社会做出的可被接纳的责任。
 
-民主党和共和党政府的十六位前官员签署了联名信，其中包括奥巴马时期担任国防部长的莱昂-帕内塔和小布什时期负责国家安全事务的总统助理斯蒂芬-哈德利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-1.jpg)
 
-信中强调该法案将确保美国继续处于微电子领域的前沿。呼吁两党早日达成一项全面竞争力法案，确保联邦投资与国家安全利益相一致，并使美国能够保持其实力和相对于竞争对手的优势。
+参考链接：
 
-去年，参议院通过了《美国创新和竞争法》（USICA）。 它包括520亿美元用于促进半导体生产，以及约1900亿美元用于加强美国的技术和研究以应对中共国。
+- [日本国会通过有关中国人权决议](https://www.zaobao.com/realtime/world/story20220201-1238578)
+- [日本国会通过关于中国人权的决议](https://www.reuters.com/article/japan-parliament-china-resolution-0201-idCNKBS2K62KD)
+- [「中国」と名指しはせずに…衆院、新疆・香港などでの人権問題に「懸念」決議](https://www.yomiuri.co.jp/politics/20220201-OYT1T50158/)
 
-众议院法案不包括用于技术和研究的约1900亿美元，但包括450亿美元用于加强供应链，生产基本商品和工业设备，以及支持制造技术。
 
-众议院本周开始就该法案进行辩论。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-信息源：[米の元安保担当高官十数人、議会に対中法案の早期可決求める](https://jp.reuters.com/article/usa-china-congress-letter-idJPKBN2K70A1)
+总编：Irene木木
+编辑：静言
+校正/发稿：海阔天空1
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

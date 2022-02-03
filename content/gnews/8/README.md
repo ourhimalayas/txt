@@ -2,24 +2,42 @@
 ---
 
 
-## 北京冬奥会新增55人确诊中共病毒 创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950067/)
+## 澳中商会：清洁能源或将成为两国潜在突破性合作领域
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1950185/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-174.png)
-2022北京冬奥医疗专家小组主席麦克洛斯基(Brian McCloskey) 2月3日表示，冬奥会相关人员2日新增55人确诊中共病毒（新冠病毒COVID-19），创新高，1月23日以来，总共已有287人确诊。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-就在北京冬奥正式开幕的前一天，麦克洛斯基在国际奥林匹克委员会(IOC)会议上表示，其中有29例是在机场的新入境者中发现、26例是在区隔所有活动人员和一般大众的“闭环管理”中发现。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-自从1月23日以来，在对奥运相关人员的61万次检测中，已有287人对筛检呈现阳性反应。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image0.png)
 
-麦克洛斯基说，“这个数量非常小”，一旦所有参与者抵达后，人数就会开始降下来。他们有信心这套系统会见效，但他们不会松懈，会保持所有措施到位。
 
-消息来源：[北京冬奥相关55人确诊创单日总量新高](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E7%9B%B8%E9%97%9C55%E4%BA%BA%E7%A2%BA%E8%A8%BA-%E5%89%B5%E5%96%AE%E6%97%A5%E7%B8%BD%E9%87%8F%E6%96%B0%E9%AB%98-052825678.html)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+图片来源：雅典娜设计组
+
+
+根据澳大利亚人报中文报道：尽管堪培拉和北京之间的政治关系持续紧张，但澳大利亚企业对中国贸易和投资的最高倡导组织表示，他们将把清洁能源领域作为一个潜在的突破性合作领域。
+
+澳中商会（Australia China Business Council ）主席大卫·奥尔森（David Olsson)在与会员的通信中说，该组织认为气候变化清洁技术和全球向净零排放的转变是两国合作的机会。
+
+作为这项努力的一部分，ACBC任命该组织中的悉尼可再生能源高管安东尼·科尔斯（Anthony Coles ）领导今年的一系列清洁能源倡议。
+
+关于如何推进该战略的细节预计将在本月举行的ACBC董事会会议上讨论。
+
+虽然中国对澳大利亚在煤炭、葡萄酒、大麦和海鲜等领域的出口进行了打击，但中国仍然是澳大利亚最大的贸易伙伴，而铁矿石、液化天然气、农产品和其他包括乳制品和健康相关产品的出口持续强劲。
+
+参考链接：[https://cn.theaustralian.com.au/2022/02/03/63136/](https://cn.theaustralian.com.au/2022/02/03/63136/)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

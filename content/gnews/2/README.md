@@ -2,26 +2,44 @@
 ---
 
 
-## 地球磁场变化引起指南针偏移
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1950107/)
+## 美国向欧洲增派军队 称不会进乌克兰作战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1950230/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-176.png)
-日本国家地质局（GSI）周三宣布日本各地首府方位与五年前相比，均向西偏移了0.3度。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-由此可见地球磁场发生了变化。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-地磁场的两极与地球南北两极的位置不同，所以磁场北极与地图上的正北方向并不重合。地磁场还会受到地壳变化等因素的影响，所以在不同的地方是磁场不同的。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)
 
-为了矫正这些偏差，日本国家地质局（GSI）每五年发布一次地磁场分布地图。2月2日发布的2020年版分布图显示，东京的位置由北向西偏7.6度，比2015年增加0.3度。
 
-与2015年相比，所有的县厅所在城市均向西偏移，札幌、名古屋和大阪的变化为0.3度。 冈山以西的许多地方偏离了0.4度，而熊本和那霸偏离了0.5度。
 
-信息源：[方位磁針の「北」、西にずれる　地磁気の変動影響か　国土地理院](https://news.yahoo.co.jp/articles/bcf84cb836093c2e954a9e44fb3ca4a22b717259)
+图片来源：雅典娜设计组
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+根据德国之声中文网报道：俄罗斯与乌克兰局势紧张之际，美国五角大楼宣布将增派2000名美军前往波兰及德国，并表示此举是为了捍卫北约盟友，同时称部队不会进入乌克兰。
+
+该报道称，在波兰的部队将处于高度戒备状态。美国国防部发言人约翰·柯比（John Kirby）强调，部署只是暂时性，他们不会在乌克兰作战。
+
+美方指出，已在德国的约1000名美军将被派往罗马尼亚，并补充，大约1700名美军将从美国被派遣至波兰，另有300名军人将前往德国。
+
+波兰国防部长马柳什·布瓦什查克（Mariusz Blaszczak）在推特上发文表示欢迎美军的部署。
+
+北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）也对美军在欧洲的部署表示欢迎。
+
+在美国宣布向欧洲派遣更多军队后，俄罗斯克里姆林宫称，该部署是个“破坏性”的举动。
+
+参考链接：[https://m.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%90%91%E6%AC%A7%E6%B4%B2%E5%A2%9E%E6%B4%BE%E5%86%9B%E9%98%9F-%E7%A7%B0%E4%B8%8D%E8%BF%9B%E4%B9%8C%E5%85%8B%E5%85%B0%E4%BD%9C%E6%88%98/a-60640399](https://m.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%90%91%E6%AC%A7%E6%B4%B2%E5%A2%9E%E6%B4%BE%E5%86%9B%E9%98%9F-%E7%A7%B0%E4%B8%8D%E8%BF%9B%E4%B9%8C%E5%85%8B%E5%85%B0%E4%BD%9C%E6%88%98/a-60640399)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
