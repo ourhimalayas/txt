@@ -2,38 +2,22 @@
 ---
 
 
-## 有声|冬奥会选手表示 希望去其他国家参赛
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1948879/)
+## 日本药厂的口服抗病毒新药得到认可
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1948950/)
 
-配音：香草山农场 – 纳米
+撰稿：东京樱花团/立道正
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-137.png)[图片来源](https://cn.nikkei.com/industry/manufacturing/46216-2021-09-29-10-03-15.html)
+盐野义制药1月31 日宣布，该厂生产的新药具有抑制冠状病毒传染性的效果，服用该药的患者，在给药第三天后病毒的比例比服用安慰剂的患者低 60% 至 80%。
 
+盐野义药厂的口服药物主要是针对感染早期的患者，临床试验的最后阶段在去年9月开始。 它针对 69 名日本人的安慰剂比较研究中，每天服用一次，持续 5 天。 三剂后，与安慰剂组相比，服用治疗药物的组感染病毒的患者比例降低了 63-80%。目前尚未确认由于给药对人体造成的严重不良事件。
 
+今年1月20日的治疗试验分析数据，已经提交给负责监管审查药品和医疗器械局（PMDA），并提交了一些关于抗病毒作用的数据。 为了获得批准后及时供应。于去年12月开始，己进行口服药物的商业化生产的准备， 它计划在今年 3 月之前生产 100 万人份的口服抗新冠病毒药物。
 
-1月30日，据相关媒体报道，时逢中共北京冬奥会开幕在即，虽然中共媒体一直试图向外界传递出各国参赛选手喜爱此次冬奥会的错觉，但很多来自欧洲的运动员纷纷表示，他们对冬奥会完全喜欢不了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-2.jpg)
-不少来自法国的运动员在采访时指出，中共国并不是一个拥有滑雪文化的国家，但为了此次冬奥会的场地问题，中共政府大肆破坏森林植被并人为制造出相当违和的雪地会场。对此，运动员们强调，相较于因举办冬奥会而造成严重的生态问题，他们更希望奥委会能选择尊重自然、尊重个人的国家举办奥运会。
+信息来源：[塩野義のコロナ飲み薬、抗ウイルス効果を確認](https://news.yahoo.co.jp/articles/f4a5c56115ee340263006266ff80cb41dff2461f)
 
-此外，一些来自瑞典的运动员也通过媒体声明表示，国际机构不应该选择中共政府组织锦标赛或举办奥运会，他们更希望去其他国家参加比赛。
-
-文字版原文：[冬奥会选手表示 希望去其他国家参赛](https://gnews.org/zh-hans/1946668/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

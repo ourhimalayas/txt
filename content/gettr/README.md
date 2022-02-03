@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 2/3/2022 4:04 AM (UTC)`
+`@miles 2/3/2022 4:34 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" 1/31/2022 文贵虎年新春大直播：新中国联邦版《一帘幽梦》（中英双语版）
-![img](https://media.gettr.com/group21/origin/2022/02/03/04/1354b740-7055-581f-341a-1bc0fb03050d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+![img](https://media.gettr.com/group49/origin/2022/02/03/04/58ec53df-63fb-129b-dc77-afe10ba19143/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 春晚的本质是假大空
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949186/)
+## 七哥对李长春说春晚就是毒害
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949258/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,32 +2,52 @@
 ---
 
 
-## 2022年2月2日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1949017/)
+## 日本国会通过一项关于“中国严重人权状况”的决议
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1949103/)
 
-作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-143.png)日本议会周二罕见地通过了一项关于中国“严重人权状况”的决议，并要求政府采取措施缓解这种状况。（路透社）
+《路透社》东京2月1日报道，日本国会周二就中共国“严重的人权状况”问题通过了一项罕见的决议，要求政府采取措施缓解这种状况。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
+在美国因对中共国的人权状况感到关切而发起外交抵制行动之后，日本已经宣布不会派政府代表团参加即将举行的北京冬奥会，尽管东京当局避免明确标明这样的行动。
+
+日本首相岸田文雄(Fumio Kishida)自去年10月份上任以来，在多个场合表示，日本在必要时会就中共国议题直言不讳，并在11月任命前日本防卫大臣中谷元(Gen Nakatani)为其人权事务幕僚。
+
+这个由众议院通过的决议表明，国际社会对在新疆维吾尔自治区、西藏和香港发生的拘留和侵犯宗教自由等问题表示关切。
+
+该决议指出：“人权问题不能只是内部问题，因为人权具有普世价值，是国际社会理应关注的问题，本议会意识到，以严峻的人权状况为象征强制改变现状，是对国际社会的威胁。”
+
+中共国外交部在星期二的一份声明中表示，该决议“罔顾事实真相，恶意诋毁中国人权状况，严重违反国际法和国际关系基本准则，粗暴干涉中国内政，性质极其恶劣。”
+
+声明还说，当年日本对其他国家发动战争，它犯下了无数罪行。
+
+中共国否认在新疆的侵犯人权行为，新疆是一个主要的棉花生产地，也是世界上大部分太阳能板材料的供应地。
+
+日本时事通信社(Jiji news agency)称，尽管政府内部对潜在的经济影响存在担忧，但执政的自民党的保守派(LDP)还是寻求在2月4日北京冬奥会开幕前通过该决议。
+
+**简评：**
+
+日本因为历史原因，一直给予中共国一系列的帮助，但这些都被中共隐藏了，老百姓无从得知。反而，中共利用老百姓的仇恨心理，左右日本在中共国的经济发展。因为受到中共国对其经济发展的钳制，日本对中共的态度都是低调处事。
+
+与中共的不守承诺成对比，日本自二战后数十年来也保持了用于军事开支不能超过GDP的1%的承诺。相比之下，中共近年来不断加强的军备扩张和在地区内不断升级的军事挑衅行为越来越猖狂。其对人权的迫害程度也是罄竹难书。这次北京冬奥会用新中国联邦创始人郭文贵先生的话说，将会是一个“冬眠会”，因为冬奥会对新疆维吾尔族的种族灭绝，对少数民族的打压和对香港反送中大游行的残忍镇压等等，这些反人类发指行径已遭到全世界各个国家和人权组织的强烈的呼吁和抵制。这样的冬奥会的结果也只能是劳民伤财无果而终。
+
+日本议会就中共国“严重的人权状况”问题的决议实乃勇敢之举，但不是有勇无谋，如果日本政府没有看到中共即将倒台的信号，他们还会做此举动吗？消灭中共已经成为全球一发不可收的行动，以新中国联邦为主导的灭共浪潮会此起彼伏，对中共政权的打击会一浪比一浪来的凶猛和决绝。
+
+新闻链接：[https://www.reuters.com/world/asia-pacific/japan-parliament-adopts-resolution-human-rights-china-2022-02-01/](https://www.reuters.com/world/asia-pacific/japan-parliament-adopts-resolution-human-rights-china-2022-02-01/)
+
+翻译/简评:JS
+
+PR：Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1.png)
-校对：Stay文苑
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/61fb313196ba5d73e0c1b799](https://gtv.org/broadcast/watch/61fb313196ba5d73e0c1b799)
-访谈：[https://gtv.org/broadcast/watch/61fb39a196ba5d73e0c1bd4d](https://gtv.org/broadcast/watch/61fb39a196ba5d73e0c1bd4d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

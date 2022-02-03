@@ -2,22 +2,20 @@
 ---
 
 
-## 应对乌克兰局势 拜登总统调派2000名美军赴东欧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1949095/)
+## 外国机构对春晚的研究 都是被共产党控制
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1949210/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-142.png)图片来自本文网站
-2月3日《日本电视新闻24》报道，据路透社和其它消息来源称，为应对乌克兰局势，拜登总统已下令将原本准备部署到东欧的美军发出了派遣令。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-来自美国的2000名士兵将被派往波兰和德国，已经在欧洲的1000名士兵将被重新分配到罗马尼亚。
+*发布：陶子*
 
-美国政府高官表示，”不参与乌克兰的战斗”。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-信息源：[米バイデン大統領が派遣命令…米軍が東欧へ](https://news.yahoo.co.jp/articles/997282d57f3956761a4af5a93c2bb34085779144)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
