@@ -2,20 +2,33 @@
 ---
 
 
-## 秘翻在线 : 社交媒体巨头Facebook 遭遇历史上最大的股价暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955310/)
+## 有声|CNN表示会在北京冬奥会期间关注中共新疆大屠杀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955375/)
 
-**撰稿：William**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
+据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-212511.jpg)图片来源：[www.dailymail.co.uk](https://www.dailymail.co.uk/)
-根据美国CNBC 新闻的报导, Facebook 母公司 Meta 的股价周四暴跌，此前该公司预测下一季度的收入增长低于预期。该公司将隐私变化归咎于苹果 iOS 的隐私变化以及影响广告商预算的宏观经济挑战。在 Facebook 暴跌后，其他社交媒体股票周四也一起下跌。
+文字版原文：[CNN表示会在北京冬奥会期间关注中共新疆大屠杀](https://gnews.org/zh-hans/1953018/)
 
-Facebook 母公司 Meta 的股价本周四收盘下跌超过 26%，并显示出有记录以来每日活跃用户数量首次出现季度下降。在 2018 年 7 月暴跌 19% 之后，该股创下了有史以来最大的单日跌幅。周四的跌幅使其市值缩水超过 2300 亿美元，目前市值约 6600 亿美元。Refinitiv 的数据显示，该公司首次使用新的报告结构以新名称发布了收益，该公司第四季度的收益预期为 3.67 美元，而分析师的预期为 3.84 美元。但该季度的收入超过了 336.7 亿美元，而估计为 334 亿美元。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-继Facebook 股价暴跌后，Snap 的股价在收盘后发布财报之前下跌了 23% 以上。 Pinterest 股价下跌超过 10%，Twitter 股价下跌超过 5%。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**新闻来源**：[https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html](https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

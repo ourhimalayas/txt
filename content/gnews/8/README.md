@@ -2,32 +2,36 @@
 ---
 
 
-## 世卫组织称已在57个国家检测到奥密克戎变体
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1955881/)
+## 新中国联邦春晚 VS 中共春晚
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1956015/)
 
-作者：纽约香草山教育部—Naughty(文行)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-19.jpg)
+作者：纽约磐石农场—在远方
 
 
 
-WHO称最近发现的高度传染性奥密克戎冠状病毒毒株的亚变体现已在 57 个国家或地区检测到。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/953189.jpg)
-联合国卫生机构周二（2月1日）在其每周的流行病学更新中指出，在一些国家亚变体目前占所有奥密克戎病例的一半以上。虽然目前对亚变体之间的差异知之甚少，但几项研究表明，被称为隐形变体的BA.2比原始亚谱系更具传染性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
 
-流行病学家兼世卫组织冠状病毒大流行技术负责人告诉记者，初步数据表明 BA.2比 BA.1 的增长率略有增加。他表示，没有迹象表明 BA.2 子变体的严重程度发生了变化。
 
-世卫组织说，在过去一个月收集的所有中共病毒标本中，奥密克戎占93%以上，它有几个子系，分别是BA.1、BA.1.1、BA.2和BA.3。其中被确定为BA.1和BA.1.1的第一个版本仍然占提交给公共病毒跟踪数据库的所有奥密克戎案例的96%以上。
+
+
+
+郭文贵先生在2月2日首次文贵大直播中披露，新中国联邦春晚在墙内累计观看次数已超过2.5亿次。 郭先生所唱的《甜蜜蜜》、《塞北的雪》和《一帘幽梦》更是影响巨大，响彻南北。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/papaya-.jpg)
+爆料革命用音乐唤醒墙内百姓，共产党灭亡已成定局。美国外交撤离、日本国会通过中共人权状况决议、中共国足球输给了越南、亲近中共的国家都处于动乱中，而新中国联邦的HPAY却成功登路ios。
+
+郭先生回忆道，许多参加过春晚的女明星在春晚结束后不能回家，而是直接被中共高官的专车接走。就像香港某个年轻的女明星，在参加完春晚的假唱之后，被某领导从央视西门接走，然后被几个人强暴蹂躏；中共的高层甚至还变态到玩弄男歌手。郝海东战友所说的宋祖英扒胸罩也传遍整个京圈，
+
+郭先生愤怒的表示，中共高官的变态让人无法忍受。中共的春晚，如果没有权、钱、性的交易，是永远也上不了的。过去几十年来，央视春晚让中国人无知、耻辱、精神萎靡，是对中国人进行的思想大垄断、文化大屠杀、思想大屠杀和种族大屠杀的犯罪舞台。
 
 参考来源：
 
-[BA.2: Omicro sub-variant detected in 57 countries, says WHO](http://BA.2:%20Omicro%20sub-variant%20detected%20in%2057%20countries,%20says%20WHO)
+[2022年2月2日大直播速记精萃](https://gnews.org/wp-admin/post-new.php)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-12.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-10.jpg)
 
-编辑/校对/发稿：兰兰
+编辑：文特、木木、兰兰
+
+校对/发稿：兰兰
 
 **更多资讯，更多关注**
 
@@ -43,7 +47,9 @@ WHO称最近发现的高度传染性奥密克戎冠状病毒毒株的亚变体�
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-20.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+
+
 
 
 

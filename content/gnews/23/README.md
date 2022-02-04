@@ -2,25 +2,34 @@
 ---
 
 
-## 秘翻在线：《长津湖》出品人于冬的“中国电影梦”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955405/)
+## 瑞典将于2月9日解除中共病毒限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955535/)
 
-**撰稿：葛大饼**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-214125.jpg)图片来源：新华网
-根据2022年2月4日凤凰网报道，今年春节备受瞩目的《长津湖之水门桥》， 票房有望达到65亿元，超过此前《长津湖》缔造的近58亿票房神话。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.jpg)
+据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
 
-博纳影业董事长、《长津湖之水门桥》出品人及总制片人于冬表示：美国电影已审美疲劳，中国观众需要中国人的故事，于东希望再过30年、50年，希望那个年代的年轻人再看《长津湖》的时候，依然可以像我们当年看《上甘岭》一样，被深深感动。
+对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
 
-新闻称博纳影业凭借《湄公河行动》、《烈火英雄》、《中国医生》，《长津湖》等主旋律影片，票房已经收获了超过200亿。
+目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
 
-于冬认为，主旋律电影之所以能够被广大观众所接受和喜爱，是因为电影里传达了一种向上、向善的中国精神，这些年的中国电影更加体现了文化自信，即表现中国人真实的生活、真实的情感。《长津湖》系列在技术和美学语言上，都已经达到了全球最高水准，开创了独具中国美学特色的工业化电影风格，而在技术上，中国电影已经不需要国外后期团队这样的宣传嘘头了。《长津湖》系列电影丰富了全球战争片的美学类型，实现了战争片中人文精神的突破。
+参考链接：[Sweden to lift most Covid curbs on Feb 9](https://insiderpaper.com/sweden-to-lift-most-covid-curbs-on-feb-9/)
 
-于东告诉大家为什么国产电影票房如此高了吗？那是因为电影院只有国产电影，什么是主旋律电影？就是像《长津湖》系列的洗脑电影，完全编造，篡改历史，欺骗老百姓眼泪和金钱的垃圾电影！习太阳的“中国梦”让中国电影越来越脱离了真实！历史真相是毛泽东通过朝鲜战争把所谓的国民党百万叛军派到前线，被消灭，被活活的冻死。中共高官张震曾说：长津湖战役是人类大屠杀，是军人的耻辱！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-**[新闻来源](https://finance.ifeng.com/c/8DLxWqgcaBZ)**
+总编: Jack Li文阳
+编辑： Ivy001
+校正/发稿：Fei797
 
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
