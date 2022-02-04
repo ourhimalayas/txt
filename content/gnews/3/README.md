@@ -2,30 +2,22 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1956605/)
+## 加拿大总理特鲁多不顾民众高涨的反疫苗暴政情绪，仍要继续推进疫苗接种
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1956645/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+#### 加拿大温哥华扬帆农场 视频组
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+素材：文倩
+翻译：文倩
+字幕：米小乐
 
-视频参看：
-[2022.02.04早 《NFSC新闻》](https://gtv.org/video/id=61fd2a0d96ba5d73e0c2af16)
-[2022.02.04早 G|TV《新闻访谈》](https://gtv.org/video/id=61fd335e96ba5d73e0c2bf76)
+政府持续忽视（民众因疫苗强制令而产生的）沮丧不满，请问疫苗强制令是临时的还是特鲁多总理准备将其延长扩展？
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+有请总理阁下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+保守党似乎仍不明白，新冠病毒才是我们供应链的威胁而不是疫苗接种，正如在上次大选中我们（自由党）所声明的，我们将继续强烈鼓励所有加拿大人接种疫苗，并包括对所有乘坐飞机或火车出行的人，联邦公共服务和联邦监管行业的工作人员实施疫苗强制令，疫苗是帮助我们度过难关的方法，这也是我们一直要坚持的。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑/发文：Kent
 
  
 

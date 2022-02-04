@@ -2,33 +2,23 @@
 ---
 
 
-## 有声|CNN表示会在北京冬奥会期间关注中共新疆大屠杀
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955375/)
+## 【爆料革命大事记】20220124“甜蜜蜜” 运动正式宣布即将在冬奥会期间启动
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/1955438/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
-据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/71B7A07D-E704-42E4-946D-8C3F397DEC4B.jpeg)
+【爆料革命大事记】2022年1月24日，“甜蜜蜜” 运动正式宣布即将在冬奥会期间启动！这是新中国联邦结合西方的力量，扎入中南坑的一把利剑。这将是跨世纪的，中国大陆第一次抵制中共独裁和邪恶统治的和平运动，必将令全世界震惊，中共最大的噩梦即将上演。
 
-文字版原文：[CNN表示会在北京冬奥会期间关注中共新疆大屠杀](https://gnews.org/zh-hans/1953018/)
+甜蜜蜜运动！无兵，没有流血，奇门遁甲最高的境界，万里之外，消灭敌人。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+“在哪里？在哪里？”共产党哭着喊着找不到！茉莉花革命成功在于媒体，之后最高段落的革命就是爆料革命！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+https://youtube.com/watch?v=EL2Nt1jY\_eY%3Ffeature%3Doembed
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+图文设计：新西兰农场设计组战友作品
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+视频制作：新西兰农场【玫瑰看新闻】栏目组战友
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传：天赐良闻
 
  
 
