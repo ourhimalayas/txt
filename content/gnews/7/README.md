@@ -2,22 +2,31 @@
 ---
 
 
-## 芬兰女狮队主教练帕西·卢斯托宁缺席奥运会
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1956482/)
+## 七哥谈美国“外交撤离”（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956551/)
 
-撰稿：随心所在
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020304.jpg)网络图片
-当地时间2月4日，芬兰的一则关于北京冬奥会的新闻标题被冠以“新闻炸弹“之称。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-根据该报道提供的线索，芬兰冰球女狮队主教练帕西穆斯托宁将不得不离开奥运会。 他的主教练职位将由 Juuso Toivola 接任，后者此前曾被选为接替 Mustonen 并曾担任球队助理教练。
+来源：郭先生2022-02-02直播08:57:11摘录
 
-由于家庭原因，Mustonen 不得不返回芬兰，据称事件涉及其严重的家庭健康状况。Mustonen主教练表示：“鉴于得知的情况的严重性，所以我的决定很容易。 就是我必须在家。 即使我离开，球队也会得到很好的管理。 在这种情况下，我请求对我们的家人隐私给以保护。”
+共产党真的是完了。就这一春节，今天早上这哥们跟我说，他说：“咱们一开门，干了九招，把共产党打得现在屁滚尿流，是吧！日本人权、抵制冬奥、是吧！足球又输了，是吧，足球又输了，我没看错吧，进世足又没有戏了，是吧！新中国喜币“嘎叽”上市了。然后呢这最夸张的美国，Eric你们看了吗？人家美国的那个发言人问他：你安排好了吗？听说你们外交人员有改变。人家你看那副口气， 哈哈，就爱看他那样，不耐烦地……我们按照国际规则，国际保护！没有一个战友，真正说出这四个字“外交撤离”，这是七哥第一个说的。在七哥说之前，人类上没存在，就你不参与外交你不懂，是我说的。外交叫”撤离”，他可没有说外交调整，谁也没有说外交事件。“外交撤离”在美国历史上只用过两次。打伊拉克，南斯拉夫，“授权撤离”就是两个地方。你说这共产党被震到什么程度，内部什么程度。更夸张的事情，你看看周围这些所有的跟着的小国家全部现在动乱，没有不动乱的地方，连非洲都动乱，叫什么狗屁国家，共产党我从小就念到什么，老挝、古巴、坦桑尼亚那些来访问看毛泽东的，毛泽东死也来哭的那些国家也乱了。
 
-新闻链接：[Uutispommi: Naisleijonien päävalmentaja Pasi Mustonen jättää olympialaiset kesken](https://www.msn.com/fi-fi/urheilu/other/uutispommi-naisleijonien-p%C3%A4%C3%A4valmentaja-pasi-mustonen-j%C3%A4tt%C3%A4%C3%A4-olympialaiset-kesken/ar-AATsliu)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

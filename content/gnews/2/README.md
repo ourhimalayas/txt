@@ -2,31 +2,48 @@
 ---
 
 
-## 七哥谈美国“外交撤离”（2022-02-02摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956551/)
+## 2月2日北京奥运会COVID-19病例创新高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956613/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**评论：***北京奥运会的闭环管理系统充分显示了中共无视人权的独裁式高压管理手段。*
 
-来源：郭先生2022-02-02直播08:57:11摘录
+据《福克斯新闻》作者：[Andrew Mark Miller](https://www.foxnews.com/person/m/andrew-mark-miller)，2022年1月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-349-e1643999482307.png)2022年2月1日，在北京冬奥会国家滑行中心的跑道上，身穿全套中共病毒 (COVID-19) 防护服的工作人员。
+图片来源：路透社/托马斯·彼得
+• 组织者有信心将数字降下来
+• 北京奥运会将限制观众数量
 
-共产党真的是完了。就这一春节，今天早上这哥们跟我说，他说：“咱们一开门，干了九招，把共产党打得现在屁滚尿流，是吧！日本人权、抵制冬奥、是吧！足球又输了，是吧，足球又输了，我没看错吧，进世足又没有戏了，是吧！新中国喜币“嘎叽”上市了。然后呢这最夸张的美国，Eric你们看了吗？人家美国的那个发言人问他：你安排好了吗？听说你们外交人员有改变。人家你看那副口气， 哈哈，就爱看他那样，不耐烦地……我们按照国际规则，国际保护！没有一个战友，真正说出这四个字“外交撤离”，这是七哥第一个说的。在七哥说之前，人类上没存在，就你不参与外交你不懂，是我说的。外交叫”撤离”，他可没有说外交调整，谁也没有说外交事件。“外交撤离”在美国历史上只用过两次。打伊拉克，南斯拉夫，“授权撤离”就是两个地方。你说这共产党被震到什么程度，内部什么程度。更夸张的事情，你看看周围这些所有的跟着的小国家全部现在动乱，没有不动乱的地方，连非洲都动乱，叫什么狗屁国家，共产党我从小就念到什么，老挝、古巴、坦桑尼亚那些来访问看毛泽东的，毛泽东死也来哭的那些国家也乱了。
+北京，2月3日（路透社）——北京医学专家组主席周四表示，2月2日，在奥运会相关人员中发现了55例新的COVID-19感染病例，这是迄今为止最高的单日记录。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+布赖恩·麦克洛斯基在奥运会开幕前的一次国际奥委会会议上表示，在机场抵达者中发现29例病例；在与公众隔开的参会人员“闭环”中，有26例病例。
 
-**关注我们**
+“我们相信这个（闭环）系统会起作用。但我们并没有放松，我们保持所有措施到位。” 麦克洛斯基说。
 
-Discord 账号
+北京参赛者被限制在一个“闭环”内，以防止与公众接触，乘坐官方交通工具在住宿地点和奥运场馆之间通勤。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+每个奥运会参与者每天都接受病毒测试，以快速识别闭环内的任何感染。
 
-Gettr 账号
+与许多寻求与中共病毒共存的国家相比，中共采取了零容忍政策，包括严格的边境管制和取消国际航班。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+所有奥运参会者都乘坐包机抵达。
+
+文章来源: [https://www.reuters.com/lifestyle/sports/beijing-games-see-55-covid-19-cases-feb-2-highest-daily-tally-2022-02-03/](https://www.reuters.com/lifestyle/sports/beijing-games-see-55-covid-19-cases-feb-2-highest-daily-tally-2022-02-03/)
+
+翻译：洛杉矶盘古农场 – 轰炸机
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

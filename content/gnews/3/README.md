@@ -2,24 +2,30 @@
 ---
 
 
-## 加拿大自由车队司机收到一条可以鼓舞和团结整个加拿大的信息
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1956513/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1956605/)
 
-#### 加拿大温哥华扬帆农场 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
 
-素材：文倩
-翻译：文倩
-字幕：米小乐
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-我们在去贝尔维尔的路上，我们在前往渥太华的车队中，当我们在霍普港时，有成百上千的人一同前往渥太华，但也有很多人无法成行，便为卡车司机们带来了食物和各种物品。
+视频参看：
+[2022.02.04早 《NFSC新闻》](https://gtv.org/video/id=61fd2a0d96ba5d73e0c2af16)
+[2022.02.04早 G|TV《新闻访谈》](https://gtv.org/video/id=61fd335e96ba5d73e0c2bf76)
 
-因为人们要求把这些物品都带上，所以我们拿了几袋子。我被深深地震撼了，我们打开其中一个袋子，想看看里面装的是什么。我的心被深深地震撼了。虽然我不知道具体是谁，但他们的孩子为卡车司机准备了一个装有饼干的袋子，还附上了一张便条，并在上面画了画。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-对不起，我又有些激动了，我要给你们展示一下，这就是为什么我们会坚持我们正在做的事情。一个小孩，准备了这个，“追逐梦想。我们相信你”。里面还有一幅卡车的画，孩子留下了一张便条， 上面写道：“亲爱的卡车司机先生或女士：您们为了人权挺身而出，非常了不起！我只有 11 岁，虽然我对此事了解不多，但我相信现在所发生的事情（疫苗强制令等)是错误的，我知道您们一定可以成功，诚挚的凯特。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
 
-她给卡车司机准备了饼干，这实在太棒了，这就是我们站出来的原因，所有了解情况并将真相传递给子女的父母们，上帝爱你们，我要下线了，请大家广泛传播，这实在是太棒了。
-
-编辑/发文：Kent
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

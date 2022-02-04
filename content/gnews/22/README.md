@@ -2,41 +2,45 @@
 ---
 
 
-## 自由车队继续深入 特鲁多称不会动用军队驱散抗议者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956293/)
+## 加拿大总理贾斯汀-特鲁多中共冠状病毒（COVID）检测结果呈阳性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956366/)
 
-翻译： Jenny Ball
+**评论：***完成接种疫苗加强针的特鲁多还是被感染了COVID-19，他用自已的经历证明了疫苗对预防中共病毒的毫无意义。*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-336.png)图片来源：马克西姆·吉鲁阿德，北风摄影
+据《福克斯新闻》作者：[Emma Colton](https://www.foxnews.com/person/c/emma-colton)，2022年2月1日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-339-e1643995019455.png)2021年1月19日星期二，加拿大总理贾斯汀-特鲁多在安大略省渥太华丽都小屋外举行的新闻发布会。
+图片来源：Adrian Wyld/加拿大通讯社经美联社
+加拿大总理贾斯汀-特鲁多的中共冠状病毒检测结果为阳性。
 
-加拿大和美国的卡车司机于 1 月 29 日抵达渥太华，抗议 COVID 疫苗的强制要求，没有迹象表明要离开，而总理贾斯汀·特鲁多(Justin Trudeau)今天表示，“目前还不能派军队清除抗议者”。
+他说：“感觉很好”。
 
-周三在渥太华的警察局长彼得斯洛利表示，“可能无法通过治安手段解决这场示威”之后特鲁多发表态度，他和其他指挥官正在“考虑每一种选择，包括动用民事权力的军事援助”来结束它。
+“今天早上，我的冠状病毒（COVID-19）检测结果呈阳性。我感觉很好，本周将继续远程办公，同时遵循公共卫生指南。请每个人接种疫苗并补种加强针。” 特鲁多周一早间在推特上说。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-340.png)图片来源：推特
+根据他的推特账户，这位总理已经完全接种了疫苗，并在1月4日接受了加强针注射。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-341.png)图片来源：推特
+据报道，此前他因成千上万的反强制疫苗抗议者聚集渥太华，于周六离开住所，并随后中共冠状病毒检测结果呈阳性。
 
-正如《捍卫者》（The Defender）报道的那样，成千上万的卡车司机和公民表示，如果政府官员不取消 1 月 15 日对穿越美加边境的卡车司机实施的 COVID 疫苗接种任务，他们就不会离开渥太华。
+1月23日，一支由卡车司机组成的“自由车队”从温哥华出发前往渥太华，抗议联邦政府对跨境卡车司机的疫苗强制规定。车队于周六抵达首都，当时还有数千名抗议者走上街头，谴责该国围绕冠状病毒的规定和限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-342-e1643996412753.png)图片1/3 图片来源：Justin Tang/加拿大通讯社经美联社![](https://assets.gnews.org/wp-content/uploads/2022/02/image-343.png)图片 2/3 图片来源：Adrian Wyld/加拿大通讯社经美联社
+2022年1月29日星期六，卡车车队抗议者聚集在渥太华国会山附近，抗议当局就疫苗强制接种所采取的措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-345.png)2022年1月29日星期六，一位头戴大富翁面具人士在渥太华国会山反对疫苗限制的集会上手举抗议标牌。该集会抗议联邦政府对卡车司机的疫苗强制规定。
+图片3/3 图片来源：Justin Tang/加拿大通讯社经美联社
+批评者在社交媒体上嘲笑和抨击总理，据报道他在抗议者上街时逃离了住所，许多人称其“懦夫”和“胆小”，而且没有解决抗议者的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-338.png)图片来源：childrenshealthdefense.org
+文章来源: [https://www.foxnews.com/world/trudeau-tests-positive-for-covid](https://www.foxnews.com/world/trudeau-tests-positive-for-covid)
 
-在艾伯塔省，卡车和抗议者已经关闭并延误了美国加拿大边境的交通，他们要求政府取消对卡车司机疫苗强制的政策。
-
-以下是最新情况：
-
-- “请资助我”（GoFundMe） 暂停向卡车司机的捐款，迄今为止筹集了 790 万美元，只有大约 780,000 美元的资金发放给了卡车司机。“自由车队” GoFundMe 页面上的一则通知说：“该筹款活动目前已暂停并正在审查中。”
-- Facebook 永久暂停了“自由车队”（Freedom Convoy）组织者的页面。该组织的组织者称此举是“最好的审查制度”。
-- 在“自由车队”以东 2,000 英里的加拿大艾伯塔省，大约 200 台大型钻井平台封锁了美国和加拿大的过境点，要求取消针对卡车司机的疫苗强制政策。
-- 艾伯塔省警方正在寻找拖车公司来协助拆除卡车，但由于塔楼拒绝与卡车司机对抗，他们空手而归。
-- 加拿大总理特鲁多在冠状病毒检测呈阳性后进行自我隔离，指责“自由车队”传播虚假信息和种族主义。
-- 加拿大萨斯喀彻温省和曼尼托巴省,正在寻求在未来几周内取消所有与 COVID 相关的限制。
+翻译：洛杉矶盘古农场 – Nelson
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
 
 
-素材链接：[childrenshealthdefense.org] [Trudeau Won’t Use Military to Disperse Protesters, as Freedom Convoy Digs In](https://childrenshealthdefense.org/defender/trudeau-military-protesters-freedom-convoy/?)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-* * *
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
