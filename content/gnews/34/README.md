@@ -2,8 +2,8 @@
 ---
 
 
-## 中共企图对台湾搞大一统的侵略行为是可议的
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954446/)
+## 俄乌冲突中，俄罗斯的政治经济打算
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954460/)
 
 台灣寶島農場
 

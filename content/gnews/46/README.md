@@ -2,38 +2,43 @@
 ---
 
 
-## 美议员卢比奥、斯科特、科顿和女议员斯特凡尼克提请立法打击中共无人机
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1953655/)
+## 印度因解放军担任火炬手而抵制北京冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1953676/)
 
-[Marco Rubio (R-FL) 新闻稿](https://gnews.org/zh-hant/1953663/)
-发布日期：2022年02月03日
-新闻来源：https://www.rubio.senate.gov/
-翻译：V 在途中
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2045-1.jpg)
+翻译：文扬
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2042.jpeg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2043.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2044.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-2.png)图片来源：中国军视网
 
 
+印度外交官将抵制2022年北京冬奥会的开幕式和闭幕式，由于中共国一名火炬手此前参与了两国之间的小规模战斗。
 
-2022 年2 月3日华盛顿特区——美国参议员马可·卢比奥 (R-FL)、里克·斯科特 (R-FL) 和汤姆·科顿 (R-AR) 介绍了《反中共无人机法案》，增加了中共下属的无人机公司大疆创新 (DJI) ) 到联邦通信委员会 (FCC) 的涵盖列表清单中。该清单确定了对美国国家安全构成威胁的电信设备，并禁止其进入美国通信基础设施。本周早些时候，《华盛顿邮报》证实，中共是 DJI 的投资者，DJI 提供了在美国销售的 50% 以上的无人机，这与 DJI 之前的公开声明直接矛盾。国会女议员 Elise Sefanik (R-NY) 在美国众议院介绍了这个法案。
+印度外交部周四（2月3日）证实了这一消息，称中共“选择将奥运会政治化”是“令人遗憾的”。
 
-“中共无人机制造商大疆在收集大量美国人数据的同时，一再谎称与中共没有联系，”卢比奥说。“美国联邦通信委员会应立即采取行动，将 DJI 加入其涵盖列表清单中，进一步禁止它在美国的使用。”
+发言人阿林丹·巴格奇（Arindam Bagchi）表示：“印度特使将不会出席北京冬奥会的开幕式或闭幕式。”
 
-“中共资助技术DJI 制造的无人机，用于监视美国人并窃取他们的数据，”斯科特说。“美国政府应该在任何情况下都不要购买中共制造的无人机，这会危及我们的国家安全，这就是我和我的同事提出美国安全无人机法案的原因. 《反中共无人机法案》是确保联邦通信委员会 (FCC) 的联邦资金不能用于获取 DJI 生产或提供的通信设备和服务。我很自豪地能在参议院提出这项重要的法案，并敦促我的同事和我一起支持它。”
+2月2日，在祁发宝参加了传统的火炬接力仪式后，事态开始恶化。
 
-“中共国公司对中共心存感激，所以DJI 不能被信任——我们不应该允许它的设备与美国的通信技术一起使用，”科顿说。
+祁发宝是中国人民解放军的一名团级指挥官，他的部队是在加勒万河谷冲突中参战的部队之一，该河谷是两国和巴基斯坦有争议的拉达克地区的一部分。
 
-“大疆无人机相比较华为对美国家安全构成的威胁更危险，因为它有翅膀，”女议员斯特凡尼克说. “大疆无人机可能配备向中共发送军事设施、关键基础设施和美国公民个人生活的实时图像的可能性，将构成对美国太大的危险。允许这种做法在美国继续下去就是在玩火，因此这家中共控股的公司不能继续在美国经营和销售无人机” 。
+中共官媒《环球时报》报道了祁发宝的头部遭受的重伤，并称其为英雄。中央电视台称他在12月表示“准备重返战场，再次战斗”。他已被列入冬奥会参与接力仪式的1200名火炬手的行列中。
 
+在印度外交部宣布抵制之后，首席执行官沙希（Shashi Shekhar Vempati）在推特上说，国家广播公司Doordarshan也不会转播2022年北京冬奥会的开幕式和闭幕式。
 
+印度今年只派出一名运动员参加北京冬奥会——高山滑雪运动员阿里夫·汗（Arif Khan）。
 
-审核校对：Barry Jack
-上传排版：V在途中
+参考链接：[India boycotts Beijing Olympics over Chinese choice of torchbearer — RT Sport News](https://www.rt.com/sport/548207-india-diplomatic-boycott-beijing2022/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
