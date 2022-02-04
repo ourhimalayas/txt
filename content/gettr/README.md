@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/4/2022 11:59 AM (UTC)`
+
+ 2月4号：尊敬的战友们好。七哥正在GTV直播，北京冬奥会出大事啦…… <br/><br/>G-TV精彩直播与您分享: <br/>https://gtv.org/broadcast/watch/61fd129696ba5d73e0c27968
+
+---
+
 `@miles 2/4/2022 3:43 AM (UTC)`
 
 1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border”  1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（中英双语版）
@@ -150,13 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Our NFSC’s scientists are working on a low-cost artemisinin cocktail therapy to save humanity from the CCP virus and vaccine disaster.<br/><br/>1/31/2022 文贵虎年新春大直播：我们新中国联邦的科学家正在研究一种低成本的青蒿素鸡尾酒疗法，以拯救人类免受中共病毒和疫苗灾难的影响。<br/>
 ![img](https://media.gettr.com/group32/getter/2022/02/02/08/2f5781f7-c51b-b855-a9ab-60cf49444bf0/out.jpg)
-
----
-
-`@miles 2/2/2022 6:24 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: We have made the CCP so terrified, seeing us as their biggest enemy. The influence of the NFSC has spread around the world.<br/><br/>1/31/2022 文贵虎年新春大直播：我们令中共如临大敌，新中国联邦的影响力已经传遍世界。<br/>
-![img](https://media.gettr.com/group23/getter/2022/02/02/06/a6b519a4-f791-19d5-4076-88ec640d1918/out.jpg)
 
 ---
 
