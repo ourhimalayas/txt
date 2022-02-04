@@ -2,41 +2,37 @@
 ---
 
 
-## 一周中共病毒及疫苗灾难信息集锦
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955606/)
+## 脸书股价创历史最大跌幅
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955847/)
 
-作者：纽约香草山农场 – Zion文恩/火来
+作者：纽约香草山农场 – 007
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月25日至2月2日，除中共国外，全球新增中共病毒确诊患者两千一百万余例，同比上周下降了8.66%。此外，本周新增确诊死亡病例超过7万例，同比上周增长了18.9%，增长率较上周增加了2.5个百分点。连续两周，中共病毒全球死亡率持续上升。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-3.jpg)
-截止2月2日，除中共国外，全球累计接种了72.6亿剂中共病毒疫苗，同比18日的接种数据增长了1.82%，但疫苗接种增长率较上周总体下降了0.69个百分点。
+2月2日，据媒体消息显示， 脸书在当天美股收盘后公布了其2021财年第四季度的财务报表。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-2.jpg)
+该财报显示，脸书这一季度的营收增幅明显放缓，其股票的收益、净利润和用户指标均低于市场预期，是自2019年第二季度以来，该公司首次出现净利润下滑的情况。此外，该公司的核心应用程序脸书在第四季度的日活跃用户比上一季度减少了50万，这是自脸书面世以来的首次下降。同时，其数字货币项目几经波折，最终于1月31日晚间将数字货币的相关资产全部出售，就此关停其全球支付的计划。
 
-实时分析显示，截止2月2日，全球来自27个国家共计8万5千767名受试者参与的78项临床研究表明，伊维菌素在预防、早期治疗和晚期治疗的案例中，分别能够降低85%、63%和39%的 中共病毒重症感染的临床病例。
+对此，郭文贵先生在直播中指出，脸书实际上参与了人类大屠杀，其根本没有未来，这是它不得不放弃数字货币的深层次原因。
 
-另一方面，多国的中共病毒疫苗政策在本周出现松动迹象。1月28日，由于担心疫苗带来的风险不低于病毒本身，瑞典政府决定不推荐5至11岁的儿童接种中共病毒疫苗。同时，加拿大魁北克省政府遭遇了强有力的反抗声浪，为此不得不放弃对未接种疫苗的魁北克人额外征收健康税的计划。同样在加拿大，萨斯喀彻温省的省长斯科特宣布，将结束该省的疫苗护照政策，并呼吁联邦政府结束各地的强制疫苗政策。
+另外， 近几年来，脸书由于侵犯隐私的行为，已经被美国和欧盟的监管机构罚款近60亿美元。更甚者，以脸书为首的社交媒体寡头持续打压言论自由，尤其在中共病毒疫情爆发以后，其掩盖病毒和疫苗真相的做法引发了世界民众普遍的反感和批评。
 
-在美国，关于公布辉瑞疫苗原始数据的司法诉讼中，美国食品和药品监督管理局FDA认为，延迟75年公布疫苗数据是合适的，但这一观点遭到了法官驳斥。目前，法官要求辉瑞公司尽快公布关于中共病毒疫苗的全部数据。而当地媒体则再次聚焦福奇，包括其为中共病毒实验室提供资金支持，以及在疫情爆发初期蓄意打压、掩盖病毒真相的恶行。
+截至目前，脸书的股价暴跌26%，相较去年最高点已下跌近四成，创下其历史上最大的单日跌幅。
 
-但在某些特殊领域，由于缺乏对中共病毒疫苗灾难的认知，疫苗强制接种政策仍在继续：2月2日，美军决定，为了保持美军的战备力，美军将立即解雇拒绝接种“中共病毒疫苗”的现役军人。另外，联邦政府针对全美医护工作者的强制疫苗政策仍在实施。
+而郭文贵先生则表示，脸书践踏言论自由和对病毒真相的掩盖会将其送上死亡之路。
 
 参考链接：
-1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
-2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
-3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-18..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
-4) .[Ivermectin for COVID-19: real-time meta analysis of 78 studies](https://ivmmeta.com/)
-5) .[JUST IN – Federal judge in Texas issues a nationwide injunction blocking Biden’s vaccine mandate for federal employees.](https://twitter.com/disclosetv/status/1484575812338823181?s=20)
-6) .[JUST IN – Biden’s vaccine-or-test mandate for workers at large businesses will be withdrawn by OSHA tomorrow.](https://gettr.com/post/pqhyr8309f)
-7) .[One of many medical heros, Dr. @richardursomd, at the DC March today. Thank you!](https://twitter.com/USA_Solutions_/status/1485371519417073670)
-8) . [Why haven’t we let doctors be doctors? Dr. Paul Marik’s experience treating Covid-19 patients is heartbreaking.](https://twitter.com/SenRonJohnson/status/1485700814643638275?s=20)
-9) .[URGENT CARE: Terminally ill father of two says Virginia hospital has discriminated against him based on his vaccination status and the consequences could be deadly.](https://twitter.com/FoxNews/status/1486084047617015818?s=20)
-10) .[Boston patient removed from heart transplant list for being unvaccinated https://trib.al/m1Zyz9V](https://twitter.com/nypost/status/1485971932923183108?s=20)
-11) . [Unvaccinated now barred from French restaurants, sports venues](https://thehill.com/policy/international/591011-unvaccinated-now-barred-from-french-restaurants-sports-venues)
-12) .[Compulsory Covid jabs for NHS workers set to be put on hold after Tory revolt and warning from Royal College of GPs it will lead to chronic staff shortages – while healthcare workers dump their scrubs outside Downing Street during protest march](https://www.dailymail.co.uk/news/article-10431489/Compulsory-Covid-jabs-NHS-staff-delayed-half-year-Tory-revolt-protests.html)
+1) . [步奈飞后尘！“元宇宙”Meta四季报后雪崩23%， 发生了什么？](https://wallstreetcn.com/articles/3651135)
+2) . [2022年2月2日大直播速记精萃](https://gnews.org/zh-hans/1947977/)
+3) . [1/7 From the statement by the CEO Stuart Levey on the sale of the Diem group’s assets to Silvergate — “From the outset, the Diem project has been focused on leveraging the benefits of blockchain technology to design a better and more inclusive payment system.](https://twitter.com/diemassociation/status/1488270981718495233?s=21)
+4) . [FTC Imposes $5 Billion Penalty and Sweeping New Privacy Restrictions on Facebook](https://www.ftc.gov/news-events/press-releases/2019/07/ftc-imposes-5-billion-penalty-sweeping-new-privacy-restrictions)
+5) . [FB侵犯隐私案签和解协议：赔偿160万用户6.5亿美元](https://www.163.com/tech/article/G3TNLSMA00097U7R.html)
+6) . [WhatsApp侵犯隐私，被爱尔兰处以2.25亿欧元罚款](https://gnews.org/zh-hans/1508884/)
+7) .[联邦法官驳回Facebook关于撤销FTC最新反垄断诉讼的请求](https://cn.wsj.com/articles/%E8%81%94%E9%82%A6%E6%B3%95%E5%AE%98%E9%A9%B3%E5%9B%9Efacebook%E5%85%B3%E4%BA%8E%E6%92%A4%E9%94%80ftc%E6%9C%80%E6%96%B0%E5%8F%8D%E5%9E%84%E6%96%AD%E8%AF%89%E8%AE%BC%E7%9A%84%E8%AF%B7%E6%B1%82-11641944751)
+8) .[Facebook遭控滥用市场支配地位，在英国面临逾23亿英镑集体诉讼](https://www.reuters.com/article/Facebook%E9%81%AD%E6%8E%A7%E6%BB%A5%E7%94%A8%E5%B8%82%E5%9C%BA%E6%94%AF%E9%85%8D%E5%9C%B0%E4%BD%8D%EF%BC%8C%E5%9C%A8%E8%8B%B1%E5%9B%BD%E9%9D%A2%E4%B8%B4%E9%80%BE23%E4%BA%BF%E8%8B%B1%E9%95%91%E9%9B%86%E4%BD%93%E8%AF%89%E8%AE%BC-idCNL4S2TU06A)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
 总编: Irene木木
-编辑：静言
+编辑：谐趣园
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

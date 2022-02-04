@@ -2,41 +2,36 @@
 ---
 
 
-## Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（2/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956115/)
+## 有声|蓬佩奥再谈病毒起源
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1956170/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-1.jpg)图片来源：greenwald.substack.com
-毫不夸张地说，现在任何致力于自由言论的平台上都在进行一场战争，他们拒绝屈服于民主党政治家和自由主义活动家的审查要求。他们把矛头指向企业媒体，那些企业媒体妖魔化并试图阻止任何允许言论自由蓬勃发展的平台。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，美国前国务卿蓬佩奥接受福克斯电视台采访，再次提及病毒来自中共武汉病毒研究所实验室。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-3.png)
+在节目中，主持人回顾了有科学家很早就提出病毒来自实验室的质疑，但被福奇和柯林斯要求统一思想，并统一改口为病毒起源于自然。而现在越来越多的人开始明白病毒来自实验室。对此蓬佩奥表示，只要是在2020年春天看到了那些数据的人，都会得出病毒一定来自中共武毒所的结论。但时至今日中共武毒所还在运转，美国人依旧面临着相似的威胁。
 
-如对 Ramble和Substack发起的攻击，并且仍在进行中，攻击罗列的罪名包括，拒绝禁止自由企业媒体和活动家，和他们认为具有仇恨和/或虚假信息字体的作家。“以传播错误信息而闻名的知名人物，例如[约瑟夫]默科拉 [Joseph] Mercola，在 Facebook、Twitter 和 YouTube 被开除或受到限制后，在过去一年中纷纷涌向Substack、播客平台和越来越多的右翼社交媒体网络， ”《华盛顿邮报》警告说，“一旦谷歌下令谁不应该发出声音，如果仍然能听到他们的声音，那对社会来说是极其危险的。”
+蓬佩奥还指出，福奇、柯林斯等美国政府医疗与公共卫生权威人士，明知道病毒会造成危害，却不告诉当时的美国政府，这是让人难以置信的事实。
 
-可以预见的是，对 Substack 的攻击，引起了包括切尔西·克林顿在内的人们的关注，她感叹Substack、正在从“欺骗”中获利。显然，这位政治女继承人——她是世界上最富有的人之一，因为她含着金钥匙出生，又通过利用自己的政治影响力，45 分钟的演讲就换取高盛 75 万美元的薪水，尽管她没有资格，但她自己不知何故从 NBC 新闻获得了 600,000 美元的年度合同——相信她有权指责其他人“欺骗”。
+文字版原文：[蓬佩奥再谈病毒起源](https://gnews.org/zh-hans/1953516/)
 
-正在向Spotify 施压以将乔·罗根（Joe Rogan）从其平台上移除的新兴运动，可能是迄今为止最具说明性的一集，这既体现了正在发挥作用的动态，也体现了自由主义者迫切希望禁止任何人已经失控。这个激发只是时间问题。罗根已经变得更有影响力了，拥有太多的年轻观众，自由派机构无法容忍他继续采取行动。之前强迫、哄骗或操纵罗根服从的努力都以失败告终。在《华尔街日报》于 2020 年 9 月报道称 Spotify 员工正在组织要求从平台上删除罗根的一些节目后不久，罗根邀请亚历克斯·琼斯(Alex Jones)参加他的节目：这是一个相当强烈的声明，他不愿意遵守关于他可以采访谁或他可以说什么的命令。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-显然，Spotify 不会抛弃他们最大的观众群体，因为他们吸引了几个 1960 年代已经褪色的七十多岁的人。但如果现在的大明星跟风，不难想象雪球效应。采用这种策略的自由主义者的目标是，对任何不听话的平台，要么强迫它服从，要么用负面攻击浸透它来惩罚它，以至于任何渴望在正派自由社会的客厅里接受的人，都不会想冒险与它联系在一起。“在流媒体巨头被指控宣传反疫苗内容后，哈里王子昨天面临与Spotify断绝关系的压力，”《每日邮报》声称，无论是否可靠，这都是即将发生大事的某种迹象。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-随着最近围绕罗根的争议展开，Spotify 的股价下跌，Spotify 被迫在保留 Rogan 或失去大量音乐明星力量之间做出选择。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipSpotify上要求开除罗根的压力揭示了自由主义者的宗教.png)图片来源：greenwald.substack.com
-值得回顾的是，NBC 新闻在 2017 年 1 月宣布，它以 6900 万美元的合同从福克斯新闻中聘请了梅根·凯利（Megyn Kelly）。该网络对凯利有很大的计划，凯利的第一场演出于当年 6 月首次亮相。但仅仅一年多之后，凯利发表了关于黑脸的评论——她在节目中反问，这个疯狂时代，是否因为其意图正确接受行为，比如一个年轻的白人孩子向心爱的非裔美国人致敬，或者万圣节的文化人物。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-现在自由主义网络，无论是网络内部还是外部，都对她的言论愤怒，要求解雇她。 NBC 认为解雇凯利划得来：既吃掉她的巨额合同，又以平息了的自由派的广泛愤慨。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-“取消前福克斯新闻主持人光鲜亮丽的早间节目提醒我们，在评估招聘的政治性时，网络需要更加严格，”卫报宣称。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**新闻来源**：[greenwald.substack.com][The Pressure Campaign on Spotify to Remove Joe Rogan Reveals the Religion of Liberals: Censorship](https://greenwald.substack.com/p/the-pressure-campaign-on-spotify)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**相关文章阅读**：[Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（1/3）](https://gnews.org/zh-hans/1953209/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（3/3）
-
-* * *
-
-***审核：文乐
-校对：小东
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

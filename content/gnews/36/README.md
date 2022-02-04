@@ -2,40 +2,34 @@
 ---
 
 
-## DC每日热点0204
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1955529/)
+## 瑞典将于2月9日解除中共病毒限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955535/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DC0204-scaled.jpg)
-道琼斯指数 35111.16 ▼1.45%
-纳斯达克指数 13878.82 ▼3.74%
-WTI纽约原油CFD 92.033▲1.95%
-布伦特原油CFD 92.780 ▲1.83%
-标普50指数 2,748.41 ▼54.05%
-美元兑人民币 1USD=6.361 RMB
-美元兑港币 1USD=7.791 HKD
-国际黄金 1813.91 美元/盎司
-全球CCP病毒感染人数389,196,559例
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.jpg)
+据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
 
-1、冬奥会前日本国会通过严重关切中共国人权状况决议
-2、美国会跨党派议员提配套议案 拟将TECRO改为“台湾代表处”
-3、巴基斯坦总理访华参加奥运开幕并举行双边会谈
-4、美多位共和党参议员推出禁止美中两军联合行动与演习的法案
-5、国际记者联盟报告：中共国使用多种强制手段控制外国驻华记者的报道
-6、拜登宣布美国特种部队击毙一名伊斯兰国组织最高领导人
-7、美国首次申请失业救济金人数略有下降
-8、美参议员提出修订《反海外腐败法》，企业为新疆种族灭绝辩解也算腐败
-9、印度对参加边境冲突的中共军队指挥官参加北京冬奥会的火炬接力愤怒，表示不会参加冬奥开幕式
-10、拒绝在冬奥会前公布新疆人权报告，联合国被批与中共国“唱双簧”
-11、国际奥委会主席巴赫表示，他将在北京冬奥的“闭环”内会见中共国网球明星彭帅本人
-12、白宫透露：拜登计划春季首访亚洲，携手盟友遏制中共国扩张
-13、瑞典首相安德森3日宣布从9日起将解除新冠病毒疫情限制措施
-14、欧盟称已准备好就乌克兰问题对俄罗斯进行“强有力的”制裁
-15、金正恩力挺北京冬奥会 称是伟大胜利
-16、法卫生部长指 或在今年七月前取消疫苗通行证
+对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
 
-*发布：Theodosia*
+目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
 
+参考链接：[Sweden to lift most Covid curbs on Feb 9](https://insiderpaper.com/sweden-to-lift-most-covid-curbs-on-feb-9/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: Jack Li文阳
+编辑： Ivy001
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

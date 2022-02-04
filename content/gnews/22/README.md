@@ -2,42 +2,42 @@
 ---
 
 
-## 捷克最高法院裁定 疫苗限制措施无效
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1956116/)
+## 捷克最高法院裁定 疫苗限制措施無效
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1956199/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+作者：加拿大溫哥華揚帆農場[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-2月2日，捷克共和国最高法院裁定，上届捷克总理Andrej Babiš领导的政府颁布的Covid-19病毒疫苗限制措施无效，该裁决在7日内生效。
+2月2日，捷克共和國最高法院裁定，上屆捷克總理Andrej Babiš領導的政府頒佈的Covid-19病毒疫苗限制措施無效，該裁決在7日內生效。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Featured-3.png)
 
-去年11月18日，Andrej Babiš领导捷克政府批准了新的Covid-19限制措施。
+去年11月18日，Andrej Babiš領導捷克政府批准了新的Covid-19限制措施。
 
-除12~18岁的青少年、身体状况不允许接种疫苗和已部分接种疫苗的人，其它任何未接种疫苗的人即使冠状病毒检测呈阴性也被禁止进入大多数非必要的室内场所。只有接种过疫苗或最近180天内从Covid-19中康复的人才有资格参加公共活动、去酒吧、餐馆、音乐厅、理发店、博物馆、舞蹈、游戏和和类似的社交娱乐场所，或进入酒店。
+除12~18歲的青少年、身體狀況不允許接種疫苗和已部分接種疫苗的人，其它任何未接種疫苗的人即使冠狀病毒檢測呈陰性也被禁止進入大多數非必要的室內場所。只有接種過疫苗或最近180天內從Covid-19中康復的人才有資格參加公共活動、去酒吧、餐館、音樂廳、理髮店、博物館、舞蹈、遊戲和和類似的社交娛樂場所，或進入酒店。
 
-去年12月，上届捷克政府强制要求从今年3月起，60岁以上的人和从事高风险职业的人，包含医护人员、警察、消防员必须接种COVID-19疫苗。
+去年12月，上屆捷克政府強制要求從今年3月起，60歲以上的人和從事高風險職業的人，包含醫護人員、員警、消防員必須接種COVID-19疫苗。
 
-12月17日，Andrej Babiš下台，Petr Fiala宣誓就任捷克共和国总理。
+12月17日，Andrej Babiš下臺，Petr Fiala宣誓就任捷克共和國總理。
 
-1月19日，Fiala宣布他的政府不会对任何人强制接种疫苗。最近，Fiala政府又宣布，不会继续对医护人员和其他一些职业进行强制接种疫苗的计划。Fiala政府卫生部长Vlastimil Válek在推特发文称，我从一开始就认为强制性的 covid-19 疫苗接种是胡说八道。我答应过我们会修改前任政府用热针和观点写的法令，我们将取消疫苗接种，今天发生了，尽管疫苗接种是对抗严重病毒大流行的最有效武器，但我们不会强迫任何人这样做。
+1月19日，Fiala宣佈他的政府不會對任何人強制接種疫苗。最近，Fiala政府又宣佈，不會繼續對醫護人員和其他一些職業進行強制接種疫苗的計畫。Fiala政府衛生部長Vlastimil Válek在推特發文稱，我從一開始就認為強制性的 covid-19 疫苗接種是胡說八道。我答應過我們會修改前任政府用熱針和觀點寫的法令，我們將取消疫苗接種，今天發生了，儘管疫苗接種是對抗嚴重病毒大流行的最有效武器，但我們不會強迫任何人這樣做。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-42-37.png)
 
-目前，捷克63%的人口完全接种了Covid-19疫苗，而在60岁以上的年龄组中，这一比例为80%。在高危职业人群（包含医护人员、警察、消防员）中，接种率在85%到90%之间。
+目前，捷克63%的人口完全接種了Covid-19疫苗，而在60歲以上的年齡組中，這一比例為80%。在高危職業人群（包含醫護人員、員警、消防員）中，接種率在85%到90%之間。
 
-上周日，成千上万的捷克人走上布拉格街头，抗议新冠疫情的限制措施。抗议者挥舞旗帜并高呼口号，谴责对新冠病毒的限制，特别是未接种疫苗的公民仍然无法进入某些场所的事实。
+上周日，成千上萬的捷克人走上布拉格街頭，抗議新冠疫情的限制措施。抗議者揮舞旗幟並高呼口號，譴責對新冠病毒的限制，特別是未接種疫苗的公民仍然無法進入某些場所的事實。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-47-46.png)
 
-Petr Mikeš法官解释最高行政法院的裁定时说，该措施的目的是不能通过紧急疫苗接种措施间接迫使公民接种疫苗，迫使未接种疫苗的人如果想正常生活，别无选择，只能接种疫苗，但卫生部必须说明并证明捷克共和国的每个人都可能是感染嫌疑人。卫生部不支持在所谓的大流行法中限制此类场所，除非使用消毒或座位位置，卫生部只能根据《公共卫生保护法》限制疑似感染者活动。只有在整个捷克共和国都被确定为疫情的情况下才有可能每个人都可能是感染嫌疑人。
+Petr Mikeš法官解釋最高行政法院的裁定時說，該措施的目的是不能通過緊急疫苗接種措施間接迫使公民接種疫苗，迫使未接種疫苗的人如果想正常生活，別無選擇，只能接種疫苗，但衛生部必須說明並證明捷克共和國的每個人都可能是感染嫌疑人。衛生部不支援在所謂的大流行法中限制此類場所，除非使用消毒或座位位置，衛生部只能根據《公共衛生保護法》限制疑似感染者活動。只有在整個捷克共和國都被確定為疫情的情況下才有可能每個人都可能是感染嫌疑人。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-46-59.png)
 
-COVID-19病毒疫苗强制令在捷克取消！
+COVID-19病毒疫苗強制令在捷克取消！
 
-参考数据：
+參考資料：
 
 [Czech Republic: Covid Restrictions Cannot Be Used to Force Citizens to Be Vaccinated, Supreme Court Says](https://dailyexpose.uk/2022/02/04/cannot-force-citizens-to-be-vaccinated-court-says/)
 
@@ -57,7 +57,7 @@ COVID-19病毒疫苗强制令在捷克取消！
 
 [Lockdowns and bans on unvaccinated: How Europe is coping with Covid surge](https://www.itv.com/news/2021-11-19/lockdowns-and-public-transport-bans-across-europe-as-covid-cases-rise-again)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

@@ -2,46 +2,59 @@
 ---
 
 
-## 脸书股价创历史最大跌幅
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955847/)
+## 俄乌危机：当油价攀升时，普京变得更加大胆
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1956044/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月2日，据媒体消息显示， 脸书在当天美股收盘后公布了其2021财年第四季度的财务报表。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-2.jpg)
-该财报显示，脸书这一季度的营收增幅明显放缓，其股票的收益、净利润和用户指标均低于市场预期，是自2019年第二季度以来，该公司首次出现净利润下滑的情况。此外，该公司的核心应用程序脸书在第四季度的日活跃用户比上一季度减少了50万，这是自脸书面世以来的首次下降。同时，其数字货币项目几经波折，最终于1月31日晚间将数字货币的相关资产全部出售，就此关停其全球支付的计划。
+过去的冲突表明，高油价与俄罗斯入侵邻国的意愿密切相关。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2394AD1F-82D3-42D7-8009-E802ECCCCA25.png)*俄罗斯总统弗拉基米尔·普京的政府在经济上的地位比之前与西方的对峙要强。*
+目前，在俄罗斯和乌克兰之间历史性的紧张关系以及莫斯科和西方之间正在展开的巨大地缘政治动态中，原油在冲突上发挥的作用可能变得模糊不清。
 
-对此，郭文贵先生在直播中指出，脸书实际上参与了人类大屠杀，其根本没有未来，这是它不得不放弃数字货币的深层次原因。
+但是，回顾过去的冲突，可以发现飙升的油价与莫斯科在境外入侵邻国的意愿之间存在很强的相关性。
 
-另外， 近几年来，脸书由于侵犯隐私的行为，已经被美国和欧盟的监管机构罚款近60亿美元。更甚者，以脸书为首的社交媒体寡头持续打压言论自由，尤其在中共病毒疫情爆发以后，其掩盖病毒和疫苗真相的做法引发了世界民众普遍的反感和批评。
+在俄罗斯对其前苏联邻国的两次军事袭击期间——2008 年 8 月的格鲁吉亚战争，以及 2014 年 2 月从乌克兰手中夺取克里米亚和顿巴斯地区——油价处于历史高位（全球基准布伦特原油分别为 125 美元和102.57 美元） 。
 
-截至目前，脸书的股价暴跌26%，相较去年最高点已下跌近四成，创下其历史上最大的单日跌幅。
+目前，油价再次上涨，周五达到七年高点，美国基准西德克萨斯中质原油突破每桶 91 美元，布伦特原油飙升至每桶 92 美元以上。
 
-而郭文贵先生则表示，脸书践踏言论自由和对病毒真相的掩盖会将其送上死亡之路。
+这些收益填补了莫斯科的金库，并可能使克里姆林宫获得一种免受西方进一步制裁或经济孤立威胁的免疫力。
 
-参考链接：
-1) . [步奈飞后尘！“元宇宙”Meta四季报后雪崩23%， 发生了什么？](https://wallstreetcn.com/articles/3651135)
-2) . [2022年2月2日大直播速记精萃](https://gnews.org/zh-hans/1947977/)
-3) . [1/7 From the statement by the CEO Stuart Levey on the sale of the Diem group’s assets to Silvergate — “From the outset, the Diem project has been focused on leveraging the benefits of blockchain technology to design a better and more inclusive payment system.](https://twitter.com/diemassociation/status/1488270981718495233?s=21)
-4) . [FTC Imposes $5 Billion Penalty and Sweeping New Privacy Restrictions on Facebook](https://www.ftc.gov/news-events/press-releases/2019/07/ftc-imposes-5-billion-penalty-sweeping-new-privacy-restrictions)
-5) . [FB侵犯隐私案签和解协议：赔偿160万用户6.5亿美元](https://www.163.com/tech/article/G3TNLSMA00097U7R.html)
-6) . [WhatsApp侵犯隐私，被爱尔兰处以2.25亿欧元罚款](https://gnews.org/zh-hans/1508884/)
-7) .[联邦法官驳回Facebook关于撤销FTC最新反垄断诉讼的请求](https://cn.wsj.com/articles/%E8%81%94%E9%82%A6%E6%B3%95%E5%AE%98%E9%A9%B3%E5%9B%9Efacebook%E5%85%B3%E4%BA%8E%E6%92%A4%E9%94%80ftc%E6%9C%80%E6%96%B0%E5%8F%8D%E5%9E%84%E6%96%AD%E8%AF%89%E8%AE%BC%E7%9A%84%E8%AF%B7%E6%B1%82-11641944751)
-8) .[Facebook遭控滥用市场支配地位，在英国面临逾23亿英镑集体诉讼](https://www.reuters.com/article/Facebook%E9%81%AD%E6%8E%A7%E6%BB%A5%E7%94%A8%E5%B8%82%E5%9C%BA%E6%94%AF%E9%85%8D%E5%9C%B0%E4%BD%8D%EF%BC%8C%E5%9C%A8%E8%8B%B1%E5%9B%BD%E9%9D%A2%E4%B8%B4%E9%80%BE23%E4%BA%BF%E8%8B%B1%E9%95%91%E9%9B%86%E4%BD%93%E8%AF%89%E8%AE%BC-idCNL4S2TU06A)
+美国总统乔治·W·布什的国家经济委员会前国际能源高级主管兼能源咨询公司 Rapidan Energy Group 的首席执行官鲍勃·麦克纳利告诉半岛电视台，石油预测者以前曾在格鲁吉亚和乌克兰看到过这种模式。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+西方一直在努力在最近的危机中建立统一战线，并且，已经考虑了从对俄罗斯石油和金融公司的有针对性的制裁到切断莫斯科与重要的环球银行金融电信协会 (SWIFT) 金融信息系统循环系统的联系。
 
-总编: Irene木木
-编辑：谐趣园
-校正/发稿：Fei797
+但根据独立石油顾问、欧亚集团前首席能源分析师格雷格·普里迪（Greg Priddy）的说法，这些选择可能会适得其反。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他指出，直接打击俄罗斯的石油工业是不可能的，因为在这个时代没有一个国家有多余的生产能力来取代它。北约的中欧成员国——斯洛伐克、匈牙利和捷克共和国——也有炼油厂，这些炼油厂只能由俄罗斯的管道供应。
+
+Priddy 说，SWIFT 的想法很快就被放弃了，“因为他们意识到，以一揽子方式瞄准 SWIFT 将意味着，例如，德国公用事业公司将无法支付俄罗斯天然气的费用，这是不可想象的”。
+
+从历史上看，涉及石油的冲突通常涉及相反的命题：不是一个石油国家威胁其依赖石油的邻国，而是一个依赖石油的国家试图从另一个国家手中夺取资源。
+
+[资料来源：半岛电视台](https://www.aljazeera.com/economy/2022/2/4/russia-ukraine-crisis-when-oil-prices-climb-putin-gets-bolder)
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：[https://gettr.com/user/himalayanz](https://gettr.com/user/himalayanz)
+
+**【玫瑰看新闻】盖特**：[https://gettr.com/user/rosen](https://gettr.com/user/rosen)ews
+
+**玫瑰看新闻YouTube账号**：
+
+**[黑森林的故事](https://youtube.com/channel/UC7GG4NwpE8VqSZQBHS1tp1A)**
+
+**[Rose news](https://youtube.com/channel/UCRaAQxHogieKRmOtZ1vP6Ew)**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)**
+
+撰稿/米拉娅
+
+审阅/邱杰斯
+
+上传/天赐良闻
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
