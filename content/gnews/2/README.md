@@ -2,8 +2,8 @@
 ---
 
 
-## 呼吁可将伊维菌素作为防疫和治疗的药物
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954247/)
+## 和平时期的战争
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954340/)
 
 台灣寶島農場
 

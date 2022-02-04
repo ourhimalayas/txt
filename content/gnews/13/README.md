@@ -2,37 +2,29 @@
 ---
 
 
-## 美国称俄罗斯计划伪造乌克兰入侵俄视频
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1954121/)
+## 联合国与中共串通 冬奥会结束前不发布新疆人权报告
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1954182/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/23-1.jpg)[图片来源](https://6park.news/504679.html)
+北京冬奥在即，新疆人权议题再次成为讨论议题。联合国与中共串通，声明在冬奥结束前将不会发布有关中共在新疆地区涉嫌侵犯人权的报告。
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+联合国人权事务高级专员办事处（OHCHR）表示，目前尚未有具体的时间表，发布这份有史以来第一次关于新疆地区人权的报告，而该报告已经酝酿了三年。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
+对于新疆人权的报告，美国方面则曾向联合国施压，要求在周五的冬奥会开幕之前发布此报告。
 
+人权高专办发言人利兹·斯罗塞尔（Liz Throssell）则表示：“恐怕我们还没有发布这份报告的最新时间表。然而，据我所知，在本周五冬奥会开幕之前，这份报告将无法发布。”
 
-根据凤凰网报道：美国国防部2月3日表示，五角大厦握有证据，莫斯科计划伪造一部乌克兰攻击俄罗斯的视频，为出兵乌克兰提供借口。
+斯罗塞尔也证实，关于联合国人权事务高级专员巴切莱特访问新疆的“谈话正在进行”，访问可能在“2022年上半年”进行。
 
-美国国防部发言人柯比（John Kirby）告诉记者，华盛顿相信俄罗斯政府计划虚构乌克兰军队或情报部队攻击“俄罗斯主权领土或说俄语的民众”。
+消息来源:
 
-路透社报道称，一位美国高级政府官员表示，美国公开这项情报，是为了劝阻俄罗斯执行此类计划。
+[聯合國遭控串通中共 冬奧結束前不發布新疆人權報告](https://tw.news.yahoo.com/%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E6%8E%A7%E4%B8%B2%E9%80%9A%E4%B8%AD%E5%85%B1-%E5%86%AC%E5%A5%A7%E7%B5%90%E6%9D%9F%E5%89%8D%E4%B8%8D%E7%99%BC%E5%B8%83%E6%96%B0%E7%96%86%E4%BA%BA%E6%AC%8A%E5%A0%B1%E5%91%8A-054428557.html)
 
-但是俄罗斯表示，北约无视俄罗斯的核心利益，不断东扩导致了目前的危机。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-普京说，美国利用乌克兰作为遏制俄罗斯的工具，而不是关心乌克兰的安全，美国想把俄罗斯拖入武装冲突。俄罗斯希望避免局势升级，为此必须保障包括俄罗斯在内的所有各方安全，他同时希望安全保障对话继续下去。
-
-参考链接：https://i.ifeng.com/c/8DLsJt8Pml6
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
