@@ -2,46 +2,51 @@
 ---
 
 
-## 世卫组织表示下一个新冠变种病毒将比奥米克戎更具传染性，但问题是它是否会更致命
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953272/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-***评价：两军厮杀古人都知道射人先射马，擒贼先擒王的战术。如果全世界还是围绕着变异毒株跑，必然陷入疲于奔命的境地，最终就是医疗大崩溃，社会陷入动荡不安的局面。疫情已造成全球生灵涂炭，该是改变战术的时候了，但绝不是多次注射疫苗，而是围剿中共这匹制毒放毒的害群之马！***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-据**Dawn Kopecki 2022 年 1 月 25 日美国东部时间下午 3点25 分 报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-1.jpg)**图片来源：DAWNKOPECKINEWS**
-**关键点**
-世卫组织官员Maria Van Kerkhove对该病毒比早期的变种病毒更少生病并将继续变异为较温和的毒株的这一理论发出警告。
+**George Soros**
+**乔治·索罗斯**
 
-世卫组织紧急项目主任Mike Ryan博士说，病毒在形成一种模式之前将会继续进化。
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-辉瑞和拜恩泰科周二开始测试一种专门针对奥米克戎变种的新冠疫苗。
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-世界卫生组织官员周二说：将引起世界关注的下一个新冠病毒变种将比奥米克戎更具传染性，但科学家需要回答的真正问题是它是否会更致命。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-世卫组织新冠病毒技术负责人Maria Van Kerkhove在该组织社交媒体直播问答中提到，上周向世卫组织报告了大约2100万个新冠病毒病例，创造了迅速传播的奥米克戎变种病毒每周病例的全球新纪录。
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
-虽然奥米克戎的毒性似乎比以前的毒株要小，但大量的病例正在冲击着全世界的医院系统。
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
 
-Van Kerkhove谈道：“下一个值得关注的变体将更加适合人体，我们的意思是它将更加具有传播性，因为它将会超过目前正在流行的冠状病毒，最大的问题是未来的变种病毒是否会更严重或更不严重。”
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
 
-她警告说：“不要相信病毒将继续变异为较温和的毒株，使人们比早期的变体更少生病的理论。”
+that has had disastrous consequences
+这带来了灾难性的后果
 
-她说：“这一点没有保证。我们希望如此，但是没有保证，我们不能指望它。” 她表示在此期间，人们应该注意公共安全措施。更重要的是，下一代进化的变种新冠病毒也更加有可能免疫疫苗，使现有的疫苗变得更加无效。
-辉瑞和拜恩泰科周二开始测试一种专门针对奥米克戎变种的新冠疫苗，因为人们越来越担心目前的疫苗不能抵御两个多月前发现的毒株所造成的感染和轻微疾病。
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
 
-世卫组织官员表示虽然奥米克戎变种在一些国家似乎已经达到了顶峰，但它在其他国家的传染正在上升。Van Kerkhove说：“你不必永远戴着口罩，也不必在身体上保持距离，但是现在我们需要继续这样做。”
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
 
-世卫组织应急项目主任Mike Ryan博士说，病毒在形成一种模式之前将会继续进化。他说，希望它能稳定在较低的传播水平上，可能偶尔会出现流行病。他说，它可能变得更有季节性，或者可能只影响弱势群体。
-他说，问题在于新冠病毒是不可预测的。
-
-Ryan讲道：“事实证明这种病毒会给我们带来一些糟糕的意想不到的事情。世界卫生官员需要继续跟踪新冠病毒的演变，并做好准备，如果有一个凶险的意外后果出现，我们至少可以再次采取措施，阻止这个新的变种病毒造成任何更多的损害。”
-
-**原文连接：**[https://www.cnbc.com/2022/01/25/the-next-covid-variant-will-be-more-contagious-than-omicron-who-says.html](https://www.cnbc.com/2022/01/25/the-next-covid-variant-will-be-more-contagious-than-omicron-who-says.html)
-
-翻译：洛杉矶盘古农场 – KY
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy 
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场 –彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

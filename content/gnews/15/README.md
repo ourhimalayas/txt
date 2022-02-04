@@ -2,55 +2,31 @@
 ---
 
 
-## 特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953352/)
+## 停止冬奥会，把CCP踢出WTO和SWIFT (一)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953390/)
 
-[https://gtv.org/video/id=61fbeff7d90bdd2085a479e3](https://gtv.org/video/id=61fbeff7d90bdd2085a479e3)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-And I apologize that the Minister is misleading Canadians
-我很抱歉总理误导了加拿大人
+我告诉你共产党现在在干什么，想把华为手机，还有ZTE，叫非洲化、中东化、亚 洲化，我不去美洲市场。
 
-I do get very defensive of Canadians who are outside today patriotic, peace loving Canadians
-我确实非常支持今天在外面的爱国、热爱和平的加拿大人
+他要干两件事儿，找到芯片合作商叫格芯，是吧？阿布扎比最大的global function要给他提供芯片、技术。
 
-who are called misogynist and racist by the Prime Minister
-那些被总理称为厌恶女性的人和种族主义者
+第二，要跟日本联合。日本所谓的科技亚洲化，说咱们要完一套标准咋弄，包括数字人民币，数字日元，咱一起玩。这是第二。
 
-So again, I will ask the prime minister
-所以再一次，我会问总理
+第三，玩那个什么，叫亚洲零贸易交易化，就是易货贸易，现代的用数字人民币来 体现。油、印度的手工产品、巴基斯坦，包括越南这些国家，甚至邀请俄罗斯一起 玩儿。
 
-who may I remind this house wore blackface on more times than he can remember
-让我来提醒一下大家他诋毁民众的次数比他能记得的还要多
+七哥要干的一件事情，一定会让共产党从所有的亚洲的贸易数字化，和共产党想在这个世界上想搞的，和共产党的这一套所有的东西，我彻底的打灭了。我一定干败共产党，把它按在马桶上让它喝它自己的屎喝死它。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/停止冬奥会，把CCP踢出WTO和SWIFT（一）-.jpg)
+2021年12月10日文贵大直播
 
-Apologize to the peace loving, patriotic Canadians who are outside right now
-向现在在外面的热爱和平、爱国的加拿大人道歉吧
-
-Just asking to be heard
-人们只是要求被听到
-
-will he speak to
-他会和他们对话吗？
-
-**原视频链接**:[https://twitter.com/newsmax/status/1488634801078865922?s=24](https://twitter.com/newsmax/status/1488634801078865922?s=24)
-
-Date:02/02/2022
-原视频标题: Trudeau called out over blackface after labelling truckers ‘racist’
-特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来
-原视频日期：2022/02/02
-原视频链接:https://twitter.com/newsmax/status/1488634801078865922?s=24
-任务编号：KE379(3650)
-视频时间段 : 0:00-0:34
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,51 +2,50 @@
 ---
 
 
-## 乔治·索罗斯批评习近平的治国理念
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
+## 特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953352/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
-[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
+[https://gtv.org/video/id=61fbeff7d90bdd2085a479e3](https://gtv.org/video/id=61fbeff7d90bdd2085a479e3)
 
-**George Soros**
-**乔治·索罗斯**
+And I apologize that the Minister is misleading Canadians
+我很抱歉总理误导了加拿大人
 
-Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
-习近平竭尽全力摧毁邓小平的功绩
+I do get very defensive of Canadians who are outside today patriotic, peace loving Canadians
+我确实非常支持今天在外面的爱国、热爱和平的加拿大人
 
-He brought private companies established under Deng under the control of the CCP
-他将在邓小平时期创建的民营企业置于中共的控制之下
+who are called misogynist and racist by the Prime Minister
+那些被总理称为厌恶女性的人和种族主义者
 
-and undermined the dynamism that used to characterize them
-并破坏了过去使其具有活力的机制
+So again, I will ask the prime minister
+所以再一次，我会问总理
 
-rather than letting private enterprise blossom
-而不是让民营企业百花齐放
+who may I remind this house wore blackface on more times than he can remember
+让我来提醒一下大家他诋毁民众的次数比他能记得的还要多
 
-Xi Jinping introduced his own China dream
-习近平提出了自己的“中国梦”
+Apologize to the peace loving, patriotic Canadians who are outside right now
+向现在在外面的热爱和平、爱国的加拿大人道歉吧
 
-As can be summed up in two words: “total control”
-可以用两个词概括就是：全面控制
+Just asking to be heard
+人们只是要求被听到
 
-that has had disastrous consequences
-这带来了灾难性的后果
+will he speak to
+他会和他们对话吗？
 
-**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
+**原视频链接**:[https://twitter.com/newsmax/status/1488634801078865922?s=24](https://twitter.com/newsmax/status/1488634801078865922?s=24)
 
 Date:02/02/2022
-原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
-乔治·索罗斯批评习近平的治国理念
+原视频标题: Trudeau called out over blackface after labelling truckers ‘racist’
+特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来
 原视频日期：2022/02/02
-原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
-任务编号：3651
-视频时间段 : 0:00-0:38
+原视频链接:https://twitter.com/newsmax/status/1488634801078865922?s=24
+任务编号：KE379(3650)
+视频时间段 : 0:00-0:34
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
 发布：洛杉矶盘古农场 –彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
