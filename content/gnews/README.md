@@ -15,83 +15,83 @@
 
 ---
 
-### [阿爾伯塔省長下周將宣布COVID疫苗護照的結束日期](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（三）](/content/gnews/2/README.md)
+### [有声|美中脱钩 中共科技业被打回原形](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [全球疫情更新（“疫苗”造成血糖血脂肾功能恶化）](/content/gnews/3/README.md)
+### [有声|美台共同商议双边贸易协定](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [阿爾伯塔省長下周將宣布COVID疫苗護照的結束日期](/content/gnews/3/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（三）](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [全球疫情更新（“疫苗”造成血糖血脂肾功能恶化）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022/02/04 文贵先生直播重点大纲](/content/gnews/4/README.md)
+### [2022/02/04 文贵先生直播重点大纲](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|悲惨的中国母亲的缩影—八个孩子的妈妈](/content/gnews/5/README.md)
+### [有声|悲惨的中国母亲的缩影—八个孩子的妈妈](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [HPay上线改变支付规则，疫情灾难会追中共担责？](/content/gnews/6/README.md)
+### [HPay上线改变支付规则，疫情灾难会追中共担责？](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美军方律师指责强制注射疫苗违反《纽伦堡法典》](/content/gnews/7/README.md)
+### [有声|美军方律师指责强制注射疫苗违反《纽伦堡法典》](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [扬帆每日速递2022年2月4日版（1）](/content/gnews/8/README.md)
+### [扬帆每日速递2022年2月4日版（1）](/content/gnews/10/README.md)
  ` 温哥华扬帆农场`
 
-### [文•贵天成——文贵先生谈“H-pay、喜支付”（三）](/content/gnews/9/README.md)
+### [文•贵天成——文贵先生谈“H-pay、喜支付”（三）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [律师托马斯•伦茨向参议员罗恩•约翰逊投下一些真相炸弹](/content/gnews/10/README.md)
+### [美国之台湾，为何五十年前抛弃今天又拥抱](/content/gnews/12/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [律师托马斯•伦茨向参议员罗恩•约翰逊投下一些真相炸弹](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|《一帘幽梦》唤醒梦中人](/content/gnews/11/README.md)
+### [有声|《一帘幽梦》唤醒梦中人](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [青蒿素鸡尾酒疗法拯救人类免受中共病毒和疫苗带来的灾难](/content/gnews/12/README.md)
+### [青蒿素鸡尾酒疗法拯救人类免受中共病毒和疫苗带来的灾难](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [五月花简报（02/04/2022）](/content/gnews/13/README.md)
+### [五月花简报（02/04/2022）](/content/gnews/16/README.md)
  ` mayflowertranslate`
 
-### [塔克·卡尔森：很少见到一个国家如此迅速的恶化，加拿大总理特鲁多对待抗议民众的方式就是躲起来](/content/gnews/14/README.md)
+### [塔克·卡尔森：很少见到一个国家如此迅速的恶化，加拿大总理特鲁多对待抗议民众的方式就是躲起来](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [联邦调查局为部门经理的视频压力辅导花费了 15.3 万美元](/content/gnews/15/README.md)
+### [联邦调查局为部门经理的视频压力辅导花费了 15.3 万美元](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [与心理医生谈焦虑症—如何应对疫情期间的各种心理压力（六）](/content/gnews/16/README.md)
+### [与心理医生谈焦虑症—如何应对疫情期间的各种心理压力（六）](/content/gnews/19/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [2月4日文贵大直播摘要](/content/gnews/17/README.md)
+### [2月4日文贵大直播摘要](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [加拿大统计局称 1 月份有 200,000 个工作岗位流失](/content/gnews/18/README.md)
+### [加拿大统计局称 1 月份有 200,000 个工作岗位流失](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [渥太华警方部署“增援”以应对持续的抗议](/content/gnews/19/README.md)
+### [渥太华警方部署“增援”以应对持续的抗议](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [又一名21岁希腊球员因心脏骤停离世](/content/gnews/20/README.md)
+### [又一名21岁希腊球员因心脏骤停离世](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [即使孩子因 COVID-19 被送回家，父母每月也要支付 4,000 元的日托费用](/content/gnews/21/README.md)
+### [即使孩子因 COVID-19 被送回家，父母每月也要支付 4,000 元的日托费用](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [顶级医生说，安大略省需要“重新评估 COVID-19 疫苗护照系统的价值”](/content/gnews/22/README.md)
- ` MG FARM`
-
-### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/23/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国谋杀率飙升至创纪录水平 原因是人为造成的社会崩溃](/content/gnews/24/README.md)
+### [美国谋杀率飙升至创纪录水平 原因是人为造成的社会崩溃](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC大中华时事：习近平同俄罗斯总统会谈](/content/gnews/25/README.md)
+### [DC大中华时事：习近平同俄罗斯总统会谈](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [银行业监管机构警告称，当升息时加国房价可能暴跌20%](/content/gnews/26/README.md)
- ` MG FARM`
 
 ### [2月2日北京奥运会COVID-19病例创新高](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

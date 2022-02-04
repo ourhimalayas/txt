@@ -2,64 +2,102 @@
 ---
 
 
-## 有声|悲惨的中国母亲的缩影—八个孩子的妈妈
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1956987/)
+## 全球疫情更新（“疫苗”造成血糖血脂肾功能恶化）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1957003/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-江苏省的徐州一个名不见经传的小县城丰县，最近引起了所有人的关注，随拍摄镜头来看一下这个引发关注的贫困家庭。
+**整理/编辑：枳实**
 
-在一个破败的院落里，一个蓬头垢面没有门牙、目光呆滞的中年女子，脖子上戴着铁链、被锁在一个破败不堪、肮脏、阴暗寒冷的空房子里。
-![](https://cdn.discordapp.com/attachments/938545577300463647/938546592317841458/image2.png)
-女子嘴里不停地喃喃自语：“这个世界不要我了，这个世界不要我了，对吧？”空洞的眼神里似乎没有意识到身边大大小小、走来走去的孩子们是她的骨肉。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-241.png)图片：雅典娜农场设计组 精灵蓝
 
-这位脖子上戴着铁链的女子就是最近引发关注的、八个孩子的妈妈“杨侠”。
 
-旁边一个六十多岁的小个子男人、也就是她的丈夫解释说，因孩子妈妈有家庭暴力倾向才被家人锁住安置在这个屋子里的，一天三餐由家人悉心照顾。
+雅典娜疫情更新（2022年 2月4日）
 
-仔细观察这个花白头发的男人，戴着眼镜，瘦小、佝偻着腰坐在床边。
-随着拍摄者边拍边不停地提问，这个男人开始显得局促不安起来。镜片下边的两只眼睛不停躲闪，边回答边努力做出一副可怜兮兮的样子。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-254.png)
-据了解这个家庭的邻居透露，这位八个孩子的母亲来到本地时只有15岁，会讲英语、漂亮聪明伶俐。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-她的八个孩子中最大的已经23岁，以此推算这个女子到这里已经至少24年。
+**一，全球疫情基本数据**
 
-一个15岁的花季少女是怎么来到这个贫困地方的？她是从哪里来的？她的八个孩子怎么生下来的？邻居说来时会讲英语、聪明伶俐，但现在怎么是极度弱智状态？
+感染总数：387,287,099（日新增2,996,823人，14天增幅-7%）
 
-随着质疑声不断，事件不断发酵和引发的民愤，丰县县委宣传部跳出来辟谣称，镇民政部门严格核实过该女子年龄，该男子董某和这位八个孩子的妈妈杨某是1998年领取结婚证，这个家庭一直是受政府积极救济的贫困户。
+死亡总数：5,708,427（日新增10,130人，14天增幅 +31%）
 
-随着真实碎片信息的不断流出，也基本拼凑出本事件的原貌。该女子被从外地拐卖来此地，被该男子家买来准备做传宗接代的媳妇，几次逃跑未果，并受到该男子和其哥哥长期强奸轮奸，为防止女子再次逃跑使用暴力殴打致其精神失常，并中间陆续生下了八个孩子。
+**二，全球“疫苗”毒针统计数据**
 
-为应对愤怒的舆情，地方政府硬着头皮成立所谓的“联合调查组”，称将深入调查相关情况，对失职、渎职的工作人员依法处理云云。
+“疫苗”毒针注射总数：101亿
 
-能够给一个15岁的幼女和一个猥琐丑陋的中年男人开出结婚证，并让他们顺理成章地成为夫妻的民政、基层党政、基层公安都是这场悲剧的制造者。
+完全“接种”：41.8亿人
 
-他们都是共产党残暴体制内、助纣为虐的凶手。凶手怎么会去追究自己的法律责任？！
+完全“接种”百分比：53.6%
 
-在偏远、贫困地区这样的悲剧母亲百万千万，她们仿佛不存在一般，没有人看见她们、听见她们、关注她们悲惨的命运！
+**三，澳洲疫情和“疫苗”数据**
 
-想起文贵先生曾立下誓言，当彻底铲除中国共产党后，一定要去修建在天安门广场上的纪念碑，把“人民英雄纪念碑”改为“中国母亲纪念碑”，以此来纪念千千万万个悲惨的中国母亲，让悲剧不再发生在神州大地上。
+感染总数：2,677,934（今日新增32,213人）
 
-这一天马上就要到来，因为天要亮了～
+死亡总数：4,073人（今日新增 84人）
 
-文字版原文：[悲惨的中国母亲的缩影—八个孩子的妈妈](https://gnews.org/zh-hans/1953708/)
+每万人感染人数：1038.0473人
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+“疫苗”毒针注射总数：50,704,279 （今日新增254,407  针）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+完全“接种”： 19,298,137人
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+第二针“接种”百分比：78.8%
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+16岁以上人口接种至少两剂疫苗的比例：93.6%
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+加强针总数：8,631,286（日新增：212,610针）
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**四，《自然》杂志破天荒发表论文揭示疫苗危害**
+
+[《自然》杂志去年十月发表了一项研究](https://www.nature.com/articles/s41421-021-00329-3)，观察了志愿者接种后病理生理变化和详细免疫学变化。结果表明，疫苗接种造成各种健康指标恶化，包括与糖尿病、肾功能障碍、胆固醇代谢、凝血问题、电解质失衡有关的指标，这些指标的恶化，都与中共病毒感染的重症相关。这些指标分述如下。
+
+糖化血红蛋白（HbA1c）
+
+所有志愿者的糖化血红蛋白水平在注射后第28天都增加了，11名志愿者中的3人甚至到达了糖尿病前期的水平。到第 42 天和第 90 天， 糖化血红蛋白的中位数虽然降低了，但仍显著高于接种疫苗前的水平。而先前的研究表明，血糖水平不受控制的糖尿病患者更容易患上严重的中共病毒感染 。高血糖水平/糖酵解通过线粒体活性氧的产生和 HIF1A 20的激活促进人类单核细胞中的中共病毒复制，因此容易重症。
+
+电解质紊乱
+
+第一次接种后第 28、42 和 90 天血清钾水平显著下降，其中一个样本在第 42 天低于正常下限。类似地，接种疫苗后血清钠水平也降低，表明疫苗对电解质平衡的影响。同样，电解质失衡也与中共病毒感染有关。
+
+凝血功能
+
+凝血功能障碍是另一种由 中共病毒感染引起的临床病症。研究发现接种疫苗后凝血曲线发生显著变化，在第一次接种后的短期（7 天）中，凝血曲线倾向于较短的凝血酶原时间（PT），而长期（28 天和 42 天）效果则倾向于活化部分促凝血酶原激酶时间（APTT）和PT延长（图2e）。到第 90 天，这些特征恢复到接种疫苗前的状态。
+
+血脂和肾功能
+
+第一次接种后第 7 天、第 28 天血液胆固醇水平升高，第 7 天也检测到总胆汁酸水平升高（图2f，g）。肾功能不全是与 中共病毒感染相关的另一种临床病症，在第一次接种后 28、42 和 90 天，血清肌酐水平显著高于接种前，导致 eGFR 降低（图2h）。
+
+文章中反复强调，这些临床特征中的大多数与重症有关。也就是说疫苗毒针带来的伤害如此全面和广泛，仅仅11人的小样本研究就发现了这一点，而且都与重症相关。这刚好解释了最近的[另一条新闻](https://www.zerohedge.com/covid-19/long-funeral-homes-short-life-insurers-ex-blackrock-fund-manager-discovers-some-disturbing)，美国的工作年龄人口死亡在全民疫苗接种后大幅增加，导致保险公司收益下降，丧葬公司营收上升。这些死亡，多数并没有被登记为与中共病毒相关。这篇论文恰好为这个现象提供了可能的解释，疫苗毒针对肾功能，血糖，血脂，电解质水平的损害，可能正在悄无声息的杀死人们。中共病毒造成的死亡主要是工作年龄之外的老年人，而毒针疫苗则伤害了所有年龄段的人。
+
+限于篇幅，明天我们继续分享论文的后半部分，关于接种后与重症相关的免疫指标改变。这个研究用的疫苗是灭活疫苗（北京生物制品研究所有限公司，国药疫苗），那么mRNA等基因治疗疫苗是否也会造成类似的危害？很遗憾，我没有看到类似的研究，但是美国的死亡数据告诉我们，答案很可能是肯定的。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
