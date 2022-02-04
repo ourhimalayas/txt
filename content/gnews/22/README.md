@@ -2,14 +2,23 @@
 ---
 
 
-## 2022年2月4日《樱花快报》：法国累计感染中共病毒超过2000万例 日本超300万
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1953457/)
+## 雅典娜时报-第194期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1953497/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/85bc2e840165ca89eb837c633a218937_500x0.jpg)
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/938952093132259358/155_2.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/938952093568491541/155_5.png?width=768&amp;height=1144)
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

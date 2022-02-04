@@ -2,35 +2,28 @@
 ---
 
 
-## 普京借冬奥割中共韭菜 将签天然气与金融合约
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953514/)
+## 中日财经爆┃日本高度依赖中国进口，运输停滞风险大
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1953522/)
 
-作者：香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，俄罗斯总统普京的幕僚鄂夏柯夫表示，普京在出席冬奥期间将与中共习近平会面，届时将签署天然气、金融合作等15项协议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10.png)
-天然气方面，双方已有多项的新合约准备签署。 金融上则是俄中希望合作，筹建能抵抗被金融制裁的基础架构。
+撰稿：东京樱花团/文小白
 
-此次跟随普京参与协商的俄罗斯代表团成员，将包括外交部长拉夫罗夫、能源部长舒尔吉诺夫和能源业巨擘俄罗斯石油公司的执行长谢琴。 观察人士认为，此安排显示出普京借有条件出席冬奥会的机会，将在能源交易上大割中共韭菜的意图。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中日财经爆┃日本高度依赖中国进口，运输停滞风险大.png)
 
-参考链接：
+2022年2月4日NHK报道称，根据日本内务府的调查发现，从海外进口的商品中，手机、个人电脑等1000多种商品中占中共国进口额的50%以上。内阁府表示，与其他发达国家相比，对中共国的依赖程度更高，并指出“如出现运输停滞等状况时将带来很大的风险”。
 
-- [蒲亭冬奧與習近平會談 俄中擬簽天然氣金融協議](https://www.cna.com.tw/news/aopl/202202020170.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+内阁府调查了日本、美国和德国三个国家进口的商品，以截至2019年的占某国进口额50%以上的商品作为对象。
 
+从调查结果来看，日本进口商品的2627个品种中，进口占比在50%以上的中共国商品达到1133件。从中国进口占比较高的商品来看，笔记本电脑和平板电脑占比99%，手机占比86%，电脑配件占比62%。 从美国和德国的进口商品来看，占比超过50%的商品数量美国为590件，德国为250件，远远低于日本。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+内阁府指出，“如果在作为进口目的地的中共国如出现供应冲击或运输停滞，日本相比美欧等国家难以找到替代商品，因此存在着很大风险。”
 
-总编: 文特
-编辑：Lakeman文仁
-校正/发稿：海阔天空1
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[中国からの輸入依存度高く 輸送停滞で大きなリスク 内閣府調査](https://www3.nhk.or.jp/news/html/20220204/k10013465731000.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

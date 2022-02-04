@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/4/2022 3:43 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border”  1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（中英双语版）
+![img](https://media.gettr.com/group15/origin/2022/02/04/03/400c25b8-4239-3bfc-c5d9-0e36740d74bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/4/2022 2:44 AM (UTC)`
 
 2/3/2022 Miles Guo’s GETTR: After the launch of Himalaya Pay, the number of visitors to the Himalaya Exchange's website was three times higher than in the past. Various countries are going to blame the CCP for the COVID vaccine disaster. Mr. Bannon's family members infected with the virus were all saved by the New Federal State of China. The CCP and the dark forces will surely be retaliated against by the victims of the CCP virus and its vaccines.<br/><br/>2/3/2022 文贵盖特：H-Pay上线后喜联储网站访问量是过去的三倍；各国都要把疫苗灾难算到中共头上；班农先生家人染病后都被新中国联邦拯救；中共和黑暗势力必将遭到病毒和疫苗受害者的报复<br/>
@@ -150,13 +157,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 1/31/2022 Miles Guo’s Chinese New Year Live: We have made the CCP so terrified, seeing us as their biggest enemy. The influence of the NFSC has spread around the world.<br/><br/>1/31/2022 文贵虎年新春大直播：我们令中共如临大敌，新中国联邦的影响力已经传遍世界。<br/>
 ![img](https://media.gettr.com/group23/getter/2022/02/02/06/a6b519a4-f791-19d5-4076-88ec640d1918/out.jpg)
-
----
-
-`@miles 2/2/2022 3:03 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: What are the secrets behind my singing the song "The Snow Taking Down the CCP"? "The Snow Taking Down the CCP” is a piece of unprecedented epic music. Fellow fighters, you should all sing it!<br/><br/>1/31/2022 文贵虎年新春大直播：文贵演唱这首《灭共的雪》的背后有什么不认为人知的秘密？《灭共的雪》是前无古人的史诗般的音乐，战友们好好唱这首歌吧！<br/>
-![img](https://media.gettr.com/group17/getter/2022/02/02/03/f49cbe14-e685-600e-d4e5-a8a843dd5e21/out.jpg)
 
 ---
 

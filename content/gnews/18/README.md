@@ -2,28 +2,37 @@
 ---
 
 
-## 印度将外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1953492/)
+## 蓬佩奥再谈病毒起源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953516/)
 
-撰稿：东京樱花团/盖特第一批注册
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，美国前国务卿蓬佩奥接受福克斯电视台采访，再次提及病毒来自中共武汉病毒研究所实验室。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/印度将外交抵制北京冬奥会.png)[图片来源](https://news.yahoo.co.jp/articles/05d3d6cd2780c75b9784010307277f4b38b2fda8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-3.png)
 
-印度外交部发言人在2月2日（周三）的例行新闻发布会上说，印度驻中国大使馆的负责人将缺席北京冬奥会的开幕式或闭幕式。
+在节目中，主持人回顾了有科学家很早就提出病毒来自实验室的质疑，但被福奇和柯林斯要求统一思想，并统一改口为病毒起源于自然。而现在越来越多的人开始明白病毒来自实验室。对此蓬佩奥表示，只要是在2020年春天看到了那些数据的人，都会得出病毒一定来自中共武毒所的结论。但时至今日中共武毒所还在运转，美国人依旧面临着相似的威胁。
 
-缺席的原因是因为有报道称，一名据称在2020年中印边境冲突中受伤的中国士兵被选为火炬手，该冲突导致了两国军队45年来首次大伤亡。
+蓬佩奥还指出，福奇、柯林斯等美国政府医疗与公共卫生权威人士，明知道病毒会造成危害，却不告诉当时的美国政府，这是让人难以置信的事实。
 
-印度对中国利用奥运会进行政治宣传的行为表示非常遗憾。
+参考链接：
 
-印度在去年12月底提名了下一任驻华大使，但他还没有到北京赴任。
+- [20220201蓬佩奧國務卿接受FOX採訪](https://www.gettr.com/post/ps4ijrfc55)
 
-信息源：
 
-[インド、北京五輪外交ボイコットへ〔五輪〕](https://news.yahoo.co.jp/articles/05d3d6cd2780c75b9784010307277f4b38b2fda8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+总编: 文特
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

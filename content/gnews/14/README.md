@@ -2,30 +2,31 @@
 ---
 
 
-## 参赛运动员准备抵制北京冬奥会开闭幕式
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953515/)
+## 美国人权观察组织研究员获聘港大 港府拒发签证
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953531/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：台湾宝岛农场 – 斗阵来拼
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据2月2日外媒报道，2月4日冬奥会开幕式在北京正式举行时，除了一些国家的政府官员和观众不见踪影外，来自多国的参赛运动员也在准备抵制开幕式和闭幕式，以声援遭受中共人权侵犯的受害者。
+2月1日, 获香港大学续聘任教的“人权观察”组织性别平权研究员、美国法学学者索瑞逊表示，他于5个月前开始申请入港签证，但近日遭港府拒发签，他也因此失去了港大的教职。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-2.png)
 
-数月以来，一些活动人士一直在与几个西方国家的奥运运动员会面，敦促他们就中共对维吾尔人、藏人、香港人和中共国境内其他群体的大规模迫害发表意见，至少可以拒绝出席开幕式、闭幕式。据悉，至少有两支西方球队的运动员确认他们将不参加开幕式，作为个人抗议的形式。但具体参与抵制的运动员人数尚不清楚。
+“人权观察”组织是一个国际非政府组织，以调查、促进人权问题为宗旨，总部设在美国纽约，屡次批判中共国违反人权的记录，包括在香港镇压民主运动。
 
-另外，美国政府一直在提示本国运动员注意个人信息的泄露，并派出安保人员随队进驻，还与奥委会签署谅解备忘录，以在美国公民被拘留或骚扰的情况下促进合作。而中共政府也非常担心出现抵制开闭幕式的行为，正努力向各方施加压力。
+该组织的中共国分部主任李察逊表示：“香港当局拒发签证给学者之举，目的就是要将学术机构‘习近平化’，实在令人失望”。
 
-评论人士指出，北京冬奥会在一个被指控犯有种族灭绝和反人类罪行的国家举行，是奥运史上巨大的耻辱。任何抗议暴行的运动员，即使只是远离开幕式，也是在捍卫世界人权。他们值得敬佩、保护和支持。
+香港政府的行为已引发国际关注，并将再度重创香港学术自由重镇的声望。
 
 参考链接：
 
-- [Olympic athletes are getting ready to boycott the opening ceremony in Beijing](https://www.washingtonpost.com/opinions/2022/02/02/olympic-athletes-preparing-boycott-opening-ceremony-winter-olympics-beijing/)
+- [人權觀察研究員獲聘任教港大 遭港府拒發簽證](https://www.cna.com.tw/news/aopl/202202020132.aspx)
+- [人權觀察研究員獲聘任教港大 遭港府拒發簽證](https://news.ltn.com.tw/news/world/breakingnews/3819300)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: 文特
-编辑：飞虹
+总编: Irene木木
+编辑：谐趣园
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
