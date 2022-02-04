@@ -2,28 +2,28 @@
 ---
 
 
-## 以色列前车之鉴：新冠疫苗做了什么？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1956107/)
+## 加拿大卡车司机誓言继续抗议直到自由国度重新回归
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1956166/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-50.jpg)
-图片来源： ourworldindata.org
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-5.jpg)
+图片来源： ici.radio-canada.ca
 
-据“网关专家”（Gateway Pundit）网2月3日报道，以色列专家组十天前建议民众再接种第4剂新冠疫苗，以进一步预防重症和死亡……但，让我们再看看统计数据在说什么？
+零对冲网2月3日报道，随着渥太华不断聚集更多的抗议者，萨斯喀彻温省省长周四公开承诺他将于本月晚些时候中止所有新冠限制。
 
-**新冠疫苗“预防死亡”？**
+省长斯科特·莫周四宣布“是时候审视中止所有的新冠限制了，人们要求政府回应归正常，去除公共健康限制。”
 
-根据《路透社》的数据，以色列全国至今已经接种了至少 17,879,314 剂新冠疫苗，如果每人接种2针，这足以覆盖该国约 98.7% 的人口，效果怎样呢？牛津大学的”用数据看世界”（Our World in Data）的研究网站显示，以色列现在是世界上新冠死亡率（每百万人口）最高的国家。
+同时，一批萨省议员组队前往渥太华市中心参加”为自由护航”的抗议活动。
 
-**新冠疫苗“预防重症”？**
+在阿尔伯塔省考茨市的卡车司机们在靠近美国蒙大拿州边境地区通宵达旦为自由护航，他们在支持者们的支持下加汽油，提供必须物品，即使有皇家骑警在周围，他们继续在抗议，中断商业供应链。这些也是政府试图责怪这些卡车司机。
 
-《以色列国家新闻》（Israel National News, Arutz Sheva）2月3日报道，“伊奇洛夫医院”（Ichilov hospital）新冠病房主任、杰里斯教授（Yaakov Jerris）透露，目前的新冠重症患者中70%~80%完全接种了疫苗，大多数至少打了三针，他认为新冠疫苗对预防重症没有效果！
+很多卡车司机的支持者们还纷纷打911电话询问加拿大总理贾斯江·特鲁多到底在哪里，人们要问的是为什么特鲁多不愿出来解决问题，而是躲起来，反而责怪卡车司机阻断供应。
 
-**新闻来源：**
+##### 新闻来源： [Saskatchewan Premier Pledges To End All COVID Restrictions As Ottawa Braces For More Protests](https://www.zerohedge.com/political/canadian-truckers-vow-continue-long-it-takes-more-protests-expected-ottawa)
 
-1. [Country with One of the Highest Vaccination Rates Has Highest Number of COVID Deaths Per Million People This Week –80% of Serious Cases are Fully Vaccinated](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
+#  
 
-2. [‘80% of serious COVID cases are fully vaccinated’ says Ichilov hospital director](https://www.israelnationalnews.com/news/321674)
+
 
  
 

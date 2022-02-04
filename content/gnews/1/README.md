@@ -2,36 +2,40 @@
 ---
 
 
-## 郭文贵先生解读HPay的功能特点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956497/)
+## 日本公司表示：伊维菌素显示出“抗病毒作用”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956570/)
 
-作者：纽约香草山 – AT，纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月2日的大直播中详细阐述了HPay的核心功能和重大意义。
+据《路透社》记者：Sam Nussey和Rocky Swift报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-348-e1643998562947.png)在2020年1月29日拍摄的插图显示带有中共新冠病毒阳性标签的试管。
+图片来源：路透社/Dado Ruvic
+东京，1月31日（路透社）——日本贸易和制药公司Kowa Co Ltd (7807.T) 周一表示，抗寄生虫药物伊维菌素在联合非临床研究中对奥米克戎和其他冠状病毒变体显示出“抗病毒作用”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-3.jpeg)
+该公司一直与东京北里大学合作测试该药物作为COVID-19的潜在治疗方法，但没有提供更多细节。
 
-郭先生表示，HPay的本质是在线支付，属约定式付款，其既不用被衡量，也无需在定价规则的贸易下交易。此外，已经上线的HPay具有八大特点，即无条件支付、无转账费用、无支付上限、无物理行为、无中心化、无中介、高度安全和极度隐匿。郭先生解释道，这些特性使得HPay超越了第一代加密货币的去中心化技术，从而能够让这一系统摆脱额度的限制且难以被追踪，达到人类最原始和最高的交易境界。
+临床试验正在进行中，推广伊维菌素治疗COVID-19也引发争论。
 
-郭先生补充道，自此，HPay将逐渐改变人类社会的生活方式并打破现有经济体系的金融垄断，同时，其将构建出未来新的金融模式，更将推动一场由中国人发起的”我的财富我作主”的金融革命。
+**著名疫苗怀疑论者乔·罗根（Joe Rogan）质疑疫苗的必要性，并说他使用了伊维菌素。**
 
-郭先生强调，只要不以杀人、害人为目的，任意双方都能在达成共识的基础上相互交易，真正做到无影无踪、踏水无痕地隔空取钱。
+该药物在日本未被批准用于治疗COVID-19，美国食品药品监督管理局、世界卫生组织、欧盟药物监管机构和制造该药物的默克公司(MRK.N)警示使用该药物，因为仍然需要科学证据表明其作用。
 
-参考链接：[2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币](https://gtv.org/video/id=61fa824c96ba5d73e0c15749)
+目前牛津大学也在研究使用伊维菌素治疗COVID-19。研究人员周一表示，这项工作仍在进行中，在有结果报告之前，他们不想进一步置评。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+原文有删减。
 
-总编：文特
-编辑：百香果，Lakeman文仁
-校正/发稿：谐趣园
+文章来源：[https://www.reuters.com/business/healthcare-pharmaceuticals/japans-kowa-says-ivermectin-effective-against-omicron-phase-iii-trial-2022-01-31/](https://www.reuters.com/business/healthcare-pharmaceuticals/japans-kowa-says-ivermectin-effective-against-omicron-phase-iii-trial-2022-01-31/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译：洛杉矶盘古农场 – WH
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
