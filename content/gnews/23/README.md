@@ -2,8 +2,8 @@
 ---
 
 
-## 东西方较量
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957220/)
+## 对共产党有利的三个工程
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957248/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

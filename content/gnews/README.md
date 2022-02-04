@@ -15,73 +15,73 @@
 
 ---
 
-### [有声|台湾国民党严正谴责中共外交部](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [磁场](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [人们在死亡（三）](/content/gnews/3/README.md)
+### [北京出大事了冬奥会开幕时间从2.5小时缩减成1小时40](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈“甜蜜蜜运动”的三大回合（2022-02-02摘录）](/content/gnews/4/README.md)
+### [七哥谈无条件的交易支付（2022-02-02摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [老杂毛很无知](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [有声|索罗斯：习近平恐无法连任第三任](/content/gnews/6/README.md)
+### [有声|《灭共的雪》是前无古人的史诗般的音乐](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|丹麦、挪威政府宣布 即刻起取消中共病毒限制措施](/content/gnews/7/README.md)
+### [有声|美国作家警告人类正处在非常危险的时刻](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [中共对黑白很敏感](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [有声|日本知名藥廠與大學聯合研究表明 伊维菌素对感染中共病毒有效](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [塔克·卡尔森：每个人都知道弱者是为了审查，而乔·罗根成功的原因是什么？ 因为他不软弱](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [前纽芬兰总理就强制令对加拿大政府提起诉讼](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [从不是为百姓谋福利](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [毛泽东的风水工程](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [七哥说“这是自杀自残的一个冬奥会”（2022-02-02摘录）](/content/gnews/14/README.md)
+### [七哥谈HPay上市（2022-02-02摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [文·贵天成——文贵先生谈“H-Pay、喜支付”（五）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
+### [有声|台湾国民党严正谴责中共外交部](/content/gnews/6/README.md)
+ ` MOSREC`
 
-### [以色列本周COVID死亡率世界上最高!](/content/gnews/16/README.md)
+### [磁场](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [人们在死亡（三）](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [七哥谈“甜蜜蜜运动”的三大回合（2022-02-02摘录）](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [老杂毛很无知](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|索罗斯：习近平恐无法连任第三任](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [有声|丹麦、挪威政府宣布 即刻起取消中共病毒限制措施](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [中共对黑白很敏感](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|日本知名藥廠與大學聯合研究表明 伊维菌素对感染中共病毒有效](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [魁北克放弃“疫苗税”后，未接种疫苗的护士首次发声主流媒体](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥说中共的冬奥会的政治交换（2022-02-02摘录）](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [斯科特·莫：“是时候考虑结束所有保留的Covid措施和限制了”](/content/gnews/18/README.md)
+### [塔克·卡尔森：每个人都知道弱者是为了审查，而乔·罗根成功的原因是什么？ 因为他不软弱](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [对共产党有利的三个工程](/content/gnews/19/README.md)
+### [前纽芬兰总理就强制令对加拿大政府提起诉讼](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [从不是为百姓谋福利](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [七哥说“珍惜生命！远离中共！”（2022-02-02摘录）](/content/gnews/20/README.md)
+### [毛泽东的风水工程](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥说“这是自杀自残的一个冬奥会”（2022-02-02摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [七哥对国内战友买喜币三个保证](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
+### [文·贵天成——文贵先生谈“H-Pay、喜支付”（五）](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [2/4/2022 文贵直播：中共为何要关闭”冬眠会“开幕式油管直播的评论？](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
+### [以色列本周COVID死亡率世界上最高!](/content/gnews/22/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [东西方较量](/content/gnews/23/README.md)
+### [对共产党有利的三个工程](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
 ### [【玫瑰看新闻】每日快讯2021年2月4日（新西兰时间）](/content/gnews/24/README.md)
