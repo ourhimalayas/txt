@@ -2,24 +2,56 @@
 ---
 
 
-## 相信有勇士有好人
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1953298/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-永远不要看到了懦夫，你就不相信有勇士了。你不要因为别人说了假话， 你就不再相信真话了 。你不能因为他泯灭良心 ，你就泯灭了良心 。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-**【郭先生直播摘要】**** 2022.1.31 ****相信有勇士有好****人**** **
+**George Soros**
+**乔治·索罗斯**
 
-**郭先生：**
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-我还是那句话， 你们不知道七哥听你们说话什么感觉？因为我在这个爆料革命新中国联邦，这五年来就像你们今天听到我唱歌一样，我们看到一个邓丽君女士，一人挑战中共，从头到尾没有放弃过。没有妥协过没有被收买过。这就是我说的，永远不要看到了懦夫，你就不相信有勇士了。你不要因为别人说了假话，你就不再相信真话了，你也不讲真话。你也不相信有些人是泯灭了良心，你不能因为他泯灭良心，你就泯灭了良心。
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-飞飞的老爷的事情，是千万个亿万个中国人的故事。麦克说跟七哥神交那么多年，Harry原来不露脸到今天露脸，到肖仪两次出镜，和文科达芬奇农场， DC农场阿丙，300年的飞飞有被共产党病毒威胁的，全家被威胁的，Harry，是吧？然后又去开着车给人家去送药。文科给多少人送药。你想山姆大叔的直播节目，得到了大陆很多人喜欢，跟那个我们日本的艾瑞克，湿男有一比。 你是文学男说出来有文化、有水平， 慢条斯理整得大家老紧张。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-就是我们阿丙，还有文科达芬奇农场，DC农场是另外一个形象代表。 人生还有很多事情，好人不都一样，不都长雷锋那样才是好人，而且上天的佛祖，和万福万神不都长的耶稣和菩萨佛祖的样。我相信我们不知道的很多，我们今天爆料革命走到今天的时候，兄弟姐妹们，我们最快乐的今天，你看到了什么？就是大家的真实，大家这种兴奋。我们小时候过年那种兴奋，买炮仗、压岁钱，吃饺子马上要吃年夜饭。
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
-在那种时候我们有的后来就越来越没有了，现在中国共产党就开始比爹了比娘了。请客送礼了。刚才我们那个文喜，在我们英喜农场那个文喜过来， 他两口子在国内搞小企业，一到过年这小企业主害怕了。要账的、要工资的，共产党敲诈的，税务局的全来了。就是你越长你过年越害怕，你过年越来越不快乐。
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
 
-视频剪辑：北方信使 | 听写：烟波浩淼 | 翻译：精糧 |校对：Polaris | 视频制作+字幕：小腾腾说 | 编辑&发布：断播
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
+
+that has had disastrous consequences
+这带来了灾难性的后果
+
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
+
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

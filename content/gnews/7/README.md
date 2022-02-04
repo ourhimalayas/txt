@@ -2,55 +2,27 @@
 ---
 
 
-## 特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953352/)
+## 停止冬奥会，把CCP踢出WTO和SWIFT （三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953382/)
 
-[https://gtv.org/video/id=61fbeff7d90bdd2085a479e3](https://gtv.org/video/id=61fbeff7d90bdd2085a479e3)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-And I apologize that the Minister is misleading Canadians
-我很抱歉总理误导了加拿大人
+这一刻不是说这么简单的，现在能对新中国联邦说：“Miles，你们就是来自我们想要的中国人。我们最担心的就是没有像你们这样的中国人。现在我们看到你们，每天都看到你们在行动，你就是我们想要的新中国人。”
 
-I do get very defensive of Canadians who are outside today patriotic, peace loving Canadians
-我确实非常支持今天在外面的爱国、热爱和平的加拿大人
+天时地利人和，从冬奥会，从病毒从疫苗，从数字化人民币，从习太阳、习宗教、习大神，还有共产党他们喜欢称呼的习爸爸、习大大、彭妈妈，以及所有房地产的倒闭，香港整个沦陷，新疆的大屠杀，对台湾的威胁，对俄罗斯的这种所谓的勾结，无一条不是驶向一个方向：人类必须消灭共产党。
 
-who are called misogynist and racist by the Prime Minister
-那些被总理称为厌恶女性的人和种族主义者
+所以抵制冬奥是里程碑的胜利，是谁承受天意，是谁祸国殃民，是谁在危害世界，是谁意图霸占世界，是谁在给世界带来未来的和平? 我们在前面用事实说了话。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/停止冬奥会，把CCP踢出WTO和SWIFT（三）-.jpg)
+2021年12月10日文贵大直播
 
-So again, I will ask the prime minister
-所以再一次，我会问总理
-
-who may I remind this house wore blackface on more times than he can remember
-让我来提醒一下大家他诋毁民众的次数比他能记得的还要多
-
-Apologize to the peace loving, patriotic Canadians who are outside right now
-向现在在外面的热爱和平、爱国的加拿大人道歉吧
-
-Just asking to be heard
-人们只是要求被听到
-
-will he speak to
-他会和他们对话吗？
-
-**原视频链接**:[https://twitter.com/newsmax/status/1488634801078865922?s=24](https://twitter.com/newsmax/status/1488634801078865922?s=24)
-
-Date:02/02/2022
-原视频标题: Trudeau called out over blackface after labelling truckers ‘racist’
-特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来
-原视频日期：2022/02/02
-原视频链接:https://twitter.com/newsmax/status/1488634801078865922?s=24
-任务编号：KE379(3650)
-视频时间段 : 0:00-0:34
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

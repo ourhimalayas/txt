@@ -2,56 +2,26 @@
 ---
 
 
-## 乔治·索罗斯批评习近平的治国理念
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
+## 加拿大保守党领袖奥图尔被迫辞职
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1953335/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
-[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
+#### 加拿大温哥华扬帆农场 枫叶快讯
 
-**George Soros**
-**乔治·索罗斯**
+采编：优酷
 
-Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
-习近平竭尽全力摧毁邓小平的功绩
+编译撰稿：苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E7755CFE-CE4A-49CC-975D-1B9D68F68F5F_1_201_a.jpeg)图片来源：thepostmillennial
+据加拿大媒体【后千禧年】2月2日报道，保守党领袖奥图尔当天已被该党核心小组成员以73比45的投票结果弹劾，而痛失其党魁职责。
 
-He brought private companies established under Deng under the control of the CCP
-他将在邓小平时期创建的民营企业置于中共的控制之下
+报道称，本次弹劾投票是在此前35名保守党国会议员，联名要求该党核心小组对奥图尔领导层进行审查后进行的。由于目前奥图尔已辞职，因此当天晚些时候将选出一名临时领导人。
 
-and undermined the dynamism that used to characterize them
-并破坏了过去使其具有活力的机制
+有保守党议员在投票后发表声明称，该党必须向全国展示其强大而稳定的领导人，以重获加拿大人的信任。据悉，奥图尔的本次被弹劾与其长期支持特鲁多自由党政府的疫苗政策和对遏制中共势力在加拿大的不断扩张毫无作为有关。
 
-rather than letting private enterprise blossom
-而不是让民营企业百花齐放
+校对编辑：硫酸羟氯喹64
 
-Xi Jinping introduced his own China dream
-习近平提出了自己的“中国梦”
+发稿：青青
 
-As can be summed up in two words: “total control”
-可以用两个词概括就是：全面控制
-
-that has had disastrous consequences
-这带来了灾难性的后果
-
-**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
-
-Date:02/02/2022
-原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
-乔治·索罗斯批评习近平的治国理念
-原视频日期：2022/02/02
-原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
-任务编号：3651
-视频时间段 : 0:00-0:38
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文链接： [BREAKING: Erin O’Toole forced out as Conservative leader | The Post Millennial](https://thepostmillennial.com/breaking-erin-otoole-forced-out-as-conservative-leader)
 
  
 
