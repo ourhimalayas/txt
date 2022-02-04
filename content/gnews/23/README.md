@@ -2,30 +2,26 @@
 ---
 
 
-## 联合国拒绝在冬奥会前公布新疆人权报告
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1953802/)
+## 佩洛西警告美国运动员奥运期间不要激怒中共政府
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953884/)
 
-![资料照：联合国人权事务高级专员巴切莱特](https://gdb.voanews.com/A9C1608D-0CCE-4EE9-884B-5CDA0A528F9D_cx0_cy9_cw98_w1023_r1_s.jpg)资料照：联合国人权事务高级专员巴切莱特
-据美国之音2月4日报道，北京冬奥会即将开幕，联合国人权高专办（OHCHR）拒绝在冬奥会开幕前公布一份已经耗费3年时间准备的有关新疆的人权报告，此举被联合国人权高专办前雇员艾玛·莱莉称为与中共国政府“唱双簧”。莱莉曾经作为“吹哨人”揭露联合国人权高专办向中共国政府提供到联合国人权理事会活动的中共国异议人士名单丑闻而遭联合国开除。
+#### 撰稿：彩虹
 
-人权团体指责中共当局在新疆严重侵犯维吾尔族以及其他少数民族的人权，包括大规模绝育计划以及强迫劳动。美国政府及其盟友指责北京当局犯下“种族灭绝”和“反人类”罪，宣布外交抵制北京冬奥会。联合国人权事务高级专员巴切莱特希望访问新疆，据说中共政府已经同意北京冬奥会结束后接待巴切莱特访问新疆，但是“友好”性质的访问，而不是有罪推断的调查。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.jpg)图片来源：纽约邮报
+2月3日，《国会山报》引述《路透社》报道，周四，众议院议长南希·佩洛西（Nancy Pelosi）警告参加北京冬奥会的美国运动员，不要冒险激怒“残酷无情”的中共政府
 
-西方强调人权，但是全球人权危机一直层出不穷。即使对于联合国，捍卫人权也越来越变成一句口号。新疆的种族灭绝最早由新中国联邦的郭文贵先生向西方揭露了这一切，但是中共国居然在2021年当选为联合国人权理事会成员。犯有种族灭绝和反人类罪的中共黑帮组织摇身一变成了捍卫人权的斗士，真是滑天下之大稽。联合国是不是要给中共国颁发提供素材奖呢？以表彰中共国的人权危机让联合国不至于无所事事，可以时不时的出来走两步，为人权喊两声？
+在美国国会及行政当局中国委员会 (Congressional-Executive Commission on China)的听证会上，佩洛西说，美国有“紧迫的道德责任来照亮” 中共的人权侵犯行为，包括对新疆维吾尔少数民族的侵犯行为。
 
-新闻参考链接：[https://www.voachinese.com/a/un-and-china-accused-of-fabricating-mutually-convenient-stalemate-over-xinjiang-human-rights-20220203/6425277.html](https://www.voachinese.com/a/un-and-china-accused-of-fabricating-mutually-convenient-stalemate-over-xinjiang-human-rights-20220203/6425277.html)
+她说：“现在，国际奥委会在企业赞助商的帮助下，再次对2022年冬奥会视而不见，只是为了给中共涂脂抹粉。如果我们因为商业利益而不对中共的侵犯人权行为发表意见，我们就会失去对任何地方的侵犯人权行为发表意见的所有道德权威。”
 
-编辑：胖丁
+但是，佩洛西敦促运动员们专注于比赛，而不是（对中共侵犯人权行为）发表意见。她说：“不要冒险招致中（共）国政府的愤怒，因为他们是残酷无情的。”
 
-* * *
+另据路透社报道，周一，立法者们告诉美国奥运官员，如果美国运动员选择公开反对中共国的侵犯人权行为，他们要准备保护美国运动员免遭中共国的报复。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**新闻来源**
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[Pelosi warns US athletes against angering ‘ruthless’ Chinese government during Olympics](https://thehill.com/homenews/house/592768-pelosi-warns-us-athletes-against-angering-ruthless-chinese-government-during)
 
  
 

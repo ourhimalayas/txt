@@ -15,92 +15,92 @@
 
 ---
 
-### [俄罗斯计划发布虚假视频为入侵乌克兰制造借口](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [国际记者联盟报告：中共国控制外国驻华记者](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [太阳系就是一个人理论](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [Hpay上线的重大意义](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [这两天世界有大动静](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [Meta下跌25%市值蒸发逾2300亿美元，市值损失创美国市场有史以来最大](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [2.2大直播后记：新中国联邦的伟大](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [俄罗斯来哈的意义 昆仑山对七哥家的意义](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [竹叶——七哥金句（五）](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [无人机制造商大疆隐瞒了与中共国国家资金的关系](/content/gnews/9/README.md)
+### [美国称俄罗斯计划伪造乌克兰入侵俄视频](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [哈萨克斯坦的位置王毅四处挑拨](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [竹叶——七哥金句（四）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [竹叶——七哥金句（三）](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [竹叶——七哥金句（二）](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [竹叶——七哥金句（一）](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [重塑人格，尊重人性（一）](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [如果中共在北京冬奥会上抓捕，国际奥委会将被视为同谋](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国使用多种强制手段控制外国驻华记者的报道](/content/gnews/18/README.md)
+### [美参议员提出法律上禁止美国和中共国的任何联合军事行动](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CCP病毒疫苗或导致一种新型获得性免疫缺陷综合症](/content/gnews/19/README.md)
+### [中共对西方的间谍渗透规模令FBI局长雷震惊](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄罗斯计划发布虚假视频为入侵乌克兰制造借口](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [太阳系就是一个人理论](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [Hpay上线的重大意义](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [这两天世界有大动静](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [Meta下跌25%市值蒸发逾2300亿美元，市值损失创美国市场有史以来最大](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
+
+### [2.2大直播后记：新中国联邦的伟大](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [俄罗斯来哈的意义 昆仑山对七哥家的意义](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [竹叶——七哥金句（五）](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [无人机制造商大疆隐瞒了与中共国国家资金的关系](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [哈萨克斯坦的位置王毅四处挑拨](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [竹叶——七哥金句（四）](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [竹叶——七哥金句（三）](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [竹叶——七哥金句（二）](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [竹叶——七哥金句（一）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [如果中共在北京冬奥会上抓捕，国际奥委会将被视为同谋](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国使用多种强制手段控制外国驻华记者的报道](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [CCP病毒疫苗或导致一种新型获得性免疫缺陷综合症](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [佩洛西警告美国运动员奥运期间不要激怒中共政府](/content/gnews/20/README.md)
+### [佩洛西警告美国运动员奥运期间不要激怒中共政府](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：日本就人阿布-易卜拉欣-哈希米的死亡表态](/content/gnews/21/README.md)
+### [秘翻在线：日本就人阿布-易卜拉欣-哈希米的死亡表态](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：政治高手普京大秀“俄中亲密关系”](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [联合国拒绝在冬奥会前公布新疆人权报告](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [主观视角：压迫与奥运](/content/gnews/24/README.md)
+### [主观视角：压迫与奥运](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共又一次谎言！杭州疫情源头是“进口咖啡机芯”？](/content/gnews/25/README.md)
+### [中共又一次谎言！杭州疫情源头是“进口咖啡机芯”？](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [腹肌强化训练](/content/gnews/26/README.md)
+### [腹肌强化训练](/content/gnews/27/README.md)
  ` 纽约香草山MOS03`
 
-### [只有打开甜蜜蜜运动这把钥匙才能一起合作消灭CCP](/content/gnews/27/README.md)
+### [只有打开甜蜜蜜运动这把钥匙才能一起合作消灭CCP](/content/gnews/28/README.md)
  ` mary202064`
 
-### [台湾农场完成第一笔用喜币购买机车的交易](/content/gnews/28/README.md)
+### [台湾农场完成第一笔用喜币购买机车的交易](/content/gnews/29/README.md)
  ` NFSC News`
-
-### [文贵先生2月3日初三盖特直播要点（2022年2月3日）](/content/gnews/29/README.md)
- ` 波士顿五月花农场`
 
 ### [喜支付完成台湾地区第一笔交易](/content/gnews/30/README.md)
  ` NFSC News`

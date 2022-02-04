@@ -2,26 +2,32 @@
 ---
 
 
-## 佩洛西警告美国运动员奥运期间不要激怒中共政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953884/)
+## 如果中共在北京冬奥会上抓捕，国际奥委会将被视为同谋
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953924/)
 
-#### 撰稿：彩虹
+#### 撰稿：彩虹       
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.jpg)图片来源：纽约邮报
-2月3日，《国会山报》引述《路透社》报道，周四，众议院议长南希·佩洛西（Nancy Pelosi）警告参加北京冬奥会的美国运动员，不要冒险激怒“残酷无情”的中共政府
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-260.png)图片来源：福布斯
+2月3日，《新闻极限》引述《福克斯新闻》的报道，周四，来自威斯康星州的众议员迈克·加拉格尔（Mike Gallagher）提出立法，如果中共在2022年北京冬奥会上抓捕任何运动员、球迷或记者，他们将对国际奥委会（Inter national Olympic Committeee）进行制裁。
 
-在美国国会及行政当局中国委员会 (Congressional-Executive Commission on China)的听证会上，佩洛西说，美国有“紧迫的道德责任来照亮” 中共的人权侵犯行为，包括对新疆维吾尔少数民族的侵犯行为。
+该法案得到了少数党领袖凯文·麦卡锡（Keven McCarthy）的支持，强调如果在周五开始的奥运会期间发生任何“严重侵犯国际公认的人权”行为，将对国际奥委会产生严重影响。
 
-她说：“现在，国际奥委会在企业赞助商的帮助下，再次对2022年冬奥会视而不见，只是为了给中共涂脂抹粉。如果我们因为商业利益而不对中共的侵犯人权行为发表意见，我们就会失去对任何地方的侵犯人权行为发表意见的所有道德权威。”
+加拉格尔告诉福克斯新闻说：“世界各地勇敢的运动员正计划抵制明天的开幕式，以抗议中共在新疆正在进行的种族屠杀。但国际奥委会不但不支持这些运动员的言论自由，反而努力劝阻他们揭露中共对人权的严重侵犯。”
 
-但是，佩洛西敦促运动员们专注于比赛，而不是（对中共侵犯人权行为）发表意见。她说：“不要冒险招致中（共）国政府的愤怒，因为他们是残酷无情的。”
+加拉格尔指出，“如果在奥运会上有任何运动员或球迷因为行使国际公认的权利而付出代价，国际奥委会应该被视为这些罪行的同谋。”
 
-另据路透社报道，周一，立法者们告诉美国奥运官员，如果美国运动员选择公开反对中共国的侵犯人权行为，他们要准备保护美国运动员免遭中共国的报复。
+文章说，该法案引用了1961年《对外援助法》（Foreign Assistance Act），其中规定“‘严重侵犯国际公认的人权’是指未经指控或审判的长期拘留、通过绑架或秘密拘留使个人失踪、或不人道和有辱人格的待遇。”
+
+文章特别指出，在一月份的新闻发布会上，北京奥组委对外联络部副部长杨舒说，运动员可能会因为声称中共侵犯人权而面临惩罚。
+
+杨舒当时警告说：“任何违反奥林匹克精神的行为或言论，特别是违反中国法律和法规的行为或言论，也会受到一定的惩罚。”
 
 **新闻来源**
 
-[Pelosi warns US athletes against angering ‘ruthless’ Chinese government during Olympics](https://thehill.com/homenews/house/592768-pelosi-warns-us-athletes-against-angering-ruthless-chinese-government-during)
+[Republicans Pledge to Sanction Olympics if Any US Athletes Disappea](https://www.newsmax.com/politics/olympics-china-human-rights-sports/2022/02/03/id/1055434/)
+
+
 
  
 

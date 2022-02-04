@@ -2,33 +2,19 @@
 ---
 
 
-## 竹叶——七哥金句（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953980/)
+## 哈萨克斯坦的位置王毅四处挑拨
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953998/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-七哥从爆料革命到今天恪守的三件唯真不破的事。
+*发布：陶子*
 
-爆料革命新中国联邦，唯真不破。
-
-爆料革命到今天，我从来不背后说任何战友的坏话，我只要当面说，我背后也说创业背后是当面，说一定是一样的。
-
-第二，我不传话
-
-第三，我绝不看这个战友的优点，我一定看他的缺点，我能不能承受。
-
-就因为我们能接纳不同，就因为能把不同的战友放在心胸里，你有才能有你的未来。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句-1.jpg)
-2021年12月10日文贵大直播
-
-*发布：tianzhihuan*
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
