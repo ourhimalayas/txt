@@ -2,41 +2,28 @@
 ---
 
 
-## CCP病毒疫苗或导致一种新型获得性免疫缺陷综合症
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1953888/)
+## 竹叶——七哥金句（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953989/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2022/02/403.jpg)图片制作：澳喜农场©森森
-Peter Mccullough博士和其他知名科学家进行的一项新的科学研究得出结论，Covid-19疫苗损害了获得性免疫系统。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-这项题为 “SARS-CoV-2 mRNA疫苗的先天免疫抑制：G-四联体(G-quadruplexes)、外泌体 (exsomes)和microRNA的作用 “的研究发表于2022年1月21日。文章提供了一系列证据，表明Covid-19 mRNA疫苗进入身体引起的基因变化对人类健康有多种影响，特别是受损的DNA修复和适应性免疫损伤。
+音乐是什么？音乐是自由。
 
-我们都知道免疫系统和DNA修复系统是高等生物防御各种威胁所依赖的两个主要系统。如果同时受损，对于人的身体意味着什么，可想而知。同时作者还指出：接种 Covid-19 mRNA 对外泌体进行的细胞通讯可造成损害，同时mRNA疫苗接种会诱导细胞摄取mRNA后并产生大量携带刺突蛋白的外泌体，这可能会导致严重的炎症。
+音乐是浪漫。 音乐是情感和自然之间唯一的没被解码的一种沟通的最好的方式。 音乐是男女之间最美好的桥梁。
 
-作者指出通过Covid 疫苗产生的副作用如下，但并不仅限于此：
+音乐是达到让你精神上的最高自由的境界，可以让你精神上达到高潮和天、地和神之间的沟通和不能和你有共同语言的动物和植物，石头、山川、河流之间沟通的唯一的方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-1-2.jpg)
+2021年12月10日文贵大直播
 
-- 与神经退化性疾病有潜在的直接因果关系
-- 心肌炎。
-- 免疫血小板减少症。
-- 胆囊炎。
-- 肝疾病。
-- 适应性免疫力的损伤。
-- 加强肿瘤的生长和形成。
-- 和DNA-损伤
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-这篇文章同时支持了“The Expose” 在最近几个月发表的证据，即那些完全接种疫苗的人发展出了一种由Covid 19疫苗引发的新型获得性免疫缺陷综合症。
-
-另外在VAERS的31年历史中，共报告了9153例与疫苗相关的死亡，其中7114例（78%）与COVID-19疫苗有关。
-
-最后，McCullough, Kyriakopoulos、Nigh和Sennef在其研究中的结论性陈述如下：“我们毫不夸张地说，数十亿人的生命处于危险之中。我们呼吁公共卫生机构用证据证明本文所讨论的问题为什么与公共卫生无关，或者承认它们与公共卫生有关并采取相应的行动。”
-
-参考文献：
-
-[https://telegra.ph/Neue-Studie-zeigt-dass-die-Covid-19-Impfstoffe-eine-neue-Form-des-erworbenen-Immunschw%C3%A4chesyndroms-verursachen-01-30](https://telegra.ph/Neue-Studie-zeigt-dass-die-Covid-19-Impfstoffe-eine-neue-Form-des-erworbenen-Immunschw%C3%A4chesyndroms-verursachen-01-30)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

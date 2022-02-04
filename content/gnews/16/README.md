@@ -2,8 +2,8 @@
 ---
 
 
-## 俄罗斯来哈的意义 昆仑山对七哥家的意义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954013/)
+## 这两天世界有大动静
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954036/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
