@@ -2,30 +2,54 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1956605/)
+## 美国谋杀率飙升至创纪录水平 原因是人为造成的社会崩溃
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956693/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+编译： Jenny Ball
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Dead-Corpse-Toe-Tag.jpg)图片来源：naturalnews.com（Ethan Huff ）
 
-视频参看：
-[2022.02.04早 《NFSC新闻》](https://gtv.org/video/id=61fd2a0d96ba5d73e0c2af16)
-[2022.02.04早 G|TV《新闻访谈》](https://gtv.org/video/id=61fd335e96ba5d73e0c2bf76)
+自然新闻 – 官方数据出来了，显示美国的谋杀率目前是25年来的最高水平。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+数据显示，去年在美国有近 2 万人因他人故意和恶意结束他们的生命而丧生。上一次情况如此糟糕是在 1996 年及之前，那时被认为是暴力犯罪严重的时期。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+武汉冠状病毒 (Covid-19) 的流行，显然导致该国的谋杀率急剧上升，因为此前总体上一直在下降。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+FBI现在估计，谋杀率已达到每 10 万人 6.9 起，与 1996 年记录的每 10 万人 7.4 起谋杀案相比仅低了一点点。
+
+在 90 年代犯罪高峰期间担任纽约警察局局长的霍华德·萨菲尔（Howard Safir）前几天告诉福克斯新闻，他认为媒体也是罪魁祸首，他们在乔治·弗洛伊德（George Floyd）之后助长了反警察情绪。
+
+萨菲尔补充说：“如果继续大量犯罪，而警察继续没有政治家和公众的支持，那么他们就不会像我担任专员时那样做他们的工作。”
+
+**Covid****协议正在杀死人，而不是挽救他们的生命**
+
+对当前情况更有可能的解释是暴政造成了突然飙升，包括强制要求戴口罩、强制接种“疫苗”、封锁和其他极权主义、反社会的强制措施，这些强制措施毁了许多人的生活。
+
+一个社会只能承受如此多的打击，而在流行病爆发时，就开始的谋杀案激增说明了这一点。该国目前发生的谋杀案最多的地区——包括芝加哥和洛杉矶等大城市——也是实施最严格和最具压迫性的“公共安全”措施的地区。
+
+“洛杉矶的谋杀案达到了 15 年来的最高水平，达到 397 起，纽约警察局报告称，2021 年有 488 起谋杀案，自 2018 年以来每年增加近 200 起。”
+
+像《纽约时报》这样的左翼媒体，当然正在试图通过声称谋杀案“不成比例地”发生——“唤醒”的暴徒喜欢这个词——发生在少数族裔居住的地区，**从而将这种谋杀激增政治化，这在某种程度上证明了警察是种族主义者。**
+
+“枪击事件历来集中在贫困的少数族裔社区，”德国人洛佩兹为《纽约时报》写道。 “大多数凶杀案受害者是黑人。到 2020 年，美国黑人成为谋杀受害者的可能性是白人的 8 倍。”
+
+洛佩兹没有告诉他的读者的是，**大多数谋杀犯也是黑人，这意味着黑人正在以不成比例的速度杀害其他黑人（他们为什么从来不告诉任何人？）。**
+
+然而，洛佩兹承认，许多专家都同意，流行病在很大程度上助长了过去几年增加的暴力。
+
+“有助于减少犯罪的社会服务和支持在一夜之间消失了，”洛佩兹指出。
+
+“学校不能再让不守规矩的青少年安全和分心，更广泛的困惑和混乱感，可能助长了所谓的道德限度，人们无视法律和规范。”
+
+**参考资料：**[naturalnews][Murder rates across U.S. soared in 2021 to record levels amid engineered collapse of society](https://www.naturalnews.com/2022-02-03-murders-soared-record-2021-engineered-collapse.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 
