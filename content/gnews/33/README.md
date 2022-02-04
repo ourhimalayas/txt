@@ -2,44 +2,36 @@
 ---
 
 
-## 多少愤恨在心中,唯有战友能懂——郭文贵先生版一帘幽梦
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1953682/)
+## 日本7-Eleven公司测试免触摸全息自助收银机
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1950270/)
 
-在2022年中国虎年春节联合晚会当晚，著名的中国异议人士郭文贵先生在美国与中国中央电视台打擂台，现场演唱了由邓丽君女士演唱的《一帘幽梦》和《甜蜜蜜》，既是致敬邓丽君女士，更表达了郭文贵先生完成邓丽君女士心愿，消灭中国共产党的强烈决心。
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip18日本7-Eleven公司测试免触摸全息自助收银机.png)图片来源：nextshark.com
+日本最近在东京的六家7-Eleven商店引入了免触式全息自助收银机。
 
-在正式演唱前，现场专门播放了邓丽君女士1989年11月24日在日本《悲伤之自由》演唱会上演唱《一帘幽梦》前对于个人、国家和自由民主的肺腑之言。当时邓丽君的演唱会时值中共制造的“八九六四”血案之后，邓丽君女士表达了对中国未来的深深担忧，也表达了对 “八九六四”惨案的痛心，以及对与民主自由的无限渴求。今日重温邓丽君的真情告白，仍令人对当时的惨案非常痛心，又对这位有着自由民主追求的明星心生深深的敬意。
+这种全息界面被称为Digi POS（销售点），当购物者直接面对自助收银机并扫描他们想要购买的物品时，会投射出一个漂浮在空中的触摸屏图像。
 
-对于选择《一帘幽梦》这首歌，郭文贵先生表示，《一帘幽梦》是我们几代人一起唱的歌，像《甜蜜蜜》一样。但是当听到邓丽君女士那一段独白的时候，觉得这才是精彩，这才是浪漫，她让我们知道我们活着的价值和意义。邓丽君没有去过大陆，但她作为一个台湾人，台湾同胞，中国同胞，一直在为我们的同胞，民主、自由奋斗，她从来没放弃过。我们会完成她想追求的，消灭共产党，让中国人有法治、自由、民主。
+据[SoraNews24](https://soranews24.com/2022/01/30/floating-hologram-registers-coming-to-japanese-convenience-stores%25E3%2580%2590video%25E3%2580%2591/)报道，Digi POS由六家不同的公司开发，包括 7-Eleven Japan 、Toshiba Tec 、Asukanet Development 、Kanda Kogyo Development 、Mitsui Chemicals Development，以及Mitsui Bussan Plastic。周三（2日）开始，Digi POS在东京的6家7-Eleven商店正式试运行。
 
-郭文贵版《一帘幽梦》歌词：
+全息收银机只接受电子货币钱包、信用卡和二维码等无现金支付方式。据[lowyat.net](https://www.lowyat.net/2022/264706/7-eleven-japan-introduces-holographic-touch-screens-to-its-stores/)报道，它也仅限于店内产品，不包括烟、酒、明信片和邮票等物品，以及快递送货、水电费支付、现金券和账户充值等服务。
 
-为何我要灭共，是谁带来苦痛，
+简评：
 
-多少愤恨在心中，唯有战友能懂，
+最早看到这类科技来自西雅图的 Amazon Go 无人超市试点，宗旨在于让顾客购物更加快速便捷，节省了在疫情期间排队结算的时间，更降低了感染病毒的风险。
 
-它毁香港圣城，犯下罪孽深重，
+值得一提的是，这或意味着对人的监控手段更加的严重。另外，G系列的 Hpay 打破了政府、银行对私人企业主与顾客的要求、监控，实现了完全的交易自由（自己当家作主）。
 
-欲占台湾大一统，必是黄粱一梦，
+**新闻来源**：[nextshark.com] [7-Eleven Japan testing out touch-free holographic self-checkouts](https://nextshark.com/holographic-touch-screen-self-checkout-registers-7-eleven/) |发布时间：2022年02月02日｜
 
-谁愿生死与共，打破千年的牢笼，
+* * *
 
-中华儿女多英雄，今朝盘古必相逢。
+***审核：文乐
+校对：小东
+发布：信心满满***
 
-为何我要灭共，是谁带来苦痛，
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
-多少愤恨在心中，唯有战友能懂，
 
-它毁香港圣城，犯下罪孽深重，
-
-欲占台湾大一统，终是黄粱一梦，
-
-谁与七哥灭共，打破千年的牢笼，
-
-中华儿女多英雄，今朝盘古必相逢。
-
-作者：华盛顿DC农场 海阔天空
-
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
 
  
 

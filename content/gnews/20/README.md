@@ -2,26 +2,56 @@
 ---
 
 
-## 秘翻在线：政治高手普京大秀“俄中亲密关系”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953813/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-**撰稿：Ping**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-132534.jpg)
-中共大外宣2月3日报道， 俄罗斯联邦总统普京通过新华社发表题为《俄罗斯和中国：着眼于未来的战略伙伴》的署名文章。在国内外引起强烈反响！
+**George Soros**
+**乔治·索罗斯**
 
-作为资深政治玩家的普京，不遗余力地肯定了俄中两国的亲密关系，夸赞了中共最高领导习近平的个人完美形象，并使用了十分符合习太阳口味的外交辞令，凸显了一代政治大家的智慧。
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-其一，普京总统，从地理位置上强调了两国邦交的历史由来已久，并庆祝《睦邻友好合作条约》签署20周年，也从发展经贸合作方面秀两国亲密关系，强调两国拥有丰富的财政、生产、技术和人力资源，可以共同发展。另外，普京还强调2019年签署的《俄罗斯政府和中国政府关于结算和支付的协议》成为里程碑，以及巨额的能源订单，从侧面肯定了中共用大撒币和人民币国际化的方式，绕开美国制裁和美元支付，的确维护了两国“友谊”。普京不愧是真正的政治玩家高手，习近平喜欢什么就说什么，只要给钱就可以。
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-其次，普京总统，又从科技交流，卫星发射，铁路交通等方面，阐述了与中共国密不可分的关系，并支持两国的“联盟”战略。这些观点都貌似迎合了习太阳决策的正确性。政治高手拍马屁的手段绝对属于骨灰级别的，不得不佩服普京的智慧。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-最后，普京总统，还谈到两国的悠久人文与历史文化交情匪浅，并强调将和中国国家主席习近平决定在2022年和2023年举办“俄中体育交流年”。借着冬奥会开幕前夕，谴责一些国家抵制北京冬奥会，违背了《奥林匹克宪章》的精神和原则，以此帮助弥补习太阳在此次冬奥会丢失的面子，可谓是关键时刻简单几句话就起到一两拨千斤的作用，让习太阳有了面子，普京大帝得到了实惠，真是你情我愿的好买卖！
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
-总之，看国家之间的邦交关系，永远都不要相信政治家说了什么。在政治和金钱利益方面，没有永远的朋友，也没有永远的敌人。面对普京如此逢迎的讲话，并不能代表俄罗斯会与中共生死与共，只不过是政治作秀罢了！
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
 
-**[新闻来源](http://cpc.people.com.cn/n1/2022/0204/c64387-32345263.html)**
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
+
+that has had disastrous consequences
+这带来了灾难性的后果
+
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
+
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
