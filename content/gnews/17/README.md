@@ -2,39 +2,35 @@
 ---
 
 
-## 有声|封锁与疫苗被证实无效 政府应向民众致歉
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955115/)
+## 美军突袭叙利亚 伊斯兰国领导人自爆身亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955164/)
 
-配音：香草山佛教部 – 李傻
+#### 【雅典娜快讯】，紧贴时代脉搏
+
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据多家媒体消息显示，约翰-霍普金斯大学近期发布的一项研究结果表明，在2020年春季的第一波中共病毒大流行期间，严格的封锁措施仅仅将欧美等国家的中共病毒死亡率降低了0.2%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9.jpeg)
-据悉，此项研究涉及的项目包括学校停课、企业倒闭和强制戴口罩等封锁措施。而相关研究的结果指出，封锁对于公共卫生而言几乎没有任何用处，但这些封锁措施却给各国带来了巨大的经济和社会成本。
+根据德国之声中文网报道：美国表示美军部队2月3日突袭极端组织伊斯兰国组织（ISIS）在叙利亚的藏身处，该组织的领导人与他的家人一起引爆炸弹自杀身亡。这次行动造成至少13人丧命，包括6名孩童与4名妇女。
 
-当天，约翰-霍普金斯大学的顶级医学博士麦克利也其社交媒体上表示，越来越多的研究证明，在中共病毒大流行期间，自然免疫比中共病毒疫苗更加有效且持久。麦克利博士强调，政府目前推行的疫苗强制令完全不尊重临床数据研究，实际上，拥有自然免疫力的民众不应该被强制要求接种中共病毒疫苗。
+美国总统拜登3日发表简短声明，宣布美军此次反恐行动和伊斯兰国首脑库莱希（Abu Ibrahim al-Hashimi al-Qurayshi）丧生的消息。美国官员称这是对这个极端组织的重大打击。
 
-对此，评论人士则表示，民众不但应该拒绝政府将强制封锁作为应对中共病毒大流行的工具与措施，那些因拒绝接种中共病毒疫苗而被解雇的工人更应该被恢复工作，且政府与企业主应该向他们道歉。
+ISIS上个月才袭击了叙利亚东北部的一座监狱，里面至少有3000人遭到伊斯兰国组织拘留。
 
-文字版原文：[封锁与疫苗被证实无效 政府应向民众致歉](https://gnews.org/zh-hans/1951798/)
+美国反恐目标与韧性研究所（American Counterterrorism Targeting and Resilience Institute）主任沙伊科维奇（Ardian Shajkovci）指出，比起投降，自杀结束生命对伊斯兰国追随者而言是勇敢的表现，这有助于伊斯兰国作进一步的宣传。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+参考链接[https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873](https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*发布：tianzhihuan*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

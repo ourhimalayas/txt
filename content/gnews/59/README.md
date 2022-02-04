@@ -2,32 +2,75 @@
 ---
 
 
-## 伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1945904/)
+## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown.jpg)伊斯兰团体抵制北京冬奥 拆穿中共官媒谎言 网络图片
-据台湾中央广播电台2月1日报道，非政府组织全球伊玛目理事会去年12月30日宣布，鉴于中共国政府继续以迫害、折磨、独裁专政等手段违反中共国穆斯林的基本人权，因而“禁止参加及出席2022中共国北京冬季奥运会”。中共官媒“环球时报”1月28日发文，声称全球伊玛目理事会获得了世界维吾尔大会的资助和欺骗。
+[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
 
-2月1日全球伊玛目理事会再度发布声明，驳斥“环球时报是谎言”，强调与世界维吾尔代表大会团结一致。所谓穆斯林领袖否认支持禁止参加北京冬奥声明，“也是谎言”。
+**Steve Bannon
+史蒂夫·班农**
 
-中共在新疆持续犯下种族灭绝和反人类罪。在国际压力下，中国通过外交途径，甚至运用自己控制的媒体编造、散布谎言，企图误导国际社会、分化伊斯兰世界，让外界误以为伊斯兰世界支持北京冬奥会，没有抵制。
+the vaccine things have been rejected by every court
+每个法院都拒绝了疫苗的事情
 
-这些手段是中共能生存下来的基本技能。如果不说谎话，中共一天都活不下去。全球越来越看清中共的本质，抵制北京冬奥会只是开始，会有越来越多针对中共的新举措。中共是人类的公敌，中共全球输出病毒和疫苗，所有人都成了中共的受害者。早早晚晚，世界会来清算中共的罪孽。北京冬奥会是中共灭亡之前的最后一场表演赛。
+every major court in the country, rejected out
+全国各大法院，都被拒之门外
 
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2123644](https://cn.rti.org.tw/news/view/id/2123644)
+Now you’re a butcher, now we says six is always 60 to 90 days was
+现在你是个屠夫，现在我们说是60到90天
+
+guess what? they’re not going to do on next Tuesday on February 1st in Austria
+你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
+
+The mandatory vaccines is kind of getting wobbly
+强制性疫苗规定有点摇摇欲坠
+
+now people now that unvaccinated can come out of the house
+现在，未接种疫苗的人可以走出家门
+
+We’re about to see if they still gotta pay the penalty
+我们要看看他们是否还要支付罚款
+
+In England’s off, in Denmark’s off, it’s gonna be off others
+在英格兰取消了，在丹麦取消了，其他地方取消了
+
+Sweden just announced yesterday, Guess what?
+瑞典昨天刚刚宣布，你猜怎样？
+
+The research and the data and the science shows
+研究、数据和科学表明
+
+that children, you know 5-12 kids don’t have to get the vaccine
+你知道5-12岁的孩子们不必接种疫苗
+
+because the dangers of it outweigh the benefits
+因为它的危害大于好处
+
+the dangers of it outweigh the benefits
+它的危害大于好处
+
+suck on that Tony Fauci
+想想吧托尼·福奇
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:01/30/2022
+原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
+史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+原视频日期：2022/01/30
+原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
+任务编号：KE377（3637）
+视频时间段 : 0:00-0:45
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

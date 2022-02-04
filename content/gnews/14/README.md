@@ -2,31 +2,35 @@
 ---
 
 
-## Facebook前员工警示澳洲 需警惕Facebook假消息干预大选
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1955156/)
+## 有声|中共国男足再次无缘世界杯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955196/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+配音：香草山佛教部 – 李傻
 
-2月3日，Facebook前员工郝根（Frances Haugen）在通过视讯向澳洲众议院「社交媒体及在线安全调查委员会」（Inquiry into Social Media and Online Safety）公听会作证时表示，为了捍卫澳洲的民主政治，澳洲政府应加强对付社交媒体被利用散播假消息的问题。
 
-中央社报道，关于澳洲五月即将举行的联邦大选,郝根在公听会作证时表示，对于澳洲在内的用户，Facebook提供较差的网络安全措施。她解释，由于Facebook很清楚自己是在黑箱作业，它持续在维护用户安全方面投资不足，反正没有人能够监管它。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-19.png)（图片来自网络）
-报道称，郝根去年10月接受美国哥伦比亚广播公司（CBS）节目「60分钟」（60 Minutes）访问时说，Facebook早知旗下产品在助长仇恨并伤害儿童心理健康。她曾泄露资料给华尔街日报和美国政府，引爆全球国际媒体追踪Facebook的隐私保护和假消息管控不足等问题。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
+对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
 
-澳洲金融评论报指出，随着郝根公开踢爆Facebook「把利益置于安全之上」激起国际关注，澳洲政府遂邀请她于3日向「社交媒体及在线安全调查委员会」公听会作证。
+文字版原文：[中共国男足再次无缘世界杯](https://gnews.org/zh-hans/1951940/)
 
-郝根表示，近年世界各地的选举，特别是美国，利用社交媒体而操作的烂招层出不穷，而有着独特地缘政治处境澳洲，亦需要防范同样问题。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-郝根还提到，过去曾经有一些学者试图研究Facebook广告如何干预美国选举，随后Facebook威胁要暂停这些学者的账号，甚至扬言要控告这些学者。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-此消息发布后，有华人表示，世界需要关注社交媒体干预民主国家的大选的事实，也需要关注中共独裁政府利用社交媒体发布虚假信息散播种族仇恨，混淆华人与中共的关系，中共是邪恶的极权政党，中国人和华人都深受其害，中共并不等于中国人，更不等于热爱和平自由的华人。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考链接：
-1. [https://www.cna.com.tw/news/aopl/202202040036.aspx](https://www.cna.com.tw/news/aopl/202202040036.aspx)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-素材采编：Kevin wang
-编辑：青城道姑
-发布：文曦
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
