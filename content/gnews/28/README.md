@@ -2,32 +2,44 @@
 ---
 
 
-## 2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1953550/)
+## 多少愤恨在心中,唯有战友能懂——郭文贵先生版一帘幽梦
+` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1953682/)
 
-作者：香草山翻译部
+在2022年中国虎年春节联合晚会当晚，著名的中国异议人士郭文贵先生在美国与中国中央电视台打擂台，现场演唱了由邓丽君女士演唱的《一帘幽梦》和《甜蜜蜜》，既是致敬邓丽君女士，更表达了郭文贵先生完成邓丽君女士心愿，消灭中国共产党的强烈决心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
+在正式演唱前，现场专门播放了邓丽君女士1989年11月24日在日本《悲伤之自由》演唱会上演唱《一帘幽梦》前对于个人、国家和自由民主的肺腑之言。当时邓丽君的演唱会时值中共制造的“八九六四”血案之后，邓丽君女士表达了对中国未来的深深担忧，也表达了对 “八九六四”惨案的痛心，以及对与民主自由的无限渴求。今日重温邓丽君的真情告白，仍令人对当时的惨案非常痛心，又对这位有着自由民主追求的明星心生深深的敬意。
 
+对于选择《一帘幽梦》这首歌，郭文贵先生表示，《一帘幽梦》是我们几代人一起唱的歌，像《甜蜜蜜》一样。但是当听到邓丽君女士那一段独白的时候，觉得这才是精彩，这才是浪漫，她让我们知道我们活着的价值和意义。邓丽君没有去过大陆，但她作为一个台湾人，台湾同胞，中国同胞，一直在为我们的同胞，民主、自由奋斗，她从来没放弃过。我们会完成她想追求的，消灭共产党，让中国人有法治、自由、民主。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2.png)
-校对：Stay文苑
+郭文贵版《一帘幽梦》歌词：
 
-编辑：Stay文苑
+为何我要灭共，是谁带来苦痛，
 
-发稿：Stay文苑
+多少愤恨在心中，唯有战友能懂，
 
-新闻：[https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6](https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6)
-访谈：[https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf](https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf)
+它毁香港圣城，犯下罪孽深重，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+欲占台湾大一统，必是黄粱一梦，
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+谁愿生死与共，打破千年的牢笼，
+
+中华儿女多英雄，今朝盘古必相逢。
+
+为何我要灭共，是谁带来苦痛，
+
+多少愤恨在心中，唯有战友能懂，
+
+它毁香港圣城，犯下罪孽深重，
+
+欲占台湾大一统，终是黄粱一梦，
+
+谁与七哥灭共，打破千年的牢笼，
+
+中华儿女多英雄，今朝盘古必相逢。
+
+作者：华盛顿DC农场 海阔天空
+
+查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
 
  
 

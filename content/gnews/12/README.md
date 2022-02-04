@@ -2,36 +2,22 @@
 ---
 
 
-## 喜支付完成台湾地区第一笔交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953729/)
+## 第一批被列入GTV、Gnews、GETTR永久公布名单的成员或已确定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1953781/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A720D7FF-2ECD-457D-BE81-209D7F6456BB.png)
-2月2日，喜马拉雅支付刚上线，就从台湾宝岛农场传来喜讯，喜支付已经完成了该地区第一笔茶叶的交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-255.png)
-据盖特账号“伊松坊”称，有战友从这家茶叶店订购了七斤“炭焙茶王”，总价750个喜Dollar，等值750美元。店主介绍，提供收款人邮箱和电话之后，HPay进行了点对点支付，一秒到账，交易细节清楚明了，安全无痕，没有任何中间费用。
+撰稿：东京樱花团/待命（文晓）
 
-战友评论指出，喜支付于虎年大年初一成功登陆AppleStore和PlayStore，并完成实物贸易，标志着喜支付已经打通了G系列的任督二脉，可以把G生态链上的所有环节都紧密相连，并开始变得活跃。喜币将像毛细血管一样，向世界上更多领域、更多个体延伸，从而颠覆现金、法定货币的支付与转账方式，引领虚拟货币、数字货币支付潮流。真正实现实时到账和资本无限流通，摆脱传统金融对个人合法资产过度监管的暴政。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/第一批被列入GTV、Gnews、GETTR永久公布名单的成员或已确定.png)（图片源自本文链接）
 
-新闻链接：[#Hpay #台灣農場 #喜支付 #茶 #伊松坊](https://gettr.com/hashtag/%23Hpay)
+1月4日读卖新闻报道：中共国外交部发布消息称：包括俄罗斯总统普京和巴基斯坦总理伊姆兰-汗在内的25个国家的领导人，以及联合国秘书长安东尼奥-古特雷斯和世界卫生组织总干事谭德赛将出席开幕式。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+爆料革命发起人郭文贵先生此前曾通过GTV直播表示，将在GTV、Gnews、GETTR上永久公布参加北京冬奥会人员名单。因此，上述人员将很可能成为第一批被列入种族大屠杀之北京冬奥会参加者名单里。
 
-总编：Irene木木
+消息来源：[「五輪史上見たことがないものに」…聖火リレー最終走者や点火方法に注目 (msn.com)](https://www.msn.com/ja-jp/sports/news/%E4%BA%94%E8%BC%AA%E5%8F%B2%E4%B8%8A%E8%A6%8B%E3%81%9F%E3%81%93%E3%81%A8%E3%81%8C%E3%81%AA%E3%81%84%E3%82%82%E3%81%AE%E3%81%AB-%E8%81%96%E7%81%AB%E3%83%AA%E3%83%AC%E3%83%BC%E6%9C%80%E7%B5%82%E8%B5%B0%E8%80%85%E3%82%84%E7%82%B9%E7%81%AB%E6%96%B9%E6%B3%95%E3%81%AB%E6%B3%A8%E7%9B%AE/ar-AATs22e?ocid=msedgntp)
 
-编辑：谐趣园
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A720D7FF-2ECD-457D-BE81-209D7F6456BB.png)
-
-
+*校对：东京樱花团/喜马拉雅
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
