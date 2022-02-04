@@ -2,25 +2,50 @@
 ---
 
 
-## 秘翻在线：《长津湖》出品人于冬的“中国电影梦”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955405/)
+## 一周中共病毒及疫苗灾难信息集锦
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955606/)
 
-**撰稿：葛大饼**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-214125.jpg)图片来源：新华网
-根据2022年2月4日凤凰网报道，今年春节备受瞩目的《长津湖之水门桥》， 票房有望达到65亿元，超过此前《长津湖》缔造的近58亿票房神话。
+作者：纽约香草山农场 – Zion文恩/火来
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月25日至2月2日，除中共国外，全球新增中共病毒确诊患者两千一百万余例，同比上周下降了8.66%。此外，本周新增确诊死亡病例超过7万例，同比上周增长了18.9%，增长率较上周增加了2.5个百分点。连续两周，中共病毒全球死亡率持续上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-3.jpg)
+截止2月2日，除中共国外，全球累计接种了72.6亿剂中共病毒疫苗，同比18日的接种数据增长了1.82%，但疫苗接种增长率较上周总体下降了0.69个百分点。
 
-博纳影业董事长、《长津湖之水门桥》出品人及总制片人于冬表示：美国电影已审美疲劳，中国观众需要中国人的故事，于东希望再过30年、50年，希望那个年代的年轻人再看《长津湖》的时候，依然可以像我们当年看《上甘岭》一样，被深深感动。
+实时分析显示，截止2月2日，全球来自27个国家共计8万5千767名受试者参与的78项临床研究表明，伊维菌素在预防、早期治疗和晚期治疗的案例中，分别能够降低85%、63%和39%的 中共病毒重症感染的临床病例。
 
-新闻称博纳影业凭借《湄公河行动》、《烈火英雄》、《中国医生》，《长津湖》等主旋律影片，票房已经收获了超过200亿。
+另一方面，多国的中共病毒疫苗政策在本周出现松动迹象。1月28日，由于担心疫苗带来的风险不低于病毒本身，瑞典政府决定不推荐5至11岁的儿童接种中共病毒疫苗。同时，加拿大魁北克省政府遭遇了强有力的反抗声浪，为此不得不放弃对未接种疫苗的魁北克人额外征收健康税的计划。同样在加拿大，萨斯喀彻温省的省长斯科特宣布，将结束该省的疫苗护照政策，并呼吁联邦政府结束各地的强制疫苗政策。
 
-于冬认为，主旋律电影之所以能够被广大观众所接受和喜爱，是因为电影里传达了一种向上、向善的中国精神，这些年的中国电影更加体现了文化自信，即表现中国人真实的生活、真实的情感。《长津湖》系列在技术和美学语言上，都已经达到了全球最高水准，开创了独具中国美学特色的工业化电影风格，而在技术上，中国电影已经不需要国外后期团队这样的宣传嘘头了。《长津湖》系列电影丰富了全球战争片的美学类型，实现了战争片中人文精神的突破。
+在美国，关于公布辉瑞疫苗原始数据的司法诉讼中，美国食品和药品监督管理局FDA认为，延迟75年公布疫苗数据是合适的，但这一观点遭到了法官驳斥。目前，法官要求辉瑞公司尽快公布关于中共病毒疫苗的全部数据。而当地媒体则再次聚焦福奇，包括其为中共病毒实验室提供资金支持，以及在疫情爆发初期蓄意打压、掩盖病毒真相的恶行。
 
-于东告诉大家为什么国产电影票房如此高了吗？那是因为电影院只有国产电影，什么是主旋律电影？就是像《长津湖》系列的洗脑电影，完全编造，篡改历史，欺骗老百姓眼泪和金钱的垃圾电影！习太阳的“中国梦”让中国电影越来越脱离了真实！历史真相是毛泽东通过朝鲜战争把所谓的国民党百万叛军派到前线，被消灭，被活活的冻死。中共高官张震曾说：长津湖战役是人类大屠杀，是军人的耻辱！
+但在某些特殊领域，由于缺乏对中共病毒疫苗灾难的认知，疫苗强制接种政策仍在继续：2月2日，美军决定，为了保持美军的战备力，美军将立即解雇拒绝接种“中共病毒疫苗”的现役军人。另外，联邦政府针对全美医护工作者的强制疫苗政策仍在实施。
 
-**[新闻来源](https://finance.ifeng.com/c/8DLxWqgcaBZ)**
+参考链接：
+1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
+3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-18..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+4) .[Ivermectin for COVID-19: real-time meta analysis of 78 studies](https://ivmmeta.com/)
+5) .[JUST IN – Federal judge in Texas issues a nationwide injunction blocking Biden’s vaccine mandate for federal employees.](https://twitter.com/disclosetv/status/1484575812338823181?s=20)
+6) .[JUST IN – Biden’s vaccine-or-test mandate for workers at large businesses will be withdrawn by OSHA tomorrow.](https://gettr.com/post/pqhyr8309f)
+7) .[One of many medical heros, Dr. @richardursomd, at the DC March today. Thank you!](https://twitter.com/USA_Solutions_/status/1485371519417073670)
+8) . [Why haven’t we let doctors be doctors? Dr. Paul Marik’s experience treating Covid-19 patients is heartbreaking.](https://twitter.com/SenRonJohnson/status/1485700814643638275?s=20)
+9) .[URGENT CARE: Terminally ill father of two says Virginia hospital has discriminated against him based on his vaccination status and the consequences could be deadly.](https://twitter.com/FoxNews/status/1486084047617015818?s=20)
+10) .[Boston patient removed from heart transplant list for being unvaccinated https://trib.al/m1Zyz9V](https://twitter.com/nypost/status/1485971932923183108?s=20)
+11) . [Unvaccinated now barred from French restaurants, sports venues](https://thehill.com/policy/international/591011-unvaccinated-now-barred-from-french-restaurants-sports-venues)
+12) .[Compulsory Covid jabs for NHS workers set to be put on hold after Tory revolt and warning from Royal College of GPs it will lead to chronic staff shortages – while healthcare workers dump their scrubs outside Downing Street during protest march](https://www.dailymail.co.uk/news/article-10431489/Compulsory-Covid-jabs-NHS-staff-delayed-half-year-Tory-revolt-protests.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
+总编: Irene木木
+编辑：静言
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

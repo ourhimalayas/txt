@@ -2,26 +2,20 @@
 ---
 
 
-## 数千人在华盛顿集会，反对疫苗强制接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955123/)
+## 秘翻在线 : 社交媒体巨头Facebook 遭遇历史上最大的股价暴跌
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955310/)
 
-##### 翻译：Frank
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+**撰稿：William**
 
-据福克斯新闻1月24日报道，数千美国公民来到华盛顿纪念碑，举行反新冠疫苗强制接种大集会。人们高呼取消强制令。集会者表示，强制接种是不正确的，公民有选择的自由。人们来这里参加这场大游行是为自由而战，也是为了家庭还有自己的身体的决定权而战。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-212511.jpg)图片来源：[www.dailymail.co.uk](https://www.dailymail.co.uk/)
+根据美国CNBC 新闻的报导, Facebook 母公司 Meta 的股价周四暴跌，此前该公司预测下一季度的收入增长低于预期。该公司将隐私变化归咎于苹果 iOS 的隐私变化以及影响广告商预算的宏观经济挑战。在 Facebook 暴跌后，其他社交媒体股票周四也一起下跌。
 
-视频链接：[Thousands rally in DC to oppose COVID-19 vaccine mandates, demand ‘freedom’](https://www.foxnews.com/politics/thousands-rally-in-d-c-to-oppose-covid-19-vaccine-mandates-demand-freedom)
+Facebook 母公司 Meta 的股价本周四收盘下跌超过 26%，并显示出有记录以来每日活跃用户数量首次出现季度下降。在 2018 年 7 月暴跌 19% 之后，该股创下了有史以来最大的单日跌幅。周四的跌幅使其市值缩水超过 2300 亿美元，目前市值约 6600 亿美元。Refinitiv 的数据显示，该公司首次使用新的报告结构以新名称发布了收益，该公司第四季度的收益预期为 3.67 美元，而分析师的预期为 3.84 美元。但该季度的收入超过了 336.7 亿美元，而估计为 334 亿美元。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+继Facebook 股价暴跌后，Snap 的股价在收盘后发布财报之前下跌了 23% 以上。 Pinterest 股价下跌超过 10%，Twitter 股价下跌超过 5%。
+
+**新闻来源**：[https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html](https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html)
 
  
 

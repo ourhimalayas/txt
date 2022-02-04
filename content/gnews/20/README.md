@@ -2,32 +2,56 @@
 ---
 
 
-## 波兰移民：我们想生活在一个自由的国家
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1955637/)
+## 新中国联邦春晚 VS 中共春晚
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1956015/)
 
-编译： Jenny Ball
+作者：纽约磐石农场—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4F62A71F-9DEB-4DF1-882E-8596C37F8841.jpeg)图片来源：thegatewaypundit.com
 
-一群来自多伦多的波兰移民，一路前往渥太华，为正在为结束疫苗任务而奋斗的爱国卡车司机提供食品援助。
 
-据波兰妇女伯纳黛特（Bernadette）说，她的团队为司机带来了大约 1,550 根波兰香肠、面包和小圆面包以及波兰甜甜圈。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
 
-当被问及为什么他们向司机提供免费食物时，伯纳黛特说，他们来自一个共产主义国家。在过去的两年里，他们像囚犯一样生活在[加拿大]，这就是他们支持自由车队的原因。
 
-“因为我们支持他们。我们来自一个共产主义国家，我们来到这里是因为我们不想受到压迫，我们想生活在一个自由的国家。在过去的两年里，我们像囚犯一样生活。我们被告知待在家里， 我们被告知不能去餐厅，不要去教堂。这简直难以置信。在共产主义时期，有些时候我们还可以自由地去教堂，有些时候我们不能。所以我实在是受不了了。因此，我带着食物来这里，每两周一次，每两三天一次，直到结束，”伯纳黛特说。
 
-**评论：从共产主义／社会主义／极权独裁国家逃离的人，听到伯纳黛特的话都会感动的落泪，因为我们知道那是怎样的灾难。与其说我们在支持加拿大勇敢的卡车司机们的抗议，不如说是他们在为我们和我们的子孙后代的自由在战斗！**
 
-**参考资料：**[thegatewaypundit][“We Come from Communist Country.. We Wanted to Live in a Free Country” – Polish Immigrants Offer Food Assistance to Truck Drivers in Ottawa (VIDEO)](https://www.thegatewaypundit.com/2022/02/come-communist-country-wanted-live-free-country-polish-immigrants-offer-food-assistance-truck-drivers-ottawa-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
-* * *
+郭文贵先生在2月2日首次文贵大直播中披露，新中国联邦春晚在墙内累计观看次数已超过2.5亿次。 郭先生所唱的《甜蜜蜜》、《塞北的雪》和《一帘幽梦》更是影响巨大，响彻南北。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/papaya-.jpg)
+爆料革命用音乐唤醒墙内百姓，共产党灭亡已成定局。美国外交撤离、日本国会通过中共人权状况决议、中共国足球输给了越南、亲近中共的国家都处于动乱中，而新中国联邦的HPAY却成功登路ios。
 
-*审核：文乐
-校对：小东
-发稿：信心的选择*
+郭先生回忆道，许多参加过春晚的女明星在春晚结束后不能回家，而是直接被中共高官的专车接走。就像香港某个年轻的女明星，在参加完春晚的假唱之后，被某领导从央视西门接走，然后被几个人强暴蹂躏；中共的高层甚至还变态到玩弄男歌手。郝海东战友所说的宋祖英扒胸罩也传遍整个京圈，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+郭先生愤怒的表示，中共高官的变态让人无法忍受。中共的春晚，如果没有权、钱、性的交易，是永远也上不了的。过去几十年来，央视春晚让中国人无知、耻辱、精神萎靡，是对中国人进行的思想大垄断、文化大屠杀、思想大屠杀和种族大屠杀的犯罪舞台。
+
+参考来源：
+
+[2022年2月2日大直播速记精萃](https://gnews.org/wp-admin/post-new.php)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-10.jpg)
+
+编辑：文特、木木、兰兰
+
+校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+
+
+
+
 
  
 

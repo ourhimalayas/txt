@@ -2,52 +2,62 @@
 ---
 
 
-## 28 岁女子接种辉瑞疫苗后患功能性神经系统疾病
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956060/)
+## 捷克最高法院裁定 疫苗限制措施無效
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1956199/)
 
-**翻译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip28-岁女子接种辉瑞疫苗后患功能性神经系统疾病.png)图片来源：thegatewaypundit.com
-一名来自英格兰的 28 岁女商人，在接种辉瑞 COVID 疫苗后被诊断出患有功能性神经障碍，这是一种直接处于神经病学和精神病学交叉领域的疾病。
+作者：加拿大溫哥華揚帆農場[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-卡特里娜·赫尔梅兹（Katrina Hermez）在她的社交媒体上分享说，在去年 6 月 27 日接种疫苗后，她的生活发生了翻天覆地的变化。卡特里娜接种了疫苗，因为她认为这是政府要求的正确做法。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-“我必须说出来……我第一次打针是因为我相信这是我们政府做的正确的事情。但一周后，它改变了我的生活，彻底颠覆了我的生活。我现在患有全身瘫痪、癫痫发作、言语问题、几乎被诊断出失忆症、每天偏头痛、耳朵里有血、眩晕、恶心等等。我希望听到我的故事，以拯救其他人免受这种情况的影响，”卡特里娜两周前在她的 Instagram 帐户上写道。
+2月2日，捷克共和國最高法院裁定，上屆捷克總理Andrej Babiš領導的政府頒佈的Covid-19病毒疫苗限制措施無效，該裁決在7日內生效。
 
-“他们说它会保护我，他们说它会保护他人，他们说它可以拯救我们，他们说我们至少需要一个，然后是两个，现在是三个。还要有多少（才停止），难道要我们都悲痛欲绝？” 她继续说。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Featured-3.png)
 
-周三，卡特里娜发布了她状况的另一项更新。她在标题中表示，她不会放弃分享真相。
+去年11月18日，Andrej Babiš領導捷克政府批准了新的Covid-19限制措施。
 
-阅读她的最新更新：
+除12~18歲的青少年、身體狀況不允許接種疫苗和已部分接種疫苗的人，其它任何未接種疫苗的人即使冠狀病毒檢測呈陰性也被禁止進入大多數非必要的室內場所。只有接種過疫苗或最近180天內從Covid-19中康復的人才有資格參加公共活動、去酒吧、餐館、音樂廳、理髮店、博物館、舞蹈、遊戲和和類似的社交娛樂場所，或進入酒店。
 
-现在我已经到了这种痛苦的地步，我不在乎你在谷歌上读过什么医学科学，你正在读哪本书，哪个外科医生设定了这个议程，或者你看过哪个新闻频道……我就是被害怕失去工作的医疗专业人员害的。
+去年12月，上屆捷克政府強制要求從今年3月起，60歲以上的人和從事高風險職業的人，包含醫護人員、員警、消防員必須接種COVID-19疫苗。
 
-我接种了疫苗，现在受到了伤害。
+12月17日，Andrej Babiš下臺，Petr Fiala宣誓就任捷克共和國總理。
 
-我是一个普通的 28 岁女孩，在家经营自己的水疗业务，从事艺术，保持身体健康，每天都感觉良好。
+1月19日，Fiala宣佈他的政府不會對任何人強制接種疫苗。最近，Fiala政府又宣佈，不會繼續對醫護人員和其他一些職業進行強制接種疫苗的計畫。Fiala政府衛生部長Vlastimil Válek在推特發文稱，我從一開始就認為強制性的 covid-19 疫苗接種是胡說八道。我答應過我們會修改前任政府用熱針和觀點寫的法令，我們將取消疫苗接種，今天發生了，儘管疫苗接種是對抗嚴重病毒大流行的最有效武器，但我們不會強迫任何人這樣做。
 
-2021 年 6 月 27 日，我和其他数百万人一样决定接种辉瑞疫苗，因为我相信（不要忘记……我们被告知）这将保护我们和我们周围的人。现在，这就是一个被证实的谎言。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-42-37.png)
 
-5 天后，我的受伤症状开始出现，现在已达到：
+目前，捷克63%的人口完全接種了Covid-19疫苗，而在60歲以上的年齡組中，這一比例為80%。在高危職業人群（包含醫護人員、員警、消防員）中，接種率在85%到90%之間。
 
-使用轮椅、10 次持续数小时至数天的暂时性麻痹、短暂性健忘症、3 种非癫痫发作、偏头痛、丛集性头痛、关节痛、神经痛、针刺痛、全身灼痛、胸部隔日疼痛、对噪音敏感、光敏感、皮肤敏感、严重精神错乱、严重头晕、耳鸣、言语/口吃、口齿不清、重复单词、心悸、分离、我的耳朵里有血、嘴壁上的黑疮、间歇性听力损失、视力模糊、肌肉僵硬、皮疹、极度疲惫。
+上周日，成千上萬的捷克人走上布拉格街頭，抗議新冠疫情的限制措施。抗議者揮舞旗幟並高呼口號，譴責對新冠病毒的限制，特別是未接種疫苗的公民仍然無法進入某些場所的事實。
 
-这不是新冠病毒，这不是长期COVID。这是辉瑞疫苗的直接伤害。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-47-46.png)
 
-我不会沉默，我不会被告知我没有证据，我不会被嘲笑，我不会屈就，我不会被那些因这种误判而感到冒犯的人吓住。
+Petr Mikeš法官解釋最高行政法院的裁定時說，該措施的目的是不能通過緊急疫苗接種措施間接迫使公民接種疫苗，迫使未接種疫苗的人如果想正常生活，別無選擇，只能接種疫苗，但衛生部必須說明並證明捷克共和國的每個人都可能是感染嫌疑人。衛生部不支援在所謂的大流行法中限制此類場所，除非使用消毒或座位位置，衛生部只能根據《公共衛生保護法》限制疑似感染者活動。只有在整個捷克共和國都被確定為疫情的情況下才有可能每個人都可能是感染嫌疑人。
 
-我不在乎您此时是否接种了疫苗，**我关心我的健康，以及其他人和孩子的健康**，他们**会或可能会受到这个实验的伤害**。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-46-59.png)
 
-如果您认为这是“病毒症状”或“全在我脑海中”…… 历史不会站在你那边。**我不会保持沉默。 我是因疫苗受伤的。 我不会放弃分享我的真相。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip28-岁女子接种辉瑞疫苗后患功能性神经系统疾病2.png)图片来源：thegatewaypundit.com
-**新闻来源**：[thegatewaypundit.com][“How Many More Until We’re All Grieving” – 28-Year-Old Woman Speaks Out After Suffering Functional Neurological Disorder Following Pfizer Vaccination](https://www.thegatewaypundit.com/2022/02/many-grieving-28-year-old-woman-speaks-suffering-functional-neurological-disorder-following-pfizer-vaccination/)
+COVID-19病毒疫苗強制令在捷克取消！
 
-* * *
+參考資料：
 
-***审核：文乐
-校对：小东
-发布：信心满满***
+[Czech Republic: Covid Restrictions Cannot Be Used to Force Citizens to Be Vaccinated, Supreme Court Says](https://dailyexpose.uk/2022/02/04/cannot-force-citizens-to-be-vaccinated-court-says/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+[Czech government scraps plan for mandatory vaccination](https://english.radio.cz/czech-government-scraps-plan-mandatory-vaccination-8739738)
+
+[Konec. Soud pustil neočkované do restaurací](https://www.novinky.cz/domaci/clanek/soud-pustil-neockovane-do-restauraci-40385872)
+
+[Czech police officers stand in solidarity as Supreme Court Strikes Down Covid-19 Vaccine Pass for Restaurants, Clubs, Hotels](https://lorphicweb.com/in-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video/)
+
+[Czech citizens hold massive protest demanding new center-right gov’t lift all COVID restrictions](https://www.lifesitenews.com/news/czech-citizens-hold-massive-protest-demanding-new-center-right-govt-lift-all-covid-restrictions/)
+
+[Povinné očkování proti covidu-19 jsem od počátku považoval za nesmysl. Slíbil jsem, že horkou jehlou sepsanou vyhlášku minulé vlády novelizujeme a pov. očkování zrušíme. Dnes se tak stalo.](https://twitter.com/vlvalek/status/1483803335169912838?s=20&amp;t=d6FuuJ-1rGq4pvgP6OGgWw)
+
+[Prague Czech Republic Anti Covid BS, Anti Everything Long Live The People](https://twitter.com/risemelbourne/status/1487882648114458624?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1487882648114458624%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Florphicweb.com%2Fin-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video%2F)
+
+[À Prague, les policiers tchèques sont solidaires du peuple face aux restrictions incessantes du COVID et aux passes sanitaires discriminatoires !](https://t.me/StoryOfBlackBond/7201)
+
+[Lockdowns and bans on unvaccinated: How Europe is coping with Covid surge](https://www.itv.com/news/2021-11-19/lockdowns-and-public-transport-bans-across-europe-as-covid-cases-rise-again)
+
+編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

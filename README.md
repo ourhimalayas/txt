@@ -15,125 +15,125 @@
 
 ---
 
-### [以色列前车之鉴：新冠疫苗做了什么？](/content/gnews/1/README.md)
+### [NBA球星大鲨鱼反对强迫接种COVID-19疫苗](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [49名共和党议员承诺取消拜登的疫苗任务](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [捷克最高法院裁定 疫苗限制措施無效](/content/gnews/3/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|蓬佩奥再谈病毒起源](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [加拿大卡车司机誓言继续抗议直到自由国度重新回归](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [约翰斯霍普金斯大学研究发现福奇的封锁策略彻底失败](/content/gnews/2/README.md)
+### [脸书市值跌近两千亿 首次出现用户下降](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [28 岁女子接种辉瑞疫苗后患功能性神经系统疾病](/content/gnews/3/README.md)
+### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/7/README.md)
+ ` G-NEWS TAIWAN`
+
+### [奥运会的焦点回到了中共国 这是一场带有中共病毒色彩的奥运会](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [捷克最高法院裁定 疫苗限制措施无效](/content/gnews/9/README.md)
+ ` 温哥华扬帆农场`
+
+### [Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（2/3）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌危机：当油价攀升时，普京变得更加大胆](/content/gnews/4/README.md)
+### [以色列前车之鉴：新冠疫苗做了什么？](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美称伊斯兰头目库莱希在美军发动的叙利亚突袭中自杀身亡](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [共产党为什么被称做否定历史主义者-朝鲜战争](/content/gnews/13/README.md)
+ ` GTV News Talk`
+
+### [约翰斯霍普金斯大学研究发现福奇的封锁策略彻底失败](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [28 岁女子接种辉瑞疫苗后患功能性神经系统疾病](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄乌危机：当油价攀升时，普京变得更加大胆](/content/gnews/16/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国及世界疫情简报 （02-04-2022）](/content/gnews/5/README.md)
+### [美国及世界疫情简报 （02-04-2022）](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [共产党培养的商人到贫民都会做假说谎](/content/gnews/6/README.md)
+### [共产党培养的商人到贫民都会做假说谎](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶](/content/gnews/7/README.md)
+### [普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶](/content/gnews/19/README.md)
  ` 华盛顿DC-Russian`
 
-### [新中国联邦春晚 VS 中共春晚](/content/gnews/8/README.md)
+### [新中国联邦春晚 VS 中共春晚](/content/gnews/20/README.md)
  ` GTV News Talk`
 
-### [文贵大直播 2/4 一帘噩梦：冬奥开幕 乱象横生](/content/gnews/9/README.md)
+### [文贵大直播 2/4 一帘噩梦：冬奥开幕 乱象横生](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共欲率先找到坠入南海的美国F-35C战斗机](/content/gnews/10/README.md)
+### [中共欲率先找到坠入南海的美国F-35C战斗机](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台南升起中共血红旗 卖台走向火葬场](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [世卫组织称已在57个国家检测到奥密克戎变体](/content/gnews/12/README.md)
+### [世卫组织称已在57个国家检测到奥密克戎变体](/content/gnews/23/README.md)
  ` GTV News Talk`
 
-### [北京冬奥会出大事：普京团队染毒，安保特警暴毙！](/content/gnews/13/README.md)
+### [北京冬奥会出大事：普京团队染毒，安保特警暴毙！](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [脸书股价创历史最大跌幅](/content/gnews/14/README.md)
+### [脸书股价创历史最大跌幅](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [02/04/22 香港快讯 古思尧被国安处拘捕 原定今早到中联办抗议冬奥](/content/gnews/15/README.md)
+### [02/04/22 香港快讯 古思尧被国安处拘捕 原定今早到中联办抗议冬奥](/content/gnews/26/README.md)
  ` 英喜-粵語組`
 
-### [北京冬奥开幕在即,日本代表团一选手确诊](/content/gnews/16/README.md)
- ` GTV News Talk`
-
-### [中共所谓的改革开放](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [冬奥会变冬眠会 突发事件给爆料革命送大礼](/content/gnews/18/README.md)
+### [冬奥会变冬眠会 突发事件给爆料革命送大礼](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [微生物学家克里桑蒂指出:绿色护照对公共卫生健康措施毫无用处](/content/gnews/19/README.md)
- ` xiaobaige`
-
-### [波兰移民：我们想生活在一个自由的国家](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [一周中共病毒及疫苗灾难信息集锦](/content/gnews/21/README.md)
+### [一周中共病毒及疫苗灾难信息集锦](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [【玫瑰看新闻】每日快讯2021年2月3日（新西兰时间）](/content/gnews/22/README.md)
+### [【玫瑰看新闻】每日快讯2021年2月3日（新西兰时间）](/content/gnews/29/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [瑞典将于2月9日解除中共病毒限制](/content/gnews/23/README.md)
+### [瑞典将于2月9日解除中共病毒限制](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [七哥选择了最好的时机推出喜币和喜支付](/content/gnews/24/README.md)
+### [七哥选择了最好的时机推出喜币和喜支付](/content/gnews/31/README.md)
  ` DC政经`
 
-### [DC每日热点0204](/content/gnews/25/README.md)
+### [DC每日热点0204](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Himalaya Pay(HPay)-谢谢七哥送给我们的礼物](/content/gnews/26/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [【爆料革命大事记】20220124“甜蜜蜜” 运动正式宣布即将在冬奥会期间启动](/content/gnews/27/README.md)
+### [【爆料革命大事记】20220124“甜蜜蜜” 运动正式宣布即将在冬奥会期间启动](/content/gnews/33/README.md)
  ` 新西兰农场【光影传镜】`
 
-### [秘翻在线：《长津湖》出品人于冬的“中国电影梦”](/content/gnews/28/README.md)
+### [秘翻在线：《长津湖》出品人于冬的“中国电影梦”](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|CNN表示会在北京冬奥会期间关注中共新疆大屠杀](/content/gnews/29/README.md)
+### [有声|CNN表示会在北京冬奥会期间关注中共新疆大屠杀](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [数据显示，新冠疫苗接种率高的国家死亡率飙升](/content/gnews/30/README.md)
+### [数据显示，新冠疫苗接种率高的国家死亡率飙升](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美国联邦债务首次超过30万亿](/content/gnews/31/README.md)
+### [有声|美国联邦债务首次超过30万亿](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [秘翻在线 : 社交媒体巨头Facebook 遭遇历史上最大的股价暴跌](/content/gnews/32/README.md)
+### [秘翻在线 : 社交媒体巨头Facebook 遭遇历史上最大的股价暴跌](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美智库专家：中共试图通过笼络美国精英击败美国](/content/gnews/33/README.md)
+### [有声|美智库专家：中共试图通过笼络美国精英击败美国](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [秘翻在线：中共将奥米炕变种起源甩锅给老鼠](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|中共国男足再次无缘世界杯](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [HPAY的支付革新与推广前景](/content/gnews/36/README.md)
- ` MilesGuoLivePPT`
-
-### [Facebook前员工警示澳洲 需警惕Facebook假消息干预大选](/content/gnews/37/README.md)
- ` 日本东京方舟农场`
-
-### [数千人在华盛顿集会，反对疫苗强制接种](/content/gnews/38/README.md)
+### [数千人在华盛顿集会，反对疫苗强制接种](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
-
-### [中领馆前多个人权团体游行 痛批北京冬奥为种族灭绝运动会](/content/gnews/39/README.md)
- ` 日本东京方舟农场`
-
-### [全球经济危机愈演愈烈](/content/gnews/40/README.md)
- ` MilesGuoLivePPT`
 
 ### [美国数千名军人建脸书群，反对疫苗强制令](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

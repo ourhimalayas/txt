@@ -2,31 +2,41 @@
 ---
 
 
-## Facebook前员工警示澳洲 需警惕Facebook假消息干预大选
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1955156/)
+## 有声|美国联邦债务首次超过30万亿
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955320/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+依据美财政部数据，国家债务在周二超过30万亿，是建国以来首次, 膨胀的债务大多归咎于Covid-19爆发后，激增的经济救助花销，从19年底至今，国债增长了约7万亿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-3.jpg)图片来源: 网络
+财政部数据在高通胀和供需不平衡的经济背景下发布, 联储预计从三月开始进行一系列的利率上调举动，这将会显著增加政府借债融资成本。
 
-2月3日，Facebook前员工郝根（Frances Haugen）在通过视讯向澳洲众议院「社交媒体及在线安全调查委员会」（Inquiry into Social Media and Online Safety）公听会作证时表示，为了捍卫澳洲的民主政治，澳洲政府应加强对付社交媒体被利用散播假消息的问题。
+由于新冠病毒，在过去的两年财政和货币刺激导致严重超发，以至于现有80%的流通美金是在之前22个月印刷的。
 
-中央社报道，关于澳洲五月即将举行的联邦大选,郝根在公听会作证时表示，对于澳洲在内的用户，Facebook提供较差的网络安全措施。她解释，由于Facebook很清楚自己是在黑箱作业，它持续在维护用户安全方面投资不足，反正没有人能够监管它。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-19.png)（图片来自网络）
-报道称，郝根去年10月接受美国哥伦比亚广播公司（CBS）节目「60分钟」（60 Minutes）访问时说，Facebook早知旗下产品在助长仇恨并伤害儿童心理健康。她曾泄露资料给华尔街日报和美国政府，引爆全球国际媒体追踪Facebook的隐私保护和假消息管控不足等问题。
+联储主席 Jerome Powell上周表示将开始缩表，这将是2015年后首次利率提升。
 
-澳洲金融评论报指出，随着郝根公开踢爆Facebook「把利益置于安全之上」激起国际关注，澳洲政府遂邀请她于3日向「社交媒体及在线安全调查委员会」公听会作证。
+本届政府开启了前所未有的联邦支出，债务与GDP比值达到了130.65%，即债务超过经济产出。
 
-郝根表示，近年世界各地的选举，特别是美国，利用社交媒体而操作的烂招层出不穷，而有着独特地缘政治处境澳洲，亦需要防范同样问题。
+联邦政府有8万亿国债被外国持有，其中最大债权人是中共当局和日本政府，分别为1.05和1.3万亿美金。
 
-郝根还提到，过去曾经有一些学者试图研究Facebook广告如何干预美国选举，随后Facebook威胁要暂停这些学者的账号，甚至扬言要控告这些学者。
+文字版原文：[美国联邦债务首次超过30万亿](https://gnews.org/zh-hans/1952935/)
 
-此消息发布后，有华人表示，世界需要关注社交媒体干预民主国家的大选的事实，也需要关注中共独裁政府利用社交媒体发布虚假信息散播种族仇恨，混淆华人与中共的关系，中共是邪恶的极权政党，中国人和华人都深受其害，中共并不等于中国人，更不等于热爱和平自由的华人。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：
-1. [https://www.cna.com.tw/news/aopl/202202040036.aspx](https://www.cna.com.tw/news/aopl/202202040036.aspx)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-素材采编：Kevin wang
-编辑：青城道姑
-发布：文曦
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
