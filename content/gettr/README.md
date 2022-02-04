@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/4/2022 11:18 PM (UTC)`
+
+2/4/2022 Miles Guo: Why is Putin staying at Waldorf Astoria Beijing? Who are the only two powerful figures attending the opening ceremony of the Winter Olympics? Four or five bodyguards of Putin have contracted the CCP virus, with a total of 16 persons in his team being infected. In addition, the CCP’s sniper leader died a sudden death at the Pangu Plaza. All these things sound extremely unusual.<br/><br/>2/4/2022 文贵直播：普京为何住在华尔道夫酒店？出席冬奥会开幕的两位大佬是谁？普京有4、5个保镖染上了病毒，其团队共16人染毒，加之中共的狙击手队长在盘古暴毙，这些事儿都非同寻常啊<br/>
+![img](https://media.gettr.com/group17/getter/2022/02/04/23/330f2228-9d55-782b-ee35-dd078c707486/out.jpg)
+
+---
+
+`@miles 2/4/2022 11:13 PM (UTC)`
+
+2/4/2022 Miles Guo: Why did the CCP disabled the comment section of a YouTube channel  where the opening ceremony of the Winter Olympics was aired live? The first person who died in the Winter Olympics was the sniper leader who collapsed near Pangu Plaza. Things like this will happen again and again. This is the will of Heaven!<br/><br/>2/4/2022 文贵直播：中共为何要关闭”冬眠会“开幕式油管直播的评论？”冬眠会“第一个死的人是在盘古旁边倒下的狙击手的头儿！这事将接二连三地发生，是天意！<br/>
+![img](https://media.gettr.com/group35/getter/2022/02/04/23/c7b8234e-cf02-8c20-62ff-c5793e5abd24/out.jpg)
+
+---
+
 `@miles 2/4/2022 12:24 PM (UTC)`
 
 2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮
@@ -142,20 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 1/31/2022 Miles Guo’s Chinese New Year Live: Hao Haidong’s revelations on the fake, ugly, and evil of the CCP’s system - Without money, power, network, or sleeping with the CCP cadres, the Lao Baixing will be doomed. It is outrageous that Song Zuying’s performance of “Spicy Girl” at the Wiener Musikverein was paid with the CCP’s military funds, which are the Lao Baixing’s money<br/><br/>1/31/2022 文贵虎年新春大直播：郝董揭露中共体制的假丑恶 - 没钱、没实力、不找关系、不陪领导睡的老百姓没出路；宋祖英竟拿着老百姓付的中共军费包下维也纳金色大厅去唱《辣妹子》<br/>
 ![img](https://media.gettr.com/group30/getter/2022/02/03/00/81bbf109-b14a-aacb-d794-ab6da9986f21/out.jpg)
-
----
-
-`@miles 2/2/2022 7:29 PM (UTC)`
-
-2月2号：我的那乖乖嘞，咋了，这是咋回事儿了……
-![img](https://media.gettr.com/group40/getter/2022/02/02/19/e5da3084-a742-598f-3ee6-ca7a02cb2036/69c6e6018739d57020447d1dc517c660.jpg)
-
----
-
-`@miles 2/2/2022 1:08 PM (UTC)`
-
-2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币
-![img](https://media.gettr.com/group30/origin/2022/02/02/12/4786ae9f-93f8-998f-9713-759424b2bcfe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

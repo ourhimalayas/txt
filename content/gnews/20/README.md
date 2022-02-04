@@ -2,34 +2,31 @@
 ---
 
 
-## 阿爾伯塔省長下周將宣布COVID疫苗護照的結束日期
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1957026/)
+## 七哥说“珍惜生命！远离中共！”（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1957247/)
 
-加拿大溫哥華揚帆農場 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-5.jpg)圖片來源：CP24
-根據《The Globe and Mail》2月4 日報道，省長肯尼（Jason Kenney）將在下周宣布結束阿爾伯塔省COVID疫苗護照的日期，之後很快就會實際取消。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-肯尼說，他還將在下周宣布一個分階段的方法，只要醫院的壓力繼續下降，就會在本月底前結束幾乎所有的COVID限製。阿爾伯塔省的高疫苗接種率加上穩定的醫院病人數量，使得很快結束疫苗護照是可行的。
+来源：郭先生2022-02-02直播09：14：20摘录
 
-肯尼星期四晚上在他的Facebook頁面上的一個現場市政廳中告訴市民:”隨著COVID的變化，我們的反應也必須改變，這就是為什麼下周初阿爾伯塔省將宣布一個結束疫苗護照的確切日期，並在不久的將來徹底結束。”
+还有一个，你想活下去——远离中共！珍惜生命！远离中共！不仅是演艺圈，不仅是企业家，也不仅是搞煤的，不管你多大岁数，我就今天奉劝所有的同胞，包括全世界的人，有点良知的看一看所有和中国共产党打交道的下场，马云、赵本山、宋祖英、香港台湾的歌星、以及美国的政要、欧洲的政要、欧洲的主席、包括梵蒂冈。梵蒂冈给七哥送这是啥意思知道吗？梵蒂冈教皇给你送这个袖扣的时候就是把你当成大主教级的，和他平级的才能给你，你以为啥呢？最后告诉全世界人们、聪明的人民、智慧的人民，永远要记住珍惜生命，远离中共！没掌声？就这没掌声？你看这德华咋没反应，来福咋跟你过啊？咋跟你这样的男人过啊。
 
-該疫苗護照在阿爾伯塔省被稱為限製性豁免，規定任何使用酒吧和餐館等非必要服務的人必須出示疫苗接種證明。艾伯塔省的計劃是自願的，但不參加的企業會受到限製，包括嚴重降低客戶容量。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-自去年9月推出以來，該護照已成為阿爾伯塔省內以及肯尼自己的聯合保守黨黨團和黨內在平衡公共衛生秩序與個人權利和自由方面的沖突的象征。
+**关注我们**
 
-一周前，肯尼說，可能在3月底前取消疫苗護照。從那時起，他受到了來自黨團成員的越來越大的壓力，稱該護照不公平地侵犯了個人權利，必須立即取消。
+Discord 账号
 
-周四早些時候，肯尼的助手、政府議院領袖和環境部長傑森-尼克松公開要求采取行動。他在一份聲明中說：”現在很清楚，像限製豁免計劃這樣的強製措施對目前COVID-19的情況並不像衛生官員預期的那樣有效。我對疫苗強製的立場是，它們需要結束。”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-阿爾伯塔省已經決定取消疫苗護照，加拿大其他省會不會緊隨其後？
+Gettr 账号
 
-原文鏈接：[https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/”&gt;https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/](https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/&quot;&gt;https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/)
-
-
-
-編輯，發稿 Spirit
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,35 +2,32 @@
 ---
 
 
-## 以色列本周COVID死亡率世界上最高!
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1957275/)
+## 七哥谈“甜蜜蜜运动”的三大回合（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1957427/)
 
-**编译: 真北007**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-来自GATWAY PUNDIT二月三日的新闻报道：
+来源：郭先生2022-02-02直播09：33：38摘录
 
-以色列，如果不是第一，那也是世界上疫苗接种率最高的国家之一。根据霍普金斯大学的数据分析，它最近一周的每百万人口中的COVID死亡人数名列世界首位，并且重症病例中的80%是完全疫苗接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-352.png)全球每周新冠死亡病例（每百万人），图片来源：[The Gateway Pundit](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
-老天爷啊！在以色列究竟发生了什么？十天前，以色列的一个“专家小组”建议接种第四剂 COVID 疫苗，以保护人们免受冠状病毒的侵害。
+奥运会绑架事件就行了，是吧？可是我告诉大家，“甜蜜蜜运动” 第一回合就是新中国联邦的，我们告诉大家的，就是美国外交撤馆；第二回合较量的就是今年的三个歌声；第三招儿就是对着你冬奥会去的。我今天大年二月初二我向你共产党老杂毛儿中南坑宣布：你看我能把你冬奥会开不成你个冬眠会，我就不叫郭文贵！你现在想撤手你都撤不了。还有几天开幕，我要给你整不成你共产党的冬眠会，我不叫郭文贵！共产党的老杂毛儿记住啊，郭文贵正式给你下战帖，咱是明人不做暗事，从来不背后做！你黑我手机，你黑了怎么着？人家QMay的先生叫Ryan，我写得是“QMay的先生”，结果给我改成了 “Q夫” ，把我的WhatsApp “Q夫” 把我笑晕了。你们要点儿脸行不行？你控制我手机能咋了呢？你挡住我的“甜蜜蜜运动”了吗？你找到郭文贵的小性视频了吗？我就是有小视频能咋的？你找到我跟Eric俺两个断背的视频又能咋的？能证明什么？是吧？
 
-根据路透社的数据，到目前为止，以色列已经接种了至少 17,879,314 剂 COVID 疫苗。 假设每个人需要 2 剂疫苗，这足以为该国约 98.7% 的人口接种了疫苗。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-但这似乎没有帮助，以色列现在是世界上每百万人中 COVID 死亡人数最高的国家。也许第五剂就不再是戏法了？
+**关注我们**
 
-另外，最新数据显示，该国 80% 的严重 COVID 病例已完全接种疫苗。
+Discord 账号
 
-**原文链接：**
-[The Gateway Pundit: Country with One of the Highest Vaccination Rates Has Highest Number of COVID Deaths Per Million People This Week –80% of Serious Cases are Fully Vaccinated](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**编辑：LILY**
+Gettr 账号
 
-**发布：MQ**
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-20220204
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
