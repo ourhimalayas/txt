@@ -2,43 +2,25 @@
 ---
 
 
-## CNN表示会在北京冬奥会期间关注中共新疆大屠杀
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1953018/)
+## 在宪兵营前自焚的意大利教师，其真实目的迷雾重重
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1953134/)
 
-作者: 银河系农场 – 骄子
+#### 翻译              意大利罗马达芬奇农场                      小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-03-alle-15.50.37-4.png)图片来源：il fanpage.it
+一位三十三岁来自意大利南方卡拉布利亚大区的教师，在北方伦巴第大区工作。1月31日上午，他在伦德的一个宪兵营前自焚。这一事件立刻引起了轩然大波。因为惨剧的震撼视频凌晨就在网洛上流传。
 
+然而，正是这样一个极端的行为， 即使是出事几个小时之后，出事地点的选择和原因仍然十分模糊。正是出于这个原因， 围绕着这个惨剧又产生了一个谜团。 蒙扎及布里昂查（Monza-Brianza）的学校工会在其官方脸书页面上写道，该教师在伦巴第大区工作，这一举动的原因似乎是因没有接种新冠疫苗而被停职。但很快工会发布的消息从社交网络上消失了， 也未有报刊对此进行广泛报道。  教师在被转入重症监护室时，全身已被烧伤70%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+1月31日早上，这位教师按了对讲机后，喃喃自语地走进大门，在路人惊讶和不知所措之时， 他用易燃液体洒在自己身上， 然后用从裤兜里掏出的打火机自焚。
 
+据急救人员的讲述， 这名33岁的教师在做出这个举动之前或之后都没有表现出任何疼痛的迹象。从宪兵对此事件的初步调查来看，此人无任何犯罪前科，也不属于任何极端的意识形态组织。很有可能是出于个人原因而做出的极端行为。惨剧发生地的镇长在社交网站上写道：“我们为今天早上在宪兵营前发生的惨剧而深感震惊。这个悲剧，表达了一种不适状态， 我们应以沉默的方式表示我们对他的尊重。”
 
-近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
+但正是这一沉默给这一悲剧蒙上了迷雾。人们从不同的报道读到这一事件与超级绿色护照的实行及停职有关，其中涉及到了国家这一层面的问题，这些问题也随之浮出水面。可能来自不同层面的压力促使“隐藏”自焚男子的身份，避免他通过社交渠道来表达对政府强制性疫苗政策的不满。这位男子的表弟就此事件写道：“ 虽然永远不会知道事件发生的真实目的，但这一事件不该成为人们 “ 争相报道”的主题。” 但要是政府的确应该为这一事件的发生负责的话，每个人都应该了解这一事件，不能总是保持沉默。不应让审查总是占上风。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
+原文链接：https://www.ilparagone.it/attualita/giallo-insegnante-si-da-fuoco-rende/
 
-据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
+编辑、上传：Xiao  baige
 
-
-
-相关链接:
-
-[Jake Tapper Announces CNN Will Focus on ‘Horrors’ Committed by China During Beijing Olympics](https://www.mediaite.com/tv/jake-tapper-announces-cnn-will-focus-on-horrors-committed-by-china-during-beijing-olympics/)
-
-![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿: Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,34 @@
 ---
 
 
-## 中共将奥运政治化，印度特使不会出席开幕式或闭幕式
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1952827/)
+## Meta股价大幅下跌震撼世界科技股
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1952828/)
 
-**作者：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-242.png)图片来源：[WION Youtube Channel](https://www.youtube.com/watch?v=VXf7c482y4k)
-**中共选择将奥运会政治化，印度特使不会出席北京冬奥会开幕式或闭幕式**
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-印度外交部（Ministry of External Affairs (MEA)）发言人阿林达姆-巴吉（Arindam Bagchi），在新闻发布会上说：“令人遗憾的是，中共选择将奥运会政治化，印度特使不会出席北京冬奥会开幕式和闭幕式”。
-
-据悉，北京决定让在与印度的加勒万河谷边境冲突中头部受伤的解放军团长齐法宝（Qi Fabao，音译）担任火炬手。
-
-**全球灭共全面开始**
-
-另外，郭先生，GETTR 2月3号称：尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害正在被更多的人认清真相，并且将带动全球病毒溯源，停止疫苗灾难的大运动……全球灭共全面开始！共产党你玩球蛋了！
-
-**抵制北京冬奥会国家不断增加**
-
-一年多的时间以来，抵制北京冬奥会国家不断增加，“全球灭共全面开始”，最终会有几个国家出席明天北京冬奥会开幕，让我们拭目以待。
-
-**参考链接：**
-
-1. [MSN: India to Boycott Beijing Winter Olympics After China Picked Galwan Solider as Torch-bearer](https://www.msn.com/en-in/news/other/indian-diplomat-in-china-to-boycott-beijing-olympics-over-china-picking-galwan-solider-as-torch-bearer/ar-AATqWN6)
-2. [WION: *India announces diplomatic boycott of Beijing olympics after Galwan soldier became torchbearer*. YouTube.](https://www.youtube.com/watch?v=VXf7c482y4k)
-3. [India Today: Indian diplomats to boycott Beijing Winter Olympics after China makes Galwan PLA soldier torchbearer.](https://www.indiatoday.in/india/story/indian-diplomats-in-china-to-boycott-beijing-winter-olympics-after-galwan-hurt-pla-officer-made-torch-bearer-1908335-2022-02-03)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_1082.jpg)
 
 
-**编辑：LILY**
+资料来源：路透社
 
-**发布：MQ**
+Facebook 所有者 Meta (FB.O) 股价周四下跌 26%，这可能是美国公司市值单日最惨重的跌幅，此前这家社交媒体巨头发布了令人沮丧的预测，指责苹果公司 (AAPL.O)隐私变化和竞争加剧。
 
-20220203
+Meta 市值蒸发超过 2000 亿美元的巨幅下​​跌波及更广泛的科技板块，并拖累纳斯达克综合指数 (.IXIC) 走低。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3.jpg)
+如果亏损持续，这将是该公司自 2012 年在华尔街首次亮相以来最大的单日亏损。
+
+Hargreaves Lansdown 的股票分析师劳拉·霍伊 (Laura Hoy) 表示：“Meta 首席执行官马克·扎克伯格 (Mark Zuckerberg) 可能热衷于哄骗世界进入另一个现实，但令人失望的第四季度业绩很快就打破了他的 Metaverse 泡沫。”
+
+美国以科技为重点的大型公司在 2022 年面临越来越大的压力，因为投资者预计，在经历多年的超低利率后，美联储收紧政策将削弱该行业的高估值。以科技股和成长股为主的纳斯达克指数 1 月份下跌超过 9%，这是自 2020 年 3 月冠状病毒引发的市场崩盘以来的最大月度跌幅。
+
+法国兴业银行驻伦敦策略师 Kenneth Broux 表示， “Meta 和其他公司下调盈利前景令市场感到意外，上午科技股抛售蔓延到更广泛的股票市场，随着美联储准备加息，我们可能会看到未来出现更多波动。
+
+随着苹果和微软等大型科技公司的估值在过去几年不断膨胀，它们也变得更容易受到投资者的抨击，通常在一天的交易中造成数百亿美元的损失。
+
+🔗[Meta股价大幅下跌震撼世界科技股](https://www.reuters.com/technology/meta-platforms-frankfurt-listed-shares-drop-tepid-forecast-2022-02-03/)
+
+责任编辑/发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

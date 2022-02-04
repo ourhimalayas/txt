@@ -2,10 +2,10 @@
 ---
 
 
-## 北京奥运会将成为中共国情报收集的金矿
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952754/)
+## 白宫发言人回答关于美国冬奥运动员在华安全问题
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1952758/)
 
-02/01/2022 众议院情报委员会成员布拉德·温斯特鲁普对联邦调查局警告奥运会期间的网络威胁作出反应： 北京奥运会可能成为中国的 “情报收集金矿”。
+02/01/2022 白宫发言人回答关于美国冬奥运动员在华安全问题
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

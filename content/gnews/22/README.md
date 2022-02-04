@@ -2,27 +2,43 @@
 ---
 
 
-## 加拿大《国家邮报》：多数加拿大人希望终止所有防疫限制，人们正在觉醒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1952919/)
+## CNN表示会在北京冬奥会期间关注中共新疆大屠杀
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1953018/)
 
-#### 加拿大温哥华扬帆农场 枫叶快讯
+作者: 银河系农场 – 骄子
 
-采编：Spirit
 
-编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6D051114-F463-4514-94CA-0EE77190FAC8_1_201_a.jpeg)ttutu p图片来源：nationalpost
-据加拿大《国家邮报》2月1日报道，最新民意调查显示，随着“奥密克戎”疫情的逐渐消退，多数加拿大人都希望取消现行的各项强制性防疫政策，以尽快恢复正常的生活。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-加拿大舆论研究机构[里德研究所]日前公布的民调结果显示：54%的受访者同意结束所有的疫情限制，32%的人表示强烈支持。同时，疫苗护照计划已开始在各省级政府间出现较大的分歧。对此，萨省省长斯科特近日宣称，即将停止该省的疫苗护照政策。
 
-该研究报告指出：如果加拿大已度过了疫情的最危急时期，那么公众民意将会逐渐朝着开放社区的方向发展。
+近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
 
-发稿：青青
+据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
 
-原文链接：[https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll](https://nationalpost.com/health/a-slim-majority-of-canadians-say-its-time-to-remove-covid-19-restrictions-poll)
 
+
+相关链接:
+
+[Jake Tapper Announces CNN Will Focus on ‘Horrors’ Committed by China During Beijing Olympics](https://www.mediaite.com/tv/jake-tapper-announces-cnn-will-focus-on-horrors-committed-by-china-during-beijing-olympics/)
+
+![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑/校对/发稿: Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
