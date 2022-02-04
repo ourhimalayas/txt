@@ -2,35 +2,29 @@
 ---
 
 
-## 冬奥会开幕令北京市公安局如临大敌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1954676/)
+## “大鲨鱼”奥尼尔表示，反对疫苗强制接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1954729/)
 
-作者：东京樱花团丨捆绑CCP一千年
+**整理报道：**波澜壮阔
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-01-27-at-1.01.18-PM-2048x1065-1.png)图片来源：Mediaite
+美国时间2022年2月4日，NBA的传奇人物——“大鲨鱼”沙奎尔·奥尼尔（Shaquille O’Neal）在他的一档播客节目（The Big Podcast with Shaq）中发言表示，反对疫苗强制接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/冬奥会开幕令北京市公安局如临大敌.png)
+奥尼尔称，他反对中共病毒（COVID-19）疫苗的强制接种，并主张“身体自主”。他对观众说：“听着，我鼓励大家注意安全，照顾好自己的家人，我也是这么做的。但是（世上）仍有一些人不愿意接受疫苗。你不应该被强迫接受你不想要的东西”。
 
-**中共国冬奥会如临大敌，北京市公安局一面强调“四个自信”，一面要求监控所有可能的威胁区域。而国际社会继续谴责中国共产党的种族灭绝罪，并在中共病毒（奥密克戎）侵蚀下继续举办冬季奥运会，将反人性的审查和逆自然气候的做法强加给运动员，严重违反“奥林匹克精神”。美国众议院议长警告美国运动员谨防中国共产党的人身伤害。**
+奥尼尔说，虽然他并不反对疫苗，但人们不应该在保住工作和接种疫苗之间做出选择。与奥尼尔一起参与播客的客人是来自与哥伦比亚广播公司的记者尼斯切尔·特纳（Nischelle Turner），特纳认为疫苗授权并不强迫人们接种疫苗，而奥尼尔则坚持认为他们是在强迫人们接种。奥尼尔说：“这就是强迫。因为如果这个人不接受，他就会被解雇”。
 
-据中共国新华社北京时间4日下午消息，2022年北京冬奥会开幕式将于晚八点举行。北京市公安局在新中国联邦宣战下如临大敌，设立北京冬奥“联合作战指挥中心”，[市委书记李鸿忠对冬奥安保作战中心实地考察](http://tj.news.cn/gov/tjld/2022-02/04/c_1128328709.htm%0a%0a)，要求“对涉疫地区、重要进京交通卡口、重点商贸街区等实时画面监控”。
+这位NBA传奇人物的言论得到了整个社交媒体的赞扬，在持有相同观点的人不敢反对主流说法的情况下，奥尼尔说出了自己的真实观点。
 
-李鸿忠在调研检查中指出，举世瞩目的重要历史节点的冬奥会作为重大标志性活动，是展示中共国政党形象的舞台。要严格守住天津作为首都的东大门。全面践行习近平的“四个意识”、坚定“四个自信”、捍卫“两个确立”、做到“两个维护”、牢固树立底线思维和风险意识，强化全市公安指挥系统，突出管控重点，强化矛盾纠纷排查化解，[切实将问题解决在萌芽状态](https://baijiahao.baidu.com/s?id=1723754607092947578&amp;wfr=spider&amp;for=pc&amp;searchword=%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E8%81%94%E5%90%88%E4%BD%9C%E6%88%98%E6%8C%87%E6%8C%A5%E4%B8%AD%E5%BF%83)。
+**新闻链接：**[Shaquille O’Neal Says COVID-19 Vaccines Should Not Be Forced](https://www.si.com/extra-mustard/2022/02/04/former-lakers-star-shaquille-oneal-says-covid-19-vaccines-should-not-be-forced)
 
-- ***延展阅读：***[***美国花样滑冰团体赛的第一天领先。南希佩洛西警告美国运动员不要在周五的开幕式上抗议***](https://www.nytimes.com/live/2022/02/03/sports/olympics-winter-beijing)
+*发布：翼族*
 
-
-- ***延展阅读：***[***今晚白宫点亮红、白、蓝色灯光支持美国冬奥运动员代表国家出征北京***](https://twitter.com/WhiteHouse/status/1489410131674677250?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1489410131674677250%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cnn.com%2Fworld%2Flive-news%2Fbeijing-winter-olympics-2022-opening-ceremony-spt-intl-hnk%2Findex.html)***！***
-
-
-从冬奥安保强调的“四个自信”可见其不自信程度已经到了如同惊弓之鸟一般恐惧程度。中共很清楚，国际社会对中共国政府的主要三大犯罪指控包括世界有目共睹的“**种族灭绝”**的指控：奥运会东道国对维吾尔人和其他穆斯林少数群体的人权侵犯“有系统地试图摧毁维吾尔人”的种族灭绝犯罪指控。其次是“**政治犯**”：对维吾尔人的严厉对待并不是中国对人权的唯一批评，主要是备受瞩目的系统性、有目的地针对香港的政治犯罪、和禁止运动员发表政治声明、威胁要惩罚外国运动员。严重侵犯《奥林匹克宪章》。再有就是“**违背奥林匹克精神**”：中共国走得更远，中国共产党扭曲奥林匹克精神，将“任何违背中共国虚假的”法律法规“的行为或言论视为违背奥林匹克精神，特别是要受到一定的惩罚。
-
-对于威权主义共产中国一贯地侵犯人权行为，美国众议院议长南希佩洛西警告美国运动员说：“[你是来比赛的，不要冒险招致中共政府的愤怒，因为他们是无情的](https://sports.yahoo.com/2022-olympics-nancy-pelosi-urges-athletes-not-to-protest-to-avoid-angering-the-chinese-government-014944305.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAGwqBcmXymobGJVySyOWAuIkn5hII4msutw0RE6uV9XaIcL6YVY1r44JRTcEvYST-mT3SSw7fXhHdwNCByMynSGMHEZdMFJoGPe-21F1e8L75kXUodNaH7GpUAl9guxbffIWK59nFohwHdecziiVtM7AoNX0T7ylCIg0g3YQn6Rf)，”佩洛西周四对国会中国执行委员会说，“我知道有些人会在那里时说出来，我尊重但我也担心中共政府可能会诋毁他们的名誉和他们的家人。”
-
-2022年2月4日
-
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
