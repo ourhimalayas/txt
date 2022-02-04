@@ -15,125 +15,125 @@
 
 ---
 
-### [有声|中共国男足再次无缘世界杯](/content/gnews/1/README.md)
+### [数据显示，新冠疫苗接种率高的国家死亡率飙升](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [以色列开展第四针疫苗以来 近28天感染率火箭式飙升](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
+
+### [秘翻在线 : 社交媒体巨头Facebook 遭遇历史上最大的股价暴跌](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|美智库专家：中共试图通过笼络美国精英击败美国](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [MV版Hcoin To the Moon上线57天第44次位列澳门iTunes热门MV榜首](/content/gnews/2/README.md)
+### [秘翻在线：中共将奥米炕变种起源甩锅给老鼠](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西媒头条 — 第166期 – 西媒看天朝](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|中共国男足再次无缘世界杯](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [MV版Hcoin To the Moon上线57天第44次位列澳门iTunes热门MV榜首](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美军突袭叙利亚 伊斯兰国领导人自爆身亡](/content/gnews/3/README.md)
+### [“甜蜜蜜”把北京冬奥会变成“冬眠会”](/content/gnews/9/README.md)
+ ` MilesGuoLivePPT`
+
+### [美军突袭叙利亚 伊斯兰国领导人自爆身亡](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Facebook前员工警示澳洲 需警惕Facebook假消息干预大选](/content/gnews/4/README.md)
+### [Facebook前员工警示澳洲 需警惕Facebook假消息干预大选](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [百姓被玩死](/content/gnews/5/README.md)
+### [数千人在华盛顿集会，反对疫苗强制接种](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [百姓被玩死](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [有声|封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/6/README.md)
+### [有声|封锁与疫苗被证实无效 政府应向民众致歉](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [中领馆前多个人权团体游行 痛批北京冬奥为种族灭绝运动会](/content/gnews/7/README.md)
+### [中领馆前多个人权团体游行 痛批北京冬奥为种族灭绝运动会](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [制造疫苗的mRNA是毒](/content/gnews/8/README.md)
+### [制造疫苗的mRNA是毒](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [有声|索罗斯称中共房地产热潮将全面告终](/content/gnews/9/README.md)
+### [有声|索罗斯称中共房地产热潮将全面告终](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [数字货币与世界的经济（二）](/content/gnews/10/README.md)
+### [数字货币与世界的经济（二）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [喜马拉雅山上有一个猪的山](/content/gnews/11/README.md)
+### [喜马拉雅山上有一个猪的山](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [【爆料革命大事记】上百个国际机构开始制裁中共高官海外资产；冬奥会变成冬眠会！](/content/gnews/12/README.md)
+### [【爆料革命大事记】上百个国际机构开始制裁中共高官海外资产；冬奥会变成冬眠会！](/content/gnews/20/README.md)
  ` 新西兰农场【光影传镜】`
 
-### [数字货币与世界的经济（一）](/content/gnews/13/README.md)
+### [数字货币与世界的经济（一）](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦得神助助](/content/gnews/14/README.md)
+### [新中国联邦得神助助](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [习近平与曾庆红之战](/content/gnews/15/README.md)
+### [习近平与曾庆红之战](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [喜币的设计之牛](/content/gnews/16/README.md)
+### [喜币的设计之牛](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [预判是跆拳道的精髓,也是政治斗争最高端的能力（二）](/content/gnews/17/README.md)
+### [预判是跆拳道的精髓,也是政治斗争最高端的能力（二）](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [“甜蜜蜜运动＂是全球性和平灭共政治运动](/content/gnews/18/README.md)
- ` 纽约香草山MOS03`
-
-### [西媒头条 — 第166期 – 西媒要闻](/content/gnews/19/README.md)
+### [西媒头条 — 第166期 – 西媒要闻](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普京抵达北京参加冬奥会 与中共国达成天然气供应协议](/content/gnews/20/README.md)
+### [普京抵达北京参加冬奥会 与中共国达成天然气供应协议](/content/gnews/27/README.md)
  ` Shuizhuyu`
 
-### [新中国联邦正研发、测试根除中共病毒和疫苗的解药](/content/gnews/21/README.md)
- ` DC政经`
-
-### [“这个世界不要俺了”](/content/gnews/22/README.md)
+### [“这个世界不要俺了”](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [美国数千名军人建脸书群，反对疫苗强制令](/content/gnews/23/README.md)
+### [美国数千名军人建脸书群，反对疫苗强制令](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自由的支付系统(HPAY)](/content/gnews/24/README.md)
+### [自由的支付系统(HPAY)](/content/gnews/30/README.md)
  ` 银河勇气之星`
 
-### [俄罗斯和中共国达成以欧元结算为期 30 年的天然气协议](/content/gnews/25/README.md)
+### [俄罗斯和中共国达成以欧元结算为期 30 年的天然气协议](/content/gnews/31/README.md)
  ` Shuizhuyu`
 
-### [辉瑞公司的有毒新冠病毒药片](/content/gnews/26/README.md)
+### [辉瑞公司的有毒新冠病毒药片](/content/gnews/32/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [肯尼亚航空公司在费城事故后将停运实验猴](/content/gnews/27/README.md)
+### [肯尼亚航空公司在费城事故后将停运实验猴](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [没有中间商](/content/gnews/28/README.md)
+### [没有中间商](/content/gnews/34/README.md)
  ` 骄子`
 
-### [“大鲨鱼”奥尼尔表示，反对疫苗强制接种](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [印度政府宣布不派官方代表团参加北京冬奥开闭幕](/content/gnews/30/README.md)
+### [印度政府宣布不派官方代表团参加北京冬奥开闭幕](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [商品保鲜期](/content/gnews/31/README.md)
- ` 骄子`
-
-### [美国众议院《中国竞争法案》将于本周通过](/content/gnews/32/README.md)
+### [美国众议院《中国竞争法案》将于本周通过](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以色列终止大多数地方的中共病毒疫苗护照](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [江苏连生八子被囚女事件遭封杀 政府辟谣遭网友质疑](/content/gnews/34/README.md)
+### [江苏连生八子被囚女事件遭封杀 政府辟谣遭网友质疑](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [俄罗斯威胁入侵，美国军事援助抵达乌克兰](/content/gnews/35/README.md)
+### [俄罗斯威胁入侵，美国军事援助抵达乌克兰](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共不顾运动员“喷井”式感染新冠病毒，强行举行冬奥开幕式](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [灭共是新中国联邦不变的目标](/content/gnews/37/README.md)
- ` G-NEWS TAIWAN`
-
-### [五月花简报（02/03/2022）](/content/gnews/38/README.md)
+### [五月花简报（02/03/2022）](/content/gnews/39/README.md)
  ` mayflowertranslate`
 
-### [“这比体育更重要”NBA明星立法者站出来抵制中共国奥运会](/content/gnews/39/README.md)
+### [“这比体育更重要”NBA明星立法者站出来抵制中共国奥运会](/content/gnews/40/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [突然病死的那些熟悉面孔——体育篇](/content/gnews/40/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [联合国与中共串通 冬奥会结束前不发布新疆人权报告](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

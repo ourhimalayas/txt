@@ -2,23 +2,26 @@
 ---
 
 
-## 【爆料革命大事记】上百个国际机构开始制裁中共高官海外资产；冬奥会变成冬眠会！
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/1955046/)
+## 数千人在华盛顿集会，反对疫苗强制接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955123/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E5554E76-2F41-4D5A-ADAA-B9919F911C90.jpeg)
-爆料革命大事记 「20220126」
+##### 翻译：Frank
+校对：Lish
+剪辑|字幕：向上James
+编辑：Mttfly
 
-美东时间1月26日下午，最起码100多个国际金融机构，30几个大的NGO的合法公共机构，开始制裁中共高官资产，查封所有海外资产。有大政治家承诺七哥，会不惜一切代价惩罚中共。
+据福克斯新闻1月24日报道，数千美国公民来到华盛顿纪念碑，举行反新冠疫苗强制接种大集会。人们高呼取消强制令。集会者表示，强制接种是不正确的，公民有选择的自由。人们来这里参加这场大游行是为自由而战，也是为了家庭还有自己的身体的决定权而战。
 
-不断不交就是抽筋， 查封资产就是放血。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/877886C8-2CD7-47F9-84C5-A12B5D5E21EF.jpeg)
-爆料革命大事记 「20220121」
+视频链接：[Thousands rally in DC to oppose COVID-19 vaccine mandates, demand ‘freedom’](https://www.foxnews.com/politics/thousands-rally-in-d-c-to-oppose-covid-19-vaccine-mandates-demand-freedom)
 
-西方世界和中共的政治经济脱钩今天开始！昨天下午，欧盟可能会有最低3-4个国家永久关闭中共国大使馆，而且英法德这几个大国很可能会参加这样的决定！美国可能会抢着干，因为谁先干，谁就代表着自由世界的老大。习近平大怒，认为被上海帮玩弄了。只要这一刻发生，就意味着政治，经济双脱钩。全世界没有选择，政治上只能和新中国联邦，经济只能和喜联储挂钩！冬奥会对共产党的打击巨大，冬奥会变成冬眠会！
-
-图文设计：新西兰农场设计组战友作品
-
-上传：天赐良闻
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

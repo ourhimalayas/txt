@@ -2,25 +2,39 @@
 ---
 
 
-## 预判是跆拳道的精髓,也是政治斗争最高端的能力（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954988/)
+## 有声|索罗斯称中共房地产热潮将全面告终
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955070/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/预判是跆拳道的精髓，也是政治斗争最高端的能力（二）-.jpg)
-为什么预判啊？这个预判是功夫里面最牛的。所以说我打架的时候，基本上是我这一开始一看对方，我基本上我是动作已经设计完了。我打的时候脚上面是手一挡，主要手是两扇门，全凭腿打人。我相信这个绝招。我就靠我的腿。听到这方我的手“啪”挡啦，啪啪几下倒下，而且绝对是绝不留情。
+配音：香草山佛教部 – 李傻
 
-那么在这个政治这个斗争当中，最高端高手是预判。预判的前提是你有真有这个能力，你预判到了人家，人家大腿已经替你脑袋上了，你根本打不过去，你不被撂倒了嘛。当时Q组织，你知道我们最核心的几个战友，他相信的Q组织，那Q组织100%是美国和共产党之间较量的一个平台，而且绝对是共产党控制的一个造谣平台，这是一点都不容置疑的。这就够了，他这一出手就知道拉什么屎，何况他已经拉出了。所以咱们战友们这次的很重要，这是4年前设的局。
 
-2022年1月12日大直播
 
-发布：星谕
+1月31日，据当地媒体消息显示，索罗斯在一份演讲中指出，中共国的房地产行业将因当地开发商的一系列债务违约及土地和公寓的价格下跌而深受打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-1.jpg)
+索罗斯认为，中共的房地产热潮一直以来都是基于“竭泽而渔”的模式，而这种模式让地方政府尝到了好处。为此，他们鼓惑中国老百姓将自己大部分的积蓄投资于房地产行业。 但是，随着房地产热潮的告终及政策的转变，这种模式将使中共政府面临巨大的经济危机。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+相较于索罗斯仅仅谈及的有关中共房地产的皮毛问题，郭文贵先生曾在直播中爆料并分析称，中共国的房地产是中共当局精心设计的“庞氏骗局”，其目的在于帮助中共盗国贼家族利用信托骗局和影子金融盗取国家财富。
+
+据郭先生透露，当前高额的信贷利息足以使中共的整个房地产业全然倒闭。而当中共国的房地产和与之相关的银行、保险等行业全部崩溃之时，共产党集团中将有一半的人都会陷入经济困境之中。最后，中共国老百姓所有的房、车和银行存款等都将灰飞烟灭。
+
+文字版原文：[索罗斯称中共房地产热潮将全面告终](https://gnews.org/zh-hans/1951647/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
