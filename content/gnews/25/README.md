@@ -2,35 +2,31 @@
 ---
 
 
-## 普京借冬奥割中共韭菜 将签天然气与金融合约
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953514/)
+## 美参议员提出修订《反海外腐败法》，扩大腐败定义
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1953574/)
 
-作者：香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，俄罗斯总统普京的幕僚鄂夏柯夫表示，普京在出席冬奥期间将与中共习近平会面，届时将签署天然气、金融合作等15项协议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10.png)
-天然气方面，双方已有多项的新合约准备签署。 金融上则是俄中希望合作，筹建能抵抗被金融制裁的基础架构。
+![资料图：在美国国会参议院外交关系委员会听证会上，美国共和党籍参议员鲁比奥向美国国务卿安东尼·布林肯提问 （2021 年 9 月 14 日）](https://gdb.voanews.com/E101692E-13EF-4B94-8207-21844543C183_w1023_r1_s.jpg)资料图: 美国国会共和党参议员鲁比奥
+据美国之音2月4日报道，美国国会共和党参议员鲁比奥3日提出一项法案，要求修订美国的《反海外腐败法》(FCPA)，扩大对腐败意图的定义，将美国企业或在美国上市的企业帮助中共政府否认或辩解种族灭绝等侵害人权的行为纳入其中。
 
-此次跟随普京参与协商的俄罗斯代表团成员，将包括外交部长拉夫罗夫、能源部长舒尔吉诺夫和能源业巨擘俄罗斯石油公司的执行长谢琴。 观察人士认为，此安排显示出普京借有条件出席冬奥会的机会，将在能源交易上大割中共韭菜的意图。
+《反海外腐败法》是美国1977年出台的法律，旨在禁止美国企业、个人或发行人在海外市场以现金、礼物或其他有价之物行贿外国官员。鲁比奥要求扩大对腐败意图的定义，以下行为也纳入其中：协助否认、混淆或辩解发生在新疆或中共国的种族灭绝、暴行和其他严重侵犯人权的行为以及拘押维吾尔穆斯林和少数族裔团体的行为；支持中共外交政策，包括非法领土主张和“一带一路”；支持拥护中共或者中共官员个人；或投资中共政府或中共支持的特定行业。
 
-参考链接：
+美国大型电子科技公司和媒体巨头，如亚马逊、苹果、微软、特斯拉、英特尔、推特、脸书等，都和中共深度合作。美国公司在中共国的贿赂行为不一定是金钱的，比如雇佣中共官员的子女，为了保护在中共国的市场份额而俯首听命于中共政府。现在的《反海外腐败法》不能约束这种行为，需要细节化。制裁海外公司对中共的经济支持、打击中共的经济、能从根本上动摇其统治。斩断了经济血脉，中共的生存就会面临危机。
 
-- [蒲亭冬奧與習近平會談 俄中擬簽天然氣金融協議](https://www.cna.com.tw/news/aopl/202202020170.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+新闻参考链接：[https://www.voachinese.com/a/senator-rubio-introduces-corruption-bill-20220203/6425552.html](https://www.voachinese.com/a/senator-rubio-introduces-corruption-bill-20220203/6425552.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-总编: 文特
-编辑：Lakeman文仁
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

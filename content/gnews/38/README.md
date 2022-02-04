@@ -2,36 +2,56 @@
 ---
 
 
-## 突发新闻：纽约护士爆料。录音揭示给儿童、低收入和无家可归的成年人注射的COVID-19 疫苗可能存在管理不善的情况
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1953016/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-作为一名护士尽职尽责地保护患者。但一些人被注射了错误稀释剂地新冠疫苗，医院主管们对此毫无头绪。 辉瑞对于任何关于新冠疫苗地信息都不透明。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-盐水，上面是什么颜色？确保它是正确的 [稀释剂]。有些人收到的是错误的[稀释剂]。他们在小瓶、袋子里看到的是[抑菌水]。他们就像，哦，这不是盐水。
+**George Soros**
+**乔治·索罗斯**
 
-但是当他们联系到主管时，其他团队已经给人接种了疫苗。哦，带着抑菌水的（疫苗）。是的，带着抑菌水的（疫苗）。哦，我的天啊！他们不知道 [抑菌水] 是否可以抵消 [COVID 疫苗]，或是不是有副作用。
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-辉瑞代表：“尚未对任何其他稀释剂进行过研究。” 辉瑞代表：“所以，不幸的是，还没有相关的信息关于它是否会抵消疫苗或对它有任何影响，”
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-他们[团队] 给我发了一张照片。我当时想，“马上给他们打电话，告诉他们不能把那个 [抑菌水] 和那个[COVID 疫苗] 混合。” 一旦他们给主管打电话，他们就不得不同时给其他团队打电话。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-他们已经开始给人打含有抑菌水的疫苗了。是的。这种意外发生在孩子身上的事故是怎样的？它从未被报道过。他们是否必须要告诉某些人或任何接种过疫苗的孩子？
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
-老实说，这家公司，据我了解。可能不会。他们不透明。所以，他们不会听。他们是什么？他们对任何事情都不透明。
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
 
-为了赶紧让每个人都接种疫苗，纽约与 DocGo 及其子公司 Ambulnz 签约。在全纽约提供 COVID 疫苗诊所。他们应该有事故报告，没有吗？哦，那当然。那是任何人都应该做的。
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
 
-我从 2006 年开始在儿科领域工作。我申请了一份疫苗管理工作。所以，他们 [主管] 决定在 7:36 给我打电话。这意味着有人可能已经接种了疫苗。 所以，你 [主管] 等到 7:36 给我打电话告诉我，这可能是错误的事情？
+that has had disastrous consequences
+这带来了灾难性的后果
 
-我们从未得到过在职培训。作为一名管理任何疫苗的护士，都要遵守一些工作指引。每个进入我们公司的人都要经过培训。理论与实践相结合我们不相信给儿童注射的疫苗里面含有抑菌水。
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
 
-我们遇到过这样的情况，即人们从我们的仓库中提取了错误的溶液。但通常货一到他们就会发现然后我们就给换货。
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
 
-我没有收到过这种情况的报告。我仍然认为这种事情没有发生。我仍然不认为我们犯了那个错误。我的意思是，我认为我们是一个非常有道德的公司。我们非常注重做正确的事。
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-每个人都有和我一样的抱怨。作为一名护士，保护你的病人是你应尽的职责。
-
-视频剪辑/听写：中年少女 | 翻译 ：中年少女| 校对：Polaris |视频制作+字幕：小腾腾说 | 编辑：FiLa文新心 | 发布：断播
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

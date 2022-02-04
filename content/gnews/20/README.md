@@ -2,40 +2,27 @@
 ---
 
 
-## 美中脱钩 中共科技业被打回原形
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953532/)
+## 2.02大直播后记：文贵帮助黄梅戏女演员上央视春晚
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953670/)
 
-作者：香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，媒体发表了一篇中共北京大学有关美中脱钩后影响的研究报告。报告指出，中共在芯片制造、人工智能及IT产业上受到巨大打击，在吸引人才及获取高端技术方面面临极大障碍，将严重阻碍高科技业的发展。
+整理：雅典娜速记组
+编辑：朝花夕拾
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-1.png)
-
-由于在芯片制造、人工智能及IT产业等关键技术上，美中已经实质上脱钩。中共再也无法继续盗取美国的高科技技术，只能在技术含量低或附加值低的行业上苟延残喘。
-
-吸引人才方面，中共国56%本地培养的人才移居去了美国，而88%在美国深造的留学生，选择留在美国工作。由此造成了科技人才培养的断层，使中共的科技界很难有突破性的新发展。
-
-除此之外，美国的脱钩战略还包括组建“科技民主联盟”以孤立中共，让中共无法绕过美国从其他国家获取关键人才技术及零部件。该策略将完全断绝中共与科技先进国家交流的渠道道，等于阻断了中共的科技血脉。美国的这些脱钩策略正在逐渐发酵，扼死中共科技产业。
-
-参考链接：
-
-- [洗臉戰狼！北大：中國晶片業被美打趴 只能做低階](https://ec.ltn.com.tw/article/breakingnews/3818675)
-- [北大報告：美中脫鉤 中國科技業陷入嚴重瓶頸](https://www.cna.com.tw/news/acn/202202020111.aspx)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)图片来源：墨尔本雅典娜农场设计组614
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+当时有一个黄梅戏的故事我记得特别清楚，有位黄梅戏的女演员要上中央电视台，找了一圈人，被骗了好几回。用她原话说，你说我也不小了，二十七八的人了，跟好几个男人睡过了，结果最后就给我一句话，所谓的中央领导有批示，黄梅戏今年不上，不让我上了。最后找了七哥我了，我找中央电台台长赵化勇。我说：“赵化勇，你为啥啊，你们把人都睡好几回了，你不让人家上。”就赵化勇给我说一句话，他说不是不让黄梅戏表演，有黄梅戏呀，那个年青漂亮的，也找了大领导了，我说找谁了，找丁关根啊。我说丁关根就把你们这都睡完了，人家节目弄好你不让加上，最后说你是想让她上，还是不让她上吧，我说我没有任何的交易啊，我文贵也不会跟她上床。我说想上也不用说给你，到你这儿来，原因是人家太可怜了，他说你等我消息。结果赵化勇说了句话，她得出钱。那个时候拿一百万、五百万很大钱的，我说要多少钱吧，张口一千万，就像今天要一个亿一样。一千万我说你们真的狠，要一千万可以买5套房子，那时候都不止，能买10套房子。跟黄梅戏这姐妹一介绍，她说：“我给呀，我给。”我说你哪来的钱啊？她说，我在我当地多睡几个地产商呗，没问题，我先借，我没那么多钱，我有个四五百万，我先弄。你说这件事情对我触动的是什么，你知道吗？中国女人啊，就要达到目的时候，就是真的是卖房子卖瓦她都要干。最后我说你钱不用拿，你肯定能上中央联欢晚会，我说就干一件事儿，你最多找你当地的安全部门领导开个信，说这姐们儿替国家安全做贡献， 在海外团结海外所谓的海外领导，做过特殊贡献，你开封信，最后她就真找了当地的安全部门政法给她开了信。 哇塞，我给她杵上去了，我说人家这是对国家有特殊贡献，是不是啊，他说那具体的，我说具体的不能说国家机密，最后她上春晚了。你们看看当年黄梅戏她上去，本来唱一段最后唱了三句，就这三句话折腾了她两年，但是她的黄梅戏唱的还是不错的。
 
-总编: Irene木木
-编辑：谐趣园
-校正/发稿：海阔天空1
+资料来源：郭先生GTV、盖特直播
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

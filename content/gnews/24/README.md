@@ -2,39 +2,19 @@
 ---
 
 
-## 参赛运动员准备抵制北京冬奥会开闭幕式
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953515/)
+## 郭文贵先生以灭共的雪狙击中共冬奥会主打歌曲塞北的雪
+` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1953640/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据2月2日外媒报道，2月4日冬奥会开幕式在北京正式举行时，除了一些国家的政府官员和观众不见踪影外，来自多国的参赛运动员也在准备抵制开幕式和闭幕式，以声援遭受中共人权侵犯的受害者。
+在2022年中国虎年春节联合晚会当晚，著名的中国异议人士郭文贵先生在美国与中国中央电视台打擂台，现场演唱由《塞北的雪》改编的《灭共的雪》，据称《塞北的雪》是很快在中共国召开的冬奥会的主打歌曲。郭文贵先生此举甚为惊人，会让中共措手不急、骑虎难下。紧急换曲《塞北的雪》会给选曲、彩排等带来巨大的困难，继续采用《塞北的雪》，《塞北的雪》更名的《灭共的雪》又会向中国民众潜移默化地宣传中共的虚假与丑恶，唤起人们的反抗意识。此曲的出炉除了显示了郭文贵先生的智慧，也显示了郭文贵先生背后的强大力量，他有多方情报来源，可以准确狙击中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-1.png)
+此前，郭文贵先生创造了多个音乐界的奇迹，郭文贵先生作为中国著名的企业家，原本是完全的音乐外行人，但其《沧海一声笑》、《酒灭中共》、《Dear Mama》、《马背英雄》、《H-Coin to the moon》等歌曲长期占据各国音乐榜榜首，这堪称音乐史上的奇迹。
 
-数月以来，一些活动人士一直在与几个西方国家的奥运运动员会面，敦促他们就中共对维吾尔人、藏人、香港人和中共国境内其他群体的大规模迫害发表意见，至少可以拒绝出席开幕式、闭幕式。据悉，至少有两支西方球队的运动员确认他们将不参加开幕式，作为个人抗议的形式。但具体参与抵制的运动员人数尚不清楚。
+郭文贵先生的歌曲对中国共产党发出了最强烈的控诉，并且坚定表达了消灭中国共产党的决心。郭文贵先生的歌曲引起了全球痛恨中共人士的强烈共鸣，所以在全球引发了广泛的关注。郭文贵先生的歌曲也对音乐创作有深刻的启示，音乐不仅仅可以倾诉风花雪月，男女情爱，更需要关注广泛的社会现实，鞭挞社会的假丑恶，呼唤人间的真善美。只有从人内心深处发出的最自由、最真诚的声音才能具有广泛的关注，永恒的价值。
 
-另外，美国政府一直在提示本国运动员注意个人信息的泄露，并派出安保人员随队进驻，还与奥委会签署谅解备忘录，以在美国公民被拘留或骚扰的情况下促进合作。而中共政府也非常担心出现抵制开闭幕式的行为，正努力向各方施加压力。
+作者：华盛顿DC农场 海阔天空
 
-评论人士指出，北京冬奥会在一个被指控犯有种族灭绝和反人类罪行的国家举行，是奥运史上巨大的耻辱。任何抗议暴行的运动员，即使只是远离开幕式，也是在捍卫世界人权。他们值得敬佩、保护和支持。
+查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
 
-参考链接：
-
-- [Olympic athletes are getting ready to boycott the opening ceremony in Beijing](https://www.washingtonpost.com/opinions/2022/02/02/olympic-athletes-preparing-boycott-opening-ceremony-winter-olympics-beijing/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: 文特
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
