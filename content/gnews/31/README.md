@@ -2,26 +2,31 @@
 ---
 
 
-## 普京借冬奥割中共韭菜 将签天然气与金融合约
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953514/)
+## 美国人权观察组织研究员获聘港大 港府拒发签证
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953531/)
 
-作者：香草山医疗部 – 云豹
+作者：台湾宝岛农场 – 斗阵来拼
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，俄罗斯总统普京的幕僚鄂夏柯夫表示，普京在出席冬奥期间将与中共习近平会面，届时将签署天然气、金融合作等15项协议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10.png)
-天然气方面，双方已有多项的新合约准备签署。 金融上则是俄中希望合作，筹建能抵抗被金融制裁的基础架构。
+2月1日, 获香港大学续聘任教的“人权观察”组织性别平权研究员、美国法学学者索瑞逊表示，他于5个月前开始申请入港签证，但近日遭港府拒发签，他也因此失去了港大的教职。
 
-此次跟随普京参与协商的俄罗斯代表团成员，将包括外交部长拉夫罗夫、能源部长舒尔吉诺夫和能源业巨擘俄罗斯石油公司的执行长谢琴。 观察人士认为，此安排显示出普京借有条件出席冬奥会的机会，将在能源交易上大割中共韭菜的意图。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-2.png)
+
+“人权观察”组织是一个国际非政府组织，以调查、促进人权问题为宗旨，总部设在美国纽约，屡次批判中共国违反人权的记录，包括在香港镇压民主运动。
+
+该组织的中共国分部主任李察逊表示：“香港当局拒发签证给学者之举，目的就是要将学术机构‘习近平化’，实在令人失望”。
+
+香港政府的行为已引发国际关注，并将再度重创香港学术自由重镇的声望。
 
 参考链接：
 
-- [蒲亭冬奧與習近平會談 俄中擬簽天然氣金融協議](https://www.cna.com.tw/news/aopl/202202020170.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [人權觀察研究員獲聘任教港大 遭港府拒發簽證](https://www.cna.com.tw/news/aopl/202202020132.aspx)
+- [人權觀察研究員獲聘任教港大 遭港府拒發簽證](https://news.ltn.com.tw/news/world/breakingnews/3819300)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: 文特
-编辑：Lakeman文仁
+总编: Irene木木
+编辑：谐趣园
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

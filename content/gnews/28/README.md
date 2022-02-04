@@ -2,40 +2,33 @@
 ---
 
 
-## 美中脱钩 中共科技业被打回原形
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953532/)
+## 2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1953550/)
 
-作者：香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，媒体发表了一篇中共北京大学有关美中脱钩后影响的研究报告。报告指出，中共在芯片制造、人工智能及IT产业上受到巨大打击，在吸引人才及获取高端技术方面面临极大障碍，将严重阻碍高科技业的发展。
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-1.png)
-
-由于在芯片制造、人工智能及IT产业等关键技术上，美中已经实质上脱钩。中共再也无法继续盗取美国的高科技技术，只能在技术含量低或附加值低的行业上苟延残喘。
-
-吸引人才方面，中共国56%本地培养的人才移居去了美国，而88%在美国深造的留学生，选择留在美国工作。由此造成了科技人才培养的断层，使中共的科技界很难有突破性的新发展。
-
-除此之外，美国的脱钩战略还包括组建“科技民主联盟”以孤立中共，让中共无法绕过美国从其他国家获取关键人才技术及零部件。该策略将完全断绝中共与科技先进国家交流的渠道道，等于阻断了中共的科技血脉。美国的这些脱钩策略正在逐渐发酵，扼死中共科技产业。
-
-参考链接：
-
-- [洗臉戰狼！北大：中國晶片業被美打趴 只能做低階](https://ec.ltn.com.tw/article/breakingnews/3818675)
-- [北大報告：美中脫鉤 中國科技業陷入嚴重瓶頸](https://www.cna.com.tw/news/acn/202202020111.aspx)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2.png)
+校对：Stay文苑
 
-总编: Irene木木
-编辑：谐趣园
-校正/发稿：海阔天空1
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6](https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6)
+访谈：[https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf](https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

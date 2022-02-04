@@ -2,32 +2,18 @@
 ---
 
 
-## 2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1953550/)
+## 郭文贵先生以灭共的雪狙击中共冬奥会主打歌曲塞北的雪
+` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1953640/)
 
-作者：香草山翻译部
+在2022年中国虎年春节联合晚会当晚，著名的中国异议人士郭文贵先生在美国与中国中央电视台打擂台，现场演唱由《塞北的雪》改编的《灭共的雪》，据称《塞北的雪》是很快在中共国召开的冬奥会的主打歌曲。郭文贵先生此举甚为惊人，会让中共措手不急、骑虎难下。紧急换曲《塞北的雪》会给选曲、彩排等带来巨大的困难，继续采用《塞北的雪》，《塞北的雪》更名的《灭共的雪》又会向中国民众潜移默化地宣传中共的虚假与丑恶，唤起人们的反抗意识。此曲的出炉除了显示了郭文贵先生的智慧，也显示了郭文贵先生背后的强大力量，他有多方情报来源，可以准确狙击中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
+此前，郭文贵先生创造了多个音乐界的奇迹，郭文贵先生作为中国著名的企业家，原本是完全的音乐外行人，但其《沧海一声笑》、《酒灭中共》、《Dear Mama》、《马背英雄》、《H-Coin to the moon》等歌曲长期占据各国音乐榜榜首，这堪称音乐史上的奇迹。
 
+郭文贵先生的歌曲对中国共产党发出了最强烈的控诉，并且坚定表达了消灭中国共产党的决心。郭文贵先生的歌曲引起了全球痛恨中共人士的强烈共鸣，所以在全球引发了广泛的关注。郭文贵先生的歌曲也对音乐创作有深刻的启示，音乐不仅仅可以倾诉风花雪月，男女情爱，更需要关注广泛的社会现实，鞭挞社会的假丑恶，呼唤人间的真善美。只有从人内心深处发出的最自由、最真诚的声音才能具有广泛的关注，永恒的价值。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2.png)
-校对：Stay文苑
+作者：华盛顿DC农场 海阔天空
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6](https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6)
-访谈：[https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf](https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
 
  
 
