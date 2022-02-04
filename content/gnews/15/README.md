@@ -2,31 +2,32 @@
 ---
 
 
-## 停止冬奥会，把CCP踢出WTO和SWIFT (一)
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953390/)
+## 美国称 莫斯科与北京的关系不会弥补俄罗斯入侵乌克兰的后果
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1953432/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+素材整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-04-at-9.37.52-AM-1.png)图片来源：互联网
+华盛顿（路透社）–美国国务院周四警告俄罗斯，莫斯科和北京之间更紧密的关系不会弥补俄罗斯入侵乌克兰的后果，只会使俄罗斯经济更加脆弱。
 
-我告诉你共产党现在在干什么，想把华为手机，还有ZTE，叫非洲化、中东化、亚 洲化，我不去美洲市场。
+国务院发言人内德-普莱斯（Ned Price）还在例行新闻发布会上说，如果看到外国公司，包括中国的公司，试图逃避美国对基于乌克兰国家安全事务的出口管制行动，美国有一系列惩治措施可以实施。
 
-他要干两件事儿，找到芯片合作商叫格芯，是吧？阿布扎比最大的global function要给他提供芯片、技术。
+中国外交部表示，中国和俄罗斯周四在北京举行的两国外交部长会议上协调了它们在乌克兰问题上的立场，“中方理解并支持俄罗斯与美国、北约在安全问题上的立场”。之后普莱斯发表了讲话。
 
-第二，要跟日本联合。日本所谓的科技亚洲化，说咱们要完一套标准咋弄，包括数字人民币，数字日元，咱一起玩。这是第二。
+普莱斯提到美国警告说，如果俄罗斯继续入侵乌克兰，它将面临经济和金融严重后果。
 
-第三，玩那个什么，叫亚洲零贸易交易化，就是易货贸易，现代的用数字人民币来 体现。油、印度的手工产品、巴基斯坦，包括越南这些国家，甚至邀请俄罗斯一起 玩儿。
+“如果俄罗斯认为它将通过与（中国）建立更紧密的关系来减轻其中的一些后果，事实并非如此”。他说：“这实际上会使俄罗斯的经济在许多方面更加脆弱”。
 
-七哥要干的一件事情，一定会让共产党从所有的亚洲的贸易数字化，和共产党想在这个世界上想搞的，和共产党的这一套所有的东西，我彻底的打灭了。我一定干败共产党，把它按在马桶上让它喝它自己的屎喝死它。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/停止冬奥会，把CCP踢出WTO和SWIFT（一）-.jpg)
-2021年12月10日文贵大直播
+“如果你剥夺自己与西方国家交易的能力，从西方国家进口的能力，从欧洲、从美国进口的能力，你将大大降低你的生产能力和创新潜力。”
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+普莱斯说，美国国务卿安东尼-布林肯和中国外交部长王毅上周就俄罗斯对乌克兰采取行动的潜在影响进行了长时间的讨论。
+
+“如果我们看到外国公司，包括中国的公司，尽力回补美国的出口管制行动，逃避它们，绕过它们，我们有一系列的措施可以部署实施。”普莱斯说。
+
+* * *
+
+*编辑&发布：Vicky*
+
+原文链接：[U.S. says China ties will not make up for consequences of Russian invasion of Ukraine](https://www.swissinfo.ch/eng/reuters/u-s--says-china-ties-will-not-make-up-for-consequences-of-russian-invasion-of-ukraine/47319646)
 
  
 

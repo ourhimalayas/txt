@@ -2,32 +2,25 @@
 ---
 
 
-## 【秘翻在线】弗吉尼亚州法官衡量新州长推翻学校口罩规定的权力
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953221/)
+## 中印边境的“英雄”参与冬奥火炬传递
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1953329/)
 
-**撰稿：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020214.jpg)解放军团长祁发宝在冬奥公园传递奥运圣火（路透社照片）
+10月份从希腊运来的圣火将前往包括邻近河北省张家口在内的比赛区，然后在2月4日的开幕式上点燃奥运圣火时结束它的旅程。 有1000多名火炬手参加奥运圣火的接力活动。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-03-at-6.06.39-PM.jpeg)图片来源：evisionpress
-据《福克斯新闻》2月3日报道，弗吉尼亚州总检察长办公室(Attorney General’s Office) 的律师周三认为，弗吉尼亚州州长格伦·杨金（Glenn Youngkin）有广泛的权力发布行政命令，推翻学校的口罩规定，而当地学校董事会的律师则认为州长的行动篡夺了他们的权力。
+2020 年 6 月 15 日在边境小规模冲突中头部严重受伤的时任中共国人民解放军新疆军区某边防团团长祁发宝，于2月2日（周三）在北京冬奥会公园从中国四届奥运会短道速滑冠军王蒙手中接过了圣火。
 
-1月15日，格伦·杨金在上任的第一天就签署了11项行政命令，包括允许家长决定他们的孩子是否在学校戴口罩。
+2 月 4 日至 20 日的冬奥会将在一个“闭环”泡泡内举行，将运动员和其他奥运工作人员与公众隔离开来，只有选定的人群才能参加这些活动。
 
-报道称，阿灵顿县(Arlington County) 的一名法官在学校董事会对杨金提起的诉讼中听取了双方的争论。她说，她将很快作出裁决。
+**简评：**
 
-在此期间，学校和家长都面临着不确定性。全州的学校董事会拒绝执行新任共和党州长的行政命令，该命令不仅推翻了全州的口罩规定，而且还禁止地方司法机构对学生施加规定。
+总所周知，奥运会象征着热爱和平，公正、坦率，以及友好的体育精神。中共国果然没有让国际社会失望，再一次让世界领教了其藐视一切的毫无教养的本质，它推出了一名于2020在与印度武装冲突中受重伤的边防团团长祁发宝作为2022年北京冬奥会火炬传递的传递者之一！！！显然，这一举动意在向国内传递一种信号，忠于党的人是会被优待的。
 
-在周三的听证会上，副总检察长（Deputy Attorney General）史蒂文·波普斯（Steven Popps）认为，杨金有权发布行政命令来应对中共的冠状病毒大流行，就像他的前任、民主党人拉尔夫·诺森（Ralph Northam）在强加全州学校口罩规定时一样。
+新闻来源：[Chinese soldier involved in Galwan valley clash among torchbearers for 2022 Winter Olympics](https://www.indiatoday.in/sports/other-sports/story/chinese-soldier-involved-in-galwan-valley-clash-among-torchbearers-for-2022-winter-olympics-1907871-2022-02-02)
 
-但亚历山大公立学校（Alexandria Public Schools）的律师约翰·卡弗基（John Cafferky）认为，诺森的行动是合理的，因为他是为了保护公众健康。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
-他还认为杨金是在利用旨在遏制公共卫生危机的权力，强加他的个人理念，即父母应该决定他们的孩子是否戴口罩。
 
-据报道，巡回法院（Circuit Court）法官路易丝·迪马特奥（Louise DiMatteo）在周三的听证会后考虑了这些论点，她还表示她认识到需要迅速作出决定。目前，双方都要求发布禁令，该禁令可能适用于全州，要么禁止执行杨金的命令，要么要求当地学校董事会执行该命令，这将取决于她的裁决。
-
-报道指出，该诉讼是全州与口罩规定和扬金行政命令相关的几起诉讼之一。 劳登县（Loudoun County）和弗吉尼亚州最高法院的案件也在审理中，但周三的听证会是第一次由法官审理。
-
-**新闻来源：**[Youngkin’s mask mandate: Virginia judge weighs governors power to lift decree](https://www.foxnews.com/us/virginia-judge-weighs-governors-power-lift-mask-mandate)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/4/2022 2:44 AM (UTC)`
+
+2/3/2022 Miles Guo’s GETTR: After the launch of Himalaya Pay, the number of visitors to the Himalaya Exchange's website was three times higher than in the past. Various countries are going to blame the CCP for the COVID vaccine disaster. Mr. Bannon's family members infected with the virus were all saved by the New Federal State of China. The CCP and the dark forces will surely be retaliated against by the victims of the CCP virus and its vaccines.<br/><br/>2/3/2022 文贵盖特：H-Pay上线后喜联储网站访问量是过去的三倍；各国都要把疫苗灾难算到中共头上；班农先生家人染病后都被新中国联邦拯救；中共和黑暗势力必将遭到病毒和疫苗受害者的报复<br/>
+![img](https://media.gettr.com/group45/getter/2022/02/04/02/bd7c0df3-dccf-30ef-f3d4-62ece8aa8d86/out.jpg)
+
+---
+
 `@miles 2/4/2022 12:50 AM (UTC)`
 
 2/3/2022 Miles Guo’s GETTR: My three songs have terrified the CCP old kleptocrats, who also ended up in a dilemma. The Chinese New Year Gala of the New Federal States of China had seen more viewers in the past 24 hours than on the day when it was aired live. The CCP threatened journalists attending the Winter Olympics by using rogue tactics and is making enemies for itself at every moment.<br/><br/>2/3/2022 文贵盖特：文贵的三首歌让老杂毛既恐惧又纠结；新中国联邦新春联欢晚会在过去24小时的回看量超过直播当天的观看量；中共用流氓手段威胁参加冬奥会的记者、每分每秒都在给自己树敌<br/>
@@ -150,13 +157,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 1/31/2022 Miles Guo’s Chinese New Year Live: What are the secrets behind my singing the song "The Snow Taking Down the CCP"? "The Snow Taking Down the CCP” is a piece of unprecedented epic music. Fellow fighters, you should all sing it!<br/><br/>1/31/2022 文贵虎年新春大直播：文贵演唱这首《灭共的雪》的背后有什么不认为人知的秘密？《灭共的雪》是前无古人的史诗般的音乐，战友们好好唱这首歌吧！<br/>
 ![img](https://media.gettr.com/group17/getter/2022/02/02/03/f49cbe14-e685-600e-d4e5-a8a843dd5e21/out.jpg)
-
----
-
-`@miles 2/2/2022 2:20 AM (UTC)`
-
-2月1日: 永恒的邓丽君，中国人的骄傲！ 
-![img](https://media.gettr.com/group8/getter/2022/02/02/02/baecb0cb-18ab-bac6-24d1-3782c85034e0/out.jpg)
 
 ---
 
