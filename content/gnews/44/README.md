@@ -2,56 +2,18 @@
 ---
 
 
-## 乔治·索罗斯批评习近平的治国理念
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
+## 郭文贵先生以灭共的雪狙击中共冬奥会主打歌曲塞北的雪
+` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1953640/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
-[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
+在2022年中国虎年春节联合晚会当晚，著名的中国异议人士郭文贵先生在美国与中国中央电视台打擂台，现场演唱由《塞北的雪》改编的《灭共的雪》，据称《塞北的雪》是很快在中共国召开的冬奥会的主打歌曲。郭文贵先生此举甚为惊人，会让中共措手不急、骑虎难下。紧急换曲《塞北的雪》会给选曲、彩排等带来巨大的困难，继续采用《塞北的雪》，《塞北的雪》更名的《灭共的雪》又会向中国民众潜移默化地宣传中共的虚假与丑恶，唤起人们的反抗意识。此曲的出炉除了显示了郭文贵先生的智慧，也显示了郭文贵先生背后的强大力量，他有多方情报来源，可以准确狙击中共。
 
-**George Soros**
-**乔治·索罗斯**
+此前，郭文贵先生创造了多个音乐界的奇迹，郭文贵先生作为中国著名的企业家，原本是完全的音乐外行人，但其《沧海一声笑》、《酒灭中共》、《Dear Mama》、《马背英雄》、《H-Coin to the moon》等歌曲长期占据各国音乐榜榜首，这堪称音乐史上的奇迹。
 
-Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
-习近平竭尽全力摧毁邓小平的功绩
+郭文贵先生的歌曲对中国共产党发出了最强烈的控诉，并且坚定表达了消灭中国共产党的决心。郭文贵先生的歌曲引起了全球痛恨中共人士的强烈共鸣，所以在全球引发了广泛的关注。郭文贵先生的歌曲也对音乐创作有深刻的启示，音乐不仅仅可以倾诉风花雪月，男女情爱，更需要关注广泛的社会现实，鞭挞社会的假丑恶，呼唤人间的真善美。只有从人内心深处发出的最自由、最真诚的声音才能具有广泛的关注，永恒的价值。
 
-He brought private companies established under Deng under the control of the CCP
-他将在邓小平时期创建的民营企业置于中共的控制之下
+作者：华盛顿DC农场 海阔天空
 
-and undermined the dynamism that used to characterize them
-并破坏了过去使其具有活力的机制
-
-rather than letting private enterprise blossom
-而不是让民营企业百花齐放
-
-Xi Jinping introduced his own China dream
-习近平提出了自己的“中国梦”
-
-As can be summed up in two words: “total control”
-可以用两个词概括就是：全面控制
-
-that has had disastrous consequences
-这带来了灾难性的后果
-
-**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
-
-Date:02/02/2022
-原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
-乔治·索罗斯批评习近平的治国理念
-原视频日期：2022/02/02
-原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
-任务编号：3651
-视频时间段 : 0:00-0:38
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
 
  
 
