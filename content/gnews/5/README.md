@@ -2,16 +2,23 @@
 ---
 
 
-## 秘翻在线：日本就人阿布-易卜拉欣-哈希米的死亡表态
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953880/)
+## 竹叶——七哥金句（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953996/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-6.png)（图片源自本文链接）
-2月4日时事通信社报道：日本内阁官房长官松野博一在4日的新闻发布会上说：美国政府宣布伊斯兰国（IS）极端组织最高领导人阿布-易卜拉欣-哈希米死亡，意味着在前领导人巴格达迪被杀后，朝着中东地区的和平与稳定迈出的重要一步。我们赞扬这是国际反极端主义斗争的成就之一。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-松野还说：打击极端主义的斗争还没有结束，需要继续努力。我们将继续与国际社会合作防止IS的死灰复燃，以及极端主义的国际扩散。
+音乐的力量会唤醒一个人的良知，我们今天的这个HCOIN TO THE MOON就是给予好人胆量和勇气，看到光明，让坏人可能有机会放过好人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-2-2.jpg)
+2021年12月10日文贵大直播
 
-信息源：[IS指導者死亡「重要な一歩」　日本政府（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/cca6ebc516772229cccd14883d13784dfa09aa85)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

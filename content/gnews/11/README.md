@@ -2,35 +2,30 @@
 ---
 
 
-## 喜支付完成台湾地区第一笔交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953729/)
+## 希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953959/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A720D7FF-2ECD-457D-BE81-209D7F6456BB.png)
-2月2日，喜马拉雅支付刚上线，就从台湾宝岛农场传来喜讯，喜支付已经完成了该地区第一笔茶叶的交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-255.png)
-据盖特账号“伊松坊”称，有战友从这家茶叶店订购了七斤“炭焙茶王”，总价750个喜Dollar，等值750美元。店主介绍，提供收款人邮箱和电话之后，HPay进行了点对点支付，一秒到账，交易细节清楚明了，安全无痕，没有任何中间费用。
+#### 翻译/撰稿：黃金精神
 
-战友评论指出，喜支付于虎年大年初一成功登陆AppleStore和PlayStore，并完成实物贸易，标志着喜支付已经打通了G系列的任督二脉，可以把G生态链上的所有环节都紧密相连，并开始变得活跃。喜币将像毛细血管一样，向世界上更多领域、更多个体延伸，从而颠覆现金、法定货币的支付与转账方式，引领虚拟货币、数字货币支付潮流。真正实现实时到账和资本无限流通，摆脱传统金融对个人合法资产过度监管的暴政。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.jpg)图片来源：youtube
+据每日邮报2月4日报道，一名年仅21岁的希腊足球运动员在一场比赛中因心脏骤停而死亡，当时球场上没有除颤器或救护车。
 
-新闻链接：[#Hpay #台灣農場 #喜支付 #茶 #伊松坊](https://gettr.com/hashtag/%23Hpay)
+这名球员名叫亚历山德罗斯·兰皮斯（Alexandros Lampis），此前在为希腊第三级别球队伊留波利（Ilioupoli）效力。悲剧发生在比赛开始后的五分钟，兰皮斯在第一市政体育场（the First Municipal Stadium）的比赛中倒下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+太阳报（The Sun）报道称，该体育场位于希腊首都雅典东南郊内，但救护车20分钟后才到达，而且没有办法在球场上抢救这名球员。
 
-总编：Irene木木
+类似事件仅发生在8个月前，当时克里斯蒂安·埃里克森（Christian Eriksen）在代表丹麦参加2020年欧洲杯时因心脏骤停而倒下，全世界都为之惊恐。
 
-编辑：谐趣园
+在那次事件中，丹麦队队医莫滕·博森（Morten Boesen）证实，这位29岁的球员在球场上出现了心脏骤停，通过心肺复苏和除颤器的电击才抢救过来。
 
-校正/发稿：浪迹天涯
+埃里克森的生命得到了挽救，他现在将在布伦特福德队重返顶级联赛。在将除颤器植入他的身体后，这位丹麦中场已被允许重返职业足球，这有助于调节他的心率。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A720D7FF-2ECD-457D-BE81-209D7F6456BB.png)
+自从埃里克森倒下后，足球界被一系列著名球员意外事件所震撼。塞尔吉奥·阿圭罗（Sergio Aguero）在为巴塞罗那踢球时出现胸痛，被迫退役，而维克多·林德洛夫（Victor Lindelof）和皮埃尔·埃梅里克·奥巴梅扬（Pierre-Emerick Aubameyang）也受到了惊吓。
 
+本赛季，28岁的维冈前锋查理·怀克（Charlie Wyke）在训练中倒地。30岁的谢菲尔德联队的约翰·弗莱克（John Fleck）在雷丁的比赛中晕倒在球场上。25岁的阿达马·特拉奥雷（Adama Traore）在代表舍里夫（Sheriff Tiraspol）对阵皇家马德里的欧冠比赛中抱着胸倒下。28岁的冰岛中场球员埃米尔·帕尔森（Emil Palsson）在10月发生心脏骤停后也需要进行心肺复苏。
+
+**新闻来源：**[**Greek footballer aged just 21 DIES after suffering a cardiac arrest on the pitch at a stadium where there was NO defibrillator and the ambulance took 20 minutes to arrive**](https://www.dailymail.co.uk/sport/sportsnews/article-10471803/Footballer-suffers-cardiac-arrest-pitch-dies-stadium-no-defibrillator.html)
 
  
 

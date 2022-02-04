@@ -2,32 +2,34 @@
 ---
 
 
-## 台湾农场完成第一笔用喜币购买机车的交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953740/)
+## 重塑人格，尊重人性（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953963/)
 
-撰稿：香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
-2月3日，台湾农场的大牛、政清等战友为了购买春节抽奖礼物，到台北的一家雅马哈机车行，使用喜支付App,以52个喜币的价格完成了交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-256.png)
-据悉，战友们采用GTV直播的方式，进行了此次具有历史性意义的商业交易。交易进行过程中，战友们首先询问了老板机车的价格，然后把七万五千个台币换算成2735美元或52个喜币。接着询问老板要选择使用HDO 或是 HCN进行交易，老板主动选择HCN的方式交易，随后战友们在喜支付系统上输入商家的名称、交易金额、币种、备注购买人及购买对象，最后按确认，瞬间就完成了这笔交易。商家也马上看到该笔汇款，已经到达自己的喜交所账户内。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-继喜Dollar之后，喜币支付的成功应用，是另一个具有里程碑意义的事件，标志着新中国联邦的数字货币、喜支付系统开始被世界全面接受，人类自由交易的新纪元已然开始。
+不像中国人，共产党培养的中国人的内心世界一样，只有我是对的，别人是不对的。
 
-新闻连接：[用H pay 購買機車](https://gtv.org/video/id=61fb93d196ba5d73e0c1e751)
+我的想法是什么样？几乎你们要做到这，你曾经的想法99%地否定，你才能做新的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+就像是很多人一样，只要男女一接触，秘书一接触就要上床，这是共产党的逻辑。
 
-总编/编辑：文特
+即使在最开放的西方，它绝对不是不是这样子，夜总会也不是这样的。夜总会的小姐不是跟谁都上床的，夜总会小姐，很多人是给钱，老娘就是不给你上的。
 
-校正/发稿：浪迹天涯
+不是开玩笑的。我觉得人性是最重要的。所以说我们现在说中国人傻呀， 还有这个思维逻辑感触太深，有些话我当面还不能说，我只能点到为止。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+这就是七哥，我愿意承担你们任何人对我的诅咒，我说你们，你们肯定不开心，你骂我随便骂，但我一定给你们说实话。我最在乎的是你们的改变和你们的升华。我攒回来在乎你们的安全和健康。最后才说，你灭不灭共。 我最在乎的，我希望战友们和那你们的孩子有一天，让父母感觉真的很骄傲，而不是像中国这样父母那样自私，恰恰不是，你要做一个好的父母就是你的人格，就是你的人性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/重塑人格，尊重人性（二）-.jpg)
+2021年12月10日文贵大直播
+
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
