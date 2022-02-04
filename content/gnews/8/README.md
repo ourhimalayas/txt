@@ -2,8 +2,8 @@
 ---
 
 
-## 昆仑山有多少火山
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954802/)
+## 为什么谈重庆
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954851/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

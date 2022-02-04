@@ -2,28 +2,28 @@
 ---
 
 
-## “大鲨鱼”奥尼尔表示，反对疫苗强制接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1954729/)
+## 疫苗不打真的（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954777/)
 
-**整理报道：**波澜壮阔
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-01-27-at-1.01.18-PM-2048x1065-1.png)图片来源：Mediaite
-美国时间2022年2月4日，NBA的传奇人物——“大鲨鱼”沙奎尔·奥尼尔（Shaquille O’Neal）在他的一档播客节目（The Big Podcast with Shaq）中发言表示，反对疫苗强制接种。
+整理：雅典娜速记组
+编辑：于white
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-25-9-30-一--scaled.jpg)
+我这个手机就几个视频小视频，任何一个放出去对你们都是个震撼啊!
 
-奥尼尔称，他反对中共病毒（COVID-19）疫苗的强制接种，并主张“身体自主”。他对观众说：“听着，我鼓励大家注意安全，照顾好自己的家人，我也是这么做的。但是（世上）仍有一些人不愿意接受疫苗。你不应该被强迫接受你不想要的东西”。
+其中看到一个就是这个广西啊，就是打疫苗的。几乎80%，全都是把疫苗打在地上的啊。这是某个机构去政府去打疫苗。这位咱的女战友，很漂亮的女战友，真的是，就是就悄悄的录下来让我看，说你可怕在哪里。
 
-奥尼尔说，虽然他并不反对疫苗，但人们不应该在保住工作和接种疫苗之间做出选择。与奥尼尔一起参与播客的客人是来自与哥伦比亚广播公司的记者尼斯切尔·特纳（Nischelle Turner），特纳认为疫苗授权并不强迫人们接种疫苗，而奥尼尔则坚持认为他们是在强迫人们接种。奥尼尔说：“这就是强迫。因为如果这个人不接受，他就会被解雇”。
+兄弟姐妹们啊，你们不管如何啊，这些共产党的官员，他80%都打假疫苗，这都呲地上去了。他是机构集体打疫苗，但老百姓会有人帮你给你打了，给你呲在地上去吗?想过这个问题吗，是吧?很可怕，longwood，Eglise你家人绝对不会被人给假打疫苗，直接就给你插上去了。
 
-这位NBA传奇人物的言论得到了整个社交媒体的赞扬，在持有相同观点的人不敢反对主流说法的情况下，奥尼尔说出了自己的真实观点。
+我就纳闷了，为什么中国人就这么简单的问题。你就中国人搞不明白，当官的他让你打疫苗。他把疫苗呲到地上去。你还去打疫苗吗?共产党的官员绝对知道疫苗是不好的，这一点证明了吧?
 
-**新闻链接：**[Shaquille O’Neal Says COVID-19 Vaccines Should Not Be Forced](https://www.si.com/extra-mustard/2022/02/04/former-lakers-star-shaquille-oneal-says-covid-19-vaccines-should-not-be-forced)
+另外一个视频，在我们东部某省，靠近安徽的地方某城市，我就不能具体说。市长在里边讲话，就是说，你们这帮王八蛋啊，不要愚蠢到去真打疫苗。你们打完疫苗，断你们的后。你们要认真研究好，指着旁边的一个医院的男院长说。记住啊，你这个院就是机关指定打的医院，你懂得怎么做吧?然后院长说我知道了啊，要认真地打，但是一个也不能打真的。
 
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+发布：于white
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

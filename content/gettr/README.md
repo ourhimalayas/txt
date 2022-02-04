@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/4/2022 12:24 PM (UTC)`
+
+2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮
+![img](https://media.gettr.com/group3/origin/2022/02/04/12/a80a61f2-2c1b-4432-3875-889d35f59eb9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/4/2022 11:59 AM (UTC)`
 
  2月4号：尊敬的战友们好。七哥正在GTV直播，北京冬奥会出大事啦…… <br/><br/>G-TV精彩直播与您分享: <br/>https://gtv.org/broadcast/watch/61fd129696ba5d73e0c27968
@@ -149,13 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币
 ![img](https://media.gettr.com/group30/origin/2022/02/02/12/4786ae9f-93f8-998f-9713-759424b2bcfe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/2/2022 8:01 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: Our NFSC’s scientists are working on a low-cost artemisinin cocktail therapy to save humanity from the CCP virus and vaccine disaster.<br/><br/>1/31/2022 文贵虎年新春大直播：我们新中国联邦的科学家正在研究一种低成本的青蒿素鸡尾酒疗法，以拯救人类免受中共病毒和疫苗灾难的影响。<br/>
-![img](https://media.gettr.com/group32/getter/2022/02/02/08/2f5781f7-c51b-b855-a9ab-60cf49444bf0/out.jpg)
 
 ---
 
