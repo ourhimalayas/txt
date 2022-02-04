@@ -2,8 +2,8 @@
 ---
 
 
-## 第三剂疫苗政策的争议
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954402/)
+## 俄乌冲突中，俄罗斯的政治经济打算
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954460/)
 
 台灣寶島農場
 

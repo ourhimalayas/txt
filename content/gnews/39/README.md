@@ -2,26 +2,30 @@
 ---
 
 
-## 佩洛西警告美国运动员奥运期间不要激怒中共政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953884/)
+## 希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953959/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：黃金精神
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.jpg)图片来源：纽约邮报
-2月3日，《国会山报》引述《路透社》报道，周四，众议院议长南希·佩洛西（Nancy Pelosi）警告参加北京冬奥会的美国运动员，不要冒险激怒“残酷无情”的中共政府
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.jpg)图片来源：youtube
+据每日邮报2月4日报道，一名年仅21岁的希腊足球运动员在一场比赛中因心脏骤停而死亡，当时球场上没有除颤器或救护车。
 
-在美国国会及行政当局中国委员会 (Congressional-Executive Commission on China)的听证会上，佩洛西说，美国有“紧迫的道德责任来照亮” 中共的人权侵犯行为，包括对新疆维吾尔少数民族的侵犯行为。
+这名球员名叫亚历山德罗斯·兰皮斯（Alexandros Lampis），此前在为希腊第三级别球队伊留波利（Ilioupoli）效力。悲剧发生在比赛开始后的五分钟，兰皮斯在第一市政体育场（the First Municipal Stadium）的比赛中倒下。
 
-她说：“现在，国际奥委会在企业赞助商的帮助下，再次对2022年冬奥会视而不见，只是为了给中共涂脂抹粉。如果我们因为商业利益而不对中共的侵犯人权行为发表意见，我们就会失去对任何地方的侵犯人权行为发表意见的所有道德权威。”
+太阳报（The Sun）报道称，该体育场位于希腊首都雅典东南郊内，但救护车20分钟后才到达，而且没有办法在球场上抢救这名球员。
 
-但是，佩洛西敦促运动员们专注于比赛，而不是（对中共侵犯人权行为）发表意见。她说：“不要冒险招致中（共）国政府的愤怒，因为他们是残酷无情的。”
+类似事件仅发生在8个月前，当时克里斯蒂安·埃里克森（Christian Eriksen）在代表丹麦参加2020年欧洲杯时因心脏骤停而倒下，全世界都为之惊恐。
 
-另据路透社报道，周一，立法者们告诉美国奥运官员，如果美国运动员选择公开反对中共国的侵犯人权行为，他们要准备保护美国运动员免遭中共国的报复。
+在那次事件中，丹麦队队医莫滕·博森（Morten Boesen）证实，这位29岁的球员在球场上出现了心脏骤停，通过心肺复苏和除颤器的电击才抢救过来。
 
-**新闻来源**
+埃里克森的生命得到了挽救，他现在将在布伦特福德队重返顶级联赛。在将除颤器植入他的身体后，这位丹麦中场已被允许重返职业足球，这有助于调节他的心率。
 
-[Pelosi warns US athletes against angering ‘ruthless’ Chinese government during Olympics](https://thehill.com/homenews/house/592768-pelosi-warns-us-athletes-against-angering-ruthless-chinese-government-during)
+自从埃里克森倒下后，足球界被一系列著名球员意外事件所震撼。塞尔吉奥·阿圭罗（Sergio Aguero）在为巴塞罗那踢球时出现胸痛，被迫退役，而维克多·林德洛夫（Victor Lindelof）和皮埃尔·埃梅里克·奥巴梅扬（Pierre-Emerick Aubameyang）也受到了惊吓。
+
+本赛季，28岁的维冈前锋查理·怀克（Charlie Wyke）在训练中倒地。30岁的谢菲尔德联队的约翰·弗莱克（John Fleck）在雷丁的比赛中晕倒在球场上。25岁的阿达马·特拉奥雷（Adama Traore）在代表舍里夫（Sheriff Tiraspol）对阵皇家马德里的欧冠比赛中抱着胸倒下。28岁的冰岛中场球员埃米尔·帕尔森（Emil Palsson）在10月发生心脏骤停后也需要进行心肺复苏。
+
+**新闻来源：**[**Greek footballer aged just 21 DIES after suffering a cardiac arrest on the pitch at a stadium where there was NO defibrillator and the ambulance took 20 minutes to arrive**](https://www.dailymail.co.uk/sport/sportsnews/article-10471803/Footballer-suffers-cardiac-arrest-pitch-dies-stadium-no-defibrillator.html)
 
  
 
