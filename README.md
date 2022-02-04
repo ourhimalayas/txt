@@ -15,65 +15,65 @@
 
 ---
 
-### [加拿大统计局称 1 月份有 200,000 个工作岗位流失](/content/gnews/1/README.md)
+### [塔克·卡尔森：很少见到一个国家如此迅速的恶化，加拿大总理特鲁多对待抗议民众的方式就是躲起来](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [联邦调查局为部门经理的视频压力辅导花费了 15.3 万美元](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [渥太华警方部署“增援”以应对持续的抗议](/content/gnews/2/README.md)
+### [与心理医生谈焦虑症—如何应对疫情期间的各种心理压力（六）](/content/gnews/3/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [2月4日文贵大直播摘要](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [加拿大统计局称 1 月份有 200,000 个工作岗位流失](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [又一名21岁希腊球员因心脏骤停离世](/content/gnews/3/README.md)
+### [渥太华警方部署“增援”以应对持续的抗议](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [又一名21岁希腊球员因心脏骤停离世](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [即使孩子因 COVID-19 被送回家，父母每月也要支付 4,000 元的日托费用](/content/gnews/4/README.md)
+### [即使孩子因 COVID-19 被送回家，父母每月也要支付 4,000 元的日托费用](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [顶级医生说，安大略省需要“重新评估 COVID-19 疫苗护照系统的价值”](/content/gnews/5/README.md)
+### [顶级医生说，安大略省需要“重新评估 COVID-19 疫苗护照系统的价值”](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/6/README.md)
+### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大保守党领袖奥图尔被迫辞职](/content/gnews/7/README.md)
+### [加拿大保守党领袖奥图尔被迫辞职](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大部分省份逐步放宽疫苗限制](/content/gnews/8/README.md)
+### [加拿大部分省份逐步放宽疫苗限制](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共的春晚是宣称假大空的精神毒药](/content/gnews/9/README.md)
+### [中共的春晚是宣称假大空的精神毒药](/content/gnews/13/README.md)
  ` 焦點20分`
 
-### [魁北克政府计划放弃强征疫苗税](/content/gnews/10/README.md)
+### [魁北克政府计划放弃强征疫苗税](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [HPAY将会是灭共的金融核武器](/content/gnews/11/README.md)
+### [HPAY将会是灭共的金融核武器](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [多数加拿大人希望终止所有防疫限制](/content/gnews/12/README.md)
+### [多数加拿大人希望终止所有防疫限制](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [HPAY真正实现了“我的财富我说了算”的自由](/content/gnews/13/README.md)
- ` 焦點20分`
-
-### [美国谋杀率飙升至创纪录水平 原因是人为造成的社会崩溃](/content/gnews/14/README.md)
+### [美国谋杀率飙升至创纪录水平 原因是人为造成的社会崩溃](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [官方数据显示病毒死亡率与接种剂量相关](/content/gnews/15/README.md)
- ` 扬帆枫叶快讯`
-
-### [DC大中华时事：习近平同俄罗斯总统会谈](/content/gnews/16/README.md)
+### [DC大中华时事：习近平同俄罗斯总统会谈](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [北京冬奥定址张家口 犯风水大忌 郭先生号召甜蜜蜜运动 变冬奥会成中共的冬眠会](/content/gnews/17/README.md)
- ` 焦點20分`
-
-### [银行业监管机构警告称，当升息时加国房价可能暴跌20%](/content/gnews/18/README.md)
+### [银行业监管机构警告称，当升息时加国房价可能暴跌20%](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [七哥谈远离中共（2022-02-02摘录）](/content/gnews/19/README.md)
+### [七哥谈远离中共（2022-02-02摘录）](/content/gnews/20/README.md)
  ` MG FARM`
-
-### [加拿大总理特鲁多不顾民众高涨的反疫苗暴政情绪，仍要继续推进疫苗接种](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [七哥谈“开信上中央联欢晚会”（2022-02-02摘录）](/content/gnews/21/README.md)
  ` MG FARM`
@@ -114,29 +114,29 @@
 ### [文贵直播2.4: CCP黑社会运作下的北京冬眠会](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [辉瑞公司隐藏了数据:接种疫苗的孕妇都流产](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [被解雇的制药工人解释他们为什么没接种COVID-19疫苗](/content/gnews/35/README.md)
+### [被解雇的制药工人解释他们为什么没接种COVID-19疫苗](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [FBI局长：中共参与了针对美国科技公司的大规模骇客行动](/content/gnews/36/README.md)
+### [FBI局长：中共参与了针对美国科技公司的大规模骇客行动](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大总理贾斯汀-特鲁多中共冠状病毒（COVID）检测结果呈阳性](/content/gnews/37/README.md)
+### [加拿大总理贾斯汀-特鲁多中共冠状病毒（COVID）检测结果呈阳性](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新西兰财经G乐部2022年2月4日:财经新闻整理](/content/gnews/38/README.md)
+### [新西兰财经G乐部2022年2月4日:财经新闻整理](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱](/content/gnews/39/README.md)
+### [2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/40/README.md)
+### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/39/README.md)
  ` G-NEWS TAIWAN`
 
-### [普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶](/content/gnews/41/README.md)
+### [普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶](/content/gnews/40/README.md)
  ` 华盛顿DC-Russian`
+
+### [2022年2月4日郭先生大直播 文字同步精要](/content/gnews/41/README.md)
+ ` 焦點20分`
 
 ### [瑞典将于2月9日解除中共病毒限制](/content/gnews/42/README.md)
  ` NFSC News`

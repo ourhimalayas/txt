@@ -2,44 +2,59 @@
 ---
 
 
-## 加拿大总理贾斯汀-特鲁多中共冠状病毒（COVID）检测结果呈阳性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956366/)
+## 新西兰财经G乐部2022年2月4日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1956350/)
 
-**评论：***完成接种疫苗加强针的特鲁多还是被感染了COVID-19，他用自已的经历证明了疫苗对预防中共病毒的毫无意义。*
+采集整理：蚂蚁的城堡
 
-据《福克斯新闻》作者：[Emma Colton](https://www.foxnews.com/person/c/emma-colton)，2022年2月1日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-339-e1643995019455.png)2021年1月19日星期二，加拿大总理贾斯汀-特鲁多在安大略省渥太华丽都小屋外举行的新闻发布会。
-图片来源：Adrian Wyld/加拿大通讯社经美联社
-加拿大总理贾斯汀-特鲁多的中共冠状病毒检测结果为阳性。
+**提纲：**
 
-他说：“感觉很好”。
+1、Meta单日市值蒸发两千亿创美股史上之最，科技巨头受牵连皆遭重创
 
-“今天早上，我的冠状病毒（COVID-19）检测结果呈阳性。我感觉很好，本周将继续远程办公，同时遵循公共卫生指南。请每个人接种疫苗并补种加强针。” 特鲁多周一早间在推特上说。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-340.png)图片来源：推特
-根据他的推特账户，这位总理已经完全接种了疫苗，并在1月4日接受了加强针注射。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-341.png)图片来源：推特
-据报道，此前他因成千上万的反强制疫苗抗议者聚集渥太华，于周六离开住所，并随后中共冠状病毒检测结果呈阳性。
+2、深圳二手房成交创十年新低，多地土地持续高流拍
 
-1月23日，一支由卡车司机组成的“自由车队”从温哥华出发前往渥太华，抗议联邦政府对跨境卡车司机的疫苗强制规定。车队于周六抵达首都，当时还有数千名抗议者走上街头，谴责该国围绕冠状病毒的规定和限制。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-342-e1643996412753.png)图片1/3 图片来源：Justin Tang/加拿大通讯社经美联社![](https://assets.gnews.org/wp-content/uploads/2022/02/image-343.png)图片 2/3 图片来源：Adrian Wyld/加拿大通讯社经美联社
-2022年1月29日星期六，卡车车队抗议者聚集在渥太华国会山附近，抗议当局就疫苗强制接种所采取的措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-345.png)2022年1月29日星期六，一位头戴大富翁面具人士在渥太华国会山反对疫苗限制的集会上手举抗议标牌。该集会抗议联邦政府对卡车司机的疫苗强制规定。
-图片3/3 图片来源：Justin Tang/加拿大通讯社经美联社
-批评者在社交媒体上嘲笑和抨击总理，据报道他在抗议者上街时逃离了住所，许多人称其“懦夫”和“胆小”，而且没有解决抗议者的问题。
+3、号称1.4万辆订单，实际仅几百人付款？贾跃亭被曝造假！
 
-文章来源: [https://www.foxnews.com/world/trudeau-tests-positive-for-covid](https://www.foxnews.com/world/trudeau-tests-positive-for-covid)
+4、美国立法者重新提出法案，为小型加密交易提供税收减免
 
-翻译：洛杉矶盘古农场 – Nelson
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+**正文**
 
+**1、Meta单日市值蒸发两千亿创美股史上之最，科技巨头受牵连皆遭重创**
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![焦点：Meta单日市值蒸发两千亿创美股史上之最科技巨头受牵连皆遭重创| 路透](https://static.reuters.com/resources/r/?m=02&amp;d=20220204&amp;t=2&amp;i=1589976624&amp;r=LYNXMPEI1300Y&amp;w=800)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+Meta市值蒸发逾2000亿美元，并波及科技股，拖累纳斯达克指数走低。Hargreaves Lansdown的股票分析师Laura Hoy表示:“Meta首席执行官扎克伯格可能热衷于哄骗世界进入另一个现实，但令人失望的第四季度业绩很快令其元宇宙泡沫破灭。”对Meta收益的失望和随后的股价下跌，让人想起了2000年科技泡沫的破裂。Facebook、亚马逊、苹果、网飞和谷歌母公司Alphabet组成的所谓FAANG集团在2022年的头几周市值蒸发了约4000亿美元。
+
+参考链接：[https://www.reuters.com/article/meta-stock-price-tech-0204-idCNKBS2K902Y](https://www.reuters.com/article/meta-stock-price-tech-0204-idCNKBS2K902Y)
+
+**2、深圳二手房成交创十年新低，多地土地持续高流拍**
+
+![](http://stcn.com/xw/sd/202202/W020220204300269358342.png)
+
+深圳住建局数据显示，1月深圳二手商品住宅仅成交1557套，低于2021年10月的1605套，再创近十年历史新低；成交面积14.73万平方米，同比大跌75.04%。而据国家统计局信息，深圳二手房价跌幅0.4%，为一线城市中跌幅最大，且已连跌了8个月。与此同时，根据克而瑞地产研究中心最新发布的报告，土地市场持续惨淡，深圳、苏州、宁波和无锡三轮集中土拍开启，土拍热度均低于二轮，溢价率再创历史新低，流拍率仍处23%的高位。
+
+参考链接：[https://www.stcn.com/xw/sd/202202/t20220204\_4129456.html](https://www.stcn.com/xw/sd/202202/t20220204_4129456.html)
+
+**3、号称1.4万辆订单，实际仅几百人付款？贾跃亭被曝造假！**
+
+![](https://n.sinaimg.cn/sinakd20220203s/156/w553h403/20220203/dc75-0ceffcea5aada18c9ab53704d26e37ee.png)
+
+2月2日，美国证券交易委员会（SEC）官网显示，法拉第未来（Faraday Future，以下简称FF）公司独立董事会组成的特别委员会已经完成调查，并向SEC提交8-K文件。该文件还特别指出，公司在业务合并前的声明称，已收到超过1.4万份 FF 91 车辆的预订可能具有误导性。不过，该文件也强调了对于公司面临的其他指控，包括此前做空机构J Capital Research的做空报告，均没有得到审查证据的支持。截至2月2日收盘，FF报收4.22美元，跌幅达7.46%，总市值为13.69亿美元。
+
+参考链接：[https://www.stcn.com/xw/sd/202202/t20220203\_4129304.html](https://www.stcn.com/xw/sd/202202/t20220203_4129304.html)
+
+**4、美国立法者重新提出法案，为小型加密交易提供税收减免**
+
+一个由美国众议院代表组成的两党团体重新提出[了一项法案](https://delbene.house.gov/uploadedfiles/virtual_currency_bill_text.pdf)，该法案将免除消费者对低于 200 美元的加密支付税款。
+
+“虚拟货币税收公平法案”——周四由众议员 Suzan DelBene (D-Wash.)、David Schweikert (R-Ariz.)、Darren Soto (D-Fla.) 宣布的美国国税局税法修正案和 Tom Emmer (R-Minn.) – 将简化日常加密用户的税收负担，他们现在必须报告即使是最小的资本收益。
+“虚拟货币在过去几年中发展迅速，在我们的日常生活中使用它的机会越来越多，” DelBene在公告中说。“美国必须紧跟这些变化，并确保我们的税法随着我们对虚拟货币的使用而发展。”立法者最后在 2021 年 1 月将该立法称为“2020 年虚拟货币税收公平法案”。消费者现在必须报告从购买加密货币到用于交易的加密货币价值的变化，甚至包括小额零售购买。
+
+参考链接 ：[https://www.coindesk.com/policy/2022/02/03/us-lawmakers-reintroduce-bill-to-provide-tax-relief-for-small-crypto-transactions/](https://www.coindesk.com/policy/2022/02/03/us-lawmakers-reintroduce-bill-to-provide-tax-relief-for-small-crypto-transactions/)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 
