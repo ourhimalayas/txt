@@ -2,33 +2,50 @@
 ---
 
 
-## 七哥选择了最好的时机推出喜币和喜支付
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1955531/)
+## 一周中共病毒及疫苗灾难信息集锦
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955606/)
 
-作者：Chloe蔻依
+作者：纽约香草山农场 – Zion文恩/火来
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月25日至2月2日，除中共国外，全球新增中共病毒确诊患者两千一百万余例，同比上周下降了8.66%。此外，本周新增确诊死亡病例超过7万例，同比上周增长了18.9%，增长率较上周增加了2.5个百分点。连续两周，中共病毒全球死亡率持续上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-3.jpg)
+截止2月2日，除中共国外，全球累计接种了72.6亿剂中共病毒疫苗，同比18日的接种数据增长了1.82%，但疫苗接种增长率较上周总体下降了0.69个百分点。
 
-七哥选择了最好的时机推出喜币和喜支付，因为美英加息，及即将到来的欧亚动荡，资金将流向安全的地方。 喜币喜美元加上现在的喜支付，相当于打开了钱袋子接住飞来的钱。 今年喜币的上涨大概率是波澜壮阔。战友们，可千万跟紧了！
+实时分析显示，截止2月2日，全球来自27个国家共计8万5千767名受试者参与的78项临床研究表明，伊维菌素在预防、早期治疗和晚期治疗的案例中，分别能够降低85%、63%和39%的 中共病毒重症感染的临床病例。
 
-今天英国率先加息，美国加息也就在眼前。 当前的俄乌危机只能让欧洲资金加速回流美英。最近美英两国都往欧洲增兵，为紧张局势添柴加火：1月30日英首相约翰逊考虑将部署在东欧的英国军力增加一倍，让“乌克兰能够自由地选择自己的未来”；2月3日，美国总统乔-拜登下令向波兰、德国和罗马尼亚部署约3000名美军，另有国防部长劳埃德-奥斯汀上周下令驻扎在美国的8500名部队进入快速部署的警戒状态，随时待命前往东欧，以增强尚未启动的4万多人的北约反应部队。
+另一方面，多国的中共病毒疫苗政策在本周出现松动迹象。1月28日，由于担心疫苗带来的风险不低于病毒本身，瑞典政府决定不推荐5至11岁的儿童接种中共病毒疫苗。同时，加拿大魁北克省政府遭遇了强有力的反抗声浪，为此不得不放弃对未接种疫苗的魁北克人额外征收健康税的计划。同样在加拿大，萨斯喀彻温省的省长斯科特宣布，将结束该省的疫苗护照政策，并呼吁联邦政府结束各地的强制疫苗政策。
 
-钱最先知道哪里最安全。大概最近资金出走得太快太多，乌克兰总统想阻止资本外逃，几次说局势已经平静，否认有危机；2月1日法国外交部长也说没有迹象表明俄罗斯要对乌克兰动手。
+在美国，关于公布辉瑞疫苗原始数据的司法诉讼中，美国食品和药品监督管理局FDA认为，延迟75年公布疫苗数据是合适的，但这一观点遭到了法官驳斥。目前，法官要求辉瑞公司尽快公布关于中共病毒疫苗的全部数据。而当地媒体则再次聚焦福奇，包括其为中共病毒实验室提供资金支持，以及在疫情爆发初期蓄意打压、掩盖病毒真相的恶行。
 
-但俄乌危机不可能停止，因为根本原因在于北约东扩。俄罗斯一直指责北约食言，将其势力范围向东延申。 俄罗斯经常引用美国国务卿贝克于1990年2月对苏联领导人戈尔巴乔夫说的话，即 “北约部队的管辖权不会向东延伸一英寸”。据此俄罗斯指责美国和北约在此后的几十年里一再背叛这一口头承诺，利用动荡的后苏联时期，数次扩大北约盟国，一直延伸到俄罗斯家门口（如下图 ）。尽管这种说法曾被戈尔巴乔夫否认。 在2014年的一次采访中，戈尔巴乔夫说：”‘北约东扩’的话题从未被讨论过。在那些年里，这个话题就没被提出过”。
+但在某些特殊领域，由于缺乏对中共病毒疫苗灾难的认知，疫苗强制接种政策仍在继续：2月2日，美军决定，为了保持美军的战备力，美军将立即解雇拒绝接种“中共病毒疫苗”的现役军人。另外，联邦政府针对全美医护工作者的强制疫苗政策仍在实施。
 
-所以无论如何俄罗斯不会放弃乌克兰。 乌克兰是世界第三大粮食出口国，资源丰富，还有强大的军工体系。 更重要的是乌克兰是俄罗斯的屏障，失去乌克兰，俄罗斯将失去战略纵深，莫斯科将处于北约直接打击范围内。 失去乌克兰之后接下来就轮到格鲁吉亚，到时整个黑海都落入北约之手，俄罗斯就只能蜷缩于北极，成为一只真正的北极熊。这让俄罗斯退无可退。
+参考链接：
+1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
+3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-18..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+4) .[Ivermectin for COVID-19: real-time meta analysis of 78 studies](https://ivmmeta.com/)
+5) .[JUST IN – Federal judge in Texas issues a nationwide injunction blocking Biden’s vaccine mandate for federal employees.](https://twitter.com/disclosetv/status/1484575812338823181?s=20)
+6) .[JUST IN – Biden’s vaccine-or-test mandate for workers at large businesses will be withdrawn by OSHA tomorrow.](https://gettr.com/post/pqhyr8309f)
+7) .[One of many medical heros, Dr. @richardursomd, at the DC March today. Thank you!](https://twitter.com/USA_Solutions_/status/1485371519417073670)
+8) . [Why haven’t we let doctors be doctors? Dr. Paul Marik’s experience treating Covid-19 patients is heartbreaking.](https://twitter.com/SenRonJohnson/status/1485700814643638275?s=20)
+9) .[URGENT CARE: Terminally ill father of two says Virginia hospital has discriminated against him based on his vaccination status and the consequences could be deadly.](https://twitter.com/FoxNews/status/1486084047617015818?s=20)
+10) .[Boston patient removed from heart transplant list for being unvaccinated https://trib.al/m1Zyz9V](https://twitter.com/nypost/status/1485971932923183108?s=20)
+11) . [Unvaccinated now barred from French restaurants, sports venues](https://thehill.com/policy/international/591011-unvaccinated-now-barred-from-french-restaurants-sports-venues)
+12) .[Compulsory Covid jabs for NHS workers set to be put on hold after Tory revolt and warning from Royal College of GPs it will lead to chronic staff shortages – while healthcare workers dump their scrubs outside Downing Street during protest march](https://www.dailymail.co.uk/news/article-10431489/Compulsory-Covid-jabs-NHS-staff-delayed-half-year-Tory-revolt-protests.html)
 
-这次的俄乌危机始于去年。俄罗斯于去年3月，即美国推出新冠疫苗后的两个月，在俄乌边境陈兵十万。 6月俄罗斯有退兵。 但到11月，欧美开始讨论外交抵制冬奥会期间，俄罗斯又开始往俄乌边境增兵，到12月有超过10万名俄罗斯军队再次在边境附近集结。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-在乌克兰的问题上，美国和北约也不会退让。 2022年1月26日，美国与北约以书面正式回绝俄罗斯所提的 “北约不东扩、乌克兰不加入” 的要求，将坚持北约门户开放的原则。
+总编: Irene木木
+编辑：静言
+校正/发稿：Fei797
 
-且不论俄乌之间是否真会开打，从投资角度来看，俄乌之间的冲突持续时间越久，从欧洲流出的资金越大，投往喜系列的资金越多，喜币上涨幅度就越大。
-
-当然不仅仅是欧洲资金出逃，亚洲资金也出逃。这个大家都有共识，所以就简短说一下。冬眠会之后，失了面子的习容易出猛招，无论是对内更残酷的大清洗，还是对外向台湾用兵，都会引起资金出逃，这对喜币是绝对的利好。
-
-7哥选择了最好的时机推出喜币，喜美元和喜支付。 即将到来的欧亚动荡让资金涌入喜币喜美元避险。 喜币价格很可能涨幅惊人。 战友们，跟紧了，别掉了队！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/北约扩张.png)
-发布：文零
-![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
