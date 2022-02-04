@@ -2,31 +2,35 @@
 ---
 
 
-## Facebook前员工警示澳洲 需警惕Facebook假消息干预大选
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1955156/)
+## 美军突袭叙利亚 伊斯兰国领导人自爆身亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955164/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2月3日，Facebook前员工郝根（Frances Haugen）在通过视讯向澳洲众议院「社交媒体及在线安全调查委员会」（Inquiry into Social Media and Online Safety）公听会作证时表示，为了捍卫澳洲的民主政治，澳洲政府应加强对付社交媒体被利用散播假消息的问题。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-中央社报道，关于澳洲五月即将举行的联邦大选,郝根在公听会作证时表示，对于澳洲在内的用户，Facebook提供较差的网络安全措施。她解释，由于Facebook很清楚自己是在黑箱作业，它持续在维护用户安全方面投资不足，反正没有人能够监管它。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-19.png)（图片来自网络）
-报道称，郝根去年10月接受美国哥伦比亚广播公司（CBS）节目「60分钟」（60 Minutes）访问时说，Facebook早知旗下产品在助长仇恨并伤害儿童心理健康。她曾泄露资料给华尔街日报和美国政府，引爆全球国际媒体追踪Facebook的隐私保护和假消息管控不足等问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-澳洲金融评论报指出，随着郝根公开踢爆Facebook「把利益置于安全之上」激起国际关注，澳洲政府遂邀请她于3日向「社交媒体及在线安全调查委员会」公听会作证。
 
-郝根表示，近年世界各地的选举，特别是美国，利用社交媒体而操作的烂招层出不穷，而有着独特地缘政治处境澳洲，亦需要防范同样问题。
+根据德国之声中文网报道：美国表示美军部队2月3日突袭极端组织伊斯兰国组织（ISIS）在叙利亚的藏身处，该组织的领导人与他的家人一起引爆炸弹自杀身亡。这次行动造成至少13人丧命，包括6名孩童与4名妇女。
 
-郝根还提到，过去曾经有一些学者试图研究Facebook广告如何干预美国选举，随后Facebook威胁要暂停这些学者的账号，甚至扬言要控告这些学者。
+美国总统拜登3日发表简短声明，宣布美军此次反恐行动和伊斯兰国首脑库莱希（Abu Ibrahim al-Hashimi al-Qurayshi）丧生的消息。美国官员称这是对这个极端组织的重大打击。
 
-此消息发布后，有华人表示，世界需要关注社交媒体干预民主国家的大选的事实，也需要关注中共独裁政府利用社交媒体发布虚假信息散播种族仇恨，混淆华人与中共的关系，中共是邪恶的极权政党，中国人和华人都深受其害，中共并不等于中国人，更不等于热爱和平自由的华人。
+ISIS上个月才袭击了叙利亚东北部的一座监狱，里面至少有3000人遭到伊斯兰国组织拘留。
 
-参考链接：
-1. [https://www.cna.com.tw/news/aopl/202202040036.aspx](https://www.cna.com.tw/news/aopl/202202040036.aspx)
+美国反恐目标与韧性研究所（American Counterterrorism Targeting and Resilience Institute）主任沙伊科维奇（Ardian Shajkovci）指出，比起投降，自杀结束生命对伊斯兰国追随者而言是勇敢的表现，这有助于伊斯兰国作进一步的宣传。
 
-素材采编：Kevin wang
-编辑：青城道姑
-发布：文曦
+参考链接[https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873](https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

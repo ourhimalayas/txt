@@ -2,34 +2,26 @@
 ---
 
 
-## 有声|CNN表示会在北京冬奥会期间关注中共新疆大屠杀
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955375/)
+## 日本滑雪女选手摔伤退出冬奥会 疑似因场地采用人造雪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1955386/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
-据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
+撰稿：东京樱花团丨山頂閒人
 
-文字版原文：[CNN表示会在北京冬奥会期间关注中共新疆大屠杀](https://gnews.org/zh-hans/1953018/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本滑雪女选手摔伤退出冬奥会-疑似因场地采用人造雪.png)[*图片来源*](https://www.youtube.com/watch?v=6nAPjJgLhmo)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+据2月3日法新社报道，日本单板滑雪运动员吉香丽娜星期四在张家口云顶雪场的坡面赛道上落下一跳时摔倒。星期四在北京奥运会训练期间严重摔伤后被救护车送走，将无法参加大空翻和坡面滑雪项目。引致摔伤原因不清楚，据日本奥委会称，这位22岁的运动员脊柱损伤，但不会瘫痪。该代表团称吉香丽娜将不会按原计画参加奥运会的比赛，并将在接受适当的治疗后返回日本。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+周五正式开始的北京冬季奥运会是在中国最干燥的地区之一举行，几乎完全依靠人工造雪。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+据美国单板滑雪运动员杰米-安德森（Jamie Anderson）承认在坡道上训练时感到害怕，她说滑道表面非常硬。杰米-安德森是两届奥运会冠军，她说，“我认为大部分滑道表面都是人造雪铺洒的，所以它并不理想，”安德森还说，“你肯定不想在上面摔倒。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+中共国举办的冬奥会，通过使用破坏生态平衡的“造雪弹”和人工造雪机，制造的人造雪不如自然雪松软，导致雪层过硬，达不到雪上竞技比赛的标准，导致参加冬奥会运动员受伤退赛，严重危及运动员的职业前途和生命安全。郭文贵先生直播中也多次提到冬奥会的人造雪，是中共“以假治国”的缩影，前去参加冬奥会运动员将遭遇各种“意外”，这则新闻正好验证了中共导演的北京冬奥会必将是一次遗臭万年的“政治丑剧”。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+新闻来源：[**北京冬奥会第一摔：日本滑雪女选手摔伤**](https://www.rfi.fr/tw/%E4%BA%9E%E6%B4%B2/20220203-%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E6%9C%83%E7%AC%AC%E4%B8%80%E6%91%94-%E6%97%A5%E6%9C%AC%E6%BB%91%E9%9B%AA%E5%A5%B3%E9%81%B8%E6%89%8B%E6%91%94%E5%82%B7)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

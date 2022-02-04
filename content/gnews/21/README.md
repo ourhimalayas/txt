@@ -2,16 +2,32 @@
 ---
 
 
-## “甜蜜蜜”把北京冬奥会变成“冬眠会”
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1955167/)
+## MV版Hcoin To the Moon上线57天第44次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1955171/)
 
-文贵大直播20220204
+2/4/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线57天第44次位列澳门iTunes热门音乐视频榜榜首，第51次位列前三名
 
-撰稿：待命（文晓）（樱花） Poplar（盘古）
+* * *
 
-美工：跟着北美教练（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-4.png)
-*发布：Theodosia*
+[【PDF 下载】Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_121.jpg)
+
+
+[【PDF 下载】Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
