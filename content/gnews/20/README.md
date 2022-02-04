@@ -2,47 +2,32 @@
 ---
 
 
-## 顶级医生说，安大略省需要“重新评估 COVID-19 疫苗护照系统的价值”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956736/)
+## 又一名21岁希腊球员因心脏骤停离世
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956775/)
 
-作者：Sean Davidson
-翻译：HimaCoby
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-58.jpg)
-安省首席卫生官Dr. Kieran Moore说，安省需要在未来几周内“重新评估COVID-19疫苗护照系统的价值”，以决定是否应该终止使用疫苗护照。
+编者：太阳花7
 
-Dr. Kieran Moore周四发表评论说，虽然COVID-19疫苗对严重疾病提供了显著保护，但两剂疫苗对限制病毒的传播作用不大。
+据《世界体育报》报道，一名21岁的希腊球员昨天（2月2日）在比赛期间心脏骤停死亡。
 
-Moore说：与未接种疫苗的人相比，接种两剂疫苗并没有显著降低传播风险。我们必须在未来几周和几个月内重新评估疫苗护照的价值。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-2.png)图片来源：西中网
 
-“当我们看到疫苗不能提供像它对Delta提供的免疫力时，我们必须重新评估目前采取的一些公共卫生措施，重新评估我们是否需要维持目前的疫苗接种证明认证流程。
+亚历桑德罗 兰皮斯只有21岁，生前效力于希腊第三级别联赛球队利欧波利斯FC，他在比赛开场不到5分钟时突然倒在了地上。
 
-Moore说，结束COVID-19疫苗接种证明系统最终将由安省政府做出决定。
+该球场位于雅典郊区，当救护车花了20分钟赶到现场后对该球员施救，但为时已晚。报道称原因是因为球场内没有除颤器以及救护时间的耽误导致该球员离世。
 
-安省的疫苗证书计划于去年9月22日生效。到今年1月份，随着安省Omicron病例激增，该 计划无限期延长。
+这么多年轻强壮的生命骤然离去，各国政府还在继续全方位的要求从孩子到老人的毒针施打，还依然在为这么多美好生命的逝去找各种理由掩盖罪恶，我们继续呼喊，“所有的强制疫苗的政客都是杀人犯！”
 
-尽管三剂疫苗确实可以增强对COVID-19传播的保护，但福特省长此前曾表示，他不考虑将完全接种疫苗的定义更改为包括加强疫苗。
+**参考资料：**[www.cgw.gr](https://www.cgw.gr/static/content/XLXW/2022-02-04/939205042001817600.html)
 
-福特最初是反对疫苗证书制度的，他在7月份就表示他“从未相信”过疫苗证书。福特说，我们不需要这样做，就这么简单，因为我们只是要向前迈进，答案是否定的，我们不会有一个分裂的社会。
+* * *
 
-但是到9月1日，他宣布了疫苗证书计划，当时所有省份都在加紧推进疫苗证书制度，福特还指责联邦政府没有建立全加拿大的疫苗护照系统。
+*审核：阿伯塔
+校对：信心满满
+发稿：信心的选择*
 
-来源：https://toronto.ctvnews.ca/ontario-needs-to-reassess-the-value-of-covid-19-vaccine-passport-system-top-doctor-says-1.5765973
 
-（文章仅代表作者个人观点）
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 

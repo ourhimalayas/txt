@@ -2,45 +2,63 @@
 ---
 
 
-## 即使孩子因 COVID-19 被送回家，父母每月也要支付 4,000 元的日托费用
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956768/)
+## 渥太华警方部署“增援”以应对持续的抗议
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956790/)
 
-作者：Pat Foran
+作者：Jim Bronskill，Erika Ibrahim
 翻译：HimaCoby
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-59.jpg)
-在过去的两个月里，多伦多一位母亲支付了4000元的日托费用，但实际上她的孩子由于疫情的影响，有一半以上的时间都被迫回到家里。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-60.jpg)
+渥太华警方决定增派警员，准备向持续在市中心抗议的活动采取行动。
 
-Sylvia Vago有一个一岁和一个三岁的孩子在多伦多的日托中心，每个孩子的费用是每周500元。Vago说，她和丈夫目前在家里工作，但她不断接到日托中心的电话，要求接走她的孩子。Vago不知道她如何在照顾孩子的同时并保持高强度的工作。而且孩子被送回家后，他们也没有得到任何退款。
+警察局长Peter Sloly说，巡逻警察将重点关注公物毁坏、仇恨、骚扰、威胁和其他恐吓行为，以发出明确的信息。”无法无天的行为必须结束”。
 
-Vago说：”每当他们流鼻涕和咳嗽时，他们就被送回家，而且要回家五天，所以这是一个永久的循环。在过去的一个月里，他们有50%的时间都在家里，而我们还必须支付4000元给日托中心，下个月可能也会是这样。”
+Sloly在周五的新闻发布会上说，反对疫情限制措施的抗议活动使渥太华的市中心玩去拿瘫痪，这是一场”越来越不稳定、越来越危险的示威”。
 
-安省日托经营者协会（ADCO）说，如果孩子不在机构里，他们其实不想向家庭收费，但运营有固定的成本，家长还是必须支付这笔钱。
+“我们将尽快结束这场示威。”
 
-ADCO发言人Kim Yeaman说：“没有一个日托经营者希望这样的情况发生。日托中心从各级政府获得了资金，他们可以决定如何使用这些资金。一些日托中心正在将资金返还给那些在孩子不在日托，但依然付钱的父母。”
+Sloly警告说，国会山附近的示威者仍然有高度的组织性。而且资金充足，完全没有结束抗议的趋势。
 
-记者联系了多伦多市儿童服务部，总经理Shanley McNamee说：”在整个大流行期间，托儿所被强制关闭，并且不允许在这些期间向家长收取费用。但是由于严格的健康和安全协议（即清洁和使用个人防护设备等）而增加的成本，以及租金、员工工资和福利等固定成本，日托中心的经营者可能会发现，如果不收取托儿费，就难以支付这些固定成本。”
+警方计划通过路面障碍物，和大型机械将示威活动控制在国会山以南的地区，以控制整个市中心核心区的道路。
 
-McNamee表示：“服务部给出的指导意见是，托儿所要考虑他们的政策和财务可行性，并适当地分配资金支持。日托中心必须确保他们能够保持财务可持续性，然后才能向家庭提供与COVID有关的缺勤补偿。”
+Sloly说，他们还在考虑关闭高架路和高速公路的下行线，进入的抗议卡车将被引导到市中心核心区以外的指定停车区，非法停车可能会被开单、拖车和扣押。
 
-Vago认为，如果他们的孩子因为疫情而被送回家，家长应该得到一些退款。日托机构经营者对此表示，疫情给每个人都带来了挑战，如果家长对孩子从日托中心的退款有疑问，鼓励他们向市政府查询退款政策。
+警方预计，本周末将有多达400辆卡车，和多达2000名步行者继续参加抗议活动。此外，多达1000人可能参加市中心的反示威活动。
 
-来源：https://toronto.ctvnews.ca/toronto-parents-pay-4-000-in-daycare-costs-to-watch-their-own-kids-when-sent-home-due-to-covid-19-protocols-1.5767064
+Sloly对任何企图制造麻烦的人传达明确信息：”不要带武器，不要带枪支，不要在抗议现场造成伤害。不要到这里来犯法，你将被追究责任。”
+
+渥太华负责人说，警方正在调查他和其他城市官员本周收到的死亡威胁。
+
+公共安全部长Marco Mendicino周四晚些时候说，加拿大皇家骑警已经批准了渥太华市长Jim Watson的请求，让骑警支持城市警察。
+
+Sloly周五说，渥太华、安省和国家的情报人员正在合作分析信息。
+
+各小组正在收集包括车辆登记、司机身份、保险状况和其他将用于起诉的相关证据的细节。
+
+Sloly说，每一个非法行为，包括违反交通和保险的行为，”都将被全面追究”。
+
+总理贾斯汀·杜鲁多对抗议者进行了严厉的批评，呼吁他们离开渥太华市区，让居民恢复日常生活。
+
+抗议活动的组织者Tamara Lich在周四的新闻发布会上说，示威者的离开将”基于总理做正确的事情：结束对我们自由的所有限制”。
+
+来源：https://www.cp24.com/news/ottawa-police-deploy-surge-in-response-to-ongoing-protest-1.5767828
 
 （文章仅代表作者个人观点）
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
 欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
 **关注我们**
 
 Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
 Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
