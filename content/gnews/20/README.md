@@ -2,28 +2,30 @@
 ---
 
 
-## 文贵直播2.4: CCP黑社会运作下的北京冬眠会
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1956446/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1956605/)
 
-整撰：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.jpeg)
-截屏：香水百合
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
 
-郭文贵先生2022年2月4号从大直播揭开了共产党这个黑社会是如何组织北京奥运会的。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-郭先生说，共产党的一套黑社会是有章法的，它是世界上最严谨的黑社会组织。所有飞机，乌兹别克斯坦总统飞机降落，普京总统飞机降落，飞机什么角度对着飞机，嚓嚓嚓嚓嚓落下来。然后普京出来，国宾车到贵宾楼就是元首楼，只给元首走的通道（郭先生叫这通道是棺材盒，海航出了一半的钱），那个贵宾车都要从那路过。红汽车啪啪啪过去，只给你3.2秒，多0.1秒都不行，然后车过去，这叫国宾待遇。96个国家只来了33个元首，要看谁先到谁后到，哈萨克斯坦，乌兹别克斯坦，然后就到了阿根廷，带着六个运动员来了，还一个带一个运动员的。
+视频参看：
+[2022.02.04早 《NFSC新闻》](https://gtv.org/video/id=61fd2a0d96ba5d73e0c2af16)
+[2022.02.04早 G|TV《新闻访谈》](https://gtv.org/video/id=61fd335e96ba5d73e0c2bf76)
 
-这时候，熟悉共产党这套国宾礼仪的郭先生发现，章法还是是那个章法，但是内容全变了。现场几乎90%全是军人。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-盘古的七星酒店，现在到处是特警，地下室都是特警。恰恰第一个人就死在了盘古的旁边了，嘎本儿就死了，是一特警，狙击手！还是领头的监狙手，就是专门监督狙击手的人，慌成一片呐， 习太阳吓了个半死！！！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
 
-这种管着主席台周围的狙击手，一般两个拿枪的，这叫三角组，后面有个头，这个头后面别着枪，一般都是打枪很准的，万一这仨人都造反了呢？
-
-这个头刚才死了，就在盘古旁边，吧唧死了，赶快就把他盖住，这哥们一直蹬嗒噔嗒噔嗒，这哥们就是当时疫苗没死，也给捂死了。
-
-这老天爷，中国人叫祭旗呀！光这点事不叫冬眠会呀？
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

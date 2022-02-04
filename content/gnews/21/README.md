@@ -2,43 +2,31 @@
 ---
 
 
-## 辉瑞公司隐藏了数据:接种疫苗的孕妇都流产
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1956429/)
+## 七哥谈犯罪舞台——《春节联欢晚会》（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956604/)
 
-**翻译：不要代表我Kari
-编辑/校对：Candy**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/流产.png)图片来源：dailyexpose.uk
+来源：郭先生2022-02-02直播08：58：51摘录
 
+更夸张的事情，共产党他做梦没有想到HPay昨天大年初一上线。兄弟姐妹你们真的不知道，就说今天你们谈《春晚》的时候你们谈不出那个一样，我亲自参与，我也亲自被洗脑，我所有搞晚会的人你说我哪个不认识？我见过多少女孩从春节晚会下来没回家，赵本山还是晚会儿坐火车回家了，那小女孩真的是又被领导直接找去，就那种变态…大过年的，小女孩！香港的某个最年轻的女孩，就在中央参加完了，是假唱，完以后直接从领导车，从那个中央电视台的北门接走。这女孩凌晨五点离开了领导的所谓的值班办公室的时候，真的是撇拉着腿离开。这香港女孩她很少上网的，很小就小Sarah这样的孩子。然后她告诉我，她说：“Miles，我现在腿痛得不得了。” 我说：“你怎么会腿痛呢？” 她说：“他们搞我，搞好多招数，好几个人，我小肚子也痛，下边火辣辣的，我腿也痛。” 啊…这…我大过年的你说，我能想象，我们是有爹有娘有儿有女的人，你说这变态到什么程度？后来，那个香港的小女孩再也没上过中央电视台。她的姨、她的妈跟我都认识，我从来没说过嘴，我跟任何人没说出来过。某男士唱歌唱得特别好，你知道他跟我说什么：“七哥我们能搞的地方都让他们搞…” 就这帮人…他说：“他们变态到什么程度，” 他说：“在这个晚会前指挥我们、搞我们是一种享受。晚会完了后搞我们时候天天骂，还在骂我们，” 而且说：“给我舔脚趾头！” 为什么舔脚趾头？“我不让你，你能出名吗？” 他说：“你说这帮孙子有多坏。” 大家都知道，这是最火热的，后来参加好几届。就春节联欢晚会要没有拿性交易，没有钱交易，也没有权交易，你祖宗八辈你上不了中央电视台。可以说中国人过去最大的代表中国人无知耻辱、精神萎靡、精神大屠杀、文化大屠杀的犯罪舞台就是过去的《春节联欢晚会》！我今天说得过不过Eric，你们说实话，咱不兴拍马屁的，你们拍马屁，咱就变成第二个中央电视台了，我说的实话不？
 
-**公共卫生和医疗专业人员促进透明度组织提起的诉讼，出示了辉瑞公司的文件，显示：新冠疫苗导致其试验中的所有孕妇流产。**
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-这份题为 《疫苗授权后不良事件报告的累积分析 》（[Cumulative Analysis of Post-authorization Adverse Event Reports](https://drtrozzi.org/wp-content/uploads/2022/01/Pfizer-Cumulative-Analysis-of-Post-authorization-Adverse-Event-Reports.pdf)）的报告，描述了截至2021年2月接种过辉瑞公司疫苗的孕妇，没有一个分娩出活婴。
+**关注我们**
 
-报告标题为“缺失信息”的表 6， 在“妊娠和哺乳期接种疫苗”的第一个主题下显示了以下声明：
+Discord 账号
 
-“共270例妊娠的结果被报告为自然流产（23例），结果待定（5例），早产伴新生儿死亡，自然流产伴宫内死亡（各2例），自然流产伴新生儿死亡，以及正常结果（各1例）。238例妊娠没有提供结果（注意，每对双胞胎报告了2种不同的结果，都被计算在内）。”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-这表明，在270例妊娠中，有23例自然流产，5例 “结果待定”，2例早产且新生儿死亡，2例自然流产且宫内死亡，1例自然流产且新生儿死亡，以及1例正常结果。然而，也有那个棘手的说法。“没有提供其余238例妊娠的结果”。
+Gettr 账号
 
-一家媒体报道：“我们不知道这243（5+238）例接种过疫苗的女性其怀孕情况，他们只是没有被列入报告。我们所知道的是，在报告的27次怀孕中（270次减去243次），有28个死婴！这似乎意味着有人怀的是双胞胎，而且100%的未出生的婴儿都死了。”
-
-五个 “待定结果 ”有可能导致正常和健康的分娩，但这仍然不清楚。这意味着，在完全接种疫苗的女性子宫内，最多有87.5%的婴儿死亡，而不是100%。
-
-无论如何，这仍然是一个难以置信的可怕结果，令人作呕。不应该有婴儿因为这些 “安全和有效 ”的疫苗而死亡，也不应该有母亲在这个过程中受到伤害。
-
-辉瑞公司暗地里试图用一篇题为 《BNT162b2 mRNA Covid-19疫苗的安全性和有效性 》的文章来掩盖这一点，这篇文章于2020年12月31日发表在《新英格兰医学杂志》（[New England Journal of Medicine (NEJM)](https://www.nejm.org/doi/full/10.1056/NEJMoa2034577)）。
-
-原文链接：[**https://dailyexpose.uk/2022/02/02/hidden-pfizer-covid-19-vaccine-trial-data-shows-all-pregnant-vaccinated-women-miscarried/**](https://dailyexpose.uk/2022/02/02/hidden-pfizer-covid-19-vaccine-trial-data-shows-all-pregnant-vaccinated-women-miscarried/)
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,30 +2,17 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1956605/)
+## 中共的春晚是宣称假大空的精神毒药
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1956715/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+有国外的机构专门针对春晚做过研究，认为中国人对社会关系的本质，对节日，宗教，和人与人之间的交往，已经完全失去了辨别能力。认为这所有的一切，都是被共产党安排的。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+中共春晚是文化和思想的大屠杀，是最大的犯罪和精神毒药，一毒就是几代人。李长春就曾说：不要把中央春晚变成世界批评和嘲笑我们的工具。中共国的春晚都是假大空，无聊、无质量的，而新中国联邦的春晚是传播真相、信仰和美好的节目。
 
-视频参看：
-[2022.02.04早 《NFSC新闻》](https://gtv.org/video/id=61fd2a0d96ba5d73e0c2af16)
-[2022.02.04早 G|TV《新闻访谈》](https://gtv.org/video/id=61fd335e96ba5d73e0c2bf76)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频来源: 20220202—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 
