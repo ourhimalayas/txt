@@ -2,81 +2,50 @@
 ---
 
 
-## 【玫瑰看新闻】每日快讯2021年2月3日（新西兰时间）
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1955582/)
+## 一周中共病毒及疫苗灾难信息集锦
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955606/)
 
-**1. 美洲公司被美国撤销214牌照 中共联通回应称将积极维护合法正当权益**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image002.png)
-**路透北京****2****月****3****日**** – ****中共国联通集团周四表示，美国联邦通信委员会（****FCC****）在未列出具体事实，未经过正当程序的情况下就做出撤销联通美洲公司****214****牌照的决定，联通美洲公司将积极维护公司和客户的合法正当权益。****
+作者：纽约香草山农场 – Zion文恩/火来
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月25日至2月2日，除中共国外，全球新增中共病毒确诊患者两千一百万余例，同比上周下降了8.66%。此外，本周新增确诊死亡病例超过7万例，同比上周增长了18.9%，增长率较上周增加了2.5个百分点。连续两周，中共病毒全球死亡率持续上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-3.jpg)
+截止2月2日，除中共国外，全球累计接种了72.6亿剂中共病毒疫苗，同比18日的接种数据增长了1.82%，但疫苗接种增长率较上周总体下降了0.69个百分点。
 
-****所谓****214****牌照，是指根据美国通信法第****214****条规定，取得****FCC****颁发的国际电信业务授权。****
+实时分析显示，截止2月2日，全球来自27个国家共计8万5千767名受试者参与的78项临床研究表明，伊维菌素在预防、早期治疗和晚期治疗的案例中，分别能够降低85%、63%和39%的 中共病毒重症感染的临床病例。
 
-****中共国工信部官网稍早亦刊登声明称，中方将继续采取必要措施，维护中共国企业的正当权益。****
+另一方面，多国的中共病毒疫苗政策在本周出现松动迹象。1月28日，由于担心疫苗带来的风险不低于病毒本身，瑞典政府决定不推荐5至11岁的儿童接种中共病毒疫苗。同时，加拿大魁北克省政府遭遇了强有力的反抗声浪，为此不得不放弃对未接种疫苗的魁北克人额外征收健康税的计划。同样在加拿大，萨斯喀彻温省的省长斯科特宣布，将结束该省的疫苗护照政策，并呼吁联邦政府结束各地的强制疫苗政策。
 
-****美国联邦通信委员会****(FCC)1****月下旬投票决定撤销中共联通美国分公司在美国运营的授权，理由是国家安全担忧。**
+在美国，关于公布辉瑞疫苗原始数据的司法诉讼中，美国食品和药品监督管理局FDA认为，延迟75年公布疫苗数据是合适的，但这一观点遭到了法官驳斥。目前，法官要求辉瑞公司尽快公布关于中共病毒疫苗的全部数据。而当地媒体则再次聚焦福奇，包括其为中共病毒实验室提供资金支持，以及在疫情爆发初期蓄意打压、掩盖病毒真相的恶行。
 
-**在新中国联邦创始人郭文贵先生持续五年的揭露下，美国已经开始认清中共企业在全世界大肆偷窃技术和危害他国安全的行径。**
+但在某些特殊领域，由于缺乏对中共病毒疫苗灾难的认知，疫苗强制接种政策仍在继续：2月2日，美军决定，为了保持美军的战备力，美军将立即解雇拒绝接种“中共病毒疫苗”的现役军人。另外，联邦政府针对全美医护工作者的强制疫苗政策仍在实施。
 
-**2.拜登已批准在东欧部署更多美军力量未来几天完成调动**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-2.jpg)
-**路透华盛顿****2****月****2****日**** – ****一名美国官员说，美国总统拜登已批准在东欧部署更多美国军事力量，预计五角大楼将于周三宣布，未来几天将在东欧部署军队。目前美国与俄罗斯在乌克兰问题上陷入僵局。****
+参考链接：
+1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
+3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-18..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+4) .[Ivermectin for COVID-19: real-time meta analysis of 78 studies](https://ivmmeta.com/)
+5) .[JUST IN – Federal judge in Texas issues a nationwide injunction blocking Biden’s vaccine mandate for federal employees.](https://twitter.com/disclosetv/status/1484575812338823181?s=20)
+6) .[JUST IN – Biden’s vaccine-or-test mandate for workers at large businesses will be withdrawn by OSHA tomorrow.](https://gettr.com/post/pqhyr8309f)
+7) .[One of many medical heros, Dr. @richardursomd, at the DC March today. Thank you!](https://twitter.com/USA_Solutions_/status/1485371519417073670)
+8) . [Why haven’t we let doctors be doctors? Dr. Paul Marik’s experience treating Covid-19 patients is heartbreaking.](https://twitter.com/SenRonJohnson/status/1485700814643638275?s=20)
+9) .[URGENT CARE: Terminally ill father of two says Virginia hospital has discriminated against him based on his vaccination status and the consequences could be deadly.](https://twitter.com/FoxNews/status/1486084047617015818?s=20)
+10) .[Boston patient removed from heart transplant list for being unvaccinated https://trib.al/m1Zyz9V](https://twitter.com/nypost/status/1485971932923183108?s=20)
+11) . [Unvaccinated now barred from French restaurants, sports venues](https://thehill.com/policy/international/591011-unvaccinated-now-barred-from-french-restaurants-sports-venues)
+12) .[Compulsory Covid jabs for NHS workers set to be put on hold after Tory revolt and warning from Royal College of GPs it will lead to chronic staff shortages – while healthcare workers dump their scrubs outside Downing Street during protest march](https://www.dailymail.co.uk/news/article-10431489/Compulsory-Covid-jabs-NHS-staff-delayed-half-year-Tory-revolt-protests.html)
 
-****这位官员告诉路透，拜登已经正式批准了军队调动。****
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-****美国军方上周让大约****8,500****名士兵处于戒备状态，随时准备在必要时在很短时间内完成在欧洲的部署。面对俄罗斯在乌克兰附近集结军力，这是美国为安抚紧张不安的北约盟国所做的最新努力。****
+总编: Irene木木
+编辑：静言
+校正/发稿：Fei797
 
-****这名美国官员告诉路透，拜登本周将从美国向波兰和德国派遣大约****2,000****名士兵。****
-
-****这名官员告诉路透，大约****1,000****名士兵将从德国重新部署到罗马尼亚，那里是北约东翼最靠近俄罗斯的地方。****
-
-****五角大楼本周暗示，军队调动可能来自欧洲内部。**
-
-**郭文贵先生早先揭露，中共联手普京，各取台湾与乌克兰，赌美国无法顾及两场战争。**
-
-**3.争掌全球技术标准欧盟联美制中**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image004-3.jpg)
-**英国金融时报报导，欧盟二日就设立尖端技术和绿能科技的全球标准，公布更积极的新行动战略，确保欧洲能继续设立国际标准，引导脸部辨识系统、电池供电和下一代环境创新等技术的发展，并在设立全球标准方面与美国同心协力，以反制中共日益扩大的影响力。
-
-由于中共近年来积极游说国际电信联盟（ITU）、国际电工委员会（IEC）等重要技术标准设立机构，欧盟和美国愈来愈担心，中共的行动将使该国企业获得竞争优势。维斯塔哲特别提到中共稍早前重新定义网络的基本标准，让中共国有网络服务供货商对用户如何搜寻网络拥有更大的控制权；此举是北京当局在关键技术标准上带头与西方政府及其科技公司唱反调的案例。
-
-北京当局也在推动「中国标准二○三五」新战略，这项十五年蓝图企图协助中共制定第五代行动通讯技术（5G）和人工智能等技术的全球标准，俾便在国际舞台上发挥更大影响力。**
-
-**4.3年近5万人被拐卖到徐州有女子比8孩母更惨**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-3.jpg)
-**【大纪元2022年02月02日讯】江苏徐州八孩母亲被铁链囚黑屋事件持续发酵。有大陆记者揭露，同村里还有一名女子遭遇更为悲惨，长期被铁链锁着已不能行走。一份调查报告显示，早年有近5万女子被拐卖到徐州。
-
-大陆作者谢致红和贾鲁生在一份《古老的罪恶——全国妇女大拐卖纪实》的调查报告中引述官方数据指，从1986年到1989年，有近5万女子被拐卖到徐州，年龄最小的13岁。
-
-在徐州铜山县伊庄乡牛楼村几年内增加人口200多名，几乎全部是从云南、贵州和四川被拐的妇女，占全村已婚青年妇女的三分之二。当地官方一直保护这种拐卖婚姻。
-
-中共《检察日报》早年在“拐卖妇女十大奇案”中也披露，当年徐州市铜山区单集镇姜集村成为苏北最大的“人口批发市场”，全村100余户人家，除了一户开商店的和一户教师，家家都有家庭成员参与拐卖妇女，有的一家多达两到三人。
-
-中共的地方警察主要参与维稳、强拆。因为抓人贩子成本太大，没有利益驱动，他们尽量掩盖，所以贩卖人口在中共国还非常普遍。**
-
-
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
