@@ -2,30 +2,23 @@
 ---
 
 
-## 希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953959/)
+## 喜联储和共产党的区别（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954050/)
 
-#### 翻译/撰稿：黃金精神
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/喜联储和共产党的区别-（一）-.jpg)
+那么今天的共产党和共产主义，首先把你资产公有化，就今天共享财富，（现在）来美国了，他把你所有的，国家人民一票权的权利个人家族化，那我们农场是什么？农场有权利，最终再几个人的天下可能吗，农场就决定了你不可能把权利放在某个人那里，因为它没有商业，没有交易，没有统一。农场有把权力把财富给公有化的吗？没有任何可能把财富给公有化，因为农场没有法人和权利，（如果有）你就不合法。所以你不给坏人一个杀人的刀和枪，只要这种情况下坏人是有可能减少伤害的。你不给好人每天望着前面100个光腚的大姑娘或者100个帅男老诱惑她，这个好人可以变的更好，这叫体制！人不是神，人是挡不住诱惑的，这才是有社会叫社会环境，社会关系家庭关系，它有伦理有道德有法治，然后相信上天有轮回有报应，然后这个社会人和畜生辨别就不一样，然后现在我们穿衣服了我们不光着腚了，然后我们觉得我们应该是，首先人知道你不能去强奸人家的儿女，你也不能抢走人家的财富，人家也不会来强奸你的儿女，也不会抢你的财富。它是个（受）法律和道德约束的，那么今天的农场和喜马拉雅—个最大的问题什么？从第一天就告诉（大家）这里没有利益，没有交换，尊重的第一条就是法治和一人一票选出来的政府的追求目标，而且不是乌托邦，你只要做就能做到，我们就是为真不破，说谎话你在这呆不了，你想抢别人钱？不可以，你想当独裁？不可以！刚才（邪教）的六大功能知道了吗？第—个定要培养出个人崇拜，主要（有）崇拜。第二个完全的洗脑思想控制。第三个完全的财富控制然后编造邪说欺骗财富，然后反社会。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.jpg)图片来源：youtube
-据每日邮报2月4日报道，一名年仅21岁的希腊足球运动员在一场比赛中因心脏骤停而死亡，当时球场上没有除颤器或救护车。
+2022年1月12日大直播
 
-这名球员名叫亚历山德罗斯·兰皮斯（Alexandros Lampis），此前在为希腊第三级别球队伊留波利（Ilioupoli）效力。悲剧发生在比赛开始后的五分钟，兰皮斯在第一市政体育场（the First Municipal Stadium）的比赛中倒下。
+发布：星谕
 
-太阳报（The Sun）报道称，该体育场位于希腊首都雅典东南郊内，但救护车20分钟后才到达，而且没有办法在球场上抢救这名球员。
-
-类似事件仅发生在8个月前，当时克里斯蒂安·埃里克森（Christian Eriksen）在代表丹麦参加2020年欧洲杯时因心脏骤停而倒下，全世界都为之惊恐。
-
-在那次事件中，丹麦队队医莫滕·博森（Morten Boesen）证实，这位29岁的球员在球场上出现了心脏骤停，通过心肺复苏和除颤器的电击才抢救过来。
-
-埃里克森的生命得到了挽救，他现在将在布伦特福德队重返顶级联赛。在将除颤器植入他的身体后，这位丹麦中场已被允许重返职业足球，这有助于调节他的心率。
-
-自从埃里克森倒下后，足球界被一系列著名球员意外事件所震撼。塞尔吉奥·阿圭罗（Sergio Aguero）在为巴塞罗那踢球时出现胸痛，被迫退役，而维克多·林德洛夫（Victor Lindelof）和皮埃尔·埃梅里克·奥巴梅扬（Pierre-Emerick Aubameyang）也受到了惊吓。
-
-本赛季，28岁的维冈前锋查理·怀克（Charlie Wyke）在训练中倒地。30岁的谢菲尔德联队的约翰·弗莱克（John Fleck）在雷丁的比赛中晕倒在球场上。25岁的阿达马·特拉奥雷（Adama Traore）在代表舍里夫（Sheriff Tiraspol）对阵皇家马德里的欧冠比赛中抱着胸倒下。28岁的冰岛中场球员埃米尔·帕尔森（Emil Palsson）在10月发生心脏骤停后也需要进行心肺复苏。
-
-**新闻来源：**[**Greek footballer aged just 21 DIES after suffering a cardiac arrest on the pitch at a stadium where there was NO defibrillator and the ambulance took 20 minutes to arrive**](https://www.dailymail.co.uk/sport/sportsnews/article-10471803/Footballer-suffers-cardiac-arrest-pitch-dies-stadium-no-defibrillator.html)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

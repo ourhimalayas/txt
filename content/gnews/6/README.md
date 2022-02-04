@@ -2,20 +2,27 @@
 ---
 
 
-## 普京与中共国共同应对单边制裁
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1954316/)
+## 澳洲知名富商就加密货币诈骗广告控告脸书
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1954422/)
 
-翻译、整理：萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02041.jpg)图片来自ansa.it
-俄罗斯总统普京在抵达北京参加冬奥会前夕给新华社的一篇文章中表示俄罗斯和中共国致力于在 2019 年协议的基础上扩大使用本币进行双边支付，并共同建立应对单边制裁的负面影响的机制。
+**撰稿：日本东京方舟农场  海星**
 
-他有信心两国可以很快达成价值 2000 亿美元的交易，而2021年是 1400 亿美元。普京称正在投资、生产、工业、农业等领域实施重要举措，并且俄罗斯和中共国之间的关系正在平等的意识形态的基础上发展。
+2月3日，澳洲知名富商福雷斯特（Andrew Forrest）对社交媒体巨头脸书提起刑事诉讼，指控该公司纵容加密货币诈骗广告并从中获利。
 
-普京对新华社记者说，俄罗斯和中共国之间正在形成一个互利的能源联盟，并指出，除了向中共国长期输送石油和天然气外，还计划在中共国开展一系列联合项目。比如去年开始在俄罗斯Rostec集团的参与下在中共国核电站建设四台新一代机组，这一切都大大提高了中共国和整个亚洲地区的能源安全。
+据《中央社》报导，福雷斯特当天在西澳州法院对脸书提起刑事诉讼，指控该公司允许诈骗者利用其肖像和名字宣传加密货币投资广告，让脸书用户以为这些投资是受到名人的背书而上当受骗，损失金钱。然而，脸书却在这些欺诈性广告中获取利益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-14.png)（图片来源：Getty Images）
+福雷斯特表示，他是代表普通澳洲人向脸书提起这场刑事诉讼，以保护澳洲人民辛苦工作赚来的储蓄不被骗走。他强调说，社交媒体公司不应允许他们的网站被犯罪集团所利用，而应该利用其庞大的资源来保护被骗的弱势人群。
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/asia/2022/02/03/putin-con-cina-per-contrastare-le-sanzioni-unilaterali\_b92b7a2b-1fd4-4f91-9f08-7fc19c1ad2f5.html](https://www.ansa.it/sito/notizie/mondo/asia/2022/02/03/putin-con-cina-per-contrastare-le-sanzioni-unilaterali_b92b7a2b-1fd4-4f91-9f08-7fc19c1ad2f5.html)
+据悉，福雷斯特身价高达272.5 亿澳元，是澳大利亚第二富有的人。自2019年3月以来，利用其形象的加密货币投资广告就一直出现在脸书，福雷斯特曾多次要求脸书禁止使用他的形象，并在2019年11月致信脸书创始人扎克伯格，但脸书始终没有撤下其平台上的虚假广告。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202202030157.aspx](https://www.cna.com.tw/news/aopl/202202030157.aspx)
+2.[https://www.epochtimes.com/gb/22/2/3/n13552028.htm](https://www.epochtimes.com/gb/22/2/3/n13552028.htm)
+3.[https://en.wikipedia.org/wiki/Andrew\_Forrest](https://en.wikipedia.org/wiki/Andrew_Forrest)
+
+**素材采编**：海星
+**编辑**：文顺
+**发布**：文曦
 
  
 

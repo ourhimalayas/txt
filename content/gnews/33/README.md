@@ -2,32 +2,30 @@
 ---
 
 
-## 如果中共在北京冬奥会上抓捕，国际奥委会将被视为同谋
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953924/)
+## 希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953959/)
 
-#### 撰稿：彩虹       
+#### 翻译/撰稿：黃金精神
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-260.png)图片来源：福布斯
-2月3日，《新闻极限》引述《福克斯新闻》的报道，周四，来自威斯康星州的众议员迈克·加拉格尔（Mike Gallagher）提出立法，如果中共在2022年北京冬奥会上抓捕任何运动员、球迷或记者，他们将对国际奥委会（Inter national Olympic Committeee）进行制裁。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.jpg)图片来源：youtube
+据每日邮报2月4日报道，一名年仅21岁的希腊足球运动员在一场比赛中因心脏骤停而死亡，当时球场上没有除颤器或救护车。
 
-该法案得到了少数党领袖凯文·麦卡锡（Keven McCarthy）的支持，强调如果在周五开始的奥运会期间发生任何“严重侵犯国际公认的人权”行为，将对国际奥委会产生严重影响。
+这名球员名叫亚历山德罗斯·兰皮斯（Alexandros Lampis），此前在为希腊第三级别球队伊留波利（Ilioupoli）效力。悲剧发生在比赛开始后的五分钟，兰皮斯在第一市政体育场（the First Municipal Stadium）的比赛中倒下。
 
-加拉格尔告诉福克斯新闻说：“世界各地勇敢的运动员正计划抵制明天的开幕式，以抗议中共在新疆正在进行的种族屠杀。但国际奥委会不但不支持这些运动员的言论自由，反而努力劝阻他们揭露中共对人权的严重侵犯。”
+太阳报（The Sun）报道称，该体育场位于希腊首都雅典东南郊内，但救护车20分钟后才到达，而且没有办法在球场上抢救这名球员。
 
-加拉格尔指出，“如果在奥运会上有任何运动员或球迷因为行使国际公认的权利而付出代价，国际奥委会应该被视为这些罪行的同谋。”
+类似事件仅发生在8个月前，当时克里斯蒂安·埃里克森（Christian Eriksen）在代表丹麦参加2020年欧洲杯时因心脏骤停而倒下，全世界都为之惊恐。
 
-文章说，该法案引用了1961年《对外援助法》（Foreign Assistance Act），其中规定“‘严重侵犯国际公认的人权’是指未经指控或审判的长期拘留、通过绑架或秘密拘留使个人失踪、或不人道和有辱人格的待遇。”
+在那次事件中，丹麦队队医莫滕·博森（Morten Boesen）证实，这位29岁的球员在球场上出现了心脏骤停，通过心肺复苏和除颤器的电击才抢救过来。
 
-文章特别指出，在一月份的新闻发布会上，北京奥组委对外联络部副部长杨舒说，运动员可能会因为声称中共侵犯人权而面临惩罚。
+埃里克森的生命得到了挽救，他现在将在布伦特福德队重返顶级联赛。在将除颤器植入他的身体后，这位丹麦中场已被允许重返职业足球，这有助于调节他的心率。
 
-杨舒当时警告说：“任何违反奥林匹克精神的行为或言论，特别是违反中国法律和法规的行为或言论，也会受到一定的惩罚。”
+自从埃里克森倒下后，足球界被一系列著名球员意外事件所震撼。塞尔吉奥·阿圭罗（Sergio Aguero）在为巴塞罗那踢球时出现胸痛，被迫退役，而维克多·林德洛夫（Victor Lindelof）和皮埃尔·埃梅里克·奥巴梅扬（Pierre-Emerick Aubameyang）也受到了惊吓。
 
-**新闻来源**
+本赛季，28岁的维冈前锋查理·怀克（Charlie Wyke）在训练中倒地。30岁的谢菲尔德联队的约翰·弗莱克（John Fleck）在雷丁的比赛中晕倒在球场上。25岁的阿达马·特拉奥雷（Adama Traore）在代表舍里夫（Sheriff Tiraspol）对阵皇家马德里的欧冠比赛中抱着胸倒下。28岁的冰岛中场球员埃米尔·帕尔森（Emil Palsson）在10月发生心脏骤停后也需要进行心肺复苏。
 
-[Republicans Pledge to Sanction Olympics if Any US Athletes Disappea](https://www.newsmax.com/politics/olympics-china-human-rights-sports/2022/02/03/id/1055434/)
-
-
+**新闻来源：**[**Greek footballer aged just 21 DIES after suffering a cardiac arrest on the pitch at a stadium where there was NO defibrillator and the ambulance took 20 minutes to arrive**](https://www.dailymail.co.uk/sport/sportsnews/article-10471803/Footballer-suffers-cardiac-arrest-pitch-dies-stadium-no-defibrillator.html)
 
  
 

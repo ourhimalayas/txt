@@ -2,8 +2,8 @@
 ---
 
 
-## 和平时期的战争
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954340/)
+## 中共企图对台湾搞大一统的侵略行为是可议的
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954446/)
 
 台灣寶島農場
 

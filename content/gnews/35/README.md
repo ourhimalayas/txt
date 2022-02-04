@@ -2,27 +2,41 @@
 ---
 
 
-## 佩洛西警告美国运动员奥运期间不要激怒中共政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953884/)
+## CCP病毒疫苗或导致一种新型获得性免疫缺陷综合症
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1953888/)
 
-#### 撰稿：彩虹
+撰稿：文月
+![](https://assets.gnews.org/wp-content/uploads/2022/02/403.jpg)图片制作：澳喜农场©森森
+Peter Mccullough博士和其他知名科学家进行的一项新的科学研究得出结论，Covid-19疫苗损害了获得性免疫系统。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.jpg)图片来源：纽约邮报
-2月3日，《国会山报》引述《路透社》报道，周四，众议院议长南希·佩洛西（Nancy Pelosi）警告参加北京冬奥会的美国运动员，不要冒险激怒“残酷无情”的中共政府
+这项题为 “SARS-CoV-2 mRNA疫苗的先天免疫抑制：G-四联体(G-quadruplexes)、外泌体 (exsomes)和microRNA的作用 “的研究发表于2022年1月21日。文章提供了一系列证据，表明Covid-19 mRNA疫苗进入身体引起的基因变化对人类健康有多种影响，特别是受损的DNA修复和适应性免疫损伤。
 
-在美国国会及行政当局中国委员会 (Congressional-Executive Commission on China)的听证会上，佩洛西说，美国有“紧迫的道德责任来照亮” 中共的人权侵犯行为，包括对新疆维吾尔少数民族的侵犯行为。
+我们都知道免疫系统和DNA修复系统是高等生物防御各种威胁所依赖的两个主要系统。如果同时受损，对于人的身体意味着什么，可想而知。同时作者还指出：接种 Covid-19 mRNA 对外泌体进行的细胞通讯可造成损害，同时mRNA疫苗接种会诱导细胞摄取mRNA后并产生大量携带刺突蛋白的外泌体，这可能会导致严重的炎症。
 
-她说：“现在，国际奥委会在企业赞助商的帮助下，再次对2022年冬奥会视而不见，只是为了给中共涂脂抹粉。如果我们因为商业利益而不对中共的侵犯人权行为发表意见，我们就会失去对任何地方的侵犯人权行为发表意见的所有道德权威。”
+作者指出通过Covid 疫苗产生的副作用如下，但并不仅限于此：
 
-但是，佩洛西敦促运动员们专注于比赛，而不是（对中共侵犯人权行为）发表意见。她说：“不要冒险招致中（共）国政府的愤怒，因为他们是残酷无情的。”
+- 与神经退化性疾病有潜在的直接因果关系
+- 心肌炎。
+- 免疫血小板减少症。
+- 胆囊炎。
+- 肝疾病。
+- 适应性免疫力的损伤。
+- 加强肿瘤的生长和形成。
+- 和DNA-损伤
 
-另据路透社报道，周一，立法者们告诉美国奥运官员，如果美国运动员选择公开反对中共国的侵犯人权行为，他们要准备保护美国运动员免遭中共国的报复。
 
-**新闻来源**
+这篇文章同时支持了“The Expose” 在最近几个月发表的证据，即那些完全接种疫苗的人发展出了一种由Covid 19疫苗引发的新型获得性免疫缺陷综合症。
 
-[Pelosi warns US athletes against angering ‘ruthless’ Chinese government during Olympics](https://thehill.com/homenews/house/592768-pelosi-warns-us-athletes-against-angering-ruthless-chinese-government-during)
+另外在VAERS的31年历史中，共报告了9153例与疫苗相关的死亡，其中7114例（78%）与COVID-19疫苗有关。
 
+最后，McCullough, Kyriakopoulos、Nigh和Sennef在其研究中的结论性陈述如下：“我们毫不夸张地说，数十亿人的生命处于危险之中。我们呼吁公共卫生机构用证据证明本文所讨论的问题为什么与公共卫生无关，或者承认它们与公共卫生有关并采取相应的行动。”
+
+参考文献：
+
+[https://telegra.ph/Neue-Studie-zeigt-dass-die-Covid-19-Impfstoffe-eine-neue-Form-des-erworbenen-Immunschw%C3%A4chesyndroms-verursachen-01-30](https://telegra.ph/Neue-Studie-zeigt-dass-die-Covid-19-Impfstoffe-eine-neue-Form-des-erworbenen-Immunschw%C3%A4chesyndroms-verursachen-01-30)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

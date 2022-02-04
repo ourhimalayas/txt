@@ -2,8 +2,8 @@
 ---
 
 
-## 如何推广H-pay？!
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954229/)
+## 和平时期的战争
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954340/)
 
 台灣寶島農場
 

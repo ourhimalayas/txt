@@ -2,26 +2,29 @@
 ---
 
 
-## 美参议员提出法律上禁止美国和中共国的任何联合军事行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1954105/)
+## 联合国与中共串通 冬奥会结束前不发布新疆人权报告
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1954182/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1031788169_0-0-3072-2048_1440x900_80_0_1_cd8d251192f8e64eb4b4987e800c1114.jpg.jpg)图片来源：路透社
-据俄罗斯卫星通讯社2月4日报道，美国参议员马尔科·鲁比奥周四说，美国6名参议员提出“制止与中国人民解放军合作的漏洞法”（No PLA Loopholes Act），来堵住现有法律中的漏洞并限制与中国共产党的武装力量中国人民解放军的联合军事行动和演习。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/23-1.jpg)[图片来源](https://6park.news/504679.html)
+北京冬奥在即，新疆人权议题再次成为讨论议题。联合国与中共串通，声明在冬奥结束前将不会发布有关中共在新疆地区涉嫌侵犯人权的报告。
 
-总之，修正案将禁止美国国防部与中国人民解放军进行任何联合行动。参议员里克·斯科特在新闻稿重说：“中共国不是我们的朋友或者伙伴，这是我们的敌人，需要相应对待他们。”
+联合国人权事务高级专员办事处（OHCHR）表示，目前尚未有具体的时间表，发布这份有史以来第一次关于新疆地区人权的报告，而该报告已经酝酿了三年。
 
-新闻参考链接： [https://sputniknews.cn/20220204/1038666924.html](https://sputniknews.cn/20220204/1038666924.html)
+对于新疆人权的报告，美国方面则曾向联合国施压，要求在周五的冬奥会开幕之前发布此报告。
 
-* * *
+人权高专办发言人利兹·斯罗塞尔（Liz Throssell）则表示：“恐怕我们还没有发布这份报告的最新时间表。然而，据我所知，在本周五冬奥会开幕之前，这份报告将无法发布。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+斯罗塞尔也证实，关于联合国人权事务高级专员巴切莱特访问新疆的“谈话正在进行”，访问可能在“2022年上半年”进行。
 
+消息来源:
 
-编辑：【英国伦敦喜庄园编辑部】
+[聯合國遭控串通中共 冬奧結束前不發布新疆人權報告](https://tw.news.yahoo.com/%E8%81%AF%E5%90%88%E5%9C%8B%E9%81%AD%E6%8E%A7%E4%B8%B2%E9%80%9A%E4%B8%AD%E5%85%B1-%E5%86%AC%E5%A5%A7%E7%B5%90%E6%9D%9F%E5%89%8D%E4%B8%8D%E7%99%BC%E5%B8%83%E6%96%B0%E7%96%86%E4%BA%BA%E6%AC%8A%E5%A0%B1%E5%91%8A-054428557.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
 
  
 
