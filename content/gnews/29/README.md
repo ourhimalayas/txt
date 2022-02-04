@@ -2,25 +2,28 @@
 ---
 
 
-## 俄罗斯威胁入侵，美国军事援助抵达乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1954535/)
+## “大鲨鱼”奥尼尔表示，反对疫苗强制接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1954729/)
 
-##### 翻译：ATX1230
-校对：精靈藍
-剪辑|字幕：向上James
-编辑：Mttfly
+**整理报道：**波澜壮阔
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-01-27-at-1.01.18-PM-2048x1065-1.png)图片来源：Mediaite
+美国时间2022年2月4日，NBA的传奇人物——“大鲨鱼”沙奎尔·奥尼尔（Shaquille O’Neal）在他的一档播客节目（The Big Podcast with Shaq）中发言表示，反对疫苗强制接种。
 
-据福克斯新闻报道，超过12.7万名俄罗斯军队继续在与乌克兰接壤的广阔的边境地区活动。美国带头阻止入侵。英国官员说，30列俄罗斯军队和装备的火车现在被部署到邻国白俄罗斯。60个俄罗斯战斗群包围乌克兰，一些俄罗斯先进部队据说已经抵达这里。据福克斯新闻消息，200名美国外交官和家属计划撤离，但据说在乌克兰有2万名美国人。大使馆的消息是让他们现在（上周）就离开。《燕京邮报》的主编表示，两三周前他们觉得普京是在虚张声势，但随着每一天的推移，他认为发生这种情况的可能性变得更加现实。
+奥尼尔称，他反对中共病毒（COVID-19）疫苗的强制接种，并主张“身体自主”。他对观众说：“听着，我鼓励大家注意安全，照顾好自己的家人，我也是这么做的。但是（世上）仍有一些人不愿意接受疫苗。你不应该被强迫接受你不想要的东西”。
 
-视频链接：[US military aid arrives in Ukraine as Russia threatens to invade](https://video.foxnews.com/v/6293786137001#sp=show-clips)
+奥尼尔说，虽然他并不反对疫苗，但人们不应该在保住工作和接种疫苗之间做出选择。与奥尼尔一起参与播客的客人是来自与哥伦比亚广播公司的记者尼斯切尔·特纳（Nischelle Turner），特纳认为疫苗授权并不强迫人们接种疫苗，而奥尼尔则坚持认为他们是在强迫人们接种。奥尼尔说：“这就是强迫。因为如果这个人不接受，他就会被解雇”。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
+这位NBA传奇人物的言论得到了整个社交媒体的赞扬，在持有相同观点的人不敢反对主流说法的情况下，奥尼尔说出了自己的真实观点。
+
+**新闻链接：**[Shaquille O’Neal Says COVID-19 Vaccines Should Not Be Forced](https://www.si.com/extra-mustard/2022/02/04/former-lakers-star-shaquille-oneal-says-covid-19-vaccines-should-not-be-forced)
+
+*发布：翼族*
+
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
