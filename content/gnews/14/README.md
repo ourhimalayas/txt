@@ -2,19 +2,18 @@
 ---
 
 
-## 哈萨克斯坦的位置王毅四处挑拨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953998/)
+## Meta下跌25%市值蒸发逾2300亿美元，市值损失创美国市场有史以来最大
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1954022/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+素材：波士顿五月花 黄金时代
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GetPic.png)PhPhoPhotPhoto from eastmoney.com
+Meta Platforms周四开盘一度下跌25%，市值蒸发逾2300亿美元，市值损失创美国市场有史以来最大。公司此前公布最新一季用户增长停滞，给出的当前季度销售预测也令人失望。
 
-*发布：陶子*
+原文链接：[Meta下跌25%市值蒸发逾2300亿美元，市值损失创美国市场有史以来最大](https://www.jiemian.com/article/7072903.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+*发布：吐纳*
 
  
 

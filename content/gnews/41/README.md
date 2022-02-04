@@ -2,56 +2,19 @@
 ---
 
 
-## 乔治·索罗斯批评习近平的治国理念
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
+## 【粤语配音】2022年2月3日： 全球灭共将全面开始
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1953504/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
-[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
+紐約香草山-香港部
 
-**George Soros**
-**乔治·索罗斯**
+新中国联邦新春联欢晚会，在国内过去的24小时，就是达到了将近7600万人次看，还是看得最多的是七哥的两首歌，《一帘幽梦》和《塞北的雪》，更重要的，在日本、在英国，在北欧、在东欧、西欧，都是大量的回看量。
 
-Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
-习近平竭尽全力摧毁邓小平的功绩
+然后北京这些老杂毛们相当的恐惧，现在听说很纠结啊，要把《塞北的雪》彻底屏蔽，那彭丽媛咋办呢？《一帘幽梦》彻底屏蔽，那这个国内的影响太大了，那咋办呢？这就是我们要的结果，有些事情没有结果就是最好的结果，还有这个冬奥会就别提了，欧洲的几个国家记者包括日本的，很多记者在北京受到了无礼对待，要插人家肛门(做核酸检测)，人家不让插…就吵起来威胁人家，又要抓又要杀的，人家说，我不干了我回去，我不参加采访不就完了吗？“不行，你不能走”，就这也走不了，人家有包专机的，专机申请不了，不让来你咋弄？这就是耍流氓，它耍流氓，对咱是好事兄弟姐妹们，你要天真的去想共产党，你早晚也一定会进火葬场。
 
-He brought private companies established under Deng under the control of the CCP
-他将在邓小平时期创建的民营企业置于中共的控制之下
+你要不把这个冬奥会开了，咱哪有这种效果，你想想共产党，每分每秒都在给中国人拉仇恨，每分每秒都在树立自己的敌人，它是神呐？全世界输它能活下去吗？它能吗? 不可能
+所以说就是老天在帮我们兄弟姐妹们，同时看到现在Facebook、Twitter、Paypal，股票大跌，你见过有哪些股票一跌，一天跌20%~25%，吓死人了，还没到时候，H-Pay上线以后大家看到，买摩托车的、买汽车、买房子的，转款的、担保的，全部都“哇…“都上去了
 
-and undermined the dynamism that used to characterize them
-并破坏了过去使其具有活力的机制
-
-rather than letting private enterprise blossom
-而不是让民营企业百花齐放
-
-Xi Jinping introduced his own China dream
-习近平提出了自己的“中国梦”
-
-As can be summed up in two words: “total control”
-可以用两个词概括就是：全面控制
-
-that has had disastrous consequences
-这带来了灾难性的后果
-
-**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
-
-Date:02/02/2022
-原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
-乔治·索罗斯批评习近平的治国理念
-原视频日期：2022/02/02
-原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
-任务编号：3651
-视频时间段 : 0:00-0:38
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+我说记住 H-Pay上线，一天中的数据就会超过你过去，所有上线时间的使用的数据三倍，仅仅一天的时间，共产党实在是完蛋了，加拿大、美国、欧洲、非洲，多少人现在要把疫苗灾难，完全要归咎于中国共产党身上去，世界上很多黑暗的力量，跟共产党勾兑后，他们现在有侥幸的心理，例如在西方的媒体平台，随着时间的推移，2022年水虎年，这只水老虎就把共产党“啪..”就给吃了
 
  
 

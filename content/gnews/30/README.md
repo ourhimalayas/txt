@@ -2,24 +2,22 @@
 ---
 
 
-## 喜支付完成台湾地区第一笔交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953729/)
+## 台湾农场完成第一笔用喜币购买机车的交易
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953740/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A720D7FF-2ECD-457D-BE81-209D7F6456BB.png)
-2月2日，喜马拉雅支付刚上线，就从台湾宝岛农场传来喜讯，喜支付已经完成了该地区第一笔茶叶的交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-255.png)
-据盖特账号“伊松坊”称，有战友从这家茶叶店订购了七斤“炭焙茶王”，总价750个喜Dollar，等值750美元。店主介绍，提供收款人邮箱和电话之后，HPay进行了点对点支付，一秒到账，交易细节清楚明了，安全无痕，没有任何中间费用。
+撰稿：香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+2月3日，台湾农场的大牛、政清等战友为了购买春节抽奖礼物，到台北的一家雅马哈机车行，使用喜支付App,以52个喜币的价格完成了交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-256.png)
+据悉，战友们采用GTV直播的方式，进行了此次具有历史性意义的商业交易。交易进行过程中，战友们首先询问了老板机车的价格，然后把七万五千个台币换算成2735美元或52个喜币。接着询问老板要选择使用HDO 或是 HCN进行交易，老板主动选择HCN的方式交易，随后战友们在喜支付系统上输入商家的名称、交易金额、币种、备注购买人及购买对象，最后按确认，瞬间就完成了这笔交易。商家也马上看到该笔汇款，已经到达自己的喜交所账户内。
 
-战友评论指出，喜支付于虎年大年初一成功登陆AppleStore和PlayStore，并完成实物贸易，标志着喜支付已经打通了G系列的任督二脉，可以把G生态链上的所有环节都紧密相连，并开始变得活跃。喜币将像毛细血管一样，向世界上更多领域、更多个体延伸，从而颠覆现金、法定货币的支付与转账方式，引领虚拟货币、数字货币支付潮流。真正实现实时到账和资本无限流通，摆脱传统金融对个人合法资产过度监管的暴政。
+继喜Dollar之后，喜币支付的成功应用，是另一个具有里程碑意义的事件，标志着新中国联邦的数字货币、喜支付系统开始被世界全面接受，人类自由交易的新纪元已然开始。
 
-新闻链接：[#Hpay #台灣農場 #喜支付 #茶 #伊松坊](https://gettr.com/hashtag/%23Hpay)
+新闻连接：[用H pay 購買機車](https://gtv.org/video/id=61fb93d196ba5d73e0c1e751)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：Irene木木
-
-编辑：谐趣园
+总编/编辑：文特
 
 校正/发稿：浪迹天涯
 
@@ -29,9 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A720D7FF-2ECD-457D-BE81-209D7F6456BB.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

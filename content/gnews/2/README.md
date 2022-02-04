@@ -2,37 +2,29 @@
 ---
 
 
-## 美国称俄罗斯计划伪造乌克兰入侵俄视频
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1954121/)
+## 新疆西藏同胞在纽约抗议北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1954179/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-48.jpg)
+日本电视台新闻 2月4日报道：在北京冬季奥运会开幕式前，来自中国西藏自治区和新疆维吾尔自治区的民众在美国纽约举行了反对北京冬奥运会的抗议示威活动。
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+抗议人士高呼“没有人权就没有奥运”，“不再有沾满鲜血的奥运会”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
+2月3日，来自西藏和维吾尔自治区的约100人聚集在纽约市中心的时代广场，抗议北京冬奥会。
 
+一位维吾尔族男子说：”中共政府对维吾尔人进行了种族灭绝，犯下了反人类罪。中共国无权举办奥运会。奥运会是一个团结的和平的盛会”。
 
-根据凤凰网报道：美国国防部2月3日表示，五角大厦握有证据，莫斯科计划伪造一部乌克兰攻击俄罗斯的视频，为出兵乌克兰提供借口。
+据悉，在纽约2月5日将在播放北京冬奥会的电视台前，再次举行抗议活动。
 
-美国国防部发言人柯比（John Kirby）告诉记者，华盛顿相信俄罗斯政府计划虚构乌克兰军队或情报部队攻击“俄罗斯主权领土或说俄语的民众”。
+都站出来吧，勇敢的爱好和平的人们！大家一起抵制北京冬奥会。中共这个残暴的毫无人性的独裁政权，没有任何理由再存在于这个世界，让中共的冬奥会开成他们的治丧会吧。Take down the CCP！
 
-路透社报道称，一位美国高级政府官员表示，美国公开这项情报，是为了劝阻俄罗斯执行此类计划。
+信息来源：[ウイグル人ら、北京五輪開催に抗議 米NY](https://news.ntv.co.jp/category/international/2db5886be9f9473ea9a5bd59e12e48f2)
 
-但是俄罗斯表示，北约无视俄罗斯的核心利益，不断东扩导致了目前的危机。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-普京说，美国利用乌克兰作为遏制俄罗斯的工具，而不是关心乌克兰的安全，美国想把俄罗斯拖入武装冲突。俄罗斯希望避免局势升级，为此必须保障包括俄罗斯在内的所有各方安全，他同时希望安全保障对话继续下去。
-
-参考链接：https://i.ifeng.com/c/8DLsJt8Pml6
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

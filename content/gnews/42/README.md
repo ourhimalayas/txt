@@ -2,23 +2,56 @@
 ---
 
 
-## 郭文贵精品视频-塞北的雪花智慧地飘过信息高墙
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/1953150/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-撰稿：澳喜cindy
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-据说：《塞北的雪》是当年彭丽媛能入京的重要的歌，也是2022年2月4日将要召开的北京冬奥会主打的歌。此时新中国联邦创始人、灭共第一人文贵先生演唱改编过的《塞北的雪》抢占先机，令共匪左右为难，是否屏蔽掉这首带有使命的歌流入14亿人的耳朵里呢？
+**George Soros**
+**乔治·索罗斯**
 
-我爱你，塞北的雪，飘飘洒洒漫天遍野，你的舞姿是那样的轻盈，你的心地是那样的纯洁，你是消灭共匪的战友，你是上天派出的使节，灭共的使节。
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-我爱你，灭共的雪，轰轰烈烈漫山遍野，你用自己那无瑕的身躯，净化被谎言笼罩的世界，你把真相传递给了人间，唤醒那无尽的黑夜沉睡的心田。
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-塞北的雪花身兼上天的使命，冲破中共设下的层层关卡飞到了国内那渴望自由的百姓心里。必将唤醒那沉睡已久的心田。正如5年前郭先生一人点燃的灭共之火，如今已在全世界燃烧一样，消灭邪恶的中国共产党的烈火也会在不远的将来，在中国大地熊熊燃烧。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-*编辑：cindy*
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
+
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
+
+that has had disastrous consequences
+这带来了灾难性的后果
+
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
+
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
