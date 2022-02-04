@@ -2,48 +2,53 @@
 ---
 
 
-## 2月2日北京奥运会COVID-19病例创新高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956613/)
+## 银行业监管机构警告称，当升息时加国房价可能暴跌20%
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956673/)
 
-**评论：***北京奥运会的闭环管理系统充分显示了中共无视人权的独裁式高压管理手段。*
+作者： Financial Post Staff
+翻译：HimaCoby
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-57.jpg)
+加拿大联邦银行监管机构形容目前房地产市场处于”投机热”的后期阶段，并警告说，一些地方的房产价格可能暴跌多达20%。
 
-据《福克斯新闻》作者：[Andrew Mark Miller](https://www.foxnews.com/person/m/andrew-mark-miller)，2022年1月29日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-349-e1643999482307.png)2022年2月1日，在北京冬奥会国家滑行中心的跑道上，身穿全套中共病毒 (COVID-19) 防护服的工作人员。
-图片来源：路透社/托马斯·彼得
-• 组织者有信心将数字降下来
-• 北京奥运会将限制观众数量
+金融机构监管局局长Peter Routledge，在David Herle的周播播客节目The Herle Burly最新一期中说：”房地产投机热目前占据了市场，这就是正在发生的事情。展望未来，目前正处于这一阶段的后期。我的预期是，假设利率真的在今年上升，这种热度会减弱一些，你会看到价格的放缓。”
 
-北京，2月3日（路透社）——北京医学专家组主席周四表示，2月2日，在奥运会相关人员中发现了55例新的COVID-19感染病例，这是迄今为止最高的单日记录。
+去年被任命为OSFI领导的国民银行前分析师Routledge，将疫情期间房价的惊人飙升描述为一场完美风暴。由于过去十年的房价上涨，许多家庭拥有大量资产；加拿大的拖欠率很低，这降低了贷款人的风险；随着房价的稳步上升，”羊群心态”开始发挥作用；加拿大银行将其基准贷款利率降至实际为零。
 
-布赖恩·麦克洛斯基在奥运会开幕前的一次国际奥委会会议上表示，在机场抵达者中发现29例病例；在与公众隔开的参会人员“闭环”中，有26例病例。
+Routledge说，随着炒房的消退，住房市场将降温，有些甚至可能修正。
 
-“我们相信这个（闭环）系统会起作用。但我们并没有放松，我们保持所有措施到位。” 麦克洛斯基说。
+Routledge说：”在一些价格快速上涨的市场，你可能会看到10％，甚至20％的下降。”
 
-北京参赛者被限制在一个“闭环”内，以防止与公众接触，乘坐官方交通工具在住宿地点和奥运场馆之间通勤。
+然而，金融机构监管人认为，预期某些城市价格急剧下降，不会对加拿大的金融系统构成威胁。
 
-每个奥运会参与者每天都接受病毒测试，以快速识别闭环内的任何感染。
+多伦多和温哥华是房价最高的地方，以前也经历过类似的下跌。
 
-与许多寻求与中共病毒共存的国家相比，中共采取了零容忍政策，包括严格的边境管制和取消国际航班。
+他说：”2015年至2017年期间这些城市从高峰到低谷也有20%的跌幅，所以我们可以承受这种价格波动。”
 
-所有奥运参会者都乘坐包机抵达。
+在温哥华和多伦多房价上涨带动下，加拿大的房价在过去十年的大部分时间里一直在创造记录。在这次疫情中，因为对大面积住房的需求更大，这种狂热已经蔓延到其他城市。导致渥太华、蒙特利尔和新不伦瑞克的蒙克顿等地，出现类似多伦多的价格上涨。
 
-文章来源: [https://www.reuters.com/lifestyle/sports/beijing-games-see-55-covid-19-cases-feb-2-highest-daily-tally-2022-02-03/](https://www.reuters.com/lifestyle/sports/beijing-games-see-55-covid-19-cases-feb-2-highest-daily-tally-2022-02-03/)
+投资者注意到了这一点，并以此来获取利润。Routledge说，住房的”投机性繁荣”为市场增添了额外的热量。他说，通常情况下，投资者占房屋销售的15%左右，但目前他们占销售的22%左右。
 
-翻译：洛杉矶盘古农场 – 轰炸机
+Routledge说：”尽管这看起来只是一点点，但这是对房地产交易相当重要的增量需求。”
 
-校对：洛杉矶盘古农场 – Mike Li
+投资者对住房市场的兴趣可能即将下降，他说：”随着利率的上升，随着人们普遍认识到’天哪，住房的价值已经到顶了’，我确定你暂时不会在房地产市场拿到预期的回报······我认为一个聪明的投资者会三思而后行，也许会看看其他投资渠道。”
 
-评论：洛杉矶盘古农场 – 轰炸机
+来源：https://vancouversun.com/news/economy/banking-watchdog-warns-housing-prices-could-plunge-20-when-speculative-fever-breaks/wcm/91fb801b-6be3-465a-b779-d82f5a852af8
 
-编辑：洛杉矶盘古农场 – WenXiong
+（文章仅代表作者个人观点）
 
-发布：洛杉矶盘古农场 – 子萍
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+Discord 账号
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,31 +2,48 @@
 ---
 
 
-## 七哥谈犯罪舞台——《春节联欢晚会》（2022-02-02摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956604/)
+## 2月2日北京奥运会COVID-19病例创新高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956613/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**评论：***北京奥运会的闭环管理系统充分显示了中共无视人权的独裁式高压管理手段。*
 
-来源：郭先生2022-02-02直播08：58：51摘录
+据《福克斯新闻》作者：[Andrew Mark Miller](https://www.foxnews.com/person/m/andrew-mark-miller)，2022年1月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-349-e1643999482307.png)2022年2月1日，在北京冬奥会国家滑行中心的跑道上，身穿全套中共病毒 (COVID-19) 防护服的工作人员。
+图片来源：路透社/托马斯·彼得
+• 组织者有信心将数字降下来
+• 北京奥运会将限制观众数量
 
-更夸张的事情，共产党他做梦没有想到HPay昨天大年初一上线。兄弟姐妹你们真的不知道，就说今天你们谈《春晚》的时候你们谈不出那个一样，我亲自参与，我也亲自被洗脑，我所有搞晚会的人你说我哪个不认识？我见过多少女孩从春节晚会下来没回家，赵本山还是晚会儿坐火车回家了，那小女孩真的是又被领导直接找去，就那种变态…大过年的，小女孩！香港的某个最年轻的女孩，就在中央参加完了，是假唱，完以后直接从领导车，从那个中央电视台的北门接走。这女孩凌晨五点离开了领导的所谓的值班办公室的时候，真的是撇拉着腿离开。这香港女孩她很少上网的，很小就小Sarah这样的孩子。然后她告诉我，她说：“Miles，我现在腿痛得不得了。” 我说：“你怎么会腿痛呢？” 她说：“他们搞我，搞好多招数，好几个人，我小肚子也痛，下边火辣辣的，我腿也痛。” 啊…这…我大过年的你说，我能想象，我们是有爹有娘有儿有女的人，你说这变态到什么程度？后来，那个香港的小女孩再也没上过中央电视台。她的姨、她的妈跟我都认识，我从来没说过嘴，我跟任何人没说出来过。某男士唱歌唱得特别好，你知道他跟我说什么：“七哥我们能搞的地方都让他们搞…” 就这帮人…他说：“他们变态到什么程度，” 他说：“在这个晚会前指挥我们、搞我们是一种享受。晚会完了后搞我们时候天天骂，还在骂我们，” 而且说：“给我舔脚趾头！” 为什么舔脚趾头？“我不让你，你能出名吗？” 他说：“你说这帮孙子有多坏。” 大家都知道，这是最火热的，后来参加好几届。就春节联欢晚会要没有拿性交易，没有钱交易，也没有权交易，你祖宗八辈你上不了中央电视台。可以说中国人过去最大的代表中国人无知耻辱、精神萎靡、精神大屠杀、文化大屠杀的犯罪舞台就是过去的《春节联欢晚会》！我今天说得过不过Eric，你们说实话，咱不兴拍马屁的，你们拍马屁，咱就变成第二个中央电视台了，我说的实话不？
+北京，2月3日（路透社）——北京医学专家组主席周四表示，2月2日，在奥运会相关人员中发现了55例新的COVID-19感染病例，这是迄今为止最高的单日记录。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+布赖恩·麦克洛斯基在奥运会开幕前的一次国际奥委会会议上表示，在机场抵达者中发现29例病例；在与公众隔开的参会人员“闭环”中，有26例病例。
 
-**关注我们**
+“我们相信这个（闭环）系统会起作用。但我们并没有放松，我们保持所有措施到位。” 麦克洛斯基说。
 
-Discord 账号
+北京参赛者被限制在一个“闭环”内，以防止与公众接触，乘坐官方交通工具在住宿地点和奥运场馆之间通勤。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+每个奥运会参与者每天都接受病毒测试，以快速识别闭环内的任何感染。
 
-Gettr 账号
+与许多寻求与中共病毒共存的国家相比，中共采取了零容忍政策，包括严格的边境管制和取消国际航班。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+所有奥运参会者都乘坐包机抵达。
+
+文章来源: [https://www.reuters.com/lifestyle/sports/beijing-games-see-55-covid-19-cases-feb-2-highest-daily-tally-2022-02-03/](https://www.reuters.com/lifestyle/sports/beijing-games-see-55-covid-19-cases-feb-2-highest-daily-tally-2022-02-03/)
+
+翻译：洛杉矶盘古农场 – 轰炸机
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
