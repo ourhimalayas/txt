@@ -2,26 +2,30 @@
 ---
 
 
-## 佩洛西警告美国运动员奥运期间不要激怒中共政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953884/)
+## 中共国使用多种强制手段控制外国驻华记者的报道
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1953892/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-2.jpg)中共国使用多种强制手段控制外国驻华记者的报道 网络图片
+据美国之音2月4日报道，全球最大的记者组织—国际记者联盟(IFJ)在一份最新的报告中说，中共国使用多种强制手段来控制外国驻华记者对中共国事务的报道。这种做法凸显中共国媒体自由度的急剧下降。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.jpg)图片来源：纽约邮报
-2月3日，《国会山报》引述《路透社》报道，周四，众议院议长南希·佩洛西（Nancy Pelosi）警告参加北京冬奥会的美国运动员，不要冒险激怒“残酷无情”的中共政府
+这份题为《公平游戏：2022年中国境内外国记者濒危媒体空间》的报告列举了外国常驻记者在中共国面临的种种障碍和限制，例如直接驱逐出境、签证发放拖延和拒签、使用脸部识别技术等高科技进行数字监控等。这些常驻记者不能直接与普通中共国公民对话，不得不依赖中共国以外的消息来源，难以获得最全面的消息。
 
-在美国国会及行政当局中国委员会 (Congressional-Executive Commission on China)的听证会上，佩洛西说，美国有“紧迫的道德责任来照亮” 中共的人权侵犯行为，包括对新疆维吾尔少数民族的侵犯行为。
+除了在报道和签证上受限制，这些外国记者往往面临人身安全的威胁。在北京冬奥会之际，从抵达中共国到离开，记者被限制在一个“闭环管理系统”内，禁止与“真正的中国”进行任何接触。中共国只有一种声音可以无限地放大，就是对沾满了鲜血的党的颂赞。爹亲娘亲不如党亲，任何反对的声音，哪怕质疑，都会遭到打压。种族灭绝冬奥会是中共临死前举办的最后一场化妆舞会，是对奥运精神的亵渎。中共灭亡之后，奥运精神会被重新书写。
 
-她说：“现在，国际奥委会在企业赞助商的帮助下，再次对2022年冬奥会视而不见，只是为了给中共涂脂抹粉。如果我们因为商业利益而不对中共的侵犯人权行为发表意见，我们就会失去对任何地方的侵犯人权行为发表意见的所有道德权威。”
+新闻参考链接：[https://www.voachinese.com/a/ifj-china-media-foreign-reporters-20220203/6425671.html](https://www.voachinese.com/a/ifj-china-media-foreign-reporters-20220203/6425671.html)
 
-但是，佩洛西敦促运动员们专注于比赛，而不是（对中共侵犯人权行为）发表意见。她说：“不要冒险招致中（共）国政府的愤怒，因为他们是残酷无情的。”
+* * *
 
-另据路透社报道，周一，立法者们告诉美国奥运官员，如果美国运动员选择公开反对中共国的侵犯人权行为，他们要准备保护美国运动员免遭中共国的报复。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**新闻来源**
 
-[Pelosi warns US athletes against angering ‘ruthless’ Chinese government during Olympics](https://thehill.com/homenews/house/592768-pelosi-warns-us-athletes-against-angering-ruthless-chinese-government-during)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

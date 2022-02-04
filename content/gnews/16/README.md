@@ -2,30 +2,30 @@
 ---
 
 
-## 中共国使用多种强制手段控制外国驻华记者的报道
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1953892/)
+## 希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953959/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-2.jpg)中共国使用多种强制手段控制外国驻华记者的报道 网络图片
-据美国之音2月4日报道，全球最大的记者组织—国际记者联盟(IFJ)在一份最新的报告中说，中共国使用多种强制手段来控制外国驻华记者对中共国事务的报道。这种做法凸显中共国媒体自由度的急剧下降。
+#### 翻译/撰稿：黃金精神
 
-这份题为《公平游戏：2022年中国境内外国记者濒危媒体空间》的报告列举了外国常驻记者在中共国面临的种种障碍和限制，例如直接驱逐出境、签证发放拖延和拒签、使用脸部识别技术等高科技进行数字监控等。这些常驻记者不能直接与普通中共国公民对话，不得不依赖中共国以外的消息来源，难以获得最全面的消息。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.jpg)图片来源：youtube
+据每日邮报2月4日报道，一名年仅21岁的希腊足球运动员在一场比赛中因心脏骤停而死亡，当时球场上没有除颤器或救护车。
 
-除了在报道和签证上受限制，这些外国记者往往面临人身安全的威胁。在北京冬奥会之际，从抵达中共国到离开，记者被限制在一个“闭环管理系统”内，禁止与“真正的中国”进行任何接触。中共国只有一种声音可以无限地放大，就是对沾满了鲜血的党的颂赞。爹亲娘亲不如党亲，任何反对的声音，哪怕质疑，都会遭到打压。种族灭绝冬奥会是中共临死前举办的最后一场化妆舞会，是对奥运精神的亵渎。中共灭亡之后，奥运精神会被重新书写。
+这名球员名叫亚历山德罗斯·兰皮斯（Alexandros Lampis），此前在为希腊第三级别球队伊留波利（Ilioupoli）效力。悲剧发生在比赛开始后的五分钟，兰皮斯在第一市政体育场（the First Municipal Stadium）的比赛中倒下。
 
-新闻参考链接：[https://www.voachinese.com/a/ifj-china-media-foreign-reporters-20220203/6425671.html](https://www.voachinese.com/a/ifj-china-media-foreign-reporters-20220203/6425671.html)
+太阳报（The Sun）报道称，该体育场位于希腊首都雅典东南郊内，但救护车20分钟后才到达，而且没有办法在球场上抢救这名球员。
 
-* * *
+类似事件仅发生在8个月前，当时克里斯蒂安·埃里克森（Christian Eriksen）在代表丹麦参加2020年欧洲杯时因心脏骤停而倒下，全世界都为之惊恐。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+在那次事件中，丹麦队队医莫滕·博森（Morten Boesen）证实，这位29岁的球员在球场上出现了心脏骤停，通过心肺复苏和除颤器的电击才抢救过来。
 
+埃里克森的生命得到了挽救，他现在将在布伦特福德队重返顶级联赛。在将除颤器植入他的身体后，这位丹麦中场已被允许重返职业足球，这有助于调节他的心率。
 
-编辑：【英国伦敦喜庄园编辑部】
+自从埃里克森倒下后，足球界被一系列著名球员意外事件所震撼。塞尔吉奥·阿圭罗（Sergio Aguero）在为巴塞罗那踢球时出现胸痛，被迫退役，而维克多·林德洛夫（Victor Lindelof）和皮埃尔·埃梅里克·奥巴梅扬（Pierre-Emerick Aubameyang）也受到了惊吓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+本赛季，28岁的维冈前锋查理·怀克（Charlie Wyke）在训练中倒地。30岁的谢菲尔德联队的约翰·弗莱克（John Fleck）在雷丁的比赛中晕倒在球场上。25岁的阿达马·特拉奥雷（Adama Traore）在代表舍里夫（Sheriff Tiraspol）对阵皇家马德里的欧冠比赛中抱着胸倒下。28岁的冰岛中场球员埃米尔·帕尔森（Emil Palsson）在10月发生心脏骤停后也需要进行心肺复苏。
 
-
+**新闻来源：**[**Greek footballer aged just 21 DIES after suffering a cardiac arrest on the pitch at a stadium where there was NO defibrillator and the ambulance took 20 minutes to arrive**](https://www.dailymail.co.uk/sport/sportsnews/article-10471803/Footballer-suffers-cardiac-arrest-pitch-dies-stadium-no-defibrillator.html)
 
  
 

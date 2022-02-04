@@ -2,32 +2,33 @@
 ---
 
 
-## 如果中共在北京冬奥会上抓捕，国际奥委会将被视为同谋
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953924/)
+## 竹叶——七哥金句（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953980/)
 
-#### 撰稿：彩虹       
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-260.png)图片来源：福布斯
-2月3日，《新闻极限》引述《福克斯新闻》的报道，周四，来自威斯康星州的众议员迈克·加拉格尔（Mike Gallagher）提出立法，如果中共在2022年北京冬奥会上抓捕任何运动员、球迷或记者，他们将对国际奥委会（Inter national Olympic Committeee）进行制裁。
+七哥从爆料革命到今天恪守的三件唯真不破的事。
 
-该法案得到了少数党领袖凯文·麦卡锡（Keven McCarthy）的支持，强调如果在周五开始的奥运会期间发生任何“严重侵犯国际公认的人权”行为，将对国际奥委会产生严重影响。
+爆料革命新中国联邦，唯真不破。
 
-加拉格尔告诉福克斯新闻说：“世界各地勇敢的运动员正计划抵制明天的开幕式，以抗议中共在新疆正在进行的种族屠杀。但国际奥委会不但不支持这些运动员的言论自由，反而努力劝阻他们揭露中共对人权的严重侵犯。”
+爆料革命到今天，我从来不背后说任何战友的坏话，我只要当面说，我背后也说创业背后是当面，说一定是一样的。
 
-加拉格尔指出，“如果在奥运会上有任何运动员或球迷因为行使国际公认的权利而付出代价，国际奥委会应该被视为这些罪行的同谋。”
+第二，我不传话
 
-文章说，该法案引用了1961年《对外援助法》（Foreign Assistance Act），其中规定“‘严重侵犯国际公认的人权’是指未经指控或审判的长期拘留、通过绑架或秘密拘留使个人失踪、或不人道和有辱人格的待遇。”
+第三，我绝不看这个战友的优点，我一定看他的缺点，我能不能承受。
 
-文章特别指出，在一月份的新闻发布会上，北京奥组委对外联络部副部长杨舒说，运动员可能会因为声称中共侵犯人权而面临惩罚。
+就因为我们能接纳不同，就因为能把不同的战友放在心胸里，你有才能有你的未来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句-1.jpg)
+2021年12月10日文贵大直播
 
-杨舒当时警告说：“任何违反奥林匹克精神的行为或言论，特别是违反中国法律和法规的行为或言论，也会受到一定的惩罚。”
-
-**新闻来源**
-
-[Republicans Pledge to Sanction Olympics if Any US Athletes Disappea](https://www.newsmax.com/politics/olympics-china-human-rights-sports/2022/02/03/id/1055434/)
-
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
