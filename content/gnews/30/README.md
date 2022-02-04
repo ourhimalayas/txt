@@ -2,34 +2,23 @@
 ---
 
 
-## 瑞典将于2月9日解除中共病毒限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955535/)
+## 冬奥会变冬眠会 突发事件给爆料革命送大礼
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1955682/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.jpg)
-据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
+撰稿：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-04-at-9.44.26-PM-1.jpeg)
+郭文贵先生在2022年2月4日大直播中爆料称，今天冬奥会开幕，发生了两个突发事件:
 
-对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
+一、在直播前一个小时，普京团队已经确定16个确诊，3人死亡。目前不确定这3人是普京团队的人还是酒店的人。此事引起普京极为不满，在酒店破口大骂。郭先生称这个突发事件从哪个角度看都是非同寻常。
 
-目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
+第二个就是在盘古有狙击手倒地身亡，让习近平大为惊骇。
 
-参考链接：[Sweden to lift most Covid curbs on Feb 9](https://insiderpaper.com/sweden-to-lift-most-covid-curbs-on-feb-9/)
+郭先生称，这次冬奥会已经变成了冬眠会，原定到场一百几十个国家变成九十几个国家，后来变成七十几个国家。现在三十三个国家，重要人物只来两个，其中一个的团队现在几乎团灭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+这次冬奥会让习近平颜面尽失，让党内大多数人看了笑话。 郭先生表示这个结果是我们希望的，也是共产党内部九千五百万党员99.9%的人希望的结果。
 
-总编: Jack Li文阳
-编辑： Ivy001
-校正/发稿：Fei797
+参考链接：https://gtv.org/broadcast/watch/61fd1a6596ba5d73e0c28b84
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,94 +2,62 @@
 ---
 
 
-## 美称伊斯兰头目库莱希在美军发动的叙利亚突袭中自杀身亡
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1956099/)
+## 捷克最高法院裁定 疫苗限制措施無效
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1956199/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-12.png)图片来自网络
-作者苏莱曼·哈利迪（Suleiman Al-Khalidi）、南迪塔·博斯 （Nandita Bose）2022 年 2 月 4 日 报道
+作者：加拿大溫哥華揚帆農場[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-- 拜登称美国已采取措施将平民伤亡降至最低
-- 库莱希自爆身亡，同时杀死了家人
-- 叙利亚西北部是几个圣战组织的避风港
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
+2月2日，捷克共和國最高法院裁定，上屆捷克總理Andrej Babiš領導的政府頒佈的Covid-19病毒疫苗限制措施無效，該裁決在7日內生效。
 
-安曼/华盛顿，2 月 3 日（路透社）- 总统乔·拜登周四表示，伊斯兰国领导人在美国对叙利亚的军事袭击中引爆自己和家人后死亡，对这一圣战组织失去大片领土后重组游击队的努力造成了打击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Featured-3.png)
 
-阿布·易卜拉欣·哈希米·库莱希 (Abu Ibrahim al-Hashemi al-Quraishi) 自 2019 年创始人阿布·巴克尔·巴格达迪 (Abu Bakr al-Baghdadi) 死亡以来一直领导“伊斯兰国”，巴格达迪也是在美国突击队的突袭中引爆炸药将自己炸死。
+去年11月18日，Andrej Babiš領導捷克政府批准了新的Covid-19限制措施。
 
-据拜登和美国官员称，美军在夜间逼近位于叙利亚西北部的库莱希时，他引发了炸弹，同时炸死了包括孩子在内的自己家人。
+除12~18歲的青少年、身體狀況不允許接種疫苗和已部分接種疫苗的人，其它任何未接種疫苗的人即使冠狀病毒檢測呈陰性也被禁止進入大多數非必要的室內場所。只有接種過疫苗或最近180天內從Covid-19中康復的人才有資格參加公共活動、去酒吧、餐館、音樂廳、理髮店、博物館、舞蹈、遊戲和和類似的社交娛樂場所，或進入酒店。
 
-美国官员说，爆炸非常剧烈，以至将尸体从库莱希所在的Atmeh 镇三层楼建筑中炸到周围的街道上，美方将所有平民伤亡归咎于伊斯兰国。
+去年12月，上屆捷克政府強制要求從今年3月起，60歲以上的人和從事高風險職業的人，包含醫護人員、員警、消防員必須接種COVID-19疫苗。
 
-拜登在白宫发表讲话时说：“感谢我们勇敢的军队，这个可怕的恐怖分子头目已不复存在。”
+12月17日，Andrej Babiš下臺，Petr Fiala宣誓就任捷克共和國總理。
 
-一位白宫高级官员说，据信爆炸在杀死了三楼的库莱希、他的两个妻子和一个孩子，以及在二楼和库莱希的中尉夫妻在一起另一个孩子，他们在向美军开火后被打死。这名官员说，另外两名战士在向美国直升机开火后被打死。
+1月19日，Fiala宣佈他的政府不會對任何人強制接種疫苗。最近，Fiala政府又宣佈，不會繼續對醫護人員和其他一些職業進行強制接種疫苗的計畫。Fiala政府衛生部長Vlastimil Válek在推特發文稱，我從一開始就認為強制性的 covid-19 疫苗接種是胡說八道。我答應過我們會修改前任政府用熱針和觀點寫的法令，我們將取消疫苗接種，今天發生了，儘管疫苗接種是對抗嚴重病毒大流行的最有效武器，但我們不會強迫任何人這樣做。
 
-这位官员补充说，库莱希一直住在这所房子里，并利用住在一楼的一个不知情的家庭作为“保护伞”，这是一个使袭击计划复杂化的因素。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-42-37.png)
 
-这位官员没有解释这些数字与叙利亚救援人员提供的数字之间的差异，后者说至少有 13 人遇难，其中包括 4 名妇女和 6 名儿童。
+目前，捷克63%的人口完全接種了Covid-19疫苗，而在60歲以上的年齡組中，這一比例為80%。在高危職業人群（包含醫護人員、員警、消防員）中，接種率在85%到90%之間。
 
-这位官员说：“通过实时回顾突袭行动看得非常清楚，三楼的大规模爆炸才是真正造成人员伤亡的原因。”
+上周日，成千上萬的捷克人走上布拉格街頭，抗議新冠疫情的限制措施。抗議者揮舞旗幟並高呼口號，譴責對新冠病毒的限制，特別是未接種疫苗的公民仍然無法進入某些場所的事實。
 
-库莱希之死是伊斯兰国在其自封的哈里发被打散、其战士被美国和伊拉克军队击败近三年后的又一次挫折。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-47-46.png)
 
-从那时起，伊斯兰国，也被称为 ISIS，在伊拉克和叙利亚发动了多次叛乱袭击。最近的一次是上个月，其枪手冲进了叙利亚东北部关押伊斯兰国嫌疑人的监狱。
+Petr Mikeš法官解釋最高行政法院的裁定時說，該措施的目的是不能通過緊急疫苗接種措施間接迫使公民接種疫苗，迫使未接種疫苗的人如果想正常生活，別無選擇，只能接種疫苗，但衛生部必須說明並證明捷克共和國的每個人都可能是感染嫌疑人。衛生部不支援在所謂的大流行法中限制此類場所，除非使用消毒或座位位置，衛生部只能根據《公共衛生保護法》限制疑似感染者活動。只有在整個捷克共和國都被確定為疫情的情況下才有可能每個人都可能是感染嫌疑人。
 
-库莱希是一名 45 岁的伊拉克人，自从接替巴格达迪之后，他基本上一直处于隐蔽之中，巴格达迪在 2014 年启动了震惊世界的闪电扩张计划。这位美国官员说，他在 2015 年的美国空袭中受伤并失去了一条腿。伊斯兰国控制了叙利亚和伊拉克的大片地区，对数百万人实施了严格的伊斯兰统治，并在西方引发了袭击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-46-59.png)
 
-拜登和美国官员称，库莱希是 2014 年伊拉克北部少数族裔雅兹迪（Yazidis）人种族灭绝背后的“推动力”，并表示他负责监督从非洲到阿富汗的伊斯兰国分支机构网络。
+COVID-19病毒疫苗強制令在捷克取消！
 
-拜登说：“昨晚的行动将一名主要恐怖分子头目消灭，并向世界各地的恐怖分子发出了强烈信息：我们会追捕你并找到你。”
+參考資料：
 
-白宫官员说，自行动以来，美国官员一直与反伊斯兰国联盟的所有伙伴保持联系，所有人都决心继续打击伊斯兰国，以及该组织对其国家构成的威胁。
+[Czech Republic: Covid Restrictions Cannot Be Used to Force Citizens to Be Vaccinated, Supreme Court Says](https://dailyexpose.uk/2022/02/04/cannot-force-citizens-to-be-vaccinated-court-says/)
 
-在去年因美军从阿富汗混乱撤军而受到广泛批评后，杀死库莱希（也称为哈吉·阿卜杜拉）有助于恢复拜登政府的一些外交政策合理性。
+[Czech government scraps plan for mandatory vaccination](https://english.radio.cz/czech-government-scraps-plan-mandatory-vaccination-8739738)
 
-美国官员预计伊斯兰国将更替死去的领导人。
+[Konec. Soud pustil neočkované do restaurací](https://www.novinky.cz/domaci/clanek/soud-pustil-neockovane-do-restauraci-40385872)
 
-叙利亚-土耳其边境附近 Atmeh 镇的居民说，在午夜左右开始的突袭行动中，直升机降落后，听到了猛烈的枪声和爆炸声。他们说，美军使用扩音器警告妇女和儿童离开。
+[Czech police officers stand in solidarity as Supreme Court Strikes Down Covid-19 Vaccine Pass for Restaurants, Clubs, Hotels](https://lorphicweb.com/in-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video/)
 
-五角大楼表示，包括儿童在内的10人从突袭区域撤离。美国中央司令部司令弗兰克·麦肯齐（Frank McKenzie）将军告诉总部设在华盛顿的中东研究所，他们所有人都“可以活动且安全”，并在美军撤离时离开了现场。
+[Czech citizens hold massive protest demanding new center-right gov’t lift all COVID restrictions](https://www.lifesitenews.com/news/czech-citizens-hold-massive-protest-demanding-new-center-right-govt-lift-all-covid-restrictions/)
 
-在五角大楼最初称赞成功的在阿富汗一次高调的错误无人机袭击之后，现在美国防止平民伤亡的军事程序接受严密审查。
+[Povinné očkování proti covidu-19 jsem od počátku považoval za nesmysl. Slíbil jsem, že horkou jehlou sepsanou vyhlášku minulé vlády novelizujeme a pov. očkování zrušíme. Dnes se tak stalo.](https://twitter.com/vlvalek/status/1483803335169912838?s=20&amp;t=d6FuuJ-1rGq4pvgP6OGgWw)
 
-瓦砾中的尸体
+[Prague Czech Republic Anti Covid BS, Anti Everything Long Live The People](https://twitter.com/risemelbourne/status/1487882648114458624?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1487882648114458624%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Florphicweb.com%2Fin-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video%2F)
 
-一名居民拍摄并被路透社看到的一段视频显示，两名显然没有生命的儿童和一名男子的尸体在该地点的一座建筑物的废墟中。
+[À Prague, les policiers tchèques sont solidaires du peuple face aux restrictions incessantes du COVID et aux passes sanitaires discriminatoires !](https://t.me/StoryOfBlackBond/7201)
 
-其他镜头显示，救援人员将一具似乎是用白色塑料布包裹的小尸体装载到救护车上。其他尸体袋在车辆后部。
+[Lockdowns and bans on unvaccinated: How Europe is coping with Covid surge](https://www.itv.com/news/2021-11-19/lockdowns-and-public-transport-bans-across-europe-as-covid-cases-rise-again)
 
-工人们使用头灯，从残骸中的大块混凝土、儿童玩具和女装中寻找遗体。一间厨房被烧黑烧焦，窗框上挂着窗户，塑料餐具也融化了一半。
-
-路透社无法独立核实这些图像。
-
-一名目睹袭击的叙利亚男子说，他在午夜后离开家，看到空中有飞机。
-
-他说，“十分钟后，我们听到了尖叫声。‘投降，房子被包围了，有来自飞机和机关枪的炮击。”
-
-另一名目击者说，他在现场看到了几具尸体。“到处都是血，”他告诉路透社。 他说，一架美国直升机似乎出现机械故障，被美军炸毁。
-
-伊拉克北部的地方领导人、安全官员和居民表示，由于许多地区缺乏中央控制，伊斯兰国已经重新成为一种致命威胁。
-
-叙利亚分析家哈桑·哈桑（Hassan Hassan）说：“库莱希的死亡是一件大事，对伊斯兰国是一个巨大的打击，因为伊斯兰国从未收到这位新领导人的消息。”  “只要美国人在伊拉克和叙利亚，伊斯兰国就会继续软弱并承受压力。”
-
-库莱希躲藏在叙利亚的一个地区，那里是几个激进组织的所在地，其中包括一个与基地组织有关联的派系，其领导人包括外国战士。
-
-驻华盛顿中东研究所的高级研究员查尔斯·利斯特（Charles Lister）说，美军多年来一直使用无人机瞄准该地区的圣战分子，但周四的行动似乎是美军在西北部袭击杀死巴格达迪以来规模最大的一次。
-
-除了曾经被美国关押的库莱希之外，人们对该组织的高层知之甚少——部分原因是它现在以一个由自治地方小组组成的秘密结构形式运作，而不是集中管理“哈里发国”。
-
-以美国为首的打击伊斯兰国的联盟，在 2019 年年中表示，在该组织在战场上战败后，它保留了 14,000 至 18,000 名成员，其中包括 3,000 名外国人，但确切的数字与该组织本身一样难以捉摸。
-
-分析人士说，许多当地战士可能已经恢复了正常生活，准备在机会出现时重新开始。
-
-
-
-原文链接：
-
-[https://www.reuters.com/world/middle-east/biden-says-isis-leader-quraishi-killed-syria-raid-2022-02-03/](https://www.reuters.com/world/middle-east/biden-says-isis-leader-quraishi-killed-syria-raid-2022-02-03/)
-
-翻译：Nick｜校对：JS709｜审核： 编辑发布：闪电训练
+編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

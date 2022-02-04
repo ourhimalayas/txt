@@ -2,28 +2,30 @@
 ---
 
 
-## 以色列前车之鉴：新冠疫苗做了什么？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1956107/)
+## 49名共和党议员承诺取消拜登的疫苗任务
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956205/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-50.jpg)
-图片来源： ourworldindata.org
+**翻译：Lulumi**
 
-据“网关专家”（Gateway Pundit）网2月3日报道，以色列专家组十天前建议民众再接种第4剂新冠疫苗，以进一步预防重症和死亡……但，让我们再看看统计数据在说什么？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-334.png)2021年9月22日华盛顿特区，众议员奇普·罗伊（德州共和党员）在美国国会大厦举行的关于国防授权法案的新闻发布会上发言。(盖蒂图片)
 
-**新冠疫苗“预防死亡”？**
+一个共和党立法者联盟发起了一项运动，要求取消执行疫苗强制令的规定。德克萨斯州议员奇普·罗伊周三表示，49名共和党议员将投票反对为疫苗强制执行提供任何资金。
 
-根据《路透社》的数据，以色列全国至今已经接种了至少 17,879,314 剂新冠疫苗，如果每人接种2针，这足以覆盖该国约 98.7% 的人口，效果怎样呢？牛津大学的”用数据看世界”（Our World in Data）的研究网站显示，以色列现在是世界上新冠死亡率（每百万人口）最高的国家。
+该联盟包括参议员兰德·保罗和泰德·克鲁兹，以及众议员劳伦·布伯特、安迪·比格斯和其他人。议员们说，政府执行疫苗强制令的资金将于2月18日到期，决不能延长。
 
-**新冠疫苗“预防重症”？**
+“我们应该看看我们已经花掉的预算，我们不应该在荒谬的、政治化的强制令上面做文章，这些强制命令正在伤害医疗护理，而且没有科学依据，”罗伊议员说。
 
-《以色列国家新闻》（Israel National News, Arutz Sheva）2月3日报道，“伊奇洛夫医院”（Ichilov hospital）新冠病房主任、杰里斯教授（Yaakov Jerris）透露，目前的新冠重症患者中70%~80%完全接种了疫苗，大多数至少打了三针，他认为新冠疫苗对预防重症没有效果！
+这些立法者补充说，CDC现在已经承认自然免疫力可能比疫苗免疫力更强，这意味着疫苗强制令一直都是错误的。共和党人随后指出，拜登政府已经实施了五项单独的疫苗任务令，这些任务令伤害了美国，必须予以撤销。
 
-**新闻来源：**
+**素材链接：**[oann.com][49 GOP Lawmakers Pledge To Defund Biden’s Vaccine Mandates](https://www.oann.com/49-gop-lawmakers-pledge-to-defund-bidens-vaccine-mandates/)
 
-1. [Country with One of the Highest Vaccination Rates Has Highest Number of COVID Deaths Per Million People This Week –80% of Serious Cases are Fully Vaccinated](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
+* * *
 
-2. [‘80% of serious COVID cases are fully vaccinated’ says Ichilov hospital director](https://www.israelnationalnews.com/news/321674)
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
+
 
  
 

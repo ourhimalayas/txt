@@ -2,46 +2,27 @@
 ---
 
 
-## 脸书股价创历史最大跌幅
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955847/)
+## 普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶
+` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/1956026/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月2日，据媒体消息显示， 脸书在当天美股收盘后公布了其2021财年第四季度的财务报表。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-2.jpg)
-该财报显示，脸书这一季度的营收增幅明显放缓，其股票的收益、净利润和用户指标均低于市场预期，是自2019年第二季度以来，该公司首次出现净利润下滑的情况。此外，该公司的核心应用程序脸书在第四季度的日活跃用户比上一季度减少了50万，这是自脸书面世以来的首次下降。同时，其数字货币项目几经波折，最终于1月31日晚间将数字货币的相关资产全部出售，就此关停其全球支付的计划。
+**华盛顿DC  银河**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_18-32-27.jpg)[businessinsider.com](http://www.businessinsider.com/xi-jinping-and-vladimir-putin-meet-in-beijing-vow-to-deepen-their-strategic-partnership-2016-6)
+俄罗斯总统普京2月4日在北京与中共主席习近平会晤时，宣布了俄罗斯与中共国的一项新的天然气协议，承诺在俄罗斯与欧洲在乌克兰问题上存在分歧之际，增加俄罗斯在远东地区的天然气出口。
 
-对此，郭文贵先生在直播中指出，脸书实际上参与了人类大屠杀，其根本没有未来，这是它不得不放弃数字货币的深层次原因。
+俄罗斯是中共国的第三大天然气供应国。俄罗斯天然气巨头俄罗斯天然气工业股份公司(Gazprom)在一份声明中表示，计划将每年向中共国出口的天然气增加到480亿立方米，包括通过新达成协议的管道，这条管道将每年从俄罗斯远东地区输送100亿立方米天然气。
 
-另外， 近几年来，脸书由于侵犯隐私的行为，已经被美国和欧盟的监管机构罚款近60亿美元。更甚者，以脸书为首的社交媒体寡头持续打压言论自由，尤其在中共病毒疫情爆发以后，其掩盖病毒和疫苗真相的做法引发了世界民众普遍的反感和批评。
+普京指责美国在俄罗斯的邻国乌克兰问题上引发紧张局势。乌克兰寻求加入北约。10万多名俄罗斯士兵聚集在乌克兰边境附近。西方国家指责莫斯科策划入侵，但莫斯科对此予以否认。俄罗斯是欧洲最大的天然气供应国，西方国家担心，一旦发生冲突，本已紧张的天然气供应可能会中断。然而，与北京方面达成的新协议不会让莫斯科方面把原本要运往欧洲的天然气转移到欧洲，因为该协议涉及的是来自太平洋萨哈林岛的天然气，与俄罗斯的欧洲管道网络没有连接。
 
-截至目前，脸书的股价暴跌26%，相较去年最高点已下跌近四成，创下其历史上最大的单日跌幅。
+一位业内消息人士周五稍早对路透表示，俄罗斯天然气工业股份公司(Gazprom)已与中国石油天然气集团公司(CNPC)达成一份30年合同，这是两、三年来首次通过新管道输送天然气。Gazprom在俄罗斯天然气管道出口方面拥有垄断地位。
 
-而郭文贵先生则表示，脸书践踏言论自由和对病毒真相的掩盖会将其送上死亡之路。
+爆料革命创始人郭文贵先生爆料，此次普京团队在北京下榻的酒店有多人感染中共病毒。普京团队染毒，非同寻常。因中方连基本安全都不能保证，普京总统大怒。此次中共北京冬奥会宣传将有97个国家元首参与，而今开幕式实际到达33个。以美国为首的民主国家对北京冬奥会进行了外交抵制。普京与习近平捆绑一起，势将被西方国家孤立。
 
 参考链接：
-1) . [步奈飞后尘！“元宇宙”Meta四季报后雪崩23%， 发生了什么？](https://wallstreetcn.com/articles/3651135)
-2) . [2022年2月2日大直播速记精萃](https://gnews.org/zh-hans/1947977/)
-3) . [1/7 From the statement by the CEO Stuart Levey on the sale of the Diem group’s assets to Silvergate — “From the outset, the Diem project has been focused on leveraging the benefits of blockchain technology to design a better and more inclusive payment system.](https://twitter.com/diemassociation/status/1488270981718495233?s=21)
-4) . [FTC Imposes $5 Billion Penalty and Sweeping New Privacy Restrictions on Facebook](https://www.ftc.gov/news-events/press-releases/2019/07/ftc-imposes-5-billion-penalty-sweeping-new-privacy-restrictions)
-5) . [FB侵犯隐私案签和解协议：赔偿160万用户6.5亿美元](https://www.163.com/tech/article/G3TNLSMA00097U7R.html)
-6) . [WhatsApp侵犯隐私，被爱尔兰处以2.25亿欧元罚款](https://gnews.org/zh-hans/1508884/)
-7) .[联邦法官驳回Facebook关于撤销FTC最新反垄断诉讼的请求](https://cn.wsj.com/articles/%E8%81%94%E9%82%A6%E6%B3%95%E5%AE%98%E9%A9%B3%E5%9B%9Efacebook%E5%85%B3%E4%BA%8E%E6%92%A4%E9%94%80ftc%E6%9C%80%E6%96%B0%E5%8F%8D%E5%9E%84%E6%96%AD%E8%AF%89%E8%AE%BC%E7%9A%84%E8%AF%B7%E6%B1%82-11641944751)
-8) .[Facebook遭控滥用市场支配地位，在英国面临逾23亿英镑集体诉讼](https://www.reuters.com/article/Facebook%E9%81%AD%E6%8E%A7%E6%BB%A5%E7%94%A8%E5%B8%82%E5%9C%BA%E6%94%AF%E9%85%8D%E5%9C%B0%E4%BD%8D%EF%BC%8C%E5%9C%A8%E8%8B%B1%E5%9B%BD%E9%9D%A2%E4%B8%B4%E9%80%BE23%E4%BA%BF%E8%8B%B1%E9%95%91%E9%9B%86%E4%BD%93%E8%AF%89%E8%AE%BC-idCNL4S2TU06A)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+[https://www.france24.com/en/asia-pacific/20220204-putin-unveils-new-gas-deal-with-china-s-xi-as-moscow-locks-horns-with-the-west](https://www.france24.com/en/asia-pacific/20220204-putin-unveils-new-gas-deal-with-china-s-xi-as-moscow-locks-horns-with-the-west)
 
-总编: Irene木木
-编辑：谐趣园
-校正/发稿：Fei797
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

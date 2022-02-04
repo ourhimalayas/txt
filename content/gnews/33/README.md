@@ -2,24 +2,34 @@
 ---
 
 
-## 【爆料革命大事记】20220124“甜蜜蜜” 运动正式宣布即将在冬奥会期间启动
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/1955438/)
+## 瑞典将于2月9日解除中共病毒限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955535/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/71B7A07D-E704-42E4-946D-8C3F397DEC4B.jpeg)
-【爆料革命大事记】2022年1月24日，“甜蜜蜜” 运动正式宣布即将在冬奥会期间启动！这是新中国联邦结合西方的力量，扎入中南坑的一把利剑。这将是跨世纪的，中国大陆第一次抵制中共独裁和邪恶统治的和平运动，必将令全世界震惊，中共最大的噩梦即将上演。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.jpg)
+据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
 
-甜蜜蜜运动！无兵，没有流血，奇门遁甲最高的境界，万里之外，消灭敌人。
+对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
 
-“在哪里？在哪里？”共产党哭着喊着找不到！茉莉花革命成功在于媒体，之后最高段落的革命就是爆料革命！
+目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
 
-https://youtube.com/watch?v=EL2Nt1jY\_eY%3Ffeature%3Doembed
+参考链接：[Sweden to lift most Covid curbs on Feb 9](https://insiderpaper.com/sweden-to-lift-most-covid-curbs-on-feb-9/)
 
-图文设计：新西兰农场设计组战友作品
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-视频制作：新西兰农场【玫瑰看新闻】栏目组战友
+总编: Jack Li文阳
+编辑： Ivy001
+校正/发稿：Fei797
 
-上传：天赐良闻
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
