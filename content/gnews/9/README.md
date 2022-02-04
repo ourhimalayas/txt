@@ -2,16 +2,18 @@
 ---
 
 
-## “甜蜜蜜”把北京冬奥会变成“冬眠会”
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1955167/)
+## 西媒头条 — 第166期 – 西媒看天朝
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1955220/)
 
-文贵大直播20220204
+制作：蚂蚁兄弟
 
-撰稿：待命（文晓）（樱花） Poplar（盘古）
+**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
 
-美工：跟着北美教练（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-4.png)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220204.002.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 

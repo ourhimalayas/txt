@@ -2,26 +2,16 @@
 ---
 
 
-## 数千人在华盛顿集会，反对疫苗强制接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955123/)
+## “甜蜜蜜”把北京冬奥会变成“冬眠会”
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1955167/)
 
-##### 翻译：Frank
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+文贵大直播20220204
 
-据福克斯新闻1月24日报道，数千美国公民来到华盛顿纪念碑，举行反新冠疫苗强制接种大集会。人们高呼取消强制令。集会者表示，强制接种是不正确的，公民有选择的自由。人们来这里参加这场大游行是为自由而战，也是为了家庭还有自己的身体的决定权而战。
+撰稿：待命（文晓）（樱花） Poplar（盘古）
 
-视频链接：[Thousands rally in DC to oppose COVID-19 vaccine mandates, demand ‘freedom’](https://www.foxnews.com/politics/thousands-rally-in-d-c-to-oppose-covid-19-vaccine-mandates-demand-freedom)
-
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-4.png)
+*发布：Theodosia*
 
  
 

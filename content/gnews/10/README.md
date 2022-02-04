@@ -2,35 +2,35 @@
 ---
 
 
-## 美军突袭叙利亚 伊斯兰国领导人自爆身亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955164/)
+## 有声|中共国男足再次无缘世界杯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955196/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
+配音：香草山佛教部 – 李傻
 
 
-根据德国之声中文网报道：美国表示美军部队2月3日突袭极端组织伊斯兰国组织（ISIS）在叙利亚的藏身处，该组织的领导人与他的家人一起引爆炸弹自杀身亡。这次行动造成至少13人丧命，包括6名孩童与4名妇女。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
+对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
 
-美国总统拜登3日发表简短声明，宣布美军此次反恐行动和伊斯兰国首脑库莱希（Abu Ibrahim al-Hashimi al-Qurayshi）丧生的消息。美国官员称这是对这个极端组织的重大打击。
+文字版原文：[中共国男足再次无缘世界杯](https://gnews.org/zh-hans/1951940/)
 
-ISIS上个月才袭击了叙利亚东北部的一座监狱，里面至少有3000人遭到伊斯兰国组织拘留。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-美国反恐目标与韧性研究所（American Counterterrorism Targeting and Resilience Institute）主任沙伊科维奇（Ardian Shajkovci）指出，比起投降，自杀结束生命对伊斯兰国追随者而言是勇敢的表现，这有助于伊斯兰国作进一步的宣传。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接[https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873](https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*发布：tianzhihuan*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

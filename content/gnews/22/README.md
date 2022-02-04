@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦得神助助
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1955019/)
+## 喜马拉雅山上有一个猪的山
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1955050/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

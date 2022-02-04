@@ -2,96 +2,76 @@
 ---
 
 
-## 秘翻在线：中共将奥米炕变种起源甩锅给老鼠
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955274/)
+## 以色列开展第四针疫苗以来 近28天感染率火箭式飙升
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1955311/)
 
-**撰稿：billwilliam**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-211911.jpg)图源：图库Pixabay
-据澎湃新闻1月30日报道，中共国科学家发表论文认为病毒奥米炕变种可能起源自鼠类，因为毒株含有多种适应感染老鼠的变异，这是中共又一次试图将病毒起源甩锅给动物。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-中共国疾控中心的徐建国院士与南开大学的孙亚民教授共同发表论文题为“新冠病毒奥米炕变种的起源和进化分析 （Origin and evolutionary analysis of the SARS-CoV-2 Omicron variant）”。论文的主要论点是，奥米炕变种的刺突蛋白出现N501Y变异（501位点的天冬酰胺变异为酪氨酸），这个突变赋予中共病毒（新冠）“广宿主”感染啮齿目动物和猫科动物的能力。包括N501Y在内，奥米炕变种的刺突S蛋白共出现五处突变，适合感染动物，对鼠类mACE2的亲和力明显增强。因此论文作者认为奥米炕变种“或在老鼠体内缓慢积累突变，反向传人”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-奥米炕变种与其他病毒变种的显著不同在于，这种毒株的突变数量明显多于其它变种，尤其是在病毒刺突蛋白的受体结合域（RBD）。理论上，冠状病毒在固定时间内积累突变的速度是固定的，但是奥米炕变种出现的大量突变和其它毒株完全不同。所以论文作者认为这个冠状病毒变种可能受到很大的选择压力，存在更换宿主的可能性。论文作者发现这些突变比较容易感染鼠类，所以就锁定老鼠是宿主。
+COVID-19病毒来自于中国科学院武汉病毒研究所，不同于来源于自然的病毒，注射实验性的疫苗，不但不能预防感染，反而会带来严重的副作用！
 
-对病毒基因序列的进化树分析发现，奥米炕变种的系统进化树显示没有进化的中间分支，就是说奥米炕不是从德尔塔变种进化而来，而是一个单系群。孙亚民认为，奥米炕可能很早就分化出来，然后在非人类物种中开始进化。经过一年多的沉寂后，奥米炕在老鼠体内缓慢积累突变，最终反向传染给人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c5bbe3ac-a8ec-4716-a6fa-c30fc6579a79.jpeg)
 
-中共科学家的论点看似有道理，但是存在疑点，N501Y突变会不会是中共科学家在实验室人为制造的？2020年中共军事医学科学院的科学家周育森曾在《科学》期刊发表论文题为“新冠病毒在BALB/c小鼠中的适应以测试疫苗有效性（Adaptation of SARS-CoV-2 in BALB/c mice for testing vaccine efficacy）”。这篇论文中周育森使用序列传代（serial passage）技术增强病毒在小鼠体内的适应性，制造出N501Y变种。具体操作步骤是，野生小鼠通过鼻腔内被感染新冠病毒，然后小鼠被安乐死，含有病毒的肺部组织被捣碎，用来感染下一波小鼠，如此重复许多次。在周育森的实验中，病毒在小鼠体内发生适应性变异，随着每一轮传代逐渐增强。新冠病毒的原始毒株本来不能感染鼠类，但是经过序列传代产生的N501Y变种可以感染小鼠并造成肺炎。含有N501Y突变的病毒刺突蛋白与小鼠ACE2受体亲和力增强。由此可见，N501Y突变可能来自病毒在老鼠体内的适应性变异，但是人为实验室环境加速了病毒的进化。
+就在12天前，以色列特拉维夫Sourasky医疗中心公布了对6,863名在2021年8月至2021年12月期间接种了第三剂辉瑞冠状病毒疫苗且之前未感染过新冠病毒的医务人员的“真实”研究数据，其中包括截至2022年1月3日接种了第四针的1,316名医务人员。在此期间，有608人的COVID-19检测结果呈阳性，但其中只有42人在接种第四针疫苗7天或更长时间后被诊断出感染了病毒。通过使用回归模型对数据进行分析，该医院得出结论：“在接种第四针疫苗后7天，感染病毒的风险降低了两倍。”
 
-此外，中共解放军徐德忠将军曾撰写一本生物战教科书，题为《非典非自然起源和人制人新种病毒基因武器》。该书提出一种生态型生物武器，意思是病毒既可以感染人又可以感染动物。那么野生动物可以成为病原体的天然贮存宿主。携带病原体的野生动物可以不断传播病毒，造成数十年的持续疫情爆发。周育森利用适应性实验产生的N501Y变种很可能是生态型生物武器，利用鼠类作为贮存宿主不断传播病毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-01-20-at-20.14.11-768x446-1.jpeg)
 
-奥米炕变种的出现还存在可疑的时间点。郭文贵先生曾预测中共会在2021年感恩节后放毒，而且病毒会从非洲开始传播，并且从美国西部传播至东部。之后的疫情发展与郭先生的情报完全吻合。奥米炕变种应该是中共投放的，不然怎么会有准确的疫情爆发时间点？
+以色列卫生部于12月下旬批准为免疫力差的人进行第四针注射，不久之后决定将其扩大到包括60岁以上的老人和医务人员。到目前为止，已有超过50万以色列公民注射了第四针。
 
-前面提到的南开大学孙亚民教授还呼吁研发动物新冠疫苗，这个建议将造成灾难。接种疫苗的动物体会制造并排放出大量病毒刺突蛋白。郭文贵先生说过，疫苗就是毒。给鼠类、猫咪等宠物接种疫苗会把这些动物变成带毒的载体，这会加速病毒的变异并造成更大的疫情爆发。
+1月4日，以色列总理Naftal Bennett很高兴的宣布，初步研究表明，在接种第四针疫苗后的一周内，血液中的抗体数量比只接种三针的人增加了近五倍，（接种第四针疫苗）会提供比没有注射四针的人更高水平的保护——对预防感染和重症发病率的高水平保护，接种第四针疫苗一定是安全的，第四针疫苗很可能会起作用，自以色列开始接种第四针疫苗以来的两天内，已有超过 100,000 名以色列人登记接种或已经接种了疫苗。
 
-中共将奥米炕变种起源甩锅老鼠是为了掩盖其研发、投放生物武器的罪行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_20-43-16-1.png)
 
-**参考文献：**
+截止到美东时间2022年2月4日上午5时20分，人口仅992.1万的以色列总共注射了17,879,314针COVID-19病毒疫苗，平均每人注射1.8针，目前，以色列一针、两针和三针或加强针的接种率为72.02%、65.61%及54.8%。
 
-1. [“南开大学孙亚民：奥米克戎病毒株或起源于老鼠，未来要防动物传人”](https://i.ifeng.com/c/8DEJAw5vLRY)
+如果以色列总理Naftal Bennett和Sourasky医疗中心的“真实”研究数据确实可信，目前以色列应当对COVID-19控制得非常好！
 
-2. Sun, Y. “[Origin and evolutionary analysis of the SARS-CoV-2 Omicron variant.](https://doi.org/10.1016/j.jobb.2021.12.001)” *Journal of Biosafety and Biosecurity.* 4 (2022): 33-37
+然而，在最近28天内，以色列总共有1,647,364人确诊，979人死亡！以色列所有确诊COVID-19感染者中，有53.21%是在最近28天内感染的！
 
-3. Gu, H., and *et al*. “[Adaptation of SARS-CoV-2 in BALB/c mice for testing vaccine efficacy.”](https://science.sciencemag.org/content/369/6511/1603.full) *Science***369**, 1603-1607 (2020).
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Israel-total-cases.jpg)
 
-（附）
+目前，以色列这个人口不足千万的国家，感染率达到31.2%。如果照这个趋势下去，以色列人恐怕在未来不到两个月内，绝大多数人都会被感染！
 
-徐德忠生物武器教科书《非典非自然起源和人制人新种病毒基因武器》的英文总结：
+疫苗是否可以减少重症或死亡呢？
 
-第一章
+下图是以色列与美国、意大利、法国、加拿大、墨西哥、英国、南非、德国和印度COVID-19确诊后的7天移动平均死亡率对比。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/coronavirus-data-explorer.png)
 
+以色列确诊后的死亡率最高！
 
-> [\[PLA Textbook\] PLA’s Biowarfare Textbook Explained – Chapter 1](https://gnews.org/904779/)
+以色列在2月2日达到了死亡最高点，单日死亡226人。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Israel-New-Deaths.jpg)
 
+目前，全世界有希腊、智利、巴西和以色列批准为其公民提供第四剂疫苗。但世界卫生组织已公开反对注射第四针疫苗，本月早些时候，世卫组织首席科学家Soumya Swaminathan博士表示，基于原始疫苗成分重复加强剂量的疫苗接种策略不太可能是适当的或可持续的。
 
-第二章
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_20-37-25.png)
 
+参考资料：
 
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
 
-> [\[Opinion\] PLA’s Biowarfare Textbook Explained – Chapter 2](https://gnews.org/907615/)
+[Daily new confirmed COVID-19 deaths per million people](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2021-05-27..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_vaccinations_per_hundred&amp;Metric=Confirmed+deaths&amp;Interval=7-day+rolling+average&amp;Relative+to+Population=true&amp;Color+by+test+positivity=false&amp;country=IND~USA~GBR~CAN~DEU~FRA~ZAF~ITA~ISR~MEX)
 
+[Soumya Swaminathan](https://twitter.com/doctorsoumya/status/1483551018222825475?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1483551018222825475%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhealthpolicy-watch.news%2Frisk-of-catching-omicron-twice-as-low-after-fourth-dose-new-israeli-study-says%2F)
 
+[Israel 86% of peak and rising 5,445 infections per 100K people reported last 7 days](https://graphics.reuters.com/world-coronavirus-tracker-and-maps/countries-and-territories/israel/)
 
-第四章第一部分
+[Pfizer, BioNTech to test omicron-specific vaccine on adults](https://thehill.com/policy/healthcare/591169-pfizer-biontech-to-test-omicron-specific-vaccine-on-adults?rl=1)
 
+[Excerpt from Prime Minister Bennett’s Remarks at Sheba Medical Center](https://www.youtube.com/watch?v=pRcH-QhgbR4)
 
+[Health-Worker Risks of Catching Omicron Half as Likely after Fourth Dose – Second Israeli Study Challenges Earlier Results](https://healthpolicy-watch.news/risk-of-catching-omicron-twice-as-low-after-fourth-dose-new-israeli-study-says/)
 
-> [\[Opinion\] PLA’s Biowarfare Textbook Explained – Chapter 4 (Part 1)](https://gnews.org/914878/)
+[Israel Finds Fourth COVID Booster is only ‘Partially Effective,’ Vast Majority of Hospitalised Omicron Patients Are Unvaccinated](https://healthpolicy-watch.news/israel-fourth-covid-booster-ineffective/)
 
+[Expert panel in Israel recommends fourth vaccine dose for adults](https://news.yahoo.com/expert-panel-israel-recommends-fourth-132725941.html)
 
+[Israel Finds Fourth Pfizer Dose Produces Five-fold Increase in Antibodies, as Country Prepares to Launch Moderna Fourth Shot Trial](Israel%20Finds%20Fourth%20Pfizer%20Dose%20Produces%20Five-fold%20Increase%20in%20Antibodies,%20as%20Country%20Prepares%20to%20Launch%20Moderna%20Fourth%20Shot%20Trial)
 
-第四章第二部分
-
-
-
-> [\[Opinion\] PLA’s Biowarfare Textbook Explained – Chapter 4 (Part 2)](https://gnews.org/917089/)
-
-
-
-第五章
-
-
-
-> [\[Opinion\] PLA’s Biowarfare Textbook Explained – Chapter 5](https://gnews.org/923128/)
-
-
-
-第六章
-
-
-
-> [\[Opinion\] PLA’s Biowarfare Textbook Explained – Chapter 6](https://gnews.org/929857/)
-
-
-
-第七章
-
-
-
-> [\[Opinion\] PLA’s Biowarfare Textbook Explained – Chapter 7](https://gnews.org/933366/)
-
-
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
