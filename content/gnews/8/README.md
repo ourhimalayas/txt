@@ -2,29 +2,35 @@
 ---
 
 
-## 盛大的奥运开幕背后，是最邪恶的力量支撑
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1954665/)
+## 冬奥会开幕令北京市公安局如临大敌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1954676/)
 
-整理：雅典娜速记组
-编辑：于white
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-10-9-20-03-scaled.jpg)
-你想想，这种人离开中国以后，她还能对中共有什么好感吗?她要张嘴了会说啥呢?你想想那化妆品怎么会有病毒呢?
+作者：东京樱花团丨捆绑CCP一千年
 
-你知道这个国家这个党这个人民疯狂得如此之程度的时候，跟当年的1935年的德国奥林匹克，1980年的苏联奥林匹克，你觉得有啥不同呢?而且一定是”最成功的”。奥运会当时希特勒开完以后，号称这是有史以来最精美的奥运开幕式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/冬奥会开幕令北京市公安局如临大敌.png)
 
-希特勒手”唰”（纳粹手势）一弄，美国运动员也跟着弄，你看到那一幕了没有?在苏联呢，很多国家抵制，结果去的运动员拿着奥林匹克旗，那一刻也狂欢乱舞，所以你一定会看到盛大成功的开幕式，但你想想背后是什么?
+**中共国冬奥会如临大敌，北京市公安局一面强调“四个自信”，一面要求监控所有可能的威胁区域。而国际社会继续谴责中国共产党的种族灭绝罪，并在中共病毒（奥密克戎）侵蚀下继续举办冬季奥运会，将反人性的审查和逆自然气候的做法强加给运动员，严重违反“奥林匹克精神”。美国众议院议长警告美国运动员谨防中国共产党的人身伤害。**
 
-就像当年离开德国离开苏联的火箭说这个国家不灭世界无安宁之日。为什么?晚上被拉出去嫖娼喝酒受贿行贿互相乱搞，情报威胁。繁荣的背后，是最邪恶的力量的支撑。
+据中共国新华社北京时间4日下午消息，2022年北京冬奥会开幕式将于晚八点举行。北京市公安局在新中国联邦宣战下如临大敌，设立北京冬奥“联合作战指挥中心”，[市委书记李鸿忠对冬奥安保作战中心实地考察](http://tj.news.cn/gov/tjld/2022-02/04/c_1128328709.htm%0a%0a)，要求“对涉疫地区、重要进京交通卡口、重点商贸街区等实时画面监控”。
 
-一个绑架14亿人的国家。你玩个奥运会，这就像飞飞要在后院点2根小蜡烛?搭个小棚子，它可以制造出任何幻境，告诉孩子，冬天来了，我可以让它下雪。一转弯变魔术春天来了，我让它开花，它可以告她仨孩子，妈妈给你编一个大象出来。就这么简单，谁做不到呢?是妈妈，因为他是孩子，你是妈妈，你当然会做到的。谁都能做到，因为这是媒体的时代。
+李鸿忠在调研检查中指出，举世瞩目的重要历史节点的冬奥会作为重大标志性活动，是展示中共国政党形象的舞台。要严格守住天津作为首都的东大门。全面践行习近平的“四个意识”、坚定“四个自信”、捍卫“两个确立”、做到“两个维护”、牢固树立底线思维和风险意识，强化全市公安指挥系统，突出管控重点，强化矛盾纠纷排查化解，[切实将问题解决在萌芽状态](https://baijiahao.baidu.com/s?id=1723754607092947578&amp;wfr=spider&amp;for=pc&amp;searchword=%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E8%81%94%E5%90%88%E4%BD%9C%E6%88%98%E6%8C%87%E6%8C%A5%E4%B8%AD%E5%BF%83)。
 
-发布：于white
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- ***延展阅读：***[***美国花样滑冰团体赛的第一天领先。南希佩洛西警告美国运动员不要在周五的开幕式上抗议***](https://www.nytimes.com/live/2022/02/03/sports/olympics-winter-beijing)
+
+
+- ***延展阅读：***[***今晚白宫点亮红、白、蓝色灯光支持美国冬奥运动员代表国家出征北京***](https://twitter.com/WhiteHouse/status/1489410131674677250?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1489410131674677250%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cnn.com%2Fworld%2Flive-news%2Fbeijing-winter-olympics-2022-opening-ceremony-spt-intl-hnk%2Findex.html)***！***
+
+
+从冬奥安保强调的“四个自信”可见其不自信程度已经到了如同惊弓之鸟一般恐惧程度。中共很清楚，国际社会对中共国政府的主要三大犯罪指控包括世界有目共睹的“**种族灭绝”**的指控：奥运会东道国对维吾尔人和其他穆斯林少数群体的人权侵犯“有系统地试图摧毁维吾尔人”的种族灭绝犯罪指控。其次是“**政治犯**”：对维吾尔人的严厉对待并不是中国对人权的唯一批评，主要是备受瞩目的系统性、有目的地针对香港的政治犯罪、和禁止运动员发表政治声明、威胁要惩罚外国运动员。严重侵犯《奥林匹克宪章》。再有就是“**违背奥林匹克精神**”：中共国走得更远，中国共产党扭曲奥林匹克精神，将“任何违背中共国虚假的”法律法规“的行为或言论视为违背奥林匹克精神，特别是要受到一定的惩罚。
+
+对于威权主义共产中国一贯地侵犯人权行为，美国众议院议长南希佩洛西警告美国运动员说：“[你是来比赛的，不要冒险招致中共政府的愤怒，因为他们是无情的](https://sports.yahoo.com/2022-olympics-nancy-pelosi-urges-athletes-not-to-protest-to-avoid-angering-the-chinese-government-014944305.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAGwqBcmXymobGJVySyOWAuIkn5hII4msutw0RE6uV9XaIcL6YVY1r44JRTcEvYST-mT3SSw7fXhHdwNCByMynSGMHEZdMFJoGPe-21F1e8L75kXUodNaH7GpUAl9guxbffIWK59nFohwHdecziiVtM7AoNX0T7ylCIg0g3YQn6Rf)，”佩洛西周四对国会中国执行委员会说，“我知道有些人会在那里时说出来，我尊重但我也担心中共政府可能会诋毁他们的名誉和他们的家人。”
+
+2022年2月4日
+
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 俄乌冲突中，俄罗斯的政治经济打算
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954460/)
+## 灭共是新中国联邦不变的目标
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954481/)
 
 台灣寶島農場
 
