@@ -2,20 +2,47 @@
 ---
 
 
-## 加拿大部分省份逐步放宽疫苗限制
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1956720/)
+## 顶级医生说，安大略省需要“重新评估 COVID-19 疫苗护照系统的价值”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956736/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：Sean Davidson
+翻译：HimaCoby
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-58.jpg)
+安省首席卫生官Dr. Kieran Moore说，安省需要在未来几周内“重新评估COVID-19疫苗护照系统的价值”，以决定是否应该终止使用疫苗护照。
 
-据【CTV新闻】2月1日报道，加拿大部分地区已开始放宽疫情相关的限制，部分省份已做好解封限制的准备。
+Dr. Kieran Moore周四发表评论说，虽然COVID-19疫苗对严重疾病提供了显著保护，但两剂疫苗对限制病毒的传播作用不大。
 
-报道称，安省和魁省在开始放宽限制的一天后分别报告了63例“新冠病毒”死亡病例。由于安省的防疫情况有所改善，因此省长将继续重新开放该省。魁省也因感染住院人数有所下降，当局正在计划取消部分严格的防疫措施。
+Moore说：与未接种疫苗的人相比，接种两剂疫苗并没有显著降低传播风险。我们必须在未来几周和几个月内重新评估疫苗护照的价值。
 
-此外，萨省省长日前表示，将很快停止在酒吧和餐馆等商业场所使用疫苗护照或病毒检测的规定。并认为虽然他本人和总理特鲁多都完全接种了疫苗，但最终还是难逃被感染的结局，因此省长认为萨省的疫苗护照政策已走到了尽头。
+“当我们看到疫苗不能提供像它对Delta提供的免疫力时，我们必须重新评估目前采取的一些公共卫生措施，重新评估我们是否需要维持目前的疫苗接种证明认证流程。
 
-* * *
+Moore说，结束COVID-19疫苗接种证明系统最终将由安省政府做出决定。
 
-编辑： 平民正道    发布：平民正道
+安省的疫苗证书计划于去年9月22日生效。到今年1月份，随着安省Omicron病例激增，该 计划无限期延长。
+
+尽管三剂疫苗确实可以增强对COVID-19传播的保护，但福特省长此前曾表示，他不考虑将完全接种疫苗的定义更改为包括加强疫苗。
+
+福特最初是反对疫苗证书制度的，他在7月份就表示他“从未相信”过疫苗证书。福特说，我们不需要这样做，就这么简单，因为我们只是要向前迈进，答案是否定的，我们不会有一个分裂的社会。
+
+但是到9月1日，他宣布了疫苗证书计划，当时所有省份都在加紧推进疫苗证书制度，福特还指责联邦政府没有建立全加拿大的疫苗护照系统。
+
+来源：https://toronto.ctvnews.ca/ontario-needs-to-reassess-the-value-of-covid-19-vaccine-passport-system-top-doctor-says-1.5765973
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

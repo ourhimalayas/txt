@@ -2,31 +2,39 @@
 ---
 
 
-## 七哥说“中国人完全已经失去了辨别能力”（2022-02-02摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1956508/)
+## 日本公司表示：伊维菌素显示出“抗病毒作用”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956570/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+据《路透社》记者：Sam Nussey和Rocky Swift报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-348-e1643998562947.png)在2020年1月29日拍摄的插图显示带有中共新冠病毒阳性标签的试管。
+图片来源：路透社/Dado Ruvic
+东京，1月31日（路透社）——日本贸易和制药公司Kowa Co Ltd (7807.T) 周一表示，抗寄生虫药物伊维菌素在联合非临床研究中对奥米克戎和其他冠状病毒变体显示出“抗病毒作用”。
 
-来源：郭先生2022-02-02直播08:50:12摘录
+该公司一直与东京北里大学合作测试该药物作为COVID-19的潜在治疗方法，但没有提供更多细节。
 
-外国机构对中国这么大的一个春节联欢晚会和春节运动有个极为深刻的研究。就中国人对社会和社会关系的本质和一个人类上最基本的一个叫节日、宗教活动，特别是人生生死的重大的仪式，和人与人之间的交往，外国叫Party，中国叫集会，中国人是怎么面对的？结果人家外国所有的调查结果是：所有的一切都是被国家和政府、共产党安排的，中国人完全已经失去了辨别能力。就像咱每天都看到的鸭子，北京烤鸭，上去前争着往前冲，那会儿热乎，它不知道脚底下还热乎，它不能站下来，因为你站下你脚就会烫死你，你只能往前冲。我们都是北京烤鸭店的鸭子和赶上自动杀猪机上的猪一样。春节联欢晚会是一个屠杀人类、种族大屠杀、文化大屠杀、思想大屠杀、思想大垄断、人类上最大的犯罪集团。谁说的？七哥说的！我当着李长春面说的。李长春刚进北京城我去见他，都去看他，什么河南的王全书，哎哟我的妈呀，也是拿着一堆的小海鲜，河南也不产海鲜，也不知道哪来的海鲜箱子。最重要的事情，李长春喜欢古董，全都是古董，挖坟，现挖的坟，用王全书的话说：“你看，你看看，长春你看看，长春首长，长春首长。” 河南话叫李长吹，李长吹，他不会说春，李长吹，李长吹。“你看看你看看，长吹首长，这土还鲜亮着呢。”李长春说：“你说啥呢？你现挖的坟？”“哎呀，真是现挖的呀，我是公安局长洛阳现挖的呀。” 真是现挖的， 真找到了一个所谓的公主坟。“搁那儿搁那儿吧。” 晚上我就在那儿，他说：“你这看春节联欢晚会？” 我说：“看呀。”他说：“咋样？挺好吧？” 如何如何，我说：“我看的时候，陪着孩子陪着我娘陪着我媳妇看。” “你咋看？” 我说：“你们这就是精神毒药，一毒好几代。你们的每一个节目除了给你们共产党洗脑之外，最可怕的事情是扼杀对政治对知识对世界的认知，浪费人家的生命。”长春说：“你看…..”一屋子的人，就拉我到旁边说话，长春嗑着瓜子，一直腿在抖着，看着我然后在那聊，本来说半小时，说家里今天来送礼的人都来这，来拜年的多，我们俩从那个隔壁二号厅，就叫作首长通电话厅，那是常委啊，我俩聊两个小时。
+临床试验正在进行中，推广伊维菌素治疗COVID-19也引发争论。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**著名疫苗怀疑论者乔·罗根（Joe Rogan）质疑疫苗的必要性，并说他使用了伊维菌素。**
 
-**关注我们**
+该药物在日本未被批准用于治疗COVID-19，美国食品药品监督管理局、世界卫生组织、欧盟药物监管机构和制造该药物的默克公司(MRK.N)警示使用该药物，因为仍然需要科学证据表明其作用。
 
-Discord 账号
+目前牛津大学也在研究使用伊维菌素治疗COVID-19。研究人员周一表示，这项工作仍在进行中，在有结果报告之前，他们不想进一步置评。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+原文有删减。
 
-Gettr 账号
+文章来源：[https://www.reuters.com/business/healthcare-pharmaceuticals/japans-kowa-says-ivermectin-effective-against-omicron-phase-iii-trial-2022-01-31/](https://www.reuters.com/business/healthcare-pharmaceuticals/japans-kowa-says-ivermectin-effective-against-omicron-phase-iii-trial-2022-01-31/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+翻译：洛杉矶盘古农场 – WH
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -15,83 +15,83 @@
 
 ---
 
-### [即使孩子因 COVID-19 被送回家，父母每月也要支付 4,000 元的日托费用](/content/gnews/1/README.md)
+### [加拿大统计局称 1 月份有 200,000 个工作岗位流失](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [顶级医生说，安大略省需要“重新评估 COVID-19 疫苗护照系统的价值”](/content/gnews/2/README.md)
+### [渥太华警方部署“增援”以应对持续的抗议](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/3/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大保守党领袖奥图尔被迫辞职](/content/gnews/4/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大部分省份逐步放宽疫苗限制](/content/gnews/5/README.md)
- ` 扬帆枫叶快讯`
-
-### [中共的春晚是宣称假大空的精神毒药](/content/gnews/6/README.md)
- ` 焦點20分`
-
-### [魁北克政府计划放弃强征疫苗税](/content/gnews/7/README.md)
- ` 扬帆枫叶快讯`
-
-### [HPAY将会是灭共的金融核武器](/content/gnews/8/README.md)
- ` 焦點20分`
-
-### [多数加拿大人希望终止所有防疫限制](/content/gnews/9/README.md)
- ` 扬帆枫叶快讯`
-
-### [HPAY真正实现了“我的财富我说了算”的自由](/content/gnews/10/README.md)
- ` 焦點20分`
-
-### [美国谋杀率飙升至创纪录水平 原因是人为造成的社会崩溃](/content/gnews/11/README.md)
+### [又一名21岁希腊球员因心脏骤停离世](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [官方数据显示病毒死亡率与接种剂量相关](/content/gnews/12/README.md)
+### [即使孩子因 COVID-19 被送回家，父母每月也要支付 4,000 元的日托费用](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [顶级医生说，安大略省需要“重新评估 COVID-19 疫苗护照系统的价值”](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [喜支付的如期上线开启了新中国联邦的大时代](/content/gnews/6/README.md)
  ` 扬帆枫叶快讯`
 
-### [DC大中华时事：习近平同俄罗斯总统会谈](/content/gnews/13/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [加拿大保守党领袖奥图尔被迫辞职](/content/gnews/7/README.md)
+ ` 扬帆枫叶快讯`
 
-### [北京冬奥定址张家口 犯风水大忌 郭先生号召甜蜜蜜运动 变冬奥会成中共的冬眠会](/content/gnews/14/README.md)
+### [加拿大部分省份逐步放宽疫苗限制](/content/gnews/8/README.md)
+ ` 扬帆枫叶快讯`
+
+### [中共的春晚是宣称假大空的精神毒药](/content/gnews/9/README.md)
  ` 焦點20分`
 
-### [银行业监管机构警告称，当升息时加国房价可能暴跌20%](/content/gnews/15/README.md)
+### [魁北克政府计划放弃强征疫苗税](/content/gnews/10/README.md)
+ ` 扬帆枫叶快讯`
+
+### [HPAY将会是灭共的金融核武器](/content/gnews/11/README.md)
+ ` 焦點20分`
+
+### [多数加拿大人希望终止所有防疫限制](/content/gnews/12/README.md)
+ ` 扬帆枫叶快讯`
+
+### [HPAY真正实现了“我的财富我说了算”的自由](/content/gnews/13/README.md)
+ ` 焦點20分`
+
+### [美国谋杀率飙升至创纪录水平 原因是人为造成的社会崩溃](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [官方数据显示病毒死亡率与接种剂量相关](/content/gnews/15/README.md)
+ ` 扬帆枫叶快讯`
+
+### [DC大中华时事：习近平同俄罗斯总统会谈](/content/gnews/16/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [北京冬奥定址张家口 犯风水大忌 郭先生号召甜蜜蜜运动 变冬奥会成中共的冬眠会](/content/gnews/17/README.md)
+ ` 焦點20分`
+
+### [银行业监管机构警告称，当升息时加国房价可能暴跌20%](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [七哥谈远离中共（2022-02-02摘录）](/content/gnews/16/README.md)
+### [七哥谈远离中共（2022-02-02摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [加拿大总理特鲁多不顾民众高涨的反疫苗暴政情绪，仍要继续推进疫苗接种](/content/gnews/17/README.md)
+### [加拿大总理特鲁多不顾民众高涨的反疫苗暴政情绪，仍要继续推进疫苗接种](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥谈“开信上中央联欢晚会”（2022-02-02摘录）](/content/gnews/18/README.md)
+### [七哥谈“开信上中央联欢晚会”（2022-02-02摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [2月2日北京奥运会COVID-19病例创新高](/content/gnews/19/README.md)
+### [2月2日北京奥运会COVID-19病例创新高](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月4日早](/content/gnews/20/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月4日早](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [七哥谈犯罪舞台——《春节联欢晚会》（2022-02-02摘录）](/content/gnews/21/README.md)
+### [七哥谈犯罪舞台——《春节联欢晚会》（2022-02-02摘录）](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [新奥尔良市市长因中共病毒疫苗护照被起诉](/content/gnews/22/README.md)
+### [新奥尔良市市长因中共病毒疫苗护照被起诉](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本公司表示：伊维菌素显示出“抗病毒作用”](/content/gnews/23/README.md)
+### [日本公司表示：伊维菌素显示出“抗病毒作用”](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [七哥谈美国“外交撤离”（2022-02-02摘录）](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [加拿大自由车队司机收到一条可以鼓舞和团结整个加拿大的信息](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [七哥说“中国人完全已经失去了辨别能力”（2022-02-02摘录）](/content/gnews/26/README.md)
- ` MG FARM`
 
 ### [郭文贵先生解读HPay的功能特点](/content/gnews/27/README.md)
  ` NFSC News`
@@ -129,65 +129,65 @@
 ### [新西兰财经G乐部2022年2月4日:财经新闻整理](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [美国青少年站起来反对Covid疫苗疯狂](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱](/content/gnews/40/README.md)
+### [2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/41/README.md)
+### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/40/README.md)
  ` G-NEWS TAIWAN`
 
-### [普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶](/content/gnews/42/README.md)
+### [普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶](/content/gnews/41/README.md)
  ` 华盛顿DC-Russian`
 
-### [瑞典将于2月9日解除中共病毒限制](/content/gnews/43/README.md)
+### [瑞典将于2月9日解除中共病毒限制](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [数据显示，新冠疫苗接种率高的国家死亡率飙升](/content/gnews/44/README.md)
+### [数据显示，新冠疫苗接种率高的国家死亡率飙升](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国数千名军人建脸书群，反对疫苗强制令](/content/gnews/45/README.md)
+### [美国数千名军人建脸书群，反对疫苗强制令](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯和中共国达成以欧元结算为期 30 年的天然气协议](/content/gnews/46/README.md)
+### [俄罗斯和中共国达成以欧元结算为期 30 年的天然气协议](/content/gnews/45/README.md)
  ` Shuizhuyu`
 
-### [美国众议院《中国竞争法案》将于本周通过](/content/gnews/47/README.md)
+### [美国众议院《中国竞争法案》将于本周通过](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“这比体育更重要”NBA明星立法者站出来抵制中共国奥运会](/content/gnews/48/README.md)
+### [“这比体育更重要”NBA明星立法者站出来抵制中共国奥运会](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [联合国与中共串通 冬奥会结束前不发布新疆人权报告](/content/gnews/49/README.md)
+### [联合国与中共串通 冬奥会结束前不发布新疆人权报告](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新疆西藏同胞在纽约抗议北京冬奥会](/content/gnews/50/README.md)
+### [新疆西藏同胞在纽约抗议北京冬奥会](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [如果中共在北京冬奥会上抓捕，国际奥委会将被视为同谋](/content/gnews/51/README.md)
+### [如果中共在北京冬奥会上抓捕，国际奥委会将被视为同谋](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [主观视角：压迫与奥运](/content/gnews/52/README.md)
+### [主观视角：压迫与奥运](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [只有打开甜蜜蜜运动这把钥匙才能一起合作消灭CCP](/content/gnews/53/README.md)
+### [只有打开甜蜜蜜运动这把钥匙才能一起合作消灭CCP](/content/gnews/52/README.md)
  ` mary202064`
 
-### [多少愤恨在心中,唯有战友能懂——郭文贵先生版一帘幽梦](/content/gnews/54/README.md)
+### [多少愤恨在心中,唯有战友能懂——郭文贵先生版一帘幽梦](/content/gnews/53/README.md)
  ` mary202064`
 
-### [印度因解放军担任火炬手而抵制北京冬奥会](/content/gnews/55/README.md)
+### [印度因解放军担任火炬手而抵制北京冬奥会](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美议员卢比奥、斯科特、科顿和女议员斯特凡尼克提请立法打击中共无人机](/content/gnews/56/README.md)
+### [美议员卢比奥、斯科特、科顿和女议员斯特凡尼克提请立法打击中共无人机](/content/gnews/55/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郭文贵先生以灭共的雪狙击中共冬奥会主打歌曲塞北的雪](/content/gnews/57/README.md)
+### [郭文贵先生以灭共的雪狙击中共冬奥会主打歌曲塞北的雪](/content/gnews/56/README.md)
  ` mary202064`
 
-### [北京冬奥会是中共自杀的表演，甜蜜蜜运动正式进入第三幕](/content/gnews/58/README.md)
+### [北京冬奥会是中共自杀的表演，甜蜜蜜运动正式进入第三幕](/content/gnews/57/README.md)
  ` YALUN 亚伦`
+
+### [与心理医生谈焦虑症—如何应对疫情期间的各种心理压力（五）](/content/gnews/58/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [美政府承认新中国联邦是中国人民的选择](/content/gnews/59/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
