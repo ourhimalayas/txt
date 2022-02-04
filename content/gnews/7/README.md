@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦用音乐揭发中共的虚伪和官僚欺骗
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954271/)
+## 灭共的核心是要有钱、有人和掌握时机
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954309/)
 
 台灣寶島農場
 

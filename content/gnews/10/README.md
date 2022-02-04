@@ -2,8 +2,8 @@
 ---
 
 
-## 如何推广H-pay？!
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954229/)
+## 新中国联邦用音乐揭发中共的虚伪和官僚欺骗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954271/)
 
 台灣寶島農場
 
