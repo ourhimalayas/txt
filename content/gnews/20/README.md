@@ -2,20 +2,22 @@
 ---
 
 
-## 普京借冬奥割中共韭菜 将签天然气与金融合约
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953514/)
+## 蓬佩奥再谈病毒起源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953516/)
 
-作者：香草山医疗部 – 云豹
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，俄罗斯总统普京的幕僚鄂夏柯夫表示，普京在出席冬奥期间将与中共习近平会面，届时将签署天然气、金融合作等15项协议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10.png)
-天然气方面，双方已有多项的新合约准备签署。 金融上则是俄中希望合作，筹建能抵抗被金融制裁的基础架构。
+2月1日，美国前国务卿蓬佩奥接受福克斯电视台采访，再次提及病毒来自中共武汉病毒研究所实验室。
 
-此次跟随普京参与协商的俄罗斯代表团成员，将包括外交部长拉夫罗夫、能源部长舒尔吉诺夫和能源业巨擘俄罗斯石油公司的执行长谢琴。 观察人士认为，此安排显示出普京借有条件出席冬奥会的机会，将在能源交易上大割中共韭菜的意图。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-3.png)
+
+在节目中，主持人回顾了有科学家很早就提出病毒来自实验室的质疑，但被福奇和柯林斯要求统一思想，并统一改口为病毒起源于自然。而现在越来越多的人开始明白病毒来自实验室。对此蓬佩奥表示，只要是在2020年春天看到了那些数据的人，都会得出病毒一定来自中共武毒所的结论。但时至今日中共武毒所还在运转，美国人依旧面临着相似的威胁。
+
+蓬佩奥还指出，福奇、柯林斯等美国政府医疗与公共卫生权威人士，明知道病毒会造成危害，却不告诉当时的美国政府，这是让人难以置信的事实。
 
 参考链接：
 
-- [蒲亭冬奧與習近平會談 俄中擬簽天然氣金融協議](https://www.cna.com.tw/news/aopl/202202020170.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [20220201蓬佩奧國務卿接受FOX採訪](https://www.gettr.com/post/ps4ijrfc55)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)

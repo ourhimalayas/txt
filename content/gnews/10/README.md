@@ -2,32 +2,30 @@
 ---
 
 
-## 2022年2月1日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1953550/)
+## 2.02大直播后记：战友分享Hpay的体验
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953567/)
 
-作者：香草山翻译部
+整理：雅典娜速记组
+编辑：朝花夕拾
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)图片来源：雅典娜设计组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2.png)
-校对：Stay文苑
+初二，七哥状态也好心情也好运气也好。中国有句老话，“运去金成铁，时来铁成金”。我们今天就感觉到这个真的是铁成金，咱都变成钻石的感觉，就我这手机刚才都不能再看了。 外国朋友发信息说：“Miles，你敢相信吗，我买了一台车，我用Hpay，你敢相信吗？我女儿买了一个她的婚纱，是Hpay买的。”另外一个就更夸张了，说：“我把我的房贷给付了。他问能接受Hpay吗，人家说可以，而且利息免了。”对一个美国人、外国人来讲就是一万多美金利息，很大的钱！免了！更夸张的是还没有手续费。一个在安哥拉的朋友说：“七哥，我用Hpay买了60吨油，一分钱费用没有。”这好事实在太多了!
 
-编辑：Stay文苑
+昨天晚上，他说，“我拿着Hpay我买台车，买了一个雕塑，买了一幅画。然后最重要的事情我给我女朋友，转过去秒到啊。”太惊讶了，他说他又给我转回来，转给他是十万，对方转给他九万。 他又一个转过去十万，对方又给她转去八万。我说，这个是很好的，你给他转了，女朋友就永远比他少啊。他到最后说，“女朋友把所有的钱给我打回来，我又给他打回去，转着玩儿。不可思议啊，女朋友在希腊，我在英国，一分费用没有。”战友们，你说这里边儿重点在哪儿，知道吗？我给你们数一数，买车各种限制都有。技术登记什么的多了去了，加拿大就买个车要出示你的驾照，居住地址，然后银行汇钱还有啥的，加拿大银行还不让你汇呢！为什么他一下就秒到了？我们这是在线支付，不是在线买卖。不管对方是卖车的，还是卖画的，咱俩说好了叫约定式付款，跟这个交易没任何关系。
 
-发稿：Stay文苑
+如果我现在有喜币，我给艾瑞克（Eric) 了，我没有理由啊。我不需要理由，我还给他呀。这是财富的基本，财富是谁有这个控制权你就有使用的权利，这是基本的属性。可人类给它设定好了身份证、年龄、资金来源，这是全人类最黑暗的金融时代，就是意味着太多造假。它不敢让你知道，它给你设定各种法律，就像那个土豆（加拿大总理），人家大卡车去抗议，这是人家的权利，他把皇家骑警放在那儿，说你过来，你就是刑事犯罪。这叫什么？这在政治学人类管理学和统治学有一句话叫做：“故意的设置合法障碍”定义为政权的本质。是不是警察就站在路中间，我不动，你只要撞我，你就是袭击警察。 现在银行给你设定的一大堆，只要你过来，只要你花钱，我就让你设置红线过不去，直到把你转穷，你不花钱拉倒。很多人没明白这个道理。我们有个战友，台湾的，一位很棒的女士。我的老朋友了今年93岁。她说:“文贵，我就等着这个。”你说这人的智商真是，我再说这个93岁的，昨天下午上线。咔咔就转。人家93岁了，把这手里边的120万HDO转了还剩了一万多。就是这么简单，就用自己的手机。
 
-新闻：[https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6](https://gtv.org/broadcast/watch/61fc828296ba5d73e0c243f6)
-访谈：[https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf](https://gtv.org/broadcast/watch/61fc88ec96ba5d73e0c247cf)
+资料来源：郭先生GTV、盖特直播
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb.jpeg)
+发布：tianzhihuan
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
