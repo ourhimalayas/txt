@@ -2,33 +2,15 @@
 ---
 
 
-## 音乐影响体制内对战友执行任务的人（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953788/)
+## 人类只要存在达沃斯党人类就没有一天安全
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/1953845/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/02/930434A1-F131-4453-9C10-2A333E506CD7.jpeg)![](https://gnews.org/488bcc71-880b-42e8-a939-3f7d745bdf91)![](https://assets.gnews.org/wp-content/uploads/2022/02/F7B7184E-9572-442B-B4B8-5BB6F02CC8D8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8D35F302-5B0E-4931-9E96-5BB617F902FF.jpeg)
+来源：文贵先生大直播2022/01/19
 
-共产党，像习近平，那是真懂音乐。彭丽媛是真懂音乐，汪洋也很懂音乐。李克强不懂，他老婆程虹绝对懂。
+图文设计：新西兰农场进设计组
 
-这些人知道这音乐意味着什么。
-
-包括国内的某个检察官，还有法院的头两天，执行某个战友的资产，告诉他说你们的歌确实不错，我们家孩子也听我也听，但是我们不方便就不能出去听，只能在家里听。
-
-咱战友一下子就感动得不行了，说你执行啥就执行啥吧。哎，这下执行的警察说，“把你的电脑好好的看一看，一会儿我回来， 20分钟，我出去抽根烟。”
-
-出去以后一个小时都没有回来。战友，这明白过来了 ,这个中间给我发信息，七哥他啥意思？我说你把你电脑砸了，马上砸了。你别把硬壳砸了。
-
-怎么砸，知道吧?
-![](https://assets.gnews.org/wp-content/uploads/2022/02/音乐影响体制内对战友执行任务的人（一）_01.jpg)
-2021年12月10日文贵大直播
-
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+上传：天赐良闻
 
  
 

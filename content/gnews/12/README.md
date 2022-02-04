@@ -2,30 +2,25 @@
 ---
 
 
-## 联合国拒绝在冬奥会前公布新疆人权报告
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1953802/)
+## 中俄勾兑（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953871/)
 
-![资料照：联合国人权事务高级专员巴切莱特](https://gdb.voanews.com/A9C1608D-0CCE-4EE9-884B-5CDA0A528F9D_cx0_cy9_cw98_w1023_r1_s.jpg)资料照：联合国人权事务高级专员巴切莱特
-据美国之音2月4日报道，北京冬奥会即将开幕，联合国人权高专办（OHCHR）拒绝在冬奥会开幕前公布一份已经耗费3年时间准备的有关新疆的人权报告，此举被联合国人权高专办前雇员艾玛·莱莉称为与中共国政府“唱双簧”。莱莉曾经作为“吹哨人”揭露联合国人权高专办向中共国政府提供到联合国人权理事会活动的中共国异议人士名单丑闻而遭联合国开除。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-人权团体指责中共当局在新疆严重侵犯维吾尔族以及其他少数民族的人权，包括大规模绝育计划以及强迫劳动。美国政府及其盟友指责北京当局犯下“种族灭绝”和“反人类”罪，宣布外交抵制北京冬奥会。联合国人权事务高级专员巴切莱特希望访问新疆，据说中共政府已经同意北京冬奥会结束后接待巴切莱特访问新疆，但是“友好”性质的访问，而不是有罪推断的调查。
+曾经派杨洁箎传过话，后来不让参与，这是2个人之间会到了这个程度。 所以你看到他去俄罗斯，俄罗斯普京来这边都是这2个人之间沟通的。就好到这样的程度，你拿了1万亿美元的现金给了俄罗斯，就是要抗美，就是所谓的10年大战略。习近平时修宪，我修宪你修宪，我接着干，你接着干啊，你弄乌克兰，我弄台湾，咱俩一起干美国，然后欧洲啊，我取钱，你取地阻止去北去东或非洲是我的，中东是你的，然后中东咱俩一起分由你看。这都是这谈好的。所以在这个冬奥会上，俄罗斯也傻眼了，说你让我去参加，去我这运动员去我国家政府官员去。
 
-西方强调人权，但是全球人权危机一直层出不穷。即使对于联合国，捍卫人权也越来越变成一句口号。新疆的种族灭绝最早由新中国联邦的郭文贵先生向西方揭露了这一切，但是中共国居然在2021年当选为联合国人权理事会成员。犯有种族灭绝和反人类罪的中共黑帮组织摇身一变成了捍卫人权的斗士，真是滑天下之大稽。联合国是不是要给中共国颁发提供素材奖呢？以表彰中共国的人权危机让联合国不至于无所事事，可以时不时的出来走两步，为人权喊两声？
+你给我啥呀啊？ 5倍成10倍，我可不涂这个，我要图更多的。图什么再签一个4000亿的合同。你看着啊，马上俄罗斯的中国要签合同了，冬奥会之前签完合同付50%,俄罗斯这个不跟你玩，别的不像路大脑袋，谁要演傻叉是吧，那房子咱要过户去，咱拿不回来了，是不是一鸟在手，比万鸟在林好得多，俄罗斯永远是哲学，一鸟在手，比万鸟在林，老子先打50%啊，天天我拿走。这就是现在整个中国，到这个时候你会发现什么，因为他仰仗俄罗斯，因为他是习近平，相信跟俄罗斯达成的协议, 我真的能统治全世界，万万邦来朝。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中俄勾兑（二）-.jpg)
+2021年12月10日文贵大直播
 
-新闻参考链接：[https://www.voachinese.com/a/un-and-china-accused-of-fabricating-mutually-convenient-stalemate-over-xinjiang-human-rights-20220203/6425277.html](https://www.voachinese.com/a/un-and-china-accused-of-fabricating-mutually-convenient-stalemate-over-xinjiang-human-rights-20220203/6425277.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

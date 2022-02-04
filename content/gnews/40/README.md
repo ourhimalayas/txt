@@ -2,42 +2,56 @@
 ---
 
 
-## 北京冬奥会是中共自杀的表演，甜蜜蜜运动正式进入第三幕
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1953139/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-2月2日，郭文贵先生于GTV、Gettr大直播中透露，北京冬奥会是中共自杀的表演，并表示，甜蜜蜜运动正式进入第三幕——把本届冬奥会变成“冬眠会” 。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/d7bf3be53c1a413375787a49deb48322.jpg)图片来源Gettr
+**George Soros**
+**乔治·索罗斯**
 
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-为了追求全球唯一既举办夏季奥运会、又举办冬季奥运会的城市的政治目的，本届冬奥会的选址从历史、人文、地理方面来看都是不科学的、不自然的，完全是政治交易的产物。
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-本届冬奥会，80%的管理人员直接来自中共军队。安保人员配置了3种装备，1. 最高压的电击枪，2. 防爆墙，3. 无声无色无味的催眠武器。只要一按手里的催眠武器，500米范围之内的人闻到马上昏倒十几分钟（无害，这是中共所谓的大杀器）。面对人类最和平、最美好的运动盛世，中共已做好应对各种暴力突发事件的准备。甚至，中共已经给本届冬奥会提前定调，在任何情况下都要向世界宣布这是一届超越历史的、完美的冬奥会。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-据悉，参加本届冬奥会2800多名运动员中的80%以上都不是当今各个项目的最顶级运动员，即便如此，这些运动员仍然成为中共掠夺精子、卵子的对象。通过照相、接触机器人、睡觉的被子留下个人信息，在进入北京城后所有运动员的DNA都会被采集。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5cfa203f022cd29e5491b1dbb8f0e861.png)图片来源Gettr
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
 
-现在我们知道，美国政府授权撤离美国驻北京大使馆只是甜蜜蜜运动大戏的第一幕，第二幕就是今年春节大直播时郭先生现场演绎的三首歌曲《甜蜜蜜》、《一帘幽梦》、《灭共的雪》，第三幕行动将直对北京冬奥会。
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
 
-在此，郭先生于大年初二向中共正式下战书，北京冬奥会必将成为北京“冬眠会“。没人了解北京冬奥会的来龙去脉和它选址的弱点，纵使中共预备了230万颗造雪弹，爆料革命有能力让这些造雪弹变哑弹（造雪不成）。
+that has had disastrous consequences
+这带来了灾难性的后果
 
-“甜蜜蜜~你笑得甜蜜蜜~好像花儿开在春风里~ ”
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
 
-**附：**
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
 
-是精彩，才浪漫。当懂得人生的价值和意义，便不会再问“为何我要灭共”，消灭共产党，让中国人享有法治、民主和自由。
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**相关****Gnews文章：**
-
-北京冬奥会脚本提前剧透，丧事喜办愚外患，布置重兵防内乱
-
-
-
-> [北京冬奥会脚本提前剧透，丧事喜办愚外患，布置重兵防内乱](https://gnews.org/zh-hans/1779469/)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
