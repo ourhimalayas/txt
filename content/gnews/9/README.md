@@ -2,76 +2,24 @@
 ---
 
 
-## 以色列开展第四针疫苗以来 近28天感染率火箭式飙升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1955311/)
+## 秘翻在线：《长津湖》出品人于冬的“中国电影梦”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955405/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+**撰稿：葛大饼**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-214125.jpg)图片来源：新华网
+根据2022年2月4日凤凰网报道，今年春节备受瞩目的《长津湖之水门桥》， 票房有望达到65亿元，超过此前《长津湖》缔造的近58亿票房神话。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+博纳影业董事长、《长津湖之水门桥》出品人及总制片人于冬表示：美国电影已审美疲劳，中国观众需要中国人的故事，于东希望再过30年、50年，希望那个年代的年轻人再看《长津湖》的时候，依然可以像我们当年看《上甘岭》一样，被深深感动。
 
-COVID-19病毒来自于中国科学院武汉病毒研究所，不同于来源于自然的病毒，注射实验性的疫苗，不但不能预防感染，反而会带来严重的副作用！
+新闻称博纳影业凭借《湄公河行动》、《烈火英雄》、《中国医生》，《长津湖》等主旋律影片，票房已经收获了超过200亿。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c5bbe3ac-a8ec-4716-a6fa-c30fc6579a79.jpeg)
+于冬认为，主旋律电影之所以能够被广大观众所接受和喜爱，是因为电影里传达了一种向上、向善的中国精神，这些年的中国电影更加体现了文化自信，即表现中国人真实的生活、真实的情感。《长津湖》系列在技术和美学语言上，都已经达到了全球最高水准，开创了独具中国美学特色的工业化电影风格，而在技术上，中国电影已经不需要国外后期团队这样的宣传嘘头了。《长津湖》系列电影丰富了全球战争片的美学类型，实现了战争片中人文精神的突破。
 
-就在12天前，以色列特拉维夫Sourasky医疗中心公布了对6,863名在2021年8月至2021年12月期间接种了第三剂辉瑞冠状病毒疫苗且之前未感染过新冠病毒的医务人员的“真实”研究数据，其中包括截至2022年1月3日接种了第四针的1,316名医务人员。在此期间，有608人的COVID-19检测结果呈阳性，但其中只有42人在接种第四针疫苗7天或更长时间后被诊断出感染了病毒。通过使用回归模型对数据进行分析，该医院得出结论：“在接种第四针疫苗后7天，感染病毒的风险降低了两倍。”
+于东告诉大家为什么国产电影票房如此高了吗？那是因为电影院只有国产电影，什么是主旋律电影？就是像《长津湖》系列的洗脑电影，完全编造，篡改历史，欺骗老百姓眼泪和金钱的垃圾电影！习太阳的“中国梦”让中国电影越来越脱离了真实！历史真相是毛泽东通过朝鲜战争把所谓的国民党百万叛军派到前线，被消灭，被活活的冻死。中共高官张震曾说：长津湖战役是人类大屠杀，是军人的耻辱！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-01-20-at-20.14.11-768x446-1.jpeg)
+**[新闻来源](https://finance.ifeng.com/c/8DLxWqgcaBZ)**
 
-以色列卫生部于12月下旬批准为免疫力差的人进行第四针注射，不久之后决定将其扩大到包括60岁以上的老人和医务人员。到目前为止，已有超过50万以色列公民注射了第四针。
 
-1月4日，以色列总理Naftal Bennett很高兴的宣布，初步研究表明，在接种第四针疫苗后的一周内，血液中的抗体数量比只接种三针的人增加了近五倍，（接种第四针疫苗）会提供比没有注射四针的人更高水平的保护——对预防感染和重症发病率的高水平保护，接种第四针疫苗一定是安全的，第四针疫苗很可能会起作用，自以色列开始接种第四针疫苗以来的两天内，已有超过 100,000 名以色列人登记接种或已经接种了疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_20-43-16-1.png)
-
-截止到美东时间2022年2月4日上午5时20分，人口仅992.1万的以色列总共注射了17,879,314针COVID-19病毒疫苗，平均每人注射1.8针，目前，以色列一针、两针和三针或加强针的接种率为72.02%、65.61%及54.8%。
-
-如果以色列总理Naftal Bennett和Sourasky医疗中心的“真实”研究数据确实可信，目前以色列应当对COVID-19控制得非常好！
-
-然而，在最近28天内，以色列总共有1,647,364人确诊，979人死亡！以色列所有确诊COVID-19感染者中，有53.21%是在最近28天内感染的！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Israel-total-cases.jpg)
-
-目前，以色列这个人口不足千万的国家，感染率达到31.2%。如果照这个趋势下去，以色列人恐怕在未来不到两个月内，绝大多数人都会被感染！
-
-疫苗是否可以减少重症或死亡呢？
-
-下图是以色列与美国、意大利、法国、加拿大、墨西哥、英国、南非、德国和印度COVID-19确诊后的7天移动平均死亡率对比。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/coronavirus-data-explorer.png)
-
-以色列确诊后的死亡率最高！
-
-以色列在2月2日达到了死亡最高点，单日死亡226人。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Israel-New-Deaths.jpg)
-
-目前，全世界有希腊、智利、巴西和以色列批准为其公民提供第四剂疫苗。但世界卫生组织已公开反对注射第四针疫苗，本月早些时候，世卫组织首席科学家Soumya Swaminathan博士表示，基于原始疫苗成分重复加强剂量的疫苗接种策略不太可能是适当的或可持续的。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_20-37-25.png)
-
-参考资料：
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-[Daily new confirmed COVID-19 deaths per million people](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2021-05-27..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_vaccinations_per_hundred&amp;Metric=Confirmed+deaths&amp;Interval=7-day+rolling+average&amp;Relative+to+Population=true&amp;Color+by+test+positivity=false&amp;country=IND~USA~GBR~CAN~DEU~FRA~ZAF~ITA~ISR~MEX)
-
-[Soumya Swaminathan](https://twitter.com/doctorsoumya/status/1483551018222825475?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1483551018222825475%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhealthpolicy-watch.news%2Frisk-of-catching-omicron-twice-as-low-after-fourth-dose-new-israeli-study-says%2F)
-
-[Israel 86% of peak and rising 5,445 infections per 100K people reported last 7 days](https://graphics.reuters.com/world-coronavirus-tracker-and-maps/countries-and-territories/israel/)
-
-[Pfizer, BioNTech to test omicron-specific vaccine on adults](https://thehill.com/policy/healthcare/591169-pfizer-biontech-to-test-omicron-specific-vaccine-on-adults?rl=1)
-
-[Excerpt from Prime Minister Bennett’s Remarks at Sheba Medical Center](https://www.youtube.com/watch?v=pRcH-QhgbR4)
-
-[Health-Worker Risks of Catching Omicron Half as Likely after Fourth Dose – Second Israeli Study Challenges Earlier Results](https://healthpolicy-watch.news/risk-of-catching-omicron-twice-as-low-after-fourth-dose-new-israeli-study-says/)
-
-[Israel Finds Fourth COVID Booster is only ‘Partially Effective,’ Vast Majority of Hospitalised Omicron Patients Are Unvaccinated](https://healthpolicy-watch.news/israel-fourth-covid-booster-ineffective/)
-
-[Expert panel in Israel recommends fourth vaccine dose for adults](https://news.yahoo.com/expert-panel-israel-recommends-fourth-132725941.html)
-
-[Israel Finds Fourth Pfizer Dose Produces Five-fold Increase in Antibodies, as Country Prepares to Launch Moderna Fourth Shot Trial](Israel%20Finds%20Fourth%20Pfizer%20Dose%20Produces%20Five-fold%20Increase%20in%20Antibodies,%20as%20Country%20Prepares%20to%20Launch%20Moderna%20Fourth%20Shot%20Trial)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

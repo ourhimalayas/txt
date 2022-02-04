@@ -2,24 +2,32 @@
 ---
 
 
-## Himalaya Pay(HPay)-谢谢七哥送给我们的礼物
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1955491/)
+## 波兰移民：我们想生活在一个自由的国家
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1955637/)
 
-**撰稿：挺郭吃榴莲**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-221626.jpg)
-谢谢你亲爱的七哥，在2022年大年初一，送了我们这么大一个礼物！
+编译： Jenny Ball
 
-咱们的喜支付，上线了！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4F62A71F-9DEB-4DF1-882E-8596C37F8841.jpeg)图片来源：thegatewaypundit.com
 
-我做梦也不会想到，这一辈子，会有实现财富自由的一天。
+一群来自多伦多的波兰移民，一路前往渥太华，为正在为结束疫苗任务而奋斗的爱国卡车司机提供食品援助。
 
-陆陆续续，全世界各地的战友发来信息。买吃的，买喝的，买茶叶，买机车，战友相互之间转Hcoin/Hdollar, 秒到账，无手续费。
+据波兰妇女伯纳黛特（Bernadette）说，她的团队为司机带来了大约 1,550 根波兰香肠、面包和小圆面包以及波兰甜甜圈。
 
-我的金钱我做主，如果卖货商也注册了喜联储账户，通过了KYC，我们就能向卖货商转账支付Hcoin/Hdollar。省掉了中间环节，无税收无中间商价格，信用背书，点对点付款。
+当被问及为什么他们向司机提供免费食物时，伯纳黛特说，他们来自一个共产主义国家。在过去的两年里，他们像囚犯一样生活在[加拿大]，这就是他们支持自由车队的原因。
 
-全世界用喜币的人们，在法律范围内，想买啥买啥，没有监管，无繁琐的金钱支出审核环节。
+“因为我们支持他们。我们来自一个共产主义国家，我们来到这里是因为我们不想受到压迫，我们想生活在一个自由的国家。在过去的两年里，我们像囚犯一样生活。我们被告知待在家里， 我们被告知不能去餐厅，不要去教堂。这简直难以置信。在共产主义时期，有些时候我们还可以自由地去教堂，有些时候我们不能。所以我实在是受不了了。因此，我带着食物来这里，每两周一次，每两三天一次，直到结束，”伯纳黛特说。
 
-亲爱的战友们！大家用起来吧——Himalaya Pay!
+**评论：从共产主义／社会主义／极权独裁国家逃离的人，听到伯纳黛特的话都会感动的落泪，因为我们知道那是怎样的灾难。与其说我们在支持加拿大勇敢的卡车司机们的抗议，不如说是他们在为我们和我们的子孙后代的自由在战斗！**
+
+**参考资料：**[thegatewaypundit][“We Come from Communist Country.. We Wanted to Live in a Free Country” – Polish Immigrants Offer Food Assistance to Truck Drivers in Ottawa (VIDEO)](https://www.thegatewaypundit.com/2022/02/come-communist-country-wanted-live-free-country-polish-immigrants-offer-food-assistance-truck-drivers-ottawa-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 

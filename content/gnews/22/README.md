@@ -2,31 +2,35 @@
 ---
 
 
-## 中领馆前多个人权团体游行 痛批北京冬奥为种族灭绝运动会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1955110/)
+## 美军突袭叙利亚 伊斯兰国领导人自爆身亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955164/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2月3日，海外藏人、维吾尔族、香港人、台湾人团体集结在洛杉矶中（共）国领事馆，呼喊“没有人权就没有北京冬奥”，并上演行动剧将北京冬奥称为“种族灭绝运动会”。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-据《中央社》报道，3日上午，百位群众聚集在洛杉矶中（共）国总领事馆前，手拿东土耳其斯坦、雪山狮子旗、光复香港时代革命、台湾旗等旗帜，绕行抗议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-18.png)（图片来自中央社）
-据悉，这是全球60多个城市串连发起No Beijing 2022示威活动的一环。官网说明，这场示威以抗议中共政府侵害人权，包括酷刑施虐、大规模羁押、对群众使用暴力、打压个别宗教与文化等行径。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-维吾尔族人权组织将北京2022冬季奥运定义为“这个采取种族灭绝政策的政府进行的一场政治宣传活动”，呼吁世人拒看这场“种族灭绝运动会”（Genocide Games）。
 
-此外，抗议人士还在洛杉矶的中（共）国领事馆外上演行动剧，几名示威者身穿中共国解放军制服，拿着棍棒作势殴打代表维吾尔族、藏人、香港人、台湾人的临时演员，司仪宣布“种族灭绝运动会开始”。
+根据德国之声中文网报道：美国表示美军部队2月3日突袭极端组织伊斯兰国组织（ISIS）在叙利亚的藏身处，该组织的领导人与他的家人一起引爆炸弹自杀身亡。这次行动造成至少13人丧命，包括6名孩童与4名妇女。
 
-参与此次活动的台湾人士表示，台湾是一个爱好和平的国家。台湾人公共事务会多年来在洛杉矶当地与图博（藏人）、维吾尔族、香港人团结起来，一起对抗不公不义的中共政权。
+美国总统拜登3日发表简短声明，宣布美军此次反恐行动和伊斯兰国首脑库莱希（Abu Ibrahim al-Hashimi al-Qurayshi）丧生的消息。美国官员称这是对这个极端组织的重大打击。
 
-洛杉矶一香港人组织的发言人说，这次的北京冬奥是一个很好的机会，让所有的运动员与全世界的观众见识一下，中共政府是如何控制人民和打压言论自由。
+ISIS上个月才袭击了叙利亚东北部的一座监狱，里面至少有3000人遭到伊斯兰国组织拘留。
 
-参考链接：
- [https://www.cna.com.tw/news/aopl/202202040090.aspx](https://www.cna.com.tw/news/aopl/202202040090.aspx)
+美国反恐目标与韧性研究所（American Counterterrorism Targeting and Resilience Institute）主任沙伊科维奇（Ardian Shajkovci）指出，比起投降，自杀结束生命对伊斯兰国追随者而言是勇敢的表现，这有助于伊斯兰国作进一步的宣传。
 
-素材采编：幽蘭自得
-编辑：青城道姑
-发布：文曦
+参考链接[https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873](https://m.dw.com/zh/%E7%BE%8E%E5%86%9B%E7%AA%81%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A-%E4%BC%8A%E6%96%AF%E5%85%B0%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%87%AA%E7%88%86%E8%BA%AB%E4%BA%A1/a-60654873)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

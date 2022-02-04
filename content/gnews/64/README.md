@@ -2,156 +2,147 @@
 ---
 
 
-## 玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1871060/)
+## 国防部正在把福奇暴露出来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1873022/)
 
-Marjorie Taylor Greene (the U.S. representative of Georgia)
-玛乔丽·泰勒·格林 (美国佐治亚州众议员）
+[https://gtv.org/video/id=61e45a0d87664c47acd58ebd](https://gtv.org/video/id=61e45a0d87664c47acd58ebd)
 
-I’m just happy to see that that the media and you know
-我很高兴看到媒体和你知道
+**Steve Bannon
+史蒂夫·班农**
 
-my colleagues here on Capitol Hill are starting to catch up what
-我在国会山的议员同事们开始跟上了
+Dr. Malone, is the apparatus of the whistleblower started come out this DARPA
+马龙博士, 是这个是举报人的系统开始出来这个国防高级研究计划局
 
-what the American people have known all along
-美国人民一直都知道的
+this Veritas amazing Veritas leak
+这个“真理”项目，惊人的“真理”泄漏
 
-none of us trusted Fauci
-我们都不信任福奇
+that they’ve been they promulgated in the Senate was ripping Fauci his face off yesterday
+他们已经在参议院颁布了，他们昨天彻底揭穿了福奇
 
-And that’s why I introduced the Fire Fauci Act early early last year
-这就是为什么我在去年初介绍了《解雇福奇法案》
+Is this the beginning of more information?
+这将会是更多信息的开始吗？
 
-because this is the man that is at the root of all of our problems
-因为这个人是我们所有问题的根源
+Do you think that certain individuals real scientists inside the apparatus
+你认为系统内部的某些真正的科学家
 
-But I’d like to walk back even a little further
-但我还想往回走得更远一点
+that’s we’ve had enough we got to stop this madness, Dr. Malone.
+我们已经受够了，我们必须停止这种疯狂，马龙博士
 
-Steve, I’m going to go ahead and say this
-史蒂夫，我要继续将这个说下去
+Dr. Robert Malone
+罗伯特·马龙博士
 
-and it’s been upsetting to me ever since it happened
-自从病毒发生以来，我一直很不安
+I think it’s the DOD saying they’ve had enough of this.
+我认为是国防部说他们已经受够了
 
-But when we shut our country down
-但是当我们关闭我们的国家时
+And I’m not sure if this came from a JAG’s office
+我不确定文件是否来自美国陆军总检察长的办公室
 
-when we shut it down to so called slow the spread
-当我们关闭国家以所谓的减缓传播时
+because they’re stamped like they are
+因为它们看起来像
 
-I knew we broke America. We broke our country
-我知道我们破坏了美国，我们破坏了我们的国家
+based on the file names or if it came from DARPA
+基于文件名或是来自国防高级研究计划局
 
-When that happened, we stopped the supply chain
-发生这种情况时，我们停止了供应链
+But having looked at these again and again in recently communicating with the DOD JAG
+但是在最近与国防部美国陆军总检察长的交流中一遍又一遍地看着这些
 
-We, you know, factories whose machines stay up running 24 hours a day had to shut down
-我们，你知道，那些机器一天 24 小时保持运转的工厂不得不关闭
+it’s trying to smoke out whose office this might have come out of.
+文件，在试图找出这可能来自谁的办公室
 
-people went home and that is really what broke our country
-人们回家了，而且这真的是我们国家崩溃的原因
+I think what we’re looking at is DOD finally coming around saying is enough, enough is enough
+我认为现在是国防部终于出来说够了
 
-and now it’s going to take a very long time to get back on track
-现在需要很长时间才能回到正轨
+And throwing Tony under the bus, and it could well be the DARPA’s doing it
+把托尼推出来，这很可能是国防高级研究计划局做的
 
-And the biggest problem is, is we have people here in Washington
-最大的问题是，我们在华盛顿这里的人
+so that the fingers don’t get pointed at them
+这样手指就不会指向他们
 
-that are serving global interests or are interested in helping the great reset happen
-为全球利益服务或有兴趣帮助大重置的发生
+But there’s in my mind, these Veritas documents look, look absolutely authentic
+但在我看来，这些真理文件看起来，看起来绝对真实的
 
-and are not serving the American people
-并且不为美国人民服务
+Steve Bannon
+史蒂夫·班农
 
-Inflation is very scary and it’s getting out of control.
-通货膨胀非常可怕，而且正在失控
+So you’re saying this is what I’m sure we’re clear here
+所以你说这就是我确定我们在这里很清楚
 
-When the Fed is going to have to step in and raise interest rates
-当美联储将不得不介入并提高利率时
+You’re saying that, as we know, we take over this year
+你是说，我们知道，今年我们接管了
 
-We have long term problem that will not end by next year
-我们有长期的问题，明年不会结束
+that the investigations deep into the situation of Wuhan lab, the bioweapons program
+对武汉实验室情况的深入调查，生化武器计划
 
-they’re not going to end it two years
-他们不会在两年内结束它
+and American scientific and taxpayer money that went into doing any of that
+以及用于做任何这些的美国科学和纳税人的钱
 
-Here’s here’s the real issue when the cost of producing goods has increased so much
-当生产商品的成本增加如此之多时，这才是真正的问题
+is going to be beyond a hot potato be one of the defining issues going forward
+将超越烫手的山芋成为未来的决定性问题之一
 
-and then the ability to provide the goods to the consumer are completely disrupted
-然后将商品提供给消费者的能力被完全破坏
+what actually happened?
+实际发生了什么
 
-We have stagflation, but we also have real problems
-我们有滞胀，但我们也有真正的问题
+You’re saying right now look at the Pentagon Papers
+你说现在看看五角大楼文件
 
-The biggest problem driving the cost of producing goods is several factors
-推动商品生产成本的最大问题是几个因素
+there are people either officially or unofficially, making a move on Tony Fauci
+有人正式或非正式地在对托尼·福奇采取行动
 
-One of them is this mass COVID testing
-其中之一就是这种大规模的COVID测试
+in your mind and you know, DARPA and you know the DOD pretty well
+你的脑海中你知道，你对国防高级研究计划局和国防部非常了解
 
-mass COVID testing is continuing the panic in this in the society
-大规模的COVID测试正在继续在社会中引起恐慌
+you’ve been consulted there for many, many years. Correct?
+你已经在那里做了很多很多年的咨询工作, 对吗？
 
-and but it’s also giving people a reason to get out of work.
-但病毒也造成了人们失业
+Dr. Robert Malone
+罗伯特·马龙博士
 
-You know what if you have a positive COVID test, whether you’re sick or not
-你知道如果你的COVID测试呈阳性，无论您你是否生病
+Correct. And I’m also in close communication with the senator and his investigations office
+正确，我也在与参议员和他的调查办公室保持密切联系
 
-you have to stay home, and that means
-你必须待在家里，而且这意味着
+I don’t want to speak for the senator but this this is one of those situations
+我不想为参议员说话，但这是其中一种情况
 
-that it’s more expensive for the company to continue producing the goods or services that they provide
-公司继续生产他们提供的商品或服务的成本会更高
+If you spent decades dealing with DOD and the hill like I have
+如果你像我一样花了几十年的时间与国防部和国会山打交道
 
-because they less have less people there at work
-因为他们工作的人少了
+this is how the game gets played
+这就是游戏的玩法
 
-And then you have less people to unload the train, unload the cargo, put it back on the shelf
-然后你就没有多少人来卸火车，卸货物，把它放回货架上
+This is how the Kabuki works in DC
+这就是歌舞伎在华盛顿中的运作方式
 
-I mean, we have so many serious problems
-我的意思是，我们有很多严重的问题
+is they’ll turn on each other when it looks like somebody is going to have to take the fall
+当看起来有人将不得不背锅时，他们是会互相攻击的
 
-and we can point it all at one man that is Dr. Fauci
-我们可以把这一切都指向一个人，那就是福奇博士
+And it looks to me like that has now happened in DOD has had enough
+在我看来，现在的情况是国防部已经受够了
 
-Dr. Fauci is responsible for all of this, he created the gain of function
-福奇博士对此负一切责任，他创造了功能增强研究
+It’s important to know that Tony bushwhack DOD after the anthrax attacks
+重要的是要知道，托尼在炭疽袭击后对国防部敲诈了一笔
 
-He gave it to China, they created the bio weapon
-并把它给了中共，中共创造了生物武器
+and grabbed a big chunk of their budget
+而且敛走了他们预算的很大一部分
 
-which is COVID-19 and it broke the world
-这就是COVID-19，它破坏了世界
-
-but our government and anyone that goes along with this
-但如果我们的政府和任何工作人员
-
-and doesn’t fire Fauci, investigate him, prosecute him
-不去解雇福奇，调查他，起诉他
-
-and hold him accountable is failing the American people
-追究他的责任，那就是辜负美国人民
+so there could be some payback opportunity here
+所以这里可能是国防部反击的机会
 
 * * *
 
 Date:01/15/2022
-原视频标题: “So many problems in this country right now point to Dr. Fauci”, -Marjorie Taylor Greene
-玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”
+原视频标题: The DOD Is Throwing Fauci Under The Bus
+国防部正在把福奇暴露出来
 原视频日期：2022/01/15
-原视频链接: [**https://gettr.com/post/po3i1m18dc**](https://gettr.com/post/po3i1m18dc)
-任务编号：KE350（3492）
-视频时间段 : 0:00-2:44
+原视频链接: [https://gettr.com/post/po400h9ae3](https://gettr.com/post/po400h9ae3)
+任务编号：KE351（3493）
+视频时间段 : 0:00-2:22
+
 英听校：洛杉矶盘古农场 – Layka
 翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作： 洛杉矶盘古农场 – 天涯行
-审片： 洛杉矶盘古农场 – 银龙
-发布： 洛杉矶盘古农场 – 恩典
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

@@ -2,26 +2,35 @@
 ---
 
 
-## 数千人在华盛顿集会，反对疫苗强制接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955123/)
+## 有声|中共国男足再次无缘世界杯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955196/)
 
-##### 翻译：Frank
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+配音：香草山佛教部 – 李傻
 
-据福克斯新闻1月24日报道，数千美国公民来到华盛顿纪念碑，举行反新冠疫苗强制接种大集会。人们高呼取消强制令。集会者表示，强制接种是不正确的，公民有选择的自由。人们来这里参加这场大游行是为自由而战，也是为了家庭还有自己的身体的决定权而战。
 
-视频链接：[Thousands rally in DC to oppose COVID-19 vaccine mandates, demand ‘freedom’](https://www.foxnews.com/politics/thousands-rally-in-d-c-to-oppose-covid-19-vaccine-mandates-demand-freedom)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
+对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：[中共国男足再次无缘世界杯](https://gnews.org/zh-hans/1951940/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
