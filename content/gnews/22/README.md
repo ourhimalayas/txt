@@ -2,38 +2,38 @@
 ---
 
 
-## 2.2.22大直播后记：沼泽地的金融骗局
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1953165/)
+## 瑞典取消所有新冠限制
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1953177/)
 
-**整理：雅典娜速记组
-编辑：Candy**
+**编译: 真北007**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-248.png)图片来源：[CAMILLE GIJS & CHARLIE DUXBURY/POLITIC](https://www.politico.eu/article/sweden-lifts-coronavirus-restrictions-madgalena-andersson-omicron-endemic/)
+来自POLITICO二月三日的新闻报道：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午8.22.00-2.png)
+瑞典政府周四宣布，瑞典将于 2 月 9 日开始取消所有冠状病毒限制。 此举是继英国、丹麦和挪威等其它欧洲国家降低了 COVID-19 的威胁等级之后，做出的类似的决定。
 
+瑞典首相马格达莱娜·安德森在新闻发布会上表示，由于对 Omicron 变种更好的了解和良好的疫苗接种率，该国可以取消所有措施。
 
-**郭先生在2022年2月2日的大直播中讲到：**
+“现在是开放瑞典的时候了”，安德森说，“大流行尚未结束，但它正在进入一个新阶段”。
 
-你看那个Facebook啊，他不是说他不干了，也不是他卖掉了，他也不是没这个本事，是他自己知道他没有未来了。他进行了一场人生的大屠杀，全人类最后给他清算账，他有啥都会被拿走。 我告诉你，扎克伯格比任何人都知道，他不会有未来的。
+瑞典公共卫生署表示，在丹麦采取类似决定将这种病毒更像一种地方病对待的几天后，它已重新评估，认为COVID-19 不会再构成社会危机。
 
-这就能看得出来，就像现在很多国家，共产党一看这个数字货币，直接垄断。把去中心化的新型货币要变成绝对中心化的DCRP，把DCEP中国人民数字化的数字币，因为它恐惧啊！为什么我们能懂，说华尔街人都不懂？
+这一消息发布之际，尽管 73.9% 的人口已完全接种疫苗，但瑞典的感染率仍然很高。
 
-华尔街那帮孙子是典型的，就像咱从小上学，就是有亲爹亲妈，有好爹好妈。爹妈是老师，就天天觉得比一般学生高3倍；如果爹妈再是校长或者副校长，或者他妈跟校长睡觉，叫他觉得比咱都强，都聪明，就做作业永远是对的，就是这帮华尔街的孙子，毛都不是。就因为从小到大有了一个所谓的好的教育，行贿受贿，按照规则骗人。后来的咱们看到影子金融，还有所谓的基金，全是基金里生出骗人的招，没有一件是创造财富的，全是假的。
+瑞典政府在取消与冠状病毒相关的限制措施的同时，表示将保留一些建议。政府表示，未接种疫苗的瑞典人仍应避免去拥挤的地方，任何出现 COVID-19 症状的人都应待在家里。
 
-这个货币金融的本质，就是物物交换。生产力的价值等同法币，那就是法币和数字币，也就是法币非法币。现在人类有了技术，能实现过去技术达不到的。它把人给你物理上消灭，给你抓住了，你怎么做呀？ 你不能拿着黄金到处跑吧。那黄金再值钱，怎么能做到去买车，去买鞋，买画去给你女朋友？
+**原文链接：**
 
-人类从来没像今天，发现花钱比挣钱还难，而且越花钱越少，手续费、税务，转一次交一次税。这种重复交税，没有一个国家会给你答案的。你知道人类上现在最大的问题是什么？就是所有的国与国协议都是避免重复交税。
+[POLITICO: Sweden to lift all coronavirus restrictions.](https://www.politico.eu/article/sweden-lifts-coronavirus-restrictions-madgalena-andersson-omicron-endemic/)
 
-我很小的时候，从十几岁开包子铺，我就在看这个报道，什么国与国之间避免重复交税，到今天也没人做到。就像共产党从我很小就说，要让人民每个人当家作主，让中国人民成为什么全世界最受尊重的人，让中国人什么住上大房子，拥有美式民主，从来没有过一样，全世界也是一个德性。
+**编辑：LILY**
 
-***发布：Candy***
+**发布：MQ**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+20220203
 
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,56 +2,25 @@
 ---
 
 
-## 乔治·索罗斯批评习近平的治国理念
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
+## 中印边境的“英雄”参与冬奥火炬传递
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1953329/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
-[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020214.jpg)解放军团长祁发宝在冬奥公园传递奥运圣火（路透社照片）
+10月份从希腊运来的圣火将前往包括邻近河北省张家口在内的比赛区，然后在2月4日的开幕式上点燃奥运圣火时结束它的旅程。 有1000多名火炬手参加奥运圣火的接力活动。
 
-**George Soros**
-**乔治·索罗斯**
+2020 年 6 月 15 日在边境小规模冲突中头部严重受伤的时任中共国人民解放军新疆军区某边防团团长祁发宝，于2月2日（周三）在北京冬奥会公园从中国四届奥运会短道速滑冠军王蒙手中接过了圣火。
 
-Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
-习近平竭尽全力摧毁邓小平的功绩
+2 月 4 日至 20 日的冬奥会将在一个“闭环”泡泡内举行，将运动员和其他奥运工作人员与公众隔离开来，只有选定的人群才能参加这些活动。
 
-He brought private companies established under Deng under the control of the CCP
-他将在邓小平时期创建的民营企业置于中共的控制之下
+**简评：**
 
-and undermined the dynamism that used to characterize them
-并破坏了过去使其具有活力的机制
+总所周知，奥运会象征着热爱和平，公正、坦率，以及友好的体育精神。中共国果然没有让国际社会失望，再一次让世界领教了其藐视一切的毫无教养的本质，它推出了一名于2020在与印度武装冲突中受重伤的边防团团长祁发宝作为2022年北京冬奥会火炬传递的传递者之一！！！显然，这一举动意在向国内传递一种信号，忠于党的人是会被优待的。
 
-rather than letting private enterprise blossom
-而不是让民营企业百花齐放
+新闻来源：[Chinese soldier involved in Galwan valley clash among torchbearers for 2022 Winter Olympics](https://www.indiatoday.in/sports/other-sports/story/chinese-soldier-involved-in-galwan-valley-clash-among-torchbearers-for-2022-winter-olympics-1907871-2022-02-02)
 
-Xi Jinping introduced his own China dream
-习近平提出了自己的“中国梦”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
-As can be summed up in two words: “total control”
-可以用两个词概括就是：全面控制
 
-that has had disastrous consequences
-这带来了灾难性的后果
-
-**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
-
-Date:02/02/2022
-原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
-乔治·索罗斯批评习近平的治国理念
-原视频日期：2022/02/02
-原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
-任务编号：3651
-视频时间段 : 0:00-0:38
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

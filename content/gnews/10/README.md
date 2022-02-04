@@ -2,32 +2,56 @@
 ---
 
 
-## 中美科技脱钩 台积电会很惨
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1953320/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-作者：波士顿五月花 Frankie 背靠背
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-04-at-7.55.18-AM.png)图片来源：互联网
-北京大学国际战略研究院上周日（1月31日）发表了一份有关中美科技竞争的研究报告：《技术领域的中美战略竞争：分析与展望》。报告在预期未来中美科技脱钩形势下，对中美双方技术力量总体以及中美技术竞争的三大代表性领域—信息技术领域，人工智能领域，航空航天领域进行了对比。报告指出，美国在芯片及其制造设备、人工智能等关键技术和产品领域必即将与中共国脱钩已经成为美国政府的共识，最后结论是无论是技术层面还是产业层面，中美双方都将面临“脱钩”带来的损失，而目前来看中共国的损失可能更大。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-中共国芯片（集成电路**integrated circuit**）严重依赖进口，2021年全年进口金额近4400亿美元。根据中共国海关的数据，2021年1-12月我们进口集成电路数量6354.81亿，同比2020年的5435亿个，增长16.9％。而进口金额高达27934.8亿人民币（约合4397亿美元），同比去年的3500亿美元，增长25.6％。[【1】](https://mp.ofweek.com/ic/a256714346267)
+**George Soros**
+**乔治·索罗斯**
 
-西方发达国家必将跟随美国与中共国科技脱钩，中共从前靠蓝金黄收购以及偷盗等手段获取核心技术的手段已经行不通。没有芯片中共防火墙也无法持续维护，中共墙倒猢狲散，环顾四周，中共唯有威胁，抢夺，强取台湾科技技术以苟延残喘。
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-华盛顿智库新美国安全中心（CNAS）在近期举行的一场兵棋推演中，预测中共国可能会使用经济胁迫、网路行动和混合战术，试图夺取或损害台湾的半导体产业，美国必须具备识别和反击中共威胁晶片供应链的能力。台湾的产量占据全球晶片产量的一半，最尖端晶片的市场占率更超过9成。美国企业研究所学者丹．布卢门塔尔表示，台湾高端晶片和低端晶片方面的制造能力几乎是不可能复制的，它就是世界的制造中心。[【2】](https://ctee.com.tw/news/global/589783.html)
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-郭先生在2021年10月29日直播中，爆料中共想攻打台湾实施对台积电国有化，更早在2019年6月22日，郭文贵先生报平安直播中，警告台积电及其日本供应商后果都会很惨。假如中共拿下台积电，这将对新中国联邦奠基人郭文贵先生早早布局的格芯（GlobalFoundries）送上好礼。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-随着美国为首的西方国家对中共科技脱钩的推进，中共对台湾的动作将愈发露骨和不加掩饰，就像它在香港做的那些罪恶行为一样。而同时新中国联邦发起的甜蜜蜜运动，预示着灭共的第三道大门已经开启，欲灭中共，必先让其疯狂。
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
-* * *
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
 
-*编辑&发布：Vicky*
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
 
-[【1】现实很严峻：2021年进口芯片6355亿个，金额2.8万亿，创历史纪录](https://mp.ofweek.com/ic/a256714346267)
+that has had disastrous consequences
+这带来了灾难性的后果
 
-[【2】美智庫兵推 台晶片停產恐引爆中美衝突](https://ctee.com.tw/news/global/589783.html)
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
 
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
 
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

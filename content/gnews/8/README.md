@@ -2,25 +2,26 @@
 ---
 
 
-## 中印边境的“英雄”参与冬奥火炬传递
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1953329/)
+## 加拿大保守党领袖奥图尔被迫辞职
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1953335/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020214.jpg)解放军团长祁发宝在冬奥公园传递奥运圣火（路透社照片）
-10月份从希腊运来的圣火将前往包括邻近河北省张家口在内的比赛区，然后在2月4日的开幕式上点燃奥运圣火时结束它的旅程。 有1000多名火炬手参加奥运圣火的接力活动。
+#### 加拿大温哥华扬帆农场 枫叶快讯
 
-2020 年 6 月 15 日在边境小规模冲突中头部严重受伤的时任中共国人民解放军新疆军区某边防团团长祁发宝，于2月2日（周三）在北京冬奥会公园从中国四届奥运会短道速滑冠军王蒙手中接过了圣火。
+采编：优酷
 
-2 月 4 日至 20 日的冬奥会将在一个“闭环”泡泡内举行，将运动员和其他奥运工作人员与公众隔离开来，只有选定的人群才能参加这些活动。
+编译撰稿：苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E7755CFE-CE4A-49CC-975D-1B9D68F68F5F_1_201_a.jpeg)图片来源：thepostmillennial
+据加拿大媒体【后千禧年】2月2日报道，保守党领袖奥图尔当天已被该党核心小组成员以73比45的投票结果弹劾，而痛失其党魁职责。
 
-**简评：**
+报道称，本次弹劾投票是在此前35名保守党国会议员，联名要求该党核心小组对奥图尔领导层进行审查后进行的。由于目前奥图尔已辞职，因此当天晚些时候将选出一名临时领导人。
 
-总所周知，奥运会象征着热爱和平，公正、坦率，以及友好的体育精神。中共国果然没有让国际社会失望，再一次让世界领教了其藐视一切的毫无教养的本质，它推出了一名于2020在与印度武装冲突中受重伤的边防团团长祁发宝作为2022年北京冬奥会火炬传递的传递者之一！！！显然，这一举动意在向国内传递一种信号，忠于党的人是会被优待的。
+有保守党议员在投票后发表声明称，该党必须向全国展示其强大而稳定的领导人，以重获加拿大人的信任。据悉，奥图尔的本次被弹劾与其长期支持特鲁多自由党政府的疫苗政策和对遏制中共势力在加拿大的不断扩张毫无作为有关。
 
-新闻来源：[Chinese soldier involved in Galwan valley clash among torchbearers for 2022 Winter Olympics](https://www.indiatoday.in/sports/other-sports/story/chinese-soldier-involved-in-galwan-valley-clash-among-torchbearers-for-2022-winter-olympics-1907871-2022-02-02)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+发稿：青青
 
-
+原文链接： [BREAKING: Erin O’Toole forced out as Conservative leader | The Post Millennial](https://thepostmillennial.com/breaking-erin-otoole-forced-out-as-conservative-leader)
 
  
 

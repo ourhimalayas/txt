@@ -18,77 +18,77 @@
 ### [喜支付会把奴役人民政府所谓的赤字谎言中解放](/content/gnews/1/README.md)
  ` 澳喜特战旅Gnews`
 
-### [共和党向拜登政府继续施压要求追讨中共病毒起源真相](/content/gnews/2/README.md)
+### [习近平和共产党的对全世界的野心](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [共和党向拜登政府继续施压要求追讨中共病毒起源真相](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [停止冬奥会，把CCP踢出WTO和SWIFT (一)](/content/gnews/3/README.md)
+### [停止冬奥会，把CCP踢出WTO和SWIFT (一)](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [停止冬奥会，把CCP踢出WTO和SWIFT （三）](/content/gnews/4/README.md)
+### [停止冬奥会，把CCP踢出WTO和SWIFT （三）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [活动人士呼吁对中共采取除奥运外交抵制之外的进一步行动](/content/gnews/5/README.md)
+### [活动人士呼吁对中共采取除奥运外交抵制之外的进一步行动](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来](/content/gnews/6/README.md)
+### [特鲁多在给卡车司机贴上“种族主义者”的标签后被呼喊出来](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加拿大保守党领袖奥图尔被迫辞职](/content/gnews/7/README.md)
+### [加拿大保守党领袖奥图尔被迫辞职](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中印边境的“英雄”参与冬奥火炬传递](/content/gnews/8/README.md)
+### [中印边境的“英雄”参与冬奥火炬传递](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [乔治·索罗斯批评习近平的治国理念](/content/gnews/9/README.md)
+### [乔治·索罗斯批评习近平的治国理念](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中美科技脱钩 台积电会很惨](/content/gnews/10/README.md)
+### [中美科技脱钩 台积电会很惨](/content/gnews/11/README.md)
  ` 波士顿五月花农场金融部`
 
-### [相信有勇士有好人](/content/gnews/11/README.md)
+### [相信有勇士有好人](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [世卫组织表示下一个新冠变种病毒将比奥米克戎更具传染性，但问题是它是否会更致命](/content/gnews/12/README.md)
+### [世卫组织表示下一个新冠变种病毒将比奥米克戎更具传染性，但问题是它是否会更致命](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [强国天空降下的“飞刀”雨](/content/gnews/13/README.md)
+### [强国天空降下的“飞刀”雨](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【秘翻在线】弗吉尼亚州法官衡量新州长推翻学校口罩规定的权力](/content/gnews/14/README.md)
+### [【秘翻在线】弗吉尼亚州法官衡量新州长推翻学校口罩规定的权力](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [聚焦：为什么美国死于新冠的人比非洲印度日本之和还多？](/content/gnews/15/README.md)
+### [聚焦：为什么美国死于新冠的人比非洲印度日本之和还多？](/content/gnews/16/README.md)
  ` 丁过`
 
-### [2008副总统候选人佩琳对纽约时报的审判即将开始](/content/gnews/16/README.md)
+### [2008副总统候选人佩琳对纽约时报的审判即将开始](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（1/3）](/content/gnews/17/README.md)
+### [Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（1/3）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC大中华时事：台湾向美国提派驻关岛武官強化軍事合作](/content/gnews/18/README.md)
+### [DC大中华时事：台湾向美国提派驻关岛武官強化軍事合作](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大部分省份逐步放宽疫苗限制](/content/gnews/19/README.md)
+### [加拿大部分省份逐步放宽疫苗限制](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [人工智能会创造社会主义天堂吗？](/content/gnews/20/README.md)
+### [人工智能会创造社会主义天堂吗？](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [瑞典取消所有新冠限制](/content/gnews/21/README.md)
+### [瑞典取消所有新冠限制](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2.2.22大直播后记：沼泽地的金融骗局](/content/gnews/22/README.md)
+### [2.2.22大直播后记：沼泽地的金融骗局](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵精品视频-塞北的雪花智慧地飘过信息高墙](/content/gnews/23/README.md)
+### [郭文贵精品视频-塞北的雪花智慧地飘过信息高墙](/content/gnews/24/README.md)
  ` cindy`
 
-### [北京冬奥会是中共自杀的表演，甜蜜蜜运动正式进入第三幕](/content/gnews/24/README.md)
+### [北京冬奥会是中共自杀的表演，甜蜜蜜运动正式进入第三幕](/content/gnews/25/README.md)
  ` YALUN 亚伦`
-
-### [在宪兵营前自焚的意大利教师，其真实目的迷雾重重](/content/gnews/25/README.md)
- ` xiaobaige`
 
 ### [文贵先生直播精要2022/02/02](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
