@@ -2,16 +2,18 @@
 ---
 
 
-## HPAY的支付革新与推广前景
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1955175/)
+## 西媒头条 — 第166期 – 西媒看天朝
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1955220/)
 
-文贵大直播20220204
+制作：蚂蚁兄弟
 
-撰稿：Arthur文徐（DC） ILOVE战神（文凡）（香草山）政清（台湾）
+**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
 
-美工：Bobby（文俊）（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-3.png)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220204.002.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 

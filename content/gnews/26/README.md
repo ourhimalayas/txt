@@ -2,15 +2,15 @@
 ---
 
 
-## “甜蜜蜜”把北京冬奥会变成“冬眠会”
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1955167/)
+## HPAY的支付革新与推广前景
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1955175/)
 
 文贵大直播20220204
 
-撰稿：待命（文晓）（樱花） Poplar（盘古）
+撰稿：Arthur文徐（DC） ILOVE战神（文凡）（香草山）政清（台湾）
 
-美工：跟着北美教练（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-4.png)
+美工：Bobby（文俊）（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-3.png)
 *发布：Theodosia*
 
  

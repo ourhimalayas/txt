@@ -2,76 +2,63 @@
 ---
 
 
-## 以色列开展第四针疫苗以来 近28天感染率火箭式飙升
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1955311/)
+## 数据显示，新冠疫苗接种率高的国家死亡率飙升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955348/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+#### **【雅典娜观察】和您一起洞察世界**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+整理报道：不要代表我Kari
+编辑：文泓
 
-COVID-19病毒来自于中国科学院武汉病毒研究所，不同于来源于自然的病毒，注射实验性的疫苗，不但不能预防感染，反而会带来严重的副作用！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/10-1.png)图片来源：The Kycker
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c5bbe3ac-a8ec-4716-a6fa-c30fc6579a79.jpeg)
 
-就在12天前，以色列特拉维夫Sourasky医疗中心公布了对6,863名在2021年8月至2021年12月期间接种了第三剂辉瑞冠状病毒疫苗且之前未感染过新冠病毒的医务人员的“真实”研究数据，其中包括截至2022年1月3日接种了第四针的1,316名医务人员。在此期间，有608人的COVID-19检测结果呈阳性，但其中只有42人在接种第四针疫苗7天或更长时间后被诊断出感染了病毒。通过使用回归模型对数据进行分析，该医院得出结论：“在接种第四针疫苗后7天，感染病毒的风险降低了两倍。”
+当地时间2月2日，据自然新闻报道，几乎所有“新冠疫苗”接种率高的国家，死亡人数也在不断激增，前辉瑞公司副总裁迈克尔·耶顿博士再次就他所看到的这一现象发表意见。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-01-20-at-20.14.11-768x446-1.jpeg)
+在最近的一次采访中，耶顿谈到了苏格兰，是在大量接种疫苗的情况下死亡人数飙升的国家和地区之一。他还谈到了德国、以色列、西班牙、意大利、法国、英国，当然还有美国，这些国家都有类似的趋势。
 
-以色列卫生部于12月下旬批准为免疫力差的人进行第四针注射，不久之后决定将其扩大到包括60岁以上的老人和医务人员。到目前为止，已有超过50万以色列公民注射了第四针。
+“在这些国家都看到了全因死亡率显着上升，”耶顿告诉记者：“这是为什么？与往年相比，他们在2021年发生了什么？”
 
-1月4日，以色列总理Naftal Bennett很高兴的宣布，初步研究表明，在接种第四针疫苗后的一周内，血液中的抗体数量比只接种三针的人增加了近五倍，（接种第四针疫苗）会提供比没有注射四针的人更高水平的保护——对预防感染和重症发病率的高水平保护，接种第四针疫苗一定是安全的，第四针疫苗很可能会起作用，自以色列开始接种第四针疫苗以来的两天内，已有超过 100,000 名以色列人登记接种或已经接种了疫苗。
+【备注：全因死亡率是指一定时期内各种原因导致的总死亡人数与该人群人口数之比。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_20-43-16-1.png)
+耶顿进一步指出，**与2020年相比，2021年的全因死亡率不仅上升，而且打破了五年的平均水平。是什么发生了改变？那就是数以亿计的人卷起袖子进行刺突蛋白疫苗注射——这就是原因所在。**
 
-截止到美东时间2022年2月4日上午5时20分，人口仅992.1万的以色列总共注射了17,879,314针COVID-19病毒疫苗，平均每人注射1.8针，目前，以色列一针、两针和三针或加强针的接种率为72.02%、65.61%及54.8%。
+苏格兰公共卫生部（PHS）10月14日的新冠每日疫情数据显示，**尽管现在有87%的成年人被认为是“接种了疫苗”，但每周的死亡人数却比正常情况下高出30%，**结果显示令人震惊。
 
-如果以色列总理Naftal Bennett和Sourasky医疗中心的“真实”研究数据确实可信，目前以色列应当对COVID-19控制得非常好！
+报告阐明：“这标志着连续第20周死亡人数超过五年平均水平，也是自2021年1月10日的一周以来的最高水平。”
 
-然而，在最近28天内，以色列总共有1,647,364人确诊，979人死亡！以色列所有确诊COVID-19感染者中，有53.21%是在最近28天内感染的！
+在欧洲人口最多的国家德国，据政府人口学家称，2021年9月期间有近78,000人死亡，这比预期数字高出10%以上。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Israel-total-cases.jpg)
+丹麦、芬兰和挪威都出现了类似的死亡高峰，已上比疫情期间的任何其他时间都要高得多。
 
-目前，以色列这个人口不足千万的国家，感染率达到31.2%。如果照这个趋势下去，以色列人恐怕在未来不到两个月内，绝大多数人都会被感染！
+“连续五个月，2021年已经打破了十年来因各种原因死亡的记录”，丹麦的一份报告阐述：“而同期，新冠的死亡人数接近于零。”
 
-疫苗是否可以减少重症或死亡呢？
+然后，我们看到在英格兰，特别是在年轻的疫苗接种人群中，死亡人数出现了大规模飙升。报告显示，年龄较大的接种者情况较好，而年龄较小的接种者则“首当其冲受到了疫苗伤害”。
 
-下图是以色列与美国、意大利、法国、加拿大、墨西哥、英国、南非、德国和印度COVID-19确诊后的7天移动平均死亡率对比。
+“根据世界卫生组织的不良事件数据库VigiAccess.com，在迄今为止报告的240多万起疫苗伤害中，41%是44岁以下的人，只有6%是75岁以上的人。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/coronavirus-data-explorer.png)
+在美国，**美国疾病控制和预防中心（CDC）承认，尽管该国80%以上的人据称已经“完全接种疫苗”，但佛罗里达州65岁及以上人口的死亡人数比前一年同期高出14%。**
 
-以色列确诊后的死亡率最高！
+乔尔·斯莫利在推特上写道：“尽管在65岁以下人群中至少有50%已全面接种了疫苗，但死亡人数仍增加了46%，并且随着报告（数据）的跟进，死亡人数还会上升。”
 
-以色列在2月2日达到了死亡最高点，单日死亡226人。
+**这里必须强调的是，他们不是死于“新冠”，而主要死于心脏病发作、中风、血栓、循环系统疾病和神经系统问题——所有疫苗引起的疾病**，**自从接种新冠疫苗以来，医生和科学家就一直警告是疫苗引起这些的伤害。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Israel-New-Deaths.jpg)
+“简单地说，疫苗正在增加死亡，而不是减少死亡”，《每日曝光》报道：“它们正在使事情变得更糟，而不是更好。它们正在使危机持续下去，而不是结束它。”
 
-目前，全世界有希腊、智利、巴西和以色列批准为其公民提供第四剂疫苗。但世界卫生组织已公开反对注射第四针疫苗，本月早些时候，世卫组织首席科学家Soumya Swaminathan博士表示，基于原始疫苗成分重复加强剂量的疫苗接种策略不太可能是适当的或可持续的。
+数据图表都显示，在疫苗上市推广后，死亡人数确实急剧上升。而在此之前，死亡率约为平均水平，甚至在某些情况下低于平均水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_20-37-25.png)
+“自7月初以来，有数以千计的死亡不是由冠状病毒引起的，”《每日电讯报》在谈到英国的情况时承认，在英国变暖和阳光充足的时候，死亡人数激增，这是非常反常的。
 
-参考资料：
+新闻链接：[Excess deaths soaring in every country where covid “vaccine” uptake is high: data – NaturalNews.com](https://www.naturalnews.com/2022-02-02-excess-deaths-soaring-countries-covid-vaccine-high.html)
 
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+***发布：**tianzhihuan*
 
-[Daily new confirmed COVID-19 deaths per million people](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2021-05-27..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_vaccinations_per_hundred&amp;Metric=Confirmed+deaths&amp;Interval=7-day+rolling+average&amp;Relative+to+Population=true&amp;Color+by+test+positivity=false&amp;country=IND~USA~GBR~CAN~DEU~FRA~ZAF~ITA~ISR~MEX)
-
-[Soumya Swaminathan](https://twitter.com/doctorsoumya/status/1483551018222825475?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1483551018222825475%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhealthpolicy-watch.news%2Frisk-of-catching-omicron-twice-as-low-after-fourth-dose-new-israeli-study-says%2F)
-
-[Israel 86% of peak and rising 5,445 infections per 100K people reported last 7 days](https://graphics.reuters.com/world-coronavirus-tracker-and-maps/countries-and-territories/israel/)
-
-[Pfizer, BioNTech to test omicron-specific vaccine on adults](https://thehill.com/policy/healthcare/591169-pfizer-biontech-to-test-omicron-specific-vaccine-on-adults?rl=1)
-
-[Excerpt from Prime Minister Bennett’s Remarks at Sheba Medical Center](https://www.youtube.com/watch?v=pRcH-QhgbR4)
-
-[Health-Worker Risks of Catching Omicron Half as Likely after Fourth Dose – Second Israeli Study Challenges Earlier Results](https://healthpolicy-watch.news/risk-of-catching-omicron-twice-as-low-after-fourth-dose-new-israeli-study-says/)
-
-[Israel Finds Fourth COVID Booster is only ‘Partially Effective,’ Vast Majority of Hospitalised Omicron Patients Are Unvaccinated](https://healthpolicy-watch.news/israel-fourth-covid-booster-ineffective/)
-
-[Expert panel in Israel recommends fourth vaccine dose for adults](https://news.yahoo.com/expert-panel-israel-recommends-fourth-132725941.html)
-
-[Israel Finds Fourth Pfizer Dose Produces Five-fold Increase in Antibodies, as Country Prepares to Launch Moderna Fourth Shot Trial](Israel%20Finds%20Fourth%20Pfizer%20Dose%20Produces%20Five-fold%20Increase%20in%20Antibodies,%20as%20Country%20Prepares%20to%20Launch%20Moderna%20Fourth%20Shot%20Trial)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

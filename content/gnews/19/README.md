@@ -2,20 +2,41 @@
 ---
 
 
-## 秘翻在线 : 社交媒体巨头Facebook 遭遇历史上最大的股价暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955310/)
+## 有声|美国联邦债务首次超过30万亿
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955320/)
 
-**撰稿：William**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+依据美财政部数据，国家债务在周二超过30万亿，是建国以来首次, 膨胀的债务大多归咎于Covid-19爆发后，激增的经济救助花销，从19年底至今，国债增长了约7万亿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-3.jpg)图片来源: 网络
+财政部数据在高通胀和供需不平衡的经济背景下发布, 联储预计从三月开始进行一系列的利率上调举动，这将会显著增加政府借债融资成本。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-212511.jpg)图片来源：[www.dailymail.co.uk](https://www.dailymail.co.uk/)
-根据美国CNBC 新闻的报导, Facebook 母公司 Meta 的股价周四暴跌，此前该公司预测下一季度的收入增长低于预期。该公司将隐私变化归咎于苹果 iOS 的隐私变化以及影响广告商预算的宏观经济挑战。在 Facebook 暴跌后，其他社交媒体股票周四也一起下跌。
+由于新冠病毒，在过去的两年财政和货币刺激导致严重超发，以至于现有80%的流通美金是在之前22个月印刷的。
 
-Facebook 母公司 Meta 的股价本周四收盘下跌超过 26%，并显示出有记录以来每日活跃用户数量首次出现季度下降。在 2018 年 7 月暴跌 19% 之后，该股创下了有史以来最大的单日跌幅。周四的跌幅使其市值缩水超过 2300 亿美元，目前市值约 6600 亿美元。Refinitiv 的数据显示，该公司首次使用新的报告结构以新名称发布了收益，该公司第四季度的收益预期为 3.67 美元，而分析师的预期为 3.84 美元。但该季度的收入超过了 336.7 亿美元，而估计为 334 亿美元。
+联储主席 Jerome Powell上周表示将开始缩表，这将是2015年后首次利率提升。
 
-继Facebook 股价暴跌后，Snap 的股价在收盘后发布财报之前下跌了 23% 以上。 Pinterest 股价下跌超过 10%，Twitter 股价下跌超过 5%。
+本届政府开启了前所未有的联邦支出，债务与GDP比值达到了130.65%，即债务超过经济产出。
 
-**新闻来源**：[https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html](https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html)
+联邦政府有8万亿国债被外国持有，其中最大债权人是中共当局和日本政府，分别为1.05和1.3万亿美金。
+
+文字版原文：[美国联邦债务首次超过30万亿](https://gnews.org/zh-hans/1952935/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

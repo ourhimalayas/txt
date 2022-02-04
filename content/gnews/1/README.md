@@ -2,51 +2,24 @@
 ---
 
 
-## 北京冬奥开幕在即,日本代表团一选手确诊
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1955765/)
+## 北京冬奥会出大事：普京团队染毒，安保特警暴毙！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1955879/)
 
-作者：纽约香草山教育部—Naughty(文行)
+撰稿：东京樱花团/神的带领
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/北京冬奥会出大事：普京团队染毒，安保特警暴毙！.png)
 
+2月4日，郭文贵先生在大直播爆料，今天北京冬奥会出了两件大事。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+郭文贵先生透露，盘古的七星酒店，到处是特警。有一特警是狙击手领头的，打疫苗太多了，死在盘古旁边，现场一面慌乱。这在中国叫做祭旗。
 
+第二件事情是与俄罗斯普京相关。郭文贵先生透露，普京到北京住在华尔道夫酒店，该酒店距离天安门和故宫很近。普京安保团队16人染上中共病毒，并有三人死亡，非同寻常，普京大怒，抱怨中方连基本的保证都不能提供。据说党内有很多人高兴，这些事情传遍了。
 
+2月4日是北京冬奥会正式开幕之日，两件大事发生给中共北京冬奥会抹上了灾难和恐怖的色彩，简直就是天意，预示着冬奥会变冬眠会的结局。
 
-北京冬季奥运将于4日开幕，在中共病毒疫情阴影下，当局采取高规格防疫措施。尽管这样，但还是有参赛运动员确诊。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_3653.jpg)
-日本奥林匹克运动委员会2月2日表示，参加北京冬季奥运的日本代表团中一名滑雪选手在北京接受PCR检测并确诊。这是参加北京冬奥的日本代表团首度有选手确诊。在去年夏天东京奥运时，日本选手无人确诊。
-
-日本朝日新闻报导，日本奥委会表示，这名滑雪选手在赴北京前在日本接受核酸检测结果呈阴性，但昨天在中共国境内接受PCR检查的结果却呈阳性。目前这名选手正在隔离。 这名日本选手是否能出赛，将由国际奥林匹克委员会或北京冬季奥运组织委员会决定。
-
-参考来源：
-
-[First Japanese athlete tests positive for COVID-19 in Beijing](https://www.japantimes.co.jp/news/2022/02/02/national/japan-beijing-first-covid/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-9.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-18.jpg)
-
-
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
