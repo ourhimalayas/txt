@@ -2,16 +2,28 @@
 ---
 
 
-## 有声|美台共同商议双边贸易协定
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1957099/)
+## 有声|年 想念
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1957129/)
 
 配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月30日，据台湾媒体消息显示，台湾副总统赖清德在与多名美国政要召开的视频会议中提出了签署双边贸易协定的议程，而美台商业协会主席、纳斯达克董事长麦克-斯普林特则回应表示大力支持。
 
-报道提及，赖清德此次与美国政要一共进行了多场视频会晤，与会人员包括斯坦福大学医学院副院长梅尔多娜多和联邦参议员达克沃斯等。
 
-原文链接：[美台共同商议双边贸易协定](https://gnews.org/zh-hans/1951087/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+
+
+
+想念祥静的归乡
+想念纯净的故土
+想念简单的人情
+想念质朴的笑容
+
+想念意象的文字
+想念精美的瓷艺
+想念轰鸣的鞭炮
+想念浓郁的年味
+
+原文链接：[年 想念](https://gnews.org/zh-hans/1951777/)
 
 音频处理/发稿：Daxia
 
@@ -30,6 +42,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 
