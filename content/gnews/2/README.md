@@ -2,15 +2,16 @@
 ---
 
 
-## 人类只要存在达沃斯党人类就没有一天安全
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/1953845/)
+## 秘翻在线：日本就人阿布-易卜拉欣-哈希米的死亡表态
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953880/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/930434A1-F131-4453-9C10-2A333E506CD7.jpeg)![](https://gnews.org/488bcc71-880b-42e8-a939-3f7d745bdf91)![](https://assets.gnews.org/wp-content/uploads/2022/02/F7B7184E-9572-442B-B4B8-5BB6F02CC8D8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8D35F302-5B0E-4931-9E96-5BB617F902FF.jpeg)
-来源：文贵先生大直播2022/01/19
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-6.png)（图片源自本文链接）
+2月4日时事通信社报道：日本内阁官房长官松野博一在4日的新闻发布会上说：美国政府宣布伊斯兰国（IS）极端组织最高领导人阿布-易卜拉欣-哈希米死亡，意味着在前领导人巴格达迪被杀后，朝着中东地区的和平与稳定迈出的重要一步。我们赞扬这是国际反极端主义斗争的成就之一。
 
-图文设计：新西兰农场进设计组
+松野还说：打击极端主义的斗争还没有结束，需要继续努力。我们将继续与国际社会合作防止IS的死灰复燃，以及极端主义的国际扩散。
 
-上传：天赐良闻
+信息源：[IS指導者死亡「重要な一歩」　日本政府（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/cca6ebc516772229cccd14883d13784dfa09aa85)
 
  
 

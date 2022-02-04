@@ -2,22 +2,31 @@
 ---
 
 
-## 第一批被列入GTV、Gnews、GETTR永久公布名单的成员或已确定
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1953781/)
+## 联合国拒绝在冬奥会前公布新疆人权报告
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1953802/)
 
-撰稿：东京樱花团/待命（文晓）
+![资料照：联合国人权事务高级专员巴切莱特](https://gdb.voanews.com/A9C1608D-0CCE-4EE9-884B-5CDA0A528F9D_cx0_cy9_cw98_w1023_r1_s.jpg)资料照：联合国人权事务高级专员巴切莱特
+据美国之音2月4日报道，北京冬奥会即将开幕，联合国人权高专办（OHCHR）拒绝在冬奥会开幕前公布一份已经耗费3年时间准备的有关新疆的人权报告，此举被联合国人权高专办前雇员艾玛·莱莉称为与中共国政府“唱双簧”。莱莉曾经作为“吹哨人”揭露联合国人权高专办向中共国政府提供到联合国人权理事会活动的中共国异议人士名单丑闻而遭联合国开除。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/第一批被列入GTV、Gnews、GETTR永久公布名单的成员或已确定.png)（图片源自本文链接）
+人权团体指责中共当局在新疆严重侵犯维吾尔族以及其他少数民族的人权，包括大规模绝育计划以及强迫劳动。美国政府及其盟友指责北京当局犯下“种族灭绝”和“反人类”罪，宣布外交抵制北京冬奥会。联合国人权事务高级专员巴切莱特希望访问新疆，据说中共政府已经同意北京冬奥会结束后接待巴切莱特访问新疆，但是“友好”性质的访问，而不是有罪推断的调查。
 
-1月4日读卖新闻报道：中共国外交部发布消息称：包括俄罗斯总统普京和巴基斯坦总理伊姆兰-汗在内的25个国家的领导人，以及联合国秘书长安东尼奥-古特雷斯和世界卫生组织总干事谭德赛将出席开幕式。
+西方强调人权，但是全球人权危机一直层出不穷。即使对于联合国，捍卫人权也越来越变成一句口号。新疆的种族灭绝最早由新中国联邦的郭文贵先生向西方揭露了这一切，但是中共国居然在2021年当选为联合国人权理事会成员。犯有种族灭绝和反人类罪的中共黑帮组织摇身一变成了捍卫人权的斗士，真是滑天下之大稽。联合国是不是要给中共国颁发提供素材奖呢？以表彰中共国的人权危机让联合国不至于无所事事，可以时不时的出来走两步，为人权喊两声？
 
-爆料革命发起人郭文贵先生此前曾通过GTV直播表示，将在GTV、Gnews、GETTR上永久公布参加北京冬奥会人员名单。因此，上述人员将很可能成为第一批被列入种族大屠杀之北京冬奥会参加者名单里。
+新闻参考链接：[https://www.voachinese.com/a/un-and-china-accused-of-fabricating-mutually-convenient-stalemate-over-xinjiang-human-rights-20220203/6425277.html](https://www.voachinese.com/a/un-and-china-accused-of-fabricating-mutually-convenient-stalemate-over-xinjiang-human-rights-20220203/6425277.html)
 
-消息来源：[「五輪史上見たことがないものに」…聖火リレー最終走者や点火方法に注目 (msn.com)](https://www.msn.com/ja-jp/sports/news/%E4%BA%94%E8%BC%AA%E5%8F%B2%E4%B8%8A%E8%A6%8B%E3%81%9F%E3%81%93%E3%81%A8%E3%81%8C%E3%81%AA%E3%81%84%E3%82%82%E3%81%AE%E3%81%AB-%E8%81%96%E7%81%AB%E3%83%AA%E3%83%AC%E3%83%BC%E6%9C%80%E7%B5%82%E8%B5%B0%E8%80%85%E3%82%84%E7%82%B9%E7%81%AB%E6%96%B9%E6%B3%95%E3%81%AB%E6%B3%A8%E7%9B%AE/ar-AATs22e?ocid=msedgntp)
+编辑：胖丁
 
-*校对：东京樱花团/喜马拉雅
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

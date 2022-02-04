@@ -2,25 +2,26 @@
 ---
 
 
-## 直播对国内巨大的影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953862/)
+## 佩洛西警告美国运动员奥运期间不要激怒中共政府
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953884/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 撰稿：彩虹
 
-中共看到我们在这边创造世界的奇迹，共产党也在创造世界奇迹啊。就是病毒疫苗啊，经济贫困啊。内部打压对世界威胁，大家看到刚才那个数据里边， 因为我没有仔细看，中间我接个电话啊，很多人就说现在咱这儿直播影响太大，都在打电话，这个别说呀，那个建议呀，建议很多啊，很多很多，然后呢，特别是我们海东兄弟钊颖妹妹来说，嗯，海东兄弟，我说的没有一句是假的啊。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.jpg)图片来源：纽约邮报
+2月3日，《国会山报》引述《路透社》报道，周四，众议院议长南希·佩洛西（Nancy Pelosi）警告参加北京冬奥会的美国运动员，不要冒险激怒“残酷无情”的中共政府
 
-我说人名，体育界都害怕，还有音乐界也害怕，说很多人都跟海东兄都认识。 跟我说哎，你能不能别让郝海东说我们呢？害怕啊。现在就怕郝海东点炮啊，特别害怕啊。怕七哥说到名字说大直播这个现在这个力量它形成了， 这是为什么共产党穷凶极恶吧，对吧，他已经害怕了嘛，他知道这点到痛处了，否则他不会这么疯狂的行动的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/直播对国内巨大的影响-.jpg)
-2021年12月10日文贵大直播
+在美国国会及行政当局中国委员会 (Congressional-Executive Commission on China)的听证会上，佩洛西说，美国有“紧迫的道德责任来照亮” 中共的人权侵犯行为，包括对新疆维吾尔少数民族的侵犯行为。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+她说：“现在，国际奥委会在企业赞助商的帮助下，再次对2022年冬奥会视而不见，只是为了给中共涂脂抹粉。如果我们因为商业利益而不对中共的侵犯人权行为发表意见，我们就会失去对任何地方的侵犯人权行为发表意见的所有道德权威。”
+
+但是，佩洛西敦促运动员们专注于比赛，而不是（对中共侵犯人权行为）发表意见。她说：“不要冒险招致中（共）国政府的愤怒，因为他们是残酷无情的。”
+
+另据路透社报道，周一，立法者们告诉美国奥运官员，如果美国运动员选择公开反对中共国的侵犯人权行为，他们要准备保护美国运动员免遭中共国的报复。
+
+**新闻来源**
+
+[Pelosi warns US athletes against angering ‘ruthless’ Chinese government during Olympics](https://thehill.com/homenews/house/592768-pelosi-warns-us-athletes-against-angering-ruthless-chinese-government-during)
 
  
 
