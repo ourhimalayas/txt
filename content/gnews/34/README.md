@@ -2,26 +2,38 @@
 ---
 
 
-## 德国总理未规划出席北京冬奥会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1952642/)
+## 瑞典取消所有新冠限制
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1953177/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+**编译: 真北007**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-248.png)图片来源：[CAMILLE GIJS & CHARLIE DUXBURY/POLITIC](https://www.politico.eu/article/sweden-lifts-coronavirus-restrictions-madgalena-andersson-omicron-endemic/)
+来自POLITICO二月三日的新闻报道：
 
-2月2日，距离北京冬奥会开幕只剩2天时间，德国总理奥拉夫·肖尔茨（Olaf Scholz）表示，他没有出席北京冬奥会的计划，但未说明原因。
+瑞典政府周四宣布，瑞典将于 2 月 9 日开始取消所有冠状病毒限制。 此举是继英国、丹麦和挪威等其它欧洲国家降低了 COVID-19 的威胁等级之后，做出的类似的决定。
 
-据《中央社》报道，肖尔茨在接受《德国第二电视台》（ZDF）访问时，记者询问他是否会出席北京冬奥。萧兹回答：“我没有旅行计划，所以不能假设我会突然露面。”他没有说明为何未安排这趟行程。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-13.png)（图片来自网络）
-据了解，因中共一再侵害人权，美国、加拿大、英国、澳洲等国相继宣布对北京冬奥采取外交抵制。
+瑞典首相马格达莱娜·安德森在新闻发布会上表示，由于对 Omicron 变种更好的了解和良好的疫苗接种率，该国可以取消所有措施。
 
-在欧洲，丹麦和荷兰也加入外交抵制行列，但德国迄今立场不明。去年12月，德国外交部长贝尔伯克（Annalena Baerbock）和内政部长费瑟（Nancy Faeser）表示，她们个人决定不出席北京冬奥，但不代表政府正式立场。
+“现在是开放瑞典的时候了”，安德森说，“大流行尚未结束，但它正在进入一个新阶段”。
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202202030027.aspx](https://www.cna.com.tw/news/aopl/202202030027.aspx)
+瑞典公共卫生署表示，在丹麦采取类似决定将这种病毒更像一种地方病对待的几天后，它已重新评估，认为COVID-19 不会再构成社会危机。
 
-素材采编：幽蘭自得
-编辑：文顺
-发布：文曦
+这一消息发布之际，尽管 73.9% 的人口已完全接种疫苗，但瑞典的感染率仍然很高。
 
+瑞典政府在取消与冠状病毒相关的限制措施的同时，表示将保留一些建议。政府表示，未接种疫苗的瑞典人仍应避免去拥挤的地方，任何出现 COVID-19 症状的人都应待在家里。
+
+**原文链接：**
+
+[POLITICO: Sweden to lift all coronavirus restrictions.](https://www.politico.eu/article/sweden-lifts-coronavirus-restrictions-madgalena-andersson-omicron-endemic/)
+
+**编辑：LILY**
+
+**发布：MQ**
+
+20220203
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

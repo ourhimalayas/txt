@@ -2,33 +2,37 @@
 ---
 
 
-## 2.02大直播后记：新中国联邦春晚反响巨大
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1953462/)
+## 蓬佩奥再谈病毒起源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1953516/)
 
-整理：雅典娜速记组
-编辑：文泓
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，美国前国务卿蓬佩奥接受福克斯电视台采访，再次提及病毒来自中共武汉病毒研究所实验室。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.png)图片来源：墨尔本雅典娜农场设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-3.png)
+
+在节目中，主持人回顾了有科学家很早就提出病毒来自实验室的质疑，但被福奇和柯林斯要求统一思想，并统一改口为病毒起源于自然。而现在越来越多的人开始明白病毒来自实验室。对此蓬佩奥表示，只要是在2020年春天看到了那些数据的人，都会得出病毒一定来自中共武毒所的结论。但时至今日中共武毒所还在运转，美国人依旧面临着相似的威胁。
+
+蓬佩奥还指出，福奇、柯林斯等美国政府医疗与公共卫生权威人士，明知道病毒会造成危害，却不告诉当时的美国政府，这是让人难以置信的事实。
+
+参考链接：
+
+- [20220201蓬佩奧國務卿接受FOX採訪](https://www.gettr.com/post/ps4ijrfc55)
 
 
-今天我可以告诉大家，本来这次直播，（他们）一直告诉我说，在国内5800万次看，我说，这也正常，没多少人、没多大影响嘛！但是，我没想到是，昨晚我睡觉前，他们说国内已经超过2.5亿次看，而且重复看，让我非常非常惊讶啊。今年真的是突破了最重要的事情。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-这次50%-60%都是重看，最爱看的节目是七哥唱的《一帘幽梦》、邓丽君的那个视频和《塞北的雪》。这个歌声的力量是多大啊！我们的3首歌，《甜蜜蜜》这下在国内火了，响遍大江南北。啥叫甜蜜蜜运动啊？音乐的力量是永恒的，不会被忘记的，甚至就永远在心里边，不自觉就哼哼。**这就是咱们新中国联邦晚会，用真实的力量战胜中央电视台这种邪恶的洗脑、完全颠倒黑白的所谓的思想统一行为。它这统一的结果，就让大家彻底忘掉自己。**
+总编: 文特
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-我们今天用音乐，用真实用行动唤醒了他们。共产党真的是完了，是吧？日本议会出台中国人权状况决议、各国抵制冬奥，中国足球又输了是吧？而新中国联邦喜币上市了。这最夸张的事情发生在美国，没有一个战友真正说出这4个字含义——“外交撤离！”这是七哥第一个说的。在七哥说之前，人类上是没有的，就是你不参与外交，你不懂，是我说的“外交撤离”。他可没有说外交调整，也没说外交事件。
-
-外交撤离在美国历史上只用过两次，美国打伊拉克和南斯拉夫，“授权撤离”，就是在这两个地方。你说这共产党被震撼到什么程度啊？你看看周围这些，所有的小国家全在动乱，没有不动乱的地方，连非洲都动乱。打我从小就念叨什么老挝、古巴、坦桑尼亚那些来访问看毛泽东的，毛泽东死也来哭的那些国家也乱了。更夸张的事情，共产党做梦也没有想到，H-PAY昨天大年初一上线了。兄弟姐妹们，你们真的不知道，就像你们今天谈春晚的时候，谈不出这个一样。
-
-资料来源：郭先生GTV、盖特直播
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

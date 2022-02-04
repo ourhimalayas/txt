@@ -2,30 +2,56 @@
 ---
 
 
-## 扬帆每日速递2022年2月3日版（2）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1953051/)
+## 乔治·索罗斯批评习近平的治国理念
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1953327/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
-1、中共国央行发行的数字货币(CBDC)，即e-CNY，即将在周五开幕的北京冬奥会上粉墨登场，并作为官方支付方式。e-CNY是以数字资产形式存在的法定货币人民币的克隆并由政府完全控制，与已被中共禁止的去中心化加密货币并不是一回事。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-2.jpg)
+[https://gtv.org/video/id=61fbef42d90bdd2085a479a3](https://gtv.org/video/id=61fbef42d90bdd2085a479a3)
 
-2、英国央行英格兰银行提高了关键利率25个基点，以遏制三十年来最快的通胀。甚至有接近一半的货币政策委员会决策者出人意料地赞成提高50个基点以应对快速上涨的物价。
+**George Soros**
+**乔治·索罗斯**
 
-3、据文贵大直播：Hpay的上线战友们要做以下三件事：第一，时刻宣传Hpay、使用Hpay；第二，想尽一切办法合法推广喜币、增加喜支付的使用，是全球农场第一任务；第三，要认真研究、自己独创Hpay的各种使用领域和方法。
+Xi Jinping has done his best to dismantle Deng Xiaoping’s achievements
+习近平竭尽全力摧毁邓小平的功绩
 
-4、据文贵大直播：英国和美国将是喜币和喜支付最大市场之一。他们会最早挑战我们，也会最早没有任何选择地接受我们。
+He brought private companies established under Deng under the control of the CCP
+他将在邓小平时期创建的民营企业置于中共的控制之下
 
-5、拥有400万微博粉丝的上海华山医院感染科主任张文宏2月1日发表微博文章称，最坏日子要慢慢过去，如果要以极低病死率渡过这次疫情，需要时间可能会稍长一些。
+and undermined the dynamism that used to characterize them
+并破坏了过去使其具有活力的机制
 
-6、now新闻台1月3日报道，港府对多区的污水进行检测，结果新冠病毒呈阳性。有专家指本地有90条传播链。政府将68个地区纳入强检。评:围区、封楼、禁足己不能滿足政府愿望，用污水阳性来扩大「疫情」。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板3-1_page-0001-1.jpg)
-素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
+rather than letting private enterprise blossom
+而不是让民营企业百花齐放
 
-编辑：文敏
+Xi Jinping introduced his own China dream
+习近平提出了自己的“中国梦”
 
-发布：风起云间（文敏）
+As can be summed up in two words: “total control”
+可以用两个词概括就是：全面控制
 
-海报图片设计：飞天面、 Shuang
+that has had disastrous consequences
+这带来了灾难性的后果
+
+**原视频链接:**[** **https://twitter.com/dcc6s/status/1488520738772602880?s=24](https://twitter.com/dcc6s/status/1488520738772602880?s=24)
+
+Date:02/02/2022
+原视频标题: George Soros Criticizes Xi Jinpig’s the idea of governance
+乔治·索罗斯批评习近平的治国理念
+原视频日期：2022/02/02
+原视频链接: https://twitter.com/dcc6s/status/1488520738772602880?s=24
+任务编号：3651
+视频时间段 : 0:00-0:38
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

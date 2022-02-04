@@ -2,35 +2,86 @@
 ---
 
 
-## 中共国男足再次无缘世界杯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1951940/)
+## 全球疫情更新（疫苗讨论的舆论攻防）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1952470/)
 
-作者：纽约香草山农场 – 文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
+**整理/编辑：枳实**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-144.png)图片：雅典娜农场设计组 精灵蓝
 
-对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
 
-参考链接：
-1）[https://gwins.org/cn/milesguo/21801.html](https://gwins.org/cn/milesguo/21801.html)
-2）[20180627之2 ：一边抽雪茄一边直播（第二段）](https://www.youtube.com/watch?v=C5iihj7zNqM)
+雅典娜疫情更新（2022年 2月3日）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-总编：文特
-编辑：文特
-校正/发稿：谐趣园
+**一，全球疫情基本数据**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+感染总数：384,167,077（日新增3,081,425，14天增幅-1%）
 
+死亡总数：5,697,479（日新增10,143人，14天增幅 +36%）
+
+**二，全球“疫苗”毒针统计数据**
+
+“疫苗”毒针注射总数：101亿
+
+完全“接种”：41.7亿人
+
+完全“接种”百分比：53.4%
+
+**三，澳洲疫情和“疫苗”数据**
+
+感染总数：2,645,825（今日新增37,206人）
+
+死亡总数：3,989人（今日新增 85人）
+
+每万人感染人数：1025.5692人
+
+“疫苗”毒针注射总数：50,449,872（今日新增256,965   针）
+
+完全“接种”： 19,285,421人
+
+第二针“接种”百分比：78.8%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.5%
+
+加强针总数：8,418,676（日新增：226,997针）
+
+**四，疫苗讨论的舆论攻防**
+
+2022 年 2 月 2 日，《每日邮报》发表了一篇文章，歪曲报道乔·罗根 (Joe Rogan)对马龙博士和麦卡洛医生的访谈。今天[马龙博士撰写博客文章](https://rwmalonemd.substack.com/p/the-truth-about-the-daily-mail-article)，对这篇报道做出了逐条反驳。这篇文章虽然只是为了辩驳和回应《每日邮报》文章，但事实上总结了自然免疫，羟氯喹，伊维菌素的研究，心肌炎心包炎发病率等各方面的论文和文献索引，是非常好的搜寻疫苗真相相关文献的起始点。
+
+这篇文章的开头就引用《每日邮报》文章的话：“1 月 10 日，超过 250 名医生签署了一封致 Spotify 的公开信，题为：《全球科学和医学界呼吁实施错误信息政策》”，指出这些签署者实际上中有只有少数是医生，大多数只是护士、实习生和播客主播。相比之下，揭穿中共病毒疫苗毒针真相的[国际医师和医学科学家联盟（马龙博士担任主席）拥有超过 17,000 名经过验证的医师声明签署人，他们都是医师​​和医学科学家。](https://globalcovidsummit.org/)
+
+文章中的内容非常丰富，还有无数的细节和引证，篇幅所限，就不详细介绍了。对于被“主流媒体”洗脑，对毒疫苗充满信任的，但愿意花时间研究阅读思辨，寻找真相的人们，尤其是孩子们来说，这篇博文相当适合阅读。毕竟，毒疫苗的推行正是以科学之名，而科学有别于宗教之处，不正是科学就是在质疑中步步推进的吗？中共病毒疫苗是有效还是有害，这既然是科学问题而非宗教教义，当然就可以被质疑和讨论，毕竟已经有如此多的医生和科学家宁愿冒着丢掉自己的行医执照和科研经费的风险也要站出来反对毒疫苗了。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
