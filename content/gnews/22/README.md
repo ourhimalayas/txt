@@ -2,8 +2,8 @@
 ---
 
 
-## 呼吁可将伊维菌素作为防疫和治疗的药物
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954247/)
+## 灭共的核心是要有钱、有人和掌握时机
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954309/)
 
 台灣寶島農場
 

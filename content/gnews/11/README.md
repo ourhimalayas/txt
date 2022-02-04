@@ -2,10 +2,16 @@
 ---
 
 
-## 第三剂疫苗政策的争议
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1954402/)
+## 五月花简报（02/03/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1954439/)
 
-台灣寶島農場
+编辑：冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/085FD775-EE5B-4D7B-BB8F-F837D9552424.jpeg)
+
+*发布：思澈*
+
+
 
  
 

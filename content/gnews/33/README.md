@@ -2,30 +2,29 @@
 ---
 
 
-## 希腊年仅21岁的足球运动员在比赛中因心脏骤停死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1953959/)
+## 新疆西藏同胞在纽约抗议北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1954179/)
 
-#### 翻译/撰稿：黃金精神
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-48.jpg)
+日本电视台新闻 2月4日报道：在北京冬季奥运会开幕式前，来自中国西藏自治区和新疆维吾尔自治区的民众在美国纽约举行了反对北京冬奥运会的抗议示威活动。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.jpg)图片来源：youtube
-据每日邮报2月4日报道，一名年仅21岁的希腊足球运动员在一场比赛中因心脏骤停而死亡，当时球场上没有除颤器或救护车。
+抗议人士高呼“没有人权就没有奥运”，“不再有沾满鲜血的奥运会”。
 
-这名球员名叫亚历山德罗斯·兰皮斯（Alexandros Lampis），此前在为希腊第三级别球队伊留波利（Ilioupoli）效力。悲剧发生在比赛开始后的五分钟，兰皮斯在第一市政体育场（the First Municipal Stadium）的比赛中倒下。
+2月3日，来自西藏和维吾尔自治区的约100人聚集在纽约市中心的时代广场，抗议北京冬奥会。
 
-太阳报（The Sun）报道称，该体育场位于希腊首都雅典东南郊内，但救护车20分钟后才到达，而且没有办法在球场上抢救这名球员。
+一位维吾尔族男子说：”中共政府对维吾尔人进行了种族灭绝，犯下了反人类罪。中共国无权举办奥运会。奥运会是一个团结的和平的盛会”。
 
-类似事件仅发生在8个月前，当时克里斯蒂安·埃里克森（Christian Eriksen）在代表丹麦参加2020年欧洲杯时因心脏骤停而倒下，全世界都为之惊恐。
+据悉，在纽约2月5日将在播放北京冬奥会的电视台前，再次举行抗议活动。
 
-在那次事件中，丹麦队队医莫滕·博森（Morten Boesen）证实，这位29岁的球员在球场上出现了心脏骤停，通过心肺复苏和除颤器的电击才抢救过来。
+都站出来吧，勇敢的爱好和平的人们！大家一起抵制北京冬奥会。中共这个残暴的毫无人性的独裁政权，没有任何理由再存在于这个世界，让中共的冬奥会开成他们的治丧会吧。Take down the CCP！
 
-埃里克森的生命得到了挽救，他现在将在布伦特福德队重返顶级联赛。在将除颤器植入他的身体后，这位丹麦中场已被允许重返职业足球，这有助于调节他的心率。
+信息来源：[ウイグル人ら、北京五輪開催に抗議 米NY](https://news.ntv.co.jp/category/international/2db5886be9f9473ea9a5bd59e12e48f2)
 
-自从埃里克森倒下后，足球界被一系列著名球员意外事件所震撼。塞尔吉奥·阿圭罗（Sergio Aguero）在为巴塞罗那踢球时出现胸痛，被迫退役，而维克多·林德洛夫（Victor Lindelof）和皮埃尔·埃梅里克·奥巴梅扬（Pierre-Emerick Aubameyang）也受到了惊吓。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-本赛季，28岁的维冈前锋查理·怀克（Charlie Wyke）在训练中倒地。30岁的谢菲尔德联队的约翰·弗莱克（John Fleck）在雷丁的比赛中晕倒在球场上。25岁的阿达马·特拉奥雷（Adama Traore）在代表舍里夫（Sheriff Tiraspol）对阵皇家马德里的欧冠比赛中抱着胸倒下。28岁的冰岛中场球员埃米尔·帕尔森（Emil Palsson）在10月发生心脏骤停后也需要进行心肺复苏。
-
-**新闻来源：**[**Greek footballer aged just 21 DIES after suffering a cardiac arrest on the pitch at a stadium where there was NO defibrillator and the ambulance took 20 minutes to arrive**](https://www.dailymail.co.uk/sport/sportsnews/article-10471803/Footballer-suffers-cardiac-arrest-pitch-dies-stadium-no-defibrillator.html)
 
  
 
