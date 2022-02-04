@@ -2,58 +2,28 @@
 ---
 
 
-## 共产党为什么被称做否定历史主义者-朝鲜战争
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1956093/)
+## 以色列前车之鉴：新冠疫苗做了什么？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1956107/)
 
-作者：纽约香草山农场教育部-马克文、爱丽丝
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-50.jpg)
+图片来源： ourworldindata.org
 
+据“网关专家”（Gateway Pundit）网2月3日报道，以色列专家组十天前建议民众再接种第4剂新冠疫苗，以进一步预防重症和死亡……但，让我们再看看统计数据在说什么？
 
+**新冠疫苗“预防死亡”？**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
+根据《路透社》的数据，以色列全国至今已经接种了至少 17,879,314 剂新冠疫苗，如果每人接种2针，这足以覆盖该国约 98.7% 的人口，效果怎样呢？牛津大学的”用数据看世界”（Our World in Data）的研究网站显示，以色列现在是世界上新冠死亡率（每百万人口）最高的国家。
 
+**新冠疫苗“预防重症”？**
 
+《以色列国家新闻》（Israel National News, Arutz Sheva）2月3日报道，“伊奇洛夫医院”（Ichilov hospital）新冠病房主任、杰里斯教授（Yaakov Jerris）透露，目前的新冠重症患者中70%~80%完全接种了疫苗，大多数至少打了三针，他认为新冠疫苗对预防重症没有效果！
 
+**新闻来源：**
 
+1. [Country with One of the Highest Vaccination Rates Has Highest Number of COVID Deaths Per Million People This Week –80% of Serious Cases are Fully Vaccinated](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
 
-中国共产党的历史应该被称为伪历史。共产党自建国以来就开始对真实历史做全面的修改伪造，尤其是对于中共自己的不光彩历史，更是极力掩盖、极力美化。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1_.jpg)
-共产党对抗日战争（1931-1945年），朝鲜战争（1950-1953年），三年大饥荒（1959-1961年），文化大革命（1966-1976年），六四事件（1989年4月15日-6月4日）等重大历史事件中所发生的事实做了全面伪造。共产党利用独裁统治掌控媒体、并通过各种媒体大肆宣传。中共将伪造的历史写入书籍，编入学生教科书中，对中国大陆老百姓进行洗脑教育，在思想上实行愚民政策，导致普通老百姓以为在大陆看到中共宣传的历史就是中共国的近代史。
-
-朝鲜战争本来的面目是：1950年6月25日，朝鲜得到苏联默许，不宣而战进攻韩国，很快朝鲜人民军将韩军驱至釜山一隅，攻占了韩国90%的土地。7月7日联合国安理会通过第84号决议，派遣联合国军支援韩国抵御朝鲜的进攻。9月15日，以美军为主的联合国军（美国、英国、法国、加拿大、澳大利亚、新西兰、荷兰、比利时、卢森堡、希腊、土耳其、哥伦比亚、泰国、菲律宾、南非、埃塞俄比亚）在仁川登陆，开始大规模反攻，金日成的部队瞬间溃败，毫无招架之力。1950年10月19日CCP军队在前苏联同意下以志愿军的名义进入北朝鲜作战，最终联军与志愿军双方在板门店经过谈判，1953年7月27日上午10時签字停战。
-
-然而中共却利用其独裁政权控制的宣传工具，把中共这场朝鲜战争的角色说成是“抗美援朝” “保家卫国”蒙骗中国老百姓。1951年2月1日，联合国大会（44票赞成、7票反对和9票弃权）通过了一项，名为“中华人民共和国中央人民政府干涉朝鲜”提案，实际上入朝的外国的军队中中共志愿军被定义是唯一侵略者。之后联合国对中共国和北朝鲜实施了20多年经济贸易制裁，这导致中共国老百姓的生活更加艰难，只能靠苏联支持维持。
-
-中共战后几十年一直对百姓隐瞒志愿军伤亡数字，只是通过电影、报纸、广播等大力宣传所谓几位战争英雄。在很长一段时期内，大陆百姓一直以为中共志愿军在朝鲜战场几乎没有伤亡。到了2010年10月26日，中共自己承认朝鲜战争期间志愿军战士阵亡共183,108人。中共选择入朝作战志愿军军队中，派出多数都是国民党投降部队，中共借战争机会消灭未来很可能出现的异己。战争结束后，被俘虏志愿军数万人选择去了台湾。他们在台湾受到英雄般的待遇，被称作义士。他们生活上受到台湾当局很好的安排。而回中国国被俘虏的志愿军却受到了审查，盘问为何要投降，要求战俘反思，进行自我批评，要求对战争真实的伤亡情况保密，之后的几十年从来没有在媒体、新闻上见过这些被俘虏的志愿军。很多朝鲜战争的真实资料都是从美国大学档案馆、媒体揭露出来的。
-
-当新中国联邦在中华大地让百姓实现自由、民主、法制之时，当防火墙被推到之后，一定会去伪存真，还原真相，让老百姓看到真实的历史。
-
-参考来源：
-
-[朝鲜战争](https://zh.wikipedia.org/wiki/朝鲜战争)
-
-[朝鲜战争中国到底死了多少人](http://www.siwapu.com/junshi/24088.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-14.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-24.jpg)
-
-
+2. [‘80% of serious COVID cases are fully vaccinated’ says Ichilov hospital director](https://www.israelnationalnews.com/news/321674)
 
  
 

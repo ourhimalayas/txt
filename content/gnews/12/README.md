@@ -2,62 +2,50 @@
 ---
 
 
-## 捷克最高法院裁定 疫苗限制措施無效
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1956199/)
+## NBA球星大鲨鱼反对强迫接种COVID-19疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956214/)
 
-作者：加拿大溫哥華揚帆農場[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**翻译：Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipNBA球星大鲨鱼反对强迫接种COVID-19疫苗.png)图片来源：**thehill.com**
+沙奎尔·奥尼尔说，他“同情”那些拒绝接种疫苗的人，而且人们不应该“被迫”在工作和接种疫苗之间做选择。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+这位前洛杉矶湖人队球星周四在“和大鲨鱼一起大播客”的节目中说：“我鼓励大家注意安全，照顾好自己的家人，我鼓励大家这样做。”
 
-2月2日，捷克共和國最高法院裁定，上屆捷克總理Andrej Babiš領導的政府頒佈的Covid-19病毒疫苗限制措施無效，該裁決在7日內生效。
+“但是，如果人们不愿意接受，你不应该被迫接受你不想要的东西，”奥尼尔指的是中共病毒COVID-19疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Featured-3.png)
+这位篮球名人堂成员是在与共同主持人尼舍尔·特纳和前旧金山49人队球员安东尼·美汁汁·亚当斯讨论最近逮捕两名长岛护士时说出以上观点的，这两名护士被指控利用伪造的中共病毒COVID-19疫苗接种卡赚取150多万美元。
 
-去年11月18日，Andrej Babiš領導捷克政府批准了新的Covid-19限制措施。
+去年曾批评布鲁克林篮网队明星凯里·欧文对中共病毒COVID-19疫苗表示犹豫不决的奥尼尔感叹：“不要把他们送进监狱！”
 
-除12~18歲的青少年、身體狀況不允許接種疫苗和已部分接種疫苗的人，其它任何未接種疫苗的人即使冠狀病毒檢測呈陰性也被禁止進入大多數非必要的室內場所。只有接種過疫苗或最近180天內從Covid-19中康復的人才有資格參加公共活動、去酒吧、餐館、音樂廳、理髮店、博物館、舞蹈、遊戲和和類似的社交娛樂場所，或進入酒店。
+奥尼尔继续说：“我可能会因此惹上麻烦”，他假设了一个涉及“今夜娱乐”共同主持人尼舍尔·特纳的虚构同事的场景。
 
-去年12月，上屆捷克政府強制要求從今年3月起，60歲以上的人和從事高風險職業的人，包含醫護人員、員警、消防員必須接種COVID-19疫苗。
+“比如说尼舍尔，你在‘ET’的音响师已经在那里工作了10年。这份工作是你所知道的一切。”
 
-12月17日，Andrej Babiš下臺，Petr Fiala宣誓就任捷克共和國總理。
+“我们就说‘ET’出台了一项新政策。如果你不接种疫苗，你就会失去工作，”奥尼尔说，他认为让人们在生计和“违背自己的道德”去接种疫苗之间做选择很不公平。
 
-1月19日，Fiala宣佈他的政府不會對任何人強制接種疫苗。最近，Fiala政府又宣佈，不會繼續對醫護人員和其他一些職業進行強制接種疫苗的計畫。Fiala政府衛生部長Vlastimil Válek在推特發文稱，我從一開始就認為強制性的 covid-19 疫苗接種是胡說八道。我答應過我們會修改前任政府用熱針和觀點寫的法令，我們將取消疫苗接種，今天發生了，儘管疫苗接種是對抗嚴重病毒大流行的最有效武器，但我們不會強迫任何人這樣做。
+特纳反驳说，她“完全不同意”奥尼尔的观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-42-37.png)
+特纳说：“你不仅仅影响到你自己，你让公众处于危险之中，这是一个公共卫生问题。”
 
-目前，捷克63%的人口完全接種了Covid-19疫苗，而在60歲以上的年齡組中，這一比例為80%。在高危職業人群（包含醫護人員、員警、消防員）中，接種率在85%到90%之間。
+自大流行病开始以来，美国已有超过85万人死于中共病毒COVID-19。
 
-上周日，成千上萬的捷克人走上布拉格街頭，抗議新冠疫情的限制措施。抗議者揮舞旗幟並高呼口號，譴責對新冠病毒的限制，特別是未接種疫苗的公民仍然無法進入某些場所的事實。
+特纳继续说：“兄弟，你为一家私人公司工作。我们是一个资本主义社会。这是一个自由市场的社会。如果你不想遵守该公司的政策，那么你就自己出门左转。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-47-46.png)
+奥尼尔同意道：“我支持你的规矩，我是一个遵守规则的人，但我确实对那些不得不做出这种决定的人感到同情。”
 
-Petr Mikeš法官解釋最高行政法院的裁定時說，該措施的目的是不能通過緊急疫苗接種措施間接迫使公民接種疫苗，迫使未接種疫苗的人如果想正常生活，別無選擇，只能接種疫苗，但衛生部必須說明並證明捷克共和國的每個人都可能是感染嫌疑人。衛生部不支援在所謂的大流行法中限制此類場所，除非使用消毒或座位位置，衛生部只能根據《公共衛生保護法》限制疑似感染者活動。只有在整個捷克共和國都被確定為疫情的情況下才有可能每個人都可能是感染嫌疑人。
+特纳说：“我不这么认为，当你把其他人置于危险之中时，我不这么认为。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-46-59.png)
+**新闻来源**：[**thehill.com**][Shaquille O’Neal says people ‘shouldn’t be forced’ to get COVID-19 vaccine](https://thehill.com/blogs/in-the-know/in-the-know/592736-shaquille-oneal-says-people-shouldnt-be-forced-to-get-covid-19)
 
-COVID-19病毒疫苗強制令在捷克取消！
+* * *
 
-參考資料：
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[Czech Republic: Covid Restrictions Cannot Be Used to Force Citizens to Be Vaccinated, Supreme Court Says](https://dailyexpose.uk/2022/02/04/cannot-force-citizens-to-be-vaccinated-court-says/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
-[Czech government scraps plan for mandatory vaccination](https://english.radio.cz/czech-government-scraps-plan-mandatory-vaccination-8739738)
 
-[Konec. Soud pustil neočkované do restaurací](https://www.novinky.cz/domaci/clanek/soud-pustil-neockovane-do-restauraci-40385872)
-
-[Czech police officers stand in solidarity as Supreme Court Strikes Down Covid-19 Vaccine Pass for Restaurants, Clubs, Hotels](https://lorphicweb.com/in-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video/)
-
-[Czech citizens hold massive protest demanding new center-right gov’t lift all COVID restrictions](https://www.lifesitenews.com/news/czech-citizens-hold-massive-protest-demanding-new-center-right-govt-lift-all-covid-restrictions/)
-
-[Povinné očkování proti covidu-19 jsem od počátku považoval za nesmysl. Slíbil jsem, že horkou jehlou sepsanou vyhlášku minulé vlády novelizujeme a pov. očkování zrušíme. Dnes se tak stalo.](https://twitter.com/vlvalek/status/1483803335169912838?s=20&amp;t=d6FuuJ-1rGq4pvgP6OGgWw)
-
-[Prague Czech Republic Anti Covid BS, Anti Everything Long Live The People](https://twitter.com/risemelbourne/status/1487882648114458624?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1487882648114458624%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Florphicweb.com%2Fin-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video%2F)
-
-[À Prague, les policiers tchèques sont solidaires du peuple face aux restrictions incessantes du COVID et aux passes sanitaires discriminatoires !](https://t.me/StoryOfBlackBond/7201)
-
-[Lockdowns and bans on unvaccinated: How Europe is coping with Covid surge](https://www.itv.com/news/2021-11-19/lockdowns-and-public-transport-bans-across-europe-as-covid-cases-rise-again)
-
-編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

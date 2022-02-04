@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|蓬佩奥再谈病毒起源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1956170/)
+## 冬奥在即 京南一县城突曝疫情封城
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1956206/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，美国前国务卿蓬佩奥接受福克斯电视台采访，再次提及病毒来自中共武汉病毒研究所实验室。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-3.png)
-在节目中，主持人回顾了有科学家很早就提出病毒来自实验室的质疑，但被福奇和柯林斯要求统一思想，并统一改口为病毒起源于自然。而现在越来越多的人开始明白病毒来自实验室。对此蓬佩奥表示，只要是在2020年春天看到了那些数据的人，都会得出病毒一定来自中共武毒所的结论。但时至今日中共武毒所还在运转，美国人依旧面临着相似的威胁。
+作者:纽约香草山教育部- Noemi
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当地时间2月4日上午，河北省廊坊市固安县突因两例确诊病例封城。据网传消息，确诊病例疑为由京返乡人员。
 
-蓬佩奥还指出，福奇、柯林斯等美国政府医疗与公共卫生权威人士，明知道病毒会造成危害，却不告诉当时的美国政府，这是让人难以置信的事实。
+目前，该县城全域内所有小区、公共场所、高速路口已全部封闭，除全员核酸外，所有街道空无一人，进京公交线路全部停运。有墙内网友戏称，仅仅一个上午的时间，整个县城就如遭空袭。
 
-文字版原文：[蓬佩奥再谈病毒起源](https://gnews.org/zh-hans/1953516/)
+据了解，固安县直接接壤北京市大兴区，距离北京市中心仅有50公里，距离大兴国际机场仅有8公里，每日都有大量务工人员需往返于北京与固安之间。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+有微博网友评论称，固安紧急施行的“一刀切”封城政策疑与北京冬奥会在即有关。截至目前，还未有官方消息通报固安疫情情况。 [https://www.gettr.com/post/pse7ef5cc5 https://www.toutiao.com/w/a1723812693596174/?traffic\_source=&traffic\_source=&in\_ogs=&in\_ogs=&utm\_source=&utm\_source=&source=search\_tab&source=input&utm\_medium=wap\_search&utm\_medium=wap\_search&original\_source=&original\_source=&in\_tfs=&in\_tfs=&channel=&channel= https://3g.163.com/local/article/GVC62ELU04159CNM.html](https://www.gettr.com/post/pse7ef5cc5%20https://www.toutiao.com/w/a1723812693596174/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=%20https://3g.163.com/local/article/GVC62ELU04159CNM.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 

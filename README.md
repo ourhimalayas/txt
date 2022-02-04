@@ -15,74 +15,74 @@
 
 ---
 
-### [七哥的泪](/content/gnews/1/README.md)
+### [七哥说—第48期](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [浪漫的傲骨](/content/gnews/2/README.md)
+ ` 纽约香草山MOS03`
+
+### [七哥的泪](/content/gnews/3/README.md)
  ` 波士顿五月花农场`
 
-### [文贵大直播要点（2022年2月4日）](/content/gnews/2/README.md)
+### [自由车队继续深入 特鲁多称不会动用军队驱散抗议者](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵大直播要点（2022年2月4日）](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [2022/02/04 英喜时事速递](/content/gnews/3/README.md)
+### [2022/02/04 英喜时事速递](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国青少年站起来反对Covid疫苗疯狂](/content/gnews/4/README.md)
+### [美国青少年站起来反对Covid疫苗疯狂](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国对大流行病的处理是“坏政府的灾难性行为”](/content/gnews/5/README.md)
+### [美国对大流行病的处理是“坏政府的灾难性行为”](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱](/content/gnews/6/README.md)
+### [2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱](/content/gnews/9/README.md)
  ` 秘密翻译组金融团队`
 
-### [圣火传递手争议，印度决定抵制北京冬奥开闭幕式](/content/gnews/7/README.md)
+### [圣火传递手争议，印度决定抵制北京冬奥开闭幕式](/content/gnews/10/README.md)
  ` GTV News Talk`
 
-### [爱荷华州州长宣布结束COVID-19紧急状况](/content/gnews/8/README.md)
+### [爱荷华州州长宣布结束COVID-19紧急状况](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NBA球星大鲨鱼反对强迫接种COVID-19疫苗](/content/gnews/9/README.md)
+### [NBA球星大鲨鱼反对强迫接种COVID-19疫苗](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [冬奥在即 京南一县城突曝疫情封城](/content/gnews/10/README.md)
+### [冬奥在即 京南一县城突曝疫情封城](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [49名共和党议员承诺取消拜登的疫苗任务](/content/gnews/11/README.md)
+### [49名共和党议员承诺取消拜登的疫苗任务](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [捷克最高法院裁定 疫苗限制措施無效](/content/gnews/12/README.md)
+### [捷克最高法院裁定 疫苗限制措施無效](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|蓬佩奥再谈病毒起源](/content/gnews/13/README.md)
+### [有声|蓬佩奥再谈病毒起源](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [加拿大卡车司机誓言继续抗议直到自由国度重新回归](/content/gnews/14/README.md)
+### [加拿大卡车司机誓言继续抗议直到自由国度重新回归](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [脸书市值跌近两千亿 首次出现用户下降](/content/gnews/15/README.md)
+### [脸书市值跌近两千亿 首次出现用户下降](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/16/README.md)
+### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/19/README.md)
  ` G-NEWS TAIWAN`
 
-### [奥运会的焦点回到了中共国 这是一场带有中共病毒色彩的奥运会](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [捷克最高法院裁定 疫苗限制措施无效](/content/gnews/18/README.md)
+### [捷克最高法院裁定 疫苗限制措施无效](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（2/3）](/content/gnews/19/README.md)
+### [Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（2/3）](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [以色列前车之鉴：新冠疫苗做了什么？](/content/gnews/20/README.md)
+### [以色列前车之鉴：新冠疫苗做了什么？](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美称伊斯兰头目库莱希在美军发动的叙利亚突袭中自杀身亡](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [共产党为什么被称做否定历史主义者-朝鲜战争](/content/gnews/22/README.md)
+### [共产党为什么被称做否定历史主义者-朝鲜战争](/content/gnews/23/README.md)
  ` GTV News Talk`
-
-### [约翰斯霍普金斯大学研究发现福奇的封锁策略彻底失败](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [俄乌危机：当油价攀升时，普京变得更加大胆](/content/gnews/24/README.md)
  ` 【🌹玫瑰新闻】`

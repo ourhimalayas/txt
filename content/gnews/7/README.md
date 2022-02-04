@@ -2,50 +2,52 @@
 ---
 
 
-## 圣火传递手争议，印度决定抵制北京冬奥开闭幕式
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1956232/)
+## 美国青少年站起来反对Covid疫苗疯狂
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1956256/)
 
-作者：台湾宝岛农场—阿尔道夫
+翻译： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-1.jpg)图片来源：瓦苏格尔的自由战士| CLIPARTO Instagram
 
+随着针对 Covid 封锁、疫苗护照、疫苗授权和其他措施的抗议活动在全球范围内蔓延，美国的下一代正在发出自己的声音。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
+多个州的高中生都在进行和平的公民不服从，以表达他们对学校强制戴口罩要求的不满。
 
+华盛顿的视频显示，一名华盛顿高中学生带领其他人进行示威。
 
+这位青少年抗议者告诉“大一和大二”学生，在不戴口罩进入校园时要尊重老师，否则“那会让我们看起来是坏分子”。
 
+“我们希望这是一场和平、尊重的运动，”他对人群说。“我们只是试图夺回我们作为公民的权利。说到底，老师们只是在做他们的工作，命令不是来自他们……它来自于国家。”
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-1.png)
 
-据台媒报导，中共和印度继先前两国在2020年6月于边境一带发生流血冲突之后，因中共安排了当时在中印边界冲突时任解放军边防团团长的祁发宝为北京冬奥传递圣火一事，再次引起印度的不满情绪。印度决定不派外交官出席中共冬奥会开、闭幕仪式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220127-01.jpg)
-印外交部发言人巴格奇（ArindamBagchi）今天（2022年2月3日）在记者会上表示：中共选择将奥运会政治化之举令人遗憾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-1.png)图片来自原文截图
 
-报导中也指出，在此之前，印度并未对北京冬奥进行外交抵制，甚至于去年11月与俄、中、印三国共同表态支持北京主办冬季奥和冬季帕运。对照今印度表态不派官方代表参加开、闭幕的决定，显然局势已产生变化。
+接下来，高中示威发言人告诉他的抗议者同伴，他们希望学校的教员将他们赶出校园。
 
-参考来源：
+“这听起来很糟糕，但我们希望他们把我们赶出去，”他解释道。“因为他们必须向州政府报告出勤率，而且，如果该州发现有一天有一百个孩子缺席，他们就会开始问了。我们希望我们可以在全州范围内实现这一目标。”
 
-[聖火傳遞手爭議 印度決定杯葛北京冬奧開閉幕](https://udn.com/news/story/6809/6075563?from=udn-catelistnews_ch2》)
+学生们承认，他们可能会因为他们的特殊抗议而惹上麻烦，但他们发誓，要在第二天继续这样做。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-15.jpg)
+“他们会给我带来麻烦，他们可以开除我，”男孩对人群说。“我不在乎，我们已经完全受够了。而且，显然你们所有人也受够了。”
 
-编辑/校对/发稿：兰兰
+再次，抗议领袖提醒参与的学生在给他们发口罩时告诉老师“不，谢谢”，工作人员命令他们“回家”去。
 
-**更多资讯，更多关注**
+华盛顿州的另一场反对戴口罩的示威活动在佩尔（Pe Ell ）高中举行。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+与此同时，在加利福尼亚州的奥克代尔，学生们也进行示威拒绝戴口罩。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+推特账号“让我喘气”（ Let Them Breathe ）记录了公然的种族隔离行为，该账号声称奥克代尔学区共有 500 多名学生参加了示威活动。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**参考资料：**[infowars][American Teens Stand Up Against Covid Madness](https://www.infowars.com/posts/american-teens-stand-up-against-covid-madness/)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
 
  
 
