@@ -2,35 +2,50 @@
 ---
 
 
-## 有声|蓬佩奥再谈病毒起源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1956170/)
+## 圣火传递手争议，印度决定抵制北京冬奥开闭幕式
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1956232/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，美国前国务卿蓬佩奥接受福克斯电视台采访，再次提及病毒来自中共武汉病毒研究所实验室。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-3.png)
-在节目中，主持人回顾了有科学家很早就提出病毒来自实验室的质疑，但被福奇和柯林斯要求统一思想，并统一改口为病毒起源于自然。而现在越来越多的人开始明白病毒来自实验室。对此蓬佩奥表示，只要是在2020年春天看到了那些数据的人，都会得出病毒一定来自中共武毒所的结论。但时至今日中共武毒所还在运转，美国人依旧面临着相似的威胁。
+作者：台湾宝岛农场—阿尔道夫
 
-蓬佩奥还指出，福奇、柯林斯等美国政府医疗与公共卫生权威人士，明知道病毒会造成危害，却不告诉当时的美国政府，这是让人难以置信的事实。
 
-文字版原文：[蓬佩奥再谈病毒起源](https://gnews.org/zh-hans/1953516/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
+
+
+
+
+
+据台媒报导，中共和印度继先前两国在2020年6月于边境一带发生流血冲突之后，因中共安排了当时在中印边界冲突时任解放军边防团团长的祁发宝为北京冬奥传递圣火一事，再次引起印度的不满情绪。印度决定不派外交官出席中共冬奥会开、闭幕仪式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220127-01.jpg)
+印外交部发言人巴格奇（ArindamBagchi）今天（2022年2月3日）在记者会上表示：中共选择将奥运会政治化之举令人遗憾。
+
+报导中也指出，在此之前，印度并未对北京冬奥进行外交抵制，甚至于去年11月与俄、中、印三国共同表态支持北京主办冬季奥和冬季帕运。对照今印度表态不派官方代表参加开、闭幕的决定，显然局势已产生变化。
+
+参考来源：
+
+[聖火傳遞手爭議 印度決定杯葛北京冬奧開閉幕](https://udn.com/news/story/6809/6075563?from=udn-catelistnews_ch2》)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-15.jpg)
+
+编辑/校对/发稿：兰兰
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+
+
 
  
 

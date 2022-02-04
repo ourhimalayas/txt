@@ -2,62 +2,44 @@
 ---
 
 
-## 捷克最高法院裁定 疫苗限制措施無效
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1956199/)
+## 2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1956254/)
 
-作者：加拿大溫哥華揚帆農場[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-13.png)[图片来源](https://www.reuters.com/)
+**1.尽管科技股遭到抛售，但投资者仍对股票充满信心**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[美国银行周五公布的每周流量显示报告显示，由于流入股市的资金没有减弱的迹象，投资者将资金注入股票，并从债券和现金中撤出资金。根据美国银行使用EPFR的数据，在今年23个交易日中的前20个交易日，股市出现净流入，超过1060亿美元流入股市。从每周股市来看，欧洲出现了自2017年5月以来的最大资金流入，而新兴市场在过去七周内出现了净流入。相比之下，除政府债券基金外，固定收益市场普遍出现资金外流。美国银行的“私人客户”——管理着3.2万亿美元的资产——拥有11.7%的现金，尽管客户连续第九周成为股票的净买家。](https://www.reuters.com/markets/asia/investors-keep-faith-stocks-despite-tech-selloff-bofa-2022-02-04/)
 
-2月2日，捷克共和國最高法院裁定，上屆捷克總理Andrej Babiš領導的政府頒佈的Covid-19病毒疫苗限制措施無效，該裁決在7日內生效。
+**2.欧盟立法者警告“保守”监管机构不要阻止保险公司**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Featured-3.png)
+[一位欧盟高级立法者周四表示，将关键的保险资本规则变更留给“保守”监管机构可能无法释放欧盟经济从COVID-19中复苏并实现气候目标所需的数十亿欧元。欧盟已提议对已有六年历史的偿付能力II规则进行一揽子修改，该规则决定了AXA、Generali和Allianz等保险公司必须持有多少资本金，以便更容易投资于长期项目。这些提议需要得到欧洲议会和成员国的批准才能生效，妥协是不可避免的。正在通过议会指导改革的德国中右翼议员马库斯·费伯（Markus Ferber）表示，起草改革方案的欧盟执行委员会表示，应该将一些变化留给欧盟的保险监管机构EIOPA。](https://www.reuters.com/world/europe/eu-lawmaker-warns-conservative-regulators-not-hold-back-insurers-2022-02-03/)
 
-去年11月18日，Andrej Babiš領導捷克政府批准了新的Covid-19限制措施。
+**3.迪拜银行家转向科技行业**
 
-除12~18歲的青少年、身體狀況不允許接種疫苗和已部分接種疫苗的人，其它任何未接種疫苗的人即使冠狀病毒檢測呈陰性也被禁止進入大多數非必要的室內場所。只有接種過疫苗或最近180天內從Covid-19中康復的人才有資格參加公共活動、去酒吧、餐館、音樂廳、理髮店、博物館、舞蹈、遊戲和和類似的社交娛樂場所，或進入酒店。
+[面对海湾地区的交易费用仅为其他市场的一小部分，许多迪拜银行家正在递交他们的通知，被初创公司兑现、股票期权和股票授予的诱惑所吸引。资深投资银行家Omar Abuinnab就是其中之一。他于12月离开Guggenheim Partners的中东部门，成立了迪拜房地产技术初创公司Keyper。Keyper于1月推出，将自己描述为房地产投资者的私人银行家。根据毕马威2020年的一份报告，此类“proptech”公司构成了一个蓬勃发展的全球行业，2019年全球投资额为26亿美元，高于2016年的10亿美元。Abuinnab并不孤单，前Moelis & Co (MC.N)银行家Youssef Salem搬到迪拜的交通初创公司Swvl，该公司在7月宣布与美国空白支票公司Queen’s Gambit (GMBT.O)合并。该交易对Swvl的估值约为15亿美元。](https://www.reuters.com/markets/europe/chasing-sky-high-valuations-dubai-bankers-switch-tech-sector-2022-02-04/)
 
-去年12月，上屆捷克政府強制要求從今年3月起，60歲以上的人和從事高風險職業的人，包含醫護人員、員警、消防員必須接種COVID-19疫苗。
+**4.瑞士信贷将一些非洲财富管理客户推荐给巴克莱**
 
-12月17日，Andrej Babiš下臺，Petr Fiala宣誓就任捷克共和國總理。
+[瑞士银行表示，在决定退出九个国家的财富管理业务后，瑞士信贷(CSGN.S)已与巴克莱(BARC.L)签署协议，在非洲部分地区接手富裕客户。周五，证实了彭博社早些时候的报道。“瑞士信贷已与巴克莱签署了一份私人银行客户推荐协议，作为退出主要在撒哈拉以南非洲（不包括南非）的九个非核心财富管理市场计划的一部分——正如该银行集团战略于2021年11月宣布的那样，”该银行在给路透社的一份声明中说。彭博社报道称，管理的资产总额约为25亿美元。报告称，博茨瓦纳、加纳、科特迪瓦、肯尼亚、毛里求斯、尼日利亚、塞舌尔、坦桑尼亚和赞比亚是受影响的国家。](https://www.reuters.com/business/finance/credit-suisse-refers-some-african-wealth-management-clients-barclays-2022-02-04/)
 
-1月19日，Fiala宣佈他的政府不會對任何人強制接種疫苗。最近，Fiala政府又宣佈，不會繼續對醫護人員和其他一些職業進行強制接種疫苗的計畫。Fiala政府衛生部長Vlastimil Válek在推特發文稱，我從一開始就認為強制性的 covid-19 疫苗接種是胡說八道。我答應過我們會修改前任政府用熱針和觀點寫的法令，我們將取消疫苗接種，今天發生了，儘管疫苗接種是對抗嚴重病毒大流行的最有效武器，但我們不會強迫任何人這樣做。
+**5.尽管客户转向“多云”，但亚马逊仍保持阳光销售**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-42-37.png)
+[亚马逊公司已经连续四个季度实现了云计算销售增长，分析师称这一连续增长令人印象深刻，并缓解了对客户转向多家云供应商将损害其领先市场份额的担忧。根据Synergy Research Group的估计，到2021年，云基础设施服务的总体支出增长了37%，达到1780亿美元，超过了前一年的34%。与上一季度相比，亚马逊网络服务(AWS)、微软公司的Azure和谷歌云这三大云在2021年最后三个月的市场份额均增长了一个百分点。Capital One曾表示，它是第一家完全放弃云数据中心并与AWS达成早期协议的美国主要银行，这就是一个很好的例子。](https://www.oann.com/analysis-despite-client-shift-to-multicloud-amazon-notches-up-sunny-sales/)
 
-目前，捷克63%的人口完全接種了Covid-19疫苗，而在60歲以上的年齡組中，這一比例為80%。在高危職業人群（包含醫護人員、員警、消防員）中，接種率在85%到90%之間。
+**6.道琼斯指数在开盘时受挫**
 
-上周日，成千上萬的捷克人走上布拉格街頭，抗議新冠疫情的限制措施。抗議者揮舞旗幟並高呼口號，譴責對新冠病毒的限制，特別是未接種疫苗的公民仍然無法進入某些場所的事實。
+[道琼斯指数周五开盘持平，因为数据显示美国1月份经济增长意外跃升，引发了对通胀的担忧，抵消了亚马逊在动荡的一周结束时业绩的提振。道琼斯工业平均指数开盘下跌15.4点或0.04%，至35,095.74。标准普尔500指数开盘上涨5.4点或0.12%至4482.79，而纳斯达克综合指数开盘上涨79.7点或0.57%至13958.482。](https://www.oann.com/futures-bolstered-by-amazon-results-ahead-of-jobs-report/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-47-46.png)
+**7.汽车制造商和芯片公司在半导体短缺何时缓解方面存在分歧**
 
-Petr Mikeš法官解釋最高行政法院的裁定時說，該措施的目的是不能通過緊急疫苗接種措施間接迫使公民接種疫苗，迫使未接種疫苗的人如果想正常生活，別無選擇，只能接種疫苗，但衛生部必須說明並證明捷克共和國的每個人都可能是感染嫌疑人。衛生部不支援在所謂的大流行法中限制此類場所，除非使用消毒或座位位置，衛生部只能根據《公共衛生保護法》限制疑似感染者活動。只有在整個捷克共和國都被確定為疫情的情況下才有可能每個人都可能是感染嫌疑人。
+[包括通用汽车、福特汽车和现代汽车在内的汽车制造商预测，近两年的芯片限制将在2022年下半年缓解，但另一方面，汽车芯片制造商预计复苏需要更长的时间。在过去两周的季度业绩报告中，通用汽车首席执行官玛丽巴拉预测下半年半导体短缺将减少，福特汽车预测在第一季度汽车销量低位后下半年将出现显着改善，现代汽车预测芯片供应今年第三季度将恢复正常水平。但恩智浦和英飞凌等领先的汽车芯片制造商预测，尽管产量增加，但供应紧张仍将持续。](https://www.oann.com/automakers-chip-firms-differ-on-when-semiconductor-shortage-will-abate/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-04_23-46-59.png)
+**8.全球科技股在Meta暴跌后阶段性复苏**
 
-COVID-19病毒疫苗強制令在捷克取消！
+[科技股周五在金融市场出现初步反弹，亚马逊公司(AMZN.O)的出色业绩说服交易员不要放弃因全球货币紧缩周期和Facebook历史性崩盘而削弱的行业。该公司由首席执行官马克扎克伯格领导，在发布令人沮丧的预测后，其市值蒸发了超过2000亿美元，这是美国公司单日跌幅最大的一次。Meta Platforms Inc的抛售波及其他上市科技公司，拖累华尔街深陷亏损，随后亚马逊在周四收盘后令人信服的财报改变了市场情绪。受这家科技巨头业绩的启发，亚洲股市上涨约1%，亚马逊在法兰克福上市的股票上涨12%。](https://www.oann.com/global-tech-stocks-stage-tentative-recovery-after-meta-rout/)
 
-參考資料：
-
-[Czech Republic: Covid Restrictions Cannot Be Used to Force Citizens to Be Vaccinated, Supreme Court Says](https://dailyexpose.uk/2022/02/04/cannot-force-citizens-to-be-vaccinated-court-says/)
-
-[Czech government scraps plan for mandatory vaccination](https://english.radio.cz/czech-government-scraps-plan-mandatory-vaccination-8739738)
-
-[Konec. Soud pustil neočkované do restaurací](https://www.novinky.cz/domaci/clanek/soud-pustil-neockovane-do-restauraci-40385872)
-
-[Czech police officers stand in solidarity as Supreme Court Strikes Down Covid-19 Vaccine Pass for Restaurants, Clubs, Hotels](https://lorphicweb.com/in-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video/)
-
-[Czech citizens hold massive protest demanding new center-right gov’t lift all COVID restrictions](https://www.lifesitenews.com/news/czech-citizens-hold-massive-protest-demanding-new-center-right-govt-lift-all-covid-restrictions/)
-
-[Povinné očkování proti covidu-19 jsem od počátku považoval za nesmysl. Slíbil jsem, že horkou jehlou sepsanou vyhlášku minulé vlády novelizujeme a pov. očkování zrušíme. Dnes se tak stalo.](https://twitter.com/vlvalek/status/1483803335169912838?s=20&amp;t=d6FuuJ-1rGq4pvgP6OGgWw)
-
-[Prague Czech Republic Anti Covid BS, Anti Everything Long Live The People](https://twitter.com/risemelbourne/status/1487882648114458624?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1487882648114458624%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Florphicweb.com%2Fin-prague-czech-police-officers-stand-in-solidarity-with-the-people-against-never-ending-covid-restrictions-and-mandates-video%2F)
-
-[À Prague, les policiers tchèques sont solidaires du peuple face aux restrictions incessantes du COVID et aux passes sanitaires discriminatoires !](https://t.me/StoryOfBlackBond/7201)
-
-[Lockdowns and bans on unvaccinated: How Europe is coping with Covid surge](https://www.itv.com/news/2021-11-19/lockdowns-and-public-transport-bans-across-europe-as-covid-cases-rise-again)
-
-編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+By 【秘密翻译组-金融组】
+作者：小海星
 
  
 

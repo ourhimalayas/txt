@@ -2,44 +2,28 @@
 ---
 
 
-## Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1956148/)
+## 冬奥在即 京南一县城突曝疫情封城
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1956206/)
 
-2月2日文贵先生在大直播中表示，Hpay上市前遭遇了强大阻力，甚至项目参与者和律师没有人能相信Hpay能顺利上线，透露了Hpay上线的艰辛历程，并表示，Hpay顺利上线得到美国政府的认可，不仅打破人类万年以来设定的金融规则，也建立人与人之间的最新文明。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Hpay-paypal-1.png)
-**Hpay零交易手续费，秒杀PayPal每笔4.4%的交易费**
+作者:纽约香草山教育部- Noemi
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当地时间2月4日上午，河北省廊坊市固安县突因两例确诊病例封城。据网传消息，确诊病例疑为由京返乡人员。
 
-笔者以Paypal实际商业用户的角度来分享，让战友可以在paypal用户上更顺利的来推广Hpay。  paypal收取高额的商业交易手续费，**每笔交易****4.4%+****固定费**(美国USD0.3)，在台湾PayPal只接受玉山银行取款，从 PayPal 个人账户提领到台湾玉山银行个人美金账户**提领费****2.5%**，paypal商户以交易10万美元的金额为例，交易费4.4%为USD4400，提领费2.5%为USD2500，实际到帐收到USD 93100，**共收取了****6.9% USD6900****的费用**。**而****Hpay****零交易手续费，秒杀****PayPal****每笔****4.4%****的交易费**。以10万美元金额的提领费，喜交所收取100美元，并**可以接收****与喜交所****KYC****同名****，****台湾的任何****银行美元账户****，**银行也只收取25美元手续费。**PayPal****要被扣除****6900****美元****，****而****Hpay ****只要****125****美元，为商业用户省下****6775****美元的巨大差距。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/p1a.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/p1b.png)
+目前，该县城全域内所有小区、公共场所、高速路口已全部封闭，除全员核酸外，所有街道空无一人，进京公交线路全部停运。有墙内网友戏称，仅仅一个上午的时间，整个县城就如遭空袭。
 
-| **交易10萬美元** | **Hpay** | **PayPal** |
-| --- | --- | --- |
-| **交易費** | **USD 0** | **4.4%** **USD4400** |
-| **提領費** | **0.1%** **USD100** | **約2.5%** **USD2500** |
-| **銀行到帳共扣** | **USD100+25** | **USD6900** |
+据了解，固安县直接接壤北京市大兴区，距离北京市中心仅有50公里，距离大兴国际机场仅有8公里，每日都有大量务工人员需往返于北京与固安之间。
 
+有微博网友评论称，固安紧急施行的“一刀切”封城政策疑与北京冬奥会在即有关。截至目前，还未有官方消息通报固安疫情情况。 [https://www.gettr.com/post/pse7ef5cc5 https://www.toutiao.com/w/a1723812693596174/?traffic\_source=&traffic\_source=&in\_ogs=&in\_ogs=&utm\_source=&utm\_source=&source=search\_tab&source=input&utm\_medium=wap\_search&utm\_medium=wap\_search&original\_source=&original\_source=&in\_tfs=&in\_tfs=&channel=&channel= https://3g.163.com/local/article/GVC62ELU04159CNM.html](https://www.gettr.com/post/pse7ef5cc5%20https://www.toutiao.com/w/a1723812693596174/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=%20https://3g.163.com/local/article/GVC62ELU04159CNM.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+**更多资讯，更多关注**
 
-**为商业用户省下USD6775**
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-2020年至从中共病毒以来，全世界的封城隔离，重创每个国家的观光产业，所有的商业模式转成在线模式，成立已20 年的PayPal，规模超过全球 200 个国家的数字支付平台，在 2020 年，创下每秒 1,000 笔交易的历史交易高峰，全年交易次数超过 154 亿次，交易总金额达 9,360 亿美元，全球用户数约 3亿多人，PayPal 《2021 年无国界商务报告》指出，全球零售电子商务销售额由2019年的3.35兆美元，激增28％至2020年的4.28兆美元，估计今年全年的销售额可按年再增14.3％，达至4.89兆美元水平。**战友们有此可以看到仅仅只是****paypal****的市场****，就能看到****Hpay****、****喜联储未来强大的市场价值。**
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**试着以****Paypal****商户的角度来推广****Hpay****，解决商户的疑虑，耐心的说明**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-Himalaya Exchang拥有严格的KYC，让商家相信使用Hpay钱包的人都是优质客户，不仅支付者的个人讯息隐私受到安全的保密，也能减少客户因使用信用卡数据外泄的风险，减少遭到不法人士盗刷的情况。Hpay可连结Himalaya Exchange让商户的钱将来可能会有高于市场很多的利息，而PayPal账户里的钱却不会增值。
-
-**让****Paypal****商户了解到****，****开通****Hpay****不仅只是支付方式的改变****，而是开通一个****有未来成长的账户**
-
-**让商户了解到Hpay不仅仅是点到点秒到帐、冷钱包和游资包的功能，去中心化的加密技术，有中心化的行政团队，最高规格的安全性受到多个国家的法律严格监督，Himalaya Dollar ﹩1USD=1HDO，Himalaya Coin有20%的黄金锚定法定量化，将来会推出各种多功能的投资理财、保险等金融性衍生商品，大型银行、金控能做得到的喜联储都做得到、甚至做的更好，大型银行、金控做不到的，喜联储也能做得到，喜联储是未来虚拟货币的制定者。**
-
-**感恩天才金融设计师文贵先生给战友们的无限希望****，总是会先想到为****战友们赚钱****，完全的利他主义，把财富和幸福分享给更多人，期待战友们大力推广****Hpay****，让家人亲戚朋友、同行业的伙伴都能使用喜联储的服务，****全球聪明的人一定会从法币转向喜联储的****HDO****、****HCN****、****Hpay****。**
-
-本文仅代表个人立场
-
-資料來源:文贵大直播
-
-**祈祷万佛万神加持文贵先生与新中国联邦战友**
-
-审核:Athena雅典娜 撰稿发布:Amitofu
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
