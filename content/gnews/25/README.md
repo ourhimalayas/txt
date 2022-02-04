@@ -2,18 +2,16 @@
 ---
 
 
-## 有声|中共国男足再次无缘世界杯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955196/)
+## 有声|CNN表示会在北京冬奥会期间关注中共新疆大屠杀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955375/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+近日，美国有线电视网的主持人Jake Tapper本周宣布，他将在北京冬奥会期间跟踪报道北京犯下的罪恶行径。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-4.jpg)
+据悉此报道被称为“中国墙背后”，tapper称在表面繁荣的北京冬奥会背后是中共想要掩盖的丑陋的真相，此节目预告片播放了关于中共对台湾和新疆的虐待和侵略。此前美国前国务卿蓬佩奥曾指控中共对新疆的实施监禁、酷刑、强迫绝育、强迫劳动和其他基于宗教的歧视和不人道待遇。
 
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据相关媒体消息显示，在当天举行的“2022卡塔尔世界杯亚洲区预选赛”中，中共国国家足球队1:3惨败越南国家队，彻底无缘世界杯。赛后，中共国男足再次遭到现场球迷的怒斥和墙内球迷的一片唏嘘嘲讽。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11.jpeg)
-对此，郭文贵先生在早先的直播中曾多次提及，中共国足球队的问题不在于个人，而是中共体制的问题，更是文化的问题。国家队的球员靠的不是球技，而是人际关系，这才是其失败的核心原因。郭先生还解释道，中共以假治国、以黑治国、以贪治国的邪恶体制是中共国足球队的毒瘤所在，也是中共国内一切问题的根源。只有消灭了共产党，我们中国人的精神、意志和身体才会真正强大。
-
-文字版原文：[中共国男足再次无缘世界杯](https://gnews.org/zh-hans/1951940/)
+文字版原文：[CNN表示会在北京冬奥会期间关注中共新疆大屠杀](https://gnews.org/zh-hans/1953018/)
 
 音频处理：Tom Li
 发稿：Tom Li

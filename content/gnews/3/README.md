@@ -2,51 +2,18 @@
 ---
 
 
-## 北京冬奥开幕在即,日本代表团一选手确诊
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1955765/)
+## 共产党培养的商人到贫民都会做假说谎
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1956027/)
 
-作者：纽约香草山教育部—Naughty(文行)
+撰稿：东京樱花团/神的带领
 
+近日，一名市场商贩被拍到正在通过水管插入正在售卖的公鸡的食道进行灌水。该视频仅是长期以来中共治下食品安全和食品造假的冰山一角。
 
+在中共国买到什么假货，什么样的垃圾食品都已经见怪不怪了。因为他们自己不吃自己做的产品，不买自己生产的产品，所有的“高科技”都是为造假害人服务的。但他们从不感觉耻辱与犯罪，反而觉得自己聪明，会赚钱。但是他们没想到自己做的食品与领域的东西你可以不买，不吃、不用，但你总得活着，总得用你自己不能做的东西和领域，那你一样会被另一个生产制作的假所害。所以大家认为害人不害己，其实每个人都活在恶性循环中。每个人都是受害者。每个人为造假所得的蝇头小利感到幸福无比，试问有哪个国家的百姓会生活在这样的互相残害的“幸福”里呢？ 所以共产党不灭，百姓不醒就没什么安全幸福可言。灭共从说真话不造假，自己生产贩卖的东西自己放心食用开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
-
-
-
-北京冬季奥运将于4日开幕，在中共病毒疫情阴影下，当局采取高规格防疫措施。尽管这样，但还是有参赛运动员确诊。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_3653.jpg)
-日本奥林匹克运动委员会2月2日表示，参加北京冬季奥运的日本代表团中一名滑雪选手在北京接受PCR检测并确诊。这是参加北京冬奥的日本代表团首度有选手确诊。在去年夏天东京奥运时，日本选手无人确诊。
-
-日本朝日新闻报导，日本奥委会表示，这名滑雪选手在赴北京前在日本接受核酸检测结果呈阴性，但昨天在中共国境内接受PCR检查的结果却呈阳性。目前这名选手正在隔离。 这名日本选手是否能出赛，将由国际奥林匹克委员会或北京冬季奥运组织委员会决定。
-
-参考来源：
-
-[First Japanese athlete tests positive for COVID-19 in Beijing](https://www.japantimes.co.jp/news/2022/02/02/national/japan-beijing-first-covid/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-9.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-18.jpg)
-
-
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

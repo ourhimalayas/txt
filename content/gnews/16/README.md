@@ -2,26 +2,50 @@
 ---
 
 
-## 日本滑雪女选手摔伤退出冬奥会 疑似因场地采用人造雪
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1955386/)
+## 一周中共病毒及疫苗灾难信息集锦
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955606/)
 
-撰稿：东京樱花团丨山頂閒人
+作者：纽约香草山农场 – Zion文恩/火来
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年1月25日至2月2日，除中共国外，全球新增中共病毒确诊患者两千一百万余例，同比上周下降了8.66%。此外，本周新增确诊死亡病例超过7万例，同比上周增长了18.9%，增长率较上周增加了2.5个百分点。连续两周，中共病毒全球死亡率持续上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-3.jpg)
+截止2月2日，除中共国外，全球累计接种了72.6亿剂中共病毒疫苗，同比18日的接种数据增长了1.82%，但疫苗接种增长率较上周总体下降了0.69个百分点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本滑雪女选手摔伤退出冬奥会-疑似因场地采用人造雪.png)[*图片来源*](https://www.youtube.com/watch?v=6nAPjJgLhmo)
+实时分析显示，截止2月2日，全球来自27个国家共计8万5千767名受试者参与的78项临床研究表明，伊维菌素在预防、早期治疗和晚期治疗的案例中，分别能够降低85%、63%和39%的 中共病毒重症感染的临床病例。
 
-据2月3日法新社报道，日本单板滑雪运动员吉香丽娜星期四在张家口云顶雪场的坡面赛道上落下一跳时摔倒。星期四在北京奥运会训练期间严重摔伤后被救护车送走，将无法参加大空翻和坡面滑雪项目。引致摔伤原因不清楚，据日本奥委会称，这位22岁的运动员脊柱损伤，但不会瘫痪。该代表团称吉香丽娜将不会按原计画参加奥运会的比赛，并将在接受适当的治疗后返回日本。
+另一方面，多国的中共病毒疫苗政策在本周出现松动迹象。1月28日，由于担心疫苗带来的风险不低于病毒本身，瑞典政府决定不推荐5至11岁的儿童接种中共病毒疫苗。同时，加拿大魁北克省政府遭遇了强有力的反抗声浪，为此不得不放弃对未接种疫苗的魁北克人额外征收健康税的计划。同样在加拿大，萨斯喀彻温省的省长斯科特宣布，将结束该省的疫苗护照政策，并呼吁联邦政府结束各地的强制疫苗政策。
 
-周五正式开始的北京冬季奥运会是在中国最干燥的地区之一举行，几乎完全依靠人工造雪。
+在美国，关于公布辉瑞疫苗原始数据的司法诉讼中，美国食品和药品监督管理局FDA认为，延迟75年公布疫苗数据是合适的，但这一观点遭到了法官驳斥。目前，法官要求辉瑞公司尽快公布关于中共病毒疫苗的全部数据。而当地媒体则再次聚焦福奇，包括其为中共病毒实验室提供资金支持，以及在疫情爆发初期蓄意打压、掩盖病毒真相的恶行。
 
-据美国单板滑雪运动员杰米-安德森（Jamie Anderson）承认在坡道上训练时感到害怕，她说滑道表面非常硬。杰米-安德森是两届奥运会冠军，她说，“我认为大部分滑道表面都是人造雪铺洒的，所以它并不理想，”安德森还说，“你肯定不想在上面摔倒。”
+但在某些特殊领域，由于缺乏对中共病毒疫苗灾难的认知，疫苗强制接种政策仍在继续：2月2日，美军决定，为了保持美军的战备力，美军将立即解雇拒绝接种“中共病毒疫苗”的现役军人。另外，联邦政府针对全美医护工作者的强制疫苗政策仍在实施。
 
-中共国举办的冬奥会，通过使用破坏生态平衡的“造雪弹”和人工造雪机，制造的人造雪不如自然雪松软，导致雪层过硬，达不到雪上竞技比赛的标准，导致参加冬奥会运动员受伤退赛，严重危及运动员的职业前途和生命安全。郭文贵先生直播中也多次提到冬奥会的人造雪，是中共“以假治国”的缩影，前去参加冬奥会运动员将遭遇各种“意外”，这则新闻正好验证了中共导演的北京冬奥会必将是一次遗臭万年的“政治丑剧”。
+参考链接：
+1) . [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+2) . [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-18..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
+3) . [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-18..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+4) .[Ivermectin for COVID-19: real-time meta analysis of 78 studies](https://ivmmeta.com/)
+5) .[JUST IN – Federal judge in Texas issues a nationwide injunction blocking Biden’s vaccine mandate for federal employees.](https://twitter.com/disclosetv/status/1484575812338823181?s=20)
+6) .[JUST IN – Biden’s vaccine-or-test mandate for workers at large businesses will be withdrawn by OSHA tomorrow.](https://gettr.com/post/pqhyr8309f)
+7) .[One of many medical heros, Dr. @richardursomd, at the DC March today. Thank you!](https://twitter.com/USA_Solutions_/status/1485371519417073670)
+8) . [Why haven’t we let doctors be doctors? Dr. Paul Marik’s experience treating Covid-19 patients is heartbreaking.](https://twitter.com/SenRonJohnson/status/1485700814643638275?s=20)
+9) .[URGENT CARE: Terminally ill father of two says Virginia hospital has discriminated against him based on his vaccination status and the consequences could be deadly.](https://twitter.com/FoxNews/status/1486084047617015818?s=20)
+10) .[Boston patient removed from heart transplant list for being unvaccinated https://trib.al/m1Zyz9V](https://twitter.com/nypost/status/1485971932923183108?s=20)
+11) . [Unvaccinated now barred from French restaurants, sports venues](https://thehill.com/policy/international/591011-unvaccinated-now-barred-from-french-restaurants-sports-venues)
+12) .[Compulsory Covid jabs for NHS workers set to be put on hold after Tory revolt and warning from Royal College of GPs it will lead to chronic staff shortages – while healthcare workers dump their scrubs outside Downing Street during protest march](https://www.dailymail.co.uk/news/article-10431489/Compulsory-Covid-jabs-NHS-staff-delayed-half-year-Tory-revolt-protests.html)
 
-新闻来源：[**北京冬奥会第一摔：日本滑雪女选手摔伤**](https://www.rfi.fr/tw/%E4%BA%9E%E6%B4%B2/20220203-%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E6%9C%83%E7%AC%AC%E4%B8%80%E6%91%94-%E6%97%A5%E6%9C%AC%E6%BB%91%E9%9B%AA%E5%A5%B3%E9%81%B8%E6%89%8B%E6%91%94%E5%82%B7)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+总编: Irene木木
+编辑：静言
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,41 @@
 ---
 
 
-## MV版Hcoin To the Moon上线57天第44次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1955171/)
+## 有声|美国联邦债务首次超过30万亿
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1955320/)
 
-2/4/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线57天第44次位列澳门iTunes热门音乐视频榜榜首，第51次位列前三名
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+依据美财政部数据，国家债务在周二超过30万亿，是建国以来首次, 膨胀的债务大多归咎于Covid-19爆发后，激增的经济救助花销，从19年底至今，国债增长了约7万亿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-3.jpg)图片来源: 网络
+财政部数据在高通胀和供需不平衡的经济背景下发布, 联储预计从三月开始进行一系列的利率上调举动，这将会显著增加政府借债融资成本。
 
-* * *
+由于新冠病毒，在过去的两年财政和货币刺激导致严重超发，以至于现有80%的流通美金是在之前22个月印刷的。
 
-[【PDF 下载】Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+联储主席 Jerome Powell上周表示将开始缩表，这将是2015年后首次利率提升。
 
-* * *
+本届政府开启了前所未有的联邦支出，债务与GDP比值达到了130.65%，即债务超过经济产出。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_121.jpg)
+联邦政府有8万亿国债被外国持有，其中最大债权人是中共当局和日本政府，分别为1.05和1.3万亿美金。
 
+文字版原文：[美国联邦债务首次超过30万亿](https://gnews.org/zh-hans/1952935/)
 
-[【PDF 下载】Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-4-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

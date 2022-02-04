@@ -2,20 +2,24 @@
 ---
 
 
-## 秘翻在线 : 社交媒体巨头Facebook 遭遇历史上最大的股价暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1955310/)
+## Himalaya Pay(HPay)-谢谢七哥送给我们的礼物
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1955491/)
 
-**撰稿：William**
+**撰稿：挺郭吃榴莲**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-221626.jpg)
+谢谢你亲爱的七哥，在2022年大年初一，送了我们这么大一个礼物！
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-04-212511.jpg)图片来源：[www.dailymail.co.uk](https://www.dailymail.co.uk/)
-根据美国CNBC 新闻的报导, Facebook 母公司 Meta 的股价周四暴跌，此前该公司预测下一季度的收入增长低于预期。该公司将隐私变化归咎于苹果 iOS 的隐私变化以及影响广告商预算的宏观经济挑战。在 Facebook 暴跌后，其他社交媒体股票周四也一起下跌。
+咱们的喜支付，上线了！
 
-Facebook 母公司 Meta 的股价本周四收盘下跌超过 26%，并显示出有记录以来每日活跃用户数量首次出现季度下降。在 2018 年 7 月暴跌 19% 之后，该股创下了有史以来最大的单日跌幅。周四的跌幅使其市值缩水超过 2300 亿美元，目前市值约 6600 亿美元。Refinitiv 的数据显示，该公司首次使用新的报告结构以新名称发布了收益，该公司第四季度的收益预期为 3.67 美元，而分析师的预期为 3.84 美元。但该季度的收入超过了 336.7 亿美元，而估计为 334 亿美元。
+我做梦也不会想到，这一辈子，会有实现财富自由的一天。
 
-继Facebook 股价暴跌后，Snap 的股价在收盘后发布财报之前下跌了 23% 以上。 Pinterest 股价下跌超过 10%，Twitter 股价下跌超过 5%。
+陆陆续续，全世界各地的战友发来信息。买吃的，买喝的，买茶叶，买机车，战友相互之间转Hcoin/Hdollar, 秒到账，无手续费。
 
-**新闻来源**：[https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html](https://www.cnbc.com/2022/02/03/facebook-shares-plummet-22percent-after-reporting-weak-guidance.html)
+我的金钱我做主，如果卖货商也注册了喜联储账户，通过了KYC，我们就能向卖货商转账支付Hcoin/Hdollar。省掉了中间环节，无税收无中间商价格，信用背书，点对点付款。
+
+全世界用喜币的人们，在法律范围内，想买啥买啥，没有监管，无繁琐的金钱支出审核环节。
+
+亲爱的战友们！大家用起来吧——Himalaya Pay!
 
  
 
