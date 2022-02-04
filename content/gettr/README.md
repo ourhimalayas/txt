@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/4/2022 12:50 AM (UTC)`
+
+2/3/2022 Miles Guo’s GETTR: My three songs have terrified the CCP old kleptocrats, who also ended up in a dilemma. The Chinese New Year Gala of the New Federal States of China had seen more viewers in the past 24 hours than on the day when it was aired live. The CCP threatened journalists attending the Winter Olympics by using rogue tactics and is making enemies for itself at every moment.<br/><br/>2/3/2022 文贵盖特：文贵的三首歌让老杂毛既恐惧又纠结；新中国联邦新春联欢晚会在过去24小时的回看量超过直播当天的观看量；中共用流氓手段威胁参加冬奥会的记者、每分每秒都在给自己树敌<br/>
+![img](https://media.gettr.com/group46/getter/2022/02/04/00/e5014666-5460-0734-e4d6-21f0bfbc77b0/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 2/3/2022 10:54 PM (UTC)`
@@ -150,13 +157,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 2月1日: 永恒的邓丽君，中国人的骄傲！ 
 ![img](https://media.gettr.com/group8/getter/2022/02/02/02/baecb0cb-18ab-bac6-24d1-3782c85034e0/out.jpg)
-
----
-
-`@miles 2/2/2022 2:18 AM (UTC)`
-
-二月二号：尊敬的战友们好，明天2月2号．早上8:30．开始虎年第一次的大直播，一切都已经开始！
-![img](https://media.gettr.com/group27/getter/2022/02/02/02/fde504f4-22b6-210d-926a-eb06c63e0b1a/200419a9a40802af8671e2ad4209d9a9.jpg)
 
 ---
 

@@ -2,53 +2,31 @@
 ---
 
 
-## 美国联邦债务首次超过30万亿
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1952935/)
+## 扬帆每日速递2022年2月3日版（2）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1953051/)
 
-作者: MOS – 柳是多水土透
+**加拿大温哥华扬帆农场 海报组**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/封面简1.jpg)
+1、中共国央行发行的数字货币(CBDC)，即e-CNY，即将在周五开幕的北京冬奥会上粉墨登场，并作为官方支付方式。e-CNY是以数字资产形式存在的法定货币人民币的克隆并由政府完全控制，与已被中共禁止的去中心化加密货币并不是一回事。
 
+2、英国央行英格兰银行提高了关键利率25个基点，以遏制三十年来最快的通胀。甚至有接近一半的货币政策委员会决策者出人意料地赞成提高50个基点以应对快速上涨的物价。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3、据文贵大直播：Hpay的上线战友们要做以下三件事：第一，时刻宣传Hpay、使用Hpay；第二，想尽一切办法合法推广喜币、增加喜支付的使用，是全球农场第一任务；第三，要认真研究、自己独创Hpay的各种使用领域和方法。
 
+4、据文贵大直播：英国和美国将是喜币和喜支付最大市场之一。他们会最早挑战我们，也会最早没有任何选择地接受我们。
 
-依据美财政部数据，国家债务在周二超过30万亿，是建国以来首次, 膨胀的债务大多归咎于Covid-19爆发后，激增的经济救助花销，从19年底至今，国债增长了约7万亿。
+5、拥有400万微博粉丝的上海华山医院感染科主任张文宏2月1日发表微博文章称，最坏日子要慢慢过去，如果要以极低病死率渡过这次疫情，需要时间可能会稍长一些。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-03-3.jpg)图片来源: 网络
+6、now新闻台1月3日报道，港府对多区的污水进行检测，结果新冠病毒呈阳性。有专家指本地有90条传播链。政府将68个地区纳入强检。评:围区、封楼、禁足己不能滿足政府愿望，用污水阳性来扩大「疫情」。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板3-1_page-0001-1.jpg)
+素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
 
+编辑：文敏
 
+发布：风起云间（文敏）
 
-财政部数据在高通胀和供需不平衡的经济背景下发布, 联储预计从三月开始进行一系列的利率上调举动，这将会显著增加政府借债融资成本。
+海报图片设计：飞天面、 Shuang
 
-由于新冠病毒，在过去的两年财政和货币刺激导致严重超发，以至于现有80%的流通美金是在之前22个月印刷的。
-
-联储主席 Jerome Powell上周表示将开始缩表，这将是2015年后首次利率提升。
-
-本届政府开启了前所未有的联邦支出，债务与GDP比值达到了130.65%，即债务超过经济产出。
-
-联邦政府有8万亿国债被外国持有，其中最大债权人是中共当局和日本政府，分别为1.05和1.3万亿美金。
-
-
-
-相关链接:
-
-[U.S. National Debt Hits $30 Trillion for First Time](https://www.nationalreview.com/news/u-s-national-debt-hits-30-million-for-first-time/)
-
-![This image has an empty alt attribute; its file name is Feb-3.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑/校对/发稿: Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
