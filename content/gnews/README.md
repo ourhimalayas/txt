@@ -15,59 +15,59 @@
 
 ---
 
-### [全球疫情更新（毒疫苗损害免疫力的更多证据）](/content/gnews/1/README.md)
+### [中共花钱买来的多方人士称赞北京冬奥会开幕式](/content/gnews/1/README.md)
+ ` 儒为`
+
+### [全球疫情更新（毒疫苗损害免疫力的更多证据）](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜马拉雅山就是须弥山](/content/gnews/2/README.md)
+### [喜马拉雅山就是须弥山](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [共产党的中国有多荒唐](/content/gnews/3/README.md)
+### [共产党的中国有多荒唐](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [中共再卖国](/content/gnews/4/README.md)
+### [中共再卖国](/content/gnews/5/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中国贫困山区人畜不分群居](/content/gnews/5/README.md)
+### [中国贫困山区人畜不分群居](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [美联储的末日，全球世界经济金融的血雨腥风即将到来](/content/gnews/6/README.md)
+### [美联储的末日，全球世界经济金融的血雨腥风即将到来](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [老人会活得更有尊严有更多的选择权](/content/gnews/7/README.md)
+### [老人会活得更有尊严有更多的选择权](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [来自佩洛西关于冬奥会的警告](/content/gnews/8/README.md)
+### [来自佩洛西关于冬奥会的警告](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [新中国联邦灭掉共产党后要实现](/content/gnews/9/README.md)
+### [新中国联邦灭掉共产党后要实现](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [养老金是统治阶级 统治人类最愚蠢最低级的办法](/content/gnews/10/README.md)
+### [养老金是统治阶级 统治人类最愚蠢最低级的办法](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [错误的理解大自然是迷信 正确的理解大自然是信仰](/content/gnews/11/README.md)
+### [错误的理解大自然是迷信 正确的理解大自然是信仰](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [嘉宾分享（三）](/content/gnews/12/README.md)
+### [嘉宾分享（三）](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [嘉宾分享（二）](/content/gnews/13/README.md)
+### [嘉宾分享（二）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [共产党一定被灭，喜联储书写新的规则（三）](/content/gnews/14/README.md)
+### [共产党一定被灭，喜联储书写新的规则（三）](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [从七大维度浅析中共加强现金存取管控的影响](/content/gnews/15/README.md)
+### [从七大维度浅析中共加强现金存取管控的影响](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [被包装为基督徒的NIH院长柯林斯向信徒宣传新冠的虚假信息](/content/gnews/16/README.md)
+### [被包装为基督徒的NIH院长柯林斯向信徒宣传新冠的虚假信息](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《历史的今天》2022.02.05](/content/gnews/17/README.md)
+### [《历史的今天》2022.02.05](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [共产党一定被灭，喜联储书写新的规则（二）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
 
 ### [《避风港Haven》直播内容精选（第五集上）](/content/gnews/19/README.md)
  ` 喜马拉雅纽约磐石农场`
