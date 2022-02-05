@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 5:44 AM (UTC)`
+
+2/4/2022 Miles Guo: I was deeply shocked by Mubarak’s statement that “it is the Chinese themselves who don’t respect their fellow Chinese”. The CCP took the Chinese people's hard-earned money and invited a bunch of leaders who were begging for food and money to attend the opening ceremony of the Winter Olympics which lasted only 100 minutes. In contrast, the US, which has respected the Chinese people since the Qing Dynasty, authorized the diplomatic departure of its embassy. How pathetic it is!<br/><br/>2/4/2022 文贵直播：穆巴拉克说“中国人不尊敬中国人”深深地震撼了文贵；中共拿中国人的血汗钱请一帮要饭的领导人参加只有100分钟的冬奥会开幕式，而早在清朝就尊敬中国人的美国却授权其使馆外交撤离，可悲啊！<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/05/05/9171effe-f71a-d3f1-ea54-bbf8ab77cb21/out.jpg)
+
+---
+
+`@miles 2/5/2022 5:40 AM (UTC)`
+
+2/4/2022 Miles Guo: Unfortunately, three people have died in the Waldorf Astoria Beijing where Putin is staying, and 16 people in Putin's team are infected with the CCP virus. This sounds quite scary! I have bigger news to share with you later today.<br/><br/>2/4/2022 文贵直播：很不幸的是，普京下榻的华尔道夫酒店已有3人死亡，普京团队16人染毒，着挺吓人呐！今天还有更大的料给大家爆！<br/>
+![img](https://media.gettr.com/group42/getter/2022/02/05/05/eeb2be46-3d3f-d0e4-68b6-6b30f3b96737/out.jpg)
+
+---
+
 `@miles 2/5/2022 5:24 AM (UTC)`
 
 2/4/2022 Miles Guo: The CCP’s troops stationed 5000 kilometers away from Beijing have been ordered to instigate an emergency warfare response. A foreign friend of mine was extremely shocked by the CCP’s conversion of the Pangu Plaza’s dragon-head-shaped tower into a cockhead-shaped one. The abrupt death of a sniper on the day of the opening ceremony of the Winter Olympics and the cluster infection of the CCP virus in Putin's team are by no means accidental. Instead, these are the indications of God’s will to take down the CCP.<br/><br/>2/4/2022 文贵直播：中共军队在距北京5000公里外的地方紧急战备；参加冬奥会的文贵的外国朋友对盘古龙头改龟头感到极为震惊；冬奥会开幕式当天狙击手的暴毙和普京团队集体中招绝非偶然，这是灭共的天意<br/>
@@ -142,20 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" 1/31/2022 文贵虎年新春大直播：新中国联邦版《一帘幽梦》（中英双语版）
 ![img](https://media.gettr.com/group49/origin/2022/02/03/04/58ec53df-63fb-129b-dc77-afe10ba19143/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/3/2022 4:04 AM (UTC)`
-
-2/2/2022 Miles Guo: The Himalaya Pay is a centerless, secured transaction and payment system with no preconditions, zero cost of transaction, and unlimited payment amount. No one can trace where your money goes. It enables everyone to have the freedom of being completely in charge of their wealth. With the Himalaya Pay, people can trade without the need to follow the pricing rules, and this is the most primitive but the most advanced form of trading.<br/><br/>2/2/2022 文贵直播：喜支付是无条件、零交易成本，并无支付额度限制的无中心安全化交易支付系统；谁都找不到你的钱花到了哪里，真正实现了“我的财富我说了算”的自由；喜支付所带来的没有定价规则的交易，虽然是最原始的，但境界却是最高的<br/>
-![img](https://media.gettr.com/group49/getter/2022/02/03/04/edd98ab7-7edc-b478-a058-113c625cdd14/out.jpg)
-
----
-
-`@miles 2/3/2022 3:00 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" <br/><br/>1/31/2022 文贵虎年新春大直播：<br/>新中国联邦版《一帘幽梦》
-![img](https://media.gettr.com/group33/origin/2022/02/03/02/bd84580f-021a-7677-66d3-142c571cf955/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,23 +2,33 @@
 ---
 
 
-## 拜登政府延长针对中共国太阳能电池关税，但却有相关豁免
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958464/)
+## 有声|新中国联邦新闻英文节目完美首播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958567/)
 
-#### 撰稿：彩虹       
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美东时间2月1日晚7点，NFSC News新中国联邦新闻英文节目正式开播，节目时长30分钟，而首期节目的观看人数则达到了9千多人。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-398.png)图片来源：华尔街日报
-2月4日，《国会山报》报道，周五，白宫证实，拜登总统将延长川普时代的太阳能电池关税，但却包含了一些豁免。
+据了解，此次英文节目从筹备到启动只用了短短两周时间。虽然这个项目时间短、任务重，但在所有台前幕后参与制作的战友们的努力下，这台节目如期推出并完美完成首播。
 
-根据白宫的公告，面临涵盖电池和太阳能电池板的201条款（Section 201）关税周日即将到期，拜登政府决定将其再延长四年。然而，延期将豁免双面太阳能电池板（bifacial solar panel），即通常用于大型公共设施的双面电池板（double-sided panel），同时，还将把可以免税进口的太阳能电池的容量从2.5千兆瓦增加到5千兆瓦。
+新中国联邦新闻英文节目将主要面向西方英文观众，其目的是向国际社会传播爆料革命的价值主张和中共病毒及疫苗的真相。而英文节目的推出也标志着新中国联邦媒体逐渐由纯中文向多语种媒体扩展，更是逐渐向国际化迈进。
 
-报道指，两周前，民主党参议员杰姬.罗森（Jacky Rosen）率领八位参议员，要求拜登不要延长该关税。在信中，这些议员们要求拜登政府如果延长此关税的话，“至少”要纳入双面太阳能电池板的豁免。
+另一方面，英文节目的推出将为新中国联邦获取更大的话语权和来自国际社会的承认，也为我们更多地增加国际影响力迈出了成功的一步。
 
-**新闻来源**
+文字版原文：[新中国联邦新闻英文节目完美首播](https://gnews.org/zh-hans/1951085/)
 
-[Biden extends solar panel tariffs with modifications](https://thehill.com/policy/energy-environment/592829-biden-extends-solar-panel-tariffs-with-modifications?rl=1)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
