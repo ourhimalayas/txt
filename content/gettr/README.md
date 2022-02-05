@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 3:29 PM (UTC)`
+
+2月5号：尊敬的战友们好！所谓的冬奥会开幕式后，所有的参加的外国来宾和现场的战友们的反馈，就是这．三句话……
+![img](https://media.gettr.com/group13/getter/2022/02/05/15/c620a5a0-c68e-fa1f-8bb6-2ea934e6f2fc/out.jpg)
+
+---
+
 `@miles 2/5/2022 2:42 PM (UTC)`
 
 <br/> 2月5号悲哀呀悲哀［在中共国，买一个或多个女人均判3年以下有期徒刑，但是买一个鹦鹉都要判5年以下，买2个鹦鹉要判5年以上，买20只癞蛤蟆判3年，所以中国人的命在共产党眼里连鸟都不如，与癞蛤蟆等价。In China, buying one or more women is punishable by up to three years in prison, but buying one parrot is punishable by up to five years, buying two parrots is punishable by more than five years, and buying 20 toads is punishable by three years, so the lives of Chinese people are worse than birds in the eyes of the Communists and are equal to those of toads.］
@@ -149,13 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 2月3号：尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害⚠️正在被更多的人认清真相，并且将带动全球病毒溯源停止疫苗灾难的大运动💪……全球灭共全面开始！共产党你玩球蛋了！
 ![img](https://media.gettr.com/group19/getter/2022/02/03/16/694e7633-6cd6-28ef-b7ab-d631647f836b/out.jpg)
-
----
-
-`@miles 2/3/2022 3:23 PM (UTC)`
-
-2/2/2022 Miles Guo: What does the red of my suit have to do with the Vatican? It was God's will that I received the cufflinks from the Vatican before today's live broadcast.<br/><br/>2/2/2022 文贵直播：文贵这件衣服的红色跟梵蒂冈有何联系？文贵在今天直播前收到梵蒂冈送的袖扣是天意<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/03/15/3fca798c-08ed-e1d7-4e8f-d2ac93dbd085/out.jpg)
 
 ---
 
