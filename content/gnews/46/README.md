@@ -2,34 +2,64 @@
 ---
 
 
-## 瑞典将于2月9日解除中共病毒限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955535/)
+## 数据显示，新冠疫苗接种率高的国家死亡率飙升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1955348/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.jpg)
-据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
+#### **【雅典娜观察】和您一起洞察世界**
 
-对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
+整理报道：不要代表我Kari
+编辑：文泓
 
-目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/10-1.png)图片来源：The Kycker
 
-参考链接：[Sweden to lift most Covid curbs on Feb 9](https://insiderpaper.com/sweden-to-lift-most-covid-curbs-on-feb-9/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+当地时间2月2日，据自然新闻报道，几乎所有“新冠疫苗”接种率高的国家，死亡人数也在不断激增，前辉瑞公司副总裁迈克尔·耶顿博士再次就他所看到的这一现象发表意见。
 
-总编: Jack Li文阳
-编辑： Ivy001
-校正/发稿：Fei797
+在最近的一次采访中，耶顿谈到了苏格兰，是在大量接种疫苗的情况下死亡人数飙升的国家和地区之一。他还谈到了德国、以色列、西班牙、意大利、法国、英国，当然还有美国，这些国家都有类似的趋势。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“在这些国家都看到了全因死亡率显着上升，”耶顿告诉记者：“这是为什么？与往年相比，他们在2021年发生了什么？”
+
+【备注：全因死亡率是指一定时期内各种原因导致的总死亡人数与该人群人口数之比。】
+
+耶顿进一步指出，**与2020年相比，2021年的全因死亡率不仅上升，而且打破了五年的平均水平。是什么发生了改变？那就是数以亿计的人卷起袖子进行刺突蛋白疫苗注射——这就是原因所在。**
+
+苏格兰公共卫生部（PHS）10月14日的新冠每日疫情数据显示，**尽管现在有87%的成年人被认为是“接种了疫苗”，但每周的死亡人数却比正常情况下高出30%，**结果显示令人震惊。
+
+报告阐明：“这标志着连续第20周死亡人数超过五年平均水平，也是自2021年1月10日的一周以来的最高水平。”
+
+在欧洲人口最多的国家德国，据政府人口学家称，2021年9月期间有近78,000人死亡，这比预期数字高出10%以上。
+
+丹麦、芬兰和挪威都出现了类似的死亡高峰，已上比疫情期间的任何其他时间都要高得多。
+
+“连续五个月，2021年已经打破了十年来因各种原因死亡的记录”，丹麦的一份报告阐述：“而同期，新冠的死亡人数接近于零。”
+
+然后，我们看到在英格兰，特别是在年轻的疫苗接种人群中，死亡人数出现了大规模飙升。报告显示，年龄较大的接种者情况较好，而年龄较小的接种者则“首当其冲受到了疫苗伤害”。
+
+“根据世界卫生组织的不良事件数据库VigiAccess.com，在迄今为止报告的240多万起疫苗伤害中，41%是44岁以下的人，只有6%是75岁以上的人。”
+
+在美国，**美国疾病控制和预防中心（CDC）承认，尽管该国80%以上的人据称已经“完全接种疫苗”，但佛罗里达州65岁及以上人口的死亡人数比前一年同期高出14%。**
+
+乔尔·斯莫利在推特上写道：“尽管在65岁以下人群中至少有50%已全面接种了疫苗，但死亡人数仍增加了46%，并且随着报告（数据）的跟进，死亡人数还会上升。”
+
+**这里必须强调的是，他们不是死于“新冠”，而主要死于心脏病发作、中风、血栓、循环系统疾病和神经系统问题——所有疫苗引起的疾病**，**自从接种新冠疫苗以来，医生和科学家就一直警告是疫苗引起这些的伤害。**
+
+“简单地说，疫苗正在增加死亡，而不是减少死亡”，《每日曝光》报道：“它们正在使事情变得更糟，而不是更好。它们正在使危机持续下去，而不是结束它。”
+
+数据图表都显示，在疫苗上市推广后，死亡人数确实急剧上升。而在此之前，死亡率约为平均水平，甚至在某些情况下低于平均水平。
+
+“自7月初以来，有数以千计的死亡不是由冠状病毒引起的，”《每日电讯报》在谈到英国的情况时承认，在英国变暖和阳光充足的时候，死亡人数激增，这是非常反常的。
+
+新闻链接：[Excess deaths soaring in every country where covid “vaccine” uptake is high: data – NaturalNews.com](https://www.naturalnews.com/2022-02-02-excess-deaths-soaring-countries-covid-vaccine-high.html)
+
+***发布：**tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

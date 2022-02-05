@@ -2,19 +2,20 @@
 ---
 
 
-## 共产党把它磁场变化的称为龙脉
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957602/)
+## 无良制药巨头欲强推婴幼儿新冠疫苗
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1957691/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据美国[前线医生组织]2月1日报道，在缺乏临床数据支持的情况下，[辉瑞]及[德国生物技术公司]近日联合向[美国食品药物管理局]提出申请，为其用于6个月至5岁以下婴幼儿的“新冠病毒”疫苗获取紧急使用授权。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道披露：[辉瑞]和[德国生物技术公司]在此前已承认其2至4岁年龄段幼儿疫苗的免疫效果不佳后，随即开始了第三剂的试验。并宣布将在4月前向监管机构提交相关临床实验数据。
+
+据悉，由于目前全球五岁以下儿童超过6亿，因此[辉瑞公司]的市场份额及利润将在该疫苗获批后爆增。尽管mRNA疫苗生产成本可低至每剂1.2美元，但[辉瑞]首席执行官则表示，未来的价格将预计高达每剂175美元。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
