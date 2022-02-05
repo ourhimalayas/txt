@@ -2,31 +2,25 @@
 ---
 
 
-## 有声|北京冬奥开幕在即,日本代表团一选手确诊
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958784/)
+## 索罗斯公开指责习近平对经济和疫情的掌控失利
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1958843/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-北京冬季奥运将于4日开幕，在中共病毒疫情阴影下，当局采取高规格防疫措施。尽管这样，但还是有参赛运动员确诊。
+雅虎是亲共的媒体，索罗斯曾经是海航的投资者，分得一亿股，占海航的25%。索罗斯也是2019年达沃斯论坛的主讲人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Rhae.png)
+虽然索罗斯公开批评习近平，然而他并不想消灭共产体制。媒体是想把自己洗白成中立媒体，对索罗斯而言我有批评习近平。索罗斯在格芯上市时出现在现场。他谈到疫情和经济都会失控，当然他说这番话都是为了经济和利益。
 
-日本奥林匹克运动委员会2月2日表示，参加北京冬季奥运的日本代表团中一名滑雪选手在北京接受PCR检测并确诊。这是参加北京冬奥的日本代表团首度有选手确诊。在去年夏天东京奥运时，日本选手无人确诊。
+索罗斯曾在达沃斯论坛说，习近平是民主世界的敌人。
 
-日本朝日新闻报导，日本奥委会表示，这名滑雪选手在赴北京前在日本接受核酸检测结果呈阴性，但昨天在中共国境内接受PCR检查的结果却呈阳性。目前这名选手正在隔离。 这名日本选手是否能出赛，将由国际奥林匹克委员会或北京冬季奥运组织委员会决定。
+他在代表中共的一些经济盟友，他是在抛弃中共。同时，他也不是想让中共完蛋，他是和中共勾兑的盟友。他想换习近平，继续中共奴役中国人，继续享受奴役中国人所带来的成果。
 
-文字版原文：[北京冬奥开幕在即,日本代表团一选手确诊](https://gnews.org/zh-hans/1955765/)
+索罗斯是王岐山和朱镕基这一派的，98年经济危机时，到香港说要狙击港币，实际上和中共唱双簧。中共说他大败而归，但是他赚的比谁都多。甚至享用器官移植。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+索罗斯在冬奥会开始前讲这番话不是随意的，代表中共某一派系江曾孟王的利益，讲给党内人听的。信息的出口转内销，在海外放信息，再转到国内。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+文案编辑：pangbo磅礴
+校对整理：一念
+上传: 零点
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

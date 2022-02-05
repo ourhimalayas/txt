@@ -2,31 +2,33 @@
 ---
 
 
-## 国际学者呼吁中共国冬奥前勿阻止病毒溯源调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958422/)
+## 中共病毒确诊数近10万 日本考虑延长疫情管控措施
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1958472/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/119875978_whatsubject.jpg)资料图
-据法新社2月3日报道，在2022年北京冬季奥运会揭幕前夕，20名来自欧洲、美国、澳洲、纽西兰、印度和日本的科学家发表题为“允许国际全面调查疫情起源才真正彰显奥运价值”的公开信，严厉批评中共政府不让外界追查病毒起源，要求中共国不要再阻挠针对COVID-19起源的独立调查。信中称，若未能揭露COVID-19病毒真正的起源，将让世界未来陷入更大的全球大流行病风险。
+作者:纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本富士新闻网3日报导，因为东京都单日新增中共病毒确诊数，在2日首度出现创纪录的超过2万人，日本政府正在考虑将包括东京在内的13个都县的疫情管控措施延长2周，以遏止不断激增的中共病毒确诊感染病例。
 
-新冠病毒大流行已经进入第三年，病毒起源独立调查至今无法进行，全世界各国只是强推疫苗。于是新冠病毒成了有史以来第一个全球大流行，但是不治疗，只强制推进接种疫苗的病毒。到现在为止，全世界一半的人口已经完全接种疫苗，但是病毒依然传播迅速，而且变种病毒不断出现。事实已经证明疫苗不起作用，但是强制疫苗措施依然迟迟停不下来，全球各地的抗议此起彼伏。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/np_file_138978.jpeg)图片源自网络
 
-疫苗针对的是病毒，但是病毒源自哪里？基因序列是什么？至今没有答案。解决病毒的最终答案是：找到病毒起源。起源就在中共国武汉病毒实验室。溯源病毒，溯源中共，解决中共，解决病毒。
+富士新闻网指出，政府官员可能会在下周就延长预定于2月13日到期的疫情管制措施，做出最后决定。
 
-新闻参考链接：[国际学者呼吁中共国冬奥前勿阻止病毒溯源调查](https://www.rfi.fr/cn/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E6%8F%AD%E5%B9%95%E5%89%8D%E5%A4%95-%E5%9B%BD%E9%99%85%E5%AD%A6%E8%80%85%E5%90%81%E4%B8%AD%E5%9B%BD%E5%8B%BF%E9%98%BBcovid%E8%B5%B7%E6%BA%90%E8%B0%83%E6%9F%A5)
+ 东京今天将对抗中共病毒疫情的警戒提高到最高级别，在此之前一天，东京2日通报出现创纪录的单日新增21,576起确诊病例，并且在具高度传染力的奥米炕变异株扩大传播下，日本全国2日单日新增中共病毒确诊总数也达到创纪录的94,815例。
 
-编辑：胖丁
+参考链接：[https://www.japantimes.co.jp/news/2022/02/03/national/tokyo-medical-alert/](https://www.japantimes.co.jp/news/2022/02/03/national/tokyo-medical-alert/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编辑：Irene木木
+校对/发稿：Daxia
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

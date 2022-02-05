@@ -2,40 +2,25 @@
 ---
 
 
-## 藏人在奥林匹克总部抗议北京冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958635/)
+## 美国失业率达到4%,文贵大直播透露美国经济崩溃时间
+` 帕米尔高原水` [轉載自GNews](https://gnews.org/zh-hans/1958693/)
 
-撰稿：纽约香草山教育部 -Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
-2月4日，大约500名藏人在国际奥委会总部外游行，抗议北京主办2022冬奥会。来自欧洲各地的藏人示威者从洛桑的国际奥委会大楼出发，前往瑞士的奥林匹克博物馆。同时，包括洛杉矶和旧金山在内的其他世界城市也有示威活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-396.png)
-洛桑的抗议者，许多人举着西藏国旗和写有“抵制北京冬奥会”“停止在西藏侵犯人权”和“耻辱运动会”的标语。
+整理采编：Aiolis
 
-示威者在经过奥运五环时高呼“没有权利，就没有奥运会”，“北京奥运会：种族灭绝运动会”，“不要让北京 2022 变成柏林 1936”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/130637.jpg)
 
-游行队伍中，一个标语牌展示了一名滑雪者站在一辆装有奥运五环轮子的坦克前，再现了1989年北京天安门大屠杀期间孤独的抗议者一人阻挡一列坦克的著名场景。
+图片来自网络
 
-据悉，此次冬季奥运会将在“鸟巢”体育场正式开幕，习近平一心想要营造的太平盛世的气氛被中共国人权问题、中共病毒大流行以及参加冬奥会运动员的安全问题蒙上了阴影。
+美东时间2月4日，文贵先生在大直播中透露了美国经济状况的问题，表示目前还没有到最差的时候。美国作为世界经济的龙头和风向标，一直都有美国经济打喷嚏，世界经济就会重感冒的境地。过去直播中，文贵先生说过美国三个物价指标：第一个，汽油价格不接受超过4美元一加仑。第二个，一块面包的价格不超过4美元。第三个，天然气不超过历史均价的20%。这三个指标是美国政治灾难什么时候发生的参照物。今天的这次文贵直播，关于美国经济话题，表示3月份开始出现崩塌，五月份美国经济出现大崩塌，那时候疫苗灾难一波接着一波的不断升级，大量增发的货币导致物价的飞涨，足以让美国经济走向崩溃，产生的破坏力不能低估，要做好最坏的现金和物资的准备。
 
-链接：[Tibetans protest ‘Games of shame’ at Olympic HQ](https://sports.yahoo.com/tibetans-protest-games-shame-olympic-164903900.html)
+同时美国劳工部周五表示，由于大流行继续影响经济，美国1月份的就业率为4%，比上个月的3.9%略有增加。中共的经济数据都是虚假的，都是中南坑的意志，是假擀面杖，是大外宣的圆慌机构，就从这一条来看，中共政权没有任何存在性价值可言。
 
-[Tibetans march on IOC headquarters to protest Beijing Games](https://www.reuters.com/lifestyle/sports/tibetans-march-swiss-based-ioc-protest-beijing-games-2022-02-03/)
+就在一周前，白宫公开数据告诉民众要在中共病毒大流行下惨淡的就业数据做准备，还有一些专家为报告里显示的情况将失去工作的可能性做准备。白人工人的失业率为3.4%，黑人工人的失业率为6.9%，报告中虽然也有一些良好的局部反馈，无法逆转经济出现经预期的大崩溃，爆料革命通过情报和真实的数据，判断未来即将发生的事件，走到今天，一次次的得到验证，我们为灭共而生，通过灭共拯救被中共荼毒的人类，从地球到宇宙，开启正道主义新的文明纪元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
+参考链接：[U.S. unemployment rate hits 4%, jobs numbers top White House expectations](https://justthenews.com/nation/economy/us-unemployment-rate-hits-4-jobs-numbers-top-white-house-expectations#article)
 
-总编：童谣
+*上传排版：* *Hong*
 
-编辑：文特
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

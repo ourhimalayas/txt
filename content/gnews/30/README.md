@@ -2,20 +2,14 @@
 ---
 
 
-## 有声|加拿大魁北克省放弃“反疫苗税”政策
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958568/)
+## 有声|2022年2月2日 晚 新中国联邦新闻、GTV新闻访谈简报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958571/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间2月1日，据相关媒体报道，加拿大魁北克省准备放弃向该省未接种中共病毒疫苗的居民征收“反疫苗税”的计划。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1.png)
 
-资料显示，魁北克省的省长弗朗索瓦-莱戈尔早先在一份名为“反疫苗税”的提案中声称，该省将向拒绝接种中共病毒疫苗的群体收取100至800加元的费用，用于其所谓的“缓解该省因中共病毒而陷入困境的医疗保健系统”。随后，这一提案引发加拿大各界的批评和反对。
 
-评论人士指出，与其说是为了当地民众的健康，“反疫苗税”提案实质上是出于政治目的，其损害了加拿大全民免费及公平获取医疗保障的权利。另一方面，大量的民众在接种了三剂中共病毒疫苗后依然感染了中共病毒，这足以证明疫苗全然无用。
-
-为此，在当天的新闻发布会上，莱戈尔在声明中表示，“反疫苗税”这一提案会制造当地民众的分裂，甚至可能引发抗议。因此，为了维护当地的和平与稳定，他将放弃该提案。
-
-文字版原文：[加拿大魁北克省放弃“反疫苗税”政策](https://gnews.org/zh-hans/1951248/)
+文字版原文：[2022年2月2日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1949017/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
