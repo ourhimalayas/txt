@@ -2,31 +2,22 @@
 ---
 
 
-## 美国警告中企不要试图帮助俄国对付美国制裁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958032/)
+## 北京奥运会场上和央视对台湾代表团称呼不一
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958096/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-4.jpg)美国警告中企不要试图帮助俄国对付美国制裁 网络图片
-据美国之音2月4日报道，美国国务院发言人普莱斯3日向中共国企业发出警告，不要试图帮助俄罗斯逃避美国对俄罗斯的出口控制。为了阻止俄罗斯十几万大军入侵乌克兰，美国和北约表示，如果俄罗斯总统普京侵犯乌克兰的国家主权，将对俄罗斯实施经济制裁。俄中同盟不足以对抗美国的制裁。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-18.png)（图片源自本文链接）
+2月4日时事通信社消息：4日晚举行的北京冬奥会开幕式的直播中，中共国营中央电视台（CCTV）的播音员将台湾代表团称为“中国台北”。
 
-俄罗斯可能在扩大与中共国的贸易，特别是在能源领域，以应对通往欧洲的天然气管道可能无法输送能源。美国警告称，俄中关系再加强，也不能抵消入侵乌克兰所造成的后果。“如果失去了与西方进行交易的能力，失去了从西方、从欧洲、从美国获取进口的能力，那么你的生产能力和创新潜能将会大大下降”。
+会场上的宣布和以前一样，是“中华台北”，而面向中共国老百姓时，还是基于“一个中国”原则，强调台湾也是中共国的一部分。
 
-只要能对抗美国，中共不惜损兵折将，妄想凭借蚂蚁的力量绊倒美国庞然大物。中共国和俄罗斯属于被称为世界五大邪恶轴心国的团体，分别想要侵略台湾和乌克兰，改变欧亚大陆的地缘和政治格局。邪恶力量连成片、结成同盟，是对国际社会的巨大威胁。
+当台湾代表团入场时，中央电视台切换到习近平在贵宾席上观看的镜头。当香港代表团紧随其后时，中央电视台也播放了习近平相关画面，暗示他希望在“一国两制”下统一台湾。
 
-新闻参考链接：[https://www.voachinese.com/a/u-s-warns-chinese-firms-against-helping-russia-against-potential-ukraine-sanctions-20220204/6426595.html](https://www.voachinese.com/a/u-s-warns-chinese-firms-against-helping-russia-against-potential-ukraine-sanctions-20220204/6426595.html)
+信息来源：[国営テレビ「中国台北」呼称　台湾入場時に習氏の映像　北京五輪〔五輪〕（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4fa6796df99599a817d4b6cfb011adc5ab4238d3)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

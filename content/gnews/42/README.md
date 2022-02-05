@@ -2,33 +2,21 @@
 ---
 
 
-## 吹哨人：澳洲须防中共利用社交媒体假消息干预大选
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956602/)
+## 人民币秒变喜美元（HDO）
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1957611/)
 
-作者：台湾宝岛农场 – 阿尔道夫
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台媒报导，澳洲将于今年5月举行联邦大选，脸书「吹哨人」，也就是脸书的前员工郝根，于2月3日在澳「社交媒体及在线安全调查委员会」公听会中强调，中共已将社交媒体武器化，应预防有人利用社交媒体散播假消息，干预澳洲大选。
+撰稿：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/13.png)
+2月4日，郭文贵先生在大直播上宣布了一个重大好消息：新中国联邦在中共国内设立了把人民币转换成喜美元（HDO）的专门站点，只要把人民币转到指定的账户，人民币就秒变成喜美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-05-at-12.12.34-1.jpeg)
+郭先生解释，在中共国内流通的人民币，共产党已经电子化（去纸币化）90%以上。人民币电子化，交易过程就要求在电子系统上操作，那么就必须存在人民银行和中转行。只要在电子系统上操作，新中国联邦就能够把钱转到海外，除非中共把电子支付系统关闭。
 
-参考链接：
+最后，郭先生直接公开真相，只要有电子支付系统，中共就会用防火墙。新中国联邦用光纤在防火墙拉一个洞，让防火墙失去效用。这一技术谁也挡不住，谁也查不了。只要有像支付宝和微信等有转账功能的支付软件，就可以把钱转到喜联储。转账不需要手续费，而且上不封顶。
 
-- [臉書吹哨人：澳洲須防社交媒體假消息干預大選](https://udn.com/news/story/6811/6075913?from=udn-catebreaknews_ch2)
+目前还没有在中国普及，只授权新中国联邦的喜马拉雅农场开展。未来半年到一年的时间内会公开普及，任何人都可以随便支付任何币到这个账号。
 
+信息来源：**[2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: 童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

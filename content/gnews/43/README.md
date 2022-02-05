@@ -2,37 +2,31 @@
 ---
 
 
-## 美国国立卫生研究院高级官员亚当·霍特为中共工作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956601/)
+## 重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1957558/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体2月2日披露，美国国立卫生研究院临床测序证据生成研究分部联合主席亚当·霍特，在中共政府外国势力的美国中部美中协会担任教育委员会副主席。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-4.jpg)
-美国中部美中协会教育委员会的宗旨是：“汇集基础教育和高等教育的资源，让研究、专业知识和新工作的人致力于美中合作”。该协会与中共政府、领事馆及中共统一战线组织中美交流基金会合作密切。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-根据霍特在领英个人资料中的披露，他自2019年以来一直担任NIH某分部联合主席，与福奇先生共同工作。
+2月4日，郭文贵先生于GTV、Gettr大直播中宣布HDO（喜美元）的重大利好，Hpay（喜支付）开启收人民币秒变HDO（喜美元）的业务，并表示，智慧的使用Hpay（喜支付）创造属于自己的得益商业模式。
 
-参考链接：
-
-- [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/)
-- [https://usheartlandchina.org/zh/](https://usheartlandchina.org/zh/)
-- [赵振格总代表出席美国中国总商会华盛顿分会中秋招待会](https://www.ccpit.org/usa/a/20190913/20190913t2xp.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f81bfc48fe8a83e4a27ce4528d2338f51.png)图片来源Gettr
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: Irene木木
-编辑：文徬
-校正/发稿：海阔天空1
+Hpay（喜支付）无物理行为的、无中心化的加密支付系统保障了用户的绝对隐私，但不少国家的用户往喜交所汇款时都面临不少的障碍，尤其国内的用户面临更多的监督和外汇限制。针对这个情况，郭先生宣布重大利好消息，目前国内已建立收人民币购买HDO（喜美元）的渠道，具体详情需要和各农场联系。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+通过支付宝、微信将人民币转入指定专管账户（汇入金额无上限），在专管账户确认收到人民币后，与转入人民币相匹配的HDO（喜美元）将瞬间自动（无人管理、系统自动执行）到账转款人的Hpay（喜支付）账户，而且全程**0手续费**。这意味着彻底打破了中共的流氓外汇管制，零成本的将国内的人民币盘活，同时增加了Hpay（喜支付）和喜交所的资金流动性。
+
+最重要的是，中共知道这一切的发生却无力阻挡，只要国内有一家处理人民币业务的银行，人民币就可以无间断地进入Hpay（喜支付）和喜联储。尽管绝大多数用户还不了解这一汇款方式，仅在昨天一天就有近13亿的人民币转入到指定账户后瞬间收到HDO（喜美元），震惊所有参与人。Hpay（喜支付）为了全人类的财富自由流通而诞生，作为世界金融规则的创造者对用户的财务信息保护至关重要，选择用人民币换HDO（喜美元）的方法是绝对隐蔽而安全的。
+
+为了避免普通用户承担更多的资金转移成本，Hpay（喜支付）未来只针对大额（千万级或亿级美元）的交易收手续费，但会把费用比例压到很低（遵循仅回收运行成本的原则）。由此看来，Hpay（喜支付）相当于全球第一的金融义工平台。
+
+Hpay（喜支付）特别的功能尤其体现在国际贸易方面，可以省去很多不必要的汇兑成本和税务。
+
+举例说明，国内签署1亿美元交易合同的同时另外签署一份100万美元的报税合同，通过Hpay（喜支付）收到1亿个HDO（喜美元）， 9900万个HDO（喜美元）可以在境外随时提现，或者用于购买原材料继续再生产，这样就可以避免汇兑手续费和重复的税收。总之，Hpay（喜支付）就是智慧的根据自己的需要创造出互利的商业模式。
+
+最后，整个商圈从原材料采购、加工制造、运输、仓储、销售等环节全部使用Hpay（喜支付）循环加智慧的缩小版合同的时候，将大幅降低各个环节的重复消费税和最后的企业所得税，大幅降低甚至消除汇兑交易服务费，最后将降低整个社会的成本，把实惠回馈给终端消费者。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

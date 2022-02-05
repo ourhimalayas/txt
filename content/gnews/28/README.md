@@ -2,33 +2,30 @@
 ---
 
 
-## 【秘翻在线】过百名高中生拒绝盲目服从州长的口罩规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1957977/)
+## 北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958088/)
 
-**撰稿：Grace**
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-69.jpg)[图片来源](https://www.voachinese.com/a/four-Taiwanese-athletes-are-heading-to-compete-in-Beijing-Winter-Olympics-20220124/6410187.html)
+北京冬奥会开幕式2月4日晚在北京国家体育场（俗称“鸟巢”）举行，台湾队继日本后第11名入场。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-04-at-8.31.44-PM.jpeg)图片来源：thepostmillennial
-据 The Gateway Pundit 2 月4日报道，加州奥克戴尔高中 （Oakdale High School）的100多名没有戴口罩的学生被禁止上课。工作人员将拒绝戴口罩的学生关在体育馆内，并调低温控器以 “冻死他们”。
+在中共压力的背景下，台湾在参加包括奥运会在内的许多国际比赛时，被迫使用官方名称“中华台北”而不是官方国名中华民国。
 
-据报道，在加州的纽森（Newsom）州长被发现在49人与公羊队（49ers-Rams）的橄榄球比赛中没有戴口罩后，奥克戴尔联合学区的高中生开始抗议该州的口罩规定。
+当播放“中华台北”的公告时，包括担任旗手的速滑女孩黄玉婷和高山滑雪运动员何冰瑞等共有三个人，进入会场大厅。
 
-其中一名拒绝戴口罩上课的高中生在接受媒体采访时说：“如果他们（政府官员）自己不遵守他们试图强加给我的规则，我为什么要遵守这些规则。”
+关于本届赛事的开闭幕式，台湾最初宣布因新冠病毒疫情缺席，但在开幕前四天的1月31日，“应国际奥委会频繁请求”宣布参加。
 
-报道称，这些勇敢的高中生本周没有戴口罩去上学，而极左派的学校工作人员用午餐桌把孩子们堵在学校的体育馆里。
+另一方面，人们担心仪式会被称为“中国台北”，但现场公告牌却是“中华台北”，就像 2008 年北京夏季奥运会一样。此外，虽然中国官方的中央电视台将其播放为“中国台北”，但NHK在去年夏天东京奥运会后将其介绍为“台湾”，这使许多台湾人感到高兴。
 
-在一名学校工作人员调低恒温器以 “冻死他们 ”之后，警方被要求进行福利检查。
+台湾队一共有15人。共有四名运动员将参加速度滑冰、雪橇和高山滑雪三项比赛。
 
-一名学校官员进行了福利检查，并认为这不是警察的事，所以虐待事件目前没有接受警方调查。
+信息来源：
 
-据报道，逃出冰冷的体育馆后，学生们游行到区总部抗议。而几十名家长也在学校门口展示了对他们的游行的支持。
+[台湾選手団、日本の次に入場 NHKは「台湾」と紹介 北京五輪](https://news.yahoo.co.jp/articles/dd556d58ec814064c20cab24f3d5911819d68740)
 
-接受采访时，这位拒绝盲目服从州长定的口罩规定的高中学生还说道：“当你面对困难时，仅仅因为你正在经历艰难的时刻，并不意味着你应该退缩和放弃你所相信的东西。”
-
-上帝保佑这些孩子。
-
-**新闻来源： ****[California High School Barricades Maskless Children in Gym, Staffer Turns Down Thermostat to “Freeze Them Out”](https://www.thegatewaypundit.com/2022/02/california-high-school-barricades-maskless-children-gym-staffer-turns-thermostat-freeze/)**
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
