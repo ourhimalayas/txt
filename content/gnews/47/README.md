@@ -2,47 +2,34 @@
 ---
 
 
-## 美国数千名军人建脸书群，反对疫苗强制令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1954855/)
+## 瑞典将于2月9日解除中共病毒限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1955535/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1031788169_0-0-3072-2048_1440x900_80_0_1_cd8d251192f8e64eb4b4987e800c1114.jpg3_.jpg)图片来源：www.newsmax.com
-美联社去年12月报道称，去年夏天总统乔·拜登要求各部队完全接种新冠疫苗后，所有军事部门中估计有2万名士兵面临被撤职的危险。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.jpg)
+据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
 
-据 Military.com 网站报道，有超过1.5万名军事人员拒绝遵守疫苗强制令。大约有1.2万份宗教豁免申请被提交，迄今为止，只有海军陆战队批准了这些申请——在上个月3千多份申请中，有3份被批准。
+对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
 
-反对接种新冠疫苗的军人正在以匿名，隐秘的方式在脸书上寻求支援和信息。这个未命名的脸书群拥有来自所有军事部门的约7千名成员，以及他们的配偶。该组织努力隐藏其目的。
+目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
 
-“当你在群里，当你输入某些东西时，你必须把它们称为不同的东西。”一位要求匿名的中士对Military.com 说，“你不能说‘疫苗强制令’或‘上诉’或任何关键词，因为现在脸书对一切内容都过滤得非常好。”
+参考链接：[Sweden to lift most Covid curbs on Feb 9](https://insiderpaper.com/sweden-to-lift-most-covid-curbs-on-feb-9/)
 
-随着军人因未能遵守强制令而开始离职，这个在线群体也已成为一种专业资源。一位接受Military.com采访的上尉说，该群的许多讨论都围绕着将雇用离职军人的地区和公司展开。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-该群作为一个支援网络，用于交流有关向军方提交法律文件的细节、疫苗信息和精神支持。“我从这个小群那里得到了很多信息，这些信息在整个过程中真的非常有用，其中很多信息进一步验证了我自己已经相信的东西，也验证了我自己已经做过的调查。”一位接受 Military.com 采访的飞行员说。
+总编: Jack Li文阳
+编辑： Ivy001
+校正/发稿：Fei797
 
-在脸书群群上，“很多人……在那里张贴他们的抵制，这样我们就可以看到，嘿，是的，这些看起来都一样。”一位接受 Military.com 采访的上尉说道。拒绝者称军方没有单独审查豁免请求。
-
-这位中士说，“我们群组的头号话题之一”是如何反驳军人以前接受过由流产胎儿细胞系制成或开发的疫苗的论点，尽管 Military.com 观察到，新冠疫苗中没有一种含有胎儿细胞。
-
-据 Military.com 报道，该群组成员之一是阿拉巴马州的陆军外科医生特蕾莎·朗 (Theresa Long) 中校，她一直直言不讳地反对新冠疫苗。她提交的代表一起现已被驳回的针对军方疫苗强制令的诉讼的法律文件声称，疫苗含有化学物质聚乙二醇。
-
-“聚乙二醇是防冻剂中的活性成分。”朗在宣誓供词证明中写道，“我无法辨别辉瑞和美国食品和药物管理局发现了什么形式的炼金术，可以使防冻剂成为对人体有益的治疗手段。”
-
-**简评：**随着一个又一个疫苗接种者离奇死亡，美国军人建立的这个脸书群组凸显了军人群体对疫苗的广泛担忧和抵制，也展现出更多的人听到了为正义发声的媒体敲响的警钟。但或许比蔓延的疫苗危机更毛骨悚然的，是主流媒体对本身赖以生存的言论自由面临的压迫无动于衷并继续封锁关于疫苗危害的信息，脸书的言论审查被轻轻略过，似乎不值一提，或理所当然。
-
-该文章引用了Military.com 报道以反驳抵制疫苗的论点，但并没提供任何数据或证据，例如“尽管 Military.com 观察到，新冠疫苗中没有一种含有胎儿细胞”。如此具有有争议性的问题竟以单一媒体的观点作为定论，令人质疑其可信度。
-
-新闻链接：[https://www.newsmax.com/politics/vaccines-military-mandate-facebook/2022/02/01/id/1054988/](https://www.newsmax.com/politics/vaccines-military-mandate-facebook/2022/02/01/id/1054988/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

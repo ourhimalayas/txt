@@ -2,37 +2,37 @@
 ---
 
 
-## 美国国立卫生研究院高级官员亚当·霍特为中共工作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956601/)
+## 前纽芬兰总理就强制令对加拿大政府提起诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1957332/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体2月2日披露，美国国立卫生研究院临床测序证据生成研究分部联合主席亚当·霍特，在中共政府外国势力的美国中部美中协会担任教育委员会副主席。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-4.jpg)
-美国中部美中协会教育委员会的宗旨是：“汇集基础教育和高等教育的资源，让研究、专业知识和新工作的人致力于美中合作”。该协会与中共政府、领事馆及中共统一战线组织中美交流基金会合作密切。
+### 编译: Cran            
 
-根据霍特在领英个人资料中的披露，他自2019年以来一直担任NIH某分部联合主席，与福奇先生共同工作。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16440148811.png)
+在1月26日乔丹.彼德森的播客节目中，前纽芬兰总理,唯一在世的当年参与加拿大宪章的撰写人布莱恩佩克福德,就加拿大政府的强制令提起诉讼。
 
-参考链接：
+佩克福德引用宪法里的一个条款：只有在特别情况下——比如“战争”——才允许政府绕过法律。这次病毒的康复率是99% 而死亡率仅为1%, 根本不算特别情况。他在塔克卡森的采访中说：“当特鲁多总理称未接种疫苗的人为种族主义者，歧视女性者和反科学者和极端分子时， 很明显是在制造分歧”。他认为 强制令是越权行为。 “越来越清楚，疫苗接种并未阻挡病毒的传播”。
 
-- [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/)
-- [https://usheartlandchina.org/zh/](https://usheartlandchina.org/zh/)
-- [赵振格总代表出席美国中国总商会华盛顿分会中秋招待会](https://www.ccpit.org/usa/a/20190913/20190913t2xp.html)
+他指出，加拿大有14个议会却没有一个为人民发声。每个省有一个由纳税人资助的紧急状态组织。此组织应该在紧急状况下做出全面的实施规划。而非由联邦政府来发强制令。
 
+在过去，佩克福德曾就重大事件向有关机构发出信件，然后此信件会在国家范围内传播。然而对于他就疫情所写的信件对方连回执都没有。他认为原因是主流媒体被6亿元所收买。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+他诉讼的重点在于，旅行禁令致使家人和朋友不能相见。“联邦旅行禁令将我与其他加拿大人隔离。这是歧视性的，侵犯了我的宪章权利”。
 
-总编: Irene木木
-编辑：文徬
-校正/发稿：海阔天空1
+他列举出违宪的部分。包括自由结社，发言，集会，思想，移居旅游，生活自由，平等权利。“ 现在所有这些权利被所有的各级特别是联邦政府所侵犯”。他认为宪法中的条款被政府所忽略和越权是很危险的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他表示自己不情愿这样做，但作为仅存的宪法制定人和公民，他必须对政府采取行动。 不然加拿大政府对宪法的藐视和越权将使宪法将无法生存下去。
+
+*始于1981 基于英国宪章，出台了加拿大的法案“爱国条约”。一年以后于1982年改为宪章法案包括了自由人权法案。*
+
+——布莱恩佩克福德
+
+**布莱恩佩克福德**：纽芬兰前总理， 政治家， 在进入政界前，他是一位教师。
+
+**乔丹.彼德森**：加拿大临床心理学家，作者和心理学教授
+
+文章来源: [1](https://www.youtube.com/watch?v=EdhFuMDLBDM) [2](https://www.foxnews.com/world/last-living-signer-of-canadian-constitutional-charter-of-rights-sues-government-over-covid-travel-ban)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

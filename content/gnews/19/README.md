@@ -2,33 +2,31 @@
 ---
 
 
-## 军方告诉渥太华：驱逐卡车司机，找别人去吧！
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1957869/)
+## 美国警告中企不要试图帮助俄国对付美国制裁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958032/)
 
-2022-02-04
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-4.jpg)美国警告中企不要试图帮助俄国对付美国制裁 网络图片
+据美国之音2月4日报道，美国国务院发言人普莱斯3日向中共国企业发出警告，不要试图帮助俄罗斯逃避美国对俄罗斯的出口控制。为了阻止俄罗斯十几万大军入侵乌克兰，美国和北约表示，如果俄罗斯总统普京侵犯乌克兰的国家主权，将对俄罗斯实施经济制裁。俄中同盟不足以对抗美国的制裁。
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/02/PT7SCZGJPY47MYCT8F.png)图片来源：[FIRST READING: Military tells Ottawa to find someone else to evict the truckers](https://nationalpost.com/news/canada/first-reading-military-tells-ottawa-to-find-someone-else-to-evict-the-truckers)
-来自NATIONAL POST二月四日的新闻报道：
+俄罗斯可能在扩大与中共国的贸易，特别是在能源领域，以应对通往欧洲的天然气管道可能无法输送能源。美国警告称，俄中关系再加强，也不能抵消入侵乌克兰所造成的后果。“如果失去了与西方进行交易的能力，失去了从西方、从欧洲、从美国获取进口的能力，那么你的生产能力和创新潜能将会大大下降”。
 
-尽管渥太华警方简略地提出了军事干预的可能性，以清除封锁市中心的自由车队卡车司机的顽固抵抗，但加拿大武装部队CFA很快就表示他们不会这样做。 国防部长发言人周四对《华尔街日报》表示，“在这种情况下，加拿大武装部队不参与执法，也没有计划参与”。
+只要能对抗美国，中共不惜损兵折将，妄想凭借蚂蚁的力量绊倒美国庞然大物。中共国和俄罗斯属于被称为世界五大邪恶轴心国的团体，分别想要侵略台湾和乌克兰，改变欧亚大陆的地缘和政治格局。邪恶力量连成片、结成同盟，是对国际社会的巨大威胁。
 
-总理贾斯汀·特鲁多周四也表示，“目前军事干预还不在考虑范畴”，“在涉及加拿大人民参与的事件中部署军队之前，必须非常非常谨慎”。
+新闻参考链接：[https://www.voachinese.com/a/u-s-warns-chinese-firms-against-helping-russia-against-potential-ukraine-sanctions-20220204/6426595.html](https://www.voachinese.com/a/u-s-warns-chinese-firms-against-helping-russia-against-potential-ukraine-sanctions-20220204/6426595.html)
 
-在近代，只有两起加拿大军队被要求平息内乱的事件。 第一次是 1970 年 10 月的危机，实际上在消灭魁北克分离主义者恐怖主义方面做得很好。 但是，武装士兵集体拘留和平的魁北克民族主义者的场景，一直是当时总理皮埃尔·特鲁多政绩的一个污点。 第二次是 1990 年的奥卡危机，其评说更为复杂。 军方最终确实迫使莫霍克领导的抗议活动停止了他们对有争议的高尔夫球场扩建的封锁，但整个事件是如此混乱，它成了军方不该做什么的范例。 奥卡的经历可以说是加拿大执法部门犹豫派军队对抗封锁的一个关键原因，即使那次他们连续多天完全占领了该国的铁路线。
+* * *
 
-总之，所有这些军事干预话题之所以开始，只是因为渥太华警察局长彼得斯洛利周三表示，“对这次示威，警察可能没有解决方案”，并且“我们正在考虑每一个选项，包括军队对涉民执法的援助”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**点评：**军队是抗御外敌，保护人民，类似六四的事件只有在中共等独裁国家发生。和平抗议集会是宪法赋予公民的权力，驱逐镇压追求自由的和平抗议卡车司机，军队不参与，爱找谁找谁！
 
-原文链接：[FIRST READING: Military tells Ottawa to find someone else to evict the truckers](https://nationalpost.com/news/canada/first-reading-military-tells-ottawa-to-find-someone-else-to-evict-the-truckers)
+编辑：【英国伦敦喜庄园编辑部】
 
-编辑：LILY
-发布：肥鯮
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
