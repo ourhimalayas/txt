@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党把它磁场变化的称为龙脉
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957602/)
+## 新中国联邦人拥有山川密码（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957657/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
@@ -16,7 +16,7 @@
 [澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
- 
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

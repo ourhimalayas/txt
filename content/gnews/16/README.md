@@ -2,8 +2,8 @@
 ---
 
 
-## 属虎猪不能进昆仑山（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957621/)
+## 三合山七哥出生的山（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957668/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
