@@ -2,21 +2,30 @@
 ---
 
 
-## 多国奥运选手将抵制冬奥会开幕式
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961515/)
+## 有声|普京借冬奥割中共韭菜 将签天然气与金融合约
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961586/)
 
-加拿大温哥华杨帆农场枫叶快讯
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月2日，俄罗斯总统普京的幕僚鄂夏柯夫表示，普京在出席冬奥期间将与中共习近平会面，届时将签署天然气、金融合作等15项协议。
 
-采编： Spirit            编辑撰稿：硫酸羟氯喹64
-![2022 Beijing Olympics](https://am14.mediaite.com/med/cnt/uploads/2022/01/GettyImages-1237970843-scaled.jpg)
-据《华盛顿邮报》2月1日报道，多国运动员已声明因中共政权的种族灭绝和反人类罪，而抵制即将在北京举行的冬奥会开幕式。 报道称，近期以来，美国相关机构一直敦促西方国家那些准备参赛的运动员就中共当局的大规模暴行端正立场。尽管大多数运动员都受到了来自国际奥林匹克委员会及其赞助商的压力，但已有为数众多的运动员确认将不参加开幕式，以此作为他们个人的抗议形式。
+天然气方面，双方已有多项的新合约准备签署。 金融上则是俄中希望合作，筹建能抵抗被金融制裁的基础架构。
 
-对此，有评论指出，新中国联邦最近发起的甜蜜蜜灭共运动，通过促成美国外交授权撤其驻北京大使馆，以及目前响彻中国的三首灭共歌曲，将会成功把本次冬奥会变成冬眠会。爆料革命给全世界带来的有关病毒和疫苗的真相，将联合所有正义力量彻底粉碎习近平的奥运痴梦。
+此次跟随普京参与协商的俄罗斯代表团成员，将包括外交部长拉夫罗夫、能源部长舒尔吉诺夫和能源业巨擘俄罗斯石油公司的执行长谢琴。 观察人士认为，此安排显示出普京借有条件出席冬奥会的机会，将在能源交易上大割中共韭菜的意图。
 
-原文链接
+文字版原文：[普京借冬奥割中共韭菜 将签天然气与金融合约](https://gnews.org/zh-hans/1953514/)
 
-发稿：青青
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  
