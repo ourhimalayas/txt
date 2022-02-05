@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的中国有多荒唐
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959554/)
+## 喜马拉雅山就是须弥山
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959561/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
