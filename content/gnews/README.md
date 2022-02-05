@@ -15,122 +15,122 @@
 
 ---
 
-### [因为放盘古片段3人被抓](/content/gnews/1/README.md)
+### [2/4/2022 文贵直播：世界上最严谨的黑社会组织中共迎接参加冬眠会的各国元首的章法未变，但内容皆变,现场几乎90%是军人](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2/4/2022 文贵直播：普京为何住在华尔道夫酒店？出席冬奥会开幕的两位大佬是谁？](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [华尔道夫饭店多人染上病毒死亡](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦重大公告（五）](/content/gnews/2/README.md)
+### [回避不了盘古爆料革命的影子](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [好消息一个个来](/content/gnews/3/README.md)
+### [新中国联邦重大公告（六）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [【粤语配音】2022年2月4日： 冬奥会变成了冬眠会](/content/gnews/4/README.md)
+### [因为放盘古片段3人被抓](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦重大公告（五）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [好消息一个个来](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [【粤语配音】2022年2月4日： 冬奥会变成了冬眠会](/content/gnews/9/README.md)
  ` MOS香港部`
 
-### [祭旗](/content/gnews/5/README.md)
+### [祭旗](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦重大公告（四）](/content/gnews/6/README.md)
+### [新中国联邦重大公告（四）](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [中俄首脑冬奥会议 意在联合应对美欧](/content/gnews/7/README.md)
+### [中俄首脑冬奥会议 意在联合应对美欧](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京出大事了龙头的威力](/content/gnews/8/README.md)
+### [扬帆每日速递2022年2月4日版（2）](/content/gnews/13/README.md)
+ ` 温哥华扬帆农场`
+
+### [北京出大事了龙头的威力](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [北京奥运会场上和央视对台湾代表团称呼不一](/content/gnews/9/README.md)
+### [北京奥运会场上和央视对台湾代表团称呼不一](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”](/content/gnews/10/README.md)
+### [北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦重大公告（二）](/content/gnews/11/README.md)
+### [新中国联邦重大公告（二）](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦重大公告（三）](/content/gnews/12/README.md)
+### [新中国联邦重大公告（三）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦重大公告（一）](/content/gnews/13/README.md)
+### [新中国联邦重大公告（一）](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [GETTR解雇了网络安全团队，前员工表示很担心](/content/gnews/14/README.md)
+### [GETTR解雇了网络安全团队，前员工表示很担心](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [振奋人心的消息，来自美国（中）](/content/gnews/15/README.md)
+### [振奋人心的消息，来自美国（中）](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [振奋人心的消息，来自美国（上）](/content/gnews/16/README.md)
+### [振奋人心的消息，来自美国（上）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [外国记者直播冬奥会时被中共官员粗鲁打断并推出画面](/content/gnews/17/README.md)
- ` 澳喜农场`
-
-### [七哥金句](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [美国警告中企不要试图帮助俄国对付美国制裁](/content/gnews/19/README.md)
+### [美国警告中企不要试图帮助俄国对付美国制裁](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美共和党要求奥林匹克委员会告知运动员在中国的安全风险和种族灭绝](/content/gnews/20/README.md)
- ` 澳喜农场`
-
-### [【秘翻在线】过百名高中生拒绝盲目服从州长的口罩规定](/content/gnews/21/README.md)
+### [【秘翻在线】过百名高中生拒绝盲目服从州长的口罩规定](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奥运开幕荷兰记者直播中遭安保暴力推搡](/content/gnews/22/README.md)
+### [奥运开幕荷兰记者直播中遭安保暴力推搡](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [解析中共国虚假的进出口贸易数据（三）](/content/gnews/23/README.md)
+### [解析中共国虚假的进出口贸易数据（三）](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/24/README.md)
+### [有声|CHD敦促FDA停止幼儿中共病毒疫苗的紧急授权](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [2022年2月5日《樱花快报》：奥地利成为欧洲第一个实施疫苗强制令的国家](/content/gnews/25/README.md)
+### [2022年2月5日《樱花快报》：奥地利成为欧洲第一个实施疫苗强制令的国家](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冬奥剩会开幕式在瘟疫的礼花中负冬而眠](/content/gnews/26/README.md)
+### [冬奥剩会开幕式在瘟疫的礼花中负冬而眠](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [解析中共国虚假的进出口贸易数据（二）](/content/gnews/27/README.md)
+### [解析中共国虚假的进出口贸易数据（二）](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/28/README.md)
+### [有声|美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [DC大中华时事：解放军军机大年初四一早进入台西南空域](/content/gnews/29/README.md)
+### [DC大中华时事：解放军军机大年初四一早进入台西南空域](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [多国奥运选手将抵制冬奥会开幕式](/content/gnews/30/README.md)
+### [多国奥运选手将抵制冬奥会开幕式](/content/gnews/33/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共入侵台湾将导致芯片生产供应危机](/content/gnews/31/README.md)
- ` 扬帆枫叶快讯`
-
-### [特鲁多因在推特上转移公众视线而遭碾压](/content/gnews/32/README.md)
- ` 扬帆枫叶快讯`
-
-### [解析中共国虚假的进出口贸易数据（一）](/content/gnews/33/README.md)
+### [解析中共国虚假的进出口贸易数据（一）](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [每日快报：北京冬奥会是自希特勒时代以来最可耻的奥运会](/content/gnews/34/README.md)
+### [每日快报：北京冬奥会是自希特勒时代以来最可耻的奥运会](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年2月5日《樱花简报》：日本单日新增确诊中共病毒突破10万例 累计超300万例](/content/gnews/35/README.md)
+### [2022年2月5日《樱花简报》：日本单日新增确诊中共病毒突破10万例 累计超300万例](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西媒头条 — 第165期 – 西媒要闻](/content/gnews/36/README.md)
+### [西媒头条 — 第165期 – 西媒要闻](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式](/content/gnews/37/README.md)
+### [重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式](/content/gnews/38/README.md)
  ` YALUN 亚伦`
 
-### [英国政府报告称，接种中共病毒疫苗后儿童死亡的可能性增加 52 倍](/content/gnews/38/README.md)
+### [英国政府报告称，接种中共病毒疫苗后儿童死亡的可能性增加 52 倍](/content/gnews/39/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [前纽芬兰总理就强制令对加拿大政府提起诉讼](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [吹哨人：澳洲须防中共利用社交媒体假消息干预大选](/content/gnews/40/README.md)
  ` NFSC News`

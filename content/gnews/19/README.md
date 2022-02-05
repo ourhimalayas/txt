@@ -2,30 +2,27 @@
 ---
 
 
-## 美国警告中企不要试图帮助俄国对付美国制裁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958032/)
+## 新中国联邦重大公告（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958069/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-4.jpg)美国警告中企不要试图帮助俄国对付美国制裁 网络图片
-据美国之音2月4日报道，美国国务院发言人普莱斯3日向中共国企业发出警告，不要试图帮助俄罗斯逃避美国对俄罗斯的出口控制。为了阻止俄罗斯十几万大军入侵乌克兰，美国和北约表示，如果俄罗斯总统普京侵犯乌克兰的国家主权，将对俄罗斯实施经济制裁。俄中同盟不足以对抗美国的制裁。
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新中国联邦重大公告（一）_01.jpg)
+直播时间：2022.01.26
 
-俄罗斯可能在扩大与中共国的贸易，特别是在能源领域，以应对通往欧洲的天然气管道可能无法输送能源。美国警告称，俄中关系再加强，也不能抵消入侵乌克兰所造成的后果。“如果失去了与西方进行交易的能力，失去了从西方、从欧洲、从美国获取进口的能力，那么你的生产能力和创新潜能将会大大下降”。
+尊敬的战友们好！14亿新中国联邦的战友们好！全世界的朋友们好!
 
-只要能对抗美国，中共不惜损兵折将，妄想凭借蚂蚁的力量绊倒美国庞然大物。中共国和俄罗斯属于被称为世界五大邪恶轴心国的团体，分别想要侵略台湾和乌克兰，改变欧亚大陆的地缘和政治格局。邪恶力量连成片、结成同盟，是对国际社会的巨大威胁。
+今天是2022年1月25号，郭文贵代表新中国联邦和14亿同胞们，以及我们现在正在为世界正义铲除邪恶，铲除魔鬼的英雄勇士们，在这里有重大的公告！现在请我们农场的兄弟姐妹们懂英语的，英语好的和各种语言的，请做好，请把下面这一段正式的公告迅速地传播到全世界上去。
 
-新闻参考链接：[https://www.voachinese.com/a/u-s-warns-chinese-firms-against-helping-russia-against-potential-ukraine-sanctions-20220204/6426595.html](https://www.voachinese.com/a/u-s-warns-chinese-firms-against-helping-russia-against-potential-ukraine-sanctions-20220204/6426595.html)
+本人郭文贵，又名Miles Guo，在我们过去的5年来，一直致力于take down the CCP!给中国带来一个一人一票的选举的民主法治的政权制度。致力于利用我们亲身经历和掌握的共产党在新疆、西藏的种族大屠杀，以及计划当时在香港，现在已经发生了，严重侵犯人权的大屠杀行动，以及我们在五年前和四年前分别的警告西方，共产党正有计划、有组织的对西方文明的世界，也就是对西方的民主法治制度、社会，进行猛烈的攻击，甚至释放化学病毒、黑暗即将来临到世界！
 
-* * *
+发布：*皮特*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

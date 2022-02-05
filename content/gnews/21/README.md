@@ -2,32 +2,31 @@
 ---
 
 
-## 【秘翻在线】过百名高中生拒绝盲目服从州长的口罩规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1957977/)
+## 振奋人心的消息，来自美国（中）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958056/)
 
-**撰稿：Grace**
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/振奋人心的消息（中）_01.jpg)
+2022.1.26七I哥肽I直储
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-04-at-8.31.44-PM.jpeg)图片来源：thepostmillennial
-据 The Gateway Pundit 2 月4日报道，加州奥克戴尔高中 （Oakdale High School）的100多名没有戴口罩的学生被禁止上课。工作人员将拒绝戴口罩的学生关在体育馆内，并调低温控器以 “冻死他们”。
+这个决定是由美国的法治和多个爱护民主法治的人士，以及无数个全球的各民族各国家的爱好正义的人士，对冬奥会的抵制以及对人权的维护，对法治维护作出的正确决定。
 
-据报道，在加州的纽森（Newsom）州长被发现在49人与公羊队（49ers-Rams）的橄榄球比赛中没有戴口罩后，奥克戴尔联合学区的高中生开始抗议该州的口罩规定。
+美国政府已经正式通知北京政府，从即日起，叫做授权撤离美利坚共和国驻北京大使馆。
 
-其中一名拒绝戴口罩上课的高中生在接受媒体采访时说：“如果他们（政府官员）自己不遵守他们试图强加给我的规则，我为什么要遵守这些规则。”
+这是一个重大的决定，我们非常的欢迎和支持美国总统拜登先生和布林肯先生做出这个巨大的政治决定！它对抵制北京冬奥会。
 
-报道称，这些勇敢的高中生本周没有戴口罩去上学，而极左派的学校工作人员用午餐桌把孩子们堵在学校的体育馆里。
+找到病毒真相，停止疫苗灾难，停止新疆大屠杀种族大屠杀，停止在世界上发生的继续发生的各种人道灾难，是巨大的帮助。
 
-在一名学校工作人员调低恒温器以 “冻死他们 ”之后，警方被要求进行福利检查。
+这是新中国联邦和维护法治。维护人权，全球人民的胜利。
 
-一名学校官员进行了福利检查，并认为这不是警察的事，所以虐待事件目前没有接受警方调查。
+发布：*皮特*
 
-据报道，逃出冰冷的体育馆后，学生们游行到区总部抗议。而几十名家长也在学校门口展示了对他们的游行的支持。
-
-接受采访时，这位拒绝盲目服从州长定的口罩规定的高中学生还说道：“当你面对困难时，仅仅因为你正在经历艰难的时刻，并不意味着你应该退缩和放弃你所相信的东西。”
-
-上帝保佑这些孩子。
-
-**新闻来源： ****[California High School Barricades Maskless Children in Gym, Staffer Turns Down Thermostat to “Freeze Them Out”](https://www.thegatewaypundit.com/2022/02/california-high-school-barricades-maskless-children-gym-staffer-turns-thermostat-freeze/)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
