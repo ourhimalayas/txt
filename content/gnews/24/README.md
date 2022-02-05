@@ -2,18 +2,19 @@
 ---
 
 
-## 俄罗斯国家石油公司与中石油达成规模1亿吨的供油协议
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1958335/)
+## 美国什么时候第一次和中国建交（2）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958386/)
 
-素材：波士顿五月花 黄金时代
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TB2SWANb9fD8KJjSszhXXbIJFXa_993831484.jpg)图片来自网络
-路透莫斯科消息，2月4日，根据周五签署的协议，俄罗斯国家石油公司（Rosneft俄油）ROSN.MM 将在10年内通过哈萨克斯坦向中国石油天然气集团公司（中国石油集团CNPC）供应总计1亿吨的石油。
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-原文链接：[俄罗斯国家石油公司与中石油达成规模1亿吨的供油协议](https://cn.reuters.com/article/ru-rosneft-china-cnpc-oil-0204-idCNKBS2K90UH)
+*发布：陶子*
 
-* * *
-
-*发布：吐纳*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

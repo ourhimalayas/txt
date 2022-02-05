@@ -2,30 +2,35 @@
 ---
 
 
-## 国际学者呼吁中共国冬奥前勿阻止病毒溯源调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958422/)
+## 日媒报道中共冬奥会隔离区内新闻自由被限制（视频）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958517/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/119875978_whatsubject.jpg)资料图
-据法新社2月3日报道，在2022年北京冬季奥运会揭幕前夕，20名来自欧洲、美国、澳洲、纽西兰、印度和日本的科学家发表题为“允许国际全面调查疫情起源才真正彰显奥运价值”的公开信，严厉批评中共政府不让外界追查病毒起源，要求中共国不要再阻挠针对COVID-19起源的独立调查。信中称，若未能揭露COVID-19病毒真正的起源，将让世界未来陷入更大的全球大流行病风险。
+撰稿：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+当地时间2月1日，日媒邀请了两位分别在中共冬奥会隔离区内外的记者，探访了中共冬奥会的实地情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-394.png)
+在隔离区内的记者表示，整个隔离区就是一个巨型鸟笼，跟外界几乎彻底隔绝。并且在其中的生活受到严格限制，如同被软禁一般，除了严格的疫情防控措施，记者的出行只能在旅店、新闻中心以及有比赛的场馆之间来回。这位记者还透露，所有在隔离区内的采访，都必须先交由中共审核，并且对于采访中涉及到的提问，都要以中共事先准备好的答案作为最终回答，毫无采访的自由可言。
 
-新冠病毒大流行已经进入第三年，病毒起源独立调查至今无法进行，全世界各国只是强推疫苗。于是新冠病毒成了有史以来第一个全球大流行，但是不治疗，只强制推进接种疫苗的病毒。到现在为止，全世界一半的人口已经完全接种疫苗，但是病毒依然传播迅速，而且变种病毒不断出现。事实已经证明疫苗不起作用，但是强制疫苗措施依然迟迟停不下来，全球各地的抗议此起彼伏。
+在隔离区外的记者则表示，中共国上下并没有迎接冬奥会的气氛，毕竟在中国人民心中过年才是最重要的事情。而中共则在开幕前就为冬奥会定调，并将筛选出展现“成功”的画面，继续对墙内百姓进行洗脑宣传。同时，日媒还特别指出，之所以要强调“成功”，是为今年秋天习的再次连任铺平道路。
 
-疫苗针对的是病毒，但是病毒源自哪里？基因序列是什么？至今没有答案。解决病毒的最终答案是：找到病毒起源。起源就在中共国武汉病毒实验室。溯源病毒，溯源中共，解决中共，解决病毒。
+新闻链接：[20220201日媒揭露CCP冬奧會無新聞自由](https://www.gettr.com/post/psbbzz209f)
 
-新闻参考链接：[国际学者呼吁中共国冬奥前勿阻止病毒溯源调查](https://www.rfi.fr/cn/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E6%8F%AD%E5%B9%95%E5%89%8D%E5%A4%95-%E5%9B%BD%E9%99%85%E5%AD%A6%E8%80%85%E5%90%81%E4%B8%AD%E5%9B%BD%E5%8B%BF%E9%98%BBcovid%E8%B5%B7%E6%BA%90%E8%B0%83%E6%9F%A5)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编/编辑：文特
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+
 
  
 

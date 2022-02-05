@@ -2,20 +2,26 @@
 ---
 
 
-## 普金暴怒冬眠会已经注定
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958334/)
+## 美国又扇中共耳光 两党力推“台湾代表处”更名
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958384/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿: 东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-3.jpg)[图片来源](https://talk.ltn.com.tw/article/paper/1473675)
+美国参众两院议员提出配套法案，要求将台北驻美国的代表处更名为“台湾代表处”。台湾外交部发言人欧江安表达感谢，并持续密切关注法案后续发展。
 
-*发布：陶子*
+美国两党国会议员3日在联邦参众两院提出配套法案，要求美国针对台湾在华府的“驻美国台北经济文化代表处”（TECRO）更名为“台湾代表处”（Taiwan Representative Office）展开协商。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+共同提出法案的共和党籍参议员卢比奥说：“美国必须清楚表明，尽管中国共产党竭尽全力恐吓并胁迫台湾，敌对势力也无权对民主国家主张主权。”
 
+孟南德兹表示，这些法案符合定义台美非正式关系的“台湾关系法”，且表明华府支持台湾“决定自己的未来”。
+
+信息来源：
+
+[【美台互動】美兩黨議員推「台灣駐美代表處」更名　台北表感謝](https://www.rfa.org/cantonese/news/htm/tw-rename-02042022074252.html)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

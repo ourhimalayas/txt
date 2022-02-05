@@ -2,36 +2,26 @@
 ---
 
 
-## 德国、日本的中共病毒感染率再创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958278/)
+## 北京冬奥被全球声讨　美众议长提醒运动员自我保护
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958367/)
 
-作者：约香草山Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2 月2日，据相关媒体报道，德国当天的中共病毒新增感染病例高达20万例，再次突破了此前该国单日新增病例的峰值。目前，德国中共病毒的总感染人数超过一千万。另一方面，该国因中共病毒感染死亡的患者也增加了 196 人，其总死亡人数接近12万。据德国卫生部长预计，奥密克戎变种病毒或将继续在该国肆虐至2月中旬。彼时，该国的单日新增病将会超过40万例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-04-下午10.21.14.png)
-同一天，日本政府也报告了超过9万例的单日中共病毒新增确诊病例，这一数字同样刷新了该国单日确诊数的新纪录。目前，为了应对再次爆发的奥密克戎疫情，政府允许地方当局要求餐饮场所缩短营业时间，并限制或停止供应酒类。
+撰稿: 东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-70.jpg)[图片来源](https://newsin.us/%E4%BD%A9%E6%B4%9B%E8%A5%BF-%E7%89%B9%E6%9C%97%E6%99%AE%E7%9A%84%E5%81%9A%E6%B3%95%E6%84%9A%E8%A0%A2%E4%B8%94%E5%8D%B1%E9%99%A9/)
+美国众议院议长佩洛西在美东时间周四（2月3日）表示，尊重运动员在冬奥期间表达对中国的看法，但担心中共政府会采取手段对运动员及其家人报复。海外的藏人、维吾尔人以及离散的港人等，则继续声讨今届的奥运会“可耻”。
 
-此外，有消息显示，为了应对医疗系统日益增长的压力，日本包括东京、神奈川、大阪和福冈在内的部分地区允许医生在不进行测试的情况下，直接把与感染者生活在同一家庭并且出现症状的密切接触者诊断为中共病毒阳性。
+在华盛顿，美国众议院议长佩洛西出席国会听证，表示很多的国家已经跟随美国的带领，外交抵制北京冬奥，这些国家包括有英国、加拿大、澳大利亚、比利时、丹麦、爱沙尼亚、拉脱维亚及立陶宛。佩洛西说，她想和运动员说：“我知道有运动员想他们在中国时发声，我尊重这些想法，但我也担心中国政府会对他们的声誉和家人作出行动。”佩洛西说，“不要冒险去激怒中国政府，因为他们是残忍无情的”。
 
-对此，日本首相岸田文雄表示，尽管近期日本的感染人数激增，但他不会考虑宣布东京进入紧急状态。
+本周二（2月1日），北京冬奥组委运动员委员会官员再次警告，运动员不能在颁奖礼上发表意见；他们在新闻发布会或采访中可自由表达，但必须要为自己的言论负责。
 
-参考链接：
-1）[Germany to allow large events with up to 10,000 spectators](https://www.reuters.com/world/europe/germany-passes-10-million-mark-covid-19-infections-2022-02-02/)
-2）[Japan’s daily COVID-19 cases exceed 90,000 for first time](https://english.kyodonews.net/news/2022/02/296d90a53465-tokyo-reports-record-21576-daily-covid-19-cases.html)
+国际奥委会对参赛运动员的行为有所规范，禁止运动员在赛事期间抗议，但允许运动员在赛事开始之前，或者与接受媒体访问期间，以及在个人的社交媒体上表达意见。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+信息源：
 
-总编：文特
-编辑：Lakeman文仁
-校正/发稿：呼吸的雾霾（文小呼吸）
+[【北京冬奧】美加抗議聲浪不斷　佩洛西：中國政府殘忍無情](https://www.rfa.org/cantonese/news/bj-protest-02032022150028.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

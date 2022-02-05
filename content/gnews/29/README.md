@@ -2,36 +2,30 @@
 ---
 
 
-## 印度宣布抵制中共北京冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958277/)
+## 加国前亚太国务卿谴责北京冬奥 批评中共犯下反人类罪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958365/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月3日，据媒体消息显示，印度外交部当天宣布，印度驻北京高级外交官将不参加此次北京冬奥会的开幕式和闭幕式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-04-下午10.20.57.png)
-据悉，在中共北京冬奥会宣布由祁发宝担任冬奥会火炬手后，引发了印度政府的强烈不满。
+撰稿: 东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-12.jpg)[图片来源](https://inthenameofconfuciusmovie.com/review-by-david-kilgour/)
+加拿大媒体2月3日刊登前亚太国务卿大卫‧乔高（David Kilgour）投书，指出北京冬奥被称为“群体灭绝奥运”的原因，是中共被公认犯下反人类罪；他批评国际奥委会的做法，并呼吁世界站出来，捍卫所有中国人的权利。
 
-资料显示，2021年夏天发生的中印冲突是自1962年以来最严重的一次。彼时，双方本可以在友好谈判的前提下解决争议，然而，中共政府却派出战斗编队促成了当时的冲突事件。该冲突的为首者正是祁发宝。
+加拿大《渥太华公民报》（Ottawa Citizen）3日刊登，前亚太国务卿大卫‧乔高的文章《冬季奥运——何以我们称之群体灭绝运动会》（Kilgour: Winter Olympics — here’s why we’re calling them the ‘Genocide Games’）。
 
-数据显示，双方在冲突中均伤亡惨重：印度方面一共损失了20名士兵，而中共方则不愿披露真实死亡人数。
+“2月4日，‘群体灭绝奥运会’将开始。”乔高在投书中指出，没有法治（rule-of-law）治理的制衡机制（checks and balances），悲剧就会发生。世界最近纪念“国际大屠杀日”（1月27日），回忆极权纳粹针对六百万犹太人与其他群体实施多年的可怕灭绝政策；在中共相似的治理模式下，对少数群体的严厉迫害，仍持续在中国各地发生。
 
-印度政府表示，中共委任祁发宝作为奥运火炬手是中共将冬奥会政治化的表现。为此，印度将坚决抵制此次冬奥会。
+乔高呼吁，国际奥委会应停止把奥运赛举办权授予极权政权。《奥林匹克宪章》宣扬崇高的理想，但国际奥委会却将2022年冬季奥运会授予中方，中共当局被公认持续犯下反人类罪行，由于中共在人类尊严方面的恶劣记录，八个国家包括加拿大、美国、英国，已宣布外交抵制北京冬季奥运。
 
-参考链接：[Indian diplomats to boycott Beijing Winter Olympics after China makes Galwan PLA soldier torchbearer](https://www.indiatoday.in/india/story/indian-diplomats-in-china-to-boycott-beijing-winter-olympics-after-galwan-hurt-pla-officer-made-torch-bearer-1908335-2022-02-03)
+大卫‧乔高2002年曾任加拿大内阁亚太国务卿，1979年至2006年担任国会议员。2009年乔高和人权律师大卫‧麦塔斯（David Matas）出版《血腥的活摘器官》。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+2021年2月加拿大国会表决无异议通过，认定中共行为构成群体灭绝。
 
-总编：文特
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+信息源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[加国前亚太司司长谴责北京冬奥 吁捍卫中国人权](https://www.epochtimes.com/gb/22/2/4/n13554723.htm)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
