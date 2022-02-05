@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 2:31 PM (UTC)`
+
+2月5号：在中共国生存的女人．连20只癞蛤蟆的价值都不如……这不是今天．也不是昨天，是一直以来都这样，我们都是女人生的，在这样的国家还有自信，还有人权？还有希望吗？
+![img](https://media.gettr.com/group16/getter/2022/02/05/14/99b6a8bb-1e35-3ae0-ea18-91d3563031d0/out.jpg)
+
+---
+
 `@miles 2/5/2022 5:44 AM (UTC)`
 
 2/4/2022 Miles Guo: I was deeply shocked by Mubarak’s statement that “it is the Chinese themselves who don’t respect their fellow Chinese”. The CCP took the Chinese people's hard-earned money and invited a bunch of leaders who were begging for food and money to attend the opening ceremony of the Winter Olympics which lasted only 100 minutes. In contrast, the US, which has respected the Chinese people since the Qing Dynasty, authorized the diplomatic departure of its embassy. How pathetic it is!<br/><br/>2/4/2022 文贵直播：穆巴拉克说“中国人不尊敬中国人”深深地震撼了文贵；中共拿中国人的血汗钱请一帮要饭的领导人参加只有100分钟的冬奥会开幕式，而早在清朝就尊敬中国人的美国却授权其使馆外交撤离，可悲啊！<br/>
@@ -149,13 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border” <br/>1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（纯享版）
 ![img](https://media.gettr.com/group9/origin/2022/02/03/05/ec1ef70d-cce2-a5a2-33dd-252cf5225024/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/3/2022 4:34 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" 1/31/2022 文贵虎年新春大直播：新中国联邦版《一帘幽梦》（中英双语版）
-![img](https://media.gettr.com/group49/origin/2022/02/03/04/58ec53df-63fb-129b-dc77-afe10ba19143/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
