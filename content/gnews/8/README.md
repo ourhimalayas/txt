@@ -2,39 +2,37 @@
 ---
 
 
-## 2.04大直播后记：Hpay接受人民币换HDO
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1961227/)
+## 麦卡洛博士欧洲议会作证呼吁立即停止疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961321/)
 
-整理：雅典娜速记组
-编辑：Mohegayer K. Simon
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，据盖特平台消息显示，美国内科博士、心脏病及流行病学专家彼得-麦卡洛近日在欧洲议会上作证时呼吁，全世界所有的卫生机构和政府都应该支持中共病毒的早期治疗并停止向公众提供错误信息。此外，全球应立即取消中共病毒疫苗的接种工作。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/17-1.png)图片来源：墨尔本雅典娜农场设计组614
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-1.jpeg)
 
+麦卡洛医生证实，科学研究已经明确指出，中共病毒疫苗无法阻止中共病毒的感染，亦不可能达到减少与病毒相关疾病传播的结果，为此，全球各国的强制疫苗令应当被立刻取消。同时，所有市面上的中共病毒疫苗需要被立刻召回并进行彻底的安全性审查。
 
-Hpay可以保证信息安全和钱安全。还有一个，但凡你有一点脑子，这个Hpay可以让你想干啥就干啥啊。但是，不能犯罪啊。首先声明。特别是对中国人。你国内家人都可以拥有Hpay账号。你在北朝鲜你也能有。因为北朝鲜它有一个外宾号啊，它可以买个外宾号，你在北朝鲜买个外宾号，在扬子饭店就可以下载Hpay呀，然后你的钱就给转走了，这是真钱。
+麦卡洛医生也提到，医护人员需要得到来自政府的全面支持，用以为当前的高危患者提供各种形式的治疗方式。更为重要的是，无论在何种情况下，医生们都不能因治疗患者而遭受压力、胁迫或报复。
 
-这个问题，七哥跟那些律师Pk了一万遍了，所有律师都被我“消灭”掉了。这是对的，合法的。任何国家法律，我有钱，我给了对方，你告诉我，我哪犯法了。我非要找个中介啊，第3家银行？我不需要啊。对方用我的钱，我就给他HDO啊。说这个钱怎么安全，我随时可以提现并且我能兑现。而且它是美元。而且，我俩的事儿，我关着你第三方什么事？
+麦卡洛医生也警告称，各国政府的中共病毒疫苗接话延长了疫情肆虐的时间，且大量的事实表明，目前推行的大规模疫苗接种计划导致了更多的感染病例和更高的死亡率。
 
-人类上万年在这个世界上，永远很可悲就是99%的人是被人家给当作奴隶。区别是用文明的方式奴役，还是用粗鲁的方式奴役，还是用中国的方式奴役而已。
+参考链接：
+[https://www.gettr.com/post/psdk8oc0a9https://www.gettr.com/post/psdk8oc0a9](https://www.gettr.com/post/psdk8oc0a9)
 
-我再重申一遍，Hpay是无中心化,无中介方。没有任何中介的，一定要记住，这是它最核心的价值。没有任何人可以知道你，没有任何人看到你的所有的传输数据，没有任何人可以监督你。绝对隐私。更重要的是无条件。人类简直荒唐到极点。虽然我小时候很穷，我很享受我小时候偷我爹一毛钱跟我的发小到餐厅去。拿1毛钱过去，就能买一个糖三角，然后桌上酱油是免费的。俺俩一人一半儿，蘸着酱油吃了。多简单呢？ 我偷了我娘的钱，然后我到了餐厅里面，1毛钱买个糖三角蘸着酱油吃了，爽的不得了，是不是回味无穷？ 你说现在，你要是拿1毛钱去买个糖三角得有多难，到餐厅里边拿现金。现在复杂啊，取钱难，花钱也难，还要证明你钱哪来的？这简直是荒唐到了家啊。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-在国内更难了，你要超过5万块钱，你得解释你为啥汇钱，你为啥存钱？
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-那现在很简单了，现在也包括人民币啊。记住啊，我们有收人民币的。如果你们谁有人民币的话，请和农场联系。我们国内有专门收人民币的啊。你不用汇美金，也可以什么币都可以，请和农场联系。直接这边你变成你HDO了。
-
-记住啊，咱们农场都有特别授权，我现在不能直接说。不管你有多少人民币啊，也是秒到。基本上就是你在国内把钱转到一个账号去，转完以后，你的账号就收到HDO。自动的，没有人操作的，自动的啊，啪就秒变HDO了。
-
-资料来源：郭先生GTV、盖特直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,34 @@
 ---
 
 
-## 2.04大直播后记：冬奥会是共产党噩梦的开始
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1961201/)
+## 土耳其单日奥密克戎确诊病例再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961303/)
 
-整理：雅典娜速记组
-编辑：Mohegayer K. Simon
+作者：纽约香草山农场-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月2日，据相关媒体报道，土耳其政府当天通报了超过11万起单日中共病毒新增确诊病例，这一数字再次刷新了当地自疫情以来的单日确诊峰值。此外，当地当天的新增中共病毒死亡患者达217人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/17-1.png)图片来源：墨尔本雅典娜农场设计组614
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-2.jpeg)
 
+土耳其卫生部长克扎透露，当地几乎所有的确诊病例都是由于奥密克戎变种毒株引起的。
 
-普京本来女儿要去的，最后1分钟，人家女儿不去了。本来给爸爸面子，最后不去了。我告诉你，共产党的冬眠会的开幕式，绝对是共产党一场噩梦的新的开始。记住，我现在几点几分说的话啊，我告诉你们，绝对是习近平和共产党的一场新的噩梦的开始啊。 上面战友说了，只有奥委会主席的镜头，几乎没有外国人的镜头。 普京，在这儿呢，天呐，天呐，天呐 这普京成啥了？ 这也不像真的普京啊。
+值得注意的是，18岁以上的土耳其民众完全接种中共病毒疫苗的比例超过84.49%，另有高达92.56%的民众已经接种了一剂中共病毒疫苗，更有超过两千五百万的土耳其人接种了第三剂疫苗加强针。
 
-还有吗？这是什么台呀？ 乌克兰，墨镜你跑乌克兰干啥去了呀？ 人家在北京电视台，你去乌克兰干嘛？天呢，就把普京给整成那样，太惨了，这真是世界上最荒诞的事情。 你再想想，兄弟,1935年, 1980年，苏联、希特勒那2个运动会，对比今天的冬奥会。你再想想2008年，那个天下唯我独尊的小火炬就在我前面，人类的精英全都在我楼里边。 你再想想，今天爆料革命和新中国联邦。你看里边有多少个不可解释的神秘的事件。
+参考链接：[土耳其單日確診連破紀錄 11萬例幾全因Omicron](https://cn.rti.org.tw/news/view/id/2123691)
 
-我昨天跟一个香港的哥们儿聊天，他也是到北京参加冬奥会的。他说， 郭先生啊，这北京简直就是个死人的地方。 他给我讲半天。他说，这跟2008年是太不一样的呀。 我说，那你跑到那儿干嘛去。 他说，我老爸让我来呀，我这是想走。他说，这跟2008年完全两回事。他说，我尝试问别人，你知道Miles Guo吗？ 每个人都说不要说，不要说。 他说，好多人都还很恐惧呀。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-这是真的，是他的感受。 这个香港的哥们儿很天真，跑过去就问郭文贵，把人家吓得跑！你在北京说鬼来了，没人跑。你要敢说郭文贵来了，所有人都得吓趴下。绝对就这么牛叉，绝对是核武器级的。 你现在到冬奥会，如果有人用麦克风喊郭文贵同志入场，百分之百，所有的人啊，全都得吓趴下了。如果你喊，导弹来了，习近平不会有什么事。如果你喊郭文贵来了， 他百分之百趴地上了。这是生理反应。
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-你看看2008年奥运会，你再看看现在的冬奥会，你再看当年希特勒的所谓最成功的奥运会，还有当年的苏联，哇塞！你知道这真的是天意。
-
-你说啥时候不死人现在死人？ 就在这个时候，在盘古旁边死了人。你啥时候不死人？ 你在华尔道夫酒店死了人。你说啥时候不染病现在染病。把普京的团队感染了10几个人。如果在现场那位是真的普京的话，那就真成了荒诞了。 所以说，现在全世界等着他们的这个乌克兰行动，还有台湾行动。一旦行动起来，这就是一个真实写照了。他们成了全世界的孤家寡人。孤独啊！孤家寡人，太可怕了。
-
-资料来源：郭先生GTV、盖特直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
