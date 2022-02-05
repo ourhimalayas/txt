@@ -2,30 +2,21 @@
 ---
 
 
-## 有声|中共三种武器维稳冬奥会终成泡影
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961609/)
+## 多國奧運選手將抵製冬奧會開幕式
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961615/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月2日的大直播中，郭文贵先生爆料称，此次北京冬奥会已经交由中共军方全权控制，仅安保人员就有近八成来自军队，他们全天24小时执勤维稳。
+加拿大溫哥華楊帆農場楓葉快訊
 
-郭先生透露，这些安保全部配备了三种特殊装备，包括高压电击枪、防暴枪和无声、无色、无味的催眠武器。
+采編： Spirit            編輯撰稿：硫酸羥氯喹64
+![2022 Beijing Olympics](https://am14.mediaite.com/med/cnt/uploads/2022/01/GettyImages-1237970843-scaled.jpg)
+據《華盛頓郵報》2月1日報道，多國運動員已聲明因中共政權的種族滅絕和反人類罪，而抵製即將在北京舉行的冬奧會開幕式。 報道稱，近期以來，美國相關機構一直敦促西方國家那些準備參賽的運動員就中共當局的大規模暴行端正立場。盡管大多數運動員都受到了來自國際奧林匹克委員會及其贊助商的壓力，但已有為數眾多的運動員確認將不參加開幕式，以此作為他們個人的抗議形式。
 
-郭先生还解释道，这些武器除却为了预防冬奥会上的突发事件外，主要还用于窃取参赛运动员们的精子和卵细胞，用以获取巨额利益。此外，中共还将借由机器人技术收集这些运动员们包括影像、声音和DNA在内的生物信息。
+對此，有評論指出，新中國聯邦最近發起的甜蜜蜜滅共運動，通過促成美國外交授權撤其駐北京大使館，以及目前響徹中國的三首滅共歌曲，將會成功把本次冬奧會變成冬眠會。爆料革命給全世界帶來的有關病毒和疫苗的真相，將聯合所有正義力量徹底粉碎習近平的奧運癡夢。
 
-文字版原文：[中共三种武器维稳冬奥会终成泡影](https://gnews.org/zh-hans/1956464/)
+原文鏈接
 
-音频处理/发稿：Daxia
+發稿：青青
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
