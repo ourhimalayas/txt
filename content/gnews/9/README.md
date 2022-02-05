@@ -2,8 +2,8 @@
 ---
 
 
-## 美国什么时候第一次和中国建交（2）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958386/)
+## 美国大使带回美国什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958439/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

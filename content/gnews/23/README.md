@@ -2,8 +2,8 @@
 ---
 
 
-## 普金住的华尔道夫酒店吴小晖的酒店
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958312/)
+## 共产党不是想象中的牛 七哥是最好的证明
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958343/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

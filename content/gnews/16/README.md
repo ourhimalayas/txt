@@ -2,20 +2,24 @@
 ---
 
 
-## 军队战友说进入紧急备战
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958360/)
+## 东京大规模接种疫苗 将扩大到每天约5000人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958377/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-15.png)
+2月2日《日本电视新闻》报道，今天，岸田文雄首相在国会宣布，由自卫队在东京运营的中共病毒（新冠病毒covid-19）疫苗大规模接种场所从下周开始将每天的接种人数从目前的720人增加到约5000人，以便与去年相同的速度进行接种。
 
-*发布：陶子*
+位于东京的大规模疫苗接种点目前每天为720人接种疫苗，原计划从本月7日起将人数增加三倍，每天达到2160人。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+因大规模预约接种点短时间内人数爆满，执政党和反对党都在呼吁增加大规模疫苗接种点的接种人数。
 
+信息源：
+
+[東京の大規模接種“1日5千人程度まで拡大へ”岸田首相表明](https://news.yahoo.co.jp/articles/ba272e54ea00072f1eae5dd72e0d3a8cd42c73e3#:~:text=%E3%83%88%E3%83%)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

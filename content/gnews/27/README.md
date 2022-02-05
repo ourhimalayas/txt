@@ -2,36 +2,31 @@
 ---
 
 
-## 印度宣布抵制中共北京冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958277/)
+## 美新闻集团邮件帐户遭中共黑客入侵
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958301/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月3日，据媒体消息显示，印度外交部当天宣布，印度驻北京高级外交官将不参加此次北京冬奥会的开幕式和闭幕式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-04-下午10.20.57.png)
-据悉，在中共北京冬奥会宣布由祁发宝担任冬奥会火炬手后，引发了印度政府的强烈不满。
+#### 撰稿：彩虹      
 
-资料显示，2021年夏天发生的中印冲突是自1962年以来最严重的一次。彼时，双方本可以在友好谈判的前提下解决争议，然而，中共政府却派出战斗编队促成了当时的冲突事件。该冲突的为首者正是祁发宝。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-389.png)图片来源：FT
+根据《新闻极限》和《国会山报》2月4日的报道，周五，美国新闻集团公司披露，黑客闯入了新闻集团的电子邮件帐户，导致泄露数目不详记者的数据，并指出这是“对中共有利”的黑客行为。
 
-数据显示，双方在冲突中均伤亡惨重：印度方面一共损失了20名士兵，而中共方则不愿披露真实死亡人数。
+根据新闻集团的说法，这一漏洞是在1月下旬被发现的，目前美国麦迪安网络安全公司（Mandiant）已经控制了该漏洞。
 
-印度政府表示，中共委任祁发宝作为奥运火炬手是中共将冬奥会政治化的表现。为此，印度将坚决抵制此次冬奥会。
+新闻集团在给员工的电子邮件中详细说明了攻击的范围，并在提交给美国证券交易委员会（SEC）的文件中列出。该公司说，初步分析表明是外国政府针对其一中个第三方的云端系统。但是，报道却没有说明是哪一家公司的云端系统。
 
-参考链接：[Indian diplomats to boycott Beijing Winter Olympics after China makes Galwan PLA soldier torchbearer](https://www.indiatoday.in/india/story/indian-diplomats-in-china-to-boycott-beijing-winter-olympics-after-galwan-hurt-pla-officer-made-torch-bearer-1908335-2022-02-03)
+麦迪安网络安全公司负责事件响应的副总裁Dave Wong在一份声明中说，该公司认为网络攻击者“为了搜集对中共有利的情报，可能参与了间谍活动”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+报道指，中共国黑客曾多次被指对美国和其他地区的记者进行过黑客攻击。
 
-总编：文特
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+例如，在2013年，《纽约时报》报道了一起黑客入侵事件，该事件影响了属于其员工的53台个人电脑。该报说，当时入侵的时间与它对中共国当时的总理温家宝亲属积累财富的调查相吻合。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+而《华尔街日报》称，中共国黑客在2012年也曾侵入彭博社员工的电脑，由于该通讯社发表了一篇关于中共国现任领导人习近平亲属的报道。当时，彭博社确认其系统成为攻击目标，但其系统没有遭到破坏。
+
+**新闻来源**
+
+[News Corp hit by cyberattack with suspected link to China](https://thehill.com/policy/cybersecurity/592863-news-corp-hit-by-cyberattack-with-suspected-link-to-china?rl=1) [News Corp. Suspects China Behind Cyberattack](https://www.newsmax.com/newsfront/news-corp-rupert-murdoch-cybersecurity-china/2022/02/04/id/1055483/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
