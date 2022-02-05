@@ -2,8 +2,8 @@
 ---
 
 
-## Hpay点到点支付即隐私又快速
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958990/)
+## 习近平的冬奥开幕式共产党噩梦新的开始
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959023/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

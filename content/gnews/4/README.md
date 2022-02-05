@@ -2,8 +2,8 @@
 ---
 
 
-## 喜联储喜币是游戏的制定者（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958980/)
+## 习近平的冬奥开幕式 相由心生充满了恐惧
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959015/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

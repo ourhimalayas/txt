@@ -2,8 +2,8 @@
 ---
 
 
-## 美国整体的经济崩溃还没到
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958868/)
+## 越是自卑的人表现越强大
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958921/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
