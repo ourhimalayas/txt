@@ -2,23 +2,34 @@
 ---
 
 
-## 中共入侵台湾将导致芯片生产供应危机
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961241/)
+## 土耳其单日奥密克戎确诊病例再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961303/)
 
-加拿大温哥华杨帆枫叶快讯
+作者：纽约香草山农场-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月2日，据相关媒体报道，土耳其政府当天通报了超过11万起单日中共病毒新增确诊病例，这一数字再次刷新了当地自疫情以来的单日确诊峰值。此外，当地当天的新增中共病毒死亡患者达217人。
 
-采编撰稿：自由法兰西
-![一个空袋薯片的插图，带有少量剩余的电路计算机芯片。](https://images.axios.com/12J0X9EwtLjIJj8nG9aKGP0un-w=/0x0:1920x1080/1920x1080/2022/01/28/1643409206496.jpg)图片来源
-据美国媒体[Axios]1月31日报道，日趋紧张的中美关系以及不断上升的台海战争风险，都进一步加重了芯片生产和供应短缺的危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-2.jpeg)
 
-报道称，台湾[台积电公司]是全球中高端微芯片的主要供应商，生产用于智能手机和超级计算机等最高科技的芯片。肆虐全球的疫情已造成该公司订单被长时间延误，而一旦中共入侵台湾，芯片供应可能将因此完全中断，并对美国经济和军事带来灾难性的影响。
+土耳其卫生部长克扎透露，当地几乎所有的确诊病例都是由于奥密克戎变种毒株引起的。
 
-尽管英特尔最近宣布斥巨资在俄亥俄州设立两个先进的芯片工厂，但该公司尚未能生产出与[台积电]5纳米产品相媲美的芯片。此外，考虑到台海战争的临近，[台积电]也正在凤凰城建造生产其5纳米芯片的工厂以备不测。
+值得注意的是，18岁以上的土耳其民众完全接种中共病毒疫苗的比例超过84.49%，另有高达92.56%的民众已经接种了一剂中共病毒疫苗，更有超过两千五百万的土耳其人接种了第三剂疫苗加强针。
 
-原文链接
+参考链接：[土耳其單日確診連破紀錄 11萬例幾全因Omicron](https://cn.rti.org.tw/news/view/id/2123691)
 
-校对编辑：硫酸羟氯喹64 发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

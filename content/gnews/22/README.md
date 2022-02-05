@@ -2,33 +2,37 @@
 ---
 
 
-## 美国国会议员呼吁对亨特·拜登的中共国商业交易进行调查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1961261/)
+## 麦卡洛博士欧洲议会作证呼吁立即停止疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961321/)
 
-#### 撰稿：彩虹       
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，据盖特平台消息显示，美国内科博士、心脏病及流行病学专家彼得-麦卡洛近日在欧洲议会上作证时呼吁，全世界所有的卫生机构和政府都应该支持中共病毒的早期治疗并停止向公众提供错误信息。此外，全球应立即取消中共病毒疫苗的接种工作。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-438.png)图片来源：福克斯新闻截图
-2月4日，《福克斯新闻》报道几位共和党议员呼吁对亨特·拜登（Hunter Biden）在中共国的商业交易进行调查，一位参议员要求司法部长梅里克·加兰（Merrick Garland）任命一名特别顾问。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-1.jpeg)
 
-文章说，国会两院的共和党人都抨击“拜登公司”，认为这个长子在中共国的交易缺乏透明度，涉及与中国共产党最高层有联系的公司。
+麦卡洛医生证实，科学研究已经明确指出，中共病毒疫苗无法阻止中共病毒的感染，亦不可能达到减少与病毒相关疾病传播的结果，为此，全球各国的强制疫苗令应当被立刻取消。同时，所有市面上的中共病毒疫苗需要被立刻召回并进行彻底的安全性审查。
 
-田纳西州参议员玛莎·布莱克本（Marsha Blackburn）在给《福克斯数字新闻频道》（Fox News Digital）的一份声明中，要求加兰任命一名特别顾问来调查亨特·拜登的商业交易。
+麦卡洛医生也提到，医护人员需要得到来自政府的全面支持，用以为当前的高危患者提供各种形式的治疗方式。更为重要的是，无论在何种情况下，医生们都不能因治疗患者而遭受压力、胁迫或报复。
 
-同时，威斯康星州参议员罗恩·约翰逊（Ron Johnson）则说，他和同为共和党人的爱荷华州参议员查克·格拉斯利（Chuck Grasssley）“在2020年9月份发布了一份报告，揭示了拜登家族和与中共有关系的个人之间大量的金融交易，（但）我们知道这只是冰山一角”。
+麦卡洛医生也警告称，各国政府的中共病毒疫苗接话延长了疫情肆虐的时间，且大量的事实表明，目前推行的大规模疫苗接种计划导致了更多的感染病例和更高的死亡率。
 
-众议院共和党领导层也抨击拜登政府，如路易斯安那州的少数党党鞭斯蒂芬·斯卡利斯说：“拜登政府对中（共）国的绥靖是危险的，接近或直接在政府中（工作）的人与中共的（利益）纠葛是令人震惊的。。。。。需要对这些做法进行全面调查，众议院共和党人将在夺回众议院控制权时进行严格的监督。”
+参考链接：
+[https://www.gettr.com/post/psdk8oc0a9https://www.gettr.com/post/psdk8oc0a9](https://www.gettr.com/post/psdk8oc0a9)
 
-众议院共和党会议主席、纽约州的伊利斯·斯特凡尼克（Elise Stefanik）则说，“美国人民应该知道亨特·拜登是否仍然持有华锐娱乐（Harves）的股份。现在，拜登总统正试图强行通过将中国共产党的利益置于美利坚合众国之上的立法。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-其他知名的众议院共和党人也发表了看法，密歇根州的众议员丽莎·麦克莱恩（Lisa McClain）说，“难怪拜登总统在中国问题上如此软弱，中国是美国和世界的最大威胁之一，而他自己的儿子正从他与中共的密切关系中获利。。。。。。。我们需要白宫提供一些透明度，说明拜登家族继续从哪些外国实体获利。”
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-报道说，1月份，福克斯商业的一份报告公布了一些电子邮件，显示亨特·拜登的私募股权公司持有一家由中共国高官经营的公司的股份，而该公司与中国共产党的一些最高层官员有关系。
-
-**新闻来源**
-
-[GOP lawmakers call for investigation into Hunter Biden’s Chinese business dealings](https://www.foxnews.com/politics/gop-lawmakers-investigation-hunter-bidens-chinese-business-dealings)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
