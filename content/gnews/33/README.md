@@ -2,40 +2,33 @@
 ---
 
 
-## 藏人在奥林匹克总部抗议北京冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958635/)
+## 美众议院通过《美国竞争法》全面抗衡中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958688/)
 
-撰稿：纽约香草山教育部 -Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
-2月4日，大约500名藏人在国际奥委会总部外游行，抗议北京主办2022冬奥会。来自欧洲各地的藏人示威者从洛桑的国际奥委会大楼出发，前往瑞士的奥林匹克博物馆。同时，包括洛杉矶和旧金山在内的其他世界城市也有示威活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-396.png)
-洛桑的抗议者，许多人举着西藏国旗和写有“抵制北京冬奥会”“停止在西藏侵犯人权”和“耻辱运动会”的标语。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-5.jpg)美众议院通过《美国竞争法》全面抗衡中共 网络图片
+据美国之音2月5日报道，美国国会众议院4日以222票支持、210票反对的表决结果通过《2022年美国竞争法》。该法案的目标为加强美国国内供应链，确保美国在制造、创新和经济实力方面保持领先地位，并能胜过任何国家。美国总统拜登在法案正式获得通过后发表声明表示赞扬。
 
-示威者在经过奥运五环时高呼“没有权利，就没有奥运会”，“北京奥运会：种族灭绝运动会”，“不要让北京 2022 变成柏林 1936”。
+根据《美国竞争法》内容，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资半导体的生产等；授权450亿美元改善美国的供应链，加强制造业，确保更多的美国制造；推动美国的科学研究和技术创新以及确保美国在全球的竞争力和领导地位。拥有1250万会员的的美国最大的劳工组织劳联-产联表示全力支持这部法案。
 
-游行队伍中，一个标语牌展示了一名滑雪者站在一辆装有奥运五环轮子的坦克前，再现了1989年北京天安门大屠杀期间孤独的抗议者一人阻挡一列坦克的著名场景。
+参议院也有类似的投资法案。参议院去年6月《美国创新与竞争法》。参众两院的法案内容都计划提供520亿美元补贴和投资美国半导体制造设施，同时也都将授权在未来五年内为国家科学基金会提供约800亿美元资金。众议院的《美国竞争法》接下来将与参议院的《美国创新与竞争法》展开两院协调，两院版本必须达成最终一致协议，才能正式通过国会，送交白宫由总统签署生效。
 
-据悉，此次冬季奥运会将在“鸟巢”体育场正式开幕，习近平一心想要营造的太平盛世的气氛被中共国人权问题、中共病毒大流行以及参加冬奥会运动员的安全问题蒙上了阴影。
+美国参众两院终于达成一致，认定中共才是美国最大的竞争和威胁。中共是全世界的公敌。中共扰乱了全球经济，制造恶意竞争，破坏了全球秩序。在实验室人工合成病毒并释放到全世界，通过疫苗经济给全人类带来了难以想象的人道灾难。中共不灭，世界不得安宁，人人没有平安，随时随地面临死亡威胁。
 
-链接：[Tibetans protest ‘Games of shame’ at Olympic HQ](https://sports.yahoo.com/tibetans-protest-games-shame-olympic-164903900.html)
+新闻参考链接：[https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html](https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html)
 
-[Tibetans march on IOC headquarters to protest Beijing Games](https://www.reuters.com/lifestyle/sports/tibetans-march-swiss-based-ioc-protest-beijing-games-2022-02-03/)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-总编：童谣
 
-编辑：文特
+编辑：【英国伦敦喜庄园编辑部】
 
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
