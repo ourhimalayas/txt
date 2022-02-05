@@ -2,51 +2,50 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1962033/)
+## 冬奥看台空荡荡，新西兰仅派一名官员助威运动员
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1962191/)
 
-**编译：文舞**
+作者：若蘭 sherryok
+![](https://assets.gnews.org/wp-content/uploads/2022/02/酷翻组1-4.png)
+中共国北京冬奥会为参加开幕式的新西兰运动员和工作人员搭好了舞台，尽管美国、英国、澳大利亚集体抵制冬奥会，新西兰也仅仅派出一位孤零零的代表参加开幕式，为新西兰运动员助威。
 
-您若想了解全文报导内容，请点击标题链接
+[由于对中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[共](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[国人权记录](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[——](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[尤其是对中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[共](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[国新疆维吾尔族人的虐待](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)——对此提出质疑的国家开始考虑对北京冬奥会进行外交抵制，有关国家将派谁参加北京冬奥会的问题在2021年底引发了争议。
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+包括加拿大、比利时、丹麦、爱沙尼亚、立陶宛等十个国家，最终呼吁抵制中共北京奥运，只派运动员参加比赛，不派政治及政府官员出席。
 
-1. [维加诺大主教：时间会证明一切（有组织有计划欺骗全人类感染中共病毒）](https://www.thegatewaypundit.com/2022/02/archbishop-vigano-time-will-make-masks-fall-disguised-saviors-humanity-sought-subjugate-exterminate-citizens-make-chronica/)
+在新西兰，政府就是否会采取相同的抵制手段发出了混乱的信息，只建议不派政府官员出席，但外交与贸易部又指派一名驻北京大使馆的代表出席2月4日的开幕式。
 
+“新西兰大使馆的一名代表正计划参加，作为在没有国际观众的情况下支持我们运动员的一个象征， ”外交部发言人在2月3日的一份声明中说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip维加诺大主教：时间会证明一切（有组织有计划欺骗全人类感染中共病毒）.png)
+“和其他人一样，我们确实对中共国的人权状况感到担忧，我们会继续在私下和公开声明中向中共提出这些问题。 ”
 
-据《门户网》2022年2月2日电，来自意大利的卡洛斯·玛丽亚·维加诺大主教与我们分享了他给美国天主教主教会议（USCCB）和信仰教义部（CDF）主任的[信](https://www.scribd.com/document/556451843/Letter-from-Archbishop-Vigano-to-Church-Bishops%23from_embed)。 他还分享了马西莫·西特罗医学博士给格温妮丝·斯帕德博士的信。他还分享了他发表在《Church Militant》上的信息：梵蒂冈多次对大规模疫苗运动的认可——故意造成谎言大流行，以便支持实施灭绝人类的行为。
+将出席的官员没有进一步说明，但发言人证实新西兰驻华大使克莱尔·费恩利不会出席。
 
-2. [Omicron 导致一月份失去30.1万个工作岗位](https://www.usnews.com/news/economy/articles/2022-02-02/adp-omicron-causes-loss-of-301k-jobs-in-january)
+兼任体育部长的副总理格兰特·罗伯逊此前否认新西兰会在外交上抵制奥运会，同时暗示外交官和其他官员不会出席。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipOmicron-导致一月份失去30.1万个工作岗位.png)
+罗伯逊在2021年12月表示，新西兰“已经没有像以前那样参加外交活动” ，因为政府部长或官员不会前往奥运会，主要是由于中共病毒的大流行。
 
-据《美国新闻》2022年2月2日电，薪资公司（ADP）周三公布，私人雇主在1月份减少了30.1万个工作岗位，去年12月新增就业岗位为80.7万个（超过预期60万个）；美国服务业减少了27.5万个工作岗位，因为Omicron变种在餐馆、日间护理中心和其他亲身服务的企业中造成了严重破坏；劳工部周二（1日）发布的职位空缺报告显示，有1090万个空缺职位。
+他表示，他不会将此称为外交抵制，新西兰奥运代表队可能会从当地外交官那里获得“后勤支持”。
 
-3. [英国科学家让年轻志愿者感染中共病毒，并进行研究](https://www.bloomberg.com/news/articles/2022-02-02/u-k-covid-study-on-healthy-people-was-safe-researchers-say)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip英国科学家让年轻志愿者感染中共病毒，并进行研究.png)（封面来自[fox13.news](https://www.fox13news.com/news/omicron-why-who-skipped-nu-and-xi-in-greek-alphabet-when-naming-latest-variant)）
-据《彭博社》2022年2月2日电，Open Orphan Plc公司周三声称，英国科学家可以安全地让健康年轻人（18-29岁）接触中共病毒（Covid-19），参与者在接触中共病毒后平均约两天后，开始出现感染症状（没有重症），而且病毒在五天左右达到高峰，病毒在鼻子里明显更多；帝国理工学院传染病学教授、该试验的首席调查员Christopher Chiu说，其中有人未检测到阳性。
+但在几天后的议会听证会上，贸易部长达米安·奥康纳似乎证实政府已决定对奥运会进行外交抵制。
 
-4. [美国累计逾7500万人确诊，儿童占1100万人](https://hk.news.yahoo.com/%25E7%25BE%258E%25E5%259C%258B%25E7%25B4%25AF%25E8%25A8%2588%25E9%2580%25BE7500%25E8%2590%25AC%25E4%25BA%25BA%25E7%25A2%25BA%25E8%25A8%25BA-%25E9%2580%25BE1100%25E8%2590%25AC%25E6%2582%25A3%25E8%2580%2585%25E6%2598%25AF%25E5%2585%2592%25E7%25AB%25A5-084250091.html) （无封面）
+国家议员托德麦克莱问他是否支持抵制的决定，奥康纳说， “是的，这是我们作为一个国家需要做的事情”。
 
-据《雅虎新闻》2022年2月2日电，美国约翰斯·霍普金斯大学数据显示，美国至今超过7500万宗中共病毒确诊案例，89万多人死亡；2022年1月新增350万宗儿童确诊案例，而全美已有超过1100万名儿童染疫。
+“我知道这种困境……我们不得不将我们的贸易关系与我们不时向中共提出的其他问题、人权问题区分开来，显然奥运会是另一个外交敏感领域， ”奥康纳说。
 
-5. [大年初二香港增30宗无源头感染个案 足迹遍全港](https://hk.news.yahoo.com/%25E5%25B9%25B4%25E5%2588%259D%25E4%25BA%258C%25E5%25A2%259E-116-%25E7%25A2%25BA%25E8%25A8%25BA-%25E5%2585%25B6%25E4%25B8%25AD-30-%25E5%25AE%2597%25E6%25BA%2590%25E9%25A0%25AD%25E4%25B8%258D%25E6%2598%258E%25E5%2586%258D%25E5%2589%25B5%25E6%2596%25B0%25E9%25AB%2598-084835166.html)
+中共国[举办冬奥会正值这个崛起的超级大国与西方之间](https://www-stuff-co-nz.translate.goog/sport/olympics/300510429/winter-olympics-spotlight-back-on-china-for-covidtinged-games?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=wapp)[关系日益紧张的](https://www-stuff-co-nz.translate.goog/sport/olympics/300510429/winter-olympics-spotlight-back-on-china-for-covidtinged-games?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=wapp)时刻。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip大年初二香港增30宗无源头感染个案-足迹遍全港.png)
+[包括新西兰在内的许多国家对新疆维吾尔穆斯林少数民族](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)的侵犯人权行为越来越直言不讳，并采取行动试图抵制中共在太平洋等地区日益增长的影响力。
 
-据《雅虎新闻》2022年2月2日电，香港卫生署卫生防护中心传染病处主任张竹君逾今日（2日）公布，本日有30宗源头不明中共病毒感染案例，未来“疫情是向上，尚未到顶”（共累计1.4442万宗）；不明源头的30宗：3宗是为德尔塔病毒感染者，居于天水围天泽邨泽星楼、屯门蝴蝶邨蝶翎楼、大围名城3期3座、其余感染者分布于港九新界。
+除此之外，新西兰在2021年12月初，曾与中共签署在冬奥会前的奥林匹克休战协议（这一传统可以追溯到古希腊，以确保冲突不会扰乱比赛）， “四方”成员——美国、印度、澳大利亚和日本——均未支持该决议，新西兰也是五眼情报共享网络（包括澳大利亚、新西兰、加拿大、英国和美国）中唯一签署该休战协议的国家，显示出一个政治小国，在国际冲突事务中的犹豫不决，患得患失的心态。
 
-* * *
+非歧视原则是奥林匹克主义的核心。这包括了基于[种族](https://zh.wikipedia.org/wiki/%E7%A7%8D%E6%97%8F%E6%AD%A7%E8%A7%86)、[肤色](https://zh.wikipedia.org/wiki/%E8%86%9A%E8%89%B2)、[性别](https://zh.wikipedia.org/wiki/%E6%80%A7%E5%88%AB%E6%AD%A7%E8%A7%86)、[性取向](https://zh.wikipedia.org/wiki/%E6%80%A7%E5%8F%96%E5%90%91)、[语言](https://zh.wikipedia.org/wiki/%E8%AF%AD%E8%A8%80)、[宗教](https://zh.wikipedia.org/wiki/%E5%AE%97%E6%95%99)、[政治](https://zh.wikipedia.org/wiki/%E6%94%BF%E6%B2%BB)或政见、[国籍](https://zh.wikipedia.org/wiki/%E5%9B%BD%E7%B1%8D)或社会[出身](https://zh.wikipedia.org/wiki/%E5%87%BA%E8%BA%AB)、财产、[血统](https://zh.wikipedia.org/wiki/%E8%A1%80%E7%B5%B1)或其他社会地位等要素的歧视。而中共正切切实实的实施着对人类种族最大的其实，对新疆维吾尔族，藏族的种族大屠杀，对香港民主运动的扼杀，对中共国内异议人士的任意抓捕和杀害，无时无刻不在亵渎奥运精神。得道多助，失道寡助。一个对自己民族歧视的政府，就能对其他民族好吗？事实上没有人愿意与一个种族内歧视的政府交朋友。支持一个人权劣迹斑斑的政府开奥运会，将会断送人类文明的传承。
 
-***审核：Aries的星
-校对：小东
-发布：信心满满***
+新闻链接： [https://www.stuff.co.nz/national/politics/127674318/new-zealand-to-send-a-single-official-to-cheer-on-olympic-team-at-beijing-winter-games](https://www.stuff.co.nz/national/politics/127674318/new-zealand-to-send-a-single-official-to-cheer-on-olympic-team-at-beijing-winter-games)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+审核校对： sherryok
 
-
+上传排版：水云间
 
  
 

@@ -15,91 +15,91 @@
 
 ---
 
-### [聚焦：中共即将启动新一轮的量化宽松](/content/gnews/1/README.md)
- ` 丁过`
-
-### [【G时新闻】加拿大总理特鲁多感染新冠病毒](/content/gnews/2/README.md)
- ` G-时新闻`
-
-### [习懵了 | 普京团队几乎遭新冠病毒“团灭”，对中共撂下狠话](/content/gnews/3/README.md)
- ` YALUN 亚伦`
-
-### [以色列医院的院长承认新冠重症患者百分之八十完全接种了疫苗](/content/gnews/4/README.md)
- ` xiaobaige`
-
-### [今日盖特大V推荐 — Jair Messias Bolsonaro（雅伊尔·博索纳罗-巴西总统 ）](/content/gnews/5/README.md)
+### [漫威和迷失的女演员伊万杰琳·莉莉抨击强制接种疫苗](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [在2022年人类最黑暗的一年，活下来少害人让家人活好！](/content/gnews/6/README.md)
- ` 【爆料贵语】新西兰伊甸农场`
-
-### [今日盖特大V推荐 — Dr. Vladimir Zev Zelenko（弗拉基米尔·泽连科，即大胡子医生）](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [喜联储是真正的世界金融界的香草山](/content/gnews/8/README.md)
- ` 【爆料贵语】新西兰伊甸农场`
-
-### [黑河市94轮核酸检测，无比神奇的事](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2.4.22大直播后记：越自卑的人越暴虐](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2/5/2022 文贵盖特：普京在北京几乎被团灭后放狠话，中共得拿出半壁江山押给俄罗斯才能让人民币成为其第二法币，这个能实现吗？](/content/gnews/11/README.md)
+### [2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [冬奥会开幕式上乌克兰运动员入场时普京似乎在打瞌睡](/content/gnews/12/README.md)
+### [聚焦：中共即将启动新一轮的量化宽松](/content/gnews/3/README.md)
+ ` 丁过`
+
+### [【G时新闻】加拿大总理特鲁多感染新冠病毒](/content/gnews/4/README.md)
+ ` G-时新闻`
+
+### [嘉宾分享（一）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [习懵了 | 普京团队几乎遭新冠病毒“团灭”，对中共撂下狠话](/content/gnews/6/README.md)
+ ` YALUN 亚伦`
+
+### [以色列医院的院长承认新冠重症患者百分之八十完全接种了疫苗](/content/gnews/7/README.md)
+ ` xiaobaige`
+
+### [今日盖特大V推荐 — Jair Messias Bolsonaro（雅伊尔·博索纳罗-巴西总统 ）](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [在2022年人类最黑暗的一年，活下来少害人让家人活好！](/content/gnews/9/README.md)
+ ` 【爆料贵语】新西兰伊甸农场`
+
+### [今日盖特大V推荐 — Dr. Vladimir Zev Zelenko（弗拉基米尔·泽连科，即大胡子医生）](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [喜联储是真正的世界金融界的香草山](/content/gnews/11/README.md)
+ ` 【爆料贵语】新西兰伊甸农场`
+
+### [文贵先生盖特精要2022/02/05](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [黑河市94轮核酸检测，无比神奇的事](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2.4.22大直播后记：越自卑的人越暴虐](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2/5/2022 文贵盖特：普京在北京几乎被团灭后放狠话，中共得拿出半壁江山押给俄罗斯才能让人民币成为其第二法币，这个能实现吗？](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [冬奥会开幕式上乌克兰运动员入场时普京似乎在打瞌睡](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [冬奥看台空荡荡，新西兰仅派一名官员助威运动员](/content/gnews/13/README.md)
+### [冬奥看台空荡荡，新西兰仅派一名官员助威运动员](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [法律你我他：中共国相关法律-扫黄打非](/content/gnews/14/README.md)
+### [法律你我他：中共国相关法律-扫黄打非](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [加拿大纽芬兰省前省长布莱恩就《加拿大权利和自由宪章》发表了强有力的演讲，我们权利并非他人赋予的](/content/gnews/15/README.md)
+### [加拿大纽芬兰省前省长布莱恩就《加拿大权利和自由宪章》发表了强有力的演讲，我们权利并非他人赋予的](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [俄罗斯将战斗机移至波兰边境的白俄罗斯](/content/gnews/16/README.md)
+### [俄罗斯将战斗机移至波兰边境的白俄罗斯](/content/gnews/20/README.md)
  ` Shuizhuyu`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/17/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [希腊农民举行拖拉机示威 抗议能源成本飙升](/content/gnews/18/README.md)
+### [希腊农民举行拖拉机示威 抗议能源成本飙升](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|Hpay上市隔天PayPal大跌22%](/content/gnews/19/README.md)
+### [有声|Hpay上市隔天PayPal大跌22%](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [中共冬奥会最大的亮点就是不敢把盘古龙楼拍进镜头](/content/gnews/20/README.md)
+### [中共冬奥会最大的亮点就是不敢把盘古龙楼拍进镜头](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/21/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|日本三井物产将在本月发行由黄金锚定的加密货币](/content/gnews/22/README.md)
+### [有声|日本三井物产将在本月发行由黄金锚定的加密货币](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [冬奥会被习近平利用宣传粉饰太平掩盖罪行](/content/gnews/23/README.md)
+### [冬奥会被习近平利用宣传粉饰太平掩盖罪行](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共不顾百姓死活掏钱给巴铁全民免费医疗](/content/gnews/24/README.md)
+### [中共不顾百姓死活掏钱给巴铁全民免费医疗](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [萨省将取消所有疫情限制及疫苗护照措施](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [2022年2月4日《文贵大直播》全文字版](/content/gnews/26/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [318名运动员接种疫苗后心脏骤停或产生严重健康疾患，178 人死亡！](/content/gnews/27/README.md)
- ` 全球G系列咨服群`
-
-### [比利时健将哭诉被隔离引关注 中共迫于压力妥协](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [艾滋病阳性患者身上发现了具有令人担忧的变种数量的冠状病毒](/content/gnews/29/README.md)
+### [比利时健将哭诉被隔离引关注 中共迫于压力妥协](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [文贵先生直播精要 2022/02/04](/content/gnews/30/README.md)

@@ -2,8 +2,8 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国国际时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1961835/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1962033/)
 
 **编译：文舞**
 
@@ -11,38 +11,37 @@
 
 （我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
 
-1.[2022北京冬奥会，流亡藏人抗议再出发](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE/20220202-2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%EF%BC%8C%E6%B5%81%E4%BA%A1%E8%97%8F%E4%BA%BA%E6%8A%97%E8%AE%AE%E5%86%8D%E5%87%BA%E5%8F%91)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip2022北京冬奥会，流亡藏人抗议再出发.png)
-据《法广网》2022年2月2日电，身在法国的“自由西藏大学生”（Etudiants pour un Tibet libre）协会成员德南姆（Tenam）表示，从两次北京奥运会看到藏人的人权自由并未改善，甚至恰恰相反；中共国西藏政策的四个摧毁：一是摧毁世系传承、二是摧毁文化根基、三是破坏亲情关系、四是破坏历史叙述；中共国政府将举办奥运作为专制意识形态的宣传工具。
+1. [维加诺大主教：时间会证明一切（有组织有计划欺骗全人类感染中共病毒）](https://www.thegatewaypundit.com/2022/02/archbishop-vigano-time-will-make-masks-fall-disguised-saviors-humanity-sought-subjugate-exterminate-citizens-make-chronica/)
 
-2. [克里姆林宫：普京与习近平将共抒世界愿景](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220202-%E5%85%8B%E9%87%8C%E5%A7%86%E6%9E%97%E5%AE%AB-%E6%99%AE%E4%BA%AC%E4%B8%8E%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%B0%86%E5%85%B1%E6%8A%92%E4%B8%96%E7%95%8C%E6%84%BF%E6%99%AF)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip克里姆林宫：普京与习近平将共抒世界愿景.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip维加诺大主教：时间会证明一切（有组织有计划欺骗全人类感染中共病毒）.png)
 
-据《法广网》2022年2月2日电，俄罗斯总统普京和习近平将在北京奥运会开幕式上（4日）强调他们对国际安全的“共同愿景”，并声称中共国在乌克兰危机中向俄罗斯提供支持；其次，俄中两国计划在此期间签署一些协议，包括在天然气的战略领域。
+据《门户网》2022年2月2日电，来自意大利的卡洛斯·玛丽亚·维加诺大主教与我们分享了他给美国天主教主教会议（USCCB）和信仰教义部（CDF）主任的[信](https://www.scribd.com/document/556451843/Letter-from-Archbishop-Vigano-to-Church-Bishops%23from_embed)。 他还分享了马西莫·西特罗医学博士给格温妮丝·斯帕德博士的信。他还分享了他发表在《Church Militant》上的信息：梵蒂冈多次对大规模疫苗运动的认可——故意造成谎言大流行，以便支持实施灭绝人类的行为。
 
-3. [日本国会众议院通过关切中国人权状况决议](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220201-%E6%97%A5%E6%9C%AC%E5%9B%BD%E4%BC%9A%E4%BC%97%E8%AE%AE%E9%99%A2%E5%91%A8%E4%BA%8C%E9%80%9A%E8%BF%87%E5%85%B3%E5%88%87%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%9D%83%E7%8A%B6%E5%86%B5%E5%86%B3%E8%AE%AE)
+2. [Omicron 导致一月份失去30.1万个工作岗位](https://www.usnews.com/news/economy/articles/2022-02-02/adp-omicron-causes-loss-of-301k-jobs-in-january)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip日本国会众议院通过关切中国人权状况决议.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipOmicron-导致一月份失去30.1万个工作岗位.png)
 
-据《法广网》2022年2月1日电，日本国会众议院周二（1日）通过的决议名为“关于新疆及其他地区严重人权状况的决议草案”（内容避开了中共国的国家名称或“侵犯人权”的说法）；（点击此处了解相关[决议内容](https://www.shugiin.go.jp/internet/itdb_annai.nsf/html/statics/topics/ketugi220201-1.html)）另外，中共国外交部发言人赵立坚表示，已向日方提出严正交涉，并保留采取进一步措施的权利。
+据《美国新闻》2022年2月2日电，薪资公司（ADP）周三公布，私人雇主在1月份减少了30.1万个工作岗位，去年12月新增就业岗位为80.7万个（超过预期60万个）；美国服务业减少了27.5万个工作岗位，因为Omicron变种在餐馆、日间护理中心和其他亲身服务的企业中造成了严重破坏；劳工部周二（1日）发布的职位空缺报告显示，有1090万个空缺职位。
 
-4. [大陆亚马逊员工呼吁杰夫·贝佐斯帮助其推翻大陆的法律](https://www.businessinsider.com/amazon-jeff-bezos-foxconn-factory-whistleblower-torture-prison-overturn-conviction-2022-1)判决
+3. [英国科学家让年轻志愿者感染中共病毒，并进行研究](https://www.bloomberg.com/news/articles/2022-02-02/u-k-covid-study-on-healthy-people-was-safe-researchers-say)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip英国科学家让年轻志愿者感染中共病毒，并进行研究.png)（封面来自[fox13.news](https://www.fox13news.com/news/omicron-why-who-skipped-nu-and-xi-in-greek-alphabet-when-naming-latest-variant)）
+据《彭博社》2022年2月2日电，Open Orphan Plc公司周三声称，英国科学家可以安全地让健康年轻人（18-29岁）接触中共病毒（Covid-19），参与者在接触中共病毒后平均约两天后，开始出现感染症状（没有重症），而且病毒在五天左右达到高峰，病毒在鼻子里明显更多；帝国理工学院传染病学教授、该试验的首席调查员Christopher Chiu说，其中有人未检测到阳性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip大陆亚马逊员工呼吁杰夫·贝佐斯帮助其推翻大陆的法律判决.png)
+4. [美国累计逾7500万人确诊，儿童占1100万人](https://hk.news.yahoo.com/%25E7%25BE%258E%25E5%259C%258B%25E7%25B4%25AF%25E8%25A8%2588%25E9%2580%25BE7500%25E8%2590%25AC%25E4%25BA%25BA%25E7%25A2%25BA%25E8%25A8%25BA-%25E9%2580%25BE1100%25E8%2590%25AC%25E6%2582%25A3%25E8%2580%2585%25E6%2598%25AF%25E5%2585%2592%25E7%25AB%25A5-084250091.html) （无封面）
 
-据《商业内幕》2022年1月31日电，2019年，唐明芳（男子，Tang Mingfang）向中共国劳工观察（China Labor Watch）泄露了中共国衡阳的富士康工厂让学童非法长时间工作的文件；中共国当局指控拘留该名亚马逊员工泄露（国家）商业机密，后于9月被释放；唐写信给贝佐斯：要求亚马逊大陆工厂向其道歉，并协助当地法院撤销对其的有罪判决。
+据《雅虎新闻》2022年2月2日电，美国约翰斯·霍普金斯大学数据显示，美国至今超过7500万宗中共病毒确诊案例，89万多人死亡；2022年1月新增350万宗儿童确诊案例，而全美已有超过1100万名儿童染疫。
 
-5. [多国奥运健儿抵制北京开幕式](https://www.mediaite.com/sports/olympic-athletes-from-multiple-countries-to-boycott-opening-ceremony-in-beijing-report/)
+5. [大年初二香港增30宗无源头感染个案 足迹遍全港](https://hk.news.yahoo.com/%25E5%25B9%25B4%25E5%2588%259D%25E4%25BA%258C%25E5%25A2%259E-116-%25E7%25A2%25BA%25E8%25A8%25BA-%25E5%2585%25B6%25E4%25B8%25AD-30-%25E5%25AE%2597%25E6%25BA%2590%25E9%25A0%25AD%25E4%25B8%258D%25E6%2598%258E%25E5%2586%258D%25E5%2589%25B5%25E6%2596%25B0%25E9%25AB%2598-084835166.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip多国奥运健儿抵制北京开幕式.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip大年初二香港增30宗无源头感染个案-足迹遍全港.png)
 
-据《Mediaite》援引《华盛顿邮报》2022年2月2日电，来自多国的奥运会运动员将拒绝参加冬奥会开幕式及闭幕式，以声援中共政府侵犯人权行为的受害者。一些运动员说，他们会在奥运会结束后才解释他们为何缺席开幕式，在中国时保持沉默以避免惩罚。包括美国在内的一些国家已经宣布，由于中共国的人权记录，他们将在外交上抵制冬奥会。
+据《雅虎新闻》2022年2月2日电，香港卫生署卫生防护中心传染病处主任张竹君逾今日（2日）公布，本日有30宗源头不明中共病毒感染案例，未来“疫情是向上，尚未到顶”（共累计1.4442万宗）；不明源头的30宗：3宗是为德尔塔病毒感染者，居于天水围天泽邨泽星楼、屯门蝴蝶邨蝶翎楼、大围名城3期3座、其余感染者分布于港九新界。
 
 * * *
 
 ***审核：Aries的星
-校对：阿伯塔
+校对：小东
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)

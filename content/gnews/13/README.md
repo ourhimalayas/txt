@@ -2,50 +2,54 @@
 ---
 
 
-## 冬奥看台空荡荡，新西兰仅派一名官员助威运动员
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1962191/)
+## 黑河市94轮核酸检测，无比神奇的事
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1962295/)
 
-作者：若蘭 sherryok
-![](https://assets.gnews.org/wp-content/uploads/2022/02/酷翻组1-4.png)
-中共国北京冬奥会为参加开幕式的新西兰运动员和工作人员搭好了舞台，尽管美国、英国、澳大利亚集体抵制冬奥会，新西兰也仅仅派出一位孤零零的代表参加开幕式，为新西兰运动员助威。
+**【国内新闻短评】**
 
-[由于对中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[共](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[国人权记录](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[——](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[尤其是对中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[共](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[国新疆维吾尔族人的虐待](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)——对此提出质疑的国家开始考虑对北京冬奥会进行外交抵制，有关国家将派谁参加北京冬奥会的问题在2021年底引发了争议。
+网易新闻2022年1月30日报道：疑似黑河第94次核酸检测引网友担忧，专家建议对已接种疫苗测抗体
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-528-e1644097946826.png)图片来源：爱剧网![](https://assets.gnews.org/wp-content/uploads/2022/02/image-529.png)
+**短评：**
 
-包括加拿大、比利时、丹麦、爱沙尼亚、立陶宛等十个国家，最终呼吁抵制中共北京奥运，只派运动员参加比赛，不派政治及政府官员出席。
+94次核酸检测，一定是世界第一。是的，请不要奇怪，因为在中共治下任何匪夷所思的神奇事件都可能发生。
 
-在新西兰，政府就是否会采取相同的抵制手段发出了混乱的信息，只建议不派政府官员出席，但外交与贸易部又指派一名驻北京大使馆的代表出席2月4日的开幕式。
+**神奇消失的网易原文**
 
-“新西兰大使馆的一名代表正计划参加，作为在没有国际观众的情况下支持我们运动员的一个象征， ”外交部发言人在2月3日的一份声明中说。
+2022年1月30日，网易新闻报道，疑似黑河第94次核酸检测引网友担忧，专家建议对已接种疫苗测抗体。2月1日再次点击此文发现已经没有原文，仅在“霓虹灯下网站”显示如上图的标题页面而无内容，却在不起眼的“爱剧网”上看到了全文。
 
-“和其他人一样，我们确实对中共国的人权状况感到担忧，我们会继续在私下和公开声明中向中共提出这些问题。 ”
+这真是件神奇的事。其一，一个近129万人口的地级市94次核酸检测，如此浩荡宏伟的工程，一定会引起“不明真相的群众”的热议；按中共的一贯手段，应该是言辞凿凿地“辟谣”以正视听，而不是低调的撤稿，难道是证据确凿吗？其二，原文虽已撤稿，却还有《爱剧网》这样的漏网之鱼，这似乎不符合中共挥舞铁拳“集中力量办大事”的雄伟气概。难道是欲遮还露？真有点让人摸不着头脑。
 
-将出席的官员没有进一步说明，但发言人证实新西兰驻华大使克莱尔·费恩利不会出席。
+**神奇的核酸检测**
 
-兼任体育部长的副总理格兰特·罗伯逊此前否认新西兰会在外交上抵制奥运会，同时暗示外交官和其他官员不会出席。
+澎湃新闻2021年11月9报道，“黑河：11月9日～10日，开展了城乡第14轮全员核酸检测工作”。以此计算，自2021年11月10日至2020年1月30日，期间共81天，一共做了80轮核酸检测。
 
-罗伯逊在2021年12月表示，新西兰“已经没有像以前那样参加外交活动” ，因为政府部长或官员不会前往奥运会，主要是由于中共病毒的大流行。
+81天80次核酸检测，平均每天一轮，想必你我都会瞠目结舌。其一，每天一次，一定是疫情极为严重，但是我们似乎没有看到有关疫情的“严重报道”。其二，如此密集的核酸检测，即使不是每次近129万人的全员检测，按每次60万或40万平均计算，每天这个数量都是件“集中力量办大事”的伟大举动。其三，如此密集与规模的核酸检测，就不担心互相感染？这到底是为了控制疫情，还是为了传播疫情？其四，如此密集的检测，该需要多少工作人员不辞辛劳，而被检测者要化多少时间积极配合？
 
-他表示，他不会将此称为外交抵制，新西兰奥运代表队可能会从当地外交官那里获得“后勤支持”。
+**神奇的新冠疫苗**
 
-但在几天后的议会听证会上，贸易部长达米安·奥康纳似乎证实政府已决定对奥运会进行外交抵制。
+中共国已经86.5%的人接种了疫苗，人均接种2.45针。按中共黑河政府的检测频率可以推测牠们对人民的“关爱”，那么新冠疫苗接种率一定不会低于全国平均水平。
 
-国家议员托德麦克莱问他是否支持抵制的决定，奥康纳说， “是的，这是我们作为一个国家需要做的事情”。
+既然怎么高的新冠疫苗接种率，而中共标榜的疫苗又是如此有效，那么，我们是否该有如下疑问？其一，如果疫苗有效，接种二针和三针的人应该有免疫功能，为何需要如此密集的核酸检测？其二，如果怀疑疫苗无效，那么中共能不能做一下疫苗抗体检测？那怕1次也可以，那样就可以将有抗体的排除在核酸检测之列。其三，如果疫苗无效，那么为何要在全国范围内强制疫苗？
 
-“我知道这种困境……我们不得不将我们的贸易关系与我们不时向中共提出的其他问题、人权问题区分开来，显然奥运会是另一个外交敏感领域， ”奥康纳说。
+种种疑问让我们觉得神奇，更神奇的是竟然有怎么多人接受多次疫苗接种和频繁的核酸检测。其实答案非常简单，只是在神奇的国度有神奇的人民可以让中共肆无忌惮的做出种种超乎想象的事；黑河如此，黑龙江如此，全中共国莫不如此。
 
-中共国[举办冬奥会正值这个崛起的超级大国与西方之间](https://www-stuff-co-nz.translate.goog/sport/olympics/300510429/winter-olympics-spotlight-back-on-china-for-covidtinged-games?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=wapp)[关系日益紧张的](https://www-stuff-co-nz.translate.goog/sport/olympics/300510429/winter-olympics-spotlight-back-on-china-for-covidtinged-games?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=wapp)时刻。
+文章观点仅代表作者，与Gnews 平台无关
 
-[包括新西兰在内的许多国家对新疆维吾尔穆斯林少数民族](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)的侵犯人权行为越来越直言不讳，并采取行动试图抵制中共在太平洋等地区日益增长的影响力。
+新闻链接：[https://c.m.163.com/news/a/GUV61E130540Q9QQ.html?spss=newsapp](https://c.m.163.com/news/a/GUV61E130540Q9QQ.html?spss=newsapp)
 
-除此之外，新西兰在2021年12月初，曾与中共签署在冬奥会前的奥林匹克休战协议（这一传统可以追溯到古希腊，以确保冲突不会扰乱比赛）， “四方”成员——美国、印度、澳大利亚和日本——均未支持该决议，新西兰也是五眼情报共享网络（包括澳大利亚、新西兰、加拿大、英国和美国）中唯一签署该休战协议的国家，显示出一个政治小国，在国际冲突事务中的犹豫不决，患得患失的心态。
+素材：洛杉矶盘古农场 — 鲁西西
 
-非歧视原则是奥林匹克主义的核心。这包括了基于[种族](https://zh.wikipedia.org/wiki/%E7%A7%8D%E6%97%8F%E6%AD%A7%E8%A7%86)、[肤色](https://zh.wikipedia.org/wiki/%E8%86%9A%E8%89%B2)、[性别](https://zh.wikipedia.org/wiki/%E6%80%A7%E5%88%AB%E6%AD%A7%E8%A7%86)、[性取向](https://zh.wikipedia.org/wiki/%E6%80%A7%E5%8F%96%E5%90%91)、[语言](https://zh.wikipedia.org/wiki/%E8%AF%AD%E8%A8%80)、[宗教](https://zh.wikipedia.org/wiki/%E5%AE%97%E6%95%99)、[政治](https://zh.wikipedia.org/wiki/%E6%94%BF%E6%B2%BB)或政见、[国籍](https://zh.wikipedia.org/wiki/%E5%9B%BD%E7%B1%8D)或社会[出身](https://zh.wikipedia.org/wiki/%E5%87%BA%E8%BA%AB)、财产、[血统](https://zh.wikipedia.org/wiki/%E8%A1%80%E7%B5%B1)或其他社会地位等要素的歧视。而中共正切切实实的实施着对人类种族最大的其实，对新疆维吾尔族，藏族的种族大屠杀，对香港民主运动的扼杀，对中共国内异议人士的任意抓捕和杀害，无时无刻不在亵渎奥运精神。得道多助，失道寡助。一个对自己民族歧视的政府，就能对其他民族好吗？事实上没有人愿意与一个种族内歧视的政府交朋友。支持一个人权劣迹斑斑的政府开奥运会，将会断送人类文明的传承。
+评论：洛杉矶盘古农场 — 心照
 
-新闻链接： [https://www.stuff.co.nz/national/politics/127674318/new-zealand-to-send-a-single-official-to-cheer-on-olympic-team-at-beijing-winter-games](https://www.stuff.co.nz/national/politics/127674318/new-zealand-to-send-a-single-official-to-cheer-on-olympic-team-at-beijing-winter-games)
+编审：洛杉矶盘古农场 — 柯震恶
 
-审核校对： sherryok
+发布：洛杉矶盘古农场 — 子萍
 
-上传排版：水云间
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
