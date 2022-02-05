@@ -2,42 +2,20 @@
 ---
 
 
-## 3.2亿美元的以太币是如何从加密货币企业Wormhole被盗的
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1961610/)
+## 多國奧運選手將抵製冬奧會開幕式
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961615/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/shutterstock_data_thief.jpg)图片来源：daytonews.com
-《The Register》网站2月4日报道，虫洞（Wormhole）是一个用于连接不同区块链的网络平台，由于代码制作不当，损失了价值约3.2亿美元的以太币（ETH）。“Wormhole网络被牟取了12万枚‘包装过的以太币’（ wETH），”DeFi平台周三通过推特表示。
+加拿大溫哥華楊帆農場楓葉快訊
 
-“wETH”代表“包装过的以太币”，这是一种中介代币，用于在为不同加密货币构建的区块链之间转移以太币。Wormhole的技术作为一座桥梁，将Solana区块链与其他各种“去中心化金融”或DeFi区块链联系起来, 如Avalanche、币安智能链 (Binance Smart Chain) 、以太坊 (Ethereum) 等。
+采編： Spirit            編輯撰稿：硫酸羥氯喹64
+![2022 Beijing Olympics](https://am14.mediaite.com/med/cnt/uploads/2022/01/GettyImages-1237970843-scaled.jpg)
+據《華盛頓郵報》2月1日報道，多國運動員已聲明因中共政權的種族滅絕和反人類罪，而抵製即將在北京舉行的冬奧會開幕式。 報道稱，近期以來，美國相關機構一直敦促西方國家那些準備參賽的運動員就中共當局的大規模暴行端正立場。盡管大多數運動員都受到了來自國際奧林匹克委員會及其贊助商的壓力，但已有為數眾多的運動員確認將不參加開幕式，以此作為他們個人的抗議形式。
 
-据英国黑链分析机构Elliptic的数据，此次损失是迄今为止第四大加密货币黑客攻击。Wormhole背后的那些组织表示，他们将在未来几个小时内增加更多的以太币，以确保wETH得到以太币的支持。周四，就像变魔术一样，Wormhole宣称：“所有资金都已恢复，Wormhole恢复了。”
+對此，有評論指出，新中國聯邦最近發起的甜蜜蜜滅共運動，通過促成美國外交授權撤其駐北京大使館，以及目前響徹中國的三首滅共歌曲，將會成功把本次冬奧會變成冬眠會。爆料革命給全世界帶來的有關病毒和疫苗的真相，將聯合所有正義力量徹底粉碎習近平的奧運癡夢。
 
-但该公司使用“恢复”一词，而“置换”会更准确。被盗的资金没有从盗贼那里追回；相反，被盗的钱被捐款者Jump Crypto重新填补，该公司去年收购了开发Wormhole的公司Certus One。
+原文鏈接
 
-“Jump Crypto相信多链未来，并且Wormhole是必不可少的基础设施，”Jump Crypto通过推特表示。“这就是为什么我们置换了12万以太币以成全社区成员, 并在Wormhole继续发展的同时支持它。”
-
-如果这些资金能被归还，Wormhole还向窃取数字现金的盗贼提供了1000万美元的“白帽”奖励。目前还没有关于这方面的任何消息。正如一位匿名人士所说：“因此，老虎机为一位幸运的赢家支付了奖金，而赌场则用其他地方的利润来弥补损失。”黑客攻击似乎是通过Wormhole的Solana桥代码中的签名验证功能实现的，该功能实际上并没有验证任何签名。
-
-Paradigm安全研究员“samczsun”在推特上探索了相关的代码后，这样总结了攻击时的场景：“Wormhole没有正确验证所有的输入账户，这使得攻击者可以欺骗监护人签名，并在Solana上铸造12万个以太币，他们将其中的93750个（约2.5亿美元）桥接回以太坊。”
-
-安全研究员马修·加勒特 (Matthew Garrett) 推测，根据修复的拉取请求与其合并到代码库之间的延迟，攻击者发现了代码更改，并在修复推出之前制作了一个漏洞。“因此，它看起来是一个被混淆的安全关键更改被发布了，有人发现了漏洞是什么，然后在修复被部署之前带着所有的钱离开了，”加勒特说道。The Register向Wormhole询问这是否准确，但我们还没有收到回复。
-
-**简评：**
-
-当各种加密货币情况层出不穷，喜币 (Himalaya Coin) 正在稳步上涨。喜联储 (Himalaya Exchange) 受军事级别的安全系统保护，并是全球加密行业中唯一采用了三重身份验证的交易所。
-
-新闻链接：[https://www.theregister.com/2022/02/04/wormhole\_currency\_theft/](https://www.theregister.com/2022/02/04/wormhole_currency_theft/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+發稿：青青
 
  
 
