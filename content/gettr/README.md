@@ -17,6 +17,16 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 2/5/2022 8:37 PM (UTC)`
+
+Did we tell you #GETTR would be your best place for French political news today? Yes we did!!! 🇫🇷<br/><br/>We had livestreams from @f_philippot, @zemmoureric via @Livrenoirmedia, and now an exclusive interview with Marine Le Pen! Check it out!👇👇👇
+> `@gettrenfrance 2/5/2022 8:22 PM (UTC)`<br/>Entretien exclusif pour GETTR #France avec Marine Le Pen dans les loges à la sortie de son discours de #Reims.  <br/><br/>
+![img](https://media.gettr.com/group8/getter/2022/02/05/20/ab223840-3e82-27e7-d4f5-50f2cca5d302/out.jpg)
+
+---
+
 `@miles 2/5/2022 10:30 PM (UTC)`
 
 2/5/2022 Miles Guo: There are three points made by almost everyone attending the CCP’s Winter Olympics: 1) the CCP is over, 2) everything is just fake, and 3) it is absolutely a nightmare. Many people are now trying to figure out how to transfer their money out of Communist China ASAP.<br/><br/>2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦；很多人现在只想着如何尽快把他们的钱从中共国转出来。
@@ -147,13 +157,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/3/2022 Miles Guo’s GETTR: After the launch of Himalaya Pay, the number of visitors to the Himalaya Exchange's website was three times higher than in the past. Various countries are going to blame the CCP for the COVID vaccine disaster. Mr. Bannon's family members infected with the virus were all saved by the New Federal State of China. The CCP and the dark forces will surely be retaliated against by the victims of the CCP virus and its vaccines.<br/><br/>2/3/2022 文贵盖特：H-Pay上线后喜联储网站访问量是过去的三倍；各国都要把疫苗灾难算到中共头上；班农先生家人染病后都被新中国联邦拯救；中共和黑暗势力必将遭到病毒和疫苗受害者的报复<br/>
 ![img](https://media.gettr.com/group45/getter/2022/02/04/02/bd7c0df3-dccf-30ef-f3d4-62ece8aa8d86/out.jpg)
-
----
-
-`@miles 2/4/2022 12:50 AM (UTC)`
-
-2/3/2022 Miles Guo’s GETTR: My three songs have terrified the CCP old kleptocrats, who also ended up in a dilemma. The Chinese New Year Gala of the New Federal States of China had seen more viewers in the past 24 hours than on the day when it was aired live. The CCP threatened journalists attending the Winter Olympics by using rogue tactics and is making enemies for itself at every moment.<br/><br/>2/3/2022 文贵盖特：文贵的三首歌让老杂毛既恐惧又纠结；新中国联邦新春联欢晚会在过去24小时的回看量超过直播当天的观看量；中共用流氓手段威胁参加冬奥会的记者、每分每秒都在给自己树敌<br/>
-![img](https://media.gettr.com/group46/getter/2022/02/04/00/e5014666-5460-0734-e4d6-21f0bfbc77b0/out.jpg)
 
 ---
 
