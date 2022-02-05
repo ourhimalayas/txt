@@ -2,41 +2,30 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2022.02.04
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1961591/)
+## 有声|中共三种武器维稳冬奥会终成泡影
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961609/)
 
-摘要撰稿人：文俊
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月2日的大直播中，郭文贵先生爆料称，此次北京冬奥会已经交由中共军方全权控制，仅安保人员就有近八成来自军队，他们全天24小时执勤维稳。
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/e94b12bb6e7dac0cc725a00d3bfbc9da.png)
-### 视频链接：
+郭先生透露，这些安保全部配备了三种特殊装备，包括高压电击枪、防暴枪和无声、无色、无味的催眠武器。
 
-[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+郭先生还解释道，这些武器除却为了预防冬奥会上的突发事件外，主要还用于窃取参赛运动员们的精子和卵细胞，用以获取巨额利益。此外，中共还将借由机器人技术收集这些运动员们包括影像、声音和DNA在内的生物信息。
 
-### **音频链接：**
+文字版原文：[中共三种武器维稳冬奥会终成泡影](https://gnews.org/zh-hans/1956464/)
 
-### 摘要：
+音频处理/发稿：Daxia
 
-- 负责主席台安全的狙击手领队在盘古大观旁突然倒地，然后死亡，可能是疫苗打多了，吓死习了
-- 普京冬奥会入住华尔道夫酒店，刚入住团队16人确诊，酒店内3人死亡
-- 普京团队染上病毒，非同寻常，普京大怒，抱怨中方连基本的保证都不能提供
-- 北京5000公里外的军队因此事马上进入战备状态
-- 冬奥会原计划97个国家来一级元首，现在来了35个国家
-- 多个参加的外国使团，找CCP要更多的钱，否则就撤走运动员
-- Paypal、Facebook 股价跌和我们HPay、Gettr没关系
-- 当喜贷款、喜抵押出现时，Hpay秒杀PayPal 。推特盈利预期大降、Facebook搞元宇宙成本增加太多，持有这些股票，绝对是等死，山崩之前，赶快跑
-- 美国经济没有完全奔溃，最早3月份才会开始，5月份以后大爆发
-- 美国经济发展最厉害的生物电脑，量子电脑，太空科技，新型材料生物科技
-- Hpay可以收人民币，HDO可以兑换成人民币，国内收人民币，请和农场联系
-- Gclub卡短期不会，会持续半年到一年，但是很多政策一定会调整，就是为了把战友分层次分时间和新中国联邦连接在一起
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-
-
-
-
-编辑发布:闪电训练
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

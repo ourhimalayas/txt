@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@harnwell 2/5/2022 5:44 PM (UTC)`
+
+This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid Squid Games.<br/><br/>Sincere thanks to @Miles Guo for breaking this in Chinese. <br/><br/>Not a single Western MSM outlet has reported this:<br/><br/>*three people have died at Beijing’s Waldorf Astoria hotel — reports noted violent spasms and convulsions before death<br/><br/>*Vladimir Putin is staying at the Waldorf Astoria<br/><br/>*16 people in Putin's personal entourage have been infected — including four or five bodyguards <br/><br/>Our crooked globalist overlords are all together in one place inside Beijing’s sealed triple-locked closed-loop bubble. Time to weld all the exits closed from the outside — Xian City style — and sit it out… <br/><br/>https://gnews.org/1956094
+
+---
+
 `@miles 2/5/2022 3:29 PM (UTC)`
 
 2月5号：尊敬的战友们好！所谓的冬奥会开幕式后，所有的参加的外国来宾和现场的战友们的反馈，就是这．三句话……
@@ -149,13 +157,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 ⚠️⚠️Timeline of The New Federal State of China About the CCP Virus And COVID Vaccine Disaster Warning<br/><br/>The #NFSC has always been committed to the truth and saving lives by exposing CCP's evil nature and the fact that they created the #CCP virus killing millions of people worldwide. The NFSC has also been spreading COVID therapeutics and related medications to the world, as well as the real purpose of COVID vaccines. All the facts prove what the CCP did has nothing to do with the Chinese people, the CCP cannot represent the Chinese people, who are also the victims.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警的时间线<br/><br/>#新中国联邦 一直致力于揭露中共邪恶本质，揭露他们制造 #中共病毒 已经在全世界造成数百万人死亡的事实，从而揭示真相，拯救生命。新中国联邦也一直在向全世界传播 #CCPVirus 治疗方法和相关药物，以及 #COVID 疫苗的真实目的。所有事实证明，中共的所作所为与中国人民无关，中共不能代表中国人民，中国人民也是受害者。
 ![img](https://media.gettr.com/group8/origin/2022/02/01/11/b65bdc52-ffd9-94cb-5393-e69830ecfb38/out.jpg)
-
----
-
-`@miles 2/3/2022 4:08 PM (UTC)`
-
-2月3号：尊敬的战友们好……共产党制造的生化武器和毒疫苗的危害⚠️正在被更多的人认清真相，并且将带动全球病毒溯源停止疫苗灾难的大运动💪……全球灭共全面开始！共产党你玩球蛋了！
-![img](https://media.gettr.com/group19/getter/2022/02/03/16/694e7633-6cd6-28ef-b7ab-d631647f836b/out.jpg)
 
 ---
 

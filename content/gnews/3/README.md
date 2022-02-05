@@ -2,30 +2,23 @@
 ---
 
 
-## 有声|郭文贵先生解读HPay的功能特点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961613/)
+## 西班牙政府将在下周二取消在户外强制戴口罩
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1961652/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月2日的大直播中详细阐述了HPay的核心功能和重大意义。
+翻译：喜妹
 
-郭先生表示，HPay的本质是在线支付，属约定式付款，其既不用被衡量，也无需在定价规则的贸易下交易。此外，已经上线的HPay具有八大特点，即无条件支付、无转账费用、无支付上限、无物理行为、无中心化、无中介、高度安全和极度隐匿。郭先生解释道，这些特性使得HPay超越了第一代加密货币的去中心化技术，从而能够让这一系统摆脱额度的限制且难以被追踪，达到人类最原始和最高的交易境界。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-05-192604.jpg)图片来源: elconfidencial.com
 
-文字版原文：[郭文贵先生解读HPay的功能特点](https://gnews.org/zh-hans/1956497/)
+西班牙政府宣布，从下周二起，由于在第六波omicron病毒的病例雪崩后冠状病毒发病率数据的改善，将取消在户外强制使用口罩的规定。据Moncloa消息，该措施将在部长会议上得到批准，前一天将在地区间委员会与各自治区讨论。在报告了74,368个冠状病毒新病例，使自大流行开始以来感染covid-19的总人数达到10,199,716人，但将过去14天的累计发病率降低到每10万居民2,420.63例之后，卫生部将在下一次地区间委员会上向各自治区提议取消在街上强制使用口罩。预计这将在下周二的部长会议上由皇家法令批准，周三在国家官方公报上公布。如果一切顺利，将于2月10日星期四生效。卫生部长说：“我可以确认，下周二我们将向部长会议提交皇家法令，根据该法令，我们将取消在户外强制使用口罩的规定。”
 
-音频处理/发稿：Daxia
+新闻来源: [elconfidencial.com] [El Gobierno eliminará el próximo martes la obligación de las mascarillas en exteriores](https://www.elconfidencial.com/espana/2022-02-04/el-gobierno-eliminara-el-proximo-martes-la-obligacion-de-las-mascarillas-en-exteriores_3369803/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
+*审核：阿伯塔
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
