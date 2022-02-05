@@ -2,28 +2,78 @@
 ---
 
 
-## 中日财经爆┃日本半导体投资火热 东芝将新建功率晶圆厂
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1960552/)
+## 母爱
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1960788/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-8.png)
-[图片来源](https://www.techpowerup.com/186547/toshiba-expands-its-semiconductor-facility-at-yokkaichi)
+作者：蓝之灵
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+生我
+养我
+你不怨不悔
+风里来
+雨里去
+寒往暑来
 
-自去年日本政府推出半导体振兴战略以来，半导体及IC企业在日投资建设力度不断加大。据悉，2022年至2024年之间将有包括台积电和索尼的合资企业在内的几家新晶圆厂开建上线。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-429.png)(此诗写于观此图后感）
 
-东芝2月4日发布公告称，将在日本石川县建造新建300毫米晶圆制造厂，用于制造功率半导体器件。据《日经新闻》此前报道，东芝将投资约1000亿日元（8.7亿美元）来建设该工厂。
+背我
+抱我
+你不离不弃
+早也罢
+晚也罢
+日日如此
 
-根据声明，新工厂的建设将分两个阶段进行。第一阶段计划2024财年内投产，当一期工程满负荷运转时，东芝的功率半导体生产能力将是2021财年的2.5倍。
+在和平破碎年代
+毒针横行
+恶魔遍地
+你为我挡了针
+阻了毒
+浑身是伤
 
-东芝在其声明中称，车辆电气化和工业设备自动化是未来的两大趋势，将推动功率半导体的需求增长。东芝还称，其工厂将在未来100%依赖可再生能源。
+我该拿什么回报你
+我的母亲
+我幼小心灵
+如何盛纳你如山之爱
+压重我
+难以呼吸
+我该拿什么回报你
+我的母亲
+你无私无悔
+赠与我爱
+护我长大
+无痛无灾
 
-信息来源：
+等我
+母亲
+等我长大
+还你恩情
+不要离开我太早
+尽管你
+早已被迫强针
 
-[东芝新工厂投产后功率半导体产能或将翻倍| 界面新闻](https://www.jiemian.com/article/7073339.html)
+等我
+母亲
+等我长大
+变壮变强
+灭了那邪魔
+灭了那恶鬼
+还人间清明
+还母亲恩情
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
 
 
  
