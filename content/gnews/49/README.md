@@ -2,18 +2,18 @@
 ---
 
 
-## 北京奥运会场上和央视对台湾代表团称呼不一
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958096/)
+## 中俄首脑冬奥会议 意在联合应对美欧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958120/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-18.png)（图片源自本文链接）
-2月4日时事通信社消息：4日晚举行的北京冬奥会开幕式的直播中，中共国营中央电视台（CCTV）的播音员将台湾代表团称为“中国台北”。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-1.jpg)[图片来源](https://toofab.com/2022/02/04/vladimir-putin-falls-asleep-during-ukraine-procession-at-beijing-winter-olympics-opening-ceremony/)
+据路透华盛顿2月4日消息，美国负责东亚和太平洋事务的助理国务卿4日就中俄北京峰会表示，“在乌克兰问题上，本次应该是中国督促俄罗斯缓和外交紧张的机会。”
 
-会场上的宣布和以前一样，是“中华台北”，而面向中共国老百姓时，还是基于“一个中国”原则，强调台湾也是中共国的一部分。
+俄罗斯总统普京4日在北京冬奥会开幕式上访华，并在北京会见了习近平主席。 明确了新的统一战略，例如反对北大西洋公约组织（NATO）的扩大和中国对台湾的立场。 乌克兰局势的冲突正在加深，似乎目的是为了遏制欧洲和美国。
 
-当台湾代表团入场时，中央电视台切换到习近平在贵宾席上观看的镜头。当香港代表团紧随其后时，中央电视台也播放了习近平相关画面，暗示他希望在“一国两制”下统一台湾。
+信息来源：
 
-信息来源：[国営テレビ「中国台北」呼称　台湾入場時に習氏の映像　北京五輪〔五輪〕（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4fa6796df99599a817d4b6cfb011adc5ab4238d3)
+[習氏、中ロ首脳会談でウクライナ緊張緩和要請すべきだった＝米高官](https://news.yahoo.co.jp/articles/cac876d9e4103cb2184811a8e68c40f32c09bc52)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
