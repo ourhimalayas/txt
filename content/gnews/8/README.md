@@ -2,29 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — Jair Messias Bolsonaro（雅伊尔·博索纳罗-巴西总统 ）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1962380/)
+## 以色列医院的院长承认新冠重症患者百分之八十完全接种了疫苗
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1962392/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/111-1.jpg)
-**盖特链接：**[https://gettr.com/user/jairbolsonaro](https://gettr.com/user/jairbolsonaro)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/771.jpg)
-**雅伊尔·博索纳罗自述：**
+#### 翻译                       意大利达芬奇农场                 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-05-alle-19.48.18-2.png)图片来源：eventiavversinews.it
+亚克夫•耶利斯（Yaakov Jerris）教授说：“ 对于重症患者新冠疫苗无任何用处。”
 
-巴西陆军上尉，当选为巴西联邦共和国第38任总统。
+以色列的医院真的大多数是未打新冠疫苗的患者吗？
 
-**雅伊尔·博索纳罗简介：**
+据伊克洛夫（Ichilov）医院新冠病毒科主任亚克夫•耶利斯（Yaakov Jerris）教授说实际情况完全相反。“ 目前，大多数重症患者是接种了疫苗的。”这是他在接受13频道新闻节目所说的一番话。
 
-雅伊尔·梅西亚斯·博索纳罗（葡萄牙语：Jair Messias Bolsonaro，巴西葡萄牙语：ʒaˈiʁ meˈsi.ɐz bowsoˈnaɾu）1955年3月21日出生，巴西政治人物、前陆军上尉、现任巴西总统。
+“ 这些患者至少都打了三针。70%至80%的重症患者是打过疫苗的。所以说疫苗对重病患者无任何用处，我们只有25%的患者没有接种疫苗。”耶利斯教授还揭露报告病例时出现的混乱情况。在星期日与政府的一次会议中，他向部长指出：“ 确定是否是重症患者是个麻烦。比方说，一个慢性肺病患者时常含氧量低，但是现在经新冠检测，从技术层面就定义为 新冠重症患者， 但是没有接受治疗。只是因为有严重的基础病, 使患者处境困难。”
 
-他自1991年起担任里约热内卢州的联邦众议员。他于2018年加入社会自由党，并在2018年巴西总统选举中当选为新一任巴西总统。博索纳罗被外界称为“巴西特朗普”或“热带特朗普”。他是巴西在1985年恢复文人统治后首位由直选产生的右翼总统。
+原文链接：https://www.eventiavversinews.it/direttore-dospedale-israele-ammette-L’80%-dei-casi-gravi-di-covid-sono-completamente-vaccinati/
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友（文苏）
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑、上传：  Xiao   baige
 
  
 

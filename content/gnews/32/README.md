@@ -2,42 +2,44 @@
 ---
 
 
-## 3.2亿美元的以太币是如何从加密货币企业Wormhole被盗的
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1961610/)
+## 护士爆特鲁多夫妇的COVID疫苗接种是假的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1961602/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/shutterstock_data_thief.jpg)图片来源：daytonews.com
-《The Register》网站2月4日报道，虫洞（Wormhole）是一个用于连接不同区块链的网络平台，由于代码制作不当，损失了价值约3.2亿美元的以太币（ETH）。“Wormhole网络被牟取了12万枚‘包装过的以太币’（ wETH），”DeFi平台周三通过推特表示。
+翻译： Jenny Ball
 
-“wETH”代表“包装过的以太币”，这是一种中介代币，用于在为不同加密货币构建的区块链之间转移以太币。Wormhole的技术作为一座桥梁，将Solana区块链与其他各种“去中心化金融”或DeFi区块链联系起来, 如Avalanche、币安智能链 (Binance Smart Chain) 、以太坊 (Ethereum) 等。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Justin_Trudeau_Sophie_Gregoire-1200x683-1.jpg)图片来源：naturalfitness.site
 
-据英国黑链分析机构Elliptic的数据，此次损失是迄今为止第四大加密货币黑客攻击。Wormhole背后的那些组织表示，他们将在未来几个小时内增加更多的以太币，以确保wETH得到以太币的支持。周四，就像变魔术一样，Wormhole宣称：“所有资金都已恢复，Wormhole恢复了。”
+一位接受过肌肉注射培训的注册护士发了一段视频，解释了为什么她认为加拿大总理贾斯汀·特鲁多和他的妻子索菲实际上没有接种 COVID-19 疫苗。她说，事实上她“可以在一英里外发现这一点”，只要看看电视直播的镜头。
 
-但该公司使用“恢复”一词，而“置换”会更准确。被盗的资金没有从盗贼那里追回；相反，被盗的钱被捐款者Jump Crypto重新填补，该公司去年收购了开发Wormhole的公司Certus One。
+4 月 23 日，特鲁多和他的妻子在 Rexall 药房接种了第一剂阿斯利康 COVID-19 疫苗。 在视频中，可以看到特鲁多卷起袖子，向妻子伸出手，让她握住他的手，然后药剂师将药物注射到他左臂纹身部位。
 
-“Jump Crypto相信多链未来，并且Wormhole是必不可少的基础设施，”Jump Crypto通过推特表示。“这就是为什么我们置换了12万以太币以成全社区成员, 并在Wormhole继续发展的同时支持它。”
+在护士的视频中，她分享了她认为这些镜头“明显是假的”的几个原因， 她的主要批评是，给这对夫妇打针的工人只用了一只手。
 
-如果这些资金能被归还，Wormhole还向窃取数字现金的盗贼提供了1000万美元的“白帽”奖励。目前还没有关于这方面的任何消息。正如一位匿名人士所说：“因此，老虎机为一位幸运的赢家支付了奖金，而赌场则用其他地方的利润来弥补损失。”黑客攻击似乎是通过Wormhole的Solana桥代码中的签名验证功能实现的，该功能实际上并没有验证任何签名。
+“没有人这样打针，你不会以这种方式进行 IM 注射，”她指出，使用缩写 IM 表示“肌肉内”。
 
-Paradigm安全研究员“samczsun”在推特上探索了相关的代码后，这样总结了攻击时的场景：“Wormhole没有正确验证所有的输入账户，这使得攻击者可以欺骗监护人签名，并在Solana上铸造12万个以太币，他们将其中的93750个（约2.5亿美元）桥接回以太坊。”
+COVID-19 疫苗和肌肉注射的传统方法是一样的，要用一只手定位三角肌，而另一只手将疫苗注射到肌肉中。加拿大政府的指导方针规定，手臂上的皮肤“在给药时应该平展（在拇指和食指之间）。”
 
-安全研究员马修·加勒特 (Matthew Garrett) 推测，根据修复的拉取请求与其合并到代码库之间的延迟，攻击者发现了代码更改，并在修复推出之前制作了一个漏洞。“因此，它看起来是一个被混淆的安全关键更改被发布了，有人发现了漏洞是什么，然后在修复被部署之前带着所有的钱离开了，”加勒特说道。The Register向Wormhole询问这是否准确，但我们还没有收到回复。
+对于特鲁多夫妇，她说：“注射器靠在她的椅子上，把针头像飞镖一样扔进去，一只手，甚至没有用另一只手接触它们，没有用另一只手接触针头 ，这是非常不寻常的。”
 
-**简评：**
+看过这段视频的其他专家承认，医护人员在进行注射时接受过双手训练，但有些人很快坚持认为，仅使用一只手并不一定意味着疫苗的注射是伪造的。
 
-当各种加密货币情况层出不穷，喜币 (Himalaya Coin) 正在稳步上涨。喜联储 (Himalaya Exchange) 受军事级别的安全系统保护，并是全球加密行业中唯一采用了三重身份验证的交易所。
+**视频镜头中发现的其他危险信号**
 
-新闻链接：[https://www.theregister.com/2022/02/04/wormhole\_currency\_theft/](https://www.theregister.com/2022/02/04/wormhole_currency_theft/)
+这位护士指出的另一个危险信号是，**医护人员未吸出特鲁多的注射液**。这是一个程序，其中接种疫苗的人在将针头插入手臂后，拉回注射器柱塞，以确保它没有刺破血管。尽管一些专家表示，这种注射方式不需要抽吸，**但这是常见的做法，许多人认为它可以帮助减少负面副作用的机会。**
+
+护士还认为，苏菲·特鲁多在护士给她绷带之前就拉起袖子，这进一步证明了她接种的疫苗不是真的。
+
+有很多报道称，一些知名人士在电视直播中接种疫苗的镜头，以某种方式被伪造，尽管很难想象，他们竟然没有付出更多努力，来让首相的疫苗注射看起来更真实。当然，如果他和他的妻子不想接受疫苗，那是可以理解的，因为它有很多危险。尽管如此，总理现在最不需要的就是任何暗示，他可能没有注射他正在向该国其他地区强加的疫苗，特别是现在涌现的越来越多针对跨境卡车司机的疫苗授权的和平抗议活动之时。
+
+**参考资料：**[naturalfitness.site][Nurse claims Canadian PM Justin Trudeau’s COVID-19 vaccination was faked, points out red flags](https://naturalfitness.site/nurse-claims-canadian-pm-justin-trudeaus-covid-19-vaccination-was-faked-points-out-red-flags/)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*审核：文乐
+校对：小东
+发稿：信心的选择*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
 
  
 

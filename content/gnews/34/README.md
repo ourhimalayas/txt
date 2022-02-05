@@ -2,22 +2,23 @@
 ---
 
 
-## 维生素D与自然免疫被证实在疫情中更有效
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961375/)
+## 麦卡洛博士欧洲议会作证呼吁立即停止疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961321/)
 
-作者：银河系农场—骄子
+作者：纽约磐石农场—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，据综合消息显示，一份针对未接种中共病毒疫苗群体的研究报告指出，相较于疫苗接种者而言，这一群体拥有的自然免疫力在对抗中共病毒方面更加有效且持久。其中，感染中共病毒后康复的人群，其体内的病毒抗体可以持续20个月之久。
+2月4日，据盖特平台消息显示，美国内科博士、心脏病及流行病学专家彼得-麦卡洛近日在欧洲议会上作证时呼吁，全世界所有的卫生机构和政府都应该支持中共病毒的早期治疗并停止向公众提供错误信息。此外，全球应立即取消中共病毒疫苗的接种工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-1.jpeg)
 
-此外，以色列科学家也在近期的一项研究中发现，提高人体内维生素D的水平可以有助于中共病毒患者降低疾病加剧或死亡风险。研究结果指出，维生素D对中共病毒具有良好的预防及控制作用，其作用原理在于维生素D能有效加强人体的免疫系统，从而达到防止重症和死亡的效果。
+麦卡洛医生证实，科学研究已经明确指出，中共病毒疫苗无法阻止中共病毒的感染，亦不可能达到减少与病毒相关疾病传播的结果，为此，全球各国的强制疫苗令应当被立刻取消。同时，所有市面上的中共病毒疫苗需要被立刻召回并进行彻底的安全性审查。
 
-研究人员也强调，维生素D的缺乏将使中共病毒住院患者的病情严重或危急的可能性增大14倍。因此，在中共病毒大流行期间，每个人都应该合理摄入适量的维生素D。
+麦卡洛医生也提到，医护人员需要得到来自政府的全面支持，用以为当前的高危患者提供各种形式的治疗方式。更为重要的是，无论在何种情况下，医生们都不能因治疗患者而遭受压力、胁迫或报复。
+
+麦卡洛医生也警告称，各国政府的中共病毒疫苗接话延长了疫情肆虐的时间，且大量的事实表明，目前推行的大规模疫苗接种计划导致了更多的感染病例和更高的死亡率。
 
 参考链接：
-1）[Israeli study offers strongest proof yet of vitamin D’s power to fight COVID](https://www.timesofisrael.com/israeli-study-offers-strongest-proof-yet-of-vitamin-ds-power-to-fight-covid/)
-2）[Prevalence and Durability of SARS-CoV-2 Antibodies Among Unvaccinated US Adults by History of COVID-19](https://jamanetwork.com/journals/jama/fullarticle/2788894)
+[https://www.gettr.com/post/psdk8oc0a9https://www.gettr.com/post/psdk8oc0a9](https://www.gettr.com/post/psdk8oc0a9)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 

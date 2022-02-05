@@ -2,31 +2,34 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月5日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1961310/)
+## 土耳其单日奥密克戎确诊病例再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961303/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+作者：纽约香草山农场-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月2日，据相关媒体报道，土耳其政府当天通报了超过11万起单日中共病毒新增确诊病例，这一数字再次刷新了当地自疫情以来的单日确诊峰值。此外，当地当天的新增中共病毒死亡患者达217人。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-4.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-2.jpeg)
 
-视频参看：
-[2022.02.05早 《NFSC新闻》](https://gtv.org/video/id=61fe7b7d96ba5d73e0c35e06)
-[2022.02.05早 G|TV《新闻访谈》](https://gtv.org/video/id=61fe83d196ba5d73e0c362ed)
+土耳其卫生部长克扎透露，当地几乎所有的确诊病例都是由于奥密克戎变种毒株引起的。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+值得注意的是，18岁以上的土耳其民众完全接种中共病毒疫苗的比例超过84.49%，另有高达92.56%的民众已经接种了一剂中共病毒疫苗，更有超过两千五百万的土耳其人接种了第三剂疫苗加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+参考链接：[土耳其單日確診連破紀錄 11萬例幾全因Omicron](https://cn.rti.org.tw/news/view/id/2123691)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
