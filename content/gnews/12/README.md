@@ -2,24 +2,78 @@
 ---
 
 
-## 中国经济和世界经济的未来,以及灭共的天机（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1960340/)
+## 渡劫
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1960420/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中国经济和世界经济的未来，以及灭共的天机2.jpg)
-政治经济文化，就是最黑暗的年！疫苗灾难更不用说了，所以能活下去是最好的！你能做啥？你啥也做不了！你多开点眼，多灭灭共，你什么也做不了！大家首先一点，我不具体说，我认为永远要相信天意，天意是没有偶然的，一定要相信！就是说共产党这个统治中国，虐待中国那么多年，我认为是对中国人最大的惩罚，它也是天意！这是中国人应受的罪啊。那么我们新中国联邦这个开始灭共事业以后，我们不流一滴血没有任何暴力。
-在西方美国世界，我们通过过去的5年团结了我们亿万个战友，我们唤醒了国内绝大多数的有良知的人，我认为在国内啊，你说多了就是四五亿人知道咱，这肯定，要跟随咱的人最起码在5000万左右跟随。但是呢跃跃欲试的人，大概1亿5000万，但一旦我们是确保拿下共产党以后，我相信会是超过90%都会和我们站在一起那么在这种情况下，这个天意就不可违！
+作者：蓝之灵
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+把你架在火上烤
+是共产党的心愿
+直至你灰飞烟灭
+化做尘土
 
-2022年1月12日大直播
+几经反转
+你
+把
+共产党
+架在了火上
+熏烤
 
-发布：星谕
+你带领我们
+醒来
+反洗脑
+反了一个国家
+反了一个统治阶层
+这个世界
+就发生了
+不可思议的天翻地覆
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+我们的怒火啊
+就是烤焦共匪的火光
+他们造下的罪恶啊
+就是火堆里
+累累的柴火
+烧了它
+灭了它
+是我们共同的心愿
+
+渡劫
+就这样开始了
+考验体力
+考验心智
+考验灵魂
+历尽质疑
+历尽磨难
+历尽背叛
+历尽孤独
+灭共的人群
+越聚越多
+
+共产党灭了
+我们胜利了
+我们在欢呼
+我们也会相聚盘古
+当一切尘埃落定
+你归隐山林
+留下无尽传说
+在劫后余生的我们中
+流传
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+
 
  
 

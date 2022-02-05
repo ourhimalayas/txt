@@ -2,29 +2,28 @@
 ---
 
 
-## 500藏人集会国际奥委会总部 抗议北京冬奥
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1959846/)
+## “冬眠会”开幕京官方通报新增1例 德国队员新增2例
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1959985/)
 
-撰稿: 东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-73.jpg)
-[图片来源](https://hk.news.yahoo.com/%E8%AE%93%E5%8C%97%E4%BA%AC%E8%BE%A6%E5%86%AC%E5%A5%A7%E6%83%B9%E6%83%B1%E8%97%8F%E4%BA%BA-%E5%9C%8B%E9%9A%9B%E5%A5%A7%E6%9C%83%E7%B8%BD%E9%83%A8%E5%A4%96500%E4%BA%BA%E7%A4%BA%E5%A8%81-065004153.html)
+整理/编辑：Little Lamp
 
-据法新社2月3日报道， 约500名藏人在瑞士洛桑的国际奥林匹克委员会（IOC）总部外，在北京冬季奥运揭幕前夕，抗议中共侵犯人权。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-2022年冬奥将于4日在中国首都北京开幕，来自欧洲各地的藏人示威者今天从位于洛桑（Lausanne）的国际奥会大楼步行3公里，走到奥运博物馆（Olympic Museum）。
 
-全球其他城市也有类似游行，包括洛杉矶和旧金山。在洛桑，许多人拿着西藏旗帜，跟在标语布条后游行，那些标语写着「抵制北京冬奥」、“停止在西藏侵犯人权”、“可耻的奥运”。
+据联合新闻网报道，中国2月4日举行冬奥会开幕式，北京官方通报本土病例新增1例，德国团队则证实有2名选手感染。全球新冠疫情持续蔓延之际，国际科学研究人员呼吁，中国不该阻挠covid-19的起源调查。
 
-与此同时，参与活动的学生爬上国际奥会入口处的屋顶，举起写有“拒绝2022北京（冬奥）”的标语。
+美国约翰霍普金斯大学网站追踪数据显示，截至台湾时间5日上午7时，全球至少572万1285人感染covid-19病逝，至少3亿9007万7243人确诊。
 
-信息来源：
+据报导，台湾4日新增covid-19感染71例，本土新增25例，境外输入新增46例。香港4日新增131例，其中59例感染来源不明。4日新增一采阳性195例。卫生官员警报，本土病例稍后可能以几何级数爆发。中国官方报道2月4日新增27例，本土新增9例。
 
-#### [讓北京辦冬奧惹惱藏人 國際奧會總部外500人示威](https://hk.news.yahoo.com/%E8%AE%93%E5%8C%97%E4%BA%AC%E8%BE%A6%E5%86%AC%E5%A5%A7%E6%83%B9%E6%83%B1%E8%97%8F%E4%BA%BA-%E5%9C%8B%E9%9A%9B%E5%A5%A7%E6%9C%83%E7%B8%BD%E9%83%A8%E5%A4%96500%E4%BA%BA%E7%A4%BA%E5%A8%81-065004153.html)
+*发布：tianzhihuan*
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
