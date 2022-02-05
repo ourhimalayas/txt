@@ -2,33 +2,22 @@
 ---
 
 
-## 新加坡日增新冠确诊病例首度破万
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1959181/)
+## 佩洛西敦促美国运动员对中共的凌辱保持缄默，以免遭到报复
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1959221/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 釆编/翻译：意翎
 
-整理：Eileen（围剿维尼熊）
-编辑：Sadhu
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pelosi-olympics-china-feat-image.jpg)图片来源：New York Post
+周五，《华盛顿时报》约瑟夫·克拉克（Joseph Clark）报道，充满政治意味的冬奥会开幕几个小时后，美国众议院议长佩洛西（Nancy Pelosi）于周五敦促美国奥运运动员不要公开反对中共政府，如果运动员发表任何批评北京的言论，她担心他们的安全。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.png)图片来源；雅典娜设计组（614）
+议员们越来越多地批评北京方面，尤其是中共糟糕的人权纪录，包括对中国维吾尔少数民族的虐待。拜登总统去年12月宣布对北京冬奥会进行了外交抵制，理由是中共“在新疆持续进行种族灭绝和反人类罪行，以及其他侵犯人权的行为。”
 
+几个月来，共和党人一直呼吁全面抵制奥运会。上星期，众议院外交事务委员会的共和党人呼吁美国国务卿布林肯向运动员通报中共侵犯人权的情况。这些议员在写给布林肯的信中说，如果运动员公开谈论中共的人权纪录，他们将会面临危险。情报委员会阿肯色州共和党参议员汤姆·科顿（Sen.Tom Cotton）说，中共的冬奥会给运动和教练带来了安全风险，他们可能会受到中共的广泛监视，甚至可能被绑架。他还提出，担心中共可能通过COVID-19检测暗地里收集运动员的DNA样本，这与获得的情报相一致。
 
-据联合新闻网报道，新加坡在春节假期过后确诊人数激增，今天新增13208例确诊病例，新增确诊人数创下新高，也是新加坡自COVID-19疫情爆发以来，单日确诊人数首度破万。
+“我们向总统致敬，并支持其他国家一致的外交抵制”，佩洛西说，她希望美国运动员“在运动、政治和其他方面都是安全的。”
 
-据新加坡卫生部晚间公布的最新数据，今天新增13208确诊病例，其中包括2734例透过PCR核酸检测确诊的本土病例、10312例抗原快速检测（ART）呈阳性的本土案例，其余为境外输入。另新增6例死亡案例，累计死亡866例。
-
-随着Omicron变异株蔓延全球多国，此变异株也已取代Delta成为新加坡的主要流行病毒，新加坡目前累计379681人确诊。新加坡人口约545万，目前完全接种率高达人口89%。
-
-参考链接：https://udn.com/news/story/121707/6077033?from=udn-catebreaknews\_ch2
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[**Pelosi urges U.S. Olympic athletes to stay mum about China’s abuses for fear of retaliation**](https://www.washingtontimes.com/news/2022/feb/4/nancy-pelosi-urges-us-olympic-athletes-to-stay-mum/)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥给的三个建议
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959280/)
+## 战友要表现自信
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959310/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

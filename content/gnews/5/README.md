@@ -2,8 +2,8 @@
 ---
 
 
-## 战友要表现自信
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959310/)
+## 可悲可恨可怜的中国人 没有比今天的中国人更可拍了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959324/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

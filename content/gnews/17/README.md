@@ -2,43 +2,98 @@
 ---
 
 
-## 虫洞3400亿美元的以太坊被盗，成为第二大加密货币盗窃案
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1959115/)
+## 哭泣的母亲
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1959134/)
 
-编译：七龙珠
+作者：纽约香草山农场文艺部 – 猪逻辑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-407-edited.png)Este robo en criptomonedas es el más grande que se ha realizado este año.
-Max Pixel
 
-加密货币平台Wormhole周三在Twitter上警告说，它已经损失了12万WETH，当时的价值约为3.2亿美元。此外，他们已经暂停了网站的交易，同时寻找盗窃背后的原因。
 
-正如他们在社交网络上解释的那样，该公司怀疑可能存在漏洞，这是一种旨在利用计算机故障的软件。他们后来报告说，确认了这个怀疑猜测。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
 
-虫洞的网络安全专家发现，金钱的损失是由于用于交换代币的一个桥梁的漏洞造成的。该公司报告说，攻击者利用了Solana加密货币方面的一个安全漏洞，与Ethereum建立了桥梁。
 
-虫洞谈到的桥梁是通过在源区块链和目标区块链上都有的智能合约来工作的。这些智能合约是存储在区块链上的系统，当满足某些条件时就会被触发。因为它们是代码，所以它们可能存在漏洞，正如在虫洞事件中发生的那样。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-5.jpg)
+我的心中 必有一位温柔的母亲雕像 
+她常在黑夜里独自哭泣
 
-根据DeFiYield的分析，该盗窃案是今年最大的盗窃案，也是整个加密货币历史上的第二大盗窃案。在此盗窃案之前的是Poly Network黑客攻击案，让它损失了6.02189亿美元的加密货币；排在第三位的是Vulcan Forged黑客攻击案，价值1400亿美元的虚拟货币被盗。
+她神圣的子宫里孕育过 
+稚嫩到 从未出生即死亡的希望 
+如今她像被时间和人群遗忘
 
-该公司希望奖励“罪犯”
+或者，她有骄傲的儿子
+在三十年前的广场驻留 
+如今她美丽的容颜褶皱苍老
 
-Certus One是“虫洞”背后的品牌，它打算奖励黑客1000万美元来揭开这个漏洞。此外要求他归还被盗的加密货币。
+或者，她忍辱负重 重力劳作 糙手出茧 言不由衷 
+在穷乡僻壤的泥瓦围墙里 卑微的生 顽强的活
 
-目前还不知道网络犯罪分子是否对“虫洞”产生了怜悯。然而，该平台已向其用户保证，“平台的资金有备份”，并且已经恢复了。
+或者，她沦为生育的工具 被数次交易的商品 
+被驯化 被遗忘 被淹没 被掩盖 被唾弃 
+在茫茫远山 如困兽般静默蜷缩 
+被带上堂而皇之的铁链
+目不直视 胡言呓语 默不作声 
+在冰冷黑夜里紧抱自己 用仅有的余温 
+只乞求衣暖饭饱、不被毒打而已
 
-这也不是第一个与数字货币合作的平台要求攻击者归还被盗的东西。另一家加密货币公司是Poly Network，它被偿还了6.1亿美元的虚拟货币。
+你可曾想 可曾记 可愿承认 
+她是与你我肌肤之亲 
+用原生的乳汁 把嗷嗷待哺的幼婴
+养育为生命的母体
+我们共同的母亲
+每一个血肉之躯的母亲
 
-另一个去中心化的金融平台Quibit Finance也在一周前遭遇了价值8000万美元的盗窃。该公司还试图以与Certus One相同的方式收回损失的资产。
+在世界的尽头用力呼唤 
+母亲 她曾是纤弱的折翼天使 
+洁白的羽毛经不住一丝灰尘侵袭 
+冰封的眼泪是她最深的绝望 
+文明世界的真相不堪一击 
+所有沉默的旁观者 知情者 路人甲乙丙丁 
+用出卖的良知和集体的冷漠 
+榨干人心最后的温度
 
-素材来源：【20minutos】[Wormhole pierde 340.000 millones de dólares en Ethereum y se convierte en el segundo robo más grande de criptomonedas](https://www.20minutos.es/tecnologia/ciberseguridad/wormhole-pierde-340-000-millones-de-dolares-en-ethereum-y-se-convierte-en-el-segundo-robo-mas-grande-de-criptomonedas-4951574/?autoref=true)
+他们不放过每一次把有关国家的吹
+以爱的名义 无孔不入的 虚构出伟大母亲的形象
+但他们对生活中真实的母亲 下此毒手 
+在神圣的子宫里贪娈的掠夺 
+并用强权者肆意的故事和方式
+打扮出荒诞、伪善而有目的的同情心 
+将她最后的尊严无情剥夺
 
-* * *
+我想象她守护幼子的本能之爱
+我想象她依稀青春的笑容灿烂
+七十年来 饱经风霜 
+饱尝人世浮华、人情冷暖 
+为何母亲常含眼泪 ？
+在这个虚假愚昧的人间 
+用沉默承受所有苦难的沉重
 
-审核：Aries的星
-校对：信心满满
-发布：花羽
+地狱空荡荡 魔鬼在人间 
+这片大地满目疮痍
+这片大地充满着无声的悲愤
+这片大地充满着沉默的暴政
+这片大地有我一再哭泣的母亲
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+编辑/校对/发稿：为真不破20
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+
+
 
  
 
