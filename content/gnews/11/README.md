@@ -2,33 +2,21 @@
 ---
 
 
-## 有声|瑞典将于2月9日解除中共病毒限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958785/)
+## 秘翻在线：普京总统在北京冬奥会上打盹究竟为那般？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958905/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-4.jpg)（图片源自本文链接）
+时事通信社2月5日消息：在4日的北京冬奥会开幕式上，俄罗斯总统普京打瞌睡的视频已成为互联网上的热门话题，并被英国等其它媒体转载。
 
-据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
+当乌克兰代表队入场时，视频显示中的普京总统坐在座位上，闭着眼睛，之后又好似醒来了的样子动了动身子。此刻，俄罗斯军队正在边境附近集结，乌克兰的紧张局势持续上升。
 
-对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
+英国《独立报》调侃说：普京先生似乎打了个盹，错过了部分仪式。前一天的3日，普京在莫斯科会见了阿根廷总统费尔南德斯，与商界人士举行了会谈，并在晚上与法国总统马克龙进行了电话交谈。前往北京后，于4日会见了中共国家主席习近平，可能是他感到疲惫了。
 
-目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
+通过北京时间２月４日晚新中国联邦文贵大直播中郭文贵先生的爆料，恐怕全世界都知道了还有一个令是普京总统感到不悦的，更大的原因。本次普京总统下榻华尔道夫酒店，随从人员已经１６人被确认感染，３人死亡。据说普京总统为此大怒！
 
-文字版原文：[瑞典将于2月9日解除中共病毒限制](https://gnews.org/zh-hans/1955535/)
+信息源：[プーチン氏「居眠り」話題に　北京五輪開会式〔五輪〕（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/11cec99d71a7790fdc503dcddb94108a29f7e88c)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

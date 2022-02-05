@@ -2,31 +2,33 @@
 ---
 
 
-## 有声|霍普金斯大学研究称 過度嚴格的社交封锁未能降低新冠死亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958576/)
+## 美众议院通过《美国竞争法》全面抗衡中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958688/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月1日多个媒体报道同一内容，约翰·霍普金斯大学发表一项最新研究，该研究对过去的几十项研究结果进行分析，结果认为在全球范围内推行的社交封锁政策对减少中共病毒的感染死亡率几乎没有影响，但不适当地社交封锁，已经对经济产生了 “破坏性影响” ，并导致了许多社会弊端，如提高失业率，减少学校教育，造成政治动荡和破坏自由民主等。 报告数据显示，在2020年疫情早期阶段，严格的封锁将中共病毒死亡率降低了约0.2%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-5.jpg)美众议院通过《美国竞争法》全面抗衡中共 网络图片
+据美国之音2月5日报道，美国国会众议院4日以222票支持、210票反对的表决结果通过《2022年美国竞争法》。该法案的目标为加强美国国内供应链，确保美国在制造、创新和经济实力方面保持领先地位，并能胜过任何国家。美国总统拜登在法案正式获得通过后发表声明表示赞扬。
 
-约翰·霍普金斯大学发表研究所谓的社交封锁，应该是指「过度严格」的社交封锁措施。 研究人员在分析中以过度严格的社交封锁措施为例，他们发现一些证据表明，严格的户外聚会限制将使人们必须在不安全的室内场所见面，此类社交封锁措施将适得其反，增加了中共病毒的感染率及死亡率。
+根据《美国竞争法》内容，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资半导体的生产等；授权450亿美元改善美国的供应链，加强制造业，确保更多的美国制造；推动美国的科学研究和技术创新以及确保美国在全球的竞争力和领导地位。拥有1250万会员的的美国最大的劳工组织劳联-产联表示全力支持这部法案。
 
-该报告指出，这些严格的限制措施首先来自中共国，最后竟然变成全球通用的强制性公共卫生政策。 报告总结认为：以一个标准的利益成本模型来计算经济和社会损失，可以得出结论：这些封锁措施作为大流行病的政策工具，应该被断然拒绝。
+参议院也有类似的投资法案。参议院去年6月《美国创新与竞争法》。参众两院的法案内容都计划提供520亿美元补贴和投资美国半导体制造设施，同时也都将授权在未来五年内为国家科学基金会提供约800亿美元资金。众议院的《美国竞争法》接下来将与参议院的《美国创新与竞争法》展开两院协调，两院版本必须达成最终一致协议，才能正式通过国会，送交白宫由总统签署生效。
 
-文字版原文：[霍普金斯大学研究称 過度嚴格的社交封锁未能降低新冠死亡](https://gnews.org/zh-hans/1949762/)
+美国参众两院终于达成一致，认定中共才是美国最大的竞争和威胁。中共是全世界的公敌。中共扰乱了全球经济，制造恶意竞争，破坏了全球秩序。在实验室人工合成病毒并释放到全世界，通过疫苗经济给全人类带来了难以想象的人道灾难。中共不灭，世界不得安宁，人人没有平安，随时随地面临死亡威胁。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+新闻参考链接：[https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html](https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

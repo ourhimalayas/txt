@@ -2,40 +2,33 @@
 ---
 
 
-## 藏人在奥林匹克总部抗议北京冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958635/)
+## 有声|瑞典将于2月9日解除中共病毒限制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958785/)
 
-撰稿：纽约香草山教育部 -Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
-2月4日，大约500名藏人在国际奥委会总部外游行，抗议北京主办2022冬奥会。来自欧洲各地的藏人示威者从洛桑的国际奥委会大楼出发，前往瑞士的奥林匹克博物馆。同时，包括洛杉矶和旧金山在内的其他世界城市也有示威活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-396.png)
-洛桑的抗议者，许多人举着西藏国旗和写有“抵制北京冬奥会”“停止在西藏侵犯人权”和“耻辱运动会”的标语。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
 
-示威者在经过奥运五环时高呼“没有权利，就没有奥运会”，“北京奥运会：种族灭绝运动会”，“不要让北京 2022 变成柏林 1936”。
+据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
 
-游行队伍中，一个标语牌展示了一名滑雪者站在一辆装有奥运五环轮子的坦克前，再现了1989年北京天安门大屠杀期间孤独的抗议者一人阻挡一列坦克的著名场景。
+对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
 
-据悉，此次冬季奥运会将在“鸟巢”体育场正式开幕，习近平一心想要营造的太平盛世的气氛被中共国人权问题、中共病毒大流行以及参加冬奥会运动员的安全问题蒙上了阴影。
+目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
 
-链接：[Tibetans protest ‘Games of shame’ at Olympic HQ](https://sports.yahoo.com/tibetans-protest-games-shame-olympic-164903900.html)
+文字版原文：[瑞典将于2月9日解除中共病毒限制](https://gnews.org/zh-hans/1955535/)
 
-[Tibetans march on IOC headquarters to protest Beijing Games](https://www.reuters.com/lifestyle/sports/tibetans-march-swiss-based-ioc-protest-beijing-games-2022-02-03/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
-
-总编：童谣
-
-编辑：文特
-
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

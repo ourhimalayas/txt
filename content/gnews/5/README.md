@@ -2,8 +2,8 @@
 ---
 
 
-## 美国整体的经济崩溃还没到
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958868/)
+## 喜联储喜币是游戏的制定者（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958970/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

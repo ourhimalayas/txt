@@ -2,32 +2,20 @@
 ---
 
 
-## 布林肯将访亚洲 抗共仍是美首要任务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958891/)
+## Hpay点到点支付即隐私又快速
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958990/)
 
-撰稿：东京樱花团/asket
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/布林肯将访亚洲-抗共仍是美首要任务.png)
+*发布：陶子*
 
-美国国务院周五（2月4日）表示，国务卿布林肯下周将前往亚洲与印太盟友进行会谈，包括与“四方安全对话”（Quad）的四国外长会晤。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-路透社报导称，尽管乌克兰危机日益加剧，但布林肯仍计划这一亚洲之行。政策分析人士表示，此举的目的是向印太地区表示支持，而且抵制中共不断扩大的影响力仍然是华盛顿的首要任务。
-
-美国印太地区协调员库尔特·坎贝尔（Kurt Campbell）曾表示，太平洋地区可能是世界上最有可能出现“战略意外”的地区——显然是指中共可能建立太平洋岛屿基地的野心。
-
-布林肯将于周一（2月7日）离开华盛顿，并于2月9日至12日在澳大利亚参加四方会谈（Quad）。四方会谈包括美国、日本、印度和澳大利亚。
-
-国务院表示，此行的目的是“与印太地区的盟友和合作伙伴接触，以促进整个地区的和平、复原力和繁荣，并展示这些伙伴关系的成果。”
-
-就在普京和习近平周五会面并强调合作之际，美国国务院宣布了布林肯的这次亚洲行。
-
-信息源：
-
-[布林肯将访亚洲 分析：抗共仍是美首要任务](https://www.epochtimes.com/gb/22/2/4/n13555934.htm)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

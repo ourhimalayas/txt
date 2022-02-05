@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|加拿大魁北克省放弃“反疫苗税”政策
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958568/)
+## 冰岛将在2024年废除捕鲸
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958579/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间2月1日，据相关媒体报道，加拿大魁北克省准备放弃向该省未接种中共病毒疫苗的居民征收“反疫苗税”的计划。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-3.png)图片来自本文网站
+时事通信2月4日消息，冰岛渔业部长Svandis Svavarsdottir（斯万迪斯·斯瓦瓦斯多蒂尔）4日宣布该国计划在2024年结束捕鲸。目前，冰岛与日本和挪威是进行商业捕鲸的少数国家之一，近年来对鲸鱼肉的需求已经下降。
 
-资料显示，魁北克省的省长弗朗索瓦-莱戈尔早先在一份名为“反疫苗税”的提案中声称，该省将向拒绝接种中共病毒疫苗的群体收取100至800加元的费用，用于其所谓的“缓解该省因中共病毒而陷入困境的医疗保健系统”。随后，这一提案引发加拿大各界的批评和反对。
+斯万迪斯·斯瓦瓦斯多蒂尔告诉当地报纸，2024年之后，当捕鲸数量的年度配额结束时，几乎没有任何理由可以证明允许捕鲸，没有证据表明捕鲸有任何经济利益。
 
-评论人士指出，与其说是为了当地民众的健康，“反疫苗税”提案实质上是出于政治目的，其损害了加拿大全民免费及公平获取医疗保障的权利。另一方面，大量的民众在接种了三剂中共病毒疫苗后依然感染了中共病毒，这足以证明疫苗全然无用。
+冰岛在2019至2023年间允许捕杀209头长须鲸（仅次于蓝鲸的第二大鲸鱼）和217头小须鲸。然而，在过去的三年里，两家拥有捕鱼许可证的主要运营商已经停止捕鲸，其中一家在2020年已完全退出。过去的三年中，只有一条小鲸鱼被捕获。
 
-为此，在当天的新闻发布会上，莱戈尔在声明中表示，“反疫苗税”这一提案会制造当地民众的分裂，甚至可能引发抗议。因此，为了维护当地的和平与稳定，他将放弃该提案。
+作为鲸鱼肉的主要市场，日本在2019年退出了国际捕鲸委员会（IWC）后恢复了商业捕鲸。从此，对冰岛鲸鱼肉的需求就急剧下降。此外，随着沿海捕鱼禁令的延长，捕鲸者不得不到更远的地方捕鲸，捕鲸的成本也在增加。
 
-文字版原文：[加拿大魁北克省放弃“反疫苗税”政策](https://gnews.org/zh-hans/1951248/)
+进口肉类比国内产品更严格的安全标准也阻碍了出口。此外，作为中共病毒（新冠病毒covid-19）的预防措施，要求人与人之间保持一定的距离，也阻碍了鲸肉加工厂的运营。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+信息源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+[アイスランド、捕鯨を2024年に廃止へ 「経済的メリットない」](https://news.yahoo.co.jp/articles/3a5a1ce71374d77ff1872c3e146d589a09f5b681#:~:text=%E3%82%A2%E3%82%A)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
