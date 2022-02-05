@@ -2,26 +2,30 @@
 ---
 
 
-## 欧盟提议将疫苗护照延长至明年6月底
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956579/)
+## 尼日利亚被迫放弃中共银行铁路贷款
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956581/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山 – 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-欧盟委员会认为，延长该条例将确保旅行者在成员国旅行时，可以继续使用他们的欧盟疫苗护照。司法事务专员雷恩德说，由于疫苗护照版本的不同，已经在不同的国家系统中造成混乱和障碍。因此，统一标准的欧盟疫苗护照是必要的，可以保证公共安全和自由旅行。
+外媒2月03日报道：尼日利亚政府被迫放弃中共进出口银行铁路贷款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-5-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-2.jpg)
 
-此消息迅速引发欧盟区域的强烈反响。评论人士嘲讽，凭一个二维码就可以确保安全，这是极其荒谬的。当欧盟成员国已经意识到疫苗并未在中共病毒的防感染防传播上起到预防的效果，而纷纷取消全部或绝大多数限制措施之时，欧盟还在推行疫苗护照，实在让人感到不解和愤怒。
+尼日利亚政府日前表示，不会再等待中共进出口银行为该国一个重要铁路项目继续提供贷款资金。因为根据贷款协议，中共进岀口银行应该为尼日利亚修建这条铁路提供主要贷款支持，但实际到位资金仅占投资总额的15%，导致这条从首都拉各斯到北部城市的铁路建设受到严重影响。
+
+尼日利亚交通部长阿马赫对媒体表示，政府要求中共当局对其余贷款作出回应，但中共一直拖延不答复。尼日利亚被迫放弃中共贷款，转而向他国银行寻求贷款帮助。由于中共银行背信弃约，将使本届政府承诺的铁路修建计划受到严重挫折。
+
+对此，分析人士评论，中共已经穷途末路，根本无法履行相关协议。况且中共从来没有契约精神。按照这个趋势发展下去，中共一带一路肯定会带来一路崩塌的灾难。
 
 参考链接：
 
-- [Coronavirus: Commission proposes to extend the EU Digital COVID Certificate by one year](https://ec.europa.eu/commission/presscorner/detail/en/ip_22_744)
+- [Nigeria Gives Up Waiting for China Eximbank Railway Loan](https://www.bloomberg.com/news/articles/2022-02-02/nigeria-gives-up-waiting-for-china-exim-loan-for-railway-project)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: Ivy001
-编辑：谐趣园
+总编: 童谣
+编辑：文徬
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

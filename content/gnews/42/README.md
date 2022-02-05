@@ -2,29 +2,32 @@
 ---
 
 
-## 美国国税局不会对未售出的质押加密货币作为收入征税
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956578/)
+## 强制疫苗对美军造成了灾难性后果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956580/)
 
-作者：纽约香草山 – 文特
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月3日消息，美国国税局在未来可能不会对未售出的质押加密货币作为收入征税，该决定是将质押奖励归类为财产而非应税收入。
+2月3日，据班农战斗室的盖特信息，美国国防部强制美军接种中共病毒疫苗的命令，已经造成了令人震惊的灾难性后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-4.jpg)
 
-报道称，2021年5月26日约书亚和杰西卡.贾莱特夫妇向美国田纳西州中区地方法院提交法律诉状，要求退还2019年因收到8876枚Tezos代币而支付的3293美元所得税。据知情人士透露，美国国税局已批准全额退还他们通过质押获得的代币的税款。
+美国科学与健康委员会的数据显示，2021年与之前的五年平均数值相比较，疫苗对美军个人的影响，包括：高血压病例上升22倍，多发性硬化症上升7倍，食道恶性肿瘤上升6倍，乳腺癌接近5倍，神经系统病例几乎上升11倍，从年初的8.2万起，暴增至86.3万起。
 
-专业人士分析，喜币H-Coin就是最好的数字黄金抵押品，拥有者根本不需要卖出，需要现金时在数字银行抵押贷款即可。
+另据一份2月1日参议员罗恩·约翰逊写给国防部长劳埃德·奥斯汀的信，以上数据实际来源于美国国防医学流行病学数据库。
+
+班农先生将这条盖特置顶，并说，除了以我们的武装部队为代价的巨大灾难之外，其它很难解释。而郭文贵先生几个月前就指出，美国的强制疫苗政策，将会在美军损失惨重的情况下结束。
 
 参考链接：
 
-- [美国国税局不会对未售出的质押加密货币作为收入征税](https://www.panewslab.com/zh/sqarticledetails/1643857185430687.html)
-- [https://gettr.com/post/psbg5redcb](https://gettr.com/post/psbg5redcb)
+- [BREAKING: Explosive new data out about the massive risks associated with the covid vaccine](https://gettr.com/post/ps9fb6e83f)
+- [This is hard to interpret other than an enormous catastrophe at the expense of our Armed Forces](https://gettr.com/post/ps9weteecf)
+- [BREAKING: Senator Ron Johnson sends letter to Secretary of Defense requesting information on Defense Medical Epidemiology Database and COVID19 vaccine injury](https://gettr.com/post/psaaaf4cc9)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: 童谣
-编辑：DM
+总编: 文真
+编辑：文真
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

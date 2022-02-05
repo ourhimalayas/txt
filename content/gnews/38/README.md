@@ -2,26 +2,24 @@
 ---
 
 
-## 中共国两家银行突然宣布停办柜台现金业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956582/)
+## 吹哨人：澳洲须防中共利用社交媒体假消息干预大选
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956602/)
 
-作者：银河系农场 – 骄子
+作者：台湾宝岛农场 – 阿尔道夫
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，中共两家银行相继宣布将停办柜面现金业务，包括营业网点柜面现钞和ATM机自助渠道。这两家银行分别为北京中关村银行和辽宁振兴银行，自4月1日和3月1日起实施。据悉，银行要求客户使用手机应用程序、微信内置程序等办理所需业务，若确有现金存付需求，可转入他行办理。
+据台媒报导，澳洲将于今年5月举行联邦大选，脸书「吹哨人」，也就是脸书的前员工郝根，于2月3日在澳「社交媒体及在线安全调查委员会」公听会中强调，中共已将社交媒体武器化，应预防有人利用社交媒体散播假消息，干预澳洲大选。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-3.jpg)
-
-评论人士指出，中共国银行无理由停办客户提现业务，显示银行现金流出现重大问题，银行备用现金已经见底。在中共国经济雪崩效应下，金融爆雷已经无法掩盖，无力应对。墙内百姓连自己的钱都无法做主的时代，即将到来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/13.png)
 
 参考链接：
 
-- [太突然！两家银行宣布停办现金业务！发生了什么](http://finance.eastmoney.com/a/202202032267182994.html)
+- [臉書吹哨人：澳洲須防社交媒體假消息干預大選](https://udn.com/news/story/6811/6075913?from=udn-catebreaknews_ch2)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: Jack Li文阳
-编辑：Ivy001
+总编: 童谣
+编辑：童谣
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
