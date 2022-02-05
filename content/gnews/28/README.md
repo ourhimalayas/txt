@@ -2,41 +2,24 @@
 ---
 
 
-## 有声|脸书股价创历史最大跌幅
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1960276/)
+## 中国经济和世界经济的未来,以及灭共的天机（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1960340/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月2日，据媒体消息显示， 脸书在当天美股收盘后公布了其2021财年第四季度的财务报表。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-2.jpg)
-该财报显示，脸书这一季度的营收增幅明显放缓，其股票的收益、净利润和用户指标均低于市场预期，是自2019年第二季度以来，该公司首次出现净利润下滑的情况。此外，该公司的核心应用程序脸书在第四季度的日活跃用户比上一季度减少了50万，这是自脸书面世以来的首次下降。同时，其数字货币项目几经波折，最终于1月31日晚间将数字货币的相关资产全部出售，就此关停其全球支付的计划。
+整理：雅典娜速记组
+编辑：星谕
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中国经济和世界经济的未来，以及灭共的天机2.jpg)
+政治经济文化，就是最黑暗的年！疫苗灾难更不用说了，所以能活下去是最好的！你能做啥？你啥也做不了！你多开点眼，多灭灭共，你什么也做不了！大家首先一点，我不具体说，我认为永远要相信天意，天意是没有偶然的，一定要相信！就是说共产党这个统治中国，虐待中国那么多年，我认为是对中国人最大的惩罚，它也是天意！这是中国人应受的罪啊。那么我们新中国联邦这个开始灭共事业以后，我们不流一滴血没有任何暴力。
+在西方美国世界，我们通过过去的5年团结了我们亿万个战友，我们唤醒了国内绝大多数的有良知的人，我认为在国内啊，你说多了就是四五亿人知道咱，这肯定，要跟随咱的人最起码在5000万左右跟随。但是呢跃跃欲试的人，大概1亿5000万，但一旦我们是确保拿下共产党以后，我相信会是超过90%都会和我们站在一起那么在这种情况下，这个天意就不可违！
 
-对此，郭文贵先生在直播中指出，脸书实际上参与了人类大屠杀，其根本没有未来，这是它不得不放弃数字货币的深层次原因。
+2022年1月12日大直播
 
-另外， 近几年来，脸书由于侵犯隐私的行为，已经被美国和欧盟的监管机构罚款近60亿美元。更甚者，以脸书为首的社交媒体寡头持续打压言论自由，尤其在中共病毒疫情爆发以后，其掩盖病毒和疫苗真相的做法引发了世界民众普遍的反感和批评。
+发布：星谕
 
-截至目前，脸书的股价暴跌26%，相较去年最高点已下跌近四成，创下其历史上最大的单日跌幅。
-
-而郭文贵先生则表示，脸书践踏言论自由和对病毒真相的掩盖会将其送上死亡之路。
-
-文字版原文：[脸书股价创历史最大跌幅](https://gnews.org/zh-hans/1955847/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
