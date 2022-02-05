@@ -2,30 +2,37 @@
 ---
 
 
-## 荷兰公共电视台NOS记者在中共国的遭遇是家常便饭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1959169/)
+## 外媒指出 冬奥会来宾多为非民主政体领袖
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1959441/)
 
-#### 撰稿：彩虹
+作者：台湾宝岛农场 dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-1.jpg)图片来源：商业内幕
-2月4日，《新闻极限》报道，在北京奥运会现场报道时，荷兰公共电视台NOS的一名记者被中共国官员带走。
 
-周五，NOS在推特上说，NOS大中华暨东亚地区记者约瑟德·登·达斯（Sjoerd den Daas）在中午时分被短暂停播，但“几分钟后就没事了，并能完成他的报道”。
+当地时间2月4日，据外媒消息显示，中共北京冬奥会开幕式于当天拉开帷幕，然而，由于中共政府在新疆地区犯下侵犯当地维吾尔及其他少数民族人权的暴行，以美国为首的多数西方国家对此次冬奥会实施外交抵制政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-05-at-7.59.39-PM-1.png)
+据悉，习近平将在开幕式上接待来自21个国家的领导人，而这些这些国家多数不属于民主政体。
 
-但是，NOS也补充说：“不幸的是，这（样的情况）正成为（外国）驻中国记者的家常便饭。”
+据皮尤研究中心和洛伊研究所智库的调查指出，近年来，西方国家，尤其是民主国家的民众，对中共的评价普遍处于历史低点。
 
-文章描述说，在视频中，登·达斯站在外面向演播室的主播进行报道时，一名中共国官员抓住他并试图将他拉出镜头，镜头随机变暗。几分钟后，主播能够再次与他连线并了解他的情况。
+对此，郭文贵先生也在直播中透露，即使是那些出席此次冬奥会的国家也只是基于与中共政治和金钱交换、交易的结果。
 
-对此，文章分析认为，中共国因其侵犯人权的行为而广受批评，侵犯人权的行为包括诸如对维吾尔族穆斯林和其他少数民族的种族灭绝，以及对异见思想和媒体进行审查等。
+参考链接：[冬奧開幕 來賓多為非民主政治領袖](https://tw.news.yahoo.com/冬奧開幕-來賓多為非民主政體領袖-040741640.html)
 
-据《独立报》报道，美国在2021年12月首先宣布对（北京）奥运会进行外交抵制后，澳大利亚、奥地利、比利时、加拿大、丹麦、爱沙尼亚、日本、立陶宛、荷兰、新西兰、斯洛文尼亚、瑞典和英国也加入了外交抵制行列。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
 
-此外，根据CNN的报道，周四，在一名参与2020年两国边境冲突的指挥官作为奥运火炬手出现在奥运会前的火炬传递中后，印度也在最后一刻宣布进行外交抵制。
+编辑：静言
+总编：飞虹
+校正/发稿：我不在这里
 
-**新闻来源**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[Dutch Journalist Pulled Off Camera During Live Report at Beijing Winter Games](https://www.newsmax.com/newsfront/journalist-nos-china-reporting/2022/02/04/id/1055534/)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

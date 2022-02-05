@@ -2,24 +2,27 @@
 ---
 
 
-## 中共利用病毒实施“商鞅五术”（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1960036/)
+## 香港今日新增破纪录 将实施疫苗通行证
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1960191/)
 
-整理：雅典娜速记组
-编辑：星谕
-![此图像的alt属性为空；文件名为中共利用病毒实施商鞅五术.002.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%B8%AD%E5%85%B1%E5%88%A9%E7%94%A8%E7%97%85%E6%AF%92%E5%AE%9E%E6%96%BD%E5%95%86%E9%9E%85%E4%BA%94%E6%9C%AF.002.jpeg)
-啥叫格式化？商鞅所说，就是大秦朝，秦文帝，秦孝帝，秦孝帝说的话。把社会，把人关在家。我还是为了你好，我让你关在家里。我需要你出来的时候，你就出来当警察，当城管。我让你呆在家里的时候你就是安全的。中国将进入永远的就像西安郑州那样轮着来，轮完以后，一句话全国都会使用，为了你好呆在家里。你们没看清这个本质。
-西安郑州，天津事件大家别忘了，西安郑州和天津几乎是绝对共产党生死最关键的。河北，西安，郑州，天津中国保中央的部队。就在张家口，就冬奥会这个地方，山海关，天津，过了天津，就打过来了。把这些军队，已经牢牢的控制在这个地方。然后用河北的护城河工程，把这些警察筑成一道人墙，把人又关在了家里。你再敢岀来的时候，吃什么？我毒死你，那就合法了，不用我用天安门坦克压死你那么吓人。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-14.jpg)
+[图片来源](https://www.straitstimes.com/asia/east-asia/hong-kong-to-roll-out-rapid-antigen-covid-19-tests-for-all-residents)
 
-2022年1月12日大直播
+香港中共病毒（新冠病毒Covid-19）本土疫情愈趋严重，2月4日新增130例本地确诊个案，其中59例为源头不明，再创第五波单日新高。今日，2月5日，确诊数字约350例，创2年来单日新高。
 
-发布：星谕
+据港媒报导，香港今日增350例确诊个案，远超今年1月27日创出单日164例确诊的纪录，势成为自2020年中共病毒疫情在香港爆发以来，最多患者确诊的一天。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+此外，林郑月娥表示，将从24日起实施“疫苗通行证”制度，进入餐厅等特定处所必须至少接种1剂疫苗，之后还会提高至2剂，最终将规定必须打满3剂才符合“疫苗通行证”要求。
+
+信息来源：
+
+[香港今日新增破紀錄！港媒：確診350例　創2年來單日新高](https://www.ettoday.net/news/20220205/2183350.htm)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
