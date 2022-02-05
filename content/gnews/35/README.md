@@ -2,30 +2,48 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1956605/)
+## 文·贵天成——文贵先生谈“H-pay、喜支付”（四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1956863/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+**整理：BENJ1
+编辑：Candy**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-355.png)图片来源：墨尔本雅典娜设计组
 
-视频参看：
-[2022.02.04早 《NFSC新闻》](https://gtv.org/video/id=61fd2a0d96ba5d73e0c2af16)
-[2022.02.04早 G|TV《新闻访谈》](https://gtv.org/video/id=61fd335e96ba5d73e0c2bf76)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+**郭文贵****先生****2021****年****11****月****3****日直播**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+喜美元帐号的未来是什么？它连着喜支付呢，你买啥都可以，它比信用卡还方便：手机支付、刷卡支付、还有隔空支付，战友之间可以马上开通，你的帐号之间也可以互相转。那么这个钱你不用，在这儿搁着，咋办?——未来给你7%到10%的利息，(用)什么支付呢？拿喜币支付。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+大家记住，喜美元一定要善用。接下来咱们在全球的各地方，任何人都要去用那个喜支付H-Pay去找客户。为H-Pay找来的客户，马上会公布政策，让你终身享有里边的提成，你搞个几个就行了。
+
+记住七哥说的话，你们要盯住**三个标志事件**：任何一个真正的有权威的投资机构投喜联储、喜支付的时候，Exchange，那是喜币的一个标志事件；第二件事，当有一个国家或有一个地方批给你虚拟货币银行牌照或国家批给你的支付，整个的就是所谓的虚拟交易市场国家级的牌照的时候；第三个大事情，到最后的时候，当某个国家宣布，我承认你是我国家的法币、主权货币的时候，喜币的价格才真正的出来。没这个之前，你都当成虚幻，你都当成不存在。
+
+喜支付系统，全球战友永远要抓住属于你这一生中最重要的机会，喜支付是你自己每个人拥有的造币的一个金库，终生享有。
+
+**郭文贵****先生****2021****年****11****月****5****日直播**
+
+兄弟姐妹们，我最后再跟你们说一个：比如现在我们谈的支付系统H-Pay。战友们，H-Pay不上线，现在的喜币应该叫什么，你知道吗？喜币，括弧，叫展示版。它叫展示版，因为它没花呢，没法花呀。
+
+**郭文贵****先生****2021****年****11****月****6****日盖特**
+
+H-Pay下月底运行之前，咱们的代理规则会发给战友。很多战友给我发信息，问怎么做：等着公开规则。另外一个大家要注意的，现在大家都看到了整个价格的反应和走势。还有一个大家最关心的就是提现。在提现这个问题上，请大家好好看看其它的货币和银行提现，还有法律，你先了解了解。很快你会看到喜联储公布你每天提现多少，它要等待律师最后的批准。
+
+所以说兄弟姐妹们，这些大事都在每天忙着发生，而且都要经过政府、法律、合规的批准。更重要的现在你没有机会，很多新加入的战友要准备好KYC，懂不懂，明白不明白？
+
+往期回顾：
+[文·贵天成——文贵先生谈“H-pay、喜支付”（一）](https://gnews.org/zh-hans/1952017/)
+[文·贵天成——文贵先生谈“H-pay、喜支付”（二）](https://gnews.org/zh-hans/1952041/)
+[文•贵天成——文贵先生谈“H-pay、喜支付”（三）](https://gnews.org/zh-hans/1956956/)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

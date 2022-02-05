@@ -2,35 +2,32 @@
 ---
 
 
-## 以色列本周COVID死亡率世界上最高!
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1957275/)
+## 七哥说“这是自杀自残的一个冬奥会”（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1957295/)
 
-**编译: 真北007**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-来自GATWAY PUNDIT二月三日的新闻报道：
+来源：郭先生2022-02-02直播09：29：34摘录
 
-以色列，如果不是第一，那也是世界上疫苗接种率最高的国家之一。根据霍普金斯大学的数据分析，它最近一周的每百万人口中的COVID死亡人数名列世界首位，并且重症病例中的80%是完全疫苗接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-352.png)全球每周新冠死亡病例（每百万人），图片来源：[The Gateway Pundit](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
-老天爷啊！在以色列究竟发生了什么？十天前，以色列的一个“专家小组”建议接种第四剂 COVID 疫苗，以保护人们免受冠状病毒的侵害。
+这是自杀自残的一个冬奥会。现在我们在现场我可以告诉大家，就刚才给我发的视频，我要发出去得把你们吓得一哆嗦。我们的人无处不在，我们很有可能会把很多重要场地24小时的保安录像都拿到，未来给你们放出去，你会看到你很难想象的结果。80%是中国军队的人来管理这个奥运会，所有冬奥会周围三个必然装备，专门做的就是叫电击枪，啥叫电击枪知道吧？你们会吧？七哥很早的时候到美国的时候，人家给我当场演示，我当时特别傻，我说：“我不相信。” 拿着对着对方一按，“吱～”，百米之外那个人就跟绳儿牵着一样“哇～”就倒地了，心脏疼。我说：“我不相信，那装得嘛。” “那你要不要试试？” 我说：“那我来试试。” 我亲自被电，哇塞，就像有个钩儿抓着你胸部拽得难受，叫电子枪。在现场最高的最高压的电子枪全部准备，然后是防爆设施、防爆枪。还有什么？大家不知道，无声的、无色的、无香味的催眠武器。不用拿枪，你想啥都是枪吗？不用的，手里拎着，“啪”一按，周围闻到的人立马倒下，大概500米范围之内。他没事儿，因为他提前他按这个之前有一种药，他先一吸，没事儿。这人一闻就能过来，没任何伤害，大概昏倒十几分钟左右，这是所谓的共产党叫“大杀器”。如果觉得冬奥会是一个人类上的盛会，你干嘛我要准备电子枪、催眠枪？，你告诉我它为啥这样准备呢？所有的要求，你看那运动员傻乎乎地介绍：“给我照个相吗？请给我照个相。” 干嘛呢？照相是留你的信息，你只要接触机器人，只要你进屋，所有的样儿、DNA全给你采完。现在人类最值钱的不是比特币也不是喜币，是男女的精子和卵子。所有去的2900个运动员，我可以告诉你全都是共产党掠夺精子卵子的最好的对象。而且科技到啥程度？在盖的被子上，你只要进了北京城了，你绝对会被一切都留下来，就这么说吧。战友们，你们知道这2900个运动员80%甚至百分之更多的，绝都不是世界最顶级运动员，基本上都是西方的一辈子忙点事儿、没饭吃的，吃个汉堡包都跟过圣诞大节似的这些人，我告诉你。你见那顶级运动员会去那去吗？职业运动员一个都不会去，一个都不会去！只要去的，一定是有其他原因的。
 
-根据路透社的数据，到目前为止，以色列已经接种了至少 17,879,314 剂 COVID 疫苗。 假设每个人需要 2 剂疫苗，这足以为该国约 98.7% 的人口接种了疫苗。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-但这似乎没有帮助，以色列现在是世界上每百万人中 COVID 死亡人数最高的国家。也许第五剂就不再是戏法了？
+**关注我们**
 
-另外，最新数据显示，该国 80% 的严重 COVID 病例已完全接种疫苗。
+Discord 账号
 
-**原文链接：**
-[The Gateway Pundit: Country with One of the Highest Vaccination Rates Has Highest Number of COVID Deaths Per Million People This Week –80% of Serious Cases are Fully Vaccinated](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**编辑：LILY**
+Gettr 账号
 
-**发布：MQ**
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-20220204
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
