@@ -2,8 +2,8 @@
 ---
 
 
-## 资本的亲爹就是利益
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958962/)
+## 喜联储喜币是游戏的制定者（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958980/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
