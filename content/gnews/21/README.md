@@ -2,19 +2,27 @@
 ---
 
 
-## 美国整体的经济崩溃还没到
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958868/)
+## 美国称俄罗斯正计划嫁祸行动以入侵乌克兰
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1958893/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+**日本东京方舟农场 子辰**
 
-*发布：陶子*
+据大纪元2月4日报道，五角大楼发言人约翰‧柯比（John Kirby）2月3日表示，美国认为俄罗斯可能正在制作可以显示俄罗斯人受到侵犯的视频，以制造借口入侵乌克兰。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+柯比说，他们有情报表明，俄罗斯正在编造一个可以入侵乌克兰的借口，一种方案是，发动一场由乌克兰军队或情报部队发起的、针对俄罗斯主权领土或讲俄语的人的虚假袭击，从而为其行动提供理由。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-23.png)（图片来自《大纪元》）
+柯比说，俄罗斯或将制作一段非常生动的宣传视频，其中包括尸体和演员。该视频将描绘哀悼者和所摧毁的地点的图像，以及在乌克兰或西方手中的军事装备，甚至其中一些装备制造成看起来像是西方提供给乌克兰的装备。
+
+同时，柯比还证实了《华盛顿邮报》早些时候率先发表的一篇报导，该报导称，俄罗斯将制造出一场虚假的乌克兰对俄罗斯人的袭击。
+
+此外，关于俄罗斯可能正在计划栽赃嫁祸的行动，有美国政府一名高级官员告诉美媒《国会山报》（The Hill），称这是“俄罗斯制定的若干方案之一”。他补充说，美国正在公布俄罗斯这一可能的计划，是因为“希望这能阻止俄罗斯采取其预期的行动方案”。
+
+参考链接：
+[https://www.epochtimes.com/b5/22/2/3/n13553693.htm](https://www.epochtimes.com/b5/22/2/3/n13553693.htm)
+
+素材采编：子辰
+编辑：青城道姑
+发布：文曦
 
  
 
