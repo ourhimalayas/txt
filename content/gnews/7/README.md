@@ -2,31 +2,11 @@
 ---
 
 
-## MV版Hcoin To the Moon上线58天第45次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1961381/)
+## 2月4日文贵大直播（图片）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1961457/)
 
-2/5/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线58天第45次位列澳门iTunes热门音乐视频榜榜首，第52次位列前三名
-
-* * *
-
-[【PDF 下载】Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-
-
-[【PDF 下载】Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Saturday-5-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/07911D9F-86B6-4CFB-A78D-B2D202BCAE34.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/BEFE7219-59D4-4A43-A748-2A3F863A3F22.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8756290E-1665-4601-BFBD-D785B948224F.png)穆巴拉克说；中国人不尊重中国人…
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,31 @@
 ---
 
 
-## 中共奥运会参与国从2008年的204个锐减到33个
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1961520/)
+## 有声|普京借冬奥割中共韭菜 将签天然气与金融合约
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961586/)
 
-新民晚报2022年2月4日报道：中国驻美使馆发言人致函《华盛顿邮报》：奥运会是体育盛会，不是政治舞台
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-447-e1644082638616.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/image-448.png)
-**短评：**
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月2日，俄罗斯总统普京的幕僚鄂夏柯夫表示，普京在出席冬奥期间将与中共习近平会面，届时将签署天然气、金融合作等15项协议。
 
-2008年8月8日晚上8点整，北京夏季奥运会开幕，共有参赛国家及地区204个，参赛运动员11438人，共有60000多名运动员、教练员和官员参加。2022年2月4日晚上8点整，北京冬季奥运会开幕，短短十四年，参与国家及地区就锐减到了33个，开幕式上还有很多代表团人数是个位数的，这还是在中共花重金邀请的情况下，如此悬殊的差距原因何在？无非是中共在2020年2021年这两年在全世界用P4实验室特意研制的病毒与毒疫苗屠杀全人类，妄想达到奴役全球的邪恶目的被戳穿。无非是因为郭文贵先生为代表的新中国联邦爆料革命一次次用掌握的情报让真相大白于了天下，让全世界人民开始觉醒。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-449.png)
-中共日报2月4日电：2022年1月25日，中共驻美国使馆发言人刘鹏宇就《华盛顿邮报》涉北京2022年冬奥会消极社论致函该报编委会，信函强调“奥运会是体育盛会，不是政治舞台”。真是可笑，什么叫消极社论？对健康自由民主进行自卫的社论就是消极社论？对中共释放病毒强打毒疫苗独裁奴役人民的行为歌功颂德的社论就是积极社论是吗？还好意思说奥运会是体育盛会不是政治舞台？你中共2022年这30余个国家参加的所谓全球奥运会算得上盛会吗？中共你已经成孤家寡人了，和当年的希特勒德国与苏联一样。你中共自己就把奥运会当成了最大的政治舞台，当着全世界的面对健康圣洁的奥运会进行了强奸，自己是猪头弱智还侮辱全世界人民的智商。你中共利用“一个城市举办两场奥运会”的政治口号与宣传企图把纯洁的体育奥运变成政治资本，妄想以此为铺垫宣传独裁集权的合理性与合法性。可是，全世界都看明白了，都用行动告诉了你，只有你中共是猪，你习包子就是最大的猪头。
+天然气方面，双方已有多项的新合约准备签署。 金融上则是俄中希望合作，筹建能抵抗被金融制裁的基础架构。
 
-中共你是猪，你把14亿新中国联邦人当猪一样圈养在网络防火墙内，还妄想把全世界人民当成猪。我们是人，不是猪；习猪头你看看你在开幕式上恐惧成啥样，中共，你完蛋了。
+此次跟随普京参与协商的俄罗斯代表团成员，将包括外交部长拉夫罗夫、能源部长舒尔吉诺夫和能源业巨擘俄罗斯石油公司的执行长谢琴。 观察人士认为，此安排显示出普京借有条件出席冬奥会的机会，将在能源交易上大割中共韭菜的意图。
 
-文章观点仅代表作者个人，与gnews平台无关
+文字版原文：[普京借冬奥割中共韭菜 将签天然气与金融合约](https://gnews.org/zh-hans/1953514/)
 
-新闻链接：[https://mr.baidu.com/r/ANZIqBeI4U?f=cp&u=6cc6b73897b89842](https://mr.baidu.com/r/ANZIqBeI4U?f=cp&amp;u=6cc6b73897b89842)
+音频处理/发稿：Daxia
 
-素材：洛杉矶盘古农场 — 归去来兮
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-评论：洛杉矶盘古农场 — 归去来兮
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-编审：洛杉矶盘古农场 — 心照
-
-发布：洛杉矶盘古农场 — 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
