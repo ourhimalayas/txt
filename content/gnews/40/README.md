@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|瑞典将于2月9日解除中共病毒限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958785/)
+## 中俄联合声明贬损中华民国 台外交部严厉谴责
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1959027/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-72.jpg)
+中共与俄罗斯于4日晚间发布《中华人民共和国和俄罗斯联邦关于新时代国际关系和全球可持续发展的联合声明》中，俄罗斯重申“恪守一个中（共）国原则，承认台湾是中（共）国领土不可分割的一部分”。
 
-据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
+中华民国外交部2月5日指出，针对中共与俄罗斯发表联合声明涉及对中华民国台湾主权的不实表述严厉谴责。
 
-对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
+对此，中华民国外交部重申，中华民国台湾与中华人民共和国互不隶属，中华人民共和国政府从未统治过台湾，唯有经由台湾人民自由选举的政府才能在国际间代表台湾人民，无论中共政府如何扭曲其对台湾的主张，都无法改变这个事实。外交部表达严正抗议，并对此贬损中华民国台湾国家主权的不实表述予以严厉谴责。
 
-目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
+台湾外交部指出，中共政府持续在国际社会妄称“台湾属于中华人民共和国”的做法，与其惯于制造错假讯息的低劣手法如出一辙，不仅徒增台湾人民对于中共政府蛮横霸凌的反感与厌恶，更让世界各国认清中国共产党政权侵略扩张、破坏和平的狰狞面目。外交部强调，值此全球关注冬季奥运赛事、纷纷为各国运动员加油喝彩、也关注中共国人权劣行之际，中共政府藉与俄罗斯高峰会操弄威权主义扩张，有辱奥林匹克五环（The Olympic Rings）的和平精神，这将遭台湾人民唾弃，也会被民主国家感到不齿。
 
-文字版原文：[瑞典将于2月9日解除中共病毒限制](https://gnews.org/zh-hans/1955535/)
+信息源：
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+[中俄联合声明贬损中华民国 台外交部严厉谴责](https://www.epochtimes.com/gb/22/2/5/n13556449.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

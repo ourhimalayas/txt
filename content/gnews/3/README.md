@@ -2,40 +2,72 @@
 ---
 
 
-## 有声|新中国联邦甜蜜蜜运动打向中共的三个回合
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1960310/)
+## 思念
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1960440/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月2日，郭文贵先生在大直播中详述了新中国联邦“甜蜜蜜运动”打向中共的三个回合。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-2.jpeg)
-郭先生解释，第一个回合是他在1月25日向世界宣告，美国政府正式通知中共，即日起授权撤离美国驻北京大使馆。随后，即使中共通过各种优厚条件苦苦哀求挽留美国，但终究为时已晚。
+作者：蓝之灵
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+思念的泪水
+汇成了河
+洗不尽
+悲伤故事
+一个民族耻辱
+深深刻在
+血液里
+骨髓里
+唯有灭共
+才是唯一出路
+母亲的眼泪
+从此不再
+因悲伤哭泣
 
-第二个回合则是郭先生在新中国联邦新春晚会上用灵魂演唱的三首灭共歌曲：《甜蜜蜜》、《一帘幽梦》和《塞北的雪》。郭先生提到，随着《甜蜜蜜》运动的开启，一曲改编版的《一帘幽梦》顺应了邓丽君女士的灭共遗愿，而《塞北的雪》已经被中共定为本届冬奥会开幕式的主打歌曲，当年的彭丽媛更是凭此曲进京，郭先生如今率先唱响此曲，一举让中共的计划破功。
+愤怒
+是燃烧火焰
+要焚尽这耻辱
+让我爱的民族
+回归华夏光芒
+孩子们的笑脸
+是荣光希望
+母亲的笑脸
+是我追逐的梦想
 
-至于第三个回合，郭先生表示，要让中共北京的冬奥会变成“冬眠会”。郭先生补充道，他深知此次冬奥会的弱点和来龙去脉：本届冬奥会从各个方面看都完全是政治交换、交易的结果，尤其在人文和土壤方面，其来路极为不科学、不自然。
+我愿
+愿母亲不再流泪
+和悲伤
+回家的路啊
+早已模糊不清
+穿透这河水
+也看不到
+母亲的身影
+母亲的呼唤
+早已变得朦胧
+泪水成河
+也洗不尽
+思念如潮
+如飓风
+似海啸
+涌向母亲
+灭共吧
+灭共吧
+这是唯一途径
+游子期盼眼神
+终于寻到
+母亲的身影
 
-郭先生指出，新中国联邦的力量无处不在，我们有能力举办一场“冬眠会”。尤其在三个回合的灭共重拳下，中共必然无力回天。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-文字版原文：[新中国联邦甜蜜蜜运动打向中共的三个回合](https://gnews.org/zh-hans/1956474/)
+**校对/发稿：童谣**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

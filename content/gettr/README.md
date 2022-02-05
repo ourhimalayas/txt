@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 2:42 PM (UTC)`
+
+<br/> 2月5号悲哀呀悲哀［在中共国，买一个或多个女人均判3年以下有期徒刑，但是买一个鹦鹉都要判5年以下，买2个鹦鹉要判5年以上，买20只癞蛤蟆判3年，所以中国人的命在共产党眼里连鸟都不如，与癞蛤蟆等价。In China, buying one or more women is punishable by up to three years in prison, but buying one parrot is punishable by up to five years, buying two parrots is punishable by more than five years, and buying 20 toads is punishable by three years, so the lives of Chinese people are worse than birds in the eyes of the Communists and are equal to those of toads.］
+![img](https://media.gettr.com/group27/getter/2022/02/05/14/ee056309-4a4d-027b-6c11-65f4c884110c/out.jpg)
+
+---
+
 `@miles 2/5/2022 2:31 PM (UTC)`
 
 2月5号：在中共国生存的女人．连20只癞蛤蟆的价值都不如……这不是今天．也不是昨天，是一直以来都这样，我们都是女人生的，在这样的国家还有自信，还有人权？还有希望吗？
@@ -149,13 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 2/2/2022 Miles Guo: What does the red of my suit have to do with the Vatican? It was God's will that I received the cufflinks from the Vatican before today's live broadcast.<br/><br/>2/2/2022 文贵直播：文贵这件衣服的红色跟梵蒂冈有何联系？文贵在今天直播前收到梵蒂冈送的袖扣是天意<br/>
 ![img](https://media.gettr.com/group16/getter/2022/02/03/15/3fca798c-08ed-e1d7-4e8f-d2ac93dbd085/out.jpg)
-
----
-
-`@miles 2/3/2022 5:19 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border” <br/>1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（纯享版）
-![img](https://media.gettr.com/group9/origin/2022/02/03/05/ec1ef70d-cce2-a5a2-33dd-252cf5225024/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

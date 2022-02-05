@@ -2,28 +2,41 @@
 ---
 
 
-## “冬眠会”开幕京官方通报新增1例 德国队员新增2例
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1959985/)
+## 有声|脸书股价创历史最大跌幅
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1960276/)
 
-整理/编辑：Little Lamp
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月2日，据媒体消息显示， 脸书在当天美股收盘后公布了其2021财年第四季度的财务报表。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-2.jpg)
+该财报显示，脸书这一季度的营收增幅明显放缓，其股票的收益、净利润和用户指标均低于市场预期，是自2019年第二季度以来，该公司首次出现净利润下滑的情况。此外，该公司的核心应用程序脸书在第四季度的日活跃用户比上一季度减少了50万，这是自脸书面世以来的首次下降。同时，其数字货币项目几经波折，最终于1月31日晚间将数字货币的相关资产全部出售，就此关停其全球支付的计划。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
+对此，郭文贵先生在直播中指出，脸书实际上参与了人类大屠杀，其根本没有未来，这是它不得不放弃数字货币的深层次原因。
 
+另外， 近几年来，脸书由于侵犯隐私的行为，已经被美国和欧盟的监管机构罚款近60亿美元。更甚者，以脸书为首的社交媒体寡头持续打压言论自由，尤其在中共病毒疫情爆发以后，其掩盖病毒和疫苗真相的做法引发了世界民众普遍的反感和批评。
 
-据联合新闻网报道，中国2月4日举行冬奥会开幕式，北京官方通报本土病例新增1例，德国团队则证实有2名选手感染。全球新冠疫情持续蔓延之际，国际科学研究人员呼吁，中国不该阻挠covid-19的起源调查。
+截至目前，脸书的股价暴跌26%，相较去年最高点已下跌近四成，创下其历史上最大的单日跌幅。
 
-美国约翰霍普金斯大学网站追踪数据显示，截至台湾时间5日上午7时，全球至少572万1285人感染covid-19病逝，至少3亿9007万7243人确诊。
+而郭文贵先生则表示，脸书践踏言论自由和对病毒真相的掩盖会将其送上死亡之路。
 
-据报导，台湾4日新增covid-19感染71例，本土新增25例，境外输入新增46例。香港4日新增131例，其中59例感染来源不明。4日新增一采阳性195例。卫生官员警报，本土病例稍后可能以几何级数爆发。中国官方报道2月4日新增27例，本土新增9例。
+文字版原文：[脸书股价创历史最大跌幅](https://gnews.org/zh-hans/1955847/)
 
-*发布：tianzhihuan*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
