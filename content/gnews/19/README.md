@@ -2,23 +2,11 @@
 ---
 
 
-## 郭文贵盖特音频2022.02.05
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1961654/)
+## 数据泄露美军疫苗副作用（图片
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1961666/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/out-8.jpg)
-### 视频链接：
-
-[https://www.gettr.com/post/pso6vra94f](https://www.gettr.com/post/pso6vra94f)
-
-### 音频链接：
-
-
-
-
-
-编辑发布：闪电训练
-
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1DA07A6A-1B4C-4872-B7EA-804F91712310.jpeg)疫苗副作用导致心脏病、心包炎、心肌炎、艾滋病、肺栓塞、流产…暴增
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

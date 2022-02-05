@@ -2,30 +2,50 @@
 ---
 
 
-## 法律你我他：中共国相关法律-扫黄打非
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1962171/)
+## 冬奥看台空荡荡，新西兰仅派一名官员助威运动员
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1962191/)
 
-#### 加拿大温哥华扬帆农场 蓝枫法律
+作者：若蘭 sherryok
+![](https://assets.gnews.org/wp-content/uploads/2022/02/酷翻组1-4.png)
+中共国北京冬奥会为参加开幕式的新西兰运动员和工作人员搭好了舞台，尽管美国、英国、澳大利亚集体抵制冬奥会，新西兰也仅仅派出一位孤零零的代表参加开幕式，为新西兰运动员助威。
 
-共产党1949年取得大陆政权后做了一系列的改革，60年代时所谓的‘小姐’就全部打到了新疆建设兵团，1980年之后放开了各种社会把控，性服务业就重新浮上水面，之后尽管政府在打压，但其实性服务业在中国大陆有非常多的从业者，但因为没有NGO，没法知道从业人数，应该是非常多的，已经成为一个有大量经济产出的行业。
+[由于对中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[共](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[国人权记录](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[——](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[尤其是对中](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[共](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)[国新疆维吾尔族人的虐待](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)——对此提出质疑的国家开始考虑对北京冬奥会进行外交抵制，有关国家将派谁参加北京冬奥会的问题在2021年底引发了争议。
 
-文贵先生说过，国内的经济就是卖血、卖子宫经济，靠着把中国人身体每一个地方都污染完了来制造财富，这显然是不可持续的，这里面有很多组织犯罪和政府腐败，包括艾滋病和性传播疾病，他的法律核心定义了性服务业是不符合所谓的社会主义法律架构的，但是大家在国内呆过都知道凡是你看到有什么地方是禁止黄赌毒的，那这个地方肯定就是干这个事的，这个就是反向操作。
+包括加拿大、比利时、丹麦、爱沙尼亚、立陶宛等十个国家，最终呼吁抵制中共北京奥运，只派运动员参加比赛，不派政治及政府官员出席。
 
-1987年出的治安管理处治条例规定卖淫嫖娼行为属于违法，这个条例快40年了都没有发生什么变化，卖淫嫖娼处10-15日以下治安拘留并处5000元以下罚款，情节较轻者处于5日以下拘留和500元罚款，这是1987年制定的，那个时候的罚款已经相当高了，之后人大出台了关于严禁卖淫嫖娼的决定，包括妇女保障法，这个其实都是为了配合中美建交搞开放，为了应付美国、外国人人权相关的联合国人权各类机构对它的一个要求，所以中共国从我们从出生，从摇篮到坟墓，他都把你当成矩阵里面的一个电池，把你用尽用干、物尽其用，每一个环节都可以捞钱。
+在新西兰，政府就是否会采取相同的抵制手段发出了混乱的信息，只建议不派政府官员出席，但外交与贸易部又指派一名驻北京大使馆的代表出席2月4日的开幕式。
 
-在2006年以前，中国大陆警察可以以你身上有安全套而断定你是性工作者，处以1000-5000元罚款，被抓三次以上即可送六个月以上一年以下的劳教，这个就是客观上阻止了安全套的推广，从而增加了艾滋病和性病的传染，另外这个劳教制度是很可怕的，不管你是性工作者或嫖客都可以被拉去劳教，最高4年。而劳教不是一个完整的立法，而是一个治安条例，条例和立法在合法性和强度上是不一样的，七哥也说过李云迪就是没有给那个派出所所长要的450万，这个事才被爆出来。还有就是抓人，中国大陆很多名人、明星、导演被抓，然后报道出来是嫖娼，记得黄海波还被爆出来嫖的是变性人而不是一个普通的女性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-140604221J2.jpeg)图片lalailai y来源：XDJK
-中国法律就不是法律，他想怎么做就可以随便一拐弯，他的用词模拟两可，怎么说都可以。所谓的扫黄打非无非就是一刀一刀的去割钱，就是割韭菜，性服务产业的小姐有了钱之后警察就来捞一笔，老百姓永远都是被割韭菜，但他们不知道自己是在被割，也不知道中国的法律具体怎么规定的，这和我们刚才看到的案例完全是两回事。
+“新西兰大使馆的一名代表正计划参加，作为在没有国际观众的情况下支持我们运动员的一个象征， ”外交部发言人在2月3日的一份声明中说。
 
-我们都知道东莞是中国的性都，他们可以做那么大，如果没有保护伞怎么可能做的起来？这也能说明土共这个所谓的法律法规就是一纸空谈，当你和政府是一条腿走路的时候做什么都没问题，但政治上没站对的话，从别的省调来的武警特警什么的就可以把你一锅端，地上蹲的那些人以前都是给当地提供油水的被剥削者，现在就蹲在地上。
+“和其他人一样，我们确实对中共国的人权状况感到担忧，我们会继续在私下和公开声明中向中共提出这些问题。 ”
 
-所以说没有法律，法律也没有执行，所有的法律就是他们压榨剥削打击异己的一个工具，建国初期他们把妓女打包送到新疆兵团，安抚那些兵团里需要解决生理需求的人，他们从各个省找那些年轻的女孩子，让他们支援边疆，难道不也是一个中共这个当地的嫖客和拐卖妇女儿童的一个很好的例子吗? 但是大家有谁去想这些？去问这些人？
+将出席的官员没有进一步说明，但发言人证实新西兰驻华大使克莱尔·费恩利不会出席。
 
-直播视频链接：
+兼任体育部长的副总理格兰特·罗伯逊此前否认新西兰会在外交上抵制奥运会，同时暗示外交官和其他官员不会出席。
 
-[第41期初探性产业及法律规范](https://gtv.org/video/id=61f5d81881ce0a3ac2a15dcb)
+罗伯逊在2021年12月表示，新西兰“已经没有像以前那样参加外交活动” ，因为政府部长或官员不会前往奥运会，主要是由于中共病毒的大流行。
 
-编辑/发文：蓝枫法律栏目
+他表示，他不会将此称为外交抵制，新西兰奥运代表队可能会从当地外交官那里获得“后勤支持”。
+
+但在几天后的议会听证会上，贸易部长达米安·奥康纳似乎证实政府已决定对奥运会进行外交抵制。
+
+国家议员托德麦克莱问他是否支持抵制的决定，奥康纳说， “是的，这是我们作为一个国家需要做的事情”。
+
+“我知道这种困境……我们不得不将我们的贸易关系与我们不时向中共提出的其他问题、人权问题区分开来，显然奥运会是另一个外交敏感领域， ”奥康纳说。
+
+中共国[举办冬奥会正值这个崛起的超级大国与西方之间](https://www-stuff-co-nz.translate.goog/sport/olympics/300510429/winter-olympics-spotlight-back-on-china-for-covidtinged-games?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=wapp)[关系日益紧张的](https://www-stuff-co-nz.translate.goog/sport/olympics/300510429/winter-olympics-spotlight-back-on-china-for-covidtinged-games?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=wapp)时刻。
+
+[包括新西兰在内的许多国家对新疆维吾尔穆斯林少数民族](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://interactives.stuff.co.nz/2021/circuit/deleted-documentary/)的侵犯人权行为越来越直言不讳，并采取行动试图抵制中共在太平洋等地区日益增长的影响力。
+
+除此之外，新西兰在2021年12月初，曾与中共签署在冬奥会前的奥林匹克休战协议（这一传统可以追溯到古希腊，以确保冲突不会扰乱比赛）， “四方”成员——美国、印度、澳大利亚和日本——均未支持该决议，新西兰也是五眼情报共享网络（包括澳大利亚、新西兰、加拿大、英国和美国）中唯一签署该休战协议的国家，显示出一个政治小国，在国际冲突事务中的犹豫不决，患得患失的心态。
+
+非歧视原则是奥林匹克主义的核心。这包括了基于[种族](https://zh.wikipedia.org/wiki/%E7%A7%8D%E6%97%8F%E6%AD%A7%E8%A7%86)、[肤色](https://zh.wikipedia.org/wiki/%E8%86%9A%E8%89%B2)、[性别](https://zh.wikipedia.org/wiki/%E6%80%A7%E5%88%AB%E6%AD%A7%E8%A7%86)、[性取向](https://zh.wikipedia.org/wiki/%E6%80%A7%E5%8F%96%E5%90%91)、[语言](https://zh.wikipedia.org/wiki/%E8%AF%AD%E8%A8%80)、[宗教](https://zh.wikipedia.org/wiki/%E5%AE%97%E6%95%99)、[政治](https://zh.wikipedia.org/wiki/%E6%94%BF%E6%B2%BB)或政见、[国籍](https://zh.wikipedia.org/wiki/%E5%9B%BD%E7%B1%8D)或社会[出身](https://zh.wikipedia.org/wiki/%E5%87%BA%E8%BA%AB)、财产、[血统](https://zh.wikipedia.org/wiki/%E8%A1%80%E7%B5%B1)或其他社会地位等要素的歧视。而中共正切切实实的实施着对人类种族最大的其实，对新疆维吾尔族，藏族的种族大屠杀，对香港民主运动的扼杀，对中共国内异议人士的任意抓捕和杀害，无时无刻不在亵渎奥运精神。得道多助，失道寡助。一个对自己民族歧视的政府，就能对其他民族好吗？事实上没有人愿意与一个种族内歧视的政府交朋友。支持一个人权劣迹斑斑的政府开奥运会，将会断送人类文明的传承。
+
+新闻链接： [https://www.stuff.co.nz/national/politics/127674318/new-zealand-to-send-a-single-official-to-cheer-on-olympic-team-at-beijing-winter-games](https://www.stuff.co.nz/national/politics/127674318/new-zealand-to-send-a-single-official-to-cheer-on-olympic-team-at-beijing-winter-games)
+
+审核校对： sherryok
+
+上传排版：水云间
 
  
 
