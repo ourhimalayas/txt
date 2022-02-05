@@ -2,8 +2,8 @@
 ---
 
 
-## 人类的延续和修行
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959574/)
+## 人类真的很渺小
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959628/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

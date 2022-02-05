@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦灭掉共产党后要实现
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959521/)
+## 中国贫困山区人畜不分群居
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959549/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
