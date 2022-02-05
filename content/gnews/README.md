@@ -15,71 +15,71 @@
 
 ---
 
-### [错误的理解大自然是迷信 正确的理解大自然是信仰](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [嘉宾分享（二）](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [共产党一定被灭，喜联储书写新的规则（三）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [从七大维度浅析中共加强现金存取管控的影响](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [被包装为基督徒的NIH院长柯林斯向信徒宣传新冠的虚假信息](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [《历史的今天》2022.02.05](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [共产党一定被灭，喜联储书写新的规则（二）](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [共产党一定被灭，喜联储书写新的规则（一）](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [共产党高官当中谁都不敢谈郭文贵](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [“老式”Novavax疫苗能否说服德国的怀疑者？](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [防范意识比什么解药都管用（二）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [可悲可恨可怜的中国人 没有比今天的中国人更可拍了](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [战友要表现自信](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [七哥给的三个建议](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [欧盟11个国家宣布取消COVID-19限制措施 逐步打开国门](/content/gnews/15/README.md)
- ` 温哥华扬帆农场`
-
-### [防范意识比什么解药都管用（一）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [北京冬奥会比德国纳粹希特勒的奥运会更失败](/content/gnews/17/README.md)
+### [来自佩洛西关于冬奥会的警告](/content/gnews/1/README.md)
  ` 澳喜特战旅Gnews`
 
-### [佩洛西敦促美国运动员对中共的凌辱保持缄默，以免遭到报复](/content/gnews/18/README.md)
+### [新中国联邦灭掉共产党后要实现](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [养老金是统治阶级 统治人类最愚蠢最低级的办法](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [错误的理解大自然是迷信 正确的理解大自然是信仰](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [嘉宾分享（三）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [嘉宾分享（二）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [共产党一定被灭，喜联储书写新的规则（三）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [从七大维度浅析中共加强现金存取管控的影响](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [被包装为基督徒的NIH院长柯林斯向信徒宣传新冠的虚假信息](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新加坡日增新冠确诊病例首度破万](/content/gnews/19/README.md)
+### [《历史的今天》2022.02.05](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [共产党一定被灭，喜联储书写新的规则（二）](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [共产党一定被灭，喜联储书写新的规则（一）](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [共产党高官当中谁都不敢谈郭文贵](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [“老式”Novavax疫苗能否说服德国的怀疑者？](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [防范意识比什么解药都管用（二）](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [可悲可恨可怜的中国人 没有比今天的中国人更可拍了](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [欧盟11个国家宣布取消COVID-19限制措施 逐步打开国门](/content/gnews/17/README.md)
+ ` 温哥华扬帆农场`
+
+### [防范意识比什么解药都管用（一）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [佩洛西敦促美国运动员对中共的凌辱保持缄默，以免遭到报复](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新加坡日增新冠确诊病例首度破万](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [荷兰公共电视台NOS记者在中共国的遭遇是家常便饭](/content/gnews/20/README.md)
+### [荷兰公共电视台NOS记者在中共国的遭遇是家常便饭](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [克罗地亚政客将中共病毒疫苗强制措施 比作“死刑”](/content/gnews/21/README.md)
+### [克罗地亚政客将中共病毒疫苗强制措施 比作“死刑”](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [习近平的冬奥开幕式 国际嘉宾都是七哥好朋友](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
 
 ### [美议员促政府监测中共在冬奥推数字人民币](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

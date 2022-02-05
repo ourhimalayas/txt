@@ -2,27 +2,24 @@
 ---
 
 
-## 共产党高官当中谁都不敢谈郭文贵
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959375/)
+## 被包装为基督徒的NIH院长柯林斯向信徒宣传新冠的虚假信息
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1959443/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 翻译/撰稿：zzballack
 
-刚才猫本小哥问的这个问题非常非常好，我们对待共产党的这个战略战术当中，我们一定要有明白一个最核心的问题，就是现在共产党和我们之间这个较量，他不想面对，甚至，所以共产党高官当中，谁都不敢谈郭文贵。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-4.jpg)图片来源：宗教新闻社（religion news service）
+据《网关专家》（Gateway Pundit）2月4日报道，美国作家梅根·巴沙姆 (Megan Basham)在为《每日连线》 (The Daily Wire) 撰写的一篇文章中，概述了美国国立卫生研究院（NIH）院长弗朗西斯·柯林斯 (Francis Collins) 如何利用宗教领袖向基督徒宣传官方的新冠病毒自然来源理论以及口罩、疫苗等防疫政策。
 
-这次你看看中国人在历史上不能谈的几个人的名字的其中有几个像郭文贵这样的，近代由李洪志法轮功的创始人李洪志先生，是吧达赖喇嘛先生？是吧？但是新中国联邦这个词儿，是中共产党有史以来不允许他的，中国法轮功可以谈，是吧？西藏可以的，新疆也可以的，但是郭文贵和新中国联邦，新中国联邦的爆料革命和这时候绝对不能谈，历史前所未有。
+巴沙姆在文章中写道：“柯林斯参加了一个由《今日基督教》 (Christianity Today)杂志共同主持的直播活动，该媒体将柯林斯介绍为是‘耶稣的追随者，肯定人类生命的神圣性’，尽管柯林斯在担任NIH院长期间一直在执行极端的反生命政策，比如支持堕胎、资助从婴儿身上提取器官的研究等等。基督教组织的这些评价肯定会让许多厌恶堕胎、怀有坚定宗教信仰的人参加柯林斯的讲座，而且容易相信这位志同道合的政府医学专家代表的言论。”
 
-我们不仅在时尚，我们不仅在这个整个病毒大流行，不仅在数字货币，不仅在金融，我们更重要的就刚才大家最后一句话来总结，跟共产党，这个叫真的是天地之间正义和邪恶，有神论和无神论，到底地球是一粒沙呢？宇宙无限大呢？还是共产党，就是天就是地，他就是太阳，爹亲娘亲不如党亲，共产党万岁万岁万万岁，永远不死是吧？他一共才100岁，他就是万岁万岁万万岁是吧？我看我那2张照片的时候我感触特别深，那是1977年，我当时是7岁，应该是不到8岁，1977年我那时候你七哥那么小的孩子，我就天天看着东北墙上贴着那个报纸，七哥都已经认字，认到那个程度了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/共产党高官当中谁都不敢谈郭文贵.001.jpeg)
-2022年1月7日文贵大直播
+“在小组访谈中，柯林斯继续坚称新冠病毒的实验室泄露说是不可行的，而且应当被贴上错误信息标签。他说，如果你试图设计一种更危险的冠状病毒，你永远不会设计出这种病毒。所以我认为人们可以非常自信地说，这种病毒不是由人类制造的，它是自然形成的。”
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“这与他的下属安东尼·福奇向主流新闻媒体所传达的信息相同，但柯林斯被特别指派来向宗教信徒传达这一信息。正如《时代》（Time）杂志在2021年2月所报道的那样，当福奇作为医学领域的公众人物（向人们宣传官方的新冠叙事）时，柯林斯一直在向宗教信徒做巡回演讲和宣传。但是基督教组织的编辑、作家和记者并没有像他们的主流媒体同行质疑福奇那样质疑柯林斯。”
+
+在有关新冠政策的执行和叙事上，官方有一套完整战略，柯林斯被用来向信徒们宣传疯狂的强制令和虚假信息。虽然基督教领袖们将其说成是一个可以信任的人，但大量证据表明情况并非如此，基督教联盟必须应对这一问题。
+
+新闻来源：[Dr. Francis Collins Used Religious Leaders to Push COVID Origin Narrative and Masking and Vaccine Policies to Their Congregations](https://www.thegatewaypundit.com/2022/02/dr-francis-collins-used-religious-leaders-push-covid-origin-narrative-masking-vaccine-policies-congregations/)
 
  
 
