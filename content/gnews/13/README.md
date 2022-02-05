@@ -2,19 +2,24 @@
 ---
 
 
-## 现在的冬奥会和大清朝的对比
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958663/)
+## 卢比奥：拒绝观看实施种族灭绝的政权主办的任何奥运会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958597/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 撰稿：彩虹       
 
-*发布：陶子*
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16440355401.png)图片来源：网络截图
+2月4日，来自美国弗罗里达州的参议员马可·卢比奥（Marco Rubio）在推特（Twitter）上发布了反对北京冬奥会的评论，《新闻极限》对此做了报道。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+卢比奥在推特上写道“我希望不会发生（不好）事件，并祝福所有的美国人（运动员）在2022北京冬奥会上表现的最优秀。但是，我不会观看、关注或庆祝任何对新冠病毒（COVID）撒谎的、极权的、正在实施种族灭绝的共产主义政权举办的任何奥运会。”
+
+文章说，2022年10月份，卢比奥与新泽西州众议员克里斯·史密斯（Chris Smith）一起致信国际奥委会（IOC），鉴于有关中共国政府进行种族灭绝的报道，呼吁该组织推迟在北京举行奥运会。
+
+他们在信中写道：“反对种族灭绝立场是一个道德决定，而不是一个政治决定。当涉及到道德决定责任时，国际奥委会不能置身世外，道德中立是一个矛盾的说法。现在要求你们做的是，在中（共）国当局犯下种族灭绝最的情况下，拒绝让中（共）国当局享有在其首都举办奥运会的荣誉。”
+
+**新闻来源**
+
+[Sen. Rubio: ‘I Won’t Watch, Follow, or Celebrate’ the Olympics](https://www.newsmax.com/newsfront/rubio-olympics-beijing-genocide/2022/02/04/id/1055561/)
 
  
 

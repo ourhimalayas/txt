@@ -2,24 +2,14 @@
 ---
 
 
-## 有声|乌兹别克斯坦提议封锁TikTok
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958570/)
+## 有声|2022年2月2日 晚 新中国联邦新闻、GTV新闻访谈简报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958571/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月2日，据《国际文传电讯社》报道，乌兹别克斯坦社会民主党“Adolat（正义）”提议在该国完全封锁社交网络TikTok。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1.png)
 
-该党在周三张贴在“Adolat”网站上的一份声明中说：“应加强刑事处罚，并应完全封锁互联网上弊大于利的移动应用程序，如TikTok。”
 
-还指出，尽管该国存在限制，但TikTok用户能够通过VPN应用程序访问该社交网络。
-
-早些时候，民主党“Milliy Tiklanish（民族复兴）”的领导人阿利舍尔·卡德罗夫（Alisher Kadyrov）建议在该国封锁TikTok。
-
-2021年7月，乌兹别克斯坦总统沙夫卡特·米尔济约耶夫批评TikTok视频侮辱了军人阿米尔·帖木儿和诗人阿利舍尔·纳沃伊的历史纪念碑。
-
-同样在2021年，国家信息和电信控制监察局限制Skype、Twitter、TikTok、VKontakte和微信的运行，因为这些互联网资源违反了个人数据法，该法要求所有互联网资源储存乌兹别克斯坦公民在该国的个人数据。
-
-文字版原文：乌[兹别克斯坦提议封锁TikTok](https://gnews.org/zh-hans/1947657/)
+文字版原文：[2022年2月2日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1949017/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
