@@ -2,27 +2,33 @@
 ---
 
 
-## 佩洛西警告美国运动员在奥运会期间不要冒险招致中国政府的愤怒
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1957962/)
+## 【秘翻在线】过百名高中生拒绝盲目服从州长的口罩规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1957977/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/p1-1.jpg)图片来自网络
-本周四，美国众议院议长佩洛西，在美国国会和行政部门就中国问题举行的听证会上，对参加北京冬奥会的美国运动员发出警告，残暴的中国共产党政府可能会做损害运动员的声誉的事情。运动员们是来参加比赛的，不是来冒招致中国政府愤怒的，中共政权非常残暴。
+**撰稿：Grace**
 
-佩洛西还说:“我知道，有些人在中共国很想公开发表意见。我尊重这一点，但我也担心中国政府可能会采取什么行动……损害运动员的声誉，损害运动员的家庭。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-04-at-8.31.44-PM.jpeg)图片来源：thepostmillennial
+据 The Gateway Pundit 2 月4日报道，加州奥克戴尔高中 （Oakdale High School）的100多名没有戴口罩的学生被禁止上课。工作人员将拒绝戴口罩的学生关在体育馆内，并调低温控器以 “冻死他们”。
 
-佩洛西在发表这些言论之前，一直在批评中国共产党政权在国内侵犯人权、在国外违反国际法和自由的行为。
+据报道，在加州的纽森（Newsom）州长被发现在49人与公羊队（49ers-Rams）的橄榄球比赛中没有戴口罩后，奥克戴尔联合学区的高中生开始抗议该州的口罩规定。
 
-中国在强硬派领导人习近平的领导下进行的镇压，在社会的各个层面都能感受到。 2019年，香港当局镇压了反政府抗议活动，北京中央政府通过了旨在压制异见的《国家安全法》，导致活动人士被逮捕，市民社会团体被解散。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/p2.png)
-去年12月，一个由英国知名律师成立的非官方独立机构得出结论称，中国政府犯下了种族灭绝罪行。该机构旨在评估有关中国涉嫌侵犯维吾尔族人权的证据。 中国一直否认在该地区有任何侵犯人权的行为，并表示其采取的行动是为了打击极端主义，确保该地区人民的安全。 据研究人员称，近年来，在中国西部的新疆地区，估计有100多万人(其中大部分是维族人)被关在劳改营。
+其中一名拒绝戴口罩上课的高中生在接受媒体采访时说：“如果他们（政府官员）自己不遵守他们试图强加给我的规则，我为什么要遵守这些规则。”
 
-本周早些时候，美国联邦调查局(FBI)局长克里斯托弗·雷(Christopher Wray)表示，来自中国共产党的威胁比以往任何时候都更加肆无忌惮更具破坏性。没有哪个国家比中国政府对我们的思想、创新和经济安全构成更大的威胁，中国政府窃取了数量惊人的信息，并在许多行业造成了深刻的、破坏就业的破坏。
+报道称，这些勇敢的高中生本周没有戴口罩去上学，而极左派的学校工作人员用午餐桌把孩子们堵在学校的体育馆里。
 
-参考信息：
+在一名学校工作人员调低恒温器以 “冻死他们 ”之后，警方被要求进行福利检查。
 
-[https://www.foxnews.com/politics/pelosi-warns-olympic-athletes-not-to-risk-incurring-the-anger-of-ruthless-chinese-government](https://www.foxnews.com/politics/pelosi-warns-olympic-athletes-not-to-risk-incurring-the-anger-of-ruthless-chinese-government)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-1.jpg)
+一名学校官员进行了福利检查，并认为这不是警察的事，所以虐待事件目前没有接受警方调查。
+
+据报道，逃出冰冷的体育馆后，学生们游行到区总部抗议。而几十名家长也在学校门口展示了对他们的游行的支持。
+
+接受采访时，这位拒绝盲目服从州长定的口罩规定的高中学生还说道：“当你面对困难时，仅仅因为你正在经历艰难的时刻，并不意味着你应该退缩和放弃你所相信的东西。”
+
+上帝保佑这些孩子。
+
+**新闻来源： ****[California High School Barricades Maskless Children in Gym, Staffer Turns Down Thermostat to “Freeze Them Out”](https://www.thegatewaypundit.com/2022/02/california-high-school-barricades-maskless-children-gym-staffer-turns-thermostat-freeze/)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

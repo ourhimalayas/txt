@@ -2,30 +2,33 @@
 ---
 
 
-## 关于直播声明各国抢着争第一，抢功（上）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957857/)
+## 军方告诉渥太华：驱逐卡车司机，找别人去吧！
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1957869/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/关于直播说明，抢攻（上）_01.jpg)
-直播时间：2022.01.26
+2022-02-04
 
-就是在咱们这个直播之前，没有任何战友知道，谁都不知道今天是啥事，我也告诉你，这20多个国家的政府官员坐在这儿，大概是九点三十几分的时候我开始告诉他们，他们都傻了，你要干嘛？我说我马上要直播，他们说你等等，让我先给我的总统报告，叫我当第一。
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PT7SCZGJPY47MYCT8F.png)图片来源：[FIRST READING: Military tells Ottawa to find someone else to evict the truckers](https://nationalpost.com/news/canada/first-reading-military-tells-ottawa-to-find-someone-else-to-evict-the-truckers)
+来自NATIONAL POST二月四日的新闻报道：
 
-所有人都想抢这个功。但是就你刚才说到的核心，为什么全人类就咱报告，发不发生咱用事实看就完了。
+尽管渥太华警方简略地提出了军事干预的可能性，以清除封锁市中心的自由车队卡车司机的顽固抵抗，但加拿大武装部队CFA很快就表示他们不会这样做。 国防部长发言人周四对《华尔街日报》表示，“在这种情况下，加拿大武装部队不参与执法，也没有计划参与”。
 
-我要告诉大家，它不是美国能完成的事儿，它就是布林肯先生，这是个很非常非常有正义感的（人）。你看着他跟那个王毅在那咋呼，人家布林肯是专业世家，是真正的外交官，人家是有教养的人，知道了嘛，人家布林肯先生身边的人都对他赞赏有加，那是一个非常强大的男人。
+总理贾斯汀·特鲁多周四也表示，“目前军事干预还不在考虑范畴”，“在涉及加拿大人民参与的事件中部署军队之前，必须非常非常谨慎”。
 
-还有咱们战友不要“要么我就是川普，要么就是川普的对手”，都是我的敌人，管你的鸟事儿。人家美国两党政治，谁灭共都是咱朋友。
+在近代，只有两起加拿大军队被要求平息内乱的事件。 第一次是 1970 年 10 月的危机，实际上在消灭魁北克分离主义者恐怖主义方面做得很好。 但是，武装士兵集体拘留和平的魁北克民族主义者的场景，一直是当时总理皮埃尔·特鲁多政绩的一个污点。 第二次是 1990 年的奥卡危机，其评说更为复杂。 军方最终确实迫使莫霍克领导的抗议活动停止了他们对有争议的高尔夫球场扩建的封锁，但整个事件是如此混乱，它成了军方不该做什么的范例。 奥卡的经历可以说是加拿大执法部门犹豫派军队对抗封锁的一个关键原因，即使那次他们连续多天完全占领了该国的铁路线。
 
-发布：*皮特*
+总之，所有这些军事干预话题之所以开始，只是因为渥太华警察局长彼得斯洛利周三表示，“对这次示威，警察可能没有解决方案”，并且“我们正在考虑每一个选项，包括军队对涉民执法的援助”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**点评：**军队是抗御外敌，保护人民，类似六四的事件只有在中共等独裁国家发生。和平抗议集会是宪法赋予公民的权力，驱逐镇压追求自由的和平抗议卡车司机，军队不参与，爱找谁找谁！
 
+原文链接：[FIRST READING: Military tells Ottawa to find someone else to evict the truckers](https://nationalpost.com/news/canada/first-reading-military-tells-ottawa-to-find-someone-else-to-evict-the-truckers)
+
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
