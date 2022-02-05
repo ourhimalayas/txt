@@ -2,19 +2,20 @@
 ---
 
 
-## 属虎猪不能进昆仑山（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957621/)
+## 萨省将取消所有疫情限制及疫苗护照措施
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1957673/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据加拿大媒体《真北方》2月1日报道, 萨省已成为第一个宣布即将取消所有疫情限制和疫苗护照的省份。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，于2月28日结束所有限制措施的决定是省长斯科特在民意“希望一切恢复正常”之后作出的。新的民意调查显示，54%的加拿大人支持尽快结束各种与疫情和疫苗相关的限制措施。
+
+此外，阿省和安省也计划进一步放宽相关疫情政策。而魁北克省长勒戈在遭到公众强烈抵制后，已被迫终止向该省未接种疫苗者征税的计划，并同时公开承认此举将导致魁北克人之间产生严重分裂。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

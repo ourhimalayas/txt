@@ -2,58 +2,56 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1957446/)
+## 文·贵天成——文贵先生谈“H-Pay、喜支付”（六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1957510/)
 
-翻译: wen wu
+##### 整理：BENJ1
+编辑：守望黎明
 
-您若想了解全文报导内容，请点击标题链接
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-372.png)
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+图片来源：雅典娜农场技术组
 
-1. [国际学者呼吁遵守奥运宪章维护人类尊严查明病毒来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220203-%E5%9B%BD%E9%99%85%E5%AD%A6%E8%80%85%E5%91%BC%E5%90%81%E9%81%B5%E5%AE%88%E5%A5%A5%E8%BF%90%E5%AE%AA%E7%AB%A0%E7%BB%B4%E6%8A%A4%E4%BA%BA%E7%B1%BB%E5%B0%8A%E4%B8%A5%E6%9F%A5%E6%98%8E%E7%97%85%E6%AF%92%E6%9D%A5%E6%BA%90)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-359.png)图片来源: rfi.fr
+**郭文贵****先生****2021年11月10日直播**
 
-据《法广网》2022年2月3日电，来自法国，美国，印度，日本，德国，英国，澳大利亚的二十位学者在北京奥运开幕之日联名发表公开信，呼吁遵守《奥林匹克宪章》——要求所有国家联合起来彻底调查新冠病毒的来源；信中提到：中共政府正在努力阻止病毒溯源调查，包括销毁生物样本、隐藏记录、监禁中国公民记者、以及执行一系列禁言令。
+有了喜币、喜支付，然后再有了喜贷款，从此以后喜币全球流通，你不再需要什么银行和信用卡，你不再需要任何其他金融服务，而且这还是绝对安全的，最高效、最保密，绝对的！
 
-2. [法卫生部长指 或在今年七月前取消疫苗通行证](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220203-%E6%B3%95%E5%8D%AB%E7%94%9F%E9%83%A8%E9%95%BF%E6%8C%87-%E6%88%96%E5%9C%A8%E4%BB%8A%E5%B9%B4%E4%B8%83%E6%9C%88%E5%89%8D%E5%8F%96%E6%B6%88%E7%96%AB%E8%8B%97%E9%80%9A%E8%A1%8C%E8%AF%81)
+**郭文贵****先生****2021年11月17日直播**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-361.png)图片来源: rfi.fr
+一个数字货币，如果没有国家主权的认可，没有新的全业务的虚拟货币银行牌照，没有国家主权批准的新的交易所牌照认可，没开放整个H-Pay使用，你基本上可以把它未来的价格看作是0。所以，H-Pay才是所有价值的核心。
 
-据《法广网》2022年2月3日电，法国在一天内新增中共病毒感染31.5363万（3.272万人住院、277人死亡）例后，卫生部长利维尔·韦兰（ Olivier Véran）宣布：“（如果没有新变异病毒出现）法国最糟糕情况可能过去了；希望疫苗护照能在7月前取消。”
+H-Pay现在就相当于小孩撒尿前在脱裤子的状态，只有把裤子脱了，他才能尿上天去。共产党叫一尿万丈高，是吧？咱不用尿上一万丈，咱尿一尺就够了。
 
-3. [福奇从秘密电话会议上知道实验室泄密的可能性](https://www.zerohedge.com/covid-19/fauci-knew-about-likely-lab-leak-secret-teleconference-pushed-alternate-narrative-instead)
+郭文贵先生2021年11月17日直播
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-363.png)图片来源: zerohedge.com
+H-Pay是核心中的核心的核心，然后就是那几块牌照。所以说美、加、日的市场不用担心，这才几天啊！才二、三周呀！兄弟姐妹们，任何一个成功的投资，都需要有五到十年的耐心，这对投资者来说，叫回馈等待心理状态。一定要相信这个，要五到十年。而你不用等五到十年，你只要有三年的冷静期就会是人生的赢家。
 
-据《零对冲》2022年2月1日电，近期公开的[电子邮件](https://www.theepochtimes.com/new-emails-reveal-faucis-role-in-shaping-highly-influential-paper-that-established-covid-natural-origin-narrative_4225917.html)表明，美国国家过敏和传染病研究所（NIAID）所长福奇开始努力掩盖指向实验室泄漏作为中共病毒（Covid-19）起源的证据，并极力以自然起源的[理论](https://www.nature.com/articles/s41591-020-0820-9)误导公众；本月早些时候，福奇在国会作证时断然撒谎否认曾与《SARS-CoV-2的近亲起源》作者交流过。
+我告诉你，三年内一定会的，有一天你会看到那个曲线会“嚓”的一声就下来了。接下来H-pay 支付会是什么样的？我告诉你们一个最形象的说法。战友和战友之间，像你Nick和QMAY，还有“天池妹妹”，你们都有个人帐号的时候，你们像现在这样一边聊天说着话，互相之间的喜币HCN和H美元就可以互相转了。啥意思？你不用看网上那个交易价格曲线，你就可以转了。现在“草根小哥”说：“天池妹妹，我这一万个币卖给你了，你给我多少钱？” 咱们自己定好价格就可以交易，这叫线下交易。
 
-4. [日本公司称伊维菌素对Covid-19显示出“抗病毒效果”](https://www.news.com.au/technology/science/human-body/japanese-firm-says-ivermectin-shows-antiviral-effect-against-covid19/news-story/8cdfe85f8f5800cc98c348d287827719)
+现在没有人卖币，它是喜币价格坚挺的最重要原因之一；还不允许有机构投资者进来砸盘，是最重要的原因之二；第三，就是H-Pay还没上线，还有大的利好消息没出来。这是现在所有机构投资者不进来，没抓住时机投资的一个基本的原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-371.png)图片来源:news.com.au
+但是大家要记住，你看到现在全世界的接受H-Pay和喜币HCN、喜美元HDO买东西的地方在哪里么？接下来，在G|FASHION你用H-Pay能买衣服、能买任何东西，再接下来各种实体店都会开始接受它，越来越多接受的时候，喜币真正开始流通。它只要开始在多领域流通，价值就是你无法想象的！
 
-据《澳洲新闻》2022年2月1日电，日本制药（Kowa Co Ltd）公司周一（31日）表示，有争议的药物伊维菌素在联合非临床研究中显示出，对Omicron和其他中共病毒（冠状病毒）变种的“抗病毒效果”。去年8月，美国食品和药物管理局（FDA）通过参考兽药版本告诉美国人停止服用这种药物…
+我们喜联储接下来的问题是什么？整个支付系统在全球全面推开之后，战友去拿H-Pay在当地的代理权，一定要跟我们签合同啊！是永久代理权。
 
-5. [高中生让旧金山为反华偏见的历史道歉](https://www.breitbart.com/politics/2022/02/02/high-school-student-gets-san-francisco-to-apologize-for-history-of-anti-chinese-prejudice/)
+另外一个大家要注意到的事情是，随着喜联储跟G|FASHION和很多实体店连接以后，你们接下来要有标准的做法，就是说你推广H-Pay的时候，首先让这些厂家到喜联储去开账号，开了账号就有了企业账号了，它就可以往里放美元，也可以接美元，既能接受喜美元HDO、也接喜币HCN。然后，H-Pay上线之后，和在喜联储有账号的情况下，账号和账号之间可以互转的时候，这个运作就算开始了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-367.png)图片来源:breitbart.com
+往期回顾：
+[文·贵天成——文贵先生谈“H-pay、喜支付”（一）](https://gnews.org/zh-hans/1952017/)
+[文·贵天成——文贵先生谈“H-pay、喜支付”（二）](https://gnews.org/zh-hans/1952041/)
+[文·贵天成——文贵先生谈“H-pay、喜支付”（三）](https://gnews.org/zh-hans/1952017/)
+[文·贵天成——文贵先生谈“H-pay、喜支付”（四）](https://gnews.org/zh-hans/1952041/)
+[文·贵天成——文贵先生谈“H-pay、喜支付”（五）](https://gnews.org/zh-hans/1952041/)
 
-据《布莱巴特》2022年2月2日电，旧金山Lowell高中生Dennis Casey Wu看到附近的安提阿（Antioch）为1876年白人居民烧毁其唐人街而道歉后，他敦促旧金山参事会（The Board of Supervisors of San Francisco）为几个世纪以来对美籍华人的偏见而道歉，并于周二（1日）得到该组织的一致同意；旧金山（30%为华裔）成为美国第四个向华人道歉的城市。
+###### *发布：盘古相聚*
 
-6. [香港本土病例连3天破百官方呼吁员工在家工作](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220203-%E9%A6%99%E6%B8%AF%E6%9C%AC%E5%9C%9F%E7%97%85%E4%BE%8B%E8%BF%9E3%E5%A4%A9%E7%A0%B4%E7%99%BE-%E5%AE%98%E6%96%B9%E5%91%BC%E5%90%81%E5%91%98%E5%B7%A5%E5%9C%A8%E5%AE%B6%E5%B7%A5%E4%BD%9C)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-369.png)图片来源:rfi.fr
-
-据《法广网》2022年2月3日电，卫生防护中心传染病处主任张竹君表示，源头不明个案涉及香港、九龙和新界，不少患者的病症轻微或是无症状，相信社区有不少传播链；为了大幅减少社区人流和社交接触，政府政策局和部门明天会扩大特别上班安排（非必要只在家上班）到2月11日。
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

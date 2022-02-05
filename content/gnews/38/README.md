@@ -2,56 +2,41 @@
 ---
 
 
-## 中共用抢劫土地所支撑的财政和GDP都将破灭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1956487/)
+## 强制疫苗对美军造成了灾难性后果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956580/)
 
-网易新闻2022年1月29日报道：
-谢逸枫：颤抖吧！2021年全国卖地收入破8万亿元堪称史诗级增长
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-346-e1643997118662.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/image-347.png)图片来源：网易新闻
-**短评：**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月3日，据班农战斗室的盖特信息，美国国防部强制美军接种中共病毒疫苗的命令，已经造成了令人震惊的灾难性后果。
 
-2020年全年全国卖地收入首破8万亿元，达到8.4142万亿元，2021年再次破8万亿元，全国卖地收入8.7051万亿元，创34年历史最高纪录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-4.jpg)
 
-**中共抢劫了人民的土地，然后卖给人民**
+美国科学与健康委员会的数据显示，2021年与之前的五年平均数值相比较，疫苗对美军个人的影响，包括：高血压病例上升22倍，多发性硬化症上升7倍，食道恶性肿瘤上升6倍，乳腺癌接近5倍，神经系统病例几乎上升11倍，从年初的8.2万起，暴增至86.3万起。
 
-土地是财富之母，土地是人们赖以生存的最基本资源，国家的土地资源应该属于这块土地上的所有人，这是天赋的基本权利。但是，现在中共国人民没有寸土所有权，一切土地使有权都属于国家的统治阶级中国共产党所有。
+另据一份2月1日参议员罗恩·约翰逊写给国防部长劳埃德·奥斯汀的信，以上数据实际来源于美国国防医学流行病学数据库。
 
-民国时的土地制度第一次从法律上明确提出土地私有权。在地权方面，不仅确立了土地私有权，而且按照西方法学理论构建了地权法律体系，包括了所有权、地役权、抵押权、不动产权等。中共盗取国家以后，依照中共国的法律，从1949年10月1日到1981年，中国实行的是土地“私有制”；直到1982年，中共才宣布土地国有化。而这次改变，并未逐户通知业主，更未办理任何征购、征用手续，只是修改宪法时在宪法中加了一句话，于是，一夜之间，私人土地所有权，就象没收战犯、官僚、买办资产阶级的土地一样，被收归国有，被收归中国共产党所有。
+班农先生将这条盖特置顶，并说，除了以我们的武装部队为代价的巨大灾难之外，其它很难解释。而郭文贵先生几个月前就指出，美国的强制疫苗政策，将会在美军损失惨重的情况下结束。
 
-这就中国共产党土地所有权来源。牠们没有出过一分钱，是赤裸裸的抢劫所得。然后，中共再将从人民手里抢劫的土地以房地产土地出让及租赁的形式卖给人民，而且所有权限时间一到，再次买卖和租赁，循环往复压榨人民。
+参考链接：
 
-**中共的土地财政走到了尽头**
-
-文中笔者按照官方的数据统计：1999年～2008年10年间，中共政府土地出让收入总额约12.75万亿元。1999年～2019年，全国土地出让收入总额已经突破50.5万亿元。算上2020年的全国土地出让收入，22年时间，全国土地出让收入总额已经达到58.9万亿元（未计入2021年土地出让收入）。
-
-这些卖地收入是中共支撑地方财政收入最主要的来源。以2020年、2021年为例，2020年全国卖地收入达到8.4142万亿元，占到全国财政总收入的46%，占到地方财政总收入的84.03%。2021年全国卖地收入8.7051万亿元，占到全国财政总收入的42.97%，占到地方财政总收入的78.36%。如果再加上六项房地产相关税收，十一项全国房地产税收的收入，2021年全国房地产总收入占到全国财政收入的约60%、占到地方收入的105.37%。
-
-现在，中共国的经济危机开始了，人民被榨干了，买的起房的没有了。不容置疑，中共国神奇的房地产泡沫就要破灭，那么中共的土地财政就走到了尽头，那些吸血的盗国家族和寄生虫官僚日子是否也到了尽头？
-
-**泡沫的GDP也将同时破灭**
-
-文章作者称：2021年根据卖地收入前30名典型城市占GDP总量的比例排名看，第一是杭州市卖地收入占GDP总量的19.15%。第二是贵阳市卖地收入占GDP总量的14.64%。第三是南京市卖地收入占GDP总量的14.27%。第四到第十分别是厦门、武汉、西安、常州、广州、成都、长春。
-
-以上城市是中共国经济发达地区，是对中共国GDP的重要贡献城市，即使不计算其他落后地区，这都是一个可怕的数字。有专家计算，2020年房地产及其产业链占中共国GDP的17%。现在房地产开始崩溃，那么泡沫GDP也一定随之破灭。不仅如此房地产相关的金融、就业以及所谓的“居民财富”也同时破灭。
-
-文章观点仅代表作者，与Gnews 平台无关
-
-新闻链接：[https://c.m.163.com/news/a/GUTD1PFT0515ALUG.html?spss=newsapp](https://c.m.163.com/news/a/GUTD1PFT0515ALUG.html?spss=newsapp)
-
-素材：洛杉矶盘古农场 — 鲁西西
-
-评论：洛杉矶盘古农场 — 心照
-
-编审：洛杉矶盘古农场 — 柯震恶
-
-发布：洛杉矶盘古农场 — 子萍
+- [BREAKING: Explosive new data out about the massive risks associated with the covid vaccine](https://gettr.com/post/ps9fb6e83f)
+- [This is hard to interpret other than an enormous catastrophe at the expense of our Armed Forces](https://gettr.com/post/ps9weteecf)
+- [BREAKING: Senator Ron Johnson sends letter to Secretary of Defense requesting information on Defense Medical Epidemiology Database and COVID19 vaccine injury](https://gettr.com/post/psaaaf4cc9)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编: 文真
+编辑：文真
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

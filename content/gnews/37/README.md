@@ -2,28 +2,31 @@
 ---
 
 
-## 郭文贵先生解读HPay的功能特点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956497/)
+## 尼日利亚被迫放弃中共银行铁路贷款
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956581/)
 
-作者：纽约香草山 – AT，纽约磐石农场 – 在远方
+作者：纽约香草山 – 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月2日的大直播中详细阐述了HPay的核心功能和重大意义。
+外媒2月03日报道：尼日利亚政府被迫放弃中共进出口银行铁路贷款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-2.jpg)
 
-郭先生表示，HPay的本质是在线支付，属约定式付款，其既不用被衡量，也无需在定价规则的贸易下交易。此外，已经上线的HPay具有八大特点，即无条件支付、无转账费用、无支付上限、无物理行为、无中心化、无中介、高度安全和极度隐匿。郭先生解释道，这些特性使得HPay超越了第一代加密货币的去中心化技术，从而能够让这一系统摆脱额度的限制且难以被追踪，达到人类最原始和最高的交易境界。
+尼日利亚政府日前表示，不会再等待中共进出口银行为该国一个重要铁路项目继续提供贷款资金。因为根据贷款协议，中共进岀口银行应该为尼日利亚修建这条铁路提供主要贷款支持，但实际到位资金仅占投资总额的15%，导致这条从首都拉各斯到北部城市的铁路建设受到严重影响。
 
-郭先生补充道，自此，HPay将逐渐改变人类社会的生活方式并打破现有经济体系的金融垄断，同时，其将构建出未来新的金融模式，更将推动一场由中国人发起的”我的财富我作主”的金融革命。
+尼日利亚交通部长阿马赫对媒体表示，政府要求中共当局对其余贷款作出回应，但中共一直拖延不答复。尼日利亚被迫放弃中共贷款，转而向他国银行寻求贷款帮助。由于中共银行背信弃约，将使本届政府承诺的铁路修建计划受到严重挫折。
 
-郭先生强调，只要不以杀人、害人为目的，任意双方都能在达成共识的基础上相互交易，真正做到无影无踪、踏水无痕地隔空取钱。
+对此，分析人士评论，中共已经穷途末路，根本无法履行相关协议。况且中共从来没有契约精神。按照这个趋势发展下去，中共一带一路肯定会带来一路崩塌的灾难。
 
-参考链接：[2022年2月2日 文贵大直播：中共洗脑春晚无人关注；冬奥会进展和冬奥经济；东北 内蒙 河北 经济破产；HPay上线 股市 数字货币](https://gtv.org/video/id=61fa824c96ba5d73e0c15749)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+- [Nigeria Gives Up Waiting for China Eximbank Railway Loan](https://www.bloomberg.com/news/articles/2022-02-02/nigeria-gives-up-waiting-for-china-exim-loan-for-railway-project)
 
-总编：文特
-编辑：百香果，Lakeman文仁
-校正/发稿：谐趣园
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: 童谣
+编辑：文徬
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

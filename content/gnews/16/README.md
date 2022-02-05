@@ -2,19 +2,22 @@
 ---
 
 
-## 三合山七哥出生的山（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957668/)
+## 法国在欧洲率先使用抗病毒药物
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1957708/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据加拿大《CTV新闻》2月2日报道，法国将在近日率先使用[辉瑞公司]的抗“新冠病毒”口服药物Paxlovid。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+该药物是欧盟27国统一批准的首款治疗“新冠病毒”感染的药品，将被用于有症状且患有严重疾病的成年人。此外，美国[默克公司]的同类抗病毒药丸也将很快获得使用授权。
+
+据悉，法国是全球人均单日病毒感染率最高的国家之一。该国目前已经收到了首批1万剂Paxlovid药物，并将从2月4日起在全国各个药店公开出售。
+
+显然，在其疫苗政策遭到本国民众激烈的抵抗之下，法国政府深知疫苗经济已走到了尽头。为此马克龙当局不失时机地推出Paxlovid，以此继续愚弄百姓，缓解压力。并企图通过解药经济来维系其即将结束的政治生涯。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

@@ -15,131 +15,131 @@
 
 ---
 
-### [DC大中华时事：解放军军机大年初四一早进入台西南空域](/content/gnews/1/README.md)
+### [全球的灭共算是正式的开始了](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [今天意义太大了（下）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [今天意义太大了（上）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|美官员呼吁国会立法注资高科技抗衡中共](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [俄罗斯和中共告诉北约停止扩张，莫斯科支持北京在台湾问题上的立场](/content/gnews/5/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [读懂大自然的密码](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [DC大中华时事：解放军军机大年初四一早进入台西南空域](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥新中国联邦声明后会对世界和中国的政治，经济有什么深远影响？（二）](/content/gnews/2/README.md)
+### [七哥新中国联邦声明后会对世界和中国的政治，经济有什么深远影响？（二）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [多国奥运选手将抵制冬奥会开幕式](/content/gnews/3/README.md)
+### [多国奥运选手将抵制冬奥会开幕式](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥新中国联邦声明后会对世界和中国的政治，经济有什么深远影响？（一）](/content/gnews/4/README.md)
+### [七哥新中国联邦声明后会对世界和中国的政治，经济有什么深远影响？（一）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [人虽生而平等但基因也很重要](/content/gnews/5/README.md)
+### [人虽生而平等但基因也很重要](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [中共入侵台湾将导致芯片生产供应危机](/content/gnews/6/README.md)
+### [中共入侵台湾将导致芯片生产供应危机](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多因在推特上转移公众视线而遭碾压](/content/gnews/7/README.md)
+### [特鲁多因在推特上转移公众视线而遭碾压](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大2021年联邦选举乱象被曝光](/content/gnews/8/README.md)
+### [加拿大2021年联邦选举乱象被曝光](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [2022年2月4日文贵先生直播摘要及音频—银河系农场](/content/gnews/9/README.md)
+### [2022年2月4日文贵先生直播摘要及音频—银河系农场](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [法国在欧洲率先使用抗病毒药物](/content/gnews/10/README.md)
+### [法国在欧洲率先使用抗病毒药物](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [每日快报：北京冬奥会是自希特勒时代以来最可耻的奥运会](/content/gnews/11/README.md)
+### [解析中共国虚假的进出口贸易数据（一）](/content/gnews/17/README.md)
+ ` 纽约香草山MOS02`
+
+### [每日快报：北京冬奥会是自希特勒时代以来最可耻的奥运会](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [无良制药巨头欲强推婴幼儿新冠疫苗](/content/gnews/12/README.md)
+### [无良制药巨头欲强推婴幼儿新冠疫苗](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [2022年2月5日《樱花简报》：日本单日新增确诊中共病毒突破10万例 累计超300万例](/content/gnews/13/README.md)
+### [2022年2月5日《樱花简报》：日本单日新增确诊中共病毒突破10万例 累计超300万例](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三合山七哥出生的山（二）](/content/gnews/14/README.md)
+### [三合山七哥出生的山（二）](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [萨省将取消所有疫情限制及疫苗护照措施](/content/gnews/15/README.md)
+### [萨省将取消所有疫情限制及疫苗护照措施](/content/gnews/22/README.md)
  ` 扬帆枫叶快讯`
 
-### [三合山七哥出生的山（一）](/content/gnews/16/README.md)
+### [三合山七哥出生的山（一）](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦人拥有山川密码（二）](/content/gnews/17/README.md)
+### [新中国联邦人拥有山川密码（二）](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦人拥有山川密码（一）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [属虎猪不能进昆仑山（二）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [西媒头条 — 第165期 – 西媒要闻](/content/gnews/20/README.md)
+### [西媒头条 — 第165期 – 西媒要闻](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西媒头条 — 第165期 – 西媒看天朝](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [属虎猪不能进昆仑山（一）](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [共产党把它磁场变化的称为龙脉](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式](/content/gnews/24/README.md)
+### [重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式](/content/gnews/26/README.md)
  ` YALUN 亚伦`
 
-### [英国政府报告称，接种中共病毒疫苗后儿童死亡的可能性增加 52 倍](/content/gnews/25/README.md)
+### [英国政府报告称，接种中共病毒疫苗后儿童死亡的可能性增加 52 倍](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [七哥谈无中心化的支付系统（2022-02-02摘录）](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [文·贵天成——文贵先生谈“H-Pay、喜支付”（六）](/content/gnews/27/README.md)
+### [文·贵天成——文贵先生谈“H-Pay、喜支付”（六）](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/28/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前纽芬兰总理就强制令对加拿大政府提起诉讼](/content/gnews/29/README.md)
+### [前纽芬兰总理就强制令对加拿大政府提起诉讼](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“H-Pay、喜支付”（五）](/content/gnews/30/README.md)
+### [文·贵天成——文贵先生谈“H-Pay、喜支付”（五）](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以色列本周COVID死亡率世界上最高!](/content/gnews/31/README.md)
+### [以色列本周COVID死亡率世界上最高!](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【玫瑰看新闻】每日快讯2021年2月4日（新西兰时间）](/content/gnews/32/README.md)
+### [【玫瑰看新闻】每日快讯2021年2月4日（新西兰时间）](/content/gnews/33/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [阿爾伯塔省長下周將宣布COVID疫苗護照的結束日期](/content/gnews/33/README.md)
+### [阿爾伯塔省長下周將宣布COVID疫苗護照的結束日期](/content/gnews/34/README.md)
  ` 温哥华扬帆农场`
 
-### [全球疫情更新（“疫苗”造成血糖血脂肾功能恶化）](/content/gnews/34/README.md)
+### [全球疫情更新（“疫苗”造成血糖血脂肾功能恶化）](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [HPay上线改变支付规则，疫情灾难会追中共担责？](/content/gnews/35/README.md)
+### [HPay上线改变支付规则，疫情灾难会追中共担责？](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月4日早](/content/gnews/36/README.md)
- ` 纽约香草山MOS01`
-
-### [郭文贵先生解读HPay的功能特点](/content/gnews/37/README.md)
+### [尼日利亚被迫放弃中共银行铁路贷款](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [中共用抢劫土地所支撑的财政和GDP都将破灭](/content/gnews/38/README.md)
+### [强制疫苗对美军造成了灾难性后果](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [欧盟提议将疫苗护照延长至明年6月底](/content/gnews/39/README.md)
+ ` NFSC News`
+
+### [美国国税局不会对未售出的质押加密货币作为收入征税](/content/gnews/40/README.md)
+ ` NFSC News`
+
+### [中共用抢劫土地所支撑的财政和GDP都将破灭](/content/gnews/41/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新中国联邦甜蜜蜜运动打向中共的三个回合](/content/gnews/39/README.md)
- ` NFSC News`
-
-### [文贵直播2.4: CCP黑社会运作下的北京冬眠会](/content/gnews/40/README.md)
- ` 秘密翻译组-原创组`
-
-### [新西兰财经G乐部2022年2月4日:财经新闻整理](/content/gnews/41/README.md)
+### [新西兰财经G乐部2022年2月4日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [2/4/2022国际财经快讯：欧盟立法者警告“保守”监管机构不要阻止保险公司；瑞士信贷将一些非洲财富管理客户推荐给巴克莱](/content/gnews/42/README.md)
- ` 秘密翻译组金融团队`
 
 ### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/43/README.md)
  ` G-NEWS TAIWAN`

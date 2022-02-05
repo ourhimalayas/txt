@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 1:17 AM (UTC)`
+
+2/4/2022 Miles Guo: The fellow fighter found a smart way to be released after being arrested due to her airing the footage of the dragon-head-shaped tower of Pangu Plaza on CCTV. The CCP’s opening ceremony of the Winter Olympics can’t hide from the Pangu Plaza, and the impact of the Whistleblowers’ Movement is everywhere. The CCP has dispatched special police and spies to the scene, indicating how fearful it is!<br/><br/>2/4/2022 文贵直播：在CCTV播放盘古龙头画面的国内战友被抓后机智脱险；中共冬眠会开幕式回避不了盘古，爆料革命的影子无处不在；中共派特警、特工到现场，足见其有多恐惧！<br/>
+![img](https://media.gettr.com/group34/getter/2022/02/05/01/c6e69703-ae1d-17f7-3fdd-a7181295cf65/out.jpg)
+
+---
+
+`@miles 2/5/2022 1:11 AM (UTC)`
+
+2/4/2022 Miles Guo: CCP, the most rigorous criminal organization in the world, treated the heads of state attending the Winter Olympics in the same way as before, but the participants have all changed. Almost 90% of the people at the scene are soldiers.<br/><br/>2/4/2022 文贵直播：世界上最严谨的黑社会组织中共迎接参加冬眠会的各国元首的章法未变，但内容皆变；现场几乎90%是军人。
+![img](https://media.gettr.com/group44/getter/2022/02/05/01/b7d57b6d-1ba1-08b3-93b8-36d16222ed2f/out.jpg)
+
+---
+
 `@miles 2/4/2022 11:18 PM (UTC)`
 
 2/4/2022 Miles Guo: Why is Putin staying at Waldorf Astoria Beijing? Who are the only two powerful figures attending the opening ceremony of the Winter Olympics? Four or five bodyguards of Putin have contracted the CCP virus, with a total of 16 persons in his team being infected. In addition, the CCP’s sniper leader died a sudden death at the Pangu Plaza. All these things sound extremely unusual.<br/><br/>2/4/2022 文贵直播：普京为何住在华尔道夫酒店？出席冬奥会开幕的两位大佬是谁？普京有4、5个保镖染上了病毒，其团队共16人染毒，加之中共的狙击手队长在盘古暴毙，这些事儿都非同寻常啊<br/>
@@ -142,20 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 2/2/2022 Miles Guo: The CCP’s chose Zhangjiakou as the venue of the Winter Olympics to make Beijing the city that can host two Olympics and to develop real estate there, not knowing that Zhangjiakou is a terrible place according to Feng Shui (Chinese geomancy). Upon hearing that the CCP picked Zhangjiakou, I knew that they would not successfully host the Winter Olympics. All the decision makers are already finished as well.<br/><br/>2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好；文贵一看中共选了张家口就知道他们搞不成冬奥会，那些决策者都已经完蛋了！
 ![img](https://media.gettr.com/group8/getter/2022/02/03/00/de81fa51-975a-ec2f-fad2-6217944ba6ec/out.jpg)
-
----
-
-`@miles 2/3/2022 12:43 AM (UTC)`
-
-2/2/2022 Miles Guo: What are the three rounds of the “Tian Mi Mi Movement”? the US authorized departure of its embassy in Beijing, I sang three songs about taking down the CCP, and now I am officially throwing down the gauntlet - I will turn the CCP's Winter Olympics into the "hibernation games"!<br/><br/>2/2/2022 文贵直播：甜蜜蜜运动有哪三个回合？美国使馆的授权撤离、文贵唱的三首灭共歌以及文贵现在下的战贴 - 文贵将让中共的冬奥会开成“冬眠会”！<br/>
-![img](https://media.gettr.com/group5/getter/2022/02/03/00/27acafc4-59ea-af0f-4b67-8cc05c549d4b/out.jpg)
-
----
-
-`@miles 2/3/2022 12:36 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live: Hao Haidong’s revelations on the fake, ugly, and evil of the CCP’s system - Without money, power, network, or sleeping with the CCP cadres, the Lao Baixing will be doomed. It is outrageous that Song Zuying’s performance of “Spicy Girl” at the Wiener Musikverein was paid with the CCP’s military funds, which are the Lao Baixing’s money<br/><br/>1/31/2022 文贵虎年新春大直播：郝董揭露中共体制的假丑恶 - 没钱、没实力、不找关系、不陪领导睡的老百姓没出路；宋祖英竟拿着老百姓付的中共军费包下维也纳金色大厅去唱《辣妹子》<br/>
-![img](https://media.gettr.com/group30/getter/2022/02/03/00/81bbf109-b14a-aacb-d794-ab6da9986f21/out.jpg)
 
 ---
 

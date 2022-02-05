@@ -2,29 +2,38 @@
 ---
 
 
-## 文贵直播2.4: CCP黑社会运作下的北京冬眠会
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1956446/)
+## 美国国税局不会对未售出的质押加密货币作为收入征税
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956578/)
 
-整撰：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.jpeg)
-截屏：香水百合
+作者：纽约香草山 – 文特
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月3日消息，美国国税局在未来可能不会对未售出的质押加密货币作为收入征税，该决定是将质押奖励归类为财产而非应税收入。
 
-郭文贵先生2022年2月4号从大直播揭开了共产党这个黑社会是如何组织北京奥运会的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-4.jpg)
 
-郭先生说，共产党的一套黑社会是有章法的，它是世界上最严谨的黑社会组织。所有飞机，乌兹别克斯坦总统飞机降落，普京总统飞机降落，飞机什么角度对着飞机，嚓嚓嚓嚓嚓落下来。然后普京出来，国宾车到贵宾楼就是元首楼，只给元首走的通道（郭先生叫这通道是棺材盒，海航出了一半的钱），那个贵宾车都要从那路过。红汽车啪啪啪过去，只给你3.2秒，多0.1秒都不行，然后车过去，这叫国宾待遇。96个国家只来了33个元首，要看谁先到谁后到，哈萨克斯坦，乌兹别克斯坦，然后就到了阿根廷，带着六个运动员来了，还一个带一个运动员的。
+报道称，2021年5月26日约书亚和杰西卡.贾莱特夫妇向美国田纳西州中区地方法院提交法律诉状，要求退还2019年因收到8876枚Tezos代币而支付的3293美元所得税。据知情人士透露，美国国税局已批准全额退还他们通过质押获得的代币的税款。
 
-这时候，熟悉共产党这套国宾礼仪的郭先生发现，章法还是是那个章法，但是内容全变了。现场几乎90%全是军人。
+专业人士分析，喜币H-Coin就是最好的数字黄金抵押品，拥有者根本不需要卖出，需要现金时在数字银行抵押贷款即可。
 
-盘古的七星酒店，现在到处是特警，地下室都是特警。恰恰第一个人就死在了盘古的旁边了，嘎本儿就死了，是一特警，狙击手！还是领头的监狙手，就是专门监督狙击手的人，慌成一片呐， 习太阳吓了个半死！！！
+参考链接：
 
-这种管着主席台周围的狙击手，一般两个拿枪的，这叫三角组，后面有个头，这个头后面别着枪，一般都是打枪很准的，万一这仨人都造反了呢？
-
-这个头刚才死了，就在盘古旁边，吧唧死了，赶快就把他盖住，这哥们一直蹬嗒噔嗒噔嗒，这哥们就是当时疫苗没死，也给捂死了。
-
-这老天爷，中国人叫祭旗呀！光这点事不叫冬眠会呀？
+- [美国国税局不会对未售出的质押加密货币作为收入征税](https://www.panewslab.com/zh/sqarticledetails/1643857185430687.html)
+- [https://gettr.com/post/psbg5redcb](https://gettr.com/post/psbg5redcb)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
+总编: 童谣
+编辑：DM
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
