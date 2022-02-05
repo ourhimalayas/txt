@@ -2,29 +2,20 @@
 ---
 
 
-## 有声|郭文贵先生解读HPay的功能特点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961613/)
+## 多國奧運選手將抵製冬奧會開幕式
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961615/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月2日的大直播中详细阐述了HPay的核心功能和重大意义。
+加拿大溫哥華楊帆農場楓葉快訊
 
-郭先生表示，HPay的本质是在线支付，属约定式付款，其既不用被衡量，也无需在定价规则的贸易下交易。此外，已经上线的HPay具有八大特点，即无条件支付、无转账费用、无支付上限、无物理行为、无中心化、无中介、高度安全和极度隐匿。郭先生解释道，这些特性使得HPay超越了第一代加密货币的去中心化技术，从而能够让这一系统摆脱额度的限制且难以被追踪，达到人类最原始和最高的交易境界。
+采編： Spirit            編輯撰稿：硫酸羥氯喹64
+![2022 Beijing Olympics](https://am14.mediaite.com/med/cnt/uploads/2022/01/GettyImages-1237970843-scaled.jpg)
+據《華盛頓郵報》2月1日報道，多國運動員已聲明因中共政權的種族滅絕和反人類罪，而抵製即將在北京舉行的冬奧會開幕式。 報道稱，近期以來，美國相關機構一直敦促西方國家那些準備參賽的運動員就中共當局的大規模暴行端正立場。盡管大多數運動員都受到了來自國際奧林匹克委員會及其贊助商的壓力，但已有為數眾多的運動員確認將不參加開幕式，以此作為他們個人的抗議形式。
 
-文字版原文：[郭文贵先生解读HPay的功能特点](https://gnews.org/zh-hans/1956497/)
+對此，有評論指出，新中國聯邦最近發起的甜蜜蜜滅共運動，通過促成美國外交授權撤其駐北京大使館，以及目前響徹中國的三首滅共歌曲，將會成功把本次冬奧會變成冬眠會。爆料革命給全世界帶來的有關病毒和疫苗的真相，將聯合所有正義力量徹底粉碎習近平的奧運癡夢。
 
-音频处理/发稿：Daxia
+原文鏈接
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+發稿：青青
 
  
 
