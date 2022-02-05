@@ -2,38 +2,31 @@
 ---
 
 
-## 有声|台湾国民党严正谴责中共外交部
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1957442/)
+## 七哥谈HPay上市（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1957450/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月30日，据台湾媒体报道，国民党文化传播会主委凌涛当天就中共外交部发言人赵立坚有关贬低台湾的说辞予以反驳。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-报道提及，此前，台湾副总统赖清德在参加洪都拉斯新任总统的就职典礼时，曾与美国副总统贺锦丽有过良好的互动。随后，这一互动引发了来自中共的莫名谴责，其外交部发言人甚至扬言称“台湾只是一个省”。
+来源：郭先生2022-02-02直播09：53：48摘录
 
-对此，凌涛指责赵立坚称，其言论只会进一步恶化两岸的关系。同时，凌涛再次强调，中华民国是主权独立国家，其在1912年创建之初就设有总统职务。而自1948年行宪以来，台湾更有用于规范总统职权的总统专章。1996年后，台湾的总统和副总统一直由中华民国自由地区的全体人民直选产生。
+他走人了，后悔死了，哭着闹着要回来。不是伪类、欺民贼羡慕、妒忌、恨不懂，就连喜联储内部都不懂得，也后悔个半死。现在就别提了，HPay一上市，大家全傻眼了。我就在两周前，我给投资者中间开会的时候，我说你记住，HPay上线以后你会真正懂得，咱走着看，刚才一直给我打电话，从昨天到现在，真的是Game Change，真的游戏规则改变了，我说你们不懂，你别以为你们有钱，你们祖宗12代，从一战时期就有钱了，你们家有金币工厂，有金矿，你们家有银行，你们家有控制这些国家的这总统那总统的，那都是过去。中国大秦朝时候啥样啊，大唐朝时候什么样啊？你到阿富汗去，当年的阿富汗是帝国的时候，阿富汗什么样啊？现在98%的人都没粮食吃，现在每分每钟都在饿死人。我最讨厌人家一跟我讲，一夹手指头，“哎，我曾经，我过去……” 我说：“哎哎哎…求求你了，你昨天你拉过屎不等于今天一定要拉屎，你昨天有媳妇，这一天还真不见得媳妇就跟你睡觉，你昨天咋滴昨天？我就说现在和明天吧，好不好？咱们就说这好不好？” 所以说那投资委员会说 ：“哎呀我们……Miles不要这么讲嘛，我Grandfather当年创造了什么什么” 我说：“你闭嘴闭嘴，你Grandfather你见过吗？你Grand Grandfather你见过吗？你怎么知道那就是你爷爷？你能不能测一下你爷爷跟你DNA是不是一样啊？” 这哥们笑就不吱声了。你怎么证明你爷爷就是你爷爷呢？是吧？你证明不了你爷爷就是你爷爷，你就证明不了你今天跟你爷爷一样伟大。你传宗了啥？你连血脉都没传宗啥，那哥们笑。我说：“咱走着看。” 昨天晚上傻球眼了，她说：“我拿着HPay我买台车，我买了一个雕塑，买了一幅画，然后呢最重要的一件事情，我给我女朋友，” 这是大概N个女朋友了，她的女朋友能说出来的是可以公开的女朋友，不是“一夜情”，中国人以为“一夜情”，外国人就是没结婚的居住者叫女朋友。但是对不起她是个女的啊，我说的不是个男的，她是个同性同志。她说：“我给我女朋友”咔“传过去了，秒到！秒到！太惊讶了，” 她说她又给我传回来，传给她是十万，对方传给她九万。她又”咔“给她传过去十万，对方又给她传过去八万。我说：“这个事很好，你给她传的……” 女朋友永远比她少。“到最后我女朋友又把所有的钱给我打回来了，我又给她打回去，传着玩。” 她说:“不可思议啊，女朋友在希腊，我在英国，一分费用没有。”
 
-原文链接：[台湾国民党严正谴责中共外交部](https://gnews.org/zh-hans/1951086/)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-音频处理/发稿：Daxia
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-025730F4-3253-4907-B549-CD1E7A357616.jpg)
+Discord 账号
 
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
