@@ -2,35 +2,31 @@
 ---
 
 
-## 美国会议员提案吁台美复交渐获支持
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1958651/)
+## 美众议院通过《美国竞争法》全面抗衡中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958688/)
 
-作者：纽约香草山 医疗部 -云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月4日媒体报导，美国共和党籍联邦众议员帝芬尼（Tom Tiffany）在上届会期曾提出呼吁台美复交、签署自由贸易协议（FTA）与支持台湾加入国际组织的决议案，当时仅获得另一位共和党籍议员联署支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-5.jpg)美众议院通过《美国竞争法》全面抗衡中共 网络图片
+据美国之音2月5日报道，美国国会众议院4日以222票支持、210票反对的表决结果通过《2022年美国竞争法》。该法案的目标为加强美国国内供应链，确保美国在制造、创新和经济实力方面保持领先地位，并能胜过任何国家。美国总统拜登在法案正式获得通过后发表声明表示赞扬。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1152x768_20220204000073.jpg)图片源自网络
+根据《美国竞争法》内容，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资半导体的生产等；授权450亿美元改善美国的供应链，加强制造业，确保更多的美国制造；推动美国的科学研究和技术创新以及确保美国在全球的竞争力和领导地位。拥有1250万会员的的美国最大的劳工组织劳联-产联表示全力支持这部法案。
 
-帝芬尼众议员在本届会期再度提出此议案，至目前为止，已经获得20位共和党籍议员的联署。帝芬尼表示将寻求民主党籍议员的联署，并希望在2022年度能让此议案成为跨党派支持的法案。
+参议院也有类似的投资法案。参议院去年6月《美国创新与竞争法》。参众两院的法案内容都计划提供520亿美元补贴和投资美国半导体制造设施，同时也都将授权在未来五年内为国家科学基金会提供约800亿美元资金。众议院的《美国竞争法》接下来将与参议院的《美国创新与竞争法》展开两院协调，两院版本必须达成最终一致协议，才能正式通过国会，送交白宫由总统签署生效。
 
-过去一年，由于中共在台海持续制造破坏现状的军事侵扰行动，已经引起国际社会的警觉，纷纷以军舰巡弋，自由航行通过台海及南海的行动，来展现护卫自己国家利益的决心。本届美国联邦议会参众两院在去年一年中就提出了51项支持台湾的议案。这数目已经超过前届议会在两年内提出的32项友台提案。 
+美国参众两院终于达成一致，认定中共才是美国最大的竞争和威胁。中共是全世界的公敌。中共扰乱了全球经济，制造恶意竞争，破坏了全球秩序。在实验室人工合成病毒并释放到全世界，通过疫苗经济给全人类带来了难以想象的人道灾难。中共不灭，世界不得安宁，人人没有平安，随时随地面临死亡威胁。
 
-台美复交的提案，已经从过去无人想提，到现在有20位联邦议员愿意联署。 随着中共的越趋疯狂，为了美国自身的利益，美国将会有更多议员关注及支持台美复交的议题。
+新闻参考链接：[https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html](https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html)
 
-参考链接：[https://www.cna.com.tw/news/aipl/202202040094.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aipl/202202040094.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编辑：Irene木木
-校对/发稿：Daxia
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
 
  

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 5:24 AM (UTC)`
+
+2/4/2022 Miles Guo: The CCP’s troops stationed 5000 kilometers away from Beijing have been ordered to instigate an emergency warfare response. A foreign friend of mine was extremely shocked by the CCP’s conversion of the Pangu Plaza’s dragon-head-shaped tower into a cockhead-shaped one. The abrupt death of a sniper on the day of the opening ceremony of the Winter Olympics and the cluster infection of the CCP virus in Putin's team are by no means accidental. Instead, these are the indications of God’s will to take down the CCP.<br/><br/>2/4/2022 文贵直播：中共军队在距北京5000公里外的地方紧急战备；参加冬奥会的文贵的外国朋友对盘古龙头改龟头感到极为震惊；冬奥会开幕式当天狙击手的暴毙和普京团队集体中招绝非偶然，这是灭共的天意<br/>
+![img](https://media.gettr.com/group36/getter/2022/02/05/05/4899e585-3989-9e6e-2000-016f0c72977c/out.jpg)
+
+---
+
 `@miles 2/5/2022 4:21 AM (UTC)`
 
 2/4/2022 Miles Guo: The CCP attempted to stop me from constructing Pangu Plaza, turned its dragon-head-shaped tower into a cockhead-shaped one, and avoided filming the footage of Pangu Plaza during the opening ceremony of the Winter Olympics. The CCP has never been able to hide from Pangu, proving that my capability to take down the CCP is unprecedented.<br/><br/>2/4/2022 文贵直播：从当年阻挠文贵建盘古到把盘古龙头变龟头，再到冬奥会开幕式回避拍摄盘古的画面，中共自始至终都无法回避盘古，足见文贵灭共的厉害前无古人！<br/>
@@ -149,13 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 1/31/2022 Miles Guo’s Chinese New Year Live：NFSC’s version of "A quiet dream" <br/><br/>1/31/2022 文贵虎年新春大直播：<br/>新中国联邦版《一帘幽梦》
 ![img](https://media.gettr.com/group33/origin/2022/02/03/02/bd84580f-021a-7677-66d3-142c571cf955/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 2/3/2022 12:59 AM (UTC)`
-
-2/2/2022 Miles Guo: The CCP is hosting a suicidal and self-inflicted Winter Olympics! Why would the CCP troops keeping order in the Olympic venues be equipped with stun guns and hypnosis guns? The CCP will collect DNA, sperm, and eggs from the participating athletes, and it will announce to the world that this is an unprecedentedly perfect Winter Olympics <br/><br/>2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？中共将采集与会运动员的DNA、精子和卵子；中共将向世界宣布这是场前所未有的完美冬奥会<br/>
-![img](https://media.gettr.com/group48/getter/2022/02/03/00/f39a6688-0771-bb7b-aa21-0dd73ccda380/out.jpg)
 
 ---
 

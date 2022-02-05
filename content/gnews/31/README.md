@@ -2,31 +2,36 @@
 ---
 
 
-## 美新闻集团邮件帐户遭中共黑客入侵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958301/)
+## Hpay上市隔天PayPal大跌22%
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958368/)
 
-#### 撰稿：彩虹      
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+2月2日，就在Hpay上线隔天，PayPal开盘即跌22%。据悉PayPal此前发布的数据弱于之前的市场预期，他们将原因归咎于通货膨胀。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-390.png)图片来源：streetregister
+PayPal在2021年第4季业绩喜忧参半，每股获利低于预期的1.11美元和不计项目的1.12美元。但该公司营业收入达69.2亿美元，高于Refinitiv预期的68.7亿美元。Paypal公布的业绩不算差，其2月2日开盘的暴跌，显然与业绩并无直接关系。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-389.png)图片来源：FT
-根据《新闻极限》和《国会山报》2月4日的报道，周五，美国新闻集团公司披露，黑客闯入了新闻集团的电子邮件帐户，导致泄露数目不详记者的数据，并指出这是“对中共有利”的黑客行为。
+2月2日美国股市大盘走势，道琼斯工业平均指数、纳斯达克综合指数，S&P500指数，以及罗素指数，都是微涨。PayPal股价暴跌，也与大盘走势无关。
 
-根据新闻集团的说法，这一漏洞是在1月下旬被发现的，目前美国麦迪安网络安全公司（Mandiant）已经控制了该漏洞。
+分析人士指出：显然，2月1日Hpay的上线，是这次Paypal暴跌的最大原因，Hpay将成为Paypal的最大竞争对手。Hpay的设计具有先天优势，与喜系列一起将打破人类万年以来设定的金融规则。传统金融行业要想不被淘汰，与喜系列合作才是未来的生存方向。
 
-新闻集团在给员工的电子邮件中详细说明了攻击的范围，并在提交给美国证券交易委员会（SEC）的文件中列出。该公司说，初步分析表明是外国政府针对其一中个第三方的云端系统。但是，报道却没有说明是哪一家公司的云端系统。
+新闻来源: [PayPal將財測不佳歸咎於通膨 股價開盤暴跌22%](https://news.cnyes.com/news/id/4809549)
 
-麦迪安网络安全公司负责事件响应的副总裁Dave Wong在一份声明中说，该公司认为网络攻击者“为了搜集对中共有利的情报，可能参与了间谍活动”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
 
-报道指，中共国黑客曾多次被指对美国和其他地区的记者进行过黑客攻击。
+总编: Jack Li文阳
 
-例如，在2013年，《纽约时报》报道了一起黑客入侵事件，该事件影响了属于其员工的53台个人电脑。该报说，当时入侵的时间与它对中共国当时的总理温家宝亲属积累财富的调查相吻合。
+编辑: Ivy001
 
-而《华尔街日报》称，中共国黑客在2012年也曾侵入彭博社员工的电脑，由于该通讯社发表了一篇关于中共国现任领导人习近平亲属的报道。当时，彭博社确认其系统成为攻击目标，但其系统没有遭到破坏。
+校正/发稿：浪迹天涯
 
-**新闻来源**
-
-[News Corp hit by cyberattack with suspected link to China](https://thehill.com/policy/cybersecurity/592863-news-corp-hit-by-cyberattack-with-suspected-link-to-china?rl=1) [News Corp. Suspects China Behind Cyberattack](https://www.newsmax.com/newsfront/news-corp-rupert-murdoch-cybersecurity-china/2022/02/04/id/1055483/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

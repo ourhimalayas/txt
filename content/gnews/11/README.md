@@ -2,34 +2,35 @@
 ---
 
 
-## 日媒报道中共冬奥会隔离区内新闻自由被限制（视频）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958517/)
+## 美国会议员提案吁台美复交渐获支持
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1958651/)
 
-撰稿：日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
-当地时间2月1日，日媒邀请了两位分别在中共冬奥会隔离区内外的记者，探访了中共冬奥会的实地情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-394.png)
-在隔离区内的记者表示，整个隔离区就是一个巨型鸟笼，跟外界几乎彻底隔绝。并且在其中的生活受到严格限制，如同被软禁一般，除了严格的疫情防控措施，记者的出行只能在旅店、新闻中心以及有比赛的场馆之间来回。这位记者还透露，所有在隔离区内的采访，都必须先交由中共审核，并且对于采访中涉及到的提问，都要以中共事先准备好的答案作为最终回答，毫无采访的自由可言。
+作者：纽约香草山 医疗部 -云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月4日媒体报导，美国共和党籍联邦众议员帝芬尼（Tom Tiffany）在上届会期曾提出呼吁台美复交、签署自由贸易协议（FTA）与支持台湾加入国际组织的决议案，当时仅获得另一位共和党籍议员联署支持。
 
-在隔离区外的记者则表示，中共国上下并没有迎接冬奥会的气氛，毕竟在中国人民心中过年才是最重要的事情。而中共则在开幕前就为冬奥会定调，并将筛选出展现“成功”的画面，继续对墙内百姓进行洗脑宣传。同时，日媒还特别指出，之所以要强调“成功”，是为今年秋天习的再次连任铺平道路。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1152x768_20220204000073.jpg)图片源自网络
 
-新闻链接：[20220201日媒揭露CCP冬奧會無新聞自由](https://www.gettr.com/post/psbbzz209f)
+帝芬尼众议员在本届会期再度提出此议案，至目前为止，已经获得20位共和党籍议员的联署。帝芬尼表示将寻求民主党籍议员的联署，并希望在2022年度能让此议案成为跨党派支持的法案。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
+过去一年，由于中共在台海持续制造破坏现状的军事侵扰行动，已经引起国际社会的警觉，纷纷以军舰巡弋，自由航行通过台海及南海的行动，来展现护卫自己国家利益的决心。本届美国联邦议会参众两院在去年一年中就提出了51项支持台湾的议案。这数目已经超过前届议会在两年内提出的32项友台提案。 
 
+台美复交的提案，已经从过去无人想提，到现在有20位联邦议员愿意联署。 随着中共的越趋疯狂，为了美国自身的利益，美国将会有更多议员关注及支持台美复交的议题。
 
+参考链接：[https://www.cna.com.tw/news/aipl/202202040094.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aipl/202202040094.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-总编/编辑：文特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-校正/发稿：浪迹天涯
+编辑：Irene木木
+校对/发稿：Daxia
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

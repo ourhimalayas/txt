@@ -2,8 +2,8 @@
 ---
 
 
-## 非常可怕的事情是中国人不尊敬中国人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958678/)
+## 北京冬奥会 政治游戏参赛人员蹭吃蹭喝
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958710/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

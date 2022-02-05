@@ -2,40 +2,35 @@
 ---
 
 
-## 藏人在奥林匹克总部抗议北京冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958635/)
+## 美众院通过议案内含呼吁正名台湾驻美代表处
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1958679/)
 
-撰稿：纽约香草山教育部 -Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
-2月4日，大约500名藏人在国际奥委会总部外游行，抗议北京主办2022冬奥会。来自欧洲各地的藏人示威者从洛桑的国际奥委会大楼出发，前往瑞士的奥林匹克博物馆。同时，包括洛杉矶和旧金山在内的其他世界城市也有示威活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-396.png)
-洛桑的抗议者，许多人举着西藏国旗和写有“抵制北京冬奥会”“停止在西藏侵犯人权”和“耻辱运动会”的标语。
+作者：纽约香草山 医疗部 -云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月4日，美国联邦众议院通过「2022美国竞争法案」。该法案内容除了要求推动美国本土的高科技研究及制造，以强化美国对中共的竞争力，及缓解全球计算机芯片短缺带来的问题外。法案中条文也呼吁行政部门将台湾在美代表处正名为 「台湾驻美代表处」。
 
-示威者在经过奥运五环时高呼“没有权利，就没有奥运会”，“北京奥运会：种族灭绝运动会”，“不要让北京 2022 变成柏林 1936”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1336_058424953807.jpg)图片源自网络
 
-游行队伍中，一个标语牌展示了一名滑雪者站在一辆装有奥运五环轮子的坦克前，再现了1989年北京天安门大屠杀期间孤独的抗议者一人阻挡一列坦克的著名场景。
+在该法案2900页的内容中有多项与台湾有关，包括强化美台伙伴关系、协助台湾发展不对称防卫能力、协助台湾有意义参与包括世界卫生大会（WHA）等国际组织、强化美台双边经贸与科技合作。法案也呼吁美国国务卿协商将台湾驻美代表处名称由「台北经济文化代表处」正名为「台湾驻美代表处」。
 
-据悉，此次冬季奥运会将在“鸟巢”体育场正式开幕，习近平一心想要营造的太平盛世的气氛被中共国人权问题、中共病毒大流行以及参加冬奥会运动员的安全问题蒙上了阴影。
+ 众院该法案需与美国联邦参议院于去年通过的同性质「美国创新及竞争法案」进行整合，重新在两院通过共同版本后呈交总统公布生效。
 
-链接：[Tibetans protest ‘Games of shame’ at Olympic HQ](https://sports.yahoo.com/tibetans-protest-games-shame-olympic-164903900.html)
+参考链接：[https://www.cna.com.tw/news/aopl/202202050007.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202050007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-[Tibetans march on IOC headquarters to protest Beijing Games](https://www.reuters.com/lifestyle/sports/tibetans-march-swiss-based-ioc-protest-beijing-games-2022-02-03/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
-
-总编：童谣
-
-编辑：文特
-
-校正/发稿：浪迹天涯
+编辑：Irene木木
+校对/发稿：Daxia
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
