@@ -2,18 +2,16 @@
 ---
 
 
-## 有声|中共三种武器维稳冬奥会终成泡影
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961609/)
+## 有声|郭文贵先生解读HPay的功能特点
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961613/)
 
 配音：香草山巡管部– 文凯琳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月2日的大直播中，郭文贵先生爆料称，此次北京冬奥会已经交由中共军方全权控制，仅安保人员就有近八成来自军队，他们全天24小时执勤维稳。
+郭文贵先生在2月2日的大直播中详细阐述了HPay的核心功能和重大意义。
 
-郭先生透露，这些安保全部配备了三种特殊装备，包括高压电击枪、防暴枪和无声、无色、无味的催眠武器。
+郭先生表示，HPay的本质是在线支付，属约定式付款，其既不用被衡量，也无需在定价规则的贸易下交易。此外，已经上线的HPay具有八大特点，即无条件支付、无转账费用、无支付上限、无物理行为、无中心化、无中介、高度安全和极度隐匿。郭先生解释道，这些特性使得HPay超越了第一代加密货币的去中心化技术，从而能够让这一系统摆脱额度的限制且难以被追踪，达到人类最原始和最高的交易境界。
 
-郭先生还解释道，这些武器除却为了预防冬奥会上的突发事件外，主要还用于窃取参赛运动员们的精子和卵细胞，用以获取巨额利益。此外，中共还将借由机器人技术收集这些运动员们包括影像、声音和DNA在内的生物信息。
-
-文字版原文：[中共三种武器维稳冬奥会终成泡影](https://gnews.org/zh-hans/1956464/)
+文字版原文：[郭文贵先生解读HPay的功能特点](https://gnews.org/zh-hans/1956497/)
 
 音频处理/发稿：Daxia
 
@@ -26,6 +24,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
