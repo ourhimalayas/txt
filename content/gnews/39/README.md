@@ -2,26 +2,32 @@
 ---
 
 
-## 欧盟提议将疫苗护照延长至明年6月底
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956579/)
+## 强制疫苗对美军造成了灾难性后果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956580/)
 
 作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-欧盟委员会认为，延长该条例将确保旅行者在成员国旅行时，可以继续使用他们的欧盟疫苗护照。司法事务专员雷恩德说，由于疫苗护照版本的不同，已经在不同的国家系统中造成混乱和障碍。因此，统一标准的欧盟疫苗护照是必要的，可以保证公共安全和自由旅行。
+2月3日，据班农战斗室的盖特信息，美国国防部强制美军接种中共病毒疫苗的命令，已经造成了令人震惊的灾难性后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-5-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-4.jpg)
 
-此消息迅速引发欧盟区域的强烈反响。评论人士嘲讽，凭一个二维码就可以确保安全，这是极其荒谬的。当欧盟成员国已经意识到疫苗并未在中共病毒的防感染防传播上起到预防的效果，而纷纷取消全部或绝大多数限制措施之时，欧盟还在推行疫苗护照，实在让人感到不解和愤怒。
+美国科学与健康委员会的数据显示，2021年与之前的五年平均数值相比较，疫苗对美军个人的影响，包括：高血压病例上升22倍，多发性硬化症上升7倍，食道恶性肿瘤上升6倍，乳腺癌接近5倍，神经系统病例几乎上升11倍，从年初的8.2万起，暴增至86.3万起。
+
+另据一份2月1日参议员罗恩·约翰逊写给国防部长劳埃德·奥斯汀的信，以上数据实际来源于美国国防医学流行病学数据库。
+
+班农先生将这条盖特置顶，并说，除了以我们的武装部队为代价的巨大灾难之外，其它很难解释。而郭文贵先生几个月前就指出，美国的强制疫苗政策，将会在美军损失惨重的情况下结束。
 
 参考链接：
 
-- [Coronavirus: Commission proposes to extend the EU Digital COVID Certificate by one year](https://ec.europa.eu/commission/presscorner/detail/en/ip_22_744)
+- [BREAKING: Explosive new data out about the massive risks associated with the covid vaccine](https://gettr.com/post/ps9fb6e83f)
+- [This is hard to interpret other than an enormous catastrophe at the expense of our Armed Forces](https://gettr.com/post/ps9weteecf)
+- [BREAKING: Senator Ron Johnson sends letter to Secretary of Defense requesting information on Defense Medical Epidemiology Database and COVID19 vaccine injury](https://gettr.com/post/psaaaf4cc9)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: Ivy001
-编辑：谐趣园
+总编: 文真
+编辑：文真
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

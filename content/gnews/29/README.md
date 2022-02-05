@@ -2,58 +2,30 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1957446/)
+## 重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1957558/)
 
-翻译: wen wu
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-您若想了解全文报导内容，请点击标题链接
+2月4日，郭文贵先生于GTV、Gettr大直播中宣布HDO（喜美元）的重大利好，Hpay（喜支付）开启收人民币秒变HDO（喜美元）的业务，并表示，智慧的使用Hpay（喜支付）创造属于自己的得益商业模式。
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f81bfc48fe8a83e4a27ce4528d2338f51.png)图片来源Gettr
 
-1. [国际学者呼吁遵守奥运宪章维护人类尊严查明病毒来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220203-%E5%9B%BD%E9%99%85%E5%AD%A6%E8%80%85%E5%91%BC%E5%90%81%E9%81%B5%E5%AE%88%E5%A5%A5%E8%BF%90%E5%AE%AA%E7%AB%A0%E7%BB%B4%E6%8A%A4%E4%BA%BA%E7%B1%BB%E5%B0%8A%E4%B8%A5%E6%9F%A5%E6%98%8E%E7%97%85%E6%AF%92%E6%9D%A5%E6%BA%90)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-359.png)图片来源: rfi.fr
 
-据《法广网》2022年2月3日电，来自法国，美国，印度，日本，德国，英国，澳大利亚的二十位学者在北京奥运开幕之日联名发表公开信，呼吁遵守《奥林匹克宪章》——要求所有国家联合起来彻底调查新冠病毒的来源；信中提到：中共政府正在努力阻止病毒溯源调查，包括销毁生物样本、隐藏记录、监禁中国公民记者、以及执行一系列禁言令。
+Hpay（喜支付）无物理行为的、无中心化的加密支付系统保障了用户的绝对隐私，但不少国家的用户往喜交所汇款时都面临不少的障碍，尤其国内的用户面临更多的监督和外汇限制。针对这个情况，郭先生宣布重大利好消息，目前国内已建立收人民币购买HDO（喜美元）的渠道，具体详情需要和各农场联系。
 
-2. [法卫生部长指 或在今年七月前取消疫苗通行证](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220203-%E6%B3%95%E5%8D%AB%E7%94%9F%E9%83%A8%E9%95%BF%E6%8C%87-%E6%88%96%E5%9C%A8%E4%BB%8A%E5%B9%B4%E4%B8%83%E6%9C%88%E5%89%8D%E5%8F%96%E6%B6%88%E7%96%AB%E8%8B%97%E9%80%9A%E8%A1%8C%E8%AF%81)
+通过支付宝、微信将人民币转入指定专管账户（汇入金额无上限），在专管账户确认收到人民币后，与转入人民币相匹配的HDO（喜美元）将瞬间自动（无人管理、系统自动执行）到账转款人的Hpay（喜支付）账户，而且全程**0手续费**。这意味着彻底打破了中共的流氓外汇管制，零成本的将国内的人民币盘活，同时增加了Hpay（喜支付）和喜交所的资金流动性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-361.png)图片来源: rfi.fr
+最重要的是，中共知道这一切的发生却无力阻挡，只要国内有一家处理人民币业务的银行，人民币就可以无间断地进入Hpay（喜支付）和喜联储。尽管绝大多数用户还不了解这一汇款方式，仅在昨天一天就有近13亿的人民币转入到指定账户后瞬间收到HDO（喜美元），震惊所有参与人。Hpay（喜支付）为了全人类的财富自由流通而诞生，作为世界金融规则的创造者对用户的财务信息保护至关重要，选择用人民币换HDO（喜美元）的方法是绝对隐蔽而安全的。
 
-据《法广网》2022年2月3日电，法国在一天内新增中共病毒感染31.5363万（3.272万人住院、277人死亡）例后，卫生部长利维尔·韦兰（ Olivier Véran）宣布：“（如果没有新变异病毒出现）法国最糟糕情况可能过去了；希望疫苗护照能在7月前取消。”
+为了避免普通用户承担更多的资金转移成本，Hpay（喜支付）未来只针对大额（千万级或亿级美元）的交易收手续费，但会把费用比例压到很低（遵循仅回收运行成本的原则）。由此看来，Hpay（喜支付）相当于全球第一的金融义工平台。
 
-3. [福奇从秘密电话会议上知道实验室泄密的可能性](https://www.zerohedge.com/covid-19/fauci-knew-about-likely-lab-leak-secret-teleconference-pushed-alternate-narrative-instead)
+Hpay（喜支付）特别的功能尤其体现在国际贸易方面，可以省去很多不必要的汇兑成本和税务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-363.png)图片来源: zerohedge.com
+举例说明，国内签署1亿美元交易合同的同时另外签署一份100万美元的报税合同，通过Hpay（喜支付）收到1亿个HDO（喜美元）， 9900万个HDO（喜美元）可以在境外随时提现，或者用于购买原材料继续再生产，这样就可以避免汇兑手续费和重复的税收。总之，Hpay（喜支付）就是智慧的根据自己的需要创造出互利的商业模式。
 
-据《零对冲》2022年2月1日电，近期公开的[电子邮件](https://www.theepochtimes.com/new-emails-reveal-faucis-role-in-shaping-highly-influential-paper-that-established-covid-natural-origin-narrative_4225917.html)表明，美国国家过敏和传染病研究所（NIAID）所长福奇开始努力掩盖指向实验室泄漏作为中共病毒（Covid-19）起源的证据，并极力以自然起源的[理论](https://www.nature.com/articles/s41591-020-0820-9)误导公众；本月早些时候，福奇在国会作证时断然撒谎否认曾与《SARS-CoV-2的近亲起源》作者交流过。
-
-4. [日本公司称伊维菌素对Covid-19显示出“抗病毒效果”](https://www.news.com.au/technology/science/human-body/japanese-firm-says-ivermectin-shows-antiviral-effect-against-covid19/news-story/8cdfe85f8f5800cc98c348d287827719)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-371.png)图片来源:news.com.au
-
-据《澳洲新闻》2022年2月1日电，日本制药（Kowa Co Ltd）公司周一（31日）表示，有争议的药物伊维菌素在联合非临床研究中显示出，对Omicron和其他中共病毒（冠状病毒）变种的“抗病毒效果”。去年8月，美国食品和药物管理局（FDA）通过参考兽药版本告诉美国人停止服用这种药物…
-
-5. [高中生让旧金山为反华偏见的历史道歉](https://www.breitbart.com/politics/2022/02/02/high-school-student-gets-san-francisco-to-apologize-for-history-of-anti-chinese-prejudice/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-367.png)图片来源:breitbart.com
-
-据《布莱巴特》2022年2月2日电，旧金山Lowell高中生Dennis Casey Wu看到附近的安提阿（Antioch）为1876年白人居民烧毁其唐人街而道歉后，他敦促旧金山参事会（The Board of Supervisors of San Francisco）为几个世纪以来对美籍华人的偏见而道歉，并于周二（1日）得到该组织的一致同意；旧金山（30%为华裔）成为美国第四个向华人道歉的城市。
-
-6. [香港本土病例连3天破百官方呼吁员工在家工作](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220203-%E9%A6%99%E6%B8%AF%E6%9C%AC%E5%9C%9F%E7%97%85%E4%BE%8B%E8%BF%9E3%E5%A4%A9%E7%A0%B4%E7%99%BE-%E5%AE%98%E6%96%B9%E5%91%BC%E5%90%81%E5%91%98%E5%B7%A5%E5%9C%A8%E5%AE%B6%E5%B7%A5%E4%BD%9C)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-369.png)图片来源:rfi.fr
-
-据《法广网》2022年2月3日电，卫生防护中心传染病处主任张竹君表示，源头不明个案涉及香港、九龙和新界，不少患者的病症轻微或是无症状，相信社区有不少传播链；为了大幅减少社区人流和社交接触，政府政策局和部门明天会扩大特别上班安排（非必要只在家上班）到2月11日。
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
-
+最后，整个商圈从原材料采购、加工制造、运输、仓储、销售等环节全部使用Hpay（喜支付）循环加智慧的缩小版合同的时候，将大幅降低各个环节的重复消费税和最后的企业所得税，大幅降低甚至消除汇兑交易服务费，最后将降低整个社会的成本，把实惠回馈给终端消费者。
 
  
 

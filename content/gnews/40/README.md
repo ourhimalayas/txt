@@ -2,29 +2,26 @@
 ---
 
 
-## 美国国税局不会对未售出的质押加密货币作为收入征税
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956578/)
+## 欧盟提议将疫苗护照延长至明年6月底
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956579/)
 
-作者：纽约香草山 – 文特
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月3日消息，美国国税局在未来可能不会对未售出的质押加密货币作为收入征税，该决定是将质押奖励归类为财产而非应税收入。
+欧盟委员会认为，延长该条例将确保旅行者在成员国旅行时，可以继续使用他们的欧盟疫苗护照。司法事务专员雷恩德说，由于疫苗护照版本的不同，已经在不同的国家系统中造成混乱和障碍。因此，统一标准的欧盟疫苗护照是必要的，可以保证公共安全和自由旅行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-5-scaled.jpg)
 
-报道称，2021年5月26日约书亚和杰西卡.贾莱特夫妇向美国田纳西州中区地方法院提交法律诉状，要求退还2019年因收到8876枚Tezos代币而支付的3293美元所得税。据知情人士透露，美国国税局已批准全额退还他们通过质押获得的代币的税款。
-
-专业人士分析，喜币H-Coin就是最好的数字黄金抵押品，拥有者根本不需要卖出，需要现金时在数字银行抵押贷款即可。
+此消息迅速引发欧盟区域的强烈反响。评论人士嘲讽，凭一个二维码就可以确保安全，这是极其荒谬的。当欧盟成员国已经意识到疫苗并未在中共病毒的防感染防传播上起到预防的效果，而纷纷取消全部或绝大多数限制措施之时，欧盟还在推行疫苗护照，实在让人感到不解和愤怒。
 
 参考链接：
 
-- [美国国税局不会对未售出的质押加密货币作为收入征税](https://www.panewslab.com/zh/sqarticledetails/1643857185430687.html)
-- [https://gettr.com/post/psbg5redcb](https://gettr.com/post/psbg5redcb)
+- [Coronavirus: Commission proposes to extend the EU Digital COVID Certificate by one year](https://ec.europa.eu/commission/presscorner/detail/en/ip_22_744)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: 童谣
-编辑：DM
+总编: Ivy001
+编辑：谐趣园
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

@@ -2,19 +2,20 @@
 ---
 
 
-## 三合山七哥出生的山（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957668/)
+## 特鲁多因在推特上转移公众视线而遭碾压
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1957746/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据加拿大[叛逆者新闻]2月2日报道，总理特鲁多在2月份的“黑人历史月”中，试图利用其惯用的“美德信号”，以转移公众对当局故意无视卡车司机的反疫苗护照诉求而引发的批评浪潮。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，在特鲁多发表了关于纪念和赞扬黑人对加拿大发展所做出巨大历史贡献的声明之后，随即被各界指责他试图以此转移公众对其逃避解决卡车司机们要求取消疫情限制令和疫苗护照的诉求。
+
+据悉，在总理发表以上声明的推文下，他此前曾化妆为黑人面孔的照片被如潮水般地回复，民众以此来表达对该总理的强烈抗议。而特鲁多早已崩塌的人设在社交媒体上再次被彻底碾压。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

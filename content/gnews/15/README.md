@@ -2,63 +2,31 @@
 ---
 
 
-## 2022年2月4日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1957715/)
+## 今天意义太大了（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957802/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-5.jpg)
-Gettr视频连接：[2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮](https://gettr.com/streaming/psg0ix4b78)
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/今天的意义太大了（上）_01.jpg)
+直播时间：2022.01.26
 
-G-TV视频连接：[2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+先说几句有啥说的啊，这个真的是一个激动人心啊！
 
-1、负责主席台安全的狙击手领队在盘古大观旁突然倒地，然后死亡，可能是疫苗打多了，吓死习了；
+这是继我们六四宣言之后啊又一个最大激动人心的时刻，这个就是看我们爆料革命，新中国联邦啊，每天都在进步。都在用我们实际的行动在推动灭共的事业。
 
-2、普京冬奥会入住华尔道夫酒店，刚入住团队16人确诊，酒店内3人死亡；
+抱大腿说的这些，伪类没这帮孙子是吧，类似这些人，喊了几十年了是吧？整天喊他们什么民主啊，民运是吧？共产党缺了一根毛了是吗？这帮孙子根本没有任何的意义，因为他们没有实际的行动能触动真正的这个事情呢，没有真正的实力和行动。这种行动不是拿嘴说拿嘴炮喊对吧，你在场上练，你得跟进，你得真赢了是吧？这个东西是今天咱们看到的，这是实实在在的成绩，美国这个政府，整个的美国的这种体制底下，别人真正的做出了这一步，已经开导的，并且脱离，不承认他这个意义太重大了，这相当于两国断交对吧?
 
-3、普京团队染上病毒，非同寻常，普京大怒，抱怨中方连基本的保证都不能提供；
+我撤回大使馆所有的这些不承认外交的这些东西，你记住啊，美国在中国现在没有大使。
 
-4、北京5000公里外的军队因此事马上进入战备状态；
+你别忘了七哥让他一直让他没大使，别忘了他一直没大使。
 
-5、冬奥会原计划97个国家来一级元首，现在只来了35个国家；
+发布：*皮特*
 
-6、多个参加的外国使团，找CCP要更多的钱，否则就撤走运动员；
-
-7、Paypal、Facebook 股价跌和H-Pay、Gettr没关系；
-
-8、当喜贷款、喜抵押出现时，H-Pay秒杀PayPal 。推特盈利预期大降、Facebook搞元宇宙成本增加太多，持有这些股票，绝对是等死，山崩之前，赶快跑；
-
-9、美国经济没有完全奔溃，最早3月份才会开始，5月份以后大爆发；
-
-10、美国经济发展最厉害的生物电脑、量子电脑、太空科技、新型材料、生物科技；
-
-11、H-Pay可以收人民币，HDO可以兑换成人民币，国内收人民币，请和农场联系；
-
-12、G-Clubs卡会持续半年到一年，很多政策一定会调整，就是为了把战友分层次分时间和新中国联邦连接在一起；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

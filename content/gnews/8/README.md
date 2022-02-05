@@ -2,24 +2,33 @@
 ---
 
 
-## 七哥新中国联邦声明后会对世界和中国的政治，经济有什么深远影响？（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957782/)
+## 军方告诉渥太华：驱逐卡车司机，找别人去吧！
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1957869/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥新中国联邦声明后会对世界和中国的政治，经济有什么深远影响？二--scaled.jpg)
-直播时间：2022.01.26
+2022-02-04
 
-然后你看什么什么数字货币，你看现在的股票，咱们就在你们不经意间，你七哥新中国联邦是唯一一个世界经济会走这样儿，你们有意识到这能忽悠吗？你看看到接下来会对全世界的经济横扫，但是记住共产党完了，世界上从1913年到今天从来没有过经济危机会像这一次跌了这么多，复苏这么快。因为没有共产党的世界，什么都重新分配，经济更多，特别是你们现在所有在直播中的新西兰、日本、加拿大、澳大利亚……就这种文明国家，你就别说五眼了，七眼十眼了，你都会强势反弹。这时候在中共国还有什么一片都好的，还可以搓麻将，还可以玩儿的，还爱我的党，我的国的。我可以告诉你兄弟姐妹千万别心疼，你想想国内有多少人躲过疫苗灾难，又有多少人能躲过这场即将到来的经济灾难，又有多少人能躲过这一场的最后共产党被清算之后，中国新生。他被清算的这种灾难他能活到那一天吗？有多少人？我们希望共产党带走的人越少越好，但是无知这个东西，它有时候比核武器杀伤力还大，因为你无知，可能把车开到逆行道。因为无知，就像很多中国人上人家飞机，上去就戳人家飞机，把飞机差点戳掉下来。把微波炉里边去热药，热炸了，这是无数个（实例），就是无知会让你吃错药，按错开关，选择好错误的道路，失去你的永爱，失去你的健康，就像疫苗一样。我们尝试着让中国5年内让大家增加辨别真假的能力，识别善恶的能力，就是让你不要被无知害掉，就力抓别说你邪恶了，你也没有邪恶的本事，你也没有邪恶的本钱。但是现在，我们今天站在这儿全人类地球就咱家说的时候，就咱独一家子说，你看发生了什么。
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PT7SCZGJPY47MYCT8F.png)图片来源：[FIRST READING: Military tells Ottawa to find someone else to evict the truckers](https://nationalpost.com/news/canada/first-reading-military-tells-ottawa-to-find-someone-else-to-evict-the-truckers)
+来自NATIONAL POST二月四日的新闻报道：
 
-发布：*皮特*
+尽管渥太华警方简略地提出了军事干预的可能性，以清除封锁市中心的自由车队卡车司机的顽固抵抗，但加拿大武装部队CFA很快就表示他们不会这样做。 国防部长发言人周四对《华尔街日报》表示，“在这种情况下，加拿大武装部队不参与执法，也没有计划参与”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总理贾斯汀·特鲁多周四也表示，“目前军事干预还不在考虑范畴”，“在涉及加拿大人民参与的事件中部署军队之前，必须非常非常谨慎”。
 
+在近代，只有两起加拿大军队被要求平息内乱的事件。 第一次是 1970 年 10 月的危机，实际上在消灭魁北克分离主义者恐怖主义方面做得很好。 但是，武装士兵集体拘留和平的魁北克民族主义者的场景，一直是当时总理皮埃尔·特鲁多政绩的一个污点。 第二次是 1990 年的奥卡危机，其评说更为复杂。 军方最终确实迫使莫霍克领导的抗议活动停止了他们对有争议的高尔夫球场扩建的封锁，但整个事件是如此混乱，它成了军方不该做什么的范例。 奥卡的经历可以说是加拿大执法部门犹豫派军队对抗封锁的一个关键原因，即使那次他们连续多天完全占领了该国的铁路线。
+
+总之，所有这些军事干预话题之所以开始，只是因为渥太华警察局长彼得斯洛利周三表示，“对这次示威，警察可能没有解决方案”，并且“我们正在考虑每一个选项，包括军队对涉民执法的援助”。
+
+**点评：**军队是抗御外敌，保护人民，类似六四的事件只有在中共等独裁国家发生。和平抗议集会是宪法赋予公民的权力，驱逐镇压追求自由的和平抗议卡车司机，军队不参与，爱找谁找谁！
+
+原文链接：[FIRST READING: Military tells Ottawa to find someone else to evict the truckers](https://nationalpost.com/news/canada/first-reading-military-tells-ottawa-to-find-someone-else-to-evict-the-truckers)
+
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

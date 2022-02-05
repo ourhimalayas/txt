@@ -2,30 +2,26 @@
 ---
 
 
-## 尼日利亚被迫放弃中共银行铁路贷款
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956581/)
+## 中共国两家银行突然宣布停办柜台现金业务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956582/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒2月03日报道：尼日利亚政府被迫放弃中共进出口银行铁路贷款。
+近日，中共两家银行相继宣布将停办柜面现金业务，包括营业网点柜面现钞和ATM机自助渠道。这两家银行分别为北京中关村银行和辽宁振兴银行，自4月1日和3月1日起实施。据悉，银行要求客户使用手机应用程序、微信内置程序等办理所需业务，若确有现金存付需求，可转入他行办理。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-3.jpg)
 
-尼日利亚政府日前表示，不会再等待中共进出口银行为该国一个重要铁路项目继续提供贷款资金。因为根据贷款协议，中共进岀口银行应该为尼日利亚修建这条铁路提供主要贷款支持，但实际到位资金仅占投资总额的15%，导致这条从首都拉各斯到北部城市的铁路建设受到严重影响。
-
-尼日利亚交通部长阿马赫对媒体表示，政府要求中共当局对其余贷款作出回应，但中共一直拖延不答复。尼日利亚被迫放弃中共贷款，转而向他国银行寻求贷款帮助。由于中共银行背信弃约，将使本届政府承诺的铁路修建计划受到严重挫折。
-
-对此，分析人士评论，中共已经穷途末路，根本无法履行相关协议。况且中共从来没有契约精神。按照这个趋势发展下去，中共一带一路肯定会带来一路崩塌的灾难。
+评论人士指出，中共国银行无理由停办客户提现业务，显示银行现金流出现重大问题，银行备用现金已经见底。在中共国经济雪崩效应下，金融爆雷已经无法掩盖，无力应对。墙内百姓连自己的钱都无法做主的时代，即将到来。
 
 参考链接：
 
-- [Nigeria Gives Up Waiting for China Eximbank Railway Loan](https://www.bloomberg.com/news/articles/2022-02-02/nigeria-gives-up-waiting-for-china-exim-loan-for-railway-project)
+- [太突然！两家银行宣布停办现金业务！发生了什么](http://finance.eastmoney.com/a/202202032267182994.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: 童谣
-编辑：文徬
+总编: Jack Li文阳
+编辑：Ivy001
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

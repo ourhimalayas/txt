@@ -2,23 +2,31 @@
 ---
 
 
-## 法国在欧洲率先使用抗病毒药物
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1957708/)
+## 有声|美官员呼吁国会立法注资高科技抗衡中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1957791/)
 
-加拿大温哥华扬帆农场    平民正道
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月1日，据相关媒体报道，16位美国前国家安全高级官员共同呼吁国会尽快通过立法，增加对美国高科技产业的资助，用以全力抗衡中共。
 
-据加拿大《CTV新闻》2月2日报道，法国将在近日率先使用[辉瑞公司]的抗“新冠病毒”口服药物Paxlovid。
+资料显示，美国联邦参议院已于2021年通过了《美国创新及竞争法》提案，当中要求政府为包括半导体产业在内的科技领域注资520亿美元，用于技术强化与开发。本周，联邦众议院将开始审议由该院提出的《美国竞争法》。通过后，参众两院将一同协商并解决二者之间的差异。
 
-该药物是欧盟27国统一批准的首款治疗“新冠病毒”感染的药品，将被用于有症状且患有严重疾病的成年人。此外，美国[默克公司]的同类抗病毒药丸也将很快获得使用授权。
+据悉，这16位前政府官员在联名信函中表示，技术保护类法案可以确保联邦所属的投资符合美国的国家安全利益，从而能够让美国继续维持实力与相当的优势来抗衡源于中共的威胁。
 
-据悉，法国是全球人均单日病毒感染率最高的国家之一。该国目前已经收到了首批1万剂Paxlovid药物，并将从2月4日起在全国各个药店公开出售。
+文字版原文：[美官员呼吁国会立法注资高科技抗衡中共](https://gnews.org/zh-hans/1951554/)
 
-显然，在其疫苗政策遭到本国民众激烈的抵抗之下，法国政府深知疫苗经济已走到了尽头。为此马克龙当局不失时机地推出Paxlovid，以此继续愚弄百姓，缓解压力。并企图通过解药经济来维系其即将结束的政治生涯。
+音频处理：Fei797
+发稿：Fei797
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-编辑： 平民正道    发布：平民正道
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

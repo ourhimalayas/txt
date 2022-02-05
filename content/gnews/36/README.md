@@ -2,35 +2,37 @@
 ---
 
 
-## HPay上线改变支付规则，疫情灾难会追中共担责？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1956974/)
+## 美国国立卫生研究院高级官员亚当·霍特为中共工作
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956601/)
 
-整理：顺其自然
-编辑：守望黎明
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体2月2日披露，美国国立卫生研究院临床测序证据生成研究分部联合主席亚当·霍特，在中共政府外国势力的美国中部美中协会担任教育委员会副主席。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-4.jpg)
+美国中部美中协会教育委员会的宗旨是：“汇集基础教育和高等教育的资源，让研究、专业知识和新工作的人致力于美中合作”。该协会与中共政府、领事馆及中共统一战线组织中美交流基金会合作密切。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-17.png)图片来源：GNEWS
+根据霍特在领英个人资料中的披露，他自2019年以来一直担任NIH某分部联合主席，与福奇先生共同工作。
+
+参考链接：
+
+- [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/)
+- [https://usheartlandchina.org/zh/](https://usheartlandchina.org/zh/)
+- [赵振格总代表出席美国中国总商会华盛顿分会中秋招待会](https://www.ccpit.org/usa/a/20190913/20190913t2xp.html)
 
 
-关于HPay，H就是喜马拉雅HIMALAYA的第一个字母，PAY就是英文付钱的那个PAY。HPay就是喜马拉雅交易支付系统，是喜系列的另一个功能，与喜联储、喜币密切相关。关于这个HPay的功能我了解的还不完全，我先就我自己的理解说一下，可能会有理解错的地方。对这方面有兴趣的网友，请到盖特上找一下熟悉这方面的其他战友的解读。另外，HPay要到大年初一才正式上线，很多功能还没出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-使用HPay的前提是在喜马拉雅交易平台（Himalaya exchange）上注册，也就是要有喜交所的账户。用HPay来转账是零手续费，就是没有任何交易费用。可通过手机号儿或者是邮箱进行注册，最低交易额度可以是一分钱，但是上限会很高，上千万上亿都可以。
+总编: Irene木木
+编辑：文徬
+校正/发稿：海阔天空1
 
-郭先生在直播中说，买画、上餐厅吃饭，只要你有足够的智慧，你就能省下过去需要支付的5%，10%，20%的费用。在这里我要说一下我的理解，因为郭先生只是暗示并没有明说，所以，我不清楚我的理解对不对。因为我们出去买东西吃饭，各方面儿都是有消费税的，用这个HPay是不是可以省去消费税？吃饭买东西都是我们每天都要做的，若是接受HPay的商家够多，我们用HPay若能省下消费税的话，就可是要省下不少钱呢！对我们普通百姓来说，大额支出就是买房买车，如果在这上面能省些税，就更好了，这些都只能听以后郭先生给我们做出解释，告诉我们怎么操作了。我的智慧不够，在这点上有些搞不明白。另外，有一个基本的概念，世界上现有所有与交易相关的税收，都是针对政府发行的法币的交易征收的。如果交易不经法币、直接以数字货币为基础进行，就可以跳开税收问题同时又不违背任何国家的法律。
-
-第三点跟我们普通百姓就没有什么太大关系了，就是国内有大钱的人用于往外转钱。对他们来说，最主要的就是看重这套加密支付系统，让上帝都找不着你钱划出了多少，你的钱去了哪？连警察、税务局都找不到理由来敲诈你。
-
-此外，郭先生在盖特视频中说，现在不止欧美，连非洲都要找中共算账，要把病毒和毒疫苗的账算到中共头上。我想，西方某些暗黑势力这么多年一直在跟中共勾兑，与中共联手欺压剥削全球的老百姓。但到了最后的关头，这些西方暗黑势力会不会玩黑吃黑，把中共推出来顶锅，反咬一口把所有的罪责推到中共身上？以西方这些暗黑势力控制全球上百年的老狐狸的做法，很有这种可能。像当年的二战，战争背后的大财团和军火商难道就没有罪责吗？但最后，不是只有德国纳粹和日本军国主义遭到了清算，连日本天皇都逃脱了惩罚，大发战争财的那些家族和军火商悉数脱罪。
-
-各国政府首脑，很多都是某些家族势力推出的代言人。到最后，这些前台的政客可能会被推出来顶杠，而背后的家族又会顺利开溜，这是他们一贯的做法。而脸书FACEBOOK和推特TWITTER，这样的媒体巨头也会受到惩罚，扎克伯格、多西之流的肯定会玩儿完。但背后投资的一众大股东，肯定会换个新的投资机会和渠道，又去别的地方赚大钱了。
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
