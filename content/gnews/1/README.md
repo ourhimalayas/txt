@@ -2,32 +2,32 @@
 ---
 
 
-## 奥运开幕荷兰记者直播中遭安保暴力推搡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1957923/)
+## 【秘翻在线】过百名高中生拒绝盲目服从州长的口罩规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1957977/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-3.jpg)奥运开幕荷兰记者直播中遭安保暴力推搡 网络图片
-据美国之音2月5日报道，北京奥运开幕式当晚，荷兰公共电台(NOS)记者在北京中共国国家体育馆外进行电视连线直播时，被中方保安人员强行驱离镜头，导致连线报道中断。这段总长28秒的视频被摄像机全程记录下来，迅速在全网疯传。
+**撰稿：Grace**
 
-中共宣传部门禁止北京冬奥期间出现任何批评哪怕质疑的声音，冬奥会是提升中共国国际形象的一场表演秀。中共国政府指责国际社会抵制北京冬奥是把体育政治化，中共党魁习近平却把这场国际赛事与洗白中共国形象的政治目标捆绑在一起，这就是“讲好中国故事”。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-04-at-8.31.44-PM.jpeg)图片来源：thepostmillennial
+据 The Gateway Pundit 2 月4日报道，加州奥克戴尔高中 （Oakdale High School）的100多名没有戴口罩的学生被禁止上课。工作人员将拒绝戴口罩的学生关在体育馆内，并调低温控器以 “冻死他们”。
 
-与此同时，几十个人权组织参加的“抵制北京2022”活动在全美多地中共国使领馆前聚集抗议，谴责中共国侵犯人权的行为。美国“女权无疆界”组织呼吁“关掉比赛”，号召民众不要观看本次冬季奥运会。
+据报道，在加州的纽森（Newsom）州长被发现在49人与公羊队（49ers-Rams）的橄榄球比赛中没有戴口罩后，奥克戴尔联合学区的高中生开始抗议该州的口罩规定。
 
-自中共篡政以来，新闻自由就在中共国销声匿迹了。在中共国任何地方，记者被驱离、被殴打的现象比比皆是。中共国警察、城管，甚至视频中这位仅仅是冬奥会的志愿者都可以随意驱赶记者。中共国就是无法无天的流氓横行之地。本届冬眠会是中共最后一场表演赛，远离病毒不去也罢，去的尽早打道回府。
+其中一名拒绝戴口罩上课的高中生在接受媒体采访时说：“如果他们（政府官员）自己不遵守他们试图强加给我的规则，我为什么要遵守这些规则。”
 
-新闻参考链接：[https://www.voachinese.com/a/dutch-reporter-pulled-out-during-live-report-in-beijing-20220204/6427263.html](https://www.voachinese.com/a/dutch-reporter-pulled-out-during-live-report-in-beijing-20220204/6427263.html)
+报道称，这些勇敢的高中生本周没有戴口罩去上学，而极左派的学校工作人员用午餐桌把孩子们堵在学校的体育馆里。
 
-* * *
+在一名学校工作人员调低恒温器以 “冻死他们 ”之后，警方被要求进行福利检查。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+一名学校官员进行了福利检查，并认为这不是警察的事，所以虐待事件目前没有接受警方调查。
 
+据报道，逃出冰冷的体育馆后，学生们游行到区总部抗议。而几十名家长也在学校门口展示了对他们的游行的支持。
 
-编辑：【英国伦敦喜庄园编辑部】
+接受采访时，这位拒绝盲目服从州长定的口罩规定的高中学生还说道：“当你面对困难时，仅仅因为你正在经历艰难的时刻，并不意味着你应该退缩和放弃你所相信的东西。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+上帝保佑这些孩子。
 
-
+**新闻来源： ****[California High School Barricades Maskless Children in Gym, Staffer Turns Down Thermostat to “Freeze Them Out”](https://www.thegatewaypundit.com/2022/02/california-high-school-barricades-maskless-children-gym-staffer-turns-thermostat-freeze/)**
 
  
 

@@ -2,19 +2,13 @@
 ---
 
 
-## 西媒头条 — 第165期 – 西媒要闻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1957625/)
+## 2022年2月5日《樱花简报》：日本单日新增确诊中共病毒突破10万例 累计超300万例
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1957678/)
 
-制作：喜妹
-
-**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022.2.3_.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220205-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

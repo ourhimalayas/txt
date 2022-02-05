@@ -2,28 +2,24 @@
 ---
 
 
-## 美国国立卫生研究院高级官员亚当·霍特为中共工作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956601/)
+## 吹哨人：澳洲须防中共利用社交媒体假消息干预大选
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956602/)
 
-作者：银河系农场 – 骄子
+作者：台湾宝岛农场 – 阿尔道夫
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体2月2日披露，美国国立卫生研究院临床测序证据生成研究分部联合主席亚当·霍特，在中共政府外国势力的美国中部美中协会担任教育委员会副主席。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-4.jpg)
-美国中部美中协会教育委员会的宗旨是：“汇集基础教育和高等教育的资源，让研究、专业知识和新工作的人致力于美中合作”。该协会与中共政府、领事馆及中共统一战线组织中美交流基金会合作密切。
+据台媒报导，澳洲将于今年5月举行联邦大选，脸书「吹哨人」，也就是脸书的前员工郝根，于2月3日在澳「社交媒体及在线安全调查委员会」公听会中强调，中共已将社交媒体武器化，应预防有人利用社交媒体散播假消息，干预澳洲大选。
 
-根据霍特在领英个人资料中的披露，他自2019年以来一直担任NIH某分部联合主席，与福奇先生共同工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/13.png)
 
 参考链接：
 
-- [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/)
-- [https://usheartlandchina.org/zh/](https://usheartlandchina.org/zh/)
-- [赵振格总代表出席美国中国总商会华盛顿分会中秋招待会](https://www.ccpit.org/usa/a/20190913/20190913t2xp.html)
+- [臉書吹哨人：澳洲須防社交媒體假消息干預大選](https://udn.com/news/story/6811/6075913?from=udn-catebreaknews_ch2)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: Irene木木
-编辑：文徬
+总编: 童谣
+编辑：童谣
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

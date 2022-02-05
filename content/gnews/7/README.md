@@ -2,30 +2,27 @@
 ---
 
 
-## 军队是最大受益者
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1957874/)
+## 印度因中国挑选火炬手而不参加冬奥会开幕式
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1957896/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/军队是最大的收益者（一）_01.jpg)
-直播时间：2022.01.26
+投稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/p1.jpg)图片来自网络
+此前报道，中国政府挑选的火炬手激怒了新德里方面，印度将不会参加星期五的北京冬奥会开幕式。
 
-美国这么一干，中国的军队，包括对台的战争，很多人可能都避免这场劫难，都懂的。美国人一离开了，就警察撤离了你家一样，你就完啦。
+印度外交事务发言人Arindam Bagchi周四表示，很遗憾中国选择将奥运会体育赛事政治化。这位发言人还说，印度驻北京大使馆也不会派代表参加闭幕式。
 
-而且长期不派大使，而且明确告诉你溯源这事你不整明白，那你再有什么毒出来，你发现刚才说的意思了嘛，就是他不敢再放毒了，你再放毒，那就开战了，就不会跟你说了。
+此前，中国官方媒体《环球时报》报道称，一名曾在2020年与印度边境部队发生致命冲突的中国军队指挥官，被选为负责向北京传递奥运圣火的火炬手之一。
 
-就像一个人在曼哈顿他家里边成天放毒，放毒老鼠，人家警察说你别玩儿了，是你再玩我就撤了，谁爱揍你谁揍你，但是我发现你再放，那我就直接灭了你了。这军队是最大的受益者，军队就可能避免了这场牺牲的战争，当炮灰去了。他们内部就把习啊、中南坑这些人解决，解决个10个，20个人就避免了这场战争。
+2020年，拉达克省东部与中国有争议的边界爆发了冲突。印度士兵有20人丧生，中国政府声称有4名士兵丧生。
 
-美国人一撤，中国所有有钱的、有权的，有脑子的，就知道大势已去，共产党结束了，这事大到就是任何事都不能相提并论了。
+美国和澳大利亚、英国、加拿大等几个国家宣布从外交上抵制冬奥会，理由是中国侵犯人权，只是同时允许本国运动员参赛。
 
-发布：*皮特*
+据发言人Bagchi说，印度只有一名有资格参加奥运会的运动员。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考信息：
 
+[https://www.foxnews.com/sports/india-skip-winter-olympics-opening-ceremony-china](https://www.foxnews.com/sports/india-skip-winter-olympics-opening-ceremony-china)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

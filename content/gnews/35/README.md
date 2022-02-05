@@ -2,33 +2,35 @@
 ---
 
 
-## 吹哨人：澳洲须防中共利用社交媒体假消息干预大选
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956602/)
+## 阿爾伯塔省長下周將宣布COVID疫苗護照的結束日期
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1957026/)
 
-作者：台湾宝岛农场 – 阿尔道夫
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台媒报导，澳洲将于今年5月举行联邦大选，脸书「吹哨人」，也就是脸书的前员工郝根，于2月3日在澳「社交媒体及在线安全调查委员会」公听会中强调，中共已将社交媒体武器化，应预防有人利用社交媒体散播假消息，干预澳洲大选。
+加拿大溫哥華揚帆農場 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-5.jpg)圖片來源：CP24
+根據《The Globe and Mail》2月4 日報道，省長肯尼（Jason Kenney）將在下周宣布結束阿爾伯塔省COVID疫苗護照的日期，之後很快就會實際取消。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/13.png)
+肯尼說，他還將在下周宣布一個分階段的方法，只要醫院的壓力繼續下降，就會在本月底前結束幾乎所有的COVID限製。阿爾伯塔省的高疫苗接種率加上穩定的醫院病人數量，使得很快結束疫苗護照是可行的。
 
-参考链接：
+肯尼星期四晚上在他的Facebook頁面上的一個現場市政廳中告訴市民:”隨著COVID的變化，我們的反應也必須改變，這就是為什麼下周初阿爾伯塔省將宣布一個結束疫苗護照的確切日期，並在不久的將來徹底結束。”
 
-- [臉書吹哨人：澳洲須防社交媒體假消息干預大選](https://udn.com/news/story/6811/6075913?from=udn-catebreaknews_ch2)
+該疫苗護照在阿爾伯塔省被稱為限製性豁免，規定任何使用酒吧和餐館等非必要服務的人必須出示疫苗接種證明。艾伯塔省的計劃是自願的，但不參加的企業會受到限製，包括嚴重降低客戶容量。
+
+自去年9月推出以來，該護照已成為阿爾伯塔省內以及肯尼自己的聯合保守黨黨團和黨內在平衡公共衛生秩序與個人權利和自由方面的沖突的象征。
+
+一周前，肯尼說，可能在3月底前取消疫苗護照。從那時起，他受到了來自黨團成員的越來越大的壓力，稱該護照不公平地侵犯了個人權利，必須立即取消。
+
+周四早些時候，肯尼的助手、政府議院領袖和環境部長傑森-尼克松公開要求采取行動。他在一份聲明中說：”現在很清楚，像限製豁免計劃這樣的強製措施對目前COVID-19的情況並不像衛生官員預期的那樣有效。我對疫苗強製的立場是，它們需要結束。”
+
+阿爾伯塔省已經決定取消疫苗護照，加拿大其他省會不會緊隨其後？
+
+原文鏈接：[https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/”&gt;https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/](https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/&quot;&gt;https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编: 童谣
-编辑：童谣
-校正/发稿：海阔天空1
+編輯，發稿 Spirit
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

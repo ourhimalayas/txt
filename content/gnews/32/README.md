@@ -2,35 +2,37 @@
 ---
 
 
-## 以色列本周COVID死亡率世界上最高!
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1957275/)
+## 前纽芬兰总理就强制令对加拿大政府提起诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1957332/)
 
-**编译: 真北007**
+### 编译: Cran            
 
-来自GATWAY PUNDIT二月三日的新闻报道：
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16440148811.png)
+在1月26日乔丹.彼德森的播客节目中，前纽芬兰总理,唯一在世的当年参与加拿大宪章的撰写人布莱恩佩克福德,就加拿大政府的强制令提起诉讼。
 
-以色列，如果不是第一，那也是世界上疫苗接种率最高的国家之一。根据霍普金斯大学的数据分析，它最近一周的每百万人口中的COVID死亡人数名列世界首位，并且重症病例中的80%是完全疫苗接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-352.png)全球每周新冠死亡病例（每百万人），图片来源：[The Gateway Pundit](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
-老天爷啊！在以色列究竟发生了什么？十天前，以色列的一个“专家小组”建议接种第四剂 COVID 疫苗，以保护人们免受冠状病毒的侵害。
+佩克福德引用宪法里的一个条款：只有在特别情况下——比如“战争”——才允许政府绕过法律。这次病毒的康复率是99% 而死亡率仅为1%, 根本不算特别情况。他在塔克卡森的采访中说：“当特鲁多总理称未接种疫苗的人为种族主义者，歧视女性者和反科学者和极端分子时， 很明显是在制造分歧”。他认为 强制令是越权行为。 “越来越清楚，疫苗接种并未阻挡病毒的传播”。
 
-根据路透社的数据，到目前为止，以色列已经接种了至少 17,879,314 剂 COVID 疫苗。 假设每个人需要 2 剂疫苗，这足以为该国约 98.7% 的人口接种了疫苗。
+他指出，加拿大有14个议会却没有一个为人民发声。每个省有一个由纳税人资助的紧急状态组织。此组织应该在紧急状况下做出全面的实施规划。而非由联邦政府来发强制令。
 
-但这似乎没有帮助，以色列现在是世界上每百万人中 COVID 死亡人数最高的国家。也许第五剂就不再是戏法了？
+在过去，佩克福德曾就重大事件向有关机构发出信件，然后此信件会在国家范围内传播。然而对于他就疫情所写的信件对方连回执都没有。他认为原因是主流媒体被6亿元所收买。
 
-另外，最新数据显示，该国 80% 的严重 COVID 病例已完全接种疫苗。
+他诉讼的重点在于，旅行禁令致使家人和朋友不能相见。“联邦旅行禁令将我与其他加拿大人隔离。这是歧视性的，侵犯了我的宪章权利”。
 
-**原文链接：**
-[The Gateway Pundit: Country with One of the Highest Vaccination Rates Has Highest Number of COVID Deaths Per Million People This Week –80% of Serious Cases are Fully Vaccinated](https://www.thegatewaypundit.com/2022/02/vaccinated-country-earth-highest-number-covid-deaths-per-million-people-week/)
+他列举出违宪的部分。包括自由结社，发言，集会，思想，移居旅游，生活自由，平等权利。“ 现在所有这些权利被所有的各级特别是联邦政府所侵犯”。他认为宪法中的条款被政府所忽略和越权是很危险的。
 
-**编辑：LILY**
+他表示自己不情愿这样做，但作为仅存的宪法制定人和公民，他必须对政府采取行动。 不然加拿大政府对宪法的藐视和越权将使宪法将无法生存下去。
 
-**发布：MQ**
+*始于1981 基于英国宪章，出台了加拿大的法案“爱国条约”。一年以后于1982年改为宪章法案包括了自由人权法案。*
 
-20220204
+——布莱恩佩克福德
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+**布莱恩佩克福德**：纽芬兰前总理， 政治家， 在进入政界前，他是一位教师。
+
+**乔丹.彼德森**：加拿大临床心理学家，作者和心理学教授
+
+文章来源: [1](https://www.youtube.com/watch?v=EdhFuMDLBDM) [2](https://www.foxnews.com/world/last-living-signer-of-canadian-constitutional-charter-of-rights-sues-government-over-covid-travel-ban)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
