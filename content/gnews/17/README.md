@@ -2,21 +2,28 @@
 ---
 
 
-## 多国奥运选手将抵制冬奥会开幕式
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961515/)
+## 有声|参赛运动员准备抵制北京冬奥会开闭幕式
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961578/)
 
-加拿大温哥华杨帆农场枫叶快讯
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据2月2日外媒报道，2月4日冬奥会开幕式在北京正式举行时，除了一些国家的政府官员和观众不见踪影外，来自多国的参赛运动员也在准备抵制开幕式和闭幕式，以声援遭受中共人权侵犯的受害者。
 
-采编： Spirit            编辑撰稿：硫酸羟氯喹64
-![2022 Beijing Olympics](https://am14.mediaite.com/med/cnt/uploads/2022/01/GettyImages-1237970843-scaled.jpg)
-据《华盛顿邮报》2月1日报道，多国运动员已声明因中共政权的种族灭绝和反人类罪，而抵制即将在北京举行的冬奥会开幕式。 报道称，近期以来，美国相关机构一直敦促西方国家那些准备参赛的运动员就中共当局的大规模暴行端正立场。尽管大多数运动员都受到了来自国际奥林匹克委员会及其赞助商的压力，但已有为数众多的运动员确认将不参加开幕式，以此作为他们个人的抗议形式。
+数月以来，一些活动人士一直在与几个西方国家的奥运运动员会面，敦促他们就中共对维吾尔人、藏人、香港人和中共国境内其他群体的大规模迫害发表意见，至少可以拒绝出席开幕式、闭幕式。据悉，至少有两支西方球队的运动员确认他们将不参加开幕式，作为个人抗议的形式。但具体参与抵制的运动员人数尚不清楚。
 
-对此，有评论指出，新中国联邦最近发起的甜蜜蜜灭共运动，通过促成美国外交授权撤其驻北京大使馆，以及目前响彻中国的三首灭共歌曲，将会成功把本次冬奥会变成冬眠会。爆料革命给全世界带来的有关病毒和疫苗的真相，将联合所有正义力量彻底粉碎习近平的奥运痴梦。
+文字版原文：[参赛运动员准备抵制北京冬奥会开闭幕式](https://gnews.org/zh-hans/1953515/)
 
-原文链接
+音频处理/发稿：Daxia
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

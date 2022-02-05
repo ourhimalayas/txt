@@ -2,36 +2,21 @@
 ---
 
 
-## 有声|新中国联邦春晚 VS 中共春晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961455/)
+## 多国奥运选手将抵制冬奥会开幕式
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961515/)
 
-配音：香草山健身部 – 玫瑰园
+加拿大温哥华杨帆农场枫叶快讯
 
+采编： Spirit            编辑撰稿：硫酸羟氯喹64
+![2022 Beijing Olympics](https://am14.mediaite.com/med/cnt/uploads/2022/01/GettyImages-1237970843-scaled.jpg)
+据《华盛顿邮报》2月1日报道，多国运动员已声明因中共政权的种族灭绝和反人类罪，而抵制即将在北京举行的冬奥会开幕式。 报道称，近期以来，美国相关机构一直敦促西方国家那些准备参赛的运动员就中共当局的大规模暴行端正立场。尽管大多数运动员都受到了来自国际奥林匹克委员会及其赞助商的压力，但已有为数众多的运动员确认将不参加开幕式，以此作为他们个人的抗议形式。
 
+对此，有评论指出，新中国联邦最近发起的甜蜜蜜灭共运动，通过促成美国外交授权撤其驻北京大使馆，以及目前响彻中国的三首灭共歌曲，将会成功把本次冬奥会变成冬眠会。爆料革命给全世界带来的有关病毒和疫苗的真相，将联合所有正义力量彻底粉碎习近平的奥运痴梦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-21.jpg)
+原文链接
 
+发稿：青青
 
-
-郭文贵先生在2月2日首次文贵大直播中披露，新中国联邦春晚在墙内累计观看次数已超过2.5亿次。 郭先生所唱的《甜蜜蜜》、《塞北的雪》和《一帘幽梦》更是影响巨大，响彻南北。
-
-爆料革命用音乐唤醒墙内百姓，共产党灭亡已成定局。美国外交撤离、日本国会通过中共人权状况决议、中共国足球输给了越南、亲近中共的国家都处于动乱中，而新中国联邦的HPAY却成功登路ios。
-
-郭先生回忆道，许多参加过春晚的女明星在春晚结束后不能回家，而是直接被中共高官的专车接走。就像香港某个年轻的女明星，在参加完春晚的假唱之后，被某领导从央视西门接走，然后被几个人强暴蹂躏；中共的高层甚至还变态到玩弄男歌手。郝海东战友所说的宋祖英扒胸罩也传遍整个京圈。
-
-文字版原文：[新中国联邦春晚 VS 中共春晚](https://gnews.org/zh-hans/1956015/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

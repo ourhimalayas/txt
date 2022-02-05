@@ -2,31 +2,11 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月5日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1961310/)
+## 2月4日文贵大直播摘要（图片）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1961332/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-4.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.02.05早 《NFSC新闻》](https://gtv.org/video/id=61fe7b7d96ba5d73e0c35e06)
-[2022.02.05早 G|TV《新闻访谈》](https://gtv.org/video/id=61fe83d196ba5d73e0c362ed)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E308323E-B8A6-4162-A9B1-1945087B2E1D.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/E39BB81C-1DF9-4D25-82E3-BFC1FA8D2A48.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/76AA3422-46EE-4243-A938-5F5998E5F753.png)冬眠会，普京保镖几日感染？
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
