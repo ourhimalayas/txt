@@ -15,116 +15,116 @@
 
 ---
 
-### [中国经济和世界经济的未来,以及灭共的天机（七）](/content/gnews/1/README.md)
+### [2022年2月4日文贵大直播概要](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [2/4/2022 文贵直播：普京因其团队感染病毒在酒店暴怒，习近平的脸丢大了，只有文贵懂并敢说出盘古设计中的秘密](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [中国经济和世界经济的未来,以及灭共的天机（六）](/content/gnews/3/README.md)
+### [2.04大直播后记：参加冬奥会儿童演员百人染病](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [中国经济和世界经济的未来,以及灭共的天机（五）](/content/gnews/4/README.md)
+### [2.04大直播后记：中共在盘古直播冬奥会](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆┃今年央企改革继续国进民退：制造新寡头、覆盖全行业](/content/gnews/5/README.md)
+### [2.4大直播后记：盘古狙击手的头死亡](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [美国及世界疫情简报 （02-05-2022）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [2.4大直播后记：女编导为拍盘古看GTV](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [中日财经爆┃要暴雷？世茂集团出售伦敦核心地段大楼](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平在冬奥会外交推动中会见更多国家元首](/content/gnews/6/README.md)
- ` Shuizhuyu`
+### [中国经济和世界经济的未来,以及灭共的天机（七）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
 
-### [2/4/2022 文贵直播：中共拿中国人的血汗钱请一帮要饭的领导人参加只有100分钟的冬奥会开幕式，而早在清朝就尊敬中国人的美国却授权其使馆外交撤离，可悲啊！](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [美国必须要做正确的事请去遏制侵略行为](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [左媒污蔑加拿大卡车司机是白人至上主义者](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [基恩将军对中俄日益紧密的关系提出警告](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [母爱](/content/gnews/11/README.md)
- ` 纽约香草山MOS03`
-
-### [2/4/2022 文贵直播：冬奥会开幕式当天狙击手的暴毙和普京团队集体中招绝非偶然，这是灭共的天意](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [富裕的深圳市政府入不敷出大幅削减公务员薪资](/content/gnews/13/README.md)
+### [美议员推出多项打击中共的《美国竞争法案》修正案](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [心有千千结](/content/gnews/14/README.md)
- ` 骄子`
-
-### [中日财经爆┃日本半导体投资火热 东芝将新建功率晶圆厂](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [I have a dream](/content/gnews/16/README.md)
- ` 骄子`
-
-### [DC每日热点0205](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [求佛](/content/gnews/18/README.md)
- ` 纽约香草山MOS03`
-
-### [新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [烟花](/content/gnews/20/README.md)
- ` 纽约香草山MOS03`
-
-### [习近平的冬奥会就是现代版的“皇帝的新衣”](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国经济和世界经济的未来,以及灭共的天机（四）](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [思念](/content/gnews/23/README.md)
- ` 纽约香草山MOS03`
-
-### [蓄意谋杀，奥地利新冠疫苗接种法生效](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [02/05/22 香港快讯 古思尧被控企图或准备作出具煽动意图行为还柙候讯](/content/gnews/25/README.md)
- ` 英喜-粵語組`
-
-### [渡劫](/content/gnews/26/README.md)
- ` 纽约香草山MOS03`
-
-### [习近平久违的露面难道只为宴请众小国政要吗?](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2/4/2022 文贵直播：从当年阻挠文贵建盘古到把盘古龙头变龟头，再到冬奥会开幕式回避拍摄盘古的画面，中共自始至终都无法回避盘古，足见文贵灭共的厉害前无古人](/content/gnews/28/README.md)
+### [2/4/2022 文贵直播：普京因其团队感染病毒在酒店暴怒，习近平的脸丢大了，只有文贵懂并敢说出盘古设计中的秘密](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [习大神精神萎靡 普大帝忧心血月应验](/content/gnews/29/README.md)
- ` 温哥华扬帆农场`
-
-### [中国经济和世界经济的未来,以及灭共的天机（三）](/content/gnews/30/README.md)
+### [中国经济和世界经济的未来,以及灭共的天机（六）](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [2/5/2022国际财经快讯：美国债券基金连续第四周出现资金外流；比特币模仿股市涨势，创两周新高](/content/gnews/31/README.md)
- ` 秘密翻译组金融团队`
+### [中国经济和世界经济的未来,以及灭共的天机（五）](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
 
-### [香港今日新增破纪录 将实施疫苗通行证](/content/gnews/32/README.md)
+### [中日财经爆┃今年央企改革继续国进民退：制造新寡头、覆盖全行业](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年2月5日，全球中共病毒疫情情况汇总](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [习近平在冬奥会外交推动中会见更多国家元首](/content/gnews/14/README.md)
+ ` Shuizhuyu`
 
-### [世界各国科学家指责中共妨碍新冠病毒起源调查](/content/gnews/34/README.md)
- ` 日本东京方舟农场`
+### [2/4/2022 文贵直播：中共拿中国人的血汗钱请一帮要饭的领导人参加只有100分钟的冬奥会开幕式，而早在清朝就尊敬中国人的美国却授权其使馆外交撤离，可悲啊！](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
 
-### [郭先生：北京冬奥会沦为“冬眠会”已成定局](/content/gnews/35/README.md)
- ` 日本东京方舟农场`
+### [美国必须要做正确的事请去遏制侵略行为](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [研究发现疫情封锁这一举措无效后遭美欧各大媒体封锁](/content/gnews/36/README.md)
- ` 日本东京方舟农场`
+### [左媒污蔑加拿大卡车司机是白人至上主义者](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [铁锤](/content/gnews/37/README.md)
+### [基恩将军对中俄日益紧密的关系提出警告](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [母爱](/content/gnews/19/README.md)
  ` 纽约香草山MOS03`
+
+### [2/4/2022 文贵直播：冬奥会开幕式当天狙击手的暴毙和普京团队集体中招绝非偶然，这是灭共的天意](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [富裕的深圳市政府入不敷出大幅削减公务员薪资](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [心有千千结](/content/gnews/22/README.md)
+ ` 骄子`
+
+### [中日财经爆┃日本半导体投资火热 东芝将新建功率晶圆厂](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [I have a dream](/content/gnews/24/README.md)
+ ` 骄子`
+
+### [DC每日热点0205](/content/gnews/25/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [求佛](/content/gnews/26/README.md)
+ ` 纽约香草山MOS03`
+
+### [新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [烟花](/content/gnews/28/README.md)
+ ` 纽约香草山MOS03`
+
+### [习近平的冬奥会就是现代版的“皇帝的新衣”](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中国经济和世界经济的未来,以及灭共的天机（四）](/content/gnews/30/README.md)
+ ` 雅典娜GNotes`
+
+### [蓄意谋杀，奥地利新冠疫苗接种法生效](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [02/05/22 香港快讯 古思尧被控企图或准备作出具煽动意图行为还柙候讯](/content/gnews/32/README.md)
+ ` 英喜-粵語組`
+
+### [2/5/2022国际财经快讯：美国债券基金连续第四周出现资金外流；比特币模仿股市涨势，创两周新高](/content/gnews/33/README.md)
+ ` 秘密翻译组金融团队`
+
+### [香港今日新增破纪录 将实施疫苗通行证](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [世界各国科学家指责中共妨碍新冠病毒起源调查](/content/gnews/35/README.md)
+ ` 日本东京方舟农场`
+
+### [郭先生：北京冬奥会沦为“冬眠会”已成定局](/content/gnews/36/README.md)
+ ` 日本东京方舟农场`
+
+### [研究发现疫情封锁这一举措无效后遭美欧各大媒体封锁](/content/gnews/37/README.md)
+ ` 日本东京方舟农场`
 
 ### [日本东京塔：点亮“中国红”民众高举打倒中国共产党的标语进行抗议](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
