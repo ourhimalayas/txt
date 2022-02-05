@@ -2,16 +2,14 @@
 ---
 
 
-## 有声|美参议员希望召集科学家作证 中共病毒源于实验室
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958565/)
+## 有声|GTV新闻访谈简报|2022年2月2日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958575/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒1月31日报道，本周一，美国参议员布莱克本在参加一档媒体节目时表示，她期待召集那些认为中共病毒源自实验室的科学家到国会作证，她认为这将是查清中共病毒真相非常重要的一个环节。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-1.png)
 
-布莱克本说，她期待参议院卫生委员会主席兰德. 保罗，能够召开这样的听证会，把那些被压制发声的科学家请来，让他们自由讲述中共病毒来源于实验室的事实。 同时，必须让福奇交待清楚如何参与和资助病毒功能增强实验，以及他和大医药公司之间的腐败关系。 布莱克本强调，如果想在今年中期大选之前得到中共病毒溯源最终答案，必须解决中共病毒来源的最关键问题。 而掌握科学事实的正义科学家的发声，尤为珍贵。
 
-文字版原文：[美参议员希望召集科学家作证 中共病毒源于实验室](https://gnews.org/zh-hans/1949794/)
+文字版原文：[GTV新闻访谈简报|2022年2月2日早](https://gnews.org/zh-hans/1948385/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

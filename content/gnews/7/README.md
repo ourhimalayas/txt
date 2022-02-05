@@ -2,33 +2,33 @@
 ---
 
 
-## 美众议院通过《美国竞争法》全面抗衡中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1958688/)
+## 有声|瑞典将于2月9日解除中共病毒限制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958785/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-5.jpg)美众议院通过《美国竞争法》全面抗衡中共 网络图片
-据美国之音2月5日报道，美国国会众议院4日以222票支持、210票反对的表决结果通过《2022年美国竞争法》。该法案的目标为加强美国国内供应链，确保美国在制造、创新和经济实力方面保持领先地位，并能胜过任何国家。美国总统拜登在法案正式获得通过后发表声明表示赞扬。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
 
-根据《美国竞争法》内容，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资半导体的生产等；授权450亿美元改善美国的供应链，加强制造业，确保更多的美国制造；推动美国的科学研究和技术创新以及确保美国在全球的竞争力和领导地位。拥有1250万会员的的美国最大的劳工组织劳联-产联表示全力支持这部法案。
+据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
 
-参议院也有类似的投资法案。参议院去年6月《美国创新与竞争法》。参众两院的法案内容都计划提供520亿美元补贴和投资美国半导体制造设施，同时也都将授权在未来五年内为国家科学基金会提供约800亿美元资金。众议院的《美国竞争法》接下来将与参议院的《美国创新与竞争法》展开两院协调，两院版本必须达成最终一致协议，才能正式通过国会，送交白宫由总统签署生效。
+对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
 
-美国参众两院终于达成一致，认定中共才是美国最大的竞争和威胁。中共是全世界的公敌。中共扰乱了全球经济，制造恶意竞争，破坏了全球秩序。在实验室人工合成病毒并释放到全世界，通过疫苗经济给全人类带来了难以想象的人道灾难。中共不灭，世界不得安宁，人人没有平安，随时随地面临死亡威胁。
+目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
 
-新闻参考链接：[https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html](https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html)
+文字版原文：[瑞典将于2月9日解除中共病毒限制](https://gnews.org/zh-hans/1955535/)
 
-* * *
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

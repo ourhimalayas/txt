@@ -2,35 +2,37 @@
 ---
 
 
-## 美参众两院的法案将改变台湾在华盛顿特区的代表处名称
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958539/)
+## 有声|乌兹别克斯坦提议封锁TikTok
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958570/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-71.jpg)
-图片来源：网络截图
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月2日，据《国际文传电讯社》报道，乌兹别克斯坦社会民主党“Adolat（正义）”提议在该国完全封锁社交网络TikTok。
 
-据合众国际社2月4日报道，美参众两院周五提出两党法案《台湾代表机构法》，以改变台湾驻华盛顿特区代表处的正式名称。该法案将把台北经济文化代表机构的名称改为“台湾代表机构”。
+该党在周三张贴在“Adolat”网站上的一份声明中说：“应加强刑事处罚，并应完全封锁互联网上弊大于利的移动应用程序，如TikTok。”
 
-来自佛罗里达州的美国参议员马可·卢比奥（Marco Rubio）和新泽西州的鲍勃·梅内德斯（Bob Menendez）在参议院提出了两党合作的法案。该法案的美国众议院提案人是犹他州的约翰·柯蒂斯（John Curtis）议员和新罕布什尔州的克里斯·帕帕斯（Chris Pappas）议员。
+还指出，尽管该国存在限制，但TikTok用户能够通过VPN应用程序访问该社交网络。
 
-卢比奥在一份新闻稿中说：“台湾是美国不可缺少的伙伴，是印度-太平洋地区民主的典范。”卢比奥说：“我想不出有什么比把他们在华盛顿特区，这个美国民主国家所在地的办事处重新命名，能更好地反映其实际目的，更能承认台湾对全球稳定的贡献。”
+早些时候，民主党“Milliy Tiklanish（民族复兴）”的领导人阿利舍尔·卡德罗夫（Alisher Kadyrov）建议在该国封锁TikTok。
 
-卢比奥在声明中说，美国必须明确表示，尽管中共国为“恐吓和胁迫 ”台湾做出了种种努力，但敌对势力无权要求对民主国家拥有主权。
+2021年7月，乌兹别克斯坦总统沙夫卡特·米尔济约耶夫批评TikTok视频侮辱了军人阿米尔·帖木儿和诗人阿利舍尔·纳沃伊的历史纪念碑。
 
-梅内德斯在周五的新闻稿中说：“在国际局势空前紧张的时候，在北京继续寻求欺负和胁迫台湾的时候，这一重要法案表明美国对台湾人民的关键性支持”。
+同样在2021年，国家信息和电信控制监察局限制Skype、Twitter、TikTok、VKontakte和微信的运行，因为这些互联网资源违反了个人数据法，该法要求所有互联网资源储存乌兹别克斯坦公民在该国的个人数据。
 
-此外，该法案还着重强调 “台湾有权根据《台湾关系法》决定自己的未来，并能够作为国际社会的一员享有更大的尊重和外交空间，”梅嫩德斯说。
+文字版原文：乌[兹别克斯坦提议封锁TikTok](https://gnews.org/zh-hans/1947657/)
 
-帕帕斯在一份新闻声明中说：“在中共国继续欺负和恐吓台湾的时候，这项两党立法适当承认他们事实上的大使馆，表明我们继续支持我们的民主盟友台湾的主权”。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-柯蒂斯也在新闻稿中指出，“早就应该正确承认我们的长期朋友和盟友台湾的事实使馆为台湾代表处”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-中共国长期以来一直声称台湾是中共国的一部分，但中共国沿海的这个岛国几十年来一直有一个独立的民主政府。
-
-中共国战机经常在台湾附近飞行，中共国空军上个月刚刚对台湾防空区进行了最大规模的入侵。
-
-新闻来源：[Senate, House bills would change Taiwan’s D.C. representative office name](https://www.upi.com/Top_News/US/2022/02/04/taiwan-bill-marco-rubio-bob-menendez/8961644000840/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

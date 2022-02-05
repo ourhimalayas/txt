@@ -2,33 +2,35 @@
 ---
 
 
-## 中共病毒确诊数近10万 日本考虑延长疫情管控措施
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1958472/)
+## 美参众两院的法案将改变台湾在华盛顿特区的代表处名称
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958539/)
 
-作者:纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-日本富士新闻网3日报导，因为东京都单日新增中共病毒确诊数，在2日首度出现创纪录的超过2万人，日本政府正在考虑将包括东京在内的13个都县的疫情管控措施延长2周，以遏止不断激增的中共病毒确诊感染病例。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-71.jpg)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/np_file_138978.jpeg)图片源自网络
+据合众国际社2月4日报道，美参众两院周五提出两党法案《台湾代表机构法》，以改变台湾驻华盛顿特区代表处的正式名称。该法案将把台北经济文化代表机构的名称改为“台湾代表机构”。
 
-富士新闻网指出，政府官员可能会在下周就延长预定于2月13日到期的疫情管制措施，做出最后决定。
+来自佛罗里达州的美国参议员马可·卢比奥（Marco Rubio）和新泽西州的鲍勃·梅内德斯（Bob Menendez）在参议院提出了两党合作的法案。该法案的美国众议院提案人是犹他州的约翰·柯蒂斯（John Curtis）议员和新罕布什尔州的克里斯·帕帕斯（Chris Pappas）议员。
 
- 东京今天将对抗中共病毒疫情的警戒提高到最高级别，在此之前一天，东京2日通报出现创纪录的单日新增21,576起确诊病例，并且在具高度传染力的奥米炕变异株扩大传播下，日本全国2日单日新增中共病毒确诊总数也达到创纪录的94,815例。
+卢比奥在一份新闻稿中说：“台湾是美国不可缺少的伙伴，是印度-太平洋地区民主的典范。”卢比奥说：“我想不出有什么比把他们在华盛顿特区，这个美国民主国家所在地的办事处重新命名，能更好地反映其实际目的，更能承认台湾对全球稳定的贡献。”
 
-参考链接：[https://www.japantimes.co.jp/news/2022/02/03/national/tokyo-medical-alert/](https://www.japantimes.co.jp/news/2022/02/03/national/tokyo-medical-alert/)
+卢比奥在声明中说，美国必须明确表示，尽管中共国为“恐吓和胁迫 ”台湾做出了种种努力，但敌对势力无权要求对民主国家拥有主权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+梅内德斯在周五的新闻稿中说：“在国际局势空前紧张的时候，在北京继续寻求欺负和胁迫台湾的时候，这一重要法案表明美国对台湾人民的关键性支持”。
 
-编辑：Irene木木
-校对/发稿：Daxia
+此外，该法案还着重强调 “台湾有权根据《台湾关系法》决定自己的未来，并能够作为国际社会的一员享有更大的尊重和外交空间，”梅嫩德斯说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+帕帕斯在一份新闻声明中说：“在中共国继续欺负和恐吓台湾的时候，这项两党立法适当承认他们事实上的大使馆，表明我们继续支持我们的民主盟友台湾的主权”。
+
+柯蒂斯也在新闻稿中指出，“早就应该正确承认我们的长期朋友和盟友台湾的事实使馆为台湾代表处”。
+
+中共国长期以来一直声称台湾是中共国的一部分，但中共国沿海的这个岛国几十年来一直有一个独立的民主政府。
+
+中共国战机经常在台湾附近飞行，中共国空军上个月刚刚对台湾防空区进行了最大规模的入侵。
+
+新闻来源：[Senate, House bills would change Taiwan’s D.C. representative office name](https://www.upi.com/Top_News/US/2022/02/04/taiwan-bill-marco-rubio-bob-menendez/8961644000840/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
