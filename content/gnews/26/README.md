@@ -2,63 +2,30 @@
 ---
 
 
-## 求佛
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1960502/)
+## 中日财经爆┃日本半导体投资火热 东芝将新建功率晶圆厂
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1960552/)
 
-作者：蓝之灵
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-在芸芸众生中
-我看见你
-在熙熙吵闹中
-我听见你
-像是一盏灯
-指引迷路人
-你万丈的光芒
-灼灼不休
-不休
-随着光前行
-心，在觉醒
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-8.png)
+[图片来源](https://www.techpowerup.com/186547/toshiba-expands-its-semiconductor-facility-at-yokkaichi)
 
-也许
-是我在佛前求了几百年
-才换得今生
-遇到你
-跟随你
-得我心愿
-了我情怀
-那光啊
-我心中永远不灭的灯
+自去年日本政府推出半导体振兴战略以来，半导体及IC企业在日投资建设力度不断加大。据悉，2022年至2024年之间将有包括台积电和索尼的合资企业在内的几家新晶圆厂开建上线。
 
-那灯啊
-永远指引迷途之人
-在佛前
-我请求赐福你身
-佑你安康
-护你完成使命
-拯救苦难芸芸
+东芝2月4日发布公告称，将在日本石川县建造新建300毫米晶圆制造厂，用于制造功率半导体器件。据《日经新闻》此前报道，东芝将投资约1000亿日元（8.7亿美元）来建设该工厂。
 
-我求
-我再求
-下一次人生
-与你相逢
-哪怕仅是擦肩而过
-亦是憧憬
-回味余生
+根据声明，新工厂的建设将分两个阶段进行。第一阶段计划2024财年内投产，当一期工程满负荷运转时，东芝的功率半导体生产能力将是2021财年的2.5倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+东芝在其声明中称，车辆电气化和工业设备自动化是未来的两大趋势，将推动功率半导体的需求增长。东芝还称，其工厂将在未来100%依赖可再生能源。
 
-**校对/发稿：童谣**
+信息来源：
 
-**更多资讯，更多关注**
+[东芝新工厂投产后功率半导体产能或将翻倍| 界面新闻](https://www.jiemian.com/article/7073339.html)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
