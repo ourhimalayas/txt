@@ -2,28 +2,27 @@
 ---
 
 
-## 共产党一定被灭，喜联储书写新的规则（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959445/)
+## 来自佩洛西关于冬奥会的警告
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1959527/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/502.jpg)图片来自网络
+美国众议院议长南希佩洛西于周四向参加北京奥运会的美国运动员发出警告：她指出中国共产党 “冷酷无情”，而这可能会损害参赛者的声誉。
 
-我再同时和世界上数字货币的大佬创始人通话，然后谈论共产党，拯救一下人类。你说这人格得多分裂啊，你还能受得了啊。当年八、九岁踩着脚滑子啊，这么照了两张相 ，然后旁边的八弟已经没了。
+佩洛西在国会的中国问题执行委员会的听证会上对参加北京冬奥会的运动员们说：你们是去参加比赛的，在参赛期间要做个听话的老实人，不要像在美国一样畅所欲言、口无遮拦，以防自己的一些出格的举动招致中共政府的无情打压而使得自己陷于危险之中。
 
-这位大师跟我说他为啥要我点赞呢？他们所有的数据我都知道，香港的和大陆的房地产，还有香港的股票市场，他们所有的数据我都知道。他从过去的7%到11%的造假，现在已经达到3%，这是说明他们真完了。最后所有数字货币，包括比特币成零的时候，只有喜联储成为世界上最牛的，包括你的GETTR Pay。不是这个数字货币牛，是你重新书写了数字货币的游戏规则。
+显然，这种铁幕统治的气息已经被世界熟知。比如在 2019 年，由中共政府幕后操纵的针对香港民众的反送中游行的残酷的镇压行动，导致了数万人被杀害以及数十万人的逃离出境。
 
-兄弟姐妹们，共产党的房地产将成就人类历史上第二次最大的金融形式的存在，他死之前给人类留下了最后一点贡献，把他的骨灰变成了人类文明的肥料，那就是成就了数字货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/共产党一定被灭，喜联储书写新的规则.003.jpeg)
-2022年1月7日文贵大直播
+再者，由一位著名的英国大律师设立的一个独立的非官方机构，负责评估中国涉嫌侵犯维吾尔人权利的证据。去年 12 月得出结论：在中国西部的新疆，估计有 100 万人或更多人——其中大多数是维吾尔人——被关押在中共称作再教育营中的地方，中国政府犯下了种族灭绝罪。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+当然，中共一贯否认在新疆地区存在任何侵犯人权行为，并诡辩其已采取行动打击极端主义，确保该地区人民的安全。
 
+除了佩洛西的警告，联邦调查局局长克里斯托弗·雷同样表示，来自中国共产党的威胁比以往任何时候都更加无耻、以及更具破坏性； 并且没有任何其他国家比中国对美国的思想、创新，和经济安全构成更广泛的威胁；中共在美国的大量行业窃取了大量的信息，并对这些行业造成了严重且破坏性的损害。
+
+新闻来源：[https://www.foxnews.com/politics/pelosi-warns-olympic-athletes-not-to-risk-incurring-the-anger-of-ruthless-chinese-government](https://www.foxnews.com/politics/pelosi-warns-olympic-athletes-not-to-risk-incurring-the-anger-of-ruthless-chinese-government)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
