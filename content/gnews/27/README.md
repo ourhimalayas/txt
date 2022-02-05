@@ -2,22 +2,36 @@
 ---
 
 
-## 北京奥运会场上和央视对台湾代表团称呼不一
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958096/)
+## 印度宣布抵制中共北京冬奥会
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958277/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-18.png)（图片源自本文链接）
-2月4日时事通信社消息：4日晚举行的北京冬奥会开幕式的直播中，中共国营中央电视台（CCTV）的播音员将台湾代表团称为“中国台北”。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月3日，据媒体消息显示，印度外交部当天宣布，印度驻北京高级外交官将不参加此次北京冬奥会的开幕式和闭幕式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-04-下午10.20.57.png)
+据悉，在中共北京冬奥会宣布由祁发宝担任冬奥会火炬手后，引发了印度政府的强烈不满。
 
-会场上的宣布和以前一样，是“中华台北”，而面向中共国老百姓时，还是基于“一个中国”原则，强调台湾也是中共国的一部分。
+资料显示，2021年夏天发生的中印冲突是自1962年以来最严重的一次。彼时，双方本可以在友好谈判的前提下解决争议，然而，中共政府却派出战斗编队促成了当时的冲突事件。该冲突的为首者正是祁发宝。
 
-当台湾代表团入场时，中央电视台切换到习近平在贵宾席上观看的镜头。当香港代表团紧随其后时，中央电视台也播放了习近平相关画面，暗示他希望在“一国两制”下统一台湾。
+数据显示，双方在冲突中均伤亡惨重：印度方面一共损失了20名士兵，而中共方则不愿披露真实死亡人数。
 
-信息来源：[国営テレビ「中国台北」呼称　台湾入場時に習氏の映像　北京五輪〔五輪〕（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4fa6796df99599a817d4b6cfb011adc5ab4238d3)
+印度政府表示，中共委任祁发宝作为奥运火炬手是中共将冬奥会政治化的表现。为此，印度将坚决抵制此次冬奥会。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：[Indian diplomats to boycott Beijing Winter Olympics after China makes Galwan PLA soldier torchbearer](https://www.indiatoday.in/india/story/indian-diplomats-in-china-to-boycott-beijing-winter-olympics-after-galwan-hurt-pla-officer-made-torch-bearer-1908335-2022-02-03)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：文特
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

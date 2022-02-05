@@ -2,32 +2,19 @@
 ---
 
 
-## 2022年2月4日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1958123/)
+## 普金住的华尔道夫酒店吴小晖的酒店
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958312/)
 
-作者：香草山翻译部
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+*发布：陶子*
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-3.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/61fdd3eb96ba5d73e0c3112b](https://gtv.org/broadcast/watch/61fdd3eb96ba5d73e0c3112b)
-访谈：[https://gtv.org/broadcast/watch/61fddb2f96ba5d73e0c3169d](https://gtv.org/broadcast/watch/61fddb2f96ba5d73e0c3169d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

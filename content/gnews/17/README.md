@@ -2,8 +2,8 @@
 ---
 
 
-## 因为放盘古片段3人被抓
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958167/)
+## 出大事是天意
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958353/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

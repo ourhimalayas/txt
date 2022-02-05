@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 4:21 AM (UTC)`
+
+2/4/2022 Miles Guo: The CCP attempted to stop me from constructing Pangu Plaza, turned its dragon-head-shaped tower into a cockhead-shaped one, and avoided filming the footage of Pangu Plaza during the opening ceremony of the Winter Olympics. The CCP has never been able to hide from Pangu, proving that my capability to take down the CCP is unprecedented.<br/><br/>2/4/2022 文贵直播：从当年阻挠文贵建盘古到把盘古龙头变龟头，再到冬奥会开幕式回避拍摄盘古的画面，中共自始至终都无法回避盘古，足见文贵灭共的厉害前无古人！<br/>
+![img](https://media.gettr.com/group39/getter/2022/02/05/04/92344f01-c8f8-4f11-2c03-4f7249158a68/out.jpg)
+
+---
+
 `@miles 2/5/2022 1:17 AM (UTC)`
 
 2/4/2022 Miles Guo: The fellow fighter found a smart way to be released after being arrested due to her airing the footage of the dragon-head-shaped tower of Pangu Plaza on CCTV. The CCP’s opening ceremony of the Winter Olympics can’t hide from the Pangu Plaza, and the impact of the Whistleblowers’ Movement is everywhere. The CCP has dispatched special police and spies to the scene, indicating how fearful it is!<br/><br/>2/4/2022 文贵直播：在CCTV播放盘古龙头画面的国内战友被抓后机智脱险；中共冬眠会开幕式回避不了盘古，爆料革命的影子无处不在；中共派特警、特工到现场，足见其有多恐惧！<br/>
@@ -149,13 +156,6 @@ EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of th
 
 2/2/2022 Miles Guo: The CCP is hosting a suicidal and self-inflicted Winter Olympics! Why would the CCP troops keeping order in the Olympic venues be equipped with stun guns and hypnosis guns? The CCP will collect DNA, sperm, and eggs from the participating athletes, and it will announce to the world that this is an unprecedentedly perfect Winter Olympics <br/><br/>2/2/2022 文贵直播：中共举办的是一场自杀、自残的冬奥会！为何要给维持奥运场馆秩序的共军配备电子枪、催眠枪？中共将采集与会运动员的DNA、精子和卵子；中共将向世界宣布这是场前所未有的完美冬奥会<br/>
 ![img](https://media.gettr.com/group48/getter/2022/02/03/00/f39a6688-0771-bb7b-aa21-0dd73ccda380/out.jpg)
-
----
-
-`@miles 2/3/2022 12:52 AM (UTC)`
-
-2/2/2022 Miles Guo: The CCP’s chose Zhangjiakou as the venue of the Winter Olympics to make Beijing the city that can host two Olympics and to develop real estate there, not knowing that Zhangjiakou is a terrible place according to Feng Shui (Chinese geomancy). Upon hearing that the CCP picked Zhangjiakou, I knew that they would not successfully host the Winter Olympics. All the decision makers are already finished as well.<br/><br/>2/2/2022 文贵直播：中共选张家口搞冬奥会是要让北京办两场奥运会并在那儿开发房地产，殊不知张家口风水不好；文贵一看中共选了张家口就知道他们搞不成冬奥会，那些决策者都已经完蛋了！
-![img](https://media.gettr.com/group8/getter/2022/02/03/00/de81fa51-975a-ec2f-fad2-6217944ba6ec/out.jpg)
 
 ---
 

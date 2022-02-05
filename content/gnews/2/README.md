@@ -2,19 +2,22 @@
 ---
 
 
-## 普金周边死人非同寻常 盘古龙尾死人非同寻常
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958326/)
+## 拜登政府延长针对中共国太阳能电池关税，但却有相关豁免
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958464/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 撰稿：彩虹       
 
-*发布：陶子*
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-398.png)图片来源：华尔街日报
+2月4日，《国会山报》报道，周五，白宫证实，拜登总统将延长川普时代的太阳能电池关税，但却包含了一些豁免。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+根据白宫的公告，面临涵盖电池和太阳能电池板的201条款（Section 201）关税周日即将到期，拜登政府决定将其再延长四年。然而，延期将豁免双面太阳能电池板（bifacial solar panel），即通常用于大型公共设施的双面电池板（double-sided panel），同时，还将把可以免税进口的太阳能电池的容量从2.5千兆瓦增加到5千兆瓦。
+
+报道指，两周前，民主党参议员杰姬.罗森（Jacky Rosen）率领八位参议员，要求拜登不要延长该关税。在信中，这些议员们要求拜登政府如果延长此关税的话，“至少”要纳入双面太阳能电池板的豁免。
+
+**新闻来源**
+
+[Biden extends solar panel tariffs with modifications](https://thehill.com/policy/energy-environment/592829-biden-extends-solar-panel-tariffs-with-modifications?rl=1)
 
  
 

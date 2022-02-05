@@ -2,10 +2,19 @@
 ---
 
 
-## 2/4/2022 文贵直播：很不幸的是，普京下榻的华尔道夫酒店已有3人死亡，普京团队16人染毒
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1958275/)
+## 第一次建交美国带给中国什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1958406/)
 
-秘密翻译组-北美组
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,38 @@
 ---
 
 
-## 北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958088/)
+## 新中国联邦引领世界回归正道
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958276/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-69.jpg)[图片来源](https://www.voachinese.com/a/four-Taiwanese-athletes-are-heading-to-compete-in-Beijing-Winter-Olympics-20220124/6410187.html)
-北京冬奥会开幕式2月4日晚在北京国家体育场（俗称“鸟巢”）举行，台湾队继日本后第11名入场。
+作者：纽约香草山农场 – 恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月2日，在GTV《新闻访谈》节目中，主持人与嘉宾一起分享了“G系列中国人再入世”的几大要点，而这几点也正是新中国联邦人引领世界回归正道的必要因素。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-04-下午10.20.45.png)
+嘉宾提到，首先，《新中国联邦宣言》的公布是新中国联邦政治入世的举动。宣言所阐述的关于新中国联邦建国、治国的理念已得到了许多国家的认同。
 
-在中共压力的背景下，台湾在参加包括奥运会在内的许多国际比赛时，被迫使用官方名称“中华台北”而不是官方国名中华民国。
+其次，喜币上市推动了新中国联邦经济入世。喜联储中喜美元、喜币和喜支付的相继面世开起了世界金融的新纪元，更让全世界人民的金钱不再被剥削，从而真正实现个人金钱的自由使用权，进而告别那些“用钱难”的可悲历史。
 
-当播放“中华台北”的公告时，包括担任旗手的速滑女孩黄玉婷和高山滑雪运动员何冰瑞等共有三个人，进入会场大厅。
+再者，GTV、GNews和盖特应用的上线表明了新中国联邦的文化入世。这些真相平台必将吸引全球正义之士发表正义之声、揭露是非真相、弘扬宇宙真理，最终造福全人类。
 
-关于本届赛事的开闭幕式，台湾最初宣布因新冠病毒疫情缺席，但在开幕前四天的1月31日，“应国际奥委会频繁请求”宣布参加。
+最后，Gfashion和Gmall的开发象征着新中国联邦的贸易入世。新中国联邦人要将真时尚、高科技和无毒害的产品与全球分享，让人们活在自信、健康、平安、幸福的生活中。
 
-另一方面，人们担心仪式会被称为“中国台北”，但现场公告牌却是“中华台北”，就像 2008 年北京夏季奥运会一样。此外，虽然中国官方的中央电视台将其播放为“中国台北”，但NHK在去年夏天东京奥运会后将其介绍为“台湾”，这使许多台湾人感到高兴。
+嘉宾们指出，真、善、美就是新中国联邦人与全球人民共同发展的重要目标。
 
-台湾队一共有15人。共有四名运动员将参加速度滑冰、雪橇和高山滑雪三项比赛。
+参考链接：[https://gettr.com/post/ps3onqca26](https://gettr.com/post/ps3onqca26)
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-[台湾選手団、日本の次に入場 NHKは「台湾」と紹介 北京五輪](https://news.yahoo.co.jp/articles/dd556d58ec814064c20cab24f3d5911819d68740)
+总编：Jack Li文阳
+编辑：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
