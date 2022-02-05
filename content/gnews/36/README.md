@@ -2,25 +2,40 @@
 ---
 
 
-## 卢比奥：拒绝观看实施种族灭绝的政权主办的任何奥运会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1958597/)
+## 藏人在奥林匹克总部抗议北京冬奥会
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1958635/)
 
-#### 撰稿：彩虹       
+撰稿：纽约香草山教育部 -Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+2月4日，大约500名藏人在国际奥委会总部外游行，抗议北京主办2022冬奥会。来自欧洲各地的藏人示威者从洛桑的国际奥委会大楼出发，前往瑞士的奥林匹克博物馆。同时，包括洛杉矶和旧金山在内的其他世界城市也有示威活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-396.png)
+洛桑的抗议者，许多人举着西藏国旗和写有“抵制北京冬奥会”“停止在西藏侵犯人权”和“耻辱运动会”的标语。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16440355401.png)图片来源：网络截图
-2月4日，来自美国弗罗里达州的参议员马可·卢比奥（Marco Rubio）在推特（Twitter）上发布了反对北京冬奥会的评论，《新闻极限》对此做了报道。
+示威者在经过奥运五环时高呼“没有权利，就没有奥运会”，“北京奥运会：种族灭绝运动会”，“不要让北京 2022 变成柏林 1936”。
 
-卢比奥在推特上写道“我希望不会发生（不好）事件，并祝福所有的美国人（运动员）在2022北京冬奥会上表现的最优秀。但是，我不会观看、关注或庆祝任何对新冠病毒（COVID）撒谎的、极权的、正在实施种族灭绝的共产主义政权举办的任何奥运会。”
+游行队伍中，一个标语牌展示了一名滑雪者站在一辆装有奥运五环轮子的坦克前，再现了1989年北京天安门大屠杀期间孤独的抗议者一人阻挡一列坦克的著名场景。
 
-文章说，2022年10月份，卢比奥与新泽西州众议员克里斯·史密斯（Chris Smith）一起致信国际奥委会（IOC），鉴于有关中共国政府进行种族灭绝的报道，呼吁该组织推迟在北京举行奥运会。
+据悉，此次冬季奥运会将在“鸟巢”体育场正式开幕，习近平一心想要营造的太平盛世的气氛被中共国人权问题、中共病毒大流行以及参加冬奥会运动员的安全问题蒙上了阴影。
 
-他们在信中写道：“反对种族灭绝立场是一个道德决定，而不是一个政治决定。当涉及到道德决定责任时，国际奥委会不能置身世外，道德中立是一个矛盾的说法。现在要求你们做的是，在中（共）国当局犯下种族灭绝最的情况下，拒绝让中（共）国当局享有在其首都举办奥运会的荣誉。”
+链接：[Tibetans protest ‘Games of shame’ at Olympic HQ](https://sports.yahoo.com/tibetans-protest-games-shame-olympic-164903900.html)
 
-**新闻来源**
+[Tibetans march on IOC headquarters to protest Beijing Games](https://www.reuters.com/lifestyle/sports/tibetans-march-swiss-based-ioc-protest-beijing-games-2022-02-03/)
 
-[Sen. Rubio: ‘I Won’t Watch, Follow, or Celebrate’ the Olympics](https://www.newsmax.com/newsfront/rubio-olympics-beijing-genocide/2022/02/04/id/1055561/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-3.jpeg)
 
+总编：童谣
+
+编辑：文特
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
