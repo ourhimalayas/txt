@@ -2,37 +2,51 @@
 ---
 
 
-## 美国国立卫生研究院高级官员亚当·霍特为中共工作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1956601/)
+## 英国政府报告称，接种中共病毒疫苗后儿童死亡的可能性增加 52 倍
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1957541/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体2月2日披露，美国国立卫生研究院临床测序证据生成研究分部联合主席亚当·霍特，在中共政府外国势力的美国中部美中协会担任教育委员会副主席。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-4.jpg)
-美国中部美中协会教育委员会的宗旨是：“汇集基础教育和高等教育的资源，让研究、专业知识和新工作的人致力于美中合作”。该协会与中共政府、领事馆及中共统一战线组织中美交流基金会合作密切。
+编译：sherryok (水云间)
 
-根据霍特在领英个人资料中的披露，他自2019年以来一直担任NIH某分部联合主席，与福奇先生共同工作。
+据印度大博弈网站2月3日报道，英国国家统计局数据显示，接种中共病毒疫苗后儿童死亡的可能性是其 52 倍。在两个较低年龄组中接种两剂中共病毒疫苗的人的死亡率甚至更高。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Children52TimesMoreLikelyToDieFollowingCOVIDVaccineSaysBritishGovtReport.jpg)
 
-- [REVEALED: Top Fauci-Linked U.S. Govt Advisor Serves On Chinese Communist Influence Committee.](https://thenationalpulse.com/2022/02/02/nih-advisor-linked-to-ccp-influence-group/)
-- [https://usheartlandchina.org/zh/](https://usheartlandchina.org/zh/)
-- [赵振格总代表出席美国中国总商会华盛顿分会中秋招待会](https://www.ccpit.org/usa/a/20190913/20190913t2xp.html)
+英国国家统计局 (ONS)公布的统计数据显示，接种 中共病毒疫苗的儿童死亡率比未接种疫苗的儿童高 54 倍。
+英国国家统计局于 12 月发布了英国 5 岁年龄段人群死亡率的年龄标准化统计数据，按中共病毒疫苗剂量划分“疫苗接种”状态，数据涵盖2021年1月1日至2021年10月31日期间。
+ONS 计算了“每 10 万人每年涉及中共病毒的死亡人数，按年龄组和疫苗接种状态划分的月度年龄标准化死亡率”，但数据只统计18岁及以上的人，与此同时年仅 12 岁的青少年，可以在家长同意下接受注射；少数情况下年仅 5 岁的年幼孩子都接受了较少计量的注射。
+正如曝光网站（The Exposé）所报道的，第二张图表总结了“按疫苗接种状态划分的年死亡率”，涵盖了5 岁到10 岁及以上及年龄组。可以用提供的数据计算每 100,000 人每年的死亡率。
+每 100,000 人/年的划分优于简单的按 100,000 人口计算的方法，更好地描述了随时间推移的死亡率，因为单个“疫苗接种”组中的个体——例如未接种疫苗、单接种疫苗和双接种疫苗者——会迅速转变到下一个组别。
+ONS 报告的第9表格显示了整个 10 个月份时间范围内，“按疫苗接种状态和 5 岁年龄组划分的年死亡率”。根据数据，在同一时期，10-14 岁年龄组未打针的人数为 2,094,711 人年，而 15-19 岁年龄组的未打针人数为 1,587,072 人年。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/british-children-die-covid-vaccine-1.png)
+表格 9，ONS 报告
 
+可以使用上表进行 100,000 人年的估计，年轻的人群为每 100,000 人年的 20.9 人，而年长的人群为 15.9 人。然后通过将每个类别内的死亡人数除以 100,000 人年的估计值来计算每 100,000 人年的死亡率。
+因此，10-14 岁范围内的每 10 万人年未注射疫苗死亡率为 4.6，而 15-19 岁范围内的每 10 万人年未注射疫苗死亡率为 10.1。
+使用相同的数据集和计算，获得一剂疫苗的 10-14 岁儿童的死亡率为每 100,000 人年 45.1 人，而接受一剂疫苗的 15-19 岁儿童的死亡率为每 100,000 人年 18.3 人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/british-children-die-covid-vaccine-2.png)
 
-总编: Irene木木
-编辑：文徬
-校正/发稿：海阔天空1
+表 9，ONS 报告
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/british-children-die-covid-vaccine-3.png)
+
+表格 9，ONS 报告
+
+在两个较低年龄组中接种两剂中共病毒疫苗人的死亡率甚至更高，在 15-19 岁人群中每 100,000 人年死亡 32.9 人；在 14-19 岁人群中，每 100,000 人年死亡人数高达令人震惊238.4 人。
+统计数据表明，与未接受疫苗的青少年相比，接受单剂和双剂疫苗注射的青少年的死亡人数显着上升。如年龄15 至 19 岁的青少年在接受第一针后，他们死亡的可能性几乎翻了一番；如果他们继续接受第二针，则死亡的可能性会增加三倍以上。
+而10 至 14 岁的儿童在第一次疫苗注射后死亡的可能性几乎是未接种疫苗者的十倍；第二次注射后，他们的死亡率增加到 51.8 倍。
+一般来说，在去年 1 月至 10 月期间，接种过至少一剂中共病毒疫苗的 10 至 19 岁儿童的死亡风险增加了 3.7 倍。
+此外，根据英国国家统计局在 2015 年至 2019 年期间的“按性别和年龄组划分的五年平均每周死亡人数”数据，2021 年记录在案的每周死亡人数中，10-14 岁儿童死亡人数比平均水平增加了 44%。
+在 9 月 3 日发表的声明中，英国政府免疫计划外部顾问 JCVI发现，“现有证据表明，在 12 至 15 岁的人群中，接中共病毒疫苗给个人健康带来的益处很小。” 他接着说，疫苗所提供的任何优势都只是“略大于潜在的已知危害”，并且“潜在危害的大小存在相当大的不确定性”。
+考虑到中共疫苗接种导致的相关危害尚不明确，JCVI 认为疫苗优势“太小，目前无法支持对其他健康的 12 至 15 岁儿童进行普遍疫苗接种计划的建议”。
+此外，从未有研究证据表明接种中共病毒疫苗，可以阻止疾病或传播。他们甚至不能保证减少住院风险，仅仅是通过减少严重的中共病毒症状来衡量其有效性。但是，似乎有明显证据表明，“接种疫苗”的人与未接种疫苗的人一样容易携带和传播病毒。
+许多天主教徒和其他基督徒反对现有的中共病毒疫苗，因为它们是利用从流产婴儿身上获得的细胞系制造或测试的。
+
+[新闻链接](https://greatgameindia.com/children-die-covid-vaccine/)
+
+审核校对：Barry Jack
+上传排版：V在途中
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

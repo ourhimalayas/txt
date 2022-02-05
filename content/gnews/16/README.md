@@ -2,26 +2,18 @@
 ---
 
 
-## 北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958088/)
+## 中俄首脑冬奥会议 意在联合应对美欧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1958120/)
 
 撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-69.jpg)[图片来源](https://www.voachinese.com/a/four-Taiwanese-athletes-are-heading-to-compete-in-Beijing-Winter-Olympics-20220124/6410187.html)
-北京冬奥会开幕式2月4日晚在北京国家体育场（俗称“鸟巢”）举行，台湾队继日本后第11名入场。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-1.jpg)[图片来源](https://toofab.com/2022/02/04/vladimir-putin-falls-asleep-during-ukraine-procession-at-beijing-winter-olympics-opening-ceremony/)
+据路透华盛顿2月4日消息，美国负责东亚和太平洋事务的助理国务卿4日就中俄北京峰会表示，“在乌克兰问题上，本次应该是中国督促俄罗斯缓和外交紧张的机会。”
 
-在中共压力的背景下，台湾在参加包括奥运会在内的许多国际比赛时，被迫使用官方名称“中华台北”而不是官方国名中华民国。
-
-当播放“中华台北”的公告时，包括担任旗手的速滑女孩黄玉婷和高山滑雪运动员何冰瑞等共有三个人，进入会场大厅。
-
-关于本届赛事的开闭幕式，台湾最初宣布因新冠病毒疫情缺席，但在开幕前四天的1月31日，“应国际奥委会频繁请求”宣布参加。
-
-另一方面，人们担心仪式会被称为“中国台北”，但现场公告牌却是“中华台北”，就像 2008 年北京夏季奥运会一样。此外，虽然中国官方的中央电视台将其播放为“中国台北”，但NHK在去年夏天东京奥运会后将其介绍为“台湾”，这使许多台湾人感到高兴。
-
-台湾队一共有15人。共有四名运动员将参加速度滑冰、雪橇和高山滑雪三项比赛。
+俄罗斯总统普京4日在北京冬奥会开幕式上访华，并在北京会见了习近平主席。 明确了新的统一战略，例如反对北大西洋公约组织（NATO）的扩大和中国对台湾的立场。 乌克兰局势的冲突正在加深，似乎目的是为了遏制欧洲和美国。
 
 信息来源：
 
-[台湾選手団、日本の次に入場 NHKは「台湾」と紹介 北京五輪](https://news.yahoo.co.jp/articles/dd556d58ec814064c20cab24f3d5911819d68740)
+[習氏、中ロ首脳会談でウクライナ緊張緩和要請すべきだった＝米高官](https://news.yahoo.co.jp/articles/cac876d9e4103cb2184811a8e68c40f32c09bc52)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
