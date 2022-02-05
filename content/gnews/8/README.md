@@ -2,43 +2,33 @@
 ---
 
 
-## 虫洞3400亿美元的以太坊被盗，成为第二大加密货币盗窃案
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1959115/)
+## 新加坡日增新冠确诊病例首度破万
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1959181/)
 
-编译：七龙珠
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-407-edited.png)Este robo en criptomonedas es el más grande que se ha realizado este año.
-Max Pixel
+整理：Eileen（围剿维尼熊）
+编辑：Sadhu
 
-加密货币平台Wormhole周三在Twitter上警告说，它已经损失了12万WETH，当时的价值约为3.2亿美元。此外，他们已经暂停了网站的交易，同时寻找盗窃背后的原因。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-4.png)图片来源；雅典娜设计组（614）
 
-正如他们在社交网络上解释的那样，该公司怀疑可能存在漏洞，这是一种旨在利用计算机故障的软件。他们后来报告说，确认了这个怀疑猜测。
 
-虫洞的网络安全专家发现，金钱的损失是由于用于交换代币的一个桥梁的漏洞造成的。该公司报告说，攻击者利用了Solana加密货币方面的一个安全漏洞，与Ethereum建立了桥梁。
+据联合新闻网报道，新加坡在春节假期过后确诊人数激增，今天新增13208例确诊病例，新增确诊人数创下新高，也是新加坡自COVID-19疫情爆发以来，单日确诊人数首度破万。
 
-虫洞谈到的桥梁是通过在源区块链和目标区块链上都有的智能合约来工作的。这些智能合约是存储在区块链上的系统，当满足某些条件时就会被触发。因为它们是代码，所以它们可能存在漏洞，正如在虫洞事件中发生的那样。
+据新加坡卫生部晚间公布的最新数据，今天新增13208确诊病例，其中包括2734例透过PCR核酸检测确诊的本土病例、10312例抗原快速检测（ART）呈阳性的本土案例，其余为境外输入。另新增6例死亡案例，累计死亡866例。
 
-根据DeFiYield的分析，该盗窃案是今年最大的盗窃案，也是整个加密货币历史上的第二大盗窃案。在此盗窃案之前的是Poly Network黑客攻击案，让它损失了6.02189亿美元的加密货币；排在第三位的是Vulcan Forged黑客攻击案，价值1400亿美元的虚拟货币被盗。
+随着Omicron变异株蔓延全球多国，此变异株也已取代Delta成为新加坡的主要流行病毒，新加坡目前累计379681人确诊。新加坡人口约545万，目前完全接种率高达人口89%。
 
-该公司希望奖励“罪犯”
+参考链接：https://udn.com/news/story/121707/6077033?from=udn-catebreaknews\_ch2
 
-Certus One是“虫洞”背后的品牌，它打算奖励黑客1000万美元来揭开这个漏洞。此外要求他归还被盗的加密货币。
+*发布：tianzhihuan*
 
-目前还不知道网络犯罪分子是否对“虫洞”产生了怜悯。然而，该平台已向其用户保证，“平台的资金有备份”，并且已经恢复了。
-
-这也不是第一个与数字货币合作的平台要求攻击者归还被盗的东西。另一家加密货币公司是Poly Network，它被偿还了6.1亿美元的虚拟货币。
-
-另一个去中心化的金融平台Quibit Finance也在一周前遭遇了价值8000万美元的盗窃。该公司还试图以与Certus One相同的方式收回损失的资产。
-
-素材来源：【20minutos】[Wormhole pierde 340.000 millones de dólares en Ethereum y se convierte en el segundo robo más grande de criptomonedas](https://www.20minutos.es/tecnologia/ciberseguridad/wormhole-pierde-340-000-millones-de-dolares-en-ethereum-y-se-convierte-en-el-segundo-robo-mas-grande-de-criptomonedas-4951574/?autoref=true)
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
