@@ -2,43 +2,33 @@
 ---
 
 
-## 中共不顾百姓死活掏钱给巴铁全民免费医疗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1961795/)
+## 有声|Hpay上市隔天PayPal大跌22%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961882/)
 
-**【国内新闻短评】**
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月2日，就在Hpay上线隔天，PayPal开盘即跌22%。据悉PayPal此前发布的数据弱于之前的市场预期，他们将原因归咎于通货膨胀。
 
-据环球网2022年01月26日报道，巴基斯坦总理伊姆兰·汗启动一项全民医疗计划，这项计划将耗资4500亿卢比（约合25亿美元），在公立医院和私立医院为人们提供免费医疗。此前，巴基斯坦的医疗保健系统只为富人服务，如今巴基斯坦的富人和穷人都将首次享有免费医疗。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-483-e1644087981756.png)图片来源： 网易
-**短评：**
+PayPal在2021年第4季业绩喜忧参半，每股获利低于预期的1.11美元和不计项目的1.12美元。但该公司营业收入达69.2亿美元，高于Refinitiv预期的68.7亿美元。Paypal公布的业绩不算差，其2月2日开盘的暴跌，显然与业绩并无直接关系。
 
-中共斥巨资换取25国首脑出席冬奥会开幕式，每个国家依据国际地位明码标价，即使连中共的小弟巴铁也价格不菲。巴总理和习皇帝冬奥会会晤期间，将会谈到巴方欠中方15亿美元逾期付款，30亿美元的贷款协议，这还不算已经借走的150亿美元商业贷款，总计195亿美元。
+2月2日美国股市大盘走势，道琼斯工业平均指数、纳斯达克综合指数，S&P500指数，以及罗素指数，都是微涨。PayPal股价暴跌，也与大盘走势无关。
 
-巴总理为了安抚民众，今年1月开启25亿美元的全民免费医疗，巴政府一直都是财政赤字，全靠世界银行贷款，怎么突然有钱全民免费医疗？谁出了这笔钱不言而喻，任何政府不产生一分钱，这是强国百姓的血汗钱。墙内老百姓因看病而倾家荡产的案例比比皆是，没有人关心。他们辛苦的血汗钱却被混账中共撒币给流氓国家，然后巴国可以全民免费医疗。流氓国家的民众待遇都好过强国百姓，粉红和战狼们还有脸叫嚣强国盛世？
+分析人士指出：显然，2月1日Hpay的上线，是这次Paypal暴跌的最大原因，Hpay将成为Paypal的最大竞争对手。Hpay的设计具有先天优势，与喜系列一起将打破人类万年以来设定的金融规则。传统金融行业要想不被淘汰，与喜系列合作才是未来的生存方向。
 
-为了掩饰中共对外大撒币的本质，胡叼盘2月5日特别回应对外援助不应该公开谈论“对外援助能换来什么好处”。这不是明显打习皇帝的脸么？如果对外援助的好处利民利国，中共早就四处宣扬。现在避而不谈，怕是大撒币换的只是中南坑个人的好处或者没有换来任何好处，只是赔本赚吆喝，就如本届冬奥会一样。
+文字版原文：[Hpay上市隔天PayPal大跌22%](https://gnews.org/zh-hans/1958368/)
 
-砖家学者各种理性分析强国为啥不能实行免费医疗，怎么不谈从习皇帝上台，仅2013至2017年，中国对外援助达850亿美元，是之前总额的2.7倍，竟然比美日援助总额还多230亿美元。这样一个四处撒币的强国老百姓生活如蝼蚁，苦不堪言。
+音频处理：Fei797
+发稿：Fei797
 
-巴铁都知道提供免费医疗安抚民众，中共可以不顾百姓死活，满世界大撒币，却不能减免医疗费用，流氓连小弟都不如。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-文章观点仅代表作者个人，与gnews平台无关
-
-链接：[https://world.huanqiu.com/article/46YttSC2ftl](https://world.huanqiu.com/article/46YttSC2ftl)
-
-素材：洛杉矶盘古农场 — 来福福
-
-评论：洛杉矶盘古农场 — Poplar
-
-审核：洛杉矶盘古农场 — 心照
-
-发布：洛杉矶盘古农场 — 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
