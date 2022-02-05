@@ -2,25 +2,20 @@
 ---
 
 
-## 政治较量中的世界经济
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1959648/)
+## 纽约不打新冠疫苗的警察将被解雇
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1959676/)
 
-整理：雅典娜速记组
-编辑：星谕
-![](https://assets.gnews.org/wp-content/uploads/2022/02/政治较量中的世界经济.001.jpeg)
-世界经济回到这儿，大家去想一想，给了我们了两个答案。长线投资都在提升。大家注意到了吗？最近的一些搞长线投资在数字货币领域的。大额的钱正在离场，现在已经是鲨鱼该往回撤了，大家看到鲨鱼了。为什么 Reader（音译）要出来，提供信息共享。他绝对是世界上最早知道所谓的共享财富，就是给西方人打针了啊，股票跌下来就是给你复牌。就跟过年一样是吧，把马云宰了，你就当马云了，把马化腾和马明哲杀了，你都当马明哲，你告诉马化腾。这就是典型的 reactor。
+#### 翻译                          意大利达芬奇农场                            小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-05-alle-12.35.26-1.png)图片来源：安莎社
+据安莎社报道，纽约警察局重申将从2月11日起采取强硬措施，开始解雇还没有提供接种第二剂疫苗证明或是自去年十月停薪休假拒绝接种疫苗的警察。
 
-那你再看到哈塞拜疆的油和气，出那么大事儿，加油加气站。吉尔基斯坦，整个国家的所有的工人几乎都是最穷的人。你不能想象你去哪儿都会发现，为什么中国的石油工人都住到楼房，我们住到村里边儿，但那里的石油工人很牛。骑着马去当油工。这就是回答你的问题。在这一场政治较量之中啊。
+这一措施不包括五千名申请医疗或宗教豁免的警察。 他们被允许每星期接受检测，也不包括那些还在等待豁免批准的人，同时尚未公布2月11日可能被解雇的警察的数目。
 
-2022年1月12日大直播
+原文链接：https://www.ansa.it/sito/notizie/mondo/nordamerica/2022/01/31/covid-poliziotti-ny-non-vaccinati-licenziamenti-da-febbraio\_02caf6f6-c65c-4e88-b08b-08af847c0dc7.html
 
-发布：星谕
+编辑、上传： Xiao     baige
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
 
  
 
