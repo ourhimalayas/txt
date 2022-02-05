@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 8:46 PM (UTC)`
+
+2/5/2022 Miles Guo’s GETTR: Over 300 people at the opening ceremony of the Winter Olympics were sent to quarantine. Should Xi Jinping be quarantined as well? After his team got knocked out by the virus in Beijing, Putin made a harsh remark that the CCP must give Russia half of its territories as a pledge so that RMB can become the second legal tender in Russia. Will that be possible?<br/><br/>2/5/2022 文贵盖特：冬眠会开幕式现场300多人被拉走隔离，习神难道不需要隔离？普京在北京几乎被团灭后放狠话，中共得拿出半壁江山押给俄罗斯才能让人民币成为其第二法币，这个能实现吗？<br/>
+![img](https://media.gettr.com/group38/getter/2022/02/05/20/ba33be16-cecc-4184-9e06-c7a95b172067/out.jpg)
+
+---
+
 `@miles 2/5/2022 7:27 PM (UTC)`
 
 2月5号：跟着共产党．相信共产党．都要走进火葬场，都要有无穷无尽的麻烦往前看，往后看哪个不是这样。https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08<br/><br/><br/>［德国奥运代表团团长施梅尔普芬尼（Dirk Schimmelpfennig）1月５日表示，北京冬奥提供德国奥运金牌选手弗伦泽尔（Eric Frenzel）的隔离环境“不可接受”，要求立即改善。他表示，隔离饭店房间包括清洁、食物品质和WiFi都有问题，未符合运动员和代表团的标准。代表团正与弗伦泽尔保持密切联系，“房间必须大到足以让他锻炼身体，而且必须卫生干净。食物需要定期送来；PCR检测应该在我们需要时进行，每天两次。”他指出，这些是基本要求，将要求北京改进。］
@@ -149,12 +156,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第八集：“垃圾网络变色龙”的欺骗。让我们用真相揭露这部卑鄙的，充满谎言的 #HBO #VICE 制作 ！   #isobelyeung #vice @miles  #graphika  #jackstubbs #foreigninfluenceoperations #CCPandglobalists #faith #hbovice訪談真相 #ASPI #firewall #deception #spamouflagedragon #takedowntheccp
 ![img](https://media.gettr.com/group14/origin/2022/02/03/22/a13a2970-e822-d393-2105-4f774f501574/out.jpg)
-
----
-
-`@miles 2/3/2022 10:49 PM (UTC)`
-
-2月3日，“Hcoin To the Moon ” MV上线第56天位列澳门🇲🇴iTunesMV榜首🥇，累计共43次排名第一🎉🎉🎉<br/><br/>位列台湾🇹🇼iTunes 嘻哈歌曲榜首🥇🎉🎉🎉<br/><br/>《马背英雄》位列香港🇭🇰iTunes 摇滚歌曲榜榜首🥇🎉🎉🎉<br/><br/>《酒灭中共》位列香港🇭🇰iTunes 嘻哈歌曲榜榜首🥇🎉🎉🎉<br/><br/>万分感谢澳门，台湾和香港的兄弟姐妹们! 祝虎年吉祥平安！🧧🧧🧧🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1952609/<br/><br/>Feb 3rd, 2022 MV "Hcoin To the Moon" Hits No.1 🥇on Macau 🇲🇴 iTunesMusic Video Chart on 56 Day of Launch, hit No .1 for 43 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Taiwan 🇹🇼 iTunes Hip-Hop/Rap Song Chart🎉🎉🎉<br/><br/>“The Hero” Hit No.1🥇on Hong Kong iTunes Rock Song Chart 🎉🎉🎉<br/><br/>“Drink Down The CCP” hit No.1 🥇on Hong Kong iTunes Hip-Hop/Rap song chart🎉🎉🎉<br/><br/>Thank you very much to our brothers and sisters in Macau, Taiwan and Hong Kong! Have a safe and lucky year of Tiger!🧧🧧🧧🙏🙏🙏
 
 ---
 
