@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|瑞典将于2月9日解除中共病毒限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1958785/)
+## 美议员促政府监测中共在冬奥推数字人民币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1959028/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间2月3日，据相关媒体报道，瑞典政府当天发布声明表示，该国将于2月9日解除大部分针对中共病毒疫情实施的限制措施。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-6.jpg)
+美国参议院一位重要共和党议员Pat Toomey敦促拜登政府，密切关注中共最近推出的数字货币在北京冬奥会期间的使用情况，预计中共将在冬奥会上向外国游客展示该项目。
 
-据悉，即将解除的封锁限制包括不再要求酒吧和餐馆于晚上11点关闭，且不再限制人流数量；同时，不再需要民众在参与室内活动时提供中共病毒疫苗的接种证明；另外，民众在高峰期乘坐公共交通时将不需要佩戴口罩。据了解，当地面对面的工作将逐步恢复，而大学和高等教育课程也将尽快恢复面对面授课模式。
+据路透社（Reuters）报导，宾夕法尼亚州共和党参议员帕特·图米（Pat Toomey）在周四（2月3日）写给美国财政部长珍妮特·耶伦（Janet Yellen）和国务卿安东尼·布林肯（Antony Blinken）的信中表示，担心中共政府可能会利用奥运这一全球性事件，推动其被称为“数字人民币”（e-CNY）的电子货币在全球获得立足点。
 
-对此，瑞典卫生部长表示，政府会对中共病毒时刻保持警惕，为此，当局建议有中共病毒症状的民众继续维持隔离限制政策直至康复。
+他警告称，中共正努力掌控制定数字货币跨境支付标准的主动权，因为中共央行希望在发展央行数字货币的竞赛中领先于其它国家。
 
-目前，在其他欧盟国家里，丹麦和挪威也已经取消了大部分有关中共病毒的限制政策。
+图米要求财政部和国务院汇报2022年冬季奥林匹克运动会期间[数字人民币](https://www.epochtimes.com/gb/tag/%E6%95%B0%E5%AD%97%E4%BA%BA%E6%B0%91%E5%B8%81.html)的总发行量、外国游客与中国公民使用数字人民币的比率，以及在美国政府考虑发展自己的中央银行数字货币时，数字人民币的推出是否能提供任何经验教训。
 
-文字版原文：[瑞典将于2月9日解除中共病毒限制](https://gnews.org/zh-hans/1955535/)
+信息源：
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+[美议员促政府监测中共在冬奥推数字人民币](https://www.epochtimes.com/gb/22/2/4/n13555999.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

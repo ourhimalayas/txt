@@ -2,74 +2,29 @@
 ---
 
 
-## 期待
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1959675/)
+## “冬眠会”开幕京官方通报新增1例 德国队员新增2例
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1959985/)
 
-作者： 蓝之灵
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-期待
-像羽毛轻刷心田
-心跳节奏快了二三拍
-憧憬又憧憬
-渴望有渴望
-像挂在树枝最高点果子
-看得见
-摘不了
-如同只能
-梦里看见母亲
-她
-衰老又沧桑
+整理/编辑：Little Lamp
 
-期待
-光明早日来到
-因为啊
-七十年的蹂躏
-这片土地满目创伤
-破败不堪
-人们的脸庞
-恐惧惊慌
-当黑暗过去
-期待笑脸
-重回他们脸庞
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-期待黑暗早点结束
-阳光照亮心房
-把童真还给孩子
-年轻人对生活
-拥有希望
-母亲不再悲伤绝望
-植物重新发芽生长
-商人们的吆喝
-在街头巷尾
-悠远悠长
-学校里朗朗读书声
-为理想而响亮
 
-期待
-早日消灭共产党
-游子可以自由回乡
-不再幻想
-只有梦里
-抚摸母亲脸庞
-咫尺天涯
-从此
-扔进
-垃圾箱
+据联合新闻网报道，中国2月4日举行冬奥会开幕式，北京官方通报本土病例新增1例，德国团队则证实有2名选手感染。全球新冠疫情持续蔓延之际，国际科学研究人员呼吁，中国不该阻挠covid-19的起源调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+美国约翰霍普金斯大学网站追踪数据显示，截至台湾时间5日上午7时，全球至少572万1285人感染covid-19病逝，至少3亿9007万7243人确诊。
 
-**校对/发稿：童谣**
+据报导，台湾4日新增covid-19感染71例，本土新增25例，境外输入新增46例。香港4日新增131例，其中59例感染来源不明。4日新增一采阳性195例。卫生官员警报，本土病例稍后可能以几何级数爆发。中国官方报道2月4日新增27例，本土新增9例。
 
-**更多资讯，更多关注**
+*发布：tianzhihuan*
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
