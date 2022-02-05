@@ -2,16 +2,18 @@
 ---
 
 
-## 有声|参赛运动员准备抵制北京冬奥会开闭幕式
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961578/)
+## 有声|冬奥在即 京南一县城突曝疫情封城
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961606/)
 
 配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据2月2日外媒报道，2月4日冬奥会开幕式在北京正式举行时，除了一些国家的政府官员和观众不见踪影外，来自多国的参赛运动员也在准备抵制开幕式和闭幕式，以声援遭受中共人权侵犯的受害者。
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当地时间2月4日上午，河北省廊坊市固安县突因两例确诊病例封城。据网传消息，确诊病例疑为由京返乡人员。
 
-数月以来，一些活动人士一直在与几个西方国家的奥运运动员会面，敦促他们就中共对维吾尔人、藏人、香港人和中共国境内其他群体的大规模迫害发表意见，至少可以拒绝出席开幕式、闭幕式。据悉，至少有两支西方球队的运动员确认他们将不参加开幕式，作为个人抗议的形式。但具体参与抵制的运动员人数尚不清楚。
+目前，该县城全域内所有小区、公共场所、高速路口已全部封闭，除全员核酸外，所有街道空无一人，进京公交线路全部停运。有墙内网友戏称，仅仅一个上午的时间，整个县城就如遭空袭。
 
-文字版原文：[参赛运动员准备抵制北京冬奥会开闭幕式](https://gnews.org/zh-hans/1953515/)
+据了解，固安县直接接壤北京市大兴区，距离北京市中心仅有50公里，距离大兴国际机场仅有8公里，每日都有大量务工人员需往返于北京与固安之间。
+
+文字版原文：[冬奥在即 京南一县城突曝疫情封城](https://gnews.org/zh-hans/1956206/)
 
 音频处理/发稿：Daxia
 
@@ -24,8 +26,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

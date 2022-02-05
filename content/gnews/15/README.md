@@ -2,30 +2,23 @@
 ---
 
 
-## 有声|中共三种武器维稳冬奥会终成泡影
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961609/)
+## 西班牙政府将在下周二取消在户外强制戴口罩
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1961652/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月2日的大直播中，郭文贵先生爆料称，此次北京冬奥会已经交由中共军方全权控制，仅安保人员就有近八成来自军队，他们全天24小时执勤维稳。
+翻译：喜妹
 
-郭先生透露，这些安保全部配备了三种特殊装备，包括高压电击枪、防暴枪和无声、无色、无味的催眠武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-05-192604.jpg)图片来源: elconfidencial.com
 
-郭先生还解释道，这些武器除却为了预防冬奥会上的突发事件外，主要还用于窃取参赛运动员们的精子和卵细胞，用以获取巨额利益。此外，中共还将借由机器人技术收集这些运动员们包括影像、声音和DNA在内的生物信息。
+西班牙政府宣布，从下周二起，由于在第六波omicron病毒的病例雪崩后冠状病毒发病率数据的改善，将取消在户外强制使用口罩的规定。据Moncloa消息，该措施将在部长会议上得到批准，前一天将在地区间委员会与各自治区讨论。在报告了74,368个冠状病毒新病例，使自大流行开始以来感染covid-19的总人数达到10,199,716人，但将过去14天的累计发病率降低到每10万居民2,420.63例之后，卫生部将在下一次地区间委员会上向各自治区提议取消在街上强制使用口罩。预计这将在下周二的部长会议上由皇家法令批准，周三在国家官方公报上公布。如果一切顺利，将于2月10日星期四生效。卫生部长说：“我可以确认，下周二我们将向部长会议提交皇家法令，根据该法令，我们将取消在户外强制使用口罩的规定。”
 
-文字版原文：[中共三种武器维稳冬奥会终成泡影](https://gnews.org/zh-hans/1956464/)
+新闻来源: [elconfidencial.com] [El Gobierno eliminará el próximo martes la obligación de las mascarillas en exteriores](https://www.elconfidencial.com/espana/2022-02-04/el-gobierno-eliminara-el-proximo-martes-la-obligacion-de-las-mascarillas-en-exteriores_3369803/)
 
-音频处理/发稿：Daxia
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*审核：阿伯塔
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

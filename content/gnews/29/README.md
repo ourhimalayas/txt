@@ -2,38 +2,21 @@
 ---
 
 
-## 有声|世卫组织称已在57个国家检测到奥密克戎变体
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961371/)
+## 多国奥运选手将抵制冬奥会开幕式
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1961515/)
 
-配音：香草山健身部 – 玫瑰园
+加拿大温哥华杨帆农场枫叶快讯
 
+采编： Spirit            编辑撰稿：硫酸羟氯喹64
+![2022 Beijing Olympics](https://am14.mediaite.com/med/cnt/uploads/2022/01/GettyImages-1237970843-scaled.jpg)
+据《华盛顿邮报》2月1日报道，多国运动员已声明因中共政权的种族灭绝和反人类罪，而抵制即将在北京举行的冬奥会开幕式。 报道称，近期以来，美国相关机构一直敦促西方国家那些准备参赛的运动员就中共当局的大规模暴行端正立场。尽管大多数运动员都受到了来自国际奥林匹克委员会及其赞助商的压力，但已有为数众多的运动员确认将不参加开幕式，以此作为他们个人的抗议形式。
 
+对此，有评论指出，新中国联邦最近发起的甜蜜蜜灭共运动，通过促成美国外交授权撤其驻北京大使馆，以及目前响彻中国的三首灭共歌曲，将会成功把本次冬奥会变成冬眠会。爆料革命给全世界带来的有关病毒和疫苗的真相，将联合所有正义力量彻底粉碎习近平的奥运痴梦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-19.jpg)
+原文链接
 
+发稿：青青
 
-
-WHO称最近发现的高度传染性奥密克戎冠状病毒毒株的亚变体现已在 57 个国家或地区检测到。
-
-联合国卫生机构周二（2月1日）在其每周的流行病学更新中指出，在一些国家亚变体目前占所有奥密克戎病例的一半以上。虽然目前对亚变体之间的差异知之甚少，但几项研究表明，被称为隐形变体的BA.2比原始亚谱系更具传染性。
-
-流行病学家兼世卫组织冠状病毒大流行技术负责人告诉记者，初步数据表明 BA.2比 BA.1 的增长率略有增加。他表示，没有迹象表明 BA.2 子变体的严重程度发生了变化。
-
-世卫组织说，在过去一个月收集的所有中共病毒标本中，奥密克戎占93%以上，它有几个子系，分别是BA.1、BA.1.1、BA.2和BA.3。其中被确定为BA.1和BA.1.1的第一个版本仍然占提交给公共病毒跟踪数据库的所有奥密克戎案例的96%以上。
-
-文字版原文：[世卫组织称已在57个国家检测到奥密克戎变体](https://gnews.org/zh-hans/1955881/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

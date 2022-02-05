@@ -2,18 +2,18 @@
 ---
 
 
-## 有声|普京借冬奥割中共韭菜 将签天然气与金融合约
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961586/)
+## 有声|中共三种武器维稳冬奥会终成泡影
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1961609/)
 
 配音：香草山巡管部– 文凯琳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，俄罗斯总统普京的幕僚鄂夏柯夫表示，普京在出席冬奥期间将与中共习近平会面，届时将签署天然气、金融合作等15项协议。
+在2月2日的大直播中，郭文贵先生爆料称，此次北京冬奥会已经交由中共军方全权控制，仅安保人员就有近八成来自军队，他们全天24小时执勤维稳。
 
-天然气方面，双方已有多项的新合约准备签署。 金融上则是俄中希望合作，筹建能抵抗被金融制裁的基础架构。
+郭先生透露，这些安保全部配备了三种特殊装备，包括高压电击枪、防暴枪和无声、无色、无味的催眠武器。
 
-此次跟随普京参与协商的俄罗斯代表团成员，将包括外交部长拉夫罗夫、能源部长舒尔吉诺夫和能源业巨擘俄罗斯石油公司的执行长谢琴。 观察人士认为，此安排显示出普京借有条件出席冬奥会的机会，将在能源交易上大割中共韭菜的意图。
+郭先生还解释道，这些武器除却为了预防冬奥会上的突发事件外，主要还用于窃取参赛运动员们的精子和卵细胞，用以获取巨额利益。此外，中共还将借由机器人技术收集这些运动员们包括影像、声音和DNA在内的生物信息。
 
-文字版原文：[普京借冬奥割中共韭菜 将签天然气与金融合约](https://gnews.org/zh-hans/1953514/)
+文字版原文：[中共三种武器维稳冬奥会终成泡影](https://gnews.org/zh-hans/1956464/)
 
 音频处理/发稿：Daxia
 
@@ -26,8 +26,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
