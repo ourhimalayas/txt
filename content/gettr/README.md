@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/5/2022 10:30 PM (UTC)`
+
+2/5/2022 Miles Guo: There are three points made by almost everyone attending the CCP’s Winter Olympics: 1) the CCP is over, 2) everything is just fake, and 3) it is absolutely a nightmare. Many people are now trying to figure out how to transfer their money out of Communist China ASAP.<br/><br/>2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦；很多人现在只想着如何尽快把他们的钱从中共国转出来。
+![img](https://media.gettr.com/group40/getter/2022/02/05/22/3fcfd090-a361-6b2e-8423-957e3d0a4891/out.jpg)
+
+---
+
 `@miles 2/5/2022 8:46 PM (UTC)`
 
 2/5/2022 Miles Guo’s GETTR: Over 300 people at the opening ceremony of the Winter Olympics were sent to quarantine. Should Xi Jinping be quarantined as well? After his team got knocked out by the virus in Beijing, Putin made a harsh remark that the CCP must give Russia half of its territories as a pledge so that RMB can become the second legal tender in Russia. Will that be possible?<br/><br/>2/5/2022 文贵盖特：冬眠会开幕式现场300多人被拉走隔离，习神难道不需要隔离？普京在北京几乎被团灭后放狠话，中共得拿出半壁江山押给俄罗斯才能让人民币成为其第二法币，这个能实现吗？<br/>
@@ -147,15 +154,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/3/2022 Miles Guo’s GETTR: My three songs have terrified the CCP old kleptocrats, who also ended up in a dilemma. The Chinese New Year Gala of the New Federal States of China had seen more viewers in the past 24 hours than on the day when it was aired live. The CCP threatened journalists attending the Winter Olympics by using rogue tactics and is making enemies for itself at every moment.<br/><br/>2/3/2022 文贵盖特：文贵的三首歌让老杂毛既恐惧又纠结；新中国联邦新春联欢晚会在过去24小时的回看量超过直播当天的观看量；中共用流氓手段威胁参加冬奥会的记者、每分每秒都在给自己树敌<br/>
 ![img](https://media.gettr.com/group46/getter/2022/02/04/00/e5014666-5460-0734-e4d6-21f0bfbc77b0/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 2/3/2022 10:54 PM (UTC)`
-
-EP8: Deception by "Spamouflage Dragon". Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第八集：“垃圾网络变色龙”的欺骗。让我们用真相揭露这部卑鄙的，充满谎言的 #HBO #VICE 制作 ！   #isobelyeung #vice @miles  #graphika  #jackstubbs #foreigninfluenceoperations #CCPandglobalists #faith #hbovice訪談真相 #ASPI #firewall #deception #spamouflagedragon #takedowntheccp
-![img](https://media.gettr.com/group14/origin/2022/02/03/22/a13a2970-e822-d393-2105-4f774f501574/out.jpg)
 
 ---
 
