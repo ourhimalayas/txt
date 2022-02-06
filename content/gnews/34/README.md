@@ -2,33 +2,28 @@
 ---
 
 
-## 中俄结盟麻烦多，白宫提醒北京小心后果
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1964252/)
+## 有声|维生素D与自然免疫被证实在疫情中更有效
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1964253/)
 
-![白宫发言人萨琪(资料照）](https://gdb.voanews.com/a74de8a4-2091-404d-b156-ef86d937f495_w1023_r1_s.jpg)白宫发言人萨琪(资料照）
-据美国之音2月6日报道，俄罗斯总统普京4日在参加北京冬奥会期间与中共国国家主席习近平举行会谈。双方发表联合声明，对北约东扩表示反对。美国和北约随后作出回应，北约领导人拒绝中俄要求北约停止东扩。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月2日，据综合消息显示，一份针对未接种中共病毒疫苗群体的研究报告指出，相较于疫苗接种者而言，这一群体拥有的自然免疫力在对抗中共病毒方面更加有效且持久。其中，感染中共病毒后康复的人群，其体内的病毒抗体可以持续20个月之久。
 
-俄罗斯在俄乌边界部署了十几万大军，为阻止乌克兰加入北约。美国表示，如果俄罗斯再次入侵乌克兰，意味着中共国愿意“容许或者是默许”俄罗斯对乌克兰进行胁迫。白宫提醒北京，如果俄罗斯与乌克兰爆发武装冲突，将会影响到中共国的国际利益。
+此外，以色列科学家也在近期的一项研究中发现，提高人体内维生素D的水平可以有助于中共病毒患者降低疾病加剧或死亡风险。研究结果指出，维生素D对中共病毒具有良好的预防及控制作用，其作用原理在于维生素D能有效加强人体的免疫系统，从而达到防止重症和死亡的效果。
 
-中共国在乌克兰问题上如果同俄罗斯过于密切，将会给自己带来两个不利后果。一是让自己成为美国国家安全战略的唯一焦点；二是激怒欧盟，促使欧盟加大对台湾的支持力度。目前国际社会正在为缓解乌克兰危机进行各种外交努力。法国总统、德国总理和外长、法国外长纷纷计划出访乌克兰。英国首相和土耳其总统也参与缓和乌克兰紧张局势。
+文字版原文：[维生素D与自然免疫被证实在疫情中更有效](https://gnews.org/zh-hans/1961375/)
 
-俄罗斯盯着乌克兰、习近平盯着台湾，两个邪恶轴心国不满足于本国的独裁，一心想要对外扩张。一石激起千层浪，两石搅动半个世界，各国纷纷加入其中，各自算计自己的利益。有中共参与的任何事情，带来的一定是伤害和纷争。美国最大的威胁就是中共，台湾也是处在中共的打击范围之内。为了自身的利益和国家、地区、周遭的平安，必须反击中共。
+音频处理/发稿：Daxia
 
-新闻参考链接：[https://www.voachinese.com/a/u-s-warns-conflict-would-hurt-china-s-interests-ukraine-update-20220205/6428010.html](https://www.voachinese.com/a/u-s-warns-conflict-would-hurt-china-s-interests-ukraine-update-20220205/6428010.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

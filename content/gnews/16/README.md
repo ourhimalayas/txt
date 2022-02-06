@@ -2,8 +2,8 @@
 ---
 
 
-## 强制疫苗什么时候会停止
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964629/)
+## 只要能杀敌，以万里之外，不在乎你用手
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964737/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

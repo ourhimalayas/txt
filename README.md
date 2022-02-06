@@ -15,122 +15,122 @@
 
 ---
 
-### [管理好时间的前提就是你真正的解决问题的能力](/content/gnews/1/README.md)
+### [今天的中共就是当年的希特勒德国（虚假、绑架、仇恨）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [对自己永远要狠一些，对敌人下手的时候要更狠一些](/content/gnews/2/README.md)
+### [共产党绑架全世界的（媒体、经济、金融、体育）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [只要能杀敌，以万里之外，不在乎你用手](/content/gnews/3/README.md)
+### [两名澳洲议员声援堪培拉反疫苗强制集会](/content/gnews/3/README.md)
+ ` 走进澳洲`
+
+### [龙杯和龙椅的故事](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [新加坡的命运未来的走向](/content/gnews/4/README.md)
+### [中日财经爆┃日本披露《经济安全促进法案》草案](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [菲律宾最高法院退休法官：中共将干预即将举行的选举](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习近平的习天下](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [西安的事情就是疫苗灾难](/content/gnews/5/README.md)
+### [习近平要做习太阳](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [中美必有一战的时间](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [盖特是谁都挡不住的](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [澳洲政府要求各大学撤销与中共进行共同研究计划](/content/gnews/8/README.md)
- ` NFSC News`
-
-### [北朝鲜2个根本不可能去参加冬奥会的条件](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [土耳其总统夫妇感染奥米炕是真是假？](/content/gnews/10/README.md)
+### [面对可能的欺诈调查，GoFundMe同意退还加拿大卡车司机收到的捐款](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [人类的民主不能被利用](/content/gnews/11/README.md)
+### [日本考虑对俄罗斯实施制裁](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美俄联合国舌战之际，俄罗斯从乌克兰边境撤出部分军力](/content/gnews/11/README.md)
+ ` GTV News Talk`
+
+### [共产党为什么要关内教（育）外教（育）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [解析中共国虚假的进出口贸易数据](/content/gnews/12/README.md)
+### [共产党为什么要处理网红](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [管理好时间的前提就是你真正的解决问题的能力](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [对自己永远要狠一些，对敌人下手的时候要更狠一些](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [只要能杀敌，以万里之外，不在乎你用手](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [新加坡的命运未来的走向](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [澳洲政府要求各大学撤销与中共进行共同研究计划](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [北京冬奥会场地的雪几乎百分百人造，耗费资源而且危险](/content/gnews/13/README.md)
+### [土耳其总统夫妇感染奥米炕是真是假？](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国无处不在的各种种族冲突](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [纽约市领先于硅谷的Crypto-VC资金竞赛](/content/gnews/15/README.md)
- ` 波士顿五月花农场金融部`
-
-### [强制疫苗什么时候会停止](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [美国两党议员推动台湾驻美代表处更名](/content/gnews/17/README.md)
+### [解析中共国虚假的进出口贸易数据](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [不要去崇拜舍利子](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
+### [北京冬奥会场地的雪几乎百分百人造，耗费资源而且危险](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [相信万佛万神的力量](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
+### [美国两党议员推动台湾驻美代表处更名](/content/gnews/22/README.md)
+ ` NFSC News`
 
-### [参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息](/content/gnews/20/README.md)
+### [参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息](/content/gnews/23/README.md)
  ` 温哥华扬帆农场`
 
-### [H-Pay实现人民币秒变喜美元](/content/gnews/21/README.md)
+### [H-Pay实现人民币秒变喜美元](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [北京冬奥会开幕时的疫情、间谍和超额费用](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [谭德塞与李克强会面 欲勾兑中共病毒溯源](/content/gnews/23/README.md)
+### [谭德塞与李克强会面 欲勾兑中共病毒溯源](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [记者在北京直播连线报道冬奥会被粗暴驱赶](/content/gnews/24/README.md)
+### [记者在北京直播连线报道冬奥会被粗暴驱赶](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联合国秘书长：希望北京允许人权特使访新疆](/content/gnews/25/README.md)
+### [联合国秘书长：希望北京允许人权特使访新疆](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“卖台贼”洪秀柱在北京喊“反独促统”](/content/gnews/26/README.md)
+### [“卖台贼”洪秀柱在北京喊“反独促统”](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本厚劳省将接种后患心肌炎警报提高至“疫苗严重不良反应”](/content/gnews/27/README.md)
+### [日本厚劳省将接种后患心肌炎警报提高至“疫苗严重不良反应”](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [密西根两百多名因未打疫苗而被解雇的医护对雇主提起诉](/content/gnews/28/README.md)
+### [密西根两百多名因未打疫苗而被解雇的医护对雇主提起诉](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共秘密封城雄安，北京“气泡”爆129例有症状](/content/gnews/29/README.md)
+### [中共秘密封城雄安，北京“气泡”爆129例有症状](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [每日快報：印度在最後一刻對北京奧運會進行了外交抵制](/content/gnews/30/README.md)
+### [每日快報：印度在最後一刻對北京奧運會進行了外交抵制](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：印度在最后一刻对北京奥运会进行了外交抵制](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [俄确诊选手爆料遭不公待遇 北京隔离餐难以下咽](/content/gnews/32/README.md)
+### [俄确诊选手爆料遭不公待遇 北京隔离餐难以下咽](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|维生素D与自然免疫被证实在疫情中更有效](/content/gnews/33/README.md)
+### [有声|维生素D与自然免疫被证实在疫情中更有效](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [中俄结盟麻烦多，白宫提醒北京小心后果](/content/gnews/34/README.md)
+### [中俄结盟麻烦多，白宫提醒北京小心后果](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DMED显示中共病毒疫苗后各种疾病惊人上升](/content/gnews/35/README.md)
+### [DMED显示中共病毒疫苗后各种疾病惊人上升](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国版《搏击俱乐部》结局因中共极端审查而被篡改](/content/gnews/36/README.md)
+### [中国版《搏击俱乐部》结局因中共极端审查而被篡改](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录](/content/gnews/37/README.md)
+### [加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平的大国崛起梦彻底破碎](/content/gnews/38/README.md)
+### [习近平的大国崛起梦彻底破碎](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [NBC拒绝播放批评中共以及资助北京冬奥会的美国公司的广告](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [普京参加冬奥会获北京“大礼” 却缺席习近平宴会](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

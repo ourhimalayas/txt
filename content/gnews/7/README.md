@@ -2,14 +2,14 @@
 ---
 
 
-## 盖特是谁都挡不住的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964690/)
+## 习近平的习天下
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964796/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-*发布：*Frank2021
+*发布：陶子*
 
-**更多资讯，请关注：**
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
 [澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

@@ -2,14 +2,14 @@
 ---
 
 
-## 管理好时间的前提就是你真正的解决问题的能力
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964752/)
+## 今天的中共就是当年的希特勒德国（虚假、绑架、仇恨）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964837/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-*发布：*Frank2021
+*发布：陶子*
 
-**更多资讯，请关注：**
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
 [澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

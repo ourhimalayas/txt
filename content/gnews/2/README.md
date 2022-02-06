@@ -2,14 +2,14 @@
 ---
 
 
-## 对自己永远要狠一些，对敌人下手的时候要更狠一些
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964745/)
+## 共产党绑架全世界的（媒体、经济、金融、体育）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964829/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-*发布：*Frank2021
+*发布：陶子*
 
-**更多资讯，请关注：**
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
 [澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
