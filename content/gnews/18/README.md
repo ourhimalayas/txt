@@ -2,42 +2,26 @@
 ---
 
 
-## 世卫称57国出现Omicron变种，放松防疫还太早
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1964898/)
+## 日本《经济安全法》草案出台 对公司研究人员最高可处2年监禁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964964/)
 
-作者：台湾宝岛农场\_dobi
+撰稿：东京樱花团丨百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本《经济安全法》草案出台-对公司研究人员最高可处2年监禁.png)图片来自本文网站
+2月6日朝日新闻在线消息，岸田政府提出的的一项重要政策《经济安全促进法案》的草案内容已经基本确定。为防止先进技术泄露和为网络攻击做好准备，该法案包括对私营公司和研究人员的惩罚，最高可判处两年的监禁。商界和执政党中的部分人担心政府会更多地参与进来，有可能在未来的磋商中对法案的内容进行修改。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+该草案由七章98条组成，包含四大支柱：加强供应链以确保人民生活和经济所需的重要商品的稳定性，在发生网络攻击时对关键基础设施进行预检，先进技术方面的公私合作，以及专利不公开，每项都包括惩罚措施。 2月1日概括的专家小组的建议中没有包括具体的处罚细节。
 
+在关键基础设施方面，政府将进行初步审查，以确保没有外国产品用于可能受到网络攻击的关键设备上。具体包括14个部门：电力、天然气、石油、水、电信、广播、邮政、金融、信用卡、铁路、货车运输、海运货物、航空和机场。企业经营者将由主管大臣根据部令中规定的标准指定。广播方面，NHK和民营广播公司将被纳入“依据《广播法》规定进行核心广播”的范围。
 
+相关公司在引进重要的系统时，有义务向主管大臣提交一份“引进计划”，内容包括设备、部件以及维护和管理承包商的概要，政府将审查该计划。审查期原则上为30天。
 
+根据草案，如果企业没有提交“引进计划”或提交虚假信息，将被判处两年以下的监禁或100万日元以下的罚款。如果政府判断存在风险，并建议改变或停止计划的劝告发出后不遵守该建议，将受到同样的处罚。
 
+信息来源：[**経済安保法の原案、懲役2年以下の罰則も  企業や研究者らが対象**](https://news.yahoo.co.jp/articles/e6533eb3cab2844341b1f7552b6e70206eca1810#:~:text=%E7%B5%8C%E6%B8%88)
 
-![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/02/98/15733211.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)（图片来自联合新闻网）
-
-据外媒报导，世界卫生组织表示，传播迅速且高度突变的Omicron变异株已成为全球主要流行病毒株，且更具传染力的Omicron亚型变异株BA.2也已出现在全球57国。 报导还指出，根据世卫（WHO）最新流行病学周报，过去一个月收集到的所有种类冠状病毒样本中，Omicron变异株占93%，并出现几个亚系：BA.1、BA.1.1、BA.2 及BA.3，说明该病毒仍在持续演化中。
-
-
-
-参考链接：
-
-[https://udn.com/news/story/121707/6074243?from=udn-catebreaknews\_ch2](https://udn.com/news/story/121707/6074243?from=udn-catebreaknews_ch2》)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-75.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
-
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

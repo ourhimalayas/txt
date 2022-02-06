@@ -15,65 +15,65 @@
 
 ---
 
-### [七哥谈哈萨克族战友（一）](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [七哥谈哈萨克族战友（二）](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [罗伯特·马龙博士警告儿童 COVID-19 疫苗风险](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [北京冬奥：中共国为夺首金被疑打压美国队](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共为啥大肆宣扬冬奥感染人数](/content/gnews/5/README.md)
- ` 澳喜农场`
-
-### [七哥谈法国，它需要一场革命！（一）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [奥地利强制所有18岁及18岁以上公民接种中共病毒疫苗](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [甜蜜蜜运动的三个回合](/content/gnews/8/README.md)
- ` GTV News Talk`
-
-### [7•24系列——《美国竞争法案》，遏共威力如何？](/content/gnews/9/README.md)
+### [美国新冠死亡人数破90万！一个半月内激增10万人病殁](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [普京首次就俄罗斯与乌克兰冲突发表公开谈话，提出解决条件](/content/gnews/10/README.md)
- ` GTV News Talk`
+### [奥地利：宪法法院要求政府提供与中共病毒相关的数据以确定政府的权威性](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线： Omicron感染了巴西87%的医生 AMB调查](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [比疯女人更疯的是，八孩爹成网红](/content/gnews/3/README.md)
+ ` 银河勇气之星`
 
-### [FLCCC 公布的Covid-19 恢复期治疗 以及 最新疫苗解毒方法](/content/gnews/12/README.md)
- ` 香草山醫療部`
-
-### [浅谈澳大利亚国防工业 – 陆军篇](/content/gnews/13/README.md)
- ` 军情启示录`
-
-### [七哥谈法国，它需要一场革命！（二）](/content/gnews/14/README.md)
+### [七哥谈时尚品牌](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [日本《经济安全法》草案出台 对公司研究人员最高可处2年监禁](/content/gnews/15/README.md)
+### [红卫兵单伟建](/content/gnews/5/README.md)
+ ` 骄子`
+
+### [七哥谈哈萨克族战友（一）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥谈哈萨克族战友（二）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [罗伯特·马龙博士警告儿童 COVID-19 疫苗风险](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [北京冬奥：中共国为夺首金被疑打压美国队](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相官邸接连有人确诊 感染者曾与岸田会面](/content/gnews/16/README.md)
+### [中共为啥大肆宣扬冬奥感染人数](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [七哥谈法国，它需要一场革命！（一）](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [奥地利强制所有18岁及18岁以上公民接种中共病毒疫苗](/content/gnews/12/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [甜蜜蜜运动的三个回合](/content/gnews/13/README.md)
+ ` GTV News Talk`
+
+### [7•24系列——《美国竞争法案》，遏共威力如何？](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [普京首次就俄罗斯与乌克兰冲突发表公开谈话，提出解决条件](/content/gnews/15/README.md)
+ ` GTV News Talk`
+
+### [秘翻在线： Omicron感染了巴西87%的医生 AMB调查](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [浅谈澳大利亚国防工业 – 陆军篇](/content/gnews/17/README.md)
+ ` 军情启示录`
+
+### [日本《经济安全法》草案出台 对公司研究人员最高可处2年监禁](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中俄签署远东石油天然气供销协议大单](/content/gnews/17/README.md)
+### [中俄签署远东石油天然气供销协议大单](/content/gnews/19/README.md)
  ` 波士顿五月花农场金融部`
 
-### [世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/18/README.md)
- ` GTV News Talk`
-
-### [两名澳洲议员声援堪培拉反疫苗强制集会](/content/gnews/19/README.md)
+### [两名澳洲议员声援堪培拉反疫苗强制集会](/content/gnews/20/README.md)
  ` 走进澳洲`
-
-### [日本国会通过关于中共人权的决议](/content/gnews/20/README.md)
- ` GTV News Talk`
 
 ### [菲律宾最高法院退休法官：中共将干预即将举行的选举](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
