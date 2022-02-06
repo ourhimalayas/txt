@@ -2,8 +2,8 @@
 ---
 
 
-## 一旦说错话对一个人是致命的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963451/)
+## 七哥談曾庆红
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963613/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

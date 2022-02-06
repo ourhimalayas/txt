@@ -2,70 +2,42 @@
 ---
 
 
-## 2月4日木兰战友联盟答疑，G系列相关信息文字版
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1963415/)
+## 梦境显示如中共不让溯源或还有病毒再出来必然引发战争
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1963581/)
 
-非官方整理，一切信息以联盟答疑音频为准
+G-TV视频链接：[https://gtv.org/video/id=61ff2d69d90bdd2085a59edb](https://gtv.org/video/id=61ff2d69d90bdd2085a59edb)
 
-G-听写：飞花逐月； qiutian（邱甜）；
+**郭文贵先生：**我做了梦啊，我听说美国某个大人物告诉中共，直接告诉习：“如果不让我们溯源的话，经济上、贸易上，所有的不是脱钩那么简单，一切可用的都会用。如果我还发现还有病毒再出来，来自中国，还说不清楚的话，我们没有任何选择只有战争。” 我做梦的啊，我梦见的，你们这都别当真啊，这都是胡说八道，完全是梦啊，梦语。
 
-（时段：开始～18:00 飞花逐月）
+甜蜜蜜～你笑得多甜蜜～好象那花儿开在春天里～开在春天里～
 
-1、问：请问之前有报备购买的G|CLUBS卡，现在自己不想买了，是否可以把名额转让给他人？
+字幕来源：[2022年1月25日郭文贵先生紧急直播全文字版](https://gnews.org/zh-hans/1912226/)
 
-答：可以，但需要跟报备的农场进行说明并更改成新的购买者。
+编辑整理：Jacques；
 
-2、问：已报备过新GTV重建项目，现在还想再追加，请问是否仍然有1：10福利？
+字幕文件制作：大好河山；
 
-答：只要属于老投资者的在4月30日前汇入还仍然享有福利。
+视频制作及上传：Cindy；
 
-3、问：使用H|PAY功能是否必须有喜账户才行？
+G-News发布：小满；
 
-答：是的，首先得先有喜账户才能使用H|PAY功能。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-4、问：之前得到0.2配额的喜币到现在还没打到个人账号，据说是联盟托管，想问问这个事情现在怎么样了？
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-答：币数都会划到每个人的头上，目前联盟在复核，不用担心。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-（时段：18:00～36:00  qiutian（邱甜））
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-5、问：收到VOG邮件说SEC要退款了这个邮件是真的吗？
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-答：VOG的邮件不用理他，目前SEC有个通知各农场都有发的，文字室也贴一下，大家看下做个准备，战友们想知道SEC的退款信息，可以看联盟的通知以及GNEWS上都会发布。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-6、问：苹果店下载Hpay，可以直接往Hpay里充钱吗？
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-答：Hpay不能直接往里充钱，要通过喜交所充值再转到Hpay，Hpay之间可以互转，但不能充值与提现。一定要在喜交所注册有KYC帐号才可以用Hpay。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-（时段：36:00～结束 文希)
-
-7、HDO提现，客户发邮件说明已经转账成功，但是大约一星期后，转款扣除了50美元后被退回HDO，查看银行没有记录。发邮件问客服没有回应，请问下一步怎么办？
-
-答：一方面继续联系客服，另一方面联系农场主找长岛战友联系，再与喜交所沟通一下。
-
-8、HPAY账号被锁了，怎么办？
-
-答：联系喜交所客服，或让农场主联系长岛战友，老班长战友，草根小哥战友。
-
-9、收到了一封邮件是股份吸权受予协议是真的吗？
-
-答：是真的，应该是重建项目第二批，是针对老椅子的这部分。
-
-10、10月份填过表报备用HDO通过卡项目参与追加和借款投资GTV，1:10的福利截止日期是否也是4月30日？
-
-答:报备过就等待付款吧。
-
-11、如果sec在4月30日之前还没退回款项，会不会影响重建项目
-
-答:不受影响。
-
-G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
-
-语音链接：[https://mega.nz/file/EKZwjRQQ#k5S4aapXew4ucBvZ0wZQr6GVKIizuXtXFrFtzCGjQcI](https://mega.nz/file/EKZwjRQQ#k5S4aapXew4ucBvZ0wZQr6GVKIizuXtXFrFtzCGjQcI)
-
-审核：夏目&山竹
-
-发布：夏目&山竹
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

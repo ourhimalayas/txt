@@ -2,8 +2,8 @@
 ---
 
 
-## 盖特最重要的价值是保护华人海外安全
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963479/)
+## 七哥谈风水与迷信（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963640/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
