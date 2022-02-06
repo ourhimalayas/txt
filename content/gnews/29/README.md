@@ -2,33 +2,16 @@
 ---
 
 
-## 2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1963265/)
+## 救治新冠病人的黄金窗口期是“前72小时”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963744/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/TV
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+Peter McCullough医生/博士说，救治新冠病人的黄金窗口期是“前72小时”。缺乏早期治疗，是新冠病人死亡的决定性因素。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-4.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928](https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928)
-访谈：[https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96](https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

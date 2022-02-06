@@ -2,20 +2,30 @@
 ---
 
 
-## 普京参加冬奥会获北京“大礼” 却缺席习近平宴会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963676/)
+## 有声|佩洛西提醒美国运动员 北京冬奥期间勿激怒残酷中共政府
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1963870/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-75.jpg)
-2月4日，俄罗斯总统普京和中国领导人习近平在北京冬奥会开幕式前进行了会晤。期间，双方签署了15项合作文件，其中包括俄罗斯向中国出口石油、天然气、小麦等大宗商品的购销协议。俄罗斯石油公司官网2月4日消息，普京率团访华期间，俄罗斯石油公司（Rosneft Oil）和中国石油天然气集团（下称中石油）签署过境哈萨克斯坦向中国供应1亿吨石油的协议，协议期为10年。俄罗斯卫星通讯社（Sputnik）报导，除上述石油供应协议外，中石油还与俄罗斯天然气工业股份有限公司（Gazprom）签订了一份天然气长期供应协议。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+2月3日，美国众议院议长佩洛西表示，尽管美国有道德责任谴责中共国侵犯人权的行为，但她提醒美国运动员，在北京冬奥期间不要冒险激怒残暴的中共政府。
 
-2月5日，习近平夫妇在人民大会堂举行宴会，欢迎出席北京冬奥会开幕式的国际宾客。但中共央视报导并未提及具体有哪些宾客。根据央视画面显示，出席这次宴会的国际级政要人数约有25人，但备受瞩目的普京未列其中，引发外界猜测。
+据悉，佩洛西批评国际奥林匹克委员会对中共国侵犯人权一事视而不见。同时称，对于中共国在奥运期间侵犯人权的行为，美国负有迫切的道德责任。但佩洛西也提醒美国运动员，应该专注在比赛上，克制直言不讳的想法，不要冒险激怒中共政府。
 
-[信息来源](https://www.epochtimes.com/gb/22/2/5/n13557271.htm)
+文字版原文：[佩洛西提醒美国运动员 北京冬奥期间勿激怒残酷中共政府](https://gnews.org/zh-hans/1958647/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

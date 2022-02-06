@@ -2,26 +2,16 @@
 ---
 
 
-## 难以置信！纽约污水中发现超过4 种冠状病毒“不明突变”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963029/)
+## 普京参加冬奥会获北京“大礼” 却缺席习近平宴会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963676/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-18.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimageio.forbes.com%2Fspecials-images%2Fimageserve%2F6000e7818fbfb374a1690816%2F0x0.jpg%3Fformat%3Djpg%26width%3D1200%26fit%3Dbounds&amp;imgrefurl=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fmishagajewski%2F2021%25)
-一个研究小组在纽约污水中检测到新冠病毒的四个以上的不明突变。目前还不知道它的来源。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-75.jpg)
+2月4日，俄罗斯总统普京和中国领导人习近平在北京冬奥会开幕式前进行了会晤。期间，双方签署了15项合作文件，其中包括俄罗斯向中国出口石油、天然气、小麦等大宗商品的购销协议。俄罗斯石油公司官网2月4日消息，普京率团访华期间，俄罗斯石油公司（Rosneft Oil）和中国石油天然气集团（下称中石油）签署过境哈萨克斯坦向中国供应1亿吨石油的协议，协议期为10年。俄罗斯卫星通讯社（Sputnik）报导，除上述石油供应协议外，中石油还与俄罗斯天然气工业股份有限公司（Gazprom）签订了一份天然气长期供应协议。
 
-密苏里大学的 Mark Johnson 博士：“从污水样本中分离出 RNA，PCR 测试扩增了冠状病毒基因组的片段并确认了突变。”
+2月5日，习近平夫妇在人民大会堂举行宴会，欢迎出席北京冬奥会开幕式的国际宾客。但中共央视报导并未提及具体有哪些宾客。根据央视画面显示，出席这次宴会的国际级政要人数约有25人，但备受瞩目的普京未列其中，引发外界猜测。
 
-由密苏里大学约翰逊博士领导的一个研究小组自 6 月以来一直在纽约市的 14 家污水处理厂进行调查。
-
-Mark Johnson 博士：“有时我们看到的菌株与患者确认的菌株不符。去年反复出现，似乎受地域限制。每周从同一污水处理厂发现同一菌株。 ”
-
-不明变异菌株来源，可以来自未经检测的患者、未经检测的胃肠道等组织、长期住院的重症患者，以及小鼠、狗等动物。
-
-由于这些变异病毒停留在同一个区域，目前无需担心，但像 Omicron 毒株一样，它们将来有可能会传播。
-
-信息来源：
-
-[コロナウイルスの“未確認変異”4種類以上発見　NYの下水から](https://news.yahoo.co.jp/articles/c5cd41cf708d1f68c9aa65b348ce21ed52c8e6af)
+[信息来源](https://www.epochtimes.com/gb/22/2/5/n13557271.htm)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*

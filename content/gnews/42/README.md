@@ -2,31 +2,32 @@
 ---
 
 
-## 习懵了 | 普京团队几乎遭新冠病毒“团灭”，对中共撂下狠话
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1962421/)
+## 美国发布外国应用软件新政策再审抖音
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962993/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.51.png)https://gamerant.com/tiktok-sue-us-government/
+据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
 
-2月4日，郭文贵先生于GTV、Gettr大直播中透露北京冬奥会刚开始便怪事连连，普京总统团队多人感染新冠病毒后对中共要价更加凶狠，外宾们总结三句话。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/ezgif.com-gif-maker-1.jpg)图片来源路透社
+早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
 
+参考链接：[TikTok’s ties to China are under scrutiny once again as Biden weighs new rules for foreign apps](https://www.businessinsider.com/tiktoks-connection-to-china-under-scrutiny-biden-weighs-new-rules-2022-2)
 
-普京总统及其团队在参加北京冬奥会期间住在华尔道夫酒店，目前已十六人（包括保镖和随行官员等）感染新冠病毒，有三人暴毙（不确定是属于普京团队还是华尔道夫酒店工作人员）。一切突如其来令人恐惧，这还是冬奥会刚刚开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-作为北京冬奥会最重要的贵宾普京，在得知自己团队多人感染新冠病毒后暴怒大骂，说：“这么大一个国家让我们来，现在连起码的保障都没有……” 据悉，随后某部队迅速进入紧急战备，这是距离北京5000公里以外的地方（北京距离莫斯科5,790 公里）。
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-习在得知这个情况后瞬间懵了，张徨失措。本来参加北京冬奥会的国家从137个降到97个，再降到最后只有33个，已经让花重金请客撑场面的习脸面无光。除了普京团队在华尔道夫酒店遭遇几乎“团灭”的新冠病毒感染，还有习的安保狙击手队长在七星盘古北侧执行任务时（在习到达前几小时）突然倒地暴毙（可能跟新冠毒疫苗和高强度工作压力有关），让整个事情变得更加不同寻常。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/POOL-PHOTO-BY-MARK-RALSTON.jpg)图片来源MARK RALSTON
-
-
-根据最新的Gettr（盖特）消息，普京总统本来要签署的21世纪22个重大合同，其中的两个合同未签。并且，给中方撂下狠话，要求在一个月内得到答复，让人民币在俄罗斯成为第二法币流通（大量中共国资产抵押给俄罗斯的前提下）以此抵制美国的制裁。然而，这次俄罗斯看似咄咄逼人，可能要在中共手里毁灭。
-
-目睹中共内忧外患的局势，所有参加冬奥会的外国来宾不约而同地总结了相同的三句话，北京冬奥会一切都是假的，是一场噩梦，中共完了。
-
-**附：**
-
-最新消息，在冬奥会开幕式现场就发现300多名新冠阳性患者，其中很多和习还有过密切接触。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
