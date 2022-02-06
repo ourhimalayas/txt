@@ -2,14 +2,14 @@
 ---
 
 
-## 恭祝Himalaya Pay全面上线
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1967138/)
+## 北京2022“冬眠会”开幕
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1967176/)
 
 作者：Inzaghi
 
-引领未来经济，回归金融本质的Himalaya Pay，在甜蜜蜜的歌声中上线了。Himalaya Pay即将开启人类财富新的密码。
+伴随着灭共的雪花，在习主席亲自指挥、亲自部署的“大一捅”之下，中共的“冬眠会”开幕了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/HIMALAYA-PAY.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/冬眠会_冬奥会.png)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 

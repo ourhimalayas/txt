@@ -2,39 +2,24 @@
 ---
 
 
-## 中共国人口老龄化问题日益严峻
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1966791/)
+## 麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1966880/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**采编****/翻译： 意翎  **
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-596.png)
+周六，《华盛顿邮报》记者约瑟夫·封立克（Joseph Clark）报道，美国德克萨斯州众议员米切尔特·麦考尔（Michael T.McCaul）发起了一场广告宣传活动，抨击中国共产党（CCP）的滥权犯罪行为，并与2022年北京冬奥会报道的同时播出。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)
+这位众议院外交事务委员会的共和党领袖，也是共和党的中国问题特别工作组（GOP’s Task Force ）的主席说，中共利用奥运会来“粉饰他们的种族灭绝、军事侵略和对本国人民的压迫……我们不会对他们奴役人民的行为睁一只眼，闭一只眼”。 麦考尔在他的竞选团队周五发布的广告中说，“CCP正在对自己的人民进行种族灭绝……他们威胁要对美国和我们的盟友进行军事侵略。他们还在继续掩盖Covid-19的起源……现在他们想让我们看奥运会，忘记他们的罪行”，他说。
+
+麦考尔置身于一个由两党组成的、旨在孰促国际奥委会(IOC)抵制中共政府在新疆的种族灭绝行为和反人类罪行的团体，一直对IOC允许北京举办奥运会的决定持批评态度。“我们会为美国队加油，同时我们也会谴责CCP和国际奥委会在道义上应受谴责的行为”，他说。
+
+在广告中，麦考尔呼吁观众，“支持运动员，不能让共产党人洗脑成功。”他在一份声明中说：“重要的是，美国人民站起来一齐对CCP的种族灭绝说不！”
+
+**[原文链接](https://www.washingtontimes.com/news/2022/feb/5/mccaul-campaign-runs-ad-targeting-beijing-olympics/)**
 
 
-
-图片来源：雅典娜设计组
-
-
-根据网易新闻报道：春节浙江卫健委给浙省3岁以下婴幼儿父母发问卷，其中里面有一个问题是，假设政府每个月给2胎、3胎发放补贴1000元，一直到出生后3岁为止，你是否愿意生育2胎、3胎。
-
-另外也有地区调查了抚养婴幼儿的成本花费，以及有没有接受来自祖辈的支持。
-
-中国2021年65岁以上人口，已经占到总人口的14%多。按照联合国的标准，65岁人口超过7%即为老龄化社会。按照现有出生死亡比例预判，2050年左右中国将有近40%的老龄化人口。这势必会对现行社会运行形成大的冲击。
-
-值得注意的是，中国2021年人口增长仅48万，呈断崖式下跌，抛开疫情的原因。更加深层次的原因是因为中国人的负担太重了。
-
-参考链接：[https://c.m.163.com/news/a/GVH214PQ0545GTLL.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GVH214PQ0545GTLL.html?spss=today-news-hotrank)
-
-发布：星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

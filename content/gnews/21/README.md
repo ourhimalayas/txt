@@ -2,35 +2,54 @@
 ---
 
 
-## 今日盖特大V推荐 — Tucker Carlson（塔克·卡尔森）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1966923/)
+## 美航空公司敦促白宫终止国际旅行中共病毒检测规则
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1966959/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-597-e1644169218224.png)
-盖特链接：[https://gettr.com/user/TuckerCarlson](https://gettr.com/user/TuckerCarlson)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-598-e1644169179385.png)图片来源：网络
-**塔克·卡尔森自述：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/B47EMQRGHRPSFFFUZQVYZESZBE-1.jpg)2020 年 11 月 24 日，为了防止冠状病毒病毒 (COVID-19) 传播而戴着防护口罩的旅客在美国科罗拉多州丹佛市的机场取回行李。路透社/凯文·莫哈特/档案照片
+《路透社》网站2月2日报道，
 
-“Tucker Carlson Tonight”的主持人，平日晚上8点东部时间@FoxNews。
+摘要翻译：
 
-在TuckerCarlson.com网站上观看新的Fox Nation媒体节目Tucker Carlson Today和Originals。
+美国主要的航空公司、商业和旅游团体周三敦促白宫终止对前往美国的已接种新冠疫苗的国际乘客进行中共病毒出发前检测的要求。
 
-**塔克·卡尔森简介：**
+美国航空协会、美国商会、国际航空运输协会、航空航天工业协会、美国旅游协会和其他团体在给白宫中共病毒应对协调员杰夫·赞茨(Jeff Zients)的一封信中呼吁做出改变。他们写道：“对航空乘客的调查表明，出发前检测是决定不进行国际旅行的一个主要因素。人们根本不愿意冒将无法返回美国的风险。”
 
-塔克·卡尔森生于1969年5月16日，是美国电视主持人和保守派政治评论员，自2016年以来一直主持福克斯新闻的夜间政治脱口秀节目《卡尔森今夜秀（Tucker Carlson Tonight）》
+白宫拒绝发表评论。代表美国航空、达美航空公司、美联航和其他航空公司的美国航空运输协会说，截至上周，国际航空旅行比2019年的水平下降了38%。
 
-塔克·卡尔森的媒体从业者生涯开始于1990年代，为标准周刊撰稿。他在2000至2005年间曾经担任CNN的评论员。在2001至2005年间曾担任过Crossfire节目的联席主持人。在2005至2008年间，他在MSNBC主持了自己的同名晚间节目Tucker。2009年，塔克·卡尔森转投福克斯新闻频道担任政治分析员，并于2016年起在福斯新闻频道主持政论节目《卡尔森今夜秀》，他的节目受到保守派人士的喜爱。
+去年12月，拜登政府实施了更严厉的新规定，要求抵达美国的国际航空旅客在旅行前一天内获得中共病毒阴性检测结果。根据之前的规定，接种过新冠疫苗的国际航空旅客可以出示其出发之前三天内获得的阴性检测结果。
 
-编撰：洛杉矶盘古农场 — 郭友(文苏)
+白宫和美国疾病控制中心以前曾考虑过，但从未对美国人登上国内航班施加检测要求。
 
-校审：洛杉矶盘古农场 — 心照
+信中指出，在美国有超过7430万人感染过中共病毒，这意味着至少有22%的人口感染过这种病毒。信中说：“显然，中共病毒在美国各地普遍存在，在今天的情况下，试图通过航空旅行控制其输入是不可能改变这一事实的。”
 
-发布：洛杉矶盘古农场 — 子萍
+信中还提到，如果出现任何新的威胁性变体，“出发前检测可以很容易地被恢复”。该信指出，欧盟建议各国取消欧洲内部的中共病毒旅行限制。英国将从2月11日起结束对已接种新冠疫苗的航空旅客进入该国的出发前中共病毒检测。
+
+这些团体表示，“旅行和航空业的复苏取决于政府采取措施，取消那些在当前情况下不再合理的旅行限制。”
+
+**简评：**
+
+旅游航空业虽然在GDP所占的比重很小，但旅游航空业经济水平下降是必会影响与其相关的机场和飞机制造业等产业的发展，还会造成就业机会减少，加剧社会不稳定因素。所以说航空业是许多其他经济活动的关键推动因素。拜登政府在新冠疫苗上的措施更加重了对该产业经济的打击。
+
+在中共病毒肆虐的近三年时间里，全世界的经济都遭受重创。为了挽救经济，欧盟的很多国家已取消疫苗强制令措施。因为疫苗强制措施不但偏离民意，更不利国家经济的复苏。如果拜登征政府能适时取消旅行限制，航空业可能会得到一时喘息，但也解决不了根本问题。因为造成全世界危机的是中共病毒，罪魁祸首就是中共。不把祸端铲除，问题还会接踵而至。
+
+新闻链接：[Airlines urge White House to end COVID international travel testing rules](https://www.reuters.com/world/us/airlines-urge-white-house-end-covid-international-travel-testing-rules-2022-02-02/)
+
+*翻译/简评:JS*
+
+*校对：Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
