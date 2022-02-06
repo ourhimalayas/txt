@@ -2,23 +2,23 @@
 ---
 
 
-## 中共要求记者提前8小时集合
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966468/)
+## 教练被隔离 花样滑冰运动员感到“茫然”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966469/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据日本新闻网络联盟NNN公布的一段视频，其中记录了中共在冬奥会开幕式前是如何折腾海外记者的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.16.png)
-开幕式前8小时，中共就命令参与报道的海外记者集合，集合地距离举办开幕式的鸟巢仅30分钟车程。之后记者们被带到了另一个地方做安全检查，再又被拉回到了鸟巢周边，此时距开幕式还有整整6小时。而为了应对这种8小时的超长等待，中共当局要求记者们先填饱肚子再去集合。
+2月5日，参加北京冬奥会的花样滑冰运动员，因其教练中共病毒检测结果呈阳性而未能成行，面临无教练指导训练的窘境。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.28.png)
+来自拉脱维亚的22岁的丹尼斯刚刚在上个月的欧洲锦标赛上赢得了铜牌。丹尼斯的瑞士教练史蒂芬·兰比尔表示，尽管完全接种，但在前往北京之前，因确诊而处于隔离状态，未能如期成行。丹尼斯说他非常需要兰比尔教练陪同参赛，随时为他提供指导和鼓励。
 
-而日媒记者也没闲着，不仅吐槽开幕式邀请函过于简陋，还特地在转场视频中加入郭文贵先生的盘古大观画面。分析人士指出，日本记者机智地表达了对中共的不满。同时，盘古的外形与前一天习近平宣传视频中出现的龙头不一致，也引起了人们对盘古龙头的讨论。
+另一位由兰比尔执教的日本选手宇野昌磨在周五的团体赛短道速滑中取得了个人最佳成绩。他在2018年奥运会上获得银牌，被视为北京冬奥会的冠亚军竞争者。尽管表现不错，宇野仍然感觉不对劲。他的动作不够敏锐，情绪也不饱满。运动员参加奥运比赛无教练陪同简直匪夷所思，但在中共疫情笼罩下，两位运动员正在为教练无法来到赛场而感到无助与茫然。
 
-参考链接：[https://www.gettr.com/post/psm7iz0431](https://www.gettr.com/post/psm7iz0431)
+参考链接：[Figure skating-Left coachless by COVID, some skaters feel a void](https://www.reuters.com/lifestyle/sports/figure-skating-left-coachless-by-covid-some-skaters-feel-void-2022-02-05/?taid=61fe67ef70fd090001a86035&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：文特
-编辑：DM
+总编：文真
+编辑：Jack Li文阳
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
