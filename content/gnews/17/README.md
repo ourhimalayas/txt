@@ -2,19 +2,12 @@
 ---
 
 
-## 为什么要追求喜马拉雅（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964251/)
+## 密西根两百多名因未打疫苗而被解雇的医护对雇主提起诉
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964313/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+01/28/2022 来自密歇根蓝十字&蓝盾医院的医护人员在福克斯电视台控诉雇主，因他们没有接种中共病毒疫苗而被开除。尽管根据民权法案第七修正案中规定，公民有权利因信仰原因可以不接种疫苗，但是医院依然拒绝这样的要求。因此他们决定起诉医院并给予他们一定的补偿。
 
-*发布：*Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

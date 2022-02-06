@@ -2,14 +2,14 @@
 ---
 
 
-## 七哥坚信自己是有使命的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964304/)
+## 西方聖誕節後的災難
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964401/)
 
-编辑/整理：澳雅大直播工作组视频剪辑小队
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-*发布：*Frank2021
+*发布：陶子*
 
-**更多资讯，请关注：**
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
 [澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
