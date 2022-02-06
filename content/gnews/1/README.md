@@ -2,19 +2,18 @@
 ---
 
 
-## 共产党的巨大人道和体育灾难一定会走向灭亡
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964860/)
+## 秘翻在线： Omicron感染了巴西87%的医生 AMB调查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1965000/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+撰稿：文贺JP
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-3.jpg)图片来源：brazilian.report
+`巴西医生协会（AMB）的一项调查显示，在过去的几个月里，87.3%的巴西医生感染了新型冠状病毒（中共病毒）。随着巴西继续打破每日病例的新纪录，周四出现惊人的接近30万例大关。在巴西的27个州中，至少有8个州的Omicron感染将ICU入住率推至临界水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像2.jpg)图片来源：brazilian.report
+根据AMB调查:医生越发焦虑的占（43%），筋疲力尽的占（51%），对中共病毒表现担忧的占（52%）。几乎一半人表示，随着住院人数不断攀升，预计从业者的短缺将是最大挑战。
 
-*发布：陶子*
+信息来源：[https://brazilian.report/liveblog/2022/02/04/omicron-infected-doctors/#omicron-infected-doctors](https://brazilian.report/liveblog/2022/02/04/omicron-infected-doctors/#omicron-infected-doctors)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责编：待命（文晓）
 
  
 

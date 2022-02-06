@@ -2,24 +2,24 @@
 ---
 
 
-## 土耳其总统夫妇感染奥米炕是真是假？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1964675/)
+## 面对可能的欺诈调查，GoFundMe同意退还加拿大卡车司机收到的捐款
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1964778/)
 
 #### 撰稿：彩虹
 
-#### 责编：白夜       
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-548.png)图片来源：Bernama
-2月5日，《国会山报》引述《美联社》的报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdoğan）和他的妻子在中共病毒（COVID-19）检测中结果为阳性。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-2.jpg)图片来源：网络图片
+2月5日，《新闻极限》报道，周六，众筹平台GoFundMe表示，在佛罗里达州州长罗恩·德桑蒂斯和其他人要采取行动对其进行欺诈调查后，它将自动退还为抗议中共病毒（COVID-19）疫苗规定的加拿大卡车司机车队筹集的约1000万美元的剩余款项。
 
-周六，埃尔多安发布了一条推特说：“今天，我们的COVID-19（中共病毒）检测结果为阳性，我和妻子在出现了（中毒）轻微症状后进行了检测，值得庆幸的是，我们的病情较轻，我们了解到这是（中共）病毒变体奥米炕（Omicron）。”
+该组织在周六早些时候发布的推特（Twitter）上说：“为了简化用户的程序，我们将退还对2022年自由车队（Freedom Convoy）筹款活动的所有捐款。这种退款将自动发生，你不需要提交申请。捐赠者可以预期在7-10个工作日内看到退款。”
 
-但是，美联社指出，埃尔多安在周六的电视讲话中并没有表现出病毒症状。并且，围绕总统健康状况的谣言和猜测一直是争议的根源，而官方却对质疑领导人健康状况的社交媒体用户展开调查。
+报道说，在GoFundMe暂停通过网站上的捐款为加拿大“自由车队”筹集的约1000万美元的分配后，德桑蒂斯与其他人一道，在推特上发文谴责GoFundMe不允许抗议活动组织者提取资金，是一种“欺诈”。
 
-周五，土耳其的中共病毒病例激增，卫生部记录了111,157例中共病毒病例和248例死亡。
+根据BBC的报道，1000万美元的捐款来自世界各地的12万多名捐助者，包括“许多”来自美国的。
 
 **新闻来源**
 
-[Turkish president tests positive for COVID-19](https://thehill.com/policy/international/592974-turkish-president-tests-positive-for-covid-19?rl=1)
+[GoFundMe to Refund $10M of Canadian Trucker Donations After Fraud Probe Threat](https://www.newsmax.com/politics/canada-truckers-covid-protest/2022/02/05/id/1055642/)
 
  
 

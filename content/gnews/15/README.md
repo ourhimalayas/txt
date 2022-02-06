@@ -2,45 +2,38 @@
 ---
 
 
-## 美俄联合国舌战之际，俄罗斯从乌克兰边境撤出部分军力
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1964769/)
+## 菲律宾最高法院退休法官：中共将干预即将举行的选举
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1964797/)
 
-作者：台湾宝岛农场dobi
+整理/编辑：小红帽
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
 
+根据《Inquirer.net》2月5日报道，菲律宾一位已退休的最高法院高级助理法官安东尼奥·卡皮奥（Antonio Carpio）周六表示，他认为中共可能会干预即将举行的全国大选以保护其利益。
 
-![This image has an empty alt attribute; its file name is b47c377e73a84c579cc5eeadd5bf5f2d.jpeg](https://p7.itc.cn/q_70/images03/20210409/b47c377e73a84c579cc5eeadd5bf5f2d.jpeg)（俄乌边境一处俄军营地）（图片来自搜狐网）
+“中共会干预，因为我认为他们干预了上次总统选举，”卡皮奥在一个在线论坛上说。
 
+前外交部秘书阿尔伯特·德·德尔罗萨里奥（Albert Del Rosario）称，中共国官员一直在吹嘘他们能够影响2016年该国的投票结果，这导致了罗德里戈·杜特尔特（ Rodrigo Duterte）总统的当选。
 
+卡皮奥相信，中共将再次青睐一位延续杜特尔特与北京友谊的候选人。
 
-据台媒报导，美国驻联合国大使31日指责俄罗斯不仅侵略成性，且将乌克兰与西方国家丑化为侵略者，企图制造开战借口。
+“因此，我们将不得不期待对我们的海域感兴趣或声称拥有我们的领土和海域的国家（中共国）会寻找一个对他们友好的候选人，就像杜特尔特一样。中共希望杜特尔特的政策得以延续”。卡皮奥指出。
 
-与此同时，俄罗斯军方宣布从乌克兰边界地区撤军9000人，但尚难以判定此次局部撤军是否代表俄方有意降低紧张态势。白俄罗斯位于乌克兰北部，是俄罗斯在东欧最忠实的盟友。白俄罗斯军方上周宣布，驻乌俄军将在2月的两国大规模联合军演之后撤离。
+卡皮奥还引用了杜特尔特先前的声明，即他在从中共手中夺取对西菲律宾海岛屿的控制权时“无能为力”。卡皮奥说，这反映了杜特尔特在争议领土问题上的政策。
 
-此前，俄罗斯曾要求美国与北约不要对乌克兰开放门户，遭到拒绝。《华盛顿邮报》1月31日报导，针对美国与北约的方案，莫斯科也已提出书面响应，各方将持续秘密磋商。
+“中共希望下一任总统也采取同样的政策，这一点非常明确，”卡皮奥认为。
 
-参考链接：
+新闻链接：[Carpio believes China will interfere in upcoming elections](https://newsinfo.inquirer.net/1550404/carpio-believes-china-will-interfere-in-upcoming-elections)
 
-[https://tw.news.yahoo.com/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F-%E7%BE%8E%E4%BF%84%E8%81%AF%E5%90%88%E5%9C%8B%E5%A4%A7%E4%BD%BF%E5%94%87%E6%A7%8D%E8%88%8C%E5%8A%8D-%E4%BD%86%E4%BF%84%E7%BE%85%E6%96%AF%E6%92%A4%E8%BB%8D9000%E4%BA%BA-%E5%8F%AC%E5%9B%9E20%E8%89%98%E8%88%B9%E8%89%A6-040039390.html》](https://tw.news.yahoo.com/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F-%E7%BE%8E%E4%BF%84%E8%81%AF%E5%90%88%E5%9C%8B%E5%A4%A7%E4%BD%BF%E5%94%87%E6%A7%8D%E8%88%8C%E5%8A%8D-%E4%BD%86%E4%BF%84%E7%BE%85%E6%96%AF%E6%92%A4%E8%BB%8D9000%E4%BA%BA-%E5%8F%AC%E5%9B%9E20%E8%89%98%E8%88%B9%E8%89%A6-040039390.html》)
+发布：tianzhihuan
 
-编辑/校对/发稿：有莫举名
-
-![This image has an empty alt attribute; its file name is image-75.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/image-75.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-25.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

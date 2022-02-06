@@ -2,32 +2,34 @@
 ---
 
 
-## 解析中共国虚假的进出口贸易数据
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1964663/)
+## 美俄联合国舌战之际，俄罗斯从乌克兰边境撤出部分军力
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1964769/)
 
-特约撰稿：Opal
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
-据中共国海关总署1月14日发布的数据显示，2021年，中共国货物贸易进出口规模首次突破6万亿美元，创下历史新高。其中，外贸增量达到了1.4万亿美元，相当于2005年全年外贸规模。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-549.png)图片来自：https://idsb.tmgrup.com.tr/
-然而经过比较，我们却发现，中共国海关统计的2021年1至11月，中共国出口美国的贸易额，相较于美国统计的、同期从中共国进口的贸易额多出631亿美元。而同期，中共国统计的、从美国进口的贸易额，也比美国统计数据多出247亿美元。2021年1至11月，中共国统计的进出口总和，比美国的统计数据多出878亿美元。
+作者：台湾宝岛农场dobi
 
-而2021年影响中共国经济生产贸易的大事件，诸如疫情对供应链的冲击、全国各地的天灾人祸、夏季的能源危机、房地产暴雷冲击建筑业与进口贸易、外资企业不断撤离、全球对中共的贸易制裁不断加剧，以及中共国最近实行的一系列货币宽松政策等，均证明，中共虚假操纵其进出口贸易数据。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-【参考链接】：
 
-[【愛谈财经】解析中共国造假的进出口贸易数据](https://gtv.org/video/id=61f6af0d96ba5d73e0bf38d6)
 
-[China’s Trade Surplus Hits Annual Record in 2021 — Saw Double-Digit Growth in Exports Every Month](https://www.breitbart.com/asia/2022/01/14/chinas-trade-surplus-hits-annual-record-in-2021-saw-double-digit-growth-in-exports-every-month/)
 
-[Trade in Goods with China](https://www.census.gov/foreign-trade/balance/c5700.html)
 
-[习近平和彭丽媛设宴欢迎出席北京2022年冬奥会开幕式的国际贵宾](http://www.gov.cn/xinwen/2022-02/05/content_5672094.htm)
+![This image has an empty alt attribute; its file name is b47c377e73a84c579cc5eeadd5bf5f2d.jpeg](https://p7.itc.cn/q_70/images03/20210409/b47c377e73a84c579cc5eeadd5bf5f2d.jpeg)（俄乌边境一处俄军营地）（图片来自搜狐网）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
 
-编辑：雪梨
 
-校正/发稿：浪迹天涯
+据台媒报导，美国驻联合国大使31日指责俄罗斯不仅侵略成性，且将乌克兰与西方国家丑化为侵略者，企图制造开战借口。
+
+与此同时，俄罗斯军方宣布从乌克兰边界地区撤军9000人，但尚难以判定此次局部撤军是否代表俄方有意降低紧张态势。白俄罗斯位于乌克兰北部，是俄罗斯在东欧最忠实的盟友。白俄罗斯军方上周宣布，驻乌俄军将在2月的两国大规模联合军演之后撤离。
+
+此前，俄罗斯曾要求美国与北约不要对乌克兰开放门户，遭到拒绝。《华盛顿邮报》1月31日报导，针对美国与北约的方案，莫斯科也已提出书面响应，各方将持续秘密磋商。
+
+参考链接：
+
+[https://tw.news.yahoo.com/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F-%E7%BE%8E%E4%BF%84%E8%81%AF%E5%90%88%E5%9C%8B%E5%A4%A7%E4%BD%BF%E5%94%87%E6%A7%8D%E8%88%8C%E5%8A%8D-%E4%BD%86%E4%BF%84%E7%BE%85%E6%96%AF%E6%92%A4%E8%BB%8D9000%E4%BA%BA-%E5%8F%AC%E5%9B%9E20%E8%89%98%E8%88%B9%E8%89%A6-040039390.html》](https://tw.news.yahoo.com/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F-%E7%BE%8E%E4%BF%84%E8%81%AF%E5%90%88%E5%9C%8B%E5%A4%A7%E4%BD%BF%E5%94%87%E6%A7%8D%E8%88%8C%E5%8A%8D-%E4%BD%86%E4%BF%84%E7%BE%85%E6%96%AF%E6%92%A4%E8%BB%8D9000%E4%BA%BA-%E5%8F%AC%E5%9B%9E20%E8%89%98%E8%88%B9%E8%89%A6-040039390.html》)
+
+编辑/校对/发稿：有莫举名
+
+![This image has an empty alt attribute; its file name is image-75.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/image-75.jpeg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -35,7 +37,11 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-25.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
