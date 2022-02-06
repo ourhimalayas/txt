@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|德国、日本的中共病毒感染率再创新高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966338/)
+## 樱花头条┃日本首相官邸接连有人确诊 感染者曾与岸田会面
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1966379/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2 月2日，据相关媒体报道，德国当天的中共病毒新增感染病例高达20万例，再次突破了此前该国单日新增病例的峰值。目前，德国中共病毒的总感染人数超过一千万。另一方面，该国因中共病毒感染死亡的患者也增加了 196 人，其总死亡人数接近12万。据德国卫生部长预计，奥密克戎变种病毒或将继续在该国肆虐至2月中旬。彼时，该国的单日新增病将会超过40万例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-04-%E4%B8%8B%E5%8D%8810.21.14.png)
-同一天，日本政府也报告了超过9万例的单日中共病毒新增确诊病例，这一数字同样刷新了该国单日确诊数的新纪录。目前，为了应对再次爆发的奥密克戎疫情，政府允许地方当局要求餐饮场所缩短营业时间，并限制或停止供应酒类。
+撰稿：东京樱花团/樱花传媒
 
-此外，有消息显示，为了应对医疗系统日益增长的压力，日本包括东京、神奈川、大阪和福冈在内的部分地区允许医生在不进行测试的情况下，直接把与感染者生活在同一家庭并且出现症状的密切接触者诊断为中共病毒阳性。
+据日本共同社5日报道，由于新冠病毒奥密克戎毒株疫情急速扩大，日本首相官邸也接连出现感染者，与首相岸田文雄连日见面的官房副长官矶崎仁彦出现症状，4名职员检测结果也呈阳性。
 
-对此，日本首相岸田文雄表示，尽管近期日本的感染人数激增，但他不会考虑宣布东京进入紧急状态。
+矶崎1月28日未出席内阁会议，检测呈阳性。40至60多岁的4名男性职员也确认感染。这是自去年4月以来又有职员感染新冠。岸田身边人员表示“谁感染都不奇怪。”
 
-文字版原文：[德国、日本的中共病毒感染率再创新高](https://gnews.org/zh-hans/1958278/)
+不过，岸田仍在官邸继续会晤阁僚和中央政府各部门官僚等。官邸相关人士说明称“因为也有紧急事件，面对面沟通意见比较理想”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+信息来源：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[https://www.gettr.com/post/pssfaq137c](https://www.gettr.com/post/pssfaq137c)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-2.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
