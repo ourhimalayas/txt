@@ -2,26 +2,34 @@
 ---
 
 
-## 商业利益集团正游说美国剥离对中共贸易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962994/)
+## 各国孔子学院关闭进展迅猛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962995/)
 
-作者：银河系农场—骄子
+作者：纽约香草山农场-兰兰
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月3日，据相关媒体消息显示，美国的商业利益集团正在游说美国的立法者删除那些可能损害本土企业但有利于中共贸易的法案。同时，他们希望政府可以审查美国个人或机构在中共国的私人投资，并对来自中共国的货物征收新的关税。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.00.png)https://bamanewsnow.com/
-该商业集团指出，众议院法案中的某些贸易政策会损害美国在当地的企业，并把额外的成本转嫁给美国消费者。特别是美国将军事和医疗设备等关键物资的生产转移到中共国和俄罗斯等敌对国家，这会使美国企业难以在全球市场上竞争、成长和扩张。
+据综合消息显示，截至2022年1月18日，包括加拿大、美国、澳大利亚、法国、瑞典、德国、丹麦、比利时、瑞士、挪威以及荷兰在内的11个国家停止一切相关活动或关闭孔子学院和孔子课堂的总数高达122所。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.19.png)https://no-confucius-institutes.org/
+在美国，当地先是在1月6日通报关闭了94所孔子学院，其后，政府又在接下来的两周内关闭了另外三所。目前，全美已有97所孔子学院已经或正在关闭。
 
-为此，该集团提出，政府应该减缓在中共国的投资，并重新评估那些在中共国开展业务的美国公司。目前，中共国在半导体和呼吸器等关键物资方面已经对美国造成了国家安全威胁。
+资料显示，自2004年起，中共政府逐步开始在海外成立孔子学院。截至2019年12月，其已在全球162个国家或地区建立了550所孔子学院以及超过一千个中小学孔子课堂。
 
-另一方面，该集团也强调，美国当前对中共国商品的征税方式存在巨大的漏洞，而中共政府可借由这些漏洞逃避美国的关税和监督，从而使那些非法和有害产品更容易进入美国。尤其是涉及强迫劳动和知识产权盗窃的产品正在严重威胁着美国的经济和国家安全。
+直至2013年，海外的孔子学院终于开始陆陆续续地被逐一关闭，其中，加拿大麦克马斯特大学的孔子学院成为全球第一所被关闭的孔子学院。
 
-据了解，拜登政府已经逐步重视针对中共贸易竞争的立法，以便推动美国制造业的发展和修复供应链。消息称，拜登政府正在敦促立法者尽快完成相关法案的设立。
+2019年12月，瑞典通报关闭了其境内的4家孔子学院，并于2020年4月叫停了该国最后一个孔子课堂，成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。随后，德国联邦教育部长安贾·卡利泽克也于2021年10月呼吁终止该国境内所有的孔子学院。
 
-参考链接：[Business interests take aim at China competitiveness bill](https://thehill.com/business-a-lobbying/business-a-lobbying/592583-business-interests-take-aim-at-china-competitiveness)
+此外，法国国防部下属的军事学院战略研究所近日公布的一份 《中共国影响力行动》分析报告指出，中共政府一直透过孔子学院在海外推行统战手段并大肆宣传其意识形态。当中，该报告还详细阐述了中共近年来通过渗透海外的华人社区、媒体、外交、经济、政治、教育、文化与智库等领域，用以扩张其在全球影响力的恶劣行为。
+
+参考链接：
+1）[How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
+2）[https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf](https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf)
+3）[比利时大学关闭孔子学院 涉间谍指控](https://www.rfa.org/mandarin/Xinwen/11-12112019152406.html)
+4）[拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/%E6%8B%92%E7%BB%9D%E4%B8%AD%E5%85%B1%E6%94%BF%E6%B2%BB%E5%AE%A3%E4%BC%A0%EF%BC%81%E5%BE%B7%E5%9B%BD%E6%B1%89%E5%A0%A1%E5%A4%A7%E5%AD%A6%E5%AE%A3%E5%B8%83%E5%85%B3%E9%97%AD%E5%AD%94%E5%AD%90%E5%AD%A6/)
+5）[北欧第二国：挪威关闭孔子学院](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-03192021135434.html)
+6）[法国重磅报告披露孔子学院真面目](https://www.epochtimes.com/gb/21/9/25/n13259615.htm)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Irene木木
+总编：飞虹
 编辑：静言
 校正/发稿：呼吸的雾霾（文小呼吸）
 

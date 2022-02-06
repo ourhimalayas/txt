@@ -2,8 +2,8 @@
 ---
 
 
-## 独裁都认为死人是独裁和国家强大的必然基础
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963296/)
+## 约翰犯的愚蠢的错误
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963406/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

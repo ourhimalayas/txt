@@ -2,18 +2,22 @@
 ---
 
 
-## 美国发布外国应用软件新政策再审抖音
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962993/)
+## 商业利益集团正游说美国剥离对中共贸易
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962994/)
 
 作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.51.png)https://gamerant.com/tiktok-sue-us-government/
-据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
+2月3日，据相关媒体消息显示，美国的商业利益集团正在游说美国的立法者删除那些可能损害本土企业但有利于中共贸易的法案。同时，他们希望政府可以审查美国个人或机构在中共国的私人投资，并对来自中共国的货物征收新的关税。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.00.png)https://bamanewsnow.com/
+该商业集团指出，众议院法案中的某些贸易政策会损害美国在当地的企业，并把额外的成本转嫁给美国消费者。特别是美国将军事和医疗设备等关键物资的生产转移到中共国和俄罗斯等敌对国家，这会使美国企业难以在全球市场上竞争、成长和扩张。
 
-早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
+为此，该集团提出，政府应该减缓在中共国的投资，并重新评估那些在中共国开展业务的美国公司。目前，中共国在半导体和呼吸器等关键物资方面已经对美国造成了国家安全威胁。
 
-参考链接：[TikTok’s ties to China are under scrutiny once again as Biden weighs new rules for foreign apps](https://www.businessinsider.com/tiktoks-connection-to-china-under-scrutiny-biden-weighs-new-rules-2022-2)
+另一方面，该集团也强调，美国当前对中共国商品的征税方式存在巨大的漏洞，而中共政府可借由这些漏洞逃避美国的关税和监督，从而使那些非法和有害产品更容易进入美国。尤其是涉及强迫劳动和知识产权盗窃的产品正在严重威胁着美国的经济和国家安全。
+
+据了解，拜登政府已经逐步重视针对中共贸易竞争的立法，以便推动美国制造业的发展和修复供应链。消息称，拜登政府正在敦促立法者尽快完成相关法案的设立。
+
+参考链接：[Business interests take aim at China competitiveness bill](https://thehill.com/business-a-lobbying/business-a-lobbying/592583-business-interests-take-aim-at-china-competitiveness)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 

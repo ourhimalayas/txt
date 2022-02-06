@@ -2,24 +2,32 @@
 ---
 
 
-## 联合国秘书长与习近平会面 协商人权专员访问新疆的表演
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963042/)
+## 有声|为显亲民 中共冬奥开幕式致数百群众染疫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1963095/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-3.jpg)
-日本每日新闻报，5日，来华出席北京冬奥会开幕式的联合国秘书长古特雷斯会见了习近平主席和国务委员兼外交部长王毅。其中就联合国高级专员米歇尔·巴切莱特关于访问新疆维吾尔自治区一事 “希望人权事务高级专员办事处与中国当局的联系能够实现可信赖的访问”。
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2月4日，郭文贵先生在最新的大直播节目中爆料，在为期两个月的冬奥会开幕式封闭排练期间，已确定有数百名无辜民众因参加演出而感染中共病毒，在此期间甚至还出现了十余例的死亡病例。
 
-联合国表示，古特雷斯先生感谢中国对联合国和多边主义的大力支持。他说，他“了解”中国应对气候变化的努力，但呼吁进一步努力加快向绿色经济的转型。此外，还讨论了阿富汗等问题。
+据了解，在此次的北京冬奥会开幕式中，中共当局为了凸显出人民群众的积极参与，竟动用了3000余名的普通民众来参与演出，其中95%都是青少年，甚至还有四、五岁的儿童和年逾七十的老年人。
 
-对于北京冬奥会，批评新疆维吾尔自治区人权状况的美国和英国展开了“外交抵制”。据美媒报道，美国驻联合国大使托马斯·格林菲尔德要求古特雷斯先生缺席开幕式，但古特雷斯先生解释说不能得罪联合国主要国家中国。托马斯·格林菲尔德说，他至少呼吁关注中国的人权问题。
+据墙内的一位马姓女士爆料，仅在自己所负责的一个节目中，就有超过一半以上的儿童演员因感染疫情而被迫隔离、退出，其所排练的节目也因此取消。而这一切闹剧、惨剧的发生都应归咎于中共官员罔顾人命的“形式主义”作风。
 
-信息来源：
+文字版原文：[为显亲民 中共冬奥开幕式致数百群众染疫](https://gnews.org/zh-hans/1961517/)
 
-[国連事務総長、習近平氏と会談　「人権高等弁務官の新疆訪問に期待」](https://news.yahoo.co.jp/articles/f38ec13b30dde4161f78d519404bcdd527d7d9ef)
+音频处理/发稿：Daxia
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
