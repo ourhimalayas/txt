@@ -2,27 +2,30 @@
 ---
 
 
-## 奥地利成欧洲首个立法强制接种疫苗的国家
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967026/)
+## 加拿大阿省省长将于下周宣布疫苗护照结束日期
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967027/)
 
-作者：台湾宝岛农场 – 阿尔道夫
+作者：加拿大温哥华扬帆农场 – Spirit
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月4日，奥地利政府签署立法，强制成人必须接种疫苗，成为欧洲第一个立法实施疫苗强制令的国家。
+国外媒体2月4 日报道，加拿大阿尔伯塔省省长肯尼表示，将在下周宣布结束该省中共病毒疫苗护照的日期。他还并表示，只要医院的压力继续下降，就会在本月底前结束几乎所有的中共病毒限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-6.png)
 
-据悉，该新法的有效截至日期为2024年1月31日。新法实施后，未持有疫苗接种或豁免证明的人，可能会面临600欧元罚款，且每年可罚4次，直至新法有效期结束，一个人最高面临的罚款可达3600欧元。
+据悉，因政府对抗中共病毒政策，1月份，加拿大劳动力市场减少约20万个工作岗位。一周来，肯尼省长受到了来自各方的压力，民众普遍认为疫苗护照侵犯了个人权利，必须立即被取消。
 
-此外，德国国会也计划在于3月底表决德国推行疫苗强制令的法案。
+肯尼省长发表推文表示，民众需要继续自由、快乐地生活。
 
 参考链接：
 
-- [歐洲首例 奧地利立法強制成人打新冠疫苗](https://udn.com/news/story/121707/6076903?from=udn-catelistnews_ch2)
+- [Premier Jason Kenney to announce next week the date Alberta will end its COVID-19 vaccine passport](https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/)
+- [https://twitter.com/jkenney/status/1489635789763866624](https://twitter.com/jkenney/status/1489635789763866624)
+- [https://twitter.com/jkenney/status/1489691362794491904](https://twitter.com/jkenney/status/1489691362794491904)
+- [Canada snaps 7-month run of job gains after Omicron saps growth](https://www.bnnbloomberg.ca/canada-lost-200-100-jobs-in-january-as-omicron-hit-economy-1.1718348)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：飞虹
+总编：Jack Li 文阳
 编辑：飞虹
 校正/发稿：海阔天空1
 
