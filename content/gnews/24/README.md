@@ -2,24 +2,28 @@
 ---
 
 
-## 中日财经爆|北京冬奥开幕式美国收视人数仅为上届一半
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964236/)
+## 有声|维生素D与自然免疫被证实在疫情中更有效
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1964253/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-536.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=TVQLg4KxorRn0M)
-NBCUniversal(美国国家广播环球集团)初步资料显示，NBC转播的北京冬季奥运开幕典礼吸引近1400万美国民众收看，电视收视人数仅约4年前上届冬奥一半。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月2日，据综合消息显示，一份针对未接种中共病毒疫苗群体的研究报告指出，相较于疫苗接种者而言，这一群体拥有的自然免疫力在对抗中共病毒方面更加有效且持久。其中，感染中共病毒后康复的人群，其体内的病毒抗体可以持续20个月之久。
 
-今年的北京冬奥开幕典礼1400万收视人数，包括透过NBC电视收看美东时间昨天上午6时30分起北京冬奥开幕典礼现场转播众，以及美东时间晚间8时起收看黄金时段播出的观众。
+此外，以色列科学家也在近期的一项研究中发现，提高人体内维生素D的水平可以有助于中共病毒患者降低疾病加剧或死亡风险。研究结果指出，维生素D对中共病毒具有良好的预防及控制作用，其作用原理在于维生素D能有效加强人体的免疫系统，从而达到防止重症和死亡的效果。
 
-2018年韩国平昌冬奥开幕典礼则吸引2790万人在电视机前收看。
+文字版原文：[维生素D与自然免疫被证实在疫情中更有效](https://gnews.org/zh-hans/1961375/)
 
-美国国家广播环球集团为美国地区奥运转播权支付了76.5亿美元，可转播奥运至2032年。
+音频处理/发稿：Daxia
 
-消息来源：[北京冬奥开幕式美国收视不如上届1400万人收看仅上届一半](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E9%96%8B%E5%B9%95%E5%BC%8F%E7%BE%8E%E5%9C%8B%E6%94%B6%E8%A6%96%E4%B8%8D%E5%A6%82%E4%B8%8A%E5%B1%86-1400-%E8%90%AC%E4%BA%BA%E6%94%B6%E7%9C%8B%E5%83%85%E4%B8%8A%E5%B1%86%E4%B8%80%E5%8D%8A-050941428.html?guce_referrer=aHR0cHM6Ly90dy5uZXdzLnlhaG9vLmNvbS8&amp;guce_referrer_sig=AQAAABFIj2JlKUtcvuc0Ua1f9uiByAigOesjRyhTLG2fr0IzngmEflD-yv7WmFbAJVEs-s5coV0fCalyuYMNa5vQkIc52YQgi3Xv9XlF-VJR9aJ9d0SJIbjQN8Gzm8aGuJ_rok2TmhJmXCb88LsENgXwuJRnm-qjCQJqbFoOqLoVxN61&amp;_guc_consent_skip=1644124872)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

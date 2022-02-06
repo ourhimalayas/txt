@@ -2,26 +2,31 @@
 ---
 
 
-## 加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964037/)
+## 美议员敦促当局警惕中共利用冬奥推广数字货币
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1964127/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-4.jpg)
-加拿大总理贾斯汀-特鲁多在周五纪念冬奥会开幕的一份尖锐声明中，省略了对主办国的传统祝贺，而是抨击中共国的人权记录。特鲁多在总理办公室发表的一份声明中说：“在国际舞台上，加拿大一直是保护和促进人权的一个强有力的声音，我们对中国侵犯人权的报道极为关注，包括对维吾尔人的迫害。”
+![上海一家商场交款处设有“欢迎使用数字人民币”的牌子。（2021年3月8日 法新社）](https://gdb.voanews.com/71B527A0-1A84-4455-BAF5-4E93F1C5BE8C_w1023_r1_s.jpg)上海一家商场交款处设有“欢迎使用数字人民币”的牌子。（2021年3月8日 法新社）
+据美国之音2月6日报道，美国国会参议员帕特·图米3日敦促拜登行政当局密切注意中共国在冬奥会期间使用数字货币的情况。中共国正在利用这次国际体育盛会把中共国央行数字人民币(e-CNY)推向海外。
 
-他重申，由于中共国在人权方面的记录，加拿大将不派任何外交代表参加北京奥运会。
+中共国从1月4日开始在10个试点城市推广可在网上下载的数字人民币。图米要求财政部和国务院通报2022年冬奥会期间中共国公民和外国访问者使用数字人民币的情况、(中共国)发行电子人民币的总量、以及e-CNY的推行会给美国政府提供哪些教训等情况。美联储表示，在得到国会授权之前，不会启动相关研究。
 
-然而，他向参加奥运会的加拿大运动员表示祝愿，许多加拿大新闻评论员已开始将其称为“种族灭绝运动会”。
+中共在冬奥会之前启动了数字人民币系统，为了进一步洗劫人民财富和抢占国际数字金融市场。中共从来不按规则出牌，从来不遵守任何条约。中共抢先下手，如果美国和其他国家选择观望，不随后跟进，只怕会受亏损。中共从来不会给他国带来利益，只有灾难和贫穷。
 
-特鲁多和他的内阁于去年12月宣布了抵制奥运会的决定。
+新闻参考链接：[https://www.voachinese.com/a/republican-senator-urges-u-s-to-monitor-china-s-digital-yuan-push-during-olympics-20220205/6428067.html](https://www.voachinese.com/a/republican-senator-urges-u-s-to-monitor-china-s-digital-yuan-push-during-olympics-20220205/6428067.html)
 
-信息源：
+编辑：胖丁
 
-[Trudeau criticises China’s human rights record as Olympics begin](https://www.hindustantimes.com/world-news/trudeau-criticises-china-s-human-rights-record-as-olympics-begin-101644046160573.html)
+* * *
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

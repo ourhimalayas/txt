@@ -2,23 +2,19 @@
 ---
 
 
-## 七哥金句
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964388/)
+## 圣诞节冬奥会后的疫情灾难会使美国西方更加行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964429/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-我一再告诉你们要备药，你们要备药备药！防范意识比什么解药都管用！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-1.001.jpeg)
-2022年1月7日文贵大直播
+*发布：陶子*
 
-*发布：tianzhihuan*
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

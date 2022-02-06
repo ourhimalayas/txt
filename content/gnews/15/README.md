@@ -2,24 +2,28 @@
 ---
 
 
-## “卖台贼”洪秀柱在北京喊“反独促统”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964332/)
+## 七哥是改变天下的人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964400/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-539.png)图片来源于本文链接
-国民党前主席洪秀柱4日受邀出席中共国北京冬奥开幕式，5日还会见中共国全国政协主席汪洋，台湾陆委会警告，应留意中共统战分化操作。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-汪洋昨在北京会见洪秀柱，汪洋提到，两岸统一的历史大势任何势力都阻挡不了，洪秀柱则期望两岸在“反独促统”的目标上继续迈进。
+七哥有多爱你们啊，所以说我这两天流水的时候，我看完自己，你七嫂没看过那个照片，郭美从来没看过。她都没看过，她俩看过触动很大。
 
-台湾陆委会6日强调，台湾民意从未接受中共矮化侵犯台湾的政治主张与两岸关系路径，台湾的未来发展更非中共当局可以置喙干预。陆委会也呼吁，各界进行两岸交流，应留意中共统战分化操作、遵守相关规范，“切勿参与配合对岸的民主协商”，维护台湾整体利益。
+郭美以为她爹就是小的时候，是个什么样的人呢？她一看她爹那样吓一大跳，你七嫂子也吓大跳。但是你知道，珍藏我这个照片的人，珍藏了40几年。然后就是这么给我发过来了，他已经身在海外了。在海外几十年收藏了七哥照片，当年他就相信七哥是改变天下的人。他没看错，一个东北赵家沟，山沟里边在白杨树前边，我就在我手机里啊。
 
-陆委会指出，中共当局近期藉由主办冬奥进行统战宣传工作，更透过与相关国家、我方人士互动，倡议其错误的“一中原则”，及以欺骗本质的“民主协商”企图达成所谓“一国两制台湾方案”目标，我方坚决反对。
+你知道这照片太珍贵了，啥时候推呢？现在就没有人问，你四个就没人问，你们之麻木让七哥很伤心，就我这么大事儿，你们4个就没人说一句。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥是改变天下的人-.jpg)
+2022年1月7日文贵大直播
 
-消息来源：[洪秀柱会汪洋喊「反独促统」 陆委会批：北京统战分化操作](https://tw.news.yahoo.com/%E6%B4%AA%E7%A7%80%E6%9F%B1%E6%9C%83%E6%B1%AA%E6%B4%8B%E5%96%8A-%E5%8F%8D%E7%8D%A8%E4%BF%83%E7%B5%B1-%E9%99%B8%E5%A7%94%E6%9C%83%E6%89%B9-%E5%8C%97%E4%BA%AC%E7%B5%B1%E6%88%B0%E5%88%86%E5%8C%96%E6%93%8D%E4%BD%9C-042414757.html?guce_referrer=aHR0cHM6Ly90dy5uZXdzLnlhaG9vLmNvbS8&amp;guce_referrer_sig=AQAAABFIj2JlKUtcvuc0Ua1f9uiByAigOesjRyhTLG2fr0IzngmEflD-yv7WmFbAJVEs-s5coV0fCalyuYMNa5vQkIc52YQgi3Xv9XlF-VJR9aJ9d0SJIbjQN8Gzm8aGuJ_rok2TmhJmXCb88LsENgXwuJRnm-qjCQJqbFoOqLoVxN61&amp;_guc_consent_skip=1644126495)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

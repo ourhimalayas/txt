@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党竟然想着操控一切事情
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964457/)
+## 有些人可能是永远的无名英雄
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964508/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

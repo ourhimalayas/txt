@@ -2,22 +2,20 @@
 ---
 
 
-## 联合国秘书长：希望北京允许人权特使访新疆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964448/)
+## 哈尔巴拉耶夫的事情是新中国联邦走向东欧的一个里程碑
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964488/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-540.png)
-联合国表示，秘书长古特瑞斯（Antonio Guterres）2月5日告诉北京领导人，希望当局允许联合国人权事务高级专员巴舍莱到中共国进行“可信的”访问，包括停留新疆。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-根据联合国提供的会谈内容，古特瑞斯在北京冬季奥运场边与中国国家主席习近平和外交部长王毅会面时，对两人“表示，期望联合国人权事务高级专员公署（Office of the UN High Commissioner for Human Rights, OHCHR）与中国当局的接触，能促成人权事务高级专员到中国进行可信的访问，包括新疆”。
+*发布：*Frank2021
 
-而中共新华社发出的会谈新闻并未提及人权议题。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-信息源：[UN秘书长：盼北京允人权特使访新疆](https://www.swissinfo.ch/chi/un%E7%A7%98%E4%B9%A6%E9%95%BF-%E7%9B%BC%E5%8C%97%E4%BA%AC%E5%85%81%E4%BA%BA%E6%9D%83%E7%89%B9%E4%BD%BF%E8%AE%BF%E6%96%B0%E7%96%86/47324502)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

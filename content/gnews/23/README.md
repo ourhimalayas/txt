@@ -2,33 +2,28 @@
 ---
 
 
-## 中俄结盟麻烦多，白宫提醒北京小心后果
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1964252/)
+## 俄确诊选手爆料遭不公待遇 北京隔离餐难以下咽
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964266/)
 
-![白宫发言人萨琪(资料照）](https://gdb.voanews.com/a74de8a4-2091-404d-b156-ef86d937f495_w1023_r1_s.jpg)白宫发言人萨琪(资料照）
-据美国之音2月6日报道，俄罗斯总统普京4日在参加北京冬奥会期间与中共国国家主席习近平举行会谈。双方发表联合声明，对北约东扩表示反对。美国和北约随后作出回应，北约领导人拒绝中俄要求北约停止东扩。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-538.png)[图片来源](http://www.femisports.com/russian-biathlete-valeria-vasnetsova-misses-beijing-2022-olympics-due-to-covid-19/)
+北京冬奥会已经正式开幕，不过俄罗斯选手维斯内佐娃（Valeria Vasnetsova）飞抵北京后却被验出确诊中共病毒（新冠病毒Covid-19）无缘参赛，并于饭店隔离，不过她近日发文抱怨，指出饭店的伙食难以下咽，让她饿到胃痛、瘦到骨头都凸出来，还自曝自己每天都在哭。
 
-俄罗斯在俄乌边界部署了十几万大军，为阻止乌克兰加入北约。美国表示，如果俄罗斯再次入侵乌克兰，意味着中共国愿意“容许或者是默许”俄罗斯对乌克兰进行胁迫。白宫提醒北京，如果俄罗斯与乌克兰爆发武装冲突，将会影响到中共国的国际利益。
+维斯内佐娃是俄罗斯冬季两项（越野滑雪与射击）的选手，她在个人的Instagram发出隔离便当的菜色，只见里头有通心粉、橘色酱汁、烧焦的带骨肉、小块的马铃薯及一团疑似是鸡肉的白色物体，里头没有任何的绿色蔬菜。
 
-中共国在乌克兰问题上如果同俄罗斯过于密切，将会给自己带来两个不利后果。一是让自己成为美国国家安全战略的唯一焦点；二是激怒欧盟，促使欧盟加大对台湾的支持力度。目前国际社会正在为缓解乌克兰危机进行各种外交努力。法国总统、德国总理和外长、法国外长纷纷计划出访乌克兰。英国首相和土耳其总统也参与缓和乌克兰紧张局势。
+维斯内佐娃表示自己主要靠着吃几根通心粉过活，因为其他东西她根本吞不下去，已经连续5天都吃到这样的早餐、午餐与晚餐，陈述的同时还附上了呕吐的表情符号，所在饭店没有供应其他粮食，也等不到任何关于病毒检验结果的消息，她只能睡觉，更说自己“连起床的力气都没有”。
 
-俄罗斯盯着乌克兰、习近平盯着台湾，两个邪恶轴心国不满足于本国的独裁，一心想要对外扩张。一石激起千层浪，两石搅动半个世界，各国纷纷加入其中，各自算计自己的利益。有中共参与的任何事情，带来的一定是伤害和纷争。美国最大的威胁就是中共，台湾也是处在中共的打击范围之内。为了自身的利益和国家、地区、周遭的平安，必须反击中共。
+她更指出自己瘦了很多“骨头都凸出来”，因为实在太饿，自己胃很痛，感觉相当虚弱，眼底下更浮现很重的黑眼圈，她表示“希望一切快点结束，我每天都在哭，真的好累”。
 
-新闻参考链接：[https://www.voachinese.com/a/u-s-warns-conflict-would-hurt-china-s-interests-ukraine-update-20220205/6428010.html](https://www.voachinese.com/a/u-s-warns-conflict-would-hurt-china-s-interests-ukraine-update-20220205/6428010.html)
+除了伙食差劲，房内也没有跑步机、飞轮、壶铃等简便的训练设备，导致被隔离的选手除了睡觉，无其他事情可做，即便选手确诊无症状，都可能因为饭店环境而被闷出病来。
 
-编辑：胖丁
+斯内佐娃还偷看到，供应的餐点竟有区别之分，染疫的奥运选手与奥运工作人员吃的是不同种便当，染疫奥运选手的食物较差，她更附上队医的伙食证明，只见队医的隔离餐不仅有新鲜水果，还有沙拉、虾仁拌花椰菜等，这让维斯内佐娃感到无法理解，“为什么对我们这些运动员是这种态度？”
 
-* * *
+消息来源：[北京冬奥隔离便当太难吃！俄选手瘦到骨头突出：每天都哭](https://tw.news.yahoo.com/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7%E9%9A%94%E9%9B%A2%E4%BE%BF%E7%95%B6%E5%A4%AA%E9%9B%A3%E5%90%83-%E4%BF%84%E9%81%B8%E6%89%8B%E7%98%A6%E5%88%B0%E9%AA%A8%E9%A0%AD%E7%AA%81%E5%87%BA-%E6%AF%8F%E5%A4%A9%E9%83%BD%E5%93%AD-045853620.html?guce_referrer=aHR0cHM6Ly90dy5uZXdzLnlhaG9vLmNvbS8&amp;guce_referrer_sig=AQAAABFIj2JlKUtcvuc0Ua1f9uiByAigOesjRyhTLG2fr0IzngmEflD-yv7WmFbAJVEs-s5coV0fCalyuYMNa5vQkIc52YQgi3Xv9XlF-VJR9aJ9d0SJIbjQN8Gzm8aGuJ_rok2TmhJmXCb88LsENgXwuJRnm-qjCQJqbFoOqLoVxN61&amp;_guc_consent_skip=1644125435)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
