@@ -2,8 +2,8 @@
 ---
 
 
-## 报道之阴险：想要中国人恨我们
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962739/)
+## 被共产党洗脑的人不认为自己在作恶
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962770/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
