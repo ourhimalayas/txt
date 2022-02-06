@@ -2,28 +2,21 @@
 ---
 
 
-## 惊人的镜头：加拿大牛仔骑马加入抗议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1966667/)
+## 中共狙击手忽然暴毙 普京随行人员多人染病
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1966884/)
 
-翻译： Jenny Ball
+文贵先生爆料！北京冬奥前，有约97个国家元首和共产党承诺会参加，但最终只有33个到来。其中两个最有权势的人，一个是普京，住华尔道夫酒店，一个是阿布扎比王子，住四季酒店。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.jpg)图片来源：CDMedia
+有内部情报：
 
-随着加拿大专制当局试图阻止卡车驶入抗议区，加拿大的牛仔们加入战斗，并骑马前往抗议地点。
+1. 中共的狙击手领头突然死在盘古酒店边上。
 
-一位当地目击者宣称：“牛仔们今天在艾伯塔省库茨的美国/加拿大边境加入卡车司机和农民的行列。我的侄女正在前往加拿大另一个主要抗议地点的路上。其他抗议活动正在全国各地爆发。多伦多、魁北克市中心。昨天在新南威尔士州，州长刚刚颁布了更严格的措施，对全省任何地方的交通放缓处以高达 100,000 的罚款，对超过 10 人的聚会处以 2000 的罚款。这只能更加激励人们抗议。
+2.普京身边的陪同人员，有10多人染上病毒。华尔道夫酒店目前已有3人死亡，北京的疫情严峻。团队染病，普京大怒，抱怨中方连他们基本的安全、防疫都不能保障。
 
-自从 GoFundMe 昨天从卡车司机那里偷走了 1000 万美元后，新账号的捐款就捐爆了了……我打赌卡车司机会得到两倍的捐款。”
-
-**参考资料：**[CDMedia][Amazing Footage -The Canadian Cavalry Joins The Truckers As Cowboys On Horseback Join The Protest](https://creativedestructionmedia.com/news/politics/2022/02/05/amazing-footage-the-canadian-cavalry-joins-the-truckers-as-cowboys-on-horseback-join-the-protest/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+视频来源: 20220204—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 

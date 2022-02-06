@@ -2,37 +2,32 @@
 ---
 
 
-## 有声|德国、日本的中共病毒感染率再创新高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966338/)
+## 【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1966596/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2 月2日，据相关媒体报道，德国当天的中共病毒新增感染病例高达20万例，再次突破了此前该国单日新增病例的峰值。目前，德国中共病毒的总感染人数超过一千万。另一方面，该国因中共病毒感染死亡的患者也增加了 196 人，其总死亡人数接近12万。据德国卫生部长预计，奥密克戎变种病毒或将继续在该国肆虐至2月中旬。彼时，该国的单日新增病将会超过40万例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-04-%E4%B8%8B%E5%8D%8810.21.14.png)
-同一天，日本政府也报告了超过9万例的单日中共病毒新增确诊病例，这一数字同样刷新了该国单日确诊数的新纪录。目前，为了应对再次爆发的奥密克戎疫情，政府允许地方当局要求餐饮场所缩短营业时间，并限制或停止供应酒类。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/B1D98B46-8ADE-4CB3-8A53-18B2F5A57854.jpeg)
+据美联社报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）周六在推特上发文称，他的 COVID-19 检测呈阳性。
 
-此外，有消息显示，为了应对医疗系统日益增长的压力，日本包括东京、神奈川、大阪和福冈在内的部分地区允许医生在不进行测试的情况下，直接把与感染者生活在同一家庭并且出现症状的密切接触者诊断为中共病毒阳性。
+他写道：
 
-对此，日本首相岸田文雄表示，尽管近期日本的感染人数激增，但他不会考虑宣布东京进入紧急状态。
+“今天，我和妻子的 COVID-19 检测呈阳性，症状轻微。值得庆幸的是，我们正在经历轻微的症状，我们了解到的是 omicron 变体，”。“我们正在隔离。我们将继续在家工作。我们期待您的祈祷。”
 
-文字版原文：[德国、日本的中共病毒感染率再创新高](https://gnews.org/zh-hans/1958278/)
+67 岁的埃尔多安在通过视频链接出现在伊斯坦布尔的隧道开通仪式上，发送了这条消息，他取消了亲自露面。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8CFBE52E-EE2C-4584-8A83-91E5B5014ABF.jpeg)
+第一夫人艾米娜·埃尔多安（Emine Erdogan）在推特上回复说：“愿上帝保佑，我们将与塔伊普先生一起摆脱这种感染。”
+土耳其总统去年 6 月接种了第三剂疫苗。
+几位世界领导人祝愿埃尔多安和第一夫人早日康复。
+发来信息的有巴基斯坦总理伊姆兰汗、阿塞拜疆总统伊利哈姆阿利耶夫、北塞浦路斯土耳其共和国总统埃尔辛鞑靼和乌克兰总统泽连斯基。汗在他的推特账户上写道，“我代表我们的政府、巴基斯坦人民和我个人祝愿他们早日完全康复。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+土耳其最近几天出现了创纪录的 COVID-19 病例，卫生部周五报告了 111,157 例病例。12 月下旬，每日病例数约为 20,000，但由于高度传播的 omicron 变体而有所上升。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该国也因 COVID-19 感染病例导致大量死亡，周五报告有 248 人死亡，这是自 10 月以来的最高水平。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[援引链接：](https://apnews.com/article/coronavirus-pandemic-health-europe-recep-tayyip-erdogan-istanbul-089ac4910697c94f50005b54b725ba7c)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+撰稿/米拉娅
+审阅/邱杰斯
+上传/天赐良闻
 
  
 

@@ -2,46 +2,46 @@
 ---
 
 
-## 法院责令FDA于未来半年内公布辉瑞疫苗文件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967028/)
+## 生物技术公司：“未发现特定批次的副作用。”
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1967080/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月2日，德克萨斯州北区地区法院签发的一份判决书，责令美国食品和药物管理局FDA在未来的半年内，必须按期公开长度超过33万页的辉瑞中共病毒疫苗的审批文件，直到全部文件完全被公之于众。
+**疫苗制造商生物技术公司回应就个别批次的疫苗是否有明显的副作用的问题**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-6.png)
+作者：Michael Maier
 
-此前，FDA在回应遵守“信息自由法案 (FOIA) ”的初审判决时，请求以每月 500 页的速度公布与辉瑞疫苗相关的数十万份文件。该判决书表示，法院收到FDA要求修改排期令的动议，也收到一份联合状况报告，阐明了原、被告双方商定的时间表。法院根据这份时间表，批准了部分动议。命令：
+翻译：Luckycky/校对：澜馨筱竺
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-6.tiff)图片：Pradeep Dambarage/生物技术公司的 Covid-19 疫苗。
 
-1、FDA的报告必须在每个月的第一个工作日提交；
+总部位于美因茨的制药公司生物技术公司对五位化学家的声明做出了回应。这五位科学家在给生物技术公司首席执行官乌古尔·萨欣（Ugur Sahin）的信和另一份声明中对Covid 19疫苗提出了质疑。该公司已经对几个问题作了初步回应。
 
-2、FDA在3月、4月，各提交1万页；
+科学家们写道，关于添加剂ALC-0159和ALC-0315，欧洲药品管理局（EMA）对Covid-19疫苗有条件批准框架内使用的这些材料，规定了具体的要求。在申请有条件上市许可的年度延期时，这些要求仍被描述为正在批准中。
 
-3、FDA在5月、6月和7月各完成8万页；在8月完成7万页；此后在每个月的第一个工作日提交5.5万页，直到公布完毕。
+科学家们询问，为什么EMA的要求至今没有得到满足。生物技术公司的一位女发言人说：“该声明是错误的。这些要求已经得到满足。EMA最近再次向我们以及其他协会（如研究药物制造商协会（vfa））确认了这一点。”
 
-该判决书还允许提前完成公布页码数量，并且将每40行算作一页，而不是之前的20行算作一页。
+关于美国疾控中心（CDC）的疫苗副作用报告系统（VAERS）数据库显示的某些批次是否存在许多副作用的问题，这位女发言人在提到辉瑞和生物技术公司的数据库时说：“迄今为止，生物技术公司尚未发现任何特定批次的副作用。”
 
-参考链接：
+制药公司面临的问题在于，CDC 的数据不是公司在其第三方药物警戒流程中直接使用的数据。公司有法律义务报告他们在自己的数据库中收集的所有副作用。就生物技术公司而言，这是通过该公司与辉瑞公司共同使用的全球数据系统完成的。
 
-- [https://twitter.com/disclosetv/status/1489688729778274304?s=21](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
-- [UNITED STATES DISTRICT COURT FOR THE NORTHERN DISTRICT OF TEXAS FORT WORTH DIVISION](https://phmpt.org/wp-content/uploads/2022/02/056-ORDER-GRANTING-IN-PART-THE-MOTION-TO-MODIFY-THE-PRODUCTION-SCHEDULE-AND-ADDOPTS-THE-JOINT-STATUS-REPORT-MODIFIED-AGREED-PRODUCTION-SCHEDULE.pdf)
-- [FDA想75年才公布完疫苗数据却被法官大提速](https://gnews.org/zh-hans/1886642/)
-- [为什么法官命令 FDA 立即发布 Covid-19 疫苗数据](https://gnews.org/zh-hans/1891996/)
+客户、医生或辉瑞生物技术公司员工输入该系统的所有副作用都会被检查并报告给保罗-埃利希研究所（PEI）。报告在法律上是强制性的，公司通常会认真遵守。然而，对数十亿剂疫苗接种进行系统处理自然会带来问题。
 
+为了能够在全球范围内监测副作用，许多制药厂目前正在将其内部报告系统转换为自动化和人工智能。这意味着报告不再由人工接收，而是由系统接收。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+只有当监管机构与制造商联系以澄清任何异常情况时，官方报告系统（例如 VAERS 数据库）才会变得至关重要。就生物技术-辉瑞公司而言，根据《柏林日报》未经证实的信息，CDC和美国食物药品管理局（FDA）都没有与该公司联系以调查VAERS数据中的异常情况。Covid疫苗制造商认为，在已有10亿人接种了疫苗的情况下，任何系统性的问题都会很明显。
 
-总编：文真
-编辑：Delilah小胖
-校正/发稿：海阔天空1
+其他不愿意透露姓名的制药业内部人士表示反对，如果特定批次出现异常，通常在问题澄清之前会暂停交货。例如，2021年9月，日本因污染而停止交付多批摩德纳疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+神奈川县的一名药剂师在一个摩德纳小瓶中发现了黑色颗粒，并向日本监管机构报告了这一情况。西班牙摩德纳生产商Rovi随后承认，污染是由一台机器出现故障造成的。日本监督员表示，这种污染不太可能对健康造成任何损害。然而，该机构承诺将调查两起死亡事件是否与这种污染有关。日本疫苗经销商武田公司也强调调查的必要性。
+
+在公司之外很难进行特定批次的澄清。这是因为这些公司，如生物技术和辉瑞公司的Covid-19疫苗，是通过批发商向订购国提供疫苗。因此，按批次分配不再属于公司的控制范围。目前还不清楚PEI是如何进行批次控制的：该机构没有回应《柏林日报》的询问。
+
+然而，业内人士表示，对批次的分布情况有一个总体了解是很重要的。在批准后的最初几个月，疫苗主要用于养老院和医院，与以年轻人为主的群体相比，这些地方自然会产生不同的副作用结构。这种异常经过审查可能不会被归类为“与批次有关的副作用”。业内人士认为，为了提高透明度和建立信任，德国的PEI等监管部门最好采取积极的沟通政策。
+
+为了提前检查所有批次的产品，生物技术公司从每批产品中抽取40个小瓶作为样本，提交给德国的PEI等进行检查。据业内人士称，然后PEI（原文BEI）通过独立机构对样品进行双重检查。只有当所有的数据显示符合质量标准时，才能交付此批次产品 – 这是德国的行业标准。《柏林日报》就这一综合问题向PEI提出的询问至今仍未得到答复。
+
+原文链接：[https://www.berliner-zeitung.de/coronavirus/biontech-keine-chargenspezifischen-nebenwirkungen-bekannt-li.209996](https://www.berliner-zeitung.de/coronavirus/biontech-keine-chargenspezifischen-nebenwirkungen-bekannt-li.209996)
+
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

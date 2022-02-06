@@ -2,37 +2,32 @@
 ---
 
 
-## 中共国奥运冰球项目寄托在北美运动员身上
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1966985/)
+## 中国独裁者的邀请
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1967051/)
 
-据《福克斯新闻》转载美联社文章，2022年2月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-599-e1644170071241.png)2022年1月30日星期日，在北京，中共国球员在2022年冬奥会男子冰球训练课上听教练员讲话。
-图片来源：AP Photo/Petr David Josek
-2002年，当克里斯-切里奥斯和美国队冲进奥运会决赛时，儿子杰克就站在盐湖城的球场前排，梦想着有一天能追随父亲的脚步。
+**恐怖的奥运盛宴**
 
-20年后，杰克-切利奥斯参加了奥运会，但不是他所设想的方式。他是代表中共国参加北京奥运会的七名美国人之一，这支球队主要由外国球员组成。
+作者：Frank Schneider
 
-“我认为一半的家庭起初对发生的事情有些困惑，但现在他们开始明白这有多特别。” 切里奥斯说。他于2019年搬到北京，为昆仑鸿星队效力（大陆冰球联盟）。 “由于我们已经在这边呆了三年，不管怎样，你确实开始感觉到与中国的亲近。我们一直在吃中国的食物，生活在中国的文化中，所以你开始对中国有某种亲近感，你开始觉得你要代表他们，你想为他们赢。”
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-5.tiff)图片：Shen Hong/dpa
 
-在中共国男子曲棍球员名单上的25人中，有18人在北美出生或长大，还有1人是俄罗斯人。许多人，包括美国门将杰里米-史密斯和加拿大后卫瑞恩-斯普劳尔，在加入昆仑队之前没有中国血统或与中共国存在交集。
+什么样的餐桌！ 什么样的装饰！ 宾客名单上的恐怖内阁。
 
-国际冰球联合会规则允许在当地生活至少两年的球员代表所在国家。大流行病迫使昆仑搬迁到莫斯科地区，但国际冰联确认这些球员有资格参加比赛。
+中国国家元首习近平（68岁）在冬奥会开幕后的一天邀请各国元首共进晚餐–那是一场恐怖的盛宴。
 
-中共国球队将与美国、加拿大和德国队比赛。即使有北美人才的涌入，也有人担心东道国会在主场会遭遇大陆冰球联盟球星带来的尴尬。
+宾客包括：俄罗斯总统弗拉基米尔-普京（Wladimir Putin）（68岁），他的士兵正威胁着乌克兰。在场的还有：沙特阿拉伯王储穆罕默德-本-萨勒（Mohammed bin Salman），他因在其国家驻伊斯坦布尔大使馆雇佣谋杀记者贾马尔-卡舒吉（ Jamal Khashoggi）而受到国际社会的排斥。同样受到热烈欢迎的还有哈萨克斯坦总统卡西姆-绍马特-托卡耶夫（Kassym-Schomart Tokajew），他在1月份对反政府抗议活动进行了暴力镇压，并下令开枪。
 
-文章来源: [https://www.foxnews.com/sports/china-olympic-hockey-north-american-talent](https://www.foxnews.com/sports/china-olympic-hockey-north-american-talent)
+中国领导人在一对一会谈后赞扬了哈萨克斯坦领导人的路线，说他支持这种 “强硬的做法”。习近平说，中国准备 “帮助哈萨克斯坦保持稳定”。官方新华社援引他的话说，一个 “独立、安全、稳定和繁荣的哈萨克斯坦 “符合共同利益。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+许多备受瞩目的嘉宾缺席。由于与中国的紧张关系和东道国的侵犯人权行为，美国、加拿大、英国、澳大利亚和其他国家抵制了开幕式，没有派出任何政府代表。德国和日本也投了弃权票，但没有谈到抵制问题。
 
+顺便说一下，人民大会堂的桌子装饰描绘了冬季的雪景。他们要吃什么，不得而知。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+原文链接：[https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html](https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

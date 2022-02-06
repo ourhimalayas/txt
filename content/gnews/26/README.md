@@ -2,34 +2,25 @@
 ---
 
 
-## 开幕式庆典参与各方称身处“一场噩梦”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966643/)
+## 麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1966880/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月5日，郭文贵先生在盖特视频中，透露了参加4日冬奥会开幕式的各阶层人士的三点反馈：这里一切都是假的，简直是一场噩梦，中共完了。
+**采编****/翻译： 意翎  **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-5.jpeg)
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-596.png)
+周六，《华盛顿邮报》记者约瑟夫·封立克（Joseph Clark）报道，美国德克萨斯州众议员米切尔特·麦考尔（Michael T.McCaul）发起了一场广告宣传活动，抨击中国共产党（CCP）的滥权犯罪行为，并与2022年北京冬奥会报道的同时播出。
 
-郭先生指出，首先，开幕式的一切都透着“假大空”。看似华丽热闹的表演，但是，一切都是假的。其次，不管是组织还是个人，也无论是记者、官员，还是运动员，都感到处处透着令人恐惧的气氛，简直像是身处一场噩梦之中。第三，美国的抵制和外交撤离，让人感觉到这个国家充满了恐惧，让人感到没有任何希望。这一切表明：中共完了。
+这位众议院外交事务委员会的共和党领袖，也是共和党的中国问题特别工作组（GOP’s Task Force ）的主席说，中共利用奥运会来“粉饰他们的种族灭绝、军事侵略和对本国人民的压迫……我们不会对他们奴役人民的行为睁一只眼，闭一只眼”。 麦考尔在他的竞选团队周五发布的广告中说，“CCP正在对自己的人民进行种族灭绝……他们威胁要对美国和我们的盟友进行军事侵略。他们还在继续掩盖Covid-19的起源……现在他们想让我们看奥运会，忘记他们的罪行”，他说。
 
-郭先生说，这些与会人员终于相信了爆料革命，纷纷打听如何使用HPay，如何从中共国迅速安全转移资产。郭先生表示，只有一心一意的灭共，和新中国联邦战友团结在一起，才能拥有一切和未来。
+麦考尔置身于一个由两党组成的、旨在孰促国际奥委会(IOC)抵制中共政府在新疆的种族灭绝行为和反人类罪行的团体，一直对IOC允许北京举办奥运会的决定持批评态度。“我们会为美国队加油，同时我们也会谴责CCP和国际奥委会在道义上应受谴责的行为”，他说。
 
-参考链接：[https://gettr.com/post/pso6vra94f](https://gettr.com/post/pso6vra94f)
+在广告中，麦考尔呼吁观众，“支持运动员，不能让共产党人洗脑成功。”他在一份声明中说：“重要的是，美国人民站起来一齐对CCP的种族灭绝说不！”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+**[原文链接](https://www.washingtontimes.com/news/2022/feb/5/mccaul-campaign-runs-ad-targeting-beijing-olympics/)**
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
