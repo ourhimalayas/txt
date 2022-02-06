@@ -2,23 +2,25 @@
 ---
 
 
-## 教练被隔离 花样滑冰运动员感到“茫然”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966469/)
+## 中共解放军集结东南沿海意图侵略台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966470/)
 
-作者：纽约香草山 – 宁文静
+作者：美国纽约香草山农场 – 文鹰
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月5日，参加北京冬奥会的花样滑冰运动员，因其教练中共病毒检测结果呈阳性而未能成行，面临无教练指导训练的窘境。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.28.png)
-来自拉脱维亚的22岁的丹尼斯刚刚在上个月的欧洲锦标赛上赢得了铜牌。丹尼斯的瑞士教练史蒂芬·兰比尔表示，尽管完全接种，但在前往北京之前，因确诊而处于隔离状态，未能如期成行。丹尼斯说他非常需要兰比尔教练陪同参赛，随时为他提供指导和鼓励。
+2月4日大直播，郭文贵先生爆料称，据中共军方情报来源，得知中共解放军已经进入“准战争”状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.38.png)
+文贵先生在1月30日透露中共军方人士提供的情报，解放军东部战区从1月29日开始往福建沿海，进行兵力调动。此消息，随后在2月4日被中共解放军内部人士证实，距北京几千公里地区外，解放军东部战区和南部战区进入一级紧急战备，并完成开战前集结。台海战争一触即发。
 
-另一位由兰比尔执教的日本选手宇野昌磨在周五的团体赛短道速滑中取得了个人最佳成绩。他在2018年奥运会上获得银牌，被视为北京冬奥会的冠亚军竞争者。尽管表现不错，宇野仍然感觉不对劲。他的动作不够敏锐，情绪也不饱满。运动员参加奥运比赛无教练陪同简直匪夷所思，但在中共疫情笼罩下，两位运动员正在为教练无法来到赛场而感到无助与茫然。
+郭先生此前曝光中共的“双龙计划”，并多次在台湾问题上，揭露中共领导人对台发动侵略战争的意图。
 
-参考链接：[Figure skating-Left coachless by COVID, some skaters feel a void](https://www.reuters.com/lifestyle/sports/figure-skating-left-coachless-by-covid-some-skaters-feel-void-2022-02-05/?taid=61fe67ef70fd090001a86035&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+在国际社会对病毒溯源，疫苗真相的全面追责压力下，中共冬奥会惨淡收场，没能达到转移视线的目的。在内外交困中的中共领导人会更加疯狂，将不惜发动台海战争，来转移国内外矛盾。
+
+参考链接：[2022年2月4日 文贵大直播](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 总编：文真
-编辑：Jack Li文阳
+编辑：Ivy001
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

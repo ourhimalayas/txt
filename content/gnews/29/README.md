@@ -2,50 +2,67 @@
 ---
 
 
-## 巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1966404/)
+## 美国及世界疫情简报 （02-06-2022）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1966450/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+整理：波士顿五月花 老枪6
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01-1.jpg)
+**1．美国疫情**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+昨日美国新增新冠患者371,447人.总确诊人数为76,354,040人。新增死亡人数4,154人。总死亡 901,391人。
 
-本文摘自1月15日，巴西圣保罗科尔教学研究所（Instituto Kerr de Ensino e Pesquisa, São Paulo）、圣保罗州立大学（State University of São Paulo）动物科学系、圣保罗里贝朗普雷图医疗学校（Ribeirão Preto Medical School, University of São Paulo）遗传学系、里贝朗普雷托CTAG基因组评估技术中心（Centro Técnico de Avaliação Genômica C.T.A.G, Ribeirão Preto）、巴西利亚Corpometria 研究所、加拿大多伦多大学（University of Toronto）、美国剑桥EAFIT数据分析中心（Data Analysis, Universidad EAFIT）、美国前线Covid-19重症监护联盟 (Front-Line Covid-19 Critical Care Alliance，FLCCC)和伊塔雅伊市政厅（Itajaí City Hall, Itajaí）的Flavio A.Cadegiani博士等人发表的论文《[Strictly regular use of ivermectin as prophylaxis for COVID-19 leads to a 90% reduction in COVID-19 mortality rate, in a dose-response manner: definitive results of a prospective observational study of a strictly controlled 223,128 population from a city-wide program in Southern Brazil](https://www.researchgate.net/publication/358386329_Strictly_regular_use_of_ivermectin_as_prophylaxis_for_COVID-19_leads_to_a_90_reduction_in_COVID-19_mortality_rate_in_a_dose-response_manner_definitive_results_of_a_prospective_observational_study_of_a)》。
+康州新增新冠感染1,269人，新增死亡76人。
 
-文章介绍，2020年7月7日至2020年12月2日，在巴西圣卡塔琳娜州（state of Santa Catarina）伊塔雅伊市（city of Itajaí）开展一项使用伊维菌素（ivermectin）预防COVID-19的全民健康系统计划研究。本研究的目的是评估常规使用伊维菌素对预防COVID-19 感染和死亡率的影响。
+纽约州新增新冠确诊人数8,112人。新增死亡人数157人。
 
-测试组按每人每15天连续两天服用0.2mg/kg/天剂量的伊维菌素。在研究期间，建议被确诊的 COVID-19所有参与者不要使用伊维菌素（ivermectin）、硝唑尼特（nitazoxanide）、羟氯喹（hydroxychloroquine）、螺内酯（spironolactone）或任何其他声称对 COVID-19 有效的药物。该市也没有为感染 COVID-19 的参与者提供任何特定药物的门诊治疗。
+新泽西州昨天新增病例为3,023人。新增死亡为99人。
 
-在该市登记的223,128名居民中，61,583名因年龄不超过18岁没有被纳入研究范围。剩下18岁以上的161,545人中，1,984人因2020年7月7日之前有感染COVID-19记录也被排除在研究范围之外，最终确定159,561人纳入研究范围。
+马萨诸塞州新增新冠患者为32,011人, 死亡470人。
 
-在这159,561人中，最终113,845人在感染COVID-19之前接受了伊维菌素计划，占研究对象的71.3%，另外45,716人在研究期间未接受或不想接受伊维菌素，包含作为预防或治疗感染COVID-19后的药物，占研究对象的28.7%。
+马里兰州昨日新增新冠患者1,604人。新增死亡人数为44人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i01.jpg)
+加州昨日新增22,671人，死亡239人。得克萨斯州新增22,164人，死亡为169人。佛罗里达州新增80,808人，死亡1,009人。亚利桑那州新增9,077人，死亡为100人。乔治亚州新增8,798人，死亡108人。北卡罗来纳新增11,385人，死亡70人。田纳西州新增23,539人，死亡144人。华盛顿DC新增259人， 死亡2人。
 
-在来自伊塔雅伊市的113,845名服用伊维菌素作为预防COVID-19的参与者中，有4,197人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为3.7%，而45,716名未服用伊维菌素的参与者中，有3,034人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为6.6%。这7,345名感染者的信息如下：
+**2.世界疫情**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-1-Baseline-characteristics-of-subjects-enrolled-in-the-study-before-matching-and-after-scaled.jpg)
+1） 亚洲疫情：
 
-根据上面的结论，使用伊维菌素作为COVID-19预防性药物，COVID-19感染率降低了（6.6%-3.7%）÷6.6%=44%。
+昨日印度新增新冠患者127,952人；日本新增98,177人；印尼新增32,211人；菲律宾新增8,541人；孟加拉新增9,052人。土耳其新增111,157人。台湾昨日新增71, 韩国昨日新增36,362人, 中国新增249人。
 
-从使用伊维菌素作为COVID-19预防性药物的COVID-19的4,197名感染者中，抽取3,034作为研究亚组，每组3,034人，共6,068人COVID-19感染者的后续调查中，使用伊维菌素作为预防药物的感染者住院44人，感染COVID-10后的住院率为1.6%，未使用伊维菌素作为预防药物的感染者的住院99人，感染COVID-10后的住院率为3.3%，使用伊维菌素作为预防药物住院率降低56%率，对变量进行调整后，住院率降低了67%。
+2）非洲疫情：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i02.jpg)
+南非昨日新增新冠患者\_人。埃塞俄比亚新增163人。摩洛哥新增2,266人。
 
-使用伊维菌素作为预防性药物的感染者死亡25人，感染COVID-19后的死亡率为0.8%，未使用伊维菌素作为预防性药物的感染者死亡79人，死亡率为2.6%。因此，使用伊维菌素作为预防性药物，死亡率降低68%，调整后的死亡率降低了70%。
+3）拉美疫情：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-2-Propensity-score-matched-hospitalization-and-mortality-rate-among-ivermectin-users.jpg)
+巴西昨日新增新冠患者218,560人；哥伦比亚新增13,390人。阿根廷新增40,094人。智利新增38,707人。墨西哥新增78,178人。
 
-在开始使用伊维菌素作为预防COVID-19计划之前和开始使用伊维菌素作为预防COVID-19期间，伊塔雅伊市COVID-19住院率比较中，感染COVID-19后，使用伊维菌素作为预防COVID-19药物的住院率从计划开始前的6.8%下降到计划开始后的1.8%，死亡率从3.4%下降到1.4%。
+4）欧洲疫情
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-4-Hospitalization-and-mortality-rates-registered-in-the-city-of-Itajai-Brazil-before-versus.jpg)
+俄罗斯昨日新增新冠患者166,957人。德国新增214,386人。法国新增242,349人。英国新增82,470人。意大利新增100,900人。西班牙新增74,937人。
 
-参考数据：
+5）全球新冠总感染人数为392,917,398人。总死亡人数为5,732,506人。
 
-[Ivermectin Prophylaxis Used for COVID-19: A Citywide, Prospective, Observational Study of 223,128 Subjects Using Propensity Score Matching](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8765582/)
+**3． 新闻简报**
 
-[Ivermectin for preventing and treating COVID-19](https://pubmed.ncbi.nlm.nih.gov/34318930/)
+1。拜登政府放弃了对伊朗民用核活动有关的制裁，作为其努力使该政权重新遵守 2015 年核协议的一部分，同时强调豁免并不等于对德黑兰的制裁减免。
+2。周五，美国因 COVID-19 造成的死亡人数超过了 900,000 人。截至周六下午，约翰霍普金斯冠状病毒资源中心的数据显示，美国已有 901,391 人死亡。
+3。在一个环保组织发布了该事件的戏剧性视频和照片后，法国和欧盟正在调查为什么一艘巨大的拖网渔船在法国附近的大西洋上释放了大量死鱼。
+4。研究人员研发了一种由回收的凯夫拉尔纤维（Kevlar fibers）制成的新电池膜，它可能会解锁一种名为锂硫的新型电池，使电动汽车的续航里程增加五倍。
+5。克利夫兰诊所的一项新调查发现，三分之一的美国人不知道压力会增加患心脏病的风险。
+6。一位生活在墨西哥66 岁的美国单身退休人员称，我主要靠社会保障支票生活，我必须节俭。但在墨西哥，我每月只需支付 420 美元就可以住到离海滩半个街区的公寓。 除了基本必需品外，我平均每月在外出就餐、娱乐和偶尔异想天开的购物上花费 160 美元。墨西哥的最低工资是约每天 8 到 12 美元。
+7。一项新的研究表明，到 2080 年，由于气候变化，全球约 70% 的海洋可能会因缺氧而窒息，这可能会影响全球的海洋生态系统。 新模型发现，支持全球许多渔业的大洋中部深度已经以不自然的速度流失氧气，并在 2021 年超过了氧气流失的关键阈值。
+8。胰腺癌是一种预后极差的肿瘤，尚未找到有效的治疗方法。 但在小鼠的临床前动物模型中，一组研究人员现在发现了一种方法，可以使用两种癌症药物的靶向组合，通过免疫治疗方法治疗胰腺肿瘤。 研究人员认为，这种有前途的联合方法也可以证明对其他癌症类型有效。
+9。美方发布了有关对海外员工及其家属所谓的“哈瓦那综合症”报告进行调查的进一步信息。美国周三表示，“脉冲电磁能，特别是在无线电频率范围内，可以合理地解释”与这种奇怪疾病相关的症状。
+10。美国正在与墨西哥的边境测试机器人巡逻犬，称其可以为边防警卫提供“机械增援”，此举被一家领先的国内权利组织批评为“公民自由灾难”。
+11。中共政府对美国政府吊销中国联通牌照的决定，进行了猛烈抨击，并誓言维护在美中国企业的“合法权益”。
+12。科学家们已经找到了一种方法，可以使用 MRI 扫描仪引导微小的磁性“种子”穿过人的大脑，从而加热和破坏癌细胞。伦敦大学（UCL) 的研究人员开发了一种新的突破性癌症疗法，作为一种高精度对抗难以触及的脑肿瘤的方法。这项名为“微创图像引导消融”（MINIMA）的技术在本周发表在《高级科学》杂志上。
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+* * *
+
+*封面：霹雳鼠年*
+
+*编辑 /发布：吐纳*
 
  
 

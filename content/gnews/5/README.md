@@ -2,19 +2,35 @@
 ---
 
 
-## 预计经济崩溃今年5月份后大爆发 战友们要做好准备 抓紧机会
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1966917/)
+## 今日盖特大V推荐 — Tucker Carlson（塔克·卡尔森）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1966923/)
 
-美国有三样基础是一定要保证的：1. 面包和汽油的价格；2.蓝领，中场阶层的工作；3.大型和核心企业的运行。美国经济最坏的时候还未到来，关键看2个核心指标：1. 信用卡烂账指标；2. 银行烂账率。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-597-e1644169218224.png)
+盖特链接：[https://gettr.com/user/TuckerCarlson](https://gettr.com/user/TuckerCarlson)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-598-e1644169179385.png)图片来源：网络
+**塔克·卡尔森自述：**
 
-美国、世界经济崩溃，预计最早3月份才会开始，5月份以后会大爆发。这对G系列发展是有利的，有时间可以准备迎接巨大的财富。
+“Tucker Carlson Tonight”的主持人，平日晚上8点东部时间@FoxNews。
 
-三个建议：持有PAYPAL， STRIPE等等公司股票的，一定要注意，要找准时机离场；做好足够的准备迎接经济崩溃；不要错过G系列这样优质的投资机会。
+在TuckerCarlson.com网站上观看新的Fox Nation媒体节目Tucker Carlson Today和Originals。
 
-视频来源: 20220204—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+**塔克·卡尔森简介：**
+
+塔克·卡尔森生于1969年5月16日，是美国电视主持人和保守派政治评论员，自2016年以来一直主持福克斯新闻的夜间政治脱口秀节目《卡尔森今夜秀（Tucker Carlson Tonight）》
+
+塔克·卡尔森的媒体从业者生涯开始于1990年代，为标准周刊撰稿。他在2000至2005年间曾经担任CNN的评论员。在2001至2005年间曾担任过Crossfire节目的联席主持人。在2005至2008年间，他在MSNBC主持了自己的同名晚间节目Tucker。2009年，塔克·卡尔森转投福克斯新闻频道担任政治分析员，并于2016年起在福斯新闻频道主持政论节目《卡尔森今夜秀》，他的节目受到保守派人士的喜爱。
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+
+校审：洛杉矶盘古农场 — 心照
+
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
