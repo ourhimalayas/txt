@@ -2,33 +2,36 @@
 ---
 
 
-## 【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1966596/)
+## 中共冬奥开幕式致数百名青少年演员染疫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966629/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/B1D98B46-8ADE-4CB3-8A53-18B2F5A57854.jpeg)
-据美联社报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）周六在推特上发文称，他的 COVID-19 检测呈阳性。
+作者：纽约香草山教育部- Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，郭文贵先生在最新的大直播节目中爆料，在为期两个月的冬奥会开幕式封闭排练期间，已确定有数百名无辜民众因参加演出而感染中共病毒，并且在此期间甚至还出现了十余例的死亡病例。
 
-他写道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-5.jpeg)
 
-“今天，我和妻子的 COVID-19 检测呈阳性，症状轻微。值得庆幸的是，我们正在经历轻微的症状，我们了解到的是 omicron 变体，”。“我们正在隔离。我们将继续在家工作。我们期待您的祈祷。”
+据悉，此次北京冬奥会开幕式中，中共当局为了凸显出人民群众的积极参与，竟动用了3000余名的普通民众来参与演出，其中95%都是青少年，甚至还有四、五岁的儿童和年逾七十的老年人。
 
-67 岁的埃尔多安在通过视频链接出现在伊斯坦布尔的隧道开通仪式上，发送了这条消息，他取消了亲自露面。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8CFBE52E-EE2C-4584-8A83-91E5B5014ABF.jpeg)
-第一夫人艾米娜·埃尔多安（Emine Erdogan）在推特上回复说：“愿上帝保佑，我们将与塔伊普先生一起摆脱这种感染。”
-土耳其总统去年 6 月接种了第三剂疫苗。
-几位世界领导人祝愿埃尔多安和第一夫人早日康复。
-发来信息的有巴基斯坦总理伊姆兰汗、阿塞拜疆总统伊利哈姆阿利耶夫、北塞浦路斯土耳其共和国总统埃尔辛鞑靼和乌克兰总统泽连斯基。汗在他的推特账户上写道，“我代表我们的政府、巴基斯坦人民和我个人祝愿他们早日完全康复。”
+据墙内的一位马姓女士爆料，仅在自己所负责的一个节目中，就有超过一半以上的儿童演员因感染疫情而被迫隔离、退出，其排练的节目也因此取消。而这一切闹剧、惨剧的发生都应归咎于中共官员罔顾人命的“形式主义”作风。
 
-土耳其最近几天出现了创纪录的 COVID-19 病例，卫生部周五报告了 111,157 例病例。12 月下旬，每日病例数约为 20,000，但由于高度传播的 omicron 变体而有所上升。
+参考链接：
+1）[2022年2月4日 文贵直播](https://gtv.org/video/id=61fd129696ba5d73e0c27967)
+2）[北京冬奥开幕式 一场完美的“不完美表演”](https://k.sina.com.cn/article_1726918143_66eeadff02001bp56.html)
 
-该国也因 COVID-19 感染病例导致大量死亡，周五报告有 248 人死亡，这是自 10 月以来的最高水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-[援引链接：](https://apnews.com/article/coronavirus-pandemic-health-europe-recep-tayyip-erdogan-istanbul-089ac4910697c94f50005b54b725ba7c)
+总编：文特
+编辑：文特
+校正/发稿：谐趣园
 
-撰稿/米拉娅
-审阅/邱杰斯
-上传/天赐良闻
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
