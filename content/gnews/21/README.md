@@ -2,50 +2,46 @@
 ---
 
 
-## 巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1966404/)
+## 2022年2月6日郭先生大直播 文字同步精要
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1966498/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+战友们好，郭先生和全球亿万战友们继续大直播!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+1、普京已经溜了，冬奥闭幕会将变成羞耻的闭幕会。冬奥会成为冬眠会，开幕式变成无法闭幕的冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/cac82ece-6210-4256-8e6f-8cabededc38f.jpg)
+2、上千亿已经付过的钱，普京才成为唯一一个给习近平撑场面的人。所谓的全天候是过去的不结盟，事实是欺骗美国的对外结盟关系。中共和北朝鲜的合同已经到期，就是过期的结婚证。中俄关系也如此，是没有结婚证情况下的，睡一觉给现金的关系。现在，习近平变成了奶娘，俄罗斯GDP才万亿，每年从中国吸奶突破1400亿，天然气的钱是给普京的钱，还没有算在中俄贸易中。
 
-本文摘自1月15日，巴西圣保罗科尔教学研究所（Instituto Kerr de Ensino e Pesquisa, São Paulo）、圣保罗州立大学（State University of São Paulo）动物科学系、圣保罗里贝朗普雷图医疗学校（Ribeirão Preto Medical School, University of São Paulo）遗传学系、里贝朗普雷托CTAG基因组评估技术中心（Centro Técnico de Avaliação Genômica C.T.A.G, Ribeirão Preto）、巴西利亚Corpometria 研究所、加拿大多伦多大学（University of Toronto）、美国剑桥EAFIT数据分析中心（Data Analysis, Universidad EAFIT）、美国前线Covid-19重症监护联盟 (Front-Line Covid-19 Critical Care Alliance，FLCCC)和伊塔雅伊市政厅（Itajaí City Hall, Itajaí）的Flavio A.Cadegiani博士等人发表的论文《[Strictly regular use of ivermectin as prophylaxis for COVID-19 leads to a 90% reduction in COVID-19 mortality rate, in a dose-response manner: definitive results of a prospective observational study of a strictly controlled 223,128 population from a city-wide program in Southern Brazil](https://www.researchgate.net/publication/358386329_Strictly_regular_use_of_ivermectin_as_prophylaxis_for_COVID-19_leads_to_a_90_reduction_in_COVID-19_mortality_rate_in_a_dose-response_manner_definitive_results_of_a_prospective_observational_study_of_a)》。
+3、北京冬奥会几乎没有任何有成就的运动员，只有个别过了黄金期的运动明星。
 
-文章介绍，2020年7月7日至2020年12月2日，在巴西圣卡塔琳娜州（state of Santa Catarina）伊塔雅伊市（city of Itajaí）开展一项使用伊维菌素（ivermectin）预防COVID-19的全民健康系统计划研究。本研究的目的是评估常规使用伊维菌素对预防COVID-19 感染和死亡率的影响。
+4、普京同行的4个人染病，还有其它外国人，和普京有关系的人死在了冬奥会，普京很在乎这个病毒，非常生气。普京对来之前的黄金挂钩的兑现方式，来之后就变卦了，也极为不满。普京没有选择，碳中取火，1秒钟都不想多待。中共给俄罗斯的山珍海味，灵芝仙草，全部被倒掉。任何国际上的政治家根本没有个人关系，就是可以控制的魔，可以控制的骗子。习近平相信所谓个人关系，政治白痴。中共和俄罗斯的野心没有任何可行性。当一个国家交错朋友，用生命对赌的时候，等待的一定是死亡。这就是习近平与中共的现状。
 
-测试组按每人每15天连续两天服用0.2mg/kg/天剂量的伊维菌素。在研究期间，建议被确诊的 COVID-19所有参与者不要使用伊维菌素（ivermectin）、硝唑尼特（nitazoxanide）、羟氯喹（hydroxychloroquine）、螺内酯（spironolactone）或任何其他声称对 COVID-19 有效的药物。该市也没有为感染 COVID-19 的参与者提供任何特定药物的门诊治疗。
+5、冬奥会变冬眠会！主要3个内部原因：中共国的能力已经达不到冬奥会的要求；党内知道这是习近平一个人的冬奥会，对他恨之入骨；病毒威胁的真实情况已经无法想象。张艺谋根本不愿意参加，只有恨。只有朝阳区的傻孩子，做了表演的奴隶。
 
-在该市登记的223,128名居民中，61,583名因年龄不超过18岁没有被纳入研究范围。剩下18岁以上的161,545人中，1,984人因2020年7月7日之前有感染COVID-19记录也被排除在研究范围之外，最终确定159,561人纳入研究范围。
+6、冬奥会变冬眠会！ 外部原因：国际社会几个月前就开始调查，冬奥会和中共之间的腐败关系。共产党把国际奥委会变成了小姐。共产主义是不受约束的奴隶主制度，俄罗斯是这种制度的鼻祖，是不受西方世界待见的白人。中共需要一个所谓高贵的白人朋友，于是勾结在一起。 共产党内外受挫， 共产党已经完了，根本没有能力应对这一切。
 
-在这159,561人中，最终113,845人在感染COVID-19之前接受了伊维菌素计划，占研究对象的71.3%，另外45,716人在研究期间未接受或不想接受伊维菌素，包含作为预防或治疗感染COVID-19后的药物，占研究对象的28.7%。
+7、俄罗斯政治黑社会，全人类第一。俄罗斯贸易没有不拿回扣的。美国人是真正的文化经济交流。俄罗斯从来没有想过和美国开战，知道一定会灭国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i01.jpg)
+8、川普总统没有任何心思灭共，但是敢于对中共的贸易冲突，是了不起的。美国人最早发明了OBM分包化。美国经济受挫，最惨的是中共国。无知之后必须付出的代价，在习近平身上体现。冬奥会现场的防弹衣，就是完全没有脑子的体现。
 
-在来自伊塔雅伊市的113,845名服用伊维菌素作为预防COVID-19的参与者中，有4,197人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为3.7%，而45,716名未服用伊维菌素的参与者中，有3,034人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为6.6%。这7,345名感染者的信息如下：
+9、单伟建，杨贝贝这样的人在美国的渗透和影响，还有美国政府的官僚让人很无奈。郭先生烧掉的3份文件，即使交给美国政府，当时也不一定会起到多大的作用。共产党知道在美国犯罪，美国觉醒需要时间，所以才肆无忌惮。陈氏兄弟的很多文件都没有公布，任何一份文件都会让美国拉起安全警报。这就是美国的制度，必然像珍珠港一样，醒悟后才会奋起反抗，必然获胜，只是代价有点大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-1-Baseline-characteristics-of-subjects-enrolled-in-the-study-before-matching-and-after-scaled.jpg)
+10、共产党在美国利用资本主义，重商主义，信仰丢失，摧毁自己的法律。这是中共重伤西方的根本原因。
 
-根据上面的结论，使用伊维菌素作为COVID-19预防性药物，COVID-19感染率降低了（6.6%-3.7%）÷6.6%=44%。
+11、大卡车事件会引发政治冲突，甚至可能升级成暴动事件。再次警告，战友不参加世界各地的大卡车运动。不允许使用GTV直播。共产党等着抓这个机会无限放大，制造“爆料革命支持卡车司机暴力运动”假新闻，引起世界排华。
 
-从使用伊维菌素作为COVID-19预防性药物的COVID-19的4,197名感染者中，抽取3,034作为研究亚组，每组3,034人，共6,068人COVID-19感染者的后续调查中，使用伊维菌素作为预防药物的感染者住院44人，感染COVID-10后的住院率为1.6%，未使用伊维菌素作为预防药物的感染者的住院99人，感染COVID-10后的住院率为3.3%，使用伊维菌素作为预防药物住院率降低56%率，对变量进行调整后，住院率降低了67%。
+12、今年3重点：1）今年不开展新项目，避免无限扩张，最重要的是阻止排华事件的发生。2）让国内各界战友得到真正的喜币和躺平币，每天早上闻到币的味道。3）做好GEDU，中国人未来的希望是教育，会提供大量的币，原新东方教育的中国老师将加入GEDU，会得到原来1.5倍工资。走新东方的路，让新东方无路可走；改唱共产党的歌，让共产党无歌可唱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i02.jpg)
+13、西方黑暗势力支持共产党的代价一定要付，否则共产党会死灰复燃。战友们积极传播真相，我们一定会赢，赢的会很精彩。
 
-使用伊维菌素作为预防性药物的感染者死亡25人，感染COVID-19后的死亡率为0.8%，未使用伊维菌素作为预防性药物的感染者死亡79人，死亡率为2.6%。因此，使用伊维菌素作为预防性药物，死亡率降低68%，调整后的死亡率降低了70%。
+14、郭先生见过河南台前县，范县现场买卖裸体女性，脚镣手铐，女学生只卖3000，山东人贩卖多数是四川女孩，全村人都蹂躏够了，再卖掉。购买者多数是50，60岁没有媳妇的老变态。公安在册的被贩卖的女性，仅仅河南就100多万。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-2-Propensity-score-matched-hospitalization-and-mortality-rate-among-ivermectin-users.jpg)
+15、Gclub年会要在2月14日情人节后，推迟7-10天，郭先生在准备2首歌，有一首送给中国女性。郭先生找到了类似杨改兰的故事，还有告诉七哥杨改兰真相的战友跑出来了。Gclub会员70%女性，今年Gclub年会，增加女性主题。
 
-在开始使用伊维菌素作为预防COVID-19计划之前和开始使用伊维菌素作为预防COVID-19期间，伊塔雅伊市COVID-19住院率比较中，感染COVID-19后，使用伊维菌素作为预防COVID-19药物的住院率从计划开始前的6.8%下降到计划开始后的1.8%，死亡率从3.4%下降到1.4%。
+16、今年不利于共产党的五星，水虎年七哥属狗，要用红，拿到中共国的火和土。水火不相容，水火交融。红色不是共产专有，我们也可以使用。新中国联邦今年会有三个大惊喜，2个走火运，1个走土运。火生金，金生土，土生万物！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-4-Hospitalization-and-mortality-rates-registered-in-the-city-of-Itajai-Brazil-before-versus.jpg)
+以上大直播文字精要，由新西兰农场焦点组提供。最终内容请以郭先生大直播视频为准。
 
-参考数据：
-
-[Ivermectin Prophylaxis Used for COVID-19: A Citywide, Prospective, Observational Study of 223,128 Subjects Using Propensity Score Matching](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8765582/)
-
-[Ivermectin for preventing and treating COVID-19](https://pubmed.ncbi.nlm.nih.gov/34318930/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+文案提供：梦田
 
  
 

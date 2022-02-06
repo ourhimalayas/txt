@@ -2,43 +2,24 @@
 ---
 
 
-## 经济学家：美国将遭遇金融风暴
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1966747/)
+## 麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1966880/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**采编****/翻译： 意翎  **
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-596.png)
+周六，《华盛顿邮报》记者约瑟夫·封立克（Joseph Clark）报道，美国德克萨斯州众议员米切尔特·麦考尔（Michael T.McCaul）发起了一场广告宣传活动，抨击中国共产党（CCP）的滥权犯罪行为，并与2022年北京冬奥会报道的同时播出。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-2.png)
+这位众议院外交事务委员会的共和党领袖，也是共和党的中国问题特别工作组（GOP’s Task Force ）的主席说，中共利用奥运会来“粉饰他们的种族灭绝、军事侵略和对本国人民的压迫……我们不会对他们奴役人民的行为睁一只眼，闭一只眼”。 麦考尔在他的竞选团队周五发布的广告中说，“CCP正在对自己的人民进行种族灭绝……他们威胁要对美国和我们的盟友进行军事侵略。他们还在继续掩盖Covid-19的起源……现在他们想让我们看奥运会，忘记他们的罪行”，他说。
+
+麦考尔置身于一个由两党组成的、旨在孰促国际奥委会(IOC)抵制中共政府在新疆的种族灭绝行为和反人类罪行的团体，一直对IOC允许北京举办奥运会的决定持批评态度。“我们会为美国队加油，同时我们也会谴责CCP和国际奥委会在道义上应受谴责的行为”，他说。
+
+在广告中，麦考尔呼吁观众，“支持运动员，不能让共产党人洗脑成功。”他在一份声明中说：“重要的是，美国人民站起来一齐对CCP的种族灭绝说不！”
+
+**[原文链接](https://www.washingtontimes.com/news/2022/feb/5/mccaul-campaign-runs-ad-targeting-beijing-olympics/)**
 
 
-
-图片来源：雅典娜设计组
-
-
-根据WBC中文网报道：美国劳工部2月5日公布的1月就业岗位数据意外大增，这加剧了投资者对美联储更快抗击通胀的担忧，并打击市场的风险情绪。
-
-令人关注的是平均时薪增速高达5.7%，远超去年12月的5%，这个关键指标反映通胀压力持续存在的隐忧，这份报告显示美国的薪资通胀也来了，同时，油价也升至90美元上方，更加剧通胀压力。
-
-报告公布后，华尔街对美联储加息押注进一步升温，数据显示，他们对美联储在今年3月加息50个基点概率升至44%，且是四周以来第一次达到这么高概率，3月隔夜指数掉期合约一度显示，对加息50个基点概率的预期达到接近50%，对第六次加息时间的预测开始变成12月。
-
-紧接着，美国银行再次重申美联储在2022年剩余的政策会议都会加息，在华尔街主要银行中的预测最高。
-
-这也使得美国国债价格在2月5日出现大幅下跌，短期国债收益率大幅上扬，10年期国债收益率突破1.92%，触及2020年初以来高位。
-
-对此，资深经济学家彼得.希夫（Peter David Schiff）在2月4日撰文指出美国经济结构出现问题，而且滥发钞票，并预言美国将会遭遇金融风暴。
-
-参考链接：[https://mparticle.uc.cn/article.html?btifl=100&app=uc-iflow&title\_type=1&wm\_id=fca2253025fc4728992aa042053d92bc&wm\_cid=469905911733827584&pagetype=share&client=&uc\_share\_depth=1&uc\_param\_str=frdnsnpfvepcntnwprdssskt](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=fca2253025fc4728992aa042053d92bc&amp;wm_cid=469905911733827584&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)
-
-发布：星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
